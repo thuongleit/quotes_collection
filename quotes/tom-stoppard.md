@@ -1,0 +1,219 @@
+ - A healthy attitude is contagious but don’t wait to catch it from others. Be a carrier.
+ - Every exit is an entry somewhere else.
+ - If you carry your childhood with you, you never become older.
+ - Words are sacred. If you get the right ones in the right order you can nudge the world a little.
+ - We cross our bridges when we come to them and burn them behind us, with nothing to show for our progress except a memory of the smell of smoke, and a presumption that once our eyes watered.
+ - Maturity is a high price to pay for growing up.
+ - War is capitalism with the gloves off.
+ - Because children grow up, we think a child’s purpose is to grow up. But a child’s purpose is to be a child.
+ - I still believe that if your aim is to change the world, journalism is a more immediate short-term weapon.
+ - I am not my body. My body is nothing without me.
+ - Theatre is a series of insurmountable obstacles on the road to imminent disaster.
+ - We’re actors. We’re the opposite of people.
+ - I’m a very boring person.
+ - There must have been a moment, at the beginning, were we could have said – no. But somehow we missed it.
+ - Life is a gamble, at terrible odds – if it was a bet you wouldn’t take it.
+ - No problem is insoluble, given a big enough plastic bag.
+ - Happiness is equilibrium. Shift your weight. Equilibrium is pragmatic. You have to get everything into proportion. You compensate, rebalance yourself so that you maintain your angle to your world. When the world shifts, you shift.
+ - I don’t think writers are sacred, but words are. They deserve respect. If you get the right ones in the right order, you might nudge the world a little or make a poem that children will speak for you when you are dead.
+ - Rosencrantz: I don’t believe in it anyway. Guildenstern: What? Rosencrantz: England. Guildenstern: Just a conspiracy of cartographers, then?
+ - We drift down time, clutching at straws. But what good’s a brick to a drowning man?
+ - It’s not the voting that’s democracy; it’s the counting.
+ - Eternity’s a terrible thought. I mean, where’s it all going to end?
+ - Imagination without skill gives us contemporary art.
+ - I write plays because dialogue is the most respectable way of contradicting myself.
+ - The tragedy of journalism is that these are people doing their best work.
+ - Good things, when short, are twice as good.
+ - I’m attracted to the past.
+ - I shall have poetry in my life. And adventure. And love, love, love, above all. Love as there has never been in a play. Unbiddable, ungovernable, like a riot in the heart and nothing to be done, come ruin or rapture.
+ - When we have found all the mysteries and lost all the meaning, we will be alone, on an empty shore.
+ - Stark raving sane.
+ - It is not hard to understand modern art. If it hangs on a wall it’s a painting, and if you can walk around it it’s a sculpture.
+ - Your opinions are your symptoms.
+ - There’s something scary about stupidity made coherent.
+ - Audiences know what to expect, and that is all that they are prepared to believe in.
+ - Responsibilities gravitate to the person who can shoulder them.
+ - A man speaking sense to himself is no madder than a man speaking nonsense not to himself.
+ - If you took away everything in the world that had to be invented, there’d be nothing left except a lot of people getting rained on.
+ - I’m vaguely embarrassed by myself sometimes.
+ - Death followed by eternity the worst of both worlds. It is a terrible thought.
+ - Pirates could happen to anyone.
+ - Seduced her? Every time I turned round she was up a library ladder. In the end I gave in. That reminds me – I spotted something between her legs that made me think of you.
+ - Never believe in mirrors or newspapers.
+ - Happiness is equilibrium. Shift your weight.
+ - It is better to be quotable than to be honest.
+ - Get me inside any boardroom and I’ll get any decision I want.
+ - Well I believe in the desirability of an optimal society.
+ - For a long time I managed to think two things simultaneously, that I am actually a good playwright, and that the next time I write a play I will be revealed as someone who is no good at all.
+ - You can persuade a man to believe almost anything provided he is clever enough, but it is much more difficult to persuade someone less clever.
+ - People think there’s a choice between smoking and immortality, but we’ve all got to die of something.
+ - I burn with no causes.
+ - I mean, if Beethoven had been killed in a plane crash at twenty-two, the history of music would have been very different. As would the history of aviation, of course.
+ - You think human nature is a beast, that it must be put in a cage. But it’s the cage that makes the animal bad.
+ - It is better of course to know useless things than to know nothing.
+ - I would join Sisyphus in Hades and gladly push my boulder up the slope if only, each time it rolled back down, I were given a line of Aeschylus.
+ - All your life you live so close to truth, it becomes a permanent blur in the corner of your eye, and when something nudges it into outline it is like being ambushed by a grotesque.
+ - Fatherlessness didn’t strike me as being an event. It was a state of life.
+ - If you associate enough with older people who do enjoy their lives, who are not stored away in any golden ghettos, you will gain a sense of continuity and of the possibility for a full life.
+ - It takes character to withstand the rigours of indolence.
+ - What a fine persecution – to be kept intrigued without ever quite being enlightened.
+ - Save the gerund and screw the whale.
+ - The ordinary-sized stuff which is our lives, the things people write poetry about – clouds – daffodils – waterfalls – what happens in a cup of coffee when the cream goes in – these things are full of mystery, as mysterious to us as the heavens were to the Greeks.
+ - The colours red, blue and green are real. The colour yellow is a mystical experience shared by everybody.
+ - My life feels, week to week, incomplete to the level of being pointless if I am not in preparation for the next play or, ideally, into it.
+ - Atheism is a crutch for those who cannot bear the reality of God.
+ - The unpredictable and the predetermined unfold together to make everything the way it is.
+ - It’s the best possible time to be alive, when almost everything you thought you knew is wrong.
+ - All mystical experience is coincidence; and vice versa, of course.
+ - What did you have in mind? A short, blunt human pyramid?
+ - It would have been nice to have had unicorns.
+ - We give advice by the bucket, but take it by the grain.
+ - The days of the digital watch are numbered.
+ - Life in a box is better than no life at all, I expect. You’d have a chance at least. You could lie there thinking: Well, at least I’m not dead.
+ - Traitors hoist by their own petard? – or victims of the gods? – we shall never know!
+ - Uncertainty is the normal state.
+ - Information is light. Information in itself, about anything, is light.
+ - The names for things don’t come first. Words stagger after, hopelessly trying to become the sensation.
+ - Wars are fought for oil wells and coaling stations; for control of the Dardanelles or the Suez Canal; for colonial pickings to buy cheap in and conquered markets to sell dear in. War is capitalism with the gloves off.
+ - Before Plato could describe love, the loved one had to be invented. We would never love anybody if we could see past our invention. Bosie is my creation, my poem. In the mirror of invention, love discovered itself.
+ - The truth is always a compound of two half- truths, and you never reach it, because there is always something more to say.
+ - You are an over-excited little man, with a need for self-expression far beyond the scope of your natural gifts. This is not discreditable. Neither does it make you an artist.
+ - He says his aim is poetry. One does not aim at poetry with pistols. At poets, perhaps.
+ - Skill without imagination is craftsmanship and gives us many useful objects such as wickerwork picnic baskets. Imagination without skill gives us modern art.
+ - Between “just desserts” and “tragic irony” we are given quite a lot of scope for our particular talent. Generally speaking, things have gone about as far as they can possibly go when things have got about as bad as they reasonably get.
+ - Back in the East you can’t do much without the right papers, but with the right papers you can do anything The believe in papers. Papers are power.
+ - Underneath runs the main current of preoccupation, which is keeping one’s nose clean at all times. This means that when things go wrong you have to pass the blame along the line, like pass-the-parcel, till the music stops.
+ - You can’t but know that if you can capture the emotions of the audience as well as their minds, the play will work better, because it’s a narrative art form.
+ - Junk journalism is the evidence of a society that has got at least one thing right, that there should be nobody with the power to dictate where responsible journalism begins.
+ - The truth is, we value your company, for want of any other. We have been left so much to our own devices – after a while one welcomes the uncertainty of being left to other people’s.
+ - I consider myself to be a very fortunate person and to have led a very fortunate life.
+ - I never had any frustration about writing uncredited. I always felt that the satisfaction of doing it was in the doing of it, really, and getting recognised by the small number of people that know what you did.
+ - The hard part is getting to the top of page 1.
+ - Chater: You dare to call me that. I demand satisfaction! Septimus: Mrs Chater demanded satisfaction and now you are demanding satisfaction. I cannot spend my time day and night satisfying the demands of the Chater family.
+ - I cannot say that I write with any social objective. One writes because one loves writing, really.
+ - I don’t think I can be expected to take seriously any game which takes less than three days to reach its conclusion.
+ - The fact is that people are attracted to new work and by new work.
+ - There is no one so radical as a man-servant whose freedom of the champagne bin has been interfered with.
+ - Public postures have the configuration of private derangement.
+ - A circle is the longest distance to same point.
+ - Beauty is desired in order that it may be befouled; not for its own sake, but for the joy brought by the certainty of profaning it.
+ - The results of the divorce between truth and human beings can be most graphically observed in politics.
+ - I read for interest and enjoyment, and when I cease to enjoy it I stop.
+ - I’m so grateful to grab hold of something that wants to be a play. It doesn’t happen very often. I don’t have unwritten plays waiting for their turn.
+ - I should have the courage of my lack of convictions.
+ - I’m the kind of person who embarks on an endless leapfrog down the great moral issues. I put a position, rebut it, refute the rebuttal and rebut the refutation. Endlessly.
+ - We must be born with an intuition of mortality. Before we know the word for it. Before we know that there are words. Out we come, bloodied and squalling, with the knowledge that for all the points of the compass, there’s only one direction. And time is its only measure.
+ - We must be born with an intuition of mortality.
+ - It is a defect of God’s humor that he directs our hearts everywhere but to those who have a right to them.
+ - If you were handed power on a plate you’d be left fighting over a plate.
+ - Better a fallen rocket than never a burst of light.
+ - It’s no trick loving somebody at their best. Love is loving them at their worst.
+ - Carnal embrace is the practice of throwing one’s arms around a side of beef.
+ - I write out of my intellectual experience.
+ - To be an artist at all is like living in Switzerland during a world war. To be an artist in Zurich, in 1917, implies a degree of self-absorption that would have glazed over the eyes of Narcissus.
+ - I’ve lost all capacity for disbelief. I’m not sure that I could even rise to a little gentle scepticism.
+ - I don’t really have a system or set of principles. It’s kind of common sense mixed up with instinct.
+ - Hotel rooms inhabit a separate moral universe.
+ - On Broadway, only the fire doors separate you from the sidewalk and you’re lucky if the sound of a police car doesn’t rip the envelope twice a night.
+ - I was so thrilled being a reporter, because it gave you the kind of access to people that you wouldn’t ever get to meet.
+ - Words, words. They’re all we have to go on.
+ - We are tied down to a language which makes up in obscurity what it lacks in style.
+ - The whole philosophy of modern times is to dissolve distinctions between individuals and deal with them as large collections of people. It’s essentially self-interested on the part of authority.
+ - Death is the ultimate negative.
+ - Suicide is no more than a trick played on the calendar.
+ - I’m a conservative kind of person. I don’t think rightwing is quite the same thing. But I acknowledge my conservatism of temperament.
+ - Biography is the mesh through which real life escapes.
+ - I can put two and two together, you know. Do not think you are dealing with a man who has lost his grapes.
+ - A great production of a black comedy is better than a mediocre production of a comedy of errors.
+ - We’ve traveled too far, and our momentum has taken over; we move idly towards eternity, without possibility of reprieve or hope of explanation.
+ - War is capitalism with the gloves off and many who go to war know it but they go to war because they don’t want to be a hero.
+ - No matter how imperfect things are, if you’ve got a free press everything is correctable, and without it everything is concealable.
+ - I’m offended by things and take pathetic little stands against them.
+ - If the audience is made to do not enough work, they resent it without knowing it. Too much and they get lost. There’s a perfect pace to be found. And a perfect place that is different for every line of the play.
+ - Act first! The ideas will follow, and if not – well, it’s progress.
+ - Childhood is Last Chance Gulch for happiness. After that, you know too much.
+ - We do on stage things that are supposed to happen off. Which is a kind of integrity, if you look on every exit as being an entrance somewhere else.
+ - GUIL: A scientific approach to the examination of phenomena is a defence against the pure emotion of fear.
+ - Hell is very likely to be modernization infinitely extended.
+ - You can’t treat royalty like people with normal perverted desires.
+ - To be frank: the translations that often sound bad in the mouths of the actors, these have often been done by linguists.
+ - It’s the wanting to know that makes us matter.
+ - A genuine love of learning is one of the two delinquencies which cause blindness and lead a young man to ruin.
+ - I love love. I love having a lover and being one. The insularity of passion. I love it. I love the way it blurs the distinction between everyone who isn’t one’s lover.
+ - Since we cannot hope for order, let us withdraw with style from the chaos.
+ - A movie camera is like having someone you have a crush on watching you from afar – you pretend it’s not there.
+ - Fifty-five crystal spheres geared to God’s crankshaft is my idea of a satisfying universe. I can’t think of anything more trivial than quarks, quasars, big bangs and black holes.
+ - There is truth and falsehood in a comma.
+ - From as long as, literally as far back as I can remember I’ve liked puns, word jokes, I can literally recall looking at a comic at the age of six or seven and I remember what I enjoyed and what it was precisely and how the joke worked.
+ - For all the compasses in the world, there’s only one direction, and time is its only measure.
+ - Art cannot be subordinate to its subject, otherwise it is not art but biography.
+ - Any revival in which I am involved is liable to change.
+ - For 10 years of my life, 3 times a day, I thanked the Lord for what I was about to receive and thanked him again for what I had just received, and then we lost touch and I suddenly thought, where is he now.
+ - An artist is the magician put among men to gratify – capriciously – their urge for immortality.
+ - My whole life is waiting for the questions to which I have prepared answers.
+ - The House of Lords, an illusion to which I have never been able to subscribe – responsibility without power, the prerogative of the eunuch throughout the ages.
+ - I like plays where people talk a lot. Conversation is sustained. Argument is sustained.
+ - Left to themselves people are noble, generous, uncorrupted, they’d create a completely new kind of society if only people weren’t so blind, stupid and selfish.
+ - ROS: Why don’t you go and have a look? GUIL: Pragmatism?! – is that all you have to offer?
+ - I think that the present is worth attention, one shouldn’t sacrifice it to future conceptions of, of this future or that future.
+ - In January 1962, when I was the author of one and a half unperformed plays, I attended a student production of ‘The Birthday Party’ at the Victoria Rooms in Bristol. Just before it began, I realised that Harold Pinter was sitting in front of me.
+ - Well, we’ll know better next time.
+ - I don’t write at the library, because I smoke when I work or would like the possibility of a smoke. Also, I need to be at my own desk.
+ - I’ve seldom minded other people’s opinions, but the other side of that coin is that I’ve seldom been interested by them, um their opinions about me I mean.
+ - Give us this day our daily mask.
+ - I like pop music. I consider rock ‘n’ roll to be a branch of pop music.
+ - I will take his secret to the grave, telling people I meet on the way.
+ - Fantasy flows in where fact leaves a vacuum.
+ - I don’t keep a diary and I throw away nearly all the paper I might have kept. I don’t keep an archive. There’s something worrying about my make-up that I try to leave no trace of myself apart from my plays.
+ - Be happy – if you’re not even happy, what’s so good about surviving?
+ - I write fiction because it’s a way of making statements I can disown.
+ - Nowadays, an artist is someone who makes art mean the things he does.
+ - Each move is dictated by the previous one – that is the meaning of order.
+ - The fact is, I loved being English. I was very happy to be turned into an English schoolboy.
+ - I’m hopeless at looking into myself and trying to see how things are working and why.
+ - I’m going to be dead before I read the books I’m going to read.
+ - My work always tried to unite the true with the beautiful; but when I had to choose one or the other, I usually chose the beautiful.
+ - Every age thinks it’s the modern age, but this one really is. Electricity is going to change everything. Everything!
+ - What are a friend’s books for if not to be borrowed?
+ - I doubt that art needed Ruskin any more than a moving train needs one of its passengers to shove it.
+ - In the theater there is often a tension, almost a contradiction, between the way real people would think and behave, and a kind of imposed dramaticness.
+ - James Joyce – an essentially private man who wished his total indifference to public notice to be universally recognized.
+ - I can’t remember what my first script was.
+ - I smoke too much whether it’s going well or badly. After all these years, I definitely associate having a pen in my hand with having an ashtray just out of eye line.
+ - If you want to change something by Tuesday, theater is no good. Journalism is what does that. But, if you want to just alter the chemistry of the moral matrix, then theater has a longer half-life.
+ - There is presumably a calendar date a moment when the onus of proof passed from the atheist to the believer, when, quite suddenly, secretly, the noes had it.
+ - Player: Relax. Respond. That’s what people do. You can’t go through life question your sitution at every turn.
+ - It was a different planet in 1967, the Broadway theatre. It had a little ashtray clamped to the back of every seat and the author got 10% of the gross.
+ - If an idea’s worth having once, it’s worth having twice.
+ - In England the rich own the poor and the men own the women.
+ - From principles is derived probability, but truth or certainty is obtained only from facts.
+ - I’ve got no interest in educating or instructing people.
+ - I write for film or, in this case, television when I haven’t got a play cooking.
+ - As a playwright, you can cover a lot of waterfront without being able to hold your own against an expert in any of those areas. I have no illusions about that.
+ - You’re familiar with the tragedies of antiquity, are you? The great homicidal classics?
+ - We’re better at predicting events at the edge of the galaxy or inside the nucleus of an atom than whether it’ll rain on auntie’s garden party three Sundays from now.
+ - To say that it is without pace, point, focus, interest, drama, wit or originality is to say simply that it does not happen to be my cup of tea.
+ - I don’t act, I don’t direct, I don’t design.
+ - If enough things that are untrue are said about you, no one will know what really is true.
+ - I was delighted to not go to university. I couldn’t wait to be out of education.
+ - If rationality were the criterion for things being allowed to exist, the world would be one gigantic field of soya beans!
+ - Personally I am in favour of education but a university is not the place for it.
+ - Theater is still a medium which attracts young writers. You’d think that it would be all over by now, with television and film. But it’s not.
+ - I take every possible side.
+ - The causes we know everything about depend on causes we know very little about which depend upon causes we know absolutely nothing about.
+ - The universe is deterministic all right, just like Newton said, I mean it’s trying to be, but the only thing going wrong is people fancying people who aren’t supposed to be in that part of the plan.
+ - I write scenes – often quite long scenes – mainly because I still get seduced into writing six lines where one and a half will do.
+ - The bad end unhappily, the good unluckily. That is what tragedy means.
+ - When I think of how things could have turned out, I feel as if I’ve dodged, not just bullets, but 6mm shells.
+ - Theater is a recreation. It can be much more, but unless it’s recreation, I don’t see the point of it.
+ - The days of the digitals are numbered. The metaphor is built into them like a self-destruct mechanism.
+ - I know the British press is very attached to the lobby system. It lets the journalists and the politicians feel proud of their traditional freedoms while giving the reader as much of the truth as they think is good for him.
+ - He’s never known anything like it! But then, he has never known anything to write home about, so this is nothing to write home about.
+ - I feel overestimated.
+ - I don’t think Stoppardian has a precise definition.
+ - Of all forms of fiction, autobiography is the most gratuitous.
+ - Revolution is a trivial shift in the emphasis of suffering.
+ - The media. It sounds like a convention of spiritualists.
+ - It takes a lot of effort to be vibrant.
+
+217 quotes

@@ -1,0 +1,224 @@
+ - Your problem isn’t the problem, it’s your attitude about the problem.
+ - You’ll turn out ordinary if you’re not careful.
+ - The path of your life can change in an instant.
+ - There are two kinds of people in this world. The kind who divide the world into two kinds of people and those who don’t.
+ - Parents were the only ones obligated to love you; from the rest of the world you had to earn it.
+ - Everyone is fragile. Everything beautiful is fragile.
+ - When you feel someone else’s pain and joy as powerfully as if it were your own, then you know you really loved them.
+ - Maybe the truth is, there’s a little bit of loser in all of us. Being happy isn’t having everything in your life be perfect. Maybe it’s about stringing together all the little things.
+ - A tree is such a rich metaphor in a million beautiful ways. You can consider a tree growing and consider its connectedness to all things above and under the ground.
+ - Everything good requires sacrifices.
+ - The distinction has blurred between young adult and adult books. Some of the teen books have become more sophisticated.
+ - She was still waiting for him to come back to her, even though he wasn’t going to. She was still holding out for something that wasn’t going to happen. She was good at waiting. That seemed like a sad thing to be good at.
+ - Let me love you, but don’t love me back. Do love me and let me hate you for a while. Let me feel like I have some control, because I know I never do.
+ - Pain is fear, and I’m not afraid.
+ - I’m not going anywhere without you. We’re swimming to China together. And if the worst happens, I’m dying with you before I’m living without you.
+ - When she is happy, she can’t stop talking, when she is sad she doesn’t say a word.
+ - It’s so much easier to have no expectations than to have big ones.
+ - I did the searching and remembering, she did the disappearing and the forgetting.
+ - Try, reach, want, and you may fall. But even if you do, you might be okay anyway. If you don’t try, you save nothing, because you might as well be dead.
+ - You could feel things or you could find a way to shut down. But once you were feeling things, you couldn’t decide exactly what to feel. That was the trouble with letting them in at all. They made a mess of the place.
+ - Do not spoil what you have by desiring what you have not.
+ - Grief was like a newborn, and the first three months were hard as hell, but by six months you’d recognized defeat, shifted your life around, and made room for it.
+ - Women always seemed to bring the size they wished they were to the fitting room, rather than the size that would actually fit.
+ - She wanted him to see all of her and also none of her. She wanted him to be dazzled by the bits and blinded by the whole. She wanted him to see her whole and not in pieces. She had hopes that were hard to satisfy.
+ - Some things have to be believed to be seen. -Ralph Hodgson.
+ - Time is what keeps things from happening all at once.
+ - What Daniel taketh away, Daniel giveth.
+ - I love that blurry place where life’s transitions are made without you even knowing it.
+ - Someday when you’re twenty, maybe, I’ll see you again. You’ll be this hot soccer star at some great school, with a million guys more interesting than I am chasing you down. And you know what? I’ll see you and I’ll pray you want me still.
+ - Love who you love while you have them. That’s all you can do. Let them go when you must. If you know how to love, you’ll never run out.
+ - I allowed myself to suffer how jarringly destructive the present feels and how fragile the past.
+ - At the worst possible moment, the most painful, darkest moment when you can’t take it anymore and you are afraid, that is when a feeling of peace and comfort will come over you, and it’s like nothing you’ve ever felt.
+ - It was like a dream you might have after death in which lost people came back to life, your friends loved you again no matter what you had done, and your failures were unaccountably forgiven.
+ - Show me a girl with her feet planted firmly on the ground and I’ll show you a girl who can’t put her pants on. -Annik Marchand.
+ - I love you, I’ll never stop.
+ - Maybe, sometimes, it’s easier to be mad at the people you trust because you know they’ll always love you, no matter what.
+ - I always interpret coincidences as little clues to our destiny.
+ - Please believe him. Keep your heart open to him. He can make you happy. He has always loved you, and you once loved him with all your heart.
+ - Don’t talk to me. I’m tired and grumpy and I’ll probably make fun of you.
+ - She thought she was independent and strong, but she got one small taste of love and she was hungrier than anyone. She was ravenous.
+ - She had to have faith not just in trying but in failing. Was she strong enough to fail Was she strong enough not to.
+ - You couldn’t erase the past. You couldn’t even change it. But sometimes life offered you the opportunity to put it right.
+ - The most haunting thing was not that he didn’t love her anymore. She could have accepted that eventually. The most haunting thing was that he did. He loved her from afar. He loved her in a way that was preserved in time, that couldn’t be sullied. And she tended it in her careful, curatorial way.
+ - Love demands everything, they say, but my love demands only this: that no matter what happens or how long it takes, you’ll keep faith in me, you’ll remember who we are, and you’ll never feel despair.
+ - Love yourself and your friends unconditionally .
+ - What made you feel that stomach-churning agony for one person and not another? If Bridget were God, she would have made it against the law for you to feel that way about someone without them having to feel it for you right back.
+ - The ocean was the best place, of course. That was what she loved most. It was a feeling of freedom like no other, and yet a feeling of communion with all the other places and creatures the water touched.
+ - Blood may be thicker than water, but friendship is thicker than both.
+ - People sometimes talk about the power of first impressions, and believe me, there is truth to it.
+ - She went around with a broken heart, and she wasn’t sure who’d broken it. She thought it was herself, mostly.
+ - I agree that a love of reading is a great gift for a parent to pass on to his or her child.
+ - Their friendship was only one aspect of their lives but it seemed to give meaning to all the others.
+ - He wanted to take his love back from her so badly. The old techniques didn’t work anymore. In fact, they’d never worked. How do you stop loving someone? It was one of the world’s more brutal mysteries. The more you tried, the less it worked.
+ - You know what the secret is? It’s so simple. We love one another. We’re nice to one another. Do you know how rare that is? – Carmen.
+ - You forget your victories, but you remember the losses.
+ - I look back on my 20s. It’s supposed to be the prime of your life, the most vital, the most beautiful. But you’re making your critical decisions and sometimes your most critical mistakes.
+ - I’m dying with you before I’m living without you.
+ - She perched on her windowsill, gazing at the lurid sun soaking into the Caldera, trying to appreciate it even though she couldn’t have it. Why did she always feel she had to do something in the face of beauty?
+ - She glared at him, feeling the old frustration. Sometimes in his presence she felt the deepest connection to him, and other times she felt completely alone-as though any bond to him was her own bitter imagination.
+ - Particularly beautiful people were like particularly funny-looking people, though. Once you know them you mostly forgot about it.
+ - She used to cry roughly three times a year. Now she seemed to cry three times before breakfast. Could that be considered progress?
+ - But I know this. We’re ready to move forward again in our way. Together or apart, no matter how far apart, we live in one another. We go on together.
+ - Her vision of the world under the water represented a beautiful stillness, a version of heaven. It was the lost city of Lena, her alternate universe, the life she yearned for but didn’t get to have.
+ - Bridget’s anger evaporated and the sadness came back. The anger was easier. She owned and contolled it, whereas the sadness owned her.
+ - She got tired of herself. She got tired of not being able to say what she wanted or do what she wanted or even want what she wanted.
+ - Maybe it didn’t matter if you were a world-famous heartthrob or a painful geek. Maybe it didn’t matter if you friend was possibly dying. Maybe you just got through it. Maybe that was all you could ask for.
+ - She cared about him too much, and he was a dangerous person to love. He wouldn’t love her back.
+ - She kept walking. The very small, brave part of her brain knew that this would be her one chance. If she turned around, she would lose it.
+ - She felt like parts of her soul were missing, had left her body long ago. It had happened not in Greece three months ago, but long before that. It was in Greece that she’d realized those parts had left her and were not coming back.
+ - It was funny to hear her voice aloud. Her thoughts and perceptions usually existed so deep inside her, they rarely made it to the surface without a deliberate effort.
+ - Love made you admire funny things about a person, like how good she was at remembering to return her library books and at slicing cucumbers very thin. She was a veritable wonder at pulling a splinter out of her foot.
+ - She loved her mother and depended on her mother, and yet every single word her mother said annoyed her.
+ - For the first time she saw that the nurse’s name was Tabitha.
+ - The phone was her worst enemy and her best friend but she never knew which until she answered it.
+ - Once Paul told her that the beach was like him because it changed every day but it never made any progress. Later she remembered thinking that a normal person might have begun by saying that he was like the beach.
+ - She spilled rice on my knee, and she smiled. I wanted her to spill a thousand things on me, lava, acid, bricks, anything, and smile each time.
+ - She had willed her heart to stay small and contained, but it wouldn’t be. Oh, well.
+ - Love is like war; easy to begin, hard to end.
+ - When your about to criticize someone walk a mile in thier shoes, that way when you criticize them you’re a mile away from them and you have their shoes.
+ - Her body was a prison, her mind was a prison. Her memories were a prison. The people she loved. She couldn’t get away from the hurt of them. She could leave Eric, walk out of her apartment, walk forever if she liked, but she couldn’t escape what really hurt. Tonight even the sky felt like a prison.
+ - Life isn’t just fair. It’s just fairer than death, that’s all. -William Goldman.
+ - You have been with me from the very first life. You are my first memory every time, the single thread in all of my lives. It’s you who makes me a person.
+ - When you remembered to forget, you were remembering. It was when you forgot to forget that you forgot.
+ - Wear them, they will make you brave.
+ - There are moments in your life when the big pieces slide and shift. Sometimes the big changes dong happen gradually but all at once. That’s how it was for us. That was the day we discovered that friends can do things for you that your parents can’t.
+ - Carmen was bad at loving. She loved too hard.
+ - I did love her. I’ve loved her from the first time I saw her.
+ - She existed in her friends; there she was. All the parts of herself she’d forgotten. She knew herself best when she was with them.
+ - She realized all at once the deeper thing that bothered her, the thing that made him not just irritating but intolerable: how he kept loving her blindly when she deserved it so little.
+ - I killed her once and died for her many times and I still have nothing to show for it. I always search for her ; I always remember her. I carry the hope that someday she will remember me.
+ - You just have to let people love you in the way they can.
+ - Starting is hard so I really need to give myself permission to do a bad job. I always give myself leave to write total nonsense for as long as I need to release the pressure, because it’s really hard to start if you feel like that first sentence you write has to actually mean something.
+ - What you leave behind is the people you loved. You leave yourself in them.
+ - Wish for what you want, work for what you need. -Carmen’s grandmother.
+ - So far, she’d been her usual lame self: solitary and routine-loving, carefully avoiding any path that might lead to spontaneous human interaction. Lena Kaligaris.
+ - Sometimes you couldn’t face the sadness of being forgotten until you felt the comfort of being remembered again.
+ - I mean putting yourself out there in the way of overwhelming happiness and knowing you’re also putting yourself in the way of terrible harm. I’m scared to be this happy. I’m scared to be this extreme.
+ - All my life, everybody has seen me a certain way. What do you see?
+ - But like everything else, love changed.
+ - Someday was the thing he had, because it was a lot harder to ruin than today.
+ - She knew that when she got old it would be more fun to look back on a life of romance and adventure than a life of quiet habits. But looking back was easy. It was the doing that was painful. There were plenty of things she would like to look back on but wasn’t willing to risk...
+ - She was astonished, and at the same time she knew. There were many things in life like that. You couldn’t imagine it, and then it happened and you couldn’t really imagine it hadn’t.
+ - I killed her once and died for her many times.
+ - What happened to me by myself felt partly dreamed, partly imagined, definitely shifted and warped by my own fears and wants. But who knows? Maybe there is more truth in how you feel than in what actually happens.
+ - Knowing where she was in the world, even if he never touched her, gave him a deep satisfaction, and he half despised himself for being satisfied with so little.
+ - You should find him because he loves you.
+ - Carmen didn’t like change, and she certainly didn’t like endings.
+ - Marnie loved her better and more honestly than anyone else in the world, with the possible exception of her mother, who loved her intensely if not honestly.
+ - Something about giving in without a fight felt wrong.
+ - But it was smell that carried memory.
+ - There were those emotions down there, and though she couldn’t quite feel them, they were strong and she feared them. It was like watching a thunderhead from high up in a plane, and though you weren’t under it, you knew how it would feel if you were. You knew you’d have to land eventually.
+ - How could you cleanse yourself if you couldn’t forget?
+ - Lena knew she had spent too much of her life in a state of passive dread, just waiting for something bad to happen. In a life like that, relief was as close as you got to happiness.
+ - You hold on to old experiences: injuries, injustices, and great love affairs, too. And you hold them in your joints and your organs, and wear them on your skin.
+ - Relief is a short-lived emotion, passive and thin. The agony of doubt disappears, leaving little memory of how it really felt. Life aligns behind the new truth.
+ - I was supposed to write a romantic comedy, but my characters broke up.
+ - He was the strangest of strangers in that he was also her oldest friend.
+ - They needed to grieve alone was what Tibby’s dad said. Lena wondered if really there was any choice in that. Everyone grieved alone.
+ - Lena realized that a fundamental layer of their happiness depended on the four of them being close to one another. Their lives were independent and full. Their friendship was only one aspect of their lives, but it seemed to give meaning to all the others.
+ - Everything I ever said to you was true and is true.
+ - He didn’t seem to realize that three excuses was as good as no excuse.
+ - Sometimes he felt sure that the key to happiness was a poor memory.
+ - Healing wasn’t always the best thing. Sometimes a hole was better left open. Sometimes it healed too thick and too well and left separate pieces fused and incompetent. And it was harder to reopen after that.
+ - When I turned fifteen, I remember my father gave me a credit card which I was allowed to use for two things: emergencies and books.
+ - There were certain qualities you possessed carelessly. And you couldn’t retrieve them when they were gone. The very act of caring made them impossible to regain.
+ - Developing characters is a strange thing. In the beginning they are abstract and I wonder how to move on from there.
+ - She wanted him to notice her so much.
+ - The bottom had arrived. She crashed against it, but it brought no sense of closure or understanding. She just lay there at the bottom looking up. She knew there must be a very tiny circle of light up there somewhere, but just now she couldn’t see it.
+ - Alice suspected Paul couldn’t really picture his father, just like she couldn’t picture Paul when he was away. Maybe that was the case with people you wanted more than was good for you.
+ - It was wrong. But it was worth it.
+ - But certain souls cohere. It’s rare but possible. But it takes two powerful wills to make it so.
+ - This body is breaking down, but I am not.
+ - He tricked himself into thinking that she would look into his eyes and remember, that love would conquer all.
+ - Gestating characters feels something like the mental equivalent of gestating a baby. In both cases, to create them you lose yourself. Or at least you reshape yourself to encompass them.
+ - A part of her wanted to tell him she still loved him, and that even though this love was hopeless and long over, it still consumed her year after year. It was a tangled hairball of feelings and she couldn’t pull forth any one strand.
+ - One must have a good memory to keep the promises one has made.
+ - I sometimes think the stronger you feel about someone, the harder it is to picture their face when you are away from them.
+ - I knew her hair and her coloring and her shapes would be different next time, but the way she wore her body would keep on.
+ - There are going to be moments of deep, deep doubts, and you have to have faith that your initial idea was good and just muddle through.
+ - He’s had a lot of chances to care, and he hasn’t.
+ - How is it that a person could be so relieved and so disappointed, both at the same time.
+ - All the things she planned to feel, the way she planned to look and seem, the appropriate things she planned to say. None of them came to pass.
+ - She wondered if maybe tragedy was what it took to make your heart capable of admitting a new member.
+ - It was their mothers, long ago. Tibby noted with joy that all four of them were wearing jeans.
+ - She was alive, and they were dead. She had to try to make her life big. As big as she could. She promised Bailey she would keep playing.
+ - But there were times when you felt miserable and you wanted to feel better, and other times when you felt miserable and you figured you would just keep on feeling miserable.
+ - She liked the life she had. She loved habits. She craved a day with nothing in it, a long, quiet stretch of hours in the studio.
+ - His distress and pleasure mixed and married, giving birth to several anxious children.
+ - You surround yourself with your pain or you avoid it and let it find you when you are trying to do other things.
+ - How many times could you give up on someone you loved?
+ - He had to fight. That’s all he had. Not memories, not experiences, not skills. He had a will. And his will was to fight until he couldn’t fight anymore.
+ - There are some people who fall in love over and over.
+ - But then she hadn’t just learned to love this summer – she had also learned how to need.
+ - He loved her for being so beautiful, and he hated her for it. He loved how she put shiny stuff on her lips for him, and he also reviled her for it. He wanted her to walk home alone, and he wanted to run after her and grab her up before she could take another step.
+ - What if people knew they were recycled? Would that change anything?
+ - It was probably good you couldn’t flip the love switch because sometimes it was what you needed even if you didn’t want it.
+ - It’s natural to overlook and even sacrifice the things that belong to us most easily most gracefully. So here’s me asking you to please not make that mistake.
+ - There was one thing Bridget like about guys. They took insults well.
+ - What can I say? I’m obsessed. And as we all know obsessed girls can’t be held responsible for our actions.
+ - I do believe that characters in novels belong to their writers and their readers pretty equally. I’ve learned a lot of things about the characters I write from people who read about them. Readers expand them in ways I don’t think of and take them to places I can’t go.
+ - She must have sensed she never really had him. That was a sadness of hers, he knew.
+ - I don’t have the life of a famous person. But I do feel like I’ve been able to connect with a lot of people.
+ - I want to go where you’re going. I’m not scared of dying. I want to stay together and come back together. You said that souls cohere. I want to stay with you.
+ - She was sad about what happened to Kostos. And someplace under that, she was sad that people like Bee and Kostos, who had lost everything, were still open to love, and she, who’d lost nothing, was not.
+ - She wasn’t as destructive as Bee. She had never been as dramatic. Rather, she’d slipped carefully, stealthily away from her ghosts.
+ - It was hard to feel the right emotions at the right times. They didn’t come at all when you set a place for them, and they sacked when you weren’t ready, when you were just innocently flossing your teeth, for example, or eating a bowl of cereal.
+ - She’d loved him as much as he’d let her. More than he’d let her.
+ - Love didn’t necessarily look the way you expected it to.
+ - Marnie hated to see her spend so much of herself on someone who didn’t care.
+ - The word friends doesn’t seem to stretch big enough to describe how we feel about each other. We forget where one of us starts and the other one stops.
+ - My household is, in a nice way, very busy.
+ - He’d pushed her. He’d scared her. He’d besieged her. He’d vowed he wouldn’t, and he did.
+ - You don’t have time, Len. That is the most bitter and the most beautiful pieve of advice I can offer. If you don’t have what you want now, you don’t have what you want. -pg276.
+ - A lot of friendship is about practice, that’s something I’ve learned as I’ve gotten older. It’s not simply some spiritual soul-bond of memories and longings, it’s really about having coffee every week, or talking on the phone every day or every other day – whatever suits you.
+ - Lena always described how she dreaded and mourned things before they even happened. Carmen was beginning to suspect that she was permitting herself to mourn this long separation only now that it was over.
+ - No matter how far back you cut a willow tree, it will never really die.
+ - I like that you let yourself be surprised.
+ - The present no matter what I brought couldn’t change the past. The Past was set and sealed.
+ - Can you make yourself love? Can you make yourself loved? -Lena Kaligaris.
+ - A loving soul was always more beautiful over the long haul, but actual prettiness was fleeting.
+ - Every life I start with her, my original sin. I know myself through her.
+ - It took the real thing to show you the size of your delusions.
+ - Lena was an introvert. She knew she had trouble connecting with people. She always felt like her looks were fake bait, seeming to offer a bridge to people, which she couldn’t easily cross.
+ - The weather turned. Her skin seemed to grow a million extra pores, and all of them opened to take in the warmth and tenderness of the air. The sun on her face made her want to cry. Into all those millions of open pores came the sunshine, and other feelings as well. In and out. She was porous.
+ - Sometimes it is a relief to be invisible.
+ - She wasn’t sure if he wanted more from her or if he wanted less. Maybe it was both. Maybe it was always both.
+ - As a writer, you live in such isolation. It’s hard to imagine your book has a life beyond you.
+ - You carry your past with you even if you don’t remember any of it.
+ - He just wanted to look at her and know her life was marching along under the same arch of time and space as he is.
+ - Different people were good at different things, Lena mused. Lena was good at writing thank-you notes, for instance, and Effie was good at being happy.
+ - Luck never gives; it lends.
+ - Maybe there is more truth in how you feel than in what actually happens.
+ - The happiness at getting what you want is not usually commensurate with the worry leading up to it.
+ - To write a story, I think you really have to open yourself up to the world.
+ - Bridget cried for the leavers and the left. For the people, like herself, grimly forsaking what precious gifts they would ever get.
+ - Age is not so much a feature of your character, as the spot where you stand for a pretty fleeting time on the arc of your life.
+ - She wondered again about her inclination to wish for things that made her so deeply unhappy.
+ - It’s always nervewracking to put yourself out there. But it’s the root of joy.
+ - He no longer represented someday a possibility. He represented a road not taken a road that suddenly shot so far into the distance she couldn’t see it anymore.
+ - Tibby’s wish would be to hold on to the idea of love even in the face of darkest doubt. Because that was the way in which she failed. Not once, but again and again.
+ - As much as I’m drawn to writing about teenage girls, I like the idea of having the freedom to branch out and write about different ages, for different ages.
+ - All I could think to do was love her. That’s all a person can do.
+ - Polly was pretty good at dieting, all right, but she was beginning to wonder whether you ever lost the parts of your self that you wanted to lose.
+ - People left a lot of things behind when they went in the water. Their clothes, their stuff, their makeup, their fixed-up hair, their voices, their hearing, their sight – at least as the normally experienced them.
+ - The dreams weren’t as pleasing when they had no chance of coming true.
+ - There was a moment in between, a moment flung free in the midst of the transition, when he made contact. That was the moment she would dwell on.
+ - There was love expressed in the places you usually forget to look.
+ - She was supposed to be putting her life together right now, and all she could seem to do was throw grenades at it.
+ - I love her. I need her. I gave away everything I had for her. I just wanted her to know me.
+ - We forgive and forget. At least I forgive and he forgets.
+ - I love the idea of fictional worlds kind of all cohering in some way.
+ - Exactly! We run or we lose ourselves in something, somebody, anything to try and ease our pain.
+ - Why does he have to be my boyfriend? Are you inferior if you don’t have a boyfriend? Why does everybody have to be in love with somebody?
+ - He could lose himself in her forever, he thought.
+ - You are not going to die, I know I said I’d let you, but I can’t.
+ - They were here all at once, but not together. Survival took self-absorption, and it made them strangers with nothing to do and no way to relate. Emergencies gave you a shape and a plot to take part in, while death was no story at all. It left you nothing.
+ - Do you have any idea how much I’ve loved you?
+ - I think pants have unique qualities, especially in a woman’s life. Whatever bodily insecurities we have, we seem to take out on our pants.
+ - She hadn’t chosen the brave life. She’d chosen the small, fearful one.
+ - I’m sorry you asked me out, otherwise maybe I could have liked you.
+ - Forget Jack, I’m in love with the cold, dirt floor.
+ - When there is nothing, there is the possibility of everything.
+
+222 quotes

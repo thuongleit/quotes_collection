@@ -1,0 +1,21 @@
+ - Ecosystems are holy. The word “environmental” is a deadly compromise itself. It’s a policy word that lives only in the head, and barely there.
+ - The principles that will save Earth’s life are the same principles that save the living souls of humans: ineluctable spiritual principles.
+ - The fundamentalists of every faith remain blind to the truth that the “sigh within the prayer is the same in the heart of the Christian, the Muslim, and the Jew.” I have seen this unity with my eyes, heard it with my ears, felt it with all my being.
+ - Punctuationally speaking, wonder is a period at the end of a statement we’ve long taken for granted, suddenly looking up and seeing the sinuous curve of a tall black hat on its head, and realizing it was a question mark all along.
+ - Music is just a word for something we love largely because it consists of things that words can’t express. Likewise, the heart is just a word for something in us that music sometimes touches.
+ - And into the brown paper bag of my heart, Eddy slipped a smile.
+ - The bad thing about falling into pieces is that it hurts. The good thing about it is that once you’re lying there in shards you’ve got nothing left to protect, and so have no reason not to be honest.
+ - I’d taken a big fat crisis off my shoulders and loaded it all on Jesus, which seemed unfair in a way, but was exactly what the Bible recommended.
+ - Is a lifelong student of the world’s wisdom literature, it is my duty to inform students that ridding the world of evil is a goal very different from any recommended by Jesus, Buddha or Muhammad, though not so different from some recommended by Joseph Stalin, Joseph McCarthy and Mao Tse Tung.
+ - My books are inert as cordwood till a readers imagination ignites one and an old flame jumps to life.
+ - The environment, what surrounds you, is so alive and delightful and complex.
+ - To me, it’s a great day every time I receive a letter from somebody who climbed inside one of my books, inhabited it for a while, learned a little something, and emerged grateful.
+ - But I finally concluded that it is an inalienable right of lovers everywhere to become temporarily worthless to the world, it may even be their duty.
+ - Fiction writing feels more honest to me.
+ - When experience flies into realms that language cannot touch, honesty demands beyond-language.
+ - We hear nothing so clearly as what comes out of silence.
+ - I started having doubts right on top of my certainty.
+ - Is the work of sun worshippers to honor those who think they can see the sun? Or to worship the sun?
+ - But churches always have been the leading cause of the need for churches.
+
+19 quotes

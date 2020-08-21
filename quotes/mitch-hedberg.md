@@ -1,0 +1,311 @@
+ - I tried to throw a yo-yo away. It was impossible.
+ - Escalator temporarily stairs. Sorry for the convenience.
+ - They say the recipe for Sprite is lemon and lime. I tried to make it at home. There’s more to it than that.
+ - An escalator can never break: it can only become stairs. You should never see an Escalator Temporarily Out Of Order sign, just Escalator Temporarily Stairs. Sorry for the convenience.
+ - Hell, yeah! Meeting adjourned!
+ - My fake plants died because I did not pretend to water them.
+ - I hate turkeys. If you stand in the meat section at the grocery store long enough, you start to get mad at turkeys. There’s turkey ham, turkey bologna, turkey pastrami. Some one needs to tell the turkey, ‘man, just be yourself.’
+ - I find a duck’s opinion of me is very much influenced by whether or not I have bread.
+ - I think Bigfoot is blurry, that’s the problem. It’s not the photographer’s fault. Bigfoot is blurry, and that’s extra scary to me. There’s a large, out-of-focus monster roaming the countryside. Run, he’s fuzzy, get out of here.
+ - A burrito is a sleeping bag for ground beef.
+ - I bought a house, it’s a two bedroom house, but I think it’s up to me to decide how many bedrooms there are. This bedroom has an oven in it. This bedroom has a lot of people sitting around watching TV. This bedroom is over in that other guy’s house.
+ - A severed foot is the ultimate stocking stuffer.
+ - I used to do drugs. I still do drugs. But I used to, too.
+ - Rice is great if you’re really hungry and want to eat two thousand of something.
+ - Every McDonald’s commercial ends the same way: Prices and participation may vary. I wanna open a McDonald’s and not participate in anything. I wanna be a stubborn McDonald’s owner. “Cheeseburgers?” “Nope! We got spaghetti, and blankets.”
+ - I saw this wino, he was eating grapes. I was like, “Dude, you have to wait”.
+ - Dogs are forever in the push up postion.
+ - All these jokes have been pre-approved as funny by me.
+ - Have you ever tried sugar or PCP?
+ - When you go to a bar that has a black light, everybody looks cool. Except for me, because I was under the impression that the mustard stain came out.
+ - The depressing thing about tennis is that no matter how good I get, I’ll never be as good as a wall.
+ - A sleeping bag is a tortilla for a human.
+ - I had a job interview at an insurance company once, and the lady said ‘Where do you see yourself in five years?’ I said, ‘Celebrating the fifth year anniversary of you asking me this question!’
+ - I cannot tell you what hotel I’m staying at, but there are two trees involved.
+ - I like Kit-Kat, unless I’m with four or more people.
+ - I went to a cigar store, the man behind the counter asked me, “What kind of cigars do you like?” I answered, “It’s a Boys.”
+ - I went to the Home Depot, which was unnecessary. I need to go to the Apartment Depot. Which is just a big warehouse with a whole lot of people standing around saying “We don’t have to fix anything.”
+ - If you can’t sleep, count sheep. Don’t count endangered animals. You will run out.
+ - The Kit Kat candy bar has the name Kit Kat imprinted into the chocolate. That robs you of chocolate! That’s a clever chocolate-saving technique.
+ - I would imagine that if you could understand Morse code, a tap dancer would drive you crazy.
+ - I’m into carpooling, because sometimes my car gets hot and needs to refresh itself.
+ - When someone hands you a flyer, it’s like they’re saying here you throw this away.
+ - If I was a mechanic and someone called me and said their car would not start, I would say, “Hey – maybe a killer is after you!”
+ - If you find yourself lost in the woods, build a house. “Well, I was lost, but now I live here!”
+ - I’d like to see a forklift lift a crate of forks. It’d be so damn literal! You are using that machine to it’s exact purpose!
+ - I bought myself a parrot, but it did not say “I’m hungry”, and so it died.
+ - I used to drink wine. This girl asked me, “Doesn’t wine give you a headache?” “Yeah, eventually, but the first and the middle part are amazing!”
+ - I think foosball is a combination of soccer and shish kabobs.
+ - I miss the $2 bill, ’cause I can break a two. $20, no. $10, no. $5, maybe, $2? Oh yeah. What do you need, a one and another one?
+ - Is a hippopotamus a hippopotamus, or just a really cool Opotamus?
+ - I have a cheese-shredder at home, which is its positive name. They don’t call it by its negative name, which is sponge-ruiner. Because I wanted to clean it, but now I have little bits of sponge that would melt easily over tortilla chips.
+ - I went to a tent store. “What kind of tent do you need?” “Circus.”
+ - Here’s a thought for sweat shop owners: Air Conditioning. Problem solved.
+ - If 13 is unlucky, then 12 and 14 are guilty by association.
+ - Look at the limes in this drink, how they float. That’s good news. Next time I’m on a boat, and it capsizes, I will reach for a lime. I’m saved by the buoyancy of citrus.
+ - I tried to walk into Target, but I missed. I think the entrance to Target should have people splattered all around.
+ - This one commercial said, “Forget everything you know about slipcovers.” So I did, and it was a load off of my mind. Then the commercial tried to sell slipcovers, but I didn’t know what they were!
+ - No, I was just good at holding ice cream cones.
+ - I got a smoke alarm at home, but really it’s more like a 9-volt-battery-slowly-drainer.
+ - Snake eyes is a gambling term, and an animal term, too.
+ - I like refried beans. That’s why I wanna try fried beans, because maybe they’re just as good and we’re just wasting time. You don’t have to fry them again after all.
+ - If you had a friend who was a tightrope walker, and you were walking down a sidewalk, and he fell, that would be completely unacceptable.
+ - I am wearing a vest. If I had no arms, it would be a jacket.
+ - I got some tartar control toothpaste. I still have tartar, but that stuff’s under control. I got so much tartar, I don’t have to dip my fish sticks in anything. That’s actually kind of gross. After that joke, I have to clarify that I’m just joking.
+ - I get the Reese’s candy bar. You look at that, there’s an apostrophe-s there. That means the candy bar is his. I didn’t know that. Next time you’re eating a Reese’s candy bar, and a guy named Reese comes by and says, “Gimme that”, you better hand it over.
+ - Chicago is known as the Windy City, and Montana is called the Big Sky State, so I think that we should somehow combine the two to create the ultimate kite-flying experience.
+ - I got a business card because I wanna win some lunches. That’s what my business card says: Mitch Hedberg, Potential Lunch Winner. Gimme a call, maybe we’ll have lunch. If I’m lucky!
+ - I’d hate to be a giraffe with a sore throat.
+ - When you’re in Hollywood and you’re a comedian, everybody wants you to do other things. All right, you’re a stand-up comedian, can you write us a script? That’s not fair. That’s like if I worked hard to become a cook, and I’m a really good cook, they’d say, “OK, you’re a cook. Can you farm?”
+ - If you drink O’Douls, you don’t drink; but if you drink 20 O’Douls in a half hour, then you’re a non-alcoholic.
+ - I think we should only get 3 honks a month on the car horn. Then, someone cuts you off, you press the horn, and nothing happens. You’re like, “Crap! I wish I hadn’t seen Ricky on the sidewalk!”
+ - A snake bite emergency kit is a body bag.
+ - I wanna hang a map of the world in my house. Then I’m gonna put pins into all the locations that I’ve traveled to. But first, I’m gonna have to travel to the top two corners of the map so it won’t fall down.
+ - I love blackjack. But I’m not addicted to gambling. I’m addicted to sitting in a semi circle.
+ - People think I’m into sports because I’m a man. But I’m not into sports. I like Gatorade, but that’s about as far as it goes. By the way, you don’t have to be sweaty and play basketball to enjoy Gatorade. You can just be a thirsty dude. Gatorade forgets about this demographic!
+ - If you’re a fish and you want to be a fish-stick, you have to have very good posture.
+ - I know people who believe in ghosts but don’t believe in themselves.
+ - I can read minds, but I’m illiterate.
+ - Yeah, I’m not into sports. If someone told me I had athlete’s foot, I’d say that’s not my foot!
+ - There’s a guy in the audience with a distinctive laugh. I hope that guy is miked. The only problem with having a distinctive laugh is I know exactly when that guy isn’t laughing. “Oh, distinctive laugh doesn’t think that joke was funny!”
+ - I hate sandwiches at New York delis. Too much meat on the sandwich. It’s like a cow with a cracker on either side. “Would you like anything else with the pastrami sandwich?” “Yeah, a loaf of bread and some other people!”
+ - I met this girl, she was an actress, and she gave me her number. It started with 555.
+ - An escalator can never break: it can only become stairs.
+ - I thought I’d go to a craft fair, and there would be a jar of jellybeans there – “Guess how many jellybeans are in this jar, and win a prize”. Aw, come on, man, let just me have some. I’ll tell you what, guess how many jellybeans I want! If you guessed a handful, you are right.
+ - Foosball screwed up my perception of soccer. I though you had to kick the ball and then spin around and around. I can’t do a back flip, much less several simultaneously with two other guys.
+ - Wearing a turtleneck is like being strangled by a really weak guy, all day. Wearing a backpack and a turtleneck is like a weak midget trying to bring you down.
+ - I recently took up ice sculpting. Last night I made an ice cube. This morning I made 12, I was prolific.
+ - I can’t eat spaghetti. There’s too many of them.
+ - I spilled some vodka on the carpet, and I vacuumed it up, and the vacuum got drunk. I had to take the Hoover to detox.
+ - One time I stayed at a haunted motel. When I checked into my room, there was a sheet on the floor, and I thought it was a ghost that had passed out, so I kicked it.
+ - If you are flammable and have legs, you are not blocking a fire exit.
+ - Sometimes I get really lonely. Especially when I’m throwing a Frisbee.
+ - People on the 14th floor, you know what floor you’re really on.
+ - Alcoholism is the only disease that you can get yelled at for having.
+ - I wrote a script, and I gave it to a guy who reads scripts, and he really likes it, but he thinks I need to rewrite it. I said, “Screw that, I’ll just make a copy!”
+ - I had a bag of Fritos, they were Texas grilled Fritos. These Fritos had grill marks on them. They remind me of summer, when we used to fire up the barbeque and throw down some Fritos. I can still see my dad with the apron on. Better flip that Frito, dad, you know how I like it.
+ - I like baked potatoes. I don’t have a microwave oven, and it takes forever to bake a potato in a conventional oven. Sometimes I’ll just throw one in there, even if I don’t want one, because by the time it’s done, who knows?
+ - I had to take a physical to do this show. They had a lot of weird questions like, “Have you ever tried sugar or PCP?”
+ - I don’t know how to fix a car. If the car breaks down, and the gas tank does not say “E”, I’m screwed. But if the gas tank says “E”, I get all cocky – “I’ve got this one, don’t worry.” So I get out the toolbox AKA wallet.
+ - I like vending machines, because snacks are better when they fall. If I buy a candy bar at the store, oftentimes I will drop it so that is achieves its maximum flavor potential.
+ - You should never tell someone they have a nice dimple, because maybe they were shot in the face with a BB gun.
+ - You know crazy straws – they go all over the place? These straws are sane. They never lost their mind. They say, “we’re going straight to the mouth. That guy who takes a while to get there? He’s crazy.”
+ - I wish they made fajita cologne, because that stuff smells good. What’s that you’re wearing? That’s sizzlin’!
+ - I thought my teeth were white until I washed my face with Noxzema. My teeth are off-white. I’m not even white. I’m off-white. It’s a new race; we will prevail!
+ - I have a “Do Not Disturb” sign on my hotel door. It’s time to go to “Don’t Disturb”. It’s been “Do Not” for too long. We should embrace the contraction.
+ - I met the girl who works at the Doubletree front desk, she gave me her number. It’s ZERO. I tried to call from here, some other woman answered. “You sound older!”
+ - If Spiderman was real, and I was a criminal, and he shot me with his web, I would say, “Dude, thanks for the hammock.”
+ - I was going to get my teeth whitened, but I said, “I’ll just get a tan instead.”
+ - I can’t wait to get off the stage, because I’ve got some LifeSavers in my pocket and pineapple is next!
+ - I have a roommate, and I signed a year lease. I screwed up! That’s like I wrote a joke that didn’t work, but now I have to tell it for a year.
+ - A friend said to me, “I think the weather is trippy.” I said, “No, man, it’s not the weather that’s trippy, perhaps it’s the way we perceive it.” And then I realized I just should have said, “Yeah.”
+ - Sometimes I wake up and I think I should start wearing a beret, but I don’t do it. One day I’m gonna, though. You bet your ass, I will have a beret on. That’s ridiculous, but it’s true. I always fight with wearing a beret.
+ - I saw on HBO they were advertising a boxing match “It’s a fight to the finish”. That’s a good place to end.
+ - Kittens play with yarn, they bat it around. What they’re really doing is saying, “I can’t knit, get this away from me!”
+ - I had a paper route when I was a kid. I was supposed to go to 2,000 houses. Or two dumpsters.
+ - You know when you see an advertisement for a casino, and they have a picture of a guy winning money? That’s false advertising, because that happens the least. That’s like if you’re advertising a hamburger, they could show a guy choking. “This is what happened once.”
+ - Mr. Pibb is a poor imitation of Dr. Pepper. Dude didn’t even get his degree.
+ - I use the word totally too much. I need to change it up and use a word that is different but has the same meaning. Mitch do you like submarine sandwiches? All-encompassingly...
+ - I travel with a boom box. When I get on a plane, I stuff the power cord for the boom box into the battery compartment. From an outsider’s point of view, it looks like I’ve got it all wrong.
+ - I think animal crackers make people think that all animals taste the same.
+ - A friend gave me a drug for attention deficit disorder, because he’s afflicted, but I’m not. So what happened to me is I suddenly had an extra-long attention span. People would tell me a story, and it would end, and I’d get all mad. “Come on, man, there has to be more to that story.”
+ - I was going to stay overnight at my friend’s house – he said, “you’ll have to sleep on the floor.” Damn gravity! You don’t know how bad I wanted to sleep on the wall.
+ - I make myself a bowl of instant oatmeal, and then I don’t do anything for an hour. Why do I need the instant oatmeal? I could get the regular oatmeal and feel productive.
+ - I played in a death-metal band. People either loved us or hated us. Or they thought we were OK.
+ - I want to get a job naming kitchen appliances. That seems easy; refrigerator, toaster, blender. You just say what the thing does and add “er”.
+ - I’ve always wanted to have a suitcase handcuffed to my wrist. That’s not a full joke there! It’s filler.
+ - I hate arrows. They try to tell me which direction to go. It’s like “I ain’t going that way, line with two thirds of a triangle on the end!”
+ - I got my hair highlighted because I felt some strands were more important than others.
+ - I’m a mumbler. If I’m walking with a friend, and I say something, he says, “What?” So I say it again, and he says, “What?” Really, it’s just some insignificant stuff I’m saying, but now I’m yelling, “That tree is far away!”
+ - People who smoke cigarettes, they say “You don’t know how hard it is to quit smoking.” Yes I do. It’s as hard as it is to start flossing.
+ - I saw a seagull hanging out by a lake, but I said, “Don’t worry, Dude. I won’t say anything.”
+ - It’s hard to dance if you just lost your wallet. Whoa Where’s my wallet But, hey this song is funky...
+ - If a drink was ice cold, it would be impossible to drink. Because it would be solid. Here’s a drink, Mitch – it’s ice cold. I guess I could lick it.
+ - If you’re watching a parade, don’t follow it. It never changes. If the parade is boring, run in the opposite direction. You will fast-forward the parade.
+ - How does a sesame seed stick to a bun? That’s magical. There must be some sesame seed glue out there. Either that or they’re adhesive on one side. Peel off the backing, place it on the bun.
+ - The commercial for Diet Dr. Pepper says it tastes just like regular Dr. Pepper. Well, then they screwed up!
+ - Onions make me sad. A lot of people don’t realize that.
+ - I have no problem not listening to the Temptations.
+ - Imagine if the headless horseman had a headless horse. That would be chaos. I would think that if you were the headless horseman’s horse, you would be very confused. “I don’t think this dude can see.”
+ - Every picture of you is when you were younger.
+ - I heard a guy tell me he liked cherries. I waited to hear if he was going to say “tomatoes”, then I realized he like cherries just. That joke is ridiculous.
+ - I ate one anchovy, and that is why I did not eat two anchovies.
+ - My belt holds my pants up, but the belt loops hold my belt up. I don’t really know what’s happening down there. Who is the real hero?
+ - I have an idea for sweatshops: air conditioning! That’s simple. 14 year old boys working twelve hour days? “Yeah, but they’re comfortable!”
+ - I went to a restaurant, and I saw a guy wearing a leather jacket, eating a hamburger, drinking a glass of milk. I said, “Dude, you are a cow. The metamorphosis is complete. Don’t fall asleep or I will tip you over!”
+ - Onions make me sad, a lot of people don’t realize that. When I’m cutting onions, I’m sad. Because the plight of onions, it’s sad. But people don’t realize I’m actually crying – they think I’m just reacting.
+ - Every book is a children’s book if the kid can read!
+ - I saw soda pop for $1.20 a six pack. That price messes with your head. You start thinking you’re gonna sell soda pop. Suddenly I’ve got packs of pop with me. “Looking to buy some pop? 50 cents a can. It’s not refrigerated because this is a half-assed commitment!”
+ - When it comes to racism, you hear people say, “I don’t care if people are white, black, purple or green.” Hold on, now, purple or green? Come on now, you gotta draw the line somewhere.
+ - Sometimes I fall asleep at night with my clothes on. I’m going to have all my clothes made out of blankets.
+ - I once saw a forklift lift a crate of forks. And it was way to literal for me.
+ - When I was on acid, I would see things like beams of light and I would hear sounds that sounded an awful lot like car horns.
+ - I like when they say a movie is inspired by a true story. That’s kind of silly. “Hey, Mitch, did you hear that story about that lady who drove her car into the lake with her kids and they all drowned?” “Yeah, I did, and you know what – that inspires me to write a movie about a gorilla!”
+ - I got in an argument with a girlfriend inside of a tent. That’s a bad place for an argument, because I tried to walk out, and had to slam the flap.
+ - I hate flossing, I wish I just had one long curvy tooth. They didn’t have to make separations for me.
+ - I know people who believe in ghosts but don’t believe in themselves. It’s kind of sad. Okay you don’t think you’ll ever make it as a musician, but last night you saw a translucent caveman.
+ - I like cottage cheese. That’s why I want to try other dwelling cheeses, too. How about studio apartment cheese? Tent cheese? Mobile home cheese? Do not eat mobile home cheese in a tornado.
+ - Magicians disappear all the time, but as soon as a regular person does it, everyone is all scared. “Tom’s gone!” “Is he a magician?” “No.” “Then let’s print up some flyers!”
+ - As a comedian, you have to start the show strong and you have to end the show strong. Those are the two key elements. You can’t be like pancakes. You’re all happy at first, but then by the end, you’re sick of ’em.
+ - Pepperidge Farm bread. That’s fancy bread. You can tell it’s fancy because it’s wrapped twice. You open it, and it still isn’t open. That’s why I don’t buy it. I don’t need another step between me and toast.
+ - People ask me for my autograph after a show. I’m not famous, I think they’re messing with me. I think they’re trying to make me late for something.
+ - If I had nine of my fingers missing I wouldn’t type any slower.
+ - That would be cool if the earth’s crust was made out of graham cracker. It would disappear just like the ozone layer, but for completely different reasons.
+ - I want to ride in a cold air balloon. “This isn’t going anywhere!”
+ - Advil has a candy coating. It’s delicious. Then it says on the bottle, do not have more than two. Then why do they have a candy coating? I cannot help myself. Let me have ten Advil, I have a sweet tooth.
+ - My girlfriend is named Lynn. She spells her name “Lynn”. My old girlfriend’s name is Lyn, too, but she spells it “Lyn”. Every now and then I screw up, I call my new girlfriend by my old girlfriend’s name, and she can tell because I don’t say “n” as long.
+ - I mumble a lot when im off stage, so a lot of times when im with a friend i’ll say something and he’ll be like what, and i’ll say it again and he’ll be like what, and i’ll say it again and he’ll still be like what, so now he’s got me yellin. Man that tree is far away.
+ - It’s hard to fight when you’re in a gazebo.
+ - I went to the park and saw this kid flying a kite. The kid was really excited. I don’t know why, that’s what they’re supposed to do. Now if he had had a chair on the other end of that string, I would have been impressed.
+ - I tried to freshen up a room, so I held a Certs in front of a fan.
+ - My friend said to me, You know what I like? Mashed potatoes. I was like, Dude, you have to give me time to guess. If you’re going to quiz me you have to insert a pause.
+ - I put fruit on top of my waffles, because I want something to brush off.
+ - I don’t want to have my face on the cover of a Wheaties box. I wanna have my face on the cover of a Rice Krispies box. “Snap, Krackle, Mitch and Pop”!
+ - I would like to go fishing and catch a fish stick. That would be convenient. I could easily get a job at Mrs. Paul’s.
+ - Incubated. And then raised. And then beheaded. And then plucked. And then cut up. And then put on a grill. And then put on a bun. Damn, it’s gonna take a while. I don’t have time. Scrambled!
+ - I got binoculars ’cause I don’t want to go that close.
+ - I got some tartar-control toothpaste a while back. I’ve still got tartar, but it’s under control.
+ - What am I drinking? NyQuil on the rocks, for when you’re feeling sick but sociable.
+ - When I get a cold sore, I put Carmex on it, because Carmex is supposed to alleviate cold sores. I don’t know if it does help, but it will make them more shiny and noticeable. It’s like cold-sore-highlighter. Maybe they could come up with an arrow that heals cold sores.
+ - I remixed a remix, it was back to normal.
+ - If I was a locksmith, I’d be pimping that out man. I’ll trade you a free key duplication for. That joke made me laugh before I could finish it, which is good, because it had no ending.
+ - I like to smoke a pipe, because it’s the punch line indicator. Whenever I take a hit of the pipe, you should be laughing.
+ - I did a radio interview; the DJ’s first question was “Who are you?” I had to think. Is this guy really deep, or did I drive to the wrong station?
+ - I don’t wear a watch because I want my arms to weigh the same.
+ - Comedy clubs have brick walls behind the performer. Bricks make you funny. When I’m in front of a fireplace, I’m hilarious.
+ - I wish I could play little league now. I’d be way better than before.
+ - When you open the elevator on the top floor of a building and the other guy doesn’t get out, something is seriously wrong.
+ - My roommate says, “I’m going to take a shower and shave. Does anyone need to use the bathroom?” It’s like some weird quiz where he reveals the answer first.
+ - I type a 101 words a minute. But it’s in my own language.
+ - If you want to talk to me after the show, I’d be surprised.
+ - I’m a hard act to follow, because when I’m done, I take the microphone with me.
+ - I never joined the army because at ease was never that easy to me. Seemed rather uptight still. I don’t relax by parting my legs slightly and putting my hands behind my back. That does not equal ease. At ease was not being in the military. I am at ease, bro, because I am not in the military.
+ - Tony the Tiger usually thinks that stuff is great.
+ - A fly was very close to being called a land, because that’s what it does half the time.
+ - If you don’t know a light bulb is a three-way light bulb, it messes with your head. You reach to turn it off, and it just gets brighter! That’s the exact opposite of what I wanted you to do! So you turn the switch again, and it gets brighter once more! I will break you, light bulb!
+ - There was a product on late night TV that you could attach to your garden hose – “You can water your hard-to-reach plants with this.” Who would make their plants hard to reach? That seems so very mean. I know you need water, but I’m going to make you hard to reach. “Think like a cactus!”
+ - My girlfriend works at Hooters. In the kitchen.
+ - I don’t think stand-up is being appreciated as much as it could be and I don’t think it has for a long time. There’s some great stand-up comics who come to a town and if they’re not a name, they don’t attract a crowd but in reality there are brilliant people out there.
+ - I want to make a vending machine that sells vending machines. It’d have to be real big.
+ - A lollipop is a cross between hard candy and garbage.
+ - Because of acid, I now know that butter is way better than margarine.
+ - I don’t have a girlfriend. But I do know a woman who’d be mad at me for saying that.
+ - I made $3,000 opening for the Neville Brothers, and they paid me in cash. That was a bad situation, because I bought ridiculous stuff. I bought a snake bite emergency kit. Then I said to my friends, “Don’t even worry about snakes anymore”. My friend stepped on a worm, and I said, “Lay down!”
+ - A lot of bands have intense names, like “Rigor Mortis” or “Mortuary”. We weren’t that intense, we called ourselves “Injured”. Later on we changed it to “Acapella” when we were walking out of the pawn shop.
+ - I don’t own a cell phone or a pager. I just hang around everyone I know, all the time. If someone wants to get a hold of me, they just say ‘Mitch,’ and I say ‘what?’ and turn my head slightly.
+ - Then let’s print up some flyers!
+ - I would imagine the inside of a bottle of cleaning fluid is really clean. I would imagine a vodka bottle is really drunk.
+ - I like it when you reach into a vending machine to grab your candy bar, and that flap goes up to block you from reaching up? That’s a good invention. Before that, it was hard times for the vending machine owners. “Yeah, what candy bar are you getting?” “That one, and every one on the bottom row!”
+ - I like to wear a “Do Not Disturb” sign around my neck so that little kids can’t tell me knock-knock jokes. “Hey, how ya doin’? Knock-knock.” “Read the sign, punk!”
+ - I saw a human pyramid once. It was very unnecessary.
+ - Why is Cloud 9 so amazing? What is wrong with Cloud 8? That joke came off the top of my head, and the top of my head ain’t funny!
+ - I wanted to get a tape recorder, but I got a parrot instead. I think I did that joke backwards.
+ - Well, I was lost but now I live here! I have severely improved my predicament!
+ - I want to get a vending machine, with fun sized candy bars, and the glass in front is a magnifying glass. You’ll be mad, but it will be too late.
+ - I like to hold the microphone cord like this, I pinch it together, then I let it go, then you hear a whole bunch of jokes at once.
+ - I bought a seven-dollar pen because I always lose pens and I got sick of not caring.
+ - I had a chicken finger that was so big, it was a chicken hand.
+ - I think pickles are cucumbers that sold out.
+ - When you’re doing a show on stage, and they show you a red light, that means you have 5 minutes left. At some clubs, they hold a candle up in the back. That’s the worst method. You’re up here, and then you see a floating candle. “Oh, no! This place is haunted!” I can’t be funny when I’m frightened.
+ - A waffle is like a pancake with a syrup trap.
+ - I had a stick of CareFree gum, but it didn’t work. I felt pretty good while I was blowing that bubble, but as soon as the gum lost its flavor, I was back to pondering my mortality.
+ - I’ve got a wallet, it’s orange. In case I wanna buy a deer. That doesn’t make any sense at all.
+ - I have an underwater camera just in case I crash my car into a river, and at the last minute I see a photo opportunity of a fish that I have never seen.
+ - If I’m out to dinner with a group of friends, and somebody offers to pay for the check, I immediately reach for my wallet. Inside is a note that says, “Say thanks!”
+ - My sister wanted to be an actress, but she never made it. She does live in a trailer. She got halfway. She’s an actress, she just never gets called to the set.
+ - When I was a boy, I laid in my twin-sized bed and wondered where my brother was.
+ - I wish my name was Brian because maybe sometimes people would misspell my name and call me Brain. That’s like a free compliment and you don’t even gotta be smart to notice it.
+ - Every time I go and shave, I assume there’s someone else on the planet shaving. So I say, ‘I’m gonna go shave, too.’
+ - When we were on acid, we would go into the woods, because there was less chance that you would run into an authority figure. But we ran into a bear. My friend Duane was there, raising his right hand, swearing to help prevent forest fires. He told me, “Mitchell, Smokey is way more intense in person!”
+ - Imagine if you were a drummer, and you accidentally picked up two magic wands instead of sticks. There you are, keeping the beat, the next thing you know, your bass player turns into a can of soup.
+ - Knock on wood is a saying for good luck. I think that started when someone went to someone’s door to see if someone was home. “I hope Joe’s home, knock on wood!”
+ - I’m gonna fix that last joke by taking out all the words and adding new ones.
+ - When you put Listerine in your mouth, it hurts. Germs do not go quietly.
+ - I’ve never stayed at a bed and breakfast. If I did, I figure you would start to get hungry! “Is that all you got around here? Well, maybe you can direct me to a chair lunch dinner.”
+ - I would not want to be a mobile home repo man. Those would be hard to sneak away – “Knock knock – Hi, would you go cut your grass and look that way for a half an hour?”
+ - One time a guy handed me a picture. He said, ‘Here’s a picture of me when I was younger.’ Every picture is of you when you were younger. ‘Here’s a picture of me when I’m older.’ ‘You son of bit, how’d you pull that off Let me see that camera. What’s it look like’
+ - I was in a convenience store, reading a magazine. The clerk told me, “this is not a library!” “OK! I will talk louder, then!”
+ - We’re gonna have to sweeten some of these jokes for the CD. You know what sweeten means, right? Sweeten is a show-biz term for “add sugar to”.
+ - Swiss Cheese is a rip-off It’s the only cheese I can bite into and miss.
+ - I don’t like grouper fish. Well, they’re okay. They hang around star fish. Because they’re grouper fish.
+ - I have a Sharpie. I love Sharpies. You know what they say on them? Not for letter writing. That sucks. Now I have to communicate with my dad using numbers.
+ - People teach their dogs to sit; it’s a trick. I’ve been sitting my whole life, and a dog has never looked at me as though he thought I was tricky.
+ - Why are there no “during” pictures?
+ - I drank some boiling water because I wanted to whistle.
+ - I like those blow-up beds. “This becomes a full size bed in three minutes!” Well, a mattress kicks your ass. Zero seconds. “Yeah, but you can store this thing.” You can store a bed, too – in the bedroom.
+ - I went to the airport, I put my bag in the x-ray machine, I found out my bag has cancer. It only has six more months to hold stuff.
+ - I’m sick of Soup Of The Day, man. It’s time we make a decision. I need to know what Soup From Now On is.
+ - Come on ‘long prosperous life!’
+ - One time I was forced to go to the doctors because of a sports accident. Herpes.
+ - I know a lot about cars, man. I can look at any car’s headlights and tell you exactly which way it’s coming.
+ - I have a friend who is a juggler. If I’m at his house, I don’t like to take food from him, if it’s in threes. He has three apples left, I guess I can’t have one. I wouldn’t want to screw up his practice routine.
+ - It’s very dangerous to wave to people you don’t know because what if they don’t have hands? They’ll think you’re cocky.
+ - If you have to release bad news to the public, it would help if you are not ugly.
+ - I can whistle with my fingers, especially if I have a whistle.
+ - Why is Cloud 9 so amazing? What is wrong with Cloud 8?
+ - I like cinnamon rolls, but I don’t always have time to make a pan. That’s why I wish they would sell cinnamon roll incense. After all I’d rather light a stick and have my roommate wake up with false hopes.
+ - Swiss cheese is the only cheese you can draw and people can identify. You can draw American cheese, but someone will think it’s cheddar. It’s the only cheese you can bite and miss. “Hey Mitch – does that sandwich have cheese on it?” “Every now and then!”
+ - I don’t have a microwave oven, but I do have a clock that occasionally cooks stuff.
+ - I was booked into the Riviera Hotel in Las Vegas with three other comedians. We all were using the Riviera in-house shampoo, so we all had equal shine and bounce.
+ - I sometimes close my eyes during a show because I have drawn a picture of an audience enjoying the show more on the back of my eyelids.
+ - You know when they have a fishing show on TV? They catch the fish and then let it go. They don’t want to eat the fish, they just want to make it late for something.
+ - If carrots got you drunk, rabbits would be messed-up.
+ - I like it when you buy something and pay with a credit card, they put your credit card on the receipt, but only the last four numbers. Aha! I’m really good at guessing twelve numbers. I can’t guess 16 numbers, so thanks for the assistance!
+ - I tried to have a cookie, and this girl said, “I’m mailing those cookies to my friend.” So I couldn’t have one. You shouldn’t make cookies untouchable.
+ - I like it when people come to see me again, but you end up playing to that person only. You know there’s other people out there, but you also know that the person who came to see you again is there. You’re like, “I hope he’s happy again.”
+ - Last time I called shotgun we had rented a limo, so I messed up!
+ - I haven’t slept for ten days, because that would be too long.
+ - I went to the store and bought eight apples; the clerk said, “Do you want these in a bag?” I said, “Oh, no, man, I juggle.”
+ - I got an ant farm. Them fellas didn’t grow anything. Hey, how about some celery? Plus, if I tore your legs off, you would look like snowmen.
+ - I’m an ice sculptor. Last night I made a cube.
+ - I like Kinko’s, because they’re open 24 hours. If it’s 5 am and I decide I need two of something, I’m covered! Sometimes I wake up in the middle of the night in a cold sweat, and then I think, “Oh, yeah. Kinko’s. No problem. That will not remain singular.”
+ - I like the public hot-tub at the hotels. I like when a guy is already in there, I say, “Hey, do you mind if I join you?” Then I go turn the heat up, and I add some carrots and onions.
+ - I got a hotel room at New York New York in Las Vegas and I was very happy. They’ve got that rollercoaster encircling the entire premises, just like Manhattan.
+ - I got two stools, in case I want to sit down and sit down again on something else.
+ - 2-in-1 is a stupid term, because 1 is not big enough to hold 2. That’s why 2 was created.
+ - I wanted to buy a candle holder, but the store didn’t have one. So I got a cake.
+ - Do you think I am standing here, making this up as I go? I am sorry to disillusion you. I am not Robin Williams. I am the king of the pen.
+ - I wrote my friend a letter using a highlighting pen. But he could not read it, he thought I was trying to show him certain parts of a piece of paper.
+ - I was at this casino minding my own business, and this guy came up to me and said, ‘You’re gonna have to move, you’re blocking a fire exit.’ As though if there was a fire, I wasn’t gonna run. If you’re flammible and have legs, you are never blocking a fire exit.
+ - I got a king-sized bed. I don’t know any kings, but if one came over, I guess he’d be comfortable.
+ - I want to rob a bank with a BB gun. “Give me all your money or I will give you a dimple! I will be rich, you will be cute. We both win.”
+ - My manager said, “Don’t use liquor as a crutch!” I can’t use liquor as a crutch, because a crutch helps me walk.
+ - I don’t have any children, but if I had a baby, I would have to name it, so I would get a baby-naming book. Or I would invite somebody over who had a cast on.
+ - A dog came to my door, so I gave him a bone, the dog took the bone into the back yard and buried it. I’m going to go plant a tree there, with bones on it, then the dog will come back and say, “Shoot! It worked! I must distribute these bones equally for I have a green paw!”
+ - The customer’s always right.
+ - If my kid couldn’t draw I’d make sure that my kitchen magnets didn’t work.
+ - Earlier I’ve done hatever I could get my hands on to do for a living. I tried a couple of different things, but kitchen work was the best for me, because I took to a nomadic lifestyle before I started doing comedy. If you travel and get to a town and need a job, restaurants are always there.
+ - Cavities are made by sugar. So if you need to dig a hole, then lay down some candy bars!
+ - So, I sit at the hotel at night and I think of something that’s funny. Or, If the pen is too far away, I have to convince myself that what I thought of wasn’t funny.
+ - They could take sesame seeds off the market and I wouldn’t even care. I can’t imagine 5 years from now saying, “Remember sesame seeds? What happened? All the buns are blank!”
+ - Fettucini alfredo is macaroni and cheese for adults.
+ - I had the cab driver drive me here backwards, and the dude owed me $27.50.
+ - I’m sick of following my dreams. I’m just going to ask them where they’re goin’, and hook up with them later.
+ - I saw a guy juggling chain saws, it was cool, unless something needed to be sawed down, then it’s annoying.
+ - As an adult, I’m not supposed to go down slides. So if I’m at the top of a slide, I have to pretend that I got there accidentally. “How the hell did I get up here? I guess I have to slide down. Whee!” That’s what you say when you’re having fun. You refer to yourself and some other people.
+ - I like vending machines, because snacks are better when they fall.
+ - I hate dreaming because when you want to sleep, you want to sleep. Dreaming is work. Next thing you know, I have to build a go-cart with my ex-landlord.
+ - I’d like to get four people who do cart wheels very good, and make a cart.
+ - I had a Velcro wallet in a casino. That sound annoyed the hell out of me. Whenever I lost money, and I opened the wallet, it was like the sound of my addiction.
+ - I’ve not really been angling to be a comedian. I knew comics and I loved them and I loved being funny, but I didn’t understand the whole concept of becoming one. My first couple of times on stage, I was like, “This is what I’m doing for sure.” I was so excited.
+ - If I had a dollar for every time I said that, I’d be making money in a very weird way.
+ - The next time I move I hope I get a real easy phone number, something like 2222222. People will ask, “Mitch, how do I get a hold of you?” I’ll say, “Just press two for a while, when I answer, you’ll know that you’ve pressed two enough.”
+ - I want to be a race car passenger: just a guy who bugs the driver. Say man, can I turn on the radio? You should slow down. Why do we gotta keep going in circles? Can I put my feet out the window? Man, you really like Tide...
+ - You got to always take advantage of getting your room cleaned. You may think it’s nice not to have anybody in your room, like your privacy’s not being invaded. But there’s nothing like walking back into a clean room. You’ve got to remember that.
+ - I want to get non-aerosol mace, you just rub it in. “Dude who is attacking me – come a little closer!”
+ - I went to a restaurant with my friend, and he said, “Pass the salt.” I said, “Screw you! Sit closer to the salt.”
+ - I had a box of Ritz crackers, and on the back of the box, they had all these suggestions for what to put on top of the Ritz. Try it with cheese. Try it with peanut butter. Come on, man, they’re crackers, that’s why I got them. I like crackers! I didn’t buy them because they’re little edible plates!
+ - I wear a necklace, cause I wanna know when I’m upside down.
+ - The only way I could get my old CD into stores is if I took one in and leave it. “Sir, you forgot this.” “No, I did not. That is for sale. Please alphabetize it.”
+ - I have some speakers up here, thank God, because last night I didn’t have them and I was telling jokes and I had no idea which joke I was telling. So I told jokes twice. I even told that one twice.
+ - I like rice. Rice is great if you’re hungry and want 2000 of something picketing, but I don’t know how to show it.
+ - At my hotel room, my friend came over and asked to use the phone. I said Certainly. He said Do I need to dial 9 I say Yeah. Especially if it’s in the number. You can try four and five back to back real quick.
+ - XM radio doesn’t have commercials, so after about thirty minutes of listening to it, I’m like, “What should I buy?”
+ - When you start out in comedy, or probably in a lot of things, you want it to happen fast. You don’t want to see yourself having to do this for seven years before you start to get some feedback.
+ - I had my palm read. I wrote something on it first to see if she would read that too.
+ - I bought a scratch off lottery ticket, but then I accidentally spilled calamine lotion on it, so it did not need to be scratched. Shoot! I will not know if I have won!
+ - We don’t have to fix anything.
+ - Bologna is a deli meat for people with eyes.
+ - I read that MTV’s Real World got 40,000 applications. That’s amazing, such an even number. You would have thought it would be 40,008.
+
+309 quotes

@@ -1,0 +1,92 @@
+ - Study hard, for the well is deep, and our brains are shallow.
+ - Lord, I surrender. I am completely overcome by your love.
+ - Holiness is nothing else but the habitual and predominant devotion and dedication of soul, and body, and life, and all that we have to God; and esteeming, and loving, and serving, and seeking Him, before all the pleasures and prosperity of the flesh.
+ - Unity in things Necessary, Liberty in things Unnecessary, and Charity in all.
+ - Christ leads me through no darker rooms than He went through before.
+ - Be careful how you spend your time: Spend your time in nothing which you know must be repented of.
+ - Of all the preaching in the world, I hate that preaching which tends to make the hearers laugh, or to move their minds with tickling levity and affect them as stage plays used to, instead of affecting them with a holy reverence for the name of God.
+ - Prayer is the breath of the new creature.
+ - Tomorrow is always the sluggard’s working day; today is his holiday.
+ - We must study as hard how to live well as how to preach well.
+ - An ounce of mirth is worth a pound of sorrow.
+ - Dangers bring fears and fears more dangers bring.
+ - Nothing can be rightly known, if God be not known; nor is any study well managed, nor to any great purpose, if God is not studied. We know little of the creature, till we know it as it stands related to the Creator.
+ - Above all be much in secret prayer and meditation. By this you will fetch the heavenly fire that must kindle your sacrifice: remember you cannot decline and neglect your duty to your own hurt alone, many will be losers by it as well as you.
+ - The very design of the gospel doth tend to self-abasing; and the work of grace is begun and carried on in humiliation. Humility is not a mere ornament of a Christian, but an essential part of the new creature: it is a contradiction to be a sanctified man, or a true Christian, and not humble.
+ - Use sin as it will use you; spare it not, for it will not spare you; it is your murderer, and the murderer of the world: use it, therefore, as a murderer should be used. Kill it before it kills you.
+ - You are not likely to see any general reformation, till you procure family reformation.
+ - I did nothing that I might not have done better.
+ - To be the people of God without regeneration, is as impossible as to be the children of men without generation.
+ - If life be long I will be glad, that I may long obey; if short, yet why should I be sad to welcome to endless day?
+ - It is not the reading of many books which is necessary to make a man wise or good; but well reading of a few.
+ - A foolish physician he is, and a most unfaithful friend, that will let a sick man die for fear of troubling him; and cruel wretches are we to our friends, that will rather suffer them to go quietly to hell, then we will anger them, or hazard our reputation with them.
+ - A man pleaser cannot be true to God, because he is a servant to the enemies of his service; the wind of a man’s mouth will drive him about as the chaff, from any duty, and to any sin.
+ - I must confess, as the experience of my own soul, that the expectation of loving my friends in heaven principally kindles my love to them while on earth.
+ - It is not the reading of many books which is necessary to make a man wise or good, but the well-reading of a few, could he be sure to have the best. And it is not possible to read over many on the same subject without a great deal of loss of precious time.
+ - This life was not intended to be the place of our perfection, but the preparation for it.
+ - Keep up a humble sense of your own faults, and that will make you compassionate to others.
+ - The longer you delay, the more your sin gets strength and rooting. If you cannot bend a twig, how will you be able to bend it when it is a tree?
+ - Is it not enough that all the world is against us, but we must also be against one another? O happy days of persecution, which drove us together in love, whom the sunshine of liberty and prosperity crumbles into dust by our contentions!
+ - Lay siege to your sins, and starve them out by keeping away the food and fuel which is their maintenance and life.
+ - If family religion were duly attended to and properly discharged, I think the preaching of the Word would not be the common instrument of conversion.
+ - I have pain; but I have peace, I have peace.
+ - You will cast away your cards and dice when you find the sweetness of youthful learning.
+ - Prayer must carry on our work as much as preaching; he preacheth not heartily to his people that will not pray for them.
+ - In a divine commonwealth holiness must have the principal honor and encouragement, and a great difference be made between the precious and the vile.
+ - Take heed to yourselves, lest you perish while you call upon others to take heed of perishing, and lest you famish yourselves while you prepare their food.
+ - I like to hear a man dwell much on the same essentials of Christianity. For we have but one God, and one Christ, and one faith to preach; and I will not preach another Gospel to please men with variety, as if our Saviour and our Gospel had grown stale.
+ - As holy zeal is the fervency of our grace, so sinful zeal is the intention and fervency of sin.
+ - Screw the truth into men’s minds.
+ - Though selfishness hath defiled the whole man, yet sensual pleasure is the chief part of its interest, and, therefore, by the senses it commonly works; and these are the doors and windows by which iniquity entereth into the soul.
+ - It is as hard a thing to maintain a sound understanding, a tender conscience, a lively, gracious, heavenly spirit, and an upright life in the midst of contention, as to keep your candle lighted in the greatest storms.
+ - In hell, sinners shall forever lay all the blame on their own wills. Hell is a rational torment by conscience.
+ - When the Son of God comes to rescue us and bring us back to God, He does not find in us the ability to believe.
+ - Hell is paved with infants skulls.
+ - Life is short, and we are dull, and eternal things are necessary, and the souls that depend on our teaching are precious.
+ - God takes men’s hearty desires and will, instead of the deed, where they have not power to fulfill it; but he never took the bare deed instead of the will.
+ - While doubt cannot be expelled, it can be subdued.
+ - You shall find this to be God’s usual course: not to give his children the taste of his delights till they begin to sweat in seeking after them.
+ - The more perfect the sight is the more delightful the beautiful object. The more perfect the appetite, the sweeter the food. The more musical the ear, the more pleasant the melody. The more perfect the soul, the more joyous the joys of heaven, and the more glorious that glory.
+ - Special mercy arouses more gratitude than universal mercy.
+ - Keep up you conjugal love in constant heat and vigor.
+ - We are ignorant of things necessary, because we learn things superfluous and unnecessary.
+ - Sinners, hear and consider, if you wilfully condemn your souls to bestiality, God will condemn them to perpetual misery.
+ - You little know what you have done, when you have first broke the bounds of modesty; you have set open the door of your fancy to the devil, so that he can, almost at his pleasure ever after, represent the same sinful pleasure to you anew.
+ - If they can see you love them, you can say anything to them.
+ - Preach to yourselves the sermons which you study, before you preach them to others.
+ - The devils never had a Savior offered to them, but you have; and do you yet make light of Him?
+ - It is a contradiction to be a true Christian and not humble.
+ - To live among such excellent helps as our libraries afford, to have so many silent wise companions whenever we please.
+ - It is true, that men may have Christ whenever they are willing to comply with His terms. But if you are not willing now, how can you think you shall be willing hereafter?
+ - Paganism attributes the creation of the world to blind chance.
+ - Our very business is to teach the great lesson of self-denial and humility to our people, and how unfit is it then that we should be proud ourselves!
+ - Death is half disarmed when the pleasures and interests of the flesh are first denied.
+ - I take the love of God and self-denial to be the sum of all saving grace and religion.
+ - Till men are deeply humbled, they can part with Christ and Salvation for a lust, for a little wordly gain, for that which is less than nothing. But when God hath enlightened their consciences, and broken their hearts, then they would give a world for Christ.
+ - What we most value, we shall think no pains too great to gain.
+ - Overvalue not therefore the manner of your own worship, and overvilify not other men’s of a different mode.
+ - In our first paradise in Eden there was a way to go out but no way to go in again. But as for the heavenly paradise, there is a way to go in, but not way to go out.
+ - Is it but right that our hearts should be on God, when the heart of God is so much on us.
+ - Surely love is both work and wages.
+ - You may know God, but not comprehend Him.
+ - If you do not see yourselves and all things as living, moving, and having their being in God, you see nothing, whatever you may think you see.
+ - It is past all question, and agreed on by all sides, that no religion will save a man who is not serious, sincere, and diligent in it. If thou be of the truest religion in the world, and are not true thyself to that religion, the religion is good, but it is none of thine.
+ - Nothing below heaven is worth setting our hearts upon.
+ - The heart is naturally hard, and grows harder by custom in sin, especially by long abuse of mercy, neglect of the means of grace, and resisteing the spirit of grace.
+ - Sinful zeal doth make men doubly sinful.
+ - When Christ comes with regenerating grace, he finds no man sitting still, but all posting to eternal ruin, and making haste toward hell; till, by conviction, he first brings them to a stand, and then, by conversion, turn first their hearts, and then their lives, sincerely to himself.
+ - A holy and heavenly life is a continual pain to the consciences of sinners around you and continually solicits them to change their course.
+ - Doth any man live more to himself, or less to God, than the proud?
+ - Will any man that hath not lost his senses, now stand caviling, and quarrelling, that so few should be saved, instead of making sure of his own salvation? The reason that there are so few is, because they will not be saved upon God’s terms.
+ - I tell you again, God hath not ordinarily decreed the end without the means; and if you will neglect the means of salvation, it is a certain mark that God hath not decreed you to salvation. But you shall find that He hath left you no excuse, because He hath not thus predestined you.
+ - The churchyard is the market place where all things are rated at their true value, and those who are approaching it talk of the world and its vanities with a wisdom unknown before.
+ - A little love has made me willingly study, preach, write, and even suffer...
+ - Do not mathematics and all sciences seem full of contradictions and impossibilities to the ignorant, which are all resolved and cleared to those that understand them?
+ - In my library I have profitably and pleasantly dwelt among the shining lights, with which the learned, wise, and holy men of all ages have illuminated the world.
+ - Keep company with the more cheerful sort of the Godly; there is no mirth like the mirth of believers.
+ - Despair of ever being saved, “except thou be born again,” or of seeing God “without holiness,” or of having part in Christ except thou “love him above father, mother, or thy own life.” This kind of despair is one of the first steps to heaven.
+ - Speak to your people as to men that must be awakened, either here or in hell...
+ - This is the sanctification of your studies: when they are devoted to God, and when He is the end, the object, and the life of them all.
+ - Suffering so unbolts the door of the heart, that the Word hath easier entrance.
+
+90 quotes

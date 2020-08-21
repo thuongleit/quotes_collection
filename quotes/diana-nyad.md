@@ -1,0 +1,21 @@
+ - You’re never too old to chase your dream.
+ - When you achieve your Dreams It’s not so much what you get, It’s who you become.
+ - The mantra I used was ‘find a way.’
+ - I have an uncompromising relationship with my goals.
+ - Every human being on this planet has their pain and their heartache and it’s up to all of us to find our way back to the light.
+ - This journey has always been about reaching your own other shore no matter what it is, and that dream continues.
+ - I am interested in the unknown, and the only path to the unknown is through breaking barriers, an often painful process.
+ - I am willing to put myself through anything; temporary pain or discomfort means nothing to me as long as I can see that the experience will take me to a new level.
+ - When you reach for the horizon, as I’ve proven, you may not get there, but what a tremendous build of character and spirit that you lay down. What a foundation you lay down in reaching for those horizons.
+ - The integrity and self-esteem gained from winning the battle against extremity are the richest treasures in my life.
+ - The spirit is larger than the body. The body is pathetic compared to what we have inside us.
+ - I wanted to teach myself some life lessons at the age of 60 and one of them was that you don’t give up.
+ - If you want to touch the other shore badly enough, barring an impossible situation, you will. If your desire is diluted for any reason, you’ll never make it.
+ - My mom just died. We blink and another decade passes. I don’t want to reach the end of my life and regret not having given my days everything in me to make them worthwhile.
+ - If you can just immerse yourself in your life, it doesn’t matter what you do everyday. Just do it intensely. Be in it, so that when you go to sleep you’re exhausted every night and you say, ‘Whoa, I just couldn’t have done any more with that day.’
+ - I am overwhelmed by the strength of my body and the power of my mind. For one moment, just one second, I feel immortal.
+ - Swimming is probably the ultimate of burnout sports.
+ - From age eleven to age sixteen I lived a spartan life without the usual adolescent uncertainty. I wanted to be the best swimmer in the world, and there was nothing else.
+ - But for each of us, isn’t life about determining your own finish line?
+
+19 quotes

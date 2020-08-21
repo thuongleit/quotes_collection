@@ -1,0 +1,31 @@
+ - The collapse of Enron was devastating to tens of thousands of people and shook the public’s confidence in corporate America.
+ - I asked a Burmese why women, after centuries of following their men, now walk ahead. He said there were many unexploded land mines since the war.
+ - There’ll be differences of opinion in just about every intelligence analysis that you make.
+ - All I’m going to tell you is investigations, whether it be this and others, where you have partial facts, analysts, agents are always trying to interpret what those facts mean, extrapolate from them what they mean.
+ - But since September 11, we have made every effort to try to work closely with state and local law enforcement.
+ - Leaking of classified material is a concern.
+ - No one has ever been able to convince me that optimism is not preferable to pessimism.
+ - But we had – I think if you look at law enforcement 10 years ago, if you look at the challenges, the FBI was focused excessively on what was happening in the United States.
+ - What we bring to the table is not only our 56 field offices in the United States and our number of resident agencies, but also we have 45 legal attaches overseas.
+ - We cannot go up on a wire. We cannot do a search without a judge on the FISA Court approving it and determining that we have met the standard that has been set forth by Congress in order to utilize these techniques.
+ - In the United States, it’s the mandate of the FBI to gather information relating to terrorism, go out and collect it, to do the interviews, to do the investigative work.
+ - People talk about the Patriot Act that was passed immediately in the wake of September 11. What the Patriot Act did was break down the walls between the various agencies.
+ - The 19 hijackers that came over here to commit the attack on Sept. 11, there were those that were at the bottom of the line. There were those who were the principal conspirators. There were those who were the pilot. Everybody has a role.
+ - In planning an attack, persons have various roles.
+ - I know when I was here prosecuting homicides in the District of Columbia, one of the most effective units here was the cold case squad, which had on it FBI agents, as well as Metropolitan Police Department homicide detectives working together.
+ - They’re – FBI agents are some of the finest people you’ll find anyplace in the country or the world. And I’m lucky to have the opportunity to work with them.
+ - In the context of September 11, there were so many that lost their lives that – how do you single out one person? There were so many acts of heroism that day from so many people, whether it be firemen and police officers in New York and our agents also.
+ - It’s because we need to determine who in this country is poised, positioned to commit terrorist acts.
+ - And so every one of us in the FBI, I don’t care if it’s a file clerk someplace or an agent there or a computer specialist, understands that our main mission is to protect the public from another September 11, another terrorist attack.
+ - In the last 10 years, in narcotics task forces, in a number of violent crime task forces, we’ve worked very closely together with state and local law enforcement.
+ - I would say in just about every investigation we have, there will be differences of opinion, where you have partial facts, as to what those facts mean.
+ - And from the moment that we realized it was a terrorist attack, there isn’t an agent or a support person in the FBI that wasn’t committed to bringing to justice those who were responsible for this.
+ - Prior to the passage of the Patriot Act, it was very difficult – often impossible – for us to share information with the Central Intelligence Agency, with NSA, with the other intelligence agencies, and likewise, for them to share information with us.
+ - The FBI’s principal priority right now is protecting the United States against another terrorist attack.
+ - So without getting into the specifics, I can tell you that to the extent that investigation is a relatively important investigation and meaningful, the president would have been periodically briefed.
+ - I didn’t know the organization, but the one thing you can say about the FBI, it’s tremendously professional.
+ - We had to address information technology in the ways we had not before and give the agents the tools that they need to do their job more efficiently and more expeditiously.
+ - I think around the world, our agents are the best collectors of information you’ll find.
+ - So there is a foreign intelligence purpose for every one of our FISA warrants.
+
+29 quotes

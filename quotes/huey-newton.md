@@ -1,0 +1,61 @@
+ - You can only die once, so do not die a thousand times worrying about it.
+ - If you stop struggling, then you stop life.
+ - The revolution has always been in the hands of the young. The young always inherit the revolution.
+ - Laws should be made to serve the people. People should not be made to serve the laws.
+ - Power is the ability to define phenomena, and make it act in a desired manner.
+ - Sometimes if you want to get rid of the gun, you have to pick the gun up.
+ - We have two evils to fight, capitalism and racism. We must destroy both racism and capitalism.
+ - You can jail a Revolutionary, but you can’t jail the Revolution.
+ - Black Power is giving power to people who have not had power to determine their destiny.
+ - You can kill my body, and you can take my life but you can never kill my soul. My soul will live forever!
+ - I think the time is right for organizing and to give Blacks more political – the progressive Blacks, you have to make a distinction – participation, more Blacks in more authoritative positions, in more electoral political positions. But we want the right ones.
+ - By surrendering my life to the revolution, I found eternal life.
+ - I do not expect the white media to create positive black male images.
+ - I think what motivates people is not great hate, but great love for other people.
+ - Youths are passed through schools that don’t teach, then forced to search for jobs that don’t exist and finally left stranded in the street to stare at the glamorous lives advertised around them.
+ - The rest of the Third World people are seeing, that the country can make a real change. No changing or trading one master for another. The only real change would be to socialize the means of production and this is what’s happening in Jamaica.
+ - The racist dog policemen must withdraw immediately from our communities, cease their wanton murder and brutality and torture of black people, or face the wrath of the armed people.
+ - I have the people behind me and the people are my strength.
+ - My fear was not of death itself, but a death without meaning.
+ - My fear was not of death itself, but a death without meaning. I wanted my death to be something the people could relate to, a basis for further mobilization of the community.
+ - The first lesson a revolutionary must learn is that he is a doomed man.
+ - The policemen or soldiers are only a gun in the establishments hand. They make the racist secure in his racism.
+ - Let us go on outdoing ourselves; a revolutionary man always transcends himself or otherwise he is not a revolutionary man, so we always do what we ask of ourselves or more than what we know we can do.
+ - There will be no prison which can hold our movement down.
+ - I think it’s absurd to talk about – one time you were outside the system, now you are in the system – no, we fight, the cause of the fight is because the system is bad that we can’t get out of it.
+ - I had a lot of time and the first year I was in prison, I tried to get the party to stop the shooting, to stop the talk about the gun thing.
+ - I think the basis – the foundation – has already been laid for a society where people will work together and enjoy the wealth of the whole nation together. I think this will be accomplished because this is the theme of the revolutionary government’s program.
+ - The reactionary suicide is ‘wise,’ and the revolutionary suicide is a ‘fool,’ a fool for the revolution in the way Paul meant when he spoke of being a ‘fool for Christ,’ That foolishness can move mountains of oppression; it is our great leap and our commitment to the dead and the unborn.
+ - I would like to add I’m innocent. I am not guilty.
+ - Any unarmed people are slaves, or are subject to slavery at any given moment.
+ - There’s no reason for the establishment to fear me. But it has every right to fear the people collectively – I am one with the people.
+ - Black men and women who refuse to live under oppression are dangerous to white society because they become symbols of hope to their brothers and sisters, inspiring them to follow their example.
+ - You can Jail a Revolutionary but you can’t jail the Revolution. You can run a freedom fighter around the country, but you can’t run freedom fighting around the country. You can murder a liberator, but you can’t murder liberation.
+ - The task is to transform society; only the people can do that – not heroes, not celebrities, not stars.
+ - Revolutionary suicide does not mean that I and my comrades have a death wish; it means just the opposite.
+ - The walls, the bars, the guns and the guards can never encircle or hold down the idea of the people.
+ - But before we die, how shall we live? I say with hope and dignity; and if premature death is the result, that death has a meaning reactionary suicide can never have. It is the price of self-respect.
+ - I always said this and the people think it’s a cute answer, but I say we have always been in the system and that’s why we fight because we don’t like the system. We are trying to transform it.
+ - I’m not ruling. I never ruled. I have one vote and I’m the leader of the party. I’ve always had a vote on the central committee. I always had more influence than that one vote. I’ll admit that.
+ - We felt that the police needed a label, a label other than that fear image that they carried in the community. So we used the pig as the rather low-lifed animal in order to identify the police. And it worked.
+ - What I’m really trying to say is that I believed an armed insurrection could work. After I was shot and went to prison, that ended that illusion. I had time to think.
+ - The nature of a panther is that he never attacks. But if anyone attacks or backs into a corner, the panther comes up to wipe that aggressor or that attacker out.
+ - Too many so-called leaders of the movement have been made into celebrities and their revolutionary fervor destroyed by mass media. They become Hollywood objects and lose identification with the real issues. The task is to transform society; only the people can do that.
+ - I expected to die. At no time before the trial did I expect to escape with my life. Yet being executed in the gas chamber did not necessarily mean defeat. It could be one more step to bring the community to a higher level of consciousness.
+ - There is a very strong socialist movement in Jamaica. I was in Jamaica years ago. All the talk, all day they talk politics. The literacy rate is very low. Everyone is so interested in politics, more than those who can read in the United States.
+ - I know sociologically that words, the power of the word, words stigmatize people.
+ - The United States is already antique.
+ - I do not think that life will change for the better without an assault on the Establishment, which goes on exploiting the wretched of the earth.
+ - We always had a central committee. They were mesmerized by Eldridge Cleaver.
+ - When you deal with a man, deal with his most valuable possession, his life. There’s play and there’s the deep flow. I like to take things to the deep flow of play, because everything is a game, serious and nonserious at the same time. So play life like it’s a game.
+ - To die for the racists is lighter than a feather, but to die for the people is heavier than any mountain and deeper than any sea.
+ - I think it’s wrong for North America in particular, the West in general to make a comparison between the economic situation in Cuba and the extraordinarily developed industrial complex of North America.
+ - A rather honored guest of the Cuban government, so I wouldn’t experience the problems. I think it would take a black Cuban to really articulate this because I’m being treated in a very generous way.
+ - I think generally speaking, both people are trying to be free from the abuses of the white racist North American authorities. I think that’s the one common denominator. The Cubans found a way to liberate themselves and we haven’t found the way yet. So that’s the difference.
+ - The Cuban Revolutionary Government has been generous and very considerate to me and my family. I lived in Santa Clara for a few months because I wanted to work in the countryside and get to know the country better.
+ - When I was in the penitentiary after being accused of killing a policeman, I was more in the system in the penitentiary than ever.
+ - I knew how to influence the people, but it’s really just one vote. But the party is being handled in a very good way .
+ - We have to realize our black heritage in order to give us strength to move on and progress. But as far as returning to the old African culture, it’s unnecessary and it’s not advantageous in many respects. We believe that culture itself will not liberate us. We’re going to need some stronger stuff.
+ - I worked in the mechanical factories repairing cement trucks. The Cuban government wanted me to work in the university as a teacher in literature, but I declined because I wanted a more sense of the countryside.
+
+59 quotes

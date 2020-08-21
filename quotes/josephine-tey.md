@@ -1,0 +1,27 @@
+ - Truth isn’t in accounts but in account-books.
+ - If you think about the unthinkable long enough it becomes quite reasonable.
+ - A man may own a ship, but unless he is captain of a crew he goes where the ship goes.
+ - Weak people can be very stubborn.
+ - Nothing great ever came out of common sense.
+ - It is not possible to love and be wise.
+ - Nothing in this world came out of satisfaction. Except the human race.
+ - Lack of education is an extraordinary handicap when one is being offensive.
+ - A thousand people drowned in floods in China are news: a solitary child drowned in a pond is tragedy.
+ - That was the way with grief: it left you alone for months together until you thought that you were cured, and then without warning it blotted out the sunlight.
+ - The truth of anything at all doesn’t lie in someone’s account of it. It lies in all the small facts of the time. An advertisement in a paper, the sale of a house, the price of a ring.
+ - You can’t have a tin can tied to your tail and go through life pretending it isn’t there.
+ - It was pleasant to talk shop again; to use that elliptical, allusive speech that one uses only with another of one’s trade.
+ - One would expect boredom to be a great yawning emotion, but it isn’t, of course. It’s a small niggling thing.
+ - The worst of pushing horrible things down into one’s subconscious is that when they pop up again they are as fresh as if they had been in a refrigerator. You haven’t allowed time to get at them to-to mould them over a little.
+ - Most people’s first books are their best anyways. It’s the one they wanted most to write.
+ - In hospitals there is no time off for good behavior.
+ - Horse sense is the instinct that keeps horses from betting on men.
+ - I expect this is what death is like when you meet it. Sort of wildly unfair but inevitable.
+ - Fasting was good for the imagination but bad for logic.
+ - The trouble with you, dear, is that you think an angel of the Lord as a creature with wings, whereas he is probably a scruffy little man with a bowler hat.
+ - Nothing puts things in perspective as quickly as a mountain.
+ - Truth is often terribly thin, don’t you think?
+ - There were people whose only interest in life was writing letters. To the newspapers, to authors, to strangers, to City Councils, to the police. It did not much matter to whom; the satisfaction of writing seemed to be all.
+ - After three days without one, the desire to read a newspaper vanished. And really, one was happier without.
+
+25 quotes

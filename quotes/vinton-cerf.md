@@ -1,0 +1,53 @@
+ - Power corrupts, and PowerPoint corrupts absolutely.
+ - There’s an old maxim that says, ‘Things that work persist,’ which is why there’s still Cobol floating around.
+ - Science fiction does not remain fiction for long. And certainly not on the Internet.
+ - Humor is the only thing that allows you to survive every pressure and crisis.
+ - I no longer give Power Point presentations, because I’ve come to believe that power corrupts, and Power Point corrupts absolutely.
+ - We live in a very complex world.
+ - The hackers don’t want to destroy the network. They want to keep it running, so they can keep making money from it.
+ - We never, ever in the history of mankind have had access to so much information so quickly and so easily.
+ - Instant messaging and chat rooms have basically created a level playing field for deaf people.
+ - We will have more Internet, larger numbers of users, more mobile access, more speed, more things online and more appliances we can control over the Internet.
+ - The Internet lives where anyone can access it.
+ - I believe that the problem of global climate change will ultimately spur our global society to respond and while the condition does not appear to be reversible, we will find ways to adapt to it.
+ - At some point, you can’t lift this boulder with just your own strength. And if you find that you need to move bigger and bigger boulders up hills, you will need more and more help.
+ - The closer you look at something, the more complex it seems to be.
+ - If we do not like what we see in that mirror the problem is not to fix the mirror, we have to fix society.
+ - Information flow is what the Internet is about. Information sharing is power. If you don’t share your ideas, smart people can’t do anything about them, and you’ll remain anonymous and powerless.
+ - The purpose behind terrorism is to instill fear in people – the fear that electrical power, for instance, will be taken away or the transportation system will be taken down.
+ - In a town of 3,000 people there is no privacy. Everybody knows what everybody is doing.
+ - What is special about VOIP is that it’s just another thing you can do on the Internet, whereas it is the only thing – or nearly the only thing with the exception of the dial-up modem and fax – that you can do on the public switched telephone network.
+ - What’s wonderful about Google is that as long as you bring ideas to the table, it doesn’t matter what else is going on.
+ - I think imaginative exercises can have a profound impact on the future – what you can imagine can sometimes turn into something you can figure out how to build.
+ - But what we all have to learn is that we can’t do everything ourselves.
+ - We had no idea that this would turn into a global and public infrastructure.
+ - The remarkable social impact and economic success of the Internet is in many ways directly attributable to the architectural characteristics that were part of its design. The Internet was designed with no gatekeepers over new content or services.
+ - There was something amazingly enticing about programming.
+ - Surf the Web is a happy coincidence.
+ - It is just a thing. Whether it is good or bad depends what you do with it. If you don’t like what you are doing with it then it is simply a reflection of what you are as an individual, an organisation or a society and that is what you have to fix.
+ - In the larger companies, you have this tendency to get top-down direction.
+ - I can imagine people actually working in virtual environments where productive, cooperative work is undertaken, and I think we will find people helping others to take advantage of masses of information that are inaccessible or too vast to process in real time today.
+ - Engineers are really good at labeling and branding things. If we had named Kentucky Fried Chicken, it would have been Hot Dead Birds.
+ - The last decade of Internet evolution has been marked by innovation. That innovation has been a consequence of the open and neutral access that the Internet has afforded up until now.
+ - Today we have 1 billion users on the Net. By 2010 we will have maybe 2 billion.
+ - First of all, in terms of investment in Internet-related developments, venture capitalists – once burned – are now very cautious and are investing in areas that actually make business sense.
+ - Their Internet usage is growing very rapidly, and even they can do the math: If everyone in China needed an IPv4 address – just one – this country would use up one third of the entire public IP address space.
+ - My reaction to a lot of the current situation that we’re in is based in part on a serious concern that the present administration’s course ignores reality.
+ - The computer would do anything you programmed it to do.
+ - I expect to see a lot of household appliances on the Net by 2010, as well as autos and other mobile devices.
+ - I’d like to know what the Internet is going to look like in 2050. Thinking about it makes me wish I were eight years old.
+ - Movie distribution may very well have migrated fully to digital form by then, making a huge dent in the need to print film and physically distribute content.
+ - I’m projecting somewhere between 100 million and 200 million computers on the Net by the end of December 2000, and about 300 million users by that same time.
+ - In a small company, you often see a lot more of what goes on in a broader range of things. And that’s good.
+ - Now, more than ever, the Internet must be wielded along with other media to cast bright lights on all who would destroy freedom in the world.
+ - So, for me, working with larger companies has often been very satisfying, precisely because of the ability of bringing critical mass to bear on a given effort.
+ - There has been a substitution of ideology for fact and scientific and engineering data in this administration.
+ - I was very nervous about going up to teach at Stanford and very nervous even about going to ARPA.
+ - On email and the first instance of spam: This is not for advertising! This is for serious work!
+ - I am an optimist by nature and believe strongly that technology can be brought to bear to create alternatives, even in crisis situations.
+ - There is an underlying, fundamental reliance on the Internet, which continues to grow in the number of users, country penetration and both fixed and wireless broadband access.
+ - By placing intelligence at the edges rather than control in the middle of the network, the Internet has created a platform for innovation.
+ - Although I’ve had several major career changes, I was extremely hesitant about making some of them.
+ - There’s a tremendous amount of energy in Japan and, increasingly, in China.
+
+51 quotes

@@ -1,0 +1,40 @@
+ - You’re the first, the last, and my everything and the answer to all my dreams. You’re my sun, my moon, my guiding star, my kind of wonderful, that’s what you are.
+ - Leave me alone. I’m fine.
+ - There’s people making babies to my music. That’s nice.
+ - Take it off, baby, take it all off. I want you the way you came into the world.
+ - We are all gods, all forces of nature. We can destroy, we can build. We are like oceans and like fires.
+ - Been making love for hours and, baby, we’re still going strong. Girl, this night is ours and I swear I feel it coming on. All I know is when we get through, I ain’t going to be able to move.
+ - Mama tried to save us from the streets, but the streets were too strong.
+ - People are always looking for me to be a freak, weird.
+ - I went to jail at 16 for stealing tires off Cadillacs. When I got out I said, Never again.
+ - It’s ecstasy when you’re laying down next to me.
+ - All I had was the will and the love for music. I couldn’t read music or write it. No connections, no car, no money, no bankroll, no clothes, no nothing.
+ - I’m so thankful that your mine, your sweetness is my weakness.
+ - No one could understand the bond between me and my brother. I struggled to understand the forces that drove his soul in one direction and mine in another.
+ - Elton John’s opinion turned the label’s opinion around, all in a day.
+ - I’ll come to you with gifts of knowledge, wisdom and truth.
+ - If you were a young kid, 19, 20 years old who has two children and a third one on the way and refuses to leave them. A kid who was on welfare, because he refused to steal anybody’s property or take anybody’s money. You found life a lot tougher.
+ - I quit high school on my birthday. It was my senior year and I didn’t see the point. This was 1962, and I was ready to make music.
+ - The whole system of society tells you what to do.
+ - When I saw corruption, I was forced to find truth on my own. I couldn’t swallow the hypocrisy.
+ - When a man’s making love, the last thing he thinks about is war.
+ - I try to tell a story musically in a song.
+ - Blacks own so little of the music business, it’s pathetic. But I see that changing soon. Black artists, black businessmen and women will unite.
+ - As a boy, I believed freedom for America meant freedom for me. There was a time I believed every word spoken.
+ - I’ve always loved War’s Low Rider and Sly Stone’s Thank You, and I just wanted to put my take on them.
+ - One preacher turned me on, another turned me off.
+ - I’m very happy with this new record. It’s dealing with different aspects of love-it’s me making a statement about people doing something with their lives. It is about caring for others.
+ - I woke up when I was 14 and went to speak to my mother and scared us both to death.
+ - Most families had four, five brothers. But because it was just me and Darryl, we had to be twice as strong.
+ - When I commit, I commit with my whole heart, my whole being. I know the Bible like the back of my hand.
+ - I never learned to read or write music. Never wanted to fool with scales. That was boring, forced. The music I heard was free – flowing.
+ - There’s a time when people give their words to each other it has to mean something. I’m a street cat. I’ve belonged in gangs and when you had a partner, you went down with your partner whether you won the fight or lost it. You went down together.
+ - I don’t know if it’s my music, my lyrics, my sound and knowing the music business the way I do – all I can say is, my career has lasted way longer than I expected.
+ - The cops picked me up for attempted murder. I can still see the detectives, licking their chops. Thought they had me. Two weeks later, the cat came out of a coma and told the truth. I was innocent.
+ - We forget that this music, music made by my brothers and sisters, is still a baby. It’s just beginning. When I think of the possibilities, it makes me smile.
+ - Disco deserved a better name, a beautiful name because it was a beautiful art form. It made the consumer beautiful. The consumer was the star.
+ - In my day, we didn’t have the cocaine, so we went out and knocked somebody over the head and took the money. But today, all this cocaine and crack, it doesn’t give kids a chance.
+ - Everyone to me has to pick a subject to talk about in music if you’re going to be a writer.
+ - I kept my babies fed. I could have dumped them, but I didn’t. I decided that whatever trip I was on, they were going with me. You’re looking at a real daddy.
+
+38 quotes

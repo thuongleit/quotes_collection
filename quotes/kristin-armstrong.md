@@ -1,0 +1,43 @@
+ - Take care of yourself. Eat well, rest, train hard and smart, make time to think and breathe. Be intentional with your time.
+ - I love the big fresh starts, the clean slates like birthdays and new years, but I also really like the idea that we can get up every morning and start over.
+ - When we focus on our gratitude, the tide of disappointment goes out and the tide of love rushes in.
+ - I want to get more comfortable being uncomfortable. I want to get more confident being uncertain. I don’t want to shrink back just because something isn’t easy. I want to push back, and make more room in the area between I can’t and I can.
+ - Times of transition are strenuous, but I love them. They are an opportunity to purge, rethink priorities, and be intentional about new habits. We can make our new normal any way we want.
+ - We either live with intention or exist by default.
+ - Running has taken me in, and continues to comfort, heal and challenge me in all kinds of magical ways. I am not a ‘good runner’ because I am me. I am a good ‘me’ because I am a runner.
+ - There is something magical about running; after a certain distance, it transcends the body. Then a bit further, it transcends the mind. A bit further yet, and what you have before you, laid bare, is the soul.
+ - We postpone the finality of heartbreak by clinging to hope. Though this might be acceptable during early or transitional stages of grief, ultimately it is no way to live. We need both hands free to embrace life and accept love, and that’s impossible if one hand has a death grip on the past.
+ - Learn to say no, so your yes has some oomph.
+ - Embrace your sweat. It is your essence and your emancipation.
+ - Sweat has the power to end a pity party in such a way that even the hostess is happy.
+ - When the seasons shift, even the subtle beginning, the scent of a promised change, I feel something stir inside me. Hopefulness? Gratitude? Openness? Whatever it is, it’s welcome.
+ - Parents walk a fine line between discipline and grace – values have to hold even when circumstances change or call for compromise or compassion. It’s the ultimate challenge to be both firm and fluid, soft and strong, yielding yet rock solid.
+ - Running is a grownup’s lost link to playing outside.
+ - Life is too sweet and too short to express our affection with just our thumbs. Touch is meant for more than a keyboard.
+ - I think I run my strongest when I run with joy, with gratitude, with focus, with grace. With that strategy in place I can push myself for pleasure, not punishment. Maybe you can only really go when you let go.
+ - It’s easy to lose sight of God when life is sweet and easy, but there is something awesome about despair, and it is the closeness of God when we are at our weakest.
+ - Typically creative people are usually not clock-slaves or list-makers, so the idea of enforcing goals and deadlines can be somewhat daunting.
+ - Running is always an exercise in humility.
+ - That’s what our training is for, we practice not panicking, we practice breathing, we practice looking directly at the thing that scares us until we stop flinching, we practice overriding our Can’t.
+ - I think I run my strongest when I run with joy, with gratitude, with focus, with grace.
+ - I find significance in all kinds of small details when I run; I’m hyper aware of my surroundings, the sensations in my body, and the thoughts running through my mind. Everything is clearer, heightened. I might be more addicted to this clarity than I am to running itself.
+ - It’s not only moving that creates new starting points. Sometimes all it takes is a subtle shift in perspective, an opening of the mind, an intentional pause and reset, or a new route to start to see new options and new possibilities.
+ - When everything is moving and shifting, the only way to counteract chaos is stillness. When things feel extraordinary, strive for ordinary. When the surface is wavy, dive deeper for quieter waters.
+ - I never imagined that divorce would be part of my life history or my family’s legacy. When people say that divorce can be more painful than death, I understand why. But like any great trial, God uses everything for good, if we allow Him to heal us.
+ - The best thing to do when you find yourself in a hurting or vulnerable place is to surround yourself with the strongest, finest, most positive people you know.
+ - Whatever you may be missing right now – a person, a place, a feeling, maybe you are injured and missing running – whatever it is, have peace and take heart – remember that any goodbye makes room for a hello.
+ - I avoid the carwash when I think it might rain anytime in the near future, which means I drive around the majority of the time in a pollen and bird poop covered car. This presents a stand off between Neat Freakshow and Practical Pennypincher, and Neat Freak usually triumphs. And then it rains.
+ - Disappointment is a sticky one, because no one can steal contentment, joy, gratitude, or peace – we have to give it away...
+ - A run has never returned me exactly the same. I go, I grow.
+ - We can thank God for everything good, and all the rest we don’t comprehend yet.
+ - If we write our dreams and goals down, we dramatically increase our odds of realization. If we share them with others, they become potent and alive.
+ - Perhaps love’s greatest gift – that it is indeed unconditional – is also its greatest curse.
+ - Thank God for running. It is the ultimate detox for me, whether my poison is bubbles, a foul mood, or a bad attitude. If I combat inertia, get out, and get moving, eventually every kind of toxin works its way out.
+ - I love the thought of not knowing how things will turn out but the willingness to invest anyway.
+ - To me, there is no greater way to achieve clarity than to run alone, or share miles with a trusted friend.
+ - The time I spend in the morning – praying, sipping coffee, and coming up with my list – is a ritual I relish. I have done it for so long now that I subconsciously measure whether or not the things I’m doing match with what I should be doing, what I want to be doing, and the life I want to live.
+ - Running fills a need so we make fewer demands on others. Running reveals the roots of negative thinking, so the weeds can be pulled. Running reconnects the soul to the source, inspiring hope and creativity.
+ - When it comes down to it, determination has a greater impact than giftedness.
+ - In the midst of regular life, running is the touchstone that breathes adventure into my soul.
+
+41 quotes

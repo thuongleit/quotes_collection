@@ -1,0 +1,29 @@
+ - Finding solitude in the concrete jungle is powerful and peaceful.
+ - Different shades of life make the painting more beautiful.
+ - Be the light in the dark, be the calm in the storm and be at peace while at war.
+ - Use your energy for good and it will be replenished with more good energy, use you energy for bad and your energy will be drained.
+ - In order to find yourself you need to get lost in the forest of life.
+ - Sometimes it’s just enough to smile sincerely.
+ - Time is neither friend nor enemy it’s just a measurement.
+ - If you complain about the world moving too fast, slow down.
+ - The peace you seek is there, it’s there between all the traffic in your mind, stop and rest for peace will find you if you let it.
+ - The dance of the palm trees, the oceans calling, the first rays of sun and heaven is here.
+ - Glamour is a shooting star, it catches your eye, but fades away, beauty is the sun always brilliant day after day.
+ - If you go, go in Peace it makes the flowers sweeter along the path.
+ - Find peace in the morning rush and you will have a good day.
+ - You are a beautiful soul hidden by the trench coat of the ego.
+ - A kind soul knows impoliteness is just preoccupied with distraction.
+ - Your body is a beautiful manifestation powered by spirit.
+ - Care not what they say about the color of your skin let the brilliant light of your soul blind them.
+ - Those that walk with fear will always be too busy hiding.
+ - Anxiety is a deep conscious breath away from dissolving.
+ - Pay with compliments and you will always be wealthy.
+ - I am going to give from every corner of my soul.
+ - Work as if you own the company and soon you just might.
+ - My friend asked me the essence of life and I smiled.
+ - We all have a path to take; sometimes it’s hidden under the weeds, so you might have to work a little.
+ - What they sell to the masses are the chains you must break if you are ever to be in control of your life.
+ - The memories you have are just recordings of things past, not chains to bind you.
+ - Garbage clutters the house that has no dream.
+
+27 quotes

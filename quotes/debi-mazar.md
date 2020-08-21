@@ -1,0 +1,32 @@
+ - The kitchen is the heart of every home, for the most part. It evokes memories of your family history.
+ - A hero is somebody who is selfless, who is generous in spirit, who just tries to give back as much as possible and help people. A hero to me is someone who saves people and who really deeply cares.
+ - Sometimes in life you have to make a decision and make sacrifices.
+ - I don’t like the idea of things being off-limits to kids – like a fancy sitting room where they can’t touch anything. I own vintage pottery cups, and I let my girls hold them. It teaches them to treat objects with respect.
+ - With the breast-feeding, I really love the bonding. Real life is more important to me.
+ - I used to watch my grandmother make fancy, Julia Child-style beef bourguignon. And growing up in New York City, I was exposed to many cultures. I experimented with Puerto Rican and Jamaican food.
+ - There’s so much importance in honoring your everyday hero. It doesn’t take money. It doesn’t take connections. What matters is that people get involved. Whether your passion is gun control or food or whatever it may be, everybody needs to stop being so self-absorbed.
+ - I grew up on food stamps. I come from a very humble background. And I’ve had many friends that have been destitute – you know, running into trouble – and places like The Midnight Mission have given them hope and have fed them and gotten them back on the right path.
+ - I’d love to give my girls a traditional Thanksgiving with turkey and all that jazz, but we’ve raised them to love Tuscan food so much that they don’t care for it. My favorite is a nice polenta with beef stew and broccoli rabe on the side.
+ - Usually I wear my grandma’s old aprons, or others I have collected in my travels. When I was young, I would sit and watch my grandma prepare stuff. She wasn’t Italian, but she did really good Italian food.
+ - I’ve always been a foodie. My grandmother got me hooked on cooking.
+ - I have a fuller figure and sometimes like to hide my legs. Palazzo pants accentuate my small waist and make me feel a little like Katharine Hepburn.
+ - I wanted to come up with a hybrid show of sorts that wasn’t your traditional ‘dump and stir’ type of cooking show.
+ - Being a publicist is like management in a lot of ways – you’re their friend, you’re their mother, you’re their confidante.
+ - I’m never sloppy, and I never wear jeans. I don’t work one look in particular, but it’s usually retro – I’m a flea-market freak. And detailed – I’m always very done, even at the gym.
+ - Some people in LA are addicted. They have to be here. My personal life is stronger than my professional life, in terms of priorities.
+ - Being typecast is a great thing for an actor. I was considered one of the New York mob actors.
+ - I think my career would probably be in a better place had I been more aggressive. But I don’t have it in me. I’m not a competitive person, and I’m also really private.
+ - Sitting down at the table is a sacred event. It’s the heart of the home. People have ginormous homes or crappy little homes, but the kitchen is where we always end up sitting. It’s where the stories happen, the family happens.
+ - I truly have a love-hate thing with the press.
+ - I live in Italy part time, and they’re obsessed with what’s happening in LA too. They make fun of Americans, but the world wants to know what’s going on in Hollywood.
+ - Nobody has money right now. And eating is very important, but it doesn’t need to be expensive. And to make – it doesn’t need to be fancy, as long as it’s fresh and simple. The simpler it is, the more fancy it actually comes out tasting.
+ - I started doing makeup to make a living. Then I said, You’re not supposed to be putting powder on other people. You’re supposed to be powdering yourself.
+ - I was doing an hour drama on television and a Jackie Chan movie in Toronto, so I was on a plane every three days.
+ - When you come into our house, you get a flavor for our life, our travels, our kids, our 18-year-old poodle who is like, blind, deaf and incontinent but so happy.
+ - Thanksgiving was always a favorite holiday for me. The preparation was fun! My grandma and I would walk to the butcher on Jamaica Avenue in Queens, order the bird, and buy all the fixings at the market.
+ - I have lots of shoes, but I have to be comfortable. Lately, I’ve stolen my husband’s big, ugly Uggs to wear around the kitchen. I want to have them on, then slide into a fabulous heel later. Truth is, I often forget the heel.
+ - When my mother was raising me, she moved us upstate to the Woodstock area. Our closest neighbor was a mile away. She planted all her own vegetables.
+ - Doing makeup was a way to create characters, only I got tired of doing it for other people.
+ - I’ve never wanted to be the ingenue. Now that I’m getting into my forties, I think my time as a woman has arrived; I think I might have a new moment in my career. I have that drive left – just for a little while.
+
+30 quotes

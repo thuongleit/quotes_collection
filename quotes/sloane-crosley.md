@@ -1,0 +1,112 @@
+ - Our brains are like bonsai trees, growing around our private versions of reality.
+ - I have a disproportionate amount of faith in the goodness of the world and that everything will actually work out okay.
+ - Life starts out with everyone clapping when you take a poo and goes downhill from there.
+ - Uniqueness is wasted on youth. Like fine wine or a solid flossing habit, you’ll be grateful for it when you’re older.
+ - The year most of my high school friends and I got our driver’s permits, the coolest thing one could do was stand outside after school and twirl one’s car keys like a lifeguard whistle. That jingling sound meant freedom and power.
+ - I love to bake, so I made vanilla bean and blueberry muffins for sick hospital children. Just kidding! All of that is true except the sick children part.
+ - Sometimes we don’t know what we want until we don’t get it.
+ - I can’t see the forest through the trees, except the trees are people.
+ - I’m a summer baby, so I usually have my birthday as a good summer memory.
+ - You know what they say: ‘Why sit at a table that doesn’t have key lime pie on it if you don’t have to?’
+ - It’s remarkable the logic we’ll build around a misapprehension.
+ - I thought I’d had another few decades before my noise complaint years.
+ - You feel like telling him you’re not single in the way that he thinks you’re single. After all, you have yourself.
+ - If you have to ask someone to change, to tell you they love you, to bring wine to dinner, to call you when they land, you can’t afford to be with them.
+ - Our culture’s obsession with vintage objects has rendered us unable to separate history from nostalgia. People want heart. They want a chaser of emotion with their aesthetics.
+ - You feel like telling him you’re not single in the way that he thinks you’re single. After all, you have yourself. I think a lot of humor is about distracting yourself. Pretend you’re not trying to make it funny. Because for some reason the effort to be funny smells like sulphur in our culture.
+ - Most people don’t get lucky. They get human. They get crushes. This means you irrationally mortgage what little logic you own to pay for this one thing. This relationship is an impulse buy, and you’ll figure out if it’s worth it later.
+ - Air travel is the safest form of travel aside from walking; even then, the chances of being hit by a public bus at 30,000 feet are remarkably slim. I also have no problem with confined spaces. Or heights. What I am afraid of is speed.
+ - I thought we had reached an understanding, the institution of marriage and I. Weddings are like the triathalon of female friendship: the Shower, the Bachelorette Party, and the Main Event. It’s the Iron Woman and most people never make it through. They fall of their bikes and choke on ocean water.
+ - Ah, the power of two. There’s nothing quite like it. Especially when it comes to paying utility bills, parenting, cooking elaborate meals, purchasing a grown-up bed, jumping rope and lifting heavy machinery. The world favours pairs. Who wants to waste the wood building an ark for singletons?
+ - I definitely rediscovered reading for pleasure by devoting such a large swath of my time to sitting on airplanes. I am now painfully adept at removing my shoes so as to have the least amount of foot surface area touching an airport floor.
+ - Are there moments when I see unrequited crushes or ex-boyfriends slow dancing with their dates and kind of want to stab myself in the spleen with a salad fork? Yeah, sure.
+ - I have definitely had experiences where I can feel the shift from simply living my life to being slightly outside of my life and taking notes.
+ - There’s already a marriage clock, a career clock, a biological clock. Sometimes being a woman feels like standing in the lobby of a hotel, looking at the dials depicting every time zone in the world behind the front desk – except they all apply to you, and all at once.
+ - Unless we’re talking about old-school, witchcraft-trial violence, can we please phase out the phrase ‘girl crush?’ While we’re at it, if we can axe ‘like, total girl crush’ unless Total Girl Crush is the name of a fizzy soft drink, in which case I’ll take two, thank you.
+ - Not all shabby is chic, just like not every porn actor is a star.
+ - A lot of people are lonely. A lot of people are lonely even when they’re surrounded by other people.
+ - Because this is the beauty of strangers: we’re all just doing our best to help each other out, motivated not by karma but by a natural instinct to help the greater whole.
+ - I was diagnosed with a severe temporal spatial deficit, a learning disability that means I have zero spatial relations skills. It was official: I was a genius trapped in an idiot’s body.
+ - We all deserve to be congratulated, but sadly that would mean there’s no one left to do the congratulating.
+ - Juice cleansing has been all the rage for some time. And I used the word ‘rage’ advisedly; one must push a violent flood of liquidised vegetables and fruit through one’s system for at least three days in order to perform a ‘cleanse.’
+ - When you spin a globe and point to a city and actually go to that city, you build an allowance of missed opportunities on the back end.
+ - Alaska is what happens when Willy Wonka and the witch from Hansel and Gretel elope, buy a place together upstate, renounce their sweet teeth, and turn into health fanatics.
+ - As we grow up, it feels like you should either invite people into your life or not. There should be fewer and fewer instances of friends you ‘can only take in small doses.’
+ - The search for one’s first professional job is not unlike a magical love potion: when one wants to fall in love with the next thing one sees, one generally does.
+ - Kids across the country have grown up accepting the idea that no one can harm your family if at least one of its adult members is in the shower. No one knows why.
+ - I now know my right from my left and my up from my down. Unluckily, my terrible sense of direction remains. For me, to live in New York City is to never be able to meet someone on the northeast corner. It is to never ever make a smooth entrance, always to get caught looking lost on the street.
+ - I have come to understand myself as more of a New York writer, or more of a woman writer, but I don’t feel like that while I’m writing. But I think that most New Yorkers would object to calling me a New Yorker. I didn’t grow up here.
+ - I am starting to like LA, but the concept of a place you have to get used to so much seems a little weird to me. I have been to many foreign cities where I didn’t have do acclimatize as much as I did to LA.
+ - For a long time I wanted to draw, but I could never get the proportions right. My still life sketches were the artistic equivalent of someone who has misjudged the space constraints of a postcard, the handwriting shrinking uncomfortably at the bottom.
+ - Who do you have to sleep with to get laid in this town?
+ - Because I am a horrible flincher, contact lenses are not an option. I’m always envious of contact-wearers. There are endless reasons to take off one’s glasses during the day and, as I have grown older, what I don’t see has become increasingly pronounced.
+ - At the end of each year, I sit on the floor and go page by page through the old calendar, inking annual events into the new one, all the while watching my year in ‘dinner withs’ skate by. When I’m done, I save the old calendar in the box of the new one and put it with the others on a shelf.
+ - My mother is a special education teacher but also an artist, and my father an advertising executive. They are about as wacky as you can get without being alcoholics.
+ - Personal technology has given us the freedom of being able to do whatever we want – and in the case of celebrities and athletes, whomever they want. But it can also serve as a humiliation jetpack.
+ - In New York, if you weigh under 200 pounds and decline so much as a cookie at a co-worker’s party, women will flock to your side, assuring you of your appealing physique. This is how skittish we are about the dangers of anorexia and the pressures of body image.
+ - Sometimes in New York, you’re walking down the street and you realize there’s a girl walking in front of you whose thighs you could hit a golf ball through, and maybe that makes you depressed.
+ - Time grabs you by the scruff of your neck and drags you forward. You get over it, of course. Everyone was right about that. One mathematically insignificant day, you stop hoping for happiness and become actually happy.
+ - I attended an extremely small liberal arts school. There were approximately 1,600 of us roaming our New England campus on a good day. My high school was bigger. My freshman year hourly calorie intake was bigger.
+ - We’ve come to expect so little from online privacy measures that public displays of concern about the matter are more or less for show. Being devastated to discover you’ve been tagged in somebody else’s photo has an air of the melodramatic about it at this point.
+ - You can’t possibly fathom the ins and outs of a prepubescent beauty treatment until you’ve felt the strange but exhilarating tingle of a cottage-cheese-and-Pop-Rocks facial.
+ - Every time I open the drawer, it’s a trip down Memory Lane, which, if you don’t turn off at the right exit, merges straight into the Masochistic Nostalgia Highway.
+ - Everything in New York seems to merit preserving. If it’s not historical, it’s personal. If it’s not personal, it’s cultural. But you can’t. You can’t save everything. You just have to pack it up in your brain and take it with you when you go.
+ - But now my problems had been set loose. They could be anywhere at any time and I was just like everyone else I knew: almost positive that there was something profoundly and undiagnosably wrong with me.
+ - I spent a lot of time waiting for things to happen to me, which is more or less as pathetic as it sounds.
+ - I don’t really think of my essays as being about myself. I know it sounds insane, but I just don’t think of them as a memoir. They’re essays; they’re not an autobiography.
+ - We are only as good as our most extreme experiences.
+ - I wouldn’t want to live in Berlin. It’s bombed out and there’s a lot of techno.
+ - Insomniacs tend to fall into two general categories – those who give up and those who don’t. I don’t. I refuse to admit defeat by turning on the light. I will not try to read or watch a movie, thank you. Productivity is a crutch of the weak.
+ - Yes. I am writing full-time. Which is strange. It feels like not having a job.
+ - I thought I was going to write fiction but I fell backwards into non-fiction. It started when I got locked out of two apartments in one day and I told the story to some friends, one of whom worked in the ‘Village Voice’ and asked me to turn it into an essay.
+ - The hardest thing is spending twelve hours a day accommodating the rest of the world, then going home at night and criticizing it. I would be curious about what I’d write if I didn’t have to worry about offending.
+ - I love giving people advice on what to do with their books, but I don’t really know how a Kindle Single gets covered.
+ - Suburbia is too close to the country to have anything real to do and too close to the city to admit you have nothing real to do.
+ - My grandmother was a kind of Scarsdale, New York, society woman, best known in her day as the author of the 1959 book ‘Growing Your Own Way: An Informal Guide for Teen-Agers’ – this despite being a person whose parenting style made Joan Crawford’s wire hangers look like pool noodles.
+ - There are two kinds of people in this world: those who know where their high school yearbook is and those who do not.
+ - As most doctors will tell you, cleansing is ridiculous. You know what’s been around longer than that state-of-the-art juicer? Your kidneys. And your liver. Still, the cleanse has recalibrated my definition of a splurge.
+ - The world I describe is about how people live now. It’s not about zany people with unlimited, inexplicable funds in an apartment somewhere.
+ - Some of the writers I admire who seem very, very funny and very emotional to me can develop a closeness with the reader without giving too much of themselves away. Lorrie Moore comes to mind, as does David Sedaris. When they write, the reader thinks that they’re being trusted as a friend.
+ - Working on an essay versus a novel is like the difference between seeing to that curtain and seeing to New Jersey.
+ - No affair that begins with such an orchestrated overture can end on a simple note.
+ - I got out on the street and started crying the kind of hysterical tears made justifiable only by turning off one’s cell phone, putting it to the ear, and pretending to be told of a death in the family.
+ - I don’t do emoticons unless I’m making a big deal out of them. I’ll type out, ‘This is so amusing it makes me want to grin in pixels.’ And then do it.
+ - My A-number one visceral fear is speed. More than knives or snakes or confined spaces. Speed. I won’t even go on a motor boat if I can help it.
+ - Unless you are a professional, you will find the tart to be a high-maintenance, unforgiving whistle-blower of a pastry.
+ - As most New Yorkers have done, I have given serious and generous thought to the state of my apartment should I get killed during the day.
+ - Picture it in your mind’s nostril: you get in a cab in time to catch twin thugs named Vomit and Cologne assaulting a defenseless pine-tree air freshener.
+ - I think humor is the social use. You can put anything in it. I think – yes, I speak heavily in analogies – it is like putting the medicine in apple sauce or a block of cheese for a dog. Not that anyone in this room is a dog in this scenario.
+ - For the average person, taken to their sick bed, it takes a serious bout of pneumonia or a full body cast to completely forget the life they had prior to falling off the rollercoaster. I, however, will do this over a paper cut on my thumb, obsessing of said cut and being generally consumed by it.
+ - I think it’s hard to have a full-time job and write fiction, but for essays, you need to be in the world.
+ - I was surprised by how much I loved Portland. It is so wonderfully creative without being artsy. Great food scene.
+ - For me, nothing brings out my ‘born yesterday’ idiotic qualities quite like having my photograph taken.
+ - Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor’s appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.
+ - There’s an ‘Everything must go!’ emotional liquidation feel to the end of your twenties, isn’t there? What will happen if we turn thirty and we’re not ‘ready?’ You don’t feel entirely settled in any aspect of your life, even if you are on paper.
+ - In New York and LA, there is sort of that silent competition to be on the cutting edge of something.
+ - Out of all artists, authors are the least trained for the spotlight. Wanting attention isn’t a requisite part of the package.
+ - The Darkness at Irving. Hope to have as much fun doing anything ever as these guys have on stage.
+ - I think that most New Yorkers would object to calling me a New Yorker. I didn’t grow up here.
+ - I find that anything culturally significant that happened before ’93 I associate with the decade before it. In fact, Oregon Trail is one of a handful of signposts that middle school existed at all.
+ - It’s never good to fall in love with someone whom you’d have to stab in the eyeballs to elicit a response.
+ - New Yorkers have a delightfully narcissistic habit of assuming that if they’re not conscious of a scene, it doesn’t exist.
+ - It is my belief that people who speak of high school with a sugary fondness are bluffing away early-onset Alzheimer’s.
+ - The truth is, I wrote a novel when I was 23. It’s hideously bad. Truly rotten.
+ - I would gladly have accepted a heaping spoonful of nepotism when I got out of college and was looking for a job.
+ - It takes a level of creative depression to hear ‘Girls Just Wanna Have Fun’ and weep.
+ - Book tours are such a little tapas meal of where I could live.
+ - In every woman’s wardrobe, there are certain accessories that cannot be separated from their back stories.
+ - I like to try to do a little work before I do anything in the morning, even if it’s a paragraph.
+ - Brits and Americans have hundreds of different phrases for the same thing. Luckily, it’s usually a source of amusement rather than frustration. A flashlight by any other name is still a torch. My personal favourite is ‘fairy lights,’ which we boringly refer to as ‘Christmas lights.’
+ - I felt like I wasn’t doing justice to either side of my life. It wasn’t pronounced. Publicity is an awkward thing to do. It is awkward to call people up all the time and ask them for things on a very basic level.
+ - I don’t understand how you can be a decent writer and not know people.
+ - A human being can spend only so much time outside her comfort zone before she realizes she is still tethered to it.
+ - Cohabitation seems a greater leap in cities because it’s all the harder to extract oneself if things turn sour. It’s what keeps otherwise functional adults living with their mothers.
+ - Being a writer is an endless study in human transition and lessons learned or forgotten or misapplied.
+ - Normally, I am a vocal advocate for ‘looking both ways’ and ‘knowing the size of one’s own body.’ But working, socialising and simply running errands in Manhattan, means I am bound to break my own rules on occasion.
+ - What annoyed me was that I so often attempted to weasel out of things on purpose, it killed me to do it by accident. It seemed like a waste of whatever detailed lie I was going to have to come up with.
+ - I was the youngest of my entire family so you are tap-dancing to try to get the attention of your older cousins. I really hit my social stride in 6th grade, but before that I was a pretty big dork. You learn how to be amusing and how to work for it.
+ - I prefer to record all traumas and save them for later, playing them over and over so they can haunt me for a disproportionate number of weeks to come. It’s very healthy.
+ - I write on weekends, on vacation, and, really – on deadline and on my floor. Both terrible for the back.
+ - I do think New York prepares you for the crossection of personalities and realities on display when you leave the country, and I’d live somewhere else if I had a reason or burning-the-the-point-of-discomfort desire to do so.
+
+110 quotes

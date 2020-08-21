@@ -1,0 +1,31 @@
+ - You only get better by playing.
+ - Average band with a great drummer sounds great, great band with an average drummer sounds average.
+ - I consider every drummer that ever played before me an influence, in every way.
+ - I think the drummer should sit back there and play some drums, and never mind about the tunes. Just get up there and wail behind whoever is sitting up there playing the solo. And this is what is lacking, definitely lacking in music today.
+ - Almost everything I’ve done, I’ve done through my own creativity.
+ - A great musician is just a thief who doesn’t get caught.
+ - But primarily, the drummer’s supposed to sit back there and swing the band.
+ - If you think you stink, you probably do.
+ - I think at one time every drummer wanted to play like Krupa or wanted to win a Gene Krupa drum contest. This is the big inspiration for drummers and naturally it has to be the same way for me.
+ - If you can play, you can play anything. I don’t like classifications.
+ - Every drummer that had a name, had a name because of his individual playing. He didn’t sound like anybody else, So everybody that I ever listened to, in some form, influenced my taste.
+ - I can’t sit down long enough to absorb any kind of learning.
+ - I play a percussion instrument, not a musical saw; it needs no amplification. Where it’s needed, they put a microphone in front of the bass drum. But, I don’t think it’s necessary to play that way every night.
+ - But, when you have to resort to turntables, trick lights, flashing lights, fire and all that, you’re actually saying, I need this because what I do is not all that together.
+ - As far as music school goes, I walked through Berkelee one time.
+ - But, I don’t think any arranger should ever write a drum part for a drummer because if a drummer can’t create his own Interpretation of the chart and he plays everything that’s written, he becomes mechanical; he has no freedom.
+ - I never believed in a set routine. It should depend on how you feel, because you play what you feel.
+ - No, I don’t like recording. It’s a bore.
+ - And, you know, I think the original recording of Ravel’s Bolero, probably whoever played percussion on that, will never have It played better than that.
+ - I can think of a lot better things to do with my hands than to cut them up on the rim of a drum.
+ - Almost everything I’ve done, I’ve done through my own creativity. I don’t think I ever had to listen to anyone else to learn how to play drums. I wish I could say that for about ten thousand other drummers.
+ - If you have any requests. keep them to yourselves. we don’t play requests!
+ - Well, I never really practiced because I never had the opportunity to practice.
+ - But I think that any young drummer starting out today should get himself a great teacher and learn all there is to know about the instrument that he wants to play.
+ - To have everything written for you It’s not really creating. That’s why I think symphony drummers are so limited. They ’re limited to exactly what was played a hundred years before them by a thousand other drummers.
+ - There were so many individual styles thirty or forty years ago.
+ - And, well of course, Count Basie, and I think all of the black bands of the late thirties and early forties, bands with real players. They had an influence on everybody, not just drummers.
+ - If he’s a true symphony artist, he knows better than that because he knows that the only truly creative musician is the jazz musician.
+ - I think it’s a fallacy that the harder you practice the better you get.
+
+29 quotes

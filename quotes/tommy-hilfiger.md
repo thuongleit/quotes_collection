@@ -1,0 +1,51 @@
+ - The road to success is not easy to navigate, but with hard work, drive and passion, it’s possible to achieve the American dream.
+ - Good sportsmanship goes beyond the game; it starts with respect.
+ - Always stay focused. Always give and try your best.
+ - I’m a designer of more than clothes. I am a designer of a very creative concept.
+ - The possibilities are endless, so never be discouraged by a setback, no matter how big.
+ - Good sportsmanship means treating others with respect. I consider myself a pretty good sport.
+ - Women were wearing the men’s button-downs so I added men’s touches into women’s shirts. They’re basically the same – just sexier. They’re reshaped to the female body.
+ - I always say if I weren’t a fashion designer, my other dream job is being a rock star!
+ - Our look and image never change dramatically from one season to the next, so we need an edge.
+ - I think it’s dangerous to think that you’re successful, because then you become complacent.
+ - I saw my future. I pictured it, but didn’t quite know how to get there. But I knew that I should never give up.
+ - But I think, if you’re in the spotlight, people are going to say bad things, and that’s just the way it is.
+ - I looked at the rap community like street kids wanting their own brand. But now I look at that period with the rappers in the 90s as a trend of the moment. What it taught me was never to follow a trend, because trends move on.
+ - Winning a trophy is always nice, but my personal satisfaction comes from reflecting on the passion, motivation, and determination that went into getting me there.
+ - My passion for music has always inspired my designs.
+ - We like to believe our fashion is growing.
+ - My mother inspired me to treat others as I would want to be treated regardless of age, race or financial status.
+ - I had eight brothers and sisters. Every Christmas my younger brother Bobby would wake up extra early and open everybody’s presents – everybody’s – so by the time the rest of us got up, all the gifts were shredded, ribbons off, torn open and thrown aside.
+ - New York Fashion Week comes only twice a year, make it count.
+ - A classic, navy blue blazer is my staple. It’s a look that can take you from office meetings to dinner out with friends or family.
+ - Victory is about recognizing all the work that went into achieving your dream.
+ - American style is about confidence, independence, diversity and free expression.
+ - Trying too hard to follow every trend. You want to look fashionable and put-together, not like you hit every sale rack this season.
+ - I consider myself to be respectful, and I believe this is a main value for sports.
+ - One of the most important things to me is to make things real, not have models who are perfectly groomed or clothes that are too perfect. It all has to have a twist because that’s how people live.
+ - I think preppy stands for optimism, confidence, energy and authenticity.
+ - In designing a lifestyle brand, you have to know more than just designing clothes.
+ - The Memorial Dedication was a momentous occasion.
+ - Algebra looked like Chinese characters to me, and I could never get into reading Shakespeare. I just did not get it.
+ - I had no confidence at school. I was not a good student and I really thought I was pretty stupid. Just dumb.
+ - I was looking at people like Jim Morrison and David Bowie and Mick Jagger and I thought, Ah! I want to look like them.
+ - Off the court, I tend to stick to the classics, but I like to have fun with color and accessories. I’m from Spain, so colors are important for me.
+ - The preppy lifestyle has gone global. We feel that our business has grown so well because preppy travels so well. It’s all-American classic.
+ - My rule of thumb is to strike a balance by sticking to the classics and playing with color, texture, and print to give them a modern update. On any given day, I keep it simple with jeans or chinos and a comfortable dress shirt.
+ - I disapprove of lots of decisions made by George Bush: the war, the meddling in the affairs of other countries, the conversations with dictators; it was a dark time.
+ - These are optimistic pieces, travel pieces that go anywhere.
+ - If it weren’t for rock’n’roll, I wouldn’t be a designer.
+ - Consumers around the world always want something unexpected and exciting, and that’s what drives me. I love the challenge of reinterpreting my designs in new ways each season to keep the “prep look” modern and fresh.
+ - I currently live in the Plaza in New York and I love it – all that history, all those interesting stories.
+ - If I see someone wearing Hilfiger it makes me proud, but then I wonder what I could do to make the style more relevant for them next year?
+ - I’ve never tried to do couture, because it’s a whole different beast.
+ - The preppy look has gone global- every corner of the world interprets it in a different way.
+ - Over the last 15 years we’ve developed our brand into a global brand and we wanted our giving to follow suit.
+ - I try not to have regrets and to learn from every experience.
+ - I think it is really important to have a sense of business. As a designer you can get so wrapped up in the design and fashion side that you forget the business side.
+ - My mother was kind and forgiving and would take in all the waifs and strays in our neighbourhood; we always compared her to Mother Teresa. She taught me a lot.
+ - I looked at my competitors and I thought that, If they could do it, I could do it. And if, they are popular and doing well, I could compete with them.
+ - I thought, if I went into business I’d be able to control my own destiny.
+ - I knew exactly what I wanted to do. I wanted to build some kind of lifestyle brand that was preppy and cool.
+
+49 quotes

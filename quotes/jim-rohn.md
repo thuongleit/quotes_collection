@@ -1,0 +1,502 @@
+ - Motivation is what gets you started. Habit is what keeps you going.
+ - Discipline is the bridge between goals and accomplishment.
+ - Either you run the day or the day runs you.
+ - If you really want to do something, you’ll find a way. If you don’t, you’ll find an excuse.
+ - Success is nothing more than a few simple disciplines, practiced every day.
+ - Don’t wish it were easier. Wish you were better.
+ - We must all suffer one of two things: the pain of discipline or the pain of regret or disappointment. 
+ - For things to change, you have to change.
+ - Formal education will make you a living. Self-education will make you a fortune.
+ - You have two choices: You can make a living, or you can design a life.
+ - Work harder on yourself than you do on your job.
+ - Don’t wish for less problems; wish for more skills.
+ - Don’t wish it was easier wish you were better. Don’t wish for less problems wish for more skills. Don’t wish for less challenge wish for more wisdom.
+ - You don't get paid for the hour. You get paid for the value you bring to the hour.
+ - If you don’t like how things are, change it. You are not a tree. 
+ - Success is doing ordinary things extraordinarily well.
+ - When you know what you want, and you want it bad enough, you'll find a way to get it.
+ - The difference between where you are today and where you'll be five years from now will be found in the quality of books you've read.
+ - There are two types of pain you will go through in life, the pain of discipline and the pain of regret. Discipline weighs ounces while regret weighs tonnes.
+ - The more you know, the less you need to say.
+ - Successful people have libraries. The rest have big screen TVs.
+ - You must either modify your dreams or magnify your skills.
+ - Your life does not get better by chance, it gets better by change.
+ - Focus on the solution, not on the problem.
+ - Happiness is not by chance, but by choice.
+ - Time is more value than money. You can get more money, but you cannot get more time.
+ - If you are not willing to risk the unusual, you will have to settle for the ordinary.
+ - Don't let your learning lead to knowledge. Let your learning lead to action.
+ - You are the average of the five people you spend the most time with.
+ - The major key to your better future is you.
+ - Take care of your body. It’s the only place you have to live.
+ - You cannot change your destination overnight. You can change your direction.
+ - Success is something you attract by the person you become.
+ - The challenge of leadership is to be strong, but not rude; be kind, but not weak; be bold, but not bully; be thoughtful, but not lazy; be humble, but not timid; be proud, but not arrogant; have humor, but without folly.
+ - Miss a meal if you have to, but don't miss a book.
+ - If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.
+ - Work hard at your job and you can make a living. Work hard on yourself and you can make a fortune.
+ - Without a sense of urgency, desire loses its value.
+ - You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of.
+ - The few who do are the envy of the many who only watch.
+ - Leadership is the challenge to be something more than average.
+ - One of the greatest gifts you can give to anyone is the gift of attention.
+ - Set a goal to become a millionaire for what it makes of you to achieve it. Do it for the skills you have to learn and the person you have to become.
+ - Learn how to be happy with what you have while you pursue all that you want.
+ - Motivation alone is not enough. If you have an idiot and you motivate him, now you have a motivated idiot.
+ - Excuses are the nails used to build a house of failure. 
+ - You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. 
+ - Success is neither magical nor mysterious. Success is the natural consequence of consistently applying basic fundamentals.
+ - How long should you try? Until.
+ - Unless you change how you are, you will always have what you've got.
+ - The best motivation is self-motivation.
+ - We generally change ourselves for one of two reasons: inspiration or desperation.
+ - Happiness is not something you postpone for the future; it is something you design for the present.
+ - Only by giving are you able to receive more than you already have.
+ - It isn't what the book costs. It's what it will cost you if you don't read it.
+ - Now is the time to fix the next 10 years.
+ - Success is nothing more than a few simple disciplines, practiced every day; while failure is simply a few errors in judgment, repeated every day. It is the accumulative weight of our disciplines and our judgments that leads us to either fortune or failure.
+ - The ultimate reason for setting goals is to entice you to become the person it takes to achieve them.
+ - Whatever good things we build end up building us.
+ - Finding is reserved for those that search.
+ - If you don’t design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planed for you? Not much.
+ - Don't just read the easy stuff. You may be entertained by it, but you will never grow from it.
+ - Discipline weighs ounces and regret weighs tons.
+ - Activity leads to productivity.
+ - Success Recipe: 2 cups faith, 2 cups love, 1 cup hard work, 1 cup persistence, 1 tbsp vision and a dash of swagger.
+ - We can have more than we've got because we can become more than we are.
+ - Those who will not read are no better off than those who cannot read.
+ - I will take care of me for you, if you will take care of you for me. 
+ - Managers help people see themselves as they are; Leaders help people to see themselves better than they are.
+ - Everything you need for better future and success has already been written. And guess what? All you have to do is go to the library.
+ - If you want to have more, you have to become more!
+ - The major value in life is not what you get. The major value in life is what you become.
+ - You cannot make progress without making decisions.
+ - The worst thing one can do is not to try, to be aware of what one wants and not give in to it, to spend years in silent hurt wondering if something could have materialized - never knowing.
+ - What is powerful is when what you say is just the tip of the iceberg of what you know.
+ - The book you don't read can't help.
+ - Goals. There's no telling what you can do when you get inspired by them. There's no telling what you can do when you believe in them. There's no telling what will happen when you act upon them.
+ - My father taught me to always do more than you get paid for as an investment in your future.
+ - Commit yourself to something bigger than yourself.
+ - Effective communication is 20% what you know and 80% how you feel about what you know.
+ - The only thing worse than not reading a book in the last ninety days is not reading a book in the last ninety days and thinking that it doesn't matter.
+ - Affirmation without discipline is the beginning of delusion.
+ - Some people claim that it is okay to read trashy novels because sometimes you can find something valuable in them. You can also find a crust of bread in a garbage can, if you search long enough, but there is a better way.
+ - You can’t hire someone else to do your push-ups for you.
+ - Failure is not a single, cataclysmic event. You don’t fail overnight. Instead, failure is a few errors in judgement, repeated every day.
+ - Good service leads to multiple sales. If you take good care of your customers, they will open doors you could never open by yourself.
+ - For every disciplined effort there is a multiple reward.
+ - Discipline is the foundation upon which all success is built. Lack of discipline inevitably leads to failure.
+ - Start from wherever you are and with whatever you’ve got.
+ - If you just communicate, you can get by. But if you communicate skillfully, you can work miracles.
+ - Giving is better than receiving because giving starts the receiving process.
+ - I’m working full time on my job and part time on my fortune.
+ - Reading is essential for those who seek to rise above the ordinary. We must not permit anything to stand between us and the book that could change our lives.
+ - Learn to hide your need and show your skill.
+ - Dreams are a projection of the kind of life you want to lead. Dreams can drive you. Dreams can make you skip over obstacles. When you allow your dreams to pull you, they unleash a creative force that can overpower any obstacle in your path.
+ - By constant self-discipline and self-control you can develop greatness of character. Grenville Kleiser Discipline is the bridge between goals and accomplishment.
+ - Income seldom exceeds personal development.
+ - The walls we build around us to keep sadness out also keeps out the joy.
+ - When you invest in people and lift them toward their potential, they will love you for it.
+ - You cannot change your destination overnight, but you can change your direction overnight.
+ - Service to others leads to greatness.
+ - I wish for you a life of wealth, health and happiness; a life in which you give to yourself the gift of patience, the virtue of reason, the value of knowledge, and the influence of faith in your own ability to dream about and achieve worthy rewards.
+ - Personal development – the never ending chance to improve not only yourself, but also to attract opportunities and affect others.
+ - Attitude drives actions. Actions drive results. Results drive lifestyles.
+ - One customer, well taken care of, could be more valuable than $10,000 worth of advertising.
+ - Big achievements come one small advantage at a time, one step at a time, one day at time.
+ - The rich invest their money and spend what is left; the poor spend their money and invest what is left.
+ - Remember that all success is based on long-term commitment, faith, discipline, attitude and a few stepping stones along the way.
+ - The difficulties you meet will resolve themselves as you advance. Proceed, and light will dawn, and shine with increasing clearness on your path.
+ - It’s a new day, a new beginning for your new life. With discipline you will be amazed at how much progress you’ll be able to make. What have you got to lose except the guilt and fear of the past?
+ - Profits are better than wages. Wages make you a living; profits make you a fortune.
+ - One person caring about another represents life’s greatest value.
+ - Don’t ask for security, ask for adventure.
+ - Those who seek a better life must first become a better person.
+ - If you want things to change, You have to change. If you want things to be better, You have to be better.
+ - Don’t let the learning from your own experiences take too long. If you have been doing it wrong for the last ten years, I would suggest that’s long enough!
+ - Successful people are action oriented.
+ - Stand guard at the door of your mind.
+ - Successful people do what unsuccessful people are not willing to doDon’t wish it were easier, wish you were better.
+ - Indecision is the greatest thief of opportunity.
+ - An investment in your personal development is the best investment you can make.
+ - The only healthy communication style is assertive communication.
+ - What is easy to do is also easy not to do.
+ - If you want to live a top shelf life then you need to stand on the books you have read. Never stop learning, never stop growing.
+ - Vocabulary enables us to interpret and to express. If you have a limited vocabulary, you will also have a limited vision and a limited future.
+ - If you don’t have a plan for what you want, then you will probably find yourself buying into someone else’s plan and later find out that was not the direction you wanted to go. You’ve got to be the architect of your life.
+ - Goal-setting is powerful because it provides focus. It shapes our dreams. It gives us the ability to hone in on the exact actions we need to perform to achieve everything we desire in life.
+ - Don’t start the day until you have it finished. Don’t start the week until you have it finished. Don’t start the month until you have it finished. Plan your day.
+ - Accuracy builds credibility.
+ - Life is not just the passing of time. Life is the collection of experiences and their intensity.
+ - Days are expensive. When you spend a day you have one less day to spend. So make sure you spend each one wisely.
+ - Don’t join an easy crowd; you won’t grow. Go where the expectations and the demands to perform are high.
+ - Time is our most valuable asset, yet we tend to waste it, kill it and spend it rather than invest it.
+ - Learn how to separate the majors and the minors. A lot of people don’t do well simply because they major in minor things.
+ - The same wind blows on us all; the winds of disaster, opportunity and change. Therefore, it is not the blowing of the wind, but the setting of the sails that will determine our direction in life.
+ - Direction determines destination. So the question you must ask yourself; ‘Are all the disciplines that I’m currently engaged in taking me where I want to go?’
+ - Poor people have big TV’s. Rich people have big libraries.
+ - If you don’t change what you are doing today, all of your tomorrows will look like yesterday.
+ - For things to change you need to change. For things to get better you need to get better. The good news is you can change, you can get better and you can start right where you are at and you can go as far as you want to go.
+ - Don’t mistake movement for achievement. It’s easy to get faked out by being busy. The question is: Busy doing what?
+ - Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
+ - Direction determines destination.
+ - Network marketing is the big wave of the future. It’s taking the place of franchising, which now requires too much capital for the average person.
+ - Financial independence is the ability to live from the income of your own personal resources.
+ - If you make a sale, you can make a living. If you make an investment of time and good service in a customer, you can make a fortune.
+ - Ignorance is not bliss. Ignorance is poverty. Ignorance is devastation. Ignorance is tragedy. And ignorance is illness. It all stems from ignorance.
+ - The key to turning dreams into reality is action.
+ - To succeed in sales, simply talk to lots of people every day. And here’s what’s exciting: There are lots of people!
+ - Failure is simply a few errors in judgment, repeated every day.
+ - Let others lead small lives, but not you. Let others argue over small things, but not you. Let others cry over small hurts, but not you. Let others leave their future in someone else’s hands, but not you.
+ - One discipline always leads to another discipline.
+ - To be successful you don’t need to do extraordinary things, you just need to do ordinary things extraordinarily well.
+ - If you don’t change your approach than you will never change your results!
+ - Life and business is like the changing seasons. You cannot change the seasons, but you can change yourself. Therein lies the opportunity to live an extraordinary life, the opportunity to change yourself.
+ - Your personal philosophy is the greatest determining factor in how your life works out.
+ - Asking is the beginning of receiving. Make sure you don’t go to the ocean with a teaspoon. At least take a bucket so the kids won’t laugh at you.
+ - The big challenge is to become all that you have the possibility of becoming. You cannot believe what it does to the human spirit to maximize your human potential and stretch yourself to the limit.
+ - Do whatever you have to do as quickly as you can, so you can do whatever you WANT to do, for as long as you can.
+ - If you go to work on your goals, your goals will go to work on you. If you go to work on your plan, your plan will go to work on you. Whatever good things we build end up building us.
+ - I think everybody should study ants. They have an amazing four-part philosophy. Never give up, look ahead, stay positive and do all you can.
+ - It is not what happens that determines the major part of your future. What happens, happens to us all. It is what you do about what happens that counts.
+ - It’s not what happens, it’s what you do that determines your future.
+ - Don’t start your day until you have it finished on paper first.
+ - Always do more than what you get paid for. It makes you a valuable person.
+ - Don’t ask for security, ask for adventure. Better to live 30 years full of adventure than a 100 years safe in the corner.
+ - Searching and learning is where the miracle process all begins.
+ - We are affected by what we know so get the information. Don’t be lazy in learning.
+ - By working hard, you get to play hard guilt-free.
+ - I used to say, “I sure hope things will change.” Then I learned that the only way things are going to change for me is when I change.
+ - It is the set of the sails, not the direction of the wind that determines which way we will go.
+ - The most important question to ask on the job is not ‘What am I getting?’ The most important question to ask on the job is ‘What am I becoming?’
+ - None of us is smarter than all of us.
+ - To become financially independent you must turn part of your income into capital; turn capital into enterprise; turn enterprise into profit; turn profit into investment; and turn investment into financial independence.
+ - You want to set a goal that is big enough that in the process of achieveing it you become someone worth becoming.
+ - The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place.
+ - Be fascinated instead of frustrated.
+ - On any one day you can massively change the direction of your life.
+ - The twin killers of success are impatience and greed.
+ - If you want to be a leader who attracts quality people, the key is to become a person of quality yourself.
+ - Be a student, not a follower. Take interest in what someone says, then debate it, ponder it, and consider it from all angles.
+ - Never begin the day until it is finished on paper.
+ - The most important question to ask is “What am I becoming?”
+ - When you work, work. When you play, play. Don’t mix the two.
+ - Selling is a person-to-person business. You cannot send the sales manual out to make the sale. Sales manuals have no legs and no voice.
+ - Sales people should take lessons from their kids. What does the word ‘no’ mean to a child? Almost nothing.
+ - Good people are not trained, they are found. If you are training too much, you may not have the right people.
+ - Success is 20% skills and 80% strategy.
+ - The worst kind of arrogance is arrogance from ignorance.
+ - You are what you are today because of the choices you made in the past.
+ - If two or three agree on a common purpose, nothing is impossible.
+ - Love is much deeper than a feeling. Love is a commitment we make to people to always treat that person right and honorably.
+ - Education must precede motivation.
+ - Economic disaster begins with a philosophy of doing less and wanting more.
+ - It doesn’t matter which side of the fence you get off on sometimes. What matters most is getting off. You cannot make progress without making decisions.
+ - Some things you have to do every day. Eating about seven apples on Saturday night instead of one a day just isn’t going to get the job done.
+ - Good people are found not changed. They can change themselves, but you can’t change them. You want good people, you have to find them. If you want motivated people, you have to find them, not motivate them.
+ - Set goals not for the outcome itself, but for who you get to become in the process.
+ - Even if you are new in sales, you can make up in numbers what you lack in skills.
+ - Nothing teaches character better than generosity.
+ - Be a collector of good ideas. Keep a journal. If you hear a good idea, capture it, write it down. Don’t trust your memory.
+ - Success is steady progress toward one’s personal goals.
+ - If it’s raining you can’t fix the roof, if it’s not raining it doesn’t need to be fixed.
+ - There are only 3 colors, 10 digits, and 7 notes; its what we do with them that’s important.
+ - Results, are the name of the game...
+ - Our emotions need to be as educated as our intellect. It is important to know how to feel, how to respond, and how to let life in so that it can touch you.
+ - The problem with waiting until tomorrow is that when it finally arrives, it is called today.
+ - If you spend five minutes complaining, you have just wasted five minutes.
+ - You must learn to discipline your disappointment.
+ - We must not mistake kindness for weakness. Kindness isn’t weak. Kindness is a certain type of strength.
+ - Walk away from the 97% crowd. Don’t use their excuses. Take charge of your own life.
+ - Learn how to turn frustration into fascination. You will learn more being fascinated by life than you will by being frustrated by it.
+ - Civilization is the intelligent management of human emotions.
+ - There is no greater leadership challenge than parenting.
+ - You must get good at one of two things; planting in the spring or begging in the fall.
+ - The goal of effective communication should be for listeners to say, ‘Me, too!’ versus ‘So what?’
+ - Make measurable progress in reasonable time.
+ - What you don’t know will hurt you.
+ - The difference between being ordinary and extraordinary is doing the right thing while nobody is watching.
+ - Things don’t just happen; things happen just.
+ - Something will master and something will serve. Either you run the day or the day runs you; either you run the business or the business runs you.
+ - You can change all things for the better when you change yourself for the better.
+ - On the way to work, concentrate on the way – not the work.
+ - Always be willing to look at both sides of the argument. Understanding the other side is the best way to strengthen your own.
+ - Your family and your love must be cultivated like a garden. Time, effort, and imagination must be summoned constantly to keep any relationship flourishing and growing.
+ - Success is 20% skills and 80% strategy. You might know how to read, but more importantly, what’s your plan to read?
+ - We get paid for bringing value to the market place.
+ - A good objective of leadership is to help those who are doing poorly to do well and to help those who are doing well to do even better.
+ - Learn how to say no. Don’t let your mouth overload your back.
+ - Welcome all experiences. You never know which one is gong to turn everything on.
+ - You don’t have to change that much for it to make a great deal of difference. A few simple disciplines can have a major impact on how your life works out in the next 90 days, let alone in the next 12 months or the next 3 years.
+ - Learning the art of expressing gratitude will force you to focus on the positive.
+ - Learn to get excited like a child. There is nothing that has more magic than childish excitement.
+ - It is our philosophical set of the sail that determines the course of our lives. To change our current Direction, we have to change our philosophy, not our circumstances.
+ - It takes time to build a corporate work of art. It takes time to build a life. And it takes time to develop and grow. So give yourself, your enterprise, and your family the time they deserve and the time they require.
+ - Learn to express, not impress.
+ - Achievers have a can-do attitude that sets them apart from mere dreamers. Achievers are sold out to success-no matter the obstacles-and they are willing to put forth the effort and pay the price of success.
+ - Give whatever you are doing and whoever you are with the gift of your attention.
+ - Don’t take the casual approach to life. Casualness leads to casualties.
+ - Disgust and resolve are two of the great emotions that lead to change.
+ - Whatever you do not employ, you forfeit.
+ - Sincerity is not a test of truth. We must not make this mistake: He must be right; he’s so sincere. Because, it is possible to be sincerely wrong. We can only judge truth by truth and sincerity by sincerity.
+ - Whether you stay six weeks, six months or six years, always leave it better than you found it.
+ - Philosophy is the sum total of all that you know and what you decide is valuable.
+ - We must learn to help those who deserve it, not just those who need it. Life responds to deserve not need.
+ - Real persuasion comes from putting more of you into everything you say. Words have an effect. Words loaded with emotion have a powerful effect.
+ - Reasons come first. Answers come second.
+ - Live a life that will help others spiritually, intellectually, physically, financially and relationally. Live a life that serves as a example of what an exceptional life can look like.
+ - The goal of an effective leader is to recondition your team to be solution focused rather than problem focused.
+ - The key factor that will determine your financial future is not the economy; the key factor is your philosophy.
+ - It’s important to learn from your mistakes, but it is BETTER to learn from other people’s mistakes, and it is BEST to learn from other people’s successes. It accelerates your own success.
+ - Your income is directly related to your philosophy, NOT the economy.
+ - There are always a half-dozen things that make 80%of the difference. Only SIX things!
+ - Education doesn’t cease when you leave college or leave the university. Education is a lifetime process.
+ - Wherever you are, be there. Lifestyle is not something we do; it is something we experience. And until we learn to be there, we will never master the art of living well.
+ - When the why gets stronger, the how gets easier.
+ - Sharing makes you bigger than you are. The more you pour out, the more life will be able to pour in.
+ - The soil says, don’t bring me your need, bring me your seed.
+ - Change and everything will change for you.
+ - For things to change, you have to change. For things to be different, you have to be different. Before financial success can occur personal growth must occur.
+ - Everything you need is within reach, the key is whose going to reach.
+ - When confronted with iron-will determination, I can see Time, Fate and Circumstance calling a hasty conference and deciding, We might as well let him have his dream. He’s said he’s going to get there or die trying.
+ - Take advantage of every opportunity to practice your communication skills so that when important occasions arise, you will have the gift, the style, the sharpness, the clarity, and the emotions to affect other people.
+ - Faith is the ability to see things that don’t yet exist. Faith, though, can turn difficulty into reality, positive reality.
+ - Don’t waste your time trying to turn ducks into eagles. Hire people who already have the motivation and drive to be eagles and then just let them soar.
+ - Getting and becoming are siamese twins. If you want more than you have, you have to become more than you are.
+ - Happiness doesn’t come from big pieces of great success, but from small advantages hammered out day by day.
+ - All good men and women must take responsibility to create legacies that will take the next generation to a level we could only imagine.
+ - Lifestyle is not an amount; it’s a practice.
+ - When the promise is clear, the price gets easy.
+ - At the end of each day, you should play back the tapes of your performance. The results should either applaud you or prod you.
+ - A life worth living is a life worth recording.
+ - Don’t say, “If I could, I would.” Say, “If I can, I will.”
+ - Whoever renders service to many puts himself in line for greatness – great wealth, great return, great satisfaction, great reputation, and great joy.
+ - Finding is reserved for the searchers, we don’t find what we need, we find what we search for.
+ - Be like a sponge when it comes to each new experience. If you want to be able to express it well, you must first be able to absorb it well.
+ - Your ability will grow to match your dreams.
+ - You need courage to be creative. You need the courage to see things differently, courage to go against the crowd, courage to take a different approach, courage to stand alone, if you have to, courage to choose activity over inactivity.
+ - Attitude is greatly shaped by influence and association.
+ - Don’t sell out your virtue and your value for something you think you want. Judas got the money, but he threw it all away and hung himself because he was so unhappy with himself.
+ - Life responds to deserve and not to need.
+ - Fascination is one step beyond interest. Interested people want to know if it works. Fascinated people want to learn how it works.
+ - The best time to set up a new discipline is when the idea is strong.
+ - The major value of reaching goals is not to acquire it, but it’s the person you become while you’re working to acquire it.
+ - Never mistake the power of influence.
+ - I remember saying to my mentor, ‘If I had more money, I would have a better plan.’ He quickly responded, ‘I would suggest that if you had a better plan, you would have more money.’ You see, it’s not the amount that counts; it’s the plan that counts.
+ - To attract attractive people, you must be attractive. To attract powerful people, you must be powerful. To attract committed people, you must be committed. Instead of going to work on them, you go to work on yourself. If you become, you can attract.
+ - Remind yourself that you’re bound to get better. Don’t get down on yourself. Don’t beat yourself up. It’s the next opportunity that matters, not the last one.
+ - Ambitious people know that everything they do and every discipline they adhere to, form the links in the chain of events that will lead them to their final destination.
+ - Happiness is the art of learning how to get joy from your substance.
+ - Success is a refined study of the obvious.
+ - No one else ‘makes us angry.’ We make ourselves angry when we surrender control of our attitude. What someone else may have done is irrelevant. We choose, not they. They merely put our attitude to a test.
+ - For effective communication, use brevity. Jesus said, ‘Follow me.’ Now that’s brief! He could be brief because of all that he was that he didn’t have to say.
+ - Any day we wish; we can start the process of life change.
+ - We must all wage an intense, lifelong battle against the constant downward pull. If we relax, the bugs and weeds of negativity will move into the garden and take away everything of value.
+ - The fact is that living the life of your dreams is possible. People prove that every day. Someone somewhere is going to get rich, get healthy and improve their life. My recommendation is this: Let it be you.
+ - The millionaire says to a thousand people, ‘I read this book and it started me on the road to wealth.’ Guess how many go out and get the book? Very few. Isn’t that incredible? Why wouldn’t everyone get the book?!
+ - There are two ways to face the future. One way is with apprehension; the other is with anticipation.
+ - To attract attractive people, you must be attractive.
+ - One way to learn to do something right is to do something wrong. Failure must teach us, or surely success will not reward us.
+ - Your paycheck is not your employer’s responsibility, it’s your responsibility. Your employer has no control over your value, but you do.
+ - Nothing is more burdensome than an unfinished task.
+ - If someone is going down the wrong road, he doesn’t need motivation to speed him up. What he needs is education to turn him around.
+ - The major reason for setting a goal is for what it makes of you to accomplish it. What it makes of you will always be the far greater value than what you get.
+ - Sophistication and lifestyle is understanding the difference between trinkets and treasures.
+ - You’ve got to believe in the possibilities. You’ve got to believe that tomorrow can be better than today. And here’s the big one. Believe in yourself.
+ - Ideas can be life-changing. Sometimes all you need to open the door is just one more good idea.
+ - In order to achieve goals you have not achieved before you have to become someone you haven’t been before.
+ - Maturity is the ability to reap without apology and not complain when things don’t go well.
+ - Let the views of others educate and inform you, but let your decisions be a product of your own conclusions.
+ - The greatest form of maturity is at harvest time. This is when we must learn how to reap without complaint if the amounts are small and how to reap without apology if the amounts are big.
+ - Kids don’t lack capacity, only teachers.
+ - All of life is a risk; in fact we’re not going to get out alive. Casualness leads to casualties. Communication is the ability to affect other people with words.
+ - Don’t take the casual approach to life. Casualness leads to casualties. Seek out the mentors that you need that will lead you to greatness in your field. If you’re not willing to learn from others, who are you willing to learn from?
+ - The great gift of the human imagination is that it has no limits or ending.
+ - If you share a good idea long enough, it will eventually fall on good people.
+ - Emotions will either serve or master, depending on who is in charge.
+ - I find it fascinating that most people plan their vacation with better care than they do their lives. Perhaps that is because escape is easier than change.
+ - Give so much to the improvement of yourself, that you don’t have time to criticize others.
+ - Seek other people’s advice, but don’t take orders. And don’t take 100% of anyone’s advice. Make sure every decision you make is a product of your own conclusion. Be a student, not a disciple.
+ - If you wish to find, you must search. Rarely does a good idea interrupt you.
+ - If you do something often enough, a ratio will appear.
+ - Leaders must not be naive. I used to say, “Liars shouldn’t lie.” What a sad waste of words that is! I found out liars are supposed to lie. That’s why we call them liars – they lie! What else would you expect them to do?
+ - Nourish the mind like you would your body. The mind cannot survive on junk food.
+ - An enterprising person is one who sees opportunity in all areas of life.
+ - Don’t use your mind for a filing cabinet. Use your mind to work out problems and find answers; file away good ideas in your journal.
+ - To make progress you must actually get started. The key is to take a step today.
+ - Don’t live in the past and don’t carry the past around like a burden.
+ - Part of success is preparation on purpose.
+ - When somebody shares, everybody wins.
+ - Often, the most extraordinary opportunities are hidden among the seemingly insignificant events of life. If we do not pay attention to these events, we can easily miss the opportunities.
+ - Decision making can sometimes seem like inner civil war.
+ - Beware of those who seek to take care of you lest your caretakers become your jailers.
+ - Just a few daily disciplines make a big difference.
+ - We must risk going too far to discover just how far we can go.
+ - We must remind ourselves that to do what is possible we must sometimes challenge ourselves with the impossible.
+ - Life operates by deserve. So, in leading people, learn to work with the people who deserve it, not the people who need it.
+ - If you spend five minutes complaining, you have just wasted five minutes. If you continue complaining, it won’t be long before they haul you out to a financial desert and there let you choke on the dust of your own regret.
+ - To lead others is to help them change their thoughts, beliefs and actions for the better.
+ - If you rest too long the weeds take the garden.
+ - We need to give thought, but we also need to take action. You need to dream without just being a dreamer.
+ - Discipline has within it the potential for creating future miracles.
+ - Never attack a problem without also presenting a solution.
+ - Don’t ask for life to be easy. Ask for it to be worth it.
+ - Don’t read a book and be a follower; read a book and be a student.
+ - Keep the weeds of negative influence from your life. ‘Farm’ the seeds of constructive influence.
+ - The best place to solve a problem is on paper.
+ - To solve any problem, here are three questions to ask yourself: First, what could I do? Second, what could I read? And third, who could I ask?
+ - Use your past as one of your mentors.
+ - Average people look for ways of getting away with it; successful people look for ways of getting on with it.
+ - Beware of the thief on the street that’s after your purse. But also beware of the thief in your mind that’s after your promise.
+ - Pull your boots up by the bootstrap and know that everything is temporary. All good moments are temporary and all bad moments are temporary. Nothing lasts forever.
+ - Most people are just trying to get through the day. Sophisticated people learn how to get from the day.
+ - There are two parts to influence: First, influence is powerful; and second, influence is subtle. You wouldn’t let someone push you off course, but you might let someone nudge you off course and not even realize it.
+ - We must be careful not to let our current appetites steal away any chance we might have for a future feast.
+ - We all need lots of powerful long range goals to help us past the short-term obstacles.
+ - Be a collector of good ideas, but don’t trust your memory. The best collecting place for all of the ideas and information that comes your way is your journal.
+ - Don’t become a victim of yourself. Forget about the thief waiting in the alley; what about the thief in your mind?
+ - You cannot succeed by yourself. It’s hard to find a rich hermit.
+ - The miracle of the seed and the soil is not available by affirmation; it is only available by labor.
+ - If I could just get to Poland everything would be okay.
+ - For economic safety for the future, you must have multiple skills and languages. Success is basically being the best that you can be.
+ - My suggestion would be to walk away from the 90% who don’t and join the 10% who do.
+ - There are no new fundamentals. You’ve got to be a little suspicious of someone who says, “I’ve got a new fundamental.” That’s like someone inviting you to tour a factory where they are manufacturing antiques.
+ - With the right attitude, human beings can move mountains. With the wrong attitude, they can be crushed by the smallest grain of sand.
+ - Make sure the outside of you is a good reflection of the inside of you.
+ - Without constant activity, the threats of life will soon overwhelm the values.
+ - You can cut down a tree with a hammer, but it takes about 30 days. If you trade the hammer for an ax, you can cut it down in about 30 minutes. The difference between 30 days and 30 minutes is skills.
+ - Showing a profit means touching something and leaving it better than you found it.
+ - Count the cost first. Don’t pay too big a price for pursuing minor values.
+ - The same wall that keeps out your disappointment also keeps out the sunlight of enriching experiences. So let life touch you. The next touch could be the one that turns your life around.
+ - Money is usually attracted, not pursued.
+ - If you say something and back it up with your actions, you will provide the ‘proof’ for people who are listening to you, and they will much more willingly follow your lead.
+ - Neglect starts out as an infection then becomes a disease.
+ - The best advice I ever came across on the subject of concentration is: Wherever you are, be there.
+ - How many languages can a child learn? As many as you will take the time to teach them.
+ - Success lies in the opposite direction of the normal pull.
+ - People let little things cheat them out of big opportunities.
+ - Attitude is your acceptance of the natural laws, or your rejection of the natural laws.
+ - Sometimes you need to stay in touch but be out of reach.
+ - Attitude determines choice, and choice determines results. All that we are, and all that we can become has indeed been left unto us.
+ - It’s not getting the million that’s important, it’s what it makes of you to achieve becoming a MILLIONAIRE.
+ - We could all use a little coaching. When you’re playing the game, it’s hard to think of everything.
+ - Never begrudge the money you spend on your own education.
+ - Ambition is at the very core of success and extraordinary achievement. Unlike greed, it’s a powerful, creative and constructive force.
+ - Find someone who is willing to share the truth with you.
+ - There is something magical about putting a problem in writing. It is almost as though by writing about what is wrong, you start to discover new ways of making it right.
+ - Don’t mistake movement for achievement.
+ - Humility is a virtue; timidity is an illness.
+ - You only have to solve two problems when going to the moon: first, how to get there; and second, how to get back. The key is don’t leave until you have solved both problems.
+ - Human beings are the only creatures who have the ability to write down their goals and design their future. And here is why most of us don’t. We’re trapped either by regret of the past or the routine of the present.
+ - Learn to help people with more than just their jobs: help them with their lives.
+ - Asking is the beginning of receiving...
+ - Take advice, but not orders. Only give yourself orders. Abraham Lincoln once said, ‘Since I will be no one’s slave, I will be no one’s master.’
+ - If you go to work on your goals, your goals will go to work on you.
+ - Measure your emotions. You don’t need an atomic explosion for a minor point.
+ - Better understated than overstated. Let people be surprised that it was more than you promised and easier than you said.
+ - Until we have finally accepted the fact that there is nothing we can do to change the past, our feelings of regret and remorse and bitterness will prevent us from designing a better future with the opportunity that is before us today.
+ - We are not born with courage, but neither are we born with fear.
+ - Develop a childlike fascination with life and people.
+ - If someone hands you a million dollars, best you become a millionaire, or you won’t get to keep the money.
+ - The enemies inside us: Indifference, Indecision, Doubt, Worry, and Over-caution.
+ - We’ve all heard the expression, ‘An apple a day keeps the doctor away.’ Well, I’ve got a good question for you: What if it’s true? Wouldn’t that be easy to do-to eat an apple a day? Here’s the problem: It’s also easy not to do.
+ - God has the tough end of the deal. What if instead of planting the seed you had to make the tree? That would keep you up late at night, trying to figure that one out.
+ - Make rest a necessity, not an objective. Only rest long enough to gather strength.
+ - The only constant factor in life is our feelings and attitudes toward life. One of the few things that we have total control over is our own attitude.
+ - Human beings have the remarkable ability to turn nothing into something. They can turn weeds into gardens and pennies into fortunes.
+ - The smallest of disciplines, practiced every day, start an incredible process that can change our lives forever.
+ - We must learn to apply all that we know so that we can attract all that we want.
+ - Look at each day as a chance to invest life into life. A chance to share your experience and deposit it into someone else’s conscience. Each day is a chance to work miracles in the lives of others.
+ - You cannot take the mild approach to the weeds in your mental garden. You have got to hate weeds enough to kill them. Weeds are not something you handle; weeds are something you devastate.
+ - All disciplines affect each other. Mistakenly the man says, ‘This is the only area where I let down.’ Not true. Every let down affects the rest. Not to think so is naive.
+ - Here’s the major problem with going on strike for more money: You cannot get rich by demand!
+ - Every time we speak, we choose and use one of four basic communication styles: assertive, aggressive, passive and passive-aggressive.
+ - The least lack of discipline starts to erode our self-esteem.
+ - Get around people who have something of value to share with you. Their impact will continue to have a significant effect on your life long after they have departed.
+ - As a leader you should always start with where people are before you try to take them to where you want them to go.
+ - When the record book on you is finished, let it show your wins and losses. But don’t let it show you didn’t try.
+ - Once you have seen and felt your ideal future, you will be ready and able to pay any price to get there.
+ - To get to where you want to be in the next 5 years, you are either reading the right books or you’re not.
+ - If you learn to set a good sail, the wind that blows will always take you to the dreams you want, the income you want, and the treasures of mind, purse, and soul you want.
+ - What you become directly influences what you get.
+ - Life is brief, even at its longest. Whatever you are going to do with your life, get at it. All good will be attacked. All values must be defended. In all areas of the human existence, what we put into this world, we get back from it.
+ - We can no longer afford to spend major time on minor things than spend minor time on major things.
+ - Well chosen words mixed with measured emotions is the basis of affecting people.
+ - Simply making consistent investments in our self-education and knowledge banks pays major dividends throughout our lives.
+ - If you want to amend your errors, you must begin by amending your philosophy.
+ - Knowledge fueled by emotion equals action.
+ - Learn to get from the day. Not just get through it, get from it. Soak it up. Each day is a piece of the mosaic of your life.
+ - Time is the best kept secret of the rich.
+ - Adopt the attitude that everything is negotiable. A world of opportunity will greet you.
+ - The subtle difference in our attitude can make a major difference in our future. It can be as simple as the language we use.
+ - The worst days of those who enjoy what they do are better than the best days of those who don’t.
+ - It only takes one lie to taint your entire testimony.
+ - Life is a unique combination of “want to” and “how to” and we need to give equal attention to both.
+ - Ideas are information taking shape.
+ - How much should you earn? As much as you possibly can. It doesn’t matter whether you earn $10,000 a year or $100,000 a year as long as you’ve done the best you can.
+ - The attitude of other people affects each of us and the attitude of each of us has the capacity to affect all of us.
+ - Lifestyle is the art of discovering ways to live uniquely.
+ - The question is not whether the formula for success will work, but rather whether the person will work the formula.
+ - Don’t just let your business or your job make something for you; let it make something of you.
+ - One of the best places to start to turn your life around is by doing whatever appears on your mental “I should” list.
+ - Some teachers teach for others to learn. That’s not me. Some teachers teach for others to accomplish. That is me.
+ - You cannot speak that which you do not know. You cannot share that which you do not feel. You cannot translate that which you do not have.
+ - We need a variety of input and influence and voices. You cannot get all the answers to life and business from one person or from one source.
+ - There is no shortage of opportunity. There is only a shortage of those who will apply themselves to the basics that success requires.
+ - There is no better opportunity to receive more than to be thankful for what you already have. Thanksgiving opens the windows of opportunity for ideas to flow your way.
+ - Don’t borrow someone else’s plan. Develop your own philosophy and it will lead you to unique places.
+ - Don’t bring your need to the marketplace, bring your skill. If you don’t feel well, tell your doctor, but not the marketplace. If you need money, go to the bank, but not the marketplace.
+ - If there is one thing to get excited about, it’s your ability to turn the negative into success.
+ - The reason most people don’t accomplish much is because they don’t want much.
+ - Don’t set your goals too low. If you don’t need much, you won’t become much.
+ - Take advice, but not orders. Only give yourself orders.
+ - Nothing is more powerful for your future than being a gatherer of good ideas and information. That’s called doing your homework.
+ - Here’s one problem with drifting: you can’t drift your way to the top of the mountain.
+ - Here’s what is exciting about sharing ideas with others: If you share a new idea with ten people, they get to hear it once and you get to hear it ten times.
+ - Don’t spend most of your time on the voices that don’t count. Tune out the shallow voices so that you will have more time to tune in the valuable ones.
+ - The two great words of antiquity are behold and beware. Behold the possibilities and beware the temptations.
+ - You may not be able to do all you find out, but make sure you find out all you can do.
+ - One of the reasons many people don’t have what they want is neglect. Neglect starts out as an infection and then develops into a disease.
+ - Don’t leave a ‘good time’ to chance. Experiences have to be woven with care and planning, like a tapestry.
+ - Words enable us to transfer our thoughts from inside our own mind into the mind of another. They have the power to alter history, to describe the past, and to bring meaning and substance to the present.
+ - The Bible says that it is hard for a rich man to enter into the kingdom of heaven. It doesn’t say that it is impossible!
+ - Wealth is not a matter of intelligence, it’s a matter of inspiration.
+ - Women have an incredible ability to pick up on emotional signals. For example, there are some wolves that are so clever they have learned to dress up like sheep. Man says, “Looks like a sheep. Talks like a sheep.” Woman says, “Ain’t no sheep!”
+ - Take time to gather up the past so that you will be able to draw from your experience and invest them in the future.
+ - Life is a process of accumulation. We either accumulate the debt or the value, the regret or the equity.
+ - The real problem is usually two or three questions deep. If you want to go after someone’s problem, be aware that most people aren’t going to reveal what the real problem is after the first question.
+ - Pay attention. Don’t just stagger through the day.
+ - Character isn’t something you were born with and can’t change, like your fingerprints. It’s something you weren’t born with and must take responsibility for forming.
+ - Don’t blow your own horn, or you might just miss the music.
+ - One of the amazing things we have been given as humans is the unquenchable desire to have dreams of a better life, and the ability to establish goals to live out those dreams.
+ - How sad to see a father with money and no joy. The man studied economics, but never studied happiness.
+ - Life is worthwhile if you try. It doesn’t mean you can do everything but there are a lot of things you can do, if you just try.
+ - We need to teach our children how to debate the major life issues. Debate strengthens their beliefs and enables them to defend themselves against ideologies that are going to come their way.
+ - Leaders, whether in the family, in business, in government, or in education, must not allow themselves to mistake intentions for accomplishments .
+ - Someone once said to me that success isn’t everything and I think I know what they really meant. I believe what they really meant was that money wasn’t everything and I certainly agree with that. But I do believe that success IS everything.
+ - One of the early signs of sophistication is not giving way to all inclinations but rather sending your emotions to school so they will learn how to behave.
+ - A pessimist doesn’t see the sunset outside, he sees the dirt on the window.
+ - There is nothing more pitiful than a ready and willing mind but an incapable body.
+ - Purpose is stronger than object.
+ - Let others lead small lives, but not you.
+ - The reason why most people face the future with apprehension instead of anticipation is because they don’t have it well designed!
+ - Fears, even the most basic ones, can totally destroy our ambitions. Fear, if left unchecked, can destroy our lives. Fear is one of the many enemies lurking inside us.
+ - Leaders must understand that some people will inevitably sell out to the evil side. Don’t waste your time wondering why; spend your time discovering who.
+ - It only takes one lie to taint your entire testimony in a court of law. Honesty is a vital part of having a good reputation.
+ - Self-preservation has a tendency to lead to poverty.
+ - We must teach our children not to spend their money a dollar at a time. If you spend your dollar at a time, you’ll wind up with trinkets instead of treasures.
+ - Be sensitive to the plight of others. You have to know about the tragedies as well as the triumphs, the failures as well as the success.
+ - What you have at the moment you have attracted by the person you have become.
+ - Some people take better care of their pets than they do themselves. Their animals can run like the wind and they can barely make it up a flight of stairs.
+ - It’s too bad failures don’t give seminars. Wouldn’t that be valuable? If you meet a guy who has messed up his life for forty years, you’ve just got to say, ‘John, if I bring my journal and promise to take good notes, would you spend a day with me?’
+ - Earn as much money as you possibly can and as quickly as you can. The sooner you get money out of the way, the sooner you will be able to get to the rest of your problems in style.
+ - Choose action, not rest. Choose the good in life in all things, and choose the opportunity as well as the chance to work when springtime smiles on your face.
+ - Network marketing is really the greatest source of grass-roots capitalism, because it teaches people how to take a small bit of capital, that is your time, and build the American dream.
+ - Goals are like a magnet – they pull. And the stronger they are, the more purposeful they are, the bigger they are, the more unique they are, the stronger they pull.
+ - Leaders must learn to discipline their disappointments. It’s not what happens to us, it is what we choose to do about what happens that makes the difference in how our lives turn out.
+ - Don’t join an easy crowd; you won’t grow.
+ - Let others leave their future in someone else’s hands, but not you.
+ - Show your contempt for the problem and your concern for the person.
+ - If you depend on your company to take care of your retirement, your future income will be divided by five. Take care of it yourself, and you can multiply your future income by five.
+
+500 quotes

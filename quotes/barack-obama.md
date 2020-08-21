@@ -1,0 +1,502 @@
+ - Yes We Can!
+ - Never give up on your dreams.
+ - Change will not come if we wait for some other person, or if we wait for some other time. We are the ones we've been waiting for. We are the change that we seek.
+ - There is no excuse for not trying.
+ - Change is never easy, but always possible.
+ - The best way to not feel hopeless is to get up and do something. Don’t wait for good things to happen to you. If you go out and make some good things happen, you will fill the world with hope, you will fill yourself with hope.
+ - If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
+ - Excuses are tools of the incompetent used to build bridges to nowhere and monuments of nothingness.
+ - We did not come to fear the future. We came here to shape it.
+ - Our stories may be singular, but our destination is shared.
+ - Focusing your life solely on making a buck shows a certain poverty of ambition. It asks too little of yourself. Because it's only when you hitch your wagon to something larger than yourself that you realize your true potential.
+ - Nothing can stand in the way of the power of millions of voices calling for change.
+ - Empathy is a quality of character that can change the world.
+ - We are running out of time.
+ - Your voice can change the world.
+ - Hope – Hope in the face of difficulty. Hope in the face of uncertainty. The audacity of hope!
+ - Keep exploring. Keep dreaming. Keep asking why. Don’t settle for what you already know. Never stop believing in the power of your ideas, your imagination, your hard work to change the world.
+ - I wish the country had fewer lawyers and more engineers.
+ - Literacy is the most basic currency of the knowledge economy.
+ - We don't ask you to believe in our ability to bring change, rather, we ask you to believe in yours.
+ - We don’t have time for a meeting of the Flat Earth Society.
+ - My identity might begin with the fact of my race, but it didn't, couldn't end there. At least that's what I would choose to believe.
+ - For the world has changed, and we must change with it.
+ - Our destiny is not written for us, but by us.
+ - The future belongs to young people with an education and the imagination to create.
+ - The future is ours to win. But to get there we can’t just stand still...
+ - In the unlikely story that is America, there has never been anything false about hope.
+ - Nothing in life that’s worth anything is easy.
+ - Yes, we can. Yes, we can change. Yes, we can.
+ - The future rewards those who press on. I don’t have time to feel sorry for myself. I don’t have time to complain. I’m going to press on.
+ - If the people cannot trust their government to do the job for which it exists – to protect them and to promote their common welfare – all else is lost.
+ - We remember, we rebuild, we come back stronger.
+ - Reading is important. If you know how to read then the whole world opens up to you.
+ - We don’t turn back. We leave no one behind. We pull each other up.
+ - There's not a liberal America and a conservative America - there's the United States of America.
+ - Reading is the gateway skill that makes all other learning possible.
+ - What Washington needs is adult supervision.
+ - Don’t just consume things, create things.
+ - Where you are right now doesn’t have to determine where you’ll end up.
+ - Don’t just get involved. Fight for your seat at the table. Better yet, fight for a seat at the head of the table.
+ - Persevere. Nothing worthwhile is easy.
+ - One voice can change a room, and if one voice can change a room, then it can change a city, and if it can change a city, it can change a state, and if it change a state, it can change a nation, and if it can change a nation, it can change the world. Your voice can change the world.
+ - We have a choice. We can shape our future, or let events shape it for us. And if we want to succeed, we can’t fall back on the stale debates and old divides that won’t move us forward.
+ - Learning to stand in somebody else’s shoes, to see through their eyes, that’s how peace begins. And it’s up to you to make that happen. Empathy is a quality of character that can change the world.
+ - The best way to not feel hopeless is to get up and do something.
+ - The arc of the moral universe may bend towards justice, but it doesn’t bend on its own.
+ - Be conscious of God and speak always the truth.
+ - It’s not just enough to change the players. We’ve gotta change the game.
+ - Together, we’re going to finish the job we started.
+ - A change is brought about because ordinary people do extraordinary things.
+ - No one in America should ever be afraid to walk down the street holding the hand of the person they love.
+ - Religious freedom doesn’t mean you can force others to live by your own beliefs.
+ - The easiest way to save money is to waste less energy.
+ - You can’t let your failures define you. You have to let your failures teach you.
+ - Islam has a proud tradition of tolerance.
+ - If you’re a strong man, you should not feel threatened by strong women.
+ - We rise and fall as one people, one nation.
+ - I will listen to you, especially when we disagree.
+ - Love and hope can conquer hate.
+ - When times get tough, we don’t give up. We get up.
+ - If you run you stand a chance of losing, but if you don’t run you’ve already lost.
+ - When ignorant folks want to advertise their ignorance, you don’t really have to do anything, you just let them talk.
+ - A budget is more than just a series of numbers on a page; it is an embodiment of our values.
+ - The flame of the diya, or lamp, reminds us that light will ultimately triumph over darkness.
+ - Every life must be given the chance to realize its full potential – that every life matters.
+ - All people should be treated equally, regardless of who they are or who they love.
+ - We are not entitled to success we have to earn it.
+ - We have to uphold a free press and freedom of speech – because, in the end, lies and misinformation are no match for the truth.
+ - You have to exercise, or at some point you’ll just break down.
+ - The arts are what makes life worth living. You’ve got food, you’ve got shelter, yeah. But the things that make you laugh, make you cry, make you connect – make you love are communicated through the arts. They aren’t extras.
+ - We may have different backgrounds, but we believe in the same dream that says this is a country where anything’s possible. No matter who you are. No matter where you come from.
+ - No challenge poses a greater threat to future generations than climate change.
+ - My fellow Americans, we are and always will be a nation of immigrants. We were strangers once, too.
+ - We have proved that the true strength of our nation comes not from the scale of our wealth but from the power of our ideals – opportunity, democracy, liberty and hope.
+ - The Holy Koran tells us, ‘O mankind! We have created you male and a female; and we have made you into nations and tribes so that you may know one another.’
+ - We are an American family and we rise and fall together as one nation.
+ - Any fool can have a child. That doesn’t make you a father. It’s the courage to raise a child that makes you a father.
+ - No religion is responsible for terrorism. People are responsible for violence and terrorism.
+ - Libraries remind us that truth isn’t about who yells the loudest but who has the right information.
+ - So on this Human Rights Day, let us rededicate ourselves to the advancement of human rights and freedoms for all, and pledge always to live by the ideals we promote to the world.
+ - You can put lipstick on a pig. It’s still a pig.
+ - Nobody cares how tough your upbringing was. Nobody cares if you suffered some discrimination.
+ - I accept that people are going to call me awful things every day, and I will always defend their right to do so.
+ - Our nation owes a debt to its fallen heroes that we can never fully repay, but we can honor their sacrifice.
+ - In the face of impossible odds, people who love this country can change it.
+ - Young men need to show women the respect they deserve and recognize sexual assault and to do their part to stop it.
+ - Every single American – gay, straight, lesbian, bisexual, transgender – every single American deserves to be treated equally in the eyes of the law and in the eyes of our society. It’s a pretty simple proposition.
+ - The role of citizen in our democracy does not end with your vote.
+ - So don’t get cynical. Cynicism didn’t put a man on the moon. Cynicism has never won a war, or cured a disease, or built a business, or fed a young mind. Cynicism is a choice. And hope will always be a better choice.
+ - Weapons of war have no place on our streets.
+ - If there is anyone out there who still doubts that America is a place where all things are possible; who still wonders if the dream of our founders is alive in our time; who still questions the power of our Democracy; Tonight is your answer.
+ - I’m convinced that a world in which girls are educated is a safer, more stable, more prosperous place.
+ - Peace depends upon compromise among peoples who must live together long after our speeches are over, and our votes have been counted.
+ - No party has a monopoly on wisdom. No democracy works without compromise.
+ - We will convey our deep appreciation for the Islamic faith, which has done so much over the centuries to shape the world – including in my own country.
+ - I face the world as it is and cannot stand idle in the face of threats to the American people. For make no mistake, evil does exist in the world.
+ - Associate with men of good quality if you esteem your own reputation.
+ - In our household, the Bible, the Koran and the Bhagavad Gita sat on the shelf alongside books of Greek and Norse and African mythology.
+ - We have got to dispel this myth that bullying is just a normal rite of passage.
+ - My relationship with Silicon Valley and the tech community historically has been really good. Many of these folks are my friends.
+ - But what we can do, as flawed as we are, is still see God in other people, and do our best to help them find their own grace. That’s what I strive to do, that’s what I pray to do every day.
+ - Slowly, but surely, we are moving in the right direction. We’re on the right track. The economy is getting stronger.
+ - The future must not belong to those who bully women. It must be shaped by girls who go to school and those who stand for a world where our daughters can live their dreams just like our sons.
+ - For the sake of our children and our future, we must do more to combat climate change.
+ - Sticking your head in the sand might make you feel safer, but it’s not going to protect you from the coming storm.
+ - We don’t quit. I don’t quit. Let’s seize this moment.
+ - We may come from different places and have different stories, but we share common hopes, and one very American dream.
+ - We have to acknowledge the progress we made, but understand that we still have a long way to go. That things are better, but still not good enough.
+ - A low-carbon, clean energy economy can be an engine of growth for decades to come.
+ - While we breathe, we will hope.
+ - Unless you’re one of the first Americans, a Native American, you came from someplace else. Somebody brought you.
+ - I’m inspired by my own children, how full they make my heart. They make me want to work to make the world a little bit better. And they make me want to be a better man.
+ - The Muslim call to prayer is one of the prettiest sounds on Earth at sunset.
+ - Greatness is never free; it must be earned.
+ - At the moment that we persuade a child, any child, to cross that threshold, that magic threshold into a library, we change their lives forever, for the better.
+ - Above all, children need our unconditional love, whether they succeed or make mistakes; when life is easy and when life is tough.
+ - Do something, Congress. Do anything.
+ - I believe that this country succeeds when everyone gets a fair shot, when everyone does their fair share, when everyone plays by the same rules.
+ - We know that education is everything to our children’s future. We know that they will no longer just compete for good jobs with children from Indiana, but children from India and China and all over the world.
+ - We are reminded that in the fleeting time we have on this Earth, what matters is not wealth or status or power or fame, but rather how well we have Loved and what small part we have played in making the lives of other people better.
+ - Life takes its own turns, makes its own demands, writes its own story, and along the way, we start to realize we are not the author.
+ - The best anti-poverty program is a world-class education.
+ - We long for unity, but are unwilling to pay the price. But of course, true unity cannot be so easily won. It starts with a change in attitudes – a broadening of our minds, and a broadening of our hearts.
+ - Democracy cannot be imposed on any nation from the outside. Each society must search for its own path, and no path is perfect.
+ - We’re all in this together. That’s how we campaigned, and that’s who we are. This happened because of you. Thank you.
+ - Why can’t I just eat my waffle?
+ - One of the best investments we can make in a child’s life is high-quality early education.
+ - Women deserve equal pay for equal work.
+ - When times change, so must we.
+ - We live in a culture that discourages empathy. A culture that too often tells us our principle goal in life is to be rich, thin, young, famous, safe, and entertained.
+ - The terms of peace may be negotiated by political leaders, but the fate of peace is up to each of us.
+ - Hope is the bedrock of this nation. The belief that our destiny will not be written for us, but by us, by all those men and women who are not content to settle for the world as it is, who have the courage to remake the world as it should be.
+ - We need to internalize this idea of excellence. Not many folks spend a lot of time trying to be excellent.
+ - No discrimination, that’s what we’re about as a country.
+ - Don’t just buy a new video game. Make one.
+ - We have an obligation and a responsibility to be investing in our students and our schools. We must make sure that people who have the grades, the desire and the will, but not the money, can still get the best education possible.
+ - The only people who don’t want to disclose the truth are the people with something to hide.
+ - Through words he gave voice to the voiceless. Through deeds he gave courage to the faint of heart.
+ - Money is not the only answer, but it makes a difference.
+ - A child’s course in life should be determined not by the zip code she’s born in, but by the strength of her work ethic and the scope of her dreams.
+ - Empowering women isn’t just the right thing to do – it’s the smart thing to do.
+ - On this day, we gather because we have chosen hope over fear, unity of purpose over conflict and discord.
+ - To restore America’s competitiveness, we must recruit a new generation of science and technology leaders by investing in diversity.
+ - Let me tell your something. I’m from Chicago. I don’t break.
+ - Each of us deserves the freedom to pursue our own version of happiness. No one deserves to be bullied.
+ - Reading makes all other learning possible. We have to get books into our children’s hands early and often.
+ - That is why we fight – in hopes of a day when we no longer need to.
+ - Higher education cannot be a luxury reserved just for a privileged few. It is an economic necessity for every family. And every family should be able to afford it.
+ - There is not a liberal America and a conservative America – there is the United States of America. There is not a black America and a white America and latino America and asian America – there’s the United States of America.
+ - The surest path to success is to surround yourself with brilliant women.
+ - In this new, hyper competitive age, none of us, none of us can afford to be complacent.
+ - We need to teach our kids that it’s not just the winner of the Super Bowl who deserves to be celebrated, but the winner of the science fair...
+ - Our environment is too important to neglect and it’s time for the federal government to focus on real solutions and live up to their promises.
+ - We remain more than a collection of red states and blue states. We are and forever will be the United States of America.
+ - The biggest deficit that we have in our society and in the world right now is an empathy deficit. We are in great need of people being able to stand in somebody else’s shoes and see the world through their eyes.
+ - Democracy demands that the religiously motivated translate their concerns into universal, rather than religion-specific, values.
+ - We must carry forward the work of the women who came before us and ensure out daughters have no limits on their dreams, no obstacles to their achievements and no remaining ceilings to shatter.
+ - Global warming is not just the greatest environmental challenge facing our planet – it is one of our greatest challenges of any kind.
+ - A mother deserves a day off to care for a sick child or sick parent without running into hardship – and you know what, a father does, too. It’s time to do away with workplace policies that belong in a ‘Mad Men’ episode.
+ - We are a nation of laws.
+ - Prosperity without freedom is just another form of poverty.
+ - The sweetest sound I know is the Muslim call to prayer.
+ - I try never to get too high when things are going well. I try never to get too low when things are going poorly. I try to keep an even keel.
+ - Jesus lived a life of peace, love, kindness and forgiveness, during the hustle and bustle of the Christmas season, may we all do our best to follow his example.
+ - I look forward to hosting an Iftar dinner celebrating Ramadan here at the White House later this week, and wish you a blessed month.
+ - I’m determined to disagree with people without being disagreeable. That’s part of the empathy. Empathy doesn’t just extend to cute little kids. You have to have empathy when you’re talking to some guy who doesn’t like black people.
+ - My first job is to say thank you to those who voted me. Those who didn’t, I’m going to get your vote next time.
+ - Turns out I’m really good at killing people. Didn’t know that was gonna be a strong suit of mine.
+ - There’s no straight line to progress.
+ - While freedom is a gift from God, it must be secured by his people here on earth.
+ - The biggest challenge, I think, is always maintaining your moral compass.
+ - Loving this country requires more than singing its praises or avoiding uncomfortable truths. It requires the occasional disruption, the willingness to speak out for what’s right, and shake up the status quo.
+ - No matter how much you’ve done, or how successful you’ve been, there’s always more to do, more to learn, more to achieve.
+ - I will sign a universal health-care bill into law by the end of my first term as president that will cover every American and cut the cost of a typical family’s premium by up to $2,500 a year.
+ - Change doesn’t come from Washington. Change comes to Washington.
+ - Never read Who Moved My Cheese in the workplace when you can read The Joy of Not Working.
+ - For all the cruelty and hardship of our world, we are not mere prisoners of fate. Our actions matter, and can bend history in the direction of justice.
+ - The elevation of appearance over substance, of celebrity over character, of short term gains over lasting achievement displays a poverty of ambition. It distracts you from what’s truly important.
+ - Peace is not merely the absence of visible conflict. Only a just peace based on the inherent rights and dignity of every individual can truly be lasting.
+ - If you work hard. And are responsible. You should be rewarded.
+ - Every single one of you has something you’re good at. Every single one of you has something to offer. And you have a responsibility to yourself to discover what that is. That’s the opportunity an education can provide.
+ - We will respond to the threat of climate change, knowing that the failure to do so would betray our children and future generations.
+ - Libraries have a special role to play in our knowledge economy. Your institutions have been and should be a place where parents and children come to read together and learn together. We should take our kids there more.
+ - No one is exempt from the call to find common ground.
+ - I think perhaps education doesn’t do us much good unless it is mixed with sweat.
+ - We are at a time in our country’s history that inclusive language is better than exclusive language.
+ - Don’t ever let anybody tell you that your efforts don’t matter or that your voice doesn’t count. Don’t ever believe that you can’t make a difference. You have.
+ - Sometimes slow, steady effort is rewarded with justice that arrives like a thunderbolt.
+ - There are values that transcend race or culture, that move us forward, and there’s an obligation for all of us individually as well as collectively to take responsibility to make those values lived.
+ - When all Americans are treated as equal, we are all more free.
+ - I think a basic principle of our Constitution is nobody above the law.
+ - Change we need.
+ - I’m always suspicious of politics dividing people instead of bringing them together.
+ - We may not be able to stop evil in the world, but how we treat one another is entirely up to us.
+ - If we are truly created equal then surely the love we commit to one another must be equal as well.
+ - Money is the original sin in politics and I am not sinless.
+ - The window is closing.
+ - You Can’t Rest on Your Laurels. Your Own Body of Work Is Yet to Come.
+ - I would love to see an America where race is understood in the same way that the ethnic diversity of the white population is understood.
+ - To keep Nigeria ONE, is a task that must be DONE...
+ - The terrorists do not speak for over a billion Muslims who reject their hateful ideology.
+ - It was the call of workers who organized; women who reached for the ballot; a President who chose the moon as our new frontier; and a King who took us to the mountain top and pointed the way to the Promised Land. Yes we can!
+ - The kind of violence, looting, destruction that we saw from a handful of individuals in Baltimore, there’s no excuse for that, that’s not a statement, that’s not politics, that’s not activism, it’s just criminal behavior.
+ - What makes America exceptional are the bonds that hold together the most diverse nation on earth.
+ - Africa is on the move; a new Africa is emerging!
+ - The genius of our founders is that they designed a system of government that can be changed. And we should take heart, because we’ve changed this country before.
+ - California is our biggest economy. California is our biggest agricultural producer. So what happens here matters to every working American.
+ - There was never a promise that race relations in America would be entirely resolved during my presidency or anybody’s presidency. I mean, this has been a running thread – and – and fault line in American life and American politics since its founding.
+ - To break our addiction to oil is one of the greatest challenges that our generation will have to master.
+ - I never understood that line. The point was to inhale. That was the point.
+ - I would not have the Justice Department prosecuting and raiding medical marijuana users. It’s not a good use of our resources.
+ - We should not anticipate that every time countries come together that we are doing some revolutionary thing. Instead of hitting home runs, sometimes we’re going to hit singles.
+ - I can’t really characterize any country, except to say that we work well with a number of our foreign counterparts.
+ - Generally, the Constitution is a charter of negative liberties, says what the states can’t do to you. Says what the federal government can’t do to you. But it doesn’t say what the state or federal government must do on your behalf.
+ - I don’t have time to complain. I’m going to press on.
+ - We lose ourselves when we compromise the very ideals that we fight to defend. And we honor those ideals by upholding them not when it’s easy, but when it is hard.
+ - It took a lot of blood, sweat and tears to get to where we are today, but we have just begun. Today we begin in earnest the work of making sure that the world we leave our children is just a little bit better than the one we inhabit today.
+ - America’s nurses are the beating heart of our medical system.
+ - In a global economy where the most valuable skill you can sell is your knowledge, a good education is no longer just a pathway to opportunity – it is a prerequisite.
+ - We know the battle ahead will be long. But always remember that, no matter what obstacles stand in our way, nothing can stand in the way of the power of millions of voices calling for change.
+ - To those who cling to power through corruption and deceit and the silencing of dissent, know that you are on the wrong side of history; but that we will extend a hand if you are willing to unclench your fist.
+ - Civility also requires relearning how to disagree without being disagreeable. Surely you can question my policies without questioning my faith or, for that matter, my citizenship.
+ - Maybe you could be a great writer – maybe even good enough to write a book or articles in a newspaper – but you might not know it until you write that English paper – that English class paper that’s assigned to you.
+ - Just because we have the best hammer does not mean that every problem is a nail.
+ - This is the moment when we must come together to save this planet. Let us resolve that we will not leave our children a world where the oceans rise and famine spreads and terrible storms devastate our lands.
+ - Don’t shortchange the future, because of fear in the present.
+ - We are greater than the sum of our individual ambitions.
+ - It is time to leave behind the divisive battles of the past. It is time to move forward as one nation.
+ - Mandela’s commitment to democracy was ratified not only by his election, but by his willingness to step down from power.
+ - Africa doesn’t need strongmen, it needs strong institutions.
+ - Someday, our children, and our children’s children, will look at us in the eye and they’ll ask us, did we do all that we could when we had the chance to deal with this problem and leave them a cleaner, safer, more stable world?
+ - If you give up on the idea that your voice can make a difference, then other voices will fill the void.
+ - What is the empathy deficit? The inability of people to stand in other folks shoes. It’s hard to empathize with people who have different values than you.
+ - Good afternoon, everybody-ugh, Jesus, gimme a sec.
+ - The best education I received was working with people in the community on a grassroots basis. Because what it taught me was that ordinary people, when they are working together can do extraordinary things.
+ - Pot had helped, and booze, maybe a little blow when you could afford it.
+ - Scripture tells us to run with endurance the race that is set before us. As we do, may God hold close those who have been taken from us too soon.
+ - Islam is not part of the problem in combating violent extremism – it is an important part of promoting peace.
+ - The journey will be difficult. The road will be long. I face this challenge with profound humility, and knowledge of my own limitations. But I also face it with limitless faith in the capacity of the American people.
+ - I will stand with the Muslims should the political winds shift in an ugly direction.
+ - The cyber world is sort of the Wild, Wild West, and to some degree, we’re asked to be the sheriff.
+ - Being a father is sometimes my hardest but always my most rewarding job. Happy Father’s Day to all the dads out there.
+ - Even when folks are hitting you over the head, you can’t stop marching. Even when they’re turning the hoses on you, you can’t stop.
+ - I miss Saturday morning, rolling out of bed, not shaving, getting into my car with my girls, driving to the supermarket, squeezing the fruit, getting my car washed, taking walks.
+ - You like pie? I like pie.
+ - His peaceful resistance shook the foundations of an empire, exposed the emptiness of a repressive ideology, and proved that moral leadership is more powerful than any weapon.
+ - Right now I would rank Norway as the largest country in the world, I have never seen anything like it.
+ - I think that leadership more than anything is about setting a course and describing a vision for people.
+ - The strongest democracies flourish from frequent and lively debate, but they endure when people of every background and belief find a way to set aside smaller differences in service of a greater purpose.
+ - Foreign Assistance is not an end in itself. The purpose of aid must be to create the conditions where it is no longer needed.
+ - Contrary to the rumors you have heard, I was not born in a manger. I was actually born on Krypton and sent here by my father, Jor-El, to save the planet Earth.
+ - My second piece of advice is to stay global. As the world continues to change and we become more connected to each other, globalization will bring both benefits and disruptions to our lives. But either way, it’s here, and it’s not going away.
+ - I am the eternal optimist. I think that, over time, people respond to civility and – and rational argument.
+ - Because this is a country where everyone deserves the same freedom and opportunities to fulfill their dreams.
+ - Throughout history, Islam has demonstrated through words and deeds the possibilities of religious tolerance and racial equality.
+ - We can’t expect to solve problems if all we do is tear each other down. You can disagree with a certain policy without demonizing the person who espouses it.
+ - We’ve gotta restore the American people’s confidence in the ethics process by ensuring that political self-interest can no longer prevent politicians from enforcing ethics rules.
+ - I think it’s really important to enlarge the issue behind abortion. I have been serving for over two decades and I have seen year in and year out largely the Republicans voting against women’s contraception, family planning.
+ - If we aren’t willing to pay a price for our values, then we should ask ourselves whether we truly believe in them at all.
+ - My powers of empathy, my ability to reach into another’s heart, cannot penetrate the blank stares of those who would murder innocents with abstract, serene satisfaction.
+ - The world doesn’t just revolve around you. There’s a lot of talk in this country about the federal deficit. But I think we should talk more about our empathy deficit.
+ - More than a building that houses books and data, the library represents a window to a larger world, the place where we’ve always come to discover big ideas and profound concepts that help move the American story forward and the human story forward.
+ - Let me be absolutely clear. Israel is a strong friend of Israel’s. It will be a strong friend of Israel’s under a McCain administration. It will be a strong friend of Israel’s under an Obama administration. So that policy is not going to change.
+ - This victory alone is not the change we seek; it is only the chance for us to make that change.
+ - Israel is our friend, that we will assist in their security.
+ - I believe it’s important to be open and honest, especially with your friends.
+ - The soldier ’s courage and sacrifice is full of glory, expressing devotion to country, to cause, to comrades in arms. But war itself is never glorious, and we must never trumpet it as such.
+ - Politics, differences of religion or race, all that fades away when we are confronted with the awesome power of nature, and we’re reminded that all we have is each other.
+ - We cannot meet 21st Century challenges with a 20th Century bureaucracy.
+ - That’s the good thing about being President – I can do whatever I want.
+ - We must educate our children to become like young Egyptian people.
+ - So, let us summon a new spirit of patriotism, of responsibility, where each of us resolves to pitch in and work harder and look over not only ourselves, but each other.
+ - I am very proud of the fact I do not cheat when I’m playing golf.
+ - Constitution is a living document; no strict constructionism.
+ - To those leaders around the globe who seek to sow conflict, or blame their society’s ills on the West – know that your people will judge you on what you can build, not what you destroy.
+ - Cynicism is a sorry kind of wisdom.
+ - Now we’re in the midst of not just advocating for change, not just calling for change – we’re doing the grinding, sometimes frustrating work of delivering change – inch by inch, day by day.
+ - To avoid being mistaken for a sellout, I chose my friends carefully. The more politically active black students. The foreign students. The Chicanos. The Marxist professors and structural feminists and punk-rock performance poets.
+ - The question we ask today is not whether our government is too big or too small, but whether government works.
+ - America, this is our moment. This is our time. Our time to turn the page on the policies of the past. Our time to bring new energy and new ideas to the challenges we face. Our time to offer a new direction for the country we love.
+ - But it will depend on young people like you being open to new ideas and new possibilities. And it will require young people like you never to stereotype or assume the worst about other people.
+ - I am reminded every day of my life, if not by events, then by my wife, that I am not a perfect man.
+ - I believe in evolution, scientific inquiry, and global warming; I believe in free speech, whether politically correct or politically incorrect, and I am suspicious of using government to impose anybody’s religious beliefs -including my own- on nonbelievers.
+ - It should be the power of our vote, not the size of our bank accounts, that drives our democracy.
+ - Become a teacher. Your country needs you.
+ - Let us join together across denominations, religions and cultures to make a habit of empathy and reach out to those most in need. To share the blessings we enjoy and to advance the cause of peace in all corners of our world.
+ - Everybody knows politics is a contact sport.
+ - You can’t always come up with the optimal solution, but you can usually come up with a better solution.
+ - Starting today, we must pick ourselves up, dust ourselves off, and begin again the work of remaking America.
+ - Black children, white children, Latino children. America is becoming more diverse, it’s becoming more tolerant as a consequence there’s more interactions between groups. There are going be tensions that arise.
+ - The path towards sustainable energy sources will be long and sometimes difficult. But America cannot resist this transition, we must lead it.
+ - Their foreign policy is so disjointed, confusing, and chaotic that, really, people need to reexamine those who want to be involved in every war.
+ - Acts of sacrifice and decency without regard to what’s in it for you create a ripple effect. Ones that lift up families and communities, that spread opportunity.
+ - The world is complicated and full of grays, but there’s still truth there to be found.
+ - The War on Drugs has been an utter failure. We need to rethink and decriminalize our marijuana laws.
+ - America’s strong bonds with Israel are well known – this bond is unbreakable.
+ - Climate change constitutes a serious threat to global security, an immediate risk to our national security, and, make no mistake, it will impact how our military defends our country.
+ - We have to all shoulder the responsibility for keeping the planet habitable, or we’re going to suffer the consequences – together.
+ - I wouldn’t be the man I am today without the woman who agreed to marry me 20 years ago.
+ - Ramadan is a celebration of a faith known for great diversity and racial equality.
+ - We can’t wait for Congress to do its job. So where they won’t act, I will.
+ - When people are judged by merit, not connections, then the best and brightest can lead the country, people will work hard, and the entire economy will grow – everyone will benefit and more resources will be available for all, not just select groups.
+ - No one built this country on their own. This nation is great because we built it together.
+ - Instead of giving in to cynicism and division, let’s move forward with the confidence and optimism and unity that define us as a people.
+ - Whatever we once were, we are no longer a Christian nation – at least, not just. We are also a Jewish nation, a Muslim nation, a Buddhist nation, and a Hindu nation, and a nation of nonbelievers.
+ - A man who took history in his hands and bent the arc of the moral universe toward justice.
+ - Now is the time to keep the promise of equal pay for an equal day’s work, because I want my daughters to have exactly the same opportunities as your sons.
+ - I get a thick book full of death, destruction, strife, and chaos. That’s what I take with my morning tea.
+ - The nation that leads the clean energy economy will be the nation that leads the global economy.
+ - If you like your doctor or health care provider, you can keep them. If you like your health care plan, you can keep that too.
+ - This is our first task-caring for our children. It’s our first job. If we don’t get that right, we don’t get anything right. That’s how, as a society, we will be judged.
+ - Our journey is not complete until our gay brothers and sisters are treated like anyone else under the law.
+ - If somebody was sending rockets into my house, where my two daughters sleep at night, I’m going to do everything in my power to stop that, and I would expect Israelis to do the same thing.
+ - We run everything to ground. If you see something, say something. Report your concerns to law enforcement. They will be looked at, they will be reviewed.
+ - My job is to keep my eye on the ball and to stay focused on what can we get done every single day to advance the vision and values that brought me here.
+ - And Joe Biden, thank you for being the best Vice President I could ever hope for.
+ - If you go out and make some things happen, you will fill the world with hope.
+ - We must act, knowing that our work will be imperfect.
+ - We will finish the race.
+ - We know that the nation that goes all-in on innovation today will own the global economy tomorrow. This is an edge America cannot surrender.
+ - Buy health insurance, or go to jail.
+ - My abiding faith in the American people is undiminished. That’s still what drives me every single day.
+ - Lord Bendtner is the best player of all times.
+ - I believe, in the words of Dr. Martin Luther King Jr., that there is such a thing as being too late, and when it comes to climate change, that hour is almost upon us.
+ - This is the moment when we must come together to save this planet.
+ - As a nuclear power – as the only nuclear power to have used a nuclear weapon – the United States has a moral responsibility to act.
+ - Climate change constitutes a serious threat to global security.
+ - One of the things I think I can bring to the presidency is to make government and public service cool again.
+ - I’ve got two daughters and I want to make sure that they have the same opportunities that anybody’s sons have. That’s part of what I’m fighting for as president of the United States.
+ - The world is less violent than it has ever been.
+ - Our combat mission is ending, but our commitment to Iraq’s future is not.
+ - We cannot help but believe that the old hatreds shall someday pass; that the lines of tribe shall soon dissolve; that as the world grows smaller, our common humanity shall reveal itself...
+ - In the end, that’s what this election is about. Do we participate in a politics of cynicism or a politics of hope?
+ - There are few things in life harder to find and more important to keep than love. Well, love and a birth certificate.
+ - I think that the important point is we’ve got to have a president who understands the benefits of free trade but also is going to enforce unfair trade agreements and is going to stand up to other countries.
+ - I’m a strong believer in strong encryption.
+ - It’s important to listen to what scientists have to say, even when it’s inconvenient, especially when it’s inconvenient.
+ - Young people recognize the big challenges that are coming up...
+ - Peace is not merely the absence of visible conflict.
+ - For decades, we’ve been told that it doesn’t make economic sense to switch to renewable energy. Today, that’s no longer true.
+ - Under my plan of a cap and trade system, electricity rates would necessarily skyrocket.
+ - We are a people of improbable hope.
+ - We will not engage in an endless process of negotiations.
+ - Religious concerns ok, if translated into universal values.
+ - Solyndra is a great investment in our future.
+ - We have to think about affirmative action and craft it in such a way where some of our children who are advantaged aren’t getting more favorable treatment than a poor white kid who has struggled more.
+ - We honor those who walked so we could run. We must run so our children soar. And we will not grow weary.
+ - That is the true genius of America-a faith in simple dreams, an insistence on small miracles.
+ - Let’s face it, Fox News, you’ll miss me when I’m gone. It’ll be harder to convince the public that Hillary Clinton was born in Kenya.
+ - Find somebody to be successful for. Raise their hopes. Think of their needs.
+ - My mother was the one constant in my life. When I think about my mom raising me alone when she was 20, and working and paying the bills, and, you know, trying to pursue your own dreams, I think is a feat that is unmatched.
+ - The worst thing that colonialism did was to cloud our view of our past.
+ - It betrays a poverty of ambition if all you think about is what goods you can buy instead of what good you can do.
+ - Anybody gone into Whole Foods lately and see what they charge for arugula? I mean, they’re charging a lot of money for this stuff.
+ - I try to explain to them about the aloha spirit. And it’s that spirit that I am absolutely convinced is what America is looking for right now.
+ - We need fathers to step up, to realize that their job does not end at conception; that what makes you a man is not the ability to have a child but the courage to raise one.
+ - Nowhere is it ordained that history moves in a straight line.
+ - We want everybody to act like adults, quit playing games, realize that it’s not just my way or the highway.
+ - The absence of hope can rot a society from within.
+ - I need you to go out and talk to your friends and talk to your neighbors. I want you to talk to them whether they are independent or whether they are Republican. I want you to argue with them and get in their face.
+ - No one is pro-abortion.
+ - America is an unlikely place – a country built on defiance of the odds; on a belief in the impossible. And I remind you of this because as you set out to live your own stories of success and achievement, it’s now your turn to help keep it this way.
+ - I’ve been struck by how hungry we all are for a different kind of politics. So I’ve spent some time thinking about how I could best advance the cause of change and progress that we so desperately need.
+ - I think when you spread the wealth around it’s good for everybody.
+ - There are very few moments in our lives where we have the privilege to witness history taking place. This is one of those moments. This is one of those times.
+ - It was unknowable then, but so much of the progress that would define the 20th century, on both sides of the Atlantic, came down to the battle for a slice of beach only 6 miles long and 2 miles wide.
+ - I think that I’m a better speechwriter than my speechwriters. I know more about policies on any particular issue than my policy directors. And I’ll tell you right now that I’m gonna think I’m a better political director than my political director.
+ - If there’s even one thing we can do – even one life we can save – we have an obligation to try.
+ - I stand here today humbled by the task before us, grateful for the trust you have bestowed, mindful of the sacrifices borne by our ancestors.
+ - We remain the most prosperous, powerful nation on Earth. Our workers are no less productive than when this crisis began. Our minds are no less inventive, our goods and services no less needed than they were last week or last month or last year.
+ - Women can’t wait for equal pay. And I won’t stop fighting to address this inequality.
+ - Think about it: Iran, Cuba, Venezuela. These countries are tiny compared to the Soviet Union. They don’t pose a serious threat to us the way the Soviet Union posed a threat to us.
+ - Jobs was brave enough to think differently, bold enough to believe he could change the world, and talented enough to do it.
+ - If you don’t have a record to run on, you paint your opponent as someone to run from.
+ - Of all the rocks upon which we build our lives, we are reminded today that family is the most important.
+ - Nobody gets to threaten the full faith and credit of the United States just to extract political concessions.
+ - On Easter or Christmas Day, my mother might drag me to church, just as she dragged me to the Buddhist temple, the Chinese New Year celebration, the Shinto shrine, and ancient Hawaiian burial sites.
+ - A nation cannot prosper long when it favors only the prosperous.
+ - Violence never brings permanent peace. It solves no social problem: it merely creates new and more complicated ones.
+ - I have nothing to hide, I enjoy being myself. I’m not going to change who I am just because it’s Halloween.
+ - In addition to giving our children the science and math skills they need to compete in the new global context, we should also encourage the ability to think creatively that comes from a meaningful arts education.
+ - Peace is not just the absence of war. True peace depends upon creating the opportunity that makes life worth living. And to do that, we must confront the common enemies of human beings: nuclear weapons and poverty; ignorance and disease.
+ - Today, women make up about half our workforce. But they still make 77 cents for every dollar a man earns. That is wrong, and in 2014, it’s an embarrassment. Women deserve equal pay for equal work.
+ - This union may never be perfect, but generation after generation has shown that it can always be perfected.
+ - So I have known Islam on three continents before coming to the region where it was first revealed.
+ - My job is not to represent Washington to you, but to represent you to Washington.
+ - Jerusalem will remain the capital of Israel, and it must remain undivided.
+ - The idea of America endures. Our destiny remains our choice. And tonight, more than two centuries later, it is because of our people that our future is hopeful, our journey goes forward, and the state of our union is strong.
+ - The world must come together to confront climate change. There is little scientific dispute that if we do nothing, we will face more drought, famine and mass displacement that will fuel more conflict for decades.
+ - What I’ve realized is that life doesn’t count for much unless you’re willing to do your small part to leave our children – all of our children – a better world. Any fool can have a child. That doesn’t make you a father. It’s the courage to raise a child that makes you a father.
+ - If you were successful, somebody along the line gave you some help. There was a great teacher somewhere in your life.
+ - I have no patience with people who go around blowing up innocent people.
+ - The men and women of America’s homeland security apparatus do important work to protect us, and Republicans and Democrats in Congress should not be playing politics with that.
+ - If you have health insurance, then you don’t have to do anything. If you’ve got health insurance through your employer, you can keep your health insurance, keep your choice of doctor, keep your plan.
+ - My main message is to the parents of Trayvon Martin. You know, if I had a son, he’d look like Trayvon.
+ - Hostility and hatred are no match for justice; they offer no pathway to peace.
+ - We need to eradicate the slander that says a black youth with a book is acting white.
+ - While the future is unknowable, the winds always blow in the direction of human progress.
+ - Our nation honors its unbroken line of fallen heroes and I see many of them in the audience here today.
+ - We live in a moment when the dream of equal opportunity is within reach.
+ - Time is running out for Iran to address the international community’s growing concerns about its nuclear program.
+ - I’m LeBron, baby. I can play on this level. I got some game.
+ - The Middle East is obviously an issue that has plagued the region for centuries.
+ - The Democrats are using the human trafficking bill’s language that’s been there for 40 years, regarding the use of federal funds for abortion.
+ - America is, is no longer, uh, what it, uh, could be, uh, what it was once was, uh, and I say to myself, uh, I don’t want that future, uh, for my children.
+ - The pain I felt was my father’s pain.
+ - ISIS is a virulent, nasty organization that has gained a foothold in ungoverned spaces effectively in Syria and parts of western Iraq. We have to take it seriously. They’ve shown in Paris what they can do in an organized fashion.
+ - I don’t presume to have knowledge of what happens after I die. But I feel very strongly that whether the reward is in the here and now or in the hereafter, the aligning myself to my faith and my values is a good thing.
+ - We will outstretch the hand if you unclench your fist.
+ - Iran won’t pursue nuclear weapons because ‘it’s contrary to their faith.’
+ - That is the true genius of America, a faith in the simple dreams of its people, the insistence on small miracles. That we can say what we think, write what we think, without hearing a sudden knock on the door.
+ - I’m so overexposed, I’m making Paris Hilton look like a recluse.
+ - I hope you guys are up for a fight. I hope you guys are game because I haven’t been putting up with 19 months of airplanes and hotel food and missing my babies and my wife I didn’t put up for that stuff just to come in second.
+ - Even when our heart aches, we summon the strength that maybe we didn’t even know we had, and we carry on; we finish the race.
+ - The best judge of whether or not a country is going to develop is how it treats its women.
+ - Let us remember that we can do these things not just because of wealth or power, but because of who we are: one nation under God, indivisible, with liberty and justice for all.
+ - There’s one issue that will define the contours of this century more dramatically than any other, and that is the urgent and growing threat of a changing climate.
+ - I am confident that we will one day end the scourge of modern slavery, because I believe in those committed to this issue.
+ - Today we continue a never ending journey to bridge the meaning of those words with the realities of our time.
+ - I don’t want to make promises, not knowing what the situation’s going to be three or four years out.
+ - You know, in college, I smoked a little pot, did a little blow.
+ - I believe in American exceptionalism, just as I suspect that the Brits believe in British exceptionalism and the Greeks believe in Greek exceptionalism.
+ - There is no individual salvation without collective salvation.
+ - My job to the Muslim world is to communicate that the Americans are not your enemy. We sometimes make mistakes. We have not been perfect.
+ - Even while we may at times disagree, as friends sometimes will, the bonds between the United States and Israel are unbreakable and the commitment of the United States to the security of Israel is ironclad.
+ - The future must not belong to those who slander the Prophet of Islam.
+ - I’ve been to 57 states.
+ - Our patience is not infinite. We’re not willing to let this go on forever.
+ - I will promise you this, that if we have not gotten our troops out by the time I am president, it is the first thing I will do. I will get our troops home. We will bring an end to this war. You can take that to the bank.
+ - My parents shared not only an improbable love, they shared an abiding faith in the possibilities of this nation. They would give me an African name, Barack, or blessed, believing that in a tolerant America your name is no barrier to success.
+ - Every country has violent, hateful, or mentally unstable people. What’s different is not every country is awash with easily accessible guns.
+ - Thank you Planned Parenthood and God bless you.
+ - Our resources may be finite, but our will is infinite, and I am confident that if we come together and summon that great American spirit once again, we will meet the challenges of our time and write the next great chapter in our American story.
+ - It’s not a choice between our environment and our economy; it’s a choice between prosperity and decline.
+ - I’ve been called worse on the basketball court.
+ - We are the change we have been waiting for.
+ - Together we resolve that a great nation must care for the vulnerable and protect its people from life’s worst hazards and misfortune.
+ - And if we walk away now, if we simply retreat into our respective corners, we will never be able to come together and solve challenges like health care, or education, or the need to find good jobs for every American.
+ - It’s important to recognize that you can’t have 100 percent security and also then have 100 percent privacy and zero inconvenience.
+ - I strongly agree with Vice President Gore that we cannot drill our way to energy independence, but must fast-track investments in renewable sources of energy like solar power, wind power and advanced biofuels.
+ - Politics has never been for the thin-skinned or the faint-of-heart, and if you enter the arena, you should expect to get roughed up.
+ - I always believe that ultimately, if people are paying attention, then we get good government and good leadership. And when we get lazy, as a democracy and civically start taking shortcuts, then it results in bad government and politics.
+ - I believe that marriage is the union between a man and a woman. Now, for me as a Christian – for me – for me as a Christian, it is also a sacred union. God’s in the mix.
+ - The theater is necessary. Dance is necessary. Song is necessary. The arts are necessary- they are a necessary part of our lives.
+ - Trayvon Martin could have been me 35 years ago.
+ - If you don’t have any fresh ideas, then you use stale tactics to scare the voters. If you don’t have a record to run on, then you paint your opponent as someone people should run from. You make a big election about small things.
+ - Justice needs to be served, what I think people of Baltimore want more than anything else is the truth. That’s what people around the country expect.
+ - Al Qaeda, the Taliban, a whole host of networks that are bent on attacking America, who have a distorted ideology, who have perverted the faith of Islam, and so we have to go after them.
+ - I just miss – I miss being anonymous.
+ - Whatever we once were, we are no longer a Christian nation.
+ - Nothing will deter us from building the future we want for our children. What greater rejection of those who would tear down our world than marshaling our best efforts to save it.
+ - Our unalienable right to life and liberty and the pursuit of happiness, those rights were stripped from college kids in Blackburg and Santa Barbara, and from high schoolers at Columbine. And, and from first graders in Newtown, first graders.
+ - We do not believe that in this country, freedom is reserved for the lucky, or happiness for the few.
+ - We cannot allow internet service providers to restrict the best access or to pick winners and losers in the online marketplace for services and ideas.
+ - If all it took was someone proclaiming I believe Jesus Christ and that he died for my sins, and that was all there was to it, people wouldn’t have to keep coming to church, would they.
+ - It was into my father’s image, the black man, son of Africa, that I’d packed all the attributes I sought in myself, the attributes of Martin and Malcolm, DuBois and Mandela.
+ - A lot of shelter dogs are mutts like me.
+ - Part of America’s genius has always been its ability to absorb newcomers, to forge a national identity out of the disparate lot that arrived on our shores.
+ - With the changing economy, no one has lifetime employment. But community colleges provide lifetime employability.
+ - Now, some have said I blame too many problems on my predecessor, but let’s not forget that’s a practice that was initiated by George W. Bush.
+ - I just want to go through Central Park and watch folks passing by. Spend the whole day watching people. I miss that.
+ - Andrew Cuomo own story taught Andrew Cuomo that as Americans, we are bound together as one people, and our country’s success rests on the success of all of us, not just a fortunate few.
+ - It’s very rare that I come to an event where I’m like the fifth- or sixth-most interesting person.
+ - Scripture tells us that we shall not oppress a stranger, for we know the heart of a stranger. We were strangers once, too.
+ - Obama’s response when asked to define sin: “Being out of alignment with my values.”
+ - We’ve come to be consumed by a 24-hour, slash-and-burn, negative ad, bickering, small-minded politics that doesn’t move us forward.
+ - This is America, and our commitment to religious freedom must be unshakeable. The principle that people of all faiths are welcome in this country, and will not be treated differently by their government, is essential to who we are.
+ - We are God’s partners in matters of life and death.
+ - The greatest danger of all is to allow new walls to divide us from one another.
+ - I have great respect for both President Obama and the office that he holds.
+ - With respect to the pledge I made that if you like your plan you can keep it. The way I put that forward unequivocally ended up not being accurate.
+ - In Indonesia, I had spent two years at a Muslim school, two years at a Catholic school. In the Muslim school, the teacher wrote to tell my mother that I made faces during Koranic studies.
+ - The forces that divide us are not as strong as those that unite us.
+ - Many of you know that I got my name, Barack, from my father. What you may not know is Barack is actually Swahili for ‘That One.’ And I got my middle name from somebody who obviously didn’t think I’d ever run for president.
+ - When people see opportunity, when they have a sense of control of their own destiny, then they’re less vulnerable to the propaganda and twisted ideologies that have been attracting young people – particularly being turbocharged through social media.
+ - I do love the Waldorf-Astoria, though. You know, I hear that from the doorstep you can see all the way to the Russian tea room.
+ - That’s the true genius of America: that America can change. Our union can be perfected. What we’ve already achieved gives us hope for what we can and must achieve tomorrow.
+ - To anyone out there who has ever been assaulted: You will never be alone. You are never alone. We have your back. I’ve got your back.
+ - I am a strong believer in the free market. I am a strong believer in capitalism. But, I am also a strong believer that there are certain common goods – our air, our water, making sure that people are safe – that require to have some regulation.
+ - Those opposed to abortion cannot simply invoke God’s will-they have to explain why abortion violates some principle that is accessible to people of all faiths.
+ - We should raise the minimum wage so that no one who works full time has to live in poverty.
+ - I believe there are too many children who need loving parents to deny one group of people adoption rights. A child will benefit from a healthy, loving home, whether the parents are gay or not.
+ - The single biggest threat that we face is a nuclear weapon or some weapon of mass destruction. What that means is that we have to be extraordinarily aggressive and vigilant in controlling nuclear proliferation.
+ - America will rise again. And hope will rise again.
+ - When individuals get crowbars and start prying open doors to loot, they’re not protesting. They’re not making a statement. They’re stealing. When they burn down a building, they’re committing arson.
+ - I believe when women succeed America succeeds!
+ - I found this national debt, doubled, wrapped in a big bow waiting for me as I stepped into the Oval Office.
+ - I stand here today as hopeful as ever that the United States of America will endure, that it will prevail, that the dream of our founders will live on in our time.
+ - Being gay or lesbian is not a choice.
+ - Keeping the people’s government open is not a concession to me. Keeping vital service running and hundreds of thousands of Americans on the job is not something you ‘give’ to the other side.
+ - But you see, a rich country like America can perhaps afford to be stupid.
+ - We want our children to live in a world without the destructive power of a warming planet.
+ - In case you missed it, this week, there was a tragedy in Kansas. Ten thousand people died – an entire town destroyed.
+ - I think it’s useful to keep in mind I’ve been now President for over seven years and gun sales don’t seem to have suffered during that time.
+ - I just want to repeat that there’s nothing that we’ve proposed that would make it harder for you to purchase a firearm.
+ - Our pride is based on a very simple premise, summed up in a declaration made over two hundred years ago.
+ - You’re the reason why selfless soldiers won’t be kicked out of the military because of who they are or who they love.
+ - I don’t care whether you’re driving a hybrid or an SUV. If you’re headed for a cliff, you have to change direction. That’s what the American people called for in November, and that’s what we intend to deliver.
+ - All of us – we should do everything we can to make sure this country lives up to our children’s expectations.
+ - Government without a tough and vibrant media is not an option for the United States of America.
+
+500 quotes

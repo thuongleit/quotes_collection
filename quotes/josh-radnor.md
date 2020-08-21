@@ -1,0 +1,74 @@
+ - It’s not our job to play judge and jury, to determine who is worthy of our kindness and who is not. We just need to be kind, unconditionally and without ulterior motive, even – or rather, especially – when we’d prefer not to be.
+ - One of the secrets to life is saying yes to change and allowing things to transition, but I also think you have to mark the time and give thanks for all that it gave you.
+ - It really shocks me when I encounter people who think kindness doesn’t matter. Because I think it’s pretty much the only thing that matters.
+ - Talk about what you love and keep quiet about what you don’t.
+ - I kicked college nostalgia in my late 20s. As much as I loved college and treasure the memories, I no longer want to go back.
+ - I know not everyone starts out reading high literature. If you read enough you might be drawn to some other things, so maybe those vampire books are what they call ‘gateway books.’ I just coined that term. I don’t know if there’s a thing called ’gateway books.
+ - Knowing when to say something and when not to say something is important.
+ - When I’m working, it’s great. When I’m not working, it’s great.
+ - I think the word ‘earnest’ kind of has a negative connotation on some level. I think one of the things that’s happened is that being cynical is somehow conflated with being sophisticated. I think that’s problematic, to say the least.
+ - The purpose of fiction is to combat loneliness.
+ - I have really good female friends. I’ve never bought the whole men-and-women-can’t-be-friends thing. I think that’s sort of nonsense.
+ - I don’t think evil people or negative people are inherently interesting all the time. People who are good people getting better at being themselves – to me, that’s something that’s really interesting to watch.
+ - No matter how dark things may get in a story, I feel it’s the responsibility of the storyteller to leave the audience with at least a shred of hope.
+ - I think a lot of Civil War stuff is written – As they say, history is written by the victors. And one of the things that I think is fascinating about this from a purely dramatic perspective is whether someone is right or wrong, you understand where they’re coming from in this.
+ - Kindness is not about instant gratification. More often, it’s akin to a low-risk investment that appreciates steadily over time.
+ - I have great people surrounding me and helping me out. I’m totally in love with directing movies and I hope to do more of it.
+ - I distinguish sentiment from sentimentality. Sentimentality makes your skin crawl. It’s like too much sugar. But, sentiment is a great feeling.
+ - A movie can and should have some real dissonance throughout – rage, heartache, tears, conflict, catharsis and all the other elements Aristotle demanded of a good story – but the chord has to be resolved.
+ - I really like to travel when I write. Something about seeing new things and being in new cultures and environments provokes new thoughts in your head.
+ - As a person, I’m anti-violence.
+ - I’ll say this, and this has nothing to do with gender or sexuality: You do not want to get licked in the face repeatedly by another human being. You just don’t. It’s not pleasant.
+ - To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.
+ - I learned to choose my battles. Sometimes I let my producer deal with something that I didn’t want to deal with.
+ - There are just things you can explore in a movie that you can’t in 22 minutes with a laugh track.
+ - We’re like a gardener with a hose and our attention is water – we can water flowers or we can water weeds.
+ - We are so vocal about what we hate.
+ - I don’t love large groups of men. I’ve always felt like something terrible could happen when there were no women. If there are women around, it feels like there’s less of a chance that anyone will get stabbed.
+ - If I’m feeling something, I have a lot of different ways to express it, you know? I can write an article about it. I can write a screenplay about it. I can act in someone’s thing.
+ - The attitude of the director is really important, in terms of setting tone.
+ - Each film is difficult, in its own particular way. There’s a unique set of challenges on every movie.
+ - There’s something touching about a kid who’s reading a book that’s printed on actual paper. I think that anything that kids start reading, within reason, can lead to other discoveries.
+ - I like movies that are about real people in real time with real problems.
+ - There’s something melancholy about professors because they’re chronically abandoned. They form these lovely relationships with students and then the students leave and the professors stay the same. It’s like they’re chronically abandoned.
+ - In college, you’re kind of designing who you want to be. And I wanted to be a big reader.
+ - An obsessive attention to the news, I’ve realized, only serves to paint a picture of the world as a throbbing blob of dysfunction, most news falling somewhere on a scale from disappointing to calamitous.
+ - I actually have a thing about proper nouns. They clang on my ear in a weird way when I hear them dropped into movies.
+ - I care about reading, a lot. It’s a big part of my life.
+ - Acting on stage is still my favorite thing to do. And everyone who’s been in musicals knows that there is nothing more fun.
+ - I went through this very serious Woody Allen phase in college and a little bit after college. I still see his movies.
+ - I’m not a masochistic reader. If something is just too dense or not enjoyable, even though I’m told it should be good for me, I’ll put it down. That said, most of what I read would be considered high-end or good for you, I suppose. But, I also think that reading should be enjoyable.
+ - My film school is making movies. But, I do think that being an actor has served me immensely, as both a writer and director, in terms of knowing what is playable and what will be fun to play, for actors, and also how to communicate to actors on set, and not screw them up and get them in their head.
+ - Time off from the news is always something I welcome.
+ - And so, however many people watch this thing, that’s how many different opinions there will be about it. But I don’t feel like it has an agenda in terms of its ideology. It just presents a story like a mirror. It’s a mirror more than it is than a distorted mirror.
+ - I learned a lesson which I didn’t heed: Don’t put yourself in your movies. It’s too much.
+ - I’ve always been attracted to ensembles. When I started doing plays in high school and in college, I always loved the community aspect of it. I loved these little families that would develop.
+ - It never made sense to me that someone would achieve any kind of success in show business, only to become a jerk.
+ - When I write a film, there’s a particular thing I am wrestling with and the question or concern I’m dealing with has to be big enough for me to dedicate a year or two of my life. If the question isn’t big enough, or rich enough, I’ll lose interest.
+ - What I write is very personal, but not autobiographical. It’s more ‘thematically personal’ – what’s up in my life in terms of themes at the moment.
+ - All of the things I used to obsess over, I’m no longer as obsessed with. I have new concerns but they’re a little more existential or cosmic.
+ - It’s really hard to be poor in New York – I was really poor when I lived in New York.
+ - Here’s the problem: I don’t like who I’ve become when my iPhone is within reach. I find myself checking e-mails and responding to texts throughout the day with some kind of Pavlovian ferocity – it’s not a conscious act, but a reflexive one.
+ - And as a filmmaker, I’m trying to unhook myself from this idea that unless you have a brilliant, long, enormously lucrative theatrical run, that your movie somehow failed. And I don’t believe that.
+ - I haven’t left the house without a packet of Kleenex in my back pocket for as long as I can remember. Whenever I start thinking I’m incredibly cool, the packet of Kleenex in my back pocket brings me right back down to earth.
+ - Well, I stopped drinking. That was actually a big deal. I didn’t go through any harrowing rock-bottom experience. I just made a decision to stop drinking.
+ - I’m a little less hungry as an actor than I used to be. When you’re a director, you’re the conductor of the orchestra, and when you’re an actor, you’re playing the violin. There’s a thrill to each of them, but as the conductor, you get the fuller sound.
+ - My trick is the trick that everyone knows: Work really hard and prepare.
+ - Film allows me to ask some really big questions with the time to explore them deeply. I love the form.
+ - Everyone has expectations. You just don’t want to have them dashed, so you’re quiet about them.
+ - When I go to movies and I love the movie, it’s because it feels like it articulated something about how we’re living now, and also gives me some insight into my own life. I feel actually altered after having seen it.
+ - I tend to read things that are a little more on the nourishing side. But if I don’t enjoy something, I’ll put it down.
+ - I feel comfortable with women. I have two sisters, so I grew up in a female-dominated environment.
+ - I sometimes don’t know what I’m writing when I start writing it, on some level.
+ - After a brief period in which I had let many a Southern Californian convince me that it was all ‘in my mind,’ I am once again officially allergic to dogs.
+ - One man’s uplift is another man’s sentimental hooey.
+ - I think that the mark of a great book is that it will meet you wherever you’re at and you’ll feel and experience something new and different each time you read it.
+ - We don’t have a lot of space in our imaginations to allow people to expand what they do.
+ - One thing I’m most proud of, in my movies, is that I think the performances are super-strong, but that’s not all me. I think part of it is casting appropriately.
+ - A lot of times, we’re just sold these movies that are really cynically conceived and marketed, and they just want you there opening weekend, before everybody finds out it’s not so good.
+ - In writing scripts now, having made a film, I’m much more conscious of what it means to shoot and edit a movie, and that affects the writing.
+ - Even though I occasionally appear on it, I don’t watch television.
+ - My whole thing is that I want to explore why you read books, what’s the purpose of reading, and maybe that it’s not that cool to hate something just because it’s popular.
+ - You know, I’m not saying, ‘Oh, because I play a good guy on TV, I need to suddenly be villainous in a movie.’ I look at it more like: does this role has a kind of urgency for me in terms of, ‘Can I not say no to it for whatever reason?’
+
+72 quotes

@@ -1,0 +1,270 @@
+ - The most common way people give up their power is by thinking they don’t have any.
+ - Activism is my rent for living on the planet.
+ - Whenever you are creating beauty around you, you are restoring your own soul.
+ - In nature, nothing is perfect and everything is perfect. Trees can be contorted, bent in weird ways, and they’re still beautiful.
+ - Look closely at the present you are constructing: it should look like the future you are dreaming.
+ - The animals of the world exist for their own reasons. They were not made for humans any more than black people were made for white, or women created for men.
+ - Hard times require furious dancing. Each of us is proof.
+ - I’m the most stubborn person I know.
+ - Womanist is to feminist as purple is to lavender.
+ - Time moves slowly, but passes quickly.
+ - I think it pisses God off if you walk by the color purple in a field somewhere and don’t notice it. People think pleasing God is all God cares about. But any fool living in the world can see it always trying to please us back.
+ - Be an outcast. Be pleased to walk alone.
+ - The more I wonder, the more I love.
+ - Expect nothing. Live frugally on surprise.
+ - When the ax came into the forest the trees said the handle is one of us.
+ - Resistance is the secret of joy!
+ - Wherever I have knocked, a door has opened. Wherever I have wandered, a path has appeared.
+ - Healing begins where the wound was made.
+ - Every small positive change we make in ourselves repays us in confidence in the future.
+ - When life descends into the pit I must become my own candle Willingly burning my self To light up the darkness around me.
+ - Surely the earth can be saved by all the people who insist on love.
+ - I don’t need a certain number of friends, just a number of friends I can be certain of.
+ - I don’t focus on criticism. I prefer to praise people and the world, rather than criticize them and it.
+ - My God is not a religious God. My God is nature, my God is everything there is. That’s God. Everything is God. I’m a child of that.
+ - I think writing really helps you heal yourself. I think if you write long enough, you will be a healthy person. That is, if you write what you need to write, as opposed to what will make money, or what will make fame.
+ - You can’t truly have an open heart until it’s been broken.
+ - Don’t wait around for other people to be happy for you. Any happiness you get you’ve got to make yourself.
+ - People do not wish to appear foolish; to avoid the appearance of foolishness, they are willing to remain actually fools.
+ - Not everyone’s life is what they make it. Some people’s life is what other people make it.
+ - I have fallen in love with the imagination. And if you fall in love with the imagination, you understand that it is a free spirit. It will go anywhere, and it can do anything.
+ - But I don’t know how to fight. All I know how to do is stay alive.
+ - I try to teach my heart not to want things it cant have.
+ - For in the end, freedom is a personal and lonely battle; and one faces down fears of today so that those of tomorrow might be engaged.
+ - Anything we love can be saved.
+ - I am not lesbian, I am not bisexual, I am not straight. I am just curious.
+ - The Animals of the planet are in desperate peril and they are fully aware of this. No less than human beings are doing in all parts of the world, they are seeking sanctuary.
+ - The most important question in the world is, ‘Why is the child crying?’
+ - Human compassion is equal to human cruelty, and it is up to each of us to tip the balance.
+ - In South Korea, they believe that when you turn 60, you’ve become a baby again and the rest of your life should be totally about joy and happiness, and people should leave you alone, and I just think that that’s the height of intelligence.
+ - Ignorance, arrogance, and racism have bloomed as Superior Knowledge in all too many universities.
+ - Nobody is as powerful as we make them out to be.
+ - What you hope for, you also fear.
+ - Well, I think indigenous peoples have ways of living on the Earth that they’ve had forever. And they’ve been overrun by organized religion, which has had a lot of money and power.
+ - Yes, Mother. I can see you are flawed. You have not hidden it. That is your greatest gift to me.
+ - What the mind doesn’t understand, it worships or fears.
+ - We’re going to have to debunk the myth that Africa is a heaven for black people – especially black women. We’ve been the mule of the world there and the mule of the world here.
+ - Peace will come wherever it is sincerely invited.
+ - Revolt is the mirror in which greed is forced to see itself.
+ - Love is big; love can hold anger, love can even hold hatred. It’s about the intention of what you want it to do.
+ - Guided by my heritage of a love of beauty and a respect for strength – in search of my mother’s garden, I found my own.
+ - Is solace anywhere more comforting than that in the arms of a sister.
+ - Only dead people need loud music, you know.
+ - No matter how hidden the cruelty, no matter how far off the screams of pain and terror, we live in one world. We are one people.
+ - I think that indigenous women’s wisdom is crucial. So much of the care of the Earth has come from the mothers. I think it’s imperative we turn to their wisdom in how to take care of the planet.
+ - A writer’s heart, a poet’s heart, an artist’s heart, a musician’s heart is always breaking. It is through that broken window that we see the world...
+ - Everything is already perfect. And if you can accept that everything is already perfect, the imperfection is a part of the perfection. What’s to worry about?
+ - You really can’t be a good artist if you can’t say what you really feel. And people may be offended, but, you know, that’s how you feel, and that is your right, and that is your gift as well.
+ - We are a people. A people do not throw their geniuses away. If they do, it is our duty as witnesses for the future to collect them again for the sake of our children. If necessary, bone by bone.
+ - Anybody can observe the Sabbath, but making it holy surely takes the rest of the week.
+ - If you want to have a life that is worth living, a life that expresses your deepest feelings and emotions, and cares and dreams, you have to fight for it.
+ - I have learned not to worry about love; but to honor its coming with all my heart.
+ - She was so quiet. So reflective. And she could erase herself, her spirit, with a swiftness that truly startled, when she knew the people around her could not respect it.
+ - No song or poem will bear my mother’s name. Yet so many of the stories that I write, that we all write, are my mother’s stories.
+ - No person is your friend who demands your silence, or denies your right to grow.
+ - Laughter isn’t even the other side of tears. It is tears turned inside out. Truly the suffering is great, here on earth. We blunder along, shredded by our mistakes, bludgeoned by our faults. Not having a clue where the dark path leads us. But on the whole, we stumble along bravely, don’t you think?
+ - I don’t call myself a Buddhist. I’m a free spirit. I believe I’m here on earth to admire and enjoy it; that’s my religion.
+ - The nature of this flower is to bloom.
+ - Nature has created us with the capacity to know God, to experience God.
+ - The gift of loneliness is sometimes a radical vision of society or one’s people that has not previously been taken into account.
+ - We will be ourselves and free, or die in the attempt. Harriet Tubman was not our great-grandmother for nothing.
+ - Language is an intrinsic part of who we are and what has, for good or evil, happened to us.
+ - HELPED are those whose every act is a prayer for peace; on them depends the future of the world.
+ - There’s an ecstatic side to writing. It’s like jazz. It just has a life.
+ - It’s so important to unclutter the mind. For me, creativity is greatly impeded just by the chatter and visual clutter of life. It’s really important to have a space that is really clear for whatever is emerging to come.
+ - Freedom, after all, is like love: the more you give to others, the more you have.
+ - It no longer bothers me that I may be constantly searching for father figures; by this time, I have found several and dearly enjoyed knowing them all.
+ - Fiction is such a world of freedom, it’s wonderful. If you want someone to fly, they can fly.
+ - She thought of how precious it was to be able to know another person over many years. There was incomparable richness in it.
+ - It is natural to want to have a future.
+ - It is healthier, in any case, to write for the adults one’s children will become than for the children one’s ‘mature’ critics often are.
+ - I think we have to own the fears that we have of each other, and then, in some practical way, some daily way, figure out how to see people differently than the way we were brought up to.
+ - In search of my mother’s garden, I found my own.
+ - Books became my world because the world I was in was very hard.
+ - The protection of evil must be the most self-destructive job.
+ - Well, capitalism is a big problem, because with capitalism you’re just going to keep buying and selling things until there’s nothing else to buy and sell, which means gobbling up the planet.
+ - Poetry is the lifeblood of rebellion, revolution, and the raising of consciousness.
+ - Everything want to be loved. Us sing and dance and holler, just trying to be loved.
+ - Whoever you are, whatever you are, start with that, whether salt of the earth or only white sugar.
+ - Even as I hold you, I am letting you go.
+ - The forest is the first cathedral. I felt that from the time I was a child. I credit my mother with that. I used to think it came from her Native-American side. Whichever it was, she instinctively connected with nature, and taught me that.
+ - A grown child is a dangerous thing.
+ - Be nobody’s darling; Be an outcast. Take the contradictions Of your life And wrap around You like a shawl, To parry stones To keep you warm.
+ - Oh, Celie, unbelief is a terrible thing. And so is the hurt we cause others unknowingly.
+ - Yoga means to bind back, unite. To bring the body and the soul together. For this reason the practice of yoga is a holy endeavor and the teaching of it to our people a very high calling.
+ - Animals can communicate quite well. And they do. And generally speaking, they are ignored.
+ - Every time I conjure up a rock, I throw it.
+ - Wish for nothing larger Than your own small heart.
+ - The good news may be that Nature is phasing out the white man, but the bad news is that’s who She thinks we all are.
+ - But it ain’t easy, trying to do without God even if you know he ain’t there, trying to do without him is a strain.
+ - Well, sometime Mr – – git on me pretty hard. I have to talk to Old Maker. But he my husband. I shrug my shoulders. This life soon be over, I say. Heaven last all ways. You ought to bash Mr – – head open, she say. Think bout heaven later.
+ - Some people don’t understand that it is the nature of the eye to have seen forever, and the nature of the mind to recall anything that was ever known.
+ - Every soul is to be cherished, every flower is to bloom.
+ - Writing saved me from the sin and inconvenience of violence.
+ - If art doesn’t make us better, then what on earth is it for.
+ - You can love yourself spiritually, physically – in almost any way that anybody else can.
+ - Tea to the English is really a picnic indoors.
+ - Life is abundant, and life is beautiful. And it’s a good place that we’re all in, you know, on this earth, if we take care of it.
+ - It didn’t take long to realize I didn’t hardly know nothing. And that if you ast yourself why you black or a man or a woman or a bush it don’t mean nothing if you don’t ast why you here, period.
+ - As we talked of freedom and justice one day for all, we sat down to steaks. I am eating misery, I thought, as I took the first bite. And spit it out.
+ - I love us so incredibly, insanely deeply; it’s almost unbearable to see what we do to ourselves.
+ - Horses make a landscape look beautiful.
+ - War will stop when we no longer praise it, or give it any attention at all. Peace will come wherever it is sincerely invited.
+ - How sad now never to see men holding hands, while everywhere one looks they are holding guns.
+ - Not only will your teachers appear, but they will cook new foods for you.
+ - You a low down dog is what’s wrong. It’s time to leave you and enter into the creation. And your dead body just the welcome mat I need.
+ - I have fought and kicked and fasted and prayed and cursed and cried myself to the point of existing.
+ - I think America has always been polarized. It’s a racist country and it has always been.
+ - As you know from school, it’s when you have not prepared for the test that you have the fear of failing. And if you have prepared, even if you fail, you’ve done your best.
+ - I’m pore, I’m black, I may be ugly and can’t cook, a voice say to everything listening. But I’m here.
+ - Sexuality is one of the ways that we become enlightened, actually, because it leads us to self-knowledge.
+ - A burnt finger remember the fire.
+ - It’s so clear that you have to cherish everyone. I think that’s what I get from these older black women, that every soul is to be cherished, that every flower Is to bloom.
+ - Abortion is an act of self-defense.
+ - Laughter isn’t even the other side of tears. It is tears turned inside out. Truly the suffering is great, here on earth.
+ - My life is not to be somebody else’s impact – you know what I mean?
+ - As long as the Earth can make a spring every year, I can.
+ - This life soon be over, I say. Heaven last all ways.
+ - Writing saved me from the sin and inconvenience of violence – as it saves most writers who live in ‘interesting’ oppressive times and are not afflicted by personal immunity.
+ - Deliver me from writers who say the way they live doesn’t matter. I’m not sure a bad person can write a good book, If art doesn’t make us better, then what on earth is it for.
+ - We should learn to accept that change is truly the only thing that’s going on always, and learn to ride with it and enjoy it.
+ - How anyone cannot see that Nature is God is amazing to me: that they’d rather worship something that can only exist, really, in their own minds.
+ - Sometimes, reading a blog, which I do infrequently, I see that generations of Americans have been wilfully crippled, and can no longer spell or write a sentence.
+ - The experience of God, or in any case the possibility of experiencing God, is innate.
+ - There is always a moment in any kind of struggle when one feels in full bloom. Vivid. Alive. One might be blown to bits in such a moment and still be at peace.
+ - Politically, the world is so confused right now – there’s so much suffering caused by various movements by various parties and people in power in government.
+ - I think it pisses God off if you walk by the color purple in a field somewhere and don’t notice it.
+ - I’m always amazed that people will actually choose to sit in front of the television and just be savaged by stuff that belittles their intelligence.
+ - I’ve found, in my own writing, that a little hatred, keenly directed, is a useful thing.
+ - Some colored people so scared of whitefolks they claim to love the cotton gin.
+ - My work is about my life, and what I want to do with it.
+ - Always with me was the inner twin: my true nature, my true self. It is timeless, free, compassionate and in love with whatever is natural to me.
+ - HELPED are those who lose their fear of death; theirs is the power to envision the future in a blade of grass.
+ - The quietly pacifist peaceful always die to make room for men who shout.
+ - One thing that never ceases to amaze me, along with the growth of vegetation from the earth and of hair from the head, is the growth of understanding.
+ - Find yourself a cup of tea; the teapot is behind you. Now tell me about hundreds of things. Saki Tea to the English is really a picnic indoors.
+ - I think the foundation of everything in my life is wonder.
+ - It’s so clear that you have to cherish everyone.
+ - The trouble with our people is as soon as they got out of slavery they didn’t want to give the white man nothing else. But the fact is, you got to give em something. Either your money, your land, your woman or your ass.
+ - Listen, God loves everything you love, and a mess of stuff you don’t.
+ - Writing poems is my way of celebrating with the world that I have not committed suicide the evening before.
+ - In each of us, there is a little voice that knows exactly which way to go. And I learned very early to listen to it, even though it has caused so much grief and havoc, and I think that is the only answer.
+ - There are those who believe Black people possess the secret of joy and that it is this that will sustain them through any spiritual or moral or physical devastation.
+ - As I get older, I realize that the thing I value the most is good-heartednes s.
+ - I believe God is everything, say Shug. Everything that is or ever was or ever will be. And when you can feel that, and be happy to feel that, you’ve found It.
+ - My heart hurt so much I can’t believe it. How can it keep beating, feeling like this?
+ - HELPED are those who love the entire cosmos rather than their own tiny country, city, or farm, for to them will be shown the unbroken web of life and the meaning of infinity.
+ - The world is changing. It is no longer a world just for boys and men.
+ - I realized I was a country person – I’m just not used to small spaces.
+ - I see children, all children, as humanity’s most precious resource, because it will be to them that the care of the planet will always be left.
+ - There is no graceful way to carry hatred.
+ - You know a little drink now and then never hurt nobody, but when you can’t git started without asking the bottle, you in trouble.
+ - You got to fight them, Celie, she say. I can’t do it for you. You got to fight them for yourself. I don’t say nothing. I think bout Nettie, dead. She fight, she run away. What good it do? I don’t fight, I stay where I’m told. But I’m alive.
+ - It’s essential that we understand that taking care of the planet will be done as we take care of ourselves. You know that you can’t really make much of a difference in things until you change yourself.
+ - Artists are messengers whose responsibility is to unite the world – a faith that will lead not to destruction but to transformation.
+ - To know is to exist; to exist is to be involved, to move about, to see the world with my own eyes.
+ - I can easily imagine Obama sitting down and talking to any leader – or any person – in the world, with no baggage of past servitude or race supremacy to mar their talks.
+ - HELPED are those who live in quietness, knowing neither brand name nor fad; they shall live every day as if in eternity, and each moment shall be as full as it is long.
+ - I feel very happy to be living in Berkeley because there are a lot of people who are politically active here.
+ - I had assumed that the Earth, the spirit of the Earth, noticed exceptions-those who wantonly damage it and those who do not. But the Earth is wise. It has given itself into the keeping of all, and all are therefore accountable.
+ - What I am really interested in is that I want people to be thinking in other ways – to stop thinking they have to remain glued to a system that has failed and to ideas about society that’s necessarily about being run by Democrats or Republicans.
+ - I’m for women choosing whatever they want to do but they have to really know what they are doing.
+ - I don’t know. I imagine good teaching as a circle of earnest people sitting down to ask each other meaningful questions. I don’t see it as a handing down of answers...
+ - Helped are those who are content to be themselves; they will never lack mystery in their lives and the joys of self-discovery will be constant.
+ - Women have to summon courage to fulfill dormant dreams.
+ - I think colors are miraculous. We live in a universe that is extremely creative and magical. We become happier as we appreciate these things in nature.
+ - The only way to solace anyone who loved you in life is to be a good memory.
+ - My mother was very strong. Once, she picked up a coconut and smashed it against my father’s head. It taught me about women defending themselves and not collapsing in a heap.
+ - I am not convinced that men and women were ever meant to share the same house, though some people can do it beautifully.
+ - Life is better than death, I believe, if only because it is less boring, and because it has fresh peaches in it.
+ - Being happy is not the only happiness.
+ - I’m mad about the waste that happens when people who love each other can’t even bring themselves to talk.
+ - Creation is a sustained period of bliss.
+ - Helped are those who create anything at all, for they shall relive the thrill of their own conception and realize a partnership in the creation of the Universe that keeps them responsible and cheerful.
+ - I can be almost terminally grief-stricken because things are so dire, but at the same, there’s a real lightheartednes s about just the recoverability of life, of how things change, how they’re not the same, ever again.
+ - The infinite faith I have in people’s ability to understand anything that makes sense has always been justified, finally, by their behavior.
+ - If you’re silent for a long time, people just arrive in your mind.
+ - Any God I ever found in church, I brought in myself.
+ - What gardening teaches us is that if you plant things, they’ll come up. But you have to be willing to wait for them to bear fruit because things are seasonal.
+ - My parents taught me service – not by saying, but by doing. That was my culture, the culture of my family.
+ - We writers – we’re the snowflakes of the literary world. We each have our own shape.
+ - All partisan movements add to the fullness of our understanding of society as a whole. They never detract; or, in any case, one must not allow them to do so. Experience adds to experience.
+ - Helped are those who laugh with a pure heart; theirs will be the company of the jolly righteous.
+ - Aside from the fact that they say it’s unhealthy, my fat ain’t never been no trouble. Mens always have loved me. My kids ain’t never complained. Plus they’s fat.
+ - I’m the kind of woman that likes to enjoy herselves in peace.
+ - Those in power must spend a lot of their time laughing at us.
+ - Even now, I find that no matter what has happened, I still have that trust. I have a lot of trust, that people can be better than they are.
+ - Israel is guilty of apartheid and persecution of the Palestinian people, both inside Israel and also in the Occupied Territories.
+ - Us sing and dance, make faces and give flower bouquets, trying to be loved. You ever notice that trees do everything to git attention we do, except walk?
+ - You don’t really stay attached to things. Life goes on, so you don’t really sit around and think about how they are relevant to other people. You hope that whatever you create will be relevant.
+ - All History is current; all injustice continues on some level, somewhere in the world.
+ - I love the natural world – it comes from my culture, which grew out of a people enslaved.
+ - I think the War on Terror is really absurd, especially coming from a country that is founded on terrorism.
+ - I don’t know if you actually get something out of writing poetry. I think poetry is an autonomous muse that decides to come and sit on your couch.
+ - You must learn to love only that which cannot be stolen.
+ - HELPED are those whose ever act is a prayer for harmony in the Universe, for they are the restorers of balance to our planet. To them will be given the insight that every good act done anywhere in the cosmos welcomes the life of an animal or a child.
+ - Clearly older women and especially older women who have led an active life or elder women who successfully maneuver through their own family life have so much to teach us about sharing, patience, and wisdom.
+ - How simple a thing it seems to me that to know ourselves as we are, we must know our mothers names.
+ - For a long time, I thought I was ugly and disfigured. This made me shy and timid, and I often reacted to insults that were not intended.
+ - I don’t know nothing, I think. And glad of it.
+ - Never offer your heart to someone who eats hearts who finds heartmeat delicious but not rare who sucks the juices drop by drop and bloody-chinned grins like a God.
+ - After all, how can a society flourish, a country attain democracy and health, children grow into intelligent beings, sensitive to the needs of an ever more fragile and endangered planet, if half it’s people are kept out of the driver’s seat?
+ - In my work and in myself I reflect black people, women and men, as I reflect others. One day even the most self-protective ones will look into the mirror I provide and not be afraid.
+ - When you are active, and you must know this so well, that the more you are active, the more you see, the more you go to see. You know, you are curious. One thing leads to another thing, and it gets deeper and deeper, too. And there’s no end to it.
+ - Love likes to extend itself. If you receive it in a book – or however you get it – then your duty is to extend it beyond.
+ - It must become a right of every person to die of old age. And if we secure this right for ourselves, we can, coincidentally, assure it for the planet.
+ - I’m sure we, the American people, are the butt of jokes by those in power.
+ - Animals were not made for us, or our use. They have their own use, which is just being who they are.
+ - Human beings may well be unable to break free of the dictatorship of greed that spreads like a miasma over the world, but no longer will we be an inarticulate and ignorant humanity, confused by our enslavement to superior cruelty and weaponry.
+ - I could never live happily in Africa-or anywhere else-until I could live freely in Mississippi.
+ - I think there is a sense of being forced at this time to look at America’s really large shadow and that’s not all that bad.
+ - Just because I don’t harass it like some peoples us know don’t mean I ain’t got religion.
+ - Healing cannot be done by settling a score.
+ - People tend to think that life really does progress for everyone eventually, that people progress, but actually only some people progress. The rest of the people don’t.
+ - Resist the temptation to think what afflicts you is peculiar to you. Have faith that what is in your consciousness can be communicated to the consciousness of all. And is, in many cases, already there.
+ - In every life there comes a point when you have to make a decision about how you will live.
+ - We must, I believe, start teaching our children the sanity of nonviolence much earlier.
+ - Poetry, I have discovered, is always unexpected and always as faithful and honest as dreams.
+ - Howard Zinn was magical as a teacher. Witty, irreverent, and wise, he loved what he was teaching and clearly wanted his students to love it, also.
+ - And so our mothers and grandmothers have, more often than not anonymously, handed on the creative spark, the seed of the flower they themselves never hoped to see – or like a sealed letter they could not plainly read.
+ - Many people are aware that we are in peril and that there is no trustworthy leadership.
+ - In our particular society, it is the narrowed and narrowing view of life that often wins.
+ - Just be what it is that you are, and that is just fine. You don’t have to be what you’re not in any way. Live that and live that fully, and that is where you discover ecstasy. You can’t really have ecstasy as something other than yourself.
+ - To me, the black black woman is our essential mother, the blacker she is the more us she is and to see the hatred that is turned on her is enough to make me despair, almost entirely, of our future as a people.
+ - If a person is hit hard enough, even if she stands, she falls.
+ - As an elder of the Americas and of the rest of the planet, it is my responsibility to care for and protect, to the best of my ability, the young.
+ - It just seems clear to me that as long as we are all here, it’s pretty clear that the struggle is to share the planet, rather than divide it.
+ - But if by some miracle and all our struggle, the earth is spared, only justice to every living being will save humankind.
+ - I know what I’m thinking bout, I think. Nothing. And as much of it as I can.
+ - She say, Celie, tell the truth, have you ever found God in church? I never did. I just found a bunch of folks hoping for him to show.
+ - My writing is very organic. It’s what I am. My mother says I was writing before I was crawling. I wrote in the dirt with a twig. So I think of it as something that’s very essential to my being.
+ - You must run around like a crazy person or walk sedately honoring the dead.
+ - Men make war to get attention. All killing is an expression of self-hate.
+ - Helped are those too busy living to respond when they are wrongfully attacked: on their walks they shall find mysteries so intriguing as to distract them from every blow.
+ - In order to be able to live at all in America I must be unafraid to live anywhere in it, and I must be able to live in the fashion and with whom I choose.
+ - I started out as a poet. I’ve always been a poet since I was 7 or 8. And so I feel myself to be fundamentally a poet who got into writing novels.
+ - Writing about people helps us to understand them, and understanding them helps us to accept them as part of ourselves.
+ - The earth is wise. It has given itself into the keeping of all, and all are therefore accountable.
+ - Never be the only one, except, possibly, in your own home.
+ - What a burden to think one is conceived in sin rather than in pleasure; that one is born into evil rather than into joy.
+ - If she come, I be happy. If she don’t, I be content.
+ - HELPED are those who are shown the existence of the Creator’s magic in the Universe; they shall experience delight and astonishment without ceasing.
+ - In the far upper corner of my altar is a photo of Joan Crawford in her most fierce Mommy Dearest mode, just to remind me of some of the cost of everyone’s hard-earned sweetness and light.
+ - Drew Dellinger is a deep and courageous poet. How lucky we are!
+ - I continue to care for President Obama and for his family. I think that in many ways they are very courageous people, and I honor that, because I know what it means to live as a black person in a racist America.
+ - You seem so clear about who you are. So certain that you are just right as you are, that for all your intelligence and maybe in spite of it, you never seem to need a second opinion.
+ - You know, one race will not be a survivor if the other one dies, and that’s something that we should think about.
+ - For me, writing has always come out of living a fairly to-the-bone kind of life, just really being present to a lot of life. The writing has been really a byproduct of that.
+ - It’s better to have your blackness taken away than to stand there and lie about who you actually are. That’s the trap.
+ - HELPED are those who love all the colors of all the human beings, as they love all the colors of the animals and plants; none of their children, nor any of their ancestors, nor any parts of themselves, shall be hidden from them.
+ - Decide that you know what you think is good for you and go ahead and do it.
+ - Part of what confuses people in times of upheaval is that you’re getting so many different points of view and directions and so and so, how to do this and do that. And a lot of it is written in a language that honestly most people cannot understand.
+ - I have never felt that the one thing that I am ‘known for’ is what I am.
+ - I can spend two hours grubbing about in my garden, dazed with pleasure and intent, and it feels like five minutes.
+ - How we come into this world, how we are ushered in, met, and hopefully embraced upon arrival, impacts the whole of our time on earth.
+ - Criticism is painful when it’s not done with love.
+ - In my opinion and experience, imperialists of all nations and races will tell us anything to keep us fighting. For them.
+ - I can imagine in years to come that my papers and memorabilia, my journals and letters, will find themselves always in the company of people who care about many of the things I do.
+ - Abortion, for many women, is more than an experience of suffering beyond anything most men will ever know, it is an act of mercy, and an act of self-defense.
+
+268 quotes

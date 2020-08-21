@@ -1,0 +1,44 @@
+ - I embrace everything.
+ - If you stand still long enough, you’ll get stuck.
+ - And sometimes the hardest thing you can do is walk away. But you got to. And, when you do, it changes your life.
+ - The first time I went to Wales I thought I’d landed in a land of hobbits. Everybody was really small and the houses were small and the writing was backwards.
+ - I’ve got taste, it’s inbred in me.
+ - There are many dying children out there whose last wish is to meet me.
+ - I let people down easy with inspiration.
+ - I have a Guinness Book of World Records entry as the most-watched person on television; now I have a new entry as the only man who has a crab named after him.
+ - If you’re not in the game, you can’t hit a home run.
+ - My Christmas wish would be to have an entire week off. To spend it with my family and just curl up and watch Christmas movies when it’s snowing outside.
+ - In case you haven’t caught the commercials, I’m in the new SpongeBob SquarePants Movie.
+ - The problem with me is that nothing embarrasses me. Everything I’ve done ends up working in my favor. Even when I make mistakes and people exploit my mistakes on television or on the Internet, and they use it to make fun of me, it’s just kind of working in my favor at the end. It’s really strange.
+ - Failure usually works for me in the end.
+ - Ninety-nine percent of people now call me The Hoff – and it’s out of respect.
+ - I’m a cheesy over-the-top megalomaniac with a deep voice and the most amazing pecs.
+ - When you realize that life isn’t fair, you don’t act out, you don’t get overly wasted, you don’t get self-indulgent. You just move forward.
+ - Beyond its entertainment value, ‘Baywatch’ has enriched and, in many cases, helped save lives. I’m looking forward to the opportunity to continue with a project which has had such a significance for so many.
+ - If you don’t respect me you’re not gonna get that respect back.
+ - I think people respect me because they feel like – I’m kind of like Christmas. I come back every year. You can’t get rid of me. I just keep coming back.
+ - My one ambition was to go to Broadway, and I never gave up on that dream.
+ - The problem with me is that nothing embarrasses me.
+ - My web site is so fresh. The paint is still wet, but stay tuned, because I have lots of personal things, specifically about what is happening day-to-day, that I will keep updating daily.
+ - Getting in shape for this role, which is incredibly demanding, vocally, has been a lot of hard work, but I’m nailing it. I’m even kind of, at times, blowing my own mind, because I am even able to talk right now.
+ - Over in the UK and in Wales, it’s nice to turn on the TV and see ‘Baywatch.’
+ - Celebrity means that I can affect people in a positive way.
+ - In life, you either watch TV or you do TV. I told my daughters that the only way you’re going to make it in this business is to get in the game. That’s the biggest advice I can give them.
+ - I’m six foot four, an all-American guy, and handsome and talented as well!
+ - I did, I’d say, at least about 80 percent of the rest of the driving, and I had the time of my life.
+ - Image is what people perceive my life to be. It’s nothing like the truth.
+ - I think that without sushi there would be no David Hasselhoff, because sushi is like the perfect way of describing the insides of David Hasselhoff. He is like a protein, clean and easy. That’s how I feel about myself.
+ - I think people know that I’ve got a good heart.
+ - I look good, but I probably have the insides of Elvis.
+ - I feel like Elvis. Only alive.
+ - Before long, I’ll have my own channel – I’ll be like Barney.
+ - My wife is the dancer, but I certainly know how to sing.
+ - I started training for musicals since I was a boy.
+ - I once didn’t work out for six weeks. It took me for ever to get the weight off.
+ - I wanted to play around with the format, really tear it to pieces and shake it up. For example, if Mitch saves someone from drowning, and that person then goes out and releases a virus that kills a million people. Imagine the moral implications of that.
+ - In a cornball way, I think being a celebrity is about making a difference, too.
+ - All I want to do is be onstage. A performer needs to perform.
+ - I grew up in Chicago, and there was always snow. In Los Angeles there never was, so we would always import snow!
+ - The talent that I was blessed with was really for the theater.
+
+42 quotes

@@ -1,0 +1,167 @@
+ - There is no trap so deadly as the trap you set for yourself.
+ - If I wasn’t hard, I wouldn’t be alive. If I couldn’t ever be gentle, I wouldn’t deserve to be alive.
+ - To say goodbye is to die a little.
+ - If you’re not tough it’s hard to survive in this world; and if you’re not kind then you don’t deserve to survive.
+ - A good title is the title of a successful book.
+ - The streets were dark with something more then night.
+ - The more you reason the less you create.
+ - There is no bad whiskey. There are only some whiskeys that aren’t as good as others.
+ - Down these mean streets a man must go who is neither tarnished nor afraid.
+ - The truth of art keeps science from becoming inhuman, and the truth of science keeps art from becoming ridiculous.
+ - Hollywood is wonderful. Anyone who doesn’t like it is either crazy or sober.
+ - The perfect detective story cannot be written. The type of mind which can evolve the perfect problem is not the type of mind that can produce the artistic job of writing.
+ - All reading for pleasure is entertainment.
+ - Most people go through life using up half their energy trying to protect a dignity they never had.
+ - The French have a phrase for it. The bastards have a phrase for everything and they are always right. To say goodbye is to die a little.
+ - Throw up into your typewriter every morning. Clean up every noon.
+ - Good critical writing is measured by the perception and evaluation of the subject; bad critical writing by the necessity of maintaining the professional standing of the critic.
+ - A dead man is the best fall guy in the world. He never talks back.
+ - From 30 feet away she looked like a lot of class. From 10 feet away she looked like something made up to be seen from 30 feet away.
+ - A really good detective never gets married.
+ - As honest as you can expect a man to be in a world where its going out of style.
+ - When in doubt, have a man come through the door with a gun in his hand.
+ - I certainly admire people who do things.
+ - Alcohol is like love. The first kiss is magic, the second is intimate, the third is routine. After that you take the girl’s clothes off.
+ - A good story cannot be devised; it has to be distilled.
+ - Technique alone is never enough. You have to have passion. Technique alone is just an embroidered potholder.
+ - A nice state of affairs when a man has to indulge his vices by proxy.
+ - It was a blonde. A blonde to make a bishop kick a hole in a stained-glass window.
+ - There are two kinds of truth; The truth that lights the way and the truth that warms the heart. The fist of these is science and the second is art.
+ - Two very simple rules: A. You don’t have to write. B. You can’t do anything else The rest comes of itself.
+ - It was a smooth silvery voice that matched her hair. It had a tiny tinkle in it, like bells in a doll’s house. I thought that was silly as soon as I thought of it.
+ - Some days I feel like playing it smooth. Some days I feel like playing it like a waffle iron.
+ - If you liked a book, don’t meet the author.
+ - I belonged in Idle Valley like a pearl onion on a banana split.
+ - Neither of the two people in the room paid any attention to the way I came in, although only one of them was dead.
+ - Don’t ever write anything you don’t like yourself and if you do like it, don’t take anyone’s advice about changing it. They just don’t know.
+ - I have made three rules of writing for myself that are absolutes: Never take advice. Never show or discuss work in progress. Never answer a critic.
+ - The faster I write the better my output. If I’m going slow, I’m in trouble. It means I’m pushing the words instead of being pulled by them.
+ - I looked down at the chessboard. The move with the knight was wrong. I put it back where I had moved it from. Knights had no meaning in this game. It wasn’t a game for knights.
+ - The girl gave him a look which ought to have stuck at least four inches out of his back.
+ - Nice: meaning I’m going to be dating leather-wearing alcoholics and complaining about them – to you.
+ - She smelled the way the Taj Mahal looks by moonlight.
+ - I’m all done with hating you. It’s all washed out of me. I hate people hard, but I don’t hate them very long.
+ - The dilemma of the critic has always been that if he knows enough to speak with authority, he knows too much to speak with detachment.
+ - Dead men are heavier than broken hearts.
+ - I like smooth shiny girls, hardboiled and loaded with sin.
+ - I was as hollow and empty as the spaces between stars.
+ - There was a sad fellow over on a bar stool talking to the bartender, who was polishing a glass and listening with that plastic smile people wear when they are trying not to scream.
+ - The law isn’t justice. It’s a very imperfect mechanism. If you press exactly the right buttons and are also lucky, justice may show up in the answer. A mechanism is all the law was ever intended to be.
+ - It seemed like a nice neighborhood to have bad habits in.
+ - It was a cool day and very clear. You could see a long way-but not as far as Velma had gone.
+ - Under the thinning fog the surf curled and creamed, almost without sound, like a thought trying to form inself on the edge of consciousness.
+ - I’m an occasional drinker, the kind of guy who goes out for a beer and wakes up in Singapore with a full beard.
+ - A man who drinks too much on occasion is still the same man as he was sober. An alcoholic, a real alcoholic, is not the same man at all. You can’t predict anything about him for sure except that he will be someone you never met before.
+ - I’m killing time and it’s dying hard.
+ - She bent over me again. Blood began to move around in me, like a prospective tenant looking over a house.
+ - He sounded like a man who had slept well and didn’t owe too much money.
+ - The wet air was as cold as the ashes of love.
+ - I don’t mind your showing me your legs. They’re very swell legs and it’s a pleasure to make their acquaintace. I don’t mind if you don’t like my manners. They’re pretty bad. I grieve over them during the long winter nights.
+ - I was neat, clean, shaved and sober and I didn’t care who knew it.
+ - She gave me a smile I could feel in my hip pocket.
+ - I always find what I want. But when I find it, I don’t want it any more.
+ - I regard psychiatry as fifty percent bunk, thirty percent fraud, ten percent parrot talk, and the remaining ten percent just a fancy lingo for the common sense we have had for hundreds and perhaps thousands of years, if we ever had the guts to read.
+ - He was a guy who talked with commas, like a heavy novel. Over the phone anyway.
+ - A real gimlet is half gin and half Rose’s lime juice and nothing else.
+ - Show me a man or woman who cannot stand mysteries and I will show you a fool, a clever fool – perhaps – but a fool just the same.
+ - I needed a drink, I needed a lot of life insurance, I needed a vacation, I needed a home in the country. What I had was a coat, a hat and a gun. I put them on and went out of the room.
+ - You can have a hangover from other things than alcohol. I had one from women.
+ - She had eyes like strange sins.
+ - The best way to find out if you have any friends is to go broke. The ones that hang on longest are your friends. I don’t mean the ones that hang on forever. There aren’t any of those.
+ - When I split an infinitive, God damn it, I split it so it stays split.
+ - I guess God made Boston on a wet Sunday.
+ - A writer who is afraid to overreach himself is as useless as a general who is afraid to be wrong.
+ - Everything written with vitality expresses that vitality: there are no dull subjects, only dull minds.
+ - She was kind of girl who’d eat all your cashews and leave you with nothing but peanuts and filberts.
+ - The most durable thing in writing is style, and style is the single most valuable investment a writer can make with his time.
+ - The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.
+ - You can always tell a detective on TV. He never takes his hat off.
+ - Chess is as elaborate a waste of human intelligence as you can find outside an advertising agency.
+ - The character that lasts is an ordinary guy with some extraordinary qualities.
+ - The moment a man begins to talk about technique that’s proof that he is fresh out of ideas.
+ - A check girl in peach-bloom Chinese pajamas came over to take my hat and disapprove of my clothes. She had eyes like strange sins.
+ - Your rat tail is all the fashion now. I prefer a bushy plume, carried straight up. You are Siamese and your ancestors lived in trees. Mine lived in palaces. It has been suggested to me that I am a bit of a snob. How true! I prefer to be.
+ - The plants filled the place, a forest of them, with nasty meaty leaves and stalks like the newly washed fingers of dead men.
+ - Without magic, there is no art. Without art, there is no idealism. Without idealism, there is no integrity. Without integrity, there is nothing but production.
+ - Shake your business up and pour it. I don’t have all day.
+ - Great critics, of whom there are piteously few, build a home for the truth.
+ - She lowered her lashes until they almost cuddled her cheeks and slowly raised them again, like a theatre curtain. I was to get to know that trick. That was supposed to make me roll over on my back with all four paws in the air.
+ - Police business is a hell of a problem. It’s a good deal like politics. It asks for the highest type of men, and there’s nothing in it to attract the highest type of men.
+ - Some are able and humane men and some are low-grade individuals with the morals of a goat, the artistic integrity of a slot machine, and the manners of a floorwalker with delusions of grandeur.
+ - It is wrong to be harsh with the New York critics, unless one admits in the same breath that it is a condition of their existence that they should write entertainingly about something which is rarely worth writing about at all.
+ - Hammett gave murder back to the kind of people that commit it for reasons, not just to provide a corpse; and with the means at hand, not hand-wrought dueling pistols, curare and tropical fish.
+ - Such is the brutalization of commercial ethics in this country that no one can feel anything more delicate than the velvet touch of a soft buck.
+ - California, the department store state.
+ - The coffee shop smell was strong enough to build a garage on.
+ - The challenge is to write about real things magically.
+ - An artist cannot deny art, nor would he want to. A lover cannot deny love.
+ - I think a man ought to get drunk at least twice a year just on principle, so he won’t let himself get snotty about it.
+ - The kind of lawyer you hope the other fellow has.
+ - Everything a writer learns about the art or craft of fiction takes just a little away from his need or desire to write at all. In the end he knows all the tricks and has nothing to say.
+ - The tragedy of life, Howard, is not that the beautiful die young, but that they grow old and mean. It will not happen to me.
+ - If you believe in an idea, you don’t own you, it owns you.
+ - Tall, aren’t you? I didn’t mean to be.
+ - Above all never forget that a marriage is in one way very much like a newspaper. It has to be made fresh every damn day of every damn year.
+ - Organized crime is the dirty side of the sharp dollar.
+ - I knew one thing: as soon as anyone said you didn’t need a gun, you’d better take one along that worked.
+ - I suppose all writers are crazy, but if they are any good, I believe they have a terrible honesty.
+ - The most durable thing in writing is style. It is a projection of personality and you have to have a personality before you can project it. It is the product of emotion and perception.
+ - Love interest nearly always weakens a mystery because it introduces a type of suspense that is antagonistic to the detective’s struggle to solve a problem.
+ - She jerked away from me like a startled fawn might, if I had a startled fawn and it jerked away from me.
+ - It is pretty obvious that the debasement of the human mind caused by a constant flow of fraudulent advertising is no trivial thing. There is more than one way to conquer a country.
+ - Television is just one more facet of that considerable segment of our society that never had any standard but the soft buck.
+ - I merely say that all reading for pleasure is escape, whether it be Greek, mathematics, astronomy, Benedetto Croce, or The Diary of the Forgotten Man. To say otherwise is to be an intellectual snob, and a juvenile at the art of living.
+ - I’m in a wild mood tonight. I want to go dance in the foam. I hear the banshees calling.
+ - If my books had been any worse, I should not have been invited to Hollywood, and if they had been any better, I should not have come.
+ - Not only is the motion picture an art, but it is the one entirely new art that has been evolved on this planet for hundreds of years. It is the only art at which we of this generation have any possible chance to greatly excel.
+ - I’ve found that there are only two kinds that are any good: slang that has established itself in the language, and slang that you make up yourself. Everything else is apt to be passe before it gets into print.
+ - There are no vital and significant forms of art; there is only art, and precious little of that.
+ - They write them long because they can’t write them short.
+ - The modern film tries too hard to be real. Its techniques of illusion are so perfect that it requires no contribution from the audience but a mouthful of popcorn.
+ - If people could deal with each other honestly, they would not need agents.
+ - At least half the mystery novels published violate the law that the solution, once revealed, must seem to be inevitable.
+ - But nothing seems to do any good.
+ - I hung up. It was a good start, but it didn’t go far enough. I ought to have locked the door and hidden under the desk.
+ - All art at some time and in some manner becomes mass entertainment, and if it does not it dies and is forgotten.
+ - All men who read escape from something else into what lies behind the printed page; the quality of the dream may be argued, but its release has become a functional necessity.
+ - As it is she will probably turn out to be one of these acid-faced virgins that sit behind little desks in public libraries and stamp dates in books.
+ - If you don’t leave, I’ll get somebody who will.
+ - Americans will eat anything if it is toasted and held together with a couple of toothpicks and has lettuce sticking out of the sides, preferably a little wilted.
+ - The moment a man sets his thoughts down on paper, however secretly, he is in a sense writing for publication.
+ - Dashiell Hammett took murder out of theVenetian vase and dropped it into the alley.
+ - I had a funny feeling as I saw the house disappear, as though I had written a poem and it was very good and I had lost it and would never remember it again.
+ - An age which is incapable of poetry is incapable of any kind of literature except the cleverness of a decadence.
+ - The flood of print has turned reading into a process of gulping rather than savoring.
+ - It is not a fragrant world.
+ - Let us never accept the point of view that mysteries are written by hacks. The poorest of us shed our blood over every chapter. The best of us start from scratch with every new book.
+ - The English may not always be the best writers in the world, but they are incomparably the best dull writers.
+ - And the commercials would have sickened a goat raised on barbed wire and broken beer bottles.
+ - The private detective of fiction is a fantastic creation who acts and speaks like a real man. He can be completely realistic in every sense but one, that one sense being that in life as we know it such a man would not be a private detective.
+ - They don’t want you until you have made a name, and by the time you have made a name, you have developed some kind of talent they can’t use. All they will do is spoil it, if you let them.
+ - One would think a writer would be happy here – if a writer is every happy anywhere.
+ - When the plot flags, bring in a man with a gun.
+ - All language begins with speech, and the speech of common men at that, but when it develops to the point of becoming a literary medium it only looks like speech.
+ - I sat down on the edge of a deep soft chair and looked at Mrs Regan. She was worth a stare. She was trouble.
+ - However toplofty and idealistic a man may be, he can always rationalize his right to earn money.
+ - Dames lie about anything – just for practice.
+ - Any man who can write a page of living prose adds something to our life, and the man who can, as I can, is surely the last to resent someone who can do it even better. An artist cannot deny art, nor would he want to. A lover cannot deny love.
+ - It is just possible that the tensions in a novel of murder are the simplest and yet most complete pattern of the tensions on which we live in this generation.
+ - You can’t tell a doper well under control from a vegetarian book-keeper.
+ - She was the music heard faintly on the edge of sound.
+ - Courage is a strange thing: One can never be sure of it.
+ - You can’t have everything, even in California.
+ - The creative artist seems to be almost the only kind of man that you could never meet on neutral ground. You can only meet him as an artist. He sees nothing objectively because his own ego is always in the foreground of every picture.
+ - It is not funny that a man should be killed, but it is sometimes funny that he should be killed for so little, and that his death should be the coin of what we call civilization.
+ - When a book, any sort of book, reaches a certain intensity of artistic performance it becomes literature.
+ - In everything that can be called art there is a quality of redemption.
+ - LA doesn’t have the heart of a paper cup.
+ - The challenge of screenwriting is to say much in little and then take half of that little out and still preserve an effect of leisure and natural movement.
+ - It is a language which is being molded by writers to do delicate things and yet be in the grasp of superficially educated people.
+ - The actual writing is what you live for. The rest is something you have to get through in order to arrive at the point.
+ - Most critical writing is drivel and half of it is dishonest. It is a short cut to oblivion, anyway. Thinking in terms of ideas destroys the power to think in terms of emotions and sensations.
+ - He snorted and hit me in the solar plexus. I bent over and took hold of the room with both hands and spun it. When I had it nicely spinning I gave it a full swing and hit myself on the back of the head with the floor.
+ - The test of a writer is whether you want to read him again years after he should by the rules be dated.
+ - I do a great deal of research – particularly in the apartments of tall blondes.
+ - I like bars just after they open in the evening. When the air inside is still cool and clean and everything is shiny. The first quiet drink of the evening in a quiet bar – that’s wonderful.
+
+165 quotes

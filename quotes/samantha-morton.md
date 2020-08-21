@@ -1,0 +1,31 @@
+ - Everyone wants to look their best, everyone has dreams of wanting to look like something else. But we are who we are.
+ - I’m an actor. That’s what I’m gifted at. It’s what makes me breathe.
+ - It’s important to have masculine energy around your child.
+ - I’m not a writer. I think I can write short stories and poetry, but film writing, brilliant film writing, is a talent – you can’t just do it like that.
+ - I have worked very hard on being aware of my childhood but moving forward and not letting it bring me down emotionally. That is a hard thing – especially when you have children of your own and you remember what happened to you at that age.
+ - When you’ve been raised in care, rap music isn’t just about guns and sexism. They’re talking about real things you can hang on to, problems of identity that you have sympathy with. It’s not just about the music, with rap: when I was in care, it meant a whole lot more than that.
+ - I could be equally happy on a film set or in the middle of a field.
+ - Youve got all these books on self help, getting to know yourself, doing the right thing, eating the so-called right foods, even down to what books you have on your shelves. People are encouraged to look to themselves first as opposed to being a part of society.
+ - I want to prove that you don’t have to come from Oxford University or Rada – and you don’t have to have parents that support you – to succeed.
+ - We’re all living blinkered lives, and we’re not seeing what’s going on and looking to change it. I’m not saying that everyone has to make a political statement, but we need to be more aware of what’s happening and why.
+ - What shocks me is that so many people leave care and become homeless, and when you’re homeless you get into crime, prostitution and drugs, and it is a vicious circle. That’s what we need to change.
+ - I am proud of what I’ve done.
+ - The more visionary the idea, the more people it leaves behind.
+ - I don’t get the point in a lot of biopics, they’re boring. You know what’s gonna happen. You’re just watching actors show off.
+ - I can’t act without music very well.
+ - I respond very well to well-written material and women who have had an effect on society, something tragic or monumental has happened to them.
+ - Some directors cast you because they trust you to do the performance – but then they forget to direct you.
+ - I like to stretch my acting muscles.
+ - Catholicism played such a huge part in my life, I would not have survived without my faith.
+ - I just get really defensive as soon as anyone comes near my personal life. I made a decision early on that it’s strictly off-limits. No exceptions.
+ - I’ll never get a part in a huge action blockbuster.
+ - To be honest with you, a lot of directors can be very lazy.
+ - I think there’s a very fine line between the type of performing that some actors do, and being in a state in your mind where you actually believe what’s going on. If we weren’t actors, what would we do with that ability? Would we not be slightly insane? Mentally ill? I don’t know.
+ - I was angry but not at God. I feel that you are closer to God when you are messed up. Definitely. That’s when you most need God, and God cannot control what man does.
+ - I was physically abused and I retaliated.
+ - I think once you’re a mother to one, you’re a mother to them all.
+ - I believe it is my duty as a performer to raise issues in the world of things we’re afraid to look at.
+ - My mind boggles at the amount of violence inflicted upon children in today’s society.
+ - I think anybody who has been abused as a kid – and I was abused as a kid, by various people – will say it’s irrational because violence is irrational.
+
+29 quotes

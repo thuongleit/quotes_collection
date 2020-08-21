@@ -1,0 +1,36 @@
+ - Everything is a learning process: any time you fall over, it’s just teaching you to stand up the next time.
+ - The last TV show I binged on was ‘Hannibal’ because it stars two of my friends, Mads Mikkelsen and Hugh Dancy, who I first met filming ‘King Arthur’ back in 2003, and I just lapped this show up; loved it.
+ - I’m single, footloose and fancy free, I have no responsibilities, no anchors. Work, friendship and self-improvement, that’s me.
+ - I can’t sing or dance.
+ - It feels good to be fit and strong.
+ - I always kept myself fairly fit.
+ - I have a lot of ideas that I feel are half-formed, or half-way okay.
+ - My brother and I are best friends.
+ - Sometimes, the smaller roles in movies can be the most interesting. If you only take the stance that you’ll only play central characters in movies, you’ll find yourself not being able to indulge in that morally grey terrain that makes support characters so rich and interesting.
+ - There’s something nice about making a night of the theater rather than sitting in front of your TV.
+ - I’m on the list that I thought I’d never be on. I’m not sitting here thinking, ‘God, I might get this part’ or ‘is it too late for me to play Hamlet?’ It’s really about: who do I get to work with? There’s so many people on that list.
+ - The sum total of all my stop-starts have made me less concerned about the future. I’m just aware now that I’ll always land on my feet somehow.
+ - I’m really good at judging and observing other people, but not myself.
+ - I have always stuck to my guns about what I want from the work and what interests me. I’ve never been seduced down the evil path. The path of taking the money.
+ - The first video I ever watched was on a Beta system because everyone thought Beta was the way but then it ended up being video so we backed the wrong horse.
+ - Whenever you deal with science fiction you are setting up a world of rules. I think you work hard to establish the rules. And you also have to work even harder to maintain those rules, and within that find excitement and unpredictability and all that stuff.
+ - To act with a tennis ball and imagine it’s a tentacle, or if you’re in some kind of wilderness film and you go, ‘Okay, we can’t have a grizzly bear here, but imagine when you step over the rock there there’s a grizzly bear.’ I don’t know. They’re tough moments.
+ - The tricky thing becomes: Do you know yourself well enough to then portray that on screen? And for me, I find that really hard. I’d rather hide behind accents and funny walks.
+ - I often times find with movies that the heavier the onscreen situation is, the more levity there is off screen. It’s almost out of necessity.
+ - North America makes a ton of movies and there’s a ton of movies that are exceptional.
+ - Whereas ‘Avatar’ and other movies get shocks out of their three-dimensionality, ‘Gatsby’ is going to be about inviting the audience into this larger-than-life drama, letting them almost be inside the room rather than looking at it through the window. I think it will really work.
+ - I’m hardly digging trenches for a living. I’m getting to tap into my boyhood fantasies of being a larger-than-life character.
+ - There’s the pressure of being a No. 1 on the call sheet, being a lead actor. There’s almost this feeling like being captain of the team. You want to put a bit of energy into actually setting a good example.
+ - I’m not scared of doing movies that are just about entertainment. I’m not scared of doing movies that are really challenging and cover difficult terrain. I just want good experiences and I want to challenge myself and I want to just keep learning, as an actor.
+ - I’m not going to allow myself to second-guess projects. I’m just going to do the ones that I fully love and believe in – that’s a real privilege.
+ - When people are really great at what they do there is no aggression because they are comfortable in their own skin. They know themselves well enough that you don’t have anything to prove.
+ - Every job leaves its residue, a bit of extra knowledge, a new skill-set.
+ - The recipe for any character is always very interesting, as far as what doses of certain qualities you want.
+ - The biggest difference for me is momentum. On a smaller film you get to shoot sometimes four or five scenes a day and you’ve got to do the tight schedule. I think I really feel the luxuries of a big budget film.
+ - Basically you want as many people as possible to see your movie.
+ - That’s one of the great privileges, being an actor, is that someone pays you and sends you off to learn about something that otherwise you’d never know about.
+ - It’s tricky. I’ve never been standing at the top of the tree with tons of money thrown at me. I’ve never really had a profile. So in a way I have this ‘nothing to lose’ attitude.
+ - There’s a real sense of fighting and destruction in our DNA that we don’t get in touch with.
+ - One of the things I’ve always enjoyed is moving around and staying fit. Physicality is such a big part of being an actor, but it’s also about stillness and silence.
+
+34 quotes

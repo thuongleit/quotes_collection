@@ -1,0 +1,96 @@
+ - The journey of a thousand miles begins with a single step.
+ - If you are depressed you are living in the past. If you are anxious you are living in the future. If you are at peace you are living in the present.
+ - The best fighter is never angry.
+ - Care about what other people think and you will always be their prisoner.
+ - Knowledge is a treasure, but practice is the key to it.
+ - Nature does not hurry, yet everything is accomplished.
+ - When I let go of what I am, I become what I might be.
+ - Stop thinking, and end your problems.
+ - To a mind that is still the whole universe surrenders.
+ - I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
+ - Stop leaving and you will arrive. Stop searching and you will see. Stop running away and you will be found.
+ - Do you have the patience to wait until your mud settles and the water is clear?
+ - Great acts are made up of small deeds.
+ - Perfection is the willingness to be imperfect.
+ - When you are content to be simply yourself and don’t compare or compete, everyone will respect you.
+ - Music in the soul can be heard by the universe.
+ - Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.
+ - What the caterpillar calls the end, the rest of the world calls a butterfly.
+ - If you do not change direction, you may end up where you are heading.
+ - A good traveler has no fixed plans and is not intent on arriving.
+ - A man with outward courage dares to die; a man with inner courage dares to live.
+ - Be content with what you have; rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you.
+ - By letting go it all gets done.
+ - He who controls others may be powerful, but he who has mastered himself is mightier still.
+ - Those who flow as life flows know they need no other force.
+ - Accomplish but do not boast, accomplish without show, accomplish without arrogance, accomplish without grabbing, accomplish without forcing.
+ - The reason why the universe is eternal is that it does not live for itself; it gives life to others as it transforms.
+ - The flame that burns Twice as bright burns half as long.
+ - If you wish to be out front, then act as if you were behind.
+ - Manifest plainness, embrace simplicity, reduce selfishness, have few desires.
+ - If you try to change it, you will ruin it. Try to hold it, and you will lose it.
+ - Act without expectation.
+ - Silence is a source of great strength.
+ - Those who know do not speak. Those who speak do not know.
+ - A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
+ - To attain knowledge, add things everyday. To attain wisdom, remove things every day.
+ - If you correct your mind, the rest of your life will fall into place.
+ - There is no greater danger than underestimating your opponent.
+ - Doing nothing is better than being busy doing nothing.
+ - Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power. If you realize that you have enough, you are truly rich.
+ - Your own positive future begins in this moment. All you have is right now. Every goal is possible from here.
+ - The way to do is to be.
+ - Respond intelligently even to unintelligent treatment.
+ - To hold, you must first open your hand. Let go.
+ - To see things in the seed, that is genius.
+ - Give evil nothing to oppose and it will disappear by itself.
+ - Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.
+ - As soon as you have made a thought, laugh at it.
+ - Muddy water, let stand, becomes clear.
+ - The truth is not always beautiful, nor beautiful words the truth.
+ - He who knows that enough is enough will always have enough.
+ - Loss is not as bad as wanting more.
+ - If a person seems wicked, do not cast him away. Awaken him with your words, elevate him with your deeds, repay his injury with your kindness. Do not cast him away; cast away his wickedness.
+ - There is a time to live and a time to die but never to reject the moment.
+ - Close your mouth, block off your senses, blunt your sharpness, untie your knots, soften your glare, settle your dust. This is the primal identity.
+ - To know that you do not know is the best. To think you know when you do not is a disease. Recognizing this disease as a disease is to be free of it.
+ - Simplicity, patience, compassion. These three are your greatest treasures. Simple in actions and thoughts, you return to the source of being. Patient with both friends and enemies, you accord with the way things are. Compassionate toward yourself, you reconcile all beings in the world.
+ - In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don’t try to control. In work, do what you enjoy. In family life, be completely present.
+ - Every step is on the path.
+ - The further one goes, the less one knows.
+ - When there is no desire, all things are at peace.
+ - Do your work, then step back. The only path to serenity.
+ - Hope and fear are both phantoms that arise from thinking of the self. When we don’t see the self as self, what do we have to fear?
+ - So the unwanting soul sees what’s hidden, and the ever-wanting soul sees only what it wants.
+ - If you want to lead them you must place yourself behind them.
+ - Because of a great love, one is courageous.
+ - Take care with the end as you do with the beginning.
+ - One who is too insistent on his own views finds few to agree with him.
+ - To understand the limitation of things, desire them.
+ - The snow goose need not bathe to make itself white. Neither need you do anything but be yourself.
+ - Become totally empty Quiet the restlessness of the mind Only then will you witness everything unfolding from emptiness.
+ - Colors blind the eye Sounds deafen the ear. Flavors numb the taste. Thoughts weaken the mind. Desires wither the heart.
+ - Spring comes, and the grass grows by itself.
+ - Just remain in the center; watching. And then forget that you are there.
+ - Some lose yet gain, others gain and yet lose.
+ - She does not show herself, and therefore is apparent. She does not affirm herself, and therefore is acknowledged. She does not boast and therefore has merit. She does not strive and therefore is successful. It is exactly because she does not contend, that nobody can contend with her.
+ - To be worn out is to be renewed.
+ - The master observes the world but trusts his inner vision. He allows things to come and go. He prefers what is within to what is without.
+ - To realize that you do not understand is a virtue; not to realize that you do not understand is a defect.
+ - Love is of all the passions the strongest, for it attacks simultaneously the head, the heart, and the senses.
+ - True words are not fancy. Fancy words are not true. The good do not debate. Debaters are not good.
+ - Countless words count less than the silent balance between yin and yang.
+ - Knowing others is wisdom; Knowing the self is enlightenment. Mastering others requires force; Mastering the self requires strength; He who knows he has enough is rich. Perseverance is a sign of will power.
+ - Do you imagine the universe is agitated? Go into the desert at night and look at the stars. This practice should answer the question.
+ - A good traveler leaves no tracks. Good speech lacks fault-finding.
+ - To bear and not to own; to act and not lay claim; to do the work and let it go: for just letting it go is what makes it stay.
+ - When people see some things as beautiful, other things become ugly. When people see some things as good, other things become bad.
+ - Not-knowing is true knowledge. Presuming to know is a disease. First realize that you are sick; then you can move toward health.
+ - The difficult problems in life always start off being simple. Great affairs always start off being small.
+ - When goodness is lost there is morality.
+ - The person of superior integrity does not insist upon his integrity. For this reason, he has integrity. The person of inferior integrity never loses sight of his integrity; For this reason, he lacks integrity.
+ - When pure sincerity forms within, it is outwardly realized in other people’s hearts.
+ - If you are untrustworthy, people will not trust you.
+ - When the people of the world all know beauty as beauty, there arises the recognition of ugliness. When they all know the good as good, there arises the recognition of evil.
+
+94 quotes

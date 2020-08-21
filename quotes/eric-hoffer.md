@@ -1,0 +1,474 @@
+ - In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.
+ - Every great cause begins as a movement, becomes a business, and eventually degenerates into a racket.
+ - To change everything, simply change your attitude.
+ - People who bite the hand that feeds them usually lick the boot that kicks them.
+ - The future belongs to the learners-not the knowers.
+ - The creative mind is the playful mind. Philosophy is the play and dance of ideas.
+ - To learn you need a certain degree of confidence, not too much and not too little. If you have too little confidence, you will think you can’t learn. If you have too much, you will think you don’t have to learn.
+ - A man is likely to mind his own business when it is worth minding. When it is not, he takes his mind off his own meaningless affairs by minding other people’s business.
+ - We feel free when we escape – even if it be but from the frying pan to the fire.
+ - The leader has to be practical and a realist, yet must talk the language of the visionary and the idealist.
+ - The only way to predict the future is to have power to shape the future.
+ - Rudeness is a weak imitation of strength.
+ - You can never get enough of what you don’t need to make you happy.
+ - We lie the loudest when we lie to ourselves.
+ - For many people, an excuse is better than an achievement because an achievement, no matter how great, leaves you having to prove yourself again in the future; but an excuse can last for life.
+ - You can discover what your enemy fears most by observing the means he uses to frighten you.
+ - Nothing so bolsters our self-confidence and reconciles us with ourselves as the continuous ability to create; to see things grow and develop under our hand, day in, day out.
+ - The hardest arithmetic to master is that which enables us to count our blessings.
+ - Every new adjustment is a crisis in self-esteem.
+ - It is futile to judge a kind deed by its motives. Kindness can become its own motive. We are made kind by being kind.
+ - Absolute power turns its possessors not into a God but an anti-God. For God turned clay into men, while the absolute despot turns men into clay.
+ - A war is not won if the defeated enemy has not been turned into a friend.
+ - Someone who thinks the world is always cheating him is right. He is missing that wonderful feeling of trust in someone or something.
+ - We are told that talent creates its own opportunities. But it sometimes seems that intense desire creates not only its own opportunities, but its own talents.
+ - Self-righteousness is a manifestation of self-contempt.
+ - What monstrosities would walk the streets were some people’s faces as unfinished as their minds.
+ - Fair play is primarily not blaming others for anything that is wrong with us.
+ - We never say so much as when we do not quite know what we want to say. We need few words when we have something to say, but all the words in all the dictionaries will not suffice when we have nothing to say and want desperately to say it.
+ - Propaganda does not deceive people; it merely helps them to deceive themselves.
+ - The true believer, no matter how rowdy and violent his acts, is basically an obedient and submissive person.
+ - Passionate hatred can give meaning and purpose to an empty life.
+ - The feeling of being hurried is not usually the result of living a full life and having no time. It is on the contrary born of a vague fear that we are wasting our life. When we do not do the one thing we ought to do, we have no time for anything else – we are the busiest people in the world.
+ - To dispose a soul to action we must upset its equilibrium.
+ - It is our talents rusting unused within us that secrete the poison of self-doubt into our bloodstream.
+ - Creativity is the ability to introduce order into the randomness of nature.
+ - Disappointment is a sort of bankruptcy – the bankruptcy of a soul that expends too much in hope and expectation.
+ - No matter how noble the objectives of a government, if it blurs decency and kindness, cheapens human life, and breeds ill will and suspicion; it is an evil government.
+ - A plant needs roots in order to grow. With man it is the other way around: only when he grows does he have roots and feels at home in the world.
+ - To wrong those we hate is to add fuel to our hatred. Conversely, to treat an enemy with magnanimity is to blunt our hatred for him.
+ - Mass movements can rise and spread without belief in a God, but never without belief in a devil.
+ - When people are free to do as they please, they usually imitate each other.
+ - In a time of drastic change, it is the learners who inherit the future.
+ - The search for happiness is one of the chief sources of unhappiness.
+ - Nature is a self-made machine, more perfectly automated than any automated machine. To create something in the image of nature is to create a machine, and it was by learning the inner working of nature that man became a builder of machines.
+ - Woe to him inside a non-conformist clique who does not conform to non-conformity.
+ - Rudeness luxuriates in the absence of self-respect.
+ - We can be absolutely certain only about things we do not understand.
+ - Nothing comes easily. My work smells of sweat.
+ - No matter what our achievements might be, we think well of ourselves only in rare moments. We need people to bear witness against our inner judge, who keeps book on our shortcomings and transgressions. We need people to convince us that we are not as bad as we think we are.
+ - Judgment consists not in seeing through deceptions and evil intentions, but in being able to awaken the decency dormant in every person.
+ - Self-contempt, however vague, sharpens our eyes for the imperfections of others. We usually strive to reveal in others the blemishes we hide in ourselves.
+ - Faith, enthusiasm, and passionate intensity in general are substitutes for the self-confidence born of experience and the possession of skill. Where there is the necessary skill to move mountains there is no need for the faith that moves mountains.
+ - Anger is a prelude to courage.
+ - The fanatic is not really a stickler to principle. He embraces a cause not primarily because of its justness or holiness but because of his desperate need for something to hold onto.
+ - Creativity is discontent translated into arts.
+ - The passion for equality is partly a passion for anonymity: to be one thread of the many which make up a tunic; one thread not distinguishable from the others. No one can then point us out, measure us against others and expose our inferiority.
+ - Compassion is the antitoxin of the soul: where there is compassion even the most poisonous impulses remain relatively harmless.
+ - There is a time when the word “eventually” has the soothing effect of a promise, and a time when the word evokes in us bitterness and scorn.
+ - The craving to change the world is perhaps a reflection of the craving to change ourselves.
+ - There can be no freedom without freedom to fail.
+ - The impression somehow prevails that the true believer, particularly the religious individual, is a humble person. The truth is that the surrendering and humbling of the self breeds pride and arrogance.
+ - If the Communists win Europe and a large part of the world, it will not be because they know how to stir up discontent or how to infect people with hatred, but because they know how to preach hope.
+ - Ideas have significance for him only as a prelude to action.
+ - The less justified a man is in claiming excellence for his own self, the more ready is he to claim all excellence for his nation, his religion, his race or his holy cause.
+ - Youth itself is a talent, a perishable talent.
+ - Unless a man has talents to make something of himself, freedom is an irksome burden. Of what avail is freedom to choose if the self be ineffectual? We join a mass movement to escape individual responsibility, or, in the words of the ardent young Nazi, “to be free from freedom.”
+ - The self-despisers are less intent on their own increase than on the diminution of others. Where self-esteem is unobtainable, envy takes the place of greed.
+ - It is by its promise of a sense of power that evil often attracts the weak.
+ - There is no alienation that a little power will not cure.
+ - I have a premonition that will not leave me: as it goes with Israel so will it go with all of us. Should Israel perish, the holocaust will be upon us.
+ - There would be no society if living together depended upon understanding each other.
+ - Language was invented to ask questions. Answers may be given by grunts and gestures, but questions must be spoken. Humanness came of age when man asked the first question. Social stagnation results not from a lack of answers but from the absence of the impulse to ask questions.
+ - A just society must strive with all its might to right wrongs even if righting wrongs is a highly perilous undertaking. But if it is to survive, a just society must be strong and resolute enough to deal swiftly and relentlessly with those who would mistake its good will for weakness.
+ - The technique of a mass movement aims to infect people with a malady and then offer the movement as a cure.
+ - Children, savages and true believers remember far less what they have seen than what they have heard.
+ - In every passionate pursuit, the pursuit counts more than the object pursued.
+ - What starts out here as a mass movement ends up as a racket, a cult, or a corporation.
+ - There is always a chance that he who sets himself up as his brother’s keeper will end up by being his jail-keeper.
+ - The real persuaders are our appetites, our fears and above all our vanity. The skillful propagandist stirs and coaches these internal persuaders.
+ - When hopes and dreams are loose in the streets, it is well for the timid to lock doors, shutter windows and lie low until the wrath has passed.
+ - Naivete in grownups is often charming; but when coupled with vanity it is indistinguishable from stupidity.
+ - When the Greeks said, Whom the gods love die young, they probably meant, as Lord Sankey suggested, that those favored by the gods stay young till the day they die; young and playful.
+ - Our sense of power is more vivid when we break a man’s spirit than when we win his heart.
+ - The remarkable thing is that it is the crowded life that is most easily remembered. A life full of turns, achievements, disappointments, surprises, and crises is a life full of landmarks. The empty life has even its few details blurred, and cannot be remembered with certainty.
+ - Man was nature’s mistake she neglected to finish him and she has never ceased paying for her mistake.
+ - We need not only a purpose in life to give meaning to our existence but also something to give meaning to our suffering. We need as much something to suffer for as something to live for.
+ - There is no doubt that in exchanging a self-centered for a selfless life we gain enormously in self-esteem. The vanity of the selfless, even those who practice utmost humility, is boundless.
+ - Far more crucial than what we know or do not know is what we do not want to know. One often obtains a clue to a person’s nature by discovering the reasons for his or her imperviousness to certain impressions.
+ - The suspicious mind believes more than it doubts. It believes in a formidable and ineradicable evil lurking in every person.
+ - The oppressed want above all to imitate their oppressors; they want to retaliate.
+ - To be aware how fruitful the playful mood can be is to be immune to the propaganda of the alienated, which extols resentment as a fuel of achievement.
+ - There is a guilty conscience behind every brazen word and act and behind every manifestation of self-righteousness.
+ - When you automate an industry you modernize it; when you automate a life you primitivize it.
+ - One of the surprising privileges of intellectuals is that they are free to be scandalously asinine without harming their reputations.
+ - There are many who find a good alibi far more attractive than an achievement.
+ - Though they seem at opposite poles, fanatics of all kinds are actually crowded together at one end. It is the fanatic and the moderate who are poles apart and never meet.
+ - All mass movements avail themselves of action as a means of unification. The conflicts a mass movement seeks and incites serve not only to down its enemies but also to strip its followers of their distinct individuality and render them more soluble in the collective medium.
+ - Where freedom is real, equality is the passion of the masses. Where equality is real, freedom is the passion of a small minority.
+ - It is not actual suffering but the taste of better things which excites people to revolt.
+ - It almost seems that nobody can hate America as much as native Americans. America needs new immigrants to love and cherish it.
+ - We used to think that revolutions are the cause of change. Actually it is the other way around: change prepares the ground for revolution.
+ - When people are bored it is primarily with themselves.
+ - The devil personifies not the nature that is around us but the nature that is within us- the infinitely ferocious and cunning prehuman creature that is still within us, sealed in the subconscious cellars of the psyche.
+ - Those who feel guilty are afraid; and those who are afraid somehow feel guilty. To the onlooker, too, the fearful seem guilty.
+ - Absolute faith corrupts as absolutely as absolute power.
+ - One might equate growing up with a mistrust of words. A mature person trusts his eyes more than his ears. Irrationality often manifests itself in upholding the word against the evidence of the eyes. Children, savages and true believers remember far less what they have seen than what they have heard.
+ - Unity and self-sacrifice, of themselves, even when fostered by the most noble means, produce a facility for hating. Even when men league themselves mightily together to promote tolerance and peace on earth, they are likely to be violently intolerant toward those not of a like mind.
+ - It is loneliness that makes the loudest noise. This is true of men as of dogs.
+ - Collective unity is not the result of the brotherly love of the faithful for each other. The loyalty of the true believer is to the whole the church, party, nation and not to his fellow true believer. True loyalty between individuals is possible only in a loose and relatively free society .
+ - The best part of the art of living is to know how to grow old gracefully.
+ - Modern man is weighed down more by the burden of responsibility than by the burden of sin. We think him more a savior who shoulders our responsibilities than him who shoulders our sins. If instead of making decisions we have but to obey and do our duty, we feel it as a sort of salvation.
+ - A preoccupation with the future not only prevents us from seeing the present as it is but often prompts us to rearrange the past.
+ - To have a grievance is to have a purpose in life. It not infrequently happens that those who hunger for hope give their allegiance to him who offers them a grievance.
+ - Nonconformists travel as a rule in bunches. You rarely find a nonconformist who goes it alone. And woe to him inside a nonconformist clique who does not conform with nonconformity.
+ - The short-lived self, teetering on the edge of extinction, is the only thing that can ever really matter.
+ - The link between ideas and action is rarely direct. There is almost always an intermediate step in which the idea is overcome.
+ - It is the awareness of unfulfilled desires which gives a nation the feeling that it has a mission and a destiny.
+ - It is not at all simple to understand the simple.
+ - An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head.
+ - With some people solitariness is an escape not from others but from themselves. For they see in the eyes of others only a reflection of themselves.
+ - The conservatism of a religion – it’s orthodoxy – is the inert coagulum of a once highly reactive sap.
+ - Nature attains perfection, but man never does.
+ - Both the revolutionary and the creative individual are perpetual juveniles. The revolutionary does not grow up because he cannot grow, while the creative individual cannot grow up because he keeps growing.
+ - Capitalism is at its liberating best in a noncapitalist environment. The crypto-businessman is the true revolutionary in a Communist country.
+ - The superficiality of many is a result of deep fears. It takes spare time to think things out; it takes free time to mature. People in a hurry may not think well or mature well. The next best is a state of perpetual puerility.
+ - The basic test of freedom is perhaps less in what we are free to do than in what we are free not to do.
+ - No one has a right to happiness.
+ - No matter what our achievements might be, we think well of ourselves only in rare moments.
+ - It is the individual only who is timeless. Societies, cultures, and civilizations – past and present – are often incomprehensible to outsiders, but the individual’s hungers, anxieties, dreams, and preoccupations have remained unchanged through the millenia.
+ - Ours is a golden age of minorities. At no time in the past have dissident minorities felt so much at home and had so much room to throw their weight around. They speak and act as if they were “the people,” and what they abominate most is the dissent of the majority.
+ - Add a few drops of venom to a half truth and you have an absolute truth.
+ - The savior who wants to turn men into angels is as much a hater of human nature as the totalitarian despot who wants to turn them into puppets.
+ - Children are the keys of paradise.
+ - Whoever originated the cliche that money is the root of all evil knew hardly anything about the nature of evil and very little about human beings.
+ - To a man utterly without a sense of belonging, mere life is all that matters. It is the only reality in an eternity of nothingness, and he clings to it with shameless despair.
+ - A grievance is most poignant when almost redressed.
+ - To the frustrated, freedom from responsibility is more attractive than freedom from restraint.
+ - People whose lives are barren and insecure seem to show a greater willingness to obey than people who are self-sufficient and self-confident. To the frustrated, freedom from responsibility is more attractive than freedom from restraint.
+ - Unless a man has the talents to make something of himself, freedom is an irksome burden.
+ - The misery of a child is interesting to a mother, the misery of a young man is interesting to a young woman, the misery of an old man is interesting to nobody.
+ - Spiritual stagnation ensues when man’s environment becomes unpredictable or when his inner life is made wholly predictable.
+ - It is part of the formidableness of a genuine mass movement that the self-sacrifice it promotes includes also a sacrifice of some of the moral sense, which cramps and restrains our nature.
+ - Man is a luxury loving animal. Take away play, fancies, and luxuries, and you will turn man into a dull, sluggish creature, barely energetic enough to obtain a bare subsistence. A society becomes stagnant when its people are too rational or too serious to be tempted by baubles.
+ - Compassion is the antitoxin of the soul.
+ - The weakness of a soul is proportionate to the number of truths that must be kept from it.
+ - Failure in the management of practical affairs seems to be a qualification for success in the management of public affairs.
+ - People in a hurry cannot think, cannot grow, nor can they decay. They are preserved in a state of perpetual puerility.
+ - The individual who has to justify his existence by his own efforts is in eternal bondage to himself.
+ - If a society is to preserve stability and a degree of continuity, it must learn how to keep its adolescents from imposing their tastes, values, and fantasies on everyday life.
+ - It would be difficult to exaggerate the degree to which we are influenced by those we influence.
+ - The wisdom of others remains dull till it is writ over with our own blood. We are essentially apart from the world; it bursts into our consciousness only when it sinks its teeth and nails into us.
+ - The atheist is a religious person. He believes in atheism as though it were a new religion. According to Renan, “The day after that on which the world should no longer believe in God, atheists would be the wretchedest of all men.”
+ - When we do not do the one thing we ought to do, we have no time for anything else – we are the busiest people in the world.
+ - It is a paradox that in our time of drastic rapid change, when the future is in our midst devouring the present before our eyes, we have never been less certain about what is ahead of us.
+ - It is the pull of opposite poles that stretches souls. And only stretched souls make music.
+ - The effectiveness of a doctrine does not come from its meaning but from its certitude. No doctrine however profound and sublime will be effective unless it is presented as the embodiment of the one and only truth.
+ - Glory is largely a theatrical concept. There is no striving for glory without a vivid awareness of an audience.
+ - Man is eminently a storyteller. His search for a purpose, a cause, an ideal, a mission and the like is largely a search for a plot and a pattern in the development of his life story – a story that is basically without meaning or pattern.
+ - Retribution often means that we eventually do to ourselves what we have done unto others.
+ - We do not usually look for allies when we love. Indeed, we often look on those who love with us as rivals and trespassers. But we always look for allies when we hate.
+ - Our passionate preoccupation with the sky, the stars, and a God somewhere in outer space is a homing impulse. We are drawn back to where we came from.
+ - The intellectuals and the young, booted and spurred, feel themselves born to ride us.
+ - Nature has no compassion. Nature accepts no excuses and the only punishment it knows is death.
+ - It needs some intelligence to be truly selfish. The unintelligent can only be self-righteous.
+ - Thought is a process of exaggeration. The refusal to exaggerate is not infrequently an alibi for the disinclination to think or praise.
+ - When the weak want to give an impression of strength they hint menacingly at their capacity for evil. It is by its promise of a sense of power that evil often attracts the weak.
+ - Faith in humanity, in posterity, in the destiny of one’s religion, nation, race, party or family-what is it but the visualization of that eternal something to which we attach the self that is about to be annihilated?
+ - My writing is done in railroad yards while waiting for a freight, in the fields while waiting for a truck, and at noon after lunch. Towns are too distracting.
+ - No one is truly literate who cannot read his own heart.
+ - Animals can learn, but it is not by learning that they become dogs, cats, or horses. Only man has to learn to become what he is supposed to be.
+ - We are more prone to generalize the bad than the good. We assume that the bad is more potent and contagious.
+ - It is a talent of the weak to persuade themselves that they suffer for something when they suffer from something; that they are showing the way when they are running away; that they see the light when they feel the heat; that they are chosen when they are shunned.
+ - Passionate intensity may serve as a substitute for confidence.
+ - First something is a great idea, then it becomes a cause, then it becomes a business and finally it becomes a racket.
+ - We are unified both by hating in common and by being hated in common.
+ - Those who would sacrifice a generation to realize an ideal are the enemies of mankind.
+ - The necessary has never been man’s top priority. The passionate pursuit of the nonessential and the extravagant is one of the chief traits of human uniqueness. Unlike other forms of life, man’s greatest exertions are made in the pursuit not of necessities but of superfluities.
+ - To become different from what we are, we must have some awareness of what we are.
+ - There is sublime thieving in all giving. Someone gives us all he has and we are his.
+ - We cannot hate those who we despise.
+ - The wise learn from the experience of others, and the creative know how to make a crumb of experience go a long way.
+ - Successful action tends to become an end in itself.
+ - There is a totalitarian regime inside every one of us. We are ruled by a ruthless politburo which sets our norms and drives us from one five-year plan to another. The autonomous individual who has to justify his existence by his own efforts is in eternal bondage to himself.
+ - How much easier is self-sacrifice than self-realization!
+ - When we are in competition with ourselves, and match our todays against our yesterdays, we derive encouragement from past misfortunes and blemishes. Moreover, the competition with ourselves leaves unimpaired our benevolence toward our fellow men.
+ - Our achievements speak for themselves. What we have to keep track of are our failures, discouragements and doubts.
+ - Even in slight things the experience of the new is rarely without some stirring of foreboding.
+ - Somewhere between the Angels and the French lies the rest of humanity.
+ - The quality of ideas seems to play a minor role in mass movement leadership. What counts is the arrogant gesture, the complete disregard of the opinion of others, the singlehanded defiance of the world.
+ - Should Americans begin to hate foreigners wholeheartedly, it will be an indication that they have lost confidence in their own way of life.
+ - The burning conviction that we have a holy duty toward others is often a way of attaching our drowning selves to a passing raft.
+ - A dissenting minority feels free only when it can impose its will on the majority: what it abominates most is the dissent of the majority.
+ - Language was invented to ask questions.
+ - Men of thought seldom work well together, whereas between men of action there is usually an easy camaraderie.
+ - Though dissenters seem to question everything in sight, they are actually bundles of dusty answers and never conceived a new question. What offends us most in the literature of dissent is the lack of hesitation and wonder.
+ - A good sentence is a key. It unlocks the mind of the reader.
+ - The unpredictability inherent in human affairs is due largely to the fact that the by-products of a human process are more fateful than the product.
+ - Where there is the necessary technical skill to move mountains, there is no need for the faith that moves mountains.
+ - It was the craving to be a one and only people which impelled the ancient Hebrews to invent a one and only God whose one and only people they were to be.
+ - It is the stretched soul that makes music, and souls are stretched by the pull of opposites-opposite bents, tastes, yearnings, loyalties. Where there is no polarity-where energies flow smoothly in one direction-there will be much doing but no music.
+ - Wordiness is a sickness of American writing. Too many words dilute and blur ideas .
+ - We often use strong language not to express a powerful emotion but to evoke it in us.
+ - The desire to belong is partly a desire to lose oneself.
+ - Self-righteousness is a loud din raised to drown the voice of guilt within us.
+ - I hang onto my prejudices, they are the testicles of my mind.
+ - Commitment becomes hysterical when those who have nothing to give advocate generosity, and those who have nothing to give up preach renunciation.
+ - It is startling to realize how much unbelief is necessary to make belief possible.
+ - Without a sense of proportion there can be neither good taste nor genuine intelligence, nor perhaps moral integrity.
+ - Action is at bottom a swinging and flailing of the arms to regain one’s balance and keep afloat.
+ - It is the child in man that is the source of his uniqueness and creativeness, and the playground is the optimal milieu for the unfolding of his capacities and talents.
+ - Compassion alone stands apart from the continuous traffic between good and evil proceeding within us.
+ - It is doubtful whether the oppressed ever fight for freedom. They fight for pride and power-power to oppress others.
+ - What greater reassurance can the weak have than that they are like anyone else?
+ - A peculiar side of credulity is that it is often joined with a proneness to imposture. The association of believing and lying is not characteristic solely of children. They inability or unwillingness to see things as they are promotes both gullibility and charlatanism.
+ - The game of history is usually played by the best and the worst over the heads of the majority in the middle.
+ - I always held my flower in a clenched fist.
+ - There is in even the most selfish passion a large element of self-abnegation. It is startling to realize that what we call extreme self-seeking is actually self-renunciation. The miser, health addict, glory chaser and their like are not far behind the selfless in the exercise of self-sacrifice.
+ - Far more critical than what we know or what we don’t know is what we don’t want to know.
+ - The central task of education is to implant a will and facility for learning; it should produce not learned but learning people. The truly human society is a learning society, where grandparents, parents, and children are students together.
+ - A great man’s greatest good luck is to die at the right time.
+ - To spell out the obvious is often to call it in question.
+ - When we believe ourselves in possession of the only truth, we are likely to be indifferent to common everyday truths.
+ - Some people have no original ideas because they do not think well enough of themselves to consider their ideas worth noticing and developing.
+ - The ability to get along without an exceptional leader is the mark of social vigor.
+ - It is the fate of every great achievement to be pounced upon by pedants and imitators who drain it of life and turn it into an orthodoxy which stifles all stirrings of originality.
+ - In running away from ourselves we either fall on our neighbor’s shoulder or fly at his throat.
+ - Love-making is radical, while marriage is conservative.
+ - You accept certain unlovely things about yourself and manage to live with them. The atonement for such an acceptance is that you make allowances for others – that you cleanse yourself of the sin of self-righteousness.
+ - We are ready to die for an opinion but not for a fact: indeed, it is by our readiness to die that we try to prove the factualness of our opinion.
+ - A person’s creative ability decreases in direct proportion to the degree to which he takes himself seriously.
+ - It needs fanatical faith to rationalize our cowardice.
+ - Death has but one terror, that it has no tomorrow.
+ - The real Antichrist is he who turns the wine of an original idea into the water of mediocrity.
+ - A multitude of words is probably the most formidable means of blurring and obscuring thought. There is no thought, however momentous, that cannot be expressed lucidly in 200 words.
+ - Facts are counterrevolutionary.
+ - A man by himself is in bad company.
+ - The taint inherent in absolute power is not its inhumanity but its antihumanity.
+ - To believe that if only we had this or that we would be happy, or to pursue any excessive desire, diverts us from seeing that happiness depends on an adequate self.
+ - True loyalty between individuals is possible only in a loose and relatively free society.
+ - Craving, not having, is the mother of a reckless giving of oneself.
+ - You cannot gauge the intelligence of an American by talking with him; you must work with him. The American polishes and refines his way of doing things-even the most commonplace-the way the French of the 17th century polished their maxims.
+ - It is probably true that business corrupts everything it touches. It corrupts politics, sports, literature, art, labor unions and so on. But business also corrupts and undermines monolithic totalitarianism. Capitalism is at its liberating best in a noncapitalist environment.
+ - The ideal of self-advancement which the civilizing west offers to backward populations brings with it the plague of individual frustration. All the advantages brought by the West are ineffectual substitutes for the sheltering and soothing anonymity of communal existence.
+ - Man’s chief goal in life is still to become and stay human, and defend his achievements against the encroachment of nature.
+ - To be fully alive is to feel that everything is possible.
+ - There are no chaste minds. Minds copulate wherever they meet.
+ - There is no reason to believe that the nature of the violent minorities is now greatly different from what it was in the past. What has changed is the will and ability of the majority to react.
+ - We probably have a greater love for those we support than for those who support us. Our vanity carries more weight than our self-interest.
+ - Only the individual who has come to terms with his self can have a dispassionate attitude toward the world.
+ - We are least open to precise knowledge concerning the things we are most vehement about.
+ - The chemistry of dissatisfaction is as the chemistry of some marvelously potent tar. In it are the building stones of explosives, stimulants, poisons, opiates, perfumes and stenches.
+ - Freedom means freedom from forces and circumstances which would turn man into a thing, which would impose on man the passivity and predictability of matter. By this test, absolute power is the manifestation most inimical to human uniqueness. Absolute power wants to turn people into malleable clay.
+ - All great art is revolutionary because it touches upon the reality of man and questions the reality of the various transitory forms of human society.
+ - The capacity for getting along with our neighbor depends to a large extent on the capacity for getting along with ourselves. The self-respecting individual will try to be as tolerant of his neighbor’s shortcomings as he is of his own.
+ - However different the holy causes people die for, they perhaps die basically for the same thing.
+ - Our frustration is greater when we have much and want more than when we have nothing and want some. We are less dissatisfied when we lack many things than when we seem to lack but one thing.
+ - A successful social technique consists perhaps in finding unobjectionable means for individual self-assertion.
+ - When we lose our individual independence in the corporateness of a mass movement, we find a new freedom – freedom to hate, bully, lie, torture, murder and betray without shame and remorse.
+ - The education explosion is producing a vast number of people who want to live significant, important lives but lack the ability to satisfy this craving for importance by individual achievement. The country is being swamped with nobodies who want to be somebodies.
+ - Our sense of power is more vivid when we break a man’s spirit than when we win his heart. For we can win a man’s heart one day and lose it the next. But when we break a proud spirit we achieve something that is final and absolute.
+ - The poor on the borderline of starvation live purposeful lives. To be engaged in a desperate struggle for food and shelter is to be wholly free from a sense of futility.
+ - Man staggers through life yapped at by his reason, pulled and shoved by his appetites, whispered to by fears, beckoned by hopes. Small wonder that what he craves most is self-forgetting.
+ - In a trader-dominated society, the scribe is usually kept out of the management of affairs, but it given a more or less free hand in the cultural field. By frustrating the scribe’s craving for commanding action, the trader draws upon himself the scribe’s wrath and scorn.
+ - There is probably an element of malice in our readiness to overestimate people – we are, as it were, laying up for ourselves the pleasure of later cutting them down to size.
+ - Those who see their lives as spoiled and wasted crave equality and fraternity more than they do freedom. If they clamor for freedom, it is but freedom to establish equality and uniformity.
+ - Resistance, whether to one’s appetites or to the ways of the world, is a chief factor in the shaping of character.
+ - A man’s soul is pierced as it were with holes, and as his longings flow through each they are transmuted into something specific.
+ - Freedom released the energies of the masses not by exhilarating but by unbalancing, irritating, and goading.
+ - We cannot win the weak by sharing our wealth with them. They feel our generosity as oppression.
+ - When cowardice becomes a fashion its adherents are without number, and it masquerades as forbearance, reasonableness and whatnot.
+ - Fair play with others is primarily the practice of not blaming them for anything that is wrong with us. We tend to rub our guilty conscience against others the way we wipe dirty fingers on a rag. This is as evil a misuse of others as the practice of exploitation.
+ - It is easier to hate an enemy with much good in him than one who is all bad. We cannot hate those we despise.
+ - The uncompromising attitude is more indicative of an inner uncertainty than a deep conviction. The implacable stand is directed more against the doubt within than the assailant without.
+ - The urge to escape our real self is also an urge to escape the rational and the obvious.
+ - Unpredictability, too, can become monotonous.
+ - The compulsion to take ourselves seriously is in inverse proportion to our creative capacity. When the creative flow dries up, all we have left is our importance.
+ - We are more ready to try the untried when what we do is inconsequential. Hence the remarkable fact that many inventions had their birth as toys.
+ - Our credulity is greatest concerning the things we know least about. And since we know least about ourselves, we are ready to believe all that is said about us. Hence the mysterious power of both flattery and calumny.
+ - It is a sign of creeping inner death when we can no longer praise the living.
+ - It is when power is wedded to chronic fear that it becomes formidable.
+ - Animals often strike us as passionate machines.
+ - He who has nothing and wants something is less frustrated than he who has something and wants more.
+ - Social improvement is attained more readily by a concern with the quality of results than with the purity of motives.
+ - The pleasure we derive from doing favors is partly in the feeling it gives us that we are not altogether worthless. It is a pleasant surprise to ourselves.
+ - When people are free to do as they please, they usually imitate each other. Originality is deliberate and forced, and partakes of the nature of a protest. A society which gives unlimited freedom to the individual, more often than not attains a disconcerting sameness.
+ - It is thus with most of us; we are what other people say we are. We know ourselves chiefly by hearsay.
+ - To know a person’s religion we need not listen to his profession of faith but must find his brand of intolerance.
+ - However much we guard against it, we tend to shape ourselves in the image others have of us.
+ - The nature of a society is largely determined by the direction in which talent and ambition flowby the tilt of the social landscape.
+ - A compilation of what outstanding people said or wrote at the age of 20 would make a collection of asinine pronouncements.
+ - The world leans on us. When we sag, the whole world seems to droop.
+ - Our doubts about ourselves cannot be banished except by working at that which is the one and only thing we know we ought to do. Other people’s assertions cannot silence the howling dirge within us. It is our talents rusting unused within us that secrete the poison of self-doubt into our bloodstream.
+ - Never have the young taken themselves so seriously, and the calamity is that they are listened to and deferred to by so many adults.
+ - All leaders strive to turn their followers into children.
+ - There is need for some kind of make-believe in order to face death unflinchingly. To our real, naked selves there is not a thing on earth or in heaven worth dying for.
+ - There is a close connection between lack of confidence and the passionate state of mind.
+ - We clamor for equality chiefly in matters in which we ourselves cannot hope to obtain excellence.
+ - Originality is deliberate and forced, and partakes of the nature of a protest.
+ - Our credulity is greatest concerning the things we know least about.
+ - To the creative individual all experience is seminal-all events are equidistant from new ideasand insights.
+ - It is also plausible that those movements with the greatest inner contradiction and between profession and practice – that is to say with a strong feeling of guilt – are likely to be the most fervent in imposing their faith on others.
+ - One of the chief differences between an adult and a juvenile is that the adult knows when he is an ass while the juvenile never does.
+ - Humility is not renunciation of pride but the substitution of one pride for another.
+ - Fear comes from uncertainty. When we are absolutely certain, whether of our worth or worthlessness, we are almost impervious to fear. Thus a feeling of utter unworthiness can be a source of courage.
+ - The greatest weariness comes from work not done.
+ - The sick in soul insist that it is humanity that is sick, and they are the surgeons to operate on it. They want to turn the world into a sickroom. And once they get humanity strapped to the operating table, they operate on it with an ax.
+ - There is a radicalism in all getting, and a conservatism in all keeping. Lovemaking is radical, while marriage is conservative.
+ - Charlatanism of some degree is indispensable to effective leadership.
+ - This food-and-shelter theory concerning man’s efforts is without insight. The desire for praise is more imperative than the desire for food and shelter.
+ - The individual’s most vital need is to prove his worth, and this usually means an insatiable hunger for action. For it is only the few who can acquire a sense of worth by developing and employing their capacities and talents. The majority prove their worth by keeping busy.
+ - We all have private ails. The troublemakers are they who need public cures for their private ails.
+ - Communists are frustrated capitalists.
+ - What are we when we are alone? Some, when they are alone, cease to exist.
+ - There is a tendency to judge a race, a nation or any distinct group by its leastworthy members.
+ - When cowardice is made respectable, its followers are without number both from among the weak and the strong; it easily becomes a fashion.
+ - More significant than the fact that poets write abstrusely, painters paint abstractly, and composers compose unintelligible music is that people should admire what they cannot understand; indeed, admire that which has no meaning or principle.
+ - Absolute power corrupts even when exercised for humane purposes. The benevolent despot who sees himself as a shepherd of the people still demands from others the submissiveness of sheep. The taint inherent in absolute power is not its inhumanity but its anti-humanity.
+ - The opposite of the religious fanatic is not the fanatical atheist but the gentle cynic who cares not whether there is a god or not.
+ - Nothing so offends the doctrinaire intellectual as our ability to achieve the momentous in a matter-of-fact way, unblessed by words.
+ - Radicalism itself ceases to be radical when absorbed mainly in preserving its control over a society or an economy.
+ - The pre-human creature from which man evolved was unlike any other living thing in its malicious viciousness toward its own kind. Humanization was not a leap forward but a groping toward survival.
+ - Good and evil grow up together and are bound in an equilibrium that cannot be sundered. The most we can do is try to tilt the equilibrium toward the good.
+ - It takes a vice to check a vice, and virtue is the by-product of a stalemate between opposite vices.
+ - Every successful person has had failures but repeated failure is no guarantee of eventual success.
+ - It is not so much the example of others we imitate as the reflection of ourselves in their eyes and the echo of ourselves in their words.
+ - They who clamor loudest for freedom are often the ones least likely to be happy in a free society.
+ - Faith in a holy cause is to a considerable extent a substitute for lost faith in ourselves.
+ - It is the malady of our age that the young are so busy teaching us that they have no time left to learn.
+ - To some, freedom means the opportunity to do what they want to do; to most it means not to do what they do not want to do. It is perhaps true that those who can grow will feel free under any condition.
+ - Unlike the pattern which seems to prevail in the rest of life, in the human species the weak not only survive but often triumph over the strong. The self-hatred inherent in the weak unlocks energies far more formidable then those mobilized by an ordinary struggle for existence.
+ - We can be satisfied with moderate confidence in ourselves and with a moderately good opinion of ourselves, but the faith we have in a holy cause has to be extravagant and uncompromising.
+ - Men weary as much of not doing the things they want to do as of doing the things they do not want to do.
+ - The hatred and cruelty which have their source in selfishness are ineffectual things compared with the venom and ruthlessness born of selflessness.
+ - To grow old is to grow common. Old age equalizes – we are aware that what is happening to us has happened to untold numbers from the beginning of time. When we are young we act as if we were the first young people in the world.
+ - We find it hard to apply the knowledge of ourselves to our judgment of others. The fact that we are never of one kind, that we never love without reservations and never hate with all our being cannot prevent us from seeing others as wholly black or white.
+ - Self-esteem and self-contempt have specific odors; they can be smelled.
+ - Sometimes we feel the loss of a prejudice as a loss of vigor.
+ - Take away hatred from some people, and you have men without faith.
+ - Our originality shows itself most strikingly not in what we wholly originate but in what we do with that which we borrow from others.
+ - It is remarkable by how much a pinch of malice enhances the penetrating power of an idea or an opinion. Our ears, it seems, are wonderfully attuned to sneers and evil reports about our fellow men.
+ - It is always safe to assume that people are more subtle and less sensitive than they seem.
+ - The nineteenth century planted the words which the twentieth century ripened into the atrocities of Stalin and Hitler. There is hardly an atrocity committed in the twentieth century that was not foreshadowed or even advocated by some noble man of words in the nineteenth.
+ - Totalitarianism spells simplification: an enormous reduction in the variety of aims, motives, interests, human types, and, above all, in the categories and units of power.
+ - Many of the insights of the saint stem from their experience as sinners.
+ - In an adequate social order, the untalented should be able to acquire a sense of usefulness and of growth without interfering with the development of talent around them.
+ - The act of self-denial seems to confer on us the right to be harsh and merciless toward others.
+ - To make of human affairs a coherent, precise, predictable whole one must ignore or suppress man as he really is. It is by eliminating man from their equation that the makers of history can predict the future, and the writers of history can give a pattern to the past.
+ - The purpose of philosophers is to show people what is right under their noses.
+ - In human affairs, the best stimulus for running ahead is to have something we must run from.
+ - The well-adjusted make poor prophets.
+ - We usually see only the things we are looking for- so much so that we sometimes see them where they are not.
+ - Dissipation is a form of self-sacrifice.
+ - People haunted by the purposelessness of their lives try to find a new content not only by dedicating themselves to a holy cause but also by nursing a fanatical grievance. A mass movement offers them unlimited opportunities for both.
+ - Words have ruined more souls than any devil’s agency.
+ - A mass movement attracts and holds a following not because it can satisfy the desire for self-advancement, but because it can satisfy the passion for self-renunciation.
+ - A low capacity for getting along with those near us often goes hand in hand with a high receptivity to the idea of the brotherhood of men.
+ - Where everything is possible miracles become commonplaces, but the familiar ceases to be self-evident.
+ - The ruthlessness born of self-seeking is ineffectual compared with the ruthlessness sustained by dedication to a holy cause. God wishes, said Calvin, that one should put aside all humanity when it is a question of striving for His glory...
+ - The Greeks invented logic but were not fooled by it.
+ - The desire to be different from the people we live with is sometimes the result of our rejection- real or imagined- by them.
+ - I can never forget that one of the most gifted, best educated nations in the world, of its own free will, surrendered its fate into the hands of a maniac.
+ - There is no loneliness greater than the loneliness of a failure. The failure is a stranger in his own house.
+ - How frighteningly few are the persons whose death would spoil our appetite and make the world seem empty.
+ - It still holds true that man is most uniquely human when he turns obstacles into opportunities.
+ - Often, the thing we pursue most passionately is but a substitute for the one thing we really want and cannot have.
+ - Good writing, like gold, combines lustrous lucidity with high density. What this means is good writing is packed with hints.
+ - It is apparently vital that we should be in the dark about ourselves not to be clear about our intentions, fears, and hopes. There is a stubborn effort in us to set up a compact screen between consciousness and the self.
+ - To believe that if we could have but this or that we would be happy is to suppress the realization that the cause of our unhappiness is in our inadequate and blemished selves. Excessive desire is thus a means of suppressing our sense of worthlessness.
+ - Unlimited opportunities can be as potent a cause of frustration as a paucity or lack of opportunities.
+ - The main effect of a real revolution is perhaps that it sweeps away those who do not know how to wish, and brings to the front men with insatiable appetites for action, power and all that the world has to offer.
+ - There is no telling to what extremes of cruelty and ruthlessness a man will go when he is freed from the fears, hesitations, doubts and the vague stirrings of decency that go with individual judgment.
+ - We do not really feel grateful toward those who make our dreams come true; they ruin our dreams.
+ - The proselytizing fanatic strengthens his own faith by converting others. The creed whose legitimacy is most easily challenged is likely to develop the strongest proselytizing impulse.
+ - A nation without dregs and malcontents is orderly, peaceful and pleasant, but perhaps without the seed of things to come.
+ - There are many who have grave scruples about deceiving but think it as nothing to deceive themselves.
+ - Our greatest pretenses are built up not to hide the evil and the ugly in us, but our emptiness. The hardest thing to hide is something that is not there.
+ - To the old, the new is usually bad news.
+ - Every intense desire is perhaps a desire to be different from what we are.
+ - Whenever you trace the origin of a skill or practices which played a crucial role in the ascent of man, we usually reach the realm of play.
+ - It seems that when we are oppressed by the knowledge of our worthlessness we do not see ourselves as lower than some and higher than others, but as lower than the lowest of mankind. We hate then the whole world, and we would pour our wrath upon the whole of creation.
+ - Call not that man wretched, who whatever ills he suffers, has a child to love.
+ - Excesses are essentially gestures. It is easy to be extremely cruel, magnanimous, humble or self-sacrificing when we see ourselves as actors in a performance.
+ - A man’s worth is what he is divided by what he thinks he is.
+ - We can remember minutely and precisely only the things which never really happened to us.
+ - There is nothing more explosive than a skilled population condemned to inaction. Such a population is likely to become a hotbed of extremism and intolerance, and be receptive to any proselytizing ideology, however absurd and vicious, which promises vast action.
+ - When grubbing for necessities man is still an animal. He becomes uniquely human when he reaches out for the superfluous and extravagant.
+ - All prayers and hopes are a reaching-out for coincidences.
+ - People unfit for freedom – who cannot do much with it – are hungry for power. The desire for freedom is an attribute of a “have” type of self. It says: leave me alone and I shall grow, learn, and realize my capacities. The desire for power is basically an attribute of a “have not” type of self.
+ - The beginning of thought is in disagreement – not only with others but also with ourselves.
+ - Power corrupts the few, while weakness corrupts the many.
+ - Whenever we proclaim the uniqueness of a religion, a truth, a leader, a nation, a race, a part or a holy cause, we are also proclaiming our own uniqueness.
+ - Free men are aware of the imperfection inherent in human affairs, and they are willing to fight and die for that which is not perfect.
+ - Actual creativeness is a matter of moments. One has to piece together the minute grains to make a lump. And it is so easy to miss the momentary flashes, it is like sluicing in placer mining. He who lets the flakes float by has nothing to show for his trouble.
+ - A heresy can spring only from a system that is in full vigor.
+ - Quite often the social doctors become part of the disease.
+ - Crude absurdities, trivial nonsense, and sublime truths are equally potent in readying people for self-sacrifice if they are accepted as the sole, eternal truth.
+ - A passionate obsession with the outside world or the private lives of others is an attempt to compensate for a lack of meaning in one’s own life.
+ - By circumstance and perhaps also by inclination, I think in complete intellectual isolation. To expect others to help me think seems to me almost like expecting them to help me digest my food.
+ - A doctrine insulates the devout not only against the realities around them but also against their own selves. The fanatical believer is not conscious of his envy, malice, pettiness and dishonesty. There is a wall of words between his consciousness and his real self.
+ - The most gifted members of the human species are at their creative best when they cannot have their way, and must compensate for what they miss by realizing and cultivating their capacities and talents.
+ - The passion to get ahead is sometimes born of the fear lest we be left behind.
+ - To lose one’s life is but to lose the present; and, clearly, to lose a defiled, worthless present is not to lose much.
+ - Those who are in love with the present can be cruel and corrupt but not genuinely vicious. They cannot be methodically and consistently ruthless.
+ - An easygoing person is probably more accessible to the realization of eternity – the endless flow of life and death – than one who takes his prospects and duties overseriously. It is the overserious who are truly frivolous.
+ - It is startling to see how the oppressed almost invariably shape themselves in the image of their hated oppressors.
+ - Vaguely at first, then more distinctly, I realized that man is an eternal stranger on this planet.
+ - A society that refuses to strive for superfluities is likely to end up lacking in necessities.
+ - It is not love of self but hatred of self which is at the root of the troubles that afflict our world.
+ - A ruling intelligentsia, whether in Europe, Asia or Africa, treats the masses as raw material to be experimented on, processed, and wasted at will.
+ - That which is unique and worthwhile in us makes itself felt only in flashes. If we do not know how to catch and savor the flashes we are without growth and exhilaration.
+ - Faith is primarily a process of identification; the process by which the individual ceases to be himself and becomes part of something eternal.
+ - It is a strange thing that both the injurer and the injured, the sinner and he who is sinned against, should find in the mass movement an escape from a blemished life.
+ - We are ready to die for an opinion but not for a fact.
+ - We can never have enough of that which we do not want.
+ - Those of little faith are of little hatred.
+ - We are made kind by being kind.
+ - How terribly hard and almost impossible it is to tell the truth. More than anything else, the artist in us prevents us from telling aught as it really happened. We deal with the truth as the cook deals with meat and vegetables.
+ - Perhaps our originality manifests itself most strikingly in what we do with that which we did not originate. To discover something wholly new can be a matter of chance, of idle tinkering, or even of the chronic dissatisfaction of the untalented.
+ - One word characterizes the most strenuous of the efforts for the advancement of science that I have made perservereingly during fifty-five years; that word is failure.
+ - One of the marks of a truly vigorous society is the ability to dispense with passion as a midwife of action – the ability to pass directly from thought to action.
+ - Action is basically a reaction against loss of balance – a flailing of the arms to to regain one’s balance. To dispose a soul to action, we must upset its equilibrium.
+ - Quite often in history action has been the echo of words. An era of talk was followed by an era of events. The new barbarism of the twentieth century is the echo of words bandied about by brilliant speakers and writers in the second half of the nineteenth.
+ - In human affairs every solution serves only to sharpen the problem, to show us more clearly what we are up against. There are no final solutions.
+ - The sense of inferiority inherent in the act of imitation breeds resentment. The impulse of the imitators is to overcome the model they imitate.
+ - It is the around-the-corner brand of hope that prompts people to action, while the distant hope acts as an opiate.
+ - The trouble is not chiefly that our universities are unfit for students but that many present-day students are unfit for universities.
+ - The original insight is most likely to come when elements stored in different compartments of the mind drift into the open, jostle one another, and now and then form new combinations.
+ - The genuine artist is as much a dissatisfied person as the revolutionary, yet how diametrically opposed are the products each distills from his dissatisfaction.
+ - Take man’s most fantastic invention- God. Man invents God in the image of his longings, in the image of what he wants to be, then proceeds to imitate that image, vie with it, and strive to overcome it.
+ - The chief difference between me and others is that I have plenty of time not only because I am without a multitude of responsibilities and without daily tasks, which demand attention: But also because I am basically without ambition. Neither the present nor the future has claims on me.
+ - To most of us nothing is so invisible as an unpleasant truth. Though it is held before our eyes, pushed under our noses, rammed down our throats- we know it not.
+ - We can never really be prepared for that which is wholly new. We have to adjust ourselves, and every radical adjustment is a crisis in self-esteem: we undergo a test, we have to prove ourselves. It needs subordinate self-confidence to face drastic change without inner trembling.
+ - To the excessively fearful the chief characteristic of power is its arbitrariness. Man had to gain enormously in confidence before he could conceive an all-powerful God who obeys his own laws.
+ - Nationalist pride, like other variants of pride, can be a substitute for self-respect.
+ - The ratio between supervisory and producing personnel is always highest where the intellectuals are in power. In a Communist country it takes half the population to supervise the other half.
+ - The revulsion from an unwanted self, and the impulse to forget it, mask it, slough it off and lose it, produce both a readiness to sacrifice the self and a willingness to dissolve it by losing one’s individual distinctness in a compact collective whole.
+ - It is easier to love humanity as a whole than to love one’s neighbor.
+ - Should Israel perish, the holocaust will be upon us.
+ - There is in most passions a shrinking away from ourselves. The passionate pursuer has all the earmarks of a fugitive.
+ - The readiness to praise others indicates a desire for excellence and perhaps an ability to realize it.
+ - There is no reason why the profoundest thoughts should not make easy and exciting reading. A profound thought is an exciting thing as exciting as a detective’s deductions or hunches. The simpler the words in which a thought is expressed the more stimulating its effect.
+ - The history of this country was made largely by people who wanted to be left alone. Those who could not thrive when left to themselves never felt at ease in America.
+ - The less satisfaction we derive from being ourselves, the greater is our desire to be like others.
+ - Every extreme attitude is a fight from the self.
+ - That which corrodes the souls of the persecuted is the monstrous inner agreement with the prevailing prejudice against them.
+ - Those in possession of absolute power can not only prophesy and make their prophecies come true, but they can also lie and make their lies come true.
+ - There is apparently no surer way of turning a thing into its opposite than by exaggerating it.
+ - There is perhaps no better way of measuring the natural endowment of a soul than by its ability to transmute dissatisfaction into a creative impulse.
+ - There is no reason why humanity cannot be served equally by weighty and trivial motives.
+ - The hardest thing to cope with is not selfishness or vanity or deceitfulness, but sheer stupidity.
+ - Man is the only creature that strives to surpass himself, and yearns for the impossible.
+ - In a modern society people can live without hope only when kept dazed and out of breath by incessant hustling.
+ - If anybody asks me what I have accomplished, I will say all I have accomplished is that I have written a few good sentences.
+ - Jesus was not a Christian, nor was Marx a Marxist.
+ - Those who lack the capacity to achieve much in an atmosphere of freedom will clamor for power.
+ - The Renaissance was a time of mercenary soldiers, ours is a time of mercenary labor.
+ - Our quarrel with the world is an echo of the endless quarrel proceeding within us.
+ - Wise living consists perhaps less in acquiring good habits than in acquiring as few habits as possible.
+ - You rarely find a nonconformist who goes it alone.
+ - Action can give us the feeling of being useful, but only words can give us a sense of weight and purpose.
+ - There is probably nothing more sublime than discontent transmuted into a work of art, a scientific discovery, and so on.
+ - We have perhaps a natural fear of ends. We would rather be always on the way than arrive. Given the means, we hang on to them and often forget the ends.
+ - Lack of sensitivity is perhaps basically an unawareness of ourselves.
+ - The fear of becoming a ‘has-been’ keeps some people from becoming anything.
+ - One is not quite certain that creativeness in the arts, literature, and science functions best in an environment of absolute freedom. Chances are that a relatively mild tyranny stimulates creativeness.
+ - The rule seems to be that those who find no difficulty in deceiving themselves are easily deceived by others. They are easily persuaded and led.
+ - It is to escape the responsibility for failure that the weak so eagerly throw themselves into grandiose undertakings.
+ - The aspiration toward freedom is the most essentially human of all human manifestations.
+ - It is often the failure who is the pioneer in new lands, new undertakings, and new forms of expression.
+ - Sensuality reconciles us with the human race. The misanthropy of the old is due in large part to the fading of the magic glow of desire.
+ - The most troublesome problem which confronts social engineering is how to provide for the untalented and, what is equally important, how to provide against them.
+ - There is a powerful craving in most of us to see ourselves as instruments in the hands of others and thus free ourselves from the responsibility for acts which are prompted by our own questionable inclinations and impulses.
+
+472 quotes

@@ -1,0 +1,38 @@
+ - Everybody talks about finding your voice. Do your homework and your voice will find you.
+ - We all played bad before we played good.
+ - If it’s not going to sound like Terrapin Station, what’s the point of playing Terrapin Station?
+ - There is not a sentence in the world that could respectfully do justice to the life and music of Jerry Garcia.
+ - I don’t care who likes it or buys it. Because if you use that criterion, Mozart would have never written Don Giovanni, Charlie Parker never would have played anything but swing music. There comes a point at which you have to stand up and say, this is what I have to do.
+ - I gave up my base in popular culture when I left the Tonight Show.
+ - You know, being America, being the land of “number ones”, everyone wants to be a leader before they follow.
+ - You don’t know what you like, you like what you know. In order to know what you like, you have to know everything.
+ - Humans are imperfect. That’s one of the reasons that classical and jazz are in trouble. We’re on the quest for the perfect performance and every note has to be right. Man, every note is not right in life.
+ - A lot of musicians have a tough time hearing what we’re doing in a trio format.
+ - I think that if you keep banging at the door all you need is a little foothold, a little tiny foothold, and then the rest will take care of itself.
+ - One of the things that’s clear to me from interviews that I’ve read is that the more popular successful jazz musicians had audiences above and beyond the music community.
+ - The lion’s share of what I hear right now are people who, intentional or accidental, have avoided all jazz prior to 1960. And all the musicians who were successful in the ’60s spent their entire lives, prior to 1960, listening to all the musicians these people avoid.
+ - Jazz is so incestuous that it’s starting to kill itself.
+ - There’s not one Tin Pan Alley song on my record.
+ - My job is to write songs that have emotional meaning to me.
+ - The whole point is, give me a break with the standards. You go to the average jazz label and suggest a record and they want to know which standards you’re going to play. I’m saying let’s break the formula.
+ - You hear it in your brain. Whatever makes sense. Some songs work well as quartet songs, sometimes they don’t.
+ - When you’re dealing with music without words, titles are more a means of identification than anything else. What’s the point of getting lofty?
+ - Pop doesn’t really look back. It can’t. What makes pop work is simplicity.
+ - If you listen to a lot of the songs that are popular now, there’s very little melody in there. People love the beat. But to musicians, it’s melody, because we understand how elusive it is and how hard it is to hold.
+ - We played it as long as we could play it on that CD and I think it might be 50 minutes, maybe. What you have to do is play a couple of songs and then get off the stage because everything that trails it sounds stupid.
+ - If I were like a lot of other people, then it wouldn’t be fun; but since I’m like me, it’s okay.
+ - The piano is the X factor. People have a tough time following the structures when there’s no piano there, spelling it out. It makes it more easily understood, particularly to people who don’t know as much about music.
+ - What is jazz? It, It’s almost like asking, What is French? Jazz is a musical language. It’s a musical dialect that actually embodies the spirit of America.
+ - So much of Jazz doesn’t have an audience other than music students or musicians.
+ - I like to make records sound good. I’m more like a reducer than a producer. If an artist cannot produce themselves, what’s the point?
+ - That’s kind of like how jazz is sometimes. You’re out there predicting the future, and no one believes you.
+ - It’s hard to get into Newsweek because, as more of our former intellectual magazines take on a pop focus, if there’s no buzz, there’s no interest.
+ - It’s something that jazz has gotten away from, and it’s unfortunate. Players aren’t physical anymore.
+ - I’m not going to play funk licks on a jazz album. That makes no sense.
+ - One of the things that I loved about listening to Miles Davis is that Miles always had an instinct for which musicians were great for what situations. He could always pick a band, and that was the thing that separated him from everybody else.
+ - We have something that is unique. We have our craft. We have our art. We have our desire.
+ - My dad was a musician, it was just what he did, like another guy’s dad drives a meat truck. Our house was normal. We weren’t taken with the fact our dad was a musician.
+ - If youre going to use standards as criteria for signing musicians, you can sign thousands. If youre going to use some sort of conceptual interpretation thats based on the tradition of those standards, but is trying to move away from it, youre down to about 10 people or so.
+ - Coltrane came to New Orleans one day and he was talking about the jazz scene. And Coltrane mentions that the problem with jazz was that there were too few groups.
+
+36 quotes

@@ -1,0 +1,31 @@
+ - To follow the path look to the master follow the master walk with the master see through the master become the master.
+ - If you want the truth to stand clear before you, never be for or against.
+ - The great way is not difficult for those who have no preferences. When like and dislike are both absent everything becomes clear and undisguised. Make the smallest distinction however and heaven and earth are set infinitely apart.
+ - If you want to realize the truth, don’t be for or against. The struggle between good and evil is the primal disease of the mind.
+ - Do not search for the truth; Only cease to cherish opinions.
+ - The great way is not difficult if you don’t cling to good or bad. Just let go of your preferences; and everything will become perfectly clear.
+ - When mind exists undisturbed in the Way, nothing in the world can offend, and when a thing can no longer offend it ceases to exist in the old way. When no discriminating thoughts arise, the old mind ceases to exist.
+ - Be at peace in the oneness of things, and all errors will disappear by themselves.
+ - Pursue not the outer entanglements; Dwell not in the inner void; Be serene in the oneness of things; And dualism vanishes by itself.
+ - Step aside from all thinking, and there is nowhere you can’t go.
+ - One thing, all things: move among and intermingle, without distinction. To live in this realization is to be without anxiety about non-perfection. To live in this faith is the road to non-duality, because the non-dual is one with the trusting mind.
+ - The ultimate Path is without difficulty. Just avoid picking and choosing.
+ - The more you think and talk, the more you lose the Way.
+ - The struggle of what one likes and what one dislikes is the disease of the mind.
+ - The mind, the Buddha, living creatures – these are not three different things.
+ - Stop talking, stop thinking, and there is nothing you will not understand. Return to the root and you will find Meaning.
+ - The Great Way is not difficult for those who have no preferences.
+ - There is no need to seek truth, only stop having views.
+ - The Perfect Way is only difficult for those who pick and choose; do not like, do not dislike: All will then be clear.
+ - The perfect way is without difficulty, for it avoids picking and choosing. Only when you stop liking and disliking will all be clearly understood. Be not concerned with right or wrong, for the conflict between right and wrong is the sickness of the mind.
+ - Do not try to drive pain away by pretending it is not real. If you seek serenity in oneness, pain will vanish of its own accord.
+ - When thought is in bondage the truth is hidden, for everything is murky and unclear, and the burdensome practice of judging brings annoyance and weariness. What benefit can be derived from distinctions and separations?
+ - When you try to stop activity to achieve passivity your very effort fills you with activity.
+ - The two exist because of the One, But hold not even to this One; When the one Consciousness -is not disturbed, The ten thousand things offer no offence.
+ - The one is none other than the All, the All none other than the One.
+ - Return to the root and you will find the meaning.
+ - In the World of Reality there is no self, There is no other-than-self.
+ - When no discriminating thoughts arise, the old mind ceases to exist.
+ - In the “Not Two” are no separate things, yet all things are included.
+
+29 quotes

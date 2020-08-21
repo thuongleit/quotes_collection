@@ -1,0 +1,40 @@
+ - I’m very professional.
+ - I’m not a big fan of people knowing too much about me.
+ - I wasn’t bullied or anything at school, but I was quite shy and didn’t speak up too much in class.
+ - If someone wants to employ me, whoever wants to employ me, I’ll go and do that. I just want to work.
+ - Alan Rickman told me to do a play, so I did. Because when Alan Rickman tells you do something, you go and do it.
+ - I don’t feel hunky at all.
+ - There’s not many people on the face of the earth that don’t know Harry Potter is Daniel Radcliffe. He’s had that since he was eleven years old, yet he hasn’t changed since the day I met him.
+ - I wasn’t attractive when I was growing up, and I don’t think I am now.
+ - You have to prepare for the unexpected. You have to be able to react to things that don’t necessarily happen every night, or aren’t supposed to happen every night. And you have to react to it in character.
+ - The great thing as an actor is that I don’t know what my agent is going to call me with next.
+ - As an actor you really want to push yourself, and there’s no better way than to do an intense drama.
+ - I was a short, chubby kid, pretty shy.
+ - I love playing football. I started playing for a school team, which is fun, and I play a lot of five a side. I nowhere near good enough to go professional but it’s definitely one of my main hobbies. I play three times a week.
+ - I think as an actor you’re always learning, you’re always trying to experience more things.
+ - What I’ve found is that stage is very much a foundation of acting. It’s where it all began and you’re working with that repetition.
+ - The great thing about filming a film is that you all have your final day’s shooting, but you always know that you’re all going to be coming back for the premiere.
+ - The fame stuff, the kind words from websites and things, are very flattering and lovely, but I just wanna act.
+ - I love making people laugh.
+ - Leeds is quite laid-back.
+ - I get too excited about football and rugby.
+ - Rupert Grint is exactly like his character Ron, in that they are both incredibly funny, friendly, and loyal.
+ - It’s always been my dream to be in a war film.
+ - I’m very much open to the possibilities.
+ - A lot of people struggle in their younger years, and I think people can relate to that.
+ - There was never any point at which I was considering leaving Harry Potter. If I were to stop acting, it would have been after.
+ - I mean, I must confess I don’t own Harry Potter DVDs. My parents do. They have them all. And they like watching them.
+ - I’ve always been partial to comedy. I love the idea of working on a comedic scene.
+ - I’m very comfortable being at home and keeping my head down, really. It’s nice being invited to night clubs and stuff, which is nice once in a while, but I prefer to kind of keep to myself.
+ - I never contemplated. I just went in there and did my acting. I never thought, “What’s the character actually feeling here? What’s he trying to get across?” And never looked at it from that classically trained actor’s point of view.
+ - The thing that inspires me about Daniel Radcliffe and the thing that I admire the most about him is that he’s had a level of fame thrust upon him that’s relatively unheard of.
+ - Twitter is the limit of me putting myself out there.
+ - Having done television, I was used to either being aware whether I got the part within the same day, or within two, three days max.
+ - I get recognized now and again, but the paparazzi aren’t following me around.
+ - My parents are proud of me being an actor.
+ - I never went to drama school.
+ - I’m very self-conscious as an actor, with performances and things, and I don’t like watching my own stuff.
+ - As long as I’m acting and doing what I love, I’ll be happy.
+ - Approaching a comedy character is fun because you get to sit down with the director and ask, “What makes you laugh?” Then you end up bouncing ideas off each other.
+
+38 quotes

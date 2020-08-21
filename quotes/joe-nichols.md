@@ -1,0 +1,62 @@
+ - I’ve learned to never underestimate the impossible.
+ - You have to believe that things can be bigger than what you see in front of you in order to move forward.
+ - The Lord has blessed me more than I deserve.
+ - Stubbornness and ignorance and determination are a very fine line from each other. I’m a very stubborn person, but not so stubborn that I can’t learn new things and meet new people, but I have a one-track mind.
+ - Australia is breathtakingly beautiful, and I can’t wait to visit again.
+ - I need to find a church on Sunday. I need to say ‘please’ and ‘thank you,’ ‘yes sir’ and ‘no ma’am.’ Do the little things because that’s part of being an adult.
+ - Our agricultural colleges continue to graduate specialists who become vocational agricultural teachers in the schools, and county agents, who go forth to extol the virtues of poison insecticides, herbicides, and commercial fertilizers.
+ - When people have passion there’s nothing they can’t do.
+ - I want to see success right away. And I want to never give up, never stop.
+ - Winning the ACM, winning the CMA, my first time on the Opry and having Grammy nominations were all a big deal to me.
+ - I’ve certainly had to bite my tongue on occasion and live to fight another day, so to speak, on certain things. But when you’re new and fresh, you come out and think, ‘I don’t want to screw my chance up, so I’ll go along with what everybody else does.’
+ - It’s important to show solidarity for a child, no matter what. It’s important for a child to be raised in a situation where she sees love, solidarity, commitment and honor.
+ - I enjoy every minute, because there are going to be a lot of moments in your future that you’re going to wish you held onto longer.
+ - I think the Lord gives us everything we can handle, nothing more.
+ - I recorded the song ‘Believers’ because I feel the song has a strong and much needed message. We all need encouragement and something to believe in.
+ - It’s important that adults get along with each other for the child’s sake, and that is our situation.
+ - We have a good opportunity to be good parents right now.
+ - I love Halloween, trick or treating and decorating the house. And I love Thanksgiving, because of the football and the fall weather. And of course, I love Christmas – that’s my favorite of all!
+ - Sometimes you have to listen to other people, and see what the audiences want. That’s what entertaining is about.
+ - I wanted to make a traditional record that had a lot of art and showed my vulnerable side and showed things I’m passionate about.
+ - The biggest question I have is if you’re a rock singer or a rock ‘n’ roll band, or if you’re a pop singer if you’ve made your way in another genre of music and now you want to make a country record, why? That’s my question. Why?
+ - You know, I’d like to sit here and blame everybody else for my trouble. I just can’t do that. I can’t find it in myself to do it.
+ - It doesn’t really matter to me what the rest of country is doing. I’m not caught up in trying to make a record that sounds like everybody else. That, to me, is a record label’s absolute biggest downfall.
+ - My message to kids who bully other kids is: You know it’s wrong! What’s really going on? Try not to make somebody else’s life miserable because you are.
+ - The overall physical demand that Iraq has is pretty amazing. It’s 130 degrees, and the soldiers are carrying about 100 pounds of extra gear. It’s a pretty rigorous schedule and routine for them.
+ - You know, I can be the happiest man in the world with minimal record success.
+ - The way that I am now, I don’t want to accept mediocrity. I don’t want to accept the easy road.
+ - I think it’s a natural fit, major league baseball and country music.
+ - I believe in angels. I believe in God.
+ - Performing for the Dalai Lama – those are words I never imagined coming out of my mouth.
+ - It’s always a pleasure to perform for people who love country music. And Australians definitely fall into that category. Each time I go back, I learn something new about the country, and I get to see some of the most beautiful places on the planet.
+ - Anybody can get lost in themselves.
+ - There’s been a lot of really cool stuff that’s happened to me throughout my career, and I remember everything, but I don’t think I savored every moment of it like I should have or like I do now.
+ - I’m big into fishing, but I’ve never been much of a hunter. I never was really raised around it a whole lot, so I never got a chance to do it a whole lot.
+ - For me, I wanted somebody that got me musically, that understood that I’m an artist and this is who I am. I’m not going to be like another artist on your label, probably – hopefully. I found all those things with the Broken Bow group.
+ - Everything that’s cool that happens, I look at my wife and I say, ‘We need to enjoy this moment right here! This is really special!’
+ - That’s what we need nowadays, is more children that have goals other than being a sports figure or some kind of celebrity. I think it’s great that a kid wants to learn more and wants to be at the peak of learning, especially at that young.
+ - I would never do anything that makes the perception of country music worse.
+ - I can’t sing anything other than country!
+ - Being an entertainer includes knowing how to connect with an audience.
+ - Learning how to relive again on life’s terms sure doesn’t do much for your confidence. You have to kind of walk in faith that the next step is going to be just a little bit better than the last step.
+ - The Dalai Lama’s entire being is about peace and harmony, forgiveness and self-discipline. Those are qualities to be admired. I am really looking forward to meeting His Holiness.
+ - I enjoy my life very much.
+ - I’m proud to have so many great friends at country radio who believe in what I do – thanks to all of them.
+ - The risks are ‘How country can you go?’ rather than ‘How rock can you take it?’
+ - I am a sports fanatic and being able to perform at halftime for the fans of the Steelers and the Jets is such a thrill for me.
+ - I was probably nine or ten the first time I heard there was no Santa Claus.
+ - I don’t think there’s anything wrong with singing a song and having fun with it.
+ - In my mind, as long as I did what was right for me, I was cool. But that’s not the way it works. You have to think about other people and take their feelings into account.
+ - I’m a traditional country singer and we’re always trying to make that a fresh and modern sound. That’s always going to be the challenge with me.
+ - When you find great songs, and somehow you get a spark in a little way, it can become brand new.
+ - My first record deal was an independent record deal back in 1995 or early 1996.
+ - I think every artist would love to just please themselves musically all day long.
+ - The passion for doing music, the passion that I have for going out and playing it live – my love for country music is back.
+ - I think it says wonders about people that can write an entire album, and put out an entire album of great songs. I mean, the Brad Paisley’s, Alan Jackson especially, even Taylor Swift – those people can really pen great stuff.
+ - If one artist sells five million albums, the tendency is for other artists to say, ‘Maybe I should do a little of that, too.’ That can be tough to resist.
+ - Sometimes as an artist you get wrapped up in what you are doing and you can’t be objective.
+ - I believe there’s things all around us that make you do good things and some that make you do bad things.
+ - I married a woman who’s not going to take anything. No slips. She’s very accountable, and she holds me very accountable.
+ - I think it is a huge honor to get to go play for the troops who have been working their tails off for several years, some with several tours under their belt.
+
+60 quotes

@@ -1,0 +1,24 @@
+ - One does not fight to influence change and then leave the change to someone else to bring about.
+ - What a liberal really wants is to bring about change that will not in any way endanger his position.
+ - Our noses are broad, our lips are thick, our hair is nappy-we are black and beautiful!
+ - If a white man wants to lynch me, that’s his problem. If he’s got the power to lynch me, that’s my problem. Racism is not a question of attitude; it’s a question of power.
+ - There is a higher law than the law of government. That’s the law of conscience.
+ - The first need of a free people is to define their own terms.
+ - Integration is a man’s ability to want to move in there by himself. If someone wants to live in a white neighborhood and he is black, that is his choice. It should be his rights. It is not because white people will not allow him.
+ - Capitalism is a stupid system, a backward system.
+ - The death of Che Guevara places a responsibility on all revolutionaries of the World to redouble their decision to fight on to the final defeat of Imperialism. That is why in essence Che Guevara is not dead, his ideas are with us.
+ - The masses don’t shed their blood for the benefit of a few individuals.
+ - So that the failures to pass a civil rights bill isn’t because of Black Power, isn’t because of the Student Nonviolent Coordinating Committee; it’s not because of the rebellions that are occurring in the major cities.
+ - Go home and tell your daughters they are beautiful.
+ - There has been only a civil rights movement, whose tone of voice was adapted to an audience of liberal whites.
+ - I place my own hope for the United States in the growth of belief among the unqualified that they are in fact qualified: they can articulate and be responsible and hold power.
+ - The philosophers Camus and Sartre raise the question whether or not a man can condemn himself.
+ - The only position for women in SNCC is prone.
+ - Now you know where I got my name.
+ - No man can given anybody his freedom.
+ - An organization which claims to be working for the needs of a community – as SNCC does – must work to provide that community with a position of strength from which to make its voice heard. This is the significance of black power beyond the slogan.
+ - We had no more courage than Harriet Tubman or Marcus Garvey had in their times. We just had a more vulnerable enemy.
+ - I maintain that every civil rights bill in this country was passed for white people, not for black people.
+ - An organization which claims to speak for the needs of a community must speak in the tone of that community.
+
+22 quotes

@@ -1,0 +1,67 @@
+ - No office in the land is more important than that of being a citizen.
+ - Gratitude is one of the least articulate of the emotions, especially when it is deep.
+ - The most constructive way of resolving conflicts is to avoid them.
+ - I know of no title that I deem more honorable than that of Professor of the Harvard Law School.
+ - The indispensible judicial requisite is intellectual humility.
+ - The history of liberty has largely been the history of the observance of procedural safeguards.
+ - Future lawyers should be more aware that law is not a system of abstract logic, but the web of arrangements, rooted in history but also in hopes, for promoting to a maximum the full use of a nation’s resources and talents.
+ - It is a wise man who said that there is no greater inequality than the equal treatment of unequals.
+ - The Procrustean bed is not a symbol of equality. It is no less inequality to have equality among unequals.
+ - Government is itself an art, one of the subtlest of the arts. It is neither business, nor technology, nor applied science. It is the art of making men live together in peace and with reasonable happiness.
+ - We have enjoyed so much freedom for so long that we are perhaps in danger of forgetting how much blood it cost to establish the Bill of Rights.
+ - Wisdom too often never comes, and so one ought not to reject it merely because it comes late.
+ - The real rulers in Washington are invisible, and exercise power from behind the scenes.
+ - The accretion of dangerous power does not come in a day. It does come, however slowly, from the generative force of unchecked disregard of the restrictions that fence in even the most disinterested assertion of authority.
+ - It is hostile to a democratic system to involve the judiciary in the politics of the people.
+ - Anybody who is any good is different from anybody else.
+ - Litigation is the pursuit of practical ends, not a game of chess.
+ - Without a free press there can be no free society. That is axiomatic. However, freedom of the press is not an end in itself but a means to the end of a free society. The scope and nature of the constitutional guarantee of the freedom of the press are to be viewed and applied in that light.
+ - Fragile as reason is and limited as law is as the institutionalised medium of reason, that’s all we have between us and the tyranny of mere will and the cruelty of unbridled, undisciplined feelings.
+ - Democracy is always a beckoning goal, not a safe harbor. For freedom is an unremitting endeavor, never a final achievement.
+ - All our work, our whole life is a matter of semantics, because words are the tools with which we work, the material out of which laws are made, out of which the Constitution was written. Everything depends on our understanding of them.
+ - Morals are three-quarters manners.
+ - Old age and sickness bring out the essential characteristics of a man.
+ - It is important not to give the appearance of a predisposed mind. And it is more important not to let the mind become predisposed.
+ - It is a fair summary of history to say that the safeguards of liberty have been forged in controversies involving not very nice people.
+ - The line must follow some direction of policy, whether rooted in logic or experience. Lines should not be drawn simply for the sake of drawing lines.
+ - Freedom of speech and of the press are essential to the enlightenment of a free people and in restraining those who wield power.
+ - Is that which was deemed to be of so fundamental a nature as to be written into the Constitution to endure for all times to be the sport of shifting winds of doctrine?
+ - The ultimate foundation of a free society is the binding tie of cohesive sentiment.
+ - It is easy to make light of insistence on scrupulous regard for the safeguards of civil liberties when invoked on behalf of the unworthy. History bears testimony that by such disregard are the rights of liberty extinguished, heedlessly at first, then stealthily, and brazenly in the end.
+ - The eternal struggle in the law between constancy and change is largely a struggle between history and reason, between past reason and present needs.
+ - A phrase begins life as a literary expression; its felicity leads to its lazy repetition; and repetition soon establishes it as a legal formula, undiscriminatingly used to express different and sometimes contradictory ideas.
+ - Of compelling consideration is the fact that words acquire scope and function from the history of events which they summarize.
+ - No judge writes on a wholly clean slate.
+ - To be effective, judicial administration must not be leaden-footed.
+ - In law also the emphasis makes the song.
+ - It would be a narrow conception of jurisprudence to confine the notion of ‘laws’ to what is found written on the statute books, and to disregard the gloss which life has written upon it.
+ - There is no inevitability in history except as men make it.
+ - Judicial judgment must take deep account of the day before yesterday in order that yesterday may not paralyze today.
+ - Freedom of the press is not an end in itself but a means to the end of a free society.
+ - Appeal must be to an informed, civically militant electorate.
+ - The ultimate touchstone of constitutionality is the Constitution itself and not what we have said about it.
+ - For the highest exercise of judicial duty is to subordinate one’s personal pulls and one’s private views to the law of which we are all guaradians – those impersonal convictions that made a society a civilized community, and not the victims of personal rule.
+ - To some lawyers, all facts are created equal.
+ - It simply is not true that war never settles anything.
+ - One is entitled to say without qualification that the correlation between prior judicial experience and fitness for the Supreme Court is zero.
+ - There can be no security where there is fear.
+ - We forget that the most successful statesmen have been professionals. Lincoln was a professional politician.
+ - In the first place, lawyers better remember they are human beings, and a human being who hasn’t his periods of doubts and distresses and disappointments must be a cabbage, not a human being. That is number one.
+ - The dynamo of our economic system is self-interest which may range from mere petty greed to admirable types of self-expression.
+ - While it is not always profitable to analogize fact to fiction, La Fontaine’s fable of the crow, the cheese, and the fox demonstrates that there is a substantial difference between holding a piece of cheese in the beak and putting it in the stomach.
+ - Liberty of thought soon shrivels without freedom of expression. Nor can truth be pursued in an atmosphere hostile to the endeavor or under dangers which are hazarded only by heroes.
+ - No court can make time stand still.
+ - There is torture of mind as well as body; the will is as much affected by fear as by force. And there comes a point where this Court should not be ignorant as judges of what we know as men.
+ - I don’t like a man to be too efficient. He’s likely to be not human enough.
+ - It is anomalous to hold that in order to convict a man the police cannot extract by force what is in his mind, but can extract what is in his stomach.
+ - The mark of a truly civilized man is confidence in the strength and security derived from the inquiring mind.
+ - Ambiguity lurks in generality and may thus become an instrument of severity.
+ - Answers are not obtained by putting the wrong question and thereby begging the real one.
+ - Thirty resolute men in your House of Commons could save the world.
+ - Anybody can decide a question if only a single principle is in controversy.
+ - After all, advocates, including advocates for States, are like managers of pugilistic and election contestants, in that they have a propensity for claiming everything.
+ - It has not been unknown that judges persist in error to avoid giving the appearance of weakness and vacillation.
+ - A court which yields to the popular will thereby licenses itself to practice despotism, for there can be no assurance that it will not on another occasion indulge its own will.
+ - If one man can be allowed to determine for himself what is law, every man can. That means first chaos, then tyranny. Legal process is an essential part of the democratic process.
+
+65 quotes

@@ -1,0 +1,55 @@
+ - Integrity never goes out of style.
+ - Communication is not a one-way street.
+ - Serving others prepares you to lead others.
+ - Spiritual warfare is the unseen battle God wages on your behalf.
+ - It’s not how you start that’s important, but how well you finish!
+ - Choose your words carefully. They reveal your inner character.
+ - Faithfulness to God requires your obedience, even when it’s difficult.
+ - Spiritual maturity is a lifelong pursuit. We grow in spiritual maturity moment by moment, day by day, year by year.
+ - Listening is an act of love. When you listen to people, you are communicating non-verbally that they are important to you.
+ - God honors you when you take a stand for what is right.
+ - Faith, prayer, and the Word of God are the weapons God provides you with to fight spiritual battles.
+ - Transitions themselves are not the issue, but how well you respond to their challenges!
+ - Your willingness to serve God is as important as your service to God.
+ - Marriage is a team effort. Grow closer to each other as you grow closer to God.
+ - In many ways spiritual exercise is like physical exercise. If you stop exercising physically, your body may not show the results of inactivity for a while. But one day you wake up and find everything is sagging in all the wrong places.
+ - Eventually your little choices are going to become habits that affect the bigger decisions you make in life.
+ - Restoration and hope is available each time you return to God.
+ - When you don’t understand what is happening, you need to wait, trust God, and rest in His care. He is always faithful to His own.
+ - True biblical love is a selfless commitment of one’s body, soul, and spirit to the betterment of the other person.
+ - A good leader will seek the wisdom of others. After all, no man is an island!
+ - Don’t let less-than-perfect circumstances keep you from trusting God.
+ - If you need a guide for your ongoing relationship with God, read Psalms.
+ - There is no greater treasure than a husband who models godliness before his wife and children on a daily basis.
+ - Every major accomplishment in a man’s life requires a major level of commitment.
+ - Spiritual joy is what you experience when you choose to give thanks to God no matter what happens-even when things go wrong.
+ - You can make your marriage a little bit of heaven on earth by following God’s plan of teamwork.
+ - Leaders are hard workers. They never expect more out of the people around them than they are willing to give themselves.
+ - Just as water is the only thing that can relieve thirst in the desert, the provision of God’s Word is the only thing that can satisfy our spiritual thirst.
+ - God is gracious to always give a warning before He sends judgment.
+ - To experience spiritual victory, you must depend on God’s resources.
+ - Blessing come to you when you are obedient to God’s commands.
+ - As your heart goes, so goes your family! If your heart isn’t right, no child raising system, rules, or gimmicks will ever work. As your heart goes, so goes your parenting!
+ - It’s not your schedule that keeps you from praying, it’s your failure to realize the importance of prayer.
+ - As you can see marriage is about putting away selfishness and taking on the concept of teamwork.
+ - Faithfulness and character are noble qualities that God honors.
+ - The amount of time we give to something indicates it’s importance to us.
+ - God will bless you and your marriage when you follow His blueprint.
+ - Your tragedy is God’s opportunity to show Himself faithful.
+ - Communication is not so much about what you say, as what you don’t say.
+ - Your positive impact on the generations to come will be directly related to the ministry you have in that little place called home.
+ - Adversity gives you the opportunity to exhibit godly character.
+ - When you yield yourself in complete and whole-hearted obedience to God, He can do great things through you.
+ - Start where you are-do anything you can do, and do everything you can do, until you find something you must do! That something is probably your spiritual gift.
+ - When it comes to the heart and soul, only the Bible can bring true and lasting changes.
+ - Effective leaders allow God to shape them into the kind of people they need to be for each situation they encounter.
+ - Leaders inspire the people around them to become better.
+ - There is no substitute for your impassioned prayers on behalf of your children.
+ - Every good marriage must be a friendship between two people who are willing to sacrifice for the other person.
+ - View your body as something God has entrusted into your care.
+ - God has given you two ears – that should tell you something about the importance of listening.
+ - Having the right attitude is fundamental to being an effective leader.
+ - The heart is the place where our life gets its direction.
+ - The best way to encourage your children is to let them know you are praying for them.
+
+53 quotes

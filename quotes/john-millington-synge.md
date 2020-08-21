@@ -1,0 +1,27 @@
+ - No man at all can be living forever and we must be satisfied.
+ - A translation is no translation unless it will give you the music of a poem along with the words of it.
+ - The general knowledge of time on the island depends, curiously enough, on the direction of the wind.
+ - It is the timber of poetry that wears most surely, and there is no timber that has not strong roots among the clay and worms.
+ - What is the price of a thousand horses against a son where there is one son only?
+ - Drink a health to the wonders of the western world, the pirates, preachers, poteen-makers, with the jobbing jockies; parching peelers, and the juries fill their stomachs selling judgments of the English law.
+ - Lord, confound this surly sister, blight her brow with blotch and blister, cramp her larynx, lung and liver, in her guts a galling give her.
+ - Words, particularly in a play, should have the texture of a crisp, autumn apple.
+ - Before verse can be human again it must learn to be brutal.
+ - A week of sweeping fogs has passed over and given me a strange sense of exile and desolation. I walk round the island nearly every day, yet I can see nothing anywhere but a mass of wet rock, a strip of surf, and then a tumult of waves.
+ - Foreign languages are another favourite topic, and as these men are bilingual they have a fair notion of what it means to speak and think in many different idioms.
+ - When I was writing The Shadow of the Glen I got more aid than any learning could have given me from a chink in the floor of the old Wicklow house where I was staying, that let me hear what was being said by the servent girls in the kitchen.
+ - In a good play every speech should be as fully flavored as a nut or apple.
+ - A man who is not afraid of the sea will soon be drowned, for he will be going out on a day when he shouldn’t.
+ - They’re cheering a young lad, the champion playboy of the Western World.
+ - I knew the stars, the flowers, and the birds, The gray and wintry sides of many glens, And did but half remember human words, In converse with the mountains, moors, and fens.
+ - I’m a good scholar when it comes to reading but a blotting kind of writer when you give me a pen.
+ - In this cry of pain the inner consciousness of the people seems to lay itself bare for an instant, and to reveal the mood of beings who feel their isolation in the face of a universe that wars on them with winds and seas.
+ - There is no language like the Irish for soothing and quieting.
+ - The drama, like the symphony, does not teach or prove anything.
+ - In the middle classes the gifted son of a family is always the poorest – usually a writer or artist with no sense for speculation – and in a family of peasants, where the average comfort is just over penury, the gifted son sinks also, and is soon a tramp on the roadside.
+ - It gave me a moment of exquisite satisfaction to find myself moving away from civilisation in this rude canvas canoe of a model that has served primitive races since men first went to sea.
+ - Every article on these islands has an almost personal character, which gives this simple life, where all art is unknown, something of the artistic beauty of medieval life.
+ - A low line of shore was visible at first on the right between the movement of the waves and fog, but when we came further it was lost sight of, and nothing could be seen but the mist curling in the rigging, and a small circle of foam.
+ - At first I threw my weight upon my heels, as one does naturally in a boot, and was a good deal bruised, but after a few hours I learned the natural walk of man, and could follow my guide in any portion of the island.
+
+25 quotes

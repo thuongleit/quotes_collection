@@ -1,0 +1,27 @@
+ - I have gotten into a lot of trouble in my life for being brutally honest. Sometimes I put both my feet in my mouth. But like Elton John, I’m still standing.
+ - Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.
+ - I’m very, very Spanish. I have fat cheeks on both ends. I’m sitting on my Spanish part. And it’s my heart, the way I am, the way I speak. It has nothing to do with the way I look.
+ - For me, the American promise isn’t just an idea or a theory – it’s my life story.
+ - To realize the American dream, the most important thing to understand is that it belongs to everybody. It’s a human dream. If you understand this and work very hard, it is possible.
+ - In my house, we speak Spanglish to the dogs, to the grandchildren, to the kids.
+ - Like most Latinas, I’m not afraid to speak my mind.
+ - People would write me hate letters. How dare I try to represent Hispanics when I was so white? I tried to make them see it was racism.
+ - I’ll never retire from working; I’ll keep my life interesting until I drop dead.
+ - You need to put easy, nice, tranquil thoughts in your head before you go to bed. You know what I do? I read metaphysical books. The good stuff stays in your brain once you go under.
+ - The difference between Oprah Winfrey and me is about $200 million.
+ - You have to eat right. That does not mean that I don’t drink Cuban coffee. That does not mean that I do not have two cigarettes a day – that’s what I’m down to. I drink wine – you know, I’m normal. But I do eat well.
+ - The world is not ideal, and the only weapon we can give our children is information. Information which is not pretty, but honest.
+ - People look at you and see that you’ve made it, but sometimes they forget that it took you years of being a human being.
+ - President Obama is a principled man who has worked hard to put healthcare and a good education in the reach of millions of Americans and believes that everyone who works hard and plays by the rules, should have a fair shot at the American dream.
+ - We Latin women are liberated from the neck up, not the neck down.
+ - The common denominator all Latinos have is that we want some respect. That’s what we’re all fighting for.
+ - My hope is to see Tom Cruise jumping on my couch.
+ - If you stay on the air for 18 years, people know you.
+ - Being a professional woman, I function the best when I don’t distinguish between work and play.
+ - The talk show, as a genre, has been in decline for a while. It started with Jerry Springer, when the talk shows suffered a metamorphosis, going from the real and social issues to the hair-raising.
+ - If I have to be compared to somebody, it is to Martha Stewart.
+ - I’m a royal pain in the behind.
+ - I want to make sure I’m not a dilettante. Decorating has been a passion all my life. I love it.
+ - I came to this country when I was 12 years old because my parents wanted to give me new opportunities to succeed. President Obama wants everyone to have the chances I had.
+
+25 quotes

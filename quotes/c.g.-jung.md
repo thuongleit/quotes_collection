@@ -1,0 +1,502 @@
+ - You are what you do, not what you say you’ll do.
+ - Thinking is difficult, that’s why most people judge.
+ - Until you make the unconscious conscious, it will direct your life and you will call it fate.
+ - I am not what happened to me, I am what I choose to become.
+ - What you resist, persists.
+ - Knowing your own darkness is the best method for dealing with the darknesses of other people.
+ - Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes.
+ - I must also have a dark side if I am to be whole.
+ - The privilege of a lifetime is to become who you truly are.
+ - No tree, it is said, can grow to heaven unless its roots reach down to hell.
+ - The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed.
+ - Everything that irritates us about others can lead us to an understanding of ourselves.
+ - The best political, social, and spiritual work we can do is to withdraw the projection of our shadow onto others.
+ - The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it.
+ - Even a happy life cannot be without a measure of darkness, and the word happy would lose its meaning if it were not balanced by sadness.
+ - Every form of addiction is bad, no matter whether the narcotic be alcohol, morphine or idealism.
+ - Shame is a soul eating emotion.
+ - Synchronicity is an ever present reality for those who have eyes to see.
+ - Wholeness is not achieved by cutting off a portion of one’s being, but by integration of the contraries.
+ - As far as we can discern, the sole purpose of human existence is to kindle a light of meaning in the darkness of mere being.
+ - Who looks outside, dreams; who looks inside, awakes.
+ - There is no coming to consciousness without pain. People will do anything, no matter how absurd, in order to avoid facing their own Soul. One does not become enlightened by imagining figures of light, but by making the darkness conscious.
+ - Nothing has a stronger influence psychologically on their environment and especially on their children than the unlived life of the parent.
+ - Everyone you meet knows something you don’t know but need to know. Learn from them.
+ - People will do anything, no matter how absurd, to avoid facing their own souls.
+ - Life really does begin at forty. Up until then, you are just doing research.
+ - The creation of something new is not accomplished by the intellect but by the play instinct acting from inner necessity. The creative mind plays with the objects it loves. 
+ - Solitude is for me a fount of healing which makes my life worth living. Talking is often a torment for me, and I need many days of silence to recover from the futility of words.
+ - One does not become enlightened by imagining figures of light, but by making the darkness conscious.
+ - To ask the right question is already half the solution of a problem.
+ - Normality is a fine ideal for those who have no imagination.
+ - Wisdom accepts that all things have two sides.
+ - Mistakes are, after all, the foundations of truth, and if a man does not know what a thing is, it is at least an increase in knowledge if he knows what it is not. 
+ - Embrace your grief. For there, your soul will grow.
+ - Where love rules, there is no will to power, and where power predominates, love is lacking. The one is the shadow of the other.
+ - Synchronicity: A meaningful coincidence of two or more events where something other than the probability of chance is involved.
+ - Free will is the ability to do gladly that which I must do.
+ - Art is a kind of innate drive that seizes a human being and makes him its instrument. To perform this difficult office it is sometimes necessary for him to sacrifice happiness and everything that makes life worth living for the ordinary human being.
+ - The greatest tragedy of the family is the unlived lives of the parents.
+ - In every adult there lurks a child – an eternal child, something that is always becoming, is never completed, and calls for unceasing care, attention, and education. That is the part of the personality which wants to develop and become whole.
+ - We meet ourselves time and again in a thousand disguises on the path of life.
+ - The ability to ask questions is the greatest resource in learning the truth.
+ - In all chaos there is a cosmos, in all disorder a secret order.
+ - We cannot change anything until we accept it. Condemnation does not liberate, it oppresses.
+ - There is no coming to consciousness without pain.
+ - One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child.
+ - Neurosis is the natural by-product of pain avoidance.
+ - In each of us there is another whom we do not know.
+ - The highest, most decisive experience is to be alone with one’s own self. You must be alone to find out what supports you, when you find that you can not support yourself. Only this experience can give you an indestructible foundation.
+ - When you are up against a wall, put down roots like a tree, until clarity comes from deeper sources to see over that wall and grow.
+ - The greatest potential for growth and self-realisation exists in the second half of life.
+ - All fanaticism is repressed doubt.
+ - Had I left those images hidden in the emotions, I might have been torn to pieces by them.
+ - The difference between a good life and a bad life is how well you walk through the fire.
+ - Intuition is perception via the unconscious that brings forth ideas, images, new possibilities and ways out of blocked situations.
+ - To confront a person with their own shadow is to show them their own light.
+ - The doctor is effective only when he himself is affected. Only the wounded physician heals.
+ - Whatever is rejected from the self, appears in the world as an event.
+ - Perhaps, I myself am the enemy who needs to be loved.
+ - Man cannot stand a meaningless life.
+ - Hurry is not of the devil; hurry is the devil.
+ - Knowledge rests not upon truth alone, but upon error also.
+ - One must be able to let things happen.
+ - The pendulum of the mind alternates between sense and nonsense, not between right and wrong.
+ - God enters through the wound.
+ - Religion is a defense against the experience of God.
+ - Called or not, God is always there.
+ - Faith, hope, love, and insight are the highest achievements of human effort. They are found-given-by experience.
+ - That which you do not bring to consciousness comes to you as your Fate, that which you do bring to consciousness, whether it was what you thought you wanted or not, is your destiny.
+ - Real work is completed in silence and strikes a chord in the minds of only a very few.
+ - As a child I felt myself to be alone, and I am still, because I know things and must hint at things which others apparently know nothing of, and for the most part do not want to know.
+ - The healthy man does not torture others – generally it is the tortured who turn into torturers.
+ - The least of things with a meaning is worth more in life than the greatest of things without it.
+ - Everyone can afford to give away a smile.
+ - The unexpected and the incredible belong in this world. Only then is life whole.
+ - The capacity for inner dialogue is a touchstone for outer objectivity.
+ - We cannot live the afternoon of life according to the program of life’s morning; for what in the morning was true will in evening become a lie.
+ - Resistance to the organized mass can be effected only by the man who is as well organized in his individuality as the mass itself.
+ - What if I should discover that the poorest of the beggars and the most impudent of offenders are all within me; and that I stand in need of the alms of my own kindness, that I, myself, am the enemy who must be loved – what then?
+ - Shadow work is the path of the heart warrior.
+ - Man is the microcosm of the macrocosm ; the God on earth is built on the pattern of the God in nature. But the universal consciousness of the real Ego transcends a million fold the self-consciousness of the personal for false ego.
+ - Nothing affects the life of a child so much as the unlived life of its parent.
+ - We need more understanding of human nature, because the only real danger that exists is man himself.
+ - The world of gods and spirits is truly ‘nothing but’ the collective unconscious inside me.
+ - Nothing worse could happen to one than to be completely understood.
+ - I am astonished, disappointed, pleased with myself. I am distressed, depressed, rapturous. I am all these things at once and cannot add up the sum.
+ - Midlife is the time to let go of an overdominant ego and to contemplate the deeper significance of human existence.
+ - Space flights are merely an escape, a fleeing away from oneself, because it is easier to go to Mars or to the moon than it is to penetrate one’s own being.
+ - The self is our life’s goal, for it is the completest expression of that fateful combination we call individuality.
+ - So they speak soothingly about progress and the greatest possible happiness, forgetting that happiness is itself poisoned if the measure of suffering has not been fulfilled.
+ - What is essential in a work of art is that it should rise far above the realm of personal life and speak to the spirit and heart of the poet as man to the spirit and heart of mankind.
+ - The unconscious wants to flow into consciousness in order to reach the light, but at the same time it continually thwarts itself, because it would rather remain unconscious. That is to say, God wants to become man, but not quite.
+ - The decisive question for man is: Is he related to something infinite or not? That is the telling question of his life.
+ - We want to have certainties and no doubts- results and no experiments- without even seeing that certainties can arise only through doubt and results only thorough experiment.
+ - Warmth is the vital element for the growing plant and for the soul of the child.
+ - It is also possible for the unconscious or an archetype to take complete possession of a man and to determine his fate down to the smallest detail.
+ - We know that the wildest and most moving dramas are played not in the theatre but in the hearts of ordinary men and women.
+ - We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them.
+ - This whole creation is essentially subjective, and the dream is the theater where the dreamer is at once: scene, actor, prompter, stage manager, author, audience, and critic.
+ - It is high time that we realized that it is pointless to praise the light and preach it if nobody can see it. It is much more needful to preach the art of seeing.
+ - The psychic depths are nature, and nature is creative life.
+ - The foundation of all mental illness is the unwillingness to experience legitimate suffering.
+ - Loneliness does not come from having no people about one, but from being unable to communicate the things that seem important to oneself, or from holding certain views which others find inadmissible.
+ - The world will ask you who you are, and if you don’t know, the world will tell you.
+ - How can I be substantial if I do not cast a shadow? I must have a dark side also If I am to be whole.
+ - Life calls not for perfection, but for completeness.
+ - If a man knows more than others, he becomes lonely.
+ - The collective unconscious contains the whole spiritual heritage of mankind’s evolution born anew in the brain structure of every individual.
+ - Recognition of the reality of evil necessarily relativizes the good, and the evil likewise, converting both into halves of a paradoxical whole.
+ - Where wisdom reigns, there is no conflict between thinking and feeling.
+ - Often the hands will solve a mystery that the intellect has struggled with in vain.
+ - We have forgotten the age-old fact that God speaks chiefly through dreams and visions.
+ - A mandala is the psychological expression of the totality of the self.
+ - Synchronicity reveals the meaningful connections between the subjective and objective world.
+ - The most important question anyone can ask is: What myth am I living?
+ - It all depends on how we look at things, and not how they are in themselves.
+ - Show me a sane man and I will cure him for you.
+ - The most terrifying thing is to accept oneself completely.
+ - I would rather be whole than good.
+ - The reason for evil in the world is that people are not able to tell their stories.
+ - Learn your theories as well as you can, but put them aside when you touch the miracle of the living soul.
+ - When you succeed in awakening the Kundalini, so that it starts to move out of its mere potentiality, you necessarily start a world which is totally different from our world. It is the world of eternity.
+ - The creative mind plays with the object it loves.
+ - Life is a luminous pause between two mysteries that are yet one.
+ - The unconscious process moves spiral-wise around a center, gradually getting closer, while the characteristics of the center grow more and more distinct.
+ - The greater the contrast, the greater the potential. Great energy only comes from a correspondingly great tension of opposites.
+ - If our religion is based on salvation, our chief emotions will be fear and trembling. If our religion is based on wonder, our chief emotion will be gratitude.
+ - In sleep, fantasy takes the form of dreams. But in waking life, too, we continue to dream beneath the threshold of consciousness, especially when under the influence of repressed or other unconscious complexes.
+ - The man who promises everything is sure to fulfil nothing, and everyone who promises too much is in danger of using evil means in order to carry out his promises, and is already on the road to perdition.
+ - Conflict exists strictly as an opportunity to raise our consciousness.
+ - Astrology is assured of recognition from psychology, without further restrictions, because astrology represents the summation of all the psychological knowledge of antiquity.
+ - Active imagination requires a state of reverie, half-way between sleep and waking.
+ - Summoned or not, the god will come.
+ - To be normal is the ultimate aim of the unsuccessful.
+ - The whole point of Jesus’s life was not that we should become exactly like him, but that we should become ourselves in the same way he became himself. Jesus was not the great exception but the great example.
+ - If a union is to take place between opposites like spirit and matter, conscious and unconscious, bright and dark, and so on, it will happen in a third thing, which represents not a compromise but something new.
+ - The shadow is a moral problem that challenges the whole ego-personality, for no one can become conscious of the shadow without considerable moral effort.
+ - The right way to wholeness is made up of fateful detours and wrong turnings.
+ - The unconscious is not just evil by nature, it is also the source of the highest good: not only dark but also light, not only bestial, semihuman, and demonic but superhuman, spiritual, and, in the classical sense of the word, “divine.”
+ - The descent into the depths always seems to precede the ascent.
+ - We don’t get wounded alone and we don’t heal alone.
+ - The attainment of wholeness requires one to stake one’s whole being. Nothing less will do; there can be no easier conditions, no substitutes, no compromises.
+ - Individualization does not shut one out from the world, but gathers the world to oneself.
+ - The meaning and design of a problem seem not to lie in its solution, but in our working at it incessantly.
+ - One finds one’s destiny on the path one takes to avoid it.
+ - We should not pretend to understand the world only by the intellect. The judgement of the intellect is only part of the truth.
+ - Only the wounded physician heals.
+ - Seldom, or perhaps never, does a marriage develop into an individual relationship smoothly and without crises; there is no coming to consciousness without pain.
+ - Just as we tend to assume that the world is as we see it, we naively suppose that people are as we imagine them to be.
+ - I believe that history is capable of anything. There exists no folly that men have not tried out.
+ - Magic is the science of the jungle.
+ - If there is a fear of falling, the only safety consists in deliberately jumping.
+ - Everyone carries a shadow, and the less it is embodied in the individual’s conscious life, the blacker and denser it is. At all counts, it forms an unconscious snag, thwarting our most well-meant intentions.
+ - All art intuitively apprehends coming changes in the collective unconsciousness.
+ - When an inner situation is not made conscious, it appears outside as fate.
+ - There is no light without shadow, and no psychic wholeness without imperfection.
+ - Commendation heals; condemnation destroys.
+ - For the alchemist the one primarily in need of redemption is not man, but the deity who is lost and sleeping in matter.
+ - Fidelity to the law of your own being is an act of high courage flung in the face of life.
+ - Where love stops, power begins, and violence, and terror.
+ - But, if you have nothing at all to create, then perhaps you create yourself.
+ - The unconscious mind of man sees correctly even when conscious reason is blind and impotent.
+ - I am no longer alone with myself, and I can only artificially recall the scary and beautiful feeling of solitude. This is the shadow side of the fortune of love.
+ - All the most powerful ideas in history go back to archetypes.
+ - Trust that which gives you meaning and accept it as your guide.
+ - The symbols of the self arise in the depths of the body, and they express its materiality every bit as much as the perceiving consciousness. The symbol is thus a living body.
+ - The psychiatrist knows only too well how each of us becomes the helpless but not pitiable victim of his own sentiments. Sentimentality is the superstructure erected upon brutality.
+ - A particularly beautiful woman is a source of terror. As a rule, a beautiful woman is a terrible disappointment.
+ - The world hangs on a thin thread, and that is the psyche of man.
+ - Liverpool is the pool of life, it makes to live.
+ - The greatest sin is to be unconscious.
+ - The only thing we have to fear on this planet is man.
+ - Do not compare, do not measure. No other way is like yours. All other ways deceive and tempt you. You must fulfill the way that is in you.
+ - In the products of the unconscious we discover mandala symbols, that is, circular and quaternity figures which express wholeness, and whenever we wish to express wholeness, we employ just such figures.
+ - The separation of psychology from the premises of biology is purely artificial, because the human psyche lives in indissoluble union with the body.
+ - We don’t so much solve our problems as we outgrow them. We add capacities and experiences that eventually make us bigger than the problems.
+ - Dreams are the guiding words of the Soul.
+ - A man who has not passed through the inferno of his passions has never overcome them.
+ - The Christian missionary may preach the gospel to the poor naked heathen, but the spiritual heathen who populate Europe have as yet heard nothing of Christianity.
+ - Children are educated by what the grown-up is and not by his talk.
+ - As a plant produces its flower, so the psyche creates its symbols.
+ - Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
+ - Simple things are always the most difficult.
+ - The bigger the crowd, the more negligible the individual.
+ - Thank God I’m not a Jungian.
+ - There is no such thing as a pure extrovert or a pure introvert. Such a man would be in the lunatic asylum.
+ - The dream is the small hidden door in the deepest and most intimate sanctum of the soul...
+ - If there is anything that we wish to change in the child, we should first examine it and see whether it is not something that could better be changed in ourselves.
+ - Neurosis is the suffering of a soul which has not discovered its meaning.
+ - To find out what is truly individual in ourselves, profound reflection is needed; and suddenly we realize how uncommonly difficult the discovery of individuality is.
+ - Our unconscious is the key to our life’s pursuits.
+ - Neurosis is always a substitute for legitimate suffering.
+ - Who has fully realized that history is not contained in thick books but lives in our very blood?
+ - Nobody can fall so low unless he has a great depth. If such a thing can happen to a man, it challenges his best and highest on the other side; that is to say, this depth corresponds to a potential height, and the blackest darkness to a hidden light.
+ - Man’s task is to become conscious of the contents that press upward from the unconscious.
+ - What we lack is intensity of life.
+ - When facts are few, speculations are most likely to represent individual psychology.
+ - All true things must change and only that which changes remains true.
+ - Sometimes you have to do something unforgivable just to be able to go on living.
+ - Enlightenment consists not merely in the seeing of luminous shapes and visions, but in making the darkness visible. The latter procedure is more difficult and therefore, unpopular.
+ - What usually has the strongest psychic effect on the child is the life which the parents have not lived.
+ - Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+ - I shall not commit the fashionable stupidity of regarding everything I cannot explain as a fraud.
+ - Nature is not matter only. She is also a spirit.
+ - Life is crazy and meaningful at once.
+ - Intuition does not denote something contrary to reason, but something outside of the province of reason.
+ - Please remember, it is what you are that heals, not what you know.
+ - It is a fact that cannot be denied: the wickedness of others becomes our own wickedness because it kindles something evil in our own hearts.
+ - That which we do not confront in ourselves we will meet as fate.
+ - A dream that is not understood remains a mere occurrence; understood it becomes a living experience.
+ - Words are animals, alive with a will of their own.
+ - No dream symbol can be separated from the individual who dreams it, and there is no definite or straightforward interpretation of any dream.
+ - It was most essential for me to have a normal life in the real world as a counterpoise to that strange inner world. My family and my profession remained the base to which I could return...
+ - Dawn is born at midnight.
+ - Individuation is to divest the self of false wrappings.
+ - Nights through dreams tell the myths forgotten by the day.
+ - Deep down, below the surface of the average man’s conscience, he hears a voice whispering, “There is something not right,” no matter how much his rightness is supported by public opinion or moral code.
+ - An old man who cannot bid farewell to life appears as feeble and sickly as the young man who is unable to embrace it.
+ - I don’t believe there is a God. I know there is a God.
+ - Every psychic advance of man arises from the suffering of the soul.
+ - A creative person has little power over his own life. He is not free. He is captive and driven by his daimon.
+ - No man can change himself into anything from sheer reason; he can only change into what he potentially is.
+ - I could not say I believe. I know! I have had the experience of being gripped by something that is stronger than myself, something that people call God.
+ - Nothing is possible without love.
+ - Every living soul has different talents, different desires, different faculties. Be yourself, for even if you deceive the entire world, you will be ten thousand times worse than nothing.
+ - No matter what the world thinks about religious experience, the one who has it possesses a great treasure, a thing that has become for him a source of life, meaning, and beauty, and that has given a new splendor to the world and to mankind.
+ - Neurosis is an inner cleavage-the state of being at war with oneself.
+ - The squaring of the circle is a stage on the way to the unconscious, a point of transition leading to a goal lying as yet unformulated beyond it. It is one of those paths to the centre.
+ - It is a bewildering thing in human life that the things that cause the greatest fear is the source of the greatest wisdom.
+ - The debt we owe to the play of imagination is incalculable.
+ - Our psyche is set up in accord with the structure of the universe, and what happens in the macrocosm likewise happens in the infinitesimal and most subjective reaches of the psyche.
+ - Far from being a material world, this is a psychic world, which allows us to make only indirect and hypothetical inferences about the real nature of matter. The psychic, alone has immediate reality, and this includes all forms of the psychic, even.
+ - We discover ourselves through others.
+ - The shoe that fits one person pinches another; there is no recipe for living that suits all cases.
+ - In my case Pilgrim’s Progress consisted in my having to climb down a thousand ladders until I could reach out my hand to the little clod of earth that I am.
+ - The maintenance of secrets acts like a psychic poison which alienates the possessor from the community.
+ - Man and woman become a devil to each other when they do not separate their spiritual paths, for the nature of created beings is always the nature of differentiation.
+ - The true leader is always led.
+ - Dreams are symbolic in order that they cannot be understood; in order that the wish, which is the source of the dream, may remain unknown.
+ - Every Mother contains her daughter in herself and every daughter her mother and every mother extends backwards into her mother and forwards into her daughter.
+ - I had to make a confession of faith in stone. That was the beginning of the tower, the house I built for myself at Bollingen.
+ - What happens after death is so unspeakably glorious that our imagination and our feelings do not suffice to form even an approximate conception of it. The dissolution of our time-bound form in eternity brings no loss of meaning.
+ - People cannot stand too much Reality.
+ - The reason for such an “unreasonable” attitude with me is that I am not at all sure what will happen to me after death. I have good reasons to assume that things are not finished with death. Life seems to be an interlude in a long story.
+ - No concept is a carrier of life.
+ - Conflicts create the fire of affects and emotions; and like every fire it has two aspects: that of burning and that of giving light.
+ - For better to come, good must stand aside.
+ - Our world has become dehumanized. Man feels himself isolated in the cosmos, because he is no longer involved in nature.
+ - When goals go, meaning goes. When meaning goes, purpose goes. When purpose goes, life goes dead on our hands.
+ - There can be no transforming of darkness into light and of apathy into movement without emotion.
+ - I’ve realized that somebody who’s tired and needs a rest, and goes on working all the same is a fool.
+ - Shrinking away from death is something unhealthy and abnormal which robs the second half of life of its purpose.
+ - A sense of a wider meaning to one’s existence is what raises a man beyond mere getting and spending. If he lacks this sense, he is lost and miserable.
+ - The Self then functions as a union of opposites and thus constitutes the most immediate experience of the Divine which it is psychologically possible to imagine.
+ - One of the main functions of formalized religion is to protect people against a direct experience of God.
+ - The most intense conflicts, if overcome, leave behind a sense of security and calm that is not easily disturbed. It is just these intense conflicts and their conflagration which are needed to produce valuable and lasting results.
+ - From the viewpoint of analytic psychology, the theatre, aside from any aesthetic value, may be considered as an institution for the treatment of the mass complex.
+ - Sensation tell us a thing is. Thinking tell us what it is this thing is. Feeling tells us what this thing is to us.
+ - Understanding does not cure evil, but it is a definite help, inasmuch as one can cope with a comprehensible darkness.
+ - Our souls as well as our bodies are composed of individual elements which were all already present in the ranks of our ancestors. The “newness” in the individual psyche is an endlessly varied recombination of age-old components.
+ - The symbols of the self arise from the depths of the body.
+ - We are a psychic process which we do not control, or only partly direct. Consequently, we cannot have any final judgment about ourselves or our lives.
+ - Water is the commonest symbol for the unconscious.
+ - In the history of the collective as in the history of the individual, everything depends on the development of consciousness.
+ - Hitler is a medicine man type of leader.
+ - Meaninglessnes s inhibits fullness of life and is therefore the equivalent to illness. Meaning makes a great many things endurable – perh aps everything.
+ - Follow that will and that way which experience confirms to be your own.
+ - Paul hardly ever allows the real Jesus of Nazareth to get a word in.
+ - The apparently unendurable conflict is proof of the rightness of your life. A life without contradiction is only half a life; or else a life in the Beyond, which is destined only for angels. But God loves human beings more than the angels.
+ - I live in my deepest hell and from there I cannot fall any further.
+ - The more uncertain I have felt about myself, the more there has grown up in me a feeling of kinship with all things.
+ - The artist is not a person endowed with free will who seeks his own ends, but one who allows it to realize its supreme purpose through him.
+ - The spirit is the life of the body seen from within, and the body the outward manifestation of the life of the spirit-the two being really one.
+ - We all must do what Christ did. We must make our experiment. We must make mistakes. We must live out our own version of life. And there will be error. If you avoid error you do not live.
+ - Life is teleology par excellence; it is the intrinsic striving towards a goal, and the living organism is a system of directed aims which seek to fulfill themselves.
+ - The greatest and most important problems of life are all fundamentally insoluble. They can never be solved but only outgrown.
+ - Every human life contains a potential, if that potential is not fulfilled, then that life was wasted...
+ - Archetypes, in spite of their conservative nature, are not static but in a continuous dramatic flux. Thus the self as a monad or continuous unit would be dead. But it lives inasmuch as it splits and unites again. There is no energy without opposites!
+ - Find out what a person fears most and that is where he will develop next.
+ - He who looks without, dreams; he who looks within, awakes.
+ - Science has destroyed even the refuge of the inner life. What was once a sheltering haven has become a place of terror.
+ - God has fallen out of containment in religion and into human hearts – God is incarnating. Our whole unconscious is in an uproar from the God Who wants to know and to be known.
+ - We do not know whether Hitler is going to found a new Islam. He is already on the way; he is like Mohammad. The emotion in Germany is Islamic; warlike and Islamic. They are all drunk with wild god. That can be the historic future.
+ - The self as the essence of individuality is unitemporal and unique; as an archetypal symbol it is a God-image and therefore universal and eternal.
+ - But India did not pass me by without a trace: it left tracks which lead me from one infinity to another infinity.
+ - In order to know the light, we must first experience the darkness.
+ - The cinema, like the detective story, makes it possible to experience without danger all the excitement, passion and desirousness which must be repressed in a humanitarian ordering of life.
+ - Error is just as important a condition of life’s progress as truth.
+ - You can expect no influence if you are not susceptible to influence.
+ - Not nature, but the “genius of mankind,” has knotted the hangman’s noose with which it can execute itself at any moment.
+ - Modern man is battered by the fundamental forces of his own psyche.
+ - Man needs difficulties; they are necessary for health.
+ - What happens in the life of Christ happens always and everywhere. In the Christian archetype all lives of this kind are prefigured.
+ - Deeply listening to music opens up new avenues of research I’d never even dreamed of. I feel from now on music should be an essential part of every analysis.
+ - The self is not only the centre but also the whole circumference which embraces both conscious and unconscious; it is the centre of this totality, just as the ego is the centre of consciousness.
+ - The inner man has access to the sense organs of god.
+ - It is just man’s turning away from instinct – his opposing himself to instinct – that creates consciousness. Instinct is nature andseeks to perpetuate nature; while consciousness can only seek culture or its denial.
+ - We often dream about people from whom we receive a letter by the next post. I have ascertained on several occasions that at the moment when the dream occurred the letter was already lying in the post-office of the addressee.
+ - Sentimentality is a superstructure covering brutality.
+ - The psyche is a natural phenomenon. All aspects of the psyche, even those which seem pathological or destructive, actually serve the function of furthering our psychological development.
+ - If one does not understand a person, one tends to regard him as a fool.
+ - Like the sea itself, the unconscious yields an endless and self-replenishing abundance of creatures, a wealth beyond our fathoming.
+ - In each of us is another whom we do not know. He speaks to us in dreams and tells us how differently he sees us from the way we see ourselves.
+ - My evenings are taken up very largely with astrology. I make horoscopic calculations in order to find a clue to the core of psychological truth.
+ - The unconscious psyche believes in life after death.
+ - When you come to think about it, nothing has any meaning, for when there was nobody to think, there was nobody to interpret what happened.
+ - Explore daily the will of God.
+ - Psychiatrists classify a person as neurotic if he suffers from his problems in living, and a psychotic if he makes others suffer.
+ - Nature does not deceive or conceal, but reveals.
+ - Masses are always breeding grounds of psychic epidemics.
+ - Instinct is like Nature herself – prodigiously conservative, and yet transcending her own historical conditions in her acts of creation.
+ - Primitive superstition lies just below the surface of even the most tough-minded individuals, and it is precisely those who most fight against it who are the first to succumb to its suggestive effects.
+ - One is always in the dark about one’s own personality. One needs others to get to know oneself.
+ - One cannot live without inconsistency.
+ - What was given to us by the past is adapted to the possibilities of the future.
+ - A residual sea of symbols which is shared by all mankind, usually accessed through dreams or altered states, and from which cultures draw images on which to found their religions.
+ - To become conscious of it involves recognizing the dark aspects of the personality as present and real.
+ - How difficult it is to reach anything approaching a moderate and relatively calm point of view in the midst of one’s emotions.
+ - Special knowledge is a terrible disadvantage.
+ - During my medical education at the University of Basle I found vivisection horrible, barbarous and above all unnecessary.
+ - Protection and security are only valuable if they do not cramp life excessively.
+ - Between the dreams of night and day there is not so great a difference.
+ - If only simplicity were not the most difficult of all things. It consists of watching objectively the development of any fragment of fantasy.
+ - Because the European does not know his own unconscious, he does not understand the East and projects it into everything he fears and despises in himself.
+ - The dream arises from a part of the mind unknown to us, but none the less important, and is concerned with the desires for the approaching day.
+ - It is often tragic to see how blatantly a man bungles his own life and the lives of others yet remains totally incapable of seeing how much the whole tragedy originates in himself, and how he continually feeds it and keeps it going.
+ - No nation keeps its word. A nation is a big, blind worm, following what? Fate perhaps. A nation has no honor, it has no word to keep .
+ - Synchronistic events provide an immediate religious experience as a direct encounter with the compensatory patterning of events in nature as a whole, both inwardly and outwardly.
+ - The majority of my patients consisted not of believers but of those who had lost their faith.
+ - In the final analysis, we count for something only because of the essential that we embody. If we do not embody that, life is wasted.
+ - Fortunately, in her kindness and patience, Nature has never put the fatal question as to the meaning of their lives into the mouths of most people. And where no one asks, no one needs to answer.
+ - The acceptance of oneself is the essence of the whole moral problem and the epitome of a whole outlook on life.
+ - The most dangerous things in the world are immense accumulations of human beings who are manipulated by only a few heads.
+ - Life calls us forth to independence, and anyone who does not heed this call because of childish laziness or timidity is threatened with neurosis. And once this has broken out, it becomes an increasingly valid reason for running away from life...
+ - To this day God is the name by which I designate all things which cross my willful path violently and recklessly, all things which upset my subjective views, plans and intentions and change the course of my life for better or worse.
+ - I don’t aspire to be a good man. I aspire to be a whole man.
+ - Without freedom there can be no morality.
+ - Whenever we give up, leave behind, and forget too much, there is always the danger that the things we have neglected will return with added force.
+ - When you walk with naked feet, how can you ever forget the Earth?
+ - One of the most difficult tasks men can perform, however much others may despise it, is the invention of good games.
+ - Whatever is not conscious will be experienced as fate.
+ - Enchantment is the oldest form of medicine.
+ - I am looking forward enormously to getting back to the sea again, where the overstimulated psyche can recover in the presence of that infinite peace and spaciousness.
+ - Medicines cure diseases, but only doctors can cure patients.
+ - An understanding heart is everything in a teacher, and cannot be esteemed highly enough.
+ - Nobody, as long as he moves about among the chaotic currents of life, is without trouble.
+ - A complex is a cluster of energy in the unconscious, charged by historic events, reinforced through repitition, embodying a fragment of our personality, and generating a programmed response and an implicit set of expectations.
+ - Gnosticism was stamped out completely and its remnants are so badly mangled that special study is needed to get any insight at all into its inner meaning.
+ - In such doubtful matters, where you have to work as a pioneer, you must be able to put some trust in your intuition and follow your feeling even at the risk of going wrong.
+ - Real liberation comes not from glossing over or repressing painful states of feeling, but only from experiencing them to the full.
+ - Language, in its origin and essence, is simply a system of signs or symbols that denote real occurrences or their echo in the human soul.
+ - There is a deep need in the world just now for guidance – almost any sort of spiritual guidance.
+ - Good does not become better by being exaggerated, but worse; And a small evil becomes a big one through being disregarded and repressed.
+ - A man’s hatred is always concentrated upon that which makes him conscious of his bad qualities.
+ - Too much of the animal disfigures the civilized human being, too much culture makes a sick animal.
+ - The whole nature of man presupposes woman, both physically and spiritually. His system is tuned into woman from the start, just as it is prepared for a quite definite world where there is water, light, air, salt, carbohydrates etc...
+ - Sometimes a tree tells you more than can be read in books.
+ - Colors express the main psychic functions of man.
+ - Freedom stretches only as far as the limits of our consciousness.
+ - Solitude is for me a fount of healing which makes my life worth living.
+ - Only by discovering alchemy have I clearly understood that the Unconscious is a process and that ego’s rapport with the Unconscious and its contents initiate an evolution, more precisely, a real metamorphosis of the psyche.
+ - Every man carries within himself the eternal image of woman, not the image of this or that particular woman, but a definite feminine image. This image is fundamentally unconscious, a hereditary factor of primordial origin.
+ - Man is in need if a symbolical life- badly in need. We only live banal, ordinary, rational or irrational things- but we have no symbolic life. Where do we live symbolically? Nowhere except where we participate in the ritual of life.
+ - Much of the evil in the world is due to the fact that man in general is hopelessly unconscious.
+ - Wherever an inferiority complex exists, there is a good reason for it.
+ - Hitler is a shy and friendly man with artistic tastes and gifts.
+ - The longing for light is the longing for consciousness.
+ - In fact, the whole of mythology could be taken as a sort of projection of the collective unconscious.
+ - A book of mine is always a matter of fate. There is something unpredictable about the process of writing, and I cannot prescribe for myself any predetermined course.
+ - When religion stops talking about animals it will be all downhill.
+ - Most of our difficulties come from losing contact with our instincts, with the age-old forgotten wisdom stored up in us.
+ - Yoga in Mayfair or Fifth Avenue, or in any other place which is on the telephone, is a spiritual fake.
+ - The experience of the self is always a defeat for the ego.
+ - The unconscious is the unwritten history of mankind from time unrecorded.
+ - We don’t really heal anything; we simply let it go.
+ - The starry vault of heaven is in truth the open book of cosmic projection...
+ - Eternal truth needs a human language that alters with the spirit of the times.
+ - The Wrong we have Done, Thought, or Intended Will wreak its Vengeance on Our SOULS.
+ - The images of the unconscious place a great responsibility upon a man. Failure to understand them, or a shirking of ethical responsibility, deprives him of his wholeness and imposes a painful fragmentariness on his life.
+ - What is not brought to consciousness, comes to us as fate.
+ - The conscious mind allows itself to be trained like a parrot, but the unconscious does not – which is why St. Augustine thanked God for not making him responsible for his dreams.
+ - I find that all my thoughts circle around God like the planets around the sun, and are as irresistibly attracted by Him. I would feel it to be the grossest sin if I were to oppose any resistance to this force.
+ - The word ‘belief’ is a difficult thing for me. I don’t believe. I must have a reason for a certain hypothesis. Either I know a thing, and then I know it – I don’t need to believe it.
+ - The totality of the psyche can never be grasped by the intellect alone.
+ - The psychopathology of the masses is rooted in the psychology of the individual.
+ - At times I feel as if I am spread out over the landscape and inside things, and am myself living in every tree, in the plashing of the waves, in the clouds and the animals that come and go, in the procession of the seasons.
+ - Man positively needs general ideas and convictions that will give a meaning to his life and enable him to find a place for himself in the universe.
+ - A special ability means a heavy expenditure of energy in a particular direction, with a consequent drain from some other side of life.
+ - The man who speaks with primordial images, speaks with a thousand tongues.
+ - Enlightenment doesnt occur from sitting around visualizing images of light, but from integrating the darker aspects of the Self into the conscious personality.
+ - The general function of dreams is to try to restore our psychological balance by producing dream material that re-establishes, in a subtle way, the total psychic equilibrium.
+ - Once upon a time men were possessed by devils. Now they are not less obsessed by ideas.
+ - Myth is more individual and expresses life more precisely than does science.
+ - Nothing is more repulsive than a furtively prurient spirituality; it is just as unsavory as gross sensuality.
+ - The judgment of the intellect is, at best, only the half of truth.
+ - We are born at a given moment, in a given place and, like vintage years of wine, we have the qualities of the year and of the season of which we are born. Astrology does not lay claim to anything more.
+ - The unsatisfied yearning of the artist reaches back to the primordial image in the unconscious which is best fitted to compensate the inadequacy and one-sidedness of the present.
+ - The gods have become our diseases.
+ - And what shall we know of this life on earth after death? The dissolution of our timebound form in eternity brings no loss of meaning. Rather, does the little finger know itself a member of the hand.
+ - Every civilized human being, whatever his conscious development, is still an archaic man at the deeper levels of his psyche.
+ - Our whole educational problem suffers from a one-sided approach to the child who is to be educated, and from an equally one-sided lack of emphasis on the uneducatedness of the educator.
+ - I believe that we have no real access to who we really are except in God. Only when we rest in God can we find the safety, the spaciousness, and the scary freedom to be who we are, all that we are, more than we are, and less than we are.
+ - Hitler’s unconscious seems to be female.
+ - One cannot free oneself by bowing to the yoke, but by breaking it.
+ - Psychological type is nothing static – it changes in the course of life.
+ - One could say, with a little exaggeration, that the persona is that which in reality one is not, but which oneself as well as others think one is.
+ - An archetypal content expresses itself, first and foremost, in metaphors.
+ - You always become the thing you fight the most.
+ - Becoming conscious is of course a sacrilege against nature; it is as though you had robbed the unconscious of something.
+ - Plato’s world of ideas is beautiful.
+ - Music is the application of sounds to the canvas of silence.
+ - Dream the dream onward.
+ - About a third of my cases are suffering from no clinically definable neurosis, but from the senselessness and emptiness of their lives. This can be defined as the general neurosis of our times.
+ - My own understanding is the sole treasure I possess, and the greatest. Though infinitely small and fragile in comparison with the powers of darkness, it is still a light, my only light.
+ - What you call knowledge is an attempt to impose something comprehensible on life.
+ - Our intellect has created a new world that dominates nature, and has populated it with monstrous machines.
+ - Modern man is sick because he is not whole.
+ - Thanks to the acuteness of his mind, he saw through the poverty of philosophical and Gnostic knowledge, and contemptuously rejected it.
+ - Everything psychic is pregnant with the future.
+ - Twelve experts gathered in one room equal one big idiot.
+ - The symbol in the dream has more the value of a parable: it does not conceal, it teaches.
+ - It is only our deeds that reveal who we are.
+ - One is forced to speak not of what is held in common between the cultures, but what is held in common between the myths, and that in its simplest archetypal forms.
+ - Science is the tool of the Western mind and with it more doors can be opened than with bare hands.
+ - However far-fetched it may sound, experience shows that many neuroses are caused by the fact that people blind themselves to their own religious promptings because of a childish passion for rational enlightenment.
+ - If you are unhappy, you are too high up in your mind.
+ - Man is the mirror God holds up to himself, the sense organ with which he apprehends his being.
+ - Whoever is afraid must needs be dependent; a weak thing needs support. That is why the primitive mind, from deep psychological necessity, begot religious instruction and embodied it in a magician or a priest.
+ - Never do human beings speculate more, or have more opinions, than about things which they do not understand.
+ - The more veiled becomes the outside world, steadily losing in colour, tone and passions, the more urgently the inner world calls us.
+ - Hitler’s movement is near to Mohammedanism.
+ - Only a life lived in a certain spirit is worth living. It is a remarkable fact that a life lived entirely from the ego is dull not only for the person himself but for all concerned.
+ - The mind has grown to its present state of consciousness as an acorn grows into an oak, or as saurians developed into mammals.
+ - When one is not understood one should as a rule lower one’s voice, because when one really speaks loudly enough and is not heard, it is because people do not want to hear. One had better begin to mutter to oneself, then they get curious.
+ - A collection of a hundred great brains makes one big fathead.
+ - But we must not forget that only a very few people are artists in life; that the art of life is the most distinguished and rarest of all the arts.
+ - Imagination is a concentrated extract of all the forces of life.
+ - All my writings may be considered tasks imposed from within, their source was a fateful compulsion. What I wrote were things that assailed me from within myself. I permitted the spirit that moved me to speak out.
+ - It seems as if it is only through an experience of symbolic reality that man, vainly seeking his own “existence” and making a philosophy out of it, can find his way back to a world in which he is no longer a stranger.
+ - Creativity is the art that can give rise to visionary metaphorical relationships, as opposed to purely psy-chological ones.
+ - The angel personifies something new arising from the deep unconscious.
+ - To become acquainted with oneself is a terrible shock.
+ - A true symbol appears only when there is a need to express what thought cannot think or what is only divined or felt.
+ - The angels are a strange genus, they are precisely what they are and cannot be anything else. They are themselves soul-less beings who represent nothing but the thoughts and intuitions of their Lord.
+ - If you should see people in a room, you would not think that you had made those people, or that you were responsible for them.
+ - The individual disposition is already a factor in childhood; it is innate, and not acquired in the course of a life.
+ - Ultimate truth, if there be such a thing, demands the concert of many voices.
+ - Our heart glows, and secret unrest gnaws at the root of our being. Dealing with the unconscious has become a question of life for us.
+ - It is a moral achievement on the part of the doctor who ought not to let himself be repelled by sickness and corruption.
+ - The afternoon of a human life must have a significance of its own, and cannot be merely a pitiful appendage to life’s morning.
+ - Consciousness succumbs all too easily to unconscious influences, and these are often truer and wiser than our conscious thinking.
+ - Nobody doubts the importance of conscious experience; why then should we doubt the significance of unconscious happenings? They also are part of our life, and sometimes more truly a part of it for weal or woe than any happenings of the day.
+ - The distinction between mind and body is an artificial dichotomy, a discrimination which is unquestionably based far more on the peculiarity of intellectual understanding than on the nature of things.
+ - My whole being was seeking for something still unknown which might confer meaning upon the banality of life.
+ - Remember that the only God man comes in contact with is his own God, called Spirit, Soul and Mind, or Consciousness, and these three are one.
+ - The sure path can only lead to death.
+ - Creative power is mightier than its possessor.
+ - You can take away a man’s gods, but only to give him others in return.
+ - I have frequently seen people become neurotic when they content themselves with inadequate or wrong answers to the questions of life.
+ - Art is a kind of innate drive that seizes a human being and makes him its instrument...
+ - Even a lie is a psychic fact.
+ - All the works of man have their origin in creative fantasy. What right have we then to depreciate imagination.
+ - To the critical intelligence, nothing is left of absolute reality.
+ - Only in our creative acts do we step forth into the light and see ourselves whole and complete.
+ - I want to be freed neither from human beings, nor from myself, nor from nature; for all these appear to me the greatest of miracles.
+ - Continuous creation is to be thought of not only as a series of successive acts of creation, but also as the eternal presence of the one creative act.
+ - The greater the tension, the greater is the potential.
+ - The brain is viewed as an appendage of the genital glands.
+ - The secret of artistic creation and the effectiveness of art is to be found in a return to the state of ‘participation mystique’ – to that level of experience at which it is man who lives, and not the individual...
+ - Creative powers can just as easily turn out to be destructive. It rests solely with the moral personality whether they apply themselves to good things or to bad. And if this is lacking, no teacher can supply it or take its place.
+ - Mind and matter are two different aspects of one and the same thing.
+ - Criticism can be effective when there is something that must be destroyed or dissolved, but it is capable only of harm when there is something to be built.
+ - I have always said to my pupils: “Learn as much as you can about symbolism; then forget it when you are analyzing a dream.”
+ - I could well imagine that I might have lived in former centuries and there encountered questions I was not yet able to answer; that I had been born again because I had not fulfilled the task given to me.
+ - All neurotics seek the religious.
+ - My work as a psychoanalyst is to help patients recover their lost wholeness and to strengthen the psyche so it can resist future dismemberment.
+ - St. Thomas is really a great man quite apart from his saintliness.
+ - Dreams are the facts from which we must proceed.
+ - I am the triple owner of the world, the finest Turkey, the Lorelei, Germania and Helvetia of exclusively sweet butter and Naples, and I must supply the whole world with macaroni.
+ - I have treated many hundreds of patients. Among those in the second half of life – that is to say, over 35 – there has not been one whose problem in the last resort was not that of finding a religious outlook on life.
+ - Only a few individuals succeed in throwing off mythology in a time of a certain intellectual supremacy – the mass never frees itself.
+ - Our intellect has achieved the most tremendous things, but in the meantime our spiritual dwelling has fallen into disrepair.
+ - The wine of youth does not always clear with advancing years; sometimes it grows turbid.
+ - There was need of a phantastic, indestructible optimism, and one far removed from all sense of reality, in order, for example, to discover in the shameful death of Christ really the highest salvation and the redemption of the world.
+ - People are never helped in their suffering by what they think for themselves, but only by revelation of a wisdom greater than their own. It is this which lifts them out of their distress.
+ - To me dreams are part of nature, which harbors no intention to deceive but expresses something as best it can.
+ - The man of today, who resembles more or less the collective ideal, has made his heart into a den of murderers, as can easily be proved by the analysis of his unconscious, even though he himself is not in the least disturbed by it.
+ - To make what fate intends for me my own intention.
+ - Doesn’t the world bring forth thinking in human heads with the same necessity that it brings forth blossoms on the plant?
+ - Healing proceeds from the depths to the heights.
+ - When an individual does not become conscious of their inner contradictions, the world acts out the conflict and is torn in opposite halves.
+ - From the middle of life onward, only he remains vitally alive who is ready to die with life.
+ - I think that one should view with philosophic admiration the strange paths of the libido and should investigate the purposes of its circuitous ways.
+ - Envy does not allow humanity to sleep.
+ - In knowing ourselves to be unique, we possess the capacity for becoming conscious of the infinite. But only then!
+ - His retreat into himself is not a final renunciation of the world, but a search for quietude, where alone it is possible for him to make his contribution to the life of the community.
+ - Securities, certitudes and peace do not lead to discoveries.
+ - We cannot imagine events that are connected non-causally and are capable of a non-causal explanation. But that does not mean that such events do not exist.
+ - The dream is a series of images, which are apparently contradictory and nonsensical, but arise in reality from psychologic material which yields a clear meaning.
+ - The creative process is a living thing, implanted, as it were in the souls of men.
+
+500 quotes

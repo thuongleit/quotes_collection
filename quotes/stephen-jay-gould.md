@@ -1,0 +1,160 @@
+ - I am, somehow, less interested in the weight and convolutions of Einstein’s brain than in the near certainty that people of equal talent have lived and died in cotton fields and sweatshops.
+ - We pass through this world but once. Few tragedies can be more extensive than the stunting of life, few injustices deeper than the denial of an opportunity to strive or even to hope, by a limit imposed from without, but falsely identified as lying within.
+ - We pass through this world but once.
+ - Nothing is more dangerous than a dogmatic worldview – nothing more constraining, more blinding to innovation, more destructive of openness to novelty.
+ - Is uniformitarianism necessary?
+ - Charles Darwin viewed the fossil record more as an embarrassment than as an aid to his theory...
+ - The absence of fossil evidence for intermediary stages between major transitions in organic design, indeed our inability, even in our imagination, to construct functional intermediates in many cases, has been a persistent and nagging problem for gradualist accounts of evolution.
+ - The world is too complex for subsumption under any general theory of change.
+ - Honorable errors do not count as failures in science, but as seeds for progress in the quintessential activity of correction.
+ - We have become, by the power of a glorious evolutionary accident called intelligence, the stewards of life’s continuity on earth. We did not ask for this role, but we cannot abjure it. We may not be suited to it, but here we are.
+ - The spandrels of San Marco and the Panglossian Paradigm.
+ - If we are still here to witness the destruction of our planet some five billion years or more hence, then we will have achieved something so unprecedented in the history of life that we should be willing to sing our swansong with joy – Sic Transit Gloria Mundi.
+ - Human consciousness arose but a minute before midnight on the geological clock. Yet we mayflies try to bend an ancient world to our purposes, ignorant perhaps of the messages buried in its long history. Let us hope that we are still in the early morning of our April day.
+ - All organisms vary, and it’s just folk knowledge. You just have to look around a room of people, and everybody knows that it’s true. Darwin didn’t know the mechanism of heredity, but you don’t have to. You just need to know the fact of it.
+ - Creationist critics often charge that evolution cannot be tested, and therefore cannot be viewed as a properly scientific subject at all. This claim is rhetorical nonsense.
+ - The most important scientific revolutions all include, as their only common feature, the dethronement of human arrogance from one pedestal after another of previous convictions about our centrality in the cosmos.
+ - Natural selection is a theory of local adaptation to changing environments. It proposes no perfecting principles, no guarantee of general improvement.
+ - Eternal vigilance, as they say, is the price of freedom. Add intellectual integrity to the cost basis.
+ - When people learn no tools of judgment and merely follow their hopes, the seeds of political manipulation are sown.
+ - The median isn’t the message.
+ - Odd arrangements and funny solutions are the proof of evolution – paths that a sensible God would never tread but that a natural process, constrained by history, follows perforce.
+ - The enemy of knowledge and science is irrationalism, not religion.
+ - In what I like to call the Great Asymmetry, every spectacular incident of evil will be balanced by 10,000 acts of kindness, too often unnoted and invisible...
+ - We are storytelling animals, and cannot bear to acknowledge the ordinariness of our daily lives.
+ - We cannot win this battle to save species and environments without forging an emotional bond between ourselves and nature as well – for we will not fight to save what we do not love.
+ - Sure we fit. We wouldn’t be here if we didn’t. But the world wasn’t made for us and it will endure without us.
+ - Science is not a heartless pursuit of objective information; it is a creative human activity.
+ - People may believe correct things for the damndest and weirdest of wrong reasons.
+ - Pictures are not incidental frills to a text; they are essences of our distinctive way of knowing.
+ - The Darwinian revolution is about essence. The Darwinian revolution is about who we are, it’s what we’re made of, it’s what our life means insofar as science can answer that question.
+ - If evolution almost always occurs by rapid speciation in small, peripheral isolates, then what should the fossil record look like? We are not likely to detect the event of speciation itself. It happens too fast, in too small a group, isolated too far from the ancestral range...
+ - I am glad that the life of pandas is so dull by human standards, for our efforts at conservation have little moral value if we preserve creatures only as human ornaments; I shall be impressed when we show solicitude for warty toads and slithering worms.
+ - Death is the ultimate enemy – and I find nothing reproachable in those who rage mightily against the dying of the light.
+ - Any decent writer writes because there’s some deep internal need to keep learning.
+ - In our struggle to understand the history of life, we must learn where to place the boundary between contingent and unpredictable events that occur but once and the more repeatable, lawlike phenomenon that may pervade life’s history as generalities.
+ - I emphatically do not assert the general ‘truth’ of this philosophy of punctuational change. Any attempt to support the exclusive validity of such a grandiose notion would border on the nonsensical.
+ - Memory is a fascinating trickster. Words and images have enormous power and can easily displace actual experience over the years.
+ - We are the offspring of history, and must establish our own paths in this most diverse and interesting of conceivable universes – one indifferent to our suffering, and therefore offering us maximum freedom to thrive, or to fail, in our own chosen way.
+ - Orchids were not made by an ideal engineer; they are jury-rigged from a limited set of available components.
+ - Still, our creationist incubi, who would never let facts spoil a favorite argument, refuse to yield, and continue to assert the absence of all transitional forms by ignoring those that have been found, and continuing to taunt us with admittedly frequent examples of absence.
+ - The history of life is a tale of decimation and later stabilization of few surviving anatomies, not a story of steady expansion and progress.
+ - An old paleontological in joke proclaims that mammalian evolution is a tale told by teeth mating to produce slightly altered descendant teeth.
+ - Surely the mitochondrion that first entered another cell was not thinking about the future benefits of cooperation and integration; it was merely trying to make its own living in a tough Darwinian world.
+ - People talk about human intelligence as the greatest adaptation in the history of the planet. It is an amazing and marvelous thing, but in evolutionary terms, it is as likely to do us in as to help us along.
+ - What you see is that the most outstanding feature of life’s history is a constant domination by bacteria.
+ - Fundamentalism is rigorously and systematically used to indoctrinate and subjugate young minds. It is a contraceptive designed to prevent intellectual fertilization.
+ - Life began three and a half billion years ago, necessarily about as simple as it could be, because life arose spontaneously from the organic compounds in the primeval oceans.
+ - Evolution is an inference from thousands of independent sources, the only conceptual structure that can make unified sense of all this disparate information.
+ - Wind back the tape of life to the early days of the Burgess Shale; let it play again from an identical starting point, and the chance becomes vanishingly small that anything like human intelligence would grace the replay.
+ - Misunderstanding of probability may be the greatest of all impediments to scientific literacy.
+ - The extreme rarity of transitional forms in the fossil record persists as a trade secret of Paleontology. Evolutionary trees that adorn our textbooks have data only at the tips and nodes of their branches; the rest is inference, however reasonable, not the evidence of fossils.
+ - We who revel in nature’s diversity and feel instructed by every animal tend to brand Homo sapiens as the greatest catastrophe since the Cretaceous extinction.
+ - Evolution is an obstacle course not a freeway; the correct analogue for long-term success is a distant punt receiver evading legions of would-be tacklers in an oddly zigzagged path toward a goal, not a horse thundering down the flat.
+ - Zoocentrism is the primary fallacy of human sociobiology, for this view of human behavior rests on the argument that if the actions of “lower” animals with simple nervous systems arise as genetic products of natural selection, then human behavior should have a similar basis.
+ - The modern theory of evolution does not require gradual change. It in fact, the operation of Darwinian processes should yield exactly what we see in the fossil record. It is gradualism that we must reject, not Darwinism.
+ - We are glorious accidents of an unpredictable process with no drive to complexity, not the expected results of evolutionary principles that yearn to produce a creature capable of understanding the mode of its own necessary construction.
+ - Evolution is a process of constant branching and expansion.
+ - No rational order of divine intelligence unites species. The natural ties are genealogical along contingent pathways of history.
+ - Theory-free science makes about as much sense as value-free politics.
+ - All science is intelligent inference; excessive literalism is delusion, not a humble bowing to evidence.
+ - The proof of evolution lies in those adaptations that arise from improbable foundations.
+ - Humans are not the end result of predictable evolutionary progress, but rather a fortuitous cosmic afterthought, a tiny little twig on the enormously arborescent bush of life, which if replanted from seed, would almost surely not grow this twig again.
+ - The spirit of Plato dies hard. We have been unable to escape the philosophical tradition that what we can see and measure in the world is merely the superficial and imperfect representation of an underlying reality.
+ - The legends of fieldwork locate all important sites deep in inaccessible jungles inhabited by fierce beasts and restless natives, and surrounded by miasmas of putrefaction and swarms of tsetse flies.
+ - The center of human nature is rooted in ten thousand ordinary acts of kindness that define our days.
+ - Organisms are not billiard balls, propelled by simple and measurable external forces to predictable new positions on life’s pool table. Sufficiently complex systems have greater richness. Organisms have a history that constrains their future in myriad, subtle ways.
+ - Antiessentialist thinking forces us to view the world differently. We must accept shadings and continua as fundamental. We lose criteria for judgment by comparison to some ideal: short people, retarded people, people of other beliefs, colors, and religions are people of full status.
+ - I love the wry motto of the Paleontological Society, meant both literally and figuratively, for hammers are the main tool of our trade: Frango ut patefaciam – I break in order to reveal.
+ - The essence of Darwinism lies in its claim that natural selection creates the fit. Variation is ubiquitous and random in direction. It supplies raw material only. Natural selection directs the course of evolutionary change.
+ - All interesting issues in natural history are questions of relative frequency, not single examples. Everything happens once amidst the richness of nature. But when an unanticipated phenomenon occurs again and again – finally turning into an expectation – then theories are overturned.
+ - I’m not a great deductive thinker, but I will admit to having competence in a very wide range of things – not being afraid to try to write about baseball, choral music and dinosaurs in the same week and see connections among them.
+ - The dogmatist within is always worse than the enemy without.
+ - If genius has any common denominator, I would propose breadth of interest and the ability to construct fruitful analogies between fields.
+ - Details are all that matters; God dwells in these and you never get to see Him if you don’t struggle to get them right.
+ - Mass extinctions may not threaten distant futures, but they are decidedly unpleasant for species caught up in the throes of their power.
+ - You put three facts together – that all organisms produce more offspring that can survive, that there’s variation among organisms, and that at least some of that variation is inherited – and the syllogistic inference is natural selection.
+ - If there is any consistent enemy of science, it is not religion, but irrationalism.
+ - Recapitulation provided a convenient focus for the persuasive racism of white scientists; they looked to the activities of their own children for comparison with normal adult behavior in lower races.
+ - Perhaps I am just a hopeless rationalist, but isn’t fascination as comforting as solace? Isn’t nature immeasurably more interesting for its complexities and its lack of conformity to our hopes? Isn’t curiosity as wondrously and fundamentally human as compassion?
+ - My own field of paleontology has strongly challenged the Darwinian premise that life’s major transformations can be explained by adding up, through the immensity of geological time, the successive tiny changes produced generation after generation by natural selection.
+ - History does include aspects of directionality, and the present range of causes and phenomena does not exhaust the realm of past possibilities.
+ - I hardly recognize what I do well. I just do it.
+ - The world is full of signals that we don’t perceive.
+ - History employs evolution to structure biological events in time.
+ - Science simply cannot adjudicate the issue of God’s possible superintendence of nature.
+ - Without a commitment to science and rationality in its proper domain, there can be no solution to the problems that engulf us. Still, the Yahoos never rest.
+ - The real tragedy of human existence is not that we are nasty by nature, but that a cruel structural asymmetry grants to rare events of meanness such power to shape our history.
+ - Einstein’s theory of gravitation replaced Newton’s, but apples did not suspend themselves in mid-air, pending the outcome. And humans evolved from apelike ancestors whether they did so by Darwin’s proposed mechanism or by some other yet to be discovered.
+ - As a word, ecology has been so debased by recent political usage that many people employ it to identify anything good that happens far from cities and without human interference.
+ - The most erroneous stories are those we think we know best – and therefore never scrutinize or question.
+ - The enemy is not fundamentalism; it is intolerance. In this case, the intolerance is perverse since it masquerades under the “liberal” rhetoric of “equal time.” But mistake it not.
+ - Evolution is one of the two or three most primally fascinating subjects in all the sciences.
+ - Acquired characteristics are inherited in technology and culture. Lamarckian evolution is rapid and accumulative. It explains the cardinal difference between our past, purely biological mode of change, and our current, maddening acceleration toward something new and liberating- or toward the abyss.
+ - Nothing is more dangerous than a dogmatic worldview.
+ - I can envision observations and experiments that would disprove any evolutionary theory I know.
+ - In the great debates of early-nineteenth century geology, catastrophists followed the stereotypical method of objective science-empirical literalism. They believed what they saw, interpolated nothing, and read the record of the rocks directly.
+ - People are clever, but almost no one ever devises an optimal quip precisely at the needed moment. Therefore, virtually all great one-liners are later inventions – words that people wished they had spouted, but failed to manufacture at the truly opportune instant.
+ - Everything comes to us in fifteen-second sound bites and photo opportunities. All possibility for ambiguity – the most precious trait of any adequate analysis – is erased.
+ - Even the standard example of ancient nonsense – the debate about angels on pinheads – makes sense once you realize that theologians were not discussing whether five or eighteen would fit, but whether a pin could house a finite or an infinite number.
+ - We may need simple and heroic legends for that peculiar genre of literature known as the textbook. But historians must also labor to rescue human beings from their legends in science if only so that we may understand the process of scientific thought aright.
+ - Nothing matches the holiness and fascination of accurate and intricate detail.
+ - Theory and fact are equally strong and utterly interdependent; one has no meaning without the other. We need theory to organize and interpret facts, even to know what we can or might observe. And we need facts to validate theories and give them substance.
+ - Human life is the result of a glorious evolutionary accident.
+ - Science is an integral part of culture. It’s not this foreign thing, done by an arcane priesthood. It’s one of the glories of the human intellectual tradition.
+ - We must shed the old stereotype of anarchists as bearded bomb throwers furtively stalking about city streets at night.
+ - Heydrich, Eichmann, and company therefore invoke the usual trick of argument for breaking a true continuum that lacks a compelling point for separation: choose an arbitrary dividing line and then treat it as a self-evident law of nature.
+ - I don’t think academic writing ever was wonderful. However, science used to be much less specialized.
+ - So much of science proceeds by telling stories.
+ - The journalistic tradition so exalts novelty and flashy discovery, as reputable and newsworthy, that standard accounts for the public not only miss the usual activity of science but also, and more unfortunately, convey a false impression about what drives research.
+ - Results rarely specify their causes unambiguously. If we have no direct evidence of fossils or human chronicles, if we are forced to infer a process only from its modern results, then we are usually stymied or reduced to speculation about probabilities. For many roads lead to almost any Rome.
+ - I strongly reject any conceptual scheme that places our options on a line, and holds that the only alternative to a pair of extreme positions lies somewhere between them. More fruitful perspectives often require that we step off the line to a site outside the dichotomy.
+ - It is the things we think we know – because they are so elementary or because they surround us – that often present the greatest difficulties when we are actually challenged to explain them.
+ - In their recently aborted struggle to inject Genesis literalism into science classrooms, fundamentalist groups followed their usual opportunistic strategy of arguing two contradictory sides of a question when a supposed rhetorical advantage could be extracted from each...
+ - What an odd time to be a fundamentalist about adaptation and natural selection – when each major subdiscipline of evolutionary biology has been discovering other mechanisms as adjuncts to selection’s centrality.
+ - Life is short, and potential studies infinite. We have a much better chance of accomplishing something significant when we follow our passionate interests and work in areas of deepest personal meaning.
+ - Some evolutionists will protest that we are caricaturing their view of adaptation. After all, do they not admit genetic drift, allometry, and a variety of reasons for nonadaptive evolution?
+ - With copious evidence ranging from Plato’s haughtiness to Beethoven’s tirades, we may conclude that the most brilliant people of history tend to be a prickly lot.
+ - If a man dies of cancer in fear and despair, then cry for his pain and celebrate his life. The other man, who fought like hell and laughed in the end, but also died, may have had an easier time in his final months, but took his leave with no more humanity.
+ - Look in the mirror, and don’t be tempted to equate transient domination with either intrinsic superiority or prospects for extended survival.
+ - Life shows no trend to complexity in the usual sense-only an asymmetrical expansion of diversity around a starting point constrained to be simple.
+ - Advocates for a single line of progress encounter their greatest stumbling block when they try to find a smooth link between the apparently disparate designs of the invertebrates and vertebrates.
+ - The world, unfortunately, rarely matches our hopes and consistently refuses to behave in a reasonable manner.
+ - Contrary to current cynicism about past golden ages, the abstraction known as ‘the intelligent layperson’ does exist – in the form of millions of folks with a passionate commitment to continuous learning.
+ - The equation of evolution with progress represents our strongest cultural impediment to a proper understanding of this greatest biological revolution in the history of human thought.
+ - Natural selection may lead to benefits for species, but these ‘higher’ advantages can only arise as sequelae, or side consequences, of natural selection’s causal mechanism: differential reproductive success of individuals.
+ - I would trade all the advantages of humanity to be a fly on the wall when Franklin and Jefferson discussed liberty, Lenin and Trotsky revolution, Newton and Halley the shape of the universe, or when Darwin entertained Huxley and Lyell at Down.
+ - Precise adaptation, with each part finely honed to perform a definite function in an optimal way, can only lead to blind alleys, dead ends, and extinction.
+ - Why, then, do I continue to claim that creationism isn’t science? Simply because these relatively few statements have been tested and conclusively refuted.
+ - World views are social constructions and they channel the search for facts. But facts are found and knowledge progresses, however fitfully.
+ - Science is all those things which are confirmed to such a degree that it would be unreasonable to withhold one’s provisional consent.
+ - A lot of scientists hate writing. Most scientists love being in the lab and doing the work and when the work is done, they are finished.
+ - Obsolescence is a fate devoutly to be wished, lest science stagnate and die.
+ - Transitional forms are generally lacking at the species level, but they are abundant between larger groups.
+ - I dreamed of becoming a scientist, in general, and a paleontologist, in particular, ever since the Tyrannosaurus skeleton awed and scared me.
+ - Always be suspicious of conclusions that reinforce uncritical hope and follow comforting traditions of Western thought.
+ - At a minimum, in explaining evolutionary pathways through time, the constraints imposed by history rise to equal prominence with the immediate advantages of adaptation.
+ - The human mind delights in finding pattern – so much so that we often mistake coincidence or forced analogy for profound meaning. No other habit of thought lies so deeply within the soul of a small creature trying to make sense of a complex world not constructed for it.
+ - Ordinary speciation remains fully adequate to explain the causes and phenomenology of punctuation.
+ - The board transported its jurisdiction to a never-never land where a Dorothy of the new millennium might exclaim: “They still call it Kansas, but I don’t think we’re in the real world anymore.”
+ - Current utility and historical origin are different subjects.
+ - In science, ‘fact’ can only mean ‘confirmed to such a degree that it would be perverse to withhold provisional assent.’ I suppose that apples might start to rise tomorrow, but the possibility does not merit equal time in physics classrooms.
+ - Our searches for numerical order lead as often to terminal nuttiness as to profound insight.
+ - I would rather label the whole enterprise of setting a biological value upon groups for what it is: irrelevant, intellectually unsound, and highly injurious.
+ - The only universal attribute of scientific statements resides in their potential fallibility. If a claim cannot be disproven, it does not belong to the enterprise of science.
+ - I picture several reviewers of my own books as passing a long future lodged between Brutus and Judas in the jaws of Satan.
+ - Skepticism is the agent of reason against organized irrationalism – and is therefore one of the keys to human social and civic decency.
+ - A man does not attain the status of Galileo merely because he is persecuted; he must also be right.
+ - If I have any insight at all to contribute it is this: find out what you are really good at and stick to it.
+ - The more important the subject and the closer it cuts to the bone of our hopes and needs, the more we are likely to err in establishing a framework for analysis.
+ - Something deep within us drives accurate messiness into the neat channels of canonical stories.
+ - Guessing right for the wrong reason does not merit scientific immortality.
+ - Great theories are expansive; failures mire us in dogmatism and tunnel vision.
+ - No one-liner can ever be optimal.
+ - The pathways that have led to our evolution are quirky, improbable, unrepeatable and utterly unpredictable.
+ - What’s important is that all human knowledge be made available to all intelligent people who want to learn it.
+ - Darwinian natural selection only yields adaptation to changing local environments, and better function in an immediate habitat might just as well be achieved by greater simplicity in form and behavior as by ever-increasing complexity.
+ - The fundamentalists, by ‘knowing’ the answers before they start, and then forcing nature into the straitjacket of their discredited preconceptions, lie outside the domain of science -or any honest intellectual inquiry.
+ - Life is a copiously branching bush, continually pruned by the grim reaper of extinction, not a ladder of predictable progress.
+
+158 quotes

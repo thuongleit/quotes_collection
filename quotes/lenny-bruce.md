@@ -1,0 +1,74 @@
+ - The American Constitution was not written to protect criminals; it was written to protect the government from becoming criminals.
+ - It’s the suppression of the word that gives it the power, the violence, the viciousness.
+ - There are no dirty words, only dirty minds.
+ - Life is a four-letter word.
+ - Satire is tragedy plus time.
+ - Never trust a preacher with more than two suits.
+ - Miami Beach is where neon goes to die.
+ - You know there’s no crooked politicians. There’s never a lie because there is never any truth.
+ - Darwin’s theory is as dead as he is. Everyone is surviving, fit or not. Years ago, any kid dumb enough to chase a shiny object down a well was dead, and out of the gene pool. Now they got the technology and medicine to save the fool so he can breed more open mouth breathers.
+ - Marijuana will be legal some day, because the many law students who now smoke pot will someday become congressmen and legalize it in order to protect themselves.
+ - I’ve been accused of bad taste, and I’ll go down to my grave accused of it and always by the same people, the ones who eat in restaurants that reserve the right to refuse service to anyone.
+ - Once you take away the struggle for food, clothing and shelter, work is the one four letter word that offends everyone.
+ - If I just stuck to pot I might have found out what a drag being an aging hipster actually was.
+ - Wouldn’t it be nice if all the people who are lonesome could live in one big dormitory, sleep in beds next to each other, talk, laugh, and keep the lights on as long as they want to?
+ - My mother-in-law broke up my marriage. My wife came home from work one day and found me in bed with her.
+ - That’s where the conflict starts. We all want for a wife a combination Sunday school teacher and a $500-a-night hooker.
+ - Every day people are straying away from the church and going back to God.
+ - You put a guy on a desert island, he’ll do it to mud, a chicken, a barrel, anything, a knothole.
+ - If Jesus had been killed twenty years ago, Catholic school children would be wearing little electric chairs around their necks instead of crosses.
+ - I tried the religion scam in Miami, so I know how hard that gig is. But, if you can get it to work, starting your own religion is a license to print money.
+ - Faith is to the human what sand is to the ostrich.
+ - Every tribe needs a good front man to sell the program. Who better to convince the Middle East to give up the oil, than a brown man with a Muslim name?
+ - Even if you are Catholic, if you live in New York you’re Jewish. If you live in Butte, Montana, you are going to be goyish even if you are Jewish.
+ - If you live in New York, even if you’re Catholic, you’re Jewish.
+ - If you can take the hot lead enema, then you can cast the first stone.
+ - The reason I’m in this business, I assume all performers are – it’s Look at me, Ma! It’s acceptance, you know – Look at me, Ma, look at me, Ma, look at me, Ma. And if your mother watches, you’ll show off till you’re exhausted; but if your mother goes, Ptshew!
+ - You can’t do anything with anybody’s body to make it dirty to me. Six people, eight people, one person – you can do only one thing to make it dirty: kill it. Hiroshima was dirty.
+ - I would become a priest or a rabbi or a monk or whatever the hell was necessary to perform miracles such as taking money from someone else’s pocket and putting it into mine, still remaining within the confines of the law.
+ - I think it’s about time we gave up religion and got back to God.
+ - To say whatever nonsense comes into your head without any repercussions has got to be a bigger high than heckling a movie screen in a darkened theater.
+ - What is truth today may be a damn lie next week.
+ - Let me tell you the truth: The truth is what is. And what should be is a fantasy a terrible, terrible lie that someone gave the people long ago.
+ - Certain things are complete superstition and have no validity at all in the Bible. Yeah. They’re just the antithesis of everything that is correct intellectually.
+ - Marijuana is rejected all over the world. Damned. In England heroin is alright for out-patents, but marijuana? They’ll put your ass in jail. I wonder why that is? The only reason could be: To Serve the Devil – Pleasure! Pleasure, which is a dirty word in Christian culture.
+ - The only honest art form is laughter, comedy. You can’t fake it...
+ - If you believe there is a God, a God that made your body, and yet you think that you can do anything with that body that’s dirty, then the fault lies with the manufacturer.
+ - If I get busted in New York, the freest city in the world, that will be the end of my career.
+ - I’ve talked to biblical cats, and Neanderthals who been here since day one. No one here has even seen the Big Boss. Ever.
+ - Every group needs a comedian. A comic who is politically incorrect at the Berkeley campus might slay them at a Klan rally.
+ - There’s a lot of money in wars, except in the war on poverty. Can’t make any bread helping the poor.
+ - Once you sleep on feathers you can’t go back to sleeping on the floor.
+ - Today’s comedian has a cross to bear that he built himself. A comedian of the older generation did an act and he told the audience, This is my act. Today’s comic is not doing an act. The audience assumes he’s telling the truth. What is truth today may be a damn lie next week.
+ - I am influenced by every second of my waking hour.
+ - Freedom of speech is a two way street, man. You have the right to say whatever you want and the Boss has a right to tell the police to arrest you.
+ - Communism is just one big telephone company.
+ - I was a Jew talking about Goyim religion. If I had just stuck to Moses, everything would have been cool. But, copping to being part of the whole Christ murder conspiracy got everyone goose-stepping again.
+ - I’m sure that half the buzz from smoking grass was the fact that it was so illegal.
+ - I’m not a comedian. I’m Lenny Bruce.
+ - There is only what is and that’s it. What should be is a dirty lie.
+ - I want to perform an unnatural act.
+ - I was surprised when Nixon passed the test and showed up in heaven, but, I guess Hitler threw off the curve for our century.
+ - What you end up with is outrageousness without the laugh – comedy as electro shock therapy.
+ - All my humor is based upon destruction and despair. If the whole world were tranquil, without disease and violence, I’d be standing on the breadline right in back of J. Edgar Hoover.
+ - If something about the human body disgusts you, the fault lies with the manufacturer.
+ - Once the country was settled and built, the bosses changed the order from a stack of educated workers to a barrel of minimum wage lottery dreamers.
+ - Alright, let’s admit it, we Jews killed Christ – but it was only for three days.
+ - Anyone who does anything for pleasure to indulge his selfish soul will surely burn in Hell.
+ - Every group, every system has a set of values and morals and when you get outside those, then the alarms ring. I was politically incorrect to 95% of the country; luckily my 5% had the bread to come see me.
+ - All my humor is based upon destruction and despair.
+ - I credit the motion picture industry as the strongest environmental factor in molding the children of my day.
+ - You can’t just run out and start the car until some cat invents a car.
+ - Part of the kick of making people laugh was doing something different. We were a rare breed – spotting one of us was like pinning a space alien, or abdominal snowman. There were maybe a hundred stand-ups in the whole country when I was doing it.
+ - If there was absolute freedom, people would run over babies and charge admission.
+ - Anyone who has two shirts when someone has none is not a christian.
+ - You got to pay your dues to get the joke. Besides, laughter is cheap and very portable. If there’s a pogrom, or they’re blaming you for the plague, nothing is easier to pack than a sense of humor.
+ - The crooks downtown figured out that comedy is like a hammer. It can put up a barn and it can knock down a wall. So they bought it outright and marketed it as Comedy Central.
+ - The ‘what should be’ never did exist, but people keep trying to live up to it. There is no ‘what should be,’ there is only what is.
+ - Satire is tragedy plus time. You give it enough time, the public, the reviewers will allow you to satirize it. Which is rather ridiculous, when you think about it.
+ - Trying to figure things out was my gig. Without the human condition, there’s no struggle, no pain and that means no laughter.
+ - When earth gets good and crowded, like 15th century England, then some new Pilgrims are gonna rocket their Mayflowers to a new solar system.
+ - TV is just advertising for your live gig, so I’m playing whichever show is gonna get me the biggest crowd.
+ - You got a million drug laws now because the bosses figured there was more money in putting people in jail than taxing something anyone can grow on a window sill.
+
+72 quotes

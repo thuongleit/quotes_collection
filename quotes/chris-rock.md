@@ -1,0 +1,243 @@
+ - I’d always end up broken down on the highway. When I stood there trying to flag someone down, nobody stopped. But when I pushed my own car, other drivers would get out and push with me. If you want help, help yourself – people like to see that.
+ - Only dumb people try to impress smart people. Smart people just do what they do.
+ - Wealth is not about having a lot of money; it’s about having a lot of options.
+ - You can only offend me if you mean something to me.
+ - Smart is knowing if you’re dumb. Knowing when to shut up and to listen to people that are smarter than you.
+ - I do what I can do when I can do it.
+ - Comedy is the blues for people who can’t sing.
+ - There’s math, and everything else is debatable!
+ - You can never make a woman happy, it’s impossible. I’ve never met a happy woman in my life. They’re always complaining about something.
+ - You know the world is messed up when the tallest man in the NBA is Chinese, the best golfer is black, and the best rapper is white.
+ - Men do not settle down. Men surrender.
+ - Don’t argue! You cannot win, you cannot beat a woman in a arguement. It’s impossble you will not win. Cause men, we are handicapped when it comes to arguing cause we have a need to make sense.
+ - A man is only as faithful as his options.
+ - God bless America, and no place else.
+ - Money is the best lotion in the world.
+ - Women need food, water, and compliments That’s right. And an occasional pair of shoes.
+ - Most people don’t realize this, but you can eat organic, all natural, gluten-free food without telling everyone around you.
+ - You cannot win in a fight against women, cause men have a need to make sense.
+ - White man makes guns? No problem. Black rapper says “gun”? Congressional hearing.
+ - I met so many people after I got rich and famous, and I learned that you can’t ultimately trust people unless they were your friends when you were broke.
+ - The key to staying together is making sure you guys like each other and need each other.
+ - Stop the violence! Can’t we all just get along?
+ - Music is the soundtrack to the crappy movie that is my life.
+ - You could be married and bored or single and lonely. Ain’t no happiness nowhere.
+ - If a kid calls his grandma “Mommy” and his mama “Pam”, he’s going to jail!
+ - See, the Black man gotta fly to get to something the white man can walk to.
+ - When I hear people talk about juggling, or the sacrifices they make for their children, I look at them like they’re crazy, because ‘sacrifice’ infers that there was something better to do than being with your children.
+ - Only a woman can make you feel wrong for doing something right.
+ - You don’t pay taxes – they take taxes.
+ - Every town has the same two malls: the one white people go to and the one white people used to go to.
+ - Why do people do yoga? To clear their minds? I embrace the clutter in my head.
+ - I love having somebody there – that companion thing. You know who you’re going to eat with, who you’re going to see a movie with.
+ - I see as white people finding loopholes in the slavery laws.
+ - Unlike flying or astral projection, walking through walls is an earthbound pursuit...
+ - If you’re a black Christian, you have a real short memory.
+ - I hate niggas! I hate em! I wish they’d let me join the Ku Klux Klan!
+ - I don’t need a president with a bucket list!
+ - When you’re white, the sky’s the limit. When you’re black, the limit’s the sky.
+ - When I do stand-up, I’m basically doing a one-man show.
+ - There are only three things women need in life: food, water, and compliments.
+ - The government doesn’t want you to use YOUR drugs, they want you to use THEIR drugs.
+ - You know what GED stands for? Good Enough Diploma.
+ - So, to say Barack Obama is progress is saying that he’s the first black person that is qualified to be president. That’s not black progress. That’s white progress.
+ - If you see a black woman with an overweight white man, you know she got effed up credit!
+ - If you properly clean a room, it gets dirtier before it gets cleaner.
+ - I just remember that whenever I got really mad or passionate, like in an argument, people would laugh, and I’d be dead serious. It would happen a lot. So it was like, Gee, I’ve got something here.
+ - No matter what happens or how difficult things become, you will eventually feel better.
+ - A cat, by any other name, is still a sneaky little furball that barfs on the furniture.
+ - You know you’re rich when you have to drive for a half hour to get to your house once you’re on your property.
+ - No matter what kind of backgrounds two men are from, if you go, ‘Hey, man, women are crazy,’ you’ve got a friend.
+ - Yeah, it’s unfair that you can get judged by something you didn’t do, but it’s also unfair that you can inherit money that you didn’t work for.
+ - Black History Month is in the shortest month of the year, and the coldest-just in case we want to have a parade.
+ - Everything’s funny – in the right context and done by the right person.
+ - Kids always act up the most before they go to sleep.
+ - You got a gun, you don’t have to work out.
+ - When you make drama you are like Picasso. Drama is whatever you want it to be.
+ - I think all the funny people were bullied. When they talk about outlawing bullying, it’s like, what? You want no Comedy Central?
+ - We got no wealthy black people. We got rich people. Shaq is rich. The guy who signs his checks is wealthy.
+ - If you can keep your son off the pipe and your daughter off the pole, you’re ahead of the game.
+ - If Bill Gates woke up with Oprah’s money he’d jump out the window.
+ - And even if you get shot by a stray bullet, you don’t gotta go to no doctor to get it taken out, whoever shot you will take they bullet back! “I believe you have my property!”
+ - I got love from my family. I don’t really need love from a paper, you know what I mean? I can’t get too happy because somebody said something nice about me. I appreciate it, but let’s not get it twisted – this is not changing my life.
+ - I always say there’s no more little girls, just boys with breasts. Girls act like boys nowadays. Teenage girls, they go after boys. They’re predatory just like boys. My goal is to keep my girls, girls.
+ - I saw the yearbook picture. There was six of them! I ain’t have six friends in high school, I don’t have six friends now! That’s three on three with a half court.
+ - I believe you have my property!
+ - It’s easier to get on show business, the hard part is to maintain. Nobody stays famous forever.
+ - You know those guys that go to the strip club at the daytime? If you’re at a strip club, and the sun is out, you got some problems!
+ - When you have kids, there’s no such thing as quality time. There’s just time. There’s no, ‘Ooh, his graduation’s better than going to the mall.’ It’s all kind of equal. Changing her diaper and her winning a contest – it’s all good.
+ - I love my life, but I don’t think I’m any happier than my younger brother Andre, who drives a garbage truck.
+ - Community college is like a disco with books: “Here’s ten dollars; let me get my learn on!”
+ - After I left high school and got my GED, I studied broadcast journalism for a year at a community college.
+ - Is America ready for a black president? Well, I say we just had a retarded one. When did being black become a bigger deterrent than being retarded?
+ - My mother always says: “You know better, so you’ll be punished. Your friends don’t know better, so they won’t be punished. They can go snatch chains and they’ll be fine. But if you snatch chains, you’ll end up in jail because you know better.”
+ - If you wanna get away with murder, all you gotta do is shoot somebody in the head and put a demo tape in their pocket! “This is a rap killing. Let’s go home!”
+ - There are people who would like to get rid of minimum wage. But we have to have it, because if we didn’t some people would not get paid money. They would work all week for two loaves of bread and some Spam.
+ - Early in my career it was very important that I gain the reputation. I haven’t been on the road in two or three years, but when I say tickets are on sale, I know they’re going to be gone, even if my movie bombed or my TV show sucked.
+ - If you told me two years I would miss the greatest basketball game ever to hang out with Nathan Lane, I’d say, ‘You’re crazy!’
+ - You can’t be happy that fire cooks your food and be mad it burns your fingertips.
+ - Yeah, I love being famous. It’s almost like being white, y’know?
+ - I pride myself on being the guy who can do Def Comedy Jam and Charlie Rose. And do well on both.
+ - When I do something good, the audience lets me know immediately. They laugh. That’s it.
+ - That’s a sure sign someone is going crazy – when he refers to himself in the third person, talks in low tones, and walks around wearing shades all day!
+ - My mother is the kind of woman you don’t want to be in line behind at the supermarket. She has coupons for coupons.
+ - The thing about having an audience right there laughing is that critics can write what they want, but the proof is right there in front of you.
+ - I always say about my daughters, they save me from my miserable self. They take me out, you know, a comedian, you could live in your head a lot. And you’re writing and you’re doubting. But when I’m with my kids and my family, it’s all about them.
+ - Does having a wife and kids change your act? Yes, but only in the best way. It gives you weight and authority. It also makes you closer to the audience because the audience is married and has kids.
+ - You’re not famous unless people’s mothers know who you are. Everybody else, you think you’re famous, but you’re just hot, and heat cools off.
+ - Eddie Murphy is to comedians what Nicki Minaj is to Spanx.
+ - The advantage that my children have is that my children are encountering the nicest white people that America has ever produced. Let’s hope America keeps producing nicer white people.
+ - Black movies don’t have real names, they have names like Barbershop. That’s not a name, that’s just a location.
+ - If you’re black, you got to look at America a little bit different. You got to look at America like the uncle who paid for you to go to college, but who molested you.
+ - They’re working their way down. Next year, Todd Bridges gets the award. When I was a kid I wanted to be Eddie Murphy and now I’m a rip-off of Eddie Murphy.
+ - They don’t want you to vote. If they did, we wouldn’t vote on a Tuesday. In November. You ever throw a party on a Tuesday? No. Because nobody would come.
+ - You can write a great country record and still be angry. Who’s angrier than Toby Keith? He’s angrier than the average 10 rappers.
+ - Stand-up comedy is like the lowest medium in all of show business in levels of respect.
+ - When you’re doing a big-budget movie and you’re four on the call sheet, you’ve got a lot of free time.
+ - Black comics, they only watch Black comedians. You’re a comedian; you’re not just a Black comedian. You’re a comedian. I try to get that through to everybody.
+ - I can’t even put gas in my plane!
+ - Most parts in comedy, they’re not really written for men. They’re written for, like, these boy-men.
+ - I know what you’re thinking: why is Chris Rock bagging groceries? But I dropped out of high school in the tenth grade, so if I couldn’t tell jokes this is exactly what I’d be doing.
+ - Even if you meet the perfect person, it ain’t gonna be at the perfect time. You’re married, they’re single. That’s right. You’re Jewish, they’re Palestinian. You’re a Mexican, they’re a raccoon. You’re a black woman, he’s a black man.
+ - I’m an independent, but I got to admit I lean Democratic.
+ - I was at Michael Jackson’s house, and this kid runs out, ‘Wait, save me!’
+ - Never go to clubs with metal detectors. Sure it feels safe inside. But what about all those niggas waiting outside with guns? They know you ain’t got one.
+ - If you’re the president you only have two jobs: peace and money.
+ - I think it’s better to have ideas.
+ - It’s weird with stand-up comedy. It doesn’t really translate worldwide. I want to figure out how do I make it worldwide. Do a special in Africa. Can’t beat that. Pull that off, then I will have done something.
+ - The two best things you can do for a person is have sex or make them laugh.
+ - We were so poor my daddy unplugged the clocks when we went to bed.
+ - Everyone has favorite criminals. Mine are pimps. We can all rob a bank; we can all sell drugs. Being a pimp is a whole other thing.
+ - I’m looking forward to not being tired around my child. My father was tired a lot. I want to play ball with my child without having to grab my shoulder because I’m not physically fit. And I want to really teach my child and become his or her friend.
+ - Women can have all the evidence but they still want the confession.
+ - I had always been – everybody kind of likes comedy. I was very interested in comedy, beyond just liking it. I had friends that took apart radios; I wanted to take apart jokes.
+ - I like talking about subjects that aren’t funny in the first place and making them funny. So anything down and depressing is something I’ll talk about.
+ - Men lie the most, women tell the biggest lies.
+ - Pretty girls have problems too.
+ - Happy white peoples independence day the slaves weren’t free but I’m sure they enjoyed fireworks.
+ - Hollywood’s just not funny.
+ - Though part of me had always wanted to be a comedian, another part of me had always wanted to be Bryant Gumbel or Dan Rather.
+ - You know, you get famous and you work in these weird jobs and you don’t have a lot in common with people. But once you have kids, you have everything in common with everybody.
+ - If you live below your means, you can turn down stuff all the time.
+ - Oprah is so rich, I saw John Kerry proposing to her.
+ - America is the only place where people go hunting on a full stomach.
+ - When a musical act performs, the black audience goes crazy for all the stuff, the album cuts, everything. White audiences, they’re nice and all, but they’re not going to lose it until they get the hits. Comedy is the same thing.
+ - You don’t pay taxes; they take them from your check. That’s not a payment – that’s a ’jack.
+ - There’s not one reference in that thing that doesn’t play. People deal with emotions in music all the time, but comedians are always talking about what they see. But we seldom talk about what we feel.
+ - Success is just hanging out with my kids. I mean, I always say if you have options, you’re rich. To me, success is the fact that hey, I just did a movie and maybe I’ll do some stand up, maybe I’ll will write a book or maybe I will do a play.
+ - It used to take years to become a junkie. But crack cut that down to 37 minutes.
+ - George Bush hates midgets.
+ - The best part is just having a partner. There is no real worst part. I’m not going to say there’s a worst part. I mean I’m a comedian – comedians like to work alone. So maybe I’m not the ideal guy to be married to, in that sense.
+ - Babies don’t know who’s rich and who’s poor. You love ’em and they’re happy.
+ - Remember when we was young, everybody used to have these arguments about who’s better, Michael Jackson or Prince? Prince won!
+ - You know the world’s gone mad when the best rapper is a white guy, the best golfer is a black guy, the Swiss hold the America’s Cup, France is accusing the USA of arrogance and the Germans don’t want to go to war !
+ - Gun control? We need bullet control! I think every bullet should cost 5,000 dollars. Because if a bullet cost five thousand dollar, we wouldn’t have any innocent bystanders.
+ - If you want to prevent abortions, you make sure everyone has health care, a high school education and birth control. Not the exact opposite.
+ - It’s my real name. My mother’s name is Rose Rock. It was the worst name as a kid to have. They called me Piece of the Rock, Plymouth Rock, Joe Rockid, and Flintstones. Now they call me Mister Rock.
+ - I’m like the Hulk on stage. It’s way over the top. That’s Bizarro Chris. Sometimes I get off stage and go What did I say?! I’ll watch one of my stand-up specials a year later and go Eww, that was mean.
+ - An entertainer’s reputation as a live act is the most valuable thing he or she can have. If people know you give good shows, you’ll never be broke for the rest of your life.
+ - I was bused to a school in Gerritsen Beach in Brooklyn in 1972. I was one of the first black kids in the history of the school.
+ - I’m happy if everybody else is. I’m a big brother, the oldest. If you’re happy and I’m not, I’m cool with that. If I’m happy and you’re not, I’m sad.
+ - When you’ve been on a ghetto diet your entire life, you’re just happy to get a large soda instead of a medium.
+ - Carol Leifer is funny, really funny.
+ - If your work is so smart that only smart people get it, it’s not that smart.
+ - There’s always a moment in any stand-up show I do where people are booing. They kinda boo a premise. And then I bail myself out with a joke. But it’s like trying to do movies where there’s a dramatic undertone.
+ - I can see the humor in just about any situation. After I lost my dad, I realized that none of us should take things too seriously, because everything except death works itself out.
+ - Dude, I didn’t say Jude Law can’t act. I didn’t say Jude Law was in bad movies. I just said he’s in every movie.
+ - Kennedy didn’t beat Nixon. Satire beat Nixon.
+ - There’s a difference between racism and “I don’t know any better. I’m clueless.” Racism is like, “I’m trying to make you feel bad.” That’s racism.
+ - Anything you can suck at should make you nervous.
+ - I’m severely overrated. I’m just above a hack.
+ - The thing I try to get across to the writers – and I do a lot of writing, too – is that when I do stand-up, nothing I talk about is funny. Everything is really sad and tragic and then I make it funny.
+ - I never really write the jokes. I just sit down over a week or two and try to figure out what I want to talk about. Once I narrow that down, then I start working on the material, like “How do I make this stuff funny?”
+ - Only married people understand you can be miserable and happy at the same time.
+ - Who’s judging American Idol? Paula Abdul? Paula Abdul judging a singing contest is like Christopher Reeve judging a dance contest!
+ - I’m old enough to remember when there were no black quarterbacks – there were no blacks on TV. I hope my son or daughter doesn’t have to be as fixated on race as I am, because he or she will grow up in freer times.
+ - Comedians tend to find a comfort zone and stay there and do lamer versions of themselves for the rest of their career.
+ - You just got to be really logical when you’re a comedian – to a fault. Like a lawyer’s got to believe in the law.
+ - I try to stay with it and I try to stay in contact with comedians and just keep comedians in my life ’cause comedians are their own species. If you get away from them, especially as a comedian, I think it’s dangerous.
+ - When people try to read between the lines – critics, they have a job. Their job is to make something bigger than it is.
+ - I think it’s better to have ideas. You can change an idea; changing a belief is trickier.
+ - You won’t be able to take your eyes off the next four presenters: Salma Hayek and Penelope Cruz.
+ - People are always going to, you know, find something wrong with people who are not the exact same as them. That’s just what it is. Black, white, short, tall, religions, whatever. People are bad.
+ - I’ve been married for 10 years and, you know, it’s hard, you spruce it up and you go places. How do you spruce up anything? Artificially. You go places and do things.
+ - A sense of humor is great – it goes a long, long way in a marriage.
+ - I’m never proper or careful, but I never curse in front of my mother, either.
+ - Guys play characters that won’t grow up and something catastrophic happens and they have to grow up to save the day – that’s pretty much what today’s comedy is about.
+ - Movies have takes. But plays are like life – you don’t really get takes.
+ - The Democrats should have an empty chair on stage for the entire DNC, and when anyone asks who it belongs to, they can say Osama bin Laden.
+ - People basically aren’t that racist. They want their laughs. If I make a white guy laugh, he’s gonna come see me. He’s not gonna go see the white guy who doesn’t make him laugh just because that guy is white.
+ - My dad worked every day. I didn’t get into show business to work every day. So the fact that most days I get to like, spend really good time with my kids – that’s what success is to me.
+ - Daddy pays for the water, daddy pays for the gas, daddy pays for the electricity, and if daddy didn’t pay for the electricity, he’d pay for the candle on your nightstand, so you can study for the big test tomorrow.
+ - Comedy is a group activity, a verbal orgy.
+ - Just to be clear, Ray Rice was not fired for beating his wife. He was fired because a video of him beating his wife was released.
+ - Emotional affairs, those are the only real affairs; those are the real ones.
+ - Do you know what the good side of crack is? If you’re up at the right hour, you can get a VCR for $1.50. You can furnish your whole house for $10.95.
+ - If a woman tells you she’s twenty and looks sixteen, she’s twelve. If she tells you she’s twenty-six and looks twenty-six, she’s damn near fourty.
+ - You want to track Hollywood careers, look in the real estate section. You see a guy buy a house that costs $6 million, and you can literally start counting the days until he starts doing crappy movies.
+ - Now that I have children, I realize taking care of my children is more fun than anything in the whole world.
+ - A black Christian is like a black person with no memory.
+ - Being a comedian is a lot like being an athlete. If you’re Carl Lewis and you’re the fastest, then no matter what you’re the fastest.
+ - One of my daughters told me the other day, “Kevin Hart is funnier than you, Daddy.” I told her, “Does Kevin Hart make you pancakes?”
+ - Welcome to the 77th and last Oscars.
+ - Gay people got a right to be as miserable as everybody else.
+ - There’s no interference in stand-up. It’s all the things it’s hard to get in film: I get to have a wife, I get to have kids. I get to be sexual. I get to grow. I get to be a man.
+ - Before I was a comedian, I thought the coolest thing that would happen to me was to be a teenager. Boy, was I wrong.
+ - I’ll probably pay more attention to the musicians in the pit than the stars because they’re the closest you’re going to get to normal people in the audience.
+ - I don’t get high, but sometimes I wish I did. That way, when I messed up in life I would have an excuse. But right now there’s no rehab for stupidity.
+ - I’ve seen women who don’t have great relationships with their dads, and it all comes down to this: You have to tell girls you love them every day.
+ - Whenever I go out with other married couples, I like to bring along a single crackhead. Just to spice things up.
+ - You can’t think the thoughts you want to think if you think you’re being watched.
+ - I want my name to be a brand in comedy. I hope my name stands for comedic excellence.
+ - I mean no disrespect to anything I did before.
+ - Learn how to cook. Read books that will educate you. Get an education. Get a career. And support yourself. And live in a section of town that isn’t conducive to violence.
+ - A comedian has to live in his head. All this comedy comes from a lonely place. When you’re surrounded by an entourage, you’re not living in your head.
+ - The thing about Barack Obama, just from being around him, is he’s cooler than the other politicians, but just nerdy enough to do the job. Like you can’t be really cool and be the president.
+ - I think if I were to get as big as I could get, it does change your mind-state. I think like the little man. I think like the underdog. I don’t want to change that.
+ - Tomorrow is more sure than just about anything else in the entire world.
+ - I’m a rap comedian the same way Bill Cosby is a jazz comedian, Cosby’s laid back. I’m like, bang, bang bang, right into it.
+ - Gas is getting so expensive I’m gonna ride a mexican to work.
+ - No film critic’s going to say it, but ‘Madagascar 3’ is better than ‘The Artist.’
+ - I literally don’t know what I’m going to do next. That’s successful.
+ - I think anybody in front of a crowd is a comedian.
+ - I love seeing black people do normal things, being judged as normal people.
+ - Funny is only something that others know about you – you can’t be funny by yourself.
+ - Right now, my job is that I’m like an ambulance chaser. I’ve got to look for movies with white guys falling out of them.
+ - When you make comedy, you make it for the people and you try to have as many screenings and as many tests and you do focus groups and you read the cards and you try to give the people what they want in this comedy.
+ - You only know that you’re smart because you’re around dumb people from time to time!
+ - By the time I was 7 or 8, I wanted to be a comedy writer.
+ - Karaoke isn’t fair when you’re a comedian. The whole idea is to get people laughing and enjoying themselves, and I’m a professional funny guy.
+ - I never had the confidence to say I was going to be in front of the camera as a comedian until I saw Eddie Murphy years later.
+ - Bill Cosby was the first comedian I was exposed to, because he doesn’t curse.
+ - A black man will be elected President of the United States. I’m sorry, that’s in the year 10,000.
+ - You can’t fake comedy – it’s not like a movie, where a director can just cast a pretty face.
+ - A white boy that makes C’s in college can make it to the White House.
+ - Sometimes people offer you plays, they offer you parts, but they only offer it because I’m famous.
+ - Nobody really wants to be a stand-up, they want to get on TV.
+ - My movies are okay, but they’re not my specials.
+ - The only plan I have is to not do anything I don’t want to do – and to never work just for money.
+ - Comedians are the one who have to tell the emperor he has no clothes on.
+ - I’ll go back to comedy clubs when they get a real no-camera policy, the same way they did with smoking.
+ - I get approached to do shows all the time. There’s a lot of money in sitcoms, but I’ve never been the kind of guy who wanted to do one. I don’t think people want to see me saying “Honey, I’m home.” It’s just not my thing.
+ - Artistically I’m curious. But in life? No. I can go to a restaurant and order the same thing for 10 years.
+ - Two hours of sparkling entertainment spread out over a four-hour show.
+ - Hollywood’s racist. Hollywood is sorority racist. It’s like – we like you, Rhonda, but you’re not a Kappa.
+ - Standup comedians are attracted to one another because of their faults. So we’re all kind of messed up in the same way, and once I was around a group of people that saw the world in a different way, it’s like this is where I need to be.
+ - I live way below my means.
+ - I like the tradition of the Oscars. I like that some of the greatest comedians ever have hosted the show.
+ - You don’t need a critic to tell you people aren’t laughing.
+ - Stand-up is the only career like that where once you get really big at it, people kind of encourage you not to do it.
+ - I see guys who can’t make 10 percent of what I make, and yet they have four Bentleys, three houses, and four bodyguards.
+ - I want to really take chances. I want to be funny in a lot of different ways. I’d like to be great. I want to reach for greatness.
+ - For the most part, comedy is the only fair part of show business.
+ - A comedy club is a place where you work out material, you’re trying material.
+ - I think my best work is when I’m kind of in charge.
+ - Here’s what I knew about doing a play: I knew it would make me a better actor.
+ - Black people dominate sports in the United States. 20% of the population and 90% of the final four.
+ - I live in a neighborhood so bad that you can get shot while getting shot.
+ - People want what they want. And I guess that is a reason we have this big credit card problem and a lot of these foreclosures.
+ - Anyone who makes up their mind about an issue before they hear the issue is a fool.
+ - I’ll go with the guy with one house. The guy with one house is scared about losing his house.
+ - My goal in life was to host the MTV Awards, because it’s the awards show that Prince sang on, and that was the awards show that Eddie Murphy hosted and Arsenio hosted.
+
+241 quotes

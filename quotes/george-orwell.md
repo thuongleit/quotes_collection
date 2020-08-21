@@ -1,0 +1,502 @@
+ - Journalism is printing what someone else does not want printed. Everything else is public relations.
+ - In a time of deceit telling the truth is a revolutionary act.
+ - The further a society drifts from truth the more it will hate those who speak it.
+ - Big Brother is watching you.
+ - If liberty means anything at all, it means the right to tell people what they do not want to hear.
+ - He who controls the past controls the future. He who controls the present controls the past.
+ - Political language is designed to make lies sound truthful and murder respectable, and to give an appearance of solidity to pure wind. 
+ - The most effective way to destroy people is to deny and obliterate their own understanding of their history.
+ - Every generation imagines itself to be more intelligent than the one that went before it, and wiser than the one that comes after it.
+ - We shall meet in the place where there is no darkness.
+ - Perhaps one did not want to be loved so much as to be understood.
+ - Writing a book is a horrible, exhausting struggle, like a long bout with some painful illness. One would never undertake such a thing if one were not driven on by some demon whom one can neither resist nor understand.
+ - All animals are equal, but some animals are more equal than others.
+ - Freedom is the freedom to say that two plus two make four. If that is granted, all else follows.
+ - War is peace. Freedom is slavery. Ignorance is strength.
+ - Sanity is not statistical.
+ - If you want to keep a secret, you must also hide it from yourself.
+ - Until they became conscious they will never rebel, and until after they have rebelled they cannot become conscious.
+ - Men can only be happy when they do not assume that the object of life is happiness.
+ - Doublethink means the power of holding two contradictory beliefs in one's mind simultaneously, and accepting both of them.
+ - The choice for mankind lies between freedom and happiness and for the great bulk of mankind, happiness is better.
+ - If people cannot write well, they cannot think well, and if they cannot think well, others will do their thinking for them.
+ - Happiness can exist only in acceptance.
+ - To see what is in front of one's nose needs a constant struggle.
+ - We know that no one ever seizes power with the intention of relinquishing it.
+ - People sleep peaceably in their beds at night only because rough men stand ready to do violence on their behalf.
+ - If you want a vision of the future, imagine a boot stamping on a human face – forever.
+ - When I sit down to write a book, I do not say to myself, ‘I am going to produce a work of art.’ I write it because there is some lie that I want to expose, some fact to which I want to draw attention, and my initial concern is to get a hearing.
+ - Free speech is my right to say what you don’t want to hear.
+ - He wears a mask, and his face grows to fit it.
+ - Rich people are poor people with money.
+ - If there is hope, it lies in the proles.
+ - The past was erased, the erasure was forgotten, the lie became the truth.
+ - The people will believe what the media tells them they believe.
+ - I understand HOW. I do not understand WHY.
+ - It’s not so much staying alive, it’s staying human that’s important. What counts is that we don’t betray each other.
+ - In the face of pain there are no heroes.
+ - A society becomes totalitarian when its structure becomes flagrantly artificial: that is, when its ruling class has lost its function but succeeds in clinging to power by force or fraud.
+ - But if thought corrupts language, language can also corrupt thought.
+ - The enemies of intellectual liberty always try to present their case as a plea for discipline versus individualism. The issue truth-versus-untruth is as far as possible kept in the background.
+ - He was a lonely ghost uttering a truth that nobody would ever hear. But so long as he uttered it, in some obscure way the continuity was not broken. It was not by making yourself heard but by staying sane that you carried on the human heritage.
+ - The war is not meant to be won, it is meant to be continuous.
+ - Being in a minority, even in a minority of one, did not make you mad. There was truth and there was untruth, and if you clung to the truth even against the whole world, you were not mad.
+ - This life we live nowadays. It’s not life, it’s stagnation death-in-life. Look at all these bloody houses and the meaningless people inside them. Sometimes I think we’re all corpses. Just rotting upright.
+ - Under the spreading chestnut tree I sold you and you sold me –.
+ - We have now sunk to a depth at which restatement of the obvious is the first duty of intelligent men.
+ - You must try harder. It is not easy to become sane.
+ - The creatures outside looked from pig to man, and from man to pig, and from pig to man again; but already it was impossible to say which was which.
+ - Don’t you see that the whole aim of Newspeak is to narrow the range of thought? In the end we shall make thoughtcrime literally impossible, because there will be no words in which to express it.
+ - The essence of being human is that one does not seek perfection.
+ - But it was alright, everything was alright, the struggle was finished. He had won the victory over himself. He loved Big Brother.
+ - Freedom of the Press, if it means anything at all, means the freedom to criticize and oppose.
+ - If you loved someone, you loved him, and when you had nothing else to give, you still gave him love.
+ - Four legs good, two legs bad.
+ - Never use a long word where a short one will do.
+ - Nationalism is power hunger tempered by self-deception.
+ - If it is possible to cut a word out, always cut it out.
+ - War is evil, but it is often the lesser evil.
+ - Progress is not an illusion, it happens, but it is slow and invariably disappointing.
+ - That rifle on the wall of the labourer’s cottage or working class flat is the symbol of democracy. It is our job to see that it stays there.
+ - Good prose should be transparent, like a window pane.
+ - The fight against bad English is not frivolous.
+ - If you can feel that staying human is worth while, even when it can’t have any practical result whatsoever, you’ve beaten them.
+ - It’s a beautiful thing, the destruction of words.
+ - All art is propaganda; on the other hand, not all propaganda is art.
+ - In general, the greater the understanding, the greater the delusion; the more intelligent, the less sane.
+ - Right thinking will be rewarded, wrong thinking punished.
+ - Perhaps a lunatic was simply a minority of one.
+ - At fifty everyone has the face he deserves.
+ - Oceania was at war with Eurasia; therefore Oceania had always been at war with Eurasia.
+ - Advertising is the rattling of a stick inside a swill bucket.
+ - In real life it is always the anvil that breaks the hammer...
+ - Power is in tearing human minds to pieces and putting them together again in new shapes of your own choosing.
+ - There is no swifter route to the corruption of thought than through the corruption of language.
+ - It was a bright cold day in April, and the clocks were striking thirteen.
+ - It is a mysterious thing, the loss of faith – as mysterious as faith itself.
+ - My best fishing-memory is about some fish that I never caught.
+ - Thoughtcrime does not entail death: thoughtcrime is death.
+ - Real power is achieved when the ruling class controls the material essentials of life, granting and withholding them from the masses as if they were privileges.
+ - The nationalist not only does not disapprove of atrocities committed by his own side, but he has a remarkable capacity for not even hearing about them.
+ - To survive it is often necessary to fight and to fight you have to dirty yourself.
+ - History has stopped. Nothing exists except an endless present in which the Party is always right.
+ - Reality exists in the human mind, and nowhere else.
+ - Orthodoxy means not thinking – not needing to think. Orthodoxy is unconsciousness.
+ - In our time political speech and writing are largely the defense of the indefensible.
+ - Serious sport is war minus the shooting.
+ - The secret of a successful restaurant is sharp knives.
+ - I hate purity, I hate goodness! I don’t want virtue to exist anywhere. I want everyone to be corrupt to the bones.
+ - The main motive for nonattachment is a desire to escape from the pain of living, and above all from love, which, sexual or non-sexual, is hard work.
+ - I enjoy talking to you. Your mind appeals to me. It resembles my own mind except that you happen to be insane.
+ - If you have no money, men won’t care for you, women won’t love you; won’t, that is, care for you or love you the last little bit that matters.
+ - High sentiments always win in the end. The leaders who offer blood, toil, tears and sweat always get more out of their followers than those who offer safety and a good time. When it comes to the pinch, human beings are heroic.
+ - Every line of serious work that I have written since 1936 has been written, directly or indirectly against totalitarianism and for democratic Socialism as I understand it.
+ - Sooner or later a false belief bumps up against solid reality, usually on a battlefield.
+ - We do not merely destroy our enemies; we change them.
+ - The greatest enemy of clear language is insincerity.
+ - Preventive war is a crime not easily committed by a country that retains any traces of democracy.
+ - A man may take to drink because he feels himself to be a failure, but then fail all the more completely because he drinks.
+ - The smell of her hair, the taste of her mouth, the feeling of her skin seemed to have got inside him, or into the air all round him. She had become a physical necessity.
+ - The inflated style is itself a kind of euphemism. A mass of Latin words falls upon the facts like soft snow, blurring the outlines and covering up all the details. The great enemy of clear language is insincerity.
+ - Confession is not betrayal. What you say or do doesn’t matter; only feelings matter. If they could make me stop loving you-that would be the real betrayal.
+ - The very concept of objective truth is fading out of the world. Lies will pass into history.
+ - For, after all, how do we know that two and two make four? Or that the force of gravity works? Or that the past is unchangeable? If both the past and the external world exist only in the mind, and if the mind itself is controllable – what then?
+ - A human being is primarily a bag for putting food into.
+ - International football is the continuation of war by other means.
+ - Threats to freedom of speech, writing and action, though often trivial in isolation, are cumulative in their effect and, unless checked, lead to a general disrespect for the rights of the citizen.
+ - To die hating them, that was freedom.
+ - Now I will tell you the answer to my question. It is this. The Party seeks power entirely for its own sake. We are not interested in the good of others; we are interested solely in power, pure power.
+ - And if all others accepted the lie which the Party imposed – if all records told the same tale – then the lie passed into history and became truth. ‘Who controls the past’ ran the Party slogan, ’controls the future: who controls the present controls the past.
+ - Pacifism is objectively pro-Fascist.
+ - Every Joke is a Tiny Revolution.
+ - He loved Big Brother.
+ - A Socialist United States of Europe seems to me the only worth-while political objective today.
+ - Never use a metaphor, simile, or other figure of speech which you are used to seeing in print.
+ - Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting.
+ - Of pain you could wish only one thing: that it should stop. Nothing in the world was so bad as physical pain. In the face of pain there are no heroes.
+ - In philosophy, or religion, or ethics, or politics, two and two might make five, but when one was designing a gun or an aeroplane they had to make four.
+ - In our age there is no such thing as ‘keeping out of politics.’ All issues are political issues, and politics itself is a mass of lies, evasions, folly, hatred and schizophrenia.
+ - Every life viewed from the inside is a series of defeats.
+ - The word Fascism has now no meaning except in so far as it signifies ‘something not desirable.’
+ - If one harbors anywhere in one’s mind a nationalistic loyalty or hatred, certain facts, though in a sense known to be true, are inadmissable.
+ - Rifles, muskets, long-bows and hand-grenades are inherently democratic weapons. A complex weapon makes the strong stronger, while a simple weapon – so long as there is no answer to it – gives claws to the weak.
+ - Stupidity was as necessary as intelligence, and as difficult to attain.
+ - Manchester is the belly and guts of the nation.
+ - News is something somebody doesn’t want printed; all else is advertising.
+ - Patriotism has nothing to do with Conservatism. It is actually the opposite of Conservatism, since it is a devotion to something that is always changing and yet is felt to be mystically the same.
+ - War is war. The only good human being is a dead one.
+ - There are some things only intellectuals are crazy enough to believe.
+ - Nothing was your own except the few cubic centimetres inside your skull.
+ - Beauty is meaningless until it is shared.
+ - In this game that we’re playing, we can’t win. Some kinds of failure are better than other kinds, that’s all.
+ - For a creative writer possession of the ‘truth’ is less important than emotional sincerity.
+ - The real division is not between conservatives and revolutionaries but between authoritarians and libertarians.
+ - A humanitarian is always a hypocrite.
+ - Politics is the choice between the lesser of two evils.
+ - If human equality is to be forever averted – if the High, as we have called them, are to keep their places permanently – then the prevailing mental condition must be controlled insanity.
+ - What can you do against the lunatic who is more intelligent than yourself, who gives your arguments a fair hearing and then simply persists in his lunacy?
+ - Those who ‘abjure’ violence can do so only because others are committing violence on their behalf.
+ - The opinion that art should have nothing to do with politics is itself a political attitude.
+ - His answer to every problem, every setback was “I will work harder!” – which he had adopted as his personal motto.
+ - Donkeys live a long time. None of you has ever seen a dead donkey.
+ - To an ordinary human being, love means nothing if it does not mean loving some people more than others.
+ - Man serves the interests of no creature except himself.
+ - If you want to keep a secret, you must also hide it from yourself. You must know all the while that it is there, but until it is needed you must never let it emerge into your consciousness in any shape that can be given a name.
+ - As with the Christian religion, the worst advertisement for Socialism is its adherents.
+ - No animal shall kill any other animal WITHOUT CAUSE.
+ - Reality is inside the skull.
+ - Never use a foreign phrase, a scientific word, or a jargon word if you can think of an everyday English equivalent.
+ - All writers are vain, selfish and lazy, and at the very bottom of their motives lies a mystery.
+ - Patriotism is usually stronger than class hatred, and always stronger than internationalism.
+ - From the totalitarian point of view, history is something to be created rather than learned.
+ - Your worst enemy, he reflected, was your nervous system. At any moment the tension inside you was liable to translate itself into some visible symptom.
+ - If thought corrupts language, language can also corrupt thought. A bad usage can spread by tradition and imitation even among people who should and do know better.
+ - How right the working classes are in their “materialism.” How right they are to realize that the belly comes before the soul, not in the scale of values but in point of time!
+ - We shall abolish the orgasm. Our neurologists are at work upon it now.
+ - Windmill or no windmill, he said, life would go on as it had always gone on – that is, badly.
+ - All the papers that matter live off their advertisements, and the advertisers exercise an indirect censorship over news.
+ - Today there were fear, hatred, and pain, but no dignity of emotion, no deep or complex sorrows.
+ - England is perhaps the only great country whose intellectuals are ashamed of their own nationality.
+ - Always eyes watching you and the voice enveloping you. Asleep or awake, indoors or out of doors, in the bath or bed- no escape. Nothing was your own except the few cubic centimeters in your skull.
+ - The masses never revolt of their own accord, and they never revolt merely because they are oppressed. Indeed, so long as they are not permitted to have standards of comparison, they never even become aware that they are oppressed.
+ - We control matter because we control the mind. Reality is inside the skull.
+ - Thoughtcrime was not a thing that could be concealed forever. You might dodge successfully for a while, even for years, but sooner or later they were bound to get you.
+ - It’s frightful that people who are so ignorant have so much influence.
+ - Winston Smith: Does Big Brother exist? O’Brien: Of course he exists. Winston Smith: Does he exist like you or me? O’Brien: You do not exist.
+ - Since pacifists have more freedom of action in countries where traces of democracy survive, pacifism can act more effectively against democracy than for it. Objectively the pacifist is pro-Nazi.
+ - All human relationships must be purchased with money.
+ - And I believe that totalitarianism, if not fought against, could triumph again.
+ - The most stirring battle-poem in English is about a brigade of cavalry which charged in the wrong direction.
+ - He was a lonely ghost uttering a truth that nobody would ever hear.
+ - It is a feeling of relief, almost of pleasure, at knowing yourself at last genuinely down and out. You have talked so often of going to the dogs – and well, here are the dogs, and you have reached them, and you can stand it. It takes off a lot of anxiety.
+ - Most people approve of capital punishment, but most people wouldn’t do the hangman’s job.
+ - We may find in the long run that tinned food is a deadlier weapon than the machine-gun.
+ - All true tea lovers not only like their tea strong, but like it a little stronger with each year that passes.
+ - War against a foreign country only happens when the moneyed classes think they are going to profit from it.
+ - Writing a book is a horrible, exhausting struggle, like a long bout of some painful illness.
+ - Man is the only real enemy we have. Remove Man from the scene, and the root cause of hunger and overwork is abolished forever.
+ - Napoleon is always right.
+ - All art is propaganda.
+ - Reality exists in the human mind, and nowhere else. Not in the individual mind, which can make mistakes, and in any case soon perishes: only in the mind of the Party, which is collective and immortal.
+ - The one certain thing was that death never came at an expected moment.
+ - The real test of character is how you treat someone who has no possibility of doing you any good.
+ - In moments of crisis one is never fighting against an external enemy but always against one’s own body.
+ - Ignorance and prejudice are the ballast of our ship of state – however, ships without ballast are not seaworthy and cannot sail in the tempests, nor reach a safe harbor.
+ - The words democracy, socialism, freedom, patriotic, realistic, justice have each of them several different meanings which cannot be reconciled with one another.
+ - The aim of a joke is not to degrade the human being, but to remind him that he is already degraded.
+ - All the war-propaganda, all the screaming and lies and hatred, comes invariably from people who are not fighting.
+ - One has to belong to the intelligentsia to believe things like that: no ordinary man could be such a fool.
+ - The Communism of the English intellectual is something explicable enough. It is the patriotism of the deracinated.
+ - Man is the only creature that consumes without producing.
+ - The tendency of advanced capitalism has been to enlarge the middle class and not to wipe it out, as it once seemed likely to do.
+ - However much you deny the truth, the truth goes on existing.
+ - A peace that is truly permanent would be the same as a permanent war.
+ - Now he had recognized himself as a dead man it became important to stay alive as long as possible.
+ - Either we all live in a decent world, or nobody does.
+ - If I had understood the situation a bit better I should probably have joined the Anarchists.
+ - Orthodoxy is the ability to say two and two make five when faith requires it.
+ - By using stale metaphors, similes and idioms, you save much mental effort, at the cost of leaving your meaning vague, not only for your reader but for yourself.
+ - The secret of rulership is to combine a belief in one’s own infallibility with a power to learn from past mistakes.
+ - Cricket is a game full or forlorn hopes and sudden dramatic changes of fortune and its rules are so ill-defined that their interpretation is partly an ethical business.
+ - A family with the wrong members in control; that, perhaps, is as near as one can come to describing England in a phrase.
+ - No one can look back on his schooldays and say with truth that they were altogether unhappy.
+ - No advance in wealth, no softening of manners, no reform or revolution has ever brought human equality a millimeter nearer.
+ - A generation of the unteachable is hanging upon us like a necklace of corpses.
+ - Power is not a means; it is an end.
+ - Power-worship blurs political judgment because it leads, almost unavoidably, to the belief that present trends will continue. Whoever is winning at the moment will always seem to be invincible.
+ - If I had to make a list of six books which were to be preserved when all others were destroyed, I would certainly put Gulliver’s Travels among them.
+ - So much of left-wing thought is a kind of playing with fire by people who don’t even know that fire is hot.
+ - The quickest way of ending a war is to lose it.
+ - We may be together for another six months – a year – there’s no knowing. At the end we’re certain to be apart. Do you realize how utterly alone we shall be?
+ - Tragedy, he precieved, belonged to the ancient time, to a time when there were still privacy, love, and friendship, and when the members of a family stood by one another without needing to know the reason.
+ - Tea is one of the main stays of civilization in this country.
+ - You will be hollow. We shall squeeze you empty, and then we shall fill you with ourselves.
+ - In all the useful arts the world is either standing still or going backwards.
+ - So long as I remain alive and well I shall continue to feel strongly about prose style, to love the surface of the earth, and to take a pleasure in solid objects and scraps of useless information.
+ - Nothing holds it together except an idea which is indestructible.
+ - The food crank is by definition a person willing to cut himself off from human society in the hopes of adding five years onto the life of his carcase; that is, a person out of touch with common humanity.
+ - Sanity was statistical. It was merely a question of learning to think as they thought.
+ - Surely, comrades, you don’t want Jones back?
+ - Human beings were behaving as human beings and not as cogs in the capitalist machine.
+ - If you are a man, Winston, you are the last man.
+ - He felt as though he were wandering in the forests of the sea bottom, lost in a monstrous world where he himself was the monster. He was alone. The past was dead, the future was unimaginable.
+ - But you could not have pure love or pure lust nowadays. No emotion was pure, because everything was mixed up with fear and hatred. Their embrace had been a battle, the climax a victory. It was a blow struck against the Party. It was a political act.
+ - At any given moment there is an orthodoxy, a body of ideas which it is assumed that all right-thinking people will accept without question.
+ - The atom bombs are piling up in the factories, the police are prowling through the cities, the lies are streaming from the loudspeakers, but the earth is still going round the sun.
+ - Everyone believes in the atrocities of the enemy and disbelieves in those of his own side, without ever bothering to examine the evidence.
+ - The Revolution will be complete when the language is perfect.
+ - Let’s face it: our lives are miserable, laborious, and short.
+ - Man is the only creature that consumes without producing. He does not give milk, he does not lay eggs, he is too weak to pull the plough, he cannot run fast enough to catch rabbits. Yet he is lord of all the animals.
+ - Hunger reduces one to an utterly spineless, brainless condition, more like the after-effects of influenza than anything else. It is as though all one’s blood had been pumped out and lukewarm water substituted.
+ - Envy is a horrible thing. It is unlike all other kinds of suffering in that there is no disguising it, no elevating it into tragedy. It is more than merely painful, it is disgusting.
+ - It was not by making yourself heard but by staying sane that you carried on the human heritage.
+ - Public opinion, because of the tremendous urge to conformity in gregarious animals, is less tolerant than any system of law.
+ - Probably the battle of Waterloo was won on the playing-fields of Eton, but the opening battles of all subsequent wars have been lost there.
+ - When I see an actual flesh-and-blood worker in conflict with his natural enemy, the policeman, I do not have to ask myself which side I am on.
+ - There is no test of literary merit except survival, which is itself an index to majority opinion.
+ - Several of them would have protested if they could have found the right arguments.
+ - The upper class desire to remain so, the middle class wish to overthrow the upper class, and the lower class want a classless system.
+ - All nationalistic distinctions – all claims to be better than somebody else because you have a different-shaped skull or speak a different dialect – are entirely spurious, but they are important so long as people believe in them.
+ - It is fatal to look hungry. It makes people want to kick you.
+ - Snobbishness, like hypocrisy, is a check upon behaviour whose value from a social point of view has been underrated.
+ - And it is a great thing to die in your own bed, though it is better still to die in your boots.
+ - England will still be England, an everlasting animal, stretching into the future and the past and like all living things having the power to change out of all recognition and yet remain the same.
+ - In my opinion nothing has contributed more to the corruption of the original idea of socialism as the belief that Russia is a socialist country.
+ - They could be made to accept the most flagrant violations of reality, because they never fully grasped the enormity of what was demanded of them, and were not sufficiently interested in public events to notice what was happening.
+ - Liberal: a power worshipper without power.
+ - No one is patriotic about taxes.
+ - Weakness is strength.
+ - Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards.
+ - You would not make the act of submission which is the price of sanity.
+ - Records told the same tale, then the lie passed into history and became truth.
+ - The Penguin books are splendid value for sixpence, so splendid that if other publishers had any sense they would combine against them and suppress them.
+ - Literature is doomed if liberty of thought perishes.
+ - Never have ideas about children, and never have ideas for them.
+ - There are some ideas so wrong that only a very intelligent person could believe in them.
+ - Perhaps a man really dies when his brain stops, when he loses the power to take in a new idea.
+ - The slovenliness of our language makes it easier for us to have foolish thoughts.
+ - Writing a novel is agony.
+ - To exchange one orthodoxy for another is not necessarily an advance. The enemy is the gramophone mind, whether or not one agrees with the record that is being played at the moment.
+ - Mankind is not likely to salvage civilization unless he can evolve a system of good and evil which is independent of heaven and hell.
+ - To hang on from day to day and from week to week, spinning out a present that had no future, seemed an unconquerable instinct, just as one’s lungs will always draw the next breath so long as there is air available.
+ - A man who gives a good account of himself is probably lying, since any life when viewed from the inside is simply a series of defeats.
+ - When it comes to the pinch, human beings are heroic. Women face childbed and the scrubbing brush, revolutionaries keep their mouths shut in the torture chamber, battleships go down with their guns still firing when their decks are awash.
+ - All rulers in all ages have tried to impose a false view of the world upon their followers.
+ - A scrupulous writer, in every sentence that he writes, will ask himself at least four questions, thus: 1. What am I trying to say? 2. What words will express it? 3. What image or idiom will make it clearer? 4. Is this image fresh enough to have an effect?
+ - I sometimes think that the price of liberty is not so much eternal vigilance as eternal dirt.
+ - Most people get a fair amount of fun out of their lives, but on balance life is suffering, and only the very young or the very foolish imagine otherwise.
+ - The belly comes before the soul.
+ - Whoever is winning at the moment will always seem to be invincible.
+ - We are in a strange period of history in which a revolutionary has to be a patriot and a patriot has to be a revolutionary.
+ - Society has always seemed to demand a little more from human beings than it will get in practice.
+ - When I joined the militia I had promised myself to kill one Fascist – after all, if each of us killed one they would soon be extinct.
+ - The paperweight was the room he was in, and the coral was Julia’s life and his own, fixed in a sort of eternity at the heart of the crystal.
+ - It is also true that one can write nothing readable unless one constantly struggles to efface one’s own personality. Good prose is like a windowpane.
+ - I believe that the BBC, in spite of the stupidity of its foreign propaganda and the unbearable voices of its announcers, is very truthful. It is generally regarded here as more reliable than the press.
+ - One does not establish a dictatorship in order to safeguard a revolution; one makes a revolution in order to establish a dictatorship.
+ - One’s got to change the system, or one changes nothing.
+ - Only old Benjamin professed to remember every detail of his long life and to know that things never had been, nor ever could be much better or much worse – hunger, hardship, and disappointment being, so he said, the unalterable law of life.
+ - As I write, highly civilized human beings are flying overhead, trying to kill me.
+ - Good novels are not written by orthodoxy-sniffers, nor by people who are conscience-stricken about their own orthodoxy. Good novels are written by people who are not frightened.
+ - To walk through the ruined cities of Germany is to feel an actual doubt about the continuity of civilization.
+ - Revolutions only effect a radical improvement when the masses are alert and know how to chuck out their leaders as soon as the latter have done their job.
+ - Whatever goes upon two legs is an enemy. Whatever goes upon four legs, or has wings, is a friend.
+ - Winston was gelatinous with fatigue.
+ - It could not have been ten seconds, and yet it seemed a long time that their hands were clasped together. He had time to learn every detail of her hand.
+ - At any given moment, there is a sort of all pervading orthodoxy, a general tacit agreement not to discuss large and uncomfortable facts.
+ - An earthquake is such fun when it is over.
+ - By preaching the doctrine that nothing is to be admired except steel and concrete, one merely makes it a little surer that human beings will have no outlet for their surplus energy except in hatred and leader worship.
+ - One of the effects of a safe and civilized life is an immense over sensitiveness which makes all the primary emotions somewhat disgusting.
+ - Part of the reason for the ugliness of adults, in a child’s eyes, is that the child is usually looking upwards, and few faces are at their best when seen from below.
+ - If you turn the other cheek, you will get a harder blow on it than you got on the first one. This does not always happen, but it is to be expected, and you ought not to complain if it does happen.
+ - The human beings did not hate Animal Farm any less now that it was prospering; indeed, they hated it more than ever.
+ - The consequences of every act are included in the act itself.
+ - Most people who bother with the matter at all would admit that the English language is in a bad way, but it is generally assumed that we cannot by conscious action do anything about it.
+ - All tyrannies rule through fraud and force, but once the fraud is exposed they must rely exclusively on force.
+ - I’m fat, but I’m thin inside. Has it ever struck you that there’s a thin man inside every fat man, just as they say there’s a statue inside every block of stone?
+ - I would sooner be a foreigner in Spain than in most countries. How easy it is to make friends in Spain!
+ - Before the war, and especially before the Boer War, it was summer all the year round.
+ - The heresy of heresies was common sense.
+ - Why should be fruit be held inferior to the flower?
+ - So long as human beings stay human, death and life are the same thing.
+ - He had moved from thought to words, and now from words to actions.
+ - After 40, a man is responsible for his face.
+ - And the bigger the fall, the bigger the joke. It would be better fun to throw a custard pie at a bishop than at a curate.
+ - Football, a game in which everyone gets hurt and every nation has its own style of play which seems unfair to foreigners.
+ - Men are only as good as their technical development allows them to be.
+ - Truth becomes untruth if uttered by your enemy.
+ - What opinions the masses hold, or do not hold, is looked upon as a matter of indifference. They can be granted intellectual liberty becasue they have no intellect.
+ - He was alone. The past was dead, the future was unimaginable.
+ - The real power, the power we have to fight for night and day, is not power over things, but over men.
+ - We are the dead. Our only true life is in the future. We shall take part in it as handfuls of dust and splinters of bone. But how far away that future may be, there is no knowing.
+ - It was almost normal for people over thirty to be frightened of their own children.
+ - Circus dogs jump when the trainer cracks the whip. But the really well-trained dog is the one that turns somersaults when there is no whip-.
+ - The enemy of the moment always represented absolute evil, and it followed that any past or future agreement with him was impossible.
+ - A sahib has got to act like a sahib; he has got to appear resolute, to know his own mind and do definite things.
+ - On the whole, human beings want to be good, but not too good, and not quite all the time.
+ - All political thinking for years past has been vitiated in the same way. People can foresee the future only when it coincides with their own wishes, and the most grossly obvious facts can be ignored when they are unwelcome.
+ - It is not possible for any thinking person to live in such a society as our own without wanting to change it.
+ - The great enemy of clear language is insincerity. When there is a gap between one’s real and one’s declared aims, one turns, as it were, instinctively to long words and exhausted idioms, like a cuttlefish squirting out ink.
+ - The prime necessities for success in life are money, athleticism, tailor made clothes and a charming smile.
+ - The party is not concerned with perpetuating itself. Who wields power is not important, providing that the hierarchical structure always remains the same.
+ - Myths which are believed in tend to become true.
+ - Clover was a stout motherly mare approaching middle life, who had never quite got her figure back after her fourth foal.
+ - The past is whatever the records and the memories agree upon.
+ - A man receiving charity always hates his benefactor- it is a fixed characteristic of human nature.
+ - Poverty frees them from ordinary standards of behaviour, just as money frees people from work.
+ - If he thinks he floats off the floor, and if I simultaneously think I see him do it, then the thing happens.
+ - All men are enemies. All animals are comrades.
+ - He would say that God had given him a tail to keep the flies off, but that he would sooner have had no tail and no flies.
+ - I have no wish to take life, not even human life.
+ - When I see a policeman with a club beating a man on the ground, I don’t have to ask whose side I’m on.
+ - It is the same in all wars; the soldiers do the fighting, the journalists do the shouting, and no true patriot ever gets near a front-line trench, except on the briefest of propaganda tours.
+ - One cannot really be a Catholic and grown up.
+ - I am afraid of death. You are young, so presumably you’re more afraid of it than I am. Obviously we shall put if off as long as we can. But it makes very little difference. So long as human beings stay human, death and life are the same thing.
+ - Some things ARE true, even though the party says they are true.
+ - Lack of money means discomfort, means squalid worries, means shortage of tobacco, means ever-present consciousness of failure-above all, it means loneliness.
+ - The more intelligent, the less sane.
+ - The weariness of the cell is the vigour of the organism.
+ - One must choose between God and Man, and all “radicals” and “progressives”, from the mildest liberal to the most extreme anarchist, have in effect chosen Man.
+ - The words kept coming back to him, statement of a mystical truth and a palpable absurdity.
+ - No doubt alcohol, tobacco, and so forth, are things that a saint must avoid; but sainthood is also a thing that human beings must avoid.
+ - The Catholic and the Communist are alike in assuming that an opponent cannot be both honest and intelligent.
+ - You must be an intellectual. A normal person would never believe a thing like that.
+ - In all the modern talk about energy, efficiency, social service and the rest of it, what meaning is there except “Get money, get it legally, and get a lot of it”? Money has become the grand test of virtue.
+ - In certain kinds of writing, particularly in art criticism and literary criticism, it is normal to come across long passages which are almost completely lacking in meaning.
+ - The object of terrorism is terrorism. The object of oppression is oppression. The object of torture is torture. The object of murder is murder. The object of power is power. Now do you begin to understand me?
+ - The urge to shout filthy words at the top of his voice was as strong as ever.
+ - We have sunk so low it has become the obligation of every decent, thinking individual to re-state the obvious!
+ - Modern English, especially written English, is full of bad habits which spread by imitation and which can be avoided if one is willing to take the necessary trouble.
+ - Man’s greatest drive is not love or hate but to change another person’s writing.
+ - We are all capable of believing things which we know to be untrue, and then, when we are finally proved wrong, impudently twisting the facts so as to show that we were right.
+ - One can love a child, perhaps, more deeply than one can love another adult, but it is rash to assume that the child feels any love in return.
+ - England is the most class-ridden country under the sun. It is a land of snobbery and privilege, ruled largely by the old and silly.
+ - It is a mysterious thing, the loss of faith-as mysterious as faith itself. Like faith, it is ultimately not rooted in logic; it is a change in the climate of the mind.
+ - The problem was how to keep the wheels of industry turning without increasing the real wealth of the world. Goods must be produced, but they must not be distributed. And in practice the only way of achieving this was by continuous warfare.
+ - When the white man turns tyrant, it is his own freedom that he destroys.
+ - Some hams hanging in the kitchen were taken out for burial.
+ - It is curious how people take it for granted that they have a right to preach at you and pray over you as soon as your income falls below a certain level.
+ - You are imagining that there is something called human nature which will be outraged by what we do and will turn against us. But we create human nature. Men are infinitely malleable.
+ - I have the most evil memories of Spain, but I have very few bad memories of Spaniards.
+ - But the thing that I saw in your face no power can disinherit: No bomb that ever burst shatters the crystal spirit.
+ - All propaganda is lies, even when one is telling the truth.
+ - Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac.
+ - The Puritanical nonsense of excluding children and therefore to some extent women from pubs has turned these places into mere boozing shops instead of the family gathering places that they ought to be.
+ - It was given out that the animals there practised cannibalism, tortured one another with red-hot horseshoes, and had their females in common. This was what came of rebelling against the laws of Nature, Frederick and Pilkington said.
+ - Joyce is a poet and also an elephantine pedant.
+ - Take away freedom of speech, and the creative faculties dry up.
+ - Is not anyone with any degree of mental honesty conscious of telling lies all day long, both in talking and writing, simply because lies will fall into artistic shape when truth will not?
+ - This work was strictly voluntary, but any animal who absented himself from it would have his rations reduced by half.
+ - He drove his mind into the abyss where poetry is written.
+ - The citizen of Oceania is not allowed to know anything of the tenets of the other two philosophies, but he is taught to execrate them as barbarous outrages upon morality and common sense. Actually, the three philosophies are barely distinguishable...
+ - You were the dead; theirs was the future.
+ - The essential act of war is destruction, not necessarily of human lives, but of the products of human labor.
+ - Processions, meetings, military parades, lectures, waxwork displays, film shows, telescreen programs all had to be organized; stands had to be erected, effigies built, slogans coined, songs written, rumours circulated, photographs faked.
+ - What is to be expected of them is not treachery, or physcial cowardice, but stupidity, unconscious sabotage, an infallible instinct for doing the wrong thing.
+ - If you kept the small rules, you could break the big ones.
+ - We were once told that the aeroplane had “abolished frontiers”; actually it is only since the aeroplane became a serious weapon that frontiers have become definitely impassable.
+ - Even through the shut window pane, the world looked cold.
+ - You had to live – did live, from habit that became instinct – in the assumption that evey sound you made was overheard, and, except in darkness, every moment scrutinized.
+ - I often wondered whether any of the others grasped that I had done it solely to avoid looking a fool.
+ - Within any important issue, there are always aspects no one wishes to discuss.
+ - If there really is such a thing as turning in one’s grave, Shakespeare must get a lot of exercise.
+ - No one believes more firmly than Comrade Napoleon that all animals are equal. He would be only too happy to let you make your decisions for yourselves. But sometimes you might make the wrong decisions, comrades, and then where should we be?
+ - A dirty joke is a sort of mental rebellion.
+ - We of the sinking middle class may sink without further struggles into the working class where we belong, and probably when we get there it will not be so dreadful as we feared, for, after all, we have nothing to lose.
+ - Early in life I had noticed that no event is ever correctly reported in a newspaper.
+ - When it comes to the pinch, human beings are heroic.
+ - I loathed the game, and since I could see no pleasure or usefulness in it, it was very difficult for me to show courage at it. Football, it seemed to me, is not really played for the pleasure of kicking a ball about, but is a species of fighting.
+ - The more men you’ve had, the more I love you.
+ - Perhaps it is only when people are somewhere near the starvation level that they have anything to sing about.
+ - By revolution we become more ourselves, not less.
+ - The fact is that certain themes cannot be celebrated in words, and tyranny is one of them. No one ever wrote a good book in praise of the Inquisition.
+ - To accept civilization as it is practically means accepting decay.
+ - Language ought to be the joint creation of poets and manual workers.
+ - The life of an animal is misery and slavery: that is the plain truth.
+ - A dirty joke is not, of course, a serious attack on morality, but it is a sort of mental rebellion, a momentary wish that things were otherwise.
+ - The plant is blind but it knows enough to keep pushing upwards towards the light, and it will continue to do this in the face of endless discouragements.
+ - Despotic governments can stand ‘moral force’ till the cows come home; what they fear is physical force.
+ - I doubt whether classical education ever has been or can be successfully carried out without corporal punishment.
+ - The whole experience of being hit by a bullet is very interesting and I think worth describing in detail.
+ - There are some situations from which one can only escape by acting like a devil or a lunatic.
+ - As I write, highly civilized human beings are flying overhead, trying to kill me. They do not feel any enmity against me as an individual, nor I against them. They are only ‘doing their duty’
+ - It is one of the tragedies of the half-educated that they develop late, when they are already committed to some wrong way of life.
+ - People talk about the horrors of war, but what weapon has a man invented that even approaches in cruelty some of the commoner diseases? ‘Natural’ death, almost by defintion, means something slow, smelly and painful.
+ - I do not wish to comment on the work; if it does not speak for itself, it is a failure.
+ - I have tipped waiters, and I have been tipped by waiters.
+ - Winston Churchill could not definitely remember a time when his country had not been at war.
+ - To be corrupted by totalitarianism, one does not have to live in a totalitarian country.
+ - Anyone who challenges the prevailing orthodoxy finds himself silenced with surprising effectiveness. A genuinely unfashionable opinion is almost never given a fair hearing.
+ - What can the England of 1940 have in common with the England of 1840? But then, what have you in common with the child of five whose photograph your mother keeps on the mantelpiece? Nothing, except that you happen to be the same person.
+ - Between pigs and human beings there was not and there need not be any clash of interest whatsoever.
+ - Progress and reaction have both turned out to be swindles. Seemingly, there is nothing left but quietism – robbing reality of its terrors by simply submitting to it.
+ - The Seven Commandments: Whatever goes upon two legs is an enemy. Whatever goes upon four legs, or has wings, is a friend. No animal shall wear clothes. No animal shall sleep in a bed. No animal shall drink alcohol. No animal shall kill any other animal. All animals are equal.
+ - Can you not understand that liberty is worth more than just ribbons?
+ - The four great motives for writing prose are sheer egoism, esthetic enthusiasm, historical impulse, and political purpose.
+ - The atmosphere of orthodoxy is always damaging to prose, and above all it is completely ruinous to the novel, the most anarchical of all forms of literature.
+ - He was conscious of nothing except the blankness of the page in front of him, the itching of the skin above his ankle, the blaring of the music, and a slight booziness caused by the gin.
+ - There exists a huge dump of worn-out metaphors which have lost all evocative power and are merely used because they save people the trouble of inventing phrases for themselves.
+ - You’re only a rebel from the waist downwards,? he told her.
+ - It was not the man’s brain that was speaking; it was his larynx.
+ - One defeats a fanatic precisely by not being a fanatic oneself, but on the contrary by using one’s intelligence.
+ - The intellectual is different from the ordinary man, but only in certain sections of his personality, and even then not all the time.
+ - In Moulmein, in lower Burma, I was hated by large numbers of people – the only time in my life that I have been important enough for this to happen to me.
+ - The English are not happy unless they are miserable, the Irish are not at peace unless they are at war, and the Scots are not at home unless they are abroad.
+ - Most revolutionaries are potential Tories, because they imagine that everything can be put right by altering the shape of society; once that change is effected, as it sometimes is, they see no need for any other.
+ - To a surprising extent the war-lords in shining armour, the apostles of martial virtues, tend not to die fighting when time comes. History is full of ignominious getaways by the great and famous.
+ - Probably the best nonsense poetry is produced gradually and accidentally, by communities rather than by individuals.
+ - The Party is not interested in the overt act. The thought is all we care about.
+ - The fact is that every war suffers a kind of progressive degradation with every month that it continues, because such things as individual liberty and a truthful press are simply not compatible with military efficiency...
+ - Last of all came the cat, who looked round, as usual, for the warmest place, and finally squeezed herself in between Boxer and Clover; there she purred contentedly throughout Major’s speech without listening to a word of what he was saying.
+ - The choice before human beings, is not, as a rule, between good and evil but between two evils.
+ - Never, for any reason on earth, could you wish for an increase in pain. Of pain you could wish only one thing: that it should stop.
+ - Enlightened people seldom or never possess a sense of responsibility.
+ - The stars are a free show; it don’t cost anything to use your eyes.
+ - There is no such thing as a naval dictatorship.
+ - The modern writer who has influenced me most is W. Somerset Maugham .
+ - How could you communicate with the future? It was impossible. Either the future would resemble the present in which case it would not listen to him, or it would be different from it, and his predicament would be meaningless.
+ - The only imaginative prose writer of the slightest value who has appeared among the English-speaking races for some years past.
+ - The common people, on the whole, are still living in the world of absolute good and evil from which the intellectuals have long since escaped.
+ - Money writes books, money sells them. Give me not righteousness, O Lord, give me money, only money.
+ - I had been in London innumerable times, and yet till that day I had never noticed one of the worst things about London-the fact that it costs money even to sit down.
+ - Fate seemed to be playing a series of extraordinarily unamusing jokes.
+ - Circus dogs jump when the trainer cracks his whip.
+ - Almost as swiftly as he had imagined it, she had torn her clothes off, and when she flung them aside it was with that same magnificent gesture by which a whole civilization seemed to be annihilated.
+ - The cheaper books become, the less money is spent on books.
+ - As a rule they will refuse even to sample a foreign dish, they regard such things as garlic and olive oil with disgust, life is unliveable to them unless they have tea and puddings.
+ - There is only one way to make money at writing, and that is to marry a publisher’s daughter.
+ - The end was contained in the beginning.
+ - What is not hereditary cannot be permanent.
+ - In so far as it takes effect at all, pacifist propaganda can only be effective against those countries where a certain amount of freedom of speech is still permitted; in other words it is helpful to totalitarianism.
+ - Apparently nothing will ever teach these people that the other 99 percent of the population exist.
+ - Pessimism is reactionary because it makes the very idea of improving the world impossible.
+ - Antisemitism, for instance, is simply not the doctrine of a grown-up person.
+ - Until one has some kind of professional relationship with books, one does not discover how bad the majority of them are.
+ - It is deliberate policy to keep even the favoured groups somewhere near the brink of hardship, because a general state of scarcity increases the importance of small privileges and thus magnifies the distinction between one group and another.
+ - One wants to live, of course, indeed one only stays alive by virtue of the fear of death.
+ - There, comrades, is the answer to all our problems. It is summed up in a single word – Man.
+ - Money, money, all is money! Could you write even a penny novelette without money to put heart in you?
+ - Why was it that they could never shout like that about something that mattered?
+ - Anyone who knows of a provable instance of colour discrimination ought always to expose it.
+ - I worked out an anarchistic theory that all government is evil, that the punishment always does more harm than the crime and the people can be trusted to behave decently if you will only let them alone.
+ - Orthodoxy is unconsciousness.
+ - But the thought of being a lunatic did not greatly trouble him; the horror was that he might also be wrong.
+ - Bad writers are nearly always haunted by the notion that Latin or Greek words are grander than Saxon ones.
+ - I did try very hard to tell the whole truth without violating my literary instincts.
+ - For a second, two seconds, they had exchanged an equivocal glance, and that was the end of the story. But even that was a memorable event, in the locked loneliness in which one had to live.
+ - Many people genuinely do not want to be saints, and it is probable that some who achieve or aspire to sainthood have never felt much temptation to be human beings.
+ - What happens to you here is forever.
+ - The existence of good bad literature – the fact that one can be amused or excited or even moved by a book that one’s intellect simply refuses to take seriously – is a reminder that art is not the same thing as cerebration.
+ - Poverty is spiritual halitosis.
+ - Autobiography is only to be trusted when it reveals something disgraceful.
+ - A tragic situation exists precisely when virtue does not triumph but when it is still felt that man is nobler than the forces which destroy him.
+ - Huge events like the Ukraine famine of 1933, involving the deaths of millions of people, have actually escaped the attention of the majority of English russophiles.
+ - The whole question of evolution seems less momentous than it did, because, unlike the Victorians, we do not feel that to be descended from animals is degrading to human dignity.
+ - He was an embittered atheist, the sort of atheist who does not so much disbelieve in God as personally dislike Him.
+ - Saints should always be judged guilty until they are proved innocent.
+ - Within certain limits, it is actually true that the less money you have, the less you worry.
+ - There is a minority of gifted, willfuf people who are determined to live their own lives to the end, and writers belong in this class.
+ - They were governed by private loyalties which they did not question. What mattered were individual relationships, and a completely helpless gesture, an embrace, a tear, a word spoken to a dying man, could have value in itself.
+ - Good novel are written by people who are not frightened.
+ - One always abandons something in retreat. Look at Napoleon at the Beresina! He abandoned his whole army.
+ - Mrs Weaver nosed among the books, too dim-witted to grasp that they were in alphabetical order.
+ - For the future. For the unborn.
+ - If you have embraced a creed which appears to be free from the ordinary dirtiness of politics – a creed from which you yourself cannot expect to draw any material advantage – surely that proves that you are in the right?
+ - The pleasures of spring are available to everybody and cost nothing.
+ - The animals were happy as they had never conceived it possible to be. Every mouthful of food was an acute positive pleasure, now that it was truly their own food, produced by themselves and for themselves, not doled out to them by a grudging master.
+ - Until they become conscious, they will never rebel.
+ - The fallacy is to believe that under a dictatorial government you can be free inside.
+ - Dickens is one of those authors who are well worth stealing.
+ - To accept an unorthodoxy is always to inherit unresolved contradictions.
+ - Looking at the world as a whole, the drift for many decades has been not towards anarchy but towards the reimposition of slavery. We may be heading not for general breakdown but for an epoch as horribly stable as the slave empires of antiquity.
+ - And yet, just for a moment, what almost frightening power had sounded in that cry from only a few hundred throats! Why was it that they could never shout like that about anything that mattered?
+ - He thought with a kind of astonishment of the biological uselessness of pain and fear, the treachery of the human body which always freezes into inertia at exactly the moment when a special effort is needed.
+ - It was soon noticed that when ever there was work to be done the cat could never be found.
+ - Gordon eyed them with inert hatred. At this moment he hated all books, and novels most of all. Horrible to think of all that soggy, half-baked trash massed together in one place.
+ - Prolonged, indiscriminate reviewing of books is a quite exceptionally thankless, irritating and exhausting job. It not only involves praising trash but constantly inventing reactions towards books about which one has no spontaneous feeling whatever.
+ - Take pleasure in the impact of one sound on another.
+ - In places this book is a little over-written, because Mr Blunden is no more able to resist a quotation than some people are to refuse a drink.
+ - The object of power is power.
+ - History has to move in a certain direction, even if it has to be pushed that way by neurotics.
+
+500 quotes

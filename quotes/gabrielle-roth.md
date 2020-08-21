@@ -1,0 +1,50 @@
+ - If you don’t do your dance, who will?
+ - It takes discipline to be a free spirit.
+ - The fastest way to still the mind is to move the body.
+ - If you want to give birth to your true self, you are going to have to dig deep down into that body of yours and let your soul howl. Sometimes you have to take a leap of faith and trust that if you turn off your head, your feet will take you where you need to go.
+ - Healing is movement. Disease is inertia. If you put the body in motion, you will change.
+ - Movement practice gets all your creative juices flowing. It doesn’t just release your body, but it opens up your heart and empties out your mind, as well.
+ - Sweat your prayers, dance your pain, and move on.
+ - The dance is not where we lose ourselves. But where we find ourselves.
+ - When we give ourselves over completely to the spirit of the dance, it becomes a prayer.
+ - Shamanic healing is a journey. It involves stepping out of our habitual roles, our conventional scripts, and improvising a dancing path.
+ - Put your body in motion and your psyche will heal itself.
+ - There is a dance that only you know how to do.
+ - Ride the energy of your own unique spirit.
+ - Rhythm is our universal mother tongue. It’s the language of the soul.
+ - Dancing, singing, storytelling and silence are the four universal healing salves.
+ - There is a dance only you can do, that exists only in you, here and now, always changing, always true. Are you willing to listen with fascination? If you are, it will deliver you unto the self you have always dreamed you could be. This is a promise.
+ - After you leap, before you land, is God.
+ - Between the head and feet of any given person is a billion miles of unexplored wilderness.
+ - Each of us is a moving center, a space of divine mystery.
+ - Each of us is a moving center, a space of divine mystery. And though we spend most of our time on the surface in the daily details of ordinary existence, most us hunger to connect to this space within, to break through to bliss, to be swept away into something bigger than us...
+ - There is no true joy and compassion except through the difficult emotions – all we get without the experience of fear, anger, and sadness are cheap imitations of joy and compassion – pleasantness and sentimentality.
+ - Movement is my medicine, my meditation, my metaphor and my method, a living language we can rely upon to tell us the truth about who we are, who we are with, and where we are going. There is no dogma in the dance.
+ - Your soul is a seeker, lover and artist; shape-shifting through archetypal energy, between your darkness and fields of light, your body and spirit, your heaven and hell, until you land in the moment of sweet surrender; when you, as a dancer, disappear into the dance.
+ - Dance to fall in love with the spirit in all things.
+ - If you just set people in motion, they’ll heal themselves.
+ - Shed the past, forget the future, and fall into the moment feet first.
+ - Dance has been my medium, my metaphor, my message and my meditation.
+ - Mine is the art of inspiring people to turn themselves inside out, transform their suffering into art, their art into awareness and their awareness into action.
+ - Freeing the body inevitably leads to freeing the heart.
+ - Movement is my medium and my metaphor. I know that if a wave of energy is allowed to complete itself, it yields a whole new wave, and in fact that is all I really know. Riding these waves means joining the cosmic dance that, as Dante says, ‘moves the sun and the other stars.’
+ - Life is sacred. Life is art. Life is sacred art.
+ - Dance is movement, is action, and like all action, it reveals us to ourselves in the doing.
+ - The body is the womb of the soul, a begging bowl for spirit...
+ - You just have to determine to settle for nothing less than being FULLY ALIVE, to show up, be who you are, and share your gifts.
+ - The fastest, cleanest, most joyful way to break out of your own box is by dancing. I’m not talking about doing the stand-and-sway. I’m talking about dancing so deep, so hard, so full of the beat that you are nothing but the dance and the beat and the sweat and the heat.
+ - I believe in the power of motion, the wisdom of gravity, the emptiness of true love, the fact that there is no way out but through the body, no way up unless we all go together, no way down unless we follow the beat, no way in unless we embrace the dark.
+ - We dance to reclaim our brilliant ability to disappear in something bigger, something safe, a space without a critic or a judge or an analyst.
+ - If you have a body you are a dancer.
+ - We all share the wound of fragmentation. And we can all share in the cure of unification. Healing is the unification of all our forces – the powers of being, feeling, knowing and seeing.
+ - Your body is the ground metaphor of your life, the expression of your existence. It is your Bible, your encyclopaedia, your life story.
+ - Imagination is powerful. Imagination is healing. All you need is the courage to visualize what should be, and then give yourself to its creation. The result may not be what you expected, but it will be right.
+ - It’s beautiful to dance alone, beautiful to dance with your children, beautiful to dance with your friends, beautiful to dance with your lover, or even collectively. But the ultimate dance is the one we do by ourselves, when we make ourselves known to God.
+ - The spirit in motion heals, expands, circles in and out of the body, moving through the layers of consciousness from inertia to ecstasy. Open to the spirit, and you will be transformed.
+ - We’re constantly changing and any practice meant to serve our authenticity should reflect our fluid nature.
+ - Anger is an integrity-producing response to the invasion of your personal boundaries.
+ - We have lost awe and wonder. In reference to the mystery of life itself, we’ve lost respect for movement in our planet.
+ - My work is giving space – learning of its way and being in its service at the same time. We each have responsibility to express ourselves. And in this expression is the key to our healing.
+ - Your voice takes you to your heart.
+
+48 quotes

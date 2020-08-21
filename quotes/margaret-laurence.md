@@ -1,0 +1,21 @@
+ - Women, as well as men, in all ages and in all places, have danced on the earth, danced the life dance, danced joy, danced grief, danced despair, and danced hope. Literally and metaphorically, by their very lives.
+ - The dead don’t bear a grudge nor seek a blessing. The dead don’t rest uneasy. Only the living.
+ - Will we ever reach a point when it is no longer necessary to say Them and Us? I believe we must reach that point, or perish.
+ - Pride was my wilderness, and the demon that led me there was fear.
+ - Follow your heart, and you perish.
+ - Privacy is a privilege not granted to the aged or the young.
+ - Bless me or not, Lord, just as You please, for I’ll not beg.
+ - Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
+ - I can’t change what’s happened to me in my life, or make what’s not occurred take place. But I can’t say I like it, or accept it, or believe it’s for the best. I don’t and never shall, not even if I’m damned for it.
+ - Holidays are enticing only for the first week or so. After that, it is no longer such a novelty to rise late and have little to do.
+ - I’ve never been able to force a novel. I always had the sense something being given to me. You can’t sit around and wait until inspiration strikes, but neither can you force into being something that isn’t there.
+ - I am rampant with memory.
+ - In some families, please is described as the magic word. In our house, however, it was sorry.
+ - When I say work I only mean writing. Everything else is just odd jobs.
+ - If I hadn’t had my children, I wouldn’t have written more and better, I would have written less and worse.
+ - As we grow older we should become not less radical but more so.
+ - Animals are less alone with roaring than we are with all these words.
+ - Well, you’re young. You know a lot you won’t know later on.
+ - What goes on inside isn’t ever the same as what goes on outside.
+
+19 quotes

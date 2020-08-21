@@ -1,0 +1,66 @@
+ - Escape before it’s too late.
+ - Sleep: a poor substitute for caffeine!
+ - I spend most of my time thinking about things like laundry and buying stationery supplies.
+ - It’s obviously a characteristic of human beings that we like to feel superior to others, but our problem is we are not superior.
+ - Who says one instance of writing has anything in common with another instance?
+ - I have more free time than a lot of individuals, so, instead of talking, I sometimes write.
+ - Acting is an escape from the boring person that I am in real life.
+ - I’m not proud to be me, I’m not excited to be me, but I find that I am me, and like most other individuals, I send out little signals; I tell everyone else how everything looks from where I am.
+ - For some reason, people find me funny. It’s quite hard to define why a thought is funny. It’s even harder to define why a person would be funny. It’s a word that I can’t define at all. But whether I know quite what it is or not, I seem to be it.
+ - When I was a child, I did always feel that people were hiding things, and that they weren’t expressing their true feelings. When adults are too complicated, and cover their emotions with layers of well-intentioned subterfuge, the child isn’t seeing reality clearly enough and gets upset.
+ - My personal life is lived as ‘me,’ but my professional life is lived as other people. In other words, when I go to the office, I lie down, dream, and become ‘someone else.’ That’s my job.
+ - There’s nothing regular about my life at all, really. I don’t keep a regular schedule and every day is different. It’s all rather chaotic.
+ - I’m being mocked because I don’t live up to a socially determined view of what other people think a person should look like.
+ - The Fever is a one-person play. I decided I would perform it myself, and I decided I would not perform it in theaters, because the character in the play says certain things that I meant.
+ - I was making my living from a joke about my appearance that I didn’t understand, and in a way still don’t, because when I look in a mirror it doesn’t seem funny to me.
+ - I have been vain since birth. I expected other people to like what I did, although my vanity has definitely diminished over the years.
+ - I probably have a higher opinion of my writing than the average person, at least when I’m in a good mood, but I don’t really think of my plays as only being relevant to a particular month or year.
+ - I love going to plays. There’s a subconscious side to it, obviously-some people like to be spanked for XYZ psychological reasons, and I like to go to plays, and I can’t entirely explain why.
+ - The actor’s role in the community is quite unlike anyone else’s. Businessmen, for example, don’t take their clothes off or cry in front of strangers in the course of their work. Actors do.
+ - I choose parts because I don’t want to be embarrassed when the movie comes out. What if my friends were to see the movie? What if my niece or nephew wandered into the theater and saw the movie? I don’t want to be too ashamed of it.
+ - When I was first exposed to the films of Ingmar Bergman, I found them frank and disturbing portraits of the world we live in, but that was not something that displeased me. They were beautiful. I thought people would respond to my plays the way I responded to Bergman’s films.
+ - I never grew up thinking, ‘One day I will play so and so’ because I wasn’t expecting to be an actor at all.
+ - It is hard enough to make a plan for how you are going to spend an evening with somebody else. So to make a plan for how you are going to behave in 25 years seems based on a view of life that is incomprehensible to me.
+ - Interestingly, the actress who, in her own persona, may be gentle, shy, and socially awkward, someone whose hand trembles when pouring a cup of tea for a visiting friend, can convincingly portray an elegant, cruel aristocrat tossing off malicious epigrams in an eighteenth-century chocolate house.
+ - I’m a very lucky man. It’s a beautiful thing for a writer, to see people allowing your words to enter their own unconscious and their souls.
+ - My father was a jazz listener, and I think, at least before I was 5, I was not so into that. Although there were records that emphasized percussion that I liked, like Baby Dodds.
+ - In my early 20s, I studied history and politics, and I really thought that perhaps I would devote my life to that.
+ - I do things, and other people laugh at them. I rarely know what the joke is supposed to be or why they’re laughing.
+ - I was clever enough to know that John Donne was offering something that was awfully enjoyable. I just wasn’t clever enough to actually enjoy it.
+ - We’re in an emergency situation. The United States has become an absolutely terrifying country, and I would hope that I could participate in some way in stopping the horror and the brutality.
+ - In real life, every person is the leading man or woman. We don’t think of ourselves as supporting or character actors.
+ - Even with my wife, I find sharing soup is hard.
+ - I see myself as a citizen of the planet. Even as a child, I always found it mindless to root for your own team. I was puzzled by the fact that people said their own team was better than other teams simply because it was theirs.
+ - I don’t have a television, and I’m just not too up on television.
+ - After being in one movie, it didn’t seem like that would be my life. I had done several jobs, briefly. I’d been a shipping clerk, I worked in a copy shop, I didn’t think the acting was going to go on and on.
+ - You’re always fighting the contradiction between the supposed intimacy of a two-person conversation and the blunt reality that you’re trying to sell the play to people who are sitting maybe too far away from you.
+ - I never planned to be an actor. It turned out I could make a living doing it.
+ - In terms of number of movies, I’ve been in an extraordinary amount. If you count only the minutes I’m onscreen, it’s not so long.
+ - Acting is trying to be absolutely truthful; to get audiences to believe that you are a dean, when, actually, not only are you not the dean, but if you walked into the building they’d probably throw you out. That’s very hard.
+ - And my singing, I don’t think I could sing Wagner or opera, but I could probably carry a tune. I was in a musical once, but it was never performed.
+ - I sincerely believe that if Bush and Cheney recognized the full humanity of other people’s mothers around the world, they wouldn’t commit the crimes they commit.
+ - The life of an actor can be very enviable.
+ - I know that I am one and I’ve made a living as an actor and I enjoy being an actor, but when I’m not actually doing it, I forget that I do it.
+ - Children, I always think, are just putting on a performance of being naive and not understanding anything. I have worked with children in films, and they’re treated as adults and they just drop the pretense of being children.
+ - As writers, we can’t predict who might come along who might find our offerings valuable.
+ - If I had even the tiniest scrap of advice to give to a young actor who was figuring out how to audition, I would say don’t memorize the script The reality about auditions is that 98 percent of the results has to do with what you are, not with what you did in the audition.
+ - My style as a human being is to indulge people who need to escape, yet I insist on confronting them as a playwright. It’s quite embarrassing, it’s quite unpleasant, it’s quite awkward.
+ - I think I’m trying to write truthfully about life, and naturalism, or the way people normally talk in movies, is a convention. It’s not the way people talk in life at all.
+ - I have been vain since birth.
+ - I started writing plays in around 1967, and at a certain point, I thought, ‘I’m writing plays, I should learn about acting and what it is.’ So I went to the HB Studio in New York, and I was there for about nine months.
+ - Patriotism is considered to be an emotion a person ought to feel. But why? Why is it nobler to love your own country than to love someone else’s?
+ - I have an enormous appetite to see life as I know it presented in front of my eyes.
+ - A play presents a self-enclosed little world for the audience to examine. It’s an opportunity to look objectively at a group of people, to assess them, to react to them, and to measure oneself against them, to ask ‘Am I like that?’
+ - I grew up. I began to think the United States had some problems that really required the help of artistic people to solve. And I gave myself permission to be a writer instead of a civil servant.
+ - My plays have been strange from the beginning, and they never got unstrange.
+ - But because we’ve all been readers, we know what the experience is like, and we hope that what certain writers have given to us, we will give to someone.
+ - I don’t see that many plays, and for me, musicals are rarely pleasing. I feel the actors are being put through a kind of nightmarish labor. They’re like animals being forced to pull heavy carts of vegetables at incredible speeds.
+ - I think the whole system of education would change if I were in charge and had the ability to make changes. I don’t think I would keep Princeton exactly being Princeton.
+ - I don’t see that many plays, and for me, musicals are rarely pleasing.
+ - From being a writer of plays, it was not that surprising that somebody thought of giving me a job as an actor. After I played one part, others came along.
+ - You know, I haven’t written as much as most other writers. Certainly maybe those who keep a more regular schedule accomplish more.
+ - When I was first starting to write plays, I quite literally had never heard of the idea of studying playwriting. I wouldn’t have studied it even if I had heard of it.
+ - For me, a play is a form of writing which isn’t complete until it is interpreted by actors. But it’s still a form of writing. And so most of my time is spent thinking about how to write a sentence.
+ - In an amusement park, you can go on a roller coaster that carries you up and down, or you can go on another kind of ride that whirls you around in a circle. Similarly, there are different sorts of entertaining experiences in the theater.
+
+64 quotes

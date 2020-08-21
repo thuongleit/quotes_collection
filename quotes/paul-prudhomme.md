@@ -1,0 +1,34 @@
+ - I think the most wonderful thing in the world is another chef. I’m always excited about learning new things about food.
+ - I don’t think life is to be taken too seriously. Take it too seriously, and it’ll getcha.
+ - You don’t need a silver fork to eat good food.
+ - When the taste changes with every bite and the last bite tastes as good as the first, that’s Cajun.
+ - Creole is New Orleans city food. Communities were created by the people who wanted to stay and not go back to Spain or France.
+ - In ’71 or ’72 I returned to New Orleans and stayed there. I started cooking Louisiana food. Of all the things I had cooked, it was the best-and it was my heritage.
+ - One of the problems of our youth is that the family unit is broken up. When we’d sit down to dinner together as a family, we’d learn about each other. We had something people don’t get today.
+ - We trust something in a grocery store and assume it’s good. We don’t learn about the most precious thing in life-the food we put in our body. Educate yourself!
+ - Cajun is country food by farmers and fisherman that arrived in Louisiana from Acadiana, Canada.
+ - My mother would put me on a wooden box at the stove and tell me to call her if certain things would happen. Like if the steam turns blue, that is danger!
+ - I opened my own restaurant when I was 17. I went broke, then traveled around the country, learning about different kinds of foods, had three other restaurants that went broke. It didn’t all start just a few years ago!
+ - We had no electricity, no gas. Food was probably our greatest entertainment – the most fun thing that we could do was food.
+ - We closed the restaurant in New Orleans and brought the entire staff to San Francisco. But we had to go home.
+ - I’m a professional cook. I’ve worked with other cooks from all over the world, but my family is not that way – they’re always lived within 25 miles of my hometown!
+ - If you have acid in food, you need to sugar it. At a high temperature, the acids are changed to sugar.
+ - When I travel I normally eat club sandwiches or I bring my own food. When you go into a new town, it’s very had to find a good place to eat.
+ - I’d like to have the first restaurant that can deliver incredible quality food to your table at your house at any time-right where you live.
+ - I believe in America. I’m one of those silly flag wavers.
+ - The bad part about being recognized is that when I walk into a restaurant and sit down, I’ve got to eat everything on the plate, whether it’s good or bad. People would take it as an insult if I did otherwise.
+ - What I think and what the world thinks is totally different.
+ - I wait for the next opportunity to have something to do with food. If I get rested, my mind just starts creating new dishes – click, click, click.
+ - Some people absorb in different ways. I didn’t realize until I was 15 years old how much I retained.
+ - I didn’t want to do just another set of recipes. I think that’s useless.
+ - Have fun. Do something nobody else had done before, or has done since.
+ - One of my missions was to teach.
+ - Don’t get fancy. Have you cooked an apple pie? You don’t know what you did wrong? Do this: Take two or three apples. Put them on a table. Study them.
+ - When you’ve got a great business going, you go open another and take the risk of losing the whole thing. It’s fun!
+ - We didn’t do wrong things because we didn’t want to embarrass our parents.
+ - I love people, and I’m excited that I can turn them on.
+ - I opened a restaurant that had nothing but California wines.
+ - We’re working people, and that’s what we like to do, work.
+ - I would work as a cook, get a little money, then open another restaurant.
+
+32 quotes

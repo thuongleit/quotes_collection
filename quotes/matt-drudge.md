@@ -1,0 +1,30 @@
+ - The first step in good reporting is good snooping.
+ - There’s a danger of the Internet just becoming loud, ugly and boring with a thousand voices screaming for attention.
+ - I envision a future where there’ll be 300 million reporters, where anyone from anywhere can report for any reason. It’s freedom of participation absolutely realized.
+ - You would be amazed what the ordinary guy knows.
+ - I never think too far into the future. I’m too busy thinking about tomorrow’s news.
+ - I follow my conscience – and this is upsetting to some people, but I maintain the conscience is going to be the only thing between us and communication in the future.
+ - With a modem, anyone can follow the world and report on the world-no middle man, no big brother. I guess this changes everything.
+ - I was first to break the news about the death of Lady Diana. The CNN team couldn’t get into makeup fast enough.
+ - The media is comparable to government-probably passes government in raw power.
+ - I want one place I can go that is not going to be lewd, and I’m not sure there is anything left.
+ - I cover media people the way they cover politicians.
+ - If the first lady is concerned about this Internet cycle, what would she have done during the heyday when there was 12, 13 editions of a paper in one day? What would she have done with that news cycle?
+ - Not everything I do is gossip or bedroom. To the contrary, I think that’s just an easy label to dismiss me and to dismiss the new medium.
+ - It seems to me we are losing our way in an effort to get the ratings.
+ - There’s nothing more exciting than to watch a story break and grow, and to be the first one to present it to the world.
+ - If technology has finally caught up with individual liberty, why would anyone who loves freedom want to rethink that?
+ - Television saved the movies. The Internet is going to save the news business.
+ - There won’t be editors in the future with the Internet world, with citizen reporting. That doesn’t scare me.
+ - I didn’t go to the right schools, didn’t come from a well-known family, nor was I even remotely connected to a powerful publishing dynasty.
+ - I do most of my business on that dirty Internet that you were just talking about, where I find there is a lot of freedom to report exactly what I want.
+ - A lot of the stories are internal. They leak it to me wanting to get attention, wanting to get that headline. More times than not, I will not give it to them.
+ - The Internet feeds off the main press, and the main press feeds off the Internet. They’re working in tandem.
+ - Since Democrats vs. Republicans has been obliterated, no real difference between parties...
+ - We have entered an era vibrating with the din of small voices. Every citizen can be a reporter, can take on the powers that be.
+ - Meet them once and you’re innocent; meet them twice and you’re not. So if you see me having drinks again with Harvey Weinstein then, okay, you’ve got me.
+ - Some of the best news stories start in gossip. Monica Lewinsky certainly was gossip in the beginning. I had heard it months before I printed it.
+ - I’ve written thousands of stories, started hundreds of news cycles.
+ - Because I have success, it doesn’t mean I’m part of the mainstream. I’m still an outsider.
+
+28 quotes

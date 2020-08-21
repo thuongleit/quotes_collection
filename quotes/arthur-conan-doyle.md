@@ -1,0 +1,290 @@
+ - You see, but you do not observe.
+ - Work is the best antidote to sorrow, my dear Watson.
+ - It is a capital mistake to theorize before one has data. Insensibly one begins to twist facts to suit theories, instead of theories to suit facts.
+ - My mind rebels at stagnation, give me problems, give me work!
+ - I never guess. It is a shocking habit destructive to the logical faculty.
+ - My name is Sherlock Holmes. It is my business to know what other people do not know.
+ - When the impossible has been eliminated, all that remains no matter how improbable is possible.
+ - The world is full of obvious things which nobody by any chance ever observes.
+ - Any truth is better than indefinite doubt.
+ - I’m not a psychopath, I’m a fully functioning sociopath. Do your research.
+ - I consider that a man’s brain originally is like a little empty attic, and you have to stock it with such furniture as you choose.
+ - My mind rebels at stagnation. Give me problems, give me work, give me the most abstruse cryptogram, or the most intricate analysis, and I am in my own proper atmosphere. But I abhor the dull routine of existence. I crave for mental exaltation.
+ - Education never ends, Watson. It is a series of lessons, with the greatest for the last.
+ - How dangerous it is to reason from insufficient data.
+ - Your life is not your own. Keep your hands off it.
+ - Never trust to general impressions, my boy, but concentrate yourself upon details.
+ - You are my heart, my life, my one and only thought.
+ - Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.
+ - It has long been an axiom of mine that the little things are infinitely the most important.
+ - I am a brain, Watson. The rest of me is a mere appendix.
+ - It is a capital mistake to theorize before one has data.
+ - Life is infinitely stranger than anything which the mind of man could invent.
+ - It is not that I think or believe, but that I know.
+ - When the spirits are low, when the day appears dark, when work becomes monotonous, when hope hardly seems worth having, just mount a bicycle and go out for a spin down the road, without thought on anything but the ride you are taking.
+ - It is an old maxim of mine that when you have excluded the impossible, whatever remains, however improbable, must be the truth.
+ - The grand thing is to be able to reason backwards.
+ - To a great mind, nothing is little,? remarked Holmes, sententiously.
+ - Let me run over the principal steps. We approached the case, you remember, with an absolutely blank mind, which is always an advantage. We had formed no theories. We were simply there to observe and to draw inferences from our observations.
+ - If the fresh facts come to our knowledge all fit themselves into the scheme, then our hypothesis may gradually become a solution. Sherlock Holmes speaking with Dr. Watson.
+ - Desultory readers are seldom remarkable for the exactness of their learning.
+ - There is no scent so pleasant to my nostrils as that faint, subtle reek which comes from an ancient book.
+ - There are always some lunatics about. It would be a dull world without them.
+ - Life, it turns out, is infinitely more clever and adaptable than anyone had ever supposed.
+ - The game is afoot.
+ - The unexpected has happened so continually in my life that it has ceased to deserve the name.
+ - Depend upon it there comes a time when for every addition of knowledge you forget something that you knew before. It is of the highest importance, therefore, not to have useless facts elbowing out the useful ones.
+ - It is a great thing to start life with a small number of really good books which are your very own.
+ - I don’t speak for others and they don’t speak for me.
+ - There is nothing more deceptive than an obvious fact.
+ - The emotional qualities are antagonistic to clear reasoning.
+ - Eliminate all other factors, and the one which remains must be the truth.
+ - You know my methods. Apply them.
+ - The more we progress the more we tend to progress. We advance not in arithmetical but in geometrical progression. We draw compound interest on the whole capital of knowledge and virtue which has been accumulated since the dawning of time.
+ - His sanguine spirit turns every firefly into a star.
+ - Still, it is an error to argue in front of your data. You can find yourself insensibly twisting them round to suit your theories.
+ - I never can resist a touch of the dramatic.
+ - As a rule, the more bizarre a thing is, the less mysterious it proves to be.
+ - Anything seems commonplace, once explained.
+ - Skill is fine, and genius is splendid, but the right contacts are more valuable than either.
+ - Detection is, or ought to be, an exact science, and should be treated in the same cold and unemotional manner.
+ - What one man can invent, another can discover.
+ - It was all love on my side, and all good comradeship and friendship on hers. When we parted she was a free woman, but I could never again be a free man.
+ - I am the most incurably lazy devil that ever stood in shoe leather.
+ - It is stupidity rather than courage to refuse to recognize danger when it is close upon you.
+ - We can’t command our love, but we can our actions.
+ - The best way of successfully acting a part is to be it.
+ - There is nothing more to be said or to be done tonight, so hand me over my violin and let us try to forget for half an hour the miserable weather and the still more miserable ways of our fellowmen.
+ - Of all ghosts the ghosts of our old loves are the worst.
+ - Watson. Come at once if convenient. If inconvenient, come all the same.
+ - It is, of course, a trifle, but there is nothing so important as trifles.
+ - To let the brain work without sufficient material is like racing an engine. It racks itself to pieces.
+ - A man always finds it hard to realize that he may have finally lost a woman’s love, however badly he may have treated her.
+ - I am not the law, but I represent justice so far as my feeble powers go.
+ - Evil indeed is the man who has not one woman to mourn him.
+ - I know, my dear Watson, that you share my love of all that is bizarre and outside the conventions and humdrum routine of daily life.
+ - Healthy scepticism is the basis of all accurate observation.
+ - There’s a light in a woman’s eyes that speaks louder than words.
+ - No violence, gentlemen – no violence, I beg of you! Consider the furniture!
+ - Do you know anything on earth which has not a dangerous side if it is mishandled and exaggerated?
+ - It’s a wicked world, and when a clever man turns his brain to crime it is the worst of all.
+ - For strange effects and extraordinary combinations we must go to life itself, which is always far more daring than any effort of the imagination.
+ - Steel True, Blade Straight.
+ - I have wrought my simple plan If I give one hour of joy To the boy who’s half a man, Or the man who’s half a boy.
+ - It seems to leave the darkness rather blacker than before.
+ - There are heroisms all round us waiting to be done.
+ - Beyond the obvious facts that he has at some time done manual labour, that he takes snuff, that he is a Freemason, that he has been in China, and that he has done a considerable amount of writing lately, I can deduce nothing else.
+ - If you want to write good copy, you must be where the things are.
+ - Is there any point to which you would wish to draw my attention?? ‘To the curious incident of the dog in the night-time.’ ‘The dog did nothing in the night-time.’ ‘That was the curious incident,’ remarked Sherlock Holmes.
+ - It was an ideal spring day, a light blue sky, flecked with little fleecy white clouds drifting across from west to east. The sun was shining very brightly, and yet there was an exhilarating nip in the air, which set an edge to a man’s energy.
+ - I get in the dumps at times, and don’t open my mouth for days on end. You must not think I am sulky when I do that. Just let me alone, and I’ll soon be right.
+ - So all life is a great chain, the nature of which is known whenever we are shown a link of it.
+ - It is not my intention to be fulsome, but I confess that I covet your skull.
+ - You will ruin no more lives as you ruined mine. You will wring no more hearts as you wrung mine. I will free the world of a poisonous thing. Take that, you hound, and that! – and that! – and that! – and that!
+ - The most difficult crime to track is the one which is purposeless.
+ - Women are naturally secretive, and they like to do their own secreting.
+ - Come what may, I am bound to think that all things are ordered for the best; though when the good is a furlong off, and we with our beetle eyes can only see three inches, it takes some confidence in general principles to pull us through.
+ - I have seen too much not to know that the impression of a woman may be more valuable than the conclusion of an analytical reasoner.
+ - Indeed, I cannot think why the whole bed of the ocean is not one solid mass of oysters, so prolific the creatures seem. Ah, I am wandering! Strange how the brain controls the brain! What was I saying, Watson?
+ - A sandwich and a cup of coffee, and then off to violin-land, where all is sweetness and delicacy and harmony.
+ - What a lovely thing a rose is!
+ - Art in the blood is liable to take the strangest forms.
+ - What you do in this world is a matter of no consequence. The question is what can you make people believe you have done.
+ - When a doctor does go wrong he is the first of criminals. He has nerve and he has knowledge.
+ - But love is an emotional thing, and whatever is emotional is opposed to that true cold reason which I place above all things.
+ - Hot hate is twin brother to hot love.
+ - London, that great cesspool into which all the loungers and idlers of the Empire are irresistibly drained.
+ - You know my method. It is founded upon the observation of trifles.
+ - Violence recoils on the violent.
+ - Well, sir, let us do what we can to curtail this visit, which can hardly be agreeable to you, and is inexpressibly irksome to me.
+ - Several incidents in my life have convinced me of spiritual interposition – of the promptings of some beneficent force outside ourselves, which tries to help us where it can.
+ - I think you want a little unofficial help. Three undetected murders in one year won’t do, Lestrade. But you handled the Molesey Mystery with less than your usual – that’s to say, you handled it fairly well.
+ - Dogmas of every kind put assertion in the place of reason and give rise to more contention, bitterness, and want of charity than any other influence in human affairs.
+ - When you have eliminated the impossible, what is left, no matter how unlikely, is the truth.
+ - You have a grand gift for silence, Watson. It makes you quite invaluable as a companion.
+ - I have mastered the principles of several religions. They have all shocked me by the violence which I should have to do to my reason to accept the dogmas of any one of them.
+ - Now is the dramatic moment of fate, Watson, when you hear a step upon the stair which is walking into your life, and you know not whether for good or ill.
+ - Might I trouble you to open the window, for chloroform vapour does not help the palate.
+ - If my future were black, it was better surely to face it like a man than to attempt to brighten it by mere will-o’-the-wisps of the imagination.
+ - If in 100 years I am only known as the man who invented Sherlock Holmes then I will have considered my life a failure.
+ - Dogs don’t make mistakes.
+ - A man should keep his little brain attic stocked with all the furniture that he is likely to use, and the rest he can put away in the lumber-room of his library, where he can get it if he wants it.
+ - There is danger for him who taketh the tiger cub, and danger also for whoso snatches a delusion from a woman.
+ - Crime is common. Logic is rare. Therefore it is upon the logic rather than upon the crime that you should dwell.
+ - Depend upon it, there is nothing so unnatural as the commonplace.
+ - A study in scarlet, eh? Why shouldn’t we use a little art jargon? There’s the scarlet thread of murder running through the colourless skein of life, and our duty is to unravel it, and isolate it, and expose every inch of it.
+ - I trust that age doth not wither nor custom stale my infinite variety.
+ - You wish to put me in the dark. I tell you that I will never be put in the dark. You wish to beat me. I tell you that you will never beat me.
+ - There is a mystery about this which stimulates the imagination; where there is no imagination there is no horror.
+ - No man burdens his mind with small matters unless he has some very good reason for doing so.
+ - The highest morality may prove also to be the highest wisdom when the half-told story comes to be finished.
+ - When people bury treasure nowadays they do it in the Post-Office bank.
+ - You yourself may not be luminous, but you are a conductor of light.
+ - It is more than possible; it is probable.
+ - There are no fools so troublesome as those of the mind.
+ - You have been in Afghanistan I perceive.
+ - The chief proof of man’s real greatness lies in his perception of his own smallness.
+ - I am an omnivorous reader with a strangely retentive memory for trifles.
+ - I cannot live without brainwork. What else is there to live for.
+ - I am somewhat exhausted; I wonder how a battery feels when it pours electricity into a non-conductor?
+ - We balance probabilities and choose the most likely. It is the scientific use of the imagination.
+ - A dog reflects the family life. Whoever saw a frisky dog in a gloomy family, or a sad dog in a happy one? Snarling people have snarling dogs, dangerous people have dangerous ones.
+ - Critics kind never mind! Critics flatter no matter! Critics blame all the same! Do your best damn the rest!
+ - It is a fool’s plan to teach a man to be a cur in peace, and think that he will be a lion in war.
+ - The great bell of Beaulieu was ringing. Far away through the forest might be heard its musical clangor and swell.
+ - A client is to me a mere unit, a factor in a problem.
+ - Some people’s affability is more deadly than the violence of coarser souls.
+ - I do hate the City of London! It is the only thing which ever comes between us.
+ - Even the best of us are thrown off some- times.
+ - Three quiet days. This hell fiend is like a cat with a mouse. She lets me loose only to pounce upon me again. I am never so frightened as when every thing is still.
+ - The weak man becomes strong when he has nothing, for then only can he feel the wild, mad thrill of despair.
+ - It is quite a three pipe problem, and I beg that you won’t speak to me for fifty minutes.
+ - It may be that you are not yourself luminous, but that you are a conductor of light. Some people without possessing genius have a remarkable power of stimulating it.
+ - Of all ruins, that of a noble mind is the most deplorable.
+ - I love and am loved by a better man than he.
+ - You never tire of the moor. You cannot think the wonderful secrets which it contains. It is so vast, and so barren, and so mysterious.
+ - From a drop of water a logician could infer the possibility of an Atlantic or a Niagara without having seen or heard of one or the other.
+ - Brothers are a blessing for one thing. There is no possibility of any young lady getting unreasonably conceited if she be endowed with them.
+ - To all the world he was the man of violence, half animal and half demon; but to her he always remained the little wilful boy of her own girlhood, the child who had clung to her hand. Evil indeed is the man who has not one woman to mourn him.
+ - Violence does, in truth, recoil upon the violent, and the schemer falls into the pit which he digs for another.
+ - What can we know? What are we all? Poor silly half-brained things peering out at the infinite, with the aspirations of angels and the instinct of beasts.
+ - You mentioned your name as if I should recognize it, but beyond the obvious facts that you are a bachelor, a solicitor, a freemason, and an asthmatic, I know nothing whatever about you.
+ - The love of books is among the choicest gifts of the gods.
+ - Circumstantial evidence is occasionally very convincing, as when you find a trout in the milk, to quote Thoreau’s example.
+ - Nothing clears up a case so much as stating it to another person.
+ - One forms provisional theories and waits for time or fuller knowledge to explode them. A bad habit, Mr. Ferguson, but human nature is weak. Sherlock Holmes speaking with Dr. Watson.
+ - Amberley excelled at chess – a mark, Watson, of a scheming mind.
+ - I have my own views about Nature’s methods, though I feel that it is rather like a beetle giving his.
+ - Have you tried to drive a harpoon through a body? No? Tut, tut, my dear sir, you must really pay attention to these details.
+ - He burst into one of his rare fits of laughter as he turned away from the picture. I have not heard him laugh often, and it has always boded ill to somebody.
+ - So tomorrow we disappear into the unknown. This account I am transmitting down the river by canoe, and it may be our last word to those who are interested in our fate.
+ - We must look for consistency. Where there is a want of it we must suspect deception.
+ - It’s every man’s business to see justice done.
+ - So it was, my dear Watson, that at two o’clock today I found myself in my old armchair in my own old room, and only wishing that I could have seen my old friend Watson in the other chair which he has so often adorned. – Sherlock Holmes.
+ - Oh how I’ve missed you, Holmes.
+ - It is all in the way of professional experience. – Sherlock Holmes.
+ - The most winning woman I ever knew was hanged for poisoning three little children for their insurance-money, and the most repellent man of my acquaintance is a philanthropist who has spent nearly a quarter of a million upon the London poor.
+ - Before turning to those moral and mental aspects of the matter which present the greatest difficulties, let the inquirer begin by mastering more elementary problems.
+ - So complex is the human spirit that it can itself scarce discern the deep springs which impel it to action.
+ - The Press, Watson, is a most valuable institution, if you only know how to use it.
+ - We have much to hope from the flowers.
+ - There was a brisk northern wind, heavy and wet with the salt of the sea, and he felt, as he turned his face to it, fresh life and strength surging in his blood and bracing his limbs.
+ - I am not a very good man, Effie, but I think that I am a better one than you have given me credit for being.
+ - The good Watson had at that time deserted me for a wife, the only selfish action I can recall in our association. I was alone.
+ - The husband was a teetotaller, there was no other woman, and the conduct complained of was that he had drifted into the habit of winding up every meal by taking out his false teeth and hurling them at his wife.
+ - He foresaw that she would be very much more useful to him in the character of a free woman.
+ - It is, I admit, mere imagination; but how often is imagination the mother of truth?
+ - To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.
+ - I have taken to living by my wits.
+ - His neighbor is a tooth-drawer. That bag at his girdle is full of the teeth that he drew at Winchester fair. I warrant that there are more sound ones than sorry, for he is quick at his work and a trifle dim in the eye.
+ - My sister and I, you will recollect, were twins, and you know how subtle are the links which bind two souls which are so closely allied.
+ - And once again Mr. Sherlock Holmes is free to devote his life to examining those interesting little problems which the complexity of human life so pletifuly presents.
+ - Ah! my dear Watson, there we come into those realms of conjecture, where the most logical mind may be at fault. Sherlock Holmes speaking with Dr. Watson.
+ - I suppose I shall have to compound a felony, as usual. – Sherlock Holmes.
+ - Every man finds his limitations, Mr. Holmes, but at least it cures us of the weakness of self-satisfaction.
+ - The more featureless and commonplace a crime is, the more difficult it is to bring it home.
+ - The world is big enough for us. No ghosts need apply.
+ - There is but one step from the grotesque to the horrible.
+ - It is only goodness which gives extras, and so I say again that we have much to hope from the flowers.
+ - The Times is a paper which is seldom found in any hands but those of the highly educated.
+ - Just see how it glints and sparkles. Of course it is a nucleus and focus of crime. Every good stone is. They are the devil.
+ - It isn’t true that the laws of nature have been capriciously disturbed; that snakes have talked; that women have been turned into salt; that rods have brought water out of rocks.
+ - I am inclined to think -? said I. ‘I should do so,’ Sherlock Holmes remarked impatiently.
+ - If you had killed Watson, you would not have got out of this room alive.
+ - It is horrible, yet fascinating, this struggle between a set purpose and an utterly exhausted frame.
+ - That which is clearly known hath less terror than that which is but hinted at and guessed.
+ - I have heard, Mr. Holmes, that you can see deeply into the manifold wickedness of the human heart.
+ - Well, I’m a bacteriologist, you know. I live in a nine-hundred-diameter microscope. I can hardly claim to take serious notice of anything that I can see with my naked eye.
+ - The fair sex is your department.
+ - A fine horse or a beautiful woman, I cannot look at them unmoved, even now when seventy winters have chilled my blood.
+ - His ignorance was as remarkable as his knowledge.
+ - Jealousy is a strange transformer of characters.
+ - The larger crimes are apt to be the simpler, for the bigger the crime, the more obvious, as a rule, is the motive.
+ - You cannot see the lettuce and the dressing without suspecting a salad.
+ - Nature is the true revelation of the Deity to man. The nearest green field is the inspired page from which you may read all that it is needful for you to know.
+ - Draw your chair up, and hand me my violin, for the only problem which we have still to solve is how to while away these bleak autumnal evenings.
+ - I could not rest, Watson, I could not sit quiet in my chair, if I thought that such a man as Professor Moriarty were walking the streets of London unchallenged.
+ - I have already explained to you that what is out of the common is usually a guide rather than a hindrance.
+ - It is with nations as it is with individuals. A book of history is a book of sermons.
+ - We all learn by experience, and your lesson this time is that you should never lose sight of the alternative. Sherlock Holmes speaking with Dr. Watson.
+ - I feel that there is reason lurking in you somewhere, so we will patiently grope round for it.
+ - The lowest and vilest alleys of London do not present a more dreadful record of sin than does the smiling and beautiful countryside.
+ - Our ideas must be as broad as Nature if they are to interpret Nature.
+ - The ideal reasoner, he remarked, would, when he had once been shown a single fact in all its bearings, deduce from it not only all the chain of events which led up to it but also all the results which would follow from it.
+ - A study of family portraits is enough to convert a man to the theory of reincarnation.
+ - On general principles, it is best that I should not leave the country. Scotland Yard feels lonely without me, and it causes an unhealthy excitement among the criminal classes.
+ - As I turned away, I saw Holmes, with his back against a rock and his arms folded, gazing down at the rush of the waters. It was the last that I was ever destined to see of him in this world. – Watson.
+ - When you have one of the first brains of Europe up against you, and all the powers of darkness at his back, there are infinite possibilities.
+ - The devil’s agents may be of flesh and blood, may they not?
+ - It is quite a three-pipe problem.
+ - Let us hear the suspicions. I will look after the proofs.
+ - I think there are certain crimes which the law cannot touch, and which therefore, to some extent, justify private revenge.
+ - It is a pity he did not write in pencil. As you have no doubt frequently observed, the impression usually goes through – a fact which has dissolved many a happy marriage.
+ - Sir Walter, with his 61 years of life, although he never wrote a novel until he was over 40, had, fortunately for the world, a longer working career than most of his brethren.
+ - A trusty comrade is always of use; and a chronicler still more so.
+ - Streams may spring from one source and yet some may be clear and some be foul.
+ - The approach to the offices of Girdlestone and Co. was not a very dignified one, nor would the uninitiated who traversed it form any conception of the commercial prosperity of the firm in question.
+ - Keep your revolver near you night and day, and never relax your precautions.
+ - Was it hardness, was it selfishness, that she should ask me to risk my life for her own glorification? Such thoughts may come to middle age; but never to ardent three-and-twenty in the fever of his first love.
+ - A fine thought in fine language is a most precious jewel, and should not be hid away, but be exposed for use and ornament.
+ - My uncle, Mr. Stephen Maple, had been at the same time the most successful and the least respectable of our family, so that we hardly knew whether to take credit for his wealth or to feel ashamed of his position.
+ - Circumstantial evidence is a very tricky thing. It may seem to point very straight to one thing, but if you shift your own point of view a little, you may find it pointing in an equally uncompromising manner to something entirely different.
+ - He is not a bad fellow, though an absolute imbecile in his profession. He has one positive virtue. He is as brave as a bulldog and as tenacious as a lobster if he gets his claws upon anyone.
+ - Should I ever marry, Watson, I should hope to inspire my wife with some feeling which would prevent her from being walked off by a housekeeper when my corpse was lying within a few yards of her.
+ - No man lives or has ever lived who has brought the same amount of study and of natural talent to the detection of crime which I have done.
+ - Perhaps, when a man has special knowledge and special powers like my own, it rather encourages him to seek a complex explanation when a simpler one is at hand.
+ - It is the sweetest spring within the memory of man. So green, so mild, so beautiful! Ah, what a contrast between nature without and my own soul so torn with doubt and terror!
+ - The mighty voice of Canada will ever call to me.
+ - For the one and only time I caught a glimpse of a great heart as well as of a great brain.
+ - One must wait till it comes.
+ - I can never bring you to realize the importance of sleeves, the suggestiveness of thumb-nails, or the great issues that may hang from a boot-lace.
+ - Let me see. What are my other shortcomings?
+ - I should be very much obliged if you would slip your revolver into your pocket. An Eley’s No. 2 is an excellent argument with gentlemen who can twist steel pokers into knots. That and a tooth-brush are, I think, all that we need.
+ - As Cuvier could correctly describe a whole animal by the contemplation of a single bone, so the observer who has thoroughly understood one link in a series of incidents should be able to accurately state all the other ones, both before and after.
+ - Some facts should be suppressed, or, at least, a just sense of proportion should be observed in treating them.
+ - There seems to me to be absolutely no limit to the inanity and credulity of the human race. Homo Sapiens! Homo idioticus!
+ - It is fortunate for this community that I am not a criminal.
+ - Picnics are very dear to those who are in the first stage of the tender passion.
+ - To underestimate oneself is as much an exaggeration of one’s powers than the other.
+ - There are times, young fellah, when every one of us must make a stand for human right and justice, or you never feel clean again.
+ - There is a soul-jealousy that can be as frantic as any body-jealousy.
+ - It is a mistake to confound strangeness with mystery.
+ - The setting is a worthy one, if the devil did desire to have a hand in the affairs of men.
+ - He seems to have declared war on the King’s English as well as on the English king.
+ - The soul is swayed by the waters.
+ - There is no satisfaction in vengeance unless the offender has time to realize who it is that strikes him, and why retribution has come upon him.
+ - I followed you.? I saw no one.? That is what you may expect to see when I follow you.
+ - It has always seemed to me that so long as you produce your dramatic effect, accuracy of detail matters little. I have never striven for it and I have made some bad mistakes in consequence. What matter if I hold my readers?
+ - Once or twice in my career I feel that I have done more real harm by my discovery of the criminal than ever he had done by his crime. I have learned caution now, and I had rather play tricks with the law of England than with my own conscience.
+ - All other men are specialists, but his specialism is omniscience.
+ - How wise and how merciful is that provision of nature by which his earthly anchor is usually loosened by many little imperceptible tugs, until his consciousness has drifted out of its untenable earthly harbor into the great sea beyond!
+ - There are fifty who can reason synthetically for one who can reason analytically.
+ - To that Providence, my sons, I hereby commend you, and I counsel you by way of caution to forbear from crossing the moor in those dark hours when the powers of evil are exalted.
+ - It is hardly fair to blame America for the state of San Francisco, for its population is cosmopolitan and its seaport attracts the floating vice of the Pacific; but be the cause what it may, there is much room for spiritual betterment.
+ - I have frequently gained my first real insight into the character of parents by studying their children.
+ - When once your point of view is changed, the very thing which was so damning becomes a clue to the truth.
+ - One dumb-bell, Watson! Consider an athlete with one dumb-bell. Picture to yourself the unilateral development – the imminent danger of a spinal curvature. Shocking, Watson, shocking!
+ - The most dangerous condition for a man or a nation is when his intellectual side is more developed than his spiritual. Is that not exactly the condition of the world today?
+ - Why should people ever take credit for charity when they must know that they cannot gain as much pleasure out of their guineas in any other fashion?
+ - The goose we retained until this morning, when there were signs that, in spite of the slight frost, it would be well that it should be eaten without delay. Its finder has carried it off therefore to fulfil the ultimate destiny of a goose.
+ - It is of the highest importance in the art of detection to be able to recognise out of a number of facts which are incidental and which are vital.
+ - Violence is sometimes a duty.
+ - Great sorrow or great joy should bring intense hunger – not abstinence from food, as our novelists will have it.
+ - This looks like one of those unwelcome social summonses which call upon a man either to be bored or to lie.
+ - My life is spent in one long effort to escape from the commonplaces of existence. These little problems help me to do so.
+ - The Adventure of the Noble Bachelor.
+ - A man with so large a brain must have something in it.
+ - We surely know by some nameless instinct more about our futures than we think we know.
+ - The whole force of the State is at your back if you should need it. I’m afraid that all the queen’s horses and all the queen’s men cannot avail in this matter.
+ - My business is that of every other good citizen – to uphold the law.
+ - There was something awesome in the thought of the solitary mortal standing by the open window and summoning in from the gloom outside the spirits of the nether world.
+ - As a rule, said Holmes, the more bizarre a thing is the less mysterious it proves to be. It is your commonplace, featureless crimes which are really puzzling, just as a commonplace face is the most difficult to identify.
+ - It is the small men and not the great who hold their noses in the air.
+ - Man, or at least criminal man, has lost all enterprise and originality. As to my own little practice, it seems to be degenerating into an agency for recovering lost lead pencils and giving advice to young ladies from boarding-schools.
+ - I felt Holmes’s hand steal into mine and give me a reassuring shake. – Watson.
+ - The ways of fate are indeed hard to understand. If there is not some compensation hereafter, then the world is a cruel jest.
+ - Clouds of insects danced and buzzed in the golden autumn light, and the air was full of the piping of the song-birds. Long, glinting dragonflies shot across the path, or hung tremulous with gauzy wings and gleaming bodies.
+ - I fear that if the matter is beyond humanity, it is certainly beyond me.
+ - Holy Men! Holy Cabbages! Holy Bean Pods! What do they do but live and suck in sustenance and grow fat?
+
+288 quotes

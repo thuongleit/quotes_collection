@@ -1,0 +1,67 @@
+ - I know, too, that death is the only god who comes when you call.
+ - That’s life: trust and you’re betrayed; don’t trust and you betray yourself.
+ - Don’t wake me for the end of the world unless it has very good special effects.
+ - Death and Light are everywhere, always, and they begin, end, strive, attend, into and upon the Dream of the Nameless that is the world, burning words within Samsara, perhaps to create a thing of beauty.
+ - No word matters. But man forgets reality and remembers words.
+ - Life is full of doors that don’t open when you knock, equally spaced amid those that open when you don’t want them to.
+ - I would never rest until I held vengeance and the throne within my hand, and good night sweet prince to anybody who stood between me and these things.
+ - I like libraries. It makes me feel comfortable and secure to have walls of words, beautiful and wise, all around me. I always feel better when I can see that there is something to hold back the shadows.
+ - His followers called him Mahasamatman and said he was a god. He preferred to drop the Maha- and the -atman, however, and called himself Sam. He never claimed to be a god, but then he never claimed not to be a god.
+ - While I had often said that I wanted to die in bed, what I really meant was that in my old age I wanted to be stepped on by an elephant while making love.
+ - I watched the spinning stars, grateful, sad and proud, as only a man who has outlived his destiny and realizes he might yet forge himself another, can be.
+ - Love is a negative form of hatred.
+ - Good-bye and hello, as always.
+ - At the end of the season of sorrows comes the time of rejoicing. Spring, like a well-oiled clock, noiselessly indicates this time.
+ - The stars blazed like the love of God, cold and distant.
+ - Nobody steals books but your friends.
+ - I never plan ahead, with the exception of the Amber books which had to proceed in sequence. But I don’t really like to know what I’m going to be working on a year in advance. So I just sign blank contracts for books and whatever strikes me as a good idea is what I write about.
+ - Thus did I bear Sir Lancelot de Lac to the Keep of Ganleon, whom I trusted like a brother. That is to say, not at all.
+ - Go and copulate with yon purple lizard.
+ - The day of battle dawned pink as the fresh-bitten thigh of a maiden.
+ - It is no shame to lose to me, mortal. Even among mythical creatures there are very few who can give a unicorn a good game.
+ - I try to sit down at the typewriter four times a day, even if it’s only five minutes, and write three sentences.
+ - If I get enough letters saying you never explained this or that, I suppose I’ll have to write another book.
+ - To waste! You are unknown and unwanted, save by me. This, because you are fairly adept at the various embalming arts and you occasionally compose a clever epitaph.
+ - Any man would be forsworn to gain a kingdom.
+ - I don’t know that I ever wanted greatness, on its own. It seems rather like wanting to be an engineer, rather than wanting to design something – or wanting to be a writer, rather than wanting to write. It should be a by-product, not a thing in itself. Otherwise, it’s just an ego trip.
+ - The enemy of the moment is not as important as our own inner weakness. If this is not mended we are already defeated, though no foreign conqueror stands within our walls.
+ - I tried a very fancy attack I’d learned in France, which involved a beat, a feint in quarte, a feint in sixte, and a lunge veering off into an attack on his wrist. I nicked him, and the blood flowed.
+ - When inspiration is silent reason tires quickly.
+ - Of course it does not apply to me. I am the soul of honor, kindness, mercy and goodness. Trust me in all things.
+ - Sleep is perhaps the only among life’s great pleasures which need not be of short duration.
+ - The most difficult thing about Time, I have learned, is doing it.
+ - The universe did not invent justice. Man did. Unfortunately, man must reside in the universe.
+ - The function of criticism should not be confused with the function of reform.
+ - Even the most heartening of philosophical vistas is no match for, say, a toothache, if it happens to be your own.
+ - The absence of a monument can, in its own way, be something of a monument also.
+ - I saw my earlier selves as different people, acquaintances I had outgrown. I wondered how I could ever have been some of them.
+ - I’m a lost soul. We do wail.
+ - Death is the only limit to the road you travel.
+ - When you are about to die, a wombat is better than no company at all.
+ - Did you ever look back at some moment in your past and have it suddenly grow so vivid that all the intervening years seemed brief, dreamlike, impersonal – the motions of a May afternoon surrendered to routine?
+ - If a building is falling on you, you don’t concern yourself with the horn of an approaching car. You deal with the most immediate peril first. That’s survival.
+ - An army, great in space, may offer opposition in a brief span of time. One man, brief in space, must spread his opposition across a period of many years if he is to have a chance of succeeding.
+ - Time passed slowly, like and old man climbing a hill.
+ - My favorite form is the short story. From an aesthetics stand point you really have to pare down to the bone. You can’t write a throw-away scene.
+ - I enjoy slaughtering beasts, and I think of my relatives constantly.
+ - The dead are too much with us.
+ - It is a pain in the ass waiting around for someone to try to kill you.
+ - It would be nice if there were some one thing constant and unchanging in the universe. If there is such a thing, then it is a thing which would have to be stronger than love, and it is a thing which I do not know.
+ - Once a Buddha, always a Buddha.
+ - I have decided, it is fruitless. For I am no longer sure of anything concerning my existance. A philosopher is a dead poet and a dying theologian.
+ - Be warned, therefore, that one does not go to hell to light a cigarette.
+ - It is anticipation and recollection that fill the heart – never the sensation of the moment.
+ - Death is mighty, and is no one’s friend.
+ - Then you must reconcile yourself to the fact that something is always hurt by any change. If you do this, you will not be hurt yourself.
+ - The death of an illusion tends to disconcert.
+ - There’s no such thing as civilization. The word just means the art of living in cities.
+ - Between the black of yesterday and the white of tomorrow is the great gray of today.
+ - I see myself as a novelist, period. I mean, the material I work with is what is classified as science fiction and fantasy, and I really don’t think about these things when I’m writing. I’m just thinking about telling a story and developing my characters.
+ - If the liberal arts do nothing else they provide engaging metaphors for the thinking they displace.
+ - Two days like icebergs bleak, blank, half-melting, all frigid, mainly out of sight, and definitely a threat to peace of mind drifted by and were good to put behind.
+ - There are none of you, good doctors, could cope with my family anyway.
+ - I’ve always been impulsive. My thinking is usually pretty good, but I always seem to do it after I do my talking – by which time I’ve generally destroyed all basis for further conversation.
+ - I fail to see what difference it makes whether it be supernatural or not – so long as it is malefic, possesses great powers and life span and has the ability to change its shape at will.
+ - There’s really nothing quite like someone’s wanting you dead to make you want to go on living.
+
+65 quotes

@@ -1,0 +1,22 @@
+ - I am a Canadian, free to speak without fear, free to worship in my own way, free to stand for what I think right, free to oppose what I believe wrong, or free to choose those who shall govern my country. This heritage of freedom I pledge to uphold for myself and all mankind.
+ - I have one love – Canada; one purpose – Canada’s greatness; one aim – Canadian unity from the Atlantic to the Pacific.
+ - I am so excited about Canadians ruling the world.
+ - I was criticized for being too much concerned with the average Canadians. I can’t help that; I am one of them!
+ - That one never asks a question unless he knows the answer is basic to parliamentary questioning.
+ - I’ve got all of my enemies here in the Cabinet where I can keep an eye on them.
+ - In Pierre Trudeau, Canada has finally produced a Prime Minister worthy of assassination.
+ - What is the difference between a cactus and a conservative caucus? On a cactus, the pricks are on the outside.
+ - Everyone is against me – except the people!
+ - Parliament is more than procedure – it is the custodian of the nation’s freedom.
+ - I am not anti-American. But I am strongly pro-Canadian.
+ - You can’t stand up for Canada with a banana for a backbone.
+ - When you come to Parliament on your first day, you wonder how you ever got here. After that, you wonder how the other 263 members got here.
+ - There can be no dedication to Canada’s future without a knowledge of its past.
+ - One moment it’s a cathedral, at another time there is no words to describe it when it ceases, for short periods of time, to have any regard for the proprieties that constitute not only Parliament, but its tradition. I’ve seen it in all its greatness. I have inwardly wept over it when it is degraded.
+ - I have an intensive hatred for discrimination based on colour.
+ - I’ve lived history. I’ve made history, and I know I’ll have my place in history. That’s not egoism.
+ - I have always been a House of Commons man.
+ - I’m disturbed because the doctors tell me I’m as sound as a dollar.
+ - The Liberals are the flying saucers of politics. No one can make head nor tail of them and they never are seen twice in the same place.
+
+20 quotes

@@ -1,0 +1,52 @@
+ - Give a man a fish, and he will eat for a day. Give a man Twitter, and he will forget to eat and starve to death.
+ - If Mark Twain had had Twitter, he would have been amazing at it. But he probably wouldn’t have gotten around to writing Huckleberry Finn.
+ - Christmas is a baby shower that went totally overboard.
+ - Maybe this is crazy, but I think the right to own a gun is trumped by the right not to be shot by one.
+ - Maybe I’m a dreamer, but I wish mental health care was as easy to get as, say, a gun.
+ - Facebook’s new relationship status option: “No longer able to interact with actual people”
+ - Getting your news from Twitter is like asking a cat for directions.
+ - Thanks to Facebook, I never forget the birthdays of people I don’t really know.
+ - Xmas Trivia: Before it became a major shopping holiday, Christmas is believed to have had a “religious” meaning.
+ - It used to be that people could be painfully boring in private. Facebook changed all that.
+ - Thanks to the Internet, people we might have only suspected of being idiots can now give us ample evidence.
+ - Christmas sweaters are only acceptable as a cry for help.
+ - It would be nice to spend billions on schools and roads, but right now that money is desperately needed for political ads.
+ - You can return all the Christmas gifts you want, but you will never get back the time spent with your relatives.
+ - Welcome delegates to the 2012 Republican Convention! Remember to set your watches back 400 years.
+ - Cars will soon have the Internet on the dashboard. I worry that this will distract me from my texting.
+ - All Americans mourn the passing of the author of the Declaration of Independence, George Jefferson.
+ - On July 4 we celebrate government of the people, by the people, and for the people, or as they are now called, corporations.
+ - The only way to explain how some people dress for the airport is they think no one else will be there.
+ - If its platform is any guide, the Republican party is staunchly pro-life until you are actually born.
+ - To mark the hundredth anniversary of the Titanic, the Republicans have nominated Mitt Romney.
+ - Michele Bachmann says God made the earthquake and hurricane to punish us. Untrue – he made Michele Bachmann for that.
+ - Ann Romney: ‘The hardest part of being a stay at home mom was deciding which of our homes to stay at.’
+ - The baby Jesus was the last homeless person the Republicans liked.
+ - Let’s withdraw from Afghanistan and have the army invade America – that’s the only way we’ll get new schools and roads.
+ - A race between Perry and Christie would test whether Americans would rather be executed or eaten.
+ - Call me a dreamer, but I think it would be great if getting medical attention were as easy as getting a gun.
+ - Christmas never would have caught on if it had been called Celebrate a Little Jew’s Birthday.
+ - Let’s not let a few dumb things Mitt Romney said in private overshadow the many idiotic things he’s said in public.
+ - It only cost Mitt Romney $76.6 million to defeat a serial adulterer and a mental patient in a sweater vest.
+ - Other countries care for their mentally ill. Making them debate on TV is just cruel.
+ - Weirdly, the people complaining about the healthcare website not working after three weeks were quiet about the Iraq war not working after eight years.
+ - Now that we all agree contraception is a bad idea, let’s take a harder look at electricity and soap.
+ - As we go from Abraham Lincoln to Theodore Roosevelt to Mitt Romney, I now understand why the Republicans don’t believe in evolution.
+ - As popular as Christmas is, it would be even bigger if it had vampires.
+ - The only possible reason the Republicans have declared a war on women is they must think women have oil.
+ - The hardest thing about life is that every now and then you have to do things so you have something to tweet about.
+ - Remember, no matter how hard your life is right now, it would be worse if a song by Chicago was playing.
+ - White House political adviser Karl Rove was one of Robert Novak’s sources for the 2003 disclosure of a CIA operative’s identity, according to a story published today in “Duh” magazine.
+ - Next time someone says, ‘Where has big government ever gotten us?’ the correct answer is ‘Mars.’
+ - Every week Republicans are excited about a new candidate because the one they liked last week turned out to be a moron.
+ - US Airways made an $8 billion bid for Delta, including $4 billion in cash and $4 billion in lost luggage.
+ - Sarah Palin has decided not to run for President and go straight to the quitting part.
+ - I make the modest proposal that psychiatric care should be as easy to get as bullets at Wal-Mart.
+ - Congress is furious at the Secret Service for consorting with hookers, which has traditionally been Congress’s role.
+ - NHPrimary Trivia: The Republican candidates have not spoken to a black person since Herman Cain dropped out.
+ - We invaded Afghanistan to find bin Laden. We found him in Pakistan, and we’re still in Afghanistan. We need better GPS.
+ - Rick Perry is qualified to be President in the same way that Olive Garden is qualified to be Italy.
+ - John Edwards is a tragic case of a man who ran for President when he should have joined the Secret Service.
+ - Twitter is currently valued at $8 billion, or $1 for every hour it has wasted.
+
+50 quotes

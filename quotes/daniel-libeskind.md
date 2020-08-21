@@ -1,0 +1,32 @@
+ - I think to be creative you have to resist taking the easy path.
+ - Architecture is not based on concrete and steel, and the elements of the soil. It’s based on wonder.
+ - The official name of the project is ‘Jewish Museum’ but I have named it ‘Between the Lines’ because for me it is about two lines of thinking, organization and relationship. One is a straight line, but broken into many fragments, the other is a tortuous line, but continuing indefinitely.
+ - In a strange way, architecture is really an unfinished thing, because even though the building is finished, it takes on a new life. It becomes part of a new dynamic: how people will occupy it, use it, think about it.
+ - Cities are the greatest creations of humanity.
+ - Life it is not just a series of calculations and a sum total of statistics, it’s about experience, it’s about participation, it is something more complex and more interesting than what is obvious.
+ - To provide meaningful architecture is not to parody history, but to articulate it.
+ - And, yes, I love the process of building.
+ - Buffer between commercial, memorial and retail space.
+ - What is a habit? It’s just a shackle for ourselves.
+ - We often judge cities by great public buildings. But we admire great cities because people live there in a beautiful way. You have to think about how each person will live there; you can’t just think about abstract ideas.
+ - Architecture is not just for the moment, it is not just for the next fashion magazine.
+ - And you have to remember that I came to America as an immigrant. You know, on a ship, through the Statue of Liberty. And I saw that skyline, not just as a representation of steel and concrete and glass, but as really the substance of the American Dream.
+ - I’m not Candide, nor Dr Pangloss, but we know that faith moves mountains.
+ - There are more people living in Lower Manhattan now than before the terrorist attacks. That’s faith for you. There’s such a strong spirit here.
+ - Larry wanted us to reposition the tower. We wouldn’t, and won’t. He’s been holding back our fees. We want to get paid. And that’s it. It’ll get solved and we’ll carry on with planning Ground Zero.
+ - Only through acknowledgment of the erasure and void of Jewish life can the history of Berlin and Europe have a human future.
+ - When you’re a kid with artistic yearnings brought up in the Bronx, you don’t get fed up too easily.
+ - The Spiral Gallery may happen, too. It is not dependent on government funding.
+ - And of course I like Berlin a lot. It’s such an interesting city.
+ - I think there is a new awareness in this 21st century that design is as important to where and how we live as it is for museums, concert halls and civic buildings.
+ - Winning a competition in architecture is a ticket to oblivion. It’s just an idea. Ninety-nine per cent never get built.
+ - I don’t get to sleep when I’m in New York. Really. I’m living on adrenaline.
+ - There will be a competition for the memorial. And then it can be developed with trees, with planting. It can become a very beautiful place protected from the streets, because it is below. And it can be something very moving and very private.
+ - I studied architecture in New York. So, really I was very moved, like everyone else, to try to contribute something that has that resonance and profundity of it means to all of us.
+ - Well, I think one doesn’t really have to invent this memorial space, because it is already there. And it is speaking with a voice and, you know, 4 million of us came to see the site.
+ - And then, build a bustling wonderful city of the 21st century, with a restoration of a spectacular skyline, which Manhattan, of course, needs. So, that is really the design as a whole.
+ - And it is very moving because one has to see the site not as just another site of development but it is a very special site. It is a site that souls and hearts of all Americans.
+ - Call Berlin. Drop everything we’re doing. I have a complete vision of what should be.
+ - It’s about how to bring together the seemingly contradictory aspects of the memorial, which is about a tragedy and how it changed the world, but also about creating a vital and beautiful city of the 21st century.
+
+30 quotes

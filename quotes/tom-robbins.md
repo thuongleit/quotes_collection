@@ -1,0 +1,332 @@
+ - We waste time looking for the perfect lover, instead of creating the perfect love.
+ - When freedom is outlawed, only outlaws will be free.
+ - Our similarities bring us to a common ground; Our differences allow us to be fascinated by each other.
+ - The trick is this: keep your eye on the ball. Even when you can’t see the ball.
+ - If you take any activity, any art, any discipline, any skill-take it and push it as far as it will go, push it beyond where it has ever been before, push it to the wildest edges of edges, then you force it into the realm of magic.
+ - It’s never too late to have a happy childhood.
+ - There are two kinds of people in this world: Those who believe there are two kinds of people in this world and those who are smart enough to know better.
+ - Redheads are said to be children of the moon, thwarted by the sun and addicted to sex and sugar.
+ - All depression has its roots in self-pity, and all self-pity is rooted in people taking themselves too seriously.
+ - Breathe properly. Stay curious. And eat your beets.
+ - Disbelief in magic can force a poor soul into believing in government and business.
+ - Never be afraid to make a fool of yourself. The furthest out you can go is the best place to be.
+ - The trickster’s function is to break taboos, create mischief, stir things up. In the end, the trickster gives people what they really want, some sort of freedom.
+ - Curiosity, especially intellectual inquisitiveness, is what separates the truly alive from those who are merely going through the motions.
+ - People of ze wurl, relax!
+ - You’ve heard of people calling in sick. You may have called in sick a few times yourself. But have you ever thought about calling in well.
+ - Don’t confuse symmetry with balance.
+ - Minds were made for blowing.
+ - Politics is for people who have a passion for changing life but lack a passion for living it.
+ - Humanity has advanced, when it has advanced, not because it has been sober, responsible, and cautious, but because it has been playful, rebellious, and immature.
+ - It is what it is. You are what you it. There are no mistakes.
+ - The scientist keeps the romantic honest, and the romantic keeps the scientist human.
+ - The highest function of love is that it makes the loved one a unique and irreplacable being.
+ - The beauty of simplicity is the complexity it attracts.
+ - The female characters in my books tend to be independent, frisky, spunky, witty, emotionally strong, erotically daring, spiritually oriented and intellectually generous; in short, the kind of women I admire in real life.
+ - Somewhere in the archives of crudest instinct is recorded the truth that it is better to be endangered and free than captive and comfortable.
+ - All dreams continue in the beyond.
+ - We’re making it up. The world, the universe, life, reality. Especially reality.
+ - To achieve the impossible; it is precisely the unthinkable that must be thought.
+ - Never underestimate how much assistance, how much satisfaction, how much comfort, how much soul and transcendence there might be in a well-made taco and a cold bottle of beer.
+ - Religion is not merely the opium of the masses, it’s the cyanide.
+ - Our greatest human adventure is the evolution of consciousness. We are in this life to enlarge the soul, liberate the spirit, and light up the brain.
+ - Every day is Judgement Day. Always has been. Always will be.
+ - People tend the take everything too seriously. Especially themselves. Yep. And that’s probably what makes ’em scared and hurt so much of the time. Life is too serious to take that seriously.
+ - There’s birth, there’s death, and in between there’s maintenance.
+ - We’re our own dragons as well as our own heroes, and we have to rescue ourselves from ourselves.
+ - Something has got to hold it together. I’m saying my prayers to Elmer, the Greek god of glue.
+ - In the haunted house of life, art is the only stair that doesn’t creak.
+ - The universe does not have laws. It has habits. And habits can be broken.
+ - And what would our ideas of God, of religion, be like if they had come to us through the minds of women? Ever think of that?
+ - Equality is not in regarding different things similarly, equality is in regarding different things differently.
+ - Love is dope, not chicken soup.
+ - People are never perfect, but love can be.
+ - Normality is the Great Neurosis of civilization.
+ - Leave me in the night but please don’t leave me in the dark.
+ - Reality whistles a different tune underwater.
+ - Eating a raw oyster is like french kissing a mermaid.
+ - The only question is how to make love stay.
+ - Kissing is man’s greatest invention. All animals copulate, but only humans kiss.
+ - There are many things worth living for, a few things worth dying for, and nothing worth killing for.
+ - Death is simple. Life is messy. Give me life, the more complicated the better.
+ - You may tell the greatest lies and wear a brilliant disguise, but you can’t escape the eyes of the one who sees right through you.
+ - Employing women as my primary protagonists has allowed me to step outside of myself, to distance myself from my own personality, far more easily than were I to look at events from a masculine perspective.
+ - Slavic peoples get their physical characteristics from potatoes, their smoldering inquietude from radishes, their seriousness from beets.
+ - Human folly does not impede the turning of the stars.
+ - You are what you think you eat.
+ - Don’t be outraged, be outrageous.
+ - O tequila, savage water of sorcery, what confusion and mischief your sly, rebellious drops do generate.
+ - The Earth is God’s pinball machine and each quake, tidal wave, flash flood and volcanic eruption is the result of a TILT that occurs when God, cheating, tries to win free games.
+ - Success can eliminate as many options as failure.
+ - Should you fail to pilot your own ship, don’t be surprised at what inappropriate port you find yourself docked.
+ - This is the room of the wolfmother wallpaper.
+ - Love is the ultimate outlaw.
+ - There’s no point in saving the world if it means losing the moon.
+ - Heaven is living in your hopes and Hell is living in your fears. It’s up to each individual which one he chooses.
+ - Live the beauty or your own reality.
+ - Birth and death were easy. It was life that was hard.
+ - In order to be respected, authority has got to be respectable.
+ - When humans were young, they were pushed around in strollers. When they were old, they were pushed around in wheelchairs. In between, they were just pushed around.
+ - Why procrastinate when you can precognitate?
+ - In the beginning was the thing. And one thing led to another.
+ - It is better to be small, colorful, sexy, careless, and peaceful...
+ - The moon invented natural rhythm. Civilization uninvented it.
+ - You should never hesitate to trade your cow for a handful of magic beans.
+ - If complexity doesn’t beat you, paradox will.
+ - There are only two mantras, yum and yuck, mine is yum.
+ - Laughter is holier than piety, freedom is sweeter than fame, and in the end it’s love and love alone that really matters.
+ - The brown paper bag is the only thing civilized man has produced that does not seem out of place in nature.
+ - The enemy is the tyranny of the dull mind.
+ - I’ve sucked way too much cement for this year. Bad juju rising off them city sidewalks. I need to babble with a brook or two, inhale starlight, make friends with some trees.
+ - Meet me in Cognito, baby. In Cognito, we’ll have nothing to hide.
+ - Wit and playfulness represent a desperately serious transcendence of evil. Humor is both a form of wisdom and a means of survival.
+ - Outlaws are can openers in the supermarket of life.
+ - I rather like the smell of absurdity in the morning.
+ - I believe in nothing, everything is sacred. I believe in everything, nothing is sacred.
+ - A mediocre failure is as insufferable as a mediocre success. Embrace failure! Seek it out. Learn to love it. That may be the only way any of us will ever be free.
+ - I have always been a romantic, one of those people who believes that a woman in pink circus tights contains all the secrets of the universe.
+ - If you’re honest, you sooner or later have to confront your values. Then you’re forced to separate what is right from what is merely legal. This puts you metaphysically on the run. America is full of metaphysical outlaws.
+ - Philosophers have argued for centuries about how many angels can dance on the head of a pin, but materialists have known all along that it depends on whether they are jitterbugging or dancing cheek to cheek.
+ - As a child, I was an imaginary playmate.
+ - We all dream profusely every night, yet by morning we’ve forgotten ninety percent of what went on. That’s why poets are such important members of society. Poets remember our dreams for us.
+ - The only authority I respect is the one that causes butterflies to fly south in fall and north in springtime.
+ - Some marriages are made in heaven, Mine was made in Hong Kong, by the same people who make those little rubber pork chops they sell in the pet department at Kmart.
+ - I think science has begun to demonstrate that aging is a disease. If it is, it can be cured.
+ - The function of the artist is to provide what life does not.
+ - There’re many ways, my dear, to victimize people. The most insidious way is to persuade them that they’re victims.
+ - When I sit down to write, I just let the goose out of the bottle.
+ - Never be afraid to love, not even when there’s a chance you’re not being loved in return.
+ - Those who shun the whimsy of things will experience rigor mortis before death.
+ - The most useful thing about art is it’s uselessness.
+ - The beet is the most intense of vegetables.
+ - Hawaii made the mouth of her soul water.
+ - Who knows how to make love stay? Tell love you are going to the Junior’s Deli on Flatbush Avenue in Brooklyn to pick up a cheesecake, and if love stays, it can have half.
+ - And who ever said the world was fair, little lady? Maybe death is fair, but certainly not life. We must accept the unfairness as proof of the sublime flux of existence, the capricious music of the universe- and go on about our tasks.
+ - Be your own flying saucer! Rescue yourself!
+ - Amnesia is not knowing who one is and wanting desperately to find out. Euphoria is not knowing who one is and not caring. Ecstasy is knowing exactly who one is – and still not caring.
+ - Unhappiness is the ultimate form of self-indulgence.
+ - When life demands more of people than they demand of life – as is ordinarily the case – what results is a resentment of life almost as deep-seated as the fear of death.
+ - Life is too small a container for certain individuals. Some of them, such as Alobar, huff and puff and try to expand the container. Others, such as Kudra, seek to pry the lid off and hop out.
+ - Dip a slice of bread in batter. That’s September: yellow, gold, soft and sticky. Fry the bread. Now you have October: chewier, drier, streaked with browns. The day in question fell somewhere in the middle of the french toast process.
+ - When they tell you to grow up, they mean stop growing.
+ - They glared at her the way any intelligent persons ought to glare when what they need is a smoke, a bite, a cup of coffee, a piece of ass, or a good fast-paced story, and all they’re getting is philosophy.
+ - Our purpose is to consciously, deliberately evolve towards a wiser, more liberated and luminous state of being.
+ - The first time that she spread her legs for him it had been like opening her jaws for the dentist.
+ - Of the seven deadly sins, lust is definitely the pick of the litter.
+ - One has not only an ability to perceive the world but an ability to alter one’s perception of it; more simply, one can change things by the manner in which one looks at them.
+ - The trouble with the fast lane is that all the movement is horizontal. And I like to go vertical sometimes.
+ - Approfondement is a French word that means ‘playing easily in the deep.’
+ - The sky was the color of Edgar Allan Poe’s pajamas.
+ - There is only one serious question. And that is: Who knows how to make love stay? Answer me that and I will tell you whether or not to kill yourself.
+ - Just because you’re naked doesn’t mean you’re sexy. Just because you’re cynical doesn’t mean you’re cool.
+ - I sweet potato what I sweet potato.
+ - There is a comfort in conformity, a security in control, that is appealing. There is a thrill in domination, and we are all secretly attracted to violence.
+ - Eighty percent of love is smell.
+ - To some extent, Seattle remains a frontier metropolis, a place where people can experiment with their lives, and change and grow and make things happen.
+ - Sharks are the criminals of the sea. Dolphins are the outlaws.
+ - As any car freak will tell you, the old models are the most beautiful, even if they aren’t the most efficient. People who sacrifice beauty for efficiency get what they deserve.
+ - Any half-awake materialist well knows – that which you hold holds you.
+ - Once, in a spasm of sappiness, you asked Q-Jo if she thought your dreams would ever come true. ‘You aren’t talking about dreams,’ she corrected you, ’you’re referring to your pathetic bourgeoisie ambitions. Dreams don’t come true. Dreams are true.
+ - Things. Cosas. Things attach themselves like leeches to the human soul, then they bleed out the sweetness and the music and the primordial joy of being unencumbered upon the land.
+ - The full moon – the mandala of the sky.
+ - If you want to make a name for yourself, the oldest trick in the book is to attack what everybody else reveres.
+ - Plato did claim that the unexamined life was not worth living. Oedipus Rex was not so sure.
+ - Funny how we think of romance as always involving two, when the romance of solitude can be ever so much more delicious and intense.
+ - When we accept small wonders, we qualify ourselves to imagine great wonders.
+ - In the end what will prevail is your passion not your tale, for love is the Holy Grail.
+ - Does koala bear poop smell like cough drops?
+ - Using words to describe magic is like using a screwdriver to cut roast beef.
+ - Conservatives understand Halloween, liberals only understand Christmas. If you want to control a population, don’t give it social services, give it a scary adversary.
+ - Dreams don’t come true. Dreams are true.
+ - From the outside, my life may look chaotic, but inside I feel like some kind of monk licking an ice cream cone while straddling a runaway horse.
+ - Hard times and funky living can season the soul, true enough, but joy is the yeast that makes it rise.
+ - There is no such thing as a weird human being, It’s just that some people require more understanding than others.
+ - The mission of the artist in an over-technologi zed society, is to call the old magic back to life.
+ - Love easily confuses us because it is always in flux between illusion and substance, between memory and wish, between contentment and need.
+ - The ultimate end of any ideology is totalitarianism.
+ - To emphasize the afterlife is to deny life. To concentrate on heaven is to create hell.
+ - The first thunderstorm of the season was in the dressing room, donning its black robes and its necklace of hailstones, strapping on its electrical sword.
+ - Brilliantly, ecstatically, irrepressibly. This is the way to burn.
+ - Some praise me, some blame me. I go the other way. Sometimes those things that attract the most attention to us are the things which afford us the greatest privacy.
+ - We only rise above mediocrity when there’s something at stake. p. 174.
+ - Don’t trust anybody who’d rather be grammatically correct than have a good time.
+ - Violence stinks no matter which side of it you’re on. But now and then there’s nothing left to do but hit the other person over the head with a frying pan.
+ - There is a similarity between juggling and composing on the typewriter. The trick is, when you spill something, make it look like a part of the act.
+ - If love eats the donut, does time eat the hole?
+ - Always compare yourself to the best. Even if you never measure up, it can’t help but make you better.
+ - Me? I stand for uncertainty, insecurity, bad taste, fun, and things that go boom in the night.
+ - This is the room where Jezebel frescoed her eyelids with history’s tragic glitter.
+ - You don’t have to be a genius to recognize one. If you did, Einstein would never have gotten invited to the White House.
+ - Madame Lily Devalier always asked “Where are you?” in a way that insinuated that there were only two places on earth one could be: New Orleans and somewhere ridiculous.
+ - There are people in this world who can wear whale masks and people who cannot, and the wise know to which group they belong.
+ - Death is impatient and thoughtless. It barges into your room when you are right in the middle of something, and it doesn’t bother to wipe its boots.
+ - In fiction, when you paint yourself into a corner, you can write a pair of suction cups onto the bottoms of your shoes and walk up the wall and out the skylight and see the sun breaking through the clouds. In nonfiction, you don’t have that luxury.
+ - Cant you understand that romanticism is no more an enemy of science than mysticism is? In fact, romanticism and science are good for each other. The scientist keeps the romantic honest and the romantic keeps the scientist human.
+ - Maybe most people were fundamentally contradictory. The real people at any rate.
+ - Though February lay about her shoulders like a cloak of lead.
+ - If it is committed in the name of God or country, there is no crime so heinous that the public will not forgive it.
+ - Political activism is seductive because it seems to offer the possibility that one can improve society, make things better, without going through the personal ordeal of rearranging one’s perceptions and transforming one’s self.
+ - All a person can do in this life is gather about him his integrity, his imagination, and his individuality – and with these ever with him, out front and in sharp focus, leap into the dance of experience.
+ - It was autumn, the springtime of death.
+ - I do not know why the dead do not come back to life. Perhaps death is so wonderful, in ways we cannot comprehend, that they prefer it over and above their friends and loved ones, although I am inclined to doubt that be the case.
+ - In Seattle, I soon found that my radical ideas and aesthetic explorations – ideas and explorations that in Richmond, Virginia, might have gotten me stoned to death with hush puppies – were not only accepted but occasionally applauded.
+ - There is a sense in which a painted stick is a stick in bloom. This stick points to the hidden face of God. Sometimes it points to you.
+ - A hamburger is an icon of layered circles, the circle being at once the most spiritual and the most sensual of shapes.
+ - When I go to the shore, I take along the poems of Pablo Neruda. I suppose it’s because the poems are simultaneously lush and ripe and kind of lazy, yet throbbing with life – like summer itself.
+ - Early religions were like muddy ponds with lots of foliage. Concealed there, the fish of the soul could splash and feed. Eventually, however, religions became aquariums. Then hatcheries. From farm fingerling to frozen fish stick is a short swim.
+ - Of the Seven Dwarfs, the only one who shaved was Dopey. That should tell us something about the wisdom of shaving.
+ - Outlaws, like lovers, poets, and tubercular composers who cough blood onto piano keys, do their finest work in the slippery rays of the moon.
+ - Transformation, liberation and celebration are the themes of all my novels.
+ - To an artist a metaphor is as real as a dollar.
+ - True stability results when presumed order and presumed disorder are balanced.
+ - When we can converse with the animals, we will know the change is halfway here. When we can converse with the forest, we will know the change has come.
+ - Don’t talk about it – you’ll talk it away. Let the ideas flow from your mind to the page without exposing them to air. Especially hot air.
+ - Are you aware that rushing toward a goal is a sublimated death wish? It’s no coincidence we call them ’deadlines.
+ - Nobody quite knew what to make of the moon any more.
+ - If you were Jesus with missing years to kill where would you go?
+ - Should one be shallow enough to view existence as a system of rewards and punishments, one soon learns that we pay as dearly for our triumphs as we do for our defeats.
+ - At the typewriter you find out who you are.
+ - Purpose! Purposes are for animals with a hell of a lot more dignity than the human race! Just hop on that strange torpedo and ride it to wherever it’s going.
+ - There are essential and inessential insanities. The later are solar in character, the former are linked to the moon.
+ - Louisiana in September was like an obscene phone call from nature. The air – moist, sultry, secretive, and far from fresh – felt as if it were being exhaled into one’s face. Sometimes it even sounded like heavy breathing.
+ - They fell asleep smiling. It is to erase the fixed smiles of sleeping couples that Satan trained roosters to crow at five in the morning.
+ - People aren’t trees, so it is false when they speak of roots.
+ - Western civilization was declining too fast for comfort, but too slowly to be very exciting.
+ - Listen, I’ve been sick ever since I started working here, but today I’m well and I won’t be in anymore.
+ - Consider the silent repose of the sausage as compared to the aggressiveness of bacon.
+ - Of course I’m inconsistent! Only logicians and cretins are consistent!
+ - Actually, there are countless ways to live upon this tremorous sphere in mirth and good health, and probably only one way – the industrial, urbanized, herding way – to live here stupidly, and man has hit upon that one way.
+ - Fire is the reuniting of matter with oxygen. If one bears that in mind, every blaze may be seen as a reunion, an occasion of chemical joy.
+ - Those people who recognise that imagination is reality’s master, we call sages, and those who act upon it, we call artists.
+ - One of my books is a hallucinogen, an aphrodisiac, a mood elevator, an intellectual garage door opener, and a metaphysical trash compactor. They’ll do everything except rotate your tires.
+ - Life is hard if you think it’s hard.
+ - Hold on to your divine blush, your innate rosy magic, or end up brown. Once you’re brown, you’ll find out you’re blue. As blue as indigo. And you know what that means. Indigo. Indigoing. Indigone.
+ - When we accept bad art because it’s good politics, we’re killing the swan to feed the chickens.
+ - Anyone who maintains absolute standards of good and evil is dangerous. As dangerous as a maniac with a loaded revolver.
+ - And it rained a screaming. And it rained a rawness. And it rained a plasma. And it rained a disorder.
+ - Zippers are primal and modern at the very same time. On the one hand, your zipper is primitive and reptilian, on the other, mechanical and slick. A zipper is where the Industrial Revolution meets the Cobra Cult.
+ - You knows dat in New Orleans is not morning ’til dee sun come up.
+ - I work with pen and paper. That’s my favorite way to write. I love the way the ink sinks into the wood, soaks into the wood pulp. There’s something about that process that’s so organic.
+ - Survival is not important. What matters is how you survive.
+ - First I think I was interested in the stories, and later on, I became more interested in the language itself, so the stories became almost secondary, but it was kind of a background music for my life.
+ - Love is very powerful, but it has limits and it’s a costly mistake to spread it too thin.
+ - Love is the ultimate outlaw. It just won’t adhere to any rules. The most any of us can do is sign on as its accomplice.
+ - This did not annoy Amanda for it had long been her theory that human beings were invented by water as a device for transporting itself from one place to another.
+ - I like travelers, but I don’t like tourists. The difference is that travelers don’t shop and they don’t play golf.
+ - America is a nation of 270 million people: 100 million of them are gangsters, another 100 million are hustlers, 50 million are complete lunatics, and every single one of us is secretly in show business. Isn’t that fabulous?
+ - I am cheerful. I don’t know if I’m happy. There is a difference, you know.
+ - Toys are made in heaven, batteries are made in hell.
+ - Magic things are fond of deceptions.
+ - The price of self-destiny is never cheap, and in certain situations it is unthinkable. But to achieve the marvelous, it is precisely the unthinkable that must be thought.
+ - Leave it to a naive world-saver like you to view our love as a Sacred Cause when in actual fact all it was was some barking at the moon.
+ - What mattered to Abu was the music of the sentence. ‘A shadow does not belong to the object that casts it.’ To Abu, it was a little poem. And in general, it was the poetics, the music of things that tossed his confetti.
+ - He was becoming unstuck, he was sure of that – his bones were no longer wrapped in flesh but in clouds of dust, in hummingbirds, dragonflies, and luminous moths – but so perfect was his equilibrium that he felt no fear. He was vast, he was many, he was dynamic, he was eternal.
+ - He who jokes in the executioners face can be destroyed, but never defeated.
+ - The more advertising I see, the less I want to buy.
+ - The party in Alobar’s head, which agitation and anxiety were throwing, now was crashed by a notion: existence can be rearranged.
+ - The winter passed as slowly and peacefully as a boa constrictor digesting a valium addict.
+ - Solace? That’s why God made fermented beverages and the blues.
+ - At birth, we emerge from dream soup. At death, we sink back into dream soup. In between soups, there is a crossing of dry land. Life is a portage.
+ - My life is not merely a public phenomenon, it is a solitary adventure as well.
+ - Some folks hide, and some folks seek, and seeking, when it’s mindless, neurotic, desperate, or pusillanimous can be a form of hiding.
+ - Intimacy is the principal source of the sugars which this life is sweetened!
+ - Cries for help are frequently inaudible.
+ - One tended to lose one’s bearings in the presence of willful and persistent acts of craziness, and the more gentle the act, the crazier it seemed, as if rage and violence, being closer to the norm, were easier to accommodate.
+ - I don’t want to give the impression that I hold daily conversations with my household appliances, although my toaster is as old as Drew Barrymore and almost as talented.
+ - The enemy is every expert who practices technocratic manipulation, the enemy is every proponent of standardization and the enemy is every victim who is so dull and lazy and weak as to allow himself to be manipulated and standardized.
+ - Our world isn’t made of earth, air and water or even molecules and atoms; our world is made of language.
+ - You are an ignorant schoolgirl. You think civilization is a good thing.
+ - Now that I’m in love, I haven’t a clue. Now that I’m in love, I’m completely stupid on the subject.
+ - I like to think of myself as a fiction writer who liked art enough to write about it for a while, and then went on to his fiction.
+ - I went to a large consolidated school in Appalachia. And I wrote the story when I was in the second grade and I took it up to the third floor to the school newspaper office that was written and edited by juniors and seniors.
+ - A lot of aspiring writers are all ready to write a novel, but they don’t know how to write sentences.
+ - To live fully, one must be free, but to be free one must give up security. Therefore, to live one must be ready to die. How’s that for a paradox?
+ - Life’s an offensive proposition from beginning to end. Maybe those who can’t tolerate offense ought to just go ahead and end it all, and maybe those who demand financial compensation for offense ought to have it ended for them.
+ - Life is like a stew, you have to stir it frequently, or all the scum rises to the top.
+ - This may be said for the last quarter of the twentieth century: the truism that if we want a better world we will have to be better people came to be acknowledge, if not thoroughly understood, by a significantly large minority.
+ - Religions lead us to believe that the soul is the ultimate family jewel and that in return for our mindless obedience, they can secure it for us in their vaults, or at least insure it against fire and theft. They are mistaken.
+ - Society had a crime problem. It hired cops to attack crime. Now society has a cop problem.
+ - Whatever goes wrong can be used to your advantage, providing it goes wrong enough.
+ - My faith is whatever makes me feel good about being alive. If your religion doesn’t make you feel good to be alive, what the hell is the point of it?
+ - Self-esteem is for sissies. Accept that you’re a pimple and try to keep a lively sense of humor about it. That way lies grace – and maybe even glory.
+ - The Middle Ages hangs over history’s belt like a beer belly. It is too late now for aerobic dancing or cottage cheese lunches to reduce the Middle Ages. History will have to wear size 48 shorts forever.
+ - It is better to be small, colorful, sexy, careless, and peaceful, like the flowers, than large, conservative, repressed, fearful, and aggressive, like the thunder lizards; a lesson, by the way, that the Earth has yet to learn.
+ - What an electric heater perched upon the rim of the bathtub of the world that dead Jesus was.
+ - Certainly that sputterless little candleflame of the mediocre mind known as ‘common sense’ has never produced anything worth celebrating.
+ - Most Americans pay lip service to the idea of freedom, but can’t handle real freedom.
+ - You know a trillion times more about art than me. But I’ve learned that it isn’t necessary to know all that much. You just make what you wanna see, right? It’s a game, right? It’s like being paid for dreaming.
+ - His voice wore no pants.
+ - I have never ever Googled myself, in fact I think the Christian right prohibits such things.
+ - Usually, autobiography is such an indulgence of the ego.
+ - We use so much bad language that it forms a barrier between ourselves and the truth.
+ - Get yourself in that extreme state of being next to madness. You should always write with an erection. Even if you’re a woman.
+ - I never outline. I don’t work from an outline. I have no idea where the book is going. I mean, even two-thirds of the way through, I don’t know how it’s going to end.
+ - I journey to the east, where I have been told, there are men who have taught death some manners.
+ - Being able to create your own work, being able to indulge your own fantasies is so much better than journalism, so much more fulfilling than journalism, to me, that as long as I can continue to write fiction, I shall.
+ - I’m probably more interested in sentences than anything else in life.
+ - The loony legacy of money was that the arithmetic by which things were measured had become more valuable than the things themselves.
+ - On their sofas of spice and feathers, the concubines also slept fretfully. In those days the Earth was still flat, and people dreamed often of falling over edges.
+ - It is more important to be free than to be happy.
+ - How can you admire a human who consciously embraces the bland, the mediocre, and the safe rather than risk the suffering that disappointment can bring?
+ - Reality is contradictory. And it’s paradoxical.
+ - Whether a man is a criminal or a public servant is purely a matter of perspective.
+ - As expected, you get his machine. Someday, even the “call of nature” will be answered by a machine.
+ - Alone, the world offers itself freely to us. To be unmasked, it has no choice.
+ - What I’ve learned along the way is that existence is cosmic theatre, but paradoxically, we should play our roles to the absolute best of our ability while having the wisdom not to take them too seriously.
+ - If by the quarter of the twentieth century godliness wasn’t next to something more interesting than cleanliness, it might be time to reevaluate our notions of godliness.
+ - What difference does it make if the Gospel is mostly a lie? It’s an engrossing story and the words of its hero are excellent words to live by, even today.
+ - Sometimes one gets the feeling that life still thinks it’s living in Paris in the ’30s.
+ - Above all, have a good time. If you aren’t enjoying writing it, you can hardly expect someone else to enjoy reading it.
+ - I mean that gods do not limit men. Men limit men.
+ - We are seldom as limited as we think we are.
+ - A spirit cannot soar with only one wing.
+ - A lot of my work comes from what in Asia is called the ‘mind of wonder.’ There is not a lot of ‘mind of wonder’ writing in contemporary Western literature. I think that’s what appeals to the readers who are my fans.
+ - It’s hard to say who’s a greater threat to the world, an ambitious CEO with a big ad budget or a crafty cleric with an obsolete Bible verse.
+ - I started writing when I was 5 years old. I would dictate stories to my mother, and she would copy them in a scrapbook. If she changed anything to make it, in her opinion, better, I would throw a tantrum.
+ - Maybe what I admired most about John Steinbeck is that he never mortgaged his 45-acre heart for a suite in an ivory tower.
+ - Well, there’s one thing to be said for money. It can make you rich.
+ - The only bubble in the flat champagne of February is Valentine’s Day. It was no accident that our ancestors pinned Valentine’s Day on February’s shirt: he or she lucky enough to have a lover in frigid, antsy February has cause for celebration, indeed.
+ - More immediately, by waxing soulful you will have granted yourself the possibility of ecstatic participation in what the ancients considered a divinely animated universe. And on a day to day basis, folks, it doesn’t get any better than that.
+ - You have to eat your technique. Digest it. It’s in your blood, but you’re not concerned with it anymore.
+ - Every individual has to assume responsibility for his or her own actions, even the poor and the young. A social system that decrees otherwise is inviting intellectual atrophy and spiritual stagnation.
+ - We approach the divine by enlarging our souls and lighting up our brains.
+ - But why diminish your soul being run-of-the-mill at something? Mediocrity: now there is ugliness for you. Mediocrity’s a hairball coughed up on the Persian carpet of Creation.
+ - Words on a page can hypnotize you if the rhythm is right.
+ - If little else, the brain is an educational toy.
+ - The human race has always defined itself through narration. That isn’t going to change just because we’ve gone electronic. What is changing is that now we’re allowing corporations to tell our stories for us.
+ - Most novelists write about twisted lives.
+ - A child’s mind is its living room; it’s is going to be residing there for the rest of its earthly existence.
+ - You know what the game of golf is, don’t you? It’s basketball for people who can’t jump and chess for people who can’t think.
+ - To be or not to be isn’t the question. The question is how to prolong being.
+ - She needed help, but God was in a meeting whenever she rang.
+ - Jackson Pollock said once, “I don’t really feel that many people in this world are alive.” He said, “That’s why I like you, Tom. You’re alive.”
+ - My paintings are very strange – large and empty, like walls. Just the opposite of my writing, which is rich and juicy.
+ - In the end, perhaps we should simply imagine a joke; a long joke that’s continually retold in an accent too thick and strange to ever be completely understood. Life is that joke my friends. The soul is the punch line.
+ - The very act of creation requires such focused concentration that vast areas of knowledge may be completely overlooked. Well, so what? There is no evidence that generalized skills are in any way superior to specialized brilliance.
+ - People write memoirs because they lack the imagination to make things up.
+ - Ultimately, the roast turkey must be regarded as a monument to Boomer’s love.
+ - If the novelist isn’t surprised by where his book ends up, he or she probably hasn’t written anything worth remembering.
+ - Salvador Dali and fifty cents will get you a cup of clock melt.
+ - Once one pays some attention to something, then you begin to see evidence of it everywhere.
+ - The Japanese have become so smitten with the Western condiment – its texture as silky as a kimono, its tang as understated as the tang of Zen – that today they have a word for mayonnaise junkie: mayora.
+ - But do we know how to make love stay?? I can’t even think about it. The best I can do is play it day by day.
+ - The gods have chosen to entertain me with chronic eyestrain headaches. Very poisonous episodes. So I don’t do a lot of reading anymore except on tape.
+ - A thing is good because it is good, not because it is natural. A thing is bad because it is bad, not because its artificial. It is not a damn iota better to be bitten by a rattlesnake than shot by a gun.
+ - Those same forces that drive a genius to create the things or ideas that entertain or enlighten us often gobble so much of his personality that he has none left for the social graces.
+ - Gods and men create one another, destroy one another, though by different means.
+ - What we have here is an unexpected touchdown on the runway of the heart.
+ - I am looking for the novelists whose writing is an extension of their intellect rather than an extension of their neurosis.
+ - It’s personal freedom, not hundred dollar bills that lights the soul’s cigar.
+ - She continued weeping until the heat of her tear water, the sheer velocity of its flow, finally obscured the already vague circumstances of its origins.
+ - Much scientific truth proved to be as hypothetical as poetic allegory. The relationshiip of those rod-connected blue and red balls to an actual atomic structure was about the same as the relationship of Christianity to the fish or the Lamb.
+ - You wonder if God doesn’t have an answering machine to screen out the prayers of the venal and the boring? And in which category has he placed you?
+ - Christianity is merely a system for turning priestesses into handmaidens, queens into concubines, and goddesses into muses.
+ - There are stories still in existence that I wrote when I was five. However, I did not get published until I was seven.
+ - I would only read the novels that people classify as ‘beach books’ if I were being held prisoner and the only alternative was the ‘Book of Mormon.’
+ - Writing a novel is not so much a project as a journey, a voyage, an adventure.
+ - Summer had come to sit on New York’s face.
+ - John Irving once told me he doesn’t start a novel until he knows the last sentence. I said, ‘My God, Irving, isn’t that like working in a factory?’
+ - Teachers who offer you the ultimate answers do not possess the ultimate answers, for if they did, they would know that the ultimate answers cannot be given, they can only be received.
+ - There exists a false aristocracy based on family name, property, and inherited wealth. But there likewise exists a true aristocracy based on intelligence, talent and virtue.
+
+330 quotes

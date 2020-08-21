@@ -1,0 +1,23 @@
+ - One man can change the world with a bullet in the right place.
+ - The most dangerous people are always clever, compelling, and charismatic.
+ - The definition of insanity in Texas is so insane that it’s impossible to be insane in Texas.
+ - Once you commit to something, you’ve got to commit the whole way. Try and make the best of it.
+ - Real greatness comes from that sort of spontaneity of the moment that takes it into another level. That can never be planned; it happens or it doesn’t. And you can’t force it.
+ - I like to razz the Trekkies a little bit. Who doesn’t? It’s trainspotting, isn’t it? But they are very well-meaning, actually. I’ve done a couple of Star Trek conventions, and they’ve only been really welcoming.
+ - The thing is, I’ve never been a handsome leading-man type, so let’s not kid ourselves.
+ - If you look a little punkish, then they’re going to give you the parts. And if you play an iconic villain early on in your career, you tend to get asked to play one over and over and over again.
+ - I think we’re all a little afraid of the dark. If you lived in the country, as I did, there’s nothing quite like country dark, which was really black. And as a child, your imagination runs wild.
+ - I’d love to do radio plays. I think that one should be open to everything and shouldn’t limit oneself.
+ - The great thing about Burgess’s work is the dichotomy of making the hero or anti-hero an immoral man. And that’s what makes it interesting. Because, you know, you are sucked into kind of like this guy.
+ - I am a professional actor and I don’t go about moralizing about what the character does. Otherwise, seriously, why be an actor? You’re not making some kind of social statement. That’s not what actors do. They may inadvertently do it, but it’s because of the script, not the acting.
+ - I particularly love theater, I just love a challenge, and always have, and will do anything to make it interesting. I’ll try anything, really, as long as it’s a challenge and you can have some fun doing it.
+ - An actor cannot be a censor. I’m there to interpret.
+ - I love doing every role I do!
+ - The most nurturing of directors can make you feel too comfortable, and you don’t really push for that extra whatever.
+ - My favorite actor who played villains – who could play anything, really – was Jimmy Cagney.
+ - Different directors offer you different things, and it’s not necessarily the most obvious things.
+ - You know, I’ve had an incredible career and I’m blessed.
+ - Let’s not get too precious about it: actors are not heart surgeons or brain surgeons. We are just entertaining people.
+ - There are no great scripts – just great films.
+
+21 quotes

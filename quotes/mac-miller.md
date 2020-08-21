@@ -1,0 +1,54 @@
+ - No matter where life takes me. Find me with a smile.
+ - Enjoy the best things in your life cuz you ain’t gonna get to live it twice.
+ - Stand by those who stand by you.
+ - People change and things go wrong but just remember life goes on.
+ - When you feel sad, it’s okay. It’s not the end of the world. Everyone has those days when you doubt yourself, and when you feel like everything you do sucks, but then there’s those days when you feel like Superman. It’s just the balance of the world. I just write to feel better.
+ - No matter where life takes me, you’ll find me with a smile. Presumed to be happy, always laughing like a child. I never thought life could be this sweet! It’s got me cheesing from cheek to cheek!
+ - If you didn’t make mistakes you wouldn’t get far.
+ - You could have the world in the palm of your hand, but it don’t mean a thing ’til you change it.
+ - Sometimes it’s hard to pick right from wrong. The best thing we can do is go with our heart and hope it all goes well.
+ - I’ma do my thing until the day the reaper come for me. You can keep on grillin’, I’ma smile back.
+ - I never thought life would be this sweet, It got me cheesing from cheek to cheek.
+ - They’re gonna try to tell you no, shatter all your dreams. But you gotta get up and go and think of better things.
+ - It’s hard to dream when you’re deep inside of one.
+ - They say you waste time asleep, but I’m just trying to dream.
+ - Music is what I love, take that away from me and I really got nothing.
+ - In the quest to be a man, you start to learn you need your family. If it wasn’t for them, I’d be way closer to insanity.
+ - I be goofy, kinda funny. Acting stupid but they love me.
+ - I’m addicted to something at all times. Like, it’s always music, but maybe sometimes it’s a pair of pants or something else. That’s just how my personality works.
+ - My ideology was, if I just make very happy music, very happy music, then people will forget about whatever their problems are. I will forget about my problems.
+ - I like tattoos. I’m gonna be covered. I’m not going to touch my face or under the chin on the neck: it’s my least favorite place.
+ - They told me never fall in love, It never works out in your favor. You way too young and right now that’s just human nature.
+ - Blessed with some success, so I’mma try my best to live my life right. When I see God, he’ll be impressed.
+ - I flood the Internet with what I think is quality content. That’s why I did things like giving out a song every 100,000 Twitter followers because I am just looking for ways to get my fans to hear all this music without over saturating things.
+ - I got problems, can’t sleep at night. Cause your girl wanna come around and freak all night.
+ - Watching Dawson’s creek ’til I fall asleep. It’s harder than it seems.
+ - I was never just a ‘fill in 16 bars on a beat’ rapper. I was making real songs from the jump.
+ - I could take a photo, but I’d rather paint a picture.
+ - I’m 21 years old and I think that I’ve got a lot of perspective in life.
+ - Sometimes I see the world for how f-ked up it really is. I tell myself I’ll be the one to make a change in it. I could die tonight; not make it to the sunrise, then I couldn’t hear the pain in it.
+ - If I had a Salvador Dali painting, I would cuddle it to sleep.
+ - If life a joke then I’m waiting for the punch. You all about the beef but me, I’m bout the bun.
+ - You can be labelled but if it doesn’t speak to people then it won’t work. The social media and online has been really important. Fans are really smart too: they don’t want to hear something manufactured or something that has too much marketing behind it.
+ - I ain’t no hipster, but girl I can make your hips stir.
+ - With ‘Blue Slide Park’ I wanted to have a number one album, and I did do it, so I’m not mad at it, but that was its goal.
+ - We were just drinking some joint juice earlier.
+ - The whole background of ‘Avian’ is rain. I was just playing with textures and realizing you can touch music.
+ - I just like to sing for people who have lost love.
+ - Radio’s a scary thing for me. It’s dope to be on there.
+ - I always thought I’d look corny in the type of rap video in the club with girls and all that type of stuff. I just didn’t think I could really pull that off. We always think it’s more fun and better just to go outside the box and to use our videos to show cool concepts.
+ - I’ve been listening to the old school hip-hop stuff and rock like The Beatles and the Rolling Stones.
+ - I used to just think about what my fans wanted all the time. But it just started feeling weird to me. I want to just show everyone who I am and stick to my vision. I have to trust myself.
+ - Every single person in my life and every relationship I have is distant because all I do is music.
+ - It seems I’m getting fresher everytime I turn around.
+ - When I was a kid, hip-hop had that effect on me, it was escape and it showed me a different way of life.
+ - I don’t want to limit myself as an artist and only do a certain sound.
+ - People don’t really give me much anymore, and for good reason. I have to pay for a lot of stuff now, I can afford a lot more than I ever could before. No one really gives me anything anymore, but it feels good.
+ - I think that with the Internet, it has given a lot of people the opportunity to get themselves out there to the masses. But it’s easy to group everyone that’s on the Internet together. I try to cross and jump around between genres and different styles, kind of find my own niche.
+ - I’m gonna make music, and I’m gonna capture every aspect of being a human being. That’s really all I’m trying to do. I think that artists and pop culture identities are used to simplify what it means to be a human and pigeon-hole people into looking up to one role model.
+ - If you’re an artist who’s built on marketing and hype then most likely I won’t listen to you.
+ - Treat it like your last night. Even if you broke, spend tonight like your cash right.
+ - At first you’re doing it for yourself, it’s about what sounds good to you. It’s about expressing yourself. Then you get comfortable as an artist and you find yourself and people get familiar.
+ - I’ve been playing a guitar since I was 10 years old.
+
+52 quotes

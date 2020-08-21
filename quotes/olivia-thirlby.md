@@ -1,0 +1,28 @@
+ - My hobbies include maintaining my physical and mental health. It’s a full-time job. Yoga definitely helps for both of them. I’m a big fan of relaxing and not having a schedule. That’s my best way to keep from going crazy.
+ - I don’t believe that if I came out as bisexual the world will change. But it’s really important for people to be truthful about who they are and fight for equality. We need to help the world usher itself into the next phase.
+ - I’ve always wanted to be an action heroine. That’s a chick dream, getting to wear a leather bodysuit and be blonde and kick ass.
+ - I think we all suffer from acute blindness at times. Life is a constant journey of trying to open your eyes. I’m just beginning my journey, and my eyes aren’t fully open yet.
+ - I am always plagued with ‘I’m not skinny enough, I’m not in shape.’ I am not naturally this super-svelte kind of girl. I’m okay with that in my personal life. But it is kind of hard at times. I feel inadequate, I suppose?
+ - Any filmmaking, any film is a collaborative process. There’s always a lot of people working on things together.
+ - The difference between film and theater is that in film, an actor is sort of under a magnifying glass and everything that they do, just the smallest movement, is very detectible.
+ - I’m such a homebody. I don’t party. I don’t drink. That may be because I got it out all out of my system before I was 18.
+ - My hair had been dyed blonde for ‘Dredd.’ After ‘Dredd,’ I was really fried because of the blonde hair dye, and so I cut it into a bob with bangs and that’s how it was during ‘Being Flynn.’
+ - I feel like it’s always about embracing what it is that you think is wrong with you. It’s often times your greatest ‘flaw’ which actually forays into what is also your greatest strength.
+ - Oh, I love making independent films, it’s such a special, magical thing because you collaborate with a small group of people and everyone’s pitching in. You’ll see producers setting up the lunch table and the sound guy driving a van. We’re all really there because we want to be.
+ - I’m not an eye-candy kind of girl.
+ - There’s so much with my character in ‘Dredd’ that I identify with. She’s my favorite character I think I’ve ever played. She’s the most dynamic and fascinating woman that I could even imagine playing, so I love her. What I love about her is that her sensitivity is her greatest strength.
+ - When I was starting out, I always wanted to be able to do everything – comedy and drama and action, and everything in between. Film is so diverse, and it’s fun to be able to take advantage of all of it.
+ - I love to cook. My dad’s a really excellent cook and his style is: Look in the fridge and make whatever there is with whatever ingredients you have and I like cooking like that, too.
+ - I think 3D can be an incredible thing on a movie and a terrible thing for a movie, depending on what kind of movie it is. And I’ve seen movies where I thought the 3D really enhanced the experience, and sometimes where I thought it just detracted from it.
+ - I go where the material is, and I feel like I’m looking for really strong directors. That’s the key ingredient. There are some directors I would move the sun and earth for, or stop the rotation of the planets, just to work with them.
+ - The older I get and the longer I live in New York City, the more I have the desire to go elsewhere and be surrounded by nature.
+ - I didn’t have an incredibly active social life as a teenager. I always wished it was a little bit more exciting than it was.
+ - Acting is something that I always wanted, but I never paid attention to the notion that it might actually work out. You have all sorts of ideas about what you want to do – at one stage, I wanted to be a jockey – but this is the one that’s a big deal.
+ - But I loved doing the physical stuff for ‘Dredd.’ I have to give a shout-out to the stunt team that I worked with.
+ - I had this totally impossible dream of being an actress. Trust me, just because I’m lucky enough to be doing this doesn’t make any of this less of a pipe dream. And nothing gets my juices flowing like a really great performance. To see someone on stage, I get really excited.
+ - I still audition a lot and work really hard to get work. So I don’t really walk around feeling like I’ve made it. My short term goals are really just to be creatively stimulated and to be excited about material I might be working on.
+ - I can say I love working with women. Film is a man’s world, and I really appreciate the opportunity to collaborate with women, especially young women.
+ - There’s very little you’re not exposed to in New York City, in terms of ideas and physical things – sights, sounds, smells, different kinds of people. But one good thing about growing up fast is you get over it fast, too.
+ - I trained in Shakespeare, and that’s all comedy, even when it’s tragedy.
+
+26 quotes

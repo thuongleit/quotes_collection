@@ -1,0 +1,36 @@
+ - The secret to happiness is to find a congenial monotony.
+ - When it was dark, you always carried the sun in your hand for me.
+ - There’s nothing so passionate as a vested interest disguised as an intellectual conviction.
+ - Politics – I don’t know why, but they seem to have a tendency to separate us, to keep us from one another, while nature is always and ever making efforts to bring us together.
+ - A man should always be drunk, Minnie, when he talks politics – it’s the only way in which to make them important.
+ - You cannot put a rope around the neck of an idea: you can not put an idea up against a barracks-square wall and riddle it with bullets: you cannot confine it in the strongest prison cell that your slaves could ever build.
+ - That’s the Irish all over – they treat a joke as a serious thing and a serious thing as a joke.
+ - Laughter is wine for the soul – laughter soft, or loud and deep, tinged through with seriousness – the hilarious declaration made by man that life is worth living.
+ - I have found life an enjoyable, enchanting, active, and sometime terrifying experience, and I’ve enjoyed it completely. A lament in one ear, maybe, but always a song in the other.
+ - All the world’s a stage and most of us are desperately unrehearsed.
+ - Laughter tends to mock the pompous and the pretentious; all man’s boastful gadding about, all his pretty pomps, his hoary customs, his wornout creeds, changing the glitter of them into the dullest hue of lead.
+ - What time has been wasted during man’s destiny in the struggle to decide what man’s next world will be like! The keener the effort to find out, the less he knew about the present one he lived in.
+ - A waste land lit by holy candles.
+ - A lament in one ear, maybe, but always a song in the other.
+ - Jesus, Buddha, Mohammed, great as each may be, their highest comfort given to the sorrowful is a cordial introduction into another’s woe. Sorrow’s the great community in which all men born of woman are members at one time or another.
+ - Politics has slain its thousands, but religion has slain its tens of thousands.
+ - Nothing seems too high or low for the humorist; he is above honor, above faith, preserving sense in religion and sanity in life.
+ - Work! labor the asparagus me of life; the one great sacrament of humanity from which all other things flow – security, leisure, joy, art, literature, even divinity itself.
+ - It’s my rule never to lose me temper till it would be detrimental to keep it.
+ - A laugh is the loud echo of a sigh; a sigh the faint echo of a laugh.
+ - Money does not make you happy but it quiets the nerves.
+ - Wealth often takes away chances from men as well as poverty. There is none to tell the rich to go on striving, for a rich man makes the law that hallows and hollows his own life.
+ - The artist’s life is to be where life is, active life, found in neither ivory tower nor concrete shelter; he must be out listening to everything, looking at everything, and thinking it all out afterward.
+ - So let us all who pray ask for what most of them need badly, a sense of humor to lighten their way through life, making it merrier for themselves and easier for others.
+ - When I stepped from hard manual work to writing, I just stepped from one kind of hard work to another.
+ - The military mind is indeed a menace. Old-fashioned futurity that sees only men fighting and dying in smoke and fire; hears nothing more civilized than a cannonade; scents nothing but the stink of battle-wounds and blood.
+ - Oh Lord, give us a sense of humor with courage to manifest it forth, so that we may laugh to shame the pomps, the vanities, the sense of self-importance of the Big Fellows that the world sometimes sends among us, and who try to take our peace away.
+ - There’s no reason to bring religion into it. I think we ought to have as great a regard for religion as we can, so as to keep it out of as many things as possible.
+ - Here, with whitened hair, desires failing, strength ebbing out of him, with the sun gone down and with only the serenity and the calm warning of the evening star left to him, he drank to Life, to all it had been, to what it was, to what it would be. Hurrah!
+ - Isn’t all religions curious? If they weren’t you wouldn’t get anyone to believe them.
+ - To me life is simply an invitation to live.
+ - If England has any dignity left in the way of literature, she will forget for ever the pitiful antics of English Literature’s performing flea.
+ - Here we have bishops, priests, and deacons, a Censorship Board, vigilant librarians, confraternities and sodalities, Duce Maria, Legions of Mary, Knights of this Christian order and Knights of that one, all surrounding the sinner’s free will in an embattled circle.
+ - We couldn’t live without comedy.
+
+34 quotes

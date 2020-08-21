@@ -1,0 +1,59 @@
+ - I enjoy being a highly overpaid actor.
+ - Rowing is a simple sport stuffed up by experts.
+ - There is nothing glamorous about death.
+ - My acting range? Left eyebrow raised, right eyebrow raised.
+ - You can either grow old gracefully or begrudgingly. I chose both.
+ - My acting range has always been something between the two extremes of ‘raises left eyebrow’ and ‘raises right eyebrow.’
+ - Of course I do my own stunts. And I also do my own lying.
+ - No, I’m not at all adventurous. I’m terribly cowardly.
+ - I used to work for a living. Then I became an actor.
+ - Some are blessed with musical ability, others with good looks. Myself, I was blessed with modesty.
+ - The saddest sight these days is the image of hundreds of thousands of children kidnapped and lured into being child soldiers from the age of eight.
+ - I’m the fourth best James Bond.
+ - We all have a responsibility in life to do what we can to help those less fortunate.
+ - Movies such as this remind us that Owen Wilson is nothing less than a national treasure.
+ - I do not have time to sit down and regret anything although sometimes I wish I had been able to see more of my parents while they were alive and have done more for them.
+ - If you don’t have humour, then you may as well nail the coffin lid down now.
+ - Teach love, generosity, good manners and some of that will drift from the classroom to the home and who knows, the children will be educating the parents.
+ - It’s no good being the best actor in the world if nobody sees you because you didn’t happen to be there at the right day when a part was being cast.
+ - I am a mixture of idealist and realist.
+ - It’s easy to sit in relative luxury and peace and pontificate on the subject of the Third World debts.
+ - I nearly died of double bronchial pneumonia at the age of five.
+ - I never liked guns, I hate them, I always blink before they go off.
+ - Kristina has been to the Maldives but never to Venice, and I have been to Venice but never to the Maldives.
+ - Working with UNICEF made me grow up and recognize how fortunate I am.
+ - I don’t like bungee jumping, but I do like skiing.
+ - My father believed in toughness, honesty, politeness and being on time. All very important lessons.
+ - It’s wonderful to travel with somebody that you love and we never travel anywhere without one another.
+ - Maybe come to think about it, that is the sign of an extrovert, in any event I have always from the earliest of ages found it difficult to wander into a restaurant on my own.
+ - Creating a character on or off the stage is an escape.
+ - I loved my mother and father.
+ - I’m not in this business to win a popularity contest, I just want to be a good actor. Well, you’ve failed at being a good actor. Why not try for the popularity contest?
+ - Whenever I’m asked who my favourite co-star is, I always hesitate in giving an answer.
+ - Of course I do not regret the Bond days, I regret that sadly heroes in general are depicted with guns in their hands, and to tell the truth I have always hated guns and what they represent.
+ - I must admit that I was in total awe of Stewart Granger. He was my idol.
+ - Bond was escapism, but not meant to be imitated in real life.
+ - The wonderful thing about age is that your knees don’t work as well, you can’t run down steps quite as easily and obviously you can’t lift heavy weights. But your mind doesn’t feel any different.
+ - I have to be an optimist and say that it might get better.
+ - Over the next two years UNICEF will focus on improving access to and the quality of education to provide children who have dropped out of school or who work during school hours the opportunity to gain a formal education!
+ - Go out there and thrill me.
+ - We also have favourite place in France, called Charlot Premier in Nice, which does excellent oysters.
+ - I don’t think I’ve ever made any good financial decisions.
+ - A lot of my reading over the next few months will be the works of Hans Christian Andersen – I have been appointed an ambassador for the bicentenary celebrations of his birth next year.
+ - To be associated with success is absolutely wonderful.
+ - I would love to be remembered as one of the greatest Lears or Hamlets.
+ - When I started 70 odd years ago I was told that to be a success you’ve got to have talent, personality and luck. I’ve had 99.9 percent luck and the other miniscule percentage would be having had the luck to have a little bit of talent, being able to stand upright and that’s it. It’s all luc.
+ - I didn’t learn the alphabet until I was 11.
+ - It’s very tempting to over-eat all the bad things when you’re on a film set.
+ - Tony and I had a good on and off screen relationship, we are two very different people, but we did share a sense of humor, we now live in different parts of the world but when we find ourselves in the same place it is more or less as if there had been no years in between.
+ - Not only am I a spender, I have had a couple of business people in the past who have been spending my money quite happily.
+ - I believe it is better to be prepared for illness than to wait for a cure.
+ - I think arriving at or departing from any airport in America is just horrendous these days.
+ - We all have our dreams.
+ - I’ve learnt that through life you just get on with it. You’re going to meet a lot of dishonest people along the line and you say good luck to them. I hope they live in comfort. Then I start sticking more pins in their effigies.
+ - I was born in London, so going there is always a treat.
+ - The fact of the matter is that most actors are shy people.
+ - Of course I am frustrated with regard to extreme poverty, to violence that never seems to cease.
+ - I speak relatively little, except when I’m at home and I’m asking for things.
+
+57 quotes

@@ -1,0 +1,25 @@
+ - My paintings are only the ashes of my art.
+ - At first there is nothing, then there is a profound nothingness, after that a blue profundity.
+ - I had proof that I had five senses, that I knew how to get myself to function! And then I lost my childhood...
+ - To feel the soul without explaining it, without vocabulary, and to represent this sensation.
+ - Judo has helped me to understand that pictorial space is above all the product of spiritual exercises. Judo is, in fact, the discovery by the human body of a spiritual space.
+ - Pure, existential space was regularly winking at me, each time in a more impressive manner, and this sensation of total freedom attracted me so powerfully that I painted some monochrome surfaces just to ‘see,’ to ‘see’ with my own eyes what existential sensibility granted me: absolute freedom!
+ - Hours of preparation for something that is excecuted, with extreme precision, in a few minutes. Just as with a judo throw.
+ - Every phenomenon manifests itself of its own accord. This manifestation is always distinct from form, and is the essence of the immediate, the trace of the immediate.
+ - I did not like the nothing, and it is thus that I met the empty, the deep empty, the depth of the blue.
+ - Blue has no dimensions, it is beyond dimensions.
+ - The imagination is the vehicle of sensibility. Transported by the imagination, we attain life, life itself, which is absolute art.
+ - As I lay stretched upon the beach of Nice, I began to feel hatred for birds which flew back and forth across my blue sky, cloudless sky, because they tried to bore holes in my greatest and most beautiful work.
+ - I have written my name on the far side of the sky.
+ - Blue suggests the sea and sky, and they, after all, are in actual, visible nature what is most abstract.
+ - I am against the line and all its consequences: contours, forms, composition. All paintings of whatever sort, figurative or abstract, seem to me like prison windows in which the lines, precisely are the bars.
+ - I made the flames lick the surface of the painting in such a way that is recorded the spontaneous traces of the fire. But what is it that provokes in me this pursuit of the impression of fire? Why must I search for its traces?
+ - Color is sensibility in material form, matter in its primordial state.
+ - Color is enslaved by line, that becomes writing.
+ - For me, each nuance of a color is in some way an individual, a being who is from the same race as the base color, but who definitely possesses a distinct character and personal soul.
+ - I arrived on earth in 1928. Born into a milieu of painters, I acquired my taste for painting with my mother’s milk.
+ - My monochrome pictures are not my definite works, but the preparation for my works. They are the leftovers from the creative processes, the ashes. My pictures, after all, are only the title-deeds to my property which I have to produce when I am asked to prove that I am a proprietor.
+ - I want to take as the canvas for my next picture the entire surface of France.
+ - The dominant invades the entire picture, as it were. In this way I seek to individualize the color, because I have come to believe that there is a living world of each color and I express these worlds.
+
+23 quotes

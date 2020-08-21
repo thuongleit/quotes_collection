@@ -1,0 +1,37 @@
+ - Always look on the bright side of life.
+ - We are no longer the knights who say Ni! We are now the knights who say ekki-ekki-ekki-pitang-zoom-boing!
+ - Are you suggesting coconuts migrate?
+ - Nobody expects the Spanish Inquisition...
+ - We come from nothing, we are going back to nothing-In the end what have we lost? Nothing!
+ - I hope I will have achieved something lasting.
+ - I don’t want to talk to you no more, you empty headed animal food trough wiper. I fart in your general direction. Your mother was a hamster and your father smelt of elderberries.
+ - I fart in your general direction.
+ - A murderer is only an extroverted suicide.
+ - You see, I don’t belive that libraries should be drab places where people sit in silence, that has been the main reason for our policy of employing wild animals as librarians.
+ - Listen, strange women lying in ponds distributing swords is no basis for a system of government.
+ - At that time, a friend shall lose his friend’s hammer, and the young shall not know where lieth the things possessed by their fathers that their fathers put there only just the night before...
+ - Camelot is a silly place.
+ - My philosophy, like color television, is all there in black and white.
+ - No one expects the Spanish Inquisition! Our chief weapon is surprise, fear and surprise; two chief weapons, fear, surprise, and ruthless efficiency! Er, among our chief weapons are: fear, surprise, ruthless efficiency, and near fanatical devotion to the Pope! Um, I’ll come in again...
+ - One thing for sure – a sheep is not a creature of the air.
+ - When Beethoven went deaf, the mynah bird just used to mime.
+ - Kilimanjaro is a pretty tricky climb you know, most of it’s up until you reach the very very top, and then it tends to slope away rather sharply.
+ - There is no cannibalism in the British navy, absolutely none, and when I say none, I mean there is a certain amount.
+ - Oh Lord please don’t burn us don’t kill or toast your flock. Don’t put us on the barbecue or simmer us in stock. Don’t bake or baste or boil us or stir-fry us in a wok.
+ - I mean, if I went ’round saying I was an emperor, just because some moistened bint had lobbed a scimitar at me, they’d put me away!
+ - In 1945, peace broke out. It was the end of the Joke. Joke warfare was banned at a special session of the Geneva Convention, and in 1950 the last remaining copy of the joke was laid to rest here in the Berkshire countryside, never to be told again.
+ - Exploding is a perfectly normal medical phenomenon.
+ - Oh, you’re in television! That’s interesting. No, I mean, the word television is interesting. It’s a hybrid, you see: tele- comes from the greek, and -vision comes from the latin. It should have been either “telerama”, or “procolvision”.
+ - When danger reared its ugly head, He bravely turned his tail and fled.
+ - Health care does not worry me a great deal. I’ve been impressed by some wonderful old people.
+ - All ideas come about through some sort of observation. It sparks an attitude; some object or emotion causes a reaction in the other person.
+ - It’s nice to see that look of alarm on the faces of the others.
+ - Stormy in love, stormy in interviews, breakfast in bed – that’s me, love.
+ - You know, there are many people in the country today who, through no fault of their own, are sane. Some of them were born sane. Some of them became sane later in their lives.
+ - I’m afraid I’m not personally qualified to confuse cats.
+ - Nudge, nudge, wink, wink. Know what I mean?
+ - Death can really absorb a person. Lik most people, I would find it pleasant not to have to go, but you just accept that it’s more or less inevitable.
+ - McGough: I’m sorry. I’m afraid I’ve caught poetry. Mr Bones: Oh really? Well, don’t worry, sir – I used to suffer from short stories. McGough: Really? When? Mr Bones: Oh, once upon a time...
+ - We don’t deliberately set out to offend. Unless we feel it’s justified.
+
+35 quotes

@@ -1,0 +1,28 @@
+ - Goodbye, my love, my life. Goodbye, goodbye.
+ - When one man says, “No, I won’t,” Rome begins to fear.
+ - If I were dead and buried And I heard your voice, Beneath the sod My heart of dust Would still rejoice.
+ - Nothing is bigger than life. There’s nothing noble in death. What’s noble about never seeing the sunshine again? What’s noble about having your legs and arms blown off? What’s noble about being an idiot? What’s noble about being blind and deaf and dumb? What’s noble about being dead?
+ - There’s a game out there, and the stakes are high. And the guy who runs it figures the averages all day long and all night long. Once in a while he lets you steal a pot. But if you stay in the game long enough, you’ve got to lose. And once you’ve lost there’s no way back, no way at all.
+ - A man doesn’t say I will starve myself to death to keep from starving, or that he’d spend all of his money to save money. Why should he be willing to die for the privilege of living?
+ - You show me a politician with his heels ten feet in the air, and by Judas priest, Ill show you an honest politician.
+ - Numbers have dehumanized us. Over breakfast coffee we read of 40,000 American dead in Vietnam. Instead of vomiting, we reach for the toast. Our morning rush through crowded streets is not to cry murder but to hit that trough before somebody else gobbles our share.
+ - Now I lay me down to sleep my bomb proof cellar’s good and deep but if i’m killed before I wake remember god it’s for your sake amen.
+ - An animal can learn to fight, but to sing beautiful things and make people believe them...
+ - I never considered the working class anything other than something to get out of.
+ - The chief internal enemies of any state are those public officials who betray the trust imposed upon them by the people.
+ - The only kind of love worth having is the kind that goes on living and laughing and fighting and loving.
+ - Dishonesty in government is the business of every citizen. It is not enough to do your own job. There’s no particular gift in that. Democracy isn’t a gift. It’s a responsibility.
+ - Democracy means that people can say what they want to. All the people. It means that they can vote as they wish. All the people. It means that they can worship God in any way they feel right, and that includes Christians and Jews and voodoo doctors as well.
+ - I am one day going to be working openly in the motion picture industry. When that day comes, I swear to you that I will never sign a term contract with any major studio.
+ - Now the truth of the matter is that there are a lot of things people don’t understand. Take the Einstein theory. Take taxes. Take love. Do you understand them? Neither do I. But they exist. They happen.
+ - One of the disadvantages of being a patrician is that occasionally you’re obliged to act like one.
+ - Everybody now seems to be talking about democracy. I don’t understand this. As I think of it, democracy isn’t like a Sunday suit to be brought out and worn only for parades. It’s the kind of a life a decent man leads, it’s something to live for and to die for.
+ - Bankers, nepotists, contracts and talkies: on four fingers one may count the leeches which have sucked a young and vigorous industry into paresis.
+ - I will, proudly and by preference, do at least one picture a year for King Brothers, and I will try to make it the best picture that I have it in me to do.
+ - What’s so noble about being dead?
+ - Democracy isn’t a gift. It’s a responsibility.
+ - A good businessman never makes a contract unless he’s sure he can carry it through, yet every fool on earth is perfectly willing to sign a marriage contract without considering whether he can live up to it or not.
+ - I feel like my sixteenth birthday and the time I graduated from high school, and the first time I flew solo all wrapped up in one.
+ - The only interesting thing that can happen in a Swiss bedroom is suffocation by feather mattress.
+
+26 quotes

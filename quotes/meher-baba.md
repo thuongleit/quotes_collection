@@ -1,0 +1,109 @@
+ - Don’t Worry Be Happy.
+ - Light can penetrate any amount of darkness but no amount of darkness can penetrate light.
+ - Live a sincere life; be natural, and be honest with yourself.
+ - Things that are real are given and received in Silence. God has been everlastingly working in Silence, unobserved, unheard, except by those who experience His Infinite Silence.
+ - Why is it so difficult to find God? Because you’re looking for something you’ve never lost.
+ - Happiest is he who expects no happiness from others. Love delights and glorifies in giving, not receiving. So learn to love and give, and not to expect anything from others.
+ - A mind that is fast is sick. A mind that is slow is sound. A mind that is still is divine.
+ - I have come not to teach but to awaken.
+ - God and love are identical, and one who has divine love has received God.
+ - Love and understanding never condemn but always seek to help and encourage.
+ - Those who speculate from the shore about the ocean shall know only its surface, but those who would know the depths of the ocean must be willing to plunge into it.
+ - Seek a reality deeper than the changing forms.
+ - Things that are real are given and received in silence.
+ - Those who constantly want something will never feel happy.
+ - True love is no game of the faint-hearted and the weak; it is born of strength and understanding.
+ - Love and forgiveness is not for the faint-hearted.
+ - Just think you are the greatest. Where’s the harm in thinking like that? It is not for pride you do it, but for bringing the best out of you. There is nothing wrong.
+ - God alone is real, and all else is illusion.
+ - Love God and find him within – the only treasure worth finding.
+ - It’s a divine art to be cheerful.
+ - Long for what is real. You will then have no time for worrying over what may never happen.
+ - The satisfaction derived from the fleeting things of life is not lasting; and our wants remain unfulfilled. There is thus a general sense of dissatisfaction accompanied by all kinds of worries.
+ - Happiest is he who expects no happiness from others.
+ - External silence helps to achieve inner silence.
+ - You must make bold experiments in life!
+ - Love is nothing if it is not spontaneous. It cannot be a conclusion of reasoning.
+ - The entire life of the personal ego is continually in the grip of wanting, i. e., an attempt to seek fulfilment of desires through things that change and vanish. But there can be no real fulfilment through the transient things.
+ - Though the eye is small, the soul which sees through it is greater and vaster than all the things which it perceives. In fact, it is so great that it includes all objects, however large or numerous, within itself. For it is not so much that you are within the cosmos as that the cosmos is within you.
+ - Feelings and emotions are only the creation of mind and energy. Love is the creation of the soul.
+ - God alone is real, nothing matters but love for God.
+ - Love is the reflection of God’s unity in the world of duality. It constitutes the entire significance of creation.
+ - Difficulties give us the opportunity to prove our greatness by overcoming them.
+ - Divine desperateness is the beginning of spiritual awakening because it gives rise to the aspiration for God-realisation.
+ - Who says God has created this world? We have created it by our own imagination.
+ - Suffering is essential for the elimination of the ego, just as it was necessary for you to scrub and scrub in order to wash the stain from my coat.
+ - God has to be temporarily cruel in order to be permanently kind.
+ - I am also a painter. I paint the hearts of people with colors of spirituality.
+ - It is not so much that you are within the cosmos but that the cosmos is within you.
+ - There is no higher or lower goal. There is only one goal, Self-Realization.
+ - Live more and more in the present, which is ever beautiful and stretches away beyond the limits of the past and the future.
+ - The best way to cleanse the heart and prepare for the stilling of the mind is to lead a normal, worldly life. Living in the midst of your day-to-day duties, responsibilities, likes, dislikes, etc., will help you. All these become the very means for the purification of your heart.
+ - Pure love is matchless in majesty; it has no parallel in power and there is no darkness it cannot dispel...
+ - All illusion comes and goes, but the soul remains unchanged.
+ - Love delights and glorifies in giving, not receiving.
+ - One has to go beyond the mind to experience the spiritual bliss of desirelessness.
+ - I love artists, because through art one can express oneself beautifully.
+ - There is only one question. And once you know the answer to that question there are no more to ask.
+ - But such a tiny and trivial thing as an umbrella can deprive you of the sight of such a stupendous fact as the sun.
+ - This whole universe, with all its vastness, grandeur and beauty, is nothing but sheer imagination. In spite of so many discoveries, researches and scientific knowledge, the creation remains a great unsolved riddle.
+ - The experiences are so innumerable and varied, that the journey appears to be interminable and the Destination is ever out of sight. But the wonder of it is, when at last you reach your Destination you find that you had never travelled at all! It was a journey from here to Here.
+ - Life becomes meaningful and all activities are purposeful only on the basis of faith in the enduring reality.
+ - The easiest and shortest way to God -realization is through the contact of a Sadguru, which means keeping the company or sahavas of such a Master, obeying him and serving him. This remedy is like a special express train which carries you straight to your destination.
+ - All illusion comes and goes, but the soul remains unchanged. What is meant by God-realization is to actually experience this important thing that the soul is eternal .
+ - The intellect of most persons is harnessed by innumerable wants. Such a life is, from the spiritual point of view the lowest type of human existence. The highest type of human existence is free from all wants; and it is characterised by sufficiency or contentment.
+ - Art is one of the sources through which the soul expresses itself and inspires others. But to express art thoroughly, one must have the inner emotions opened thoroughly.
+ - Let not the dirt of the sanskaras of your thoughts and deeds touch you, by surrendering every thought and act at the feet of your Guru. As a laundryman washes and cleans clothes, in the same way, I remove all the dirt which has stuck to you through your thoughts and actions.
+ - No amount of prayer or meditation can do what helping others can do.
+ - When the bubble of ignorance bursts the self realizes its oneness with the indivisible Self. Words that proceed from the Source of Truth have real meaning. But when men speakthese words as their own, the words become meaningless.
+ - There is no such thing as evil. Only relative degrees of good.
+ - Nothing is the shadow of Everything.
+ - Love can attain what the intellect cannot fathom.
+ - There is no greater romance in life than this adventure in realization.
+ - Since male and female incarnations are equally necessary for self-knowledge, it is not right to look upon one as being more important than the other.
+ - I am also an artist. I have the whole world as my canvas. I paint souls...
+ - If we suffer in the sufferings of others and feel happy in the happiness of others, we are loving God.
+ - Every good work has to face opposition, and the reaction of the opposition offered always helps the work.
+ - Form is solidified energy; energy is an expression of mind; mind is the covered mirror of Eternity; and Eternity is Truth that has thrown off the mask of mind.
+ - Sometimes our weakness is considered strength, and we take delight in borrowed greatness.
+ - There is no difference in the realization of the Truth either by a Muslim, Hindu, Zoroastrian, or a Christian. The difference is only in words and terms. Truth is not the monopoly of a particular race or religion.
+ - To ask for a purely intellectual proof of the existence of God is like asking for the privilege of being able to see with your ears!
+ - The finding of God is the coming to one’s own self.
+ - The objective of spiritual advancement is not so much ‘works’ but the quality of life free from ego-consciousness.
+ - The seeker asking, Where is God? Is really God saying, Where indeed is the seeker!
+ - I love everybody. Each one plays the role they have to play, but in the spiritual arena there are people who are even closer to me than that.
+ - When you paint, you forget everything except your object. When you are too much engrossed in it, you are lost in it. And when you are lost in it, your ego diminishes. And when the ego diminishes, love infinite appears.
+ - In the world, there are countless Sadhus, Mahatmas, Mahapurushas, Saints, Yogis, and Walis, though the number of genuine ones is very, very limited. I am neither a Mahatma nor a Mahapurush, neither a Sadhu nor a Saint, neither a Yogi nor a Wali. I am the ancient One. The Highest of the High!
+ - The book that I shall make people read is the book of the heart, which holds the key to the mystery of life.
+ - Whether men soar to outer space or dive to the bottom of the deepest ocean they will find themselves as they are, unchanged, because they will not have forgotten themselves nor remembered to exercise the charity of forgiveness.
+ - Being is Dying by Loving.
+ - Worry has never done anyone any good, and it is very much worse than mere dissipation of psychic energy, for it substantially curtails the joy and fullness of life.
+ - I only know one yoga: ‘You Go.’
+ - If you are convinced of God’s existence then it rests with you to seek Him, to see Him and to realize Him. Do not search for God outside of you. God can only be found within you, for His only abode is the heart.
+ - The happiness of God-realization is self-sustained, eternally fresh and unfailing, boundless and indescribable. And it is for this happiness that the world has sprung into existence.
+ - Through endless time God’s greatest gift is continuously given in silence. But whenmankind becomes completely deaf to the thunder of His Silence God incarnates as Man.
+ - The experiences which drugs induce are as far removed from Reality as is a mirage, from water. No matter how much you pursue the mirage, you will never quench your thirst, and the search for Truth through drugs must end in disillusionment.
+ - These false answers such as, I am stone, I am bird, I am animal, I am man, I am woman, I am great, I am small are, in turn, received, tested and discarded until the Question arrives at the right and Final Answer, I AM GOD.
+ - Irrespective of doubts and convictions, and for the Infinite Love I bear for one and all, I continue to come as the Avatar, to be judged time and again by humanity in its ignorance, in order to help man distinguish the Real from the false.
+ - If God can be found through the medium of any drug, God is not worthy of being God.
+ - I love everybody. Each one plays the role they have to play...
+ - To love God in the most practical way is to love our fellow beings. If we feel for others in the same way as we feel for our own dear ones, we love God.
+ - If I were to ask the famous Henry Ford to come over here and do what I tell him to do, would he do it? Never! But if I were to make a thousand-year-old corpse come alive before his eyes, he would jump at the chance to stay here and wash my clothes!
+ - Joke I read somewhere: They say that God is the innermost dweller of all. Well I hope He likes enchiladas – cause that’s what He’s getting! Love delights and glorifies in giving, not receiving.
+ - All that lives is striving for happiness; yet a thousand and one pains and fears attend upon every pleasure which man seeks through the ignorance of exclusiveness.
+ - When a person tells others ‘Be good,’ he conveys to his hearers the feeling that he is good and they are not.
+ - Art is a divine thing. It can only be rightly expressed if opposed, to bring out its inner beauty that lies behind.
+ - The purpose of life is to realize God within ourselves. This can be done even whilst attending to our worldly duties...
+ - One of the most difficult things to learn is to render service without bossing, without making a fuss about it, and without any consciousness of high and low. In the world of spirituality, humility counts at least as much as utility.
+ - Only in the human form is it possible for life to attain its final goal, which is to realize the all-pervading and infinite Divinity.
+ - To attain union is so impossibly difficult because it is impossible to become what you already are! Union is nothing other than knowledge of oneself as the Only One.
+ - Truth is simple, but Illusion makes it infinitely intricate. The person is rare who possesses an insatiable longing for Truth; the rest allow Illusion to bind them ever more and more.
+ - There is nothing that love cannot achieve, and there is nothing that love cannot sacrifice.
+ - Art, when inspired with love, leads to higher realms. Love art and that art will open for you the inner life.
+ - What I want from my Lovers is real unadulterated love, and from my genuine workers I expect real work done.
+ - When love is not at its height, it always creates a mess.
+ - When nothing upsets you, you are at the beginning of the path. When you desire nothing, you are halfway on the path; when nothing becomes everything, you are perfected.
+ - I am the Avatar of this Age!
+ - If we understand and feel that the greatest act of devotion and worship to God is not to harm any of His beings, we are loving God.
+
+107 quotes

@@ -1,0 +1,105 @@
+ - I don’t focus on what I’m up against. I focus on my goals and I try to ignore the rest.
+ - Just believe in yourself. Even if you don’t, pretend that you do and, at some point, you will.
+ - It’s thrilling and it’s an honor to be part of something bigger than your own self.
+ - You can never get complacent because a loss is always around the corner.
+ - Interior design is a business of trust.
+ - Tennis is mostly mental. You win or lose the match before you even go out there.
+ - Tennis is mostly mental. Of course, you must have a lot of physical skill, but you can’t play tennis well and not be a good thinker. You win or lose the match before you even go out there.
+ - I have to say accounting almost killed me.
+ - Life is challenging but I’m always up for a challenge.
+ - It’s easy to stand back, but to move forward and take a chance, that takes a little more guts, a little more courage.
+ - My motto is: I’m alive, so that means I can do anything.
+ - My ambition is to enjoy my life and to do exactly what I want to do. And I’ll do that. I will be free.
+ - I don’t have time to be negative.
+ - I just try to stay positive and focused on the tennis, not let anything get to me, like crazy questions. But I’m tough, let me tell you, tough as nails.
+ - I don’t want to give anyone an edge in my mind. Every time I walk out on the court, I have to feel I’m the best so I can compete well. A lot of times, my chief rival is just me.
+ - My motto has always been that you can’t say, ‘Oh, it won’t happen to me.’ You have to say, ‘That can happen to me.’ So always be aware that things can happen.
+ - So what if you fail? At least you’ll know what not to do when you try again.
+ - It wasn’t like I was self-motivated. My dad started me. It was his dream before it was mine.
+ - I have a lot of dreams, and most of them come true these days.
+ - Chiropractic gives me the flexibility I need to keep in the game.
+ - I have been recently diagnosed with Sjogren’s Syndrome, an autoimmune disease which is an ongoing medical condition that affects my energy level and causes fatigue and joint pain.
+ - To be a well-rounded person and know what’s going on in the world around you, to have a perspective outside of your sport, is important for every athlete. I’m blessed that our parents gave us that.
+ - If I go down, it’s never easy. At least my opponent knows they have to go to the end of the earth to take me out no matter what the circumstances. I do try to compete. Even if it’s not your best day, I just try to walk off the court knowing I gave 100,000 percent.
+ - All those lessons that I’ve learned on the court, I have applied them to my life outside of the court in business, my company, called V Starr interiors, an interior design company, and EleVen, which I wear on court.
+ - I say accessorize, accessorize, accessorize. If you don’t accessorize, someone else will.
+ - If I didn’t play tennis I don’t know where I’d be.
+ - I guess rumors are more exciting than the truth.
+ - I’m this overachiever type, I’ll just work and work and I’ll just do it over and over and over again.
+ - In the sports arena I would say there is nothing like training and preparation. You have to train your mind as much as your body.
+ - The naysayers, they don’t mean a thing.
+ - I love to be busy, and when I’m off the court, I do things I love.
+ - It’s a great feeling to have accomplished what I have, but I want to do more.
+ - When you lose, you’re more motivated. When you win, you fail to see your mistakes and probably no one can tell you anything.
+ - Well, when I walk behind short people I feel like I’m going to fall over because I start taking these little steps, and I can’t take little steps.
+ - When you step out on the court, I don’t think anybody thinks about age. Because if you’re out on this tour, it means you deserve to be here. You’ve got the skill. It must mean you know how to play.
+ - There is nothing like playing at Wimbledon; you can feel the footprints of the legends of the game-men and women-that have graced those courts.
+ - I am someone who likes to stay positive.
+ - My first job is big sister and I take that very seriously.
+ - Of course, I want to be number one. But being happy and healthy is the most important thing.
+ - The principle of the design – the harmony, rhythm and balance are all the same with interior and fashion design.
+ - When you get into that habit of winning, it gets – I don’t know if you call it contagious – but it gets to be a habit. She’s developed an unbelievable habit.
+ - Unfortunately the world is what it is now. People don’t get along for whatever reason. As professional athletes, in a way we’re almost ambassadors for peace, because sports brings everyone together.
+ - I tend to be slim and you know, I actually can lose weight quicker than I can gain it.
+ - Sometimes, when there’s a video montage. I’m thinking, ‘That’s my life. Oh, my God, I did that.’ Yeah, it’s amazing.
+ - I always like to win. But I’m the big sister. I want to make sure she has everything, even if I don’t have anything. It’s hard. I love her too much. That’s what counts.
+ - As far as everyone else’s opinion, I mean, if I would have thought that everyone was right, I probably wouldn’t have left Compton, so I don’t get too caught up on what the next person thinks.
+ - Losses have propelled me to even bigger places, so I understand the importance of losing. You can never get complacent because a loss is always around the corner. It’s in any game that you’re in – a business game or whatever – you can’t get complacent.
+ - We’re all conditioned that we shouldn’t like our brothers and sisters, that we should be angry and fight. But that’s abnormal. A lot of people think that the way Serena and I are with one another is weird. It’s not.
+ - I remember watching the Olympics at home as a kid. It was one my Dad’s dreams to win an Olympic medal.
+ - I know it’s not the most important thing for me to win the most Grand Slams and be remembered in this world. I certainly don’t have to win little tournaments here, there and everywhere, I don’t have to win at all. Although I do want to.
+ - If I don’t wear something I feel confident in, I don’t play as well.
+ - You learn so much from your parents. We grew up in a home where we were definitely taught to be confident. I definitely give me parents a lot of credit.
+ - I try to update as much as possible. You don’t want to be in the past.
+ - My goal is always the same: to keep the other player from ever scoring a point. That doesn’t always happen, but that’s what I try for.
+ - I knew my destiny was to be in the winner’s circle. There were times along the way where I didn’t make it there. But I felt my destiny was definitely to win big titles, win lots of titles.
+ - We don’t talk about tennis. I figure she knows what she’s doing. I mean, what am I going to tell her?
+ - I guess it’s a little bit sentimental, but at the time I was really very focused in on really my performance. Afterwards, it was really just a breath of fresh air, just like, ‘Oh, yes, I’m back now. I’m doing good.’
+ - If I cared deeply about what people thought of me, I probably would have never made it out of Compton, California.
+ - For years I felt that I didn’t have enough stamina and then, four years ago, I felt like I was not getting enough air but I was diagnosed with exercise-induced asthma. The medicine for asthma never worked.
+ - Nerves are normal. You can’t be cured from them unless you’re a machine.
+ - I don’t come to tournaments to make friends, to go to parties, to hold conversations. I come to be the best, and I’m not mean and cruel and dirty.
+ - I know I’m good at tennis. Other than that, everything else is a wild card. I’m a wild card.
+ - I will always be the older sister. That’s never going to change.
+ - It is very important not to think about losing.
+ - I contribute my best in my sport and I also have a ton of respect for myself and my family.
+ - Grand Slam losses are hard. I treat myself after losses though, I usually go to McDonald’s and I have a hamburger and you know, something. Because you know, you just need to be nice to yourself sometimes after the loss.
+ - Tennis is a huge part of my life, but I don’t base my self-value or my self-worth or the quality of my life on my results on the court.
+ - I guess some kids around me had to grow up quickly, had all those problems. But I wasn’t one of those kids, or around those kids, not at all.
+ - When youre on top, youre on top.
+ - I think nowadays it’s so easy as an athlete to become a statistic whether or not you lose everything or having trouble or whatever it may be.
+ - The big push for me is the Olympics this year. If I’m healthy, I’m not worried about my ranking. I think I can hit the ball. It’s just about my body cooperating. It’s about being able to play matches in a row. Right now, I’m not sure how much I can do with that, but we’ll see.
+ - Serena and I have done some great career planning, and we’re playing really at the peak of our tennis right now. I think tennis has been a sport where people play this insane schedule from 14 years old, so of course at 26, it’s over. We’ve really paced ourselves.
+ - I guess tennis is my main art, but fashion is definitely very close.
+ - I think if you have the opportunity to bully your opponent then you have to take that chance.
+ - A win’s a win, unless it is not a win, and then it’s not a win.
+ - Everyone makes their own comments. That’s how rumors get started.
+ - Anything which draws attention to me because I am so attractive.
+ - If you give me a short shot I will attack you. I’m not a baseliner who rallies. I try to get the point over with.
+ - To stay interested in tennis, I have to mix it up with other things.
+ - I’m only seeing tennis balls these days. And maybe the occasional fashion sketch.
+ - Id like to imagine that in order to beat me a person would have to play almost perfect tennis.
+ - I wear a lot of tight dresses, so I’m like, ‘I need to do my sit-ups!’
+ - I think I’ve been fortunate to be at the top of the game and in the media for years, and a lot of times, people want to be your friend when you’re on the top. You know, there have been times when I’ve been injured and I never got a phone call. So that’s the way it is.
+ - I feel amazing right now. I just feel like dancing.
+ - I don’t carry a purse when I fly because I have my Hello Kitty carry-on. I’m the biggest adult supporter.
+ - We’re breaking records and we’re moving forward. I always expected to win Grand Slams. This was meant to be.
+ - It’s every Williams for themself.
+ - People ask me where I get my fighting qualities from, and I have to say Serena.
+ - I’m not a trend person. I don’t want to look to my right and see somebody in the same thing.
+ - It’s what I’ve trained for, from the first sketch to the fabric. Making dresses that are different from the usual style, and a lot of fun to wear.
+ - The thing is, it’s not good anyway for eight-year-olds to be out there playing tennis tournaments so soon in their lives. But when I did get to play in a tournament, when I was nine, I was overjoyed.
+ - We’ve been training and playing full-time since we were 18 and 19. So after tennis, we’ll be excited to see what it’s like to have more free time.
+ - Since I started playing at the Olympics in 2000, I have always wanted to do a dress based on Wonder Woman. It should be interesting to wear. And hopefully, it will get me a gold medal.
+ - My dresses are designed to win, so going through it, I think about, what do I want to represent? So, definitely, Vera Wang has been an inspiration for me.
+ - The thing about tennis is if you stay off for two weeks, or just for three days, you can lose your rhythm quickly. So it’s just a question of constant diligence and vigilance.
+ - I’m always on the court with my dad.
+ - I can walk around fine, but I don’t have a desk job.
+ - As long as we’re fit, we just have so much to give on the court.
+ - Everything is tennis for me, it’s my career and it’s entertainment, but it’s also a business.
+ - Whoever is across the net, I want to win. Whoever that person is, that’s the day I want to win.
+ - My style is kind of eclectic and I don’t like to do the same thing over and over again. I like to have fun and explore myself so you won’t see the same design.
+ - If you’re not a competitor, you’ve just got to go home.
+ - I think I can change the game.
+
+103 quotes

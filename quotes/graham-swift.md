@@ -1,0 +1,39 @@
+ - Literature is the voice of the human heart.
+ - How quick and rushing life can sometimes seem, when at the same time it’s so slow and sweet and everlasting.
+ - The real art is not to come up with extraordinary clever words but to make ordinary simple words do extraordinary things. To use the language that we all use and to make amazing things occur.
+ - I share my name with an aerobatic bird that can whiz across a whole summer sky in seconds. A swift is so equipped for speed that it can scarcely cope with being stationary.
+ - If you can’t stand your own company alone in a room for long hours, or, when it gets tough, the feeling of being in a locked cell, or, when it gets tougher still, the vague feeling of being buried alive-then don’t be a writer.
+ - I am struck by the way people behave on the Tube. They look at each other beadily and inquisitively, and something goes on in their thoughts which must be equivalent to the way dogs and other animals, when they meet, sniff each other’s arses and nuzzle each other’s fur.
+ - I do my thinking while I walk. It just loosens up the mind in the way that you don’t get when you are sitting at a desk.
+ - What we wish upon the future is very often the image of some lost, imagined past.
+ - There has always been, for me, this other world, this second world to fall back on – a more reliable world in so far as it does not hide that its premise is illusion.
+ - What does education do, what does it have to offer, when deprived of its necessary partner, the future, and face instead with – no future at all?
+ - That’s the way it is: life inculdes a lot of empty space. We are one-tenth living tissue, nine-tenths water; life is one-tenth Here and Now, nine-tenths a history lesson. For most of the time the Here and Now is neither now nor here.
+ - Today’s news, which may be yesterday’s anyway, will be eclipsed tomorrow.
+ - All nature’s creatures join to express nature’s purpose. Somewhere in their mounting and mating, rutting and butting is the very secret of nature itself.
+ - When anything goes digital, let alone something as immaterial as a book, there is a tendency to see it as just in the air to be taken, and to lose the sense that somebody once made it.
+ - London is like no other city I know in its ability to become beautiful. You can suddenly turn a corner and there are odd moments – of light, of weather.
+ - I came from a lower-middle-class postwar family in a time of austerity and retrenchment, with no one in the family who was in any way artistic or a potential mentor to a budding writer, and yet this is what I became.
+ - People die when curiosity goes.
+ - When I am writing, I’m very much on the ground, on the same ground my characters are treading.
+ - Of course there are times when I hate London, but equally there are times when I can walk ’round a corner and I really feel that this is my place.
+ - I think what I like to do is to begin with the ordinary and find the extraordinary in it.
+ - Happiness quells thought. And work quells thought.
+ - If people read ‘Tomorrow’ and feel that it is offering them some view of my own household, they would be very, very wrong.
+ - I think the purveyors of e-books are only too happy for this atmosphere of ‘everything belongs to everybody’ to increase because it means they don’t have to think so much about the original maker of the thing, or they can get away with paying them less.
+ - Part of the very impulse of writing for me is actually wanting to get away from myself.
+ - Possibly he knew, as he wrote this, that he was mad – because inside every madman sits a little sane man saying ‘You’re mad, you’re mad.’
+ - My mother was a great bringer-up of children. My memories are of a sense of security and comfort.
+ - And I didn’t know I loved her till I’d dreamt of her. I didn’t know it was the real thing until an illusion had signalled it.
+ - When people aren’t expecting to be seen, they look their truest.
+ - My upbringing was absolutely not the archetypal writer’s upbringing. Even, arguably, the opposite.
+ - As a novelist, I suppose I can say that I’m highly articulate. But I know, as a person, in other ways, I’m not always articulate. I think we are all, from time to time, inarticulate, at some level, about some things.
+ - Novels, in my experience, are slow in coming, and once I’ve begun them I know I have years rather than months of work ahead of me.
+ - I like the world we’ve got. If there is anything special and magical, I have to find it in the ordinary stuff.
+ - I respond to the sound of London being spoken – to the sound of London.
+ - All novelists must form their personal pacts in some way with the slowness of their craft. There are some who demand of themselves a ‘rate of production,’ for whom it’s a matter of pride to complete, say, a book every year.
+ - You may have your suspicions, your fears, you may even believe there is something, somewhere, terribly, drastically wrong, but because someone else is in charge, because there is a part of the system above you which you don’t know, you don’t question it, you even distrust your own doubts.
+ - I can do hieroglyphics in the margin. There are days when I really enjoy the flow of ink. I mean, nice pen, ink straight on to the page.
+ - I don’t reread my books.
+
+37 quotes

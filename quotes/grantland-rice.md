@@ -1,0 +1,30 @@
+ - A wise man makes his own decisions, an ignorant man follows the public opinion.
+ - When One Great Scorer comes to write against your name, He marks, not that you won or lost, but how you played the game.
+ - Failure isn’t so bad if it doesn’t attack the heart. Success is all right if it doesn’t go to the head.
+ - Because golf exposes the flaws of the human swing – a basically simple maneuver – it causes more self-torture than any game short of Russian roulette.
+ - You wonder how they do it and you look to see the knack You watch the foot in action, or the shoulder or the back, But when you spot the answer where the higher glamours lurk You’ll find in moving higher up the laurel covered spire That most of it is practice and the rest of it is work.
+ - All wars are planned by old men in council rooms apart.
+ - You are meant to play the ball as it lies, a fact that may help to touch on your own objective approach to life.
+ - I learned much more from defeat than I ever learned from winning.
+ - Christy Mathewson brought something to baseball no one else had ever given the game. He handed the game a certain touch of class, an indefinable lift in culture, brains, and personality.
+ - It’s not whether you won or lost, but how many bad-beat stories you were able to tell.
+ - Every father who ever lived has a dream for his son.
+ - Depend upon yourself. Make your judgement trustworthy by trusting it. You can develop good judgement as you do the muscles of your body – by judicious, daily exercise. To be known as a man of sound judgement will be much in your favor.
+ - Does the road wind up-hill all the way? Yes, to the very end. Will the day’s journey take the whole long day? From morn to night, my friend.
+ - There is no type of miracle that can’t happen at least once in golf.
+ - Golf is 20 percent mechanics and technique. The other 80 pecent is philosophy, humor, tragedy, romance, melodrama, companionship, camaraderie, cussedness and conversation.
+ - I am the servant of my score.
+ - Like life, golf can be humbling. However, little good comes from brooding about mistakes we’ve made. The next shot, in golf or in life, is the big one.
+ - Golf gives you an insight into human nature, your own as well as your opponent’s.
+ - Play ball! Means something more than runs Or pitches thudding into gloves! Remember through the summer suns This is the game your country loves.
+ - I await the hour when a journalist can be driven from the press room for venal practices, as a minister can be unfrocked, or a lawyer disbarred.
+ - One might as well attempt to describe the smoothness of the wind as to paint a clear picture of his complete swing.
+ - There are many stars and a few super-stars in sport. There are champions who bag a coronet now and then, and there are others who dominate some game year after year. In other words there are Bobby Jones and Helen Wills.
+ - This is the substance of our Plot-For those who play the Perfect Shot, There are ten thousand who do not.
+ - Few learn golf in a lifetime.
+ - Kindness in ourselves is the honey that blunts the sting of unkindness in another.
+ - Eighteen holes of match play will teach you more about your foe than nineteen years of dealing with him across the desk.
+ - There are three types of golf: golf, tournament golf and Major championship golf.
+ - Rhythm is best expressed in any swing directed at a cigar stump or a dandelion head.
+
+28 quotes

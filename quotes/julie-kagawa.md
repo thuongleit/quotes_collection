@@ -1,0 +1,106 @@
+ - You made me feel alive again.
+ - You will always be a monster – there is no turning back from it. But what kind of monster you become is entirely up to you.
+ - If we all end up as llamas, I’m going to spend the rest of my life following you around saying ‘I told you so’ in llama-ese.
+ - Whatever happens, we’re together now. Always.
+ - You are my heart, my life, my entire existence.
+ - Know that I’m with you always, even if you can’t see me.
+ - Oh, we’re playing nice now? Shall we have tea first? Brew up a nice pot of kiss-my-ass?
+ - I was allergic to myself! How pathetic was that?
+ - And I swear, if there is a way for us to be together, I will find it. No matter how long it takes. If I have to chase your soul to the ends of eternity, I won’t stop until I find you, I promise.
+ - I don’t care what it’s called. I just want to be with her at the end. I’m not giving up. Meghan, I’ll be with you soon. Please, wait for me.
+ - You’ve gone off the deep end. Time to cut back on the anime Rob. There’s no such thing as faeries.
+ - Everyone says the Summer Queen is stunning, beautiful, absolutely captivating. Yeah, I guess she is, but so is a volcanic eruption.
+ - Be careful, boy. In some tales, the hero gets eaten by the monster after all.
+ - As cities grow and technology takes over the world belief and imagination fade away and so do we.
+ - Summer and Winter were not supposed to fall in love.
+ - Eventually we will all wither and die in the wasteland of logic and science.
+ - Do not be deceived by the the politeness of the fey. Fey are almost always polite. This does not mean they will not happily remove your head.
+ - The closer you got to someone, the more it would destroy you when they were inevitably gone.
+ - Part of me wanted to walk up to him and hug him from behind, and part of me wanted to hurl a snowball at his perfect face to get some kind of reaction.
+ - Do not lose your heart to a faery prince. It never ends well.
+ - I would not worry about that, mortal. No one ever leaves the Nevernever completely sane.
+ - The lesser of two evils was still evil.
+ - There was nothing sweet or gentle in our last kiss; it was filled with sorrow and desperation, of the bitter knowledge that we could’ve had something perfect, but it just wasn’t meant to be.
+ - Ash, it’s because of you that I am here today. You have always been there, never wavering, protecting me with no thought for yourself. You’ve been my teacher, my knight and my only love. Now it’s my turn to make that promise.
+ - I rose from the bed, my heart thudding in my chest. “Kiss me,” I whispered, and saw his eyebrow arc in surprise. “Just once more,” I pleaded, “And I promise it will be the last time. I’ll be able to forget you after that.” -Meghan.
+ - I learned long ago that you don’t get in the middle of a lover’s spat. Nothing EVER goes as planned – People fall in love with the wrong person, someone ends up with a donkey head and then its a whole big mess. – Puck.
+ - Time is the cog that turns the wheel Winter leaves scars that do not heal Summer is a fire that burns inside Knowledge is a terrible burden to hide Strength and death go hand in hand One answer lies within the sand But seek the answer all alone Lest the sand claim you as its own.
+ - I was Ashallayn’darkmyr Tallyn, son of Mab, former prince of the Unseelie Court, and I was not afraid of a witch on a broom.
+ - He smiled, a real one this time, though his voice remained teasing. “So, what do you think I am?” Naive, I thought at once. Naive, brave, selfless, incredible and much too kind to survive this world. It’ll break you in the end, if you keep going like this. Good things never last.
+ - I would not suffer anyone to endure the path I walk. My road must always be traveled alone.
+ - Ouch. Well, you know what they say – you always hurt the one you love. Or is that the one you hate? I can never remember. – Puck.
+ - Me? Die? Didn’t they tell you, princess? I’m Robin Goodfellow.
+ - Robin Goodfellow, for all his pranks and mischief, was the sweetest, most noble person I’d ever known, and I’d missed him terribly.
+ - Yeah, Mom, Ethan’s turned into a monster and my best friend thinks he’s a faery. How was your day?
+ - Touch her, and I’ll freeze your testicles off and put them in a jar. Understand?
+ - You’re still beautiful and dangerous and incredible, and I’ll keep telling you that for as long as it takes you to believe it. But right now, all I want to do is kiss you, except I’m terrified that if I try you might throw me off this balcony.
+ - His breath hitched, and he regarded me hungrily. “You’re playing with fire, you know that?” “That’s weird, considering you’re an ice prin – ” I didn’t get any further, as Ash leaned in and kissed me.
+ - Sometime in your life, Alison Sekemoto, you will kill a human being. Accidentally or as a conscious, deliberate act. It is unavoidable. The question is not if it will happen, but when.
+ - See you later princess. Don’t let leatherface catch you on your way home -Robbie.
+ - Iron. Ice. A Love Doomed From the Start.
+ - I guess the sacrifice of my dignity is the only thing that will save us now. The things I endure for love. The Fates laugh at my torment.
+ - There is nothing more terrible than a spurned faery queen, particularly if you defy her a second time. I escaped the Winter Court with my life intact, but just barely, and I won’t be returning anytime soon. My loyalty – and my heart – belongs to another queen now.
+ - I’ve always wanted the IQ of a rock. No, wait. That would be an insult to the rock.
+ - Ash blinked. “Are you raiding the cellars now, Goodfellow?” “Me? Stealing?” Puck flashed a devious grin and popped another fruit into his mouth. “In the house of my ancient enemy? What gave you that idea?” He plucked another fruit and tossed it to me with a wink.
+ - My, aren’t we bossy today. Give a girl an army and it goes straight to her head.
+ - No, no. We can kill each other later.
+ - You enjoy making my heart stop, don’t you?
+ - My emotions still held a stubborn hope that humans could be loyal, that they could hold out against the promise of an easy life. But I knew better.
+ - Metallic trees. That’s new. If you see any steel dryads, be sure to tell me so I can run away screaming.
+ - Fear not for I am a cat.
+ - If the entire cheerleading squad turns into mice, Robin, I will be very upset with you. Mortal adolescents are blind and cruel. You know that. You mustn’t take revenge, no matter how you feel about the girl. Especially now. There are more worrisome things on the move. -Ms Stacy.
+ - The faery lords are immortal. Those who have songs ballads and stories written about them never die. Belief worship imagination we were born of the dreams and fears of mortals and if we are remembered even in some small way we will always exist.
+ - Shopping is just another form of hunting. All fey are hunters, whether they admit it or not. It’s in our nature, pet, nothing unnatural about it.
+ - And, truth be told, I’m curious myself. I wouldn’t want Goodfellow dying before we ever resolved our duel. That would be unfortunate.
+ - You don’t dwell on what you’ve lost, you just move on.
+ - Meghan rose with the regal grace of a queen, calm and unruffled. I noticed she subtly moved in front of me when facing Ariella, a familiar gesture that caught me off guard. The Iron Queen was protecting me.
+ - If you’re done playing with will-o’-the-wisps and kelpies, I think we should continue. Oh, but do tell me the next time you want to have tea with an ogre. I’ll be sure to bring my club. -Puck.
+ - How easy it is to forget grudges when someone has something you need.
+ - He hesitated, but then stepped beneath the tree and knelt, depositing me gently on the ground between two giant roots. And he stayed there, kneeling beside me, holding my hand in his. Something splashed the back of my hand, cold as spring water, crystalling to my skin. A faery’s tears.
+ - For the rest of my existence, if I lived to see the end of this world, there would never be another Ezekiel Crosse. There would never be another soul as bright as his. And that both terrified me and made me savagely – and maybe selfishly – determined to keep him. Zeke was mine now. Forever.
+ - I love her.
+ - Crazy Ash just doesn’t have the same ring as Don’t-bother-me-or-I’ll-kill-you Ash.
+ - Tie rock to tail and throw kitty in lake. Watch kitty sink, ha!
+ - My eyes prickled as Ash leaned in and kiss me. A particulary loud snore came from the cave, and the lump in the corner rolled toward us suspiciously.
+ - I ached for him, my stomach twisting painfully. He looked so desolate standing there alone facing a mad queen and several thousand angry fey. His voice was flat and resigned, as if he’d been pushed into a corner and had given up, not caring what happened next.
+ - I would be more than her guardian and her champion and the jester who made her laugh. I would be her everything, if I could. -Puck.
+ - Jealousy isn’t something we deal with well, but some of us have been around long enough to know when to let go, and what is most important. The happiness of my two best friends should be more important than some ancient feud. – Puck.
+ - Still dressed in matching butler suits with pink bow ties, the redcaps filed into the dining room, every one of them scowling at me. Ash’s eyes widened and he quickly hid his mouth under his laced fingers, but I saw his shoulders shaking with silent laughter. Luckily, the redcaps didn’t notice.
+ - Tough guy, if brooding was a sport, you’d have gold medals with scowling faces lining the walls of your room.
+ - Big giant insect thing holding me several hundred feet in the air? What’s there to be nervous about?
+ - Summer and Winter were supposed to be enemies. We were not supposed to cooperate, we were not supposed to go on quests together and, most important, we were not supposed to fall in love.
+ - I get up, get coffee, and go into my home office. I check email and Twitter before I start work, but I have to try not to get too distracted.
+ - My eyelids flickered, and Ash made a noise that was almost a growl. “Dammit, Meghan,” he snarled, grabbing both my arms. “I am not going to lose you this close to home. Get up!” He rose, pulling me to my feet and, before I could even register what was going on, pressed his lips to mine. -Ash.
+ - My closet! Mine!
+ - Overall, Id say I was an awesome bookseller, but probably not the best book shelver. I loved recommending books and helping people find books.
+ - Grimalkin jumped up beside Ash again. “The park,” he said calmly. “We take him to the park. The dryads should be able to help him.” “Should? What if they can’t?” “Then, human, I would start praying for a miracle.” -Grimalkin and Meghan.
+ - I worked at a Books-a-Million in Louisville for several years.
+ - This impossible situation also comes with a time limit. No pressure.
+ - If Puck was dead, my world would become as cold and lifeless as the darkest night in the Winter Court.
+ - When I wrote my first story, all the characters were teenagers because I think 16, 17 is a great age.
+ - My fall began, as many stories do, with a girl.
+ - Me? Robin Goodfellow, a family man? He, not likely, ice-boy. I mean, think of what that would do to my reputation. Glamour shimmered around him, and he gave us a wink. Later, lovebirds. Gimme a heads up when the kid arrives. ‘Uncle Puck’ will be waiting.
+ - I was a huge bookworm as a kid, and you could usually find me reading something with a dragon on its cover.
+ - Hunger flickered, always there, but I pushed it down. I was a vampire. Nothing would change that. But I didn’t have to be a monster.
+ - Man, that was impressive. You must’ve jumped three feet in the air. What did you think I was, leatherface or something? -Robbie Goodfell.
+ - It’s not the physical scars that are the most painful.
+ - If you are gone then I will welcome nonexistence. There will be nothing left for me to live for.
+ - Excuse me a moment, princess. I have to go play with the puppies.
+ - There are only those you can live with, and those you can work to change.
+ - Did he teach you how to bore you opponents to sleep? Because I think I missed that lesson – Allie.
+ - It was fine and good to be defiant to the end, but it was better not to get caught in the first place.
+ - I’m a cat.
+ - Fear was the knowledge of pain, the awareness that you could be hurt, that you could die.
+ - Who knows what goes on in the mind of a cat?
+ - Technically, I was trying to kill Puck. You just happened to be there. But yes, if I’d had the shot, I would have taken it. -Prince Ash.
+ - Oh, look at that, he’s heard of me. My fame grows.
+ - Remind me to kill Grimalkin next time we see him.
+ - I was minding my own buisness long before you and the princess started humping like rabbits.
+ - I like all my characters in one way or another, or at least I understand them.
+ - You’re here, and the only dance I want is this one.
+ - I wished that, for once, faery tales – real faery tales, not Disney fairy tales – would have a happy ending.
+ - I will be with her again, or I will die. There aren’t any other options.
+ - You’ll take her to a healer, prince, or so help me I will cut out that piece of ice you call a heart and take her myself.
+ - Ouch. You really know how to tear a guy’s heart out, don’t you, princess?
+
+104 quotes

@@ -1,0 +1,59 @@
+ - I took my vow to poetry; this is where I’m going to be. These are my people; this is my tribe. This is where I’m going to put my energy.
+ - If you can integrate your life to have a kind of meditative practice that is considering others.
+ - I’d like to invoke the Native American Navajo because their word for road is used as a verb. Their whole relationship to road has to do with how you travel it, who you are traveling it with, what the environment might be, where you’re headed, in what direction, the weather and so on.
+ - How can you work on letting your thoughts go and getting synchronized into the moment and questioning your wild imagination. But I say just think of all the great Japanese and Chinese poets and scholars who were also meditators.
+ - We can think for ourselves and we can awaken the world to a greater consciousness.
+ - No one begs you to be a poet or write a 1000-page poem. You have to be fueled by a drive, a conviction – a need, a necessity, a vision that is so pressing that it has no other outlet but through you. That doesn’t mean that you are unconscious or in trance, but there can be moments like that.
+ - For me there is a poesis, a poetics, around the trope of the road that is embedded within many life experiences of the people I’ve been close to.
+ - Certainly the beat writers I’ve known who carried forward the original, you know, I’d say that came together in the 1940s and 50s. So I was inheriting in a way some of that ethos.
+ - Myths, by their definition, involve transformations, struggles through various worlds or layers of reality and of obscuration.
+ - I think Visions of Cody is the most radical book in terms of poetic stretch and the way Jack Kerouac is able to incorporate documentation and incorporate the live tape recording of Neal and so on.
+ - My father shared the ethos of many of the beat writers and was a friend of Allen Ginsberg. Probably for 25 years of my father’s life, He had been an itinerant piano player and so traveled the road with bands and that sort of thing.
+ - We had much more imagery from Vietnam war. The media was not controlled. The storyline, the master narrative was not controlled. I thin it was some those images really radicalized people and shifted things to some extent. And the Viet Cong also, their tenacity.
+ - A lot of my father’s generation were thinking about communism and had deep liberal and progressive connections. He never admitted whether he was a card-carrying communist party member but I think its possible.
+ - I like the idea of the object, the relic. And I see it as a time machine too or a device you plug into a socket that activates a sound and light show.
+ - I’m concerned about the overuse of spectacular places. And there’s no real wilderness left and so there’s a heartbreak there. You can go anywhere and be rescued through your cell phone and have some helicopter drop down.
+ - Poets have to keep pushing, pushing, against the darkness, and write their way out of it as well.
+ - My teachers were often very eccentric.
+ - Connection to Buddhism is strand in my life.
+ - We need a world-wide Department of Peace.
+ - My father was a frustrated writer. I think he wanted to write the great American novel.
+ - My mother started taking us to church when I was in seventh or eight grade. That was always a question, Do you believe in God?
+ - I grew up in New York City in Greenwich Village and had parents who were somewhat bohemian so I was always on the nonconformist side of the equation.
+ - I was going to public school in the post-World War II, the grey doldrum years. But I was in this extraordinary environment of Manhattan, of Greenwich Village, of bohemian parents.
+ - It’s so rich as a trope – the whole idea of the road and it being in terms of language, being an active experience.
+ - When I look at my life there are these streams, these things that have continuity from the fifties to now.
+ - World War II synchronizes things for a lot of people. There’s a kind of wakeup call.
+ - I think of the amazing things that were going on. So it’s so rich. The doors keep opening.
+ - We still have our larynx, we still have our minds and we still have our consciousness. We still have this gift to make things with words and images and get outside these preordained tropes and ways of thinking and the master narratives – what’s handed to us.
+ - I think of my father born in this very small, limited situation and then coming out of that. Many people have this story.
+ - I don’t think it is as a trope or as something in our psyches. There’s very little wilderness out there but there is wild mind, and the Wild mind that actually, as Gary Snyder says, wants to take care of things. There’s an elegant quality to the wild mind.
+ - I remember being caught in this earthquake in Mexico City and having a sense of people coming before me, of being part of this lineage. I felt similarly when I went to India and South America.
+ - If I smashed the traditions it was because I knew no traditions. I’m the girl with the unquenchable thirst.
+ - Our need to reimagine our world through the vibratory larynx, that’s what matters. Re-awaken the world to itself. Through ideas, pictures, sounds. Hold the mirror up to “nature.”
+ - Contemporary movies just drive me crazy. The violence and the sentimentality and the spiritual materialism and Theism and the incredible indulgence in ignorance is so claustrophobic.
+ - I was not ever hitchhiking alone. I’ve done solo train trips but I’ve never driven myself alone.
+ - How infuriating it is to be continually born to war that continues one’s whole lifetime, even as one protests it – what futility. It is perhaps a more public epic in this regard, and carries a ritual vocalization.
+ - I’m curious about other universes, and nonhuman elementals. For me it’s still a very lively ethos. It’s a kind of practice. It’s an ethos that is very sustaining.
+ - For me the road became a zone, in places like Saint Marks poetry Project where I worked for 12 years.
+ - For me poems are acts re-done, and that can vibrate well into the future.
+ - My older brother was involved in the folk movement. We would gather every weekend in Washington Park. The folk songs were so important to my reality.
+ - Think of the road as a kind of zone and a site of incredible diversity.
+ - A lot of my life has involved with helping create cultures that have as their basis this vision of the sharing, the partaking of a certain ethos together.
+ - I think for me in terms of this kind of dichotomy you have to hold the sense of negative capability in your mind – which is Keats line about being able to hold two different ideas ‘without any irritable reach after fact or reason.’
+ - I have students whose fathers are voting for Sarah Palin. It’s wild.
+ - There’s a kind of training, when you are sitting in a session in the Japanese tradition or any of the Buddhist traditions, taking your lotus posture or whatever it is. That’s what you’re doing.
+ - Any technology is just a skillful means and it’s how you use it.
+ - I still had to correct Allen Ginsberg at times when he called women girls. I’d say. Allen please, it’s not politically correct.
+ - I get very upset when money is being cut and people can’t visit the Grand Canyon.
+ - The beat literary movement is strong because of those very challenging and individual relationships and styles and contention and so on. So I just feel blessed by this kind of opportunity that came from it. It was a kind of seed.
+ - There are energies that reside in each phone and phoneme. And we can release them.
+ - I was raised with a sense of democratic vistas and egalitarianism.
+ - Growing up in the fifties, having to wear a dog tag, having to take shelter in a bomb shelter. That turned me toward the road, I did not want to live in fear of that, I was gong to work somehow against what that vision was, and what that horror was. It was poetry, art, music.
+ - As a younger person you can come in through many, many gateways. It’s like some huge Mandela. You can enter into this and get refreshed.
+ - My last bedside conversation in the hospital just a few weeks before Allen Ginsberg died was ’please take care of so and so. And the legacy of the Kerouac school.
+ - I think the idea of the lone tormented artist – which we can apply to others – I think that it needs to be revisited. Jack Kerouac needs to be seen in the context of a lot of other artistic activity.
+ - The text for me is the musical score. I’m the instrument. My voice is the instrument. My voice is articulating the sounds which are coming through the imaginings and visitations in my head, and I’m making these sounds but I’ve selected them from an ocean of sound.
+ - We humans need to do better with our vast minds and alchemical powers. Future radial poetries might be more symbiotic with the rest of consciousness.
+
+57 quotes

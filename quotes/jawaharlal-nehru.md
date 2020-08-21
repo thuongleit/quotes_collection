@@ -1,0 +1,113 @@
+ - We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.
+ - To be successful in life what you need is education.
+ - Most things, except agriculture, can wait.
+ - You can tell the condition of a nation by looking at the status of its women.
+ - Life is like a game of cards. The hand you are dealt is determinism; the way you play it is free will.
+ - Children are like buds in a garden and should be carefully and lovingly nurtured, as they are the future of the nation and the citizens of tomorrow.
+ - Success often comes to those who dare to act. It seldom goes to the timid who are ever afraid of the consequences.
+ - Culture is the widening of the mind and of the spirit.
+ - At the stroke of the midnight hour, when the world sleeps, India will awake to life and freedom. A moment comes, which comes but rarely in history, when we step out from the old to the new, when an age ends, and when the soul of a nation, long suppressed, finds utterance.
+ - Do not advise too much: do the job yourself. This is the only advice you can give to others. Do it and others will follow.
+ - Ignorance is always afraid of change.
+ - The future belongs to science and those who make friends with science.
+ - Failure comes only when we forget our ideals and objectives and principles.
+ - Time is not measured by the passing of years but by what one does, what one feels, and what one achieves.
+ - The policy of being too cautious is the greatest risk of all.
+ - Facts are facts and will not disappear on account of your likes.
+ - Poverty anywhere is a danger to prosperity everywhere.
+ - Peace is not merely an absence of war. It is also a state of mind.
+ - The Bhagavad Gita deals essentially with the spiritual foundation of human existence. It is a call of action to meet the obligations and duties of life; yet keeping in view the spiritual nature and grander purpose of the universe.
+ - The person who talks most of his own virtue is often the least virtuous.
+ - Every little thing counts in a crisis.
+ - A tyrst with destiny – A the stroke of midnight hour, when the world sleeps, India will awaken to life and Freedom.
+ - Play the hand you’re dealt.
+ - What we need is a generation of peace.
+ - Loyal and efficient work in a great cause, even though it may not be immediately recognized, ultimately bears fruit.
+ - Citizenship consists in the service of the country.
+ - What we really are matters more than what other people think of us.
+ - Democracy and socialism are means to an end, not the end itself.
+ - There is nothing more horrifying than stupidity in action.
+ - A country is known by the way it treats its animals.
+ - The boundaries of democracy have to be widened so as to include economic equality also. This is the great revolution through which we are all passing.
+ - The Ganga to me is the symbol of India’s memorable past which has been flowing into the present and continues to flow towards the ocean of the future.
+ - The ambition of the greatest men of our generation has been to wipe every tear from every eye. That may be beyond us, but so long as there are tears and suffering, so long our work will not be over.
+ - At the dawn of history India started on her unending quest, and trackless centuries are filled with her striving and the grandeur of her success and her failures. Through good and ill fortune alike she has never lost sight of that quest or forgotten the ideals which gave her strength.
+ - In the name of religion many great and fine deeds have been performed. In the name of religion also, thousands and millions have been killed, and every possible crime has been committed.
+ - What is history, indeed, but a record of change?
+ - You don’t change the course of history by turning the faces of portraits to the wall.
+ - Those who boast are seldom the great.
+ - A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.
+ - A great disaster is a symbol to us to remember all the big things of life and forget the small things, of which we have thought too much.
+ - Culture is the widening of the mind and of the spirit. It is never a narrowing of the mind or a restriction of the human spirit or the country’s spirit.
+ - Peace is not a relationship of nations. It is a condition of mind brought about by a serenity of soul. Peace is not merely the absence of war. It is also a state of mind. Lasting peace can come only to peaceful people.
+ - Please remember that law and sense are not always the same.
+ - I think the years I have spent in prison have been the most formative and important in my life because of the discipline, the sensations, but chiefly the opportunity to think clearly, to try to understand things.
+ - We can’t encourage narrow mindedness, for no nation can be great whose people are narrow in thought.
+ - Where freedom is menaced or justice threatened or where aggression takes place, we cannot be and shall not be neutral.
+ - Let us be a little humble; let us think that the truth may not perhaps be entirely with us.
+ - The basic fact of today is the tremendous pace of change in human life.
+ - Time is not measured by the years that pass by, instead by the things you do, feel or accomplish...
+ - Evil unchecked grows, evil tolerated poisons the whole system.
+ - Democracy is good. I say this because other systems are worse.
+ - Obviously, the highest type of efficiency is that which can utilize existing material to the best advantage.
+ - The only alternative to coexistence is codestruction.
+ - It is the habit of every aggressor nation to claim that it is acting on the defensive.
+ - The future has to be lived before it can be written about.
+ - I am the last Englishman to rule in India.
+ - Without peace, all other dreams vanish and are reduced to ashes.
+ - I have long believed that the only way peace can be achieved is through world government.
+ - It is a fundamental rule of human life, that if the approach is good, the response is good.
+ - The light has gone out of our lives and there is darkness everywhere following Gandhi’s assassination.
+ - Democracy is good. I say this because other systems are worse. So we are forced to accept democracy. It has good points and also bad. But merely saying that democracy will solve all problems is utterly wrong. Problems are solved by intelligence and hard work.
+ - India has known the innocence and insouciance of childhood, the passion and abandon of youth, and the ripe wisdom of maturity that comes from long experience of pain and pleasure; and over and over a gain she has renewed her childhood and youth and age.
+ - History is the record of human progress, a record of the struggle of the advancement of the human mind, of the human spirit, towards some known or unknown objective.
+ - I want nothing to do with any religion concerned with keeping the masses satisfied to live in hunger, filth, and ignorance.
+ - It is now clear that science is incapable of ordering life. A life is ordered by values.
+ - As fear is a close companion to falsehood, so truth follows fearlessness.
+ - There is perhaps nothing so bad and so dangerous in life as fear.
+ - Our chief defect is that we are more given to talking about things than to doing them.
+ - A man who is afraid will do anything.
+ - It is far better to know our own weaknesses and failures than to point out those of others.
+ - I have always thought that the best way to find out what is right and what is not right, what should be done and what should not be done, is not to give a sermon, but to talk and discuss, and out of discussion sometimes a little bit of truth comes out.
+ - Lasting peace can come only to peaceful people.
+ - The forces in a capitalist society, if left unchecked, tend to make the rich richer and the poor poorer.
+ - I do not attach much importance to America’s bombs. I attach importance to her great vitality and integrity. The strength of America is deeper and more significant than her financial power.
+ - Theoretical approaches have their place and are, I suppose, essential but a theory must be tempered with reality.
+ - The man who has gotten everything he wants is all in favor of peace and order.
+ - All the nations and peoples are too closely knit together today for any one of them to imagine that it can live apart. Peace has been said to be indivisible, so is freedom, so is prosperity now, and so also is disaster in this one world that can no longer be split into isolated fragments.
+ - The art of a people is a true mirror of their minds.
+ - To be in good moral condition requires at least as much training as to be in good physical condition.
+ - No country or people who are slaves to dogma and the dogmatic mentality can progress, and unhappily our country and people have become extraordinarily dogmatic and little-minded.
+ - I am getting old and the sign of old age is that I begin to philosophize and ponder over problems which should not be my concern at all.
+ - Great causes and little men go ill together.
+ - America is a country no one should go to for the first time.
+ - It is fitting that at this solemn moment we take the pledge of dedication to the service of India and her people and to the still larger cause of human ity.
+ - Blood and tears are going to be our lot, whether we like them or not. Our blood and tears will flow; maybe the parched soil of India needs them so that the fine flower of freedom may grow again.
+ - When the present is full of gloom, the past becomes haven of refuge that provides relief and inspiration.
+ - Crises and deadlocks when they occur have at least this advantage, that they force us to think.
+ - Logic and cold reason are poor weapons to fight fear and distrust. Only faith and generosity can overcome them.
+ - If the world suffers from mental deterioration or from moral degradation, then something goes wrong at the very root of civilization or culture. Even though that civilization may drag out for a considerable period, it grows less and less vital and ultimately tumbles down.
+ - There is only one thing that remains to us, that cannot be taken away: to act with courage and dignity and to stick to the ideals that have given meaning to life.
+ - For the first time i began to think, consciously and deliberately of religion and other worlds. The Hindu religion especially went up in my estimation; not the ritual or ceremonial part, but it’s great books, the “Upnishads”, and the “Bhagavad Gita”.
+ - The person who runs away exposes himself to that very danger more than a person who sits quietly.
+ - It is only too easy to make suggestions and later try to escape the consequences of what we say.
+ - Action to be effective must be directed to clearly conceived ends.
+ - Every great revolution, whether it is right or not, we really know has any vital, urgent need to basis. It comes not just from itself.
+ - Most of us seldom take the trouble to think. It is a troublesome and fatiguing process and often leads to uncomfortable conclusions. But crises and deadlocks when they occur have at least this advantage, that they force us to think.
+ - It is better to understand a part of truth and apply it to our lives than to understand nothing at all and flounder helplessly in a vain attempt to pierce the mystery of existence.
+ - Action itself, so long as I am convinced that it is right action, gives me satisfaction.
+ - Those who are prepared to die for any cause are seldom defeated.
+ - It is always more difficult to fight one’s own failings than the power of an adversary.
+ - The purely agitational attitude is not good enough for a detailed consideration of a subject.
+ - Unity must be of the mind and heart, a sense of belonging together and of facing together those who attack it.
+ - Restraint does not mean weakness. It does not mean giving in.
+ - Only a prisoner who has been confined for long behind high walk can appreciate the extraordinary psychological value of these outside walks and open views.
+ - A theory must be tempered with reality.
+ - It is dangerous and harmful to be guided in our life’s course by hatreds and aversions, for they are wasteful of energy and limit and twist the mind and prevent it from perceiving the truth.
+ - There are two things that have to happen before an idea catches on. One is that the idea should be good. The other is that it should fit in with the temper of the age. If it does not, even a good idea may well be passed by.
+ - When you imitate the enemy’s tactics, you take on his liabilities.
+ - A language is something infinitely greater than grammar and philology. It is the poetic testament of the genius of a race and a culture, and the living embodiment of the thoughts and fancies that have moulded them.
+ - I think that sacrifices of animals in the name of religion are barbarous and they degrade the name of religion.
+ - I wish that more and more adventurous young men would give up the gun in favour of the camera.
+
+111 quotes

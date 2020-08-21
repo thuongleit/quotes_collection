@@ -1,0 +1,24 @@
+ - Sometimes its said that psychiatrists are doctors who are frightened by the sight of blood. I might have fallen into that category.
+ - And I thought about the psychic numbing involved in strategic projections of using hydrogen bombs or nuclear weapons of any kind. And I also thought about ways in which all of us undergo what could be called the numbing of everyday life.
+ - Again, I was influenced by my father, who was very much an atheist and took pride in combating the traditional or orthodox forms of Judaism, which his parents and which my mother’s parents were very steeped in.
+ - David Frankfurter’s valuable, well-written study takes us to the far reaches of demonology. In documenting the harm done by labeling others evil, he poses a challenge to those of us who believe, however regretfully, in the necessity of the concept.
+ - Every adult in the world has some sense that he or she might be obliterated at any time by these weapons that we have created.
+ - The one-sided exploitation of existential guilt is thought reform’s trump card, and perhaps its most important source of emotional influence over its participants. Revolving around it are issues most decisive to thought reform’s outcome.
+ - I learned a lot from Vietnam veterans, especially as some of them turned against their own war.
+ - In sum, doubling is the psychological means by which one invokes the evil potential of the self. That evil is neither inherent in the self nor foreign to it. To live out the doubling and call forth the evil is a moral choice for which one is responsible, whatever the level of consciousness involved.
+ - When I was still in my psychiatric residency training in New York City, I was subjected to the doctor draft of that time, during the early fifties, at the time of the Korean War.
+ - Yes, I’ve been very preoccupied with the survivor all through my work.
+ - One reason that I embarked on a study of Nazi doctors was that in this personal journey, I had the feeling increasingly that I did want to do a Holocaust study and that increasingly I wanted it to be of perpetrators, which I thought was more needed.
+ - It may sound terrible, but I often say that the military saved me from a conventional life in the United States and I’ve never really thanked them for it, because I haven’t exactly been pro-military in my work.
+ - I did the first study because I had been exposed to something that I took to be important and interesting – this thought reform process – in the military.
+ - The other thing that happened was my last military assignment – this was in the air force; I had enlisted in order to avoid being drafted as a private, and of course I only practiced medicine or psychiatry in the air force so I was never in any kind of violent combat.
+ - I never quite envisioned myself a proper doctor under that white coat, but I was interested in the idea of healing and in the psychological dimension rather early on.
+ - And I was troubled by the heavy-handed prose of so much psychoanalytic writing, which seemed drowned in its own concepts.
+ - But I spent just two calendar years at Cornell University, though it was covering more than three years of work, and then went to medical school and did become interested in psychiatry, and even helped form a kind of psychiatry club in medical school.
+ - I don’t have the feeling that as a very young person I read books that absolutely made their mark on my mind.
+ - But when I went to Hiroshima and began to study or just listen to people’s descriptions of their work, it was quite clear they were talking about death all the time, about people dying all around them, about their own fear of death.
+ - I’m a Brooklyn boy. I was born in Brooklyn, New York, and raised there, and spent most of my childhood there.
+ - As a kid I was fascinated with sports, and I loved sports more than anything else. The first books I read were about sports, like books about Baseball Joe, as one baseball hero was called.
+ - And I managed to arrange to get some research support and to stay in Hong Kong for another year and a half, interviewing people coming out of China, both Westerners and Chinese. And that was my first real research study on thought reform or so-called brainwashing.
+
+22 quotes

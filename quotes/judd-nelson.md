@@ -1,0 +1,39 @@
+ - With failure, you just try again.
+ - Sweets, you couldn’t ignore me if you tried.
+ - I took all the philosophy courses I could.
+ - Catcher in the Rye had a profound impact on me-the idea that we all have lots of dreams that are slowly being chipped away as we grow up.
+ - I like being a villain. Villains are more exciting.
+ - Young alienation, disappointment and heartache is all a part of the first real growing up that we do.
+ - I love the rehearsal process in the theatre, and the visceral sense of contact and communication with a live audience.
+ - The movie that’s had the most effect on me is Jaws. To this day when I’m in the ocean, I’m hearing that music.
+ - While they would have provided financial support if I had needed it, the greatest support my parents gave was emotional, psychological.
+ - I find it very difficult to relax. I find it increasingly difficult to find outlets for my frustration.
+ - My first paid acting job was a movie called Fandango. It also starred Kevin Costner.
+ - As a kid I had a crush on Sophia Loren and Raquel Welch.
+ - It is a career of make-believe, of masks. We all have masks in life.
+ - I went to acting school in New York City for two years. I studied with Stella Adler.
+ - It’s very easy to confuse Sean Connery with James Bond. Sometimes in the entertainment industry, people believe the cake is more real than the baker.
+ - I don’t have any blindness when it comes to my money. As an actor, you can get distracted by your work. I do keep an eye on my nest egg, if you will.
+ - I’m involved with Recording Artists and Actors Against Drunk Driving. I’m also involved with most children’s causes, because children can’t help the environment they’re in.
+ - My Brat Pack buddies and I didn’t exactly handle celebrity very well. Success at an early age is far more difficult to handle than failure.
+ - Remember to be as smart as you are.
+ - Ice T was just a pleasure to work with. He was a smart gentleman.
+ - My closest friend is canine. I have precious few close friends, and most of them are not actors.
+ - I just couldn’t go back to Suddenly Susan after David Strickland’s suicide. I didn’t see how we could make the show light and funny any more.
+ - Heroes always make the right decision; I find that seldom happens in my life.
+ - Screws fall out all the time, the world is an imperfect place.
+ - My first love is acting on stage. A sitcom is a hybrid of stage and film.
+ - I like every single actor or actress in the world, because we never know what the conditions are like when they are working. I give everyone the benefit of the doubt and root for them like a psychotic sports fan.
+ - Almost anything makes me laugh, especially jokes at my own expense. And I will never, ever admit to being ticklish anywhere.
+ - When I was in college, all the pretty women were in the theatre, so I auditioned for a play.
+ - I am very grateful to make my living doing what I would do for free.
+ - All of the directors I’ve worked with I have loved and would work with again. I have no favorites.
+ - I always thought that the badge a cop has was more like the shield that Captain America has. It’s an obvious sign of good and something you’ll protect other people with, but it will also protect you.
+ - I like the way the old Toyotas look.
+ - I have adopted clothes from all the projects I’m in. It’s really been a while since I’ve bought anything myself.
+ - A fancy watch, it’s completely unnecessary. I just need a watch to tell the right time.
+ - It’s great to work with people that you like, any job, no matter what you do.
+ - I don’t know if it matters what country you’re from, size of the city you’re from, urban or rural, there are people that are hurting each other everywhere.
+ - Death is not my best subject.
+
+37 quotes

@@ -1,0 +1,66 @@
+ - You can destroy your now by worrying about tomorrow.
+ - Wait a minute, maybe I can do anything.
+ - You are what you settle for.
+ - Freedom is just another word for when you have NOTHING left to lose.
+ - Oh Lord, won’t you buy me a Mercedes Benz.
+ - The more you live, the less you die.
+ - Don’t compromise yourself. You are all you’ve got.
+ - The older the grapes, sweeter the wine.
+ - You are what you settle for. You are only as much as you settle for.
+ - My business is to enjoy and have fun. And why not, if in the end everything will end, right?
+ - You know you’ve got it, if it makes you feel good.
+ - I’m one of those regular weird people.
+ - You got to get it while you can.
+ - It’s hard to be free but when it works, it’s worth it!
+ - If you’ve got a today, don’t wear it tomorrow. Tomorrow never happens. It’s all the same day.
+ - Like most girls I’m always really self-conscious about do I look fat, if my legs are short, if I’m weird shaped, but when I go on stage, man, it never occurs to me. I think I look beautiful.
+ - I think I think too much. That’s why I drink!
+ - Don’t go looking for Mr. Right. Look for Mr. Right Now.
+ - Singing, it’s like it’s like loving somebody, it’s a supreme emotional and physical experience.
+ - On stage I make love to twenty five thousand people; and then I go home alone.
+ - As good as you’ve been to this world is as good as it’s gonna be right back to you.
+ - Don’t you know that you’re nothing more than a one night stand?
+ - Being an intellectual creates a lot of questions and no answers.
+ - I would trade all my tomorrow’s for one single yesterday.
+ - It’s not what isn’t, it’s what you wish was that makes unhappiness.
+ - I love being a star more than life itself.
+ - All any girl really wants is just love and a man. But what man can put up with a rock-n-roll star?
+ - Why should I hold back now and sound mediocre, just so I can sound mediocre twenty years from now?
+ - I always wanted to be an artist, whatever that was, like other chicks want to be stewardesses. I read. I painted. I thought.
+ - I talk to the audience, look into their eyes. I need them and they need me.
+ - At least we know we tend to be afraid. If you object to my plural noun, I’ll retract it.
+ - I just want to feel as much as I can, it’s what soul is all about.
+ - I got treated very badly in Texas. They don’t treat beatniks too good in Texas. Port Arthur people thought I was a beatnik, though they’d never seen one and neither had I.
+ - If I hold back, I’m no good. I’m no good. I’d rather be good sometimes, than holding back all the time.
+ - Guess what, I might be the first hippie pinup girl.
+ - I don’t know what happened. I just exploded. I’d never sung like that before. I used to stand still and sing simple, but you can’t sing like that in front of a rock band. You have to sing loud and move wild with all that in back of you. Now, I don’t know how to perform any other way.
+ - I won’t quit to become someone’s old lady.
+ - Texas is OK if you want to settle down and do your own thing quietly, but it’s not for outrageous people, and I was always outrageous.
+ - If someone comes along, gonna give you some love and affection, I say get it while you can.
+ - I can’t talk about my singing; I’m inside it. How can you describe something you’re inside of?
+ - Hippies believe the world could be a better place. Beatniks believe things aren’t going to get better and say the hell with it, stay stoned and have a good time.
+ - I’d rather have ten years of superhypermost than live to be seventy sitting in some goddamn chair watching TV.
+ - When I sing, I feel like when you’re first in love. It’s more than sex. It’s that point two people can get to they call love, when you really touch someone for the first time, but it’s gigantic, multiplied by the whole audience. I feel chills.
+ - I’m tired of all these hippie jack-offs.
+ - When you hold somebody, you gotta hold them like it’s the last minute of your life.
+ - You can’t stay in your home town and play because the two people will get tired of seeing you.
+ - They asked me, How did you learn to sing the blues like that? How did you learn to sing that heavy? I just opened my mouth and that’s what I sounded like. You can’t make up something that you don’t feel. I didn’t make it up. I just opened my mouth and it existed.
+ - My father wouldn’t get us a TV, he wouldn’t allow a TV in the house.
+ - I started singing rhythmically, and now I’m learning from Otis Redding to push a song instead of just sliding over it.
+ - I’d rather not sing than sing quiet.
+ - Gimme a pigfoot and a bottle of beer.
+ - In my insides, it really hurts if someone doesn’t like me. It’s silly.
+ - I had a lot of hurts and confusions. You know, it’s hard when you’re a kid to be different. You’re all full of things, and you don’t know that it’s about.
+ - Audiences like their blues singers to be miserable.
+ - I believe the only people who truly experience and test the application of equality are twins.
+ - I want a bigger band with higher highs, a bigger ladder. And I want more bottom – I want an incredible amount of bottom. I want more noise. When I do a rock tune I want it to be so HUGE...
+ - Maybe my audiences can enjoy my music more if they think I’m destroying myself.
+ - What we’ve had to do is learn to control success, put it in perspective, and not lose the essence of what we’re doing – the music.
+ - People, whether they know it or not, like their blues singers miserable. They like their blues singers to die afterwards.
+ - You know why we’re stuck with the myth that only black people have soul? Because white people don’t let themselves feel things.
+ - I started out to be a person on the street, just like everybody else. I didn’t start out to be a singer. But I got sort of swept up in this singing thing, and after I got involved in it it got really important to me if I was good or not.
+ - At my concerts most of the chicks are looking for liberation, they think I’m gonna show ’em how to do it.
+ - You can feel all things at once, so why not wear all things at once?
+ - When everything is together – the band, me, the audience, it’s boss! It’s just like magic.
+
+64 quotes

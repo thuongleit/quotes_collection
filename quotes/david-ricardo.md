@@ -1,0 +1,57 @@
+ - The farmer and manufacturer can no more live without profit than the labourer without wages.
+ - To alter the money value of commodities, by altering the value of money, and yet to raise the same money amount by taxes, is then undoubtedly to increase the burthens of society.
+ - Neither a state nor a bank ever have had unrestricted power of issuing paper money without abusing that power.
+ - Money is neither a material to work upon nor a tool to work with.
+ - The interest of the landlord is always opposed to the interests of every other class in the community.
+ - It is here we come to the heart of the matter. The economic principle of comparative advantage’, ’a country may, in return for manufactured commodities, import corn even if it can be grown with less labour than in the country from which it is imported.
+ - Like all other contracts, wages should be left to the fair and free competition of themarket, and should never be controlled by the interference of the legislature.
+ - The price of corn will naturally rise with the difficulty of producing the last portions of it,...
+ - There is no way of keeping profits up but by keeping wages down...
+ - Nothing contributes so much to the prosperity and happiness of a country as high profits.
+ - The exchangeable value of all commodities rises as the difficulties of their production increase.
+ - If the demand for home commodities should be diminished, because of the fall of rent on the part of the landlords, it will be increased in a far greater degree by the increased opulence of the commercial classes.
+ - Gold and silver are no doubt subject to fluctuations, from the discovery of new and more abundant mines; but such discoveries are rare, and their effects, though powerful, are limited to periods of comparatively short duration.
+ - There can be no greater error then in supposing that capital is increased by non-consumption.
+ - Every transaction in commerce is an independent transaction.
+ - A rise in wages, from an alteration in the value of money, produces a general effect on price, and for that reason it produces no real effect whatever on profits.
+ - The factors left out of the Ricardian equation are falling wages and idle capacity.
+ - Again two manufacturers may employ the same amount of fixed, and the same amount of circulating capital; but the durability of their fixed capitals may be very unequal.
+ - Whenever, then, the usual and ordinary rate of the profits of agricultural stock, and all the outgoings belonging to the cultivation of land, are together equal to the value of the whole produce, there can be no rent.
+ - If English money was of the same value then as before, Hamburgh money must have risen in value. But where is the proof of this?
+ - The demand for money is regulated entirely by its value, and its value by its quantity.
+ - But it is clear that the price of labour has no necessary connection with the price of food, since it depends entirely on the supply of labourers compared with the demand.
+ - As the revenue of the farmer is realized in raw produce, or in the value of raw produce, he is interested, as well as the landlord, in its high exchangeable value, but a low price of produce may be compensated to him by a great additional quantity.
+ - During the period of capital moving from one employment to another, the profits on that to which capital is flowing will be relatively high, but will continue so no longer than till the requisite capital is obtained.
+ - But a rise in the wages of labour would not equally affect commodities produced with machinery quickly consumed, and commodities produced with machinery slowly consumed.
+ - But a tax on luxuries would no other effect than to raise their price. It would fall wholly on the consumer, and could neither increase wages nor lower profits.
+ - Profits are not made by differential cleverness, but by differential stupidity.
+ - Rent is the portion of the earth, which is paid to the landlord for the user of the original and indestructible powers of the soil.
+ - No extension of foreign trade will immediately increase the amount of value in a country, although it will very powerfully contribute to increase the mass of commodities and therefore the sum of enjoyments.
+ - Whether a bank lent one million, ten million, or a hundred millions, they would not permanently alter the market rate of interest; they would alter only the value of the money they issued.
+ - Utility then is not the measure of exchangeable value, although it is absolutely essential to it.
+ - The wheat bought by a farmer to sow is comparatively a fixed capital to the wheat purchased by a baker to make into loaves.
+ - Possessing utility, commodities derive their exchangeable value from two sources: from their scarcity, and from the quantity of labour required to obtain them.
+ - Profits might also increase, because improvements might take place in agriculture, or in the implements of husbandry, which would augment the produce with the same cost of production.
+ - If a tax on malt would raise the price of beer, a tax on bread must raise the price of bread.
+ - Taxation under every form presents but a choice of evils.
+ - The variation in the value of money, however great, makes no difference in the rate of profits;...
+ - A BOUNTY on the exportation of corn tends to lower its price to the foreign consumer, but it has no permanent effect on its price in the home market.
+ - Gold and silver, like other commodities, have an intrinsic value, which is not arbitrary, but is dependent on their scarcity, the quantity of labour bestowed in procuring them, and the value of the capital employed in the mines which produce them.
+ - The opinions that the price of commodities depends solely on the proportion of supply and demand, or demand to supply, has become almost an axiom in political economy, and has been the source of much error in that science.
+ - In the same manner if any nation wasted part of its wealth, or lost part of its trade, it could not retain the same quantity of circulating medium which it before possessed.
+ - Called an inquiry into the laws which determine the division of the produce...
+ - Adam Smith, and other able writers to whom I have alluded, not having viewed correctly the principles of rent, have, it appears to me, overlooked many important truths, which can only be discovered after the subject of rent is thoroughly understood.
+ - It is not by the absolute quantity of produce obtained by either class, that we can correctly judge of the rate of profit, rent, and wages, but by the quantity of labour required to obtain that produce.
+ - If a commodity were in no way useful, – in other words, if it could in no way contribute to our gratification, – it would be destitute of exchangeable value, however scarce it might be, or whatever quantity of labour might be necessary to procure it.
+ - If I discover a manure which will enable me to make a piece of land produce 20 per cent more corn, I may withdraw at least a portion of my capital from the most unproductive part of my farm.
+ - For price is everywhere regulated by the return obtained by this last portion of capital, for which no rent whatever is paid.
+ - Whenever the current of money is forcibly stopped, and when money is prevented from settling at its just level, there are no limits to the possible variations of the exchange.
+ - Gold, on the contrary, though of little use compared with air or water, will exchange for a great quantity of other goods.
+ - If then the prosperity of the commercial classes, will most certainly lead to accumulation of capital, and the encouragement of productive industry; these can by no means be so surely obtained as by a fall in the price of corn.
+ - I have already expressed my opinion on this subject in treating of rent, and have now only further to add, that rent is a creation of value, as I understand that word, but not a creation of wealth.
+ - A rise of wages from this cause will, indeed, be invariably accompanied by a rise in the price of commodities; but in such cases, it will be found that labour and all commodities have not varied in regard to each other, and that the variation has been confined to money.
+ - After all the fertile land in the immediate neighbourhood of the first settlers were cultivated, if capital and population increased, more food would be required, and it could only be procured from land not so advantageously situated.
+ - Neither machines, nor the commodities made by them, rise in real value, but all commodities made by machines fall, and fall in proportion to their durability.
+ - By far the greatest part of those goods which are the objects of desire, are procured by labour and they may be multiplied, not in one country alone, but in many, almost without any assignable limit, if we are disposed to bestow the labour necessary to obtain them.
+
+55 quotes

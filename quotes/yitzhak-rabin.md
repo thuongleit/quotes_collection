@@ -1,0 +1,61 @@
+ - Peace has no borders.
+ - We must think differently, look at things in a different way. Peace requires a world of new concepts, new definitions.
+ - You don’t make friends with friends. You have got to make friends with your enemies.
+ - Peace is not made with friends. Peace is made with enemies.
+ - Jerusalem is united, will never be divided again.
+ - Practically the only way to dry the swamp of radical Islam is through economic development and an improved standard of living.
+ - You have got to sit down and talk to people. You can’t understand people from a distance.
+ - Israel has an important principle: It is only Israel that is responsible for our security.
+ - We do not celebrate the death of our enemies.
+ - I, serial number 30743, Major General Yitzhak Rabin, am a soldier in the army of peace.
+ - Peace will be victorious.
+ - Military cemeteries in every corner of the world are silent testimony to the failure of national leaders to sanctify human life.
+ - We can continue to fight. We can continue to kill – and continue to be killed. But we can also try to put a stop to this never-ending cycle of blood. We can also give peace a chance.
+ - Enough of blood and tears. Enough!
+ - No Arab ruler will consider the peace process seriously so long as he is able to toy with the idea of achieving more by the way of violence.
+ - We’ll fight terror like there’s no peace, and make peace like there’s no terror.
+ - I believe that in the long run, separation between Israel and the Palestinians is the best solution for resolving the Israeli-Palestinian conflict.
+ - For me, Jerusalem was united, will be under Israel sovereignty, will be the capital of Israel and the heart of the Jewish people.
+ - Vis a vis the Golan Heights, the present government of Israel, under my leadership, is the first government that is ready to speak about a withdrawal.
+ - Peace with Syria would provide more security than a few settlements on the Golan.
+ - I believe however that peace is attainable regardless of the Arabs mentality, society or government.
+ - It is my hope that I could be not just a Prime Minister, but a Prime Minister for Aboriginal affairs, the first I imagine that we’ve ever had.
+ - We will not leave the Golan Heights, not even in exchange for a peace treaty. We will be ready for a limited compromise and it does not have to be in territorial terms.
+ - I don’t believe that in the name of the holiness of the city you have to put barbed wires, machine gun nests, mine pins and everything of that, in the name of the holiness of Jerusalem.
+ - We are ready to compromise. We are ready to take calculated risks, but for a peace that will give us security.
+ - If you have the same problem for a long time, maybe it’s not a problem. Maybe it’s a fact.
+ - I admire King Hussein his courage in leading his country for a long time.
+ - Israel is no longer a people that dwells alone, and has to join the global journey toward peace, reconciliation and international cooperation.
+ - A diplomatic peace is not yet the real peace. It is an essential step in the peace process leading towards a real peace.
+ - I am 73 years old. I was born in Jerusalem. I’m the first prime minister of Israel to be born here. I am the only former general to become a prime minister.
+ - The Government chose to give peace a chance. The Government chose to do something to achieve it.
+ - I was a military man for 27 years. I fought so long as there was no chance for peace. I believe that there is now a chance for peace, a great chance. We must take advantage of it for the sake of those standing here, and for those who are not here – and they are many.
+ - There is no way of finding the middle ground, even with the best intentions of the world. Our most sensible policy is to stall.
+ - It is not worth the paper it is written on unless it is backed by the kind of force that will make the other side consider the penalties too heavy to break the agreement.
+ - What I, as the prime minister of the present government of Israel, started to do, is first to tackle the longest part of the Arab-Israeli conflict, the Palestinian-Israeli conflict.
+ - I considered the prevention of war as the test of our security policy; in addition to being able to rapidly and forcefully end any war forced upon us.
+ - Only the change on the international scene, the crisis in the gulf, and the strong, firm position of the United States against aggression between two Arab countries created realities that led to the Madrid Peace Conference.
+ - The negotiations must address all aspects, both peace and withdrawal.
+ - Steps toward a rapprochement between Israel and the Arab states create a process that turns economics into the moving force that shapes the regional relations instead of nationalist interests that were dominant in the past.
+ - This rally must send a message to the Israeli people, to the Jewish people around the world, to the many people in the Arab world, and indeed to the entire world, that the Israeli people want peace, support peace. For this, I thank you.
+ - It is the duty of the government to guarantee maximum security, and this is not an easy task.
+ - We appreciate the efforts of the United States, of the president, of the secretary of state, and we are ready to find any form of talks, but we have to overcome the differences between Syria and Israel to reach peace.
+ - I believe that it is my responsibility as the prime minister of Israel to do whatever can be done to exploit the unique opportunities that lie ahead of us to move towards peace. Not everything can be done by one act.
+ - I’ll continue to carry out whatever we are committed to. Whatever we believe leads us to a permanent solution the way we want it, the way I want it.
+ - I invite President Assad to come to Jerusalem and to speak with me, with our parliament, with whomever he wants to speak in Israel and in the territories among the Palestinians.
+ - There are two phases of the redeployment of the Israeli forces in the West Bank: One, to allow elections. Second, after the elections, to help further redeployment.
+ - A couple of things are missing from Indigenous affairs. We tend to go and process, we tend to spend a lot of money for very limited outcomes, and we have got to change that.
+ - We have the right to ensure our security, especially when it is possible to reach agreement on a political solution.
+ - We are committed to free access and free practice, to the members of the other two religions, to the holy shrines in Jerusalem. To the Muslims, to the Christians.
+ - I enter negotiations with Chairman Arafat, the leader of the PLO, the representative of the Palestinian people, with the purpose to have coexistence between our two entities, Israel as a Jewish state and Palestinian state, entity, next to us, living in peace.
+ - One of my theories about why we’ve been cranky is Australians have been forced to focus on politics or party politics a little bit more than they normally would.
+ - We accept every form or way to talk to the Syrians how to achieve peace.
+ - Syria doesn’t want to talk with us on a bilateral basis, only under the auspices of the United States.
+ - Indigenous programs and policy will come within the Department of Prime Minister and Cabinet because Indigenous policy and programs should not be an add – on, they should not be an afterthought, but they should be at the heart of a good Australian Government.
+ - We have to recognize that there is a Palestinian entity, that the PLO and the Palestinian Authority has to run their life.
+ - The struggle to get weapons is continuous, but the United States will aid us, if it finds Israel displaying a willingness for peace.
+ - I think the fact that we have been focussing on politics quite a lot and the tumult of politics rather than what we should be doing in terms of policy has made, I think, voters quite grumpy.
+ - I am healthy. I wish all my colleagues to the peace process to be healthy.
+ - In the midst of fighting there is no place for public debate.
+
+59 quotes

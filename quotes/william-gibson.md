@@ -1,0 +1,111 @@
+ - The future has already arrived. It’s just not evenly distributed yet.
+ - Time moves in one direction, memory in another.
+ - The sky above the port was the color of television, tuned to a dead station.
+ - The future is not google-able.
+ - We have no future because our present is too volatile. We have only risk management. The spinning of the given moment’s scenarios. Pattern recognition.
+ - Cyberspace. A consensual hallucination.
+ - You must learn to overcome your very natural and appropriate revulsion for your own work.
+ - He took a duck in the face at 250 knots.
+ - Language is to the mind more than light is to the eye.
+ - Cyberspace. A consensual hallucination experienced daily by billions of legitimate operators, in every nation, by children being taught mathematical concepts.
+ - Time is money, but also money is money.
+ - I’m happiest with people who’ve gotten furthest from traditional ideas of nationalism.
+ - The street finds its own uses for things.
+ - Stand high long enough and your lightning will come.
+ - When you want to know how things really work, study them when they’re coming apart.
+ - Things aren’t different. Things are things.
+ - For years I have been mourning and not for my dead, it is for this boy for whatever corner in my heart died when his childhood slid out of my arms.
+ - It was hot, the night we burned Chrome.
+ - A graphic representation of data abstracted from the banks of every computer in the human system. Unthinkable complexity. Lines of light ranged in the nonspace of the mind, clusters and constellations of data. Like city lights, receding.
+ - It’s impossible to move, to live, to operate at any level without leaving traces, bits, seemingly meaningless fragments of personal information.
+ - I’ve become convinced that nostalgia is a fundamentally unhealthy modality. When you see it, it’s usually attached to something else that’s really, seriously bad. I don’t traffic in nostalgia. We’re becoming a global culture.
+ - And, for an instant, she stared directly into those soft blue eyes and knew, with an instinctive mammalian certainty, that the exceedingly rich were no longer even remotely human.
+ - It doesn’t matter how fast your modem is if you’re being shelled by ethnic separatists.
+ - I started writing short fiction very briefly, as I imagine is the case for some novelists.
+ - Tim Powers is a brilliant writer.
+ - When I was a child, science fiction was the first source I’ve found for information. Science fiction was a very very low cultural stream in those days. It was completly below the radar and no one bothered to censurate it.
+ - I think that technologies are morally neutral until we apply them. It’s only when we use them for good or for evil that they become good or evil.
+ - We see in order to move; we move in order to see.
+ - All the speed he took, all the turns he’d taken and the corners he’d cut in Night City, and still he’d see the matrix in his sleep, bright lattices of logic unfolding across that colorless void...
+ - I think I’d probably tell you that it’s easier to desire and pursue the attention of tens of millions of total strangers than it is to accept the love and loyalty of the people closest to us.
+ - The past is past, the future unformed. There is only the moment, and that is where he prefers to be.
+ - Upon arriving in the capital-F Future, we discover it, invariably, to be the lower-case now.
+ - People who feel safer with a gun than with guaranteed medical insurance don’t yet have a fully adult concept of scary.
+ - I’m often saddened and dismayed to see myself portrayed as either a Luddite or as a raving technophile. I’ve always thought that my job was to be as anthropologically neutral about emerging technologies as possible.
+ - The box was a universe, a poem, frozen on the boundaries of human experience.
+ - We monitor many frequencies. We listen always. Came a voice, out of the babel of tongues, speaking to us. It played us a mighty dub.
+ - Lost, so small amid that dark, hands grown cold, body image fading down corridors of television sky.
+ - If there’s a movie of Neuromancer, what I really want the special effects guys to do is make you see, from Case’s point of view, the little acid giggies: the little lines and trails coming off of things.
+ - The nature of emergent technology is, as Kevin Kelly once said, right out of control. It’s an element of human evolution that’s completely out of control. It’s sort of driving itself, and I don’t see it ceasing to do that.
+ - This perpetual toggling between nothing being new, under the sun, and everything having very recently changed, absolutely, is perhaps the central driving tension of my work.
+ - We’re living in a future that’s weirder than anybody except possibly.
+ - His teeth sang in their individual sockets like tuning forks, each one pitch-perfect and clear as ethanol.
+ - The present tense made him nervous.
+ - Somewhere, deep within her, surfaces a tiny clockwork submarine. There are times when you can only take the next step. And then another.
+ - To present a whole world that doesn’t exist and make it seem real, we have to more or less pretend we’re polymaths. That’s just the act of all good writing.
+ - All we really have when we pretend to write about the future is the moment in which we are writing. That’s why every imagined future obsoletes like an ice cream melting on the way back from the corner store.
+ - I think with one exception I’ve never changed an opening sentence after a book was completed.
+ - I can’t imagine writing a book without some strong female characters, unless that was a demand of the setting.
+ - Naps are essential to my process. Not dreams, but that state adjacent to sleep, the mind on waking.
+ - I’m a really good eavesdropper. I listen to what people say and remember all the buzzwords.
+ - There must be some Tommy Hilfiger event horizon, beyond which it is impossible to be more derivative, more removed from the source, more devoid of soul.
+ - My problem is that all things are increasingly interesting to me.
+ - Sometimes, I feel like a time traveller, cause the only way that we can really travel in time is just to get older.
+ - We are that strange species that constructs artifacts intended to counter the natural flow of forgetting.
+ - Some people dote on contemplating disasters.
+ - I don’t begin a novel with a shopping list – the novel becomes my shopping list as I write it.
+ - Damien is a friend. Their boy-girl Lego doesn’t click, he would say.
+ - I don’t always like writing, but I very much like having written.
+ - I’m quite good friends with the putative director, Vincenzo Natali, and I’m a big fan of his work, but beyond that, I don’t like to talk about other people’s work work-in-progress.
+ - If ignorance were enough to make things not exist, the world would be more like a lot of people think it is. But it’s not. And it’s not.
+ - Fiction is an illusion wrought with many small, conventionally symbolic marks, triggering visions in the minds of others.
+ - Generation X is dead. It has come to mean anyone aged 13 to 55 years old.
+ - Why shouldn’t we give our teachers a license to obtain software, all software, any software, for nothing? Does anyone demand a licensing fee, each time a child is taught the alphabet?
+ - I took Punk to be the detonation of some slow-fused projectile buried deep in society’s flank a decade earlier, and I took it to be, somehow, a sign.
+ - I’m a reluctant writer of non-fiction, in part because I don’t really feel qualified.
+ - I do not think an enormous permanent underclass is a very good thing to have if you’re attempting to operate something that at least pretends sometimes to be a democracy.
+ - I think science fiction gives us a wonderful toolkit to disassemble and reexamine this kind of incomprehensible, constantly changing present that we live in, that we often live in quite uncomfortably.
+ - I’m interested in people who become culturally fluent. And when I meet young people I’m often amazed they don’t quite seem to have a sense of where they’re from. They’re like the citizens of the airport.
+ - His eyes were eggs of unstable crystal, vibrating with a frequency whose name was rain and the sound of trains, suddenly sprouting a humming forest of hair-fine glass spines.
+ - I’d always maintained that much of the anarchy and craziness of the early Internet had a lot to do with the fact that governments just hadn’t realised it was there.
+ - That’s one of my favorite things about Twitter: You can tweak your feed into a fabulous novelty engine. That’s only one thing you can do with it, but it’s one of the things I find most entertaining about it.
+ - Novels set in imaginary futures are necessarily about the moment in which they are written.
+ - Dreaming in public is an important part of our job description, as science writers, but there are bad dreams as well as good dreams. We’re dreamers, you see, but we’re also realists, of a sort.
+ - Three in the morning. Making yourself a cup of coffee in the dark, using a flashlight when you pour the boiling water.
+ - One of the liberating effects of science fiction when I was a teenager was precisely its ability to tune me into all sorts of strange data and make me realize that I wasn’t as totally isolated in perceiving the world as being monstrous and crazy.
+ - That’s something that tends to happen with new technologies generally: The most interesting applications turn up on a battlefield, or in a gallery.
+ - Cyberspace is where you are when you’re on the telephone.
+ - Friday, August 04, 2006 MONUMENT posted 8:31 AM Silver nitrous girls pointed into occult winds of porn and destiny.
+ - Canadian cities looked the way American cities did on television.
+ - Television has – particularly at the HBO level in the United States – become a completely new genre. Something like Deadwood or The Wire is a whole new thing – there was no equivalent to that medium before. It’s like a new way of telling stories.
+ - Dreaming in public is an important part of our job description.
+ - The written word still enjoyed a certain prestige here. It was a sluggish country.
+ - I can’t do fiction unless I visualize what’s going on. When I began to write science fiction, one of the things I found lacking in it was visual specificity. It seemed there was a lot of lazy imagining, a lot of shorthand.
+ - I had a list of things that science fiction, particularly American science fiction, to me seemed to do with tedious regularity. One was to not have strong female protagonists. One was to envision the future, whatever it was, as America.
+ - Enlightenment is “being,” and it grows; it’s end is serenity.
+ - Occasionally if I look back at something I’ve written I’ll find one of those that I don’t understand, but that’s a bad thing – the unconscious has dealt me a bad hand.
+ - I wanted to make room for antiheroes.
+ - Some very considerable part of the gestural language of public places that had once belonged to cigarettes now belonged to phones.
+ - I’ve been interested in autism since I’ve known about it, which is more or less since I’ve been writing.
+ - I very seldom compose anything in my head which later finds its way into text, except character names sometimes – I’m often very much inspired by things that I misunderstand.
+ - I don’t much live my life as if I was living in a Raymond Chandler novel, which is probably a good thing.
+ - I can see television much more easily than I can see features, because the economy and politics of making big, big features seems to me to be narrowing even from what it was.
+ - Laney had recently noticed that the only people who had titles that clearly described their jobs had jobs he wouldn’t have wanted.
+ - Genuinely ubiquitous computing spreads like warm Vaseline.
+ - I was afraid to watch ‘Blade Runner’ in the theater because I was afraid the movie would be better than what I myself had been able to imagine. In a way, I was right to be afraid, because even the first few minutes were better.
+ - A book exists at the intersection of the author’s subconscious and the reader’s response.
+ - I don’t think about the real future very much.
+ - I have this prejudice that trilogies are long, three-volume novels.
+ - Futurists get to a certain age and, as one does, they suddenly recognize their own mortality.
+ - She walked on, comforted by the surf, by the one perpetual moment of beach-time, the now-and-always of it.
+ - I think the least important thing about science fiction for me is its predictive capacity.
+ - I don’t think of myself as being particulary a subversive writer, but I like to think that my work could afford someone else, the extra degree of freedom that I found when I first found science fiction.
+ - I’m not a very intentional writer. I try to be as unintentional as possible. What I basically try to do is invite the zeitgeist in to tea.
+ - Gadgets are usually the last thing I think about, and if there’s something new, I’ll get to the store for the final shipment of the first generation when it’s on sale. So I have last year’s stuff.
+ - All my life I’ve encountered people who were obsessed with one particular class of object or experience, who were constantly pursuing that thing. Since I was a little kid, I hadn’t afforded myself the opportunity, I guess, to have a hobby.
+ - I don’t have to write about the future. For most people, the present is enough like the future to be pretty scary.
+ - I assume that – because you can get degrees in journalism from very reputable universities – I assume that people can be trained to be journalists. I’ve never been entirely certain that anyone can be trained to be a novelist in the same way.
+ - I’ve always been interested in people who aren’t from anywhere in particular. I think it’s all melting. This has been true for as long as I can remember in my adult life.
+ - I find it interesting to see people – mostly people who are younger than I am – going to considerable trouble to try to reproduce things from an era that was far more physical, from a less virtual day.
+
+109 quotes

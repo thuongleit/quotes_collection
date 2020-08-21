@@ -1,0 +1,21 @@
+ - You can only do your best. That’s all you can do. And if it isn’t good enough, it isn’t good enough.
+ - Children should always be brave and do something about bullying. Its not okay to stand by and let it happen. Bullies thrive off secrecy. Children should tell someone if they see someone being bullied.
+ - Chaotic people often have chaotic lives, and I think they create that. But if you try and have an inner peace and a positive attitude, I think you attract that.
+ - Looking back, there is nothing wrong with that peace, love and equality that the hippies espoused. In many ways, we have regressed because they were into organic food, back to nature, make love not war, be good to all men, share and share alike – which is what many are talking about now.
+ - We’re all unique as actors. To yourself, you are unique, you have to think ‘I’m me, I’m not going to bunch myself with other people.’ Agents and producers have to get you into a box, to accommodate their limited imaginations.
+ - I’ve always liked new writing.
+ - If you’re at an award ceremony, you’re against your mates.
+ - At the time of Woodstock, I was just 13, but I used to see these exotic hippy creatures and I did look on with envy. How could you not? In an ideal world, I would have loved to have been a hippy – but I might have been a bit strait-laced. It was my fantasy.
+ - I don’t feel the need for religion. But I went on a yoga retreat last year and I do believe slightly in the karma thing and just being good and true unto yourself. And I slightly believe that you can attract good and bad to you.
+ - Having a child makes you strong and gives you chutzpah. It relaxed my attitude to the job; my center of focus shifted, which I think is very helpful, because even if you’re not a very indulgent actor you spend a lot of time thinking about yourself. I don’t think that is particularly healthy.
+ - Agents and producers have to get you into a box to accommodate their limited imaginations.
+ - Fortunately my career has never been about how I look, it’s about how I can be.
+ - I adore Bette Davis and Vivien Leigh, but more because they were good actresses. That’s what makes me interested in them, that they didn’t present themselves as idols, they were just doing their jobs.
+ - Look at Judi Dench, who’s brilliant in whatever bloody job she does.
+ - A lot of me is very up, and you have to have light and shade. They are both important and you have to be able to balance them. You have to admit that sadness is part of you and that it enriches you. I use it in my work.
+ - I worked in rep for six years, then I came to London and to the National Theatre. What’s better than that.
+ - The one good thing is that I get a lot more good scripts coming through my letterbox. ‘Vera Drake’ raised my profile in one way, and then ‘Harry Potter’ in another.
+ - I was brought up a Catholic, so I take no pleasure in guilt.
+ - You could say I’m a character actress. Or maybe a character actress who does peculiar, interesting lead roles. Does that make sense?
+
+19 quotes

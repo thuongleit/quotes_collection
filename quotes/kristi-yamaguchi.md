@@ -1,0 +1,40 @@
+ - An athlete gains so much knowledge by just participating in a sport. Focus, discipline, hard work, goal setting and, of course, the thrill of finally achieving your goals. These are all lessons in life.
+ - Every day, someone realizes a dream. I believe dreams help light our darkness and give us the push we need to move across the rink of life.
+ - They say, once you have a child, your heart is forever outside your body. I totally understand that now.
+ - I never wanted to feel I hadn’t worked hard enough.
+ - Before turning pro, I would never have just left my skates sitting in the locker room unattended.
+ - I’m always looking for inspiring ways to stay motivated and stay active.
+ - The good feeling I get from contributing rivals anything I felt on the Olympic stand in Albertville.
+ - Growing up as an athlete, I started skating very young. My parents didn’t know anything about the sport, so they went with the flow. I had two great coaches who gave great advice and gave guidelines for my parents. My parents let the coaches dictate what was going on on the ice.
+ - I don’t mind the sparkle – I think it’s kind of a tradition in skating. I don’t think the men really need sparkles, but for the women it’s part of the glamour of our sport.
+ - Having achieved my own dreams, I want to give to kids who are less fortunate, who struggle with everyday obstacles. I want to give them something positive in their lives: support.
+ - I’ve realized how precious life is. When I was younger, I was more adventurous. I felt invincible. I was game for everything. As a mom, I don’t want to get injured because then I can’t take care of my kids.
+ - My experience at the 1992 Winter Olympics was my fulfillment of dreaming the Impossible Dream.
+ - I’d try to channel my nervous energy in a positive way into strength and endurance. It didn’t always work.
+ - I learned to put 100 percent into what you’re doing. I learned about setting goals for yourself, knowing where you want to be and taking small steps toward those goals. I learned about adversity and how to get past it.
+ - Now, I am thrilled to be a wife and mother, and I hope to be as good of a mother as my own mother, Carole.
+ - In terms of my career, having the gold definitely changed my life. The Olympics are different, you know? They’re every four years and it’s such a small group.
+ - As a teenager especially, I just wanted to do my thing and not be noticed.
+ - I didn’t want to skate for someone else or for certain marks.
+ - I don’t know how many people really knew who I was before the Olympics and that’s the fun thing of the Olympics – you get to know someone who captures your heart, hopefully.
+ - One of my mottos not only just in skating but in life in general and I try to enforce it as well, is like no regrets and just like going for it.
+ - With 30,000 deaths and 200,000 hospitalizations from the seasonal flu, those numbers are certainly higher than what we’ve seen of the swine flu. Protecting yourself from both viruses is very important.
+ - Figure skaters have awful perceptions of hockey players.
+ - I always try to start out with some type of goal. Then I work backward and think of what I need to do to get there, and give myself smaller goals that are more immediate.
+ - Dorothy Hamill was my big idol as a kid. She’d won the Olympics in 1976. She was America’s sweetheart with her personality, her talent, her haircut.
+ - As a professional, I think we’re not being judged solely on technical ability anymore. People really want to be entertained and enjoy what they’re watching.
+ - I’ve always worked closely with the designers and whoever’s making the costumes. Comfort is the last thing you want on your mind when you’re competing. In an ideal situation, you’ll have something where you’ll put it on and you’re fine and you don’t have to worry about it at all.
+ - At 6 years old, the ice became a place for me to express myself. Because I was so shy off the ice, it became my safe haven, with music and freedom and self-expression. That was my emotional outlet.
+ - There are two or three performances in your life that are absolutely on, where all the planets are lined up for you and you feel you’re invincible.
+ - I’m kind of a homebody. My husband says I like to just stay home and do nothing, but that’s just how I am.
+ - I feel like I missed out on the regular high school social life, but that’s the way I chose to be.
+ - Probably a few weeks after I was born I started having casts put on my legs to straighten them out. After that corrective shoes and with a brace in between.
+ - The past couple years training with Kurt have really brought inspiration into my skating.
+ - Training for the Olympics was a lifelong endeavor and took many years.
+ - Being an athlete, you know how to train and prepare your body for a performance and you’re able to do it under pressure.
+ - Childhood reading is so important.
+ - Winning in women’s singles felt surreal. I felt that everything I had done – the hard work, the tough times – was all worth it.
+ - I burnt myself out of skating. I was ready to focus on being a mom.
+ - Skating was something I really wanted to do; my parents knew nothing about it. They said they’d support me as long as I was trying my hardest and enjoying it.
+
+38 quotes

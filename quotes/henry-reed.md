@@ -1,0 +1,30 @@
+ - All human beings are interconnected, one with all other elements in creation.
+ - What is it like to fall asleep? What happens? Where do we go? Why don’t we remember? Since childhood most of us have wondered about the mystery of sleep.
+ - People are learning to feel more comfortable hearing one another’s dreams. It used to be that if you told a dream in public, someone had to make a joke to relieve the tension introduced by that alternative reality.
+ - We each have a sixth sense that is attuned to the oneness dimension in life, providing a means for us to guide our lives in accord with our ideas.
+ - Rather than seeing dreams as containing hidden messages, see dreams as experiences of empathy. Then use empathy with the dream to reconnect with the experience of dreaming itself.
+ - To-day we have naming of parts. Yesterday We had daily cleaning. And tomorrow morning, We shall have what to do after firing. But to-day, To-day we have naming of parts.
+ - As we get older we do not get any younger. Seasons return, and today I am fifty-five, And this time last year I was fifty-four, And this time next year I shall be sixty-two.
+ - As we abide in sleep, intuitively resonating with the sum of all our experiences – this life and beyond – we gain refreshing perspective on our efforts and have an opportunity to remember what we know.
+ - Dreams have always expanded our understanding of reality by challenging our boundaries of the real, of the possible.
+ - Hugh Lynn Cayce, Edgar Cayce’s son, is quoted as saying, The best interpretation of a dream is one you apply.
+ - The early bees are assaulting and fumbling the flowers: They call it ‘easing the Spring.’
+ - Dream study impacts culture. We are put in touch with the inner poet who dreams. We hear our inner, subjective response to the outer world. That helps spiritualize our lives.
+ - It makes a difference what we choose to experience during sleep. Many of us think of sleep as a chance to get away from it all. But sleep is also a chance to return to the joys of our spiritual heritage – our universal awareness.
+ - I published in 1978 a report on dreams in the Journal of Clinical Psychology. It was the first study of its kind to demonstrate that it is possible for people to make constructive use of their dreams to improve their lives.
+ - People don’t think their dreams amount to much, but when I ask them to examine them for common themes, they surprise themselves at how accurate they are! They see that their dreams have value.
+ - If there is any one truth from the legacy of the Cayce readings, it would be that there is a spiritual dimension to humans, something beyond time and space.
+ - We can slide it Rapidly backwards and forwards: we call this Easing the spring. And rapidly backwards and forwards The early bees are assaulting and fumbling the flowers: They call it easing the Spring.
+ - When we awaken, we cannot account for the time spent. We simply don’t remember. About the only evidence we have of experiences while we were asleep is when we happen to remember a dream.
+ - There is both a skill factor and an effort factor in dream recall. People can develop dream recall skills, such as lying still in the morning and writing down whatever comes to mind.
+ - It is easier to learn to interpret dreams if you have a reason to use them for something constructive. You apply your dream insights to making constructive changes in your life.
+ - Freud published The Interpretation of Dreams in 1900. It introduced the notion that there existed certain predictable and identifiable processes by which dreams were formed.
+ - There is something very basic to the sense of listening. The sense of hearing is the only one that operates totally from vibrations, without other physical or chemical reactions to receive the sensations.
+ - Dreams seem to have a will of their own.
+ - The things that concern us during the day are going to influence what we experience during the night.
+ - It is, we believe, Idle to hope that the simple stirrup-pump Can extinguish hell.
+ - If there is any truth to my parenting the dreamwork movement, it comes from the power of the press.
+ - The usual comment from psychologists and psychiatrists was that it’s best not to encourage people to look at their dreams because they are liable to stir up problems for themselves.
+ - How do you know, right now, that you are aware of being aware, or conscious?
+
+28 quotes

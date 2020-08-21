@@ -1,0 +1,42 @@
+ - The greatest distance in this World is not that between living and death, it is when I am just before you, and you don’t know that I Love You. ~~Rabindranath Tagore
+ - How lucky I am to have something that makes saying goodbye so hard. ~~A. A. Milne
+ - True friendship resists time, distance and silence. ~~Isabel Allende
+ - She was beautiful, but she was beautiful in the way a forest fire was beautiful: something to be admired from a distance, not up close. ~~Terry Pratchett
+ - We talk about heaven being so far away. It is within speaking distance to those who belong there. Heaven is a prepared place for a prepared people. ~~D.L. Moody
+ - Beautiful things happen in your life when you distance yourself from the negative things. ~~Zig Ziglar
+ - The distance is nothing when one has a motive. ~~Jane Austen
+ - Distance might not solve anything, no matter how far you run. ~~Haruki Murakami
+ - Between a battle lost and a battle won, the distance is immense and there stand empires. ~~Napoleon
+ - There may be times when you just have to love people from a distance. ~~Joel Osteen
+ - What looks large from a distance, close up ain’t never that big. ~~Bob Dylan
+ - There is an immeasurable distance between late and too late. ~~Og Mandino
+ - True friends never apart maybe in distance but never in heart. ~~Helen Keller
+ - GOD is watching us, from a Distance... ~~Bette Midler
+ - If you are situated at a great distance from the enemy, and the strength of the two armies is equal, it is not easy to provoke a battle, and fighting will be to your disadvantage. ~~Sun Tzu
+ - Faith is like radar that sees through the fog – the reality of things at a distance that the human eye cannot see. ~~Corrie ten Boom
+ - Painting is concerned with all the 10 attributes of sight; which are: Darkness, Light, Solidity and Colour, Form and Position, Distance and Propinquity, Motion and Rest. ~~Leonardo da Vinci
+ - From the Distance You only See My Light; Come closer and You will Know that I Am You. ~~Rumi
+ - He was soon borne away by the waves and lost in darkness and distance. ~~Mary Shelley
+ - Let there be no distance between the words you say and the life you live. ~~Paul Wellstone
+ - Sabbath is that uncluttered time and space in which we can distance ourselves from our own activities enough to see what God is doing. ~~Eugene H. Peterson
+ - Alone time is when I distance myself from the voices of the world so I can hear my own. ~~Oprah Winfrey
+ - Distance doesn’t exist, in fact, and neither does time. Vibrations from love or music can be felt everywhere, at all times. ~~Yoko Ono
+ - Distance never separates two hearts that really care, for our memories span the miles and in seconds we are there. But whenever I start feeling sad because I miss you I remind myself how lucky I am to have someone so special to miss. ~~Henri J.M. Nouwen
+ - Keep walking, though there’s no place to get to. Don’t try to see through the distances. That’s not for human beings. Move within, But don’t move the way fear makes you move. ~~Rumi
+ - Stereotypes abound when there is distance. They are an invention, a pretense that one knows when the steps that would make real knowing possible cannot be taken or are not allowed. ~~Bell Hooks
+ - We are all at risk of something. Of ending up exactly where we began, of failing to imagine and find and know and actualize who we could be. The only difference is the distance of the leap. ~~Cheryl Strayed
+ - Absences are a good influence in love and keep it bright and delicate. ~~Robert Louis Stevenson
+ - Every particle of matter is attracted by or gravitates to every other particle of matter with a force inversely proportional to the squares of their distances. ~~Isaac Newton
+ - They say everything can be replaced, Yet every distance is not near. So I remember every face Of every man who put me here. I see my light come shining From the west unto the east. Any day now, any day now, I shall be released. ~~Bob Dylan
+ - It’s amazing how much distance one truth can create between two people. ~~Colleen Hoover
+ - Looking at these stars suddenly dwarfed my own troubles and all the gravities of terrestrial life. I thought of their unfathomable distance, and the slow inevitable drift of their movements out of the unknown past into the unknown future. ~~H. G. Wells
+ - I tried to keep my distance, but my world doesn’t work without you in it. ~~Jill Shalvis
+ - The foolish man seeks happiness in the distance; the wise grows it under his feet. ~~James Oppenheim
+ - I’m not a big believer in long-term planning and far-off goals. In fact, I generally set 3-month and 6-month dreamlines. The variables change too much and in-the-future distance becomes an excuse for postponing action. ~~Tim Ferriss
+ - Time is the longest distance between two places. ~~Tennessee Williams
+ - You have just dined, and however scrupulously the slaughterhouse is concealed in the graceful distance of miles, there is complicity. ~~Ralph Waldo Emerson
+ - Emotions are like waves. Watch them disappear in the distance on the vast calm ocean. ~~Ram Dass
+ - We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. ~~Henry Ward Beecher
+ - In true love the smallest distance is too great, and the greatest distance can be bridged. ~~Henri J.M. Nouwen
+
+40 quotes

@@ -1,0 +1,60 @@
+ - Even if I only had 10 readers, I’d rather do the book for them than for a million readers online.
+ - I think I have a very clear vision of what I want things to look like.
+ - The secret to being alone is to organize your time; to develop habits and routines and gradually elevate their importance to where they seem almost like normal, healthy activities.
+ - I started drawing at a very young age. Writing a story wasn’t satisfying, but to actually draw our own world – it’s like controlling your own dreams.
+ - Avatar is a total nerd thing, and yet our popular culture has somehow made all that stuff acceptable.
+ - I’m always hiding the books in my closet, and my art’s always turned upside down in my drawer.
+ - I think I’m gonna attach myself to the sinking ship that is book publishing.
+ - But they always just laugh off everything I say, when really I want absolutely nothing more than to destroy the world they live in and to watch them suffer, alone and miserable, trying to live in my world for a change!
+ - I believe in the transformative power of cinema. It is only through this shared dream-experience that we can transcend the oppressive minutiae of daily existence and find some spiritual connection in the deeper reality of our mutual desire.
+ - I like to leave a little room to innovate and change things around while I’m working.
+ - In an art school it’s very hard to tell who is the best.
+ - I was a very fearful little kid, and I would always see the worst in everything. The glass was half-empty. I would see people kissing, and I would think one was trying to bite the other.
+ - I feel like I understood the language of comics. I had a real fluidity with that medium at a very early age.
+ - Comics seldom move me the way I would be moved by a novel or movie.
+ - You need to be, like, turning down high-paying illustration work because you want to work on your comic. That’s when you know you’re doing something good.
+ - Though to the average person that you’ll meet on an airplane, if you tell them you draw comics, they’ll still have sort of the same response – not like that’s seeped into the culture at large, that comics are not just for kids.
+ - I try to only work on the screenplays for a few hours a day when I’m in my most voluble mood, just sort of writing whatever comes into my head. It’s a very freeing thing.
+ - When you see somebody who’s got a complaining personality, it usually means that they had some vision of what things could be, and they’re constantly disappointed by that. I think that would be the camp that I would fall into – constantly horrified by the things people do.
+ - I think if you had different artists approaching the material in different styles, that’s very different. I think it’s an interesting thing to discover, what’s present in the work even when you’re shifting the styles. I’ve just found it a much stronger way to work.
+ - I’ve felt that in the past, where I just felt like I had to keep drawing in the same way to maintain this sameness and rhythm throughout an entire book, and it was not really necessary.
+ - Often I’ll do research just to get a time period correct, but I didn’t have to for the ’70s. I feel like I can close my eyes and still see it so clearly.
+ - For example, I noticed that every single kid in the high school in ‘The Death-Ray’ is based on somebody I went to high school with.
+ - I never feel there’s anything I can’t do.
+ - I think that’s what we’re all most terrified about: that we’ll just die and disappear and we’ll leave no trace.
+ - I knew how to draw all of the different smokestacks on the old trains and all that stuff, and then I realized that if I can draw trains, which is the thing I was probably the least interested in in the world at the time, I can do anything and find a way into it that will be interesting.
+ - I actually start drawing things. Usually they’re abandoned before I commit too much time and effort.
+ - I think I’ve had the fantasy of a ray-gun that could erase the world from the time I was a very little kid.
+ - I don’t read much of anything online.
+ - I’m a fan of parchment and wood pulp.
+ - I love the medium and I love individual comics, but the business is nothing I would be proud of.
+ - I try personally not to be nostalgic.
+ - I’m more interested in characters who are a little difficult.
+ - As soon as I’m finished with it, it feels like an impersonal project. Like, “Well, I did another book.”
+ - You can give some kind of spark of life to a comic that a photograph doesn’t really have. A photograph, even if it’s connecting with you, it seems very dead on the page sometimes.
+ - That’s been my main interest for the last 15 years, is to really make sure the story and the characters take precedence over everything else, and that I give them everything I can to make them exist as actual people.
+ - Before I could read, I remember trying to piece together the stories from the images. It was a very primal experience.
+ - I originally just wanted to be an artist.
+ - I tend to be the type who is overly polite and sort of ingratiating to other people.
+ - It’s embarrassing to be involved in the same business as the mainstream comic thing. It’s still very embarrassing to tell other adults that I draw comic books – their instant, preconceived notions of what that means.
+ - I think there was a point that I realized I could do what I wanted to do in terms of the drawing. I used to run around a lot of things. I would shy away from certain things that I realized would be horrible for me to draw, and just wouldn’t be fun.
+ - When I go back and reread the stuff, I’m always floored by how deeply personal and revealing it actually is.
+ - I really want people to read the book, and bookstores never sold an issue of Eightball because nobody knew what it was.
+ - In a movie, you have to be mindful that no budget is going to be able to deal with running around the globe at every whim of the writer.
+ - I have cultivated a little crew of people whose opinions I understand. It’s like the way you’d follow certain film critics because you know what their criteria are, and you may not agree with them, but you can glean from their opinion how you will feel about a film.
+ - I had no television when I was little, just a stack of old, beat-up comics from the 1950s and 1960s.
+ - I have this certain vision of the way I want my comics to look; this sort of photographic realism, but with a certain abstraction that comics can give. It’s kind of a fine line.
+ - I was 30 before I made a living that was not embarrassing.
+ - At a certain point, I realized that I could draw anything, and there was nothing I should avoid – I could make it work. That’s opened me up to being able to be much more comfortable telling any kind of story.
+ - There are certain comics that just seem like they have this perfect balance between dialogue and image that I can’t not read. I’ll want to save it for later, and the next thing I know, I’m reading it. That’s what I’m kind of trying to do with my comics.
+ - It’s much more liberating as a artist to feel like you can approach each page and each panel with the way that inspires you the most. I think the thing that bogs down a lot of artists is that you’re kind of stuck drawing in a style you’ve developed.
+ - If I could have somehow been the kind of artist who could crank out two or three issues a year, that’s different. That’s sort of what it’s all about, to get this thing out so that there’s some kind of continuity. But to do a comic book every year or two was just so anti-climactic.
+ - I must have been 3 years old or less, and I remember paging through these comics, trying to figure out the stories. I couldn’t read the words, so I made up my own stories.
+ - One of my weekend hobbies is to go look at old houses when there are open houses around here. Just to go look at the architecture. And you can see how many houses were built around 1977, the year where everyone said, “Let’s put in these aluminum windows instead of beautiful hand-made wood ones.”
+ - For me, the whole process involves envisioning this book in my head as I’m working.
+ - I’m not opposed to comics on the Internet. It’s just not interesting to me.
+ - I was thinking the other day that there will never be another form of music that everybody has to respond to – like disco.
+ - But I enjoy the opportunity to use swear symbols.
+ - I can look at my early work and see what a pained struggle it was to draw what I was drawing. I was trying so hard to get this specific look that was in my head, and always falling short.
+
+58 quotes

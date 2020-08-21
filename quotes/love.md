@@ -1,0 +1,28 @@
+ - So, I love you because the entire universe conspired to help me find you. ~~Paulo Coelho
+ - You know you're in love when you can't fall asleep because reality is finally better than your dreams. ~~Dr. Seuss
+ - Love the life you live. Live the life you love. ~~Bob Marley
+ - One day you will ask me which is more important – my life or yours? I will say mine and you will walk away not knowing that you are my life. ~~Khalil Gibran
+ - Love is like the wind, you can't see it but you can feel it. ~~Nicholas Sparks
+ - There is never a time or place for true love. It happens accidentally, in a heartbeat, in a single flashing, throbbing moment. ~~Sarah Dessen
+ - Love is the absence of judgment. ~~Dalai Lama XIV
+ - Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate, only love can do that. ~~Martin Luther King Jr.
+ - You don't love someone because they're perfect, you love them in spite of the fact that they're not. ~~Jodi Picoult
+ - One is loved because one is loved. No reason is needed for loving. ~~Paulo Coelho
+ - All you need is love. But a little chocolate now and then doesn’t hurt. ~~Charles M. Schulz
+ - Gravitation is not responsible for people falling in love. ~~Albert Einstein
+ - Love is that condition in which the happiness of another person is essential to your own. ~~Robert A. Heinlein
+ - One love, one heart, one destiny. ~~Bob Marley
+ - You don’t need another human being to make your life complete, but let’s be honest. Having your wounds kissed by someone who doesn’t see them as disasters in your soul but cracks to put their love into is the most calming thing in this world. ~~Emery Allen
+ - When someone loves you, the way they talk about you is different. You feel safe and comfortable. ~~Jess C. Scott
+ - We accept the love we think we deserve. ~~Stephen Chbosky
+ - I am good, but not an angel. I do sin, but I am not the devil. I am just a small girl in a big world trying to find someone to love. ~~Marilyn Monroe
+ - It’s better to have loved and lost than never to have loved at all. ~~Alfred Tennyson
+ - What can you do to promote world peace? Go home and love your family. ~~Mother Teresa
+ - Be that somebody. ~~Ukonwa Ojo
+ - Where there is love there is life. ~~Mahatma Gandhi
+ - Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. ~~Rumi
+ - When you trip over love, it is easy to get up. But when you fall in love, it is impossible to stand again. ~~Albert Einstein
+ - The real lover is the man who can thrill you by kissing your forehead or smiling into your eyes or just staring into space. ~~Marilyn Monroe
+ - I have decided to stick with love. Hate is too great a burden to bear. ~~Martin Luther King Jr.
+
+26 quotes

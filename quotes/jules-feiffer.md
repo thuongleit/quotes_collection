@@ -1,0 +1,30 @@
+ - I told the doctor I was overtired, anxiety-ridden, compulsively active, constantly depressed, with recurring fits of paranoia. Turns out I’m normal.
+ - At sixteen I was stupid, confused and indecisive. At twenty-five I was wise, self-confident, prepossessing and assertive. At forty-five I am stupid, confused, insecure and indecisive. Who would have supposed that maturity is only a short break in adolescence?
+ - Design is important because chaos is so hard.
+ - I was never interested in the two-party system per se. I was interested in how authority was abused by government, and how lies were told, and rewritten, to seem to be true. I came up out of a tradition of radical journalism.
+ - Be warned against all ‘good’ advice because ‘good’ advice is necessarily ‘safe’ advice, and though it will undoubtedly follow a sane pattern, it will very likely lead one into total sterility – one of the crushing problems of our time.
+ - Artists can color the sky red because they know it’s blue. Those of us who aren’t artists must color things the way they really are or people might think we’re stupid.
+ - Jesus died to forgive our sins. Dare we make his martyrdom meaningless by not committing them?
+ - If you are not able to communicate successfully between yourself and yourself, how are you supposed to make it with the strangers outside?
+ - We want playmates we can own.
+ - Eventually, if it’s on your mind, you stumble on it. You need a certain amount of luck and persistence.
+ - Good swiping is an art in itself.
+ - There’s no rap against comics that isn’t true. They were sexist, they were racist, you name it – and they kind of gloried in that.
+ - I grew up to have my father’s looks, my father’s speech patterns, my father’s posture, my father’s opinions, and my mother’s contempt for my father.
+ - There’s some brain damage, but it may be that very brain damage that allows me to do the work I do.
+ - Imagination continually frustrates tradition; that is its function.
+ - Writing, I explained, was mainly an attempt to out-argue one’s past; to present events in such a light that battles lost in life were either won on paper or held to a draw.
+ - Maturity is only a short break in adolescence.
+ - We are all continually embarking on first drafts, in every aspect of our lives.
+ - I think we overrate experience and what we’ve been through in terms of our success at doing the work we do. There are many people who get beat up, who suffer, who are victimized, and then they sit down to write and they write crap.
+ - I used to think I was poor. Then they told me I was not poor, I was needy. They told me it was self-defeating to think of myself as needy, I was deprived. Then they told me underprivileged was overused. I was disadvantaged. I still do not have a dime but I have a great vocabulary.
+ - I’m well beyond dyslexic: I have no sense of direction; I never know where I am.
+ - Kids are in ongoing need of support, and they get various versions of it from grownups which aren’t legitimate – a grownup’s version of what we think you should have. We tell you what creativity is, and we even tell you what you’re thinking.
+ - Getting out of bed in the morning is an act of false confidence.
+ - I’ve never met a cartoonist who isn’t quirky or weird in some ways.
+ - Over the years, I discovered over and over again that once you lose control, you have a chance of getting good at it. And once you’re controlling the work, it’s not going to be very good, or it won’t be as good as it should be.
+ - It is not size or age that separates children from adults. It is responsibility.
+ - The artwork had very little to do with the thought process, and the writing too, for that matter. What happens, happens, and it happens outside the brain.
+ - When I write a play, my whole intent at bottom is to get the audience to be in the cast, to get that audience on stage with the actors and to get them thoroughly involved in what’s going on.
+
+28 quotes

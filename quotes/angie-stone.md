@@ -1,0 +1,29 @@
+ - I have a massage when I want to relax. I love being pampered. I love island massages when you’re outside in the fresh air.
+ - Because I’m just a giving person spiritually, I feel that if your intentions are to use or abuse or take advantage of, then you might get what you get in the meantime, but there’s still a price to pay.
+ - When I was younger I was taught that a winner never quits, and a quitter never wins.
+ - I would never disrespect any man, woman, chick or child out there. We’re all the same. What goes around comes around, and karma kicks us all in the butt in the end of the day.
+ - I think people’s perception of a rich girl is literal, but metaphorically I embrace it as being rich in love, spirit, joy and religion. So it’s not about money.
+ - I feel like something magical is going to happen, and I feel like all the stars have finally lined up perfectly for Angie Stone.
+ - What you see is what you get. What you hear is who I am.
+ - Coming through the fire and through the storm of life with a strong man, my fiance Ashanti, whom I’ve been dating for eight months and two wonderful children beside me, I’m just so happy that I have been able to maintain my integrity and get to where I am today with the right energy around me.
+ - I swear by that old expression, ‘One monkey don’t stop no show!’ The reality is, we still have some good men out there, and we should hail those men as the kings they are.
+ - Allowing myself to love God completely has obviously shed light on my self-love because he loves me more than I could ever love myself.
+ - I’m the type of woman you might say is too good. I’ll massage a man’s feet, have dinner cooked when he gets home. But once they leave, the door is closed, and the locks are changed.
+ - It feels great to be a role model and I’m very careful with the things I do. I’m not perfect, I do make a lot of mistakes, but I try my best.
+ - I give and give, even when I get nothing back – and that sets me up for disappointment.
+ - I haven’t always been the person I am today. I came into loving myself more than anything or anyone else.
+ - My daughter recently reminded me not to get so busy making a living, I forget to make a life and I’m going to take that advice.
+ - Music always hits me when I’m driving so I keep a recorder in my bag.
+ - The college stations have a big voice, and I would like to become more involved with them. I would like to have symposiums with the members of various college radio stations.
+ - I’m expected to do what’s right; I want to leave a legacy of positivity behind.
+ - It is definitely somewhat a crutch of feeling that you have to please others in order to be accepted.
+ - I was always on the go, and thought I was too busy to develop something like this. I thought at the time that diabetes went along with bad habits, but I was the last one in my family to eat junk food.
+ - I get a special joy in knowing people feel comfortable if they see me in Wal-Mart or in a no-frills section trying to get something on a discount.
+ - Why do we need to wait until somebody sells 10 million records to give people a show like that? What about us smaller, hungry folk? At least gimme a curtain!
+ - As an artist, program directors always want to put you in a little box.
+ - My mom was a diabetic. Her sister was a diabetic, so I was already a candidate.
+ - I have a new television show in the works, and that is all I can say right now.
+ - I owe it to my fans to be who I am. There’s nothing fake about me.
+ - Many artists give up after a while.
+
+27 quotes

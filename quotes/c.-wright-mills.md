@@ -1,0 +1,40 @@
+ - The sociological imagination enables us to grasp history and biography and the relations between the two within society. This is its task and its promise.
+ - Neither the life of an individual nor the history of a society can be understood without understanding both.
+ - Whatever sociology may be, it is the result of constantly asking the question, what is the meaning of this?
+ - Let every man be his own methodologist, let every man be his own theorist.
+ - Nobody talks more of free enterprise and competition and of the best man winning than the man who inherited his father’s store or farm.
+ - If you do not specify and confront real issues, what you say will surely obscure them. If you do not embody controversy, what you say will be an acceptance of the drift to the coming human hell.
+ - All politics is a struggle for power; the ultimate kind of power is violence.
+ - People with advantages are loath to believe that they just happen to be people with advantages.
+ - The mass production of distraction is now as much a part of the American way of life as the mass production of automobiles.
+ - If we accept the Greek’s definition of the idiot as an altogether private man, then we must conclude that many American citizens are now idiots. And I should not be surprised, although I don’t know, if there were some such idiots even in Germany.
+ - By the power elite, we refer to those political, economic, and military circles which as an intricate set of overlapping cliques share decisions having at least national consequences. In so far as national events are decided, the power elite are those who decide them.
+ - In our time, what is at issue is the very nature of man, the image we have of his limits and possibilities as a man. History is not yet done with its exploration of the limits and meanings of human nature.
+ - To accept opinions is to gain the good solid feeling of being correct without having to think.
+ - Not wishing to be disturbed over moral issues of the political economy, Americans cling to the notion that the government is a sort of automatic machine, regulated by the balancing of competing interests.
+ - My plans have always exceeded my capacities and energies.
+ - I try to be objective. I do not claim to be detached.
+ - History is the shank of the social sciences.
+ - When white-collar people get jobs, they sell not only their time and energy, but their personalities as well. They sell by the week, or month, their smiles and their kindly gestures, and they must practice that prompt repression of resentment and aggression.
+ - The life-fate of the modern individual depends not only upon the family into which he was born or which he enters by marriage, but increasingly upon the corporation in which he spends the most alert hours of his best years.
+ - The immediate cause of World War III is the military preparation of it.
+ - Each day men sell little pieces if themselves in order to try to buy then back each night and weekend.
+ - Prestige is the shadow of money and power.
+ - Much work is merely a way to make money; much leisure is merely a way to spend it.
+ - Freedom is not merely the opportunity to do as one pleases; neither is it merely the opportunity to choose between set alternatives. Freedom is, first of all, the chance to formulate the available choices, to argue over them – and then, the opportunity to choose.
+ - Fate has to do with events in history that are the summary and unintended results of innumerable decisions of innumerable men.
+ - What one side considers a defense the other considers a threat. In the vortex of the struggle, each is trapped by his own fearful outlook and by his fear of the other; each moves and is moved within a circle both vicious and lethal.
+ - Seldom aware of the intricate connection between the patterns of their own lives and the course of world history, ordinary people do not usually know what this connection means for the kind of people they are becoming and for the kind of history-making in which they might take part.
+ - Here’s to the day when the complete works of Leon Trotsky are published and widely distributed in the Soviet Union. On that day the USSR will have achieved democracy!
+ - What ordinary men are directly aware of and what they try to do are bounded by the private orbits in which they live; their visions and their powers are limited.
+ - Power is not of a man. Wealth does not center in the person of the wealthy. Celebrity is not inherent in any personality. To be celebrated, to be wealthy, to have power requires access to major institutions.
+ - The very shaping of history now outpaces the ability of men to orient themselves in accordance with cherished values.
+ - In the world of the celebrity, the hierarchy of publicity has replaced the hierarchy of descent and even of great wealth.
+ - Every revolution has its counterrevolution – that is a sign the revolution is for real.
+ - America is a nation with no truly national city, no Paris, no Rome, no London, no city which is at once the social center, the political capital, and the financial hub.
+ - Prestige is the shadow of money and power. Where these are, there it is. Like the national market for soap or automobiles and the enlarged arena of federal power, the national cash-in area for prestige has grown, slowly being consolidated into a truly national system.
+ - The principal cause of war is war itself.
+ - The means of effective communication are being expropriated from the intellectual worker.
+ - To really belong, we have got, first, to get it clear with ourselves that we do not belong and do not want to belong to an unfree world. As free men and women we have got to reject much of it and to know why we are rejecting it.
+
+38 quotes

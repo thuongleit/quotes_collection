@@ -1,0 +1,43 @@
+ - Sometimes life gives us lessons sent in ridiculous packaging.
+ - I’m becoming a professional nomad and enjoying that whole part of my life.
+ - And where does magic come from? I think that magic’s in the learning.
+ - Go ahead, push your luck, find out how much love the world can hold.
+ - If a war has to happen, a war has to happen.
+ - Every time you opt in to kindness Make one connection, used to divide us It echoes all over the world.
+ - I think music is another language.
+ - They preach that I should save the world. They pray that I won’t do a better job of it.
+ - There’s always people who came 600 miles to hear the song you didn’t play.
+ - And the ones that know you so well are the ones that can swallow you whole.
+ - God looks like a guidance counselor, God’s got that smile. God says, ‘How could this be? That’s really odd I guess I’ll have to check my records, silly me, you know, I’m only God.’
+ - Everyone has to decide how they’re going to appear in their lives, how they’re going to put themselves out there to the world.
+ - Sixties folk rock was my original muse and the folk audience-people who listen to music off the beaten track-fostered my career. I definitely don’t want to abandon the genre but I also need to make sure I’m Dar Williams first.
+ - Being told that you are good at banter is like being told that you are a good person.
+ - Therapy was the biggest romance of my life.
+ - The only word for love is everybody’s name.
+ - The funny thing is musicians often love to go to see visual art because you’ve got all these pictures to turn into metaphors.
+ - A song versus an album is not like a scene versus a play.
+ - The light that stopped the night felt like forgiveness.
+ - I fear that to fall in love with you is to fall from a great and gruesome height.
+ - Writing ‘February’ made me realize that breaking form is a way of letting the song be human.
+ - There’s the wind And the rain And the mercy of the fallen Who say, “Hey, it’s not my place To know what’s right” There’s the weak And the strong And the many stars that guide us We have some of them inside us.
+ - Guiding the ship takes more the your skill. It is the compass inside as the strength of your will.
+ - Sometimes I see myself fine, sometimes I need a witness. And I like the whole truth, but there are nights I only need forgiveness.
+ - If you’re lucky you find something that reflects you, Helps you feel your life, protects you, Cradles you and connects you to everything.
+ - In the laughing times we know that we are lucky, and in the quiet times we know that we are blessed. And we will not be alone.
+ - I really value people besides parents who nurture kids.
+ - Arizona is really cool but I couldn’t stay there for too long.
+ - I try to be careful not to do single concerts where I fly out, do my show, turn around and go home.
+ - I have a sordid past.
+ - But if you’re looking to be spooked by really tall trees then you’ve got to go to Washington State.
+ - I was raised by parents who really admired the religious leaders of the left, as many 60s and 70s liberals did.
+ - But where do we come up with this notion of a woman in which the less space you take up, the more you’re worth?
+ - The first concert I saw was Cheryl Wheeler.
+ - And I’ll act like I have faith, and like that faith never ends, but I really just have friends.
+ - If you’re looking for can-do, earthy-crunchy attitude then you’ve got to go to Wisconsin.
+ - How I long to fall just a little bit, to dance out of the lines and stray from the light.
+ - The very best thing you can do is to try to write a song that has some sort of impact.
+ - But I benefit from the taxes I pay because I know how to access the benefits of the taxes.
+ - But social justice and the environment are very tied together in my head.
+ - Youll almost encounter a superstition amongst musicians, people sort of go through strange rituals, what they need to do to write a song.
+
+41 quotes

@@ -1,0 +1,51 @@
+ - I don’t care who writes a nation’s laws-or crafts its advanced treaties-if I can write its economics textbooks.
+ - Econometrics may be defined as the quantitative analysis of actual economic phenomena based on the concurrent development of theory and observation, related by appropriate methods of inference.
+ - Investing should be more like watching paint dry or watching grass grow. If you want excitement, take $800 and go to Las Vegas.
+ - The stock market has predicted nine of the last five recessions.
+ - Funeral by funeral, theory advances.
+ - Economists have much to be humble about.
+ - Economics has never been a science – and it is even less now than a few years ago.
+ - A growing nation is the greatest ponzi game ever contrived.
+ - Good questions outrank easy answers.
+ - Man does not live by GNP alone.
+ - Companies are not charitable enterprises: They hire workers to make profits. In the United States, this logic still works. In Europe, it hardly does.
+ - What we know about the global financial crisis is that we don’t know very much.
+ - Thousands of important and intelligent men have never been able to grasp the principle of comparative advantage or believe it even after it was explained to them.
+ - Globalization presumes sustained economic growth. Otherwise, the process loses its economic benefits and political support.
+ - You know what happiness is: ‘Having a little more money than your colleagues.’ And that’s not so tough in academic life.
+ - Every good cause is worth some inefficiency.
+ - Economics never was a dismal science. I should be a realistic science.
+ - Two factors explain our success. One, MIT’s renaissance after World War II as a federally supported research resource. Two, the mathematical revolution in macro- and micro-economic theory and statistics. This was overdue and inevitable, MIT was the logical place for it to flourish.
+ - It is not easy to get rich in Las Vegas, at Churchill Downs, or at the local Merrill Lynch office.
+ - I’m not sure most of the people that get caught up in the middle of a bubble can be described as irrational. It seems pretty rational to buy a house and flip it in the next few weeks at a profit when that’s been happening for along time.
+ - The consumer, so it is said, is the king each is a voter who uses his money as votes to get the things done that he wants done.
+ - If we made an income pyramid out of a child’s blocks, with each layer portraying $1,000 of income, the peak would be far higher than the Eiffel Tower, but almost all of us would be within a yard of the ground.
+ - Contrary to what many skeptics had earlier believed, the Soviet economy is proof that a socialist command economy can function and even thrive.
+ - I don’t care very much for the People Magazine approach to applied economics.
+ - Asia’s governments come in two broad varieties: young, fragile democracies – and older, fragile authoritarian regimes.
+ - Marshall’s crime is to pretend to handle imperfect competition with tools only applicable to perfect competition.
+ - I couldn’t reconcile what I was being taught at the university of Chicago, the lectures and the books I was being assigned, with what I knew to be true out in the streets.
+ - Forsake search for needles that are so very small in haystacks that are so very large.
+ - Politicians like to tell people what they want to hear – and what they want to hear is what won’t happen.
+ - Kelsoism is not accepted by modern scientific economics as a valid and fruitful analysis of the distribution of income but rather it is regarded as an amateurish and cranky fad.
+ - Profits are the lifeblood of the economic system, the magic elixir upon which progress and all good things depend ultimately. But one man’s lifeblood is another man’s cancer.
+ - Macroeconomics, even with all of our computers and with all of our information. is not an exact science and is incapable of being an exact science.
+ - We are like highly trained athletes, who never run a race.
+ - The sad truth is that it is precisely those who disagree most with the hypothesis of efficient market pricing of stocks, those who pooh-pooh beta analysis and all that, who are least able to understand the analysis needed to test that hypothesis.
+ - Even if this advice to portfolio decision makers to drop dead is good advice, it obviously is not counsel that will be eagerly followed. Few people will commit suicide without a push. And fewer still will pay good money to be told to do what is against human nature and self-interest to do.
+ - Perhaps there really are managers who can outperform the market consistently – logic would suggest that they exist. But they are remarkably well-hidden.
+ - For better or worse, US Keynesianism was so far ahead of where it started. I am a cafeteria Keynesian. You know what a cafeteria catholic is?
+ - In this age of specialization, I sometimes think of myself as the last ‘generalist’ in economics, with interests that range from mathematical economics down to current financial journalism. My real interests are research and teaching...
+ - I spent the four years I was an undergraduate working on the beach. And it wasn’t because I was lazy; it was because my freshman class would go to a hundred different employers and wouldn’t get a nibble.
+ - The recent market run-up that appreciated run-of-the- mill shares also chanced to send up those token gold holdings. Pure luck, undeserved and unlikely to reoccur. Good questions outrank easy answers.
+ - Economists are said to disagree too much but in ways that are too much alike: If eight sleep in the same bed, you can be sure that, like Eskimos, when they turn over, they’ll all turn over together.
+ - An intriguing paradox of the 1990s is that it isn’t called a decade of greed.
+ - Sooner or later the Internet will become profitable. It’s an old story played before by canals, railroads and automobiles.
+ - The niceties of existence were not a matter of concern, yet everything around was closed down most of the time. If you lived in a middle-class community in Chicago, children and adults came daily to the door saying, ‘We are starving, how about a potato?’ I speak from poignant memory.
+ - The problem is no longer that with every pair of hands that comes into the world there comes a hungry stomach. Rather it is that, attached to those hands are sharp elbows.
+ - That’s what I would like to do until the end of time, to go on scribbling my articles on the third floor of the Sloan Building, in between playing tennis and drinking coffee at my other study in the Concord Avenue branch of Burger King.
+ - It isn’t that greed’s increased. What’s increased is the realization that you’ve got a free field to reach out for what you’d like to do.
+ - What good does it do a black youth to know that an employer must pay him $2 an hour if the fact that he must be paid that amount is what keeps him from getting a job?
+ - Reasonable men are not reasonable when you’re in the bubbles which have characterized capitalism since the beginning of time.
+
+49 quotes

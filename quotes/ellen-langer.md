@@ -1,0 +1,24 @@
+ - Wherever you put the mind, the body will follow.
+ - Mindfulness is the cure for everything; the essence of being alive.
+ - We should open ourselves to the impossible and embrace a psychology of possibility.
+ - Certainty is a cruel mindset.
+ - Life consists only of moments, nothing more than that. So if you make the moment matter, it all matters.
+ - Certainty is a cruel mindset. It hardens our minds against possibility.
+ - In the perspective of every person lies a lens through which we may better understand ourselves.
+ - Virtually all of life’s ills boil down to mindlessness. If you can understand someone else’s perspective, then there’s no reason to be angry at them, envy them, steal from them.
+ - People are at their most mindful when they are at play. If we find ways of enjoying our work blurring the lines between work and play the gains will be greater.
+ - No worry before its time.
+ - Stress is a function not of events, but of our view of those events.
+ - All it takes to become an Artist is to start doing Art. By living a life full of Art, we may achieve an Artful life.
+ - There is always a step small enough from where we are to get us to where we want to be. If we take that small step, there’s always another we can take, and eventually a goal thought to be too far to reach becomes achievable.
+ - Once you’ve seen there is another perspective, you can never not see that there’s another point of view.
+ - What we have learned to look for in a situation determines mostly what we see.
+ - Out of the questions of students come most of the creative ideas and discoveries.
+ - My ideas sometimes get the better of me. Before I clearly explain one, another comes to mind and seizes my attention...
+ - When people are not in the moment, they’re not there to know that they’re not there.
+ - Knowing what is and knowing what can be are not the same thing.
+ - Not only do we as individuals get locked into single-minded views, but we also reinforce these views for each other until the culture itself suffers the same mindlessness.
+ - To be mindfully engaged is the most natural, creative state we can be in.
+ - The rules you were given were the rules that worked for the person who created them.
+
+22 quotes

@@ -1,0 +1,216 @@
+ - I always arrive late at the office, but I make up for it by leaving early.
+ - My motto is: Contented with little, yet wishing for more.
+ - Lawyers, I suppose, were children once.
+ - Let us live for the beauty of our own reality.
+ - New Year’s Day is every man’s birthday.
+ - A poor relation – is the most irrelevant thing in nature.
+ - We grow gray in our spirit long before we grow gray in our hair.
+ - I am Retired Leisure. I am to be met with in trim gardens. I am already come to be known by my vacant face and careless gesture, perambulating at no fixed pace nor with any settled purpose. I walk about; not to and from.
+ - Take all the pleasures of all the spheres, And multiply each through endless years,- One minute of heaven is worth them all.
+ - No work is worse than overwork; the mind preys on itself, – the most unwholesome of food.
+ - He is no lawyer who cannot take two sides.
+ - My theory is to enjoy life, but the practice is against it.
+ - The greatest pleasure I know is to do a good action by stealth and have it found out by accident.
+ - Satire does not look pretty upon a tombstone.
+ - Gluttony and surfeiting are no proper occasions for thanksgiving.
+ - How I like to be liked, and what I do to be liked!
+ - Tis the privilege of friendship to talk nonsense, and have her nonsense respected.
+ - Do not fold, spindle or mutilate.
+ - I am in love with this green Earth.
+ - All, all are gone, the old familiar faces.
+ - The true poet dreams being awake.
+ - Cards are war, in disguise of a sport.
+ - A presentation copy, reader,-if haply you are yet innocent of such favours-is a copy of a book which does not sell, sent you by the author.
+ - For thy sake, tobacco, I would do anything but die.
+ - When thus the heart is in a vein Of tender thought, the simplest strain Can touch it with peculiar power.
+ - Don’t introduce me to that man! I want to go on hating him, and I can’t hate a man whom I know.
+ - May be the truth is, that one pipe is wholesome, two pipes toothsome, three pipes noisome, four pipes fulsome, five pipes quarrelsome; and that’s the some on’t.
+ - I have done all that I came into this world to do. I have worked task work, and have the rest of the day to myself.
+ - When true hearts lie wither’d And fond ones are flown, Oh, who would inhabit This bleak world alone?
+ - May my last breath be drawn through a pipe, and exhaled in a jest.
+ - Here cometh April again, and as far as I can see the world hath more fools in it than ever.
+ - This world is all a fleeting show, For man’s illusion given The smiles of joy, the tears of woe, Deceitful shine, deceitful flow, Theres nothing true but Heaven.
+ - Pain is life – the sharper, the more evidence of life.
+ - You may derive thoughts from others; your way of thinking, the mould in which your thoughts are cast, must be your own.
+ - Mother’s love grows by giving.
+ - A clear fire, a clean hearth, and the rigour of the game.
+ - Not many sounds in life, and I include all urban and all rural sounds, exceed in interest a knock at the door.
+ - Tis unpleasant to meet a beggar. It is painful to deny him; and, if you relieve him, it is so much out of your pocket.
+ - Half as sober as a judge.
+ - There are like to be short graces where the devil plays host.
+ - Merit, God knows, is very little rewarded.
+ - We are nothing; less than nothing, and dreams. We are only what might have been...
+ - As half in shade and half in sun This world along its path advances, May that side the sun ’s upon Be all that e’er shall meet thy glances!
+ - Oh, the pleasure of eating my dinner alone!
+ - I know that a sweet child is the sweetest thing in nature, not even excepting the delicate creatures which bear them.
+ - Time partially reconciles us to anything. I gradually became content – doggedly contented, as wild animals in cages.
+ - Presents, I often say, endear absents.
+ - Separate from the pleasure of your company, I don’t much care if I never see another mountain in my life.
+ - Gone before To that unknown and silent shore.
+ - Man is a gaming animal. He must always be trying to get the better in something or other.
+ - I even think that, sentimentally, I am disposed to harmony. But organically I am incapable of a tune.
+ - If there be a regal solitude, it is a sick-bed. How the patient lords it there!
+ - Nothing puzzles me more than time and space; and yet nothing troubles me less, as I never think about them.
+ - A miser is sometimes a grand personification of fear. He has a fine horror of poverty; and he is not content to keep want from the door, or at arm’s length, but he places it, by heaping wealth upon wealth, at a sublime distance!
+ - A garden was the primitive prison, till man with Promethean felicity and boldness, luckily sinned himself out of it.
+ - A man cannot have a pure mind who refuses apple dumplings.
+ - I could never hate anyone I knew.
+ - Friend of my bosom, thou more than a brother, Why wert thou not born in my father’s dwelling?
+ - I am, in plainer words, a bundle of prejudices – made up of likings and dislikings.
+ - A poor relation is the most irrelevant thing in nature, a piece of non pertinent correspondence, an odious approximation, a haunting conscience, a preposterous shadow, lengthening in the noontide of our prosperity.
+ - This very night I am going to leave off tobacco! Surely there must be some other world in which this unconquerable purpose shall be realised.
+ - When twilight dews are falling soft Upon the rosy sea, love, I watch the star whose beam so oft Has lighted me to thee, love.
+ - Can we ring the bells backward? Can we unlearn the arts that pretend to civilize, and then burn the world? There is a march of science; but who shall beat the drums for its retreat?
+ - Sassafras wood boiled down to a kind of tea, and tempered with an infusion of milk and sugar hath to some a delicacy beyond the China luxury.
+ - Literature is a bad crutch, but a good walking-stick.
+ - My only books Were woman’s looks,- And folly ’s all they ’ve taught me.
+ - Were I Diogenes, I would not move out of a kilderkin into a hogshead, though the first had had nothing but small beer in it, and the second reeked claret.
+ - Beholding heaven, and feeling hell.
+ - Farewell, farewell to thee, Araby’s daughter! Thus warbled a Peri beneath the dark sea.
+ - The red-letter days, now become, to all intents and purposes, dead-letter days.
+ - Shall I ask the brave soldier who fights by my side In the cause of mankind, if our creeds agree?
+ - Asparagus inspires gentle thoughts.
+ - How some they have died, and some they have left me, And some are taken from me; all are departed; All, all are gone, the old familiar faces.
+ - No one ever regarded the First of January with indifference. It is that from which all date their time, and count upon what is left. It is the nativity of our common Adam.
+ - O money, money, how blindly thou hast been worshipped, and how stupidly abused! Thou are health and liberty and strength, and he that has thee may rattle his pockets at the foul fiend!
+ - He who hath not a dram of folly in his mixture hath pounds of much worse matter in his composition.
+ - Not childhood alone, but the young man till thirty, never feels practically that he is mortal.
+ - I have been trying all my life to like Scotchmen, and am obliged to desist from the experiment in despair.
+ - I ask and wish not to appear More beauteous, rich or gay: Lord, make me wiser every year, And better every day.
+ - We do not go to the theatre like our ancestors, to escape from the pressure of reality, so much as to confirm our experience of it.
+ - Is the world all grown up? Is childhood dead? Or is there not in the bosom of the wisest and the best some of the child’s heart left, to respond to its earliest enchantments?
+ - Our spirits grow gray before our hairs.
+ - Fly not yet; ’t is just the hour When pleasure, like the midnight flower That scorns the eye of vulgar light, Begins to bloom for sons of night And maids who love the moon.
+ - Riddle of destiny, who can show What thy short visit meant, or know What thy errand here below?
+ - Oh for a tongue to curse the slave Whose treason, like a deadly blight, Comes o’er the councils of the brave, And blasts them in their hour of might!
+ - I counsel thee, shut not thy heart, nor thy library.
+ - I toiled after it, sir, as some men toil after virtue.
+ - All people have their blind side-their superstitions.
+ - A laugh is worth a hundred groans in any market.
+ - The truant Fancy was a wanderer ever.
+ - By myself walking, To myself talking.
+ - There was a little man, and he had a little soul; And he said, Little Soul, let us try, try, try!
+ - A pun is not bound by the laws which limit nicer wit. It is a pistol let off at the ear; not a feather to tickle the intellect.
+ - Cultivate simplicity or rather should I say banish elaborateness, for simplicity springs spontaneous from the heart.
+ - And the tear that we shed, though in secret it rolls, Shall long keep his memory green in our souls.
+ - The cheerful Sabbath bells, wherever heard, Strike pleasant on the sense, most like the voice Of one, who from the far-off hills proclaims Tidings of good to Zion.
+ - The world meets nobody half way.
+ - You look wise, pray correct that error.
+ - This is the magnanimity of authorship, when a writer having a topic presented to him, fruitful of beauties for common minds, waives his privilege, and trusts to the judicious few for understanding the reason of his abstinence.
+ - The beggar wears all colors fearing none.
+ - There is a pleasure in affecting affectation.
+ - Every commonplace or trite observation is not a truism.
+ - I have had playmates, I have had companions; In my days of childhood, in my joyful school days – All, all are gone, the old familiar faces.
+ - Credulity is the man’s weakness, but the child’s strength.
+ - Books of quick interest, that hurry on for incidents are for the eye to glide over only. It will not do to read them out. I could never listen to even the better kind of modern novels without extreme irksomeness.
+ - You do not play then at whist, sir? Alas, what a sad old age you are preparing for yourself!
+ - No one ever regarded the first of January with indifference.
+ - In the indications of female poverty there can be no disguise. No woman dresses below herself from caprice.
+ - Reader, if you are gifted with nerves like mine, aspire to any character but that of a wit.
+ - Is it a stale remark to say that I have constantly found the interest excited at a playhouse to bear an exact inverse proportion to the price paid for admission?
+ - Rags, which are the reproach of poverty, are the beggar’s robes, and graceful insignia of his profession, his tenure, his full dress, the suit in which he is expected to show himself in public.
+ - Oh, breathe not his name! let it sleep in the shade, Where cold and unhonour’d his relics are laid.
+ - We encourage one another in mediocrity.
+ - Boys are capital fellows in their own way, among their mates; but they are unwholesome companions for grown people.
+ - A child’s nature is too serious a thing to admit of its being regarded as a mere appendage to another being.
+ - I give thee all,-I can no more, Though poor the off’ring be; My heart and lute are all the store That I can bring to thee.
+ - While childhood, and while dreams, producing childhood, shall be left, imagination shall not have spread her holy wings totally to fly the earth.
+ - I have passed all my days in London, until I have formed as many and intense local attachments as any of you mountaineers can have done with dead nature.
+ - I like you and your book, ingenious Hone! In whose capacious all-embracing leaves The very marrow of tradition ’s shown; And all that history, much that fiction weaves.
+ - To be thankful for what we grasp exceeding our proportion is to add hypocrisy to injustice.
+ - Shut not thy purse-strings always against painted distress.
+ - Oh call it by some better name, For friendship sounds too cold.
+ - It is with some violation of the imagination that we conceive of an actor belonging to the relations of private life, so closely do we identify these persons in our mind with the characters which they assume upon the stage.
+ - A babe is fed with milk and praise.
+ - Philanthropy, like charity, must begin at home.
+ - Who has not felt how sadly sweet The dream of home, the dream of home, Steals o’er the heart, too soon to fleet, When far o’er sea or land we roam?
+ - Damn the age. I’ll write for antiquity.
+ - Some people have a knack of putting upon you gifts of no real value, to engage you to substantial gratitude. We thank them for nothing.
+ - We love to chew the cud of a foregone vision; to collect the scattered rays of a brighter phantasm, or act over again, with firmer nerves, the sadder nocturnal tragedies.
+ - Those evening bells! those evening bells! How many a tale their music tells Of youth and home, and that sweet time When last I heard their soothing chime!
+ - There is not in the wide world a valley so sweet As that vale in whose bosom the bright waters meet.
+ - I never knew an enemy to puns who was not an ill-natured man.
+ - Go where glory waits thee! But while fame elates thee, Oh, still remember me!
+ - Clap an extinguisher upon your irony if you are unhappily blessed with a vein of it.
+ - I can scarce bring myself to believe, that I am admitted to a familiar correspondence, and all the license of friendship, with a man who writes blank verse like Milton.
+ - He has left off reading altogether, to the great improvement of his originality.
+ - The man must have a rare recipe for melancholy, who can be dull in Fleet Street.
+ - He might have proved a useful adjunct, if not an ornament to society.
+ - We gain nothing by being with such as ourselves. We encourage one another in mediocrity. I am always longing to be with men more excellent than myself.
+ - Books which are no books.
+ - I have something more to do than to feel.
+ - Oh stay! oh stay! Joy so seldom weaves a chain Like this to-night, that oh ’t is pain To break its links so soon.
+ - Not if I know myself at all.
+ - Since all the maids are good and lovable, from whence come the bad wives?
+ - Books think for me. I can read anything which I call a book.
+ - The good things of life are not to be had singly, but come to us with a mixture; like a school-boy’s holiday, with a task affixed to the tail of it.
+ - The English writer, Charles Lamb, said one day: “I hate that man.” “But you don’t know him.” “Of course, I don’t,” said Lamb. “Do you think I could possibly hate a man I know?”
+ - Anything awful makes me laugh. I misbehaved once at a funeral.
+ - We are ashamed at the sight of a monkey – somehow as we are shy of poor relations.
+ - The teller of a mirthful tale has latitude allowed him. We are content with less than absolute truth.
+ - Wert thou all that I wish thee, great, glorious, and free, First flower of the earth and first gem of the sea.
+ - In the Negro countenance you will often meet with strong traits of benignity. I have felt yearnings of tenderness towards some of these faces.
+ - When I am not walking, I am reading. I cannot sit and think.
+ - If dirt were trumps, what hands you would hold!
+ - A laxity pervades the popular use of words.
+ - I cannot sit and think; books think for me.
+ - Riches are chiefly good because they give us time.
+ - To be sick is to enjoy monarchical prerogatives.
+ - An album is a garden, not for show Planted, but use; where wholesome herbs should grow.
+ - How convalescence shrinks a man back to his pristine stature! where is now the space, which he occupied so lately, in his own, in the family’s eye?
+ - No eye to watch, and no tongue to wound us, All earth forgot, and all heaven around us.
+ - Cultivate simplicity, Coleridge.
+ - A man may do very well with a very little knowledge, and scarce be found out in mixed company; everybody is so much more ready to produce his own, than to call for a display of your acquisitions.
+ - Summer, as my friend Coleridge waggishly writes, has set in with its usual severity.
+ - Shakespeare is one of the last books one should like to give up, perhaps the one just before the Dying Service in a large Prayer book.
+ - Milton almost requires a solemn service of music to be played before you enter upon him. But he brings his music, to which who listen had need bring docile thoughts and purged ears.
+ - Man, while he loves, is never quite depraved.
+ - I conceive disgust at these impertinent and misbecoming familiarities inscribed upon your ordinary tombstone.
+ - I’d like to grow very old as slowly as possible.
+ - Newspapers always excite curiosity. No one ever puts one down without the feeling of disappointment.
+ - Science has succeeded to poetry, no less in the little walks of children than with men. Is there no possibility of averting this sore evil?
+ - It is well if the good man himself does not feel his devotions a little clouded, those foggy sensuous steams mingling with and polluting the pure altar surface.
+ - Positively, the best thing a man can have to do, is nothing, and next to that perhaps – good works.
+ - I hate the man who eats without knowing what he’s eating. I doubt his taste in more important things.
+ - I allow no hot-beds in the gardens of Parnassus.
+ - From a poor man, poor in Time, I was suddenly lifted up into a vast revenue; I could see no end of my possessions; I wanted some steward, or judicious bailiff, to manage my estates in Time for me.
+ - No woman dresses below herself from mere caprice.
+ - Trample not on the ruins of a man.
+ - The measure of choosing well, is, whether a man likes and finds good in what he has chosen.
+ - The Muses were dumb while Apollo lectured.
+ - Whose wit in the combat, as gentle as bright, Ne’er carried a heart-stain away on its blade.
+ - Opinions is a species of property – I am always desirous of sharing.
+ - Man is a gaming animal.
+ - To pile up honey upon sugar, and sugar upon honey, to an interminable tedious sweetness.
+ - What have I gained by health? Intolerable dullness. What by mode meals? A total blank.
+ - If thou would’st have me sing and play As once I play’d and sung, First take this time-worn lute away, And bring one freshly strung.
+ - She unbent her mind afterwards – over a book.
+ - A flow’ret crushed in the bud, A nameless piece of Babyhood, Was in her cradle-coffin lying; Extinct, with scarce the sense of dying.
+ - The only true time which a man can properly call his own, is that which he has all to himself; the rest, though in some sense he may be said to live it, is other people’s time, not his.
+ - The vices of some men are magnificent.
+ - How sickness enlarges the dimension of a man’s self to himself!
+ - Brandy and water spoils two good things.
+ - English physicians kill you, the French let you die.
+ - Your absence of mind we have borne, till your presence of body came to be called in question by it.
+ - To sigh, yet feel no pain; To weep, yet scarce know why; To sport an hour with Beauty’s chain, Then throw it idly by.
+ - The most mortifying infirmity in human nature, to feel in ourselves, or to contemplate in another, is perhaps cowardice.
+ - I mean your borrowers of books – those mutilators of collections, spoilers of the symmetry of shelves, and creators of odd volumes.
+ - It is good to have friends at court.
+ - Be not frightened at the hard words “imposition,” “imposture;” give and ask no questions. Cast thy bread upon the waters. Some have, unawares, entertained angels.
+ - His voice was the most obnoxious squeak I ever was tormented with.
+ - Much depends upon when and where you read a book. In the five or six impatient minutes before the dinner is quite ready, who would think of taking up the Faerie Queen for a stopgap, or a volume of Bishop Andrews’s Sermons?
+ - In every thing that relates to science, I am a whole Encyclopaedia behind the rest of the world.
+ - In some respects the better a book is, the less it demands from the binding.
+ - Coleridge declares that a man cannot have a good conscience who refuses apple dumplings, and I confess that I am of the same opinion.
+ - We were happier when we were poorer, but we were also younger.
+ - Ay, down to the dust with them, slaves as they are! From this hour let the blood in their dastardly veins, That shrunk at the first touch of Liberty’s war, Be wasted for tyrants, or stagnate in chains.
+ - We all have some taste or other, of too ancient a date to admit of our remembering it was an acquired one.
+ - The trumpet does not more stun you by its loudness, than a whisper teases you by its provoking inaudibility.
+ - The light that lies In woman’s eyes.
+ - A book reads the better which is our own, and has been so long known to us, that we know the topography of its blots, and dog’s ears, and can trace the dirt in it to having read it at tea with buttered muffins.
+ - Our appetites, of one or another kind, are excellent spurs to our reason, which might otherwise but feebly set about the great ends of preserving and continuing the species.
+ - The drinking man is never less himself than during his sober intervals.
+ - And when once the young heart of a maiden is stolen, The maiden herself will steal after it soon.
+ - I am determined that my children shall be brought up in their father’s religion, if they can find out what it is.
+
+214 quotes

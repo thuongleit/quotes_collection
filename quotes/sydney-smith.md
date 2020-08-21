@@ -1,0 +1,53 @@
+ - A great deal of talent is lost to the world for want of a little courage.
+ - A great deal of talent is lost to the world for want of a little courage. Every day sends to their graves obscure men whose timidity prevented them from making a first effort.
+ - Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything.
+ - Take short views, hope for the best and trust in God.
+ - Whatever you are by nature, keep to it; never desert your line of talent. Be what nature intended you for, and you will succeed.
+ - Thank God for tea! What would the world do without tea! How did it exist? I am glad I was not born before tea.
+ - The thing about performance, even if it’s only an illusion, is that it is a celebration of the fact that we do contain within ourselves infinite possibilities.
+ - Politeness is good nature regulated by good sense.
+ - Life is to be fortified by many friendships. To love and to be loved is the greatest happiness of existence.
+ - If you want to improve your understanding, drink coffee.
+ - Do not try to push your way through to the front ranks of your profession; do not run after distinctions and rewards; but do your utmost to find an entry into the world of beauty.
+ - No furniture is so charming as books.
+ - If I were to begin life again, I would devote it to music. It is the only cheap and unpunished rapture upon earth.
+ - Scotland: That garret of the earth – that knuckle-end of England – that land of Calvin, oatcakes, and sulfur.
+ - What two ideas are more inseparable than beer and Britannia?
+ - Never try to reason the prejudice out of a man. It was not reasoned into him, and cannot be reasoned out.
+ - People who love only once in their lives are shallow people. What they call their loyalty, and their fidelity, I call either the lethargy of custom, or their lack of imagination.
+ - Marriage resembles a pair of shears, so joined that they cannot be separated; often moving in opposite directions, yet always punishing anyone who comes between them.
+ - Resolve to make at least one person happy every day, and then in ten years you may have made three thousand, six hundred and fifty persons happy, or brightened a small town by your contribution to the fund of general enjoyment.
+ - I always fear that creation will expire before teatime.
+ - Hope is the belief, more or less strong, that joy will come.
+ - When you rise in the morning, form a resolution to make the day a happy one for a fellow creature.
+ - Avoid shame, but do not seek glory; nothing so expensive as glory.
+ - The two women exchanged the type of glance women use when there is no knife handy.
+ - He not only overflowed with learning, but stood in the slop.
+ - Human beings cling to their delicious tyrannies and to their exquisite nonsense, till death stares them in the face.
+ - Never give way to melancholy; resist it steadily, for the habit will encroach.
+ - It is no more necessary that a man should remember the different dinners and suppers which have made him healthy, than the different books which have made him wise. Let us see the results of good food in a strong body, and the results of great reading in a full and powerful mind.
+ - A comfortable house is a great source of happiness. It ranks immediately after health and a good conscience.
+ - What would life be without arithmetic, but a scene of horrors?
+ - I look upon Switzerland as an inferior sort of Scotland.
+ - Madam, I have been looking for a person who disliked gravy all my life; let us swear eternal friendship.
+ - Solitude cherishes great virtues and destroys little ones.
+ - Among the smaller duties of life I hardly know any one more important than that of not praising where praise is not due.
+ - Poverty is no disgrace to a man, but it is confoundedly inconvenient.
+ - Great men hallow a whole people, and lift up all who live in their time.
+ - The longer I live, the more I am convinced that the apothecary is of more importance than Seneca; and that half the unhappiness in the world proceeds from little stoppages; from a duct choked up, from food pressing in the wrong place, from a vexed duodenum, or an agitated pylorus.
+ - Heat, ma am! It was so dreadful here that I found there was nothing left for it but to take off my flesh and sit in my bones.
+ - He who drinks a tumbler of London water has literally in his stomach more animated beings than there are men, women, and children on the face of the globe.
+ - Find fault when you must find fault in private, and if possible sometime after the offense, rather than at the time.
+ - A man who wishes to make his way in life could do no better than go through the world with a boiling tea-kettle in his hand.
+ - Some men have only one book in them, others a library.
+ - How can a bishop marry? How can he flirt? The most he can say is “I will see you in the vestry after service.”
+ - Manners are like the shadows of virtues, they are the momentary display of those qualities which our fellow creatures love and respect.
+ - Let the Dean and Canons lay their heads together and the thing will be done.
+ - You will find people ready enough to do the Samaritan without the oil and twopence.
+ - Errors, to be dangerous, must have a great deal of truth mingled with them. It is only from this alliance that they can ever obtain an extensive circulation.
+ - In composing, as a general rule, run your pen through every other word you have written; you have no idea what vigor it will give your style.
+ - His enemies might have said before that he talked rather too much; but now he has occasional flashes of silence, that make his conversation perfectly delightful.
+ - When I hear any man talk of an unalterable law, the only effect it produces on me is to convince me that he is an unalterable fool.
+ - No man can ever end with being superior who will not begin with being inferior.
+
+51 quotes

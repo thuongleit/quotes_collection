@@ -1,0 +1,122 @@
+ - Focus on one thing, make it your priority, and stick with it no matter what!
+ - He who has the gold makes the rules.
+ - God gives everyone a lane and no one can beat you in your lane. Just stay focused on Him and what you are supposed to do. And everything will be alright.
+ - It doesn’t matter if a million people tell you what you can’t do, or if ten million tell you no. If you get one yes from God that’s all you need.
+ - Once you’re truly happy with yourself alone, that’s when you are safe to find the right person to spend the rest of your life with.
+ - You can get a thousand no’s from people, and only one “yes” from God.
+ - My biggest success is getting over the things that have tried to destroy and take me out of this life. Those are my biggest successes. It has nothing to do with work.
+ - I don’t think the dreams die – I think that people give up. I think it gets too hard.
+ - Everyone can relate to love, hurt, pain, learning how to forgive, needing to get over, needing the power of God in their life.
+ - I’m always on to something else. It’s like, I’m sitting here now jotting down notes for something that’s in my head. There’s always something going on in my head, and I have to just keep executing.
+ - A mother’s love is stronger than distance, more powerful than time and can transcend the grave.
+ - It’s not an easy journey, to get to a place where you forgive people. But it is such a powerful place, because it frees you.
+ - When you haven’t forgiven those who’ve hurt you, you turn back against your future. When you do forgive, you start walking forward.
+ - You can never be upset with the people who forced you into your dream or up higher.
+ - I think every one of us, in life, have some sort of moment that has happened that we wish we could have done differently or that we wish could have had a different outcome.
+ - I thank God for Closed Doors.
+ - Don’t wait for someone to green light your project, build your own intersection.
+ - Forgiveness is giving up the hope of what happened to you from being different.
+ - I was a very poor young black boy in New Orleans, just a face without a name, swimming in a sea of poverty trying to survive.
+ - If you don’t want my God here, you don’t want me here either. God has been too good to me to go and try to sell out to get some money.
+ - The road that I’m on is a path that I didn’t choose. It chose me. I’m just trying to walk it, and to do the best that I can to honor and respect it.
+ - What excites me? I think it’s moving and uplifting my audience. Having them get it and go with it. That excites me.
+ - I try not to take on the weight or the burden of it. Once it’s on the paper, I try to leave it, because I want to surrender to what I’m supposed to write about.
+ - I tell people, if you’re thinking about suicide, all that stuff I’ve attempted and thought about it. If you think about it, life gets better. The key to life when it gets tough is to keep moving. Just keep moving.
+ - Life is so precious, such a gift, and that you have to live for you.
+ - A degree on the wall, without labels on your back, is nothing.
+ - Tyler Perry’s brand is faith, family and this whole thing that I’ve built, while my company, 34th Street Films, is like Disney’s Touchstone. We can do anything. People don’t know what to expect from me yet.
+ - If you are in business trying to make it, things are falling apart and you can’t get it together and you don’t know what is going on and you wanna stop. Don’t stop. The only way you can make it and have true success in your life. And there’s one way. You can’t have any fear.
+ - Rather than focus on your critics, focus on the people who are impacted by your work.
+ - I’m very open to fresh talent, and I love the underdog, people who have been counted out, because they come in with a different type of hunger. I’m all for the underdog, so I’d like to talk to anybody who shows up with that sort of thirst.
+ - My mother was truly my saving grace, because she would take me to church with her. I would see my mother smiling in the choir, and I wanted to know this God that made her so happy. If I had not had that faith in my life, I don’t know where I would be right now.
+ - It takes a week to do a sitcom in Hollywood. I do a show a day in my studio, three or four shows a week.
+ - Children love their mothers. Especially with a boy child and his mother, there’s a bond that’s unbreakable.
+ - I love to see a woman in high-heeled shoes. There’s something about the curve of the feet up the leg to the butt that’s really, really wonderful, and the right pair of shoes can give you the right silhouette.
+ - Ever since I’ve been blessed with success, I’ve struggled a little with anonymity and even family. I’ve had people calling asking for money, and I have to ask them first, ‘Are you working? Have you been trying to help yourself?’ Then I feel like I can help.
+ - The most important thing that I learned in growing up is that forgiveness is something that, when you do it, you free yourself to move on.
+ - Forgiveness is important in families, especially when there are so many secrets that need to be healed – for the most part, every family’s got them.
+ - I work three months really hard, nonstop, and then I take a month off. Then I do it all over again. I work hard but I give myself four breaks a year.
+ - It’s most important that you surround yourself with positivity always, and have it in your mind at all times.
+ - I’m not afraid to have a character say, ‘I am a Christian,’ or, ‘I believe in God,’ because I think they represent real people on this Earth.
+ - I didn’t have a catharsis for my childhood pain, most of us don’t, and until I learned how to forgive those people and let it go, I was unhappy.
+ - Oprah is very, very, very special to me. She’s an amazing woman.
+ - I live my life outside of the box because when I die they’re going to put me into one!
+ - I know that there are a lot of people out there with stories far worse than mine but you, too, can make it. To those of you who have, welcome to life. I celebrate you.
+ - You put some Vaseline under your eyes at night and under your chin, and you put a little bit on your chest and you’ll avoid stretch marks and I’ll get you some Vaseline, you can change your oil and fry chicken with it, too, but you best make sure you have something.
+ - You know, people at Wal-Mart are standing there with their uniforms on. I feel like I’m putting on a uniform to do a movie. I don’t feel like it’s dressing in drag.
+ - If you’ve ever watched anything that I do, and you completely give it a chance and take the blinders off, and you’ll understand that the underlying theme of everything I’ve done has been about forgiveness, learning to move on.
+ - I think there’s something that happens at 40 where you settle into your own skin and you stop caring what people think – you realize life is a gift from God and you want to live it to the fullest.
+ - Happiness for me is totally just being at peace knowing that, everything I’m doing, God is pleased with that. It’s complete peace for me.
+ - I think that people think when you have money that your problems go away and everything’s solved, and it’s great and wonderful. You’re a perfect human being.
+ - There will be rough nights but joy really does come in the morning.
+ - Don’t stop. Narrow your focus to one idea, and make it work. That will give birth to all of the others. All you can do is plant the seed and water it.
+ - For as low as you go, ask God to take you that high.
+ - I haven’t had a worst business decision, because I believe all things work together for good.
+ - What I have learned in this life is you can never be ashamed of where you come from.
+ - People say the truth hurts. Hell no, it hurts even more if you do a whole bunch of foolishness to try and avoid it.
+ - Life is so precious, such a gift, you have to live for you. Live your own truth, live the life that God has put you and nobody else on this Earth to live and not what somebody might be telling you to live.
+ - My father who was there in the house, he wasn’t at all a role model. And my mother, who was trying to protect me from him as best she could, she took me everywhere with her, which gave me a tremendous amount of sensitivity to the things women go through.
+ - Don’t believe the hype. I don’t care how many number ones you have at the box office, I don’t care how much they say you’re great, don’t believe it. Just stay in your lane and do what you’re supposed to do.
+ - Flying radio-controlled airplanes is the only time where I am able to focus and concentrate on nothing but looking up. Only God would give me a hobby where I’m looking up to the sky. It’s a fascinating hobby.
+ - I want to be remembered as a guy who inspired, encouraged and made people laugh.
+ - A miniskirt shows just enough to cause some mystery. What these young women lack is mystery so the old women have to have it.
+ - When black women are down with you and in your corner, you have an ally that will move Heaven and Earth.
+ - There was our house in New Orleans. Two blocks in front of us were these beautiful mansions and two blocks behind us were the ghetto, projects, and that’s where I had to go to school, but I would always pattern my life looking forward. It was almost literal.
+ - True love can come more than once.
+ - When it all comes down to it, life isn’t about how much we get – it’s about how much we share.
+ - I want to own a network. I want to own a network where you can turn it on with your family all day long and get positive reinforcement.
+ - I want an open dialogue. I want husbands and wives and people in relationships to walk out of the theater thinking, “Could this happen to me? I know I’m being tempted.”
+ - God has put me in a really good position where I can make the choices to walk away if something is not right, so that way I can keep my integrity.
+ - I’ve been pretty transparent with all that I’ve done. I think my work speaks a lot for who I am. So, I don’t think there’s a particular thing I’d like them to know.
+ - I’ve never chased money. It’s always been about what I can do to motivate and inspire people.
+ - Seeing people laugh definitely inspires me, and so does seeing people get life lessons about living better.
+ - What I’ve learned is you treat women right.
+ - It’s so important to forgive people for their wrongs in your own life because every bit of it was for a reason-it was to form the person that you are.
+ - I think it’s important to show a husband and a wife together, in a room, raising children, because you don’t see that anymore.
+ - It’s a clear day Sonny, L A N D.
+ - I feel like I express myself, as an actor. Whatever the character is put in front of me, I try to bring truth to it, whichever way it lands. I try to bring as much truth to it and make it as believable as I can. I think that’s the job of an actor.
+ - I know that my audience is largely women, so what I try to do a lot of times is address their issues.
+ - When I have absolutely nothing to do, and I find myself in the middle of all of it going, “Wow!” When nothing’s going on, that’s when I get to stop and really appreciate the journey.
+ - I don’t do divas. I don’t do entourages. I don’t do the Hollywood crap.
+ - All my life I’ve tried to hide my height. I was taller than everybody else and stood out, so I would slouch and try to hide it.
+ - I know I can only do as much as I can do. Although I have so many ideas of my own, I’m very interested in helping to cultivate and encourage some promising new artists. But there are a lot of people and, unfortunately, a very small window.
+ - The important thing for me is, and what I’d like people to know is that, one particular genre does not make it whole. There are many, many different genres and if you ever gave it an opportunity open mindedly, I think you’d find some pretty interesting things there.
+ - The question that a lot of people ask me all the time is how did you make it? The truth be told, it was nothing but the grace of God.
+ - It’s a dream realized to partner with Oprah and bring scripted programming to OWN. She has accomplished so much with the network, and I’m excited to work with her to be a part of its continued growth.
+ - You let your past destroy you, or you use it to create something better.
+ - Music is always around, and it helps to heighten any emotion.
+ - Growing up, there was always music around, whether across the street, or on the next-door neighbor’s stereo. So, as in life, music is always around, and it helps to heighten any emotion. Music is amazing.
+ - I put a thong on a few months ago trying to be sexy. I’ve been looking for it but ain’t seen it since.
+ - There were certain areas in the country where I couldn’t go without being stopped and asked for autographs and pictures for years.
+ - There’s a huge demand for my entertainment, and I can’t meet the need. So I decided to try a TV show to reach as many of my fans as possible.
+ - What rings true is that everything we grow through in life will work out for our good.
+ - I am so proud to be from New Orleans and to be one of those people who had been displaced. I wasn’t there during that time, but that’s where I come from, that kind of poverty, and I’m very, very proud of that because it’s given me my history.
+ - I’m not suspicious of success, I’m suspicious of the people who want to attach themselves because of your success.
+ - Statistics say that I’m supposed to be in jail. And I’m not supposed to be alive.
+ - I’ve always wanted to work with Blair, and finally the timing was right. I have a tremendous amount of respect for him. I think he’s a hugely underrated actor in Hollywood.
+ - I never thought of myself as a mogul, but it’s really great to be in that position.
+ - I have this huge, huge fan base of people who’ve never seen a Broadway show, but I think it’s a great introduction to what Broadway is because my shows are not that. I think that if you’re getting people to go to theater then somebody should be celebrating that.
+ - Everything that I talk about, pretty much, are things that I learned or understood over the years.
+ - I wanted just for people to know that, no matter how simple your life is, if you have millions or you don’t have anything, you can be happy where you are.
+ - I get a lot of flack from critics that my comedies are all over the place, my dramas are all over the place, they’re schizophrenic – as if I don’t know that!
+ - My mother wasn’t strong like my aunt. She was just very passive.
+ - Fear is a sprit that really can stop you from living.
+ - There were only 3 people that I wanted to meet in life, Nelson Mandela was one of them. What a life, what a journey, what a man. Thank you for passing this way! God bless your resting soul!
+ - I know my audience, and they’re not people that the studios know anything about.
+ - Hollywood is finally waking up to the fact that people who go to church also go to the movies. I’m not sure what took them so long to see that or how long they’ll keep it up.
+ - If you’re black, you can’t just be ordinary. All successful black people are extraordinary.
+ - The key to life when it gets tough is to keep moving. Just keep moving.
+ - I’m a child who was abused. I know the difference. I clearly know the difference. The whipping for correction and then their child abuse.
+ - People see truth in my films. That’s what they react to, and that’s what they relate to.
+ - I’m not sure why no one wants to admit there’s a viable audience out there that believes in God and wants to see a movie with their family. The demand is there. The supply is not.
+ - You need to know that you can’t honor God when you’re chained to the voice and opinions of man.
+ - As far as the illusion of the fame, yes, I can definitely appreciate it.
+ - What do you spend $200 million on, with a film? I can’t wrap my brain around that one.
+ - I think we are born into what we’re supposed to learn and find out in this life.
+ - I think, you know, the people that have seen my work, I think it speaks to the possibility of getting better, and, I’m sorry, I’m still on the last caller.
+ - I don’t cook, so my favorite dish to prepare is something on the takeout menu.
+ - I got 27 people livin in my head and all of them was about to beat the heck out of you for doin that...
+ - I had one request when I started doing the plays. My prayer was: God let me do well enough to be able to take care of my mother. I was able to do that ’til the day she died because of my audience. So, they’ve already done enough. All I ask for now is their continued support.
+ - What I know about me is that, in order to lead, you also have to know how to follow.
+
+120 quotes

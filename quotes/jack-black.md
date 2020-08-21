@@ -1,0 +1,42 @@
+ - I’d rather be the king of kids, than the prince of fools.
+ - I’m fairly certain that YOLO is just Carpe Diem for stupid people.
+ - You’re not hardcore, unless you live hardcore.
+ - I serve society by rocking!
+ - The greatest gift in life is the ability to think great thoughts and have the strength to take action so that those thoughts become reality in this wonderful and abundant world.
+ - Habit is the strongest thing in life.
+ - I played, like, a year of piano until I learned the ‘Pink Panther’ theme. That was my goal. Once I was good enough, I quit. Now my music has to have some rock.
+ - I don’t think of myself as a great improver. A lot of times there’s long periods of silence when everyone in the recording studio is looking at their watch and waiting for me to say something. And I’m searching desperately in my brain for anything before something dribbles out.
+ - There’s something about a divorce in that even if your parents still love you, the fact that they can’t live with each other makes you feel there’s something wrong with you.
+ - We’re in the dark ages if J-Lo can have a music career because of her ass. And let’s face it, that’s it.
+ - I don’t have any real spirituality in my life – I’m kind of an atheist – but when music can take me to the highest heights, it’s almost like a spiritual feeling. It fills that void for me.
+ - Tenacious D loves Auntie Em’s. Her delicious nutrients are always energizing and indie-fresh. Where does she find those unbelievable recipes? Somewhere over the rainbow?
+ - Buddha is pretty funny. Buddha is the coolest, though. If I had to go with one, I’d probably party with the Buddha.
+ - I like being married. I’m at home with my wife and kids all the time now. I don’t go out for wild nights.
+ - I really wanted people to pay attention to me and like me. And the class clown thing, you know? There’s a weird desperation to the class clown when you really investigate it. Why are they trying to be the clown so much? They’re filling some kind of hole.
+ - A long life or a short life are of equal importance to God.
+ - If Beethoven and Bach hooked up with Mozart and made a band, they could be a distant runner up to The D.
+ - The movie Spinal Tap rocked my world. It’s for rock what The Sound of Music was for hills. They really nailed how dumb rock can be.
+ - I don’t really think differently of making a movie for grownups or making a movie for kids, if it’s boring it’s boring, so you want it to be entertaining and I think funny is funny whether it’s for kids or grownups, the only real difference is language.
+ - I’ve had so many hot, cheesy, corny loves of music in my life. I had a very intense Billy Joel period. So once you’ve really Joeled it up – there’s some good periods of Joel; it’s not all hot cheese. But I can’t judge anyone else for their cheese. I’ve deep-sea dived in the Gouda.
+ - I’m an aspiring writer. I hate that phrase. You’re either a writer or you’re not.
+ - I’m always looking for talented people that I want to collaborate with.
+ - Every movie presents its challenges.
+ - I’m used to being crazy and “rock-n-rolly”, which is a little different than this world. For me, it was a chance to stretch a little bit.
+ - With the acting, it’s somebody else’s brainchild, and I’m just sort of helping flesh it out. There’s a special satisfaction to being the brains behind the operation.
+ - Let’s face it, the great comedians now that are handicapped in the looks department are tremendous writers.
+ - I recommend that everyone in their youth be as out of shape as possible so that when you turn 40, people can go, “Wow, you look much better now.”
+ - Me personally, I don’t have anything against Jesus any more than I do any of the religious icons. I think they’re all pretty funny.
+ - You only have to go hardcore humiliation on the first film. On the subsequent sequels, you can coast.
+ - I’d just like to be in films that I would like to see. I think of myself as an entertainment arsenal. Like I have my acting bazooka and my music machete. And you don’t know what I’m going to come at you with.
+ - I always feel bad for people getting married and spending upwards of a hundred thousand dollars. It just seems so absurd to me.
+ - Funny songs, that’s my ticket. I can’t remember when it started or why it started, it’s just something that I NEEDED.
+ - People scream at me, “Hey, let’s party.” I give off an I’m-crazy-and-I-want-to-arty-and-wrestle-you vibe.
+ - I love comedy and drama equally and music too. I just sort of follow my nose to whatever seems really exciting at the time. Eventually, I might want to do a rock opera.
+ - When I was in High School I fell for pretty much any girl I ever met. But I was so desperate that I couldn’t get any of them because they sensed my desperation! After many, many years, I learned to relax and just be myself.
+ - Part of the acting gig is when you’re let loose some improvs and put stuff into your own words every once in a while. That doesn’t get you a writing credit or more money. It just makes it more fun.
+ - I’m a Jew. Thirty-three is when Christ died. So though I’m a Jew, in the back of my mind I still think that I gotta get it done before I’m thirty-four because well, I don’t know why. He got it done before He was thirty-four.
+ - Weddings mainly are for drinkers.
+ - Justice is a word that resides in the dictionary. It occasionally makes its escape, but is promptly caught and put back where it belongs.
+ - Seems like every other day there’s somebody on the news, somebody gets killed or does something crazy and all the neighbors and everybody says, “I can’t believe he did that, I can’t believe she did that.”
+
+40 quotes

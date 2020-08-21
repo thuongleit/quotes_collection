@@ -1,0 +1,62 @@
+ - So many things are possible just as long as you don’t know they’re impossible.
+ - You can swim all day in the Sea of Knowledge and not get wet.
+ - The way you see things depends a great deal on where you look at them from.
+ - Whether or not you find your own way, you’re bound to find some way. If you happen to find my way, please return it, as it was lost years ago. I imagine by now it’s quite rusty.
+ - Things which are equally bad are also equally good. Try to look at the bright side of things. – Humbug.
+ - The most important reason for going from one place to another is to see what’s in between, and they took great pleasure in doing just that.
+ - Time is a gift, given to you, given to give you the time you need, the time you need to have the time of your life.
+ - It’s bad enough wasting time without killing it.
+ - There are good books and there are bad books, period, that’s the distinction.
+ - I am the Terrible Trivium, demon of petty tasks and worthless jobs, ogre of wasted effort, and monster of habit.
+ - Expect everything, I always say, and the unexpected never happens.
+ - There are no wrong roads to anywhere.
+ - Sometimes I find the best way of getting from one place to another is simply to erase everything and begin again.
+ - Expect everything so that nothing comes unexpected.
+ - The only thing you can do easily is be wrong, and that’s hardly worth the effort.
+ - I received a grant from The Ford Foundation to write a book for kids about urban perception, or how people experience cities, but I kept putting off writing it. Instead I started to write what became The Phantom Tollbooth.
+ - Every sunrise gives you a new beginning and a new ending. Let this morning be a new beginning to a better relationship and a new ending to the bad memories. Its an opportunity to enjoy life, breathe freely, think and love. Be grateful for this beautiful day.
+ - You see, to tall men I’m a midget, and to short men I’m a giant; to the skinny ones I’m a fat man, and to the fat ones I’m a thin man.
+ - Have you ever heard a blindfolded octopus unwrap a cellophane-covered bathtub?
+ - What you can do is often simply a matter of what you will do.
+ - Infinity is a dreadfully poor place. They can never manage to make ends meet.
+ - Do you think it will rain? Milo: But I thought you were the Weather Man? No, I’m the Whether man, for it is more important to know whether there will be weather, whether than what the weather will be.
+ - I don’t know of any wrong road to Dictionopolis, so if this road goes to Dictionopolis at all it must be the right road, and if it doesn’t it must be the right road to somewhere else, because there are no wrong roads to anywhere. Do you think it will rain?
+ - There is much worth noticing that often escapes the eye.
+ - Just because you have a choice, it doesn’t mean that any of them ‘has’ to be right.
+ - We’re right here on this very spot. Besides, being lost is never a matter of not knowing where you are; it’s a matter of not knowing where you aren’t – and I don’t care at all about where I’m not.
+ - A slavish concern for the composition of words is the sign of a bankrupt intellect. Be gone, odious wasp! You smell of decayed syllables.
+ - You can’t improve sound by having only silence. The problem is to use each at the proper time.
+ - People always ask about my influences, and they cite a bunch of people I’ve never heard of.
+ - Why, can you imagine what would happen if we named all the twos Henry or George or Robert or John or lots of other things? You’d have to say Robert plus John equals four, and if the four’s name were Albert, things would be hopeless.
+ - You see, years ago I was just an ordinary bee minding my own business, smelling flowers all day, and occasionally picking up part-time work in people’s bonnets. Then one day I realized that I’d never amount to anything without an education and, being naturally adept at spelling, I decided that –.
+ - Since you got here by not thinking, it seems reasonable to expect that, in order to get out, you must start thinking.
+ - Everybody is so terribly sensitive about the things they know best.
+ - When you’re very young and you learn something – a fact, a piece of information, whatever – it doesn’t connect to anything.
+ - And that’s why people no longer care which words they use as long as they use lots of them.
+ - What you learn today, for no reason at all, will help you discover all the wonderful secrets of tomorrow.
+ - If you want sense, you’ll have to make it yourself.
+ - Just as I thought: boys are the cause of everything.
+ - I remember when I was a kid in school and teachers would explain things to me about what I read, and I’d think, Where did they get that? I didn’t read that in there. Later you look at it and think, That’s kind of an interesting idea.
+ - And when I’m writing, I write a lot anyway. I might write pages and pages of conversation between characters that don’t necessarily end up in the book, or in the story I’m working on, because they’re simply my way of getting to know the characters.
+ - And it’s much the same thing with knowledge, for whenever you learn something new, the whole world becomes that much richer.
+ - But I suppose there’s a lot to see everywhere, if only you keep your eyes open.
+ - Why not? That’s a good reason for almost anything – a bit used perhaps, but still quite serviceable.
+ - He paused again as a tear of longing rolled from cheek to lip with the sweet-salty taste of an old memory.
+ - That’s the way most everyone gets here. It’s really quite simple: every time you decide something without having a good reason, you jump to Conclusions whether you like it or not. It’s such an easy trip to make that I’ve been here hundreds of times.
+ - Expectations is the place you must always go to before you get to where you’re going.
+ - But I find the best things I do, I do when I’m trying to avoid doing something else I’m supposed to be doing. You know, you’re working on something. You get bugged, or you lose your enthusiasm or something. So you turn to something else with an absolute vengeance.
+ - We never choose which words to use, for as long as they mean what they mean to mean, we don’t care if they make sense or nonsense.
+ - A good book written for children can be read by adults.
+ - To a child, and to an adult, too, what you discover by yourself, or what you think you discover by yourself, is what stays.
+ - Many of the things which can never be, often are.
+ - Perhaps someday you can have one city as easy to see as Illusions and as hard to forget as Reality.
+ - I think kids slowly begin to realize that what they’re learning relates to other things they know. Then learning starts to get more and more exciting.
+ - One of the problems you have when you read with kids is that once they like something they want you to read it a hundred times.
+ - And some looked even more like each other than they did like themselves.
+ - They all looked very much like the residents of any small valley to which you’ve never been.
+ - I think really good books can be read by anybody.
+ - The only other thing which I think is important is: Don’t write a book or start a book with the expectation of communicating a message in a very important way.
+ - I write best in the morning, and I can only write for about half a day, that’s about it.
+ - When he was in school he longed to be out, and when he was out he longed to be in. On the way he thought about coming home, and coming home he thought about going. Wherever he was he wished he were somewhere else, and when he got there he wondered why he’d even bothered.
+
+60 quotes

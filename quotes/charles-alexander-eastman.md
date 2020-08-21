@@ -1,0 +1,35 @@
+ - Each soul must meet the morning sun, the new sweet earth and the Great Silence alone.
+ - If you ask him: “What is silence?” he will answer, “It is the Great Mystery! The holy silence is His voice!” If you ask: “What are the fruits of silence?” he will say: “They are self-control, true courage or endurance, patience, dignity, and reverence. Silence is the cornerstone of character.”
+ - Silence is the cornerstone of character.
+ - Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
+ - We believe profoundly in silence-the sign of a perfect equilibrium. Silence is the absolute poise or balance of body, mind, and spirit.
+ - Love between a man and a woman is founded on the mating instinct and is not free from desire and self-seeking. But to have a friend and to be true under any and all trials is the mark of a man!
+ - The logical man must either deny all miracles or none.
+ - There was no religious ceremony connected with marriage among us, while on the other hand the relation between man and woman was regarded as in itself mysterious and holy.
+ - The logical man must either deny all miracles or none, and our American Indian myths and hero stories are perhaps, in themselves, quite as credible as those of the Hebrews of old.
+ - In the life of the Indian there is only one inevitable duty-the duty of prayer-the daily recognition of the Unseen and Eternal. Our daily devotions were more necessary to us than daily food.
+ - Indian names were either characteristic nicknames given in a playful spirit, deed names, birth names, or such as have a religious and symbolic meaning.
+ - The hospitality of the wigwam is only limited by the institution of war.
+ - The elements and majestic forces in nature, Lightning, Wind, Water, Fire, and Frost, were regarded with awe as spiritual powers, but always secondary and intermediate in character.
+ - The red man divided mind into two parts, – the spiritual mind and the physical mind.
+ - As a child I understood how to give; I have forgotten this grace since I became civilized.
+ - Is there not something worthy of perpetuation in our Indian spirit of democracy, where Earth, our mother, was free to all, and no one sought to impoverish or enslave his neighbor?
+ - In every religion there is an element of the supernatural, varying with the influence of pure reason over its devotees.
+ - The American Indian was an individualist in religion as in war. He had neither a national army nor an organized church.
+ - But to have a friend, and to be true under any and all trials, is the mark of a man!
+ - The native American has been generally despised by his white conquerors for his poverty and simplicity.
+ - If a child is inclined to be grasping, or to cling to any of his or her little possessions, legends are related about the contempt and disgrace falling upon the ungenerous and mean person...
+ - That is, we believed, the supreme duty of the parent, who only was permitted to claim in some degree the priestly office and function, since it is his creative and protecting power which alone approaches the solemn function of Deity.
+ - The Indian was a religious man from his mother’s womb.
+ - More than this, even in those white men who professed religion we found much inconsistency of conduct. They spoke much of spiritual things, while seeking only the material.
+ - Our people, though capable of strong and durable feeling, were not demonstrative in their affection at any time, least of all in the presence of guests or strangers.
+ - Children must early learn the the beauty of generosity. They are taught to give what they prize most, that they may taste the happiness of giving.
+ - It has been said that the position of woman is the test of civilization, and that of our women was secure. In them was vested our standard of morals and the purity of our blood.
+ - The clan is nothing more than a larger family, with its patriarchal chief as the natural head, and the union of several clans by intermarriage and voluntary connection constitutes the tribe.
+ - The family was not only the social unit, but also the unit of government.
+ - The religion of the Indian is the last thing about him that the man of another race will ever understand.
+ - He sees no need for setting apart one day in seven as a holy day, since to him all days are God’s.
+ - There were no temples or shrines among us save those of nature.
+ - No one who is at all acquainted with the Indian in his home can deny that we are a polite people.
+
+33 quotes

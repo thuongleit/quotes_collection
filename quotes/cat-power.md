@@ -1,0 +1,24 @@
+ - I am human and I make mistakes.
+ - I don’t come from money or an educated family background or any sort of supportive family life, so all of my choices are made on my own.
+ - I’m not a professional entertainer. I’m not Neil Diamond.
+ - Life is hard and it gets worse and worse and worse.
+ - From folk to tribal to Cab Calloway, Cole Porter, Gershwin to the Rolling Stones, whose first record was all covers, to country-western, bebop, blues, and even the referencing in classic hip hop to cliched love ballads of the ’80s or whatever – that is kinda gone, and that’s just terrifying to me.
+ - Nobody considers a covers record an album.
+ - I think the hardest thing about my life is that I’ve met so many people all over the world who I love, but they’re not friends with each other.
+ - I got more guts than brains, and that’s my problem.
+ - People tend to think I’m insane, and I’m really tired of it.
+ - I need to be able to face things.
+ - I got told I needed a producer I don’t know how many times – maybe 27 times, 30? Then I recently got told ‘I’m so proud of you.’ That was even more great to hear.
+ - Playing the guitar, you kind of lock into a rhythm and a groove, and then it relaxes me to make up lyrics and sing.
+ - Everybody tends to think I’m crazy, which is the biggest problem in my life.
+ - I’ve always done things myself. I’ve never bragged or screamed that I produced a record before. I never told anybody.
+ - If your parents gave you fire to play with when you were two, you’d be standing in fire by the time you were an adult.
+ - I got told so many times I needed a manager. For a long time I resisted, and I finally got one so I can pay my mortgage, and it helped me from becoming a homeless person.
+ - I’ve never had a clique. It’s impossible when you’re always traveling.
+ - We’re always going to remind ourselves of our mistakes and how we do things differently, trying to be a better person or whatever.
+ - I moved to Los Angeles to be with a man I loved.
+ - People and their religions don’t affect me.
+ - I still haven’t been able to capture the joy of what it’s like when I sing – you know, when I’m by myself, or like when I was a little kid.
+ - I’ve always dressed like a dude.
+
+22 quotes

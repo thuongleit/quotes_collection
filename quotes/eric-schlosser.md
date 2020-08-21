@@ -1,0 +1,45 @@
+ - Fast food is popular because it’s convenient, it’s cheap, and it tastes good. But the real cost of eating fast food never appears on the menu.
+ - Marijuana gives rise to insanity – not in its users but in the policies directed against it. A nation that sentences the possessor of a single joint to life imprisonment without parole but sets a murderer free after perhaps six years is in the grips of a deep psychosis.
+ - During my school visits, I really enjoy the feedback I get from them much more than anything I might tell say to them.
+ - Different people, in good faith, can look at the same fact and interpret it differently. But thats where an interesting conversation begins.
+ - As a matter of fact, most cases of food poisoning are never linked back to their source.
+ - Kids have no idea when they’re drinking soda what they’re really drinking, and a lot of them are stunned when they learn that drinking a Big Gulp is like taking a big jar of sugar and just pouring it down. There are 50 teaspoons of sugar in a 64-ounce Big Gulp.
+ - Twenty years ago, teenage boys in the United States drank twice as much milk as soda; now they drink twice as much soda as milk.
+ - Fast food is inexpensive, convenient, and it tastes good. I’m all in favor of that. My problem is how heavily processed it is – how full of salt, fat, and sugar it is.
+ - Fast food chains spend a large amount of marketing to get the attention of children. People form their eating habits as children so they try to nurture clients as youngsters.
+ - The Golden Arches are now more widely recognized than the Christian cross.
+ - Congress should ban advertising that preys upon children, it should stop subsidizing dead-end jobs, it should pass tougher food safety laws, it should protect American workers from serious harm, it should fight against dangerous concentrations of economic power.
+ - I think two different people can read one of my books and come away with completely different opinions on the subject. I hope they just read from the beginning to the end and be made to think about the subject. Then they can come to their own conclusions.
+ - The obesity epidemic among American children is becoming so bad that I think there’s a growing realization across the country that we’ve got to change what we’re feeding our kids and that school may be a really good place to start.
+ - A public outcry usually masks a private obsession.
+ - I find that one of the most important things, as a writer, is to just show up – to just stay in the chair and fight through the difficult patches. As long as you’re at the desk, and you’re willing to fight it out, eventually the right words will come.
+ - There’s been a growing effort to kick soda out of the schools. And governors as different as Arnold Schwarzenegger in California and Mike Huckabee in Arkansas have worked hard to get soda and junk food out of their state schools, which is good.
+ - The executives who run the fast food industry are not bad men. They are businessmen. They will sell free-range, organic, grass-fed hamburgers if you demand it. They will sell whatever sells at a profit.
+ - The fast-food industry is in very good company with the lead industry and the tobacco industry in how it tries to mislead the public, and how aggressively it goes after anybody who criticizes its business practices.
+ - The United States now has more prison inmates than full-time farmers.
+ - The history of the twentieth century was dominated by the struggle against totalitarian systems of state power. The twenty-first will no doubt be marked by a struggle to curtail excessive corporate power.
+ - Yes, a cheeseburger and fries is probably my favourite meal. But I don’t eat ground beef anymore.
+ - The current fast food that we have is inexpensive when you buy it, but the long-term costs of eating it and the long-term costs to society, are much too high. This cheap food, when you add up all the total costs, is much too expensive.
+ - What we eat has changed more in the last 40 years than in the previous 40,000. The survival of the current food system depends upon widespread ignorance of how it really operates.
+ - McDonald’s has been extraordinary at site selection; it was a pioneer in studying the best places for retail locations. One of the things it did is study very carefully where sprawl was headed.
+ - We’re all connected by the system, and we all have to be a part, I think, of changing it.
+ - I’d been eating fast food all my life without thinking about it. And the more I learned about the subject, the more intrigued I became.
+ - The people designing the weapons literally often didn’t know how they were being handled in the field by the Air Force – and a lot of people in the Air Force didn’t understand some of the dangers. There’s a very strong element of madness in this.
+ - The market is a tool, and a useful one. But the worship of this tool is a hollow faith. Far more important than any tool is what you make with it.
+ - I hate the word “inevitable” because I feel like things don’t have to be the way they are.
+ - Years ago when I got stuck, I’d start twirling my hair. That’s not possible anymore. I can’t prove the relationship between writing and hair loss, but I think I pulled out a fair amount trying to work on certain sentences.
+ - There’s a real strong link today between soda consumption and obesity among children.
+ - Point of view is present in anything I write, but I really try to let the subject and facts speak for themselves.
+ - I think there could hardly be a more important subject than health and nutrition.
+ - A generation ago, three-quarters of the money used to buy food in the United States was spent to prepare meals at home. Today about half of the money used to buy food is spent at restaurants – mainly at fast food restaurants.
+ - I went into the library and read about fast food and became amazed by all the stuff I didn’t know. I learned that there is a whole world behind the counter that, it seemed to me, has been deliberately hidden from the public.
+ - Students can do experiments and investigate for themselves what’s going on in restaurants, in our food system, and begin a process of learning.
+ - We can have Americans eating affordably and eating in a way that’s sustainable.
+ - By birth and upbringing, I think I’m emotionally resilient. I don’t feel like I’m a depressive person.
+ - I think it’s possible to have food that’s healthy, that’s good for you to eat, that’s also inexpensive. We don’t have to have this cheap, unhealthy food being so aggressively promoted.
+ - As an investigative reporter, I’m trying to uncover things and expose them to create a dialogue.
+ - The fear of murder has grown so enormous in the United States that it leaves a taint, like the mark of Cain, on everyone murder touches.
+ - I think for real change to happen, it’s going to have to come from the kids, the community, the teachers, the parents.
+ - I really like visiting schools, but what I tell students isn’t anywhere near as interesting to me as what they tell me.
+
+43 quotes

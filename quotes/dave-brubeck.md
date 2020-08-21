@@ -1,0 +1,35 @@
+ - Jazz is about freedom within discipline.
+ - If there’s a deadline, I work late. If not, I like to have normal hours, and get up early and work. When things are going well, I hate to quit. And then I’ll work ’till exhausted.
+ - We don’t know the power that’s within our own bodies.
+ - Your mother’s heartbeat is the first sound you ever hear and your own heartbeat is the last.
+ - I knew I wanted to write on religious themes when I was a GI in World War II. I saw and experienced so much violence that I thought I could express my outrage best with music.
+ - I never wanted this kind of life that Im still living.
+ - Probably the most profound thing in the Bible is ‘Love your enemies, do good to those who hate you.’ This is what, to me, is the essence of Christianity.
+ - What I want to happen is to be really creative, and to play something new in the improvisations, every time.
+ - The secret of a great melody is a secret.
+ - When things are going well, I hate to quit.
+ - It’s like a whole orchestra, the piano for me. And also it’s to me the greatest instrument. I shouldn’t say that, but I believe that this is the only instrument I can really feel happy about playing.
+ - I’m always hoping for the nights that are inspired where you almost have an out of body experience.
+ - I played a lot of sports and it’s the plays in basketball that weren’t worked out that are the ones that are just fantastic that you remember. We don’t know the power that’s within our own bodies.
+ - Jazz is about the only form of art existing today in which there is freedom of the individual without the loss of group contact.
+ - You have to be taught to hate.
+ - I wasn’t allowed to play in some universities in the United States and out of twenty-five concerts, twenty-three were canceled unless I would substitute my black bass player for my old white bass player, which I wouldn’t do.
+ - Jazz stands for freedom.
+ - Every individual should be expressing themselves, whether a politician or a minister or a policeman.
+ - Kinship doesn’t come from skin color. It’s in your soul and your mind.
+ - One of the reasons I believe in jazz is that the oneness of man can come through the rhythm of your heart. It’s the same anyplace in the world, that heartbeat. It’s the first thing you hear when you’re born – or before you’re born – and it’s the last thing you hear.
+ - When I was first aware that I couldn’t read music I didn’t know I couldn’t read because I could play the music that was in front of me.
+ - I’m beginning to understand myself. But it would have been great to be able to understand myself when I was 20 rather than when I was 82.
+ - Damn it, when I’m bombastic, I have my reasons. I want to be bombastic-take it or leave it.
+ - Concord, California was a great place to grow up.
+ - Jazz is about freedom within discipline. Usually a dictatorship like in Russia and Germany will prevent jazz from being played because it just seemed to represent freedom, democracy and the United States.
+ - The first choral music I remember hearing was Handel’s ‘Messiah’ when the Mormon Tabernacle Choir broadcast it over the radio.
+ - I prefer no one to teach me. I prefer to swing on my own.
+ - I have more energy at the end than I do at the beginning. You can be so beat up that you can scarcely walk on stage but when you get to the piano the excitement kicks in, you forget about being tired.
+ - I used to take my mother to Yosemite. When I turned 14, I got my driver’s license, and that’s where she’d want to go, so I’d go take her there for two weeks.
+ - I was always very aware of drummers. My oldest brother Henry was a drummer, and he drummed on everything in the house from the kitchen sink to stovepipes. He was the first drummer in the Gil Evans Orchestra, so you’ve got to know how great he was.
+ - I knew even if I’m a cowboy, I’m going to be involved in jazz in some way.
+ - You could play probably a span of 50 years of me playing St. Louis Blues, and most of the time it will be different every time.
+ - Most of the international acceptance of jazz education can be traced to the University of North Texas, Denton, Texas, and the wonderful program they inaugurated.
+
+33 quotes

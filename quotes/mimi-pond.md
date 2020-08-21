@@ -1,0 +1,21 @@
+ - What do women want? Shoes.
+ - Show me a woman with a subscription to a bridal magazine and I’ll show you someone who doesn’t even have a boyfriend.
+ - Even if you’re fat, one thing always fits: shoes.
+ - Planning your own coming-of-age experience may wither you prematurely, but just think of it this way: If you can get through this, childbirth should be a breeze.
+ - What becomes of the broken-hearted? They buy shoes.
+ - Being popular is important. Otherwise people might not like you.
+ - Walking in high heels should be made an Olympic sport.
+ - How to Tell If Shoes Fit: Walking around the shoe store is not going to tell you any more than test-driving a car around a showroom. And those little mirrors? That’s so you can tell how your cat is going to like your shoes. The real way to tell how shoes fit is how badly you want them.
+ - Buying shoes is the highest form of shopping.
+ - People have an annoying tendency to compare shoe prices with the cost of other things. They might say, ‘Wow – those shoes cost as much as a sofa!’ Well, this may be true, but the comparison is so silly. After all, you can’t wear a sofa.
+ - The woman who steals your boyfriend has the ugliest shoes on earth. Truly hideous. You wouldn’t be caught dead in them.
+ - Remember when you were eleven years old and you thought how great it would be to get your period? And then you got it? That’s what planning a wedding is like.
+ - I wasn’t invited to be on staff at the Simpsons because they didn’t want any women on staff at the time.
+ - How to Tell a Good Pair of Shoes: Do you like them? Then they’re good shoes.
+ - It is tempting to think of your husband-to-be as just another bridal accessory. It may be easier for him to play along with this too. After all, you don’t expect your shoes or your beaded bag to help you make decisions.
+ - Your wedding will not be what you think it is going to be, no matter what you think it is going to be.
+ - Of all the wonderful things that men and women share, shoes, tragically, are not one of them. This is because men lack the shoe chromosome.
+ - In LA, it’s the law that you must be engaged in writing a screenplay with your hairdresser, pool boy, personal trainer, life coach, dog walker, or yoga instructor.
+ - Plastic shoes are to the shoe world what fast food is to fine cuisine.
+
+19 quotes

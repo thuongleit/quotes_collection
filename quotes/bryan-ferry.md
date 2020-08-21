@@ -1,0 +1,47 @@
+ - Other bands wanted to wreck hotel rooms; Roxy Music wanted to redecorate them.
+ - I like to think Duke Ellington would probably embrace a fragrance as well.
+ - You talk too much, you laugh too loud, and that’s the price of love.
+ - I suppose young people think football is glamorous – soccer – it’s big money and the stars of it, they look good and have a great big house and a huge Ferrari.
+ - At home I don’t really have any drum machines or anything like that, I just have a piano and a cassette machine, an old-fashioned one, an old relic which I’ve always used.
+ - I met John Lennon and he was with his wife in Tokyo. I met him there.
+ - Why should I spoil my mood by wearing an ugly suit?
+ - I like the name Atomic Kitten. It’s so great.
+ - But I do like to have peace and quiet for a good hour.
+ - I very rarely play the piano at home. Deliberately, so that when I do play it, I love it.
+ - All those rappers, they’re the only glamorous people working in music now. They dress up in these chains of gold, cars, girls and this and that, high-heeled shoes.
+ - It’s nice to know that there are several different avenues I could pursue.
+ - Everyone in rock ’n roll including myself was touched by Elvis’s spirit, I was, and always will be a fan.
+ - I’d love to follow the Tour de France one day. It’s a really exciting spectacle. I’ve only seen it once as it was coming into Paris and that was very exciting for me. I have memories of that.
+ - I will be putting out a fragrance – I’m following in the great steps of Puff Daddy.
+ - It must be quite difficult if you have a father who’s sort of known. On the other hand, you can get a job in his band.
+ - Women! I have no idea. I don’t know anything about women at all. They’re a complete mystery to me.
+ - Get down with your old Allman Bros. records!
+ - Sometimes you’re quite fortunate, being on the stage, getting to meet people like Salvador Dali.
+ - As you get older, you get a bit more serious.
+ - When I stopped touring in the early ’80s for a few years, it was a mistake looking back. I lost touch with my audience in a way and I think that was a bad career move.
+ - I loved music from the age of eight. Jazz and blues. But also Little Richard and Elvis Presley.
+ - Performing was terrifying.
+ - You can never get silence anywhere nowadays, have you noticed?
+ - I like to piece together different guitarists, unlikely bedfellows. You have Jonny Greenwood playing next to Nile Rodgers on the same track, so it becomes like an orchestra of sounds.
+ - I don’t do interviews at all when I’m on tour, so this time, on a day off, I’ll do that kind of thing a little bit. I don’t do big promotion schedules, not when I’m touring.
+ - But when I started writing songs, I stopped painting completely, and the only art things I do are connected to the career, like album sleeves and, to some extent, posters and things like that.
+ - It’s good having a lot of different songs to choose from to do the show. It means you don’t get bored of doing it in one particular genre.
+ - I don’t think I’ve ever played the Olympia before, but I’m not totally sure.
+ - You become acutely aware, if you’re touring a lot, that you need new songs to invigorate the live show. And make it interesting for yourself, too.
+ - And Mary J. Blige, she’s got all these fur coats and hats and stuff. She’s good; I like her.
+ - But when you get music and words together, that can be a very powerful thing.
+ - I didn’t really want to give up music.
+ - It’s fabulous when you do that, when you discover somebody who you like, when you kind of feel those feelings, even though he articulates them better.
+ - I’ve had quite a few moments I’ve liked, so it’s good enough.
+ - When I was at college – that was the first time I tried singing. I played in a band, and people seemed to like it.
+ - While it’s a great indulgence, it’s also very interesting to have three bass players on the same track.
+ - I can never predict what’s going to happen.
+ - I’ve done shows with orchestras, and I like writing with orchestras.
+ - Words can be very powerful. I find them very difficult.
+ - It must be really hard to be starting out in music now.
+ - I did some songs for Baz Luhrmann’s The Great Gatsby. I had done a jazz album of Roxy songs, and they used bits of it in the film. It would be nice to score a movie one day.
+ - I tour a lot, sometimes like a hundred shows a year.
+ - It’s not a very high failure rate if you choose people that you really like the sound of.
+ - Secretly, I wanted to look like Jimi Hendrix, but I could never quite pull it off.
+
+45 quotes

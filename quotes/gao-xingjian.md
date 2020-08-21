@@ -1,0 +1,49 @@
+ - Dreams are more real than reality itself, they’re closer to the self.
+ - Soul Mountain, the story of one man’s quest for inner peace and freedom.
+ - Walk where your heart leads you, there are no restrictions and no burdens.
+ - A good man never fights with a woman.
+ - You’re safe only when you can’t see anybody.
+ - As a male writer, women are always what men pursue, and their world is always a mystery. So I always tried to present as many views as possible on women’s worlds.
+ - If you want to do anything, do it now, without compromise or concession, because you have only one life.
+ - Literature is subservient to nothing but truth.
+ - If, while observing the boundless universe, the writer is able to scrutinise his own self as well as others, the resulting incisiveness of his observations will far surpass objective descriptions of reality.
+ - Reality is myself, reality is only the perception of this instant and it can’t be related to another person.
+ - In the snow outside my window I see a small green frog, one eye blinking and the other wide open, unmoving, looking at me. I know this is God.
+ - I want to write a novel so profound that it would suffocate a fly.
+ - I don’t want to be a strong hero who can save society. I just want to save myself.
+ - Realty exists only through experience, and it must be personal experience.
+ - What is essential is whether it is perceived and not whether it exists. To exist and yet not to be perceived is the same as not exist.
+ - I hadn’t originally intended to do any reading, what if I did read one book more or one book less, whether I read or not wouldn’t make a difference, I would still be waiting to get cremated.
+ - Love is so holy, so confusing. It makes a man anxious, tormented. Love, how can I define it?
+ - Loneliness is a prerequisite for freedom. Freedom depends on the ability to reflect, and reflection can only begin when one is alone.
+ - If everyone is a hero, then disasters and atrocities lose their meaning. It’s only when certain people are heroes and others are not that these tragedies and disasters that mankind faces take on meaning.
+ - Maybe there isn’t a God after all, maybe there’s only a universe rotating by itself like a millstone.
+ - With the beginning of life, comes the thirst for truth, whereas the ability to lie is gradually acquired in the process of trying to stay alive.
+ - To subvert is not the aim of literature, its value lies in discovering and revealing what is rarely known, little known, thought to be known but in fact not very well known of the truth of the human world. It would seem that truth is the unassailable and most basic quality of literature.
+ - When God talks to humans he doesn’t want humans to hear his voice.
+ - You contemplate and you wander without any worries, between heaven and earth, in your own private world, and in this way you acquire supreme freedom.
+ - Once the buttons are undone, you know how it’ll all end. It’s all in the game, there are no miracles.
+ - It’s in literature that true life can be found. It’s under the mask of fiction that you can tell the truth.
+ - Everybody can write poetry, just like everybody knows how to make love.
+ - Men always look differently at women, even if it’s not your intention it is wrongly interpreted as such.
+ - Life is probably a tangle of love and hate permanently knotted together.
+ - Observing humans and observing oneself yields a clear-minded starting point for literature.
+ - The human need for language is not simply for the transmission of meaning, it is at the same time listening to and affirming a person’s existence.
+ - I believe in science but I also believe in fate.
+ - Life is fragile, yet to obstinately struggle is natural.
+ - In the history of literature there are many great enduring works which were not published in the lifetimes of the authors. If the authors had not achieved self-affirmation while writing, how could they have continued to write?
+ - I decided that I did not want to follow any of these ideologies or trends, because these also exerted a kind of pressure, and obstructed absolute creative freedom.
+ - Everyone has to have either this or that problem, if he can’t find any problem, he loses all reason for living.
+ - The sand murmurs that it wants to swallow everything.
+ - The enterprise of describing something in language that has never been described before is a very difficult thing to do. When you decide to do away with old cliches or old phraseologies, and to come up with a new way of saying something, it’s extremely difficult.
+ - Literary revolution and revolutionary literature did not create a beautiful new world but instead divested literature of its basic nature, promoted violence, and, by resorting to linguistic violence, made a battlefield of this domain of spiritual freedom.
+ - In my view the time for rousing revolutionary literature has passed, because the revolution has already revolutionised itself to death and has left behind only bitterness and a sort of weariness, listlessness and even nausea.
+ - There are numerous layers to truth, and the simple and superficial statement of facts cannot satisfy the writer.
+ - When you’re telling a story, you’ve got to give details.
+ - They say it only takes an instant to have a dream; a dream can be compressed into hardtack.
+ - Only a lunatic would think that art is superior to nature.
+ - Indeed, loft aspirations produce ideas.
+ - Literature remains an indispensable human activity, in which the reader and the writer are engaged of their own volition. Hence, literature has no duty to the masses or society, and ethical or moral pronouncements added by busybody critics are of no concern to the writer.
+ - Truth refuses to be subservient to either politics or the market.
+
+47 quotes

@@ -1,0 +1,94 @@
+ - Don’t be afraid to give up the good to go for the great.
+ - If your only goal is to become rich, you will never achieve it.
+ - Own nothing, control everything.
+ - I believe the power to make money is a gift of God.
+ - I would rather earn 1% off a 100 people’s efforts than 100% of my own efforts.
+ - Success comes from keeping the ears open and the mouth closed.
+ - The secret of success is to do the common things uncommonly well.
+ - The way to make money is to buy when blood is running in the streets.
+ - If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.
+ - I always tried to turn every disaster into an opportunity.
+ - The secret of success is to get up early, work late and strike oil.
+ - I do not think that there is any other quality so essential to success of any kind as the quality of perseverance. It overcomes almost everything, even nature.
+ - Homeopathy is a progressive and aggressive step in medicine.
+ - The man who starts out simply with the idea of getting rich won’t succeed, you must have a larger ambition.
+ - There is no feeling in this world to be compared with self-reliance – do not sacrifice that to anything else.
+ - I don’t want a nation of thinkers, I want a nation of workers.
+ - Do you know the only thing that gives me pleasure? It’s to see my dividends coming in.
+ - Save when you can and not when you have to.
+ - God gave me my money.
+ - Oh, how blessed young men are who have to struggle for a foundation and beginning in life.
+ - Competition is a sin.
+ - I never would have been able to tithe the first million dollars I ever made if I had not tithed my first salary, which was $1.50 per week.
+ - I believe in the supreme worth of the individual and in his right to life, liberty, and the pursuit of happiness.
+ - Next to doing the right thing, the most important thing is to let people know you are doing the right thing.
+ - The person with big talk and big dreams is more powerful than one with all the facts. I believe that the law was made for man and not man for the law; that government is the servant of the people and not their master.
+ - Character – not wealth, power, or position – is the supreme word.
+ - The ability to deal with people is as purchasable a commodity as sugar or coffee and I will pay more for that ability than for any other under the sun.
+ - Get rich by taking something common and making it uncommon.
+ - The best philanthropy is constantly in search of the finalities-a search for a cause, an attempt to cure evils at their source.
+ - I would rather hire a man with enthusiasm, than a man who knows everything.
+ - The common denominator for success is work.
+ - I had no ambition to make a fortune. Mere money-making has never been my goal, I had an ambition to build.
+ - I believe in the dignity of labor, whether with head or hand; that the world owes no man a living but that it owes every man an opportunity to make a living.
+ - Giving should be entered into in just the same way as investing. Giving is investing.
+ - Good leadership consists of showing average people how to do the work of superior people.
+ - Think of giving not only as a duty but as a privilege.
+ - Giving is the secret to a healthy life. Not necessarily money, but whatever a person has to give of encouragement, sympathy, and understanding.
+ - I have made many millions but they have brought me no happiness.
+ - Charity is injurious unless it helps the recipient to become independent of it.
+ - I have ways of making money that you know nothing of.
+ - Every right implies a responsibility; Every opportunity, an obligation, Every possession, a duty.
+ - The best business in the world is a well run oil company. The second best business in the world is a badly run oil company.
+ - Never lose interest in life and the world. Never allow yourself to become annoyed.
+ - How much money does it take to make a man happy? Just one more dollar.
+ - The major fortunes in America have been made in land.
+ - There is nothing in this world that can compare with the Christian fellowship; nothing that can satisfy but Christ.
+ - A man has no right to occupy another man’s time unnecessarily.
+ - Never think you need to apologize for asking someone to give to a worthy cause, any more than as though you were giving him or her an opportunity to participate in a high-grade investment. The duty of giving is as much his or hers as is the duty of asking yours.
+ - It is wrong to assume that men of immense wealth are always happy.
+ - I have no use for men who fail. The cause of their failure is no business of mine, but I want successful men as my associates.
+ - Singleness of purpose is one of the chief essentials for success in life, no matter what may be one’s aim.
+ - I believe it is a religious duty to get all the money you can, fairly and honestly; to keep all you can, and to give away all you can.
+ - I was trained from the beginning to work, to save, and to give.
+ - I was trained from the beginning to work, to save. I have always regarded it a as a religious duty to get all I could honorably and to give all I could.
+ - The only question with wealth is, what do you do with it?
+ - The success of each is dependent upon the success of the other.
+ - I never placed my head upon the pillow at night without reminding myself that my success might only be temporary.
+ - Long ago I lost the joy in living. The only joy I have is in my giving.
+ - Be sure that you are not deceiving yourself at any time about actual conditions.
+ - And we are never too old to study the Bible. Each time the lessons are studied comes some new meaning, some new thought which will make us better.
+ - A man’s wealth must be determined by the relation of his desires and expenditures to his income. If he feels rich on ten dollars, and has everything else he desires, he really is rich.
+ - The impression was gaining ground with me that it was a good thing to let the money be my slave and not make myself a slave to money.
+ - To think! All that power and he wasn’t even rich!
+ - The task is simple. We will organize children and teach them in a perfect way the things their fathers and mothers are doing in an imperfect way.
+ - I know of nothing more despicable and pathetic than a man who devotes all the hours of the waking day to the making of money for money’s sake.
+ - I believe that thrift is essential to well-ordered living.
+ - It has always been my rule in business to make everything count.
+ - A friendship founded on business is better than a business founded on friendship.
+ - I can think of nothing less pleasurable than a life devoted to pleasure.
+ - Don’t blame the marketing department. The buck stops with the chief executive.
+ - You know that great prejudice exists against all successful business enterprise – the more successful, the greater the prejudice.
+ - We can never learn too much of His will towards us, too much of His messages and His advice. The Bible is His word and its study gives at once the foundation for our faith and an inspiration to battle onward in the fight against the tempter.
+ - After it is all over, the religion of man is his most important possession.
+ - When a man has accumulated a sum of money, accumulated it within the law, the Government has no right to share in its earnings.
+ - Our cup will truly run over only after we have sealed the character cracks.
+ - Money is a way of keeping COUNT on how well you’re doing in business.
+ - The day of combination is here to stay. Individualism has gone, never to return.
+ - Often-times the most difficult competition comes, not from the strong, the intelligent, the conservative competitor, but from the man who is holding on by the eyelids and is ignorant of his costs, and anyway he’s got to keep running or bust!
+ - The American Beauty Rose can be produced in the splendor and fragrance which bring cheer to its beholder only by sacrificing the early buds which grow up around it. This is not an evil tendency in business. It is merely the working-out of a law of nature and a law of God.
+ - Let the good work go on. We must ever remember we are refining oil for the poor man and he must have it cheap and good.
+ - It is very important to remember what other people tell you, not so much what you yourself already know.
+ - If my name were John D Smith IV I wouldn’t have been elected to anything.
+ - I should say in general the advantage of education is to better fit a man for life’s work. I would advise young men to take a college course, as a rule, but think some are just as well off with a thorough business training.
+ - I shall use such influence as I have in emphasizing the basic truths common to all denominations, in lowering denominational barriers and in promoting effective cooperation among Christians of whatever creed.
+ - I have long been profoundly convinced that in the very nature of things, employers and employees are partners, not enemies; that their interests are common not opposed; that in the long run the success of each is dependent upon the success of the other.
+ - I was born into it and there was nothing I could do about it. It was there, like air or food, or any other element. The only question with wealth is what you do with it.
+ - We are quite convinced that if he were alive today, as an astute businessman looking out to the future, he would be moving out of fossil fuels and investing in clean, renewable energy.
+ - My mother was given to a typical question: “We have always done this. Why should we do anything else?” But my wife’s typical question was “We have always done this. Why don’t we do it another way or, better still, why not do something else?”
+ - When work goes out of style we may expect to see civilization totter and fall.
+ - The poorest man I know is the man who has nothing but money.
+ - Taxation has its limitations as a method of achieving better economic distribution since for this purpose it is essentially remedial. We must also take a positive approach by finding new ways to spread ownership of future capital growth more broadly in our society.
+ - We are coming to see that there should be no stifling of labor by capital, or of capital by labor; and also that there should be no stifling of labor by labor, or of capital by capital.
+
+92 quotes

@@ -1,0 +1,46 @@
+ - Be afraid of nothing.
+ - Send me flowers while I’m alive. They won’t do me a damn bit of good after I’m dead.
+ - I never go outside unless I look like Joan Crawford the movie star. If you want to see the girl next door, go next door.
+ - If I can’t be me, I don’t want to be anybody.
+ - Care for your clothes, like the good friends they are.
+ - Not that anyone cares, but there’s a right and wrong way to clean a house.
+ - Well, we can skip childhood because I didn’t have any. Not one goddam moment on the Good Ship Lollipop.
+ - If I weren’t a Christian Scientist, and I saw “Trog” advertised on a marquee across the street, I’d think I’d contemplate suicide.
+ - I’d like to think every director I’ve worked with has fallen in love with me, I know Dorothy Arzner did.
+ - Then there’s that ‘You’re only as old as you feel’ business, which is true to a point, but you can’t be Shirley Temple on the Good Ship Lollipop forever. Sooner or later, dammit, you’re old.
+ - There was a saying around MGM: “Norma Shearer got the productions, Greta Garbo supplied the art, and Joan Crawford made the money to pay for both”.
+ - My tears speak for me.
+ - I think that the most important thing a woman can have – next to talent, of course – is her hairdresser.
+ - Love is a fire. But whether it is going to warm your hearth or burn down your house, you can never tell.
+ - Choose your clothes for your way of life.
+ - Recently I heard a ‘wise guy’ story that I had a party at my home for twenty-five men. It’s an interesting story, but I don’t know twenty-five men I’d want to invite ta a party.
+ - There’s nothing wrong with my tits but I don’t go around throwing them in people’s faces.
+ - Women’s Lib? Poor little things. They always look so unhappy. Have you noticed how bitter their faces are?
+ - If you throw a lamb chop in the oven, what’s to keep it from getting done?
+ - Box-office poison? Mr. Louis B. Mayer always asserted that the studio had built Stage 22, Stage 24 and the Irving Thalberg Building, brick by brick, from the income on my pictures.
+ - Any actress who appears in public without being well-groomed is digging her own grave.
+ - I was born in front of a camera and really don’t know anything else.
+ - You have to be self-reliant and strong to survive in this town. Otherwise you will be destroyed.
+ - If you’ve earned a position, be proud of it. Don’t hide it. I want to be recognized. When I hear people say, ‘There’s Joan Crawford!’ I turn around and say, ‘Hi! How are you!’
+ - Make your wardrobe as versatile as an actress. It should be able to play many roles.
+ - If you start watching the oldies, you’re in trouble. I feel ancient if “Grand Hotel” or “The Bride Wore Red” comes on. I have a sneaking regard for “Mildred Pierce”, but the others do nothing for me.
+ - I absolutely will not allow anyone to call me grandmother. They can call me Auntie Joan, Dee-Dee, Cho-Cho, anything but grandmother. It pushes a woman almost to the grave.
+ - If you have an ounce of common sense and one good friend you don’t need an analyst.
+ - I need sex for a clear complexion, but I’d rather do it for love.
+ - I was a strict disciplinarian, perhaps too strict at times, but my God, without discipline what is life?
+ - They were grooming Doris Day to take over the top spot. Jack L. Warner asked me to play her sister in one picture. I said, “Come on, Jack. No one could ever believe that I would have Doris Day for a sister.”
+ - I remember most clearly when a teenage Christopher spat in my face. He said, “I hate you”. It’s pretty hard to overlook that. I couldn’t.
+ - I used to wash my hands every ten minutes. I couldn’t step out of the house unless I had gloves on. I wouldn’t smoke a cigarette unless I opened the pack myself, and I would never use another cigarette out of that pack if someone else had touched it.
+ - I, Joan Crawford, I believe in the dollar. Everything I earn, I spend.
+ - When television killed comedy and love stories, the movie makers went in slugging. They offered the downbeat, the degenerate as competition. This seems to me to be a sad campaign for Hollywood to use to combat box office disaster.
+ - Sensitive husbands don’t like second billing.
+ - My God, I’m four hundred years old and the most I can do is look three hundred.
+ - Find your happiest colours – the ones that make you feel good.
+ - Check out the very best of Hollywood jokes that will make you laugh.
+ - Nobody can imitate me. You can always see impersonations of Katharine Hepburn and Marilyn Monroe. But not me. Because I’ve always drawn on myself only.
+ - Hollywood is like life, you face it with the sum total of your equipment.
+ - Mr. Cukor is a hard task-master, a fine director and he took me over the coals giving me the roughest time I have ever had. And I am eternally grateful.
+ - Sure, I’d play an ape if they asked me. Maurice Evans did.
+ - Life deals from the bottom, sometimes, doesn’t it?
+
+44 quotes

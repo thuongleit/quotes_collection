@@ -1,0 +1,32 @@
+ - Seek to do good, and you will find that happiness will run after you.
+ - A politician thinks of the next election; a statement of the next generation. A politician looks for the success of his party; a statesman for that of his country. The statesman wishes to steer, while the politician is satisfied to drift.
+ - A politician thinks of the next election. A statesman, of the next generation.
+ - I can do small things in a great way.
+ - Submission to duty and God gives the highest energy. He, who has done the greatest work on earth, said that He came down from heaven, not to do His own will, but the will of Him who sent Him, Whoever allies himself with God is armed with all the forces of the invisible world.
+ - We are either progressing or retrograding all the while; there is no such thing as remaining stationary in this life.
+ - Conscience in the soul is the root of all true courage. If a man would be brave, let him learn to obey his conscience.
+ - He who believes is strong. Strong convictions precede great actions.
+ - All the strength and force of man come from his faith in things unseen.
+ - The bravest of individuals is the one who obeys his or her conscience.
+ - This is the way to cultivate courage: First, by standing firm on some conscientious principle, some law of duty. Next, by being faithful to truth and right on small occasions and common events. Third, by trusting in God for help and power.
+ - It may make a difference to all eternity whether we do right or wrong today.
+ - One of the best things in the gospel of Jesus is the stress it lays on small things. It ascribes more value to quality than to quantity; it teaches that God does not ask how much we do, but how we do it.
+ - Amid all change, we desire something permanent; amid all variety, something stable; amid all progress, some central unity of life; something which deepens as we ascend; which roots itself as we advance; which grows more and more tenacious of the old, while becoming more and more open to the new.
+ - When we trust our brother, whom we have seen, we are learning to trust God, whom we have not seen.
+ - Love is the spirit of life, and makes all things live.
+ - The atheist has no hope.
+ - Never hurry. Take plenty of exercise. Always be cheerful. Take all the sleep you need. You may expect to be well.
+ - If we desire to do what will please God, and what will help men, we presently find ourselves taken out of our narrow habits of thought and action; we find new elements of our nature called into activity; we are no longer running along a narrow track of selfish habit.
+ - Religion is life, philosophy is thought; religion looks up, friendship looks in. We need both thought and life, and we need that the two shall be in harmony.
+ - He who never looks up to a living God, to a heavenly presence, loses the power of perceiving that presence, and the universe slowly turns into a dead machine, clashing and grinding on, without purpose or end. If the light within us be darkness, how great is that darkness!
+ - Unmixed praise is not due to any one. It leaves behind a sense of unreality. We can only do justice to a great man by a discriminating criticism. Hero-worship, which paints a faultless monster, whom the world never saw, is like those modern pictures which are a blaze of light without any shadow.
+ - Manliness means perfect manhood, as womanliness implies perfect womanhood. Manliness is the character of a man as he ought to be, as he was meant to be.
+ - He who believes in goodness has the essence of all faith. He is a man of cheerful yesterdays and confident to-morrows.
+ - Take thy self-denials gaily and cheerfully, and let the sunshine of thy gladness fall on dark things and bright alike, like the sunshine of the Almighty.
+ - Art itself, in all its methods, is the child of religion. The highest and best works in architecture, sculpture and painting, poetry and music, have been born out of the religion of Nature.
+ - Even where there is talent, culture, knowledge, if there is not earnestness, it does not go to the root of things.
+ - It is no natural for a man to pray that no theory can prevent him from doing it.
+ - Conscience is the root of all true courage.
+ - Whenever we do what we can, we immediately can do more.
+
+30 quotes

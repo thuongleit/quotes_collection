@@ -1,0 +1,49 @@
+ - If someone is trying to bring you down, it only means you’re above them.
+ - Don’t try to impress people. Always be yourself!
+ - Everyone suffers some injustice in life, and what better motivation than to help others not suffer in the same way.
+ - I’d like to help other kids with dyslexia, because I’m dyslexic. It was very hard, and I know that what I went through, other kids are going through.
+ - I think everything about my life is magical. I’ve struggled, and against most odds, I’m truly having the experience of living my dreams.
+ - Music is a big part of my life. I listen to different genres, and I choose the music that will inspire the next part of my story.
+ - I never saw myself as a singer; I never really thought I had the voice for it.
+ - I think that everybody needs somebody to really look up to and know that even though you’re going through a tough time, you’ll get over it.
+ - I think that since it’s prom, you should definitely wear a long dress. You can wear a short one anytime! This is the moment when you get to be a princess, and for me, that means a sweetheart neckline, long, then pouf – out and big.
+ - I do have many of the same friends I grew up with. Most I’ve known since we were three or four years old! I have made new friends as well.
+ - I have to work extra hard because I am dyslexic. People said that I couldn’t be an actress, but I’m proving them wrong. Acting has helped me overcome the challenge.
+ - My big break was becoming the spokesperson for Texas Instruments. Casting directors really started giving me a chance to read for projects.
+ - I’ve been dancing all my life, but I never did it seriously.
+ - You always just have to be the best that you can be. And if you know that in your heart, then that’s all that matters.
+ - My secret is one the world needs to know – nearly a billion people a year die from unsafe drinking water.
+ - My father is Cuban. Spanish was my first language, but I don’t speak it that much anymore because I had dyslexia, and in school they work with you only in English. But I’m proud to be Latina, and most people don’t know I am.
+ - I feel like girls always deserve flowers; it’s just a nice thing to do. If you want to make your girlfriend smile, send her flowers!
+ - I have suffered from bullying in many ways, from bullying in school due to my disability in reading, to digital abuse that I deal with on a daily basis. I’d like to tell the kids that are being bullied that no one should have to deal with the abuse, ever!
+ - My dad would call me his Cuban princess because I had really dark olive skin because I was always in the sun; but I don’t really go in the sun anymore, so that is why I am so white.
+ - My dream artist to play at prom would be Frank Ocean. ‘Thinking Of You’ is one of my favorite songs. He makes really sweet music for slow dancing at prom.
+ - I want to keep making movies, hopefully with some nominations, if I’m lucky! Movies that make people feel something, where they walk away and say, “Gosh, she’s different.”
+ - I don’t want to be that girl who has that same style all the time where the music always sounds exactly the same, and you always know it’s her.
+ - I always finish off my look with a spritz of Vera Wang Pink Princess.
+ - I’m really into tall boots. I just got some new ones from Michael Kors that have these little gold studs. I have Valentino ones that I really love. Real, real tall boots!
+ - Start going to bed earlier! It is a tough adjustment when you have had a summer of staying up late and waking up late.
+ - The Humane Society is so great to work with. Because everyone there is so nice and supportive, and they’re all animal lovers like me.
+ - I love pointy nails! A cute way to add a pop of color to your nails is to make a V-shape at the ends of them in a pastel color.
+ - My makeup artist, Tonya Brewer, taught me the importance of moisturizing daily. Hydration is a must if you want pretty, dewy skin – which I love.
+ - My family was absolutely supportive. I did have a fear of cold reads because of my dyslexia, but my family’s support and reading classes really helped me overcome my fear!
+ - To me, being Latin is about more than your looks – it’s how you’re brought up.
+ - I like ‘As Long As You Love Me’ and ‘Boyfriend’ by Justin Bieber. It gets you moving – you just can’t help it! And ‘Teach Me How To Dougie’ gets Zendaya and I every time.
+ - I love Michael Kors! I also love Miu Miu shoes – they’re fabulous, I have so many pairs.
+ - Dancing inspires my music. Having your girlfriends all together and just being free and happy.
+ - I think the best advice came from Drew Barrymore, about always finding love in everything you do and keeping a positive attitude and being thankful.
+ - I don’t think people realize how much work it takes to make an album.
+ - I personally don’t think you can love two things like dancing and singing the same exact amount. There is always one that you like more, and that is most likely the one that you’re better at, because you try harder in it.
+ - I’m always on Instagram! I’m like an Instagram stalker.
+ - I think that everyone has the power to make a change in the world.
+ - I don’t have to try to be perfect because I know that my fans like me for who I am. They like me because I am weird and kind of funky, but still really calm.
+ - Maria Canals-Barrera is Cuban and from Miami and I’m part Cuban and from Miami, so needless to say she became a quick friend.
+ - I tend to have a lot of guy friends.
+ - I practice reading all the time. I read everything and having so many scripts to read, which really helps out as well.
+ - Acting isn’t a side thing – you have to live and breathe it.
+ - I like clean-cut, very proper, very elegant looks.
+ - I know that some girls look up to me for certain things, like dyslexia, and that way I know that they like me for me, so it adds no pressure.
+ - I’m in the studio for hours in that tiny little box, and really, the performing part is what I’m most excited about.
+ - I really love big scarves. I have a whole bunch.
+
+47 quotes

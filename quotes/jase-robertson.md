@@ -1,0 +1,35 @@
+ - The first step to dealing with a problem is admitting that you have a problem.
+ - Work without fun is like peanut butter without jelly.
+ - God’s first, then family, then whatever else you love.
+ - The No. 1 rule in duck hunting is to go where the ducks are.
+ - When in doubt, figure it out. That’s the redneck way.
+ - Group texts are the worst. They’re like a terrible, technological snowball, coming down a mountain, and you can’t stop it.
+ - When you have a flaming hot donut in your hand and your trying to eat it your not worried about 10 and 2.
+ - I’m just a simple guy. I love being at my house with my family. I love playing dominos and card games and hunting and fishing. That’s just what I like to do.
+ - Most things can be fixed with duct tape and extension cords.
+ - You can see the true heart of a man when you’re out in the woods with a weapon.
+ - I represent Jesus on this earth and he represents me in heaven.
+ - Where I come from your truck is a reflection of who you are.
+ - Through Jesus, your past is explained, your present has a purpose, and your future is secure. What more could you really want in life?
+ - I don’t like meat from the grocery store, it makes me nervous.
+ - I’m into the true meaning of Christmas – Faith, Family, and Facial hair.
+ - Frog catching is the most fun a human being can have while on this earth.
+ - You can talk any redneck into a challenge. That’s why so many rednecks die in strange ways.
+ - If you’re too busy to duck hunt or catch fish, then you’re too busy.
+ - It seems a fine line between being a matador and being a rodeo clown.
+ - Going to a bar or pool hall doesn’t mean you’re a drunk, just like sitting in a henhouse doesn’t make you a chicken. It’s the same in the opposite setting. Sitting in a church building doesn’t make you a follower of Christ.
+ - My wife hates the beard. When we dated, I would grow it out during duck season. She said she could handle anything for three months – but now I have it all the time.
+ - My parents were hoarders before hoarding was cool.
+ - I’m going to use whatever God blesses me with as a platform to tell the world that God is for you. He proved it through sending Jesus down here to die for us and be resurrected. And for us that gives us second chances and it gives us hope, and so we spread that message everywhere.
+ - A duck tastes the same whether they’re shot sitting or flying.
+ - Most things in life are better when you just cut to the chase.
+ - Most people named Willie are either in prison or on the armwrestling circuit.
+ - At the end of the day, I love eating duck. It’s the best thing you can eat on this earth, especially grilled with jalapenos and cream cheese.
+ - We simply want to follow God because we knows of the happiness it will bring, that’s the reason that we chose to be open about our beliefs.
+ - I’ve been showing up late and dirty all my life.
+ - When you don’t know what you’re doing, it’s best to do it quickly.
+ - A lot of people just think that that’s unreasonable or preposterous. But you know, if everybody chose to do it God’s way, the world would be a lot better off.
+ - Go to where the ducks are. Forget the duck calls. If you go where the ducks are coming, you’re going to shoot more ducks.
+ - The bottom line is we are trying to do what’s right. We don’t just say we believe in God – we have active relationships with God.
+
+33 quotes

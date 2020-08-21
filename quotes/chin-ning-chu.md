@@ -1,0 +1,21 @@
+ - To succeed in life in today’s world, you must have the will and tenacity to finish the job .
+ - Without the strength to endure the crisis, one will not see the opportunity within. It is within the process of endurance that opportunity reveals itself.
+ - When a manufacturing engineer is hired to create new products but insists on sharing his “wisdom” in accounting with the company controller, he is not going to last long in that company.
+ - In spite of your fear, do what you have to do.
+ - You feel the intense desire to do good, to do right thing. At this stage, you also feel helpless.
+ - Challenge your limitations for the pure joy of challenge.
+ - A successful life is one that is lived through understanding and pursuing one’s own path, not chasing after the dreams of others.
+ - A positive attitude is important, but it is only part of the story. Understanding how to surmount pain, doubt, and failure is a vital component in winning the game of life.
+ - You must ingratiate yourself with those who can help you. Flatter them to their faces. Praise them to others who will carry your words back to them.
+ - Work Does Not Need You, You Need Work. Through Work, Destiny Unfolds. Your work is to discover your work and then with all your heart give yourself to it.
+ - The mind is easily distracted; it loses its focus and becomes restless. If it is not directed positively, its power will be diffused.
+ - Whenever your mind is totally absorbed in whatever activities you are performing, your mind will remain calm and content.
+ - Acquire the courage to believe in yourself. Many of the things that you have been taught were at one time the radical ideas of individuals who had the courage to believe what their own hearts and minds told them was true, rather than accept the common beliefs of their day.
+ - If you are not concerned about the outcome of a circumstance, you will experience no fear. Whatever the outcome will be, will be, whether you fear it or not.
+ - Our negative life situations are essential elements for us to fulfill our intended destiny. However, unless we possess the power of endurance to live through the dark of the night, we will not see the glory of daybreak.
+ - It is not whether your words or actions are tough or gentle; it is the spirit behind your actions and words that announces your inner state.
+ - Often we are so concerned with what makes us feel good that we forget what makes us great.
+ - If a fox is unable to befriend a tiger, then the fox should create an illusion of close association with the tiger by carefully trailing behind the cat while boasting of the deep friendship they share. In this way, he creates an impression that his well being is of great concern to the tiger.
+ - Remember, what may appear to be the source of one’s strength can often also be the source of one’s weakness.
+
+19 quotes

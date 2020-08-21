@@ -1,0 +1,64 @@
+ - You don’t get nothing from sleep but a dream.
+ - Hypocrisy is the mother of all evil and racial prejudice is still her favourite child.
+ - I never cease to amaze myself. And I say this humbly.
+ - If you want to sell a steak, you can’t just have the sizzle, you gotta have sauce.
+ - Only in America can you find so many angry people claiming to love their country, while hating almost anyone in it.
+ - Only in america will you see people circling the parking lot looking for a close space at a gym.
+ - He speaks English, Spanish, and he’s bilingual too.
+ - Opportunity is the greatest charity.
+ - This is a setback. You get back up, you dust yourself off, and you get back in the game. We had a great singer named Ray Charles who wrote a song called ‘Drowning in My Tears.’ You can’t afford to drown in your tears. You gotta go back, rededicate yourself, redouble your efforts, and persevere.
+ - I wasn’t getting invited to any board meetings. I had to kick the door down.
+ - You must believe the unbelievable, snatch the possible out of the impossible.
+ - They went down the list of every known charge conceivable to man – rackeering, skimming, kickback, ticket scalping. fixing fights, preordaining fights, vitaiting officials, corrupting judges, all the way down to laundering money. Everything but the Lindbergh baby.
+ - I am so happy to be at Barclays Center. When I saw Brett Yormark, I thought to myself that he and his brother Michael are doing an amazing job.
+ - I will fight for America till the day I drop.
+ - There’s only one rule anyone connected with boxing must keep in mind – everything you here in boxing is a lie.
+ - You see, the problem with me is I’m so good even my friends think I’m doing something wrong. Flair and flamboyance is not illegal. It may be detestable, it may be offensive, but it’s not illegal.
+ - I dare to be great. The man without imagination stands unhurt and hath no wings. This is my credo, this is my forte.
+ - America is the greatest country in the world – I love America. What I’ve accomplished could not have been done anywhere else.
+ - I’m the best promoter in the world because I haven’t taken a day off work since I left the penitentiary, and because I have read all the great philosophers like St. Thomas Aquinine.
+ - I cant believe that having said what I said was interpreted as having been what I said when I said it, because I said it where I said it, when I said it, and who I said it to.
+ - You can be the greatest guy in the world but if you ain’t got no heart, you ain’t gonna survive.
+ - I’m a promoter of the people for the people and by the people and my magic lies in my people ties.
+ - Only in America could a Don King happen.
+ - If you are a blackman in America and get stopped by the police, make sure you have a vidio camera. Don’t rely on some passerby to film the beating. Rodney King was just lucky.
+ - If you cast your bread upon the water and you have faith, you’ll get back cash. If you don’t have faith, you’ll get soggy bread.
+ - You sign an agreement; you make a contract, you live up to it. You never get what you deserve. You get what you negotiate. You got a right to say yay or nay.
+ - I am a product of a rat and roach infested black ghetto. It is easy for me to rationalize my dealings as a numbers man. I’ll defend men today who are involved in it.
+ - I am the living attestation of the American dream. I am the extolment of this great nation.
+ - You can see the clouds rolling in and thunder is imminent.
+ - People are my most important asset. Faith in the supreme being, trust, credibility and performance are the things that have brought me to the top.
+ - Reality show? You can’t find anything better than boxing because of the trials and errors, the ups and downs, the struggle when you get knocked down to get back up. Use it symbolically and interchangeably for life.
+ - When you can count your money, you ai’nt got none.
+ - When you lose the title, that doesn’t mean you lose the contract to what you had. Just like when you win the title, it doesn’t mean you win brains, PhDs and MAs.
+ - Machiavelli taught me it was better to be feared than loved. Because if you are loved they sense you might be weak. I am a man of the people and help them but it is important to do so through strength.
+ - I don’t promote boxing, I promote people. Boxing is a catalyst to bring people together.
+ - Don King is a damn sleezebag. King is nothing but a strong-arm man. He has taken his gangsterism and put it into boxing.
+ - Martin Luther King took us to the mountain top: I want to take us to the bank.
+ - Integrity, number one. Even in business that’s predicated on lies I refuse to become part of the lies that is all-consuming.
+ - From the very beginning I used sound business practices in everything I did. White businessman uses them to make money he’s a genius. Black businessman uses them he’s a crook. That’s the way it is.
+ - When we started, it was based on lies. It’s changing now. There are no secrets in the business. You’ve got to come with the truth, the whole truth and nothing but the truth. It’s becoming very confusing.
+ - If he says he has the pizzazz and the sizzle, I have the steak, and substance. I’ve made more money than he’s made. I’ve made bigger deals than he’s made, when he’s got the complexion to get the protection.
+ - There’s nothing wrong with options. Options are everywhere. In movies, in sports. Options is not a dirty word. I need to pay my overheads, you know. I invest a lot of money developing a fighter and then I deserve to reap the rewards.
+ - I never get tired because it ain’t energy that’s being dispenced. It is GOD speaking through me.
+ - His credibility is zilch, virtually nil.
+ - I had a moment of religious epiphanosity.
+ - You ever stop to think they can’t rob you of knowledge? They can strip you and you’ve still got it.
+ - You go for the quality of the performance, not the longevity of it.
+ - Mike Tyson has been given ever penny he has coming.
+ - I’ve whipped the Harvard graduate’s ass. Nothing against Harvard – it’s a hell of a school – but there I was, twenty five yards behind, wrapped in leg irons, and I beat him.
+ - The Dies tournament is always hard. We look forward to it every year from a competitive level. This is one of the biggest highlights of our season. This tournament has excellent tradition.
+ - Mike Tyson was one of the most terrific athletes I’ve ever met.
+ - It ain’t about if he knocks a guy out. It’s about how he knocks a guy out. It’s the style, the improvisation.
+ - When I came into boxing, when it was more out of control, no fighters got an opportunity to fight. I came in: everybody got an opportunity to make a living in America.
+ - I’ll pay them right after it snows in Panama. Let Eleta pay them if he feels so strongly about it.
+ - Michael seems to have lost his values temporarily. He just has to be worked with, disciplined and talked to and given some tender loving care and understanding.
+ - Do I play tennis? Man, I had one of the baddest overhead rights of anyone. Bam!
+ - I can’t believe what I said about myself. What I said in my own private conversations with myself to an ESPN producer are my business, and I had no business saying them to someone else.
+ - You know what animals exist in the desert. He’s going to his indigenous natural habitat. What better place for night crawlers?
+ - I’m an ardent American Football fan.
+ - Against the odd’s, I have persevered, I am the living attestation of the American dream. I am the extolment of this great nation. I have coffee and cocktails with presidents and dictators. I’m an international figure, a citizen of the world. I’ve made it.
+ - I don’t see you making a movie about Bob Arum.
+ - I’m a promoter of the people for the people and by the people and my magic lies in my people ties. I’m a promoter of America. I’m American people. You know what I mean? So therefore, uh, do not send for who the bell tolls ’cause the bell tolls for thee.
+
+62 quotes

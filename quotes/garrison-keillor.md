@@ -1,0 +1,184 @@
+ - Be well, do good work, and keep in touch.
+ - A book is a gift you can open again and again.
+ - Welcome to Lake Wobegon, where all the women are strong, all the men are good-looking, and all the children are above average.
+ - Give up your good ‘Christian’ life and follow Jesus.
+ - Anyone who thinks sitting in church can make you a Christian must also think that sitting in a garage can make you a car.
+ - A lovely thing about Christmas is that it’s compulsory, like a thunderstorm, and we all go through it together.
+ - Sing your song; don’t let the bastards get you down.
+ - March is the month God created to show people who don’t drink what a hangover is like.
+ - Powdermilk biscuits: Heavens, theyre tasty and expeditious! Theyre made from whole wheat, to give shy persons the strength to get up and do what needs to be done.
+ - You get old and you realize there are no answers, just stories.
+ - Nothing you do for children is ever wasted.
+ - Being an English major prepares you for impersonating authority.
+ - Winter: It’s not just a season, it’s who we are.
+ - Scripture doesn’t promise that God will remove temptation, only that you’ll be given strength to withstand it.
+ - You’ve got work to do. Don’t put this off. And don’t take the long view, here. You know? Life is today and tomorrow and- and if you’re lucky, next week.
+ - Some luck lies in not getting what you thought you wanted but getting what you have, which once you have got it you may be smart enough to see is what you would have wanted had you known.
+ - Why is divorce so expensive? Because it’s worth it!
+ - Pumpkin pie is a living symbol of mediocrity. The best pumpkin pie you ever ate wasn’t all that much different from the worst pumpkin pie you ever ate.
+ - Take care of your friends. Because there will come a time when you’ll be no good to anyone, and the only reason for people to talk to you will be sheer habit.
+ - Dogs don’t lie and why should I? Strangers come they growl and bark, they know their loved ones in the dark, Now let me, by night or day, Be just as full of truth as they.
+ - Thank you, God, for this good life and forgive us if we do not love it enough.
+ - Honesty is a rare commodity in a palace, and that is why so many fairy-tale marriages end up on the rocks.
+ - Sometimes there is nothing you can do, and in those times, you must do something anyway.
+ - It’s a shallow life that doesn’t give a person a few scars.
+ - They say such nice things about people at their funerals that it makes me sad that I’m going to miss mine by just a few days.
+ - A man can’t eat anger for breakfast and sleep with it at night and not suffer damage to his soul.
+ - Life is continuous. Life never stops. We come to the really great questions and before we can answer them, life has moved on to something else.
+ - When you wage war on the public schools, you’re attacking the mortar that holds the community together. You’re not a conservative, you’re a vandal.
+ - The great unrequited love tears open your heart to the beauty of the world, its small rivers and upland meadows. It also makes you kinder to the next hundred thousand persons who cross your path.
+ - One reads books in order to gain the privilege of living more than one life. People who don’t read are trapped in a mine shaft, even if they think the sun is shining.
+ - Age doesn’t always bring wisdom. Sometimes age comes alone.
+ - Bad things don’t happen to writers; it’s all material.
+ - It’s better to be burnished with use than rusty with principle.
+ - Intelligence is like four-wheel drive. It only allows you to get stuck in more remote places.
+ - Thank you, dear God, for this good life and forgive us if we do not love it enough. Thank you for the rain. And for the chance to wake up in three hours and go fishing: I thank you for that now, because I won’t feel so thankful then.
+ - As for kissing on the first date, you should never date someone whom you would not wish to kiss immediately.
+ - When the country goes temporarily to the dogs, cats must learn to be circumspect, walk on fences, sleep in trees, and have faith that all this woofing is not the last word.
+ - When in doubt, look intelligent.
+ - Nothing you do for children is ever wasted. They seem not to notice us, hovering, averting our eyes, and they seldom offer thanks, but what we do for them is never wasted.
+ - A cruise ship is a floating town of lazy people.
+ - Being rich and thin isn’t everything.
+ - Don’t tear up the page and start over again when you write a bad line-try to write your way out of it. Make mistakes and plunge on. Writing is a means of discovery, always.
+ - If the marriage needs help, the answer almost always is have more fun. Drop your list of grievances and go ride a roller coaster.
+ - The relationship between truth and a newspaper is like the relationship between the color green and the number seven. Occasionally you will see the number seven written in green, but you learn not to expect this.
+ - Cats are intended to teach us that not everything in nature has a function.
+ - I remember when I switched from Christmas to sex as the secret of happiness...
+ - When you’re a little kid, your heart is open and tender and a harsh word can go straight in and become part of your life.
+ - I believe in looking reality straight in the eye and denying it.
+ - I think if the church put in half the time on covetousness that it does on lust, this would be a better world for all of us.
+ - Give guilt – the gift that lasts forever.
+ - No innocent man buys a gun, and no happy man writes his memoirs.
+ - Face it: a nation that maintains a 72% approval rating on George W. Bush is a nation with a very loose grip on reality.
+ - The funniest line in English is ‘Get it?’ When you say that, everyone chortles.
+ - All solutions are temporary, so why not go for duct tape?
+ - Lake Wobegon, the little town that time forgot and the decades cannot improve.
+ - Jesus said the meek would inherit the earth, but so far all we’ve gotten is Minnesota and North Dakota.
+ - Every show is your last show. That’s my philosophy.
+ - A child can educate just about anybody.
+ - Childhood is the small town everyone came from.
+ - It’s confidence; it has to be something good about getting old. One of the things is that you just don’t stress about some stuff that made you so worried.
+ - I love rhymes; I love to write a poem about New York and rhyme ‘oysters’ with ‘The Cloisters.’ And ‘The lady from Knoxville who bought her brassieres by the boxful.’ I just feel a sort of small triumph.
+ - You’d learn more about the world by lying on the couch and drinking gin out of a bottle than by watching the news.
+ - I like to sing and it’s just really fun to sing, and I don’t get too much. And at my house I’m not allowed to because, you know, your children can’t stand it when you sing at home.
+ - I loved feeling special. I hated feeling special.
+ - Your life is a work of art, and in the end, the underlying theme of great art is bravery and hope and love.
+ - You’re such a big liar you gotta get your neighbor to call your dog.
+ - That’s why God created marriage, so people wouldn’t have to fight with strangers.
+ - Marrying for sex is like flying to London for the free peanuts and pretzels. It’s not the point of the thing, is it?
+ - My ancestors were Puritans from England. They arrived here in 1648 in the hope of finding greater restrictions than were permissible under English law at that time.
+ - Even in a time of elephantine vanity and greed, one never has to look far to see the campfires of gentle people.
+ - Marriage, friends, is a lifelong feast; love is no light lunch.
+ - The reason to retire is to try to avoid embarrassment; you ought to do it before people are dropping big hints. You want to be the first to come up with the idea. You don’t want to wait until you trip and fall off the stage.
+ - I was an English major at the University of Minnesota, and I was very shy, which many people misinterpreted as intelligence. On the basis of that wrong impression, I became the editor of the campus literary magazine.
+ - Sometimes you have to avoid mentioning things because people’s feelings are tender.
+ - A girl in a bikini is like having a loaded pistol on your coffee table – There’s nothing wrong with them, but it’s hard to stop thinking about it.
+ - We all know you can get AIDS from sex, but did you know that you can get sex from aides?
+ - I was brought up imagining that cream rises to the top, merit wins out, the race is to the swift and riches to men of understanding, but it ain’t necessarily so. The swift stand a better chance if they are also beautiful.
+ - Evelyn was an insomniac so when they say she died in her sleep, you have to question that.
+ - Humor needs to come in under cover of darkness, in disguise, and surprise people.
+ - Easter is so disappointing. You suffer all the way through lent, and what do you get for it? A ham.
+ - Never insult a writer. You may find yourself immortalized in ways you may not appreciate.
+ - Some people think it is difficult to be a Christian and to laugh, but I think it’s the other way around. God writes a lot of comedy, its just that he has so many bad actors.
+ - A person does feel sheepish picking on journalists, a class already so richly despised that if a planeload of them crashed in flames, most people would smile from pure reflex.
+ - Most men are prisoners at best, Who some strong habit every drag about Like chain and ball.
+ - Don’t pour the oil directly into my navel, pour it on my sternum and let it run down into my navel, you ignorant peasant.
+ - Being Lutheran, Mother believed that self-pity is a deadly sin and so is nostalgia, and she had no time for either.
+ - When it comes to finding available men in Minnesota, the odds are good, but the goods are odd.
+ - An interesting thing about New York City is that the subways run through the sewers.
+ - Humor, a good sense of it, is to Americans what manhood is to Spaniards and we will go to great lengths to prove it.
+ - Not everyone has a Life’s Work. Some people simply have a Life.
+ - Cleverness is a burden after that. You are supposed to settle down and be a good person, raise your children, and be good to your friends, which you may not have been back when you were clever.
+ - I can write anywhere. I write in airports. I write on airplanes. I’ve written in the back seats of taxis. I write in hotel rooms. I love hotel rooms. I just write wherever I am whenever I need to write.
+ - Selective ignorance, a cornerstone of child rearing. You don’t put kids under surveillance: it might frighten you. Parents should sit tall in the saddle and look upon their troops with a noble and benevolent and extremely nearsighted gaze.
+ - All fiction comes from a little bit of reality, otherwise it would have no relevance. The fun is in innovation, take something real like this fair, and make it something larger than life.
+ - Life is unjust and this is what makes it so beautiful. Every day is a gift. Be brave and take hold of it.
+ - English is the perfect language for preachers because it allows you to talk until you think of what to say.
+ - I talk in subjects and verbs, and sort of wind around in concentric circles until I get far enough away from the beginning so that I can call it the end, and it ends.
+ - I’ve seen the truth, and it makes no sense.
+ - When writing loses touch with the beautiful surface of the world, it loses its way. You always want to be in touch with how things look and what people say and what they call their dogs.
+ - To choose Norm Coleman over Walter Mondale is like going to a great steakhouse and ordering the tuna sandwich.
+ - When you’re old you feast on your memories, and if you spend too much time on exercise, you may get old and not have many.
+ - To Norwegians, the polka is a form of martial art.
+ - I write on a laptop, so it’s impossible to count drafts anymore.
+ - This is the big reason most humorists fail. Drunks don’t read books.
+ - Liberalism is dead, so dead that Democrats have all become moderate Republicans, and the heavy hand of Big Government is now limp and damp and trembly.
+ - People always are encouraging about a terrible loss, so that sometimes the loser would like to strangle them.
+ - When you come to expect humor of people, you will never get it.
+ - Men peak at age nineteen and go downhill.
+ - God plays a lot of jokes on us to get our attention.
+ - I don’t have a great eye for detail. I leave blanks in all of my stories. I leave out all detail, which leaves the reader to fill in something better.
+ - Don’t worry about the past and don’t try to solve the future.
+ - In the end, all solutions are temporary.
+ - He was admired for never being at a loss for words and never wasting any either.
+ - I’m a lucky guy. I get to sit around every day and indulge in make believe and get paid for it.
+ - Children can find other children to be pals. Children need fathers to be fathers.
+ - Ralph Stanley is like an uncle to us and now that all my uncles are gone, Ralph’s singing is even more precious. This album of classic folk songs is one of his best.
+ - Vodka is tasteless going down, but it is memorable coming up.
+ - I feel it’s so hard for young actors; It’s a different world that they’re coming up in; there’s so much money to be made off of their personal lives, and people are bound and determined to make that money.
+ - Where I come from, when a Catholic marries a Lutheran it is considered the first step on the road to Minneapolis.
+ - A young writer is easily tempted by the allusive and ethereal and ironic and reflective, but the declarative is at the bottom of most good writing.
+ - A romp in the hay lingers like the first line of a song, but your true love is the one you make a life with and write more than a line about, you write a whole book.
+ - Your car, comfort though it be, this little den and dining room on wheels, is a prison that deadens your senses, and to feel wholly alive you must go for a walk.
+ - A good newspaper is never nearly good enough but a lousy newspaper is a joy forever.
+ - If you lived today as if it were your last, you’d buy up a box of rockets and fire them all off, wouldn’t you?
+ - Nothing that readers say or do strikes me as a nuisance. Anyone who cracks open a book of mine is, to me, a gem.
+ - Librarians, Dusty, possess a vast store of politeness. These are people who get asked regularly the dumbest questions on God’s green earth. These people tolerate every kind of crank and eccentric and mouth breather there is.
+ - In California virtually everyone has had their teeth whitened. If they all smiled at once, they would give us a headache.
+ - I grew up in a fundamentalist protestant family that stressed that we were a select people and so we were to avoid contact with others who did not share our faith.
+ - I think that if writers are tempted to do other things, they ought to go do other things. They should not write if they don’t feel like it. I say this as a competitor. I am not interested in encouraging people who are in competition with me.
+ - If you can’t trust a Methodist with absolute power to arrest people and not have to say why, then whom can you trust?
+ - We come from people who brought us up to believe that life is a struggle, and if you should feel really happy, be patient: this will pass.
+ - Love has the power to rescue us and not let go, otherwise it isn’t love.
+ - Humor has to surprise us; otherwise, it isn’t funny. It’s a death knell for a writer to be labeled a humorist because then it’s not a surprise anymore.
+ - People in cars cause accidents and accidents in cars cause people.
+ - You don’t have to justify a beautiful stroke of good luck. Accept it. Smile and say thank you.
+ - It was luxuries like air conditioning that brought down the Roman Empire. With air conditioning their windows were shut, they couldn’t hear the barbarians coming.
+ - There’s no mastery to be had. You love the attempt. You don’t master a story any more than you master a river. You feel lucky to canoe down it.
+ - Possessing the ideal makes a person nervous: you sense the inevitable decline just ahead.
+ - Humor is not a trick, not jokes. Humor is a presence in the world – like grace – and shines on everybody.
+ - I hear a little firecracker go off when you come up with a good rhyme.
+ - The mass of men lead lives of shallow happiness; the superior man exults in his gloom.
+ - The problem with paradise is that it’s temporary: You don’t belong here and the neighbors are nobody you care to know, so it’s only blissful for a week or so.
+ - We’d all be alot happier if we’d stop assuming we’re supposed to be happy.
+ - I think that you are only obliged to be a humorist from the age of 18 until you turn 30. Past the age of 30 I don’t think there is any obligation to be clever at all.
+ - Eating a little was like vomiting a little, just as bad as a lot.
+ - A minister has to be able to read a clock. At noon, it’s time to go home and turn up the pot roast and get the peas out of the freezer.
+ - A good friend is a person who thinks you’re one of the good eggs, even if he knows you’re a little cracked.
+ - The highlight of my childhood was making my brother laugh so hard that food came out of his nose.
+ - Some people have a love of their fellow man in their hearts, and others require a light anesthetic.
+ - It’s important for survival that children have their own experiences, the kind they learn from. The kind their parents arrange for are not as useful. Good parents are the hardest to get rid of.
+ - My ability to keep cool in a crisis is based entirely on not knowing all the facts.
+ - In Lake Wobegon, we don’t forget mistakes.
+ - God is a great humorist. He just has a slow audience to work with.
+ - I want to resume the life of a shy person.
+ - Humor is not about problems with airline luggage handlers. It’s about our lives in America and it’s about the ends of our lives and it’s about everything that happens after that and everything that happened before.
+ - I don’t associate work with feelings of satisfaction. Rather, guilt, frustration, and resentment of people who write better than I do.
+ - The majority of people who keel over dead at concerts are killed by a long trumpet passage.
+ - Those people on daytime TV talking about how their parents never gave them the positive feedback they needed and that’s why they shot them- those are not Minnesotans.
+ - Boys, the first drink is a boon, the second is a gamble, the third is poor judgment, and then the rate of descent gets steep.
+ - There’s so many people who move around our country and lose track of their own ancestry. It’s nice to know where you come from.
+ - People do what they are told not to do. It happens time and time again. Here on the frozen tundra, it is known as the Tongue on the Frozen Pump Handle principle.
+ - America of the future will be all malls connected by interstates. All because your parents no longer can their own tomatoes.
+ - You don’t want to get that sort of sound in your writing that boing that gives you away.
+ - Some of us have a relentless urge to attempt what we can never be good at and neglect our true calling.
+ - TV news is as bloody as Shakespeare but without the intelligence and the poetry. If you watch television news you know less about the world than if you drank gin out of a bottle.
+ - I’m of an age when if I started to do eulogies, I’d be doing nothing else. You don’t want to be remembered? I don’t want them to be told to remember me.
+ - There was a price to be paid for being interested in fiction and in writing, pushing my family away. Books and authors became my family.
+ - No matter what time of year I come here, people always say the same thing: Its not usually like this.
+ - In romance, as in life, you only learn when you’re losing.
+ - Enough. Man is capable of reform once presented with the facts, and the fact is that bottling water and shipping it is a big waste of fuel, so stop already.
+ - For me, the monologue was the favorite thing I had done in radio. It was based on writing, but in the end it was radio, it was standing up and leaning forward into the dark and talking, letting words come out of you.
+ - Years ago, manhood was an opportunity for achievement, and now it is a problem to be overcome.
+ - I don’t want them to be told to remember me.
+ - Second violins can play a concerto perfectly if they’re in their own home and nobody’s there.
+ - It is a sin to believe evil of others but it is seldom a mistake.
+ - Just because we’re fictional characters doesn’t mean you can pick us up and move us anywhere you want. – the people of Lake Woebegon.
+ - You can go your whole life and not need math or physics for a minute, but the ability to tell a joke is always handy.
+ - I have taken so many wrong turns and been so careless with precious things and managed to lose, or break, or leave out in the rain so much that I loved.
+ - Roy Blount’s stuff makes me laugh so hard, sometimes I have to go sit in a room and shut the door.
+ - I felt bad for that world that we have given a generation of kids.
+ - Ha! Easy for nuns to talk about giving up things. That’s what they do for a living.
+ - I usually don’t work with other people; I do the whole show myself.
+
+182 quotes

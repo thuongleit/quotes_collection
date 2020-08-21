@@ -1,0 +1,38 @@
+ - I’m not worried. My time will come.
+ - I’ve got a long way to go. I’m not in a hurry.
+ - If you’re good enough, you’re old enough.
+ - It doesn’t matter what size you are. It matters how big your heart is and how smart you are.
+ - I haven’t done anything yet, but I want to be the best in the world.
+ - Nothing has been given to me.
+ - I think everything happens for a reason and all the things that happened to me – good, bad – I’m glad they did. It’s made me ready for life, for adulthood.
+ - I couldn’t ask for a better life.
+ - I don’t know French at all. I took some lessons when I was younger but all I know are the numbers. I’ve been told basically everyone in Monaco speaks English because of it being a huge vacation spot so I’m excited about that. I might not need to learn French after all.
+ - A lot of players in Europe aren’t as tall as the other guys, so they have to be stocky to physically compete.
+ - Sometimes I feel like my childhood has been taken away from me just a tiny bit. But if you want to achieve your goals, you have to sacrifice some things.
+ - When I’m out on the field, I’m not scared of anyone.
+ - You can’t do anything to help your team win when you don’t play.
+ - When you play soccer, most of the time you got to get the ball moving, but once you get into that attacking third you gotta be creative, you gotta let your talent take over.
+ - I do stuff that I don’t even know I can do sometimes.
+ - I want to be good at what I do, obviously, and to do that I need to keep my head straight.
+ - I need to be in a stable environment right now in my career. What I mean by that is a place where I can play and not have too much pressure on me and a place I can develop. Monaco wanted me and did whatever they could to get me so I feel very very good about that.
+ - Sometimes I even amaze myself, and sometimes I do things that make me want to punch myself in the face.
+ - Obviously, everybody has their own expectations of you, but you have to have your own expectations for yourself. For me, I’m right on track.
+ - I feel the pressure but I embrace it. Whatever I have to do to make the sport catch on to other people, I’ll do it.
+ - Once your name gets out, people just want to crack you.
+ - My image is very important to me. I want to bring a good face to my family. That’s the way I’ve been raised.
+ - I need to go play football. I don’t care about anything else.
+ - I need more time to develop as a player and as a person.
+ - There are some casual fans who think you’re going to dominate a game, be magic, score 10 goals. Even if you dominate a game, you’ll only score two or three goals.
+ - I play a lot of Playstation, and always trying to look pretty for the girls.
+ - My only real job is to play well and do my job on the field. If I do that, all the other stuff will take care of itself.
+ - This is unbelievable to me. I always wanted to be famous, be the best, but I didn’t think it would be like this.
+ - My mom was always the supplier of soccer balls, and so people were always knocking on my door, and trying to get me out so we could play.
+ - It’s awesome where I am right now. It’s a lot of people’s dream. I’m going to take full advantage of it.
+ - I need to have the ball at my feet. That’s when I know anything is possible.
+ - I’m just trying to do whatever is asked of me. I’ve been thrown into many different positions. Sometimes I’m on the left. Sometimes I’m in the middle. Sometimes I’m up top. So you always have to be prepared. I’m learning a lot so hopefully I can keep getting better and better.
+ - All I can say is, hey, if you have fun doing what you do, if you have fun playing soccer, the creativity is just going to come as time goes on.
+ - A lot of people have been hyped up to be great but just disappeared. I promised myself I wouldn’t be one of them.
+ - It’s frustrating at times when you think you’ve earned a chance to play on the field and you’re over there sitting on the bench. That’s not the kind of player I am. I’m the kind of player who wants to be out there on the field and needs to contribute every minute of every game.
+ - It’s not easy when you come in as the highest-paid player and you’re 14.
+
+36 quotes

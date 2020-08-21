@@ -1,0 +1,86 @@
+ - I am the passenger, I stay under glass. I look through my window so bright, I see the stars come out tonight. I see the bright and hollow sky, over the city’s ripped backsides and everything looks good tonight.
+ - Cigarettes and coffee, man, that’s a combination.
+ - They say that death kills you, But death doesn’t kill you. Boredom and indifference kill you.
+ - Nihilism is best done by professionals.
+ - Music is life, and life is not a business.
+ - I’m a street walking cheetah with a heart full of napalm.
+ - I’m a travel enthusiast.
+ - Curious is a good thing to be, it seems to pay some unexpected dividends.
+ - Punk rock is a word used by dilettantes and heartless manipulators about music that takes up the energies, the bodies, the hearts, the souls, the time and the minds of young men who give everything they have to it.
+ - I’m bored, I’m the chairman of the board.
+ - I find it hard to focus looking forward. So I look backward.
+ - Nobody understands me, I’m really sensitive.
+ - Miami’s never been more than a spit from New York.
+ - Something I like to do a lot is just sit by water when there’s a current and just stare into the water. I don’t fish, I don’t hunt, I don’t scuba, I don’t spear, don’t boat, don’t play basketball or football – I excel at staring into space. I’m really good at that.
+ - When it comes to art, money is an unimportant detail. It just happens to be a huge unimportant detail.
+ - If I started thinking too much about how influential I’ve been, then I’d be more of a turd than I already am.
+ - I have no idea why a guy would bring a jar of peanut butter to a concert.
+ - What some people would call antics, I would just call a good show.
+ - Miami’s not anybody’s poor cousin. It’s an aspiration to live in this town, not something you have to do to promote yourself like some of the larger cities.
+ - When I get up in the morning, I stay nude for three or four hours. If I really feel like getting formal, I’ll put on board shorts.
+ - I’m a little bit damaged in about 15 different ways, and it’s been nice that no particular damaged area has become a major issue. I’m a more than moderately healthy 65-year-old male who has gotten away with a lot of stuff.
+ - I’m not ashamed to dress “like a woman” because I don’t think it’s shameful to be a woman.
+ - My parents wanted to light my artistic candle. But over time, the definition of ‘the arts’ began to stretch. And as I got older, they suddenly realized, Oh, my God, we’re the parents of Iggy Pop.
+ - The future of rock n roll is Justin Bieber.
+ - I’ll love you when my eyes are open, I’ll love you when my eyes are gone.
+ - I never believed that U2 wanted to save the whales. I don’t believe that The Beastie Boys are ready to lay it down for Tibet.
+ - Onstage I’ve been hit by a grapefruit, beercans, eggs, spit, money, cigarette butts, Mandies, Quaaludes, joints, bras, panties, and a fist.
+ - The more walking-around money I have, the less I walk around.
+ - I never say never about anything.
+ - I became Iggy because I had a sadistic boss at a record store. I’d been in a band called the Iguanas. And when this boss wanted to embarrass and demean me, he’d say, ‘Iggy, get me a coffee, light.’
+ - It is very important what not to do.
+ - I thought, “Wow, it sounds really stoned anyway.” It sounded good to me. I found out that there was a lot in there. what all this comes down to is I was just trying to get in touch with myself. And I met some interesting people in New York who weren’t in show business. I even got to know my dentist.
+ - The people who were learning from me tended to be more commercial performers who were gonna rip off the salient idea to do it in a way that will sell, but they weren’t going for the music.
+ - As society has changed, what had formerly been unacceptable has become colourful.
+ - I was who I was in high school in accordance with the rules of conduct for a normal person, like obeying your mom and dad. Then I got out of high school and moved out of the house, and I just started, for lack of a better term, running free.
+ - I’m glad I am crazy, it keeps me trying. I despise trendies, I know they’re lying.
+ - I have a hot memory, but I know I’ve forgotten many things, too, just squashed things in favor of survival.
+ - I’m not a singer, a walking instrument like Aretha Franklin. When you get an Iggy Pop record, you don’t get “Iggy Sings.” I am also a style of music, an approach.
+ - What do you do with a lifetime of work? Face it in the morning.
+ - And for so long, I had thought if I was going to write a song, or get “into” something, I had to at least smoke a joint or something. And that didn’t work anymore. Once I was fairly well cleaned out, even a little bit of a drug getting into my work threw me off kilter.
+ - How am I going to listen to that horrible noise I make without a gram of coke and a couple of double Jack Daniels?
+ - The Rock ‘n’ Roll Hall of Fame was a great idea when it started, but I think they ought to close it, I think it’s full.
+ - Well, I don’t use the toilet much to pee in. I almost always pee in the yard or the garden, because I like to pee on my estate.
+ - Bowie’s a real man, and I’m a real woman – just like Catherine Deneuve.
+ - It’s more fun to look at an old picture of me than it is to look at a new one sometimes. Although, I still wear a dress pretty well.
+ - I was a pretty nice kid. Kind of quiet, but quiet in terms I wasn’t going out and setting fire to anything. I had a big mouth and I was creative type, you know.
+ - If you give a good performance, something that gets some feeling across to people, that’s such a rare gift. It’s underestimated at this point in history, when the music biz is inevitably turning into a kind of politics.
+ - Stages are getting higher and higher, and I’m getting older and older.
+ - The most successful stuff is sold to you as indispensable social information. The message in the music is, ‘We are terribly, terribly slick and suave, and if you listen to us, you can probably get a leg up in society, too.’
+ - Well, it wasn’t like I was going to run out and score heroin and score an ounce of coke – but incidentally, on the road, I would usually get tanked up and as stoned as I possibly could to go on stage. And offstage, it would be a demon that would come up about twice a week.
+ - I spent most of the eighties, most of my life, riding around in somebody else’s car, in possession of, or ingested of, something illegal, on my way from something illegal to something illegal with many illegal things happening all around me.
+ - A lot of young musicians get the money at the wrong time. They get it for something they don’t feel great about, and it’ll make you feel so bad it’ll destroy you and kill you.
+ - It’s the same thing: I would think, “If I can’t go out and pull some teenager tonight, maybe I’m no good on stage anymore.” And you start to think that you even need it as a motivation. I did, anyway.
+ - Second only to the sea, the Miami sky has been the greatest comfort in my life past 50. On a good day, when the wind blows from the south, the light here is diffuse and forgiving.
+ - Living in England was wonderfully civil and easy-going.
+ - The nut of the thing is that if what you make is hard like a diamond, you can put it anywhere. You can put it up your and it will still be beautiful.
+ - My mom was a saint. She taught me to be terminally nice.
+ - Look, you’re here to see me, and I can’t go on until my dealer is here, and he’s waiting to be paid, so give me some money so I can fix up, and then you’ll get your show.
+ - In 1965, when great young white artists in the English-speaking world were successfully re-channeling hillbilly and black music – you know Bob Dylan, Ray Davies, Pete Townsend, Keith Richards – they didn’t get any money at first. They were all broke.
+ - I try to beat back the producers and engineers so they – there’s not an excess of stuff used to squeeze my voice to make it artificial. There’s a person in there, and people will listen; if they hear another person speak to them, they’ll listen because it’s lonely out here.
+ - I smoked this joint and then it hit me. I thought, what you gotta do is play your own simply blues.
+ - And if somebody’s going to produce me, they should be producing my sound for me. And that’s something I have to come up with myself.
+ - You know, I’m fifty-two now and I call myself a singer. Before I kick it I want to be able to carry a tune in a living room if called upon. Of course, mine come out all dark and twisted and weird.
+ - I feel a great comfort and relief knowing that there are others who lived and died and thought and fought so long ago; I feel less tyrannized by the present day.
+ - At university, I had been obsessed with reading about the lives of Rimbaud and Baudelaire, and I was steeped in the crazy poets, and I came to view my early subjects through that prism.
+ - The key to The Doors is the culture behind the myth.
+ - Studios are like hospitals. A lot of people check in, and they don’t check out.
+ - Musical types tend to combine the burden of the author with the burden of the actor.
+ - I think that all the years of exposure to amps and electricity has altered my body chemistry.
+ - You know what I think you get scared of more – especially me, after touring for so long and being in bands for so long – you start to associate certain behavior with the music. It’s like people associate having a cigarette with having a cup of coffee, or lunch.
+ - Basically, I’m a musical vocalist, but I do voiceover stuff as a sideline, like plumbing or something.
+ - What did Christ really do? He hung out with hard-drinking fishermen.
+ - The 2 things I like the most are girls and loud noises.
+ - It’s fair to say that I have a side that is prudent and a side that is not.
+ - Well, the stuff that has become more commercial doesn’t have any edge.
+ - I was feeling that I was the in the dead-end circuit from 1980 to 1983, and I didn’t know what else to do. I remember doing a show in some college town, in a tiny club, and afterward some fans came back. I thought I had done good gig and they were going to tell me that.
+ - I’ve probably been spit on more that any person alive outside of, I would say, a member of the prison system.
+ - I like semi-torn-down places where I could get nestled in and get something done without anyone bothering me.
+ - My general take on American music since 1969 is that it’s just getting stiffer and people are getting more uptight – audience, performance, and palace guard.
+ - Life is just a bag of pot.
+ - If I don’t terrorize, I’m not Pop.
+ - I like music that’s more offensive. I like it to sound like nails on a blackboard, get me wild.
+ - I don’t think I’m lucky; I think I have a tough constitution. That’s a lot of it. And I’ve been wise enough to listen to other people. I was unconsciously cultivating as many straight friends as I could.
+ - Your skin starts itching once you buy that gimmick about something called love.
+
+84 quotes

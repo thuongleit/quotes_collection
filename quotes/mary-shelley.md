@@ -1,0 +1,132 @@
+ - Beware; for I am fearless, and therefore powerful.
+ - The beginning is always today.
+ - No man chooses evil because it is evil; he only mistakes it for happiness, the good he seeks.
+ - Live, and be happy, and make others so.
+ - Nothing is so painful to the human mind as a great and sudden change.
+ - Solitude was my only consolation – deep, dark, deathlike solitude.
+ - If I cannot inspire love, I will cause fear!
+ - You are my creator, but I am your master.
+ - The fallen angel becomes a malignant devil.
+ - Nothing contributes so much to tranquilize the mind as a steady purpose – a point on which the soul may fix its intellectual eye.
+ - Listen to me, Frankenstein. You accuse me of murder; and yet you would, with a satisfied conscience, destroy your own creature. Oh, praise the eternal justice of man!
+ - Nothing is so painful to the human mind as a great and sudden change. The sun might shine, or the clouds might lour: but nothing could appear to me as it had done the day before.
+ - There is love in me the likes of which you’ve never seen. There is rage in me the likes of which should never escape. If I am not satisfied int he one, I will indulge the other.
+ - One man’s life or death were but a small price to pay for the acquirement of the knowledge which I sought.
+ - Evil thenceforth became my good.
+ - Men become cannibals of their own hearts; remorse, regret, and restless impatience usurp the place of more wholesome feeling: every thing seems better than that which is.
+ - I was benevolent and good; misery made me a fiend. Make me happy, and I shall again be virtuous.
+ - Curiosity, earnest research to learn the hidden laws of nature, gladness akin to rapture, as they unfolded to me, are among the earliest sensations I can remember.
+ - So much has been done, exclaimed the soul of Frankenstein – more, far more, will I achieve; treading in the steps already marked, I will pioneer a new way, explore unknown powers, and unfold to the world the deepest mysteries of creation.
+ - A mind of moderate capacity which closely pursues one study must infallibly arrive at great proficiency in that study.
+ - He was soon borne away by the waves and lost in darkness and distance.
+ - The fallen angel becomes a malignant devil. Yet even that enemy of God and man had friends and associates in his desolation; I am alone.
+ - Life, although it may only be an accumulation of anguish, is dear to me, and I will defend it.
+ - Invention, it must be humbly admitted, does not consist in creating out of void, but out of chaos.
+ - I am alone and miserable. Only someone as ugly as I am could love me.
+ - But soon, I shall die, and what I now feel be no longer felt. Soon these burning miseries will be extinct.
+ - I am malicious because I am miserable.
+ - There is something at work in my soul, which I do not understand.
+ - My dreams were all my own; I accounted for them to nobody; they were my refuge when annoyed – my dearest pleasure when free.
+ - Life and death appeared to me ideal bounds, which I should first break through, and pour a torrent of light into our dark world.
+ - We are fashioned creatures, but half made up. – Victor Frankenstein.
+ - With how many things are we on the brink of becoming acquainted, if cowardice or carelessness did not restrain our inquiries.
+ - I saw and heard of none like me. Was I then a monster, a blot upon the earth, from which all men fled, and whom all men disowned?
+ - The whole series of my life appeared to me as a dream; I sometimes doubted if indeed it were all true, for it never presented itself to my mind with the force of reality.
+ - I beheld the wretch-the miserable monster whom I had created.
+ - How mutable are our feelings, and how strange is that clinging love we have of life even in the excess of misery!
+ - I, a miserable wretch, haunted by a curse that shut up every avenue to enjoyment.
+ - Thus strangely are our souls constructed, and by slight ligaments are we bound to prosperity and ruin.
+ - Life is obstinate and clings closest where it is most hated.
+ - From my infancy I was imbued with high hopes and a lofty ambition.
+ - A human being in perfection ought always to preserve a calm and peaceful mind and never to allow passion or a transitory desire to disturb his tranquility.
+ - If you will comply with my conditions, I will leave them and you at peace; but if you refuse, I will glut the maw of death, until it be satiated with the blood of your remaining friends.
+ - Tranquility, allied to loneliness, possessed no charms.
+ - The very winds whispered in soothing accents, and maternal Nature bade me weep no more.
+ - I leave a sad and bitter world; and if you remember me, and think of me as of one unjustly condemned, I am resigned to the fate awaiting me.
+ - My own mind began to grow, watchful with anxoius thoughts.
+ - My education was neglected, yet I was passionately fond of reading.
+ - Accursed creator! Why did you form a monster so hideous that even you turned from me in disgust?
+ - Look forward to future years, if not with eager anticipation, yet with a calm reliance upon the power of good, wholly remote from despair.
+ - The world was to me a secret which I desired to devine.
+ - Polluted by crimes, and torn by the bitterest remorse, where can I find rest but in death?
+ - And now, once again, I bid my hideous progeny go forth and prosper. I have an affection for it, for it was the offspring of happy days, when death and grief were but words, which found no true echo in my heart.
+ - The world to me was a secret, which I desired to discover; to her it was a vacancy, which she sought to people with imaginations of her own.
+ - How dreadful it is, to emerge from the oblivion of slumber, and to receive as a good morrow the mute wailing of one’s own hapless heart – to return from the land of deceptive dreams to the heavy knowledge of unchanged disaster!
+ - Elegance is inferior to virtue.
+ - I trembled, and my heart failed within me; when, on looking up, I saw, by the light of the moon, the daemon at the casement.
+ - It was the secrets of heaven and earth that I desired to learn.
+ - Her countenance was all expression; her eyes were not dark but impenetrably deep; you seemed to discover space after space in their intellectual glance.
+ - My person was hideous and my stature gigantic. What did this mean? Who was I? What was I? Whence did I come? What was my destination? These questions continually recurred, but I was unable to solve them.
+ - I could not understand why men who knew all about good and evil could hate and kill each other.
+ - There is something so different in Venice from any other place in the world, that you leave at once all accustomed habits and everyday sights to enter an enchanted garden.
+ - The moon gazed on my midnight labours, while, with unrelaxed and breathless eagerness, I pursued nature to her hiding places.
+ - I required kindness and sympathy, but I did not believe myself utterly unworthy of it.
+ - Every where I see bliss, from which I alone am irrevocably excluded.
+ - I am not a person of opinions because I feel the counter arguments too strongly.
+ - I felt emotions of gentleness and pleasure, that had long appeared dead, revive within me. Half surprised by the novelty of these sensations, I allowed myself to be borne away by them, and forgetting my solitude and deformity, dared to be happy.
+ - My father was not scientific, and I was left to struggle with a child’s blindness, added to a student’s thirst for knowledge.
+ - The time at length arrives, when grief is rather an indulgence than a necessity and the smile that plays upon the lips, although it may be deemed a sacrilege, is not banished.
+ - To examine the causes of life, we must first have recourse to death.
+ - Nothing is more painful to the human mind than, after the feelings have been worked up by a quick succession of events, the dead calmness of inaction and certainty which follows and deprives the soul both of hope and fear.
+ - The agony of my feelings allowed me no respite; no incident occurred from which my rage and misery could not extract its food.
+ - Seek happiness in tranquility and avoid ambition even if it be only the apparently innocent one of distinguishing yourself in science and discoveries.
+ - When I step into the batter’s box, the fans, the noise, the cheers, they all disappear. For that moment, the world is just a battle between me and the pitcher. And more than anything, I want to win.
+ - The different accidents of life are not so changeable as the feelings of human nature.
+ - Teach him to think for himself? Oh, my God, teach him rather to think like other people!
+ - I also became a poet, and for one year lived in a Paradise of my own creation; I imagined that I also might obtain a niche in the temple where the names of Homer and Shakespeare are consecrated.
+ - The guilty are allowed, by human laws, bloody as they are, to speak in their own defence before they are condemned.
+ - It is with considerable difficulty that I remember the original era of my being.
+ - I saw no cause for their unhappiness, but I was deeply affected by it. If such lovely creatures were miserable, it was less strange that I, an imperfect and solitary being, should be wretched.
+ - His conversation was marked by its happy abundance.
+ - A lofty sense of independence is, in man, the best privilege of his nature.
+ - After days and nights of incredible labor and fatigue, I succeeded in discovering the cause of generation and life. Nay, more, I became myself capable of bestowing animation upon lifeless matter.
+ - My heart was fashioned to be susceptible of love and sympathy, and when wrenched by misery to vice and hatred, it did not endure the violence of the change without torture such as you cannot even imagine.
+ - My spirit will sleep in peace; or if it thinks, it will not surely think thus. Farewell.
+ - Ah! it is well for the unfortunate to be resigned, but for the guilty there is no peace.
+ - All judges had rather that ten innocent should suffer than that one guilty should escape.
+ - You seek for knowledge and wisdom as I once did; and I ardently hope that the gratification of your wishes may not be a serpent to sting you, as mine has been.
+ - The modern masters promise very little.
+ - Poetry, and the principle of Self, of which money is the visible incarnation, are the God and the Mammon of the world.
+ - If our impulses were confined to hunger, thirst, and desire, we might be nearly free; but now we are moved by every wind that blows and a chance word or scene that that word may convey to us.
+ - Supremely frightful would be the effect of any human endeavor to mock the stupendous mechanism of the Creator of the world.
+ - I see by your eagerness, and the wonder and hope which your eyes express, my friend, that you expect to be in formed of the secret with which I am acquainted. That cannot be.
+ - In other studies you go as far as other have gone before you, and there is nothing more to know; but in a scientific pursuit there is continual food for discovery and wonder.
+ - It is hardly surprising that women concentrate on the way they look instead of what is in their minds since not much has been put in their minds to begin with.
+ - But I am a blasted tree; the bolt has entered my soul; and I felt then that I should survive to exhibit what I shall soon cease to be – a miserable spectacle of wrecked humanity, pitiable to others and intolerable to myself.
+ - The careful rearer of the ductile human plant can instil his own religion, and surround the soul by such a moral atmosphere, as shall become to its latest day the air it breathes.
+ - Invention, it must be humbly admitted, does not consist in creating out of a void, but out of chaos; the materials must in the first place be afforded; it can give form to dark, shapeless substances, but cannot bring into being the substance itself.
+ - None but those who have experienced them can conceive of the enticements of science.
+ - What are we, the inhabitants of this globe, least among the many that people infinite space? Our minds embrace infinity; the visible mechanism of our being is subject to merest accident.
+ - My dreams were at once more fantastic and agreeable than my writings.
+ - I feel exquisite pleasure in dwelling on the recollections of childhood, before misfortune had tainted my mind, and changed its bright visions of extensive usefulness into gloomy and narrow reflections upon self.
+ - Devil, do you dare approach me? and do you not fear the fierce vengeance of my arm wreaked on your miserable head?
+ - All men hate the wretched; how, then, must I be hated, who am miserable beyond all living things! Yet you, my creator, detest and spurn me, thy creature, to whom thou are bound by ties only dissoluble by the annihilation of one of us.
+ - But her’s was the misery of innocence, which, like a cloud that passes over the fair moon, for a while hides, but cannot tarnish its brightness.
+ - The labours of men of genius, however erroneously directed, scarcely ever fail in ultimately turning to the solid advantage of mankind.
+ - Ennui, the demon, waited at the threshold of his noiseless refuge, and drove away the stirring hopes and enlivening expectations, which form the better part of life.
+ - How dangerous is the acquirement of knowledge and how much happier that man is who believes his native town to be the world, than he who aspires to be greater than his nature will allow.
+ - He is dead who called me into being, and when I shall be no more the very remembrance of us both will speedily vanish.
+ - Satan has his companions, fellow-devils, to admire and encourage him; but I am solitary and detested.
+ - Solitude becomes a sort of tangible enemy, the more dangerous, because it dwells within the citadel itself.
+ - Standing armies can never consist of resolute robust men; they may be well-disciplined machines, but they will seldom contain men under the influence of strong passions, or with very vigorous faculties.
+ - Happiness is in its highest degree the sister of goodness.
+ - I ought to be thy Adam, but I am rather the fallen angel...
+ - Unhappy man! Do you share my maddness? Have you drunk also of the intoxicating draught? Hear me; let me reveal my tale, and you will dash the cup from your lips!
+ - Oh! Stars and clouds and winds, ye are all about to mock me; if ye really pity me, crush sensation and memory; let me become as nought; but if not, depart, depart, and leave me in darkness.
+ - The young are always in extremes.
+ - Truly disappointment is the guardian deity of human life; she sits at the threshold of unborn time, and marshals the events as they come forth.
+ - And the violet lay dead while the odour flew On the wings of the wind o’er the waters blue.
+ - It is true, we shall be monsters, cut off from all the world; but on that account we shall be more attached to one another.
+ - We never do what we wish when we wish it, and when we desire a thing earnestly, and it does arrive, that or we are changed, so that we slide from the summit of our wishes and find ourselves where we were.
+ - When falsehood can look so like the truth, who can assure themselves of certain happiness?
+ - You will rejoice to hear that no disaster has accompanied the commencement of an enterprise which you have regarded with such evil forebodings.
+ - A solitary being is by instinct a wanderer...
+ - What terrified me will terrify others; and I need only describe the spectre which had haunted my midnight pillow.
+ - Sorrow only increased with knowledge.
+ - I shall commit my thoughts to paper, it is true; but that is a poor medium for the communication of feeling. I desire the company of a man who could sympathize with me, whose eyes would reply to mine.
+ - Even the eternal skies weep, I thought; is there any shame then, that mortal man should spend himself in tears?
+ - In my joy I thrust my hand into the live embers, but quickly drew it out with a cry of pain. How strange, I thought that the same cause should produce such opposite effects.
+ - Precious attribute of woe-worn humanity! that can snatch ecstatic emotion, even from under the very share and harrow, that ruthlessly ploughs up and lays waste every hope.
+ - Our faults are apt to assume giant and exaggerated forms to our eyes in youth.
+
+130 quotes

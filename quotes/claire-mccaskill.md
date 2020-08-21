@@ -1,0 +1,37 @@
+ - What? You don’t trust me?
+ - If every crime victim had to have perfect judgment, we could empty our prisons.
+ - I do not begrudge Bill Clinton’s working for his wife, but the one thing I would say is really important to President Clinton to think about right now, because of the larger megaphone he has as a former president, he really needs to be careful with the truth.
+ - I am a small-town girl.
+ - When the Tea Party comes to town, compromise goes out the door.
+ - Do I want Social Security to be there for my kids and my grandkids? Absolutely. Will I fight like a tiger to make sure that we protect Social Security? I absolutely will.
+ - Even though we know sexual assault is still dramatically underreported, I think women are much more empowered today than they used to be.
+ - So it is the business community and agricultural community who I think might have the most influence on helping us make this effort more bipartisan.
+ - It’s very hard from a distance to figure out who has lost their minds. One party, the other party, all of us, the president.
+ - There are three legs of the stool; spending, entitlements and making the tax code fair and equitable. That’s the three legs of the stool. If we do all of those in a responsible, bipartisan way, I think the American people would all be very, very happy.
+ - Well, Im wrestling alligators.
+ - Somehow in the public sector, if you start in the mailroom and spend your life getting promoted, it’s unseemly.
+ - I voted against my party with some frequency, because of my independence. I’ve just got to remind Missourians that I am independent and that I try to call them like I see them, and sometimes my party is wrong on some things.
+ - The price of a college education should never include a 1 in 5 chance of being sexually assaulted.
+ - If you are passed out drunk or if there is a gun to your head, it is the same crime. It is a crime where there is not consent. It is a felony. And we need to start making sure victims understand that, so they don’t do the self blame.
+ - I think there are certain folks in Missouri that don’t trust government. And they haven’t trusted government for a long time.
+ - I’m the only United States Senator in the country that I’m aware of that’s had the far left up on TV and the far right up on TV against me at the same time.
+ - The political system loves the extremes, it doesnt so much show a lot love for the moderates.
+ - Universities simply unable to play judge, jury and executioner when they’re already having trouble playing educator. Resources are limited and colleges must put their focus on their primary objective: education.
+ - There’s nothing that irritates Americans more than the fact that some members of Congress think they are entitled to their own set of rules. And it’s true – too many people in Washington live in an alternate reality.
+ - The White House has something in common with the rest of America, and that is disdain for Congress. It is hard to blame them.
+ - Obviously, I have been a pro-choice candidate for my entire political career, and obviously there is controversy always surrounding this issue.
+ - I think that I was just on the cusp of the generation that was beginning to really challenge some of the assumptions about the role of women and the role of men on campus.
+ - I’m a moderate. I hang out in the middle. I vote against my party with some regularity and try to compromise. It doesn’t appear right now that the Republican Party is welcoming moderates any more.
+ - I have fought the establishment, run primaries, my entire career. I think that for Planned Parenthood or NARAL or the Human Rights Campaign to be considered the establishment, somebody’s not paying close attention to how American politics works.
+ - Frankly, earmarking is not the problem. It is a symptom of the problem.
+ - I have been very independent from day I arrived in Washington.
+ - I believe that sexual assault – if this is possible – was even more underreported when I was in school.
+ - I’m asking regular folks to be my super PAC.
+ - I think I’m the last Democrat left in the Senate after Russ Feingold was defeated that won’t take earmarks.
+ - I’ve got a really hard election. If you had a really hard election and it was after Labor Day would you go to North Carolina to a bunch of parties and glad-handing or would you stay home and work as hard as you know how to convince Missourians they should rehire you?
+ - My first obligation is my job. It’s very hard to really get into campaign mode when you’ve got to focus on doing the work.
+ - You never know what’ll happen in politics.
+ - When you work in the United States Senate, and you are around people of all different ideas and beliefs, you realize that what our Founding Fathers did that was so genius, is that they made the Senate the place where compromises are supposed to happen because of the makeup of the Senate.
+ - All the movies where I play nice guys don’t seem to do very well.
+
+35 quotes

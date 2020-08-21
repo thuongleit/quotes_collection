@@ -1,0 +1,64 @@
+ - If you could see or feel the suffering you wouldn’t think twice. Give back life. Don’t eat meat.
+ - We need to listen more, to hear the silence and live in it.
+ - The older I’ve gotten, I really do feel that it’s a lack of trust that I see in people and that’s why they don’t follow their dreams – because they don’t trust anything.
+ - That was the first time I knew I loved him.
+ - You have to trust the journey. That has become my motto for years: trust the journey. Because in the end, we’re all kind of fearful. We all have fears and insecurities and ups and downs.
+ - I don’t have time to be classified as difficult, and I don’t have time to care.
+ - Children need to grow up and make their own decisions – how they want to pierce their bodies or do whatever they need to.
+ - You lose your anonymity just like a helium balloon with a string. Therefore people are going to have their own opinion and they’re going to write in whatever clever manner they desire.
+ - I still eat sushi, though I’m trying my best to have my last sushi roll.
+ - I’m my own worst enemy sometimes when I pick projects.
+ - I’m very sensitive to energy and people and life and animals and a lot of things.
+ - I wouldn’t trade anything no matter how good or bad or difficult. I’m the luckiest girl in the world as far as I’m concerned.
+ - There are so many things in this life that I want to do and I can’t do them all.
+ - Clarity keeps you from boredom.
+ - I work in a strange business, and trust is a word that’s not even in the vocabulary.
+ - I’m not a real social person – I’m shy – and a lot of the business is just social.
+ - I didn’t really like my birthday as a kid. My mother used to say, “Sometimes we’d have a birthday party and you would just wander off.” But she said it was just my way in the world. It wasn’t anything that I was truly interested in.
+ - You don’t always have to be doing something. The most of something that you can do sometimes is to be in the present doing nothing.
+ - With some people, that love of music is just buried in them. It’s so deep in them that they would play for free because they have to.
+ - I’m a very determined person.
+ - I say when the truth wants to find you or wants to be found by you, it will come after you. You cannot stop that force.
+ - As a child, I was very shy. Painfully, excruciatingly shy. I hid a lot in my room. I was so terrified to read out loud in school that I had to have my mother ask my reading teacher not to call on me in class.
+ - My priorities had been changing before I had Addie but after she was born they changed completely. I don’t count – my daughter sort of owns me.
+ - I just thank god that I didn’t grow up with so much money or privilege because you had to create ways to make it happen.
+ - I’m not too in love with the word ambition, but I was driven.
+ - I grew up on soul music. I was a dancing little creep.
+ - My dad had even hired an accompanist to play for me on a piano. But he had never pushed me to music because I don’t think he wanted me to be hurt as much as he was if it didn’t work.
+ - My dad worked very hard for the money he made, and my mom worked very hard to keep this household up and running and all the kids fed and everything. And she did it in a brilliant fashion. They both did. In fact, the work ethic, to me, is so important in this life.
+ - I do things every day for my birthday. I’m just not a party girl.
+ - When it comes to exchanges with people, I think, the more genuine you can be, the more giving you can be, the more you will, in the end, feel fulfilled.
+ - The media paint ugly pictures about you.
+ - I think my mother had a lot of opportunity when she was a kid. She was a model, and she did a lot of things in her life, but she had no real ambition. I think my mother really did want a home and kids and all of that.
+ - There’s a certain amount of empathy you need to have, and I’ve also never been one to call it in. I know some roles are easier for certain people, especially when there’s the sequel and a third and a fourth one.
+ - Parents can be very influential in designing those little creepy-crawlers that jump around in your mind for the rest of your life. It’s the fear of not being good enough.
+ - One realizes how we take water for granted and how important it is to have it in order to stay alive. Beyond the drinking of it, let’s not forget the hygiene.
+ - I’m all for anybody having a party who wants that. The funny thing about me and birthdays or any kind of celebration where it brings attention to you in that way is that it’s never been anything that I’ve thoroughly enjoyed – even as a little kid.
+ - I was so shy at school that I hardly ever talked, so everybody thought I was kind of a hermit.
+ - I just want to thank everybody I’ve ever met in my entire life.
+ - My dad studied at the American Conservatory in Chicago, so he lived on all those streets. He said the war probably saved his life because he’d have ended up a dead musician, with all the crazy stuff they did on Rush Street back in the day.
+ - You learn something from everything you do. With every project I’ve ever done, I’ve always treated it like I’m still in school.
+ - My dad was a musician, and that was his first love, and I think probably, to be really honest, it was my first love as well.
+ - I love to be nervous before a scene.
+ - There’s no doubt that becoming a mother was the greatest thing I’ll ever do.
+ - Taking baths in Africa was a real challenge at times. I got real dirty, and sometimes I stayed like that for 2 days. That was pretty hard going.
+ - In American cinema, people will take a chance on you, though they’ll often remind you that really, they always liked you.
+ - I have to make a living, and I have been in a few films I wish I hadn’t been in, but I don’t know where things will lead me next, and that’s exciting.
+ - I’ve done so many dramas in my life, and people don’t even know I came from comedy.
+ - If you look at this generation of selfies and selfies and selfies, it seems a little bit scary. I like to see a driven kid, somebody who wants to come from the ground up.
+ - I just feel passionately about the horses and I will until it’s no longer a tradition in New York.
+ - I remember that Jack Lemmon, who is one of my favorite actors of all time, says that the day he stops being nervous is the day he should leave the business.
+ - I love to see somebody who wants to be the best they can be.
+ - I look at marriage and I think marriage is phenomenal. I think it’s great. I don’t hold anything against marriage.
+ - I never really saw my dad as entertained as when he was just completely blown away by somebody on the television screen or at the movies. I think that’s the real reason that I went into acting.
+ - I’m very thankful that I’ve had such longevity and variety.
+ - A lot of actresses like to repeat things over – and I don’t once I’ve been there and done that. I like to see what the next thing is that comes along.
+ - As far as I’m concerned, I don’t eat meat.
+ - There are movies that I did and I know what I did and I know the story, and I don’t want to see that.
+ - Some movies – even movies you’ve done way before – they’re just clearer in nature.
+ - I cannot really be responsible for other people’s thought processes.
+ - Watching myself still makes me uneasy – and when you’re younger, you’re even more unforgiving.
+ - I can’t be enticed by a big commercial film.
+ - I know that my in-box will be so full the day that I leave the planet. So you try to stay interested in life and bring some kind of comfort and pleasure to others on this planet as you’re going through this journey.
+
+62 quotes

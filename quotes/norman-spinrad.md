@@ -1,0 +1,26 @@
+ - I must admit to being greatly influenced by Joseph Campbell’s The Hero With a Thousand Faces.
+ - The saddest day of your life is when you decide to sell out, and nobody wants to buy.
+ - In America, if you don’t do a 100 million dollars, you’ve done nothing.
+ - There is only one definition of science fiction that seems to make sense: ‘Science fiction is anything published as science fiction.’
+ - Chaos is the enemy of Order but the enemy of Chaos is also the enemy of Order.
+ - I’m not gifted, but I’m not hopeless.
+ - I never learned to read music.
+ - You can really do more than you think you can do.
+ - I was a precocious reader.
+ - Mexico was conquered more by manipulation of myth and archetype.
+ - I write in American slang.
+ - I get work because I’m primarily a novelist but I’ve become script doctor. I can work back and forth between French and English.
+ - I believe that interest in heroes is universal and eternal.
+ - As a child, I read science fiction, but from the very beginnings of my reading for pleasure, I read a lot of non-fictional history, particularly historical biography.
+ - Is anything accidental?
+ - I’ve always been interested in the relationship between total external surround, culture, the political matrix, technology, etc., and the internal human consciousness.
+ - All fiction is lies – if it weren’t, it would be biography, history, or reportage.
+ - There are certain things that ordinary people have that celebrities don’t have.
+ - English is taking over the world. I just wrote a piece about it. And it’s not by design. The United States dominates because it’s the biggest market.
+ - If I had parallel lives to pursue, I would also want one as a painter.
+ - Science fiction is anything published as science fiction.
+ - The thematic, psychological, and cultural concerns of a writer are more relevant than whatever literary mode he or she chooses to deal with in any given novel.
+ - If it’s not American, the French won’t go see it.
+ - It’s trite to say that the world has gotten smaller in the age of globalization, but my travels have told me that it’s wrong to think this means there is some kind of uniform world culture.
+
+24 quotes

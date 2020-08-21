@@ -1,0 +1,33 @@
+ - Do work that matters. Vale la pena.
+ - I change myself, I change the world.
+ - To survive the Borderlands you must live sin fronteras be a crossroads.
+ - I am mad – but I choose this madness.
+ - A woman who writes has power, and a woman with power is feared.
+ - I am playing with my Self, I am playing with the world’s soul, I am the dialogue between my Self and el espiritu del mundo. I change myself, I change the world.
+ - I am an act of kneading, of uniting and joining that not only has produced both a creature of darkness and a creature of light, but also a creature that questions the definitions of light and dark and gives them new meanings.
+ - Nothing happens in the ‘real’ world unless it first happens in the images in our heads.
+ - Living on borders and in margins, keeping intact one’s shifting and multiple identity and integrity, is like trying to swim in a new element, an “alien” element.
+ - Books saved my sanity, knowledge opened the locked places in me and taught me first how to survive and then how to soar.
+ - What we say and what we do ultimately comes back to us so let us own our responsibility, place it in our hands, and carry it with dignity and strength.
+ - I had to leave home so I could find myself, find my own intrinsic nature buried under the personality that had been imposed on me.
+ - Though we tremble before uncertain futures may we meet illness, death and adversity with strength may we dance in the face of our fears.
+ - But I’m more scared of not writing.
+ - I will have my voice: Indian, Spanish, white. I will have my serpent’s tongue – my woman’s voice, my sexual voice, my poet’s voice. I will overcome the tradition of silence.
+ - Why am I compelled to write? Because the writing saves me from this complacency I fear. Because I have no choice.
+ - Write with your eyes like painters, with your ears like musicians, with your feet like dancers. You are the truthsayer with quill and torch. Write with your tongues of fire. Don’t let the pen banish you from yourself.
+ - Depression is useful. It signals that you need to make changes in your life, it challenges your tendency to withdraw, it reminds you to take action.
+ - Wild tongues can’t be tamed, they can only be cut out.
+ - The act of writing is the act of making soul, alchemy.
+ - Living in a state of psychic unrest, in a Borderland, is what makes poets write and artists create.
+ - I want the freedom to carve and chisel my own face, to staunch the bleeding with ashes, to fashion my own gods out of my entrails...
+ - In trying to become ‘objective,’ Western culture made ‘objects’ of things and people when it distanced itself from them, thereby losing ‘touch’ with them.
+ - Enough of passivity and passing time while waiting for the boy friend, the girl friend, the Goddess, or the Revolution.
+ - By writing I put order in the world, give it a handle so I can grasp it.
+ - I am visible-see this Indian face-yet I am invisible. I both blind them with my beak nose and am their blind spot. But I exist, we exist. They’d like to think I have melted in the pot. But I haven’t. We haven’t.
+ - An image is a bridge between evoked emotion and conscious knowledge; words are the cables that hold up the bridge. Images are more direct, more immediate than words, and closer to the unconscious. Picture language precedes thinking in words; the metaphorical mind precedes analytical consciousness.
+ - Write in the kitchen, lock yourself up in the bathroom. Write on the bus or the welfare line, on the job or during meals.
+ - All reaction is limited by, and dependant on, what it is reacting against.
+ - We are taught that the body is an ignorant animal intelligence dwells only in the head. But the body is smart. It does not discern between external stimuli and stimuli from the imagination. It reacts equally viscerally to events from the imagination as it does to real events.
+ - I can’t seem to stay out of my own way.
+
+31 quotes

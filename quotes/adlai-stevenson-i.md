@@ -1,0 +1,24 @@
+ - Power corrupts, but lack of power corrupts absolutely.
+ - If we value the pursuit of knowledge, we must be free to follow wherever that search may lead us. The free mind is no barking dog to be tethered on a ten-foot chain.
+ - Bad administration, to be sure, can destroy good policy; but good administration can never save bad policy.
+ - Self-Criticism is the secret weapon of democracy, and candor and confession are good for the political soul.
+ - Eggheads, unite! You have nothing to lose but your yolks.
+ - Carelessness about our security is dangerous, carelessness about our freedom is also dangerous.
+ - A lie is an abomination unto the Lord, and a very present help in trouble.
+ - The tragedy of our day is the climate of fear in which we live, and fear breeds repression. Too often sinister threats to the Bill of Rights, to freedom of the mind, are concealed under the patriotic cloak of anti-communism.
+ - Your public servants serve you right; indeed often they serve you better than your apathy and indifference deserve.
+ - Here, in the dread tribunal of last resort, valor contended against valor. Here brave men struggled and died for the right as God gave them to see the right.
+ - A wise man does not try to hurry history. Many wars have been avoided by patience, and many have been precipitated by reckless haste.
+ - Man is a strange animal, he doesn’t like to read the handwriting on the wall until his back is up against it.
+ - Why is it that when political ammunition runs low, inevitably the rusty artillery of abuse is always wheeled into action?
+ - A wise man who stands firm is a statesman, a foolish man who stands firm is a catastrophe.
+ - It is in the nature of cats to do a certain amount of unescorted roaming.
+ - The sound of tireless voices is the price we pay for the right to hear the music of our own opinions.
+ - Men may be born free; they cannot be born wise; and it is the duty of the university to make the free wise.
+ - An editor is one who separates the wheat from the chaff and prints the chaff.
+ - An independent is the guy who wants to take the politics out of politics.
+ - Our strength lies, not alone in our proving grounds and our stockpiles, but in our ideals, our goals, and their universal appeal to all men who are struggling to breathe free.
+ - Some of us worship in churches, some in synagogues, some on golf courses.
+ - A man doesn’t save a century, or a civilization, but a militant party wedded to a principle can.
+
+22 quotes

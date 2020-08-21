@@ -1,0 +1,35 @@
+ - The past is just a story we tell ourselves.
+ - Doing a documentary is about discovering, being open, learning, and following curiosity.
+ - I just want to make whatever is exciting.
+ - If you compromise what you’re trying to do just a little bit, you’ll end up compromising a little more the next day or the next week, and when you lift your head you’re suddenly really far away from where you’re trying to go.
+ - Even in this world where you’re getting everything you need and having this nice life, there’s still loneliness and longing and disconnection.
+ - I don’t understand the whole testing-numbers thing. It is not how I want to make movies.
+ - I think, as you’re growing up, your emotions are just as deep as they are when you’re an adult. You’re ability to feel lonely, longing, confused or angry are just as deep. We don’t feel things more as we get older.
+ - The things that are really out of control, and scary, are emotions – of people around you, that are unpredictable, or those in yourself which are unpredictable.
+ - If I can make one generalised statement, and generalised statements are never entirely true, nobody wants to be talked down to, kids included.
+ - The invention of the iPod changes how you use music. Suddenly you have music everywhere.
+ - If I leave my phone in the car and go to dinner or something for a few hours, I’m very proud of myself.
+ - Emotions are messy and hard to figure out.
+ - As a parent, your perspective of childhood is through the eyes of this person that you care so much about and you just want the world to be great for them. You want their life to be easy and happy.
+ - Big emotions that are unexplained are really scary. At least to me.
+ - On everything I do I’m always taking someone’s money, whether it’s a movie studio or a record label. Somebody’s paying for it, and I’m always respectful of that. But I’m never going to compromise.
+ - I think the way kids create is so inspiring. They’re drawing a picture? They love the picture they drew; they’re not tortured about it.
+ - I feel like everything I make is personal to me.
+ - Don’t differentiate between ‘This is a job’ and ‘This is what I’m doing for fun.’ It’s all simultaneous.
+ - Music is thousands and thousands of years old and I don’t think that basic, primitive connection to the language of music ever changes.
+ - I like naps. I don’t drink coffee.
+ - I always aspire to that, where it feels like the film was made by the characters as opposed to the filmmakers. I try to be invisible.
+ - Be willing to get fired for a good idea.
+ - I am better at math than spelling.
+ - I definitely enjoy getting to know people I find inspiring.
+ - I like hiring people based on a feeling – this person gets it – rather than what they’ve done in the past.
+ - What the world is like from a nine-year-old’s point of view? My memory is that nothing is explained to you, you’ve got to try to figure it out, pick up clues from the people around you, try to figure it out from their reactions.
+ - You have to be involved and relate to the characters in order to make a film that is true emotionally.
+ - I’m not one to intellectualize why I did something.
+ - I feel like you only have so much time to make stuff. I’m definitely aware of that. I’m also excited about it.
+ - Felt is not the easiest thing to animate. It’s very flimsy.
+ - I think because I’m not a parent, my most immediate connection to childhood is my memory of my own childhood.
+ - Chris Cooper I got to work with many times.
+ - You make a movie that is about what you want it to be about and let people have their reaction to it.
+
+33 quotes

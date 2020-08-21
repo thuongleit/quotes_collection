@@ -1,0 +1,37 @@
+ - I know I am very beautiful.
+ - I think the eyes flirt most. There are so many ways to use them.
+ - It is quite lovely being single, and I much prefer it.
+ - A woman should be like a single flower, not a whole bouquet.
+ - I speak English, so I am no longer cute. My tongue itches for French.
+ - An idea is our visual reaction to something seen – in real life, in our memory, in our imagination, in our dreams.
+ - I don’t want to get married, and I don’t want to work after I’m 30, so I must manage my fortune somehow in the next seven years.
+ - For a married woman to flirt is a sin.
+ - How many women have the courage to start properly with a cold, cold bath early in the morning? I jump in, throw the water, cold as ice, and after the first plunge I am happy.
+ - You’ll never catch a man if you let him think you are too smart.
+ - Yes, I am seeking a husband. As soon as the right man asks me, I shall say, It is not good for a woman to live alone.
+ - It is a temptation for me to wear all my rings at once.
+ - I have given up trying to be happy. It is no use an leads to nothing.
+ - I hadn’t even dreamed of getting another Academy Award, and there I was unhappy in my private life and miserable, i remember Clifford Odets drove me three times around the Biltmore, where the Oscars were given out, because I was so full of tears.
+ - I have never known the time when I did not wear stays. My stays are part of me.
+ - Please do not ask me to talk about my divorce. Mr. Ziegfeld and I are such very good friends. It is only a little matter quite between ourselves.
+ - I want to see people turn and writhe; make them feel things they cannot see and sometimes do not know.
+ - Costumes and scenery alone will not attract audiences.
+ - It is all very well for so-called sensible people to recommend flat heels and short skirts, but most of us prefer not to be sensible.
+ - I read the papers every day just to discover if one mentions Anna Held.
+ - My little dog, he did not get ill. It is so funny that people get ill on a boat and dogs do not.
+ - I let my personal feelings take care of themselves. I find that works better.
+ - I do not say anything from jealousy.
+ - I wish to please the people, but I want to make them cry, perhaps. There, I have said it.
+ - I was very adept at acquiring languages.
+ - I do not like vaudeville, but what can I do? It likes me.
+ - If I get married, I think I’d pick out a newspaperman rather than a millionaire. A newspaperman is a regular fellow.
+ - Most women are indulgent of themselves. This is a mistake. It should be only the reward of old age.
+ - You instinctively discover how to entertain an audience.
+ - I do not care for the money, just for the glory.
+ - Whatever success I may have attained is due to the fact that since I was old enough to work at all, my ambition has never deserted me.
+ - I am very, very proud of my ability as a cook.
+ - I don’t believe in hasty marriages.
+ - A woman must make her fortune before she is 30; or work after she is 30; or get married.
+ - Some women flirt more with what they say, and some with what they do.
+
+35 quotes

@@ -1,0 +1,47 @@
+ - I can be quite surprised by what makes me cry, but it’s usually spiritual things.
+ - My mother never put an emphasis on looks. She let us grow up on our own time line. She never forced any beauty regimen into my world.
+ - I have a certain curiosity for life that drives me and propels me forward.
+ - If I hurt someone, if I were to accidentally poke someone’s eye out, I would laugh. And then I’d say, ‘I’m sorry, I really do feel bad,’ but then I’m on the floor rolling.
+ - I feel like I’m going backwards, actually, as I get older. I’m regressing. I feel more and more like a kid, which is kind of a fun feeling.
+ - I love books where you can’t get out of bed. You want to consume them in one sitting, devour them. Those are my favorites, where you’ve almost abandoned your life for them. That doesn’t happen every time, but those are the best.
+ - Running through airports with pounds of luggage – that’s a good workout.
+ - A friend of mine had this great theory about the Teletubbies, that it’s preparing us for being mindless. And getting us ready for living in an underground world. That’s why the scenery is so flat.
+ - The craziest thing I’ve ever done to get a guy’s attention? I admit I stalked someone. I showed up at a restaurant where I knew the guy worked, and we were actually good friends and had lost touch, and I pretended that I didn’t know he worked there.
+ - I do have a side of me that would just love to be stuck in the woods and have to stick it out and be really resourceful.
+ - You have to be really open to your acting partners and believe in the story.
+ - I don’t know, I like to go on really different types of dates. Going someplace new or some new part of the city, something that’s not your average thing. Something where you just go have an adventure together.
+ - I think love is the through line and it’s universal and it doesn’t matter what period of time, time or place, or people, that’s something we all connect to. That’s the thin thread that I think keeps it altogether.
+ - I’ve discovered as I’ve grown up that life is far more complicated than you think it is when you’re a kid. It isn’t just a straightforward fairytale.
+ - I definitely believe that you are drawn to certain things for inexplicable reasons, but in a very powerful way. I don’t know what it is exactly, but I know that things happen kind of miraculously sometimes, and so I’m willing to believe that there’s something pretty magical out there.
+ - I really like having a life outside work. I sometimes wish I did more career stuff and was in that Hollywood scene a bit more. But Toronto’s my home.
+ - I confess I am a romantic. I love romance, and I think it’s really fun and delicious and some of my favorite films are love stories. I think that you just get a chance to fall in love with the characters so much and you get to explore their lives so deeply.
+ - I always wish I could go back and see the people that I love as children.
+ - I use filming as an excuse to take classes. I got my certification in sailing for ‘Wedding Crashers,’ and now I can handle a 26-foot boat. I played a seamstress once, so I took sewing classes. I love dipping into these other lives.
+ - A kiss with anyone, on or off camera, can be intimidating. I’ve been kissing for nearly two decades now, and I’m always convinced I’m not doing it right. Chemistry is so important in a great kiss. You can act your way through anything, but it’s hard with a kiss.
+ - I personally think you can have a really rich and full life with no abs. Abs are for wimps.
+ - Chemistry is so important in a great kiss. You can act your way through anything, but its hard with a kiss.
+ - I’ve always liked dressing up. And I love a high heel – the higher the better. I just feel funny in flats.
+ - I sort of always had an inkling towards some kind of an art form. I grew up in a very small town, and I just figure-skated. My dad played hockey and I was surrounded by sports, but it wasn’t quite doing it for me. I wasn’t totally fulfilled, and I did a lot of skating.
+ - You know, I have some issues. But I just love to play different characters all the time, and I try not to repeat myself too much.
+ - I love auditioning. Since ‘The Notebook’ and ‘Wedding Crashers,’ I don’t have to audition anymore, and I miss it. You get to show your interpretation of the character. I get nervous when I don’t audition. What if they hate what I want to do?
+ - I did do some Shakespeare on film, it’s really difficult. It’s really interesting, because I was doing a series in Canada called ‘Slings and Arrows’ and it was about a company based around the Stratford Festival.
+ - I think one thing that kids who grow up on farms really have going for them is they have exposure to death and birth in a totally different way. I think it takes away a little bit of the mystery and a little bit of the fear, and I do wish I had that. And I wish I was able to grow my own food.
+ - I love those preliminary conversations about who a character is. You try on wigs, shoes and clothes. It’s preferable when it’s not about looking pretty. It can get a little dull to just be cute. We talk about things like, maybe my character can’t afford these Christian Louboutins.
+ - You know when you find a great dress, you’ve gotta hold on to it.
+ - I drink maple syrup. Then I’m hyper so I just run around like crazy and work it all off.
+ - I want to work with great directors and try not to put too much pressure on myself and just read things for the story and recognize when I’m drawn to something for the right reasons and try to maintain some sanity.
+ - You really don’t have a life when you’re working. I always think “oh, I’m gonna see everybody on my days off. I’m gonna read so many books and see so many films” and then three months go by...
+ - I’ve been given lots of great advice, in my life. As an actor, just being as honest and as present as you can be.
+ - I’ve sort of heard that “it” girl thing, but not really. Hearing it from a few people doesn’t solidify it in my mind and I wouldn’t know how to solidify that title. It’s so elusive and what does it mean, I don’t know?
+ - Often with film, I find that you’re just really getting to know a person. They’re just starting to sink in, and then you wrap the film.
+ - I’m not an amazing cook. But I can follow a recipe!
+ - During a movie, chemistry is so important, and yet they just assume actors can fake their way through it. That doesn’t always work.
+ - I’m very silly as a person, but quality silliness on-screen has more of an art to it. Harrison Ford, whom I was in ‘Morning Glory’ with, has mastered that dry funny better than anyone.
+ - I’ve had heartbreaking auditions where they don’t even look at you. You’re out before you’re in.
+ - New York is so full of the best unemployed actors on the planet.
+ - Would I rather be dental floss or a toothbrush? is that a question? Um, I would actually rather be floss, I think, if I was using me. Because I don’t really floss enough.
+ - There’s no one who’s ever been significantly in my life for whom I don’t have a sort of tenderness because they helped to shape who I am.
+ - The physical part of comedy is as hard as a lot of action movies. It scares me, but in a way that I like.
+ - I didn’t get my first pilot that I screen-tested for, and I really thought it was the end of the world. But it’s fine, you know, you move on to something else.
+
+45 quotes

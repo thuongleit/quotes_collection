@@ -1,0 +1,31 @@
+ - Never trust anyone whose TV is bigger than their book shelf.
+ - Don’t do drugs, don’t have sex, and don’t touch your eyebrows.
+ - Sometimes I feel like the kid left out – the weirdo with the silver hair that no one likes to talk to.
+ - After my last audition for ‘Game of Thrones,’ they said, ‘Congratulations, princess.’ I was like, ‘Bye-bye, call centre.’
+ - My life is unrecognisable compared to what it was – ‘Game of Thrones’ has opened doors that were never there before. But it can be dangerous to see it in those terms, I think. It’s best to take it as it comes and work as hard as you can, and hopefully the other things fall into place.
+ - One of the many things I love about Daenerys from Game of Thrones is she’s given me an opportunity to fly the flag for young girls and women, to be more than just somebody’s wife and somebody’s girlfriend.
+ - I love my Spanish fans!
+ - I’ve read all the ‘Game of Thrones’ books many times over, so I sometimes find it easier being on set, because it can be hard to get out of character.
+ - I long for the countryside. That’s where I get my calm and tranquillity – from being able to come and find a spot of green.
+ - I grew up around horses, but acting and riding on camera is a whole different thing.
+ - There are no captions on red-carpet photos that say, ‘This girl trained for two weeks, she went on a juice diet, she has a professional hair and makeup person, and this dress was made for her.’ I just wish they’d say, ‘It ain’t the truth.’
+ - Being a single girl in New York it’s what you should be doing in your twenties!
+ - I’m really old-fashioned. An Epsom salt bath, that’s genuinely better than any massage.
+ - My mother taught me how to apply my own makeup at 13 years old, and the most important lesson I learned is to never touch my eyebrows and to cleanse, tone, and moisturize twice a day.
+ - All of the press and stuff – that’s the scary stuff. The acting is what I got trained to do.
+ - My rule is never to look at anything on the Internet.
+ - My dad took me for an audition once, to show me, OK, you want to be a child actor, this is what its like. I sang a folk song about donkeys on this West End stage with this big director, and there was a queue of 200 girls all singing Memory. I was terrible. Terrible.
+ - I told my parents I wanted to be an actor, and they were getting ready for a life of unemployment, so they’re just happy I’m in work!
+ - I spent most of my life watching HBO series wishing that at some point in my career I might be able to work with them.
+ - A young Brit girl with no theatre experience decided to take on an iconic American role on Broadway. Maybe I should have thought that through?
+ - The ’90s were really just bad for fashion and hair.
+ - The calibre of TV’s changing. It’s becoming much more epic. To rival film, definitely.
+ - Drama school is fundamentally practical. I didn’t write any essays, so I came out with a BA honors degree in acting.
+ - I want to be known for my acting, not for my breasts.
+ - I looked around one stage school when I was maybe nine. It just scared the bejesus out of me. I was incredibly open, and the girls seemed fierce and determined.
+ - I came out of my mum’s stomach going, ‘I want to be an actor!’
+ - Music is something that’s always been a huge part of my life.
+ - I’d give my right arm to be, like, a random extra on ‘Girls,’ just to walk past one of the scenarios. I’d love that more than anything.
+ - You can’t come out of drama school and think, ‘It’s all going to be amazing.’ You have to expect to work in a bar for at least five years and be a waitress for maybe two!
+
+29 quotes

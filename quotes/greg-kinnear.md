@@ -1,0 +1,55 @@
+ - Cat lovers turn into cat collectors.
+ - Setting goals can blind you to opportunities. You might be trying to get to point C. When opportunity B comes, you don’t even look at it because you’re going straight to C.
+ - The automotive corporations, including Ford, I think are in the business of trying to make cars that people will drive.
+ - When I look back on my childhood, I think of that short time in Beirut. I know that seeing the city collapse around me forced me to grasp something many people miss: the fragility of peace.
+ - I find fear is a great motivator to work hard.
+ - Everybody’s family has problems.
+ - She is such a scene-stealer. She’s got these lashes and big eyes, and when she walks on to the set everybody just says “ooh.”
+ - My grandfather had two boys, my uncle had three boys, my dad had me and my two brothers, each of my brothers have had two boys. Then something happened with the chromosomal experiment and suddenly I’ve got three girls.
+ - A man always looks good in a dark suit.
+ - My adolescence was all tits and champagne. I’m downplaying the magic of it all.
+ - I don’t think there’s any connection between my journalism career and my film career. They are two totally different mediums and very different skills.
+ - I have a very well organized closet.
+ - I’ve never had a clear road map. When things come along, I benefit.
+ - You don’t get to pick your partners in families; you get assigned a seat at the table.
+ - I really don’t make a concerted effort to try to find a type of role. Maybe I’ve just done enough of them now where people are like, ‘Oh, it’s the guy that’s in a swirling vortex of despair, send it to Kinnear!’ I don’t really know, but it does seem to be a recurring theme.
+ - The irony is that you can’t use real rain to make movies.
+ - Good scripts and interesting stories are hard enough to find.
+ - I went door-to-door selling cable television subscriptions when I was in college. Not to date myself, but cable was just coming on. I had terrible territories, and they would give me $25, if I got somebody to let them come and just put the little cord in their house.
+ - Ultimately, I’m not so sure that, as a person, I’m all that interesting.
+ - Part of filmmaking is always a guessing game, and part of it is always a game of trust.
+ - I’ve always thought Mexico City was incredibly dynamic.
+ - Jack Nicholson is fairly gifted. We were at the Sistine Chapel, and everybody went from looking straight up to looking across the room at him.
+ - Audiences don’t ever disappoint me, in the sense that movies I feel really good about, they usually feel really good about too.
+ - There’s times when I’ll see a show, or something cooking on TV, and think, ‘That can really be fun when it’s working.’ But it’s a grind. I did that at NBC, it was five days a week. I was doing ‘Talk Soup’ and ‘Later’ at the same time. It’s a hard job, more difficult than people realize.
+ - Talking about corporations – they’re so big. There’s not a person at a corporation.
+ - I was just a quiet kid, really. I wasn’t the class clown at all.
+ - Whenever Hollywood gets involved with real life events, certain liberties have to be taken.
+ - We all have to lead double lives, not just celebrities. The face we put on publicly with our jobs and certain situations. I think that’s part of the human condition.
+ - I’m a terrible procrastinator. When we go to the airport, if they’re not literally closing the door behind my sweaty, hyperventilating body, I feel I’ve been there too long.
+ - Of course, actors look forward to the day when they can do a big courtroom scene.
+ - I’m very leery of show business, having been in Los Angeles for the last 10 years. Buzz is a dangerous thing that I’ve heard applied to a lot of people that I’ve since not heard of again.
+ - It’s not easy to tell a story about writers and make that feel like a complete story and an interesting story.
+ - I can’t not find humor in elements of most parts of life, but at the same time nothing ever seems perpetually funny to me.
+ - If a woman has one cat, it will invariably turn into 20.
+ - I was 12 when my parents told me we were moving to Lebanon. I remember thinking, ‘Leba-who?’ I had absolutely no concept of the place.
+ - Well, I don’t know what image people have of me.
+ - Here’s the thing about movies, all movies end up on television. That’s their life. Whether you like it or not, I don’t care how much money you spend on it, or how big or broad the film is, or who the actors are in it, eventually it’s all coming out of the box.
+ - I’ve never felt like my career has been on fire.
+ - Same job, whether it’s comedy or drama. Regardless of the weight of the role, I feel like the job is always kind of the same. Who is this person? What’s this guy here, and how is he playing with this thing, and what’s he trying to say? And what’s the volley with all these other people around him?
+ - There’s something in human nature, the trying-to-get-on-with-it quality of people, the struggle to maintain or keep the show going can be exhausting.
+ - I really don’t make a concerted effort to try to find a type of role.
+ - There’s no harmony in most people in a way, and I’m attracted to it, and I think it makes for good storytelling.
+ - I was always explaining why my term papers were never on time. I think that’s where I got my acting training!
+ - I do give a great deal of forethought and zone in on character and all sorts of things like that. Never before have I just stuffed something away in the back cupboard of my brain because it was just such a crazy concept.
+ - Most actors are very deeply passionate about their line of work. I suppose there are probably people who sell insurance policies that are passionate about it, but I’m thinking the ratio is a little higher for actors. But, I may be wrong.
+ - The tragic element of a character is always intriguing I think.
+ - Let’s keep the chemists over here and the food over here, that’s my feeling. What do I know? But that is a big aspect of fast food is their ability to artificially taint the colors and the smells and stuff to stimulate appetite.
+ - I like complicated characters.
+ - If you’re working on a movie, you want it to be projected on the largest tapestry possible, and the sound to be perfect, and for that kind of communal experience of the movies to take place for it.
+ - I’m happy to report that everybody whose face I’ve wanted to punch on Earth has already been punched.
+ - I don’t consider a lot of actors that I really admire movie stars.
+ - I have always been interested in the concept of ruin.
+ - You learn more about a person from the people around that person than you do from the person themselves. We all have our own ideas of who we are that may or may not be justified, and you can really find out a heck of a lot more accurately from the people around an individual.
+
+53 quotes

@@ -1,0 +1,76 @@
+ - If you don’t play to win don’t play at all.
+ - When you lose, talk little. When you win, talk less.
+ - I think sometimes in life the biggest challenges end up being the best things that happen in your life.
+ - I don’t care about three years ago – I don’t care about two years ago. I don’t care about last year. The only thing I care about is this week.
+ - It’s never come easy for me. I don’t think my mind allows me to rest ever. I have, I think, a chip on my shoulder, and some deep scars that I don’t think were healed.
+ - Some of the best motivation in life is trying to impress a girl.
+ - The true competitors, though, are the ones who always play to win.
+ - You can’t go out and practice average on Wednesday, average on Thursday, okay on Friday and then expect to play well on Sunday.
+ - If you waste your time and energy on things that don’t matter in the outcome of the game, then when you get to the game you’re not going to give your teammates the best that you have to offer.
+ - I have no knowledge of anything.
+ - I knew I became a professional when I stop paying attention to what time it was.
+ - Every quarterback can throw a ball; every running back can run; every receiver is fast; but that mental toughness that you talk about translates into competitiveness.
+ - Everyone is dealing with something. This is life; this is not just a piece of cake.
+ - I think you can just go out and try to be the best you can be, deal with people with respect, with honesty, with integrity, have a high moral standard. I’ve always really tried to exemplify that as an athlete. I’ll continue to try to do that.
+ - I like to have fun all the time, even if I’m working.
+ - Sometimes some of the toughest things you deal with end up being the best things because you realize the people that you can rely on, that love you and support you through it.
+ - All I do is work out, oh my God! Half my life is spent in a gym somewhere, sweating.
+ - If I have something to say, I want it to be meaningful.
+ - There’s a lot of people who don’t like Tom Brady and I’m OK with that.
+ - What strikes me most about Best Buddies International is the simplicity and magnitude of the mission. Friendship is a simple idea.
+ - Losing sucks, and especially to the Jets.
+ - Too often in life, something happens and we blame other people for us not being happy or satisfied or fulfilled. So the point is, we all have choices, and we make the choice to accept people or situations or to not accept situations.
+ - You go through high school and college the same way: never listening to your coaches because you’re the best. But when you get to the pros, all that stops because everybody there has talent.
+ - Football is a contact sport and there’s a lot that goes into it. But I have committed myself for a long time to doing it, and because I love doing it so much I want to make that commitment.
+ - I love playing football. I love playing for the Patriots.
+ - Life is not living in the suburbs with a white picket fence. That’s not life. Somehow our American culture has made it out that that’s what life needs to be – and that if it’s not that, it’s all screwed up. It’s not.
+ - As for hobbies, I don’t really read or watch TV. I’m very active. I like surfing, skiing, riding bikes with my kids, and working out with my friends.
+ - With football, you can have up to 28 guys you consider starters, and if they can pick up the slack when some aren’t playing so well, you don’t have to turn those two-game losing streaks into six-game losing streaks.
+ - You have to believe in the process. You have to believe in the things that you are doing to help the team win. I think you have to take the good with the bad.
+ - I can’t do anything with what’s happened in the past. I have to just go forward with the most awareness I can going forward and trying to be the best I can be for our team.
+ - I think it’s a feeling like I’ve got it all figured out. There’s nothing that can shock me anymore. There’s nothing I haven’t anticipated; so at that point, there is a calmness.
+ - I don’t put any thought into the footballs after I choose them. When you’re out there playing in front of 70,000 people, like a home crowd, you don’t think about it. You’re just reacting to the game.
+ - Everybody has an opinion. I think everybody has the right to believe whatever they want. I don’t ever cast judgment on someone’s belief system.
+ - I feel like I’ve always played within the rules. I would never do anything to break the rules. I believe in fair play and I’ll always believe in that for as long as I’m playing.
+ - You don’t like to see your guys take the field without you because it makes you feel like, man, maybe they really don’t need me out there, which is kind of humbling.
+ - Sometimes, getting up in the morning and brishing your teath is the hardest part of the day – it all just hurts.
+ - As athletes, we think we’re heroes, but when you witness firsthand what I saw yesterday, you realize who the real heroes are.
+ - I think so highly of people who love their sport and make a really strong commitment to it.
+ - I’m pretty chirpy. I can talk a little too much smack.
+ - I don’t know what I believe. I think there’s a belief system, I’m just not sure what it is.
+ - I’d be that James Bond character from the Beautyrest commercial that we did. Maybe some day.
+ - The only thing I really like doing during the week is getting ready to play the game.
+ - I would never do anything outside of the rules of play.
+ - Is it going to make me feel any better to make an extra million? That million might be more important to the team.
+ - I have a memory, and I can just eliminate mistakes when they come up because I’ve already made them.
+ - I approach every week the same. I think I’ve always tried to be very professional to how I approach the game, my preparation. Every game is important.
+ - When you hang with a bunch of 300-pound linemen, you tend to find the places that are the greasiest and serve the most food.
+ - A lot of people didn’t get to see Butler’s skills throughout the course of the season.
+ - Whenever I see Michael Jordan I’m still blown away because he was such a hero of mine growing up.
+ - Certainly I accept my role and responsibility as a public figure and a lot of it you take the good with the bad, dealing with different adversities in life, you just try to do the best you can do.
+ - Derek Jeter is one who played for such a long time, and David Ortiz in Boston is doing it right now.
+ - My mom was a great tennis player, and I remember being six or seven years old watching Steffi Graf and Monica Seles in Wimbledon in my house. I’ve always been a tennis fan.
+ - My job is to evaluate the field, pick the guy that I think is most open and make a good throw.
+ - When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.
+ - I hope I have a lot more football left.
+ - I don’t think there’s a lot of carry-over from year to year. I don’t think anybody cares what you did the year before.
+ - I’ve always been privileged to play for Coach Belichick, who I’ve always said is the best coach in the history of the league.
+ - I like skiing and surfing with kids. They are the cutest little skiers out there, in their little outfits. I just want to eat ’em up!
+ - I’m not squeezing the balls. That’s not part of my process.
+ - I’m much more comfortable and confident running out on the field in front of 70,000 people instead of standing in front of a camera trying to say some lines.
+ - I didn’t alter the footballs in any way.
+ - I think I’ve been fortunate over the years to be at a point in my career where I really get to choose the partnerships that I really want to take on and they’re a perfect fit.
+ - My sisters like cooking at my place. It has a bit more room, and the food tastes a little bit better. A big pot of spaghetti and sauce, some warm French bread – works all the time. I think I’ve been eating pasta for 26 years.
+ - I certainly want a name that I can pronounce!
+ - I’d love to give Malcolm the truck. We’re going to figure out how to make that happen.
+ - A guy like Malcolm who makes that type of quick, instinctive plays, that’s one of his strong suits. I don’t think it surprised any of us players because that’s what his skill set is.
+ - Fortunately for a quarterback, you can play for a long time because you don’t get hit very often.
+ - I got a few Mrs. Bradys in my life.
+ - It’s an incredible play, and not only that, that’s the type of plays Malcolm makes for our team.
+ - I feel like I have always played within the rules. I would never break the rules.
+ - Matt Damon is a great actor, and he’s from Boston, so we’ve got a few things in common. I’ve seen him throw a football, though. He definitely needs to work on that.
+ - This is really a dream come true. To be the starting quarterback in the Super Bowl is probably the highlight of my life.
+ - Butler’s interception comes off as a great play, which it really was, at the biggest time of the year.
+ - It’s easy when you have receivers that are open all the time and an offensive line that never lets anyone touch you. It makes it fun to play.
+
+74 quotes

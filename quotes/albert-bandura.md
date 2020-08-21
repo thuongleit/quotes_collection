@@ -1,0 +1,80 @@
+ - Self-belief does not necessarily ensure success, but self-disbelief assuredly spawns failure.
+ - People’s beliefs about their abilities have a profound effect on those abilities.
+ - Self-efficacy is the belief in one’s capabilities to organize and execute the sources of action required to manage prospective situations.
+ - People who regard themselves as highly efficacious act, think, and feel differently from those who perceive themselves as inefficacious. They produce their own future, rather than simply foretell it.
+ - People with high assurance in their capabilities approach difficult tasks as challenges to be mastered rather than as threats to be avoided.
+ - People who are insecure about themselves will avoid social comparisons that are potentially threatening to their self-esteem.
+ - In the self-appraisal of efficacy, there are many sources of information that must be processed and weighed through self-referent thought.
+ - If there is any characteristic that is distinctly human, it is the capability for reflective self-consciousness.
+ - Most of the images of reality on which we base our actions are really based on vicarious experience.
+ - In social cognitive theory, perceived self-efficacy results from diverse sources of information conveyed vicariously and through social evaluation, as well as through direct experience.
+ - One cannot afford to be a realist.
+ - Humans are producers of their life circumstance not just products of them.
+ - Regression analyses show that self-efficacy contributes to achievement behavior beyond the effects of cognitive skills.
+ - How children learn to use diverse sources of efficacy information in developing a stable and accurate sense of personal efficacy is a matter of considerable interest.
+ - People judge their capabilities partly by comparing their performances with those of others.
+ - People infer high self-efficacy from successes achieved through minimal effort on difficult tasks, but they infer low self-efficacy if they had to work hard under favorable conditions to master relatively easy tasks.
+ - Among the types of thoughts that affect action, none is more central or pervasive than people’s judgments of their capabilities to deal effectively with different realities.
+ - People not only gain understanding through reflection, they evaluate and alter their own thinking.
+ - Psychology cannot tell people how they ought to live their lives. It can however, provide them with the means for effecting personal and social change.
+ - Social cognitive theory rejects the dichotomous conception of self as agent and self as object. Acting on the environment and acting on oneself entail shifting the perspective of the same agent rather than reifying different selves regulating each other or transforming the self from agent to object.
+ - Even noteworthy performance attainments do not necessarily boost perceived self-efficacy.
+ - Once established, reputations do not easily change.
+ - Gaining insight into one’s underlying motives, it seems, is more like a belief conversion than a self-discovery process.
+ - A theory that denies that thoughts can regulate actions does not lend itself readily to the explanation of complex human behavior.
+ - Through their capacity to manipulate symbols and to engage in reflective thought, people can generate novel ideas and innovative actions that transcend their past experiences.
+ - Success and failure are largely self-defined in terms of personal standards. The higher the self-standards, the more likely will given attainments be viewed as failures, regardless of what others might think.
+ - As a general rule, moderate levels of arousal facilitate deployment of skills, whereas high arousal disrupts it. This is especially true of complex activities requiring intricate organization of behavior.
+ - Indeed there are many competent people who are plagued by a sense of inefficacy, and many less competent ones who remain unperturbed by impending threats because they are self-assured of their coping capabilities.
+ - Persons who have a strong sense of efficacy deploy their attention and effort to the demands of the situation and are spurred by obstacles to greater effort.
+ - Such self-referent misgivings creates stress and undermine effective use of the competencies people possess by diverting attention from how best to proceed to concern over personal failings and possible mishaps.
+ - It is widely assumed that beliefs in personal determination of outcomes create a sense of efficacy and power, whereas beliefs that outcomes occur regardless of what one does result in apathy.
+ - When people are not aiming for anything in particular or when they cannot monitor their performance, there is little basis for translating perceived efficacy into appropriate magnitudes of effort.
+ - By sticking it out through tough times, people emerge from adversity with a stronger sense of efficacy.
+ - The content of most textbooks is perishable, but the tools of self-directedness serve one well over time.
+ - When actions are followed by events that are not causally related to the prior acts, people often erroneously perceive contingencies that do not, in fact, exist.
+ - Misbeliefs in one’s inefficacy may retard development of the very subskills upon which more complex performances depend.
+ - Self-doubt creates the impetus for learning but hinders adept use of previously established skills.
+ - Judgments of adequacy involve social comparison processes.
+ - Even the self-assured will raise their perceived self-efficacy if models teach them better ways of doing things.
+ - Agemates provide the most informative points of reference for comparative efficacy appraisal and verification. Children are, therefore, especially sensitive to their relative standing among the peers with whom they affiliate in activities that determine prestige and popularity.
+ - When experience contradicts firmly held judgments of self-efficacy, people may not change their beliefs about themselves if the conditions of performance are such as to lead them to discount the import of the experience.
+ - Self-appraisals of efficacy are reasonably accurate, but they diverge from action because people do not know fully what they will have to do, lack information for regulating their effort, or are hindered by external factors from doing what they can.
+ - Ironically, it is the talented who have high aspirations, which are possible but exceedingly difficult to realize, who are especially vulnerable to self-dissatisfaction despite notable achievements.
+ - We are more heavily invested in the theories of failure than we are in the theories of success.
+ - A problem of future research is to clarify how young children learn what type of social comparative information is most useful for efficacy evaluation.
+ - Forceful actions arising from erroneous beliefs often create social effects that confirm the misbeliefs.
+ - The adequacy of performance attainments depends upon the personal standards against which they are judged.
+ - Perceived self-inefficacy predicts avoidance of academic activities whereas anxiety does not.
+ - Such knowledge is probably gained in several ways. One process undoubtedly operates through social comparison of success and failure experiences. Children repeatedly observe their own behavior and the attainments of others.
+ - Moreover, joint occurrences tend to be better recalled than instances when the effect does not occur. The proneness to remember confirming instances, but to overlook disconfirming ones, further serves to convert, in thought, coincidences into causalities.
+ - The performances of others are often selected as standards for self-improvement of abilities.
+ - People behave agentically, but they produce theories that afford people very little agency.
+ - Given a sufficient level of perceived self-efficacy to take on threatening tasks, phobics perform them with varying amounts of fear arousal depending on the strength of their perceived self-efficacy.
+ - Perceived self-efficacy and beliefs about the locus of outcome causality must be distinguished.
+ - What people think, believe, and feel affects how they behave. The natural and extrinsic effects of their actions, in turn, partly determine their thought patterns and affective reactions.
+ - If self-efficacy is lacking, people tend to behave ineffectually, even though they know what to do.
+ - Discrepancies between self-efficacy judgment and performance will arise when either the tasks or the circumstances under which they are performed are ambiguous.
+ - Incongruities between self-efficacy and action may stem from misperceptions of task demands, as well as from faulty self-knowledge.
+ - Perceived self-efficacy influences the types of causal attributions people make for their performances.
+ - The effects of outcome expectancies on performance motivation are partly governed by self-beliefs of efficacy.
+ - People regulate their level and distribution of effort in accordance with the effects they expect their actions to have. As a result, their behavior is better predicted from their beliefs than from the actual consequences of their actions.
+ - Self-percepts foster actions that generate information, as well as serve as a filtering mechanism for self-referent information in the self-maintaining process.
+ - To the extent that children with similar characteristics achieve comparable performance levels, using the performances of similar peers is likely to yield more accurate self-appraisal than using the accomplishments of dissimilar peers.
+ - The presence of many interacting influences, including the attainments of others, create further leeway in how one’s performances and outcomes are cognitively appraised.
+ - It is no more informative to speak of self-efficacy in global terms than to speak of nonspecific social behavior.
+ - Measures of self-precept must be tailored to the domain of psychological functioning being explored.
+ - Students judge how well they might do in a chemistry course from knowing how peers, who performed comparably to them in physics, fared in chemistry.
+ - Self efficacious children tend to attribute their successes to ability, but ability attributions affect performance indirectly through perceived self-efficacy.
+ - Dualistic doctrines that regard mind and body as separate entities do not provide much enlightenment on the nature of the disembodied mental state or on how an immaterial mind and bodily events act on each other.
+ - The human condition is better improved by altering detrimental circumstances and personal perspectives than by trying to alter personal outlooks, while ignoring the very circumstances that serve to nourish them.
+ - Because of such conjointedness, behavior that exerts no effect whatsoever on outcomes is developed and consistently performed.
+ - Perceived self-efficacy in coping with potential threats leads people to approach such situations anxiously, and experience of disruptive arousal may further lower their sense of efficacy that they will be able to perform skillfully.
+ - Self-appraisals are influenced by evaluative reactions of others.
+ - Except for events that carry great weight, it is not experience per se, but how they match expectations, that governs their emotional impact.
+ - The satisfactions people derive from what they do are determined to a large degree by their self-evaluative standards.
+ - To grant thought causal efficacy is not to invoke a disembodied mental state.
+ - The evaluative habits developed in sibling interactions undoubtedly affect the salience and choice of comparative referents in self-ability evaluations in later life.
+ - Very often we developed a better grasp of the subjects than the over worked teachers.
+
+78 quotes

@@ -1,0 +1,43 @@
+ - Motivation gets you going, but discipline keeps you growing. ~~John C. Maxwell
+ - Discipline is rarely enjoyable, but almost always profitable. ~~Darrin Patrick
+ - Self-discipline is the ability to make yourself do what you should do, when you should do it, whether you feel like it or not. ~~Elbert Hubbard
+ - If you want to reach your goals and dreams, you cannot do it without discipline. ~~Lee Kuan Yew
+ - The price of excellence is discipline. The cost of mediocrity is disappointment. ~~William Arthur Ward
+ - Self-discipline is the No. 1 delineating factor between the rich, the middle class and the poor. ~~Robert T. Kiyosaki
+ - Confidence comes from discipline and training. ~~Robert T. Kiyosaki
+ - Most people want to avoid pain, and discipline is usually painful. ~~John C. Maxwell
+ - Discipline weighs ounces and regret weighs tons. ~~Jim Rohn
+ - Discipline is the foundation upon which all success is built. Lack of discipline inevitably leads to failure. ~~Jim Rohn
+ - All freedom comes from discipline. ~~Anne Lamott
+ - Self-respect leads to self-discipline. ~~Clint Eastwood
+ - I could only achieve success in my life through self-discipline, and I applied it until my wish and my will became one. ~~Nikola Tesla
+ - You are free to choose, but the choices you make today will determine what you have, be, and do in the tomorrow of your life. ~~Zig Ziglar
+ - Discipline yourself to do the things you need to do when you need to do them, and the day will come when you will be able to do the things you want to do when you want to do them! ~~Zig Ziglar
+ - Your ability to discipline yourself to set clear goals, and then to work toward them every day, will do more to guarantee your success than any other single factor. ~~Brian Tracy
+ - Remember that all success is based on long-term commitment, faith, discipline, attitude and a few stepping stones along the way. ~~Jim Rohn
+ - We don’t drift into good directions. We discipline and prioritize ourselves there. ~~Andy Stanley
+ - Turn up for work. Discipline allows creative freedom. No discipline equals no freedom. ~~Jeanette Winterson
+ - Discipline must come through liberty. ~~Maria Montessori
+ - Discipline is giving yourself a command and following it up with action. ~~Bob Proctor
+ - Time management requires self-discipline, self-mastery and self-control more than anything else. ~~Brian Tracy
+ - Without discipline, there’s no life at all. ~~Katharine Hepburn
+ - Many people think they want things, but they don’t really have the strength, the discipline. They are weak. I believe that you get what you want if you want it badly enough. ~~Sophia Loren
+ - It’s a new day, a new beginning for your new life. With discipline you will be amazed at how much progress you’ll be able to make. What have you got to lose except the guilt and fear of the past? ~~Jim Rohn
+ - The great master key to riches is nothing more or less than the self-discipline necessary to help you take full and complete possession of your own mind. ~~Napoleon Hill
+ - Direction determines destination. So the question you must ask yourself; ‘Are all the disciplines that I’m currently engaged in taking me where I want to go?’ ~~Jim Rohn
+ - The future belongs to the competent. It belongs to those who are very, very good at what they do. It does not belong to the well meaning. ~~Brian Tracy
+ - One discipline always leads to another discipline. ~~Jim Rohn
+ - God has equipped you to handle difficult things. In fact, He has already planted the seeds of discipline and self-control inside you. You just have to water those seeds with His Word to make them grow! ~~Joyce Meyer
+ - Art does not begin with imitation, but with discipline. ~~Sun Ra
+ - Successful Investing takes time, discipline and patience. No matter how great the talent or effort, some things just take time: You can’t produce a baby in one month by getting nine women pregnant. ~~Warren Buffett
+ - A man provided with paper, pencil, and rubber, and subject to strict discipline, is in effect a universal machine. ~~Alan Turing
+ - No one likes to fail. But we mortals do not become champions without effort and discipline or without making mistakes. ~~Dieter F. Uchtdorf
+ - If it turns out that my best wasn’t good enough, at least I won’t look back and say that I was afraid to try; failure makes me work even harder. ~~Michael Jordan
+ - Education is an atmosphere, a discipline, a life. ~~Charlotte Mason
+ - With self-discipline most anything is possible. Theodore Roosevelt Rule your mind or it will rule you. ~~Horace
+ - The discipline of gratitude is the explicit effort to acknowledge that all I am and have is given to me as a gift of love, a gift to be celebrated with joy. ~~Henri J.M. Nouwen
+ - Freedom in intellectual work is found to be the basis of internal discipline. ~~Maria Montessori
+ - The enemies of intellectual liberty always try to present their case as a plea for discipline versus individualism. The issue truth-versus-untruth is as far as possible kept in the background. ~~George Orwell
+ - All writing is discipline, but screenwriting is a drill sergeant. ~~Robert McKee
+
+41 quotes

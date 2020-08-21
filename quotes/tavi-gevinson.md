@@ -1,0 +1,34 @@
+ - The best cure for procrastination is to have so much on your plate that procrastination is no longer an option.
+ - Graduating high school was really emotional for me. I’d obviously made a huge thing out of what that experience was for me, and saying goodbye to it was very weird. So I had to be like, boom, onward and upward.
+ - The idea that feeling confident and feeling misunderstood are mutually exclusive really bugs me.
+ - We all have the people we follow on Tumblr whose opinions or taste we respect. And I think because you see so much more variety of opinions and everything on the internet, it’s less decided that something is good or bad. It’s more like we all just sort of like what we like.
+ - Then, people expect women to be that easy to understand, and women are mad at themselves for not being that simple- When in actuality, women ARE complicated. Women are multifaceted. Not because women are crazy. But because people are crazy, and women happen to be people.
+ - I feel lucky in that I don’t really have to go to college to study something job-specific. I just want to go to learn about what is interesting to me and learn about the classes that you don’t really get to take in high school because you have to take the basics.
+ - Women are complicated. Not because women are crazy, but because people are crazy, and women happen to be people.
+ - Some of what makes growing up hard for famous kids is that they don’t have room to do immature stuff. I was really happy that I could go to school and hang out behind the alley and be somewhat irresponsible.
+ - I’ve never really felt like a journalist. I’ve felt like a writer and a diarist. I have made myself vulnerable in my writing, and I think that vulnerability makes people strong. My favorite performances or works of art are always people showing that side of themselves.
+ - What makes a strong female character is a character who has weaknesses, who has flaws, who is maybe not immediately likable, but eventually relatable.
+ - If you are intimidated by the artists who came before you, understand you too have a place, right next to them.
+ - It brings me no joy and not enough comfort to dwell too much on things I’ve said or written or made or worn in the past.
+ - Meaning lies in the magic of the coincidence that you should come across work at just the right time.
+ - I try not to do anything I don’t like, so I stay motivated pretty easily.
+ - Just really be passionate and stick to your creative vision. Because it’s competitive, and there are so many mind games and so many things that could get in the way. But success is the best revenge, so build yourself up rather than knock others down.
+ - I think it was my mom’s attitude about art and being part of the narcissistic digital generation or whatever that made me think anyone would care what I had to say about anything!
+ - Feminism is not a rulebook, but a discussion, a conversation, a process.
+ - You don’t have to be special, you just have to be kind.
+ - I try to make everything creative because it’s stimulating. There is this great Stanley Kubrick quote somewhere about how life is sort of bad and how creating is important because it lets a little light in.
+ - I do find working with people in the entertainment industry hard. It can cause anxiety and depression.
+ - I feel like a young adult. In high school I never felt like my professional life and my personal life were at odds, because my job has never been to be a role model for young women or teenagers.
+ - Oh God, I’m awful at sports. In gym I just try and avoid getting hit in the face.
+ - I’m not obsessively a follower of fashion in the way I used to be. But I still have all those magazines I bought at the time because I bought ones that felt a little timeless, more like books.
+ - There’s danger in glorifying negative emotions as fuel for art.
+ - I think it’d be great to own a fun concept store with my friends and just sell books and records.
+ - I think that everybody wants to be heard, and the easiest way to be the loudest is to be the hater.
+ - I’m not exactly in a position where I get to be super-picky about the roles I get. But I would also never want to be a part of something that I think is poor in taste or doesn’t align with what I believe in.
+ - I try to be very honest in my writing. It’s amazing, though, to think that people are responding to what we do, but it’s okay if they’re responding in a positive way too, because I think just creating anything at all to put out there is a gift.
+ - Feminism to me means fighting. It’s a very nuanced, complex thing, but at the very core of it I’m a feminist because I don’t think being a girl limits me in any way.
+ - Fashion intersects a lot with art and film and music, and that was appealing to me. I read a bunch of fashion blogs and wanted to be part of the community.
+ - One thing that I always liked about fashion was that it was tied in with music and art and film.
+ - My only job has been to say that you have to, try different things and let yourself become a different person, have experiences.
+
+32 quotes

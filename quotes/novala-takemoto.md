@@ -1,0 +1,26 @@
+ - I am anti-social and have a dark personality. I have no redeeming qualties and nothing to offer, therefore I could never have what I wanted.
+ - Most people are full of themselves and speak only the obnoxiously superficial, in other words they’re annoying as hell.
+ - Snatching happiness takes a lot more courage than enduring unhappiness.
+ - Lolitas value independence and beauty above all else.
+ - There are times a women’s just got to fight even if she knows it’s a losing battle.
+ - If you find something precious you have to hold onto it with all your might and never let it go inspite of whatever else you may lose, after all many people die without ever finding that’s really precious to them.
+ - Obession makes everything possible.
+ - How many people could embrace such disturbing imagery?
+ - Snow falling soundlessly in the middle of the night will always fill my heart with sweet clarity.
+ - Humans are cowards in the face of happiness. It takes courage to hold on to happiness.
+ - It’s not like I’m all into nostalgia and history, it’s just that I can’t stand the way things are now.
+ - You fueled my obession, even encouraged it and your selfishness ruined my life.
+ - I am a lolita. I don’t believe in growing up. No matter how old I get I remain devoted to ruffles and frills.
+ - If two people are able to communicate their feelings without words you know it’s true love.
+ - I have a, shall we say, morbid personality.
+ - Your existence is the only proof of mine.
+ - Lolitas do not recognize any authority. They follow only the values they have chosen for themselves, regardless of what anybody might say.
+ - All I trust is the past. Things that have ended can’t betray me.
+ - Compromise is low class. I don’t have anything against the poor, but being low class is the root of all evil.
+ - In my life I doubt if I will ever forget the sensation of your lips against mine.
+ - You know what you like, you know what you want. So all you have to do is find something work related to that stuff.
+ - An element of fantasy is needed when falling in love and I was unable to find the fantasy element with any of the male gender.
+ - The only things that erased my lonliness were written works.
+ - I really had no idea you’d be this stupid but then again you were the only person that really got me.
+
+24 quotes

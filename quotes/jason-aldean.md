@@ -1,0 +1,42 @@
+ - I’m a country boy. I’m from Georgia.
+ - No matter what you do, you’re going to have people who have something to say about something you do. You can’t please anybody.
+ - I had a friend, Melissa, who was 28 years old. She was my best friend’s wife, and she was my wife’s best friend. She died of breast cancer. When she passed away back in 2004 was the last time I cried.
+ - If the right thing comes along and you get an opportunity to be a part of something you believe in, and you think it’s cool and want to put your name on it, then you should.
+ - Typing in the name of a song and downloading the song you really have no connection with the artist at that point. So I think it is still important to have physical CDs and stuff like that.
+ - Country music artists are staying true to their roots, keeping it country but throwing a little bit of rock flair in there which I think is a good thing.
+ - I don’t think I really have any wisdom. Stay out of trouble. Good luck. Stay away from women because they will burn you, haha.
+ - There’s nothing cooler than a good fitting, worn-in pair of Wrangler jeans, so it’s great that with the new Retro line, my fans can go out and rock the same styles that I love.
+ - I know I’m not gonna please everybody when I make a record. I don’t let that affect any of my decisions.
+ - Hearing people clapping draws you in pretty quick. It’s like bungee cord jumping – it’s a rush; you just want to do it again.
+ - I think from an artist standpoint, you have to put out music that you feel like represents you and things you feel like your crowd wants to hear. And if that drives them to go and download the album or the single, that’s what we want.
+ - There are a lot of people out there that really aren’t that different than me, I consider myself a pretty average guy, so hopefully they understand me and know where I am coming from. I kinda feel like I am a voice for them.
+ - You’re not going to hear me singing songs about Wall Street because I don’t know anything about that.
+ - I try to record music that people can relate to.
+ - I didn’t get into music to become famous and I didn’t get into music to become rich either – I got into because I liked it.
+ - You don’t want to get too ahead of yourself and go out thinking you can play stadiums every night, and they end up being about half-full.
+ - You have record companies that sign acts that they think are great, and then they never do anything. Acts that they don’t think are really going to do much end up having a career. I don’t think anyone really knows what it is that drives somebody to get on their computer and want to download a song.
+ - I think country music is obviously a great form of music. I think it’s cool and has mass appeal.
+ - You come to a country music show and it’s like a rock show, it’s so different, it’s just not what people think it is, it’s really cool and I think that if people just give it a chance they’d see that it’s really cool and I think that’s what people are finally starting to see.
+ - People see you onstage and the glamorous side, but they don’t see you traveling 600 miles a night, eating truck stop food and spending by yourself staring at walls.
+ - I think it’s important to do things that you’re interested in. I think it’s important to have other outlets away from the music industry.
+ - My mom was a single mom, and she had enough on her plate. I knew when I was doing something I wasn’t supposed to, and I tried to keep her from finding out about it. I did a pretty good job of that.
+ - I think everybody would love to say they were in a movie. Whether or not I’m any good at it, I don’t know.
+ - Capricorn was one of the homes of the Southern rock movement with the Allman Brothers and Charlie Daniels and the Marshall Tucker Band. I don’t think you can come from that area and not be influenced by that stuff a little bit, no matter what generation you grew up in.
+ - She gets on you under your skin like a tattoo she’ll always be there!
+ - I think when you wear the brand anyway, why not go out and try to promote it and make it as cool as you can? The fact that I can continue to do what I’ve always done and kind of become the face of that brand is to me, kind of just makes sense. It doesn’t make sense not to do it I guess.
+ - I only took about five guitar lessons in my life from an actual teacher. I learned fast that that wasn’t for me. I didn’t have the attention span to learn that way. So I learned the basics from my dad, then just from playing on stage, and watching other guitar players.
+ - My dad started teaching me how to play guitar when I was 13 years old. When he’d go to work, he’d map out guitar cords on a piece of notebook paper. I’d sit down and look at it every day and practice while he was gone.
+ - Records are one thing, and obviously, without hit songs, you don’t have the opportunity to do your shows. But my live show has always been my selling tool.
+ - I think great songs can come from anywhere and you constantly have to be able to look out for those. I think a lot of the times people will try too hard to write everything themselves and therefor miss out on great songs that way.
+ - I think every artist wants to have that ‘Grammy award winner’ tag in front of their name.
+ - I think it’s important for artists to work together. It’s great for fans to see, like, Ludacris came out to our show in Atlanta and kinda made a surprise appearance there, it shows a mutual respect for what each other does.
+ - My dad encouraged anything I wanted to do, especially music. Actually he drove me around to places where I could play.
+ - I think my music is definitely country but it’s got a little bit of that rock flair about it. I always try to find the things that everyday people deal with in their everyday lives and situations in the songs that I sing.
+ - If it takes you a year to cut a record, I don’t know, you need to find something else to do. It really shouldn’t take that long.
+ - My goal is that when the last song is over, and you’re walking back to the parking lot, you’re already on your phone searching to find the next show.
+ - Obviously when you’re making music, you want it to get out to as many people as possible. You want to reach as many people as you can.
+ - There’s a lot of people I’d love to work with at some point, but I think the song has to be the right thing. It has to be the right fit.
+ - I grew up in an age where I loved going and buying a physical record. Things that were digital and all that stuff, it wasn’t around. So I loved going and buying an album and looking through the inserts and reading stuff and seeing pictures.
+ - I don’t really think that audiences are that much different. I think that a fan is the same whether you are from here or from Japan – you come to a show because you like the music. I don’t really see much of a difference anywhere.
+
+40 quotes

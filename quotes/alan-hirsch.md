@@ -1,0 +1,59 @@
+ - A missional church is a church that must live the dialectic. It must stay in the journey.
+ - It’s not so much that the church has a mission, it’s that the mission of God has a church.
+ - Real leaders ask hard questions and knock people out of their comfort zones and then manage the resulting distress.
+ - Every Christian is a sent one. There is no such thing as an unsent Christian.
+ - You can do more with 12 disciples than with 1,200 religious consumers.
+ - There is no doubt that to walk with Jesus means to walk on the wilder side of life.
+ - If we could be freed from our aversion to loss, our whole outlook on risk would change.
+ - But herein lies the rub: Christianity has been on a long-term trend of decline in every Western cultural context that we can identify.
+ - I found out the hard way that if we don’t disciple people, the culture sure will.
+ - If a can opener no longer has the capacity to open cans, what is it?
+ - The ultimate solution to the problem of spiritual complacency is to create a systematically embedded culture of holy urgency.
+ - If we are going to make the change from community to communitas, and not just end up with an unsustainable adrenaline-junkie culture, we must have a sophisticated process to form people into adventurer-disciples.
+ - Building community for its own sake is like attending a cancer support group without having cancer.
+ - In missional churches, the baby birds have been pushed out of the nest and are learning to fly for themselves.
+ - When there is no possibility of retreat, we will find the innovation that only the liminal situation can bring. In short, we find the faith of leap.
+ - The church of Jesus needs to wake up from the exile of passivity and embrace liminality and adventure or continue to remain a religious ghetto for culturally co-opted, fearful, middle-class folk.
+ - The missional church is not a new trend or the latest new technique for reaching postmodern people.
+ - There’s no such thing as an unsent Christian. You have already been SENT.
+ - Truth is narrow, but grace is wide.
+ - A retreatist spirituality is not a spirituality that can, or will, transform the world in Jesus’s name.
+ - The fact is that if Jesus’s future kingdom is secure, those who trust in its coming will enact it now.
+ - Mission is the practical demonstration, whether by speech or by action, of the glorious lordship of Jesus.
+ - This submission to the threshold of a cross is at the very root of our following Jesus; it changes the game completely.
+ - The appetite for adventure and risk is not exclusive to young Christians. In face, it seems to be a fundamental yearning, knitted into the fabric of the human soul.
+ - In order to develop a pioneering missional spirit, a capacity for genuine ecclesial innovation, let along engender daring discipleship, we are going to need the capacity to take a courageous stand when and where necessary.
+ - Go among the people. Don’t assume you know what church looks like.
+ - Nowadays we raise our children in a cocoon of domesticated security, far from any sense of risk or adventure.
+ - Many church folk, in their self-conscious attempt to be overtly morally upright, emit all the wrong signals, thus messing with people’s perception of the gospel.
+ - If we can embrace the adventure and risk and equip our churches to lay down their lives and abandon their inherent loss-aversion, who knows what innovation, what freshness, what new insights from the Spirit will emerge.
+ - More data is not always the answer.
+ - Heroes are important not only because they symbolize what we believe to be important, but because they also convey universal truths about personal self-discovery and self-transcendence, one’s role in society, and the relation between the two.
+ - The kingdom of God is a crash-bang opera: the king is dramatic, demanding, and unavoidable.
+ - Currently, young Christians reach adulthood bored with church experience, and with little or no sense of their calling as missionaries.
+ - You plant the gospel. You don’t plant churches.
+ - Whether we like it or not, we are all on a journey, a Quest if you will, every day of our lives, and the path we must take is full of perils, and our destiny can never be predicted in advance.
+ - There’s no such religious force in the West as powerful as consumerism.
+ - Think of mission like the paddles of a defibrillator applied to the chest of a dying church.
+ - We will have to take risks, to chance failure, to be willing to walk away from the familiar paths that have brought us to this point.
+ - Interestingly, it’s as though the gospel story of Jesus is the archetypal heroic journey, the embodiment of the very adventure that all people in every epoch have desired.
+ - Most churches don’t have the resources for these tricks and inducements but are still bound to the imagination that church happens on a Sunday in a building.
+ - Our preferences for stability and security blind us to the opportunities for adventure when they present themselves.
+ - Those of us with too much invested in the way things are will never embrace the revolutionary cause required for wholesale change.
+ - Worship that is in some way divorced from mission is counterfeit worship.
+ - At some point preoccupation with safety can get in the way of living full lives.
+ - But the standard churchy spirituality doesn’t require any real action, courage, or sacrifice from its attendees.
+ - It is vital to see ourselves as part of an ongoing journey started by our heroes in the Scriptures.
+ - The safety-obsessed church lacks the inner dynamic to foster profound missional impact in our time.
+ - You cannot sell a Christendom approach to a post-Christian world. They are anti-Christian.
+ - We have to assume now that all mission is cross-cultural.
+ - In a world that demands service we position ourselves as servants.
+ - Because we believe that somewhere in the nest of paradigms contained in the phrase “missional church” lies nothing less that the future viability of Western Christianity.
+ - The quest for heroic adventure then is a quest for the gospel, although it might not be seen that way by everyone.
+ - Judgments about who belongs in the Hall of Fame are extremely subjective.
+ - Our point isn’t to make an examination of popular film but to illustrate that the yearning for a heroic adventure lies just beneath the surface of our consciousness; film, television, literature, sports, and travel are in a sense vicarious adventures.
+ - Christianity is an adventure of the spirit or it is not Christianity.
+ - Put simply, the church finds itself in a post-Christendom era, and it had better do some serious reflection or face increasing decline and eventual irrelevance.
+ - Unless the church is equipping believers to embrace the values and vision of the kingdom of God and turn away from the materialism, consumerism, greed, and power of the present age, it not only abandons its biblical mandate, it is rendered missionally ineffective.
+
+57 quotes

@@ -1,0 +1,42 @@
+ - I learned all about life with a ball at my feet. ~~Ronaldinho
+ - Football is a part of I. When I play, the world wakes up around me. ~~Bob Marley
+ - Football, bloody hell! ~~Alex Ferguson
+ - We don’t want to tell our dreams. We want to show them. ~~Cristiano Ronaldo
+ - Football is Freedom, a whole universe. ~~Bob Marley
+ - Motivation is not something I struggle with. I love playing football, I love being in training. ~~Lionel Messi
+ - Thats the beauty of sport. Sometimes you laugh, sometimes you cry. ~~Pep Guardiola
+ - Without football, my life is worth nothing. ~~Cristiano Ronaldo
+ - Technique is not being able to juggle a ball 1000 times. Anyone can do that by practicing. Then you can work in the circus. Technique is passing the ball with one touch, with the right speed, at the right foot of your team mate. ~~Johan Cruijff
+ - Playing football is very simple, but playing simple football is the hardest thing there is. ~~Johan Cruijff
+ - I love football, football is my life. ~~Wayne Rooney
+ - A team is not made up of isolated individuals. Always stay in the game. Don’t be passive. Football is a team game. No one plays alone. Success depends on your whole team being a single unit. ~~Pelé
+ - I don’t want to be remembered as a good goalkeeper. I want to be remembered as a great person. ~~Iker Casillas
+ - Gentleman, this is a football. ~~Vince Lombardi
+ - I know who likes football likes me. ~~Cristiano Ronaldo
+ - Arsene Wenger asked me to have a trial with Arsenal when I was 17. I turned it down. Zlatan doesn’t do auditions. ~~Zlatan Ibrahimovic
+ - Be strong, my young friends; that is my advice to you. You will be nearer to Heaven through football than through the study of the Gita. These are bold words; but I have to say them, for I love you. I know where the shoe pinches. ~~Swami Vivekananda
+ - I played futsal growing up in Baurd. In futsal you need to think quick and play quick so its easier for you when you move to normal football. ~~Pelé
+ - I am more worried about being a good person than being the best football player in the world. ~~Lionel Messi
+ - There’s no doubt. Its certain that ill be 100 percent. ~~Lionel Messi
+ - I take pride in the fact that people go home having felt that for 90 minutes today, life is beautiful – and that’s it, basically. That’s why professional football exists. ~~Arsene Wenger
+ - When it’s too hard for them, it’s just right for us. ~~Marv Levy
+ - I was born to play football, just like Beethoven was born to write music and Michelangelo was born to paint. ~~Pelé
+ - I fell in love with football as I was later to fall in love with women: suddenly, inexplicably, uncritically, giving no thought to the pain or disruption it would bring with it. ~~Nick Hornby
+ - All I know of morality I learned from football. ~~Albert Camus
+ - Aim for the sky and you’ll reach the ceiling. Aim for the ceiling and you’ll stay on the floor. ~~Bill Shankly
+ - One person with passion is better than forty people merely interested. ~~E. M. Forster
+ - If what you did yesterday seems big, you haven’t done anything today. ~~Lou Holtz
+ - No one has ever drowned in sweat. ~~Lou Holtz
+ - All that I know most surely about morality and obligations I owe to football. ~~Albert Camus
+ - Football isn’t a contact sport; it’s a collision sport. Dancing is a contact sport... ~~Vince Lombardi
+ - International football is the continuation of war by other means. ~~George Orwell
+ - Zidane is unique. The ball flows with him. He is more like a dancer than a football player. ~~Zinedine Zidane
+ - Liverpool was made for me and I was made for Liverpool. ~~Bill Shankly
+ - They say I couldn’t play football, I was too small. They say I couldn’t play basketball, I wasn’t tall. They say I couldn’t play baseball at all and now everyday of my life, I ball. ~~Lil Wayne
+ - I write what I like to write. Those who like to listen to it, listen to it. And the ones who don’t, watch football and drink beer, jog, go to discos and so forth. I never claimed to be a man for all seasons. ~~Frank Zappa
+ - I’d rather lose and live in Provo than win and live in Laramie. ~~LaVell Edwards
+ - There is an old saying about the strength of the wolf is the pack, and I think there is a lot of truth to that. On a football team, it’s not the strength of the individual players, but it is the strength of the unit and how they all function together. ~~Bill Belichick
+ - Dictionary is the only place that success comes before work. Hard work is the price we must pay for success. I think you can accomplish anything if you’re willing to pay the price. ~~Vince Lombardi
+ - I never learn anything talking. I only learn things when I ask questions. ~~Lou Holtz
+
+40 quotes

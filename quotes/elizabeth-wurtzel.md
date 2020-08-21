@@ -1,0 +1,104 @@
+ - Depression is about as close as you get to somewhere between dead and alive, and it’s the worst.
+ - That is all I want in life: for this pain to seem purposeful.
+ - That’s the thing about depression: A human being can survive almost anything, as long as she sees the end in sight. But depression is so insidious, and it compounds daily, that it’s impossible to ever see the end.
+ - I want to explain how exhausted I am. Even in my dreams. How I wake up tired. How I’m being drowned by some kind of black wave.
+ - I wasn’t just the madwoman in the attic – I was the attic itself. The past was all over me, all under me, all inside me.
+ - Sometimes it feels like we’re all living in a Prozac nation. The United States of Depression.
+ - If you are chronically down, it is a lifelong fight to keep from sinking.
+ - The measure of mindfulness, the touchstone for sanity in this society, is our level of productivity, our attention to responsibility, our ability to plain and simple hold down a job.
+ - Mental illness is so much more complicated than any pill that any mortal could invent.
+ - Sometimes I think that I was forced to withdraw into depression because it was the only rightful protest I could throw in the face of a world that said it was alright for people to come and go as they please, that there were simply no real obligations left.
+ - Into every sunny life a little rain must fall.
+ - A human being can survive almost anything, as long as she sees the end in sight!
+ - They have no idea what a bottomless pit of misery I am.
+ - Sometimes, I get so consumed by depression that it is hard to believe that the whole world doesn’t stop and suffer with me.
+ - I’ve been looking for a feeling like that everywhere I go. I’ve been waiting for someone to see all the good in me at every truck stop and intersection along the way. I’ve been waiting all my life for the moment to arrive when I can just stop. Stop looking.
+ - My God, I could raise a family of six children and hold down a full-time job with all the energy I expend on depression!
+ - And I want out of this life on drugs.
+ - There is a classic moment in ‘The Sun Also Rises’ when someone asks Mike Campbell how he went bankrupt, and all he can say in response is, “Gradually and then suddenly.” When someone asks how I lost my mind, that’s all I can say too.
+ - In the meantime, I could withdraw to my room, could hide and sleep as if I were dead.
+ - I’m the girl who is lost in space, the girl who is disappearing always, forever fading away and receding farther and farther into the background. Because with every day that goes by, I feel myself becoming more and more invisible.
+ - The most likely person to kill you is your wife, but that probably won’t happen. What probably will happen is a million little betrayals of varying degrees of pain, brought on by people you love, the only ones who really can hurt you.
+ - I am sick of the girl who cries ‘wolf’ all the time. Even though not one of those cries was ever a false alarm.
+ - I am so tired of the girl in the infirmary, I am so sick of the girl who cries wolf all the time – even though not one of those cries was ever a false alarm. Not one of my pleas was ever less than truly urgent because when it’s all in your mind, there always IS a wolf.
+ - I need someone to shut off my brain, and turn on my heart.
+ - It’s like Samson and Delilah: watch your back, because trouble could be the person you’re sleeping with.
+ - Insanity is knowing that what you’re doing is completely idiotic, but still, somehow, you just can’t stop it.
+ - Very early in my life it was already too late.
+ - I don’t think it matters how many parents you’ve got, as long as those who are around make their presence a good one.
+ - Its the people you are close to, the ones who love you, the ones who have seen your heart, who have touched your soul – to them, it is obvious that something is wrong or missing. Your heart and soul are missing. They feel it. It hurts them. It kills them.
+ - In a strange way, I had fallen in love with my depression.
+ - As someone very sagely said during the parricide trials of the Menendez Brothers: anytime your kids kill you, you are at least partly to blame.
+ - No one who had never been depressed like me could imagine that the pain could get so bad that death became a star to hitch up to, a fantasy of peace someday which seemed better than any life with all this noise in my head.
+ - My life’s actually been quite dull; it’s not all that glamorous.
+ - Getting help for substance abuse can be reduced to the deceptively simple focus of ‘keeping away from the dope.’ But what does getting help with depression mean? Learning to keep away from your own mind?
+ - I don’t want any more of this try, try again stuff. I just want out. I’ve had it. I am so tired. I am twenty and I am already exhausted.
+ - Pick a man, any man. Every guy I fall for becomes Jesus Christ within the first twenty four hours...
+ - But just as a little bit of knowledge is a dangerous thing, a little bit of energy, in the hands of someone hell-bent on suicide, is a very dangerous thing.
+ - How can you hide from what never goes away? – Heraclitus.
+ - Age is a terrible avenger. The lessons of life give you so much to work with, but by the time you’ve got all this great wisdom, you don’t get to be young anymore.
+ - I am crying over the elusive nature of love.
+ - The shortness of life, I keep saying, makes everything seem pointless when I think about the longness of death. When I look ahead, all I can see is my final demise. And they say, But maybe not for seventy or eighty years. And I say, Maybe you, but me, I’m already gone.
+ - Woke up this morning afraid I was gonna live.
+ - Banned! My eyes light up, I think I see stars. Anything that has been banned by anyone must be something I’d like.
+ - Embrace fanaticism. Harness joie de vivre by pursuing insane interests, consuming passions, and constant sources of gratification that do not depend on the approval of others.
+ - I start to feel like I can’t maintain the facade any longer, that I may just start to show through. And I wish I knew what was wrong. Maybe something about how stupid my whole life is.
+ - I need the thing that happens when your brain shuts off and your heart turns on.
+ - You know you’ve completely descended into madness when the matter of shampoo has ascended to philosophical heights.
+ - I believe women who are supported by men are prostitutes, that is that, and I am heartbroken to live through a time where Wall Street money means these women are not treated with due disdain.
+ - Oh, Ma, you’re looking at all the trees, and I’m not even in the forest.
+ - After they had explored all the suns in the universe, and all the planets of all the suns, they realized there was no other life in the universe, and that they were alone. And they were very happy, because then they knew it was up to them to become all the things they had imagined they would find.
+ - In a typical mental health catch-22, the alienating nature of depression tends to keep its sufferers from finding their way to the very support groups that might help them.
+ - Everything’s plastic, we’re all going to die sooner or later, so what does it matter.
+ - Divorce has taught us how to sleep with friends, sleep with enemies, and then act like it’s all perfectly normal in the morning.
+ - In life, single women are the most vulnerable adults. In movies, they are given imaginary power.
+ - In my case, I was not frightened in the least bit at the thought that I might live because I was certain, quite certain, that I was already dead.
+ - I sit there in my bed staring at the wall, feeling happy, enjoying the way the wall looks, how pink and how white it is. Pink and white, as far as I’m concerned, have never looked quite so pink and white before.
+ - I was so scared to give up depression, fearing that somehow the worst part of me was actually all of me.
+ - I start to get the feeling that something is really wrong. Like all the drugs put together – the lithium, the Prozac, the desipramine, and Desyrel that I take to sleep at night – can no longer combat whatever it is that was wrong with me in the first place. I feel like a defective model.
+ - Even if I remember the first time perfectly, I don’t remember the beginning at all. I mean: the beginning of addiction. It’s hard to say when it becomes a problem; it sneaks up on you like a sun shower.
+ - A deeply true, wholly aching account of the dangerous way we live now – LOVE JUNKIE is great fun to read, and finally fully redemptive. Rachel Resnick brings a light, delightful touch to a hard subject, and creates a great, relatable, readable memoir.
+ - The voices in my head, which I used to think were just passing through, seem to have taken up residence.
+ - I start to think there really is no cure for depression, that happiness is an ongoing battle, and I wonder if it isn’t one I’ll have to fight for as long as I live. I wonder if it’s worth it.
+ - Ritalin abuse is a big issue in the US.
+ - Israel fights back, which is very much at odds with the Jewish instinct to discuss and deconstruct everything until action itself seems senseless.
+ - And she keeps saying, how can you do this to me? And i want to scream, what do you mean, how can I do this to you? Aren’t we confusing our pronouns here? The question, really, is How could I do this to myself?
+ - As soon as I was out in the street, I realized I didn’t want to be alone after all, I realized I didn’t want to be anything at all.
+ - Belief is a good thing in principle, but an annoying thing in human beings.
+ - Because trying to see all sides, such an instinct is particularly Jewish.
+ - It was just very interesting to me that certain types of women inspire people’s imagination, and all of them were very difficult women.
+ - Years of depression have robbed me of that – well, that give, that elasticity that everyone else calls perspective.
+ - I wanted so much to forget the past, but it wouldn’t go away, it hung around like an open wound that refused to scar over, an open window that no amount of muscle could shut.
+ - The American Dream, coupled with government subsidies of utilities and cheap consumer goods courtesy of slave labour somewhere else, has kept the poor huddled masses from rising up.
+ - But then I never had to worry about a crash landing because I never even took off.
+ - My imagination, my ability to understand the way love and people grow over time, how passion can surprise and renew, utterly failed me.
+ - So many more cycles of elation of the first kiss, and devastation when it’s over.
+ - I thought depression was the part of my character that made me worthwhile. I thought so little of myself, felt that I had such scant offerings to give to the world, that the one thing that justified my existence at all was my agony.
+ - People who think that Sylvia Plath was a poor, sensitive poet are not getting that she had great amounts of ambition and anger that moved her along, or she wouldn’t have been able to fight against that depression to produce such an incredible body of work by the age of thirty.
+ - When things get unbearable, I wrap myself into a tight ball and shut my eyes. Every muscle in my body is tense. I open my eyes and I’m still where I was when I closed them to escape. Nothing’s changed.
+ - It’s being a grown up, which I never figured out how to do, scrubbing the tub, and remembering to eat and shampoo my hair. It’s the basics: I can write a whole book, but I cannot handle the basics.
+ - Sometimes I wish that there were a way to let people know that just because I live in a world without rules, and in a life that is lawless, doesn’t mean that it doesn’t hurt so bad the morning after.
+ - Judaism will be enmeshed in pride and shame for as long as it endures. But to endure as a country, Israel must shun both these tendencies.
+ - For all of my life I have needed more.
+ - But he does insist on a conversation. Goddamn it! Why can’t people just do what I want them to do and be gone? It’s a worldwide conspiracy to make me be polite when I don’t want to be.
+ - I’d really like to write a book about Timothy McVeigh, but it would only work if he cooperated.
+ - There are some remarks that are so stupid that to be even vaguely aware of them is the intellectual equivalent of living next door to Chernobyl.
+ - You don’t even have to hate to have a perfectly miserable time.
+ - Feminism is a good venue for getting yourself across as much as for getting your point across.
+ - I am fortunate to have been well paid for an almost pathological honesty.
+ - Am I worried people will say I’m repeating myself? Sure. One thought I had was to publish it as a novel but eventually I just decided to do what I wanted to do.
+ - I start to get the feeling that something is really wrong.
+ - That’s what it’s like in my head all the time, constant snow, constant weather patterns of all sorts – blizzards, cyclones.
+ - All I do is go to the movies.
+ - Like, in high school, I was a good student and got straight As. It was very strict and you couldn’t do well there unless you studied very hard, but every time there was any trouble, I was the first person they would be talking to.
+ - I’ll see Naomi Wolf on television periodically, I have nothing against her and what she says, but I’ll feel that she’s a politician, like she’s got an agenda to get across and that she doesn’t always say what’s really true or exactly what she feels.
+ - One of the terrible fallacies of contemporary psychotherapy is that if people would just say how they felt, a lot of problems could be solved.
+ - I was meant to date the captain of the football team, I was going to be on a romantic excursion every Saturday night, I was destined to be collecting corsages from every boy in town before prom, accepting such floral offerings like competing sacrifices to a Delphic goddess.
+ - I admire Bruce Springsteen because he’s a heroic person who has lots of integrity and has this incredible body of work that is so vital.
+ - They can give you all the pills on earth and do whatever – and you’re still yourself.
+ - Just as our parents quieted us when we were noisy by putting us in front of the television set, maybe we’re now learning to quiet our own adult noise with Prozac.
+ - As it is my good fortune to be American, I live in the only country that as a matter of policy is pro-Israel regardless of party allegiance; Democrats and Republicans equally unite behind the blue-and-white.
+ - I always carry lots of stuff with me wherever I roam, always weighted down with books, with cassettes, with pens and paper, just in case I get the urge to sit down somewhere, and oh, I don’t know, read something or write my masterpiece.
+ - I come from a family of screamers. If they are trying to express any emotion or idea beyond pass the salt, it comes in shrieks.
+
+102 quotes

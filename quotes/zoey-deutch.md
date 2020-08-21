@@ -1,0 +1,22 @@
+ - My parents are supportive of anything I want to do, as long as it’s not bad.
+ - The kickboxing and the martial arts is so fun. It’s like anything in school. You’re not going to retain information unless you’re interested in it.
+ - I’ve always wanted to take self-defense classes and I never did, for whatever reason. I don’t know why. I don’t know if it was fear or time, or whatever stops people from doing things that they want to do.
+ - In high school, I tried very hard to make everybody like me, which resulted in me being extremely unhappy and in a lot of pain. Therefore, the lesson I got from that was that I can’t make everybody happy.
+ - I’m not a writer. I’m not smart. I couldn’t possibly even write my own story.
+ - I’m pretty terrible at writing, so the way I kind of therapeutically get through things is by drawing.
+ - Borderline embarrassing fact: I used to have a pseudo line when I was seven called Zizzy Fashion. I love clothing, and I would eventually like to design as well as act.
+ - Bullies generally were bullied and are hurting inside much more than you could ever imagine.
+ - I find humor to be the most attractive characteristic, but I certainly won’t cancel anything out, considering when you love someone you love someone, and sometimes you just can’t explain it.
+ - I think being able to really fall in love with someone is the craziest thing that could ever happen. You know, allowing yourself to really go there and really feel those things is extremely scary.
+ - My mom passed on her obsession of all things antique or vintage. I love to go thrift store shopping or explore any sort of garage sale. Treasure hunting is a family passion.
+ - I was interested in the kicks and the punches. I felt like I could utilize that in my real life, and not just in fake land. I’ve always done yoga for my breathing, and hiking for my mind, but I was also exercising, at the same time.
+ - It’s very rare that you get a part that you actually like. People have a misconception, whether it be because actors lie or because you’re reading interviews from giantly, massively famous actors, but you don’t just get offered parts, all the time. You actually have to work to get them.
+ - I’m always, all the time, eating chocolate. I eat pretty healthy, but then I go all out when it has to do with chocolate.
+ - One thing my family has shown me is that having a sense of humor is everything.
+ - I am a very, very avid ‘Anchorman’ fan.
+ - I’m such a fan of Shailene Woodley, so I’m super excited to see all her stuff. She’s an awesome actress.
+ - I love clothing, and I would eventually like to design as well as act.
+ - I’m a total hip-hop geek. That’s my favorite kind of music to listen to while getting ready.
+ - I’m being hypocritical because I have a Twitter, but I try to not talk about things like, ‘Oh, I had a grapefruit this morning and it was delicious,’ because, who cares?
+
+20 quotes

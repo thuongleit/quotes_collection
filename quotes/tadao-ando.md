@@ -1,0 +1,36 @@
+ - I don’t believe architecture has to speak too much. It should remain silent and let nature in the guise of sunlight and wind.
+ - As long as you have an objective in your mind you are young.
+ - The speed of change makes you wonder what will become of architecture.
+ - In all my works, light is an important controlling factor.
+ - We borrow from nature the space upon which we build.
+ - You can’t really say what is beautiful about a place, but the image of the place will remain vividly with you.
+ - Japanese traditional architecture is created based on these conditions. This is the reason you have a very high degree of connection between the outside and inside in architecture.
+ - The level of detail and craft is something that’s inscribed within the original design concept. And so when I begin to draw, I know what kind of detailing I want the building to have.
+ - If you give people nothingness, they can ponder what can be achieved from that nothingness.
+ - The computer offers another kind of creativity. You cannot ignore the creativity that computer technology can bring. But you need to be able to move between those two different worlds.
+ - My objective is to design a space that nobody else can come up with while using the material that anyone can use.
+ - You cannot simply put something new into a place. You have to absorb what you see around you, what exists on the land, and then use that knowledge along with contemporary thinking to interpret what you see.
+ - I would like my architecture to inspire people to use their own resources, to move into the future.
+ - People tend not to use this word beauty because it’s not intellectual – but there has to be an overlap between beauty and intellect.
+ - It wasn’t that I had any great dream of being an architect. I just wanted to make things. Whether it was furniture, painting, interior design, or architecture. I just wanted to create something.
+ - I want to create a space that moves people. It doesn’t matter if it is a house, or a museum, or whatever. So, it is somebody sitting on that lawn, just going around and around and feeling really happy. That is something that I’m striving for.
+ - All architecture has a public nature, I believe, so I would like to make a public space.
+ - If there is only one culture all over the world, that’s not a good thing.
+ - I like ruins because what remains is not the total design, but the clarity of thought, the naked structure, the spirit of the thing.
+ - I think architecture becomes interesting when it has a double character, that is, when it is as simple as possible but, at the same time as complex as possible.
+ - There are self-made millionaires – their aspiration is first to make money. But the once that goal is achieved, they have to look for something and sometimes they become patrons of art or museums. And that is how the world should go.
+ - I am interested in things happening around me, and I need to understand what’s going on in other artistic sectors like music and literature.
+ - Since I am a Japanese man who’s been building through the experience of Japanese architecture, my actual designs come from Japanese architectural concepts, although they’re based on Western methods and materials.
+ - Look at London or Paris: they’re both filthy. You don’t get that in Tokyo. The proud residents look after their city.
+ - I take the museum space also as sacred in a sense.
+ - Without this spirit, Modernist architecture cannot fully exist. Since there is often a mismatch between the logic and the spirit of Modernism, I use architecture to reconcile the two.
+ - You always want to try to make something new, and, of course, America is the world leader in economics today.
+ - In Architecture there is a part that is the result of Logical Reasoning and a part that is created through the Senses. There is always a point where they Clash. I don’t think Architecture can be created without that Collision.
+ - Working in Tokyo has convinced me that, contrary to what people think, it is actually one of the world’s most beautiful cities.
+ - But now, more and more, its society is concerned with economy and finance.
+ - I think that capitalism has just gone too far. And it is actually not limited to the United States. The excesses of capitalism is making us suffer all over the world right now.
+ - At the same time, I would add that the American people have a lot of courage.
+ - I think everyone needs a goal. And what kind of goal will be important. And for that we have to study and we have to be intelligent.
+ - There is a role and function for beauty in our time.
+
+34 quotes

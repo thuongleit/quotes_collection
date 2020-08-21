@@ -1,0 +1,67 @@
+ - What’s right and good doesn’t come naturally. You have to stand up and fight for it – as if the cause depends on you, because it does.
+ - Scientists investigate that which already is; Engineers create that which has never been. Creativity is piercing the mundane to find the marvelous.
+ - Charity provides crumbs from the table; justice offers a place at the table.
+ - Ideas are great arrows, but there has to be a bow.
+ - Freedom begins the moment you realize someone else has been writing your story and it’s time you took the pen from his hand and started writing it yourself.
+ - Plutocracy too long tolerated leaves democracy on the auction block, subject to the highest bidder.
+ - There is no more important struggle for American democracy than ensuring a diverse, independent and free media. Free Press is at the heart of that struggle.
+ - When a library is open, no matter its size or shape, democracy is open, too.
+ - War, except in self-defense, is a failure of moral imagination.
+ - Democracy belongs to those who exercise it.
+ - Our very lives depend on the ethics of strangers, and most of us are always strangers to other people.
+ - I own and operate a ferocious ego.
+ - There’s 1,000 ways into addiction 1,000 ways out.
+ - When I learn something new – and it happens every day – I feel a little more at home in this universe, a little more comfortable in the nest.
+ - Creativity is piercing the mundane to find the marvelous.
+ - The quality of democracy and the quality of journalism are deeply entwined.
+ - I’ll believe corporations are people when Texas executes one.
+ - Charity depends on the vicissitudes of whim and personal wealth; justice depends on commitment instead of circumstance. Faith-based charity provides crumbs from the table; faith-based justice offers a place at the table.
+ - Standing up to your government can mean standing up for your country.
+ - The delusional is no longer marginal.
+ - Although our interests as citizens vary, each one is an artery to the heart that pumps life through the body politic, and each is important to the health of democracy.
+ - Conservatism is less a set of ideas than it is a pathological distemper, a militant anger over the fact that the universe is not closed and life is not static.
+ - Journalists who make mistakes get sued for libel; historians who make mistakes get to publish a revised edition.
+ - We now know that a neo-conservative is an arsonist who sets the house on fire and six years later boasts that no one can put it out.
+ - News is what people want to keep hidden and everything else is publicity.
+ - We don’t care really about children as a society and television reflects that indifference to children as human beings.
+ - Empty your knapsack of all adjectives, adverbs and clauses that slo your stride and weaken your pace. Travel light. Remember the most memorable sentences in the English language are also the shortest: “The King is dead” and “Jesus wept.”
+ - Secrecy is the freedom tyrants dream of.
+ - As a student I learned from wonderful teachers and ever since then I’ve thought everyone is a teacher.
+ - Democracy works when people claim it as their own.
+ - The most fundamental liberal failure of the current era: the failure to embrace a moral vision of America based on the transcendent faith that human beings are more than the sum of their material appetites, our country is more than an economic machine, and freedom is not license but responsibility.
+ - You can’t have a people’s democracy as long as corporations are considered people.
+ - Our children are being raised by appliances.
+ - The Interfaith Alliance has to become an ongoing sustaining and powerful movement whose interest is to prove that religion has a healing side as well as a killing side, and that democracy is the consequence of conscience.
+ - Television can stir emotions, but it doesn’t invite reflection as much as the printed page.
+ - I have seen hate born of fear, hate speaking in the name of God and truth, hate holding up a distorting mirror to fellow human beings.
+ - Democracy may not prove in the long run to be as efficient as other forms of government, but it has one saving grace: it allows us to know and say that it isn’t.
+ - How can those of us who are parents help our children recognize their bliss?
+ - Watching the debate this afternoon it was apparent they loved term limits in the House – as Brutus loved Caesar.
+ - In uniform patriotism can salute one flag only, embrace but the first circle of life-one’s own land and tribe. In war that is necessary, in peace it is not enough.
+ - I hear an almost inaudible but pervasive discontent with the price we pay for our current materialism. And I hear a fluttering of hope that there might be more to life than bread and circuses.
+ - Professionals give advice; pilgrims share wisdom.
+ - Hyperbole was to Lyndon Johnson what oxygen is to life.
+ - For the first time in our history, ideology and theology hold a monopoly of power in Washington.
+ - We have got to nurture the spirit of independent journalism in this country, or we’ll not save capitalism from its own excesses, and we’ll not save democracy from its own inertia.
+ - If being tolerant of differing opinions, if believing that America has to make it as a pluralistic nation, if being civil, if that makes you a liberal, I plead guilty.
+ - We see more and more of our Presidents and know less and less about what they do.
+ - Our media and political system has turned into a mutual protection racket.
+ - A journalist is basically a chronicler, not an interpreter of events. Where else in society do you have the license to eavesdrop on so many different conversations as you have in journalism? Where else can you delve into the life of our times?
+ - America’s corporate and political elites now form a regime of their own and they’re privatizing democracy. All the benefits – the tax cuts, policies and rewards flow in one direction: up.
+ - I believe democracy requires a ‘sacred contract’ between journalists and those who put their trust in us to tell them what we can about how the world really works.
+ - These are the now-endangered markers of a civilized society: legally ordained minimum wages, child labor laws, workers safety and compensation laws, pure foods and safe drugs, Social Security, Medicare and rules that promote competitive markets over monopolies and cartels.
+ - When ideology and theology couple, their offspring are not always bad but they are always blind.
+ - America is the longest argument in the world.
+ - There are honest journalists like there are honest politicians – they stay bought.
+ - When all our efforts have come to nothing, we naturally tend to doubt not just ourselves, but also whether God is just. At those moments, our only hope is to seek every evidence that God is just, by communing with the people we know who are strongest in faith.
+ - Our great progressive struggles have been waged to make sure ordinary citizens, and not just the rich and privileged, share in the benefits of a free society.
+ - How do we protect the soul of democracy against bad theology in service of an imperial state?
+ - A producer is a saboteur who tries to infiltrate the passivity of viewers and to create impressions that are lasting.
+ - The printed page conveys information and commitment, and requires active involvement. Television conveys emotion and experience, and it’s very limited in what it can do logically. It’s an existential experience – there and then gone.
+ - Beauty is an expression of that rapture of being alive.
+ - Television is a medium. It is neither rare nor well done.
+ - You only have to glance at the daily news to see how passions are stirred by claims of exclusive loyalty to one’s own kin, one’s own clan, one’s own country, and one’s own church. These ties that bind are vital to our communities and our lives, but they can also be twisted into a noose.
+ - The property qualifications for federal office that the framers of the Constitution expressly chose to exclude for demonstrating an unseemly “veneration of wealth ” are now de facto in force and higher than the Founding Fathers could have imagined.
+ - People who don’t believe in government are likely to defile government.
+
+65 quotes

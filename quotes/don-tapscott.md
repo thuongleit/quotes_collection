@@ -1,0 +1,26 @@
+ - Knowledge is exploding, so you need to commit yourself to a plan for lifelong learning.
+ - Teachers are no longer the fountain of knowledge; the internet is.
+ - Wherever you are, design your life. Live the values of your generation.
+ - To me, this is not an information age. It’s an age of networked intelligence, it’s an age of vast promise.
+ - All one needs is a computer, a network connection, and a bright spark of initiative and creativity to join the economy.
+ - Don’t have work-life balance – at least in the sense of trying to escape from work so you can have a life. Work should be fun – so make work enjoyable and satisfying for everyone – among other reasons because it pays off.
+ - There’s a whole generation of young people who are faced with the so-called ‘jobless recovery.’ Necessity is the mother of invention. They are out there, all around the world, creating new companies.
+ - Your network is your filter.
+ - Schools should be places to learn, not to teach.
+ - To be successful in a knowledge economy firms need to create learning organizations.
+ - Holding back technology to reserve business models is like allowing blacksmiths to veto the internal combustion engine in order to protect their horseshoes.
+ - Just as the Internet drops transaction and collaboration costs in business and government, it also drops the cost of dissent, of rebellion, and even insurrection.
+ - If you work for and eventually lead a company, understand that companies have multiple stakeholders including employees, customers, business partners and the communities within which they operate.
+ - The university is in danger of losing its monopoly, and for good reason. The most visible threat are the new online courses, many of them free, with some of the best professors in their respective fields.
+ - Industrial capitalism brought representative democracy, but with a weak public mandate and inert citizenry. The digital age offers a new democracy based on public deliberation and active citizenship.
+ - We are at a punctuation point in human history where the Industrial Age and institutions have finally come to their logical conclusion. They have essentially run out of gas.
+ - Leaders of institutions everywhere have lost trust. The global economy is stalled and the world is deeply divided, too unequal, unstable and unsustainable.
+ - Peering succeeds because it leverages self-organization – a style of production that works more effectively than hierarchical management for certain tasks.
+ - The social world is transforming the way we create wealth, work, learn, play, raise our children, and probably the way we think.
+ - Leadership is happening, but it’s not coming from the leaders of the old institutions. Everywhere you look, you see these extraordinary, sparkling new initiatives that are under way.
+ - When I noticed how my own children were effortlessly able to use all this sophisticated technology, at first I thought, ‘My children are prodigies!’ But then I noticed all their friends were like them, so that was a bad theory.
+ - Throughout the 20th century, we created wealth through vertically integrated corporations. Now, we create wealth through networks. We are at a turning point in human history, where the industrial age has finally run out of gas.
+ - The blanket assertion that corporations are people obfuscates the complex issues at play in the changing business world. Corporation are institutions. People are people.
+ - Business cannot succeed in a world that is failing.
+
+24 quotes

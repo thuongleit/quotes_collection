@@ -1,0 +1,181 @@
+ - I have the right to life, liberty and chicken wings.
+ - I’m too excited to sleep!
+ - There is no sunrise so beautiful that it is worth waking me up to see it.
+ - Don’t fall into the trap of thinking about politics in your workplace too much. Just work hard, be cheerful, ignore distractions.
+ - Another old saying is that revenge is a dish best served cold. But it feels best served piping hot, straight out of the oven of outrage. My opinion? Take care of revenge right away.
+ - One friend with whom you have a lot in common is better than three with whom you struggle to find things to talk about.
+ - I am an incredibly impatient person.
+ - Best friend isn’t a person, it’s a tier.
+ - Sometimes you just have to put on lip gloss and pretend to be psyched.
+ - True love is singing karaoke ‘under pressure’ and letting the other person sing the Freddie Mercury part.
+ - Gratitude is the closest thing to beauty manifested in an emotion.
+ - I say if you love something, set it in a small cage and pester and smother it with love until it either loves you back or dies.
+ - I’m the kind of person who would rather get my hopes up really high and watch them get dashed to pieces than wisely keep my expectations at bay and hope they are exceeded. This quality has made me a needy and theatrical friend, but has given me a spectacularly dramatic emotional life.
+ - In my mind, the sexiest thing in the world is the feeling that you’re wanted.
+ - That’s what she said.
+ - Because confidence is like respect; you have to earn it.
+ - I don’t need marriage. I don’t need anyone to take care of all my needs and desires. I can take care of them myself now.
+ - My whole childhood was like: Work hard, be quiet, respect elderly people, respect your parents, and just be unobtrusive.
+ - My mom always used to say, “You can’t say I love you before you can say I.” And I think that sort of makes sense.
+ - I would say that my mother is the single biggest role model in my life, but that term doesn’t seem to encompass enough when I use it about her. She was the love of my life.
+ - Running is a quick trigger for a good mood. The great thing about endorphins, you don’t have to be in great shape to get them.
+ - Write your own part. It is the only way I’ve gotten anywhere. It is much harder work, but sometimes you have to take destiny into your own hands.
+ - The overlap in the Venn diagram of things that men hate for women to wear and the things that I love to wear, it’s almost a full overlap on the Venn diagram, which is unfortunate for me.
+ - I have a personality defect where I REFUSE to see myself as an underdog.
+ - There are little Indian girls out there who look up to me, and I never want to belittle the honor of being an inspiration to them. But while I’m talking about why I’m so different, white male show runners get to talk about their art.
+ - That’s my advice to people. You can’t get hung up on thinking, “Am I the victim in this situation?” No, I’m in charge of it.
+ - I would love if gay men responded to me. All I want is for many gay men to dress up as me for Halloween.
+ - We never needed best friend gear because I guess with real friends you don’t have to make it official. It just is.
+ - People seem to be having these awesome sex lives and I’m just trying to find a life partner to go apple picking with. What’s wrong with me?
+ - I have crushes on celebrities or people I meet or see in the coffee shop, and every day I fall in love with three people simply because they said one funny thing or appeared to me in a certain way.
+ - Skinny foodie, get away from me.
+ - You should know I disagree with a lot of traditional advice. For instance, they say the best revenge is living well. I say it’s acid in the face – who will love them now?
+ - I, like most women, I dress for other women, I think. If I was going to dress for men, I think in general I would be just wearing, like, a fitted black T-shirt and tight jeans every day.
+ - I don’t ever remember being able to debate with my parents. Even though I thought of myself as a very bright kid, I couldn’t be vocal in that way.
+ - Hey, a disclaimer about me: I’m rude.
+ - I love talking about clothes with women; it’s like a code because women dress for women.
+ - My relationship with my mom is really the single most profound relationship that I’ve ever had in my life.
+ - If I can muster up any allure in my life, at this stage, I wouldn’t mind doing that.
+ - People talk about mumblecore but I prefer bumblecore, hyper-realistic bee movies about how bees really are.
+ - I can’t have a big breakfast or a big lunch because I get very lethargic, and then I get really cranky. I eat, but I have to eat small, healthful amounts of food.
+ - I regard romantic comedies as a subgenre of sci-fi, in which the world operates according to different rules than my regular human world.
+ - I really love ‘Bridget Jones’s Diary’ – and I love the book, too. You wonder how it ever got made into a movie. She’s supposed to be chubby, and two of the hottest guys ever are straight-up fighting over her?
+ - I always knew I wanted kids, but when my mom passed away I was like, ‘I want a bunch of kids. I want three kids or four kids, and I want to have that relationship again.’ I can’t bring my mom back, but I can have children.
+ - To put it kindly, I am a very talkative, social person. To put it less kindly, I’m a flibbertigibbet, which is what my frenemy Rainn Wilson calls me.
+ - As a kid it’s adorable to have a gap in your teeth. But then, because of the shifting in my mouth, I started whistling through it, and as a 32-year-old woman, whistling while you speak in sort of annoying.
+ - Anyone who’s lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change – as anyone would change.
+ - I’m not good at anything except writing jokes. I wasn’t good at sports, I wasn’t good at anything artsy, ever. I think there was a real worry for a while about what I would be good at. I was just this chubby little Indian kid who looked like a nerd.
+ - People take things at face value on social media. Earnestness is the assumption.
+ - I’m not overweight. I flucuate between chubby and curvy.
+ - I have a thick skin, which comes from being a not-really-skinny, dark-skinned Indian woman. I haven’t fit in every place, and so I’m kind of used to resistance.
+ - If you are going to ask your crush for their phone number, you are one of the small group of women I am so jealous of.
+ - The chorus of “Jack and Diane” is: Oh yeah, life goes on, long after the thrill of living is gone. Are you kidding me? The thrill of living was high school? Come on, Mr. Cougar Mellencamp. Get a life.
+ - Writing, at its heart, is a solitary pursuit, designed to make people depressoids, drug addicts, misanthropes, and antisocial weirdos.
+ - I want a schedule-keeping, waking-up-early, wallet-carrying, picture-hanging man. I don’t care if he takes prescription drugs for cholesterol or hair loss.
+ - Growing up, I remember my parents feeling a little wary of ‘The Simpsons.’ This was the late eighties, and there was a wave of articles about TV shows that were bad for America. Then we all started watching it and loved it.
+ - The Tweets that I have written that are most popular are the ones that are the kind of universal girly concerns and observations.
+ - Albums that remind me of my childhood happiness make me incredibly sad now.
+ - Anybody can have a birthday. It requires nothing. Murderers have birthdays. It’s the opposite of anything that I believe in. And I don’t like at work where you stop everything to sing ‘Happy Birthday’ to someone. I feel like that’s for children.
+ - I was obsessed with being popular in high school and never achieved it. There’s photos from our high school musicals, and I’m comically in the deep background, wearing a beggar’s costume.
+ - My parents were supportive of my creativity but did not have a lot of patience for whimsy with zero production value. They had stuff to do.
+ - I have a whole system down for returning online shopping: a tape gun, a printer for return labels. That has replaced traditional window shopping in my life, as I’ve gotten busier.
+ - If I’m going to be a mess, I might as well be a hot mess, right?
+ - Listen, my body is attracted to your body but when you speak it makes my brain angry.
+ - I’m so much more confident and sexy at thirty-eight than I ever was when I was eighteen or twenty-four...
+ - Your fear that your parents will actually kill you for dropping out of college is something that I think a lot of children of immigrants would maybe relate to.
+ - So I’m into men now, even though they can be frightening. I want a schedule-keeping, waking-up-early, wallet-carrying, non-Velcro-shoe-wearing man.
+ - I stupidly memorize my credit card and use it about thrice weekly for online shopping. The only reason I don’t bankrupt myself is that I return about 75% of what I buy.
+ - I would rather have someone read my diary than look at my iPod playlists.
+ - If I’m at a party where I’m not enjoying myself, I will put some cookies in my jacket pocket and leave without saying good-bye.
+ - I guess nothing puts a damper on a one-night stand as much as your friend pointing out all the opportunities where you might have been killed.
+ - I’m Adorable. I Look like Keira Knightley Running Errands!
+ - All I want to do is be a gay icon. I was reading Lady Gaga’s twitter, because she has like 12 million followers, or something like that. I feel like she has fans, gay, straight, bi, who would throw themselves off a building for her.
+ - I am a super-confident writer, and as a joke writer and as an actress, I’m like, ‘I want to go head-to-head with every person.’ I am an Indian woman and I’m a kind of double minority in this world.
+ - I know a lot of people think of me and they like, oh that girl is really sexy, that girl is really put together, she would never do something as unladylike as a beet eating competition.
+ - In terms of my Indianness, I try not to rely on it nor deny it. When it comes up organically in my writing, we can address it. About five years ago, we wrote this episode of ‘The Office,’ called ‘Diwali,’ which seemed like an organic way of using it.
+ - I’m not into red carpet looks where it’s clear the woman wanted to look like a pretty, pretty princess.
+ - A remarkable thing about me is that the time that elapses between a sad thought and a flood of tears is three or four seconds.
+ - Every day, I wake up and I’m like, “Oh, I’m the star of my own show that has my name in it and I get to write it and hire actors that I’ve loved for such a long time!” It’s amazing!
+ - I’m giving a lot of opinions, but I don’t give any advice. I’m 31 and I’m not married and having kids. I’m five-foot-three. I weigh, like, 150 pounds and I’m not in this position to be telling people how to live.
+ - I am always surprised at what movie studios think people will want to see. I’m even more surprised at how often they are correct.
+ - It’d be great to be so famous that if I murder someone, I will never, ever, ever serve any jail time, even if it’s totally obvious to everyone that I did it.
+ - I was kind of unfriendly and suspicious of everyone around me. I didn’t talk until I was about 15. It’s a kind of famous story at my house.
+ - I have such a rich fantasy life, I can’t help it. I do make up a lot of romantic stories in my head.
+ - Every actor pretends that they hate sex scenes, and the truth is that they all love them, and they’re lying.
+ - I was just this chubby little Indian kid who looked like a nerd. I didn’t have a ton of academic skills. It wasn’t until I was in high school that I was like, “I guess I like writing dialogue.” So that’s how I got into it.
+ - Future hipsters will love me ironically.
+ - Everyone has a moment when they discover they love Amy Poehler.
+ - People don’t want to listen to a celebrity tweeting about their charities and shows. That’s why comedy writers do well – we put out little funny ideas.
+ - Couples are really funny, because if they are together, they can fight and do fun things together. In Jane Austen books, marriage is the end of the story, but I actually think a really funny couple could be a fun thing to watch.
+ - Also, chubby people can never truly pull off ethereal the same way skinny people can never be jolly.
+ - For heaven’s sake, if you don’t know someone’s name, just pretend you do. Do that thing everyone else does, where you vaguely say, “Nice to see you!” and make weak eye contact.
+ - I just want ambitious teenagers to know it is totally fine to be quite, observant kids. Besides being a delight to your parents, you will find you have plenty of time later to catch up.
+ - If it weren’t for my imagination, I would weigh ten thousand pounds. This is because the only way I am able to exercise anymore is through a long and vivid revenge fantasy.
+ - Bribes and boy bands. That’s all you need to be a babysitter.
+ - People who are good at stand-up, they sort of seem to have to do it. Something within them makes them have to go on the road.
+ - I had to learn a skill set. I think I had the materials to be a good comedy writer.
+ - Why didn’t you talk about whether women are funny or not? I just felt that by commenting on that in any real way, it would be tacit approval of it as a legitimate debate, which it isn’t.
+ - I initially thought you were ugly, but then you walked closer to me and I realized you were pretty.
+ - I worship makeup. The basics are always: Stila shadows, LeClerc powder for my crazy shiny skin, Bobbie brown liner pot, Chanel mascara, and Koh Gen Do for foundation, Nars for colors and sparkles.
+ - Fast food is hugely important in the life of a comedy writer. All we do is order in, and what we’re going to eat is hotly debated.
+ - I’m not married, I frequently use my debit card to buy things that cost less than three dollars, and my bedroom is so untidy it looks like vandals ransacked the Anthropologie sale section. I’m kind of a mess.
+ - This book will take you two days to read. Did you even see the cover? It’s mostly pink. If you’re reading this book every night for months, something is not right.
+ - When men hear women want a commitment, they think it means commitment to a romantic relationship, but that’s not it. It’s a commitment to not floating around anymore. I want a guy who is entrenched in his own life. Entrenched is awesome.
+ - Twitter is so short, it’s safe. I don’t want my bosses to be like, ‘Hey, your script is due and we saw you wrote four blog pages.’
+ - More than half the questions I am asked are about the politics of the way I look.
+ - I feel like I’m in the right profession.
+ - I have never regretted erring on the side of withholding information.
+ - We always think of a diet with a big groan. But I think diets are fun. I think it is an American pastime for a lot of women.
+ - I just have my characters say my controversial opinions and then hide behind them.
+ - It makes me cry because it means that fewer and fewer people are believing it’s cool to want what I want, which is to be married and have kids and love each other in a monogamous, long-lasting relationship.
+ - I really think guys only need two pairs of shoes. A nice pair of black shoes and a pair of Chuck Taylors.
+ - When people call me either a girl crush or their best friend, like, the best friend they want, that’s, to me, the best compliment anyone could ever give me.
+ - Always Wear Flats and Have Your Friends Sleep Over: A Step-by-Step How-To Guide for Avoiding Getting Murdered.
+ - I think a lot of people compare female writers or female comedians to each other in a way that men are not. Male comedy writers are not scrutinized.
+ - Writing a book is the most terrifying thing that I’ve ever done. It’s so much harder than writing for television because it is a completely different skill set.
+ - I don’t consider myself a fashion person, I consider myself a shopping person. As a person who has girlie interests and a little bit of disposable income.
+ - There Has Ceased to Be a Difference Between My Awake Clothes and My Asleep Clothes.
+ - My dad’s whole family is in Madras and I was born in America so we didn’t have that big Indian community. I don’t really have anything interesting to say about it. When I talk about it people are like, ‘meh, let’s talk about something else.’
+ - You always want to keep your look clean and elegant, but you don’t have to do the safe black-dress route. Have some fun! Wear something colorful with a hint of sparkle.
+ - Later, when you’re grown up, you realize you never really get to hang out with your family. You pretty much have only eighteen years to spend with them full time, and that’s it.
+ - Why wear white? It’s like, forget about dropping something on it. I don’t understand how anybody wears white.
+ - I would be the first to admit that I have incredibly high, ambitious standards for my life and my career, and I’ve had those my entire life. It’s something that was just instilled in me by my parents.
+ - It doesn’t help for you to name a character’s first name be Mindy and then be like, “I’m nothing like the character.”
+ - The funniest racism is the racism between minorities. It’s something you don’t see dramatized, but almost every minority I know who’s my age, they have these funny stories about their parents stereotyping other minorities.
+ - What? I have a cold. Don’t get a look of terror on your face. The worst that could happen is that you’ll get a cold, too. You don’t have to theatrically Purell a thousand times a day and look all panicky every time I come into the room.
+ - My dad is a very snappy dresser; he gets all his stuff tailored. He’s an architect, so he’s a little more artistically minded.
+ - When smart people are nice, it’s always terrifying, because I know they’re taking in everything and thinking all kinds of smart and potentially judgmental things.
+ - I think a lot of writers, male and female, write as if their parents were killed in a car accident when they were 2, and they have no one to hold accountable. And unfortunately, I don’t have that. I have parents who I care about what they think.
+ - I don’t want to be skinny. I’m constantly in a state of self-improvement, but I don’t beat myself up over it.
+ - Colored leather is my favorite. To me, there’s nothing more fun than wearing a cobalt blue leather skirt or a fuchsia leather jacket.
+ - Sometimes I eavesdrop on people. I could rationalize it – oh, this is good anthropological research for characters I’m writing – but it’s basically just nosiness. It also helps me gauge where I’m at: Am I normal?
+ - My dad is funny in his own way, and so is my brother, but in terms of legitimately making a lot of people laugh, that’s my mom. I inherit my sense of comedy from her.
+ - Directing is exhausting, but not for the actual directing part, when you say “Action!” and give creative notes. As a director, the exhausting part is that you are a professional answer-machine.
+ - I guess when you go to business school you never turn business off.
+ - Maybe the point is that any marriage is work, but you may as well pick work that you like.
+ - I’m someone who loves romance. I always have loved it. Most people who grew up as nerds, as I was, surprisingly, have loved romance.
+ - Not to be weird, but I still have an ongoing relationship with my mom, even though she passed away, and I’ve been surprised at how much I’ve been able to convey to her. Now I sound like a total weirdo, but that’s true.
+ - My mother is more of an adviser. I followed everything she did when I was younger, because I looked up to her so much.
+ - I have a goofy side that impacts my clothing a lot. To that end, I love witty, colorful, prints.
+ - Nothing gives you confidence like being a member of a small, weirdly specific, hard-to-find demographic.
+ - What I’ve noticed is that almost no one who was a big star in high school is also big star later in life. For us overlooked kids, it’s so wonderfully fair.
+ - There are many teenage vampire books you could have purchased instead. I’m grateful you made this choice.
+ - I think as humans, no one remembers their successes, everyone just remembers their failures.
+ - If I gave my mother a knitted scarf she’d be worried I was wasting my time doing stupid stuff like knitting instead of school work. Presenting a homemade knitted object to my parents was actually like handing them a detailed backlog of my idleness.
+ - That’s the one nice thing about being a dork about men: you can sometimes play it off as restrained and classy.
+ - I’ve always had that chip on my shoulder. I’ve just always been super hard on myself.
+ - There’s the psychotic ambitious side of myself that wants a fashion line and my own network and be like a combination of Oprah and Gwen Stefani. And have a perfume. Definitely a perfume.
+ - I think sometimes people think cheerful is a synonym for dumb, so no one is ever cheerful.
+ - As my mom has said, when one person is unhappy, it usually means two people are unhappy but that one has not come to terms with it yet.
+ - I cringe a lot when I look at my early talk-show experiences.
+ - Even in my revenge fantasy where all I do is exercise, I can still do only twenty-five pull-ups. Pull-ups are tough, no joke.
+ - Almost every college playwright or sketch or improv comedian was sort of aware of Christopher Durang – even kids in high school. His short plays were so accessible to younger people and I think that was inspirational to me.
+ - Is this a generation of orphans who are going to the improv to do stand-up?
+ - I found it to be smooth sailing – 100 percent smooth sailing my whole career.
+ - Besides, who wants to read about success, anyway? Successful serial murderers, maybe.
+ - Something that’s happened recently is that I don’t beat myself up about stuff.
+ - I’m a smart enough person to know that I don’t want everyone to be cookie-cutter versions of the nine guys who wear Converse sneakers.
+ - Everyone should try to live their life like they’d like to be a role model.
+ - My understanding of the way sex scenes work is that you’re surrounded by crew, and you’re cold, and you have to do it eight times ’cause they didn’t get the lighting. It doesn’t sound pleasant, but you think that actors actually enjoy it?
+ - Comedy writers have the most fragile egos.
+ - Sometimes I aid into the confusion by having my character’s name be my name.
+ - To have a complete outfit designed, for me, is easier than trying to find pieces that work together.
+ - He was so popular you could barely look at him without being blinded by cool.
+ - I didn’t completely forget how to be nice or feminine because I have a career.
+ - I am the kind of person that is drawn to colors against my will.
+ - I have an underdog spirit in me, and now it feels weird to kind of get my own way more often than not.
+ - Twitter is the most amazing medium for a comedy writer. I can’t get in every idea I want on the show no matter how hard I try to bully the other writers, so it’s a way of me getting out other comic ideas and immediately getting feedback.
+ - When I was growing up, I didn’t do plays in downtown Boston, and my parents weren’t putting me in auditions. They never thought, Oh, she has a gift! They never thought of me as an entertainer when I was a young kid.
+ - Live performance really terrifies me. I haven’t done it, really, in years. I think that’s why I retired from my brief career in stand-up.
+ - You might also see that some of my playlists are simply two songs on repeat fifteen times, like I’m a psycho getting pumped up to murder the president.
+ - If you’re a kid who was not especially a star in your high school, I recommend going to a college in the middle of nowhere. I got all the attention I could ever have wanted.
+ - Truthfully, I guess I would like to be remembered as a great writer and a kind person. I wouldn’t mind if an expensive bag were named after me, like Jane Birkin.
+ - Why is everyone trying to tell me that when you get older it gets better?
+ - I feel like the high-concept shows that have some kind of gimmick tend not to be the hit classic shows of all time.
+ - I think references, where they fit organically, are great. It’s great to do a show that’s real and relatable, and so much of what is real, is using real things and instances that are specific. Specificity is the best tool you can have, as a writer.
+ - If I could make a device where people could just intuit everything you are thinking – a little cable you plug into, like, a USB port, I would make a billion dollars.
+ - This is extremely challenging when you sound like a 12-year-old girl, and you decide your first personal endeavor is to play, like, a – like, a very macho dude.
+ - On ‘The Office,’ so much of the show is about disguising your true feelings and your romantic feelings because it was a mock documentary.
+ - I hate gowns. It’s a rare gown indeed that is cool. Most are elegant or whatever, a quality I don’t put a big premium on.
+
+179 quotes

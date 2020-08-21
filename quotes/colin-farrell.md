@@ -1,0 +1,60 @@
+ - I’m just a true Irish boy at heart.
+ - I’m a big old romantic.
+ - It’s not that I’m stupid. I just don’t think sometimes.
+ - My Mum taught me great manners. And she always told me that you can be or do whatever in life, as long as you don’t hurt anyone and you’re happy. My Mum’s great; I adore her.
+ - Women tend to immediately take responsibility if somebody messes up with both of us saying it’s our fault. Men are quite happy for it to be your fault it seems like.
+ - I’ve never seen a moon in the sky that, if it didn’t take my breath away, at least misplaced it for a moment.
+ - I love the grandiosity, how sweepingly entertaining films can be. And I think there’s a place for films that pry more into the human condition.
+ - It’s so technical. It’s nothing personal. You’re not fighting really, you’re missing each other by a half of foot at least, ideally more and you get a few knocks and bruises. But with the kissing, you do kiss someone. Its lips on lips.
+ - I think, as human beings, we at times overvalue the intellect and we undermine the body. I don’t mean a body externally and the shape of a body. I mean the intelligence of a body, the memories that a body can store, how a body feels emotion, and how a body processes emotion.
+ - I think I’m still trying to find my feet as an actor. And I know it ain’t brain surgery, but it confuses me and it comes between me and my sleep a lot.
+ - I’m just a true Irish boy at heart. I’m just myself, I stick by my guns and I treat people the way I think they should be treated, regardless of their status. And I just have a laugh.
+ - I got to work with Jared Leto. Jared’s cute. Oh, I’ll tell you. Jared will make you doubt about your sexuality.
+ - The first time you hold your baby in your arms, I mean, a sense of strength and love washes over you. It washed over me and I never thought that possible.
+ - I will say that as I get older and calmer and quieter in my own self, the one quality in a woman that I find more and more attractive is kindness. A sense of adventure and humor is important too, but I truly find kindness and consideration for others to be the most attractive thing in anyone.
+ - Yeah, I know my way around some guns, which is weird because I have no time for them. I don’t like them at all but I can take apart guns and put them back together and stuff, so I didn’t have to go to the range. I don’t think I will ever to go ‘the range’ again! I’ve done enough of that.
+ - Seven years sober. I’m really grateful. It’s really lovely to be present in my life.
+ - I’ve got plenty of love in my life already in the form of my sons and a few good friends who I value dearly.
+ - I love working with horses. People say you shouldn’t work with animals and children; that’s wrong. You must only work with children, because you only work eight hours a day and I love working with animals. Animals have an honesty that human beings reach to find in their lives at the best of times.
+ - I don’t go to the gym or practice yoga. And the closest thing I have to a nutritionist is the Carlsberg Beer Company. I just have the appetite of a pigeon.
+ - I am more comfortable doing a drama.
+ - I like to go for a little drive up the California coast.
+ - My Dublin wasn’t the Dublin of sing-songs, traditional music, sense of history and place and community.
+ - I mean, we are tribal by nature, and sometimes success and material wealth can divide and separate – it’s not a new philosophy I’m sharing – more than hardship, hardship tends to unify.
+ - I’ve started films like Miami Vice where I’m in really good shape and I look back on that film and see the moustache is bigger as I’ve got a larger face.
+ - I’m not keen on cars and motorbikes. I tried to be a biker, but it wasn’t me – I bought a Harley-Davidson and dumped it.
+ - Magic is at the core of myths.
+ - I’m not painting myself as a down-home, modest guy.
+ - The idea of implanting memories where by the implantee couldn’t tell the difference between a real experience and a fantasy experience was really cool. And his ideas of technology – do we control technology or does technology begin to control us? His work hasn’t aged a day it seems.
+ - I think people are propelled towards violence, and what propels them is much more interesting than the actual act of violence itself.
+ - I was never an A student, but I was really well behaved until I was 13 or so.
+ - But I dare not think too far into the future on the risk that I’ll miss the present.
+ - I’m not going to experience the reality of hardship that sometimes my characters live in. I’m very cautious about that.
+ - I think there were six or eight weeks between ‘Total Recall’ and ‘Seven Psychopaths.’ I was at home in Los Angeles for ‘Seven Psychopaths,’ so it was the first time I had worked from my house here so it was great to be around the kids.
+ - I love my kids. I’m crazy about them.
+ - Pain seems to be easier, or melancholy seems to be easier to portray in a character. I don’t know if that’s because I’m a human being or because I’m an Irishman or both.
+ - I take acting very seriously. I put everything I have and know into it.
+ - Every week a tsunami rips through poor towns and villages all over the world. It claims 25,000 lives a day, 175,000 a week. It sweeps children from the arms of their mothers, robs hundreds of millions of any hope for the future. That tsunami is hunger. Help us end it now.
+ - It doesn’t matter if it’s a drama or a comedy, the need to get the emotion and the character arc across is way harder in something like this so was more of a preparation.
+ - I do enjoy reading some science fiction.
+ - I’ll try anything. I’ll do anything. I’ll explore. Try different takes.
+ - Anything that’s different from your own realm of experience as a human being, whether it’s driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character’s existence is a big help.
+ - You’re scrutinized all through your life – you’re scrutinized by your family, by yourself, by society, and your friends in a certain way, shape, or form.
+ - Life is apogee, apex, decline; life is death – and everything else is open to discussion.
+ - From my experience, the only thing you can do is take what’s written on the page and try, through your own curiosity and investigation, to make it your own and honor what the original intent was.
+ - I just adored working in London. It was in London where I first had the idea of making a film.
+ - I’m not going to lie, there are more interesting ways to spend your time than answering questions about yourself. But if there were no questions to ask me, I might have a beef with that.
+ - You know. I’ll try anything. I’ll do anything. I’ll explore. Try different takes. All that kind of stuff to do sometimes, to do good performances, but always conducive to having a good time creatively.
+ - I did loads of auditions and I didn’t get called back. I still get giddy at all the people I get to work with, and I’m still enjoying the work and enjoying life too much that I don’t feel like I’ve done that much.
+ - Initially, less appealing to me than the idea of a vampire that is drawn by some misgiving or drawn by some sense of longing that he can’t quite satiate.
+ - I get excited about room-service menus! I really do.
+ - If you do a fifteen hour day on a film, there’s a lot of time standing around but at the end of that, you want to go home to your hotel room and have a bite to eat, watch a movie and go to bed.
+ - Girl trouble, for me, is when you fall in love.
+ - If you need to get in physical shape for a film and you have to maintain that for six months.
+ - You have the upmost amount of energy because you’re not just having a cocktail at the end of the night. You’re actually not drinking alcohol and you’re keeping your body really clean and it’s an amazing feeling to be getting out all the toxins.
+ - Her Majesty’s Secret Service wouldn’t have me on the payroll.
+ - Being Irish is very much a part of who I am. I take it everywhere with me.
+ - It can be a bit annoying if another actor is trying to talk to the director and the wife is sitting on his lap.
+ - I know what the important things are in life. I know that just because I pretend to be someone else for two hours on the silver screen doesn’t make me a better person than the next man. So, I mind all those things. Simple things.
+
+58 quotes

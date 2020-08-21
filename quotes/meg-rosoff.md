@@ -1,0 +1,46 @@
+ - When you read a book, the neurons in your brain fire overtime, deciding what the characters are wearing, how they’re standing, and what it feels like the first time they kiss. No one shows you. The words make suggestions. Your brain paints the pictures.
+ - I don’t get nearly enough credit in life for the things I manage not to say.
+ - Your writing voice is the deepest possible reflection of who you are. The job of your voice is not to seduce or flatter or make well-shaped sentences. In your voice, your readers should be able to hear the contents of your mind, your heart, your soul.
+ - Fate is trying to kill me. I miss my dog. What’s a doctor going to say? You’re not ill, you’re mad as a muffin? They’ll either lock me up or tell me to get a grip and no one will believe the truth anyway.
+ - I guess the difference between Gin and me is that when Gin got shut in the barn she thought Edmond didn’t love her anymore but because I could feel Edmond out there somewhere always loving me I didn’t have to howl all night.
+ - Ask any comedian, tennis player, chef. Timing is everything.
+ - After all this time, I know exactly where I belong.
+ - Every war has turning points and every person too.
+ - Things Happen and once they start happening you pretty much just to hold on for dear life and see where they drop you when they stop.
+ - The soldier had stamped my passport FAMILY in heavy black capital letters and I checked it now for reassurance and because I liked how fierce the word looked.
+ - The imagination can be dangerous. It can change the world. And that is why we write.
+ - Staying alive was what we did to pass the time.
+ - Accept love instinctively, without responsibility or conditions.
+ - My daughter is a fantastic travelling companion – she’s totally organised, whereas I’m hopeless.
+ - It was not a big smile, not particularly bold or polite or ironic or glib, not asking for anything or offering anything, not stringy or careless, not, in short, like any smile I had ever experienced before. But such a smile! You could burn a hole in the world with that smile.
+ - The things that break your heart when you think there’s nothing left to break.
+ - The average attention span of the modern human being is about half as long as whatever youre trying to tell them.
+ - I was pretty far gone, but not so far gone that I thought anyone with half a toehold in reality would think what we were doing was a good idea.
+ - While working in advertising, I channelled my creative energy into elaborate escape fantasies: cake making, dog breeding, the Peace Corps.
+ - A piano might fall on your head, he said, but it also might not. And in the meantime you never know. Something nice might happen.
+ - Self-knowledge is essential not only to writing, but to doing almost anything really well. It allows you to work through from a deep place – from the deep, dark corners of your subconscious mind.
+ - I can’t even trust my own imaginary dog. How much lower can a person get?
+ - I’m a century old, an impossible age, and my brain has no anchor in the present. Instead it drifts, nearly always to the same shore. Today, as most days, it is 1962. The year I discovered love.
+ - This was what happiness felt like – this wondrous, miraculous alternative to dread.
+ - Perhaps the way to succeed is to think of life on Earth as a colossal joke, a creation of such immense stupidity that the only way to live is to laugh until you think your heart will break.
+ - And after awhile of this my brain and my body and every single inch of me that was alive was flooded with the feeling that I was starving, starving for Edmond. And what a coincidence, that was the feeling I loved best in the world.
+ - I noticed that once you realize someone’s watching you it’s pretty hard not to find yourself watching them back.
+ - At the time, I didn’t have the insight to wonder at the transient nature of despair, but now that I’m older I’ve seen how little it takes to turn a person’s life around for better or worse. An event will do, or an Idea. Another person. An idea of a person.
+ - If you haven’t been in a war and are wondering how long it takes to get used to losing everything you think you need or love, I can tell you the answer is no time at all.
+ - Such a courageous boy I was. To act brazenly under scrutiny and risk further injury to my wounded heart. Ah, the resilience, the blind, dumb persistence of youth.
+ - If there was ever a more perfect day in the history of time it isn’t one I’ve heard about.
+ - The real truth is that the war didn’t have much to do with it except that it provided a perfect limbo in which two people who were too young and too related could start kissing without anything or anyone making us stop.
+ - It’s a strange sensation to live inside another person’s life, to wonder all the time what he is doing, or thinking or feeling.
+ - It’s not that he lacked poetry. But his poetry was of the body, not the mind. He spoke it in the way he moved, the way he held a hammer, rowed a boat, built a fire. I, on the other hand, was like a brain in a box, a beating heart in a coal scuttle.
+ - Osbert was the only one who didn’t seem suspicious. He was so interested in the Decline of Western Civilization that he missed the version of it taking place under his nose.
+ - I guess there was a war going on somewhere in the world that night but it wasn’t one that could touch us.
+ - Somewhere along the line I’d lost the will not to eat.
+ - I frightened myself. I became the ghost Piper was so scared of.
+ - Fate isn’t some middle-aged man with a squint who won’t recognize you if you change your clothes.
+ - I didn’t seem to have that effect on anyone but it would have been a waste for both of us to be saints.
+ - I give thanks for all that has passed, for all that is passing, and for all that is yet to come.
+ - Life is absolutely horrific, leading up to absolute horror.
+ - I’d like to think life has improved since 1850, despite the long hours we all seem to spend slaving over hot computers, but the psychological journeys remain the same – the search for love, identity, a meaningful place in the world.
+ - I felt a momentary urge to leap into the sea and swim free of the present.
+
+44 quotes

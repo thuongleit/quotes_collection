@@ -1,0 +1,165 @@
+ - Every time I start feeling sexy I trip.
+ - Survivors are so often re-victimized by a system that demands they prove their purity and innocence.
+ - When someone shows you how little you mean to them and you keep coming back for more, before you know it you start to mean less to yourself.
+ - Don’t put yourself in situations you’d like to run away from. But when you run, run back to yourself.
+ - I have work, and then I have a dinner thing. And then I am busy, trying to become who I am.
+ - Let’s be reasonable and add an eighth day to the week that is devoted exclusively to reading.
+ - Everyone needs something from me.
+ - If someone doesn’t answer your email within six hours, it means they hate you.
+ - It’s not brave to do something that doesn’t scare you.
+ - Don’t wait around for someone else to tell your story. Do it yourself by whatever means necessary.
+ - There’s a certain grace to having your heart broken.
+ - I would be a horrible girlfriend at this point in my life, because I’m both needy and unavailable.
+ - But ambition is a funny thing: it creeps in when you least expect it and keeps you moving, even when you think you want to stay put.
+ - You’ve learned a new rule and it’s simple: don’t put yourself in situations you’d like to run away from. But when you run, run back to yourself, like that bunny in Runaway Bunny runs to its mother, but you are the mother and you’ll see that later and be very, very proud.
+ - I feel prettier with a naked face and ChapStick. But a good haircut makes a huge difference.
+ - I remember asking my mom, “Do you think that I will ever have enough money to live outside of your house?” And she would be like, “You just never know.”
+ - My sister is bold, independent, and not afraid to wear overalls. Some of her first words as a child were “that’s not fair,” and she’s been committed to social justice ever since. She’s my hero.
+ - I’m not jealous in traditional ways – of boyfriends or babies or bank accounts – but I do covet other women’s styles of being.
+ - I value my health and my happiness. And I’ve realized exercise can give me both of those things.
+ - My fears came true: People called me fat and hideous, and I lived. And now I keep living.
+ - Part of being a feminist is giving other women the freedom to make choices you might not necessarily make yourself.
+ - Feminists believe that men and women should have the same opportunities. If you are a feminist you believe in equal rights as a whole. That’s not a concept you can really shoot down.
+ - I think that people in the phase between being someone’s kid and being someone’s parent have always been uniquely narcissistic, but that social media and Twitter and LiveJournal make it really easy to navel-gaze in a way that you’ve never been able to before.
+ - Okay, ‘Best Party Ever’ – to me, that’s like saying ‘Best Gym Ever’ or ‘Best Nature Documentary Ever,’ like how good can it really be?
+ - When I was nine, I wrote a vow of celibacy on a piece of paper and ate it.
+ - You have to move so you don’t die. You have to move so your brain doesn’t atrophy. You have to move so that you look a little bit like a person that you might want to be. There are a thousand reasons why exercise is important, and I’ve had to find ways to make it sexy for myself.
+ - Luxury is nice, but creativity is nicer.
+ - Guys warning girls not to fall in love with them is so truly douchey that it should have a higher success rate.
+ - Hell hath no fury like a woman who has accidentally napped.
+ - Here’s what I have to say about being married: someday you will look at him, hating him with every fibre of your being, wishing that he would die the most violent death possible. It will pass.
+ - I am thinking particularly of a shower I took where the lower half of my body was under the running water and the upper half was laid out on the bath mat, eating a loaf of bread.
+ - People are ultimately threatened by young people taking positions of power.
+ - I consider being female such a unique gift, such a sacred joy, in ways that run so deep I can’t articulate them. It’s a special kind of privilege to be born into the body you wanted, to embrace the essence of your gender even as you recognize what you are up against. Even as you seek to redefine it.
+ - I think that it’s very important to be with someone who makes you feel like the best version of yourself. In some sense, your partner is a mirror, and you have to like what they’re reflecting back at you.
+ - I deserved kisses. I deserved to be treated like a piece of meat but also respected for my intellect.
+ - At a brunch potluck, I realize that I do, in fact, hate everybody.
+ - Throughout the day I often ask myself, Could I fall asleep right now? and the answer is always a resounding yes.
+ - Let’s call a spade a spade – a lot of times when you are a vegetarian it is a just not very effective eating disorder.
+ - I do think girls in their twenties accept certain kinds of lesser treatment than they would at other times in their lives.
+ - I didn’t have to wait six years to get my show on the air, worry that someone else had a similar idea, or wait around for notes that took my voice out of the show.
+ - I think about my best friendship – which the Marnie-Hannah friendship in Girls is based on – as like a great romance of my young life.
+ - I should do the things that make me feel cool and smart. As I get older, I’m realizing more and more that it doesn’t really matter if I’m good at it, it just matters that I try. My own effort, my own willingness, are becoming what’s appealing to me.
+ - I just don’t want to be around people who don’t hate everything in their life right now.
+ - Once, my little sister was walking down the street in her thick black glasses, and a homeless man muttered, Talk nerdy to me.
+ - I can’t imagine a passionate affair with a native man.
+ - It’s very easy for me to say what success is. I think success is connecting with an audience who understands you and having a dialogue with them. I think success is continuing to push yourself forward creatively and not sort of becoming a caricature of yourself.
+ - No one wants to see a tattoo on a stomach.
+ - It’s interesting how we often can’t see the ways in which we are being strong – like, you can’t be aware of what you’re doing that’s tough and brave at the time that you’re doing it because if you knew that it was brave, then you’d be scared.
+ - Things that feel super personal actually feel really universal. It’s sort of the more you really identify something specific within yourself, the more people connect to it because ultimately we are all connected in some way.
+ - For me, my life goal is to be in a position where I can wear pajamas 24 hours a day. That’s what makes me happy.
+ - When I write I’m never really thinking about themes or the universal.
+ - The way in which you share your body must be a CHOICE. Support these women and do not look at these pictures.
+ - My dad finds Twitter just infinitely unrelatable. He’s like, ‘Why would I want to tell anybody what I had for a snack, it’s private?!’ And I’m like, ‘Why would you even have a snack if you didn’t tell anybody? Why bother eating?’
+ - I think breakfast is the one meal when you don’t have to eat animal, maybe.
+ - My shape reminds me a lot of my grandmother, whom I was really close to. She died when I was 13, and we have a really similar body type, the squat New England woman who can roll out dough and bring in your lawnmower. That’s kind of the vibe of my body, and I’m into it.
+ - Running had always been off the table for me. It just looks embarrassing when I do it. I viewed it like learning a new language – best to learn it as a child.
+ - I learned that people are much more game to mock their own personas than you would think.
+ - I am comforted by the fact that I find a real range of female bodies beautiful, and I hope that other people do too. And even if they don’t find it beautiful I hope they’re just glad that something like it is happening on TV.
+ - I didn’t drink in the essence of the classroom. I didn’t take legible notes or dance all night. I thought I would marry my boyfriend and grow old and sick of him. I thought I would keep my friends, and we’d make different, new memories. None of that happened. Better things happened.
+ - My uncle’s a lawyer and I remember going to see him in court and thinking, ‘That’s cool, too bad I could never be a lawyer.’
+ - If you watch my movie, you understand I am perverse and weird and angry and not looking to direct a film that ends with a bunch of teenagers exploding into glitter.
+ - You should always go where there is a ‘you-shaped’ hole in the world.
+ - When someone anonymous tells me I’m fat, that’s not a person to me. If they’re not going to acknowledge me as a person, I’m certainly not going to acknowledge them as a person.
+ - I refresh Twitter as thoughtlessly as some twirl their hair.
+ - You don’t need to be flamboyant in your life to be flamboyant in your work.
+ - But I am a girl with a keen interest in having it all, and what follows are hopeful dispatches from the frontlines of that struggle.
+ - I have to remind myself that when you exercise, there is a natural calm that comes from knowing that you did something with your body that day. Actually going and working out makes everything else easier and better.
+ - I always imagined that having a baby is something that I’m going to keep in a private place, but maybe my curse is that all I’m going to want to do is tell everybody about what my birth process was like and what my children’s nightmares are.
+ - Barbie’s disfigured. It’s fine to play with her just as long as you keep that in mind.
+ - I was raised on the internet.
+ - It doesn’t occur to so many people that if you don’t have a clear heterosexual, gender confirming identity that there are parts of day-to-day life – like using a bathroom or getting your clothes – that just aren’t going to be as easy.
+ - My thoughts on body image are simple: if you are being kind to yourself mentally and physically you never have anything to be ashamed for, ever.
+ - I’m always afraid that I’m being unprofessional, yet I continue to sign all my e-mails ‘xoxo.’
+ - We both followed our hearts and had no choice but to hurt each other deeply.
+ - Women saying “I’m not a feminist” is my greatest pet peeve. Do you believe that women should be paid the same for doing the same jobs? Do you believe that women should be allowed to leave the house? Do you think that women and men both deserve equal rights? Great, then you’re a feminist.
+ - I feel like I don’t watch that many shows with death.
+ - Confidence lets you pull anything off, even Tevas with socks.
+ - Women want to control other women because they’ve been controlled themselves. It’s a cycle of control. I’m not blaming women for that, but I am saying we’re part of a toxic culture that’s feeding all of us the same messaging.
+ - I sort of tend to equate tattoos with prisoners, punks or people with a high level of self-confidence. I don’t necessarily have a covered-in-tattoos personality.
+ - I went to schools that were small enough that basically everyone was in a play. I played a bouncing ball in a production of Alice in Wonderland and a fat man in an Italian commedia dell’arte play. I was given some small chances.
+ - Enjoy going through life as yourself.
+ - I just hope that I continue to keep a line between my private life and who I play, even if they are closely intertwined, and so I’m careful. I don’t even know where my line is, but I know I have a line.
+ - My relationship to eating, my relationship to critiquing my own shape, all of that has changed since I’ve started viewing my body much more as a tool to do my work.
+ - I feel like you don’t know if someone’s equipped for a romantic relationship until they’re out of their twenties.
+ - Scandal has made wine and popcorn seem like a viable, even healthful, meal.
+ - My weight fluctuates depending on my mood and my current devotion to my fitness routine.
+ - There are so many reactions to art that make sense to me – but ‘ick’ means something.
+ - But I also think when we embark on intimate relationships, we make a basic human promise to be decent, to hold a flattering mirror up to each other, to be respectful as we explore each other.
+ - I’ve been a little haphazard about how nude I get, and the only thing that keeps me from getting anxious about it is that I’ve had complete control over it.
+ - I always say that I can play sort of six variations on one girl, all of whom are a variation on me. Maybe I’ll think of myself as an actor if, like, I do a corset drama.
+ - I know that when I am dying, looking back, it will be women that I regret having argued with, women I sought to impress, to understand, was tortured by. Women I wish to see again, to see them smile and laugh and say, It was all as it should have been.
+ - I’m just waiting to be 85 and be in a pajama community. Everyone’s welcome to join me.
+ - I’d love to write something for a male protagonist. That’s sort of the next frontier for me. I think it’d be really amazing to write the kind of parts that I love for women but for a guy.
+ - You can’t give any exciting speech without misremembering things.
+ - I think of my body as a tool to do the stuff I need to do, but not the be all end all of my existence.
+ - There is something vulnerable about showing your tattoos to people, even while it gives you a feeling that you are wearing a sleeve when you are naked.
+ - When we, as young women, are given the space to read, the act becomes a happy, private corner we can return to for the rest of our lives. We develop this love of reading by turning to stories that speak to the most special, secret parts of us.
+ - At my age, no one is married, no one has kids, no one has a career.
+ - I’ve always been someone who feels better, if I see what I’m going through in a movie.
+ - I’ve only recently realized that I have a radically different relationship with my parents than a lot of people.
+ - If you’re writing, you’re starting in private. It can really be this amazing, private, freeing experience. Forget that it’s for other people – that comes in later.
+ - I’m not super thin, but I’m thin, for like, Detroit.
+ - I had no friends. I worried a lot.
+ - I think romantic comedy, when done right, is my favorite genre. It’s just a genre that’s very human.
+ - I always thought that if you had any real proximity to famous people, that your obsession with famous people, would wane is some way. Like, I wouldn’t want to deep google Matthew McConaughey’s early relationships for hours before I go to bed. And it’s just gotten worse.
+ - I wanted to be a poet. I had a really romantic idea about what that would mean. My parents knew some poets, and I liked how they dressed and acted, but I didn’t really acknowledge that I only liked reading some bits of poetry while I was peeing or something.
+ - It would probably be too easy a cop out to say that just Republican males hate me. Though there’s a large swath of them, for sure.
+ - I love flawed female characters, duking it out.
+ - I sometimes want to make a book of every tattoo I wanted to get before I actually got a tattoo, because there were so many awful ideas and concepts.
+ - I love what I do, I love every minute of it.
+ - There’s always an article coming out, saying, ‘The new thing is funny women!’
+ - It’s funny, I never considered that people are going to see me on the show and maybe stop me on the subway.
+ - I started writing plays, but the fact that plays don’t last forever was too much for me to bear.
+ - I’m always having to be told to brush my hair.
+ - I never sort of thought of myself as a comedy writer, by nature.
+ - I am not a particularly political person, but, as a Tribeca resident, the commodification of September 11th is offensive to me.
+ - You know, when I first started making online videos, there were a lot of filmmakers I befriended who were doing it too.
+ - None of my actions have ever sort of been motored by the search for a husband or wondering if I was going to have a family someday or wanting to live in a really great house or thinking it would be really great to have a diamond.
+ - When it’s low-budget, and you have one other person on the set, you have to make rules.
+ - I felt highly anxious in a way that I didn’t think other children were.
+ - I’m glad if my work can make a difference.
+ - I mean, I – it’s so funny, I am, you know, I am, you know, a working woman out in the world, but I still live with my parents half the time. I’ve been sort of taking this very long, stuttering period of moving out.
+ - My parents were very supportive when I was growing up and have been all the way through.
+ - I felt like my parents were always involved with abstraction, and I wanted to do something very specific.
+ - I’m really lucky because my sister is a real activist soul and also hyper-intellectualized in this way that’s really allowed me to wrap my mind around some of the bigger intellectual concepts and really understand the language around identity in the gender nonconforming community.
+ - The male capacity for turning the negative into a compliment is really alarming.
+ - I thought I wanted to be a journalist or a novelist.
+ - You know, I always think of myself as sort of ready for every criticism.
+ - If a young woman is looking at the landscape of Hollywood, what she sees is almost only challenges.
+ - I seriously consider television to be the people’s medium.
+ - It’s almost like when you’re young, your friends take on the romance role, and then guys take on the role of your friends later.
+ - It’s really hard to grow with another person.
+ - When I graduated college I had a series of just humiliating jobs that I couldn’t believe I was at.
+ - I find it really awkward to do a scene where I’m supposed to seem like I’m in love.
+ - It is really funny how even cool chicks are sort of like, ‘Our moms covered that feminism thing and now we’re living in a post-that world,’ when that just isn’t true.
+ - I feel like a lot of the female relationships I see on TV or in movies are in some way free of the kind of jealousy and anxiety and posturing that has been such a huge part of my female friendships, which I hope lessens a little bit with age.
+ - I have never been a physically engaged person. Like, I was not an athletic kid. I was the kid who came up with a thousand excuses not to take a gym class. Even now, if I could, I would do all my work from bed.
+ - I spent all my time on my movies worried that people were eating and that the schedule was being kept, so to have experts in those areas giving me the brain space as a writer and director is huge.
+ - I kind of look like every other girl walking around.
+ - The parts I enjoy playing aren’t really available to me. So I have to write them.
+ - The work that’s interesting to me in other people is really confessional.
+ - On a personal level, I’m proud of Grace Dunham for being so staunchly in her identity. It’s a very unusual thing for a young person. I think she’s been very strong about it.
+ - I can play very annoying girl, very lost girl and then all the things in the spectrum between.
+ - I had always written. I had written stories and poems. Then I started writing plays.
+ - I’ve always had a talent for recognizing when I am in a moment worth being nostalgic for.
+ - I would rather spend my entire life doing nothing than have my name attached to something mediocre.
+ - The end never comes when you think it will. It’s always ten steps past the worst moment, then a weird turn to the left.
+ - I always thought the saddest feeling in life is when you’re dancing in a really joyful way and then you hit your head on something.
+ - I went to an amazing school in Brooklyn called St. Anne’s that’s a really kind of creative hot bed.
+ - I’d always loved movies, but it wasn’t some sort of desperate love of celluloid. It was literally like, “I want to write things, and I want people to see them more.”
+ - It’s okay to change your mind. About a feeling, a person, a promise of love.
+ - I think if you feel like you were born to write, then you probably were.
+ - Katherine Heiny’s work does something magical: elevates the mundane so that it has the stakes of a mystery novel, gives women’s interior lives the gravity they so richly deserve – and makes you laugh along the way.
+ - There’s people who don’t want to see bodies like mine or bodies like their own bodies.
+ - I quit acting when I was 11 because I was cast as a bouncing ball in ‘Alice in Wonderland,’ and I felt slighted and wounded.
+ - I’m not great at dating, but I need to do it to relax.
+ - But I want to tell my stories, more than that, I have to in order to stay sane.
+ - I thought I was really a radical, political person, which of course I am not.
+ - My mom knows pretty well how I see her.
+ - I love directing scenes that I’m not in because suddenly I really feel like a filmmaker which is a different thing.
+ - The people accusing me of being productive don’t know how hard it is for me to just bend my elbow sometimes.
+ - I’ve never thought of myself as an actor, so somebody recognizing me for that would be a real shock.
+ - I have to take my shoes off, you guys.
+
+163 quotes

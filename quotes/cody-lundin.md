@@ -1,0 +1,27 @@
+ - Knowledge is Power, and it’s very lightweight.
+ - The vast majority of the population seems to look down their noses upon self-reliance as some quaint dusty relic, entertained only by the hyperparanoid or those hopelessly incapable of fitting into mainstream society.
+ - Moral of the story: try to get things right, figure out what’s going wrong with the scenario, and don’t give up.
+ - C’mon baby light for me!
+ - So do you want a turd sandwich or a turd sandwich with mustard. I’d go with the mustard, but still, it’s a turd sandwich.
+ - The more survival skills an individual has that have been practiced physically and otherwise, the better odds they have for those skills coming to the forefront during a stressful emergency.
+ - We need to get out of this fetid pusshole and get to some higher ground.
+ - So I’m pampering myself to a homemade stone pumice session, to sand down my feet because I’m worth it.
+ - I’m all for the path of least resistance.
+ - It’s a recipe for disaster.
+ - You get diarrhea out here, you dehydrate from the inside out – you leave the gene pool.
+ - Rat is a lot like duck, except with a wonderfully nutty flavor.
+ - It’s like walking on a 1970 blaze orange shag carpet in a kitchen.
+ - I feel like a nude little piece of white meat out here.
+ - We need to look for water. Water, water, water, water.
+ - You’re my depth gauge. If I see your hat floatin’, I’ll stop.
+ - I know I look like a piece of sausage to those lions. A sausage with braids.
+ - I’m the Bernie Madoff of this spider.
+ - We can’t move quickly. You move quick out here and you die quick.
+ - I feel like a tick on a dog.
+ - The irony here is we’re looking for water and we’re looking out for water. Without it you die, and with too much of it you die.
+ - It’s like walking through someone’s small intestine.
+ - Where there is water, there are people.
+ - It’s like I’m in a closet in a college dorm room.
+ - I feel like an hors deurve waiting to happen.
+
+25 quotes

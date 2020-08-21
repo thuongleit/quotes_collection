@@ -1,0 +1,160 @@
+ - Remember to breathe. It is after all, the secret of life.
+ - Sorrow has a name, and its name is loneliness. Sorrow has a shape, and its shape is absence. Sorrow is a sickness like any other.
+ - The eye is always caught by light, but shadows have more to say.
+ - I hate New Year’s Eve. One more chance to remember that you haven’t yet done what you wanted. And to pretend it doesn’t matter.
+ - Animals are born who they are, accept it, and that is that. They live with greater peace than people do.
+ - This is why you shouldn’t fall in love, it blinds you. Love is wicked distraction.
+ - Remember this: Nothing is written in the stars. Not these stars, nor any others. No one controls your destiny.
+ - Just my luck, if I believed in luck. I only believe in the opposite of luck, whatever that is.
+ - I wouldn’t mind leaving myself behind if I could, but I don’t know the way out.
+ - From torched skyscrapers, men grew wings.
+ - Books fall open, you fall in. When you climb out again, you’re a bit larger than you used to be.
+ - One plus one equals both.
+ - The body apologizes to the soul for its errors, and the soul asks forgiveness for squatting in the body without invitation.
+ - And a puzzle is for the piecing together, especially for the young, who still believe it can be done.
+ - I’m not a writer because I want to make money. I’m a writer because I’m a very slow thinker, but I do care about thinking, and the only way I know how to think with any kind of finesse is by telling stories.
+ - We are loping sequences of chemical conversions, acting ourselves converted. We are twists of genes acting ourselves twisted; we are wicks of burning neuroses acting ourselves wicked. And nothing to be done about it. And nothing to be done about it.
+ - So she listened hard. And she began to evolve, because stories work their magic that way. They build conviction and erode conviction in equal measure.
+ - No one controls your destiny. Even at the very worst – there is always choice.
+ - They moved together, blue diamonds on a green field.
+ - If you have an ancestor who is a Benedictine monk, we would rather not know it.
+ - Maybe the definition of home is the place where you are never forgiven. So you may always belong there, bound by guilt. And maybe the cost of belonging is worth it.
+ - She dropped her shyness like a nightgown, and in the liquid glare of sunlight on old boards she held up her hands-as if, in the terror of the upcoming skirmish, she had at last understood that she was beautiful. In her own way.
+ - People always did like to talk, didn’t they? That’s why I call myself a witch now: the Wicked Witch of the West, if you want the full glory of it. As long as people are going to call you a lunatic anyway, why not get the benefit of it? It liberates you from convention.
+ - And girls need cold anger. They need the cold simmer, the ceaseless grudge, the talent to avoid forgiveness, the side stepping of compromise. They need to know when they say something that they will never back down, ever, ever.
+ - Okay let’s get this over with, no I’m not seasick, yes I’ve always been green, No I didn’t eat grass as a child.
+ - Because no retreat from the world can mask what is in your face.
+ - A man is called a traitor, or liberator. A rich man is a theif or philanthropist. Is one a crusader or ruthless invader? It’s all in which label is able to persist.
+ - In the lives of children, pumpkins turn into coaches, mice and rats turn into men. When we grow up, we realize it is far more common for men to turn into rats.
+ - They’d never been lovers, of course, not in the physical sense. But they’d been lovers as most of us manage, loving through expressions and gestures and the palm set softly upon the bruise at the necessary moment. Lovers by inclination rather than by lust. Lovers, that is, by love.
+ - It’s the only condition I know. Bitter Love, Loneliness, contempt for corruption, blind hope. It’s where I live. A permanent state of bereavement. This is nothing new.
+ - For fun? Maybe evil is an art form.
+ - The wickedness of men is that their power breeds stupidity and blindness.
+ - We only have babies when we’re young enough not to know how grim life turns out. Once we really get the full measure of it – we’re slow learners, we women – we dry up in disgust and sensibly halt production.
+ - So let my hands and my face make their way in this world, let my hungry eyes see, my tongue taste.
+ - Light will blind us in time, but what we learn in the dark can see us through.
+ - Even God used silence as a strategy.
+ - So he stalked her again. Love makes hunters of us all.
+ - Elphaba looked like something between an animal and an Animal, like something more than life but not quite Life.
+ - She watched the sun bleed water out of the icicle. Warm and cold working together to make an icicle. Warm and cold anger working together to make a fury, a fury worthy enough to use as a weapon against the old things that still needed fighting.
+ - The more civilized we become, the more horrendous our entertainments.
+ - The moon rose, an opalescent goddess tipping light from her harsh maternal scimitar.
+ - There was much to hate in this world and too much to love.
+ - Indeed, she often wondered if she were dead, or dying from the inside out, and that was the root of her calm, the reason she could surrender her character.
+ - You confuse not speaking with not listening.
+ - The melody faded like a rainbow after a storm, or like winds calming down at last; and what was left was calm, and possibility, and relief.
+ - The sweet accident of coincidence is the best foundation on which to build.
+ - My first job was scooping ice cream at Friendly’s in Albany, New York. I hated the work, most of my colleagues, and the uniform, and I more or less lost my taste for ice cream permanently.
+ - That was such a wonderful time, even in its strangeness and sadness-and life isn’t the same now. It’s wonderful, but it isn’t the same.
+ - I never use the words HUMANIST or HUMANITARIAN, as it seems to me that to be human is to be capable of the most heinous crimes in nature.
+ - If one could drown in the grass, thought Elphie, that might be the best way to die.
+ - Does the devil ever struggle to be good again, or if so is he not a devil?
+ - Before you save anyone else, you have to save yourself. otherwise, you’rejust a bundle of tics, a stringed puppet manipulated by the chance and the insensible wind.
+ - He knew about being alone. The weather was always cold there.
+ - Perhaps family itself, like beauty, is temporary, and no discredit need attach to impermanence.
+ - The momentum of the mind can be vexingly, involuntarily capricious.
+ - I was just about to begin writing Mirror Mirror, within about a week of it, when September 11, 2001 happened. I found myself incapable of caring about fiction-making for a number of months.
+ - And it’s a cold place the world, especially when warmed by arsen.
+ - It’s the endlessly thinking about yourself that causes such heart shame.
+ - In summer moonlight, she was dangerously, inebriatingly magnified.
+ - I shall pray for your soul,? promised Nessarose. I shall wait for your shoes,? Elphie answered.
+ - While I pride myself on trying to be creative in all areas of my life, I have occasionally gone overboard, like the time I decided to bring to a party a salad that I constructed, on a huge rattan platter, to look like a miniature scale model of the Gardens of Babylon.
+ - I had written childrens books for 14 years before I published Wicked. And none of them were poorly reviewed, and none of them sold enough for me to be able to buy a bed.
+ - But she woke up just then, and in the moonlight covered herself with a blanket. She smiled at him drowsily and called him “Yero, my hero,” and that melted his heart.
+ - Notice, notice; let noticing take the place of screaming.
+ - The devil is a very big angel, but a very little man.
+ - If you’re ever in doubt, throw a pepper in the air. If it fails to come down, you have gone mad, so don’t trust in anything.
+ - To look into the mirror is to see the future, in blood and rubies.
+ - It’s the place of the story, beginning here, in the meadow of late summer flowers, thriving before the Atlantic storms drive wet and winter upon them all.
+ - Little critters fried like fritters come out crunchy and divine.
+ - Oh now that’s a blueprint for an impossibly rosy future.
+ - The answer of course, is that the clock isn’t meant to measure earthly time, but the time of the soul. Redemption and condemnation time. For the soul, each instant is always a minute short of judgment.
+ - That’s what misbehavior is all about, just a little extra loving being asked for.
+ - Well, the family always was bright, and brightness, as you know, decays brilliantly.
+ - She dreamed of leaving, but she had too little exposure to the world to imagine where to go.
+ - The nature of the world is to be calm, and enhance and support life, and evil is an absence of the inclination of matter to be at peace.
+ - Wrong takes an awful long time to be proven, in my experience.
+ - Yes, I’m nervous. You’ll find in time most people are. They simply learn better how to disguise it, and sometimes, if they’re wise, how to use their anxiety to serve the public good.
+ - To consider what other people might say is hardly a good reason to take action or to defer it. You have your own life to live, Iris, and at its end, the only opinion that amounts to anything is that which God bestows.
+ - I may not be sure if monsters exist, but I’d rather live my life in doubt than be persuaded by a real experience of one.
+ - Have you ever noticed when you look in a mirror, unless youre really depressed or something, the person in the mirror generally looks a little more competent, a little more curious, a little more intelligent than you actually feel yourself to be? They often look more interesting and more soulful.
+ - When the times are a crucible, when the air is full of crisis, those who are the most themselves are the victims.
+ - In the end, all disguises must drop.
+ - The future reshapes the memory of the past in the way it recalibrates significance; some episodes are advanced, others lose purchase.
+ - I mean, evil and boredom. Evil and ennui. Evil and the lack of stimulation. Evil and sluggish blood.
+ - I actually prefer female voices to listen to, mostly, but among the male singers whose voices I like are Jeff Buckley, Art Garfunkel, that sort of voice. Contemporary crooners rather than rockers.
+ - I write because I admire the act of rationalization, of seeking clarity in one’s understanding of the complexities of life, and I’m bad at it. I’m slow. Writing, which is an arduous and slow process, proceeds at the same rate as my sloth-like mind.
+ - Immortality is a chancy thing; it cannot be promised or earned. Perhaps it cannot even be identified for what it is.
+ - The overdressed traveler betrays more interest in being seen than in seeing, while the true traveler knows that the novel world about her serves as the most appropriate accessory.
+ - Why lock yourself in your own cage when someone is handing you a key?
+ - Her sister’s shoes. They sparkeled even in the darkening afternoon. They sparkeled like yellow diamonds, and embers of blood and thorny stars.
+ - Oh, everything is gorgeous once it’s gone.
+ - Everyone dies. It’s a question of where and how, that’s all.
+ - I may not know how to fly but I know how to read, and that’s almost the same thing.
+ - She is no longer I, she is too long ago, she is only she...
+ - The thing about a mirror is this: The one who stares into it is condemned to consider the world from her own perspective.
+ - We live in our tales of ourselves, she thought, and ignore as best we can the contradictions, and the lapses, and the abrasions of plot against our mortal souls...
+ - Birds know themselves not to be at the center of anything, but at the margins of everything. The end of the map. We only live where someone’s horizon sweeps someone else’s. We are only noticed on the edge of things; but on the edge of things, we notice much.
+ - It was mild monsters like these that made Jack the Ripper go after young women, she decided: who could tolerate yielding the world to someone who behaved as if she had given birth to the very world herself?
+ - A male usually had made up his mind before you began to talk to him -so why bother?- but a female, because her mind was more supple, was always prepared to become more disappointed in you than she had yet suspected possible.
+ - I like classical music of the late 19th and early 20th centuries, and I adore Bach above all.
+ - Wisdom is not the understanding of mystery. Wisdom is accepting that mystery is beyond understanding. That’s what makes it mystery.
+ - Was it an accident that I saw Fiyero, I wondered, looking at the manager with new eyes, or is it just that world unwraps itself to you again and again as soon as you are ready to see it anew?
+ - It isn’t whether you do it well or ill, it’s that you do it all.
+ - Not an ugly color, Nanny thought. Just not a human color.
+ - I like to think Im a pretty good-natured guy and pretty civil and probably not ever truly guilty in any serious way of any legal infractions.
+ - That’s all I want- to do no harm.
+ - Only he with the hobbled foot fully knows the beauty of running. Only he with the severed ear can apprehend what the sweetest music must sound like. Our ailments complete us.
+ - Speaking uses us up, speeds us up. Without prayer, that act of confession for merely existing, one might live forever and not know it.
+ - When I write a book, I write very cleanly from page one to the last page. I hardly ever write out of sequence.
+ - I never write a book unless I can’t help it. Something has to bother me, like a mosquito, until I have to do something to relieve the itch.
+ - Waking up was a daily cruelty, an affront, and she avoided it by not sleeping.
+ - Children are wickeder than adults, they have no sense of restraint.
+ - It was deliciously pagan.
+ - Forget us, forget us all, it makes no difference now, but don’t forget we loved it when we were alive.
+ - Of course. You get everything from books.
+ - I don’t like work like that. I am the silent partner. I work through events, I live on the sidelines, I dabble in causes and effects, I watch how the misbegotten creatures of this world live their lives.
+ - His avenging angel had come to call him home. A suicide was waiting for him back in his own world, and by now he ought to have learned enough to get through it successfully.
+ - Small steps to the madhouse still get us there at last.
+ - We only have babies when we’re young enough not to know how grim life turns out.
+ - I learned failure early and mastered it.
+ - To read, even in the half-dark, is also to call the lost forward.
+ - If magic was present, it moved under the skin of the world, beneath the ability of human eyes to catch sight of it.
+ - The truth isn’t a thing of fact or reason. It is simply what everyone agrees on.
+ - No one is exempt from grief.
+ - Some said the original evil was the vacuum caused by the Fairy Queen Lurline leaving us alone here. When goodness removes itself, the space it occupies corrodes and becomes evil and maybe slpits apart and multiplies. So every evil thing is a sign of the absence of deity.
+ - There were more ways to live than the ones given by one’s superiors.
+ - Before catechisms can instill a proper humility, small children know the truth that their own existence has caused the world to bloom into being.
+ - Doubt was much more energy efficient than conviction.
+ - I do love to sing. Had I a longer set of thigh bones and a sweeter voice, I should have loved to be a performer.
+ - Yet who can say how our souls have been stamped by witnessing such a cruel drama? All souls are hostages to their human envelopes, but souls must decay and suffer at such indignity, don’t you agree?
+ - That’s the real power of art, I think. Not to chide but to provoke challenge. Otherwise why bother?
+ - There were people everywhere but no one was mine, and I was no one’s.
+ - It appears history is going to keep happening, despite our hopes for retirement.
+ - The world rarely shrieks its meaning at you. It whispers, in private languages and obscure modalities, in arcane and quixotic imagery, through symbol systems in which every element has multiple meanings determined by juxtaposition.
+ - Evil is an act, not an appetite. How many haven’t wanted to slash the throat of some boor across the dining room table? Present company excepted of course. Everyone has the appetite. If you give in to it, it, that act is evil. The appetite is normal.
+ - He had thought love as a policy made a lot of sense for those who could manage it, and anyone who could manage it belonged in religious life. The rest of us have to struggle with more ordinary love, the common or garden variety: love as a crippling condition. Love as a syndrome.
+ - Cross a man and you struggle, one of you wins, you adjust and go on – or you lie there dead. Cross a woman and the universe is changed, once again, for cold anger requires an eternal vigilance in all matters of slight and offense.
+ - I take responsibility only for the future, not the past. The past can’t hurt you the way the future can.
+ - No, she wasn’t losing language. She was choking on it.
+ - It’s been a long rocky life, with plenty of possibility but too much human ugliness.
+ - Galinda didn’t often stop to consider whether she believed in what she said or not; the whole point of conversations was flow.
+ - When the dawn light is coursing through the slats in the shutters at last, making thin stripes on the floor, she, tossing, decides that for every human soul there must surely be a possible childhood worth living, but once it slips by, there isn’t any reclaiming it or revising it.
+ - It isn’t hard to find evil in this world. Evil is always more easily imagined than good, somehow.
+ - My job is to protect you, Lady Glinda even if you are loosing your mind.
+ - Growth and change were viewed as reactions to conditions met.
+ - The storm dropped a house on her head.
+ - There may be no city in the clouds, but dreaming of it can enliven the spirit.
+ - What goes unnamed remains hard to correct.
+ - The colossal might of wickedness: how we love to locate it massively elsewhere. But so much of it comes down to what each one of us does between breakfast and bedtime.
+ - The world was floods above and fire below.
+ - In a sense, Out of Oz is an examination of how individuals keep going, keep reinventing themselves and their lives, even after life-altering complications have afflicted them.
+ - It’s the work that’s important, not the individual who does it.
+ - She wasn’t afraid of doing good or of resisting evil. She was merely afraid she might not be able to tell the difference.
+ - No one survives in times of war unless they make war their home. How did I get so old and wise, but for welcoming war into my house and making friends with him? Better to befriend the enemy and hang on. Something worse might come along, which might be amusing or might not.
+ - Happy endings are still endings.
+ - Such silly things, children – and so embarrassing – because they keep changing themselves out of shame, out of a need to be loved or something. While animals are born who they are, accept it, and that is that. They live with greater peace than people do.
+ - No wonder Wonderland isn’t funny to read anymore: We live there full time. We need a break from it.
+ - I am a forgettable leaf on a tree.
+
+158 quotes

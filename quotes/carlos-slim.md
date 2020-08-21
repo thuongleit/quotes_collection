@@ -1,0 +1,44 @@
+ - Anyone who is not investing now is missing a tremendous opportunity.
+ - Most people try to make a better world for our children when what they should be doing is making better children for our world.
+ - Live the present intensely and fully, do not let the past be a burden, and let the future be an incentive. Each person forges his or her own destiny.
+ - Building a business and becoming a billionaire is it’s not championship. It’s the competence; the competence in your sector with other companies not looking to have some kind of records in this issue.
+ - Do not allow negative feelings and emotions to control your mind. Emotional harm does not come from others; it is conceived and developed within ourselves.
+ - Competition makes you better, always, always makes you better, even if the competitor wins.
+ - Poverty isn’t solved with donations.
+ - Firm and patient optimism always yields its rewards.
+ - It’s important to give a better country to your children, but it is more important to give better children to your country.
+ - Focus on essentials and try not to get distracted and bogged down by things that don’t add value to the bottom line.
+ - The biggest things in life are not materials.
+ - I love baseball. And American Football, too. But not rugby.
+ - No, my father passed away when I was 13 years old. I was very young.
+ - Work well done is not only a responsibility to yourselves and society; it is also an emotional need.
+ - I still have my laptop but I haven’t used it. I’m a paper man, not electronic.
+ - Well, when I was very young, maybe 12 years, I began to make investments.
+ - It is not important NOT to make mistakes, but the mistakes to be small.
+ - When we face our problems, they disappear. So learn from failure and let success be the silent incentive.
+ - Mistakes are normal and human. Make them small, accept them, correct them, and forget them.
+ - I am convinced that all this poverty in Mexico and in Latin America, like it’s happening in China is the opportunity to grow. It’s an opportunity for investment; it’s an economic activity and to take out poverty is the best investment any person or a person can do in any place.
+ - In this new wave of technology, you can’t do it all yourself, you have to form alliances.
+ - Technology is going to transform people’s lives and society everywhere in the world. I spend most of my time studying new technologies. My main task is to understand what’s going on and try to see where we can fit in.
+ - When we decide to do something, we do it quickly.
+ - Money is not a goal. The goal is to make companies grow, develop, be competitive, be in different areas, be efficient to have a great human team inside the company.
+ - Choose the right employees and then set them loose.
+ - The key is the Internet. The United States is by far the most advanced country in this new digital culture, so we have to be there. The Internet is the heart of this new civilization, and telecommunications are the nervous system, or circulatory system.
+ - If you are in business, you are not enjoying. You are working.
+ - All times are good time for those who know how to work and have the tools to do so.
+ - You cannot make thousands of universities or hundreds of thousands of professors, but with technology and the Internet you can have great courses and make a digital university.
+ - You cannot have people in your organization who are pessimists. They take you to mediocrity.
+ - I studied engineering in the national university, the Universidad Autonoma, in San Ildefonso.
+ - I’ve always said that the better off you are, the more responsibility you have for helping others. Just as I think it’s important to run companies well, with a close eye to the bottom line, I think you have to use your entrepreneurial experience to make corporate philanthropy effective.
+ - You cannot live without doing something.
+ - My mother born in Mexico, but was Lebanese in origin. She born 1902 the same year my father arrived to Mexico when he was 14 years old.
+ - In high school, I loved history. I also loved cosmography, algebra. Mexico is so rich in culture and history, and I have always enjoyed that.
+ - I’ve always said that the better off you are, the more responsibility you have for helping others.
+ - I think that anything that has privileges have responsibility and all people that is clear about their responsibility has compromise.
+ - When there is a crisis, that’s when some are interested in getting out and that’s when we are interested in getting in.
+ - Staying occupied displaces preoccupation and problems, and when we face our problems, they disappear.
+ - You have to have an international reference of competition. You have to go beyond your home.
+ - My parents weren’t artistic, but I was always surrounded by beautiful things. And Mexico is a country which has experienced thousands of years of art and culture.
+ - All businesses make mistakes. The trick is to avoid large ones.
+
+42 quotes

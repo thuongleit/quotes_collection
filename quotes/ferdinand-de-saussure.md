@@ -1,0 +1,28 @@
+ - Without language, thought is a vague, uncharted nebula.
+ - I’m almost never serious, and I’m always too serious. Too deep, too shallow. Too sensitive, too cold hearted. I’m like a collection of paradoxes.
+ - Time changes all things; there is no reason why language should escape this universal law.
+ - The connection between the signifier and the signified is arbitrary.
+ - Everyone, left to his own devices, forms an idea about what goes on in language which is very far from the truth.
+ - A linguistic system is a series of differences of sound combined with a series of differences of ideas.
+ - Written forms obscure our view of language. They are not so much a garment as a disguise.
+ - In the lives of individuals and societies, language is a factor of greater importance than any other. For the study of language to remain solely the business of a handful of specialists would be a quite unacceptable state of affairs.
+ - Language furnishes the best proof that a law accepted by a community is a thing that is tolerated and not a rule to which all freely consent.
+ - Speech has both an individual and a social side, and we cannot conceive of one without the other.
+ - Within speech, words are subject to a kind of relation that is independent of the first and based on their linkage: these are syntagmatic relations, of which I have spoken.
+ - Of all social institutions language is least amenable to initiative. It blends with the life of society, and the latter, inert by nature, is a prime conservative force.
+ - Linguistics will have to recognise laws operating universally in language, and in a strictly rational manner, separating general phenomena from those restricted to one branch of languages or another.
+ - It is one of the aims of linguistics to define itself, to recognise what belongs within its domain. In those cases where it relies upon psychology, it will do so indirectly, remaining independent.
+ - The very special place that a language occupies among institutions is undeniable, but there is much more to be said-, a comparison would tend rather to bring out the differences.
+ - Any psychology of sign systems will be part of social psychology – that is to say, will be exclusively social; it will involve the same psychology as is applicable in the case of languages.
+ - A language presupposes that all the individual users possess the organs.
+ - In fact, from then on scholars engaged in a kind of game of comparing different Indo-European languages with one another, and eventually they could not fail to wonder what exactly these connections showed, and how they should be interpreted in concrete terms.
+ - In general, the philological movement opened up countless sources relevant to linguistic issues, treating them in quite a different spirit from traditional grammar; for instance, the study of inscriptions and their language. But not yet in the spirit of linguistics.
+ - Psychologically our thought-apart from its expression in words-is only a shapeless and indistinct mass.
+ - The critical principle demanded an examination, for instance, of the contribution of different periods, thus to some extent embarking on historical linguistics.
+ - The first of these phases is that of grammar, invented by the Greeks and carried on unchanged by the French. It never had any philosophical view of a language as such.
+ - Henceforth, language studies were no longer directed merely towards correcting grammar.
+ - Outside speech, the association that is made in the memory between words having something in common creates different groups, series, families, within which very diverse relations obtain but belonging to a single category: these are associative relations.
+ - Nearly all institutions, it might be said, are based on signs, but these signs do not directly evoke things.
+ - It is useful to the historian, among others, to be able to see the commonest forms of different phenomena, whether phonetic, morphological or other, and how language lives, carries on and changes over time.
+
+26 quotes

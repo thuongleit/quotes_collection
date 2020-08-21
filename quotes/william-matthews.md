@@ -1,0 +1,30 @@
+ - The first law of success is concentration – to bed all the energies to one point, and to go directly to that point, looking neither to the right nor the left.
+ - Be methodical if you would succeed in business, or in anything. Have a work for every moment, and mind the moment’s work.
+ - It cannot be too often repeated that it is not helps, but obstacles, not facilities, but difficulties that make men.
+ - Strive for excellence in your calling, but as a subsidiary to this: Do not fail to enrich your whole capital as man. To be a giant, and not a dwarf in your profession, you must always be growing. The man that has ceased to go up intellectually has begun to go down.
+ - Proverbs should be sold in pairs, a single one being but a half truth.
+ - With the “civilized” person contentment is a myth. From the cradle to the grave they are forever longing and striving after something better, an indefinable something, some new object yet unattained.
+ - The smallest thing, well done, becomes artistic.
+ - There is a wide difference between general acquaintance and companionship. You may salute a man and exchange compliments with him daily, yet know nothing of his character, his inmost tastes arid feelings.
+ - It is not, of course, the subject that is or isn’t dull, but the quality of attention that we do or do not pay to it. Dull subjects are those we have failed.
+ - One well-cultivated talent, deepened and enlarged, is worth one hundred shallow faculties.
+ - What lasting progress was ever made in social reformation, except when every step was insured by appeals to the understanding and the will?
+ - What a man does is the real test of what a man is.
+ - The same disappointments in life will chasten and refine one man’s spirit, embitter another’s.
+ - We all have two childhoods, the unhappy one and the happy one.
+ - God has so framed us as to make freedom of choice and action the very basis of all moral improvement, and all our faculties, mental and moral, resent and revolt against the idea of coercion.
+ - Go to the desk. Stay at the desk. Thrive at the desk.
+ - Unless a man has trained himself for his chance, the chance will only make him ridiculous.
+ - The petty cares, the minute anxieties, the infinite littles which go to make up the sum of human experience, like the invisible granules of powder, give the last and highest polish to a character.
+ - In the world a man lives in his own age; in solitude in all ages.
+ - Criminals are opportunists. If you’ve got a booming market, they’re going to get away with more fraud.
+ - Talking, is a digestive process which is absolutely essential to the mental constitution of the man who devours many books.
+ - No man ever sailed over exactly the same route that another sailed over before him; every man who starts on the ocean of life arches his sails to an untried breeze.
+ - The fullest instruction, and the fullest enjoyment are never derived from books, till we have ventilated the ideas thus obtained in free and easy chat with others.
+ - As with the acquisition, so with the use of money; they way in which a man spends it is often one of the surest tests of character.
+ - As frost, raised to its utmost intensity, produces the sensation of fire, so any good quality, overwrought and pushed to excess, turns into its own contrary.
+ - The easiest way for me to lose interests is to know too much of what I want to say before I begin.
+ - The countenance may be rightly defined as the title page which heralds the contents of the human volume, but like other title pages, it sometimes puzzles, often misleads, and often says nothing to the purpose.
+ - The power of music that poetry lacks is the ability to persuade without argument.
+
+28 quotes

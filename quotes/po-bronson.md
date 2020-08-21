@@ -1,0 +1,27 @@
+ - We all make mistakes, but we need to learn from them and move on. You can own a mistake, or the mistake will own you.
+ - If you want to give yourself a fair chance to succeed, never expect too much too soon.
+ - There is nothing more genuine than breaking away from the chorus to learn the sound of your own voice.
+ - Allow for many paths to your goal. Do not fixate on one path, because then you are likely to give up when that path is blocked.
+ - Failure is hard, but success is far more dangerous. If you’re successful at the wrong thing, the mix of praise and money and opportunity can lock you in forever.
+ - Love that has been tested is far more awe-inspiring than love that has never known anything but bliss.
+ - Interests evolve into hobbies or volunteer work, which grow into passions. It takes time, more time than anyone imagines.
+ - Curiosity is a raw and genuine sign from deep inside our tangled psyches, and we’d do well to follow the direction it points us in.
+ - Anytime you exhaust yourself trying to relax, that’s active leisure.
+ - There’s a powerful transformative effect when you surround yourself with like-minded people. Peer pressure is a great thing when it helps you accomplish your goals instead of distracting you from them.
+ - We’ve all lost something along the way.
+ - As I get older, I’ve learned to listen to people rather than accuse them of things.
+ - I used to want to change the world. Now I’m open to letting it change me.
+ - Write first. Worry about getting an agent or publisher later. Write it first. Prove you can do it and then others will listen. Tons of people talk about books they want to write. Far fewer are those who actually complete that vision. Don’t be a talker.
+ - Who you are is more important than what you do. The goal is to bring what you do in alignment with who you are, so you don’t end up being someone you don’t want to be.
+ - The tougher the times, the more clarity you gain about the difference between what really matters and what you only pretend to care about.
+ - Success is not measured by bestseller lists. Certain types of great books sell very well; other types of great books don’t sell a lot. But they’re both great.
+ - Obese kids watch no more television than kids who aren’t obese. All the thin kids watch massive amounts of television, too. There is no statistical correlation between obesity and media use, period.
+ - A piece of writing has to seduce the reader; it has to suspend disbelief and earn the reader’s trust.
+ - How often a mother initiates a conversation with her child is not predictive of the language outcomes – what matters is, if the infant initiates, whether the mom responds.
+ - People thrive by focusing on the question of who they really are – and connecting that to work that they truly love .
+ - I used to use business to make money. But I’ve learned that business is a tool. You can use it to support what you believe in.
+ - I think when a reader reads a whole book – which takes six to ten hours – that’s kind of a gift to the author. The gift of close, undivided attention. To who else do we listen so closely for eight straight hours? And when readers give that gift to me, I’m grateful for it.
+ - Books have been my classroom and my confidant. Books have widened my horizons. Books have comforted me in my hardest times. Books have changed my life.
+ - It surprises me how often we hold ourselves back until we have no choice.
+
+25 quotes

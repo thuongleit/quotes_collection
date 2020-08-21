@@ -1,0 +1,24 @@
+ - A painted surface is a real, living form.
+ - In art there is a need for truth, not sincerity.
+ - I have established the semaphore of Suprematism. I have beaten the lining of the colored sky, torn it away and in the sack that formed itself, I have put color and knotted it. Swim! The free white sea, infinity, lies before you.
+ - I transformed myself in the zero of form and emerged from nothing to creation, that is, to Suprematism, to the new realism in painting – to non-objective creation.
+ - By suprematism I mean the supremacy of pure feeling in creative art.
+ - To the Suprematist the visual phenomena of the objective world are, in themselves, meaningless; the significant thing is feeling, as such, quite apart from the environment in which it is called forth.
+ - Only dull and impotent artists screen their work with sincerity. In art there is need for truth, not sincerity.
+ - Every real form is a world. And any plastic surface is more alive than a face from which stares a pair of eyes and a smile.
+ - For the Suprematist, the proper means is the one that provides the fullest expression of pure feeling and ignores the habitually accepted object. The object in itself is meaningless to him, and the ideas of the conscious mind are worthless.
+ - The square is not a subconscious form. It is the creation of intuitive reason. The face of the new art. The square is a living, regal infant. The first step of pure creation in art.
+ - Shouldn’t it give us pause that the oldest works of art are as impressive today in their beauty and spontaneity as they were many thousands of years ago?
+ - Painting is the aesthetic side of the object but it has never been original, has never been its own goal.
+ - With the most primitive means the artist creates something which the most ingenious and efficient technology will never be able to create.
+ - I have broken the blue boundary of color limits, come out into the white; beside me comrade-pilots swim in this infinity.
+ - There is movement and movement. There are movements of small tension and movements of great tension and there is also a movement which our eyes cannot catch although it can be felt. In art this state is called dynamic movement.
+ - Color is the essence of painting, which the subject always killed.
+ - I ripped through the blue shade of the constraints of color.
+ - The appearances of natural objects are in themselves meaningless; the essential thing is feeling – in itself and completely independent of the context in which it has been evoked.
+ - Everywhere there is craft and technique; everywhere there is artistry and form. Art itself, technique, is ponderous and clumsy, and because of its awkwardness it obstructs that inner element...
+ - Man’s skull represents the same infinity for the movement of conceptions. It is equal to the universe, for in it is contained all that sees in it.
+ - I perceived that the ‘thing’ and the ‘idea’ were taken to be equivalents of feeling, and understood the lie of the world of will and idea. Is the milk bottle the symbol of milk?
+ - Painters were also attorneys, happy storytellers of anecdote, psychologists, botanists, zoologists, archaeologists, engineers, but there were no creative painters.
+
+22 quotes

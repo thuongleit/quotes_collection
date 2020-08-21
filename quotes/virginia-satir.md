@@ -1,0 +1,47 @@
+ - We must not allow other people’s limited perceptions to define us.
+ - Life is not what it’s supposed to be. It’s what it is. The way you cope with it is what makes the difference.
+ - I want to love you without clutching, appreciate you without judging, join you without invading, invite you without demanding, leave you without guilt, criticize you without blaming, and help you without insulting. If I can have the same from you, then we can truly meet and enrich each other.
+ - We get together on the basis of our similarities; we grow on the basis of our differences.
+ - We need 4 hugs a day for survival. We need 8 hugs a day for maintenance. We need 12 hugs a day for growth.
+ - I am me and I am okay.
+ - Problems are not the problem; coping is the problem.
+ - I own me, and therefore, I can engineer me. I am me, and I am Okay.
+ - The Problem is never the problem! It is only a symptom of something much deeper.
+ - People prefer the certainty of misery to the misery of uncertainty.
+ - Communication is to relationships what breath is to life.
+ - Feelings of worth can flourish only in an atmosphere where individual differences are appreciated, mistakes are tolerated, communication is open, and rules are flexible – the kind of atmosphere that is found in a nurturing family.
+ - I want you to get excited about who you are, what you are, what you have, and what can still be for you. I want to inspire you to see that you can go far beyond where you are right now.
+ - We need to see ourselves as basic miracles.
+ - As a therapist, I am a companion. I try to help people tune into their own wisdom.
+ - The message sent is not always the message received.
+ - Our biggest problem as human beings is not knowing that we don’t know.
+ - Many people are living in an emotional jail without realizing it.
+ - The full life is filled with vulnerability, not defense. You face whatever feeling there is.
+ - Adolescents are not monsters. They are just people trying to learn how to make it among the adults in the world, who are probably not so sure themselves.
+ - I believe the greatest gift I can conceive of having from anyone is to be seen by them, heard by them, to be understood and touched by them.
+ - The symbol in Chinese for crisis is made up of two ideographs: one means danger, the other means opportunity. This symbol is a reminder that we can choose to turn a crisis into an opportunity or into a negative experience.
+ - Once a human being has arrived on this earth, communication is the largest single factor determining what kinds of relationships he makes with others and what happens to him in the world about him.
+ - Your responses to the events of life are more important than the events themselves.
+ - It is O. K. for me to feel angry and to express it in responsible ways.
+ - I have talked about choosing rather than acting from compulsion. When you feel that you have to live according to someone else’s direction or live so that you never disappoint or hurt anybody, then your life is a continual assessment of whether or not you please other people.
+ - Every word, facial expression, gesture, or action on the part of a parent gives the child some message about self-worth. It is sad that so many parents don’t realize what messages they are sending.
+ - It is now clear to me that the family is a microcosm of the world. To understand the world, we can study the family: issues such as power, intimacy, autonomy, trust, and communication skills are vital parts underlying how we live in the world. To change the world is to change the family.
+ - Taste everything, but swallow only what fits.
+ - We can learn something new anytime we believe we can.
+ - I give life to that which I notice. What I don’t notice dies.
+ - The recommended daily requirement for hugs is: four per day for survival, eight per day for maintenance, and twelve per day for growth.
+ - I want to appreciate you without judging. Join you without invading. Invite you without demanding. Leave you without guilt.
+ - I think if I have one message, one thing before I die that most of the world would know, it would be that the event does not determine how to respond to the event. That is a purely personal matter. The way in which we respond will direct and influence the event more than the event itself.
+ - Put together all the existing families and you have society. It is as simple as that. Whatever kind of training took place in the individual family will be reflected in the kind of society that these families create.
+ - What lingers from the parent’s individual past, unresolved or incomplete, often becomes part of her or his irrational parenting.
+ - My dream is to make families a place where adults with high self esteem can develop. I think we have reached a point where if we don’t get busy on dreams of this sort, our end is in sight. We need a world that is as good for human beings as it is for technology.
+ - So much is asked of parents, and so little is given.
+ - It’s sad that children cannot know their parents when they were younger; when they were loving, courting, and being nice to one another. By the time children are old enough to observe, the romance has all too often faded or gone underground.
+ - No one’s fingerprints are exactly the same as anyone else’s.
+ - I know people can change-right down to my bones, through every cell, in every fiber of my body-I now that people can change. It is just a question of when and in what context.
+ - You have learned what you have learned very well. It has helped you survive.
+ - A growing body of clinical observation has pointed to the conclusion that the family therapy must be oriented to the family as a whole.
+ - Negotiating the adolescent stage is neither quick nor easy.
+ - You have all played a significant part in my development of loving. As a result, my life has been rich and full, so I leave feeling very grateful.
+
+45 quotes

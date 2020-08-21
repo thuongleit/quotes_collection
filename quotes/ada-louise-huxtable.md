@@ -1,0 +1,28 @@
+ - Real estate is the closest thing to the proverbial pot of gold.
+ - Beauty or beast, the modern skyscraper is a major force with a strong magnetic field. It draws into its physical being all of the factors that propel and characterize modern civilization. The skyscraper is the point where art and the city meet.
+ - If the British are a nation of shopkeepers, Americans are a nation of shoppers.
+ - Postmodernism is a freewheeling, unfettered, and unapologetic pursuit of style.
+ - New York, thy name is irreverence and hyperbole. And grandeur.
+ - Only a Californian would have observed that it is becoming increasingly difficult to tell the real fake from the fake fake.
+ - The building is a national tragedy – a cross between a concrete candy box and a marble sarcophagus in which the art of architecture lies buried.
+ - Clutter in its highest and most organized form is called collecting.
+ - Symbol and metaphor are as much a part of the architectural vocabulary as stone and steel.
+ - Nothing was more up-to-date when it was built, or is more obsolete today, than the railroad station.
+ - All autonomous agencies and authorities, sooner or later, turn into self-perpetuating strongholds of conventional thought and practice.
+ - Tossed into the Secaucus graveyard are about 25 centuries of classical culture and the standards of style, elegance and grandeur that it gave to the dreams and constructions of Western man. That turns the Jersey wasteland into a pretty classy dump.
+ - Good architecture is still the difficult, conscientious, creative, expressive planning for that elusive synthesis that is a near-contradiction in terms: efficiency and beauty.
+ - Surrogate experience and surrogate environments have become the American way of life. Distinctions are no longer made, or deemed necessary, between the real and the false; the edge usually goes to the latter, as an improved version with defects corrected – accessible and user-friendly...
+ - Every generation tailors history to its taste.
+ - It is the rare architect who does not hope in his heart to design a great building and for whom the quest is not a quiet, consuming passion.
+ - Every age cuts and pastes history to suit its own purposes; art always has an ax to grind.
+ - Every creative act draws on the past whether it pretends to or not. It draws on what it knows. There’s no such thing, really, as a creative act in a vacuum.
+ - Some people wait constructively; they read or knit. I have watched some truly appalling pieces of needlework take form. Others – I am one of them – abandon all thought and purpose to an uneasy vegetative states.
+ - No matter what an architect may be at home, he becomes a monumentalist when he comes to Washington.
+ - There are two kinds of people in the world – those who have a horror of a vacuum and those with a horror of the things that fill it. Translated into domestic interiors, this means people who live with, and without, clutter.
+ - An excellent job with a dubious undertaking, which is like saying it would be great if it wasn’t awful.
+ - What counts more than style is whether architecture improves our experience of the built world; whether it makes us wonder why we never noticed places in quite this way before.
+ - The age of Lincoln and Jefferson memorials is over. It will be presidential libraries from now on.
+ - A disaster where marble has been substituted for imagination.
+ - The New York Hilton is laid out with a competence that would make a computer blush.
+
+26 quotes

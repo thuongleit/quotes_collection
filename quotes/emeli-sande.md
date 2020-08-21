@@ -1,0 +1,29 @@
+ - It would be sad if we lost our instinct and our courage to love and protect.
+ - I’d be smiling if I wasn’t so desperate. I’d be patient if I had the time.
+ - I try to speak of a love that not necessarily romantic. I think there is so much love between people and so much love people want to give but it’s harder and harder these days to show that, to celebrate that, you know?
+ - Sometimes you feel like a very small drop in this huge ocean.
+ - People that come to my shows are definitely people that feel outsiders. They feel like I don’t feel sexy, I don’t feel like – I can’t go out every night on Friday and I can’t connect to that, and I feel so much pressure to do that.
+ - I always wanted to be a musician from when I was kid. It was always a massive dream of mine. School was also really really important to me and having an education was top of my priority. So I really wanted to have a degree before I tried anything in the music industry.
+ - I feel like ‘Next To Me’ is a great introduction because it’s a simple song that has a simple message for me. I wanted to introduce something that lyrically I’m proud of and introduces me both as an artist and as a writer.
+ - I was so shy and so quiet, and the only time I had my own voice and I could really connect with people was when I was singing or on stage.
+ - Any song I have to work on longer than a day, I just leave it. It’s not gonna work. Everything that’s good is really instant.
+ - Songwriting is my main thing. I know that I’ll do that for the rest of my life.
+ - I wasn’t intentionally trying to create my own path or be original, it was just I needed to say certain things and I needed to express myself, and that’s how it came out.
+ - Anytime I write something that’s trying to be too smart, it doesn’t work.
+ - I wanted to find a way to speak for people. It was important for me, because so many people spoke for me when I was a kid and made me feel less invisible, and I wanted kids or whoever is listening to my music not to feel so voiceless.
+ - I’m not too bothered about what category my music goes in and there’s no point in limiting in who you can reach, but I want it to be respected.
+ - From when I was a kid I wanted to write. It was so important to me that I was writing my own material.
+ - I couldn’t help but feel very different from everybody, so I think that’s why I found such a big world in music, and that’s why I kind of – I was an introvert as a kid, but I loved the piano, and that’s where I felt at home.
+ - I was very quiet until I got at the piano, and weekends, lunch breaks, after school, before school, I was just making music.
+ - If I was singing like somebody else, then it was almost like I was expressing myself like somebody else. So it was always a very original thing for me. It’s my voice, it’s my diary, it’s the way I connect with people.
+ - I was inspired by people like Joni Mitchell and Carole King and Stevie and “Storytellers.” People that could really change the world with their lyric, no matter who sung the song, they had still been the source of that message. So that’s what I really aim for.
+ - I tried to bang down a lot of doors but Virgin were the only label who believed in what I was doing. I ended up with the label that understood what I was trying to do.
+ - I was finding it very difficult to find a label that understood what I wanted to do and really believed that people wanted to hear something honest and a little bit different. So, I did feel a bit like a clown. You’re knocking on everyone’s door trying to get them to believe what you’re doing.
+ - I always knew I wanted to be a musician, and I always knew I wanted to write, ’cause the people I was listening to all wrote. I never thought it was an option to sing anyone else’s songs.
+ - I mean, there’ll always be room for big productions and everything but it’s good to see the other side.
+ - Melody is the first thing that comes to me when I’m songwriting. I learned piano classically first, and then I went into soul, and so melody has always been the first. It’s so important.
+ - I wanted to make an album that melodically people can connect to; something that reflects our times and the kinds of difficulties we face.
+ - I want to speak for people that may not feel like they’re being spoken for at the moment. And I want to make a connection between the world around us and the charts.
+ - I don’t know if I was as ambitious as to change the world, but I do feel like – the reason why I called the album “Our Version of Events” was that I feel a lot of people are not represented in pop music and popular culture.
+
+27 quotes

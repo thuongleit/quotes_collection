@@ -1,0 +1,68 @@
+ - I had to get a second passport in a hurry.
+ - I have about concluded that wealth is a state of mind, and that anyone can acquire a wealthy state of mind by thinking rich thoughts.
+ - There is a happy land, Far, far away, Where Saints in glory stand, Bright, bright as day.
+ - We rise in glory as we sink in pride.
+ - Once the Xerox copier was invented, diplomacy died.
+ - Nothing is illegal if one hundred businessmen decide to do it.
+ - There’s no problem on the planet that can’t be solved without violence. That’s the lesson of the civil rights movement.
+ - The commercialization of sport is the democratization of sport.
+ - It is a blessing to die for a cause, because you can so easily die for nothing.
+ - Nike has always been a business about excellence and achievement.
+ - What Iran wants and what North Korea wants is respect.
+ - I always quoted to my parents from Kahlil Gibran, “The Prophet.” Your children are not your children. They come through you, but not from you. You can give them your love, but not your thoughts, for they come from a land that you cannot enter, not even in your wildest dreams.
+ - Surely, if we can land a spaceship on Mars, we can certainly put a voter ID card in the hand of every eligible voter.
+ - Influence is like a savings account, the less you use it, the more you’ve got.
+ - Any racial reconciliation we’ve had in this country has come not out of confrontation but out of a spirit of reconciliation. If we continue to practice an eye for an eye and a tooth for a tooth, we’ll eventually end up with a land of people who are blind and toothless.
+ - My daddy was determined to make me a dentist and a baseball player. And I loved my daddy but I wasted four years of college trying to do what he wanted me to do, and not what I felt I wanted to do.
+ - It stands to reason that unloved and unwanted children are going to get into crime.
+ - My hope for my children must be that they respond to the still, small voice of God in their own hearts.
+ - On the soft bed of luxury many kingdoms have expired.
+ - I wouldn’t listen to my parents, but I found out that I absorbed. I never heard what they said – told me – but I did what they did.
+ - I was raised that way: don’t get mad, get smart.
+ - We think it is complicated to change the world. Change comes little by little. Nothing worthwhile can happen in one generation.
+ - In a sane, civil, intelligent and moral society, you don’t blame poor people for being poor.
+ - The Soviet Union is going to have a human-rights explosion. You’ll have hundreds of thousands of dissidents.
+ - The unsung heroes of the civil rights movement were always the wives and the mothers.
+ - Martin Luther King was talking about racism, war and poverty. I think we have made progress enormous progress in racism and war, but we have made little or no progress in poverty. And it’s because the economy has gotten more and more complex as we have globalized.
+ - I’m against voter fraud in any form, and I have long supported a national voter ID card. But ID cards need not – and must not – restrict voting rights in any way, shape or form.
+ - I’ve been dyslexic and had Attention Deficit Disorder at some time in my life. I still read with a highlighter, but I’ve always loved to read.
+ - Martin Luther King said America had given a bad check to black people.
+ - Look at those they call unfortunate and at a closer view, you’ll find many of them are unwise.
+ - If you’re a preacher, you talk for a living, so even if you don’t make sense, you learn to make nonsense eloquently.
+ - I think we’ve made tremendous progress on racism. We’ve even made progress on war. We’ve made almost no progress on poverty.
+ - Do not try to live your children’s lives out of your own frustrations.
+ - Affirmative action is an effort to include every aspect of society in the decision making.
+ - I’ve always seen the Olympics as a place where you could act out your differences on the athletic field with a sense of sportsmanship and fairness and mutual respect.
+ - I believe in humanitarian capitalism, and there are good people on Wall Street.
+ - Slavery didnt break up the black families as much as liberal welfare rules.
+ - Nobody black had learned anything from the Letter from the Birmingham Jail or from the I Have a Dream speech. That was a revelation of white people.
+ - You have to expect that if you cuss out the world, The world is going to cuss back.
+ - In a world where change is inevitable and continuous, the need to achieve that change without violence is essential for survival.
+ - I tried. But not everybody thought so.
+ - I like my life. I’ve had a good life. I think the reason is my parents taught me that life is a burden. But if you take it one day at a time, it’s an easy burden.
+ - Some kind of affirmative action is important in a democracy and for economic competitiveness and national security. The Army was the first to realize that you had to have desegregation of a military to have it working properly.
+ - The man with courage is a majority.
+ - Moral power is probably best when it is not used. The less you use it the more you have.
+ - More and more I find I’m really impressed with how much my son knows and how much he thinks like me. But he never would agree with me and he never would listen to me on anything.
+ - President Jimmy Carter was a citizen soldier. Ironically, he was considered weak because he didn’t kill anybody and he didn’t get anyone killed.
+ - No one who’s white thinks he’s innocent. No one who’s black thinks he’s guilty.
+ - No nation as rich as ours should have so many people isolated on islands of poverty in such a sea of material wealth.
+ - What we forget is that African Americans made the largest contribution to America, economically, before the Civil War of any sector of society. I read that the railroads were worth about $2 billion, but slavery was a $3 billion asset.
+ - Civil rights leaders are involved in helping poor people. That’s what I’ve been doing all my life.
+ - I was much more comfortable and a much better congressman running in a district that was 37 percent black, where I had to have a white constituency to get elected, than I would have been if I was in a 75 percent black district.
+ - If all I get is a little controversy for speaking the truth, if I did less, I would not be worth living.
+ - Freedom is a struggle, and we do it together. Not only together as black citizens, but black and white together.
+ - If I hadn’t been so outspoken, Jimmy Carter wouldn’t have wanted me.
+ - Having personally watched the Voting Rights Act being signed into law that August day, I can’t begin to imagine how we could have all been so wrong in believing that more Americans would vote once they were all truly free to do so.
+ - The two are not mutually exclusive, but we think we can have wealth without good ideas and without values and without a clear vision. Wealth without vision is insanity.
+ - I have committed my life to helping the poor, and I believe that if more companies followed Wal-Mart’s lead in providing opportunity and savings to those who need it most, more Americans battling poverty would realize the American dream.
+ - Everybody is determined by his own experience.
+ - Once the Xerox copier was invented, private diplomacy died. There’s no such thing as secrecy. It’s just a question of whether it’s leaked or revealed openly.
+ - When people ask where I studied to be an ambassador, I say my neighborhood and my school. I’ve tried to tell my kids that you don’t wait until you’re in high school or college to start dealing with problems of people being different. The younger you start, the better.
+ - Violence is not more efficient than non-violence.
+ - Wishing of all strategies, is the worst.
+ - We were trying to transform America, not triumph over white folk.
+ - To find people who don’t want anything is rare.
+ - Both the brightness and the spectrum of the X-rays are very different from what theory predicts.
+
+66 quotes

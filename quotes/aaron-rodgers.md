@@ -1,0 +1,44 @@
+ - I know I’m capable of greatness, and I’m expecting to reach that level.
+ - The Lord is my Rock. He has always been there, always present at good times and bad; and to me when I feel His presence, my life is full.
+ - I am always struggling in finding time to daily grow in my faith. If you are not in the Word or focusing on Christ, or into prayer, you can’t help but slip at times.
+ - As a kid, I always wanted to obviously win a Super Bowl. Now that I’ve got one, it’s like, ‘Now what?’ Let’s go get another one!
+ - As a man of faith, God doesn’t bring you to things that you can’t get through. He doesn’t put you in a spot and then leave you out to dry.
+ - I’ve always been supremely confident in my abilities. But the biggest confidence boost is when the guys around you, you feel like they have confidence in you.
+ - Tonight is not a setback. It’s just a learning experience.
+ - If I can slow it down in my mind, things will be fine.
+ - Leadership can’t be forced or contrived. It has to be your personality.
+ - I think very highly of myself. I think I’m capable of a lot of things on the field.
+ - If we can string together some wins this year, maybe I’ll be a close second-or third behind Bart Starr-on their favorite quarterback list.
+ - Yeah, I want to be liked, obviously. Everybody does.
+ - The pressure I put on myself is the only pressure I’m feeling once I get into the game.
+ - I’m always looking for challenges.
+ - I’ve always seemed to have my best performances when I’m under the most pressure.
+ - The challenge to be the best is what drives me and to just improve my body every day.
+ - As long as I have my legs and commitment to the team, then I’ll keep playing.
+ - The coaches can only take you so far. You have to want to learn and work.
+ - I think as you get older, you realize there’s always going to be critics. Critics are going to win every time because they can change their critique based on the stats and their own personal feelings.
+ - I think you can train yourself to block out some of that pressure and replace it with confidence. It’s about preparation, and the more prepared I am, the less pressure I feel and the more confident I am. As your confidence grows, it’s only natural that the pressure you feel diminishes.
+ - R-E-L-A-X. I’m still getting paid millions of dollars.
+ - The QB is going to be judged, fair or unfair, on success in the playoffs. You remember QBs who have won 3 or 4 Super Bowls.
+ - I’ve got the 30 drive right now. You turn 30, I don’t know, life is exciting again; thirties is when you’ve got it all figured out. You start reaching some of your goals, and achieving some great things.
+ - It’s named the Lombardi Trophy for a reason, because we play and live in Titledown. We’ve got the best fans, and I can’t wait to go home and see those fans and bring home the Lombardi Trophy.
+ - Performing at my best is important to me and should be to everyone. I am blessed that my dad is a chiropractor. Getting adjusted regularly – along with practicing other good health habits that my mom helped me to establish – are all part of my goal to win in life and on the field.
+ - I’m not playing for anybody but the guys in this locker room.
+ - I think being recognized more is something you have to get used to, whether it’s your homeland or when you’re traveling. People recognize me from my play or a commercial I’ve done. It’s just a normal part of life.
+ - I know a lot of friends and family who were Joe Montana fans, where it didn’t matter how well Steve Young did. They weren’t going to cheer for him because he wasn’t Joe Montana.
+ - I know the pressure I’m under. I know who I’m following.
+ - Getting adjusted regularly is part of my goal to win in life and on the field.
+ - Aaron Rodgers, starting quarterback – that just has a good ring to it.
+ - I want us to be a connected team-on and off the field.
+ - I think the talent is there to get to Super Bowl 5.
+ - The guys who stick around are the smartest guys and the guys who are the most self-driven. You have to have drive. The coaches can only take you so far. You have to want to learn and work.
+ - The butterflies I get are not if somebody boos me in the crowd, or somebody talks trash about me during the week, or somebody on ESPN rips me. It’s the pressure that I’m putting on myself.
+ - You can’t turn the ball over and expect to win.
+ - He cares about the people involved, but I don’t think he’s a big football fan.
+ - I think the guys are starting to rally around my leadership style and the way I do things. I’ve been waiting for this opportunity my whole life.
+ - Thankfully we had a big drive there in the fourth quarter after the fumble to put us up 11, and then the big drive to finish the game.
+ - I try to be as courteous as possible and sometimes try to tell my fans that as much as I appreciate their support, there are times where I need to be able to have an uninterrupted dinner or not have to take a bunch of pictures or just be able to do some of the normal things.
+ - It’s a special honor to be one of the leaders of this football team. But I said it once, I’ll say it again, no one person wins a game by themselves. Individually, it’s top of the mountain, my sport, my profession. It’s what you dream about as a kid.
+ - Playing behind a first-ballot Hall of Famer, who also is the all-time record holder for consecutive starts by a quarterback, it’s a different mind-set. You just have to challenge yourself in ways that you never challenged yourself before.
+
+42 quotes

@@ -1,0 +1,68 @@
+ - What will survive of us is love.
+ - I have no enemies. But my friends don’t like me.
+ - What are days for? Days are where we live. They come, they wake us Time and time over. Theyare to be happy in: Where can we live but days?
+ - Poetry should begin with emotion in the poet, and end with the same emotion in the reader. The poem is simply the instrument of transferance.
+ - Novels seem to me to be richer, broader, deeper, more enjoyable than poems.
+ - Man hands on misery to man. It deepens like a coastal shelf. Get out as early as you can, and don’t have any kids yourself.
+ - I have a sense of melancholy isolation, life rapidly vanishing, all the usual things. It’s very strange how often strong feelings don’t seem to carry any message of action.
+ - So many things I had thought forgotten Return to my mind with stranger pain: Like letters that arrive addressed to someone Who left the house so many years ago.
+ - I am beginning to think of the human imagination as a fruit machine on which victories are rare and separated by much vain expense, and represent a rare alignment of mental and spiritual qualities that normally are quite at odds.
+ - How little our careers express what lies in us, and yet how much time they take up. It’s sad, really.
+ - And immediately Rather than words comes the thought of high windows: The sun-comprehending glass, And beyond it, the deep blue air, that shows Nothing, and is nowhere, and is endless.
+ - Death: the anaesthetic from which none come round.
+ - Originality is being different from oneself, not others.
+ - Uncontradicting solitude Supports me on its giant palm; And like a sea-anemone Or simple snail, there cautiously Unfolds, emerges, what I am.
+ - On me your voice falls as they say love should, Like an enormous yes.
+ - Here is an unfenced existance.
+ - They say eyes clear with age.
+ - In everyone there sleeps. A sense of life lived according to love. To some it means the difference they could make. By loving others, but across most it sweeps. As all they might have done had they been loved. That nothing cures.
+ - He married a woman to stop her getting away Now she’s there all day.
+ - A good poem about failure is a success.
+ - Only in books the flat and final happens, Only in dreams we meet and interlock...
+ - Most things may never happen: this one will.
+ - Depression hangs over me as if I were Iceland.
+ - As a child, I thought I hated everybody, but when I grew up I realized it was just children I didn’t like.
+ - Never such innocence, Never before or since, As changed itself to past Without a word – the men Leaving the gardens tidy, The thousands of marriages Lasting a little while longer: Never such innocence again.
+ - Only one ship is seeking us, a black-Sailed unfamiliar, towing at her backA huge and birdless silence. In her wakeNo waters breed or break.
+ - But superstition, like belief, must die...
+ - The chromatic scale is what you use to give the effect of drinking a quinine martini and having an enema simultaneously.
+ - I can’t understand these chaps who go round American universities explaining how they write poems: It’s like going round explaining how you sleep with your wife.
+ - Why should I let the toad work Squat on my life? Can’t I use my wit as a pitchfork And drive the brute off? Six days of the week it soils With its sickening poison – Just for paying a few bills! That’s out of proportion.
+ - I never think of poetry or the poetry scene, only separate poems written by individuals.
+ - I listen to money singing, it’s like looking down from long French windows at a provincial town. The slums, the canal, the churches ornate and mad in the evening sun. It is intensely sad...
+ - I think that at the bottom of all art lies the impulse to preserve.
+ - The only way to eliminate unemployment is to eliminate unemployment benefits.
+ - I think writing about unhappiness is probably the source of my popularity, if I have any – after all, most people are unhappy, don’t you think?
+ - Poetry is an affair of sanity, of seeing things as they are.
+ - Novels are about other people and poems are about yourself.
+ - Dear, I can’t write, it’s all a fantasy: a kind of circling obsession.
+ - I wouldn’t mind seeing China if I could come back the same day.
+ - You can’t put off being young until you retire.
+ - Everyone should be forcibly transplanted to another continent from their family at the age of three.
+ - Deprivation is for me what daffodils were for Wordsworth.
+ - Any memory for the most part depending on chance.
+ - Death is no different whined at than withstood.
+ - Here no elsewhere underwrites my existence.
+ - And the case of butterflies so rich it looks As if all summer settled there and died.
+ - In everyone there sleeps a sense of life lived according to love.
+ - Something, like nothing, happens anywhere.
+ - Many modern novels have a beginning, a muddle and an end.
+ - I like spaghetti because you don’t have to take your eyes off the book to pick about among it, it’s all the same.
+ - Clearly money has something to do with life...
+ - I feel the only thing you can do about life is to preserve it, by art if you’re an artist, by children if you’re not.
+ - I have wished you something None of the others would...
+ - I think a young poet, or an old poet, for that matter, should try to produce something that pleases himself personally, not only when he’s written it but a couple of weeks later. Then he should see if it pleases anyone else, by sending it to the kind of magazine he likes reading.
+ - Saki says that youth is like hors d’oeuvres: you are so busy thinking of the next courses you don’t notice it. When you’ve had them, you wish you’d had more hors d’oeuvres.
+ - I think we got much better poetry when it was all regarded as sinful or subversive, and you had to hide it under the cushion when somebody came in.
+ - I am always trying to ‘preserve’ things by getting other people to read what I have written, and feel what I felt.
+ - One of the quainter quirks of life is that we shall never know who dies on the dame day as we do ourselves.
+ - One of the great criticisms of poets of the past is that they said one thing and did another.
+ - Above all, though, children are linked to adults by the simple fact that they are in process of turning into them. For this they may be forgiven much. Children are bound to be inferior to adults, or there is no incentive to grow up.
+ - A writer can have only one language, if language is going to mean anything to him.
+ - It is fatal to decide, intellectually, what good poetry is because you are then in honour bound to try to write it, instead of the poems that only you can write.
+ - To write you must be warm, fed, loved and sober.
+ - Life and literature is a question of what one thrills to, and further than that no man shall ever go without putting his foot in a turd.
+ - There is bad in all good authors: what a pity the converse isn’t true!
+ - You have to distinguish between things that seemed odd when they were new but are now quite familiar, such as Ibsen and Wagner, and things that seemed crazy when they were new and seem crazy now, like ‘Finnegans Wake’ and Picasso.
+
+66 quotes

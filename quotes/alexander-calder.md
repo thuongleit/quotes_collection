@@ -1,0 +1,22 @@
+ - The next step in sculpture is motion.
+ - I love red so much, I almost want to paint everything red.
+ - The universe is real, but you can’t see it. You have to imagine it.
+ - When everything goes right a mobile is a piece of poetry that dances with the joy of life and surprise!
+ - The underlying sense of form in my work has been the system of the Universe, or part thereof. For that is a rather large model to work from.
+ - My whole theory about art is the disparity that exists between form, masses and movement.
+ - The sense of motion in painting and sculpture has long been considered as one of the primary elements of the composition.
+ - Above all, art should be fun.
+ - To most people who look at a mobile, it’s no more than a series of flat objects that move. To a few, though, it may be poetry.
+ - A mobile is an abstract sculpture made chiefly out of sheet metal, steel rods, wire and wood. Some or all of these elements move, propelled by electric motors, wind, water or by hand.
+ - Just as one can compose colors, or forms, so one can compose motions.
+ - You see nature and then you try to emulate it.
+ - That others grasp what I have in mind seems unessential, at least as long as they have something else in theirs.
+ - The first inspiration I ever had was the cosmos, the planetary system.
+ - The basis of everything I do is the universe.
+ - The trouble with a lot of artists today is that they have too much technique and equipment. They don’t know what to do with it all. If you cut down on it, you can work more strongly within narrower limits.
+ - My fingers always seem busier than my mind.
+ - My fan mail is enormous. Everyone is under six.
+ - When an artist explains what he is doing, he usually has to do one of two things: either scrap what he has explained, or make his work fit in with the explanation.
+ - Why must art be static? You look at an abstraction, sculptured or painted, an entirely exciting arrangement of planes, spheres, nuclei, entirely without meaning. It would be perfect but it is always still. The next step in sculpture is motion.
+
+20 quotes

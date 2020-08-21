@@ -1,0 +1,39 @@
+ - I used to carry a rabbit’s foot for luck. Then it was a monkey’s paw. Now it’s a camel’s toe.
+ - Everybody’s trying to leave their mark on the world. That’s why there’s graffiti and babies.
+ - If you were to send a werewolf to the moon, would he be a werewolf permanently?
+ - 1st Valentine’s Day: 200,000 BC men and women congregate on opposite sides of Pangaea, waiting for someone to make the first move.
+ - No one knows who the real me is, so I can be a hundred different kinds of me.
+ - I diagnosed my loneliness as premature empty nest syndrome.
+ - Sarcasm doesn’t read sarcastic in print.
+ - I think growing up on a farm in a certain amount of isolation, with not a lot of friends nearby, makes you entertain yourself and kind of grows your imagination – being alone is quite good for all that. You make up stories, talk to the animals, let them be an audience, a bunch of cows.
+ - Mel: What was your name again? Rain: Rain. Mel: Oh that’s nice. Kind of like bad weather.
+ - I think I’ve always had a disconnect from what I’m supposed to be like.
+ - The first time I was on TV, on “Flight of the Conchords,” someone put up a YouTube clip and said, ‘You’re too ugly to be on TV.’ And I was like, ‘That is exactly why it’s a good thing that I’m on TV.’
+ - At first the kid kicking the back of my airplane seat was enraging. Then I imagined it was a broken massage chair and I kinda liked it.
+ - Guys. If your pants are below your ass you have no right to accuse any lady of dressing slutty.
+ - Turkeys are peacocks that have really let themselves go.
+ - He resisted for a while and there were some legal boundaries, you know, keeping me from being near him or his family, but in the end, love overcame. And I got what I wanted. I always get what I want...
+ - The torture that they are coming up with in China is so creative. They have this other method where they’ll take a bamboo and they’ll plant it in your anus and just let it grow. So patient. Man, watch out for China, I say. They have all the ambition as we do but none of the heart.
+ - You know, quite a few species of fish require two or more sexual partners...
+ - This is very ambitious, but I don’t care. I’m just gonna go ahead and find Amelia Earhart. Every day that goes by, I just fear the worst for her.
+ - Just because I’m married to Doug doesn’t mean I can’t be here for you.
+ - Another goal that I have is to learn how to play the ukulele – should be fun – and to stop taking my clothes off for money. But I need money. That is a ridiculous goal. I’m gonna cross that one off. That’s stupid.
+ - I wanted to make sure that my act was family friendly for tonight, but I don’t have babies. So I thought that maybe I could pretend that I had babies and that way I could appeal to the people in the audience who have babies and to the people who like to pretend that they have babies.
+ - Oh man, the car could just burst into flames right now and this would be the way to go, huh guys?
+ - I would love for people to know that the label ‘feminist’ is something that everyone should wear proudly, because it just means that you support women.
+ - I prefer writing for myself to perform, I guess. But if I had to choose, I’d rather perform in someone’s movie than write a movie for someone else.
+ - Some women were talking about how I put out. And that’s just not that case. I don’t put out – unless I’m asked very, very politely, and that’s not putting out, that’s just giving in.
+ - Still blows my mind that toilet paper isn’t free.
+ - All the best movies are the ones that are cut from a more middle ground.
+ - One good thing about being locked in a cage: No responsibility!
+ - A kiss is like a fight, with mouths.
+ - I’m so happy to be around people. I just really like people, and being a freelancer can be lonely during the day, when you’re at home trying to write anything you can.
+ - The service at this airport restaurant is so bad I’m starting to panic that I’m a ghost.
+ - Fingernails are for opening things and toenails are for storing precious minerals off the ground.
+ - I’d hate to be a writer forever and never perform, and I’d hate to perform and not write. I get sad if time has passed and I haven’t written or made anything. I’m an artist.
+ - Most of the people I know in comedy are not weird or messed up.
+ - If I’m having a fancy glass of champagne, I’ll always mix it with the champagne of beers. Because I deserve all the champagnes.
+ - If you are feeling overly optimistic the Republican Candidates Debate is on.
+ - I would like to be known as someone who was really sweet but also knowledgeable in all areas of life.
+
+37 quotes

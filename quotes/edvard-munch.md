@@ -1,0 +1,56 @@
+ - From my rotting body, flowers shall grow and I am in them, and that is eternity.
+ - My will exceeds my talents.
+ - Colors live a remarkable life of their own after they have been applied to the canvas.
+ - I do not paint what I see, but what I saw.
+ - There is a battle that goes on between men and women. Many people call it love.
+ - Disease, insanity, and death were the angels that attended my cradle, and since then have followed me throughout my life.
+ - Just as Leonardo da Vinci studied human anatomy and dissected corpses, so I try to dissect souls.
+ - I felt as if there were invisible threads connecting us – I felt the invisible strands of her hair still winding around me – and thus as she disappeared completely beyond the sea – I still felt it, felt the pain where my heart was bleeding – because the threads could not be severed.
+ - Some colors reconcile themselves to one another, others just clash.
+ - Without fear and illness, I could never have accomplished all I have.
+ - Any number of holier-than-thou honorable realists walk around in the belief that they have accomplished something, simply because they tell you for the hundredth time that a field is green and a red-painted house is painted red.
+ - No longer shall I paint interiors with men reading and women knitting. I will paint living people who breathe and feel and suffer and love.
+ - The notes I have made are not a diary in the ordinary sense, but partly lengthy records of my spiritual experiences, and partly poems in prose.
+ - And I would often wake up at night and stare widely into the room: Am I in Hell?
+ - My father was temperamentally nervous and obsessively religious – to the point of psychoneurosis. From him I inherited the seeds of madness. The angels of fear, sorrow, and death stood by my side since the day I was born.
+ - Death is pitch-dark, but colors are light. To be a painter, one must work with rays of light.
+ - I don’t believe in an art that is not born out of man’s need to open his heart.
+ - In my art I have tried to explain to myself life and its meaning. I have also tried to help others to clarify their lives.
+ - All art, literature, and music must be born in your heart’s blood. Art is your heart’s blood.
+ - I have no fear of photography as long as it cannot be used in heaven and in hell.
+ - Without anxiety and illness I should have been like a ship without a rudder.
+ - The camera will never compete with the brush and palette until such time as photography can be taken to Heaven or Hell.
+ - When I paint, I never think of selling. People simply fail to understand that we paint in order to experiment and to develop ourselves as we strive for greater heights.
+ - To die is as if one’s eyes had been put out and one cannot see anything any more. Perhaps it is like being shut in a cellar. One is abandoned by all. They have slammed the door and are gone. One does not see anything and notices only the damp smell of putrefaction.
+ - Anybody who perceives colors can become a painter. It’s simply a question of whether or not one has felt anything and whether one has the courage to recount the things one has felt.
+ - For as long as I can remember I have suffered from a deep feeling of anxiety which I have tried to express in my art.
+ - Your face encompasses the beauty of the whole earth. Your lips, as red as ripening fruit, gently part as if in pain. It is the smile of a corpse. Now the hand of death touches life. The chain is forged that links the thousand families that are dead to the thousand generations to come.
+ - A work of art can only come from the interior of man. Art is the form of the image formed upon the nerves, heart, brain and eye of man.
+ - A person himself believes that all the other portraits are good likenesses except the one of himself.
+ - I painted the picture, and in the colors the rhythm of the music quivers. I painted the colors I saw.
+ - At different moments you see with different eyes. You see differently in the morning than you do in the evening. In addition, how you see is also dependent on your emotional state. Because of this, a motif can be seen in many different ways, and this is what makes art interesting.
+ - By painting colors and lines and forms seen in quickened mood I was seeking to make this mood vibrate as a phonograph does. This was the origin of the paintings in The Frieze of Life.
+ - The Academies of Art are nothing but great painting factories – those with talent are fed in at one end, and they come out as mechanical painting machines.
+ - The way one sees is also dependent upon one’s emotional state of mind. This is why a motif can be looked at in so many ways, and this is what makes art so interesting.
+ - Oil-painting is a developed technique. Why go backwards?
+ - Painting picture by picture, I followed the impressions my eye took in at heightened moments. I painted only memories, adding nothing, no details that I did not see. Hence the simplicity of the paintings, their emptiness.
+ - I build a kind of wall between myself and t he model so that I can paint in peace behind it. Otherwise, she might say something that confuses and distracts me.
+ - A work of art comes only from inside a human being.
+ - I have been given a unique role to play on this earth: given to me by a life filled with sickness, ill-starred circumstances and my profession as an artist. It is a life that contains nothing that resembles happiness, and moreover does not even desire happiness.
+ - It is better to have a good painting with ten holes than ten bad paintings without any holes.
+ - The rich man who gives, steals twice over. First he steals the money and then the hearts of men.
+ - Photography is an art which touches and grips one’s own heart’s blood.
+ - Youth must go ahead and prosper. These young painters are all very talented people, but they all paint frescoes.
+ - One can easily tell that the creator of the paintings in the Sistine Chapel was above all a sculptor.
+ - In common with Michelangelo and Rembrandt I am more interested in the line, its rise and fall, than in color.
+ - In my childhood I always felt that I was treated unjustly, without a mother, sick, and with the threat of punishment in Hell hanging over my head.
+ - When I paint a person, his enemies always find the portrait a good likeness.
+ - It was always my intention that The Frieze should be housed in a room which would provide a suitable architectural frame for it.
+ - I find it difficult to imagine an afterlife, such as Christians, or at any rate many religious people, conceive it, believing that the conversations with relatives and friends interrupted here on earth will be continued in the hereafter.
+ - The viewers must come to understand the sacredness of painting, so they will remove their hats as if they were in church.
+ - I should have considered it wrong to have finished the Frieze before the room for its accommodation and the funds for its completion were available.
+ - This kind of painting with its large frames is a bourgeois drawing-room art. It is an art dealer’s art-and that came in after the civil wars following the French Revolution.
+ - I learned early about the misery and dangers of life, and about the afterlife, about the external punishment which awaited the children of sin in Hell.
+ - What is art? Art grows from joy and sorrow, but mostly from sorrow. It grows from human lives.
+
+54 quotes

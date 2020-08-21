@@ -1,0 +1,27 @@
+ - Only the dead know the truth.
+ - There is no beast more cruel than man.
+ - Wisdom and folly are equal before the face of Infinity, for Infinity knows them not.
+ - To succeed in life one needs two things – influence and a lucky star.
+ - All perishes, all decays, all is born again.
+ - Bread without love is like grass without salt – the stomach may be filled, but it leaves a bad taste in the mouth.
+ - I cannot get accustomed to war; my brain refuses to understand and explain a thing that is senseless in its basis. Millions of people gather at one place and, giving their actions order and regularity, kill each other, and it hurts everybody equally, and all are unhappy – what is it if not madness?
+ - When a woman weeps, it is a man’s shame.
+ - Only the footsteps of the blind are short, but their thoughts are long.
+ - Who strikes man with love – God or the Devil?
+ - Don’t laugh at the voice of the stars. They are far away, their rays are light and pale, and we can barely see their sleeping shadows, but their sorcery is stern and dark.
+ - Man dies. Come from darkness, into darkness he returns, and is reabsorbed, without a trace left, into the illimitable void of time.
+ - The only thing not worth destroying is science. That would be useless. Science is unchangeable, and if you destroyed it today, it would rise up again the same as before.
+ - Men are always murderers, and their calmness and generosity is the calmness of a well-fed animal, that knows itself out of danger.
+ - The papers are full of murders – strange murders. It is all nonsense that there are as many brains as there are men; mankind has only one intellect, and it is beginning to get muddled.
+ - Who is all-powerful in the world? Who is most dreadful in the world? The machine. Who is most fair, most wealthy, and all-wise? The machine. What is the earth? A machine. What is the sky? A machine. What is man? A machine. A machine.
+ - It’s a powerful instrument, dynamite – nothing like it for a convincing argument!
+ - Ah well, ’tis the way of the world – births and deaths, births and deaths.
+ - Thus will we deal with life, my little help-meet. Will we not, eh? What though it blink at us like an owl that is blinded by the sun, we will yet force it to smile.
+ - The loss of reason in war seems to me honorable, like the death of a sentry at his post.
+ - When a man has the rope about his neck, you don’t ask him about his health!
+ - The moon was so young, so strange, even as a young girl who is dreaming and is afraid to tell her dreams; and it was shining only for itself.
+ - Do you not see the hand of God, which gives harmony, light, and love to the world? Do not the mountains, in the blue cloud of incense, sing their hymn of glory?
+ - Death augments distance and dulls the memory. Death reconciles.
+ - What worse can happen to a man than to have been born? It’s like asking a man who is drowning whether he is not afraid of getting wet.
+
+25 quotes

@@ -1,0 +1,24 @@
+ - I’m not a designer, I’m a creator.
+ - The dark side of social media is that, within seconds, anything can be blown out of proportion and taken out of context. And it’s very difficult not to get swept up in it all.
+ - Uniqlo as a company has always developed new fabrics and is always trying to be innovative. The design is simple, so the fabric is important.
+ - I think when you start talking about money, it stops the whole creative process for me.
+ - Japan, for me, will always be my inspiration source.
+ - Fashion is such an insider’s club, but slowly, the playing field is evening out. Through social media, everyone can have a front-row seat.
+ - I was born in Japan, so for me, Uniqlo is a family brand. My granny used to wear Uniqlo. And my Italian dad wore Uniqlo. I wore Uniqlo, of course.
+ - The Internet shapes my life and work so completely that I couldn’t imagine living without it.
+ - Having plants and flowers in my space makes me feel very calm and Zen. For me, its important to meditate every morning to be very clear in the head, and nature really helps me do the same thing.
+ - I love meeting people, and I know it’s so difficult for people to come up to me and introduce themselves, so when they do, I’ll grab them and hug them. It makes their day, you know? I love that, and I get positive energy from that.
+ - I’m half-Japanese, so I collect toys, like a Yayoi Kusama stuffed pumpkin.
+ - My mom was my muse – she would buy me Italian ‘Vogue.’ I was this little fashion boy.
+ - I’m not an elitist. I hate the fashion industry sometimes because it becomes so focused on the elite.
+ - Social networking inspires me a lot and how we are related and connected to each other.
+ - Fans don’t lie. They just tell you what they really think, and they see details that even people in fashion don’t.
+ - I like places where you can dance to crazy music, like Bedlam or Eastern Bloc in the East Village.
+ - My uniform is usually just comfortable clothing. Being a stylist, you spend most of the day at photo shoots covered in safety pins.
+ - I am terrible at making food. I love eating, but I can’t make anything.
+ - I’m not a typical couturier, although I really respect them.
+ - I never liked the idea of bags. I would say, “Why do so many of my friends spend so much money on these bloody bags?” But once I started designing them, I was completely hooked. There are all of these blogs about bags. It’s a whole other industry, and I’m really excited to be a part of it.
+ - I want young people to be able to buy into what I design. When I was young, I wanted to buy designer brands even if all I could afford was the cheapest wallet, the cheapest pen, the cheapest T-shirt because I wanted to be a part of it.
+ - Im saving up to buy art. Nothing famous, but every time Im in a new city I wander into galleries and dream about buying great pieces one day.
+
+22 quotes

@@ -1,0 +1,36 @@
+ - We really believe that whatever we put our minds to, we can achieve.
+ - You can see the next big trends in fashion on the red carpet and see what colors, silhouettes are hot right now. You might see Taylor Swift wearing Gucci, and most of us can’t afford that Gucci dress, but you can look at the beading and be inspired by it for, say, your prom or a friend’s wedding.
+ - Life’s better now. I wouldn’t do it all over again, though. It’s funny how life works. Maybe it was meant to happen for many reasons, because my life in many ways richer.
+ - I thought I was dreaming. It was the most amazing moment of my entire life. Not only is Bill the love of my life, but he’s also my best friend. I couldn’t believe my dream guy was asking me to marry him!
+ - I love your hair! It’s kind of messy but like, done.
+ - Through my attempt to get pregnant through IVF, we sadly found out that I have early stages of breast cancer. It’s been a shock.
+ - When I went public with my breast cancer diagnosis six weeks ago, the overwhelming outpouring of love, prayers and support really helped me heal faster. I want to make sure to thank everyone.
+ - I’m from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.
+ - I look in the mirror and it’s hard for me. I am really thin. I want to look fit and beautiful and sexy, and I can’t.
+ - If you know me, you know that nothing embarrasses me. Anything could happen to me on live television, and I sincerely don’t care.
+ - I never thought my marriage could be stronger, or I could be closer to Bill. We prayed on our own, but now we prayed together and you’ll never know how much that means until you do it.
+ - I wasn’t prepared to get a mammogram until I was 40 years old, like I’d been told. I never in my wildest dreams expected anything to be wrong.
+ - I have a new found respect for women who have been through breast cancer and this surgery.
+ - I never thought I was pretty enough. I was kind of tall and lanky. I don’t mind it now, but back in the day I hated it. I would tell myself that what I think is ugly at 17 is actually what’s going to be pretty about me later.
+ - Bye, bye! I’m from Colombia! I’m Sofia Vergara!
+ - I just feel such a connection to the little kids in Naples. I remember being on the street wanting a small piece of candy.
+ - I started realizing I could be an example for women to not just be aware of breast cancer but to act on it, to make an appointment, to give themselves an exam.
+ - I would like to take the stigma away. ‘Mastectomy’ the word seemed so scary to me at first. After doing research and seeing the advancements, the surgery has come a long way from 20 years ago. The results can be incredible.
+ - For me it was just more important to get the cancer out. With the double mastectomy I now have less than one per cent chance of getting it back, otherwise it was 20, 30 or 40 per cent chance and for me it wasn’t worth it.
+ - I would love to interview Roberto Benigni just so I could tell him how much his movie, life is beautiful, meant to me.
+ - A rumor that followed me forever was that my family was in the mafia. For years I had to live with it. They’d call me the mafia princess, so I rolled with it for the rest of high school. People even joke about it today.
+ - If you are strong enough as a couple, reality shows can be a good thing for the relationship.
+ - I love trainwrecks on live TV.
+ - Chicago is incredibly gracious. People here have so much pride.
+ - To me, natural, healthy looking skin is really beautiful. With a little concealer, eyeshadow, liner, gloss and bronzer, I love my lighter makeup look. I’ve saved so much money on facials!
+ - To be a true fashionista, you have to be on the best-dressed list and worst-dressed list.
+ - I design for a woman who is on the go. Women are busier than ever, and I wanted to design a collection that can go from day to night and be fashionable. Sometimes I wear three outfits in one day.
+ - You can never take your reputation back. There really is nothing as powerful as a good reputation.
+ - Wait, I kinda do love you.
+ - I was probably a B student in high school, but it wasn’t until I got to college that I said, ‘Oh! This is what it’s all about.’ And then I became an A student. I studied journalism in college and that’s what really kicked it into high gear for me.
+ - I want to encourage everyone to be proactive with their health and get checked out.
+ - This face. What is it like to wake up to this face?
+ - When you do a reality show and host shows, it’s hard to have secrets.
+ - You wear clothes so beautifully!
+
+34 quotes

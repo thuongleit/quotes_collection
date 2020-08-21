@@ -1,0 +1,74 @@
+ - Man is not what he thinks he is, he is what he hides.
+ - He who has dreamed for long resembles his dream.
+ - What is Man? A miserable little pile of secrets.
+ - To command is to serve, nothing more and nothing less.
+ - An art book is a museum without walls.
+ - Culture is the sum of all the forms of art, of love, and of thought, which, in the coarse or centuries, have enabled man to be less enslaved.
+ - If man is not ready to risk his life, where is his dignity?
+ - If you can’t make art, make your life a work of art.
+ - The twenty-first century will be spiritual or it will not be.
+ - An artist discovers his genius the day he dares not to please.
+ - Often the difference between a successful person and a failure is not one has better abilities or ideas, but the courage that one has to bet on one’s ideas, to take a calculated risk – and to act.
+ - To understand what the outside of an aquarium looks like, it’s better not to be a fish.
+ - Though man’s feeling for the other-worldly often has recourse to solitude, solitude does not foster its development; rather, it is nourished by communion, to which the church is more propitious than the cemetery.
+ - The attempt to force human beings to despise themselves is what I call hell.
+ - The most important thing in life is to see to it that you are never beaten.
+ - Chanel, General De Gaulle and Picasso are the three most important figures of our time.
+ - There’s no such thing as a grown up person.
+ - The world of art is not a world of immortality but of metamorphosis.
+ - Every young man’s heart is a graveyard in which are inscribed the names of a thousand dead artists but whose only actual denizens are a few mighty, often antagonistic, ghosts.
+ - All art is a revolt against man’s fate.
+ - Communism destroys democracy. Democracy can also destroy Communism.
+ - There is always a need for intoxication: China has opium, Islam has hashish, the West has woman.
+ - An individualism which has got beyond the stage of hedonism tends to yield to the lure of the grandiose. It was not man, the individual, nor even the Supreme Being, that Robespierre set up against Christ; it was that Leviathan, the Nation.
+ - The first duty of a leader is to make himself be loved without courting love. To be loved without ‘playing up’ to anyone – even to himself.
+ - And when man faces destiny, destiny ends and man comes into his own.
+ - The terrible thing about death is that it transforms life into destiny.
+ - No one can endure his own solitude.
+ - In a world in which everything is subject to the passing of time, art alone is both subject to time and yet victorious over it.
+ - Youth is a religion from which one always ends up being converted.
+ - Seldom is a Gothic head more beautiful than when broken.
+ - The great mystery is not that we should have been thrown down here at random between the profusion of matter and that of the stars; it is that from our very prison we should draw, from our own selves, images powerful enough to deny our own nothingness.
+ - The next century’s task will be to rediscover its gods.
+ - Man knows that the world is not made on a human scale; and he wishes that it were.
+ - A political leader is necessarily an imposter since he believes in solving life’s problems without asking its question.
+ - Be careful – with quotations, you can damn anything.
+ - Nothing is harder than to get people to think about what they are going to do.
+ - Just as a musician loves music and not nightingales, and a poet loves poetry and not sunsets, a painter is not primarily a person who responds to figures and landscapes. He is primarily one who loves pictures.
+ - Athirst for personal salvation, the West forgets that many religions had but a vague notion of the life beyond the grave; true, all great religions stake a claim on eternity, but not necessarily on man’s eternal life.
+ - The mind supplies the idea of a nation, but what gives this idea its sentimental force is a community of dreams.
+ - In so far as he is a creator, the artist does not belong to a social group already moulded by a culture, but to a culture which he is by way of building up.
+ - One can fool life for a long time, but in the end it always makes us what we were intended to be.
+ - Opium teaches only one thing, which is that aside from physical suffering, there is nothing real.
+ - Every great masterpiece is a purification of the world.
+ - The basic problem is that our civilization, which is a civilization of machines, can teach man everything except how to be a man.
+ - Since 1789 history has had a new perspective, revolution being a successful revolt, and revolt a revolution that has failed.
+ - The thrill of creation which we experience which we experience when we see a masterpiece is not unlike the feeling of the artist who created it; such a work is a fragment of the world which he has annexed and which belongs to him alone.
+ - Surely that little pseudo-gothic church on Broadway, hidden amongst the skyscrapers, is symbolic of the age! On the whole face of the globe the civilization that has conquered it has failed to build a temple or a tomb.
+ - The truth of a man is first and foremost what he hides.
+ - As for the outside world, the artist is confronted by what he sees; but what he sees is primarily what he looks at.
+ - I don’t argue with my enemies; I explain to their children.
+ - The artist is not the transcriber of the world, he is its rival.
+ - Some pictures are in the gallery because they belong to humanity and others because they belong to the United States.
+ - In the realm of human destiny, the depth of man’s questionings is more important than his answers.
+ - A large share of our art heritage is now derived from peoples whose idea of art was quite other than ours, and even from peoples to whom the very idea of art meant nothing.
+ - You can only make art that talks to the masses when you have nothing to say to them.
+ - Genius is not perfected, it is deepened. It does not so much interpret the world as fertilize itself with it.
+ - Always, however brutal an age may actually have been, its style transmits its music only.
+ - The only domain where the divine is visible is that of art, whatever name we choose to call it.
+ - The crucial discovery was made that, in order to become painting, the universe seen by the artist had to become a private one created by himself.
+ - If modern painters feel qualms about applying the term “masterpiece” to describe a work of capital importance, this is because it has come to convey a notion of perfection: a notion that leads to much confusion when applied to artists other than those who made perfection their ideal.
+ - Every creation is, at its root, the struggle between potential form and imitated form.
+ - Our art culture makes no attempt to search the past for precedents, but transforms the entire past into a sequence of provisional responses to a problem that remains intact.
+ - There are not fifty ways of fighting, there’s only one, and that’s to win. Neither revolution nor war consists in doing what one pleases.
+ - The ordinary man puts up a struggle against all that is not himself, whereas it is against himself, in a limited but all-essential field, that the artist has to battle.
+ - If we cannot shape our destiny there as no such thing as witchcraft.
+ - In ceasing to subordinate creative power to any supreme value, modern art has brought home to us the presence of that creative power throughout the whole history of art.
+ - A break in the established order is never the work of chance. It is the outcome of a man’s resolve to turn life to account.
+ - Here, reality is not subordinated to painting, indeed painting seems the handmaid of reality, though we feel it tending towards a procedure which, while not at the mercy of appearances, is not yet in conflict with them.
+ - Between eigtheen and twenty, life is like an exchange where one buys stocks, not with money, but with actions. Most men buy nothing.
+ - War puts its questions stupidly, peace mysteriously.
+ - The true painter strives to paint what can only be seen through his world.
+ - History may clarify our understanding of the supreme work of art, but can never account for it completely; for the Time of art is not the same as the Time of history.
+
+72 quotes

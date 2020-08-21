@@ -1,0 +1,67 @@
+ - Poetry is prose in slow motion.
+ - I woke up thinking a very pleasant thought. There is lots left in the world to read.
+ - The question any novel is really trying to answer is, Is life worth living?
+ - History isn’t a seesaw. If you have a really bad regime on one side, the actions on the other side don’t automatically become good. It doesn’t work that way.
+ - First, if you love the Kindle and it works for you, it isn’t problematic, and you should ignore all my criticisms and read the way you want to read.
+ - Printed books usually outlive bookstores and the publishers who brought them out. They sit around, demanding nothing, for decades. That’s one of their nicest qualities – their brute persistence.
+ - I blush easily. I have difficulty meeting people’s eye, difficulty with public speaking, the normal afflictions of the shy, but not to a paralysing degree.
+ - A bee rose up from a sun-filled paper cup, off to make slum honey from some diet root beer it had found inside.
+ - You almost believe that you will never come to the end of a roll of tape; and when you do, there is a feeling, nearly, though very briefly, of shock and grief.
+ - Books: a beautifully browsable invention that needs no electricity and exists in a readable form no matter what happens.
+ - Shoes are the first adult machines we are given to master.
+ - Sometimes I think with the telephone that if I concentrate enough I could pour myself into it and I’d be turned into a mist and I would rematerialize in the room of the person I’m talking to. Is that too odd for you?
+ - Just as the people who lived through the Second World War thought different things on different days, I think everybody who goes through that period carefully now thinks different things on different days.
+ - Updike was the first to take the penile sensorium under the wing of elaborate metaphorical prose.
+ - You can tell it’s a poem because it’s swimming in a little gel pack of white space. That shows it’s a poem.
+ - I wanted my first novel to be a veritable infarct of narrative cloggers-the trick being to feel your way through each clog by blowing it up until its obstructiveness finally reveals not blank mass but unlooked-for seepage points of passage.
+ - Each decision – to kill, to sign a petition, to write a letter, to make a speech, to attack, to lie, to surrender – was made at some point in somebody’s day.
+ - I prefer reading e-books on a high resolution LCD screen – like the iPod Touch’s – although the pixel density could and should be much higher.
+ - I’m a sucker for interiors and carefully, beautifully filmed people sitting in a big room. My appetites are simple.
+ - The great thing about novels is that you can be as unshy as you want to be. I’m very polite in person. I don’t want to talk about startling or upsetting things with people.
+ - In fact, you could make the argument that a historian like Shlomo Aronson does in passing in one of his books, that the bombing campaign united the German nation behind Hitler, and actually contributed to the sustaining of his power.
+ - The function of a great library is to store obscure books.
+ - I like shelves full of books in a library, but if all books become electronic, the task of big research libraries remains the same – keep what’s published in the form in which it appeared.
+ - I’m suspicious of full-replacement programs – that is, pronouncements that one way of doing something will entirely supplant another, and that in fact we have to hurry the replacement along.
+ - I no longer want to live in an apartment furnished with forklifts and backhoes.
+ - I did not know that the planning for biological and chemical warfare was so widespread in England, and even in France before France fell. It was news to me that there had been talk, even in the First World War, of dropping Colorado beetles on German potato crops and that kind of thing.
+ - It’s true that I don’t rearrange that much in the fiction, but I feel if you change even one name or the order of one event then you have to call it fiction or you get all the credits of non-fiction without paying the price.
+ - I really practiced hard and got to a certain level of technical proficiency. I overcame some of my limitations. I was a hard-working, dedicated bassoonist, but I have to say I’m not a natural musician.
+ - Maybe the Kindle was the Bowflex of bookishness: something expensive that, when you commit to it, forces you to do more of whatever it is you think you should be doing more of.
+ - For me, as a beginning novelist, all other living writers form a control group for whom the world is a placebo.
+ - In the novel, I can change things and simplify, and make events work towards whatever meanings I’m trying to get at more efficiently.
+ - I wrote about World War II because I didn’t understand it. I think that’s the reason that historians are drawn to any subject – there’s something about it that doesn’t make sense. I wanted to work my way through what happened slowly, and look at everything in the order in which it took place.
+ - The nice thing about a protest song is that it takes the complaint, the fussing, the finger-pointing, and gives it an added component of sociable harmony.
+ - In my case, adulthood itself was not an advance, although it was a useful waymark.
+ - Of course, individuals are responsible for individual actions – the pilots who flew over Pearl Harbor and dropped bombs on those ships did a terrible thing as part of an attack on a military base.
+ - Gandhi was important for another reason as well: his country was suffering under the British Empire, and yet he was leading a very singular kind of resistance to it. At the time he was speaking about the violence in Europe, his followers were in jail as prisoners of the British government.
+ - I am closer to the pacifist side, in that I think that the British response to German aggression, which was to try to starve the Continent into a state of revolt and to terrorize German civilians with bombing raids, was part of the total catastrophe.
+ - Most writers are secretly worried that they’re not really writers. That it’s all been happenstance, something came together randomly, the letters came together, and they won’t coalesce ever again.
+ - I’ve never been a fast reader. I’m fickle; I don’t finish books I start; I put a book aside for five, ten years and then take it up again.
+ - There is no good word for stomach; just as there is no good word for girlfriend. Stomach is to girlfriend as belly is to lover, and as abdomen is to consort, and as middle is to petite amie.
+ - Until a friend or relative has applied a particular proverb to your own life, or until you’ve watched him apply the proverb to his own life, it has no power to sway you.
+ - Wikipedia flourished partly because it was a shrine to altruism.
+ - While I was writing I assumed it would be published under a pseudonym, and that liberated me: what I wrote was exactly what I wanted to read.
+ - One’s head is finite. You pour more and more things into it – surnames, chronologies, affiliations – and it packs them away in its tunnels, and eventually you find that you have a book about something that you publish.
+ - Sometimes, despite the fact that you’re reading through masses of material, you just can’t not think about a certain event, for it seems to capture the reality of the entire situation so much better than any set of statistics.
+ - I wanted to apprentice myself to the dailiness of the war’s beginning phase. It’s truer and more frightening that way – when you’re afloat on a little dingy in the midst of it all.
+ - When I first wanted to be a writer, I learned to write prose by reading poetry.
+ - It’s troubling to see how often Winston Churchill is a proponent of massive programs that are really aimed at civilians – starvation blockades and chemical warfare stockpiles and so on.
+ - Wikipedia is just an incredible thing. It is fact-encirclingly huge, and it is idiosyncratic, careful, messy, funny, shocking and full of simmering controversies – and it is free, and it is fast.
+ - True, the name of the product wasn’t so great. Kindle? It was cute and sinister at the same time – worse than Edsel, or Probe, or Microsoft’s Bob. But one forgives a bad name. One even comes to be fond of a bad name, if the product itself is delightful.
+ - Some after-the-fact storytelling is inevitable, and, in fact, very good and useful. But then we want always to be able to enrich the stories, or maybe change the stories with a fresh infusion of specificity.
+ - I think I am done with Wikipedia for the time being. But I have a secret hope. Someone recently proposed a Wikimorgue – a bin of broken dreams where all rejects could still be read, as long as they weren’t libelous or otherwise illegal.
+ - If you write every day, you’re going to write a lot of things that aren’t terribly good, but you’re going to have given things a chance to have their moments of sprouting.
+ - When I really want to be soothed and reminded of why people bother to fiddle with sentences, I often read poetry.
+ - I’m often called obsessive, but I don’t think I am any more than anyone else.
+ - The job of the novel is to be true to the confusion, but not so confusing that you turn the reader off.
+ - You need the art in order to love the life.
+ - Many good poets are really essayists who write very short essays.
+ - I don’t do all that well in the writerly world. I’m happier being outside the flow.
+ - You can register a political objection in a number of ways.
+ - Footnotes are the finer-suckered surfaces that allow testicular paragraphs to hold fast to the wider reality of the library.
+ - Rarely do pens go dry in restaurants.
+ - As soon as you start doing that – changing things – it seems self-evident to me that you’ve entered the world of make-believe. If you pretend that it’s true, and use your own name, you are misleading people. Fiction is looser and wilder and sometimes in the end more self-revealing, anyway.
+ - But spending your life concentrating on death is like watching a whole movie and thinking only about the credits that are going to roll at the end. It’s a mistake of emphasis.
+ - I ordered a Kindle 2 from Amazon. How could I not? There were banner ads for it all over the Web. Whenever I went to the Amazon Web site, I was urged to buy one.
+
+65 quotes

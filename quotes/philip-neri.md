@@ -1,0 +1,49 @@
+ - A joyful heart is more easily made perfect than a downcast one.
+ - Cast yourself into the arms of God and be very sure that if he wants anything of you, He will fit you for the work and give you strength.
+ - He who wishes for anything but Christ, does not know what he wishes; he who asks for anything but Christ, does not know what he is asking; he who works, and not for Christ, does not know what he is doing.
+ - The best remedy for dryness of spirit, is to picture ourselves as beggars in the presence of God and the Saints, and like a beggar, to go first to one saint, then to another, to ask a spiritual alms of them with the same earnestness as a poor fellow in the streets would ask an alms of us.
+ - There is nothing the devil fears so much, or so much tries to hinder, as prayer.
+ - My Jesus, if you uphold me, I shall not fall.
+ - To preserve our cheerfulness amid sicknesses and troubles, is a sign of a right and good spirit.
+ - He who is unable to spend a long time together in prayer, should often lift up his mind to God by short prayers.
+ - The cross is the gift God gives to his friends.
+ - Obedience is the true holocaust which we sacrifice to God on the altar of our hearts.
+ - Without mortification nothing can be done.
+ - The perfection of a Christian consists in mortifying his will for the love of Christ. Where there is no great mortification, there is no great sanctity.
+ - During mental prayer, it is well, at times, to imagine that many insults and injuries are being heaped upon us, that misfortunes have befallen us, and then strive to train our heart to bear and forgive these things patiently, in imitation of our Saviour. This is the way to acquire a strong spirit.
+ - Christian joy is a gift of God flowing from a good conscience.
+ - The Lord grants in a moment what we may have been unable to obtain in dozens of years.
+ - The greatness of our love of God must be tested by the desire we have of suffering for His love.
+ - At communion we ought to ask for the remedy of the vice to which we feel ourselves most inclined.
+ - Those who have themselves for a spiritual director have a fool for a spiritual director.
+ - The best way to prepare for death is to spend every day of life as though it were the last.
+ - To acquire and preserve the virtue of chastity, we have need of a good and experienced confessor.
+ - Heaven is not made for the slothful.
+ - He who feels that the vice of avarice has got hold of him, should not wish to observe fasts of supererogation, but to give alms.
+ - In sickness we ought to ask God to give us patience, because it often happens, that when a man gets well, he not only does not do the good he proposed to do when he was sick, but he multiplies his sins and his ingratitude.
+ - Let us be humble and keep ourselves down: – Obedience! Humility! Detachment!
+ - First let a little love find entrance into their hearts, and the rest will follow.
+ - It is an old custom of the servants of God to have some little prayer ready and to be frequently darting them up to heaven during the day, lifting their minds to God out of the mire of this world.
+ - My children, if you desire perseverance, be devout to our Blessed Lady.
+ - Let us think, if we only got to heaven, what a sweet and easy thing it will be there to be always saying with the angels and the saints, Sanctus, Sanctus, Sanctus.
+ - There is nothing more dangerous in the spiritual life, than to wish to rule ourselves after our own way of thinking.
+ - To be without pity for other mens falls, is an evident sign that we shall fall ourselves shortly.
+ - The stench of impurity before God and the angels is so great, that no stench in the world can equal it.
+ - Let the sick man enter into the Side of Jesus and His most holy Wounds; let him not be afraid, but combat manfully, and he will come forth victorious.
+ - The great thing is to become Saints.
+ - We must often remember what Christ said, that not he who begins, but he that perseveres to the end, shall be saved.
+ - Where there is no great mortification there is no great sanctity.
+ - Give me ten truly detached men. and I will convert the world with them.
+ - Let us pray God, if He gives us any virtue or any gift, to keep it hidden even from ourselves, that we may preserve our humility, and not take occasion of pride because of it.
+ - Believe me, there is no more powerful means to obtain God’s grace than to employ the intercessions of the Holy Virgin.
+ - We must not trust in ourselves, but take the advice of our spiritual father, and recommend ourselves to everybodys prayers.
+ - We must sometimes bear with little defects in others, as we have, against our will, to bear with natural defects in ourselves. If we wish to keep peace with our neighbor, we should never remind anyone of his natural defects.
+ - Even though a man may be unable to attain such a height of sanctity, he ought to desire it, so as to do at least in desire what he cannot carry out in effect.
+ - Not to know how to deny our soul its own wishes, is to foment a very hot-bed of vices.
+ - He who desires anything but God deceives himself, and he who loves anything but God errs miserably.
+ - As soon as we are stripped of the sordid garb of avarice, we shall be clothed with the royal and imperial vest of the opposite virtue, liberality.
+ - It is easy to infuse a most fervent devotion into others, even in a short time; but the great matter is – to persevere.
+ - He who always acts under obedience may be assured that he will not have to give an account of his actions to God.
+ - He who wishes for goods will never have devotion.
+
+47 quotes

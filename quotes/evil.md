@@ -1,0 +1,42 @@
+ - A lie doesn’t become truth, wrong doesn’t become right and evil doesn’t become good, just because it’s accepted by a majority. ~~Rick Warren
+ - Power corrupts. Knowledge is power. Study hard. Be evil. ~~Eleanor Roosevelt
+ - Premature optimization is the root of all evil. ~~Donald Knuth
+ - Don’t be evil is a load of crap. ~~Steve Jobs
+ - Evil begins when you begin to treat people as things. ~~Terry Pratchett
+ - Evil triumphs when good men do nothing. ~~Thomas Jefferson
+ - Evil is powerless if the good are unafraid. ~~Ronald Reagan
+ - If shaytan has entered into your heart – evil will look beautiful to you and good will seem tiring and exhausting. ~~Nouman Ali Khan
+ - Some believe it is only great power that can hold evil in check, but that is not what I have found. It is the small everyday deeds of ordinary folk that keep the darkness at bay. Small acts of kindness and love. ~~J. R. R. Tolkien
+ - Silence in the face of evil is itself evil: God will not hold us guiltless. Not to speak is to speak. Not to act is to act. ~~Dietrich Bonhoeffer
+ - But a lie is a lie, and in itself intrinsically evil, whether it be told with good or bad intents. ~~Immanuel Kant
+ - I refuse to apologize for my ability – I refuse to apologize for my success – I refuse to apologize for my money. If this is evil, make the most of it. ~~Ayn Rand
+ - Love is evil, spell it backwards, I’ll show ya. ~~Eminem
+ - Polish your wisdom: learn public justice, distinguish between good and evil, study the ways of different arts one by one. ~~Miyamoto Musashi
+ - When evil men plot, good men must plan. When evil men burn and bomb, good men must build and bind. When evil men shout ugly words of hatred, good men must commit themselves to the glories of love. ~~Martin Luther King Jr.
+ - Work spares us from three evils: boredom, vice, and need. ~~Voltaire
+ - Silence in the face of evil is evil itself. ~~Dietrich Bonhoeffer
+ - Evil is just a point of view. ~~Anne Rice
+ - Let them hate me, so long as they fear me! ~~Caligula
+ - There’s a terrible danger in voting for the lesser of two evils because the parties can set it up that way. ~~Hunter S. Thompson
+ - If Christ has died for me, I cannot trifle with the evil that killed my best Friend. ~~Charles H. Spurgeon
+ - If one knows what is right, he will do it; nobody wants to be evil. ~~Socrates
+ - To ignore evil is to become an accomplice to it. ~~Martin Luther King Jr.
+ - Worry does not empty tomorrow of its sorrow, it empties today of its strength. it does not enable us to escape evil. It makes us unfit to face evil when it comes. it is the interest you pay on trouble before it comes. ~~Corrie ten Boom
+ - Life is beautiful. Let the future generations cleanse it of all evil, oppression, and violence, and enjoy it to the full. ~~Leon Trotsky
+ - Man’s basic vice, the source of all his evils, is the act of unfocusing his mind, the suspension of his consciousness, which is not blindness, but the refusal to see, not ignorance, but the refusal to know. ~~Ayn Rand
+ - The alienation of man thus appeared as the fundamental evil of capitalist society. ~~Karl Marx
+ - Find the best in everybody. Just keep waiting no matter how long it takes. No one is all evil. Everybody has a good side, just keep waiting, it will come out. ~~Randy Pausch
+ - God judged it better to bring good out of evil than to suffer no evil to exist. ~~Saint Augustine
+ - A hard headed woman, a soft hearted man, been the cause of trouble ever since the world began. ~~Elvis Presley
+ - Evil may have its hour, but God will have His day. ~~Fulton J. Sheen
+ - The greatest evil is physical pain. ~~Saint Augustine
+ - Do not give in to evil, but proceed ever more boldly against it. ~~Ludwig von Mises
+ - Terrorism is the preferred weapon of weak and evil men. ~~Ronald Reagan
+ - It is the duty of every true Deist to vindicate the moral justice of God against the evils of the Bible. ~~Thomas Paine
+ - Before you think good or evil, who are you? ~~Huineng
+ - Riches and honor are what everyone desires, but if they can be gained only by doing evil, they must not be held. Don’t worry about not being in office, worry about qualifying yourself for office. Don’t worry that no one knows you, but seek to be worthy of being known. ~~Confucius
+ - When we forgive evil we do not excuse it, we do not tolerate it, we do not smother it. We look the evil full in the face, call it what it is, let its horror shock and stun and enrage us, and only then do we forgive it. ~~Lewis B. Smedes
+ - To a man whose mind is free there is something even more intolerable in the sufferings of animals than in the sufferings of man. For with the latter it is at least admitted that suffering is evil and that the man who causes it is a criminal. But thousands of animals are uselessly butchered every day without a shadow of remorse. If any man were to refer to it, he would be thought ridiculous. And that is the unpardonable crime. ~~Romain Rolland
+ - To abolish war it is necessary to abolish patriotism, and to abolish patriotism it is necessary first to understand that it is an evil. Tell people that patriotism is bad and most will reply, ‘Yes, bad patriotism is bad, but mine is good patriotism.’ ~~Leo Tolstoy
+
+40 quotes

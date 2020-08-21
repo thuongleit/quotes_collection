@@ -1,0 +1,67 @@
+ - Don’t complain, don’t explain.
+ - I’m always learning something. Learning never ends.
+ - I could hear my heart beating. I could hear everyone’s heart. I could hear the human noise we sat there making, not one of us moving, not even when the room went dark.
+ - It ought to make us feel ashamed when we talk like we know what we’re talking about when we talk about love.
+ - That’s all we have, finally, the words, and they had better be the right ones.
+ - A man can go along obeying all the rules and then it don’t matter a damn anymore.
+ - Life and death matters, yes. And the question of how to behave in this world, how to go in the face of everything. Time is short and the water is rising.
+ - Isak Dinesen said that she wrote a little every day, without hope and without despair. I like that.
+ - There is no answer. It’s okay. But even if it wasn’t okay, what am I supposed to do?
+ - The places where water comes together with other water. Those places stand out in my mind like holy places.
+ - And what did you want? To call myself beloved, to feel myself beloved on the earth.
+ - Woke up this morning with a terrific urge to lie in bed all day and read.
+ - But I can hardly sit still. I keep fidgeting, crossing one leg and then the other. I feel like I could throw off sparks, or break a window – maybe rearrange all the furniture.
+ - All of us, all of us, all of us trying to save our immortal souls, some ways seemingly more round about and mysterious than others. We are having a good time here. But hope all will be revealed soon.
+ - I dressed and went for a walk – determined not to return until I took in what Nature had to offer.
+ - Dreams, you know, are what you wake up from.
+ - There are significant moments in everyone’s day that can make literature. That’s what you ought to write about.
+ - My life is going to change. I feel it.
+ - Art doesn’t have to do anything. It just has to be there for the fierce pleasure we take in doing it.
+ - I am too nervous to eat pie.
+ - Booze takes a lot of time and effort if you’re going to do a good job with it.
+ - Nights without beginning that had no end. Talking about a past as if it’d really happened. Telling themselves that this time next year, this time next year, things were going to be different.
+ - I’m moving to Nevada. Either there or kill myself.
+ - I guess my writing has changed as my life has.
+ - She won’t give him back his look.
+ - What do any of us really know about love?
+ - I’ve done as many as 20 or 30 drafts of a story. Never less than 10 or 12 drafts.
+ - In the beginning, when I was trying to write, I couldnt turn off the outside world to the extent that I can now.
+ - Then I said something. I said, Suppose, just suppose, nothing had ever happened. Suppose this was for the first time. Just suppose. It doesn’t hurt to suppose. Say none of the other had ever happened. You know what I mean? Then what? I said.
+ - My circumstances of unrelieved responsibility and permanent distraction necessitated the short story form.
+ - Fiction shows the external effects of internal conditions. Be aware of the tension between internal and external movement.
+ - But he stays by the window, remembering that life. They had laughed. They had leaned on each other and laughed until the tears had come, while everything else – the cold and where he’d go in it – was outside, for a while anyway.
+ - The fiction Im most interested in has lines of reference to the real world.
+ - When a reader finishes a wonderful story and lays it aside, he should have to pause for a minute and collect himself.
+ - Ralph also took some classes in philosophy and literature and felt himself on the brink of some kind of huge discovery about himself. But it never came.
+ - Every great or even every very good writer makes the world over according to his own specifications.
+ - Honey, no offense, but sometimes I think I could shoot you and watch you kick.
+ - It’s strange. You never start out life with the intention of becoming a bankrupt or an alcoholic or a cheat and a thief. Or a liar.
+ - Happiness. It comes on unexpectedly. And goes beyond, really, any early morning talk about it.
+ - Get in, get out. Don’t linger. Go on.
+ - That morning she pours Teacher’s over my belly and licks it off. That afternoon she tries to jump out the window.
+ - There was a time when I thought I loved my first wife more than life itself. But now I hate her guts. I do. How do you explain that? What happened to that love? What happened to it, is what I’d like to know. I wish someone could tell me.
+ - He wondered if she wondered if he were watching her.
+ - You’ve got to work with your mistakes until they look intended. Understand?
+ - Remember Haydn’s 104 symphonies. Not all of them were great. But there were 104 of them.
+ - Mel thought real love was nothing less than spiritual love. He’d said he’d spent five years in a seminary before quitting to go to medical school. He said he still looked back on those years in the seminary as the most important years of his life.
+ - There is no God, and conversation is a dying art.
+ - The smooth stones you pick up and examine under the moon’s light have been made blue from the sea. Next morning when you pull them from your trouser pocket, they are still blue.
+ - This is awful. I don’t know what’s going to happen to me or to anyone else in the world.
+ - A man without hands came to the door to sell me a photograph of my house. Except for the chrome hooks, he was an ordinary-looking man of fifty or so.
+ - I am a cigarette with a body attached to it.
+ - You’re a beautiful drunk, daughter. But you’re a drunk.
+ - Write about what you know, and what do you know better than your own secrets?
+ - I think a little menace is fine to have in a story. For one thing, it’s good for the circulation.
+ - You have to have been in love to write poetry.
+ - In short, everything about his life was different for him at the bottom of that well.
+ - A great danger, or at least a great temptation, for many writers is to become too autobiographical in their approach to their fiction. A little autobiography and a lot of imagination are best.
+ - Anyone can express himself or herself, but what writers and poets want to do in their work, more than simply express themselves, is communicate.
+ - There was this funny thing of anything could happen now that we realized everything had.
+ - What good are insights? They only make things worse.
+ - Writers will be judged by what they write.
+ - I’d like to go out in the front yard and shout something. “None of this is worth it!” That’s what I’d like people to hear.
+ - There’s literary creation and literary business. When I first got something accepted, it gave my life a validation it didn’t otherwise have.
+ - We knew our days were numbered. We had fouled up our lives and we were getting ready for a shake-up.
+ - A little autobiography and a lot of imagination are best.
+
+65 quotes

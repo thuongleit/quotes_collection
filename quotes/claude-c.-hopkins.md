@@ -1,0 +1,46 @@
+ - This is no lazy mans field.
+ - Impressive claims are made far more impressive by making them exact.
+ - Remember the people you address are selfish, as we all are. They care nothing about your interests or profit. They seek service for themselves.
+ - The time has come when advertising in some hands has reached the status of a science.
+ - The compass of accurate knowledge directs the shortest, safest, cheapest course to any destination.
+ - Ads are planned and written with some utterly wrong conception. They are written to please their seller. The interest of the buyer is forgotten.
+ - People don’t buy from clowns.
+ - Genius is the art of taking pains.
+ - Changing people’s habits is very expensive.
+ - Advertising is much like war, minus the venom.
+ - We cannot go after thousands of men until we learn now to win one.
+ - Ads are not written to entertain. When they do, those entertainment seekers rare little likely to be the people whom you want. This is one of the greatest advertising faults. Ad writers abandon their part. They forgot they are salesmen and try to be performers. Instead of sales, they seek applause.
+ - Curiosity is one of the strongest human incentives.
+ - The advertising man who spares the midnight oil will not get very far.
+ - Fine writing is a distinct disadvantage. So is unique literary style. They take attention from the subject.
+ - Whatever claim you use to get attention, the advertisement should tell a story reasonably complete.
+ - Platitudes and generalities roll of the human understanding like water from a duck.
+ - The only purpose of advertising is to make sales. It is profitable or unprofitable according to its actual sales.
+ - Every reader of your ad is interested, else he would not be a reader. You are dealing with someone willing to listen. Then do your level best. That reader, if you lose him now, May never again be a reader.
+ - People will not be bored. They may listen politely at a dinner table to boasts and personalities, life history, etc. But in print they choose their own companions, their own subjects. They was to be amused or benefitted.
+ - Scientific advertising has altered many old plans and conceptions. It has proved many long established methods to be folly.
+ - Most national advertising is done without justification. It is merely presumed to pay. A little test might show a way to multiply returns.
+ - Picture what others wish to be, not what they may be now.
+ - Lust is a monstrous sin which altereth, marreth, and drieth the body, weakening all the joints and members, making the face bubbled and yellow, shortening life, diminishing memory, understanding, and the very heart.
+ - Advertising is utterly unprofitable, and I could prove it to you in one week. End an ad with an offer to pay five dollars to anyone who writes you that he read the ad through. The scarcity of replies will amaze you.
+ - Don’t, to gain general and useless attention, sacrifice the attention that you want.
+ - Literary qualifications have no more to do with it than oratory has with salesmanship. One must be able to express himself briefly, clearly, and convincingly, just as a salesman must.
+ - On most lines, making a sale without making a convert does not count for much. Sales made by conviction – by advertising – are likely to bring permanent customers. People who buy through casual recommendations often do not stick.
+ - The weight of an argument may often be multiplied by making it specific.
+ - Never be led in new paths by the blind.
+ - A man coined to superlative must expect that his every statement will be taken with some caution.
+ - The one just consider the average reader s only once a reader, probably. And when you fail to tell them in that ad is something he may never know.
+ - In the old days, advertisers ventured on their own opinions. The few guess right, the many wrong. Those were the time of advertising disaster.
+ - Human nature is perpetual. In most respects it is the same today as in the time of Caesar. So the principles of psychology are fixed and enduring.
+ - Don’t think of people in the mass. This gives you a blurred view.
+ - No generality has any weight whatever. It is like saying “how do you do?” When you have no intention of inquiring about ones health. But specific claims when made in print are taken at their value.
+ - Address the people you seek, and them only.
+ - If a claim is worth making, make it in the most specific way.
+ - The man who wins out and survives does so only because of superior science and strategy.
+ - Names that tell stories have been worth millions of dollars. So a great deal of research often proceeds the selection of a name.
+ - One may gain attention by wearing a fools cap. But he would ruin his selling prospects.
+ - The product itself should be it’s own best salesman. Not the product alone, but the product plus a mental impression, and atmosphere, which you place around it.
+ - The writing of headline is one of the great journalistic arts. They either conceal or reveal am interest.
+ - Do nothing to merely interest, assume or attract. This is not your province. Do only that wins the people you are after in the cheapest possible way.
+
+44 quotes

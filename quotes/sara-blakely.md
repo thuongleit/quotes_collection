@@ -1,0 +1,49 @@
+ - Embrace what you don’t know, especially in the beginning, because what you don’t know can become your greatest asset. It ensures that you will absolutely be doing things different from everybody else.
+ - Failure is not the outcome – failure is not trying. Don’t be afraid to fail.
+ - We don’t have the luxury of time. We spend more because of how we live, but it’s important to be with our family and friends.
+ - You’ve got to visualize where you’re headed and be very clear about it. Take a polaroid picture of where you’re going to be in a few years.
+ - Perseverance is the key to starting a successful business.
+ - Courage is doing something despite the fear, and I’ve worked hard on being a courageous person.
+ - The smartest thing I ever did was to hire my weakness.
+ - Failure to me became not trying versus not succeeding.
+ - My advice for an entrepreneur just starting out is to differentiate yourself. Why are you different? What’s important about you? Why does the customer need you?
+ - I think my story says that, when women are given the chance and the opportunity, that we can achieve a lot. We deliver.
+ - I knew that I wanted to start my own business. I knew that I wanted to work for myself. I was no stranger to the word no. You just have to keep going.
+ - When I’m bored or tired of being blonde, I’ll throw on a wig. It’s a lot less of a permanent way to change your look, and I have about 10 – all different colors, shapes, bobs, long hair, short, feathered.
+ - Shapewear is the canvas and the clothes are the art.
+ - I think failure is nothing more than life’s way of nudging you that you are off course.
+ - It’s important to be willing to make mistakes. The worst thing that can happen is you become memorable.
+ - Failures are life’s way of nudging you and letting you know you are off course. Trying new things and not being afraid to fail along the way are more important than what you learn in school.
+ - There is a hidden blessing in the most traumatic things we go through in our lives. My brain always goes to, ‘Where is the hidden blessing? What is my gift?’
+ - Most of the reason we don’t do things is because we’re afraid to fail. I just made a decision one day that I was not not going to do things in my life because of fear.
+ - The word ‘Spanx’ was funny. It made people laugh. No one ever forgot it.
+ - When something I can’t control happens, I ask myself : where is the hidden gift, where is the positive in this?
+ - I didn’t like the way it looked in white trousers, and I couldn’t find anything to work underneath them.
+ - With every obstacle that has happened to me in my life, my brain immediately says, ‘Where is the hidden blessing?’ In starting a business and growing a business, every day is learning how to manage obstacles.
+ - Instead of failure being the outcome, failure became not trying. And it forced me at a young age to want to push myself so much further out of my comfort zone.
+ - I’d get kicked out of buildings all day long, people would rip up my business card in my face. It’s a humbling business to be in. But I knew I could sell and I knew I wanted to sell something I had created. I cut the feet out of those pantyhose and I knew I was on to something. This was it.
+ - What you don’t know can be your greatest asset.
+ - Ensure that you do things differently from everyone else.
+ - My first account was Neiman Marcus. I cold-called them just like I had cold-called businesses when I was selling fax machines for seven years.
+ - If somebody can do something 80 percent as good as you think you would have done it yourself, then you’ve got to let it go.
+ - Having a mental snapshot of where you are, where you are going, and what you are moving toward is incredibly powerful.
+ - Money is fun to make, fun to spend and fun to give away.
+ - Within the first year of launching my company, Spanx, I decided to go over to England and cold-call Harrods, Harvey Nichols, and Selfridges the same way I had cold-called Neiman Marcus, Saks, Nordstrom, and Bloomingdale’s here in the United States.
+ - My saddlebags are why Spanx exist! Now that I have a baby I also have a muffin top.
+ - If we can put a man on the moon, we can make pantyhose comfortable.
+ - I didn’t want women to walk out of the dressing rooms feeling depressed and wanting a cocktail.
+ - You’ve got to embrace what you don’t know.
+ - I got a call from the Oprah Winfrey Show. Oprah had chosen Spanx as one of her favorite products in 2000. I had boxes of product in my apartment and I had two weeks notice that she was going to say she loved it on TV and I had no shipping department.
+ - The thought of my mortality – I think about it a lot. I find it motivating. It can be any time that your number’s up.
+ - I’ve always leaned toward a feminine, funky style, even in business settings. I used to paint my nails blue in 1993, before it was mainstream.
+ - I have this system where if I buy three or four new things, I give away three or four things. Sometimes, it’s a very painful system, but shopping is even better when you know that someone else who needs it will be getting. Keep the clothing karma going, I say.
+ - When I was 7, I came up with the idea of ‘charm socks.’ My mom would take me to buy bags of plastic charms, we would sew them on frilly white socks, and I sold them at school.
+ - I shopped for body shapers for the first time in my life and I was horrified. They were thick – it was like wearing workout clothes and they all had a leg band on one side that showed through the pants.
+ - I did not like the way I looked in a pair of white pants.
+ - It’s really a full-time job to manage our lives.
+ - I always joke and say I want to invent a comfortable stiletto and then retire.
+ - I started thinking about joy. Everything in our society is so purposeful. Let’s bring joy back to the experience.
+ - I think very early on in life we all learn what we’re good at and what we’re not good at, and we stay where it’s safe.
+ - Ideas, even million-dollar ones, are most vulnerable in their infancy; don’t share them with too many people. However, don’t hide your plan from people who can help you move it forward.
+
+47 quotes

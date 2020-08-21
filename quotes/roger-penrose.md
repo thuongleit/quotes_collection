@@ -1,0 +1,26 @@
+ - Intelligence cannot be present without understanding. No computer has any awareness of what it does.
+ - I would say the universe has a purpose. It’s not there just somehow by chance.
+ - It may well be there is something else going on in the brain that we don’t have an inkling of at the moment.
+ - Quantum mechanics makes absolutely no sense.
+ - We have a closed circle of consistency here: the laws of physics produce complex systems, and these complex systems lead to consciousness, which then produces mathematics, which can then encode in a succinct and inspiring way the very underlying laws of physics that gave rise to it.
+ - The basic theory in twistor theory is not to add extra dimensions.
+ - Understanding is, after all, what science is all about – and science is a great deal more than mindless computation.
+ - It is always the case, with mathematics, that a little direct experience of thinking over things on your own can provide a much deeper understanding than merely reading about them.
+ - This book is about physics and its about physics and its relationship with mathematics and how they seem to be intimately related and to what extent can you explore this relationship and trust it.
+ - I was indeed very slow as a youngster.
+ - And these little things may not seem like much but after a while they take you off on a direction where you may be a long way off from what other people have been thinking about.
+ - Well, I don’t know if I can comment on Kant or Hegel because I’m no real philosopher in the sense of knowing what these people have said in any detail so let me not comment on that too much.
+ - As you say, the way string theory requires all these extra dimensions and this comes from certain consistency requirements about how string should behave and so on.
+ - People think of these eureka moments and my feeling is that they tend to be little things, a little realisation and then a little realisation built on that.
+ - It is hard to see how one could begin to develop a quantum-theoretical description of brain action when one might well have to regard the brain as “observing itself” all the time!
+ - With thought comprising a non-computational element, computers can never do what we human beings can.
+ - Well, gauge theory is very fundamental to our understanding of physical forces these days. But they are also dependent on a mathematical idea, which has been around for longer than gauge theory has.
+ - If you didn’t have any conscious beings in the world, there really wouldn’t be morality but with consciousness that you have it.
+ - Well I didn’t actually see the Matrix but I’ve seen other movies where with similar sorts of themes.
+ - My own way of thinking is to ponder long and I hope deeply on problems and for a long time which I keep away for years and years and I never really let them go.
+ - Ambition, idly vain; revenge and malice swell her train.
+ - Some years ago, I wrote a book called the Emperor’s New Mind and that book was describing a point of view I had about consciousness and why it was not something that comes about from complicated calculations.
+ - I’m pretty tenacious when it comes to problems.
+ - But I think it is a serious issue to wonder about the other platonic absolutes of say beauty and morality.
+
+24 quotes

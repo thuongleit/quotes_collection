@@ -1,0 +1,24 @@
+ - In spite of the honestest efforts to annihilate my I-ity, or merge it in what the world doubtless considers my better half, I still find myself a self-subsisting and alas! self-seeking me.
+ - Time is the only comforter for the loss of a mother.
+ - Homeopathy – an invention of the Father of Lies! I have tried it and found it wanting. I would swallow their whole doles medicine chest for sixpence, and be sure of finding myself neither better nor worse for it.
+ - It is sad and wrong to be so dependent for the life of my life on any human being as I am on you; but I cannot by any force of logic cure myself at this date, when it has become second nature.
+ - The only thing that makes one place more attractive to me than another is the quantity of heart I find in it.
+ - Young children are such nasty little beasts!
+ - Not a hundredth part of the thoughts in my head have ever been or ever will be spoken or written – as long as I keep my senses, at least.
+ - When one has been threatened with a great injustice, one accepts a smaller as a favour.
+ - The glittering baits of titles and honours are only for children and fools.
+ - The triumphal-procession-air which, in our manners and customs, is given to marriage at the outset – that singing of Te Deum before the battle has begun.
+ - I am not at all the sort of person you and I took me for.
+ - The surest way to get a thing in this life is to be prepared for doing without it, to the exclusion even of hope.
+ - I rely on the promise, God is kind to women, fools, and drunk people.
+ - A fashionable wife! Oh! Never will I be anything so heartless! I have pictured for myself a far higher destiny than this. – Will it ever be more than a picture?
+ - Never does one feel oneself so utterly helpless as in trying to speak comfort for great bereavement.
+ - A positive engagement to marry a certain person at a certain time, at all haps and hazards, I have always considered the most ridiculous thing on earth.
+ - If they had said that the sun or the moon had gone out of the heavens, it could not have struck me with the idea of a more awful and dreary blank in creation than the words: Byron is dead!
+ - Teaching, I find, is not the most amusing thing on earth; in fact, with a stupid lump for a Pupil, it is about the most irksome.
+ - How many precious things do we not already possess which others have not – have hardly an idea of! Let us enjoy these, then, and bless God that we are permitted to enjoy them, rather than importune His goodness with vain longings for more.
+ - On earth the living have much to bear; the difference is chiefly in the manner of bearing, and my manner of bearing is far from being the best.
+ - Instead of boiling up individuals into the species, I would draw a chalk circle round every individuality, and preach to it to keep within that, and preserve and cultivate its identity.
+ - People who are so dreadfully “devoted” to their wives are so apt, from mere habit, to get devoted to other people’s wives as well.
+
+22 quotes

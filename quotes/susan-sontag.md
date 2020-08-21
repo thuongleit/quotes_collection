@@ -1,0 +1,352 @@
+ - I haven’t been everywhere, but it’s on my list.
+ - A thing is a thing, not what is said of that thing.
+ - Translation is the circulatory system of the world’s literatures.
+ - Do stuff. be clenched, curious. Not waiting for inspiration’s shove or society’s kiss on your forehead. Pay attention. It’s all about paying attention. attention is vitality. It connects you with others. It makes you eager. stay eager.
+ - Kindness, kindness, kindness. I want to make a New Year’s prayer, not a resolution. I’m praying for courage.
+ - Sanity is a cozy lie.
+ - My library is an archive of longings.
+ - Life is a movie; death is a photograph.
+ - A writer, I think, is someone who pays attention to the world.
+ - Everything has changed and nothing is changed.
+ - Intelligence is really a kind of taste: taste in ideas.
+ - Today everything exists to end in a photograph.
+ - I’m only interested in people engaged in a project of self-transformation.
+ - The white race is the cancer of human history.
+ - What makes me feel strong? Being in love and work. I must work.
+ - In the valley of sorrow, spread your wings.
+ - 10 percent of any population is cruel, no matter what, and 10 percent is merciful, no matter what, and the remaining 80 percent can be moved in either direction.
+ - Depression is melancholy minus its charms – the animation, the fits.
+ - Love words, agonize over sentences. And pay attention to the world.
+ - Art is a form of consciousness.
+ - What is the most beautiful in virile men is something feminine; what is most beautiful in feminine women is something masculine.
+ - In place of a hermeneutics we need an erotics of art.
+ - To take a photograph is to participate in another person’s mortality, vulnerability, mutability. Precisely by slicing out this moment and freezing it, all photographs testify to time’s relentless melt.
+ - A good book is an education of the heart. It enlarges your sense of human possibility what human nature is of what happens in the world. It’s a creator of inwardness.
+ - Lying is an elementary means of self-defense.
+ - All understanding begins with our not accepting the world as it appears.
+ - Love dies because its birth was an error.
+ - Being in love means being willing to ruin yourself for the other person.
+ - Writing is a little door. Some fantasies, like big pieces of furniture, won’t come through.
+ - I don’t write because there’s an audience. I write because there is literature.
+ - I believe that courage is morally neutral. I can well imagine wicked people being brave and good people being timid or afraid. I don’t consider it a moral virtue.
+ - Illness is the night-side of life, a more onerous citizenship. Everyone who is born holds dual citizenship, in the kingdom of the well and in the kingdom of the sick.
+ - The only interesting answers are those that destroy the questions.
+ - Fear binds people together. And fear disperses them. Courage inspires communities: the courage of an example – for courage is as contagious as fear. But courage, certain kinds of courage, can also isolate the brave.
+ - This is the beauty that emerges from self-confidence, class confidence. That says, I am not born to please. I am born to be pleased.
+ - Mozart, Pascal, Boolean algebra, Shakespeare, parliamentary government, baroque churches, Newton, the emancipation of women, Kant, Balanchine ballets, et al. don’t redeem what this particular civilization has wrought upon the world. The white race is the cancer of human history.
+ - The most potent elements in a work of art are, often, its silences.
+ - The painter constructs, the photographer discloses.
+ - Reading usually precedes writing. And the impulse to write is almost always fired by reading. Reading, the love of reading, is what makes you dream of becoming a writer.
+ - Thinking, writing are ultimately questions of stamina.
+ - I am profoundly uncertain how to write. I know what I love and what I like, because it’s a direct passionate response. But when I write, I’m very uncertain whether it’s good enough. That is, of course, the writer’s agony.
+ - Pornography is a theatre of types, never of individuals.
+ - Art is not consciousness per se, but rather its antidote- evolved from within consciousness itself.
+ - I was not looking for my dreams to interpret my life, but rather for my life to interpret my dreams.
+ - The photographer’s intentions do not determine the meaning of a photograph, which will have its own career, blown by the whims and loyalties of the diverse communities that have use for it.
+ - Rules of taste enforce structures of power.
+ - Photographs may be more memorable than moving images, because they are a neat slice of time, not a flow. Each still photograph is a privileged moment turned into a slim object that one can keep and look at again.
+ - Nothing is mysterious, no human relation. Except love.
+ - The basic unit for contemporary art is not the idea, but the analysis of and extension of sensations.
+ - Photographs furnish evidence. Something we hear about, but doubt, seems proven when we’re shown a photograph of it.
+ - It’s hard not to be afraid. Be less afraid.
+ - It hurts to love. It’s like giving yourself to be flayed and knowing that at any moment the other person may just walk off with your skin.
+ - In the final analysis, style is art. And art is nothing more or less than various modes of stylized, dehumanized representation.
+ - Art is seduction, not rape.
+ - Communism is fascism with a human face.
+ - To photograph is to appropriate the thing photographed. It means putting oneself into a certain relation to the world that feels like knowledge-and therefore, like power.
+ - I don’t care about someone being intelligent; any situation between people, when they are really human with each other, produces ’intelligence.
+ - Compassion is an unstable emotion. It needs to be translated into action, or it withers.
+ - America was founded on a genocide, on the unquestioned assumption of the right of white Europeans to exterminate a resident, technologically backward, colored population in order to take over the continent.
+ - I don’t consider devotion to the past a form of snobbery. Just one of the more disastrous forms of unrequited love.
+ - It’s a pleasure to share one’s memories. Everything remembered is dear, endearing, touching, precious. At least the past is safe though we didn’t know it at the time. We know it now. Because it’s in the past; because we have survived.
+ - The camera makes everyone a tourist in other people’s reality, and eventually in one’s own.
+ - But I cannot forgive those who did not care about more than their own glory or well-being. They thought they were civilized. They were despicable. Damn them all.
+ - The problems of this world are only truly solved in two ways: by extinction or duplication.
+ - To paraphrase several sages: Nobody can think and hit someone at the same time.
+ - Religion is probably, after sex, the second oldest resource which human beings have available to them for blowing their minds.
+ - Life is not significant details, illuminated by a flash, fixed forever. Photographs are.
+ - In the journal I do not just express myself more openly than I could to any person; I create myself.
+ - Needing to have reality confirmed and experience enhanced by photographs is an aesthetic consumerism to which everyone is now addicted. Industrial societies turn their citizens into image-junkies; it is the most irresistible form of mental pollution.
+ - The whole point of Camp is to dethrone the serious. Camp is playful, anti-serious. More precisely, Camp involves a new, more complex relation to “the serious.” One can be serious about the frivolous, frivolous about the serious.
+ - Existence is no more than the precarious attainment of relevance in an intensely mobile flux of past, present, and future.
+ - Tragedy is a vision of nihilism, a heroic or ennobling vision of nihilism.
+ - Literature can train, and exercise, our ability to weep for those who are not us or ours.
+ - To be an artist or a writer is to be this weird thing – a hand worker in an era of mass production.
+ - Writing is finally a series of permissions you give yourself to be expressive in certain ways. To leap. To fly. To fail.
+ - I guess I think I’m writing for people who are smarter than I am, because then I’ll be doing something that’s worth their time. I’d be very afraid to write from a position where I consciously thought I was smarter than most of my readers.
+ - Self-exposure is commendable in art only when it is of a quality and complexity that allows other people to learn about themselves from it.
+ - The public voice in the theater today is crude and raucous, and, all too often, weak-minded.
+ - When comedy fails, seriousness begins to leak back in.
+ - If I thought that what I’m doing when I write is expressing myself, I’d junk the typewriter. Writing is a much more complicated activity that that.
+ - I love to read the way people love to watch television.
+ - Try not to live in a linguistic slum.
+ - The fear of becoming old is born of the recognition that one is not living now the life that one wishes.
+ - The taste for worst-case scenarios reflects the need to master fear of what is felt to be uncontrollable. It also expresses an imaginative complicity with disaster.
+ - Guns have metamorphosed into cameras in this earnest comedy, the ecology safari, because nature has ceased to be what it always had been – what people needed protection from. Now nature tamed, endangered, mortal – needs to be protected from people.
+ - Unfortunately, moral beauty in art – like physical beauty in a person – is extremely perishable.
+ - The danger, when not too dangerous, fascinate.
+ - My idea of a writer: someone interested in everything.
+ - Any sensibility which can be crammed into the mold of a system, or handled with the rough tools of proof, is no longer sensibility at all. It has hardened into an idea.
+ - The life of the creative man is lead, directed and controlled by boredom. Avoiding boredom is one of our most important purposes.
+ - Attention is vitality. It connects you with others. It makes you eager. Stay eager.
+ - Photography is an elegiac art, a twilight art. Most subjects photographed are, just by virtue of being photographed, touched with pathos.
+ - One can be serious about the frivolous, frivolous about the serious.
+ - Travel becomes a strategy for accumulating photographs.
+ - Left-wing movements have tended to be unisex, and asexual in their imagery. Right-wing movements, however puritanical and repressive the realities they usher in, have an erotic surface. Certainly Nazism is “sexier” than communism.
+ - Just as a camera is a sublimation of the gun, to photograph someone is a subliminal murder – a soft murder, appropriate to a sad, frightened time.
+ - By furnishing this already crowded world with a duplicate one of images, photography makes us feel that the world is more available than it really is.
+ - The best emotions to write out of are anger and fear or dread. The least energizing emotion to write out of is admiration. It is very difficult to write out of because the basic feeling that goes with admiration is a passive contemplative mood.
+ - The camera can be lenient; it is can also expert at being cruel. But its cruelty only produces another kind of beauty, according to the surrealist preferences which rule photographic taste.
+ - Nobody ever discovered ugliness through photographs. But many, through photographs, have discovered beauty.
+ - I don’t write easily or rapidly. My first draft usually has only a few elements worth keeping. I have to find what those are and build from them and throw out what doesn’t work, or what simply is not alive.
+ - Sight is a promiscuous sense. The avid gaze always wants more.
+ - Pornography is one of the branches of literature – science fiction is another – aiming at disorientation, at psychic dislocation.
+ - I discovered that I am tired of being a person. Not just tired of being the person I was, but any person at all.
+ - What pornography is really about, ultimately, isn’t sex but death.
+ - Authoritarian political ideologies have a vested interest in promoting fear, a sense of the imminence of takeover by aliens and real diseases are useful material.
+ - A good listener: a physical presence that is warm, alert, intelligent – more important than any words.
+ - Desire has no history...
+ - All struggle, all resistance is – must be – concrete. And all struggle has a global resonance. If not here, then there. If not now, then soon. Elsewhere as well as here.
+ - All possibility of understanding is rooted in the ability to say no.
+ - The Western memory museum is now mostly a visual one.
+ - Standing alone, photographs promise an understanding they cannot deliver. In the company of words, they take on meaning, but they slough off one meaning and take on another with alarming ease.
+ - My emotional life: dialectic between craving for privacy and need to submerge myself in a passionate relationship to another.
+ - Camp is a solvent of morality. It neutralizes moral indignation, sponsors playfulness.
+ - The likelihood that your acts of resistance cannot stop the injustice does not exempt you from acting in what you sincerely and reflectively hold to be the best interests of your community.
+ - Silence remains, inescapably, a form of speech.
+ - Photographs trade simultaneously on the prestige of art and the magic of the real.
+ - I want to save my soul, that timid wind.
+ - A photograph passes for incontrovertible proof that a given thing happened. The picture may distort; but there is always a presumption that something exists, or did exist, which is like what’s in the picture.
+ - Theories that diseases are caused by mental states and can be cured by will power, are always an index of how much is not understood about the physical terrain of a disease.
+ - In a culture whose already classical dilemma is the hypertrophy of the intellect at the expense of energy and sensual capability, interpretation is the revenge of the intellect upon art.
+ - Never worry about being obsessive. I like obsessive people. Obsessive people make great art.
+ - The truth is balance. However the opposite of truth, which is unbalance, may not be a lie.
+ - False values begin with the worship of things.
+ - The point is to get a good rhythm, to make it mindless, almost as a daydream. To walk like breathing. To make it what the body wants, what the air wants, what time wants.
+ - Camp is art that proposes itself seriously, but cannot be taken altogether seriously because it is ’too much.
+ - People robbed of their past seem to make the most fervent picture takers, at home and abroad.
+ - Growing older is mainly an ordeal of the imagination-a moral disease, a social pathology...
+ - Transparence is the highest, most liberating value in art – and in criticism – today. Transparence means experiencing the luminousness of the thing in itself, of things being what they are.
+ - Cancer is a demonic pregnancy.
+ - Victims suggest innocence. And innocence, by the inexorable logic that governs all relational terms, suggests guilt.
+ - Photographs objectify: they turn an event or a person into something that can be possessed.
+ - Paintings invariably sum up; photographs usually do not. Photographic images are pieces of evidence in an ongoing biography or history. And one photograph, unlike one painting, implies that there will be others.
+ - Books are not only the arbitrary sum of our dreams, and our memory. They also give us the model of self-transcende nce.
+ - When Cartier-Bresson goes to China, he shows that there are people in China, and that they are Chinese.
+ - Illnesses have always been used as metaphors to enliven charges that a society was corrupt or unjust.
+ - Photography is a kind of overstatement, a heroic copulation with the material world.
+ - To patronize the faculty of taste is to patronize oneself. For taste governs every free – as opposed to rote – human response.
+ - In America, the photographer is not simply the person who records the past, but the one who invents it.
+ - Most people in this society who aren’t actively mad are, at best, reformed or potential lunatics.
+ - The most refined form of sexual attractiveness – as well as the most refined form of sexual pleasure – consists in going against the grain of one’s sex.
+ - Ours is a culture based on excess, on overproduction; the result is a steady loss of sharpness in our sensory experience. All the conditions of modern life – its material plenitude, its sheer crowdedness – conjoin to dull our sensory faculties.
+ - Photography is, first of all, a way of seeing.
+ - Surrealism in painting amounted to little more than the contents of a meagerly stocked dream world: a few witty fantasies, mostly wet dreams and agoraphobic nightmares.
+ - Modern discussions of the possibility of tragedy are not exercises in literary analysis; they are exercises in cultural diagnostics, more or less disguised.
+ - There is a terrible, mean American resentment toward a writer who tries to do many things.
+ - The two pioneering forces of modern sensibility are Jewish moral seriousness and homosexual aestheticism and irony.
+ - In every society, the definitions of sanity and madness are arbitrary – are, in the largest sense, political.
+ - So successful has been the camera’s role in beautifying the world that photographs, rather than the world, have become the standard of the beautiful.
+ - No ‘we’ should be taken for granted when the subject is looking at other people’s pain.
+ - Remember when you hear yourself saying one day that you don’t have time anymore to read or listen to music or look at paintings or go to the movies or do whatever feeds your head now. Then you’re getting old. That means they got you, after all.
+ - The history of art is a sequence of successful transgressions.
+ - Surrealism is a bourgeois disaffection; that its militants thought it universal is only one of the signs that it is typically bourgeois.
+ - Passion paralyzes good taste.
+ - One doesn’t need to know the artist’s private intentions. The work tells all.
+ - Interpretation, based on the highly dubious theory that a work of art is composed of items of content, violates art. It makes art into an article for use, for arrangement into a mental scheme of categories.
+ - In the United States it’s not important which religion you adhere to, as long as you have one.
+ - Love is friendship on fire – anonymous.
+ - Norman Mailer in his writings is ultimately more concerned with success than with danger; danger is only a means to success.
+ - Mallarme said that everything in the world exists in order to end in a book. Today everything exists to end in a photograph.
+ - It is passivity that dulls feeling.
+ - Instead of expecting all and being lowered into despair each time I get less, I expect nothing now and, occasionally, I get a little, and am more than a little happy.
+ - I write – and talk – in order to find out what I think.
+ - The particular qualities and intentions of photographs tend to be swallowed up in the generalized pathos of time past.
+ - In the twentieth century, the repellent, harrowing disease that is made the index of a superior sensitivity, the vehicle of “spiritual” feelings and “critical” discontent, is insanity.
+ - A writer, I think, is someone who pays attention to the world. That means trying to understand, take in, connect with, what wickedness human beings are capable of; and not be corrupted – made cynical, superficial – by this understanding.
+ - What I really wanted was every kind of life, and the writer’s life seemed the most inclusive.
+ - To the militant, identity is everything.
+ - Time eventually positions most photographs, even the most amateurish, at the level of art.
+ - Perversity is the muse of modern literature.
+ - Images are more real than anyone could have supposed.
+ - My own view is that one cannot be religious in general any more than one can speak language in general; at any given moment one speaks French or English or Swahili or Japanese, but not ’language.
+ - The capacity to be overwhelmed by the beautiful is astonishingly sturdy and survives amidst the harshest distractions.
+ - As photographs give people an imaginary possession of a past that is unreal, they also help people to take possession of space in which they are insecure.
+ - A man never forgets his body the way a woman does, because a man is pushing his body, a part of his body, forward, to make the act of love happen. He brings the jut of his body into the act of love, then takes it back, when it has had its way.
+ - To read was precisely to enter another world, which was not the reader’s own, and come back refreshed, ready to bear with equanimity the injustices and frustrations of this one. Reading was balm, amusement not incitement.
+ - I want to be able to be alone, to find it nourishing – not just a waiting.
+ - Unfortunately, moral beauty in art – like physical beauty in a person – is extremely perishable. It is nowhere so durable as artistic or intellectual beauty. Moral beauty has a tendency to decay very rapidly into sententiousness or untimeliness.
+ - There is an aggression implicit in every use of the camera.
+ - Literature was the passport to enter a larger life; that is, the zone of freedom. Literature was freedom. Especially in a time in which the values of reading and inwardness are so strenuously challenged, literature is freedom.
+ - A way of certifying experience, taking photographs is also a way of refusing it – by limiting experience to a search for the photogenic, by converting experience into an image, a souvenir. Travel becomes a strategy for accumulating photographs.
+ - The only story that seems worth writing is a cry, a shot, a scream. A story should break the reader’s heart.
+ - The shock of photographed atrocities wears off with repeated viewings, just as the surprise and bemusement felt the first time one sees a pornographic movie wear off after one sees a few more.
+ - As one passion begins to fail it is necessary to form another, for the whole art of going through life tolerably is to keep oneself eager about anything.
+ - All my life I’ve been looking for someone intelligent to talk to.
+ - Decline of the letter, the rise of the notebook! One doesn’t write to others any more; one writes to oneself.
+ - The highest vocation of photography is to explain man to man.
+ - There are some elements in life – above all, sexual pleasure – about which it isn’t necessary to have a position.
+ - Taste tends to develop very unevenly. It’s rare that the same person has good visual taste and good taste in people and taste in ideas.
+ - Everything was simple, physical, painful, exalting. The world consisted of the four elements – land and water, firepower and distancing air.
+ - Science fiction films are not about science. They are about disaster, which is one of the oldest subjects of art.
+ - If an irreducible distinction between theatre and cinema does exist, it may be this: Theatre is confined to a logical or continuous use of space. Cinemahas access to an alogical or discontinuous use of space.
+ - The becoming of man is the history of the exhaustion of his possibilities.
+ - Despite the illusion of giving understanding, what seeing through photographs really invites is an acquisitive relation to the world that nourishes aesthetic awareness and promotes emotional detachment.
+ - As objects of contemplation, images of the atrocious can answer to several different needs. To steel oneself against weakness. To make oneself more numb. To acknowledge the existence of the incorrigible.
+ - The writer is either a practicing recluse or a delinquent, guilt-ridden one – or both. Usually both.
+ - You have to sink way down to a level of hopelessness and desperation to find the book that you can write.
+ - It’s beginnings that are hard. I always begin with a great sense of dread and trepidation. Nietzsche says that the decision to start writing is like leaping into a cold lake.
+ - Instead of just recording reality, photographs have become the norm for the way things appear to us, thereby changing the very idea of reality and of realism.
+ - But when we are nostalgic, we take pictures.
+ - Real art has the capacity to make us nervous.
+ - I want to live as long as possible, just to see how stupid it gets.
+ - The fact that illness is associated with the poor – who are, from the perspective of the privileged, aliens in one’s midst – reinforces the association of illness with the foreign with an exotic, often primitive place.
+ - Making social comment is an artificial place for an artist to start from. If an artist is touched by some social condition, what the artist creates will reflect that, but you can’t force it.
+ - To photograph is to confer importance.
+ - In contrast to the written account-which, depending on its complexity of thought, reference, and vocabulary, is pitched at a larger or smaller readership-a photograph has only one language and is destined potentially for all.
+ - War tears, rends. War rips open, eviscerates. War scorches. War dismembers. War ruins.
+ - She felt herself needing more and more sleep. When she awoke in the morning, she thought of when she might lie down again – and when she would sleep. She started going to the movies.
+ - What pornographic literature does is precisely to drive a wedge between one’s existence as a sexual being – while in ordinary life a healthy person is one who prevents such a gap from opening up.
+ - Death is unbearable unless you can get beyond the I.
+ - The easiest thing in the world for me is to pay attention.
+ - Everyone who lives in an industrialized society is obliged gradually to give up the past, but in certain countries, such as the United States and Japan, the break with the past has been particularly traumatic.
+ - When something is just bad, it’s often because it is too mediocre in its ambition. The artist hasn’t attempted to do anything really outlandish.
+ - In photographing dwarfs, you don’t get majesty and beauty. You get dwarfs.
+ - Most of my reading is rereading.
+ - Art is not only about something; it is something. A work of art is a thing in the world, not just a text or commentary on the world.
+ - The love of the famous, like all strong passions, is quite abstract. Its intensity can be measured mathematically, and it is independent of persons.
+ - Any critic is entitled to wrong judgments, of course. But certain lapses of judgment indicate the radical failure of an entire sensibility.
+ - Surrealism can only deliver a reactionary judgment; can make out of history only an accumulation of oddities, a joke, a death trip.
+ - What we need is to use what we have.
+ - A great writer has all 4 – but you can still be a good writer with only 1 and 2.
+ - Taste has no system and no proofs.
+ - Using a camera appeases the anxiety which the work-driven feel about not working when they are on vacation and supposed to be having fun. They have something to do that is like a friendly imitation of work: they can take pictures.
+ - Talking like touching. Writing like punching somebody.
+ - A good book is an education of the heart.
+ - Bleak factory buildings and billboard-cluttered avenues look as beautiful, through the camera’s eye, as churches and pastoral landscapes.
+ - The photograph is like a quotation, or a maxim or proverb. Each of us mentally stocks hundreds of photographs, subject to instant recall.
+ - It is not the position, but the disposition.
+ - Finally, the most grandiose result of the photographic enterprise is to give us the sense that we can hold the whole world in our heads – as an anthology of images. To collect photographs is to collect the world.
+ - Anything in history or nature that can be described as changing steadily can be seen as heading toward catastrophe.
+ - Ideas disturb the levelness of life.
+ - People tend to become cynical about even the most appalling crisis if it seems to be dragging on, failing to come to term.
+ - It is the nature of aphoristic thinking to be always in a state of concluding; a bid to have the final word is inherent in all powerful phrase-making.
+ - War is elective. It is not an inevitable state of affairs. War is not the weather.
+ - The ideology of capitalism makes us all into connoisseurs of liberty – of the indefinite expansion of possibility.
+ - How boring just to be a body.
+ - It is not altogether wrong to say that there is no such thing as a bad photograph – only less interesting, less relevant, less mysterious ones.
+ - Interpretation is the revenge of the intellectual upon art.
+ - The purpose of art is always, ultimately, to give pleasure – though our sensibilities may take time to catch up with the forms of pleasure that art in a given time may offer.
+ - To emphasize style is to slight content, or to introduce an attitude which is neutral with respect to content.
+ - The young-old polarization and the male-female polarization are perhaps the two leading stereotypes that imprison people.
+ - Salter is a writer who particularly rewards those for whom reading is an intense pleasure. He is among the very few North American writers all of whose work I want to read, whose as-yet-unpublished books I wait for impatiently.
+ - Whoever invented marriage was an ingenious tormentor. It is an institution committed to the dulling of the feelings. The whole point of marriage is repetition. The best it aims for is the creation of strong, mutual dependencies.
+ - One criticizes in others what one recognizes and despises in oneself. For example, an artist who is revolted by another’s ambitiousness.
+ - All photographs aspire to the condition of being memorable – that is, unforgettable.
+ - That even an apocalypse can be made to seem part of the ordinary horizon of expectation constitutes an unparalleled violence that is being done to our sense of reality, to our humanity.
+ - An important job of the critic is to savage what is mediocre or meretricious.
+ - Photographed images do not seem to be statements about the world so much as pieces of it, miniatures of reality that anyone can make or acquire.
+ - A fiction about soft or easy deaths is part of the mythology of most diseases that are not considered shameful or demeaning.
+ - Why wouldn’t you write to escape yourself as much as you might write to express yourself? It’s far more interesting to write about others.
+ - Fear of sexuality is the new, disease-sponsored register of the universe of fear in which everyone now lives.
+ - Creativity needs to be taken care of. It’s like a big baby that needs to be nourished.
+ - Though collecting quotations could be considered as merely an ironic mimetism.
+ - A family’s photograph album is generally about the extended family and, often, is all that remains of it.
+ - Although there is a sense in which the camera does indeed capture reality, not just interpret it, photographs are as much an interpretation of the world as paintings and drawings are.
+ - The unit of the poet is the word, the unit of the prose writer is the sentence.
+ - As industrialization provided social uses for the operations of the photographer, so the reaction against these uses reinforced the self-consciousness of photography-as-art.
+ - God, living is enormous!
+ - Fatal illness has always been viewed as a test of moral character, but in the nineteenth century there is a great reluctance to let anybody flunk the test.
+ - Much of modern art is devoted to lowering the threshold of what is terrible. By getting us used to what, formerly, we could not bear to see or hear, because it was too shocking, painful, or embarrassing, art changes morals.
+ - Each generation has to reinvent spirituality.
+ - Experiences aren’t pornographic; only images and representations – structures of the imagination – are.
+ - The truth is always something that is told, not something that is known. If there were no speaking or writing, there would be no truth about anything. There would only be what is.
+ - One set of messages of the society we live in is: Consume. Grow. Do what you want. Amuse yourselves.
+ - My urge to write is an urge not to self-expressionism but to self-transcendence. My work is both bigger and smaller than I am.
+ - The traditional metaphor for a spiritual investigation is that of the voyage or the journey. From this image I must dissociate myself. I do not consider myself a voyager, I have preferred to stand still.
+ - AIDS obliges people to think of sex as having, possibly, the direst consequences: suicide. Or murder.
+ - To photograph people is to violate them, by seeing them as they never see themselves, by having knowledge of them that they can never have...
+ - Even more than comparing society to a family, comparing it to a body makes an authoritarian ordering of society seem inevitable, immutable.
+ - Societies need to have one illness which becomes identified with evil, and attaches blame to its victims.
+ - Result of self-consciousness: audience and actor are the same. I live my life as a spectacle for myself, for my own edification. I live my life but I don’t live in it. The hoarding instinct in human relations.
+ - Courage is morally neutral.
+ - The romantic treatment of death asserts that people were made singular, made more interesting, by their illnesses.
+ - The principal instances of mass violence in the world today are those committed by governments within their own legally recognized borders.
+ - The “happening” operates by creating an asymmetrical network of surprises, without climax or consummation, this is the alogism of dreams rather than the logic of most art.
+ - The photographer both loots and preserves, denounces and consecrates.
+ - Images have been reproached for being a way of watching suffering at a distance, as if there were some other way of watching.
+ - One can know worlds one has not experienced, choose a response to life that has never been offered, create an inwardness utterly strong and fruitful.
+ - Shouting has never made me understand anything.
+ - We are told we must choose – the old or the new. In fact, we must choose both. What is a life if not a series of negotiations between the old and the new?
+ - If tragedy is an experience of hyperinvolvement, comedy is an experience of underinvolvement, of detachment.
+ - It is the action of bodies on bodies, not bodies on minds, which the crowd enjoys.
+ - Loeb has been doing wonderfully patient work, exploring the American conscience from the inside. I regard him as something of a national treasure.
+ - Ours is a society in which secrets of private life that, formerly, you would have given nearly anything to conceal, you now clamor to get on a television show to reveal.
+ - Ambition, if it feeds at all, does so on the ambition of others.
+ - If literature has engaged me as a project, first as a reader, then as a writer, it is as an extension of my sympathies to other selves, other domains, other dreams, other territories.
+ - Photographs are perhaps the most mysterious of all the objects that make up, and thicken, the environment we recognize as modern. Photographs really are experience captured, and the camera is the ideal arm of consciousness in its acquisitive mood.
+ - The felt unreliability of human experience brought about by the inhuman acceleration of historical change has led every sensitive modern mind to the recording of some kind of nausea, of intellectual vertigo.
+ - A large part of the popularity and persuasiveness of psychology comes from its being a sublimated spiritualism: a secular, ostensibly scientific way of affirming the primacy of spirit over matter.
+ - One cannot use the life to interpret the work. But One can use the work to interpret the life.
+ - Writing is a mysterious activity.
+ - In good films, there is always a directness that entirely frees us from the itch to interpret.
+ - Ours is an age which consciously pursues health, and yet only believes in the reality of sickness.
+ - To travel is to shop.
+ - Strictly speaking, it is doubtful that a photograph can help us understand anything.
+ - The single most amazing phenomenon is the discrediting of idealism.
+ - Each of us carries a room within ourselves, waiting to be furnished and peopled, and if you listen closely, you may need to silence everything in your own room, you can hear the sounds of that other room inside your head.
+ - The only transformation that interests me is a total transformation – however minute.
+ - I make an idol of my moral consciousness. My pursuit of the good is corrupted by the sin of idolatry.
+ - The only ideals allowed are healthy ones – those everyone may aspire to, or comfortably imagine oneself possessing.
+ - There are more and more taboos about calling something, anything, ugly.
+ - I have always been full of lust – as I am now – but I have always been placing conceptual obstacles in my own path.
+ - Along with people who pretty themselves for the camera, the unattractive and the disaffected have been assigned their beauty.
+ - Many things in the world have not been named; and many things, even if they have been named, have never been described.
+ - I envy paranoids; they actually feel people are paying attention to them.
+ - You can go into all sorts of situations with a camera and people will think they should serve it.
+ - A work of art, so far as it is a work of art, cannot – whatever the artist’s personal intention – advocate anything at all.
+ - Volume depends precisely on the writer’s having been able to sit in a room every day, year after year, alone.
+ - Any important disease whose causality is murky, and for which treatment is ineffectual, tends to be awash in significance.
+ - The notion of art as the dearly purchased outcome of an immense spiritual risk, one whose cost goes up with the entry and participation of each new player in the game.
+ - Books are funny little portable pieces of thought.
+ - Any disease that is treated as a mystery and acutely enough feared will be felt to be morally, if not literally, contagious.
+ - Nature in America has always been suspect, on the defensive, cannibalized by progress. In America, every specimen becomes a relic.
+ - It is not suffering as such that is most deeply feared but suffering that degrades.
+ - All great art contains at its center contemplation, a dynamic contemplation.
+ - Self-respect. It would make me lovable. And it’s the secret to good sex.
+ - Literature usually begets literature.
+ - The really important thing is not to reject anything.
+ - A personality is our way of being for others. We hope that others will meet us half way or more, gratify our needs, be our audience, soothe our fears.
+ - Photographs shock insofar as they show something novel.
+ - My ignorance is not charming.
+ - Like the collector, the photographer is animated by a passion that, even when it appears to be for the present, is linked to a sense of the past.
+ - I don’t want to express alienation. It isn’t what I feel. I’m interested in various kinds of passionate engagement. All my work says be serious, be passionate, wake up.
+ - The possession of a camera can inspire something akin to lust. And like all credible forms of lust, it cannot be satisfied.
+ - Although none of the rules for becoming more alive is valid, it is healthy to keep on formulating them.
+ - Persons who merely have-a-life customarily move in a dense fluid. That’s how they’re able to conduct their lives at all. Their living depends on not seeing.
+ - One of the author’s most ancient roles is to call the community to account for its hypocrisies and bad faith...
+ - What, I ask, drives me to disorder? How can I diagnose myself? All I feel, most immediately, is the most anguished need for physical love and mental companionship -.
+ - AIDS occupies such a large part in our awareness because of what it has been taken to represent. It seems the very model of all the catastrophes privileged populations feel await them.
+ - What I expect from writers-and from myself as a writer-is to articulate a complex view of things. To incite us to be more compassionate. To orchestrate our mourning. And to celebrate ecstasy.
+ - Everything should be understood, and anything can be transformed – that is the modern view.
+ - It is easier to endure than to change. But once one has changed, what was endured is hard to recall.
+ - With more people, there are more voices to tune out.
+ - Marriage is a sort of tacit hunting in couples.
+ - In ‘life,’ I don’t want to be reduced to my work. In ‘work,’ I don’t want to be reduced to my life.
+ - A photograph comes into being, as it is seen, all at once.
+ - On the level of simple sensation and mood, making love surely resembles an epileptic fit at least as much as, if not more than, it does eating a meal or conversing with someone.
+ - Where once it was the physician who waged bellum contra morbum, the war against disease, now it’s the whole society.
+ - The creative phase of an idea coincides with the period during which it insists, cantankerously, on its boundaries, on what makes it different; but an idea becomes false and impotent when it seeks reconciliation, at cut-rate prices, with other ideas.
+ - Gide and I have attained such perfect intellectual communion that I experience the appropriate labor pains for every thought he gives birth to!
+ - One man thinks before he acts. Another man thinks after he acts. Each is of the opinon that the other thinks too much.
+ - The moral pleasure in art, as well as the moral service that art performs, consists in the intelligent gratification of consciousness.
+ - Is it the obligation of great art to be continually interesting? I think not.
+ - There is a great deal that either has to be given up or be taken away from you if you are going to succeed in writing a body of work.
+ - Reality has come to seem more and more like what we are shown by cameras.
+ - The idea of content in art is today merely a hindrance, a nuisance, a subtle or not so subtle philistinism.
+ - The truth of history crowds out the truth of fiction – as if one were obliged to choose between them...
+ - I like to feel dumb. That’s how I know there’s more in the world than me.
+ - Few ever see what is not already inside their heads.
+ - Etymologically, ‘patient’ means sufferer.
+
+350 quotes

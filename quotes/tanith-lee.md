@@ -1,0 +1,78 @@
+ - A rose by any other name Would get the blame For being what it is – The colour of a kiss, The shadow of a flame. A rose may earn another name, So call it love; So call it love I will, And love is like the sea, Which changes constantly, And yet is still The same.
+ - I hate the way, once you start to know someone, care about them, their behavior can distress you, even when it’s unreasonable and not your fault, even if you were really trying to be careful, tactful.
+ - It was not apathy. It was an intelligent disinterest in those things that could have no bearing on one’s existence.
+ - I will draw you back to me. You shall see. By a chain of stars.
+ - No one is ever ordinary.
+ - It gets cold in the desert at night, particularly up in the mountains; the stars hammer on the rock and strike frost.
+ - We need the expressive arts, the ancient scribes, the storytellers, the priests.
+ - No one more cynical than an idealist.
+ - She looked, and a scarlet butterfly flew away from her, away down the length of the tower, and then another, another, an unraveling scarf of butterflies like winged blood.
+ - What is any of this to us? Time is endless and ours. Love and Death are only the games we play in it.
+ - Dawn rose from the desert and turned the river to wine.
+ - Maidens who stay maidens turn into saints. Old women become sorceresses. Tough jobs, both of these.
+ - Danger and anger are everywhere. Love is the rarity, the gem buried in the core of the mine, the outpost of God.
+ - We all have our dreams. May we find them, and God have mercy on us when we do.
+ - We need the expressive arts, the ancient scribes, the storytellers, the priests. And that’s where I put myself: as a storyteller. Not necessarily a high priestess, but certainly the storyteller. And I would love to be the storyteller of the tribe.
+ - World’s flying like birds; my car’s in flight. The city lights are spattered on my windshield like the fragments of the night. And I’m in flight. The sky’s a wheel, a merry-go-round of wings and snow and steel, and fire. We’ll tread the sky, we’ll ride the scarlet horses.
+ - Archetypes are universal, and, in subtle or extravagant ways, interchangeable.
+ - I haven’t changed. Something’s happened to me, that’s all.
+ - I am interested in most mythology. Celtic or Christian no more than anything else. I will admit to a pleasure and sense of hope in what I see as the basic teachings of Christ, stripped of the nonsense that has sometimes been accumulated about them and the embarrassing misunderstanding.
+ - If they had said my writing wasn’t good enough, fair enough, that’s an opinion. But to say it’s too complex is to insult the intelligence of the so-called young.
+ - It’s very selfish when I write. I’m not aware, ever, of writing for another person; I’m not even really aware of writing for myself.
+ - How massively the mountains stand, while low to the ground the sand blows. The sand blows on and on. And then there are no mountains, none at all, the sand has kissed and whispered them away. And still, the sand blows on.
+ - The soul is a magician. Only living flesh hampers it.
+ - Im a devotee of Dracula, which was a pathfinder in horror and vampire fiction.
+ - Madness. I did not get myself born to die. I have better things to do.
+ - The so-called Real World. Human misery and sadness. Blind politics and general cruelty.
+ - Oh, love. Love is best of all. There is no such total element, not even pain. Who has ever loved, knows this. I need not say more.
+ - Writing is writing, and stories are stories. Perhaps the only true genres are fiction and nonfiction. And even there, who can be sure?
+ - I came up with a parallel Venice called Venus. set in a parallel Venice about 1701.
+ - Robespierre, crippled and blind, has yet to be healed to the knowledge that service – his desire – is a deed of savage-speaking gentleness, not soft-spoken savagery.
+ - At an early school, when I was about 5, they asked what we wanted to be when we grew up. Everyone said silly things, and I said I wanted to be an actress. So that was what I wanted to be, but what I was, of course, was a writer.
+ - If you run away from trouble, it always follows.
+ - Go nowhere on a horse that fades, for your dreams will betray you.
+ - I like writing about women, weak and strong, pathetic and heroic. I like writing about men, ditto. And all the variants of men and women, beasts and demons.
+ - The worst vulgarity is to avoid vulgarity solely on the grounds that it is vulgar.
+ - Whatever the hell I am, I am Me.
+ - It was so useful to lie with the truth.
+ - Men are not the causers of history. History itself, by a pressure of events, causes men to resort to particular actions.
+ - Tales of heroes end in bliss.
+ - I held out my book. It was precious to me, as were all the things I’d written; even where I despised their inadequacy there was not one I would disown. Each tore its way from my entrails. Each had shortened my life, killed me with its own special little death.
+ - Genre categories are irrelevant. I dislike them, but I do not have the casting vote.
+ - As a child, my mother told me lots of fairy stories, many her own invention. She, too, tended to reverse the norm.
+ - The bitterness of joy lies in the knowledge that is cannot last. Nor should joy last beyond a certain season, for, after that season, even joy would become merely habit.
+ - Im writing what comes into my head, or through me, or from somewhere else, and it is the most extraordinary, exciting thing. I love it, and Im very greedy, and I really enjoy it!
+ - I think of myself as a storyteller, and that is it.
+ - He sat by her, watching every gesture she made, as if he would paint her portrait afterward.
+ - When I am fascinated by something, I like to play with it.
+ - I hardly ever work from a synopsis – I find they act like chains.
+ - In the greater part of humankind there resides an instinct for survival. It is this which can clutch at straws and effect a rescue from them. It is this which can, now and then, outwit fate.
+ - I submitted manuscripts to publishers. This was not so much a feeling that I should be published as a wish to escape the feared and hated drudgery of normal work.
+ - It’s lovely. I hate it.
+ - You should visit before you pass judgment on a place.
+ - I never know where I am going, though. That is part of what makes it so wonderful. And after all, who does?
+ - I began to feel lighthearted. Don’t ever do that; it tempts some dark and evil force abroad in the universe.
+ - I’m not very good at being alive. Sometimes I despair of ever mastering it, getting it right. When I’m old, perhaps.
+ - The dictate of the light says: Know yourself and what you are. The dark replies, By all means, but then become afraid.
+ - I was reading some complex books in my own youth-and no, I didnt always understand every word, let alone every concept-but I got the main thrust, which was like a lifeline in a fluctuating world.
+ - I like films, or some films, and would be intrigued to see my work on screen.
+ - Are not all loves secretly the same? A hundred flowers sprung from a single root.
+ - I was born in North London in 1947. I didn’t learn to read until I was almost 8-partly bad schooling, and partly I suspect slight dyslexic problems. My father, driven mad by this, taught me to read. At 9 I began writing.
+ - The humble were the elect of God. Did not the priests teach so, in their gemmed, kingly robes, from their towering pulpits?
+ - Writers tell stories better, because they’ve had more practice, but everyone has a book in them. Yes, that old cliche.
+ - She could not mourn. She could no longer weep grasping the essence of annihilation, she wished only to cease, to be no more, as if sunk in some profound sleep devoid of wakening.
+ - If I ever get to 100, I’d want to be filled with wonder and wild, adolescent, wide-eyed interest in newness. So let’s keep the flame burning. Let’s stop thinking everyone over 29, or 49, has to be reinforced by concrete.
+ - Condemned and executioner are not coupled in a primitive rite.
+ - I just love writing. It’s magical, it’s somewhere else to go, it’s somewhere much more dreadful, somewhere much more exciting. Somewhere I feel I belong, possibly more than in the so-called real world.
+ - I tend not to analyse my work, though I’m frequently intrigued when other people take time to do so.
+ - Pirates have always fascinated me.
+ - I also love Disney, and will defend doing so, because there’s so much in those films and I don’t care if it’s stereotyped.
+ - Flat or round, there has always been hate in the world.
+ - There was no violence, no speed. It moved to the rhythm of an elder dance, putting all the rituals of the world to shame. Black, silver, gold and moon-opal, night and sea, fire, earth, air and water.
+ - I love writers all across the board, but one who influenced me very directly at the beginning was Mary Renault.
+ - When I started as a writer, I knew nothing about publishing-nothing about anything!
+ - I’ve been criticised for writing in too complex a manner for younger people.
+ - Ecstasy and vulnerability belonged in the same dish. The fear the cup would be snatched away was what gave the wine its savor.
+ - Hope is a punishable offense. The verdict is always death; one more death of the heart.
+
+76 quotes

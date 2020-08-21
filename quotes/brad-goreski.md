@@ -1,0 +1,30 @@
+ - My future’s so bright, I gotta wear shades.
+ - Leather and lace is such a sexy combination.
+ - I love weddings: happy people coming together to celebrate in great clothes.
+ - Putting on a new pair of glasses or sunglasses is a simple way to completely transform your look – just like a new hairstyle.
+ - I’m a crier. You won’t see me lashing out, but you will see me crying a lot.
+ - I am very lucky to have the opportunity to travel to so many amazing destinations for work!
+ - When I’m in New York I love to stay at the Mercer Hotel, and the C. Wonder store was so part of my New York experience from staying downtown. What I love the most about the brand is the enthusiasm that the customer has for it.
+ - Color-blocking two bold shades feels so modern.
+ - Never say never. I myself say no to things, and then I wear them. So, I’m now kind of sticking to the rule that there are no rules. Everything eventually comes back.
+ - Fashion allows you to be whoever you want to be.
+ - I was a little chubby, rosy-cheeked kid.
+ - I love everything about the holidays: the decorations, the parties, and spending time with friends and family. What I love most is that feeling of giving back. Every bit counts.
+ - I think women are usually a little bit nervous about wearing white denim. There are rules associated, body issues, all of those things.
+ - When you hear fear knocking on the door, most of the time when you answer it there’s nothing there. It’s just you holding yourself back.
+ - There are a lot of nice details that are exclusive to C. Wonder, which are the status C. Wonder gold buttons and the tassels. We want the customer and the loyal client to just really know that when they come to C. Wonder they’re getting something that’s super wearable but is also really luxurious.
+ - Like people love their tote, they love their initial bangle, they love their C. Wonder belts, they love their cardigans and their striped top, and I’m really happy to be bringing that back and helping people get their ‘Bee Happy’ smoking slippers again.
+ - I went to school to be an actor in Canada and realized I hated auditions once I left, which is a huge problem if you want to get a part.
+ - As my own boss, I have the opportunity to get to work with great brands, like Old Navy, and I get to style some looks together that people can actually buy and afford.
+ - Scarves, mittens, and hats are a great way to express your personality in the cold weather.
+ - Being able to look cute, at all times, while being able to peel off layers is the most essential thing.
+ - The other thing that I love too is the enthusiasm of the QVC customer. She loves fashion, she loves looking great, and she loves discovering something new.
+ - I only travel with a carry-on suitcase in most instances.
+ - I’m lucky to get to do the job that I do. I’m really lucky to be able to work in so many different areas of this industry.
+ - My whole philosophy is about playing dress-up.
+ - An embellished top with slim pants is great, even for a wedding.
+ - Marilyn Monroe to me is the epitome of glamour, and always has been since I was a kid.
+ - I’ve always really been interested in getting to work with QVC because I love teaching people about fashion and I love seeing people get excited by what they’re wearing.
+ - I’m a big fan of pops of color, but I thought I would take that to the next level and do a color-blocked Rolex. This watch is the perfect accessory whether you’re wearing a tee and jeans or a well-tailored suit.
+
+28 quotes

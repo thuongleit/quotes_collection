@@ -1,0 +1,35 @@
+ - Change before you’re forced to change.
+ - Ignorance is not a suitable defense.
+ - The same mistakes can never be repeated.
+ - You have to continue to learn. That’s how you develop. So the people who show that curiosity, that ambition, that willingness to do what it takes to improve and to get better, they’re the people who are going to be successful in the long term.
+ - My goal was to prove to my family I wasn’t a dummy.
+ - I spent a lot of time in the school psychologist’s office. I didn’t apply myself. My mother thought I had learning disabilities.
+ - When there’s a pattern of mistakes, something has got to change.
+ - No one is above the game or the rules that govern it. Respect for the game and the people who participate in it will not be compromised.
+ - I think when someone is injured in your family, you want to speak to the individual and you want to hear their voice and you want to make sure they are OK.
+ - The one thing I would hope would go on my tombstone is, ‘I made my parents proud.’
+ - It’s not just the NFL. Every other league has a draft. It has been fundamental to the success of professional sports.
+ - HGH testing is happening in Olympics. The science is there. It is a valid test.
+ - I learned in high school that I was going to have to outwork people. I remember running around the track, training for football, and a faster guy ran past me. I just figured, I can outlast him. If I work harder than him, I’ll beat him. And to this day I overprepare.
+ - I don’t expect to try to get people to like everything I do. I want them to respect what I do.
+ - One of the strong principles that I believe in is that you’re always learning, whether you’re a commissioner, a current general manager, a president or an owner, or somebody that’s trying to become a general manger or a coach in the NFL.
+ - I take my responsibilities very seriously.
+ - My job is to protect the integrity of the NFL and to make sure the game is as safe as possible.
+ - It’s always unfortunate when something gets misreported and the facts are not clear.
+ - Bob Beaudine challenges you to think differently. His unique approach to life and business has helped elevate many careers.
+ - The highest standards of conduct must be met by everyone in the NFL because it is a privilege to represent the NFL, not a right.
+ - The owners don’t win by having a lockout. Shutting down your business is not good for anybody and it’s certainly not good for the players, it’s certainly not good for the fans. And that’s most important to us.
+ - I’ve spent my life following my passion.
+ - I’m very fortunate, and I know that.
+ - Every game in the NFL is important.
+ - I have to make a lot of decisions that aren’t in the best interests of individuals, whether they be owners, club executives, players.
+ - I hold head coaches accountable.
+ - It’s an awesome responsibility, not only to maintain the level of success the NFL has, but to build on that.
+ - The NCAA has to establish their own rules and enforce their own rules.
+ - I think the state of the NFL has a very positive outlook.
+ - I am awake a lot of nights.
+ - I don’t get myself caught up in the rhetoric of any personal comments that are made.
+ - I talk to players all the time.
+ - It is a privilege for me to serve the NFL. It is the only place I have ever wanted to work.
+
+33 quotes

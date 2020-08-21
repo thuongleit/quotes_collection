@@ -1,0 +1,24 @@
+ - The Boogeyman is your conscience. The Boogeyman is the result of your own bad behavior. I love this Boogeyman.
+ - When sadness happens in the middle of work, I separate my personal grief from my train of thought.
+ - Anyone can write a story based on the kind of horror where you see a guy in car and then there’s the bad guy in the back seat. It’s infantile to rely on that for telling a story. That’s like going to bed and thinking there’s a monster under your bed. It’s silly.
+ - Sometimes, you start with the drawing and then the gag comes to you in the middle of it. That is when you start working on the solution of the gag, which is composition, placing, equilibrium, and character design.
+ - I have always loved horror very much. I used to write stories for DC’s House of Mystery. It was one of my first jobs writing for comics, and I loved it.
+ - My best sources are my travels and my collection of National Geographic.
+ - If the gag is complicated, you spend more time thinking about the way you’re drawing it.
+ - Suspense is very important. Even though this is humor and they’re short stories, that theory of building suspense is still there.
+ - I think that true horror is accomplished by slowly getting into your brain. The old way is much more scary.
+ - I keep very weird hours. I never know when I’m going to get an idea.
+ - Freedom is not an individual effort. Yours comes only when you grant others theirs.
+ - If a cat had a halo, it would probably wear it around it’s tail. It makes a statement.
+ - I live in a very small town and now that I’ve closed down my studio, I’m working at home.
+ - At the end of the ’60s, I was trying to enter the world of comics.
+ - I’d love to do a whole series of stories and have them collected into books.
+ - Once you’ve established where you are, you go to the character and elaborate on expressions and action.
+ - When you’re drawing comics, you get very involved in how the story is going to develop and you spend more time daydreaming on that particular subject.
+ - I don’t enjoy the boo scare when you’re watching a movie and then suddenly there’s a big shark on the screen. The only thing they’re doing is catching you off guard.
+ - The reason I love comics more than anything else is that the longest story will be just a few pages. With a novel, it takes so many pages to get to one thing happening.
+ - Eventually I would like to touch all the genres. I would like to do some detective stories, and I want to do a Western. I would want to do humorous Westerns.
+ - The Western, when I do one, will be one long, continuous story.
+ - Comics is a great medium to get a lot of stories out.
+
+22 quotes

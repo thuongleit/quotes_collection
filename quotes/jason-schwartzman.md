@@ -1,0 +1,39 @@
+ - Man, I hate to get depressing on you, but I don’t have a game. I’m so alone, so depressed, so dark, no.
+ - Writing is like building a bridge while you’re on it. If you step forward you fall off and there’s nothing in front of you.
+ - I just find that the harder you work and the more effort you put into yourself, the better you’ll be.
+ - In one sentence, I’d describe myself as indescribable. But, I wouldn’t end it with a period. I’d end it with three dots.
+ - I believe in not over thinking things too much. When the right thing comes along, you really don’t have a choice.
+ - As far as loneliness, I feel Los Angeles and its layout, having to drive everywhere – it is a lonely place. It’s an isolated city in that respect because you’re driving to places alone listening to the radio.
+ - I like being alone and I think this movie, as much as it is an investigation of connection and people bonding, I also think it’s just as much about loneliness.
+ - It’s funny that people think because you don’t have a movie or record out, you disappear into a frozen chamber someplace. They think you’re dead when you’re not in the public eye.
+ - It takes so long to write a script, thinking to yourself, “Am I wasting my time? Am I putting everything into this thing that maybe just won’t ever exist?” I always think, God, acting is so much easier. At least for acting you have the source material already.
+ - What I love about lyrics is that they don’t have to be very complicated. A good sentence over a great chord with a good melody – all you need is that one moment.
+ - In a city where you walk around, it’s impossible to plan your day and your life as accidents will happen, you’ll overhear things, bump into people, and take unexpected turns.
+ - Every actor I ever meet goes, ‘Ultimately I plan on having my own company and write and direct,’ but yes, I too would love to write and direct a movie. I want to do a play, too. I want to do it all.
+ - I always tell people that to be the funny person in a Steve Martin movie is like getting a call that Keith Moon wants you to play drums on his record. He should be playing drums on his record.
+ - Logic plus logic equals the illogical. Do you know what I mean?
+ - Making a movie is a weird combination of planning and the absolutely unexpected.
+ - I just have some restaurants to just go and eat there. Do mean places to watch people? I like to go shopping look for guitars and stuff with my friends. Look at Meyer, great old instruments, talk about pedals and stuff.
+ - But actually, I’m planning on moving to New York this year and I can tell you one reason why I think New York is incredible: I think things happen to you that you don’t expect have happen to you.
+ - It was always hard for me to really make friends, but that’s just because I like to stay home.
+ - Steve Martin is such an exquisite and precise writer. Everything is so clear; it’s like a bell. He says what he means and says it so beautifully.
+ - You get to a certain age, and you feel like you know who you are, and how you fit into the world, and how the world sort of perceives you. And you get pretty set in that. And then things can happen that can turn it upside.
+ - Dating is just awkward moments and one person wants more than the other. It’s just that constant strangeness. I think it’s a very real thing.
+ - After I quit my band, I definitely was so full, like I’m so full I could never eat again. I had that kind of feeling where the elements, like the touring stuff, were harder for me and I definitely felt fine not experiencing it again.
+ - There’s all these ways to instantly communicate – cars, computers, telephone and transportation – and even with all that, it’s so hard to find people and have an honest communication with them.
+ - I often wonder, Is it worth waiting only for things you think are going to be truly great, or is that a pretentious attitude to take?
+ - I didn’t have an agent, I didn’t have a headshot. I didn’t even know if anyone would know where to find me. I just went back to highschool and started playing with my band.
+ - You can learn a lot of things from being in movies.
+ - Whereas I think in New York every step is a detour in every direction.
+ - Also, the more you’re not focused on showbiz and instead focused on life, learning about other people, and keeping your eyes open and trying to be aware of the world.
+ - What I think is so great about interviews, is when people cite inspirations.
+ - I have never stopped playing music.
+ - I don’t know the first real thing about the dating game. I don’t know how to talk to a specific person and connect. I just think you have to go to person by person and do the best you can with people in general.
+ - I’m a very slow reader, and books of interviews are an absolute favorite of mine.
+ - I admire the actors that truly can impersonate someone – become someone, inhabit someone. It’s amazing when you see it done.
+ - I love the idea of playing a character that didn’t over think everything. He knows what’s in front of him and he has an ability to just say whatever he felt.
+ - I’m a creature of habit. I go to restaurants all the time and stuff.
+ - At this point, I think I would garner a lot of hate mail if I was now on the cover of Modern Drummer seeing as I’m not a modern drummer anymore.
+ - I’ve never invested myself properly in trying to write stories. When I write lyrics, mostly I write each sentence separately on an index card and then I lay them out and I just mix them up.
+
+37 quotes

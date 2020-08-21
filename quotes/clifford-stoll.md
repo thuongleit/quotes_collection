@@ -1,0 +1,35 @@
+ - Data is not information, Information is not knowledge, Knowledge is not understanding, Understanding is not wisdom.
+ - Treat your password like your toothbrush. Don’t let anybody else use it, and get a new one every six months.
+ - The first time you do something, it’s science. The second time, it’s engineering. The third time, it’s just being a technician. I’m a scientist. Once I do something, I want to do something else.
+ - If we built houses the way we build software, the first woodpecker to come along would destroy civilization.
+ - There is a difference between having access to information and having the savvy it takes to interpret it.
+ - We’ll soon buy books and newspapers straight over the Internet. Uh, sure.
+ - Data isn’t information, any more than fifty tons of cement is a skyscraper.
+ - Call me a troglodyte; I’d rather peruse those photos alongside my sweetheart, catch the newspaper on the way to work, and page thorough a real book.
+ - Minds think with ideas, not information No amount of data, bandwidth, or processing power can substitute for inspired thought.
+ - Computers in classrooms are the filmstrips of the 1990s.
+ - Computers force us into creating with our minds and prevent us from making things with our hands. They dull the skills we use in everyday life.
+ - While I admire the insights of many of the people in the world of computing, I get this cold feeling that I speak a different language.
+ - The truth is no online database will replace your daily newspaper, no CD-ROM can take the place of a competent teacher and no computer network will change the way government works.
+ - If you really want to know about the future, don’t ask a technologist, a scientist, a physicist. No! Don’t ask somebody who’s writing code. No, if you want to know what society’s going to be like in 20 years, ask a kindergarten teacher.
+ - Here are my strong reservations about the wave of computer networks. They isolate us from one another and cheapen the meaning of actual experience. They work against literacy and creativity. They undercut our schools and libraries.
+ - Spending an evening on the World Wide Web is much like sitting down to a dinner of Cheetos, two hours later your fingers are yellow and you’re no longer hungry, but you haven’t been nourished.
+ - When I’m online, I’m alone in a room, tapping on a keyboard, staring at a cathode-ray tube.
+ - Why is it that drug addicts and computer aficionados are both called users?
+ - No computer network with pretty graphics can ever replace the salespeople that make our society work.
+ - Anyone can post messages to the net. Practically everyone does. The resulting cacophony drowns out serious discussion.
+ - It’s easier to apologize afterwards than getting something allowed in the first place.
+ - I sense an insatiable demand for connectivity. Maybe all these people have discovered important uses for the Internet. Perhaps some of them feel hungry for a community that our real neighborhoods don’t deliver. At least a few must wonder what the big deal is.
+ - What’s society going to be like when the kids today are phenomenally good at text messaging and spend a huge amount of on-screen time, but have never gone bowling together?
+ - The Internet has no such organization – files are made available at random locations. To search through this chaos, we need smart tools, programs that find resources for us.
+ - Electronic communication is an instantaneous and illusory contact that creates a sense of intimacy without the emotional investment that leads to close friendships.
+ - A box of crayons and a big sheet of paper provides a more expressive medium for kids than computerized paint programs.
+ - Merely that I have a World Wide Web page does not give me any power, any abilities, nor any status in the real world.
+ - The Internet is a telephone system that’s gotten uppity.
+ - As the networks evolve, so do my opinions toward them, and my divergent feelings bring out conflicting points of view. In advance, I apologize to those who expect a consistent position from me.
+ - If you don’t have an e-mail address, you’re in the Netherworld. If you don’t have your own World Wide Web page, you’re a nobody.
+ - I spend almost as much time figuring out what’s wrong with my computer as I do actually using it.
+ - Rather than bringing me closer to others, the time that I spend online isolates me from the most important people in my life, my family, my friends, my neighbourhood, my community.
+ - It’s a great medium for trivia and hobbies, but not the place for reasoned, reflective judgment. Suprisingly often, discussions degenerate into acrimony, insults and flames.
+
+33 quotes

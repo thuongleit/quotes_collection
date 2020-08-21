@@ -1,0 +1,42 @@
+ - The one concern of the devil is to keep Christians from praying. He fears nothing from prayerless studies, prayerless work, and prayer-less religion. He laughs at our toil, mocks at our wisdom, but trembles when we pray.
+ - Hurry is the death of Prayer.
+ - Destitute of the fire of God, nothing else counts; possessing fire, nothing else matters.
+ - A season of silence is the best preparation for speech with God.
+ - True prayer is a lonely business.
+ - There is no way to learn to pray but by praying.
+ - It is wonderful what God can do with a broken heart, if He gets all the pieces.
+ - Satan laughs at our toil, mocks at our wisdom, but trembles when we pray.
+ - It takes us long to learn that prayer is more important than organization, more powerful than armies, more influential than wealth and mightier than all learning.
+ - The reason so many people do not pray is because of its cost. The cost is not so much in the sweat of agonizing supplication as in the daily fidelity to the life of prayer.
+ - The Secret of Praying is Praying in Secret. The secret place of prayer calls for every faculty of mind and heart.
+ - A gift without a heart behind it is a bribe. God asks for our heart, not our gifts.
+ - The root-trouble of the present distress is that the Church has more faith in the world and the flesh than in the Holy Ghost.
+ - The Holy Ghost does not come upon methods, but upon men. He does not anoint machinery, but men. He does not work through organizations, but through men. He does not dwell in buildings, but men. He indwells the Body of Christ, directs its activities, distributes its forces, empowers its members.
+ - When alone with God, be alone with Him.
+ - In these days there is no time to pray; but without time, and a lot of it, we shall never learn to pray.
+ - Compassion costs. It is easy enough to argue, criticize and condemn, but redemption is costly, and comfort draws from the deep. Brains can argue, but It takes heart to comfort.
+ - The prayer that prevails is not the work of lips and fingertips. It is the cry of a broken heart and the travail of a stricken soul.
+ - Prayer turns ordinary mortals into men of power. It brings power. It brings fire. It brings rain. It brings life. It brings God.
+ - Truth without enthusiasm, morality without emotion, ritual without soul, are things Christ unsparingly condemned. Destitute of fire, they are nothing more than a godless philosophy, an ethical system, and a superstition.
+ - Spirit filled souls are ablaze for God. They love with a love that glows. They serve with a faith that kindles. They serve with a devotion that consumes. They hate sin with fierceness that burns. They rejoice with a joy that radiates. Love is perfected in the fire of God.
+ - Prayer is the acid test of devotion.
+ - To pray in the name of Christ is to pray as one who is at one with Christ, whose minid is the mind of Christ, whose desires are the desires of Christ, and whose purpose is one with that of Christ.
+ - If you’re successful, don’t crow. If you’re defeated, don’t croak.
+ - Brethren, the crying sin of the church is her laziness after God.
+ - The Holy Spirit cannot conquer the world with unbelief, nor can He save the world with a worldly Church. He calls for a crusade, a campaign, and an adventure of saving passion. For this enterprise He wants a separated, sanctified and sacrificial people.
+ - There is no better way to serve others than to pray for them. There is nothing about which I do not pray. I go over all my life in the presence of God. All my problems are solved there.
+ - Prayer in secret is life finding expression in the realized Presence of God our Father.
+ - The Church is the Body of Christ begotten, unified, and indwelt by the Spirit, but forgetting the Spirit, men wrangle over limbs, functions, and orders. The Christian religion is hopeless without the Holy Ghost.
+ - Confusion and impotence are the inevitable results when the wisdom and resources of the world are substituted for the presence and power of the Spirit.
+ - The Church gives more time, thought, and money to recreation and sport than to prayer.
+ - Communion is deeper than theology.
+ - Brains can argue, but it takes heart to comfort.
+ - Praying solves the problems of prayer.
+ - The world will never believe in a religion in which there is no power.
+ - Passion does not compensate for ignorance.
+ - The soul is never less alone than when it is alone with God.
+ - The Christian religion is hopeless without the Holy Ghost.
+ - To pray as God would have us pray is the greatest achievement of earth.
+ - The great souls who became mighty in prayer and rejoiced to spend three and four hours a day alone with God were once beginners.
+
+40 quotes

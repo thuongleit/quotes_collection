@@ -1,0 +1,42 @@
+ - The improvement of understanding is for two ends: first, our own increase of knowledge; secondly, to enable us to deliver that knowledge to others. ~~John Locke
+ - Listening is not understanding the words of the question asked, listening is understanding why the question was asked in the first place. ~~Simon Sinek
+ - If you only hear one side of the story, you have no understanding at all. ~~Chinua Achebe
+ - To not know math is a severe limitation to understanding the world. ~~Richard P. Feynman
+ - Stop. Take 3 deep breaths and smile everywhere in your body, observing what’s happening in your body. Proceed now with kindness and understanding. ~~Deepak Chopra
+ - The brain is like a muscle. When it is in use we feel very good. Understanding is joyous. ~~Carl Sagan
+ - Meditation is not a withdrawal from life. Meditation is a process of understanding oneself. ~~Jiddu Krishnamurti
+ - I still believe in peace, love, and understanding. ~~John Lennon
+ - I have learned to live my life one step, one breath, and one moment at a time, but it was a long road. I set out on a journey of love, seeking truth, peace and understanding. I am still learning. ~~Muhammad Ali
+ - To begin with the end in mind means to start with a clear understanding of your destination. It means to know where you’re going so that you better understand where you are now and so that the steps you take are always in the right direction. ~~Stephen R. Covey
+ - Happiness and freedom begin with a clear understanding of one principle: Some things are within our control, and some things are not. ~~Epictetus
+ - The purpose of today’s training is to defeat yesterday’s understanding. ~~Miyamoto Musashi
+ - The electron is a theory we use; it is so useful in understanding the way nature works that we can almost call it real. ~~Richard P. Feynman
+ - Let us develop respect for all living things. Let us try to replace violence and intolerance with understanding and compassion. And love. ~~Jane Goodall
+ - Understanding is a kind of ecstasy. ~~Carl Sagan
+ - Develop intuitive judgement and understanding for everything. ~~Miyamoto Musashi
+ - Steadfastness is a noble quality, but unguided by knowledge or humility, it becomes rashness, or obstinacy. ~~Aaron Swartz
+ - If you’re scientifically literate, the world looks very different to you, and that understanding empowers you. ~~Neil deGrasse Tyson
+ - Investment philosophy is the clear understanding that by owning shares of stocks he owns businesses, not pieces of paper. ~~Warren Buffett
+ - All knowledge and understanding of the Universe was no more than playing with stones and shells on the seashore of the vast imponderable ocean of truth. ~~Isaac Newton
+ - Unless you really understand others, you can hardly attain your own self-understanding. ~~Miyamoto Musashi
+ - Knowledge is not power, it is only potential. Applying that knowledge is power. Understanding why and when to apply that knowledge is wisdom! ~~Takeda Shingen
+ - We don’t use the term ‘working class’ here because it’s a taboo term. You’re supposed to say ‘middle class,’ because it helps diminish the understanding that there’s a class war going on. ~~Noam Chomsky
+ - A first sign of the beginning of understanding is the wish to die. ~~Franz Kafka
+ - For broad understanding and deep feeling, you need pain and suffering. ~~Fyodor Dostoyevsky
+ - We need more understanding of human nature, because the only real danger that exists is man himself. ~~C.G. Jung
+ - There is power in understanding the journey of others to help create your own. ~~Kobe Bryant
+ - Data is not information, Information is not knowledge, Knowledge is not understanding, Understanding is not wisdom. ~~Clifford Stoll
+ - If we can share our story with someone who responds with empathy and understanding, shame can’t survive. ~~Brené Brown
+ - If quantum mechanics hasn’t profoundly shocked you, you haven’t understood it yet. ~~Niels Bohr
+ - Patience is a purifying process that refines understanding, deepens happiness, focuses action, and offers hope for peace. ~~Dieter F. Uchtdorf
+ - Words can travel thousands of miles. May my words create mutual understanding and love. May they be as beautiful as gems, as lovely as flowers. ~~Nhat Hanh
+ - It is well to give when asked, but it is better to give unasked, through understanding; and to the open-handed the search for one who shall receive is joy greater than giving. ~~Khalil Gibran
+ - Aristotle can be regarded as the father of logic. But his logic is too scholastic, full of subtleties, and fundamentally has not been of much value to the human understanding. It is a dialectic and an organon for the art of disputation. ~~Immanuel Kant
+ - You cannot create experience. You must undergo it. ~~Albert Camus
+ - You don’t need strength to let go of something. What you really need is understanding. ~~Guy Finley
+ - Once we realize that imperfect understanding is the human condition there is no shame in being wrong, only in failing to correct our mistakes. ~~George Soros
+ - We’re fascinated by the words – but where we meet is in the silence behind them. ~~Ram Dass
+ - You never know what is enough unless you know what is more than enough. ~~William Blake
+ - Your pain is the breaking of the shell that encloses your understanding. Even as the stone of the fruit must break, that its heart may stand in the sun, so must you know pain. ~~Khalil Gibran
+
+40 quotes

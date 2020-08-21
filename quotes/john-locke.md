@@ -1,0 +1,201 @@
+ - Reading furnishes the mind only with materials of knowledge; it is thinking that makes what we read ours.
+ - Don’t tell me what I can’t do!
+ - The improvement of understanding is for two ends: first, our own increase of knowledge; secondly, to enable us to deliver that knowledge to others.
+ - Where there is no law there is no freedom.
+ - Struggle is nature’s way of strengthening it.
+ - What worries you, masters you.
+ - Logic is the anatomy of thought.
+ - With books we stand on the shoulders of giants.
+ - Curiosity in children is but an appetite for knowledge.
+ - This is my destiny – I’m supposed to do this, dammit! Don’t tell me what I can and can’t do!
+ - The discipline of desire is the background of character.
+ - I have always thought the actions of men the best interpreters of their thoughts.
+ - Who are we to tell anyone what they can or can’t do?
+ - Education begins the gentleman, but reading, good company and reflection must finish him.
+ - All wealth is the product of labor.
+ - Revolt is the right of the people.
+ - New opinions are always suspected, and usually opposed, without any other reason but because they are not already common.
+ - Justice and truth are the common ties of society.
+ - No man’s knowledge here can go beyond his experience.
+ - There are two sides, two players. One is light, the other is dark.
+ - Every man has a property in his own person. This nobody has a right to, but himself.
+ - The mind is furnished with ideas by experience alone.
+ - Good and evil, reward and punishment, are the only motives to a rational creature.
+ - I have no reason to suppose that he, who would take away my Liberty, would not when he had me in his Power, take away everything else.
+ - A sound mind in a sound body is a short but full description of a happy state in this world.
+ - I am sure, zeal or love for truth can never permit falsehood to be used in the defense of it.
+ - Nothing is in the intellect that was not first in the senses.
+ - Government has no other end, but the preservation of property.
+ - Anger is uneasiness or discomposure of the mind upon the receipt of any injury, with a present purpose of revenge.
+ - A sound mind in a sound body, is a short, but full description of a happy state in this World: he that has these two, has little more to wish for; and he that wants either of them, will be little the better for anything else.
+ - Fortitude is the guard and support of the other virtues.
+ - How long have you been holding those words in your head, hoping to use them?
+ - In the beginning, all the world was America.
+ - Curiosity in children, is but an appetite for knowledge. The great reason why children abandon themselves wholly to silly pursuits and trifle away their time insipidly is, because they find their curiosity balked, and their inquiries neglected.
+ - There is frequently more to be learned from the unexpected questions of a child than the discourses of men.
+ - If any one shall claim a power to lay and levy taxes on the people by his own authority and without such consent of the people, he thereby invades the fundamental law of property, and subverts the end of government.
+ - He that uses his words loosely and unsteadily will either not be minded or not understood.
+ - It is labour indeed that puts the difference on everything.
+ - Since the great foundation of fear is pain, the way to harden and fortify children against fear and danger is to accustom them to suffer pain.
+ - The only fence against the world is a thorough knowledge of it.
+ - Some eyes want spectacles to see things clearly and distinctly: but let not those that use them therefore say nobody can see clearly without them.
+ - The business of education is not to make the young perfect in any one of the sciences, but so to open and dispose their minds as may best make them – capable of any, when they shall apply themselves to it.
+ - So difficult it is to show the various meanings and imperfections of words when we have nothing else but words to do it with.
+ - Parents wonder why the streams are bitter, when they themselves have poisoned the fountain.
+ - It is of great use to the sailor to know the length of his line, though he cannot with it fathom all the depths of the ocean.
+ - If we will disbelieve everything, because we cannot certainly know all things, we shall do much what as wisely as he who would not use his legs, but sit still and perish, because he had no wings to fly.
+ - All men are liable to error; and most men are, in many points, by passion or interest, under temptation to it.
+ - The end of law is not to abolish or restrain, but to preserve and enlarge freedom. For in all the states of created beings capable of law, where there is no law, there is no freedom.
+ - The state of nature has a law of nature to govern it, which obliges every one: and reason, which is that law, teaches all mankind, who will but consult it.
+ - Our incomes are like our shoes; if too small, they gall and pinch us; but if too large, they cause us to stumble and to trip.
+ - Merit and good works is the end of man’s motion; and conscience of the same is the accomplishment of man’s rest; for if a man can be partaker of God’s theatre, he shall likewise be partaker of God’s rest.
+ - Memory is the power to revive again in our minds those ideas which after imprinting have disappeared, or have been laid aside out of sight.
+ - That which is static and repetitive is boring. That which is dynamic and random is confusing. In between lies art.
+ - The picture of a shadow is a positive thing.
+ - Consciousness is the perception of what passes in man’s own mind.
+ - The senses at first let in particular Ideas, and furnish the yet empty Cabinet: And the Mind by degrees growing familiar with some of them, they are lodged in the Memory, and Names got to them.
+ - The most precious of all possessions is power over ourselves.
+ - MEN being, as has been said, by nature, all free, equal, and independent, no one can be put out of this estate, and subjected to the political power of another, without his own consent.
+ - These two, I say, viz. external material things, as the objects of SENSATION, and the operations of our own minds within, as the objects of REFLECTION, are to me the only originals from whence all our ideas take their beginnings.
+ - The only fence against the world is a thorough knowledge of it, into which a young gentleman should be enter’d by degrees, as he can bear it; and the earlier the better, so he be in safe and skillful hands to guide him.
+ - An excellent man, like precious metal, is in every way invariable; A villain, like the beams of a balance, is always varying, upwards and downwards.
+ - Where all is but dream, reasoning and arguments are of no use, truth and knowledge nothing.
+ - Don’t let the things you don’t have prevent you from using what you do have.
+ - Thus parents, by humouring and cockering them when little, corrupt the principles of nature in their children, and wonder afterwards to taste the bitter waters, when they themselves have poison’d the fountain.
+ - I thought that I had no time for faith nor time to pray, then I saw an armless man saying his Rosary with his feet.
+ - The necessity of pursuing true happiness is the foundation of all liberty- Happiness, in its full extent, is the utmost pleasure we are capable of.
+ - It is one thing to show a man that he is in an error, and another to put him in possession of the truth.
+ - Our Business here is not to know all things, but those which concern our conduct.
+ - If by gaining knowledge we destroy our health, we labour for a thing that will be useless in our hands.
+ - I find every sect, as far as reason will help them, make use of it gladly: and where it fails them, they cry out, It is a matter of faith, and above reason.
+ - As much land as a man tills, plants, improves, cultivated, and can use the product of, so much is his property. He by his labour does, as it were, enclose it from the common.
+ - Who hath a prospect of the different state of perfect happiness or misery that attends all men after this life, depending on their behavior, the measures of good and evil that govern his choice are mightily changed.
+ - There are a thousand ways to Wealth, but only one way to Heaven.
+ - All rising to great place is by a winding stair; and if there be factions, it is good to side a man’s self whilst he is in the rising, and to balance himself when he is placed.
+ - We are like chameleons, we take our hue and the color of our moral character, from those who are around us.
+ - No peace and security among mankind-let alone common friendship-can ever exist as long as people think that governments get their authority from God and that religion is to be propagated by force of arms.
+ - He that in the ordinary affairs of life would admit of nothing but direct plain demonstration would be sure of nothing in this world but of perishing quickly.
+ - Slavery is so vile and miserable an Estate of Man, and so directly opposite to the generous Temper and Courage of our Nation; that ’tis hardly to be conceived, that an Englishman, much less a Gentleman, should plead for’t.
+ - Mathematical proofs, like diamonds, are hard and clear, and will be touched with nothing but strict reasoning.
+ - Success in fighting means not coming at your opponent the way he wants to fight you.
+ - The rising unto place is laborious, and by pains men come to greater pains; and it is sometimes base, and by indignities men come to dignities.
+ - Firmness or stiffness of the mind is not from adherence to truth, but submission to prejudice.
+ - As people are walking all the time, in the same spot, a path appears.
+ - The visible mark of extraordinary wisdom and power appear so plainly in all the works of creation.
+ - He that will have his son have respect for him and his orders, must himself have a great reverence for his son.
+ - To prejudge other men’s notions before we have looked into them is not to show their darkness but to put out our own eyes.
+ - He that judges without informing himself to the utmost that he is capable, cannot acquit himself of judging amiss.
+ - Since nothing appears to me to give Children so much becoming Confidence and Behavior, and so raise them to the conversation of those above their Age, as Dancing. I think they should be taught to dance as soon as they are capable of learning it.
+ - Truth, like gold, is not less so for being newly brought out of the mine.
+ - Try all things, hold fast that which is good.
+ - It is easier for a tutor to command than to teach.
+ - Whenever legislators endeavor to take away and destroy the property of the people, or to reduce them to slavery under arbitrary power, they put themselves into a state of war with the people, who are thereupon absolved from any further obedience.
+ - To love our neighbor as ourselves is such a truth for regulating human society, that by that alone one might determine all the cases in social morality.
+ - There cannot be greater rudeness than to interrupt another in the current of his discourse.
+ - To love truth for truth’s sake is the principal part of human perfection in this world, and the seed-plot of all other virtues.
+ - God, when he makes the prophet, does not unmake the man.
+ - But there is only one thing which gathers people into seditious commotion, and that is oppression.
+ - Though the water running in the fountain be every ones, yet who can doubt, but that in the pitcher is his only who drew it out?
+ - When we know our own strength, we shall the better know what to undertake with hopes of success...
+ - We should have a great fewer disputes in the world if words were taken for what they are, the signs of our ideas only, and not for things themselves.
+ - One unerring mark of the love of truth is not entertaining any proposition with greater assurance than the proofs it is built upon will warrant.
+ - The great art to learn much is to undertake a little at a time.
+ - Neither the inveterateness of the mischief, nor the prevalency of the fashion, shall be any excuse for those who will not take care about the meaning of their own words, and will not suffer the insignificancy of their expressions to be inquired into.
+ - Earthly minds, like mud walls, resist the strongest batteries; and though, perhaps, sometimes the force of a clear argument may make some impression, yet they nevertheless stand firm, keep out the enemy, truth, that would captivate or disturbe them.
+ - False and doubtful positions, relied upon as unquestionable maxims, keep those who build on them in the dark from truth. Such are usually the prejudices imbibed from education, party, reverence, fashion, interest, et cetera.
+ - The Bible is one of the greatest blessings bestowed by God on the children of men. It has God for its author; salvation for its end, and truth without any mixture for its matter. It is all pure.
+ - Being all equal and independent, no one ought to harm another in his life, health, liberty, or possessions.
+ - Certain subjects yield a general power that may be applied in any direction and should be studied by all.
+ - So that, in effect, religion, which should most distinguish us from beasts, and ought most peculiarly to elevate us, as rational creatures, above brutes, is that wherein men often appear most irrational, and more senseless than beasts themselves.
+ - The reservedness and distance that fathers keep, often deprive their sons of that refuge which would be of more advantage to them than an hundred rebukes or chidings.
+ - Knowledge being to be had only of visible and certain truth, error is not a fault of our knowledge, but a mistake of our judgment, giving assent to that which is not true.
+ - I have spent more than half a lifetime trying to express the tragic moment.
+ - A man may live long, and die at last in ignorance of many truths, which his mind was capable of knowing, and that with certainty.
+ - As usurpation is the exercise of power which another has a right to, so tyranny is the exercise of power beyond right, which nobody can have a right to.
+ - He that denies any of the doctrines that Christ has delivered, to be true, denies him to be sent from God, and consequently to be the Messiah; and so ceases to be a Christian.
+ - Till a man can judge whether they be truths or not, his understanding is but little improved, and thus men of much reading, though greatly learned, but may be little knowing.
+ - Inuring children gently to suffer some degrees of pain without shrinking, is a way to gain firmness to their minds, and lay a foundation for courage and resolution in the future part of their lives.
+ - He that makes use of another’s fancy or necessity to sell ribbons or cloth dearer to him than to another man at the same time, cheats him.
+ - Laws provide, as much as ispossible that the goods and health of subjects be not injured by the fraud and violence of others. They do not guard them from thenegligence or ill-husbandry of the possessors themselves.
+ - To be rational is so glorious a thing, that two-legged creatures generally content themselves with the title.
+ - Children generally hate to be idle; all the care then is that their busy humour should be constantly employed in something of use to them.
+ - It is practice alone that brings the powers of the mind, as well as those of the body, to their perfection.
+ - Let not men think there is no truth, but in the sciences that they study, or the books that they read.
+ - This is to think, that men are so foolish, that they take care to avoid what mischiefs may be done them by pole-cats, or foxes; but are content, nay, think it safety, to be devoured by lions.
+ - Who lies for you will lie against you.
+ - The body of People may with Respect resist intolerable Tyranny.
+ - In the discharge of thy place set before thee the best examples; for imitation is a globe of precepts.
+ - If we trace the progress of our minds, and with attention observe how it repeats, adds together, and unites its simple ideas received from sensation or reflection, it will lead us farther than at first, perhaps, we should have imagined.
+ - Things of this world are in so constant a flux, that nothing remains long in the same state.
+ - Those are not at all to be tolerated who deny the being of God. Promises, covenants, and oaths, which are the bonds of human society, can have no hold upon an atheist. The taking away of God, though but even in thought, dissolves all.
+ - Freedom of men under government is to have a standing rule to live by, common to every one of that society and made by the legislative power vested in it and not to be subject to the inconstant, uncertain, arbitrary will of another man.
+ - To give a man full knowledge of morality, I would send him to no other book than the New Testament.
+ - The dread of evil is a much more forcible principle of human actions than the prospect of good.
+ - Whoso sheddeth man’s blood, by man shall his blood be shed.
+ - We are all a sort of chameleons, that still take a tincture from things near us; nor is it to be wonder’d at in children, who better understand what they see than what they hear.
+ - The greatest part cannot know, and therefore they must believe.
+ - Reason must be our last judge and guide in everything.
+ - I doubt not, but from self-evident Propositions, by necessary Consequences, as incontestable as those in Mathematics, the measures of right and wrong might be made out.
+ - Set the mind to work, and apply the thoughts vigorously to the business, for it holds in the struggles of the mind, as in those of war, that to think we shall conquer is to conquer.
+ - The thoughts that come often unsought, and, as it were, drop into the mind, are commonly the most valuable of any we have.
+ - Fashion for the most part is nothing but the ostentation of riches.
+ - Crooked things may be as stiff and unflexible as streight: and Men may be as positive and peremptory in Error as in Truth.
+ - There cannot any one moral rule be proposed whereof a man may not justly demand a reason.
+ - If punishment reaches not the mind and makes not the will supple, it hardens the offender.
+ - Knowledge is grateful to the understanding, as light to the eyes.
+ - In transgressing the law of nature, the offender declares himself to live by another rule than that of reason and common equity.
+ - The care of souls cannot belong to the civil magistrate.
+ - It is vain to find fault with those arts of deceiving wherein men find pleasure to be deceived.
+ - Our deeds disguise us. People need endless time to try on their deeds, until each knows the proper deeds for him to do. But every day, every hour, rushes by. There is no time.
+ - It is one thing to persuade, another to command; one thing to press with arguments, another with penalties.
+ - For those who either perceive but dully, or retain the ideas that come into their minds but ill, who cannot readily excite or compound them, will have little matter to think on.
+ - Is it worth the name of freedom to be at liberty to play the fool?
+ - Many a good poetic vein is buried under a trade, and never produces any thing for want of improvement.
+ - There is no such way to gain admittance, or give defence to strange and absurd Doctrines, as to guard them round about with Legions of obscure, doubtful, and undefin’d Words.
+ - The reason why men enter into society is the preservation of their property.
+ - Untruth being unacceptable to the mind of man, there is no other defence left for absurdity but obscurity.
+ - Faith is the assent to any proposition not made out by the deduction of reason but upon the credit of the proposer.
+ - Understanding like the eye; whilst it makes us see and perceive all things, takes no notice of itself; and it requires art and pains to set it at a distance and make it its own subject.
+ - If the Gospel and the Apostles may be credited, no man can be a Christian without charity, and without that faith which works, not by force, but by love.
+ - It is therefore worthwhile, to search out the bounds between opinion and knowledge; and examine by what measures, in things, whereof we have no certain knowledge, we ought to regulate our assent, and moderate our persuasions.
+ - I esteem it above all things necessary to distinguish exactly the business of civil government from that of religion and to settle the just bounds that lie between the one and the other.
+ - Affectation is an awkward and forced imitation of what should be genuine and easy, wanting the beauty that accompanies what is natural.
+ - What if everything that happened here, happened for a reason?
+ - The Church which taught men not to keep faith with heretics, had no claim to toleration.
+ - You shall find, that there cannot be a greater spur to the attaining what you would have the eldest learn, and know himself, than to set him upon teaching it his younger brothers and sisters.
+ - In short, herein seems to lie the difference between idiots and madmen, that madmen put wrong ideas together, and so make wrong propositions, but argue and reason right from them: but idiots make very few or no propositions, and reason scarce at all.
+ - I pretend not to teach, but to inquire.
+ - Liberty is to be free from restraint and violence from others.
+ - Words, in their primary or immediate signification, stand for nothing but the ideas in the mind of him who uses them.
+ - Curiosity should be as carefully cherish’d in children, as other appetites suppress’d.
+ - Practice conquers the habit of doing, without reflecting on the rule.
+ - When Fashion hath once Established, what Folly or craft began, Custom makes it Sacred, and ’twill be thought impudence or madness, to contradict or question it.
+ - Moral laws are set as a curb and restraint to these exorbitant desires, which they cannot be but by rewards and punishments, that will over-balance the satisfaction any one shall propose to himself in the breach of the law.
+ - Error is none the better for being common, nor truth the worse for having lain neglected.
+ - God is the place of spirits, as spaces are the places of bodies.
+ - Habits wear more constantly and with greatest force than reason, which, when we have most need of it, is seldom fairly consulted, and more rarely obeyed.
+ - Reverie is when ideas float in our mind without reflection or regard of the understanding.
+ - He that would seriously set upon the search of truth, ought in the first place to prepare his mind with a love of it. For he that loves it not, will not take much pains to get it; nor be much concerned when he misses it.
+ - To ask at what time a man has first any ideas is to ask when he begins to perceive; having ideas and perception being the same thing.
+ - It is ambition enough to be employed as an under-labourer in clearing the ground a little, and removing some of the rubbish that lies in the way to knowledge.
+ - The difference, so observable in men’s understandings and parts, does not arise so much from their natural faculties, as acquired habits.
+ - Man is not permitted without censure to follow his own thoughts in the search of truth, when they lead him ever so little out of the common road.
+ - Virtue is everywhere that which is thought praiseworthy; and nothing else but that which has the allowance of public esteem is called virtue.
+ - Any one reflecting upon the thought he has of the delight, which any present or absent thing is apt to produce in him, has the idea we call love.
+ - There is not so contemptible a plant or animal that does not confound the most enlarged understanding.
+ - Beware how in making the portraiture thou breakest the pattern: for divinity maketh the love of ourselves the pattern; the love of our neighbours but the portraiture.
+ - Action is the great business of mankind, and the whole matter about which all laws are conversant.
+ - What humanity abhors, custom reconciles and recommends to us.
+ - Every man must some time or other be trusted to himself.
+ - The least and most imperceptible impressions received in our infancy have consequences very important and of long duration.
+ - When the sacredness of property is talked of, it should be remembered that any such sacredness does not belong in the same degree to landed property.
+ - Children should from the beginning be bred up in an abhorrence of killing or tormenting any living creature; and be taught not to spoil or destroy any thing, unless it be for the preservation or advantage of some other that is nobler.
+ - Children have as much mind to show that they are free, that their own good actions come from themselves, that they are absolute and independent, as any of the proudest of you grown men, think of them as you please.
+ - I attribute the little I know to my not having been ashamed to ask for information, and to my rule of conversing with all descriptions of men on those topics that form their own peculiar professions and pursuits.
+ - He that will make good use of any part of his life must allow a large part of it to recreation.
+ - Though the familiar use of things about us take off our wonder, yet it cures not our ignorance.
+ - Hence it is a mistake to think, that the supreme or legislative power of any common-wealth, can do what it will, and dispose of the estates of the subject arbitrarily, or take any part of them at pleasure.
+ - Men in great fortunes are strangers to themselves, and while they are in the puzzle of business, they have no time to tend their health either of body or mind.
+ - If all be a Dream, then he doth but dream that he makes the Question; and so it is not much matter that a waking Man should answer him.
+
+199 quotes

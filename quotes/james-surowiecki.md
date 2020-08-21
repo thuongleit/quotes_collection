@@ -1,0 +1,134 @@
+ - The ban on sports betting does exactly what Prohibition did. It makes criminals rich.
+ - Most of the work on multitasking suggests that it generally makes you less efficient, not more.
+ - I think people don’t understand compound interest because typically no one ever explains it to them and the level of financial literacy in the US is very low.
+ - Companies, like people, don’t much like to change.
+ - If small groups are included in the decision-making process, then they should be allowed to make decisions. If an organization sets up teams and then uses them for purely advisory purposes, it loses the true advantage that a team has: namely, collective wisdom.
+ - Medical tourism can be considered a kind of import: instead of the product coming to the consumer, as it does with cars or sneakers, the consumer is going to the product.
+ - The financial crisis of 2008 was not caused by investment banks betting against the housing market in 2007. It was caused by the fact that too few investors – including all of the big investment banks – bet too heavily on the housing market in the years before 2007.
+ - Paradoxically, the best way for a group to be smart is for each person in it to think and act as independently as possible.
+ - One key to successful group decisions is getting people to pay much less attention to what everyone else is saying.
+ - Sometimes you have to destroy your business in order to save it.
+ - If companies tell us more, insider trading will be worth less.
+ - Publishers, naturally, loathe used books and have developed strategies to depress the secondhand market. They bring out new, even more expensive editions of popular textbooks every three to four years, in a classic cycle of planned obsolescence.
+ - Diversity and independence are important because the best collective decisions are the product of disagreement and contest, not consensus or compromise.
+ - The important thing about groupthink is that it works not so much by censoring dissent as by making dissent seem somehow improbable.
+ - Bubbles and crashes are textbook examples of collective decision making gone wrong. In a bubble, all of the conditions that make groups intelligent – independence, diversity, private judgement-disappear.
+ - Political risk is hard to manage because so much comes down to the personal choices of policymakers, whether prime ministers or heads of central banks.
+ - Nike used to be known as Blue Ribbon Sports. What’s now Sara Lee used to be Consolidated Foods. And Exxon was once Standard Oil Company of New Jersey. These were name changes that worked. But for all the ones that do, there are 10 or 20 that don’t.
+ - If we want our regulators to do better, we have to embrace a simple idea: regulation isn’t an obstacle to thriving free markets; it’s a vital part of them.
+ - In the business world, bad news is usually good news – for somebody else.
+ - Breaking tasks down into smaller sub-tasks can be very useful.
+ - Since the Protestant majority in Northern Ireland wants to remain a part of Great Britain, and since Ireland itself has shown little interest in reunification, the IRA’s prospects for success through political channels have always been limited.
+ - Besides great climates and lovely beaches, California and Greece share a fondness for dysfunctional politics and feckless budgeting.
+ - In part because individual judgement is not accurate enough or consistent enough, cognitive diversity is essential to good decision making.
+ - In conditions of uncertainty, humans, like other animals, herd together for protection.
+ - In practice, downsizing is too often about cutting your work force while keeping your business the same, and doing so not by investments in productivity-enhancing technology, but by making people pull 80-hour weeks and bringing in temps to fill the gap.
+ - All things being equal, letting people make decisions for themselves will produce smarter outcomes, collectively, than relying on government planners.
+ - Most corporate name changes are the result of mergers and acquisitions. But these tend to be unimaginative.
+ - The problem is that groups are only smart when the people in them are as independent as possible. This is the paradox of the wisdom of crowds.
+ - In the heart of the Great Depression, millions of American workers did something they’d never done before: they joined a union. Emboldened by the passage of the Wagner Act, which made collective bargaining easier, unions organized industries across the country, remaking the economy.
+ - Technological innovation has dramatically lowered the cost of computing, making it possible for large numbers of consumers to own powerful new technologies at reasonably low prices.
+ - Real politics is messy and morally ambiguous and doesn’t make for a compelling thriller.
+ - To be sure, if you watch CNBC all day long you’ll pick up some interesting news about particular companies and the economy as a whole. Unfortunately, to get to the useful information, you have to wade through reams of useless stuff, with little guidance on how to distinguish between the two.
+ - When Americans think of college these days, the first word that often comes to mind is ‘debt.’ And from ‘debt’ it’s just a short hop to other unpleasant words, like ‘payola,’ ‘kickback,’ and ‘bribery.’
+ - Patrimonial capitalism’s legacy is that many people see reform as a euphemism for corruption and self-dealing.
+ - Speculators get a bad rap. In the popular imagination they’re greedy, heedless, and amoral, adept at price manipulations and dirty tricks. In reality, they often play a key role in making markets run smoothly.
+ - The challenge for capitalism is that the things that breed trust also breed the environment for fraud.
+ - You can’t fuel real economic growth with indiscriminate credit. You can only fuel it with well-allocated, long-term investment.
+ - The Xbox 360 is the best game console ever designed. It’s fast and powerful – games look as good on the 360 as on high-end PCs that cost six times as much. It’s easy to navigate and has lots of useful secondary features – the ability to play digital video, stream MP3s, and so on.
+ - If you thought the advent of the Internet, the spread of cheap and efficient information technology, and the growing fragmentation of the consumer market were all going to help smaller companies thrive at the expense of the slow-moving giants of the Fortune 500, apparently you were wrong.
+ - The fundamental problem with banks is what it’s always been: they’re in the business of banking, and banking, whether plain vanilla or incredibly sophisticated, is inherently risky.
+ - Downsizing itself is an inevitable part of any creatively destructive economy.
+ - Life insurance became popular only when insurance companies stopped emphasizing it as a good investment and sold it instead as a symbolic commitment by fathers to the future well-being of their families.
+ - Procrastination also can be a way of self-handicapping: if you don’t do a great job, you can always say to yourself, “If I’d only started sooner, I’d have been able to produce something excellent.”
+ - The profit motive, indecorous though it may seem, may represent the best chance the poor have to reap some of globalization’s benefits.
+ - Under the right circumstances, groups are remarkably smart – smarter even sometimes than the smartest people in them.
+ - But, if recent history has taught us anything, it’s that self-regulation doesn’t work in finance, and that worries about reputation are a weak deterrent to corporate malfeasance.
+ - Pop music thrives on repetition. You know a song’s a hit when you’ve heard it so often that you’ll be happy never to hear it again.
+ - The history of the Internet is, in part, a series of opportunities missed: the major record labels let Apple take over the digital-music business; Blockbuster refused to buy Netflix for a mere fifty million dollars; Excite turned down the chance to acquire Google for less than a million dollars.
+ - Critics of consumer capitalism like to think that consumers are manipulated and controlled by those who seek to sell them things, but for the most part it’s the other way around: companies must make what consumers want and deliver it at the lowest possible price.
+ - The world’s central banks and the International Monetary Fund still have vaults full of bullion, even though currencies are no longer backed by gold. Governments hold on to it as a kind of magic symbol, a way of reassuring people that their money is real.
+ - Flexible supply chains are great for multinationals and consumers. But they erode already thin profit margins in developing-world factories and foster a pell-mell work environment in which getting the order out the door is the only thing that matters.
+ - There does seem to be some evidence that as people get older, they procrastinate less, perhaps because they feel the pressure of time more.
+ - From a social point of view, it’s beneficial that homeownership encourages commitment to a given town or city. But, from an economic point of view, it’s good for people to be able to leave places where there’s less work and move to places where there’s more.
+ - In confusing stock options with ownership, corporations confuse trappings with substance.
+ - We assume that good-looking people are smarter and more effective than they really are, and that homely people are the reverse.
+ - The smartest groups, then, are made up of people with diverse perspectives who are able to stay independent of each other. Independence doesn’t imply rationality or impartiality, though. You can be biased and irrational, but as long as you’re independent, you won’t make the group any dumber.
+ - By the time of the ’90s boom, CEOs had become superheroes, accorded celebrity treatment and followed with a kind of slavish scrutiny that Alfred P. Sloan could never have imagined.
+ - In the struggle between capital and labor, more often than not capital has won, because the real source of value for most companies has historically been the hard assets that they owned and controlled.
+ - As technology improves, on-screen avatars look more and more like real people. When they start looking too real, though, we pull away. These almost-humans aren’t quite right; they look creepy, like zombies.
+ - Until the nineteen-seventies, Western countries paid little attention to corruption overseas, and bribery was seen as an unpleasant but necessary part of doing business there. In some European countries, businesses were even allowed to deduct bribes as an expense.
+ - Campaigns fail if they waste resources courting voters who are unpersuadable or already persuaded. Their most urgent task is to find and persuade the few voters who are genuinely undecided and the larger number who are favorably disposed but need a push to actually vote.
+ - The smartest groups, then, are made up of people with diverse perspectives who are able to stay independent of each other.
+ - The reason advertising is governed by fear, after all, is that most agencies rely on just a few clients to bring in the lion’s share of their revenues.
+ - The history of the Internet is, in part, a series of opportunities missed...
+ - Traditionally, tours were a means of promoting a record. Today, the record promotes the tour.
+ - Punk rock has never really had much patience with musical virtuosity. Actually, it’d be more accurate to say that for most of its history, punk has been actively hostile to virtuosity.
+ - Popular as Keynesian fiscal policy may be, many economists are skeptical that it works. They argue that fine-tuning the economy is a virtually impossible task, and that fiscal-stimulus programs are usually too small, and arrive too late, to make a difference.
+ - It’s a familiar truism that at any one moment, financial markets are dominated by either fear or greed. But the healthiest markets are those that are animated by both fear and greed at the same time.
+ - Tough times have always lent themselves to nativist sentiments and closed-door policies. But in the case of highly skilled immigrants, these policies are a recipe for stagnation.
+ - For a crowd to be smart, the people in it need to be not only diverse in their perspectives but also, relatively speaking, independent of each other. In other words, you need people to be thinking for themselves, rather than following the lead of those around them.
+ - If being the biggest company was a guarantee of success, we’d all be using IBM computers and driving GM cars.
+ - Standards wars involve lots of variables, and understanding them often seems more an art than a science. They generally involve just two big players, and end in a winner-take-all situation.
+ - Now, modern economies have a very effective mechanism for deciding if salaries are really too high: it’s called the free market. That’s how most people’s salaries are set, after all, including those of major-league baseball players and European soccer players.
+ - Meeting external deadlines is much harder than meeting internal ones. On the other hand, internal deadlines sometimes don’t feel real, and are therefore easy to evade.
+ - Of course, plenty of people don’t think that guaranteeing affordable health insurance is a core responsibility of government.
+ - Defense contractors are able to reap tremendous profits while rarely confronting the risks for which those profits are supposed to be the reward.
+ - Being unemployed is even more disastrous for individuals than you’d expect. Aside from the obvious harm – poverty, difficulty paying off debts – it seems to directly affect people’s health, particularly that of older workers.
+ - The desire for reinvention seems to arise most often when companies hear the siren call of synergy and start to expand beyond their core businesses.
+ - The value of a currency is, ultimately, what someone will give you for it – whether in food, fuel, assets, or labor. And that’s always and everywhere a subjective decision.
+ - Sometimes even a smart crowd will make a mistake.
+ - Wall Street has come a long way from the insider-dominated world that was blown apart by the Great Depression.
+ - The paradox of Steve Jobs’s career is that he had no interest in listening to consumers – he was famously dismissive of market research – yet nonetheless had an amazing sense of what consumers actually wanted.
+ - One of the problems that exacerbates procrastination is the feeling that you have lots of different things to do and no clear sense of which matter more, when they should be done, etc.
+ - If private-equity firms are as good at remaking companies as they claim, they don’t need tax loopholes to make money.
+ - In the auto industry, there’s one thing you can always count on: if a new environmental or safety rule is proposed, executives will prophesy disaster.
+ - Of course, looking tough on inflation is part of any central banker’s job description: if investors believe that inflation is going to get out of control, you end up with higher interest rates and capital flight, and a vicious circle quickly ensues.
+ - A consumer-finance agency is a good thing, but it would do well to teach consumers a simple lesson: if you don’t understand the deal you’re making, don’t make it.
+ - I tend to have a hard time working on pieces long before they’re due. That’s why I think the fact that I write a column is really good for me – the column has to be done, and there’s no getting around it.
+ - Congressional Republicans themselves have vehemently defended the idea that preexisting conditions should not be used to deny people insurance.
+ - Businesses that have gone through an episode of hyperinflation become understandably alert to the threat of it: at the first hint of inflation, they’re likely to increase prices, since they’ve learned that if they don’t, and inflation hits, their businesses will be wrecked.
+ - Linux is a complex example of the wisdom of crowds. It’s a good example in the sense that it shows you can set people to work in a decentralized way – that is, without anyone really directing their efforts in a particular direction – and still trust that they’re going to come up with good answers.
+ - In the days when corporate downsizing was all the rage, Wall Street took a lot of flak for judging companies too harshly and setting the bar for corporate performance so high that executives felt their only option was to slash payrolls.
+ - In American politics, ‘Europe’ is usually a code word for ‘big government.’
+ - Although oil is a commodity, it’s still not a commodity like coffee, which, thank God, we will have with us always. At some point the oil will run out.
+ - Developing countries often have hypertrophied bureaucracies, requiring businesses to deal with enormous amounts of red tape.
+ - The fact that industries wax and wane is a reality of any economic system that wants to remain dynamic and responsive to people’s changing tastes.
+ - What an economy really wants, after all, is not more investment per se but better investment. It wants capital to flow to companies that will create value – not in the form of a rising stock price but in the form of more goods for less cost, more jobs, and rising wages – by enhancing productivity.
+ - The business of America shouldn’t be subsidizing business.
+ - Lower oil prices won’t, by themselves, topple the mullahs in Iran. But it’s significant that, historically, when oil prices have been low, Iranian reformers have been ascendant and radicals relatively subdued, and vice versa when prices have been high.
+ - I do think that procrastination evolved in humans for good reasons. If you’re trying to stay alive as a human being on the savanna 20,000 years ago, worrying about what’s right behind that bush is a lot more important than worrying about what might happen three weeks from now.
+ - Of course, presidents are always blamed or rewarded for the state of the economy.
+ - I tend to delay writing by doing more research – it’s really the act of writing the piece that I have the hardest time with.
+ - The truth is that the United States doesn’t need, and shouldn’t have, a debt ceiling. Every other democratic country, with the exception of Denmark, does fine without one.
+ - What the investment community does like is short-term measures designed to boost share prices.
+ - I started in business journalism from the outside, so when I started writing about markets and business, I was struck by the fact that markets seemed to work well even though people are often irrational, lack good information and are not perfect in the way they think about decisions.
+ - You might think of consumption as a fairly passive activity, but buying new products and services is actually pretty risky, at least if you value your time and money.
+ - Moviegoers love the intricacies of a crime all the more when it’s for a good cause.
+ - The oil market is especially sensitive even to a hint of expansion or contraction in supply.
+ - When all is said and done, cheap gas is an illusion, because our reliance on gas creates a whole series of costs that aren’t factored in to the pump price – among them congestion, pollution, and increased risk of accidents.
+ - You’ll sometimes hear from people that they actually do a better job of getting their work done when they have a lot of other obligations – in effect, it removes the possibility of procrastinating.
+ - A long-term crisis, after a certain point, no longer seems like a crisis. It seems like the way things are.
+ - Instead of mindlessly tossing billions at or taking billions from the Net as such, investors should be spending their time making sure that it’s the future Fords and General Motors of cyberspace that are getting the capital they need.
+ - Companies often become victims of their own mythologies.
+ - Behavioral economists have shown that a sizable percentage of people are willing to pay real money to punish people who are taking from a common pot but not contributing to it. Just to insure that shirkers get what they deserve, we are prepared to make ourselves poorer.
+ - Politically speaking, it’s always easier to shell out money for a disaster that has already happened, with clearly identifiable victims, than to invest money in protecting against something that may or may not happen in the future.
+ - In order to work well, markets need a basic level of trust.
+ - Framing effects can be very influential, and to the degree that you can think of a task as close rather than distant, you’re more likely to actually get it done.
+ - I think there is clearly a connection between free time and procrastination. The more you have of the former, all things being equal, the more likely you are to procrastinate.
+ - Older people do a better job of managing their impulses, and so they’re better able to put off putting off.
+ - The autocracies of the Arab world have been as economically destructive as they’ve been politically repressive.
+ - Corporate welfare isn’t necessarily a bad thing.
+ - Art collecting has traditionally been the domain of wealthy individuals in search of rewards beyond the purely financial.
+ - Corporations hope that the right concept will turn things around overnight. This is what you might call the crash-diet approach: starve yourself for a few days and you’ll be thin for life.
+ - A general principle of good taxation is that similar jobs, and similar kinds of compensation, should be taxed the same way: otherwise, the government is effectively subsidizing some jobs over others.
+ - I do think to some extent multitasking is a way of fooling ourselves that we’re being exceptionally efficient.
+ - Unlike fuel-economy standards, the most common method of reducing demand for oil over the past thirty years, a gas tax doesn’t tell people what kind of car to drive. It simply raises the price of gasoline and lets people adjust their behavior accordingly.
+ - Capitalism, after all, is no fun when real failure becomes a possibility.
+ - Being out of a job can erode people’s confidence and their sense of possibility; and employers, often unfairly, tend to take long-term unemployment as a signal that something is wrong.
+ - In a world where companies increasingly know about their business in real time, it makes no sense that public reporting mostly follows the old quarterly schedule. Companies sit on vital information until reporting day, at which point the market goes crazy.
+ - On Wall Street, fraudulent schemes tend to thrive during economic booms, and to blow up when times turn tough.
+ - The Internet has become a remarkable fount of economic and social innovation largely because it’s been an archetypal level playing field, on which even sites with little or no money behind them – blogs, say, or Wikipedia – can become influential.
+ - It may be that the very qualities that help people get ahead are the ones that make them ill-suited for managing crises. It’s hard to prepare for the worst when you think you’re the best.
+
+132 quotes

@@ -1,0 +1,29 @@
+ - Inside many liberals is a totalitarian screaming to get out. They don’t like to have another point of view in the room that they don’t squash and the way they try to squash it is by character assassination and name calling.
+ - Sanctimony is the most inexpensive form of morality. It costs us nothing to make much of small matters in others.
+ - There can be no peace with someone who wants to kill you.
+ - The source of the terror in Lebanon as in Iraq is to be found in the Koran and in the despotisms of the Arab Middle East.
+ - Cuba’s poverty is caused by the crackpot Marxist doctrines imposed by its sociopathic ruler and promoted by half the liberal arts professors on American faculties.
+ - You could mention my name in any hallway in any academic institution and you would have people foaming at the mouth.
+ - The incidence of memory is like light from dead stars whose influence lingers long after the events themselves.
+ - It is the everlasting disgrace of the Clinton Administration that it has chosen to betray America’s heritage as a beacon of freedom, and instead to act as the ally and agent of a police state in retrieving one of its prisoners.
+ - It is the human wish to be told lies that keep us as primitive morally and socially as we are. I am persuaded that a lie grounded in human desire is too powerful for mere reason to kill.
+ - If we celebrate Martin Luther King Jr.’s birthday at a time of presidential inaugurals, this is thanks to Ronald Reagan who created the holiday, and not to the Democratic Congress of the Carter years, which rejected it.
+ - In politics intentions count for nothing; actions are what matter.
+ - If blacks are oppressed in America, why isn’t there a black exodus?
+ - Richard Barager has written THE novel of the Sixties – a passion-filled, pitch-perfect, roller coaster of a tale about the decade that divides us all.
+ - Liberalism teaches those who have fallen behind in the economic scramble to blame others for their failure. This attitude stimulates juices of resentment and deprives its holders of the power to change their condition.
+ - If you have to invoke a distant past to justify a present grievance, the case for the grievance is already undermined.
+ - Israel is the canary in the mine. What happens to Israel will eventually happen to America itself.
+ - No one is responsible under liberalism.
+ - According to a Pew poll, 49% of young Americans have a favorable view of socialism. What is socialism? it is a system that leads to mass misery, mass impoverishment, and human slaughter. That’s what it means. Yet almost half of the young think it’s benign.
+ - For thirty years, beginning with the invention of a privacy right in the Supreme Court decision Roe v. Wade, the Left has been waging a systematic assault on the constitutional foundation of the nation.
+ - For many Washington liberals, terrorism was not the instrument of political fanatics and evil men, but was the product of social conditions – poverty, racism and oppression – for which the Western democracies, including Israel were always ultimately to blame.
+ - As a result of America’s efforts to realize the ideals of equality and freedom, blacks in America are now the freest and richest black people anywhere on the face of the earth including all of the nations that are ruled by blacks.
+ - In practice, socialism didnt work. But socialism could never have worked because it is based on false premises about human psychology and society, and gross ignorance of human economy.
+ - We can trust our doctors to be professional, to minister equally to their patients without regard to their political or religious beliefs. But we can no longer trust our professors to do the same.
+ - The issue here isn’t whether every student is brainwashed, it’s whether it is appropriate.
+ - A university is not a political party, and an education is not an indoctrination.
+ - Never before in the history of the modern research university have entire departments and fields been devoted to purely ideological pursuits.
+ - When schools produce students who learned to think on the left or on the right, they’re not thinking for themselves.
+
+27 quotes

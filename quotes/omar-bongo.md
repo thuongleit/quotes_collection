@@ -1,0 +1,33 @@
+ - The birth of the African Union should encourage us to reexamine relations between African States.
+ - Because the world is in economic recession, which worsened since this drama happened, and our country will bear the burden of all of these consequences.
+ - The introduction of political pluralism often quickly led to bad results.
+ - From the time of independences until the end of the Cold War, in spite of the participation of a considerable number of African states in the non-aligned movement, everyone in fact chose to align with one or another of the two major blocks.
+ - The free market economy is supposed to be the only path leading to the happiness of humanity by promoting wealth and prosperity, power and influence of nations.
+ - Economic sanctions rarely achieve the desired results.
+ - I am in favor of complete freedom of information and of free access to the new communication tools, in particular the Internet.
+ - In short, we have, among African countries, a duty of solidarity.
+ - The world is now aware that the most unavoidable and most dangerous weapon that exists is the blind decisiveness of a man ready to sacrifice his life for an obscure cause.
+ - Therefore, every country has to understand that fighting against international terrorism is not for the sake of the United States, but for the sake of themselves, and, to a larger extent, in the name of stability of international relations.
+ - There is an idea of democracy produced by one-sided thinking.
+ - In brief, Western democracy, as other political models, is not exportable to all regions of the world.
+ - I’m not aiming for the Nobel Peace Prize!
+ - The most powerful State in the world, which up to now was relatively protected from terrorist violence, is no longer an inviolable sanctuary.
+ - Globalization, far from putting an end to power diplomacy between States, has, on the contrary, intensified it.
+ - We do not control the trade of our resources, which are an important factor of prosperity for the dominant nations.
+ - If the Soviet Union and the United States have not experienced direct military confrontations, on the other hand, they supported, armed and trained Africans, to fight other Africans.
+ - For about ten years now, the struggle for democracy and the respect of human rights has been in the focus point – if not a commodity – of political groups aiming to rise to power.
+ - The shock caused by the September 11 events has also lead to a thorough reflection on the existing disparity between rich and poor countries, on the misery of populations of the South.
+ - Information on the Internet must be as free as in the newspapers.
+ - But since independence, Gabon is one of the few countries in Central Africa that enjoys peace and stability.
+ - But it is important to observe that when Europe or the United Nations impose sanctions that are supposed to be aimed against a certain regime, usually generally millions of people end up being directly punished.
+ - Instead of ideological objectives of a political nature, today we are faced with ideological objectives of economic nature.
+ - Certainly, Africa accounts for only l % of world trade, and we cannot assure our development on our own.
+ - The principle of responsibility and collective sanctions is incompatible with the Western concept of justice.
+ - When they favor the access of other people to education and health care, the countries of the North not only demonstrate generosity or solidarity, but also implement the principles of respecting and promoting human rights.
+ - My actions to promote peace, the mediation missions which I carried out during many conflicts, which very often occurred between brothers of the same country, are not driven by any ulterior motives or any calculations based on personal ambitions.
+ - The African Union has to act in order to put an end to armed conflicts that undermine the continent, to fight against the devastation caused by AIDS and other contagious diseases, to promote sustainable development of its member states.
+ - It is important to stress: Africa is also a victim of the September 11 attacks.
+ - In spite of our poverty and our economic dependence, we do not have to give in, neither because we are sometimes abandoned nor because of the wish of some nations to impose their economic or political models.
+ - But the Western countries that link their partnership with the poorest countries with respect for democracy also have to consider that they have obligations towards these countries.
+
+31 quotes

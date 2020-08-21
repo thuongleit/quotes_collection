@@ -1,0 +1,175 @@
+ - I love my country, not my government.
+ - Win if you can, lose if you must, but always cheat.
+ - I ain’t got time to bleed.
+ - With freedom comes responsibility.
+ - Now our biggest environmental problems come from our own actions, our own choices, rather than pollution produced by big business.
+ - Prostitution is criminal, and bad things happen because it’s run illegally by dirt-bags who are criminals. If it’s legal, then the girls could have health checks, unions, benefits, anything any other worker gets, and it would be far better.
+ - I’m a warrior at heart; I’m an ex-Navy Seal. I’m too old to wage war anymore, and so now I wage it mentally. And so I find politics very stimulating; it’s war without guns.
+ - Organized religion is a sham and a crutch for weak-minded people.
+ - There’s no question that we need tougher drunk-driving laws for repeat offenders. We need to take a lesson from European countries where driving isn’t a right but a privilege.
+ - Learn from history or you’re doomed to repeat it.
+ - The first thing out of Fidel Castro’s mouth to me, he looked me right in the eye and said, ‘You’re a man of great courage.’
+ - Mexico has strict gun control. You cannot own a gun in Mexico.
+ - I believe that the Rolling Stones and Led Zeppelin are two of the greatest rock bands ever!
+ - Students often approached me about state-paid tuition while I was out campaigning. After I explained to them that if the state pays their tuition now, they will pay higher taxes to pay other people’s tuition for the rest of their lives, most of them ended up agreeing with me.
+ - You want to know my definition of gun control? Being able to stand there at 25 meters and put two rounds in the same hole. That’s gun control.
+ - If I wanna be president, I probably can.
+ - A war is justified if you’re willing to send your son. If you’re not willing to send your son, then how do you send someone else’s?
+ - If you don’t vote, then you may be leaving the decisions up to someone dumber than you.
+ - Remember that government doesn’t earn one single dollar it spends. In order for you to get money from the government, that money must first be taken from somebody else.
+ - You can’t legislate stupidity.
+ - I live by the golden rule: Treat others as you’d want them to treat you...
+ - My father used to always say to me that, you know, if a guy goes out to steal a loaf of bread to feed his family, they’ll give him 10 years, but a guy can do white-collar crime and steal the money of thousands and he’ll get probation and a slap on the wrist.
+ - Until you have hunted men, you haven’t hunted yet.
+ - In the last recession, 99 percent of us have lost wealth, but did you know that the top 1 percent increased their wealth five times? It tells you they create recessions so they get wealthier.
+ - We’re the Fascist States of America today, not the United States of America, because the corporations are in power.
+ - Listening is as important as talking. If you’re a good listener, people often compliment you for being a good conversationalist...
+ - When you reach a certain age in life, time becomes more important than money, and I think that happens in your 50s.
+ - Organized religion is a sham and a crutch for weak-minded people who need strength in numbers. It tells people to go out and stick their noses in other people’s business.
+ - I will never stand for a national anthem again. I will turn my back and I will raise a fist.
+ - The pleasure was all yours.
+ - When you live in Mexico, your houses all have names.
+ - I asked Dalai Lama the most important question that I think you could ask – if he had ever seen Caddyshack.
+ - You can’t put civil rights on the ballot.
+ - When you drink fluoridated water, you’re drinking liquid Prozac. You drink enough of it, even though it’s a small amount, drink it for decades and decades and what does Prozac do to you? It dumbs you down; it makes you docile.
+ - How come life in prison doesn’t mean life? Until it does, we’re not ready to do away with the death penalty. Stop thinking in terms of “punishment” for a minute and think in terms of safeguarding innocent people from incorrigible murderers.
+ - In wrestling, my mustache made me look more like a villain. A good mustache can give you the look of the devil.
+ - Dusty Rhodes wouldn’t win a body building contest for best abs, MacMahon, he’d win for MOST abs.
+ - There is much more to being a patriot and a citizen than reciting the pledge or raising a flag.
+ - Al Gore, you’ve been a real inspiration. But a lot of other people who preach the global warming gospel aren’t out to save the world. They’re out to run it.
+ - If you tell the truth, you don’t need a long memory.
+ - If you work for the federal government, the average salary is $7,000 higher than the private sector. Something’s wrong with that, when you’re making more money working for the government than you can working in the private sector.
+ - Don’t vote for a Democrat or Republican, I have never voted for one in my life and I never will.
+ - I think the founding fathers believed religion shouldn’t interact directly with government.
+ - Patriotism to your country is something that comes from your heart. It should be taught to you by your parents.
+ - It’s convenient how everyone who supports waterboarding and torture, or “enhanced interrogation techniques” as they like to call it, have never experienced it themselves. Yet everyone who has, myself included, are firmly against it.
+ - The SuperPACs and the Citizens United ruling that gives corporations a voice in the political process are all bad news. They made it so you can now lie, and the politician being promoted on that lie will not be held responsible for it.
+ - I speak my mind. That’s who I am.
+ - I like surfing in Mexico a whole lot better than sitting with people in Washington that I don’t even like.
+ - I love fat people. Every fat person says it’s not their fault, that they have gland trouble. You know which gland? The saliva gland.
+ - Let me say this: I’m paranoid of the government. They’ve lost my trust. They’ve lied to me so many times that I don’t know what to believe from them anymore.
+ - I don’t want Democrats in the boardroom and I don’t want Republicans in the bedroom.
+ - Get every candidate to wear a NASCAR racing suit when they go debate; this way we can see how their sponsors really are.
+ - I’m going to put on my gravestone, ‘He never owned a cell phone.’
+ - If I could be reincarnated as a fabric, I would come back as a 38 double-D bra.
+ - Okay, fluoride in the water to help our teeth. Well, shouldn’t that be the job of your mom and dad? To teach you how to brush your teeth and use mouth wash? What do we need the government to do it for? Clearly, what a scam. Fluoride in the water.
+ - I believe to go along to get along is unpatriotic. I believe that agreeing with your government on everything they do is unpatriotic. I believe a patriot stands up and holds your government’s feet to the fire. Because if you do that, you will get good government.
+ - A vote is “wasted” when someone fails to vote their conscience.
+ - I will not be a Democrat or a Republican. They are the problem, not the solution. We need to abolish political parties in this country.
+ - I’m a Slovak. And when I was growing up, I believed that I was Czechoslovakian because of what Russia did. They came in and took two separate countries – Slovakia and the Czech Republic – put them together as one.
+ - Jobs are created in the private sector. Not by the president or the government unless they’re government jobs.
+ - Liberty is security. Freedom is security.
+ - Republicans are not a political party. It’s a mental condition.
+ - I will criticize President Obama on this level: it’s a good thing I’m not president because I would prosecute every person that was involved in that torture. I would prosecute the people that did it. I would prosecute the people that ordered it. Because torture is against the law.
+ - You need to hunt something that can shoot back at you to really classify yourself as a hunter. You need to understand the feeling of what it’s like to go into the field and know your opposition can take you out.
+ - I would rather be uncomfortable with the truth than to be lied to in comfort. That’s just my nature.
+ - Government is at its worst when you have apathy from its citizens.
+ - I never believe anything in the world of entertainment until it actually happens and the check clears the bank.
+ - Eternal vigilance must be maintained to guard against those who seek to stifle ideas, establish a narrow orthodoxy, and divide our nation along arbitrary lines of race, ethnicity, and religious belief or non-belief.
+ - I think a person who is disabled should be disabled by no act of their own. If you become disabled because of alcoholism, drugs, or things of that nature, I do not think those conditions qualify someone to be called disabled. I think those conditions result from personal decisions.
+ - Want a hot dog, McMahon?
+ - Wrestling is ballet with violence.
+ - If you want to stop illegal immigration, you have to make it so that – so that the people that hire the illegal immigrants will not be in a position to hire them.
+ - Let’s remember, the CIA’s job is to go out and create wars.
+ - Government is like physics, you know – for every action, there’s a reaction.
+ - In a free society, how can you commit a crime against yourself?
+ - People don’t like politicians.
+ - A car is a 2,000 pound projectile that can go 100 miles an hour.
+ - I don’t want to spend the rest of my life in politics. When I’m finished with my term as governor, I’m going back to the life that’s waiting for me in the private sector.
+ - In my era of wrestling, there were no guaranteed contracts, so it was inherent that you draw the crowd in to make money.
+ - I don’t think I would want the responsibility for enforcing the death penalties. There’s always the inevitable question of whether someone you gave the order to execute might truly have been innocent.
+ - The news used to be to report facts and allow you to make the decision.
+ - I’m the only person in the world that, when he holds down two jobs, gets criticized for it; everyone else gets a pat on the back and say, ‘What an entrepreneuring, hardworking person,’ but apparently that doesn’t apply to me.
+ - I don’t take PAC money. I don’t take special interest money.
+ - The thing is, and Americans are starting to realize this now, that while street gangs are violent, the Democrats and Republicans are worse. They are worse because their decisions affect your life.
+ - Sarah Palin’s a quitter.
+ - I view the United States, today, much like East Berlin. And I’m off the grid. I’ve tried for 20 years to warn the country about the Democrats and Republicans, and nobody’s listening.
+ - You have to accept the rule of law, even when it’s inconvenient, if you’re going to be a country that bides by the rule of law.
+ - Health insurance should be a given for every citizen.
+ - If you were to come to Minnesota, I could have you locked up like that. That’s power.
+ - Congratulations, you have a sense of humor. And to those who didn’t: Go stick your head in the mud.
+ - I never thought I’d be investigating global warming. I believe it’s real and that saving the planet is good.
+ - Industrial hemp is a very useful plant. I challenged the attorney general to get rid of the criminal stigma associated with hemp so we can look at it in terms of how it might be useful.
+ - Patriotism is voluntary. It is a feeling of loyalty and allegiance that is the result of knowledge and belief. A patriot shows their their patriotism through their actions, by their choice.
+ - A crime is a crime, regardless of what collar you wear.
+ - I’m not disparaging suicides when I call them weak, I’m pointing out that anybody who would consider doing a thing like that needs help. I don’t think a normal, mentally healthy person commits suicide.
+ - My children were attacked by the Minnesota media when I was governor.
+ - When we build a public library, we don’t have to pay to get in, but when we build a stadium, we have to pay the owner every time we go to a game.
+ - Personally, I think Julian Assange is a hero.
+ - Our theaters, our museums, our culture. We have everything New York has without the hassles.
+ - The communism of Karl Marx would probably be actually the best for everybody as a whole. But what he didn’t figure into was human nature, and that’s what corrupts it.
+ - Love is bigger than government.
+ - Any party that would put Sarah Palin up on a pedestal will never have my support.
+ - I would give the people of America to their first opportunity to elect a president who doesn’t belong to either party since George Washington.
+ - Is it government’s job to make up for someone’s mistakes?
+ - I have every right to know how my taxes are spent, how every single penny of it is spent. I have the right to know that.
+ - In February 2003, I signed a three-year contract with MSNBC to host a talk show. Having recently decided not to run again for governor of Minnesota, I was still a pretty hot commodity. The show was originally scheduled for an hour, four nights a week.
+ - They look like to carp going after the same piece of corn.
+ - There are lots of people out there who think they know the truth about God and religion, but does anybody really know for sure? That’s why the founding fathers built freedom of religious belief into the structure of this nation, so that everybody could make up their minds for themselves.
+ - You don’t need lawyers making laws. Regular citizens can make laws. Let the lawyers work under the laws.
+ - For every day the government is shut down, it should be that we don’t have to pay income tax that day because they’re not working.
+ - If I can get on the presidential ballot in all 50 states and be allowed into the debates, I’d not only run, I’d win.
+ - The Constitution guarantees us our rights to life, liberty, and the pursuit of happiness. That’s all. It doesn’t guarantee our rights to charity.
+ - I follow the teachings of Major General Smedley Darlington Butler, United States Marine Corps. He won two Congressional Medals of Honor, and he wrote the highly controversial antiwar book ‘War is a Racket.’
+ - I wish they would pass a law where all Democrats and Republicans had to wear NASCAR racing suits, because if you look at the NASCAR drivers, it tells who their sponsors are. And if they do that, we could then become informed voters, because we would know who owns them.
+ - There are a lot of good causes out there, but they can’t possibly all be served by government.
+ - I’m an equal opportunity despiser.
+ - I’m kind of like Che Guevera. I lead the revolution, but at some point I turn it over to someone else.
+ - I live in Mexico in the wintertime, and I live off the grid down there.
+ - When the Constitution gave us the right to bear arms, it also made us responsible for using them properly. It’s not fair of us as citizens to lean more heavily on one side of that equation than on the other.
+ - I’ve been water-boarded, and I speak from experience, and it’s torture.
+ - My attitude when I’m in Mexico is I wake up in the morning with nothing to do and I go to bed half done. I don’t wear a watch. When I live down there, I do nothing according to time. I eat when I’m hungry and go to sleep when I’m tired.
+ - Well my question is if the federal courts don’t have jurisdiction over a constitutional question then who the hell does?
+ - I could never be a career politician, because I believe in telling the truth.
+ - Government’s role should be only to keep the playing field level, and to work hand in hand with business on issues such as employment. But beyond this, to as great an extent as possible, it should get the hell out of the way.
+ - If you start studying history closer, you’ll find that most all wars are based on false flag operations to get people – to convince the people that they’re under attack in some way so that they will support the wars.
+ - When I ran for governor of Minnesota, I only raised $300,000.
+ - Government is connected to everything we do.
+ - I’m not allowed on FOX, and I’m not allowed on MSNBC.
+ - Our military doesn’t defend our American people. Our military is the strong-arm muscle of corporations.
+ - My four years as governor, I never met with a lobbyist once, never. Not one lobbyist got in my office.
+ - I’m an Angus King independent.
+ - I speak my mind. If it offends some people, well, there’s not much I can do about that. But I’m going to be honest. I’m going to continue to speak my mind, and that’s who I am.
+ - I also believe that government has no business telling us how we should live our lives. I think our lifestyle choices should be left up to us. What we do in our private lives is none of the government’s business. That position rules out the Republican Party for me.
+ - After Barack Obama won the 2008 presidential election, I was heartened to see him issue an Open Government Initiative on his first full day in office.
+ - Let’s face it: WikiLeaks exists because the mainstream media haven’t done their job.
+ - I’ve jumped out of an airplane 34 times. I’ve dove 212 feet under water. I’ve done a lot of things that defied death.
+ - If you buy the flag it’s yours to burn.
+ - Government cannot be your parent.
+ - I don’t oppose hunting in any way, shape or form. If that’s what you enjoy doing, you are free to do it.
+ - You’re lucky if I watch 10 minutes of wrestling a month. Most of the time, I channel surf, and I lose interest after a few minutes.
+ - The prohibition of drugs causes crime. You don’t have to legalize, just decriminalize it.
+ - I do not support the third party movement anymore. I now advocate the abolishment of all political parties. We’ve allowed the parties to take over the government.
+ - If Jesus came back today, I think he’d throw up.
+ - If you’re patriotic, stand up for the Bill of Rights because once they strip your rights from you, you will pay hell to get them back. You will and we’re in the process of it right now.
+ - I think that Minnesota is different because we are proving that tri-partisan government could work, that you do not need to necessarily be a Democrat or a Republican to be successful at governing.
+ - Whenever the government says, ‘It’s time to move on,’ that means there’s something they don’t want you to know about.
+ - It seems that elections today are more popularity than they are substantial issues.
+ - There’s nothing glamorous about war at all.
+ - There is no right religion, and no one can prove that there is.
+ - WikiLeaks is exposing our government officials for the frauds that they are. They also show us how governments work together to lie to their citizens when they are waging war.
+ - I’m against the draft. I believe we should have a professional military; it might be smaller, but it would be more effective.
+ - Barack Obama’s large contributor was Goldman Sachs – same thing on the Republican side. If you go to both their conventions, you see the same lobbyists paying off both sides so they win either way.
+ - I tend to like to read history – recent history, because I find that much more intriguing than just a writer’s imagination.
+ - I can’t see any difference in government between Bush and Obama apart from the color of their skin.
+ - Politics is not my life. I have a career in radio and another career in film.
+ - Once you privatize something, it becomes a for-profit business.
+ - My position is that it isn’t government’s job to mandate patriotism. To me, mandating a pledge of allegiance to a government is something Saddam Hussein would do.
+ - Government has no place telling you who to fall in love with and who to marry.
+ - I don’t support communism. I don’t like that type of government.
+ - Monsanto can do anything they want to you, and put anything they want into your foods. There’s nothing you can do about it.
+ - If the government mandates anything with a price tag on it, then it ought to fund the project.
+ - Governments are run by people. People can be bad.
+ - We call our country home of the brave and land of the free, but it’s not. We give a false portrayal of freedom. We’re not free – if we were, we’d allow people their freedom.
+ - I think that when Americans go to vote, states should not list what party the candidates are affiliated with. That would require voters to actually think and get to know a candidate instead of voting for their favorite gang. ‘Oh, this guy is a Republican, so he must be good.’
+ - You can have solid third party politics, but the problem is you’re all lumped in to all the fringe groups. That’s a stereotype that happens.
+ - Disabled people need more invested in their education, housing, job training, transportation, assistive technology, and independent-living facilities. Governments earn back this investment – and more – by making people with disabilities economically productive citizens.
+ - I don’t believe we need the government’s help as much as some think we do. That belief sets me apart from the Democrats, since their way of dealing with everything is to tax and spend.
+ - I don’t have to muzzle myself when I’m a civilian. When you’re a governor, you kind of have to do it, because you represent the whole state. You have to leave your personal opinions to yourself a lot. I learned that.
+ - People in this country need to understand when you go to any airport in the United States, you are not protected by the Constitution or the Bill of Rights. They can do anything they want to you, and there is no where you can go to seek redress.
+ - I find that the history books that we teach our kids with are not fully truthful, in my opinion.
+ - Some felt I’m not academically qualified, and they’re right.
+ - I believe Lee Harvey Oswald did not kill John Kennedy. I believe that.
+ - Government works less efficiently when it begins to grow out of control and takes on more and more of the responsibilities that belong to the citizens.
+
+173 quotes

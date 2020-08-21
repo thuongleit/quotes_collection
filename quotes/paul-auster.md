@@ -1,0 +1,212 @@
+ - To leave the world a little better than you found it. That’s the best a man can ever do.
+ - Everything can change at any moment, suddenly and forever.
+ - Changing your mind is probably one of the most beautiful things people can do. And I’ve changed my mind about a lot of things over the years.
+ - Writing is, after all, a gesture towards other people, giving something to others. And so it’s not a completely hermetic exercise. It’s really an opening up.
+ - Translators are the shadow heroes of literature, the often forgotten instruments that make it possible for different cultures to talk to one another, who have enabled us to understand that we all, from every part of the world, live in one world.
+ - Stories happen only to those who are able to tell them, someone once said. In the same way, perhaps, experiences present themselves only to those who are able to have them.
+ - Our lives carry us along in ways we cannot control, and almost nothing stays with us. It dies when we do, and death is something that happens to us every day.
+ - The world is so unpredictable. Things happen suddenly, unexpectedly. We want to feel we are in control of our own existence. In some ways we are, in some ways we’re not. We are ruled by the forces of chance and coincidence.
+ - One should never underestimate the power of books.
+ - Stories only happen to those who are able to tell them.
+ - We grow older, but we do not change. We become more sophisticated, but at bottom we continue to resemble our young selves, eager to listen to the next story and the next, and the next.
+ - Reading was my escape and my comfort, my consolation, my stimulant of choice: reading for the pure pleasure of it, for the beautiful stillness that surrounds you when you hear an author’s words reverberating in your head.
+ - As long as you are dreaming, there is always a way out.
+ - I write the paragraph, then I’m crossing out, changing words, trying to improve it. When it seems more or less OK, then I type it up because sometimes it’s almost illegible, and if I wait, I might not be able to read it the next day.
+ - The truth of the story lies in the details.
+ - The pictures do not lie, but neither do they tell the whole story. They are merely a record of time passing, the outward evidence.
+ - You can’t put your feet on the ground until you’ve touched the sky.
+ - I never feel I’m standing on solid ground, and I do write with a certain kind of trembling fear.
+ - Money’s important. Everyone cares about money. And when you don’t have money, money becomes the overriding obsession of your life.
+ - Existence was bigger than just life. It was everyone’s life all together, and even if you lived in Buffalo, New York and had never been more than ten miles from home, you were part of the puzzle, too. It didn’t matter how small your life was.
+ - I had made an empirical discovery and it carried all the weight of a mathematical proof.
+ - The story is not in the words; it’s in the struggle.
+ - But lost chances are as much a part of life as chances taken, and a story cannot dwell on what might have been.
+ - I don’t like pictures in books. I feel that the pictures diminish the words, and the words diminish the pictures, and it doesn’t work.
+ - The pen will never be able to move fast enough to write down every word discovered in the space of memory. Some things have been lost forever, other things will perhaps be remembered again, and still other things have been lost and found and lost again. There is no way to be sure of any this.
+ - In my later novels, I systematically used the convention, and then a moment came – when did it come? With The Book of Illusions, maybe – I thought, I don’t need them anymore, I don’t need them, I want to integrate the dialogue into the text.
+ - Every historical moment needs the stories to be told about it.
+ - When I am writing, even though it’s hard and I do struggle often, I am happier than when I’m not writing. I feel alive. Whereas when I’m not writing, I feel like your common every-day neurotic.
+ - Libraries aren’t in the real world, after all. They’re places apart, sanctuaries of pure thought. In this way I can go on living on the moon for the rest of my life.
+ - In the old physics, three times two equals six and two times three equals 6 are reversible propositions. Not in quantum physics. Three times two and two times three are two different matters, distinct and separate propositions.
+ - And that’s why books are never going to die. It’s impossible. It’s the only time we really go into the mind of a stranger, and we find our common humanity doing this. So the book doesn’t only belong to the writer, it belongs to the reader as well, and then together you make it what it is.
+ - If you’re not ready for everything, you’re not ready for anything.
+ - As my friend George Oppen once said to me about getting old: what a strange thing to happen to a little boy.
+ - We all want to believe in impossible things, I suppose, to persuade ourselves that miracles can happen.
+ - We are continually shaped by the forces of coincidence.
+ - I had jumped off the edge, and then, at the very last moment, something reached out and caught me in midair. That something is what I define as love. It is the one thing that can stop a man from falling, powerful enough to negate the laws of gravity.
+ - Every novel is an equal collaboration between the writer and the reader and it is the only place in the world where two strangers can meet on terms of absolute intimacy.
+ - There’s hope for everyone. That’s what makes the world go round.
+ - It always stimulates me to discover new examples of my own prejudice and stupidity, to realize that I don’t know half as much as I think I do.
+ - Betty died of a broken heart. Some people laugh when they hear that phrase, but that’s because they don’t know anything about the world. People die of broken hearts. It happens every day, and it will go on happening to the end of time.
+ - Paintings. Or the collapse of time in images.
+ - Every generation always thinks it was better before, and I think people have been saying this for probably thousands of years.
+ - Our lives don’t really belong to us, you see – they belong to the world, and in spite of our efforts to make sense of it, the world is a place beyond our understanding.
+ - The real is always way ahead of what we can imagine.
+ - The biggest book for me, when I was fifteen, was Crime and Punishment, which I read in a kind of fever. When I put it down, I thought, if this is what novels are then I want to be a novelist.
+ - We hear things, but we can’t always see them, or, even if we do see them, we’re not sure that we’re seeing correctly. Hence: Invisible.
+ - There are two kinds of typical days. There’s the typical day when I’m writing a novel, and there’s the typical day when I’m not.
+ - I believe that the whole idea of the consumer society is tottering. We’ve kept ourselves going by producing more and more goods, most of which people don’t need. I’m anti-consumerism; I own four pairs of black Levis and that’s it.
+ - Writing is such a strange, utterly mysterious process. First, there was nothing; then, suddenly, there was something. I don’t know where thoughts are born. Where the hell does it come from? I don’t know. I really don’t know.
+ - Just think it, and chances are it will happen.
+ - The most deeply personal of my works are the non-fiction works, the autobiographical works, because there, I’m talking about myself very directly.
+ - How can you think about the world without factoring in the unforseen, the fluke event?
+ - I can never say ‘why’ about anything I do. I suppose I can say ‘how’ and ‘when’ and ‘what.’ But ‘why’ is impenetrable to me.
+ - I don’t think about the stories so much, as the characters themselves. They live on, and they are almost as real as I am.
+ - Often it’s true that films just go right through us. You see the film, you might be entertained, and if it’s not a great film, it loses its power very quickly. I think even simply acceptable books stay with us a lot longer.
+ - In Invisible there’s a lot about childhood, the death of the brother and then the relationship between the brother and sister.
+ - You’re too good for this world, and because of that the world will eventually crush you.
+ - For me, a paragraph in a novel is a bit like a line in a poem. It has its own shape, its own music, its own integrity.
+ - He would conclude that nothing was real except chance.
+ - I don’t know why I write. If I knew the answer, I probably wouldn’t have to. But it is a compulsion. You don’t choose it, it chooses you. And I wouldn’t recommend it to anybody.
+ - When a person is lucky enough to live inside a story, to live inside an imaginary world, the pains of this world disappear. For as long as the story goes on, reality no longer exists.
+ - There’s love, and certainly children you care about more than yourself. But nevertheless, we’re alone in our heads.
+ - You tend to feel very hurt when people attack you and feel indifferent when you get praise. You think, ‘Of course they like it. They should like it.’
+ - You think it will never happen to you, that it cannot happen to you, that you are the only person in the world to whom none of these things will ever happen, and then, one by one, they all begin to happen to you, in the same way they happen to everyone else.
+ - I walk around the world like a ghost, and sometimes I question whether I even exist. Whether I’ve ever existed at all.
+ - Money is the driving force of Hand to Mouth, the lack of money, and all those true stories about strange things in The Red Notebook, coincidences and unlikely events, surprise, the unexpected.
+ - Memory is the space in which a thing happens for a second time.
+ - People say you have to travel to see the world. Sometimes I think that if you just stay in one place and keep your eyes open, you’re going to see just about all that you can handle.
+ - In other words: It seems to me that I will always be happy in the place where I am not. Or, more bluntly: Wherever I am not is the place where I am myself. Or else, taking the bull by the horns: Anywhere out of the world.
+ - We are all aliens to ourselves, and if we have any sense of who we are, it is only because we live inside the eyes of others.
+ - We’re outsiders, and so when we walk through the city, we’re there and not there at the same time, participating and observing simultaneously.
+ - I don’t read reviews any more, but I’m told by my publisher who gives me an account of what people have been writing and it’s been a very split kind of response.
+ - There is a double rhythm in all human beings. We are binary beings – two arms, two legs, two eyes, two ears. Two legs for walking. And the heartbeat thumping in our chest mirrors that.
+ - It was a wrong number that started it, the telephone ringing three times in the dead of night, and the voice on the other end asking for someone he was not.
+ - All children are love children, he said, but only the best ones are ever called that.
+ - The moon people do not eat by swallowing food but by smelling it. Their money is poetry – actual poems, written out on pieces of paper whose value is determined by the worth of the poem itself.
+ - It’s June second, he told himself. Try to remember that. This is New York, and tomorrow will be June third. If all goes well, the following day will be the fourth. But nothing is certain.
+ - I’m generous. I give good tips. It’s just – the way I live my life, ironically enough, is: I don’t want anything. I’m not a consumer. I don’t crave objects.
+ - Stories without endings can do nothing but go on forever, and to be caught in one means that you must die before your part in it is played out.
+ - Nothing lasts, you see, not even the thoughts inside you. And you musn’t waste your time looking for them. Once a thing is gone, that is the end of it.
+ - Writing has always had a tactile quality for me. It’s a physical experience.
+ - There are certain phrases in books of mine, and I don’t know where they came from, or how I was capable of thinking up these formulations. It’s only in the heat of composition that these things occur to you.
+ - It became a habit of mine never to leave the house without a pencil in my pocket.
+ - You have to protect it too, you can’t let just any stupid person take it and do something demoralizing with it. At the same time, I don’t believe in being so rigid about controlling what happens either.
+ - Eighteen is a terrible age, and while I walked around with the conviction that I was somehow more grown-up than my classmates, the truth was that I had merely found a different way of being young.
+ - I’ve been very lucky in this second marriage. It’s just luck. It’s absolute luck. And I can only marvel at it. So many other things could have happened that didn’t, so overall I feel blessed.
+ - I wrote Report from the Interior was that after I finished Winter Journal, I took a pause, and I realized there was more I wanted to say.
+ - Most people just want to be part of the world, they want to live, love, and enjoy themselves – to take part in the world around them. Whereas artists are always retreating, locking the door, and inventing other worlds.
+ - Writing is a solitary business. It takes over your life. In some sense, a writer has no life of his own. Even when he’s there, he’s not really there.
+ - I have difficulty orienting myself in space, and I’m probably one of the few people who gets lost in Manhattan.
+ - Some people are great, and they approach each work with honesty, and that’s wonderful. But when people have built up a sort of resentment or animosity for reasons that are hard to put your finger on, they read in bad faith.
+ - I guess the toughest things in translations are word play, which can never be reproduced exactly.
+ - I think all writers are a bit crazy; Damaged souls, incapable of doing anything else.
+ - Holes in the memory. You grab on to some things, others have completely disappeared.
+ - Something happens, Blue thinks, and then it goes on happening forever. It can never be changed, can never be otherwise.
+ - The joke is the purest, most essential form of storytelling. Every word has to count.
+ - I think there might be some pressure released while I’m doing autobiographical work, but afterwards everything remains the same.
+ - I barely can go shopping for clothes. I find it difficult to walk into stores. The whole thing bores me so much.
+ - I like the sound a typewriter makes.
+ - I think that’s what turns young men and women into writers – the happiness you discover living in books.
+ - It’s always a mystery to me, I have to confess. I’ve never been able to witness the birth of an idea. It seems as if one second, there’s nothing particularly going on, and the next second, something is there.
+ - Dismantling the architecture of my discontent.
+ - If the world weren’t such a beautiful place, we might all turn into cynics.
+ - No book includes the entire world. It’s limited. And so it doesn’t seem like an aesthetic compromise to have to do that. There’s so much other material to write about.
+ - What better portrait of a writer than to show a man who has been bewitched by books?
+ - I’ve written books that have taken me fifteen years, from first sentence to last, and some that only take three or four months.
+ - History is present in all my novels. And whether I am directly talking about the sociological moment or just immersing my character in the environment, I am very aware of it.
+ - I don’t think of myself as a metafictional writer at all. I think of myself as a classic writer, a realist writer, who tends to have flights of fancy at times, but nevertheless, my feet are mostly on the ground.
+ - No one wants to be part of a fiction, and even less so if that fiction is real.
+ - I project myself so deeply into the characters in novels that I’m not thinking about my own life.
+ - I use things, I steal things from my life when I want to, when I need to, or when it seems appropriate. But most of the stuff in my novels is entirely invented, ninety-five percent. And even when I do borrow something, it becomes fictionalized.
+ - You see, the interesting thing about books, as opposed, say, to films, is that it’s always just one person encountering the book, it’s not an audience, it’s one to one.
+ - No one can cross the boundary into another – for the simple reason that no one can gain access to himself.
+ - Every man is the author of his own life.
+ - All men contain several men inside them, and most of us bounce from one self to another without ever knowing who we are.
+ - We have missed him in the sunshine, in the storm, in the twilight, ever since.
+ - I don’t have all the facts. And I might misremember. As a matter of fact, after I finished Winter Journal, I realized that I’d gotten someone’s name wrong.
+ - As says who is deeply involved with neuroscience, emotion consolidates memory, and I think that’s true.
+ - After something crystallizes, I can write ferociously and write novels in six months, which in the past would have taken me two years.
+ - My characters, I find them as I’m writing. It’s quite incredible how fully realized they are in my mind, how many details I know about each of them.
+ - It’s like a mathematical law, Grace.
+ - I guess the important thing for young writers is to read.
+ - I’ve found that writing novels is an all-absorbing experience – both physical and mental – and I have to do it every day in order to keep the rhythm, to keep myself focused on what I’m doing.
+ - There’s a difference between doing memoir and writing a novel. If I had put the story of the boy killing my dog – and that was Eric also, what a little monster he was! – in a novel, even if I took it directly from life, it would be fiction.
+ - I’m not a man deeply interested in technology. It eludes me. I confess I don’t even have a computer, I don’t have a cell phone.
+ - I believe that every artist, in one way or another, is a wounded person. It’s not natural to make art.
+ - I woke up one day and thought: I want to write a book about the history of my body. I could justify talking about my mother because it was in her body that my body began.
+ - Artists are the people for whom the world is not enough.
+ - I’m in constant inner dialogue with my father still.
+ - The most challenging project I’ve ever done, I think, is every single thing I’ve ever tried to do. It’s never easy.
+ - Even in New York, there are a lot of very attractive girls pedaling around. That just happens to be one of the nice sights in our city, seeing a young woman on a bike.
+ - People who don’t like my work say that the connections seem too arbitrary. But that’s how life is.
+ - All I wanted to do was write – at the time, poems, and prose, too. I guess my ambition was simply to make money however I could to keep myself going in some modest way, and I didn’t need much, I was unmarried at the time, no children.
+ - It seems to me that I will always be happy in the place where I am not.
+ - I don’t think that you can be prescriptive about anything, I mean, life is too complicated. Maybe there are novels where the author has not in the least thought about it in terms of film, which can be turned into good films.
+ - When I think of Tokyo Story, yeah, it is like a novella. That doesn’t mean it’s not great. Some of my favorite Tolstoy works are his novellas.
+ - I think if we didn’t contradict ourselves, it would be awfully boring. It would be tedious to be alive.
+ - In my books, there are a lot of people stuck in rooms. Or, conversely, out in the wide open. It seems that, in a funny way, when people are cooped up in rooms they are freer than when they are wandering about in the world.
+ - I don’t want to use quotation marks anymore, I’ve gone back and forth with them. In Ghosts, I didn’t use them, for instance, all the way back in the early eighties.
+ - He slipped away slowly, withdrawing from this world by small, imperceptible degrees, and in the end it was as if he were a drop of water evaporating in the sun, shrinking and shrinking until at last he wasn’t there anymore.
+ - What matters is not how well you can avoid trouble, but how you cope with trouble when it comes.
+ - Nobody asks you to do this. The world out there is not panting after another novelist. We choose it.
+ - I started out in life as a poet; I was only writing poetry all through my 20s. It wasn’t until I was about 30 that I got serious about writing prose. While I was writing poems, I would often divert myself by reading detective novels; I liked them.
+ - I think I hate cynicism more than anything else. It’s the curse of our age, and I want to avoid it at all costs.
+ - Stories surge up out of nowhere, and if they feel compelling, you follow them. You let them unfold inside you and see where they are going to lead.
+ - In the end, the art of hunger can be described as an existential art. It is a way of looking death in the face, and by death I mean death as we live it today: without God, without hope of salvation. Death as the abrupt and absurd end of life.
+ - I was always interested in French poetry sort of as a sideline to my own work, I was translating contemporary French poets. That kind of spilled out into translation as a way to earn money, pay for food and put bread on the table.
+ - In the good mystery there is nothing wasted, no sentence, no word that is not significant.
+ - I’ve learned not to look at reviews. Early on, I did. I was always curious.
+ - To feel estranged from language is to lose your own body.
+ - I do not repeat conversations that I can’t remember. And it’s something that irritates me a great deal, because I think most memoirs are false novels.
+ - As long as a man had the courage to reject what society told him to do, he could live life on his own terms. To what end? To be free. But free to what end? To read books, to write books, to think.
+ - The kind of fiction I’m trying to write is about telling the truth.
+ - I am very scared at the beginning of each book, because I’ve never written it before. I feel I have to teach myself how to do it.
+ - I think most writers can’t really think about their work without a kind of revulsion. And I think that’s probably why we keep going back and trying again, trying to do better each time.
+ - We construct a narrative for ourselves, and that’s the thread that we follow from one day to the next. People who disintegrate as personalities are the ones who lose that thread.
+ - Money, of course, is never just money. It’s always something else, and it’s always something more, and it always has the last word.
+ - How is it possible for someone who believes that the world was created in six days to have a rational conversation with me, who doesnt believe that, about other possibilities?
+ - The fiction is not autobiographical. Maybe to some extent it is, of course.
+ - Each book I’ve done somehow finds its own unique form, a specific way it has to be written, and once I find it, I stick with it.
+ - It would be a terrible world if everyone was an artist. Nothing would get done!
+ - Reason and memory are nearly always at odds.
+ - Life is deeply tragic and also very comic at the same time. It’s everything at once.
+ - Farts come from no one and nowhere; they are anonymous emanations that belong to the group as a whole, and even when every person in the room can point to the culprit, the only sane course of action is denial.
+ - Each man, therefore, is the entire world, bearing within his genes a memory of all mankind. Or as Leibniz put it: ‘Every living substance is a perpetual living mirror of the universe’
+ - Fiction creating reality.
+ - Novels are fictions and therefore they tell lies, but through those lies every novelist attempts to tell the truth about the world.
+ - I knew from the age of 16 that I wanted to be a writer because I just didn’t think I could do anything else. So I read and read and wrote short stories and dreamed of escape.
+ - I think human beings wouldn’t be human without narrative fiction.
+ - In fact, writing, especially writing autobiographical works, and this is actually the fourth time I’ve done it, each time I’ve done it I’ve felt deeply immersed in the material as I’m doing it, and then it’s over and everything is the same.
+ - I haven’t done any translating for decades now. It’s something I did when I was young.
+ - Some like to think that a keen appreciation of art can actually make us better people – more just, more moral, more sensitive, more understanding. Perhaps that is true – in certain rare, isolated cases.
+ - Escaping into a film is not like escaping into a book. Books force you to give something back to them, to exercise your intelligence and imagination, where as you can watch a film-and even enjoy it-in a state of mindless passivity.
+ - Films and television and even comic books are churning out vast quantities of fictional narratives, and the public continues to swallow them up with great passion. That is because human beings need stories.
+ - Chance is an element of life. What I try to do is study what I call the mechanics of reality as carefully as I can.
+ - As long as there’s one person to believe it, there’s no story that can’t be true.
+ - For one reason or another, I became a passionate reader when I was very little. As soon as I could read, I wanted to read.
+ - Books demand more. You have to be a more active participant.
+ - I feel now, in my impending old age, very lucky. I just can’t tell you how lucky I feel, that I’ve managed to first of all, stay alive this long, in reasonably good health, and that I’ve been able to do what I want to do.
+ - Let me tell you, there’s no better medicine than a friendly card game for sloughing off the cares of a workaday world.
+ - Movies are not novels, and that’s why, when filmmakers try to adapt novels, particularly long or complex novels, the result is almost always failure. It can’t be done.
+ - Writing makes you feel that there is a reason to go on living. If I couldn’t write, I would stop breathing.
+ - I never would have thought of that word, “hospitality.” I settle into the rhythm of my steps.
+ - The funny thing is that I feel close to all my characters. Deep, deep inside them all. I can’t describe how deeply I love them all.
+ - Some things get written more quickly than others, but I can’t really measure degrees of difficulty.
+ - Brooklyn has a bit of everything – some of the most beautiful things in America, and some of the most wretched, ugly, impoverished things.
+ - In the same way, the world is not the sum of all the things that are in it. It is the infinitely complex network of connections among them. As in the meanings of words, things take on meaning only in relationship to each other.
+ - The tone of every book is slightly different; there’s a music that each has that is distinct from all the others.
+ - Guilt kept me going. It was impossible not to blame myself for what had happened, but even guilt was a comfort. It was a human feeling, a sign that I was still attached to the same world that other men lived in.
+ - All my novels are very much directly related to my inner life, even though I’m inventing characters, even though it’s fiction, even though it’s make-believe, it nevertheless is coming out of the deepest recesses of myself.
+ - Medical care for the entire country seems to me a basic right. If every other country in the West can do it, why can’t we?
+ - It’s a mind going over things, revisiting things, maybe trying to refine the original perception. You have to keep going a thing over in order to make sense off it.
+ - When you’re young, you keep reading new writers and you keep changing your mind about how you ought to sound.
+ - We find ourselves only by looking to what we’re not.
+ - For some reason, all my characters come to me with their names attached to them. I never have to search for the names.
+ - To care about words, to have a stake in what is written, to believe in the power of books – this overwhelms the rest, and beside it one’s life becomes very small.
+ - Having made films, I know very well that the scope of the average 90- to 120-minute movie is about the same narrative heft as a long short story or a novella.
+ - I never experiment with anything in my books. Experimentation means you don’t know what you’re doing.
+ - I was very moved to see that the name of the boat was Hamlet – an imaginary character becomes so important to people, we think about them so much that we name a ship after them. The imaginary lives on in the real.
+ - You find the book in the process of doing it. That’s the adventure of the job.
+ - I see myself as anybody, as everybody; I’m not just telling the story of my life to give the reader a picture of who I am.
+ - All through my writing life, I’ve had this impulse to write autobiographical works.
+ - The things we remember are often things that have great emotional importance, and so they have a lasting effect.
+ - It often happens that things are other than what they seem, and you can get yourself into trouble by jumping to conclusions.
+ - Those of us who can remember our childhoods will recall how ardently we relished the moment of the bedtime story, when our mother or father would sit down beside us in the semi-dark and read from a book of fairy tales.
+ - As a poet or a novelist or a painter, you are pushing yourself all the time, always looking for a new way to approach something, challenging yourself and never, never trying to write the same book twice.
+ - Wounds are an essential part of life, and until you are wounded in some way, you cannot become a man.
+ - I was extremely shy. And I simply didn’t know how to go about it. It seemed a lot easier to write than to make films. All I needed was a pencil and a piece of paper, whereas filmmaking was something I had no access to.
+ - Most people are participating in the grand adventure of living with one another.
+ - The best filmmakers, I think, have always had very narrow frameworks for their stories, and then they can go deeply, rather than skimming the surface.
+
+210 quotes

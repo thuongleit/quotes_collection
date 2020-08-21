@@ -1,0 +1,68 @@
+ - Today, human civilization is drowning in a sea of lies.
+ - Government is about stealing and nothing else. That’s all it’s ever been about. That’s all it’ll ever be about.
+ - The quintessential exercise of free speech in a culture supposedly built on that concept and dedicated to it, the Internet’s development is as historically important to humanity perhaps even more so as Gutenberg ’s invention of the printing press.
+ - And yet, what is bravery but the capacity to reject our fears, ignore and supress them, then go on to do whatever it is we are afraid to do.
+ - It’s often been observed that the first casualty of war is the truth. But that’s a lie, too, in its way. The reality is that, for most wars to begin, the truth has to have been sacrificed a long time in advance.
+ - What happened in America in the 1860s was a war of secession, a war of independence, no different in principle from what happened in America in the 1770s and 1780s.
+ - The Bill of Rights isn’t about us, it’s about them. It isn’t a list of things we’re permitted to do, it’s a list of things they aren’t allowed even to consider.
+ - Choose your allies carefully: it’s highly unlikely that you’ll ever be held morally, legally, or historically accountable for the actions of your enemies.
+ - Thanks to guys like Boss Tweed, famous for saying, ‘I don’t give a damn who does the voting, as long as I do the nominating,’ there hasn’t been an honest election in the USA since sometime around the War Between the States.
+ - Choose your enemies carefully: you’ll probably be known much better and far longer for who they were, than for anything else you ever managed to accomplish.
+ - The freedom to own and carry the weapon of your choice is a natural, fundamental, and inalienable human, individual, civil, and Constitutional right – subject neither to the democratic process nor to arguments grounded in social utility.
+ - Guns cause crime like flies cause garbage!
+ - The War on Drugs employs millions – politicians, bureaucrats, policemen, and now the military – that probably couldnt find a place for their dubious talents in a free market, unless they were to sell pencils from a tin cup on street corners.
+ - Know when to give up a lost cause. Anyone who needs to be persuaded to be free, doesn’t deserve to be.
+ - A libertarian presidential candidate isn’t going to win anyway, so he can afford to say that all taxation is theft, and it isn’t the job of a libertarian presidential candidate to cook up new ways to commit theft.
+ - Violent crime is a solved problem – all they have to do is repeal the laws that keep those intelligent, capable, and responsible men and women from arming themselves, and violent crime evaporates like dry ice on a hot summer day.
+ - People who object to weapons aren’t abolishing violence, they’re begging for rule by brute force, when the biggest, strongest animals among men were always automatically ‘right.’ Guns ended that, and social democracy is a hollow farce without an armed populace to make it work.
+ - Those who sell their liberty for security are understandable, if pitiable, creatures. Those who sell the liberty of others for wealth, power, or even a moments respite deserve only the end of a rope.
+ - I suggest due process, speedy trials, and public hangings.
+ - The most dangerous and successful conspiracies take place in public, in plain sight, under the clear, bright light of day – usually with TV cameras focused on them.
+ - We live in times of wonderful technology and crappy politics. The task before us now is not to let the latter destroy the former.
+ - Armed people are free. No state can control those who have the machinery and the will to resist, no mob can take their liberty and property. And no 220 pound thug can threaten the well-being or dignity of a 110 pound woman who has two pounds of iron to even things out. Is that evil? Is that wrong?
+ - Every man, woman, and responsible child has an unalienable individual, civil, Constitutional, and human right to obtain, own, and carry, openly or concealed, any weapon – rifle, shotgun, handgun, machinegun, anything – any time, any place, without asking anyone’s permission.
+ - You cannot force me to agree with you. You can force me to act as though I agree with you but then you’ll have to watch your back. All the time.
+ - If I were Osama, and the United States government were actually looking for me, I’d be clean-shaven by now, crewcutted, wearing jeans and a ZZ Top T-shirt, and living in a nice little house in Lincoln, Nebraska.
+ - This planet is 15 million years overdue for an asteroid strike like the one that killed the dinosaurs.
+ - My current novel, Pallas, is all about that culture war – in fact it’s been called the Uncle Tom’s Cabin of the Sagebrush Rebellion – and yet what I hear all too often from libertarians is that they don’t read fiction.
+ - Of all the groups that sometimes claim to own your life, family is the hardest to defend your individual sovereignty from.
+ - What I want to accomplish artistically amounts to nothing more than fulfilling the promise of the American Revolution.
+ - The only hope we have is the Internet. We must strive to keep it free.
+ - There’s a big difference between keeping the peace, which is something folks do pretty well themselves, and enforcing the law, which is another thing altogether.
+ - I have long argued that we need to reopen Alcatraz to house government criminals, and let tourists on excursion boats in San Francisco Bay pay to chum the water with meat with an expired sell-by date that would otherwise have to be discarded.
+ - You’re people, in short, who must be stupid, insane, or evil to continue arguing in the face of indisputable facts and irrefutable logic that others must be forced into a state of helplessness and victimized by individual criminals or the state. Stupid, insane, or evil.
+ - Government is waging war against the people.
+ - Gun Control is mind control.
+ - The function of government is to provide you with service; the function of the media is to supply the Vaseline.
+ - I’m tired of being considered some kind of criminal or dangerous throwback for no other reason than that I value, exercise, and defend my rights under the first ten Amendments to the United States Constitution.
+ - Lincoln emancipated nobody. The man freed not a single slave.
+ - America didn’t have a drug problem before it passed drug laws.
+ - Once you’ve taken a public stand you know is right, never back down; anything less than a rock-hard stance will let your enemies nibble you to death.
+ - There’s nothing noble or selfless about politicians and there never has been. Putting it charitably, Profiles in Courage is a compendium of Democratic mythology, ghostwritten for an ambitious young Massachusetts Senator who never did a thing for himself if he could pay to have it done by others.
+ - The fact is that surveys which media people openly admit to show that fewer than twelve percent of their customers believe they’re doing a good job, while the average profit margin in television is in the neighborhood of eighty percent.
+ - Like the government, corporations must be bound with the chains of the Constitution, and especially of the Bill of Rights.
+ - As a novelist, I have a somewhat higher soapbox to stand on than most people do when it comes to talking back to the merchants of fear.
+ - It is individuals who must be encouraged to undertake the unprecedented – and unprecedentedly profitable – effort to prevent the annihilation of the human race.
+ - Forget ‘redeeming social value,’ dirty pictures are fun. When I die I want my ashes sprinkled over a nudist camp.
+ - Try never to speak of your enemies by name. Any publicity is still publicity – and there are those for whom your disapproval constitutes a recommendation.
+ - As to the media, they are protected by the First Amendment, as they should be.
+ - Imagine how a Teddy Kennedy or a Bill Clinton would take the news that one woman in ten, say, has the power to resist his blandishments by deadly force, and you’ll get a perfect idea of how a Charles Schumer or a George Bush feels about armed taxpayers.
+ - One thing about a police state, you can always find the police.
+ - City governments ought to be abolished, if only as a public health measure.
+ - Few things are more laughably pitiable than authority once it has been successfully defied.
+ - I’ll remind you all, however, that for government, existence is a privilege, not a right.
+ - Just as liberalism is the main force that drives conservatism and maintains its popularity in some quarters, conservatism is the reason liberalism continues to enjoy the traction that it does in our poor civilization.
+ - I’m as radical as libertarians come.
+ - I propose a Constitutional Amendment providing that, if any public official, elected or appointed, at any level of government, is caught lying to any member of the public for any reason, the punishment shall be death by public hanging.
+ - People in the mass media tend more and more every day to look and act like elected and appointed officials.
+ - Each day, it seemed, another law was passed to impoverish and diminish them, punishing them for whatever success they achieved and rewarding their less competent and industrious neighbors.
+ - We’re most likely to lose our rights when we allow ourselves to be persuaded to deprive others of theirs.
+ - Collective states are constitutionally incapable of reliably producing anything but corpses.
+ - We are expected to believe that anyone who objects to the Department of Homeland Security or the USA Patriot Act is a terrorist, and that the only way to preserve our freedom is to hand it over to the government for safekeeping.
+ - As Al Franken has demonstrated, liberals give lousy talk radio.
+ - The claim that the World Trade Center and the Pentagon were attacked because fundamentalists hate our prosperity and freedom is a ridiculous lie.
+ - I’m tired of being considered property.
+ - I’m tired of being lied to by government, by the media, and by every corporation I have anything to do with.
+ - Great men don’t ‘move to the center’ great men move the center!
+
+66 quotes

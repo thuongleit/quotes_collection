@@ -1,0 +1,45 @@
+ - Of the seven deadly sins, only envy is no fun at all.
+ - Within this realm of choicelessness, we do choose how we live.
+ - What distinguishes us one from another is our dreams, and what we do to make them come about.
+ - I am married to someone I love.
+ - We use books like mirrors, gazing into them only to discover ourselves.
+ - What all great teachers appear to have in common is love of their subject, an obvious satisfaction in rousing this love in their students, and an ability to convince them that what they are being taught is deadly serious.
+ - I know how deeply slothful I am.
+ - The best joke-tellers are those who have the patience to wait for conversation to come around to the point where the jokes in their repertoire have application.
+ - The pleasure of jogging and running is rather like that of wearing a fur coat in Texas in August: the true joy comes in being able to take the damn thing off.
+ - In recompense, envy may be the subtlest – perhaps I should say the most insidious – of the seven deadly sins.
+ - Not to like ice cream is to show oneself uninterested in food.
+ - Courage is nine-tenths context. What is courageous in one setting can be foolhardy in another and even cowardly in a third.
+ - We who are quotatious are never truly alone, but always hear the cheerful flow of remarks made by dead writers so much more intelligent than we.
+ - The reason ‘closure’ is a cliche is that it is used too often, too imprecisely, and doesn’t in any case reflect reality. In reality, such closure in broken friendships and much else in life is rarely achieved; only death brings closure and then not always for those still living.
+ - I am not merely a habitual quoter but an incorrigible one. I am, I may as well face it, more quotatious than an old stock-market ticker-tape machine, except that you can’t unplug me.
+ - One of the pleasures of being a Jew, I don’t have to tell you, it allows you anti-Semitism.
+ - I am basically a complainer and all the grounds for complaint have been swept out from under me.
+ - I believe it was Gayelord Hauser, the nutritionist, who said, ‘You are what you eat,’ but if you happen to be an intellectual, you are what you quote.
+ - High standards generally – about workmanship and creation of objects, about what is owed in friendship, about the quality of art and much else – far from being snobbish, are required to maintain decency in life.
+ - I know from the middle distance I give off the look of being prolific, which is a funny compliment to receive.
+ - No one has really ever defined what a friend is.
+ - I myself think anti-Semitism is about envy.
+ - Envy is never general, but always very particular – at least envy of the kind one feels strongly.
+ - We do choose how we shall live.
+ - That wine drinking is more effete than beer drinking? No question.
+ - One serious drawback about letters is that, in order to get them, one must send some out. When it comes to the mail, I feel it is better to receive than to give.
+ - I just know so many people who have six or seven foreign languages and have read everything and have musical training and they are still dorks.
+ - The problem for me is that reading is, I won’t say a sacred, but nevertheless a pretty serious act.
+ - The decisive moment in the defeat of upper class, capital-S, Society may have come when, in newspapers all over the nation, what used to be call the Society page was replaced by the Style section.
+ - I am the heterosexual Truman Capote.
+ - Culture means, I think, that you have widened your experience enough through reading and through being a little bit thoughtful about these things that it has changed your outlook in some ways. And not necessarily made you a better human being but made you see things.
+ - Always seek the general and never quite trust it.
+ - Someone – Cyril Connolly? Ezra Pound? – once said that anything that can be read twice is literature; I would say that anything that bears saying twice is quotable.
+ - By the way, the secret of speaking French is confidence. Whether you are right or wrong, you don’t hesitate.
+ - No nostalgia runs deeper than that for something one has never known and now cannot obtain.
+ - I should prefer to die laughing, and, on more than one occasion, thought I might.
+ - I know how many days in which I have just answered e-mail, had three phone calls and a two hour lunch. Poof, gone. They are not infrequent.
+ - A cat is the only domestic animal I know who toilet trains itself and does a damned impressive job of it.
+ - I think the story is my form.
+ - My wife who is non-Jewish regrets it all the time that I can say these terrible things about fellow Jews and she can’t.
+ - A writer can get into a vast deal of trouble through misquotation. If you ever want to receive lots of mail, I recommend you get a Shakespeare quote wrong in a magazine or newspaper.
+ - For me writing is foremost a mode of thinking and when it works well, an act of discovery.
+ - If geniuses can sometimes make mistakes, cannot the rest of us on occasion be geniuses?
+
+43 quotes

@@ -1,0 +1,21 @@
+ - Some people will never change.
+ - The trouble with anyone when they’re unhappy or in a relationship they recognize is not working but don’t know what to do about is that they can’t see farther out than that. If the relationship is not working, if what was there isn’t there anymore, you have to do something about it.
+ - I don’t tell everyone my life history because if everyone knows your inside-leg measurement, how can you surprise them?
+ - Acting attracts shy people and show-offs.
+ - I love the drive from York to Whitby over the moors – one of the great journeys, in my book.
+ - In my life, I’ve had estates in Russia, houses in Spain, in Norway, in the deep south of America.
+ - I’ve learnt to listen. I don’t think I always did listen. Not just in plays, but in life. And you have to hear what people are saying before you can respond.
+ - You can’t look at people being crucified. Even if you know it is just pretend.
+ - Mostly in life people are trying not to have emotions.
+ - I am drawn to characters that go on journeys, characters that are real people, that have life.
+ - I’ve never lost a grown-up child, but I have known loss.
+ - I have spent my whole life educating myself.
+ - People in distress behave in a stressful way. They aren’t all sweetness and light. They don’t behave well when they are unhappy. That’s just what I’ve observed.
+ - You don’t go to a comedy and try to laugh. You laugh in spite of yourself. You don’t just come on stage and cry. Something has pushed you to cry.
+ - I’ve learnt to listen. I don’t think I always did listen.
+ - You need to keep on doing things you have never done before in your career. You have to have a go.
+ - It’s true, I’ve become one of those grumpy older women.
+ - I’ve had very close relationships with some twentieth-century writers.
+ - When you play someone who is an iconic figure you can’t go into it lightly.
+
+19 quotes

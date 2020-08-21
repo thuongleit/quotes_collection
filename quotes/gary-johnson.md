@@ -1,0 +1,33 @@
+ - Life’s a party. Invite yourself.
+ - 90% of the problem with marijuana is prohibition related, not use related.
+ - I think very fundamentally to being Libertarian is not having a social agenda. I accept who you are and the life that you live as long as your life does not adversely affect mine.
+ - We’re on the verge of a financial collapse unless we balance the budget, and that means some really, really tough decisions.
+ - I don’t smoke marijuana anymore. I don’t drink. Marijuana is a handicap. So is alcohol. Alcohol is a terrible handicap. But in spite of being a handicap, it shouldn’t be criminal.
+ - As I told the students every time I visited a campus, you are the director of your own movie, and if you aren’t enjoying what you are doing, change it.
+ - Republicans are horrible with civil liberties, and not so good with dollars and cents. Democrats are horrible with dollars and cents, and not so good with civil liberties.
+ - Too many Americans have lost faith in our approach to the war on drugs...
+ - It’s not 2038 that Social Security is bankrupt. It’s now.
+ - I think libertarians need somebody who can articulate getting from A to Z. But you know, if G is achievable, how about it? Let’s get there!
+ - If you outlaw guns, only outlaws will have guns. The first people who are going to be in line to turn in their guns are law-abiding citizens. Criminals are going to be left with guns. I believe that concealed carry is a way of reducing gun violence.
+ - I’m finding myself really angry over spending and the deficit. I’m finding myself really angry over what’s happening in the Middle East, the decision to stay in Afghanistan indefinitely. I’m angry about cap and trade. And I’ve been on record for a long time on the failed war on drugs.
+ - Let’s end the unworkable marijuana prohibition and put our money where our mouth is. Let’s solve the problems like border crime. We can do it with pot legalization.
+ - A wasted vote is voting for someone that you don’t believe in.
+ - Regardless of who wins, an election should be a time for optimism and fresh approaches.
+ - Immigration is a good thing. We should make that as easy as possible.
+ - How simple life is. We buy a fish. We are fed. We sit close to each other, we talk and then we go to bed.
+ - Tonight was a great opportunity to take on the political status quo that has given us trillion dollar deficits and put millions out of work. Our objective was to inject some common sense into the conversation among Republicans at a time when business-as-usual simply won’t work.
+ - My next-door neighbor’s two dogs have created more shovel-ready jobs than this current administration.
+ - I had a ‘Mr. Smith Goes to Washington’ experience as governor.
+ - I hope that people will see that we don’t have to sit by the sidelines and watch as the two major parties limit their choices to slightly different flavors of the status quo. It is, in fact, possible to join the fray, stand up for principles and offer a real alternative.
+ - Having a debate right now over whether or not to legalize marijuana is kind of like having a debate over whether the sun will come up tomorrow.
+ - I don’t believe there should be any restrictions when it comes to firearms. None.
+ - Ron Paul’s revolution isn’t a fluke. It’s the future.
+ - I’m absolutely a Ron Paul fan.
+ - Regardless of my legislation, spending has to be stopped.
+ - The current prohibition laws are forcing drug disputes to be played out with guns in our streets. We need to put a stop to this criminal drug element in our country.
+ - Balance the federal budget now, not 15 years from now, not 20 years from now, but now. And throw out the entire federal tax system, replace it with a fair tax, a consumption tax, that by all measurements is just that. It’s fair.
+ - I’m asked, what about criminal prosecution of those on wall street? You know what, it’s probably because none of them committed any crimes. They just made some incredibly bad decisions.
+ - This country would be a better place to live in if all the resources we currently put toward criminalizing marijuana were instead spent by law enforcement on protection from real crime, as opposed to victimless crime.
+ - The excitement right now is coming from the Liberty movement. And the Republicans want a piece of it.
+
+31 quotes

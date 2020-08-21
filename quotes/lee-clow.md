@@ -1,0 +1,41 @@
+ - Good advertising is a dialog with people...
+ - Everything a brand does is advertising.
+ - If you’d put it in a Powerpoint deck don’t put it in your ad.
+ - Consumers never complain about ads being too smart.
+ - An ad should be an appetizer, not a buffet.
+ - Most ideas are a bit scary, and if an idea isn’t scary, it’s not an idea at all.
+ - Baby Steps are for Babies, Not Brands. Be Amazing or Be Surpassed.
+ - Make it smart. Make it beautiful. Have fun.
+ - Creative people are 50% ego and 50% insecurity.
+ - The only reason you should move to a new job is if you are not getting the opportunity to do what you want to do and what you believe you can do.
+ - Actions speak louder than meetings.
+ - I found my own way of doing things.
+ - Listen real hard to the smartest guy in the room before you go trying to prove how smart you are.
+ - Your ad begins as an interruption. Make paying attention to it feel like a reward.
+ - Shocking is easy. Shockingly brilliant, a bit more challenging.
+ - I’d rather apologize than to be so timid as to never try to do anything smart or brave.
+ - I have always felt the word ‘advertising’ is either a diminutive or derogatory term that kind of goes with stuff people don’t like, and I always felt frustrated because I felt like I was a communication artist or a media artist. The best advertising is one of the art forms of our culture.
+ - Advertising can be a very frustrating business.
+ - You have to be daring and make something that doesn’t look like anybody else.
+ - When you open an Apple product it’s like a religious experience.
+ - Creativity thrives on a consistent diet of challenges and opportunities, which are often one and the same.
+ - An incredible advertising career is not about creating an incredibly amazing ad, it’s about making an incredible amazing ad every single day of your career, it’s about getting those adds killed, and resurrecting them over and over again. It’s about your season average not that occasional home-run.
+ - Throughout history, the technology always comes first. It’s just technology for a while, until the day we artists inherit it.
+ - The smartest advertising is the advertising that communicates the best and respects the consumer’s intelligence.
+ - Most people who are deemed ‘mean’ are usually perfectionist who make mediocre people unhappy, cause they put more pressure on them then they can handle.
+ - When creatively passionate people get together to start a company, the energy and camaraderie is really pretty stimulating.
+ - Ultimately, if you are doing great work, the money will come.
+ - Never start a conversation with a yawn.
+ - Hey! You can be more than just a car company. You can be more than just a pet food company. You can aspire to loving dogs, rather than just feeding dogs.
+ - I’ve never found a client’s business problem that could be solved solely through advertising.
+ - Managing brands is going to be more and more about trying to manage everything that your company does.
+ - It’s very demeaning that we have to put on a show to prove that we know how to put on a show.
+ - What I’ve always loved to do is build a brand that’s so cool that you want to wear their T-shirt.
+ - A thing that most creatives don’t do well is that you’ve gotta learn to listen.
+ - What I know how to do is nurture and help people discover the best opportunities...
+ - If it’s been done, do it better. If it hasn’t been done, do it so well that better is not an option.
+ - Telling stories on behalf of brands is what I’ve done all my life.
+ - If you are always trying to do something great and different and fresh, lots of them are going to be shut down for lots of stupid or good reasons, but you have to keep on trying.
+ - If you think you have a better mousetrap or car, or shirt, or whatever, you’ve got to tell people...
+
+39 quotes

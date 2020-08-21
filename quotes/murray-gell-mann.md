@@ -1,0 +1,38 @@
+ - Think how hard physics would be if particles could think.
+ - Everything that is not forbidden is compulsory.
+ - If I have seen further than others, it is because I am surrounded by dwarfs.
+ - Enthusiasm is followed by disappointment and even depression, and then by renewed enthusiasm.
+ - Sustainability is living on nature’s income rather than living on its capital.
+ - The world of the quark has everything to do with a jaguar circling in the night.
+ - In our work, we are always between Scylla and Charybdis; we may fail to abstract enough, and miss important physics, or we may abstract too much and end up with fictitious objects in our models turning into real monsters that devour us.
+ - While many questions about quantum mechanics are still not fully resolved, there is no point in introducing needless mystification where in fact no problem exists. Yet a great deal of recent writing about quantum mechanics has done just that.
+ - Of course the word chaos is used in rather a vague sense by a lot of writers, but in physics it means a particular phenomenon, namely that in a nonlinear system the outcome is often indefinitely, arbitrarily sensitive to tiny changes in the initial condition.
+ - If someone says that he can think or talk about quantum physics without becoming dizzy, that shows only that he has not understood anything whatever about it.
+ - Just because things get a little dingy at the subatomic level doesn’t mean all bets are off.
+ - Superstitions typically involve seeing order where in fact there is none, and denial amounts to rejecting evidence of regularities, sometimes even ones that are staring us in the face.
+ - You know, there was a time, just before I started to study physical science, when astronomers thought that systems such as we have here in the solar system required a rare triple collision of stars.
+ - I am frequently astonished that it so often results in correct predictions of experimental results.
+ - I think also of my colleagues in elementary particle theory in many lands, and feel that in some measure I am here as a representative of our small, informal, international fraternity.
+ - Both biological and cultural diversity are now severely threatened and working for their preservation is a critical task.
+ - In fact any experiment that measures a quantum effect is one in which the quantum effect is aligned with the behavior of some heavy, macroscopic object; that’s how we measure it.
+ - What I try to do in the book is to trace the chain of relationships running from elementary particles, fundamental building blocks of matter everywhere in the universe, such as quarks, all the way to complex entities, and in particular complex adaptive system like jaguars.
+ - I do not keep up with the details of particle physics.
+ - As a theoretical physicist, I feel at once proud and humble at the thought of the illustrious figures that have preceded me here to receive the greatest of all honors in science, the Nobel prize.
+ - Sometimes the probabilities are very close to certainties, but they’re never really certainties.
+ - The chaos can act as a magnifier of quantum fluctuations so that they can produce sizable effects in the world around us. But we know that that can happen often.
+ - Hugh Everett’s work has been described by many people in terms of many worlds, the idea being that every one of the various alternative histories, branching histories, is assigned some sort of reality.
+ - I have been interested in phenomena involving complexity, diversity and evolution since I was a young boy.
+ - But when researchers at Bell Labs discovered that static tends to come from particular places in the sky, the whole field of radio astronomy opened up.
+ - We are driven by the usual insatiable curiosity of the scientist, and our work is a delightful game.
+ - So the old Copenhagen interpretation needs to be generalized, needs to be replaced by something that can be used for the whole universe, and can be used also in cases where there is plenty of individuality and history.
+ - The persistence of erroneous beliefs exacerbates the widespread anachronistic failure to recognize the urgent problems that face humanity on this planet.
+ - Our planet doesn’t seem to be the result of anything very special.
+ - I would recommend that skeptics devote even more effort than they do now to understanding the reasons why so many people want or need to believe.
+ - Planets are too dim to be detected with existing equipment, far away, except in these very special circumstances where they’re seen by their gravitational effect.
+ - When you think you’re listening to several conversations at once, they tell me, you may really simply be time sharing – that is, listening a little bit to this one, a little bit to that one.
+ - But I don’t actually adopt the point of view that our subjective impression of free will, which is a kind of indeterminacy behavior, comes from quantum mechanical indeterminacy.
+ - Bush is a nice fellow who gives very good parties. I just wish someone would find him a better job than running the country.
+ - If we look at the way the universe behaves, quantum mechanics gives us fundamental, unavoidable indeterminacy, so that alternative histories of the universe can be assigned probability.
+ - What is especially striking and remarkable is that in fundamental physics a beautiful or elegant theory is more likely to be right than a theory that is inelegant.
+
+36 quotes

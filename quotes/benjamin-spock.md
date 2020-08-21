@@ -1,0 +1,48 @@
+ - Trust yourself, you know more than you think you do.
+ - Without freedom of choice, there is no creativity. Without creativity, there is no life.
+ - It’s not the words but the music that counts.
+ - The child supplies the power but the parents have to do the steering.
+ - Having a good time together is the essence of lovingness and the best means of increasing it.
+ - If I could make only one wish for a child, I’d wish him the quality of lovingness.
+ - I was proud of the youths who opposed the war in Vietnam because they were my babies.
+ - I would say that the surest measure of a man’s or a woman’s maturity is the harmony, style, joy, and dignity he creates in his marriage, and the pleasure and inspiration he provides for his spouse.
+ - The strongest rebellion may be expressed in quiet, undramatic behavior.
+ - Don’t worry about trying to do a perfect job. There is no perfect job. There is no one way of raising your children.
+ - Physical punishment teaches children that the larger, stronger person has the power to get his way, whether or not he is in the right, and they may resent this in the parent-for life.
+ - A human being is happiest and most successful when dedicated to a cause outside his own individual, selfish satisfaction.
+ - I’ve come to the realization that a lot of our problems are because of a dearth of spiritual values.
+ - Like my parents, I have never been a regular church member or churchgoer. It doesn’t seem plausible to me that there is the kind of God who watches over human affairs, listens to prayers, and tries to guide people to follow His precepts – there is just too much misery and cruelty for that.
+ - All the time a person is a child he is both a child and learning to be a parent. After he becomes a parent he becomes predominantly a parent reliving childhood.
+ - How to fold a diaper depends on the size of the baby and the diaper.
+ - The fact is that child rearing is a long, hard job, the rewards are not always immediately obvious, the work is undervalued, and parents are just as human and almost as vulnerable as their children.
+ - Can we make a better world for our children? I believe we can, if enough people are concerned and get involved in changing what is wrong with society.
+ - In our country today, very few children are raised to believe that their principal destiny is to serve their family, their country, or God.
+ - The main source of good discipline is growing up in a loving family, being loved and learning to love in return.
+ - Happiness is mostly a by-product of doing what makes us feel fulfilled.
+ - Every child senses, with all the horse sense that’s in him, that any parent is angry inside when children misbehave and they dread more the anger that is rarely or never expressed openly, wondering how awful it might be.
+ - I agree today that a man has no business trying to tell women what their characteristics are, which ones are inborn, which are more admirable, which will be best utilized by what occupations.
+ - What good mothers and fathers instinctively feel like doing for their babies is usually best after all.
+ - Grandparents have the freedom to see their grandchildren uncritically.
+ - Respect children because they’re human beings and they deserve respect, and they’ll grow up to be better people.
+ - The loving person makes other people feel good, and he is usually a happy person himself. He is able to form strong, long-lasting friendships.
+ - When women are encouraged to be competitive, too many of them become disagreeable.
+ - Children who grow up getting nutrition from plant foods rather than meats have a tremendous health advantage. They are less likely to develop weight problems, diabetes, high blood pressure and some forms of cancer.
+ - Don’t take too seriously all that the neighbors say. Don’t be overawed by what the experts say. Don’t be afraid to trust your own common sense.
+ - What is the use of physicians like myself trying to help parents to bring up children healthy and happy, to have them killed in such numbers for a cause that is ignoble?
+ - Perhaps a child who is fussed over gets a feeling of destiny; he thinks he is the world for something important, and it gives him drive and confidence.
+ - People have said, “You’ve turned your back on pediatrics.” I said, “No. It took me until I was in my 60s to realize that politics was a part of pediatrics.”
+ - I’m not a pacifist. I was very much for the war against Hitler and I also supported the intervention in Korea, but in this war we went in there to steal Vietnam.
+ - There are only two things a child will share willingly; communicable diseases and its mother’s age.
+ - To win in Vietnam, we will have to exterminate a nation.
+ - Parental trust is extremely important in the guidance of adolescent children as they get further and further away from the direct supervision of their parents and teachers. I don’t mean that trust without clear guidance is enough, but guidance without trust is worthless.
+ - It’s up to each of us to help create a better world for our children.
+ - Our greatest hope is to bring up children inspired by their opportunities for being helpful and loving.
+ - The more people have studied different methods of bringing up children the more they have come to the conclusion that what good mothers and fathers instinctively feel like doing for their babies is the best after all.
+ - Most middle-class whites have no idea what it feels like to be subjected to police who are routinely suspicious, rude, belligerent, and brutal.
+ - Don’t be afraid to trust your own common sense.
+ - A boy, by the age of 3 years, senses that his destiny is to be a man, so he watches his father particularly-his interests, manner, speech, pleasures, his attitude toward work...
+ - I was so afraid of being bad and being caught at it.
+ - Boys and girls need chances to be around their father, to be enjoyed by him and if possible to do things with him. Better to play fifteen minutes enjoyably and then say, ‘Now I’m going to read my paper’ than to spend all day at the zoo crossly.
+ - I really learned it all from mothers.
+
+46 quotes

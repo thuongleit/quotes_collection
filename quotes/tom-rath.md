@@ -1,0 +1,46 @@
+ - You cannot be anything you want to be – but you can be a whole lot more of who you already are.
+ - If you spend your life trying to be good at everything, you will never be great at anything.
+ - Although individuals need not be well-rounded, teams should be.
+ - The pursuit of meaning, not happiness, is what makes life worthwhile.
+ - From the cradle to the cubicle, we devote more time to our shortcomings than to our strengths.
+ - Positive words are the glue that holds relationships together.
+ - Perhaps the ultimate test of a leader is not what you are able to do in the here and now – but instead what continues to grow long after you’re gone.
+ - When we build on our strengths and daily successes – instead of focusing on failures – we simply learn more.
+ - Employees who report receiving recognition and praise within the last seven days show increased productivity, get higher scores from customers, and have better safety records. They’re just more engaged at work.
+ - When you ask people what affects their wellbeing most, they think of health and wealth.
+ - Make work a purpose, not just a place.
+ - The things that change people’s lives are usually an accumulation of small acts.
+ - Figure out what you really love doing and use your strengths on a daily basis.
+ - If we can find short-term incentives that are consistent with our long-term objectives, it is much easier to make the right decisions in the moment.
+ - The most successful people start with dominant talent – and then add skills, knowledge, and practice to the mix. When they do this, the raw talent actually serves as a multiplier.
+ - If you want to improve your life and the lives of those around you, you must take action.
+ - Spending on oneself does not boost wellbeing. However, spending money on others does – and it appears to be as important to people’s happiness as the total amount of money they make.
+ - One’s single greatest strength may be uncovering the hidden talents of another person.
+ - Exercise is not enough. Working out three times a week is not enough. Being active throughout the day is what keeps you healthy.
+ - People have several times more potential for growth when they invest energy in developing their strengths instead of correcting their deficiencies.
+ - Followers have a very clear picture of what they want and need from the most influential leaders in their lives: trust, compassion, stability, and hope.
+ - There will be plenty of blame to go around but if you take credit for the sunshine, you also get blamed for the rain.
+ - Every human being has talents that are just waiting to be uncovered.
+ - The absence of high-quality friendships is bad for your health, spirits, productivity, and longevity.
+ - The vast knowledge we have to prevent cancer, heart disease, and other chronic illnesses is staggering.
+ - Making better choices takes work. There is a daily give and take, but it is worth the effort.
+ - When we’re able to put most of our energy into developing our natural talents, extraordinary room for growth exists.
+ - Far too many people spend a lifetime headed in the wrong direction. They go not only from the cradle to the cubicle, but then to the casket, without uncovering their greatest talents and potential.
+ - Buying experience such as going out to dinner or taking a vacation increases our own wellbeing and the wellbeing of others. Experiences last while material purchases fade.
+ - When we get at least six hours of daily social time, it increases our wellbeing and minimizes stress and worry. The six hours includes time at work, at home, on the telephone, talking to friends, sending e-mail, and other communication.
+ - Every day, I read about new ideas and research that could help someone I care about live a longer and healthier life.
+ - Don’t worry about breaks every 20 minutes ruining your focus on a task. Contrary to what I might have guessed, taking regular breaks from mental tasks actually improves your creativity and productivity. Skipping breaks, on the other hand, leads to stress and fatigue.
+ - Even if people just change two or three things that they are able to sustain over time, it makes quite a difference eventually.
+ - If you want people to understand that you value their contributions and that they are important, the recognition and praise you provide must have meaning that is specific to each individual.
+ - Clearly, there aren’t enough positive moments or interactions happening in the workplace. As a result, our economy suffers, companies suffer, and individual relationships suffer.
+ - The quickest way to be a little bit happier and more engaged in your job is to spend some time thinking about developing closer friendships.
+ - What works for one persons needs is almost always very different from the next.
+ - When I was in kindergarten, I entered a competition and read 52 books in a week.
+ - At its fundamentally flawed core, the aim of almost any learning program is to help us become who we are not.
+ - When we can see an immediate payoff, we are more likely to change our behavior in the moment. This aligns our daily actions with our long-term interests.
+ - People who have at least three or four very close friendships are healthier, have higher wellbeing, and are more engaged in their jobs. But the absence of any close friendships can lead to boredom, loneliness, and depression.
+ - Most people perceive their occupation as being a detriment to their overall wellbeing.
+ - Doing for others may be the only way to create lasting well-being.
+ - Its tempting to work more than 60 hours a week and sacrifice sleep, not move, and eat bad foods as they are convenient. But this comes with a cost.
+
+44 quotes

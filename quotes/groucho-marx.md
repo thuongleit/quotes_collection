@@ -1,0 +1,272 @@
+ - I find television very educating. Every time somebody turns on the set, I go into the other room and read a book.
+ - Outside of a dog, a book is man's best friend. Inside of a dog it's too dark to read.
+ - Time flies like an arrow; fruit flies like a banana.
+ - I, not events, have the power to make me happy or unhappy today. I can choose which it shall be. Yesterday is dead, tomorrow hasn’t arrived yet. I have just one day, today, and I’m going to be happy in it.
+ - Each morning when I open my eyes I say to myself: I, not events, have the power to make me happy or unhappy today.
+ - I intend to live forever, or die trying.
+ - When you’re in jail, a good friend will be trying to bail you out. A best friend will be in the cell next to you saying, ‘Damn, that was fun’.
+ - Behind every successful man is a woman, behind her is his wife.
+ - Learn from the mistakes of others. You can never live long enough to make them all yourself.
+ - The problem with doing nothing is that you never know when you’re finished.
+ - A black cat crossing your path signifies that the animal is going somewhere.
+ - Marriage is the chief cause of divorce.
+ - There’s only two things you can start without a plan: a riot and a family, for everything else you need a plan.
+ - Blessed are the cracked, for they shall let in the light.
+ - I’m not crazy about reality, but it’s still the only place to get a decent meal.
+ - No man goes before his time – unless the boss leaves early.
+ - If you are not having fun you are doing something wrong.
+ - The Two Most Important Words In The World Are Honesty And Sincerity, If You Can Fake These You’ve Got It Made.
+ - Some people claim that marriage interferes with romance. There's no doubt about it. Anytime you have a romance, your wife is bound to interfere.
+ - Will you marry me? Do you have any money? Answer the second question first.
+ - I refuse to join any club that would have me as a member.
+ - Whatever it is, I’m against it.
+ - While money can’t buy happiness, it certainly lets you choose your own form of misery.
+ - Getting older is no problem. You just have to live long enough.
+ - What have future generations ever done for us?
+ - I could dance with you until the cows come home. On second thought I’d rather dance with the cows until you come home.
+ - Now there’s a man with an open mind – you can feel the breeze from here!
+ - If you find it hard to laugh at yourself, I would be happy to do it for you.
+ - Patience is the art of finding something else to do.
+ - A hospital bed is a parked taxi with the meter running.
+ - You’re the most beautiful woman I’ve ever seen, and that’s not saying much for you.
+ - Blood’s not thicker than money.
+ - There’s one way to find out if a man is honest – ask him. If he says, ‘Yes,’ you know he is a crook.
+ - Only one man in a thousand is a leader of men – the other 999 follow women.
+ - Time wounds all heels.
+ - Hail, hail Freedonia, land of the free!
+ - The secret of life is honesty and fair dealing. If you can fake that, you’ve got it made.
+ - Next time I see you, remind me not to talk to you.
+ - Military intelligence is a contradiction in terms.
+ - Man does not control his own fate. The women in his life do that for him.
+ - The only real laughter comes from despair.
+ - Humor is reason gone mad.
+ - This book was written in those long hours I spent waiting for my wife to get dressed to go out. And if she had never gotten dressed at all this book would never have been written.
+ - He may look like an idiot and talk like an idiot but don’t let that fool you. He really is an idiot.
+ - Do you mind if I don’t smoke?
+ - Money frees you from doing things you dislike. Since I dislike doing nearly everything, money is handy.
+ - Love flies out the door when money comes innuendo.
+ - This would be a better place for children if parents had to eat spinach.
+ - I have had a perfectly wonderful evening, but this wasn’t it.
+ - If the garbage man calls, tell him we don’t want any.
+ - The first part of the party of the first part shall be known in this contract as the first part of the party of the first part shall be known in this contract – Look, why should we quarrel about a thing like this? We’ll take it right out, eh?
+ - If we had some eggs we could have eggs and ham, if we had some ham.
+ - Given the choice between a woman and a cigar, I will always choose the cigar.
+ - Be open minded, but not so open minded that your brains fall out.
+ - Politics is the art of looking for trouble, finding it everywhere, diagnosing it incorrectly and applying the wrong remedies.
+ - It is impossible to design anything that is foolproof because fools are so ingenious.
+ - Middle age is when you go to bed at night and hope you feel better in the morning. Old age is when you go to bed at night and hope you wake up in the morning.
+ - Why should I care about posterity? What’s posterity ever done for me?
+ - Hello, I must be going.
+ - Military justice is to justice what military music is to music.
+ - The admission fee was a viper’s tongue and a half-concealed stiletto. It was a sort of intellectual slaughterhouse.
+ - This isn’t a particularly novel observation, but the world is full of people who think they can manipulate the lives of others merely by getting a law passed.
+ - I have an agreement with the houseflies. The flies don’t practice law and I don’t walk on the ceiling.
+ - Don’t let the fear of the thorn keep you from the rose.
+ - Don’t ever underestimate the importance of money. I know it’s often been said that money won’t make you happy and this is undeniably true, but everything else being equal, it’s a lovely thing to have around the house.
+ - Dig trenches? With our men being killed off like flies? There isn’t time to dig trenches. We’ll have to buy them ready made.
+ - I’m not feeling very well – I need a doctor immediately. Ring the nearest golf course.
+ - Yes, darling, let me cover your face with kisses-On second thought, just let me cover your face.
+ - Don’t look now, but there’s one too many in this room and I think it’s you.
+ - All geniuses die young.
+ - A man’s only as old as the woman he feels.
+ - Celebrate the cracks, because that’s how the light comes in.
+ - Die, my dear? Why that’s the last thing I’ll do!
+ - With a little study you’ll go a long ways, and I wish you’d start now.
+ - I can see you in the kitchen bending over a hot stove, and I can’t see the stove.
+ - She’s so in love with me, she doesn’t know anything. That’s why she’s in love with me.
+ - I cannot say that I don’t disagree with you.
+ - Let there be dancing in the streets, drinking in the saloons, and necking in the parlor.
+ - Groucho: You know I think you’re the most beautiful woman in the world? Woman: Really? Groucho: No, but I don’t mind lying if it gets me somewhere.
+ - Who are you going to believe, me or your own eyes?
+ - Poverty makes people sub-human Excess of wealth makes people inhuman.
+ - Well, Art is Art, isn’t it? Still, on the other hand, water is water. And east is east and west is west and if you take cranberries and stew them like applesauce they taste much more like prunes than rhubarb does. Now you tell me what you know.
+ - I’m leaving because the weather is too good. I hate London when it’s not raining.
+ - Money will not make you happy, and happy will not make you money.
+ - One woman and one man might have been OK in your grandmother’s day, but who wants to marry your grandmother? Not even your grandfather!
+ - Oh, are you from Wales? Do you know a fella named Jonah-He used to live in whales for a while.
+ - No one is completely unhappy at the failure of his best friend.
+ - Just give me a comfortable couch, a dog, a good book, and a woman. Then if you can get the dog to go somewhere and read the book, I might have a little fun.
+ - Take two turkeys, one goose, four cabbages, but no duck, and mix them together. After one taste, you’ll duck soup for the rest of your life.
+ - If you’ve heard this story before, don’t stop me, because I’d like to hear it again.
+ - We’ll meet at the theater tonight. I’ll hold your seat ’til you get there. Once you get there; you’re on your own.
+ - I never go to movies where the hero’s tits are bigger than the heroine’s.
+ - I write by ear. I tried writing with the typewriter, but I found it too unwieldy.
+ - Afraid? Me? A man who’s licked his weight in wild caterpillars?
+ - Why a four-year-old child could understand this report. Run out and find me a four-year-old child. I can’t make head nor tail out of it.
+ - There was no need to inform us of the protocol involved. We were from Chicago and knew all about cement.
+ - In America you can go on the air and kid the politicians, and the politicians can go on the air and kid the people.
+ - Jail is no place for a young fellow. There’s no advancement.
+ - My brother thinks he’s a chicken-We don’t talk him out of it because we need the eggs.
+ - Send two dozen roses to Room 424 and put “Emily, I love you” on the back of the bill.
+ - I have nothing but respect for you – and not much of that.
+ - It isn’t so much that hard times are coming; the change observed is mostly soft times going.
+ - I’ve been looking for a girl like you – not you, but a girl like you.
+ - You call this a party? The beer is warm, the women cold and I’m hot under the collar.
+ - With the possible exception of clothes, beauty salons and Frank Sinatra, there are few subjects all women agree upon.
+ - Quote me as saying I was mis-quoted.
+ - Bel Air, I am convinced, was laid out by some diabolic sadist who deliberately decided not to use a compass or a surveyor.
+ - I’d have liked to have gone to bed with Jean Harlow. She was a beautiful broad. The fellow who married her was impotent and he killed himself. I would have done the same thing.
+ - The Alps are a simple folk, living on a diet of old shoes. And the Lord Alps those who alp themselves.
+ - Politics doesn’t make strange bedfellows – marriage does.
+ - A clown is like aspirin, only he works twice as fast.
+ - I would never join a country club with standards so low as to allow me as a member.
+ - I’d like to meet the person who invented sex and see what they’re working on now.
+ - Marry me and I’ll never look at another horse!
+ - If you take cranberries and stew them like apple sauce, it tastes much more like prunes than rhubarb does.
+ - Two women at a resort discussed dinner: “The food here is lousy,” the first noted. “You’re right! And such small portions!!” the second added.
+ - No, Groucho is not my real name. I am breaking it in for a friend.
+ - I’m going to Iowa for an award. Then I’m appearing at Carnegie Hall, it’s sold out. Then I’m sailing to France to be honored by the French government – I’d give it all up for one erection.
+ - Heifer cow is better than none, but this is no time for puns.
+ - I think women are sexy when they got some clothes on. And if later they take them off then you’ve triumphed. Somebody once said it’s what you dont see you’re interested in, and this is true.
+ - Why was I with her? She reminds me of you. In fact, she reminds me more of you than you do!
+ - If income tax is the price you have to pay to keep the government on its feet, alimony is the price we have to pay for sweeping a woman off hers.
+ - I was married by a judge. I should have asked for a jury.
+ - You’re heading for a breakdown. Why don’t you pull yourself to pieces.
+ - That’s nothing. My alarm clock is set for eight.
+ - An ounce of prevention is worth a pound of bandages and adhesive tape.
+ - Love had forged ahead so swiftly that in no time it had displaced agriculture as the leading industry of the period. To anyone who has tried both, this wont come as much of a surprise.
+ - Come on in girls, and leave all hope behind.
+ - I’ve known and respected your husband for many years, and what’s good enough for him is good enough for me.
+ - Oh, why can’t we break away from all this, just you and I, and lodge with my fleas in the hills? I mean flee to my lodge in the hills.
+ - All people are born alike – except Republicans and Democrats.
+ - The only game I like to play is “Old Maid”, providing she’s not too old.
+ - If he’s been married for 31 years, he’s not the same man.
+ - There’s a man outside with a big black mustache. – Tell him I’ve got one.
+ - Today’s Father Day and we’re giving you a tie, it’s not much you know, it’s just our way of showing you, you’re a regular guy.
+ - Comedians are a much rarer and far more valuable commodity than all the gold and precious stones in the world.
+ - You get a canoe later and I’ll paddle you.
+ - Hello, I must be going, I cannot stay, I came to say, I must be going. I’m glad I came, but just the same, I must be going.
+ - Sir, are you trying to offer me a bribe? How much.
+ - Home is where you hang your head.
+ - I think you’ve got something there, but I’ll wait outside until you clean it up.
+ - Remember, the grass is always greener where you don’t happen to be the neighbor.
+ - I was going to thrash them within an inch of their lives, but I didn’t have a tape measure.
+ - It’s hard to get ivory in Africa, but in Alabama the Tuscaloosa.
+ - Since my daughter is only half-Jewish, could she go in the water up to her knees?
+ - Life is a whim of several billion cells to be you for a while.
+ - Only if the computers really love each other.
+ - Growing old is something you do if you’re lucky.
+ - Ice Water? Get some Onions – that’ll make your eyes water!
+ - When I invite a woman to dinner, I expect her to look at my face. That’s the price she has to pay.
+ - My favourite poem is the one that starts ‘Thirty days hath September’ because it actually tells you something.
+ - Remember men, you are fighting for the ladies honor, which is probably more than she ever did.
+ - Some day there will have to be some new rules established about name-calling. I don’t mean the routine cursing that goes on between husband and wife, but the naming of defenseless, unsuspecting babies.
+ - I love my cigar too, but I take it out of my mouth once in a while.
+ - I came here for a party and what do I get? Nothing. Not even Ice cream.
+ - I wish you’d keep my hands to yourself.
+ - The foods that are recommended today are as palatable as a steady diet of wet blotters.
+ - Why don’t you bore a hole in yourself and let the sap run out?
+ - You’ve got a goal in life. I’ve got a goal. Now all we need is a football team.
+ - I married your mother because I wanted children, imagine my disappointment when you came along.
+ - Why, I’d horse-whip you if I had a horse.
+ - You bet I’m shy. I’m a shyster lawyer.
+ - I’ve been around so long, I knew Doris Day before she was a virgin.
+ - The Arab and the camel are inseparable. It’s been said that and Arab would give up his wife rather than give up his camel. Personally, I haven’t got a camel, but I think it’s a great idea.
+ - One morning I shot an elephant in my pajamas. How he got into my pajamas I’ll never know.
+ - One of the best hearing aids a man can have is an attentive wife.
+ - Believe me, you have to get up early if you want to get out of bed.
+ - Do you suppose I could buy back my introduction to you?
+ - You are going Uruguay, and I’m going my way.
+ - Marriage is a wonderful institution, but who wants to live in an institution?
+ - The husband who wants a happy marriage should learn to keep his mouth shut and his checkbook open.
+ - I don’t care to belong to a club that accepts people like me as members.
+ - Go, and never darken my towels again.
+ - I must confess, I was born at a very early age.
+ - Anyone who says he can see through women is missing a lot.
+ - I remember the first time I had sex – I kept the receipt.
+ - Making love to your wife is like shooting at sitting ducks.
+ - Three years ago I came to Florida without a nickel in my pocket. Now I’ve got a nickel in my pocket.
+ - A woman is an occasional pleasure but a cigar is always a smoke.
+ - You’re a great brother. You give us a heart attack worrying about your heart attack, which you didn’t even have the decency to have!
+ - Age is not a particularly interesting subject. Anyone can get old. All you have to do is live long enough.
+ - Africa is God’s country, and He can have it.
+ - I never forget a face, but in your case I’ll be glad to make an exception.
+ - A moose is an animal with horns on the front of its head and a hunting lodge wall on the back of it.
+ - I have a mind to join a club and beat you over the head with it.
+ - Mrs. Teasdale calls for rescue and Firefly delivers the famous line to his cohorts as they rescue her: “Remember, you’re fighting for this woman’s honor, which is probably more than she ever did.”
+ - Many years ago I chased a woman for almost two years, only to discover that her tastes were exactly like mine: we both were crazy about girls.
+ - You can leave in a huff. Or you can leave in a minute and a huff.
+ - Do they allow tipping on the boat? – Yes, sir. Have you got two fives? – Oh, yes, sir. Then you won’t need the ten cents I was going to give you.
+ - She got her looks from her father. He’s a plastic surgeon.
+ - I don’t have a photograph, but you can have my footprints. They’re upstairs in my socks.
+ - Laugh and the world laughs with you, cry and you’re probably watching the wrong channel.
+ - Years ago, I tried to top everybody, but I don’t anymore. I realized it was killing conversation. When you’re always trying for a topper you aren’t really listening. It ruins communication.
+ - Madam, you’re making history, in fact, you’re making me, and I wish you’d keep my hands to yourself.
+ - Even the intellectual crowd will have none of me. Physically, I look like one of them. Graying at the temples, I walk with a slight limp and wear thick glasses.
+ - Why would I want to join an organization that would encourage people like myself to become members.
+ - I have just one day, today, and I’m going to be happy in it.
+ - Don’t be silly. I’ll write you twice a week.
+ - Whoever named it necking was a poor judge of anatomy.
+ - I’ve got the brain of a four year old. I’ll bet he was glad to be rid of it.
+ - And stop pointing that beard at me, it might go off!
+ - How do you feel about women’s rights? I like either side of them.
+ - But what makes wage slaves? Wages!
+ - Hey you! I told you to slow that nag down! Because of you, I almost heard the opera!
+ - A woman can smell mink through six inches of lead.
+ - I worked my way up from nothing to a state of extreme poverty.
+ - I’m not a vegetarian, but I eat animals who are.
+ - I hope they bury me near a strait man.
+ - I’ve met a lot of pin-up girls, but I’ve never been able to pin one down.
+ - Well, art is art, isn’t it? Still, on the other hand, water is water!
+ - Always examine the dice.
+ - When discovered by his wife, kissing the maid, Groucho said, “I was just whispering in her mouth”
+ - He’s so full of alcohol, if you put a lighted wick in his mouth he’d burn for three days.
+ - There is no sweeter sound than the crumbling of one’s fellow man.
+ - Ever since they found out that Lassie was a boy, the public has believed the worst about Hollywood.
+ - If it gets any hotter in here I could use a big fan.
+ - Women should be obscene, not heard.
+ - Practically everybody in New York has half a mind to write a book, and does.
+ - As soon as I get through with you, you’ll have a clear case for divorce and so will my wife.
+ - I met my wife on a ferry boat, and when we landed she gave me the slip.
+ - How much would you want to stand at the wrong end of a shooting gallery?
+ - I know, I know – you’re a woman who’s had a lot of tough breaks. Well, we can clean and tighten those brakes, but you’ll have to stay in the garage all night.
+ - If women dressed for men, the stores wouldn’t sell much – just an occasional sun visor.
+ - Alimony is like buying hay for a dead horse.
+ - Gerald Ford was unknown throughout America. Now he’s unknown throughout the world.
+ - From the moment I picked your book up until I laid it down, I was convulsed with laughter. Someday I intend reading it.
+ - He thinks I look alike!
+ - The first thing which I can record concerning myself is, that I was born. These are wonderful words. This life, to which neither time nor eternity can bring diminution – this everlasting living soul, began. My mind loses itself in these depths.
+ - In any relationship, the woman has control, the clever ones don’t let the men know.
+ - Either he’s dead or my watch has stopped.
+ - If you want to see a comic strip, you should see me in the shower.
+ - She’s afraid that if she leaves, she’ll become the life of the party.
+ - If they’d lower the taxes and get rid of the smog and clean up the traffic mess, I really believe I’d settle here until the next earthquake.
+ - I was born at a very early age. Before I had time to regret it, I was four and a half years old.
+ - Was that you or the duck?
+ - I’m gonna put extra blankets, free, in all your rooms, and there’ll be no cover charge.
+ - I started smoking as soon as I went on the stage. I’d make cigars out of the Morning World when I was a kid.
+ - A child of five would understand this. Send someone to fetch a child of five.
+ - Room service? Send up a larger room.
+ - I love to read. My education is self-inflicted.
+ - I read in the newspapers they are going to have 30 minutes of intellectual stuff on television every Monday from 7:30 to 8. to educate America. They couldn’t educate America if they started at 6:30.
+ - If I held you any closer I would be on the other side of you.
+ - I can’t understand why you don’t get any mail from me. Perhaps it’s because I haven’t been writing.
+ - I eat like a vulture. Unfortunately the resemblance doesn’t end there.
+ - My mother loved children – she would have given anything if I had been one.
+ - It isn’t necessary to have relatives in Kansas City in order to be unhappy.
+ - The difference between a politician and a snail is that the snail leaves its slime behind. Whoever named it necking was a poor judge of anatomy.
+ - Obviously there was no point in being a bachelor if his houseman was going to filch his booze. If he was going to get robbed, he might just as well get married.
+ - I was so long writing my review that I never got around to reading the book.
+ - Hollywood brides keep the bouquets and throw away the grooms.
+ - My plans are still in embryo, a town on the edge of wishful thinking.
+ - How would you like to feel the way she looks.
+ - TV is the rat race of the century.
+ - Any place I hang my head is home.
+ - I think that the Peeps or Peppies or Pipes diaries would be much more popular had there been a universal pronuncation of his name.
+ - Budget: a way of going broke methodically.
+ - To write an autobiography of Groucho Marx would be as asinine as to read an autobiography of Groucho Marx.
+ - I am a man and you are a woman. I can’t think of a better arrangement.
+ - I didn’t like the play, but then I saw it under adverse conditions – the curtain was up.
+ - Anybody who doesn’t like this book is healthy.
+ - Before you speak, make certain you have something worthwhile to say.
+ - Wives are people who feel they don’t dance enough.
+ - Hey, when I said work fast, I didn’t mean your friend, I meant the maid.
+ - My experience is that people are most likely to listen to reason when in bed.
+ - You know I could rent you out as a decoy for duck hunters?
+ - I don’t have change I’d have to give you nine more books.
+ - I wish to be cremated. One tenth of my ashes shall be given to my agent, as written in our contract.
+ - Money cannot buy you happiness, and happiness cannot buy you money. That might be a wise crack, but I doubt it.
+ - Television is where you watch people in your living room that you would not want near your house.
+ - I’m not going to pay good money to join a club that lets in people like me.
+
+270 quotes

@@ -1,0 +1,22 @@
+ - I want to try everything.
+ - I’m not small, I’m space-efficient.
+ - You can grow apart from people very quickly.
+ - Sometimes I say things that I can’t believe came out of my mouth. Or I won’t mean something and it will come out completely nonsensical.
+ - But my mother and father were married when my mom was 20 and my dad was 24.
+ - I feel just like Julia Roberts in Pretty Woman. You know, except for the whole hooker thing.
+ - I think I’m a million different faces.
+ - I went on a children’s roller coaster once when I was maybe 12-or some age when I was considered a little old to be on a kiddy ride. Absolutely terrified. Thought I was going to die.
+ - I have no interest whatsoever in being a high-fashion model, nor is it possible.
+ - When I came into the business, things changed a lot, and my life was in a real state of flux.
+ - People always give me styling products and stuff.
+ - I have two cats at home in Minnesota with my family. Beau and Skippy.
+ - You wouldn’t recognize me from one project to the next.
+ - Yeah, I definitely want to find that right person and fall in love and have kids someday.
+ - When something is troubling me, people know about it.
+ - You know, we have to take these characters – who, granted, have their separate personalities but, on a lot of levels, are pretty two-dimensional – and make them into people with flaws, with insecurities.
+ - I didn’t want to start acting like a cartoon.
+ - But acting just sort of happened and I found that I loved it. It was such a challenge.
+ - I was very involved with school by the time I was 15 and wasn’t working much as a model.
+ - If this whole acting thing doesn’t work out, I’ll just get a talk show.
+
+20 quotes

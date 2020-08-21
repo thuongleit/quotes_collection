@@ -1,0 +1,41 @@
+ - Freedom is merely privilege extended, unless enjoyed by one and all.
+ - A virtue never tested is no virtue at all.
+ - Start your own revolution, cut out the middleman In a perfect world we’d all sing in tune But this is reality so give me some room So join the struggle while you may The Revolution is just a t-shirt away.
+ - Peace, bread, work, and freedom is the best we can achieve.
+ - If you’ve got a blacklist, I want to be on it.
+ - You can be active with the activists or sleep in with the sleepers while you’re waiting for the Great Leap Forwards.
+ - A patriot is someone who cares what happens in their country.
+ - If you thought the army was here protecting people like yourself, I’ve some news for you, we’re here to defend wealth.
+ - A nation with their freezers full are dancing in their seats, while outside another nation is sleeping in the streets.
+ - There are quite a few honest songwriters out there writing about relationships and their own personality traits. But for some reason, once they step out of the bedroom, their honesty doesn’t seem to come with them.
+ - Money maketh man a tory, don’t fire that assumption at me, I like toast as much as anyone but not for breakfast, dinner and tea.
+ - I’m celebrating my love for you with a pint of beer and a new tattoo.
+ - But, in the end, even a song that’s as politically bland as Blowin in the Wind, you probably wouldn’t get up and sing that now, whereas some of Bob Dylan’s love songs that were contemporary with that, like say Girl from the North Country, you can still get up an play now.
+ - You can experience a download, but you can’t download an experience.
+ - War what is it good for? It’s good for business.
+ - I’ve had songs written during the Falklands war, and during the first Gulf war I got letters from soldiers saying they were listening to these songs, like Island of no return.
+ - Were it not for the Clash, punk would have been just a sneer, a safety pin and a pair of bondage trousers.
+ - Baptists burn more slowly.
+ - An isolationist America is no bloody use to anyone.
+ - All musicians start out with ideals but hanging on to them in the face of media scrutiny takes real integrity. Tougher still is to live up to the ideals of your dedicated fans.
+ - Don’t saddle me with your ideals, and spare me all your guilt. For a poet with all the answers, has never yet been built.
+ - What corporations fear most are consumers who ask questions. Naomi Klein offers us the arguments with which to take on the superbrands.
+ - My theory is this; I’m not a political songwriter. I’m an honest songwriter.
+ - All the great political music was made at the height of political confrontations.
+ - The evil lot who did that thing on September 11 did it because they wanted to create a war between America and Islam. And by invading Iraq, we gave them what they hoped for.
+ - I never met a politician who didn’t want to be a guitar player in a rock band. I’ve got the opportunity to say what I believe in.
+ - If there is a single trait in our character that has historically set us apart from other nations, it is our determination to limit the authority of those who rule over us.
+ - It would shine a torch into the dirty little corner where the BNP defecate on our democracy, and that would be much more powerful than duffing them up in the street – which Im also in favour of.
+ - I enjoyed so much working with the guys from Wilco, and riffing off of them, and having someone come up to me with ideas, because normally in the studio it’s me who has to come up with all the ideas.
+ - By the time I was 19, punk had occurred. It had a completely different cultural dynamic to it which rejected everything and started again from the year zero.
+ - I try and write honestly about what I see around me now.
+ - Being spokesman for a generation is the worst job I ever had.
+ - I was in a little punk band and we put out a few punk records that weren’t very political, at all.
+ - That’s what I’m about – getting engaged. Too many people don’t wade in the mud with the politicians.
+ - I’m still batting away on my politics for the Labour Party. I’m much further to the left of them than I used to be, but that’s because they’ve moved, not me.
+ - I came into this whole business by going to see Rock Against Racism gigs with the Clash.
+ - The most important thing for anyone, I think, is to be engaged, whether you’re an artist or a journalist is to be engaged in the process at some level.
+ - So, in some ways, the political songs tend to be a bit more like reportage, whereas the love songs tend to be like novels, you can pick them up off the shelf and go into them any time.
+ - Even with politics, stuff comes around again. Woody Guthrie would recognize America today.
+
+39 quotes

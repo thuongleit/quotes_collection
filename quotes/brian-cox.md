@@ -1,0 +1,31 @@
+ - We are the cosmos made conscious and life is the means by which the universe understands itself.
+ - When we look out into space, we are looking into our own origins, because we are truly children of the stars.
+ - Every carbon atom in every living thing on the planet was produced in the heart of a dying star.
+ - In science, there are no universal truths, just views of the world that have yet to be shown to be false.
+ - When you fall into a black hole you will be literally spaghettified.
+ - The correct statement of individual rights is that everyone has the right to an opinion, but crucially, that opinion can be roundly ignored and even made fun of, particularly if it is demonstrably nonsense!
+ - Climate change: Don’t undermine the science just because you don’t like the economics.
+ - Skepticism must go hand in hand with rationality. When theories are shown to be false, the correct thing to do is to move on.
+ - Deeper understanding confers that most precious thing – wonder.
+ - Science is too important not to be a part of popular culture.
+ - One might say science is the sum total of our knowledge of the universe, the great library of the known, but the practice of science happens at the border between the known and the unknown. Standing on the shoulders of giants, we peer into the darkness with eyes opened not in fear but in wonder.
+ - For the first time, we saw our world, not as a solid, immovable, kind of indestructible place, but as a very small, fragile-looking world just hanging against the blackness of space.
+ - We explore because we are curious, not because we wish to develop grand views of reality or better widgets.
+ - Look at that! If you ever needed convincing that we live in the solar system, that we are on a ball of rock, orbiting around the Sun with other balls of rock, then look at that! That’s the solar system coming down and grabbing you by the throat.
+ - If people don’t have an understanding of what science is and what scientists do, then they can tend to think that global warming, for example, is just a matter of opinion.
+ - Science is about exploring, and the only way to uncover the secrets of the universe is to go and look.
+ - The aim of particle physics is to understand what everything’s made of, and how everything sticks together. By everything I mean me and you, the Earth, the Sun, the 100 billion suns in our galaxy and the 100 billion galaxies in the observable universe. Absolutely everything.
+ - Don’t undermine the science just because you don’t like the economics. That’s a dangerous slope, because the problem of course is you’re not undermining just that, you’re undermining the basis of rational decision-making in society.
+ - What scientists are attached to is journeys into the unknown and discovering things that are completely unexpected and baffling and surprising.
+ - At every stage of understanding the universe better, the benefits to civilisation have been immeasurable. None of those big leaps were made with us knowing what was going to happen.
+ - An explorer of the universe is sexier than a musician.
+ - As we get older, things seem less important.
+ - There is so much left of it to explore.
+ - We have written the evidence of our existence onto the surface of our planet. Our civilisation has become a beacon, that identifies our planet as home to life.
+ - It would be wonderful if ideas could be the new rock ’n roll.
+ - No one gets teased for being a geek anymore- science is the new rock n roll.
+ - For me, Woody Allen’s ‘Manhattan’ defines New York. Both New York and Manhattan Island should be in black in white! I always hear the soundtrack of Gershwin in my head every time I go over the Queensboro Bridge, or come in from JFK because of it!
+ - In a sense I feel very much a part of the cinema now in a way where when I come back to the theater now I feel like a visitor. The cinema is really what I enjoy. I want to do more independent movies.
+ - The fact is that Hollywood, from as early as the sixties to the present time, has ghettoized cinema into the big industry, a marketing industry. In doing this, the audiences have lost touch with the aspects of film which were to be informative and educational and even spiritual.
+
+29 quotes

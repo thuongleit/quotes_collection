@@ -1,0 +1,29 @@
+ - But at my back I always hear Time’s winged chariot hurrying near.
+ - Thus, though we cannot make our sun Stand still, yet we will make him run.
+ - What wondrous life is this I lead! Ripe apples drop about my head.
+ - So much one man can do that does both act and know.
+ - Art indeed is long, but life is short.
+ - See how the Orient dew, Shed from the bosom of the morn Into the blowing roses, Yet careless of its mansion new; For the clear region where ’twas born Round in its self encloses: And in its little globes extent, Frames as it can its native element.
+ - How could such sweet and wholesome hours be reckoned, but in herbs and flowers?
+ - As lines, so loves oblique, may well Themselves in every angle greet; But ours, so truly parallel, Though infinite, can never meet.
+ - I have a garden of my own, But so with roses overgrown, And lilies, that you would it guess To be a little wilderness.
+ - Had we but world enough, and time, this coyness, lady, were no crime.
+ - How vainly men themselves amaze To win the palm, the oak, or bays; And their uncessant labours see Crown’d from some single herb or tree. Whose short and narrow verged shade Does prudently their toils upbraid; While all flow’rs and all trees do close To weave the garlands of repose.
+ - How fit he is to sway That can so well obey.
+ - Let us roll all our strength, and all Our sweetness, up into one ball: And tear our pleasures with rough strife, Through the iron gates of life. Thus, though we cannot make our sun Stand still, yet we will make him run.
+ - My love is of a birth as rare As ’tis, for object, strange and high; It was begotten by Despair Upon Impossibility.
+ - Now let us sport us while we may; And now, like amorous birds of prey, Rather at once our time devour, Than languish in his slow-chapped power.
+ - Gather the flowers, but spare the buds.
+ - Had we but world enough, and time, This coyness Lady were no crime. We would sit down, and think which way To walk, and pass our long love’s day. Thou by the Indian Ganges’side Shouldst rubies find: I by the tide Of Humber would complain. I would Love you ten years before the flood.
+ - Music, the mosaic of the air.
+ - Casting the body’s vest aside, My soul into the boughs does glide.
+ - And yonder all before us lie Deserts of vast eternity.
+ - Twas beyond a mortal’s share To wander solitary there: Two paradises ’twere in one To live in paradise alone.
+ - The world in all doth but two nations bear- The good, the bad; and these mixed everywhere.
+ - Self-preservation, nature’s first great law, all the creatures, except man, doth awe.
+ - Annihilating all that’s made, To a green thought in a green shade.
+ - Among the blind the one-eyed blinkard reigns.
+ - And all the way, to guide their chime, With falling oars they kept their time.
+ - Though I carry always some ill-nature about me, yet it is, I hope, no more than is in this world necessary for a preservative.
+
+27 quotes

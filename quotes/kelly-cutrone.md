@@ -1,0 +1,52 @@
+ - This was when I learned that you have to give up your life as you know it to get a new one: that sometimes you need to let go of everything you’re clinging to and start over, whether because you’ve outgrown it or because it’s not working anymore, or because it was wrong for you in the first place.
+ - I hope that you, too, will choose to have a journey instead of just a life. Actually, I hope it’s a full on expedition.
+ - When you believe in something and truly go after it with all you have, amazing things will happen.
+ - Social media, especially Twitter, has completely changed the fashion and media industries – we now can go direct to consumers in a nanosecond – amazing way of distributing content – right to the point.
+ - You know where nice people end up? On welfare.
+ - Stop sharing your dreams with people who try to hold you back, even if they’re your parents.
+ - My life is not balanced and not everything is perfect all the time.
+ - Personal branding is about figuring who you are and what turns you on and then monetising it.
+ - When things go really really bad – life is going to have its way with you no matter who you are – and when things get really really bad, that’s the time to stand up and keep going, and to push, not to fall down or run away.
+ - My mistakes have been some of the best teachers of my life.
+ - When you’re following your inner voice, doors tend to eventually open for you, even if they mostly slam at first.
+ - In today’s disposable culture, we throw away people like we do razors, always assuming there’s someone better out there to hang out with, or to work for- people who will never embarrass us, let us down or offend us.
+ - When you’re the most happening person at the party, it’s time to leave.
+ - You have to be prepared for people to hate you. Average people love to be average, because nobody bothers them.
+ - After all, you can’t truly be happy if you’ve never known pain. You can’t truly feel joy if you’ve never felt heartbreak. You can’t know what it’s like to be filled unless you’ve been empty.
+ - People want to express themselves – that’s what fashion is for. You can go to Target and get something that Rodarte designed for $34, but would you want to go buy the higher version for $3,400? I think most people would say no.
+ - Unless you’re really going to have a serious relationship, don’t bring your kids into it. Don’t show your child that people come and go.
+ - Your dreams are ballbusters; they’re not the yellow brick road.
+ - I had the most expensive haircut you can get, and I was walking around with my hair in rollers backstage, and my hair still came out looking like I was shot out of a cannon and I had just gotten out of bed.
+ - You can fake your way to the table, but ultimately you have to learn how to eat.
+ - I don’t have time to write a mom blog, but I’m not against it. I think it’s great when women talk about things. I’m all about female empowerment. There’s a lot of lonely, lost moms out there. Moms need to be encouraged to tell the truth. There’s a lot of glamour mommy stuff. It’s OK to get real.
+ - I think between the ages of 15 and 32, don’t worry about getting married, don’t worry about settling down, don’t worry about having a baby. Give birth to yourself.
+ - People should just express themselves and not worry about trends – try to use fashion like a compass, an indicator, examples of things that you can be. It’s not to be taken so seriously. It’s just clothes.
+ - Baby-carrying means your hearts are close together. It’s a very intense and beautiful way to bond with your baby, very intimate. It’s also easier than a stroller.
+ - Every woman’s wardrobe should include black.
+ - If you’re 5? 6", just stay home. Don’t pretend you’re 5? 8" or 5? 9". If you want to be a beauty model, I guess that’s fine, you can do glamour, but you’re not going to do runway. If you’re over 29 – 26, even – I would suggest you work regionally and not try to work nationally.
+ - Well digital media and social media are eliminating the middle man – in the old days, you had to go through the editors. Or the television producer, you know? Now you have people talking directly to each other, globally who have never met. I think you put the “word” in “word of mouth.”
+ - We’re all hookers in one way or another.
+ - When you’re young, you don’t realize that things are going to pass and things will move and shift.
+ - Most fashion models do not look good in bikinis because they’re too thin.
+ - The best thing to do is just know that there’s a big difference between style and fashion, and that one doesn’t necessarily have anything to do with the other.
+ - Society has a hyper emphasis on thin, and that trend comes from the consumers – it does not come from the fashion industry. The fashion industry needs to make money; that’s what we do. If people said, ‘We want a 300 pound purple person,’ the first industry to do it would be fashion.
+ - The only dream I ever had was the dream of New York itself, and for me, from the minute I touched down in this city, that was enough. It became the best teacher I ever had.
+ - I believe all women know in their heart of hearts that they truly are divine and magical, even if they’ve temporarily forgotten.
+ - I believe everyone who breathes air on this earth, regardless of their job or their bank account, must give back more than just carbon dioxide.
+ - Gather up your courage like an armful of free clothes at a McQueen sample sale and follow your inner voice wherever it takes you.
+ - Single motherhood is an amazing thing; it’s a blessing.
+ - We see women who go out and want to look like Jennifer Aniston, and they’re wearing an ill-fitting red dress and ugly gold shoes, and they’ve got flat hair and they can’t walk.
+ - I work in fashion because the world is such a heavy place that I need to be in this industry that fights for five hours to get a dress.
+ - In breaking away from the familiar and the expected, you’ll be forced and privileged to face greater challenges, learn harder lessons, and really get to know yourself.
+ - The hardest lessons to learn are the ones your soul needs most.
+ - Belts with potbellies are pretty bad. I mean, what about an oversized shirt and a trouser? What about an oversized button-up shirt in linen and a trouser? Do us all a favor.
+ - You find out who you are by figuring out who and what you’re not.
+ - There are a bunch of different ways to look at the fashion industry. Is it shallow to work in fashion? Yes, it can be. But does fashion transform a woman who might feel like nothing and unimportant to glamorous and gorgeous? Yes, it does. Does it employ a huge sector of America? Yes, it does.
+ - If people decide thin is out, the fashion industry won’t have thin models anymore. Have you spent time with fashion people? They are ruthless. They want money. And the one thing they know is people want clothes to cover their bodies. Unfortunately, most people aren’t comfortable with their bodies.
+ - For the consumer, fashion is fashion. You can buy something beautiful for $20 and you can buy something ugly for $1,000. It comes down to style. As far as the industry as a whole, it is hard to say. I don’t like to separate the worlds.
+ - The whole thing about magazines is that, magazines are going to become deeper and more tutorial, and the nature of the magazine is going to change.
+ - I don’t take it lightly that I brought a life into this world. They’re waiting for you every day, these sweet little angels. You have to have time for them to interact on a daily basis.
+ - Historically, most women who are powerful are seen as not being nice, even if they are.
+ - But while my inner voice was clearly telling me I was at my core an entrepreneur, it’s inconvenient to decide at twenty-three that you can’t really work for other people.
+
+50 quotes

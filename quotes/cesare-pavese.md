@@ -1,0 +1,139 @@
+ - If you wish to travel far and fast, travel light. Take off all your envies, jealousies, unforgiveness, selfishness and fears.
+ - We do not remember days, we remember moments.
+ - Traveling is a brutality. It forces you to trust strangers and to lose sight of all that familiar comfort of home and friends.
+ - I am the captain of my destiny, I do not abandon the ship in hard times, But, I do have sense enough not to go down with the ship.
+ - Perfect behaviour is born of complete indifference.
+ - The art of living is the art of knowing how to believe lies. The fearful thing about it is that, not knowing what truth may be, we can still recognize lies.
+ - The cadence of suffering has begun. Every evening at dusk, my heart constricts until night has come.
+ - A dream is a creation of the intelligence, the creator being present but not knowing how it will end.
+ - Every luxury must be paid for, and everything is a luxury, starting with being in this world.
+ - A consoling thought: what matters is not what we do, but the spirit in which we do it. Others suffer too; so much so that there is nothing in the world but suffering; the problem is simply to keep a clear conscience.
+ - The only way to escape the abyss is to look at it, gauge it, sound it out and descend into it.
+ - What world lies beyond that stormy sea I do not know, but every ocean has a distant shore, and I shall reach it.
+ - To know the world, one must construct it.
+ - We do not free ourselves from something by avoiding it, but only by living though it.
+ - Perfect behavior is born of complete indifference. Perhaps this is why we always love madly someone who treats us with indifference.
+ - Reality is a prison, where one vegetates and always will. All the rest – thought, action – is just a pastime, mental or physical. What counts then, is to come to grips with reality. The rest can go.
+ - We care so little of other people than even Christianity urges us to do good for the love of God .
+ - Maybe it’s better like this, better that everything should go up in a blaze of dry grass and that people should begin again.
+ - There is something indecent in words .
+ - When writing poetry, it is not that produces a bright idea, but the bright idea that kindles the fire of.
+ - There is nothing fine about being a child: it is fine, when we are old, too look back to when we were children .
+ - Misfortunes cannot suffice to make a fool into an intelligent man.
+ - At great periods you have always felt, deep within you, the temptation to commit suicide. You gave yourself to it, breached your own defenses. You were a child. The idea of suicide was a protest against life; by dying, you would escape this longing for death.
+ - The only joy in the world is to begin.
+ - One does not kill oneself for love of a woman, but because love – any love – reveals us in our nakedness, our misery, our vulnerability, our nothingness.
+ - If it is true that one gets used to suffering, how is it that as the years go one always suffers more? No, they are not mad, those people who amuse themselves, enjoy life, travel, make love, fight they are not mad. We should like to do the same ourselves.
+ - Life without smoking is like the smoke without the roast.
+ - But the real, tremendous truth is this: suffering serves no purpose whatever.
+ - A man is never completely alone in this world. At the worst, he has the company of a boy, a youth, and by and by a grown man – the one he used to be.
+ - It is not the actual enjoyment of pleasure that we desire. What we want is to test the futility of that pleasure, so as to be no longer obsessed by it.
+ - Childhood is not only the childhood we really had but also the impressions we formed of it in our adolescence and maturity. That is why childhood seems so long. Probably every period of life is multiplied by our reflections upon the next.
+ - In the mental disturbance and effort of writing, what sustains you is the certainty that on every page there is something left unsaid.
+ - You’ve got to understand life, understand it when you’re young.
+ - The world, the future, is now within you as your past, as experience, skill in technique, and the rich, everlasting mystery is found to be childish you that, at the time, you made no effort to possess.
+ - Woman gives herself as a prize to the weak and as a prop to the strong and no man ever has what he should.
+ - A love thought: I love you so much that I could wish I had been born your brother, or had brought you into the world myself.
+ - We can all do good deeds, but very few of us can think good thoughts.
+ - Life is pain and the enjoyment of love is an anesthetic.
+ - But here’s the worst part: the trick to life lies in hiding from those we hold most dear how much they mean to is; if not, we’d lose them.
+ - War makes men barbarous because, to take part in it, one must harden oneself against all regret, all appreciation of delicacy and sensitive values. One must live as if those values did not exist, and when the war is over one has lost the resilience to return to those values.
+ - No woman marries for money; they are all clever enough, before marrying a millionaire, to fall in love with him first.
+ - I thought of how many places there are in the world that belong in this way to someone, who has it in his blood beyond anyone else’s understanding.
+ - From someone who doesn’t want to share your destiny, you should neither accept a cigarette.
+ - Love is the cheapest of religions.
+ - Don’t mix wine and women.
+ - Why does a man who is truly in love insist that this relationship must continue and be “lifelong”? Because life is pain and the enjoyment of love is an anesthetic. Who would want to wake up halfway through an operation?
+ - Idleness makes hours pass slowly and years swiftly. Activity makes the hours short and the years long.
+ - Love has the faculty of making two lovers seem naked, not in each other’s sight, but in their own.
+ - You wait for nothing if not for the word that will burst from the deep like a fruit among branches.
+ - The art of living is the art of knowing how to believe lies.
+ - Work alone isn’t enough for me and mine; we know how to break our backs, but the great dream Of my fathers was to be good at doing nothing.
+ - What we desire is not to possess a woman, but to be the only one to possess her.
+ - Men who have a tempestuous inner life and do not seek to give vent to it by talking or writing are simply men who have no tempestuous inner life. Give company to a lonely man and he will talk more than anyone.
+ - We want Realism’s wealth of experience and Symbolism’s depth of feeling. All art is a problem of balance between two opposites.
+ - For women, history does not exist. Murasaki, Sappho, and Madame Lafayette might be their own contemporaries.
+ - Here’s the difficulty about suicide: it is an act of ambition that can be committed only when one has passed beyond ambition.
+ - No matter how much a young man likes to think for himself, he is always trying to model himself on some abstract pattern largely derived from the example of the world around him. And a man, no matter how conservative, shows his own worth by his personal deviation from that pattern.
+ - It is not that the child lives in a world of imagination, but that the child within us survives and starts into life only at rare moments of recollection, which makes us believe, and it is not true, that, as children, we were imaginative?
+ - The problem is not the harshness of Fate, for anything we want strongly enough we get. The trouble is rather that when we have it we grow sick of it, and then we should never blame Fate, only our own desire.
+ - Will power is only the tensile strength of one’s own disposition. One cannot increase it by a single ounce.
+ - We like to have work to do, so as to have the right to rest.
+ - Artists are the monks of the bourgeois state.
+ - Remember, writing poetry is like making love: one will never know whether one’s own pleasure is shared.
+ - I’ve discovered nothing. but do you remember how much we talked when we were boys? We talked just for the fun of it. We knew very well it was only talk, but still we enjoyed it.
+ - The closing years of life are like the end of a masquerade party, when the masks are dropped.
+ - The real affliction of old age is remorse.
+ - Suicides are timid murderers. Masochism instead of Sadism.
+ - Hate is always a clash between our spirit and someone else’s body.
+ - Many men on the point of an edifying death would be furious if they were suddenly restored to health.
+ - When a man mourns for someone who has played him false, it is not for love of her, but for his own humiliation at not having deserved her trust.
+ - The face of the night will be an old wound that reopens each evening, impassive and living. The distant silence will ache like a soul, mute, in the dark. We’ll speak to the night as it’s whispering softly.
+ - We commit two wrongs when we fail to right a wrong.
+ - We must never say, even in fun, that we are disheartened, because someone might take us at our word.
+ - You cannot insult a man more atrociously than by refusing to believe he is suffering .
+ - If it were possible to have a life absolutely free from every feeling of sin, what a terrifying vacuum it would be.
+ - Writing is a fine thing, because it combines the two pleasures of talking to yourself and talking to a crowd.
+ - To avenge a wrong done to you, is to rob yourself of the comfort of crying out against the injustice of it.
+ - The slowness of time, for a man who knows nothing will happen, is brutal.
+ - The whole problem of life, then, is this: how to break out of one’s own loneliness, how to communicate with others.
+ - Not believing in anything is also a religion .
+ - All sins have their origin in a sense of inferiority otherwise called ambition.
+ - Things are revealed through the memories we have of them. Remembering a thing means seeing it only then for the first time.
+ - How can you have confidence in a woman who will not risk entrusting her whole life to you, day and night?
+ - Narrating incredible things as though they were real old system; narrating realities as though they were incredible the new.
+ - It had to happen to you, to concentrate your whole life on one point, and then discover that you can do anything except live at that point.
+ - One stops being a child when one realizes that telling one’s trouble does not make it any better.
+ - A man succeeds in completing a work only when his qualities transcend that work.
+ - The act the act must not be a revenge. It must be a calm, weary renunciation, a closing of accounts, a private, rhythmic deed. The last remark.
+ - All our “most sacred affections ” are merely prosaic habit.
+ - There comes a day when, for someone who has persecuted us, we feel only indifference, a weariness at his stupidity. Then we forgive him.
+ - You will hear words old and spent and useless like costumes left over from yesterday’s parties.
+ - A corpse is what’s left after waking too often.
+ - The problems that agitate one generation are exstinguished for the next, not because they have been solved but because the general lack of interest sweeps them away.
+ - When you dream, you are an author, but you do not know how it will end.
+ - Generations do not age. Every youth of any period, any civilization, has the same possibilities as always.
+ - The only reason why we are always thinking of our own ego is that we have to live with it more continuously than with anyone else’s.
+ - Because, to despise money, one must have plenty of it.
+ - Human imagination is immensely poorer than reality.
+ - But all years are stupid. It’s only when they’re over that they become interesting.
+ - Are you or aren’t you convinced that weakness is a man’s condition? How can you raise yourself if you haven’t fallen first?
+ - Death is repose, but the thought of death disturbs all repose.
+ - Literature is a defense against the attacks of life. It says to life: You can’t deceive me. I know your habits, foresee and enjoy watching all your reactions, and steal your secret by involving you in cunning obstructions that halt your normal flow.
+ - I was happy enough; I knew that during the night the whole city might go up in flames and all its people be killed, but the ravines, houses, and footpaths would wake in the morning calm and unchanged.
+ - Life is not a search for experience, but for ourselves. Having discovered our own fundamental level we realize that it conforms to our own destiny and we find peace.
+ - The search for a new personality is futile; what is fruitful is the interest the old personality can take in new activities.
+ - Waiting is still an occupation. It is having nothing to wait for that is terrible.
+ - It’s pointless to cry. One is born and dies alone...
+ - A work settles nothing, just as the labor of a whole generation settles nothing. Sons, and the morrow, always start afresh.
+ - Why so much innuendo, draped like ivy to hide a cesspool, when everyone knew the cesspool was there?
+ - When a woman marries she belongs to another man; and when she belongs to another man there is nothing more you can say to her.
+ - In general, the man who is readily disposed to sacrifice himself is one who does not know how else to give meaning to his life. The profession of enthusiasm is the most sickening of all insincerities.
+ - The great lovers will always be unhappy, because for them love is great and so they ask of their beloved the same intensity of thought that they have for her – otherwise they feel betrayed.
+ - Don’t you know that what happens to you once always happens again? You always react in the same way to the same thing. It’s no accident when you make a mess. Then you do it again. It’s called destiny.
+ - There is no finer revenge than that which others inflict on your enemy. Moreover, it has the advantage of leaving you the role of a generous man.
+ - The only joy in the world is to begin. It is good to be alive because living is beginning, always, every moment.
+ - I spent the whole evening sitting before a mirror to keep myself company.
+ - It is stupid to grieve for the loss of a girl friend: you might never have met her, so you can do without her.
+ - Reality is a prison, where one vegetates and always will...
+ - Nowadays, suicide is just a way of disappearing. It is carried out timidly, quietly, and falls flat. It is no longer an action, only a submission.
+ - Whatever people may say, the fastidious formal manner of the upper classes is preferable to the slovenly easygoing behaviour of the common middle class. In moments of crisis, the former know how to act, the latter become uncouth brutes.
+ - It is not that things happen to each of us according to his fate, but that he interprets what has happened, if he has power to do so, according to his sense of his own destiny .
+ - There is mercy for everyone, except those who are bored with life.
+ - One must look for one thing only, to find many.
+ - Love is desire for knowledge.
+ - Certainly, to have a woman who waits at home for you, who will sleep with you, gives a warm feeling like having something you must say; it makes you glow, keeps you company, helps you to live.
+ - Those philosophers who believe in the absolute logic of truth have never had to discuss it on close terms with a woman.
+ - People who don’t know any better will always be in the dark because the power lies in the hands of men who take good care that ordinary folk don’t understand, in the hands, that is, of the government, of the clerical party, of the capitalists.
+ - What is to come will emerge only after long suffering, long silence.
+ - A decision, an action, are infallible omens of what we shall do another time, not for any vague, mystic, astrological reason but because they result from an automatic reaction that will repeat itself.
+ - The man of action is not the headstrong fool who rushes into danger with no thought for himself, but the man who puts into practice the things he knows.
+ - The man who cannot live with charity, sharing other men’s pain, is punished by feeling his own with intolerable anguish.
+ - You need a village, if only for the pleasure of leaving it. A village means that you are not alone, knowing that in the people, the trees, the earth, there is something that belongs to you, waiting for you when you are not there.
+ - We obtain things when we no longer want them.
+ - There is only one pleasure-that of being alive. All the rest is misery.
+ - Living is like working out a long addition sum, and if you make a mistake in the first two totals you will never find the right answer. It means involving oneself in a complicated chain of circumstances.
+ - Anchorites used to ill-treat themselves in the way they did, so that the common people would not begrudge them the beatitude they would enjoy in heaven.
+ - No one ever lacks a good reason for suicide.
+
+137 quotes

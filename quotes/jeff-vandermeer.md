@@ -1,0 +1,55 @@
+ - When you think about the complexity of our natural world – plants using quantum mechanics for photosynthesis, for example – a smartphone begins to look like a pretty dumb object.
+ - Silence creates it’s own violence.
+ - Nothing that lived and breathed was truly objective – even in a vacuum, even if all that possessed the brain was a self-immolating desire for the truth.
+ - I have to have music as a soundtrack to writing fiction. I listen to it at other times, too, but it helps me write.
+ - Film fixes a precise visual image in the viewer’s head. In fiction, you just hope you’re precise enough to convey the intended effect.
+ - Some questions will ruin you if you are denied the answer long enough.
+ - That’s how the madness of the world tries to colonize you: from the outside in, forcing you to live in its reality.
+ - The world is a mysterious place and the very limitation of our senses in exploring it means we are sometimes aware of there being something beyond our ken.
+ - You can either waste time worrying about a death that might not come or concentrate on what’s left to you.
+ - You can be deeply non-serious and still focused, disciplined, and on task.
+ - The map had been the first form of misdirection, for what is a map but a way of emphasizing some things and making other things invisible?
+ - I do believe very much in the idea of unexpected or “convulsive” beauty – beauty in the service of liberty.
+ - Angela Carter, Leonora Carrington, even nonsurrealists like Kafka and Nabokov – writers like these, who create paths between the firmly grounded and flights of fantasy, are my personal North Star.
+ - All musical talent is absent in me, to the point of being unable to play board games that require you to hum a tune while others guess what it is, since all my humming sounds the same. Musical instruments have always seemed like alien artifacts to me, even as I really admire anyone who can play one.
+ - Trust your imagination. Don’t be afraid to fail. Write. Revise. Revise. Revise.
+ - I also am not particularly risk-averse – I don’t mind jumping off a cliff if I trust the people who’ve told me they’ll catch me at the bottom.
+ - I like to go through the zine sections of local bookstores when on the road and have found a lot of really great kind of underground stuff that way. It all feeds into everything else.
+ - Position yourself to succeed by doing the other things in your life that rejuvenate you. You can create little islands of time away from your novel that will help preserve your balance. Exhaustion will affect both your writing’s quality and your productivity.
+ - Across all of the universe of creative lying, whether you believe in the art of it or the entertainment of it, or both, a certain foundation in the basics allows you to kind of jump out into the unknown.
+ - The stories in Get In Trouble confirm once again that Kelly Link is a modern virtuoso of the form-playful and subversive required reading for anyone who loves short fiction.
+ - If the reader enters a kind of immersive experience reading a book, then I have to enter a kind of immersive state to do my best work.
+ - An inordinate love of ritual can be harmful to the soul, unless, of course, in times of great crisis, when ritual can protect the soul from fracture.
+ - I see music as an aid. It overcomes my internal editor, especially when the music evokes the character or the mood I’m trying to build.
+ - It is the nature of the writer to question the validity of his world and yet rely on his senses to describe it. From what other tension can great literature be born?
+ - Dreams, though, are just one kind of inspiration – no more or less special than something in a newspaper article or from the world around you sparking inspiration.
+ - You could know the what of something forever and never discover the why.
+ - The best visual book I can think of is Lynda Barry’s What It Is, but although I refer to it all the time it’s not a creative writing book per se.
+ - The music I listen to while writing is really scene-specific. It’s just a great motivator, a way to put myself in the mood.
+ - But what if you discover that the price of purpose is to render invisible so many other things?
+ - Literary influences are harder for me to point to, because mostly it’s a mulch of all of my past reading.
+ - My mother is an artist, and I have a strong visual sense. I almost always choose the cover art for my books.
+ - What occurs after revelation and paralysis?
+ - My mom is an artist and my own fiction is deeply visual.
+ - Imbuing fiction with a life that extends beyond the last word is in some ways the goal: the ending that goes beyond the ending in the reader’s mind, so invested are they in the story.
+ - I believe the best creative writing lessons live in the specifics.
+ - I always try to be alert to the potential for repetition, for a decaying orbit with regard to my use of technique, etc.
+ - Even a dream as inspiration doesn’t mean anything unless you then find that it’s sparked an actual story with a plot.
+ - My singing ability is zilch.
+ - Angela Carter’s fiction blew me away and really instilled a passion for writing, bolstered by Vladimir Nabokov. But in general, I can’t point to any one thing. I just always loved books and writing.
+ - I like delivering a message, but what I find interesting is providing those details in a different context. Then the readers can make up their minds what it means.
+ - When we wake, it is because something, some event, some pinprick even, disturbs the edges of what we’ve taken as reality.
+ - If I wasn’t a writer, I don’t know what I’d be. Probably a marine biologist or something.
+ - There’s also a lot of gritty Americana type of bands. I actually have a lot of Britpop on my iPod, too.
+ - I have always tended toward a lush prose style, but I take care to modulate it from story to story and to strip it down entirely when necessary.
+ - When they give you things, ask yourself why. When you’re grateful to them for giving you the things you should have anyway, ask yourself why.
+ - One of the most important things as a writing instructor is to provide a lot of different entry points to subjects. To not impose your own personal experience as the One True Way.
+ - I’ve always wrestled with the difference between plot and structure, and after re-reading a lot of writing books I realized I wasn’t alone.
+ - Who had the bigger burden? The one who had to watch the other person endure or the one who endured?
+ - Cross-pollination and “contamination” is really important to the health of fiction, and sometimes it’s a literal conversation, too, in that writers who might never otherwise meet and talk do so because of our anthologies.
+ - The one thing I always come back to as a writer, what I consider my bedrock, is a lot of charged images that appear in the text.
+ - If I could play an instrument, it would probably be a cello or an electric guitar.
+ - History has shown us all too often the consequences of dreaming poorly or not at all.
+ - I had learned so much about the world that I had decided to withdraw from it.
+
+53 quotes

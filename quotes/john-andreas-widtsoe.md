@@ -1,0 +1,25 @@
+ - Preparedness and punctuality are two of the most important qualities of a leader.
+ - Fraud and deceit are anxious for your money. Be informed and prudent.
+ - The Gadianton Robbers from the Book of Mormon are loose among us. The King-men, and women, are running our government. And, worst of all, we are blindly electing them, or appointing them so they can continue to destroy the things we cherish most.
+ - A thief, though rich, will continue to steal, but an honest man, though poor, will ever seek to pay his debts.
+ - The line of communication between God and man is always open unless broken by man himself. We are, as it were, always in the presence of our Father in Heaven. Through His Holy Spirit, God is with us always and everywhere.
+ - Finally it may be said that the temple endowment is not secret. All who meet the requirements for entrance to the temple may enjoy it.
+ - The only way to build a peaceful community is to build men and women who are lovers and makers of peace.
+ - Would it not be well this Christmas to give first to the Lord, directly through obedience, sacrifice, and love, and then to give to him indirectly through gifts to friends and those in need as well as to our own? Should we do this, perhaps many of us would discover a new Christmas joy.
+ - The doctrine of the Church cannot be fully understood unless it is tested by mind and feelings, by intellect and emotions, by every power of the investigator. Every Church member is expected to understand the doctrine of the Church intelligently. There is no place in the Church for blind adherence.
+ - When each man sets his own house in order, the whole world will be in order.
+ - True freedom, which is full joy, is the complete recognition of law and adaptation to it. Bondage comes from ignorance of law or opposition to it.
+ - The condition of the body limits, largely, the expression of the spirit.
+ - To Latter-day Saints there can be no objection to the careful and critical study of the scriptures, ancient or modern, provided only that it be an honest study – a search for truth.
+ - There never was a revelation without a question first.
+ - Were we more careful to obey the part of the word of wisdom that deals with the “do’s” it might be easier to obey the “don’ts”
+ - That which is true must always remain true, though the applications may change greatly from generation to generation. It is the absence of such fundamental certainties, no doubt, that leads men into continual search for a satisfying religion, or that drives them away from their old religion.
+ - The essential thought must ever be that a man does not, except in his spiritual infancy, accept a statement merely because the Church or someone in authority declares it correct, but because, under mature examination, it is found to be true and right and worthwhile.
+ - The Church ever operates in full light. There is no secrecy about its doctrine, aim, or work.
+ - There is a purpose in life – to raise men nearer to the likeness of God. Whoever seeks that ideal, daily, finds joy; and in no other way can true joy be found.
+ - Man must learn to know the universe precisely as it is, or he cannot successfully find his place in it. A man should therefore use his reasoning faculty in all matters involving truth, and especially as concerning his religion. He must learn to distinguish between truth and error.
+ - Deceit is the mark of evil. Even if the evil messenger does not appear in person, the test is the same.
+ - The better men know the Lord, the better may the eternal truths we learn be applied in our daily lives.
+ - Let every man sing his own song in life.
+
+23 quotes

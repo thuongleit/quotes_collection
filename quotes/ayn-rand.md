@@ -1,0 +1,502 @@
+ - The question isn’t who is going to let me; it’s who is going to stop me.
+ - Freedom: To ask nothing. To expect nothing. To depend on nothing.
+ - Learn to value yourself, which means: fight for your happiness.
+ - Do not let your fire go out, spark by irreplaceable spark in the hopeless swamps of the not-quite, the not-yet, and the not-at-all. Do not let the hero in your soul perish in lonely frustration for the life you deserved and have never been able to reach. The world you desire can be won. It exists. It is real. It is possible. It’s yours.
+ - A creative man is motivated by the desire to achieve, not by the desire to beat others.
+ - You can avoid reality, but you cannot avoid the consequences of avoiding reality.
+ - If it's worth doing, it's worth overdoing.
+ - The truth is not for all men but only for those who seek it.
+ - The man who does not value himself, cannot value anything or anyone.
+ - Integrity is the ability to stand by an idea.
+ - The smallest minority on earth is the individual. Those who deny individual rights cannot claim to be defenders of minorities.
+ - The hardest thing to explain is the glaringly evident which everybody has decided not to see.
+ - I swear, by my life and my love of it, that I will never live for the sake of another man, nor ask another man to live for mine.
+ - I could die for you. But I couldn't, and wouldn't, live for you.
+ - Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver.
+ - To say "I love you" one must know first how to say the "I".
+ - Never think of pain or danger or enemies a moment longer than is necessary to fight them.
+ - A government is the most dangerous threat to man's rights: it holds a legal monopoly on the use of physical force against legally disarmed victims.
+ - Who is John Galt?
+ - Power-lust is a weed that grows only in the vacant lots of an abandoned mind. 
+ - Let me give you a tip on a clue to men's characters: the man who damns money has obtained it dishonorably; the man who respects it has earned it.
+ - Throughout the centuries there were men who took first steps, down new roads, armed with nothing but their own vision.
+ - The world you desire can be won, it exists, it is real, it is possible, it is yours.
+ - A man’s ego is the fountainhead of human progress.
+ - Action without thought is mindlessness, and thought without action is hypocritical.
+ - My philosophy, in essence, is the concept of man as a heroic being, with his own happiness as the moral purpose of his life, with productive achievement as his noblest activity, and reason as his only absolute.
+ - Anyone who fights for the future, lives in it today.
+ - An individualist is a man who says: ‘I will not run anyone’s life – nor let anyone run mine. I will not rule or be ruled. I will not be a master nor a slave. I will not sacrifice myself to anyone – nor sacrifice anyone to myself.’
+ - Don’t think. Believe. Trust your heart, not your brain. Don’t think. Feel. Believe.
+ - Love is not self-sacrifice, but the most profound assertion of your own needs and values. It is for your own happiness that you need the person you love, and that is the greatest compliment, the greatest tribute you can pay to that person.
+ - Men who reject the responsibility of thought and reason can only exist as parasites on the thinking of others.
+ - But I don’t think of you. – Howard Roark.
+ - There’s nothing of any importance in life-except how well you do your work.
+ - I refuse to apologize for my ability – I refuse to apologize for my success – I refuse to apologize for my money. If this is evil, make the most of it.
+ - There are two sides to every issue: one side is right and the other is wrong, but the middle is always evil.
+ - A rational man is guided by his thinking – by a process of Reason – not by his feelings and desires.
+ - When I disagree with a rational man, I let reality be our final arbiter; if I am right, he will learn; if I am wrong, I will; one of us will win, but both will profit.
+ - Money demands that you sell, not your weakness to men’s stupidity, but your talent to their reason.
+ - My happiness is not the means to any end. It is the end. It is its own goal. It is its own purpose.
+ - Civilization is the process of setting man free from men.
+ - In the temple of his spirit, each man is alone.
+ - If you know that this life is all that you have, wouldn’t you make the most of it?
+ - It’s not that I don’t suffer, it’s that I know the unimportance of suffering. I know that pain is to be fought and thrown aside, not to be accepted as part of one’s soul and as a permanent scar across one’s view of existence.
+ - Rationality is the recognition of the fact that nothing can alter the truth and nothing can take precedence over that act of perceiving it.
+ - Run for your life from any man who tells you that money is evil. That sentence is the leper’s bell of an approaching looter.
+ - Honesty is the recognition of the fact that the unreal is unreal and can have no value, that neither love nor fame nor cash is a value if obtained by fraud.
+ - She did not know the nature of her loneliness. The only words that named it were: This is not the world I expected.
+ - You love people, not for what you do for them or what they do for you. You love them for their values; their virtues.
+ - Individual rights are not subject to a public vote; a majority has no right to vote away the rights of a minority.
+ - I am interested in politics only in order to secure and protect freedom.
+ - This god, this one word: I.
+ - Words are a lens to focus one’s mind.
+ - Life is the reward of virtue. And happiness is the goal and reward of life.
+ - I’m not brave enough to be a coward; I see the consequences too clearly.
+ - When you see corruption being rewarded and honesty becoming a self-sacrifice, you may know that your society is doomed.
+ - Rationalization is a process of not perceiving reality, but of attempting to make reality fit one’s emotions.
+ - Man’s basic vice, the source of all his evils, is the act of unfocusing his mind, the suspension of his consciousness, which is not blindness, but the refusal to see, not ignorance, but the refusal to know.
+ - Serenity comes from the ability to say “Yes” to existence. Courage comes from the ability to say “No” to the wrong choices made by others.
+ - In any compromise between food and poison, it is only death that can win. In any compromise between good and evil, it is only evil that can profit.
+ - Because I never have any definite destination. This ship is not for going to places, but for getting away from them. When I stop at a port, it’s only for the sheer pleasure of leaving it. I always think: here’s one more place that can’t hold me.
+ - An inventor is a man who asks ‘Why?’ of the universe and lets nothing stand between the answer and his mind.
+ - A quest for self-respect is proof of its lack.
+ - If you tell an ugly woman that she is beautiful, you offer her the great homage of corrupting the concept of beauty.
+ - The evasion of responsibility is the major cause of most peoples frustrations and defeats.
+ - A man who seeks escape from the responsibility of supporting his life by his own thought and effort, and wishes to survive by conquering, ruling and exploiting others, is NOT an Individualist.
+ - The creed of sacrifice is a morality for the immoral.
+ - If you don’t know, the thing to do is not to get scared, but to learn.
+ - Guilt is altruism’s stock in trade, and the inducing of guilt is its only means of self-perpetuati on.
+ - The moral is the chosen, not the forced; the understood, not the obeyed. The moral is the rational, and reason accepts no commandments.
+ - Honest people are never touchy about the matter of being trusted.
+ - Capitalism and altruism are incompatible; they are philosophical opposites; they cannot co-exist in the same man or in the same society.
+ - I owe nothing to my brothers, nor do I gather debts from them. I ask none to live for me, nor do I live for any others. I covet no man’s soul, nor is my soul theirs to covet.
+ - Love is our response to our highest values.
+ - I started my life with a single absolute: that the world was mine to shape in the image of my highest values and never to be given up to a lesser standard, no matter how long or hard the struggle.
+ - The uncontested absurdities of today are the accepted slogans of tomorrow.
+ - I take no pride in hopeless longing; I wouldn’t hold a stillborn aspiration. I’d want to have it, to make it, to live it.
+ - Men prosper or fail, survive or perish in proportion to the degree of their rationality.
+ - The conservatives want to rule man’s consciousness; the liberals, his body.
+ - What greater wealth is there than to own your life and to spend it on growing? Every living thing must grow. It can’t stand still. It must grow or perish.
+ - The spread of evil is the symptom of a vacuum. Whenever evil wins, it is only by default: by the moral failure of those who evade the fact that there can be no compromise on basic principles.
+ - To fear to face an issue is to believe that the worst is true.
+ - Capitalism was the only system in history where wealth was not acquired by looting, but by production, not by force, but by trade, the only system that stood for man’s right to his own mind, to his work, to his life, to his happiness, to himself.
+ - People are not embracing collectivism because they have accepted bad economics. They are accepting bad economics because they have embraced collectivism.
+ - A building has integrity, just as a man and just as seldom! It must be true to its own idea, have its own form, and serve its own purpose!
+ - A genius is a genius, regardless of the number of morons who belong to the same race – and a moron is a moron, regardless of the number of geniuses who share his racial origin.
+ - Through all the darkness, through all the shame of which men are capable, the spirit of man will remain alive on this earth. It may sleep, but it will awaken. It may wear chains, but it will break through.
+ - From the smallest necessity to the highest religious abstraction, from the wheel to the skyscraper, everything we are and everything we have comes from one attribute of man – the function of his reasoning mind.
+ - All the evils, abuses, and iniquities, popularly ascribed to businessmen and to capitalism, were not caused by an unregulated economy or by a free market, but by government intervention into the economy.
+ - You have no choice about your capacity to feel that something is good for you or evil, but what you will consider good or evil, what will give you joy or pain, what you will love or hate, desire or fear, depends on your standard of value.
+ - A man’s rights are not violated by a private individual’s refusal to deal with him.
+ - There can be no justification for choosing any part of that which one knows to be evil.
+ - There is no such dichotomy as ‘human rights’ versus ‘property rights.’ No human rights can exist without property rights.
+ - The first society in history whose leaders were neither Attilas nor Witch Doctors, a society led, dominated and created by the Producers, was the United States of America.
+ - One can’t love man without hating most of the creatures who pretend to bear his name.
+ - Whatever their future, at the dawn of their lives, men seek a noble vision of man’s nature and of life’s potential.
+ - The only thing that matters my goal my reward my beginning my end is the work itself. My work done my way. A private personal selfish egotistical motivation. That’s the only way I function. That’s all I am.
+ - He never felt lonliness except when he was happy.
+ - The moral absolute should be: if and when, in any dispute, one side initiates the use of physical force, that side is wrong – and no consideration or discussion of the issues is necessary or appropriate.
+ - The men who are not interested in philosophy need it most urgently; they are most helplessly in its power.
+ - This was the great clarity of being beyond emotion, after the reward of having felt everything one could feel.
+ - I think. I am. I will.
+ - A man doesn’t borrow pieces of his body. A building doesn’t borrow hunks of its soul. Its maker gives it the soul and every wall, window and stairway to express it.
+ - The ladder of success is best climbed by stepping on the rungs of opportunity.
+ - I am a man who does not exist for others.
+ - What is greatness? I will answer: it is the capacity to live by the three fundamental values of John Galt: reason, purpose, self-esteem.
+ - Don’t ever give up what you want in life. The struggle is worth it.
+ - Reason is not automatic. Those who deny it cannot be conquered by it. Do not count on them. Leave them alone.
+ - I never found beauty in longing for the impossible and never found the possible to be beyond my reach.
+ - Contradictions do not exist. Whenever you think you are facing a contradiction, check your premises. You will find that one of them is wrong.
+ - Wealth is the product of man’s capacity to think.
+ - Ask yourself whether the dream of heaven and greatness should be waiting for us in our graves – or whether it should be ours here and now and on this earth.
+ - Achievement of your happiness is the only moral purpose of your life, and that happiness, not pain or mindless self-indulgence, is the proof of your moral integrity, since it is the proof and the result of your loyalty to the achievement of your values.
+ - It was the joy of admiration and of one’s own ability, growing together.
+ - No one’s happiness but my own is in my power to achieve or to destroy.
+ - In that world, you’ll be able to rise in the morning with the spirit you had known in your childhood: that spirit of eagerness, adventure and certainty which comes from dealing with a rational universe.
+ - I don’t build in order to have clients. I have clients in order to build.
+ - Each man must live as an end in himself and follow his own rational self-interest.
+ - Pity for the guilty is treason to the innocent.
+ - The difference between animals and humans is that animals change themselves for the environment, but humans change the environment for themselves.
+ - Capitalism is the only system that can make freedom, individuality, and the pursuit of values possible in practice.
+ - There is no difference between communism and socialism, except in the means of achieving the same ultimate end: communism proposes to enslave men by force, socialism – by vote. It is merely the difference between murder and suicide.
+ - Everyone has the right to make his own decisions, but none has the right to force his decision on others.
+ - Ideas cannot be fought except by means of better ideas. The battle consists, not of opposing, but of exposing; not of denouncing, but of disproving; not of evading, but of boldly proclaiming a full, consistent, and radical alternative.
+ - Happiness is that state of consciousness which proceeds from the achievement of one’s values.
+ - Collectivism, as an intellectual power and a moral ideal, is dead. But freedom and individualism, and their political expression, capitalism, have not yet been discovered.
+ - I shall choose friends among men, but neither slaves nor masters. And I shall choose only such as please me, and them I shall love and respect, but neither command nor obey. And we shall join our hands when we wish, or walk alone when we so desire.
+ - The code of competence is the only system of morality that’s on a gold standard.
+ - So you think that money is the root of all evil. Have you ever asked what is the root of all money?
+ - The more you learn, the more you know that you know nothing.
+ - The end does not justify the means. No one’s rights can be secured by the violation of the rights of others.
+ - An irresponsible person is a person who makes vague promises, then breaks his word, blames it on circumstances and expects other people to forgive it.
+ - Whatever road I take, the guiding star is within me; the guiding star and the loadstone which point the way. They point in but one direction. They point to me.
+ - You love only those who deserve it.
+ - I worship individuals for their highest possibilities as individuals and I loathe humanity for its failure to live up to these possibilities.
+ - Every loneliness is a pinnacle.
+ - In a capitalist society, all human relationships are voluntary. Men are free to cooperate or not, to deal with one another or not, as their own individual judgments, convictions and interests dictate.
+ - Achieving life is not the equivalent of avoiding death.
+ - There can be no compromise on moral principles.
+ - John Galt is Prometheus who changed his mind. After centuries of being torn by vultures in payment for having brought to men the fire of the gods, he broke his chains – and he withdrew his fire – until the day when men withdraw their vultures.
+ - Every man builds his world in his own image. He has the power to choose, but no power to escape the necessity of choice.
+ - Selfishness does not mean only to do things for one’s self. One may do things, affecting others, for his own pleasure and benefit. This is not immoral, but the highest of morality.
+ - The Argument from Intimidation is a confession of intellectual impotence.
+ - Honor is self-esteem made visible in action.
+ - Never ask people. Not about your work. Don’t you know what you want? How can you stand it, not to know?
+ - To sell your soul is the easiest thing in the world. That’s what everybody does every hour of his life. If I asked you to keep your soul – would you understand why that’s much harder?
+ - And man will go on. Man, not men.
+ - I have no faith at all. I only hold convictions.
+ - Live a life as a monument to your soul.
+ - Ethics is a code of values which guide our choices and actions and determine the purpose and course of our lives.
+ - Productive work is the central purpose of a rational man’s life, the central value that integrates and determines the hierarchy of all his other values. Reason is the source, the precondition of his productive work, pride is the result.
+ - We are born into this world unarmed – our mind is our only weapon.
+ - There is no such thing as a lousy job – only lousy men who don’t care to do it.
+ - All life is a purposeful struggle, and your only choice is the choice of a goal.
+ - Evil requires the sanction of the victim.
+ - Capitalism has been called a system of greed – yet it is the system that raised the standard of living of its poorest citizens to heights no collectivist system has ever begun to equal, and no tribal gang can conceive of.
+ - Do not let your fire go out.
+ - It is not death that we wish to avoid, but life that we wish to live.
+ - What is morality, she asked. Judgement to distinguish right and wrong, vision to see the truth, and courage to act upon it, dedication to that which is good, integrity to stand by the good at any price.
+ - I am not the means to any end others may wish to accomplish. I am not a tool for their use. I am not a servant of their needs. I am not a bandage for their wounds, I am not a sacrifice on their altars.
+ - Show me your achievement, and the knowledge will give me courage for mine.
+ - It’s the hardest thing in the world – to do what we want. And it takes the greatest kinds of courage.
+ - People create their own questions because they are afraid to look straight. All you have to do is look straight and see the road, and when you see it, don’t sit looking at it – walk.
+ - Emotions are inherent in your nature, but their content is dictated by your mind. Your emotional capacity is an empty motor, and your values are the fuel with which your mind fills it.
+ - The worst guilt is to accept an unearned guilt.
+ - When you are asked to love everybody indiscriminately, that is to love people without any standard, to love them regardless of whether they have any value or virtue, you are asked to love nobody.
+ - Art is a selective re-creation of reality according to an artists metaphysical value judgments.
+ - Existence is Identity, Consciousness is Identification.
+ - A desire presupposes the possibility of action to achieve it; action presupposes a goal which is worth achieving.
+ - There is only one source of authentic self-confidence: reason.
+ - America’s founding Ideal was the principle of individual rights. Nothing more – and nothing less.
+ - Every aspect of Western culture needs a new code of ethics – a rational ethics – as a precondition of rebirth.
+ - Did I feel a physical desire for him? I did. Was I moved by a passion of my body? I was. Have I experienced the most violent form of sensual pleasure? I have.
+ - Capitalism has been called nationalistic – yet it is the only system that banished ethnicity, and made it possible, in the United States, for men of various, formerly antagonistic nationalities to live together in peace.
+ - Political freedom cannot exist without economic freedom; a free mind and a free market are corollaries.
+ - An emotion is an automatic response, an automatic effect of man’s value premises. An effect, not a cause. There is no necessary clash, no dichotomy between man’s reason and his emotions.
+ - Force and mind are opposites; morality ends where a gun begins.
+ - For they have nothing to fight me with, save the brute force of their numbers. I have my mind.
+ - You will follow me, if we are what we are, you and I, if we live, if the world exists, if you know the meaning of this moment and can’t let it slip by, as others let it slip, into the senselessness of the unwilled and unreached.
+ - Faith is the wors curse of mankind, as the exact antithesis and enemy of thought.
+ - Love is our response to our highest values. Love is self-enjoyment. The noblest love is born out of admiration of another’s values.
+ - Live and act within the limit of your knowledge and keep expanding it to the limit of your life.
+ - The virtue involved in helping those one loves is not ‘selflessness’ or ‘sacrifice,’ but integrity.
+ - To hold an unchanging youth is to reach at the end, the vision with which one started.
+ - Do not let the hero in your soul perish in lonely frustration for the life you deserved and have never been able to reach.
+ - A rational man never distorts or corrupts his own standards and judgment in order to appeal to the irrationality, stupidity, or dishonesty of others.
+ - In all proper relationships there is no sacrifice of anyone to anyone.
+ - There are no evil thoughts except one; the refusal to think.
+ - The freedom of speech of private individuals includes the right to not agree, not to listen, and not to finance one’s own antagonists.
+ - Sacrifice does not mean the rejection of the worthless, but of the precious.
+ - Competition is a by-product of productive work, not its goal.
+ - Compromise does not satisfy, but dissatisfies everybody; it does not lead to any general fulfillment, but to general frustration; those who try to become everything to all people end up by not being anything to anyone.
+ - Civilization is the progress toward a society of privacy. The savage’s whole existence is public, ruled by the laws of his tribe. Civilization is the process of setting man free from men.
+ - Get the hell out of my way!
+ - To demand ‘sense’ is the hallmark of nonsense. Nature does not make sense. Nothing makes sense.
+ - The political function of ‘the right of free speech’ is to protect dissenters and unpopular minorities from forcible suppression – not to guarantee them the support, advantages, and rewards of a popularity they have not gained.
+ - When men abandon reason, physical force becomes their only means of dealing with one another and of settling disagreements.
+ - But there are people who’ll try to hurt you through the good they see in you – knowing that it’s the good, needing it and punishing you for it. Don’t let it break you when you discover that.
+ - Productiveness is your acceptance of morality, your recognition of the fact that you choose to live.
+ - Statism needs war; a free country does not. Statism survives by looting; a free country survives by producing.
+ - You must be the kind of man who can get things done. But to get things done, you must love the doing, not the secondary consequences.
+ - Racism is the lowest, most crudely primitive form of collectivism.
+ - I can accept anything, except what seems to be the easiest for most people: the half-way, the almost, the just-about, the in-between.
+ - There are no contradictions. If you find one, check your premises.
+ - Why do they always teach us that it’s easy and evil to do what we want and that we need discipline to restrain ourselves? It’s the hardest thing in the world – to do what we want. And it takes the greatest kind of courage. I mean, what we really want.
+ - Collectivism answers: The power of society is unlimited. Society may make any laws it wishes, and force them upon anyone in any manner it wishes.
+ - A man of independent judgment is a man of profound self-esteem.
+ - I came here to say that I do not recognize anyone’s right to one minute of my life.
+ - But what is freedom? Freedom from what? There is nothing to take a man’s freedom away from him, save other men. To be free, a man must be free of his brothers. That is freedom. That and nothing else.
+ - Devotion to the truth is the hallmark of morality; there is no greater, nobler, more heroic form of devotion than the act of a man who assumes the responsibility of thinking.
+ - Any work is creative work if done by a thinking mind.
+ - The purpose of morality is to teach you, not to suffer and die, but to enjoy yourself and live.
+ - In order to fight any issue, it is necessary to fight for something, not merely against something.
+ - Do not keep silent when your own ideas and values are being attacked. If a dictatorship ever comes to this country, it will be by the fault of those who keep silent. We are still free enough to speak. Do we have time? No one can tell.
+ - There can be no compromise on basic principles. There can be no compromise on moral issues. There can be no compromise on matters of knowledge, of truth, of rational conviction.
+ - I’m working to improve my methods, and every hour I save is an hour added to my life.
+ - I am interested in politics so that one day I will not have to be interested in politics.
+ - To deal with men by force is as impractical as to deal with nature by persuasion.
+ - Face a challenge and find joy in the capacity to meet it.
+ - America’s abundance was not created by public sacrifices to the common good, but by the productive genius of free men who pursued their own personal interests and the making of their own private fortunes.
+ - A ‘whim’ is a desire experienced by a person who does not know and does not care to discover its cause.
+ - The skyline of New York is a monument of a splendour that no pyramids or palaces will ever equal or approach.
+ - The creator’s concern is the conquest of nature. The parasite’s concern is the conquest of men.
+ - Love, friendship, respect, admiration are the emotional response of one man to the virtues of another, the spiritual payment given in exchange for the personal, selfish pleasure which one man derives from the virtues of another man’s character.
+ - If any part of your uncertainty, is a conflict between your heart and your mind – follow your mind.
+ - The difference between a welfare state and a totalitarian state is a matter of time.
+ - Only a man of integrity can possess the virtue of honesty, since only the faking of one’s consciousness can permit the faking of existence.
+ - Only the man who extols the purity of love devoid of desire, is capable of the depravity of a desire devoid of love.
+ - The man who speaks to you of sacrifice, speaks of slaves and masters. And intends to be the master.
+ - We are all brothers under the skin – and I, for one, would be willing to skin humanity to prove it.
+ - Self respect is something that can’t be killed. The worst thing is to kill a man’s pretense at it.
+ - It’s good to suffer. Dont complain. Bear, bow, accept – and be grateful that God has made you suffer. For this makes you better than the people who are laughing and happy.
+ - The world is perishing from an orgy of self-sacrificing.
+ - The great creators-the thinkers, the artists, the scientists, the inventors-stood alone against the men of their time.
+ - An honest man is one who knows that he can’t consume more than he has produced.
+ - Who was it that said he needed a fulcrum? Give me an unobstructed right-of-way and I’ll show them how to move the earth!
+ - Ask anything of men. Ask them to achieve wealth, fame, love, brutality, murder, self-sacrifice. But don’t ask them to achieve self-respect. They will hate your soul.
+ - It’s not a question of who will allow me to do it, it’s a question of who will stop me.
+ - A leash is a rope with a noose at both ends.
+ - A ‘mixed economy’ is a society in the process of committing suicide.
+ - Have you noticed that the imbecile always smiles? Man’s first frown is the first touch of God on his forehead. The touch of thought.
+ - The quickest way to kill the human spirit is to ask someone to do mediocre work.
+ - The man who attempts to live for others is a dependent. He is a parasite in motive and makes parasites of those he serves.
+ - It was the greatest sensation of existence: not to trust but to know.
+ - I would step in the way of a bullet if it were aimed at my husband. It is not self-sacrifice to die protecting that which you value: If the value is great enough, you do not care to exist without it.
+ - Nobody stays here by faking reality in any manner whatever.
+ - The fortune my spirit is not to be blown into coins of brass and flung to the winds as alms for the poor of the spirit. I guard my treasures: my thought, my will, my freedom. And the greatest of these is freedom.
+ - You have been the one encounter in my life that can never be repeated.
+ - All work is an act of philosophy.
+ - You don’t have to see through the eyes of others, hold onto yours, stand on your own judgment, you know that what is, is–say it aloud, like the holiest of prayers, and don’t let anyone tell you otherwise.
+ - Because the beauty of the human body is that it hasn’t a single muscle which doesn’t serve its purpose; that there’s not a line wasted; that every detail of it fits one idea, the idea of a man and the life of a man.
+ - Sacrifice is the surrender of that which you value in favor of which you dont.
+ - If a man wants love he should correct his weaknesses, or his flaws, and he may deserve it. But he cannot expect the unearned, either in love or in money; either in matter or in spirit.
+ - The fight we are in here, make no mistake about it, is a fight of individualism versus collectivism.
+ - I would give the greatest sunset in the world for one sight of New York’s skyline.
+ - Those who grant sympathy to guilt, grant none to innocence.
+ - Do not ever say that the desire to ‘do good’ by force is a good motive. Neither power-lust nor stupidity are good motives.
+ - Every honest man lives for himself. Every man worth calling a man lives for himself. The one who doesn’t – doesn’t live at all.
+ - Capitalism is a social system based on the recognition of individual rights, including property rights, in which all property is privately owned.
+ - The essential characteristic of socialism is the denial of individual property rights...
+ - Genius is an exaggeration of dimension. So is elephantiasis. Both may be only a disease.
+ - Faith is the commitment of one’s consciousness to beliefs for which one has no sensory evidence or rational proof. A mystic is a man who treats his feelings as tools of cognition. Faith is the equation of feeling with knowledge.
+ - Have you ever felt the longing for someone you could admire? For something, not to look down at, but up to?
+ - I don’t wish to be the symbol of anything. I’m only myself.
+ - What I am fighting is the idea that charity is a moral duty and a primary virtue.
+ - Self-sacrifice? But it is precisely the self that cannot and must not be sacrificed.
+ - It’s a rare gift, you know, to feel reverence for your own life and to want the best, the greatest, the highest possible, here, now, for your very own.
+ - What objectivity and the study of philosophy requires is not an ‘open mind,’ but an active mind – a mind able and eagerly willing to examine ideas, but to examine them criticially.
+ - The verdict you pronounce upon the source of your livelihood is the verdict you pronounce upon your life.
+ - A building has integrity just like a man. And just as seldom.
+ - But why should you care what people will say? All you have to do is please yourself.
+ - The problem is not those who dream, but those who can only dream.
+ - When you have civilized men fighting savages, you support the civilized men, no matter who they are.
+ - Pride is the recognition of the fact that you are your own highest value and, like all of man’s values, it has to be earned.
+ - Love is the expression of one’s values, the greatest reward you can earn for the moral qualities you have achieved in your character and person, the emotional price paid by one man for the joy he receives from the virtues of another.
+ - Aristotle may be regarded as the cultural barometer of Western history. Whenever his influence dominated the scene, it paved the way for one of history’s brilliant eras; whenever it fell, so did mankind.
+ - Life is a value to be bought and thinking is the only coin noble enough to buy it.
+ - I think it’s a sin to sit down and let your life go without making a try for it.
+ - Joy is the goal of existence, and joy is not to be stumbled upon, but to be achieved, and the act of treason is to let its vision drown in the swamp of the moment’s torture.
+ - I am not primarily an advocate of capitalism, but of egoism; I am not primarily an advocate of egoism, but of reason. If one recognizes the supremacy of reason and applies it consistently, all the rest follows.
+ - It is my eyes which see, and the sight of my eyes grants beauty to the earth.
+ - If you agree with some tenets of Objectivism, but disagree with others, do not call yourself an Objectivist; give proper authorship credit for the parts you agree with.
+ - He walked, groping for a sentence that hung in his mind as an empty shape. He could neither fill it or dismiss it.
+ - Kira, the highest thing in man is not his god. It’s that in him which knows the reverence due a god. And you, Kira, are my highest reverence...
+ - I need no warrant for being, and no word of sanction upon my being. I am the warrant and the sanction.
+ - It is a sin to write this.
+ - There are only two means by which men can deal with one another: guns or logic. Force or persuasion. Those who know that they cannot win by means of logic, have always resorted to guns.
+ - We are now moving towards complete collectivism or socialism, a system under which everybody is enslaved to everybody.
+ - Independence is the only gauge of human virtue and value. What a man is and makes of himself; not what he has or hasn’t done for others. There is no substitute for personal dignity.
+ - Believing in fate produces fate. Believing in freedom will create infinite possibilities.
+ - The government was set to protect man from criminals, and the Constitution was written to protect man from the government.
+ - The man who lets a leader prescribe his course is a wreck being towed to the scrap heap.
+ - Don’t ever get angry at a man for stating the truth.
+ - Thousands of years ago the first man discovered how to make fire. He was probably burnt at the stake he’d taught his brothers to light, but he left them a gift they had not conceived and he lifted darkness from the face of the Earth.
+ - He liked to observe emotions; they were like red lanterns strung along the dark unknown of another’s personality, marking vulnerable points.
+ - Man’s unique reward, however, is that while animals survive by adjusting themselves to their background, man survives by adjusting his background to himself.
+ - Even if smog were a risk to human life, we must remember that life in nature, without technology, is wholesale death.
+ - Romantic art is the fuel and the spark plug of a Man’s soul. It’s task is to set a soul on fire and never let it go out.
+ - Integrity is the recognition of the fact that you cannot fake your consciousness, just as honesty is the recognition of the fact that you cannot fake existence.
+ - A mystic is a man who treats his feelings as tools of cognition.
+ - Ever since Kant divorced reason from reality, his intellectual descendants have been diligently widening the breach.
+ - I say that man is entitled to his own happiness and that he must achieve it himself. But that he cannot demand that others give up their lives to make him happy.
+ - Individualism regards man-every man-as an independent, sovereign entity who possesses an inalienable right to his own life, a right derived from his nature as a rational being.
+ - Why no. I’m too conceited. If you want to call it that. I don’t make comparisons. I never think of myself in relation to anyone else. I just refuse to measure myself as part of anything. I’m an utter egotist.
+ - We the Living is not a novel ‘about Soviet Russia.’ It is a novel about Man against the State. Its basic theme is the sanctity of human life – using the word ‘sanctity’ not in a mystical sense, but in the sense of ‘supreme value.’
+ - If a businessman makes a mistake, he suffers the consequences. If a bureaucrat makes a mistake, you suffer the consequences.
+ - Do not let the hero in your soul perish...
+ - Man’s mind is his basic tool of survival.
+ - It is one’s own personal, selfish happiness that one seeks, earns, and derives from love.
+ - Psychologically, the choice “to think or not” is the choice “to focus or not.” Existentially, the choice “to focus or not” is the choice “to be conscious or not.” Metaphysically, the choice “to be conscious or not” is the choice of life or death.
+ - There are two side to every issue.
+ - To achieve, you need thought. You have to know what you are doing and that’s real power.
+ - Racism is a doctrine of, by and for brutes.
+ - I dont work with collectives. I don’t consult, i don’t co-operate, I don’t collaborate.
+ - Without property rights, no other rights are possible.
+ - That time and those people are upon you!
+ - In a free society, one does not have to deal with those who are irrational. One is free to avoid them.
+ - An attempt to achieve the good by force is like an attempt to provide a man with a picture gallery at the price of cutting out his eyes.
+ - Let no man posture as an advocate of peace if he proposes or supports any social system that initiates the use of force against individual men, in any form.
+ - One must never fail to pronounce moral judgment.
+ - Morally, the promise of an impossible “right” to economic security is an infamous attempt to abrogate the concept of rights. It can and does mean only one thing: a promise to enslave the men who produce, for the benefit of those who don’t.
+ - Great men can’t be ruled.
+ - The truly and deliberately evil men are a very small minority; it is the appeaser who unleashes them on mankind.
+ - Mysticism requires the notion of the unknowable, which is revealed to some and withheld from others; this divides men into those who feel guilt and those who cash in on it.
+ - It is a free market that makes monopolies impossible.
+ - She started off, walking fast, as if the speed of her steps could give form to the things she felt.
+ - If some men are entitled by right to the products of the work of others, it means that those others are deprived of rights and condemned to slave labor.
+ - Tell me what a person finds sexually attractive and I will tell you their entire philosophy of life. Show me the person they sleep with and I will tell you their valuation of themselves.
+ - Morality is a code of black and white. When and if men attempt a compromise, it is obvious which side will necessarily lose and which will necessarily profit.
+ - Contrary to the ecologists, nature does not stand still and does not maintain the kind of equilibrium that guarantees the survival of any particular species – least of all the survival of her greatest and most fragile product: man.
+ - Learn to distinguish the difference between errors of knowledge and breaches of morality.
+ - To be the kind of writer you want to be, you must first be the kind of thinker you want to be.
+ - One of the most destructive anti-concepts in the history of moral philosophy is the term ’duty.
+ - A reader has to be concerned only with the end result; unless he chooses to analyze it, he does not have to know by what means that result was achieved-but it is my job to know.
+ - The charming aspect of Christmas is the fact that it expresses good will in a cheerful, happy, benevolent, non-sacrificial way.
+ - A good novel is an indivisible sum; every scene, sequence and passage of a good novel has to involve, contribute to and advance all three of its major attributes: theme, plot, characterization.
+ - I don’t want to see you. I don’t like you. I don’t like your face. You look like an insufferable egotist. You’re impertinent. You’re too sure of yourself. Twenty years ago I would have punched your face with the greatest of pleasure.
+ - Every major horror of history was committed in the name of an altruistic motive. Has any act of selfishness ever equalled the carnage perpetrated by disciples of altruism.
+ - The moral cannibalism of all hedonist and altruist doctrines lies in the premise that the happiness of one man necessitates the injury of another.
+ - I love you, Dominique. As selfishly as the fact that I exist. As selfishly as my lungs breathe air. I breathe for my own necessity, for the fuel of my body, for my survival. I’ve given you, not my sacrifice or my pity, but my ego and my naked need. This is the only way I can want you to love me.
+ - Thinking men cannot be ruled; ambitious men do not stagnate.
+ - Contrary to the vulgar belief that men are motivated primarily by materialistic considerations, we now see the capitalist system being discredited and destroyed all over the world, even though this system has given men the greatest material comforts.
+ - I can’t compete and when I do, the rules of engagement change in the middle of the game. I’ll let the powers that be vanquish themselves and return in three to five years to sift through the remains.
+ - The sky is like a black sieve pierced by silver drops that tremble, ready to burst through.
+ - Don’t bother to examine a folly-ask yourself only what it accomplishes.
+ - Patience is always rewarded and romance is always round the corner!
+ - It is not advisable to venture unsolicited opinions. You should spare yourself the embarrassing discovery of their exact value to your listener.
+ - Don’t worry. They’re all against me. But I have one advantage: they don’t know what they want. I do.
+ - Place nothing above the verdict of your own mind.
+ - The word which can never die on this earth, for it is the heart of it and the meaning and the glory. The sacred word: EGO.
+ - She knew that even pain can be confessed, but to confess happiness is to stand naked, delivered to the witness...
+ - If parasitism, favoritism, corruption, and greed for the unearned did not exist, a mixed economy would bring them into existence.
+ - There is fear hanging in the air of the sleeping halls, and the air of the streets. Fear walks through the city, fear without name, without shape. All men feel it and none dare speak.
+ - Their eyes were dark and hard and glowing, with no fear in them, no kindness and no guilt.
+ - I used to call people, then I got into e-mailing, then texting, and now I just ignore everyone.
+ - Kant is the most evil man in mankind’s history.
+ - There is no such thing as duty. If you know that a thing is right, you want to do it. If you don’t want to do it – it isn’t right. If it’s right and you don’t want to do it – you don’t know what right is and you’re not a man.
+ - To love is to value. Only a rationally selfish man, a man of self esteem, is capable of love – because he is the only man capable of holding firm, consistent, uncompromising, unbetrayed value. The man who does not value himself, cannot value anything or anyone.
+ - Do you know the hallmark of the second-rater? It’s resentment of another man’s achievement.
+ - One loses everything when one loses one’s sense of humor.
+ - If one’s actions are honest, one does not need the predated confidence of others.
+ - A spirit, too, needs fuel. It can run dry.
+ - Talent alone is helpless today. Any success requires both talent and luck. And the ‘luck’ has to be helped along and provided by someone.
+ - When a man feels fear without reason, you call him to the attention of a psychiatrist; you are not so careful to protect the meaning, the nature and the dignity of love.
+ - There are no white lies, there is only the blackest of destruction, and a white lie is the blackest of all.
+ - A culture is made – or destroyed – by its articulate voices.
+ - It’s such a waste to be subtle and vicious with people who don’t even know that you’re being subtle and vicious.
+ - When I die I hope to go to heaven – whatever that is – and I want to be able to afford the price of admission.
+ - Capitalism is not the system of the past; it is the system of the future – if mankind is to have a future.
+ - Money is the barometer of a society’s virtue.
+ - Independence is the recognition of the fact that yours is the responsibility of judgement and nothing can help you escape it – that no substitute can do your thinking, as no pinch-hitter can live your life.
+ - In this world, either you’re virtuous or you enjoy yourself. Not both, lady, not both.
+ - I regret nothing. There have been things I missed, but I ask no questions, because I have loved it, such as it has been, even the moments of emptiness, even the unanswered-and that I loved it, that is the unanswered in my life.
+ - Freedom of association includes the freedom not to associate.
+ - This miracle of me is mine to own and keep, and mine to guard, and mine to use, and mine to kneel before.
+ - Im waiting, for what, my kind of people, what kind is that, i can tell my kind of people by their faces, by something in their faces.
+ - Freedom comes from seeing the ignorance of your critics and discovering the emptiness of their virtue.
+ - The greatest threat to mankind and civilization is the spread of the totalitarian philosophy. Its best ally is not the devotion of its followers but the confusion of its enemies. To fight it, we must understand it.
+ - Until and unless you discover that money is the root of all good, you ask for your own destruction. When money ceases to become the means by which men deal with one another, then men become the tools of other men. Blood, whips and guns – or dollars. Take your choice – there is no other.
+ - Any alleged ‘right’ of one man, which necessitates the violation of the rights of another, is not and cannot be a right.
+ - If one doesn’t respect oneself one can have neither love nor respect for others.
+ - Another current catch-phrase is the complaint that the nations of the world are divided into ‘haves’ and the ‘have-nots.’ Observe that the ‘haves’ are those who have freedom, and that it is freedom that the ‘have-nots’ have not.
+ - Collectivism requires self-sacrifice, the subordination of one’s interests to those of others.
+ - Guilt is a rope that wears thin.
+ - The purpose of the law is not to prevent a future offense, but to punish the one actually committed.
+ - We’ll meet again. We’ll meet when years have passed, and years make such a difference, don’t they?
+ - As we gain knowledge, we do not become more certain, we become certain of more.
+ - To preserve one’s mind intact through a modern college education is a test of courage and endurance, but the battle is worth it and the stakes are the highest possible to man: the survival of reason.
+ - She was incapable of love for any object not of her own choice and she resented anyone’s demand for it.
+ - Money will not purchase happiness for the man who has no concept of what he wants.
+ - Unjust laws have to be fought ideologically; they cannot be fought or corrected by means of mere disobedience and futile martyrdom.
+ - What is man? He’s just a collection of chemicals with delusions of grandeur.
+ - Do not open your mouth to tell me that your mind has convinced you of your right to force my mind. Force and mind are opposites. Morality ends where a gun begins.
+ - There are no little people in America. There are only people, equal before the law, yearning to breathe free and wanting to achieve the best within them.
+ - But Aristotle’s philosophy was the intellect’s Declaration of Independence.
+ - Some day, the world will discover that, without thought, there can be no love.
+ - That’s a cute sentence: the years to come. Why are you so sure they’re coming?
+ - Doctors are not servants of their patients, they are traders like everyone else in a free society and they should bear that title proudly considering the crucial importance of the services they offer.
+ - Men have been taught that it is a virtue to stand together. But the creator is the man who stands alone.
+ - The best, most natural dialogue is usually written as if the writer is listening to dictation. You might get stuck on any particular point and have to question yourself; but normally, dialogue writes itself.
+ - The more neurotic and evasive a person is, the shorter the range of his interests.
+ - There’s only one passion in most artists more violent than their desire for admiration: their fear of identifying the nature of such admiration as they do receive.
+ - Those touchy mediocrities who sit trembling lest someone’s work prove greater than their own – they have no inkling of the loneliness that comes when you reach the top. The loneliness for an equal – for a mind to respect and an achievement to admire.
+ - He stepped to the window and pointed to the skyscrapers of the city. He said that we had to extinguish the lights of the world, and when we would see the lights of New York go out, we would know that our job was done.
+ - She stood at the window, her arms spread wide, holding on to each side of the frame, it was as if she held a piece of the city.
+ - Man’s character is the product of his premises.
+ - It meant nothing to him any longer, only a faint tinge of sadness – and somewhere within him, a drop of pain moving briefly and vanishing, like a raindrop on the glass of a window, its course in the shape of a question mark.
+ - There is nothing wrong in helping other people, if and when they are worthy of the help and you can afford to help them.
+ - To love money is to know and love the fact that money is the creation of the best power within you, and your passkey to trade your effort for the effort of the best among men.
+ - I do not think that tragedy is our natural fate and I do not live in chronic dread of disaster. It is no happiness, but suffering that I consider unnatural. It is not success, but calamity that I regard as the abnormal exception in Human Life.
+ - All the reasons which made the initiation of physical force evil, make the retaliatory use of physical force a moral imperative.
+ - I do not seek the good of others as a sanction for my right to exist, nor do I recognize the good of others as a justification for their seizure of my property or their destruction of my life.
+ - I am not morally obligated to care more for a man than he cares for himself.
+ - The meaning ascribed in popular usage to the word ‘selfishness’ is not merely wrong: it represents a devastating intellectual ‘package-deal,’ which is responsible, more than any other single factor, for the arrested moral development of mankind.
+ - In a capitalist society, all human relationships are voluntary.
+ - Rights are not a matter of numbers – and there can be no such thing, in law or in morality, as actions forbidden to an individual, but permitted to a mob.
+ - There is a level of cowardice lower than that of the conformist: the fashionable non-conformist.
+ - You don’t love causes. You don’t love everybody indiscriminately. You love only those who deserve it.
+ - I want to know that I’ve accomplished something. I want to feel that it had some meaning. At the last summing up, I want to be sure it wasn’t all-for nothing.
+ - Humor is not an unconditional virtue; its moral character depends on its object. To laugh at the contemptible, is a virtue; to laugh at the good, is a hideous vice. Too often, humor is used as the camouflage of moral cowardice.
+ - Non-thinking is an act of annihilation, a wish to negate existence, an attempt to wipe out reality. But existence exists; reality is not to be wiped out, it will merely wipe out the wiper.
+ - The worst evil that you can do, psychologically, is to laugh at yourself. That means spitting in your own face.
+ - Dagny, we can never lose the things we live for. We may have to change their form at times, if we’ve made an error, but the purpose remains the same and the forms are ours to make.
+ - Kill reverence and you’ve killed the hero in man.
+ - I am an intransigent atheist, though not a militant one. This means that I am not fighting against religion – I am fighting for reason.
+ - Nobody has ever given a reason why men should be their brother’s keepers.
+ - Science was born as a result and consequence of philosophy; it cannot survive without a philosophical base. If philosophy perishes, science will be next to go.
+ - Laissez-faire capitalism is the only social system based on the recognition of individual rights and, therefore, the only system that bans force from social relationships.
+ - A moment or an eternity – did it matter? Life, undefeated, existed and could exist.
+ - A good quotation must be a complete entity. It must be like a headline – sharp, clear, whole.
+ - When I die, I hope to go to Heaven, whatever the Hell that is.
+ - What is kinder – to believe the best of people and burden them with a nobility beyond their endurance – or to see them as they are, and accept it because it makes them comfortable?
+ - The action required to sustain human life is primarily intellectual; everything man needs has to be discovered by his mind and produced by his effort.
+ - Parties are intended to be celebrations, and celebrations should be only for those who have something to celebrate.
+ - People said it because other people said it. They did not know why it was being said and heard everywhere. they did not give or ask for reasons.
+ - An artist reveals his naked soul in his work.
+ - That which is not worth contemplating in life, is not worth recreating in art.
+ - Remember that rights are moral principles which define and protect a man’s freedom of action, but impose no obligations on other men.
+ - The alleged short-cut to knowledge, which is faith, is only a short-circuit destroying the mind.
+ - To arrive at a contradiction is to confess an error in one’s thinking; to maintain a contradiction is to abdicate one’s mind and to evict oneself from the realm of reality.
+ - Have you felt it too? Have you seen how your best friends love everything about you- except the things that count? And your most important is nothing to them; nothing, not even a sound they can recognize.
+ - For the coming of that day shall I fight, I and my sons and my chosen friends. For the freedom of Man. For his rights. For his life. For his honor.
+ - Congress shall make no law abridging the freedom of production and trade...
+ - The basic need of the creator is independence. The reasoning mind cannot work under any form of compulsion. It cannot be curbed, sacrificed or subordinated to any consideration whatsoever. It demands total independence in function and in motive.
+ - We didn’t really have to take everything so seriously, did we?
+ - Allies never trust each other, but that doesn’t spoil their effectiveness.
+ - A rational process is a moral process.
+ - My morality, the morality of reason, is contained in a single axiom: existence exists – and in a single choice: to live.
+ - The entire history of science is a progression of exploded fallacies.
+ - Every form of happiness if one, every desire is driven by the same motor – by our love for a single value, for the highest potentiality of our own existence – and every achievement is an expression of it.
+ - Only the man who does not need it, is fit to inherit wealth, the man who would make his fortune no matter where he started.
+ - The causes of illusions are not pretty to discover. They’re either vicious or tragic.
+ - If you want to feel good, be rational.
+ - For the first time since her return, she felt pain, a violent pain, but it made her feel alive, because it was worth feeling.
+ - Let us destroy, but don’t let us pretend that we are commiting an act of virtue.
+ - Indiscriminate tolerance and indiscriminate condemnation are not two opposites: they are two variants of the same evasion.
+ - Defiance, not obedience, is the American’s answer to overbearing authority.
+ - She knew that she could not have reached this white serenity except as the sum of all the colors, of all the violence she had known.
+ - There is no transgression blacker than to do or think alone.
+ - Living in a society, instead of on a desert island, does not relieve a man of the responsibility of supporting his own life.
+ - There’s nothing as significant as a human face. Nor as eloquent. We can never really know another person, except by our first glance at him. Because, in that glance, we know everything. Even though we’re not always wise enough to unravel the knowledge.
+ - The age of the skyscraper is gone. This is the age of the housing project. Which is always a prelude to the age of the cave.
+ - Ideas are the greatest and most crucially practical power on earth.
+ - Creation comes before distribution – or there will be nothing to distribute.
+ - To know one’s own desires, their meaning and their costs requires the highest human virtue: rationality.
+ - I am opposed to all forms of control. I am for an absolute, laissez-faire, free, unregulated economy.
+ - Happiness is not to be achieved at the command of emotional whims.
+ - Whenever anyone accuses some person of being ‘unfeeling,’ he means that that person is just.
+ - Capitalism is our only moral system. All other systems take advantage of man’s rights and liberties.
+ - Paper is a check drawn by legal looters upon an account which is not theirs: upon the virtue of the victims. Watch for the day when it bounces, marked: ‘Account Overdrawn.’
+ - I saw that evil was impotent – that evil was the irrational, the blind, the anti-real – and that the only weapon of its triumph was the willingness of the good to serve it.
+ - Mr. Ward, what is it that the foulest bastards on earth denounce us for, among other things? Oh yes, for our motto of ‘Business as usual.’ Well-business as usual, Mr. Ward!
+ - If a drought strikes them, animals perish – man builds irrigation canals; if a flood strikes them, animals perish – man builds dams; if a carnivorous pack attacks them, animals perish – man writes the Constitution of the United States.
+ - Money is a tool of exchange, which can’t exist unless there are goods produced and men able to produce them. Money is the material shape of the principle that men who wish to deal with one another must deal by trade and give value for value.
+ - Economics departments are dominated by Marxism, which is taken straight or on the rocks, in the form of Keynesianism.
+ - A morality that holds need as a claim, holds emptiness-non-existence-as its standard of value; it rewards an absence, a defect: weakness, inability, incompetence, suffering, disease, disaster, the lack, the fault, the flaw-the zero.
+ - This is the age othe common man, they tell us-a title which any man may claim to the extent osuch distinction as he has managed not to achieve.
+ - Since time immemorial and pre-industrial, ‘greed’ has been the accusation hurled at the rich by the concrete-bound illiterates who were unable to conceive of the source of wealth or of the motivation of those who produce it.
+ - The writer who develops a beautiful style, but has nothing to say, represents a kind of arrested esthetic development; he is like a pianist who acquires a brilliant technique by playing finger-exercises, but never gives a concert.
+ - The question of whether one alleges the Superiority or Inferiority of any given race is irrelevant; racism has only one psychological root: the racist’s sense of his own Inferiority.
+ - Man cannot demand that others give up their lives to make him happy.
+ - The Founding Fathers were neither passive, death-worshipin g mystics nor mindless, power-seeking looters; as a political group they were a phenomenon unprecedented in history: they were thinkers who were also men of action.
+ - Do not lose your knowledge that man’s proper estate is an upright posture, an intransigent mind, and a step that travels unlimited roads.
+ - Ah, there’s nothing like tea in the afternoon. When the British Empire collapses, historians will find that it had made but two invaluable contributions to civilization – this tea ritual and the detective novel.
+ - He despised causeless affection, just as he despised unearned wealth. They professed to love him for some unknown reason and they ignored all the things for which he could wish to be loved.
+ - And what is the state but a servant and a convenience for a large number of people, just like the electric light and the plumbing system? And wouldnt it be preposterous to claim that men must exist for their plumbing, not the plumbing for the men.
+ - If workers struggle for higher wages, this is hailed as “social gains”, if businessmen struggle for higher profits, this is damned as “selfish greed”.
+ - The degree of a country’s freedom is the degree of its prosperity.
+ - If any civilization is to survive, it is the morality of altruism that men have to reject.
+ - He had a big head and a face so ugly it became almost fascinating.
+ - Every coercive monopoly was created by government intervention into the economy: by special privileges, such as franchises or subsidies, which closed the entry of competitors into a given field, by legislative action.
+ - Any group or “collective”, large or small, is only a number of individuals. A group can have no rights other than the rights of its individual members.
+ - A viler evil than to murder a man, is to sell him suicide as an act of virtue.
+ - Since reason is man’s basic means of survival, that which is proper to the life of a rational being is the good; that which negates, opposes or destroys it is the evil.
+ - In a fully free society, taxation-or, to be exact, payment for governmental services-would be voluntary.
+ - It is futile to fight against, if one does not know what one is fighting for.
+ - Errors of knowledge are not breaches of morality; no proper moral code can demand infallibility or omniscience.
+ - To discuss evil in a manner implying neutrality, is to sanction it.
+ - I am unwilling to be wholly good – and please don’t regard me as wholly evil!
+ - To be free, a man must be free of his brothers. That is freedom. This and nothing else.
+ - You’d let the whole world perish rather than soil that immaculate self of yours with a single spot of which you’d have to be ashamed.
+
+500 quotes

@@ -1,0 +1,53 @@
+ - Everything you do right now ripples outward and affects everyone. Your posture can shine your heart or transmit anxiety. Your breath can radiate love or muddy the room in depression. Your glance can awaken joy. Your words can inspire freedom. Your every act can open hearts and minds.
+ - The only way to live free, the only way to live your life as an offering of love, is to feel everything fully and live open.
+ - Every moment of your life is either a test or a celebration.
+ - Men who have lived significant lives are men who never waited: not for money, security, ease, or women.
+ - Every man knows that his highest purpose in life cannot be reduced to any particular relationship. If a man prioritizes his relationship over his highest purpose, he weakens himself, disserves the universe, and cheats his woman of an authentic man who can offer his full, undivided presence.
+ - Live with your lips pressed against your fears, kissing your fears, neither pulling back nor aggressively violating them.
+ - Right now, and in every now-moment, you are either closing or opening. You are either stressfully waiting for something – more money, security, affection – or you are living from your deep heart, opening as the entire moment, and giving what you most deeply desire to give, without waiting.
+ - The masculine grows by challenge, but the feminine grows by praise. A man must be unabashed and expressed in his appreciation for his woman. Praise her freely.
+ - Stop waiting. Feel everything. Love achingly. Give impeccably. Let go.
+ - You are not only a man, you are a superior man: a man who does his best to live as love in the world and in his intimacy, a man whose heart remains open and whose truth remains strong...
+ - Spend at least an hour today giving your fullest gift, whatever that is for today, so that when you go to sleep at night you know you couldn’t have lived your day with more courage, creativity, and giving.
+ - Spiritual practice is the capacity to offer your love even when you feel hurt, closed down, tense, angry, misunderstood, or hated.
+ - Every moment waited is a moment wasted...
+ - Masculine anger is always because you are feeling constrained, trapped by life. Feminine anger is always because you are feeling unloved.
+ - Knowing the Truth is Fairly Useless. Feeling it is Profound. Living it Makes All the Difference.
+ - Your suffering is shaped exactly by your refusal to open.
+ - The superior man is not seeking fulfillment through work and woman, because he is already full. For him, work and intimacy are opportunities to give his gifts, and to be vanished in the bliss of giving.
+ - You should do whatever feels right in your deepest heart. Feel deep as consciousness, open as water, now, and feel how to live with a wide-open heart. Feel how to live as love without bondage.
+ - If you are waiting for anything in order to live and love without holding back, then you suffer. Every moment is the most important moment of your life. No future time is better than now to let down your guard and love.
+ - Praise is literal food for feminine qualities. If you want your woman to grow in her radiance health, happiness, love, beauty, power and depth, praise these qualities. Praise them daily. A number of times.
+ - You can ravish your woman so deeply that her surrender breaks your heart into light.
+ - The way a man penetrates the world should be the same way he penetrates his woman: not merely for personal gain or pleasure, but to magnify love, openness, and depth.
+ - The positive and negative poles of a battery create an electrical flow. The masculine and feminine poles between people create a flow of sexual energy in motion.
+ - Your heart knows the truth of openness and suffers the tense lie of your closure.
+ - Your close men friends should be willing to challenge your mediocrity by suggesting a concrete action you can perform that will pop you out of your rut, one way or the other. And you must be willing to offer them your brutal honesty, in the same way, if you are all to grow.
+ - Your every act can open hearts and minds.
+ - A man with a weak Masculine is especially prone to despise and fear these qualities and may attempt to suppress the more destructive elements of the Feminine force in his partner.
+ - When fear dissolves, you no longer separate yourself from this single flow of immense force. Love is continuity with infinite life force, a Oneness of being with no separation. Love is the key to opening to this flow of life force.
+ - Make your own decision, based on your deepest intuitive wisdom and knowledge. You may make the right decision or the wrong one, but whatever happens, it is your best shot, and you will strengthen your capacity for future action.
+ - You are either withholding your love in fear or giving your deepest gifts.
+ - Instant enlightenment is to give all your happiness away to others.
+ - Chronic dissatisfaction is how you sense that you are living a lie.
+ - Masculine and feminine aspects exist in all beings.
+ - When you are in love with a man or a woman, the love you feel does not come from him or her; it is the love flowing from you own heart that you feel. Your partner is simply giving you an excuse to love. Love is always found flowing in your heart, not in your family, lover, career or art.
+ - We’re here to learn how to worship consciousness and radiance, evoke it in each other, and tolerate nothing less than our deepest love.
+ - The energy that moves life is the force of the Feminine. She is unstoppable. She is the source of all life, the mover of blood, the breather of breath, the flow of the river’s water. The Feminine is life. We can feel Her moving and living in any moment we are open to Her, or as Her.
+ - You’ll never get what you really want. All you can do is give what you really want!
+ - We eventually learn that emotional closure is our own action. We can be responsible for it. In any moment, we can choose to open or to close.
+ - Whatever is your present experience, you can recognize the spaciousness that allows it to be. You are this spaciousness, this awareness, this love. Deeper love and more spacious awareness is the best lesson you can get from any experience.
+ - Successfully completing a lesser purpose doesn’t feel good very good for very long, because it is simply preparation for advancing toward a greater embodiment of your deeper purpose.
+ - By learning to open your heart and body while embracing and trusting all energies, from rough ravishment to sublime gentleness, you can open to be lived by the mystery that lives the entire universe.
+ - If your purpose is to liberate yourself and others into love and freedom, then you should do whatever magnifies the love and freedom in your life and in the lives of whom your actions affect.
+ - Thank God for such women, who make no apologies for their oceanic depth and riptides of emotion.
+ - The real practice of love goes beyond satisfaction and dissatisfaction. Wallowing in pleasure can be just as limiting as wallowing in pain if you don’t open your heart beyond the satisfaction of your personal emotional needs.
+ - One misunderstandin g is that if you do the right thing, then life’s storms will stop. If you do the right thing, the storms actually get bigger. This is because they know they can’t blow you down like they used to, and now it’s going to take a lot more energy to find out if you are conscious.
+ - A fearful man who knows he is fearful is far more trustable than a fearful man who isn’t aware of his fear.
+ - But if we are truly happy inside, then age brings with it a maturity, a depth, and a power that only magnifies our radiance.
+ - Infinite Love is who we really are and who we refuse to be. This refusal is our most essential tension.
+ - If knowing the truth is sufficient for you, then practice the art of philosophy. If only living the truth will suffice, then practice the art of love through your mind, your emotions, and your body.
+ - Anyone who separates being and doing is still enjoying separation.
+ - Violence is always an effort toward greater freedom or love. Openness is freedom and love. Even the most violent or self-destructive emotions are rooted in the heart’s need for openness, to be free, to give and receive love.
+
+51 quotes

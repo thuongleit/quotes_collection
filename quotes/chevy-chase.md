@@ -1,0 +1,39 @@
+ - A flute without holes, is not a flute. A donut without a hole, is a Danish.
+ - I’m going to give you a little advice. There’s a force in the universe that makes things happen. And all you have to do is get in touch with it, stop thinking, let things happen, and be the ball.
+ - I am a clown, just without the painted smile.
+ - How much do I owe you?
+ - You could knock my teeth out and break my nose, and there’d be something funny about it to me.
+ - Some Harvard guy said that acid would open our minds, pot wouldn’t hurt us, and cocaine was benign.
+ - All my children inherited perfect pitch.
+ - Last good pratfall I did, I broke bones in both hands. I still feel it when people shake my hand.
+ - I guess I look so straight and normal nobody expects me to pick my nose and fall.
+ - Parrots make great pets. They have more personality than goldfish.
+ - Once I got married and had kids, I moved away from romantic roles, because it seemed wrong to have my 3-year-old wondering why Daddy was kissing someone else.
+ - I was always the guy getting kicked out of my classes at school for having an attitude problem.
+ - Step by step, we will break this cycle of silence, poor information and stigma.
+ - The best advice I can give you about falling is to never land.
+ - Fame is a very unnatural human condition. When you stop to realize that Abraham Lincoln was probably never seen by more than 400 people in a single evening, and that I can enter over 40 million homes in a single evening due to the power of television, you have to admit the situation is not normal.
+ - Most of the films I’ve done were ruined in the postproduction, not during filming.
+ - I have three daughters. I wanted them to be raised where there are real seasons and where everyone their age wasn’t trying to get into movies.
+ - Anyone who wants to run has to be a Jimmy Swaggart, minus the default.
+ - Every Vacation movie didn’t just make the studio money. They each made the studio a lot of money.
+ - I tell the person I won’t take a picture or sign the autograph, but I will shake their hand. That kind of personal touch is all they’re really seeking.
+ - I think the Clintons are brilliant. I’ve never met a person as intelligent as Bill, and I think Hillary is right up there with him. They’re too smart for Washington.
+ - I made about 28 movies, and I think about five of them were good.
+ - The best comedy I ever did was when people didn’t know who I was.
+ - It’s never a good idea for a celebrity to sign autographs or take pictures if a crowd is gathering.
+ - I don’t know if my looks will ever get any better, but my pratfalls sure won’t.
+ - Television doesn’t make stars. It’s the written media, the press, that makes stars.
+ - I watched every single Charlie Chaplin film.
+ - What makes a home home? Animals, and a little bit of clutter.
+ - I just went into this business for laughs. I guess I don’t mind being an actor so much now.
+ - If you’re in the White House, it’s your house, and you can invite whatever friend you want.
+ - What interests me is being alive and being with friends that I care about and being as creative as I can given circumstance.
+ - I learned a lot about handling fans from established stars.
+ - The fact was, Ford kept stumbling around. I didn’t want him in the White House. I wanted Carter in, and I had a forum of 20 million people watching.
+ - With Clinton, there’s no question that I would have made fun of his out-and-out lying. But he’s also a good friend.
+ - A laugh is a surprise. And all humor is physical. I was always athletic, so that came naturally to me.
+ - It took me 20 years of making movies to learn how to do it.
+ - My father was the funniest guy I ever met. I’m not sure if I stole his stuff or if I inherited it.
+
+37 quotes

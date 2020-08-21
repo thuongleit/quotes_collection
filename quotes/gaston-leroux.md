@@ -1,0 +1,31 @@
+ - Erik is not truly dead. He lives on within the souls of those who choose to listen to the music of the night.
+ - If I am the phantom, it is because man’s hatred has made me so. If I am to be saved it is because your love redeems me.
+ - You are crying! You are afraid of me! And yet I am not really wicked. Love me and you shall see! All I wanted was to be loved for myself.
+ - The opera ghost really existed.
+ - Holy angel, in Heaven blessed, My spirit longs with thee to rest.
+ - A ghost who, on the same evening, carries off an opera-singer and steals twenty-thousand francs is a ghost who must have his hands very full!
+ - Erik: Are you very tired? Christine: Oh, tonight I gave you my soul, and I am dead. Erik: Your soul is a beautiful thing, child. No emperor received so fair a gift. The angels wept to-night.
+ - Everybody knows that orthopedic science provides beautiful false noses for people who have lost their noses naturally or as a result of an operation.
+ - In Paris, our lives are one masked ball.
+ - He stared dully at the desolate, cold road and the pale, dead night. Nothing was colder or more dead than his heart. He had loved an angel and now he despised a woman.
+ - She’s singing to-night to bring the chandelier down!
+ - But do you love me? If Erik were good-looking, would you love me, Christine?
+ - We recognize the touch of the Opera ghost.
+ - And, despite the care which she took to look behind her at every moment, she failed to see a shadow which followed her like her own shadow, which stopped when she stopped, which started again when she did and which made no more noise than a well-conducted shadow should.
+ - Why, you love him! Your fear, your terror, all of that is just love and love of the most exquisite kind, the kind which people do not admit even to themselves.
+ - He had a heart that could have held the entire empire of the world; and, in the end, he had to content himself with a cellar.
+ - When a woman has seen me, as you have, she belongs to me. She loves me forever.
+ - I am not really wicked. Love me, and you will see!
+ - An author really ought to have nothing but flowers in the room where he works.
+ - Persons visited by the angel quiver with a thrill unknown to the rest of mankind.
+ - I am an honest girl, M. le Vicomte de Chagny, and I don’t lock myself up in my dressing-room with men’s voices.
+ - Everyone dies. I just choose the time and place for some of them!
+ - Erik, Erik! I saved your life! Remember? You were scentenced to death! But for me you would be dead by now.
+ - There are times where excessive innocence seems so monstrous that it becomes hateful.
+ - None will ever be a true Parisian who has not learned to wear a mask of gaiety over his sorrows and one of sadness, boredom, or indifference over his inward joy.
+ - You must know that I am made of death, from head to foot, and it is a corpse who loves you and adores you and will never, never leave you!
+ - They played at hearts as other children might play at ball; only, as it was really their two hearts that they flung to and fro, they had to be very, very handy to catch them, each time, without hurting them.
+ - No, he is not a ghost; he is a man of Heaven and earth, that is all.
+ - The shadow had followed behind them, clinging to their steps; and the two children little suspected its presence when they at last sat down, trustingly, under the mighty protection of Apollo, who, with a great bronze gesture, lifted his huge lyre to the heart of a crimson sky.
+
+29 quotes

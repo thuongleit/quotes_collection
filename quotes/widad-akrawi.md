@@ -1,0 +1,22 @@
+ - If you are positive, you’ll see opportunities instead of obstacles.
+ - We have to Build Bridges of Peace Instead of building Walls of Wars.
+ - Unnecessary bureaucracy hinders creativity, growth, justice and the attainment of peace.
+ - You have a chance to save lives! If you don’t take it, you may regret it!
+ - We are currently facing countless hurdles and obstacles, BUT will never lose the sight of infinite hope.
+ - Coexistence and personal peace are at the heart of global peace and harmony.
+ - Beheading, burying and burning humans alive are extreme acts of cruelty. Such crimes against humanity must be investigated and the guilty parties brought to justice. May ALL victims rest in peace!
+ - Compassion is a reflection of our connectedness. Your voice is need and much appreciated!
+ - The quality of life in our world does not depend on the conflicts that arise, but on our response to them.
+ - No matter what you face, don’t forget if you’re positive, positivity will find you and embrace you.
+ - Toxic remnants of war represent a profound challenge for the protection of public health and the restoration of the environment in countries affected by conflict.
+ - Key message to all patients: Let go of all negativity and empower your body through your positivity.
+ - I salute every individual who honours the core values of peace and help in one way or another to make a difference.
+ - Let the world feel your compassion: Help save kidnapped Yazidi females!
+ - Armed violence and peace cannot coexist. We need to overcome the challenges we face and seek practical solutions. We must replace the culture of war with the culture of peace.
+ - Across the world, the lack of accountability for the harm to the environment and public health caused by conflict and military activities undermines global efforts to help fragile countries recover from armed conflicts.
+ - To achieve peace, it is crucial to eliminate unnecessary bureaucracy that prevents peace processes from advancing.
+ - Each day is an opportunity to build the defenses of peace in the minds of people.
+ - We have to consciously build the elements of a world based on a culture of peace and disarmament. This is a task for everyone. It is multidimensional in scope, requiring meaningful participation of people at all levels.
+ - The Purpose of life is to thrive and save lives with passion! Save Yazidis today with love and compassion!
+
+20 quotes

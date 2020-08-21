@@ -1,0 +1,36 @@
+ - Really good things take time to grow. Foundation is not built over night.
+ - No one can break me down. I know my worth and its a beautiful thing.
+ - First things first, I’m da realest.
+ - Luxury lives in the finer details. It’s a cloth napkin at a dinner table. It’s a mint on your pillow before bed.
+ - Pledge allegiance to the struggle.
+ - No money, no family, 16 in the middle of Miami.
+ - Music is art to me, and you don’t censor art. You don’t go into a museum and censor things.
+ - I always say: ‘Share your happiness with the world, give other people that happiness and let it come back,’ but some things make me question it. I don’t know if I want some people to know that I am happy. I think a lot of people want to take it away from you, and that’s really scary.
+ - There’s a difference between being yourself and being your stereotype.
+ - My real name is Amethyst. It sounds like a stage name. My mom is kind of crazy.
+ - Whenever my country has something bad happening I feel guilty for not being there. It’s weird.
+ - I love purple because my name is Amethyst.
+ - As a child, I remember my dad would sometimes drive me into town with him to play pinball machines together. It’s a bittersweet memory but also a favorite.
+ - People think I’m more wild than I am I like going to theme parks, play sports or just hanging out with my friends.
+ - At the very worst, if I have a short-lived career, at least I could say I sparked a change – that I inspired some leniency in what people accept in hip-hop. And if I have a very long career and can be gyrating in a leotard at 35, that would be great.
+ - I love musk oil. There’s something about musk that makes it memorable without being overpowering.
+ - Anyone’s happier when they’re not being verbally abused all day long.
+ - I naturally want to be provocative.
+ - There’s an obligation to not lead people down the wrong path, but I hardly think me wearing short shorts on stage is creating monsters.
+ - A lot of people heard ‘Murda Business’ and thought it was about killing people, trying to be tough and hardcore. If you actually listen to the lyrics, it’s kind of silly and playful.
+ - Women in music have the bigger balls anyhow we endure much more harassment and critic.
+ - Being talked about like a package – I feel like that all the time.
+ - I started rapping since, like, 14. But I’ve been obsessed with rap from when I was 11. I heard ‘Baby Don’t Cry,’ I’ll never forget.
+ - I’m irrational about all things creative, and I’m always late!
+ - Not every artist is a role model.
+ - I really like ‘Roar’ and ‘Dark Horse.’ ‘Dark Horse’ I really like, and I feel I would sing that in the bathroom; I would buy that album, and I think Katy Perry’s amazing!
+ - I’ve never heard a man in a suit tell me what to wear; that’s not their forte. You hire your stylist; whatever someone’s image is as an artist is what they’ve chosen to portray.
+ - My management team are all women. Most of the people at labels I liaise with are all women. It’s pretty much all women all the time.
+ - For me, visuals are as important as the music. I just love escapism and giving people something to escape to. To me, that’s what art is.
+ - I think that music is still art, even if it’s commercialised.
+ - I’d known since about eleven that I wanted to live in America.
+ - We don’t really watch basketball in Australia.
+ - I think music talks to you on an emotional level, regardless of where you’re from. I guess I related to the tempo of rap, the aggressiveness.
+ - I found it to be kind of ironic, because I’m white, therefore I’m appropriating culture, but then Eminem won it – who’s white and won it many times – and they didn’t seem to say anything about that. I suspect it was just because they dislike me.
+
+34 quotes

@@ -1,0 +1,21 @@
+ - Woodstock happened in August 1969, long before the Internet and mobile phones made it possible to communicate instantly with anyone, anywhere. It was a time when we werent able to witness world events or the horrors of war live on 24-hour news channels.
+ - The direction for my music is heaven, of course. We gear all things to the realm of heaven – which is the mind, the organized mind.
+ - My right wrist is connected to the left foot. You know, if the left foot doesn’t work, the right wrist doesn’t work, and that’s really the truth.
+ - I don’t get sick. I can’t afford to get sick.
+ - Everything I want to do, and to accomplish, is on the other side of the universe. That’s peace of mind, energy, freedom. And I’m making myself ready to go, joyfully and willingly. I think I’m ready to be everybody’s friend, and to do anything for anybody. It’s heavy.
+ - Richie is the only one of my nine who’s really moved away. I can’t get rid of most of them.
+ - I opened the Woodstock Festival even though I was supposed to be fifth. I said, ‘What am I doing here? No, no, not me, not first!’ I had to go on stage because there was no one else to go on first – the concert was already two-and-a-half hours late.
+ - Woodstock was both a peaceful protest and a global celebration.
+ - I started out by myself, but it eventually turned into a trio by the mid-’60s – a conga drum and another guitarist. And that’s been mostly what I’ve worked with most of the time.
+ - Live Aid was a baby Woodstock, a child of Woodstock, which I call Globalstock.
+ - I must have played every college and university at least three times, and that goes for most of the clubs. I’d be on the road six days a week, go home and change bags, and then be gone for another six days.
+ - I believe I inherited my sense of music from my father. My father was an ear piano player; he could just hear something and play it.
+ - I came up in Brooklyn singing doo-wop music from the time I was 13 to the time I was 20. That music served a purpose of keeping a lot of people out of trouble, and also it was a passport from one neighborhood to another.
+ - I’m not in show business; I’m in the communications business. That’s what it’s about for me.
+ - Though it’s frequently portrayed as this crazy, unbridled festival of rain-soaked, stoned hippies dancing in the mud, Woodstock was obviously much more than that – or we wouldn’t still be talking about it in 2009. People of all ages and colors came together in the fields of Max Yasgur’s farm.
+ - I eat once a day if I remember, and I try never to go to sleep.
+ - I saw the Village as a place you could escape to, to express yourself. When I first went there, I wrote and performed poetry. Then I drew portraits for a couple of years. It took a while before I thought about picking up a guitar.
+ - I believe we have a double in every country. There’s something about that that is probably a commonness that we don’t make note of. That maybe there’s only a cast for so many faces, and we live everywhere.
+ - When I write a song today, basically it goes on the stage tomorrow. That’s the way it works. You cannont interrupt your consciousness; it all comes from the subconscious, it can happen anywhere. It could be in a telephone booth.
+
+19 quotes

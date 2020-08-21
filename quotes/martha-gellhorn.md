@@ -1,0 +1,47 @@
+ - Life is not long at all, never long enough, but days are very long indeed.
+ - The human spirit can be indomitable and it is this rare quality that is not at all to be expected that makes survivors of us all, the human race in the grand scheme of things.
+ - Citizenship is a tough occupation which obliges the citizen to make his own informed opinion and stand by it.
+ - Joseph McCarthy, the Junior Republican Senator from Wisconsin, ruled America like devil king for four years. His purges were an American mirror image of Stalin’s purges, an unnoticed similarity.
+ - My definition of what makes a journey wholly or partially horrible is boredom.
+ - You have to stop living in order to write.
+ - All amateur travellers have experienced horror journeys, long or short, sooner or later, one way or another. As a student of disaster, I note that we react alike to our tribulations: frayed and bitter at the time, proud afterwards. Nothing is better for self-esteem than survival.
+ - I do not see myself as a footnote to someone else’s life.
+ - I tell you loneliness is the thing to master. Courage and fear, love, death are only parts of it and can easily be ruled afterwards. If I make myself master my own loneliness there will be peace or safety: and perhaps these are the same.
+ - Gradually I came to realize that people will more readily swallow lies than truth, as if the taste of lies was homey, appetizing: a habit.
+ - I daresay I was the worst bed partner in five continents.
+ - I know enough to know that no woman should ever marry a man who hated his mother.
+ - After a lifetime of war-watching, I see war as an endemic human disease, and governments are the carriers.
+ - Nothing is better for self-esteem than survival.
+ - Public opinion, though slow as lava, in the end forces governments towards more sanity, more justice. My heroes and heroines are all private citizens.
+ - A broken heart is such a shabby thing, like poverty and failure and the incurable diseases which are also deforming. I hate it and am ashamed of it, and I must somehow repair this heart and put it back into its normal condition, as a tough somewhat scarred but operating organ.
+ - I followed the war wherever I could reach it.
+ - It would be a bitter cosmic joke if we destroy ourselves due to atrophy of the imagination.
+ - In the end, in England, when you want to find out how people are feeling, you always go to the pubs.
+ - The English are very proud of their Parliament, and week in, week out, century after century, they have pretty good cause to be.
+ - I used to write letters to the wounded in the Palace Hotel, and I used to drive a station wagon with blood in bottles to a battalion aid station.
+ - All politicians are bores and liars and fakes. I talk to people.
+ - I’m not interested in my standard of living, my health, my job, my rights, my freedoms, my future, or any future.
+ - Then somebody suggested I should write about the war, and I said I didn’t know anything about the war. I did not understand anything about it. I didn’t see how I could write it.
+ - I feel very troubled in the head and heart.
+ - I found out about the Spanish war because I was in Germany when it began.
+ - The only way I can pay back for what fate and society have handed me is to try, in minor totally useless ways, to make an angry sound against injustice.
+ - Furthermore, they were constantly informed by all the camp authorities that they had been abandoned by the world: they were beggars and lucky to receive the daily soup of starvation.
+ - The world’s fat is badly divided.
+ - Journalism at its best and most effective is education. Apparently people would not learn for themselves, nor from others.
+ - Between his eyes, there were four lines, the marks of such misery as children should never feel. He spoke with that wonderful whisky voice that so many Spanish children have, and he was a tough and entire little boy.
+ - I didn’t write. I just wandered about.
+ - Thousand got away to other countries; thousands returned to Spain tempted by false promises of kindness. By the tens of thousands, these Spaniards died of neglect in the concentration camps.
+ - What the trees can do handsomely-greening and flowering, fading and then the falling of leaves-human beings cannot do with dignity, let alone without pain.
+ - Once you get a tyranny, you don’t easily get rid of it. Much better to remember about eternal vigilance.
+ - After the desperate years of their own war, after six years of repression inside Spain and six years of horror in exile, these people remain intact in spirit. They are armed with a transcendent faith; they have never won, and yet they have never accepted defeat.
+ - In more than half the nations of our world, torture certifies that the form of government is tyranny. Only tyranny, no matter how camouflaged, needs and employs torturers. Torture has no ideology.
+ - It is alleged that half a million Spanish men, women and children fled to France after the Franco victory.
+ - Officialdom is hostile to inquiring outsiders.
+ - But now that the guerrilla fighting is over, the Spaniards are again men without a country or families or homes or work, though everyone appreciates very much what they did.
+ - In the last camp they all ate grass, until the authorities forbade them to pull it up. They were accustomed to having the fruits of their little communal gardens stolen by the guards, after they had done all the work; but at the last camp everything was stolen.
+ - From the earliest wars of men to our last heart-breaking worldwide effort, all we could do was kill ourselves. Now we are able to kill the future.
+ - By its existence, the Peace Movement denies that governments know best; it stands for a different order of priorities: the human race comes first.
+ - There were ten concentration camps in France from 1939 on.
+ - I see mysteries and complications wherever I look, and I have never met a steadily logical person.
+
+45 quotes

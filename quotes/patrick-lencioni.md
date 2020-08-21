@@ -1,0 +1,45 @@
+ - Not finance. Not strategy. Not technology. It is teamwork that remains the ultimate competitive advantage, both because it is so powerful and so rare.
+ - If you could get all the people in an organization rowing in the same direction, you could dominate any industry, in any market, against any competition, at any time.
+ - Remember teamwork begins by building trust. And the only way to do that is to overcome our need for invulnerability.
+ - If everything is important, then nothing is.
+ - Building a cohesive leadership team is the first critical step that an organization must take if it is to have the best chance at success.
+ - Trust is knowing that when a team member does push you, they’re doing it because they care about the team.
+ - When there is trust, conflict becomes nothing but the pursuit of truth, an attempt to find the best possible answer.
+ - Organizational health is the single greatest competitive advantage in any business.
+ - On a team, trust is all about vulnerability, which is difficult for most people.
+ - The key ingredient to building trust is not time. It is courage.
+ - Great teams do not hold back with one another. They are unafraid to air their dirty laundry. They admit their mistakes, their weaknesses, and their concerns without fear of reprisal.
+ - Team members have to be focused on the collective good of the team. Too often, they focus their attention on their department, their budget, their career aspirations, their egos.
+ - Failing to hold someone accountable is ultimately an act of selfishness.
+ - Members of trusting teams admit weaknesses and mistakes, take risks in offering feedback and assistance, and focus time and energy on important issues, not politics.
+ - People will walk through fire for a leader that’s true and human.
+ - Members of trusting teams accept questions and input about their areas or responsibility, appreciate and tap into one another’s skills and experiences, and look forward to meetings and other opportunities to work as a group.
+ - As difficult as it is to build a team, it is not complicated. In fact, keeping it simple is critical, whether you run the executive staff at a multi-national company, a small department within a larger organization, or even if you are merely a member of a team that needs improvement.
+ - Building a strong team is both possible and remarkably simple. But is painfully difficult.
+ - When you know your reason for existence, it should effect the decisions you make.
+ - Choose your companions before you choose your road.
+ - Success comes only for those groups that overcome the all-too-human behavioral tendencies that corrupt teams and breed dysfunctional politics within them.
+ - The vast majority of organizations today have more than enough intelligence, experience and knowledge to be successful. What they lack is organizational health.
+ - There is just no escaping the fact that the single biggest factor determining whether an organization is going to get healthier – or not – is the genuine commitment and active involvement of the person in charge.
+ - I’ve become absolutely convinced that the seminal difference between successful companies and mediocre or unsuccessful ones has little, if anything, to do with what they know or how smart they are; it has everything to do with how healthy they are.
+ - If you’re not interested in getting better, it’s time for you to stop leading.
+ - Politics is when people choose their words and actions based on how they want others to react rather than based on what they really think.
+ - All things to all people is nothing to everyone.
+ - Success is not a matter of mastering subtle, sophisticated theory but rather of embracing common sense with uncommon levels of discipline and persistence.
+ - A core value is something you’re willing to get punished for.
+ - Really great people rarely leave a healthy organization.
+ - Team members who are not genuinely open with one another about their mistakes and weaknesses make it impossible to build a foundation for trust.
+ - As a leader, you’re probably not doing a good job unless your employees can do a good impression of you when you’re not around.
+ - Like a good marriage, trust on a team is never complete; it must be maintained over time.
+ - No action, activity, or process is more central to a healthy organization than the meeting.
+ - The only real payoff for leadership is eternal.
+ - Open, frank communication is the lynchpin to teamwork. A fractured team is like a fractured bone; fixing it is always painful and sometimes you have to re-break it to heal it fully – and the re-break always hurts more because it is intentional.
+ - Most of the CEO’s who fail think they will find the solution to their problems in Finance, Marketing, Strategic Planning, etc., but they don’t look for the solution to their problems inside themselves.
+ - It is dangerous if our identity as a leader becomes more important than our identity as a child of God.
+ - An organization’s strategy is simply its plan for success. It’s nothing more than the collection of intentional decisions a company makes to give itself the best chance to thrive and differentiate from competitors.
+ - An organization has integrity – is healthy – when it is whole, consistent, and complete, that is, when its management, operations, strategy, and culture fit together and make sense.
+ - It’s as simple as this. When people don’t unload their opinions and feel like they’ve been listened to, they won’t really get on board.
+ - If the CEO’s behavior is 95 per cent healthy while the rest of the organization is only 50 per cent sound, it is more effective to focus on that crucial and leveraged 5 per cent that makes up the reminder of the CEO’s behavior.
+ - A job is bound to be miserable if it doesn’t involve measurement.
+
+43 quotes

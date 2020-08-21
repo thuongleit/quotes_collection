@@ -1,0 +1,41 @@
+ - Just close your eyes – and think of England.
+ - The important thing is not what they think of me, but what I think of them.
+ - We are not interested in the possibilities of defeat. They do not exist.
+ - Beware of artists, they mix with all classes of society and are therefore most dangerous.
+ - We will not have failure – only success and new learning.
+ - Were women to “unsex” themselves by claiming equality with men, they would become the most hateful, heathen, and disgusting of beings and would surely perish without male protection.
+ - Oh! was ever woman so blessed as I am.
+ - Nothing will turn a man’s home into a castle more quickly and effectively than a dachshund.
+ - Oh, that peace may come.
+ - A marriage is no amusement but a solemn act, and generally a sad one.
+ - Give my people plenty of beer, good beer, and cheap beer, and you will have no revolution among them.
+ - I love peace and quiet, I hate politics and turmoil. We women are not made for governing, and if we are good women, we must dislike these masculine occupations.
+ - The great event of the evening was Jenny Lind’s appearance and her complete triumph. She has a most exquisite, powerful and really quite peculiar voice, so round, soft and flexible and her acting is charming and touching and very natural.
+ - We poor creatures are born for man’s pleasure and amusement, and destined to go through endless sufferings and trials.
+ - Affairs go on, and all will take some shape or other, but it keeps one in hot water all the time.
+ - He speaks to Me as if I was a public meeting.
+ - I think people really marry far too much; it is such a lottery after all, and for a poor woman a very doubtful happiness.
+ - You will find as the children grow up that as a rule children are a bitter disappointment – their greatest object being to do precisely what their parents do not wish and have anxiously tried to prevent.
+ - Men never think, at least seldom think, what a hard task it is for us women to go through this very often. God’s will be done, and if He decrees that we are to have a great number of children why we must try to bring them up as useful and exemplary members of society.
+ - An ugly baby is a very nasty object – and the prettiest is frightful.
+ - I don’t dislike babies, though I think very young ones rather disgusting.
+ - Being pregnant is an occupational hazard of being a wife.
+ - Oh! If those selfish men, who are the cause of all one’s misery, only knew what their poor slaves go through! What suffering, what humiliation to the delicate feelings of a poor woman, above all a young one, especially with those nasty doctors.
+ - Great events make me quiet and calm; it is only trifles that irritate my nerves.
+ - The Queen has done all she could on the dreadful subject of vivisection, and hopes that Mr. Gladstone will speak strongly against such a practice which is a disgrace to humanity...
+ - The Queen is most anxious to enlist everyone who can speak or write to join in checking this mad, wicked folly of Woman’s Rights with all its attendant horrors on which her poor, feeble sex is bent, forgetting every sense of womanly feeling and propriety.
+ - What you say of the pride of giving life to an immortal soul is very fine dear, but I own I cannot enter into that: I think much more of our being like a cow or a dog at such moments: when our poor nature becomes so very animal and unecstatic.
+ - Lord Aberdeen was quite touched when I told him I was so attached to the dear, dear Highlands and missed the fine hills so much. There is a great peculiarity about the Highlands and Highlanders; and they are such a chivalrous, fine, active people.
+ - The danger to the country, to Europe, to her vast Empire, which is involved in having all these great interests entrusted to the shaking hand of an old, wild, and incomprehensible man of 82, is very great!
+ - Everybody grows but me.
+ - No civilization is complete which does not include the dumb and defenseless of God’s creatures within the sphere of charity and mercy.
+ - When I think of a merry, happy, free young girl – and look at the ailing, aching state a young wife generally is doomed to – which you can’t deny is the penalty of marriage.
+ - I feel sure that no girl would go to the altar if she knew all.
+ - For a man to strike any women is most brutal, and I, as well as everyone else, think this far worse than any attempt to shoot, which, wicked as it is, is at least more comprehensible and more courageous.
+ - His purity was too great, his aspiration too high for this poor, miserable world! His great soul is now only enjoying that for which it was worthy!
+ - I would venture to warn against too great intimacy with artists as it is very seductive and a little dangerous.
+ - I am every day more convinced that we women, if we are to be good women, feminine and amiable and domestic, are not fitted to reign; at least it is they that drive themselves to the work which it entails.
+ - Being married gives one one’s position like nothing else can.
+ - I positively think that ladies who are always enceinte quite disgusting; it is more like a rabbit or guinea-pig than anything else and really it is not very nice.
+
+39 quotes

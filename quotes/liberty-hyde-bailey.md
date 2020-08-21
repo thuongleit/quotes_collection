@@ -1,0 +1,26 @@
+ - Give the children an opportunity to make garden. Let them grow what they will. It matters less that they grow good plants than that they try for themselves.
+ - A garden is half made when it is well planned.
+ - Every decade needs its own manual of handicraft.
+ - The man who worries morning and night about the dandelions in the lawn will find great relief in loving the dandelions.
+ - The true purpose of education is to teach a man to carry himself triumphant to the sunset.
+ - There is no excellence without labor. One cannot dream oneself into either usefulness or happiness.
+ - Extension work is not exhortation. Nor is it exploitation of the people, or advertising of an institution, or publicity work for securing students. It is a plain, earnest, and continuous effort to meet the needs of the people on their own farms and in the localities.
+ - A person cannot love a plant after he has pruned it, then he has either done a poor job or is devoid of emotion.
+ - Is there any progress in horticulture? If not, it is dead, uninspiring. We cannot live in the past good as it is; we must draw our inspiration from the future.
+ - One’s happiness depends less on what he knows than on what he feels.
+ - I do not yet know why plants come out of the land or float in streams, or creep on rocks or roll from the sea. I am entranced by the mystery of them and absorbed by their variety and kinds. Everywhere, they are visible yet everywhere occult.
+ - When the traveler goes alone he gets acquainted with himself.
+ - We accept it because we have seen the vision. We know that we cannot reap the harvest, but we hope that we may so well prepare the land and so diligently sow the seed that our successors may gather the ripened grain.
+ - My life has been a continuous fulfillment of dreams. It appears that everything I saw and did has a new, and perhaps, more significant meaning, every time I see it. The earth is good. It is a privilege to live thereon.
+ - Anyone who acquires more than the usual amount of knowledge concerning a subject is bound to leave it as his contribution to the knowledge of the world.
+ - Science may eventually explain the world of How. The ultimate world of Why may remain for contemplation, philosophy, religion.
+ - One must first seek to love plants and nature, and then to cultivate that happy peace of mind which is satisfied with little. He will be happier if he has no rigid and arbitrary ideals, for gardens are coquettish, particularly with the novice.
+ - There are two essential epochs in any enterprise – to begin, and to get done.
+ - The department of home economics was organized to train a woman in efficiency and to develop her outlook to life. Such a department is a necessity as a means of developing a society. It stands for the evolution of women’s work and place.
+ - No beast has ever conquered the earth; and the natural world has never been conquered by muscular force.
+ - There is great satisfaction in a well-made clean tool that does its work well.
+ - One does not begin to make a garden until he wants a garden. To want a garden is to be interested in plants, in the winds and rains, in birds and insects, in the warm-smelling earth.
+ - Tools of many kinds and well chosen, are one of the joys of a garden.
+ - The happiest life has the greatest number of points of contact with the world, and it has the deepest feeling and sympathy with everything that is.
+
+24 quotes

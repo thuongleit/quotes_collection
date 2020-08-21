@@ -1,0 +1,81 @@
+ - There is no normal life, there’s just life. You live it.
+ - It hurts. I miss my kids. I miss my kids in so many ways that I can’t explain.
+ - New Mexico is my home. It has never been anything but home. The ranch has rivers and canyon, everything imaginable. I can ride, hunt and fish. At the same time, ranching is grueling, difficult work. It’s like acting, to be successful at it, you have to work hard. I take it very seriously.
+ - I have two children and they’re young yet but all of the children that I know really inspire me.
+ - The trick to being a good actor is getting so involved in your character that the camera disappears, the 50 bored guys eating doughnuts disappear, friends disappear. To get to that point when you don’t have to think about it, you’re just acting and reacting in those circumstances.
+ - Life is precious, and when someone dies it’s an opportunity to realise how precious it is. My brother drowned when I was 17. He was 15. I think I grew from that. My father didn’t. It really crushed him.
+ - My first girlfriend in high school, I had a girlfriend in grade school, but my first girlfriend in high school was Mare Winningham, very fine actress.
+ - You just don’t understand humility until you have children and get divorced. I was very hurt and very angry and so was she. But when kids are involved, you either become friends with respect or you become mortal enemies.
+ - It’s important to be yourself. What art does for everyone, helps you understand yourself and in a distilled way, whether it’s a painting or a scene in acting or a joke. It distills something about everyday life that can be important to you.
+ - I think death is just a transition to another state of consciousness.
+ - I liked being Doc Holliday. It’s fun to be insightful and aristocratic, to stand up for your friend and make sacrifices for him. It was fun to be arrogant like he was and have the goods to back it up. He was a very noble character. Although, let’s not forget, he did kill a lot of people.
+ - I saw the horizon. It’s out there. And though I may not ever be able to touch it, it’s worth reaching for.
+ - There was such a relationship between the buffalo and the American Indian – the Indians would eat them, live inside their pelts, use every part of the body. There was almost no separation between the people and the animals.
+ - The Secret Service is a strange group. They don’t really have a leader. It’s not set up like a military. Each one is supposed to be able to act like a leader when something comes up.
+ - My father was raised in the mountains of New Mexico, and he picked cotton for a dollar a day. He was working for the family from the time he was 7.
+ - Unless a Western’s made money – doesn’t matter who made the money, doesn’t matter what the subject is – if the last one didn’t make any money, you can’t make another one for a four-year period. Westerns more than any genre.
+ - I can safely say that no one who has ever won an Oscar didn’t want to win an Oscar.
+ - A wonderful but kind of a terrible truth about acting is that you actually get to a point where you become content with an impossible task: it is really impossible to properly prepare. You kind of have to start over every time.
+ - Hollywood is wonderful, but it does eat its young.
+ - You just don’t understand humility until you have children and get divorced.
+ - I never cultivated a personality. Almost everyone who is really famous has cultivated a personality.
+ - I was in love with Tina Goodman since I was three and her parents came popping out of the trash cans. I think it made a big impression on me.
+ - I love that Bob Dylan asked me to be in the first movie he wrote.
+ - YouTube is a new experience for me-someone threw a laptop in front of me and showed me Nic Cage going mad, which has got to be the funniest thing on YouTube. He’s so courageous.
+ - There’s nothing good about divorce.
+ - I don’t think of my life as a cliche, but I’m a cliche eccentric. Complete with a strange name – I mean, who’s named Val? How many Vals do you know? I mean, really?
+ - Postman is a media analyst and his theory is that television doesn’t influence our culture, but that it is our culture and the presidency and anything that relies on television.
+ - Mark Twain is as big as America. He really is.
+ - Mark Twain had a way of telling stories that shifts your consciousness away from labels.
+ - So it’s always helped me to have a foundation, an ideal to strive for and goals. It’s hard for me to be disciplined and plan things.
+ - Again, in Wag the Dog, war has to be declared by an act of congress. But if you go to war, you don’t have to declare war. You’re just at war and we did that, which is not legal.
+ - Without deadlines and restrictions I just tend to become preoccupied with other things.
+ - Peter Sellers was just a brilliant actor, and also comedic.
+ - There was no one around called ‘Val’ when I was young, so I wanted to be John or Bill. Now I like it.
+ - Give me the compliments. I love compliments. I was born modest, but it wore off.
+ - I don’t make any pretense about being normal. I’m not.
+ - I’m a character actor, but I look like a leading man.
+ - I think part of my reputation has to do with the difficult roles I’ve played. Actors do tend to get identified with their characters.
+ - A lot of old guys in movies are like cowboys – they talk like cowboys and they dress like cowboys.
+ - It’s a really weird thing, modern divorce. I found out I was getting divorced on television. That was kind of weird.
+ - Acting is not a science. Anybody who believes that their success exists in relation to their goals is deluding themselves; unless you think of a career in terms of financial goals. I have nothing against Tom Cruise, but he must have a large capacity to deal with the business side of movies.
+ - I respect people who can do both careers, like Will Smith and a couple of other people who have done it, but I just don’t know when they sleep.
+ - It may or may not sound pretentious. But I’ve turned down, consciously and specifically, many jobs I knew would have been a pretty surefire way to go about making a lot of money, being recognized and gaining power in the industry.
+ - In order to be an artist and an actor, like tackling the classics in the theater as well as film, there’s lots of discipline, lots of work, physical work put in.
+ - A hundred million dollars in the art world is a substantial amount of cash to do anything.
+ - There are lots of actors who are awful people, but nobody talks about them being awful because they’ve made billions.
+ - I probably complained more when I was younger. The movie industry can be frustrating but I think sometimes I could have been more helpful, approaching a film as a partnership rather than being critical of a director’s ignorance. I wasn’t sensitive to the fact that it’s very hard to direct.
+ - Daryl Hannah likes to goof around with fashion, but she does have pretty impeccable taste.
+ - Interesting characters are troubled characters. The only problem I’ve had in my business is very few people – unfortunately, very vocal – confusing the difficult role that I play with me. I play these guys, but I’m not like them. I’ve been accused of bein.
+ - I don’t believe in death. I think it’s just a state of mind.
+ - Well I sure had been looking for a comedy for years without any success.
+ - It was very serious and I wanted to do something really different so there was this comedy called TOP SECRET.
+ - Being creative and making money in the theater is very challenging.
+ - News is something that happens that matters to you, which is not most of what we watch on television.
+ - I live on a ranch that’s larger than Manhattan. That’s a weird circumstance.
+ - If you look up the definition of news in the dictionary, it isn’t what you watch on TV.
+ - Why do women get paid less money? It doesn’t make any sense.
+ - Art is a way to get strength from something that is life-affirming. It can be quite violent and still be life-affirming.
+ - The first play I saw was a Samuel Beckett play which was great.
+ - Acting is very immediate.
+ - Mark Twain created a new type of literature and not a lot of people can say that. Not a lot of people can say they’re absolutely original and completely self-made.
+ - Warren Beatty once told me that if someone’s really stuck on you, find them their next boyfriend. But I could never do that.
+ - Big movies are fun and it’s great to fly on private jets and make a lot of money and all the things that are connected with Hollywood, but they take a lot of your own life.
+ - I just don’t think I’ve ever been comfortable at public functions and selling myself as an entity.
+ - My perception is that I’ve never done anything but work really hard.
+ - I’m going to put a museum on my ranch and people keep saying, ‘That’s a huge idea.’ Yeah, it’s big, but not bigger than the average big movie. A hundred million dollars in the art world is a substantial amount of cash to do anything. That’s maybe a big gallery’s total sales for a given year.
+ - If you’re in a hit movie, it’s good to be in another hit movie straight away.
+ - It’s the persona that makes you a leading actor. A leading actor has something extra that’s fun to watch. But it isn’t usually about acting.
+ - I’ve found that Hollywood’s a really honest business. They don’t pull any punches. They tell you exactly what you want-I want the fake breasts and the flat car and the big pool. You know, they’re real up-front about it.
+ - I’m very wary of news on television.
+ - Most films made about the future acquiesce toward death, and I don’t want to be told how to define my future.
+ - It is a weird thing that actors have people applaud when they’re done working. I still find that entertaining.
+ - Warner Bros offered me the next Batman, and the only reason that I didn’t do it was because of The Saint.
+ - I never had a business plan. I did, actually – I’m lying. My business plan was to get lucky, and I did; that was great. And then my second business plan was to get lucky again, and there, I faltered.
+ - That’s the joy of art – it should be dangerous and challenging but it’s just art – it’s safe.
+ - There are only three reasons to do a movie: the cast, the director, the role. Like I say, you live in a minute of screen time, but to prepare for the minute takes much more than a day. You’d better be excited about what those moments are, even if they’re the hardest moments. Or the smallest.
+ - It’s the first time that I’ve ever had an art show based on a film, but it’s a photography collage.
+ - Jim Thompson understood something about the serial killer before the psychology caught up to it, which is that they are detached to it and they do want to get caught.
+ - Hollywood’s like a warehouse. It’s just a place that you go. What’s interesting in the warehouse has to do with the creative people.
+
+79 quotes

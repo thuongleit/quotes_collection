@@ -1,0 +1,42 @@
+ - After the rain, the sun will reappear. There is life. After the pain, the joy will still be here. ~~Walt Disney
+ - All birds find shelter during a rain. But eagle avoids rain by flying above the clouds. Problems are common, but attitude makes the difference. ~~Abdul Kalam
+ - Rainy days should be spent at home with a cup of tea and a good book. ~~Bill Watterson
+ - The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can’t be found. ~~Ernest Hemingway
+ - Tomorrow may rain, so I’ll follow the sun. ~~Paul McCartney
+ - It can’t rain all the time. ~~James O'Barr
+ - There’s always a rainbow at the end of every rain. ~~Prince
+ - Don’t be sad! Because God sends hope in the most desperate moments. Don’t forget, the heaviest rain comes out of the darkest clouds. ~~Rumi
+ - Wisdom is like the rain. Its source is limitless, but it comes down according to the season. ~~Rumi
+ - Heaven knows we need never be ashamed of our tears, for they are rain upon the blinding dust of earth, overlying our hard hearts. I was better after I had cried, than before – more sorry, more aware of my own ingratitude, more gentle. ~~Charles Dickens
+ - The Noah rule: Predicting rain doesn’t count; building arks does. ~~Warren Buffett
+ - My sorrow, when she’s here with me, thinks these dark days of autumn rain are beautiful as days can be; she loves the bare, the withered tree; she walks the sodden pasture lane. ~~Robert Frost
+ - August rain: the best of the summer gone, and the new fall not yet born. The odd uneven time. ~~Sylvia Plath
+ - And when it rains on your parade, look up rather than down. Without the rain, there would be no rainbow. ~~Gilbert K. Chesterton
+ - You can hide beneath the covers and study your pain, make crosses from your lovers, throw roses in the rain. Waste your summer praying in vain, for a savior to rise from these streets. ~~Bruce Springsteen
+ - If it’s raining you can’t fix the roof, if it’s not raining it doesn’t need to be fixed. ~~Jim Rohn
+ - The common people pray for rain, healthy children and a summer that never ends. It is no matter to them if the high lords play their game of thrones, so long as they are left in peace. ~~George R.R. Martin
+ - At night I dream that you and I are two plants that grew together, roots entwined, and that you know the earth and the rain like my mouth, since we are made of earth and rain. ~~Pablo Neruda
+ - And you’ll always love me won’t you? Yes And the rain won’t make any difference? No. ~~Ernest Hemingway
+ - We inter-breath with the rain forests, we drink from the oceans. They are part of our own body. ~~Nhat Hanh
+ - The three great elemental sounds in nature are the sound of rain, the sound of wind in a primeval wood, and the sound of outer ocean on a beach. ~~Henry Beston
+ - That’s a waste of time. If you really understand Zen. You can use any book. You could use the Bible. You could use Alice in Wonderland. You could use the dictionary, because... the sound of the rain needs no translation. ~~Alan Watts
+ - Exhaustion pays no mind to age or beauty. Like rain and earthquakes and hail and floods. ~~Haruki Murakami
+ - Never duck responsibility, its like running from the rain only to fall into the river. ~~Farrah Gray
+ - I am suddenly left alone again on the sunny path, with a memory of the rain. ~~Azar Nafisi
+ - The way I see it, if you want the rainbow, you gotta put up with the rain. When I’m inspired, I get excited because I can’t wait to see what I’ll come up with next. Find out who you are and do it on purpose. ~~Dolly Parton
+ - No individual rain drop ever considers itself responsible for the flood. ~~John Ruskin
+ - When we look deeply into the heart of a flower, we see clouds, sunshine, minerals, time, the earth, and everything else in the cosmos in it. Without clouds there could be no rain, and without rain there would be no flower. ~~Nhat Hanh
+ - I woke to the sound of rain. ~~Sylvia Plath
+ - It was night, and the rain fell; and falling, it was rain, but, having fallen, it was blood. ~~Edgar Allan Poe
+ - Thanks to the long days of rain, the blades of grass glowed with a deep-green luster, and they gave off the smell of wildness unique to things that sink their roots into the earth. ~~Haruki Murakami
+ - One can find so many pains when the rain is falling. ~~John Steinbeck
+ - There will be a rain dance Friday night, weather permitting! ~~George Carlin
+ - You’re not supposed to have iron bars around you – no one is supposed to have that. You’re supposed to fall down hills and get lonely, and find your own food and get wet when it rains. That’s what happens when you’re alive. ~~Sonya Hartnett
+ - Cautiously, I allowed myself to feel good at times. I found moments of peace in cheap rooms just staring at the knobs of some dresser or listening to the rain in the dark. The less I needed the better I felt. ~~Charles Bukowski
+ - There may be a time when we’ll attend Weather Theatres to recall the sensation of rain. ~~Jim Morrison
+ - And to tell the truth I don’t want to let go of the wrists of idleness, I don’t want to sell my life for money, I don’t even want to come in out of the rain. ~~Mary Oliver
+ - I don’t consider myself a pessimist. I think of a pessimist as someone who is waiting for it to rain. And I feel soaked to the skin. ~~Leonard Cohen
+ - No person has the right to rain on your dreams. ~~Marian Wright Edelman
+ - Let there be sunshine, let there be rain, let the broken hearted love again. ~~Bruce Springsteen
+
+40 quotes

@@ -1,0 +1,41 @@
+ - If you know only one language, you’re a prisoner, stuck in the tyranny of that one language.
+ - When you meditate you discover over and over again that you are not a prisoner of your mind.
+ - Freedom has no history.
+ - I’m not convinced that what are traditionally considered to be male energies or qualities or female energies or qualities really have as much to do with gender as many people think they do.
+ - We are all capable of greatness when we know without any doubt that we are directly connected to a higher purpose.
+ - In my experience, men are not necessarily less sensitive or compassionate than women are, and women are not necessarily any less aggressive or competitive than men are – as a matter of fact, often they are more so!
+ - To campaign against colonialism is like barking up a tree that has already been cut down.
+ - When you come together with your other half, you immediately experience a sense of wholeness and completeness.
+ - It is true that women tend to be more identified with their bodies because in this crazy world, both men and women measure women’s value as human beings in relationship to their physical appearance.
+ - There was just too much evidence, from too many witnesses, pointing too many fingers at Ryan and his colleague for either defense team to have been able to portray it as a coincidence or a witch hunt or anything short of widespread corruption. And that’s why we see this verdict.
+ - We have to be willing to give up all the injustices of the past that did exist – and that do exist right now. When we become interested in liberation, we then become interested in that which transcends time.
+ - The excitement that you were feeling about a special, unique path for yourself as a woman is all part of your identification with and attachment to being female. And that’s ultimately all ego.
+ - Almost all the ideas we have about being a man or being a woman are so burdened with pain, anxiety, fear and self-doubt. For many of us, the confusion around this question is excruciating.
+ - I am already inherently full and complete as I am. Man doesn’t need woman and woman doesn’t need man in order to experience his or her inherent fullness.
+ - I’m suspicious of any man or woman who approaches their own liberation with any kind of gender bias.
+ - Stillness is training for action.
+ - In the new enlightenment, the reason we are driven to become one with the life-process is not merely to experience some form of mystical oneness with everything. We strive to become one with it for the biggest reason there could be – so we can ultimately take responsibility for where it’s going.
+ - The executive branch maneuvered this result deftly.
+ - Its taken 14 billion years for matter to gain the capacity to become conscious of itself. If this is true, it wouldn’t make any sense that the whole point of enlightenment would be to escape from the whole process at the very instant that the universe is beginning to awaken to itself.
+ - Anyone who wants to be truly free must be willing to stand alone in the truth.
+ - Our relationship to reality and to our experience is all based upon the ideas in our mind that we’re always trying to live up to.
+ - The mess of the human condition is that fundamental trust has not yet been realized. The true value of profound spiritual experience lies in the discovery of that fundamental trust.
+ - It is not enough to be well-intentioned; one must strive to put those intentions into action in a capable way. One must consider the effect his actions will have on others. Looked at like this, to persist in ignorance is itself dishonorable.
+ - Our true nature is free of any and all notions of gender, of any notions of difference whatsoever.
+ - Everybody wants to get enlightened but nobody wants to change.
+ - A lot of people in spiritual life use the awareness of difference, and the spiritual glorification of difference, as a justification to indulge in that which is ultimately unreal.
+ - Those of us who have transcended mythical belief systems know without any doubt that there is no God up in the sky. But when we awaken to what I call the evolutionary impulse – the mysterious passion to evolve, to become, to develop on every level-we rediscover who God is.
+ - As far as I’m concerned, the spiritual life is just like any other endeavor-you can succeed or fail. And when the goal is actual evolution beyond ego in an intersubjective context, success or failure is plain for all to see.
+ - We have been very conditioned by the cultures that we come from and are usually very identified with the particular gender that we happen to be a member of.
+ - Spiritual experiences and their results are not meant for the individual. They are for the evolution of the whole race.
+ - What you’re getting excited about is not A face, but a feminine face.
+ - Most men are very attached to the idea of being male, and usually experience a lot of fear and insecurity around the idea of being a man. Most women are very identified with their gender, and also experience a tremendous amount of fear and insecurity.
+ - Men are recognizing that they have been forced to conform to a very narrow and rather two-dimensional picture of maleness and manhood that they have never had the freedom to question.
+ - One of the most extraordinary things about being a spiritual teacher is the rare privilege of being able to look deeply into the very souls of many human beings at the same time.
+ - We’re making far too big a deal out of our sexual preferences. It’s just another form of narcissism, and I think it can be a big problem and a tremendous obstacle.
+ - When a human being becomes so still that they begin to lose awareness of their gender, and they are simply looking into that abyss where there is no notion of self whatsoever, the world disappears. And that’s really the only place to go. It’s the only place to remain.
+ - There’s nothing tantric about my particular view on life.
+ - We really have to be willing to find out who we are instead of rebelling for the equal rights that we’ve been denied, that we do deserve.
+ - Hopefully, America will really get a sense of how justice can be served in this country. And hopefully, they’ll forget the Simpson trial.
+
+39 quotes

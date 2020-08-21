@@ -1,0 +1,93 @@
+ - The reward is in the risk.
+ - I’ve given him more mixed signals than a dyslexic Morse code operator.
+ - I am bigger than the box I’m in.
+ - I wanted to talk to someone. But who? It’s moments like this, when you need someone the most, that your world seems smallest.
+ - I can be a badass DJ when I want, but I am also an insufferable music snob.
+ - I want to believe there is a somebody out there for me. I want to believe that I exist to be there for that somebody.
+ - I am stronger than words and I am bigger than the box I’m in, and then I see her in the crowd and I fall apart -I am listening and I am listening because what I’m playing isn’t something I’m thinking about, it’s something I’m feeling all over.
+ - Therefore. Ergo. Erg. Argh. Ugh.
+ - Teenage boys cannot be trusted. Their intentions are not pure.
+ - I’m told there’s no going back. So I’m choosing forward.
+ - The important people in our lives leave imprints. They may stay or go in the physical realm, but they are always there in your heart, because they helped form your heart. There’s no getting over that.
+ - It’s a total lie to say there’s only one person you’re going to be with for the rest of your life. If you’re lucky – and if you try really hard – there will always be more than one.
+ - Life is funny, baby, and that’s no joke.
+ - So this chocolate princess. Her knight in shining armor is the Easter Bunny.
+ - The complexity embedded in the different levels of meaning that go along with the words “I love you” ought to be a whole mindfuck of a video game.
+ - Everyone on this island wants something kept quiet. I want to roar.
+ - The desert adapts. The people adapt. Live. Die. Struggle. Suffer. Create. The people in the real world beyond Demesne’s ring are not all manufactured perfection. They deal.
+ - A dream deferred is a dream denied.
+ - Friendship is love as much as any romance. And like any love, it’s difficult and treacherous and confusing. But in the moment when your knees touch, there’s nothing else you could ever want.
+ - We believe in the wrong things. That’s what frustrates me the most. Not the lack of belief, but the belief in the wrong things. You want meaning? Well, the meanings are out there. We’re just so damn good at reading them wrong.
+ - Be careful what you’re doing, because no one is ever who you want them to be. And the less you really know them, the more likely you are to confuse them with the girl or boy in your head.
+ - Perhaps it’s not that I’m frigid – it’s that once I decide I like a guy, I turn into a raging idiot, unfit for public appearances.
+ - I’m thinking I would like to dance in the rain with this person. I would like to lie next to him in the dark and watch him breathe and watch him sleep and wonder what he’s dreaming about and not get an inferiority complex if the dreams aren’t about me.
+ - You should never wish for wishful thinking.
+ - When in doubt, ingest carbs.
+ - I mean, I think I am basically a cool girl, but I am also a pain in the ass.
+ - Wherever I went, I was on the wrong end of the stampede.
+ - We all just took the bookstore at its word, because if you couldn’t trust a bookstore, what could you trust?
+ - You bookish little pervert.
+ - Somewhere between a friend and acquaintance – a frequaintance, as it were.
+ - Better to end this dream before it becomes a nightmare.
+ - Answer all the questions that I’m too afraid to ask.
+ - This must be part of Mother Nature’s master plan – making these boys so irresistibly cute, in such a naughty way, that the purity of their intentions becomes irrelevant.
+ - Listen to me: I never married because I was too easily bored. It’s an awful, self-defeating trait to have. It’s much better to be too easily interested.
+ - Wow. I feel like in this riot of people, I have been kicked in the stomach, but by the giddy police. Forget about the need for oxygen. My mouth wants to go back to the place it just left.
+ - The humans create life, and senselessly cause death. For nothing.
+ - I particularly loved the adjective bookish, which I found other people used about as often as ramrod or chum or teetotaler.
+ - So much is happening and yet nothing at all.
+ - Nick and I could become goodwill ambassadors for the city now that the porno shops on 42nd Street are gone. Must make mental note to contact mayor.
+ - All this hoping for nothing-or someone-that’s maybe hopeless.
+ - I feel like there’s so much darkness in all of my books.
+ - Things change all the time, mostly in little ways.
+ - The universe doesn’t decide what’s right or not right. You do.
+ - The best is when we all go at once, like an army of interrelated popcorn zombies who laugh the same laughs and gasp the same gasps and aren’t so germ-phobic with each other that we won’t share a ginormous Coke with one straw. Family is useful like that.
+ - We’re better off. But I don’t know if the world’s better off. I don’t know if the two are the same thing.
+ - But I know the difference. Everyone else is a ghost. I exist here alone, stranded by choice. Deserted.
+ - He’s not my step brother technically, so I think it’s okay that I kissed him once.
+ - The reward is in the risk. You can’t stay hidden inside Grandpa’s overprotective cloak forever. You’ve seemed like you needed to grow out of that for a while. Mom and Dad going away, and the red notebook, these things just helped. Now it’s up to you to.
+ - What’s better, I wonder – to be a toy for the humans, or to control your own destiny, even if the only way to do so is suicide?
+ - Because I withered under the glare of an actual invitation, I was a firm believer in preventive prevarication – in other words, lying early in order to free myself later on.
+ - Well sure, who doesn’t need a boyfriend? but realistically, those exotic creatures are hard to come by. At least a quality one.
+ - Books. I’d probably spend all my time alone and lost in books if I could. It’s easier that way.
+ - Well what’s in your Amazonian hope chest?
+ - I’m liking that I can throw any kind of sentence at her without worrying it’s too out there.
+ - Once upon a time, Sleeping Beauty decided to take a nap from which she would never wake up.
+ - One of the failures of cellular communication is that tiredness often comes across as sadness.
+ - We always see the worst in our selves. Our most volnerable selves. We need someone to get close enough to tell us that we’re wrong. Someone we trust.
+ - There was no word in the dictionary adequate to describe the sensation other than sensational.
+ - I am a classic ‘Star Trek’ fanatic.
+ - That’s what I like about sports. No matter if everyone playing the game speaks completely different languages, on the field, or the court, wherever they are playing, the language of moves and passes and scores is all the same. Universal.
+ - Who else would find me at just this moment? First he found me drunk, now he found me cleaning up poo from a barking pony who was about to go into attack mode.
+ - I mean, like most guys, you carry around this girl in your head, who is exactly who you want her to be. The person you think you will love the most. And every girl you are with gets measured against this girl in your head.
+ - It broke the spell. It’s not that I stopped being happy. I was still inexplicably, utterly happy. But suddenly the happiness had implications.
+ - Do you still Kill Gerbils?
+ - Males are the most incomprehensible species.
+ - So he’s worth a second shot? The more apt question, my dear, is: are you?
+ - The handwriting was a girl’s. I mean, you can tell. That enchanted cursive.
+ - The only use she has for the word fun is to make the word funeral.
+ - I’ve always resented Hermione, because I wanted to be her so badly and she never seemed to appreciate as much as I thought she should that she got be her. She got to live at Hogwarts and be friends with Harry and kiss Ron, which was supposed to happen to me.
+ - When is the night over? Is it the start of sunrise or the end of it? Is it when you finally go to sleep or simply when you realize that you have to?
+ - I feel like you may be a special and kind person. And I would like to make it my business to know special and kind people. Especially if they are boys my age.
+ - Dumped doesn’t even begin to describe it. If you’re going to use a trash metaphor, incinerated is more like it.
+ - Can we try to be wise with each other for a very long time?
+ - I walked inside Macy’s and faced the pathetic spectacle of a department store full of shoppers, none of whom were shopping for themselves. Without the instant gratification of a self-aimed purchase, everyone walked around in the tactical stupor of the financially obligated.
+ - How come princesses always have some huge flaw that can cause their downfall?
+ - I was horribly bookish, to the point of coming right out and saying it, which I knew was not socially acceptable.
+ - They were tricky, those demons. Could they be trusted? Of course they could be trusted. She’d created them. She owned them. They wouldn’t lead her astray.
+ - Usually my characters, though young, tend to be street-wise.
+ - But, you see, that’s the luxury of being a lout – you get to be selective about when you care and when you don’t. The rest of us get stuck when your care goes shallow.
+ - People come to New York to be different, but I go to Starbucks to be the same.
+ - I’ve always been sort of a closet sci-fi geek.
+ - But she’s not, and I am left to wonder on my own: How does this work, the getting to know a new guy without revealing too much desperation for his undivided attention?
+ - Bruises mapped my body from bumping into tables and tripping over curbs while walking with a book in my hand, my eyes focused on the pages instead of the live space around me.
+ - I could become a nun even if I am a non-believer. I’ll learn to fake it like Nick did with me. I will minister the gospel of compassion and kindness and please, always use a condom, from famine-stricken nations to war-torn dead zones. It’s possible I might become a nun who kisses other nuns...
+ - I don’t know what boldness came over me, but the resolute heaviness of Dash’s demeanor threatened to crush my soul. My pinky finger crept over and nestled against his, for comfort. Like a magnet, his pinky finger latched onto and intertwined with mine. I like magnets a whole lot.
+ - People are like that, judging you before they know you.
+ - It still might be a shock. To realize you are just one story walking among millions.
+ - Hope and belief. I’d always wanted hope, but never believed that I could have such an adventure on my own. That I could own it. And love it. But it happened.
+ - No one would want to read a book in which I explain the science of cloning because it would be very dull and it would also make no sense.
+ - From a distance, a clone’s luminous eyes are meant to draw in humans and make them feel safe. Up close, the eyes appear hollow. Because of that, humans tend not to look into our eyes too closely, which I’ve been told is socially preferable, as eyes without souls behind them can be frightening.
+ - Lou’s such an old punk he was around when the Ramones were junkie hustlers first and musicians second, when punk meant something other than a mass-marketing concept designed to help the bridge-and-tunnel crowd feel cool.
+
+91 quotes

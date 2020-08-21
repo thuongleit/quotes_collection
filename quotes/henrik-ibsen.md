@@ -1,0 +1,122 @@
+ - The strongest man in the world is he who stands most alone.
+ - A thousand words will not leave so deep an impression as one deed.
+ - A forest bird never wants a cage.
+ - The strong must learn to be lonely.
+ - What’s a man’s first duty? The answer is brief: To be himself.
+ - If only I could master that demon of procrastination that goes about like a roaring lion and devours all my good intentions, I should become the most punctual man in the world.
+ - If you doubt yourself, then indeed you stand on shaky ground.
+ - A friend married is a friend lost.
+ - There is always a risk in being alive, and if you are more alive, there is more risk.
+ - NORA: I must stand on my own two feet if I’m to get to know myself and the world outside. That’s why I can’t stay here with you any longer.
+ - The majority is always wrong; the minority is rarely right.
+ - Our whole being is nothing but a fight against the dark forces within ourselves.
+ - The spirit of truth and the spirit of freedom-they are the pillars of society.
+ - Money may be the husk of many things but not the kernel. It brings you food, but not appetite; medicine, but not health; acquaintance, but not friends; servants, but not loyalty; days of joy, but not peace or happiness.
+ - The greatest victory is defeat.
+ - A community is like a ship; everyone ought to be prepared to take the helm.
+ - Now I am steel-set: I follow the call to the clear radiance and glow of the heights.
+ - I must make up my mind which is right – society or I.
+ - The most dangerous enemy of the truth and freedom amongst us is the compact majority.
+ - Castles in the air – they are so easy to take refuge in. And so easy to build too.
+ - You have never loved me. You have only thought it pleasant to be in love with me.
+ - Nothing is impossible that one desires with an indomitable will.
+ - The majority is never right. Never, I tell you! That’s one of these lies in society that no free and intelligent man can help rebelling against. Who are the people that make up the biggest proportion of the population – the intelligent ones or the fools?
+ - Poetry is to hold judgment on your soul.
+ - It is inexcusable for scientists to torture animals; let them make their experiments on journalists and politicians.
+ - In the decisive moment I won the victory over myself. I chose to live. And believe me, it takes courage to choose life under those circumstances.
+ - Happiness is worth a daring deed; we are both free if we but will it, and then the game is won.
+ - A woman cannot be herself in the society of the present day, which is an exclusively masculine society, with laws framed by men and with a judicial system that judges feminine conduct from a masculine point of view.
+ - Many a man can save himself if he admits he’s done wrong and takes his punishment.
+ - It is the very mark of the spirit of rebellion to crave for happiness in this life.
+ - Helmer: “Before all else you are a wife and a mother.” Nora: “That I no longer believe. I believe that before all else I am a human being.”
+ - I’m inclined to think we are all ghosts-every one of us. It’s not just what we inherit from our mothers and fathers that haunts us. Its all kinds of old defunct theories, all sorts of old defunct beliefs, and things like that.
+ - An unromantic poem I mean to make, of one who only lives for duty’s sake.
+ - Different people have different duties assigned them by Nature; Nature has given one the power or the desire to do this, the other that. Each bird must sing with his own throat.
+ - The man whom God wills to slay in the struggle of life – he first individualizes.
+ - And what if I did run my ship aground; oh, still it was splendid to sail it!
+ - One should never put on one’s best trousers to go out to fight for freedom.
+ - The starving poet business is no good nowadays.
+ - One of the qualities of liberty is that, as long as it is being striven after, it goes on expanding. Therefore, the man who stands in the midst of the struggle and says, ‘I have it,’ merely shows by doing so that he has just lost it.
+ - Friends are to be feared, not so much for what they make us do as what they keep us from doing.
+ - Marriage! Nothing else demands so much of a man.
+ - In great memories there lies the seed of growth.
+ - So to conduct one’s life as to realize oneself-this seems to me the highest attainment possible to a human being. It is the task of one and all of us, but most of us bungle it.
+ - To live is to war with trolls.
+ - This is life! It can harden and it can exalt!
+ - A marriage based on full confidence, based on complete and unqualified frankness on both sides; they are not keeping anything back; there’s no deception underneath it all. If I might so put it, it’s an agreement for the mutual forgiveness of sin.
+ - Everything I touch seems destined to turn into something mean and farcical.
+ - To live is to war with trolls in heart and woul. To write is to sit in judgement on oneself.
+ - You see, there are some people that one loves, and others that perhaps one would rather be with.
+ - Rob the average man of his life-illusion, and you rob him of his happiness at the same stroke.
+ - There are two kinds of spiritual law, two kinds of conscience, one in man and another, altogether different, in woman. They do not understand each other; but in practical life the woman is judged by man’s law, as though she were not a woman but a man.
+ - Oh yes, right – right. What is the use of having right on your side if you have not got might?
+ - I am in revolt against the age-old lie that the majority is always right.
+ - Mrs LINDE: When you’ve sold yourself once for the sake of others, you don’t do it second time.
+ - I don’t imagine you will dispute the fact that at present the stupid people are in an absolutely overwhelming majority all the world over.
+ - Home life ceases to be free and beautiful as soon as it is founded on borrowing and debt.
+ - The costliness of keeping friends does not lie in what one does for them, but in what one, out of consideration for them, refrains from doing.
+ - Public opinion is an extremely mutable thing.
+ - Happiness is above all things the calm, glad certainty of innocence.
+ - There is so much falsehood both at home and at school. At home one must not speak, and at school we have to stand and tell lies to the children.
+ - To see one’s goal and to drive toward it, steeling one’s heart, is most uplifting.
+ - The sea possesses a power over one’s moods that has the effect of a will. The sea can hypnotize. Nature in general can do so.
+ - There is something so indescribably sweet and satisfying in the knowledge that a husband or wife has forgiven the other freely, and from the heart.
+ - It is no use lying to one’s self.
+ - Oh, yes – you can shout me down, I know! But you cannot answer me. The majority has might on its side – unfortunately; but right it has not.
+ - The spectacles of experience; through them you will see clearly a second time.
+ - To crave for happiness in this world is simply to be possessed by a spirit of revolt. What right have we to happiness?
+ - Look into any man’s heart you please, and you will always find, in every one, at least one black spot which he has to keep concealed.
+ - Oh, life would be all right if we didn’t have to put up with these damned creditors who keep pestering us with the demands of their ideals.
+ - I’m plotting revolution against this lie that the majority has a monopoly of the truth. What are these truths that always bring the majority rallying round? Truths so elderly they are practically senile. And when a truth is as old as that, gentlemen, you can hardly tell it from a lie.
+ - It’s a release to know that in spite of everything a premeditated act of courage is still possible.
+ - Whether I pound or am being pounded, all the same there will be moaning!
+ - Helmer: I would gladly work night and day for you. Nora- bear sorrow and want for your sake. But no man would sacrafice his honor for the one he loves. Nora: It is a thing hundreds of thousands of women have done.
+ - Before I write down one word, I have to have the character in my mind through and through. I must penetrate into the last wrinkle of his soul.
+ - A thousand words can’t make the mark a single deed will leave.
+ - It is not by spectacular achievements that man can be transformed, but by will.
+ - What is the difference in being alone with another and being alone by one’s self?
+ - Most critical fault-finding, when reduced to its essentials, simply amounts to reproach of the author because he is himself – thinks, feels, sees, and creates, as himself, instead of seeing and creating in the way the critic would have done.
+ - The younger generation will come knocking at my door.
+ - The devil is compromise.
+ - Really to sin you have to be serious about it.
+ - Each bird must sing with his own throat.
+ - What’s to become of the morally sound? Left out in the cold, I suppose. We must heal the sick.
+ - But a scientific man must live in a little bit of style.
+ - Labor and trouble one can always get through alone, but it takes two to be glad.
+ - Oh, law and order! I often think it is that that is at the bottom of all the misery in the world.
+ - I believe that, before all else, I’m a human being, no less than you.
+ - I go to scale the Future’s possibilities! Farewell!
+ - Ive had the best possible chance of learning that what the working-classes really need is to be allowed some part in the direction of public affairs, Doctorto develop their abilities, their understanding and their self-respect.
+ - Marriage is something you have to give your whole mind to.
+ - If I cannot be myself in what I write, then the whole is nothing but lies and humbug.
+ - Oh, one soon makes friends with invalids; and I need so much to have someone to live for.
+ - You don’t get nothing for nothing in this life.
+ - Nobody can put a character on paper without – at any rate in part and at times – sitting as a model for it himself.
+ - I hold that man is in the right who is most closely in league with the future.
+ - I propose to raise a revolution against the lie that the majority has the monopoly of the truth.
+ - The majority never has right on its side.
+ - Do you know what we are those of us who count as pillars of society? We are society’s tools, neither more nor less.
+ - To die in agony upon a cross Does not create a martyr; he must first Will his own execution.
+ - The great secret of power is never to will to do more than you can accomplish.
+ - Bigger things than the State will fall, all religion will fall.
+ - I’m afraid for all those who’ll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!
+ - There can be no freedom or beauty about a home life that depends on borrowing and debt.
+ - The man-at-arms is the only man.
+ - In your power, all the same. Subject to your will and your demands. No longer free! No! That’s a thought I’ll never endure! Never.
+ - That is the accursed thing about small surroundings – they make the soul small.
+ - It’s not only what we have inherited from our father and mother that walks in us. It’s all sorts of dead ideas, and lifeless old beliefs, and so forth. They have no vitality, but they cling to us all the same, and we can’t get rid of them.
+ - Almost everyone who has gone to the bad early in life has had a deceitful mother.
+ - What sort of truths are they that the majority usually supports? They are truths that are of such advanced age that they are beginning to break up. And if a truth is as old as that, it is also in a fair way to become a lie, gentlemen.
+ - People who don’t know how to keep themselves healthy ought to have the decency to get themselves buried, and not waste time about it.
+ - These heroes of finance are like beads on a string; when one slips off, all the rest follow.
+ - Don’t use that foreign word ‘ideals.’ We have that excellent native word ‘lies.’
+ - Everything that I have written is closely related to something that I have lived through.
+ - A party is like a sausage machine, it grinds up all sorts of heads together into the same baloney...
+ - It’s a liberation to know that an act of spontaneous courage is yet possible in this world. An act that has something of unconditional beauty.
+ - The great task of our time is to blow up all existing institutions to destroy.
+ - The worst that a man can do to himself is to do injustice to others.
+ - It was then that I began to look into the seams of your doctrine. I wanted only to pick at a single knot; but when I had got that undone, the whole thing raveled out. And then I understood that it was all machine-sewn.
+ - I am sticking as closely to my subject as I can; for my subject is precisely this, that it is the masses, the majority.
+ - There is nothing so enervating and exhausting as this hopeless waiting. I dare say this is only a transition period. I will and shall have a victory some day. If the powers that be have shown me so little favor as to place me in this world and make me what I am, the result must be accordingly.
+
+120 quotes

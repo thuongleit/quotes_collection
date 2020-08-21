@@ -1,0 +1,54 @@
+ - Islam is a religion in which God requires you to send your son to die for him. Christianity is a faith in which God sends his son to die for you.
+ - In a free society, government reflects the soul of its people. If people want change at the top, they will have to live in different ways. Our major social problems are not the cause of our decadence. They are a reflection of it.
+ - No nation can survive without passing its heritage, language and, yes, faith to the next generation. A country must be built on something substantial and if the cultural elitists think it can be built on ‘diversity,’ that is a foundation of shifting sand.
+ - Evil cannot be accommodated. It must be defeated.
+ - I am not robbed by people who have more money than me. I am robbed by a government that wants to penalize my industry and give increasing portions of what I earn to people who do not emulate my principles, morals and ethics.
+ - Government has a legitimate function, but the private sector has one too, and it is superior. In other words, people are better than institutions.
+ - One mark of a deteriorating society is when people cannot discern between truth and lies. Another is that they don’t care and will believe whatever their itching ears want to hear.
+ - It is easier to drive a stake through the heart of a blood-sucking vampire than to kill off a money-sucking and useless government program.
+ - I sense a general hostility toward Christianity among the literary and media establishments in our country. There is a tendency to keep Christian thinking out of the mainstream, to marginalize it and make it look like a product of ‘fringe’ groups.
+ - People, like water, will run downhill, seeking their lowest level unless something interdicts them.
+ - We tolerate, even promote, many things we once regarded as evil, wrong, or immoral. And then we seek “explanations” for an act that seems beyond comprehension. Remove societal restraints on some evils and one can expect the demons to be freed to conduct other evil acts.
+ - No child is taught to kill, but he has to be taught to love, respect, honor and value, not only his own life, but the lives of his classmates, parents and teachers. He has to experience love and acceptance. He has to know his life has purpose and meaning. No amount of money can do that.
+ - One of the reasons people hate politics is that truth is rarely a politician’s objective. Election and power are.
+ - America’s most dangerous diseases have developed an immunity to politics. We suffer not from a failure of political organization or power, but a failure of love.
+ - In business, poor performance leads to bankruptcy or, at a minimum, a restructuring of the company. In American education, failure entitles the bankrupt system to even more taxpayer dollars.
+ - Freedom is a lonely battle, but if the United States doesn’t lead it – sometimes imperfectly, but mostly with honor – who will?
+ - Don’t liberal Democrats ever learn economic principles, or does their class warfare trump all else?
+ - The measure of a great writer is not how many weeks his books spend on the best-seller lists, but how many years his books remain in print after his death.
+ - Government aid impedes success and creates dependence, while entrepreneurs create success and independence.
+ - It is now possible to live a “christian life” without doing the things that Jesus commanded us to do. We have hired people to go into all the world, to visit those in prison, to feed the hungry, to clothe the naked, to care for widows and orphans. The average Christian doesn’t have to do it.
+ - In violent streets and broken homes, the cry of anguished souls is not for more laws but for more conscience and character.
+ - Victimhood and a ‘can’t do’ spirit is what the Democratic Party has mostly been about since the Great Depression.
+ - If life is not a continuum, from conception to natural death, then all of us are potential victims if we fall out of favor with a ruling elite.
+ - To suggest that a person’s strongly held religious view is less tolerant than a strongly held antireligious view is morally, intellectually, and politically inconsistent and incorrect.
+ - But prosperity without a soul is like a corpse whose heart has stopped beating. There is no life, only consumption.
+ - The kingdom of God is not going to arrive on Air Force One.
+ - Another question a biblically literate reporter might have asked is, “Why are you proclaiming the Ten Commandments when you believe no one can live up to all of them?”
+ - Homo-sexuals should not be censored, but neither should those who oppose their point of view. That’s called free speech.
+ - No power on earth is greater than a mind and soul reawakened. Our Constitution begins we the people, not us the government.
+ - It’s time to resist efforts of the American Civil Liberties Union who have conducted a religious lobotomy on this country, seeking to strip it of any vestige of religious influence.
+ - Our politics suffers from a shortage of people who put character and country before career and personal gain.
+ - If a state, or nation, has laws it will not enforce for political reasons, it mocks both the law and politics, to say nothing of the cultural order.
+ - Asking politicians to give up a source of money is like asking Dracula to forsake blood.
+ - Radical Islamists are serious about killing in pursuit of their extreme objectives. Releasing their soldiers can only embolden them to take more Americans hostage. The deal for Sgt. Bergdahl may well turn out to have been a bargain with the devil.
+ - As pressure grows to ease the financial burden on social security, pressure will also grow to eliminate the elderly and infirm to ‘free up’ more money for the ‘fit’ and those who contribute more than they take from society.
+ - Once a federal law or policy is in place it is more difficult to kill than a vampire.
+ - Sometimes people need a kick in the pants to get them to do what they would be doing if government weren’t there as a perpetual parent.
+ - We are approaching a time when Christians, especially, may have to declare the social contract between Enlightenment rationalists and Biblical believers – which formed the basis of the constitution written at our nation’s founding – null and void.
+ - The Obama ‘stimulus’ plan is a $1 trillion dollar gamble more suited to Las Vegas than Washington.
+ - President Obama is like a lost man who refuses to ask for directions. That’s because he has never worked in the real world with people who create real jobs. He operates on theories and an ideology that is incapable of achieving his goals.
+ - If taxpayers want to keep more of the money they earn, they must also work to become less dependent on a government check. We look to government too often and to ourselves not enough.
+ - The difference between the more traditional sports clubs and Congress is that Congress doesn’t really compete against another team.
+ - So, my fellow Christians, protest this film if you like, but then how about devoting some energy to fill the vacuum created by your retreat from popular culture.
+ - The worst thing the federal government could do is to increase the size, reach and cost of government. If government failed in its response to the hurricane, the answer is not more inefficient government.
+ - As with most things governmental, failure does not mean having to try something else. It means spending more money.
+ - The brutality of communism was quickly swept under history’s rug, in large part because so many on the left had embraced it as the solution to humankind’s problems.
+ - Politicians have limited power. They can’t impose morality on themselves. How can they impose it on the country?
+ - If we want to produce people who share the values of a democratic culture, they must be taught those values and not be left to acquire them by chance.
+ - People who relieve others of their money with guns are called robbers. It does not alter the immorality of the act when the income transfer is carried out by government.
+ - When President Clinton starts talking about what is moral, as he did when recommending a national law banning human cloning, it’s time for us to lock up our daughters.
+ - I think the philosophy in our public schools, and many other institutions today, is that a dose of God is more hazardous to your health than a dose of herpes or drugs.
+ - Nowhere have the forces of intolerance been displayed less tolerantly than in the area of religious speech and practice.
+
+52 quotes

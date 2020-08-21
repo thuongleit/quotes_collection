@@ -1,0 +1,72 @@
+ - You have to be proactive about your destiny and then realize that the other half of it is completely out of your control. I think it’s fascinating.
+ - Abs are for people with no friends.
+ - I’m always one time zone behind myself.
+ - A girl’s got to be fun. It’s the one bit of advice I always give to friends of mine who are thinking of getting married.
+ - I’ve always been a bit of a car freak.
+ - Technically speaking, you can build anything out of sand; it doesn’t mean you do it.
+ - I am attracted to characters who think they are in control, but their situation is uncontrollable.
+ - I’m spending all my time and energy on the project at hand.
+ - Without a doubt, rowing is the hardest thing you can attempt to lean in a short period of time.
+ - I love working with people who have had television experience because I think there’s a real efficiency and methodology that comes from that background.
+ - I’ve never been someone that’s had a five-year plan, or a three-year plan. That just seems to lead to a lot of disappointment, and doesn’t give you the chance to be flexible.
+ - I usually befriend the camera department very early on in the film and drive them nuts. I’m constantly bombarding them with questions and going through the stills photography. A film set is a great place for me and I love it.
+ - If you can jump up onstage and make people laugh, shouldn’t you also be able to inhabit a character?
+ - When you’re shooting a film, you really don’t get to be a dad, and you don’t really get to be a husband. You don’t really exist at all. But I do drag my family with me on location whenever I can.
+ - I always use the analogy that when you go to a jeans store and put on a new pair of jeans, it’s a pair of jeans and they feel different; so, when you’re dealing with these sort of costumes it’s a very big departure and really does make you feel quite different. But it’s wonderful.
+ - I’m not into bikinis or other revealing clothing.
+ - My wife and I really, really like each other as well as love each other.
+ - I’ve had frustrated storytelling juices that have been lying dormant for a long time, and I guess the documentary was a way of me telling a story that I felt most qualified to tell. And I loved it, and I’d love to do something else someday, probably more narrative-based. But I’m in no rush.
+ - Throw your children in the surf and let them get used to it. They have to learn all about rips and tides and swimming between the flags and all that sort of stuff. I know that sounds ridiculous but it’s true.
+ - By the time I finished comedy, I was really burnt out of it. I had had enough. I don’t really have a strong desire to prove myself in that area, or to go back to it in any great way.
+ - I guess on a base level that’s one of the first parental instincts that you have with children in Australia is learn to swim. Not only learn to swim but learn to swim strong.
+ - The most serious film can be the most fun. The one that’s supposed to be fun can be the most serious.
+ - It’s always bitterly disappointing to people to see how normally one can live.
+ - There wasn’t a moment where I got into cars. It wasn’t a conscience decision or something that came later, it was there since I was born. I just love it.
+ - Film sets are great fun. Film people are great people to hang around with. I don’t want to run off and be distracted by other things.
+ - Over my lifetime, the car had actually transcended the fact that it is a car. It has become a venue.
+ - I’ve always described parts as tattoos. For actors our tattoos are in the form of films.
+ - I fell in love with many women at school who had no idea I existed. I’m a bit of a romantic.
+ - I’m very much a bit of a ghost presence.
+ - The thing I love about working with first-time directors is that it’s always quite shocking how little difference there is between them and directors who’ve been directing all their lives.
+ - I’d say I’m the opposite of someone that has the urge to stand in front of strangers and make them laugh, but the idea of getting up and telling a story and people finding it amusing always appealed to me.
+ - I don’t like to come at my character from some really technical place.
+ - But it’s healthy – whatever you can do to keep you fresh and awake. Acting’s such a ridiculous job and sometimes you need to look at it like that to get a sort of degree of freshness.
+ - It’s always been my hope, as an actor, to reveal only what is relevant about myself to the work.
+ - I really enjoy working on small films.
+ - I never really think much about the size of a production because I think as an actor, once you’re in it, it’s all the same. I never ever pick projects based on their size.
+ - We shot that in Morocco, and got out of the country at the beginning of July – and two months later came the attack on Twin Towers. The movie was then released in December, so that kind of atmosphere is not something that was unfamiliar to me.
+ - The only thing that may make me different from other people is I have passionate interests outside of work.
+ - Definitely the script because you want to be part of an interesting story, you want your character to be a challenge, then comes the director. But essentially it’s the script first and whether it’s a character that you think you can do.
+ - I think I wasted a lot of my youth, falling for girls who were a couple of years older than me.
+ - I’m always reading and looking around for the next thing.
+ - If I read something and I love it, I’ll do it and I don’t even ask what the budget is.
+ - I think you need to be able to see a lot of negative in things in order to extract material, so there’s probably something to that. A lot of the people I used to work with were very, very, very unfunny offstage, so that’s a pretty common thing.
+ - I would never say never to returning to comedy.
+ - I’ll give you a list of a hundred ways that I’m more likely to be injured than belting around a race track with people who know what they’re doing. It’s not a place where I feel I’m in unnecessary danger.
+ - I don’t consciously seek out Australian projects. I put them on the same table as all the other scripts and I wouldn’t ever do a film just because it’s been shot at home.
+ - There’s a plethora of wonderful documentaries. I made a point of not looking at anyone else’s portrayal of Henry because I think it would have been too confusing – so I’ve got a lot of films to look forward to.
+ - I tend not to read the size of the production into a script when I’m reading it. It’s just something you respond to or not and I do think it’s very dangerous to say it’s time now to do this or it’s time now to do that.
+ - I have a theory that I really want my kids to know – the only coloration that they make between dad being in films and reality is just a lot of people doing a lot of hard work.
+ - When I go on the plane to fly home, I’m literally capable of forgetting what I do for a job. That also comes about because I choose to take massive breaks between projects, and because I choose to do this ridiculous thing of keeping home, home.
+ - I’ve worked with some of the great cinematographers. So I’m always watching what they do and I’m watching how the director composes his shots, just because I find it interesting as an actor; you’re trying to help them out as well.
+ - If a great comedy landed on my doorstep, I would find it hard to say no.
+ - I was a fan of the television show as a kid but I wouldn’t say that I’ve followed all the movies or anything like that. But I was a television junkie as a kid.
+ - We live our lives by the water and if you don’t know how to swim in Australia, it’s like not knowing how to cross a road. It’s an incredible survival thing that you really must learn when you’re a child.
+ - When I was a kid, I would do stupid things on my bike. I’d jump any ramp, I’d jump over people, I’d jump over things – always crashing, never hurting myself badly but always wanting to take physical risks.
+ - I wanted to be a mechanic. When I was 14 I wanted to quit school and go work on my car. But my dad said Son, you shouldn’t do that. You should stay in school until your education is finished, and when you’re done, don’t make your hobby your job.
+ - The reason my kids come to the set is so I can actually see them.
+ - I knew a bit but we don’t study a lot of British history at school in Australia. We have our own 50-year period to concentrate on.
+ - When I shoot I’ll take my family with me – one movie a year and then the rest of the time at home.
+ - I enjoy just being cocooned in production and it’s completely different to your other life that you have. I enjoy that. I enjoy being on the set and hanging out and talking to whoever we’re working with and just being in the moment.
+ - I just think that’s the job of an actor. I guess that’s the variation that you’re talking about. It’s probably a byproduct of just constantly looking for something different, because that’s what I feel like I’m supposed to do.
+ - In America now every romantic comedy is interpreted politically. I can remember when I was promoting Black Hawk Down we were all being asked what it said about September 11th. Well, it was shot before that happened, so, nothing.
+ - I think if you had to map that out at the beginning and you said, “Right, sit down, this is what you’re going to be doing,” you’d probably freak out. But I’m someone who really enjoys not being himself. So if you consider that, then it all sort of makes sense.
+ - The more I love the character, the harder it is to get it wrong. I have to get to a point that I can speak for them.
+ - I wasn’t going to be a college kid. The only subject I was interested in was English. I think I had a subconscious interest in analyzing story.
+ - I don’t like working in a studio, at all. I just prefer to be on location, rather than hearing the bells of the studio going off. It’s like being in Las Vegas, where no one knows the time and there are no windows.
+ - The longer you have something, the stronger the bond. That’s true with people as well as things.
+ - I never look at the size of the film when I’m looking for a part.
+ - I’ve given no thought to moving to America at all.
+ - I’m realistic about it. It’s been quite some years since I’ve worked full-time in that area, so I no longer have any material that bears any relevance to my life or the audience. I’d need to take probably a year off, which I wouldn’t be prepared to do, so it’s a romantic ideal.
+
+70 quotes

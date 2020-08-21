@@ -1,0 +1,28 @@
+ - Live today, for tomorrow we die.
+ - Wherever God has planted you, you must know how to flower – translated from a French saying.
+ - The printing presses of the state treasuries cranked out reams of paper currency- showing wise kinds and blissful martyrs- while bankers wept and peasants starved.
+ - I invented the historical spy novel.
+ - I’m basically an Upper West Side Jewish writer.
+ - And, with much of Europe occupied by Nazi Germany, and Mussolini’s armies in Albania, on the Greek frontier, one wasn’t sure what came next. So, don’t trust the telephone. Or the newspapers. Or the radio. Or tomorrow.
+ - I have a very serious censorship office inside my head; it censors things that I could tell you that you would never forget, and I don’t want to be the person to stick that in your brain.
+ - Good people don’t spend their time being good. Good people want to spend their time mowing the lawn and playing with the dog. But bad people spend all their time being bad. It is all they think about.
+ - If you can live in Paris, maybe you should.
+ - If you’re a writer, you’re always working.
+ - I expect that my readers have been to Europe, I expect them to have some feeling for a foreign language, I expect them to have read books – there are a lot of people like that! That’s my audience.
+ - Politicians were like talking dogs in a circus: the fact that they existed was uncommonly interesting, but no sane person would actually believe what they said.
+ - The best Paris I know now is in my head.
+ - It takes me three months of research and nine months of work to produce a book. When I start writing, I do two pages a day; if I’m gonna do 320, that’s 160 days.
+ - Once you have your characters, they tell you what to write, you don’t tell them.
+ - I read very little contemporary anything.
+ - I’m not really a mass market writer.
+ - I write what I call ‘novels of consolation’ for people who are bright and sophisticated.
+ - I grew up reading genre writers, and to the degree that Eric Ambler and Graham Greene are genre writers, I’m a genre writer.
+ - I don’t really write plots. I use history as the engine that drives everything.
+ - You can’t make accommodations in crucial situations and be heroic.
+ - I don’t just want my books to be about the ’30s and ’40s. I want them to read as if they had been written then. I think of them as ’40s novels, written in the conservative narrative past.
+ - One is what one has the nerve to pretend to be.
+ - My novels are about the European reality, not about chases. You want chases, get somebody else’s books.
+ - I don’t inflict horrors on readers.
+ - You write a lot of books; you hope you get better.
+
+26 quotes

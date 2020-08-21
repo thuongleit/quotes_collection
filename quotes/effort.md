@@ -1,0 +1,42 @@
+ - The results you achieve will be in direct proportion to the effort you apply. ~~Denis Waitley
+ - There is only one thing in life you can control: Your own effort. ~~Mark Cuban
+ - There’s no reward without work, no victory without effort, no battle won without risk. ~~Nora Roberts
+ - Nothing worth having was ever achieved without effort. ~~Theodore Roosevelt
+ - Education comes from within; you get it by struggle and effort and thought. ~~Napoleon Hill
+ - Give your best effort, because you are worth your best effort. ~~Denis Waitley
+ - Success isn’t something you chase. It’s something you have to put forth the effort for constantly. Then maybe it’ll come when you least expect it. Most people don’t understand that. ~~Michael Jordan
+ - Make each day count by setting specific goals to succeed, then putting forth every effort to exceed your own expectations. ~~Les Brown
+ - Our daily objectives should include an honest effort to improve on yesterday. ~~Zig Ziglar
+ - Get maximum effect from minimum effort. ~~Bruce Lee
+ - I never blame failure – there are too many complicated situations in life – but I am absolutely merciless toward lack of effort. ~~F. Scott Fitzgerald
+ - Tentative efforts lead to tentative outcome. ~~Epictetus
+ - Personal development is the belief that you are worth the effort, time, and energy needed to develop yourself. ~~Denis Waitley
+ - Don’t expect front row seats if you’re giving nosebleed effort. ~~Eric Thomas
+ - One should not pursue goals that are easily achieved. One must develop an instinct for what one can just barely achieve through one’s greatest efforts. ~~Albert Einstein
+ - The jack-of-all-trades seldom is good at any. Concentrate all of your efforts on one definite chief aim. ~~Napoleon Hill
+ - Effort is grossly underrated. ~~Gary Vaynerchuk
+ - Nothing of me is original. I am the combined effort of everyone I’ve ever known. ~~Chuck Palahniuk
+ - Whatever we accomplish is due to the combined effort. ~~Walt Disney
+ - There is no single effort more radical in its potential for saving the world than a transformation of the way we raise our children. ~~Marianne Williamson
+ - Success is the sum of small efforts, repeated day in and day out. ~~Robert Collier
+ - Don’t wait for an employer, friend, or mentor to show appreciation for your work. Take pride in your own efforts on a daily basis. ~~Denis Waitley
+ - For every disciplined effort there is a multiple reward. ~~Jim Rohn
+ - There is a direct relationship between joy and effort. The joy of success is in ratio to the amount of effort expended to achieve it. ~~Denis Waitley
+ - You will always win if you make an effort, no matter how much. However, if you failed it means you were too lazy. ~~Albert Camus
+ - Doing the little things can make a big difference. ~~Yogi Berra
+ - Excellence without effort is as futile as progress without preparation. ~~William Arthur Ward
+ - Effort is the siamese twin of success. ~~Shane Koyczan
+ - Achievers have a can-do attitude that sets them apart from mere dreamers. Achievers are sold out to success-no matter the obstacles-and they are willing to put forth the effort and pay the price of success. ~~Jim Rohn
+ - Discontent, blaming, complaining, self-pity cannot serve as a foundation for a good future, no matter how much effort you make. ~~Eckhart Tolle
+ - Greed is a bottomless pit which exhausts the person in an endless effort to satisfy the need without ever reaching satisfaction. ~~Erich Fromm
+ - The power of now can only be realized now. It requires no time and effort. Effort means you’re trying hard to get somewhere, and so you are not present, welcoming this moment as it is. ~~Eckhart Tolle
+ - In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. ~~James Allen
+ - Faith, hope, love, and insight are the highest achievements of human effort. They are found-given-by experience. ~~C.G. Jung
+ - Do what is healing to your spirit and without effort you will bring the world healing in return. ~~Alan Cohen
+ - The Tao of the sage is work without effort. ~~Laozi
+ - But instinct is something which transcends knowledge. We have, undoubtedly, certain finer fibers that enable us to perceive truths when logical deduction, or any other willful effort of the brain, is futile. ~~Nikola Tesla
+ - A drowning man cannot be saved until he is utterly exhausted and ceases to make the slightest effort to save himself. ~~Watchman Nee
+ - One does not miss heaven by a hair, but by constant effort to avoid and escape God. ~~Dallas Willard
+ - Grace is the power of the Holy Spirit coming to us free of charge to enable you to do with ease what you could never do on your own with any amount of struggle and effort. ~~Joyce Meyer
+
+40 quotes

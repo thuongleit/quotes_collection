@@ -1,0 +1,22 @@
+ - The good poet sticks to his real loves, to see within the realm of possibility. He never tries to hold hands with God or the human race.
+ - Poetry is innocent, not wise. It does not learn from experience, because each poetic experience is unique.
+ - Self-knowledge is a dangerous thing, tending to make man shallow or insane.
+ - Haul up the flag, you mourners, Not half-mast but all the way; The funeral is done and disbanded; The devil’s had the final say.
+ - Lawyers love paper. They eat, sleep and dream paper. They turn paper into gold, and their files are colorful and their language neoclassical and calli-graphically bewigged.
+ - Already old, the question Who shall die? Becomes unspoken Who is innocent?
+ - My soul is now her day, my day her night, So I lie down, and so I rise.
+ - Leo Connellan has retained his soul and voice in Provincetown and Other Poems.
+ - The proverbist knows nothing of the two sides of a question. He knows only the roundness of answers.
+ - Poets of course are even more unpredictable than other writers, overwhelmed as they are by the moment they inhabit and finding it difficult to connect yesterday with tomorrow.
+ - Keelhaul the poets in the vestry chairs.
+ - The body, what is it, Father, but a sign To love the force that grows us, to give back What in Thy palm is senselessness and mud?
+ - A man’s house is his stage. Others walk on to play their bit parts. Now and again a soliloquy, a birth, an adultery.
+ - How something important happens is the business of historians and newspapers, the effect it has is the business of philosophers and writers and especially poets.
+ - But with exquisite breathing you smile, with satisfaction of love, And I touch you again as you tick in the silence and settle in sleep.
+ - Laughter and grief join hands. Always the heart Clumps in the breast with heavy stride; The face grows lined and wrinkled like a chart, The eyes bloodshot with tears and tide. Let the wind blow, for many a man shall die.
+ - To make the child in your own image is a capital crime, for your image is not worth repeating. The child knows this and you know it. Consequently you hate each other.
+ - Poetry is not a way of saying things; it’s a way of seeing things.
+ - Every war is its own excuse. That’s why they’re all surrounded with ideals. That’s why they’re all crusades.
+ - The modern essay has regained a good deal of its literary status in our time, much to the credit of Joseph Epstein.
+
+20 quotes

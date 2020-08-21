@@ -1,0 +1,73 @@
+ - If you want to increase your success rate, double your failure rate.
+ - Failure is a teacher; a harsh one, but the best.
+ - Follow the path of the unsafe, independent thinker. Expose your ideas to the danger of controversy. Speak your mind and fear less the label of ‘crackpot’ than the stigma of conformity.
+ - The fastest way to succeed is to double your rate of failure.
+ - Till sin be bitter, Christ will not be sweet.
+ - Nothing so conclusively proves a man’s ability to lead others as what he does from day to day to lead himself.
+ - Our murmuring is the devil’s music.
+ - All the problems of the world could be settled easily if men were only willing to think. The trouble is that men very often resort to all sorts of devices in order not to think, because thinking is such hard work.
+ - Sin has the devil for its father, shame for its companion, and death for its wages.
+ - Wisdom is the power to put our time and our knowledge to the proper use.
+ - Success is on the far side of failure.
+ - Whenever an individual or a business decides that success has been attained, progress stops.
+ - Prayer delights God’s ear; it melts His heart; and opens His hand. God cannot deny a praying soul.
+ - It is a common mistake to think of failure as the enemy of success. Failure is a teacher-a harsh one, but the best. Pull your failures to pieces looking for the reason. Put your failure to work for you.
+ - Knowledge without repentance will be but a torch to light men to hell.
+ - You can be discouraged by failure, or you can learn from it. So go ahead and make mistakes, make all you can. Because, remember that’s where you’ll find success – on the far side of failure.
+ - Christ went more willingly to the cross than we do to the throne of grace.
+ - A weak faith can lay hold on a strong Christ.
+ - Eternity to the godly is a day that has no sunset; eternity to the wicked is a night that has no sunrise.
+ - Really big people are, above everything else, courteous, considerate and generous – not just to some people in some circumstances – but to everyone all the time.
+ - A man’s greatest care should be for that place where he lives longest; therefore eternity should be his scope.
+ - Let us then ascribe the whole work of grace to the pleasure of God’s Will. God did not choose us because we were worthy, but by choosing us He makes us worthy.
+ - The angel fetched Peter out of prison, but it was prayer that fetched the angel.
+ - The toughest thing about the power of trust is that it’s very difficult to build and very easy to destroy. The essence of trust building is to emphasize the similarities between you and the customer.
+ - It is our work to cast care, and it is God’s work to take care.
+ - First we practice sin, then defend it, then boast of it.
+ - Knowledge is the eye that must direct the foot of obedience.
+ - Are there not millions of us who would rather go sleeping to hell; than sweating to heaven?
+ - There is more evil in a drop of sin than in a sea of affliction.
+ - Every time we’ve moved ahead in IBM, it was because someone was willing to take a chance, put his head on the block, and try something new.
+ - Praising God is one of the highest and purest acts of religion. In prayer we act like men; in praise we act like angels.
+ - The great accomplishments of man have resulted from the transmission of ideas and enthusiasm.
+ - Recently, I was asked if I was going to fire an employee who made a mistake that cost the company $600,000. No, I replied, I just spent $600,000 training him. Why would I want somebody to hire his experience?
+ - The prayer that is faithless is fruitless.
+ - We spend our years with sighing; it is a valleyof tears; but death is the funeral of all our sorrows.
+ - The pleasure of sin is soon gone, but the sting remains.
+ - Once an organization loses its spirit of pioneering and rests on its early work, its progress stops.
+ - Affliction may be lasting, but it is not everlasting.
+ - It is hard to carry a full cup without spilling, and a full estate without sinning.
+ - If a wicked man seems to have peace at death, it is not from the knowledge of his happiness, but from the ignorance of his danger.
+ - God takes away the world, that the heart may cleave more to Him in sincerity.
+ - You don’t hear things that are bad about your company unless you ask. It is easy to hear good tidings, but you have to scratch to get the bad news.
+ - A wicked man in prayer may lift up his hands, but he cannot lift up his face.
+ - The right manner of growth is to grow less in one’s own eyes.
+ - God sweetens outward pain with inward peace.
+ - The world rings changes, it is never constant but in its disappointments. The world is but a great inn, where we are to stay a night or two, and be gone; what madness is it so to set our heart upon our inn, as to forget our home?
+ - Though we as Christians are like Christ, having the first fruits of the spirit, yet we are unlike him, having the remainders of the flesh.
+ - When you find a chillness upon your souls, and that your former heat begins to abate, ply yourselves with warm clothes, get those good books that may acquaint you with such truths as may warm and affect your hearts.
+ - Better have men reproach you for being good, than have God damn you for being wicked. Be not laughed out of your religion. If a lame man laugh at you for walking upright, will you therefore limp?
+ - A manager is an assistant to his men.
+ - Affliction may be lasting, but it is not everlasting. Affliction was a sting, but withal a wing: sorrow shall soon fly away.
+ - How soon are we broken on the soft pillow of ease! Adam in paradise was overcome, when Job on the dunghill was a conqueror.
+ - If you don’t genuinely like your customers, chances are they won’t buy.
+ - God’s decree is the very pillar and basis on which the saint’s perseverance depends. That decree ties the knot of adoption so fast, that neither sin, death, nor hell, can break it asunder.
+ - God will not be behind-hand in love to us: for our drop, we shall receive an ocean.
+ - If joining IBM was commitment, not employment, and the company engaged in something more than business, it had a right to demand of its men unconditional loyalty, Watson believed.
+ - Prayer is the soul’s breathing itself into the bosom of its heavenly Father.
+ - Loyalty saves the wear and tear of making daily decisions as to what is best to do.
+ - None so empty of grace as he that thinks he is full.
+ - This kind of intense loyalty, then, became the well-spring of the IBM spirit, the family spirit as it was called.
+ - The more we enjoy of God, the more we are ravished with delight.
+ - The Ediles among the Romans had their doors always standing open, that all who had petitions might have free access to them. The door of heaven is always open for the prayers of God’s people.
+ - The godly have some good in them, therefore the devil afflicts them; and some evil in them, therefore God afflicts them.
+ - There is justice in hell, but sin is the most unjust thing. It would rob God of his glory, Christ of his purchase, the soul of its happiness.
+ - Prayer as it comes from the saint is weak and languid; but when the arrow of a saint’s prayer is put into the bow of Christ’s intercession it pierces the throne of grace.
+ - Those prayers God likes best which come seething hot from the heart.
+ - How many souls have been blown into hell with the wind of popular applause?
+ - Whoever brings an affliction, it is God who sends it.
+ - Joining a company is an act that calls for absolute loyalty in big matters and little ones.
+ - He may look on death with joy, who can look on forgiveness with faith.
+ - What if we have more of the rough file, if we have less rust! Afflictions carry away nothing but the dross of sin.
+
+71 quotes

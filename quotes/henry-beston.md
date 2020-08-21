@@ -1,0 +1,33 @@
+ - The three great elemental sounds in nature are the sound of rain, the sound of wind in a primeval wood, and the sound of outer ocean on a beach.
+ - For a moment of night we have a glimpse of ourselves and of our world islanded in a stream of stars – pilgrims of mortality, voyaging between horizons across the eternal seas of space and time.
+ - The animal should not be measured by man. In a world older than ours they move finished and complete, gifted with extensions of the sense we have lost or never attained, living by voices we shall never hear.
+ - Touch the earth, love the earth, honour the earth, her plains, her valleys, her hills, and her seas; rest your spirit in her solitary places.
+ - When the Pleiades and the wind in the grass are no longer a part of the human spirit, a part of very flesh and bone, man becomes, as it were, a kind of cosmic outlaw, having neither the completeness nor integrity of the animal nor the birthright of a true humanity.
+ - The creatures with whom we share the planet and whom, in our arrogance, we wrongly patronize for being lesser forms, they are not brethren, they are not underlings, they are other nations, caught with ourselves in the net of life and time, fellow prisoners of the splendour and travail of the Earth.
+ - The seas are the hearts blood of the earth. Plucked up and kneaded by the sun and the moon, the tides are systole and diastole of earth’s veins.
+ - It is only when we are aware of the earth and of the earth as poetry that we truly live.
+ - Nature is a part of our humanity, and without some awareness and experience of that divine mystery man ceases to be man.
+ - Poetry is as necessary to comprehension as science. It is as impossible to live without reverence as it is without joy.
+ - Wolves are not our brothers; they are not our subordinates, either. They are another nation, caught up just like us in the complex web of time and life.
+ - The leaves fall, the wind blows, and the farm country slowly changes from the summer cottons into its winter woods.
+ - The world today is sick to its thin blood for lack of elemental things, for fire before the hands, for water welling from the earth, for air, for the dear earth itself underfoot. In my world of beach and june these elemental presences lived and had their being...
+ - The adventure of the sun is the great natural drama by which we live, and not to have joy in it and awe of it, not to share in it, is to close a dull door on nature’s sustaining and poetic spirit.
+ - As well expect Nature to answer your human values as to come into your house and sit in a chair.
+ - Into every empty corner, into all forgotten things and nooks, nature struggles to pour life, pouring life into the dead, life into life itself.
+ - Learn to reverence night and to put away the vulgar fear of it, for, with the banishment of night from the experience of man, there vanishes as well a religious emotion, a poetic mood, which gives depth to the adventure of humanity.
+ - We of the age of the machines, having delivered ourselves of nocturnal enemies, now have a dislike of night itself. With lights and ever more lights, we drive the holiness and beauty of night back to the forests and the sea.
+ - The adventure of the sun is the greatest natural drama by which we live...
+ - Do no dishonor to the earth lest you dishonor the spirit of man.
+ - A garden is the mirror of a mind. It is a place of life, a mystery of green moving to the pulse of the year, and pressing on and pausing the whole to its own inherent rhythms.
+ - If there is one thing clear about the centuries dominated by the factory and the wheel, it is that although the machine can make everything from a spoon to a landing-craft, a natural joy in earthly living is something it never has and never will be able to manufacture.
+ - We need another and a wiser and a perhaps more mystical concept of animals.
+ - If gardeners will forget a little the phrase, “watering the plants” and think of watering as a matter of “watering the earth” under the plants, keeping up its moisture content and gauging its need, the garden will get on very well.
+ - Expect Nature to answer to your human values as to come into your house and sit in a chair. The economy of nature, its checks and balances, its measurements of competing life – all this is its great marvel and has an ethic of its own.
+ - Poor body, time and the long years were the first tailors to teach you the merciless use of clothes. Though some scold today because you are too much seen, to my mind, you are not seen fully enough or often enough when you are beautiful.
+ - To know only artificial night is as absurd and evil as to know only artificial day.
+ - Learn to reverence night and to put away the vulgar fear of it.
+ - Our fantastic civilization has fallen out of touch with many aspects of nature, and with none more completely than with night.
+ - The seas are the heart’s blood of the earth.
+ - The quality of life, which in the ardour of spring was personal and sexual, becomes social in midsummer.
+
+31 quotes

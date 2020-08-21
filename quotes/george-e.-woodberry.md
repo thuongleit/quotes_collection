@@ -1,0 +1,46 @@
+ - Defeat is not the worst of failures. Not to have tried is the true failure.
+ - Aesthetic freedom is like free speech; it is, indeed, a form of free speech.
+ - What holy cities are to nomadic tribes – a symbol of race and a bond of union – great books are to the wandering souls of men: they are the Meccas of the mind.
+ - Much of a poet’s experience takes place in imagination only; the life he tells is oftenest the life that he strongly desires to live, and the power, the purity and height of his utterance may not seldom be the greater because experience here uses the voices of desire.
+ - Shakespeare has been praised in English more than anything mortal except poetry itself. Fame exhausts thought in his eulogy.
+ - I am quite sure that no friendship yields its true pleasure and nobility of nature without frequent communication, sympathy and service.
+ - If the aristocracy of the whole white race is so to melt in a world of the colored races of the Earth, I for one should only rejoice in such a divine triumph of the sacrificial idea in history; for it would mean the humanization of mankind.
+ - Left to themselves, things tend to go from bad to worse. Murphy’s First Corollary If you tell the boss you were late for work because you had a flat tire, the next morning you will have a flat tire.
+ - Education has really only one basic factor: one must want it.
+ - We foresee no limit to scientific advancement in the future, and in scientific truth there is nothing dead; science is always a living and growing body of knowledge; but art on the contrary has many times run its course to an end, and exhausted its vital power.
+ - If you can’t have faith in what is held up to you for faith, you must find things to believe in yourself, for a life without faith in something is too narrow a space to live.
+ - Who of English speech, bred to the traditions of his race, does not recognize Hamlet in his ‘inky cloak’ at a glance? Not to know him would argue one’s self untaught in the chief glories of his language.
+ - Always begin anew with the day, just as nature does. It is one of the sensible things that nature does.
+ - The sweetest roamer is a boy’s young heart.
+ - My first recollection of hearing Wendell Phillips is from my college days, though of course he was always one of my heroes, and I may have heard him before, for we were an anti-slavery family.
+ - The world is a multiplicity, a harvest-field, a battle-ground; and thence arises through human contact ways of numbering, or mathematics, ways of tillage, or agriculture, ways of fighting, or military tactics and strategy, and these are incorporated in individuals as habits of life.
+ - Art does not, like science, set forth a permanent order of nature, the enduring skeleton of law. Two factors primarily determine its works: one is the idea in the mind of the artist, the other is his power of expression; and both these factors are extremely variable.
+ - Shakespeare is, essentially, the emanation of the Renaissance. The overflow of his fame on the Continent in later years was but the sequel of the flood of the Renaissance in Western Europe. He was the child of that great movement, and marks its height as it penetrated the North with civilization.
+ - The willingness to take risks is our grasp of faith.
+ - The poet craves emotion, and feeds the fire that consumes him, and only under this condition is he baptized with creative power.
+ - The language of literature is the language of all the world. It is necessary to divest ourselves at once of the notion of diversified vocal and grammatical speech which constitutes the various tongues of the Earth, and conceals the identity of image and logic in the minds of all men.
+ - Our understanding of Shakespeare already depends largely on the vitality of Renaissance elements in our education. Each man must live in his own generation, as the saying is; but the generations are bound together by the golden links of the great tradition of civilization.
+ - Art has a double visage: it looks before and after. Romance is its forward-looking face. The germ of growth is in romanticism. Formalism, on the other hand, consolidates tradition; gleans what has been gained and makes it facile to the hand or the mind; economizes the energy of genius.
+ - I believe that ideal character in its perfection is potentially in every man who is born into the world.
+ - A writer is justly called ‘universal’ when he is understood within the limits of his civilization, though that be bounded by a country or an age.
+ - A nation’s poets are its true owners; and by the stroke of the pen they convey the title-deeds of its real possessions to strangers and aliens.
+ - The sense that someone else cares always helps because it is the sense of love.
+ - Mankind is the grandest and surest artist of all, and history as it clarifies is, in pure fact, an artistic process, a creation in its fullness of the beautiful soul.
+ - To feel that one has a place in life solves half the problem of contentment.
+ - Is there not an art, a music, and a stream of words that shalt be life, the acknowledged voice of life?
+ - To realize life in the abstract as noble or beautiful or humane, to set it forth so with radiance upon it, that is civilization in the arts. Shakespeare is the chief modern example of this supreme faculty of mankind.
+ - Agitation is that part of our intellectual life where vitality results; there ideas are born, breed and bring forth.
+ - Seasonal changes, as it were, take place in history, when there is practically an almost universal death, a falling of the foliage of the tree of life. Such were the intervals between the ancient and mediaeval time, the mediaeval and the modern.
+ - It is not meant that the artist, in arriving at truth, must follow the way of the scientist, or, in stating it, the way of the philosopher.
+ - Genius is that in which the soul of a race bums at its brightest, revealing and preserving its vision; works of art are great and significant in proportion to the clarity and fulness with which they incarnate this vision.
+ - The school of life embodies a compulsory education that no man escapes.
+ - A marvellous power of expression over language often distinguishes genius; but Shakespeare in his phrases seems independent of the bonds of language as of the bonds of metre.
+ - You may name a bronze statue ‘Liberty,’ or a painted figure in a city hall ‘Commerce,’ or a marble form in a temple ‘Athene’ or ‘Venus;’ but what is really there is only a representation of a single woman.
+ - Words are intermediary between thought and things. We express ourselves really not through words, which are only signs, but through what they signify – through things.
+ - The critic is genius at one remove; he is not unlike an actor on the stage, and incarnates in his mind, as the actor embodies in his person, another’s work; only thus does he understand art, realize it, know it; and having arrived at this, his task is done.
+ - What faith in man must in our new world beat, Thinking how once he saw before his face The west and all the host of stars retreat Into the silent infinite of space!
+ - The Greeks, those originators of the intellectual life, fixed for us the idea of the poet. He was a divine man; more sacred than the priest, who was at best an intermediary between men and the gods, but in the poet the god was present and spoke.
+ - Thrashing is not the most noticeably awful of disappointments. Not to have attempted is the genuine disappointment.
+ - I seldom deal in symbolisms; if there be hidden meanings in my verse, they are there without my knowledge.
+
+44 quotes

@@ -1,0 +1,27 @@
+ - Seek and you shall find the repulsive things you secretly hope to find.
+ - Trust is fine, but control is better.
+ - Vice is basically the love of failure.
+ - Anna despises two classes of people: first, those who own their own homes and have cars and families, and second, everybody else. Constantly she is on the verge of exploding. With rage. A pool of pure red. The pool is filled with speechlessness that talks away at her nonstop.
+ - Every day, a piece of music, a short story, or a poem dies because its existence is no longer justified in our time. And things that were once considered immortal have become mortal again, no one knows them anymore. Even though they deserve to survive.
+ - Sunday, the day for the language of leisure.
+ - Strictly speaking, there are no holidays for art; art pursues you everywhere, and that’s just fine with the artist.
+ - Very few women wait for Mr. Right. Most women take the first and worst Mr. Wrong.
+ - I have the feeling it will influence my future writing to the extent that without any material worries I could develop a greater ease, even lightheartedness, in my writing.
+ - Women age early, and their mistake is not knowing where to hide all the time that lies behind them so that no one sees it. What are they to do, devour it like the umbilical cords of their children? Hell and damnation!
+ - Literature that keeps employing new linguistic and formal modes of expression to draft a panorama of society as a whole while at the same time exposing it, tearing the masks from its face – for me that would be deserving of an award.
+ - Love points the way. Desire is its ignorant advisor.
+ - My plays are made up of long monologues, which is similar to prose working with the language.
+ - I do not fight against men, but against the system that is sexist.
+ - Art and order, the relatives that refuse to relate.
+ - He lies like a book. And he reads a lot of books.
+ - Work restores humankind and all its attributes to the savage animal condition that was its original intended state.
+ - I do not want to have the feeling of writing “for eternity,” so to speak.
+ - I cannot stand public attention, I just can’t. Of course, if I may I might write something instead.
+ - I think isolation is one of the greatest problems, an ever-growing obstacle to political solidarity.
+ - As is said about most writers: on the one hand all I ever did from when I was a child was read, and I was a loner, which was furthered by my parents and my upbringing.
+ - Eroding solidarity paradoxically makes a society more susceptible to the construction of substitute collectives and fascisms of all kinds.
+ - The first thing a proprietor learns, and painfully at that, is: Trust is fine, but control is better.
+ - It could draw from a greater reservoir of freedom. The irony could develop an even greater ease.
+ - After all, when you take a walk you’re after solitude, and if the solitude won’t come to you, you must go to it.
+
+25 quotes

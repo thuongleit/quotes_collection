@@ -1,0 +1,59 @@
+ - Everybody’s a mad scientist, and life is their lab. We’re all trying to experiment to find a way to live, to solve problems, to fend off madness and chaos.
+ - Long live the new flesh.
+ - I’m very anti-religious because religion tends to disembody you.
+ - When we talk about violence, we’re talking about the destruction of the human body, and I don’t lose sight of that. In general, my filmmaking is fairly body-oriented, because what you’re photographing is people, bodies.
+ - As a filmmaker, I ask questions but don’t have answers. Moviemaking is a philosophical exploration. I invite the audience to come on the journey and discover what they think and feel.
+ - The desire to be loved is really death when it comes to art.
+ - When I am creating art, I have absolutely no social responsibility. It’s like dreaming.
+ - More blood! More blood!
+ - Many wonderful, creative people have won Oscars, so if you win one, you’re in their company.
+ - Everybody’s a mad scientist, and life is their lab.
+ - You have to believe in God before you can say there are things that man was not meant to know. I don’t think there’s anything man wasn’t meant to know. There are just some stupid things that people shouldn’t do.
+ - Consciousness is the original sin: consciousness of the inevitability of our death.
+ - My dentist said to me the other day: I’ve enough problems in my life, so why should I see your films?
+ - Technology is us. There is no separation. It’s a pure expression of human creative will. It doesn’t exist anywhere else in the universe. I’m rather sure of that.
+ - Since I see technology as being an extension of the human body, it’s inevitable that it should come home to roost.
+ - I’m just observing the world. I was born into it, like you were, and then I found out there were some really disturbing aspects to being alive, like the fact that you weren’t going to be alive forever – that bothered me.
+ - You need language for thought, and you need language to anticipate death. There is no abstract thought without language and no anticipation. I think the anticipation of death without language would be impossible.
+ - All romances end in tragedy. One of the key people in a romance becomes a monster sooner or later.
+ - It’s impossible to make a movie out of ‘Naked Lunch.’ A literal translation just wouldn’t work. It would cost $400 million to make and would be banned in every country of the world.
+ - The idea of a mass audience was really an invention of the Industrial Revolution.
+ - All stereotypes turn out to be true. This is a horrifying thing about life. All those things you fought against as a youth: you begin to realize they’re stereotypes because they’re true.
+ - My understanding of life is very existential. I think that we are our bodies. There’s nothing else, and when we die, that’s it. No afterlife.
+ - I think of horror films as art, as films of confrontation.
+ - But with my last film, Spider it was agony. The money was always disappearing, nobody got paid, it was very difficult – and it’s very distracting from the process of making the movie, of course. So I think things have been getting harder and harder.
+ - Do you remember when you found out you wouldn’t live forever? People don’t talk about this, but everybody had to go through it because you’re not born with that knowledge.
+ - Your’e seeing me develop, not only as a filmmaker if you’ve seen my earlier films, but you’re seeing me kind of learn how to be a human, how my philosophy has evolved.
+ - Art forms of the past were really considered elitist. Bach did not compose for the masses, neither did Beethoven. It was always for patrons, aristocrats, and royalty. Now we have a sort of democratic version of that, which is to say that the audience is so splintered in its interests.
+ - I think of horror films as art, as films of confrontation. Films that make you confront aspects of your own life that are difficult to face. Just because you’re making a horror film doesn’t mean you can’t make an artful film.
+ - I work with my dreams or nightmares.
+ - If you put yourself in a group of people you cannot work with it’s obviously going to be a disaster.
+ - To me it’s very obvious there are huge cultural differences between Americans and Canadians. But a lot of what we are is American.
+ - I have a real aversion to ghosts because I don’t believe in them. I think ghosts are actually a religious concept, because it means you believe in an afterlife. And I don’t.
+ - I like to laze around. I think that’s a huge part of creativity. You have to let your mind relax and then another part of your brain suddenly connects with the solution you’re trying to find.
+ - At a certain point the audience shouldn’t worry about catching every word and understanding every twist and turn, because at a certain point that’s pretty much impossible.
+ - Even Hitchcock liked to think of himself as a puppeteer who was manipulating the strings of his audience and making them jump. He liked to think he had that kind of control.
+ - I can’t imagine a life without humor. Especially if you have an existential understanding of life, you must acknowledge the absurdity of it all.
+ - The more unique your film is and unusual it is and difficult it is, the harder it is to get it financed. That’s why a lot of good filmmakers are doing television. They do HBO movies.
+ - I don’t have a moral plan, I’m a Canadian.
+ - You start selling the movie before you make it.
+ - The process of making a movie has expanded in terms of effort and time for the director, doing commentaries for the DVD for example, finishing deleted scenes so they could be on the DVD, and doing things like a web blog.
+ - I’m not very well organized unless I’m plugged into a structure like the opera or a movie. When I’m doing that, I have to be organized.
+ - Of course for many years directors have had to go on the road with their movies and promote them and I’ve done that since the beginning. So that’s not new but the forms of it are different such as with the internet.
+ - I never thought I was doing the same thing as directors like John Carpenter, George Romero, and sometimes even Hitchcock, even though I’ve been sometimes compared to those other guys. We’re after different game.
+ - When you’re in the muck you can only see muck. If you somehow manage to float above it, you still see the muck but you see it from a different perspective. And you see other things too. That’s the consolation of philosophy.
+ - For example I don’t work with William Hurt the same way that I will work with Viggo. They’re different guys and they work in different ways. So a good sensitive director has his general style and technique and personality that he uses but you don’t impose that on the actors.
+ - The filmmaking process is a very personal one to me, I mean it really is a personal kind of communication. It’s not as though its a study of fear or any of that stuff.
+ - You know, there’s a saying in art that in order to be universal you must be specific. So I think every artist feels that he is dealing with specific things but that it also has significance universally.
+ - I also think the relationship I have with my audience is a lot more complex than what Hitchcock seemed to want his to be – although I think he had more going on under the surface as well.
+ - For me, the first fact of human existence is the human body. But if you embrace the reality of the human body, you embrace mortality, and that is a very difficult thing for anything to do because the self-conscious mind cannot imagine non-existence. It’s impossible to do.
+ - Each kid has a different level of expertise and some of them are very raw and inexperienced and some are incredibly mature and experienced. So you just have to go with what they are rather than have some abstract technique that you’re going to try to apply to them.
+ - Anybody who comes to the cinema is bringing they’re whole sexual history, their literary history, their movie literacy, their culture, their language, their religion, whatever they’ve got. I can’t possibly manipulate all of that, nor do I want to.
+ - The problem with doing a schlocky or big budget studio film is that it wouldn’t actually be fun for me. It wouldn’t be exciting.
+ - Let’s put it this way, when I was casting, I cast Viggo first and then found someone who could play his wife, rather than the other way around. So for me he’s still the lead character.
+ - The artist’s duty to himself is a combination of immense responsibility and immense irresponsibility. I think those two interlock.
+ - But when you’re writing a script – for me anyway – you have to sort of create an enforced innocence. You have to divest yourself of worrying about a lot of stuff like what movies are hot, what movies are not hot, what the budget of this movie might be.
+ - Re-writing is different from writing. Original writing is very difficult.
+ - So not only can you not imagine dying, you can’t really imagine existence before you were born.
+
+57 quotes

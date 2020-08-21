@@ -1,0 +1,28 @@
+ - Life is nothing without a little chaos to make it interesting.
+ - Some people use things; they destroy. You’re a creator, a builder.
+ - In a society that worships love, freedom and beauty, dance is sacred. It is a prayer for the future, a remembrance of the past and a joyful exclamation of thanks for the present.
+ - Love is the strongest emotion any creature can feel except for hate, but hate can’t hurt you. Love, and trust, and friendship, and all the other emotions humans value so much, are the only emotions that can bring pain. Only love can break a heart into so many pieces.
+ - A story isn’t a charcoal sketch, where every stroke lies on the surface to be seen. It’s an oil painting, filled with layers that the author must uncover so carefully to show its beauty.
+ - White pill, blue pill, yellow pill, purple pill; its like swallowing a rainbow every bedtime.
+ - You speak of giving up my dreams. Have you ever, since Maeve’s coven split, had a dream? Have you ever had anything worth dying for?
+ - My prayer is simple my dear one, my dear one. May you never need understand. My prayer is for peacetime, my child, my child. Live it well and this life can be grand.
+ - Only in our darkest hour do we find the light. Humans are destructive by nature. The world is lacking balance. Terrors are beginning to triumph over the simple joys. Stand back and watch, because you’re going to be here when we fall.
+ - Fate has a twisted sense of humor.
+ - Sacrifice of live, sacrifice for love. Fate is gentle and harsh; she gives and she takes.
+ - The night is full of mystery. Even when the moon is brightest, secrets hide everywhere. Then the sun rises and its rays cast so many shadows that the day creates more illusion than all the veiled truth of the night.
+ - Live it well and this life can be grand.
+ - I ask for trust. It is a lot, I know; it isn’t easy to give. But it is all I ask.
+ - No one can make you a victim but yourself.
+ - Anhamirak, abandon and freedom.
+ - I want to chase the butterflies.
+ - We are not. We never were; we never shall be. We return to the void we never, for mehay is the center of all, and all is the center of nothing.
+ - Those who cannot be aggressive are hunted down while they shiver and hide because the night is dark.
+ - The only way I can protect him now is to make sure he never understands how easy killing can become.
+ - Insanity makes the rivers flow.
+ - What one person does, several people usually consider.
+ - I’m standing in a slaughterhouse where the cattle are begging to become hamburgers. I have a right to be jumpy.
+ - They say the first of my kind was Alasdair, a human raised by hawks. She learned the languages of birds and was gifted with their form.
+ - Breath belongs to Mehay. Ecl has no use for it.
+ - Ever hear the expression “write what you know?” My version says “write what you want to know.” If you want to know about the history of Spain, write about the history of Spain – fiction or nonfiction. If your fascinated by the old west, maybe your character lives there.
+
+26 quotes

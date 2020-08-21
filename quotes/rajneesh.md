@@ -1,0 +1,502 @@
+ - If you wish to see the truth, then hold no opinion for or against.
+ - The Mind: a beautiful servant, a dangerous master.
+ - Tomorrow never comes.
+ - If you suffer it is because of you, if you feel blissful it is because of you. Nobody else is responsible – only you and you alone. You are your hell and your heaven too.
+ - Watch, witness. Your body is not you; your mind is not you. You are just a pure witness.
+ - If you work without love, you are working like a slave. When you work with love, you work like an emperor. Your work is your joy, your work is your dance.
+ - Learn to listen and trust your inner voice.
+ - Fearlessness is not the absence of fear, fearlessness is the total presence of fear with the courage to face it.
+ - Just being alive is such a gift, but nobody ever told you to be thankful to existence.
+ - Don’t try to force anything. Let life be a deep let-go. God opens millions of flowers everyday without forcing their buds.
+ - Real love is not an escape from loneliness, real love is an overflowing aloneness. One is so happy in being alone that one wud like to share.
+ - Come out of the masses. Stand alone like a lion and live your life according to your own light.
+ - Get out of your head and get into your heart. Think less, feel more.
+ - Meditation is the only cure for all sicknesses that man is prone to; a single medicine. And I should remind you that the word meditation and medicine come from the same root. Medicine for the body and meditation for the soul. They both bring health.
+ - Respect your uniqueness, and drop comparison. Relax into your being.
+ - Let go, and move closer to existence in silence and peace, in meditation.
+ - Lovers never surrender to each other, lovers simply surrender to love.
+ - Meditation simply means a state of no-thought, awareness without the process of thought, just pure, mirror-like awareness, with no thoughts passing in the mind.
+ - Meditation will drop all the masks. It is a search for the original face.
+ - Everyone is born unique. No comparison is possible. You are you, and I am I.
+ - My love is unconditional. Your action is irrelevant.
+ - NOW is the only reality. All else is either memory or imagination.
+ - When mind knows, we call it knowledge. When heart knows, we call it love. And when being knows, we call it meditation.
+ - Never sacrifice your life for anything! Sacrifice everything for life! Life is the ultimate goal.
+ - Sinners live in a sort of hell, and saints imagine themselves in a sort of heaven. And the sage? – for him it is moksha, for him it is the absolute freedom. He is freed from all duality. The secret key, and the only key, is awareness.
+ - Don’t seek, don’t search, don’t ask, don’t knock, don’t demand – relax. If you relax, it comes. If you relax, it is there. If you relax, you start vibrating with it.
+ - Be – don’t try to become. Being is enlightenment, becoming is ignorance.
+ - They say: Think twice before you jump. I say: Jump first and then think as much as you want!
+ - The moment you accept yourself, you become beautiful.
+ - Hell and heaven are within you, both gates are within you. When you are behaving unconsciously there is the gate of hell; when you become alert and conscious, there is the gate of heaven.
+ - Never belong to a crowd; Never belong to a nation; Never belong to a religion; Never belong to a race. Belong to the whole existence. Why limit yourself to small things? When the whole is available.
+ - The inner emptiness is the door to God.
+ - That is the ultimate synthesis – when Zorba becomes a Buddha. I am trying to create here not Zorba the Greek but Zorba the Buddha.
+ - Life is a garden. It is an opportunity. You can grow weeds, you can grow roses; it all depends on you.
+ - The experience of bliss will give you an insight into the very phenomenon of beauty. Not only does it make you beautiful, it suddenly transforms the whole world. The whole world becomes beautiful because the world reflects you, it is a mirror.
+ - A conditional love is nothing but an infatuation, sexuality. Unconditional is the only way love can be. Wherever a condition comes in, love disappears. It cannot live in bondage, and a condition gives it an imprisonment. Love can only live like the vast sky. Love knows no boundaries.
+ - People say love is blind because they do not know what love is. I say unto you, only love has eyes; other than love, everything is blind.
+ - Beware: don’t choose the convenient, the comfortable, the respectable, the socially acceptable. Choose something that rings a bell in your heart.
+ - Love is happy when it is able to give something. The ego is happy when it is able to take something.
+ - Anger is fear in disguise.
+ - Life in itself is an empty canvas; it becomes whatsoever you paint on it. You can paint misery, you can paint bliss. This freedom is your glory.
+ - Knowledge is not information, it’s transformation.
+ - Remember: life is a rhythm between day and night, summer and winter. It is a continuous rhythm. Never stop anywhere! Be moving! And the bigger the swing, the deeper your experience will be.
+ - Seriousness is a disease.
+ - People are afraid, very much afraid of those who know themselves. They have a certain power, a certain aura and a certain magnetism.
+ - Love knows how to forgive. Love cannot hurt and cannot be violent.
+ - Respect man, love man. Respect his individuality, respect his differences. And that is possible only if you respect your individuality. That is possible only if you are grounded in your own being and you are unafraid.
+ - If you become a little alert you will find love, light, laughter, everywhere.
+ - Forget the dancer, the center of the ego; become the dance. That is meditation.
+ - Instead of pleasing, learn the art of happiness.
+ - The feminine is more powerful than the masculine, the soft is more powerful than the hard, the water is more powerful than the rock.
+ - Life should be a continual celebration, a festival of lights the whole year round. Only then can you grow up, can you blossom.
+ - Meditation is just a courage to be silent and alone. Slowly slowly, you start feeling a new quality to yourself, a new aliveness, a new beauty, a new intelligence – which is not borrowed from anybody, which is growing within you. It has roots in your existence.
+ - Your honesty, Your love, Your compassion should come from your inner being, not from teachings and scriptures.
+ - Death is the greatest illusion of all.
+ - There is no other greater ecstasy, no other greater blissfulness, than to know who you are. To know the inner space is to know all. It is unlimited silence but not dead, it is alive with songs of its own, with dances of its own.
+ - Don’t be attached to the things of the world, and don’t be attached to the things of the other world, because things are things. It makes no difference whether they are of this world or the other world – attachment is the problem.
+ - If you want to observe anger in its entirety, you will have to observe it alone, in the privacy of your room. Then alone can you see it in its fullness, for then there are no limitations. This is why I advise the pillow meditation to certain people, so that they can observe their anger fully.
+ - Only an acceptance of both the flowers and the thorns can bring you peace. Peace, after all, is the fruit of total acceptance.
+ - Love is life, love is god, love is sannyas!
+ - Only a blind man can easily define what light is. When you do not know, you are bold. Ignorance is always bold; knowledge hesitates. And the more you know, the more you feel that the ground underneath is dissolving. The more you know, the more you feel how ignorant you are.
+ - Remember, frustration is out of expectation, and ego is always expecting. The ego is a beggar.
+ - If you love yourself, you love others. If you hate yourself, you hate others.
+ - Don’t be serious about seriousness. Laugh about it, be a little foolish. Don’t condemn foolishness; it has its own beauties.
+ - Sharing is the most precious religious experience. Sharing is good.
+ - Meditation is enough. Everything else follows on its own.
+ - Become more and more innocent, less knowledgeable and more childlike. Take life as fun – because that’s precisely what it is!
+ - People love freedom – but nobody wants responsibility. And they come together, they are inseparable.
+ - Start with meditation, and things will go on growing in you – silence, serenity, blissfulness, sensitivity. And whatever comes out of meditation, try to bring it out in life. Share it, because everything shared grows fast.
+ - When your ego is no more, only then will you know who you are.
+ - A single moment of love is equal to the whole eternity of love.
+ - I live my life based on 2 principles. One, I live as if today was my last day on earth. Two, I live today as if I am going to live forever.
+ - The innocence of children is their wisdom, the simplicity of children is their egolessness. The freshness of the child is the freshness of your consciousness, which never becomes old, which always remains young.
+ - Take it easy, and remember “Easy is Right.”
+ - Life is not a tragedy, it is a comedy. To be alive means to have a sense of humor.
+ - Once your awareness becomes a flame, it burns up the whole slavery that the mind has created.
+ - Tomorrow-drop that word from your vocabulary! Tomorrow does not exist, it cannot exist: it is not in the nature of things. Only this day exists.
+ - I am less interested in your chain-smoking; I am more interested in your habit. Any habit that becomes a force, a dominating force over you, is a sin. One should live more in freedom. One should be able to do things not according to habits but according to the situations.
+ - If you feel you are the body type, then running can be very beautiful for you: a four, five mile run every day. And make it a meditation. It will transform you completely.
+ - Drop the mind and the divine. God is not an object, it is a merger. The mind resists a merger, the mind is against surrender; the mind is very cunning and calculating.
+ - Move inwards! Contentment is a quality of your center; it is not found on the circumference. Fulfillment is when you have arrived at your real, authentic being; it is not found in the ego.
+ - All hopes are lies, all expectations of the future are lies.
+ - All methods of meditation are nothing but methods to help you to remember the art of let-go.
+ - People expect too much. People who expect heaven always fall into hell – that is the law. Expect heaven and hell is certain. Don’t expect heaven and there will never be any hell.
+ - Without zest, what is life? Just waiting for death?
+ - Respect Life and Life will respect You. Love Life and Love will shower Blessings on You.
+ - Life should not only be lived, it should be celebrated.
+ - Courage Is a Love Affair with the Unknown.
+ - Nobody is here to fulfill your dream. Everybody is here to fulfill his own destiny, his own reality.
+ - Love can make a great celebration out of your life – but only love, not lust, not ego, not possessiveness, not jealousy, not dependence.
+ - Lovers have known sometimes what saints have not known.
+ - Being aware of awareness itself only consciousness can get you there to the truth of yourself the immortal inner being...
+ - What is discipline? Discipline means creating an order within you. As you are, you are a chaos.
+ - To me, man means awareness of death. I am not saying become afraid of death; that is not awareness. Just be aware of the fact that death is coming nearer and nearer and you have to be prepared for it...
+ - Just a little detachment from the ego is needed.
+ - Devotion is love overflowing. Even when there is nobody, it is overflowing – to things, to tables, to chairs, to walls. It is just overflowing, it is not a question of to whom.
+ - Zen says: be empty. Look without any idea. Look into the nature of things but with no idea, with no prejudice, with no presupposition.
+ - Once the ego is not there, there is no expectation, frustration, no desire, no despair. Suddenly one finds oneself falling into a deep harmony with the cosmos. And that harmony is God; that harmony is nirvana; that harmony is tao.
+ - The whole search of religion is for that witness: how to find that which is real.
+ - God is there only if you surrender. Surrender makes anything God. Surrender give you the eyes, and everything that is brought to these eyes becomes Divine.
+ - There is great difference between trust and belief. Trust is personal, Belief is social.
+ - The western mind is linear, the eastern mind is circular.
+ - Because there is no ego, God can flow through you; great creativity becomes possible.
+ - The past is no more and the future is not yet. The only right person is one who lives moment to moment, whose arrow is directed to the moment, who is always here and now; wherever he is, his whole consciousness, his whole being, is involved in the reality of here and in the reality of now.
+ - A man who loves himself takes the first step towards real love.
+ - Real creativity comes only out of silence.
+ - Religion can be condensed in a single phrase: total freedom to be oneself.
+ - First, meditation, and then out of meditation comes creativity of its own accord.
+ - The moment a child is born, the mother is also born. She never existed before. The woman existed, but the mother, never. A mother is something absolutely new.
+ - Just look at life with more playful eyes. Don’t be serious. Seriousness becomes like a blindness. Don’t pretend to be a thinker, a philosopher. Just simply be a human being. The whole world is showering its joy on you in so many ways, but if you are too serious, you cannot open your heart.
+ - Forget the dancer, the center of the ego. Become the dance. Then the dancer disappears and only the dance remains. Then the dancer is the dance. There is no dancer separate from dance, no dance separate from the dancer.
+ - Love is authentic only when it gives freedom. Love is true only when it respects the other person’s individuality, his privacy.
+ - Discover yourself, otherwise you have to depend on other people’s opinions who don’t know themselves.
+ - The word devil is very beautiful, if you read it backwards it becomes lived.
+ - You are not accidental. The world needs you. Without you, something will be missing in existence and nobody can replace it.
+ - Freedom means the capability to say yes when yes is needed, to say no when no is needed, and sometimes to keep quiet when nothing is needed – to be silent, not to say anything. When all these dimensions are available, there is freedom.
+ - When movement becomes ecstatic, then this is dance. When the movement is so total there is no ego, then it is dance.
+ - No meditation, no life. Know meditation, know life.
+ - Don’t get attached to anything.
+ - Mind’s requirements and expectations cannot be fulfilled. Existence has no obligation to fulfill mind’s requirements and demands. You have to accept existence as it is.
+ - Only disciplined people become free, but their discipline is not obedience to others: their discipline is obedience to their own inner voice. And they are ready to risk anything for it.
+ - If you have found your truth within yourself there is nothing more in this whole existence to find.
+ - Paradise is within you, in your state of no-mind. And hell is also within you, in your very mind.
+ - It all depends on you. You can go on sleeping forever, you can wake up right this moment.
+ - A comfortable, convenient life is not a real life – the more comfortable, the less alive. The most comfortable life is in the grave.
+ - I am the rich man’s guru.
+ - Just get out of your own way.
+ - Dance as if this is the last dance. Dance with abandon, holding nothing back. That will bring transformation to your being, and a possibility of transformation for other people too.
+ - To me there is nothing more sacred than love and laughter, and there is nothing more prayerful than playfulness.
+ - When you attain to an egoless emptiness great creativity happens.
+ - Your mind is a constant traffic of thoughts, and it is always rush hour, day in, day out. Meditation means to watch the movement of thoughts in the mind.
+ - The real honesty is a responsibility to the present moment. It needs tremendous awareness. You have to be honest to the present moment, not to the past, not to the future.
+ - The whole art of ecstasy, meditation, samadhi, is: How to become one with the rhythm of the universe. When it exhales, you exhale. When it inhales, you inhale. You live in it, are not separate, are one with it.
+ - Truth is pure awareness.
+ - Do the small things of life with a relaxed awareness. When you are eating, eat totally – chew totally, taste totally, smell totally. Touch your bread, feel the texture. Smell the bread, smell the flavor. Chew it, let it dissolve into your being.
+ - A man becomes a Buddha the moment he accepts all that life brings with gratitude.
+ - Meditation is nothing but coming to terms with your inner emptiness: recognizing it, not escaping; living through it, not escaping; being through it, not escaping. Then suddenly the emptiness becomes the fullness of life.
+ - How much longer will you go on letting your energy sleep? How much longer are you going to stay oblivious of the immensity of yourself?
+ - My approach is neither of attachment nor of detachment, but of simple understanding.
+ - Drop the idea that attachment and love are one thing. They are enemies. It is attachment that destroys all love.
+ - Fools laugh at others. Wisdom laughs at itself.
+ - When love and hate are both absent everything becomes clear and undisguised.
+ - Love needs two things: it has to be rooted in freedom and it has to know the art of trust.
+ - In the Lotus Sutra, it is said everything is emptiness – this world is empty, hell is empty, heaven is empty, God is empty, everything is emptiness. Emptiness is the nature of all things, nothingness, so be attuned to nothingness and you will achieve.
+ - Be like an alone peak high in the sky. Why should you hanker to belong? You are not a thing! Things belong!
+ - Zen lives in the present. The Whole teaching is: how to be in the present; how to get out of the past which is no more and how not to get involved in the future which is not yet, and just to be rooted, centered, in that which is.
+ - Don’t swim against the current. Stay in the river, become the river; and the river is already going to the sea. This is the great teaching.
+ - Meditation is a silent heart, a peaceful mind which can make life more lovable, more livable...
+ - Take life easily, lovingly, playfully, non-seriously. Seriousness is a disease, the greatest disease of the soul and playfulness the greatest health.
+ - Logic ridicules love, and love smiles knowingly at the whole foolishness of logic.
+ - Love respects the other. It is a give-and-take relationship. Love enjoys giving, and love enjoys taking. It is a sharing, it is a communication. Both are equal in love; in a sexual relationship both are not equal. Love has a totally different beauty to it.
+ - God is always joking. Look at your own life – it is a joke! Look at other people’s lives, and you will find jokes and jokes and jokes. Seriousness is illness; seriousness has nothing spiritual about it. Spirituality is laughter, spirituality is joy, spirituality is fun.
+ - The whole effort of a Jesus or a Buddha or a Bodhidharma is nothing but how to undo that which society has done to you.
+ - Here, fire turns into water; Here, the dancing of the rain declares the sun. There’s no opposition in existence, no contradiction; Everything supports everything else.
+ - Attachment is the root cause of all misery. Possessiveness is nourishment for the ego.
+ - The moment love becomes a relationship, it becomes a bondage, because there are expectations and there are demands and there are frustrations, and an effort from both sides to dominate. It becomes a struggle for power...
+ - Relax, let go. But remember only one thing: You are a witness.
+ - True freedom is always spiritual. It has something to do with your innermost being, which cannot be chained, handcuffed, or put into a jail.
+ - Your freedom is a supreme value. Nothing is higher than that. But your freedom is possible only if you are not encaged in your habits, unconscious patterns of living. Change your gestalt from unconsciousness to consciousness.
+ - Egolessness is contentment.
+ - If you are courageous, listen to the heart. If you are a coward, listen to the head.
+ - Love can never possess. Love is giving freedom to the other. Love is an unconditional gift, it is not a bargain.
+ - Love brings freedom. Loyalty brings slavery.
+ - Meditation is the art of dying. Then your ego will be shocked. And it is also truer to cal I it the art of dying, because you r ego is not going to grow, your ego is going to die in meditation.
+ - Meditation is the breath of your soul. Just as breathing is the life of the body, meditation is the life of the soul.
+ - Life is a mystery, and there is nothing to explain everything is just open, it is in front of you. Encounter it! Meet it! Be courageous!
+ - You are creating your own hell.
+ - Surrender means seeing that “I am not separate” – just SEEING that “I am not separate.” Nothing is surrendered, nothing is dropped; just a nonsense idea, a dream is no more there because you are awake.
+ - Bring everything up to the surface. Accept your humanity, your animality. Whatsoever is there, accept it without any condemnation. Acceptance is transformation, because through acceptance awareness becomes possible.
+ - Only meditation, only silence, only transcending beyond your mind is going to give you contentment and fulfillment.
+ - Meditation means: put the mind aside and watch. The first step – LOVE YOURSELF – will help you tremendously. By loving yourself you will have destroyed much that society has implanted within you. You will have become freer from the society and its conditioning.
+ - The only thing that matters in life, is your own opinion about yourself.
+ - Life is a mirror, it reflects your face. Be friendly, and all of life will reflect friendliness.
+ - The less the head, the more the wound will heal. No head there is no wound. Live a headless life. Move as a total being, and accept things.
+ - Unless your freedom turns into a creative realization, you will feel sad. Because you will see that you are free-your chains are broken, and you are no longer in prison; you are standing under the starry night, completely free. But where do you go?
+ - At its highest, love is a religious state of consciousness. I love you too, Buddha loves, Jesus loves, but their love demands nothing in return.
+ - All duality is a mind creation, all duality is created by the clinging and attached mind. When there is no attachment there is no duality.
+ - Unless you become alert and aware in life, unless you change the quality of your living, you will not die consciously. And only a conscious death can bring you to a conscious birth; and then a far more conscious life opens its doors.
+ - The deeper you surrender to existence, life, nature, the more loving, more understanding, more insightful you become.
+ - Begin with dhyana, with meditation, and end in samadhi, in ecstasy, and you will know what God is. It is not a hypothesis, it is an experience. You have to LIVE it – that is the only way to know it.
+ - This is the way the mind functions: its whole interest is in that which you have not got.
+ - Life cannot be possessed. You cannot have it in your fist. If you want to have it, you have to keep your hands open.
+ - Meaning is man-created. And because you constantly look for meaning, you start to feel meaninglessness.
+ - My meditation is a method of being aware – of whatever you are doing, thinking, feeling.
+ - You just listen to your own heart. That is your only teacher.
+ - If you become more sensitive to beauty, to poetry, that means your love has blossomed. And all the energy that has been left by fear, anger and hate, will be taken over by your love, your sensitivity, your compassion, your creativity. This is the whole alchemy of changing base metals into gold.
+ - Remember, if you have not known sadness together with happiness you have not known anything yet. Then your happiness is superficial; your sadness is also superficial. Then you have been living on the surface; then you have known only the waves; you have not known the depth of the ocean that you are.
+ - Tantra is the science of transforming ordinary lovers into soul mates. And that is the grandeur of Tantra. It can transform the whole earth; it can transform each couple into soul mates.
+ - Anywhere everywhere! Anything anyhow! just dance!
+ - Millions of people have decided not to be sensitive. They have grown thick skins around themselves just to avoid being hurt by anybody. But it is at great cost. Nobody can hurt them, but nobody can make them happy either.
+ - God is the collective ego of the world.
+ - Falling in love you remain a child; rising in love you mature. By and by love becomes not a relationship, it becomes a state of your being. Not that you are in love – now you are love.
+ - If you can grow in love, you will grow in awareness. If you grow in awareness, you will grow in love...
+ - Take hold of your own life. See that the whole existence is celebrating. These trees are not serious, these birds are not serious. The rivers and the oceans are wild, and everywhere there is fun, everywhere there is joy and delight. Watch existence, listen to the existence and become part of it.
+ - God is the very creative energy of existence – creativity rather than a creator. He is not the poet but the poetry, not the dancer but the dance, not the flower but the fragrance.
+ - All moments are beautiful, only you have to be receptive and surrendering. All moments are blessings, only you have to be capable of seeing. All moments are benedictions. If you accept with a deep gratitude, nothing ever goes wrong.
+ - Attachment is the root cause of all misery – and our mind is such that it starts clinging to each and everything. It starts becoming identified, attached, it does not know how to keep a distance; hence the misery.
+ - Enlightenment is choicelessness. But don’t misunderstand me. Before that, you will have to move very cautiously, choosing the right against the wrong, choosing the truer so that you can reach to the ultimate truth.
+ - So the first thing: become aware of death. Think about it, look at it, contemplate it. Do not be afraid, do not escape the fact. It is there and you cannot escape it! It has come into existence with you.
+ - Only those who are ready to become nobodies are able to love.
+ - This mind is a prison. It cannot find any freedom anywhere. It must die before freedom comes to you. But we have taken the mind as us, we are identified with it. This death of mind never happens to us, it never occurs to us.
+ - Remember, Jesus says: Those who are the last here will be the first in my kingdom of God.
+ - Life reflects, life resounds, life echoes whatsoever you throw at life.
+ - Whatever happened yesterday was the past.
+ - The Truth Is That Existence Wants Your Life To Become A Festival Because When You Are Unhappy, You Also Throw Unhappiness All Around.
+ - Spirituality is rebellion; religiousness is orthodoxy. Spirituality is individuality; religiousness is just remaining part of the crowd psychology. Religiousness keeps you a sheep, and spirituality is a lion’s roar.
+ - You can enter yoga, or the path of yoga, only when you are totally frustrated with your own mind as it is. If you are still hoping that you can gain something through your mind, yoga is not for you.
+ - Happiness is a shadow of harmony; it follows harmony. There is no other way to be happy.
+ - Wisdom is a very relaxed state of being. Wisdom is not knowledge, not information; wisdom is your inner being awake, alert, watchful, witnessing, full of light.
+ - There is no god, so how can I consider myself a god? God is the greatest lie invented by man.
+ - Whatever you feel, you become. It is your responsibility.
+ - And remember one fundamental law of life. If they are hostile, they have hate towards us, sooner or later they are going to fall into my trap, because hate can turn into love very easily, just as love can become hate very easily.
+ - Create the way by your walking; you will not find a ready-made path.
+ - And this sensitivity will create new friendships for you – friendships with trees, with birds, with animals, with mountains, with rivers, with oceans, with stars. Life becomes richer as love grows.
+ - When Zen masters say ‘effortlessness’ they are referring to the state when your enlightenment is well rooted. Now there is no need of any effort; now you can be relaxed and at ease, it will grow on its own accord. It will bring much foliage, and many flowers, and many blessings.
+ - Anxiety comes into existence only when we become identified with small things. And they all pass.
+ - If you can become a mirror you have become a meditator. Meditation is nothing but skill in mirroring. And now, no word moves inside you so there is no distraction.
+ - Life in itself is so beautiful that to ask the question of the meaning of life is simply nonsense.
+ - Only the inner silence is yours. No-one gave it to you. You were born with it and you will die with it. Thoughts have been given to you. You have been conditioned to them.
+ - Lovers are mirrors to each other. Love makes you aware of your original face.
+ - Those who have known death from inside lose all fear of death.
+ - Intelligence comes from meditation, intelligence comes from rebellion, intelligence does not come from memory.
+ - Accept the responsibility of being yourself as you are, with all that is good and with all that is bad, with all that is beautiful and that which is not beautiful. In that acceptance a transcendence happens and one becomes free.
+ - Laughter relaxes. And relaxation is spiritual.
+ - If you come to a really religious man you will feel a grace around him, effortless. He has not done anything to himself, he has simply relaxed into the ultimate, and you feel the effortlessness around him.
+ - The whole play of existence is so beautiful that laughter can be the only response to it. Only laughter can be the real prayer, gratitude.
+ - You don’t seem to have guts. There is no need to surrender to each other. Surrender to love means: enjoy in the happiness of the other, rejoice in the being of the other; be in tune with each other, dance in harmony.
+ - Meditation is not growth of the ego, it is death of the ego.
+ - I’ll never make any resolutions. Drop all resolutions! Let life be a natural spontaneity. The only golden rule is that there are no golden rules.
+ - People are not things, you cannot have ownership.
+ - It is your attachment that creates hell.
+ - The mind is constantly talking. If the inner talk can drop even for a single moment you will be able to have a glimpse of no-mind. That’s what meditation is all about. The state of no-mind is the right state. It is your state.
+ - Your ego is just an idea implanted in your mind. It is poisonous. Your ego keeps driving you madder and madder.
+ - Love is just like a breeze: it comes, but you should not close your doors to keep the breeze inside.
+ - Meditation is the alchemy of transforming. The unconscious into the conscious. It gives you a tremendous power, Far greater than anger, greed and lust.
+ - The world is not a problem; the problem is your unawareness.
+ - To be an individual is the hardest thing in the world, because nobody likes you to be an individual. Everybody wants to kill your individuality and to make a sheep out of you. Nobody wants you to be on your own.
+ - Spread compassion all around you. Look around you – people are so unhappy, don’t add to their unhappiness. Your compassion will lessen their unhappiness; just one word of compassion will lessen their unhappiness. Don’t add to their unhappiness.
+ - A woman is more humble, more grateful, more loving.
+ - Mind is repetitive, mind always moves in circles. Mind is a mechanism: you feed it with knowledge, it repeats the same knowledge, it goes on chewing the same knowledge again and again. No-mind is clarity, purity, innocence. No-mind is the real way to live, the real way to know, the real way to be.
+ - Hence my insistence that music and meditation should go together. That adds a new dimension to both. Both are enriched by it.
+ - That which makes you miserable is the only sin. That which takes you away from yourself is the only thing to be avoided.
+ - Grace is a feminine quality.
+ - Once you start dropping thoughts, the dust that you have collected in the past, the flame arises – clean, clear, alive, young. Your whole life becomes a flame, and a flame without any smoke. That is what awareness is.
+ - Every being is in search of truth, but small fears go on preventing you.
+ - A sannyasin has to relax to that total state of let-go when everything happens and nothing is done.
+ - The terrorism is not in the bombs, in your hands; the terrorism is in your unconscious.
+ - The innermost core is witnessing, awareness, watchfulness. You can call it anything, but it will be another meaning of witnessing. Truth is pure awareness.
+ - When you listen with perfect awareness, then listening becomes possible.
+ - To me spirituality needs an honest individuality. It does not allow any kind of dependence. It creates a freedom for itself, whatever the cost. It is never in the crowd but alone, because the crowd has never found any truth. The truth has been found only in people’s aloneness.
+ - Only authentic human beings can create a society which will be joyous, ecstatic, and in the real sense, human.
+ - Possessiveness destroys love. And they should not be possessed, because that again destroys your love.
+ - One day you will disappear on a funeral pyre – just into nothingness, as smoke.
+ - Nobody has the power to take two steps together; you can take only one step at a time.
+ - The heart is always right – if there’s a question of choosing between the mind and the heart – because mind is a creation of society. It has been educated. You have been given it by society, not by existence. The heart is unpolluted.
+ - If you are not capable of being alone, your relationship is false. It is just a trick to avoid your loneliness, nothing else.
+ - Love never hurts anybody. And if you feel you have been hurt by love, it is something else in you, not your loving quality that feels hurt.
+ - Celebration is my attitude, unconditional to what life brings.
+ - Misery is nothing but the shadow of attachment. And hence all stagnancy. The attached person becomes a stagnant pool – sooner or later he will stink. He flows no more.
+ - When you love, love as if the person is a god, not less than that. Never love a woman as a woman and never love a man as a man.
+ - Modern art is childish – not childlike, remember, childish; not innocent but stupid, insane, pathological. We have to get rid of this trend. We have to create a new kind of art, a new kind of creativity. We have to bring to the world again what Gurdjieff calls objective art.
+ - Death is the most misunderstood phenomenon. People have thought of death as the end of life. That is the first, basic misunderstanding.
+ - When you feel angry, there is no need to be angry against someone; just be angry. Let it be a meditation. Close the room, sit by yourself, and let the anger come up as much as it can. If you feel like beating, beat a pillow.
+ - Comparison is a very foolish attitude, because each person is unique and incomparable. Once this understanding settles in you, jealousy disappears.
+ - Many people have come and left, and it has been always good because they emptied some space for better people. It is a strange experience, that those who have left me have always left places for a better quality of people. I have never been a loser...
+ - Always go with the river of life. Never try to go against the current, and never try to go faster than the river. Just move in absolute relaxation, so that each moment you are at home, at ease, at peace with existence.
+ - Attachment is not love. Where there is attachment there is exploitation.
+ - What is the difference between a prostitute and a wife? One is a temporary arrangement, the other is a little more permanent. Marriage is a permanent kind of prostitution; deep down, it is not different. Hence marriage and prostitution have both existed together.
+ - A deep inner emptiness is needed; that inner emptiness becomes the womb. So I’m not saying stop doing, stop action; I’m not saying that. I am saying that whatsoever you are doing, let it be just an outside activity. Inside become feminine, silent, doors opened, empty, waiting.
+ - What kind of living can be out of fear? Once the armor is dropped you can live out of love, you can live in a mature way. The fully matured man has no fear, no defense; he is psychologically completely open and vulnerable.
+ - An expectation is a shelter – it gives you a security feeling. So when someone breaks your expectations he is breaking your shelter, making you insecure, fearful.
+ - You are not feeling empty because you don’t have much money. You are feeling empty because you have not yet encountered your real self, you have not come to your authentic individuality.
+ - Sadness comes, joy comes, and everything passes by. What remains always is the witness. The witness is beyond all polarities.
+ - Through meditation one has to achieve a dreamless sleep with full alertness. Once this happens, the drop falls into the ocean and becomes the ocean.
+ - Friendship is the purest love. It is the highest form of Love where nothing is asked for, no condition, where one simply enjoys giving.
+ - When one is in love with existence one feels such blessing, such bliss, that it is natural to bow down in deep gratitude.
+ - We have come into the world naked, and all the animals are naked, why should man hide his body behind clothes?
+ - Freedom is not to be destroyed in the name of love. Freedom is a far higher value than your so-called love.
+ - Perfect people don’t exist. And perfect people, if they existed, would be very boring. It is imperfection that keeps life interesting.
+ - Remember the emphasis on the heart. the mind lives in doubt and the heart lives in trust. When you trust, suddenly you become centered.
+ - From birth to death man is a long sleep, sometimes dreaming with eyes closed, sometimes dreaming with eyes open, but dreaming all the same, all the time.
+ - No, explanation is not needed – only exclamation, a wondering heart, awakened, surprised, feeling the mystery of life each moment. Then, and only then, you know what truth is. And truth liberate.
+ - Nobody can teach you love. Love you have to find yourself, within your being, by raising your consciousness to higher levels.
+ - Nobody asked you about being born, nobody is going to ask you when the time comes for you to be taken away. Then why be worried? Birth happened to you; death will happen to you; who are you to come in between?
+ - I resolve never to make any resolutions because all resolutions are restrictions for the future. All resolutions are imprisonments.
+ - Peace follows love energy like a shadow.
+ - If you love yourself, you will be surprised: others will love you. Nobody loves a person who does not love himself.
+ - The dance of the flower in the wind, in the sun, in the rain, cannot be understood by the head; the heart has to be open for it.
+ - The experience of life is very bitter. it is sweet only in imagination. In its reality it is very bitter. He escaped from the palace and the women and the riches and the luxury and everything.
+ - Just as the day cannot exist without the night, just as life cannot exist without death, creativity cannot exist without silence. And vice versa is also true: silence cannot exist without creativity.
+ - Your real being only flowers with unconditional love. Ambition is against love. Anything that is against love is against you and your real life.
+ - Practise love. Sitting alone in your room, be loving. Radiate love. Fill the whole room with your love energy.
+ - Intelligence is dangerous. Intelligence means you will start thinking on your own; you will start looking around on your own. You will not believe in the scriptures; you will believe only in your own experience.
+ - I love this world because it is imperfect. It is imperfect, and that’s why it is growing; if it was perfect it would have been dead.
+ - Today it may seem that your anger is very strong, how can meditation break it? But it breaks – it has always broken. Rock is very strong and meditation is very delicate, but this is the mystery of life – the continuity of the delicate can break the strongest and the hardest.
+ - Death is more important than life. Life is just the trivial, just the superficial; death is deeper. Through death you grow to the real life, and through life you only reach death and nothing else.
+ - Relaxation is the point. And if you can relax with an enlightened person his enlightenment will start penetrating you, because when you are relaxed you become porous. When you are tense you are closed; when you relax he will enter.
+ - Meditation is a death – death of all that you are now. Of course there will be a resurrection, but that will be a totally new, fresh original being which you are not even aware is hidden in you.
+ - Don’t say this is good and that is bad. Drop all discrimination. Accept everything as it is.
+ - A respectable person is invariably unrespectable within.
+ - Try to understand the ego. Analyze it, dissect it, watch it, observe it, from as many angles as possible. And don’t be in a hurry to sacrifice it, otherwise the greatest egoist is born: the person who thinks he is humble, the person who thinks that he has no ego.
+ - It does not matter if you are a rose or a lotus or a marigold. What matters is that you are flowering.
+ - Once two persons are tied together freedom is lost and anger arises. When freedom is lost everything becomes ugly. Love means that freedom remains intact: marriage means that freedom has been dropped. You have bargained for permanence, for security, and you have paid for it with freedom.
+ - The man who is egoless is the man who has no ideals. Let this be the criterion, and you have stumbled upon a fundamental. The man of no ego is the man of no ideals. Then how can the ego be created? – the very energy is missing. The energy comes out of friction, conflict, struggle, will.
+ - A Zen master used to say, It is clear and so it is hard to see. A dunce once searched for a fire with a lighted lantern. Had he known what fire was, he could have cooked his rice much sooner.
+ - Next time when anger comes just watch it. Don’t say, I am angry. Say, Anger is there and I am watching it. And see the difference!
+ - Zorba is beautiful, but something is missing. The earth is his, but the heaven is missing. He is earthly, rooted, like a giant cedar, but he has no wings. He cannot fly into the sky. He has roots but no wings.
+ - If you cannot love yourself, you don’t know even the taste of love or what love means.
+ - Marriage is a formality, a legal bondage. Love is of the heart; marriage is of the mind. That’s why I am never in favor of marriage.
+ - But everybody is afraid of death; that too is contagious. Your parents are afraid of death, your neighbors are afraid of death. Small children start getting infected by this constant fear all around. Everybody is afraid of death. People don’t even want to talk about death.
+ - Religion is not knowledge. Religion is love. The word ‘religion’ comes from a root which means binding together – falling into love, becoming one.
+ - Pleasure is a sort of oblivion, a forgetfulness. Pain is remembrance, you cannot forget pain.
+ - Enjoy simple things with total intensity. Just a cup of tea can be a deep meditation.
+ - God is not in heaven – God is in the present moment. If you are also in the present moment you enter the temple.
+ - Yesterday you were thinking about today because then it was tomorrow; now it is today and you are thinking about tomorrow, and when the tomorrow comes, it will become today- because anything that exists, exists here and now, it cannot exist otherwise.
+ - Let sannyas be the turning point. That’s what sannyas is all about: a return journey. One starts moving inwards rather than moving outwards.
+ - Don’t try to understand life. Live it! Don’t try to understand love. Move into love. Then you will know – and all that knowing will come out of your experiencing. The more you know, the more you know that much remains to be known.
+ - If you remain always far, love will die. If you remain always near, love will die. Love can survive only in a continuous flowing relationship.
+ - Sannyas is only a declaration. The work is meditation. In one single word, my religion is complete, and that is meditation.
+ - The heart is like a flower. Unless it is open, it cannot release its fragrance into the world.
+ - My own observation is: lovers don’t surrender to each other, they surrender to something unknown that exists between them. They surrender to love – call it the ‘god of love’ – they both surrender to the god of love. Hence nobody’s ego is fulfilled by your surrender; both the egos disappear in love.
+ - There is no failure in life. It all depends how you take things. If you are desiring too much – you want to reach too high, and you cannot – then there is frustration and failure. But if you are not desiring anything and you are perfectly happy wherever you are, life is moment-to-moment victory.
+ - The desire to rule over others, the will to power, is one of the greatest crimes that man has committed.
+ - To remain absolutely free is what a true and authentic life is. So never gather any character – remain characterless.
+ - With me, illusions are bound to be shattered. I am here to shatter all illusions. Yes, it will irritate you, it will annoy you – that’s my way of functioning and working. I will sabotage you from your very roots! Unless you are totally destroyed as a mind, there is no hope for you.
+ - Bliss follows witnessing – and that is going to be your meditation. Witness your body as separate, witness your mind as separate. Remain rooted in witnessing: “I am only a watcher.” That is going to transform your whole life, it is going to give you the ultimate.
+ - If your ego is hurt you may become angry. Understand that ego itself is a disease. Dissolve your ego as far as possible. If you have inferiority complex, or have a very deficient ego you will loose your temper very easily.
+ - Misery nourishes your ego – that’s why you see so many miserable people in the world. The basic, central point is the ego.
+ - Your ecstasy is a movement towards the height and your meditation is a movement towards the depth. And once you have both, your life becomes a celebration.
+ - Belief is a deception you play upon yourself...
+ - And then comes unhappiness, and one does not become unhappy either. One says, ‘A black cloud passing. I am the witness, the watcher.’
+ - Prem Bubula, I have told you that a woman is to be loved, not understood.
+ - All your seriousness is about sandcastles. And you yourself will leave them one day, trampling them down, and you will not look back. The people who take it seriously miss the beauty of playfulness.
+ - Move as a total being, and accept things. Just for twenty-four hours, try it – total acceptance, whatsoever happens. Someone insults you, accept it; don’t react, and see what happens. Suddenly you will feel an energy flowing in you that you have not felt before.
+ - Look at the trees, look at the birds, look at the clouds, look at the stars-and if you have eyes you will be able to see that the whole existence is joyful.
+ - The perfectionist is bound to be a neurotic, he cannot enjoy life, until he is perfect. And perfection as such never happens, it is not in the nature of things. Totality is possible, perfection is not possible.
+ - First the husband tried to make the wife his possession, and once she is a possession he loses interest. There is some hidden logic in it: his whole interet was to possess; now that is finished, and he would like to try some other woman so he can again go on another trip of possesion.
+ - Love happens when you are ready to share with another human being. Prayer happens when you are ready to share with God.
+ - Life is a balance between rest and movement.
+ - Being is so significant that it is irreplaceable. You are just yourself. Do something that comes out of you – not to assert, but to express! Sing your song, dance your dance, rejoice in being whatever nature has chosen you to be.
+ - Never misunderstand seriousness for sincerity. Sincerity is very playful, never serious. It is true, authentic, but never serious. Sincerity does not have a long face, it is bubbling with joy, radiating with an inner joyousness.
+ - There exists no God. What exists is godliness, and that godliness surrounds you. We are all in the same ocean.
+ - Nobody is superior, nobody is inferior, but nobody is equal either. People are simply unique, incomparable. You are you, I am I. I have to contribute my potential to life; you have to contribute your potential to life. I have to discover my own being; you have to discover your own being.
+ - You don’t want to loose your old friend – the misery – You have invested too much into false – Hence the fear to be exposed -to be true – to be naked as you are.
+ - There is nothing ugly about death; but man, out of his fear, has made even the word, death ugly and unutterable. People don’t like to talk about it. They won’t even listen to the word death.
+ - Love is overflowing joy. Love is when you have seen who you are. Then there is nothing left except to share your being with others.
+ - When you feel expansion of your consciousness, that is the most ecstatic experience possible, because suddenly you are the whole universe. Stars are within you. The sun rises within you and sets within you. The earth moves within you. The flowers blossom within you.
+ - When sadness comes, just sit by the side and look at it and say, “I am the watcher, I am not sadness,” and see the difference. Immediately you have cut the very root of sadness. It is no more nourished. It will die of starvation. We feed these emotions by being identified with them.
+ - Mind cannot think without duality. Duality is the way of thinking. In silence, all dualities disappear.
+ - A witnessing consciousness lives in life but with tremendous non-attachment, with great non-possessiveness; it possesses nothing. It lives totally, it lives passionately, but still knowing that I don’t possess anything.
+ - My finger can point to the moon, but my finger is not the moon. You don’t have to become my finger, nor do you have to worship my finger. You have to forget my finger, and look at where it is pointing.
+ - Bring awareness to each act. Walking on the road, walk fully alert; eating, eat with awareness. Whatsoever you are doing, don’t let the past and the future interfere. Be in the present. That’s what awareness is all about.
+ - And meditation is nothing but enjoying your beautiful aloneness. Celebrating yourself; that’s what meditation is all about.
+ - Surrender is not something that you can do. If you do it, it is not surrender, because the doer is there. Surrender is a great understanding that, “I am not.” Surrender is an insight that the ego exists not, that, “I am not separate.” Surrender is not an act but an understanding.
+ - The beauty of facing life unprepared is tremendous. Then life has a newness, a youth; then life has a flow and freshness. Then life has so many surprises. And when life has so many surprises, boredom never settles in you.
+ - Sometimes happiness comes, sometimes sadness, anger, jealousy – you need not make them your problems.
+ - Bliss needs to be shared; it exists only in sharing.
+ - Transcendence means going beyond duality. Attachment means remaining within duality.
+ - Many times people come to me to be reassured. They ask, they say, ‘I’m feeling very happy and blissful. What do you say?’ What is the need to say anything? The very need shows that the happiness is unreal and imaginary.
+ - The whole world is a cyclone. But once you have found the center, the cyclone disappears. This nothingness is the ultimate peak of consciousness.
+ - Be a loving person rather than in a love relationship – because relationships happen one day and disappear another day. They are flowers; in the morning they bloom, by the evening they are gone.
+ - Meditation is the antidote to all the poisons of your life. It is the nourishment of your authentic nature.
+ - All of the religions are looking after the poor. At least leave me alone to look after the rich. I am the rich man’s guru.
+ - The mind is constantly involved in thinking, in judging, in evaluating. Its whole function seems to be to keep you involved in thoughts, which are nothing but soap bubbles – or perhaps soap bubbles have more substance to them than your thoughts.
+ - Truth is not found by knowledge, it is found by silence. And knowledge is noisy.
+ - Love is the goal, life is the journey.
+ - First you have to do all that you can do, and then you have to learn non-doing. The doing of the non-doing is the greatest doing, and the effort of effortlessness is the greatest effort.
+ - Life is happiness and unhappiness. Life is day and night, life is life and death. You have to be aware of both.
+ - To live in relationship and yet remain independent, that is what courage is.
+ - The intelligent person depends on his own insight; he trusts his own being. He loves and respects himself.
+ - The first thing to be understood: effort is needed, but effort alone is not enough – effort and then effortlessness, effort plus effortlessness. Effort precedes, and then effortlessness follows. Effortlessness is the peak of effort, it comes only when you have reached the peak.
+ - Love can exist only after meditation, not before it. That is a simple existential law. Before meditation – only lust, only sexuality. Before meditation you are an animal and not really a human being. With meditation a transformation comes: you become human, and out of your humanness, love flows.
+ - Misery has only one meaning, that things are not fitting with your desires – and things never fit with your desires, they cannot. Things simply go on following their nature.
+ - I am not against marriage – without marriage, ninety-nine percent jokes will disappear from the world. How I can be against marriage? I am all for it.
+ - First you will feel your inner transformation in your outer relationships, and then you will go deep. Then only will you begin to feel something inner. But we have a settled attitude about ourselves. We don’t want to look into relationship at all, because then the naked face comes up.
+ - Jealousy means ego, jealousy means unconsciousness. Jealousy means that you have not known even a moment of joy and bliss; you are living in misery. Jealousy is a by-product of misery, ego, unconsciousness.
+ - Each individual’s way is going to be different. Never follow anybody. That is the greatest calamity that can happen to a man. Once you start following somebody else, you become a carbon copy. You become an imitation.
+ - Millions of people are suffering: they want to be loved but they don’t know how to love. And love cannot exist as a monologue; it is a dialogue, a very harmonious dialogue.
+ - Love makes you empty – empty of jealousy, empty of power trips, empty of anger, empty of competitiveness, empty of your ego and all its garbage. But love also makes you full of things which are unknown to you right now; it makes you full of fragrance, full of light, full of joy.
+ - Future is your projection of unfulfilled desires. The more unfulfilled you are, the bigger a future you have. The more unfulfilled is your being, the richer the dreams you have of the future. But it is just in your mind.
+ - Don’t analyze, celebrate it.
+ - In this world, the greatest courage is to drop the mind aside. The bravest man is who can see the world without the barrier of the mind, just as it is. It is tremendously different, utterly beautiful. There is nobody who is inferior and there is nobody who is superior – there are no distinctions.
+ - You are a great problem-creator. Just understand this and suddenly problems disappear.
+ - The third world war is not going to happen! I predict it! It is not going to happen, because of you, because of my people around the earth! They are the only hope. Only millions of buddhas are capable of creating the atmosphere for peace, for love, for compassion, for celebration.
+ - Zen is not effort. Effort is tension, effort is work, effort is to achieve something. Zen is not something to achieve. You are already that. Just relax, relax so deeply that you become a revelation to yourself.
+ - All that you need is just to be silent and listen to existence.
+ - Hell is our creation, and we create hell by trying to do the impossible. Heaven is our nature, it is our spontaneity. It is where we always are.
+ - Meditation is like the moon: it transforms the energy of lust into love, anger into compassion, greed into sharing, aggressiveness into receptivity, ego into humbleness.
+ - In pure awareness the mind cannot drag you down into the mud, into the gutter. In anger, in hatred, in jealousy, the mind is absolutely impotent in the face of awareness. And because the mind is absolutely impotent, your whole being is in a profound silence – the peace that passeth understanding.
+ - Drop the idea of being Extraordinary! It’s keeping you mediocre. To be Ordinary is the most extraordinary thing in the world. The Ordinary person has light in his eyes; he has become extraordinary but he has no idea of it.
+ - Living in memories is an empty gesture.
+ - Enjoyment is just the sound of being centered.
+ - Just a little relaxation, just a little looking inwards, and the doors of immense potentialities open up. You are no more a beggar. Without conquering the world you have conquered the whole universe. Just conquer yourself.
+ - Our whole energy remains blocked either in the past or in the future. When you withdraw all your energy from past and future a tremendous explosion happens.
+ - You feel good, you feel bad, and these feelings are bubbling from your own unconsciousness, from your own past. Nobody is responsible except you. Nobody can make you angry, and nobody can make you happy.
+ - Don’t imitate. If you want to know who you are, please avoid imitation, that’s a way of avoiding knowing yourself.
+ - Meditation is a flower and compassion is its fragrance.
+ - Love is the lotus, lust is the mud the lotus arises out of.
+ - If you want to become an infinite source of love, then go on sharing love as much as you can. Don’t be a miser; only misers lose energy.
+ - As long as the “I” is there, love cannot be. All that we call love is only desire, longing, passion and attachment; as long as ego is there, all these bind one.
+ - When you are here and now, sitting totally, not jumping ahead, the miracle has happened. To be in the moment is the miracle.
+ - Those otherworldly desires were just as foolish as the worldly desires.
+ - Through true love, you touch inner completeness.
+ - Past and future are two aspects of the same coin. The name of the coin is mind.
+ - Then relationship happens. Before that it is just an empty name. Relationship cannot happen before the egos are gone.
+ - Laughter is such a healthy exercise. Somebody is laughing – that’s perfectly good exercise, join him. Somebody is being playful – if you have time, join him.
+ - Love cannot be taught, it can only be caught.
+ - The moment you go in, all connections with the outside world are broken; all bridges are broken. In fact, the whole world disappears.
+ - In dreams the mind is constantly giving you substitutes just to protect sleep. And the same is happening while you are awake. The mind is giving you substitutes just to protect your sanity; otherwise you will be scattered in fragments.
+ - The total absence of desire brings happiness. It also brings freedom and liberation, because whenever something is lacking there are both limits and dependency. Only when nothing at all is lacking is there the possibility of total freedom. Freedom brings happiness. And happiness is salvation.
+ - For a prayer oriented religion the concept of a personal God is needed – to relate to. For meditation-oriented religions God is a useless hypothesis; it can be discarded easily into the dustbin. It is not needed.
+ - To be creative is to worship. To be creative is to participate in the great process of creation – and participating in creativity is participating in God.
+ - You only believe that it is a relationship. It is a conflict, it is enmity, it is jealousy, it is aggression, it is domination, it is possession, and many things – but not relationship. How can you relate with two egos there? When there are two egos, then there are four persons.
+ - When there is nothing to desire, there is nothing to dream about either, because dreams are reflections of your desires. Dreams are reflections of your frustrations, dreams are reflections of your repressions, dreams reflect your day-life.
+ - When you are in anger, in passion, violent, aggressive, you feel a crystallized ego within you. Whenever you are in love, in compassion, it is not there.
+ - But people find it very difficult to be a loving person, so they create a relationship – and befool that way that ‘Now I am a loving person because I am in a relationship.’ And the relationship may be just one of monopoly, possessiveness, exclusiveness.
+ - Withdraw your awareness from everywhere and just let it rest within yourself, and you have arrived home.
+ - You cannot drop the ego. Once you start trying to drop the ego you will get in a very deep mess; you will become more and more worried and puzzled. And this is not the way to get rid of the ego. The only way to get rid of the ego is to look at it.
+ - When sadness comes, accept it. Listen to its song. It has something to give to you. It has a gift which no happiness can give to you, only sadness can give it.
+ - Meditation is unfocussed mind, you simply listen silently, not with a tension in the mind, not with an urge to know and learn, no, with total relaxedness, in a let go, in an opening of your being. You listen, not to know, you simply listen to understand.
+ - The ego does not, cannot live in the present, because the present is real and the ego is false – they never meet.
+ - Consciousness means choicelessness, and to be choiceless is to be free from all desire, is to be free from all projection, is to be free from all imagination, is to be free from future.
+ - What is marriage now, or what has it ever been? – just a painful suffering, a long suffering, with false smiling faces. It has simply proved to be a misery. At the most it can be just a convenience.
+ - Remain a witness to your emotions as if from a great distance an eagles eye view.
+ - Expectations always lead to frustrations. Expectations are the seeds, and frustration is the crop that sooner or later you will have to reap. It is your own doing.
+ - When desiring ceases, the other world opens. The other world is hidden in this world. But because your eyes are full of desire, full of the ego, you cannot see it.
+ - Meditation makes you innocent, it makes you childlike. In that state, miracles are possible. That state is pure magic.
+ - When a man’s life becomes poetry, becomes a song, becomes a work of art, a creativity, he has become a sannyasin. Whether he knows it or not, it does not matter. The word ‘sannyas’ does not matter; what matters is the content.
+ - Any human being who is becoming independent of conditionings, of religions, scriptures, prophets and messiahs, has arrived home. He has found the treasure which was hidden in his own being.
+ - We ask for happiness but what we get is unhappiness. We all put our efforts into trying to be happy but we make a fundamental mistake: happiness is not related to the effort, happiness is related to not asking for it...
+ - You and your brain are two things. The brain is your machinery just like everything else is your machinery. This hand is my mechanism; I use it. My brain is my mechanism; I use it.
+ - Jealousy is almost like a shadow of love. If we can grow our love, it takes over the whole energy of jealousy and transforms it into love. It is an alchemical change.
+ - Encounter every situation with your total consciousness, without any guilt. Enjoy music, enjoy food, enjoy love – enjoy everything that is natural.
+ - The other world is hidden in this world. The Buddha is asleep in the Zorba. It has to be awakened. And nobody can awaken you except life itself.
+ - In the space of no-mind, truth descends like light.
+ - Deep love creates deep fear. It looks like death because the I disappears, the you disappears – and it is a sort of death. And when you die, only then do you enter into the divine.
+ - Beyond mind, there is an awareness that is intrinsic, that is not given to you by the outside, and is not an idea – and there is no experiment up to now that has found any center in the brain which corresponds to awareness.
+ - Ordinary society is like a paperweight on you: It won’t allow you to fly.
+ - God is the source of all creativity. You can be creative only when you are EN RAPPORT with God.
+ - A life of both sadness and blissfulness is multi-dimensional; it moves in all dimensions together. Watch the statue of Buddha or sometimes look into my eyes and you will find both together – a blissfulness, a peace, a sadness also.
+ - If you go on condemning, your condemnation shows that somewhere there is a wound, and you are feeling jealous – because without jealousy there can be no condemnation. You condemn people because somehow, somewhere, unconsciously you feel they are enjoying themselves and you have missed.
+ - I believe that the very effort to convert anybody is violence, it is interfering in his individuality, in his uniqueness, into his freedom.
+ - Mind can only desire, and each desire is going to be frustrated. Instead of bringing more meditation, it will bring you more frustration. Instead of bringing you more love, it will bring to you more anger. Instead of silence and peace, it will bring more traffic of thoughts.
+ - An intelligent man, a man who has a little meditative consciousness, can make his life a beautiful piece of art, can make it so full of love and full of music and full of poetry and full of dance that there are no limitations for it. Life is not hard. It is man’s stupidity that makes it hard.
+ - Change only one thing, change from misery to bliss. from sadness to celebration. And it can be done very easily because misery is an unnatural thing.
+ - To avoid pain, they avoid pleasure. To avoid death, they avoid life.
+ - Forget about getting, simply give; and I guarantee you, you will get much.
+ - Hence the tension, the anxiety, the anguish of humanity. The more you fight with death, the more anxiety-ridden you will become, you are bound to become. That’s a natural consequence of it.
+ - I am here to help you unburden all your guilt feelings. I am here to help you to start trusting yourself again. Once you start trusting your own being, no politician, no priest can exploit you. Man is always exploited through fear.
+ - Your absence is the presence of godliness.
+ - The mind always wants to choose. The mind lives through choice. If you don’t choose the mind drops. This is the way of Lao Tzu. How to drop the mind? – don’t choose! That’s why he never prescribes any meditation, because then there is no need for any meditation.
+ - And through meditation comes wisdom – not through studying books, not through scriptures. Through scriptures one can become knowledgeable but no wise. and knowledgeable people are sad, they are bound to be sad because all their knowledge is borrowed. There can be no song in it.
+ - All creativity is a deep suffering, unless your creativity does not come out of the mind, but out of meditation. When it comes out of meditation, creativity is sharing the joy, sharing the blissfulness that you have. Mind has no joy – it is really a wound, very painful.
+ - Trust does not mean that everything will be all right. Trust means everything is already all right.
+ - Zen is non-serious. Zen has a tremendous sense of humor. No other religion has evolved so much that it can have that sense of humor.
+ - Love is the fire in which everything is reduced to ashes. Only God will be saved. Only God cannot burn.
+ - As I see it, out of a hundred marriages ninety-nine marriages are just licensed prostitution. They are not marriages. A marriage is only a real marriage when it grows out of love. Legal, illegal, does not matter. The real thing that matters is love.
+ - The knowledgeable person lives with a question mark ‘?’ and the man of awe and wonder lives with an exclamation mark.
+ - The heart knows nothing of the past, nothing of the future; it knows only of the present.
+ - It is impossible to pursue happiness. Nobody has ever pursued it. One has to wait for it. And it is not a right at all. No law court can force you to be happy or force happiness to be with you. No government violence is capable of making you happy. No power can make you happy...
+ - If you are absolutely without mind, just pure consciousness, time stops completely, disappears, leaving no trace behind.
+ - To be aflame with silence, with joy, is wisdom. It is not through logic but through love. It is not through words but through a wordless state called meditation or a state of no-mind, satori, samadhi.
+ - Love is the door, it is irrelevant with whom you have fallen in love. Love redeems, neither Jesus, nor Krishna. Love redeems. Fall in love. Love is the only redeeming force. Love is the savior.
+ - Whatsoever you can be you are. There is no goal. And we are not going anywhere. We are simply celebrating here. Existence is not a journey, it is a celebration. Think of it as a celebration, as a delight, as a joy! Don’t turn it into a suffering, don’t turn it into a duty, a work. Let it be play.
+ - A religious person is a desireless person.
+ - Religion is nothing but a science to attain wisdom, understanding, to know what life is, and to live it in utter celebration.
+ - You don’t know what beauty is. You use the word, certainly, but your word is empty. Beauty is known only by one who has known the inner beauty, one who has known the inner flower opening. Then whenever a flower is seen, it reminds you of your inner beauty.
+ - God is not the Creator, He is creativity. Creativity is His being. He has always been creating.
+ - With trees and rocks and the sea and the stars and the clouds and the sun – you cannot be unreal, you cannot be phoney. You HAVE to be real because when you are encountering nature, nature creates something in you which is natural. Responding to nature continuously, you become natural.
+ - You cannot lose your real treasure.
+ - Mind is knowledge, meditation is non-knowledge. Mind knows, meditation experiences. Mind can only give you a certain acquaintance but not the taste. If you want the taste of the Tao you have to move to no-mind, to Meditation.
+ - This watchfulness, this witnessing is the ultimate secret of creating a religious life, of creating a life of transcendence, a life of spirituality, of enlightenment, of buddhahood.
+ - Drop the fear. Fear was taken up by you in your childhood, unconsciously. Now consciously drop it and be mature. Then the life can be a light which goes on deepening as you go on growing.
+ - Live in this world, because this world gives a ripening, maturity, integrity. The challenges of this world give you a centering, an awareness. And that awareness becomes the ladder. Then you can move from Zorba to Buddha.
+ - If you have difficulties making a decision, choose the lesser of the two evils.
+ - Jesus was a crackpot.
+ - This word ‘individual’ is beautiful; it means indivisible. Right now as you are, you are divided. You are only many fragments clinging together anyhow without any center being there, without any master in the house, with only servants. And for a moment any servant can become the master.
+ - Meditation is a surrender, it is not a demand. It is not forcing existence your way, it is relaxing into the way existence wants you to be. It is a let-go.
+ - And desires are never here and now – they are non-existential. They are just mental, in the mind. And they cannot be fulfilled because their very nature is to move into the future.
+ - If you love money and you want to be creative, you cannot become creative. The very ambition for money is going to destroy your creativity. If you want fame, then forget about creativity. Fame comes easier if you are destructive.
+ - Listening means forgetting yourself completely – only then can you listen.
+ - Enlightenment is when all hope disappears. Enlightenment is disappearance of hope.
+ - Religion is consciousness-raising. It raises you higher than the problem, it gives you a bird’s-eye view.
+ - Zen is not a philosophy, it is poetry. It does not propose, it simply persuades. It does not argue, it simply sings its own song.
+ - Without love a man is just a body, an empty temple without the deity. With love the deity arrives, the temple is no more empty. That’s why love gives such fullness, such deep contentment, such tremendously overflowing joy. Remain in love and let love be the door to the divine.
+ - Man is always exploited through fear.
+ - Attachment is misery, but from the very beginning the child is taught for attachment. The mother will say to the child, “Love me; I am your mother.” The father will say, “Love me; I am your father” – as if someone is a father or a mother so he becomes automatically lovable.
+ - There are very few joys in life greater than spontaneity. Spontaneity means to be in the moment; it means acting out of your awareness, not acting according to your old conditionings.
+ - As you walk, you simply walk. Don’t go ahead, don’t jump here and there. Mind always go ahead or lag behind. Remain with the moment.
+ - Wherever you are afraid, try to explore, and you will find death hiding somewhere behind. All fear is of death. Death is the only fear source.
+ - This is the sleep: being absent, being not present to the present moment, being somewhere else.
+ - Just see how much respect God has paid to you. You are a masterpiece – unrepeatable, incomparable, utterly unique.
+ - Meditation requires courage. It requires the basic integrity, sincerity, respect towards your own being. At least don’t deceive yourself.
+ - Freedom is the basic thing. Consciousness grows in freedom and starts dying, becomes paralyzed and crippled, when things are forced. And up to now, this has been done. This is the greatest crime that parents have always committed against children. They go on forcing the child.
+ - Why do people hanker for the home? – security, safety. But in the name of security and safety, they don’t make homes, they make prisons – and they are the jailed and they are the jailers, but because they have the keys in their own hands, they think they are free.
+ - The moment you start seeing life as non-serious, a playfulness, all the burden on your heart disappears. All the fear of death, of life, of love – everything disappears.
+ - Try to force celibacy upon yourself and your dreams will become sexual, they will have a quality of sexuality.
+ - The world is against individuality. It is against your being just your natural self. It wants you just to be a robot, and because you have agreed to be a robot you are in trouble. You are not a robot.
+ - If whatsoever you have been living can be conveyed by words, that means you have not lived at all.
+ - Your torch of consciousness should be burning continuously; then there will not be any darkness.
+
+500 quotes

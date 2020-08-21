@@ -1,0 +1,39 @@
+ - There’s no such thing as a mistake, really. It’s just an opportunity to do something else.
+ - I am ashamed of a human race that can continue to allow the sordid ambitions of politicized groups who genuinely feel that right is on their side, and can therefore instigate such atrocities in the name of their own sense of right and wrong.
+ - Half of art is accident, but there is no accident without free experiment.
+ - Call immediately. Time is running out. We both need to do something monstrous before we die.
+ - Isolationism is over.
+ - America is ripe for lies and lethargy. The pure mountain air is going and gone. It is a huge burden and a sadness for us all.
+ - There is no truly global justice.
+ - Animal Farm has seen off all the opposition. It’s as valid today as it was fifty years ago.
+ - I get my best ideas in a thunderstorm. I have the power and majesty of nature on my side.
+ - Man’s idea of God, and a God’s collusion, is an essential part of the equation to wage war.
+ - Americans live with the certain knowledge that the source of their greatness has not yet been released.
+ - God invented mankind because he loved silly stories.
+ - Evil is always devising more corrosive misery through man’s restless need to exact revenge out of his hate.
+ - It makes me so desperately sad to witness just how unforgivably wretched our world has become.
+ - Funny thing about Americans. They are the first to adopt weird lifestyles and radical views but they are the most conservative race on earth.
+ - Suspicion and doubt lead to animosity and hatred.
+ - Moral authority has been laid to rest, world opinion is no more than a game show and the difference between good and evil is about as relevant as changing channels.
+ - Beware of privilege. It stinks of rotten rotten fish heads, many of which were lapping the shore beneath the jetties.
+ - What I used to do with a passion, foolishly and vainly imagining I would change the world for the better, I no longer tolerate in myself or anyone else. But draw, always draw – and WRITE.
+ - I see if I can make human beings look like reptiles.
+ - You see that’s what I think is such a terrible, terrible betrayal, the trust that people have in government.
+ - One can derive the same fun from print-making as from making mud pies and great subtlety can be achieved through the use of transparent inks, half-tone screens and even accidental colour combinations, which is often where the art hides.
+ - I am an artist, I trade in uncertainty and superstition and cant. I invent dark visions of impossible situations that can never be resolved.
+ - I’ve done the Rolling Stones eating each other.
+ - The betrayal of people’s good will, good trust that things are being done for the best and they actually ARE being done for the best.
+ - I once saw a lump of Greenland breaking off into the sea and moving south, which of course will affect the atmosphere and us generally, and it’ll happen more and more.
+ - Hunter and I never got proper journalistic accreditation to go anywhere. Nobody was giving us passes to go in here or there. We always had to somehow talk our way in.
+ - Man has an innate capacity for violence, but can only justify it in the name of justice.
+ - Business should never be allowed to justify mean, thug ugly deals for any reason.
+ - I have even written a book about Wine called The Grapes of Ralph.
+ - Whats a gonzotic frenzy? Well its me in the throes of an ink splattering attempt to capture the feeling I have at that particular time.
+ - Like you do about Nelson Mandela, you can’t help feeling the guy’s a good man.
+ - Governments are not running the show anymore. Scumbag Entrepreneurs are, and they have a harsh and ruthless agenda.
+ - I am an artist and have no right buggering about with verbs and split infinitives, which is what being a writer says to me.
+ - You know, we’re really destroying ourselves because we’re really making the motivating force of anything we do selfish.
+ - You see, nature will do exactly what it must, and if we are a hindrance to its development, to even its destructive powers to reform itself and we are in a way, we will go.
+ - The kids are not brought up to have minds of their own as individuals.
+
+37 quotes

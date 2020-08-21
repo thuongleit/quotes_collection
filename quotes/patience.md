@@ -1,0 +1,61 @@
+ - Patience is not passive waiting. Patience is active acceptance of the process required to attain your goals and dreams. ~~Ray Davis
+ - The two most powerful warriors are patience and time. ~~Leo Tolstoy
+ - Patience is not the ability to wait but the ability to keep a good attitude while waiting. ~~Joyce Meyer
+ - Patience is bitter, but its fruit is sweet. ~~Aristotle
+ - He that can have patience can have what he will. ~~Benjamin Franklin
+ - Adopt the pace of nature: her secret is patience. ~~Ralph Waldo Emerson
+ - Trees that are slow to grow bear the best fruit. ~~Molière
+ - Without patience, we will learn less in life. We will see less. We will feel less. We will hear less. Ironically, rush and more usually mean less. ~~Mother Teresa
+ - Our patience will achieve more than our force. ~~Edmund Burke
+ - Do you have the patience to wait until your mud settles and the water is clear? ~~Lao Tzu
+ - I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. ~~Lao Tzu
+ - Patience is a conquering virtue. ~~Geoffrey Chaucer
+ - If you can cultivate the right attitude, your enemies are your best spiritual teachers because their presence provides you with the opportunity to enhance and develop tolerance, patience and understanding. ~~Dalai Lama XIV
+ - Genius is eternal patience.  ~~Michelangelo
+ - Knowing trees, I understand the meaning of patience. Knowing grass, I can appreciate persistence. ~~Hal Borland
+ - Rivers know this: there is no hurry. We shall get there some day. ~~A. A. Milne
+ - There art two cardinal sins from which all others spring: Impatience and Laziness. ~~Franz Kafka
+ - Patience serves as a protection against wrongs as clothes do against cold. For if you put on more clothes as the cold increases, it will have no power to hurt you. So in like manner you must grow in patience when you meet with great wrongs, and they will then be powerless to vex your mind. ~~Leonardo da Vinci
+ - The strongest of all warriors are these two – Time and Patience. ~~Leo Tolstoy
+ - It has been my observation in life that, if one will only exercise the patience to wait, his wants are likely to be filled. ~~Calvin Coolidge
+ - To lose patience is to lose the battle. ~~Mahatma Gandhi
+ - Only those who have the patience to do simple things perfectly will acquire the skill to do difficult things easily. ~~Friedrich Schiller
+ - If you have infinite patience and perseverance, success is bound to come. No mistake in that. ~~Swami Vivekananda
+ - Patience is the companion of wisdom. ~~Saint Augustine
+ - Patience is also a form of action. ~~Auguste Rodin
+ - Take up an idea, devote yourself to it, struggle on in patience, and the sun will rise for you. ~~Swami Vivekananda
+ - Patience and time do more than strength or passion. ~~Jean de La Fontaine
+ - Patience means self-suffering. ~~Mahatma Gandhi
+ - Patience is power. Patience is not an absence of action; rather it is “timing” it waits on the right time to act, for the right principles and in the right way. ~~Fulton J. Sheen
+ - Have patience. All things are difficult before they become easy. ~~Saadi
+ - Patience is waiting. Not passively waiting. That is laziness. But to keep going when the going is hard and slow – that is patience. The two most powerful warriors are patience and time. ~~Leo Tolstoy
+ - Perfect love is perfectly patient. ~~Neal A. Maxwell
+ - If you pray about it don’t worry about it. If you’re going to worry about it don’t pray about it. ~~Steve Harvey
+ - Don’t cross the bridge til you come to it. ~~Henry Wadsworth Longfellow
+ - The real secret of patience is to find something to do in the meantime. ~~Doug Larson
+ - Good things come to those who hustle. ~~Chuck Noll
+ - Patience is a necessary ingredient of genius. ~~Benjamin Disraeli
+ - Openness, patience, receptivity, solitude is everything. ~~Rainer Maria Rilke
+ - It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience. ~~Julius Caesar
+ - Endurance is patience concentrated. ~~Thomas Carlyle
+ - In order to make friends you must first be friendly. ~~Dale Carnegie
+ - When a train goes through a tunnel and it gets dark, you don’t throw away the ticket and jump off. You sit still and trust the engineer. ~~Corrie ten Boom
+ - Whether it’s marriage of business, patience is the first rule of success. ~~William Feather
+ - A waiting person is a patient person. The word patience means the willingness to stay where we are and live the situation out to the full in the belief that something hidden there will manifest itself to us. ~~Henri J.M. Nouwen
+ - Even a happy life cannot be without a measure of darkness, and the word happy would lose its meaning if it were not balanced by sadness. ~~C.G. Jung
+ - The fruit falls from the tree when it gets ripe. So wait for the time to come. Do not hurry. Moreover, no one has the right to make others miserable by his foolish acts. Wait, have patience, everything will come right in time. ~~Swami Vivekananda
+ - Purity, perseverance, and energy - these three I want. ~~Swami Vivekananda
+ - Patience and tenacity are worth more than twice their weight of cleverness. ~~Thomas Henry Huxley
+ - How many a man has thrown up his hands at a time when a little more effort, a little more patience would have achieved success. ~~Elbert Hubbard
+ - The world is full of magical things patiently waiting for our wits to grow sharper. ~~Bertrand Russell
+ - No, no! The adventures first, explanations take such a dreadful time. ~~Lewis Carroll
+ - Patience is necessary, and one cannot reap immediately where one has sown. ~~Soren Kierkegaard
+ - Patience is a fruit of the spirit that grows only under trial. It is useless to pray for patience. Well, actually I encourage you to pray for patience, but I’ll tell you what you’ll get TRIALS! ~~Joyce Meyer
+ - A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. ~~Molière
+ - If I have done the public any service, it is due to my patient thought. ~~Isaac Newton
+ - All human errors are impatience, a premature breaking off of methodical procedure, an apparent fencing-in of what is apparently at issue. ~~Franz Kafka
+ - God, teach me to be patient, teach me to go slow. ~~Helen Steiner Rice
+ - He who was living is now dead We who were living are now dying With a little patience. ~~T. S. Eliot
+ - She was always waiting, it seemed to be her forte. ~~D. H. Lawrence
+
+59 quotes

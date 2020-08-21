@@ -1,0 +1,42 @@
+ - Military power wins battles, but spiritual power wins wars.
+ - The soldier’s heart, the soldier’s spirit, the soldier’s soul, are everything. Unless the soldier’s soul sustains him he cannot be relied on and will fail himself and his commander and his country in the end.
+ - When a thing is done, it’s done. Don’t look back. Look forward to your next objective.
+ - We must stop setting our sights by the light of each passing ship; instead we must set our course by the stars.
+ - Passive inactivity, because you have not been given specific instructions to do this or to do that, is a serious deficiency.
+ - Morale is a state of mind. It is steadfastness and courage and hope.
+ - The price of peace is eternal vigilance.
+ - Our policy is directed not against any country or doctrine but against hunger, poverty, desperation and chaos. Its purpose should be the revival of a working economy in the world so as to permit the emergence of political and social conditions in which free institutions can exist.
+ - When a general complains of the morale of his troops, the time has come to look at his own.
+ - The soldier’s heart, the soldier’s spirit, the soldier’s soul, are everything.
+ - Democracy is the most demanding of all forms of government in terms of the energy, imagination, and public spirit required of the individual.
+ - The United States should do whatever it is able to do to assist in the return of normal economic health in the world, without which there can be no political stability and no assured peace.
+ - I was very careful to send Mr. Roosevelt every few days a statement of our casualties. I tried to keep before him all the time the casualty results because you get hardened to these things and you have to be very careful to keep them always in the forefront of your mind.
+ - I must have assistants who will solve their own problems and tell me later what they’ve done.
+ - The only way human beings can win a war is to prevent it.
+ - I can’t expect loyalty from the army if I do not give it.
+ - The time has come when we must proceed with the business of carrying the war to the enemy, not permitting the greater portion of our armed forces and our valuable material to be immobilized within the continental United States.
+ - The gallantry and aggressive fighting spirit of the Russian soldiers command the American army’s admiration.
+ - No compromise is possible and the victory of the democracies can only be complete with the utter defeat of the war machines of Germany and Japan.
+ - As to my political faith- I have never voted. My father was a Democrat, my mother a Republican, and I am an Episcopalian.
+ - If you get the objectives right, a lieutenant can write the strategy.
+ - Don’t fight the problem, decide it.
+ - Wars are bred by poverty and oppression. Continued peace is possible only in a relatively free and prosperous world.
+ - What other people do shouldn’t affect you – we do things because of the kind of person we each want to be.
+ - I don’t want you fellows sitting around asking me what to do. I want you to tell me what to do.
+ - We are in the middle of a world revolution, and I don’t mean Communism. The revolution I’m talking about is that of the little, poor people all over the world. They’re beginning to learn what there is in life, and to learn what they are missing.
+ - The one great element in continuing the success of an offensive is maintaining the momentum.
+ - If man does find the solution for world peace it will be the most revolutionary reversal of his record we have ever known.
+ - You know, I know, all of us know that the time factor is the vital consideration – and vital is the correct meaning of the term – of our national defense program; that we must never be caught in the same situation we found ourselves in 1917.
+ - It is not enough to fight. It is the spirit which we bring to the fight that decides the issue. It is morale that wins the victory.
+ - The choice is between acting with energy or losing by default.
+ - A political problem thought of in military terms eventually becomes a military problem.
+ - We are determined that before the sun sets on this terrible struggle, Our Flag will be recognized throughout the World as a symbol of Freedom on the one hand and of overwhelming force on the other.
+ - The refusal of the British and Russian peoples to accept what appeared to be inevitable defeat was the great factor in the salvage of our civilization.
+ - The one great element in continuing the success of an offensive is maintaining the momentum. This was lost last fall when shortages caused by the limitation of port facilities made it impossible to get sufficient supplies to the armies when they approached the German border.
+ - Discussions without end have been devoted to the subject of peace, and the efforts to obtain a general and lasting peace have been frequent through many years of world history.
+ - Go right straight down the road, to do what is best, and to do it frankly and without evasion.
+ - The patient is sinking while the doctors deliberate.
+ - I said bluntly that if the president were to follow Mr. Clifford’s advice and if in the elections I were to vote, I would vote against the president.
+ - It seems to be hard wired into our pleasure centres to move to music.
+
+40 quotes

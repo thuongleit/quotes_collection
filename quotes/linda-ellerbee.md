@@ -1,0 +1,36 @@
+ - Media literacy is not just important, it’s absolutely critical. It’s going to make the difference between whether kids are a tool of the mass media or whether the mass media is a tool for kids to use.
+ - In the coldest February, as in every other month in every other year, the best thing to hold on to in this world is each other.
+ - Only dead fish swim with the stream all of the time...
+ - If you believe in your heart that you are right, you must fight with all your might to do it your way. Only dead fish swim with the stream all the time.
+ - If men can run the world, why can’t they stop wearing neckties? How intelligent is it to start the day by tying a little noose around your neck?
+ - A good time to laugh is any time you can.
+ - Always remember to set a place at the table of life for the unexpected guest.
+ - There are two types of change: the change we choose and the change that chooses us.
+ - It’s not brain surgery. It’s not nuclear physics. It’s television. It’s only television.
+ - Styles, like everything else, change. Style doesn’t.
+ - I believe in tomorrow and I will be part of it.
+ - A few weeks after my surgery, I went out to play catch with my golden retriever. When I bent over to pick up the ball, my prosthesis fell out. The dog snatched it, and I found myself chasing him down the road yelling “Hey, come back here with my breast!”
+ - It’s not just the cheerleading thing I have a problem with, it’s the whole jock enchilada. I’m all for a good game of basketball in teh driveway or a killer bike ride. But when there’s tackling and grunting involved – no thanks.
+ - I think laughter may be a form of courage As humans we sometimes stand tall and look into the sun and laugh, and I think we are never more brave than when we do that.
+ - People are pretty much alike. It’s only that our differences are more susceptible to definition than our similarities.
+ - Time doesn’t go. Time stays. We go.
+ - Just because it’s a rat race doesn’t mean it’s okay to be a rat.
+ - We tried to do the news without frills, without fluffy hairdos, without graphics. It does say something about our business that is not very pretty. It didn’t matter how good the show was. What counted was money.
+ - Like Nietzsche, I believe that without music, life would be a mistake. Nothing but silence says it better.
+ - Putting people in a room and strapping wires to their wrist to find out if I make them tingle when I’m telling them about Beirut is a long way from Edward R. Murrow.
+ - Pitching was about fooling people, manipulating them, making them believe in something that ultimately wasn’t there. Great pitching was great lying.
+ - Dreck is dreck and no amount of fancy polish is going to make it anything else.
+ - I have always felt that laughter in the face of reality is probably the finest sound there is and will last until the day when the game is called on account of darkness. In this world, a good time to laugh is any time you can.
+ - When the anchorman is wearing a colonel’s uniform, it tells you something.
+ - I’ve heard it said that the first law of journalism is to confirm existing prejudice, rather than contradict it.
+ - When there is good news, and it is news, we do report it, but usually news is a record of human failure. Those wanting to celebrate human accomplishment are, as someone said, advised to go to the sports section.
+ - I was raised by and have raised people who regard telling one story when two would do as a sign someone is not really trying.
+ - Change, like youth, is purely wasted on the young.
+ - The whole town looks as if it had been left out in the rain too long and by mistake.
+ - I think laughter may be a form of courage.
+ - I want to know why, if men rule the world, they don’t stop wearing neckties.
+ - The new national campfire – radio.
+ - Presumably a movement is more polite than a revolution, and a lot slower.
+ - Some of my colleagues want to be The Anchorman on the Mount. Others see themselves as the Ace Reporter. Because of 60 Minutes, there’s a whole herd of them determined to be The Grand Inquisitor and a heady number want only to be The Friendliest Anchor on the Block. At least one wants to be Jesus.
+
+34 quotes

@@ -1,0 +1,35 @@
+ - You can be whoever you want to be, you just have to want it bad enough.
+ - Success isn’t something that just happens – success is learned, success is practiced and then it is shared.
+ - Mike Laga will make you forget about every power hitter that ever lived.
+ - People who live in the past generally are afraid to compete in the present. I’ve got my faults, but living in the past is not one of them. There’s no future in it.
+ - Good seasons start with good beginnings.
+ - Just give me 25 guys on the last year of their contracts; I’ll win a pennant every year.
+ - Every 24 hours the world turns over on someone who was sitting on top of it.
+ - The trick is to realize that after giving your best, there’s nothing more to give.
+ - The great thing about baseball is when you’re done, you’ll only tell your grandchildren the good things. If they ask me about 1989, I’ll tell them I had amnesia.
+ - Inner peace is not found in things like baseball and world championships. As long as I feel I’ve done the best job I possibly could, I’m satisfied.
+ - My idea of managing is giving the ball to Tom Seaver and sitting down and watching him work.
+ - Baseball is a simple game. If you have good players and if you keep them in the right frame of mind then the manager is a success.
+ - If you have to choose between power and speed and it often turns out you have to make that choice, you’ve got to go for speed.
+ - You’re gonna lose some ball games and you’re gonna win some ball games and that’s about it.
+ - No manager ever won no ballgames.
+ - I understand people who boo us. It’s like going to Broadway show, you pay for your tickets and expect to be entertained. When you’re not, you have a right to complain.
+ - Am I a great manager? Huh. I was blessed to have a front office that found great talent, and then I was smart enough to stay the hell out of their way.
+ - I cannot get rid of the hurt from losing, but after the last out of every loss, I must accept that there will be a tomorrow. In fact, it’s more than there’ll be a tomorrow, it’s that I want there to be a tomorrow. That’s the big difference, I want tomorrow to come.
+ - A baseball manager is a necessary evil.
+ - Chris Pittaro is the best rookie I’ve had in 15 years.
+ - Managing is not running, hitting, or stealing. Managing is getting your players to put out one hundred percent year after year.
+ - Our pitching could be better than I think it will be.
+ - Explaining why he was forced to cut a utility player: You just got caught in a position where you have no position.
+ - I only had a high school education and believe me, I had to cheat to get that.
+ - The only reason I’m coming out here tomorrow is the schedule says I have to.
+ - Players have two things to do. Play and keep their mouths shut.
+ - It’s a terrible thing to have to tell your fans, who have waited like Detroit’s have, that their team won’t win it this year. But it’s better than lying to them.
+ - The players make the manager, it’s never the other way.
+ - Pete Rose is baseball.
+ - We’re the best team in baseball, but not by much.
+ - I don’t know why the players make such a big fuss about sitting in the first class section of the plane. Does that mean they’ll get there faster?
+ - A player does not have to like a manager and he does not have to respect a manager. All he has to do is obey the rules.
+ - I don’t believe a manager ever won a pennant. Casey Stengel won all those pennants with the Yankees. How many did he win with the Boston Braves and Mets?
+
+33 quotes

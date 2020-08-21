@@ -1,0 +1,502 @@
+ - It is in your moments of decision that your destiny is shaped.
+ - Where focus goes, energy flows.
+ - Change happens when the pain of staying the same is greater than the pain of change.
+ - Focus on where you want to go, not on what you fear.
+ - No matter how many mistakes you make or how slow you progress, you are still way ahead of everyone who isn’t trying.
+ - Progress equals happiness.
+ - Whatever you focus on is what you get.
+ - Repetition is the mother of skill.
+ - If you do what you’ve always done, you’ll get what you’ve always gotten.
+ - Stay committed to your decisions, but stay flexible in your approach.
+ - If you want to take the island, then burn your boats. With absolute commitment come the insights that create real victory.
+ - Don’t limit your challenges; challenge your limits. Each day we must strive for constant and never ending improvement.
+ - Successful people ask better questions, and as a result, they get better answers.
+ - Setting goals is the first step in turning the invisible into the visible.
+ - Live with passion!
+ - The secret to living is giving.
+ - People are rewarded in public for what they practice for years in private.
+ - Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.
+ - One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. Most people dabble their way through life, never deciding to master anything in particular.
+ - It’s not the events of our lives that shape us, but our beliefs as to what those events mean.
+ - The path to success is to take massive, determined action.
+ - If you want to change your life you have to raise your standards.
+ - Knowledge is NOT power. Knowledge is only POTENTIAL power. Action is power.
+ - Knowing is not enough! You must take action.
+ - Its not about the goal. Its about growing to become the person that can accomplish that goal.
+ - Ten years from now you’ll laugh at whatever’s stressing you out today. So why not laugh now?
+ - Remember: we all get what we tolerate. So stop tolerating excuses within yourself, limiting beliefs of the past, or half-assed or fearful states.
+ - It’s not about your resources, it’s about your resourcefulness .
+ - Remember anything you want that’s valuable requires you to break through short-term pain in order to gain long-term pleasure.
+ - Trade your expectations for appreciation and the world changes instantly.
+ - If I can’t – then I must. If I must – then I will.
+ - Winners take imperfect action while losers are still perfecting the plan.
+ - Whatever happens, take responsibility.
+ - Activity without purpose is the drain of your life.
+ - We always have a choice.
+ - God’s wealth circulates in my life, it flows to me in avalanches of abundance. All my needs, desires and goals are met instantaneously, for I am one with God and he is everything!
+ - Where focus goes, energy flows. And if you don’t take the time to focus on what matters, then you’re living a life of someone else’s design.
+ - Losers react. Winners anticipate.
+ - The only impossible journey is the one you never begin.
+ - Set high standards for yourself and don’t settle for anything less. You are the best judge of yourself and your capabilities.
+ - Your biography is not your destiny, your decisions are.
+ - Once you have mastered time, you will understand how true it is that most people overestimate what they can accomplish in a year – and underestimate what they can achieve in a decade!
+ - Personal power is the ability to take action.
+ - Life will pay any price you ask of it.
+ - Passion is the genesis of genius.
+ - Expect change. Analyze the landscape. Take the opportunities. Stop being the chess piece; become the player. It’s your move.
+ - The race of life is a marathon, not a sprint.
+ - Commit to “CAN I!” – Constant And Never-Ending Improvement.
+ - If you talk about it, it’s a dream, if you envision it, it’s possible, but if you schedule it, it’s real.
+ - The only limit to your impact is your imagination and commitment.
+ - The secret of success is learning how to use pain and pleasure instead of having pain and pleasure use you. If you do that, you’re in control of your life. If you don’t, life controls you.
+ - Don’t cross oceans for people who wouldn’t cross a puddle for you.
+ - Complexity is the enemy of execution!
+ - Change your story, change your life. Divorce the story of limitation, and marry the story of the truth and everything changes.
+ - High self-esteem comes from feeling like you have control over events not that events have control over you.
+ - Only those who have learned the power of sincere and selfless contribution experience life’s deepest joy: true fulfillment.
+ - Happiness is found in the absence of expectation and a continuous focus on appreciation.
+ - You feel what you’re focused on.
+ - If you add the value, you will become the brand. Find a way to add more value than anyone else does.
+ - You can’t have a plan for your day, ’til you have a plan for your life.
+ - Realize that the hardest step in achieving anything is making a true commitment.
+ - My philosophy is to “kill the monster while it’s little.” The best time to handle a “negative” emotion is when you first begin to feel it. It’s much more difficult to interrupt an emotional pattern once it’s full-blown.
+ - What people CAN do is very different from what they WILL do.
+ - The number one key to success in life is to master your own state. If you can manage and master your states, there’s nothing you can’t do.
+ - Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more.
+ - The path of least resistance will never make you proud.
+ - We usually overestimate what we think we can accomplish in one year-but we grossly underestimate what we can accomplish in a decade.
+ - Simply by changing your habitual vocabulary, you can instantaneously change how you think, how you feel, and how you live.
+ - Who will you have to become, to achieve all you want?
+ - Your Philosophy of life shapes you more than anything else.
+ - Decisions decide destiny, there is no action without decision.
+ - Execution will trump knowledge every day of the week.
+ - Many people are passionate, but because of their limiting beliefs about who they are and what they can do, they never take actions that could make their dream a reality.
+ - Engaging people is about meeting their needs, not yours.
+ - Success without happiness is failure.
+ - The strongest force in the universe is a human being living consistently with his identity.
+ - Happy, vibrant, successful people think and behave in certain ways. So do miserable and unfulfilled people. In other words, there are patterns of success and patterns of failure. The good news is, success leaves clues.
+ - Problems are the gifts that make us dig out and figure out who we are, what we’re made for, and what we’re responsible to give back to life.
+ - Lack of emotion causes lack of progress and lack of motivation.
+ - Make your life a masterpiece: Step beyond the demands of the moment and begin right now to design and live the life you deserve.
+ - Focus equals feeling.
+ - Rapport is the ability to enter someone else’s world, to make him feel that you understand him, that you have a strong common bond.
+ - Success leaves clues, Proximity is power. Love your family, CHOOSE your peers.
+ - When you know what’s most important to you, making a decision is quite simple. Most people, though, are unclear about what’s most important in their lives, and thus decision making becomes a form of internal torture.
+ - The how will show up after the commitment to the what.
+ - The secret of unleashing your true power is setting goals that are exciting enough that they truly inspire your creativity and ignite yourpassion.
+ - I began to realize that thinking itself is nothing but the process of asking and answering questions.
+ - The Art of Fulfillment is the ability to experience not only the thrill of the chase, but also the magic of the moment, the unbridled joy of feeling truly alive.
+ - The only people without problems are those in cemeteries. It is not what happens to us that separates failures from successes. It is how we perceive and what we do about what happens that makes the difference.
+ - Most people know what to do, but they don’t do what they know – because they haven’t found their inner drive. Their passion.
+ - No one’s life is a smooth sail; we all come into stormy weather. But it’s this adversity – and more specifically our resilience – that makes us strong and successful.
+ - You either master money, or, on some level, money masters you.
+ - You could be winning and feel like you’re losing because the scorecard you’re using is unfair.
+ - I’ve come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy.
+ - One belief that I’ve developed to carry me through extremely tough times is simply this: God’s delays are not God’s denials.
+ - It’s your unlimited power to care and to love that can make the biggest difference in the quality of your life.
+ - All too often, the security of a mediocre present is more comfortable than the adventure of trying to be more in the future.
+ - People are my greatest resource.
+ - I’m on a mission to help people grow and give. The more they grow the more they can give, the more life they build, the greater the quality of their life.
+ - If you are not growing, you are dying.
+ - Job dissatisfaction is the number one factor in whether you survive your first heart attack.
+ - All growth starts at the end of your comfort zone.
+ - It’s not resources but resourcefulness that ultimately makes the difference.
+ - The road to someday leads to a town of nowhere.
+ - Every problem is a gift – without problems we would not grow.
+ - Live every day with an attitude of gratitude.
+ - Nothing in life has any meaning except the meaning you give it.
+ - If you can’t, then you must!
+ - The minute you start keeping score, you’re destroying the relationship.
+ - Everything happens for a reason and a purpose, and it serves you.
+ - Change is never a matter of ability, it’s always a matter of motivation.
+ - There’s always a way – if you’re committed.
+ - The only person who is truly holding you back is you. No more excuses. It’s time to change. It’s time to live life at a new level.
+ - Decision is the ultimate power. Decisions shape destiny.
+ - At any moment the decision you make can change the course of your life forever.
+ - People will do more to avoid pain than they will do to gain pleasure.
+ - Contrary to popular wisdom, knowledge is not power-it’s potential power. Knowledge is not mastery. Execution is mastery. Execution will trump knowledge every day of the week.
+ - To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.
+ - Life is about the moments: Don’t wait for them, create them!
+ - Emotion is created by motion. Whatever you’re feeling right now is related to how you’re using your body.
+ - If you can’t you must, and if you must you can.
+ - Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want.
+ - Identify your problems but give your power and energy to solutions.
+ - I believe that life supports what supports more of life. In other words, motivation does matter. If you’re just trying to take care of yourself, you’re part of life and I believe life steps in and gives you a certain level of insight.
+ - Our beliefs are like the unquestioned commands, telling us how things are, what’s possible and what’s impossible, what we can and can not do.
+ - Success in life is the result of good judgment. Good judgment is usually the result of experience. Experience is usually the result of bad judgment.
+ - Life happens not to me but for me.
+ - I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk.
+ - If you want to be successful, find someone who has achieved the results you want and copy what they do and you’ll achieve the same results.
+ - Why live an ordinary life, when you can live an extraordinary one.
+ - A decision made from fear is always the wrong decision.
+ - Remember this: Anticipation is the ultimate power. Losers react; leaders anticipate.
+ - Life is found in the dance between your deepest desire and your greatest fear.
+ - You see, in life, lots of people know what to do, but few people actually do what they know. Knowing is not enough! You must take action.
+ - Leaders anticipate. Losers react.
+ - The way to go from discord to harmony is to go from concentrating on differences to concentrating on similarities.
+ - Most people fail in life because they major in minor things.
+ - Emotion is created by motion.
+ - People are not lazy. They simply have impotent goals – that is, goals that do not inspire them.
+ - By changing nothing, nothing changes.
+ - The secret to wealth is simple: Find a way to do more for others than anyone else does. Become more valuable. Do more. Give more. Be more. Serve more. And you will have the opportunity to earn more.
+ - Most people settle for connection, because love’s too scary. They don’t want to lose that feeling, that super high is too crushing so they settle for the comfort of connection.
+ - Excitement must lead to immediate action or you will lose the power of momentum. More dreams die because we fail to seize the moment. Do it now!
+ - Progress is the ultimate motivation.
+ - Your current situation does not determine your future. Your future is determined by your decision to succeed.
+ - Always have something to look forward to.
+ - My teacher Jim Rohn taught me a simple principle: every day, stand guard at the door of your mind, and you alone decide what thoughts and beliefs you let into your life. For they will shape whether you feel rich or poor, cursed or blessed.
+ - It’s not how long you live, but how you live that’s important. Therefore, don’t make your life just livable, make it memorable.
+ - Your life changes the moment you make a new, congruent, and committed decision.
+ - The quality of your life is directly related to how much uncertainty you can comfortably handle.
+ - Make it so today is not like yesterday and tomorrow will be different FOREVER.
+ - Here’s a two step formula for handling stress. Step number one: Don’t sweat the small stuff. Step number two: Remember it’s all small stuff.
+ - Quality questions create a quality life.
+ - In essence, if we want to direct our lives, we must take control of our consistent actions. It’s not what we do once in a while that shapes our lives, but what we do consistently.
+ - Goals are like magnets. They’ll attract the things that make them come true.
+ - All personal breakthroughs begin with a change in beliefs.
+ - There is no such thing as failure. There are only results.
+ - We can all reduce our life to a description that makes people feel sorry for ourselves or we can expand our life to a dimension where we connect and give to others.
+ - Success leaves clues. Go figure out what someone who was successful did, and model it. Improve it, but learn their steps. They have knowledge.
+ - The 2 master skills of life are: The Science of Achievement and The Art of Fulfillment.
+ - The way we communicate with others and with ourselves ultimately determines the quality of our lives.
+ - Identity is this incredible invisible force that controls your whole life. It’s invisible, like gravity is invisible, but it controls your whole life.
+ - When you are grateful, fear disappears and abundance appears.
+ - The only thing keeping you from what you want is your story about why you can’t have it.
+ - When it looks impossible and you are ready to quit, victory is near!
+ - People who succeed at the highest level are not lucky; they’re doing something differently than everyone else.
+ - Live life fully while you’re here. Experience everything. Take care of yourself and your friends. Have fun, be crazy, be weird.
+ - Who you spend time with is who you become! Change your life by consciously choosing to surround yourself with people with higher standards!
+ - A real decision is measured by the fact that you’ve taken a new action. If there’s no action, you haven’t truly decided.
+ - Begin to live as though your prayers are already answered.
+ - Do what you did in the beginning of a relationship and there won’t be an end.
+ - There is no breakthrough without a breakdown.
+ - We are defined by the stories we tell ourselves.
+ - I think spirituality is a part of everything. It doesn’t need to be separated out from everything else.
+ - Pain is part of life. Suffering is an option.
+ - What simple action could you take today to produce a new momentum toward success in your life?
+ - It’s what you practice in private that you will be rewarded for in public.
+ - Learn to convert the discomfort of discipline into the satisfaction of personal growth.
+ - The past does not equal the future.
+ - I don’t think I have any regrets, but I can tell you what I learned from mistakes or failures. I’ve had plenty of those. I just don’t believe in regret, and my economic world is not what I would ever have imagined; I’m financially free.
+ - The meeting of preparation with opportunity generates the offspring we call luck.
+ - If I’m committed, there is always a way.
+ - Your brain is not designed to make you happy. That’s your job!
+ - As soon as you truly commit to making something happen, the ‘how’ will reveal itself.
+ - If you want to change your life in the fastest way possible, trade your expectations of others for appreciation.
+ - As we develop new beliefs about who we are, our behavior will change to support the new identity.
+ - Everybody’s life is either a warning or an example. You’ve got to decide what you’re gonna be and you have to draw a line in the sand.
+ - Age is not based on chronology, but psychology.
+ - In life you need either inspiration or desperation.
+ - We all have our own story. And we stay attached to our story. This can stop us from growing and living. You wanna make your life better? Change your story, change your life.
+ - Your income right now is a result of your standards, it is not the industry, it is not the economy.
+ - Variety is the spice of life. We all want surprises.
+ - Frustration is a very positive sign. It means that the solution to your problem is within range, but what you’re currently doing isn’t working, and you need to change your approach in order to achieve your goal.
+ - There is a powerful driving force inside every human being that once unleashed can make any vision, dream, or desire a reality.
+ - Don’t try to be perfect; just be an excellent example of being human.
+ - It is your decisions, and not your conditions, that determine your destiny.
+ - Success leaves clues, but they must be acted upon.
+ - Don’t surround yourself with people who just affirm you. Surround yourself with people who challenge you.
+ - You can’t hit a target if you don’t know what it is.
+ - All goal setting must be immediately followed by both the development of a plan, and massive and consistent action toward its fulfillment.
+ - When it seems impossible like nothing is going to work, you are usually just a few millimeters away from making it happen.
+ - A woman can do anything a man can do today and then some. She can even have a child without a man.
+ - Don’t be afraid of new ideas. Be afraid of old ideas. They keep you where you are and stop you from growing and moving forward. Concentrate on where you want to go, not on what you fear.
+ - If your life’s worth living, it’s worth recording.
+ - You can’t always control the wind, but you can control your sails.
+ - So if you don’t like your life, change it. How would you change it? You decide. There’s no action without first decision. Decision is the mother or the father of action, and action is what changes your life.
+ - The most successful people in the world are people who were rejected more than anybody else.
+ - See things the way they are not worse than they are.
+ - Success is processional. It’s the result of a series of small disciplines that lead us into habitual patterns of success that no longer require consistent will or effort.
+ - Everybody’s got a past. The past does not equal the future unless you live there.
+ - Information without execution is poverty.
+ - All decision-making is a values-clarifying exercise.
+ - Keep your goals in front of you, and your fears behind you.
+ - Success is buried on the other side of rejection.
+ - How am I going to live today in order to create the tomorrow I’m committed to?
+ - Remember: Rewards come in action, not in discussion.
+ - Business is a spiritual pursuit. Your business will not grow unless you grow as a person.
+ - If you develop the absolute sense of certainty that powerful beliefs provide, then you can get yourself to accomplish virtually anything, including those things that other people are certain are impossible.
+ - The quality of your life is a direct reflection of the expectations of your peer group. Choose your peers wisely.
+ - Whatever you really want, wants don’t get met consistently, standards do.
+ - We don’t get our shoulds, we get our musts.
+ - You are NOT what you eat, you are what you digest and assimilate.
+ - The real joy in life comes from finding your true purpose and aligning it with what you do every single day.
+ - Nothing tastes as good as looking good feels.
+ - Nothing has any power over me other than that which I give it through my conscious thoughts.
+ - There are no failures, only outcomes. As long as I learn something, I am succeeding.
+ - If you tell yourself a lie long enough, you’ll start to believe it.
+ - Persistence overshadows even talent as the most valuable resource shaping the quality of life.
+ - The most powerful way to control your focus is through the use of QUESTIONS.
+ - Change is automatic, Progress is Not!
+ - We can change our lives. We can do, have, and be exactly what we wish.
+ - What is an Extraordinary Life? A life of meaning, a magnificent life, a life of joy, happiness, love, passion, success, and fulfillment. Life experienced on your terms.
+ - If you don’t set a baseline standard for what you’ll accept in life, you’ll find it’s easy to slip into behaviours and attitudes or a quality of life that’s far below what you deserve.
+ - Working because you want to, not because you have to is financial freedom.
+ - Beliefs have the power to create and the power to destroy. Human beings have the awesome ability to take any experience of their lives and create a meaning that disempowers them or one that can literally save their lives.
+ - One skill you want to master in this day and age we live in, if you want to have an extraordinary life, is the ability to learn rapidly.
+ - A bit of baseball wisdom: You can’t steal second with your foot on first.
+ - The higher your energy level, the more efficient your body The more efficient your body, the better you feel and the more you will use your talent to produce outstanding results.
+ - Things do not have meaning. We assign meaning to everything.
+ - Self-awareness is one of the rarest of human commodities. I don’t mean self-consciousn ess where you’re limiting and evaluating yourself. I mean being aware of your own patterns.
+ - Give people more than they expect, and do it cheerfully.
+ - The most powerful force in the human psyche is people’s need for their words and actions to stay consistent with their IDENTITY – how we define ourselves.
+ - There is no abiding success without commitment.
+ - And always remember the ultimate truth: life is not about money, it’s about emotion.
+ - People who fail focus on what they will have to go through; people who succeed focus on what it will feel like at the end.
+ - The greatest leverage you can create for yourself is the pain that comes from inside, not outside. Knowing that you have failed to live up to your own standards for your life is the ultimate pain.
+ - Determination is the wake-up call to the human will.
+ - Our culture teaches us that making significant changes takes a long time and is difficult to do. This is simply NOT true. Change happens in an instant. It is not a process – it is something you do in an instant by simply making a decision.
+ - The one thing that separates winners from the losers, is, winners take action.
+ - The more rules you have about how people have to be, how life has to be for you to be happy, the less happy you’re going to be.
+ - If you keep a clear vision for your future, it will pull you like a magnet through your toughest times.
+ - Surmounting difficulty is the crucible that forms character.
+ - You can’t succeed by being good. That’s what you get paid for. You can’t succeed by being excellent. That’s what you’re expected to do. You can only succeed by being outstanding.
+ - Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.
+ - It’s not just getting a goal that matters, but the quality of life you experience along the way.
+ - Problems are spiritual lessons from God-spiritual lessons to be learned.
+ - Love is not a business. It’s not a transaction. It’s not an exchange or something you get for doing something it’s not a trade. It’s a gift!
+ - Until you get dissatisfied, you won’t do anything to really move your life to another level. Dissatisfaction is a gem. If you’re totally satisfied, you’re going to get comfortable. And then your life begins to deteriorate.
+ - Rapport is the ultimate tool for producing results with other people. No matter what you want in your life, if you can develop rapport with the right people, you’ll be able to fill their needs, and they will be able to fill yours.
+ - Take thoughts and turn them into actions, turn them into results, turn your dreams into reality. That’s really the science of achievement.
+ - If you want to look for obstacles, what’s wrong is always available. But so is what’s right!
+ - Take the opportunity to learn from your mistakes: find the cause of your problem and eliminate it. Don’t try to be perfect; just be an excellent example of being human.
+ - If you are going to succeed, you must deal with what caused you to fail.
+ - You can’t wait for the perfect situation. Find something you love. People you love. And get out there and you’ll discover it.
+ - Deciding to commit yourself to long term results rather than short term fixes is as important as any decision you’ll make in your lifetime.
+ - It not knowing what to do, it’s doing what you know.
+ - No matter how difficult the situation is, it won’t last forever. What follows the night is the day. What follows the winter is the spring.
+ - It’s not leadership by position that allows people to succeed; it’s the capacity to influence the thoughts, the feelings, the emotions, and the actions of other human beings.
+ - The ability to connect and influence people, that’s the job of a leader. And we’re all leaders at some level.
+ - When you focus on serving, there is no fear in you.
+ - Successful people spend 10% of their time focused on the problems and 90% of the rest, focused on the solution.
+ - Life’s greatest rewards are reserved for those who demonstrate a never-ending commitment to act until they achieve.
+ - There are no unresourceful people, only unresourceful states.
+ - Most people’s lives are a direct reflection of their peer groups.
+ - The quality of your life is the quality of where you live emotionally.
+ - Cultivate Curiosity. If you really want to grow in your lifetime, learn to be as inquisitive as a child. Curious people are never bored, and for them life becomes an unending study of joy.
+ - Influence is the single most important skill you can master in your lifetime.
+ - You’ve achieved cheerfulness the day you realize that no matter what’s happening around you, being anything other than cheerful will not make it better.
+ - See it as it is, not worse than it is just so you have a reason not to try.
+ - The more you understand what somebody wants, needs, and fears, the more you can figure out how to add value.
+ - Things are only impossible until somebody does what another believes can’t be done.
+ - Why not make cheerfulness, outrageousness, playfulness a new priority for yourself? Make feeling good your expectation. You don’t have to have a reason to feel good – you’re alive; you can feel good for no reason at all!
+ - If you don’t trust, you will die if not physically then emotionally. To do anything in life, you must have faith.
+ - Life isn’t about getting more. It’s about becoming more.
+ - You might say what if I screw up? Then screw up big! Go for it! Do a big screw-up!
+ - You can’t raise a happy, more resilient kid if you’re not a happy, more resilient adult.
+ - Who you spend time with is who you become.
+ - The most important thing you can do to achieve your goals is to make sure that as soon as you set them you immediately begin to create momentum.
+ - The road to success is always under construction. It is a progressive course, not an end to be reached.
+ - For changes to be of any true value, they’ve got to be lasting and consistent.
+ - Your destiny is determined by your decisions.
+ - Life is nothing but a mirror of your consistent thoughts.
+ - Each time you indulge in the emotion of anger or the behavior of yelling at a loved one, you reinforce the neural connection and increase the likelihood that you’ll do it again.
+ - Remember, ask and you shall receive. If you ask a terrible question, you’ll get a terrible answer. Your mental computer is ever ready to serve you, and whatever question you give it, it will surely come up with an answer.
+ - See it better than it is or you have no future, without vision there is no possibility of improvement.
+ - The words that we attach to our experience become our experience.
+ - It’s not what we do once in a while that counts, but our habitual actions. What ultimately determines who we become and where we go in life are our decisions. These decisions shape our destiny.
+ - Leaders focus on what they can control, what they have, and what they want.
+ - What we focus on determines how we feel. And how we feel – our state of mind – powerfully influences our actions and interactions.
+ - Creativity is often blocked by trying to be perfect. Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.
+ - Your current conditions do not reflect your ultimate potential, but rather the size and quality of goals upon which you currently are focusing.
+ - Resolutions require only words. Results take action.
+ - Who are you now? Who have you decided to become? Make this decision consciously. Make it carefully. Make it powerfully. Then act upon it.
+ - Let fear be a counselor and not a jailer.
+ - Decision equals destiny.
+ - Always remember that you are bigger than the moment, you are more than anything that could ever happen to you.
+ - Much more devastating than frustration is the emotion of disappointment.
+ - The only real security in life comes from knowing that every single day you are improving yourself in some way.
+ - Your thoughts really, truly shape everything in your life that you feel and experience.
+ - In the end, money should serve something greater than just money. It should serve you, your family, the people you want to touch.
+ - Goals are a means to an end, not the ultimate purpose of our lives. They are simply a tool to concentrate our focus and move us in a direction. The only reason we really pursue goals is to cause ourselves to expand and grow.
+ - Effective leaders know that resources are never the problem; it’s always a matter or resourcefulness.
+ - When two people meet, as long as there is any form of rapport maintained, the person with the most certainty will eventually influence ther other person.
+ - Beliefs have the power to create and the power to destroy.
+ - You see, it’s never the environment; it’s never the events of our lives, but the meaning we attach to the events – how we interpret them – that shapes who we are today and who we’ll become tomorrow.
+ - There are a lot of talkers in the world. There are a lot of people who know what’s right and what’s powerful, yet still aren’t producing the results they desire. It’s not enough to talk the talk. You’ve got to walk the talk.
+ - We will act consistently with our view of who we truly are, whether that view is accurate or not.
+ - All change is nothing but a decision. All decisions are controlled by what we link to pain and pleasure.
+ - Without gratitude and appreciation for what you already have, you’ll never know true fulfillment.
+ - Whatever you consistently think about and focus upon you move toward.
+ - Innovation is an ongoing process that you build into your culture.
+ - When people are like each other they tend to like each other.
+ - If people maintain the belief systems that empower them, they’ll keep coming back with enough action and enough resourcefulness to succeed eventually.
+ - If you’re gonna make a change, you’re gonna have to operate from a new belief that says life happens not to me but for me.
+ - Success is cutting off all of your options for failure.
+ - Belief in limits creates limited people.
+ - Effective leaders have the ability to consistently move themselves and others to action because they understand the “invisible forces” that shape us.
+ - If you want to grow a muscle, you must lift something out of your comfort zone. Push beyond what is comfortable, if you don’t there will be no growth.
+ - Winter isn’t forever. Winter is always followed by spring. And it’s how to take advantage of whatever season you’re in.
+ - The only reason we don’t have what we want in life is the reasons we create why we can’t have them.
+ - Grace is that thing that shows up to guide you when you’ve done the first two steps and you’re intent on doing something larger than just yourself. That’s when all of the sudden things are great.
+ - The best way to deal with procrastination is to postpone it.
+ - Disappointment can drive us, or it can defeat us.
+ - The fact is: You are not a manager of circumstance, you’re the architect of your life’s experience.
+ - The message of frustration is an exciting signal. it means that your brain beleives you could be doing better than you currently are.
+ - The principles of Nonviolent Communication taught by Dr. Rosenberg are instrumental in creating an extraordinary and fulfilling quality of life. His compassionate and inspiring message cuts right to the heart of successful communication.
+ - Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life.
+ - Yesterday does not equal tomorrow. Forget the past and move towards your goals.
+ - I think self-education is the greatest and best thing you could ever make.
+ - What you consistently speak with emotional intensity, you will experience, you will create, and you will become. The words that you speak with emotional conviction become the life you live – this is your heaven or this is your hell.
+ - Why wait to be memorable?
+ - Never leave the site of a goal without first taking some form of positive action towards its attainment. Right now, take a moment to define the first steps you must take to achieve some goal. What can you do today to move forward?
+ - Remember: courage, unused, diminishes. Commitment, unexercised, wanes. Love, unshared, dissipates.
+ - If we believe in magic, we’ll live a magical life.
+ - Meaning equals emotion and emotion equals life. Choose consciously and wisely.
+ - If we don’t consciously plant the seeds of what we want in the gardens of our minds we’ll end up with weeds.
+ - It’s pretty simple – The Action you take will determine the results you Achieve.
+ - If you want anything to change, you’ve got to change it. If you want things to get better, you’ve got to get better. And the only way to really do well in life is to find more value than anybody.
+ - Most people manage pain by eating, drinking, smoking, distracting themselves, working harder. That’s just managing pain, the pain that comes from not feeling fully alive from not growing.
+ - It is not that we don’t know the right answers, it is just that we don’t ask the right questions.
+ - Problems are God’s resistance to create spiritual muscles.
+ - The only people without problems are those in cemeteries.
+ - There is no greatness without passion to be great, whether it’s the aspiration of an athlete or an artist, a scientist, a parent, or a businessperson.
+ - Think of your mind, your emotions, and your spirit as the ultimate garden. The way to ensure a bountiful, nourishing harvest is to plant seeds like love, warmth, and appreciation, instead of seeds like disappointment, anger, and fear.
+ - If you believe you are right, or you believe you are wrong, you’re right. Whenever you are certain about it, you will support it. Remember that.
+ - Is is in the small decisions you and I make every day that create our destiny.
+ - Your current situation is no indication of your ultimate potential!
+ - What’s the ultimate price I’ll pay if I don’t stop this indulgence now? By asking questions like this, they’ll associate pain to overeating, and their behavior will change immediately.
+ - Most people have no idea of the giant capacity we can immediately command when we focus all of our resources on mastering a single area of our lives.
+ - I look at people’s lives and you see what’s not working in their lives and it usually comes from an undisciplined mind.
+ - Never laugh at anyone’s dream. People who don’t have dreams don’t have much.
+ - The way to expand our lives is to model the lives of those people who are already succeeding.
+ - The only way for us to have long-term happiness is to live by our highest ideals.
+ - Success comes from taking the initiative and following up or persisting.
+ - People don’t lack resources, they just lack control over their resources.
+ - You shape your perceptions, or someone shapes them for you. You do what you want to do, or you respond to someone else’s plan for you.
+ - Nothing has to happen for me to feel good! I feel good because I’m alive! Life is a gift, and I revel in it.
+ - Realize now the power that your words command if you simply choose them wisely.
+ - The past is a place you can learn from, not a place you want to live.
+ - If all we needed were ideas and positive thinking, then we all would have had ponies when we were kids and we would all be living our “dream life” now.
+ - The best way to get a better answer is to start asking a better question.
+ - There are different points of view about how to approach this experience of ultimate ecstasy, as some people describe it, or ultimate nirvana or ultimate fulfillment.
+ - It’s important to realize that words shape our beliefs and impact our actions.
+ - You can’t sit at the table of success for too long or you’ll feel bored and dead.
+ - The kind of person other people perceive you to be controls their responses to you.
+ - Time is the capital of your life, so spend it wisely.
+ - A genuine quality of life comes from consistent, quality questions.
+ - You want to be a hero? Learn to create certainty in the face of fear.
+ - Our beliefs about what we are and what we can be precisely determine what we can be.
+ - One of the things I’m best at is modeling. I find someone who is best at something I want to learn. Then I model them, and learn it myself. Then, when I’ve proven it to myself, I teach it to others.
+ - If the results don’t scream: “Do this again!” Try something new.
+ - With goals you can create the future in advance.
+ - Power flows to those who serve.
+ - When people ‘succeed’ they tend to party, when they ‘fail’ they tend to ponder...
+ - The world we live in is the world we choose to live in, whether consciously or unconsciously. If we choose bliss, that’s what we get. If we choose misery, we get that, too.
+ - If you want to cure boredom, be curious. If you’re curious, nothing is a chore; it’s automatic – you want to study. Cultivate curiosity, and life becomes an unending study of joy.
+ - Nothing can drag you down if you’re not holding on to it.
+ - If there’s anything you’re not happy about-in your relationships, in your health, in your career-make a decision right now about how you’re going to change it immediately.
+ - Making a true decision means committing to achieving a result, and then cutting yourself off from any other possibility.
+ - When a person with money meets a person with experience, the person with the experience ends up with your money.
+ - Expand your references, and you’ll immediately expand your life.
+ - Put yourself in a state of mind where you say to yourself.
+ - In life, never spend more than 10 percent of your time on the problem, and spend at least 90 percent of your time on the solution.
+ - Loss is imaginary. Nothing ever disappears in the universe; it only changes form.
+ - We aren’t in an information age, we are in an entertainment age.
+ - Courage, like fear, is a habit. The more you do it, the more you do it, and this habit-of stepping up, of taking action-more than anything else, will move you in a different direction.
+ - It is in the realm of uncertainty, that your passion is found.
+ - When people say money doesn’t matter, it sure as hell does when you’re able to show your mother a beach house and then hand her the keys to it. That was one of the happiest moments of my life.
+ - The secret to a fulfilled life is not only to do well but also to do good.
+ - At any moment in time, our reality is based on whatever we focus on.
+ - Your emotions are nothing but biochemical storms in your brain and you are in control of them at any point in time.
+ - The beliefs that we use to define our own individuality, what makes us unique – good, bad, or indifferent – from other individuals.
+ - In order to take our lives to the next level, we must realize that the same pattern of thinking that has gotten us to where we are now will not get us to where we want to go.
+ - There is always room in your life for thinking bigger, pushing limits and imagining the impossible.
+ - Happiness and success in life are not the result of what we have, but rather of how we live. What we do with the things we have makes the biggest difference in the quality of life.
+ - I’m a strategist, not a motivator. I’m obsessed with finding strategies that create real results in the shortest period of time.
+ - My whole life is driven by love. It always has been. It’s never been driven by material things – which are just benefits of doing something I loved.
+ - Your biggest problem, is that you think the current problem you’re facing is your problem.
+ - The only way a relationship will last is if you see it as a place that you go to give, and not a place that you go to take.
+ - Life wants you to serve something more than yourself. When you serve something more than yourself, you are served. It’s the most ironic thing in the world.
+ - Negative emotions are action signals.
+ - Obstacles are merely a call to strengthen your resolve to achieve your worthwhile goals.
+ - Every time you reach for food, ask yourself, ‘Will this cleanse or clog me?’
+ - To create an extraordinary quality of life, you must create a vision that’s not only obtainable, but that is sustainable.
+ - We’re emotionally unfit. We expect things to be given to us that other generations had to earn. We think we’re supposed to get homes with no money down and be supported by the government if we’re unemployed.
+ - Feed and strengthen your body. Fear is physical. When you lift weights or go for a sprint, that energy flows back into your body and restores you to certainty.
+ - If you’re feeling really sad, there is only one reason: it’s because you’re deleting all the reasons you could be feeling good. And if you’re feeling good, it’s because you’re deleting all the bad things you could be focusing on.
+ - You can’t influence somebody when you’re judging them.
+ - My personal belief is that the only thing keeping you from freedom is all the beliefs you have about what has to happen before you can be there.
+ - The one common denominator of all successful people is their hunger to push through their fears.
+ - You have to make the shift from being a consumer in the economy to becoming an owner-and you do it by becoming an investor.
+ - We only learn our limits by going beyond them. I propose that we all commit ourselves to the process of Constant and Never ending Improvement.
+ - Who needs to walk on fire, when you can walk on water with this site.
+ - Most individuals work much harder to hang on to what they have than to take the necessary risk to shoot for their dreams.
+ - Many people try to avoid pressure, yet the absence of any tension or pressure usually creates a sense of boredom and the lackluster experience of life that so many people complain about.
+ - There’s a huge difference between achieving to be happy and happily achieving.
+ - Be the person you wish to become – today. Talk like them, walk like them, breathe like them! Be them NOW!
+ - It’s the moments of our life that shape us.
+ - How do you turn the invisible into the visible? The first step is to define your dream precisely; the only limit to what you can achieve is the extent of your ability to define with precision that which you desire.
+ - If you want a fulfilled life, stop thinking about wealthy people and what they have and you don’t. Stop thinking from a place of scarcity.
+ - Negative things you tell yourself are inCANTations, turn them into inCANtations.
+ - You always succeed in producing a result.
+ - In order to be happy, human beings must feel they are continuing to grow. Clearly, we must adopt the concept of continuous improvement as a daily principle.
+ - You are as strong as you think you are, you can achieve things you think you can achieve, its all in your head.
+ - Anything can be achieved with a strong enough why!
+ - Having a powerful enough WHY will provide you with the necessary HOW.
+ - It’s a good idea not to major in minor things.
+ - It doesn’t matter what you achieve, if you don’t keep growing you’ll feel dead.
+ - We’ve all been put to sleep by somebody who’s told us all these wonderful facts that didn’t matter because information without emotion is not retained.
+ - Success is not something you achieve, conquer, climb, or complete. Success is a process; it’s a way of life.
+ - We surround ourselves with what is better or see other people as role models. You go, “If they can do this, so can I.” That starts to trigger people, as well.
+ - No one ever achieved a goal by being interested in its achievement. One must be committed.
+ - People are not their behaviors.
+ - Remember, it’s not conditions but decisions that determine our lives.
+ - Dr. Rosenberg has brought the simplicity of successful communication into the foreground. No matter what issue you’re facing, his strategies for communicating with others will set you up to win every time.
+ - If you lose 50%, it takes 100% to get back to where you started-and that takes something you can never get back: time.
+ - Other than our love our labor is one of the most sacred gifts we can give. When your labor is your love, life is sacred. Love what you do or change.
+ - A problem is a question you haven’t yet answered to a level that has fulfilled you.
+ - Don’t labor forever over the question of how or if you can do it. Studies have shown that the most successful people make decisions rapidly because they are clear on their values and what they really want for their lives.
+ - You become what you do most of the time.
+ - What we link to pleasure and what we link to pain determines our destiny.
+ - If you learn to condition yourself you can change anything you want in your life.
+ - The quality of one’s life is directly related to the quality of questions one asks oneself.
+ - Change your habitual questions and change your destiny!
+ - You can use your story, or your story can use you.
+ - Most everybody thinks that if I want to get big rewards I need to take huge risks. But if you keep thinking that, you’re gonna be broke.
+ - Lasting fulfillment is attained only through gaining insight into the core of our human nature, unleashing the power to understand, appreciate, and enjoy our lives at the deepest level.
+ - If there’s no action, you haven’t truly decided.
+ - All that you really want in life is to change how you feel.
+ - The first thing these people have who succeed, who are fulfilled, is that they’ve decided what the purpose of the game is, at least for right now.
+ - Do something. Get results. Decide if it’s worth repeating.
+ - If you’re aware when it’s going on, you can deal with it and change it. If you’re not aware of it, you’ll be mystified at the states that come and go seemingly without reason.
+ - Don’t follow those who talk, follow those who do.
+ - Decisions are the doorway to change.
+ - The same protection you create for yourself becomes the wall that imprisons you.
+ - You’ve got to be in a determined state in order to succeed.
+ - Being a leader is living life on your terms not getting followers.
+ - People have a need for certainty – and that need for certainty is in every human being, certainty that you can avoid pain, certainty that you can at least be comfortable. It’s a survival instinct.
+ - Forgiveness – this needs to be our greatest skill. The way to get good at forgiveness is: to be thankful for all the little things you see in the other person.
+ - Questions provide the key to unlocking our unlimited potential.
+ - If we believe in magic, we’ll live a magical life. If we believe our life is defined by narrow limits, we’ve suddenly made those beliefs real.
+ - People with an impoverished vocabulary live an impoverished emotional life; people with rich vocabularies have a multihued palette of colors with which to paint their experience, not only for others, but for themselves as well.
+ - If you are driven by certainty you can’t grow. If you are driven by certainty if somebody messes with you, you can get very intense, even violent, depending upon the person’s personality.
+ - I do believe I am special. My special gift is my vision, my commitment, and my willingness to do whatever it takes.
+ - I wrote down all the things I would no longer accept in my life, all the things I would no longer tolerate, and all the things that I aspired to becoming.
+ - Ignorance is poverty. Ignorance is pain. I don’t want you to go through that. So what I’m trying to do is save you decades of time by bringing you the best.
+ - Initiating and going through a divorce with four kids can be a brutal experience, but also a tempering one. It gave me perspective and insight to be able to find the love of my life.
+ - Don’t expect people to abide by your rules if you don’t clearly communicate what they are. And don’t expect them to live by your rules if you’re not willing to compromise and live by at least some of theirs.
+ - Explore your web: the needs, the beliefs, and the emotions that are controlling you so there’s more of you to give and so you can appreciate what’s driving other people. It’s the only way our world’s going to change.
+ - What we can or cannot do, what we consider possible or impossible, is rarely a function of our true capability. It is more likely a function of our beliefs about who we are.
+ - Connection and love: We all want it. Most people settle for connection because love’s too scary.
+ - What we do in life is determined by how we communicate to ourselves. In the modern world, the quality of life is the quality of communication.
+ - With enough emotional intensity and repetition, our nervous systems experience something as real, even if it hasn’t occurred yet.
+ - Happiness is in the mind, experiences of joy or pleasure should be found in the body; but ongoing joy, pure unadulterated joy, that feeling of bliss for no reason comes when you feel like your life matters because it matters to more than yourself.
+ - We’re all going to face extreme stress in our lives, there’s no one who is going to escape that. That’s the one thing, rich or poor, I don’t care who you are, you’re going to lose.
+ - I always believe leaders are readers, so you’ve got to read 30 minutes a day of something that’s going to inspire you.
+ - We don’t have to feel negative about weeds. They’re a part of life. We need to see them, acknowledge them, focus on the solution, and immediately do whatever it takes to eliminate their influence from our lives.
+ - Ultimately the way to win the game of life, is found in only one thing: Our ability to choose meaning in any life circumstance. Become the master of meaning and you master your life.
+ - Don’t even wait until you’ve lost a pound. The minute you can push the plate away with food still on it, give yourself a pat on the back.
+ - Some people try to deal with money by pretending it doesn’t matter, but financial pressure is something that affects us all every day of our lives.
+ - Expectations send unconscious signals that people respond to.
+ - The person who is motivated by necessity is interested in what’s known and what’s secure. The person who is motivated by possibility is equally interested in what’s not known. He wants to know what can evolve, what opportunities might develop.
+ - Most people aren’t really happy, but they aren’t unhappy enough to do anything about it. That’s a dangerous place to be.
+ - I’m always loading my brain with new ways of looking at something.
+ - The person with the most certainty in a given situation will influence the other.
+ - Power moves with you when you have an intent to serve more than yourself.
+ - It’s not can you, it’s will you.
+ - All personal breakthroughs being with a change in beliefs. So how do we change? The most effective way is to get your brain to associate massive pain to the old belief.
+ - When your spirit is alive, when somebody has got a strong spirit, they could be on the verge of death physically, and they’ll leak out more life.
+ - I think all people’s lives are controlled by their decisions. You look at people’s lives – it’s not their conditions, it’s their decisions. So everybody has a choice and every moment in your life you’re making decisions.
+
+500 quotes

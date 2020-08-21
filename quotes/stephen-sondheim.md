@@ -1,0 +1,147 @@
+ - If I cannot fly, let me sing.
+ - Opportunity is not a lengthy visitor.
+ - Ah, but if you have no expectations, You can never have a disappointment.
+ - Anything you do, let it come from you. Then it will be new.
+ - Having just the vision’s no solution, everything depends on execution.
+ - Teaching is a sacred profession. And art is a form of teaching.
+ - White. A blank page or canvas. So many possibilities.
+ - Art is craft, not inspiration.
+ - I chose and my world was shaken. So what? The choice may have been mistaken; the choosing was not. You have to move on.
+ - Everything depends upon execution; having just a vision is no solution.
+ - Into the woods you go again You have to every now and then Into the woods, no telling when Be ready for the journey Into the woods, each time you go There’s more to learn of what you know.
+ - Any moment, big or small, Is a moment, after all. Seize the moment, skies may fall Any moment.
+ - Work is what you do for others, liebchen. Art is what you do for yourself.
+ - I do not hope for what I cannot have! I do not cling to things I cannot keep!
+ - My personal life and my artistic life do not interfere with each other.
+ - Am I not sensitive, clever, well-mannered, considerate, passionate, charming, as kind as I’m handsome and heir to a throne?
+ - I read to see myself in other people’s lives.
+ - The worst thing you can do is censor yourself as the pencil hits the paper. You must not edit until you get it all on paper. If you can put everything down, stream-of-consciousness, you’ll do yourself a service.
+ - Music straightjackets a poem and prevents it from breathing on its own, whereas it liberates a lyric. Poetry doesn’t need music; lyrics do.
+ - The only reason to write is from love.
+ - They all deserve to die. Even you, Mrs. Lovett Even I. Because the lives of the wicked should be made brief For the rest of us death would be relief.
+ - Sometimes people leave you Halfway through the wood Others may decieve you You decide what’s good You decide alone But no one is alone.
+ - White. A blank page or canvas. The challenge. Bring order to the whole Through design, composition, tension, balance, light, and harmony.
+ - Oh if life were made of moments Even now and then a bad one – ! But if life were only moments, Then you’d never know you had one.
+ - All the best performers bring to their role something more, something different than what the author put on paper. That’s what makes theatre live. That’s why it persists.
+ - Art, in itself, is an attempt to bring order out of chaos.
+ - The situation’s fraught, Fraughter than I thought, With horrible, impossible possibilities!
+ - The difference between a cow and a bean is a bean can begin an adventure.
+ - Only capitalists get photographers.
+ - I’ve always preferred actors who sing to singers who act in all the shows I’ve done.
+ - I firmly believe lyrics have to breathe and give the audience’s ear a chance to understand what’s going on. Particularly in the theater, where you have costume, story, acting, orchestra.
+ - Tonight, tonight, won’t be just any night. Tonight there will be no morning star.
+ - Musical comedies aren’t written, they are rewritten.
+ - The man i’ll never be, Who remembers him?
+ - Pointillism takes emotional images, character, etc., and makes them all come together and make a whole that tells a story.
+ - I’m a lazy writer. My idea of heaven is not writing. On the other hand, I’m obviously compulsive about it.
+ - Everyone I used to play with has either given up or is dead.
+ - Math and music are intimately related. Not necessarily on a conscious level, but sure.
+ - Every day a little death.
+ - I was watching him crawl, Back over the wall-! Then bang! Crash! And the lightning flash! And- well, that’s another story, Never mind- Anyway...
+ - Success is like failure, It’s how you perceive it, It’s what you do with it, not how you achieve it.
+ - My parents got divorced and military school gave me a structure. A lot of kids my age were children of divorced parents. They didn’t know what to do with the kids.
+ - To wish and wait From day to day Will never keep The wolves away.
+ - If you told me to write a love song tonight, I’d have a lot of trouble. But if you tell me to write a love song about a girl with a red dress who goes into a bar and is on her fifth martini and is falling off her chair, that’s a lot easier, and it makes me free to say anything I want.
+ - Stay a child while you can be a child.
+ - One difference between poetry and lyrics is that lyrics sort of fade into the background. They fade on the page and live on the stage when set to music.
+ - I like neurotic people. I like troubled people. Not that I don’t like squared-away people, but I prefer neurotic people. I like to hear rumblings beneath the surface.
+ - Two of the hardest words in the language to rhyme are life and love. Of all words!
+ - You may know what you need, but to get what you want, better see that you keep what you have.
+ - If the end is right, it justifies the beans!
+ - My mother wanted me off her hands. She was a working woman. She designed clothes, and she was a celebrity collector. It’s my mother’s ambition to be a celebrity.
+ - Perpetual anticipation is good for the soul but it’s bad for the heart.
+ - I don’t write songs apart from theatrical pieces. I’m not interested in writing songs qua songs.
+ - Oscar Hammerstein was a surrogate father during all those many days, and weeks and months when I didn’t see my own father.
+ - So here’s to the girls on the go- Everybody tries Look into their eyes and you’ll see what they know: Everybody dies. A toast to that invincible bunch – The dinosaurs surviving the crunch – Let’s hear it for the ladies who lunch – Everybody rise!
+ - The nice thing about doing a crossword puzzle is, you know there is a solution.
+ - When you know your cast well and their strengths and weaknesses, you can start writing for them, just the way Shakespeare wrote for his actors.
+ - It’s not so much do what you like as it is that you like what you do.
+ - Everyone tells tiny lies, what’s important really is the size.
+ - I love computers. I love writing on them. I love gadgetry. The thing is: I am a slow reader. So, if I am going to get my work done, I read, like, a newspaper and that’s it. If I got into websites and the internet, I wouldn’t get any work done.
+ - For me it’s more fun to find an unexpected moment for a character to sing when you don’t expect them to.
+ - When you trance out properly, when you’re completely in that world, there is no other world, so there’s no conflict.
+ - When I listen to my work, I think, what’s so inflammatory about it? It’s not really that dissonant. A lot of people who used to hate my stuff have come round to it.
+ - Lyrics have to be underwritten. That’s why poets generally make poor lyric writers because the language is too rich. You get drowned in it.
+ - It’s age. It’s a diminution of energy and the worry that there are no new ideas. It’s an increasing lack of confidence. I’m not the only one. I’ve checked with other people.
+ - I was never much of a reader. I’m a slow reader, which is unusual, because I’m so into language and I love words so much. But it’s hard for me to read.
+ - When the audience comes in, it changes the temperature of what you’ve written.
+ - Slotted spoons don’t hold much soup...
+ - I’m before him on my knees, and he kisses me He assumes I lose my reason and I do. Men are stupid, men are vain, Love’s disgusting, love’s insane, A humiliating business-oh how true.
+ - I get some flak for and some resistance from colleagues for because I’m interested in storytelling. I mean what I like about songwriting is songs used to tell a story.
+ - Friendship, obligation and greed are not good enough reasons to write anything.
+ - In not-for-profit theater, you don’t worry so much about how the audience is going to react. You want to make them absorb the piece.
+ - There’s something inimical about the camera and song.
+ - Hit songs did not come out of musicals. Pop-rock was creating the hits. There were very few songs that made the charts out of any Broadway musical.
+ - Writing is a form of mischief.
+ - Lemuel Ayers had had a huge success producing and designing Kiss Me, Kate. He wanted to produce this as a musical. I got the job. It was a professional score.
+ - The Tonys ignored West Side Story. The Tonys ignored Gypsy. It’s a kind of public humiliation.
+ - If people have split views about your work, I think it’s flattering. I’d rather have them feel something about it than dismiss it.
+ - I liked my father a lot, but I didn’t see him very often because my mother was bitter about him. He remarried, and I used to have to sneak off to see him.
+ - You have to be submitted for the Pulitzer, and unbeknownst to us, a choral director whom I know had submitted us.
+ - Generally, the best recording is the original cast, because that’s the way the piece grew: integrally, with them.
+ - A close-up on screen can say all a song can.
+ - Musicals are, by nature, theatrical, meaning poetic, meaning having to move the audience’s imagination and create a suspension of disbelief, by which I mean there’s no fourth wall.
+ - I played the organ when I went to military school, when I was 10. They had a huge organ, the second-largest pipe organ in New York State. I loved all the buttons and the gadgets. I’ve always been a gadget man.
+ - So many good songs get written fast, because you know exactly what has to work.
+ - With videotaping, on the second generation you’re already losing some of the freshness.
+ - Swing your razor wide! Sweeney, hold it to the skies!
+ - Sometimes I’ll ask the book writer to write a monologue, not to be performed, just as if they were notes for the character.
+ - The more restrictions you have, the easier anything is to write.
+ - You can’t have personal investors anymore because it’s too expensive, so you have to have corporate investment or a lot of rich people.
+ - They wanted me to be a concert pianist, because I had a very good right hand, but my left hand’s terrible and I hated performing.
+ - Everyone would like to be on Broadway, cause if a show works, you make a great deal of money and it allows you to write other shows.
+ - I really don’t want to write a score until the whole show is cast and staged.
+ - Nowadays, there are sometimes more producers than there are people in the cast, because it takes that much money to put a show on.
+ - My main goal is to tell a story.
+ - On stage, generally speaking, the story is stopped or held back by songs, because that’s the convention. Audiences enjoy the song and the singer, that’s the point.
+ - The truth is that I don’t like rehearsals. I get embarrassed hearing my own work. I assume that the cast is embarrassed to sing the stuff.
+ - Math was my big interest when I was in prep school. I was considering taking math in college, and majoring in it.
+ - I’m interested in the theater because I’m interested in communication with audiences. Otherwise I would be in concert music.
+ - I took piano lessons when I was 6. I didn’t want to go on with it. I don’t remember being moved by a piece of music.
+ - I fell into lyric writing because of music. I backed into it.
+ - In the Rodgers and Hammerstein generation, popular hits came out of shows and movies.
+ - Almost all the shows I’ve been connected with have been extremely well cast. They’re playing the show, not just doing the songs.
+ - Musicals are so expensive to put on the stage that you have to have the backing of a corporate, you have to have Universal Studios or Disney or somebody to put in the money.
+ - Deciding what is to be sung and what is not to be sung is really what writing a musical is about.
+ - My cage has many rooms.
+ - What justifies a character singing one idea for 3 minutes on the screen? I get impatient and want the story to carry on. I don’t get impatient in the theatre.
+ - Take a play that you like but you think is flawed, and see if you can improve it and turn it into a musical. Then make up your own story.
+ - It’s not so hard to be married, I’ve done it three or four times.
+ - I was raised to be charming, not sincere.
+ - No one has ever known me as clearly as you. No one has ever shown me that love allows everything. Not pretty or safe or easy but something I never knew. Love within reason, that isn’t love and I learned that from you.
+ - Over a period of time it’s been driven home to me that I’m not going to be the most popular writer in the world, so I’m always happy when anything in any way is accepted.
+ - I do not dwell on dreams I know how soon a dream becomes an expectation How can I have expectations? Look at me, No, Captain, Look at me, Look at me!
+ - After the Rodgers and Hammerstein revolution, songs became part of the story, as opposed to just entertainments in between comedy scenes.
+ - I prefer neurotic people. I like to hear rumblings beneath the surface.
+ - I like songs that are part of a dramatic texture, and therefore I like the scenes to be active. I wanna follow the story and that means you lean on the actors.
+ - I love the theater as much as music, and the whole idea of getting across to an audience and making them laugh, making them cry – just making them feel – is paramount to me.
+ - The dumbing down of the country reflects itself on Broadway. The shows get dumber, and the public gets used to them.
+ - You’re so nice. You’re not good, you’re not bad, You’re just nice. I’m not good, I’m not nice, I’m just right. I’m the witch. You’re the world.
+ - Musicals are plays, but the last collaborator is your audience, so you’ve got to wait ’til the last collaborator comes in before you can complete the collaboration.
+ - I’ve always liked puzzles, since I was a kid. I like party games, silly games. I loved chess. I enjoy jigsaw puzzles, but I’m not particularly visual.
+ - You get used to the exact amount of space between lines. You write a word and then you write an alternate word over it. You want enough room so you can read it, so the lines can’t be too close.
+ - Music is structure out of Chaos.
+ - I didn’t really want to write just lyrics, but I wanted to meet Leonard Bernstein. Music was always the first reason I was writing songs.
+ - I’m sure many writers have these strange, tiny little habits.
+ - Every writer I’ve ever spoken to feels fraudulent in some way or other.
+ - I don’t listen to recordings of my songs. I don’t avoid it, I just don’t go out of my way to do it.
+ - You move just a finger, say the slightest word, something’s bound to linger-be heard.
+ - It’s pleasanter to work in the country, where you can wander out among the trees. But I don’t get as much work done. In the city you don’t want to leave the room because there’s all that chaos going on.
+ - When I was growing up, there was no such thing as Off-Broadway. You either got your show on or you didn’t.
+ - By the time I get through writing a score, I know the book better than the book writer does, because I’ve examined every word, and questioned the book writer on every word.
+ - If you’re dealing with a musical in which you’re trying to tell a story, it’s got to sound like speech. At the same time it’s got to be a song.
+ - The art of making art, is putting it together...
+ - One of the hardest things about writing lyrics is to make the lyrics sit on the music in such a way that you’re not aware there was a writer there.
+ - The movie adaptations of stage musicals that I’ve seen, without exception, in my opinion don’t work. A lot of people would disagree with me.
+ - If I got involved with the chat rooms and Facebook and everything – I would probably never leave. That’s why I don’t do it. I literally don’t do it. At all.
+ - The more you cling to things, The more you love them, The more the pain you suffer, When they’re taken from you...
+ - By the time I was 22, I was a professional. A young and flawed professional, but not an amateur.
+ - I like murder mysteries, the Agatha Christie kinds of things where you know that it’s all going to be neatly wound up at the end.
+ - Puzzles are like songs – A good puzzle can give you all the pleasure of being duped that a mystery story can. It has surface innocence, surprise, the revelation of a concealed meaning, and the catharsis of solution.
+ - Sometimes colleagues in performance are absolutely astonishing.
+ - Gotta watch out for directors.
+ - For anyone approaching any one of the cast albums, if they don’t like what they hear, it’s not the performer’s fault.
+ - I started listening to classical music when I was in my early teens. Prior to that, I listened to pop records or band records.
+ - Nice is different than good.
+
+145 quotes

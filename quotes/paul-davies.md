@@ -1,0 +1,74 @@
+ - The origin of life is one of the great outstanding mysteries of science.
+ - The Goldilocks Enigma is the idea that everything in the universe is just right for life, like the porridge in the fairy tale.
+ - The birth of science as we know it arguably began with Isaac Newton’s formulation of the laws of gravitation and motion. It is no exaggeration to say that physics was reborn in the early 20th-century with the twin revolutions of quantum mechanics and the theory of relativity.
+ - The Eerie Silence: are we alone in the universe?
+ - Through conscious beings the universe has generated self-awareness. This can be no trivial detail, no minor byproduct of mindless, purposeless forces. We are truly meant to be here.
+ - It may seem bizarre, but in my opinion science offers a surer path to God than religion.
+ - Scientists have no agreed theory of the origin of life – plenty of scenarios, conjectures and just-so stories, but nothing with solid experimental support.
+ - We will never fully explain the world by appealing to something outside it that must simply be accepted on faith, be it an unexplained God or an unexplained set of mathematical laws.
+ - The thing about lucid dreams is that it’s not like the real world where you are constrained by all sorts of things, including the laws of physics-you can do magic.
+ - The secret of our success on planet Earth is space. Lots of it. Our solar system is a tiny island of activity in an ocean of emptiness.
+ - General relativity is the cornerstone of cosmology and astrophysics. It has also provided the conceptual basis for string theory and other attempts to unify all the forces of nature in terms of geometrical structures.
+ - When I was a student almost nobody thought there was any life beyond Earth. Today it’s fashionable to say that there is life all over the place, that the universe is teeming with it, but the scientific facts on the ground haven’t really changed.
+ - The temptation to believe that the Universe is the product of some sort of design, a manifestation of subtle aesthetic and mathematical judgment, is overwhelming. The belief that there is “something behind it all” is one that I personally share with, I suspect, a majority of physicists.
+ - In science, a healthy skepticism is a professional necessity, whereas in religion, having belief without evidence is regarded as a virtue.
+ - The Universe is not a collection of objects, but is an inseparable web of vibrating energy patterns in which no one component has reality independently from the entirety. Included in the entirety is the observer.
+ - The anthropic principle is an unfortunate name as it implies something about humanity.
+ - Mathematics is not something that you find lying around in your back yard. It’s produced by the human mind. Yet if we ask where mathematics works best, it is in areas like particle physics and astrophysics, areas of fundamental science that are very, very far removed from everyday affairs.
+ - Most life on Earth is microbes. we’ve only just scratched the surface of the microbial realm. Probably less than .1% of microbes have been classified let alone cultured or had their genes sequenced, so really that microbial realm is a mystery.
+ - Things changed with the discovery of neutron stars and black holes – objects with gravitational fields so intense that dramatic space and time-warping effects occur.
+ - My feeling is that scientific method has the power to account for and interlink all phenomena in the universe, including its origin, using the laws of nature. But that still leaves the laws unexplained.
+ - Scientists are slowly waking up to an inconvenient truth – the universe looks suspiciously like a fix. The issue concerns the very laws of nature themselves.
+ - Technology is, in the broadest sense, mind or intelligence or purpose blending with nature.
+ - To a physicist life looks nothing short of a miracle. It’s just amazing what living things can do.
+ - Ultimate questions will always lie beyond the scope of empirical science as it is.
+ - For me, science is already fantastical enough. Unlocking the secrets of nature with fundamental physics or cosmology or astrobiology leads you into a wonderland compared with which beliefs in things like alien abductions pale into insignificance.
+ - We know that within the solar system is very unlikely there will be anything more advanced than microbial life, but if we think outside the solar system and then, the distances are, of course, immense, then there could be Earth-like planets with more advanced form of life.
+ - It will be in the convergence of evolutionary biology, developmental biology and cancer biology that the answer to cancer will lie. Nor will this confluence be a one-way street.
+ - Many investigators feel uneasy stating in public that the origin of life is a mystery, even though behind closed doors they admit they are baffled.
+ - Studying cancer could provide huge insights for astrobiologists into the nature of life itself.
+ - If we knew we were not alone in the universe it would have a very, very deep impact on our worldview, on our understanding of our place in the universe.
+ - In the 1990s I began to study the prospects that life could spread from Mars to Earth or maybe Earth to Mars and that maybe life began on Mars and came to Earth, and that idea seemed to have a lot of traction and is now accepted as very plausible.
+ - Astronauts have been stuck in low-Earth orbit, boldly going nowhere. American attempts to kick-start a new phase of lunar exploration have stalled amid the realisation that NASA’s budget is too small for the job.
+ - The universe contains vastly more order than Earth-life could ever demand. All those distant galaxies, irrelevant for our existence, seem as equally well ordered as our own.
+ - Man-made computers are limited in their performance by finite processing speed and memory. So, too, the cosmic computer is limited in power by its age and the finite speed of light.
+ - When I was a student, the laws of physics were regarded as completely off limits. The job of the scientist, we were told, is to discover the laws and apply them, not inquire into their provenance.
+ - Although the elusive ‘cure’ may be a distant dream, understanding the true nature of cancer will enable it to be better controlled and less menacing.
+ - I always look on the black side of life. That way, you won’t be disappointed and I’m cheerful if it doesn’t work out. I’m a cheerful pessimist.
+ - If we do discover more than one type of life on Earth, we can be fairly certain that the universe is teeming with it, for it would be inconceivable that life started twice here but never on all the other earth-like planets.
+ - Traditionally, scientists have treated the laws of physics as simply ‘given,’ elegant mathematical relationships that were somehow imprinted on the universe at its birth, and fixed thereafter. Inquiry into the origin and nature of the laws was not regarded as a proper part of science.
+ - Should we find a second form of life right here on our doorstep, we could be confident that life is a truly cosmic phenomenon. If so, there may well be sentient beings somewhere in the galaxy wondering, as do we, if they are not alone in the universe.
+ - Is there anything science should not try to explain? Science is knowledge and knowledge is power – power to do good or evil. Sometimes ignorance is bliss.
+ - No intelligent supervisor, no mystic force, no conscious controlling agency swings the molecules into place at the right time, chooses the appropriate players, closes the links, uncouples the partners, moves them on. The dance of life is spontaneous, self-sustaining, and self-creating.
+ - Perhaps the best motivation for going to Mars is political. It is obvious that no single nation currently has either the will or the resources to do it alone, but a consortium of nations and space agencies could achieve it within 20 years.
+ - Cancer touches every family in one way or another. As other diseases are brought under control, cancer is set to become the number one killer, and is already in epidemic proportions worldwide.
+ - Imagine a civilisation that’s way in advance of us wants to communicate with us, and assist us in our development. The information we provide to them must reflect our highest aspirations and ideals, and not just be some crazy person’s bizarre politics or religion.
+ - The way life manages information involves a logical structure that differs fundamentally from mere complex chemistry. Therefore chemistry alone will not explain life’s origin, any more than a study of silicon, copper and plastic will explain how a computer can execute a program.
+ - In the frantic search for an elusive ‘cure,’ few researchers stand back and ask a very basic question: why does cancer exist? What is its place in the grand story of life?
+ - The vast majority of terrestrial species are in fact microbes, and scientists have only begun scratching the surface of the microbial realm. It is entirely possible that examples of life as we don’t know it have so far been overlooked.
+ - For millennia mankind has believed that nothing can come out of nothing. Today we can argue that everything has come out of nothing. Nobody has to pay for the universe. It is the ultimate free lunch.
+ - Cancer is like another form of life. It’s closely related to healthy life. A healthy body is one form of life. Cancer is in a way nature’s experiment with life.
+ - Cosmologists have attempted to account for the day-to-day laws you find in textbooks in terms of fundamental ‘superlaws,’ but the superlaws themselves must still be accepted as brute facts. So maybe the ultimate laws of nature will always be off-limits to science.
+ - Very, very slowly, the dwarf remnants of what was once our mighty sun will cool and dim, until it embarks on its final metamorphosis, gradually solidifying into a crystal of extraordinary rigidity. Eventually it will fade out completely, merging quietly into the blackness of space.
+ - Science is about explaining the world, and religion is about interpreting it. There shouldn’t be any conflict.
+ - No planet is more earth-like than Earth itself, so if life really does pop up readily in earth-like conditions, then surely it should have arisen many times right here on our home planet? And how do we know it didn’t? The truth is, nobody has looked.
+ - To expect alien technology to be just a few decades ahead of ours is too incredible to be taken seriously.
+ - The language of chemistry simply does not mesh with that of biology. Chemistry is about substances and how they react, whereas biology appeals to concepts such as information and organisation. Informational narratives permeate biology.
+ - I think if we’re going to send messages to the stars then it needs a great deal of thought that it’s something that should involve the entire not only scientific community, but the entire world community. We need to think very carefully indeed.
+ - Mathematics is universal. It’s discovered by human beings, but the rules of mathematics are the same throughout the universe and the laws of the universe.
+ - It is possible that a scientific discovery will be made that humans will later regret because it has awful consequences. The problem is, we probably would not know in advance and, once the discovery is made, it cannot be undiscovered.
+ - Searching for alternative life on Earth might seem misconceived, because there is excellent evidence that every kind of life so far studied evolved from a common ancestor that lived billions of years ago. Yet most of the life that exists on Earth has never been properly classified.
+ - A permanent base on Mars would have a number of advantages beyond being a bonanza for planetary science and geology. If, as some evidence suggests, exotic micro-organisms have arisen independently of terrestrial life, studying them could revolutionise biology, medicine and biotechnology.
+ - Many billions of years will elapse before the smallest, youngest stars complete their nuclear burning and shrink into white dwarfs. But with slow, agonizing finality perpetual night will surely fall.
+ - Science, we are repeatedly told, is the most reliable form of knowledge about the world because it is based on testable hypotheses. Religion, by contrast, is based on faith. The term ‘doubting Thomas’ well illustrates the difference.
+ - Even if we don’t have a precise idea of exactly what took place at the beginning, we can at least see that the origin of the universe from nothing need not be unlawful or unnatural or unscientific.
+ - It’s only fashion that has said the pendulum has swung from extreme skepticism about extraterrestrial life to extreme credulity. The truth is somewhere in between.
+ - If we’re looking for intelligence in the universe I think everybody assumes that this has to start with life and so the question is: “How likely is it that there will be life elsewhere in the universe?”
+ - The question not many ask is: why are the laws of physics like they are?
+ - Most research into life’s murky origin has been carried out by chemists. They’ve tried a variety of approaches in their attempts to recreate the first steps on the road to life, but little progress has been made. Perhaps that is no surprise, given life’s stupendous complexity.
+ - Cancer is such a ruthless adversary because it behaves as if it has its own fiendishly cunning agenda.
+ - It’s always good in science to say “Well how do you know that?” and “Are you really sure?” and “Could there be an exceptional case?”
+ - Clearly, some creative thinking is badly needed if humans are to have a future beyond Earth. Returning to the Moon may be worthy and attainable, but it fails to capture the public’s imagination. What does get people excited is the prospect of a mission to Mars.
+ - Astonishingly, in spite of decades of research, there is no agreed theory of cancer, no explanation for why, inside almost all healthy cells, there lurks a highly efficient cancer subroutine that can be activated by a variety of agents – radiation, chemicals, inflammation and infection.
+
+72 quotes

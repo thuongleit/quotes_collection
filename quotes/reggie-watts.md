@@ -1,0 +1,24 @@
+ - When in doubt, zoom out.
+ - We’re all just memories of our future selves.
+ - Feel not as though it is a sphere we live on. Rather, an infinite plane which has the illusion of leading yourself back to the point of origin.
+ - Common knowledge, but important nonetheless.
+ - In the absence of truth there is confusion, the essence of truth.
+ - Just remember, everything you are is...
+ - I’m not into looking crisp. That’s not how I dress or who I am.
+ - I love the whole futuristic landscape of dark, rainy neon, the mix of Eastern and Western cultures and the beautiful shots of the flying cars.
+ - If you pay attention to the world, it’s an amazing place. If you don’t, it’s whatever you think it is.
+ - Religions are the training wheels of self enlightenment. They can be helpful in the beginning but at some point they must be let go.
+ - My mom was a pretty hard worker. She worked her ass off, but I’d say we were middle class. I had a car in high school, so I loved the idea that I could mimic this lifestyle.
+ - I had a job at a movie theater for like a year and a half and then a job at a health food store for, like, two years. Those were the only two jobs I ever had.
+ - Religion can only dream to do what science and art does every day.
+ - Im pretty lazy when it comes to creativity. I just want it to be easy and fun.
+ - I wear the same pants, same shirt and same shoes every day. I learned it from the greats, like Einstein. It’s a uniform essentially.
+ - I think the end goal, hopefully, is to take advantage of the attention Ive gotten along the way and use it for good and build some communities, and as I get older I can continue to do things and be surrounded by things that are inspirational to me.
+ - I was in punk rock bands, heavy metal bands, world music bands, jazz groups, any type of music that would take me. I just love music.
+ - Technology is a wonderful tool, but also if used incorrectly a horrible tool. We’re fascinated by all aspects of it, whatever makes our human lives easier on the planet, but eventually there will have to be some sort of merger. The fascination isn’t going to die down.
+ - I always did music, but music is an easier thing for me. Making videos and doing comedy things was more of a challenge, so I was more interested in that. Music is a little bit more automatic.
+ - As long as I have a good time, the audience usually has a good time.
+ - The most important thing is to keep creating and following my inklings as they come into being and acting on them.
+ - Not necessarily in the beginning, thinking I would have a career in comedy, but I was always interested in making people laugh.
+
+22 quotes

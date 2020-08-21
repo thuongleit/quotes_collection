@@ -1,0 +1,24 @@
+ - If you give up because you announce the phenomenon cannot be explained, you are missing out.
+ - Brains are not magical; they are causal machines.
+ - I am less attracted to guesses about what cannot be done, than about making progress on a problem.
+ - It seems that the brain has a “small world” architecture – or at least the cortex does. Everything can connect to everything else in a few synaptic steps.
+ - Suppression of impulses that would put you in danger is obviously an important neurobiological function.
+ - I made the assumption, wrong of course, that conceptual analysis was a brief preliminary on the road to finding out about the nature of free will, consciousness, the self, the origin of values, and so forth.
+ - In all probability, mental states are processes and activities of the brain. Exactly what activities, and exactly at what level of description, remains to be seen.
+ - Humility bids us to take ourselves as we are; we do not have to be cosmically significant to be genuinely significant.
+ - It seems probable that humans have been on the planet, with much the same brain, for about 250,000 years.
+ - Even philosophers who did not mind psychology, claimed the brain was irrelevant because it was the hardware, and we only need to know about the software.
+ - Knowing about the neurobiological and evolutionary basis for social behavior can soften the arrogance and self-righteousness that often attends discussions of morality. It may help us all to think a little more carefully and rationally.
+ - Being engaged in some way for the good of the community, whatever that community, is a factor in a meaningful life. We long to belong, and belonging and caring anchors our sense of place in the universe.
+ - The neuroscience of consciousness is not going to stop in its tracks because some philosophers guesses that project cannot be productive.
+ - If I want to know how we learn and remember and represent the world, I will go to psychology and neuroscience. If I want to know where values come from, I will go to evolutionary biology and neuroscience and psychology, just as Aristotle and Hume would have, were they alive.
+ - Although many philosophers used to dismiss the relevance of neuroscience on grounds that what mattered was the software, not the hardware, increasingly philosophers have come to recognize that understanding how the brain works is essential to understanding the mind.
+ - There are many levels of organization in nervous systems. Hence we aim to explain mechanisms at one level in terms of properties and dynamics at a lower level, and to fit that in with the properties at the higher levels.
+ - When that theory is isolated from known facts, it is likely not to be productive.
+ - Theorizing is of course essential to make progress in understanding, but theorizing in the absence of knowing available relevant facts is not very productive.
+ - It is surely important that the differences between coma, deep sleep, being under anesthesia, on the one hand, and being alert on the other, all involve changes in the brain.
+ - Remember, in the heyday of vitalism, people said that when all the data are in about cells and how they work, we will still know nothing about the life force – about the basic difference between being alive and not being alive.
+ - Eventually I realized that for contemporary philosophers conceptual analysis per se was an end in itself. For some, it was somehow supposed to lead to the truth about these phenomena, not just to tidy things up a bit.
+ - When philosophers try to understand consciousness, much of what they claim is not conceptual analysis at all, though it may be shopped under that description.
+
+22 quotes

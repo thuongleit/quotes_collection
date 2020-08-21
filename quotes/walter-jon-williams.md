@@ -1,0 +1,30 @@
+ - I’m not afraid of werewolves or vampires or haunted hotels, I’m afraid of what real human beings to do other real human beings.
+ - If you can find collaborators whose strengths compliment your own, the result can be more than the sum of its authors.
+ - Now I have to motivate myself much more than I had previously.
+ - Even if you only want to write science fiction, you should also read mysteries, poetry, mainstream literature, history, biography, philosophy, and science.
+ - Science fiction readers probably have the gene for novelty, and seem to enjoy a cascade of invention as much as a writer enjoys providing one.
+ - The mass-market paperback, for one, is too expensive.
+ - When state and religion are one, religion becomes a means for the powerful to remain in power.
+ - The Rift, which was well over a thousand pages of manuscript, took two years.
+ - I found college useful for a lot of other reasons. It exposed me to a great many influences I wouldn’t otherwise have encountered, and gave me a lot of time with some very intelligent people whose thoughts are still with me.
+ - I’ve learned that I get blocked when my subconscious mind is telling me that I’ve taken the work in a wrong direction, and that once I start listening to what my subconscious is trying to tell me, I can work out the problem and get moving again.
+ - Working within the limitations of the shared world generally made the writing easier, because I didn’t have to invent any of the characters or background, which is usually the hardest part.
+ - That’s why editors and publishers will never be obsolete: a reader wants someone with taste and authority to point them in the direction of the good stuff, and to keep the awful stuff away from their door.
+ - Try to meet as many authors, agents, and editors as you can.
+ - The Internet offers an interesting combination of advertising and community – by participating in the community you can become an advertisement for yourself.
+ - It’s a tough job to tell a story when the audience already knows the ending, and the ending is bleak.
+ - Being a writer was never a choice, it was an irresistible compulsion.
+ - Some of my ideas were shot down by Lucasfilm because they stepped on territory that has been reserved for the movies. I didn’t have a problem with that.
+ - I was pretty much grown-up by the time I attended school in Britain – or as grown-up as I’ll ever get.
+ - An SF author who reads only SF will have little new to contribute, but someone with a broader experience will bring more to the table.
+ - Everything that you read is an influence on everything you write, and you want to draw as many elements into your work as you can.
+ - I now have to find a reason to write, every single day.
+ - I’ve experienced writer’s block, but never for more than a few days.
+ - I can’t speak for the other authors, but what I hoped to achieve was to illuminate certain corners of the Lucas universe that hadn’t yet been explored.
+ - Genre labels are useful only insofar as they help you find an audience.
+ - I went to college, though I didn’t take many writing courses.
+ - I’m in favor of any technology that makes my work available to the reading public at a reasonable price.
+ - I want a platform that, like a book or a magazine, I can carry into the bath or leave at the beach.
+ - How long it takes to write a book depends on its length.
+
+28 quotes

@@ -1,0 +1,31 @@
+ - The universe has its secrets. Extra dimensions of space might be one of them. If so, the universe has been hiding those dimensions, protecting them, keeping them coyly under wraps. From a casual glance, you would never suspect a thing.
+ - Creativity is essential to particle physics, cosmology, and to mathematics, and to other fields of science, just as it is to its more widely acknowledged beneficiaries – the arts and humanities.
+ - I did not set out to explain the extinction of the dinosaurs. I’m a particle physicist, and I was actually thinking about dark matter along with some collaborators.
+ - It’s hubris to think that the way we see things is everything there is.
+ - One of the nice things about math and science is it’s obvious, you get the answer or you don’t get the answer.
+ - Science is a combination of theory and experiment and the two together are how you make progress.
+ - Basically, I wasn’t properly socialized, so it made sense to do physics.
+ - Sometimes models are surprisingly smart.
+ - Speculation and the exploration of ideas beyond what we know with certainty are what lead to progress.
+ - When people try to use religion to address the natural world, science pushes back on it, and religion has to accommodate the results. Beliefs can be permanent, but beliefs can also be flexible. Personally, if I find out my belief is wrong, I change my mind. I think that’s a good way to live.
+ - We certainly don’t yet know all the answers. But the universe is about to be pried open.
+ - You might find it hard to imagine gravity as a weak force, but consider that a small magnet can hold up a paper clip, even though the entire earth is pulling down on it.
+ - Although I was first drawn to math and science by the certainty they promised, today I find the unanswered questions and the unexpected connections at least as attractive.
+ - All the normal matter in the Milky Way disc is denser than the dark matter that surrounds it...
+ - When it comes to the world around us, is there any choice but to explore?
+ - Secrets of the cosmos will begin to unravel. I, for one, can’t wait.
+ - I considered going into business or becoming a lawyer – not for the money, but for the thrill of problem-solving.
+ - There is real confusion about what it means to be right and wrong – the difference between what spiritual beliefs are and what science is.
+ - Travel at faster than the speed of light certainly can have dramatic implications that are difficult to understand, such as time travel.
+ - Scientific research involves going beyond the well-trodden and well-tested ideas and theories that form the core of scientific knowledge. During the time scientists are working things out, some results will be right, and others will be wrong. Over time, the right results will emerge.
+ - I had this illusion that if I kind of dressed badly that I wouldn’t stand out. So I actually went out of my way to not look different to the extent I could.
+ - Probably if you look like Tyra Banks, it probably is hard, even if you are really smart, for people to take – it surprises some.
+ - I’m not creating the universe. I’m creating a model of the universe, which may or may not be true.
+ - We should figure out how to do this so that some parents don’t feel disenfranchised, angry and upset. It says a lot about the state of where we are in the city, the role of parents and the reality of small school and combining schools.
+ - When I was in school I liked math because all the problems had answers. Everything else seemed very subjective.
+ - Both religions and musicals work best with energetic and committed believers. Cynicism or detachment would have destroyed the magic – something true of religion, too.
+ - An almost indispensable skill for any creative person is the ability to pose the right questions. Creative people identify promising, exciting, and, most important, accessible routes to progress – and eventually formulate the questions correctly.
+ - Maybe dark matter is denser than we usually assume, kind of like the Milky Way plane.
+ - You can be only a modest distance away from the gravity brane, and gravity will be incredibly weak.
+
+29 quotes

@@ -1,0 +1,37 @@
+ - Everything we do has consequences.
+ - I believe everybody is responsible for what they do themselves.
+ - Words themselves – the very material of our discourse increasingly take on masks or disguises.
+ - God, I’m such a lazy writer – I can’t even think up new names.
+ - I think childhood is to everyone a lost land.
+ - I did not fully understand the dread term ‘terminal illness’ until I saw Heathrow for myself.
+ - The trouble with words is that you never know whose mouths they’ve been in.
+ - The loss of Eden is personally experienced by every one of us as we leave the wonder and magic and also the pains and terrors of childhood.
+ - Religion has always been the wound, not the bandage.
+ - I was given talent, and if you are given it, it is your obligation to use it.
+ - A writer helps to show you things you knew but didn’t know you knew.
+ - Ideals jump across the hierarchies of the printed word.
+ - Some of the words and symbols and images from childhood will continually be part and parcel of my personality.
+ - We should always look back on our own past with a sort of contempt, as long as the tenderness is there – but please let some of the contempt be there.
+ - That vision of a common culture is now simply a remote wistfulness.
+ - Metaphor is embodied in language.
+ - You just don’t know writers. They’ll use anything, anybody. They’ll eat their young.
+ - A bad act done will fester and create in its own way. It’s not only goodness that creates. Bad things create. They have their own yeast.
+ - Just letting it out is one of the definitions of bad art.
+ - You have to assert something about yourself in order to be yourself.
+ - I have been aware, from the age of 6, that I had talent.
+ - As adults, we do know more, but we don’t know enough. People can be very unthinkingly callous.
+ - Children can write poetry and then, unless they’re poets, they stop when reach puberty.
+ - The more my work improves or broadens or widens, the more surely I tame myself.
+ - To love it too much is to obscure and not see what is there.
+ - It is a dangerous thing to have instant access to your emotions.
+ - The strangest thing that human speech and human writing can do is create a metaphor. That is an amazing leap, is it not?
+ - Religion, you can’t a handle on it, you just have to know or not know-people either believe or they don’t believe.
+ - Therapy, as opposed to analysis, is a whole construct of myth, beautiful and creative.
+ - The thing about imagination is that by the very act of putting it down, there must be some truth in one’s own imagination.
+ - Television’s Mr. Filth: that’s me.
+ - The knowledge that we have about what it is to be human that we have as a child is something we necessarily must lose.
+ - There’s no end to the inventiveness of critics, I tell you. Because they can’t write fiction, they put their impulse into their analysis of work.
+ - Children are very cruel, yes. Of course. Children are extraordinarily cruel little creatures.
+ - People endure what they endure and they deal with it. It may corrupt them. It may lead them into all sorts of compensatory excesses.
+
+35 quotes

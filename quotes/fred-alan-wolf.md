@@ -1,0 +1,34 @@
+ - Dreams – Language in a dream is unspoken but understood. Words get in the way.
+ - What is the relationship of the obvious things that we see around us to the things that we believe we understand within ourselves? This is the ancient alchemical formula: “as above, so below, as within, so without.”
+ - The shamanic realm is to get you out of the word set. For skeptics, that’s impossible, and they just can’t see that and it just makes no sense.
+ - I’m not talking to you from the point of view of wishful thinking or imaginary craziness. i’m talking to you from a deeper, basic understanding.
+ - Oh, scientific mind. You get all your data from us, the senses, but without us you would be nothing.
+ - You had to be able to lift yourself outside of the time stream – and that essentially became what is called the yoga of time travel.
+ - What I thought was unreal now, for me, seems in some ways to be more real than what I think to be real, which seems now to be unreal.
+ - The real alchemy is transforming the base self into gold or into spiritual awareness. That’s really what new alchemy’s all about.
+ - To understand that, we have to begin to imagine what a universe would be like if there wasn’t anything in it called Mind. If that was the case, according to quantum physics now, then every possibility would also come into existence as every other possibility.
+ - In the Greek way of dealing with alchemy, which was earth, air, fire and water, these were the objective qualities. Within the objective qualities – things of earth, air, fire and water – are our subjective experiences of hot, cold, dry, and moist.
+ - We have a sense of continuity, which gives us what we call a sense of time. Through our ability to have remembrances of both what’s coming and what’s happening and what has happened, we begin to piece together a logical picture of the world.
+ - The quantum is that embarrassing little piece of thread that always hangs from the sweater of space-time. Pull it and the whole thing unravels.
+ - Consciousness is the creative element in the universe. Without it, nothing would appear.
+ - The self is fundamentally an illusion arising as a reflection of the soul in matter, much as a clear lake at midnight reflects the moon.
+ - That’s sort of the idea that if we, in attempting to explain away that which is experienced, the experience itself is diminished.
+ - We need all three senses of time – a sense of the future, a sense of the present, and a sense of the past – at all times to understand or experience what’s happening right now. It’s constantly unfolding that way.
+ - Reality gets created through acts of observation.
+ - Reality includes both the past and the future, but existence includes only the present and is totally dependent on the reality of past and future universes. Without them there is no existence now.
+ - When you start to try to understand everything in terms of words, the understanding of the words becomes the experience, and the experience gets lost.
+ - People who are creative often will spend hours doing something and come out of their period of creation and not even notice that hours have passed. In that sense, they’re able to time travel.
+ - You can’t blame the person for creating that illness for themselves, because it was a creation. If you could find out how you created it, you might be able to find out a way to let go.
+ - Asking yourself deeper questions opens up new ways of being in the world. It brings in a breath of fresh air. It makes life more joyful. The real trick to life is not to be in the know, but to be in the mystery.
+ - Learning to see love and to express that love is the purpose of living this life. What’s real has love at its heart; the universe is constructed from love, and that love is very much tied to our power of attention and imagination.
+ - I believe, or sense, that the universe has not been constructed from a purely mechanical, logical, rational point of view, but there is a magic afoot in the universe, that God can be looked at as a kind of a magician in which we get to perform tricks ourselves, without knowing that we’re doing so.
+ - The kinds of mystical experiences that I have had definitely convinced me that I was able to get out of time. I have had experiences, or brief glimpses, of being able to see the future and then come back into time, and then go into extraordinary realms of the past.
+ - I think a lot of psychological healing tends to work on that basis. We go into the unconscious to find what’s holding you back, so to speak, and I think there is an unconscious body image that may be responsible for the unhealing that’s taking place.
+ - Certainly in terms of technology, it’s made a tremendous impact, but medicine is still within the realm of what we might call “objective” science. It’s still part of the objective way of looking at the world.
+ - When I speak or when I offer ideas and explain how the universe seems to work from the point of view that I’ve understood, it seems to give people a lift – an unshackling or freeing.
+ - There is an ability to move and transform things. I think each human being has that power, and it’s often one that we are willing to relinquish to others.
+ - In very subtle ways, how we regard ourselves and others continually changes us into something new.
+ - I read that Buddha was able to see all of his past lives, and I realized the only way any of these people could do that is by being outside of time.
+ - It’s very frustrating if you’ve never had an experience and somebody comes up to you and says, “I’ve just been on a flying saucer.” Your tendency is to think, “Oh, this guy must be wacko, nuts, having an hallucination. None of that can be true because none of that has ever happened to me.”
+
+32 quotes

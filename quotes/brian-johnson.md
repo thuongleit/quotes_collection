@@ -1,0 +1,22 @@
+ - Live. Love. Smile. Hug. Laugh. Dream. Do. Create. Have fun. Be intense. Be audacious. Be unreasonable. Act impeccably. Breathe. Be you. Be different.
+ - A metallurgist is someone who can look at a platinum blonde and tell whether she’s virgin material or a common ore.
+ - Self actualization is the oxygen for the soul.
+ - Happiness isn’t some elusive treasure we chase after. It’s a state of being we need to PRACTICE.
+ - Follow Your Bliss. Not someone else’s idea of your bliss. Not what you think should be your bliss. Not what you think would impress the crowd or appease the family. Your BLISS. What truly gets you giddy.
+ - I have my 1973 Citroen DS 23 Pallas. I drive it all the time. It’s still the most beautiful shape in the world.
+ - Quit putting yourself in a little box by trying to live consistently with your past and explaining every little action you take. BE YOU. Fully. In this moment. Independent of what others may or may not ‘expect’ from you.
+ - Blackberry Smoke is a band that will never go hungry.
+ - Punk and all that was just an image that ripped people off. Johnny Rotten’s a wanker, and that’s all there is to it.
+ - The only people I have ever seen paint successfully, consistently, with great authority, unselfconsciously and without fear of failing were about four years old.
+ - All the other stuff without love? Not worth a whole lot. Love starts with ourselves and needs to be approached like anything else we want to master-with a lot of diligent studying and practicing!
+ - I’ve learned what works and what doesn’t, which gives me confidence.
+ - Where I lived, it was a cold mining place, a village called Dunston. The only time you saw a Rolls-Royce was when somebody died.
+ - If people have a passion for anything they tend to get quite good at it.
+ - People are famous for being famous and for nothing else. And good luck to them, because it lasts about a year and then they’re nothing again.
+ - Let the results be a by-product of you taking impeccable steps day-in and day-out.
+ - We see this as a test of their ability to face reality.
+ - Painting is so much more than the materials.
+ - When I was in school, I used to look out the window and see the big red double-deck buses driving by. It just looked so free.
+ - I used to have the Range Rover LR3, which I loved very, very much.
+
+20 quotes

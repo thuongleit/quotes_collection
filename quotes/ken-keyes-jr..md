@@ -1,0 +1,63 @@
+ - To be upset over what you don’t have is to waste what you do have.
+ - Everyone and everything around you is your teacher.
+ - Love everyone unconditionally, including yourself.
+ - You are not responsible for the programming you picked up in childhood. However, as an adult, you are one hundred percent responsible for fixing it.
+ - As we grow in higher consciousness, we discover that it is more important to be the right person then to find the right person.
+ - Giving up an addiction means re-programming that part of your brain that makes you restless and unhappy if a desire is not realized.
+ - Everything is a gift of the universe -even joy, anger, jealously, frustration, or separateness. Everything is perfect either for our growth or our enjoyment.
+ - You add to the suffering in the world when you take offense, just as much as you do when you give offense.
+ - The past is dead; The future is imaginary; Happiness can only be in the Eternal Now Moment.
+ - Life is warning you to get rid of an addiction every time you are emotionally uncomfortable in any way.
+ - I feel with loving compassion the problems of others without getting caught up emotionally in their predicaments that are offering them messages they need for their growth.
+ - I take full responsibility here and now for everything I experience, for it is my own programming that creates my actions and also influences the reactions of people around me.
+ - A loving person lives in a loving world. A hostile person lives in a hostile world.
+ - I am freeing myself from security, sensation and power addictions that make me try to forcefully control situations in my life and thus destroy my serenity and keeps me from loving myself and others.
+ - Upgrade your addictions to the status of preferences. Here’s the distinction between an addiction and a preference:.
+ - Whenever you’re unhappy, your emotions are telling you that the people or things around you are not conforming to your vision of the world, or the way you think things should be.
+ - I am constantly aware of which of the Seven Centres of Consciousness I am using and I feel my energy, perceptiveness, love and inner peace growing as I open all of the centres of consciousness.
+ - Once again, when you upgrade sensations from an addiction to a preference, you can enjoy things such as gourmet food and music, without having your happiness depend on them.
+ - You should always be aware that your head creates your world.
+ - I have everything I need to enjoy my here and now – unless I am letting my consciousness be dominated by demands and expectations based on the dead past or the imagined future.
+ - You stop viewing yourself as being “pushed around” by the world when you realize that only you can “push” yourself. To quote Buddha: “Nothing is upsetting you. You get upset because you are upsettable.”
+ - I am continually calming the restless scanning of my rational mind in order to perceive the finer energies that enable me to unitively merge with everything around me.
+ - The outside conditions of your life do not make you feel either secure or insecure. One person may feel secure with practically no money at all, while another may feel insecure with a million dollars in the bank. Your feelings of security or insecurity are due to your emotional programming.
+ - Watch your own body and mind, and the people and things surrounding you, from the deep, calm place inside of you. When you do that you’ll have insights as to what you need to do in order to flow with the river of life around you.
+ - Happiness is experienced when your life gives you what you are willing to accept.
+ - Expand your love, your consciousness, and your loving compassion by experiencing everything that everyone does or says as though you had done or said it.
+ - All the study and effort toward higher consciousness can be eliminated if we do but one thing; Love it All.
+ - We always have enough to be happy if we are enjoying what we do have...
+ - We are not the personalities that our egos are so valiantly defending. Our personalities are simply the result of our current programming.
+ - To see your drama clearly is to be liberated from it.
+ - By tuning in to the ocean of loving energy around you, you can have far more security, enjoyable sensations, effectiveness, and love than you would ever need in order to live a continuously beautiful life.
+ - All there is in your life is the eternal now moment – and your experience of this moment is created by the programming in your head.
+ - I open myself genuinely to all people by being willing to fully communicate my deepest feelings, since hiding in any degree keep me stuck in my illusion of separateness from other people.
+ - You can always create your own experience of life in a beautiful and enjoyable way if you keep your love turned on within you- regardless of what other people say or do.
+ - Happiness happens when your consciousness is not dominated by addictions and demands – and you experience life as a parade of preferences.
+ - When a tire blows, you simply accept that this is the here and now reality of your life. You’ve lost the tire, but that doesn’t mean that you have to lose your peace and serenity. Now, serenely, begin to take the necessary steps in order the change the tire.
+ - Whenever you feel upset, take full responsibility for the emotions that you are experiencing. Get to work as quickly as possible identifying the programming, or the addiction, that is leading you to reject what other people are saying or doing.
+ - Happiness does not lie in getting people and things outside of you lined up exactly to suit your desires.
+ - No one that ever lived has ever had enough power, prestige, or knowledge to overcome the basic condition of all life – you win some and you lose some.
+ - View others as unfolding beings in their journey toward higher consciousness.
+ - Keep in mind that you don’t need to be addicted to money in order to acquire it. You can prefer to have money; you will then be able to enjoy whatever money you receive, but your happiness will not be contingent on the size of your bank account.
+ - Conscious people always have a choice of whether to try to modify the actions of people around them or to change their response to the incoming stimuli.
+ - Be aware that the difference between heaven and earth is not so much altitude but attitude.
+ - The only real problem in your life is how you’re using your mind.
+ - How soon will you realize that the only thing you don’t have is the direct experience that there’s nothing you need that you don’t have?
+ - I act freely when I am tuned in, centred and loving, but if possible, I avoid acting when I am emotionally upset and depriving myself of the wisdom that flows from love and expanded consciousness.
+ - I am discovering how my consciousness dominating addictions create my illusory version of the changing world of people and situations around me.
+ - Acceptance doesn’t mean that you’ve resigned yourself to live the rest of your life with a particular person, or in a particular situation. It just means that you won’t cause yourself emotional discomfort because of the way things are in this moment.
+ - We see things not as they are, but as we are. Your addictions distort how you process the enormous flow of information that is constantly flooding in through all of your sensory inputs.
+ - I am perceiving everyone, including myself, as an awakening being who is here to claim his or her birthright to the higher consciousness planes of unconditional love and oneness.
+ - To be right, be willing to admit you are wrong.
+ - Think of the world as a loving place that is designed to give you everything that you need.
+ - Allow yourself emotion-backed demands only for physical necessities such as air to breathe, food if starving, and shelter if freezing.
+ - As the watcher of the screen, you are perfect. The movie that is playing on the screen might be horrendous, but you are not the movie. You are what is watching the movie.
+ - We’ve got to convince our egos and our minds that if we want to live happy lives, love is more important than anything else!
+ - It is beautiful to acquire knowledge, but it is misleading to expect it to bring us peace, love and happiness.
+ - Serenity is the end – and serenity is also the means – by which you live effectively.
+ - You can make really effective changes when your consciousness is free of emotional turmoil.
+ - It is only your mental habits and your selected memories of how you think things are that keep you from moulding things in your life in a more harmonious way.
+ - Even when we get what we addictively want, our wanting to keep things that way automatically creates a new addiction.
+ - If you want those around you to act in a more loving and conscious manner, act in a way that helps them to do so.
+
+61 quotes

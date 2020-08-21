@@ -1,0 +1,36 @@
+ - One day I shall burst my bud of calm and blossom into hysteria.
+ - Poetry is a language in which man explores his own amazement.
+ - Indulgences, not fulfillment, is what the world Permits us.
+ - Coffee in England is just toasted milk.
+ - How can a man learn navigation Where there’s no rudder?
+ - Life is a hypocrite if I can’t live the way it moves me.
+ - Equality is a mortuary word.
+ - The moon is nothing But a circumambulating aphrodisiac Divinely subsidized to provoke the world Into a rising birth-rate.
+ - Between our birth and death we may touch understanding, As a moth brushes a window with its wing.
+ - In our plain defects we already know the brotherhood of man.
+ - Comedy is an escape, not from truth but from despair; a narrow escape into faith.
+ - We must each find our separate meaning in the persuasion of our days until we meet in the meaning of the world.
+ - The dark is light enough.
+ - In tragedy every moment is eternity; in comedy, eternity is a moment.
+ - Where in this small-talking world can I find A longitude with no platitude?
+ - What is madness To those who only observe, is often wisdom To those to whom it happens.
+ - Imagination is the wide-open eye which leads us always to see truth more vividly.
+ - Life itself is the real and most miraculous miracle of all. If one had never before seen a human hand and were suddenly presented for the first time with this strange and wonderful thing, what a miracle, what a magnificently shocking and inexplicable and mysterious thing it would be.
+ - There may always be another reality to make fiction of the truth we think we’ve arrived at.
+ - How nature loves the incomplete. She knows If she drew a conclusion it would finish her.
+ - If we could wake each morning with no memory of living before we went to sleep, we might arrive at a faultless day.
+ - The best Thing we can do is to make wherever we’re lost in Look as much like home as we can.
+ - An artist’s sensitivity to criticism is, at least in part, an effort to keep unimpaired the zest, or confidence, or arrogance, which he needs to make creation possible; or an instinct to climb through his problems in his own way as he should, and must.
+ - Day’s work is still to do, Whatever the day’s doom.
+ - The lines marking a penalty area are a disgrace to the playing fields of a public school.
+ - Poetry has the virtue of being able to say twice as much as prose in half the time, and the drawback, if you do not give it your full attention, of seeming to say half as much in twice the time.
+ - It’s always our touches of vanity that manage to betray us.
+ - The skirts of the gods Drag in our mud. We feel the touch And take it to be a kiss.
+ - It is the individual man in his individual freedom who can mature with his warm spirit the unripe world.
+ - I travel light; as light, that is, as a man can travel who will still carry his body around because of its sentimental value.
+ - My trouble is I’m the sort of writer who only finds out what he’s getting at by the time he’s got to the end of it.
+ - How can we be scrupulous In a life which, from birth onwards, is so determined To wring us dry of any serenity at all?
+ - Who apart from ourselves, can see any difference between our victories and our defeats?
+ - In my plays I want to look at life at the commonplace of existence as if we had just turned a corner and run into it for the first time.
+
+34 quotes

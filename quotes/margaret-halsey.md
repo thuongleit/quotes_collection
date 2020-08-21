@@ -1,0 +1,58 @@
+ - Example is better than precept.
+ - In a business society, the emotional economy is an economy of scarcity.
+ - The people who say you are not facing reality actually mean that you are not facing their idea of reality.
+ - Identity is not found, the way Pharaoh’s daughter found Moses in the bulrushes. Identity is built.
+ - Success does not implant bad characteristics in people. It merely steps up the growth rate of the bad characteristics they already had.
+ - In practice, there is nothing especially dramatic in people getting along well together.
+ - Reality is above all else a variable, and nobody is qualified to say that he or she knows exactly what it is. As a matter of fact, with a firm enough commitment, you can sometimes create a reality which did not exist before.
+ - What I know about money, I learned the hard way – by having had it.
+ - Not being one to calculate or look ahead, I had not stopped to think, when boys started paying attention to me, that the cup might be dashed from my lips, though experience should have taught me that dashing cups from lips was the way Victorian parents got most of their exercise.
+ - The attitude of the English towards English history reminds one a good deal of the attitude of a Hollywood director towards love.
+ - It is impossible to betray another man’s child – for whatever reason – without also betraying one’s own. To do less than justice to another man’s child, no matter who that man is, is to impair by that much the chances one’s own children have for a life of meaning and purpose.
+ - Bulldogs have been known to fall on their swords when confronted by my superior tenacity.
+ - The stress laid on upward social mobility in the United States has tended to obscure the fact that there can be more than one kind of mobility and more than one direction in which it can go. There can be ethical mobility as well as financial, and it can go down as well as up.
+ - We know of our own knowledge that we are human beings, and, as such, imperfect. But we are bathed by the communications industry in a ceaseless tide of inhuman, impossible perfection.
+ - The great disadvantage of being in a rat race is that it is humiliating. The competitors in a rat race are by definition rodents.
+ - Folklore is a collection of ridiculous notions held by other people, but not by you and me.
+ - Working with children is the easiest part of educating for democracy, because children are still undefeated and have no stake in being prejudiced.
+ - My knees could have been stirred with a spoon.
+ - Whatever the rest of the world thinks of the English gentleman, the English lady regards him apprehensively as something between God and a goat and equally formidable on both scores.
+ - Equality is an unconscious assumption, and if you feel you are treating someone as an equal, then you are not doing it.
+ - Every time I think I’ve touched bottom as far as boredom is concerned, new vistas of ennui open up.
+ - One of the less dismaying aspects of race relations in the United States is that their improvement is not a matter of a few people having a great deal of courage. It is a matter of a great many people having just a little courage.
+ - The soup, thin and dark and utterly savorless, tasted as if it had been drained out of the umbrella stand.
+ - English life is seventh-eighths below the surface, like an iceberg, and living in England for a year constitutes merely an introduction to an introduction to an introduction to it.
+ - Passionately prejudiced people always turn out, under scrutiny, to be people who cannot get along on a footing of equality with anyone...
+ - The English never smash in a face. They merely refrain from asking it to dinner.
+ - Life itself, however, flows and is sequential and punishes those who try to compartmentalize it.
+ - American business, while it does not frown on helping the human race, frowns on people who start right in helping the human race without first proving that they can sell things to it.
+ - He must have had a magnificent build before his stomach went in for a career of its own.
+ - Father’s snoring grows to sound increasingly like a vacuum cleaner in heat.
+ - Englishwomen’s shoes look as if they had been made by someone who had often heard shoes described, but had never seen any...
+ - I was well warned about English food, so it did not surprise me, but I do wonder sometimes, how they ever manage to prise it up long enough to get a plate under it.
+ - I would have felt more comfortable on a girder fifty floors above the street, catching white-hot rivets in a pail.
+ - The only way not to worry about the race problem is to be doing something about it yourself. When you are, natural human vanity makes you feel that now the thing is in good hands.
+ - A person may be totally unimaginative and have the social vision of a mole, and we still call him a decent man...
+ - I am living with a rising generation which talks like people coming out of ether.
+ - The business society is interested in training its citizens to make money, and, in this objective, it is often successful. Many of them do make money, and the ones who do not obligingly regard themselves as failures who have wasted the precious gift of life.
+ - It is possible to eat English piecrust, whatever you may think at first. The English eat it, and when they stand up and walk away, they are hardly bent over at all.
+ - I was so embarrassed I could feel my nerves curling like bacon over a hot fire.
+ - The only men who can turn my blood stream into a condition resembling heavy surf are good-looking heels with characters as intricately unpleasant as the sewers of Paris. With decent and honorable gents, I come all over Platonic. Was ever a woman so perverse and wrongheaded?
+ - Some persons talk simply because they think sound is more manageable than silence.
+ - In some circumstances, the refusal to be defeated is a refusal to be educated.
+ - Listening to Britons dining out is like watching people play first-class tennis with imaginary balls.
+ - Whenever I dwell for any length of time on my own shortcomings, they gradually begin to seem mild, harmless, rather engaging little things, not at all like the staring defects in other people’s characters.
+ - Infants, I note with envy, are receptive to enjoyment in a degree not attained by adults this side of the new Jerusalem.
+ - Living in England, provincial England, must be like being married to a stupid but exquisitely beautiful wife.
+ - If you embark on a project as magnificent in concept as the brotherhood of man, it is foolish not to anticipate difficulties of proportionate magnificence.
+ - How close beneath the surface, even in the happiest family, is the chronic grievance! I sometimes think that tinderboxes are inert and powder kegs mere talcum compared to the explosive possibilities in the most commoplace domestic situation.
+ - Employed as I had been employing it, liquor is a fixative of old patterns...
+ - The important thing about human beings is not what they do, but why they do it.
+ - There are dozens of ways of failing to make money. It is one thing to fail to make money because your single talent happens to be a flair amounting to genius for translating the plays of Aristophanes. It is quite another thing to fail to make money because you are black, or a child, or a woman.
+ - A lady getting a missing belt back from the cleaner couldn’t have been more surprised and pleased...
+ - Humorists are not humorous twenty-four hours a day. In fact, when you get to know them well, they are often not humorous at all. They tend to be hypersensitive, taut, neurotic creatures driven by God know what obscure compulsion to earn their living the hard way.
+ - The real nature of an ethic is that it does not become an ethic unless and until it goes into action.
+ - From a purely tourist standpoint, Oxford is overpowering, being so replete with architecture and history and anecdote that the visitor’s mind feels dribbling and helpless, as with an over-large mouthful of nougat.
+ - Democracy makes many taxing demands on its practitioners, but suspension of the intelligence is not one of them.
+
+56 quotes

@@ -1,0 +1,36 @@
+ - Film lovers are sick people.
+ - Three films a day, three books a week and records of great music would be enough to make me happy to the day I die.
+ - The film of tomorrow will not be directed by civil servants of the camera, but by artists for whom shooting a film constitutes a wonderful and thrilling adventure.
+ - I have always preferred the reflection of the life to life itself.
+ - When I begin a film, I want to make a great film. Halfway through, I just hope to finish the film.
+ - Life has more imagination than we do.
+ - I demand that a film express either the joy of making cinema or the agony of making cinema. I am not at all interested in anything in between.
+ - Airing one’s dirty linen never makes for a masterpiece.
+ - The man who thinks he can do without the world is indeed mistaken; but the man who thinks the world cannot do without him is mistaken even worse.
+ - There are no good and bad movies, only good and bad directors.
+ - I love the way she projects two facets: a visible persona and a subterranean one. She keeps her thoughts to herself; she seems to suggest that her secret, inner life is at least as significant as the appearance she gives.
+ - The most beautiful thing I have ever seen in a movie theatre is to go down to the front and turn around, and look at all the uplifted faces, the light from the screen reflected upon them.
+ - I prefer to be busy all day long, and when you work for someone else, you’re not busy enough.
+ - Taste is a result of a thousand distastes.
+ - When humor can be made to alternate with melancholy, one has a success, but when the same things are funny and melancholic at the same time, it’s just wonderful.
+ - Hitchcock loves to be misunderstood, because he has based his whole life around misunderstandings.
+ - All film directors, whether famous or obscure, regard themselves as misunderstood or underrated. Because of that, they all lie. They’re obliged to overstate their own importance.
+ - We often forgive those who bore us, but never those whom we bore.
+ - A film is a boat which is always on the point of sinking-it always tends to break up as you go along and drag you under with it.
+ - I am often asked at what point in my love affair with films I began to want to be a director or a critic. Truthfully, I don’t know. All I know is that I wanted to get closer and closer to films.
+ - Is the cinema more important than life?
+ - I’ve always had the impression that real militants are like cleaning women, doing a thankless, daily but necessary job.
+ - At first, I wasn’t sure whether I’d be a critic or a filmmaker, but I knew it would be something like that.
+ - In love, women are professionals, men are amateurs.
+ - Although men flatter themselves with their great actions, they are not so often the result of a great design as of chance.
+ - I warmly recommend to you the films of poets.
+ - Some day I’ll make a film that critics will like. When I have money to waste.
+ - The film of tomorrow will resemble the person who made it, and the number of spectators will be proportional to the number of friends the director has.
+ - Everyone who works in the domain of fiction is a bit crazy. The problem is to render this craziness interesting.
+ - What switched me to films was the flood of American pictures into Paris after the Liberation.
+ - During the war, I saw many films that made me fall in love with the cinema.
+ - I’d skip school regularly to see movies – even in the morning, in the small Parisian theaters that opened early.
+ - An actor is never so great as when he reminds you of an animal – falling like a cat, lying like a dog, moving like a fox.
+ - I had thought of writing, actually, and that later on I’d be a novelist.
+
+34 quotes

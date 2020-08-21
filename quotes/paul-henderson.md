@@ -1,0 +1,24 @@
+ - Take one day at a time. Allow yourself to change.
+ - I’m so proud to be Canadian. I’ve been to 58 countries, and they’re wonderful countries, but Canada is the best.
+ - My philosophy, don’t let cancer ruin your life. You get up every day and use what you have and what time you have left.
+ - Contentment does not come from achievement. It comes from a relationship with the Lord.
+ - I don’t eat fast food any more, not since I got cancer.
+ - I’m a very, very proud Canadian, and having the privilege to represent my country on the international level was the highlight of my 18-year career.
+ - I always thought Christians were the weak people. When you can’t make it in life then you have to ask God. I really prided myself on being a self-made man.
+ - I get up every morning and it’s going to be a great day. You never know when it’s going to be over so I refuse to have a bad day.
+ - After I started to understand the spiritual dimension of life, I understood the responsibilities you have as a husband, a father, a friend and a hockey player.
+ - The Bible says not to worry so I don’t. I just get up in the morning and ask God for help to get through the day. If tomorrow shows up then I’ll take the same shot tomorrow.
+ - Pride is about the ugliest trait somebody can have.
+ - Cancer is cancer. I’ve got a great life if I can just stay alive.
+ - There is no wrinkle-free life.
+ - My wife and I really enjoy a glass of red wine. We’re too old to drink cheap wine, and we don’t.
+ - My philosophy is I take today, live it the best way I can and if I wake up I’ll take another shot at tomorrow.
+ - The Lord expects us to enjoy our lives. He says there will be some brutal times, but we shouldn’t get all bent out of shape about it.
+ - When you have hope, and you have peace, you can handle anything.
+ - Canadians don’t have a very big political lever, we’re nice guys.
+ - I didn’t handle fame very well at first. I got a little resentful.
+ - In a war, you do whatever you have to do.
+ - I’m pretty transparent and have no problem sharing my weaknesses.
+ - When fairy tales are written in the west, they’re known as folklore. In the east, fairy tales are called religions.
+
+22 quotes

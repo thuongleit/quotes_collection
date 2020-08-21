@@ -1,0 +1,32 @@
+ - Medicine is the study of disease and what causes man to die. Chiropractic is the study of health and what causes man to live.
+ - While other professions are concerned with changing the environment to suit the weakened body, chiropractic is concerned with strengthening the body to suit the environment.
+ - There is no effect without a cause. Chiropractors adjust causes. Others treat effects.
+ - Nature needs no help, just no interference.
+ - We never know how far reaching something we may think, say or do today will affect the lives of millions tomorrow.
+ - Healing is an inside job.
+ - The preservation of health is easier than the cure for disease.
+ - Chiropractic is health insurance. Premiums small. Dividends large!
+ - Have you more faith in a spoonful of medicine than in the power that animates the living world?
+ - It is the path of least resistance that makes rivers and men crooked.
+ - Get the big idea and all else follows.
+ - How do you make a dimmed light bright again? Remove the interference. How do you increase health in a dis-eased person? The same way!
+ - For you have in your possession a sacred trust. Guard it well.
+ - Every organ in your body is connected to the one under your hat.
+ - All the drugs in the world cannot adjust a subluxated vertebrae.
+ - We get sick because of something inside going wrong! We get well because of something inside going right!
+ - Innate must flow fully, freely, naturally; to, through, and into the educated brain to produce what education calls greatness.
+ - Knowledge is knowing a fact, wisdom is knowing what to do with that fact.
+ - To take in a new idea you must destroy the old, let go of old opinions, to observe and conceive new thoughts. To learn is but to change your opinion.
+ - Medical men have searched the world for remedies, desiring an antidote. Chiropractors find the cause in the person ailing.
+ - Miracles are manifestations for which science has no definition, no analysis.
+ - The love you give away is the love you keep.
+ - Make your decision for what is right not expedient, and wash your mind of all compromise.
+ - When man violates man’s laws, we send him to jail and point the finger of scorn at him. When he violates nature’s laws, we send him to a hospital, give him flowers, and feel sorry for him.
+ - It takes 65 muscles to frown and 13 to make a smile. Why work overtime?
+ - Smile and smile often. Smile regularly. Smile when you don’t feel like it and you will feel like it when you smile.
+ - I will sell Chiropractic, serve Chiropractic, and save Chiropractic if it will take me twenty lifetimes to do it. I will promote it within the law, without the law, in keeping with the law or against the law in order to get sick people well and keep the well from getting sick.
+ - In the future, Chiropractic will be valued for its preventative qualities as much as for relieving and adjusting the cause of ailments.
+ - The master of your body did not run off and leave you masterless.
+ - If the ‘germ theory of disease’ were correct, there’d be no one living to believe it.
+
+30 quotes

@@ -1,0 +1,92 @@
+ - The past is never where you think you left it.
+ - Be respectful of words. They mean something.
+ - Don’t sidestep suffering. You have to go through it to get where you’re going.
+ - Death always leaves one singer to mourn.
+ - What we need now is endless courage.
+ - You waste life when you waste good food.
+ - Death is loneliness in its purest form...
+ - I want to go and see the world. I want to know the world like the palm of my hand.
+ - If I didn’t know the ending of a story, I wouldn’t begin. I always write my last lines, my last paragraph first, and then I go back and work towards it. I know where I’m going. I know what my goal is. And how I get there is God’s grace.
+ - Physical infidelity is the signal, the notice given, that all fidelities are undermined.
+ - I love to praise what I love, and I won’t for a minute believe that love is blind – indeed, it gives clearness without sharpness, and surely that is the best light in which to look at anything.
+ - There is no such thing as an exact synonym and no such thing as an unmixed motive.
+ - Trust your happiness and the richness of your life at this moment. It is as true and as much yours as anything else that ever happened to you.
+ - Life is a game of piquet played in a bramble bush in very bad weather...
+ - Childhood is the fiery furnace in which we are melted down to essentials and that essential shaped for good.
+ - But the great leveler, Death: not even the gods can defend a man, not even one they love, that day when fate takes hold and lays him out at last.
+ - Love must be learned and learned again; There is no end.
+ - Freedom, remember, is not the same as liberty.
+ - Could she fall so low? No, there were limits, and she believed she still knew where some of them were.
+ - It’s a man’s world, and you men can have it.
+ - In the arts, you simply cannot secure your bread and your freedom of action too. You cannot be a hostile critic of society and expect society to feed you regularly.
+ - Human life itself may be almost pure chaos, but the work of the artist is to take these handfuls of confusion and disparate things, things that seem to be irreconcilable, and put them together in a frame to give them some kind of shape and meaning.
+ - I get so tired of moral bookkeeping.
+ - The thing is not to follow a pattern. Follow your own pattern of feeling and thought. The thing is to accept your own life and not try to live someone else’s life. Look, the thumbprint is not like any other, and the thumbprint is what you must go by.
+ - Defeat in this world is no disgrace if you fought well and fought for the right thing.
+ - Writing, in any sense that matters, cannot be taught. It can only be learned by each separate one of us in his own way, by the use of his own powers of imagination and perception, the ability to learn the lessons he has set for himself.
+ - All life worth living is difficult, nobody promised us happiness; it is not a commodity you have earned, or shall ever earn. It is a by-product of brave living, and it never comes in the form we expect, or at the season we hoped for, or as the result of our planning for it...
+ - A story is like something you wind out of yourself. Like a spider, it is a web you weave, and you love your story like a child.
+ - Nothing is mine, I have only nothing but it is enough, it is beautiful and it is all mine. Do I even walk about in my own skin or is it something I have borrowed to spare my modesty?
+ - Education must be taken out of the hands of rich illiterates, third rate politicians, and put where it belongs: in the care of scholars. At present the whole University system is rotten to the core, and an appalling waste of time, energy and money...
+ - The greatest art comes out of warmth and conviction and deep feeling, but then, very few people, even geniuses, have all that.
+ - If you are required to kill someone today, on the promise of a political leader that someone else shall live in peace tomorrow, believe me, you are not only a double murderer, you are a suicide, too.
+ - Writing does not exclude the full life; it demands it.
+ - I always knew one thing, that life is made bearable and possible and liveable by the relations of one human being to another, the individual love and gentleness between persons, or in any case, the unbreakable bond that grows and fastens lives together in all sorts of mysterious ways...
+ - You do not create a style. You work, and develop yourself; your style is an emanation from your own being.
+ - Each generation must get on the same old merry-go-round, only disguised in a fresh coat of paint.
+ - Freedom is a dangerous intoxicant and very few people can tolerate it in any quantity.
+ - Be bold, and try not to fall in love with your faults. Don’t be so afraid of giving yourself away, either, for if yo write, you must. And if you can’t face that, better not write.
+ - I think I’ve only spent about ten percent of my energies on writing. The other ninety percent went to keeping my head above water.
+ - I think joy is just as instructive as pain, and I like it better. I never meant to suffer any more than I could help; my nature was meant for happiness, a daylight art and living.
+ - We pity people too often for the wrong reasons.
+ - I don’t believe in intuition. When you get sudden flashes of perception, it is just the brain working faster than usual. But you’ve been getting ready to know it for a long time, and when it comes, you feel you’ve known it always.
+ - I was right not to be afraid of any thief but myself, who will end by leaving me nothing.
+ - It is my firm belief that all our lives we are preparing to be somebody or something, even if we don’t do it consciously. And the time comes one morning when you wake up and find that you have become irrevocably what you were preparing all this time to be.
+ - A novel is really like a symphony where instrument after instrument has to come in at its own time, and no other.
+ - I have a great deal of religious symbolism in my stories because I have a very deep sense of religion and also I have a religious training. And I suppose you don’t say, ‘I’m going to have the flowering judas tree stand for betrayal,’ but of course it does.
+ - I’m not afraid of life and I’m not afraid of death: Dying’s the bore.
+ - It is such a relief to be told the truth.
+ - I always write a story in one sitting.
+ - Religion put claws on Aunt Sally and gave her a post to whet them on.
+ - There are only a few bits of absolute knowledge in the world, people can learn only one or two fundamental facts about each other, the rest is decoration and prejudice.
+ - I specialize in what the French call la petite histoire. I am interested in the individual thumbprint.
+ - I have not much interest in anyone’s personal history after the tenth year, not even my own. Whatever one was going to be was all prepared before that.
+ - First impressions are often signals from the deep that we should credit oftener than we do...
+ - God does not know whether a skin is black or white, He sees only souls.
+ - We do not run from the troubles and dangers that are truly ours, and it is better to learn what they are earlier than later, and if we don’t run from the others, we are fools.
+ - Evil is dull, that is the worst of it...
+ - I’ve been called a stylist until I really could tear my hair out. And I simply don’t believe in style. The style is you.
+ - Most people won’t realise that writing is a craft. You have to take your apprenticeship in it like anything else.
+ - The nose is surely one of the most impressionable, if not positively erotic, of all our unruly members.
+ - You are right, none of us live enough, and sometimes I think it is because we mistake hurrah and hullabaloo for experience, we get a sock in the eye and think it is a broken heart...
+ - Those who give the orders are not the ones to die The people who are doing the work and the fighting and the dying, and those who are doing the talking, are not all the same people.
+ - I do not understand the world, but I watch it’s progress.
+ - They had both noticed that a life of dissipation sometimes gave to a face the look of gaunt suffering spirituality that a life of asceticism was supposed to give and quite often did not.
+ - All the old houses that I knew when I was a child were full of books, bought generation after generation by members of the family. Nobody told you to read this or not to read that.
+ - We are born knowing death.
+ - Art is a vocation, as much as anything in this world. For the real artist, it is the most natural thing in the world, not as necessary as air and water, perhaps, but as food and water. But we really do lead almost a monastic life, you know; to follow it you very often have to give up something.
+ - I will never again attempt to tell any young person what to do – the really gifted don’t need advice and the others can’t take it.
+ - No man can be explained by his personal history, least of all a poet.
+ - Perhaps the habit which distinguishes civilized people from others is that of discussion, exchange of opinion and ideas, the ability to differ without quarrelling, to say what you have to say civilly and then to listen civilly to another speaker.
+ - We have this mistaken notion that everybody in the world has to go to college. The colleges are already crowded with people who never in this world will absorb more than a rudimentary education, and we dilute everything to meet this low standard.
+ - The real sin against life is to abuse and destroy beauty, even one’s own even more, one’s own, for that has been put in our care and we are responsible for its well-being.
+ - Untrained minds have always been a nuisance to the military police of orthodoxy. God-intoxicated mystics and untidy saints with only a white blaze of divine love where their minds should have been, are perpetually creating almost as much disorder within the law as outside it.
+ - The human heart is not yet so corroded that it can read off the extinction of these two men without a shock to the very roots of its belief in justice and humanity.
+ - The very thing about people that makes the human race interesting is also the thing that makes it so hard to get anything done without the most horrible confusions: no two people think exactly the same way about anything...
+ - There are so many things that we are capable of, that we could be or do. The potentialities are so great that we never, any of us, are more than one-fourth fulfilled.
+ - It is as hard to find a neutral critic as it is a neutral country in time of war. I suppose if a critic were neutral, he wouldn’t trouble to write anything.
+ - Eventually women will learn there’s no such thing as freedom. Their husbands are just as fastened to the deck as they are. Men get onto a treadmill and never got off.
+ - Your mind outwears all sorts of things you may set your heart upon; you can enjoy it when all other things are taken away.
+ - Two-thirds of my energies go in trying to save one-third for work.
+ - I shall try to tell the truth, but the result will be fiction.
+ - Life comes first, an art not rooted in human experience is not worth a damn, but different kinds of minds have different kinds of experience, and all I ask of any man is validity; and there should be place for every type and kind of mind.
+ - I look upon literature as an art, and I believe that if you misuse it or abuse it, it will leave you. It is not a thing that you can nail down and use as you want. You have to let it use you, too.
+ - Even St. Teresa said, “I can pray better when I’m comfortable,” and she refused to wear her haircloth shirt or starve herself. I don’t think living in cellars and starving is better for an artist than it is for anybody else.
+ - Lovemaking surely must be, for human beings at our present state of development, one of the more private enterprises. Who would want a witness to that entire self-abandonment and helplessness?
+ - You can’t write about people out of textbooks, and you can’t use jargon. You have to speak clearly and simply and purely in a language that a six-year-old child can understand; and yet have the meanings and the overtones of language, and the implications, that appeal to the highest intelligence.
+ - There has been a marvelous joyous carnival of mourning for Edith Piaf and Jean Coctaeau, and it was real! They died as they had lived, with style and grace and their proper eccentricity; and Paris loves anybody who can live anarchically and be delightful entertainment at the same time. So do I.
+ - I work whenever I’m let.
+ - Death cancels our engagements, but it does not affect the consequences of our acts in life.
+ - One of the marks of a gift is to have the courage of it.
+
+90 quotes

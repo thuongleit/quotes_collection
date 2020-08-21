@@ -1,0 +1,34 @@
+ - True self-discovery begins where your comfort zone ends.
+ - Make your life a story worth telling. You only get one shot at this existence, and one day when you’re gone the most important thing you’ll leave behind is the legacy of the life you lived. Make sure you make it a story you’re proud to have others tell.
+ - For any movement to gain momentum, it must start with a small action.
+ - Big Dreams start with small unreasonable acts.
+ - That’s when the magic happens- when everyone else is asleep and you’re awake thinking about the world as it is, and the world as it could be. Make the most of those moments.
+ - Speak the language of the person you want to become.
+ - I realized that even big waves start with small ripples.
+ - You never realize how much you value something until you are faced with the prospect of losing it.
+ - What can a pencil do for all of us? Amazing things. It can write transcendent poetry, uplifting music, or life-changing equations; it can sketch the future, give life to untold beauty, and communicate the full-force of our love and aspirations.
+ - We have the ability to provide quality education to every child on earth right now.
+ - Tourists see, and travelers seek.
+ - It is the local community that needs to own the commitment to education.
+ - We have every resource necessary to provide access to education for every child on the planet; we just need to commit to enabling it.
+ - I’m not a non-profit person. I think of myself as an entrepreneur who wants to work on global education.
+ - Creating something new is easy, creating something that lasts is the challenge.
+ - In those moments when priorities clash always stay guided by your values, not your perceived necessities.
+ - When it comes to fundraising for a social enterprise, if you are pursuing your true passion, you’ll learn to become great at your craft because you’ll care so much about perfecting the skills necessary to make that dream a reality.
+ - In moments of uncertainty, when you must chose between two paths, allowing yourself to be overcome by either the fear of failure or the dimly lit light of possibility, immerse yourself in the life you would be most proud to live.
+ - For any movement to gain momentum, it must start with a small action. This action becomes multiplied by the masses, and is made tangible when leadership changes course due to the weight of the movement’s voice.
+ - It always surprises me when donors who operate successful businesses assume that just building a school structure means that a community now has access to education. When creating a business, does renting an office space now mean that you’re producing goods, training staff and generating revenues?
+ - The single most powerful element of youth is that you don’t have the life experiences to know what can’t be done.
+ - The most abundant resources that we possess amongst the 1.5 million nonprofits in the United States are passion and knowledge, yet our most scarce resource is collaboration.
+ - It’s the presence of others who are smarter, kinder, wiser, and different from you that enables you to evolve. Those are the people to surround yourself with at all times.
+ - Every person has a revolution beating within his or her chest.
+ - A major celebrity is a major brand, and major brands pick very critically what other brands they’re going to associate with. So an A-list celebrity usually picks an A-list brand.
+ - Your life should be a story you are excited to tell.
+ - Made with Pencils is grounded in the creativity of a few, propelled by the financial support of many, and most importantly, it’s empowering generations to come. A simple idea, a heartfelt desire, and a world of possibility. A pencil, a promise, and a dream.
+ - I could enjoy the life that I had by virtue of the educational attainment that my grandparents and parents had pursued. Education was always incredibly valued in our family.
+ - Never take no from somebody who cannot say yes.
+ - I looked around and acknowledged that what you see around you is proof of what exists within you.
+ - Your twenties are the time to both accept and fight your way into the person you’re destined to become.
+ - I understood that I might fail, but I wouldn’t let it happen because I changed my compass along the way.
+
+32 quotes

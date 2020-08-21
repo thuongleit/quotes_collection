@@ -1,0 +1,25 @@
+ - Vocabulary is a matter of word-building as well as word-using.
+ - Language changes and moves in a different direction evolving all the time. Where a lot of people see deterioration, I see expressive development.
+ - A feature of English that makes it different compared with all other languages is its global spread.
+ - English has been this vacuum cleaner of a language, because of its history meeting up with the Romans and then the Danes, the Vikings and then the French and then the Renaissance with all the Latin and Greek and Hebrew in the background.
+ - Language itself changes slowly but the internet has speeded up the process of those changes so you notice them more quickly.
+ - Texting has added a new dimension to language use, but its long-term impact is negligible. It is not a disaster.
+ - The story of English spelling is the story of thousands of people – some well-known, most totally unknown – who left a permanent linguistic fingerprint on our orthography.
+ - You don’t talk to a linguist without having what you say taken down and used in evidence against you at some point in time.
+ - Word books traditionally focus on unusual and quirky items. They tend to ignore the words that provide the skeleton of the language, without which it would fall apart, such as ‘and’ and ‘what,’ or words that provide structure to our conversation, such as ’hello.
+ - Text messaging is just the most recent focus of people’s anxiety; what people are really worried about is a new generation gaining control of what they see as their language.
+ - Ever since the arrival of printing – thought to be the invention of the devil because it would put false opinions into people’s minds – people have been arguing that new technology would have disastrous consequences for language.
+ - At any one time language is a kaleidoscope of styles, genres and dialects.
+ - Sending a message on a mobile phone is not the most natural of ways to communicate. The keypad isn’t linguistically sensible.
+ - In effect we are, bending and breaking the rules of the language. And if someone were to ask why we do it, the answer is simply: for fun.
+ - Swearing makes an excellent relief mechanism.
+ - Language has no independent existence apart from the people who use it. It is not an end in itself; it is a means to an end of understanding who you are and what society is like.
+ - Although many texters enjoy breaking linguistic rules, they also know they need to be understood.
+ - Anyone interested in language ends up writing about the sociological issues around it.
+ - As I get older and I get a few more years experience I become more like Dad, you know, King Lear.
+ - Academics don’t normally manage to alter people’s way of thinking through their strength of argument.
+ - It took three years to put Shakespeare’s words together, there were a lot of words to be studied and a lot of words to be sorted out, and it proved to be a major project.
+ - Spellings are made by people. Dictionaries – eventually – reflect popular choices.
+ - Research shows that those kids who text frequently are more likely to be the most literate and the best spellers, because you have to know how to manipulate language.
+
+23 quotes

@@ -1,0 +1,55 @@
+ - You don’t have to appreciate me – I hope you underestimate me. That way, when I have a good game, it’ll hit you even harder.
+ - Leaders set the tone for their peers. Peers look up to them and say, ‘They’re doing it, so I’m doing it.’
+ - I vote. People died for our right to vote and I can’t let that go.
+ - Sometimes you surprise yourself with what you do under pressure.
+ - It’s all about concentration and repetition. That’s all it is.
+ - If you want to win, you have to sacrifice and do what makes the team work most efficiently.
+ - I’m my own biggest critic, and the only way I’m going to improve is to see what I was doing wrong.
+ - Money is not an issue to me. My mother always tells me, money, it comes and it goes.
+ - It’s a luxury to play. I get to play basketball for a living. I’m a lucky guy and I’m thankful for everything I have and what I get to do. I realize how many people would give their left foot to just play one game in the NBA. This is the NBA!
+ - People in general misunderstand me. I’m very aware of the stereotype that comes with being a basketball player. But I’m well-rounded. I’m cultured. It’s funny: When I speak, people are like, “Wow! You can really talk.” I’m like, “What did you expect?”
+ - You think you’re grown in college but you’re not, because everything is kind of controlled. You lose the camaraderie and suddenly find yourself alone in an apartment just feeling lost.
+ - When I was in school, my favorite subject was math. I took algebra and calculus. At an early age I grasped it and understood it quickly. I just enjoyed breaking the codes and solving problems.
+ - Experience has taught me a lot, and I don’t want to let that fall by the wayside.
+ - Just listen to your instincts. Don’t talk to someone or start a relationship out of pity.
+ - A woman shouldn’t heckle. In the public eye, you have to represent not only you but your spouse, too. You have to be a lady. She just has to sit there, clap, and look pretty.
+ - If you’re not getting better in the summer, you’re wasting your time.
+ - I wouldn’t like to make anybody cry, I don’t dislike anybody. It doesn’t even matter – the opponent is always faceless.
+ - We didnt come out with any energy. We know were not good enough to let the game come to us. We have to come with high energy, play hard team basketball and do everything the right way. Coming into the season, we all knew we didnt have too much room for error.
+ - I never expected to leave college early-especially after just one year.
+ - If somebody attacks me with words, I’m always like, Do you know me? Do you know me that well? Let’s have a beer and talk about it.
+ - I wanted to take on a little bit more of a leadership role. I’m getting older and things are coming to me more and I have to take responsibility for that.
+ - To be honest, politics is so weird. I think it’s more heavy than religion.
+ - I hate to lose. When I was a kid, I used to cry every time I lost a game, up until, like, the 8th grade. I used to go ballistic.
+ - I want to bring that childlike approach every night – just go out there and have fun. I want to play like a kid, for fun but with intensity. Play to win.
+ - You can’t be afraid to get back up and try again, and you really can’t do that unless you acknowledge the failure.
+ - I remember telling my friends I wish I had stayed in school and they didn’t understand: “You’ve got all this money and everything you want.” But it wasn’t about the money. It was about how I felt right then.
+ - Everyone talks about success, but what happens before? There’s always something you have to overcome.
+ - The stereotype of a leader is one who talks and peps people up and things like that, but in actuality you have to listen to your teammates.
+ - Failure either breaks people or it makes them succeed.
+ - Life is not going to be sweet all the time.
+ - There were hard days but I never felt sorry for myself.
+ - I can motivate myself fine just by wanting to be my best.
+ - I don’t really know what depression is, I don’t think I’ve felt it. I probably have. Things aren’t the same when you’re losing. You’re not happy. That can happen. But I try to keep them separate as much as possible.
+ - I had gotten rid of the crying when I got to high school, though it happened again when I was a junior. We lost in the state championship. It was kind of the same situation, camera in my face, and then that’s when I realized it was over I had my moment.
+ - I want to go get a stop on defense so James can do it again. It was a big spurt for him. That made then get out of their game plan and play him closer. But when he does that, we want to make sure we capitalize and get timely stops. And that’s what got us right back in the game.
+ - Yeah, that was my best scoreless game ever.
+ - I had a turnover and three missed shots down the stretch. I just have to make sure I calm my nerves.
+ - When you’re not in the game, you can watch. Certain players have mannerisms, and they do the same things repetitiously.
+ - Eventually, people are going to find out I can play.
+ - If you don’t see anything wrong with your game, you need to wake up.
+ - I’ve modeled my game after Kevin Garnett and Tim Duncan.
+ - I love getting in the open floor and running.
+ - I learned very quickly that the NBA is a very rough place, physically and mentally. There’s no mercy.
+ - I’m just trying to be the best player that I can be.
+ - I know how the game is played, and I’m always working on it.
+ - If you want to be successful, you are going to have to deal with pressure.
+ - I’m real conscious about money still. That’s how I came up and you can’t shake that.
+ - My goal is to be able to play wherever my team needs me.
+ - Schoolwork came kind of natural to me, but when I brought home a grade that wasn’t up to par, my parents let me know it.
+ - I’m a winner. Dwyane’s a winner. We’re going to bring winning to Miami.
+ - I havent won on my birthday since college, so its good to play hard and get a win by double figures.
+ - I know that sacrifices have to be made to play with good teams.
+ - I liked being a kid. I liked being a student.
+
+53 quotes

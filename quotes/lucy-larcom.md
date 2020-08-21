@@ -1,0 +1,57 @@
+ - Whatever with the past has gone, the best is always yet to come.
+ - Every true friend is a glimpse of God.
+ - He who plants a tree, plants a hope.
+ - A drop of water, if it could write out its own history, would explain the universe to us.
+ - Many kinds of fruit grow upon the tree of life, but none so sweet as friendship; as with the orange tree its blossoms and fruit appear at the same time, full of refreshment for sense and for soul.
+ - I defied the machinery to make me its slave. Its incessant discords could not drown the music of my thoughts if I would let them fly high enough.
+ - Let us not depreciate Earth. There is no atom in it but is alive and astir in the all-penetrating splendor of God. From the infinitesimal to the infinite, everything is striving to express the thought of His Presence with which it overflows.
+ - Like a plant that starts up in showers and sunshine and does not know which has best helped it to grow, it is difficult to say whether the hard things or the pleasant things did me the most good.
+ - Everything in nature has its own intrinsic charm, as the work of its Creator’s hand; but the chief beauty of the whole lies in its suggested relations to humanity. Things announce and wait for persons. The house would not have been thus beautifully built and furnished, except for an expected tenant.
+ - If the world seems cold to you, kindle fires to warm it.
+ - A man may make a misanthrope of himself, but he is never one by nature.
+ - I don’t own an inch of land, but all I see is mine.
+ - No one can feel more gratefully the charm of noble scenery, or the refreshment of escape into the unspoiled solitudes of nature, than the laborer at some close in-door employment.
+ - If the world’s a veil of tears, Smile till rainbows span it.
+ - Every phase of our life belongs to us. The moon does not, except in appearance, lose her first thin, luminous curve, nor her silvery crescent, in rounding to her full. The woman is still both child and girl, in the completeness of womanly character.
+ - Labor, in itself, is neither elevating or otherwise. It is the laborer’s privilege to ennoble his work by the aim with which he undertakes it, and by the enthusiasm and faithfulness he puts into it.
+ - From the first opening of our eyes, it is the light that attracts us. We clutch aimlessly with our baby fingers at the gossamer-motes in the sunbeam, and we die reaching out after an ineffable blending of earthly and heavenly beauty which we shall never fully comprehend.
+ - To different minds, poetry may present different phases. To me, the reverent faith of the people I lived among, and their faithful everyday living, was poetry; blossoms and trees and blue shies were poetry. God himself was poetry.
+ - Whoever claims to understand another person completely, is either entirely ignorant of himself, or else has a nature so small that he can measure it easily, and supposes it to be the standard of every other nature.
+ - The whole world of thought lay unexplored before me, – a world of which I had already caught large and tempting glimpses...
+ - The children with the streamlets sing, When April stops at last her weeping; And every happy growing thing Laughs like a babe just roused from sleeping.
+ - Religion is life inspired by Heavenly Love; and life is something fresh and cheerful and vigorous.
+ - I believe the best poetry of our times is growing too artistic; the study is too visible. If freedom and naturalness are lost out of poetry, everything worth having is lost.
+ - O Mariner-soul, Thy quest is but begun, There are new worlds Forever to be won.
+ - Whether rich or poor, a home is not a home unless the roots of love are ever striking deeper through the crust of the earthly and the conventional, into the very realities of being, not consciously always; seldom, perhaps; the simplicity of loving grows by living simply near nature and God.
+ - Rich or poor, every child comes into the world with some imperative need of its own, which shapes its individuality.
+ - The soul, cramped among the petty vexations of Earth, needs to keep its windows constantly open to the invigorating air of large and free ideas: and what thought is so grand as that of an ever-present God, in whom all that is vital in humanity breathes and grows?
+ - It is one of the most beautiful facts in this human existence of ours, that we remember the earliest and freshest part of it most vividly. Doubtless it was meant that our childhood should live on in us forever.
+ - To her bier Comes the year Not with weeping and distress, as mortals do, But, to guide her way to it, All the trees have torches lit; Blazing red the maples shine the woodlands through...
+ - Thou hastenest down between the hills to meet me at the road, The secret scarcely lisping of thy beautiful abode Among the pines and mosses of yonder shadowy height, Where thou dost sparkle into song, and fill the woods with light.
+ - God be thanked for the thinkers of good and noble thoughts! It wakes up all the best in ourselves, to come into close contact with others greater and better in every way than we are.
+ - My ‘must-have’ was poetry. From the first, life meant that to me. And, fortunately, poetry is not purchasable material, but an atmosphere in which every life may expand. I found it everywhere about me...
+ - The peach-bud glows, the wild bee hums, and wind-flowers wave in graceful gladness.
+ - We were not meant to mask ourselves before our fellow-beings, but to be, through our human forms, true and clear utterances of the spirit within. Since God gave us these bodies, they must have been given us as guides to Him and revealers of Him.
+ - Because its myriad glimmering plumes Like a great army’s stir and wave; Because its golden billows blooms, The poor man’s barren walks to lave: Because its sun-shaped blossoms show How souls receive the light of God, And unto earth give back that glow I thank him for the Goldenrod.
+ - A friend is a beloved mystery; dearest always because he is not ourself, and has something in him which it is impossible for us to fathom. If it were not so, friendship would lose its chief zest.
+ - Some of us must wait for the best human gifts until we come to heavenly places. Our natural desire for musical utterance is perhaps a prophecy that in a perfect world we shall all know how to sing.
+ - That larger vision is certain to make clear the value in our own lives of service to others.
+ - The land is dearer for the sea, The ocean for the shore.
+ - Our relatives form the natural setting of our childhood. We understand ourselves best and are best understood by others through the persons who came nearest to us in our earliest years.
+ - It is the greatest of all mistakes to begin life with the expectation that it is going to be easy, or with the wish to have it so.
+ - One mistake with beginners in writing is, that they think it important to spin out something long. It is a great deal better not to write more than a page or two, unless you have something to say, and can write it correctly.
+ - I remember how beautiful the Merrimac looked to me in childhood, the first true river I ever knew; it opened upon my sight and wound its way through my heart like a dream realized; its harebells, its rocks, and its rapids, are far more fixed in my memory than anything about the sea.
+ - The curse of covetousness is that it destroys manhood by substituting money for character.
+ - There is something in the place where we were born that holds us always by the heart-strings.
+ - The true idea of a church has not yet been shown the world, a visible Church, I mean, unless it was in the very earliest times; yes, the twelve disciples bound to their Lord in love, to do his work forever, that was a church, a Christian family.
+ - Life hangs as nothing in the scale against dear Liberty!
+ - Canst thou prophesy, thou little tree, What the glory of thy boughs shall be?
+ - A complete autobiography would indeed be a picture of the outer and inner universe photographed upon one little life’s consciousness. For does not the whole world, seen and unseen, go to the making up of every human being?
+ - I am willing to make any part of my life public, if it will help others.
+ - A journal of the ‘subjective’ kind I have always thought foolish, as nurturing a morbid self -consciousness in the writer; and yet, alone so much as I am, it is well to have some sort of a ventilator from the interior.
+ - We might all place ourselves in one of two ranks the women who do something, and the women who do nothing; the first being of course the only creditable place to occupy.
+ - Girls especially are fond of exchanging confidences with those whom they think they can trust; it is one of the most charming traits of a simple, earnest-hearted girlhood, and they are the happiest women who never lose it entirely.
+ - Few parents are aware of the difficulties that beset the minds of the little philosophers and theologians who sit upon their knees or play at their feet; and many a parent could not comprehend the disturbance, if he were aware of it.
+ - Whatever science and philosophy may do for mankind, the world can never outgrow its need of the simplicity that is in Christ.
+
+55 quotes

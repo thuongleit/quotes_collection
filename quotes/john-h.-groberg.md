@@ -1,0 +1,22 @@
+ - Sometimes God calms the storm and sometimes He calms his child.
+ - There is a connection between heaven and earth. Finding that connection gives meaning to everything, including death. Missing it makes everything meaningless, including life.
+ - I further testify that when we eventually see things through the proper perspective of eternal truth, we will be amazed at how much we were blessed in important though often unperceived ways through keeping the Sabbath Day holy.
+ - When filled with God’s love, we can do and see and understand things that we could not otherwise do or see or understand. Filled with His love, we can endure pain, quell fear, forgive freely, avoid contention, renew strength, and bless and help others in ways surprising even to us.
+ - God’s love fills the immensity of space; therefore, there is no shortage of love in the universe, only in our willingness to do what is needed to feel it.
+ - Keep your eye on eternal goals.
+ - Our joy now and forever is inextricably tied to our capacity to love.
+ - There is great power in loving, consistent, fervent family prayer. Don’t deny your families this blessing. Don’t allow the strength that comes from family prayer to slip away from you and your loved ones through neglect.
+ - Only that which lasts forever is real. That which is done in the temple lasts forever; therefore, the temple is the real world. Most of what we experience “out there,” such as sickness, wealth, poverty, fame, etc., lasts for only a short period of time, so it is not the real world.
+ - The more we obey God, the more we desire to help others. The more we help others, the more we love God and on and on. Conversely, the more we disobey God and the more selfish we are, the less love we feel.
+ - There is something eternal in the very nature of writing, as is so graphically illustrated by the scriptures themselves. In a very real sense, our properly written histories are a very important part of our family scripture and become a great source of spiritual strength to us and to our posterity.
+ - We should always pray for help, but we should always listen for inspiration and impression to proceed in ways different from those we may have thought of.
+ - You develop faith by doing things that require faith.
+ - You cannot compromise principles to achieve unity.
+ - We can leave a place behind, or we can stay in that place and leave our selfishness behind.
+ - Organize priorities so that God is first in our lives.
+ - Nothing spiritual to write? Then have spiritual experiences.
+ - I have come to know that we learn much more of what is important when we concentrate on helping others than when we concentrate on our own challenges.
+ - More than anything else we should be concerned about meekness, or our standing in God’s sight. If that standing is as it should be, nothing else matters. If it is not, nothing else counts.
+ - Jesus made saving repentance possible and He made baptism meaningful.
+
+20 quotes

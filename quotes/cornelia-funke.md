@@ -1,0 +1,124 @@
+ - Books have to be heavy because the whole world’s inside them.
+ - It’s a cruel world, don’t you think?
+ - If I was a book, I would like to be a library book, so I would be taken home by all different sorts of kids.
+ - The sea always filled her with longing, though for what she was never sure.
+ - Which of us has not felt that the character we are reading in the printed page is more real than the person standing beside us?
+ - Writing stories is a kind of magic, too.
+ - We’re all liars when it serves our purpose.
+ - Yes, I do enjoy walking at night. The world’s more to my liking then, not so loud, not so fast, not so crowded, and a good deal more mysterious.
+ - Words are immortal – Elinor.
+ - Sometimes, when you’re so sad you don’t know what to do, it helps to be angry.
+ - Nothing chased nightmares away faster than the rustle of printed paper.
+ - What’s the matter princess? Do you know the end of your story?
+ - Dustfinger still clearly remembered the feeling of being in love for the first time. How vulnerable his heart had suddenly been! Such a trembling, quivering thing, happy and miserably unhappy at once.
+ - She is a real bookworm. I think she lives on print. Her whole house is full of books – looks as if she likes them better than human company.
+ - Read – and be curious. And if somebody says to you: ‘Things are this way. You can’t change it’ – don’t believe a word.
+ - Why did death make life taste so much sweeter? Why could the heart love only what it could also lose?
+ - Isn’t it odd how much fatter a book gets when you’ve read it several times?
+ - This book taught me, once and for all, how easily you can escape this world with the help of words! You can find friends between the pages of a book, wonderful friends.
+ - Quite suddenly Meggie felt fear rise in her like black brackish water, she felt lost, terribly lost, she felt it in every part of her. She didn’t belong here! What had she done?
+ - Every German child learns to speak English in school.
+ - If you keep pretending you’re in that book, it will make you not want to live in the life you’re in.
+ - Hope. Nothing is more intoxicating.
+ - Words were useless. At times, they might sound wonderful, but they let you down the moment you really needed them. You could never find the right words, never, and where would you look for them? The heart is as silent as a fish, however much the tongue tries to give it a voice.
+ - What’s that sticky stuff called? Basta: Duct tape. Yes, duct tape. I love duct tape.
+ - When the heart craved something so forcefully, then reason became nothing but helpless observer.
+ - Books loved anyone who opened them, they gave you secruity and friendship and didn’t ask for anything in return; they never went away, never, not even when you treated them badly.
+ - What a plague love is!
+ - When you open a book it’s like going to the theater first you see the curtain then it is pulled aside and the show begins.
+ - It’s a good idea to have your own books with you in a strange place.
+ - In love – it sounded like a sickness without any cure, and wasn’t that just how it sometimes felt?
+ - What are stories for if we don’t learn from them?
+ - Power. Intoxicating. Like a fine wine.
+ - I love to read, I love to watch movies, and I love to be with my children.
+ - Reality is a fragile thing.
+ - You know a great many things in dreams, often despite the evidence of your eyes. You just know them.
+ - I just did a picture book called The Wildest Brother on Earth, and you will find both of my children in there.
+ - Everything gets to me. I’m very sentimental.
+ - Believe, believe, believe.
+ - Since when does the butterfly ask about the caterpillar?
+ - Only in books could you find pity, comfort, happiness and love.
+ - A thousand enemies outside the house are better than one within. Arab proverb.
+ - Let’s run away to Venice, and hide out in an old movie theater. We can dye our hair blonde, so no one will ever find us!
+ - You know what they say: When people start burning books they’ll soon burn human beings.
+ - Sometimes, when you’re sad you don’t know what to do, it helps to be angry. But then the tears come back again all the same, and you fall asleep with the salty taste of them on your lips.
+ - Nothing is more frightening than a fear you cannot name.
+ - Children are caterpillars and adults are butterflies. No butterfly ever remembers what it felt like being a caterpillar.
+ - Farid had brought an invisible guest with him. Fear.
+ - Her curiosity was too much for her. She felt almost as if she could hear the books whispering on the other side of the half-open door. They were promising her a thousand unknown stories, a thousand doors into worlds she had never seen before.
+ - He longed for the deep as she longed for the night sky and for white lilies floating on water – although she still tried to convince herself that love alone could feed her soul.
+ - Life was more difficult in Inkheart, yet it seemed to Meggie that with every new day Fenoglio’s story was spinning a magic spell around her heart, sticky as a spider’s web and enchantingly beautiful...
+ - She wanted to return to her dream. Perhaps it was still somewhere there behind her closed eyelids. Perhaps a little of its happiness still clung like gold dust to her lashes. Don’t dreams in fairy tales sometimes leave a token behind?
+ - Down there the nights are bright and nobody believes in the Devil.
+ - He put his hands on her shoulders and kissed her full on the mouth. His skin was wet with rain. When she didn’t pull away, he took her face between his hands and kissed her again, on her forehead, on her nose, on her mouth once more. “You will come, won’t you? Promisse!” he whispered.
+ - I wish you luck,? she said, kissing him on the cheek. He still had the most beautiful eyes of any boy she’d ever seen. But now her heart beat so much faster for someone else.
+ - And my father always took me to the library. We were both book addicts.
+ - Beauty and fear make uneasy companions.
+ - There are not so many mythical creatures from Inkheart.
+ - I live in Hamburg; that’s in the north. And I live on the outskirts of town. It looks like countryside.
+ - I always wanted to ride a dragon myself, so I decided to do this for a year in my imagination.
+ - Mortimer’s face twisted when the Piper pressed his knife against his ribs. Oh yes, he’s obviously made the wrong enemies in this story, thought Orpheus. And the wrong friends. But that was high-minded heroes for you. Stupid.
+ - And I plan to write a sequel to Dragon Rider.
+ - Women were different, no doubt about it. Men broke so much more quickly. Grief didn’t break women. Instead it wore them down, it hollowed them out very slowly.
+ - She pressed her hand against her chest. No heart. So where did the love she felt come from?
+ - Children, they’re the same everywhere. Greedy little creatures but the best listeners in the world – any world. The very best of all.
+ - All writers are insane!
+ - Perhaps the story in the book is just the lid on a pan: It always stays the same, but underneath there’s a whole world that goes on – developing and changing like our own world.
+ - Mo could paint pictures in the empty air with his voice alone.
+ - The night swallowed him up like a thieving fox.
+ - He wants to be grown-up. How different dreams can be! Nature will soon grant your wish.
+ - The Fairy’s dress rustled as she turned. Human women dressed like flowers, layers of petals around a mortal, rotting core.
+ - Sometimes Dustfinger thought Basta’s constant fear of curses and sudden disaster probably arose from his terror of the darkness within himself, which made him assume that the rest of the world must be exactly the same.
+ - The tent in which she first met him had smelled of blood, of the death she did not understand, and still she had thought of it all as a game. She had promised him the world. His flesh in the flesh of his enemies. And much too late had she realized what he had sown in her. Love. Worst of all poisons.
+ - Sometimes it’s a good thing we don’t remember things half as well as books do.
+ - All books are in safe hands with me. They’re my children, my inky children, and I look after them well. I keep the sunlight away from their pages, I dust and protect them from hungry hookworms and grubby human fingers.
+ - Hey, don’t take this the wrong way, but don’t come back, ok?
+ - My children were all made from paper and printer’s ink...
+ - No prince had lived in those wretched hovels, no red-robed bishops, only farmers and laborers whose stories no one had written down, and now they were lost, buried under wild thyme and fast growing spurge.
+ - Weren’t all books ultimately related? After all, the same letters filled them, just arranged in a different order. Which meant that, in a certain way, every book was contained in every other!
+ - The spoken word is nothing. It hardly lives longer than an insect! Only the written word is eternal. – Balbulus.
+ - And I always read the English translation and always have conversations with my translator, for example about the names. I always have to approve it.
+ - A reader doesn’t really see the characters in a story; he feels them.
+ - So it’s happened, I kept thinking, you’re in the middle of a story exactly as you’ve always wanted, and it’s horrible. Fear tastes quite different when you’re not just reading about it, Meggie, and playing hero wasn’t half as much fun as I’d expected.
+ - What was a slap for ten pages of escapism, ten pages far from everything that made him unhappy, ten pages of real life instead of the monotony that other people called the real world?
+ - I will try to write books until I drop dead.
+ - I like a composer called Henry Purcell, and I love to listen to Neil Young.
+ - Where did the love come from? What was it made of?
+ - Ten minutes can be a long time when you’re waiting with a beating heart for something you don’t understand, something you don’t really want to know.
+ - Dustfinger closed his eyes and listened. He was home again.
+ - She had found him and was bringing back his thanks. Nor did she forget to mention that he had assured her that she was indeed the most beautiful fairy he had ever set eyes on.
+ - Second, there are so many magical places in books that you cant go to, like Hogwarts and Middle Earth, so I wanted to set a story in a place where children can actually go.
+ - Nobody loves only once.
+ - The night belongs to beasts of prey, and always has. It’s easy to forget that when you’re indoors, protected by light and solid walls.
+ - Every reader knows about the feeling that characters in books seem more real than real people.
+ - The night breathed through the apartment like a dark animal. The ticking of a clock. The groan of a floorboard as he slipped out of his room. All was drowned by its silence. But Jacob loved the night. He felt it on his skin like a promise. Like a cloak woven from freedom and danger.
+ - I have two Iceland horses, a very hairy dog called Looney, and a guinea pig.
+ - Let’s be off before he gets his great horsey teeth into my poor lines of verse!
+ - My grandmother told stories; she was very good at that.
+ - How fast the ears learned to tell what sounds meant, much faster than it took the eyes to decipher written words.
+ - Books are like flypaper, memories cling to the printed pages better than anything else.
+ - I wish I had more time to visit schools.
+ - My daughter, Anna, is almost 15, and my son, Ben, is almost 10.
+ - I remember the feeling. Whenever my father got so absorbed in a book that we might have been in visible I felt like taking a pair of scissors and cutting it up.
+ - Neither Goyl nor men lived long enough to understand that yesterday was born of tomorrow, just as tomorrow was born of yesterday.
+ - When it came to hiding, even Gwin had nothing to teach Dustfinger. A strange sense of curiosity had always driven him to explore the hidden, forgotten corners of this and any other place, and all that knowledge had now come in useful.
+ - I love to read aloud.
+ - I’m perfectly happy to know the world at secondhand. It’s a lot safer.
+ - There could be few men whose love for a woman had been written on his face with a knife.
+ - A library book, I imagine, is a happy book.
+ - She read and read and read, but she was stuffing herself with the letters on the page like an unhappy child stuffing itself with chocolate. They didn’t taste bad, but she was still unhappy.
+ - I prefer a story that has the good sense to stay on the page where it belongs. – Elinor.
+ - The truth’s not pretty of course. No one likes to look it in the face.
+ - Didn’t books say that too: that there is always price to pay for happiness?
+ - I don’t like to eat the same dish every day, so I read very different things.
+ - It’s the same in real life: Notorious murderers get off scot-free and live happily all their lives, while good people die – sometimes the very best people. That’s the way of the world.
+ - The book she had been reading was under her pillow, pressing its cover against her ear as if to lure her back into its printed pages.
+ - We all know what fun it can be to get right into a book and live there for a while, but falling out of a story and suddenly finding yourself in this world doesn’t seem to be much fun at all.
+ - But after all, the villains are the salt in the soup of a story.
+ - Why do grown-ups think it’s easier for children to bear secrets than the truth? Don’t they know about the horror stories we imagine to explain the secrets?
+ - My son always says I like very weird music.
+ - I always thought it hadn’t influenced me very much, but I heard from many people from England that many motives from German fairytales are to be found in my books.
+ - Everyone is small at night.
+ - I like to visit my horse, have a walk with my dog.
+
+122 quotes

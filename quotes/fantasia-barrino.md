@@ -1,0 +1,21 @@
+ - Sometimes you have to lose to win again.
+ - Have a little faith. Don’t give up.
+ - I caught a lot of flak for being a young mama.
+ - I always say you’ve only got one life to live, and you’re not promised a tomorrow. So, you might as well just have a good time with it.
+ - My lips are big, but my talent is bigger.
+ - When I realized I was having trouble reading, I was too embarrassed to ask for help. Some teachers believed in me, but I just wasn’t focused on school – I was into the music and trying to please my dad.
+ - I want to do all types of music, music for all people. I want my music to be encouraging, to help people.
+ - I like to play dress up, I’m in love with fashion.
+ - I’ve been wanting to sing for a long time. I’ve been singing all my life, and I’ve tried different record companies, but it seemed like – it was such a struggle and so hard to get out there. So, I said, ‘I’m gonna go on American Idol and see how far it takes me.’
+ - Cause when I had my child, people tried to make me feel like life was over for me, and I started to believe that.
+ - I seemed so different from other kids; I grew up in church and felt a connection with God, and a lot of kids my age really didn’t understand that.
+ - I wanted people to see me, to change their minds about me.
+ - It’s always good when you can bring two artists together who are totally different.
+ - I been through some things but I worked hard to get to where I’m at.
+ - When I’m out on the stage, it gives me this rush and anything that’s on my mind and everything I’m going through is forgotten about.
+ - I want people to just to see, all you got to do is have a little faith.
+ - I’m very soulful. I grew up singing in church. When I sing a song, I like to feel what I’m singing.
+ - I want to still be singing at 70 years old. I want to be open to the dreams I haven’t even dreamed up.
+ - I knew exactly what I was doing. You can’t accidentally take a whole bottle of pills.
+
+19 quotes

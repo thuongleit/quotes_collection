@@ -1,0 +1,37 @@
+ - Philosophy isn’t programmed into us, and a lot of the forces of our culture steadfastly work against it. Philosophy, for me, is a way of resisting the nihilism of the present by making, creating, affirming. By going on.
+ - Humour is human. Why? Well, because the Philosopher, Aristotle, says so.
+ - For me philosophy begins with these experiences of disappointment: a disappointment at the level of what I would think of as “meaning,” namely that, given that there is no God, what is the meaning of life? And, given that we live in an unjust world, how are we to bring about justice?
+ - I have argued that philosophy doesn’t begin in wonder or in the fact that things are, it begins in a realization that things are not what they might be. It begins with a sense of a lack, of something missing, and that provokes a series of questions.
+ - Shore up the mean with reverence and terror. But never banish terror from the gates of the state. The stronger the fear, the stronger the reverence for the just, the stronger your country’s wall and the city’s safety.
+ - Just to say “Well, God is dead” in one breath is to say, in another, that nothing means anything. This is the moment of nihilism. Nihilism is the affirmation of meaninglessness.
+ - The only answer to the question of the meaning of life has to begin from the fact of our human finitude, of our vulnerability and our fallibility.
+ - Genuinely great humour recognises the world it’s describing and yet we are also called into question by it. That’s what great art should do. That’s what great philosophy should do. The one thing about humour is that this is an everyday practice that does this.
+ - There is something desperately lonely about Barack Obama’s universe. One gets the overwhelming sense of someone yearning for connection, for something that binds human beings together, for community and commonality, for what he repeatedly calls “the common good”. This is hardly news.
+ - It is so ridiculous to limit oneself to one version of the truth.
+ - I’ve always been very keen on Pascal, and what I’m most keen on in Pascal is his emphasis upon human wretchedness. He has a phrase which goes something like ‘Anxiety, boredom and inconstancy, that is the human condition’ and I’ve always been very partial to that.
+ - Now, if laughter is proper to the human being, then the human being who does not laugh invites the charge of inhumanity, or at least makes us somewhat suspicious.
+ - My favourite writer is Beckett and I keep going back to wallow in his work like a deep pool of dark humour or like an oxygen tank when you can’t breath in a world consumed by piety, hypocrisy and self-satisfaction.
+ - Peace is nothing more than the regulation of the psycho-political economy of awe and reverential fear, of using the threat of terror in order to bind citizens to the circuit of their subjection.
+ - In relation to the question of hope, I think the only hope we have is hope against hope. We hope for a better world. But of course we can do better than just hope.
+ - For me, philosophy is an activity of thought that is common to human beings. Human beings at their best.
+ - We must believe, but we can’t believe. Perhaps this is the tragedy that some of us see in Obama: a change we can believe in and the crushing realisation that nothing will change.
+ - That is to say, politics is essentially about the management of fear, an economy of fear, continually adjusting the level of fear to produce the right level of affect in the citizenry.
+ - I think that when people are at their best, when they are thinking, reflecting, cogitating, then they are doing philosophy. So I don’t see philosophy as an academic enterprise.
+ - We might even define the human as a dynamic process produced by a series of identifications and misidentifications with animality.
+ - There are lots of stories about how philosophy begins. Some people claim it begins in wonder; some people claim it begins in worry. I claim it begins in disappointment.
+ - Any philosophical and theoretical assurance that laughter is unique to the human being becomes somewhat unsure when one turns to the anthropological literature.
+ - The philosopher is someone who doesn’t know, but who wants to find out.
+ - Philosophy teaches us to look at the world again. It brings out at a theoretical level what all plain, common, ordinary people, in a sense, know already.
+ - The influence of being in New York, made me realize a lot of the ethical and political ideas I want to push or promote are best articulated within an anarchist program.
+ - If I had a religious experience, what I know for sure is that I would stop doing philosophy and would start doing religion, teaching classes in religion, preaching in a local church. That is fine and noble activity. But I do not feel entitled to engage in it. So for me philosophy is my fate.
+ - It’s complicated. On the one hand we’re killer apes, and on the other hand we have this metaphysical longing.
+ - I think governments are quietly terrified. There’s massive unemployment, a recession they don’t know how to deal with, and the measures they’ve taken are not working yet, and maybe they’re not going to work. There’s a prospect of significant social disorder.
+ - In the US, what passes for Christianity – and it is, to say the least, a highly perverse, possessive individualist and capitalist version of what I would see as Christ’s messianic ethical communism, to say the least – is a new civil religion, a civil religion of freedom.
+ - Obama dreams of a society without power relations, without the agonism that constitutes political life. Against such a position one might assert that justice is always an agon, a conflict, and to refuse this assertion is to consign human beings to wallow in some emotional, fusional balm.
+ - Philosophy for me is essentially atheistic. Now that’s an anxious atheism. It’s an atheism that is anxious because it inhabits questions that were resolved religiously in the pre-modern period.
+ - I guess what happens to a lot of people as they get older is that they get more conservative, but with me, the opposite is the case.
+ - Philosophy, for me, is a way of relearning to look at the world, a world that is familiar to us, that we know, that is shared by all human beings and also by nonhuman beings.
+ - Also, rights are not things that are given in the heavens. Rather, they are levers for political articulations, which enables what was previously invisible to become visible.
+ - The current situation with regard to theory is odd and maybe defined by a paradox.
+
+35 quotes

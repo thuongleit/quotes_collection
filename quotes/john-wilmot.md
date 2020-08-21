@@ -1,0 +1,29 @@
+ - Before I got married I had six theories about raising children; now, I have six children and no theories.
+ - I’d be a dog, a monkey, or a bear, or anything but that vain animal who is so proud of being rational.
+ - Since ’tis Nature’s law to change, Constancy alone is strange.
+ - I shall never forgive you for teaching me how to love life.
+ - Born to myself, I like myself alone.
+ - Natural freedoms are but just: There’s something generous in mere lust.
+ - Love’s chemistry thrives best in equal heat.
+ - Angels listen when she speaks; She’s my delight, all mankind’s wonder; But my jealous heart would break Should we live one day asunder.
+ - God bless our good and gracious King, Whose promise none relies on; Who never said a foolish thing, Nor ever did a wise one.
+ - He never said a foolish thing nor never did a wise one.
+ - Envy is a passion so full of cowardice and shame that nobody ever had the confidence to own it.
+ - The theatre is my drug. And my illness is so far advanced that my physic must be of the highest quality.
+ - Late children are early orphans.
+ - The clog of all pleasure, the luggage of life, is the best can be said for a very good wife.
+ - Nothing suits worse with vice than want of sense.
+ - Mothers who force their daughters into interested marriage, are worse than the Ammonites who sacrificed their children to Moloch – the latter undergoing a speedy death, the former suffering years of torture, but too frequently leading to the same result.
+ - I have to speak my mind. Because what is in my mind is always more interesting than what is happening in the world outside my mind.
+ - Tis a meaner part of sense to find a fault than taste an excellence.
+ - I wish to be moved. I cannot feel in life. I must have others do it for me in theater.
+ - Man differs more from man than man from beast.
+ - Whenever you preach, be sure that you lift the Saviour high and lay the sinner low.
+ - Custom does often reason overrule.
+ - Dead we become the lumber of the world.
+ - To pick out the wildest and most fantastical odd man alive, and to place your kindness there, is an act so brave and daring as will show the greatness of your spirit and distinguish you in love, as you are in all things else, from womankind.
+ - All men would be cowards if they could.
+ - It is a very good world to live in, To lend or to spend, or to live in; but to beg or to borrow, or to get a man’s own, It is the very worst world that ever was known.
+ - Books bear him up a while, and make him try to swim with bladders of philosophy.
+
+27 quotes

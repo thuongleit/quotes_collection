@@ -1,0 +1,21 @@
+ - Too much, too little, too late, to ever try again. Too much, too little, too late, let’s end it being friends.
+ - Walk my way and a thousand violins begin to play, or it might be the sound of your hello.
+ - Sometimes being famous gets in the way of doing what you want to do.
+ - Let’s love, press your lips to mine. Let’s kiss, for that thrill divine.
+ - I love the house that I’ve been living in for over 40 years. I really am a homebody and I still love to play golf.
+ - It’s very much like opera singers. They do the same thing. The first thing in the morning and the last thing at night, the thing they think about is their voice and how to take care of it.
+ - My favorite singer to this day is Nat King Cole. I’ve tried to emulate his phrasing. It is so absolutely beautiful to listen to his lovely voice.
+ - Its just that some people are lucky and people still seem to enjoy the music.
+ - I also met, early on Ella Fitzgerald. Her songbooks are some of the most amazing bodies of work.
+ - Even though there’s no forum for me on the radio for the kind of music I sing anymore, I am still excited about having a career where I can sing the best music in the world, and people will come and hear me because of the hit records I’ve had in the past.
+ - I’m just one of the lucky people. I have no other reason for my longevity.
+ - I really, really enjoy music and that’s why I do what I do.
+ - When I was 12 and started to take singing lessons from a woman, she told me that I would probably spend the rest of my life taking care of my voice.
+ - And fortunately, I haven’t had any problem with my voice. I’ve been able to sing at a level of consistency that the people are expecting.
+ - When you do interviews, you have to talk about yourself – and I like to find out about other people. I am so familiar with everything that I do. Ive said it over and over again. I think it is boring.
+ - In other words, the celebrity gets out of hand, and if youre not careful, you will forget what you are about – and that is you are about making music that people want to hear.
+ - I think there are a lot of people who really want to be famous, they really do. I don’t. It sort of gets in the way of the everyday things that I do.
+ - But I am very grateful for my success, and with success, of course, comes a whole lot of celebrity.
+ - When I do an album I try to find a producer that’s excited about something that they want me to sing, and I check with the record company to find out what they think they can sell – which is their No. 1 priority.
+
+19 quotes

@@ -1,0 +1,56 @@
+ - That’s the beauty of books. We get to take what we want out of them and it can be different for everyone.
+ - We’re all lost. The best chance we got is to wander this life with the people who matter.
+ - Truth, honesty, perseverance, strength, love of all kinds and forgiveness are all beautiful, Tack. The most beautiful stories ever told are the most difficult to take.
+ - Men understand direct communication. It’s bitches who speak in code.
+ - Life’s a roller coaster. Best damn ride in the park. You don’t close your eyes, hold on and wait for it to be over, babe. You keep your eyes open, lift your hands straight up in the air and enjoy the ride for as long as it lasts.
+ - You need me. You won’t stay away and you won’t let me go because, baby, you can’t breathe without me.
+ - You want sweet dreams, lose the attitude and you might find I’ll give you reason to have them. Tate to Lauren.
+ - It was like the Justice League of Super Heroes but instead it was the Justice League of Hot Guys.
+ - We’ve hit the hot guy motherlode.
+ - I loved you then. I love you now. I’ve loved you every day for seven years.
+ - It’s never too late to reach for happiness and no matter what life has done to you, it’s never too late to find it.
+ - Because, no matter how old we get, we always need to believe in fairytales.
+ - Wherever you are, however you got there, if it’s good, you’re meant to be there either because you earned it or life led you there and you were smart enough to hold on.
+ - Forgiveness is beautiful and it feels good when someone gives that gift to you. But it’s one thing for someone you wronged to forgive you. It was another to forgive yourself.
+ - You’ve been mine since you were eight.
+ - Even though I felt like crying, I did my very best to smile.
+ - Any one of those boys wanted to push me around, I’d say bring it on. Hell, I’d pay for one of ’em to move into my house. They don’t even have to do me; just walk around so I can watch. Maybe in a towel.
+ - You lose anyone, there’s no replacing them. What you need to get is that’s precious, you get to keep that, you don’t want to replace it. That doesn’t mean you can’t find something else just as good.
+ - I can’t be the star in your sky when you’re the only star left shining in mine.
+ - I love you Anya, you’re the only woman who’s had that from me and you’re the only one who ever will.
+ - We girls, we’re tough, darling. Soft on the outside but, deep down, we’re tough.
+ - Swear to God, these boys should be locked up. It isn’t safe, men with that much testosterone coursing through tier blood free to roam.
+ - Never bury something deep, baby. Takes twice as much courage to be who you are, say what you think, feel what you feel and let it show then it does to bury it.
+ - No wonder. Puerto Rican, Italian and Cuban – the perfect ingredients for a hot, bossy, badass cocktail.
+ - Honest to Christ, give you anything. Anything, baby. But lost enough time. Can’t give you that. Space, maybe. Time. No.
+ - Seriously, I don’t care if feminists hunt me down and burn me at the stake, that man crooked his finger at me, I’d follow him into a bank and rob it at his side.
+ - You got one life, never use it just to breathe.
+ - Liar. You’ve loved me since I held your hand at your mother’s memorial service when you were five years old.
+ - My life was over, finished, and I’d never seen Pearl Jam play live.
+ - Rule Number One in the India Savage Life Code: When in doubt or possible trouble, lie.
+ - Ava you missed it when it happened so I’ll clue you in. Last night, around the time you fell asleep against me, you became mine.
+ - Then she declared loudly, “Smoke break!” and everyone’s eyes came to us, some of them shocked seeing as these days you could light up a doobie and no one would blink but if you lit up a smoke, you courted being publicly stoned to death.
+ - Bottom line, you didn’t take care of what was yours. Now, as Nina has explained, you’ve lost it, I found it and it’s mine.
+ - God, if he wasn’t so handsome, strong, sometimes sweet, didn’t have a Harley, that beard, a tendency to play with my hair, didn’t look so good in jeans and wasn’t so danged good in bed, he would seriously not be worth it.
+ - At the sight and realisation that I was sleeping next to a naked Liam Nightingale, I’m not embarrassed to admit, I think I had a mini-orgasm.
+ - Your grandmother used to say that you were two souls separated in heaven. She mainly meant you were both trouble and deserved each other.
+ - At your back, baby, now and always.
+ - If I could have wished what I thought was my perfect mate on the wind and had her come back to me in a storm, I could never have come up with anything as exquisite as you.
+ - And I wake up happy, baby, because I possess beauty and I own that beauty in all the forms it can take and the least important of those are physical.
+ - Tack studied him. Then quietly, he stated, “She’s my only daughter, man.” “And she’s the only woman I’ve ever loved, Tack,” Shy shot back instantly.
+ - Honey, you haven’t even kissed me yet.
+ - I prefer your smiles and laughter, wife, but there are far worse things than your tears wetting my skin.
+ - I’m not going to work in a place where I can’t eat donuts.
+ - Sweet Pea, the way you eat means you got tits and ass. This is good because I like tits and ass. This is bad because Tack and Lawson like ’em just as much as me. Then he shoved his noodles and veg into his mouth and said with his mouth full, Tack maybe more.
+ - May feel like you’re falling’, Tabby, but remember, I’m at the bottom ready to catch you.
+ - Just so I’m clear, if you make it Tab or my cut, I pick Tab. You’ll get my cut and you, personally, will not ever, brother, not ever again see me.
+ - Hate no one, for hate is a starving beast who has just found its prey.
+ - Thank you for keeping it a secret. There aren’t many of those in this tribe.
+ - We’re not exactly together and were not, not together. We’re in together-limbo. We’re test-driving together to see if we want to buy it.
+ - My futon was a fancy one with armrests and everything. It was a pain in the ass to get open because it weighed a ton. I figured I’d made the bed when Luke got back. He’s probably be able to pull it out by glaring at it.
+ - I can’t function around a man if I know his ability to give pleasure.
+ - The perfect I was looking for wasn’t perfection. The perfect I was looking for was the one. And he was you.
+ - Hate is not a feeling toward another, but a feeling of defeat by another.
+ - The hot-o-meter started ringing like crazy as hot guys descended on me, my car and Tack from two directions. Boy was I glad I curled my hair.
+
+54 quotes

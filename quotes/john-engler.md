@@ -1,0 +1,38 @@
+ - You win by working hard, making tough decisions and building coalitions.
+ - Manufacturers account for nearly 60 percent of all industrial research and development.
+ - Sometimes it is better to begin the journey, to get under way, then it is to sit back and wait until such time that you’re convinced that all conditions are perfect and that there’ll be no surprises along the route.
+ - I have an old saying that the harder I work, the luckier I get.
+ - Redistricting is one of the purest actions a legislative body can take.
+ - Ive been in the legislative branch and now the executive branch and in each case I felt it was important we use our constitutional responsibilities to the fullest.
+ - We have broken the cycle of dependency. People have found out they’re better off working.
+ - While America’s infrastructure needs are substantial, there is no reason to delay completion of the highway bill. Every day of delay means jobs lost, investment opportunities missed and growth sacrificed.
+ - I care about the children of Detroit.
+ - The asbestos problem impacts everyone.
+ - Believe me, I’m not going to try to get into testing.
+ - I just have a position that any child that’s in a failing school should be able to get out, or be in a position to have that school fixed.
+ - The Clean Michigan Initiative has been and continues to be a success.
+ - I had made a decision early on that we were going to do the right things and that if they worked we were going to be very successful. And if for some reason they didn’t, all the claims and the protestations and the excuses wouldn’t make any difference.
+ - The current Michigan Constitution was written in 1961 and 62.
+ - The greatest luck that I’ve had has been the ability to find men and women who came into my administration who worked with me and brought extraordinary talents that we were able to take full advantage of.
+ - I don’t put labels on myself.
+ - We didn’t pass any constitutional amendments that affected the executive branch while I was governor.
+ - I created no authority that wasn’t already there under the constitution.
+ - I expect my next job to be outside government.
+ - Given the professionalism of Michigan teachers, I think they’re not teaching because of the financial rewards.
+ - Very few charter schools are being created in some of the best school districts in the state. If you’re an educational innovator, that isn’t where the greatest need is.
+ - And there should not be a limit on the creation of new public schools. We ought to expand choices for parents.
+ - Nobody gets any guarantees.
+ - I wish we could have acted quicker on Detroit or other failing schools.
+ - Manufacturers employ more than 14 million Americans doing what Americans do best, making things, building things, transforming raw materials into finished products.
+ - I’ve gone from being one of the youngest governors to now the longest consecutive serving governor in the country.
+ - As governor, I learned the importance of having an agenda.
+ - I’m very pleased with the job President Bush is doing and he’s off to a terrific start.
+ - I’m a compassionate conservative.
+ - As you look around the country there are still a significant number of states where their whole school debate is over school funding and we’ve been focused on the quality debate for most of the ’90s.
+ - The parent knows instinctively that if they’re working and setting an example for their child that means that child is more likely to be in school, more likely to stay out of trouble and more likely to complete their education.
+ - All 50 states had the same national economy. And on virtually any measurement you wish to look at, Michigan has moved up and improved against the others.
+ - I kept telling everyone I wasn’t going to Washington to stay. I go to visit.
+ - Michigan is also the only industrial state that has a AAA credit rating.
+ - I think we’ve got outstanding teaching in Michigan classrooms.
+
+36 quotes

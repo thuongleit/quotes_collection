@@ -1,0 +1,40 @@
+ - Losing love is like organ damage. It’s like dying. The only difference is, death ends. This? It can go on forever.
+ - Really, I don’t care if people think I’m too skinny. This is my body. If they don’t like it, screw it.
+ - Can you get any better than Patrick Dempsey? I don’t think so!
+ - I just don’t want to be self-obsessed.
+ - I’m the Renee Zellweger now. Jewel is the me now. There is no more Jewel.
+ - People love to watch a train wreck, I suppose.
+ - You know, Boston people are full of sauce.
+ - Women don’t take care of themselves because they take care of everybody else.
+ - If I’m bringing joy to people and entertaining people as an actor, then I should be grateful for that and act accordingly, you know?
+ - I want to teach my daughter the importance of exercising and eating healthy as she grows up.
+ - There’s a remarkable amount of sexism on TV. When male characters are flawed, they’re interesting, deep and complex. But when female characters are flawed, they’re just a mess. It’s good to put more flawed but interesting female characters out there because it promotes equality.
+ - The older you get the more realistic it is that you’re significant other is your significant other. I mean, you’ll always have your girlfriends or your guy friends, but the person you’re married to is usually your No. 1.
+ - I am who I am, a Southie.
+ - Happiness is not that easy to achieve, but having a handsome husband, a beautiful baby, and a great job helps.
+ - This is Hollywood. People don’t admit mistakes.
+ - My daily schedule is quite hectic, but I have to put my health first in order to be the best mom and wife I can be.
+ - Being a mother is the most fun job I’ve ever had.
+ - Being a mother is magical.
+ - I read a lot of nonfiction – especially books about the brain.
+ - I’m not saving anybody’s life, I’m not a teacher, I’m not working for UNICEF. I don’t think I’m some big deal.
+ - Dr. McDreamy, that’s what I call Patrick’s character. He’s gorgeous, he’s got a great body and he’s got damn fine hair.
+ - I don’t believe in putting on airs. I call it like I see it.
+ - Thank god Shonda Rhimes had this agenda to make television look like life, to make it look like the real world.
+ - You can’t really judge characters, because that’s when it gets really hard to play them.
+ - Medicine is so fascinating.
+ - Acting can be an amazingly cathartic thing – especially for young girls.
+ - Where I come from, you don’t just say, ‘Oh, I’m going to become an actor.’ Talk like that and they think you’re crazy.
+ - It’s easy to get lost in the baby. You have to make sure you give your husband attention.
+ - My mother came from an Irish family of 11 kids and, of course, had a sister who was a nun, so I spent time at a convent and with an aunt and uncle who lived in New York and took me to the theater.
+ - I was never a person who was introduced to junk food.
+ - Desire leaves us heartbroken; it wears us out.
+ - I think for any actor to say they don’t like attention is ridiculous. Of course we love attention. But getting attention is different than pretending the attention means something.
+ - Learning about the way people process information and their emotions is hugely helpful to my work.
+ - I don’t like everybody who I see on TV.
+ - Cancer is something that touches everyone’s lives.
+ - I went up a pants size during my pregnancy.
+ - The trap is when you start to pay attention to that stuff and care, because in six months, they’re going to be looking at someone else. You know how fickle everyone is. They love it, then they hate it, then they love it. So I’m going to enjoy it because it could be over at any minute.
+ - I just worry about the girls who look up to me. I don’t want them to think I starve myself or don’t eat, and that to be like me that’s what they have to do.
+
+38 quotes

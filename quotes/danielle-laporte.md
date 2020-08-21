@@ -1,0 +1,96 @@
+ - Don’t let your want for perfection become procrastination.
+ - Can you remember who you were, before the world told you who you should be?
+ - Your curiosity is your growth point. Always.
+ - Launch and learn. Everything is progress.
+ - You will always be too much of something for someone: too big, too loud, too soft, too edgy. If you round out your edges, you lose your edge. Apologize for mistakes. Apologize for unintentionally hurting someone – profusely. But don’t apologize for being who you are.
+ - Your life unfolds in proportion to your courage.
+ - Pull over to the side of your journey and look how far you’ve come.
+ - Feeling good is the primary intention.
+ - Passion will always move you in the direction of your authentic self.
+ - Going with the flow is responding to cues from the universe. When you go with the flow, you’re surfing Life force. It’s about wakeful trust and total collaboration with what’s showing up for you.
+ - Forget about being impressive and commit to being real.
+ - Surprise your doubts with action.
+ - Gratitude puts everything into perspective.
+ - Your success will be determined by the quality of your relationships with people.
+ - Value inner attunement as much as you value outer attainment.
+ - Joy is the most Magnetic Force in the Universe!
+ - Almost any decision is better than no decision – just keep moving.
+ - The journey has to feel the way you want the destination to feel.
+ - Whatever is on your plate got there because you said yes to it.
+ - Make space in your life for the inevitable arrival of what you want.
+ - Nobody can tell your story the way you can tell your story.
+ - Shift your energy from protecting yourself from failure to squeezing the life out of life.
+ - First. get clear on how you want to feel. Then, do stuff that makes you feel that way.
+ - Feel free to change. When you discover something true about yourself, put it in action regardless of who you were yesterday.
+ - If knowledge is power, then curiosity is the muscle.
+ - Make Money a CENTRAL priority. This has nothing to do with greed and consumption and everything to do with life force and power.
+ - If you round out your edges, you lose your edge.
+ - Small, deliberate actions inspired by your true desires create a life you love.
+ - The moment you say yes to acting on your desire is the real beginning.
+ - Knowing how you actually want to feel is the most potent form of clarity that you can have.
+ - You can only do what ONLY YOU can do. Do that. The universe will configure around your very best efforts. Willingly.
+ - If it doesn’t light you up, you’re not the right person for the job.
+ - Your passion is your qualification. It’s your leading qualification.
+ - Give it your all. Give it away. Your desires are being held in the hand of the cosmos with incredibly sturdy care. Life is not testing you. She is rooting for you.
+ - Laying on the floor and listening to music might be all the therapy that you need.
+ - Can you remember who you were...
+ - Happiness is like rising bubbles – delightful and inevitably fleeting. Joy is the oxygen – ever present.
+ - Someone you haven’t met yet is already dreaming of adoring you.
+ - Speak the truth. Affirm your desire. Declare your intentions. Recall your successes. Your psyche will believe you. Your body will feel you. Your Soul will thank you for the straight-up communication.
+ - Sometimes, you need to stop taking your medicine to let your body heal itself. Sometimes, you need to pause so you can move forward. Sometimes, you need to turn away from something so you can see why you fell in love in the first place.
+ - The gratitude you receive from others is a reflection of your genius.
+ - Passionately protest mediocrity.
+ - You don’t have to be fearless. Just be sincere.
+ - Being your true self is the most effective formula for success there is.
+ - Make generosity part of your growth strategy.
+ - When you put your preferences on the altar of your life and say: THIS. THIS is what compels me. The real you emerges.
+ - Enthusiasm is the DNA of making things happen.
+ - If you try to keep your most sacred ambitions off of your weekly calendar and your most genuine traits off of your resume, then you’re missing out on the power of real integrity.
+ - The best place to begin is always with gratitude.
+ - Start leaving what you want to leave. Your future is waiting.
+ - You don’t need to be burned out to go on hiatus.
+ - Love the necessary hard work.
+ - You always have access to your truth. You always have access to the divine feminine.
+ - Decide to get over it. You know, just let it go. It can be that simple.
+ - Gratitude is like love or fresh air – you can’t get too much of it.
+ - Joy is the clearest indicator of deep wellness.
+ - The world reflects back to you how much you value yourself.
+ - Gratitude is an astoundingly reliable, immediate way of becoming present.
+ - What you stop doing is just as important as the things you start doing.
+ - Your most valuable currency is what comes most naturally to you. Cash in!
+ - If your goals aren’t synced with the substance of your heart, then achieving them won’t matter much.
+ - The cosmos deals in the currency of emotion. When we feel good, goodness flows.
+ - I want to surrender to the feelings and shapes of words and not stop until I am clearly heard by myself and my God.
+ - Enthusiasm is a heightened state of consciousness, and it’s one of the best feelings there is to feel.
+ - You need to be comfortable to make others uncomfortable.
+ - I would rather get out of the game than stay in the game to change the game.
+ - I can’t help you. Not really. I can only show up with a bright heart and hope that I get you at the right micro-moment with the perfect dose of light that helps you see what you already know.
+ - It’s not the imbalances of life that will get you down-it’s doing meaningless things that aren’t taking you where you want to go.
+ - There is nothing as easy as being inspired.
+ - The cosmos doesn’t measure sweat and hours for reward. The cosmos deals in the currencies of joy and satisfaction.
+ - If you trusted that your art was going to support your life, how would you live?
+ - I only want to hit my targets if the aiming and the hitting both feel good.
+ - The secret to success: Do what you say you’re going to do.
+ - My friend and coach reminded me this week that there is a moment when the acrobat lets go of one trapeze and is completely suspended in mid-air before she catches the incoming rung. You have to let go to get there.
+ - What if desire wasn’t an urge to be tamed, but a beacon of truth to be followed?
+ - It’s a great privilege to dream.
+ - People magazine with a bag of sour cream and onion chips always makes be feel a bit trashy. But good trashy.
+ - Determination can be a battle or a thrill. Choose to be thrilled.
+ - But what if we took it one step further and made an effort to actually transform our pain into something beautiful? What if we went full out and made an effort to transform other people’s pain into something beautiful?
+ - It’s not about the goal, it’s about how you want to feel when you get there.
+ - Admit to your contentment so it can tip over into joy.
+ - In my experience, if you steer clear of dogma and muster up more love than you thought you had to give, then your vitality increases, satisfaction sets in, sweetness surfaces. I believe in the creative power of good feelings. I’m convinced that the desire to be real is everyone’s divine imperative.
+ - Eventually, you have to stop picking a fight with your true nature and decide to seek the joy that underlies it all.
+ - The surest sign that you’re working with the life-affirming kind of discipline, rather than the spirit-depressing kind, is that you don’t complain very much about doing what it takes.
+ - I focus for periods of time on creative work and I’m very insular during those times – not a lot of socializing. I play when I want. That means I can take off on a retreat, catch a matinee, make friends. My core desired feelings are my time management system.
+ - When I’m speaking on stage I feel my most empowered and my most vulnerable. So much could go wrong. That tension is such a rush.
+ - There’s a time and purpose for being lost. If you don’t judge the being lost you get through it sooner.
+ - Your desires will very often be contradictory and so will your strengths. All of our contradictions make us whole.
+ - We must have the daring to be nothing but ourselves if we are to know what true power is.
+ - You will fail. At some point. More than once. Guaranteed. Proceed anyway.
+ - If you’re making art, you are not separate from your brand.
+ - Set out to do three or four things this year with gusto and excellence, rather than doing a dozen things just sufficiently. Trust me on this.
+ - Prana is more powerful than just about anything – food, exercise, skin creams, and Spanx.
+ - I know how to go, go, go. Stopping, I’ve learned is the stuff of mastery.
+
+94 quotes

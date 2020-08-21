@@ -1,0 +1,23 @@
+ - All gave some, Some gave all.
+ - Don’t tell my heart, my achy breaky heart, I just don’t think it’d understand.
+ - He’ll get tired of chasing someone who doesn’t chase back!
+ - But dreams move on, if you wait too long...
+ - If you’re going to stand up for Jesus, your life will be a battle between light and darkness. And for everything that God will bring into your life that represents the light, the devil-he’s such a sly fox-will come at you with two times more attributes of evil.
+ - Baby get ready, get set, please don’t go.
+ - Miley is always on, she’s always funny, she’s always writing songs, she’s always making music. The parallel of the film is like Miley says, going back to her home, going back to her roots. Getting back to Tennessee was art imitating life imitating art.
+ - I am and always will be a sinner. But that’s the beautiful thing about Jesus. I’ll always try to be a better person in the eyes of God. But I’m not all of a sudden stepping up on a pedestal and saying I’m holier than thou, ’cause I’m not!
+ - My grandfather was a Pentecostal preacher.
+ - There has always been a battle between good and evil.
+ - Ever since I was a kid, I’ve always been a real deep thinker and stuff.
+ - I’m so miserable without you, it’s almost as if you’re here!
+ - Miley would never have been Hannah Montana.
+ - The people at the record company had asked me if I could write a song about my life, my relationship with God, and where I’m from. Well, I can’t write a song on purpose, my songs come in a moment of inspiration or desperation.
+ - I always prayed that God would give me the wisdom and the vision to do the things on this earth that I was supposed to do to express His life and love and His will.
+ - Each person has their own calling on this Earth.
+ - Well, I’ve never left my faith – but have I made a lot of mistakes? But was I fortunate that I was brought up in that Pentecostal church, where I heard about God’s love and God’s forgiveness.
+ - I’m hungry for purpose. I’m looking for still that reason that I bought a guitar and started a band, to fulfill a purpose, to manifest destiny as to who I am and why I am the way I am, and what I do. I think it’s still about the music, the song and the story.
+ - A lot of people think Christianity is about always being perfect. It’s actually the opposite of that. It’s realizing that we’re all humans, and that’s why God sent his Son to this earth – to save people.
+ - I don’t think there’s any accidents in my life.
+ - You make that climb, take it step by step and hopefully the view is great. I try to be a friend for Miley. I know that’s not everyone’s parenting style. But I try to be a friend, a partner as a singer, actor, songwriter and let her be a teenage girl and do her thing.
+
+21 quotes

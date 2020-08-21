@@ -1,0 +1,36 @@
+ - We’re conditioned to think that our lives revolve around great moments. But great moments often catch us unaware – beautifully wrapped in what others may consider a small one.
+ - We live in a world alive with holy moments. We need only take the time to bring these moments into the light.
+ - Remember that you don’t choose love. Love chooses you. All you can really do is accept it for all its mystery when it comes into your life. Feel the way it fills you to overflowing, then reach out and give it away.
+ - It is not our task to judge the worthiness of our path; it is our task to walk our path with worthiness.
+ - It is much easier to become a father than to be one.
+ - Remember to be gentle with yourself and others. We are all children of chance and none can say why some fields will blossom while others lay brown beneath the August sun.
+ - The true measure of your education is not what you know, but how you share what you know with others.
+ - When you are here, you are here. When you are gone, you are gone. It isn’t a problem to be gone, so long as you are really here when you’re here.
+ - Love has its own time, its own season, and its own reasons from coming and going. You cannot bribe it or coerce it or reason it into staying. You can only embrace it when it arrives and give it away when it comes to you.
+ - You need to understand this. We did not think we owned the land. The land was part of us. We didn’t even know about owning the land. It is like talking about owning your grandmother – you can’t own your grandmother. She just is your grandmother. Why would you talk about owning her?
+ - The Buddhists have a story about blind men trying to describe an elephant by feeling it’s various parts, and each describes the elephant according to the part he touched. That is the way we can hope to know God.
+ - Life is an endlessly creative experience, and we are shaping ourselves at every moment by every decision we make.
+ - Something precious is lost if we rush headlong into the details of life without pausing for a moment to pay homage to the mystery of life and the gift of another day.
+ - Forgiveness is an embrace, across all barriers, against all odds, in defiance of all that is mean and petty and vindictive and cruel in this life.
+ - Our actions in this world, and our ability to rise above the limits of our own self-interest, live on far beyond us and play their humble part in shaping a world of spirituality and peace.
+ - Care less for your harvest than for how it is shared and your life will have meaning and your heart will have peace.
+ - You want to know how to be like indians? Live close to the earth. Get rid of some of your things. Help each other. Talk to the creator. Be quiet more. Listen to the earth instead of building things on it all the time.
+ - We may not all live holy lives, but we live in a world alive with holy moments.
+ - This is not to say that becoming a father automatically makes you a good father. Fatherhood, like marriage, is a constant struggle against your limitations and self-interests. But the urge to be a perfect father is there, because your child is a perfect gift.
+ - Money is central to our lives. Yet money is not of central importance. It has nothing whatsoever to do with the lasting values that make life worth living.
+ - We wake up one day and find we have lost our dreams in order to protect our days.
+ - My fatherhood made me understand my parents and to honor them more for the love they gave. My sonhood was revealed to me in its own perfection and I understood the reason the Chinese so value filiality, the responsibility of the son to honor the parents.
+ - Our brightest dreams and our greatest fears are just over the horizon.
+ - Great joys make us love the world. Great sadnesses make us understand the world.
+ - Forgiveness allows us to live in the sunlight of the present, not the darkness of the past. Forgiveness alone, of all our human actions, opens up the world to the miracle of infinite possibility.
+ - In a perfect world perhaps we would all see more clearly. But this is not a perfect world, and it is enough to hope that each of us will share our talents, and find the balance between greed and benevolence that will allow us to live and thrive and help the world around us grow.
+ - In times past there were rituals of passage that conducted a boy into manhood, where other men passed along the wisdom and responsibilities that needed to be shared. But today we have no rituals. We are not conducted into manhood; we simply find ourselves there.
+ - Do not fall prey to the false belief that mastery and domination are synonymous with manliness.
+ - This is important. Money on its most basic level is a hard fact – you either have it or you don’t. But on it’s emotional level it is purely a fiction. It becomes what you let it become.
+ - Our life is a work of art. We must seek always to be its artist.
+ - We must find a way to replace yearning for what life has withheld from us with gratitude for what we have been given.
+ - We humans are destined to live with our feet on the earth and our heads in the heavens, and we can never be at peace because we are pulled both ways.
+ - But no matter how they make you feel, you should always watch elders carefully. They were you and you will be them. You carry the seeds of your old age in you at this very moment, and they hear the echoes of their childhood each time they see you.
+ - We are born male. We must learn to be men.
+
+34 quotes

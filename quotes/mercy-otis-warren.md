@@ -1,0 +1,29 @@
+ - Great advantages are often attended with great inconveniences, and great minds called to severe trials.
+ - The origin of all power is in the people, and they have an incontestable right to check the creatures of their own creation.
+ - The rights of the individual should be the primary object of all governments.
+ - The waves have rolled upon me, the billows are repeatedly broken over me, yet I am not sunk down.
+ - The balm of life, a kind and faithful friend.
+ - A declaration of the independence of America, and the sovereignty of the United STates was drawn by the ingenious and philosophic pen of Thomas Jefferson, Esquire, a delegate from the state of Virginia.
+ - The study of the human character opens at once a beautiful and a deformed picture of the soul.
+ - I am more and more convinced, of the propensity in human nature to tyranize over their fellow men...
+ - Democratic principles are the result of equality of condition.
+ - No republic ever yet stood on a stable foundation without satisfying the common people.
+ - Public emergencies may require the hand of severity to fall heavily on those who are not personally guilty, but compassion prompts, and ever urges to milder methods.
+ - To learn to die is an heroic work.
+ - The progress of the American Revolution has been so rapid and such the alteration of manners, the blending of characters, and the new train of ideas that almost universally prevail, that the principles which animated to the noblest exertions have been nearly annihilated.
+ - But in the hero ne’er forget the man.
+ - The United States form a young republic, a confederacy which ought ever to be cemented by a union of interests and affection, under the influence of those principles which obtained their independence.
+ - On the evening of December 25, General Washington in a most severe season crossed the Delaware with a part of his army, then reduced to less than 2000 men in the whole.
+ - The love of domination and an uncontrolled lust of arbitrary power have prevailed among all nations and perhaps in proportion to the degrees of civilization.
+ - By the Declaration of Independence, dreaded by the foes an for a time doubtfully viewed by many of the friends of America, everything stood on a new and more respectable footing, both with regard to the operations of war or negotiations with foreign powers.
+ - The defeat of the Americans in Canada and the advantages gained by the British arms in the Jerseys, and indeed for some months in every other quarter, gave to the royal cause an air of triumph.
+ - The honorable William Penn, late governor of Pennsylvania, was chosen agent to the Court of Britain, and directed to deliver the petition to the King himself and to endeavor by his personal influence to procure a favorable reception to this last address.
+ - It may be a mistake, that man, in a state of nature, is more disposed to cruelty than courtesy.
+ - The bulk of mankind have indeed, in all countries in their turn, been made the prey of ambition.
+ - A superfluity of wealth, and a train of domestic slaves, naturally banish a sense of general liberty, and nourish the seeds of that kind of independence that usually terminates in aristocracy.
+ - The British were indeed very far superior to the Americans in every respect necessary to military operations, except the revivified courage and resolution, the result of sudden success after despair.
+ - But truth is most likely to be exhibited by the general sense of contemporaries, when the feelings of the heart can be expressed without suffering itself to be disguised by the prejudices of man.
+ - General Washington had rather incautiously encamped the bulk of his army on Long Island – a large and plentiful district about two miles from the city of New York.
+ - Before this address to my countrymen is closed, I beg leave to observe, that as a new century has dawned upon us, the mind is naturally led ot contemplate the great events that have run parallel with and have just closed the last.
+
+27 quotes

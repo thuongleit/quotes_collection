@@ -1,0 +1,56 @@
+ - Old art offers just as good a criticism of new art as new art offers of old.
+ - To be an artist you have to give up everything, including the desire to be a good artist.
+ - I would tend to say that I do what I do as well as possible and that most people don’t.
+ - One likes to think that one anticipates changes in the spaces we inhabit, and our ideas about space.
+ - I am not strong on perfection.
+ - Art is either a complaint or appeasement.
+ - To me, self-description is a calamity.
+ - Generally, I am opposed to painting which is concerned with conceptions of simplicity. Everything looks busy to me.
+ - I don’t want my work to be an exposure of my feelings.
+ - I feel that works of art are an opportunity for people to construct meaning, so I don’t usually tell what they mean. It conveys to people that they have to participate.
+ - It’s simple, you just take something and do something to it, and then do something else to it. Keep doing this, and pretty soon you’ve got something.
+ - I think that one wants from a painting a sense of life. The final suggestion, the final statement, has to be not a deliberate statement but a helpless statement. It has to be what you can’t avoid saying.
+ - I assumed that everything would lead to complete failure, but I decided that didn’t matter – that would be my life.
+ - When you work you learn something about what you are doing and you develop habits and procedures out of what you’re doing.
+ - One night I dreamed that I painted a large American flag, and the next morning I got up and I went out and bought the materials to begin it.
+ - I’m not looking for images, They just appear and take on an interest. Sometimes you look at a thing and it has no interest and then you see it in a different way and it has another meaning. Or something that was of no use will become useful.
+ - A picture ought to be looked at the same way you look at a radiator.
+ - I think a painting should include more experience than simply intended statement.
+ - Cubism is an anatomical chart of a way of seeing external objects. But I want to confuse the meaning of the act of looking.
+ - Take an object. Do something to it. Do something else to it.
+ - Art as a fantasy has been one of my earliest experiences. I suppose a lot of my childhood was a fantasy that involved getting away from things I didn’t like. Fortunately it had some relationship to reality so that later I was able to, to some extent, act as I imagined I might.
+ - There may or may not be an idea, and the meaning may just be that the painting exists.
+ - I don’t know how to organise thoughts. I don’t know how to have thoughts.
+ - There was very little art in my childhood.
+ - I decided that if my work contained what I could identify as a likeness to other work, I would remove it.
+ - To do a drawing for a painting most often means doing something very sketchy and schematic and then later making it polished.
+ - I love drawings, so I’ve always enjoyed making drawings that exist on their own.
+ - Everybody is of course free to interpret the work in his own way., I think seeing a picture is one thing and interpreting it is another.
+ - I have no ideas about what the paintings imply about the world. I don’t think that’s a painter’s business. He just paints paintings without a conscious reason.
+ - Every artist feels alone and isolated, Friends are very important in terms of all sorts of definitions of oneself. They tell you what you are and what they are aside from the intellectual aspects.
+ - I am just trying to find a way to make pictures.
+ - I never wish for critics.
+ - Working is very important to me. Probably because as a child I was taught that work was good. I don’t believe it intellectually but I identify with that idea. So it’s probably just like a habit.
+ - There was very little art in my childhood. I was raised in South Carolina; I wasn’t aware of any art in South Carolina. There was a minor museum in Charleston, which had nothing of interest in it. It showed local artists, paintings of birds.
+ - One wants one’s work to be the world, but of course it’s never the world. The work is in the world; it never contains the whole thing.
+ - I have meant what I have done. Or I have often meant what I have done. Or I have sometimes meant what I have done. Or I have tried to mean what I was doing.
+ - It’s almost just a difference of mood as to whether I would describe myself one way or the other. I think I share that experience with most people.
+ - Bend color names which should be made of neon or copper tubing. Place an object on a surface – trace the object – then bend the object – leaving some part of it attached.
+ - I think through living one’s life, one both changes and remains the same. One can see it either way, one can see oneself as being now what one was and one can see oneself as being absolutely different from what one was. It’s a trick of thought.
+ - I tend to like things that already exist.
+ - Intention involves such a small fragment of our consciousness and of our mind and of our life.
+ - That’s what painting does; it organizes vision in a certain way or suggests that certain things be paid attention to and certain other things not be paid attention to. It functions in that way to a certain extent in our civilization.
+ - When something is new to us, we treat it as an experience. We feel that our senses are awake and clear. We are alive.
+ - I’m working in my mind.
+ - Early on I was very involved with the notion of the painting as an object and tended to attack that idea from different directions.
+ - Whatever I do seems artificial and false, to me.
+ - The thing is, if you believe in the unconscious – and I do – there’s room for all kinds of possibilities that I don’t know how you prove one way or another.
+ - In the place where I was a child, there were no artists and there was no art, so I really didn’t know what that meant. I think I thought it meant that I would be in a situation different than the one that I was in.
+ - I’m not sure what ‘coming out right’ means. It often means that what you do holds a kind of energy that you wouldn’t just put there, that comes about through grace of some sort.
+ - I would like to have insights into things like government, all those big ideas that you brought up that I simply don’t have ideas about. I would like to be able to since so many people discuss them, but I don’t want to work at them. I don’t think my ambition is that strong in that direction.
+ - Sometimes I see it and then paint it. Other times I paint it and then see it. Both are impure situations, and I prefer neither. At every point in nature there is something to see. My work contains similar possibilities for the changing focus of the eye.
+ - As one gets older one sees many more paths that could be taken. Artists sense within their own work that kind of swelling of possibilities, which may seem a freedom or a confusion.
+ - One works without thinking how to work.
+ - I often find that having an idea in my head prevents me from doing something else. Working is therefore a way of getting rid of an idea.
+
+54 quotes

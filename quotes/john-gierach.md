@@ -1,0 +1,30 @@
+ - Fly-fishing is solitary, contemplative, misanthropic, scientific in some hands, poetic in others, and laced with conflicting aesthetic considerations. It’s not even clear if catching fish is actually the point.
+ - Lawyers are like nuclear weapons. By all rights they shouldn’t exist, but if some people have them, then you’d better have one, too, just in case.
+ - The best fisherman I know try not to make the same mistakes over and over again; instead they strive to make new and interesting mistakes and to remember what they learned from them.
+ - The solution to any problem -work, love, money, whatever -is to go fishing, and the worse the problem, the longer the trip should be.
+ - If people don’t occasionally walk away from you shaking their heads, you’re doing something wrong.
+ - Creeps and idiots cannot conceal themselves for long on a fishing trip.
+ - Accurately recalling an entire day of fishing is like trying to push smoke back down a chimney, so you settle on these specific moments.
+ - I used to like fishing because I thought it had some larger significance. Now I like fishing because it’s the one thing I can think of that probably doesn’t.
+ - Maybe your stature as a fly fisherman isn’t determined by how big a trout you can catch, but by how small a trout you can catch without being disappointed.
+ - I think I fish, in part, because it’s an anti-social, bohemian business that, when gone about properly, puts you forever outside the mainstream culture without actually landing you in an institution.
+ - Cell phones have changed us from a nation of self-reliant pioneer types into a bunch of men standing alone in supermarkets saying, ‘Okay, I’m in the tampon aisle, but I don’t see it.’
+ - It’s an odd fact of life that whichever side of the stream you’re on, two-thirds of the best water is out of reach on the other side.
+ - Trout aren’t naturally as selective as they’ve become in crowded tailwaters – they’ve been trained to be like that by too much fishing pressure. I’ve seen tailwater fish that are so hysterical they’ll refuse naturals. You wonder how they get enough to eat.
+ - Okay, I’m in the tampon aisle, but I don’t see it.
+ - I necessarily fear change except that it’s so seldom for the better. It’s just that I can live with any number of things going straight to hell as long as these streams continue to hold up. If this amounts to living in a fool’s paradise, don’t waste your time trying to explain that to the fool.
+ - Flyfishing does have its social aspects – on some of our crowded trout streams it can get too social – but esentially it’s a solitary, contemplative sport. People are left alone with themselves in beautiful surroundings to try to accomplish something that seems to have genuine value.
+ - Fish sense, applied in the field, is what the old Zen masters would call enlightenment: simply the ability to see what’s right there in front of you without having to sift through a lot of thoughts and theories and, yes, expensive fishing tackle.
+ - They say you forget your troubles on a trout stream, but that’s not quite it. What happens is that you begin to see where your troubles fit into the grand scheme of things, and suddenly they’re just not such a big deal anymore.
+ - Something to think about: If you fish the wrong fly long and hard enough, it will sooner or later become the right fly.
+ - The things fishermen know about trout aren’t facts but articles of faith.
+ - I still enjoy the company of most dogs more than that of most people, because dogs are capable of uncomplicated enthusiasm.
+ - Sure, it was your idea and your fly, but he caught the big fish. Remember, fairness is a human idea largely unknown in nature.
+ - Successful trout fishing isn’t a matter of brute force or even persistence, but something more like infiltration.
+ - Fishing in rainy conditions may make fisherman seem crazy to the great mass of unimaginative people, but then few fishermen care what they think.
+ - Luckily, though, there are still a few guys around who will look you straight in the eye and say, eloquently and to the point, ‘It’s been too goddamned hot for too long and the river has gone off.’
+ - Fly tackle has improved considerably since 1676, when Charles Cotton advised anglers to ‘fish fine and far off,’ but no one has ever improved on that statement.
+ - I don’t really know how to tie a fly until I’ve tied a hundred dozen of them.
+ - We do have to think seriously about conservation now, although it is chilling to realize there are catch-and-release fishermen alive today who don’t know how to clean and fry a fish.
+
+28 quotes

@@ -1,0 +1,69 @@
+ - Words can sting like anything, but silence breaks the heart.
+ - In a successful marriage, there is no such thing as one’s way. There is only the way of both, only the bumpy, dusty, difficult, but always mutual path.
+ - Stir the eggnog, lift the toddy, Happy New Year everybody.
+ - A bookworm in bed with a new novel and a good reading lamp is as much prepared for pleasure as a pretty girl at a college dance.
+ - The human animal needs a freedom seldom mentioned, freedom from intrusion. He needs a little privacy as much as he wants understanding or vitamins or exercise or praise.
+ - What in me is pure conviction is simple prejudice in you.
+ - A hobby a day keeps the doldrums away.
+ - This is the gist of what I know: Give advice and buy a foe.
+ - God know that a mother need fortitude and courage and tolerance and flexibility and patience and firmness and nearly every other brave aspect of the human soul.
+ - A mother’s hardest to forgive. Life is the fruit she longs to hand you Ripe on a plate. And while you live, Relentlessly she understands you.
+ - A bit of trash now and then is good for the severest reader. It provides the necessary roughage in the literary diet.
+ - It’s this no-nonsense side of women that is pleasant to deal with. They are the real sportsmen.
+ - When blithe to argument I come, Though armed with facts, and merry, May Providence protect me from The fool as adversary, Whose mind to him a kingdom is Where reason lacks dominion, Who calls conviction prejudice And prejudice opinion.
+ - The knowingness of little girls, is hidden underneath their curls.
+ - There are books that one needs maturity to enjoy just as there are books an adult can come on too late to savor.
+ - The saints differ from us in their exuberance, the excess of our human talents. Moderation is not their secret. It is in the wildness of their dreams, the desperate vitality of their ambitions, that they stand apart from ordinary people of good will.
+ - The Enemy, who wears her mother’s usual face and confidential tone, has access; doubtless stares into her writing case and listens on the phone.
+ - Ah, snug lie those that slumber Beneath Conviction’s roof. Their floors are sturdy lumber, Their windows weatherproof. But I sleep cold forever And cold sleep all my kind, For I was born to shiver In the draft from an open mind.
+ - Those wearing Tolerance for a label call other views intolerable.
+ - To be a housewife is a difficult, a wrenching, sometimes an ungrateful job if it is looked on only as a job. Regarded as a profession, it is the noblest as it is the most ancient of the catalogue. Let none persuade us differently or the world is lost indeed.
+ - A lover would find life less broken apart after a misguided love affair if they could feel that they had been sinful rather than foolish.
+ - Pressed for rules and verities, All i recolelct are these: Feed a cold and starve a fever. Argue with no true believer. Think-too-long is never-act. Scratch a myth and find a fact.
+ - Of one thing I am certain, the body is not the measure of healing, peace is the measure.
+ - Getting along with men isn’t what’s truly important. The vital knowledge is how to get along with one man.
+ - I do not know who first invented the myth of sexual equality. But it is a myth willfully fostered and nourished by certain semi-scientists and other fiction writers. And it has done more, I suspect, to unsettle marital happiness than any other false doctrine of this myth-ridden age.
+ - Seventy is wormwood, Seventy is gall But its better to be seventy, Than not alive at all.
+ - Oh, high is the price of parenthood, and daughters may cost you double. You dare not forget, as you thought you could, that youth is a plague and a trouble.
+ - The successful truck gardener can never go out to dinner in the summer or spend a week end away, because his conscience tells him he has to be at home eating up his corn or packaging his beans for the freezer.
+ - Sons do not need you. They are always out of your reach, Walking strange waters.
+ - I have read that during the process of canonization the Catholic Church demands proof of joy in the candidate, and although I have not been able to track down chapter and verse I like the suggestion that dourness is not a sacred attribute.
+ - The wonderful thing about saints is that they were human. They lost their tempers, got hungry, scolded God, were egotistical or impatient in their turns, made mistakes and regretted them. Still they went on doggedly blundering toward heaven.
+ - The mass of men live lives of quiet exasperation.
+ - A lady is smarter than a gentleman, maybe, she can sew a fine seam, she can have a baby, she can use her intuition instead of her brain, but she can’t fold a paper in a crowded train.
+ - These are my daughters, I suppose. But where in the world did the children vanish?
+ - Happiness puts on as many shapes as discontent, and there is nothing odder than the satisfaction of one’s neighbor.
+ - Praise is warming and desirable. But it is an earned thing. It has to be deserved, like a hug from a child.
+ - Children from ten to twenty don’t want to be understood. Their whole ambition is to feel strange and alien and misinterpreted so that they can live austerely in some stone tower of adolescence, their privacies unviolated.
+ - Of course we women gossip on occasion. But our appetite for it is not as avid as a man s. It is in the boys gyms, the college fraternity houses, the club locker rooms, the paneled offices of business that gossip reaches its luxuriant flower.
+ - Compromise, if not the spice of life, is its solidity. It is what makes nations great and marriages happy.
+ - Time is the thief you cannot banish.
+ - Meek-eyed parents hasten down the ramps To greet their offspring, terrible from camps.
+ - Borrow my umbrellas, my clothes, my money, and I will likely not think of them again. But borrow my books and I will be on your track like a bloodhound until they are returned.
+ - The ability to forget a sorrow is childhood’s most enchanting feature.
+ - Sisters are always drying their hair. Locked into rooms, alone, they pose at the mirror, shoulders bare, trying this way and that their hair, or fly importunate down the stair to answer the telephone.
+ - Say what you will, making marriage work is a woman’s business. The institution was invented to do her homage; it was contrived for her protection. Unless she accepts it as such – as a beautiful, bountiful, but quite unequal association – the going will be hard indeed.
+ - If childhood is still a state, it is now chiefly a state of confusion.
+ - People are no longer sinful, they are only immature or underprivileged or frightened or, more particularly, sick.
+ - Not reading poetry amounts to a national pastime here.
+ - Gardening has compensations out of all proportion to its goals. It is creation in the pure sense.
+ - Gossip isn’t scandal and it’s not merely malicious. It’s chatter about the human race by lovers of the same. Gossip is the tool of the poet, the shop-talk of the scientist, and the consolation of the housewife, wit, tycoon and intellectual. It begins in the nursery and ends when speech is past.
+ - Please to put a nickel, please to put a dime. How petitions trickle in at Christmas time!
+ - Marriage is a lot of things-an alliance, a sacrament, a comedy, or a mistake; but it is definitely not a partnership because that implies equal gain. And every right-thinking woman knows the profit in matrimony is by all odds hers.
+ - Gossip isn’t scandal and it’s not merely malicious. It’s chatter about the human race by lovers of the same.
+ - Say what you will, making a marriage work is a woman’s business.
+ - It is the leisured, I have noticed, who rebel the most at an interruption of routine.
+ - Marriage was all a woman’s idea and for man’s acceptance of the pretty yoke, it becomes us to be grateful.
+ - Nothing fails like success; nothing is so defeated as yesterday’s triumphant Cause.
+ - O, merry is the Optimist, With the troops of courage leaguing. But a dour trend In any friend Is somehow less fatiguing.
+ - One applauds the industry of professional philanthropy. But it has its dangers. After a while the private heart begins to harden. We fling letters into the wastebasket, are abrupt to telephoned solicitations. Charity withers in the incessant gale.
+ - History must always be taken with a grain of salt. It is, after all, not a science but an art...
+ - The East is a montage. It is old and it is young, very green in summer, very white in winter, gregarious, withdrawn and at once both sophisticated and provincial.
+ - There is satisfaction in seeing one’s household prosper; in being both bountiful and provident.
+ - Women are not men’s equals in anything except responsibility. We are not their inferiors, either, or even their superiors. We are quite simply different races.
+ - The trouble with gardening is that is does not remain an avocation. It becomes an obsession.
+ - Children are forced to live very rapidly in order to live at all. They are given only a few years in which to learn hundreds of thousands of things about life and the planet and themselves.
+ - Frigidity is largely nonsense. It is this generation’s catchword, one only vaguely understood and constantly misused. Frigid women are few. There is a host of diffident and slow-ripening ones.
+ - Meanness inherits a set of silverware and keeps it in the bank. Economy uses it only on important occasions, for fear of loss. Thrift sets the table with it every night for pure pleasure, but counts the butter spreaders before they are put away.
+
+67 quotes

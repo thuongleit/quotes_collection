@@ -1,0 +1,109 @@
+ - The conservation of nature, the proper care for the human environment and a general concern for the long-term future of the whole of our planet are absolutely vital if future generations are to have a chance to enjoy their existence on this earth.
+ - Why don’t you go and live in a hostel to save cash?
+ - Cannibalism is a radical but realistic solution to the problem of overpopulation.
+ - Change does not change tradition, it strengthens it. Change is a challenge and anopportunity, not a threat.
+ - Cats kill far more birds than men. Why don’t you have a slogan: ‘Kill a cat and save a bird?’
+ - You bloody silly fool!
+ - My favourite subject at school was avoiding unnecessary work.
+ - Dontopedalogy is the science of opening your mouth and putting your foot in it, which I’ve practised for many years.
+ - So this is feminist corner then.
+ - If we could just stop the tourism, we could stop the congestion.
+ - I would like to go to Russia very much – although the bastards murdered half my family.
+ - If you travel as much as we do, you appreciate the improvements in aircraft design of less noise and more comfort – provided you don’t travel in something called economy class, which sounds ghastly.
+ - If I were reincarnated I would wish to be returned to Earth as a killer virus to lower human population levels.
+ - If it doesn’t fart or eat hay, she isn’t interested.
+ - A gun is no more dangerous than a cricket bat in the hands of a madman.
+ - When a man opens a car door for his wife, it’s either a new car or a new wife.
+ - People think there’s a rigid class system here, but dukes have been known to marry chorus girls. Some have even married Americans.
+ - They have eating dogs for the anorexic now.
+ - I don’t think a prostitute is more moral than a wife, but they are doing the same thing.
+ - The man who invented the red carpet needed his head examined.
+ - In the event that I am reincarnated, I would like to return as a deadly virus, in order to contribute something to solve overpopulation.
+ - You’re just a silly little Whitehall twit: you don’t trust me and I don’t trust you.
+ - You look like you’re ready for bed!
+ - I never see any home cooking – all I get is fancy stuff.
+ - Oh no, I might catch some ghastly disease.
+ - People say after a fire it’s water damage that’s the worst. We’re still drying out Windsor Castle.
+ - Aren’t most of you descended from pirates?
+ - A horse which stops dead just before a jump and thus propels its rider into a graceful arc provides a splendid excuse for general merriment.
+ - All money nowadays seems to be produced with a natural homing instinct for the Treasury.
+ - A few years ago, everybody was saying we must have more leisure, everyone’s working too much. Now everybody’s got more leisure time they’re complaining they’re unemployed. People don’t seem to make up their minds what they want.
+ - This could only happen in a technical college.
+ - I thought it was against the law for a woman to solicit.
+ - It’s a vast waste of space.
+ - We don’t come here for our health. We can think of other ways of enjoying ourselves.
+ - You have mosquitoes. I have the Press.
+ - It makes you all look like Dracula’s daughters!
+ - The French don’t know how to cook breakfast.
+ - Do you work in a strip club?
+ - How do you keep the natives off the booze long enough to pass the test?
+ - The more people there are, the more food we need, the more space we occupy, the more resources and consumer goods we wish to have and the more development has to take place.
+ - It’s a pleasure to be in a country that isn’t ruled by its people.
+ - Ah, you’re the one who wrote the letter. So you can write then?
+ - You ARE a woman, aren’t you?
+ - Can you tell the difference between them?
+ - The bastards murdered half my family.
+ - The world population 60 years ago was just over 2 billion and it’s now more than 6 billion. This huge increase – an explosion really – has probably done more harm to the environment than anything else.
+ - What about Tom Jones? He’s made a million and he’s a bloody awful singer.
+ - The biggest waste of water in the country by far. You spend half a pint and flush two gallons.
+ - Deaf? If you’re near there, no wonder you are deaf.
+ - It’s not a very big one, but at least it’s dead and it took an awful lot of killing!
+ - As so often happens, I discover that it would have been better to keep my mouth shut.
+ - We live in what virtually amounts to a museum – which does not happen to a lot of people.
+ - That’s more than you know about anything else then.
+ - It is an old cliche to say that the future is in the hands of the young. This is no longer true. The quality of life to be enjoyed or the existence to be survived by our children and future generations is in our hands now.
+ - Only a Scotsman can really survive a Scottish education.
+ - Well, you didn’t design your beard too well, did you?
+ - Do you still throw spears at each filmother?
+ - We don’t come here for our health.
+ - If you stay here much longer you’ll all be slitty-eyed.
+ - If it has four legs and is not a chair, has wings and is not an aeroplane, or swims and is not a submarine, the Cantonese will eat it.
+ - We are suffering a national defeat comparable to any lost military campaign, and what is more, it is self- inflicted? It is about time that we pulled our fingers out? The rest of the world most certainly does not owe us a living.
+ - Your country is one of the most notorious centres of trading in endangered species.
+ - In the days when the nation depended on agriculture for its wealth it made the Lord Chancellor sit on a woolsack to remind him where the wealth came from. I would like to suggest we remove that now and make him sit on a crate of machine tools.
+ - But we are not going to be able to survive on this limited planet if the population keeps on growing: there isn’t going to be anything left.
+ - In the end we must, I think, somehow conclude that they have as much right to this planet as we have.
+ - Everybody was saying we must have more leisure. Now they are complaining they are unemployed.
+ - They’re a damn nuisance – I’ve got one in my bathroom and every time I run my bath the steam sets it off.
+ - Are you running away from something?
+ - It looks like the kind of thing my daughter would bring back from school art lessons.
+ - If a cricketer, for instance, suddenly decided to go into a school and batter a lot of people to death with a cricket bat, which he could do very easily, I mean, are you going to ban cricket bats?
+ - I don’t care what kind it is, just get me a beer!
+ - I therefore suggested that WWF should invite leaders from the major religions to meet together to discuss what – if any – responsibility they felt they had for the natural environment as a “sacred” entity.
+ - Books are certainly old fashioned, but only people with a very limited perception are silly enough to condemn ideas because of their age. It is, of course, equally silly to condemn the new fangled simply because it is strange...
+ - You managed not to get eaten then?
+ - Do people trip over you?
+ - No, I’d probably end up spitting it out over everybody.
+ - Young people are the same as they always were. They are just as ignorant.
+ - I’ve never been noticeably reticent about talking on subjects about which I know nothing.
+ - And if we could get the local leaders to appreciate their responsibility for the environment then they would be able to explain that responsibility to the people of their faith.
+ - You were playing your instruments? Or do you have tape recorders under your seats?
+ - There are always twenty excellent reasons for doing nothing for every one reason for starting anything-especially if it has never been done before.
+ - It’s my custom to say something flattering to begin with so I shall be excused if I put my foot in it later on.
+ - You could do with losing a little bit of weight.
+ - Oh! You’re the people ruining the rivers.
+ - They’re not mating are they?
+ - There’s a cord sticking out of the back. Might you tell me where it goes?
+ - So you are the people tearing down the Brazilian rainforest and breeding cattle.
+ - Oh, it’s you that owns that ghastly car, is it?
+ - I don’t know how they’re going to integrate in places like Glasgow and Sheffield.
+ - And what exotic part of the world do you come from?
+ - It doesn’t look like much work goes on at this university.
+ - I must confess that I am interested in leisure in the same way that a poor man is interested in money.
+ - Who is going to be the first to face up to the need for self-restraint in the number of children brought into the world?
+ - I suppose I’d get in trouble if I were to melt them down.
+ - There is nothing like it for morale to be reminded that the years are passing – ever more quickly – and that bits are dropping off the ancient frame. But it is nice to be remembered at all.
+ - It seems to me that it’s the best way of wasting money that I know of. I don’t think investments on the moon pay a very high dividend.
+ - It is frequently more rewarding merely to ask pertinent questions. It may get someone to go and look for an answer.
+ - Anyone who is concerned about his dignity would be well advised to keep away from horses.
+ - We didn’t have counsellors rushing around every time somebody let off a gun. You just got on with it!
+ - I have very little experience of self-government. In fact, I am one of the most governed people in the world.
+ - You can’t have been here long, you haven’t got a pot belly.
+ - Constitutionally I don’t exist.
+ - I am full of admiration for the technologists who have developed all sorts of gadgets for the purpose of improving communications. However, I believe that all these fascinating machines are complementary to, and not substitutes for, books and the printed word.
+ - There’s a lot of your family in tonight.
+ - I don’t claim to have any special interest in natural history, but as a boy I was made aware of the annual fluctuations in the number of game animals and the need to adjust the cull to the size of the surplus population.
+ - If anyone has a new idea in this country, there are twice as many people who keep putting a man with a red flag in front of it.
+ - For conservation to be successful it is necessary to take into consideration that it is a characteristic of man that he can only be relied upon to do anything consistently which is in his own interest.
+
+107 quotes

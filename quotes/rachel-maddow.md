@@ -1,0 +1,102 @@
+ - I would like to be a polyglot.
+ - I know every film is different. Every filmmaker is different and works differently.
+ - If you’re someone people count on, particularly in difficult moments, that’s a sign of a life lived honorably.
+ - Here’s the thing about rights. They’re not actually supposed to be voted on. That’s why they’re called rights.
+ - The single best thing about honesty is that it requires no follow-up.
+ - I’m a sarcastic person. I learn through humor.
+ - The single best thing about coming out of the closet is that nobody can insult you by telling you what you’ve just told them.
+ - The idea of the Overton Window of using people on the political fringe to change the terms of acceptable debate, that’s an idea that’s been hugely influential in conservative politics since Joseph P. Overton thought it up, making radical ideas seem acceptable by advocating for the unthinkable.
+ - Clearly, there has been a lack of imagination about how much can go wrong.
+ - Jean-Marie Le Pen is a holocaust denier who was convicted and fined for dismissing Nazi concentration camps as a, quote, “Detail in History.” But he kept running this anti-immigrant, anti-Semitic, populist unapologetic xenophobic far right party in French politics.
+ - Military preparedness is absolutely a form of strength.
+ - My life is better with every year of living it.
+ - Social security isn’t a ponzi scheme. It’s not bankrupting us. It’s not an outrage. It is working.
+ - If the military contractors are out of Afghanistan, Karzai is out 15 minutes later.
+ - I really believe in trying to increase the amount of useful information in the world and in being accurate in the sense that you can take what I say to the bank, even if you disagree with me.
+ - Humans are ambitious and rational and proud. And we don’t fall in line with people who don’t respect us and who we don’t believe have our best interests at heart. We are willing to follow leaders, but only to the extent that we believe they call on our best, not our worst.
+ - I’m undoubtedly a liberal, which means that I’m in almost total agreement with the Eisenhower-era Republican party platform.
+ - Marine Le Pen is more careful than her dad was about saying things like denying the Holocaust, right? But it’s the same politics. It’s the same modern anti anti-immigrant, anti-and the Semitic, xenophobic authoritarian modern pseudo-fascism.
+ - I care a lot about what my girlfriend thinks, and my friends, but ultimately it’s me in the mirror. I just want to be proud of what I do.
+ - I don’t feel passionately about politics, i’m not a political person. Is it easy for me to get fired up about someone’s position on climate change? No, it’s not. On most of these issues, I can see both sides.
+ - We all now have to decide whether we’re comfortable using this word, weather fascism is too over the top to use in this context of our politics right now in our country or whether it helps because it’s accurate, to basically describe this as America’s Sir Oswald Mosley moment.
+ - In the little town where I live in Hampshire County, Massachusetts, we now have a ‘Public Safety Complex’ around the corner from what used to be our hokey Andy Griffith-esque fire station.
+ - Britains still commemorate the Battle of Cable Street in London. There are still pop songs in Britain that reference Sir Oswald Mosley and his black shirts.
+ - That was like seeing a dodo and a unicorn all wrapped up in one.
+ - Formula 1 racing had a personal scandal right up at the top of its governing body that was so weird, that was so flagrantly salacious and bizarre, that I think it not only reassured American racing fans that Formula 1, yes, really is kind of weird.
+ - You may never have heard of Joseph Overton and his proverbial window but you most certainly have heard the Republican presidential campaign in 2015 year not just flinging the window open but shattering all its glass.
+ - Bernie Sanders are the only person who talks about the kinds of things that might be driving people to support Donald Trump in such large numbers in the Republican Party.
+ - Hopefully life is long. Do stuff you will enjoy thinking about and telling stories about for many years to come. Do stuff you will want to brag about.
+ - I have a file of letters and bits of ephemera from friends who have died. I have had lots of friends who died of AIDS.
+ - The spy boom has been a beautiful windfall for architects, construction companies, IT specialists, and above all defense contractors, enriching thousands of private companies and dozens of local economies hugging the Capital Beltway.
+ - If you took a cracked pot and you cracked that cracked pot, you’d be approaching the level of cracked pottery we are talking about here.
+ - I’m not trying to change things in the world and trying to use my leverage to do so. The only thing I’m trying to change in the world is that I’m trying to increase the amount of useful information in it. And entertainment, honestly.
+ - A handkerchief can never be put in another pocket after it has been in one pocket. I don’t walk under ladders. I have items of clothing that are lucky for me. That rotates, but I am luck-oriented.
+ - We never had an effect well-organized national fascist party in this country. The way they want have had in decades past and in decades present in countries like Britain and France that we think of as such close allies.
+ - The downside of playing dumb is that you sound dumb.
+ - I am too old to know how to put a naked photograph of myself on the Internet.
+ - When it starts to seem like you have popped into bed with a specific party, it makes it difficult for people to believe you are not doing someone else’s bidding for them.
+ - The highest percentage of respondents say that biggest problem in the country is the government. The biggest problem facing our country today is that our government is terrible. Dissatisfaction with the government, problem numero uno by a mile.
+ - It is sometimes hard to know what Sarah Palin means, just on a day to day basis. Sometimes it is hard to follow what she is talking about.
+ - I’d rather have none at all than a grain too much.
+ - Every popular zillion dollar sport has its share of personal scandals around the sport and its leadership.
+ - I don’t think about people watching me on TV. I think it would stress me out.
+ - When Ronald Reagan spoke a thing aloud, he believed it forever and for always. By the time he started running for president, in 1976, he had already developed an unwavering and steadfast faith in the correctness of whatever came out of his mouth.
+ - I’m hopeless by e-mail, by phone, by text.
+ - In the rest of the world though, particularly in Europe, the most popular form of racing is not stock cars. It’s not NASCAR. It doesn’t look anything like NASCAR. It’s Formula 1.
+ - Chris Christie who proposes accepting Syrian refugee orphans under the age of 5 because they may not be vetted well enough. You can’t trust them. The 5-year-olds might it be terrorists. After all, they’re from Syria.
+ - If something is being done on a secret basis in national security, that’s a great reason for elected officials to not talk about it. And that’s a great way to shirk accountability for it with the public.
+ - John McCain famously has been incredibly loyal to Sarah Palin ever since he picked her as his running mate.
+ - For the same work, dudes get paid more.
+ - Francois Hollande is the president of France. He got all sorts of accolades for his leadership in France after the Paris attacks.
+ - The American president just won the nobel peace prize, by any reasonable measure, all Americans should be proud.
+ - Americans are incredibly religious as a nation, and we have gotten that way by having the government stay out of religion and say religion is a private matter. The government doesn’t take sides. Public schools don’t promote or denigrate any religion.
+ - Fascism is not just a word. It’s not just a way to insult someone with whom you disagree. It is a specific thing. It is a specific form of far right politics that involves a sort of narcissistic cult of superman action around the leader of the party.
+ - The Republican front-runner, has made a name for himself in the last months by trafficking prejudice and paranoia. His latest insult is his call to stop all Muslims from entering the United States.
+ - If you have to hire paid actors to impersonate people who politically support you, people don’t actually natively politically support you. You are not a political animal that exists in nature.
+ - But there’s a reason that we have different laws for juveniles than we do for adults. And it’s because kids are not liable for the things they do in the way that adults are, because we think that kids are different.
+ - I will say that Bernie Sanders are the opposite end of the spectrum from Donald Trump. We see him leading right now in the Republican Party in an intractable way.
+ - I like big drinks that aren’t afraid of the alcohol in them. Not big in size, but in flavor, and the way I can allow myself to enjoy them is by making them in very small quantities. I make tiny glasses of very big drinks.
+ - After we graduate tonight, we no longer have to let society happen to us. We get to create our own.
+ - I never had any facial hair in my life.
+ - Fascist is not just an epithet. Fascist is a proper noun that means a specific thing. It’s a real thing. It’s not always referring to ancient history.
+ - I recommend sports, I don’t recommend gambling.
+ - John McCain from the very beginning has been unflinchingly loyal to Sarah Palin. He has never thrown her under the bus. He has never conceded it was a bad decision to pick her. He has never ever said a bad word against her.
+ - Sarah Palin uses me as a laugh line in her stump speeches. If you’re willing to turn me into a joke, you should also be willing to talk to me.
+ - I’m a national security liberal, which I tell people because it’s meant to sound absurd.
+ - It is hard to know what Sarah Palin means in Republican politics anymore.
+ - In this country, the most popular form of car racing is the huge multibillion dollar industry that’s called stock car racing. That’s what NASCAR is. That’s what the SC stands for in the middle of NASCAR, Stock cars.
+ - Having a place out of the city is a shortcut toward the mental reset I need.
+ - I think that presidents don’t give up power that has accrued to them by the precedent of previous presidents. Even when they say they would like to, I think once they get there they don’t give it up.
+ - No matter what Donald Trump does, he’s guaranteed to have support from the Republican Party.
+ - I have learned when two Republicans are talking about legalizing drugs to shut up.
+ - Donald Trump announced his no Muslims are allowed to come to the United States plan and that led to one of the greatest tweets of all time from New York Times columnist. Quote, “OK, I concede I picked the wrong day to modestly walk back my Trumpism as fascism column.”
+ - The folks celebrating Jim Bunning are seeing him as an anti-government, anti-spending activist. But to embrace Jim Bunning is to embrace a strange record, if you really are a libertarian, if you really are a deficit hawk, if you really care about spending and responsibility.
+ - After Donald Trump’s ban all Muslims proposal, candidate Jeb Bush reacted by calling Mr. Trump unhinged. However, that would be the same Jeb Bush who says we should only allow refugees into this country who are Christians.
+ - I think a lot of people of my generation are discomfited by the assertion of neutrality in the mainstream media, this idea that they’re the voice of God. I think it’s just honest to say, yes, you know where I’m coming from but you can fact-check anything I say.
+ - David Jolly is the only Republican I could find who’s really saying Donald Trump, you’re out, forget it, this is unacceptable, this is beyond the pale.
+ - There’s no way to tweak your content in order to goose ratings. You do what you’re good at and let people follow you.
+ - Activism is setting a goal of something you would like to be different, and figuring out what would have to change to achieve that goal. It’s sort of like math.
+ - At a time when America should be doing everything we can to lead the fight to defeat ISIS and other radical jihadists, Donald Trump is playing right into their hands.
+ - Sarah Palin is now the guy who hangs out in the high school parking lot, showing off his car, five years after he graduated.
+ - Pentagon dollars are essentially seen as a different kind of funding that doesn’t have to stand for itself and make an argument for itself in the house of Congress.
+ - If you want to make the government take a religious side, then make the case, it should be Christian republic.
+ - When Conservatives crusade against government while they are trying to be appointed to head the government, I think that’s weird!
+ - I think Donald Trump is now kind of in love with the idea of becoming president of the United States. I think he truly does believe that he can be the Republican nominee.
+ - If the colonists hadn’t rejected British militarism and the massive financial burden of maintaining the British military, America wouldn’t exist.
+ - Donald Trump removed all doubt. He is running for president as a fascist demagogue.
+ - Formula 1 is a huge international phenomenon even if an otherwise car racing obsessed American public has always found Formula 1 to be a little weird.
+ - We are willing to follow leaders only to the extent we believe they call on our best, not our worst.
+ - People who disagree on important issues don’t agree on the facts.
+ - I have a constitutional weakness in which I am very easily distracted by flashing lights. If there is a TV on in the room, I can’t have a conversation with you. I won’t eat, I won’t sleep, I’ll just meld with my couch.
+ - I have this belief that Donald Trump keeps floating the idea that he will quit the party and run as an independent if the Republican Party does not treat him fairly.
+ - Liberals say that we are secular country with a majority of Christians, absolutely.
+ - I’m not a screamer. I’m confrontational, but I don’t think that translates into anger.
+ - Fascistic leaders are aggressively macho and chauvinistic. They are xenophobic about people who they portray as outsiders or some sort of threat to the nation or as weaklings they can denounce.
+ - As secretary of state you can go out in a helmet if you want to. Even in Switzerland in front of reporters.
+ - Fascist political gatherings tend to encourage or at least expect a little violence around the edges, particularly against counter protesters.
+ - Flint and its lead contaminated water are now the focus of sustained national attention including political attention.
+ - As proud and capable as it is, I think the idea that the military can build new countries is a tall order, and it’s the sort of thing that we would only expect from a military that we have superresourced and thought of as supercapable.
+ - I loved being on the radio. Being paid to talk? It’s like being paid to eat.
+ - It matters that there’s diversity on the court. I think it makes for better lawmaking, because you have people with more diverse range of judgment and who are going to make a better decision on the law.
+
+100 quotes

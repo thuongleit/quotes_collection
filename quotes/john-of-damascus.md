@@ -1,0 +1,22 @@
+ - The whole earth is a living icon of the face of God.
+ - Christ the Lord is risen. Our joy that hath no end.
+ - To serve Mary and to be her courtier is the greatest honor we can possibly possess; for to serve the Queen of Heaven is already to reign there; and to live under her command is more than to govern.
+ - I do not worship matter, I worship the God of matter, who became matter for my sake and deigned to inhabit matter, who worked out my salvation through matter. I will not cease from honoring that matter which works for my salvation. I venerate it, though not as God.
+ - Now all things have been filled with light, both heaven and earth and those beneath the earth; so let all creation sing Christ’s rising, by which it is established.
+ - The Eucharist is a fire which inflames us.
+ - An angel is an intelligent essence, always in motion. It has free will, is incorporeal, serves God, and has been bestowed with immortality. Only the Creator understands its true nature.
+ - And all that is therein; Invisible and visible, Their notes let all things blend, For Christ the Lord is risen. Our joy that hath no end.
+ - I do not worship matter; I worship the Creator of matter who became matter for my sake.
+ - Woman is the daughter of falsehood, a sentinel of hell, the enemy of peace.
+ - Because of the Incarnation, I salute all remaining matter with reverence.
+ - If a pagan asks you to show him your faith, take him into church and place him before the icons.
+ - Both angels and demons are ignorant of the future, yet they make predictions. The angels do so when God reveals the future to them and commands them to prophesy, and what they prophesy comes to pass. Demons also make predictions, but these are only guesses based on what they see from afar.
+ - The day of the Nativity of the Mother of God is a day of universal joy, because through the Mother of God, the entire human race was renewed, and the sorrow of the first mother, Eve, was transformed into joy.
+ - In former times, God, who is without form or body, could never be depicted. But now when God is seen in the flesh conversing with men, I make an image of the God whom I see. I do not worship matter; I worship the Creator of matter who became matter for my sake.
+ - All we know if an angel is that it is incorporeal, immaterial, and only by comparing it with God-who is incomparable-can we see that it has some density and body after all, since in reality only God is truly immaterial and incorporeal.
+ - He who does not believe according to the tradition of the Catholic Church is an unbeliever.
+ - Devotion to you, O Blessed Virgin, is a means of salvation which God gives to those whom he wishes to save.
+ - O Mother of God! If I place my confidence in thee, I shall be saved; if I am under thy protection, I have nothing to fear; for the fact of being thy client is a possession of a certainty of salvation which God grants only to those whom He intends to save.
+ - Angels are intelligent reflections of light, that original light which has no beginning. They can illuminate. They do not need tongues or ears, for they can communicate without speech, in thought.
+
+20 quotes

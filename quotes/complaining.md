@@ -1,0 +1,42 @@
+ - Champions never complain, they are too busy getting better. ~~John Wooden
+ - Don’t complain; just work harder. ~~Randy Pausch
+ - When you complain, you make yourself a victim. Leave the situation, change the situation, or accept it. All else is madness. ~~Eckhart Tolle
+ - Complaining about a problem without posing a solution is called whining. ~~Theodore Roosevelt
+ - Never complain and never explain. ~~Benjamin Disraeli
+ - When life gives you lemons, make lemonade and sell it to all of those who get thirsty from complaining. ~~Napoleon Hill
+ - Don’t whine, complain, or make excuses. ~~John Wooden
+ - So next time someone complains that you have made a mistake, tell him that may be a good thing. Because without imperfection, neither you nor I would exist. ~~Stephen Hawking
+ - When you’re not patient, you start complaining. And the fact that you’re complaining is a sign that you’re not grateful. ~~Nouman Ali Khan
+ - Do not listen to those who weep and complain, for their disease is contagious. ~~Og Mandino
+ - Read the Bible. Work hard and honestly. And don’t complain. ~~Billy Graham
+ - Refuse to criticize, condemn, or complain. Instead, think and talk only about the things you really want. ~~Brian Tracy
+ - Have an attitude of gratidude and you will have more to be grateful for; have a complaining spirit and you will attract more to complain about. ~~Zig Ziglar
+ - Less gossiping, more learning. Less complaining, more excelling. Less walls, more bridges. Less fear, more courage. ~~Robin S. Sharma
+ - Complaining is one of the ego’s favorite strategies for strengthening itself. ~~Eckhart Tolle
+ - Complaining is dangerous business. It can damage or even destroy your relationship with God, your relationships with other people, and even with your relationship with yourself. ~~Joyce Meyer
+ - Don’t Criticize, Condemn, Or Complain. ~~Dale Carnegie
+ - Merely complaining without proposing an alternative offers nothing. ~~Jacque Fresco
+ - If man makes himself a worm he must not complain when he is trodden on. ~~Immanuel Kant
+ - Remember, if you are criticising, you are not being grateful. If you are blaming, you are not being grateful. If you are complaining, you are not being grateful. ~~Rhonda Byrne
+ - We are always complaining that our days are few, and acting as though there would be no end to them. ~~Seneca the Younger
+ - Generally speaking, the most miserable people I know are those who are obsessed with themselves; the happiest people I know are those who lose themselves in the service of others... By and large, I have come to see that if we complain about life, it is because we are thinking only of ourselves. ~~Gordon B. Hinckley
+ - People won’t have time for you if you are always angry or complaining. ~~Stephen Hawking
+ - As long as we complain, we remain stuck in our problems. But a thankful attitude brings deliverance and makes God smile. ~~Joyce Meyer
+ - If you vote and you elect dishonest, incompetent people into office who screw everything up, you are responsible for what they have done. You caused the problem; you voted them in; you have no right to complain. ~~George Carlin
+ - When I was poor and I complained about inequality they said I was bitter. Now I’m rich and I complain about inequality they say I’m a hypocrite. I’m starting to think they just don’t want to talk about inequality. ~~Russell Brand
+ - You can never make a woman happy, it’s impossible. I’ve never met a happy woman in my life. They’re always complaining about something. ~~Chris Rock
+ - I feel like I’m waiting on something that isn’t going to happen Don’t complain; just work harder. ~~Randy Pausch
+ - Impermanence is very important, crucial for life. That is why instead of complaining about impermanence you have to say “Long live impermanence!” ~~Nhat Hanh
+ - Before you complain today, be grateful you have breath to complain with. ~~Lecrae
+ - Embrace your life, count your blessings, and don’t complain about what you don’t have. ~~Joyce Meyer
+ - Happiness comes when we stop complaining about the troubles we have and offer thanks for all the troubles we don’t have. ~~Thomas S. Monson
+ - In deep sadness there is no place for sentimentality. It is as final as the mountains: a fact. There it is. When you realize it you cannot complain. ~~William S. Burroughs
+ - If you complain that Allah is testing you too much, you’re failing the test. ~~Omar Suleiman
+ - Do not complain about growing old. It is a privilege denied to many. ~~Mark Twain
+ - Catch fire today! Make today the day you stop complaining and do something! ~~Steve Harvey
+ - It costs a lot of money to look this cheap. ~~Dolly Parton
+ - If you stop complaining and asking for what you never will get, you will have a good life. A good life is not measured by any biblical span. ~~Ernest Hemingway
+ - The more you complain the longer God lets you live. ~~Bertrand Russell
+ - Why do we complain about the Fall? It is not on its account that we were expelled from Paradise, but on account of the Tree of Life, lest we might eat of it. ~~Franz Kafka
+
+40 quotes

@@ -1,0 +1,53 @@
+ - Keep the faith, don’t lose your perseverance and always trust your gut extinct.
+ - True genius does not fulfill expectations. True genius shatters it.
+ - I believe inner beauty is beauty in its truest form. When we nurture ourselves, it brings an inevitable, positive transformation.
+ - If you lead with passion anything is possible!
+ - I’m tired of people not treating me like the gift that I am.
+ - All you can do is the best you can do.
+ - Not only do I never lie, I never respond to lies, no matter how vicious, no matter how hurtful.
+ - Everything is always a little surreal.
+ - I’ve never been drunk in my life. I don’t use recreational drugs.
+ - I feel blessed to have as many comebacks as I can.
+ - I will never forget my humble beginnings as a Laker Girl. It was probably one of the most fun jobs I ever had.
+ - You end up becoming who you are by jumping into that circle of fear – that’s how it’s done.
+ - I dance because I have to, because I’m so passionate about it.
+ - Find fitness with fun dancing. It is fun and makes you forget about the dreaded exercise.
+ - All my life I have been taught to take the high road and never to dignify salacious or false accusations and I have been taught never, never to lie.
+ - There are three things I commit to on a daily basis: Exercising for an hour a day, tops. Never skipping meals. And accepting the size and shape I was born with.
+ - You’re the kiss that puts my soul at ease.
+ - When you go to meetings or auditions and you fail to prepare, prepare to fail. It is simple but true.
+ - When you wish upon a star, you just might become one.
+ - I had my first kiss under a tree near the school. It was with a boy named Michael who rarely spoke, but he would sometimes give me one of the cookies from his lunch. Maybe it was the gifts that made me feel special? I don’t know, but when our lips touched, it felt magical.
+ - Everyone is your best friend when you are successful. Make sure that the people that you surround yourself with are also the people that you are not afraid of failing with.
+ - Virgin Records will probably release their own package sometime next year.
+ - Constructive criticism is about finding something good and positive to soften the blow to the real critique of what really went on.
+ - America fell in love with the innocence of a kid who just was honest, saying, I did the best I could, and I had no formal training.
+ - I can’t wait to be back on the dance floor. I feel really good about it.
+ - You could sing us the phone book and we would still love you.
+ - The cool part of being an entertainer is getting the opportunity to get your feet wet in all areas.
+ - When people expect me to go right, I’ll go left. I’m unpredictable.
+ - I have been working up until recently with Neil Simon, who has been adapting the character to me.
+ - The more auditions you go on, the more you will learn not to take it personally.
+ - I love doing what I do. I’m a born mentor. I’ve launched so many people’s careers. I worked hard.
+ - I think a duet with Janet is a great idea.
+ - Can you imagine Simon as a kid? His imaginary friends probably never wanted to play with him.
+ - I welcome him like I welcome cold sores. He’s from England, he’s angry and he’s got Mad Power Disease.
+ - There are many talented people.
+ - For all of those willing to help me start a family, I am flattered. I will let you know when I need your help.
+ - There is love there. And then there’s times when I can’t even stomach Simon. You don’t have to sit next to him. That’s all I have to say.
+ - Any types of auditions will be posted in trade magazines.
+ - My choreography suits men very well, and the women who can do it are damn hard, strong dancers.
+ - I’m grateful this ordeal is over, and I’m so looking forward to getting back to the job I love.
+ - I stand on principle where many people stand on money.
+ - My job, I think, is the hardest job out of all the judges because I am the only one that is a performer.
+ - Simon drives me crazy. We are still arguing.
+ - I signed on with Disney to star and choreograph an original film.
+ - It is my job to make sure that these kids who are talented get every chance they can and not to be passed over; this is life or death for them.
+ - I’m working toward a CD that will have all of you dancing like crazy.
+ - Idol has pretty much taken me out of my recording and out of my choreography. I have managed to slip in some choreography jobs. And I’ve been writing songs for other artists.
+ - Simon would not want to audition in front of Simon.
+ - If they’re singing about heartbreak, they’ve lived it.
+ - Beyond being Jewish, I’ve always found myself to be very much in tune with spirituality.
+ - I got a call to come in and meet Fox, and the rest is history.
+
+51 quotes

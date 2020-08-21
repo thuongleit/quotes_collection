@@ -1,0 +1,27 @@
+ - Sometimes heroism is nothing more than patience, curiosity, and a refusal to panic.
+ - Fair is whatever God wants to do.
+ - Be careful whom you choose to hate. The small and the vulnerable own a protection great enough, if you could but see it, to melt you into jelly. Beware those who reside beneath the shadow of the Wings.
+ - Hope is like yeast, you know, rising under warmth.
+ - Real miracles bother people, like strange sudden pains unknown in medical literature.
+ - Is there a single person on whom I can press belief? No sir. All I can do is say, Here’s how it went. Here’s what I saw. I’ve been there and am going back. Make of it what you will.
+ - We and the world, my children, will always be at war. Retreat is impossible. Arm yourselves.
+ - So thoughtlessly we sling on our destinies.
+ - Routine is worry’s sly assassin.
+ - Good advice is a wise man’s friend, of course; but sometimes it just flies on past, and all you can do is wave.
+ - What else exhausts like sustained deception?
+ - Pride is the rope God allows us all.
+ - You can embark on new and steeper versions of your old sins, you know, and cry tears while doing it that are genuine as any.
+ - Once in my life I knew a grief so hard I could actually hear it inside, scraping at the lining of my stomach, an audible ache, dredging with hooks as rivers are dredged when someone’s been missing too long. I have to think my mother felt something like that.
+ - I remember it as October days are always remembered, cloudless, maple-flavored, the air gold and so clean it quivers.
+ - When a person dies, the earth is generally unwilling to cough him back up. A miracle contradicts the will of earth.
+ - Love is a strange fact – it hopes all things, believes all things, endures all things. It makes no sense at all.
+ - We see a newborn moth unwrapping itself and announce, Look, children, a miracle! But let an irreversible wound be knit back to seamlessness? We won’t even see it, though we look at it every day.
+ - It is one thing to be sick of your own infirmities and another to understand that the people you love most are sick of them also. You are very near then to being friendless in the world.
+ - Of all facial expressions, which is the worst to have aimed at you? Wouldn’t you agree it’s disgust?
+ - It is one thing to say you’re at war with this whole world and stick your chest out believing it, but when the world shows up with it’s crushing numbers and its predatory knowledge, it is another thing completely.
+ - You can’t kill history. You can’t shoot it with a bullet and watch it recede into whatever lies outside of memory. History is tougher than that – if it’s going to die, it has to die on its own.
+ - Once traveling, it’s remarkable how quickly faith erodes. It starts to look like something else – ignorance, for example. Same thing happened to the Israelites. Sure it’s weak, but sometimes you’d rather just have a map.
+ - Why is it our failures only show us more clearly the people we are failing?
+ - Fresh peach pie can lift a bullying reprobate into apologetic courtesy; I have watched it happen.
+
+25 quotes

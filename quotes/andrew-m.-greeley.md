@@ -1,0 +1,37 @@
+ - God draws straight with crooked lines.
+ - It is possible to begin again. It is hard, and we never do it perfectly, but it can be done.
+ - We’re given second chances every day of our life. We don’t usually take them, but they’re there for the taking.
+ - It should be no surprise that when rich men take control of the government, they pass laws that are favorable to themselves. The surprise is that those who are not rich vote for such people, even though they should know from bitter experience that the rich will continue to rip off the rest of us.
+ - Angels represent God’s personal care for each one of us.
+ - I don’t think Jesus was an exclusivist. He said, and we believe, that He is the unique representation of God in the world. But that doesn’t mean this is the only way God can work.
+ - The Catholic men are more upset about women not being able to be priests than are Catholic women.
+ - The kernel is the belief that God is love and, in Catholicism, God’s love is present in the world. It is in the sacraments, in the Eucharist, in our families, in our friends, in our neighborhood, and forgiveness in the touch of a friendly hand, in a rediscovered love God is there.
+ - Practically speaking, your religion is the story you tell about your life.
+ - The seminaries must face the fact that they are not turning out well-trained professional clergy. They must realize that preaching is creative work and that some element of creativity should be required as a condition for ordination.
+ - Angels are wonderful and exciting, and they have the appeal of beings who will take care of us and manifest God’s personal concern.
+ - There is an electricity about a friendship relationship. We are both more relaxed and more sensitive, more creative and more reflective, more energetic and more casual, more excited and more serene. It is as though when we come in contact with our friend we enter into a different environment.
+ - We are born with two incurable diseases, life, from which we die, and hope, which says maybe death isn’t the end.
+ - Search for the perfect church if you will; when you find it, join it, and realize that on that day it becomes something less than perfect.
+ - Is the patience of the American people that long suffering? Is there no outrage left in the country?
+ - Everyone takes surveys. Whoever makes a statement about human behavior has engaged in a survey of some sort.
+ - People came into the Church in the Roman Empire because the Church was so good-Catholics were so good to one another, and they were so good to pagans, too. High-pressure evangelization strikes me as an attempt to deprive people of their freedom of choice.
+ - Note the three most important Cabinet positions. Rice said that it was better to find the weapons of mass destruction than to see a mushroom cloud.
+ - In God, the characteristics of men and women that we admire in men and women are combined. That’s been a traditional Catholic teaching that God is the combination of opposites.
+ - The men who were running the church in the late ’60s and ’70s panicked when they saw the chaos, which developed after the council. The relatively modest changes of those years thawed the ice in which Catholicism had been frozen since the French Revolution.
+ - If we get you in the early years of your life and we fill your head with all of the Catholic stories, then it’s very hard for you to stop being Catholic. Catholics are Catholics because they like being Catholic.
+ - I think the only kind of acceptable evangelization is the evangelization of good example.
+ - My songs will pass and be forgotten. What counts, however, is that I sang them.
+ - Would it not be much better to have a president who deliberately lied to the people because he thought a war was essential than to have one who was so dumb as to be taken in by intelligence agencies, especially those who told him what he wanted to hear?
+ - I think that the core doctrines of Christianity – the incarnation, the resurrection, life after death-these are as strong as ever. In fact, the belief in life after death has increased in this century.
+ - I write easily, let’s put it that way. And in a novel particularly, the characters take over. And they tell me what to say and they tell me what they’re doing. And I’m a third of the way into a novel and then I just let the characters finish it for me.
+ - One cannot escape the harsh fact that as a ministerial profession, the priesthood has very serious problems. They are not new. They did not develop yesterday or last year.
+ - Priest organizations around the country, both local and national, should realize that their membership has a serious image problem and undertake programs to improve it.
+ - An adolescent is somebody who is in between things. A teenager is somebody who’s kind of permanently there. And so living with them through the various teenage hopes and sorrows and joys was curiously enough a maturing experience for me.
+ - There is good news in the data the strongest support for priests is to be found among the younger generation.
+ - As the criminal, sinful war in Iraq enters its third year, the president goes to Europe to heal the wounds between the United States and its former allies, on his own terms of course.
+ - I think the real problem for American religion are those minority of fundamentalists who try to identify political policies with religion.
+ - Nobody puts constraints on God. She doesn’t like it.
+ - It was generally believed that Catholics were not interested in arts and science graduate schools. They weren’t going to be intellectuals. And so I put the theses to the test. And they all collapsed.
+ - I wouldn’t say the world is my parish, but my readers are my parish. And especially the readers that write to me. They’re my parish. And it’s a responsibility that I enjoy.
+
+35 quotes

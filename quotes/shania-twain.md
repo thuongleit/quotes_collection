@@ -1,0 +1,119 @@
+ - You’re still the one I run to, the one that I belong to, you’re still the one I want for life.
+ - It’s important to give it all you have while you have the chance.
+ - Find your self-esteem and be forever free to dream.
+ - I can still hear the words you whispered when you told me I can stay right here forever in your arms from Forever and for Always.
+ - A happy heart comes first, then the happy face.
+ - You got a way with words, you keep me smiling, even when it hurts.
+ - Don’t freak out until you know the facts.
+ - I’d rather die standing than live on my knees.
+ - The best thing about being a woman, is the prerogative to have a little fun!
+ - When I first saw you, I saw love. from You’re Still The One.
+ - I lost my sense of trust, honesty and compassion. I crashed down and became what I consider an emotional mess. I’ve never been so miserable in my whole life. I just wanted to go to bed and never get up.
+ - Being betrayed is one of the most valuable lessons life can teach.
+ - I spent a lot of my life holding back my cries, and I want to change that because it’s not good for me.
+ - Art is a platform where self-expression should not be limited. I’m here to inspire. There is no age limit to that.
+ - And it only hurts when I’m breathing My heart only breaks when it’s beating My dreams only die when I’m dreaming So, I hold my breath – to forget.
+ - I’m always soul searching on a spiritual level.
+ - If foundations made of stone can turn to dust, then the hardest hearts of steel can turn to rust.
+ - When everything goes without a hitch, where’s the challenge, the opportunity to find out what you’re made of?
+ - I’ll always be sad that my marriage ended.
+ - You don’t want to be outside during blackfly season.
+ - You can’t just turn love on and off.
+ - So what do you think you’re Elvis or something, whatever that don’t impress me.
+ - I feel like in a way I’m starting over, with everything.
+ - You gave me faith to find my dreams, you’ll never know just what that means.
+ - I enjoyed working at McDonald’s.
+ - I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you’re really desperate, you say a few prayers and hope for the best. That’s the way I’ve always lived my life.
+ - It’s very hard to be honest with yourself when something’s just not working.
+ - I’m more private than people realize. I’m not that easy to get to know.
+ - I love the role that men play in our lives.
+ - When I cook him dinner and I burn it black, he better say hmmm, I like it like that.
+ - Life is short. It can come and go like a feather in the wind.
+ - I’m neither embarrassed of who I am, where I come from, what I’ve experienced, I’m not ashamed of it.
+ - Ain’t nothing better, we beat the odds together.
+ - Yes, you can lose somebody overnight, yes, your whole life can be turned upside down. Life is short. It can come and go like a feather in the wind.
+ - I feel like I’m on top of the world. Honestly, I feel like I’ve climbed a very giant mountain, and I’m just standing right on top with my arms wide open and breathing rarified air.
+ - I temporarily lost my hope in love, and it was temporary, thank goodness.
+ - My divorce was like a death – a genuine death of commitment and love. After I got over the shock, I was like, tell me theres some way we can save this. We can save this, right?
+ - I was in a very deep, dark slump, and I needed to find a way to get myself out of it. I had to force myself back out into life, back out into experiencing things.
+ - I don’t eat meat, fish, or eggs. I was never a big meat-eater, but I’ve got more energy now. I eat a lot of tofu, and I drink soy shakes with fruit every morning. I always have soybeans, black beans, or chickpeas for lunch or dinner.
+ - I remember I autographed it to Mutt Lange, and I may only have put one t on Mutt. I mean, I’d never heard of such a name. I’m sure he must’ve thought that was quite funny. He must’ve known from that autograph, right off the bat, that I had no idea who he was.
+ - Later in my life, I’m going to look back and smile and be very fulfilled. I know that if I don’t give it my all right now I’ll regret it later. That’s very important to me, because I’ve worked all my life to have this.
+ - Country music is still your grandpa’s music, but it’s also your daughter’s music. It’s getting bigger and better all the time and I’m glad to be a part of it.
+ - My life revolves around my child’s routine.
+ - The streets of hell are paved with good intentions.
+ - I want to talk to people that have been through big disappointments, big emotional crises, deep life struggles, and I will learn something from that.
+ - I won’t lie, I’ve had a lot of discouraging moments in the past years, moments I wasn’t sure about things and doubted myself.
+ - Dysphonia is not a singing problem. It’s a voice box issue in the muscle on the voice, very different from having a nodule on the vocal cords, which I’ve never had. I’m lucky that I’ve never had that. It needs a long renewal time, and even today, I am still addressing it.
+ - My father was a beautiful man.
+ - I find that the very things that I get criticized for, which is usually being different and just doing my own thing and just being original, is the very thing that’s making me successful.
+ - I wanted to die. I had a panic attack.
+ - I don’t eat meat, fish, or eggs. I was never a big meat-eater, but I’ve got more energy now.
+ - Ultimately, I am responsible for how I live my life now, and what I make out of it. In fact, I am actually grateful for what I’ve gone through and wouldn’t change a thing-although I admit I wouldn’t want to live it over again either. Once was enough.
+ - Music is a great natural high and a great natural escape.
+ - Why do people criticise his intelligence when he can do something as miraculous as that?
+ - I didn’t have a choice growing up but to be more insecure because others had more.
+ - I had been very angry, angry enough to lose control; none of us are above it.
+ - I like being at home and cooking.
+ - Life unravels the way it does, and it has an effect on you, but you have to take responsibility for dealing with it.
+ - You learn to accept your own reality.
+ - Marilyn Monroe never sold a platinum album. And more people know my music than what I look like.
+ - I think there’s something odd about eating another living anything.
+ - I certainly don’t think you need to be famous to want to leave a legacy, but when you are famous, it’s even more likely that your child will get the wrong perspective on your life if you die prematurely.
+ - Putting a stamp on things just helps you say, ‘Hey, yesterday I was there, and today I’m here.’ It’s another step forward, and it feels like another turning point and an unleashing of creativity, and now I’m going to start focusing on the show and the production, the fun stuff that comes with it.
+ - I certainly could’ve gone off track many, many times in my youth.
+ - When you don’t come from struggle, gaining appreciation is a quality that’s difficult to come by.
+ - This job’s a pain-it’s so mundane It sure don’t stimulate my brain.
+ - It’s really such a personal journey, making a record, but even more so writing the songs.
+ - I enjoy sports in person.
+ - So many people bare their midriffs, I don’t know why mine is such an issue.
+ - I was not naturally meant to be on stage.
+ - All I ever intended was to make a living at what I do. Everything I’ve achieved since then is above and beyond.
+ - It always disappoints me when I go to a concert and they don’t play my favorite song, or at least one of their biggest hits.
+ - I want to be successful, but I don’t really have what it takes to do it comfortably.
+ - I wouldn’t call myself a feminist, because I think there are differences between men and women.
+ - I do not see my family life in any way, shape, or form as an opportunity for a photo.
+ - If my clothing does stand out, then I guess it’s a compliment, but I just wear whatever feels comfortable.
+ - I wanted to do a summary of my life and career. There’s been so many different looks, and so many types of songs that have become iconic, so it was just kind of fun to look back on everything.
+ - I don’t take any day for granted anymore.
+ - Sting I’ve seen a few times, and he really inspired me in the sense that he breaks the songs down a lot and will take a different approach. He’ll take an acoustic approach to them; he’ll rearrange them for the live stage.
+ - I have my own opinions, but my songs don’t share them.
+ - I’ve been performing my whole life.
+ - My fears and anxieties throughout my whole life have been slowly squeezing my voice.
+ - I really can’t imagine not singing again.
+ - I think it’s important that readers know that not every celebrity is a freak.
+ - I’d rather clean my toilet than go to a show-business party.
+ - Fortunately, when you’re a mom, the responsibility of caring for your child can keep you going.
+ - My goal is to appeal to as many people as I can. I’m not looking to leave country, but I do want to have more international success.
+ - I don’t want someone photographing my cellulite – I can’t take it!
+ - I’d like to see the Olympics live. I’ve only watched it on television.
+ - I’m never at my best on television. There’s a row of cameras between you and the audience, and it’s very weird, very confusing.
+ - In a way, we women take on more than we need to sometimes.
+ - I really admire artists that are willing to take a different approach and a different angle to their shows.
+ - I’m not someone who is glamorous all the time.
+ - Suffering does not discriminate.
+ - I’ve succeeded as far as I’m concerned – I don’t feel that I have any cliffs I could fall over anytime soon.
+ - The only reason that you do visual is solely for the visual. That’s the only reason. It doesn’t sell your music for you.
+ - I played a lot of football when I was younger. I’m a good receiver, actually.
+ - My music must reflect whatever’s going on in my mind, and my life needs to evolve for me to discover who it is I’m becoming.
+ - I don’t want my body to be a distraction from my talent or my brain.
+ - Without a doubt, the best way to get to know me is through my music.
+ - I’m not going to be somebody who wants to hold on to my fame for the rest of my life.
+ - There was a time when I was – after my very first record from Nashville, I thought I might not be one of those who actually really makes it, and I may end up back in Canada, just playing clubs. And that might – this might have just been it.
+ - You want me to describe Elvis, WOW.
+ - It was just like a dream. I could have ended up with an album that’s not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.
+ - The red-carpet spotlight is a little bit more nerve-racking when you haven’t been doing it all the time.
+ - I feel sexy when I get out of the tub – your skin is fresh and you’ve put up your hair without looking.
+ - Horses calm me. I love being around them. They smell great, they are beautiful to look at, they are loving, demanding, temperamental, and they settle you.
+ - If you’re not in it for love, I’m out a here.
+ - Coming from where I came from, it was unimaginable to ever be wealthy. That was just too far out of my reach.
+ - There were moments when I really just thought, I don’t need anything and I don’t need anyone. I just want to go away and disappear.
+ - I don’t even know half the time what I’m nominated for.
+ - For a good 10 to 12 years, I was working non-stop and I wasn’t really enjoying my success.
+ - I wish my parents had spent more time worrying about my education than me being a star.
+ - My voice is stronger today than ever.
+ - I really hope my peers appreciate and respect what I’m doing.
+ - Now that I have and I’m not a have-not, I’ve learned how important it is to maintain humility.
+ - If I hadn’t had a childhood career, I probably would’ve signed a contract with the first person I came across.
+
+117 quotes

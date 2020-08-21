@@ -1,0 +1,63 @@
+ - A different language is a different vision of life.
+ - You have to live spherically – in many directions. Never lose your childish enthusiasm – and things will come your way.
+ - There is no end. There is no beginning. There is only the infinite passion of life.
+ - The visionary is the only realist.
+ - No matter what happens, always Keep your childhood innocence. It’s the most important thing.
+ - Everyone knows that time is Death, that Death hides in clocks. Imposing another time powered by the Clock of the Imagination, however, can refuse his law. Here, freed of the Grim Reaper’s scythe, we learn that pain is knowledge and all knowledge pain.
+ - Regrets are a waste of time. They’re the past crippling you in the present.
+ - Realism is a bad word. In a sense everything is realistic. I see no line between the imaginary and the real.
+ - You exist only in what you do.
+ - Nothing is more honest than a dream.
+ - Censorship is advertising paid by the government.
+ - Our minds can shape the way a thing will be because we act according to our expectations.
+ - Don’t tell me what I’m doing; I don’t want to know.
+ - There is abundant testimony that if we choose love rather than self, we gain immeasurably.
+ - All art is autobiographical.
+ - Never trust a woman who doesn’t like to eat. She is probably lousy in bed.
+ - Freedom, especially a woman’s freedom, is a conquest to be made, not a gift to be received. It isn’t granted. It must be taken.
+ - The greatest danger for artists is total freedom.
+ - Experience is what you get while looking for something else.
+ - For people who live in the imagination, there is no lack of subjects. To seek for the exact moment at which inspiration comes is false. Imagination floods us with suggestions all the time, from all directions.
+ - Going to the cinema is like returning to the womb; you sit there, still and meditative in the darkness, waiting for life to appear on the screen.
+ - Talking about dreams is like talking about movies, since the cinema uses the language of dreams; years can pass in a second and you can hop from one place to another. It’s a language made of image. And in the real cinema, every object and every light means something, as in a dream.
+ - Marriage, if it is to survive, must be treated as the beginning, not as the happy ending.
+ - I claim the right to contradict myself. I don’t want to deprive myself of the right to talk nonsense, and I ask humbly to be allowed to be wrong sometimes.
+ - Peellaert’s comic strips were the literature of intelligence, imagination and romanticism.
+ - It’s easier to be faithful to a restaurant than it is to a woman.
+ - A created thing is never invented and it is never true: it is always and ever itself.
+ - Even the most miserable life is better than a sheltered existence in an organized society where everything is calculated and perfected.
+ - Life is a combination of magic and pasta.
+ - A good opening and a good ending make for a good film provided they come close together.
+ - The artist is the medium between his fantasies and the rest of the world.
+ - Don’t forget that costumes, like dreams, are symbolic communication. Dreams teach us that a language for everything exists – for every object, every color worn, every clothing detail. Hence, costumes provide an aesthetic objectification that helps to tell the character’s story.
+ - Reality! But what does this word mean? Each has his own reality. I draw upon my personal reality upon the dark side of myself, my unconscious.
+ - As a writer and director, I want to know what is behind the good manners and soft voice. Who is inside the silhouette?
+ - Nothing is sadder than laughter; nothing more beautiful, more magnificent, more uplifting and enriching than the terror of deep despair.
+ - As I don’t consider myself exceptional, but simply a storyteller, each of my stories is really a period of my life. Deep down I feel that criticism of my work-which is the most sincere and authentic vision of myself-is unsuitable and immodest, whether it is favorable or unfavorable.
+ - I even see the cinema itself as a woman, with its alternation of light and darkness, of appearing and disappearing images.
+ - God may not play dice but he enjoys a good round of Trivial Pursuit every now and again.
+ - I don’t believe in total freedom for the artist. Left on his own, free to do anything he likes, the artist ends up doing nothing at all. If there’s one thing that’s dangerous for an artist, it’s precisely this question of total freedom, waiting for inspiration and all the rest of it.
+ - Real religion should be something that liberates men. But churches don’t want free men who can think for themself and find their own divinity within. When a religion becomes organized it is no longer a religious experience but only superstition and estrangement.
+ - An artist is a provincial who finds himself somewhere between a physical reality and a metaphysical one. It’s this in-between that I’m calling a province, this frontier country between the tangible world and the intangible one. That is the realm of the artist.
+ - We can all pretend to be cynical and scheming, but when we’re faced with purity and innocence, the cynical mask drops off.
+ - Nietzsche claimed that his genius was in his nostrils and I think that is a very excellent place for it to be.
+ - I spent my life trying to cure myself of my education.
+ - According to the doctors, I’m only suffering from a light form of premature baldness.
+ - The picture is in your head, in your imagination, everything.
+ - Fate is written in the face.
+ - A creator always needs excuses.
+ - I always direct the same film. I can’t distinguish one from the other.
+ - When the most important times are occurring, we don’t even recognize them or notice. We are just busy living our lives. Only looking back do we know what was a great moment in our lives.
+ - It is only when I am doing my work that I feel truly alive.
+ - I think television has betrayed the meaning of democratic speech, adding visual chaos to the confusion of voices. What role does silence have in all this noise?
+ - If I’m a cruel satirist at least I’m not a hyprocrite: I never judge what other people do. Neither a politician nor a priest, I never censor what others do. Neither a philospher nor a psychiatrist, I never bother trying to analyze or resolve my fears and neuroses.
+ - I think that one can have luck if one tries to create an atmosphere of spontaneity.
+ - Marriage is a tyranny, a mortification of man’s natural instincts. Man needs a multiplicity of relationships.
+ - All art is autobiographical; the pearl is the oyster’s autobiography.
+ - I never make moral judgments; I’m not qualified to do so. I am not a censor, a priest, or a politician.
+ - No critic writing about a film could say more than the film itself, although they do their best to make us think the oppposite.
+ - Hype is the awkward and desperate attempt to convince journalists that what you’ve made is worth the misery of having to review it.
+ - Even if I set out to make a film about a fillet of sole, it would be about me.
+ - The only place where you can be a dictator and still be loved is on the movie set.
+
+61 quotes

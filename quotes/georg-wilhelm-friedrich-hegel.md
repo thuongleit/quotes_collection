@@ -1,0 +1,111 @@
+ - Nothing great in the world was accomplished without passion.
+ - We learn from history that we do not learn from history.
+ - War is progress, peace is stagnation.
+ - The owl of Minerva spreads its wings only with the falling of the dusk.
+ - Before the end of Time will be the end of History. Before the end of History will be the end of Art.
+ - Africa has no history and did not contribute to anything that makind enjoyed...
+ - Education is the art of making man ethical.
+ - History teaches us that man learns nothing from history.
+ - Only one man ever understood me, and he didn’t understand me.
+ - Genuine tragedies in the world are not conflicts between right and wrong. They are conflicts between two rights.
+ - The courage of the truth is the first condition of philosophic study.
+ - History is not the soil of happiness. The periods of happiness are blank pages in it.
+ - To be aware of limitations is already to be beyond them.
+ - Philosophy is the history of philosophy.
+ - An idea is always a generalization, and generalization is a property of thinking. To generalize means to think.
+ - God is the absolute truth.
+ - The learner always begins by finding fault, but the scholar sees the positive merit in everything.
+ - The spirit is never at rest, but always engaged in progressive motion, giving itself new form.
+ - Truth is found neither in the thesis nor the antithesis, but in an emergent synthesis which reconciles the two.
+ - World history is a court of judgment.
+ - The sublime in art is the attempt to express the infinite without finding in the realm of phenomena any object which proves itself fitting for this representation.
+ - The valor that struggles is better than the weakness that endures.
+ - The State is the absolute reality and the individual himself has objective existence, truth and morality only in his capacity as a member of the State.
+ - If you want to love you must serve, if you want freedom you must die.
+ - To be independent of public opinion is the first formal condition of achieving anything great.
+ - Life has value only when it has something valuable as its object.
+ - Impatience asks for the impossible, wants to reach the goal without the means of getting there. The length of the journey has to be borne with, for every moment is necessary.
+ - To make abstractions hold in reality is to destroy reality.
+ - In the Soul is the awaking of Consciousness: Consciousness sets itself up as Reason, awaking at one bound to the sense of its rationality: and this Reason by its activity emancipates itself to objectivity and the consciousness of its intelligent unity.
+ - Philosophy is by its nature something esoteric, neither made for the mob nor capable of being prepared for the mob.
+ - No man is a hero to his valet de chamber.
+ - The person must give himself an external sphere of freedom in order to have being as Idea.
+ - Evil resides in the very gaze which perceives Evil all around itself.
+ - Whatever is reasonable is true, and whatever is true is reasonable.
+ - The history of the world is none other than the progress of the, consciousness of freedom.
+ - Mark this well, you proud men of action! you are, after all, nothing but unconscious instruments of the men of thought.
+ - Genuine tragedy is a case not of right against wrong but of right against right – two equally justified ethical principles embodied in people of unchangeable will.
+ - As high as mind stands above nature, so high does the state stand above physical life. Man must therefore venerate the state as a secular deity. The march of God in the world, that is what the State is.
+ - Beauty is merely the Spiritual making itself known sensuously.
+ - Philosophy must indeed recognize the possibility that the people rise to it, but must not lower itself to the people.
+ - Destiny is consciousness of oneself, but consciousness of oneself as an enemy.
+ - To him who looks at the world rationally the world looks rationally back.
+ - The true is the whole.
+ - Truth in philosophy means that concept and external reality correspond.
+ - People who are too fastidious towards the finite never reach actuality, but linger in abstraction, and their light dies away.
+ - The true courage of civilized nations is readiness for sacrifice in the service of the state, so that the individual counts as only one amongst many. The important thing here is not personal mettle but aligning oneself with the universal.
+ - The essence of the modern state is the union of the universal with the full freedom of the particular, and with the welfare of individuals.
+ - Every idea, extended into infinity, becomes its own opposite.
+ - Consequently, the sensuous aspect of art is related only to the two theoretical sensesof sight and hearing, while smell, taste, and touch remain excluded.
+ - The heart is everywhere, and each part of the organism is only the specialized force of the heart itself.
+ - When Philosophy with its abstractions paints grey in grey, the freshness and life of youth has gone, the reconciliation is not a reconciliation in the actual, but in the ideal world.
+ - The more certain our knowledge the less we know.
+ - India has created a special momentum in world history as a country to be searched for knowledge.
+ - The beginning of religion, more precisely its content, is the concept of religion itself, that God is the absolute truth, the truth of all things, and subjectively that religion alone is the absolutely true knoweldge.
+ - Reason is just as cunning as she is powerful. Her cunning consists principally in her mediating activity, which, by causing objects to act and re-act on each other in accordance with their own nature, in this way, without any direct interference in the process, carries out reason’s intentions.
+ - Poetry is the universal art of the spirit which has become free in itself and which is not tied down for its realization to external sensuous material; instead, it launches out exclusively in the inner space and the inner time of ideas and feelings.
+ - An individual piece only has meaning when it is seen as part of the whole.
+ - Poverty in itself does not make men into a rabble; a rabble is created only when there is joined to poverty a disposition of mind, an inner indignation against the rich, against society, against the government.
+ - Propounding peace and love without practical or institutional engagement is delusion, not virtue.
+ - The nature of finite things is to have the seed of their passing-away as their essential being: the hour of their birth is the hour of their death.
+ - Not curiosity, not vanity, not the consideration of expediency, not duty and conscientiousness, but an unquenchable, unhappy thirst that brooks no compromise leads us to truth.
+ - In duty the individual acquires his substantive freedom.
+ - Once the state has been founded, there can no longer be any heroes. They come on the scene only in uncivilized conditions.
+ - Nothing great has been and nothing great can be accomplished without passion. It is only a dead, too often, indeed, a hypocriticalmoralizing which inveighs against the form of passion as such.
+ - When liberty is mentioned, we must always be careful to observe whether it is not really the assertion of private interests which is thereby designated.
+ - America is therefore the land of the future, where, in the ages that lie before us, the burden of the World’s History shall reveal itself.
+ - The force of mind is only as great as its expression; its depth only as deep as its power to expand and lose itself.
+ - The first glance at History convinces us that the actions of men proceed from their needs, their passions, their characters and talents; and impresses us with the belief that such needs, passions and interests are the sole spring of actions.
+ - A man who has work that suits him and a wife, whom he loves, has squared his accounts with life.
+ - The state of man’s mind, or the elementary phase of mind which he so far possesses, conforms precisely to the state of the world as he so far views it.
+ - It is a matter of perfect indifference where a thing originated; the only question is: Is it true in and for itself?
+ - The evident character of this defective cognition of which mathematics is proud, and on which it plumes itself before philosophy, rests solely on the poverty of its purpose and the defectiveness of its stuff, and is therefore of a kind that philosophy must spurn.
+ - On the stage on which we are observing it, – Universal History – Spirit displays itself in its most concrete reality.
+ - Animals are in possession of themselves; their soul is in possession of their body. But they have no right to their life, because they do not will it.
+ - I have the courage to be mistaken.
+ - History as the slaughter-bench.
+ - The people are that part of the state that does not know what it wants.
+ - The History of the world is not the theatre of happiness. Periods of happiness are blank pages in it, for they are periods of harmony – periods when the antithesis is in abeyance.
+ - Too fair to worship, too divine to love.
+ - Mere goodness can achieve little against the power of nature.
+ - God is, as it were, the sewer into which all contradictions flow.
+ - Whatever happens, every individual is a child of his time; so philosophy too is its own time apprehended in thoughts. It is just as absurd to fancy that a philosophy can transcend its contemporary world as it is to fancy that an individual can overleap his own age, jump over Rhodes.
+ - The East knew and to the present day knows only that One is Free; the Greek and the Roman world, that some are free; the German World knows that All are free. The first political form therefore which we observe in History, is Despotism, the second Democracy and Aristocracy, the third, Monarchy.
+ - Education to independence demands that young people should be accustomed early to consult their own sense of propriety and their own reason. To regard study as mere receptivity and memory work is to have a most incomplete view of what instruction means.
+ - There are Plebes in all classes.
+ - The Few assume to be the deputies, but they are often only the despoilers of the Many.
+ - Children are potentially free and their life directly embodies nothing save potential freedom. Consequently they are not things and cannot be the property either of their parents or others.
+ - Reading the morning newspaper is the realist’s morning. One orients one’s attitude toward the either by or by what the world is. The former gives as much security as the latter, in that one knows how one stands.
+ - Regarding History as the slaughter-bench at which the happiness of peoples, the wisdom of States, and the virtue of individuals have been victimized – the question involuntarily arises – to what principle, to what final aim these enormous sacrifices have been offered.
+ - Amid the pressure of great events, a general principle gives no help.
+ - The man whom philosophy leaves cold, and the man whom real faith does not illuminate, may be assured that the fault lies in them, not in knowledge and faith. The former is still an alien to philosophy, the latter an alien to faith.
+ - It strikes everyone in beginning to form an acquaintance with the treasures of Indian literature that a land so rich in intellectual products and those of the profoundest order of thought.
+ - The people will learn to feel the dignity of man. They will not merely demand their rights, which have been trampled in the dust, but themselves will take them – make them their own.
+ - The substance, the essence, the Spirit is freedom.
+ - The Catholics had been in the position of oppressors, and the Protestants of the oppressed.
+ - Governments have never learned anything from history, or acted on principles deducted from it.
+ - It is easier to discover a deficiency in individuals, in states, and in Providence, than to see their real import and value.
+ - The proofs of the existence of God are to such an extent fallen into discredit that they pass for something antiquated, belonging to days gone by.
+ - It is because the method of physics does not satisfy the comprehension that we have to go on further.
+ - We do not need to be shoemakers to know if our shoes fit, and just as little have we any need to be professionals to acquire knowledge of matters of universal interest.
+ - Serious occupation is labor that has reference to some want.
+ - In a true tragedy, both parties must be right.
+ - Science and knowledge, especially that of philosophy, came from the Arabs into the West.
+ - History in general is therefore the development of Spirit in Time, as Nature is the development of the Idea is Space.
+ - When individuals and nations have once got in their heads the abstract concept of full-blown liberty, there is nothing like it in its uncontrollable strength.
+ - Reading the morning newspaper is the realist’s morning prayer.
+ - The State is the Divine idea as it exists on Earth.
+ - No man is a hero to his valet. This is not because the hero is no hero, but because the valet is a valet.
+ - The real is the rational and the rational is the real.
+
+109 quotes

@@ -1,0 +1,396 @@
+ - Experience, travel – these are an education in themselves.
+ - Leave no stone unturned.
+ - Question everything. Learn something. Answer nothing.
+ - I would rather die on my feet than live on my knees.
+ - Silence is true wisdom’s best reply.
+ - Friends show their love in times of trouble, not in happiness.
+ - Do not plan for ventures before finishing what’s at hand.
+ - Stronger than lover’s love is lover’s hate. Incurable, in each, the wounds they make.
+ - Nothing is hopeless; we must hope for everything.
+ - The wisest men follow their own direction.
+ - Nothing has more strength than dire necessity.
+ - Enough is abundance to the wise.
+ - Sound judgement, with discernment is the best of seers.
+ - To a father growing old nothing is dearer than a daughter.
+ - A slave is he who cannot speak his thoughts.
+ - Talk sense to a fool and he calls you foolish.
+ - Much effort, much prosperity.
+ - Love is all we have, the only way that each can help the other.
+ - Your worst enemy Becomes your best friend, once he’s underground.
+ - Danger gleams like sunshine to a brave man’s eyes.
+ - Do not consider painful what is good for you.
+ - It is the wise man’s part to leave in darkness everything that is ugly.
+ - The brave venture anything.
+ - Mighty is geometry; joined with art, resistless.
+ - When love is in excess, it brings a man no honor, no worthiness.
+ - Today is the tomorrow you worried about yesterday. Tragedy isn’t getting something or failure to get it; it’s losing something you already have. Waste not fresh tears over old griefs.
+ - One loyal friend is worth ten thousand relatives.
+ - There is just one life for each of us: our own.
+ - The best and safest thing is to keep a balance in your life, acknowledge the great powers around us and in us. If you can do that, and live that way, you are really a wise man.
+ - Your very silence shows you agree.
+ - Let a man accept his destiny, No pity and no tears.
+ - When good men die, their goodness does not perish, but lives though they are gone. As for the bad, all that was theirs dies and is buried with them.
+ - The brash unbridled tongue, the lawless folly of fools, will end in pain. But the life of wise content is blest with quietness, escapes the storm and keeps its house secure.
+ - When a good man is hurt, all who would be called good must suffer with him.
+ - Slow but sure moves the might of the gods.
+ - Anger exceeding limits causes fear and excessive kindness eliminates respect.
+ - Real friendship is shown in times of trouble; prosperity is full of friends.
+ - There is safety in numbers.
+ - Waste not fresh tears over old griefs.
+ - There is in the worst of fortune the best of chances for a happy change.
+ - The greatest pleasure of life is love.
+ - Moderation, the noblest gift of Heaven.
+ - Let no one think of me that I am humble or weak or passive; let them understand I am of a different kind: dangerous to my enemies, loyal to my friends. To such a life glory belongs.
+ - No man on earth is truly free, All are slaves of money or necessity. Public opinion or fear of prosecution forces each one, against his conscience, to conform.
+ - No one is truly free, they are a slave to wealth, fortune, the law, or other people restraining them from acting according to their will.
+ - He is not a lover who does not love forever.
+ - Action achieves more than words.
+ - Cleverness is not wisdom.
+ - Necessity is harsh. Fate has no reprieve.
+ - The day is for honest men, the night for thieves.
+ - Numbers are a fearful thing.
+ - Who knoweth if to die be but to live, and that called life by mortals be but death?
+ - Judge a tree from its fruit, not from its leaves.
+ - Friendship doubles your joys, and divides your sorrows.
+ - The language of truth is simple.
+ - A man’s most valuable trait is a judicious sense of what not to believe.
+ - This is true liberty, when free-born men, having to advise the public, may speak free.
+ - When a man’s stomach is full it makes no difference whether he is rich or poor.
+ - Who knows but life be that which men call death, And death what men call life?
+ - Enjoy yourself, drink, call the life you live today your own; but only that, the rest belongs to chance.
+ - There is something in the pang of change more than the heart can bear, unhappiness remembering happiness.
+ - Old men’s prayers for death are lying prayers, in which they abuse old age and long extent of life. But when death draws near, not one is willing to die, and age no longer is a burden to them.
+ - The gods visit the sins of the fathers upon the children.
+ - There is no harbor of peace from the changing waves of joy and despair.
+ - A coward turns away, but a brave man’s choice is danger.
+ - One does nothing who tries to console a despondent person with word. A friend is one who aids with deeds at a critical time when deeds are called for.
+ - Man’s best possession is a sympathetic wife.
+ - To a father waxing old, nothing is dearer than a daughter; sons have spirits of a higher pitch, but less inclined to endearing fondness.
+ - He who can properly summarize many ideas in a brief statement, is a wise man.
+ - Impudence is the worst of all human diseases.
+ - For with slight efforts how should we obtain great results? It is foolish even to desire it.
+ - Along with success comes a reputation for wisdom.
+ - The company of just and righteous men is better than wealth and a rich estate.
+ - Keep alive the light of justice, And much that men say in blame will pass you by.
+ - I know indeed what evil I intend to do, but stronger than all my afterthoughts is my fury, fury that brings upon mortals the greatest evils.
+ - The good and the wise lead quiet lives.
+ - Sanity brings pain but madness is a vile thing.
+ - Love must not touch the marrow of the soul. Our affections must be breakable chains that we can cast them off or tighten them...
+ - Men honor property above all else; it has the greatest power in human life.
+ - You will not achieve happiness if you don’t work hard; and it’s a shame not to want to work hard.
+ - Happy the man who from the sea escapes the storm and finds harbor.
+ - Life is short, yet sweet.
+ - Death is what men want when the anguish of living is more than they can bear.
+ - Mobs in their emotions are much like children, subject to the same tantrums and fits of fury.
+ - The man that isn’t jolly after drinking is just a drivelling idiot, to my thinking.
+ - Cowards do not count in battle; they are there, but not in it.
+ - Soon all of you immortals Will be as dead as we are! Come on then, what are you waiting for? Have you run out of thunderbolts?
+ - Nothing’s as good as holding on to safety.
+ - Hate is a bottomless cup; I will pour and pour.
+ - Venus, thy eternal sway All the race of men obey. Euripides, Iphigenia in Aulis. He is not a lover who does not love for ever.
+ - When one with honeyed words but evil mind Persuades the mob, great woes befall the state.
+ - What greater grief than the loss of one’s native land.
+ - A sharp-tempered woman, or, for that matter, a man, Is easier to deal with than the clever type Who holds her tongue.
+ - All is change; all yields its place and goes.
+ - There is no worse evil than a bad woman; and nothing has ever been produced better than a good one.
+ - Do not mistake the rule of force for true power. Men are not shaped by force.
+ - Cleverness is not wisdom. And not to think mortal thoughts is to see few days.
+ - This is courage in a man: to bear unflinchingly what heaven sends.
+ - If the gods do evil then they are not gods.
+ - Those who look for filth, can find it at the height of noon.
+ - You were a stranger to sorrow: therefore Fate has cursed you.
+ - Neither earth nor ocean produces a creature as savage and monstrous as woman.
+ - Woman is woman’s natural ally.
+ - A rare spoil for a man Is the winning of a good wife; very Plentiful are the worthless women.
+ - I care for riches, to make gifts To friends, or lead a sick man back to health With ease and plenty. Else small aid is wealth For daily gladness; once a man be done With hunger, rich and poor are all as one.
+ - Prepare yourselves for the roaring voice of the God of Joy!
+ - Time will explain it all. He is a talker, and needs no questioning before he speaks.
+ - All men know their children Mean more than life. If childless people sneer- Well, they’ve less sorrow. But what lonesome luck!
+ - Happy the man whose lot it is to know The secrets of the earth. He hastens not To work his fellows hurt by unjust deeds, But with rapt admiration contemplates Immortal Nature’s ageless harmony, And how and when the order came to be.
+ - What anger worse or slower to abate then lovers love when it turns to hate.
+ - Ill-gotten wealth is never stable.
+ - Money is far more persuasive than logical arguments.
+ - When a wise man chooses a sane basis for his arguments, it is no great task to speak well.
+ - Nothing happens to man without the permission of God...
+ - The same man cannot well be skilled in everything; each has his special excellence.
+ - The daughters of Sparta are never at home! They mingle with the young men in wrestling matches...
+ - The wavering mind is but a base possession.
+ - Of all things upon earth that bleed and grow, a herb most bruised is woman.
+ - It is said that gifts persuade even the gods.
+ - In misfortune, which friend remains a friend?
+ - Zeus hates busybodies and those who do too much.
+ - Often a noble face hides filthy ways.
+ - There is one thing alone that stands the brunt of life throughout its course; a quiet conscience.
+ - This is sweet to see your foe, perish and pay to justice all he owes.
+ - Do we, holding that the gods exist, deceive ourselves with insubstantial dreams and lies, while random careless chance and change alone control the world?
+ - Short is the joy that guilty pleasure brings.
+ - It is a strange form of anger, difficult to cure, when two friends turn upon each other in hatred.
+ - Surely again, to heal men’s wounds by music’s spell.
+ - Every man is like the company he wont to keep.
+ - Never say that marriage has more of joy than pain.
+ - In life, the worst disasters come from passion.
+ - No one can confidently say that he will still be living tomorrow.
+ - To the fool, he who speaks wisdom will sound foolish.
+ - Many a maiden, With white feet dancing light as air, Made happy music through the gloom.
+ - Life is a short affair; We should try to make it smooth, and free from strife.
+ - A bad ending follows a bad beginning.
+ - I loathe a friend whose gratitude grows old, a friend who takes his friend’s prosperity but will not voyage with him in his grief.
+ - The gods have sent medicines for the venom of serpents, but there is no medicine for a bad woman. She is more noxious than the viper, or than fire itself.
+ - In adverse hours the friendship of the good shines most; each prosperous day commands its friends.
+ - Whoever yields properly to Fate, is deemed Wise among men, and knows the laws of heaven.
+ - Remember this! No amount of Bacchic reveling can corrupt an honest woman.
+ - We must take care of our minds because we cannot benefit from beauty when our brains are missing.
+ - Life has no blessing like a prudent friend.
+ - In case of dissension, never dare to judge till you’ve heard the other side.
+ - A second wife is hateful to the children of the first; a viper is not more hateful.
+ - Worse than a true evil is it to bear the burden of faults that are not truly yours.
+ - My tongue swore, but my mind was still unpledged.
+ - A wise man in his house should find a wife gentle and courteous, or no wife at all.
+ - Arm yourself, my heart: the thing that you must do is fearful, yet inevitable.
+ - Ten soldiers wisely led will beat a hundred without a head.
+ - There is nothing like the sight of an old enemy down on his luck.
+ - In this world second thoughts, it seems, are best.
+ - Do not grieve so much for a husband lost that it wastes away your life.
+ - Vengeance comes not slowly either upon you or any other wicked man, but steals silently and imperceptibly, placing its foot on the bad.
+ - In the hands of vicious men, a mob will do anything. But under good leaders it’s quite a different story.
+ - The wife should yield in all things to her lord.
+ - Misery is the end of those with unbridled mouths.
+ - I love the old way best, the simple way of poison, where we too are strong as men.
+ - The life of men is painful.
+ - A woman should always stand by a woman.
+ - Since we are mortal, friendships are best kept to a moderate level, rather than sharing the very depths of our souls.
+ - I would prefer as friend a good man ignorant than one more clever who is evil too.
+ - Better a serpent than a stepmother!
+ - Time will discover everything to posterity; it is a babbler, and speaks even when no question is put.
+ - The meanest life is better than the most glorious death.
+ - It is a good thing to be rich and strong, but it is a better thing to be loved.
+ - Try first thyself, and after call in God; For to the worker God himself lends aid.
+ - Fortune always will confer an aura of worth, unworthily; and in this world The lucky person passes for a genius.
+ - Whoso neglects learning in his youth, loses the past and is dead for the future.
+ - What can we take on trust in this uncertain life? Happiness, greatness, pride – nothing is secure, nothing keeps.
+ - Love distills desire upon the eyes, love brings bewitching grace into the heart...
+ - Men hate the haughty of heart who will not be the friend of every man.
+ - The wise with hope support the pains of life.
+ - Again, a smooth answer, signifying nothing.
+ - Fortune truly helps those who are of good judgment.
+ - Give a wise man an honest brief to plead and his eloquence is no remarkable achievement.
+ - New faces have more authority than accustomed ones.
+ - There is no evil as terrible as a woman.
+ - What is god, what is not god, what is between man and god, who shall say?
+ - We pay a high price for intelligence. Wisdom hurts.
+ - When someone isn’t seen for a long time, Well, folk soon begin to imagine the worst.
+ - O virtue, I have followed you through life, and find you at last but a shade.
+ - There is the sky, which is all men’s together.
+ - When good men die their goodness does not perish.
+ - God helps him who strives hard.
+ - The bold are helpless without cleverness.
+ - To have found you is a dear happiness; and to be Apollo’s son is beyond all my hopes; but there is something I want to say to you alone. Come; this is a private matter between us two – anything you tell me shall be as secret as the grave.
+ - What greater pain could mortals have than this: To see their children dead before their eyes?
+ - Greatness brings no profit to people. God indeed, when in anger, brings greater ruin to great mens houses.
+ - That glittering hope is immemorial and beckons many men to their undoing.
+ - Chance fights ever on the side of the prudent.
+ - This is what it means to be a slave; to be abused and bear it; compelled by violence to suffer wrong.
+ - It’s folly that women measure their happiness with the pleasures of the bed, but they do. And when the pleasure cools or their man goes missing, all they once lived for turns dark and hateful.
+ - Silence and chaste reserve is woman’s genuine praise, and to remain quiet within the house.
+ - Oh, what a power is motherhood, possessing a potent spell. Love, Light, Blessings.
+ - How dark are all the ways of god to man!
+ - When the anger of the gods is incurred, wealth or power only bring more devastating punishment.
+ - It is wise to withhold one’s heart and mind from men who think themselves superior.
+ - For no mortal ever attains to blessedness. One may be luckier than another when wealth flows his way, but blessed never.
+ - None can hold fortune still and make it last.
+ - Pay special attention to their agony so I might take some pleasure.
+ - Those whose cause is just will never lack good arguments.
+ - The best prophet is common sense, our native wit.
+ - Silver and gold are not the only coin; virtue too passes current all over the world.
+ - A man who has been in danger, When he comes out of it forgets his fears, And sometimes he forgets his promises.
+ - Events will take their course, it is no good of being angry at them; he is happiest who wisely turns them to the best account.
+ - Character is “a stamp of good repute on a person.”
+ - Courage may be taught as a child us taught to speak.
+ - Terrible is the force of the waves of sea, terrible is the rush of the river and the blasts of hot fire, and terrible are a thousand other things; but none is such a terrible evil as woman.
+ - If I could remake the world, I’d banish women, send them away with all their trouble. Then children would come from a purer source.
+ - When cheated, wife or husband feels the same.
+ - Pray the gods do not envy your happiness!
+ - He who believes needs no explanation.
+ - The way of God is complex, he is hard for us to predict. He moves the pieces and they come somehow into a kind of order.
+ - Reason can wrestle and overthrow terror.
+ - To generous souls every task is noble.
+ - It’s the wise man who stays home when he’s drunk.
+ - Fate finds for every man; his share of misery.
+ - Dead men have no victory.
+ - Oftener than not the old are uncontrollable; Their tempers make them difficult to deal with.
+ - The ways of the gods are long, but in the end they are not without strength.
+ - God in heaven has dominion Over so many events. He can frustrate what seems inevitable, And bring to pass the thing that you least expect.
+ - There is nothing more hostile to a city that a tyrant, under whom in the first and chiefest place, there are not laws in common, but one man, keeping the law himself to himself, has the sway, and this is no longer equal.
+ - Account no man happy till he dies.
+ - Women don’t like violence, But when their husbands desert them, that is different.
+ - The man who knows when not to act is wise. To my mind bravery if forethought.
+ - What we look for does not come to pass; God finds a way for what none foresaw.
+ - Oh, what a vileness human beauty is; corroding, corrupting everything it touches.
+ - Both to the rich and poor, wine is the happy antidote for sorrow.
+ - Human excellence means nothing Unless it works with the consent of God.
+ - Time will cure you, but now is your grief still young.
+ - To the ignorant, even the words of wise seem foolishness.
+ - Down on your knees, and thank heaven, fasting, for a good man’s love.
+ - To die with glory, if one has to die at all, is still, I think, pain for the dier.
+ - Rightness of judgment is bitterness to the heart.
+ - In my opinion, the unjust man whose tongue is full of glozing rhetoric, merits the heaviest punishment; vaunting that he can with his tongue gloze over injustice, he dares to act wickedly, yet he is not over-wise.
+ - Whom the gods destroy, they first make mad.
+ - Virtue proceeds through effort.
+ - We must believe in the gods no longer if injustice is to prevail over justice.
+ - To persevere, trusting in what hopes he has, is courage in a man.
+ - If your life at night is good, you think you have everything.
+ - A sweet thing, for whatever time, to revisit in dreams the dear dad we have lost.
+ - Today’s today. Tomorrow we may be ourselves gone down the drain of Eternity.
+ - If god is truly god, he is perfect, lacking nothing.
+ - The variety of all things forms a pleasure.
+ - I envy that man who passes through life safely, to the world and fame unknown.
+ - Time cancels young pain.
+ - Of mortals there is no one who is happy. If wealth flows in upon one, one may be perhaps luckier than one’s neighbor, but still not happy.
+ - The divine power moves with difficulty, but at the same time surely.
+ - Luckier than one’s neighbor, but still not happy.
+ - Ten thousand men possess ten thousand hopes.
+ - The first requisite to happiness is that a man be born in a famous city.
+ - The little done doth vanish to the mind which forward sees how much remains to do.
+ - Joint undertakings stand a better chance when they benefit both sides.
+ - The man is happiest who lives from day to day and asks no more, garnering the simple goodness of life.
+ - Delusive hope still points to distant good.
+ - Authority is never without hate.
+ - The mob gets out of hand, runs wild, worse than raging fire, while the man who stands apart is called a coward.
+ - I have found power in the mysteries of thought.
+ - Few have greater riches than the joy That comes to us in visions, In dreams which nobody can take away.
+ - The nobly born must nobly meet his fate.
+ - Slight not what’s near through aiming at what’s far.
+ - To an old father, nothing is more sweet than a daughter. Boys are more spirited, but their ways are not so tender.
+ - The new-come stepmother hates the children born to a first wife.
+ - To every man, even though he be a slave, the light of heaven is sweet.
+ - When two souls compose a single song, The muse fans Livid wrath before long.
+ - Happiness is brief. It will not stay. God batters at its sails.
+ - No one who lives in error is free.
+ - The childless escape much misery.
+ - Lucky is the man who has been successful with his children and not got ones who are notorious disasters.
+ - Oh, trebly blest the placid lot of those whose hearth foundations are in pure love laid, where husband’s breast with tempered ardor glows, and wife, oft mother, is in heart a maid!
+ - Forgive, son; men are men; they needs must err.
+ - A just cause needs no interpreting. It carries its own case. But the unjust argument since it is sick, needs clever medicine.
+ - Out of some little thing, too free a tongue can make an outrageous wrangle.
+ - God hates violence. He has ordained that all men fairly possess their property, not seize it.
+ - Where there are two, one cannot be wretched, and one not.
+ - Why do we make so much of knowledge, struggle so hard to get some little skill not worth the effort?
+ - It was my tongue that swore; my heart is unsworn.
+ - Who then will dare to say I’m weak or timid? No, they’ll say I’m loyal as a friend, ruthless as a foe, so much like a hero destined for glory.
+ - The gift of a bad man can bring no good.
+ - If your life at night is good, you think you have Everything; but, if in that quarter things go wrong, You will consider your best and truest interests Most hateful.
+ - Youth holds no society with grief.
+ - Bodies devoid of mind are as statues in the market place.
+ - They who are sad find somehow sweetness in tears.
+ - Alas, how right the ancient saying is: We, who are old, are nothing else but noise And shape. Like mimicries of dreams we go, And have no wits, although we think us wise.
+ - None wise dares hopeless venture.
+ - You women are all the same, if bed’s all right, You think everything else can go to the wind. But if there’s any infringement of your bed-rights, Then fair is foul and all hell’s let loose.
+ - But learn that to die is a debt we must all pay.
+ - Human misery must somewhere have a stop; there is no wind that always blows a storm.
+ - It’s not beauty but fine qualities, my girl, that keep a husband.
+ - O lady, nobility is thine, and thy form is the reflection of thy nature!
+ - Common sense is the best prophet.
+ - A wise fellow who is also worthless always charms the rabble.
+ - Gods should not resemble men in their anger!
+ - An ally need not own the land he helps.
+ - The unrighteous are never really fortunate.
+ - May he die with no joy at his end, The man who won’t be troubled To unlock the keys of his heart and make a friend.
+ - Mankind led on by gods err all too easily.
+ - If we could be twice young and twice old we could correct all our mistakes.
+ - High honors are sweet To a man’s heart, but ever They stand close to the brink of grief.
+ - It is better to die on your feet than be called for offensive pass interference.
+ - It makes little difference to the dead, if they are buried in the tokens of luxury. It is but an empty glorification left for those who live.
+ - Disaster appears, to crush one man now, but afterward another.
+ - Time will bring healing.
+ - God gives each his due at the time allotted.
+ - He was a wise man who originated the idea of God.
+ - Wine is a terrible foe, hard to wrestle with.
+ - Prosperity is full of friends.
+ - Blood streams in sacrifice; yet anguish finds no cure.
+ - The man who melts With social sympathy, though not allied, Is more worth than a thousand kinsmen.
+ - What good can come from meeting death with tears? If a man Is sorry for himself, he doubles death.
+ - How base a thing it is when a man will struggle with necessity! We have to die.
+ - Toil, says the proverb, is the sire of fame.
+ - What else goes wrong for a woman-except her marriage?
+ - When roused to rage the maddening populace storms, their fury, like a rolling flame, bursts forth unquenchable; but give its violence ways, it spends itself, and as its force abates, learns to obey and yields it to your will.
+ - We know the good, we apprehend it clearly; but we can’t bring it to achievement.
+ - It would not be better if men got what they wanted.
+ - Dishonor will not trouble me, once I am dead.
+ - Delight in splendor is no more than happiness with little for both and have their appeal.
+ - Children are sweet as the buds in spring, But I’ve noticed that those who have them Have nothing but trouble all their lives.
+ - There is as much confusion in the world of the gods as in ours.
+ - Song brings of itself a cheerfulness that wakes the heart of joy.
+ - Do not mistake for wisdom that opinion which may rise from a sick mind.
+ - Wrath brings mortal men their gravest hurt.
+ - The God knows when to smile.
+ - I have found nothing stronger than Necessity.
+ - Good and bad may not be dissevered; There is, as there should be, a commingling.
+ - Wealth stays with us a little moment if at all: only our characters are steadfast, not our gold.
+ - Light be the earth upon you, lightly rest.
+ - Women’s love is for their men, not for their children.
+ - In goodness there are all kinds of wisdom.
+ - Life is short; this being so, who would pursue great things and not bear with what is at hand? These are the ways of madmen and men of evil counsel, at least in my judgment.
+ - The man whom heaven helps has friends enough.
+ - I hate it in friends when they come too late to help.
+ - Humility, a sense of reverence before the sons of heaven of all the prizes that a mortal man might win, these, I say, are wisest; these are best.
+ - Only a madman would give good for evil.
+ - Who cannot open an honest mind No friend will he be of mine.
+ - Ignorance of one’s misfortunes is clear gain.
+ - I sacrifice to no god save myself- And to my belly, greatest of deities.
+ - Men make their choice: one man honors one God, and one another.
+ - The man who glories in his luck may be overthrown by destiny.
+ - There seems to be some pleasure for women in sick talk of one another.
+ - The care of God for us is a great thing, if a man believe it at heart: it plucks the burden of sorrow from him.
+ - A change is always nice.
+ - Circumstances rule men and not men rule circumstances.
+ - The brave endure their labors, the cowardly are worth the cowards nothing at all.
+ - Power gives no purchase to the hand, it will not hold, soon perishes, and greatness goes.
+ - No one is happy all his life long.
+ - Let mortal man keep to his own Mortality, and not expect too much.
+ - The man who sticks it out against his fate shows spirit, but the spirit of a fool.
+ - Sweet is the remembrance of troubles when you are in safety.
+ - But woe to him, who left to moan, Reviews the hours of brightness gone.
+ - If some appalling disaster befalls, there’s Always a way for the rich.
+ - Those who are held Wise among men and who search the reasons of things, are those who bring the most sorrow on themselves.
+ - Only one in command: that’s the way in the home And the way in the state when it must find Measures best for mankind.
+ - If one must do a wrong, it’s best to do it pursuing power-otherwise, let’s have virtue.
+ - A woman should be good for everything at home, but abroad good for nothing.
+ - The worst, the least curable hatred is that which has superseded deep love.
+ - It is better that we live ever so Miserably than die in glory.
+ - Evil men by their own nature cannot ever prosper.
+ - Those who have not, and live in want, are a menace, Ridden with envy and fooled by demagogues.
+ - The power that keeps cities of men together Is noble preservation of law.
+ - For the weariest road that man may wend Is forth fromn the home of his father.
+ - I think that fortune watcheth o’er our lives, surer than we. But well said: he who strives will find his goals strive for him equally.
+ - Poverty possesses this disease; through want it teaches a man evil.
+ - Everyone asks if a man is rich, no one if he is good.
+ - Love’s all in all to women.
+ - For the good, when praised, feel something of disgust, if to excess commended.
+ - There is no bitterness to be compared with that between two people who once loved.
+ - Know we how many tomorrows the gods intend for our todays.
+ - Bear calamities with meekness.
+ - Happy is it to place a daughter; yet it pains a father’s heart when he delivers to another’s house a child, the object of his tender care.
+ - How sweet to remember the trouble that is past.
+ - Some men never find prosperity, For all their voyaging, While others find it with no voyaging.
+ - Sufficiency’s enough for men of sense.
+ - The best of seers is he who guesses well.
+ - Wine enlivens the human soul.
+ - We look for good on earth and cannot recognize it when met.
+ - Lucky that man whose children make his happiness in life and not his grief, the anguished disappointment of his hopes.
+ - Some wisdom you must learn from one who’s wise.
+ - All men know their children mean more than life.
+ - Too much zeal offends where indirection works.
+ - It is in adversity that the good show their friendship most clearly; prosperity always finds friends.
+ - Had I succeeded well, I had been reckoned amongst the wise; our minds are so disposed to judge from the event.
+ - That mortal is a fool who, prospering, thinks his life has any strong foundation; since our fortune’s course of action is the reeling way a madman takes, and no one person is ever happy all the time.
+ - The lucky person passes for a genius.
+ - Old age is not a total misery. Experience helps.
+ - I care for riches, to make gifts.
+ - And wealth abides not, it is but for a day.
+ - Alas!-but why Alas? It is the lot of mortality we experience.
+ - In every work a reward added makes the pleasure twice as great.
+ - The stillest tongue can be the truest friend.
+ - My hands are clean, but my heart has somewhat of impurity.
+ - Who dares not speak his free thoughts is a slave.
+
+394 quotes

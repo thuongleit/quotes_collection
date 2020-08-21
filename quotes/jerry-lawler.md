@@ -1,0 +1,81 @@
+ - I’m not a racist like Bret Hart, I hate everyone equally!
+ - Panties aren’t the greatest thing in the world, but they’re next to them.
+ - Why don’t you slip into something more comfortable? Like a coma.
+ - Her, Me, whipped cream, handcuffs. Any questions?
+ - One man’s trash is another man’s girlfriend.
+ - I don’t know if he needs a tic tac or toilet paper.
+ - Koko B. Ware is a crossword wrestler: he enters the ring vertically, and leaves horizontally.
+ - Women! Can’t live with ’em, no resale value.
+ - If the Japanese are so smart, why do they eat with sticks?
+ - When David killed Goliath, Mae Young called the cops.
+ - Helen Hart is the only person I know with an autographed copy of the Bible.
+ - Andy Kaufman’s mom wanted a girl, his father wanted a boy, and they were both satisfied!
+ - Do you have a quarter? My mom told me to call her when I meet the women of my dreams.
+ - When you were born and your mom saw your face and your rear end, she said “Oh! Siamesse Twins!”
+ - We just did a show in Providence, Rhode Island, and we got three puppy shots before we even got on the air, which was great. Although sometimes you get flashed by some puppies that you’d rather not see. They’re more like mongrels.
+ - You know how I impress girls at the gym? I do pull ups: I pull up in a Corvette, in a Cadillac, and in a Mercedes.
+ - I don’t think it’s blowing my own horn to say the show is not as good. There was chemistry there that took years and years to build and now that’s gone. The commentary is lacking.
+ - I’m an artist and I can draw very well. I’m amazed that everybody can’t draw well because I can do it so effortlessly.
+ - When most people get drunk, they see snakes. But, when snakes get drunk, they see Jake Roberts!
+ - Cheating is only cheating when you get caught.
+ - I’d like to retain Trish Stratus’s services.
+ - Australia was great. I would advise anybody to go there. In fact, if you couldn’t live here, Australia would be the place to live. It’s the most Americanized country that I’ve ever seen in the world.
+ - Paul Bearer is so fat, he has his own gravitational pull!
+ - I’m not embarrassed to be seen with younger women, except when I drop them off at school.
+ - If Mark Henry was the Titanic, the iceberg would’ve sank!
+ - Dustin Runnels came up to me and asked me if I made my peace with God today. I don’t know if I ever had a fight with him.
+ - There is an old adage: love thy neighbor, but don’t get caught.
+ - As they say, anything can happen in the World Wrestling Federation.
+ - The only thing harder than Terry Funk’s legs are his arteries.
+ - What do Jake ‘The Snake’ Roberts and a beer bottle have in common? They’re both empty from the neck up!
+ - In this day and time, with no competition you are really walking a tightrope. I mean you may think that no competition is good, but in reality no competition is really bad.
+ - Helen Hart is so old, she remembers when the Dead Sea was sick.
+ - Ahmed Johnson came from a neighborhood where the most common words heard was, You have the right to remain silent.
+ - Go back to your bingo hall.
+ - If charisma were rain, Blackman would be a desert.
+ - Paul Bearer has more chins than a Chinese phone book!
+ - The fats dented the flats.
+ - The only reason I lost to Aldo Montoya was the intoxicating fumes there were coming off his body from being around Jake Roberts.
+ - It used to be that Shamrock was the world’s most dangerous man, but now Shamrock is the world’s most dangerous speedbump.
+ - Speaking of birthday suits, I think Mae Young’s needs ironing!
+ - Get that strait jacket that Heidenreich had and put it on Lita!
+ - Being a 3-time Intercontinental champion doesn’t make you a great wrestler, just like Larry King having 9 wives don’t make him a great husband.
+ - Is he dancing or having a seizure?
+ - The only reason Jake ‘The Snake’ Roberts doesn’t drink and drive anymore is because he is afraid he might hit a bump and spill his drink.
+ - Michael Cole, what did you get for Christmas? Except drunk.
+ - But if I’ve heard this saying once, I’ve heard it a thousand times- everything happens for a reason. And possibly it does. I just haven’t found the reason that this all happened yet.
+ - I’ve been here for nine years, and over that time, these people have become like my family.
+ - Crash Holly’s so short, you can see his feet on his driver’s licence photo.
+ - It’s almost like while you are working for the WWF everything is fine and good, but if you are no longer employed by them they want you to just drop off the face of the earth and it’s like you never existed.
+ - It’s not often that you see a smile on the face of the Viper, but it actually looks good on there.
+ - Are you ready for some puppies?!
+ - As a baby, Bret Hart was so ugly that they had to put tinted windows on his incubator!
+ - Mark Henry is so strong he eats steak with a spoon.
+ - I’ve seen a lot of real out-of-line attitudes since I have been in the WWF and those people are still there or are getting a second or third chance or something like that.
+ - Dolph Ziggler reminds me of Santa; everywhere he goes he brings an old bag with him.
+ - ECW stands for Extremely Crappy Wrestling.
+ - How could Triple H EVER be mad, how could he EVER have a bad day? How would you like to be married to her?! Wake up in a wonderful mood every morning. I mean, look at that!
+ - This man can make a horror movie without makeup.
+ - We’ve finally told the world that this is sports entertainment, and I think one of the best forms of entertainment is anything that’s fun or funny, something that you really enjoy watching or listening to.
+ - Sunny didn’t make a fool out of Phineas, God beat her to that.
+ - If at first you don’t succeed, see if there is a prize for the losers.
+ - What’s twelve inches long and hangs in front on ass, Mankind’s tie.
+ - When it comes to Shawn Michaels, there’s always a way.
+ - I don’t know of any wrestler who hasn’t, at one time or another, been with a fan. One time I met a woman at a match in Tennessee, and afterward we went to a little roadside motel. We checked in, went to the room, and enjoyed each other for an hour or so.
+ - The Dudleys are going to get the VIP treatment this Sunday – Very Intense Pain!
+ - Jake Robert’s wife is real ugly, but according to him that’s nothing a six pack and a light switch can’t fix.
+ - Jim Ross you’re a fine one to talk about how someone is dressed.
+ - OSHA had come in and looked at the channel 5 studios and it sort of had something to do with wrestling, but they found that there were some safety concerns that had to be addressed.
+ - You never really know a woman till you meet her in court.
+ - Hey Mark Henry, where are your gold medals? We all know that if Mark Henry won a gold medal he’d just take it and have it bronzed.
+ - Judging from what looks like the popularity of this classic wrestling show is that the people like what they have grown to know and love here in Memphis.
+ - Foley looks like an un-made bed.
+ - Certainly it’s a business and you’ve got to have a salesman, but in my mind, when you’ve got two guys doing the same thing, you don’t need one of them.
+ - Can I press one for English?
+ - When I’m in bed with a woman, my favorite move is a wrestling hold called the lip lock.
+ - Of course, the whole Andy Kaufman angle was classic. I’m real proud of that. I mean that is something people are still talking about 20 years later, making movies about and that sort of thing. I mean not a day goes by that someone doesn’t mention Andy Kaufman to me.
+ - What the Hell. In 1988, I was the AWA heavyweight champion and I never came to Milwaukee.
+ - You lost weight? Look around, you’ll find it.
+ - I asked Sunny if she would ever consider dating you. She said she would rather give birth to a porcupine on fire.
+
+79 quotes

@@ -1,0 +1,43 @@
+ - I have a very strong belief in God.
+ - One of the great things about music is that it has the capability of time travel – you smell a certain smell in the room and it takes you back to your childhood. I feel like music is able to do that, and it happens to me all the time.
+ - When you work on a record for three years, it’s a great sense of relief when it is finally out in the world. It just feels good.
+ - I learned a long time ago that fame and money is not a ticket to happiness.
+ - I always prefer other people’s interpretations over my own, so I’m not very quick to make explicit what exactly a song or record is about.
+ - My grandparents are from Mexico, so I grew up with great Mexican food.
+ - Try to take your vision and ego as far away from the song as possible. Give as much respect as you can to the song and the initial inspiration.
+ - I’m somebody who gets a lot of inspiration from dreams.
+ - Even though someone has died, a piece of their spirit can still be alive. That’s an exciting world for me to take music into, or to attempt to do that.
+ - The South of France is one of my favorite places in the world.
+ - The best live recordings capture elements of surprise onstage.
+ - There’s at least one fist bump every interview.
+ - I love the sound of Elmore James, the sound early guitarists like him got just by using minimal means.
+ - I’m somebody who doesn’t feel the need to be in the driver’s seat all the time. I appreciate the perspective of being in the passenger’s seat sometimes, and I feel fortunate for that because I’ve learned a lot from that perspective.
+ - As a producer, I like to bring in unexpected voices, unexpected musicians, like Watt and Joey Spampinato of NRBQ.
+ - I get annoyed with movies or books, songs or records that deliberately try to make you feel a certain way.
+ - It was endlessly amusing to me to try to imitate John Lennon and Paul McCartney’s harmonies using the guitar.
+ - I’ve worked with just as many talented women as I have talented men, and I feel fortunate enough to have that great balance.
+ - When I first started making music, it was learning other peoples songs and putting them onto four-track. Like Beatles songs and stuff. When I started writing, I used the singing side of the production as a vehicle for melody and lyrical ideas.
+ - When I started writing, I used the singing side of the production as a vehicle for melody and lyrical ideas. Eventually, that process of using my voice to bring ideas across became more complicated, and I felt I could use it more as an expressive tool.
+ - I get most of my inspiration from older records and older production styles, and that ends up rearing its head in the records that I make.
+ - I went every Sunday to church when I was growing up, and I think that music had an affect on me before my memory can recall.
+ - I had the naive, simplistic idea that producers and writers and artists of the time helped in a minuscule way to change the mind-set of America.
+ - It’s a hard thing to explain, but the more I arrange for strings, the more I realize the possibilities.
+ - The way that I’m working now is basically the way I’ve been working since I was a kid: Find the greatest artist in whatever you do, and rip them off with respect. I think there’s a big difference between ripping off with respect and ripping off in disrespect.
+ - I get most of my inspiration from older records. Most of the records that I listen to were probably made before I was born, and I was born in the mid-’70s. I don’t know why, exactly, I’m drawn to those sounds.
+ - I don’t really watch TV series because I don’t want to get hooked on them and have them suck up all my time.
+ - I believe in working with songs that have personal value for me.
+ - My philosophy for producing a record is for everyone involved, including myself, to get out of the way of the song, and at the same time, listen to it as closely as you can, and listen to where the song wants to go.
+ - My favorite recordings are the ones that feel like there were no middlemen in the creation. That’s the biggest problem with most films and records being made today – too many people involved. I think it dilutes the artist’s intent and inspiration.
+ - The production process has a great way of bringing songs to light and that’s a big part of it.
+ - I’ve never used the word jamming. It’s a matter of finding a great song and learning the chords, then slightly altering the vocal melody, and matching a classic chord progression with another chord progression.
+ - From a very early age, I started to get really interested in how songs were put to tape. Not just listening to the songs, but the way the songs were recorded.
+ - I definitely don’t see myself as much of a singer, because my upbringing is really based around the guitar, learning chord progressions and that sort of thing. So the singing aspect of what I do has been a secondary adventure.
+ - It’s a luxury to not have to just be performing with other people to have my music heard.
+ - When I was about 15, I picked up the guitar and learned how to play by going through Beatles chords books. I got this Christmas gift with the entire Beatles catalog.
+ - I don’t like the way recording to digital sounds.
+ - Every record turns into whatever the listener gets out of it.
+ - In order to make a normal-sized record, a singer songwriter should have a couple dozen finished songs. Once they go through the process of production, the ones that scream out at you that they’re finished are the ones that make the record.
+ - Certain things you have to stumble on to. They can’t be preprogrammed.
+ - I don’t like the way recording to digital sounds. Most of the time, when I’m recording to two-inch tape, I still have a romantic vision of how songs sounded coming out of the radio when I was younger, and how they sounded coming out of my little four-track cassette player.
+
+41 quotes

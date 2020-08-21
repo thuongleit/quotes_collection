@@ -1,0 +1,64 @@
+ - Smart people learn from their mistakes. But the real sharp ones learn from the mistakes of others.
+ - The love of reading can be contagious.
+ - Don’t let the brownies bite.
+ - Do not threaten the supreme gigantic overlords. We do as we please.
+ - Do us all a favor and toss your mouth overboard.
+ - When jumping is the sole option, you jump, and try to make it work.
+ - We all posses different gifts and abilities. How we use those gifts determines who we are.
+ - Excruciating agony makes me cranky.
+ - Any simpleton can speak with confidence. Sometimes the greatest fools have the most bravado.
+ - The only thing that would make her jealous would be if I led a parade riding a unicorn while ballerinas sang love songs.
+ - Say no to death pies. Another good motto.
+ - Some imagine the difference between heaven and hell to be a matter of geography. Not so. The difference is much more evident in the individuals who dwell there.
+ - One eye is open to all truth, the other closed to all deception.
+ - I hate how my past actions keep messing up my future options, Seth muttered. Then you’ve started down the road to wisdom, Grandpa replied.
+ - The pendulum swings between Light and Darkness.
+ - Faith isn’t knowledge, Rachel. Faith is a tool. Faith keeps us going until we get the knowledge. Faith keeps us striving until we reach the consequences of our most important decisions.
+ - Choices determine character.
+ - In short, heroism means doing the right thing regardless of the consequences.
+ - Hard to call it a party without sardines.
+ - It’s easy to make up weird stuff. It gets trickier when you want the weird stuff to be interesting and make sense.
+ - I’ll not have my grandson subjected to the humiliation of his reading becoming public. We have to cope with this disgrace discreetly – Grandma Ruth.
+ - Want a reliable road to emotional and spiritual suicide? Spend your life trying to fit in.
+ - My dad says people who insist that youtrust them usually don’t deserve it.
+ - I like pancakes.
+ - Let’s worry about fixing the problem instead of the blame.
+ - A lie twice believed is self decieved.
+ - FABLEHAVEN: None who enter will leave unchanged. Trespassers will be turned to stone.
+ - Luck has a way of evaporating when you lean on it.
+ - I don’t know how you’re standing here. Yet you haven’t broken. Not where it matters. Having come this far, I’m not sure you can be broken.
+ - If we might be able to save this world, how can we walk away? Too many people around here have given up! Galloran said heroes sacrifice for causes; they do things that others hide from. I may not be some great hero, but I won’t hide from this. I would never live with myself.
+ - Patience mimics the power of infinity.
+ - Sometimes the best offense was avoiding self-destruction.
+ - Hours of crisis often call for sacrifice. In matters of consequence, when have doubt and fear given the best advice? Why not heed faith, courage, and honor?
+ - An unread book does nobody any good.
+ - All boys belong in insane asylums.
+ - Seth trotted over to Kendra. Bringing good luck as usual It was a weak pass okay.
+ - An unread book does nobody any good. Stories happen in the mind of a reader, not among symbols printed on a page.
+ - Try as we might to postpone them, days of reckoning inevitably arrive.
+ - Hello, cell. How are you? Still dank and dirty? Me? I’ve taken up a new habit: talking to my cell. It’s like talking to myself but slightly more pathetic.
+ - For each of us destiny is a blend of potential, circumstances, and choices.
+ - Was life like that? You could look ahead to the future or back to the past, but the present moved too quickly to absorb.
+ - False humility is more insulting than open pride!
+ - We must set aside our wishes and give heed to reality. Nobody can accept the truth while hiding from it. When a decision matters, we have to stare at the truth unflinchingly. Only then can we find peace in our choices.
+ - My father once admonished me to master the laws that govern fine writing until I could weave my words into worlds. If ever I accomplish that feat, I will sign my name to the tale.
+ - She refused to think of Neil, brave and quiet, whose reward for a heroic rescue was to be slowly devoured by strange cave balloons.
+ - Seth hustled over. “What’s the password?” “Passwords are for sissies,” Warren’s muffled voice responded. “Works for me,” Seth said, unlocking the door and opening it.
+ - Causes have a way of tainting your reason until a person takes much bigger risks than sanity would otherwise allow.
+ - Being smart can make happiness elusive. Being REALLY smart can help you find it in more places than most.
+ - In their youth, mortals behave more like nymphs. Adulthood seems impossibly distant, let alone the enfeeblement of old age. But ponderously, inevitably, it overtakes you.
+ - The baby dove into the room, transforming grotesquely as it landed on the floorin a deft sumersault.
+ - I guess Smart Seth is glad, he said reluctantly. But be careful. Idiot Seth is the guy to watch out for.
+ - I will not know that day has come because I will not stop trying.
+ - When you have to jump, you jump.
+ - Fantasy leaves imaginations larger than it finds them.
+ - An occasional foray into negative emotions makes feeling normal that much sweeter.
+ - It was one thing to snuggle a little when the world seemed about to end, and quite another to explain to her parents that she wanted to date an ancient magical horse.
+ - Sometimes the most preposterous lies are the most believable.
+ - Jason decided not to add that the best way to get him to focus on something was to tell him not to think about it.
+ - Most pleasures are best as a seasoning, not the main course. p. 374.
+ - Agreements. Specifically, a treaty ratified by all the orders of whimsical like forms who dwell here that affords a measure of security for mortal caretakers. In a world where mortal man has become the dominant force, most creatures of enchantment have fled to refuges like this one.
+ - After all, as long as you know, why make when you can take?
+ - Please don’t assault me with that meat amalgam. It would surely cause infection.
+
+62 quotes

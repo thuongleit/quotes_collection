@@ -1,0 +1,50 @@
+ - Learning is not attained by chance, it must be sought for with ardor and diligence.
+ - Great difficulties may be surmounted by patience and perseverance.
+ - The habits of a vigorous mind are born in contending with difficulties.
+ - We have too many high-sounding words, and too few actions that correspond with them.
+ - Great necessities call out great virtues.
+ - Its never to late to get back on your feet though we wont live forever make sure you accomplish what you were put here for.
+ - My bursting heart must find vent at my pen.
+ - If particular care and attention is not paid to the ladies, we are determined to foment a rebellion, and will not hold ourselves bound by any laws in which we have no voice, or representation.
+ - A people may let a king fall, yet still remain a people, but if a king let his people slip from him, he is no longer a king.
+ - I’ve always felt that a person’s intelligence is directly reflected by the number of conflicting points of view he can entertain simultaneously on the same topic.
+ - I hope some future day will bring me the happiness of seeing my family again collected under our own roof, happy in ourselves and blessed in each other.
+ - Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.
+ - How difficult the task to quench the fire and the pride of private ambition, and to sacrifice ourselves and all our hopes and expectations to the public weal! How few have souls capable of so noble an undertaking!
+ - O, I have read his Heart in his wicked eyes many a time. The very devil is in them.
+ - When men know not what to do, they ought not to do they know not what.
+ - To be good, and do good, is the whole duty of man comprised in a few words.
+ - A patriot without religion in my estimation is as great a paradox as an honest Man without the fear of God. Is it possible that he whom no moral obligations bind, can have any real Good Will towards Men?
+ - Heaven grant me that I may thus rejoice in my children, thus see them ornaments to their Country, and blessings to their parents.
+ - What is the history of mighty kingdoms and nations, but a detail of the ravages and cruelties of the powerful over the weak?
+ - History is not a web woven with innocent hands. Among all the causes which degrade and demoralize men, power is the most constant and most active.
+ - These are times in which a genius would wish to live. It is not in the still calm of life, or the repose of a pacific station, that great characters are formed.
+ - A little of what you call frippery is very necessary towards looking like the rest of the world.
+ - I can hear of the brilliant accomplishments of any of my sex with pleasure and rejoice in that liberality of sentiment which acknowledges them.
+ - Let your observations and comparisons produce in your mind an abhorrence of domination and power, the parent of slavery, ignorance, and barbarism, which places man upon a level with his fellow tenants of the woods.
+ - What is it that affectionate parents require of their Children; for all their care, anxiety, and toil on their accounts? Only that they would be wise and virtuous, Benevolent and kind.
+ - Well, knowledge is a fine thing, and mother Eve thought so; but she smarted so severely for hers, that most of her daughters have been afraid of it since.
+ - The great fish swallow up the small; and he who is most strenuous for the rights of the people, when vested with power, is as eager after the prerogatives of government.
+ - Men of sense in all ages abhor those customs which treat us only as the vassals of your sex.
+ - May your mind be thoroughly impressed with the absolute necessity of universal virtue and goodness, as the only sure road to happiness, and may you walk therein with undeviating steps.
+ - The reins of government have been so long slackened, that I fear the people will not quietly submit to those restraints which are necessary for the peace and security of the community.
+ - I begin to think, that a calm is not desirable in any situation in life. Man was made for action and for bustle too, I believe.
+ - I am more and more convinced that man is a dangerous creature and that power, whether vested in many or a few, is ever grasping, and like the grave, cries, ‘Give, give.’
+ - I am more and more convinced that man is a dangerous creature...
+ - Arbitrary power is like most other things which are very hard, very liable to be broken.
+ - What is meat for one is not for another – no accounting for fancy.
+ - Many of our disappointments and much of our unhappiness arise from our forming false notions of things and persons.
+ - The only chance for much intellectual improvement in the female sex, was to be found in the families of the educated class and in occasional intercourse with the learned.
+ - Dark and sour humours, especially those which have a spice of malevolence in them, are vastly disagreeable. Such men have no music in their souls.
+ - Deliver me from your cold, phlegmatic preachers, politicians, friends, lovers and husbands.
+ - If we mean to have heroes, statesmen and philosophers, we should have learned women.
+ - Every object is beautiful in motion; a ship under sail, trees gently agitated with the wind, and a fine woman dancing, are three instances in point.
+ - These are the times when a genius wants to live.
+ - If we expect to inherit the blessings of our Fathers, we should return a little more to their primitive Simplicity of Manners.
+ - Do not put such unlimited power into the hands of husbands. Remember all men would be tyrants if they could.
+ - But let no person say what they would or would not do, since we are not judges for ourselves until circumstances call us to act.
+ - It is to me a most affecting thing to hear myself prayed for, in particular as I do every day in the week, and disposes me to bear with more composure, some disagreeable circumstances that attend my situation.
+ - The Character which a youth acquires in the early part of his Life is of great importance towards his future prosperity-one false step may prove irretrievable to his future usefulness.
+ - I acknowledge myself a unitarian.
+
+48 quotes

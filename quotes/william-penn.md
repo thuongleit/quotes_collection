@@ -1,0 +1,207 @@
+ - Time is what we want most, but what we use worst.
+ - Right is right, even if everyone is against it, and wrong is wrong, even if everyone is for it.
+ - No pain, no palm; no thorns, no throne; no gall, no glory; no cross, no crown.
+ - I expect to pass through life but once. If therefore, there be any kindness I can show, or any good thing I can do to any fellow being, let me do it now, and not defer or neglect it, as I shall not pass this way again.
+ - Knowledge is the treasure of a wise man.
+ - The secret of happiness is to count your blessings while others are adding up their troubles.
+ - No man is fit to command another that cannot command himself.
+ - Patience and Diligence, like faith, remove mountains.
+ - Humility and knowledge in poor clothes excel pride and ignorance in costly attire.
+ - The adventure of the Christian life begins when we dare to do what we would never tackle without Christ.
+ - Let us see what love can do.
+ - Silence is Wisdom where Speaking is Folly.
+ - The truest end of life is to know the life that never ends.
+ - I shall pass through life but once. Let me show kindness now, as I shall not pass this way again.
+ - Men must be governed by God or they will be ruled by tyrants.
+ - In the rush and noise of life, as you have intervals, step home within yourselves and be still. Wait upon God, and feel His good presence; this will carry you evenly through your day’s business.
+ - Next to God, thy parents.
+ - True silence is the rest of the mind, and is to the spirit what sleep is to the body, nourishment and refreshment.
+ - The jealous are troublesome to others, but a torment to themselves.
+ - We need to stop arguing about Christ and start living like Christ.
+ - A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.
+ - Death cannot kill what never dies.
+ - O Lord, help me not to despise or oppose what I do not understand.
+ - Death is but crossing the world, as friends do the seas; they live in one another still.
+ - Only trust thyself, and another shall not betray thee.
+ - If thou thinkest twice before thou speakest once, thou wilt speak twice the better for it.
+ - For death is no more than a turning of us over from time to eternity.
+ - Covetousness is the greatest of monsters, as well as the root of all evil.
+ - True godliness does not turn men out of the world, but enables them to live better in it and excites their endeavors to mend it.
+ - People are more afraid of the laws of Man than of God, because their punishment seems to be nearest.
+ - There can be no friendship where there is no freedom. Friendship loves a free air, and will not be fenced up in straight and narrow enclosures.
+ - In all debates, let truth be thy aim, not victory, or an unjust interest.
+ - It is the difference betwixt lust and love that this is fixed, that volatile. Love grows, lust wastes by enjoyment.
+ - Inquiry is human; blind obedience brutal. Truth never loses by the one but often suffers by the other.
+ - The way, like the cross, is spiritual: that is an inward submission of the soul to the will of God, as it is manifested by the light of Christ in the consciences of men, though it be contrary to their own inclinations.
+ - Religion itself is nothing else but Love to God and Man. He that lives in Love lives in God, says the Beloved Disciple: And to be sure a Man can live no where better.
+ - A man, like a watch, is to be valued for his manner of going.
+ - Truth never lost ground by enquiry.
+ - Love grows, lust wastes by enjoyment.
+ - Where thou art Obliged to speak, be sure speak the Truth: For Equivocation is half way to Lying, as Lying, the whole way to Hell.
+ - The best recreation is to do good.
+ - For nothing reaches the heart but what is from the heart, or pierces the conscience but what comes from a living conscience.
+ - Speak properly, and in as few words as you can, but always plainly; for the end of speech is not ostentation, but to be understood.
+ - Nothing shows our weakness more than to be so sharp-sighted at spying other men’s faults, and so purblind about our own.
+ - He that does good for good’s sake seeks neither paradise nor reward, but he is sure of both in the end.
+ - Oppression makes a poor country.
+ - It is safer to learn than teach; and who conceals his opinion has nothing to answer for.
+ - Rarely promise, but, if lawful, constantly perform.
+ - Perfect love casteth out fear.
+ - Sense shines with a double luster when it is set in humility. An able yet humble man is a jewel worth a kingdom.
+ - Rebellion to tyrants is obedience to God.
+ - He who is taught to live upon little owes more to his father’s wisdom than he who has a great deal left him does to his father’s care.
+ - Where judgment has wit to express it, there’s the best orator.
+ - Justice is justly represented blind, because she sees no difference in the parties concerned. She has but one scale and weight, for rich and poor, great and small.
+ - Knowledge is the treasure, but judgment is the treasurer of the one who is wise.
+ - The tallest Trees are most in the Power of the Winds, and Ambitious Men of the Blasts of Fortune.
+ - Love is indeed heaven upon earth; since heaven above would not bo heaven without it; for where there is not love, there is fear; but, “Perfect love casteth out fear.”
+ - Force may subdue, but love gains, and he that forgives first wins the laurel.
+ - It is wise not to seek a secret, and honest not to reveal one.
+ - Avoid flatterers, for they are thieves in disguise.
+ - Between a Man and his Wife nothing ought to rule but Love. Believe nothing against another but on good authority; and never report what may hurt another, unless it be a greater hurt to some other to conceal it.
+ - If men be good, government cannot be bad.
+ - Passion is a sort of fever in the mind, which ever leaves us weaker than it found us.
+ - A jealous man only sees his own spectrum when he looks upon other men, and gives his character in theirs.
+ - If thou wouldst conquer thy weakness, thou must never gratify it. No man is compelled to evil: his consent only makes it his. It is no sin to be tempted, but to be overcome.
+ - Choose a friend as thou dost a wife, till death separate you.
+ - Avoid popularity; it has many snares, and no real benefit.
+ - Nor yet be overeager in pursuit of any thing; for the mercurial too often happen to leave judgment behind them, and sometimes make work for repentance.
+ - The unspoken word never defeats one. What one does not say does not have to be explained.
+ - Kings in this world should imitate God, their mercy should be above their works.
+ - Peace can only be secured by justice; never by force of arms.
+ - I know no religion that destroys courtesy, civility, and kindness.
+ - Levity of behavior, always a weakness, is far more unbecoming in a woman than a man.
+ - Friendship is the union of spirits...
+ - Cunning to wise, is as an Ape to a Man.
+ - In marriage do thou be wise: prefer the person before money, virtue before beauty, the mind before the body; then thou hast a wife, a friend, a companion, a second self.
+ - Friendship is the union of spirits, a marriage of hearts, and the bond thereof virtue.
+ - A vain man is a nauseous creature: he is so full of himself that he has no room for anything else, be it never so good or deserving.
+ - Death then, being the way and condition of life, we cannot love to live if we cannot bear to die.
+ - Excess in apparel is another costly folly. The very trimming of the vain world would clothe all the naked ones.
+ - If we would mend the World, we should mend Ourselves; and teach our Children to be, not what we are, but what they should be.
+ - Truth often suffers more by the heat of its defenders than the arguments of its opposers.
+ - To be innocent is to be not guilty; but to be virtuous is to overcome our evil inclinations.
+ - She is but half a wife that is not, nor is capable of being, a friend.
+ - Dislike what deserves it, but never hate: for that is of the nature of malice; which is almost ever to persons, not things, and is one of the blackest qualities sin begets in the soul.
+ - Where charity keeps pace with gain, industry is blessed.
+ - Passion is the mob of the man, that commits a riot upon his reason.
+ - Some are so very studious of learning what was done by the ancients that they know not how to live with the moderns.
+ - Justice is the insurance which we have on our lives and property. Obedience is the premium which we pay for it.
+ - The humble, meek, merciful, and just are everywhere of one religion; and when death has taken off the mask they will know one another, though the diverse liveries they wear here make them strangers.
+ - He who gives to the poor, lends to the Lord. But it may be said, not improperly, the Lord lends to us to give to the poor.
+ - The country life is to be preferred, for there we see the works of God; but in cities little else but the works of men. And the one makes a better subject for contemplation than the other.
+ - Less judgment than wit is more sail than ballast. Yet it must be confessed that wit given an edge to sense, and recommends it extremely.
+ - If thou wouldst be happy, bring thy mind to thy condition, and have an indifferency for more than what is sufficient.
+ - For though Death be a dark passage, it leads to immortality, and that is recompence enough for suffering of it.
+ - Love is the hardest lesson in Christianity; but, for that reason, it should be most our care to learn it.
+ - To do evil that good may come of it is for bunglers in politics as well as morals.
+ - It is the amends of a short and troublesome life, that doing good and suffering ill entitles man to a longer and better.
+ - It were endless to dispute upon everything that is disputable.
+ - Never marry but for love; but see that thou lov’st what is lovely.
+ - Force may make hypocrites, but it can never make converts.
+ - A private Life is to be preferrd; the Honour and Gain of publick Posts, bearing no proportion with the Comfort of it.
+ - There is nothing of which we are apt to be so lavish as of time, and about which we ought to be more solicitous; since without it we can do nothing in this world.
+ - Make few resolutions, but keep them strictly.
+ - We are too apt to love praise, but not to deserve it.
+ - Unless virtue guide us our choice must be wrong.
+ - Religion is the fear of God, and its demonstration good works; and faith is the root of both: For without faith we cannot please God; nor can we fear what we do not believe.
+ - Between a man and his wife nothing ought to rule but love. Authority is for children and servants, yet not without sweetness.
+ - If you protect a man from folly, you will soon have a nation of fools.
+ - To be a man’s own fool is bad enough, but the vain man is everybody’s.
+ - A wise neuter joins with neither, but uses both as his honest interest leads him.
+ - Wit gives an edge to sense, and recommends it extremely.
+ - Inquire often, but judge rarely, and thou wilt not often be mistaken.
+ - It is admirable to consider how many millions of people come into, and go out of the world, ignorant of themselves and of the world they have lived in.
+ - This is the Comfort of Friends, that though they may be said to Die, yet their Friendship and Society are, in the best Sense, ever present, because Immortal.
+ - They that soar too high, often fall hard.
+ - If thou rise with an Appetite, thou art sure never to sit down without one.
+ - A good End cannot sanctify evil Means; nor must we ever do Evil, that Good may come of it.
+ - If we are but sure the end is right, we are too apt to gallop over all bounds to compass it; not considering the lawful ends may be very unlawfully attained.
+ - A man in business must put up many affronts if he loves his own quiet.
+ - Men are generally more careful of the breed of their horses and dogs than of their children.
+ - What man in his right mind would conspire his own hurt? Men are beside themselves when they transgress against their convictions.
+ - For we put the power in the people.
+ - Less judgment than wit is more sail than ballast.
+ - The only fountain in the wilderness of life, where man drinks of water totally unmixed with bitterness, is that which gushes for him in the calm and shady recess of domestic life.
+ - Love grows. Lust wastes by Enjoyment, and the Reason is, that one springs from an Union of Souls, and the other from an Union of Sense.
+ - Children, Fear God; that is to say, have an holy awe upon your minds to avoid that which is evil, and a strict care to embrace and do that which is good.
+ - It is a coal from God’s altar must kindle our fire; and without fire, true fire, no acceptable sacrifice.
+ - No religion is better than an unnatural one.
+ - We have a call to do good, as often as we have the power and occasion.
+ - He that has more Knowledge than Judgment, is made for another Man’s use more than his own.
+ - I have sometimes thought that people are, in a sort, happy, that nothing can put out of countenance with themselves, though they neither have nor merit other people’s.
+ - God is better served in resisting a temptation to evil than in many formal prayers.
+ - For as men in battle are continually in the way of shot, so we, in this world, are ever within the reach of Temptation.
+ - Method goes far to prevent trouble in business: for it makes the task easy, hinders confusion, saves abundance of time, and instructs those that have business depending, both what to do and what to hope.
+ - Content not thyself that thou art virtuous in the general; for one link being wanting, the chain is defective.
+ - Disappointments that aren’t a result of our own foolishness are a testing of our faith or a correction from heaven, and it is our own fault if these disappointments don’t work for our own good.
+ - To be furious in religion is to be irreligiously religious.
+ - If it be an evil to judge rashly or untruly any single man, how much a greater sin it is to condemn a whole people.
+ - Love labor: for if thou dost not want it for food, thou mayest for physic. It is wholesome for thy body and good for thy mind.
+ - It were happy if we studied nature more in natural things; and acted according to nature, whose rules are few, plain, and most reasonable.
+ - To hazard much to get much has more of avarice than wisdom.
+ - He that lives in love lives in God.
+ - There can be no Friendship where there is no Freedom.
+ - Never give out while there is hope; but hope not beyond reason, for that shows more desire than judgement.
+ - We are told truly that meekness and modesty are the rich and charming garments of the soul. The less showy our outward attire is, the more distinctly and brilliantly does the beauty of these inner garments shine.
+ - Let the people think they govern and they will be governed.
+ - My prison shall be my grave before I will budge a jot; for I owe my conscience to no mortal man.
+ - The public must and will be served.
+ - Government seems to me to be a part of religion itself – a thing sacred in its institutions and ends.
+ - Show is not substance; realities govern wise men.
+ - If thy debtor be honest and capable, thou hast thy money again, if not with increase, with praise; if he prove insolvent, don’t ruin him to get that which it will not ruin thee to lose, for thou art but a steward.
+ - It is a cruel folly to offer up to ostentation so many lives of creatures, as to make up the state of our treats.
+ - They that Marry for Money cannot have the true Satisfaction of Marriage; the requisite Means being wanting.
+ - The Remedy often proves worse than the Disease.
+ - Be rather bountiful, than expensive.
+ - Clear therefore thy head, and rally, and manage thy thoughts rightly, and thou wilt save time, and see and do thy business well; for thy judgment will be distinct, thy mind free, and the faculties strong and regular.
+ - Religion is nothing else but love of God and man.
+ - You are Englishmen; mind your privileges, give not away your right.
+ - The receipts of cookery are swelled to a volume; but a good stomach excels them all.
+ - Experience is a safe guide.
+ - They have a right to censure that have a heart to help.
+ - Anything less than full justice is cruelty.
+ - Do good with what thou hast, or it will do thee no good.
+ - It would be far better to be of no church than to be bitter of any.
+ - Hasty resolutions are of the nature of vows, and to be equally avoided.
+ - Tis the glory of a man to vail to truth; as it is the mark of a good nature to be easily entreated.
+ - Do what good thou canst unknown, and be not vain of what ought rather to be felt than seen.
+ - If a civil word or two will render a man happy, he must be a wretch indeed who will not tell them to him.
+ - Haste makes work which caution prevents.
+ - Drunkenness, spoils health, dismounts the mind, and unmans the man.
+ - Were the superfluities of a nation valued, and made a perpetual tax or benevolence, there would be more alms-houses than poor, schools than scholars, and enough to spare for government besides.
+ - We are apt to love praise, but not deserve it. But if we would deserve it, we must love virtue more than that.
+ - Five things are requisite to a good officer – ability, clean hands, despatch, patience, and impartiality.
+ - Wherefore, brethren, let us be careful neither to out-go our guide, nor yet loiter behind him; since he that makes haste, may miss his way, and he that stays behind, lose his guide.
+ - If thou wouldn’t conquer thy weakness thou must not gratify it.
+ - He that lives to forever, never fears dying.
+ - Is it reasonable to take it ill, that anybody desires of us that which is their own? All we have is the Almighty’s; and shall not God have his own when he calls for it?
+ - Friendship is the next pleasure we may hope for: and where we find it not at home, or have no home to find it in, we may seek it abroad. It is an union of spirits, a marriage of hearts, and the bond thereof virtue.
+ - Naked Truth needs no shift.
+ - Every stroke our fury strikes is sure to hit ourselves at last.
+ - Choose thy clothes by thine own eyes, not another’s.
+ - Where Example keeps pace with Authority, Power hardly fails to be obey’d.
+ - We are too careless of posterity; not considering that as they are, so the next generation will be.
+ - Not to be provok’d is best: But if mov’d, never correct till the fume is spent; for every stroke our fury strikes, is sure to hit our selves at last.
+ - The smaller the drink, the clearer the head, and the cooler the blood.
+ - The Country is both the Philosopher’s Garden and his Library, in which he Reads and Contemplates the Power, Wisdom and Goodness of God.
+ - The usefullest truths are plainest; and while we keep to them, our differences cannot rise high.
+ - Always remember to bound thy thoughts to the present occasion.
+ - Be sure that religion cannot be right that a man is the worse for having.
+ - That plenty should produce either covetousness or prodigality is a perversion of providence; and yet the generality of men are the worse for their riches.
+ - False-dealing travels a short road, and surely detected.
+ - The usefulest truths are the plainest.
+ - Much reading is an oppression of the mind, and extinguishes the natural candle, which is the reason of so many senseless scholars in the world.
+ - Though our Savior’s passion is over, his compassion is not.
+ - But make not more business necessary than is so; and rather lessen than augment work for thyself.
+ - Some men do as much begrudge others a good name, as they want one themselves: and perhaps that is the reason of it.
+ - Never chide with anger, but instruction.
+ - To have religion upon authority, and not upon conviction, is like a finger-watch, to be set forwards or backwards, as he pleases that has it in keeping.
+ - We are apt to be very pert at censuring others, where we will not endure advice.
+ - It is profitable wisdom to know when we have done enough: Much time and pains are spared in not flattering ourselves against probabilities.
+ - Men not living to what they know, cannot blame God, that they know no more.
+ - Interest has the security, though not the virtue of a principle. As the world goes, it is the surest side; for men daily leave both relations and religion to follow it.
+ - If a civil word or two will render a man happy, he must be a wretch indeed who will not give them to him. Such a disposition is like lighting another man’s candle by one’s own, which loses none of its brilliancy by what the other gains.
+ - They that censure, should practice. Or else let them have the first stone, and the last too.
+
+205 quotes

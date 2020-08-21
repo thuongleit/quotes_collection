@@ -1,0 +1,27 @@
+ - If you build it, they will come.
+ - Syzygy, inexorable, pancreatic, phantasmagoria – anyone who can use those four words in one sentence will never have to do manual labor.
+ - Baseball games are like snowflakes and fingerprints, no two are ever alike.
+ - Perhaps crossing the barriers of time has freed me.
+ - Any game becomes important when you know and love the players.
+ - Most writers are unhappy with film adaptations of their work, and rightly so. ‘Field of Dreams,’ however, caught the spirit and essence of ‘Shoeless Joe’ while making the necessary changes to make the work more visual.
+ - Hardly anybody recognizes the most significant moments of their life at the time they happen.
+ - Growing up is a ritual, more deadly than religion, more complicated than baseball, for there seem to be no rules. Everything is experienced for the first time.
+ - The crack of the bat, the sound of baseballs thumping into gloves, the infield chatter are like birdsong to the baseball starved.
+ - Read! Read! Read! And then read some more. When you find something that thrills you, take it apart paragraph by paragraph, line by line, word by word, to see what made it so wonderful. Then use those tricks next time you write.
+ - I am an old-fashioned storyteller. I try to make people laugh and cry. A fiction writer’s duty is to entertain. If you can sneak in something profound or symbolic, so much the better.
+ - I can still put down some pretty nasty stuff on paper, which is what I enjoy doing.
+ - Read, read, read, read and then read some more.
+ - Baseball is meant to be a contemplative game. They play music to draw young people to the game. If young people can’t come to the game without music, then they should stay home.
+ - I knew how to read box scores and who the baseball heroes were before I had ever seen or even heard much of a game.
+ - I have no interest in non-fiction. I don’t read it and don’t watch it and don’t write it, other than a little journalistic column.
+ - Most people write a lot of autobiography, but when I came to write autobiography I discovered that nothing interesting had ever happened to me. So I had to take the situation and invent stories to go with it.
+ - America has been erased like a blackboard, only to be rebuilt and then erased again. But baseball has marked time while America has rolled by like a procession of steamrollers.
+ - Use your imagination. Trust me, your lives are not interesting. Don’t write them down.
+ - He bats like a lightning rod.
+ - I don’t have time to read nonfiction.
+ - Heroes don’t need to talk about what they did.
+ - I don’t believe in the afterlife.
+ - If I have a choice between looking something up and making it up, I’ll make it up every time.
+ - Someone once described the pitching of a no-hit game as like catching lighting in a bottle.
+
+25 quotes

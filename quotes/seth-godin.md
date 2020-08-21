@@ -1,0 +1,502 @@
+ - Waiting for perfect is never as smart as making progress.
+ - Think big. Start small.
+ - The only thing worse than starting something and failing is not starting something.
+ - Instead of wondering when your next vacation is, maybe you should set up a life you don’t need to escape from.
+ - I define anxiety as experiencing failure in advance.
+ - Don’t waste time looking for a better pencil: learn to write better.
+ - Don’t find customers for your products, find products for your customers.
+ - No organization ever created an innovation. People innovate, not companies.
+ - If it scares you, it might be a good thing to try.
+ - Be bold, make mistakes, learn a lesson, and fix what doesn’t work.
+ - Be genuine. Be remarkable. Be worth connecting with.
+ - Quit or be exceptional. Average is for losers.
+ - How dare you settle for less when the world has made it so easy for you to be remarkable?
+ - Soon is not as good as now.
+ - The future of marketing is leadership.
+ - If failure is not an option, then neither is success.
+ - If you measure it, it will improve.
+ - Go ahead, do something impossible.
+ - Connect, create meaning, make a difference, matter, be missed.
+ - The big win is when you refuse to settle for average or mediocre.
+ - The cost of being wrong is less than the cost of doing nothing.
+ - You can use social media to turn strangers into friends, friends into customers and customers into salespeople.
+ - Playing safe is very risky.
+ - Art is a personal act of courage.
+ - Please stop waiting for a map. We reward those who draw maps, not those who follow them.
+ - You win by trying. And failing. Test, try, fail, measure, evolve, repeat, persist,...
+ - You are not your resume, you are your work.
+ - Communication is the transfer of emotion.
+ - Everyone is not your customer.
+ - Here’s the thing: The book that will most change your life is the book you write.
+ - The reason it seems that price is all your customers care about is that you haven’t given them anything else to care about.
+ - Change is not a threat, it’s an opportunity. Survival is not the goal, transformative success is.
+ - Content marketing is the only marketing left.
+ - How do I dance with the fear? Fear is not the enemy. Paralysis is the enemy.
+ - Change almost never fails because it’s too early. It almost always fails because it’s too late.
+ - Facts are irrelevant. What matters is what the consumer believes.
+ - Criticism comes to those who stand out.
+ - You can raise the bar or you can wait for others to raise it, but it’s getting raised regardless.
+ - The less people know, the more they yell.
+ - People are not afraid of failure, they’re afraid of blame.
+ - The goal of a marketing interaction isn’t to close the sale, any more than the goal of a first date is to get married. No, the opportunity is to move forward, to earn attention and trust and curiosity and conversation.
+ - Keep starting until you finish.
+ - If I fail more than you do, I win.
+ - Winners quit all the time. They just quit the right stuff at the right time.
+ - Dig your well before you’re thirsty.
+ - You don’t need more time in your day. You need to decide.
+ - Not adding value is the same as taking it away.
+ - Why waste a sentence saying nothing?
+ - You have everything you need to build something far bigger than yourself.
+ - Either you defend the status quo, or you invent the future.
+ - An organization filled with honest, motivated, connected, eager, learning, experimenting, ethical and driven people will always defeat the one that merely has talent. Every time.
+ - Dreams are difficult to build and easy to destroy.
+ - Choices lead to habits. Habits become talents. Talents are labeled gifts. You’re not born this way, you get this way.
+ - If you hear my idea but don’t believe it, that’s not your fault; it’s mine. If you see my new product but don’t buy it, that’s my failure, not yours. If you attend my presentation and you’re bored, that’s my fault too.
+ - If you hesitate to map out your future, to make a big plan or to set a goal, you’ve just gone ahead and mapped your future anyway.
+ - Go ahead and act as if your decisions are temporary. Because they are. Be bold, make mistakes, learn a lesson, and fix what doesn’t work. No sweat, no need to hyperventilate.
+ - Art is the work of a human, an individual seeking to make a statement, to cause a reaction, to connect. Art is something new, every time, and art might not work, precisely because it’s new, because it’s human and because it seeks to connect.
+ - The first step toward becoming extraordinary is, of course, to stop being ordinary.
+ - A tribe is a group of people connected to one another, connected to a leader, and connected to an idea. For millions of years, human beings have been part of one tribe or another. A group needs only two things to be a tribe: a shared interest and a way to communicate.
+ - Transferring your passion to your job is far easier than finding a job that happens to match your passion.
+ - I don’t think we have any choice. I think we have an obligation to change the rules, to raise the bar, to play a different game, and to play it better than anyone has any right to believe is possible.
+ - Not changing your strategy merely because you’re used to the one you have now is a lousy strategy.
+ - The easier it is to quantify, the less it’s worth.
+ - A brand is the set of expectations, memories, stores and relationships that, taken together, account for a consumer’s decision to choose one product or service over another.
+ - A dialogue leads to connection, which leads to trust which leads to engagement.
+ - The secret of leadership is simple: Do what you believe in. Paint a picture of the future. Go there. People will follow.
+ - You don’t win an Olympic gold medal with a few weeks of intensive training.
+ - Plans are great, but missions are better.
+ - By definition, remarkable things get remarked upon.
+ - If you work in an urgent-only culture, the only solution is to make the right things urgent.
+ - We are leaving the industrial economy and entering the connection economy.
+ - It’s human nature to quit when it hurts. But it’s that reflex that creates scarcity.
+ - In other words, If you don’t take action, you won’t get any results You are not your resume, you are your work.
+ - Learning is not done to you, it is something you choose to do.
+ - Optimism is the most important human trait, because it allows us to evolve our ideas, to improve our situation, and to hope for a better tomorrow.
+ - Choose your customers, choose your future.
+ - Cheap is the last refuge of a product developer or marketer who is out of great ideas.
+ - If failure isn’t an option, then success isn’t either. Success is just failure repeated until it works.
+ - If we can fall in love with serving people, creating value, solving problems, building valuable connections and doing work that matters, it makes it far more likely we’re going to do important work.
+ - Anticipated, personal, and relevant advertising always does better than unsolicited junk.
+ - Great work is the result of seeking out tension, not avoiding it.
+ - Anyone who says failure is not an option has also ruled out innovation.
+ - Practice works because practice gives us a chance to relax enough to make smart choices.
+ - Whining isn’t a scalable solution.
+ - Your art is the act of taking personal responsibility, challenging the status quo, and changing people.
+ - The only purpose of customer service is to change feelings.
+ - Following the well-lit path, offers little in the way of magic.
+ - Most people have been brainwashed into believing that their job is to copyedit the world, not to design it.
+ - Flexible in the face of change, resilient in the face of confusion. All of these attributes are choices, not talents, and all of them are available to you.
+ - How was your day? If your answer was “fine,” then I don’t think you were leading.
+ - Organizations that destroy the status quo win. Whatever the status quo is, changing it gives you the opportunity to be remarkable.
+ - Fitting in is a short-term strategy, standing out pays off in the long run.
+ - If the game is designed for you to lose, don’t play that game. Play a different one.
+ - You don’t have to settle. It’s a choice you get to make every day.
+ - What I learned: Shun nonbelievers. Ignore critics. Do your best for people who want to dance with you.
+ - Go do something interesting. Ask if you need help.
+ - Surprise and delight and connection are remarkable.
+ - Busy does not equal important. Measured doesn’t mean mattered.
+ - Denigrating art you don’t understand doesn’t hurt the art – it reveals something about your willingness to learn.
+ - Leadership, on the other hand, is about creating change you believe in.
+ - Just start. Start now. Fail often. Enjoy the ride.
+ - People don’t believe what you tell them. They rarely believe what you show them. They often believe what their friends tell them. They always believe what they tell themselves.
+ - Anything worth achieving in life has a dip.
+ - Permission marketing is marketing without interruptions.
+ - There’s no shortage of remarkable ideas, what’s missing is the will to execute them.
+ - Our job is to make change. Our job is to connect to people, to interact with them in a way that leaves them better than we found them, more able to get where they’d like to go. Every time we waste that opportunity, every page or sentence that doesn’t do enough to advance the cause is waste.
+ - Your audacious life goals are fabulous. We’re proud of you for having them. But it’s possible that those goals are designed to distract you from the thing that’s really frightening you – the shift in daily habits that would mean a re-invention of how you see yourself.
+ - Two different things: A crowd is a tribe without a leader. A crowd is a tribe without communication. Most organizations spend their time marketing to the crowd. Smart organizations assemble the tribe.
+ - Data is not useful until it becomes information.
+ - Excellence isn’t about working extra hard to do what you’re told. It’s about taking the initiative to do work you decide is worth doing.
+ - Anxiety is practising failure in advance. Anxiety is needless and imaginary. It’s fear about fear, fear that means nothing.
+ - Earn trust, earn trust, earn trust. Then you can worry about the rest.
+ - The job isn’t to catch up to the status quo; the job is to invent the status quo.
+ - Saying no to loud people gives you the resources to say yes to important opportunities.
+ - Leaders have followers, managers have employees. Managers make widgets, leaders make change.
+ - Marketing is a contest for people’s attention.
+ - The object isn’t to be perfect. The goal isn’t to hold back until you’ve created something beyond reproach. I believe the opposite is true. Our birthright is to fail and to fail often, but to fail in search of something bigger than we can imagine. To do anything else is to waste it all.
+ - Marketing is no longer about the stuff that you male, but about the stories you tell.
+ - People rarely buy what they need. They buy what they want.
+ - If you wait until there is another case study in your industry, you will be too late!
+ - The fatigue was there, but some people understood that putting it aside was the single most important factor in succeeding.
+ - Saying ‘no’ or even ‘stop’ is the hallmark of the professional you want on your team.
+ - Successful people fail often, and, worth noting, learn more from that failure than everyone else.
+ - Don’t fix me; Love me for what’s broken.
+ - Dreamers don’t have special genes. They find circumstances that amplify their dreams.
+ - Seizing new ground, making connections between people or ideas, working without a map-these are works of art, and if you do them, you are an artist, regardless of whether you wear a smock, use a computer, or work with others all day long.
+ - The devil doesn’t need an advocate. The brave need supporters, not critics.
+ - The purpose of an elevator pitch is to describe a situation or solution so compelling that the person you’re with wants to hear more even after the elevator ride is over.
+ - Art isn’t only a painting. Art is anything that is creative, passionate and personal. Art is the unique work of a human being created to touch another. Art is created to have an impact, to change someone else.
+ - You can’t shrink your way to greatness!
+ - Products that are remarkable get talked about.
+ - Marketing management is now tribal leadership.
+ - When you think about Uber and Airbnb and the other companies that are turning things upside down, Uber isn’t big ’cause they ran a lot of ads. They’re big because someone took out their iPhone and said to their friend, watch this, and pressed a button and a car pulled up.
+ - Initiative is the privilege of picking yourself.
+ - In a crowded marketplace, fitting in is a failure. In a busy marketplace, not standing out is the same as being invisible.
+ - Attention is a bit like real estate, in that they’re not making any more of it. Unlike real estate, though, it keeps going up in value.
+ - Defending mediocrity is exhausting.
+ - Good ideas come from bad ideas, but only if there are enough of them.
+ - The only long-term motivation is self motivation. So hire people who are self motivated and get out of their way.
+ - My best advice: win little battles. Get in the habit of winning, of shipping, of having customers that can’t live without you. Once you’ve demonstrated you know how to do the art, then go after the windmills.
+ - The person who fails the most wins.
+ - Real content marketing isn’t repurposed advertising, it is making something worth talking about.
+ - The YouTube video maker gets more out of making a video than you get out of watching it.
+ - If it were any other way, it would be easy. And if it were any other way, everyone would do it and your work would ultimately be devalued. The yin and yang are clear: without people pushing against your quest to do something worth talking about, it’s unlikely it would be worth the journey. Persist.
+ - Excellence isn’t about meeting the spec, it’s about setting the spec. It defines what the consumer sees as quality right this minute, and tomorrow, if you’re good, you’ll reset that expectation again.
+ - I don’t like offending people, and it’s easy to offend people when you don’t know as much as they do. This group knows more about what it takes to lead in this way than I ever will. My goal is to push people, but I need to do it from a place of respect.
+ - If you’re not proud of where you work, go work somewhere else.
+ - Teaching young people to sell is a priceless gift.
+ - You’re competing against people in a state of flow, people who are truly committed, people who care deeply about the outcome.
+ - Great leaders don’t try to please everyone. Great leaders don’t water down their message in order to make the tribe a bit bigger. Instead, they realize that a motivated, connected tribe in the midst of a movement is far more powerful than a larger group could ever be.
+ - It’s never too late to start heading in the right direction.
+ - The problem with the race to the bottom is that you might win.
+ - Somewhere in the world, someone is doing something that you decided couldn’t be done.
+ - If it’s work, we try to figure out how to do less, If it’s art, we try to figure out how to do more.
+ - Every activity worth doing has a learning curve.
+ - Measurement is fabulous. Unless you’re busy measuring what’s easy to measure as opposed to what’s important.
+ - Anxiety is experiencing failure in advance. Tell yourself enough vivid stories about the worst possible outcome of your work and you’ll soon come to believe them. Worry is not preparation, and anxiety doesn’t make you better.
+ - Great boss is challenging people in the right way. Leading, not managing. Supporting them by giving them both a platform they can count on and expectations they can stretch for.
+ - Most people are searching for a path to success that is both easy and certain. Most paths are neither.
+ - If you wait until you are ready, it is almost certainly too late.
+ - Transformation al leaders don’t start by denying the world around them. Instead, they describe a future they’d like to create instead.
+ - Gifts are not favors. If you expect something in return, it’s not a gift.
+ - Being aware of your fear is smart. Overcoming it is the mark of a successful person.
+ - Black Friday is a media trap, an orchestrated mass hallucination based on herd dynamics and the media cycle.
+ - Permission marketing turns strangers into friends and friends into loyal customers. It’s not just about entertainment – it’s about education. Permission marketing is curriculum marketing.
+ - Strategic quitting is the secret of successful organizations.
+ - The opportunity is not in being momentarily popular with the anonymous masses. It’s in being missed when you’re gone, in doing work that matters to the tribe you choose.
+ - There’s nothing wrong with having a plan. Plans are great. But missions are better. Missions survive when plans fail, and plans almost always fail.
+ - Change isn’t made by asking permission. Change is made by asking forgiveness, later.
+ - Marketing tells a story that spreads. Sales overcomes the natural resistance to say yes.
+ - Fear for a linchpin is a clue that you’re getting close to doing something important.
+ - There’s no map for being an artist.
+ - Persistence isn’t using the same tactics over and over. Persistence is having the same goal over and over.
+ - Persistent people are able to visualize the idea of light at the end of the tunnel when others can’t see it.
+ - Pain s the truth of art. Art is not a hobby or a pastime. It is the result of an internal battle royal, one between the quest for safety and the desire to matter.
+ - After you produce you can select. you can curate. you can censor. But for now, have bad ideas, lots and lots of bad ideas.
+ - Your positions on EVERYTHING are based on the story you tell yourself and not some universal fact from the universal fact database.
+ - Ideas that spread win.
+ - The combination of passion and art is what makes someone a linchpin.
+ - Great work is always shunned at first.
+ - We fail when we give up too soon.
+ - Good marketers tell a story.
+ - The world doesn’t owe you a living, but just when you needed it, a door was opened for you to make a difference.
+ - What people want is the extra, the emotional bonus they get when they buy something they love.
+ - If you’re working with a spreadsheet or a thread of correspondence or a set of data, I’m not sure you’re doing your best work if you’re doing it on an iPhone.
+ - We’re better in the rearview mirror than we are at predicting – ’cause you’re never going to be right every time. You can handicap it. You can point to certain elements that make it work, and many of those elements come straight out of epidemiology, right?
+ - A brand that stands for what all brands stand for stands for nothing much.
+ - As soon as we associate reading with a test, we’ve missed the point.
+ - If you love writing or making music or blogging or any sort of performing art, then do it. Do it with everything you’ve got. Just don’t plan on using it as a shortcut to making a living.
+ - The weird set an example for the rest of us. They raise the bar. They show us through their actions that in fact we’re wired to do the new, not to comply with someone a thousand miles away.
+ - The public square is more public than ever, but minds are rarely changed in 140 character bursts and by selfies.
+ - What I mean by art is the human act of doing something that connects us to someone else.
+ - We’re all born creative, it takes a little while to become afraid.
+ - But what if I fail? You will. A better question might be, ‘after I fail, what then?’ If you’ve chosen well, after you fail you will be one step closer to succeeding, you will be wiser and stronger and you almost certainly will be more respected by all of those that are afraid to try.
+ - The key to success is to find a way to stand out – to be the purple cow in a field of monochrome Holsteins.
+ - When your art fails, make better art.
+ - You don’t have to settle for the status quo, for being good enough, for getting by, for working all night.
+ - Many people believe that great designers get great clients. It’s the other way around.
+ - Go for the edges. Challenge yourself and your team to describe what those edges are, and then test which edge is most likely to deliver the marketing results you seek.
+ - The best marketing strategy is to destroy your industry before your competition does.
+ - Don’t wait to be picked. Pick yourself.
+ - Ideas in secret die. They need light and air or they starve to death.
+ - Sharing an idea you care about is a generous way to change your world for the better.
+ - People who can spread ideas regardless of what those ideas are, win.
+ - Rehearsing failure is simply a bad habit, not a productive use of your time. When you choose to visualize the path that works, you’re more likely to shore it up and create an environment where it can take place.
+ - A one-hit wonder is a legend who stopped early.
+ - The job is not your work; what you do with your heart and soul is the work.
+ - The key to getting a reputation for being brilliant is actually being brilliant, not just acting like you are.
+ - What tribes are, is a very simple concept that goes back 50 million years. It’s about leading and connecting people and ideas. And it’s something that people have wanted forever.
+ - Art is the act of doing work that matters while dancing with the voice in your head that screams for you to stop.
+ - Kings fear change. Leaders crave it.
+ - We’ve greatly exaggerated the risk of sinking, without celebrating the value of swimming.
+ - Living and breathing an authentic story is the best way to survive in a conversation-rich world.
+ - Mass marketing means appealing to the masses which means appealing to the average.
+ - The enemy of fear is creativity.
+ - The art, the new, the ability to connect the dots and to make an impact – sooner or later, that can only come from one who creates, not from a teacher and not from a book.
+ - If you use your money to create exceptional products and services, you won’t need to spend it on advertising.
+ - You can risk being wrong or you can be boring.
+ - If not enough people doubt you, you’re not making a difference.
+ - Our job is obvious: we need to get out of the way, shine a light, and empower a new generation to teach itself and to go further and faster than any generation ever has.
+ - Why do we value leadership, connection and grace? Because it’s scarce, and that scacity creates value.
+ - If you want to dig a big hole, you need to stay in one place.
+ - Learning is not watching a video, learning is taking action and seeing what happens.
+ - All the creativity books in the world aren’t going to help you if you’re unwilling to have lousy, lame, and even dangerously bad ideas.
+ - The answer to the question “where do good ideas come from” is always the same, the come from bad ideas. If you come up with 20 bad ideas you get one good one.
+ - Once you free yourself from the need for perfect acceptance, it’s a lot easier to launch work that matters.
+ - Don’t be different just to be different. Be different to be better.
+ - You have brilliance in you, your contribution is valuable, and the art you create is precious. Only you can do, and you must.
+ - Do the emotional labor of working on things that others fear.
+ - You can win with consistent benefits, delivered over time. You win by incrementally earning share, attention and trust.
+ - Listen to your fear but don’t obey it.
+ - Marketers have to move upstream now. We have to stop being the last step in the process and start being the first step.
+ - Figure out the people part and the technology gets a whole lot simpler.
+ - If you take action, you will be judged. There’s no way around it. The alternative, of course, is much safer. To be ignored. Up to you.
+ - Discomfort brings engagement and change. Discomfort means you’re doing something that others were unlikely to do, because they’re hiding out in the comfortable zone. When your uncomfortable actions lead to success, the organization rewards you and brings you back for more.
+ - And it turns out that tribes, not money, not factories, that can change our world, that can change politics, that can align large numbers of people. Not because you force them to do something against their will. But because they wanted to connect.
+ - Make a decision. It doesn’t have to be a wise decision or a perfect one. Just make one.
+ - Don’t scale because you think there’s a pot of gold over that rainbow. Scale because you’re ready and eager to do heroic work, every day, forever.
+ - That’s your opportunity – to approach your work in a way that generates unique learning and interactions that are worth sharing.
+ - Successful people are successful for one simple reason: they think about failure differently.
+ - All artists are entrepreneurs. All entrepreneurs are artists.
+ - Mass attention is almost unattainable and it’s not clear that you want it.
+ - You have to pay the price to be in the right place at the right time often enough that people tend to see you as the regular kind.
+ - I think that any time reality doesn’t match your expectations, it means that marketing was involved.
+ - Remarkable work often comes from making choices when everyone else feels as though there is no choice.
+ - Habits are where our lives and careers and bodies are made.
+ - In a race, sooner or later there’s a moment that separates the winner from those who don’t win. That instant is your chance, the moment you’ve been waiting for.
+ - Do you believe in what you do? Every day? It turns out that belief happens to be a brilliant strategy.
+ - It takes three years to be an overnight success, sometimes more.
+ - Social Networking that matters is helping people archive their goals. Doing it reliably and repeatability so that over time people have an interest in helping you achieve your goals.
+ - Don’t save the canary. Fix the coal mine.
+ - Care. Care more than you need to, more often than expected, more completely than the other guy.
+ - Just saying yes because you can’t bear the short-term pain of saying no is not going to help you do the work.
+ - Just because the tide is out, doesn’t mean there is less water in the ocean.
+ - In a long distance race, everyone gets tired. The winner is the runner who figures out where to put the tired, figures out how to store it away until after the race is over. Sure, he’s tired. Everyone is. That’s not the point. The point is to run.
+ - No one can force you to stand up, speak up and make a difference. But if you back off and play along, please understand that whatever happens happened, at least in part, because you acquiesced.
+ - No, the only way to know what people think is to watch what they do, not what they say. Do they come back for more? Do you cause them to change their behavior? Can you make them smile?
+ - One key to moving forward is knowing what to leave behind.
+ - No more than six words on a slide. Ever. There is no presentation so complex that this rule needs to be broken.
+ - I’m not a psychopath-I’m wearing a tie!
+ - Surprise comes from defying expectations.
+ - Now for the first time, you can choose yourself. You can be responsible for what you do and how you do it. You have to do the hard work of finding and pleasing an audience.
+ - Basically you create your experience through your beliefs about yourself and the nature of reality. Another way to understand this is to realize that you create your experiences through your expectations.
+ - Successful people are the ones who are breaking the rules.
+ - Today, not starting is far, far worse than being wrong. If you start, you’ve got a shot at evolving and adjusting to turn your wrong into a right. But if you don’t start, you never get a chance.
+ - Art is a personal act of courage, something one human does that creates change in another.
+ - Great stories agree with our worldview. The best stories don’t teach people anything new. Instead the best stories agree with what the audience already believes and makes the members of the audience feel smart and secure when reminded how right they were in the thirst place.
+ - There’s a huge difference between being a replaceable cog on the assembly line and being the one who is missed, the one with a unique contribution, the one who made a difference.
+ - Human nature is to need a map. If you’re brave enough to draw one, people will follow.
+ - The resistance is not something to be avoided, it’s something to seek out.
+ - Habits are more powerful than fears.
+ - Learn. Ceaselessly. Learn to code, to write persuasively, to understand new technologies, to bring out the best in your team, to find underused resources and to spot patterns.
+ - If you borrow money to make money, you’ve done something magical. On the other hand, if you go into debt to pay your bills or buy something you want but don’t need, you’ve done something stupid. Stupid and short-sighted and ultimately life-changing for the worse...
+ - The sound of a small bell during a dark night, is louder than the din of traffic outside your window during rush hour. Surprise and differentiation have far more impact than noise does.
+ - Gratitude and opportunity create more of the same.
+ - Following instructions is overrated.
+ - If you’re not uncomfortable in your work as a leader, it’s almost certain you’re not reaching your potential as a leader.
+ - The reason business writing is horrible is that people are afraid. Afraid to say what they mean, because they might be criticized for it. Afraid to be misunderstood, to be accused of saying what they didn’t mean, because they might be criticized for it.
+ - Remember the Bob Dylan rule: it’s not just a record, it’s a movement.
+ - Be personal. Be relevant. Be specific.
+ - Incrementalism ceases to be a good strategy when there’s a cliff on the route.
+ - Excellence isn’t about meeting the spec, it’s about setting the spec.
+ - Art is the work of a human being – something a person does with generosity to touch someone else to make a change for the better.
+ - The time to look for a new job is when you don’t need one. The time to switch jobs is before it feels comfortable.
+ - Art is the act of navigating without a map.
+ - No one has ever built a statue to a critic, it’s true. On the other hand, it’s only the people with statues that get pooped on by birds flying by.
+ - The challenge of our time is to find a journey worthy of your heart and your soul.
+ - There are always limits, and opportunities. The ones we rehearse and focus on are the ones that shape our future.
+ - Seek out habits that help you overcome fear or inertia. Destroy those that do the opposite.
+ - Here’s conventional wisdom: Success makes you happy. Happiness permits you to be generous. In fact, it actually works like this: Generosity makes you happy. Happy people are more likely to be successful.
+ - Own your dreams. There is no better way to make them happen.
+ - Not only are bloggers suckers for the remarkable, so are the people who read blogs.
+ - Great marketers don’t make stuff. They make meaning.
+ - The only thing all successful people have in common is that they’re successful, so don’t waste your time copying “the successful strategies” of others.
+ - I think art is the ability to change people with your work, to see things as they are and then create stories, images, and interactions that change the marketplace.
+ - It’s time to stop complying with the system and draw your own map. Stop settling for what’s good enough and start creating art that matters.
+ - Art is a human act, a generous contribution, something that might not work, and it is intended to change the recipient for the better, often causing a connection to happen.
+ - Effort is its own reward if you allow it to be.
+ - When you set down the path to create art, whatever sort of art it is, understand that the path is neither short not easy. That means you must determine if the route is worth the effort. If it’s not, dream bigger.
+ - The problem with holding a grudge is that your hands are then too full to hold onto anything else. It might be the competition or a technology or the lousy things that someone did a decade ago. None of it is going to get better as a result of revisiting the grudge.
+ - It’s easy to pretend expertise when there’s no data to contradict you.
+ - What if getting bigger isn’t the point? What if you merely got better?
+ - If you don’t know how it works, find out. If you’re not sure if it will work, try it. If it doesn’t make sense, play with it until it does. If it’s not broken, break it. If it might not be true, find out.
+ - If you can’t state your position in eight words, you don’t have a position.
+ - The future of publishing is about having connections to readers and the knowledge of what those readers want.
+ - The status quo is persistent and resistant. It exists because everyone wants it to. Everyone believes that what they’ve got is probably better than the risk and fear that come with change.
+ - I see things differently when I’m focused on opening doors for other people, and more often than not, my doors are opened as well.
+ - Marketing is the way your people answer the phone, the typesetting on your bills and your return policy.
+ - When in doubt, tell yourself the truth.
+ - At the heart of art is learning to see.
+ - Just because something is easy to measure doesn’t mean it’s important.
+ - You can’t fool all the people, not even most of the time. And people, once unfooled, talk about the experience.
+ - An artist is someone who uses bravery, insight, creativity, and boldness to challenge the status quo. And an artist takes it personally.
+ - Risking the appearance of weakness takes strength. And the market knows it.
+ - It takes confidence and guts to intentionally create tension.
+ - The challenge with being an initiator of projects is that you are never, ever done.
+ - In a battle between two ideas, the best one doesn’t necessarily win. No, the idea that wins is the one with the most fearless heretic behind it.
+ - Nine years of experience is very different from one year of experience, nine times.
+ - Embracing the fear of freedom, deciding to determine your own path, this is the work of a grownup.
+ - The art of good decision making is looking forward to and celebrating the tradeoffs, not pretending they don’t exist.
+ - Positive thinking is hard. Worth it, though.
+ - A book is a souvenir of an idea.
+ - A well-defined backup plan is sabotage waiting to happen. Why push through the dip, why take the risk, why blow it all when there’s the comfortable alternative instead? The people who break through usually have nothing to lose, and they almost never have a backup plan.
+ - Positive thinking doesn’t guarantee results, all it offers is something better than negative thinking.
+ - The easiest way to thrive as an outlier is to avoid being one. At least among your most treasured peers. Surround yourself with people in at least as much of a hurry, at least as inquisitive, at least as focused as you are.
+ - Competence is the enemy of change!
+ - The digital asset that matters is trust. Awareness first, then interaction, and maybe a habit, but all three mean nothing if they don’t lead to permission and trust. The privilege of connection. Everything else is slippery.
+ - And it doesn’t matter to me whether you’re running a coffee shop or you’re an intellectual or you’re in business or flying hot air balloons. People who can spread ideas, regardless of what those ideas are, win. But consumers, they got way more choices than they used to and way less time.
+ - Nothing about becoming indispensable is easy. If it’s easy, it’s already been done and it’s no longer valuable.
+ - The only reason to build a website is to change someone. If you can’t tell me the change and you can’t tell me the someone, then you’re wasting your time.
+ - Are you copying others? People won’t pay extra for that. You won’t be followed for that.
+ - The ladder of success isn’t a ladder. It’s a series of steps with leaps interspersed along the way.
+ - To make a product, to market an idea, to come up with any problem you want to solve that doesn’t have a constituency within otaku is almost impossible. There’s a hot sauce otaku, but there’s no mustard otaku.
+ - When you can swim, who cares how deep the water is?
+ - The status quo is leaving the building, and quickly.
+ - The definition of a revolution: it destroys the perfect and enables the impossible.
+ - Marketing begins before the product is launched.
+ - Caring, it turns out, is a competitive advantage, and one that takes effort, not money.
+ - You don’t become indispensable merely because you are different. But the only way to become indispensable is to be different. That’s because if you’re the same, so are plenty of other people.
+ - Isn’t the drawing board the place where all the best work happens? It’s not a bad thing to go back there. It’s the entire point.
+ - I think “creativity” is better described as failing repeatedly until you get something right.
+ - The only way to get what you’re worth is to stand out, to exert emotional labor, to be seen as indispensable, and to produce interactions that organizations and people care deeply about.
+ - The way to get unstuck is to start down the wrong path, right now.
+ - Turn strangers into friends. Turn friends into donors. And then do the most important job: Turn your donors into fundraisers.
+ - The good news is that more than ever, value accrues to those that show up, those that make a difference, those that do work that matters.
+ - There’s a big difference between not settling and not starting.
+ - My blogging life is basically goalless. I like the zen nature of that, and paradoxically, it improves results.
+ - Art changes posture and posture changes innocent bystanders.
+ - No niche is too small if it’s yours.
+ - Leadership is scarce because few people are willing to go through the discomfort required to lead.
+ - Art is never defect-free. Things that are remarkable never meet spec, because that would make them standardized, not worth talking about.
+ - You can’t win by being more average than average.
+ - Courage doesn’t always involve physical heroism in the face of death. It doesn’t always require giant leaps worthy of celebration. Sometimes, courage is the willingness to speak the truth about what you see and to own what you say.
+ - The instinct to produce great work doesn’t require a fancy notebook.
+ - If you do a job where someone tells you exactly what to do, they will find someone cheaper than you to do it. And yet our schools are churning out kids who are stuck looking for jobs where the boss tells them exactly what to do.
+ - No one can be responsible for where or how we each begin. No one has the freedom to do anything or everything, and all choices bring consequences. What we choose to do next, though, how to spend our resources or attention or effort, this is what defines us.
+ - Two elements of successful leadership: a willingness to be wrong and an eagerness to admit it.
+ - So sure, start with a slogan. But don’t bother wasting any time on it if you’re merely going for catchy. Aim for true instead.
+ - Sure, compare. But compare the things that matter to the journey you’re on. The rest is noise.
+ - Copy, not from your industry, from others. You have to go where there is no competition.
+ - I’m not proposing that you let the crowd dictate, or that you work hard to fit in. Far from it. I’m proposing that you know the impact your choices are having and act accordingly.
+ - Skepticism doesn’t help you hear.
+ - Popular is not the same important, or often, not the same as good.
+ - A customer is never out of warranty, even if his product is.
+ - As our society gets more complex and our people get more complacent, the role of the jester is more vital than ever before. Please stop sitting around. We need you to make a ruckus.
+ - The best favors are worth doing for the doing, not because we’ll ever get paid back appropriately.
+ - I’ll confess that I don’t watch the Olympics, but you’d have to be living under a rock to be unaware of the corruption and the expense. An amorphous organization with no transparency, unclear lines of responsibility, huge amounts of politics and a great deal of unearned power.
+ - When we think about what might go wrong, we’re more likely to design something that goes right.
+ - Just imagine how much you’d get done if you stopped actively sabotaging your own work.
+ - Sooner or later, many idealists transform themselves into disheartened realists who mistakenly believe that giving up is the same thing as being realistic.
+ - So much easier to aim for the smallest possible audience, not the largest, to build long-term value among a trusted, delighted tribe, to create work that matters and stands the test of time.
+ - Your best customers are worth far more than your average customers.
+ - If you don’t require the journey to be easy or comfortable or safe, you can change the world.
+ - When you walk around braced for impact, you’re dramatically decreasing your chances. Your chances to avoid the outcome you fear, your chances to make a difference, and your chances to breathe and connect.
+ - Competence is no longer scarce.
+ - By all means, fire the customers who aren’t worth the time and the trouble. But understand that the moment you insist the customer is wrong, you’ve just started the firing process.
+ - You cannot buy your way to share of voice today; you cannot buy attention anymore.
+ - We don’t become mediocre all at once, and we rarely do it on purpose.
+ - We are too focused on avoiding criticism and not enough on making a difference.
+ - Great innovations, powerful interactions and real art are often produced by someone in a state of wonder. Looking around with stars in your eyes and amazement at the tools that are available to you can inspire generosity and creativity and connection.
+ - A brilliant author or businesswoman or senator or software engineer is brilliant only in tiny bursts. The rest of the time, they’re doing work that most any trained person could do.
+ - You can listen to what people say, sure. But you will be far more effective if you listen to what people do.
+ - Being charismatic doesn’t make you a leader. Being a leader makes you charismatic.
+ - If your organization requires success before commitment, it will never have either.
+ - It’s much easier to spend a lot of time making your microphone louder than it is working on making your message more compelling.
+ - All great programmers learn the same way. They poke the box. They code something and see what the computer does. They change it and see what the computer does. They repeat the process again and again until they figure out how the box works.
+ - Set a goal, and in small, consistent steps, work to reach it. Get support from your peers when you start flagging. Repeat. You will change.
+ - If you think your organization needs a bigger marketing budget, maybe you just need to be less average instead.
+ - We do not need to teach students to embrace the status quo.
+ - Shame must be accepted to be effective.
+ - Average feels safe but it’s not. It’s invisible.
+ - The way I understand gifts is that the giver must make a sacrifice, create an uneven exchange, bring himself closer to the recipient, create change and do it all with the right spirit.
+ - The internet has opened the door for millions of businesses to do things differently, because there are other assets now, assets that can transcend location. Your permission to talk to customers, your reputation, your unique products-you can build a business around them online.
+ - Being an artist isn’t a genetic disposition or a specific talent. It’s an attitude we can all adopt. It’s a hunger to seize new ground, make connections, and work without a map. If you do those things, you’re an artist.
+ - We need to care enough to connect, to put ourselves at emotional risk and play one note worth hearing.
+ - Most of the time, creative entrepreneurs lose interest long before their marketing message loses its power.
+ - The way you feel about giving money to good causes has a lot to do with the way you feel about money.
+ - When we intentionally seek out the difficult tasks, we’re much more likely to actually create value.
+ - I made a decision to write for my readers, not to try to find more readers for my writing.
+ - Fitting in is a short-term strategy that gets you nowhere. Standing out is a long-term strategy that takes guts and produces results.
+ - What people are afraid of isn’t failure. It’s blame. Criticism.
+ - But this is a remarkable egg, an egg worth talking about, an egg worth crossing the street for, an egg worth writing about.
+ - Our cultural instinct is to wait to get pickedNo one is going to pick you. Pick yourself.
+ - For most modern marketers, quantity isn’t the point. What matters is to matter. Lives changed. Work that made an actual difference. Connection.
+ - It’s rare to find a consistently creative or insightful person who is also an angry person. They can’t occupy the same space, and if your anger moves in, generosity and creativity often move out. It’s difficult to use revenge or animus to fuel great work.
+ - Being a leader gives you charisma. If you look and study the leaders who have succeeded, that’s where charisma comes from, from the leading.
+ - You can define advertising as the science of creating and placing media that interrupts the consumer and then gets him or her to take some action.
+ - Increasingly, there are only two kinds of companies: brave and dead.
+ - Competent people are the most resistant to change.
+ - I think that the economics of book publishing favor hits with long book runs. You make all your money on the last bunch of books, not the first.
+ - If you speak up online and your ideas have currency, people are going to show up and want to connect with you. What we need more of are people with the guts and emotional labour to do this. The greatest shortage in today’s society is an instinct to produce.
+ - Doing justice to the work is your task, not setting a world record.
+ - We have little choice but to move beyond quality and seek remarkable, connected, and new. Remarkable, as you’ve already figured out, demands initiative.
+ - As you’ve probably discovered, great work makes us uncomfortable.
+ - I hope I’m better looking than Yoda, but – I’m really interested in people who have something to say, a change they want to make and can’t figure out why they can’t make it spread.
+ - The ONLY thing leaders have in common is the shared decision to lead.
+ - In a digital world, the gift I give you almost always benefits me more than it costs.
+ - The only way to consistently grow in B2B is to be better than very good.
+ - Fire the committee. No great website in history has been conceived of by more than three people. Not one. This is a deal breaker.
+ - I feel like I’m treating people as I’d like to be treated.
+ - The innovator creates a business where they are making money, even when they sleep.
+ - I believe that uncertainty is really my spirit’s way of whispering, I’m in flux. I can’t decide for you. Something is off-balance here.
+ - And the reason is that until Wonder came along and figured out how to spread the idea of sliced bread, no one wanted it. That the success of sliced bread is not always about what the patent is like or what the factory is like, it’s about can you get your idea to spread or not?
+ - If you’re not the best in the world at what you do, then you have to get better.
+ - It might be bold to put your work into the world unadorned, but it’s probably ineffective.
+ - If you could do tomorrow over again, would you?
+ - I’ve never once met a successful blogger who questioned the personal value of what she did.
+ - Stop trying to find the formula that will instantly make your idea into a winner. Instead of being scientists, the best marketers are artists. They realize that whatever is being sold is being purchased, because it creates an emotional want, not because it fills a simple need.
+ - If you believe that a given situation should make you unhappy, then it will, and the unhappiness will then reinforce the condition.
+ - The wettest, weirdest environment is human interaction. Whatever we build gets misunderstood, corroded and chronic, and it happens quickly and in unpredictable ways. That’s one reason why the web is so fascinating-it’s a collision between the analytic world of code and wet world of people.
+ - The problem with working with a coach isn’t that we don’t know what to do. The real problem is that we don’t want to change our mind.
+ - The goal is to be on the hook, not to let someone else do the scary parts.
+ - When you put your ideas in the world, then, and only then, do you know if they’re real.
+ - Perhaps marketing is about to transition to a new kind of profession, one that requires insight, dedication and smarts.
+ - You want it to be hard. If it’s hard, then that means others can’t do it easily and you can charge for that value.
+ - Ideas don’t get smaller when they’re shared, they get bigger.
+ - Kickstarter isn’t a profit center, it’s an organizer and an instigator.
+ - Make enough mole hills, and eventually you will build a mountain.
+ - One way to sell a consumer something in the future is simply to get his or her permission in advance.
+ - The best way to be missed when you’re gone, Is to stand for something when you’re here.
+ - Too often, we don’t give people the opportunity to fill in the blanks.
+ - Bullhorns are overrated: having ten times as many Twitter followers generates approximately zero times as much value.
+ - Writing a book is a tremendous experience. It pays off intellectually. It clarifies your thinking. It builds credibility. It is a living engine of marketing and idea spreading, working every day to deliver your message with authority. You should write one.
+ - Once you have permission to talk to someone, finding new products or services for them is a smart way to grow.
+ - This notion that it is up to each person to innovation in some way flies in the face of the industrial age, but you know what, the industrial age is over.
+ - People who make a difference never wait for just the right time. They know that it will never arrive.
+ - Debt creates stress, stress creates behaviors that don’t lead to happiness.
+ - The industrial age brought compliance and compliance brought fear and fear brought us mediocrity.
+ - Believe in what you do, because you may have to do it for a long time before it catches on.
+ - No one knows more about the way you think than you do.
+ - In general, organizations are afraid to fire customers, no matter how unreasonable. This is a mistake. It’s good for you.
+ - Nobody says, ‘Yeah, I’d like to set myself up for some serious criticism!’ And yet, the only way to be remarkable is to do just that.
+ - The danger of the Web is that you can go from idea to public announcement in under ten minutes.
+ - This might end up in crying. If you’re not prepared to cry about it, I’m not sure you’re making art. And if you’re not prepared to dance in anticipation, you’re definitely not making art.
+ - If you’re remarkable it’s likely that some people won’t like you.
+ - What evidence would you need to see to change your mind about this?
+ - Play a new game, not the older game but faster.
+ - Initiating is really and truly difficult, and that’s what leaders do. They see something others are ignoring and they jump on it.
+ - The one path that never works is the most common one: doing nothing at all.
+ - It will take you less time and effort to do a thing the difficult way than it will to buy, try and discard all the shortcuts.
+ - Catering to the passionate is exactly what you should do.
+ - Great projects, like great careers and relationships that last, are gardens. They are tended, they shift, they grow. They endure over time, gaining a personality and reflecting their environment. When something dies or fades away, we prune, replant and grow again.
+ - More and more people now have jobs that require them to confront the risk of appearing stupid on a regular basis.
+ - You can be right or you can have empathy. You can’t do both.
+ - Finding new ways, more clever ways to interrupt people doesn’t work.
+ - Those that spend the most effort in search of shortcuts are often the most disappointed and the least successful.
+ - Competition and the market are like water, they go where they want.
+ - When the room brightens when you walk in, you matter.
+ - It turns out that the people who like their jobs the most are also the ones who are doing the best work, making the greatest impact, and changing the most.
+ - I think if you’re remarkable, amazing or just plain spectacular, you probably shouldn’t have a resume at all.
+ - I find that I have about six bloggable ideas a day. I also find that writing twice as long a post doesn’t increase communication, it usually decreases it. And finally, I found that people get antsy if there are unread posts in their queue.
+ - If you are wiling to do something that might not work, you are closer to being an artist.
+ - You gain converts by winning at something the existing provider didn’t think was so important.
+ - A product for everyone rarely reaches much of anyone.
+ - It’s not an accident that successful people read more books.
+ - Conversations among the members of your marketplace happen whether you like it or not. Good marketing encourages the right sort of conversations.
+ - Put aside your need for a step-by-step manual and instead realize that analogies are your best friend.
+ - Most people don’t see that they have options beyond what society tells them to do. That’s the biggest problem. They honestly believe that compliance is the shortcut to success.
+ - You can game the social media in the short run, but not for long.
+ - Set up a life you don’t need to escape from.
+ - Selling to people who actually want to hear from you is more effective than interrupting strangers who don’t.
+ - Don’t do it because it’s your job, do it because you can.
+ - The habit of doing more than is necessary can only be earned through practice.
+ - If you’re passionate, be passionate enough to fail. Fail small, accept responsibility, repeat. The people who make change are the survivors of serial failure.
+ - If you’re different somehow and have made yourself unique, people will find you and pay you more.
+ - What we most need in our lives, though, is something worth doing, worth it because we care.
+ - Networking that matters is helping people achieve their goals.
+ - Success comes from doing the hard part. When the hard part is all you’ve got, you’re more likely to do it. And this is precisely why it’s difficult to focus. Because focusing means acknowledging that you just signed up for the hard part.
+ - In our desire to please everyone, it’s very easy to end up being invisible or mediocre.
+ - The goal has never been to always succeed. The goal is to be allowed to keep initiating.
+ - When you are trusted because you care, it’s quite likely the revenue will take care of itself.
+ - Treat different people differently. Anything else is a compromise.
+ - The goal, then, isn’t to draw some positioning charts and announce that you have differentiated your product. No, the opportunity is to actually create something that people choose to talk about, regardless of what the competition is doing.
+ - I wonder if real art comes when you build the thing that they don’t have a prize for yet.
+ - Organizations grow when they persuade a tiny cadre to be passionate, not when they touch millions with a mediocre message.
+ - Marketing yourself to a new person often involves being charismatic, clever and quick-but most jobs and most relationships are about being consistent, persistent and brave.
+ - What are you working on? If someone asks you that, are you excited to tell them the answer? If you’re not, you’re wasting away.
+ - Loving what you do is almost as important as doing what you love, especially if you need to make a living at it.
+ - Perhaps your challenge isn’t finding a better project or a better boss. Perhaps you need to get in touch with what it means to feel passionate. People with passion look for ways to make things happen.
+ - All motivation is self-motivation. Your family, your boss, or your co-workers can try to get your engine going, but until you decide what to accomplish, nothing will happen.
+
+500 quotes

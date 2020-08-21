@@ -1,0 +1,162 @@
+ - Don’t make excuses for why you can’t get it done. Focus on all the reasons why you must make it happen.
+ - Remember why you started, remember where you’re headed, think of how great it will be to get there, and keep going.
+ - Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. No person will make you happy unless you decide to be happy. Your happiness will not come to you. It can only come from you.
+ - You were born to be real, not to be perfect. You are here to be you, not to live someone else’s life.
+ - Being positive in a negative situation is not naive. It’s leadership.
+ - What you do today can improve all your tomorrows.
+ - It’s difficult to follow your dream. It’s a tragedy not to.
+ - Don’t lower your expectations to meet your performance. Raise your level of performance to meet your expectations. Expect the best of yourself, and then do what is necessary to make it a reality.
+ - There are plenty of difficult obstacles in your path. Don’t allow yourself to become one of them.
+ - Rest when you’re weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work.
+ - Today is an opportunity to do something positive. Today is your chance to add new value to your life and to your world. Make the commitment to fill this day with meaningful richness and purposeful effort. This is your day to live, so do so with vigor and enthusiasm.
+ - Dare to dream big dreams. For those are the dreams that have the power to push your whole world forward.
+ - Success requires both urgency and patience. Be urgent about making the effort, and patient about seeing the results.
+ - Excellence is not a skill. It is an attitude.
+ - Concern yourself more with accepting responsibility than with assigning blame. Let the possibilities inspire you more than the obstacles discourage you.
+ - You’ve done it before and you can do it now. See the positive possibilities. Redirect the substantial energy of your frustration and turn it into positive, effective, unstoppable determination.
+ - Imagine the possibilities!
+ - Being positive does not mean ignoring the negative. Being positive means overcoming the negative.
+ - Never assume that you’re stuck with the way things are. Life changes, and so can you.
+ - Don’t let the silly little dramas of each day get you down. For you are here to do great things.
+ - Be appreciative of what’s right with your life. In your gratitude is power to make it even better.
+ - If you focus on the obstacles, then you give them more power. Instead focus on your purpose, on your most authentic and fundamental intentions.
+ - Make it a habit to tell people thank you. To express your appreciation, sincerely and without the expectation of anything in return. Truly appreciate those around you, and you’ll soon find many others around you. Truly appreciate life, and you’ll find that you have more of it.
+ - Don’t waste time on excuses. Just get it done.
+ - Achievement does not require extraordinary ability. Achievement comes from ordinary abilities applied with extraordinary persistence.
+ - Let go of your attachment to being right, and suddenly your mind is more open. You’re able to benefit from the unique viewpoints of others, without being crippled by your own judgment.
+ - Life is not always easy. And that is a major reason why it is so precious. Many of life’s best rewards are possible only because you must work your way through difficult challenges to get to them. If everything in life were easy, there would be no opportunity for real fulfillment.
+ - Breathe in the sweet air of limitless possibility, and make life as rich as you know it can be.
+ - Give your best to the challenges. And what you get will be even better.
+ - No matter what the situation may be, there is always something positive you can do about it.
+ - One positive step can put an end to negative momentum. Now is when you can take it.
+ - Truly appreciate those around you, and you’ll soon find many others around you.
+ - Almost everyone does just enough to get by. Those who achieve spectacular success also do enough to get by; then they add a little bit of extra effort. That little bit of extra effort makes an enormous difference.
+ - Lasting achievement, whatever the endeavor, comes from a commitment to excellence every step of the way.
+ - Every day you make some progress and every day you make a few mistakes. Through it all, your wisdom continues to grow and your experience continues to broaden.
+ - What you are longing for is longing for you.
+ - Your goals, minus your doubts, equal your reality.
+ - The quality of your commitments will determine the course of your life.
+ - Be someone who listens, and you will be heard. Be someone who cares, and you will be loved. Be someone who gives, and you will be blessed. Be someone who comforts, and you will know peace.
+ - Live each moment from your own inspiration, not from your desire to look good in the eyes of others.
+ - Let go of your attachment to being right, and suddenly your mind is more open.
+ - When you think you know it all, there’s not much that you’ll learn.
+ - Greatness comes from living with purpose and passion.
+ - The keys to patience are acceptance and faith. Accept things as they are, and look realistically at the world around you. Have faith in yourself and in the direction you have chosen.
+ - Even in the most difficult situation there is always, somehow, a way to triumph.
+ - When you are happy, be thankful and your happiness is greatly multiplied. When you are feeling down, be thankful and youll soon be feeling much better.
+ - When you can clearly see yourself being there, you can see much more clearly how to get there. You can imagine the path to your dreams, and then start to actually walk it. Play an active role in your own future. Imagine with passion and detail how you’d most like it to be.
+ - Be wary of those who seek to steal your dream. Be even more wary of those who seek to tell you what your dream should be.
+ - Dreams are unrealistic, impractical, demanding – and absolutely essential to living a rich and fulfilling life.
+ - When the path becomes difficult, that’s no reason to give up. In fact, it means you’re making real progress.
+ - It doesn’t matter how much you want. What really matters is how much you want it.
+ - If you’re to succeed at any endeavor, the first and most important person you must convince is yourself. Success comes not from merely a belief that you can do it. Success comes when you absolutely know you can achieve it.
+ - The strongest leaders do not command, they empower.
+ - When something feels right, that means it is right for you. Pay attention to your authentic feelings, and follow where they lead.
+ - Life does not owe you anything, because life has already given you everything.
+ - Every day you spend drifting away from your goals is a waste not only of that day, but also of the additional day it takes to regain lost ground.
+ - A smile can work wonders. Put it to work for you.
+ - Gratitude is the smile of love.
+ - One of the biggest threats to success is success itself. When you get a little bit ahead, it’s all too easy to become complacent and to quickly lose what you have gained.
+ - The value of an ambitious goal is not measured by what it will bring to you. The worth of a goal is measured by what it will make of you in the process of following and attaining it.
+ - Make the decision to love this day, this place, this moment, this special experience of life with the people around you. And there will be so very much to love.
+ - The most effective strategy for successful living is really no strategy at all. It is, rather, to be real, to be honest, to be authentic, to be you.
+ - Choose to live in a place where your eyes are always open to the positive possibilities.
+ - Dare to visualize a world in which your most treasured dreams have become true.
+ - When was the last time you spent a quiet moment just doing nothing – just sitting and looking at the sea, or watching the wind blowing the tree limbs, or waves rippling on a pond, a flickering candle or children playing in the park?
+ - Prepare far enough in advance, and just about anything is possible.
+ - Humility reminds you that in order to receive value, you must create value in equal measure.
+ - One of the greatest motivators is desire. If the desire is strong enough you will do whatever it takes to achieve. Just connect your actions with your true desires.
+ - Problems, weaknesses, setbacks, regrets and mistakes teach you if you’re willing to learn, or they punish you if you’re not.
+ - What you hold in your heart, you will see in your world.
+ - Perfection in any endeavor is an aiming point. Let the desire for it push you, but don’t let the absence of it stop you.
+ - Your level of achievement will rise to meet the level of your purpose.
+ - Your life is magnificent not because someone says it is, but because you choose to see it as such.
+ - Accomplishment comes from making positive efforts, even in the face of negative circumstances.
+ - Winners win not because they’re allowed to, but because they decide to.
+ - Turn your attention for a while away from the worries and anxieties. Remind yourself of all your many blessings.
+ - Step confidently forward in the precisely the direction that is the most challenging to you. Because in that same direction, you’ll also find what is most rewarding to you.
+ - When one approach is not working to reach the desired goal, that’s not a reason to abandon the goal. Instead, it is time to devise another approach.
+ - Every moment spent in negativity is paid for with something truly priceless. That something is life.
+ - You cannot expect to get the effect when you neglect to create the cause.
+ - Adversity is an effective, thorough and highly personalized teacher.
+ - Sure, there are many bad things that can happen. Yet you can be aware of them, and realistic about them, without being obsessed and consumed by them.
+ - Be thankful for it all. And beyond your many blessings, will be many, many more.
+ - Beset by a difficult problem? Now is your chance to shine. Pick yourself up, get to work and get triumphantly through it.
+ - Being truly thankful makes you infinitely more resourceful. By sincerely appreciating what you have, you find new and valuable ways to make use of it.
+ - Those who win big do it by creating other winners.
+ - The direction of your focus is the direction your life will move. Let yourself move toward what is good, valuable, strong and true.
+ - So go ahead and face that fear, make that effort, move forward into new territory and fully live the grand possibilities with which you’re blessed. Boldly face life, and you’ll find it to be better than you ever imagined.
+ - There is no limit to what you can imagine. And with commitment, with effort, what you can imagine you can become. Put your mind to work for you. Believe that you can do it. The world will tell you that you can’t. Yet, in your belief you’ll find the strength, you’ll find the ability, to do it anyway.
+ - Live your days on the positive side of life, in tune with your most treasured values. And in each moment you’ll have much to live for.
+ - There are very real obstacles and challenges to any course of action. And there’s no need to add to them, by making up obstacles of your own. Unchain yourself from the bondage of your own thinking.
+ - Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now.
+ - If you so choose, the challenges can make you stronger. If you so choose, the disappointments can make you more determined.
+ - Meaning is found not in the rewards, for they are only tokens. Seek not to have the gold medal. Instead, seek to be the person who can win the gold medal. It is in the quest that you’ll find the fulfillment which the reward represents.
+ - Care, because it is what you do. Care, and be vibrantly alive.
+ - What if you gave someone a gift, and they neglected to thank you for it – would you be likely to give them another? Life is the same way. In order to attract more of the blessings that life has to offer, you must truly appreciate what you already have.
+ - When your reasons to move forward outweigh your excuses for staying put, you will move forward.
+ - Instead of jumping at the chance to be offended, choose to be amused. Rather than filling your thoughts with resentment, fill your heart with forgiveness.
+ - The best way to handle good fortune is to do something positive and useful with it. The best way to handle misfortune is exactly the same.
+ - When you do the right thing, enjoy it! When you take positive actions, enjoy them. After all, they are leading you toward positive results. Pat yourself on the back. Truly enjoy the fact that you’re making positive progress, and the negative temptations will have no power over you.
+ - Let the fear go, and live your life with the power of love.
+ - The real person you are is revealed in the moments when you’re certain no other person is watching. When no one is watching, you are driven by what you expect of yourself.
+ - You have created your fears. And you can choose to lay them to rest. You have created your dreams. And you can choose to bring them fully to life.
+ - Doubt is merely a thought. When experience proves it wrong, it will quickly go away.
+ - In the midday sun, a bright light will be barely noticed. Yet in the darkest night, even the smallest light can make an enormous difference.
+ - You are full of wonderful possibilities. Do something with them. The most painful regrets, those which never go away, are regrets of things not done, things never attempted.
+ - Choose to fully and graciously live life as it comes. The richest rewards by far are the ones to which you most sincerely give of yourself.
+ - You become what you think about most. When you continually focus on the fear of failure, failure will become real for you. Look instead at the possibilities. Look at what could happen if only you would attempt it. Sure, it might not succeed completely. Yet even then you will learn something.
+ - Every day is a day to be thankful. Life’s abundance has no limit, and gratitude is what keeps that abundance flowing. In every circumstance there is something for which to be thankful. Even when there seems to be nothing else, there is hope.
+ - Begin each day with the expectation that it will bring something new, something to which you can say yes.
+ - Allow love to fill the places where anxiety now resides.
+ - There’s nothing that says you have to succeed in the same way as someone else. In fact, there’s nothing that says you must define success in the same way as someone else.
+ - Carrying a grudge is difficult work that brings nothing of value. Forgive, and be free.
+ - If you so choose, even the unexpected setbacks can bring new and positive possibilities. If you so choose, you can find value and fulfillment in every circumstance.
+ - Feelings are determined by how one chooses to respond to various situations and events.
+ - What you do makes you better at what you think. What you think makes you more effective at what you do.
+ - Stopping before you reach the goal does not make the discouragement go away. All it does is make the discouragement permanent. Instead, keep going, keep making the attempt, until you make that last, fulfilling attempt that brings the success you desire.
+ - Patience expands your options. If you insist on immediate gratification, your choices are severely limited.
+ - In every kind of endeavor, there are ample opportunities for extra effort. Grab those opportunities, embrace that extra effort and transform ordinary mediocrity into bright and shining excellence.
+ - Just as surely as you can create a thought in your mind, you can create this day in the way you choose.
+ - The way to transform your immense inner value into outer riches is by giving it freely and authentically to others.
+ - Instead of being intimidated by the limitations, be inspired to find new ways around them.
+ - You are what you are most profoundly thankful for, and what you love.
+ - Spread the seeds of encouragement far and wide, and delight in the bountiful harvest that they will surely bring.
+ - Stop needing and start having. Stop wanting and start being.
+ - If you so choose, each day can be filled with even more joy than the one before. If you so choose, even the most seemingly random events can work in your favor.
+ - Look, really look, at how beautiful this day is. Let go of the worries and anxieties and judgments, and see the beauty.
+ - Your life is constantly nourished by your thoughts. Whatever the direction your life is moving, your thoughts have led you there.
+ - Let each moment be guided by positive purpose. And let your whole life express the beauty of who you truly are.
+ - What has happened has happened and it is now behind you. Take the best of it all as you move positively forward.
+ - Welcome those big, sticky, complicated problems. In them are your most powerful opportunities.
+ - Though the universe is delightfully complex, life, at its heart, is not particularly complicated. Live true to who you are and though it won’t always be easy, you’ll live well.
+ - The hours and days you spend being annoyed or frustrated are times when you deny yourself access to life’s best possibilities. When you live in anger and resentment, you cut yourself off from life’s goodness.
+ - Whats holding you back is the thought that something is holding you back.
+ - A world of abundance surrounds you, if only you will step up and claim it. Make life happen through you rather than letting it happen to you. It will make all the difference in the world.
+ - Expect the best of yourself, and then do what is necessary to make it a reality.
+ - Be someone who lifts others higher, and your life will be rich. Be someone filled with gratitude, and there will be no end to the things for which you’ll be thankful.
+ - Even when there seems to be nothing else, there is hope.
+ - Every moment you spend thinking about the bad stuff pushes that much more of the good stuff away.
+ - There is a thought in your mind right now. The longer you hold on to it, the more you dwell upon it, the more life you give to that thought. Give it enough life, and it will become real. So make sure the thought is indeed a great one.
+ - What a joy it is that the road ahead is an uphill climb. For where it leads is all the way to the top.
+ - Success in any endeavor depends on the degree to which it is an expression of your true self.
+ - Truth is just as essential to nourishing the mind as food is to nourishing the body. The more fully you live each moment in truth, the more powerful and effective those moments will be.
+ - You can choose instead to live in the enriching, empowering light of your own highest visions. You can always choose to grow, to achieve, and to fulfill by immersing your awareness in life’s ever-present goodness.
+ - Procrastinating, fighting and avoiding will only make it more difficult. The way out is to get it done.
+ - Sure, it’s easy to be upbeat when everything is going your way. Anyone can do that. It is far more important, however, to take a positive approach in circumstances that most people would view as negative.
+ - Do what is right, and you’ll have no lasting regrets. Do what is right, and put yourself on the side of truth, goodness, and the best of life.
+ - The fundamental challenge of achieving anything you wish is first to convince yourself to do it. Once you are totally convinced of its value, you’ll find a way to get it done.
+ - You may very well have good reasons for resentment, frustration and anger. But that doesn’t mean those negative responses are good for you, or that you must choose them.
+ - When you’re not afraid to fail, you’ll most certainly have the confidence to succeed.
+ - Be someone who lives with joy, with purpose, as your own light brightly shines. Be, in every moment, the special someone you are truly meant to be.
+ - If something goes wrong, don’t whine about it. Have a spine about it. Adjust, adapt, and move forward.
+ - Your destiny is to fulfill those things upon which you focus most intently. So choose to keep your focus on that which is truly magnificent, beautiful, uplifting and joyful. Your life is always moving toward something.
+ - There is most certainly a purpose you are yearning to fulfill. Find it, know it, follow it, and you can change the world.
+ - Those who are passionate about what they do have an advantage that is nearly impossible to overcome. In passion there is energy, creativity, resilience and persistence. Passion will get it done.
+ - To believe in what you’re doing is not just important. It is everything!
+ - The sooner you act, the bigger difference you can make.
+ - If you focus on the obstacles, then you give them more power.
+ - When you’ve done all you can, do just a little bit more. Any extra effort you make will draw immense leverage from all the ordinary efforts which have preceded it. That can be powerful and effective.
+ - Your busy schedule has plenty of quantity. Think of how you could give it some true quality and meaning. Consider the people, the beliefs, the goals, the things which are really imp9ortant to you. Make time for them, not someday, but right now. Don’t just fill your schedule. Fill your life.
+
+160 quotes

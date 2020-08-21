@@ -1,0 +1,455 @@
+ - Dripping water hollows out stone, not through force but through persistence.
+ - Habits change into character.
+ - Be patient and tough; someday this pain will be useful to you.
+ - Nothing is stronger than habit.
+ - I can’t live without you or with you.
+ - Take rest; a field that has rested gives a bountiful crop.
+ - Fortune and love favor the brave.
+ - I grabbed a pile of dust, and holding it up, foolishly asked for as many birthdays as the grains of dust, I forgot to ask that they be years of youth.
+ - Love is no assignment for cowards.
+ - Everything changes, nothing is lost.
+ - What is harder than rock, or softer than water? Yet soft water hollows out hard rock. Persevere.
+ - All things change, nothing is extinguished. There is nothing in the whole world which is permanent. Everything flows onward; all things are brought into being with a changing nature; the ages themselves glide by in constant movement.
+ - The bold adventurer succeeds the best.
+ - Time is generally the best doctor.
+ - Make good use of your time, it flies fast.
+ - Endure and persist; this pain will turn to good by and by.
+ - Most safely shall you tread the middle path.
+ - Either do not attempt at all or go through with it.
+ - Little things please little minds.
+ - When you have set yourself a task finish it.
+ - Art lies in concealing art.
+ - Often a silent face has voice and words.
+ - The cause is hidden; the effect is visible to all.
+ - It is art to conceal art. -Ars est celare artem.
+ - If you want to be loved, be lovable.
+ - Courage conquers all things.
+ - Beauty is a fragile gift.
+ - So long as you are secure you will count many friends; if your life becomes clouded you will be alone.
+ - Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+ - Fools laugh at the Latin language. -Rident stolidi verba Latina.
+ - Difficulty is what wakes up the genius.
+ - He who can simulate sanity will be sane.
+ - It is but a small merit to observe silence, but it is a grave fault to speak of matters on which we should be silent.
+ - It is hope which makes the shipwrecked sailor strike out with his arms in the midst of the sea, though no land is in sight.
+ - You can learn from anyone even your enemy.
+ - Stop short of your appetite; eat less than you are able.
+ - He is a foolish swimmer who swims against the stream, when he might take the current sideways.
+ - Yield to him who opposes you; by yielding you conquer.
+ - Envy, the meanest of vices, creeps on the ground like a serpent.
+ - A ruler should be slow to punish and swift to reward.
+ - That’s one of the greatest curses ever inflicted on the human race, memory.
+ - Who would have known of Hector, if Troy had been happy? The road to valor is built by adversity.
+ - The man who has experienced shipwreck shudders even at a calm sea.
+ - A horse never runs so fast as when he has other horses to catch up and outpace.
+ - Love, and a cough, are not concealed.
+ - Virtue and vice, evil and good, are siblings, or next-door neighbors, Easy to make mistakes, hard to tell them apart.
+ - Everyone’s a millionaire where promises are concerned.
+ - There is a God within us, and we glow when He stirs us.
+ - The mind ill at ease, the body suffers also.
+ - I am dragged along by a strange new force. Desire and reason are pulling in different directions. I see the right way and approve it, but follow the wrong.
+ - God himself helps those who dare.
+ - Thus I am not able to exist either with you or without you; and I seem not to know my own wishes.
+ - It is a kingly act to help the fallen.
+ - Isn’t the best defense always a good attack?
+ - Sickness seizes the body from bad ventilation.
+ - Love is a kind of military service.
+ - If you count the sunny and the cloudy days of the whole year, you will find that the sunshine predominates.
+ - Presents, believe me, seduce both men and gods.
+ - Men should not care too much for good looks; neglect is becoming.
+ - The spirited horse, which will try to win the race of its own accord, will run even faster if encouraged.
+ - The purpose of law is to prevent the strong always having their way.
+ - Happy is the man who has broken the chains which hurt the mind, and has given up worrying once and for all.
+ - Let the man who does not wish to be idle, fall in love.
+ - What is without periods of rest will not endure.
+ - Let others praise ancient times; I am glad I was born in these.
+ - Like fragile ice anger passes away in time.
+ - The workmanship was better than the subject matter.
+ - Use the occasion, for it passes swiftly.
+ - By looking at squinting people you learn to squint.
+ - Every lover is a soldier.
+ - I am above being injured by fortune, though she steals away much, more will remain with me. The blessing I now enjoy transcend fear.
+ - It’s right to learn, even from the enemy.
+ - Love will enter cloaked in friendship’s name.
+ - Make the workmanship surpass the materials.
+ - Everyone wishes that the man whom he fears would perish.
+ - Women’s words are as light as the doomed leaves whirling in autumn, Easily swept by the wind, easily drowned by the wave.
+ - Love is the force that leaves you colorless.
+ - Everything comes gradually and at its appointed hour.
+ - Lente, lente currite, noctis equi. Translation: Run slowly, slowly, horses of the night.
+ - When a rose dies, a thorn is left behind.
+ - Love conquers all things; let us own her dominion.
+ - There is no such thing as pure pleasure; some anxiety always goes with it.
+ - It is some relief to weep; grief is satisfied and carried off by tears.
+ - All other creatures look down toward the earth, but man was given a face so that might turn his eyes toward the stars and his gaze upon the sky.
+ - All human things hang on a slender thread, the strongest fall with a sudden crash.
+ - Only the mind cannot be sent into exile.
+ - I attempt an arduous task but there is no worth in that which is not a difficult achievement.
+ - Wine gives courage and makes men more apt for passion.
+ - Judgement of beauty can err, what with the wine and the dark.
+ - To wish is of little account; to succeed you must earnestly desire; and this desire must shorten thy sleep.
+ - Excessive love in loathing ever ends.
+ - As long as you are lucky, you will have many friends; if cloudy times appear, you will be alone. -Donec eris felix, multos numerabis amicos; tempora si fuerint nubila, solus eris.
+ - Anyone can be rich in promises.
+ - Bear and endure: This sorrow will one day prove to be for your good.
+ - Give me the waters of Lethe that numb the heart, if they exist, I will still not have the power to forget you.
+ - Stones are hollowed out by the constant dropping of water.
+ - Tis not always in a physician’s power to cure the sick; at times the disease is stronger than trained art.
+ - Burdens become light when cheerfully borne.
+ - Have consideration for wounded feelings.
+ - There is nothing in the whole world which abides. All things are in a state of ebb and flow, and every shadow passes away. Even time itself, like a river, is constantly gliding away .
+ - Jupiter has no leisure to attend to little things.
+ - Quarrels are the dowry which married folk bring one another.
+ - A new idea is delicate. It can be killed by a sneer or a yawn; it can be stabbed to death by a quip and worried to death by a frown on the right man’s brow.
+ - Mad desire, when it has the most, longs for more.
+ - Hastiness is the beginning of wrath, and its end repentance.
+ - We hate the hawk because he ever lives in battle.
+ - All things may corrupt when minds are prone to evil.
+ - Keep thy hook always baited, for a fish lurks even in the most unlikely swim.
+ - How little you know about the age you live in if you think that honey is sweeter than cash in hand.
+ - All love is vanquished by a succeeding love.
+ - Remove the temptation of idleness and Cupid’s bow is useless.
+ - The result justifies the deed.
+ - Time is the devourer of all things.
+ - O ye gods! what thick encircling darkness blinds the minds of men!
+ - Fas est ab hoste doceri. One should learn even from one’s enemies.
+ - Even the gods are moved by the voice of entreaty.
+ - Thus all things altered. Nothing dies. And here and there the unbodied spirit flies.
+ - The vulgar crowd values friends according to their usefulness.
+ - Some people think that because they do the opposite of what they are asked to do, they have initiative.
+ - It is convenient that there be gods, and, as it is convenient, let us believe there are.
+ - The high-spirited man may indeed die, but he will not stoop to meanness. Fire, though it may be quenched, will not become cool.
+ - It is a pleasure appropriate to man, for him to save a fellow-man, and gratitude is acquired in no better way.
+ - The gods behold all righteous actions.
+ - What is allowed us is disagreeable, what is denied us causes us intense desire.
+ - Novelty in all things is charming.
+ - Seeking is all very well, but holding requires greater talent: Seeking involves some luck; now the demand is for skill.
+ - A woman is a creature that’s always shopping.
+ - Habit had made the custom.
+ - Love is a thing that is full of cares and fears.
+ - Few people want the pleasures they are free to take.
+ - Add little to little and there will be a big pile.
+ - Eurydice, dying now a second time, uttered no complaint against her husband. What was there to complain of, but that she had been loved?
+ - There is nothing constant in the universe. All ebb and flow, and every shape that’s born, bears in its womb the seeds of change.
+ - Sleep, rest of things, O pleasing Deity, Peace of the soul, which cares dost crucify, Weary bodies refresh and mollify.
+ - Deadly poisons are concealed under sweet honey.
+ - Those gifts are ever more precious which the giver has made precious.
+ - Winged time glides on insensibly, and deceive us; and there is nothing more fleeting than years.
+ - Envy assails the noblest: the winds howl around the highest peaks.
+ - Let love steal in disguised as friendship.
+ - Often the prickly thorn produces tender roses.
+ - As the hawk is wont to pursue the trembling doves.
+ - Love fed fat soon turns to boredom.
+ - O fool, what else is sleep but chill death’s likeness?
+ - It’s a kindness that the mind can go where it wishes.
+ - In the make-up of human beings, intelligence counts for more than our hands, and that is our true strength.
+ - I see and approve better things, but follow worse.
+ - Pleasure is sweetest when ’tis paid for by another’s pain.
+ - It warms the blood, adds luster to the eyes, and wine and love have ever been allies.
+ - A woman is always buying something.
+ - I am the poet of the poor, because I was poor when I loved; since I could not give gifts, I gave words.
+ - There is no excellence uncoupled with difficulties.
+ - The brave find a home in every land.
+ - When there is plenty of wine, sorrow and worry take wing.
+ - Pride is innate in beauty, and haughtiness is the companion of the fair.
+ - Wine prepares the heart for love, unless you take too much.
+ - In our play we reveal what kind of people we are.
+ - Passion persuades me one way, reason another. I see the better and approve it, but I follow the worse.
+ - Our native soil draws all of us, by I know not what sweetness, and never allows us to forget.
+ - All things human hang by a slender thread; and that which seemed to stand strong suddenly falls and sinks in ruins.
+ - Devouring Time and envious Age, all things yield to you; and with lingering death you destroy, step by step, with venomed tooth whatever you attack.
+ - He, who is not prepared today, will be less so tomorrow.
+ - God gave man an upright countenance to survey the heavens, and to look upward to the stars.
+ - Either attempt it not, or succeed.
+ - Anything cracked will shatter at a touch.
+ - There is a certain pleasure in weeping; grief finds in tears both a satisfaction and a cure.
+ - A gift in time of need is most acceptable.
+ - Resist beginnings: it is too late to employ medicine when the evil has grown strong by inveterate habit.
+ - Dripping water hollows out a stone.
+ - If thou wouldst marry wisely, marry thine equal.
+ - The wounded gladiator forswears all fighting, but soon forgetting his former wound resumes his arms.
+ - What one beholds of a woman is the least part of her.
+ - I hate a woman who offers herself because she ought to do so, and cold and dry thinks of her sewing when making love.
+ - Venus favors the bold.
+ - Friendship is but a name; fidelity but an empty name.
+ - Envy feeds on the living, after death it rests, then the honor of a man protects him.
+ - We are ever striving after what is forbidden, and coveting what is denied us.
+ - Give way to your opponent; thus will you gain the crown of victory.
+ - Man looks aloft, and with erected eyes Beholds his hereditary skies.
+ - Jupiter from on high smiles at the perjuries of lovers.
+ - Take away leisure and Cupid’s bow is broken.
+ - It is the mind that makes the man, and our vigour is in our immortal soul.
+ - Poetry comes fine-spun from a mind at peace.
+ - We have ploughed the vast ocean in a fragile bark.
+ - I flee who chases me and chase who flees me.
+ - Pursuits become habits.
+ - Keep a mid course between two extremes.
+ - Pleasant words are the food of love.
+ - Gifts, believe me, captivate both men and Gods, Jupiter himself was won over and appeased by gifts.
+ - You who seek an end of love, love yields to business: be busy, and you will be safe.
+ - If he should love deny him what he loves!
+ - If the art is concealed, it succeeds.
+ - Those things that nature denied to human sight, she revealed to the eyes of the soul.
+ - Let me tell you I am better acquainted with you for a long absence, as men are with themselves for a long affliction: absence does but hold off a friend, to make one see him the truer.
+ - Do not believe hastily.
+ - An injury may prove a blessing.
+ - What is deservedly suffered must be borne with calmness, but when the pain is unmerited, the grief is resistless.
+ - Cunning leads to knavery. It is but a step from one to the other, and that very slippery. Only lying makes the difference; add that to cunning, and it is knavery.
+ - To be thoroughly imbued, with the liberal arts refines the manners, and makes men to be mild and gentle in their conduct.
+ - Haste is productive of injury, and so is too much hesitation. He is the wisest man who does everything at the proper time.
+ - There is a deity within us who breathes that divine fire by which we are animated.
+ - Whether you call my heart affectionate, or you call it womanish: I confess, that to my misfortune, it is soft.
+ - Nations and empires flourish and decay, By turns command, and in their turns obey.
+ - What follows I flee; what flees I ever pursue.
+ - Suppressed grief suffocates, it rages within the breast, and is forced to multiply its strength.
+ - Truly now is the golden age; the highest honour comes by means of gold; by gold love is procured.
+ - A soldier when aged is not appreciated; the love of an old man sickens.
+ - Beauty, if you do not open your doors, takes age from lack of use.
+ - He who holds the hook is aware in what waters many fish are swimming.
+ - Good hope is often beguiled by her own augury.
+ - Small minds are captivated by trifles.
+ - A good disposition is a virtue in itself, and it is lasting; the burden of the years cannot depress it, and love that is founded on it endures to the end.
+ - Majesty and love do not well agree, nor do they live together.
+ - Our integrity is never worth so much as when we have parted with our all to keep it.
+ - Well has he lived who has lived well in obscurity.
+ - Death is less bitter punishment than death’s delay.
+ - Sleep, thou repose of all things; sleep, thou gentlest of the deities; thou peace of the mind, from which care flies; who doest soothe the hearts of men wearied with the toils of the day, and refittest them for labor.
+ - Although they posses enough, and more than enough still they yearn for more.
+ - It is not safe to despise what Love commands. He reigns supreme, and rules the mighty gods.
+ - My intention is to tell of bodies changed into new forms.
+ - Nowadays nothing but money counts: a fortune brings honors, friendships, the poor man everywhere lies low.
+ - Fair peace is becoming to men; fierce anger belongs to beasts.
+ - When I was from Cupid’s passions free, my Muse was mute and wrote no elegy.
+ - Daring is not safe against daring men.
+ - Against the bold, daring is unsafe.
+ - At times it is folly to hasten at other times, to delay. The wise do everything in its proper time.
+ - Medicine sometimes snatches away health, sometimes gives it.
+ - That tuneful nymph, the babbling Echo.
+ - If you have a voice, sing; but if you have good arms, then go in for dancing.
+ - Gold will buy the highest honours; and gold will purchase love.
+ - Fortune resists half-hearted prayers.
+ - Note too that a faithful study of the liberal arts humanizes character and permits it not to be cruel.
+ - The lamp burns bright when wick and oil are clean.
+ - I could not possibly count the gold-digging ruses of women, Not if I had ten mouths, not if I had ten tongues.
+ - The mind, conscious of rectitude, laughed to scorn the falsehood of report.
+ - The more highminded a man is the more easily is his anger appeased.
+ - A pleasing face is no small advantage.
+ - Where belief is painful we are slow to believe.
+ - Minds that are ill at ease are agitated by both hope and fear.
+ - Neither can the wave that has passed by be recalled, nor the hour which has passed return again.
+ - Tears at times have the weight of speech.
+ - Love is born of idleness and, once born, by idleness is fostered.
+ - The glow of inspiration warms us; it is a holy rapture.
+ - A frail gift is beauty, which grows less as time draws on, and is devoured by its own years.
+ - Love is a naked child: do you think he has pockets for money?
+ - It is the act of a coward to wish for death.
+ - I too am not powerless, and my weapons strike hard.
+ - Enhance and intensify one’s vision of that synthesis of truth and beauty which is the highest and deepest reality.
+ - Forbear to lay the guilt of a few on the many.
+ - Alcohol is necessary for a man so that he can have a good opinion of himself, undisturbed be the facts. Finley Peter Dunne There is more refreshment and stimulation in a nap, even of the briefest, than in all the alcohol ever distilled.
+ - It is good to be taught even by an enemy.
+ - Even pleasure cloys without variety.
+ - An evil life is a kind of death.
+ - If God be my friend, I cannot be wretched.
+ - Work while your strength and years permit you; crooked age will by-and-by come upon you with silent foot.
+ - That fair face will as years roll on lose its beauty, and old age will bring its wrinkles to the brow.
+ - Spare the soul that feels a deadly wound.
+ - The love of country is more powerful than reason itself.
+ - Opportunity is ever worth expecting; let your hood be ever hanging ready. The fish will be in the pool where you least imagine it to be.
+ - The spirits run riot in youth.
+ - The least strength suffices to break what is bruised.
+ - Time spent in the cultivation of the fields passes very pleasantly.
+ - Misfortunes often sharpen the genius.
+ - Let the poor man mind his tongue.
+ - Rest strengthens the body, the mind too is thus supported; but unremitting toil destroys both.
+ - The gift derives its value from the rank of the giver.
+ - An anthill increases by accumulation. Medicine is consumed by distribution. That which is feared lessens by association. This is the thing to understand.
+ - Why should I go into details, we have nothing that is not perishable except what our hearts and our intellects endows us with.
+ - To give requires good sense.
+ - I cannot keep track of all the vagaries of fashion, Every day, so it seems, brings in a different style.
+ - Nothing is more useful to man that those arts which have no utility.
+ - Whilst you are prosperous you can number many friends; but when the storm comes you are left alone.
+ - The mightiest rivers lose their force when split up into several streams.
+ - A safe pleasure is a tame pleasure.
+ - No man provokes me with impunity.
+ - There is a good deal in a man’s mode of eating.
+ - Ah me! love can not be cured by herbs.
+ - If Jupiter hurled his thunderbolt as often as men sinned, he would soon be out of thunderbolts.
+ - Though the strength is lacking, yet the willingness is commendable.
+ - Many women long for what eludes them, and like not what is offered them.
+ - It is not easy to bear prosperity unruffled.
+ - Time glides away and as we get older through the noiseless years; the days flee and are restrained by no reign.
+ - Concealed sorrow bursts the heart, and rages within us as an internal fire.
+ - It is ill to marry in the month of May.
+ - The crop always seems better in our neighbor’s field, and our neighbor’s cow gives more milk.
+ - The love of glory gives an immense stimulus.
+ - Happy the man who ventures boldly to defend what he holds dear.
+ - Let what is irksome become habitual, no more will it trouble you.
+ - Luck affects everything; let your hook always be cast.
+ - Time is a stream which glides smoothly on and is past before we know.
+ - My bark, once struck by the fury of the storm, dreads again to approach the place of danger.
+ - Our neighbour’s crop is always more fruitful and his cattle produce more milk than our own.
+ - Wine stimulates the mind and makes it quick with heat; care flees and is dissolved in much drink.
+ - We do not bear sweets; we are recruited by a bitter potion.
+ - A boar is often held by a not-so-large dog.
+ - Had I not sinned what would there be for you to pardon. My fate has given you the opportunity for mercy.
+ - Remove but the temptations of leisure, and the bow of Cupid will lose its effect.
+ - Pluck with quick hand the fruit that passes.
+ - For in this strange anatomy we wear, the head has greater powers than the hand; the spirit, heart, and mind are over all.
+ - Tis best to be silent in a bad cause.
+ - To dismiss a guest is a more ungracious act than not to admit him at all.
+ - Riches, the incentives to evil, are dug out of the earth.
+ - I shall speak facts; but some will say I deal in fiction.
+ - Chaste is she whom no one has asked.
+ - The rose is often found near the nettle.
+ - What is reason now was passion heretofore.
+ - Love and dignity do not dwell together.
+ - There is a divinity within our breast.
+ - She that weds well will wisely match her love, Nor be below her husband nor above.
+ - I hate, and yet must love the thing I hate.
+ - The penalty may be removed, the crime is eternal.
+ - Meet the disorder in the outset, the medicine may be too late, when the disease has gained ground through delay.
+ - The mind conscious of innocence despises false reports: but we are a set always ready to believe a scandal.
+ - In sweet water there is a pleasure ungrudged by anyone.
+ - A bitter drug oft brings relief.
+ - The more they drink the more they thirst.
+ - Thy destiny is only that of man, but thy aspirations may be those of a god.
+ - What is now an act of reason, was but blind impulse.
+ - Whether they yield or refuse, it delights women to have been asked.
+ - Every woman thinks herself attractive; even the plainest is satisfied with the charms she deems that she possesses.
+ - That you may please others you must be forgetful of yourself.
+ - A wealthy traveller fears an ambush, while one with empty pockets journeys on in safety.
+ - To be silent is but a small virtue; but it is a serious fault to reveal secrets.
+ - A thousand ills require a thousand cures.
+ - There are a thousand forms of evil; there will be a thousand remedies.
+ - Art is most effective when concealed.
+ - One does not yearn for that which is easily acquired.
+ - Happy the man who can count his sufferings.
+ - Love that is fed by jealousy dies hard.
+ - Chastity, once lost, cannot be recalled; it goes only once.
+ - What ignorance there is in human minds.
+ - Imperceptibly the hours glide on, and beguile us as they pass.
+ - A short absence is the safest.
+ - Time, motion and wine cause sleep.
+ - How little is the promise of the child fulfilled in the man.
+ - Nor is there any law more just, than that he who has plotted death shall perish by his own plot.
+ - When the lightning strikes but one, not one only does it terrify.
+ - A broken fortune is like a falling column; the lower it sinks, the greater weight it has to sustain.
+ - As the mind of each man is conscious of good or evil, so does he conceive within his breast hope or fear, according to his actions.
+ - By faithful study of the nobler arts, our nature’s softened, and more gentle grows.
+ - It is annoying to be honest to no purpose.
+ - There is no useful thing which may not be turned to an injurious purpose.
+ - A light breath fans the flame, a violent gust extinguishes it.
+ - Destroy our leisure and you break love’s bow.
+ - The man who falls in love chill find plenty of occupation.
+ - If he did not succeed, he at least failed in a glorious undertaking.
+ - Love’s dominion, like a kings, admits of no partition.
+ - Dear to the heart of a girl is her own beauty and charm.
+ - As the yellow gold is tried in fire, so the faith of friendship must be seen in adversity.
+ - Only begin, and you will become eloquent of yourself.
+ - Believe me, the gods spare the afflicted, and do not always oppress those who are unfortunate.
+ - What is more useful than fire? Yet if any one prepares to burn a house, it is with fire that he arms his daring hands.
+ - What is it that love does to a woman? Without she only sleeps with it alone, she lives.
+ - To feel our ills is one thing, but to cure them is another.
+ - The time will come when you will hate the sight of a mirror.
+ - A wound will perhaps become tolerable with length of time; but wounds which are raw shudder at the touch of the hands.
+ - You will go most safely in the middle.
+ - Leave war to others; ‘tis Protesilaus’ part of love.
+ - A field becomes exhausted by constant tillage.
+ - There is a certain pleasure in weeping.
+ - It is the poor man who’ll ever count his flock.
+ - Pure women are only those who have not been asked.
+ - Let ancient times delight other folk, I rejoice that I was not born till now.
+ - Treat a thousand dispositions in a thousand ways.
+ - He who has it in his power to commit sin, is less inclined to do so. The very idea of being able, weakens the desire.
+ - That which never has been, never is, and never will be.
+ - Wherever I look there is nothing but the image of death.
+ - He whom all hate all wish to see destroyed.
+ - Do not lay on the multitude the blame that is due to a few.
+ - Beauty- it was a favor bestowed by the gods.
+ - Neglect of appearance becomes men.
+ - Skill makes love unending.
+ - Grief is put to flight and assuaged by generous draughts.
+ - The gods have their own rules.
+ - When the character’s right, looks are a greater delight.
+ - Few love what they may have.
+ - The good of other times let people state; I think it lucky I was born so late.
+ - These are the evils which result from gossiping habits.
+ - The judge’s duty is to inquire about the time, as well as the facts.
+ - Very slight violence will break that which has once been cracked.
+ - Tis you, alone, can save, or give my doom.
+ - The mind grows sicker than the body in contemplation of it’s suffering.
+ - A lover fears all that he believes.
+ - This also, that I live, I consider a gift of God.
+ - Thanks are justly due for boons unbought.
+ - That, which has not its alternation of rest, will not last long.
+ - Often they benefit who suffer wrong.
+ - It is some alleviation to ills we cannot cure to speak of them.
+ - The laws allow arms to be taken against an armed foe.
+ - When disposition wins us, the features please.
+ - Grief brims itself and flows away in tears.
+ - We covet what is guarded; the very care invokes the thief. Few love what they may have.
+ - Though the power be wanting, yet the wish is praiseworthy.
+ - In an easy cause any man may be eloquent.
+ - You will be melancholy, if you are solitary.
+ - She only is chaste, who is chaste where there is no danger of detection: she who does not, because she may not, does.
+ - Art lies by its own artifice.
+ - Anger assists hands however weak.
+ - Idleness ruins the constitution.
+ - Trivial losses often prove great gains.
+ - Women can always be caught; that’s the first rule of the game.
+ - Gain, acquired by many agents, soon accumulates.
+ - To have properly studied the liberal sciences gives a polish to our manners, and removes all awkwardness.
+ - We are slow to believe that which if believed would hurt our feelings.
+ - Great is the strife between beauty and modesty.
+ - The need has gone; the memorial thereof remains.
+ - Hate I shall, if I can; if I can’t, I shall love though not willing.
+ - When the heart is sick it cannot bear the slightest annoyance.
+ - The act is judged of by the event.
+ - Love is an affair of credulity.
+ - Calumny ever pursues the great, even as the winds hurl themselves on high places.
+ - No thanks attach to a kindness long deferred.
+ - Birth and ancestry, and that which we have not ourselves achieved, we can scarcely call our own.
+ - Bring a lawsuit against a man who can pay; the poor man’s acts are not worth the expense.
+ - Alas! How difficult it is to prevent the countenance from betraying guilt!
+ - There is something in omens.
+ - There will grow from straws a mighty heap.
+ - Those presents are the most acceptable which are enhanced by our regard for the donor.
+ - Envy depreciates the genius of the great Homer.
+ - Whatever charm thou hast, be charming.
+ - It is no less a feat to keep what you have, than to increase it. In one there is chance, the other will be a work of art.
+ - Consider the misfortunes of others, and you will be the better able to bear your own.
+ - Diseases of the mind impair the bodily powers.
+ - The love of fame puts spurs to the mind.
+ - If it were in my power, I would be wiser; but a newly felt power carries me off in spite of myself; love leads me one way, my understanding another.
+ - The pleasure that is granted to me from a sense of duty ceases to be a pleasure at all.
+ - A burthen cheerfully borne becomes light.
+ - Simplicity, very rare in our age.
+ - Love is a believing creature.
+ - Today is truly the Golden Age: gold buys hornor, gold procures love.
+ - The prayers of cowards fortune spurns.
+ - Put faith in one who’s had experience.
+ - This victory will be your I ruin.
+ - What makes men indifferent to their wives is that they can see them when they please.
+ - Indulgent gods, grant me to sin once with impunity. That is sufficient. Let a second offence bear its punishment.
+ - Twice does he live who can enjoy the remembrance of the past.
+ - People are slow to claim confidence in undertakings of magnitude.
+ - He who has lived obscurely and quietly has lived well.
+ - We must improve our time; time goes with rapid foot.
+ - While I am speaking the opportunity is lost.
+ - That pleasure which can be safely indulged in is the least inviting.
+ - Bear patiently with a rival.
+ - You put aside the work that’s done, and seek some work to do.
+ - It is prudence that first forsakes the wretched.
+ - According to the state of a man’s conscience, so do hope and fear on account of his deeds arise in his mind.
+ - Giving calls for genius.
+ - Take the advice of light when you’re looking at linens or jewels; Looking at faces or forms, take the advice of the day.
+ - In an easy cause anyone can be eloquent; the slightest strength is enough to break what is already shattered.
+ - Things which of themselves avail nothing, when united become powerful.
+ - Beauty is heaven’s gift, and how few can boast of beauty.
+ - The poet’s labors are a work of joy, and require peace of mind.
+ - He who says o’er much I love not is in love.
+ - Where crime is taught from early years, it becomes a part of nature.
+ - Thou seest how sloth wastes the sluggish body, as water is corrupted unless it moves.
+
+453 quotes

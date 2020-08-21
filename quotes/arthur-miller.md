@@ -1,0 +1,163 @@
+ - The mission of the theatre, after all, is to change, to raise the consciousness of people to their human possibilities.
+ - Until an hour before the Devil fell, God thought him beautiful in Heaven.
+ - I speak my own sins; I cannot judge another. I have no tongue for it.
+ - I realized what a ridiculous lie my whole life has been.
+ - Life, woman, life is God’s most precious gift; no principle, however glorious, may justify the taking of it.
+ - Cleave to no faith when faith brings blood.
+ - Man must shape his tools lest they shape him.
+ - I think the job of the artist is to remind people of what they have chosen to forget.
+ - An era can be said to end when its basic illusions are exhausted.
+ - The jungle is dark but full of diamonds, Willy.
+ - Whoever is writing in the United States is using the American Dream as an ironical pole of his story. People elsewhere tend to accept, to a far greater degree anyway, that the conditions of life are hostile to mans pretensions.
+ - The two most common elements in the world are hydrogen and stupidity.
+ - Because it is my name! Because I cannot have another in my life! Because I lie and sign myself to lies! Because I am not worth the dust on the feet of them that hang! How may I live without my name? I have given you my soul; leave me my name!
+ - We are what we always were in Salem, but now the little crazy children are jangling the keys of the kingdom, and common vengeance writes the law!
+ - More Weight -Giles Corey-.
+ - Betrayal is the only truth that sticks.
+ - You can’t eat the orange and throw the peel away – a man is not a piece of fruit.
+ - The theater is so endlessly fascinating because it’s so accidental. It’s so much like life.
+ - Maybe all one can do is hope to end up with the right regrets.
+ - It is rare for people to be asked the question which puts them squarely in front of themselves.
+ - PROCTOR, his mind wild, breathless: I say – I say – God is dead!
+ - Now hell and heaven grapple on our backs and all our old pretense is ripped away. Aye, and God’s icy wind will blow.
+ - Don’t be seduced into thinking that that which does not make a profit is without value.
+ - One can’t stand forever on the shore. At some point, filled with indecision, skepticism, reservation and doubt, you either jump in or concede that life is forever elsewhere.
+ - A character is defined by the kinds of challenges he cannot walk away from. And by those he has walked away from that cause him remorse.
+ - Great drama is great questions or it is nothing but technique. I could not imagine a theater worth my time that did not want to change the world.
+ - They tried to escape technology, to stay away from that and still have relationships with their fellow humans. Very difficult.
+ - He have his goodness now. God forbid I take it from him!
+ - A good newspaper, I suppose, is a nation talking to itself.
+ - No one wants the truth if it is inconvenient.
+ - The world is an oyster but you don’t crack it open on a mattress.
+ - The best work that anybody ever writes is the work that is on the verge of embarrassing him, always.
+ - Witch-hunts are always spooked by women’s horrifying sexuality awakened by the superstud Devil.
+ - Playwriting is an oral art; it’s not an art of a writer expecting to be read but a writer expecting to be heard.
+ - If I see an ending, I can work backward.
+ - A child’s spirit is like a child, you can never catch it by running after it; you must stand still, and, for love, it will soon itself come back.
+ - Data is a lot like humans: It is born. Matures. Gets married to other data, divorced. Gets old. One thing that it doesn’t do is die. It has to be killed.
+ - A playwright lives in an occupied country. And if you can’t live that way you don’t stay.
+ - Well, all the plays that I was trying to write were plays that would grab an audience by the throat and not release them, rather than presenting an emotion which you could observe and walk away from.
+ - A political policy is equated with moral right, and opposition to it with diabolical malevolence.
+ - Willy Loman: I don’t want change, I want Swiss cheese!
+ - Great stones they lay upon his chest until he plead aye or nay. They say he give them but two words. “More weight,” he says. And died.
+ - When today fails to offer the justification for hope, tomorrow becomes the only grail worth pursuing.
+ - What work you do! It’s strange work for a Christian girl to hang old women!
+ - I am a good woman. I know it.
+ - Theater is a very changeable art. It responds to the moment in history the way the newspaper does, and there’s no predicting what to come up with next.
+ - Pop, I’m nothing! I’m nothing, Pop. Can’t you understand that? There’s no spite in it any more. I’m just what I am, that’s all.
+ - The only thing you got in this world is what you can sell. And the funny thing is that you’re a salesman, and you don’t know that.
+ - A little man makes a mistake and they hang him by the thumbs; the big ones become ambassadors.
+ - Few of us can easily surrender our belief that society must somehow make sense. The thought that the State has lost its mind and is punishing so many innocent people is intolerable. And so the evidence has to be internally denied.
+ - I cannot sleep for dreaming; I cannot dream but I wake and walk about the house as though I’d find you coming through some door.
+ - After all the highways, and the trains, and the appointments, and the years, you end up worth more dead than alive.
+ - I know you’re no worse than most men but I thought you were better. I never saw you as a man. I saw you as my father.
+ - Everything we are is at every moment alive in us.
+ - When any creativity becomes useful, it is sucked into the vortex of commercialism, and when a thing becomes commercial, it becomes the enemy of man.
+ - HALE, with a tasty love of intellectual pursuit.
+ - Never fight fair with a stranger, boy. You’ll never get out of the jungle that way.
+ - Peace. It is a providence, and no great change; we are only what we always were, but naked now.
+ - Charley: He won’t starve. None a them starve. Forget about him. Willy: Then what have I got to remember?
+ - Chris: I don’t know why it is, but every time I reach out for something I want, I have to pull back because other people will suffer.
+ - Can anyone remember love? It’s like trying to summon up the smell of roses in a cellar. You might see a rose, but never the perfume.
+ - The apple cannot be stuck back on the Tree of Knowledge; once we begin to see, we are doomed and challenged to seek the strength to see more, not less.
+ - Above all else, tragedy requires the finest appreciation by the writer of cause and effect.
+ - I’ve always made a point of not wasting my life, and every time I come back here I know that all I’ve done is to waste my life.
+ - A doctor could make a million dollars if he could figure out a way to bring a boy into the world without a trigger finger.
+ - The concentration camp is the final expression of human separateness and its ultimate consequence. It is organized abandonment.
+ - Where choice begins, Paradise ends, innocence ends, for what is Paradise but the absence of any need to choose this action?
+ - He’s liked, but he’s not well liked.
+ - I still feel-kind of temporary about myself.
+ - I believe in work. If somebody doesn’t create something, however small it may be, he gets sick. An awful lot of people feel that they’re treading water – that if they vanished in smoke, it wouldn’t mean anything at all in this world. And that’s a despairing and destructive feeling. It’ll kill you.
+ - Self-realization and self-fulfilment are the sine qua non for human existence.
+ - Be liked and you will never want.
+ - Try to keep the rebel artist alive in you, no matter how attractive or exhausting the temptation.
+ - Everybody likes a kidder, but nobody lends him money.
+ - The word “now” is like a bomb through the window, and it ticks.
+ - I am bewildered by the death of love. And my responsibility for it.
+ - The enemy is within, and within stays within, and we can’t get out of within.
+ - The two greatest plays ever written were Hamlet and Oedipus Rex, and they’re both about father-son relationships.
+ - There is a misconception of tragedy with which I have been struck in review after review, and in many conversations with writers and readers alike. It is the idea that tragedy is of necessity allied to pessimism.
+ - I regard the theatre as a serious business, one that makes or should make man more human, which is to say, less alone.
+ - Tragedy enlightens – and it must, in that it points the heroic finger at the enemy of man’s freedom. The thrust for freedom is the quality in tragedy which exalts. The revolutionary questioning of the stable environment is what terrifies.
+ - Whether for good or evil, it is sadly inevitable that all political leadership requires the artifices of theatrical illusion. In the politics of a democracy, the shortest distance between two points is often a crooked line.
+ - In America, any man who is not a reactionary in his views is open to the charge of alliance with the Red hell.
+ - Don’t take it on yourself. Forget now. Live.
+ - Without alienation, there can be no politics.
+ - Rise early. Write. Disappoint your sons. Read the newspaper. Go to bed early. Success.
+ - THE PRICE grew out of a need to reconfirm the power of the past, the seedbed of current reality, and the way to possibly reaffirm cause and effect in an insane world.
+ - The closer a man approaches tragedy the more intense is his concentration of emotion upon the fixed point of his commitment, which is to say the closer he approaches what in life we call fanaticism.
+ - Let you look sometimes for the goodness in me, and judge me not.
+ - There is unquestionably a contradiction between an efficient technological machine and the flowering of human nature, of the human personality.
+ - A small man can be just as exhausted as a great man.
+ - The need of man to wholly realize himself is the only fixed star.
+ - Work a lifetime to pay off a house You finally own it and there’s nobody to live in it.
+ - If you analyse anything, you destroy it.
+ - There might be a dragon with five legs in my house, but no one has ever seen it.
+ - You specialize in something until one day it is specializing in you.
+ - Poor brain! How helplessly it dissolves when willing eyes meet and the nose warms to those old jungle scents.
+ - Suicide kills two people.
+ - If I have to be alone I want to be by myself.
+ - Just remember, kid, you can quicker get back a million dollars that was stole than a word that you gave away.
+ - Immortality is like trying to carve your initials in a block of ice in the middle of July.
+ - I think it’s a mistake to ever look for hope outside of one’s self.
+ - A play is made by sensing how the forces in life simulate ignorance-you set free the concealed irony, the deadly joke.
+ - Memory inevitably romanticizes, pressing reality to recede like pain.
+ - Amos Oz is one of the finest novelists of this entire period. MY MICHAEL is a beautiful work of great depth and in some indescribable way lingers in the mind as a lyric song to his country’s people as much as a moving love story.
+ - The arts can do more to sustain the peace than all the wars, the armaments, and the threats and warnings of politicians.
+ - A man is not a bird, to come and go with the springtime.
+ - What is the most innocent place in any country? Is it not the insane asylum? These people drift through life truly innocent, unable to see into themselves at all.
+ - Controlled hysteria is what’s required. To exist constantly in a state of controlled hysteria. It’s agony. But everyone has agony. The difference is that I try to take my agony home and teach it to sing.
+ - Success, instead of giving freedom ofchoice, becomes a way of life.
+ - A friend of mine once said that there were only two truly national events in the history of the United States. One was the Civil War and the other one was the Depression.
+ - When a deposit bottle is broken, you don’t get your nickel back.
+ - I love her too, but our neuroses just don’t match.
+ - I think the tragic feeling is invoked in us when we are in the presence of a character who is ready to lay down his life, if need be, to secure one thing – his sense of personal dignity.
+ - That is a very good question. I don’t know the answer. But can you tell me the name of a classical Greek shoemaker?
+ - Down deep in His heart God is a comedian who loves to make us laugh.
+ - He’s not the finest character that ever lived. But he’s a human being, and a terrible thing is happening to him. So attention must be paid.
+ - The camera has its own kind of consciousness; in the lens the Garden of Eden itself would become ever so slightly too perfect.
+ - A lot of my work goes to the center of where we belong – if there is any root to life -because nowadays the family is broken up, and people don’t live in the same place for very long.
+ - The Devil is precise; the marks of his presence are definite as stone...
+ - There is a kind of perverse unity forming among us, born, I think, of the discontent of all classes of people with the endless frustration of life.
+ - When the guns roar, the arts die.
+ - The very impulse to write springs from an inner chaos crying for order – for meaning.
+ - People do look to others for some leadership, and it’s not bad for them to supply it when they feel that way.
+ - The famous are balloons far up in the sky, to be envied for their quiet freedom or shot down as enemies.
+ - PROCTOR – he knows it is insane: No, it is not the same! What others say and what i sign to is not the same!
+ - The brain heals the past like an injury...
+ - The problem was to sustain at any cost the feeling you had in the theater that you were watching a real person, yes, but an intense condensation of his experience, not simply a realistic series of episodes.
+ - The world is always ending; the exact date depends on when you came into it.
+ - The structure of a play is always the story of how the birds came home to roost.
+ - The task of the real intellectual consists of analyzing illusions in order to discover their causes.
+ - I know that my works are a credit to this nation and I dare say they will endure longer than the McCarran Act.
+ - Flight Reservation Systems decide whether or not you exist. If your information isn’t in their database, then you simply don’t get to go anywhere.
+ - Part of knowing who we are is knowing we are not someone else. And Jew is only the name we give to that stranger, the agony we cannot feel, the death we look at like a cold abstraction. Each man has his Jew; it is the other.
+ - It may be that even if half consciously, we choose our personalities to maintain a certain saving balance in the family’s little universe.
+ - Nevertheless, one learned very early that books had to be respected; they were all putative Bibles and to some small degree had a share in holiness.
+ - Like every writer, I am asked where my work originates, and if I knew I would go there more often to find more.
+ - In a dream, we are simply confronted with various loaded symbols, and where one is exhausted, it gives way to another.
+ - It was not really possible to understand oneself, let alone another human being.
+ - I’m sure there are writers who are great businessmen, but I never met any.
+ - I’m the end of the line; absurd and appalling as it may seem, serious New York theater has died in my lifetime.
+ - If I have any justification for having lived it’s simply, I’m nothing but faults, failures and so on, but I have tried to make a good pair of shoes. There’s some value in that.
+ - One had the right to write because other people needed news of the inner world, and if they went too long without such news they would go mad with the chaos of their lives.
+ - I think now that the great thing is not so much the formulation of an answer for myself, for the theatre, or the play – but rather the most accurate possible statement of the problem.
+ - It occurs to me that with all the television people watch, most of their acquaintances are actors.
+ - You cant get very far in this world without your dossier being there first.
+ - There are many who stay away from church these days because you hardly ever mention God any more.
+ - Certainly the most diverse, if minor, pastime of literary life is the game of Find the Author.
+ - In the theater, while you recognized that you were looking at a house, it was a house in quotation marks. On screen, the quotation marks tend to be blotted out by the camera.
+ - It is time that we, who are without kings, took up this bright thread of our history and followed it to the only place it can possibly lead in our time-the heart and spirit of the average man.
+ - I figure I’ve done what I could do, more or less, and now I’m going back to being a chemical; all we are is a lot of talking nitrogen, you know...
+ - It is my art. I am better at it than I ever was. And I will do it as long as I can. When you reach a certain age you can slough off what is unnecessary and concentrate on what is. And why not?
+ - I would be twenty before I learned how to be fifteen, thirty before I knew what it meant to be twenty, and now at seventy-two I have to stop myself from thinking like a man of fifty who has plenty of time ahead.
+ - How to live had started out as an analytical problem of how to place himself so as to intercept the flow of money in the society.
+ - I don’t know a critic who penetrates the center of anything.
+ - Every time I am reading actors I can pretty well tell which ones have studied with Meisner. It is because they are honest and simple and don’t lay on complications that aren’t necessary.
+ - But we are mostly what we are, and the turtle stretching toward delicious buds on high does not lighten his carapace by his resolve.
+ - He wants to live on through something – and in his case, his masterpiece is his son. All of us want that, and it gets more poignant as we get more anonymous in this world.
+ - The wedding of Christianity or Judaism with nationalism is lethal.
+ - The car, the furniture, the wife, the children – everything has to be disposable. Because you see the main thing today is – shopping.
+ - I have made more friends for American culture than the State Department. Certainly I have made fewer enemies, but that isn’t very difficult.
+
+161 quotes

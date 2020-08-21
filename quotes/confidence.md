@@ -1,0 +1,52 @@
+ - If you don’t ask, the answer is always no. ~~Nora Roberts
+ - You were not born a winner, and you were not born a loser. You are what you make yourself be. ~~Lou Holtz
+ - Education breeds confidence. Confidence breeds hope. Hope breeds peace. ~~Confucius
+ - Happiness and confidence are the prettiest things you can wear. ~~Taylor Swift
+ - A clear vision, backed by definite plans, gives you a tremendous feeling of confidence and personal power. ~~Brian Tracy
+ - If you haven't confidence in self, you are twice defeated in the race of life. With confidence, you have won even before you have started.  ~~Marcus Garvey
+ - Confidence is contagious. So is lack of confidence. ~~Vince Lombardi
+ - You wouldn’t worry so much about what others think of you if you realized how seldom they do. ~~Eleanor Roosevelt
+ - Knock the ‘t’ off the ‘can’t.’ ~~Samuel Johnson
+ - You have within you right now, everything you need to deal with whatever the world can throw at you. ~~Brian Tracy
+ - You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. You are able to say to yourself, 'I have lived through this horror. I can take the next thing that comes along.' You must do the thing you think you cannot do. ~~Eleanor Roosevelt
+ - I know who I am, I know what I believe, that’s all I need to know. From there, you do what you need to do. ~~Will Smith
+ - Believing that you’re enough is what gives you the courage to be authentic. ~~Brené Brown
+ - If you’re presenting yourself with confidence, you can pull off pretty much anything. ~~Katy Perry
+ - My mother said to me, ‘If you are a soldier, you will become a general. If you are a monk, you will become the Pope.’ Instead, I was a painter, and became Picasso. ~~Pablo Picasso
+ - There can be no friendship without confidence, and no confidence without integrity. ~~Samuel Johnson
+ - Do not fear to be eccentric in opinion, for every opinion now accepted was once eccentric. ~~Bertrand Russell
+ - Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. ~~George Washington
+ - Confidence is going after Moby Dick in a rowboat and taking the tartar sauce with you. ~~Zig Ziglar
+ - The mind, ever the willing servant, will respond to boldness, for boldness, in effect, is a command to deliver mental resources. ~~Norman Vincent Peale
+ - Self-trust is the first secret of success. ~~Ralph Waldo Emerson
+ - Perhaps I am stronger than I think. ~~Thomas Merton
+ - Never bend your head. Hold it high. Look the world straight in the eye. ~~Helen Keller
+ - Avoid negative people at all costs. They are the greatest destroyers of self-confidence and self-esteem. ~~Brian Tracy
+ - Only the person who has faith in himself is able to be faithful to others. ~~Erich Fromm
+ - Sooner or later, those who win are those who think they can. ~~Paul Tournier
+ - I am not afraid of storms for I am learning how to sail my ship. ~~Louisa May Alcott
+ - Man often becomes what he believes himself to be. If I keep on saying to myself that I cannot do a certain thing, it is possible that I may end by really becoming incapable of doing it. On the contrary, if I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning. ~~Mahatma Gandhi
+ - Courage isn’t having the strength to go on - it is going on when you don’t have strength. ~~Napoleon
+ - The key to success is for you to make a habit throughout your life of doing the things you fear. ~~Brian Tracy
+ - Happiness and self-confidence come naturally when you feel yourself moving and progressing toward becoming the very best person you can possibly be. ~~Brian Tracy
+ - The way you speak to others can offer them joy, happiness, self-confidence, hope, trust, and enlightenment. Mindful speaking is a deep practice. ~~Nhat Hanh
+ - Effective communication is 20% what you know and 80% how you feel about what you know. ~~Jim Rohn
+ - Fortune befriends the bold. ~~Emily Dickinson
+ - The eyes of others our prisons; their thoughts our cages. ~~Virginia Woolf
+ - Lend yourself to others, but give yourself to yourself. ~~Michel de Montaigne
+ - The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself. ~~Anna Quindlen
+ - You weren’t an accident. You weren’t mass produced. You aren’t an assembly-line product. You were deliberately planned, specifically gifted, and lovingly positioned on the earth by the Master Craftsman. ~~Max Lucado
+ - The self-confidence one builds from achieving difficult things and accomplishing goals is the most beautiful thing of all. ~~Madonna
+ - You either walk inside your story and own it or you stand outside your story and hustle for your worthiness. ~~Brené Brown
+ - Confidence is what you have before you understand the problem. ~~Woody Allen
+ - You’re never as good as everyone tells you when you win, and you’re never as bad as they say when you lose. ~~Lou Holtz
+ - Giving people self-confidence is by far the most important thing that I can do. Because then they will act. ~~Jack Welch
+ - There is nothing enlightened about shrinking so that other people won’t feel insecure around you. We are all meant to shine, as children do. ~~Marianne Williamson
+ - I am looking for a lot of men who have an infinite capacity to not know what can’t be done. ~~Henry Ford
+ - I have great faith in fools; self-confidence my friends call it. ~~Edgar Allan Poe
+ - He who has faith has an inward reservoir of courage, hope, confidence, calmness, and assuring trust that all will come out well – even though to the world it may appear to come out most badly. ~~B.C. Forbes
+ - Talk to yourself like you would to someone you love. ~~Brené Brown
+ - Successful people have fear, successful people have doubts, and successful people have worries. They just don’t let these feelings stop them. ~~T. Harv Eker
+ - Do the thing and you will have the power. ~~Ralph Waldo Emerson
+
+50 quotes

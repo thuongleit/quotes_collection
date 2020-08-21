@@ -1,0 +1,26 @@
+ - Being polite and grateful will make people more inclined to help you. And if people are willing to help you, you may accidentally get something you want.
+ - Once I walked out of my house into to the Puerto Rican Day parade. It was usually a five-minute walk to work, but that day it took me a half-hour to get to 30 Rock.
+ - That’s what I love about sketch comedy: a sketch is five minutes, then it goes dark, and there’s the potential for something else.
+ - I haven’t really had too many bosses. Any bad boss I had probably was because I was a bad employee.
+ - I’m not buying a boat because of writing skits.
+ - Now Ben Folds is my photography older brother. He was kind enough to give me a photo of his for my 40th birthday.
+ - A mustache really defines your face. My dad had a mustache when I was growing up, and I can still remember when he shaved it, he looked like a completely different person.
+ - When somebody listens and laughs, you’re always in better shape than when you’re with those folks who just kind of look at you when you say something funny. You wonder if they’re looking at you because they’re mad that they didn’t say it or something. It’s hard to handle that.
+ - Growing up, my sisters were both into dancing, so I went to a lot of dance recitals, mostly because there were always pretty girls in leotards.
+ - You start at SNL when you’re young and hungry, but I don’t want my pro years to be my SNL years.
+ - Oh definitely. It’ll be in a hot tub, with my entire head squeezed into a jet. The photos are going to be hilarious. Man, I really hope the internet sticks around so people can reference this article in my obituaries and see that what sounds like a joke was actually amazingly prescient.
+ - I always took pictures, but about five or six years ago, I started taking more behind the scenes at SNL, and now I have some 60,000 photos sitting on my laptop.
+ - The person that always comes to mind, and it’s odd now because we’ve become pals, is Ben Folds. I’ve always considered him like a musical older brother, from afar, in the sense that I always felt I had a much better understanding of what he was singing about five years after I was listening to it.
+ - Each experience I go through – marriage, my public life, my personal life – I’m learning as I go.
+ - I think people who live in the worlds that movies are based on end up disliking them. Unless they’re from a different time and era.
+ - It’s fun to play the type of people you dislike.
+ - I’d like to extend my career a little bit into different genres.
+ - I’d love to do a drama.
+ - I don’t know if the idea of a career in show business or in the arts in general was looked down upon as much as by baby boomers as it was by their parents.
+ - I’ve never been a shirt-off, pants-off kind of comedy guy.
+ - A lot of improvisation ends up being about just thinking outside of the box in the scene. It’s not improvisation as much as it is quickness or making it real.
+ - People are getting cynical about the news. It doesn’t seem like there’s one place to watch where you get the straight dope. You watch the channel that proves your point.
+ - I was a straight man long before I knew what it was called. I was just the boring one.
+ - I am now The Establishment. There’s nothing I can do about it.
+
+24 quotes

@@ -1,0 +1,43 @@
+ - My dad’s not here, but he’s watching in heaven.
+ - I keep defying the odds, you know.
+ - I don’t take anything for granted.
+ - I’m here to win a championship. I’m not here to goof around.
+ - I love France. France is a nice place.
+ - I don’t play the sport for fame. I don’t try to win tournaments for fame. I don’t do any of that. It’s just me. I’m just Bubba. I goof around. I joke around. I just want to be me and play golf.
+ - Who doesn’t love a statement sock? I mean, we won’t go in to details, but your underwear has to be bright, too.
+ - What I say goes. I’m hitting shots that I want to hit. I’m doing the things that I want to do. I play it my way.
+ - I’m as good as I can be right now, i don’t see anything that I need to really change or do differently. I’m on top of my game.
+ - I am uncomfortable with heights, I’m scared of the dark and I am scared of big crowds.
+ - I grew up a diehard Yankees fan.
+ - It’s about hitting the ball in the center of the club face and hitting it hard.
+ - People started coining the phrase, ‘Bubba Golf,’ whatever you want to call it, which I like. ‘Bubba Golf’ is going to be fun. I mean, why do what everybody else does? That’s boring.
+ - I’m a redneck. And we can wear whatever because we just really don’t care about those things. And when you’re a redneck named Bubba, you really don’t care.
+ - Everybody can see that my swing is homegrown. That means everybody has a chance to do it.
+ - Kids below 10 or 12, I think they just need to learn by playing at golf. Later on, in high school, when they develop muscles and everything, that’s when they need to see about getting lessons.
+ - My dad – who was a tough guy, a Green Beret – always looked nice and wore these bright Sansabelt pants. He always said, “You have two options: You can be a follower or you can be a leader. And you don’t ever want to follow anybody.” And that’s kind of become my philosophy about everything.
+ - It’s a dream come true for Bubba Watson from Bagdad, Florida to have the green jacket on.
+ - My dad taught me to be a leader or a follower, and he said follower ain’t fun. So I want to be the leader of Bubba Watson.
+ - I just want to be me and play golf.
+ - Why do I want somebody to tell me what to do, tell me what I’m doing wrong? I want to be the boss.
+ - I’m mostly just getting used to the idea that people want to hear what I have to say.
+ - Winning the green jacket is great – I can pay for all the diapers I’m going to have to get.
+ - If I have a swing, I have a shot.
+ - I have to chose my words carefully.
+ - My favorite thing about being linked to Oakley is getting to hang with the cool people, the cool athletes – like the X-Games guys. Those guys play sports where they can really hurt themselves, and, well, I just play golf. I’m like the wimpy guy over here.
+ - There is a lot of learning I have to do and a lot of growing up I have to do.
+ - I’m a golfer not a history major.
+ - When I got my tour card I cried. When I got my first win – and my first pay check – I cried. All these things make me cry.
+ - I was shooting in the low 70s and 60s by the time I was twelve. That’s the great thing about golf. It doesn’t matter how old or young you are; if you’re 90 and can shoot a good score, people will want to play with you.
+ - I’m not afraid of anything. My two favorite colors are lime green and hot pink. I mean, I really like pink. And I don’t care who knows it. I’m already married, sooo...
+ - Instead of playing with army men or whatever, I played golf, like for hours every day.
+ - When a professional baseball team asks you to throw out the first pitch, that’s an honor, and you do it.
+ - I’d love to be part of the process of building cars.
+ - I like bright colors.
+ - People always ask ‘Why is Bubba different?’ They’re just trying to figure it out.
+ - Who listens to golfers? They’re boring. If I want to wear camouflage on the golf course during a tournament, I will. And I have.
+ - My manager always preaches golf comes first.
+ - My goal at every tournament is to finish top 18. At the end of the year if I could finish every tournament top 18, that would be pretty good.
+ - I have a good team around me. I have people I trust around me. If I go the wrong way, they will yell at me. Just as they have in the past.
+ - Everybody exaggerates a little bit.
+
+41 quotes

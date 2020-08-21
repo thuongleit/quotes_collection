@@ -1,0 +1,75 @@
+ - Fear does not prevent death. It prevents life.
+ - Home is not where you were born; home is where all your attempts to escape cease.
+ - You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
+ - It’s a most distressing affliction to have a sentimental heart and a skeptical mind.
+ - Nothing records the effects of a sad life so graphically as the human body.
+ - If life has no meaning, why don’t we create a meaning for it?
+ - Without literature my life would be miserable.
+ - You know what I’m afraid of? That God is sick of us.
+ - I love Sufism as I love beautiful poetry, but it is not the answer. Sufism is like a mirage in the desert. It says to you, come and sit, relax and enjoy yourself for a while.
+ - Art is a criticism of society and life, and I believe that if life became perfect, art would be meaningless and cease to exist.
+ - The Nobel Prize has given me, for the first time in my life, the feeling that my literature could be appreciated on an international level.
+ - It’s clearly more important to treat one’s fellow man well than to be always praying and fasting and touching one’s head to a prayer mat.
+ - Freedom of expression must be considered sacred and thought can only be corrected by counter thought.
+ - I wake up early in the morning and walk for an hour. If I have something to write, I prefer to write in the morning until midday, and in the afternoon, I eat.
+ - Literature should be more revolutionary than revolutions themselves; writers must find the means to continue to be critical of the negative elements in the sociopolitical reality.
+ - Madness is the acme of intelligence.
+ - God did not intend religion to be an exercise club.
+ - In the calculus of good deeds you have the most to gain.
+ - I found myself in a sea in which the waves of joy and sorrow were clashing against each other.
+ - History is full of people who went to prison or were burned at the stake for proclaiming their ideas. Society has always defended itself.
+ - One effect that the Nobel Prize seems to have had is that more Arabic literary works have been translated into other languages.
+ - If the urge to write should ever leave me, I want that day to be my last.
+ - We are passing through a very sensitive time, and on the whole, this country is facing very big problems.
+ - Happy is he who can give himself up.
+ - The criminal is trying to solve his immediate problems.
+ - We wont develop until we accept that reading is a vital necessity.
+ - According to Islamic principles, when a man is accused of heresy, he is given the choice between repentance and punishment.
+ - At my age it is unseemly to be pessimistic.
+ - As for life’s tragedies, our love will defeat them. Love is the most effective cure. In the crevices of disasters, happiness lies like a diamond in a mind, so let us instill in ourselves the wisdom of love.
+ - Visit me once each year, for it’s wrong to abandon people forever.
+ - The Arab world also won the Nobel with me. I believe that international doors have opened, and that from now on, literate people will consider Arab literature also. We deserve that recognition.
+ - We are like a woman with a difficult pregnancy. We have to rebuild the social classes in Egypt, and we must change the way things were.
+ - The writer interweaves a story with his own doubts, questions, and values. That is art.
+ - The calendar has a magic that makes us imagine a memory can be resurrected and revived, but nothing returns.
+ - I reject any path which rejects life, but I can’t help loving Sufism because it sounds so beautiful. It gives relief in the midst of battle.
+ - We used the Western style to express our own themes and stories. But don’t forget that our heritage includes The Thousand and One Nights.
+ - In Egypt today most people are concerned with getting bread to eat. Only some of the educated understand how democracy works.
+ - As the tension eases, we must look in the direction of agriculture, industry and education as our final goals, and toward democracy under Mr Mubarak.
+ - If we reject science, we reject the common man.
+ - I am the son of two civilizations that at a certain age in history have formed a happy marriage. The first of these, seven thousand years old, is the Pharaonic civilization; the second, one thousand four hundred years old, is the Islamic civilization.
+ - Only the poor are handicapped by honor.
+ - There are no heroes in most of my stories. I look at our society with a critical eye and find nothing extraordinary in the people I see.
+ - He seemed to be waiting for a miracle to save him from the depths his life had reached and take him to a land of dreams.
+ - I was afraid of marriage. I had the impression married life would take up all my time. I saw myself drowning in visits and parties. No freedom.
+ - Excessive concern with religion seems to me a last resort for people who have been exhausted by life.
+ - My countrymen have the right to shake my hand and talk to me if they so wish. Don’t forget that their support and their reading of my works is what brought me the Nobel prize.
+ - Writing is for men who can think and feel, not mindless sensation seekers out of nightclubs and bars. But these are bad times. We are condemned to work with upstarts, clowns who no doubt got their training in a circus and then turned to journalism as the appropriate place to display their tricks.
+ - I defend both the freedom of expression and society’s right to counter it. I must pay the price for differing. It is the natural way of things.
+ - I was suffering from a peculiar and persistent sense that I was being pursued, and also the conviction that under the political order of the times, our lives had no meaning.
+ - The heart is a place of secrets...
+ - For the first time in my life, I felt that a wave, a justice was sweeping away a deep-seated decay without any indulgence. I dearly wished that it would keep going without hesitation or deviation, in a spirit of purity forever.
+ - Today’s interpretations of religion are often backward and contradict the needs of civilization.
+ - I consider Khomeini’s position dangerous. He does not have the right to pass judgment-that is not the Islamic way.
+ - Insults are the business of the court.
+ - I believe in life and in people. I feel obliged to advocate their highest ideals as long as I believe them to be true. I also see myself compelled to revolt against ideals I believe to be false, since recoiling from rebellion would be a form of treason.
+ - I believe society has a right to defend itself, just as the individual has the right to attack that with which he disagrees.
+ - I was a government employee in the morning and a writer in the evening.
+ - My wife thought I deserved it, but I always thought the Nobel a Western prize.
+ - I started writing while I was a little boy. Maybe it’s because I was reading a lot of books I admired, and thought that I would like to write something like that someday. Also, my love for good writing pushed me.
+ - Events at home, at work, in the street – these are the bases for a story.
+ - A priest’s life is spent between question and answer – or between a question and the attempt to answer it. The question is the summary of the spiritual life.
+ - An allegory is not meant to be taken literally. There is a great lack of comprehension on the part of some readers.
+ - The real malady is fear of life, not of death.
+ - It is simply not part of my culture to preserve notes. I have never heard of a writer preserving his early drafts.
+ - If you want to move people, you look for a point of sensitivity, and in Egypt nothing moves people as much as religion.
+ - It’s not surprising that truly humanitarian manifestos originate frequently in minority circles or with people whose consciences are troubled by the problems of minorities.
+ - I am practically in the employ of Mr. Nobel. I have to meet everyone he sends my way.
+ - I accepted the interviews and encounters that had to be held with the media, but I would have preferred to work in peace.
+ - Winning Nobel imposed on me a lifestyle to which I am not used and which I would not have preferred.
+ - I thought they would never select an Eastern writer for the Nobel. I was surprised.
+ - The Koran and the laws of all civilized nations legislate against the vilification of religions.
+ - I didn’t make any money from my writing until much later. I published about 80 stories for nothing. I spent on literature.
+ - I’ve never worked in politics, never been a member of an official committee or a political party.
+
+73 quotes

@@ -1,0 +1,502 @@
+ - To trust God in the light is nothing, but trust him in the dark - that is faith.
+ - Whenever God means to make a man great, he always breaks him in pieces first.
+ - Every Christian is either a missionary or an imposter.
+ - God is too good to be unkind, too wise to be mistaken; and when you cannot trace His hand, you can trust His heart.
+ - If any man thinks ill of you, do not be angry with him, for you are worse than he thinks you to be.
+ - Growth can be painful, change can be painful but nothing is as painful as staying stuck somewhere you don’t belong Anxiety does not empty tomorrow of its sorrow it only empties today of it strengths.
+ - A little faith will bring your soul to heaven; a great faith will bring heaven to your soul.
+ - Faith goes up the stairs that love has built and looks out the windows which hope has opened.
+ - I have learned to kiss the waves that throw me up against the Rock of Ages.
+ - The greatest enemy to human souls is the self-righteous spirit which makes men look to themselves for salvation.
+ - A Bible that’s falling apart usually belongs to someone who isn’t.
+ - Visit many good books, but live in the Bible.
+ - Whenever GOD determines to do a great work, HE first sets HIS people to pray.
+ - Nothing teaches us about the preciousness of the Creator as much as when we learn the emptiness of everything else.
+ - Nearness to God brings likeness to God. The more you see God the more of God will be seen in you.
+ - By perseverance the snail reached the ark.
+ - Without Christ there is no hope.
+ - If Christ be anything, He must be everything.
+ - If Christ has died for me, I cannot trifle with the evil that killed my best Friend.
+ - A lie can travel half way around the world while the truth is putting on its shoes.
+ - Discernment is not a matter of telling the difference between right and wrong; rather it is telling the difference between right and almost right.
+ - A time will come when instead of shepherds feeding the sheep, the church will have clowns entertaining the goats.
+ - You will never know the fullness of Christ until you know the emptiness of everything but Christ.
+ - God is our portion, Christ our companion, the Spirit our Comforter, Earth our lodge, and Heaven is our home.
+ - Prayer can never be in excess.
+ - He who does not long to know more of Christ, knows nothing of him yet.
+ - God helps those who cannot help themselves.
+ - If sinners be damned, at least let them leap to Hell over our bodies. If they will perish, let them perish with our arms about their knees. Let no one go there unwarned and unprayed for.
+ - When you go through a trial, the sovereignty of God is the pillow upon which you lay your head.
+ - The Bible is not the light of the world, it is the light of the Church. But the world does not read the Bible, the world reads Christians! “You are the light of the world.”
+ - You will never glory in God till first of all God has killed your glorying in yourself.
+ - Great faith must have great trials.
+ - There are no crown-wearers in heaven who were not cross-bearers here below.
+ - We are too prone to engrave our trials in marble and write our blessings in sand.
+ - You say, ‘If I had a little more, I should be very satisfied.’ You make a mistake. If you are not content with what you have, you would not be satisfied if it were doubled.
+ - Beware of no man more than of yourself; we carry our worst enemies within us.
+ - Idle men tempt the devil to tempt them.
+ - The grace that does not change my life will not save my soul.
+ - Calvinism is the gospel, and nothing else.
+ - Have you no wish for others to be saved? Then you’re not saved yourself, be sure of that!
+ - Hold everything earthly with a loose hand, but grasp eternal things with a death-like grip.
+ - Sin and Hell are married unless repentance proclaims the divorce.
+ - The first link between my soul and Christ is not my goodness but my badness, not my merit but my misery, not my riches but my need.
+ - Scripture is like a lion. Who ever heard of defending a lion? Just turn it loose; it will defend itself.
+ - Without the Spirit of God, we can do nothing. We are as ships without wind. We are useless.
+ - Prayer bends omnipotence of heaven to your desire. Prayer moves the hand that moves the world.
+ - When God places a burden upon you, He places His arms underneath you.
+ - It is not how much we have, but how much we enjoy, that makes happiness.
+ - True prayer is neither a mere mental exercise nor a vocal performance. It is a spiritual commerce with the Creator of heaven and earth.
+ - Though you have changed a thousand times, He has not changed once.
+ - If you profess to be a Christian, yet find full satisfaction in worldly pleasures and pursuits, your profession is false.
+ - It is the whole business of the whole church to preach the whole gospel to the whole world.
+ - When we preach Christ crucified, we have no reason to stammer, or stutter, or hesitate, or apologize; there is nothing in the gospel of which we have any cause to be ashamed.
+ - I always say to young fellows who consult me about the ministry, “Don’t be a minister if you can help it,” because if the man can help it, God never called him. But if he cannot help it, and he must preach or die, then he is the man.
+ - God is with us, and His power is around us.
+ - Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal, and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
+ - Of two evils, choose neither.
+ - Trust in God alone, and lean not on the needs of human help. Be not surprised when friends fail you; it is a failing world. Never reckon upon immutability in man: inconstancy you may reckon upon without fear of disappointment.
+ - If Christ is not all to you He is nothing to you. He will never go into partnership as a part Saviour of men. If He be something He must be everything, and if He be not everything He is nothing to you.
+ - Sometimes we think we are too busy to pray. That is a great mistake, for praying is a saving of time.
+ - The furnace of affliction is a good place for you, Christian; it benefits you; it helps you to become more like Christ, and it is fitting you for heaven.
+ - Prayer is the breath, the watchword, the comfort, the strength, the honor of a Christian.
+ - Anything is a blessing which makes us pray.
+ - The waiting itself is beneficial to us: it tries faith, exercises patience, trains submission, and endears the blessing when it comes.
+ - The worst forms of depression are cured when Holy Scripture is believed.
+ - The child of God knows his good works do not make him acceptable to God, for he was acceptable to God by Jesus Christ long before he had any good works.
+ - No man can do me a truer kindness in this world than to pray for me.
+ - If you rest on the finished work of Jesus you have already the best evidence of your salvation in the world; you have God’s word for it; what more is needed?
+ - Suffering saints are living seed.
+ - Fiery trials make golden Christians.
+ - I believe that one reason why the church of God at this present moment has so little influence over the world is because the world has so much influence over the church.
+ - Have your heart right with Christ, and he will visit you often, and so turn weekdays into Sundays, meals into sacraments, homes into temples, and earth into heaven.
+ - Jesus wept, but He never complained.
+ - Jesus was a great worker, and His disciples must not be afraid of hard work.
+ - To pray is to mount on eagle’s wings above the clouds and get into the clear heaven where God dwelleth.
+ - It is folly to think the Lord provides grace for every trouble but the one you are in today.
+ - Nobody ever outgrows Scripture; the book widens and deepens with our years.
+ - We cannot always trace God’s hand but we can always trust God’s heart.
+ - Trials teach us what we are; they dig up the soil, and let us see what we are made of.
+ - Never lose heart in the power of the gospel. Do not believe that there exists any man, much less any race of men, for whom the gospel is not fitted.
+ - The best style of prayer is that which cannot be called anything else but a cry.
+ - Stale godliness is ungodliness. Let our religion be as warm, and constant, and natural as the flow of the blood in our veins. A living God must be served in a living way.
+ - I believe that every particle of dust that dances in the sunbeam does not move an atom more or less than God wishes.
+ - A true prayer is an inventory of needs, a catalog of necessities, an exposure of secret wounds, a revelation of hidden poverty.
+ - I do believe we slander Christ when we think we are to draw the people by something else but the preaching of Christ crucified.
+ - I would not give much for your religion unless it can be seen. Lamps do not talk, but they do shine.
+ - Praise is the beauty of a Christian. What wings are to a bird, what fruit is to the tree, what the rose is to the thorn, that is praise to a child of God.
+ - The best way to live above all fear of death is to die every morning before you leave your bedroom.
+ - The Gospel is like a caged lion. It does not need to be defended, it just needs to be let out of its cage.
+ - A good character is the best tombstone. Those who loved you and were helped by you will remember you when forget-me-nots have withered. Carve your name on hearts, not on marble.
+ - Prayer is not a hard requirement – it is the natural duty of a creature to its creator, the simplest homage that human need can pay to divine liberality.
+ - A prayer less soul is a Christ less soul...
+ - The glory of the salvation of souls belongs to God, and to Him alone.
+ - Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity.
+ - The Bible, the whole Bible, and nothing but the Bible is the religion of Christ’s church.
+ - Nothing is so sweet as to lie passive in God’s hands, and know no will but His.
+ - You may speak but a word to a child, and in that child there may be slumbering a noble heart which shall stir the Christian Church in years to come.
+ - The Lord gets his best soldiers out of the highlands of affliction.
+ - Backsliders begin with dusty Bibles and end with filthy garments.
+ - This is now a covenant of pure grace; let no man attempt to mix works with it.
+ - A day hemmed in prayer is less likely to unravel.
+ - Remember this, had any other condition been better for you than the one in which you are, divine love would have put you there.
+ - Groanings which cannot be uttered are often prayers which cannot be refused.
+ - I would rather teach one man to pray than ten men to preach.
+ - I have a great need for Christ: I have a great Christ for my need.
+ - Prayer is the slender nerve that moves the muscle of omnipotence.
+ - Sincerity makes the very least person to be of more value than the most talented hypocrite.
+ - What, for some, is sin, others do to the glory of God. And the good Dr. Pentecost’s remarks notwithstanding, I intend to go home tonight and smoke a cigar to the glory of God. It is a kind of incense drifting to Heaven.
+ - Be careful, dear friends, that you do not misrepresent God yourselves. You who murmur; you who say that God deals hardly with you, you give God an ill character; when you look so melancholy, worldlings say, “The religion of Jesus is intolerable;” and so you stain the honor of God.
+ - There is hardship in everything except eating pancakes.
+ - If you wish to know God, you must know his Word. If you wish to perceive His power, you must see how He works by his Word. If you wish to know His purpose before it comes to pass, you can only discover it by His Word.
+ - Before you can teach children, you must get the silver key of kindness to unlock their hearts, and so secure their attention.
+ - Giving is true loving.
+ - If Christ be anything he must be everything. O rest not till love and faith in Jesus be the master passions of your soul!
+ - The glory of God’s faithfulness is that no sin of ours has ever made Him unfaithful.
+ - No man can put on the robes of Christ’s righteousness till he has taken off his own.
+ - Do not despair, dear heart, but come to the Lord with all your jagged wounds, black bruises, and running sores. He alone can heal, and He delights to do it. It is our Lord’s office to bind up the brokenhearted, and He is gloriously at home at it.
+ - Satan does not care whether he drags you down to hell as a Calvinist or as an Arminian, so long as he can get you there.
+ - When joy and prayer are married, their first born child is gratitude.
+ - Let gratitude be awakened; let humility be deepened; let love be quickened.
+ - Periodical godliness is perpetual hypocrisy.
+ - God’s mercy is so great that you may sooner drain the sea of its water, or deprive the sun of its light, or make space too narrow, than diminish the great mercy of God.
+ - Time is short. Eternity is long. It is only reasonable that this short life be lived in the light of eternity.
+ - Child of God, you cost Christ too much for him to forget you.
+ - Love for God is obedience; love for God is holiness. To love God and to love man is to be conformed to the image of Christ, and this is salvation.
+ - The Holy Spirit can cast out the evil spirit of the fear of man. He can make the coward brave.
+ - Remember the goodness of God in the frost of adversity.
+ - Bible study is the metal that forges a Christian.
+ - Morality may keep you out of jail, but it takes the blood of Jesus Christ to keep you out of hell.
+ - We shall not grow weary of waiting upon God if we remember how long and how graciously He once waited for us.
+ - Look to the cross, and hate your sin, for sin nailed your Well Beloved to the tree.
+ - Holiness is the architectural plan upon which God buildeth up His living temple.
+ - When you have no helpers, see your helpers in God. When you have many helpers, see God in all your helpers. When you have nothing but God, see all in God. When you have everything, see God in everything. Under all conditions, stay thy heart only on the Lord.
+ - Suffering times are a Christian’s harvest time.
+ - Nothing but grace makes a man so humble and, at the same time, so glad.
+ - Carve your name on hearts, not on marble.
+ - Thus there will be three effects of nearness to Jesus humility, happiness, and holiness.
+ - I know nothing which can so comfort the soul; so calm the swelling billows of sorrow and grief; so speak peace to the winds of trial, as a devout musing upon the subject of the Godhead.
+ - It’s a good thing God chose me before I was born, because he surely would not have afterwards.
+ - If you have to give a carnival to get people to come to church, then you will have to keep giving carnivals to keep them coming back.
+ - It is only serving God that is doing immortal work; it is only living for Christ that is living at all.
+ - There is no form of sinfulness to which you are addicted which Christ cannot remove.
+ - My faith rests not in what I am, or shall be, or feel, or know, but in what Christ is, in what he has done, and in what he is doing for me.
+ - The good man has his enemies. He would not be like His Lord if he had not. If we were without enemies we might fear that we were not the friends of God, for friendship of the world is enmity to God.
+ - Those who dive in the sea of affliction bring up rare pearls.
+ - A Jesus who never wept could never wipe away my tears.
+ - If God calls you to be a minister, don’t stoop to becoming a king.
+ - I have now concentrated all my prayers into one, and that one prayer is this, that I may die to self, and live wholly to Him.
+ - I know of nothing which I would choose to have as the subject of my ambition for life than to be kept faithful to my God till death.
+ - There is no fatigue so wearisome as that which comes from lack of work.
+ - Prayer is the thermometer of grace.
+ - Atheism is a strange thing. Even the devils never fell into that vice.
+ - We are all damaged goods in recovery.
+ - Without the Spirit of God we can do nothing. We are as ships without wind or chariots without steeds. Like branches without sap, we are withered. Like coals without fire, we are useless. As an offering without the sacrificial flame, we are unaccepted.
+ - The motto of all true servants of God must be, ‘We preach Christ; and him crucified.’ A sermon without Christ in it is like a loaf of bread without any flour in it. No Christ in your sermon, sir? Then go home, and never preach again until you have something worth preaching.
+ - Too many think lightly of sin, and therefore think lightly of the Savior.
+ - I am a pilgrim in the world, but at home in my God. In the earth I wander, but in God I dwell in a quiet habitation.
+ - Like Jonah, you may lose your gourd, but you cannot lose your God.
+ - It does not spoil your happiness to confess your sin. The unhappiness is in not making the confession.
+ - Obedience to the will of God is the pathway to perpetual honor and everlasting joy.
+ - The saints shall persevere in holiness, because God perseveres in grace.
+ - I know of no better thermometer to your spiritual temperature than this, the measure of the intensity of your prayer.
+ - We are not responsible to God for the soul that are saved, but we are responsible for the Gospel that is preached, and for the way in which we preach it.
+ - None of us can come to the highest maturity without enduring the summer heat of trials.
+ - Friendship is one of the sweetest joys of life. Many might have failed beneath the bitterness of their trial had they not found a friend.
+ - God writes with a pen that never blots, speaks with a tongue that never slips, acts with a hand that never fails.
+ - Let this be to you the mark of true gospel preaching – where Christ is everything, and the creature is nothing; where it is salvation all of grace, through the work of the Holy Spirit applying to the soul the precious blood of Jesus.
+ - Serve God with integrity, and if you achieve no success, at least no sin will lie upon your conscience.
+ - A man’s contentment is in his mind, not in the extent of his possessions. Alexander the Great, with all the world at his feet, cries for another world to conquer.
+ - Prayer and praise are the oars by which a man may row his boat into the deep waters of the knowledge of Christ.
+ - If you love anything better than God you are idolaters: if there is anything you would not give up for God it is your idol: if there is anything that you seek with greater fervor than you seek the glory of God, that is your idol, and conversion means a turning from every idol.
+ - Sanctification grows out of faith in Jesus Christ. Reemember holiness is a flower, not a root; it is not sanctification that saves, but salvation that sanctifies.
+ - When I thought God was hard, I found it easy to sin; but when I found God so kind, so good, so overflowing with compassion, I smote upon my breast to think that I could ever have rebelled against One who loved me so, and sought my good.
+ - My hope lives not because I am not a sinner, but because I am a sinner for whom Christ died...
+ - Every man needs a blind eye and a deaf ear, so when people applaud, you’ll only hear half of it, and when people salute, you’ll only see part of it. Believe only half the praise and half the criticism.
+ - True prayer is measured by weight, not by length.
+ - Be thankful for the thorns and thistles, which keep you from being in love with this world, and becoming an idolater.
+ - The day we find the perfect church, it becomes imperfect the moment we join it.
+ - Don’t you know that day dawns after night, showers displace drought, and spring and summer follow winter? Then, have hope! Hope forever, for God will not fail you!
+ - When the time comes for you to die, you need not be afraid, because death cannot separate you from God’s love.
+ - A mouthful of sea air, or a stiff walk in the wind’s face would not give grace to the soul, but it would yield oxygen to the body, which is next best.
+ - Faith is reason at rest in God.
+ - Praise is the Rehearsal of Our eternal Song By Grace We learn to Sing, and in Glory We Continue to Sing.
+ - Oh my brethren, Bold hearted men are always called mean-spirited by cowards!
+ - The fear of God is the death of every other fear; like a mighty lion, it chases all other fears before it.
+ - No sin is necessarily connected with sorrow of heart, for Jesus Christ our Lord once said, “My soul is exceedingly sorrowful, even to death.” There was no sin in Him, and consequently none in His deep depression.
+ - We cannot play at preaching. We preach for eternity.
+ - You cannot be Christ’s servant if you are not willing to follow him, cross and all. What do you crave? A crown? Then it must be a crown of thorns if you are to be like him. Do you want to be lifted up? So you shall, but it will be upon a cross.
+ - So long as we are receivers of mercy, we must be givers of thanks.
+ - Next to the Bible, the book I value most is John Bunyan’s Pilgrim’s Progress. I believe I have read it through at least a hundred times. It is a volume of which I never seem to tire; and the secret of its freshness is that it is so largely compiled from the Scriptures.
+ - Prayer meetings are the throbbing machinery of the church.
+ - The highest science, the loftiest speculation, the mightiest philosophy, which can ever engage the attention of a child of God, is the name, the nature, the person, the work, the doings, and the existence of the great God whom he calls his Father.
+ - All places are places of worship to a Christian. Wherever he is, he ought to be in a worshiping frame of mind.
+ - Wisdom is the right use of knowledge.
+ - Oh, without prayer what are the church’s agencies, but the stretching out of a dead man’s arm, or the lifting up of the lid of a blind man’s eye? Only when the Holy Spirit comes is there any life and force and power.
+ - To be a soul winner is the happiest thing in the world. And with every soul you bring to Jesus Christ, you seem to get a new heaven here upon earth.
+ - Don’t let your hopes or fears come between you and Jesus; follow hard after Him. He will never fail you.
+ - A person who is really saved by Grace does not need to be told that he is under solemn obligations to serve Christ. The new life within him tells him that. Instead of regarding it as a burden, he gladly surrenders himself, body, soul, and spirit, to the Lord.
+ - Live in such a way that men may recognize that you have been with Jesus.
+ - Our extremities are God’s opportunities.
+ - One might better try to sail the Atlantic in a paper boat, than try to get to heaven on good works.
+ - As the salt flavors every drop in the Atlantic, so does sin affect every atom of our nature. It is so sadly there, so abundantly there, that if you cannot detect it, you are deceived.
+ - You must either give up your sins or give up all hope of heaven.
+ - I would sooner bring one sinner to Jesus Christ than unravel all the mysteries of the divine Word, for salvation is the one thing we are to live for.
+ - Whatever subject I preach, I do not stop until I reach the Savior, the Lord Jesus, for in Him are all things.
+ - A child of five, if properly instructed, can, as truly believe, and be regenerated, as an adult.
+ - Must is a hard nut to crack, but it has a sweet kernel.
+ - Infinite, and an infant. Eternal, and yet born of a woman. Almighty, and yet hanging on a woman’s breast. Supporting a universe, and yet needing to be carried in a mother’s arms. King of angels, and yet the reputed son of Joseph. Heir of all things, and yet the carpenter’s despised son.
+ - There is dust enough on some of your Bibles to write ‘damnation’ with your fingers.
+ - The law shows the distance that exists between God and man; the Gospel bridges that awful chasm and brings the sinner across it.
+ - The seasons change and you change, but the Lord abides evermore the same, and the streams of His love are as deep, as broad and as full as ever.
+ - An ounce of heart knowledge is worth more than a ton of head learning.
+ - Repentance and faith are distasteful to the unregenerate; they would sooner repeat a thousand formal prayers than shed a solitary tear of true repentance.
+ - Growing a beard is a habit most natural, Scriptural, manly and beneficial.
+ - I would to God that saints would cling to Christ half as earnestly as sinners cling to the devil. If we were as willing to suffer for God as some are to suffer for their lusts, what perseverance and zeal would be seen on all sides!
+ - Defend the Bible? I’d sooner defend a lion. You don’t defend the Bible; you open its cage and let it roar.
+ - If you can’t see His way past the tears, trust His heart.
+ - Prayer is doubts destroyer, ruin’s remedy, the antidote to all anxieties.
+ - The worst sort of clever men are those who know better than the Bible.
+ - There must be a divorce between you and sin, or there can be no marriage between you and Christ.
+ - Learn to say no; it will be of more use to you than to be able to read Latin.
+ - God works all things together for your good. If the waves roll against you, it only speeds your ship towards the port.
+ - Your sorrow itself shall be turned into joy. Not the sorrow to be taken away, and joy to be put in its place, but the very sorrow which now grieves you shall be turned into joy. God not only takes away the bitterness and gives sweetness in its place, but turns the bitterness into sweetness itself.
+ - Let me be as the bullock which stands between the plough and the altar, to work or to be sacrificed; and let my motto be, “Ready for either”.
+ - The Lord’s mercy often rides to the door of our heart upon the black horse of affliction.
+ - Since, O sweet Lord Jesus, Thou art the present portion of Thy people, favour us this year with such a sense of Thy preciousness, that from its first to its last day we may be glad and rejoice in Thee. Let January open with joy in the Lord, and December close with gladness in Jesus.
+ - Be deaf, be blind, be dead to gossip, and it will grow disgusted with you and select a more sensitive victim.
+ - As for His failing you, never dream of it – hate the thought of it. The God who has been sufficient until now, should be trusted to the end.
+ - Long ago I ceased to count heads. Truth is usually in the minority in this evil world.
+ - When your will is God’s will, you will have your will.
+ - When I have found intense pain relieved, a weary brain soothed, and calm refreshing sleep obtained by a cigar, I have felt grateful to God, and have blessed His name.
+ - We Christians do not believe that Jesus Christ was the only one that ever rose from the dead. We believe that every death-bed is a resurrection; that from every grave the stone, is rolled away.
+ - Suffering is better than sinning. There is more evil in a drop of sin than in an ocean of affliction. Better, burn for Christ, than turn from Christ.
+ - Christian, beware of thinking lightly of sin. Take heed in case you fall little by little.
+ - It is not the strength of your faith that saves you, but the strength of Him upon whom you rely! Christ is able to save you if you come to Him-be your faith weak or be it strong.
+ - If you think you can walk in holiness without keeping up perpetual fellowship with Christ, you have made a great mistake. If you would be holy, you must live close to Jesus.
+ - Do you find it difficult to forgive one who has wronged you? Then you will find it difficult to get to heaven.
+ - Every hour of every day, God is richly blessing us; both when we sleep and when we wake His mercy waits upon us.
+ - Every Christian has a choice between being humble or being humbled.
+ - By perseverance the snail reached the ark. A mouse may find a hole, be the room ever so full of cats.
+ - Because God is the living God, He can hear; because He is a loving God, He will hear; because He is our covenant God, He has bound Himself to hear.
+ - A father’s holy life is a rich legacy for his sons.
+ - Idleness is the key of beggary.
+ - That very church which the world likes best is sure to be that which God abhors.
+ - It is not great talents God blesses so much as likeness to Jesus.
+ - Quietude, which some men cannot abide because it reveals their inward poverty, is as a palace of cedar to the wise, for along its hallowed courts the King in his beauty deigns to walk.
+ - It is no novelty, then, that I am preaching; no new doctrine. I love to proclaim these strong old doctrines, that are called by nickname Calvinism, but which are surely and verily the revealed truth of God as it is in Christ Jesus.
+ - Be assured, there is nothing new in theology except that which is false.
+ - We must school and train ourselves to deal personally with the unconverted. We must not excuse ourselves, but force ourselves to the irksome task until it becomes easy.
+ - Thankfulness makes much of little.
+ - If we want revivals, we must revive our reverence for the Word of God.
+ - A Christian man should so shine in his life, that a person could not live with him a week without knowing the gospel.
+ - Prayer sweeps the battlefield, slays the enemy, and buries the bones.
+ - Repentance and desires after holiness never be separated.
+ - Lost! Lost! Lost! Better a whole world on fire than a soul lost! Better every star quenched and the skies a wreck than a single soul to be lost!
+ - There should be a parallel between our supplications and our thanksgivings. We ought not to leap in prayer, and limp in praise.
+ - You and your sins must separate, or you and your God will never come together.
+ - Lord, save all the elect, and then elect some more.
+ - The best worship that we ever render to God is far from perfect. Our praises, how faint and feeble they are! Our prayers, how wandering, how wavering they are! When we get nearest to God, how far off we are! When we are most like Him, how greatly unlike Him we are!
+ - Let us measure ourselves by our Master, and not by our fellow-servants : then pride will be impossible.
+ - Free will I have often heard of, but I have never seen it. I have always met with will, and plenty of it, but it has either been led captive by sin or held in the blessed bonds of grace.
+ - The religion of both Old and New Testaments is marked by fervent outspoken testimonies against evil. To speak smooth things in such a case may be sentimentalism, but it is not Christianity. It is a betrayal of the cause of truth and righteousness.
+ - I will go as far as Martin Luther, where he says, ‘If any man ascribes anything of salvation, even the very least thing, to the free will of man, he knows nothing of grace, and he has not learned Jesus Christ rightly.’
+ - Repentance will not make you see Christ; but to see Christ will give you repentance.
+ - Do not try to make the gospel tasteful to carnal minds. Do not hide the offense of the cross, lest you make it of no effect.
+ - The moment the church of God shall despise the pulpit, God will despise her.
+ - If you wait for a perfect church, you must wait until you get to heaven; and even if you could find a perfect assembly on earth, I am sure they would not admit you to their fellowship, for you are not perfect yourself.
+ - Is there nothing to sing about to-day? Then borrow a song from tomorrow; sing of what is yet to be. Is this world dreary? Then think of the next.
+ - The Christian should work as if all depended upon him, and pray as if it all depended upon God.
+ - Come as you are. If you are the blackest soul out of hell, trust Christ, and that act of trust shall make you clean.
+ - God’s children are God’s children anywhere and everywhere, and shall be even unto the end. Nothing can sever that sacred tie, or divide us from his heart.
+ - My soul, never laugh at sin’s fooleries, lest thou come to smile at sin itself. It is thine enemy, and thy Lord’s enemy.
+ - You must keep all earthy treasures out of your heart, and let Christ be your treasure, and let Him have your heart.
+ - God is more ready to forgive me than I am ready to offend.
+ - A rejoicing heart soon makes a praising tongue.
+ - If God has fit you to be a missionary, I would not have you shrivel down to be a king.
+ - A genuine revival without joy in the Lord is as impossible as spring without flowers, or day-dawn without light.
+ - Victory needs conflict as its preface.
+ - Sin is a thing of time, but mercy is from everlasting. Transgression is but of yesterday, but mercy was ever of old. Before you and I sought the Lord, the Lord sought us.
+ - Inconsistent professors are the greatest stumbling blocks to the spread of the cause of Christ!
+ - It is a reading age, a preaching age, a working age, but it is not a praying age.
+ - Character is always lost when a high ideal is sacrificed on the altar of conformity and popularity.
+ - The devil is not afraid of a dust-covered Bible.
+ - Wherever Jesus may lead us, He goes before us. If we don’t know where we are going, we know with whom we go.
+ - Every generation needs regeneration.
+ - It is a good rule never to look into the face of a man in the morning till you have looked into the face of God.
+ - Before any great achievement, some measure of depression is very usual.
+ - The Word of God is the anvil upon which the opinions of men are smashed.
+ - Everywhere there is apathy. Nobody cares whether that which is preached is true or false. A sermon is a sermon whatever the subject; only, the shorter it is, the better.
+ - When you see no present advantage, walk by faith and not by sight. Do God the honor to trust Him when it comes to matters of loss for the sake of principle.
+ - The Lord Jesus is a deep sea of joy; my soul shall dive therein, shall be swallowed up in the delights of his society.
+ - Many people are born crying, live complaining, and die disappointed; they chew the bitter pill which they would not even know to be bitter if they had the sense to swallow it whole in a cup of patience and water.
+ - Unless you have forgiven others you read your own death warrant when you repeat the Lord’s Prayer.
+ - Death has no sting to a Believer. Once death was the penalty of sin-sin being forgiven, the penalty ceases and Christians do not die, now, as a punishment for their sin, but they die that they may be prepared to live!
+ - Prayer pulls the rope below and the great bell rings above in the ears of God. Some scarcely stir the bell, for they pray so languidly. Others give but an occasional pluck at the rope. But he who wins with heaven is the man who grasps the rope boldly and pulls continuously, with all his might.
+ - All originality and no plagiarism makes for dull preaching.
+ - When you speak of heaven, let your face light up; let it be irradiated by a heavenly gleam; let your eyes shine with reflected glory. But when you speak of hell, your ordinary expression will do.
+ - Your emptiness is but the preparation for your being filled, and your casting down is but the making ready for your lifting up.
+ - Beware of self-righteousness. The black devil of licentiousness destroys his hundreds, but the white devil of self-righteousness destroys his thousands.
+ - A well marked Bible is the sign of a well-fed soul.
+ - Be not proud of race, face, place, or grace.
+ - Take up your own daily cross; it is the burden best suited for your shoulder, and will prove most effective to make you perfect in every good word and work to the glory of God.
+ - We are never, never so much in danger of being proud as when we think we are humble.
+ - We shall never find happiness by looking at our prayers, our doings, or our feelings; it is what Jesus is, not what we are, that gives rest to the soul.
+ - Delayed answers to prayer are not only trials of faith; they also give us opportunities to honor God through our steadfast confidence in Him, even when facing the apparent denial of our request.
+ - No matter how dear you are to God, if pride is harboured in your spirit, He will whip it out of you. They that go up in their own estimation must come down again by His discipline.
+ - There are, in truth, but two denominations upon this earth: the Church and the world.
+ - Whatever a man depends upon, whatever rules his mind, whatever governs his affections, whatever is the chief object of his delight, is his god.
+ - Often doubts will prevail. What a mercy it is that it is not your hold of Christ that saves you, but His hold of you! What a sweet fact that it is not how you grasp His hand, but His grasp of yours that saves you.
+ - A thrifty housewife is better than a great income. A good wife and health are a man’s best wealth.
+ - To be forgiven is such sweetness that honey is tasteless in comparison with it. But yet there is one thing sweeter still, and that is to forgive. As it is more blessed to give than to receive, so to forgive rises a stage higher in experience than to be forgiven.
+ - Don’t go where it is all fine music and grand talk and beautiful architecture; those things will neither fill anybody’s stomach, nor feed his soul. Go where the gospel is preached, the gospel that really feeds your soul, and go often.
+ - Do what you believe to be right, and ever hold it for a maxim, that if the skies fall through your doing right, honest men will survive the ruin.
+ - Now let us find solace in the finished work of our Lord Jesus. Everything is fully done: justice demands no more.
+ - Show the world that your God is worth ten thousand worlds to you. Show rich men how rich you are in your poverty when the Lord God is your helper. Show the strong man how strong you are in your weakness when underneath you are the everlasting arms.
+ - They will never accept grace until they tremble before a just and holy Law.
+ - In heaven we shall see that we had not one trial too many.
+ - FAITH untried may be true faith, but it is sure to be little faith, and it is likely to remain dwarfish so long as it is without trials.
+ - No one served God by doing things tomorrow.
+ - It is far easier to fight against sin in public than to pray against it in private.
+ - May your convictions be deep, your love real, and your desires earnest.
+ - Nothing binds me to my Lord like a strong belief in His changeless love.
+ - It is our duty and our privilege to exhaust our lives for Jesus. We are not to be living specimens of men in fine preservation, but living sacrifices, whose lot is to be consumed.
+ - Great thoughts of your sin alone will drive you to despair; but great thoughts of Christ will pilot you into the haven of peace.
+ - The resurrection is a fact better attested than any event recorded in any history, whether ancient or modern.
+ - Of all things in the world that stink in the nostrils of men, hypocrisy is the worst.
+ - A good character is the best tombstone.
+ - Unbelief will destroy the best of us; faith will save the worst of us.
+ - The sovereign electing grace of God chooses us to repentance, to faith, and afterwards to holiness of living, to Christian service, to zeal, and to devotion.
+ - I would go to the deeps a hundred times to cheer a downcast spirit. It is good for me to have been afflicted, that I might know how to speak a word in season to one that is weary.
+ - Do not flatter yourselves: if you go to places of worship merely to look about you or to hear music, you are not worshipping God.
+ - The Christian is the most contented man in the world, but he is the least contented with the world.
+ - A child of God should be a visible beatitude for joy and happiness, and a living doxology for gratitude and adoration.
+ - By all means read the Puritans, they are worth more than all the modern stuff put together.
+ - Birds sing on a bare bough; O, believer, canst not thou?
+ - That crafty kindness which inveigles me to sacrifice principle is the serpent in the grass – deadly to the incautious wayfarer.
+ - The granting of prayer, when offered in the name of Jesus, reveals the Father’s love to him, and the honor which he has put upon him.
+ - The law is for the self-righteous, to humble their pride: the gospel is for the lost, to remove their despair.
+ - I do not think the devil cares how many churches you build, if only you have lukewarm preachers and people in them.
+ - Little learning and much pride come of hasty reading.
+ - The Providence of God is the great protector of our life and usefulness, and under the divine care we are perfectly safe from danger.
+ - I believe that very much of current Arminianism is simply ignorance of gospel doctrine; and if people began to study their Bibles, and to take the Word of God as they find it, they must inevitably, if believers, rise up to rejoice in the doctrines of grace.
+ - The love of Jesus is the source of salvation. He loves, he looks, he touches us, we live.
+ - Our griefs cannot mar the melody of our praise, we reckon them to be the bass part of our life’s song, ‘He hath done great things for us, whereof we are glad.’
+ - Depend on it, my hearer, you never will go to heaven unless you are prepared to worship Jesus Christ as God.
+ - If you take Christ out of Christianity, Christianity is dead. If you remove grace out of the gospel, the gospel is gone. If the people do not like the doctrine of grace, give them all the more of it.
+ - God’s thoughts of you are many, let not yours be few in return.
+ - If we never have headaches through rebuking our children, we shall have plenty of heartaches when they grow up.
+ - Obedience is the highest practical courage.
+ - We are not called to proclaim philosophy and metaphysics, but the simple gospel.
+ - We are one in Christ; let us be friends with one another; but let us never be friends with one another’s error. If I be wrong, rebuke me sternly; I can bear it, and bear it cheerfully; and if ye be wrong, expect the like measure from me, and neither peace nor parley with your mistakes.
+ - This is faith, receiving the truth of Christ; first knowing it to be true, and then acting upon that belief.
+ - Blessed are the peacemakers, and one sure way of peacemaking is to let the fire of contention alone. Neither fan it, nor stir it, nor add fuel to it, but let it go out by itself. Begin your ministry with one blind eye and one deaf ear.
+ - The more objects you set your heart upon, the more thorns there are to tear your peace of mind to shreds.
+ - The world’s one and only remedy is the cross.
+ - There is no exception to this rule: “All the paths of the LORD are mercy and truth unto such as keep his covenant.” They say there is no rule without an exception, but there is an exception to that rule.
+ - I do not believe that any man can preach the gospel who does not preach the Law. The Law is the needle, and you cannot draw the silken thread of the gospel through a man’s heart unless you first send the needle of the Law to make way for it.
+ - God gave us sleep to remind us we are not him.
+ - If you tell your troubles to God, you put them into the grave; they will never rise again when you have committed them to Him. If you roll your burden anywhere else, it will roll back again like the stone of Sisyphus.
+ - You cannot slander human nature; it is worse than words can paint it.
+ - Leave Christ out? O my brethren, better leave the pulpit out altogether. If a man can preach one sermon without mentioning Christ’s name in it, it ought to be his last, certainly the last that any Christian ought to go to hear him preach.
+ - Anger does a man more hurt than that which made him angry.
+ - I would sooner walk in the dark, and hold hard to a promise of my God, than trust in the light of the brightest day that ever dawned.
+ - Oh, for five hundred Elijahs, each one upon his Carmel, crying unto God, and we should soon have the clouds bursting into showers. Oh, for more prayer, more constant, incessant prayer! Then the blessing would rain upon us.
+ - Faith is the fountain, the foundation and the fosterer of obedience.
+ - Newspapers are the Bibles of worldlings. How diligently they read them! Here they find their law and profits, their judges and chronicles, their epistles and revelations.
+ - Intercessory prayer is an act of communion with Christ, for Jesus pleads for the sons of men.
+ - We wept when we were born though all around us smiled; so shall we smile when we die while all around us weep.
+ - The tears of affliction are often needed to keep the eye of faith bright.
+ - We are all men, feeble, frail, and apt to faint.
+ - Jehovah is the great Miracle Maker, the unrivaled Wonder worker. None can be likened unto Him, He is alone in wonderland, the Creator and Worker of true marvels, compared with which all other remarkable things are as child’s play.
+ - If heaven were by merit, it would never be heaven to me, for if I were in it I should say, “I am sure I am here by mistake; I am sure this is not my place; I have no claim to it.” But if it be of grace and not of works, then we may walk into heaven with boldness.
+ - If we be married to Christ, and He be jealous of us, depend upon it this jealous husband will let none touch His spouse.
+ - It is wonderful how God works by our hands, and yet His own hand does it all.
+ - It is, perhaps, one of the hardest struggles of the Christian life to learn this sentence – “Not unto us, O Lord, not unto us, but unto Thy name be glory.”
+ - You’ll never be a winner of souls unless you’re first a weeper for souls.
+ - Hell itself does not contain greater monsters of iniquity than you and I might become. Within the magazine of our hearts there is power enough to destroy us in an instant, if omnipotent grace did not prevent.
+ - Don’t just throw the seed at the people! Grind it into flour, bake it into bread, and slice it for them. And it wouldn’t hurt to put a little honey on it.
+ - Saints are described as fearing the name of God; they are reverent worshippers; they stand in awe of the Lord’s authority; they are afraid of offending Him; they feel their own nothingness in the sight of the Infinite One.
+ - If the Savior has not sanctified you, renewed you, given you a hatred of sin and a love of holiness, He has nothing in you of a saving character.
+ - Prayer is the autograph of the Holy Ghost upon the renewed heart.
+ - Sin has been pardoned at such a price that we cannot henceforth trifle with it.
+ - I have my own opinion that there is no such thing as preaching Christ and Him crucified, unless we preach what nowadays is called Calvinism. It is a nickname to call it Calvinism; Calvinism is the gospel, and nothing else.
+ - The world’s proverb is, “God help the poor, for the rich can help themselves;” but to our mind, it is just the rich who have most need of Heaven’s help. Dives in scarlet is worse off than Lazarus in rags, unless Divine love shall uphold him.
+ - For a successful season of prayer, the best beginning is confession.
+ - I am convinced that there is no great distance between heaven and earth, that the distance lies in our finite minds. When the Beloved visits us in the night, He turns our chambers into the vestibules of His palace halls. Earth rises to heaven when heaven comes down to earth.
+ - Whatever is your greatest joy and treasure, that is your god.
+ - The sermon which does not lead to Christ, or of which Jesus Christ is not the top and the bottom, is a sort of sermon that will make the devils in hell laugh, but make the angels of God weep.
+ - If by excessive labor we die before reaching the average age of man, worn out in the Master’s service, then glory be to God. We shall have so much less of earth and so much more of heaven. It is our duty and our privilege to exhaust our lives for Jesus.
+ - If there is one doctrine I have preached more than another, it is the doctrine of the Perseverance of the Saints even to the end.
+ - A church is a soul-saving company or it is nothing.
+ - Alas, if our children lose the crown of life, it will be but a small consolation that they have won the laurels of literature or art.
+ - Faith is the accepting of what God gives. Faith is the believing what God says. Faith is the trusting to what Jesus has done. Only do this and you are saved, as surely as you are alive!
+ - Remember, Christ’s scholars must study upon their knees.
+ - This is the holy reasoning of love; it draws no license from grace, but rather feels the strong constraints of gratitude leading it to holiness.
+ - An unkind heart is the worst. It is a plague to its possessor, and a torment to those around him.
+ - If the professed convert distinctly and deliberately declares that he knows the Lord’s will, but does not mean to attend to it, you are not to pamper his presumptions, but it is your duty to assure him that he is not saved.
+ - The Word of God is a lamp by night, a light by day, and a delight at all times.
+ - There, poor sinner, take my garment, and put it on; you shall stand before God as if you were Christ, and I will stand before God as if I had been the sinner; I will suffer in the sinner’s stead, and you shall be rewarded for works that you did not do, but which I did for you.
+ - If you simply take the name of Christ upon you and call yourself His servant, yet do not obey Him, but follow your own whim, or your own hereditary prejudice, or the custom of some erroneous church-you are no servant of Christ. If you really are a servant of Christ, your first duty is to obey Him.
+ - We are not alarmed because Satan hinders us, for it is a proof that we are on the Lord’s side, and are doing the Lord’s work, and in his strength we shall win the victory, and triumph over our adversary.
+ - The Bible in the memory is better than the Bible in the book case.
+ - Those who think themselves secure are more exposed to danger than any others. The armor-bearer of sin is self-confidence .
+ - Feel for others – in your pocket.
+ - If we had to preach to thousands year after year, and never rescued but one soul, that one soul would be a full reward for all our labour, for a soul is of countless price.
+ - As long as a man is alive and out of hell, he cannot have any cause to complain.
+ - If I had my choice of all the blessings I can conceive of I would choose perfect conformity to the Lord Jesus, or, in one word, holiness.
+ - Fine music without devotion is but a splendid garment upon a corpse.
+ - Our hope in Christ for the future is the mainspring and the mainstay of our joy down here today.
+ - Nothing puts life into men like a dying Savior.
+ - If we do wrong and no harm comes of it, we are not thereby justified. If we did evil and good came of it, the evil would be just as evil. It is not the result of the action, but the action itself which God weighs.
+ - Evil things are easy things: for they are natural to our fallen nature. Right things are rare flowers that need cultivation.
+ - I would as soon pray to God with machinery as to sing to God with machinery.
+ - Whether we like it or not, asking is the rule of the Kingdom. If you may have everything by asking in His Name, and nothing without asking, I beg you to see how absolutely vital prayer is.
+ - Beloved Friends, we may well continue to praise God, for our God continues to give us causes for praise!
+ - Give me great sinners to make great saints! They are glorious raw material for Grace to work upon and when you do get them saved, they will shake the very gates of Hell!
+ - If a man can preach one sermon without mentioning Christ’s name in it, it ought to be his last.
+ - As a church we must love Jesus, or else we have lost our reason for existence.
+ - None are more unjust in their judgments of others than those who have a high opinion of themselves.
+ - Sorrow for sin should be the keenest sorrow; joy in the Lord should be the loftiest joy.
+ - I THINK the moments we are nearest to heaven are those we spend at the Lord’s table.
+ - You shall find books and sermons everywhere, in the land and in the sea, in the earth and in the skies, and you shall learn from every living beast, and bird, and fish, and insect, and from every useful or useless plant that springs from the ground.
+ - Affliction hardens those whom it does not soften.
+ - The Christian’s life should be one of thankfulness to God.
+ - He makes those just who are unjust, forgives those who deserve to be punished, and favors those who deserve no favor.
+ - Watch constantly against those things which are thought to be no temptations. The most poisonous serpents are found where the sweetest flowers grow. Cleopatra was poisoned by an asp that was brought to her in a basket of fair flowers. Sharp-edged tools, long handled, wound at last.
+ - I thought I could have leaped from earth to heaven at one spring when I first saw my sins drowned in the Redeemer’s blood.
+ - I believe that when Paul plants and Apollos waters, God gives the increase; and I have no patience with those who throw the blame on God when it belongs to themselves.
+ - The business of the believer with his Bible open is to pray, ‘Lord, give me the meaning and spirit of your word, while it lies open before me; apply your word with power to my soul, threatening or promise, doctrine or precept, whatever it may be; lead me into the soul and marrow of your word.’
+ - Let me say that for comfort, there is no thought more full of sweetness than that of an eternal God engaged in Christ Jesus to His people; to love, and bless, and save them all. One Who has made them the distinguished objects of His discriminating regard from all eternity, it is the eternal God.
+ - There is no repentance where a man can talk lightly of sin, much less where he can speak tenderly and lovingly of it.
+ - The delightful study of the Psalms has yielded me boundless profit and ever-growing pleasure; common gratitude constrains me to communicate to others a portion of the benefit, with the prayer that it may induce them to search further for themselves.
+ - The demon of pride was born with us; and it will not die one hour before us.
+ - True humility is a flower which will adorn any garden.
+ - This, then, is the doctrine of the resurrection. We do not believe – at least I do not – that law has been rudely violated in one extraordinary and unparalleled episode. We believe that a universal law of life, overmastering death, and always superior to it, has had once a visible witness.
+ - Trials teach us what we are.
+ - He is ready to cleanse you, It is sin, after all, that lies at the door and blocks you way to the Savior.
+ - If when I get to heaven the Lord shall say to me, Spurgeon, I want you to preach for all eternity, I would reply, Lord, give me a Bible, that is all I need.
+ - We need winds and tempests to exercise our faith, to tear off the rotten bough of self-dependence, and to root us more firmly in Christ. The day of evil reveals to us the value of our glorious hope.
+ - Christ did not die to make his Father loving, but because his Father is loving: the atoning blood is the outflow of the very heart of God toward us.
+ - He who affirms that Christianity makes men miserable, is himself an utter stranger to it.
+ - The existence of hypocrites does not prove the non-existence of true believers.
+ - Our spiritual manhood in heaven will discard many things which we now count precious, as a full-grown man discards the treasures of his childhood.
+ - A child’s cry touches a father’s heart.
+ - It would be very difficult to draw a line between holy wonder and real worship; for when the soul is overwhelmed with the majesty of God’s glory, though it may not express itself in song, or even utter its voice with bowed head and humble prayer, yet it silently adores.
+ - Depend upon it, since Satan could not kill the church by roaring at her like a lion, he is now trying to crush her by hugging her like a bear.
+ - It is said that if Noah’s ark had to be built by a company; they would not have laid the keel yet; and it may be so. What is many men’s business is nobody’s business. The greatest things are accomplished by individual men.
+ - When men’s hearts are melted under the preaching of the word, or by sickness, or the loss of friends, believers should be very eager to stamp the truth upon the prepared mind. Such opportunities are to be seized with holy eagerness.
+ - It is a remarkable fact that all the heresies which have arisen in the Christian Church have had a decided tendency to dishonor God and to flatter man.
+ - I do not believe that any man can preach the gospel who does not preach the Law.
+ - O child of God, be more careful to keep the way of the Lord, more concentrated in heart in seeking His glory, and you will see the loving-kindness and the tender mercy of the Lord in your life.
+ - You are engaged in a work so spiritual, so far above all human power, that to forget the Spirit is to ensure defeat.
+ - All the preaching in the world cannot make a man see the truth so long as his eyes are blinded.
+ - A holy life is in itself a wonderful power, and will make up for many deficiencies; it is in fact the best sermon a man can ever deliver.
+ - God is so boundlessly pleased with Jesus that in him he is altogether well pleased with us.
+ - Even if I give the whole of my worth to Him, He will find a way to give back to me much more than I gave.
+ - After faith comes repentance, or, rather, repentance is faith’s twin brother and is born at the same time.
+ - If your creed and Scripture do not agree, cut your creed to pieces, but make it agree with this book.
+ - Serve God by doing common actions in a heavenly spirit, and then, if your daily calling only leaves you cracks and crevices of time, fill them up with holy service.
+ - You might not always get what you want, but you always get what you expect.
+ - Men are in a restless pursuit after satisfaction and earthly things. They have no forethought for their eternal state, the present hour absorbs them. They turn to another and another of earth’s broken cisterns, hoping to find water, where not a drop was ever discovered yet.
+ - If you truly believe in Jesus, it is for life. Saving faith is a life-long act.
+ - Believing right doctrine will no more save you, than doing good works will save you.
+ - When you think of what you are, and despair; think also of what He is, and take heart.
+ - You will never be saved against your will; God drags nobody to heaven by the ears.
+ - We must trust as if it all depended on God and work as if it all depended on us.
+ - The preacher’s work is to throw sinners down into utter helplessness that they may be compelled to look up to Him Who alone can help them.
+ - A village is a hive of glass, where nothing unobserved can pass.
+ - You and your sins must separate or you and your God will never come together. No one sin may keep you; they must all be given up, they must be brought out like Canaanite kings from the cave and be hanged up in the sun.
+ - Don’t drown the man who taught you to swim. If you learned your trade or profession from the man, do not set up in opposition to him.
+ - Remember that thought is speech before God.
+ - I am but of yesterday, and know nothing.
+ - Let your thoughts be psalms, your prayers incense, and your breath praise.
+ - Wash your face every morning in a bath of praise.
+ - A man says to me, ‘Can you explain the seven trumpets of the Revelation?’ No, but I can blow one in your ear, and warn you to escape from the wrath to come.
+ - Patience, then, believer, eternity will right the wrongs of time.
+ - Losses and crosses are heavy to bear; but when our hearts are right with God, it is wonderful how easy the yoke becomes.
+ - If Christ were only a cistern we might soon exhaust his fullness but who can drain a fountain?
+ - Remember the man who truly repents is never satisfied with his own repentance.
+ - To acknowledge you were wrong yesterday is to acknowledge you are wiser today.
+ - I have heard of some good old woman in a cottage, who had nothing but a piece of bread and a little water, and lifting up her hands, she said, as a blessing, What! all this, and Christ too?
+ - May gratitude to God permeate my entire life.
+ - The early morning hour should be dedicated to praise: do not the birds set us the example?
+ - It seems odd, that certain men who talk so much of what the Holy Spirit reveals to themselves, should think so little of what he has revealed to others.
+ - The repetition of small efforts will accomplish more than the occasional use of great talents.
+ - Faith is not a blind thing; for faith begins with knowledge. It is not a speculative thing; for faith believes facts of which it is sure. It is not an unpractical, dreamy thing; for faith trusts, and stakes its destiny upon the truth of revelation.
+ - Intercessory prayer is exceedingly prevalent. What wonders it has wrought! The Word of God teems with its marvelous deeds. Believer, thou hast a mighty engine in thy hand, use it well, use it constantly, use it with faith, and thou shalt surely be a benefactor to thy brethren.
+ - I cannot tell you how much I owe to the solemn word of my good mother.
+ - If I knew I had 25 years left to live, I would spend 20 of them in preparation.
+ - Great hearts can only be made by great troubles. Great faith must have great trials.
+ - Right is right though all condemn, and wrong is wrong though all approve.
+ - Never was the victory of patience more complete than in the early church. The anvil broke the hammer by bearing all the blows that the hammer could place upon it. The patience of the saints was stronger than the cruelty of tyrants.
+ - Jesus Christ does not save the worthy, but the unworthy. Your plea must not be righteousness but guilt.
+ - Trials make room for consolation. There is nothing that makes man have a big heart like a great trial. I have found that those people who have no sympathy for their fellows, who never weep for the sorrows of others very seldom have any of their own. Great hearts could be made only by great troubles.
+ - The lion of anger shall give place to the lamb of meekness; the raven of uncleanness shall fly before the dove of purity; the vile serpent of deceit shall be trodden under the heel of truth.
+ - A sheep in the midst of wolves is safe compared with the Christian in the midst of ungodly men.
+ - Those who do not hope cannot wait; but if we hope for that we see not, then do we with patience wait for it.
+ - If you meet with a system of theology which magnifies man, flee from it as far as you can.
+ - Six feet of dirt make all men equal.
+ - If we give God service it must be because He gives us grace. We work for Him because He works in us.
+
+500 quotes

@@ -1,0 +1,42 @@
+ - You owe it to everyone you love to find pockets of tranquility in your busy world.
+ - What does it matter, all is grace.
+ - Lust is a mysterious wound in the side of humanity; or rather, at the very source of its life! To confound this lust in man with that desire which unites the sexes is like confusing a tumor with the very organ which it devours, a tumor whose very deformity horribly reproduces the shape.
+ - To be able to share in another’s joy, that is the secret of happiness.
+ - When writing of oneself one should show no mercy. Yet why at the first attempt to discover one’s own truth does all inner strength seem to melt away in floods of self-pity and tenderness and rising tears?
+ - A poor man with nothing in his belly needs hope, illusion, more than bread.
+ - Little things seem nothing, but they give peace, like those meadow flowers which individually seem odorless but all together perfume the air.
+ - Hell is not to love anymore.
+ - Suicide only really frightens those who are never tempted by it and never will be, for its darkness only welcomes those who are predestined to it.
+ - The most dangerous of our calculations are those we call illusions.
+ - The world is eaten up by boredom. You can’t see it all at once. It is like dust. You go about and never notice, you breathe it in, you eat and drink it. It is sifted so fine, it doesn’t even grit on your teeth. But stand still for an instant and there it is, coating your face and hands.
+ - Our rages, daughters of despair, creep and squirm like worms. Prayer is the only form of revolt which remains upright.
+ - But I shall give less thought to the future, I shall work in the present. I feel such work is within my power. For I only succeed in small things, and when I am tried by anxiety, I am bound to say it is the small joys that release me.
+ - Hope is a risk that must be run.
+ - God ordains that beggars should beg for greatness, as for all else, when greatness shines out of them, and they don’t know it.
+ - I know the compassion of others is a relief at first. I don’t despise it. But it can’t quench pain, it slips through your soul as through a sieve. And when our suffering has been dragged from one pity to another, as from one mouth to another, we can no longer respect or love it.
+ - More often than not, nothingness is reluctantly and despairingly taken to be the only hypothesis possible when all the others have failed, since by definition it cannot be disproven and is beyond the scope of reason.
+ - The wish to pray is a prayer in itself.
+ - I have done no passably decent job in this world which did not at first seem to me useless – absurdly useless, useless to the point of nausea. My secret demon is called:;: What’s the use?
+ - What a cunning mixture of sentiment, pity, tenderness, irony surrounds adolescence, what knowing watchfulness! Young birds on their first flight are hardly so hovered around.
+ - The modern state no longer has anything but rights; it does not recognize duties any more.
+ - Fear, true fear, is a savage frenzy. Of all the insanities of which we are capable, it is surely the cruelest. There is naught to equal its drive, and naught can survive its thrust.
+ - When you think of the huge uninterrupted success of a book like Don Quixote, you’re bound to realize that if humankind have not yet finished being revenged, by sheer laughter, for being let down in their greatest hope, it is because that hope was cherished so long and lay so deep!
+ - A large number of suspects, both men and women, escaped martial law for lack of any shred of evidence against them on which a court-martial could convict. So they began setting them free in groups, according to their birth-place. But half-way, the car-load would be emptied into a ditch.
+ - The devil, you see, is that friend who never stays with us to the end.
+ - God! how is it that we fail to recognize that the mask of pleasure, stripped of all hypocrisy, is that of anguish?
+ - I don’t think we can ever learn much from ultra-sensitive, shifty faces, skilled in disguise, that hide themselves in lust, as beasts hide to die.
+ - Only the present counts.
+ - Rather than the obsession with impurity, you’d do better to fear the nostalgia for purity.
+ - I have just discovered something I have always known: we can no more escape from one another than we can escape from God.
+ - Faith is not a thing which one loses, we merely cease to shape our lives by it.
+ - Justice in the hands of the powerful is merely a governing system like any other. Why call it justice?
+ - Optimism approves of everything, submits to everything, believes everything; it is the virtue above all of the taxpayer.
+ - Money-crimes have an abstract quality. History is laden with the victims of gold, but their remains are odourless.
+ - God knows that we should not despise anything. We must do our best.
+ - What does the truth matter? Haven’t we mothers all given our sons a taste for lies, lies which from the cradle upwards lull them, reassure them, send them to sleep: lies as soft and warm as a breast!
+ - I can now see to the bottom of my own depths, there is nothing stopping my gaze, no obstacle is in the way. And there is nothing there.
+ - Purity is not imposed upon us as though it were a kind of punishment, it is one of those mysterious but obvious conditions of that supernatural knowledge of ourselves in the Divine, which we speak of as faith. Impurity does not destroy this knowledge, it slays our need for it.
+ - Truth is meant to save you first. The comfort comes afterward.
+ - A man given to vice is always an idealist.
+
+40 quotes

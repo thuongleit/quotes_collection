@@ -1,0 +1,30 @@
+ - Travel doesn’t merely broaden the mind. It makes the mind.
+ - Man’s real home is not a house, but the Road, and that life itself is a journey to be walked on foot.
+ - For life is a journey through a wilderness.
+ - To lose a passport was the least of one’s worries. To lose a notebook was a catastrophe.
+ - It’s an old sailor’s idea that every ship has a rope with one end made fast to her bows and the other held by the loved ones at home.
+ - Walking is a virtue, tourism is a deadly sin.
+ - I pictured a low timber house with a shingled roof, caulked against storms, with blazing log fires inside and the walls lined with all the best books, somewhere to live when the rest of the world blew up.
+ - And the formation of man is the most pressing problem facing humanity.
+ - When people start talking of man’s inhumanity to man it means they haven’t actually walked far enough.
+ - I never liked Jules Verne, believing that the real was always more fantastic than the fantastical.
+ - Being lost in Australia gives you a lovely feeling of security.
+ - Tyranny sets up its own echo-chamber.
+ - I haven’t got any special religion this morning. My God is the God of Walkers. If you walk hard enough, you probably don’t need any other god.
+ - The song and the land are one.
+ - And when you look along the way we’ve come, there are spirals of vultures wheeling.
+ - Proust, more perspicaciously than any other writer, reminds us that the ‘walks’ of childhood form the raw material of our intelligence.
+ - As a general rule of biology, migratory species are less ‘aggressive’ than sedentary ones.
+ - I will go to France, to Yugoslavia, to China and continue my profession. ‘As sanitary engineer?’ No, Monsieur. As adventurer. I will see all the peoples and all the countries in the world.
+ - A journey is a fragment of Hell.
+ - I slept in black tents, blue tents, skin tents, yurts of felt and windbreaks of thorns. One night, caught in a sandstorm in the Western Sahara, I understood Muhammed’s dictum, ‘A journey is a fragment of Hell.’
+ - Sluggish and sedentary peoples, such as the Ancient Egyptians – with their concept of an afterlife journey through the Field of Reeds – project on to the next world the journeys they failed to make in this one.
+ - As you go along, you literally collect places. I’m fed up with going to places; I shan’t go to anymore.
+ - Richard Lee calculated that a Bushman child will be carried a distance of 4,900 miles before he begins to walk on his own. Since, during this rhythmic phase, he will be forever naming the contents of his territory, it is impossible he will not become a poet.
+ - I learned about Chinese ceramics and African sculptures, I aired my scanty knowledge of the French Impressionists, and I prospered.
+ - The word story is intended to alert the reader to the fact that, however closely the narrative may fit the facts, the fictional process has been at work.
+ - Even today, when an Aboriginal mother notices the first stirrings of speech in her child, she lets it handle the things of that particular country: leaves, fruit, insects and so forth. We give our children guns and computer games, Wendy said. They gave their children the land.
+ - Anything was better than to be loved for one’s things.
+ - Because they knew each other’s thoughts, they even quarrelled without speaking.
+
+28 quotes

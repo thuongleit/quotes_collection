@@ -1,0 +1,86 @@
+ - You either have to be first, best, or different.
+ - How do you measure your value?
+ - I love people and I love to sing, and that’s what keeps me going.
+ - In the long run, you make your own luck – good, bad, or indifferent.
+ - It’s important that you take care of yourself and blow off steam in the right way. Don’t let some woman walk in and say, “hey, goodbye!” and take your man. Kill her if you can! I’m only kidding.
+ - You’ve got to continue to grow, or you’re just like last night’s cornbread – stale and dry.
+ - Doo never actually made moonshine, but he hauled about an ocean of it.
+ - Nobody’s perfect. The only one that ever was, was crucified.
+ - I want more out of life than I’ve gotten.
+ - My attitude toward men who mess around is simple: If you find ’em, kill ’em.
+ - Do the best you can with yourself and hope for the best.
+ - You have to be different, great or first.
+ - I believe in education and wish I had a better one.
+ - I never knew any Jews until I got into show business. I’ve found them to be real smart and good workers.
+ - Daddy was real gentle with kids. That’s why I expected so much out of marriage, figuring that all men should be steady and pleasant.
+ - I refuse to be pushed around anymore.
+ - When all those city folks try to fix up my talking, all they do is mess me up.
+ - I didn’t know how babies were made until I was pregnant with my fourth child.
+ - I won all the blue ribbons for canning at the state fair.
+ - The country is making a big mistake not teaching kids to cook and raise a garden and build fires.
+ - I believe in horoscopes. I was born under the sign of the Ram, which means I’m headstrong, don’t like people telling me what to do.
+ - I don’t go to church regular. But I pray for answers to my problems.
+ - My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.
+ - I ain’t got much education, but I got some sense.
+ - We used to go around tipping outhouses over, or turning over corn shocks on Halloween. Anything to be mean.
+ - We still lend our old house out to relatives. They keep a guest book for my fans to sign.
+ - I’m trying to lead a good Christian life, so there ain’t too much spicy to tell about me.
+ - My life has run from misery to happiness.
+ - I get along with all the women singers, but especially Dolly Parton. We talk the same hillbilly language.
+ - Because Olivia Newton-John wasn’t from Nashville, they didn’t like her winning our awards. I’ve got no complaints.
+ - There’s more women stars in Nashville all the time. They’re proving they can do the job the same as a man.
+ - I’m not a big fan of Women’s Liberation, but maybe it will help women stand up for the respect they’re due.
+ - My mother used to paper pictures from movie magazines on the wall of her bedroom. When I was born, she looked at those pictures to decide on a name for me. Claudette Colbert’s picture was up there and so was Loretta Young’s. She decided Loretta was the prettiest name, so I was named after her.
+ - You get used to sadness, growing up in the mountains, I guess.
+ - I loved being outside. We’d hold lightning bugs in our fingers and pretend they were diamond rings.
+ - Who wants to be married to a grandfather?
+ - I had more verses. Owen Bradley said, ‘Loretta, there’s already been one El Paso and we’ll never have another one. Get in that room and start taking some of those verses off.’ Yeah, I took six verses off.
+ - If I had a chance to do things over again, I might not start singing. It was my husband Doolittle’s idea. He pushed me out there, the booger. And I’m out there now, so I might as well make the best of it.
+ - I wouldn’t have dared ask God for all that He’s given me. I couldn’t have done it on my own. I thank God every day for what I have.
+ - I’m proud of being part Cherokee, and I think it’s time all us Indians felt the same way.
+ - Doolittle looked just like a little toy soldier the first time I ever saw him.
+ - I’ve been married to the same man for all this time. The way we fight sometimes, you can tell.
+ - Growing up in eastern Kentucky like I did, I’m used to having a few guns around to protect me.
+ - Being on stage is the best part of my career. I just say whatever comes into my head. It’s the only time I feel grown-up and in control of things.
+ - Sometimes they work, and sometimes they just won’t. Sometimes you get hung up on them. When that happens, you just throw it back, and maybe come back to it two or three weeks later.
+ - I was married when I wasn’t quite 14 and had four babies by the time I was 18.
+ - I’m always making Butcher Holler sound like the most backward part of the United States-and I think maybe it is.
+ - I know what it’s like to be pregnant and nervous and poor.
+ - Some of my friends who know me best say they wouldn’t trade places with me for $1 million because of the pace I lead.
+ - When I first came to Nashville, people hardly gave country music any respect. We lived in old cars and dirty hotels, and we ate when we could.
+ - I’d love to work more with the American Indians, my people.
+ - A lot of people say I’d miss show business if I quit. I’d miss some of it. Now it’s the only life I know.
+ - I’ve seen country music go uptown, like we say, and I’m proud I was there when it happened.
+ - Write about the truth. If you write about the truth, somebody’s living that. Not just somebody, there’s a lot of people.
+ - I’ve been around a long time, and life still has a whole lot of surprises for me.
+ - Me and my partner, Conway Twitty, cleaned up at the 1972 Country Music Association Awards.
+ - I’ve always been full of nervous energy, but I’m not really as happy as I seem.
+ - I know there’s some kind of history to mountain music-like it came from Ireland or England or Scotland and we kept up the tradition.
+ - Mommy smoked but she didn’t want us to. She saw smoke coming out of the barn one time, so we got whipped.
+ - I’d love to travel to the Holy Land.
+ - When something is bothering me, I write a song that tells my feelings.
+ - A woman’s two cents worth is worth two cents in the music business.
+ - You ain’t supposed to get salmon when they’re swimming upstream to spawn. But if you’re hungry, you do.
+ - I never knew where babies came from until it happened to me.
+ - Why leave the nut you got for one you don’t know?
+ - You’re the reason our kids are ugly.
+ - I wasn’t for Vietnam. When I told that to the hippie newspaper, all my people got nervous.
+ - I never rode in an automobile until I was 12.
+ - Really, I don’t know what I’d do with myself if I retire. Wash dishes?
+ - I’ve seen every highway in the United States, and they all look alike to me.
+ - When I’d tell people I like country music they’d get this look on their faces. People were kind of ashamed of country.
+ - The night I announced I was getting married, Daddy paced for hours on the porch.
+ - Once in a while I get inspired and finish my act with the hillbilly hoedown.
+ - I try to visit people in hospitals when I can, smiling and joking while I’m there. But when I leave, I just start crying.
+ - There’s always been a man telling me what to do.
+ - If anyone asks how old I am, tell them it’s none of their business!
+ - There’s never going to be another Patsy Cline. Without her, I don’t think I would have lasted.
+ - I avoid going through places where there’s too much poverty.
+ - I was the first woman ever named Entertainer of the Year in country music.
+ - I don’t like to talk about things where you’re going to gt one side or the other unhappy. My music has no politics.
+ - I think Charley Pride has been one of the best things to happen to country music, to prove it belongs to everybody.
+ - I think I reach people because I’m with them, not apart from them.
+ - All music is based on country music. And that’s why so many different kinds of people relate to it. There are more country music fans in New Jersey than there are down South.
+ - I came out the back of the building and I was hollering, ‘I’ve sung on the Grand Ole Opry! I’ve sung on the Grand Ole Opry!’
+
+84 quotes

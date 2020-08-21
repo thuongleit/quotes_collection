@@ -1,0 +1,23 @@
+ - Be different, be altruistic. Be strange, work for others in response to their harm. Raise eyebrows, be generous without agenda.
+ - The next time you face a challenge, remember that the cost of success is far cheaper than the price of failure.
+ - When others put you down for who you are or what you’re doing, it just means that you’re going in the right direction.
+ - Not everyone can see things the way you see it, so let go. You can’t see everything the way they see it either, so let go again.
+ - A persons outer action reflects their inner mind.
+ - What you are today is the choice you made yesterday.
+ - Envy and jealousy are very harmful because you are never ever satisfied with what you have and you never reflect on what you have. You constantly live your life on what you do not have.
+ - Being humble doesn’t mean you lose; it means you have won. Give the victory to others.
+ - You are your dreams. Your dreams are what you can become, so don’t stop dreaming and believing. Just Do It!
+ - If being me offends you, maybe I’m not the problem.
+ - If we do not create inner peace, outer peace is not possible.
+ - We must be open to our mistakes and grow. Growth isn’t based on being perfect, but moving toward the best we can be by being honest.
+ - Consistency in life is so important for success. It stems from taking what we are doing seriously.
+ - A monk is holy and great until he starts teaching you the real Dharma.
+ - If you say you don’t have money to help a animal shelter, why then do you have money to buy meat?
+ - Don’t call for a revolution, but look at yourself honestly and create an evolution.
+ - Feeling sorry for yourself for one single minute is okay, but spend all your remaining time on solutions.
+ - Don’t hang on to your failures, because you can always try again. Trying gives hope. Hope gives us life.
+ - Eating animals is not our God-given right, but being kind to them is.
+ - Find yourself. Be with yourself. Fail and then achieve.
+ - The minute you say “I can’t”, it is another wrong affirmation to your subconscious that you choose to lose.
+
+21 quotes

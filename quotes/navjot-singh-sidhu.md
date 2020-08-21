@@ -1,0 +1,37 @@
+ - Nothing ventured, nothing gained. And venture belongs to the adventurous.
+ - Beware of the naked man who offers you his shirt.
+ - You can’t play a symphony alone, it takes an orchestra to play it.
+ - Anybody can pilot a ship when the sea is calm.
+ - There are 2 types of captains in World Cricket. One is MS Dhoni and the other are the all others.
+ - There is light at the end of the tunnel for India, but it’s that of an oncoming train which will run them over.
+ - Statistics are like miniskirts, they reveal more than what they hide.
+ - One who doesn’t throw the dice can never expect to score a six.
+ - It’s always darkest before the dawn. So if you’re going to steal your neighbor’s newspaper, that’s the time to do it.
+ - Experience is like a comb that life gives you when you are bald.
+ - Rahul Dravid is a player who would walk on broken glass if his team asks him to.
+ - The cat with gloves catches no mice.
+ - A revolutionary idea is usually one with its sleeves rolled up.
+ - Nobody travels on the road to success without a puncture or two.
+ - An optimist sees the doughnut; the pessimist sees the whole.
+ - You got to choose between tightening your belt or losing your pants.
+ - A fallen lighthouse is more dangerous than a reef.
+ - The Bengal tiger always has his tail up, ready to devour the opposition.
+ - When you are dining with a demon, you got to have a long spoon.
+ - Sehwag is a miracle, Sehwag is an institution.
+ - Keep feeding your faith until your doubts starves to death.
+ - India me aap Prime Minister ko ek baar katghare me khada kar sakte hain. Par Sachin Tendulkar par ungli nahi utha Sakte.
+ - Wickets are like wives, you never know which way they will turn!
+ - It is better to ride a pony than a horse which throws you.
+ - If the heavens throw you dates, you got to keep your mouth open.
+ - The ball whizzes past like a bumblebee and the Indians are in the sea.
+ - It’s like the brooding hen sitting over a china egg.
+ - We are all Adam’s children – it’s just the skin that makes all the difference.
+ - I am a sepoy and will follow the guidance of my leaders.
+ - Age has been the perfect fire extinguisher for flaming youth.
+ - We’ll take the cake with the red cherry on top.
+ - The third umpires should be changed as often as nappies and for the same reason.
+ - The Indians are finding the gaps like a pin in a haystack.
+ - I have seen many ladies displaying different styles and different styles displaying ladies.
+ - After marriage, the other man’s wife looks more beautiful.
+
+35 quotes

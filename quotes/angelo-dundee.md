@@ -1,0 +1,23 @@
+ - It doesn’t cost anything more to be nice.
+ - Notice who is in the locker room after you lose, not after you win.
+ - You’re blowing it, son! You’re blowing it!
+ - Criticism is okay, encouragement is better!
+ - In all my years in boxing I’d never known such heat.
+ - Both guys ran out of gas, only my guy had an extra tank.
+ - There are positive and negative thoughts. And, hey, it doesn’t cost you a cent more to think positively .
+ - Training fighters is like trying to catch a fish. It’s technique, not strength.
+ - The nearest I have ever seen to the great Willie Pep.
+ - What’s his name? I tried to forget him because if he would have fought like he worked with my guy he would have knocked the guy out.
+ - Joe Louis, to me, was the finest human being God put on this earth in every way.
+ - The match would have to be made at 165 pounds. Sean can’t make 160 any more, even though he’s drinking lite beer these days.
+ - This kid deserves anything good that happens to him. He’s such a good guy. He’s just the nicest human being you want to meet.
+ - Trainers give of themselves. So, I learned and I projected it with my fighter.
+ - Any fighter didn’t like Muhammad Ali should have his head examined.
+ - My kid could move like a lightweight.
+ - I just put the reflexes in the proper direction.
+ - Muhammad aware of what to look for and he handled it on his own. He did his own thing. I never programmed him.
+ - He would have beat everybody because we’d have found a way to beat him.
+ - I loved the movie for the simple reason that I saw the scenes and I saw Muhammad working with these guys.
+ - I never knew about a lot of the outside things.
+
+21 quotes

@@ -1,0 +1,54 @@
+ - Everything turns out to be valuable that one does for one’s self without thought of profit.
+ - The mask, given time, comes to be the face itself.
+ - Translating is writing.
+ - A touch of madness is, I think, almost always necessary for constructing a destiny.
+ - There are books which one should not attempt before having passed the age of forty.
+ - Love is a punishment. We are punished for not having been strong enough to remain alone.
+ - When two texts, or two assertions, perhaps two ideas, are in contradiction, be ready to reconcile them rather than cancel one by the other; regard them as two different facets, or two successive stages, of the same reality, a reality convincingly human just because it is too complex.
+ - I knew that good like bad becomes a routine, that the temporary tends to endure, that what is external permeates to the inside, and that the mask, given time, comes to be the face itself.
+ - All happiness is a form of innocence.
+ - I could say that all my books were conceived by the time I was twenty, although they were not to be written for another thirty or forty years. But perhaps this is true of most writers – the emotional storage is done very early on.
+ - The memory of most men is an abandoned cemetery where lie, unsung and unhonored, the dead whom they have ceased to cherish. Any lasting grief is reproof to their neglect.
+ - All happiness is a work of art: the smallest error falsifies it, the slightest hesitation alters it, the least heaviness spoils it, the slightest stupidity brutalizes it.
+ - We say: mad with joy. We should say: wise with grief.
+ - The true birthplace is that wherein for the first time one looks intelligently upon oneself; my first homelands have been books, and to a lesser degree schools.
+ - To stay in one place and watch the seasons come and go is tanatmount to constant travel: One is traveling with the earth.
+ - Every invalid is a prisoner.
+ - Books are not life, only its ashes.
+ - Everything is too far away in the past, or mysteriously too close.
+ - Laws change more slowly than custom, and though dangerous when they fall behind the times are more dangerous still when they presume to anticipate custom.
+ - No one understands eternity. One simply recognizes its existence.
+ - Every hour has its immediate duty, its special injunction which dominates all others...
+ - He had reached that moment in life, different for each one of us, when a man abandonds himself to his demon or to his genius, following a mysterious law which bids him either to destroy or outdo himself.
+ - The written word has taught me to listen to the human voice, much as the great unchanging statues have taught me to appreciate bodily motions.
+ - I am not sure that the discovery of love is necessarily more exquisite than the discovery of poetry.
+ - In the evenings the art of building gave way to that of music, which is architecture, too, though invisible.
+ - This city belongs to ghosts, to murderers, to sleepwalkers. Where are you, in what bed, in what dream?
+ - One reads thousands of books, of poets, modern and ancient, as one meets thousands of people. What remains of it all is hard to tell.
+ - It is not difficult to nourish admirable thoughts when the stars are present.
+ - I believe that friendship, like love, of which it is a particular kind, requires nearly as much art as a successful choreography.
+ - But happiness is brittle, and if men and circumstances don’t destroy it, it is threatened by ghosts.
+ - I have never seasoned a truth with the sauce of a lie in order to digest it more easily.
+ - On the whole, however, it is only out of pride or gross ignorance, or cowardice, that we refuse to see in the present the lineaments of times to come.
+ - Morals are a matter of private agreement; decency is of public concern.
+ - Do not mistake me. I am not yet weak enough to yield to fearful imaginings, which are almost as absurd as illusions of hope, and are certainly harder to bear. If I must deceive myself, I should prefer to stay on the side of confidence, for I shall lose no more there and shall suffer less.
+ - Our great mistake is to try to exact from each person virtues which he does not possess, and to neglect the cultivation of those which he has.
+ - Leaving behind books is even more beautiful – there are far too many children.
+ - Any truth creates a scandal.
+ - Men who care passionately for women attach themselves at least as much to the temple and to the accessories of the cult as to their goddess herself.
+ - Since man, fragment of the universe, is governed by the same laws that preside over the heavens, it is by no means absurd to search there above for the themes of our lives, for those frigid sympathies that participate in our achievements as well as our blunderings.
+ - This morning it occurred to me for the first time that my body, my faithful companion and friend, truer and better known to me than my own soul, may be after all only a sly beast who will end by devouring his master.
+ - A being afire with life cannot foresee death; in fact, by each of his deeds he denies that death exists.
+ - The American child, driven to school by bus and stupefied by television, is losing contact with reality. There is an enormous gap between the sheer weight of the textbooks that he carries home from school and his capacity to interpret what is in them.
+ - Cruelty is the luxury of those who have nothing to do, like drugs or racing stables.
+ - Of all our games, love’s play is the only one which threatens to unsettle the soul...
+ - Everything that we do affects our fate for better or for worse. The circumstances into which we are born also exert a tremendous influence; we come into the world with debits and credits for which we are not responsible already posted to our account: this teaches us humility.
+ - Passion such as hers is all consent, asking little in return. I had merely to enter a room where she was to see her face take on that peaceful expression of one who is resting in bed. If I touched her, I had the impression that all the blood in her veins was turning to honey.
+ - Want of passion is, I think, a very striking characteristic of Americans, not unrelated to their predilection for violence. For very few people truly have a passionate desire to achieve, and violence serves as a kind of substitute.
+ - I have come to think that great men are characterized precisely by the extreme position which they take, and that their heroism consists in holding to that extremity throughout their lives.
+ - A young musician plays scales in his room and only bores his family. A beginning writer, on the other hand, sometimes has the misfortune of getting into print.
+ - I think still that someone wiser than I might well have remained happy till his death.
+ - For me, a poet is someone who is ‘in contact.’ Someone through whom a current is passing.
+ - Writing is a perpetual choice between a thousand expressions, none of which satisfies me, none of which, above all, satisfies me without the others. Yet I ought to know that only music permits a succession of chords.
+
+52 quotes

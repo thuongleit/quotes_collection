@@ -1,0 +1,502 @@
+ - The whole problem with the world is that fools and fanatics are always so certain of themselves, and wiser people so full of doubts.
+ - The time you enjoy wasting is not wasted time.
+ - Mathematics rightly viewed possesses not only truth but supreme beauty.
+ - The good life is one inspired by love and guided by knowledge.
+ - No great achievement is possible without persistent work.
+ - Do not fear to be eccentric in opinion, for every opinion now accepted was once eccentric.
+ - Fear is the main source of superstition, and one of the main sources of cruelty. To conquer fear is the beginning of wisdom.
+ - I would never die for my beliefs because I might be wrong.
+ - Three passions, simple but overwhelmingly strong, have governed my life: the longing for love, the search for knowledge, and unbearable pity for the suffering of mankind.
+ - Love is wise – Hatred is foolish.
+ - Remember your humanity, and forget the rest.
+ - The hardest thing to learn in life is which bridge to cross and which to burn.
+ - Men are born ignorant, not stupid. They are made stupid by education.
+ - The trouble with the world is that the stupid are cocksure and the intelligent are full of doubt.
+ - One of the symptoms of an approaching nervous breakdown is the belief that one’s work is terribly important.
+ - There are two motives for reading a book: one, that you enjoy it; the other, that you can boast about it.
+ - Mathematics is only the art of saying the same thing in different words.
+ - Science may set limits to knowledge, but should not set limits to imagination.
+ - To understand the actual world as it is, not as we should wish it to be, is the beginning of wisdom.
+ - It’s coexistence or no existence.
+ - We must be sceptical even of our scepticism.
+ - I did not, however, commit suicide, because I wished to know more of mathematics.
+ - Even if the open windows of science at first make us shiver after the cozy indoor warmth of traditional humanizing myths, in the end the fresh air brings vigor, and the great spaces have a splendor of their own.
+ - I am not myself in any degree ashamed of having changed my opinions.
+ - Unless you assume a God, the question of life’s purpose is meaningless.
+ - In all affairs it’s a healthy thing now and then to hang a question mark on the things you have long taken for granted.
+ - Mathematics may be defined as the subject in which we never know what we are talking about, nor whether what we are saying is true.
+ - The greatest challenge to any thinker is stating the problem in a way that will allow a solution.
+ - Beggars do not envy millionaires, though of course they will envy other beggars who are more successful.
+ - While economics is about how people make choice, sociology is about how they don’t have any choice to make.
+ - A stupid man’s report of what a clever man says can never be accurate, because he unconsciously translates what he hears into something he can understand.
+ - Really high-minded people are indifferent to happiness, especially other people’s.
+ - The only thing that will redeem mankind is cooperation.
+ - Only mathematics and mathematical logic can say as little as the physicist means to say.
+ - Science is what you know, philosophy is what you don’t know.
+ - Why repeat the old errors, if there are so many new errors to commit?
+ - It seems to me a fundamental dishonesty, and a fundamental treachery to intellectual integrity to hold a belief because you think it’s useful and not because you think it’s true.
+ - The world is full of magical things patiently waiting for our wits to grow sharper.
+ - Religion is something left over from the infancy of our intelligence, it will fade away as we adopt reason and science as our guidelines.
+ - A smile happens in a flash, but its memory can last a lifetime.
+ - Every great idea starts out as a blasphemy.
+ - Organized people are just too lazy to look for things.
+ - To fear love is to fear life, and those who fear life are already three parts dead.
+ - Collective fear stimulates herd instinct, and tends to produce ferocity toward those who are not regarded as members of the herd.
+ - One must care about a world one will not see.
+ - Thought is subversive and revolutionary, destructive and terrible, Thought is merciless to privilege, established institutions, and comfortable habit. Thought is great and swift and free.
+ - If I were a medical man, I should prescribe a holiday to any patient who considered his work important.
+ - Of course not. After all, I may be wrong.
+ - Without civic morality communities perish; without personal morality their survival has no value.
+ - One should respect public opinion insofar as is necessary to avoid starvation and keep out of prison, but anything that goes beyond this is voluntary submission to an unnecessary tyranny.
+ - Diversity is essential to happiness and in Utopia there is hardly any. This is a defect in all planned social systems.
+ - The more you complain the longer God lets you live.
+ - Orthodoxy is the death of intelligence.
+ - Punctuality is a quality the need of which is bound up with social co-operation.
+ - Man is a rational animal. So at least we have been told. Throughout a long life I have searched diligently for evidence in favor of this statement. So far, I have not had the good fortune to come across it.
+ - One of the painful things about our time is that those who feel certainty are stupid, and those with any imagination and understanding are filled with doubt and indecision.
+ - Why is propaganda so much more successful when it stirs up hatred than when it tries to stir up friendly feeling?
+ - What hunger is in relation to food, zest is in relation to life.
+ - To be without some of the things you want is an indispensable part of happiness.
+ - When one admits that nothing is certain one must, I think, also admit that some things are much more nearly certain than others.
+ - The modern man thinks that everything ought to be done for the sake of something else, and never for its own sake.
+ - The observer, when he seems to himself to be observing a stone, is really, if physics is to be believed, observing the effects of the stone upon himself.
+ - Anything you’re good at contributes to happiness.
+ - Laughter is the most inexpensive and most effective wonder drug. Laughter is a universal medicine.
+ - I don’t care for the applause one gets by saying what others are thinking; I want actually to change people’s thoughts. Power over people’s minds is the main personal desire of my life; and this sort of power is not acquired by saying popular things.
+ - A smell of petroleum prevails throughout.
+ - Everything is vague to a degree you do not realize till you have tried to make it precise.
+ - Patriots always talk of dying for their country and never of killing for their country.
+ - Worry is a form of fear, and all forms of fear produce fatigue. A man who has learned not to feel fear will find the fatigue of daily life enormously diminished.
+ - Love is a little haven of refuge from the world.
+ - The fundamental concept in social science is Power, in the same sense in which Energy is the fundamental concept in physics.
+ - What the world needs is not dogma but an attitude of scientific inquiry.
+ - The legacy of Greece to Western philosophy is Western philosophy.
+ - Through the greatness of the universe, which philosophy contemplates, the mind also is rendered great, and becomes capable of that union with the universe which constitutes its highest good.
+ - There is something feeble and a little contemptible about a man who cannot face the perils of life without the help of comfortable myths.
+ - Love should be a tree whose roots are deep in the earth, but whose branches extend into heaven.
+ - The sea, the stars, the night wind in waste places, mean more to me than even the human beings I love best.
+ - When conscious activity is wholly concentrated on some one definite purpose, the ultimate result, for most people, is lack of balance accompanied by some form of nervous disorder.
+ - I believe that when I die I shall rot, and nothing of my ego will survive.
+ - Extreme hopes are born from extreme misery.
+ - A life devoted to science is therefore a happy life, and its happiness is derived from the very best sources that are open to dwellers on this troubled and passionate planet.
+ - Science does not aim at establishing immutable truths and eternal dogmas; its aim is to approach the truth by successive approximations, without claiming that at any stage final and complete accuracy has been achieved.
+ - Of all forms of caution, caution in love is perhaps the most fatal to true happiness.
+ - Most of the greatest evils that man has inflicted upon man have come through people feeling quite certain about something which, in fact, was false.
+ - The human heart as modern civilization has made it is more prone to hatred than to friendship. And it is prone to hatred because it is dissatisfied.
+ - The free intellect is the chief engine of human progress.
+ - I think it would be just to say the most essential characteristic of mind is memory, using this word in its broadest sense to include every influence of past experience on present reactions.
+ - The most valuable things in life are not measured in monetary terms. The really important things are not houses and lands, stocks and bonds, automobiles and real state, but friendships, trust, confidence, empathy, mercy, love and faith.
+ - Freedom of opinion can only exist when the government thinks itself secure.
+ - The secret of happiness is this: let your interests be as wide as possible, and let your reactions to the things and persons that interest you be as far as possible friendly rather than hostile.
+ - To save the world requires faith and courage: faith in reason, and courage to proclaim what reason shows to be true.
+ - The time has come, or is about to come, when only large-scale civil disobedience, which should be nonviolent, can save the populations from the universal death which their governments are preparing for them.
+ - A good man will never suspect his friends of shady actions: this is part of his goodness. A good man will never be suspected by the public of using his goodness to screen villains: this is part of his utility.
+ - A habit of basing convictions upon evidence, and of giving to them only that degree or certainty which the evidence warrants, would, if it became general, cure most of the ills from which the world suffers.
+ - Cynicism such as one finds very frequently among the most highly educated young men and women of the West, results from the combination of comfort and powerlessness.
+ - The man who has fed the chicken every day throughout its life at last wrings its neck instead, showing that more refined views as to the uniformity of nature would have been useful to the chicken.
+ - Ordinary language is totally unsuited for expressing what physics really asserts, since the words of everyday life are not sufficiently abstract. Only mathematics and mathematical logic can say as little as the physicist means to say.
+ - There is as much difference between a collection of mentally free citizens and a community molded by modern methods of propaganda as there is between a heap of raw materials and a battleship.
+ - Hitler is an outcome of Rousseau.
+ - A man of Seville is shaved by the Barber of Seville if and only if the man does not shave himself. Does the barber shave himself?
+ - It’s not what you have lost, but what you have left that counts.
+ - Life is nothing but a competition to be the criminal rather than the victim.
+ - Dogmatism and skepticism are both, in a sense, absolute philosophies; one is certain of knowing, the other of not knowing. What philosophy should dissipate is certainty, whether of knowledge or ignorance.
+ - The road to happiness and prosperity lies in an organized diminution of work.
+ - To be able to concentrate for a considerable time is essential to difficult achievement.
+ - People are zealous for a cause when they are not quite positive that it is true.
+ - The experience of overcoming fear is extraordinarily delightful.
+ - The megalomaniac differs from the narcissist by the fact that he wishes to be powerful rather than charming, and seeks to be feared rather than loved. To this type belong many lunatics and most of the great men of history.
+ - Philosophy bakes no bread.
+ - I think modern educational theorists are inclined to attach too much importance to the negative virtue of not interfering with children, and too little to the positive merit of enjoying their company.
+ - No matter how eloquently a dog may bark, he cannot tell you that his parents were poor, but honest.
+ - Do not feel envious of the happiness of those who live in a fool’s paradise, for only a fool will think that is happiness.
+ - Formality Thus the absence of all mention of particular things or properties in logic or pure mathematics is a necessary result of the fact that this study is, as we say, “purely formal”.
+ - Mathematics is, I believe, the chief source of the belief in eternal and exact truth, as well as a sensible intelligible world.
+ - Of all evils of war the greatest is the purely spiritual evil: the hatred, the injustice, the repudiation of truth, the artificial conflict.
+ - The rules of logic are to mathematics what those of structure are to architecture.
+ - Democracy has at least one merit, namely that a Member of Parliament cannot be stupider than his constituents, for the more stupid he is, the more stupid they were to elect him.
+ - Language serves not only to express thought but to make possible thoughts which could not exist without it.
+ - Education ought to foster the wish for truth, not the conviction that some particular creed is the truth.
+ - A happy life must be to a great extent a quiet life, for it is only in an atmosphere of quiet that true joy dare live.
+ - I am allowed to use plain English because everybody knows that I could use mathematical logic if I chose.
+ - The essence of the liberal outlook lies not in what opinions are held, but in how they are held; instead of being held dogmatically, they are held tentatively, and with a consciousness that new evidence may at any moment lead to their abandonment.
+ - The luxury to disparage freedom is the privilege of those who already possess it.
+ - An individual human existence should be like a river.
+ - The pure mathematician, like the musician, is a free creator of his world of ordered beauty.
+ - Teachers are more than any other group the guardians of civilization.
+ - Perhaps the best hope for the future of mankind is that ways will be found of increasing the scope and intensity of sympathy.
+ - Calculus required continuity, and continuity was supposed to require the infinitely little; but nobody could discover what the infinitely little might be.
+ - Life is just one cup of coffee after another, and don’t look for anything else.
+ - If all our happiness is bound up entirely in our personal circumstances it is difficult not to demand of life more than it has to give.
+ - Brief and powerless is man’s life; on him and all his race the slow, sure doom falls pitiless and dark.
+ - The scientific attitude of mind involves a sweeping away of all other desires in the interest of the desire to know.
+ - What men really want is not knowledge but certainty.
+ - Envy is the basis of democracy.
+ - Power is sweet; it is a drug, the desire for which increases with a habit.
+ - Love can flourish only as long as it is free and spontaneous; it tends to be killed by the thought of duty. To say that it is your duty to love so-and-so is the surest way to cause you to hate him of her.
+ - More important than the curriculum is the question of the methods of teaching and the spirit in which the teaching is given.
+ - My own view on religion is that of Lucretius. I regard it as a disease born of fear and as a source of untold misery to the human race.
+ - The degree of one’s emotions varies inversely with one’s knowledge of the facts.
+ - Some people would rather die than think.
+ - Logic must no more admit a unicorn than zoology can.
+ - I do not believe that science per se is an adequate source of happiness, nor do I think that my own scientific outlook has contributed very greatly to my own happiness, which I attribute to defecating twice a day with unfailing regularity.
+ - The morality of work is the morality of slaves, and the modern world has no need of slavery.
+ - All exact science is dominated by the idea of approximation.
+ - As soon as we abandon our reason and are content to rely on authority, there is no end to our troubles.
+ - My first advice on how not to grow old would be to choose you ancestors carefully.
+ - Choose your parents wisely.
+ - Mankind has become so much one family that we cannot insure our own prosperity except by insuring that of everyone else.
+ - HELL: A place where the police are German, the motorists French and the cooks English.
+ - Skilled work, of no matter what kind, is only done well by those who take a certain pleasure in it, quite apart from its utility, either to themselves in earning a living, or to the world through its outcome.
+ - Nothing is so exhausting as indecision, and nothing is so futile.
+ - Either man will abolish war, or war will abolish man.
+ - We all have a tendency to think that the world must conform to our prejudices. The opposite view involves some effort of thought, and most people would die sooner than think in fact they do so.
+ - It seems to be the fate of idealists to obtain what they have struggled for in a form which destroys their ideals.
+ - The resistance to a new idea increases by the square of its importance.
+ - Ethics is in origin the art of recommending to others the sacrifices required for cooperation with oneself.
+ - Drunkeness is temporary suicide: the happiness that it brings is merely negative, a momentary cessation of unhappiness.
+ - The dictum that human nature cannot be changed is one of those tiresome platitudes that conceal from the ignorant the depths of their own ignorance.
+ - The secret to happiness is to face the fact that the world is horrible.
+ - The best practical advice I can give to the present generation is to practice the virtue which the Christians call love.
+ - Never let yourself be diverted, either by what you wish to believe, or what you think could have beneficent social effects if it were believed; but look only and solely at what are the facts.
+ - Escape from boredom is one of the really powerful desires of almost all human beings.
+ - The three main extra-rational activities in modern life are religion, war, and love. all these are extra-rational, but love is not anti-rational, that is to say, a reasonable man may reasonably rejoice in its existence.
+ - Humanistic ethics is based on the principle that only humans themselves can determine the criterion for virtue and not an authority transcending us.
+ - Both in thought and in feeling, even though time be real, to realise the unimportance of time is the gate of wisdom.
+ - Great God in Boots! – the ontological argument is sound!
+ - Without effort and change, human life cannot remain good. It is not a finished Utopia that we ought to desire, but a world where imagination and hope are alive and active.
+ - Fanaticism is the danger of the world, and always has been, and has done untold harm. I might almost say that I was fanatical against fanaticism.
+ - The true spirit of delight, the exaltation, the sense of being more than Man, which is the touchstone of the highest excellence, is to be found in mathematics as surely as poetry.
+ - It is only through imagination that men become aware of what the world might be; without it, ‘progress’ would become mechanical and trivial.
+ - Everybody can do something toward creating in his own environment kindly feelings rather than anger, reasonableness rather than hysteria, happiness rather than misery.
+ - Men who are unhappy, like men who sleep badly, are always proud of the fact.
+ - All’s well that ends well; which is the epitaph I should put on my tombstone if I were the last man left alive.
+ - We know very little, and yet it is astonishing that we know so much, and still more astonishing that so little knowledge can give us so much power.
+ - Aristotle and Plato considered Greeks so innately superior to barbarians that slavery is justified so long as the master is Greek and the slave barbarian.
+ - The desire to understand the world and the desire to reform it are the two great engines of progress, without which human society would stand still or retrogress. It’s coexistence or no existence.
+ - Stupidity and unconscious bias often work more damage than venality.
+ - I did not know I loved you until I heard myself telling so, for one instance I thought, “Good God, what have I said?” and then I knew it was true.
+ - There is an element of the busybody in our conception of virtue: unless a man makes himself a nuisance to a great many people, we do not think he can be an exceptionally good man.
+ - It’s easy to fall in love. The hard part is finding someone to catch you.
+ - Marriage is for women the commonest mode of livelihood, and the total amount of undesired sex endured by women is probably greater in marriage than in prostitution.
+ - We do not like to be robbed of an enemy; we want someone to hate when we suffer. It is so depressing to think that we suffer because we are fools; yet, taking mankind in the mass, that is the truth.
+ - Obviousness is always the enemy of correctness.
+ - There is darkness without and when I die there will be darkness within. There is no splendor, nor vastness anywhere; only triviality for a moment and then nothing.
+ - Not to be absolutely certain is, I think, one of the essential things in rationality.
+ - A life without adventure is likely to be unsatisfying, but a life in which adventure is allowed to take whatever form it will is sure to be short.
+ - Facts have to be discovered by observation, not by reasoning.
+ - I have sought love because in the union of love I have seen, in a mystic miniature, the prefiguring vision of the heaven the saints and poets have imagined.
+ - Change is scientific; progress is ethical; change is indubitable, whereas progress is a matter of controversy.
+ - I dislike Communism because it is undemocratic, and capitalism because it favors exploitation.
+ - No satisfaction based upon self-deception is solid, and however unpleasant the truth may be, it is better to face it once and for all, to get used to it, and to proceed to build your life in accordance with it.
+ - Do not use power to suppress opinions you think pernicious, for if you do the opinions will suppress you.
+ - Philosophy, though unable to tell us with certainty what is the true answer to the doubts which it raises, is able to suggest many possibilities which enlarge our thoughts and free them from the tyranny of custom.
+ - My whole religion is this: do every duty, and expect no reward for it, either here or hereafter.
+ - Animal rights, taken to their logical conclusion, mean votes for oysters.
+ - Always remember that true happiness is not in getting what you want, but wanting what you already have. He who dies with the most toys is still dead. What is wanted is not the will to believe, but the will to find out, which is the exact opposite.
+ - I want to say, in all seriousness, that a great deal of harm is being done in the modern world by belief in the virtuousness of WORK, and that the road to happiness and prosperity lies in the organised diminution of work.
+ - Science is no substitute for virtue; the heart is as necessary for a good life as the head.
+ - A proverb is one man’s wit and all men’s wisdom.
+ - Man is a credulous animal, and must believe something; in the absence of good grounds for belief, he will be satisfied with bad ones.
+ - The habit of looking to the future and thinking that the whole meaning of the present lies in what it will bring forth is a pernicious one. There can be no value in the whole unless there is value in the parts.
+ - Drunkenness is temporary suicide.
+ - Machines have altered our way of life, but not our instincts. Consequently, there is maladjustment.
+ - When Benjamin Franklin invented the lightning-rod, the clergy, both in England and America, with enthusiastic support of George III, condemned it as an impious attempt to defeat the will of God.
+ - The fundamental defect of Christian ethics consists in the fact that it labels certain classes of acts ‘sins’ and others ‘virtue’ on grounds that have nothing to do with their social consequences.
+ - I am compelled to fear that science will be used to promote the power of dominant groups rather than to make men happy.
+ - The wise use of leisure, it must be conceded, is a product of civilization and education.
+ - There is much pleasure to be gained from useless knowledge.
+ - It is in our hearts that evil lies, and it is from our hearts that it must be plucked out.
+ - It is possible that mankind is on the threshold of a golden age; but, if so, it will be necessary first to slay the dragon that guards the door, and this dragon is religion.
+ - The wise man will be as happy as circumstances permit, and if he finds the contemplation of the universe painful beyond a point, he will contemplate something else instead.
+ - Psychology often becomes the disease of which it should be the cure.
+ - Dogma demands authority, rather than intelligent thought, as the source of opinion; it requires persecution of heretics and hostility to unbelievers; it asks of its disciples that they should inhibit natural kindliness in favor of systematic hatred.
+ - We know too much and feel too little. At least, we feel too little of those creative emotions from which a good life springs.
+ - The best life is the one in which the creative impulses play the largest part and the possessive impulses the smallest.
+ - Most people believe in God because they have been taught from early infancy to do it, and that is the main reason. Then I think that the next most powerful reason is the wish for safety.
+ - Continuity of purpose is one of the most essential ingredients of happiness in the long run, and for most men that comes chiefly through their work.
+ - A fanatical belief in democracy makes democratic institutions impossible.
+ - For love of domination we must substitute equality; for love of victory we must substitute justice; for brutality we must substitute intelligence; for competition we must substitute cooperation. We must learn to think of the human race as one family.
+ - There lies before us, if we choose, continual progress in happiness, knowledge and wisdom. Shall we instead choose death, because we cannot forget our quarrels? I appeal as a human being to human beings; remember your humanity, and forget the rest.
+ - To expect a personality to survive the disintegration of the brain is like expecting a cricket club to survive when all of its members are dead.
+ - War grows out of ordinary human nature.
+ - Many a man will have the courage to die gallantly, but will not have the courage to say, or even to think, that the cause for which he is asked to die is an unworthy one.
+ - I am paid by the word, so I always write the shortest words possible.
+ - Civilized people cannot fully satisfy their sexual instinct without love.
+ - Whoever wishes to become a philosopher must learn not to be frightened by absurdities.
+ - What the world needs is not dogma but an attitude of scientific inquiry combined with a belief that the torture of millions is not desirable, whether inflicted by Stalin or by a Deity imagined in the likeness of the believer.
+ - The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live.
+ - Among human beings, the subjection of women is much more complete at a certain level of civilization than it is among savages. And the subjection is always reinforced by morality.
+ - If everything has a cause, then God must have a cause. If there can be anything without a cause, it may just be the world as God...
+ - Italy, and the spring and first love all together should suffice to make the gloomiest person happy.
+ - The fact that all Mathematics is Symbolic Logic is one of the greatest discoveries of our age; and when this fact has been established, the remainder of the principles of mathematics consists of the analysis of Symbolic Logic itself.
+ - Too little liberty brings stagnation, and too much brings chaos.
+ - Few people can be happy unless they hate some other person, nation, or creed.
+ - Love is something far more than desire for sexual intercourse; it is the principal means of escape from the loneliness which afflicts most men and women throughout the greater part of their lives.
+ - If there were in the world today any large number of people who desired their own happiness more than they desired the unhappiness of others, we could have a paradise in a few years.
+ - Is a man what he seems to the astronomer, a tiny lump of impure carbon and water crawling impotently on a small and unimportant planet? Or is he what he appears to Hamlet? Is he perhaps both as once?
+ - What is wanted is not the will to believe, but the will to find out, which is the exact opposite.
+ - I believe four ingredients are necessary for happiness: health, warm personal relations, sufficient means to keep you from want, and successful work.
+ - The people who are regarded as moral luminaries are those who forego ordinary pleasures themselves and find compensation in interfering with the pleasures of others.
+ - Memory demands an image.
+ - In the part of this universe that we know there is great injustice, and often the good suffer, and often the wicked prosper, and one hardly knows which of those is the more annoying.
+ - I suppose the advocates of unreason think that there is a better chance of profitably deceiving the populace if they keep it in a state of effervescence.
+ - The twin conceptions of sin and vindictive punishment seem to be at the root of much that is most vigorous, both in religion and politics.
+ - To be able to fill leisure intelligently is the last product of civilization, and at present very few people have reached this level.
+ - Dogmatism is the greatest of mental obstacles to human happiness.
+ - Among the Tibetans, one wife has many husbands, because men are too poor to support a whole wife.
+ - Men fear thought as they fear nothing else on earth – more than ruin, more even than death.
+ - We are faced with the paradoxical fact that education has become one of the chief obstacles to intelligence and freedom of thought.
+ - The atomic bomb embodies the results of a combination genius and patience as remarkable as any in the history of mankind.
+ - None of our beliefs are quite true; all have at least a penumbra of vagueness and error.
+ - Upon hearing via Littlewood an exposition on the theory of relativity: To think I have spent my life on absolute muck.
+ - Freedom in education has many aspects. There is first of all freedom to learn or not to learn. Then there is freedom as to what to learn. And in later education there is freedom of opinion.
+ - Have no respect for the authority of others, for there are always contrary authorities to be found.
+ - Unhappy business men, I am convinced, would increase their happiness more by walking six miles every day than by any conceivable change of philosophy.
+ - If any philosopher had been asked for a definition of infinity, he might have produced some unintelligible rigmarole, but he would certainly not have been able to give a definition that had any meaning at all.
+ - The taboo against nakedness is an obstacle to a decent attitude on the subject of sex.
+ - I’ve made an odd discovery. Every time I talk to a savant I feel quite sure that happiness is no longer a possibility. Yet when I talk with my gardener, I’m convinced of the opposite.
+ - Religion may in most of its forms be defined as the belief that the gods are on the side of the government.
+ - A good world needs knowledge, kindliness, and courage; it does not need a regretful hankering after the past or a fettering of the free intelligence by the words uttered long ago by ignorant men.
+ - Freedom in general may be defined as the absence of obstacles to the realization of desires.
+ - Philosophy is an unusually ingenious attempt to think fallaciously.
+ - As a lover of truth, the national propaganda of all the belligerent nations sickened me. As a lover of civilization, the return to barbarism appalled me.
+ - I think we ought always to entertain our opinions with some measure of doubt. I shouldn’t wish people dogmatically to believe any philosophy, not even mine.
+ - You may, if you are an old-fashioned schoolmaster, wish to consider yourself full of universal benevolence and at the same time derive great pleasure from caning boys. In order to reconcile these two desires you have to persuade yourself that caning.
+ - My doctor said to me afterwards, ‘When you were ill you behaved like a true philosopher. Every time you came to yourself you made a joke.’ I never had a compliment that pleased me more.
+ - Analytic It is clear that the definition of “logic” or “mathematics” must be sought by trying to give a new definition of the old notion of “analytic” propositions.
+ - Can a society in which thought and technique are scientific persist for a long period, as, for example, ancient Egypt persisted, or does it necessarily contain within itself forces which must bring either decay or explosion?
+ - No one gossips about other people’s secret virtues.
+ - It would have been very much better for the world if Britain had remained neutral and the Germans had won a quick victory. We should not have had either the Nazis or the Communists if that had happened.
+ - A sense of duty is useful in work but offensive in personal relations. People wish to be liked, not to be endured with patient resignation.
+ - Moral progress has consisted in the main of protest against cruel customs, and of attempts to enlarge human sympathy.
+ - Right discipline consists, not in external compulsion, but in the habits of mind which lead spontaneously to desirable rather than undesirable activities.
+ - The human race may well become extinct before the end of the century.
+ - Almost all education has a political motive.
+ - There is no greater reason for children to honour parents than for parents to honour children except, that while the children are young, the parents are stronger than children.
+ - What science cannot tell us, mankind cannot know.
+ - I’ve always thought respectable people scoundrels, and I look anxiously at my face every morning for signs of my becoming a scoundrel.
+ - Collective wisdom, alas, is no adequate substitute for the intelligence of individuals. Individuals who opposed received opinions have been the source of all progress, both moral and intellectual. They have been unpopular, as was natural.
+ - The above proposition is occasionally useful.
+ - I feel as if one would only discover on one’s death bed what one ought to have lived for.
+ - When the intensity of emotional conviction subsides, a man who is in the habit of reasoning will search for logical grounds in favour of the belief which he finds in himself.
+ - Worry is a form of fear.
+ - And if there were a God, I think it very unlikely that He would have such an uneasy vanity as to be offended by those who doubt His existence.
+ - Emphatic and reiterated assertion, especially during childhood, produces in most people a belief so firm as to have a hold even over the unconscious.
+ - Conquer the world by intelligence, and not merely by being slavishly subdued by the terror that comes from it.
+ - The desire for legitimate offspring is, in fact, according to the Catholic Church, the only motive which can justify sexual intercourse.
+ - The pleasure of work is open to anyone who can develop some specialised skill, provided that he can get satisfaction from the exercise of his skill without demanding universal applause.
+ - I was told that The Chinese said they would bury me by the Western Lake and build a shrine to my memory. I have some slight regret that this did not happen, as I might have become a god, which would have been very chic for an atheist.
+ - The frequency with which a man experiences lust depends upon his own physical condition, whereas the occasion which rouse such feelings in him depend upon the social conventions to which he is accustomed.
+ - When considering marriage one should ask oneself this question; ‘will I be able to talk with this person into old age?’ Everything else is transitory, the most time is spent in conversation.
+ - Even when the experts all agree, they may well be mistaken.
+ - To avoid the various foolish opinions to which mankind are prone, no superhuman genius is required. A few simple rules will keep you, not from all error, but from silly error.
+ - You may reasonably expect a man to walk a tightrope safely for ten minutes; it would be unreasonable to do so without accident for two hundred years.
+ - A world full of happiness is not beyond human power to create; the obstacles imposed by inanimate nature are not insuperable. The real obstacles lie in the heart of man, and the cure for these is a firm hope, informed and fortified by thought.
+ - From India to Spain, the brilliant civilization of Islam flourished. What was lost to christendom at this time was not lost to civilization, but quite the contrary...
+ - If an opinion contrary to your own makes you angry, that is a sign that you are subconsciously aware of having no good reason for thinking as you do.
+ - Answering questions is a major part of sex education. Two rules cover the ground. First, always give a truthful answer to a question; secondly, regard sex knowledge as exactly like any other knowledge.
+ - I do not believe that I am now dreaming, but I cannot prove that I am not. I am, however, quite certain that I am having certain experiences, whether they be those of a dream or those of waking life.
+ - I am sometimes shocked by the blasphemies of those who think themselves pious.
+ - If one man offers you democracy and another offers you a bag of grain, at what stage of starvation do you prefer the grain to the vote?
+ - Broadly speaking, we are in the middle of a race between human skill as a means and human folly as an end.
+ - They must often change, who would be constant in happiness or wisdom. Those who continually search for happiness will never find it. Happiness is made, not found. To be without some of the things you want is an indispensable part of happiness.
+ - Good nature is, of all moral qualities, the one that the world needs most, and good nature is the result of ease and security, not of a life of arduous struggle.
+ - The Axiom of Choice is necessary to select a set from an infinite number of socks, but not an infinite number of shoes.
+ - It is preoccupation with possessions, more than anything else, that prevents us from living freely and nobly.
+ - The teacher, like the artist and the philosopher, can perform his work adequately only if he feels himself to be an individual directed by an inner creative impulse, not dominated and fettered by an outside authority.
+ - Envy was one of the most potent causes of unhappiness.
+ - The life of man is a long march through the night, surrounded by invisible foes, tortured by weariness and pain, towards a goal that few can hope to reach, and where none may tarry long.
+ - To choose one sock from each of infinitely many pairs of socks requires the Axiom of Choice, but for shoes the Axiom is not needed.
+ - I used, when I was younger, to take my holidays walking. I would cover 25 miles a day, and when the evening came I had no need of anything to keep me from boredom, since the delight of sitting amply sufficed.
+ - Grasshopper always wrong in argument with chicken.
+ - The great majority of men and women, in ordinary times, pass through life without ever contemplating or criticising, as a whole, either their own conditions or those of the world at large.
+ - Love is a slippery eel that bites like hell.
+ - Our use of phrase ‘The Dark ages’ to cover the period from 699 to 1,000 marks our undue concentration on Western Europe...
+ - Self-respect will keep a man from being abject when he is in the power of enemies, and will enable him to feel that he may be in the right when the world is against him.
+ - Aristotle’s metaphysics, roughly speaking, may be described as Plato diluted by common sense. He is difficult because Plato and common sense do not mix easily.
+ - Ants and savages put strangers to death.
+ - To like many people spontaneously and without effort is perhaps the greatest of all sources of personal happiness.
+ - Unrestricted nationalism is, in the long run, incompatible with world peace.
+ - Righteousness cannot be born until self-righteousness is dead.
+ - Look at me. Look at me is one of the fundamental desires of human heart.
+ - The slave is doomed to worship time and fate and death, because they are greater than anything he finds in himself, and because all his thoughts are of things which they devour.
+ - Be scrupulously truthful, even if the truth is inconvenient, for it is more inconvenient when you try to conceal it.
+ - Cruel men believe in a cruel god and use their belief to excuse their cruelty. Only kindly men believe in a kindly god, and they would be kindly in any case.
+ - There is no excuse for deceiving children. And when, as must happen in conventional families, they find that their parents have lied, they lose confidence in them and feel justified in lying to them.
+ - In human relations one should penetrate to the core of loneliness in each person and speak to that.
+ - Speaking psycho-analytically, it may be laid down that any “great ideal” which people mention with awe is really an excuse for inflicting pain on their enemies. Good wine needs no bush, and good morals need no bated breath.
+ - Machines deprive us of two things which are certainly important ingredients of human happiness, namely, spontaneity and variety.
+ - If you wish to be happy yourself, you must resign yourself to seeing others also happy.
+ - The white tails of rabbits, according to some theologians, have a purpose, namely to make it easier for sportsmen to shoot them.
+ - The very best proof that something can be done is that someone has already done it.
+ - I have come to realize that an early symptom of approaching mental illness is the belief that one’s work is terribly important. If you consider your work very important you should take a day off.
+ - The happy life is to an extraordinary extent the same as the good life.
+ - It is undesirable to believe a proposition when there is no ground whatever for supposing it true.
+ - A good notation has a subtlety and suggestiveness which at times make it almost seem like a live teacher.
+ - If a Black Death could be spread throughout the world once in every generation survivors could procreate freely without making the world too full.
+ - Those who have never known the deep intimacy and the intense companionship of happy mutual love have missed the best thing that life has to give.
+ - I found one day in school a boy of medium size ill-treating a smaller boy. I expostulated, but he replied: “The bigs hit me, so I hit the babies; that’s fair.” In these words he epitomized the history of the human race.
+ - The demand for certainty is one which is natural to man, but is nevertheless an intellectual vice.
+ - Be isolated, be ignored, be attacked, be in doubt, be frightened, but do not be silenced.
+ - The pursuit of knowledge is, I think, mainly actuated by love of power. And so are all advances in scientific technique.
+ - We are condemned to kill time, thus we die bit by bit. – Octavio Paz The time you enjoy wasting is not wasted time.
+ - Although this may seem a paradox, all exact science is based on the idea of approximation. If a man tells you he knows a thing exactly, then you can be safe in inferring that you are speaking to an inexact man.
+ - Since Adam and Eve ate the apple, man has never refrained from any folly of which he was capable.
+ - Politics is concerned with herds rather than with individuals, and the passions which are important in politics are, therefore, those in which the various members of a given herd can feel alike.
+ - Admiration of the proletariat, like that of dams, power stations, and aeroplanes, is part of the ideology of the machine age.
+ - That Plato’s Republic should have been admired, on its political side, by decent people, is perhaps the most astonishing example of literary snobbery in all history.
+ - What is best in mathematics deserves not merely to be learnt as a task, but to assimilated as a part of daily thought, and brought again and again before the mind with ever-renewed encouragement.
+ - Love as a relation between men and women was ruined by the desire to make sure of the legitimacy of children.
+ - All serious innovation is only rendered possible by some accident enabling unpopular persons to survive.
+ - What is matter? Never mind.
+ - One of the most painful circumstances of recent advances in science is that each one makes us know less than we thought we did.
+ - Ironclads and Maxim guns must be the ultimate arbiters of metaphysical truth.
+ - Aristotle is the last Greek philosopher who faces the world cheerfully; after him, all have, in one form or another, a philosophy of retreat.
+ - The axiomatic method has many advantages over honest work.
+ - If we were all given by magic the power to read each other’s thoughts, I suppose the first effect would be to dissolve all friendships.
+ - Many a marriage hardly differs from prostitution, except being harder to escape from.
+ - Happiness, as is evident, depends partly upon external circumstances and partly upon oneself.
+ - All religions are both harmful and untrue.
+ - In the revolt against idealism, the ambiguities of the word experience have been perceived, with the result that realists have more and more avoided the word.
+ - Mysticism is, in essence, little more than a certain intensity and depth of feeling in regard to what is believed about the universe.
+ - Every man, wherever he goes, is encompassed by a cloud of comforting convictions, which move with him like flies on a summer day.
+ - A marriage is likely to be called happy if neither party ever expected to get much happiness out of it.
+ - The average man’s opinions are much less foolish than they would be if he thought for himself.
+ - I do not pretend to start with precise questions. I do not think you can start with anything precise. You have to achieve such precision as you can, as you go along.
+ - The man who is unhappy will, as a rule, adopt an unhappy creed, while the man who is happy will adopt a happy creed; each may attribute his happiness or unhappiness to his beliefs, while the real causation is the other way round.
+ - A man without a bias cannot write interesting history – if indeed such a man exists.
+ - Sir Arthur Eddington deduces religion from the fact that atoms do not obey the laws of mathematics. Sir James Jeans deduces it from the fact that they do.
+ - Law in origin was merely a codification of the power of dominant groups, and did not aim at anything that to a modern man would appear to be justice.
+ - Uncertainty in the pressure of vivid hopes and fears is painful, but must be endured if we wish to live without the support of comforting fairy tales.
+ - Love and knowledge led upwards to the heavens.
+ - If two hitherto rival football teams, under the influence of brotherly love, decided to co-operate in placing the football first beyond one goal and then beyond the other, no one’s happiness would be increased.
+ - I am firm; YOU are obstinate; HE is a pig-headed fool.
+ - This illustrates an important truth, namely, that the worse your logic, the more interesting the consequences to which it gives rise.
+ - Patriotism which has the quality of intoxication is a danger not only to its native land but to the world, and “My country never wrong” is an even more dangerous maxim than “My country, right or wrong.”
+ - It is a waste of energy to be angry with a man who behaves badly, just as it is to be angry with a car that won’t go.
+ - So far as I can remember, there is not one word in the Gospels in praise of intelligence.
+ - Undoubtedly the desire for food has been and still is one of the main causes of political events.
+ - It has been said that man is a rational animal. All my life I have been searching for evidence which could support this.
+ - One eminently orthodox Catholic divine laid it down that a confessor may fondle a nun’s breasts, provided he does it without evil intent.
+ - It is in the nature of imperialism that citizens of the imperial power are always among the last to know-or care-about circumstances in the colonies.
+ - A world without delight and without affection is a world destitute of value.
+ - Patience and boredom are closely related. Boredom, a certain kind of boredom, is really impatience. You don’t like the way things are, they aren’t interesting enough for you, so you deccide- and boredom is a decision-that you are bored.
+ - Curious learning not only makes unpleasant things less unpleasant but also makes pleasant things more pleasant.
+ - No other organization rouses anything like the loyalty aroused by the national State. And the chief activity of the State is preparation for large-scale homicide.
+ - To discover a system for the avoidance of war is a vital need of our civilisation.
+ - The purpose of education is to teach a defense against eloquence.
+ - Clergymen almost necessarily fail in two ways as teachers of morals. They condemn acts which do no harm and they condone acts which do great harm.
+ - Politics is largely governed by sententious platitudes which are devoid of truth.
+ - Power, like vanity, is insatiable. Nothing short of omnipotence could satisfy it completely.
+ - The key to happiness is accepting one unpleasant reality every day.
+ - Patriotism is the willingness to kill and be killed for trivial reasons.
+ - Men have physical needs, and they have emotions. While physical needs are unsatisfied, they take first place; but when they are satisfied, emotions unconnected with them become important in deciding whether a man is to be happy or unhappy.
+ - The supreme maxim in scientific philosophising is this: wherever possible, logical constructions are to be substituted for inferred entities.
+ - There’s a Bible on that shelf there. But I keep it next to Voltaire – poison and antidote.
+ - When all experts agree, you need to watch out.
+ - A great many worries can be diminished by realizing the unimportance of the matter which is causing anxiety.
+ - When I found myself regarded as respectable, I began to wonder what sins I had committed. I must be very wicked, I thought. I began to engage in the most uncomfortable introspection.
+ - Writing can be either readable or precise, but not at the same time.
+ - A hallucination is a fact, not an error; what is erroneous is a judgment based upon it.
+ - The search for something permanent is one of the deepest of the instincts leading men to philosophy.
+ - Fear is the parent of cruelty, and therefore it is no wonder if cruelty and religion go hand in hand.
+ - Neither acquiescence in skepticism nor acquiescence in dogma is what education should produce.
+ - To be out of harmony with one’s surroundings is of course a misfortune, but it is not always a misfortune to be avoided at all costs. Where the environment is stupid or prejudiced or cruel, it is a sign of merit to be out of harmony with it.
+ - Much that passes as idealism is disguised hatred or disguised love of power.
+ - How much longer is the world willing to endure this spectacle of wanton cruelty?
+ - What has human happiness to do with morals? The object of morals is not to make people happy.
+ - To create a good philosophy you should renounce metaphysics but be a good mathematician.
+ - Civilized life has altogether grown too tame, and, if it is to be stable, it must provide a harmless outlets for the impulses which our remote ancestors satisfied in hunting.
+ - All the labor of all the ages, all the devotion, all the inspiration, all the noonday brightness of human genius are destined to extinction. So now, my friends, if that is true, and it is true, what is the point?
+ - It is obviously possible that what we call waking life may only be an unusual and persistent nightmare.
+ - I can’t tell whether I am living in a dream or a nightmare.
+ - Science has made unrestricted national sovereignty incompatible with human survival. The only possibilities are now world government or death.
+ - Our great democracies still tend to think that a stupid man is more likely to be honest than a clever man.
+ - Into every tidy scheme for arranging the pattern of human life, it is necessary to inject a certain dose of anarchism.
+ - It would now be technically possible to unify the world, abolish war and poverty altogether, if men desired their own happiness more than the misery of their enemies.
+ - I consider the official Catholic attitude on divorce, birth control, and censorship exceedingly dangerous to mankind.
+ - With the introduction of agriculture mankind entered upon a long period of meanness, misery, and madness, from which they are only now being freed by the beneficent operation of the machine.
+ - The examination system, and the fact that instruction is treated mainly as a training for a livelihood, leads the young to regard knowledge from a purely utilitarian point of view as the road to money, not as the gateway to wisdom.
+ - Those who forget good and evil and seek only to know the facts are more likely to achieve good than those who view the world through the distorting medium of their own desires.
+ - When the journey from means to end is not too long, the means themselves are enjoyed if the end is ardently desired.
+ - If I were granted omnipotence, and millions of years to experiment in, I should not think Man much to boast of as the final result of all my efforts.
+ - The idea that the poor should have leisure has always been shocking to the rich.
+ - Is the set of all sets which are not members of themselves a member of itself?
+ - Love cannot exists as a duty; to tell a child that it ought to love its parents and its brother and sisters is utterly useless, if not worse.
+ - Public opinion is always more tyrannical towards those who obviously fear it than towards those who feel indifferent to it.
+ - Vanity is a motive of immense potency.
+ - There can’t be a practical reason for believing something that is not true.
+ - The atomists, unlike Socrates, Plato, and Aristotle, sought to explain the world without introducing the notion of purpose or final cause.
+ - All human activity is prompted by desire.
+ - Physics is mathematical not because we know so much about the physical world, but because we know so little; it is only its mathematical properties that we can discover.
+ - Those whose lives are fruitful to themselves, to their friends, or to the world are inspired by hope and sustained by joy: they see in imagination the things that might be and the way in which they are to be brought into existence.
+ - This, however, is a passing nightmare; in time the earth will become again incapable of supporting life, and peace will return.
+ - The fact that an opinion has been widely held is no evidence whatever that it is not utterly absurd.
+ - The painter has to unlearn the habit of thinking that things seem to have the color which common sense says they ‘really’ have, and to learn the habit of seeing things as they appear.
+ - The reformative effect of punishment is a belief that dies hard, chiefly I think, because it is so satisfying to our sadistic impulses.
+ - When a man tells you that he knows the exact truth about anything you are safe in inferring that he is an inexact man.
+ - Physics, owing to the simplicity of its subject matter, has reached a higher state of development than any other science.
+ - The fundamental defect of fathers, in our competitive society, is that they want their children to be a credit to them.
+ - To think I have spent my life on absolute muck.
+ - To acquire immunity to eloquence is of the utmost importance to the citizens of a democracy.
+ - Man needs, for his happiness, not only the enjoyment of this or that, but hope and enterprise and change.
+ - I resolved from the beginning of my quest that I would not be misled by sentiment and desire into beliefs for which there was no good evidence.
+ - Freedom comes only to those who no longer ask of life that it shall yield them any of those personal goods that are subject to the mutations of time.
+ - Unfortunately, however, power is sweet, and the man who in the beginning seeks power merely in order to have scope for his benevolence is likely, before long, to love the power for its own sake.
+ - Many orthodox people speak as though it were the business of sceptics to disprove received dogmas rather than of dogmatists to prove them. This is, of course, a mistake.
+ - Truth is for the gods; from our human point of view, it is an ideal, towards which we can approximate, but which we cannot hope to reach.
+ - St. Paul introduced an entirely novel view of marriage, that it existed primarily to prevent the sin of fornication. It is just as if one were to maintain that the sole reason for baking bread is to prevent people from stealing cake.
+ - Right conduct can never, except by some rare accident, be promoted by ignorance or hindered by knowledge.
+ - The method of “postulating” what we want has many advantages; they are the same as the advantages of theft over honest toil.
+ - None but a coward dares to boast that he has never known fear.
+ - There is no difference between someone who eats too little and sees Heaven and someone who drinks too much and sees snakes.
+ - All forms of fear produce fatigue.
+ - The law of causality, I believe, like much that passes muster among philosophers, is a relic of a bygone age, surviving, like the monarchy, only because it is erroneously supposed to do no harm.
+ - Thinking you know when in fact you don’t is a fatal mistake, to which we are all prone.
+ - The fundamental principle in the analysis of propositions containing descriptions is this: Every proposition which we can understand must be composed wholly of constituents with which we are acquainted.
+ - It is because modern education is so seldom inspired by a great hope that it so seldom achieves great results.
+ - When two great powers disagree about anything – it doesn’t matter what – they must find a way to settle it somehow by arbitration or by negotiation, not by war or threat of war.
+ - We are all prone to the malady of the introvert who with the manifold spectacle of the world spread out before him, turns away and gazes only upon the emptiness within.
+ - For my part I distrust all generalizations about women, favorable and unfavorable, masculine and feminine, ancient and modern; all alike, I should say, result from paucity of experience.
+ - Religion is based, I think, primarily and mainly upon fear.
+ - One of the most powerful of all our passions is the desire to be admired and respected.
+ - I read Zuleika Dobson with pleasure. It represents the Oxford that the two World Wars have destroyed with a charm that is not likely to be reproduced anywhere in the world for the next thousand years.
+ - I believe in using words, not fists. I believe in my outrage knowing people are living in boxes on the street. I believe in honesty. I believe in a good time. I believe in good food. I believe in sex.
+ - I remain convinced that obstinate addiction to ordinary language in our private thoughts is one of the main obstacles to progress in philosophy.
+ - There are still many people in America who regard depressions as acts of God. I think Keynes proved that the responsibility for these occurrences does not rest with Providence.
+ - Written words differ from spoken words in being material structures. A spoken word is a process in the physical world, having an essential time-order; a written word is a series of pieces of matter, having an essential space-order.
+ - Conventional people are roused to fury by departure from convention, largely because they regard such departure as a criticism of themselves.
+ - The universe may have a purpose, but nothing we know suggests that, if so, this purpose has any similarity to ours.
+ - The psychology of adultery has been falsified by conventional morals, which assume, in monogamous countries, that attraction to one person cannot coexist with affection for another. Everybody knows that this is untrue.
+ - Abstract work, if one wishes to do it well, must be allowed to destroy one’s humanity; one raises a monument which is at the same time a tomb, in which, voluntarily, one slowly inters oneself.
+ - If a philosophy is to bring happiness it should be inspired by kindly feelings. Marx pretended that he wanted the happiness of the proletariat; what he really wanted was the unhappiness of the bourgeois.
+ - Whenever you find yourself getting angry about a difference of opinion, be on your guard; you will probably find, on examination, that your belief is going beyond what the evidence warrants.
+ - Fools and fanatics are always so certain of themselves.
+ - I like mathematics because it is not human and has nothing particular to do with this planet or with the whole accidental universe – because, like Spinoza’s God, it won’t love us in return.
+ - On the one hand, philosophy is to keep us thinking about things that we may come to know, and on the other hand to keep us modestly aware of how much that seems like knowledge isn’t knowledge.
+ - There is an artist imprisoned in each one of us. Let him loose to spread joy everywhere.
+ - You could live without the opera singer, but not without the services of the baker. On this ground you might say that the baker performs a greater service; but no lover of music would agree.
+ - It is permissible with certain precautions to speak in print of coitus, but it is not permissible to employ the monosyllabic synonym for this word.
+ - Morality in sexual relations, when it is free from superstition, consists essentially in respect for the other person, and unwillingness to use that person solely as a means of personal gratification, without regard to his or her desires.
+ - The difficulty is old, but none the less real. An omnipotent being who created a world containing evil not due to sin must Himself be at least partially evil.
+ - I think that there is far too much work done in the world, that immense harm is caused by the belief that work is virtuous, and that what needs to be preached in modern industrial countries is quite different from what always has been preached.
+ - No man can be a good teacher unless he has feelings of warm affection toward his pupils and a genuine desire to impart to them what he believes to be of value.
+ - The use of self control is like the use of brakes on train. It is useful when you find yourself in wrong direction but merely harmful when the direction is right.
+ - Nine-tenths of the appeal of pornography is due to the indecent feelings concerning sex which moralists inculcate in the young; the other tenth is physiological, and will occur in one way or another whatever the state of the law may be.
+ - A process which led from the amoeba to man appeared to the philosophers to be obviously a progress though whether the amoeba would agree with this opinion is not known.
+ - A generation educated in fearless freedom will have wider and bolder hopes than are possible to us.
+ - In our complex world, there cannot be fruitful initiative without government, but unfortunately there can be government without initiative.
+ - More cranks take up unfashionable errors than unfashionable truths.
+ - Africans had to be taught that nudity is wicked; this was done very cheaply by missionaries.
+ - It is essential to happiness that our way of living should spring from our own deep impulses and not from the accidental tastes and desires of those who happen to be our neighbors, or even our relations.
+ - Fervent religious believers sacrifice pleasures of the body, but instead enjoy pleasures of the mind, including the joy of knowing that those men who didn’t follow their religion would be tortured for eternity.
+ - Ethical metaphysics is fundamentally an attempt, however disguised, to give legislative force to our own wishes.
+ - I do not believe that I am now dreaming, but I cannot prove that I am not.
+ - We shall say that we have acquaintance with anything of which we are directly aware, without the intermediary of any process of inference of any knowledge of truths.
+ - No man is liberated from fear who dare not see his place in the world as it is; no man can achieve the greatness of which he is capable until he has allowed himself to see his own littleness.
+ - Who ever heard a theologian preface his creed, or a politician conclude his speech with an estimate of the probable error of his opinion?
+ - Ignore fact and reason, live entirely in the world of your own fantastic and myth-producing passions; do this whole-heartedly and with conviction, and you will become one of the prophets of your age.
+ - Heretical views arise when the truth is uncertain, and it is only when the truth is uncertain that censorship is invoked.
+
+500 quotes

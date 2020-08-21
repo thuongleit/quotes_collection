@@ -1,0 +1,22 @@
+ - Light does not come from light, but from darkness.
+ - The primitive magician, the medicine man or shaman is not only a sick man, he is above all, a sick man who has been cured, who has succeeded in curing himself.
+ - I don’t want to be mediocre, this is the fear of my soul and my body.
+ - Ce oameni exceptionali trec pe langa noi, anonimi, si noi admiram prosteste atatia neghiobi, numai pentru ca au vorbit de ei presa si “opinia publica”, numai pentru ca le-a popularizat numele politica si literatura.
+ - The way towards ‘wisdom’ or towards ‘freedom’ is the way towards your inner being. This is the simplest definition of metaphysics.
+ - Whether religion is man-made is a question for philosophers or theologians. But the forms are man-made. They are a human response to something. As a historian of religions, I am interested in those expressions.
+ - Water symbolizes the whole of potentiality – the source of all possible existence.
+ - It would be frightening to think that in all the Cosmos, which is so harmonious, so complete and equal to itself, that only human life is happening randomly, that only one’s destiny lacks meaning.
+ - Man makes himself, and he only makes himself completely in proportion as he desacrilizes himself and the world. The sacred is the prime obstacle to his freedom. He will become himself only when he is totally demysticized. He will not be truly free until he has killed the last god.
+ - For those to whom a stone reveals itself as sacred, its immediate reality is transmuted into supernatural reality. In other words, for those who have a religious experience all nature is capable of revealing itself as cosmic sacrality.
+ - The crude product of nature, the object fashioned by the industry of man, acquire their reality, their identity, only to the extent of their participation in a transcendent reality.
+ - Psychoanalysis justifies its importance by asserting that it forces you to look to and accept reality. But what sort of reality? A reality conditioned by the materialistic and scientific ideology of psychoanalysis, that is, a historical product...
+ - The sacred tree, the sacred stone are not adored as stone or tree; they are worshipped precisely because they are hierophanies, because they show something that is no longer stone or tree but sacred, the ganz andere or ‘wholly other.’
+ - If we pay no attention to it, time does not exist.
+ - In imitating the exemplary acts of a god or of a mythic hero, or simply by recounting their adventures, the man of an archaic society detaches himself from profane time and magically re-enters the Great Time, the sacred time.
+ - It is not without fear and trembling that a historian of religion approaches the problem of myth. This is not only because of that preliminary embarrassing question: what is intended by myth? It is also because the answers given depend for the most part on the documents selected.
+ - To whatever degree he may have desacralized the world, the man who has made his choice in favor of a profane life never succeeds in completely doing away with religious behavior.
+ - To believe that I could, at twenty-three, sacrifice history and culture for the Absolute was further proof that I had not understood India. My vocation was culture, not sainthood.
+ - And I realize how useless wails are and how gratuitous melancholy is.
+ - The Experience of Sacred Space makes possible the founding of the world: where the sacred Manifests itself in space, the real unveils itself, the world comes into existence.
+
+20 quotes

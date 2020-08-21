@@ -1,0 +1,46 @@
+ - If it doesn’t challenge you, it doesn’t change you. ~~Fred DeVito
+ - Today is your day. To start fresh. To eat right. To train hard. To live healthy. To be proud. ~~Bonnie Pfiester
+ - You don’t have to be great to start, but you have to start to be great. ~~Zig Ziglar
+ - Pain is weakness leaving the body. ~~United States Marine Corps
+ - When you feel like quitting think about why you started. ~~Anonymous
+ - Strive for progress, not perfection. ~~Anonymous
+ - Get comfortable with being uncomfortable. ~~Jillian Michaels
+ - You can feel sore tomorrow or you can feel sorry tomorrow. You choose. ~~Anonymous
+ - Excuses don’t burn calories. ~~Anonymous
+ - Unless you puke, faint or die, keep going. ~~Jillian Michaels
+ - Do something today that your future self will thank you for. ~~Unknown
+ - Life begins at the end of your comfort zone. ~~Neale Donald Walsch
+ - A fit, healthy body – that is the best fashion statement. ~~Jess C. Scott
+ - It hurts now, but one day it will be your warm up. ~~Anonymous
+ - Obsessed is a word the lazy use to describe the dedicated. ~~Anonymous
+ - Summer bodies are made in the winter. ~~Anonymous
+ - You’re only one workout away from a good mood. ~~Anonymous
+ - You have to remember something: everybody pities the weak; jealousy you have to earn. ~~Arnold Schwarzenegger
+ - The individual who says it is not possible should move out of the way of those doing it. ~~Tricia Cunningham
+ - The human body is the best work of art. ~~Jess C. Scott
+ - Don’t quit. You’re already in pain. You’re already hurt. Get a reward from it! ~~Eric Thomas
+ - The hardest thing about exercise is to start doing it. Once you are doing exercise regularly, the hardest thing is to stop it. ~~Erin Gray
+ - Making excuses burns zero calories per hour. ~~Anonymous
+ - Strength does not come from winning. Your struggles develop your strengths. When you go through hardships and decide not to surrender, that is strength. ~~Arnold Schwarzenegger
+ - Sweat is just fat crying. ~~Anonymous
+ - The only bad workout is the one that didn’t happen. ~~Anonymous
+ - Sweat. Smile. Repeat. ~~Keep Going
+ - It’s not about “having” time. It’s about making time. ~~MAKE TIME
+ - Your workouts are important meetings you scheduled with yourself. Bosses don’t cancel. ~~Anonymous
+ - It’s your workout, your time, your body. Own It. ~~Anonymous
+ - Fit is not a destination. It is a way of life. ~~Unknown
+ - Every day is another chance to get stronger, to eat better, to live healthier, and to be the best version of you. ~~Unknown
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. ~~Earl Nightingale
+ - SORE TODAY, STRONG TOMORROW. ~~Anonymous
+ - No matter how slow you go, you are still lapping everybody on the couch. ~~Unknown
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.” ~~Muhammad Ali
+ - Motivation will almost always beat mere talent.  ~~Norman Ralph Augustine
+ - Today i will do what others won't so tomorrow i can do what others can’t. ~~Jerry Rice
+ - Motivation is what gets you started. Habit is what keeps you going. ~~Jim Rohn
+ - You can’t climb the ladder of success with your hands in your pockets. ~~Arnold Schwarzenegger
+ - What is the point of being on this Earth if you are going to be like everyone else and avoid trouble? ~~Arnold Schwarzenegger
+ - Sore. The most satisfying pain. ~~Unknown
+ - To give anything less than your best is to sacrifice the gift. ~~Steve Prefontaine
+ - Sweat is magic. Cover yourself in it daily to grant your wishes. ~~Anonymous
+
+44 quotes

@@ -1,0 +1,74 @@
+ - It’s a terrible thing, I think, in life to wait until you’re ready. I have this feeling now that actually no one is ever ready to do anything. There is almost no such thing as ready. There is only now. And you may as well do it now. Generally speaking, now is as good a time as any.
+ - It’s a basic truth of the human condition that everybody lies. The only variable is about what.
+ - Every day is the opportunity for a better tomorrow.
+ - There is almost no such thing as ready. There is only now.
+ - Driving a motorcycle is like flying. All your senses are alive.
+ - I have my moments. Ever since I was a boy, I never was someone who was at ease with happiness. Too often I embrace introspection and self-doubt. I wish I could embrace the good things.
+ - Winning a rowing race is not like winning anything else. Here’s my theory: you’re facing backwards, so you’re looking at the people you’re beating – and there’s something exquisite about that.
+ - Acting is largely about putting on masks, and music is about removing them.
+ - I am a coffee fanatic. Once you go to proper coffee, you can’t go back. You cannot go back.
+ - I run six-to-eight miles a day, plus weights and aerobics in the lunch hour. I also lie a lot, which keeps me thin.
+ - I just read an 800-page history of the Scottish Enlightenment and, honestly, I may as well just start it again now, because I cannot remember a single thing. I can barely remember where Scotland is.
+ - Love is a word. A sound. Its association with a particular feeling is arbitrary, unmeasurable, and ultimately meaningless.
+ - Screenwriting is the most prized of all the cinematic arts. Actually, it isn’t, but it should be.
+ - Newton’s Third Law of Conversation, if it existed, would hold that every statement implies an equal and opposite statement. To say that I’d turned the offer down raised the possibility that I might not have done.
+ - Girls are complicated. The instruction manual that comes with girls is 800 pages, with chapters 14, 19, 26 and 32 missing, and it’s badly translated, hard to figure out.
+ - Having a vote once every four years is not the same thing as democracy.
+ - I don’t like the act of talking; it makes me slightly light-headed.
+ - This was the tricky bit. The really tricky bit, trickiness cubed.
+ - I wouldn’t be able to act like Al Pacino or play the piano like Dr. John, But I could probably act better than Dr. John and play the piano better than Al Pacino.
+ - They, all of them, work incredibly hard to make me seem clever and heroic, neither of which I am.
+ - I do actually like Los Angeles. Partly because I was told I wouldn’t.
+ - One thing House needs Wilson for is vanity. He needs someone to laugh at his jokes.
+ - I never was someone who was at ease with happiness.
+ - Piano was – well, all musical instruments were taught in this very rigid, formal, classical method when I was young.
+ - I think that’s the lesson you learn in life. As you get older you realize you’re never going to grow up and you’re never going to be ready. And you may, as well, do things now, don’t wait.
+ - It’s a holy city for music.
+ - We put this 15-year old girl on the cover of a fashion magazine, and tell everyone she is the epitome of sexual perfection, but we jail anyone who touches her for another three years.
+ - Just because it’s a bad job doesn’t mean I need to do it badly.
+ - I would just hear piano players and I would hear music, and just think – I don’t just want to sit here and passively listen; I want to get inside it.
+ - My dad gave me my first bike at 16. I soon fell off and was in a wheelchair for weeks. I haven’t fallen since.
+ - I travel to work on my motorcycle, so it’s jeans, boots and a brown Aero leather jacket that weighs as much as I do. If it were black, it would seem like I’ve got a Brando idea going on, which I don’t.
+ - It was the sheer variety of the pain that stopped me from crying out. It came from so many places, spoke so many languages, wore so many dazzling varieties of ethnic costume, that for a full fifteen seconds I could only hang my jaw in amazement.
+ - To be a head boy, you have to be very clever, you have to be a scholar, and I was never a scholar in any shape or form.
+ - People will survive, and they will find happiness. Happiness only comes when you’re not looking for it.
+ - I don’t believe in God, but I have this idea that if there were a God, or destiny of some kind looking down on us, that if he saw you taking anything for granted he’d take it away.
+ - Perseverance does not equal worthiness. Next time you want to get my attention, wear something fun. Low-riding jeans are hot.
+ - Driving a motorcycle is like flying. All your senses are alive. When I ride through Beverly Hills in the early morning, and all the sprinklers have turned off, the scents that wash over me are just heavenly. Being House is like flying, too. You’re free of the gravity of what people think.
+ - Now, my mom always said two wrongs don’t make a right. But she never said anything about four wrongs, and that always left me confused.
+ - I don’t talk like House, or walk like him. I certainly don’t think like him. I don’t like to think for more than 15 minutes at a stretch actually; I am a fragile flower.
+ - Keep on being yourself.
+ - I think classical music tuition is, well, was when I was a child, was an abomination. I think in some ways it is one of life’s great tragedies for everybody who gives up an instrument.
+ - Happiness is the twinkle in your grandmother’s eye as you reverse the tractor off her legs.
+ - Pain is an event. It happens to you, and you deal with it in whatever way you can.
+ - Clive Dunn, as I understand it, retired to the south of Spain, where he worked extensively in watercolours. I don’t own any of Clive Dunn’s watercolours. I loved him in ‘Dad’s Army,’ loved him. But not enough to actually seek out his watercolour work.
+ - I hate menus, I hate choosing food. I just want to be brought. Bring me dinner!
+ - I feel like I’m working on an oil rig right now. I’m away from home a lot.
+ - You hope that your teenage self would like and forgive your 50-year-old self.
+ - There’s an undeniable pleasure in stepping into an open-top sports car driven by a beautiful woman. It feels like you’re climbing into a metaphor.
+ - I rowed for Cambridge. I was pretty good at that.
+ - I get anxious about a lot of things, that’s the trouble. I get anxious about everything. I just can’t stop thinking about things all the time. And here’s the really destructive part – it’s always retrospective. I waste time thinking of what I should have said or done.
+ - I would cling to unhappiness because it was a known, familiar state. When I was happier, it was because I knew I was on my way back to misery. I’ve never been convinced that happiness is the object of the game. I’m wary of happiness.
+ - When school friends would think about appearing on stage as the most frightening, the most awful, intimidating experience ever, I knew that it was something I could do.
+ - People assume that I’m very highly trained, that I studied and did years and years of Shakespeare. I have no training whatsoever and I’ve only done one Shakespeare play at university. If people want to believe that, I’m happy to go along with it.
+ - I suppose actors crave attention of some kind or they have suffered some form of arrested development and are still living in a sort of child’s fantasy existence at some level in their psyche.
+ - I know a lot of people think therapy is about sitting around staring at your own navel – but it’s staring at your own navel with a goal. And the goal is to one day to see the world in a better way and treat your loved ones with more kindness and have more to give.
+ - It is the middle of December now, and we are about to travel to Switzerland – where we plan to ski a little, relax a little, and shoot a Dutch politician a little.
+ - Humility was considered a great virtue in my family household. No show of complacency or self-satisfaction was ever tolerated. Patting yourself on the back was definitely not encouraged, and pleasure or pride would be punishable by death.
+ - I’m finding it increasingly difficult to simply walk down the street. In New York, I dashed in to buy a big pair of sunglasses to conceal myself, but the guy behind the counter shouted ‘Hey! It’s Dr. House.’
+ - I admit I can’t shake the idea that there is virtue in suffering, that there is a sort of psychic economy, whereby if you embrace success, happiness and comfort, these things have to be paid for.
+ - It gets on top of me and I get frustrated.
+ - I couldn’t imagine what Fox thought they were doing, contemplating such a jagged protagonist for a prime-time drama. I only knew that I wanted the role very much.
+ - I didn’t realize House would be the central character, more the bitter comic relief appearing occasionally. I relish his wounded nature – the lameness, the scarred Byronic hero.
+ - To tell you the truth, the older I get, the less I know. I keep meeting people, both older and younger, who seem to have accrued so much more knowledge or expertise or certainty about who they are and the jobs they do. I just marvel at it.
+ - Humility was a cult in my family. I only got it out of my father by accident when he was very old that he had won an Olympic gold medal.
+ - One great benefit of not being on TV every week is that people will be a lot less interested in what I have in my supermarket basket. I could even un-tint my car windows – or at least opt for a lighter shade.
+ - Believe it or not, perhaps I don’t show it much, or well, but I think I like people.
+ - The only good thing I’ve ever noticed about money, the only positive aspect of an otherwise pretty vulgar commodity, is that you can use it to buy things.
+ - Celebrity is absolutely preposterous. Entertainment seems to be inflating. It used to be the punctuation to your life, a film or a novel or a play, a way of celebrating a good week or month. Now it feels as if it’s all punctuation.
+ - I personally believe that the iPod is a frankly corrosive device because it encourages you to surround yourself with your favorites. The whole idea of a playlist is to surround yourself with your favorite things, and the interesting thing is that when you do that, they cease to be your favorites.
+ - I think maybe even one of the reasons I became an actor was actually to hide. I mean, it sounds paradoxical because, of course, people are standing up in a public place and encouraging other people to look at them. So that’s not the conventional definition of hiding.
+ - I have resolved to pick one novel and just read it over and over again for the rest of my life, because I cannot remember anything anymore.
+ - To be able to pretend to be something that I’m frankly not is very liberating and exciting.
+
+72 quotes

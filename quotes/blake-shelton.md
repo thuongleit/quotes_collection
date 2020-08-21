@@ -1,0 +1,32 @@
+ - And I’m no quitter, but I’m tired of fighting.
+ - If I had to choose my best day ever, my finest hour, my wildest dream come true, mine would be you.
+ - God gave me you for the ups and downs and days of doubts.
+ - My life has been an open book, for better or for worse.
+ - Help!!!! Why is Wednesday spelled like that?!!!!
+ - One thing that you cant fake is chemistry.
+ - If I have one, I’ll have thirteen. No, there ain’t no in-betwee. Cuz the more I drink, the more I drink, the more I drink.
+ - We all got a hillbilly bone down deep inside.
+ - I love to deer hunt and fish and drive down the back roads in my truck. All those things basically equal freedom to me – and not having to return that message or call from my record company or management. At some point, I need to recharge.
+ - I was just 17 years old and had to get some new friends to actually sign up for me to get electricity and utilities because I wasn’t even old enough to have things like that.
+ - Shoot, man, I love everybody! I don’t have time to hate.
+ - If we had known our love would come to this we could have saved our hearts the hurt of wasted years.
+ - Where I live in Oklahoma, it’s all ranchers. My friends are all cowboys and pretty rough guys. If I had a hot tub back there, I may as well have Richard Simmons come over and live with me.
+ - Ironically, being a coach on ‘The Voice’ and spending time with those kids, Xenia and Dia especially, I learned a lot about myself. It reminded me how lucky I am that this happened for me, and it kind of lit the spark inside me again for my love of music.
+ - I think you have to be willing to take a bullet for somebody if you’re going to stand up there, take your vows, and be married to them for the rest of your life.
+ - When you’re married to Miranda Lambert, you’ve gotta give her her room because she’s a powerful force. I think it’s more about just listening and understanding who she is and what her insecurities may be and how to approach our marriage as an open minded listener and a shoulder to lean on.
+ - I’m not the kind of person who thrives in “the scene.” I know that when this is all over, and I’m no longer cool, I’m going to be just as happy because I’m going to be at home.
+ - Never touch another man’s button.
+ - What you need to know about me is that I always just wanted to be a country singer. I didn’t choose the path of television or being on magazine covers.
+ - To me, what makes an artist is a unique personality that they’re not afraid to let show.
+ - When I think about the songs I might record, I ask myself, ‘Can I picture anybody I know back home sitting in their truck cranking this up?’
+ - I’ve always had just enough success to buy me some more tour dates and another record.
+ - That’s when the dream is so far off it seems like it will never happen. It can be most anything you want it to be.
+ - I want to stand for something, and it’s probably going to be something that some people stand against.
+ - I’m not that smart, but I’m smart enough to know that if Usher wants to help you, you let him.
+ - Taylor deserves it. I don’t think there is anyone with half a brain that would say otherwise. She has done a lot for us in country music. We are lucky enough in country music to call her one of us.
+ - Then sink to your nose in a bubble bath.
+ - I get on Twitter, one of my routines during the day, if I’m home is, I wake up, get a cup of coffee, turn on the Weather Channel and I’ll look at what people are saying to me on Twitter on my phone.
+ - There needs to be an app that edits what I say versus what I want to say.
+ - Anytime that the Arizona Cardinals play football, I scream at the top of my lungs at the television. And I have certain dances that I do.
+
+30 quotes

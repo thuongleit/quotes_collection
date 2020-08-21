@@ -1,0 +1,44 @@
+ - Someone’s got to break the glass ceiling, and once it’s broken, everybody else comes clamouring up behind.
+ - Of course I have an opinion on many things but I don’t micromanage.
+ - Equity, dignity, happiness, sustainability – these are all fundamental to our lives but absent in the GDP.
+ - Business can talk itself into a blue funk.
+ - Girls can do anything. We do do anything and we expect to be treated as equals.
+ - I’m not into power for the sake of it.
+ - Grounded in international human rights, gender equality doesn’t just improve the lives of individual women, girls, and their families; it makes economic sense, strengthens democracy, and enables long-term sustainable progress.
+ - Marine protected areas, and particularly no-take zones, are very effective in allowing regeneration of fish stocks.
+ - Never look back. Move on. Aim high. Etc.
+ - Although biodiversity loss continues globally, many countries are significantly slowing the rate of loss by shoring up protected natural areas and the services they provide, and in expanding national park systems with tighter management and more secure funding.
+ - No country will reach its full potential if its female citizens do not enjoy full equality.
+ - I’ve been round Japan, Hong Kong, Korea, and China in the last few months and the message that I’ve been taking is that New Zealand is building an up market dynamic into a connected economy. And that we are not the old-fashioned, ship mutton kind of product the people associate their export in work.
+ - Any serious shift towards more sustainable societies has to include gender equality.
+ - I only take on roles that I’m passionate about. Life is too short to do things that you’re not happy with.
+ - Adopting and promoting sustainable production practices require concerted effort, something which in practice is too often missing or insufficient. Making this shift at the scale required demands forward-looking leadership in the public and private sectors alike.
+ - Economic growth which strips out the planet’s ecosystems is not sustainable.
+ - I have no beliefs of a religious kind.
+ - It is a very small minority point of view and I think, through continuing to set the tone of tolerance, acceptance, and diversity, you just have to further marginalize such people. Hopefully one day nobody will think that way.
+ - If ordinary means I have suddenly got to produce a household of kids and iron Peter’s shirts, I’m sorry, I’m not interested.
+ - Well of course New Zealand isn’t anti-American.
+ - We need a lot of thinking and ideas. We need all the innovators, particularly with the new sustainable technologies – how do we get them to affordability so that people can generate clean energy?
+ - Afghanistan is one of the poorest countries on earth. Security issue or no security issue, there would need to be a focus on it.
+ - Health and education are always issues.
+ - If you neglect those who are currently poor and stable, you may create more poor and unstable people. There has been a tremendous concentration of donor interest in countries that are seen as particularly fragile – but it becomes harder to mobilise money for sub-Saharan, plain poor countries.
+ - I think that generally New Zealand is respected for the positions it takes because it thinks them through.
+ - I think it’s inevitable that New Zealand will become a republic and that would reflect the reality that New Zealand is a totally sovereign-independent 21st century nation 12,000 miles from the United Kingdom.
+ - We just sent our condolences to the President of the United States and the American people on what is a terrible, terrible tragedy.
+ - If the market is left to sort matters out, social injustice will be heightened and suffering in the community will grow with the neglect the market fosters.
+ - I don’t know that you’re ever going to persuade New Zealanders that they’re not going to own their own homes and I’m not going to try.
+ - Innovation applied across the board of development is having a huge impact, and can have more. All sorts of technology can provide shortcuts, can overcome obstacles which once seemed insuperable.
+ - Well in the end the world can crank itself up to sanctions, as it has with Zimbabwe, another sad case.
+ - I think the issue of North Korea is one where the international community as a whole has to work to resolve the crisis.
+ - As New Zealanders, we’ve been in on the United Nations from the very beginning, played a role in the drafting of the charter – it means a lot to us that those processes are followed.
+ - Fortunately New Zealand doesn’t have land borders so we are able to be somewhat more rigorous on who gets in and out of our country than perhaps some people.
+ - People are optimistic about the future.
+ - In the end, there will always be a fundamental difference of perspective between New Zealand and Australia on defense, whoever is in government.
+ - New Zealand and SA should take this dimension into account, the skills South Africans are presently contributing to New Zealand.
+ - Of course as a small country you’re not necessarily in the strongest negotiating position unless you’re negotiating with other small countries.
+ - It’s fair to say that, for much of my lifetime, New Zealand certainly was a property-owning democracy and working people, ordinary people, had assets.
+ - Senator Obama will be taking office at a critical juncture. There are many pressing challenges facing the international community, including the global financial crisis and global warming. We look forward to working closely with President-elect Obama and his team to address these challenges.
+ - I deeply detest social distinction and snobbery, and in that lies my strong aversion to titular honours.
+ - In terms of having views and being prepared to express them, yes, I think New Zealand’s had a leadership role in a lot of things.
+
+42 quotes

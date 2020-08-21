@@ -1,0 +1,46 @@
+ - Prayer is not asking for what you think you want, but asking to be changed in ways you can’t imagine.
+ - Disconnecting from change does not recapture the past. It loses the future.
+ - Just the knowledge that a good book is waiting one at the end of a long day makes that day happier.
+ - Maybe the desert wisdom of the Dakotas can teach us to love anyway, to love what is dying, in the face of death, and not pretend that things are other than they are. The irony and wonder of all of this is that it is the desert’s grimness, its stillness and isolation, that brings us back to love.
+ - In spite of the cost of living, it’s still popular.
+ - Spring seems far off, impossible, but it is coming. Already there is dusk instead of darkness at five in the afternoon; already hope is stirring at the edges of the day.
+ - Not money, or success, or position or travel or love makes happiness, – service is the secret.
+ - Acedia is a danger to anyone whose work requires great concentration and discipline yet is considered by many to be of little practical value. The world doesn’t care if I write another word, and if I am to care, I have to summon all my interior motivation and strength.
+ - Peace – that was the other name for home.
+ - Friendship is an art, and very few persons are born with a natural gift for it.
+ - You can only see one thing clearly, and that is your goal. Form a mental vision of that, and cling to it through thick and thin.
+ - There are men I could spend eternity with. But not this life.
+ - I write what I would like to read.
+ - Only Christ could have brought us all together, in this place, doing such absurd but necessary things.
+ - The very nature of marriage means saying yes before you know what it will cost. Though you may say the “I do” of the wedding ritual in all sincerity, it is the testing of that vow over time that makes you married.
+ - One may have been a fool, but there’s no foolishness like being bitter.
+ - Over and over again mediocrity is promoted because real worth isn’t to be found.
+ - Traversing a slow page, to come upon a lode of the pure shining metal is to exult inwardly for greedy hours.
+ - The High Plains, the beginning of the desert West, often act as a crucible for those who inhabit them.
+ - They are fruit and transport: ripening melons, prairie schooners journeying under full sail.
+ - Pay close attention to objects, events and natural phenomenon that would otherwise get chewed up in the daily grind.
+ - There seems to be so much more winter than we need this year.
+ - In middle age we are apt to reach the horrifying conclusion that all sorrow, all pain, all passionate regret and loss and bitter disillusionment are self-made.
+ - Men are more conventional than women and much slower to change their ideas.
+ - I am learning to see loneliness as a seed that, when planted deep enough, can grow into writing that goes back out into the world.
+ - Each and every one of us has one obligation, during the bewildered days of our pilgrimage here: the saving of his own soul, and secondarily and incidentally thereby affecting for good such other souls as come under our influence.
+ - If grace is so wonderful, why do we have such difficulty recognizing and accepting it? Maybe it’s because grace is not gentle or made-to-order. It often comes disguised as loss, or failure, or unwelcome change.
+ - The Christian religion asks us to put our trust not in ideas, and certainly not in ideologies, but in a God Who was vulnerable enough to become human and die, and Who desires to be present to us in our ordinary circumstances.
+ - Any life lived attentively is disillusioning as it forces us to know us as we are.
+ - For grace to be grace, it must give us things we didn’t know we needed and take us places where we didn’t know we didn’t want to go. As we stumble through the crazily altered landscape of our lives, we find that God is enjoying our attention as never before.
+ - I’ve come to see conspiracy theories as the refuge of those who have lost their natural curiosity and ability to cope with change.
+ - To be an American is to move on, as if we could outrun change. To attach oneself to place is to surrender to it, and suffer with it.
+ - I was taught that I had to ‘master’ subjects. But who can ‘master’ beauty, or peace, or joy?
+ - The ordinary activities I find most compatible with contemplation are walking, baking bread, and doing laundry.
+ - Wariness about change is a kind of prairie wisdom.
+ - This is a God who is not identified with the help of a dictionary but through a relationship.
+ - Laundry, liturgy and women’s work all serve to ground us in the world, and they need not grind us down. Our daily tasks, whether we perceive them as drudgery or essential, life-supporting work, do not define who we are as women or as human beings.
+ - We can’t give our children the future, strive though we may to make it secure. But we can give them the present.
+ - I wonder if children don’t begin to reject both poetry and religion for similar reasons, because the way both are taught takes the life out of them.
+ - Changing husbands is only changing troubles.
+ - When you are unhappy, is there anything more maddening than to be told that you should be contented with your lot?
+ - If we are lucky, we can give in and rest without feeling guilty. We can stop doing and concentrate on being.
+ - But hope has an astonishing resilience and strength. Its very persistence in our hearts indicates that it is not a tonic for wishful thinkers but the ground on which realists stand.
+ - But in order to have an adult faith, most of us have to outgrow and unlearn much of what we were taught about religion.
+
+44 quotes

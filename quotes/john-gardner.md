@@ -1,0 +1,29 @@
+ - Self pity is easily the most destructive of the non-pharmaceutical narcotics; it is addictive, gives momentary pleasure and separates the victim from reality.
+ - Poor Grendel’s had an accident. So may you all.
+ - Find a pile of gold and sit on it.
+ - As a rule of thumb I say, if Socrates, Jesus and Tolstoy wouldn’t do it, don’t.
+ - The citizen can bring our political and governmental institutions back to life, make them responsive and accountable, and keep them honest. No one else can.
+ - There is no limit to desire but desire’s needs.
+ - We read five words on the first page of a really good novel and we begin to forget that we are reading printed words on a page; we begin to see images.
+ - I cannot believe such monstrous energy of grief can lead to nothing!
+ - Art, of course, is a way of thinking, a way of mining reality.
+ - The image-managers encourage the individual to fashion himself into a smooth coin, negotiable in any market.
+ - When I was a child I truly loved: Unthinking love as calm and deep As the North Sea. But I have lived, And now I do not sleep.
+ - So childhood too feels good at first, before one happens to notice the terrible sameness, age after age.
+ - I couldn’t go on, too conscious all at once of my whispering, my eternal posturing, always transforming the world with words – changing nothing.
+ - When people are serving, life is no longer meaningless.
+ - Talking, talking. Spinning a web of words, pale walls of dreams, between myself and all I see.
+ - Our noblest hopes grow teeth and pursue us like tigers.
+ - It would be, for me, mere pointless pleasure, an illusion of order for this one frail, foolish, flicker-flash in the long dull fall of eternity.
+ - Great things happen nationally when topmost leadership is goaded and supported from below.
+ - What art ought to do is tell stories which are moment-by-moment wonderful, which are true to human experience, and which in no way explain human experience.
+ - Art Gropes. It stalks like a hunter lost in the woods, listening to itself and to everything around it, unsure of itself, waiting to pounce.
+ - The true artist plays mad with his soul, labors at the very lip of the volcano, but remembers and clings to his purpose, which is as strong as the dream. He is not someone possessed, like Cassandra, but a passionate, easily tempted explorer who fully intends to get home again, like Odysseus.
+ - One must be just a little crazy to write a great novel. One must be capable of allowing the darkest, most ancient and shrewd parts of one’s being to take over the work from time to time.
+ - Nothing can be more limiting to the imagination than only writing about what you know.
+ - Writing a novel is like heading out over the open sea in a small boat. It helps, if you have a plan and a course laid out.
+ - People will tell you that writing is too difficult, that it’s impossible to get your work published, that you might as well hang yourself. Meanwhile, they’ll keep writing and you’ll have hanged yourself.
+ - The primary subject of fiction is and has always been human emotion, values, and beliefs.
+ - Fiction does not spring into the world fully grown, like Athena. It is the process of writing and rewriting that makes a fiction original, if not profound.
+
+27 quotes

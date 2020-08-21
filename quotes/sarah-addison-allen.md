@@ -1,0 +1,114 @@
+ - Men of thoughtless actions are always surprised by consequences.
+ - Happiness is a risk. If you’re not a little scared, then you’re not doing it right.
+ - You can’t change where you come from, but you can change where you go from here. Just like a book. If you don’t like the ending, you make up a new one.
+ - I lost myself trying to find happiness in things that didn’t love me back.
+ - She looked like autumn, when leaves turned and fruit ripened.
+ - Every life needs a little space. It leaves room for good things to enter it.
+ - When your cup is empty, you do not mourn what is gone. Because if you do, you will miss the opportunity to fill it again.
+ - The word lethologica describes the state of not being able to remember the word you want.
+ - When someone needs help, you help. Right?
+ - Superstitions are man’s way of trying to control things he has no control over...
+ - Sometimes you weren’t supposed to share pain. Sometimes it was best just to deal with it alone.
+ - Why were girls in such a hurry to grow up? Agatha would never understand. Childhood was magical. Leaving it behind was a magnificent loss.
+ - Adolescence is like having only enough light to see the step directly in front of you.
+ - The next morning dawned bright and sweet, like ribbon candy.
+ - She was so Southern that she cried tears that came straight from the Mississippi, and she always smelled faintly of cottonwood and peaches.
+ - It looked like the world was covered in a cobbler crust of brown sugar and cinnamon.
+ - She’d always known he didn’t love her. But it was easier to bear when he didn’t know she loved him. That way they were even. Now he knew he had all the power.
+ - When you’re a teenager, your friends are your life. When you grow up, friendships seem to get pushed further and further back, until it seems like a luxury, a frivolity, like a bubble bath.
+ - Don’t let anyone see your vulnerable spots. Once they knew how to hurt you, they would do it again and again.
+ - People always say life is too short for regrets. But the truth is, it’s too long.
+ - I needed to stop being what everyone thought I was.
+ - She sometimes thought she was going crazy. Her first thought when she woke up was always how to get him out of her thoughts. And she would keep watch, hoping to see him next door, while plotting ways to never have to see him again.
+ - After you finish a book, the story still goes on in your mind. You can never change the beginning. But you can always change the end.
+ - Everything had felt so precarious since her mother’s death, like she was walking on a bridge made of paper.
+ - Snow flurries began to fall and they swirled around people’s legs like house cats. It was magical, this snow globe world.
+ - Don’t you wish you could take a single childhood memory and blow it up into a bubble and live inside it forever?
+ - Like magic, she felt him getting nearer, felt it like a pull in the pit of her stomach. It felt like hunger but deeper, heavier. Like the best kind of expectation. Ice cream expectation. Chocolate expectation.
+ - Men. You can’t live with them, you can’t shoot them.
+ - First frost meant letting go, so it was always reason to celebrate.
+ - When you know something’s wrong, but you don’t know exactly what it is, the air around you changes.
+ - Memories, even hard memories, grew soft like peaches as they grow older.
+ - People fall in love all the time. And it’s not always with the right people. And it’s not always reciprocated.
+ - Love always hurts. That’s one thing I know you know. But it’s worth it. That’s what you don’t know. Yet.
+ - Safe is just another word for scared.
+ - It was the best first kiss in the history of first kisses. It was as sweet as sugar. And it was warm, as warm as pie. The whole world opened up and I fell inside. I don’t know where I was, but I didn’t care. I didn’t care because the only person who mattered was there with me.
+ - There was a mood of magic and frenzy to the room. Crystalline swirls of sugar and flour still lingered in the air like kite tails. And then there was the smell-the smell of hope, the kind of smell that brought people home.
+ - People adapt. People change. You can grow where you’re planted.
+ - Being left makes you doubt your ability to keep people, even friends.
+ - Stability was overrated. Crises and adventures, on the other hand, could actually teach you something.
+ - I think Heaven will be like a first kiss.
+ - When you’re happy for yourself, it fills you. When you’re happy for someone else, it pours over.
+ - How we see the world changes all the time. It all depends on our mood.
+ - The trick is not to make eye contact. They don’t charge if you don’t make eye contact.
+ - No one should ever compromise the dignity of another human being.
+ - Those who decided to stick with her would be her true friends. The others would just be scenery.
+ - To think, after all this time, after all the searching and all the waiting, after all the regret and the time she’d spent away, she came back to find that happiness was right where she’s left it. On a football field in Mullaby, North Carolina. Waiting for her.
+ - When you have to do something, you have to do it. Putting it off only makes it worse. Believe me, I know.
+ - But relying on one person for your every need is so dangerous. One set of hands isn’t enough to keep you from falling.
+ - Living down your own past was hard enough. You shouldn’t have to live down someone else’s.
+ - Some people don’t know how to fall in love, like not knowing how to swim. They panic first when they jump in. Then they figure it out.
+ - Embarrassment felt a lot like eating chili peppers. It burned in the back of your throat and there was nothing you could do to make it go away. You just had to take it, suffer from it, until it eased off.
+ - You’d be surprised how easy some things can be, things you never thought you’d do, when you take self-respect out of the equation.
+ - When people believe you have something to give, something no one else has, they’ll go to great lengths and pay a lot of money for it.
+ - But surprises were nothing new to her. Like opening a can of mushroom soup and finding tomato instead; be grateful and eat it anyway.
+ - Fate never promises to tell you everything up front. You aren’t always shown the path in life you’re supposed to take. But if there was one thing she’d learned in the past few weeks, it was that sometimes, when you’re really lucky, you meet someone with a map.
+ - Misfits need a place to get away, too. All that trying to fit in is exhausting.
+ - Blank-slate friendships were thin and temperamental. She knew that. There was no history there to cement people together, for better or worse.
+ - My writing process is very organic. I start with an idea. I have the general story arc and the cast. But then I sit down to write, and things change.
+ - The area was encompassed in a bubble of warm, fragrant steam from the funnel cake deep fryers. It smelled like sweet vanilla cake batter you licked off a spoon.
+ - She accepted it from then on. Books liked her. Books wanted to look after her.
+ - How can we know the true meaning of charity if we don’t even know how to help those closest to us?
+ - She knew what it felt like to stand in front of someone and ask them to love you, to try to pull them to you by the sheer force of your desire, a force so strong it felt as though you were going to die from it.
+ - My favorite books are the ones that make me smile for hours after reading them. I want that for my readers, for the sweetness to linger. Sort of like chocolate, but without the calories.
+ - Right now everyone is drinking bad wine made of sour grapes and hysteria. Let them drink it, and let them regret it in the morning.
+ - Crystalline swirls of sugar and flour still lingered in the air like kite tails.
+ - Girls like us, when we love, it takes everything we have.
+ - You are who you are, whether you like it or not, so why not like it?
+ - He was the only person in the world she was tongue-tied around, and yet the only person she really wanted to talk to.
+ - It was early evening when they walked outside, the sky the color of pink lemonade.
+ - Not every man was sorry when he hurt a woman.
+ - We’re connected, as women. It’s like a spiderweb. If one part of that web vibrates, if there’s trouble, we all know it, but most of the time we’re just too scared, or selfish, or insecure to help. But if we don’t help each other, who will?
+ - Magic is what we invent when we want something we think we cant have.
+ - It took me a long time to realize this: We get to choose what defines us.
+ - He had a smug smile on his lips like he knew, even in his sleep, that women all around him were dying from love because he’d taken their hearts and hidden them where they’d never find them.
+ - Sometimes people who had been together for a long time got to imagining that things used to be better, even when they weren’t.
+ - I’ll give you one day at a time, Claire. But remember, I’m thousands of days ahead already.
+ - Children always know when their mothers are crazy – they just never admit it, not out loud, to anyone.
+ - Watching them, she realized they made so much sense together. Every look, every touch, was a reassurance, almost electric, as if they were shocking each other with every contact.
+ - That’s the fairy tale. You meet, you fall in love, you kiss, and neither of you is revolted by it. You get married and have kids and live happily ever after.
+ - If we measured life in the things that almost happened, we wouldn’t get anywhere.
+ - There was a certain power beautiful mothers held over their less beautiful daughters.
+ - To Fred, those years seemed to pass like quickly skimming a book and then finding the ending wasn’t what he expected. He wished he’d paid more attention to the story.
+ - She never thought she was good at making friends. But maybe she was just trying to be friends with the wrong people.
+ - He reached out and pushed some hair behind her ears. The gesture was tender, but it hit her with an unexpected force, like when you’re in the ocean and a wave hits you. It’s so soft and coll that it surprised you that it has such strength.
+ - If anyone had been paying attention to the signs, they would have realized that air turns white when things are about to change, that paper cuts mean there’s more to what’s written on the page than meets the eye, and that birds are always out to protect you from things you don’t see.
+ - I should let people in. If they leave, they leave. If I break, I break. It happens to everyone. Right?
+ - We have history, you and I. You just don’t know it yet.
+ - Wasn’t that the point to being married? That you had a partner, someone you trusted, to help with important decisions.
+ - Everything was quiet, a strange sort of quiet that felt like an unfinished sentence.
+ - To this day she could make tap water boil just by kissing him.
+ - There was an art to the male posterior. That’s all there was to it.
+ - For stubborn souls like Lisette, death was easier than the courage it took to actually change your life.
+ - If they just carried on like always, everything would be ok.
+ - It was like she was MADE of cake, light and pretty and decorated on the outside-with her sweet laugh and pink streak to her hair-but it was anyone’s guess what was on the inside.
+ - He reached for her and kissed her. It was all at once passionate, as if there was too much in him to contain. He was immediately swept up in it. It took no effort, the difference between swimming on your own and being washed away in a flood.
+ - She’d fallen into the best part of her past.
+ - It had always fascinated him that she’d consumed so many words, that her head was full of stories, told a thousand different ways.
+ - It felt as though they were the only people in the world, two young women about to bury the symbol of their helplessness, as if that’s all it would take to make them whole again.
+ - Sometimes its necessary to embrace the magic, to find out what’s real in life, and in one’s own heart.
+ - If a man has so much heat he burns your skin when he touches you, he’s the devil. Run away.
+ - He might be tall enough to see into tomorrow, but he hadn’t looked there in a long, long time. He’d forgotten how bright it was. So bright he could hardly stand it.
+ - That, they knew, was true friendship. And they knew, if you’re lucky enough to find it, you hold on to it.
+ - I think of the future all the time. All my life I’ve chased dreams of what could be. For the first time in my life, I’ve actually caught one. I’ll give you one day at a time, Claire. But remember, I’m thousands of days ahead already.
+ - He used to believe good things happened in this kind of weather.
+ - I’ve never seen you hide from anyone before. He must do something crazy to you.
+ - But that would leave Paxton to fend for herself, and the last thing any woman wanted in this kind of situation was to look around and see all the people who could help her doing nothing.
+ - The words were strung in the air like garland. She could almost see them.
+ - How could someone with a life this full feel this empty?
+ - It was like the way you wanted sunshine on Saturdays, or pancakes for breakfast. They just made you feel good.
+ - He’d always been fascinated by her, drawn to her the way curious people are always drawn to things they don’t understand.
+ - Because he knew the best way to get what he wanted was to break down what made us strongest. And our friendships were what made us strong.
+ - Nothing is really broke, so it’s not like I can fix it. I just have to keep trying to find what I’m looking for.
+
+112 quotes

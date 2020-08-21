@@ -1,0 +1,79 @@
+ - Its hard to die. Harder to live.
+ - In the end – when all else is dust – loyalty to those we love is all we can carry with us to the grave. Faith – true faith – was trusting in that love.
+ - Context is to data what water is to a dolphin.
+ - Mobs have passions, not brains.
+ - Words are the only bullets in truth’s bandolier. And poets are the snipers.
+ - In such seconds of decision entire futures are made.
+ - No one inspired me to write, but writer Harlan Ellison terrified me into getting published.
+ - Stupidity has a price and it always gets paid.
+ - Words bend our thinking to infinite paths of self-delusion, and the fact that we spend most of our mental lives in brain mansions built of words means that we lack the objectivity necessary to see the terrible distortion of reality which language brings.
+ - This is every writer’s nightmare – the sudden breakdown of meaning in the language that sustains and supports us...
+ - A hero. You want to be one of those rare human beings who make history, rather than merely watch it flow around them like water around a rock.
+ - The future is like smoke from a burning forest, waiting for the wind of specific events and personal courage to blow the sparks and embers of reality this way or that.
+ - There is a fullness and calmness there which can come only from knowing pain.
+ - The Great Change is when humankind accepts its role as part of the natural order of the universe instead of its role as a cancer.
+ - A token of ecological awareness in a society devoted to self destruction and waste but unwilling to acknowledge its indulgent ways.
+ - Love is nothing but lust misspelled.
+ - Anticlimax is, of course, the warp and way of things. Real life seldom structures a decent denouement.
+ - Words are the light and sound of our existence, the heat lightning by which the night is illuminated.
+ - History viewed from the inside is always a dark, digestive mess, far different from the easily recognizable cow viewed from afar by historians.
+ - Barbarians, we call them, while all the while we timidly cling to our Web like Visigoths crouching in the ruins of Rome’s faded glory and proclaim ourselves civilized.
+ - It no longer matters who consider themselves the masters of events. Events no longer obey their masters.
+ - If our god’s work is to be done in our time, we must do it ourselves.
+ - The love of violence is an aspect of our humanity. Even the weak wish to be strong primarily so they can wield the whip.
+ - It occurs to me that our survival may depend upon our talking to one another.
+ - Poets are the mad midwives to reality. They see not what is, nor what can be, but what must become.
+ - Mystery. The strangeness of place so necessary to some creative spirits. A perfect mixture of the classical utopia and the pagan mystery.
+ - Any allegiance to a deity or concept or universal principal which put obedience above decent behavior toward an innocent human being evil.
+ - Nobody gets beyond a petroleum economy. Not while there’s petroleum there.
+ - The sum of the crowd’s IQ was far below that of its most modest single member. Mobs have passions, not brains.
+ - There is a certain solipsism to serious illness which claims all of one’s attention as certainly as an astronomical black hole seizes anything unlucky enough to fall within its critical radius.
+ - There’s a unique bond of trust between readers and authors that I don’t believe exists in any other art form; as a reader, I trust a novelist to give me his or her best effort, however flawed.
+ - Power: a currency that never went out of style.
+ - If everyone could understand the working of a psychopath’s mind, we undoubtedly would be closer to insanity ourselves.
+ - Prison always has been a good place for writers, killing, as it does, the twin demons of mobility and diversion.
+ - The life of a poet lies not merely in the finite language-dance of expression but in the nearly infinite combinations of perception and memory combined with the sensitivity to what is perceived and remembered.
+ - Love was as hardwired into the structure of the universe as gravity and matter.
+ - Human beings have only that confusing mass of chemically driven neurological storage to rely on. They’re all subjective and emotion-tinged. How can they trust any of their memories?
+ - Laws had a bad habit of being ignored or abrogated when societal push came to totalitarian shove.
+ - The whole planet reeks of mysticism without revelation.
+ - The shortest route to courage is absolute ignorance.
+ - Each heart has its graveyard, each household its dead, And knells ring around us wherever we tread, And the feet that awhile made our pathway so bright Pass on to a land that is out of our sight.
+ - Losing our ignorance can be dangerous because our ignorance is a shield.
+ - It’s odd how violence and humor so often go together, isn’t it?
+ - Evolution brings human beings. Human beings, through a long and painful process, bring humanity.
+ - I now understand the need for faith – pure, blind, fly-in-the-face-of-reason faith – as a small life preserver in the wild and endless sea of a universe ruled by unfeeling laws and totally indifferent to the small, reasoning beings that inhabit it.
+ - I loved almost everything about being a teacher, but I was an unusual teacher.
+ - We are all eaters of souls.
+ - I loved you backward and forward in time. I loved you beyond boundaries of time and space.
+ - Lovemaking seems all too absurd when described.
+ - The past is dead and buried. But I know now that buried things have a way of rising to the surface when one least expects them to.
+ - The truth is, it’s not a great career move to create a readership and then, in effect, abandon them.
+ - You have to live to really know things, my love.
+ - In twentieth-century Old Earth, a fast food chain took dead cow meat, fried it in grease, added carcinogens, wrapped it in petroleum-based foam, and sold nine hundred billion units. Human beings. Go figure.
+ - If there is a true religion in the universe, it must include the truth of contact or be forever hollow.
+ - No book or poem is ever finished, merely abandoned.
+ - It started 25 years ago, when I was teaching elementary school in a small town in Missouri.
+ - What, after all, is more real to us than the geography of our childhoods?
+ - As for the depiction of the Catholic church, it’s not meant to be a prediction.
+ - Movie SF is, by definition, dumbed down – there have only been three or four SF movies in the history of film that aspire to the complexity of literary SF.
+ - Doing a life study while drunk and in the process of being seduced is never a formula for quality art.
+ - Writing, Im convinced, should be a subversive activity – frowned on by the authorities – and not one cooed over and praised beyond common sense by some teacher.
+ - It is a mystery, and to tell the truth, I am intrigued by mysteries even if this is to be my last week of enjoying them. I would welcome some glimmer of understanding but, failing that, working on the puzzle will suffice.
+ - There is no doubt that I have discovered the ultimate in stagnant human societies. The Bikura have realized the human dream of immortality and have paid for it with their humanity and their immortal souls.
+ - But I think, and hope, that the novels can be understood and enjoyed as science fiction, on their own terms.
+ - We are not the only avatars of humanity. Once our computing machines achieved self-consciousness, they became part of this design.
+ - Luckily, even as a young man not yet become himself, John Bridgens had two things besides indecision that kept him from self-destruction – books and a sense of irony.
+ - Artists recognize other artists as soon as the pencil begins to move.
+ - His imagination was always more real than the reality of daily life.
+ - As long as my sixth graders showed an average improvement of five years, the principal and district pretty much left me alone to create my own curriculum and teach whatever I wanted.
+ - War must never be a condition but, rather, a temporary scourge which we suffer as a child does a fever, knowing that health follows the long night of pain and that peace is health.
+ - Pain is an interesting and off-putting thing. Few if any things in life concentrate our attention so completely and terribly, and few things are more boring to listen to or read about.
+ - Once evolution gets a good basic design, it tends to throw away the variants and concentrate on the near-infinite diversity within that design.
+ - I knew that I wanted to be a writer even before I knew exactly what being a writer entailed.
+ - Nothing helps an artist’s career more than a little death and obscurity.
+ - How could anyone stay sane with entire lifetimes stored in one human mind?
+ - Every age fraught with discord and danger seems to spawn a leader meant only for that age, a political giant whose absence, in retrospect, seems inconceivable when the history of that age is written.
+ - It’s one of the strangest attributes of this profession that when we writers get exhausted writing one thing, we relax by writing another.
+
+77 quotes

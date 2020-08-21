@@ -1,0 +1,26 @@
+ - Those we love don’t go away, they sit beside us every day.
+ - You’ve been here before. It won’t kill you. It feels like you can’t breathe, but you actually are breathing. It feels like you’ll never stop crying, but you actually will.
+ - Google is my best friend and my worst enemy. It’s fabulous for research, but then it becomes addictive. I’ll have a character eating an orange, and next thing I’m Googling types of oranges, I’m visiting chat rooms about oranges, I’m learning the history of the orange.
+ - Then he kissed her so deeply and so completely that she felt like she was falling, floating, spiraling down, down, down, like Alice in Wonderland.
+ - Everyone wanted to be rich and beautiful, but the truly rich and beautiful had to pretend they were just the same as everyone else.
+ - None of us ever know all the possible courses our lives could have and maybe should have taken. It’s probably just as well. Some secrets are meant to stay secret forever. Just ask Pandora.
+ - Just because a marriage ended didn’t mean that it hadn’t been happy at times.
+ - She didn’t understand a damned thing about life except that it was arbitrary and cruel, and some people got away with murder while others made one tiny, careless mistake and paid a terrible price.
+ - If parents had children who were good sleepers, they assumed this was due to their good parenting, not good luck.
+ - All conflict can be traced back to someone’s feelings getting hurt, don’t you think?
+ - Some secrets are meant to stay secret forever.
+ - They say it’s good to let your grudges go, but I don’t know, I’m quite fond of my grudge. I tend it like a little pet.
+ - The medication, the hormones and the relentless frustrations of our lives make us bitchy and you’re not allowed to be bitchy in public or people won’t like you.
+ - Marriage was a form of insanity; love hovering permanently on the edge of aggravation.
+ - But maybe every life looked wonderful if all you saw was the photo albums.
+ - Happy endings always made her cry. It was the relief.
+ - He got Alice, the way we did, or maybe even more so than us. He made her more confident, funnier, smarter. He brought out all the things that were there already and let her be fully herself, so she seemed to shine with this inner light.
+ - All these years there had been a Tupperware container of bad language in her head, and now she opened it and all those crisp, crunchy words were fresh and lovely, ready to be used.
+ - Nobody ever told you that being a mother is all about making what seemed like thousands of tiny decisions.
+ - It was like she was thinking, How far can I go with this? How much more can I fit in my life without losing control?
+ - What if I was! That’s my point. What if I was a bit overweight and not especially pretty? Why is that so terrible? So disgusting? Why is that the end of the world?
+ - I see lots of differences between Australians and Americans – but as mothers, I think were pretty much alike!
+ - She longed to feel something momentous. Sometimes her life seemed so little.
+ - We’d traveled, we’d been to lots of parties, lots of movies and concerts, we’d slept in. We’d done all those things that people with children seem to miss so passionately. We didn’t want those things anymore. We wanted a baby.
+
+24 quotes

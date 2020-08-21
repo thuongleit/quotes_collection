@@ -1,0 +1,458 @@
+ - Everything is more beautiful because we’re doomed. You will never be lovelier than you are now. We will never be here again.
+ - Give me a place to stand and I will move the earth.
+ - Be still my heart; thou hast known worse than this.
+ - And what he greatly thought, he nobly dared.
+ - I want to be alone with my thought.
+ - Have patience, heart.
+ - The journey is the thing.
+ - A sound mind in a manly body.
+ - Of all creatures that breathe and move upon the earth, nothing is bred that is weaker than man.
+ - If something’s hard to do, then it’s not worth doing.
+ - A small rock holds back a great wave.
+ - Over the wine-dark sea.
+ - Let me not then die ingloriously and without a struggle, but let me first do some great thing that shall be told among men hereafter.
+ - In a world gone mad, only a lunatic is truly insane.
+ - The Lord gives and the Lord takes away, as it pleases him, for he can do all things.
+ - A man who has been through bitter experiences and travelled far enjoys even his sufferings after a time.
+ - In youth and beauty, wisdom is but rare!
+ - We men are wretched things.
+ - Everything flows and nothing stays.
+ - Trying is the first step to failure.
+ - Words empty as the wind are best left unsaid.
+ - Boy, everyone is stupid except me.
+ - There is a time for many words, and there is also a time for sleep.
+ - For a friend with an understanding heart is worth no less than a brother.
+ - Like the generations of leaves, the lives of mortal men. Now the wind scatters the old leaves across the earth, now the living timber bursts with the new buds and spring comes round again. And so with men: as one generation comes to life, another dies away.
+ - If at first you don’t succeed, give up.
+ - The strong must protect the sweet.
+ - Sleep and Death, who are twin brothers.
+ - Each man delights in the work that suits him best.
+ - Be both a speaker of words and a doer of deeds.
+ - I am a part of all that I have met. Yet, experience is an arch wherethro gleams that untravl’d world whose margin fades forever and forever when I move.
+ - The minds of the everlasting gods are not changed suddenly.
+ - I’m a rageaholic. I just can’t live without rageahol.
+ - The blade itself incites to deeds of violence.
+ - Light is the task where many share the toil.
+ - Life and death are balanced on the edge of a razor.
+ - If you serve too many masters, you’ll soon suffer.
+ - The difficulty is not so great to die for a friend, as to find a friend worth dying for.
+ - A guest never forgets the host who has treated him kindly.
+ - The tongue of man is a twisty thing, there are plenty of words there of every kind.
+ - My name is Nobody.
+ - No matter how good you are at something, there’s always about a million people better than you.
+ - If you’re gonna get mad at me every time I do something stupid, then I guess I’ll just have to stop doing stupid things.
+ - Why, you could wake up dead tomorrow.
+ - A hunter of shadows, himself a shade.
+ - A gun is not a weapon! It’s a tool, like a butcher’s knife, or a harpoon, or an alligator.
+ - Don’t mess with the dead, boy, they have eerie powers.
+ - Money can be exchanged for goods and services!
+ - No trust is to be placed in women.
+ - His native home deep imag’d in his soul.
+ - Tell me, O Muse, of that ingenious hero who travelled far and wide after he had sacked the famous town of Troy.
+ - They have the Internet on computers now?
+ - Immortals are never alien to one another.
+ - Achilles absent was Achilles still!
+ - The god of war is impartial: he hands out death to the man who hands out death.
+ - There will be killing till the score is paid.
+ - Sleep, delicious and profound, the very counterfeit of death.
+ - Who love too much, hate in the like extreme.
+ - Go on with a spirit that fears nothing.
+ - Yet, taught by time, my heart has learned to glow for other’s good, and melt at other’s woe.
+ - A glorious death is his, who for his country falls.
+ - The sun rose on the flawless brimming sea into a sky all brazen-all one brightening for gods immortal and for mortal men on plowlands kind with grain.
+ - From his tongue flowed speech sweeter than honey.
+ - Nay if even in the house of Hades the dead forget their dead, yet will I even there be mindful of my dear comrade.
+ - Even a fool learns something once it hits him.
+ - It is not possible to fight beyond your strength, even if you strive.
+ - Be generous in the bedroom. Share your sandwich.
+ - You don’t win friends with salad.
+ - The proof of battle is action, proof of words, debate. No time for speeches now, it’s time to fight.
+ - Aries in his many fits knows no favorites.
+ - Tell me, O muse, of travellers far and wide.
+ - Beauty- it was a glorious gift of nature.
+ - A boy without mischief is like a bowling ball without a liquid center.
+ - The stars never lie, but the astrologers lie about the stars.
+ - Because they’re stupid, that’s why. That’s why everybody does everything.
+ - How prone to doubt, how cautious are the wise!
+ - All strangers and beggars are from Zeus, and a gift, though small, is precious.
+ - If you don’t like your job, you don’t strike! You just go in every day, and do it really half assed. That’s the American way.
+ - There is nothing more admirable than when two people who see eye to eye keep house as man and wife, confounding their enemies and delighting their friends.
+ - I believe that children are our future. Unless we stop them now.
+ - We all scribble poetry.
+ - We battle on in words, as always, mere words, and what’s the cure? We cannot find a thing.
+ - Young men’s minds are always changeable, but when an old man is concerned in a matter, he looks both before and after.
+ - No one can hurry me down to Hades before my time, but if a man’s hour is come, be he brave or be he coward, there is no escape for him when he has once been born.
+ - I don’t want to look like a weirdo. I’ll just go with the muumuu.
+ - Too many kings can ruin an army.
+ - From now on walking is my beer and feeling good is my hangover.
+ - I want answers now or I want them eventually!
+ - Singing is the lowest form of communication.
+ - Insignificant mortals, who are as leaves are, and now flourish and grow warm with life, and feed on what the ground gives, but then again fade away and are dead.
+ - If God didn’t want us to eat cows, why are they made out of meat?
+ - Hunger is insolent, and will be fed.
+ - I was working on a flat tax proposal and accidentally proved there was no God.
+ - And now I’m using sarcasm, to confess the whole thing so later I could say I already told you.
+ - The other day, I was so desperate for a beer, I snuck into the football stadium and ate the dirt under the bleachers.
+ - He knew how to say many false things that were like true sayings.
+ - Pffft, English. Who needs that? I’m never going to England.
+ - A woman is like beer. They look good, they smell good, and you’d step over your own mother just to get one!
+ - Lay ye down the golden chain From Heaven, and pull at its inferior links Both Goddesses and Gods.
+ - The force of union conquers all.
+ - Beauty! Terrible Beauty! A deathless Goddess – so she strikes our eyes!
+ - Wine can of their wits the wise beguile, Make the sage frolic, and the serious smile.
+ - I think the saddest day of my life was when I realized I could beat my Dad at most things, and Bart experienced that at the age of four.
+ - Behold, on wrong Swift vengeance waits; and art subdues the strong.
+ - It is not strength, but art, obtains the prize, And to be swift is less than to be wise.
+ - By hook or by crook this peril too shall be something that we remember.
+ - Fame was like a drug. But what was even more like a drug were the drugs.
+ - Noble and manly music invigorates the spirit, strengthens the wavering man, and incites him to great and worthy deeds.
+ - I didn’t lie! I just created fiction with my mouth!
+ - On these sands and in the clefts of the rocks, in the depths of the sea, in the creaking of the pines, you’ll spy secret footprints and catch far-off voices from the homecoming celebration. This land still longs for Odysseus.
+ - No man or woman born, coward or brave, can shun his destiny.
+ - Even his griefs are a joy long after to one that remembers all that he wrought and endured.
+ - Sinks my sad soul with sorrow to the grave.
+ - Like leaves on trees the race of man is found,- Now green in youth, now withering on the ground; Another race the following spring supplies: They fall successive, and successive rise.
+ - The roaring seas and many a dark range of mountains lie between us.
+ - A sympathetic friend can be quite as dear as a brother.
+ - First you get the sugar, then you get the power, then you get the women.
+ - After the event, even a fool is wise.
+ - There is no greater fame for a man than that which he wins with his footwork or the skill of his hands.
+ - Oh, look at me! I’m making people happy! I’m the Magical Man from Happy-Land, in a gumdrop house on Lollipop Lane! Oh, by the way, I was being sarcastic.
+ - Bear patiently, my heart, for you have suffered heavier things.
+ - Hateful to me as are the gates of hell, Is he who, hiding one thing in his heart, Utters another.
+ - Men grow tired of sleep, love, singing and dancing sooner than of war.
+ - There is not any advantage to be won from grim lamentation.
+ - One man is a splendid fighter – a god has made him so – one’s a dancer, another skilled at lyre and song, and deep in the next man’s chest farseeing Zeus plants the gift of judgment, good clear sense. And many reap the benefits of that treasure.
+ - I, for one, know of no sweeter sight for a man’s eyes than his own country.
+ - O friends, be men; so act that none may feel Ashamed to meet the eyes of other men. Think each one of this children and his wife, His home, his parents, living yet and dead. For them, the absent ones, I supplicate, And bid you rally here, and scorn to fly.
+ - The gods, likening themselves to all kinds of strangers, go in various disguises from city to city, observing the wrongdoing and the righteousness of men.
+ - I’m not a bath man myself. More of a cologne man.
+ - We have a great life here in Alaska, and we’re never going back to America again!
+ - It is entirely seemly for a young man killed in battle to lie mangled by the bronze spear. In his death all things appear fair.
+ - Is he not sacred, even to the gods, the wandering man who comes in weariness?
+ - Which would you rather be, a conqueror in the Olympic games, or the crier that proclaims who are conquerors?
+ - Life is largely a matter of expectation.
+ - The melancholy joys of evils pass’d, For he who much has suffer’d, much will know.
+ - Rock stars, is there anything they don’t know?
+ - By mutual confidence and mutual aid – great deeds are done, and great discoveries made.
+ - Once harm has been done, even a fool understands it.
+ - Without TV, it’s hard to know when one day ends and another begins.
+ - Few sons are equal to their fathers; most fall short, all too few surpass them.
+ - When a woman says nothing’s wrong, that means everything’s wrong. And when a woman says everything’s wrong, that means everything’s wrong! And when a woman says something’s not funny, you’d better not laugh your ass off!
+ - Once you go Vatican, you never go back again.
+ - Oh, my tattered rags are caught on your coffee table.
+ - It behooves a father to be blameless if he expects his child to be.
+ - I too shall lie in the dust when I am dead, but now let me win noble renown.
+ - Anger, which, far sweeter than trickling drops of honey, rises in the bosom of a man like smoke.
+ - Without a sign, his sword the brave man draws, and asks no omen, but his country’s cause.
+ - Never throw a butcher knife in anger.
+ - I wish that strife would vanish away from among gods and mortals, and gall, which makes a man grow angry for all his great mind, that gall of anger that swarms like smoke inside of a man’s heart and becomes a thing sweeter to him by far than the dripping of honey.
+ - What is this word that broke through the fence of your teeth, Atreides?
+ - Just once I’d like someone to call me ‘Sir’ without adding ‘You’re making a scene.’
+ - I discovered a meal between breakfast and brunch.
+ - Goddess of song, teach me the story of a hero.
+ - Discourse, the sweeter banquet of the mind.
+ - Remember that postcard Grandpa sent us from Florida of that Alligator biting that woman’s bottom? That’s right, we all thought it was hilarious. But, it turns out we were wrong. That alligator was sexually harassing that woman.
+ - Not at all similar are the race of the immortal gods and the race of men who walk upon the earth.
+ - He lives not long who battles with the immortals, nor do his children prattle about his knees when he has come back from battle and the dread fray.
+ - I would rather be a serf in a poor man’s house and be above ground than reign among the dead.
+ - Kids are great. You can teach them to hate what you hate and, with the Internet and all, they practically raise themselves.
+ - Greetings, friends. Do you wish to look as happy as me? Well, you’ve got the power inside you right now. So use it and send one dollar to Happy Dude, 742 Evergreen Terrace, Springfield. Don’t delay. Eternal happiness is just a dollar away.
+ - So peaceful shalt thou end thy blissful days, And steal thyself from life by slow decays.
+ - The internet wasn’t created for mockery, it was supposed to help researchers at different universities share data sets. It was!
+ - Reproach is infinite, and knows no end So voluble a weapon is the tongue; Wounded, we wound; and neither side can fail For every man has equal strength to rail.
+ - The God of War will see fair play-he’s often slain that wants to slay!
+ - Evil deeds do not prosper; the slow man catches up with the swift.
+ - To be loved, you have to be nice to people, everyday. But to be hated, you don’t have to do squat!
+ - Always to be best, and distinguished above the rest.
+ - Urge him with truth to frame his fair replies And sure he will for Wisdom never lies.
+ - Among all men on the earth bards have a share of honor and reverence, because the muse has taught them songs and loves the race of bards.
+ - To speak his thoughts is every freeman’s right, in peace and war, in council and in fight.
+ - Clanless, lawless, homeless is he who is in love with civil war, that brutal ferocious thing.
+ - Proud is the spirit of Zeus-fostered kings – their honor comes from Zeus, and Zeus, god of council, loves them.
+ - Whenever a man is tired, wine is a great restorer of strength.
+ - When are people going to learn? Democracy doesn’t work.
+ - You know, the one with all the well meaning rules that don’t work out in real life, uh, Christianity.
+ - Pine needle sorbet? Pine needle sorbet?! My kids do NOT eat sorbet. They eat sherbet, and they pronounce it sherbert, and they wish it was ice cream!
+ - Being popular is the most important thing in the world!
+ - Men in their generations are like the leaves of the trees. The wind blows and one year’s leaves are scattered on the ground; but the trees burst into bud and put on fresh ones when the spring comes round.
+ - Why have you come to me here, dear heart, with all these instructions? I promise you I will do everything just as you ask. But come closer. Let us give in to grief, however briefly, in each other’s arms.
+ - The single best augury is to fight for one’s country.
+ - Two urns on Jove’s high throne have ever stood, the source of evil one, and one of good; from thence the cup of mortal man he fills, blessings to these, to those distributes ills; to most he mingles both.
+ - Mmmm. Move over, eggs. Bacon just got a new best friend – fudge.
+ - The man who acts the least, upbraids the most.
+ - Look at me! I’m a puffy pink cloud!
+ - Miserable mortals who like leaves at one moment flame with life eating the produce of the land and at another moment weakly perish.
+ - Nothing feebler does earth nurture than man, Of all things breathing and moving.
+ - You, why are you so afraid of war and slaughter? Even if all the rest of us drop and die around you, grappling for the ships, you’d run no risk of death: you lack the heart to last it out in combat – coward!
+ - I’m a Spalding Gray in a Rick Dees world.
+ - For love deceives the best of woman kind.
+ - She spoke and loosened from her bosom the embroidered girdle of many colors into which all her allurements were fashioned. In it was love and int desire which steals the mind even of the wise.
+ - Television! Teacher, mother, secret lover.
+ - Men are so quick to blame the gods: they say that we devise their misery. But they themselves- in their depravity- design grief greater than the griefs that fate assigns.
+ - One rogue leads another.
+ - It is not right to glory in the slain.
+ - Short is my date, but deathless my renown.
+ - Fate is the same for the man who holds back, the same if he fights hard. We are all held in a single honor, the brave with the weaklings. A man dies still if he has done nothing, as the one who has done much.
+ - Our fruitless labours mourn, And only rich in barren fame return.
+ - Do not beg me by knees or by parents you dog! I only wish I were savagely wrathful enough to hack up your corpse and eat it raw.
+ - Unextinguished laughter shakes the skies.
+ - Few sons attain the praise Of their great sires and most their sires disgrace.
+ - Two friends, two bodies with one soul inspired.
+ - Now deep in ocean sunk the lamp of light, And drew behind the cloudy vale of night.
+ - Sensitive love letters are my specialty. ‘Dear Baby, Welcome to Dumpsville. Population: you.’
+ - There is no fouler fiend than a woman when her mind is bent to evil.
+ - The outcome of the war is in our hands; the outcome of words is in the council.
+ - The windy satisfaction of the tongue.
+ - God help me, I’m just not that bright.
+ - Actually, I’ve been working on a plan. During the exam, I’ll hide under some coats, and hope that somehow everything will work out.
+ - All my life I’ve been an obese man trapped inside a fat man’s body.
+ - Persuasive speech, and more persuasive sighs, Silence that spoke and eloquence of eyes.
+ - If it doesn’t have siamese twins in a jar, it is not a fair.
+ - One who contends with immortals lives a very short life.
+ - Think not to match yourself against the gods, for men that walk the earth cannot hold their own with the immortals.
+ - And when long years and seasons wheeling brought around that point of time ordained for him to make his passage homeward, trials and dangers, even so, attended him even in Ithaca, near those he loved.
+ - The lot of man-to suffer and die.
+ - To have a great man for an intimate friend seems pleasant to those who have never tried it; those who have, fear it.
+ - The generation of mankind is like the generation of leaves. The wind scatters the leaves on the ground, but the living tree burgeons with leaves again in the spring.
+ - Thus have the gods spun the thread for wretched mortals: that they live in grief while they themselves are without cares; for two jars stand on the floor of Zeus of the gifts which he gives, one of evils and another of blessings.
+ - Better to live or die, once and for all, than die by inches.
+ - The best things beyond their measure cloy.
+ - Guns aren’t toys! They’re for family protection, hunting dangerous or delicious animals, and keeping the King of England out of your face!
+ - Public transportation is for jerks and lesbians.
+ - There is satiety in all things, in sleep, and love-making, in the loveliness of singing and the innocent dance.
+ - Beyond his strength no man can fight, although he be eager.
+ - By their own follies they perished, the fools.
+ - And empty words are evil.
+ - Wide-sounding Zeus takes away half a man’s worth on the day when slavery comes upon him.
+ - Zeus it seems has given us from youth to old age a nice ball of wool to wind-nothing but wars upon wars until we shall perish every one.
+ - See now, how men lay blame upon us gods for what is after all nothing but their own folly.
+ - It is the bold man who every time does best, at home or abroad.
+ - Marge, when I join an underground cult I expect a little support from my family.
+ - Still, we will let all this be a thing of the past, though it hurts us, and beat down by constraint the anger that rises inside us. Now I am making an end of my anger. It does not become me, unrelentingly to rage on.
+ - Without question it may be said of Vancouver that her position, geographically, is Imperial to a degree, that her possibilities are enormous, and that with but a feeble stretch of the imagination those possibilities might wisely be deemed certainties.
+ - Sweet sleep fell upon his eyelids, unwakeful, most pleasant, the nearest like death.
+ - A generation of men is like a generation of leaves; the wind scatters some leaves upon the ground, while others the burgeoning wood brings forth – and the season of spring comes on. So of men one generation springs forth and another ceases.
+ - To-morrow we embark upon the boundless sea.
+ - Wise to resolve, and patient to perform.
+ - It’s not easy to juggle a pregnant wife and a troubled child, but somehow I managed to fit in eight hours of TV a day.
+ - Boy, those Germans have a word for everything!
+ - The Simpsons are going to Delaware!
+ - Now what is a wedding? Well, Webster’s dictionary describes a wedding as the process of removing weeds from one’s garden.
+ - I can’t even say the word ‘titmouse’ without giggling like a schoolgirl.
+ - Bad herdsmen waste the flocks which thou hast left behind.
+ - It is not good to have a rule of many.
+ - Long exercised in woes.
+ - No TV and no beer makes Homer something something.
+ - The leader, mingling with the vulgar host, Is in the common mass of matter lost.
+ - I’m like that guy who single-handedly built the rocket and flew to the moon. What was his name? Apollo Creed?
+ - All men have need of the gods.
+ - Books are useless! I only ever read one book, To Kill a Mockingbird, and it gave me absolutely no insight on how to kill mockingbirds! Sure it taught me not to judge a man by the color of his skin but what good does that do me?
+ - Homer no function beer well without.
+ - You ought not to practice childish ways, since you are no longer that age.
+ - The natural thing, my lord, men and women joined.
+ - She threw into the wine which they were drinking a drug which takes away grief and passion and brings forgetfulness of all ills.
+ - Do not mourn the dead with the belly.
+ - Young people are thoughtless as a rule.
+ - Heaven hears and pities hapless men like me, For sacred ev’n to gods is misery.
+ - For never, never, wicked man was wise.
+ - Whatever day Makes man a slave, takes half his worth away.
+ - It is wrong to be sorry without ceasing.
+ - The fates have given mankind a patient soul.
+ - Strife and Confusion joined the fight, along with cruel Death, who seized one wounded man while still alive and then another man without a wound, while pulling the feet of one more corpse out from the fight. The clothes Death wore around her shoulders were dyed red with human blood.
+ - When you’re in my house you shall do as I do and believe who I believe in. So Bart butter your bacon.
+ - What greater glory attends a man than what he wins with his racing feet and his striving hands?
+ - I don’t know how much longer I can complain.
+ - You never know when an old calendar might come in handy! Sure, it’s not 1985 right now, but who knows what tomorrow will bring?
+ - How vain, without the merit, is the name.
+ - Fear, O Achilles, the wrath of heaven; think on your own father and have compassion upon me, who am the more pitiable.
+ - How delicate her feet who shuns the ground, Stepping a-tiptoe on the heads of men.
+ - His descent was like nightfall.
+ - Zeus does not bring all men’s plans to fulfillment.
+ - It is not unseemly for a man to die fighting in defense of his country.
+ - She sent him a warm and gentle wind, and Lord Odysseus was happy as he set his sails to catch the breeze. He sat beside the steering oar and used his skill to steer the raft.
+ - Nothing shall I, while sane, compare with a friend.
+ - There is nothing worse for mortals than a wandering life.
+ - True friends appear less moved than counterfeit.
+ - A man dies still if he has done nothing, as one who has done much.
+ - The hearts of great men can be changed.
+ - I hate To tell again a tale once fully told.
+ - We live in a society of laws. Why do you think I took you to all those Police Academy movies? For fun? Well, I didn’t hear anybody laughing, did you?
+ - The bitter dregs of Fortune’s cup to drain.
+ - A councilor ought not to sleep the whole night through, a man to whom the populace is entrusted, and who has many responsibilities.
+ - I’ve finally tapped into that spirit of self-destruction that makes rock-n-roll the king of music!
+ - All deaths are hateful to miserable mortals, but the most pitiable death of all is to starve.
+ - Servants, when their lords no longer sway, Their minds no more to righteous courses bend.
+ - I won’t lie to you, fatherhood isn’t easy like motherhood.
+ - Come then, put away your sword in its sheath, and let us two go up into my bed so that, lying together in the bed of love, we may then have faith and trust in each other.
+ - Rather I’d choose laboriously to bear A weight of woes, and breathe the vital air, A slave to some poor hind that toils for bread, Than reign the sceptred monarch of the dead.
+ - Thou shalt not take moochers into thy hut?
+ - Nobody gets into heaven without a glowstick.
+ - The son of Saturn gave The nod with his dark brows. The ambrosial curls Upon the Sovereign One’s immortal head Were shaken, and with them the mighty mount, Olympus trembled.
+ - The ugliest man was he who came to Troy; with squinting eyes and one distorted foot.
+ - Do I know what rhetorical means?
+ - We’re goin bowling. If we don’t come back, avenge our deaths.
+ - Shame greatly hurts or greatly helps mankind.
+ - The wine urges me on, the bewitching wine, which sets even a wise man to singing and to laughing gently and rouses him up to dance and brings forth words which were better unspoken.
+ - There is a fullness of all things, even of sleep and love.
+ - I live an idle burden to the ground.
+ - All things are in the hand of heaven, and Folly, eldest of Jove’s daughters, shuts men’s eyes to their destruction. She walks delicately, not on the solid earth, but hovers over the heads of men to make them stumble or to ensnare them.
+ - And by the Sacred Parchment, I swear that if I reveal the secrets of The Stonecutters, may my stomach become bloated and my head be plucked of all but three hairs.
+ - I should rather labor as another’s serf, in the home of a man without fortune, one whose livelihood was meager, than rule over all the departed dead.
+ - It is always the latest song that an audience applauds the most.
+ - I say no wealth is worth my life.
+ - Content to follow when we lead the way.
+ - Shame is no comrade for the poor, I weet.
+ - My life is more to me than all the wealth of Ilius.
+ - The chance of war Is equal, and the slayer oft is slain.
+ - Death submits to no one.
+ - And for yourself, may the gods grant you your heart’s desire, a husband and a home, and the blessing of a harmonious life. For nothing is greater or finer than this, when a man and woman live together with one hear and mind, bringing joy to their friends and grief to their foes.
+ - I detest the man who hides on thing in the depths of his heart and speaks forth another.
+ - You know boys, a nuclear reactor is a lot like women. You just have to read the manual and press the right button.
+ - There is nothing more dread and more shameless than a woman who plans such deeds in her heart as the foul deed which she plotted when she contrived her husband’s murder.
+ - A young man is embarrassed to question an older one.
+ - I’ll teach you to laugh at something that’s funny!
+ - This year I invested in pumpkins. They’ve been going up the whole month of October and I got a feeling they’re going to peak right around January. Then bang! That’s when I’ll cash in.
+ - Women are easy, state capitals are hard.
+ - First you don’t want me to get the pony, then you want me to take it back. Make up your mind!
+ - Nothing in the world is so incontinent as a man’s accursed appetite.
+ - They did not know her-gods are hard for mortals to recognize.
+ - Ajax the great Himself a host.
+ - Even the bravest cannot fight beyond his power.
+ - Porkchops and bacon, my two favorite animals.
+ - Uncontrollable laughter arose among the blessed gods.
+ - Who ne’er knew salt, or heard the billows roar.
+ - Ah, beer, my one weakness. My Achille’s heel, if you will.
+ - Better to flee from death than feel its grip.
+ - As leaves on the trees, such is the life of man.
+ - Too dear I prized a fair enchanting face: beauty unchaste is beauty in disgrace.
+ - Union Rule 26: Every employee must win ‘Worker of the Week’ at least once, regardless of gross incompetence, obesity or rank odor.
+ - The charity that is a trifle to us can be precious to others.
+ - If not yet lost to all the sense of shame.
+ - We cannot all hope to combine the pleasing qualities of good looks, brains, and eloquence.
+ - Modesty is of no use to a beggar.
+ - And here I am using my own lungs like a sucker.
+ - It is equally bad when one speeds on the guest unwilling to go, and when he holds back one who is hastening. Rather one should befriend the guest who is there, but speed him when he wishes.
+ - Of men who have a sense of honor, more come through alive than are slain, but from those who flee comes neither glory nor any help.
+ - I’ll get out of this city alive, even if it kills me!
+ - To labour is the lot of man below; And when Jove gave us life, he gave us woe.
+ - Nor can one word be chang’d but for a worse.
+ - A shamefaced man makes a bad beggar.
+ - And woe succeeds woe.
+ - It is equally offensive to speed a guest who would like to stay and to detain one who is anxious to leave.
+ - For too much rest becomes a pain.
+ - Victory passes back and forth between men.
+ - It never was our guise to slight the poor, or aught humane despise.
+ - Like strength is felt from hope, and from despair.
+ - Reproach is infinite, and knows no end.
+ - The persuasion of a friend is a strong thing.
+ - Yet while my Hector still survives, I see My father, mother, brethren, all in thee.
+ - Shoulder-to-shoulder, swing to the work, we must – just two as we are – if we hope to make some headway. The worst cowards, banded together, have their power, but you and I have got the skill to fight their best.
+ - Blame the guy who doesn’t speak Engish.
+ - But you can’t stop at one, you wanna drink another woman!
+ - By turns the nine delight to sing.
+ - Not vain the weakest, if their force unite.
+ - Suffering is but another name for the teaching of experience, which is the parent of instruction and the schoolmaster of life.
+ - You know those balls that they put on car antennas so you can find them in the parking lot? Those should be on every car!
+ - Dreams are sent by God.
+ - You can’t go wrong with cocktail weenies. They look as good as they taste. And they come in this delicious red sauce. It looks like ketchup, it tastes like ketchup, but brother, it ain’t ketchup!
+ - Ill fares the State where many masters rule; let one be lord, one king supreme.
+ - Whoever among men who walk the Earth has seen these Mysteries is blessed, but whoever in uninitiated and has not received his share of the rite, he will not have the same lot as the others, once he is dead and dwells in the mould where the sun goes down.
+ - It’s about time trees were good for something, instead of just standing there like jerks!
+ - Never to be cast away are the gifts of the gods, magnificent, which they give of their own will, no man could have them for wanting them.
+ - The whims of youth break all the rules.
+ - We mortals hear only the news, and know nothing at all.
+ - And his good wife will tear her cheeks in grief, his sons are orphans and he, soaking the soil red with his own blood, he rots away himself-more birds than women flocking round his body!
+ - No season now for calm, familiar talk.
+ - Know from the bounteous heaven all riches flow.
+ - The only monster here is the gambling monster that has enslaved your mother, and I call him Gamblor!
+ - I’ve gone back in time to when dinosaurs weren’t just confined to zoos.
+ - I’m in a place where I don’t know where I am!
+ - Do thou restrain the haughty spirit in thy breast, for better far is gentle courtesy.
+ - Who hearkens to the gods, the gods give ear.
+ - Steel itself oft lures a man to fight.
+ - The rest were vulgar deaths unknown to fame.
+ - For I am yearning to visit the limits of the all-nurturing Earth, and Oceans, from whom the gods are sprung.
+ - Not two strong men the enormous weight could raise,- Such men as live in these degenerate days.
+ - For afterwards a man finds pleasure in his pains, when he has suffered long and wandered long. So I will tell you what you ask and seek to know.
+ - The glorious gifts of the gods are not to be cast aside.
+ - Generations of men are like the leaves. In winter, winds blow them down to earth, but then, when spring season comes again, the budding wood grows more. And so with men: one generation grows, another dies away.
+ - Internet! Is that thing still around?
+ - If you are very valiant, it is a god, I think, who gave you this gift.
+ - One who journeying Along a way he knows not, having crossed A place of drear extent, before him sees A river rushing swiftly toward the deep, And all its tossing current white with foam, And stops and turns, and measures back his way.
+ - Forgetful youth! but know, the Power above With ease can save each object of his love; Wide as his will extends his boundless grace.
+ - If they think I’m going to stop at that stop sign, they’re mistaken!
+ - Whoever obeys the gods, to him they particularly listen.
+ - The Grecian ladies counted their age from their marriage, not their birth.
+ - And they die an equal death – the idler and the man of mighty deeds.
+ - The long historian of my country’s woes.
+ - There is a strength in the even of very sorry men.
+ - Wine sets even a thoughtful man to singing, or sets him into softly laughing, sets him to dancing. Sometimes it tosses out a word that was better unspoken.
+ - A decent boldness ever meets with friends.
+ - Even when someone battles hard, there is an equal portion for one who lingers behind, and in the same honor are held both the coward and the brave man; the idle man and he who has done much meet death alike.
+ - To heal divisions, to relieve the oppress’d, In virtue rich; in blessing others, bless’d.
+ - Oh, everything looks bad if you remember it.
+ - Good things don’t end in -eum; they end in -mania or -teria.
+ - For rarely are sons similar to their fathers: most are worse, and a few are better than their fathers.
+ - I long for home, long for the sight of home.
+ - We got a little rule back home: If it’s brown, drink it down. If it’s black, send it back.
+ - You will certainly not be able to take the lead in all things yourself, for to one man a god has given deeds of war, and to another the dance, to another lyre and song, and in another wide-sounding Zeus puts a good mind.
+ - Look now how mortals are blaming the gods, for they say that evils come from us, but in fact they themselves have woes beyond their share because of their own follies.
+ - In every sorrowing soul I pour’d delight, And poverty stood smiling in my sight.
+ - Many shining actions owe their success to chance, though the general or statesman receive the applause.
+ - All men owe honor to the poets – honor and awe; for they are dearest to the Muse who puts upon their lips the ways of life.
+ - Let him submit to me! Only the god of death is so relentless, Death submits to no one – so mortals hate him most of all the gods. Let him bow down to me! I am the greater king, I am the elder-born, I claim – the greater man.
+ - And would’st thou evil for his good repay?
+ - Now son, you don’t want to drink beer. That’s for Daddies, and kids with fake IDs.
+ - See how God ever like with like doth pair, And still the worthless doth the worthless lead!
+ - A companion’s words of persuasion are effective.
+ - All the survivors of the war had reached their homes and so put the perils of battle and the sea behind them.
+ - So it is that the gods do not give all men gifts of grace – neither good looks nor intelligence nor eloquence.
+ - He knew the things that were and the things that would be and the things that had been before.
+ - Here, therefore, huge and mighty warrior though you be, here shall you die.
+ - I have no interest at all in food and drink, but only in slaughter and blood and the agonized groans of mangled men.
+ - Earth sounds my wisdom, and high heaven my fame.
+ - But curb thou the high spirit in thy breast, for gentle ways are best, and keep aloof from sharp contentions.
+ - It is equally wrong to speed a guest who does not want to go, and to keep one back who is eager. You ought to make welcome the present guest, and send forth the one who wishes to go.
+ - It’s man’s to fight, but heaven’s to give success.
+ - But listen to me first and swear an oath to use all your eloquence and strength to look after me and protect me.
+ - Goddess-nurse of the young, give ear to my prayer, and grant that this woman may reject the love-embraces of youth and dote on grey-haired old men whose powers are dulled, but whose hearts still desire.
+ - It is better to watch people do stuff than to do stuff.
+ - Most grievous of all deaths it is to die of hunger.
+ - What so tedious as a twice-told tale?
+ - The information superhighway showed the average person what some nerd thinks about Star Trek.
+ - For when two Join in the same adventure, one perceives Before the other how they ought to act; While one alone, however prompt, resolves More tardily and with a weaker will.
+ - Ah how shameless – the way these mortals blame the gods. From us alone they say come all their miseries yes but they themselves with their own reckless ways compound their pains beyond their proper share.
+ - Why so much grief for me? No man will hurl me down to Death, against my fate. And fate? No one alive has ever escaped it, neither brave man nor coward, I tell you – it’s born with us the day that we are born.
+ - We are quick to flare up, we races of men on the earth.
+ - Hey, what’s the big deal about going to some building every Sunday? I mean, isn’t God everywhere?
+ - And not a man appears to tell their fate.
+ - It was built against the will of the immortal gods, and so it did not last for long.
+ - Wine lead to folly, making even the wise to laugh immoderately, to dance, and to utter what had better have been kept silent.
+ - But he whose inborn worth his acts commend, Of gentle soul, to human race a friend.
+ - Bursts as a wave that from the clouds impends, And swell’d with tempests on the ship descends; White are the decks with foam; the winds aloud Howl o’er the masts, and sing through every shroud: Pale, trembling, tir’d, the sailors freeze with fears; And instant death on every wave appears.
+ - Noblest minds are easiest bent.
+ - It is no bad thing to be a king-to see one’s house enriched and one’s authority enhanced.
+ - My wife’s not some doobie to be passed around! I took a vow on our wedding day to bogart her for life.
+ - I’ve always wondered if there was a God. And now I know there is – and it’s me.
+ - Will cast the spear and leave the rest to Jove.
+ - If any man obeys the gods, they listen to him also.
+ - Strife, only a slight thing when she first rears her head but her head soon hits the sky as she strides across the earth.
+ - By Jove the stranger and the poor are sent, and what to those we give, to Jove is lent.
+ - Ruin, eldest daughter of Zeus, she blinds us all, that fatal madness – she with those delicate feet of hers, never touching the earth, gliding over the heads of men to trap us all. She entangles one man, now another.
+ - Wine gives strength to weary men.
+ - The gods give to mortals not everything at the same time.
+ - The wordy tale, once told, were hard to tell again.
+ - Far from me be the gift of Bacchus – pernicious, inflaming wine, that weakens both body and mind.
+ - Even were sleep is concerned, too much is a bad thing.
+ - All right, let’s not panic. I’ll make the money by selling one of my livers. I can get by with one.
+ - Base wealth preferring to eternal praise.
+ - I’m a white male, age 18 to 49. Everyone listens to me, no matter how dumb my suggestions are.
+ - It’s disgraceful how these humans blame the gods. They say their tribulations come from us, when they themselves, through their own foolishness, bring hardships which are not decreed by Fate.
+ - Old people don’t need companionship. They need to be isolated and studied so it can be determined what nutrients they have that might be extracted for our personal use.
+ - The man does better who runs from disaster than he who is caught by it.
+ - Forget the brother and resume the man.
+ - And Heaven, that every virtue bears in mind, E’en to the ashes of the just is kind.
+ - I war not with the dead.
+
+456 quotes

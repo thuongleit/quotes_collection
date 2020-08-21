@@ -1,0 +1,98 @@
+ - If your mind isn’t open, keep your mouth shut too.
+ - I love being single. It’s almost like being rich.
+ - Ideas are easy. It’s the execution of ideas that really separates the sheep from the goats.
+ - Beware the dark pool at the bottom of our hearts. In its icy, black depths dwell strange and twisted creatures it is best not to disturb.
+ - Give yourself time to get better.
+ - Dream big but think small.
+ - That’s the way the system works. Sometimes you get the bear, sometimes the bear gets you.
+ - Lucky is the spouse who dies first, who never has to know what survivors endure.
+ - Ghosts don’t haunt us. That’s not how it works. They’re present among us because we won’t let go of them.
+ - You can’t save others from themselves because those who make a perpetual muddle of their lives don’t appreciate your interfering with the drama they’ve created. They want your poor-sweet-baby sympathy, but they don’t want to change.
+ - If you’re unhappy, change something.
+ - People get careless when they’re feeling safe.
+ - Sometimes being fooled by love is worth the price. At least you know you’re alive and capable of feeling, even if all you end up with is chest pain.
+ - There’s nothing quite as irksome as someone else’s mess.
+ - We all need to look into the dark side of our nature – that’s where the energy is, the passion. People are afraid of that because it holds pieces of us we’re busy denying.
+ - Train yourself to listen to that small voice that tells us what’s important and what’s not.
+ - A woman should never, never, never be financially dependent to anyone, especially a man, because the minute you were dependent, you could be abused.
+ - Thinking is hard work, which is why you don’t see many people doing it.
+ - The memory is like orbiting twin stars, one visible, one dark, the trajectory of what’s evident forever affected by the gravity of what’s concealed.
+ - Emotion doesn’t travel in a straight line. Like water, our feelings trickle down through cracks and crevices, seeking out the little pockets of neediness and neglect, the hairline fractures in our character usually hidden from public view.
+ - Writing is not about making a buck, not about publishers and agents. Writing is not about feeling good. Writing is about pain, suffering, hard work, risk, and fear.
+ - You can’t make anyone love you and you can’t stop anyone from dying.
+ - School was a source of great suffering to me, but once I learned to read, I disappeared into books, where I was a happy visitor to all the worlds that sprang full-blown from the printed page.
+ - Who knows what part we play in other people’s dreams?
+ - It is a truth of human nature that we can ponder life’s mysteries for only so long before we lose interest and move on to something else.
+ - The hard thing about death is that nothing ever changes. The hard thing about life is that nothing stays the same.
+ - When all else fails, cleaning house is the perfect antidote to most of life’s ills.
+ - I caution writers all the time to slow down and pay more attention to the work in front of them than to the end result. I don’t think you write one book and get anywhere. I think you write five books and then maybe you are finally on the right path.
+ - I’ve never written about my husband, Steve, or any of my children because I know them all too well. I see them in all their complexities which makes them impossible to render on the printed page.
+ - My job as the writer is to fool you. Your job as the reader is to see if you can catch me at it.
+ - You kill people you hate or you kill in rage or you kill to get even, but you don’t kill someone you’re indifferent to.
+ - God save us from the people who want to do what’s best for us.
+ - Grief rolled across the space between us like a wash of salt water.
+ - I write because it’s all I know how to do. Writing is my anchor and my purpose. My life is informed by writing, whether the work is going well or I’m stuck in the hell of writer’s block, which I’m happy to report only occurs about once a day.
+ - Having reached the halfway mark in the alphabet, my prime focus is on writing each new book as well as I can.
+ - You try to keep life simple but it never works, and in the end all you have left is yourself.
+ - After my years in Hollywood, I got tired of apologizing for work that really wasn’t mine to begin with.
+ - Pay minimum wage, you get minimum work. Nobody seems to get that.
+ - Insecure people have a special sensitivity for anything that finally confirms their own low opinion of themselves.
+ - Writing isn’t about the destination-writing is the journey that transforms the soul and gives meaning to all else.
+ - He might be a man without character, but she was a woman without courage. Of the two, which was worse?
+ - My father taught me to love detective fiction writers such as Raymond Chandler. When I decided to have a hard-boiled detective series I did a lot of studying before I wrote the first book. I learned police procedure, the California criminal law, and many areas outside my expertise.
+ - If high heels were so wonderful, men would still be wearing them.
+ - You write one book and you’re ready for fame and fortune. I don’t know that people are spending the time and attention on learning how to write-which takes years. Everybody sees the success stories.
+ - You never know which people will affect your life.
+ - I write letters to my right brain all the time. They’re just little notes. And right brain, who likes to get little notes from me, will often come through within a day or two.
+ - Grieving is like being ill. You think the entire world revolves around you and it doesn’t.
+ - Life was reduced to its four basic elements: air, food, drink, and a good friend.
+ - I know there are people who believe you should forgive and forget. For the record, I’d like to say I’m a big fan of forgiveness as long as I’m given the opportunity to get even first.
+ - I hate nature. I really do. Nature is composed entirely of sticks, dirt, fall-down places, biting and stinging things, and savageries too numerous to list. And I’m not the only one who feels this way. Man has been building cities since the year oughty-ought, just to get away from this stuff.
+ - There’s really no such thing as an ‘ex-cop’ or a cop who’s ‘off-duty’ or ‘retired.’ Once trained, once indoctrinated, a cop is always alert, assessing reality in terms of its potential for illegal acts.
+ - All of us are subjected to somebody else’s power at some point. So once in a while you kiss ass. So what? Either you make your peace with that early, or you end up living your life as a crank and a misfit.
+ - There are laws for everything except the harm families do.
+ - Happiness is seasonal, like anything else.
+ - If I’d been listening closely, I’d have caught the sound of the gods having a great big old tee-hee at my expense.
+ - Age plays cruel tricks on the human face; all our repressed feelings become visible on the surface, where they harden like a mask.
+ - There is no sound so terrible as a man’s sorrow for his own death.
+ - The critical lessons in life hold sway whether you like it or not.
+ - People in California seem to age at a different rate than the rest of the country. Maybe it’s the passion for diet and exercise, maybe the popularity of cosmetic surgery. Or maybe we’re afflicted with such a horror of aging that we’ve halted the process psychically.
+ - Kinsey was never a lawyer. She’s strictly blue collar.
+ - I think you’d best make your peace with the past since you’ve come this far. I think you know by now that you won’t go back again.
+ - It’s disconcerting to realize how little you have to say to someone who once occupied such a prominent place in your bed.
+ - I was an English major in college with minors in Fine Arts and Humanities.
+ - The struggle is what teaches you.
+ - People talk about dysfunctional families; I’ve never seen any other kind.
+ - To many women mistake a man’s hostility for wit and his silence for depth.
+ - Society values cooperation over independence, obedience over individuality, and niceness above all else.
+ - Pretending to be ‘normal’ is a lot harder than you think.
+ - No one with a happy childhood ever amounts to much in this world. They are so well adjusted, they never are driven to achieve anything.
+ - Perhaps when we’re forced to forfeit what we own, we lose any sentimental associations. Perhaps pawning our valuables frees us in the same way a house fire destroys not only our worldly goods, but our attachment to what’s gone.
+ - Sometimes I wonder what the difference is between being cautious and being dead.
+ - Except for cases that clearly involve a homicidal maniac, the police like to believe murders are committed by those we know and love, and most of the time they’re right – a chilling thought when you sit down to dinner with a family of five. All those potential killers passing their plates.
+ - The beauty of word processing, God bless my word processor, is that it keeps the plotting very fluid. The prose becomes like a liquid that you can manipulate at will. In the old days, when I typed, every piece of typing paper was like cast in concrete.
+ - There is, apparently, some law of nature decreeing that all home construction must double in its projected cost and take four times longer than originally anticipated.
+ - What could smell better than supper being cooked by someone else?
+ - The Jungian therapist taught me the difference between the ego and the shadow. I realized I’d been so busy being a good girl that I’d completely detached from my shadow. It’s something we all have, and it’s where all the creative juices are.
+ - Personally, I don’t endorse the notion of mortality. It’s fine for other folk, but I disapprove of the concept for me and my loved ones.
+ - Everything happens for a reason, but that doesn’t mean there’s a point.
+ - Smile. It gives your face something to do.
+ - There’s a certain class of people who will do you in and then remain completely mystified by the depth of your pain.
+ - I only get writer’s block about once a day.
+ - Sometimes I claim I write because I put in an application at Sears and they’ve never called back.
+ - Grief is as contagious as a yawn.
+ - I figure guys are like Whitman’s Samplers. I like to take a little bite out of each and then move on before the whole box gets stale.
+ - The character of Rosie is based on a woman who used to live in the same apartment building I lived in many years ago. She’s taken on a life of her own, of course.
+ - Too much virtue has a corrupting effect.
+ - In my opinion, there’s no condition in life that can’t be ameliorated by a dose of junk food.
+ - Lying contains the same hostile elements as a practical joke in that the ‘victim’ ends up looking foolish in his own eyes and laughable in everyone else’s.
+ - I focus on the writing and let the rest of the process take care of itself. I’ve learned to trust my own instincts and I’ve also learned to take risks.
+ - My primary lesson, however, was that I’m a solo writer, happiest when I’m making all the executive decisions. I’ve always been willing to rise or fall on my own merits.
+ - My notion of an elegant table is you don’t leave the knife sticking out of the mayonnaise jar.
+ - I spent the first twenty years of my writing career preparing for the mystery genre, which is my favorite literary form.
+ - Poise and indifference so often look the same.
+ - Pay enough for anything and it passes for taste.
+ - There are days when none of us can bear it, but the good comes around again. Happiness is seasonal, like anything else. Wait it out. There are people who love you. People who can help.
+ - I started writing seriously when I was 18, wrote my first novel when I was 22, and I’ve never stopped writing since.
+
+96 quotes

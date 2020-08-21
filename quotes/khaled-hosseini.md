@@ -1,0 +1,189 @@
+ - For you, a thousand times over.
+ - Out beyond ideas of wrongdoing and right doing, there is a field. I’ll meet you there.
+ - Better to get hurt by the truth than comforted with a lie.
+ - One could not count the moons that shimmer on her roofs, Or the thousand splendid suns that hide behind her walls.
+ - And that’s the thing about people who mean everything they say. They think everyone else does too.
+ - There is a way to be good again...
+ - But then it passed, as all things do.
+ - But time, it is like charm. You never have as much as you think.
+ - I suspect the truth is that we are waiting, all of us, against insurmountable odds, for something extraordinary to happen to us.
+ - They say, Find a purpose in your life and live it. But, sometimes, it is only after you have lived that you recognize your life had a purpose, and likely one you never had in mind.
+ - I opened my mouth, almost said something. Almost. The rest of my life might have turned out differently if I had. But I didn’t.
+ - Children aren’t coloring books. You don’t get to fill them with your favorite colors.
+ - People find meaning and redemption in the most unusual human connections.
+ - Marriage can wait, education cannot.
+ - Quiet is peace. Tranquility. Quiet is turning down the volume knob on life. Silence is pushing the off button. Shutting it down. All of it. – Amir.
+ - You see, some things I can teach you. Some you learn from books. But there are things that, well, you have to see and feel.
+ - Don’t be afraid to tell the truth. It’s better to hurt someone by truth than to make them happy by lies.
+ - In the end, the world always wins. That’s just the way of things.
+ - Behind every trial and sorrow that He makes us shoulder, God has a reason.
+ - I want to tear myself from this place, from this reality, rise up like a cloud and float away, melt into this humid summer night and dissolve somewhere far, over the hills. But I am here, my legs blocks of concrete, my lungs empty of air, my throat burning. There will be no floating away.
+ - All good things in life are fragile and easily lost.
+ - For courage, there must be something at stake. I come here with nothing to lose.
+ - I wondered if that was how forgiveness budded; not with the fanfare of epiphany, but with pain gathering its things, packing up, and slipping away unannounced in the middle of the night.
+ - It may be unfair, but what happens in a few days, sometimes even a single day, can change the course of a whole lifetime...
+ - Sad stories make good books.
+ - It’s wrong what they say about the past, I’ve learned, about how you can bury it. Because the past claws its way out.
+ - Life is a train, get on board.
+ - Nothing happens in a vacuum in life: every action has a series of consequences, and sometimes it takes a long time to fully understand the consequences of our actions.
+ - Beauty is an enormous, unmerited gift given randomly, stupidly.
+ - Like a compass needle that points north, a man’s accusing finger always finds a woman. Always.
+ - Not a word passes between us, not because we have nothing to say, but because we don’t have to say anything.
+ - People learned to live with the most unimaginable things.
+ - I will follow you to the ends of the world.
+ - After all, life is not a Hindi movie.
+ - He said that if culture is a house, then language was the key to the front door; to all the rooms inside. Without it, he said, you ended up wayward, without a proper home or a legitimate identity.
+ - I now know that some people feel unhappiness the way others love: privately, intensely, and without recourse.
+ - A man’s heart is a wretched, wretched thing. It isn’t like a mother’s womb. It won’t bleed. It won’t stretch to make room for you.
+ - Time can be a greedy thing-sometimes it steals the details for itself.
+ - Human behavior is messy and unpredictable and unconcerned with convenient symmetries.
+ - A society has no chance of success if its women are uneducated...
+ - The desert weed lives on, but the flower of spring blooms and wilts.
+ - There are a lot of children in Afghanistan, but little childhood.
+ - Yes, hope is a strange thing. Peace at last. But at what price?
+ - I was good at being a doctor; my patients liked me. At times people trust you with things they wouldn’t tell their spouses. It was a real privilege.
+ - Everyone is an ocean inside. Every individual walking the street. Everyone is a universe of thoughts, and insights, and feelings. But every person is crippled in his or her own way by our inability to truly present ourselves to the world.
+ - A story is like a moving train: no matter where you hop onboard, you are bound to reach your destination sooner or later.
+ - When you kill a man, you steal a life. You steal his wife’s right to a husband, rob his children of a father. When you tell a lie, you steal someone’s right to the truth. When you cheat, you steal the right to fairness.
+ - I wished I could be alone in my room, with my books, away from these people.
+ - A boy who won’t stand up for himself becomes a man who can’t stand up to anything.
+ - A sudden happiness catches me unawares. I feel it trickling into me, and my eyes go liquid with gratitude and hope.
+ - The rope that pulls you from the flood can become a noose around your neck.
+ - People say that eyes are windows to the soul.
+ - A part of me was hoping someone would wake up and hear, so I wouldn’t have to live with this lie anymore. But no one woke up and in the silence that followed, I understood the nature of my new curse: I was going to get away with it.
+ - Of all the hardships a person had to face, none was more punishing than the simple act of waiting.
+ - A stubborn ass needs a stubborn driver.
+ - The Chinese say it’s better to be deprived of food for three days than tea for one.
+ - Every woman needed a husband, even if he did silence the song in her.
+ - I have a particular disdain for Islamic extremism, and of course, in both ‘The Kite Runner’ and ‘A Thousand Splendid Suns’ that’s obvious.
+ - Now, no matter what the mullah teaches, there is only one sin, only one. And that is theft. Every other sin is a variation of theft.
+ - Years later, I learned an English word for the creature that Assef was, a word for which a good Farsi equivalent does not exist: sociopath.
+ - And suddenly, just like that, hope became knowledge. I was going to win. It was just a matter of when.
+ - And the past held only this wisdom: that love was a damaging mistake, and its accomplice, hope, a treacherous illusion. And whenever those twin poisonous flowers began to sprout in the parched land of that field, Mariam uprooted them. She uprooted them and ditched them before they took hold.
+ - She was an extraordinary woman, and I went to bed that night feeling like I was perhaps more than ordinary myself. This was the effect she had on me.
+ - A man who has no conscience, no goodness, does not suffer.
+ - Writing fiction is the act of weaving a series of lies to arrive at a greater truth.
+ - Give sustenance, Allah. Give sustenance to me.
+ - Quiet is turning down the volume knob on life.
+ - Kabul was very popular with the hippies in the Sixties and Seventies. It was very quiet and peaceful.
+ - They tell me I must wade into waters, where I will soon drown. Before I march in, I leave this on the shore for you. I pray you find it, sister, so you will know what was in my heart as I went under.
+ - It was the kind of love that, sooner or later, cornered you into a choice: either you tore free or you stayed and withstood its rigor even as it squeezed you into something smaller than yourself.
+ - I’ve read that if an avalanche buries you and you’re lying there underneath all that snow, you can’t tell which way is up or down. You want to dig yourself out but pick the wrong way, and you dig yourself to your own demise.
+ - What good is regret? It brings back nothing. What we have lost is irretrievable.
+ - I shook my head no. For minutes, neither of us spoke a word. It breathed between us, what he had said, the pain of a life suppressed, of happiness never to be.
+ - I found a sad little fairy Beneath the shade of a paper tree. I know a sad little fairy Who was blown away by the wind one night.
+ - It’s wrong to hurt even bad people. Because they don’t know any better, and because bad people sometimes become good.
+ - Go slowly, my lovely moon, go slowly.
+ - That’s how children deal with terror, they fall asleep.
+ - The experience of writing ‘The Kite Runner’ is one I will always think back on with fondness. There is an energy, a romance in writing the first novel that can never be duplicated again.
+ - Boys, Laila came to see, treated friendship the way they treated the sun: its existence undisputed; its radiance best enjoyed, not beheld directly.
+ - It was you Nabi. It was always you. Didn’t you know?
+ - I ran. A grown man running with a swarm of screaming children. But i didn’t care. I ran with the wind blowing in my face, and a smile as wide as the Valley of Panjsher on my lip. I ran.
+ - In Afghanistan, you don’t understand yourself solely as an individual. You understand yourself as a son, a brother, a cousin to somebody, an uncle to somebody. You are part of something bigger than yourself.
+ - The finger cut, to save the hand.
+ - I think the emancipation of women in Afghanistan has to come from inside, through Afghans themselves, gradually, over time.
+ - I don’t outline at all; I don’t find it useful, and I don’t like the way it boxes me in. I like the element of surprise and spontaneity, of letting the story find its own way.
+ - She thought of Aziza’s stutter, and of what Aziza had said earlier about fractures and powerful collisions deep down and how sometimes all we see on the surface is a slight tremor.
+ - The impact had cut your upper lip in two, he had said, clean down the middle. Clean down the middle. Like a harelip.
+ - Creating means vandalizing the lives of other people, turning them into unwilling and unwitting participants. You steal their desires, their dreams, pocket their flaws, their suffering. You take what does not belong to you. You do this knowingly.
+ - She was the trembler of knees, the spiller of teacups.
+ - For a novelist, it’s kind of an onerous burden to represent an entire culture. That said, I’m in a unique position to speak on behalf of Afghanistan on certain issues that I feel are important, particularly the issue of Afghan refugees.
+ - For a novelist, it’s kind of an onerous burden to represent an entire culture.
+ - He had the blue kite in his hands; that was the first thing I saw. And I can’t lie now and say my eyes didn’t scan it for any rips.
+ - Perhaps this is just punishment for those who have been heartless, to understand only when nothing can be undone.
+ - I brought Hassan’s son from Afghanistan to America, lifting him from the certainty of turmoil and dropping him in a turmoil of uncertainty.
+ - I’m a pretty uncomplicated person. I live a very simple life with my family and I enjoy very ordinary things.
+ - I’ll die if you go. The Jinn will come, and I’ll have one of my fits. You’ll see, I’ll swallow my tongue and die. Don’t leave me, Mariam jo. Please stay. I’ll die if you go.
+ - I see America has infused you with the optimism that has made her so great.
+ - I’m all you have in this world Mariam, and when I’m gone you’ll have nothing. You ARE nothing!
+ - When I go to Afghanistan, I realize I’ve been spared, due to a random genetic lottery, by being born to people who had the means to get out. Every time I go to Afghanistan I am haunted by that.
+ - She would never leave her mark on Mammy’s heart the way her brothers had, because Mammy’s heart was like a pallid beach where Laila’s footprints would forever wash away beneath the waves of sorrow that swelled and crashed, swelled and crashed.
+ - Laila has moved on. Because in the end she knows that’s all she can do. That and hope.
+ - I think that everything he did, feeding the poor, giving money to friends in need, it was all a way of redeeming himself. And that, I believe, is what true redemption is, Amir jan, when guilt leads to good.
+ - Nothing good came free. Even love. You paid for all things. And if you were poor, suffering was your currency.
+ - I learned that the world didn’t see the inside of you, that it didn’t care a whit about the hopes and dreams, and sorrows, that lay masked by skin and bone. It was as simple, as absurd, and as cruel as that.
+ - If there’s a God out there, then i would hope he has more important things to attend to than my drinking scotch or eating pork.
+ - You don’t order someone to polish your shoes one day and call them ‘sister’ the next.
+ - Reading is an active, imaginative act; it takes work.
+ - Though there were moments of beauty, Mariam knew for the most part that life had been unkind to her.
+ - Joseph shall return to Canaan, grieve not, Hovels shall turn to rose gardens, grieve not. If a flood should arrive, to drown all that’s alive, Noah is your guide in the typhoon’s eye, grieve not.
+ - There was so much goodness in my life. So much happiness. I wondered whether I deserved any of it.
+ - You say you felt a presence, but I only sensed an absence. A vague pain without a source. I was like a patient who cannot tell the doctor where it hurts, only that it does.
+ - America was different. America was a river, roarng along, unmindful of the past. I could wade into this river, let my sins drown to the bottom, let the waters carry me someplace far. Someplace with no ghosts, no memories, and no sins.
+ - Laila remembered Mammy telling Babi once that she had married a man who had no convictions. Mammy didn’t understand. She didn’t understand that if she looked into a mirror, she would find the one unfailing conviction of his life looking right back at her.
+ - But the game involves only male names. Because, if it’s a girl, Laila has already named her.
+ - I guess some stories do not need telling.
+ - In Kabul, hot running water had been like fathers, a rare commodity.
+ - Air grew heavy, damp, almost solid. I was breathing bricks.
+ - All my life, I’d been around men. That night, I discovered the tenderness of a woman.
+ - It is now your duty to hone that talent, because a person who wastes his God-given talents is a donkey.
+ - You can not stop you from being who you are.
+ - Usually in films, when Muslims pray, it’s either before or after they’ve blown something up.
+ - It turned out that, like Satan, cancer had many names.
+ - But it is important to know this, to know your roots. To know where you started as a person. If not, your own life seems unreal to you. Like a puzzle. Vous comprenez? Like you have missed the beginning of a story and now you are in the middle of it, trying to understand.
+ - James Parkinson. George Huntington. Robert Graves. John Down. Now this Lou Gehrig fellow of mine. How did men come to monopolize disease names too?
+ - Afghan women, as a group, I think their suffering has been equaled by very few other groups in recent world history.
+ - At last, she makes her choice. She turns around, drops her head, and walks toward a horizon she cannot see. After that, she does not look back anymore. She knows that if she does, she will weaken.
+ - Then I think of all the tricks, all the minutes all the hours and days and weeks and months and years waiting for me. All of it without them. And I can’t breathe then, like someone’s stepping on my heart, Laila. So weak I just want to collapse somewhere.
+ - Her eyes, walnut brown and shaded by fanned lashes, met mine. Held for a moment. Flew away.
+ - When you have lived as long as I have, the div replied, you find that cruelty and benevolence are but shades of the same color.
+ - Afghanistan has always been sort of a fractured nation, very tribal, where the countryside and the distant provinces have been run by custom, by tribal law and by tribal leaders rather than edicts from the central government in Kabul.
+ - I don’t know what this feather means, the story of it, but I know it means he was thinking of me. For all these years. He remembered me.
+ - After everything he’d built, planned, fought for, fretted over, dreamed of, this was the summation of his life; one disappointing son and two suitcases.
+ - I have lived a long time, and one thing I have come to see is that one is well served by a degree of both humility and charity when judging the inner workings of another person’s heart.
+ - If there was a God, he’d guide the winds, let them blow for me so that, with a tug of my string, I’d cut loose my pain, my longing.
+ - She would grab whatever she could -a look, a whisper, a moan – to salvage from perishing, to perserve. But time is most unforgivving of fires, and she couldn’t, in the end, save it all .
+ - Though there had been moments of beauty in it, Mariam knew that life for most part has been unkind to her. But as she walked the final twenty paces, she could not help but wish for more of it.
+ - He knew I’d seen everything in that alley, that I’d stood there and done nothing. He knew that I’d betrayed him and yet he was rescuing me once again, maybe for the last time.
+ - There was brotherhood between people who had fed from the same breast, a kinship that even time could not break. – Amir.
+ - Your job today is to pass gas. You do that and we can start feeding you liquids. No fart, no food.
+ - If you were the poor, suffering was your currency.
+ - Gone. Vanished. Nothing left. Nothing said.
+ - You’ve always been a tourist here. You just didn’t know it.
+ - Blood is a powerful thing.
+ - Attention shifted to him like sunflowers turning to the sun.
+ - At that moment, she cannot think of a more reckless, irrational thing than choosing to become a parent.
+ - Writing for me is largely about rewriting.
+ - The short of it is, as an aspiring writer, there is nothing as damaging to your credibility as saying that you don’t like to read.
+ - Without women taking an active role in Afghan society, rebuilding Afghanistan is going to be very difficult.
+ - I laughed. Partly at the joke, partly at how Afghan humor never changed. Wars were waged, the Internet was invented, and a robot had rolled on the surface of Mars, and in Afghanistan we were still telling Mullah Nasruddin jokes.
+ - As far as I know, he never asked where she had been or why she had left and she never told. I guess some stories do not need telling.
+ - Her impulse, her need, to be the corrector of injustices, warden of the downtrodden flock. And.
+ - People in the countryside carry a sense of dignity. They wear it, don’t they? Like a badge? I’m being genuine.
+ - Hassan couldn’t read a first-grade textbook but he’d read me plenty. That was a little unsettling but also sort of comfortable to have someone who always knew what you needed.
+ - Literary fiction is kept alive by women. Women read more fiction, period.
+ - I finally had what I’d wantes all those years. Except now that I had it, i felt as empty as this unkempt pool I was dangling my legs into.
+ - There will be no floating waway. There will be no other reality tonight.
+ - No one has to know. No one would. It would be her secret, one she would share with the mountains only. The question is whether it is a secret she can live with, and Parwana thinks she knows the answer. She has lived with secrets all her life.
+ - I think he loved us equally, but differently.
+ - I think novelists, when they write their books, end up having occasionally serving a purpose and playing roles that they never really fully either intended or even understood.
+ - I don’t listen to music when I write – I find it distracting.
+ - The bewildering success of my books continues to surprise me.
+ - All my life, she gave to me a shovel and said, Fill these holes inside of me, Pari.
+ - You’re not going to cry, are you? – I am not going to cry! Not over you. Not in a thousand years.
+ - In many parts of the world, a man’s accusing finger always finds a woman. But I think we need women to solve the problems that men create.
+ - Now, especially in public places, you always have that unease. When the children were cast, if I thought that they might be victims of violence because of participating in this movie, we would have chosen children from outside this country.
+ - I didn’t remember what month that was, or what year even. I only knew the memory lived in me, a perfectly encapsulated morsel of a good past, a brushstroke of color on the gray, barren canvas that our lives had become.
+ - A pathetic shadow, torn between her envy and thrill of being seen with Masomma, sharing in the attention as a weed would, lapping up water meant for the lily upstream.
+ - He is annoyed with their lack of interest, their blithe ignorance of the arbitrary genetic lottery that has granted them their privileged lives.
+ - I will say that there is an inordinate amount of medicine in my novels, especially the first one. There are a lot of medical things that happen. A hip fracture, three different kinds of lung cancer, pneumonia, blood poisoning, and so on.
+ - I don’t know the nuts and bolts of writing. I studied medicine. I was a pre-med nerd. So everything I learned, I know about writing is very instinctive.
+ - All stories I write are compulsive. Anything I’ve ever written was because I don’t have a choice. I write stories because I can’t wait to tell it, I can’t wait to see how it ends.
+ - So, then. You want a story and I will tell you one.
+ - My wife is my in-home editor and reads everything I write.
+ - You say their stories, it is gift they give you.
+ - Soon, he would become an adult. And when he did, there would be not going back because adulthood was akin to what his father had once said about being a war hero: one you became one, you died one.
+ - Afghanistan is a rural nation, where 85 percent of people live in the countryside. And out there it’s very, very conservative, very tribal – almost medieval.
+ - There isn’t, even now, a great tradition of novel-writing in Afghanistan. Most of the literature is in the form of poetry.
+ - In her smile, Idris sees how little of the world he has known, even at thirty-five years of age, its savageness, its cruelty, its boundless brutality.
+ - I give novels as gifts, and there is nothing I like to receive more as a gift.
+ - The things that have always drawn me to the craft of writing is character, it’s story, it’s something that becomes like a pebble in my shoe, a voice that I just can’t get rid of, and I’ve got to see it through.
+ - President Karzai is an incredibly kind and decent man. I had the pleasure of meeting him, and he genuinely cares for his people. But I think he had too much of a tendency to want to rule by listening to all voices at all times.
+ - I grew up with some kind of storytelling instinct, and when I write, my default setting is to find a story and then to tell it. It’s the only way I know how to write.
+ - I have this almost pathological fear of boring the reader.
+ - It’s often a matter of sitting in front of the computer and worrying. It’s what writing comes down to – worrying that things aren’t going to work out.
+ - I read actual physical books and have thus far avoided the electronic lure.
+ - I may not agree with all or even most of the tribal traditions, but it seems ti me that, out there, people live more authentic lives. They have a sturdiness about them. A refreshing humility. Hospitality too. And resilience. A sense of pride.
+ - I thought about you all the time. I used to pray that you’d live to be a hundred years old. I didn’t know. I didn’t know that you were ashamed of me.
+
+187 quotes

@@ -1,0 +1,25 @@
+ - I like to think of myself as the Rutger Hauer of this show Star Trek: The Next Generation. But then I like to think of myself as Rutger Hauer in real life: strikingly handsome, irresistible to women, an intergalactic enigma.
+ - I think the potential for man is so enormous, if we can stay alive long enough, we’re going to be seeing a lot of what Star Trek is projecting.
+ - If you look around at the people in show business today they are basically the people who didn’t give up.
+ - I’m an avid biography reader.
+ - In my heart, I’ve never left Brazil.
+ - People think that being on Star Trek is career suicide, but it’s really just the opposite.
+ - There is no question that everybody who works in show business is lucky because of the number of people who wish they where working in show business.
+ - And the basic sort of thrust of Star Trek being about equality and tolerance and things I believe in deeply.
+ - Radical surgery is never fun.
+ - No, actually I’m trying to stay away from the big screen.
+ - I don’t read Science Fiction.
+ - I try not to make plans. Because, even the best laid plans etc. etc.
+ - My own personal favorite Cher song is the unforgettable Gypsies, Tramps and Thieves.
+ - As I get older and I get more of this dialogue and I lose more and more brain cells, it really does become the most difficult part of the job!
+ - Any job you can go to and have a laugh everyday has got to be a good job.
+ - I think there is something like 90% unemployment in the Screen Actors Guild, so we are the exception.
+ - And, you know, when you are a kid, everybody wants to be an actor. I think that everybody wants to be in show business, frankly.
+ - I think it’s the business part of the word show business that causes me the most concern.
+ - Im thinking of going into rehab. Im not addicted to anything, but I think its good way to jumpstart an acting career.
+ - Certainly I find it most interesting to play a role that I can invent from nothing.
+ - Hollywood has more than its share of harsh and crewel stories. In fact, it’s probably more the norm than the exception.
+ - Generally, I have to be able to get the lines out of my mouth without making a mistake before I go to sleep.
+ - Having spent so much time in a fictional world, I prefer to read about the real world.
+
+23 quotes

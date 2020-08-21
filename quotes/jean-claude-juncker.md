@@ -1,0 +1,49 @@
+ - God understands more about the financial markets than many who write about them.
+ - It is always said that Europe is a project of the elite. That’s incorrect.
+ - I am for secret, dark debates.
+ - Europe is a democracy and differences of opinion are part of it.
+ - In the highest government office, you have to be ready to bow out at any time, otherwise you are not a free individual anymore.
+ - You can’t deepen the European Union against the wishes of the European countries.
+ - When the going gets tough, you have to lie.
+ - I put my money on Brexit. The EU Financial Stability Commissioner, Jonathan Hill from Britain, still owes me a pound.
+ - The Greek nation has to be respected. I am not in the camp of those who openly want to humiliate Greece.
+ - Yesterday’s shining heroes of Brexit have become the sorrowful heroes of today.
+ - In 1913 many believed that there would never again be a war in Europe. The great powers of the continent were so closely intertwined economically that the view was widespread that they could no longer afford to have military confrontations.
+ - I’m not suffering from withdrawal symptoms. I would say that I have a balanced state of mind.
+ - In politics, there are different categories of friendship. My friendship with Greek Prime Minister Alexis Tsipras, for example .
+ - A united Europe is our Continent’s only chance to avoid falling off the world’s radar. The heads of government of Germany, France and the United Kingdom also know that their voice is only heard internationally because they speak through the megaphone of the European Union.
+ - After 30 years in Brussels, I can tell you: The relationship between the Commission and the Parliament has probably never been as good as it is now.
+ - I am chilled by the realization of how similar circumstances in Europe in 2013 are to those of 100 years ago.
+ - The way some German politicians have lashed out at Greece when the country fell into the crisis has left deep wounds there. I was just as shocked by the banners of protesters in Athens that showed the German chancellor in a Nazi uniform.
+ - I don’t think Spain will need any kind of external support.
+ - Stories are invented: Juncker wants to introduce the euro everywhere or immediately deepen the EU – although I publicly stated the opposite that same day.
+ - It is not acceptable that European Union countries are divided into those who give and those who take.
+ - I believe neither the French nor the Dutch really rejected the constitutional treaty.
+ - I urge everyone to be patient and reasonable and I warn against shooting from the hip in the truest sense of the term. Pressure and dialogue are needed.
+ - Those who are saying that Mario Draghi is in the camp of those trying to push Greece outside the Euroarea, are wrong.
+ - I’m always quite amazed that people in Europe become unnerved when two institutions or two people have different views.
+ - There is a distorted perception of what goes on in Brussels. No one reports on the Commission taking a hundred initiatives from its predecessor off the table in order to shift competencies back to member state governments.
+ - But anyone who believes that the eternal issue of war and peace in Europe has been permanently laid to rest could be making a monumental error. The demons haven’t been banished; they are merely sleeping, as the wars in Bosnia and Kosovo have shown us.
+ - I notice with a certain sense of regret that far too many Europeans are returning to a regional and national mindset.
+ - We must go back to teach Europeans to love Europe.
+ - In Europe, even more so than in national politics, we have to follow the principle laid down by Martin Luther: Use language that the people will understand, but don’t just tell them what they want to hear.
+ - We no longer have the pact from 1997; it was radically amended in 2005 and the Commission is applying this Stability Pact with wisdom and rationality.
+ - We do not attract Russian money to Luxembourg with high interest rates.
+ - We can’t completely rely on the aberrations of history to explain today’s European necessities. Future-related issues are no less pressing.
+ - My main concern is to protect people from detriment.
+ - In the end, the British didn’t vote to leave because of the euro. They’re not even members of the currency union. Even the refugee crisis hardly affected the country.
+ - I wouldn’t like Greece to stay recession. I do think that everything has to be undertaken to reconnect with growth.
+ - The problem is: When two governments or institutions in Europe hold differing opinions, it is immediately a crisis.
+ - The Luxembourg financial centre is based on several pillars, we are characterised by the breadth of our product range, we are an active participant in the international credit business.
+ - For my generation, the monetary union has always been about forging peace.
+ - I completely agree with Helmut Kohl. I am not an advocate of the “United States of Europe,” nor am I an integration fanatic.
+ - Anyone who believes that the eternal question of war and peace in Europe is no longer there risks being deeply mistaken.
+ - I have always considered it to be a minor miracle that after the war, people in Europe’s border regions were able to forget everything and, in accordance with the slogan “Never Again War,” develop a program that still works today.
+ - You can consider this carved in stone: I rule out becoming Herman Van Rompuy’s successor.
+ - I’m not deaf and the Commission isn’t operating in a parallel world of legal texts.
+ - I said in my inaugural address that I am not the Council’s secretary, nor am I the Parliament’s lackey. That can sometimes lead to conflicts, which are defused through dialogue.
+ - During our religious instruction in school, we always asked: How can one prove the existence of God? And I have learned that the Catholic Church, which is never at a loss for an answer when it comes to existential questions, responds as follows: This question simply does not arise.
+ - The person who is ahead in the end will have the advantage.
+ - I am in favor of the European institutions being led for the next two-and-a-half years as they have been thus far. We need stability.
+
+47 quotes

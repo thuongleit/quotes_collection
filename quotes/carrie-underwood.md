@@ -1,0 +1,145 @@
+ - I can do everything I want to do.
+ - Thank God even crazy dreams come true.
+ - Save me from this road I’m on, Jesus take the wheel.
+ - This is my temporary home It’s not where I belong Windows and rooms that I’m passing through This is just a stop, on the way to where I’m going I’m not afraid because I know this is my Temporary home.
+ - Every day is a new day, and you’ll never be able to find happiness if you don’t move on.
+ - Sometimes that mountain you’ve been climbing is just a grain of sand, and what you’ve been up there searching for forever, is in your hands. When you figure out love is all that matters after all it sure makes everything else seem so small.
+ - My cell phone is my best friend. It’s my lifeline to the outside world.
+ - When you figure out love is all that matters after all, it sure makes everything else seem so small.
+ - Throw caution to the wind and just do it.
+ - I’m anti-Valentine’s Day. I don’t believe – and this goes for anybody – your man shouldn’t love you for one day out of 365. He should love you 365 days out of the year. I want Valentine’s Day every day.
+ - It’s sad, but sometimes moving on with the rest of your life, starts with goodbye.
+ - Sometimes, that mountain you’ve been climbing, is just a grain of sand.
+ - I guess it’s going to have to hurt, I guess I’m going to have to cry, And let go of some things I’ve loved to get to the other side I guess it’s going to break me down, Like fallin when you try to fly, Sad but sometimes moving on with the rest of your life starts with goodbye.
+ - Successful people have a social responsibility to make the world a better place and not just take from it.
+ - The more boys I meet the more I love my dog.
+ - I’m grateful for every scar, some pages turned, some bridges burned, but there were lessons learned.
+ - Peace Love Rock and Roll!!!
+ - Sometimes a girl’s gotta have some chocolate!
+ - There’s just something sexy about feeling strong.
+ - Above all, God wanted us to love others. We have to love each other and get on with each other, she added. It’s not up to me to judge anybody.
+ - Singing is just a feeling set to music.
+ - When we love the stars light up, the wrong becomes undone. Naturally, my soul surrenders.
+ - I have no attention span. I get bored so fast.
+ - I love chocolate, and I love to shop – just give me a good boutique. I like mall scenarios, too, because there’s more right there at hand. I think Nashville could use some better shopping!
+ - If something can be said to make an awkward moment even worse, I’m going to say it.
+ - Lord, I feel so small sometimes in this great big old world. Yeah, I know there are more important things. But don’t forget to remember me.
+ - I’m fighting a losing battle here: I’m trying to lose some weight. I love chocolate; that’s one of my biggest downfalls. I haven’t gotten a whole lot of chocolate, thank goodness, because I’d probably be about 300 pounds.
+ - I love being around my friends and my family and spending time with my husband. I like being normal and recharging my batteries, and I feel like I have the coolest job in the world where I get to get on stage and perform and get to do a lot of really amazing things.
+ - I’m kind of a nervous person in general. I’m socially awkward. I’m not tall and sensuous. I usually wear sweats everywhere I go. Oh, and I burp a lot.
+ - While we’re young and beautiful, living free and easy. Here without a worry, dancing in our bare feet because when the summer’s done we might not be so young and beautiful.
+ - You never know what curve balls life is going to throw you and there’s no way I can predict anything or make any assumptions about what the rest of my life is going to be like.
+ - If I can convince others that there is a God and that they need to know Him, then I have done my job.
+ - God put us here, on this carnival ride. We close our eyes never knowing where it’ll take us next.
+ - I have so many wonderful people in my life. I’ve never had any major physical problems or an accident or anything like that. I’m a very, very lucky person, thus far, knock on wood.
+ - I’m Southern. I like big hair and eyeliner.
+ - A brand is a little different. Me, as Carrie the person, wanders around in sweatpants. And then, when I have to be Carrie Underwood, there is definitely a departure from your human side. It’s good to make that separation from person to brand.
+ - And make sure you tell daddy That I’m still his little girl Yeah I still feel like I’m where I’m supposed to be But don’t forget to remember me.
+ - I love making music and all that, but at the end of the day I don’t think that’s what people are going to remember about a person.
+ - I can’t believe this is happening to me. The weirdest thing is it was just a dream, and now it’s actually real. It’s hard to believe sometimes.
+ - I don’t know why terrible things happen to us sometimes. But I have to believe that something good is going to come of this.
+ - I eat things I shouldn’t eat all the time. I have to work out so I can enjoy myself! I like to run, and I’ll do body weight stuff: push-ups, squats, lunges, pull-ups.
+ - In the romantic sense, I’m pretty useless with guys. If I see somebody who I’m attracted to, generally I just think, ‘Oh well, he’s not interested in me.’ The only time that I talk to guys is when they talk to me first.
+ - Maybe it’s the stardust in my head.
+ - As a married person myself, I don’t know what it’s like to be told I can’t marry somebody I love, and want to marry, I can’t imagine how that must feel. I definitely think we should all have the right to love, and love publicly, the people that we want to love.
+ - I love scary movies. I like blood and gore, and I love Halloween movies.
+ - I love Kashi. I eat cereal like a little kid. I carry it in my purse.
+ - Technically I have siblings, but they are quite a bit older than me – I was the accident – so I have the only-child syndrome going on. I’m a little more selfish, a little more independent, a little closed. I do wish I were softer. I wish I were able to form relationships better.
+ - Story book endings, fairytales coming true.
+ - Getting revenge on a guy is just not worth it to me. I mean, it definitely sucks at the time, but obviously you’re not supposed to be with that person.
+ - Once you get into a routine of eating healthy, it hurts twice as much when you fall off the wagon.
+ - I’ve learned it’s really important to work hard and keep your family and friends close. You’ve got to let them know how much you appreciate them for sticking by you.
+ - I’ve learned this, that haters wanna hate. You could sing a song perfectly, you could write the songs perfectly, and some people are absolutely going to hate you.
+ - I’d sleep in a little, work out, do laundry, run errands, buy presents for people with birthdays coming up. I like it when I don’t have to be anywhere, and anything I do is my choice.
+ - I try to stay away from carb-y things at dinner.
+ - I autograph a lot of body parts of intoxicated people. And lots of shoes. And I signed a diaper once!
+ - Being a part of SKECHERS is exciting. It is such a hip company with a great attitude and image.
+ - I got to meet some of the best people I’ve ever met, and we all grew as people and as entertainers.
+ - I grew up listening to Queen. They were no stranger to throwing in the unexpected and something a little more dramatic.
+ - If you stick to what you know; you sell yourself short.
+ - Everybody knows what’s going on. Even if they don’t watch it they know what’s happening.
+ - I wouldn’t go so far as to say I am a feminist, that can come off as a negative connotation. But I am a strong female.
+ - The only other time I’ve been away from home was when I went to college. And that was just an hour away, so I could always go home if I needed to.
+ - Every Wednesday, my husband and I have a study group with our friends. I attend church. We try to devote time in the morning, say a prayer.
+ - My inner rock chick has always been there. I grew up listening to a lot of rock music through my sisters, who were teenagers while I was young, so they had control of the radio.
+ - I feel like I am a celebrity for no reason, like people are resentful I didn’t have to play bars for 10 years to get a record deal.
+ - I’m a private person, and I don’t want people knowing what kind of underwear I like. It’s creepy!
+ - When I’m with my parents, that’s the place I can unplug. That’s the place I can shut down and not worry about work or what’s going on. I go home and hang out with them. I sleep more there than any place else ever.
+ - I feel like I’m a product of this generation where everybody listens to charts with diverse music.
+ - I want people to think of me as a nice person. I really am so blessed. All of this has been a great experience and I thank the American public so much for putting me in this position. I appreciate every second of it.
+ - I’m not a drama person, but when you can make a movie in song form in three-and-a-half minutes, it’s surreal.
+ - I’m not worried. I’m just so grateful to be in the position that I’m in. I’m just going with the flow right now, and I think my album will come together quite nicely because I think everybody is on the same page.
+ - Before bed, I read a book or flip on the radio – I’m not picky, I’ll just turn it on and see what comes up. I burn a yummy lavender- scented candle.
+ - I’m girlie in the sense that I like makeup, but I also love sports and man food.
+ - I’ve heard all kinds of crazy rumors about myself. I’ve even heard that I’m pregnant! I’ve become real good about laughing things off – I figure I’d better get used to it.
+ - I, like a lot of people who are creative, need to step away. I can’t have stuff to write about if I don’t have a life. If I talk to people, hang out with my friends and hang out with my husband, I feel like I have better things to bring to the table.
+ - I’m extremely happy, but I don’t do love songs for the most part. It feels weird; that’s such a personal thing to me. I’d rather live that in my real life and play a different character outside of that.
+ - My very first magazine cover was the National Enquirer.
+ - I’d rather be tipping cows in Tulsa, than hailing cabs here in New York.
+ - I love going out to clubs. Granted, I don’t get hammered or do anything to embarrass myself. I’d call myself wholesome but it’s not like I only drink milk.
+ - I love eye shadows that are shimmery and playing with colors. There’s just more you can do with your eyes.
+ - It’s hard to look at things that are too close.
+ - It’s nice to know you have support. Last night I got a marriage proposal. I just laughed.
+ - I’m about the only person in my family that’s made it to 24 without being married. That’s the way it works where I’m from. Most people, if you find someone to marry in high school, you do that, and if you don’t find that, then you find someone in college.
+ - Play on, when you’re losing the game. Play on, cuz you’re going to make mistakes. It’s always worth the sacrifice, even when you think you’re wrong.
+ - All of us gave it all we’ve got, overcame a whole lot just being on the show and learned a lot about ourselves. We’re just normal people trying to do what we love and follow our dreams.
+ - The TV is often on in our house, but I really only keep up with three shows: ‘American Idol,’ ‘Modern Family’ and ‘The Walking Dead.’ Sometimes I’ll sip red wine – it’s a nice way to slow down and relax.
+ - I’ve seen people that get onstage and sing while they have tears running down their face – I can’t do that. When I cry, it starts like in my throat, so when I have something that’s really emotional, sometimes if I access that too much, I can’t finish the song.
+ - Animals were my pets, and the thought of eating my pets freaked me out.
+ - My hometown is extremely supportive of me and I feel blessed to be able to create something as a way of giving back; to say thank you.
+ - I have a candle on the bus that smells like caramel brownie. I love anything that smells like food!
+ - I respect country music because I feel like it’s more about the talent and the songwriting.
+ - Growing up, I played softball and I was a cheerleader.
+ - I honestly in a lot of ways don’t want to sing about my real life, because that’s private.
+ - Writing down everything I eat makes such a difference, because you never realize how much you’re consuming unless you read it later in the day.
+ - Ive never really been anywhere, and now I get to go everywhere. I just have to make sure theres enough memory on my computer to hold all my pictures.
+ - I grew up in church, and I have a wonderful family that always supported that.
+ - I love being on camera. And I love knowing what’s going on in the world. Diane Sawyer is my favorite. She never seems to lower herself to get the job done. She just always carries herself well. I really admire her.
+ - I like to dance around the house when I’m getting ready. It gets my day going.
+ - I’m always thirsty when I wake up, so I guzzle a bottle of Smart water before I scramble tofu with onions, peppers and spinach and top it with salsa. I’ve been a vegetarian for years, but I recently became vegan.
+ - I love having my hair and makeup done for red carpets, but to have that done every day would be exhausting.
+ - It wouldn’t be a Carrie Underwood album without a revenge song on it. People really like when I do that. I don’t mean to. I don’t hate men that much. But it turns out so well!
+ - The older I get, the harder it is to splurge without consequences. I love food. Chocolate and cheese and anything that’s bad for me. I’ll be really good when I’m at home so I can eat what I want to when I’m out with friends.
+ - So many people always try to help me carry my luggage and help me do things I can do myself. If I can do it myself, I’m going to do it myself. I’m not going to let other people do it for me, and I think that’s a big part of where I came from. I’m not a real prissy girl.
+ - I stopped eating beef at 13 and stopped eating all meat a few years ago. I would feel guilty that what was on my plate was walking around yesterday. Either I could live with that or stop eating meat. I choose the latter, and I’m happier for it.
+ - I want my permanent address to be in Oklahoma. Someday, when I get married and I have kids, that’s where I want to raise my kids.
+ - We created Calia to make it easier for me and all other women to work in working out.
+ - When I’m on stage, I feel like a performer, for sure. I know people are looking at me and taking pictures and singing along, and that part’s wonderful.
+ - I do not like people touching my underwear. That’s just weird! I travel with a washer and dryer, and I like cooking on the bus, too.
+ - To me, getting to do music and videos, you work on a character. Being onstage is acting; you get to be larger than life and larger than yourself.
+ - It’s so easy to get caught up in this weird life. This isn’t normal and I’m not singing for people that live my life. I’m singing to the life I used to have. The life I want to have again.
+ - There’s not ever much of anything going on in my head.
+ - I have been called the human jukebox, yes. But karaoke is not meant for people who can sing!
+ - I have to stay hydrated so I don’t pass out onstage!
+ - I feel like when I’m on stage, when I’m writing songs, singing songs, I’m in the studio, I’m shooting videos, I kind of get to become this character, and I can make that whatever I want to make that.
+ - I’m a private person too, and we don’t ever film anything in our home because it’s off limits. It’s like letting people see your messy house.
+ - I definitely think we should all have the right to love, and love publicly, the people we want to love.
+ - Everything’s completely different, and it’s been hard. Fortunately, I have a lot of wonderful people around me, and I think I’m handling things pretty well.
+ - I love being able to perform in front of people. I like potentially making a difference in somebody’s day or somebody’s life.
+ - When I was in seventh grade, I totally had a crush on a guy who was older than me, and he listened to alternative music. So he was into Days of the New and stuff like that, and more poppy stuff, too, like Matchbox Twenty.
+ - We see new male artists have their first single reach No. 1 on the charts, but it generally takes a female a lot longer to build momentum.
+ - I grew up listening to everything. I have such a love for music, but I don’t want to make the same album over and over again.
+ - Nobody’s going to tell me that my dog doesn’t love me. That’s crazy talk.
+ - This is the best night of my life. And it’s going to get better.
+ - I know that music is my life. It is my strong point. That’s my love.
+ - American Idol transcends age, gender, ethnicity, everything.
+ - Occasionally, I’ll be on the Internet and see something about me and give in to the urge to click on it. It’s hard not to. Usually, I wish I didn’t.
+ - I’m not the person in person that I am on stage.
+ - I love sporting events and popcorn and pizza and being outside, like at a baseball or football game. I love amusement parks, going to ride roller coasters.
+ - Right afterwards there was a whole, whole lot of press to do, so the week after, all day, every day, was press so I didn’t really get a chance to celebrate.
+ - You work side is for everybody. When you’re at home, you’re not wearing heels and your work attire.
+ - Brad Paisley has always been really great to me, and that’s no secret.
+ - I’ve never been one for doing remixes. Then I’ve gotta decide which version am I gonna be tonight: country Carrie or pop Carrie? I’d rather just make country music that anybody can get into no matter what they listen to.
+ - It’s hard to find normal celebrities.
+ - I don’t want to listen to everybody’s problems all the time. And I doubt anybody wants to listen to mine.
+ - I sleep with a light on in the bathroom so I can see where I’m at, because I wake up and have no clue!
+ - It’s great when you can write a meaningful song that touches people, but sometimes you just wanna have fun and sing a silly song that doesn’t reflect on you as a person.
+ - I’m in a world so wide. It makes me feel small sometimes.
+ - As far as subject matter, I’d say most of the songs aren’t that personal to me. I love making up characters and kind of having fun in a different kind of way.
+ - I think it’s okay to feel jealous, but it’s how you deal with it that’s the important thing. You have to be happy for your friends when they do well because you want them to do well. It’s not a competition.
+ - We don’t have milk cows. People have so many stereotypes of people from where I come from – Oklahoma. We don’t ride around in covered wagons, either.
+ - I say what I need to, not a whole lot more.
+ - But as far as Twitter, I’ll be in a restaurant and I’ll get home and somebody tweeted and they talked about what I ordered and what I was wearing. In some cases, that could be dangerous, because you don’t want everybody to know where you are every second of every day.
+ - I think Nashville could use some better shopping!
+
+143 quotes

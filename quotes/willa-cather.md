@@ -1,0 +1,191 @@
+ - Where there is great love, there are always miracles.
+ - The end is nothing; the road is all.
+ - There are some things you learn best in calm, and some in storm.
+ - The world is little, people are little, human life is little. There is only one big thing – desire.
+ - The heart of another is a dark forest, always, no matter how close it has been to one’s own.
+ - Most of the basic material a writer works with is acquired before the age of fifteen.
+ - That is happiness; to be dissolved into something complete and great.
+ - Too much information is rather deadening.
+ - I don’t want anyone reading my writing to think about style. I just want them to be in the story.
+ - Hunger is a powerful incentive to introspection.
+ - Success is never so interesting as struggle.
+ - What if – what if Life itself were the sweetheart?
+ - Success is less interesting than struggle. There is great pleasure in the effort.
+ - I like trees because they seem more resigned to the way they have to live than other things do.
+ - People live through such pain only once. Pain comes again – but it finds a tougher surface.
+ - The world is always full of brilliant youth which fades into grey and embittered middle age: the first flowering takes everything. The great men are those who have developed slowly, or who have been able to survive the glamour of their early florescence and to go on learning from life.
+ - Even the wicked get worse than they deserve.
+ - The pale, cold light of the winter sunset did not beautify – it was like the light of truth itself.
+ - A burnt dog dreads the fire.
+ - There is often a good deal of the child left in people who have had to grow up too soon.
+ - Freedom so often means that one isn’t needed anywhere.
+ - When kindness has left people, even for a few moments, we become afraid of them as if their reason had left them. When it has left a place where we have always found it, it is like shipwreck; we drop from security into something malevolent and bottomless.
+ - Miracles surround us at every turn if we but sharpen our perceptions of them.
+ - Personal hatred and family affection are not incompatible; they often flourish and grow strong together.
+ - To note an artist’s limitations is but to define his talent.
+ - You must not begin to fret about the successes of cheap people. After all, what have they to do with you?
+ - People can be lovers and enemies at the same time, you know.
+ - I wondered if the life that was right for one was ever right for two!
+ - The land belongs to the future.
+ - A pioneer should have imagination, should be able to enjoy the idea of things more than the things themselves.
+ - A creative writer can do his best only with what lies within the range and character of his deepest sympathies.
+ - Money is a protection, a cloak; it can buy one quiet, and some sort of dignity.
+ - Every artist makes himself born. It is very much harder than the other time, and longer.
+ - Artistic growth is, more than it is anything else, a refining of the sense of truthfulness.
+ - Art and religion -they are the same thing, in the end, of course- have given man the only happiness he has ever had.
+ - Look at my papa here; he’s been dead all these years, and yet he is more real to me than almost anybody else. He never goes out of my life. I talk to him and consult him all the time. The older I grow, the better I know him and the more I understand him.
+ - I have sometimes thought that his bursts of imaginative talk were fatal to his poetic gift. He squandered too much in the heat of personal communication.
+ - Religion and art spring from the same root and are close kin.
+ - For ever and anon the soul becomes weary of the conventions that are not of it, and with a single stroke shatters the civilized lies with which it is unable to cope, and the strong arm reaches out and takes by force what it cannot win by cunning.
+ - Desire is creation, is the magical element in that process. If there were an instrument by which to measure desire, one could foretell achievement.
+ - Freedom so often means that one isn’t needed anywhere. Here you are an individual, you have a background of your own, you would be missed. But off there in the cities there are thousands of rolling stones like me. We are all alike; we have no ties, we know nobody, we own nothing.
+ - I like trees because they seem more resigned to the way they have to live than other things do. I feel as if this tree knows everything I ever think of when I sit here. When I come back to it, I never have to remind it of anything; I begin just where I left off.
+ - Let people go on talking as they like, and we will go on living as we think best.
+ - Art, it seems to me, should simplify.
+ - Old people, who have felt blows and toil and known the world’s hard hand, need, even more than children do, a woman’s tenderness.
+ - The supreme virtue in art is soul, perhaps it is the only thing which gives it the right to be.
+ - The sincerity of feeling that is possible between a writer and a reader is one of the finest things I know.
+ - They ravaged neither the rivers nor the forest, and if they irrigated, they took as little water as would serve their needs. The land and all that it bore they treated with consideration; not attempting to improve it, they never desecrated it.
+ - In this world people have to pay an extortionate price for any exceptional gift whatever.
+ - The revolt against individualism naturally calls artists severely to account, because the artist is of all men the most individual; those who were not have been long forgotten.
+ - The dead might as well try to speak to the living as the old to the young.
+ - When we look back, the only things we cherish are those which in some way met our original want; the desire which formed in us in early youth, undirected, and of its own accord.
+ - Men travel faster now, but I do not know if they go to better things.
+ - Elsewhere the sky is the roof of the world; but here the earth was the floor of the sky.
+ - The sky was a midnight-blue, like warm, deep, blue water, and the moon seemed to lie on it like a water-lily, floating forward with an invisible current.
+ - Today I stood taller from walking among the trees.
+ - There seemed to be nothing to see; no fences, no creeks or trees, no hills or fields. If there was a road, I could not make it out in the faint starlight. There was nothing but land: not a country at all, but the material out of which countries are made.
+ - The only thing very noticeable about Nebraska was that it was still, all day long, Nebraska.
+ - There is something frank and joyous and young in the open face of the country. It gives itself ungrudgingly to the moods of the season, holding nothing back.
+ - I was thinking, as I watched her, how little it mattered – about her teeth, for instance. I know so many women who have kept all the things that she had lost, but whose inner glow has faded. Whatever else was gone, Antonia had not lost the fire of life.
+ - The irregular and intimate quality of things made entirely by the human hand.
+ - There are only two or three human stories, and they go on repeating themselves as fiercely as if they had never happened before.
+ - The summer moon hung full in the sky. For the time being it was the great fact of the world.
+ - William Tavener never heeded ominous forecasts in the domestic horizon, and he never looked for a storm until it broke.
+ - When the eyes of the flesh are shut, the eyes of the spirit are open.
+ - Some people’s lives are affected by what happens to their person or their property; but for others fate is what happens to their feelings and their thoughts – that and nothing more.
+ - If you don’t keep and guard and mature your force, and above all, have time and quiet to perfect your work, you will be writing things not much better than you did five years ago.
+ - Sometimes I wonder why God ever trusts talent in the hands of women, they usually make such an infernal mess of it. I think He must do it as a sort of ghastly joke.
+ - Oh, that’s the beauty of the rose, that it blossoms and dies.
+ - Loyal? As loyal as anyone who plays second fiddle ever is.
+ - There was a new kind of strength in the gravity of her face, and her colors still gave her that look of deep-seated health and ardor.
+ - Let your fiction grow out of the land beneath your feet.
+ - Yet the summer which was to change everything was coming nearer every day. When boys and girls are growing up, life can’t stand still, not even in the quietest of country towns; and they have to grow up, whether they will or no. That is what their elders are always forgetting.
+ - On the farm the weather was the great fact, and men’s affairs went on underneath it, as the streams creep under the ice.
+ - The heart, when it is too much alive, aches for that brown earth, and ecstasy has no fear of death.
+ - The air and the earth interpenetrated in the warm gusts of spring; the soil was full of sunlight, and the sunlight full of red dust. The air one breathed was saturated with earthy smells, and the grass under foot had a reflection of the blue sky in it.
+ - This is reality, whether you like it or not – all those frivolities of summer, the light and shadow, the living mask of green that trembled over everything, they were lies, and this is what was underneath. This is the truth.
+ - A soup like this is not the work of one man. It is the result of a constantly refined tradition. There are nearly a thousand years of history in this soup.
+ - Love itself draws on a woman nearly all the bad luck in the world.
+ - She had only to stand in the orchard, to put her hand on a little crab tree and look up at the apples, to make you feel the goodness of planting and tending and harvesting at last.
+ - Alcohol is perfectly consistent in its effects upon man. Drunkenness is merely an exaggeration. A foolish man drunk becomes maudlin; a bloody man, vicious; a coarse man, vulgar.
+ - Now I understood that the same road was to bring us together again. Whatever we had missed, we possessed together the precious, the incommunicable past.
+ - The more observing ones may have seen, but discerning people are usually discreet and often kind, for we usually bleed a little before we begin to discern.
+ - The qualities of a second-rate writer can easily be defined, but a first-rate writer can only be experienced. It is just the thing in him which escapes analysis that makes him first-rate.
+ - Only the stupid and the phlegmatic should teach.
+ - The emptiness was intense, like the stillness in a great factory when the machinery stops running.
+ - If there were no girls like them in the world, there would be no poetry.
+ - I’ve seen it before. There are women who spread ruin through no fault of theirs, just by being too beautiful, too ful of life and love. They can’t help it. Poeple come to them as people go to a warm fire in winter.
+ - Human relationships are the tragic necessity of human life; that they can never be wholly satisfactory, that every ego is half the time greedily seeking them, and half the time pulling away from them.
+ - In great misfortunes, people want to be alone. They have a right to be. And the misfortunes that occur within one are the greatest. Surely the saddest thing in the world is falling out of love – if once one has ever fallen in.
+ - One cannot divine nor forecast the conditions that will make happiness; one only stumbles upon them by chance, in a lucky hour, at the world’s end somewhere, and hold fast to the days...
+ - The test of one’s decency is how much of a fight one can put up after one has stopped caring, and after one has found out that one can never please the people they wanted to please.
+ - The history of every country begins in the heart of a man or a woman.
+ - Art, it seems to me, should simplify finding what conventions of form and what detail one can do without and yet preserve the spirit of the whole – so that all that one has suppressed and cut away is there to the reader’s consciousness as much as if it were in type on the page.
+ - The higher processes are all processes of simplification. The novelist must learn to write, and then he must unlearn it; just as the modern painter learns to draw, and then learns when utterly to disregard his accomplishment, when to subordinate it to a higher and truer effect.
+ - Personal life becomes paler as the imaginative life becomes richer.
+ - Your vivid, exciting companionship in the office must not be your audience, you must find your own quiet center of life, and write from that to the world.
+ - The condition every art requires is, not so much freedom from restriction, as freedom from adulteration and from the intrusion of foreign matter.
+ - There was nothing but land; not a country at all, but the material out of which countries are made.
+ - Give the people a new word and they think they have a new fact.
+ - The fact that I was a girl never damaged my ambitions to be a pope or an emperor.
+ - Life was so short that it meant nothing at all unless it were continually reinforced by something that endured; unless the shadows of individual existence came and went against a background that held together.
+ - It is cremated youth. It is all yours – no one gave it to you.
+ - No one can build his security upon the nobleness of another person.
+ - Claude Wheeler opened his eyes before the sun was up and vigorously shook his younger brother, who lay in the other half of the same bed.
+ - New things are always ugly.
+ - Only solitary men know the full joys of frienship. Others have their family; but to a solitary and an exile, his friends are everything.
+ - Now that Stevenson is dead I can think of but one English- speaking author who is really keeping his self-respect and sticking forperfection. Of course I refer to that mighty master of language and keen student of human actions and motives, Henry James.
+ - To note an artist’s limitations is but to define his talent. A reporter can write equally well about everything that is presented to his view, but a creative writer can do his best only with what lies within the range and character of his deepest sympathies.
+ - It is easy to pity when once one’s vanity has been tickled.
+ - From the time the Englishman’s bones harden into bones at all, he makes his skeleton a flagstaff, and he early plants his feet like one who is to walk the world and the decks of all the seas.
+ - One may have staunch friends in one’s own family, but one seldom has admirers.
+ - In other searchings it might be the object of the quest that brought satisfaction, or it might be something incidental that one got on the way; but in religion, desire was fulfilment, it was the seeking itself that rewarded.
+ - All the intelligence and talent in the world can’t make a singer. The voice is a wild thing. It can’t be bred in captivity. It is a sport, like the silver fox. It happens.
+ - She had certain thoughts which were like companions, ideas which were like older and wiser friends.
+ - Of course Nebraska is a storehouse of literary material. Everywhere is a storehouse of literary material. If a true artist were born in a pigpen and raised in a sty, he would still find plenty of inspiration for his work. The only need is the eye to see.
+ - To fulfil the dreams of one’s youth; that is the best that can happen to a man. No worldly success can take the place of that.
+ - Winter lies too long in country towns; hangs on until it is stale and shabby, old and sullen.
+ - One January day, thirty years ago, the little town of Hanover, anchored on a windy Nebraska tableland, was trying not to be blown away.
+ - People have to snatch at happiness when they can, in this world. It is always easier to lose than to find.
+ - The miracles of the church seem to me to rest not so much upon faces or voices or healing power coming suddenly near to us from afar off, but upon our perceptions being made finer, so that for a moment our eyes can see and our ears can hear what is there about us always.
+ - Our tree became the talking tree of the fairy tale; legends and stories nestled like birds in its branches.
+ - Every artist makes herself born. You must bring the artist into the world yourself.
+ - Pittsburgh was even more vital, more creative, more hungry for culture than New York. Pittsburgh was the birthplace of my writing.
+ - I tell you there is such a thing as creative hate.
+ - How terrible it was to love people when you could not really share their lives!
+ - This land was an enigma. It was like a horse that no one knows how to break to harness, that runs wild and kicks things to pieces.
+ - If we never arrived anywhere, it did not matter. Between that earth and that sky i felt erased, blotted out. I did not say my prayers that night: here, i felt what would be would be.
+ - Too much detail is apt, like any other form of extravagance, to become slightly vulgar.
+ - Paris is a hard place to leave, even when it rains incessantly and one coughs continually from the dampness.
+ - I had killed a big snake. I was now a big fellow.
+ - The air was cool enough to make the warm sun pleasant on one’s back and shoulders, and so clear that the eye could follow a hawk up and up, into the blazing blue depths of the sky.
+ - One afternoon late in October of the year 1697, Euclide Auclair, the philosopher apothecary of Quebec, stood on the top of Cap Diamant gazing down the broad, empty river far beneath him.
+ - In Haverford on the Platte the townspeople still talk of Lucy Gayheart.
+ - An artist’s saddest secrets are those that have to do with his artistry.
+ - Oh, the Germans classify, but the French arrange.
+ - Youth, art, love, dreams, true-heartedness – why must they go out of the summer world into darkness?
+ - It is scarcely exaggeration to say that if one is not a little mad about Balzac at twenty, one will never live; and if at forty one can still take Rastignac and Lucien de Rubempre at Balzac’s own estimate, one has lived in vain.
+ - Sometimes a neighbor whom we have disliked a lifetime for his arrogance and conceit lets fall a single commonplace remark that shows us another side, another man, really; a man uncertain, and puzzled, and in the dark like ourselves.
+ - Merely having seen the season change in a country gave one the sense of having been there for a long time.
+ - A watch is the most essential part of a lecture.
+ - Men are all right for friends, but as soon as you marry them they turn into cranky old fathers, even the wild ones.
+ - Men are all right for friends, but as soon as you marry them they turn into cranky old fathers, even the wild ones. They begin to tell you what’s sensible and what’s foolish, and want you to stick at home all the time. I prefer to be foolish when I feel like it, and be accountable to nobody.
+ - The soul cannot be humbled by fasts and prayer; it must be broken by mortal sin to experience forgiveness of sin and rise to a state of grace. Otherwise, religion is nothing but dead logic.
+ - From two ears that had grown side by side, the grains of one shot up joyfully into the light, projecting themselves into the future, and the grains from the other lay still in the earth and rotted; and nobody knew why.
+ - Of all the bewildering things about a new country, the absence of human landmarks is one of the most depressing and disheartening.
+ - The voice is a wild thing. It can’t be bred in captivity.
+ - The stupid believe that to be truthful is easy; only the artist, the great artist, knows how difficult it is.
+ - I suppose there were moonless nights and dark ones with but a silver shaving and pale stars in the sky, but I remember them all as flooded with the rich indolence of a full moon.
+ - Ah! the terror and the delight of that moment when first we fear ourselves! Until then we have not lived.
+ - The great fact was the land itself, which seemed to overwhelm the little beginnings of human society that struggled in its sombre wastes.
+ - I ain’t got time to learn. I can work like mans now.
+ - It’s all very well to tell us to forgive our enemies; our enemies can never hurt us very much. But oh, what about forgiving our friends?
+ - I shall not die of a cold. I shall die of having lived.
+ - Wherever humanity has made that hardest of all starts and lifted itself out of mere brutality is a sacred spot.
+ - People always think the bread of another country is better than their own.
+ - Yes, and because we grow old we become more and more the stuff our forbears put into us. I can feel his savagery strengthen in me. We think we are so individual and so misunderstood when we are young; but the nature our strain of blood carries is inside there, waiting, like our skeleton.
+ - Every fine story must leave in the mind of the sensitive reader an intangible residuum of pleasure, a cadence, a quality of voice that is exclusively the writer’s own, individual, unique.
+ - Some memories are realities, and are better than anything that can ever happen to one again.
+ - The sun was like a great visiting presence that stimulated and took its due from all animal energy. When it flung wide its cloak and stepped down over the edge of the fields at evening, it left behind it a spent and exhausted world.
+ - What was any art but a mould in which to imprison for a moment the shining elusive element which is life itself – life hurrying past us and running away, too strong to stop, too sweet to lose.
+ - Pity is sworn servant unto love: And this be sure, wherever it begin To make the way, it lets your master in.
+ - Imagination, which is a quality writers must have, does not mean the ability to weave pretty stories out of nothing. In the right sense, imagination is a response to what is going on – a sensitiveness to which outside things appeal. It is a composition of sympathy and observation.
+ - Prayers said by good people are always good prayers.
+ - Happy people do a great deal for their friends.
+ - We all like people who do things, even if we only see their faces on cigar-box lids.
+ - The trees and shrubbery seemed well-groomed and social, like pleasant people.
+ - A child’s attitude toward everything is an artist’s attitude.
+ - If youth did not matter so much to itself, it would never have the heart to go on.
+ - One summer evening in the year 1848, three Cardinals and a missionary were dining together in the gardens of a villa in the Sabine hills, overlooking Rome.
+ - It is a tragic hour, that hour when we are finally driven to reckon with ourselves, when every avenue of mental distraction has been cut off and our own life and all its ineffaceable failures closes about us like the walls of that old torture chamber of the Inquisition.
+ - Only a Woman, divine, could know all that a woman can suffer.
+ - Henry Colbert, the miller, always breakfasted with his wife – beyond that he appeared irregularly at the family table.
+ - It does not matter much whom we live with in this world, but it matters a great deal whom we dream of.
+ - The trouble is you almost have to marry a man before you can find out the sort of wife he needs; and usually it’s exactly the sort you are not.
+ - In a few hours one could cover that incalculable distance; from the winter country and homely neighbours, to the city where the air trembled like a tuning-fork with unimaginable possibilities.
+ - In little towns, lives roll along so close to one another; loves and hates beat about, their wings almost touching.
+ - Dr. Howard Archie had just come up from a game of pool with the Jewish clothier and two traveling men who happened to be staying overnight in Moonstone.
+ - Thea was still under the belief that public opinion could be placated; that if you clucked often enough, the hens would mistake you for one of themselves.
+ - A work-room should be like an old shoe; no matter how shabby, it’s better than a new one.
+ - Thirty or forty years ago, in one those grey towns along the Burlington railroad which are so much greyer to-day than they were then, there was a house well know from Omaha to Denver for its hospitality and for a certain charm of atmosphere.
+ - I first met Myra Henshawe when I was fifteen, but I had known her about ever since I could remember anything at all.
+ - Most publishers, like most writers, are ruined by their successes.
+ - Whatever is felt upon the page without being specifically named there – that, we may say, is created.
+ - Old men are like that, you know. It makes them feel important to think they are in love with somebody.
+ - No nation has ever produced great art that has not made a high art of cookery, because art appeals primarily to the senses.
+ - Late one brilliant April afternoon Professor Lucius Wilson stood at the head of Chestnut Street, looking about him with the pleased air of a man of taste who does not very often get to Boston.
+ - Religion is different from everything else; because in religion seeking is finding.
+ - A man long accustomed to admire his wife in general, seldom pauses to admire her in a particular gown or attitude, unless his attention is directed to her by the appreciative gaze of another man.
+
+189 quotes

@@ -1,0 +1,21 @@
+ - Literature illuminates life only for those to whom books are a necessity.
+ - I get a warm feeling among my books.
+ - One of the worst things about life is not how nasty the nasty people are. You know that already. It is how nasty the nice people can be.
+ - Self-love seems so often unrequited.
+ - Books do furnish a room.
+ - A dance to the music of time.
+ - Writing is above all a question of instinct.
+ - It is not what happens to people that is significant, but what they think happens to them.
+ - You have to be a product of the product.
+ - When people really hate one another, the tension within them can sometimes make itself felt throughout a room, like atmospheric waves, first hot, then cold, wafted backwards and forwards as if in an invisible process of air conditioning, creating a pervasive physical disturbance.
+ - Writing is a combination of intangible creative fantasy and appallingly hard work.
+ - He fell in love with himself at first sight and it is a passion to which he has always remained faithful. Selflove seems so often unrequited.
+ - The whole idea of interviews is in itself absurd – one cannot answer deep questions about what one’s life was like – one writes novels about it.
+ - Self-pity is essentially humorless, devoid of that lightness of touch which gives understanding of life.
+ - I was impressed for the ten thousandth time by the fact that literature illuminates life only for those to whom books are a necessity. Books are unconvertible assets, to be passed on only to those who possess them already.
+ - One passes through the world knowing few, if any, of the important things about even the people with whom one has been from time to time in the closest intimacy.
+ - There is, after all, no pleasure like that given by a woman who really wants to see you.
+ - Few persons who have ever sat for a portrait can have felt anything but inferior while the process is going on.
+ - People think that because a novel’s invented, it isn’t true. Exactly the reverse is the case. Biography and memoirs can never be wholly true, since they cannot include every conceivable circumstance of what happened. The novel can do that.
+
+19 quotes

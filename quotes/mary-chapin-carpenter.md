@@ -1,0 +1,54 @@
+ - In this world, you’ve a soul for a compass and a heart for a pair of wings.
+ - Carry with you maps and string, flashlights, friends who make you sing, and stars to help you find your place, music, hope, and amazing grace.
+ - Think I’ll flip a coin, I’m a winner either way Mmmmmm, I feel lucky today.
+ - I take my chances. I can’t cling to remorse or regret.
+ - We all have two lives. The one we are given and the one we create.
+ - I’m a liberal arts junkie.
+ - There’s two lanes running down this road which ever side your on, accounts for where you want to go or what you’re running from.
+ - So I think that if I do feel more freedom right now in my career, it’s not so much because I have less at stake but more a sense that I’ve learned more.
+ - You know, that single girl life and that sense of isolation – that doesn’t leave you just like that. And that’s what that song is about. I remember that, and that is imprinted on me, that sense.
+ - Some people say that you should not tempt fate and for them I cannot disagree, but I never learned anything from playing it safe. I say fate should not tempt me.
+ - Life is never a straight line – it’s peaks and valleys. Why would you want to be the same person every day of your life?
+ - I’ve crossed lines of word and wire and both have cut me deep. I’ve been frozen out and I’ve been on fire, and the tears are mine to weep.
+ - Every sleepy boy and girl in every bed around the world- Can hear the stars up in the sky whispering a lullaby.
+ - Fool you once, you are forgiven. Fool you twice, you’re just a fool.
+ - I love to write songs and sing them, and I didn’t really know much more than that. Somehow it’s gotten to the point where a friend can say, “It’s very you,” and that made me feel good.
+ - I feel that it’s nothing if not an incredible privilege to be able to get up on stage and play for people, and I don’t ever take it for granted.
+ - God forgives somehow we have yet to learn the same.
+ - A dreamer born is a hero bred...
+ - I woke to find every window open I woke to find the heavy door ajar And I walked outside and stood upon the hilltop And gazed once more on a bright morning star I walked outside and every bird was singing As I found again my bright morning star.
+ - I don’t think you need to dumb down to a child, you merely have to be clear, you know?
+ - Dreamland is a book, but it’s my song in book form. It’s translated itself into a different medium.
+ - Emmy Lou Harris introduced me to the work of the Vietnam Veterans of America foundation and the Campaign for a Land Mine Free World.
+ - I kept thinking, I went to college and I have to get a real job.
+ - As far as politically how country music goes, it’s true that it’s regarded from a distance as a genre of music that at different times, the more right elements of the political spectrum have claimed for their own.
+ - I feel like they’re different creatures, live and in the studio, but that’s what makes it so interesting to me. If they didn’t have any different shadings or colors, you might as well be a hologram or something.
+ - I was a liberal arts junkie and I figured, well, I’ll go work for somebody somewhere. All I knew was that I was going to have to come home and figure it out.
+ - About age ten, we moved from the place where I was born, moved overseas.
+ - Was it a light only she could see? A gypsy’s spell? A mystery?
+ - When I started out, it was this sense of, “Let’s put out a record and see what happens and see where you go and see how you feel and where we can take it.” That was a very different world back then.
+ - When I think of the artists I admire and seek out musically. It’s because I’m curious about where they’re going to go the next time they have a chance to put a record out. It’s not about where I find them on the radio dial, or how many records they’re selling.
+ - It’s a marvelous feeling when someone says I want to do this song of yours because they’ve connected to it. That’s what I’m after.
+ - So I came home and I had a resume and everything, but the only job experience I had was just playing in bars and clubs on my summers off. So, I was temping and stuff during the day and playing music at night.
+ - I don’t really remember my folks singing to us, but they read to us.
+ - The bedrock thing of country music is, it’s about storytelling. I feel like I was able to find a niche because I connected to that in some way.
+ - The joy of being in the studio is having people being utterly free to throw out their ideas.
+ - 20-some years ago, I’d have a big old radio with a tape deck, and I’d hit record and try to get something down on the tape, but nowadays, I can use my handy little smart-phone; I sing into the app for voice memo.
+ - I think topical songwriting is a real gift, and it’s hard not to be pedantic and show up with the sledgehammer message.
+ - I think on a stage in front of thousands of people is a wildly invigorating and amazing experience, and it requires a certain skill set; then being in the studio, and being curled up in the fetal position under the piano, that requires another skill set.
+ - In the late 80s, artists could be signed to labels and be nurtured. It wasn’t, “We’re going to give you one shot, and if you don’t measure up, you’re gone”.
+ - Everything changes in every genre, whether it’s pop, rock or country.
+ - It’s a pretty frantic world that we live in.
+ - I’m a bit of a perfectionist. I want to try it again and again, and a lot of times my fellow musicians have to hold me back and say, “Nah, I think we got it.”
+ - My sisters and I were fortunate to travel through Asia and Europe at very young ages. We confronted extraordinary beauty in Athens and unspeakable poverty in India.
+ - I certainly felt the desire to reach as many people as I could; I wanted to make the most of this opportunity, sure. But I wouldn’t call it pressure the way we’re thinking of it now.
+ - I know some artists who come out of country music and the three sessions a day work ethic where you walk in, and you’re told you play this note, this note, and this note, and you don’t vary it. I know that works great for some people. It wouldn’t work for me.
+ - I like to feel that every day or most days, I do a little bit of writing. I am a creature of habit in terms of the way I live.
+ - The light of the moon is all we’ve got to go on...
+ - I was really young, but I can’t say that I wrote much of anything. I liked to scribble; I thought of it as that. But I was playing guitar and ukulele when I was in second grade.
+ - I found Elvis on the Internet, I went camping with a young cadet, he showed me his bayonet.
+ - It seemed inevitable to try to address my feelings about everything that had happened. To a certain degree, it felt cathartic, but it’s less cathartic to me than it is illuminating and helping me navigate my own feelings.
+ - I feel like politics have always informed what I do. If you know anything about my music, you know I’ve never been shy about stating how I vote.
+ - I grew up listening to everything, and when I got signed to a record deal out of Nashville, that was my introduction to what was happening in country music.
+
+52 quotes

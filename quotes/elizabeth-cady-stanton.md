@@ -1,0 +1,141 @@
+ - The moment we begin to fear the opinions of others and hesitate to tell the truth that is in us, and from motives of policy are silent when we should speak, the divine floods of light and life no longer flow into our souls.
+ - A woman will always be dependent until she holds a purse of her own.
+ - The heyday of woman’s life is the shady side of fifty.
+ - Truth is the only safe ground to stand on.
+ - The history of the past is but one long struggle upward to equality.
+ - Nature never repeats herself, and the possibilities of one human soul will never be found in another.
+ - Nothing strengthens the judgment and quickens the conscience like individual responsibility.
+ - We hold these truths to be self-evident: that all men and women are created equal.
+ - Nature, like a loving mother, is ever trying to keep land and sea, mountain and valley, each in its place, to hush the angry winds and waves, balance the extremes of heat and cold, of rain and drought, that peace, harmony and beauty may reign supreme.
+ - Self-development is a higher duty than self-sacrifice.
+ - When we consider that women are treated as property it is degrading to women that we should treat our children as property to be disposed of as we see fit.
+ - The prolonged slavery of women is the darkest page in human history.
+ - I am weary seeing our laboring classes so wretchedly housed, fed, and clothed, while thousands of dollars are wasted every year over unsightly statues. If these great man must have outdoor memorials, let them be in the form of handsome blocks of buildings for the poor.
+ - When lions paint pictures men will not always be represented as conquerors. When women translate laws, constitutions, bibles and philosophies, man will not always be the declared heard of the church, the state, and the home.
+ - I have endeavoured to dissipate these religious superstitions from the minds of women, and base their faith on science and reason, where I found for myself at last that peace and comfort I could never find in the Bible and the church.
+ - The more complete the despotism, the more smoothly all things move on the surface.
+ - Nothing adds such dignity to character as the recognition of one’s self- sovereignty.
+ - Social science affirms that a woman’s place in society marks the level of civilization.
+ - I would have girls regard themselves not as adjectives but as nouns.
+ - With age come the inner, the higher life. Who would be forever young, to dwell always in externals?
+ - Because man and woman are the complement of one another, we need woman’s thought in national affairs to make a safe and stable government.
+ - Thus far women have been the mere echoes of men. Our laws and constitutions, our creeds and codes, and the customs of social life are all of masculine origin. The true woman is as yet a dream of the future. A just government, a humane religion, a pure social life await her coming.
+ - A government is just only when the whole people share equally in its protection and advantages.
+ - Eve tasted the apple in the Garden of Eden in order to slake that intense thirst for knowledge that the simple pleasure of picking flowers and talking to Adam could not satisfy.
+ - Progress is the victory of a new thought over old superstitions.
+ - I want to say one word to the men who are present. I fear you think the ‘new woman’ is going to wipe you off the planet, but be not afraid. All who have mothers, sisters, wives or sweethearts will be very well looked after.
+ - The bible teaches that women brought sin and death into the world. I don’t believe that any man ever talked with god. The bible was written by man out of his love of domination.
+ - Come, come, my conservative friend, wipe the dew off your spectacles, and see that the world is moving.
+ - The new religion will teach the dignity of human nature and its infinite possibilities for development. It will teach the solidarity of the race: that all must rise and fall as one. Its creed will be justice, liberty, equality for all the children of earth.
+ - To develop our real selves, we need time alone for thought and meditation. To be always giving out and never pumping in, the well runs dry.
+ - Woman’s degradation is in mans idea of his sexual rights. Our religion, laws, customs, are all founded on the belief that woman was made for man.
+ - So closely interwoven have been our lives, our purposes, and experiences that, separated, we have a feeling of incompleteness – united, such strength of self-association that no ordinary obstacles, difficulties, or dangers ever appear to us insurmountable.
+ - No privileged order ever did see the wrongs of its own victims...
+ - God, in His wisdom, has so linked the whole human family together that any violence done at one end of the chain is felt throughout its length.
+ - Whatever oppressions man has suffered, they have invariably fallen more heavily on woman. Whatever new liberties advancing civilization has brought to man, ever the smallest measure has been accorded to woman, as a result of church teaching. The effect of this is seen in every department of life.
+ - There is a solitude, which each and every one of us has always carried with him, more inaccessible than the ice-cold mountains, more profound than the midnight sea; the solitude of self. Our inner being, which we call ourself, no eye nor touch of man or angel has ever pierced.
+ - What will we and our daughters suffer if these degraded black men are allowed to have the rights that would make them even worse than our Saxon fathers?
+ - Womanhood is the great fact in her life; wifehood and motherhood are but incidental relations.
+ - Human beings lose their logic in their vindictiveness.
+ - No matter how much women prefer to lean, to be protected and supported, nor how much men desire to have them do so, they must make the voyage of life alone, and for safety in an emergency they must know something of the laws of navigation.
+ - Resolved, That all laws which prevent women from occupying such a station in society as her conscience shall dictate, or which place her in a position inferior to that of man, are contrary to the great precept of nature, and therefore of no force or authority.
+ - I think if women would indulge more freely in vituperation, they would enjoy ten times the health they do. It seems to me they are suffering from repression.
+ - So long as women are slaves, men will be knaves.
+ - The voice of woman has been silenced in the state, the church, and the home, but man cannot fulfill his destiny alone, he cannot redeem his race unaided.
+ - The isolation of every human soul and the necessity of self- dependence must give each individual the right to choose his own surroundings.
+ - Heavenly Father and Mother, make us thankful for all the blessings of this life, and make us ever mindful of the patient hands that oft in weariness spread our tables and prepare our daily food. For humanity’s sake, Amen.
+ - I know of no other book that so fully teaches the subjection and degradation of women.
+ - When women can support themselves, have entry to all the trades and professions, with a house of their own over their heads and a bank account, they will own their bodies and be dictators in the social realm.
+ - One remarkable fact stands out in the history of witchcraft; and that is, its victims were chiefly women. Scarce one wizard to a hundred witches was ever burned or tortured.
+ - The talk of sheltering woman from the fierce storms of life is the sheerest mockery, for they beat on her from every point of thecompass, just as they do on man, and with more fatal results, for he has been trained to protect himself, to resist, to conquer.
+ - Men think that self-sacrifice is the most charming of all the cardinal virtues for women, and in order to keep it in healthy working order, they make opportunities for its illustration as often as possible.
+ - The religious superstitions of women perpetuate their bondage more than all other adverse influences.
+ - You may go over the world and you will find that every form of religion which has breathed upon this earth has degraded woman.
+ - Let us remember that all reforms are interdependent, and that whatever is done to establish one principle on a solid base, strengthens all.
+ - How long will the heathens rage?
+ - Reformers who are always compromising, have not yet grasped the idea that truth is the only safe ground to stand upon.
+ - A mind always in contact with children and servants, whose aspirations and ambitions rise no higher than the roof that shelters it, is necessarily dwarfed in its proportions.
+ - Two pure souls fused into one by an impassioned love-friends, counselors-a mutual support and inspiration to each other amid life’s struggles, must know the highest human happiness;-this is marriage; and this is the only cornerstone of an enduring home.
+ - To live for a principle, for the triumph of some reform by which all mankind are to be lifted up to be wedded to an idea may be, after all, the holiest and happiest of marriages.
+ - My religious superstition gave place to rational ideas based on scientific facts, and in proportion as I looked at everything from a new standpoint, I grew more happy day by day...
+ - How can any woman believe that a loving and merciful God would, in one breath, command Eve to multiply and replenish the earth, and in the next, pronounce a curse upon her maternity? I do not believe that God inspired the Mosaic code, or gave out the laws about women which he is accused of doing.
+ - Men as a general rule have very little reverence for trees.
+ - To refuse political equality is to rob the ostracized of all self-respect.
+ - Though motherhood is the most important of all the professions – requiring more knowledge than any other department in human affairs – there was no attention given to preparation for this office.
+ - There is a great deal in a name. It often signifies much, and may involve a great principle.
+ - I had been invited to speak after the lunch. But I did not go to the table until the feast ended, as I never like to eat or talk before speaking.
+ - The happiest people I have known have been those who gave themselves no concern about their own souls, but did their uttermost to mitigate the miseries of others.
+ - The Bible contains some of the most sublime passages in English literature, but is also full of contradictions, inconsistencies, and absurdities.
+ - It is impossible for one class to appreciate the wrongs of another.
+ - Woman has been the great unpaid laborer of the world.
+ - We seem to be pariahs alike in the visible and the invisible world, with no foothold anywhere, though by every principle of government and religion we should have an equal place on this planet.
+ - Modesty and taste are questions of latitude and education; the more people know, – the more their ideas are expanded by travel, experience, and observation, – the less easily they are shocked. The narrowness and bigotry of women are the result of their circumscribed sphere of thought and action.
+ - Every truth we see is one to give to the world, not to keep to ourselves alone.
+ - To make laws that man cannot, and will not obey, serves to bring all laws into contempt.
+ - The whole tone of Church teaching in regard to women is, to the last degree, contemptuous and degrading.
+ - I poured out the torrent of my long-standing discontent and I challenged them to do and dare anything.
+ - I have been into many of the ancient cathedrals – grand, wonderful, mysterious. But I always leave them with a feeling of indignation because of the generations of human beings who have struggled in poverty to build these altars to the unknown god.
+ - In her present ignorance, woman’s religion, instead of making her noble and free, by the wrong application of great principles ofright and justice, has made her bondage but more certain and lasting, her degradation more hopeless and complete.
+ - Resolved, That it is the duty of the women of this country to secure to themselves their sacred right to the elective franchise.
+ - Well, another female child is born into the world! Last Sunday afternoon, Harriot Eaton Stanton – oh! the little heretic thus to desecrate that holy holiday – opened her soft blue eyes on this mundane sphere.
+ - The queens in history compare favorably with the kings.
+ - No mortal ever has been, no mortal ever will be like the soul just launched on the sea of life.
+ - We are the only class in history that has been left to fight its battles alone, unaided by the ruling powers. White labor and the freed black men had their champions, but where are ours?
+ - The woman is uniformly sacrificed to the wife and mother.
+ - I thought that the chief thing to be done in order to equal boys was to be learned and courageous. So I decided to study Greek and learn to manage a horse.
+ - Woman’s discontent increases in exact proportion to her development.
+ - The great fault of mankind is that it will not think.
+ - Only those who have lived all their lives under the dark clouds of vague, undefined fears can appreciate the joy of a doubting soul suddenly born into the kingdom of reason and free thought.
+ - To-day the woman is Mrs. Richard Roe, to-morrow Mrs. John Doe, and again Mrs. James Smith according as she changes masters, and she has so little self-respect that she does not see the insult of the custom.
+ - I have met few men in my life, worth repeating eight times.
+ - All honor to the noble women that have devoted earnest lives to the intellectual needs of mankind!
+ - The Bible and the Church have been the greatest stumbling blocks in the way of women’s emancipation.
+ - I see by the papers that you have once more stirred that pool of intellectual stagnation, the educational convention.
+ - I decline to accept Hebrew mythology as a guide to twentieth-century science.
+ - That only a few, under any circumstances, protest against the injustice of long-established laws and customs, does not disprove the fact of the oppressions, while the satisfaction of the many, if real only proves their apathy and deeper degradation.
+ - Throughout this protracted and disgraceful assault on American womanhood, the clergy baptized each new insult and act of injustice in the name of the Christian religion, and uniformly asked God’s blessing on proceedings that would have put to shame an assembly of Hottentots.
+ - All who live to a good old age have a genius for sleep.
+ - To deny political equality is to rob the ostracised of all self-respect; of credit in the market place; of recompense in the world of work; of a voice among those who make and administer the law; a choice in the jury before whom they are tried, and in the judge who decides their punishment.
+ - Our ‘pathway’ is straight to the ballot box, with no variableness nor shadow of turning.
+ - The history of mankind is a history of repeated injuries and usurpations on the part of man toward woman.
+ - You who have read the history of nations, from Moses down to our last election, where have you ever seen one class looking after the interests of another?
+ - How anyone, in view of the protracted sufferings of the race, can invest the laws of the universe with a tender loving fatherly intelligence, watching, guiding and protecting humanity, is to me amazing.
+ - Out of the doctrine of original sin grew the crimes and miseries of asceticism, celibacy and witchcraft; woman becoming the helpless victim of all these delusions.
+ - The memory of my own suffering has prevented me from ever shadowing one young soul with the superstition of the Christian religion.
+ - Did I not feel that the time has come for the questions of women’s wrongs to be laid before the public? Did I not believe that women herself must do this work, for women alone understand the height, the depth, the breadth of her degradation. – Seneca Falls Convention, 1848.
+ - To no form of religion is woman indebted for one impulse of freedom, as all alike have taught her inferiority and subjection.
+ - It is as disastrous to true government in the state, and home, to teach all womankind to submit to the authority of man, as divinely ordained, as it is to teach all mankind to bow down to the authority of kings and Popes, as divinely ordained.
+ - The desire to please those we admire and respect often cripples conscience.
+ - What an infernal set of fools those schoolmarms must be! Well, if in order to please men they wish to live on air, let them. The sooner the present generation of women dies out, the better. We have idiots enough in the world now without such women propagating any more.
+ - The great lesson that nature seems to teach us at all ages is self-dependence, self-protection, self-support. In the hours of our keenest sufferings all are thrown wholly on themselves for consolation.
+ - Everyone in the full enjoyment of all the blessings of his life, in his normal condition, feels some individual responsibility forthe poverty of others. When the sympathies are not blunted by any false philosophy, one feels reproached by one’s own abundance.
+ - Who, I ask you, can take, dare take, on himself the rights, the duties, the responsibilities of another human soul?
+ - I think all these reverend gentlemen who insist on the word ‘obey’ in the marriage service should be removed for a clear violation of the Thirteenth Amendment to the Federal Constitution, which says there shall be neither slavery nor involuntary servitude within the United States.
+ - Oh, the shortcomings and inconsistency of the average human being, especially when this human being is a man trying to manage women’s affairs!
+ - It requires philosophy and heroism to rise above the opinion of the wise men of all nations and races.
+ - To think that all in me of which my father would have felt proper pride had I been a man, is deeply mortifying to him because I am a woman.
+ - To throw obstacles in the way of a complete education is like putting out the eyes.
+ - Men who can, when they wish to write a document, shut themselves up for days with their thoughts and their books, know little of what difficulties a woman must surmount to get off a tolerable production.
+ - A man in love will jump to pick up a glove or a bouquet for a silly girl of sixteen, whilst at home he will permit his aged mother to carry pails of water and armfuls of wood, or his wife to lug a twenty-pound baby, hour after hour, without ever offe.
+ - Who can sum up all the ills the women of a nation suffer from war? They have all of the misery and none of the glory; nothing to mitigate their weary waiting and watching for the loved ones who return no more.
+ - Whatever the theories may be of woman’s dependence on man, in the supreme moments of her life he can not bear her burdens.
+ - The women of this country ought be enlightened in regard to the laws under which they live, that they may no longer publish their degradation by declaring themselves satisfied with their present position, nor their ignorance, by asserting that they have all the rights they want.
+ - Men can never understand the fear of everlasting punishment that fills the souls of women and children. The orthodox religion, as drawn from the Bible and expounded by the church, is enough to drive the most imaginative and sensitive natures to despair and death.
+ - It was just so in the American Revolution, in 1776, the first delicacy the men threw overboard in Boston harbor was the tea, woman’s favorite beverage. The tobacco and whiskey, though heavily taxed, they clung to with the tenacity of the devil-fish.
+ - Embrace truth as it is revealed to-day by human reason.
+ - Surely the immutable laws of the universe can teach more impressive and exalted lessons than the holy books of all the religions on earth.
+ - The moral qualities are more apt to grow when a human being is useful, and they increase in the woman who helps to support the family rather than in the one who gives herself to idleness and fashionable frivolities.
+ - It is the inalienable right of all to be happy.
+ - It is in vain to look for the elevation of woman so long as she is degraded in marriage.
+ - I shall not grow conservative with age.
+ - I view it as one of the greatest crimes to shadow the minds of the young with these gloomy superstitions, and with fears of the unknown and the unknowable to poison all their joy in life.
+ - Without fear of contradiction, I can safely say that every step in progress that woman has made she has been assailed by ecclesiastics, that her most vigilant unwearied opponents have always been the clergy...
+ - I am always busy, which is perhaps the chief reason why I am always well.
+ - In youth our most bitter disappointments, our brightest hopes and ambitions, are known only to ourselves. Even our friendship and love we never fully share with another; there is something of every passion, in every situation, we conceal.
+ - All the men of the Old Testament were polygamists, and Christ and Paul, the central figures of the New Testament, were celibates, and condemned marriage by both precept and example.
+ - Women of all classes are awakening to the necessity of self-support, but few are willing to do the ordinary useful work for which they are fitted.
+ - The Church is a terrible engine of oppression, especially as concerns woman.
+ - The girl must early be impressed with the idea that she is to be “a hand, not a mouth”; a worker, and not a drone, in the great hive of human activity. Like the boy, she must be taught to look forward to a life of self-dependence, and early prepare herself for some trade or profession.
+ - Among the clergy we find our most violent enemies, those most opposed to any change in woman’s position.
+
+139 quotes

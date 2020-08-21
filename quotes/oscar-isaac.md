@@ -1,0 +1,24 @@
+ - I think that’s why often people in creative fields can feel so alone is because there’s a constant third eye, that constant watcher.
+ - I like being like a chameleon who transforms himself with each role.
+ - If it was never new and it never gets old, then it’s a folk song.
+ - To be able to shut off your emotions drastically, I think that the only way you can do that is if you have some of sociopathic qualities.
+ - The superhero aesthetic is all about the human form and showing the body, whether they be female or male.
+ - The hardest things to do in any art is to risk failure and put yourself out on the line.
+ - I think that when you decide to dedicate yourself to creative endeavors and surround yourself with people who are creative, you very quickly learn how hard it is to survive doing those kinds of things, not to mention make a living at them.
+ - I think it’s good to be a little more fearless in saying what you feel. In not being scared of the repercussions of that.
+ - Coen brothers movies are not always what life looks like but it’s definitely what life feels like.
+ - A movie set is like a petri dish for neuroses, you know? It’s just, like, egos and weird personalities and, more than anything, fear.
+ - When I’m creating a character, I don’t see it so much as playing someone else as just playing a specific part of myself under certain circumstances.
+ - I get attached to things: I wear the same jeans for a year.
+ - There’s very few people – like Shakespeare – who, no matter what, were gonna do what they did. For the rest of us, there’s a lot of events that have to happen in order for things to end up the way they are.
+ - The idea of not getting a gun is not because I’m afraid of guns, it’s not because I think guns are wrong, it’s because it’s impractical, it’s stupid and it’s exactly what they want me to do.
+ - I’ve written a lot of music, so to be able to put that together and play some shows around the country and elsewhere – that would really be a fun thing to do.
+ - With Shakespeare, there’s no subtext; you’re speaking exactly what you’re thinking constantly.
+ - There’s a reason why actors are always dying to work with the Coens. They just set the stage for you to do their best work.
+ - I’m definitely someone that’s private. I’ve never been interested in celebrity.
+ - What’s most interesting about trying to figure out AI is the questions that it forces you to ask about the nature of consciousness.
+ - Early on – certainly in acting – you really have to take whatever you can get. So I understand well how difficult it can be to be in this position where people are just not hearing what you’re trying to say or are saying. I recognize that.
+ - The performances had to be live. When you play it back, you can see if the hands aren’t really doing the right thing, and then the whole magic falls apart.
+ - I would always find a way to blow the deal and I’m not sure why. I think there was part of me that wasn’t comfortable with monetizing the music and getting involved with royalties and all that kind of stuff.
+
+22 quotes

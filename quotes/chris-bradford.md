@@ -1,0 +1,22 @@
+ - Anyone can give up; it is the easiest thing in the world to do. But to hold it together when everyone would expect you to fall apart, now that is true strength.
+ - A samurai must remain calm at all times even in the face of danger.
+ - There is no failure except in no longer trying.
+ - Tomorrow’s victory is today’s practice.
+ - A frog in a well does not know the great sea.
+ - Each mistake teaches you something new about yourself. There is no failure, remember, except in no longer trying. It is the courage to continue that counts.
+ - I know not how to defeat others, I only know how to win over myself. The real and most dangerous opponents we face in life are fear, anger, confusion, doubt and despair. If we overcome those enemies who attack from within, we can attain a sure victory over any attack from without.
+ - Only by binding together as a single force will we remain strong and unconquerable.
+ - The impossible becomes possible if only your mind believes it.
+ - Don’t try to eat an elephant for lunch.
+ - When it is dark enough, you can see the stars.
+ - Learn today so that you may live tomorrow.
+ - Revenge is self-defeating. It will eat away you until there is nothing left.
+ - Even monkeys fall from trees.
+ - It is our duty to ensure we have a peace worth fighting for.
+ - Wherever it is you may be, it is your friends who make your world.
+ - A single tree doesn’t make a forest.
+ - To obtain victory by any means and with any weapon.
+ - Forever bound to each another.
+ - Impatience is a hindrance. As with all things if you attempt to take shortcuts, the final destination will rarely be as good and may even be attainable.
+
+20 quotes

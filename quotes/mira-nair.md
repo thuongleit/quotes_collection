@@ -1,0 +1,35 @@
+ - If we don’t tell our own stories, no one else will.
+ - Never treat anything you do as a stepping stone. Do it fully, and follow it completely.
+ - I often begin movies with music in my head; it’s a very important dimension to me. Not just the music itself, but how to use music in film: when and how and subtlety. I don’t like to be too sweet in my stories, and I like the abrasive clang, the contrasting of sounds and cultures.
+ - What is really important to me is a sense of humour and a mischief about life. Life is just too boring otherwise.
+ - It is because my roots are so strong that I can fly.
+ - We have to realize only in communication, in real knowledge, in real reaching out, can there be an understanding that there’s humanity everywhere, and that’s what I’m trying to do.
+ - Creative freedom is an imperative for me, but it doesn’t really exist in a Hollywood game.
+ - My films, no one else will do.
+ - I’ve loved ‘Vanity Fair’ since I was 16 years old. You know, we’re all colonial hangovers in India, steeped in English literature. It is one of these novels that I read under the covers at my convent boarding school in Simla.
+ - Christmas lights may be the loneliest thing for me, especially if you mix them up with reindeers and sleighs. I feel alone. I feel isolated. I feel I do not belong.
+ - We have three generations at home, including my father-in-law. I keep a very low profile, and a lot of things I do are very much with the family in mind. I have actually made films with the family around me.
+ - I grew up in a small town in India, but through books I knew the world.
+ - It’s only at this age that I can say the word ‘art’ without flinching.
+ - Every frame and every scene has to have an intention.
+ - I want to question what the outside is and who defines it. I often find those that are considered to be on the outside extremely inspiring.
+ - Making films is about having absolute and foolish confidence; the challenge for all of us is to have the heart of a poet and the skin of an elephant.
+ - We all know the power of film; we all know there’s almost nothing more powerful than to see people on film that look and talk like you, like we do.
+ - I always like to reveal the fact that the emperor has no clothes. And children are best at that. They teach us how to see the world in that sense. They are without artifice; they see it for what it is. I am drawn to that ruthless honesty.
+ - I grew up in a very small town which is remote even by Indian standards. I always dreamed of the world.
+ - Every film is a political act; it’s how you see the world.
+ - Never take no for answer, and try to make films that turn you on.
+ - In our house we say ‘adolescence’ is a western word. We don’t believe in it.
+ - I am an independent film-maker first and foremost. I have always cut my own cloth.
+ - I know what it’s like to be in one place and dream of another. I also know what it’s like to feel that nostalgia is a fairly useless thing because it is stasis.
+ - It took me three years to learn to dress in the American way, especially in winter. That was just like me. I barely wear socks even now.
+ - I’ve never sought to be on an A-list. I’ve done my own thing and my own thing has thankfully now brought me an audience.
+ - Truth is more peculiar than fiction. Life is really a startling place.
+ - Humility is not a trait I often associate with America.
+ - I look for the humanity in people, however big the politics or oppressive the situation may be, whether it’s subsumed within a human being or between two human beings. I want to help us hold a mirror to ourselves.
+ - Bollywood actors are so set in what they want, and the way they want it. And why shouldn’t they be? But it is not the same in Hollywood, because the love of the audience is not the same.
+ - You’ve got to understand that in Bollywood, every actor is an instrument, and yet a human being. They come to the set with a set agenda, believing, ‘This is who I am, this is what I want, and no, I am not going to become that character you want me to.’
+ - I am still attracted to stories about people who are considered to be on the outside of society. I still seek inspiration from those stories.
+ - Americans are not used to being bombed in their beds, but if you come from anywhere outside America, it’s not highly unusual.
+
+33 quotes

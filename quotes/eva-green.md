@@ -1,0 +1,77 @@
+ - I am a dreamer. Seriously, I’m living on another planet.
+ - I love Ireland. I feel very at peace there. It’s just magical and beautiful.
+ - Life’s too short to wear high heels.
+ - I don’t like flirting, and when I love someone, I always give everything, maybe too much. And then you have to work at it all the time. I mean, the first months are always great, but afterwards it becomes hard work. It’s not as passionate and crazy.
+ - I want to travel. Maybe I’ll end up living in Norway, making cakes.
+ - I hardly ever go to parties. If I really have to, I’ll go, but I’m not the most open person, which is sometimes not the best quality.
+ - To help people in the third world get educated and learn how to read and write is so important. I mean it is such an important human right.
+ - For me, acting is like a therapy. I can express myself fully when I am acting and have blood in my veins. Even when I’m not working, I’m always living in my own world, imagining characters.
+ - I’m not really keen on men wearing perfumes. It’s just a bit wrong! I don’t find it sexy. I prefer essential oils – patchouli is nice.
+ - Success is very ephemeral. You depend entirely on the desire of others, which makes it difficult to relax.
+ - My father is Swedish and my mother is French.
+ - I need to fall in love with someone. Sorry – I mean fall in love with something. I need to wake myself up.
+ - Lots of shy people dress a bit too much. It’s just kind of an armour. People say the same thing about me.
+ - A lot of the films now are more focused on the visuals than on the actors. I think all directors should go to drama school.
+ - I have Algerian, Turkish, Swedish, Spanish blood: I feel like a citizen of the world. Life and cinema don’t have borders.
+ - You always feel quite vulnerable when you’re naked on a set. You feel quite silly, actually. And with the green screen around you, it’s not that sexy. But, it looks stunning. It’s art. It’s not vulgar. It’s not indecent. It’s not realistic. It’s beautiful, I think.
+ - I didn’t want to do ‘Casino Royale’ when they told me to audition. I said no. Then they sent me the script, and I thought it was actually very interesting – and I had no other work at the time.
+ - Nipples aren’t killing children. They should be more concerned about the wars that are happening. There’s so much violence in the world. There are so many legitimate things to be upset about besides nipples.
+ - In this business actors who have Botox or surgery make you very aware of age. It’s awful.
+ - I don’t wear base, as I don’t like to cover up my freckles, but I couldn’t live without YSL Touche Eclat for hiding my under-eye circles. I love the smoky-eye look, so I use Dior’s 5-Colour Eyeshadow in Night Dust and lashings of mascara. I finish with a dash of bronzer for a healthy glow.
+ - I hope I will not be typecast as a Bond girl for the rest of my life. I’m very proud of being a part of the Bond family, but I don’t want to be the sexy girl forever. I’m not meaning to complain, but I just want to be taken seriously.
+ - My mother did movies from the New Wave, but I was quite shocked I didn’t know much about that period. Bernado showed us film of the demonstrations of the time.
+ - I’m a dark blonde, yes. I dyed my hair blue, then black, when I was 14. I thought the colour was more flattering and matched my skin tone. I don’t think I’d ever change back unless it was for a film.
+ - For me, working out is nothing to do with looks. It’s to let it all out – the stress, the self-consciousness – you think less; it makes you more centred.
+ - When people say ‘You’re so beautiful’ it makes me want to kill myself! As an actress you want to be seen for what you do, for the characters you can play, otherwise I’d be a model.
+ - I don’t believe in awards. It’s very good for the ego, I suppose.
+ - I wear no makeup in real life. I’m very simple. That may be why I go over the top for the red carpet. But otherwise, I’m very plain. I should make more of an effort, actually.
+ - I feel sick if I have to do something for the money. I can’t breathe. I’m not proud of myself.
+ - Oh, yeah, I like a high neck. And I like naked backs. It seems very sexy. Red carpets are about being a bit theatrical – having fun rather than being too safe. You have to be brave. Fashion is fun.
+ - Traditional British desserts with lots of custard are my biggest weakness – I particularly love the puds at St. John restaurant in East London.
+ - The worst is when men try too hard, because it’s not very masculine. Your outfit has to look like ‘Oh, I just grabbed that.’ Not too calculated. Jeans, a t-shirt: the simpler the better.
+ - I’m not into social media. I’m like from another century.
+ - I have my own style and don’t really follow fashion, but I like leggings. They’re easy to wear and can go with anything.
+ - French sounds flat. In English, you can play with pitch.
+ - I struggle to watch myself in any scene, to be honest. What’s done is done. I wish I was able to watch myself, as it would really help me develop as an actor. But I’m not brave enough. It’s a difficult thing to do – looking at yourself as this utterly different person on a screen.
+ - When I’m not working I just like to be comfortable: I love black, nothing tight, no heels, no make-up – it’s nice to be able to breathe!
+ - There are ways of doing stunts without me. I get no pleasure putting my life in jeopardy just to get the shot. Life is too short for that nonsense.
+ - People think I’m so strong, but I’m very shy.
+ - My father has always written with Mont Blanc pens. It’s very chic and elegant and classic.
+ - Some people collect butterflies – I love beetles.
+ - I was very, very nervous about the naked scenes. I’m very shy and reserved. But it was Bertolucci and I have seen Last Tango. It’s not pornographic. He’s a master of eroticism. I stopped being self-conscious. You have to forget everything.
+ - I was born in Paris, and it’s a beautiful place, but London feels like home. I like the village feeling, I like running in the parks – even the food isn’t as bad as it used to be.
+ - There’s this shop in New York I go to; it has bones and fossils and insects that are like works of art. I have a few on my wall.
+ - Most of the women in film are there to be beautiful to the man.
+ - I’m worried because of my mother, she’s going to see my performance and she’s quite hard. She’s going to see me naked. And my Dad, woah. Yeah, they’re going to see me like a woman, you know?
+ - I don’t watch anything I’m in. Not even on set. I won’t go over to the monitor to watch what we’ve just shot. It’s too terrible. I think I’m just very self-conscious.
+ - I would love to play an unexpected character. Really raw and simple and not a cliche – something rugged. People like to put actors in boxes.
+ - I go shopping maybe three times a year in an intense way. I’m like a man. Can’t spend too much time in a shop.
+ - In Los Angeles, I feel like the ugly duckling, like I’m from Venus or something.
+ - I like characters who have strong facades and then have secrets. They have cracks.
+ - It’s quite hard to find a ballsy or complex character. So the roles I’ve taken are those. Lot’s of people put me in the dark category.
+ - It’s true that I’m drawn to unusual stories. Normal roles don’t really attract me.
+ - I’m French, so I’m quite lazy about exercising, and I smoke. But I do love going for a run in the morning with my dog. That’s all.
+ - England understands good Chinese, Japanese and Indian cuisine; in France, we just get French.
+ - I also liked Daniel Craig. He’s not like any other Bond. So we’ll see. In 10 years I might be cursed for doing it, but I’m very grateful for what it has done for me.
+ - For Tim Burton’s birthday I gave him a rainbow beetle. He loved it!
+ - I give everything to my work, and I like complex roles, characters that aren’t obvious. I’ve been very lucky so far, and I’m dreaming of working with directors like Jane Campion, Susanne Bier and the Dardennes. But the gods will decide.
+ - I’m very low-maintenance when it comes to my beauty routine.
+ - If I can avoid doing stunts, I will. I don’t want to die just for a movie. It’s not worth it.
+ - I don’t want to be a Hollywood star. I just want to do my job and enjoy it. My aim is to find my true identity and to remain true to myself.
+ - Actually, when I’m not filming a movie, my beauty approach is really natural – I prefer a bare face that looks really healthy and dewy.
+ - I feel like I’m 1,000. I don’t feel I’m young enough a lot of the time.
+ - My mother is an actress and very well known in France; hence, I move to London to start my own life.
+ - At drama school, I always picked the really evil roles. It’s a great way to deal with your everyday emotions.
+ - I always start the day with a cup of hot water and lemon – I find it really cleanses and hydrates me. I have very sensitive, dry skin, so I have to be careful about what I put on my face. My must-haves are Dermalogica cleansing gel and L’Or De Vie Creme Riche by Dior, which is thick and nourishing.
+ - That is really the freedom that allows you to create something that is exciting because who knows what’s true?
+ - We all show facets, to your mother, or to your boyfriend, or a friend. You’re always a bit different.
+ - I’ll need my whole lifetime to polish my craft.
+ - I think it’s very important to recognize talent in all facets of filmmaking. Making a movie is such a lengthy and intense experience, so it’s wonderful to honour actors, directors, producers and all crew members who put so much hard work and passion into a project.
+ - Towards the end of ‘Dark Shadows,’ the sets are cracking and bleeding, but so is Angelique. The fact that she breaks apart physically as well as mentally lends an added dimension, and I just loved playing that.
+ - Everyone wants to work in America. Maybe not blockbusters or Terminator, but to have the choice.
+ - I was very studious, too much. I would never go out at weekends. I was very serious. You should have seen me in class – I was blushing and sweating every time the teacher asked me something.
+ - It’s very flattering to be remembered as a Bond girl with brains and not just for looking good in a bikini. I was a fan of Sophie Marceau in ‘The World Is Not Enough.’ I think her performance was very underrated.
+ - When I’m at an event, I like to be an eccentric dresser. I will just keep wearing what I like.
+ - I like style. For Dior, I did more of a collaboration shoot, not just a single image – so there was more to it. It’s a very prestigious brand. I like their style and feel like their style is mine.
+
+75 quotes

@@ -1,0 +1,299 @@
+ - Death ends a life, not a relationship.
+ - Love wins, love always wins.
+ - It is never too late or too soon. It is when it is supposed to be.
+ - Lost love is still love. It takes a different form, that’s all. You can’t see their smile or bring them food or tousle their hair or move them around a dance floor. But when those senses weaken another heightens. Memory. Memory becomes your partner. You nurture it. You hold it. You dance with it.
+ - The way you get meaning into your life is to devote yourself to loving others, devote yourself to your community around you, and devote yourself to creating something that gives you purpose and meaning.
+ - All endings are also beginnings. We just don’t know it at the time.
+ - When hope is gone, time is punishment.
+ - There is no such thing as ‘too late’ in life.
+ - Man alone measures time. Man alone chimes the hour. And, because of this, man alone suffers a paralysing fear that no other creature endures. A fear of time running out.
+ - If God wants it, it will happen.
+ - Don’t let go too soon, but don’t hold on too long.
+ - Don’t cling to things because everything is impermanent.
+ - We all yearn for what we have lost. But sometimes, we forget what we have.
+ - This is part of what a family is about, not just love. It’s knowing that your family will be there watching out for you. Nothing else will give you that. Not money. Not fame. Not work.
+ - Don’t get too attached to anything.
+ - I’m in love with hope.
+ - It’s such a shame to waste time. We always think we have so much of it.
+ - No one gets left behind, remember?
+ - Accept what you are able to do and what you are not able to do. Accept the past as past, without denying it or discarding it. Learn to forgive yourself and to forgive others. Don’t assume that it’s too late to get involved.
+ - Accept who you are; and revel in it.
+ - The truth is, once you learn how to die, you learn how to live.
+ - But there’s a story behind everything. How a picture got on a wall. How a scar got on your face. Sometimes the stories are simple, and sometimes they are hard and heartbreaking. But behind all your stories is always your mother’s story, because hers is where yours begin.
+ - Love is the only rational act.
+ - Nothing haunts us like the things we don’t say.
+ - As long as we can love each other, and remember the feeling of love we had, we can die without ever really going away.
+ - When death takes your mother, it steals that word forever.
+ - Sacrifice is a part of life. It’s supposed to be. It’s not something to regret. It’s something to aspire to. Little sacrifices. Big sacrifices. A mother works so her son can go to school. A daughter moves home to take care of her sick father.
+ - In order to move on, you must understand why you felt what you did and why you no longer need to feel it.
+ - One day spent with someone you love can change everything.
+ - When someone is in your heart, they’re never truly gone. They can come back to you, even at unlikely times.
+ - When you look into your mother’s eyes, you know that is the purest love you can find on this earth.
+ - I like myself better when I’m with you.
+ - Strangers are just family you have yet to come to know.
+ - Sacrifice is a part of life. It’s supposed to be. It’s not something to regret. It’s something to aspire to.
+ - Do not worry about tomorrow, for tomorrow will worry about itself...
+ - Love is how you stay alive, even after you are gone.
+ - All parents damage their children. It cannot be helped. Youth, like pristine glass, absorbs the prints of its handlers. Some parents smudge, others crack, a few shatter childhoods completely into jagged little pieces, beyond repair.
+ - Giving to other people makes me feel alive. Not my car or my house. Not what I look like in the mirror. When I give my time, when I can make someone smile after they were feeling sad...
+ - You see, you closed your eyes. That was the difference. Sometimes you cannot believe what you see, you have to believe what you feel. And if you are ever going to have other people trust you, you must feel that you can trust them, too – even when you’re in the dark. Even when you’re falling.
+ - Life has to end, love doesn’t.
+ - One day can bend your life.
+ - Accept the past as past, without denying it or discarding it.
+ - You’re not a wave, you’re a part of the ocean.
+ - You were one person, and you changed the world.
+ - The only time we waste is the time we spend thinking we are alone.
+ - The most important thing in life is to learn how to give out love, and to let it come in.
+ - Invest in the human family. Invest in people. Build a little community of those you love and who love you.
+ - What will you do with the time you have left?
+ - Forgive yourself before you die. Then forgive others.
+ - Have you ever really had a teacher? One who saw you as a raw but precious thing, a jewel that, with wisdom, could be polished to a proud shine?
+ - Status will get you nowhere. Only an open heart will allow you to float equally between everyone.
+ - Every life has one true love snapshot.
+ - God sings, we hum along, and there are many melodies, but it’s all one song – one same, wonderful, human song.
+ - Sharing tales of those we’ve lost is how we keep from really losing them.
+ - ‘Everyone knows they re going to die’, he said again, ’but nobody believes it. If we did, we would do things differently.?
+ - You need to keep people close. You need to give them access to your heart.
+ - Sticking with your family is what makes it a family.
+ - Because if you’ve found meaning in your life, you don’t want to go back. You want to go forward.-Morrie Schwartz;.
+ - I love you every day, Mom.
+ - Faith is about doing. You are how you act, not just how you believe.
+ - The truth is, there is no line. There’s only your life, how you mess it up, and who is there to save you. Or who isn’t.
+ - Money is not a substitute for tenderness, and power is not a substitute for tenderness.
+ - A book with the genuine power to stir and comfort its readers.
+ - She had been so consumed with escaping her own misery, she hadn’t considered the misery she might inflict.
+ - Each affects the other, and the other affects the next, and the world is full of stories, but the stories are all one.
+ - It is far more comforting to think God listened and said no, than to think that nobody’s out there.
+ - You can go your whole life collecting days, and none will outweigh the one you wish you had back.
+ - There is no fair in life and death. If it were, no good men would die young.
+ - I asked myself, ‘Am I going to withdraw from the world, like most people do, or am I going to live?’ I decided I am going to live – or at least try to live – the way I want, with dignity, with courage, with humor, with composure.
+ - You can’t substitute material things for love or for gentleness or for tenderness or for a sense of comradeship.
+ - But our eyes are different, what you see ain’t what I see.
+ - Accept what you are able to do and what you are not able to do.
+ - Ends are for yesterday, not tomorrows.
+ - No story sits by itself, Sometimes stories meet at corners and sometimes they cover one another completely, like stones beneath a river.
+ - You can find something truly important in an ordinary minute.
+ - Detachment doesn’t mean you don’t let the experience penetrate you. On the contrary, you let it penetrate you fully. That’s how you are able to leave it.
+ - Learn this from me. Holding anger is a poison. It eats you from inside. We think that hating is a weapon that attacks the person who harmed us. But hatred is a curved blade. And the harm we do, we do to ourselves.
+ - I feel ashamed now that I tried to take my life. It is such a precious thing. I had no one to talk me out of my despair and that was a mistake. You need to keep people close. You need to give them access to your heart.
+ - When a lost loved one appears before you, it’s your brain that fights it, not your heart.
+ - She loved me coming and going, at my worst and at my best. She had a bottomless well of love for me.
+ - Most of us all walk around as if we’re sleepwalking. We really don’t experience the world fully, because we’re half-asleep, doing things we automatically think we have to do.
+ - I was a workaholic. I never stopped. I lived in fifth gear. I bought cars. I invested in stocks. I made more money than I had ever imagined.
+ - She felt worthless and hollow. There was no hope of fixing this. And when hope is gone, time is punishment.
+ - Because when the world quiets to the sound of your own breathing, we all want the same things: comfort, love, and a peaceful heart.
+ - Parents rarely let go of their children, so children let go of them. They move on. They move away.
+ - Sometimes, they say, the moon is so busy with the new souls of the world that it disappears from the sky. That is why we have moonless nights. But in the end, the moon always returns, as do we all.
+ - Sometimes, when you are not getting the love you want, giving makes you think you will.
+ - If you hold back on the emotions – if you don’t allow yourself to go all the way through them – you can never get to being detached, you’re too busy being afraid.
+ - Well, for one thing, the culture we have does not make people feel good about themselves. We’re teaching the wrong things. And you have to be strong enough to say if the culture doesn’t work, don’t buy it. Create your own. Most people can’t do it.
+ - Heaven is always and forever around us and no soul remembered is ever really gone.
+ - We’re Tuesday people.
+ - We are too involved in materialistic things, and they don’t satisfy us. The loving relationships we have, the universe around us, we take these things for granted.
+ - We need to forgive ourselves. For all the things we didn’t do. All the things we should have done. You can’t get stuck on the regrets of what should have happened.
+ - Lost love is still love.
+ - Have you found someone to share your heart with? Are you giving to your community? Are you at peace with yourself? Are you trying to be as human as you can be?
+ - I believe the biggest themes of life are put into the best focus when held up against the very sharp light of mortality.
+ - If you want to be a good writer, make sure you read. I’m amazed by how many people don’t bother to do that.
+ - You have to find what’s good and true and beautiful in your life as it is now. Looking back makes you competitive. And, age is not a competitive issue.
+ - You can know the whole world and still feel lost in it.
+ - Scenery without solace is meaningless.
+ - I think what you notice most when you haven’t been home in a while is how much the trees have grown around your memories.
+ - Once heaven is done with grandma, we’d like her back, thanks.
+ - Getting old we can deal with. Being old is the problem.
+ - Learn what you do not know. Understand the consequences of counting the moments.
+ - He almost told her everything right then, that very moment. But you grab a moment, or you let it pass. He let it pass.
+ - Remember me for these days, not the old ones.
+ - I give myself a good cry if I need it. But then I concentrate on the good things still in my life. I don’t allow myself any more self-pity than that. A little each every morning, a few tears, and that’s all.
+ - With endless time, nothing is special. With no loss or sacrifice, we can’t appreciate what we have.
+ - Sometimes when you sacrifice something precious, you’re not really losing it. You’re just passing it on to someone else.
+ - Life is a series of pulls back and forth. You want to do one thing, but you are bound to do something else.
+ - She was like a wound beneath an old bandage, and he had grown more used to the bandage.
+ - Desire sets our compass, but real life steers our course.
+ - Without love we all like birds with broken wings.
+ - Lost love is still love. It takes a different form, that’s all.
+ - This is the greatest gift God can give you: to understand what happened in your life. To have it explained. It is the peace you have been searching for.
+ - Dying is only one thing to be sad over. Living unhappily is something else.
+ - Courage is confused with picking up arms and cowardness is confused with laying them down.
+ - When you come to the end, that’s where God begins.
+ - In business people negotiate to win. They negotiate to get what they want. Love is different. Love is when you are as concerned about someone else’s situation as you are about your own.
+ - Belief, hard work, love–you have those things, you can do anything.
+ - But you grab a moment, or you let it pass.
+ - Life is a series of pulls back and forth. You want to do one thing, but you are bound to do somehing else. Something hurts you, yet you know it shouldn’t. You take certain things for granted, even when you know you should never take anything for granted.
+ - Mankind is connected in ways it does not understand – even in dreams.
+ - I also believe that parents, if they love you, will hold you up safely, above their swirling waters, and sometimes that means you’ll never know what they endured, and you may treat them unkindly, in a way you otherwise wouldn’t.
+ - I traded lots of dreams for a bigger paycheck, and I never even realized I was doing it.
+ - Dor: there is a reason God lmits our days. Victor: why? Dor: to make each one precious.
+ - Soon man will count all his days, and then smaller segments of the day, and then smaller still – until the counting consumes him, and the wonder of the world he has been given is lost.
+ - If we knew what comes next, we never would have worried.
+ - Hello, Edward. I’ve been waiting for you.
+ - I thought about all the people I knew who spent many of their waking hours feeling sorry for themselves. How useful it would be to put a daily limit on self-pity. Just a few tearful minutes, then on with the day.
+ - No matter how smart she appeared, she was fragile at her core.
+ - You count the hours you could have spent with your mother. It’s a lifetime in itself.
+ - Holding on to things only breaks your heart.
+ - But they wanted you. Time is not something you give back. The very next moment may be answer to your prayer. To deny that is to deny the most important part of the future.
+ - Love each other or die.
+ - One withers, another grows.
+ - Why are we embarassed by silence? What comfort do we find in all the noise?
+ - You have to work at creating your own culture.
+ - The years after graduation hardened me into someone quite different from the strutting graduate who left campus that day headed for New York city, ready to offer the world his talent. The world, I discovered. was not all that interested.
+ - Love or Perish.
+ - We all lose somebody we care about and want to find some comforting way of dealing with it, something that will give us a little closure, a little peace.
+ - There are no random acts.
+ - The more you defend a lie, the angrier you become.
+ - We move through places every day that would never have been if not for those who came before us. Our workplaces, where we spend so much time – we often think they began with our arrival. That’s not true.
+ - We cannot stop what Heaven chooses.
+ - For better or for worse, I’ve watched people die in front of me. I see how they are in the end. And they’re not cynical. In the end, they wanna hold somebody’s hand. And that’s real to me.
+ - Taffy. He thinks about taffy. He thinks it would take his teeth out now, but he would eat it anyhow, if it meant eating it with her.
+ - Death doesn’t just take someone, it misses someone else, and in the small distance between being taken and being missed, lives are changed.
+ - When you are an outcast, even a tossed stone can be cherished.
+ - It’s the thinking that gets you killed.
+ - The word ‘commitment’ has lost it’s meaning. I’m old enough to remember when it used to be positive. A commited person was someone to be admired. He was loyal and steady. Now a commitment is something you avoid. You don’t want to tie yourself down...
+ - You can be a mama’s boy, be a daddy’s boy, but you can’t be both. So you cling to the one you think you might lose.
+ - Shouldn’t the world stop? Don’t they know what has happened to me?
+ - Mothers support certain illusions about their children, and one of my illusions was that I liked who I was, because she did. When she passed away, so did that idea.
+ - People often belittle the place where they were born.
+ - Love like rain, can nourish from above, drenching couples with soaking joy. But sometimes, under the angry heat of life, love dries on the surface and must nourish from below, tending to its roots, keeping itself alive.
+ - When you’re rotten about yourself, you become rotten to everyone else, even those you love.
+ - All that happens when your dreams come true is a slow, melting realization that it wasn’t what you thought.
+ - When we are most alone is when we embrace another’s loneliness.
+ - Heaven can be found in the most unlikely corners.
+ - There is everything you know and there is everything that happens. When the two do not line up, you make a choice.
+ - But a desperate heart will seduce the mind.
+ - A man who can take anything will find most things unsatisfying. And a man without memories is just a shell.
+ - Because one thing God gave us- and I’m afraid it’s at times a little too much- is freewill. Freedom to choose. I believe he gave us everything needed to build a beautiful world, if we choose wisely.
+ - What’s wrong with being number 2?
+ - But she wasn’t around, and that’s the thing when your parents die, you feel like instead of going in to every fight with backup, you are going into every fight alone.
+ - War could bond men like a magnet, but like a magnet it could repel them, too. The things they saw, the things they did. Sometimes they just wanted to forget.
+ - A heart weighs more when it splits in two; it crashes in the chest like a broken plane.
+ - But hurting ourselves to inflict pain on others is just another cry to be loved.
+ - Aging is not just decay, you know, its growth.
+ - The truth is, when our mothers held us, rocked us, stroked our heads -none of us ever got enough of that. We all yearn in some way to return to those days when we were completely taken care of – unconditional love, unconditional attention. Most of us didn’t get enough.
+ - People are only mean when they’re threatened, and that’s what our culture does. That’s what our economy does.
+ - We all know how to be a child. It’s inside all of us. For me, it’s just remembering how to enjoy it.
+ - The news of life is carried via telephone. A baby’s birth, a couple engaged, a tragic car accident on a late night highway – most milestones of the human journey, good or bad, are foreshadowed by the sound of a ringing.
+ - I am every age, up to my own.
+ - Being unheard is the ground floor of giving up, and giving up is the ground floor of doing yourself in. It’s not so much, what’s the point? It’s more like, what’s the difference?
+ - My mother was French Protestant, and my father was Italian Catholic, and their union was an excess of God, guilt and sauce.
+ - There is no formula to relationships. They have to be negotiated in loving ways, with room for both parties, what they want and what they need, what they can do and what their life is like.
+ - Didn’t people call New Year’s the loneliest night on the calender? She took comfort in knowing somewhere on the planet, someone might be as miserable as she was.
+ - People say they “find” love, as if it were an object hidden by a rock. But love takes many forms and it is never the same for any man and woman. What people find then is a CERTAIN love.
+ - Detroit is a place where we’ve had it pretty tough. But there is a generosity here and a well of kindness that goes deep.
+ - Don’t let our outside labels or how fervent we look or zealous we are or how righteous we seem; that’s not how you measure yourself against other people. Everyone is a child of God; if we really believed that, we’d treat each other better.
+ - Miracles happen quietly every day – in an operating room, on a stormy sea, in the sudden appearance of a road side stranger. They are rarely tallied. No one keeps score.
+ - Now you know how badly someone wanted you, Charley. Children forget that sometimes. They think of themselves as a burden instead of a wish granted.
+ - At that moment i felt lonelier than i’d ever felt before, and that loneliness seemed to squat in my lungs and crush all but my most minimal breathing. There was nothing left to say. Not about this. Not about anything.
+ - Being unheard is the ground floor of giving up.
+ - Kids chase the love that eludes them, and for me, that was my father’s love. He kept it tucked away, like papers in a briefcase. And I kept trying to get in there.
+ - The dead sit at our tables long after they have gone.
+ - Small towns are like metronomes; with the slightest flick, the beat changes.
+ - How do people choose their final words? Do they realize their gravity? Are they fated to be wise?
+ - Once, lovers on faraway shores sat by candlelight and dipped ink to parchment, writing words that could not be erased. They took an evening to compose their thoughts, maybe the next evening as well.
+ - The universe is too grand and harmonious to believe it’s all an accident.
+ - Sometimes, love brings you together even as life keeps you apart.
+ - Silence was his escape, but silence is rarely a refuge.
+ - It was sad, the imbalance of it all. Why do kids assume so much from one parent and hold the other to a lower, looser standard?
+ - Man wants to own his existence. But no one owns time.
+ - I don’t know about Heaven or Hell, but I do know that we are visited all the time by the spirits of those who affected us in life.
+ - As children grow, they gravitate to their fates.
+ - Much of what we called “depression” was really dissatisfaction, a result of setting a bar impossibly high or expecting treasures we weren’t willing to work for.
+ - The way you get meaning into your life is to devote yourself to loving others...
+ - In heaven, there is no judgment, but rather an opportunity to examine our lives-who we touched, the choices we made, and the consequences of those choices.
+ - Everyone is in such a hurry. People haven’t found meaning in their lives, so they’re running all the time looking for it. They think the next car, the next house, the next job. Then they find those things are empty, too, and they keep running. Once you start running, it’s hard to slow yourself down.
+ - All parents damage their children. It cannot be helped.
+ - Kids chase the love that eludes them.
+ - There is nothing more fun than hanging around with friends and banging on instruments. Anyone who has ever done it knows that this is true.
+ - Knowing heaven is what heals us on earth.
+ - Knowing something and understanding it were not the same thing.
+ - That’s what heaven is. You get to make sense of your yesterdays.
+ - People are only mean when they are threatened.
+ - Sometimes you have to do things when sad things happen.
+ - In a newspaper, you only have so much room. It teaches you the value of getting to the point, of not pampering yourself with your glorious writing. I’ve always been much more interested in one powerful sentence that stays with you. That’s my style.
+ - We all have two things in common, no matter who we are: We were born and we are going to die.
+ - It is not until much later, as the skin sags and the heart weakens, that children understand; their stories, and all their accomplishments, sit atop the stories of their mothers and fathers, stones upon stones, beneath the waters of their lives.
+ - Death: the only true emotion felt in an apathetic world.
+ - The most inspirational man I knew only reached his potential by helping a child reach his.
+ - What she mostly wanted, he learned, was the same thing many people want – someone to notice she was there.
+ - The backside of a mountain is a fight against human nature. You have to care as much about yourself on the way down as you did on the way up.
+ - If you’re always battling against getting older, you’re always going to be unhappy, because it’s going to happen anyhow.
+ - Silence is worse when you know it won’t be broken.
+ - When you are measuring life, you are not living it.
+ - It’s always difficult to watch someone you love die.
+ - There is a reason God limits man’s days.
+ - When you’re in bed, you’re dead.
+ - No matter where you live, the biggest defect we human beings have is our shortsightedness. We don’t see what we could be.
+ - Sometimes, questions are more hurtful than insults.
+ - Things change when you’re not in danger anymore.
+ - We’re gonna make up for that. We’re gonna live a long time together.
+ - This is how you start to get respect, by offering something that you have.
+ - I know I cannot undo this. None of us can undo what we’ve done, or relive a life already recorded.
+ - Everything man does today to be efficient, to fill the hour? It does not satisfy. It only makes him hungry to do more. Man wants to own his existence. But no one owns time. When you are measuring life, you are not living it.
+ - There was always a quest for more minutes, more hours, faster progress to accomplish more in each day. The simple joy of living between summers was gone.
+ - In the beginning of life, when we are infants, we need others to survive, right? And at the end of life, when you get like me, you need others to survive, right?’ His voice dropped to a whisper. ‘But here’s the secret: in between, we need others as well.
+ - This is a story about a man named Eddie and it begins at the end, with Eddie dying in the sun.
+ - How could he find perfection in such an average day? Then I realized this was the whole point.
+ - This is a story about a family and, as there is a ghost involved, you might cal it a ghost story. But every family is a ghost story. The dead sit at out tables long after they have gone.
+ - You know what really offers you satisfaction? Offering others what you have to give.
+ - Before you measure the years, you measure the days.
+ - What in life can love not penetrate?
+ - My writing habits are pretty static. I get up every morning between 6 and 7 am, grab a cup of coffee, say a few prayers, and go downstairs to my office and start writing.
+ - You’re not listening with your eyes.
+ - I believe he died this way on purpose. I believe he wanted no chilling moments, no one to witness his last breath and be haunted by it, the way he had been haunted by his mother’s death-notice telegram or by his father’s corpse in the city morgue.
+ - Things that happen before you are born still affect you and people who come before your time affect you as well.
+ - It is no coincidence that the words ‘trying’ and ‘dying’ are only a few letters apart.
+ - And I suppose tapes are a desperate attempt to steal something from Death’s suitcase.
+ - Never tell a child that something it’s too hard.
+ - She had a bottomless well of love for me.
+ - No, Edward. You are here so I can teach you something. All the people you meet here have one thing to teach you.
+ - I believe that you live on inside the hearts and minds of everyone you’ve touched while you were here on earth.
+ - The manager once called me the ‘best freak’ in his stable, and, sad as it sounds, I took pride in that. When you are an outcast, even a tossed stone can be cherished.
+ - For as spiritual as some people think my books are, I’ve never really dealt with religious things.
+ - There are many things in my life that I wish I could take back. Many moments I would recast.
+ - We don’t see what we could be. We should be looking at our potential, stretching ourselves into everything we can become.
+ - I don’t use any fance quill pens or pads, because I can’t read my own handwriting. I just use whatever computer is laying around, and start writing.
+ - There is a time for hello and a time for good-bye. It’s why the act of burying thing seems natural, but the act of digging them up does not.
+ - My own father didn’t talk a lot about feelings or emotions.
+ - There is no formula to relationships.
+ - Life goes quickly, doesn’t it?
+ - For many of us, the curtain had just come down on childhood.
+ - So many times I feel I’m using the same words over and over, like a woman wearing the same dress every day. So boring!
+ - You can’t get stuck on what should have happened. That doesn’t help you.
+ - A memoir should have some uplifting quality, inspiring or illuminating, and that’s what separates a life story that can influence other people.
+ - All I was afraid of is saying good-bye.
+ - If you could pack for heaven, this was how you’d do it, touching everything, taking nothing.
+ - I often find that I rock back and forth with a beat in my head constantly. If i stop rocking, it usually means I’ve hit a snag in my writing.
+ - Secrets tear you apart.
+ - We all know how to be a child.
+ - What is it about childhood that never lets you go, even when you’re so wrecked it’s hard to believe you ever were a child?
+ - For years I wrote in my basement. More recently I graduated to one floor above, an office with all my books and music and – ta da! – a window.
+ - Chicago keeps getting all these complete games. Im expecting 50 cent hot dogs.
+ - With Marguerite, he wanted only time – more and more time – and he was granted it, nighttimes and daytimes and nighttimes again.
+ - To know you’re going to die, and to be prepared for it at any time. That’s better. That way you can actually be more involved in your life while you’re living.
+ - Nobody’s favorite movie is some dark, dysfunctional slasher story. Everybody’s favorite song is a sentimental song. So why all of a sudden is it bad to be sentimental in books?
+ - But common sense has no place in first love and never has.
+ - I would lying if I said I would laugh in the face of death.
+ - The length of your days does not belong to you.
+ - He did not know that the child who had asked for yesterday was now seeking to own tomorrow.
+ - But man invents nothing God did not create first.
+ - Tension of opposites.
+ - I seem to have very few casual readers, only passionate and appreciative ones.
+ - We do not realize the sound the world makes – unless, of course, it comes to a stop. Then, when it starts, it sounds like an orchestra.
+ - If you really could fit God in a file, you wouldn’t need to believe in God, you know, you’d just go get the file like a box of corn flakes off the shelf.
+ - Anyone who tries to write a memoir needs to keep in mind that what’s interesting to you isn’t necessarily interesting to a reader.
+ - Critics have a problem with sentimentality. Readers do not. I write for readers.
+ - But my father, a thief in many ways, had robbed me of my concentration.
+ - Going back to something is harder than you think.
+ - Suddenly, details seemed extremely important. Details were something to grab on to, a way to insert myself into the story.
+ - Got an hour or two? That’s all it takes for one of my books.
+ - Something is always happening somewhere.
+ - I don’t know what it is about food your mother makes for you, especially when it’s something that anyone can make – pancakes, meat loaf, tuna salad – but it carries a certain taste of memory.
+ - I worked because I could control it.
+ - All who are born are always dying.
+ - It’s amazing the fantasies your mind can put together.
+ - Sometimes, kids want you to hurt the way they hurt.
+ - I hate to be like everyone else, but I’m rooting for San Antonio because I like teams that were built the old-fashioned way.
+ - I had a very high-grade publisher tell me I was incapable of writing a memoir.
+ - It’s not contagious, you know. Death is as natural as life. It’s part of the deal we made.
+ - That kind of love – the kind you realize you already have by the life you’ve created together – that’s the kind that lasts.
+
+297 quotes

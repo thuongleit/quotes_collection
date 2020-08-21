@@ -1,0 +1,38 @@
+ - I’m a black belt in tae kwon do.
+ - I personally love a cliffhanger – I think it just extends the pleasure of viewing.
+ - Every role that you play comes with its own set of challenges.
+ - I don’t know how people chew gum all day long.
+ - I think zombies are the great analogy for all of our fears about all of the scary things that happen on our planet, and the potential for scariness on our planet. Being chased by anyone or anything can be scary. It is just a big, fun analogy.
+ - Something that I believe is that you’re as sick as your secrets. The more open you’re able to be, the more you’re able to share even the most uncomfortable aspects of yourself, the healthier you’ll be.
+ - It’s kind of part of human nature to want to know the truth or want to be in on the secret. For stories that focus in on that – like whodunits – it’s easy to get drawn into.
+ - I’d lean more toward werewolves. Wolves are cool.
+ - I like laughter around me.
+ - I ended my Twitter account a week after I got on the show. I felt like, “This is not a good tool for me to keep my narcissism at bay,” so I cut it off.
+ - I grew up in Houston, in a pretty urbane setting.
+ - I haven’t been offered a lot of comedy. In theater, I’ve done quite a bit of comedy or dramas that included a lot of funny stuff. But in my TV work, those aren’t the roles that I’ve been offered.
+ - If you’re going to marry someone, maybe you can be mad for a few weeks and it can still work out.
+ - You get used to falling in love with people and having to let them go.
+ - A lot of cop shows, because they have the restraints of having a new case every episode, the victims often become these kind of nameless, faceless plot points, and as an audience we don’t feel anything for those people.
+ - My mother is French, my father is Texan.
+ - When I was little, I used to work with my dad on the engine of his car. Mostly this was a matter of me handing him wrenches.
+ - The way that being on the job works on your adrenaline highs and the crashes that come after the adrenaline highs. It really takes over your life.
+ - I don’t watch television because I have a tiny baby daughter. I’m useless.
+ - People say to me, ‘Oh, being a mother must make you a better actor,’ and I think, ‘Well, I never sleep, I have very little time to think about anything except when I’m actually there.’ I wonder whether that makes me a better actor. I think it must on some level.
+ - I’m really lucky to be married to a perfect person.
+ - I can’t worry about whether roles will be there for me when I’m older.
+ - I know as an actor there is a certain liberation auditioning for a role that has no beauty requirements.
+ - Yeah, you can explore a lot more. Every one of the storylines is multi-faceted, so there are so many directions that it can go. It makes each episode so interesting.
+ - When I was doing theater for all those years in New York, I did a lot of classical theater, wearing big corsets and big dresses and doing dialects. It’s interesting that once I moved to TV, I’m playing these scrappy, contemporary toughies.
+ - My dad is this very sensible guy who never let me feel that anything was beyond my station.
+ - Zombies are the new vampires.
+ - The truth is I quite like to dress in jeans and a woolly jumper.
+ - Crime shows are really popular, in general, but usually, at the end of every episode, you have to let go of the people that you’ve invested in and then, the next week, get somebody else.
+ - I think that’s what makes David Ayer really interesting. He likes to make a tough-y movie, but actually he’s a character director. He’s fascinated by the actual people who decide to have these jobs and the way it affects their lives.
+ - It’s very nice to be in a show where your vanity is completely out of the picture.
+ - I was sitting in a caf in London with my husband and baby daughter when my phone rang with the news! I feel so incredibly lucky and honored to be nominated, and so grateful to be part of the family that is The Killing.
+ - At the beginning of my TV and movie stuff, I would be really critical of myself, but I’ve gotten better and better. There’s always little things that I think, “Oh, that could have been whatever,” but most of the time I’m able to let go and watch like an audience member.
+ - When actors are the real deal, all that star whatever goes right out the window and you’re there to tell a story.
+ - I’m really grateful for how my career has unfolded.
+ - AMC has a track record for finding actors who have been working actors but not names yet and casting them.
+
+36 quotes

@@ -1,0 +1,77 @@
+ - We don’t win what we don’t fight for.
+ - If you don’t have a seat at the table, you’re probably on the menu.
+ - It’s better to fight because if you don’t fight, you can’t win. Besides, even when you don’t win, you can change the game.
+ - Keep a little space in your heart for the improbable. You won’t regret it.
+ - Balancing your money is the key to having enough.
+ - People feel like the system is rigged against them, and here is the painful part, they’re right. The system is rigged.
+ - The total amount of money that Wall Street handed out in bonuses last year was double the total income of ALL full-time minimum wage workers. That’s obscene.
+ - It’s one thing for Hillary Clinton to adopt some anti-Wall Street language to try to appeal to progressives.
+ - It’s a simple idea: We all do better when we work together and invest in our future.
+ - The game is rigged to work for those who already have money and power.
+ - College students today are drowning in debt, and it is hurting them and hurting our economy. We must find a way to help families pay for college without condemning them to a lifetime of indebtedness.
+ - This country isn’t working for working people. It’s working only for people at the top. That’s not the American dream. That’s the American nightmare.
+ - Americans are fighters. We’re tough, resourceful and creative, and if we have the chance to fight on a level playing field, where everyone pays a fair share and everyone has a real shot, then no one – no one can stop us.
+ - When you have no real power, go public – really public. The public is where the real power is.
+ - Some of the largest financial institutions can build a profit model on tricking people.
+ - Israel has the right to shell Palestinian hospitals and schools out of self defense...
+ - My mother saved our home with a minimum wage job. But in the 1960s, a minimum wage job would support a family of three above the poverty line. Not today. Not even close. I understood right then that people can work hard, they can play by the rules, and they can still take a hard smack.
+ - The choice before us is simple. Will we continue to subsidize the dirty fossil fuels of the past, or will we transition to 21st century clean, renewable energy.
+ - Cars, toys, aspirin, meat, toasters, water – nearly every product sold has passed basic safety regulations well in advance of being marketed and sold. But consumer credit is a kind of buyer-beware, wild west. That is partly the result of history.
+ - Credit cards are like snakes: Handle ’em long enough, and one will bite you.
+ - I’m willing to throw my body in front of the bus to stop bad ideas.
+ - Women tend to vote the economic interests of their families and to speak out on family economic issues. For men, there’s often much more focus on the idea of personal failure: “If I’m not winning this great economic game, it must be my fault.”
+ - Pundits talk about ‘populist rage’ as a way to trivialize the anger and fear coursing through the middle class.
+ - That’s how we build the economy of the future. An economy with more jobs and less debt, we root it in fairness. We grow it with opportunity. And we build it together.
+ - Are you ready to fight for good jobs and and a solid level playing field? Are you ready to prove to another generation of Americans that we can build a better country and a newer world? Joe Biden is ready. Barack Obama is ready. I am ready. You’re ready.
+ - President Obama believes in a level playing field.
+ - Our number one responsibility is to protect Americans from terrorism, that’s our job, so being tough on terrorism is enormously important.
+ - If there had been a Financial Product Safety Commission in place 10 years ago, the current financial crisis would have been averted.
+ - Personal responsibility matters. There are no excuses for those who spend money on things they cannot afford. But it’s a whole lot harder to act responsibly when consumer credit contracts are designed to be incomprehensible, when prices are obscure and risks are hidden.
+ - You didn’t have to worry that marauding bands would come and seize everything in your factory and hire someone to protect against this because of the work the rest of us did.
+ - The credit card companies have put the loan sharks out of business.
+ - The trickle-down experiment that began in the Reagan years failed America’s middle class. Sure, the rich are doing great. Giant corporations are doing great. Lobbyists are doing great. But we need an economy where everyone else who works hard gets a shot at doing great!
+ - Meaningful rules in the consumer credit market can accelerate economic recovery. Rules would increase consumer confidence and, more importantly, weed out all the tricks and traps that sap families of billions of dollars annually.
+ - A lot of people think that regulations bring higher costs, but regulation is also about making sure that someone doesn’t get to beat out the competition because they’re dumping filth in the river or spewing poisons in the air.
+ - I want to be blunt: We should not be fighting about equal pay for equal work, and access to birth control, in 2012. These issues were resolved years ago – until the Republicans brought them back.
+ - It’s so easy to focus on what could go wrong, on what else you could do before you try the thing you really want to do. No. Just get out there and try.
+ - Accountability for the largest financial institutions on Wall Street is the bedrock for a strong economy. Hard-working families and honest businesses cannot survive in a world where the rules don’t keep the marketplace honest.
+ - I oppose the construction of the Keystone XL Pipeline. It’s an ill-conceived project that would lock us into further dependence on some of the dirtiest fossil fuels on the planet.
+ - I have a daughter and I have granddaughters and I will never vote to let a group of backward-looking ideologues cut women’s access to birth control. We have lived in that world, and we are not going back, not ever.
+ - The people on Wall Street broke this country, and they did it one lousy mortgage at a time. It happened more than three years ago, and there has been no real accountability, and there has been no real effort to fix it.
+ - Evidently there is no need for delay, no need for further study, if the government takes a loss and Wall Street makes a profit, but it is absolutely necessary to delay if homeowners might have a chance to cut their mortgages and stay in their homes. This is wrong, and it is time to fight back!
+ - Middle class America is acutely aware of how bad this economy is, and it is going to demand changes. I don’t think politicians can afford to be complacent.
+ - No, Governor Romney, corporations are not people. People have hearts, they have kids, they get jobs, they get sick, they cry, they dance. They live, they love, and they die. And that matters. That matters because we don’t run this country for corporations, we run it for people.
+ - What we collectively decide about how to bail out our economy, how to pull our economy out of a ditch and what rules we put in place to make sure this problem does not happen again, will shape our country for the next 50 years. This is it.
+ - It is not the job of the Department of Education to maximize profits for the government at the cost of squeezing students who are struggling to get an education.
+ - The people who are filing for bankruptcy in increasing numbers every year, it’s not the poorest. It’s not the people at the economic fringes. It’s people who worked hard and played by the rules.
+ - Nobody’s safe. Health insurance? That didn’t protect 1 million Americans who were financially ruined by illness or medical bills last year.
+ - We’re Americans. We celebrate success. We just don’t want the game to be rigged.
+ - Me, I was waiting tables of 13 and married at 19. I graduated from public schools, and taught elementary school.
+ - You built a factory out there, good for you. But I want to be clear. You moved your goods to market on the roads that the rest of us paid for. You hired workers that the rest of us paid to educate. You were safe in your factory because of police forces and fire forces that the rest of us paid for.
+ - When conservatives talk about opportunity, they mean opportunities for the rich to get richer, for the powerful to get more powerful.
+ - I hope Hillary Clinton runs for president.
+ - Paul Ryan looks around, sees three unemployed workers for every job opening in America, and blames the people who can’t find a job.
+ - I talk to nurses and programmers, salespeople and firefighters – people who bust their tails every day. Not one of them – not one – stashes their money in the Cayman Islands to avoid paying their fair share of taxes.
+ - Now look, you built a factory and it turned into something terrific or a great idea, God Bless, keep a big hunk of it. But part of the underlying social contract is you take a hunk of that and paid forward for the next kid who comes along.
+ - The banks lobbied Washington so they could write the rules that got us into this crisis. They then lobbied Washington to get the money to bail them out. And then they are lobbying Washington to write the rules so they can get us into the next crisis. It’s perfect circularity.
+ - I don’t want to overstate the gender difference. But women are more sensitized to the way that larger issues affect their pocketbooks, like pay equality or cost of living changes.
+ - There is nobody in this country who got rich on his own.
+ - It takes money to run political campaigns. This is a cancer growing on the soul of our democracy.
+ - We should be talking about expanding Social Security benefits; not cutting them.
+ - I’m really concerned that too-big-to-fail has become too-big-for-trial.
+ - It is critical that the American people, and not just their financial institutions, be represented at the negotiating table.
+ - Congress must go further to protect the right to privacy, to end the NSA’s dragnet surveillance of ordinary Americans, to make the intelligence community more transparent and accountable.
+ - Adjusted for inflation, somebody going to college today to a state university, is paying about 300 percent of what her mom or dad did just 30 years ago.
+ - The financial services industry has seemed to treat the crisis like a little rainfall – inconvenient, but no significant changes needed. The real question moving forward is how the industry will respond to Wall Street reform and growing public anger.
+ - Part of my job is to make sense of all that I hear, and to retell it in a forceful way so that the decision-makers at Treasury can hear it. At least that’s how I see it.
+ - Washington is rigged for the big guys – and no person has more consistently called them out for it than Jon Stewart. Good luck, Jon!
+ - President Obama believes in a country where we invest in education, in roads and bridges, in science, and in the future so we can create new opportunities so the next kid can make it big and the kid afer that and the kid after that, that’s what President Obama believes.
+ - Like a lot of you, I grew up in a family on the ragged edges of the middle class. My daddy sold carpeting and ended up as a maintenance man. After he had a heart attack, my mom worked the phones at Sears so we could hang on to our house.
+ - I hear all this, you know, ‘Well, this is class warfare, this is whatever.’ No. There is nobody in this country who got rich on his own – nobody.
+ - We need to remind politicians they don’t work for the big banks – they work for us.
+ - The need for comprehensive reform must not blind us to the urgency of addressing the massive debt that’s already crushing our young people.
+ - Mitt Romney is the guy who said corporations are people. No, Governor Romney, corporations are not people.
+ - Our veterans deserve the very best, and that means ensuring that America’s veterans receive high-quality services and cares when they come back home.
+ - The poor pay more, and that’s one of the reasons people get trapped at the bottom of the economic ladder.
+
+75 quotes

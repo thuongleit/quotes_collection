@@ -1,0 +1,132 @@
+ - If you act like you know what you’re going, you can do anything you want – except neurosurgery.
+ - I’m enjoying my years, I’m enjoying my life, I’m enjoying my family. I’m just happy – a happy person.
+ - Women can fake an orgasm, but men can fake an entire relationship.
+ - The more famous and powerful I get the more power I have to hurt men.
+ - You think, I love more everyday. I love more everyday, more everyday, I couldn’t possibly love any more, I’m going to blow up. And then you blow up. Your chest actually starts to hurt. You love so much you think I can’t love any more. And then you love so much more than you ever dreamed possible.
+ - I could do nice, but it’s just not as much fun. Being nice isn’t my biggest goal in life. I’m trying to be honest about who I am, and that’s not always nice. I’m not always the world’s cheerleader.
+ - A woman has many faces as she goes through her life. It’s like we need more than one hair-do. We have many, many changes in the evolution of our lives. We have, we learn, and we grow; we view life differently, and life views us differently.
+ - A truly beautiful woman is always good and the other women, and to people in general. She rejects rivalry, intrigue and dirty tricks.
+ - This idea that being youthful is the only thing that’s beautiful or attractive simply isn’t true. I don’t want to be an ‘ageless beauty.’ I want to be a woman who is the best I can be at my age.
+ - If you want to have plastic surgery or cosmetic surgery, live it up; go ahead and have it. But if you don’t want to have it, don’t have it.
+ - I can go completely berserk with the makeup, depending on the event. I’m currently in this very mod stage. I wear false lashes and color on my eyelids. I’m really liking shiny eyelids in copper, rose, gold, or silver.
+ - I really get pursued by men in their 20s, like, a lot. They probably know there’s food in the fridge and that somebody’s going to talk to them and ask them how their day was.
+ - I like being a woman, not a girl.
+ - You can only sleep your way to the middle; you have to claw your way to the top.
+ - Watching children grow up, you learn a lot about life and about being a better person – you learn a lot about what’s really important in the world and what isn’t.
+ - I am ready for love but I’m not desperately seeking it.
+ - Real happiness comes from inside. Nobody can give it to you.
+ - I’ve really learned not to try to take responsibility for all things. And to keep my side of the street clean.
+ - I’m not trying to make myself look like a girl because I’m not a girl anymore. I’m very happy about being a grown woman.
+ - Divorce is hard and painful and complicated, and something you have to grow through.
+ - I want to feel all my feelings, to have every feeling a person can have and never not feel it.
+ - I’m relentless. My mother says I could sell ice to the Eskimos.
+ - I’m very old-fashioned. Occasionally I do wear underwear.
+ - I eat right, I sleep, I work out, I’m happy. I have a beautiful family, nice friends. I choose the good things. I choose the happy, healthy things. I don’t choose the bad, unhealthy, unhappy things.
+ - Believe me, when people say, ‘We want to pay you X-million to do this movie,’ I won’t be the girl who hangs back saying, ‘Oh, I really don’t deserve it,’ I’ll be, ‘Un-hunh, hand it right over.’
+ - People don’t change their behavior unless it makes a difference for them to do so.
+ - You grow. You don’t want to stay the same. The thing that was great for you before isn’t going to be great for you now. A woman should have many faces through her life, not just one face, not just one hairdo, not just one way. You want to keep rediscovering what’s fun for you.
+ - Men can not stand the explosive mixture of beauty and intelligence.
+ - I tried for modelling work but it was a bit slow and that’s when I took a part-time job at McDonalds. It gave me income while I was waiting for my big break and at the very least I could eat.
+ - Don’t be late to the theater. The opening scene is a goody.
+ - I’ve never thought of myself as a great beauty – just a great magician.
+ - You know, sometimes I feel well and vital in the world, and sometimes I just feel so distressed I want to pull my hair out by the roots.
+ - It’s funny, but I never knew I was hot or could be beautiful until I saw ‘Basic Instinct,’ and I was so shocked when I saw how pretty they made me.
+ - The doctor told Phil, my then husband, that my condition was really bad news. They had found an artery tearing and said I could die. They said they could try to patch it up but it could go horribly wrong. It all turned out okay in the end but it was touch and go.
+ - I’ve done an awful lot of trying to make everybody else okay and happy. I have learned, now it would really be ok to wait for someone who wants to be there for me and partner with me and I’m really looking forward to it...
+ - I don’t really want to be fat, so I stop before I am. I’m not a vegetarian, but I might go through a phase when I’m not interested in eating protein for a week or so, and then I might go through a phase when I eat nothing but steak.
+ - Ava Gardner was the most beautiful woman in the world, and it’s wonderful that she didn’t cut up her face. She addressed aging by picking up her chin and receiving the light in a better way. And she looked like a woman. She never tried to look like a girl.
+ - I love the fact British men act cool whatever the situation so I’m planning to recruit there.
+ - Men put me on a pedestal, then never come to visit.
+ - What I learned was there’s no roles for women who won’t be in their 40s. For women who will be in their 40s, there’s a ton of work.
+ - When I started acting, I was asked said, ‘What’s your dream?’ ‘What would you like to achieve?’ I would say, ‘Oh, I’d like to sit opposite DeNiro and hold my own.’ But, you never think it’s gonna happen.
+ - I was lucky to have my dad in my life. As crazy as things got, I always had him to put his hand on my shoulder.
+ - I’ve always been kind of an escape artist. I think that I thought the day-to-day reality of things was unbearably flat.
+ - Well, I think when we can turn to the person sitting next to us and really see them with kindness and see ourselves reflected back – when there’s some dignity and compassion traveling back and forth.
+ - Celebrity is a pretty stunning thing. At first I was like ‘They love me! Oh, I love them, too.’ And suddenly, I was tap-dancing on my pedestal and it was whack! Facedown in the dirt.
+ - You may be sick of what you did the first half of your life, but you don’t have to just walk around and play golf or doing nothing. It’s not like fifty is the new thirty. It’s like fifty is the new chapter.
+ - My weakness is dark chocolate. I carry little tins of it in my purse.
+ - My personal style and public style are very different. When I go out, I play dress up.
+ - I like to be bought flowers and taken out for dinner. I like a man to be a gentleman. I don’t like to be treated as if I am brainless. I like to be respected and to give respect.
+ - I’ve had the same breasts for my entire adult life.
+ - People are really emotionally affected by actors. And it’s hard to know how to behave in a way that doesn’t impose or withdraw. Because everybody wants your attention.
+ - I don’t believe makeup and the right hairstyle alone can make a woman beautiful. The most radiant woman in the room is the one full of life and experience.
+ - I was a short order cook in a pool hall in college. So I am the fastest cook in the world.
+ - Stardom is no longer the fuel of my soul. It is the deeper aspects of life that nurture me. And I realise I am very blessed.
+ - TV is so different from the movies. It takes a lot of stamina because you work such long hours. It is really challenging. You are learning the next day’s lines while you are shooting today’s scenes. I found courage I never realised I had. I hope to do more.
+ - I am big into aromatherapy.
+ - I like porterhouse steak, rib-eyes and New York strip. This works for me because I have very low cholesterol and low blood pressure. It’s not good for everyone; you have to talk to your doctor about that. I also eat fish and cheese. I like clean food prepared as simply as possible.
+ - I don’t think Julia Roberts is as innocent as her image suggests. You have to be a really smart cookie to create an image as clean and pure and on-the-money as hers.
+ - I have absolutely no objection to growing older. I am a stroke survivor so I am extremely grateful to be ageing – I have nothing but gratitude for the passing years. I am ageing – lucky, lucky me!
+ - I was in Woody Allen’s Stardust Memories in 1980. It was only a bit part and I didn’t get to speak but I felt that I was in a real movie and heading where I had always wanted to be.
+ - Any man in Hollywood will meet me if I want that. No, make that any man anywhere.
+ - All you have to do is wear a hat, dark glasses and carry a Greek newspaper...
+ - Some people work hard in this business and become really popular, really big stars but they never receive an award from within the business. Somehow, when your colleagues and friends believe in you to the point of handing you an award it means so much more.
+ - The philosophy of being able as a woman to decide what you want and being unashamed about making it happen was new. Most successful businessmen are in that role. ‘No’ is never perceived as the end of the line. ‘No’ just means picking a new avenue.
+ - I think, at a certain point, it’s better for women not to have any alcohol because it can make your face, breasts and midsection get very bloated.
+ - We Barbie dolls are not supposed to behave the way I do...
+ - Dior makes the best lip glosses going. I’m nuts about them, especially the clear one with the silver sparkles. I got addicted to DiorShow Mascara, too. It makes you look like you’re wearing false eyelashes. It’s the only one that rivals Maybelline.
+ - Realise when you are ‘middle aged’ you have a chance for a whole second career, another love, another life.
+ - I think we have to be not so afraid of scarcity. We have to be willing to give away all things.
+ - Once you’ve had your life burn down, it takes time to be a Phoenix.
+ - There are a lot of good things about being famous but there are a few not so good things too.
+ - I loved the movies and I wanted to be like Marilyn Monroe. I thought she was so glamorous and everyone seemed to love her. I wanted to be like that and I told everyone I would be the next Marilyn Monroe.
+ - I used to want to pack as much as I could into my life, but now I realize it’s more about quality of life than quantity.
+ - A lot of people think that fame is the Band-Aid that cures their ills. I’m no kid, and I knew long before I got famous that wasn’t the deal. I’m the court jester, not the queen.
+ - When you’re a regular gal, you look in the rearview mirror, and in the bright daylight you see that line around your mouth, but when you’re an actress and you see that line up on the big screen, it’s, like, seven feet long.
+ - People are afraid of changing; that they’re losing something. They don’t understand that they are also gaining something.
+ - Before I was a year old I walked and talked and I was even potty trained. When I started going to school I think I got on everyone’s nerves because I used to ask adult questions rather than settle for the stuff usually fed to kids.
+ - I drive with my knees. Otherwise, how can I put on my lipstick and talk on my phone?
+ - India has an enormous amount of AIDS awareness.
+ - I think it’s really important that the people who are going to make decisions for other people have fair, truthful and compassionate regard for all people, not just some people.
+ - I couldn’t stop looking at the award when I received it. It was as if my whole career flashed in front of me, from beginning to the moment I was handed the Golden Globe.
+ - There was a point in my 40s when I went into the bathroom with a bottle of wine, locked the door, and said, ‘I’m not coming out until I can totally accept the way that I look right now.’
+ - At first it was exhilarating but when I realized it wasn’t going away, it became scary and claustrophobic. Fame is a weird thing.
+ - I know I am known for flesh-flashing, but I am an actress, too.
+ - I have known for some time that I can meet any man I want but that does not mean that I want to meet anyone. I certainly don’t like being forced into situations.
+ - I think I am aging, but I’m enjoying the process.
+ - I always thought I would adopt. Even when I was young, I used to look up how to adopt.
+ - I might be manipulating you to create risk for myself.
+ - To be happy, to make other people happy, to get into movie production more and probably to give some other people the chances that I had, to carry on enjoying being a mum and never to stop having flowers bought for me. I’ve still got a long way to go.
+ - There’s a value to getting the meal on the table every night, and there’s a value to being an old-school kind of parent.
+ - I’ve fallen in love with my horse. It’s a safer bet. We all know from my illustrious past that I should be sticking to men with four legs.
+ - I failed at the biggest things there are in life. I failed in my health, I failed in my marriage, I failed in everything, and I’ve picked myself up and gone on.
+ - I don’t thrive on the concept of being naked at every possible moment, but it’s not the biggest deal in the world to me.
+ - I knew what I wanted to do even when I was a little girl.
+ - It was not always easy because I was always an individual and found it difficult to be one of a group. One person who was very supportive was my father. My mother was great but my father really recognised my individuality and supported me in that.
+ - It’s my experience that you really can’t lose when you try the truth.
+ - To really achieve any level of greatness, you have to be willing to say yes no matter who says no, and to say no no matter who says yes.
+ - I loved old black and white movies, especially the Fred Astaire and Ginger Rogers musicals. I loved everything about them – the songs, the music, the romance and the spectacle. They were real class and I knew that I wanted to be in that world.
+ - My father has always been supportive of my individuality.
+ - When I was young, all I wanted to be was a movie star. At a certain point, I started to grow up and really care about what I did.
+ - I’ve made humanitarian causes and my children much more my priority than the Hollywood scene, being liked and getting movie parts.
+ - I’m not big on plastic surgery for me but I don’t fault it for someone who wants it for them. You have to do what makes you feel good, but it’s not my thing.
+ - I feel like war should occur only for the most vital and necessary reasons, and only then.
+ - Always carry a book on a date so that when you get bored you can slip into the Ladies for a read.
+ - When you become famous you get to torture a higher class of man than before.
+ - I don’t think there is anything wrong with cosmetic surgery at all. I think it’s great. But I don’t think it’s alright to distort yourself.
+ - If I was just normally intelligent, I could probably get away with it – but I’m fiercely intelligent and that’s threatening.
+ - I go on benders where I just exercise like a maniac. And then I go on benders where I just can only take baths. Like, I have to lay down to bathe, and I could go on that for six months.
+ - I’ve been famous for a long, long time. So I don’t think of it – I think of it very differently. It’s the normal temperature of my room.
+ - I was, like, forty at birth. When I wasn’t even a year old, I spoke, I was potty trained, I walked and talked. That was it. Then I started school and drove everybody crazy because they realized I had popped out as an adult. I had adult questions and wanted adult answers.
+ - Whenever I play something, everybody just thinks that’s who I am.
+ - Nobody took me too seriously but I was grown up even as a baby.
+ - It was not always easy because I was always an individual and found it difficult to be one of a group.
+ - The worse that could happen has already happened to me.
+ - The most fun I ever had on a movie was working with Albert Brooks. He’s the caviar of comedy. I mean, nobody’s funnier; nobody is smarter than Albert Brooks.
+ - After I was really unhappy and unhealthy, I think it dawned on me to stop doing the unhappy, unhealthy things.
+ - I like to be treated as a lady.
+ - We must have safe places where people can discuss and be treated. Forty-four million people are already dead from AIDS. What logic is there in not discussing the word?
+ - Every time I exercise, I do something different based on which areas need to get in motion.
+ - As women, we understand our bodies, and there’s a blossoming that occurs. We’re hungry for gourmet meals instead of the fast food. We bring to life a more expansive understanding of life, ourselves, and others. We are more generous and assertive.
+ - I thought it might be a good move to get into a beauty contest so I tried for Miss Pennsylvania and won. I think that helped me get noticed, at least by the people of Pennsylvania.
+ - It seems to be unfathomable to people that I just happen to be 49 and look good. I am totally capable of accepting myself.
+ - I feel sad when I realize how much truth is being changed or obscured in the American media.
+ - Peace does exist. It exists in your heart and soul.
+ - It’s traumatizing for me to come to Washington during a Republican administration because I don’t have any Republican clothes.
+ - I bake all the time, but I don’t like to eat the cookies when they’re done. I just like the dough.
+ - I did a guest appearance on The Practice and loved it.
+ - I don’t take myself very seriously. I like to make people laugh. You know, it’s like, if a woman can’t be happy for another woman’s work, they have to go work on that.
+ - I certainly think Halle Berry’s a wonderful role model. She’s a terrific stepmother and has shown that in so many beautiful ways and has made such enormous strides for women culturally and such great successes as an actress and philanthropist.
+ - I don’t think anybody whose ever been divorced can tell you divorce is easy or fun or feels like anything other than a tremendous failure.
+
+130 quotes

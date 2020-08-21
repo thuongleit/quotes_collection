@@ -1,0 +1,47 @@
+ - How can something so wrong feel so right?
+ - As the light begins to intensify, so does my misery, and I wonder how it is possible to hurt so much when nothing is wrong.
+ - Your happiness means everything to me. I will listen for your voice in the distance. I will look at the moon. I will keep you in my pocket. I will carry your smile with me everywhere like a warm and comforting glow.
+ - You cannot undo the past; you can only learn to live with it, find some way of making peace with it, and move on.
+ - At what point do you give up – decide enough is enough? There is only one answer really. Never.
+ - You can close your eyes to the things you do not want to see, but you cannot close your heart to the things you do not want to feel.
+ - The sight of such aching beauty would infuse his soul with pain.
+ - I feel like I’m going crazy: seeing you every day but never being able to – to hold you, to touch you when anyone else is around. i just want to take your hand, kiss you, hug you, without having to hide all the time. All those things every other couple takes for granted!
+ - You’ve always been my best friend, my soul mate, and now I’ve fallen in love with you too. Why is that such a crime?
+ - Nothing can relieve the pain. Not crying, laughing, screaming, begging. Nothing can change the past.
+ - The words fire from my mouth like bullets, ricocheting off the walls before I can even register what I’m saying.
+ - I can’t tell you. I can’t tell you of all people. Throughout my life you were the one person I could turn to. The one person I could always count on to understand. And now that I’ve lost you, I’ve lost everything.
+ - It’s horrible being ashamed of someone you care about; it eats away at you. And if you let it get to you, if you give up the fight and surrender, eventually that shame turns to hate.
+ - Family: the most important thing of all. My siblings may drive me crazy at times but they are my blood. They’re all I’ve known. My family is me. They are my life. Without them I walk the planet alone. Forbidden, Tabitha Suzuma.
+ - Otherwise I’ll fall apart. I’m going to fall apart. I am falling apart.
+ - Any guy, even imaginary, would just feel like second best. Second best to what? I don’t even have an image of the perfect boyfriend. I just know he must exist. Because I have all these feelings-love, longing, wanting to be touched, dreaming of being kissed-yet no one to focus them on.
+ - But I don’t want to be fine, not if it means she’s going to let go of my hand; not if it means we’re going to go back to being polite strangers.
+ - It’s always nice being wanted. Even if it’s by the wrong person.
+ - I want to tell her that I can’t pull her down. I want to tell her that she has to let go of my hand in order to swim. I want to tell her that she must live her own life. But I sense she already knows that these options are open to her. And that she, too, has made her choice.
+ - Being together, we harm nobody; being apart, we extinguish ourselves.
+ - I mean, at the end of the day, what the hell does it matter who I end up with if it can’t be you?
+ - If I keep breathing, then I have to keep living, and if I keep living, then I have to keep hurting, and I can’t – not like this.
+ - Lochie. The boy I once loved. The boy I still love. The boy I will continue to love, even when my part in this world is over too.
+ - I am overcome by a feeling of complete detachment. I am a mere object to these people. I am barely human any more.
+ - He is my soul mate, my fresh air, the reason I look forward to getting up every morning.
+ - This is the definition of happiness: a whole day stretching out ahead of me, beautiful in its emptiness and simplicity.
+ - Time has stopped; time is racing. Lochie’s lips are rough yet smooth, hard yet gentle. His fingers are strong: I feel them in my hair and on my neck and down my arms and against my back. And I never want him to let me go.
+ - If I move, if I speak, if I so much as blink, I’m going to lose this battle.
+ - I might appear confident and chatty, but I spend most of my time laughing at jokes I don’t find funny, saying things I don’t really mean – because at the end of the day that’s what we’re all trying to do: fit in, one way or another, desperately trying to pretend we’re all the same.
+ - I don’t know when it started – this thing – bit it’s growing, muffling me, suffocating me like poison ivy. I grew into it. It grew into me. We blurred at the edges, became an amorphous, seeping, crawling thing.
+ - But whichever form it took it brought with it, in those moments of bitter anguish, such a desperate surge of hope that it was almost untouchable, and flitted away like a golden butterfly into the bright blue sky – beautiful, unreachable and completely transistent.
+ - And I know how he feels – it’s so good it hurts. I think I’m going to die from happiness. I think I’m going to die from pain. Time has stopped; time is racing.
+ - Before there was anything, there was Lochan.
+ - Even though I’m surrounded by pupils, there is the invisible screen screen between us, and behind the glass wall I am screaming – screaming in my own silence, screaming to be noticed, to be befriended, to be liked.
+ - I’ve never seen anyone sleep with their head hanging off the back of a wooden chair before – was the couch not comfortable enough for you?
+ - Trying to describe my life and feelings to you is like trying to describe coulours to the blind, or music to the deaf. It’s simply not possible.
+ - He will think Lochan wasn’t loved, but he was, more deeply than most people are in a lifetime.
+ - I would give anything to escape myself, Flynn thought, just for a day, just for a minute even. Just to know what it was like to think differently, to feel differently, and to not be me.
+ - And I know how he feels–it’s so good it hurts.
+ - And this is something I must accept – even if, like acid on metal, it is slowly corroding me inside.
+ - How-how can we make it against the whole world?
+ - At the age of five she has already come to terms with one of the life’s harshest lessons: that the world isn’t fair.
+ - What else could he possibly have done? What choices did he ever have?
+ - Out of the millions and millions of people that inhabit this planet, he is one of the tiny few I can never have.
+ - She can’t just be a face, a body; there has to be more than that, some kind of connection. And I can’t connect, don’t want to connect, with anyone.
+
+45 quotes

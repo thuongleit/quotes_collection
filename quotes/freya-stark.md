@@ -1,0 +1,90 @@
+ - There can be no happiness if the things we believe in are different from the things we do.
+ - To awaken quite alone in a strange town is one of the most pleasant sensations in the world. You are surrounded by adventure.
+ - Risk is the salt and sugar of life.
+ - One has to resign oneself to being a nuisance if one wants to get anything done.
+ - The essence of travel is diffuse. It is never there on the spot as it were, but always beyond: its symbol is the horizon, and its interest always lies over that edge in the unseen.
+ - Tolerance cannot afford to have anything to do with the fallacy that evil may convert itself to good.
+ - Manners are like zero in arithmetic. They may not be much in themselves, but they are capable of adding a great deal of value to everything else.
+ - The beckoning counts, and not the clicking of the latch behind you.
+ - You will, if you’re wise and know the art of travel, let yourself go on the stream of the unknown and accept whatever comes in the spirit in which the gods may offer it.
+ - Curiosity is the one thing invincible in Nature.
+ - It is only the unexpected that ever makes a customs officer think.
+ - This is one of the charms of the desert, that removing as it does nearly all the accessories of life, we see the thin thread of necessities on which our human existence is suspended...
+ - Time is the sea in which men grow, are born, or die.
+ - The great and almost only comfort about being a woman is that one can always pretend to be more stupid than one is and no one is surprised.
+ - The art of advertising – untruthfulness combined with repetition.
+ - In one form or another, conscious or unconscious, we have all become propagandists; integrity alone can keep us truthful.
+ - The world has become too full of many things, an over furnished room.
+ - I first noticed how the sound of water is like the talk of human voices, and would sometimes wake in the night and listen, thinking that a crowd of people were coming through the woods.
+ - One life is an absurdly small allowance.
+ - To feel, and think, and learn – learn always: surely that is being alive and young in the real sense.
+ - The most ominous of fallacies – the belief that things can be kept static by inaction.
+ - A part of all art is to make silence speak. The things left out in painting, the note withheld in music, the void in architecture – all are as necessary and as active as the utterance itself.
+ - Pain and fear and hunger are effects of causes which can be foreseen and known: but sorrow is a debt which someone else makes for us.
+ - From love one can only escape at the price of life itself; and no lessening of sorrow is worth exile from that stream of all things human and divine.
+ - Like a human being, the mountain is a composite creature, only to be known after many a view from many a different point, and repaying this loving study, if it is anything of a mountain at all, by a gradual revelation of personality, an increase of significance...
+ - One is so apt to think of people’s affection as a fixed quantity, instead of a sort of moving so with the tide, always going out or coming in but still fundamentally there: and I believe this difficulty in making allowance for the tide is the reason for half the broken friendships.
+ - Most people, after accomplishing something, use it over and over again like a gramophone record till it cracks, forgetting that the past is just the stuff with which to make more future.
+ - One can only really travel if one lets oneself go and takes what every place brings without trying to turn it into a healthy private pattern of one’s own and I suppose that is the difference between travel and tourism.
+ - There is generosity in giving, but gentleness in receiving.
+ - All greatness in style begins, I imagine, with such respect, deep and passionate enough to produce a humility which will not assert itself at the expense even of inanimate things: out of which submissiveness a desire to serve is born, in disinterested accuracy toward the object, whatever it may be.
+ - The true call of the desert, of the mountains, or the sea, is their silence – free of the networks of dead speech.
+ - If we are strong, and have faith in life and its richness of surprises, and hold the rudder steadily in our hands. I am sure we will sail into quiet and pleasant waters for our old age.
+ - I can’t get over the exciting beauty of New York – the pencil buildings so high and far that the blueness of the sky floats about them; the feeling that one’s taxis, and shopping, all go on in the deep canyon-beds of natural erosions rather than in the excrescences of human builders.
+ - Constancy, far from being a virtue, seems often to be the besetting sin of the human race, daughter of laziness and self-sufficiency, sister of sleep, the cause of most wars and practically all persecutions.
+ - It is not badness, it is the absence of goodness, which, in Art as in Life, is so depressing.
+ - The art of learning fundamental common values is perhaps the greatest gain of travel to those who wish to live at ease among their fellows.
+ - The Persian’s mind, like his illuminated manuscripts, does not deal in perspective: two thousand years, if he happens to know anything about them, are as exciting as the day before yesterday...
+ - Travel does what good novelists also do to the life of everyday, placing it like a picture in a frame or a gem in its setting, so that the intrinsic qualities are made more clear. Travel does this with the very stuff that everyday life is made of, giving to it the sharp contour and meaning of art.
+ - The camel is an ugly animal, seen from above. Its shoulders slope formless like a sack, its silly little ears and fluff of bleached curls behind them have a respectable, boarding-house look, like some faded neatness that dresses for propriety but never dressed for love.
+ - The true fruit of travel is perhaps the feeling of being nearly everywhere at home.
+ - On the whole, age comes more gently to those who have some doorway into an abstract world-art, or philosophy, or learning-regions where the years are scarcely noticed and the young and old can meet in a pale truthful light.
+ - The perpetual charm of Arabia is that the traveler finds his level there simply as a human being; the people’s directness, deadly to the sentimental or pedantic, likes the less complicated virtues...
+ - This is a great moment, when you see, however distant, the goal of your wandering. The thing which has been living in your imagination suddenly become part of the tangible world. It matters not how many ranges, rivers or parching dusty ways may lie between you; it is yours now for ever.
+ - To think to keep things as they are, is to let them move unpredictably, since nothing but death will still the beat of the heart or keep the universe from its perpetual motion.
+ - We were not for underestimating magic – a life-conductor like the sap between the tree-stem and the bark. We know that it keeps dullness out of religion and poetry. It is probable that without it we might die.
+ - There are, I sometimes think, only two sorts of people in this world – the settled and the nomad – and there is a natural antipathy between them, whatever the land to which they may belong.
+ - Love of learning is a pleasant and universal bond since it deals with what one is and not what one has.
+ - Love, like broken porcelain, should be wept over and buried, for nothing but a miracle will resuscitate it: but who in this world has not for some wild moments thought to recall the irrecoverable with words?
+ - A work of art is static; and its value and its weakness lie in being so: but the tuft of grass and the clouds above it belong to our own travelling brotherhood.
+ - An absolute condition of all successful living, whether for an individual or a nation, is the acceptance of death.
+ - The tourist travels in his own atmosphere like a snail in his shell and stands, as it were, on his own perambulating doorstep to look at the continents of the world. But if you discard all this, and sally forth with a leisurely and blank mind, there is no knowing what may not happen to you.
+ - Good days are to be gathered like grapes, to be trodden and bottled into wine and kept for age to sip at ease beside the fire. If the traveler has vintaged well, he need trouble to wander no longer; the ruby moments glow in his glass at will.
+ - Whatever the advantages of the machine may be – and they are many – the very ease of its use is bound to make away with intimacy – the intercourse of human beings, of animals, or of that which we still think of as the natural world.
+ - I suspect anyone self-satisfied enough to refuse lawful pleasures: we are not sufficiently rich in our separate resources to reject the graces of the universe when offered...
+ - Nearly all trouble comes from mis-timing...
+ - Style is something peculiar to one person; it expresses one personality and one only; it cannot be shared.
+ - I do dislike people with Moral Aims. Everyone asks me why I learn Arabic, and when I say I just like it, they looked shocked and incredulous.
+ - Absence is one of the most useful ingredients of family life, and to dose it rightly is an art like any other.
+ - The artist’s business is to take sorrow when it comes. The depth and capacity of his reception is the measure of his art; and when he turns his back on his own suffering, he denies the very laws of his being and closes the door on everything that can ever make him great.
+ - The monstrosity of bureaucracy, I thought: always the pint-pot judging the gallon, the scribe’s, the door-keeper’s world. Always the stupidity of people who feel certain about things they never try to find out. A world that educates people to be ignorant – that is what this world of ours is...
+ - The only thing for a pacifist to do is to find a substitute for war.
+ - I do think we should be provided with a new body about the age of thirty or so when we have learnt to attend to it with consideration.
+ - It seems to me that the only thing for a pacifist to do is to find a substitute for war: mountains and seafaring are the only ones I know. But it must be something sufficiently serious not to be a game and sufficiently dangerous to exercise those virtues which otherwise get no chance.
+ - Life, to be happy at all, must be in its way a sacrament, and it is a failure in religion to divorce it from the holy acts of everyday, of ordinary human existence.
+ - Accuracy is the basis of style. Words dress our thoughts and should fit; and should fit not only in their utterances, but in their implications, their sequences, and their silences, just as in architecture the empty spaces are as important as those that are filled.
+ - The past is our treasure. Its works, whether we know them or not, flourish in our lives with whatever strength they had. From it we draw provision for our journey, the collected wisdom whose harvests are all ours to reap and carry with us, though we may never live again in the fields that grew them.
+ - It is better to be passionate than to be tolerant at the expense of one’s soul.
+ - The language of salesmanship was no doubt born with the first fashions in fig leaves in the garden of Eden. A strange concept has grown around it: if something is to be sold, inaccuracy is not immoral. Hence the art of advertisement – untruthfulness combined with repetition.
+ - All the feeling which my father could not put into words was in his hand-any dog, child or horse would recognize the kindness of it.
+ - All our acts have sacramental possibilities.
+ - Your real progressives are never fair: they are never sufficiently neutral.
+ - Conventions are like coins, an easy way of dealing with the commerce of relations.
+ - Generalizations, one is told, are dangerous. So is life, for that matter, and it is built up on generalization – from the earliest effort of the adventurer who dared to eat a second berry because the first had not killed him.
+ - On the other hand, there is a certain advantage in traveling with someone who has a reputation for shooting rather than being shot: as Keram said, in a self-satisfied way, they might kill me, but they would know that, if I was with him, there would be unpleasantness afterwards.
+ - A pen and a notebook and a reasonable amount of discrimination will change a journey from a mere annual into a perennial, its pleasures and pains renewable at will.
+ - If one were given a single window from which to look upon the changing Eastern world, it should face, I think, the road.
+ - Few – very few – of our attainments are so profound that they are valid for always; even if they are so, they need adjustment, a straightening here, a loosening there, like an old garment to be fitted to the body...
+ - Who dares to be intellectual in the presence of death?
+ - I dislike being an anvil for the hammering out of other people’s virtues.
+ - I feel like a divorced wife once my book is published and has left me, and hate to be brought back into intimate contact!
+ - The greatest of mythologies divided its gods into creators, preservers and destroyers. Tidiness obviously belongs to the second category, which mitigates the terrific impact of the other two.
+ - This is excellence – the following of anything for its own sake and with its own integrity...
+ - I have long come to believe that, more than any other destruction, our word-recklessness is endangering the future of us all.
+ - Few are the giants of the soul who actually feel that the human race is their family circle.
+ - Fair and unfair are among the most influential words in English and must be delicately used.
+ - I do like people who have not yet made up their minds about everything, who in fact are still receiving.
+ - What I find trying in a country which you do not understand and where you cannot speak, is that you can never be yourself.
+ - We love those people who give with humility, or who accept with ease.
+
+88 quotes

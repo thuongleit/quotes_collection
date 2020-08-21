@@ -1,0 +1,31 @@
+ - The devil follows me day and night because he is afraid to be alone.
+ - Art must be unaesthetic in the extreme, useless and impossible to justify.
+ - The only way to win is to fight on the side of your adversaries.
+ - Dada is like your hopes: nothing like your paradise: nothing like your idols: nothing like your heroes: nothing like your artists: nothing like your religions: nothing.
+ - Nature is unfair? So much the better, inequality is the only bearable thing, the monotony of equality can only lead us to boredom.
+ - One must go through life, be it red or blue, stark naked and accompanied by the music of a subtle fisherman, prepared at all times for a celebration.
+ - My ass contemplates those who talk behind my back.
+ - A free spirit takes liberties even with liberty itself.
+ - Taste is tiring like good company.
+ - Every page must explode, whether through seriousness, profundity, turbulence, nausea, the new, the eternal, annihilating nonsense, enthusiasm for principles, or the way it is printed.
+ - A new gadget that lasts only five minutes is worth more than an immortal work that bores everyone.
+ - Men have always need of god! A god to defend them against other men...
+ - Youth doesn’t reason, it acts. The old man reasons and would like to make the others act in his place.
+ - All beliefs are bald ideas.
+ - Knowledge is ancient error reflecting on its youth.
+ - The world is divided into two categories: failures and unknowns.
+ - Dada talks with you, it is everything, it includes everything, it belongs to all religions, can be neither victory nor defeat, it lives in space and not in time.
+ - Pain has its reasons, pleasure is totally indifferent.
+ - Only useless things are indispensable.
+ - If you want to have clean ideas, change them as often as you change your shirts.
+ - God invented concubinage, Satan marriage.
+ - The essence of a man is found in his faults.
+ - The future is a monotonous instrument.
+ - The family spirit has rendered man carnivorous.
+ - Let us never forget that the greatest man is never more than an animal disguised as a god.
+ - We are not responsible for what we do; we are ignorant of our acts until we accomplish them.
+ - Between my head and my hand, there is always the face of death.
+ - Maybe men are separated from each other only by the degree of their misery.
+ - New York is the cubist, the futurist city. It expresses in its architecture, its life, its spirit, the modern thought.
+
+29 quotes

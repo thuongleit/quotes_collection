@@ -1,0 +1,98 @@
+ - Average leaders raise the bar on themselves; good leaders raise the bar for others; great leaders inspire others to raise their own bar.
+ - Success is on the other side of your comfort zone.
+ - Find a victory in every defeat to remain hopeful and find a defeat in every victory to remain humble.
+ - Happiness comes from serving others.
+ - Leaders always choose the harder right rather than the easier wrong.
+ - Analysis paralysis occurs when you overthink and underwork.
+ - The problem with incompetence is its inability to recognize itself.
+ - Success is the exponential effect of little things done consistently over time.
+ - Attitude is the ability to reframe the experience to empower you to future victories.
+ - Vision is tomorrow’s reality expressed as an idea today.
+ - Learn to use the criticism as fuel and you will never run out of energy.
+ - If you fill your head with positive thoughts, there won’t be any room left for negative ones.
+ - A person that does not value your time will not value your advice.
+ - There are no dead ends in life, only dead end thinking.
+ - Few lack talent, but most people lack the vision and perseverance to develop their talents.
+ - A leader must inspire or his team will expire.
+ - Licking your wounds will not stop the bleeding, but applying pressure will.
+ - Quality of work is directly related to the quality of a person’s character.
+ - Success is assured when a person fears the pain of regret more than the pain of the process.
+ - The limiting factor on your success is not the size of the obstacles, but the size of your dream.
+ - A passive mindset “manages” to live with mediocre, but an active mindset “leads” to change until excellence results.
+ - When the urgent crowds out the important, people urgently accomplish nothing of value.
+ - The more prepared you are, the less pressure you feel.
+ - Leverage is the ability to apply positive pressure on yourself to follow through on your decisions even when it hurts.
+ - Belief is the magic key that unlocks your dreams.
+ - Every leader has the courage to make decisions. No decision is usually the worst decision.
+ - You cannot expect your team to rise above your example.
+ - One person with commitment accomplishes more than a thousand with an opinion.
+ - Leaders begin with a different question than others. Replacing who can I blame with how am I responsible?
+ - Avoidance of self deception is a matter of integrity not comfort.
+ - Managers maintain an efficient status quo while leaders attack the status quo to create something new.
+ - People will follow you when you build the character to follow through.
+ - Never complain about what you permit to be.
+ - Winning requires reaching inside of yourself for that extra gear to accelerate challenges.
+ - The first business asset you should invest in is yourself.
+ - Leadership isn’t what a team says, but what it does.
+ - Our culture says Status is more important than Wealth, but we teach the opposite.
+ - Doubts in your mind are a much greater roadblock to success than obstacles on the journey.
+ - Until you accept responsibility for your life, someone else runs your life.
+ - Everyone carries a bucket of water and a bucket of gas in life. A leader has learned to throw the right one at the right time.
+ - Winners hate losing more than changing while others hate changing more than losing.
+ - Success is not as easy as winners make it look nor as hard as losers make it sound.
+ - It’s not what you eat that will kill you as much as what is eating you.
+ - Winners see the dream and develop plans while the rest see the obstacles and develop justifications.
+ - To live the life you’ve always wanted, you must confront the issues you’ve always avoided.
+ - The only thing tougher than developing leadership skills is attempting to be successful without them.
+ - Excuses are used to justify leaving the scene of truth without changing.
+ - Successful people do not have a part-time mindset nor a full-time mindset, but a lifetime mindset.
+ - Unsolved problems on the inside of a person stop success more often than problems on the outside of a person.
+ - Every uncomfortable experience in life gives you the choice of growing bitter or better.
+ - A leader is always first in line during times of criticism and last in line during times of recognition.
+ - Bad habits: easy to develop and hard to live with. Good habits: hard to develop and easy to live with.
+ - Leaders who won’t own failures become failures.
+ - I fear insignificance more than I fear failure.
+ - Leaders speak truth into people who believe lies about themselves.
+ - He who controls the fools gold, controls the fools.
+ - Many people surrender what is possible for what is comfortable.
+ - If you aren’t loyal to the few you won’t be blessed with the many.
+ - If you get your spirit and heart right, everything else flows from there.
+ - Death is only a tragedy when life’s purpose was left unfulfilled.
+ - No business can be made easier to do than excuses are to make.
+ - Leaders know that the fruit of life is out on a limb.
+ - Success for most people requires unlearning as much as learning.
+ - Courage results when one’s convictions are bigger than one’s fears.
+ - If you accept excuses from others, it’s usually because you have accepted your own excuse.
+ - Those who do not study their businesses do not stay in business.
+ - You can not become who you want to be until you have changed who you used to be.
+ - A big secret to life is when you learn that learning is just as entertaining as entertainment, but with long term benefits.
+ - Simply put, the direct power over the money supply is the indirect power over the people.
+ - You won’t get ahead until you get off your behind.
+ - Leadership Principle: As hunger increases, excuses decrease.
+ - Leaders dig into their business to learn painful realities rather than peaceful illusion.
+ - A low self-image is usually not based upon facts; it’s mismanaged memory.
+ - Leaders don’t correct people to success as much as believe them to it.
+ - The only place where compensation comes before service is in the dictionary or anywhere the government meddles.
+ - You can succeed beyond the past, but not beyond your belief.
+ - A person who cannot handle setbacks will never handle victories either.
+ - People love being around those who serve them.
+ - It’s not the gifts you don’t have that hold you back as much as the gifts you do have that you don’t use.
+ - You will never realize success on the outside until you can see it clearly o the inside. Success is inside out.
+ - Without courage, it doesn’t matter how good the leader’s intentions are.
+ - You can tell the size of a person by the way he treats people who cannot help him.
+ - When a leader buys his own excuses, he also, unfortunately, sells them to his team.
+ - Leaders must see the dream in their mind before they will accomplish the dream with their team.
+ - The ability to focus is the key separation point between those who move ahead and those who fall behind.
+ - You cannot hear opportunities knocking if you are busy knocking opportunities.
+ - If the only thing that you are good at is convincing others that you are good, then being in biz with you is bad experience.
+ - You don’t feel like a winner and then do; you do like a winner and then feel.
+ - Most people live with pleasant illusions, but leaders must deal with hard realities.
+ - A limited state with free economic systems is the soil where the liberty tree blossoms.
+ - Most people over estimate others talents and underestimate their own.
+ - You won’t acquire external Haters until you’ve conquered the internal Hater.
+ - Many times in life, those who do the most correcting, need the most correcting.
+ - Your business will only get as big as the shadow of your character.
+ - Change is a given; growth, however, is optional.
+ - Leaders do what ought to be done whether their deeds are known by thousands or known by no one.
+
+96 quotes

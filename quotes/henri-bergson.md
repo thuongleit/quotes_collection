@@ -1,0 +1,51 @@
+ - To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
+ - Think like a man of action, act like a man of thought.
+ - The motive power of democracy is love.
+ - Realism is in the work when idealism is in the soul, and it is only through idealism that we resume contact with reality.
+ - Life does not proceed by the association and addition of elements, but by dissociation and division.
+ - Laughter is the corrective force which prevents us from becoming cranks.
+ - The idea of the future, pregnant with an infinity of possibilities, is thus more fruitful than the future itself, and this is why we find more charm in hope than in possession, in dreams than in reality.
+ - The universe is a machine for the making of Gods.
+ - Only those ideas that are least truly ours can be adequately expressed in words.
+ - The present contains nothing more than the past, and what is found in the effect was already in the cause.
+ - Is it astonishing that, like children trying to catch smoke by closing their hands, philosophers so often see the object they would grasp fly before them?
+ - Genius is that which forces the inertia of humanity to learn.
+ - If reality impacted directly on our senses and our consciousness, if we could have direct communication between the material world and ourselves, art would be unnecessary.
+ - The only cure for vanity is laughter. And the only fault that’s laughable is vanity.
+ - Intelligence is characterized by a natural incomprehension of life.
+ - ACT as men of thought; THINK as men of action.
+ - There is no greater joy than that of feeling oneself a creator. The triumph of life is expressed by creation.
+ - Religion is to mysticism what popularization is to science.
+ - Art has no other object than to set aside the symbols of practical utility, the generalities that are conventionally and socially accepted, everything in fact which masks reality from us, in order to set us face to face with reality itself.
+ - It is emotion that drives the intelligence forward in spite of obstacles.
+ - There is nothing in philosophy which could not be said in everyday language.
+ - There are manifold tones of mental life, or, in other words, our psychic life may be lived at different heights, now nearer to action, now further removed from it, according to the degree of our attention to life.
+ - However spontaneous it seems, laughter always implies a kind of secret freemasonry, or even complicity, with other laughers, real or imaginary.
+ - We are free when our actions emanate from our total personality, when they express it, when they resemble it in the indefinable way a work of art sometimes does the artist.
+ - Intuition is a method of feeling one’s way intellectually into the inner heart of a thing to locate what is unique and inexpressible in it.
+ - Intelligence is the faculty of making artificial objects, especially tools to make tools.
+ - Homo sapiens, the only creature endowed with reason, is also the only creature to pin its existence on things unreasonable.
+ - To ease another’s burden, help to carry it.
+ - All the translations of a poem in all possible languages may add nuance to nuance and, by a kind of mutual retouching, by correcting one another, may give an increasingly faithful picture of the poem they translate, yet they will never give the inner meaning of the original.
+ - The movement of the stream is distinct from the river bed, although it must adopt its winding course.
+ - Spirit borrows from matter the perceptions on which it feeds and restores them to matter in the form of movements which it has stamped with its own freedom.
+ - Action on the move creates its own route, creates to a very great extent the conditions under which it is to be fulfilled and thus baffles all calculation.
+ - When we make the cerebral state the beginning of an action, and in no sense the condition of a perception, we place the perceived images of things outside the image of our body, and thus replace perception within the things themselves.
+ - Laughter is, above all, a corrective. Being intended to humiliate, it must make a painful impression on the person against whom it is directed. By laughter, society avenges itself for the liberties taken with it. It would fail in its object if it bore the stamp of sympathy or kindness.
+ - The emotion felt by a man in the presence of nature certainly counts for something in the origin of religions.
+ - To drive out the darkness, bring in the light.
+ - Wherever anything lives, there is, open somewhere, a register in which time is being inscribed.
+ - I believe I experience creativity at every moment of my life.
+ - It is the very essence of intelligence to coordinate means with a view to a remote end, and to undertake what it does not feel absolutely sure of carrying out.
+ - Our laughter is always the laughter of a group.
+ - It seems that laughter needs an echo.
+ - When it is said that an object occupies a large space in the soul or even that it fills it entirely, we ought to understand by this simply that its image has altered the shade of a thousand perceptions or memories, and that in this sense it pervades them, although it does not itself come into view.
+ - In reality, the past is preserved by itself automatically.
+ - One can always reason with reason.
+ - For life is tendency, and the essence of a tendency is to develop in the form of a sheaf, creating, by its very growth, divergent directions among which its impetus is divided.
+ - We regard intelligence as man’s main characteristic and we know that there is no superiority which intelligence cannot confer on us, no inferiority for which it cannot compensate.
+ - I see plainly how external images influence the image that I call my body : they transmit movement to it.
+ - I cannot escape the objection that there is no state of mind, however simple, that does not change every moment.
+ - An absolute can only be given in an intuition, while all the rest has to do with analysis.
+
+49 quotes

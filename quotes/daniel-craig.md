@@ -1,0 +1,96 @@
+ - I like going to the gym every day because I’m in physiotherapy every day.
+ - I’m a really bad liar.
+ - I’m potentially worth a lot of money, but I’ve got to go and make something that’s worth a lot of money.
+ - The subject matter is very tricky. It’s about the Munich massacre and what Mossad did afterwards with the assassination squads. I think it’s a turning point in history, especially for the Palestinians.
+ - You get used to the rejection and you don’t take it personally.
+ - You need to impress me, outwit me, compete with me? Go ahead, knock yourself out, I have no problem with that at all.
+ - So, are we equals? Until he answer is yes, we must never stop asking.
+ - I’ve always retained my privacy, but now I protect it even more.
+ - I stopped worrying about being desired a long time ago.
+ - The idea of regretting not doing this seemed insane to me. Sitting in the corner at a bar at age 60, saying: ‘I could’ve been Bond. Buy me a drink.’ That’s the saddest place I could be. At least now at 60 I can say: ‘I was Bond. Now buy me a drink.’
+ - It’s not my cause in life to be filthy rich. Being comfortable is enough.
+ - Good scripts are hard to find.
+ - I think finding the right person and being with the right person is probably the answer to most things.
+ - I’m not James Bond. There’s your headline! It’s very clear to me that he’s the furthest from my character that it’s possible to be. It’s somebody I play.
+ - There’s a passion about this because people take it very close to their hearts and they have grown up with James Bond – and so have I. But I was being criticized before I had presented anything, so it was name calling.
+ - It’s a huge challenge, a huge responsibility. Bond is a huge iconic figure in movie history. These opportunities don’t come along very often so I thought, ‘Why not?’
+ - It’s not the job of an actor to judge your character.
+ - Intimate scenes on a movie set are just dry, bizarre things; people standing around.
+ - I don’t see the world in sexual divisions.
+ - I’m obsessive enough about getting fit, it’s ridiculous. I’m 40 now, and I’ve got to stop doing it soon. I have to start getting fat and old!
+ - I just think that the collective experience of going to see a film is something you can’t recreate.
+ - The movie business is based on criminals. Some of them are in movies and some of them make movies.
+ - I always wanted to be an actor. I had the arrogance to believe I couldn’t be anything else.
+ - A secret is a secret in my mind.
+ - I guess you could say I’ve been in my share of violent movies.
+ - I can’t go to war with paparazzi.
+ - Being on your own would be sad, sick and weird. I don’t trust myself. I need that balance.
+ - I’d hate to feel in a comfort zone while I am working. That’s not the way I like to do things. I want to be pressurized and challenged every day.
+ - I love that my friends are all freaks.
+ - I’ve never really had a desire to do Shakespeare. For me, it’s just too many lines.
+ - I’m definitely not satisfied about my career. I don’t know how you can be, it’s the very nature of things.
+ - He knows that you have ability and what he does is he manipulates it and sort of empowers you.
+ - There’s a conscious decision to everything I do.
+ - When you’re making movies you’ve got to get obsessive.
+ - I find it very easy playing Bond. I think he’s hilarious. He gets himself into some extraordinarily funny situations.
+ - There is, come to think of it, a kind of Judi Dench quality to McCain.
+ - I’ve always loved to dress up a bit and show off.
+ - As soon as someone tells me: ‘You’re rather sexy,’ I wish I could disappear. If somebody says: ‘You were voted the world’s sexiest man,’ I have no idea what that means. How do I respond? ‘Thank you’ is the best you can do. George Clooney is the world’s sexiest man, anyway.
+ - Some stalkers are quite benign, but finding someone in your garden at three o’clock in the morning with a meat cleaver and a hard-on can’t be much fun.
+ - As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.
+ - Suits are looked at more now as a business thing which is kind of a shame. If you’re not wearing it just for work, you should try and trick it up a bit.
+ - At some point, life starts to pass you by and becomes about avoidance. I want to stay clear from that situation, because I don’t like that.
+ - I just felt that you can’t have a character fall in love so madly as they did in the last movie and not finish it off, understand it, get some closure. That’s why the movie is called ‘Quantum of Solace’ – that’s exactly what he’s looking for.
+ - I’ve seen a lot in my life, and everybody goes down the dark, winding staircase eventually. It’s a bad place to be and that’s why having good friends is always essential. Those are the people who pull you out.
+ - I can’t really dress rock ‘n’ roll any more because I’m the wrong side of 40, but I want that to be the fashion.
+ - I don’t want to be a celebrity because that sucks. It’s just madness.
+ - The last thing on earth I wanted was to make a Bond movie.
+ - In many films, as many different characters, I’ve killed many different people.
+ - I didn’t want to do a zoo show. I didn’t want to do a study of someone with mental illness. I just wanted to show someone who was trying to live their life.
+ - I’m not averse to earning someone; in fact I’d love to earn some money. But also my choices of movies don’t tend to make money but I get to make interesting films. But it doesn’t mean I don’t want to earn shitloads of cash.
+ - When you read a novel, your own imagery is the most important. It’s what makes reading such a wonderful thing.
+ - Revenge doesn’t stop.
+ - It’s a Tim sandwich. The meat is fresh, but the bread is moldy.
+ - You know, I think the film business is its own worst enemy because it sells movies on DVD footage and ‘behind the scenes,’ and now it’s a real struggle trying to keep storylines and plotlines a secret.
+ - Shakespeare has way too many lines. My ideal theatre piece is about 40 minutes long with no interval.
+ - I watched every single Bond movie three or four times, taking in everything I could about how the character had been portrayed in the past, then threw all that away once I started doing the role.
+ - Even the worst Bond movies, there’s something to love about them.
+ - I’m quite good at leaning against a bar.
+ - There’s always going to be someone with a bigger toy than yours.
+ - The bad reviews get to me, believe me.
+ - Throw the computer away and don’t look on the internet. That’s the best thing to do.
+ - I want people to treat me as normally as they can. Anybody who doesn’t, I feel awkward with.
+ - I never really had a strong accent.
+ - It didn’t even really matter how good the band was – if someone could keep a beat, then you were prepared to jump up and down and smash around.
+ - I genuinely believe that if you want to get in the film business, get in the film business.
+ - Action movies live and die by the story that you’re trying to tell. It’s hard. It’s very difficult to do an action movie that stays engaging.
+ - If you invite someone into your front room you can’t be surprised when there are suddenly people outside your windows with cameras.
+ - I try not the count chickens, and I really do because there’s no point because you go crazy. I’m very happy with the way this is working out. If they do another movie I’d love to do, and we’ll fit in it.
+ - Literally, the piece at the end is where the universe is cracked apart, it’s a big moment. Basically, they, the filmmakers, have directed the story earlier in the book. It happens, it’s called adapting a book, you have to make decisions about things. It’s not unusual having to cut out scenes.
+ - I like fishing, I like painting; I like painting fish.
+ - The truth is, I don’t have any problem with journalists – I count some of them as friends – also some of my heroes are journalists, I’m a big fan of Robert Fisk – great people or crazy people who are prepared to stand up for what’s right.
+ - I just wanted to play a cowboy for a long time.
+ - Although I’m not from London originally: I moved down here when I was 16, so it’s played a part in my life. It’s where I’ve lived for all that time.
+ - I was sick and tired of being an English actor who did a lot of American movies because I was cheap and good.
+ - The character I play has all these revolutionary ideas. I think the classic thing is that majority people who are criticising it probably have never read the books, and need to. And I’m sure that the Catholic Church, which is being directed as you know, can handle it.
+ - Nothing is stopping me from doing anything. I haven’t got a golden handcuff.
+ - Things need shaking up politically, culturally.
+ - Having a sense of humour is really key. You have to have a sense of humour with these things and I’ve just tried to remain who I am. My life has changed. It’s changed in the fact that I don’t have the freedoms I did before, but I’ve also got a huge amount of other freedoms that came along with it.
+ - We are kidding ourselves if we don’t think of the drug business as a legitimate business. It’s what funds governments. It’s too much money to ignore.
+ - Anybody can leap off a building.
+ - If I wanted to make spy movies for the rest of my life, that would be one thing, but I don’t want to just make spy movies.
+ - I have never played a role in which someone’s dark side shouldn’t be explored.
+ - My mother gave me a real kick toward cooking, which was that if I wanted to eat, I’d better know how to do it myself.
+ - I always wanted to make movies.
+ - I never had any boyhood ambitions.
+ - Privacy is important. Anybody who doesn’t think that, they’re crap. But I know I’m going to lose some of that and that’s something I’ll have to deal with.
+ - There are things about guys who are in the army. They’re very particular, they have to be.
+ - I know what I like in other actors: truth. That’s the best. It makes you say, ‘OK, I’ll go with you on this.’
+ - In all good westerns, the good guy is always a little bit questionable because he kind-of has to make moral judgments.
+ - If money comes along I will take it. I just want good scripts that try to make you think. I’ve been offered lots of money in the past but I just know that I would abuse it and get drunk.
+ - I know in my life there’s stuff that will come back because I haven’t dealt with it, and it’s the same with everybody.
+ - You’re creating new things in movies and people are going to steal them.
+ - Any voices or fantasies, he lives with. Those are his everyday life things.
+ - The worst situation you can have in a thriller is a lead who looks like he can handle himself.
+
+94 quotes

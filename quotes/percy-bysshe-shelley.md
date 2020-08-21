@@ -1,0 +1,349 @@
+ - My name is Ozymandias, king of kings: Look on my works, ye Mighty, and despair!
+ - Rise like Lions after slumber In unvanquishable number- Shake your chains to earth like dew Which in sleep had fallen on you Ye are many-they are few.
+ - O, wind, if winter comes, can spring be far behind?
+ - Soul meets soul on lovers’ lips.
+ - Our sweetest songs are those that tell of saddest thought.
+ - Oh lift me as a wave, a leaf, a cloud! I fall upon the thorns of life! I bleed!
+ - The more we study the more we discover our ignorance.
+ - No more let life divide what death can join together.
+ - Fear not for the future, weep not for the past.
+ - We look before and after, And pine for what is not; Our sincerest laughter With some pain is fraught; Our sweetest songs are those that tell of saddest thought.
+ - Poets are the unacknowledged legislators of the world.
+ - I silently laugh at my own cenotaph, And out of the caverns of rain, Like a child from the womb, like a ghost from the tomb, I arise and unbuild it again.
+ - Nought may endure but Mutability.
+ - The sunlight claps the earth, and the moonbeams kiss the sea: what are all these kissings worth, if thou kiss not me?
+ - When the lamp is shattered The light in the dust lies dead – When the cloud is scattered The rainbow’s glory is shed...
+ - The pleasure that is in sorrow is sweeter than the pleasure of pleasure itself.
+ - We are all Greeks. Our laws, our literature, our religion, our arts, have their root in Greece.
+ - A poet is a nightingale, who sits in darkness and sings to cheer its own solitude with sweet sounds; his auditors are as men entranced by the melody of an unseen musician, who feel that they are moved and softened, yet know not whence or why.
+ - Life, like a dome of many-coloured glass, Stains the white radiance of eternity.
+ - But I am chained to Time, and cannot thence depart!
+ - History is a cyclic poem written by time upon the memories of man.
+ - O world! O life! O time! On whose last steps I climb.
+ - Sometimes The Devil is a gentleman.
+ - I am the daughter of Earth and Water, And the nursling of the Sky; I pass through the pores of the ocean and shores; I change, but I cannot die.
+ - Nothing in the world is single, All things by a law divine, In one spirit meet and mingle-Why not I with thine?
+ - All love is sweet, given or received...
+ - Government is an evil; it is only the thoughtlessness and vices of men that make it a necessary evil. When all men are good and wise, government will of itself decay.
+ - The One remains, the many change and pass; Heaven’s light forever shines, Earth’s shadows fly; Life, like a dome of many-coloured glass, Stains the white radiance of Eternity, Until Death tramples it to fragments.
+ - I fall upon the thorns of life...
+ - Poetry is the record of the best and happiest moments of the happiest and best minds.
+ - O wild West Wind, thou breath of Autumn’s being. Thou, from whose unseen presence the leaves dead Are driven, like ghosts from an enchanter fleeing.
+ - Better than all measures Of delightful sound, Better than all treasures That in books are found, Thy skill to poet were, thou scorner of the ground!
+ - I love all waste And solitary places; where we taste The pleasure of believing what we see Is boundless, as we wish our souls to be.
+ - I love tranquil solitude.
+ - Poets are the hierophants of an unapprehended inspiration; the mirrors of the gigantic shadows which futurity casts upon the present.
+ - Death will come when thou art dead, soon, too soon.
+ - Hail to thee, blithe Spirit!
+ - I have drunken deep of joy, And I will taste no other wine tonight.
+ - Love’s very pain is sweet, But its reward is in the world divine Which, if not here, it builds beyond the grave.
+ - I have made my bed In charnels and on coffins, where black death Keeps record of the trophies won.
+ - The soul’s joy lies in doing.
+ - I pant, I sink, I tremble, I expire!
+ - The cloud shadows of midnight possess their own repose...
+ - It is only by softening and disguising dead flesh by culinary preparation that it is rendered susceptible of mastication or digestion, and that the sight of its bloody juices and raw horror does not excite intolerable loathing and disgust.
+ - Away, away, from men and towns, To the wild wood and the downs, – To the silent wilderness, Where the soul need not repress Its music.
+ - Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.
+ - He gave man speech, and speech created thought, Which is the measure of the universe.
+ - It were much better that a sentient being should never have existed, than that it should have existed only to endure unmitigated misery.
+ - Let there be light! Said Liberty, And like sunrise from the sea, Athens arose!
+ - Can man be free if woman be a slave?
+ - Love withers under constraints: its very essence is liberty: it is compatible neither with obedience, jealousy, nor fear.
+ - Nothing wilts faster than laurels that have been rested upon.
+ - Wild Spirit, which art moving everywhere; Destroyer and preserver; hear, oh, hear!
+ - The desire of the moth for the star, Of the night for the morrow, The devotion to something afar From the sphere of our sorrow.
+ - A lovely lady, garmented in light From her own beauty.
+ - Man’s yesterday may never be like his morrow; Nought may endure but Mutability.
+ - Music, when soft voices die, Vibrates in the memory; Odors, when sweet violets sicken, Live within the sense they quicken.
+ - Sow seed – but let no tyrant reap; Find wealth – let no imposter heap; Weave robes – let not the idle wear; Forge arms – in your defence to bear.
+ - A God made by man undoubtedly has need of man to make himself known to man.
+ - Lost Echo sits amid the voiceless mountains, And feeds her grief.
+ - A dream has power to poison sleep.
+ - Worlds on worlds are rolling ever From creation to decay, Like the bubbles on a river Sparkling, bursting, borne away.
+ - Nothing of him that doth fade But doth suffer a sea-change Into something rich and strange.
+ - I consider poetry very subordinate to moral and political science.
+ - It is found easier, by the short-sighted victims of disease, to palliate their torments by medicine, than to prevent them by regimen.
+ - Life may change, but it may fly not; Hope may vanish, but can die not; Truth be veiled, but still it burneth; Love repulsed, – but it returneth!
+ - Dust to the dust! but the pure spirit shall flow Back to the burning fountain whence it came, A portion of the Eternal.
+ - The world’s great age begins anew, The golden years return, The earth doth like a snake renew Her winter weeds outworn; Heaven smiles, and faiths and empires gleam, Like wrecks of a dissolving dream.
+ - I bring fresh showers for the thirsting flowers, From the seas and the streams; I bear light shade for the leaves when laid In their noonday dreams...
+ - Underneath Day’s azure eyes, Ocean’s nursling, Venice lies, A peopled labyrinth of walls, Amphitrite’s destined halls.
+ - All of us who are worth anything, spend our manhood in unlearning the follies, or expiating the mistakes of our youth.
+ - I wish no living thing to suffer pain.
+ - Power, like a desolating pestilence, pollutes whatever it touches.
+ - I see the waves upon the shore, Like light dissolved in star-showers, thrown.
+ - How beautiful is sunset when the glow Of Heaven descends upon a land like thee, Thou Paradise of exiles, Italy!
+ - I never was attached to that great sect, Whose doctrine is that each one should select Out of the crowd a mistress or a friend, And all the rest, though fair and wise, commend, To cold oblivion.
+ - And Spring arose on the garden fair, Like the Spirit of Love felt everywhere; And each flower and herb on Earth’s dark breast rose from the dreams of its wintry rest.
+ - I wield the flail of the lashing hail, And whiten the green plains under; And then again I dissolve it in rain, And laugh as I pass in thunder.
+ - I love tranquil solitude And such society As is quiet, wise, and good.
+ - To hope till hope creates From its own wreck the thing it contemplates.
+ - The psychological and moral comfort of a presence at once humble and understanding-this is the greatest benefit that the dog has bestowed upon man.
+ - Ah, woe is me! Winter is come and gone. But grief returns with the revolving year.
+ - Rough wind, the moanest loud Grief too sad for song; Wild wind, when sullen cloud Knells all the night long; Sad storm, whose tears are vain, Bare woods, whose branches strain, Deep caves and dreary main, Wail, for the world’s wrong!
+ - I arise from dreams of thee In the first sweet sleep of night, when the winds are breathing low, and the stars are shining bright.
+ - Revenge is the naked idol of the worship of a semi-barbarous age.
+ - The good want power, but to weep barren tears. The powerful goodness want: worse need for them. The wise want love; and those who love want wisdom.
+ - Power, like a desolating pestilence, Pollutes whate’er it touches; and obedience, Bane of all genius, virtue, freedom, truth, Makes slaves of men, and of the human frame A mechanized automaton.
+ - Like a glowworm golden, in a dell of dew, Scattering unbeholden its aerial blue Among the flowers and grass which screen it from the view.
+ - All spirits are enslaved which serve things evil.
+ - Poetry is a sword of lightning, ever unsheathed, which consumes the scabbard that would contain it.
+ - Poetry strengthens that faculty which is the organ of the moral nature of man, in the same manner as exercise strengthens a limb.
+ - And many an ante-natal tomb Where butterflies dream of the life to come.
+ - The great secret of morals is Love; or a going out of our own nature, and an identification of ourselves with the beautiful which exists in thought, action, or person, not our own.
+ - It is true that the reluctance to abstain from animal food, in those who have been long accustomed to its stimulus, is so great in some persons of weak minds, as to be scarcely overcome; but this is far from bringing any argument in its favour.
+ - Music, when soft voices die Vibrates in the memory.
+ - Peace is in the grave.
+ - Man is of soul and body, formed for deeds Of high resolve; on fancy’s boldest wing.
+ - The babe is at peace within the womb, the corpse is at rest within the tomb. We begin in what we end.
+ - And priests dare babble of a God of peace, Even whilst their hands are red with guiltless blood, Murdering the while, uprooting every germ Of truth, exterminating, spoiling all, Making the earth a slaughter – house!
+ - When my cats aren’t happy, I’m not happy. Not because I care about their mood but because I know they’re just sitting there thinking up ways to get even.
+ - Honour sits smiling at the sale of truth.
+ - In the golden lightning Of the sunken sun O’er which clouds are brightening, Thou dost float and run Like an unbodied joy whose race is just begun.
+ - GOVERNMENT has no rights; it is a delegation from several individuals for the purpose of securing their own. It is therefore just, only so far as it exists by their consent, useful only so far as it operates to their well-being.
+ - It is easier to suppose that the universe has existed for all eternity than to conceive a being beyond its limits capable of creating it.
+ - The rich have become richer, and the poor have become poorer; and the vessel of the state is driven between the Scylla and Charybdis of anarchy and despotism.
+ - True love in this differs from gold and clay, that to divide is not to take away. Love is like understanding, that grows bright, gazing on many truths.
+ - That orbed maiden, with white fire laden, Whom mortals call the moon.
+ - Most wretched men Are cradled into poetry by wrong: They learn in suffering what they teach in song.
+ - All love is sweet Given or returned. Common as light is love, And its familiar voice wearies not ever.
+ - Many a green isle needs must be In the deep wide sea of Misery, Or the mariner, worn and wan, Never thus could voyage on.
+ - Till the Future dares Forget the Past, his fate and fame shall be An echo and a light unto eternity!
+ - Are we not formed, as notes of music are, For one another, though dissimilar?
+ - But Greece and her foundations are Built below the tide of war, Based on the crystalline sea Of thought and its eternity; Her citizens, imperial spirits, Rule the present from the past, On all this world of men inherits Their seal is set.
+ - A pard-like spirit, beautiful and swift.
+ - This lake exceeds anything I ever beheld in beauty.
+ - Gold is a living god and rules in scorn, All earthly things but virtue.
+ - Thou Paradise of exiles, Italy!
+ - The cloud of mind is discharging its collected lightning.
+ - I love Love – though he has wings, And like light can flee, But above all other things, Spirit, I love thee – Thou art love and life! Oh come, Make once more my heart thy home.
+ - Jesus Christ represented God as the principle of all good, the source of all happiness, the wise and benevolent Creator and Preserver of all living things. But the interpreters of his doctrines have confounded the good and the evil principle.
+ - How wonderful is death! Death and his brother sleep.
+ - Concerning God, freewill and destiny: Of all that earth has been or yet may be, all that vain men imagine or believe, or hope can paint or suffering may achieve, we descanted.
+ - For love and beauty and delight, there is no death nor change.
+ - Love, from its awful throne of patient power In the wise heart, from the last giddy hour Of dread endurance, from the slippery, steep, And narrow verge of crag-like agony, springs And folds over the world its healing wings.
+ - Let the blue sky overhead, The green earth on which ye tread, All that must eternal be Witness the solemnity.
+ - Only nature knows how to justly proportion to the fault the punishment it deserves.
+ - Design must be proved before a designer can be inferred.
+ - Then black despair, The shadow of a starless night, was thrown Over the world in which I moved alone.
+ - All high poetry is infinite; it is as the first acorn, which contained all oaks potentially.
+ - Duty and dereliction guide thee back to solitude.
+ - I love snow, snow, and all the forms of radiant frost.
+ - There is a harmony in autumn, and a luster in its sky, which through the summer is not heard or seen, as if it could not be, as if it had not been!
+ - When merciless ambition, or mad zeal, has led two hosts of dupes to battlefield, That, blind, they there may dig each other’s graves, And call the sad work glory...
+ - Ere Babylon was dust, The Magus Zoroaster, my dead child, Met his own image walking in the garden, That apparition, sole of men, he saw.
+ - Sounds of vernal showers On the twinkling grass, Rain awaken’d flowers, All that ever was Joyous, and clear, and fresh, thy music doth surpass.
+ - Narrow The heart that loves, the brain that contemplates, The life that wears, the spirit that creates One object, and one form, and builds thereby A sepulchre for its eternity.
+ - Rulers, who neither see, nor feel, nor know, but leech-like to their fainting country cling, till they drop, blind in blood, without a blow, – a people starved and stabbed in the untilled field...
+ - He wanders, like a day-appearing dream, Through the dim wildernesses of the mind; Through desert woods and tracts, which seem Like ocean, homeless, boundless, unconfined.
+ - Spirit, Patience, Gentleness, All that can adorn and bless Art thou let deeds, not words, express Thine exceeding loveliness.
+ - His fine wit Makes such a wound, the knife is lost in it.
+ - As I lay asleep in Italy There came a voice from over the Sea, And with great power it forth led me To walk in the visions of Poesy.
+ - Thy words are like a cloud of winged snakes.
+ - First our pleasures die – and then our hopes, and then our fears – and when these are dead, the debt is due dust claims dust – and we die too.
+ - Far clouds of feathery gold, Shaded with deepest purple, gleam Like islands on a dark blue sea.
+ - Strange thoughts beget strange deeds.
+ - When a man marries, dies, or turns Hindu, his best friends hear no more of him.
+ - Through the sunset of hope, Like the shapes of a dream, What paradise islands of glory gleam!
+ - What if English toil and blood Was poured forth, even as a flood? It availed, Oh, Liberty, To dim, but not extinguish thee.
+ - Worse than despair, Worse than the bitterness of death, is hope.
+ - Sing again, with your dear voice revealing. A tone Of some world far from ours, where music and moonlight and feeling are one.
+ - Hell is a city much like London A populous and smoky city.
+ - Songs consecrate to truth and liberty.
+ - The man of virtuous soul commands not, nor obeys.
+ - January gray is here, like a sexton by her grave; February bears the bier, march with grief doth howl and rave, and April weeps – but, O ye hours! Follow with May’s fairest flowers.
+ - Revenge and wrong bring forth their kind; The foul cubs like their parents are.
+ - I know the cause of all human disappointment – worldly prejudice.
+ - Just a tender sense of my own process, that holds something of my connection with the divine.
+ - For the Sensitive Plant has no bright flower; Radiance and odour are not its dower; It loves, even like Love, its deep heart is full, It desires what it has not, the beautiful.
+ - Kiss me, so long but as a kiss may last!
+ - Heaven’s ebon vault Studded with stars unutterably bright, Through which the moon’s unclouded grandeur rolls, Seems like a canopy which love has spread To curtain her sleeping world.
+ - If God has spoken, why is the world not convinced.
+ - The breath Of accusation kills an innocent name, And leaves for lame acquittal the poor life, Which is a mask without it.
+ - What is Freedom? ye can tell That which slavery is, too well For its very name has grown To an echo of your own.
+ - Thou hast a voice, great Mountain, to repeal. Large codes of fraud and woe; not understood by all, but which the wise, and great, and good interpret, or make felt, or deeply feel.
+ - There Is No God. This negation must be understood solely to affect a creative Deity. The hypothesis of a pervading Spirit co-eternal with the universe remains unshaken.
+ - The quick Dreams, The passion-winged Ministers of thought.
+ - O heart, and mind, and thoughts! what thing do you Hope to inherit in the grave below?
+ - Dar’st thou amid the varied multitude To live alone, an isolated thing?
+ - Be your strong and simple words Keen to wound as sharpened swords, And wide as targes let them be, With their shade to cover ye.
+ - One word is too often profaned For me to profane it, One feeling too falsely disdained For thee to disdain it.
+ - Oh that simplicity and innocence its own unvalued work so seldom knows!
+ - Death is the veil which those who live call life; They sleep, and it is lifted.
+ - God is represented as infinite, eternal, incomprehensible; he is contained under every predicate in non that the logic of ignorance could fabricate.
+ - Man has no right to kill his brother. It is no excuse that he does so in uniform: he only adds the infamy of servitude to the crime of murder.
+ - It is a modest creed, and yet Pleasant if one considers it, To own that death itself must be, Like all the rest, a mockery.
+ - The advocates of literal interpretation have been the most efficacious enemies of those doctrines whose nature they profess to venerate.
+ - Jesus Christ opposed with earnest eloquence the panic fears and hateful superstitions which have enslaved mankind for ages.
+ - Less oft peace in Shelley’s mind, Than calm in waters seen.
+ - The encomium of one incapable of flattery is indeed flattering.
+ - Change is certain. Peace is followed by disturbances; departure of evil men by their return. Such recurrences should not constitute occasions for sadness but realities for awareness, so that one may be happy in the interim.
+ - Twin-sister of Religion, Selfishness.
+ - A poet is a nightingale, who sits in darkness and sings to cheer its own solitude with sweet sounds.
+ - Those who love not their fellow-beings live unfruitful lives, and prepare for their old age a miserable grave.
+ - I have been a wanderer among distant fields. I have sailed down mighty rivers.
+ - I love tranquil solitude, And such society As is quiet, wise, and good; Between thee and me What difference? but thou dost possess The things I seek, not love them less.
+ - Persevere even though Hell and destruction should yawn beneath your feet.
+ - War is the statesman’s game, the priest’s delight, the lawyer’s jest, the hired assassin’s trade.
+ - The great instrument of moral good is the imagination.
+ - Tragedy delights by affording a shadow of the pleasure which exists in pain.
+ - Men of England, wherefore plough For the lords who lay you low?
+ - He has outsoared the shadow of our night; envy and calumny and hate and pain, and that unrest which men miscall delight, can touch him not and torture not again; from the contagion of the world’s slow stain, he is secure.
+ - A man, to be greatly good, must imagine intensely and comprehensively; he must put himself in the place of another and of many others; the pains and pleasures of his species must become his own.
+ - Joy, once lost, is pain.
+ - Reviewers, with some rare exceptions, are a most stupid and malignant race. As a bankrupt thief turns thief-taker in despair, so an unsuccessful author turns critic.
+ - Woe is me! The winged words on which my soul would pierce Into the heights of love’s rare universe, Are chains of lead around its flight of fire – I pant, I sink, I tremble, I expire.
+ - Among true and real friends, all is common; and were ignorance and envy and superstition banished from the world, all mankind would be friend.
+ - The pale stars are gone! For the sun, their swift shepherd, To their folds them compelling, In the depths of the dawn, Hastes, in meteor-eclipsing array, and the flee Beyond his blue dwelling, As fawns flee the leopard.
+ - Poetry is a mirror which makes beautiful that which is distorted.
+ - Chameleons feed on light and air: Poets food is love and fame.
+ - Image of rugged cliffs And so thy thoughts, when thou art gone, Love itself shall slumber on.
+ - You would not easily guess All the modes of distress Which torture the tenants of earth; And the various evils, Which like so many devils, Attend the poor souls from their birth.
+ - My neighbour, or my servant, or my child, has done me an injury, and it is just that he should suffer an injury in return. Such is the doctrine which Jesus Christ summoned his whole resources of persuasion to oppose.
+ - Kings are like stars,-they rise and set, they have The worship of the world, but no repose.
+ - Alas! I have nor hope nor health, Nor peace within nor calm around, Nor that content surpassing wealth The sage in meditation found.
+ - Religion! but for thee, prolific fiend, Who peoplest earth with demons, hell with men, And heaven with slaves!
+ - There is no real wealth but the labor of man.
+ - Deep truth is imageless.
+ - The world is weary of the past, Oh, might it die or rest at last!
+ - By all that is sacred in our hope for the human race, I conjure those who love happiness and truth to give a fair trial to the vegetable system!
+ - A sensitive plant in a garden grew, And the young winds fed it with silver dew, And it opened its fan like leaves to the light, and closed them beneath the kisses of night.
+ - Yes, marriage is hateful, detestable. A kind of ineffable, sickening disgust seizes my mind when I think of this most despotic, most unrequited fetter which prejudice has forged to confine its energies.
+ - Know ye what it is to be a child? It is to have a spirit yet streaming from the waters of baptism; it is to believe in love, to believe in loveliness, to believe in belief.
+ - Everytime we say that god is the author of some phenomenon, that signifies that we are ignorant of how such a phenomenon was caused by the forces of nature.
+ - Peter was dull; he was at first Dull; – Oh, so dull – so very dull! Whether he talked, wrote, or rehearsed – Still with his dulness was he cursed – Dull -beyond all conception – dull.
+ - Teas, Where small talk dies in agonies.
+ - Obedience indeed is only the pitiful and cowardly egotism of him who thinks that he can do something better than reason.
+ - You ought to love all mankind; nay, every individual of mankind. You ought not to love the individuals of your domestic circles less, but to love those who exist beyond it more.
+ - God is a hypothesis, and, as such, stands in need of proof; the onus probandi rests on the theist.
+ - A story of particular facts is a mirror which obscures and distorts that which should be beautiful; poetry is a mirror which makes beautiful that which it distorts.
+ - As long as skies are blue, and fields are green Evening must usher night, night urge the morrow, Month follow month with woe, and year wake year to sorrow.
+ - A Christian, a Deist, a Turk, and a Jew, have equal rights: they are men and brethren.
+ - Man, who wert once a despot and a slave, A dupe and a deceiver! a decay, A traveller from the cradle to the grave Through the dim night of this immortal day.
+ - The moon of Mahomet Arose, and it shall set; While, blazoned as on heaven’s immortal noon, The cross leads generations on.
+ - The emptiness and folly of retaliation are apparent from every example which can be brought forward. Not only Jesus Christ, but the most eminent professors of every sect of philosophy, have reasoned against this futile superstition.
+ - Let me set my mournful ditty To a merry measure; Thou wilt never come for pity, Thou wilt come for pleasure; Pity then will cut away Those cruel wings, and thou wilt stay.
+ - I have neither curiosity, interest, pain nor pleasure, in anything, good or evil, they can say of me. I feel only a slight disgust, and a sort of wonder that they presume to write my name.
+ - Love’s very pain is sweet.
+ - A husband and wife ought to continue united so long as they love each other. Any law which should bind them to cohabitation for one moment after the decay of their affection would be a most intolerable tyranny, and the most unworthy of toleration.
+ - Not the swart Pariah in some Indian grove, Lone, lean, and hunted by his brother’s hate, Hath drunk so deep the cup of bitter fate As that poor wretch who cannot, cannot love: He bears a load which nothing can remove, A killing, withering weight.
+ - Worse than a bloody hand is a hard heart.
+ - Titles are tinsel, power a corrupter, glorya bubble, and excessive wealth a libel on its possessor.
+ - I cannot endure the horror, the evil, which comes to self in solitude.
+ - Mild is the slow necessity of death; The tranquil spirit fails beneath its grasp, Without a groan, almost without a fear, Resigned in peace to the necessity; Calm as a voyager to some distant land, And full of wonder, full of hope as he.
+ - The everlasting universe of things Flows through the mind, and rolls its rapid waves, Now dark – now glittering – now reflecting gloom – Now lending splendour, where from secret springs The source of human thought its tribute brings.
+ - For this is the most civil sort of lie That can be given to a man’s face. I now Say what I think.
+ - I arise from dreams of thee, And a spirit in my feet Has led me- who knows how? To thy chamber-window, Sweet!
+ - In the infancy of society every author is necessarily a poet.
+ - Before man can be free, and equal, and truly wise, he must cast aside the chains of habit and superstition; he must strip sensuality of its pomp, and selfishness of its excuses, and contemplate actions and objects as they really are.
+ - Reason respects the differences, and imagination the similitudes of things.
+ - And the rose like a nymph to the bath addrest, Which unveiled the depth of her glowing breast, Till, fold after fold, to the fainting air, The soul of her beauty and love lay bare.
+ - If certain Critics were as clearsighted as they are malignant, how great would be the benefit to be derived from their writings!
+ - Jealousy’s eyes are green.
+ - Cold hopes swarm like worms within our living clay.
+ - That sweet sleep which medicines all pain.
+ - The nature of a narrow and malevolent spirit is so essentially incompatible with happiness as to render it inaccessible to the influences of the benignant God.
+ - To be omnipotent but friendless is to reign.
+ - The allegory of Adam and Eve eating of the tree of evil, and entailing upon their posterity the wrath of God and the loss of everlasting life, admits of no other explanation than the disease and crime that have flowed from unnatural diet.
+ - I have drunken deep of joy...
+ - We know not what we do When we speak words.
+ - It is vain philosophy that supposes more causes than are exactly adequate to explain the phenomena of things.
+ - The Pilgrim of Eternity, whose fame Over his living head like heaven is bent, An early but enduring monument, Came, veiling all the lightnings of his song In sorrow.
+ - The cemetery is an open space among the ruins, covered in winter with violets and daisies. It might make one in love with death, to think that one should be buried in so sweet a place.
+ - The thoughts which the word “God” suggests to the human mind are susceptible of as many variations as human minds themselves.
+ - O! I burn with impatience for the moment of the dissolution of intolerance; it has injured me.
+ - My father Time is weak and gray With waiting for a better day; See how idiot-like he stands, Fumbling with his palsied hands!
+ - Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.
+ - Swiftly walk o’er the western wave, Spirit of Night! Out of the misty eastern cave, Where, all the long and lone daylight, Thou wovest dreams of joyand fear, Which make thee terrible and dear, Swift be thy flight!
+ - Thou shoreless flood, which in thy ebb and flow claspest the limits of mortality.
+ - You are now In London, that great sea, whose ebb and flow At once is deaf and loud, and on the shore Vomits its wrecks, and still howls on for more. Yet in its depth what treasures!
+ - For there are deeds which have no form, sufferings which have no tongue.
+ - The young moon has fed Her exhausted horn With the sunset’s fire.
+ - Age cannot Love destroy, But perfidy can blast the flower, Even when in most unwary hour It blooms in Fancy’s bower. Age cannot Love destroy, But perfidy can rend the shrine In which its vermeil splendours shine.
+ - I am convinced that there can be no regeneration of mankind until laughter is put down.
+ - Familiar acts are beautiful through love.
+ - The splendors of the firmament of time May be eclipsed, but are extinguished not; Like stars to their appointed height they climb And death is a low mist which cannot blot The brightness it may veil.
+ - A system could not well have been devised more studiously hostile to human happiness than marriage.
+ - I love Love – though he has wings, And like light can flee.
+ - Thou art Justice ne’er for gold May thy righteous laws be sold As laws are in England thou Shield’st alike the high and low.
+ - What do you think? Young women of rank eat – you will never guess what – garlick!
+ - I know The past and thence I will essay to glean A warning for the future, so that man May profit by his errors, and derive Experience from his folly; For, when the power of imparting joy Is equal to the will, the human soul Requires no other heaven.
+ - Our Adonais has drunk poisonoh! What deaf and viperous murderer could crown Life’s early cup with such a draught of woe?
+ - Where is perfection? Where I cannot reach.
+ - Love’s Pestilence, and her slow dogs of war.
+ - In a drama of the highest order there is little food for censure or hatred; it teaches rather self-knowledge and self-respect.
+ - Thus suicidal selfishness, that blights The fairest feelings of the opening heart, Is destined to decay, whilst from the soil Shall spring all virtue, all delight, all love, And judgment cease to wage unnatural war With passion’s unsubduable array.
+ - O cease! must hate and death return, Cease! must men kill and die? Cease! drain not to its dregs the urn Of bitter prophecy. The world is weary of the past, Oh, might it die or rest at last!
+ - There is no disease, bodily or mental, which adoption of vegetable diet, and pure water has not infallibly mitigated, wherever the experiment has been fairly tried.
+ - Belief is involuntary; nothing involuntary is meritorious or reprehensible. A man ought not to be considered worse or better for his belief.
+ - One nightingale in an interfluous wood Satiate the hungry dark with melody.
+ - I love all waste and solitary places.
+ - Constancy has nothing virtuous in itself, independently of the pleasure it confers, and partakes of the temporizing spirit of vice in proportion as it endures tamely moral defects of magnitude in the object of its indiscreet choice.
+ - Peace is in the grave. The grave hides all things beautiful and good. I am a God and cannot find it there, Nor would I seek it; for, though dread revenge, This is defeat, fierce king, not victory.
+ - I think that the leaf of a tree, the meanest insect on which we trample, are in themselves arguments more conclusive than any which can be adduced that some vast intellect animates Infinity.
+ - In proportion as a man is selfish, so far has he receded from the motive which constitutes virtue.
+ - Whence are we, and why are we? Of what scene The actors or spectators?
+ - What is Love? It is that powerful attraction towards all that we conceive, or fear, or hope beyond ourselves.
+ - No man has a right to disturb the public peace, by personally resisting the execution of a law however bad. He ought to acquiesce, using at the same time the utmost powers of his reason, to promote its repeal.
+ - The great community of mankind had been subdivided into ten thousand communities, each organized for the ruin of the other.
+ - There is a harmony In autumn, and a luster in its sky...
+ - The practice of utter sincerity towards other men would avail to no good end, if they were incapable of practising it towards their own minds. In fact, truth cannot be communicated until it is perceived.
+ - Necessity, thou mother of the world!
+ - Love! dearest, sweetest power! how much are we indebted to thee! How much superior are even thy miseries to the pleasures which arise from other sources!
+ - No one has yet been found resolute enough in dogmatizing to deny that Nature made man equal; that society has destroyed this equality is a truth not more incontrovertible.
+ - I am not much of a hand at love songs, you see I mingle metaphysics with even this, but perhaps in this age of Philosophy that may be excused.
+ - Men must reap the things they sow, Force from force must ever flow.
+ - Their errors have been weighed and found to have been dust in the balance; if their sins were as scarlet, they are now white as snow: they have been washed in the blood of the mediator and the redeemer, Time.
+ - The crime of inquiry is one which religion never has forgiven.
+ - There is no real wealth but the labor of people. Were the mountains of gold and silver, the world would not be one grain of corn the richer; no one comfort would be added to the human race.
+ - Love is free; to promise for ever to love the same woman is not less absurd than to promise to believe the same creed; such a vow in both cases excludes us from all inquiry.
+ - Those who inflict must suffer, for they see The work of their own hearts, and this must be Our chastisement or recompense.
+ - Poets, not otherwise than philosophers, painters, sculptors, and musicians, are, in one sense, the creators, and, in another, the creations, of their age.
+ - The intense atom glows A moment, then is quenched in a most cold repose.
+ - What! alive, and so bold, O earth?
+ - Lie bills and calculations much perplexed, With steam-boats, frigates, and machinery quaint Traced over them in blue and yellow paint.
+ - He hath awakened from the dream of life.
+ - It is not a merit to tolerate, but rather a crime to be intolerant.
+ - Until the mind can love, and admire, and trust, and hope, and endure, reasoned principles of moral conduct are seeds cast upon the highway of life which the unconscious passenger tramples into dust.
+ - It is among men of genius and science that atheism alone is found.
+ - There is no sport in hate where all the rage Is on one side.
+ - Ah! what a divine religion might be found out if charity were really made the principle of it instead of faith.
+ - And bid them love each other and be blest: And leave the troop which errs, and which reproves, And come and be my guest, – for I am Love’s.
+ - Whatever strengthens and purifies the affections, enlarges the imagination, and adds spirit to sense, is useful.
+ - I could lie down like a tired child, And weep away the life of care Which I have borne, and yet must bear.
+ - But hope will make thee young, for Hope and Youth Are children of one mother, even Love.
+ - The old laws of England they Whose reverend heads with age are gray, Children of a wiser day; And whose solemn voice must be Thine own echo Liberty!
+ - We live and move and think; but we are not the creators of our own origin and existence. We are not the arbiters of every motion of our own complicated nature; we are not the masters of our own imaginations and moods of mental being.
+ - Is it not odd that the only generous person I ever knew, who had money to be generous with, should be a stockbroker.
+ - Think ye by gazing on each other’s eyes To multiply your lovely selves?
+ - In fact, the truth cannot be communicated until it is perceived.
+ - The most fertile districts of the habitable globe are now actually cultivated by men for animals, at a delay and waste of aliment absolutely incapable of calculation.
+ - Where art thou, beloved To-morrow? When young and old, and strong and weak, Rich and poor, through joy and sorrow, Thy sweet smiles we ever seek, – In thy place – ah! well-a-day! We find the thing we fled – To-day!
+ - The wise want love; and those who love want wisdom.
+ - Chastity is a monkish and evangelical superstition, a greater foe to natural temperance even than unintellectual sensuality; it strikes at the root of all domestic happiness, and consigns more than half of the human race to misery.
+ - Words are but holy as the deeds they cover.
+ - The odious and disgusting aristocracy of wealth is built upon the ruins of all that is good in chivalry or republicanism; and luxury is the forerunner of a barbarism scarcely capable of cure.
+ - So is Hope Changed for Despair-one laid upon the shelf, We take the other. Under heaven’s high cope Fortune is god-all you endure and do Depends on circumstance as much as you.
+ - If a person’s religious ideas correspond not with your own, love him nevertheless.
+ - Within my heart is the lamp of love, And that is day!
+ - Oh, that the wise from their bright minds would kindle Such lamps within the dome of this dim world That the pale name of priest might shrink and dwindle Into the Hell from which it first was furled.
+ - The same means that have supported every other popular belief have supported Christianity. War, imprisonment, and falsehood; deeds of unexampled and incomparable atrocity have made it what it is.
+ - Truth has always been found to promote the best interests of mankind.
+ - When a thing is said to be not worth refuting you may be sure that either it is flagrantly stupid – in which case all comment is superfluous – or it is something formidable, the very crux of the problem.
+ - Fame, power, and gold, are loved for their own sakes – are worshipped with a blind, habitual idolatry.
+ - Whatever may be his true and final destination, there is a spirit within him at enmity with nothingness and dissolution. This is the character of all life and being.
+ - The conceptions which any nation or individual entertains of the God of its popular worship may be inferred from their own actions and opinions, which are the subjects of their approbation among their fellow-men.
+ - The discussion of any subject is a right that you have brought into the world with your heart and tongue. Resign your heart’s blood before you part with this inestimable privilege of man.
+ - The flood of time is rolling on; We stand upon its brink, whilst they are gone To glide in peace down death’s mysterious stream. Have ye done well?
+ - Religion pervades intensely the whole frame of society, and is according to the temper of the mind which it inhabits, a passion, a persuasion, an excuse, a refuge; never a check.
+ - It is impossible that had Buonaparte descended from a race of vegetable feeders that he could have had either the inclination or the power to ascend the throne of the Bourbons.
+ - Of Planets, struggling fierce towards heaven’s free wilderness.
+ - This is Heaven, when pain and evil cease, and when the Benignant Principle, untrammelled and uncontrolled, visits in the fulness of its power the universal frame of things.
+ - A poet, as he is the author to others of the highest wisdom, pleasure, virtue, and glory, so he ought personally to be the happiest, the best, the wisest, and the most illustrious of men.
+ - And many more Destructions played In this ghastly masquerade, All disguised, even to the eyes, Like Bishops, lawyers, peers, or spies.
+ - Every fanatic or enemy of virtue is not at liberty to misrepresent the greatest geniuses and most heroic defenders of all that is valuable in this mortal world.
+ - Man who man would be, must rule the empire of himself.
+ - O’er Egypt’s land of memory floods are level, And they are thine, O Nile! and well thou knowest The soul-sustaining airs and blasts of evil, And fruits, and poisons spring where’er thou flowest.
+ - The Galilean is not a favorite of mine. So far from owing him any thanks for his favor, I cannot avoid confessing that I owe a secret grudge to his carpentership.
+
+347 quotes

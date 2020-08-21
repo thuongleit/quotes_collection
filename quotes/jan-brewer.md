@@ -1,0 +1,24 @@
+ - My mother always told me that as you go through life, no matter what you do, or how you do it, you leave a little footprint, and that’s your legacy.
+ - And you know, it’s not just illegal immigration. Terrorists can come across. They’re devastating our ranchers down in southern Arizona – drop houses, kidnapping, automobile accidents, extortion, drugs, the spill-over with the drug cartels. We’re facing all of it.
+ - I believe in the right to life.
+ - A nation without borders is like a house without walls – it collapses. And that is what is going to happen to our wonderful America.
+ - I don’t believe any person looking for work is fearful of political judgment. Government is a large institution, and if they believe that people are going to get rid of good employees for political reasons, that’s absurd.
+ - I always tried to do what I believed is right and I’ve always voted the way that I believe was the right way for my constituency, and that’s what I’m doing when I govern.
+ - Our law enforcement agencies have found bodies in the desert, either buried or just lying out there, that have been beheaded.
+ - Sometimes I haven’t understood why he has done things and why things happened, but I know that God has a plan.
+ - Arizona, our beautiful state, was built on mining. Copper is huge here, and now uranium. And then we have the federal government coming in, writing all these rules and regulations and telling us that we can’t do this and we can’t do that. We need concise, clear answers.
+ - Arizona, our beautiful state, was built on mining.
+ - President Obama and Hillary Clinton, every time you disagree with them it doesn’t matter which subject it is, you’re a bigot or you’re a racist.
+ - The Democrats complain; I choose to compete.
+ - I have a pretty good record of winning in court.
+ - Texas has done a very good job of securing their borders with the help of the federal government. California has done a good job.
+ - I am encouraged that there’s going to be much better dialogue between the federal government and the state of Arizona. I mean, I hope that’s not wishful thinking.
+ - I took an oath to protect the people of Arizona, and that’s what I’m going to do. I’m going to keep pushing in that direction.
+ - I as an elected official would never recommend anybody to boycott any city or state.
+ - Government just simply can’t do everything for everyone.
+ - I think that there’s a liberal element out there that finds me not acceptable. They don’t like my stance on a lot of issues because I am conservative.
+ - I believe boycotts are wrong.
+ - Arizona is now recognized as a premier place in which to locate, expand and grow a business.
+ - I don’t think Americans would tolerate profiling.
+
+22 quotes

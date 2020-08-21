@@ -1,0 +1,349 @@
+ - You are the hero of your own story.
+ - All the gods, all the heavens, all the hells, are within you.
+ - We must be willing to let go of the life we planned so as to have the life that is waiting for us.
+ - Follow your bliss and the universe will open doors for you where there were only walls.
+ - The cave you fear to enter holds the treasure you seek.
+ - Life has no meaning. Each of us has meaning and we bring it to life. It is a waste to be asking the question when you are the answer.
+ - If you are falling, dive.
+ - Find a place inside where there’s joy, and the joy will burn out the pain.
+ - The privilege of a lifetime is being who you are.
+ - Your sacred space is where you can find yourself over and over again.
+ - A hero is someone who has given his or her life to something bigger than oneself.
+ - If the path before you is clear, you're probably on someone else's.
+ - Opportunities to find deeper powers within ourselves come when life seems most challenging.
+ - The big question is whether you are going to be able to say a hearty yes to your adventure.
+ - I don’t believe people are looking for the meaning of life as much as they are looking for the experience of being alive.
+ - If you do follow your bliss you put yourself on a kind of track that has been there all the while, waiting for you, and the life that you ought to be living is the one you are living. Follow your bliss and don’t be afraid, and doors will open where you didn’t know they were going to be.
+ - There is perhaps nothing worse than reaching the top of the ladder and discovering that you're on the wrong wall.
+ - Life is not a problem to be solved but a mystery to be lived. Follow the path that is no path, follow your bliss.
+ - The job of an educator is to teach students to see vitality in themselves.
+ - The fates lead him who will; him who won't they drag.
+ - The call to adventure signifies that destiny has summoned the hero.
+ - Your life is the fruit of your own doing. You have no one to blame but yourself.
+ - Passion will move men beyond themselves, beyond their shortcomings, beyond their failures.
+ - Regrets are illuminations come too late.
+ - Suddenly you’re ripped into being alive. And life is pain, and life is suffering, and life is horror, but my god you’re alive and its spectacular.
+ - People forget facts, but they remember stories.
+ - The ultimate dragon is within you, it is your ego clamping you down.
+ - The dark night of the soul comes just before revelation.
+ - The goal of life is to make your heartbeat match the beat of the universe, to match your nature with Nature.
+ - To find your own way is to follow your bliss.
+ - The warrior’s approach is to say ‘yes’ to life: ‘yes’ to it all.
+ - If you can see your path laid out in front of you step by step, you know it’s not your path. Your own path you make with every step you take. That’s why it’s your path.
+ - Life is like arriving late for a movie, having to figure out what was going on without bothering everybody with a lot of questions, and then being unexpectedly called away before you find out how it ends.
+ - When you follow your bliss, you begin to meet people who are in the field of your bliss, and they open the doors to you.
+ - He who thinks he knows, doesn’t know. He who knows that he doesn’t know, knows.
+ - Every hero must have the courage to be alone, to take the journey for himself.
+ - If you are on the right path you will find that invisible hands are helping.
+ - Truth is one, the sages speak of it by many names.
+ - There is what I would call the hero journey, the night sea journey, the hero quest, where the individual is going to bring forth in his life something that was never beheld before.
+ - I think the person who takes a job in order to live – that is to say, for the money – has turned himself into a slave.
+ - You don’t ask what a dance means. You enjoy it. You don’t ask what the world means. You enjoy it. You don’t ask what you mean. You enjoy it.
+ - In choosing your god, you choose your way of looking at the universe. There are plenty of Gods. Choose yours.
+ - No one in the world was ever you before, with your particular gifts and abilities and possibilities.
+ - Every story you tell is your own story.
+ - All religions are true but none are literal.
+ - We’re so engaged in doing things to achieve purposes of outer value that we forget the inner value, the rapture that is associated with being alive, is what it is all about.
+ - A dream is your creative vision for your life in the future. A goal is what specifically you intend to make happen. Dreams and goals should be just out of your present reach but not out of sight. Dreams and goals are coming attractions in your life.
+ - Nothing is exciting if you know what the outcome is going to be.
+ - The key to the Grail is compassion, ‘suffering with,’ feeling another’s sorrow as if it were your own. The one who finds the dynamo of compassion is the one who’s found the Grail.
+ - You’ve got to find the force inside you.
+ - Life is without meaning. You bring the meaning to it. The meaning of life is whatever you ascribe it to be. Being alive is the meaning.
+ - Respect your curses, for they are the instruments of your destiny.
+ - Whatever the hell happens, say, ‘This is what I need.’
+ - Sit in a room and read – and read and read. And read the right books by the right people. Your mind is brought onto that level, and you have a nice, mild, slow-burning rapture all the time.
+ - The function of artists is “the mythologization of the world.”
+ - At the darkest moment comes the light.
+ - If you follow your bliss you will find a path laid out before you that has been waiting for you all along and you will begin to live the life you ought to be living.
+ - The place to find is within yourself.
+ - Nothing can happen to you that is not positive. Even though it looks and feels at the moment like a negative crisis, it is not. The crisis throws you back, and when you are required to exhibit strength, it comes.
+ - First you must find your trajectory, and then comes the social coordination.
+ - Breaking out is following your bliss pattern, quitting the old place, starting your hero journey, following your bliss. You throw off yesterday as the snake sheds its skin.
+ - The images of Myth are reflections of Spiritual and Depth potentialities of every one of us. Through contemplating those we evoke those powers in our own lives to operate through ourselves.
+ - You can’t have creativity unless you leave behind the bounded, the fixed, all the rules.
+ - We are kept out of the Garden by our own fear and desire in relation to what we think to be the goods of our life.
+ - It is within you that the divine lives.
+ - There is no way you can use the word “reality” without quotation marks around it.
+ - In marriage you are not sacrificing yourself to the other person. You are sacrificing yourself to the relationship.
+ - The call to adventure is the point in a person’s life when they are first given notice that everything is going to change, whether they know it or not.
+ - It is by going down into the abyss that we recover the treasures of life. Where you stumble, there lies your treasure.
+ - The god you worship is the one you’re capable of becoming.
+ - How to get rid of ego as dictator and turn it into messenger and servant and scout, to be in your service, is the trick.
+ - A bit of advice Given to a young Native American At the time of his initiation: As you go the way of life, You will see a great chasm. Jump. It is not as wide as you think.
+ - When an idea is important to a person or culture it will find its way into imagery.
+ - We save the world by being alive ourselves.
+ - Life is a guy trying to play a violin solo in public, while learning the music and his instrument at the same time.
+ - Participate joyfully in the sorrows of life.
+ - The conquest of fear yields the courage of life. That is the cardinal initiation of every heroic adventure – fearlessness and achievement.
+ - A temple is a landscape of the soul.
+ - There is no security in following the call to adventure.
+ - The ultimate aim of the quest must be neither release nor ecstasy for oneself, but the wisdom and the power to serve others.
+ - If you want to see what a society really believes in, look at what the biggest buildings on the horizon are dedicated to.
+ - The goal is to live with God like composure on the full rush of energy, like Dionysus riding the leopard, without being torn to pieces.
+ - Myths are public dreams, dreams are private myths.
+ - And that Aha! that you get when you see an artwork that really hits you is, ‘I am that.’ I am the very radiance of energy that is talking to me through this painting.
+ - When we talk about settling the world’s problems, we’re barking up the wrong tree. The world is perfect. It’s a mess. It has always been a mess. We’re not going to change it. Our job is to straighten out our own lives.
+ - Is the system going to flatten you out and deny you your humanity, or are you going to be able to make use of the system to the attainment of human purposes?
+ - Life is but a mask worn on the face of death. And is death, then, but another mask? ‘How many can say,’ asks the Aztec poet, ‘that there is, or is not, a truth beyond?’
+ - The object becomes aesthetically significant when it becomes metaphysically significant.
+ - You yourself are participating in the evil, or you are not alive. Whatever you do is evil for somebody. This is one of the ironies of the whole creation.
+ - All the old bindings are broken. Cosmological centers now are anywhere and everywhere. The earth is a heavenly body, most beautiful of all, and all poetry is now archaic that fails to match the wonder of this view.
+ - The schizophrenic is drowning in the same waters in which the mystic swims with delight. Edgar Cayce made the same observation in his readings.
+ - What the artist must render is a living moment somehow, a living moment actually in action or an inward experience.
+ - The black moment is the moment when the real message of transformation is going to come. At the darkest moment comes the light.
+ - The hero journey is inside of you; tear off the veils and open the mystery of your self.
+ - Sin always finds it’s root in our own selfish desires and self-gratification.
+ - The function of the society is to cultivate the individual. It is not the function of the individual to support society.
+ - Instead of clearing his own heart the zealot tries to clear the world.
+ - When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
+ - We keep thinking of deity as a kind of fact, somewhere; God as a fact. God is simply our own notion of something that is symbolic of transcendence and mystery. The mystery is what’s important.
+ - If you live with the myths in your mind, you will find yourself always in mythological situations. They cover everything that can happen to you. And that enables you to interpret the myth in relation to life, as well as life in relation to myth.
+ - When everything is lost, and all seems darkness, then comes the new life and all that is needed.
+ - Follow your bliss. The heroic life is living the individual adventure. There is no security in following the call to adventure. Nothing is exciting if you know what the outcome is going to be.
+ - The very cave you are afraid to enter turns out to be the source of what you are looking for.
+ - Computers are like Old Testament gods; lots of rules and no mercy.
+ - The Deadheads are doing the dance of life and this I would say is the answer to the atom bomb.
+ - Wherever the poetry of myth is interpreted as biography, history, or science, it is killed.
+ - Don’t do anything that isn’t play.
+ - I think of mythology as the homeland of the muses, the inspirers of art, the inspirers of poetry. To see life as a poem and yourself participating in a poem is what the myth does for you.
+ - We’re not on our journey to save the world but to save ourselves. But in doing that you save the world. The influence of a vital person vitalizes.
+ - The Navajo have that wonderful image of what they call the pollen path. The Navajo say, ‘Oh, beauty before me, beauty behind me, beauty to the right of me, beauty to the left of me, beauty above me, beauty below me, I’m on the pollen path.’
+ - You enter the forest at the darkest point, where there is no path. Where there is a way or path, it is someone else’s path. You are not on your own path. If you follow someone else’s way, you are not going to realize your potential.
+ - For we have not even to risk the adventure alone, for the heros of all time have gone before us...
+ - Love is perfect kindness.
+ - Wisdom and foolishness are practically the same. Both are indifferent to the opinions of the world.
+ - Myth is much more important and true than history. History is just journalism and you know how reliable that is.
+ - Follow your bliss and don’t be afraid, and door will open where you didn’t know they were going to be.
+ - Participate joyfully in the sorrows of the world. We cannot cure the world of sorrows, but we can choose to live in joy.
+ - You know the rule: If you are falling, dive. Do the thing that has to be done.
+ - What will they think of me? Must be put aside for bliss.
+ - You must have a room, or a certain hour or so a day, where you don’t know what was in the newspapers that morning a place where you can simply experience and bring forth what you are and what you might be.
+ - I should have said, ‘Follow your blisters.’
+ - Where you stumble and fall, there you will find gold.
+ - A one sentence definition of mythology? Mythology is what we call someone else’s religion.
+ - Mythology is often defined as ‘other peoples’ religions’, religion can be thought of as misinterpreted mythology.
+ - Perhaps some of us have to go through dark and devious ways before we can find the river of peace or the highroad to the soul’s destination.
+ - It’s only when a man tames his own demons that he becomes the king of himself if not of the world.
+ - The idea of the Bodhisattva is the one who out of his realization of transcendence participates in the world. The imitation of Christ is joyful participation in the sorrows of the world.
+ - One can experience an unconditional affirmation of life only when one has accepted death, not as contrary to life, but as an aspect of it.
+ - The priests used to say that faith can move mountains, and nobody believed them. Today the scientists say that they can level mountains, and nobody doubts them.
+ - What you have to do, you do with play. The universe is God’s play.
+ - The seat of the soul is where the inner world and the outer world meet.
+ - Awe is what moves us forward.
+ - Mythology helps you to identify the mysteries of the energies pouring through you. Therein lies your eternity.
+ - The demon that you can swallow gives you it’s power, and the greater life’s pain, the greater life’s reply.
+ - Every religion is true one way or another. It is true when understood metaphorically. But when it gets stuck in its own metaphors, interpreting them as facts, then you are in trouble.
+ - Mythological symbols touch and exhilarate centers of life beyond the reach of vocabularies of reason and coercion.
+ - If you want to change the world, you have to change the metaphor.
+ - Love is the burning point of life, and since all life is sorrowful, so is love. The stronger the love, the more the pain. Love itself is pain, you might say -the pain of being truly alive.
+ - Every religion, every mythology is true in this sense: It is true as metaphorical of the human and cosmic mystery.
+ - The purpose of the journey is compassion. When you have come past the pairs of opposites, you have reached compassion.
+ - A hero is not a champion of things become, but of things becoming; the dragon to be slain by him is precisely the monster of the status quo.
+ - If you’re going to have a story, have a big story, or none at all.
+ - The latest incarnation of Oedipus, the continued romance of Beauty and the Beast, stand this afternoon on the corner of 42nd Street and Fifth Avenue, waiting for the traffic light to change.
+ - Survival is the second law of life. The first is that we are all one.
+ - Poetry comes out of an elite experience, the experience of people whose ears are opened to the song of the universe.
+ - The last act in the biography of the hero is that of the death or departure.
+ - Every people is a chosen people in its own mind. And it is rather amusing that their name for themselves usually means mankind.
+ - When we follow our bliss, we are met by a thousand unseen helping hands.
+ - Money is congealed energy, and releasing it releases life’s possibilities.
+ - To find your own way is to follow your bliss. This involves analysis, watching yourself and seeing where real deep bliss is – not the quick little excitement, but the real deep, life-filling bliss.
+ - Apocalypse does not point to a fiery Armageddon, but to our ignorance and complacency coming to an end.
+ - At first you might find that nothing happens there. But if you have a sacred space and use it, eventually something will happen. Your sacred space is where you find yourself again and again.
+ - The old skin has to be shed before the new one can come.
+ - Everything starts with a story.
+ - Whether you call someone a hero or a monster is all relative to where the focus of your consciousness may be.
+ - We need myths that will identify the individual not with his local group but with the planet.
+ - The ground of being is the ground of our being, and when we simply turn outward, we see all of these little problems here and there. But, if we look inward, we see that we are the source of them all.
+ - Both the artist and the lover know that perfection is not loveable. It is the clumsiness of a fault that makes a person lovable.
+ - Marriage is not a simple love affair, it’s an ordeal, and the ordeal is the sacrifice of ego to a relationship in which two have become one.
+ - The realms of the gods and demons – heaven, purgatory, hell – are of the substance of dreams. Myth, in this view, is the dream of the world.
+ - God is a metaphor for that which transcends all levels of intellectual thought. It’s as simple as that.
+ - Writer’s block results from too much head. Cut off your head. Pegasus, poetry, was born of Medusa when her head was cut off. You have to be reckless when writing. Be as crazy as your conscience allows.
+ - Through dreams a door is opened to mythology, since myths are of the nature of dreams, and that, as dreams arise from an inward world unknown to waking consciousness, so do myths: so, indeed, does life.
+ - You become mature when you become the authority of your own life.
+ - We know that Jesus could not have ascended to heaven because there is no physical heaven anywhere in the universe. Even ascending at the speed of light, Jesus would still be in the galaxy.
+ - The insecure way is the secure way.
+ - Myths are so intimately bound to culture, time, and place that unless the symbols, the metaphors, are kept alive by constant recreation through the arts, the life just slips away from them.
+ - The entire heavenly realm is within us, but to find it we have to relate to what’s outside.
+ - The adventure of the hero is the adventure of being alive.
+ - What’s made up in the head is the fiction. What comes out of the heart is a myth.
+ - There is a condescension on the part of the infinite to the mind of man. That is what looks like God.
+ - All life stinks and you must embrace that with compassion.
+ - When you are required to exhibit strength, it comes.
+ - The adventure is always and everywhere a passage beyond the veil of the known into the unknown; the powers that watch at the boundary are dangerous; to deal with them is risky; yet for anyone with competence and courage the danger fades.
+ - The dance is the highest symbol of life itself.
+ - A hero ventures forth from the world of common day into a region of supernatural wonder. Fabulous forces are there encountered and a decisive victory is won.
+ - Myths are clues to the spiritual potentialities of the human life.
+ - You have been thinking one way. Now you have to think a different way.
+ - What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?
+ - Myth is what we call other people’s religion.
+ - The best things cannot be told because they transcend thought. The second best are misunderstood because they are the thoughts that are supposed to refer to that which cannot be thought about. The third best are what we talk about.
+ - We are standing on a whale fishing for minnows.
+ - Every myth is psychologically symbolic. Its narratives and images are to be read, therefore, not literally, but as metaphors.
+ - Successful marriage is leading innovative lives together, being open, non-programmed. It’s a free fall: how you handle each new thing as it comes along. As a drop of oil on the sea, you must float, using intellect and compassion to ride the waves.
+ - God is an intelligible sphere-a sphere known to mind, not to the senses-whose center is everywhere and whose circumference nowhere.
+ - Art is the clothing of a revelation.
+ - The experience of Eternity right here and now, is the function of life.
+ - The myth does not point to a fact; the myth points beyond facts to something that informs the fact.
+ - Gods suppressed become devils, and often it is these devils whom we first encounter when we turn inward.
+ - The world is full of people who have stopped listening to themselves or have listened only to their neighbors to learn what they ought to do, how they ought to behave, and what the values are they should be living for.
+ - The familiar life horizon has been outgrown: the old concepts, ideals, and emotional patterns no longer fit; the time for the passing of a threshold is at hand.
+ - Poets are simply those who have made a profession ans a lifestyle of being in touch with their bliss.
+ - Economics and politics are the governing powers of life today, and that’s why everything is so screwy.
+ - The goal of life is rapture. Art is the way we experience it.
+ - Follow your inner heart and the world moves in and helps.
+ - The idea of Buddha consciousness is that all beings are Buddha beings, and your whole function in meditation and everything else is to find that Buddha consciousness within and live out of that, instead of the interests of the eyes and ears.
+ - Behind all these manifestations is the one radiance, which shines through all things. The function of art is to reveal this radiance through the created object.
+ - What each must seek in his life never was on land or sea. It is something out of his own unique potentiality for experience, something that never has been and never could have been experienced by anyone else.
+ - It has always been the prime function of mythology and rite to supply the symbols that carry the human spirit forward.
+ - Our life evokes our character. You find out more about yourself as you go on. That’s why it’s good to put yourself in situations that will evoke your higher nature rather than your lower.
+ - What we are really living for is the experience of life, both the pain and the pleasure.
+ - It’s characteristic of democracy that majority rule is understood as being effective not only in politics but also in thinking. In thinking, of course, the majority is always wrong.
+ - The experience of eternity right here and now is the function of life. Heaven is not the place to have the experience; here is the place to have the experience.
+ - Life will always be sorrowful. We can’t change it, but we can change our attitude toward it.
+ - It is not society which is to guide and save the creative hero, but precisely the reverse.
+ - No tribal rite has yet been recorded which attempts to keep winter from descending; on the contrary: the rites all prepare the community to endure, together with the rest of nature, the season of the terrible cold.
+ - People who don’t have a concept of the whole can do very unfortunate things.
+ - If you realize what the real problem is-losing yourself-you realize that this itself is the ultimate trial.
+ - God is within you! You yourself are the creator. If you find that place within you from which you brought this thing about, you will be able to live with it and affirm it, perhaps even enjoy it, as your life.
+ - Where is your bliss station? You have to try to find it.
+ - The perfect human being is uninteresting.
+ - Not all who hesitate are lost. The psyche has many secrets in reserve. And these are not disclosed unless required.
+ - There’s nothing militant about Jesus. I don’t read anything like that in any of the gospels. Peter drew his sword and cut off the servant’s ear, and Jesus said, “Put back thy sword, Peter.” But Peter has had his sword out and at work ever since.
+ - Change the focus of the eye. When you have done that, then the end of the world as you formerly knew it will have occurred, and you will experience the radiance of the divine presence everywhere, here and now.
+ - A myth doesn’t have to be real to be true.
+ - The modern hero-deed must be that of questing to bring to light again the lost Atlantis of the co-ordinated Soul.
+ - I think of compassion as the fundamental religious experience and, unless that is there, you have nothing.
+ - The less there is of you, the more you experience the sublime.
+ - Now, when Luke Skywalker unmasks his father, he is taking off the machine role that the father has played. The father was the uniform. That is power, the state role.
+ - Life is without meaning. You bring the meaning to it.
+ - The influence of a vital being vitalizes.
+ - If you want to find out what it means to have a society without any rituals, read the New York Times.
+ - Great Brahma from his mystic heaven groans, And all his priesthood moans.
+ - The sin of inadvertence, not being alert, not quite awake, is the sin of missing the moment of life-live with unremitting alertness.
+ - What is a god? A god is a personification of a motivating power of a value system that functions in human life and in the universe.
+ - When before the beauty of a sunset or a mountain, you pause and exclaim, ‘Ah,’ you are participating in divinity.
+ - Out of perfection nothing can be made. Every process involves breaking something up.
+ - All we really want to do is dance.
+ - Art is the set of wings to carry you out of your own entanglement.
+ - The folktale is the primer of the picture-language of the soul.
+ - Dream is the personalized myth, myth the depersonalized dream.
+ - If marriage isn’t a first priority in your life, you’re not married.
+ - Vegetarians are people who cannot hear tomatos screaming.
+ - And so Galahad decided that it would be a disgrace to set off on a quest with the other knights. Alone he would enter the dark forest where there was no path. This is the myth of The Hero’s Journey.
+ - The best we can do is lean towards the light.
+ - Our true reality is in our identity and unity with all life.
+ - You have to learn to recognize your own depth.
+ - Essentially, mythologies are enormous poems that are renditions of insights, giving some sense of the marvel, the miracle and wonder of life.
+ - You must have a place to which you can go in your heart, your mind, or your house, almost every day, where you do not owe anyone and where no one owes you – a place that simply allows for the blossoming of something new and promising.
+ - We are the consciousness of the earth. We are the eyes of the earth. The voice of the earth.
+ - So that’s what destiny is: simply the fulfillment of the potentialites of the energies in your own system.
+ - The one radiance shines through all things.
+ - He must put aside his pride, his virtue, beauty and life and bow or submit to the absolutely intolerable.
+ - Your ego is your embodiment and your self is your potentiality and that’s what you listen to when you listen for the voice of inspiration and the voice of ‘What am I here for? What can I possibly make of myself?’
+ - The hero, therefore, is the man or woman who has been able to battle past his personal and local historical limitations.
+ - The world is full of people who have stopped listening to themselves.
+ - If you can see your path clearly in front of you, it’s probably someone else’s.
+ - An old Apache storyteller reminds us.
+ - The creative act is not hanging on, but yielding to a new creative movement. Awe is what moves us forward.
+ - Let the world be as it is and learn to rock with the waves.
+ - There seem to be only two kinds of people: Those who think that metaphors are facts, and those who know that they are not facts. Those who know they are not facts are what we call “atheists,” and those who think they are facts are “religious.” Which group really gets the message?
+ - The quest for fire occurred not because anyone knew what the practical uses for fire would be, but because it was fascinating.
+ - Anything you do has a still point. When you are in that still point, you can perform maximally.
+ - The departure from the world is regarded not as a fault, but as the first step into that noble path at the remotest turn of which illumination is to be won.
+ - When people get married because they think it’s a long-time love affair, they’ll be divorced very soon, because all love affairs end in disappointment. But marriage is a recognition of a spiritual identity.
+ - Myths are the world’s dreams. They are archetypal dreams and deal with great human problems. Myths and dreams come from the same place. They come from realizations of some kind that then have to find expression in symbolic form.
+ - Eternity is not future or past. Eternity is a dimension of now. It is a dimension of the human spirit – which is eternal. Find that eternal dimension in yourself, and you will ride through time, and throughout the whole length of your days.
+ - The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience – that is the hero’s deed.
+ - I don’t have to have faith, I have experience.
+ - In the absence of an effective general mythology, each of us has his private, unrecognized, rudimentary, yet secretly potent pantheon of dreams.
+ - Heroism is a matter of integrity – beco ming more and more at each step ourselves.
+ - This is an important point about symbols: they do not refer to historical events; they refer through historical events to spiritual or psychological principles and powers that are of yesterday, today, and tomorrow, and that are everywhere.
+ - Freud tells us to blame our parents for all the shortcomings of our life, Marx tells us to blame the upper class of our society. But the only one to blame is oneself.
+ - There’s always the possibility of a fiasco. But there’s also the possibility of bliss.
+ - The Fates guide those who will and drag those who won’t!
+ - There is no make-believe about heaven, future bliss, and compensation, to alleviate the bitter majesty, but only utter darkness, the void of unfulfillment, to receive and eat back the lives that have been tossed forth from the womb only to fail.
+ - The Greeks, it will be recalled, regarded Eros, the god of love, as the eldest of the gods; but also as the youngest, born fresh and dewy-eyed in every living heart.
+ - If you want the whole thing, the gods will give it to you. But you must be ready for it.
+ - Any disaster you can survive is an improvement in your character, your stature, and your life.
+ - I think it’s important to live life with a knowledge of its mystery, and of your own mystery.
+ - If you have a sacred place and use it, take advantage of it, something will happen.
+ - You know, when real trouble comes your humanity is awakened. The fundamental human experience is that of compassion.
+ - At such moments, you realize that you and the other are, in fact, one. It’s a big realization. Survival is the second law of life. The first is that we are all one.
+ - Any god who can invent hell is no candidate for the Salvation Army.
+ - You have to strive every minute to get rid of the life that you have planned in order to have the life that’s waiting to be yours. Move, move, move.
+ - If you are to advance, all fixed ideas must go.
+ - The perfect human being is uninteresting-the Buddha who leaves the world, you know. It is the imperfections of life that are lovable.
+ - The seizure of passionate love can be, in such a context, only illicit, breaking in upon the order of one’s dutiful life in virtue as a devastating storm.
+ - This is all I ever wanted – to help students and artists see myth as a reflection of the one sublime adventure of life, and then to breathe new life into it.
+ - All babies are Buddha babies.
+ - Preachers err by trying to talk people into belief; better they reveal the radiance of their own discovery.
+ - You’ve got to say yes to this miracle of life as it is, not on condition that it follow your rules.
+ - Man was not breathed into the earth. Man came out of the earth.
+ - I always tell my students follow your bliss. When you have that feeling then stay with it and don’t let anyone throw you off.
+ - A woman is a vehicle of life. Life has overtaken her. Woman is what it is all about-the giving of birth and the giving of nourishment.
+ - If you follow someone else’s way, you are not going to realize your potential.
+ - The function of the artist is the mythologization of the culture and the world. In the visual arts there were two men whose work handled mythological themes in a marvelous way: Paul Klee and Pablo Picasso.
+ - There is an Indian fable of three beings who drank from a river: one was a god, and he drank ambrosia; one was a man, and he drank water; and one was a demon, and he drank filth. What you get is a function of your own consciousness.
+ - When you make the sacrifice in marriage, you’re sacrificing not to each other but to unity in a relationship.
+ - They thought that it would be a disgrace to go forth as a group. Each entered the forest at a point that he himself had chosen, where it was darkest and there was no path. If there is a path it is someone else’s path and you are not on the adventure.
+ - The mighty hero of extraordinary powers, able to lift Mount Govardhan on a finger, and to fill himself with the terrible glory of the universe, is each of us: not the physical self visible in the mirror, but the King within.
+ - You don’t have to believe that there was a King Arthur to get the significance of those stories, but Christians say we have to believe there was a Christ, or the miracles don’t make sense.
+ - When you are on your path, and it is truly your path, doors will open for you where there were no doors for someone else.
+ - I always feel uncomfortable when people speak about ordinary mortals because I’ve never met an ordinary man, woman or child.
+ - When you follow your bliss a kind of track opens up, that’s always been there, waiting for you. And the life that you should be living, is the one that you will be living.
+ - Mythology is the womb of man’s initiation to life and death.
+ - Man actually needs the striving and struggling for some goal worthy of him.
+ - It is not only that there is no hiding place for the gods from the searching telescope and microscope; there is no such society any more as the gods once supported.
+ - There’s nothing you can do that’s more important than being fulfilled. You become a sign, you become a signal, transparent to transcendence; in this way, you will find, live, and become a realization of your own personal myth.
+ - Poets and artists who speak of the mystery are rare.
+ - The best things cannot be told, the second best are misunderstood. After that comes civilized conversation; after that, mass indoctrination; after that, intercultural exchange.
+ - I think what we lack isn’t science, but poetry that reveals what the heart is ready to recognize.
+ - But the makers of legend have seldom rested content to regard the world’s great heroes as mere human beings who broke past the horizons that limited their fellows and returned such boons as any man with equal faith and courage might have found.
+ - What we’re learning in our schools is not the wisdom of life. We’re learning technologies, we’re getting information. There’s a curious reluctance on the part of faculties to indicate the life values of their subjects.
+ - Hell is life drying up.
+ - The senses are a kind of reason. Taste, touch and smell, hearing and seeing, are not merely a means to sensation, enjoyable or otherwise, but they are also a means to knowledge – and are, indeed, your only actual means to knowledge.
+ - When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image.
+ - The process of nature cannot be evil.
+ - Follow your bliss. The heroic life is living the individual adventure.
+ - You have to have a feeling for where you are. You’ve got only one life to live and you don’t have to live it for six people. Pay attention to it.
+ - For if anything is capable of making a poet of a literary man, it is my hometown love of the human, the living and ordinary.
+ - Once you know the difference between right and wrong, you have lots fewer decisions to make.
+ - The role of the artist I now understood as that of revealing through the world-surfaces the implicit forms of the soul, and the great agent to assist the artist was the myth.
+ - The concept of time shuts off eternity.
+ - For people who are really alive to have life awakened is more important than to get a sandwich.
+ - We have today to learn to get back into accord with the wisdom of nature and realize again our brotherhood with the animals and with the water and the sea.
+ - What gods are there, what gods have there ever been, that were not from man’s imagination?
+ - We are having experiences all the time which may on occasion render some sense of this, a little intuition of where your bliss is. Grab it. No one can tell you what it is going to be. You have to learn to recognize your own depth.
+ - Chief Seattle, of the Indians that inhabited the Seattle area, wrote a wonderful paper that has to do with putting oneself in tune with the universe. He said.
+ - One way or another, we all have to find what best fosters the flowering of our humanity in this contemporary life, and dedicate ourselves to that.
+ - The person who thinks he has found the ultimate truth is wrong.
+ - Where there is a way or path, it is someone else’s. Each of us has to find his own way.
+ - Seek to know the power that is within you.
+ - Whenever men have looked for something solid on which to found their lives, they have chosen not the facts in which the world abounds, but the myths of an immemorial imagination.
+ - One looks, looks long, and the world comes in.
+ - Our life evokes our character and you find out more about yourself as you go on.
+ - It is the function of art to carry us beyond speech to experience.
+ - Mythologies, in other words, mythologies and religions are great poems and, when recognized as such, point infallibly through things and events to the ubiquity of a.
+ - Do what gives you bliss.
+ - The adventure evoked a quality of his character that he didn’t know he possessed.
+ - Without passion, men are not willing to pay any price or bear any burden to set the captives free.
+ - Making the inner meet the outer is the function of the artist.
+ - Love is exactly as strong as life.
+ - The notion of this universe, its heavens, hells, and everything within it, as a great dream dreamed by a single being in which all the dream characters are dreaming too, has in India enchanted and shaped the entire civilization.
+ - The best advise is to take it all as if it had been your intention.
+ - If we fix on the old, we get stuck.
+ - The mind of man, cleansed of secondary and merely temporal concerns, beholds with the radiance of a cleansed mirror a reflection of the rational mind of God.
+ - And if there was no Fall, what then of the need for Redemption? What god was offended and by whom? Some especially touchy cave bear whose skull had been improperly enshrined?
+ - How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly? That is the hero’s ultimate difficult task.
+ - Religon is misunderstood mythology.
+ - Myth must be kept alive. The people who can keep it alive are the artists of one kind or another.
+ - You can’t say life is useless because it ends in the grave.
+ - One great thing about growing old is that nothing is going to lead to anything. Everything is of the moment.
+ - Each of us has capacities. The real trick is knowing the machinery of the boat in which you are crossing the channel.
+ - When people find out what it is that’s ticking in them, they get straightened out.
+ - One of our problems today is that we are not well acquainted with the literature of the spirit. We re interested in the news of the day and the problems of the hour.
+ - Wars and temper tantrums are the makeshifts of ignorance; regrets are illuminations come too late.
+
+347 quotes

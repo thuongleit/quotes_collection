@@ -1,0 +1,158 @@
+ - To change the world, Start with one step. However small, the first step is hardest of all.
+ - Take what you can from your dreams, make them as real as anything.
+ - Don’t burn the day away.
+ - Because life is short but sweet for certain.
+ - Turns out, not where, but who you’re with that really matters.
+ - Eat, drink, and be merry for tomorrow we’ll die.
+ - I will go in this way And find my own way out.
+ - Everyday should be a good day to die.
+ - Every day things change, but basically they stay the same.
+ - Come and relax now, put your troubles down. No need to bear the weight of your worries, just let them all fall away.
+ - Dark clouds may hang on me sometimes, but I’ll work it out...
+ - Don’t you rob yourself of what you’re feeling; don’t rob yourself of all that you could be.
+ - I’m only this far, and only tomorrow leads my way.
+ - The saddest part of the human race is we’re obsessed with this idea of ‘us and them,’ which is really a no-win situation, whether it’s racial, cultural, religious or political.
+ - I hate to admit it, but we’re badass.
+ - Don’t lose the dreams inside your head They’ll only be there until you’re dead Dream.
+ - Tomorrow is no place to place your better days.
+ - I can’t believe that we would lie in our graves wondering if we had spent our living days well. I can’t believe that we would lie in our graves dreaming of things that we might have been.
+ - Oh look at how she listens She says nothing of what she thinks She just goes stumbling through her memories Staring out on to Grey Street.
+ - Love, you drive me to distraction.
+ - Troubles, they may come and go, but good times, they’re the gold.
+ - In your eyes, I see what’s on my mind.
+ - Do what you will, always Walk where you like, your steps Do as you please, I’ll back you up. I remember thinking sometimes we walk sometimes we run away But I know no matter how fast we are running Somehow we keep Somehow we keep up with each other.
+ - Lying on the roof counting the stars that fill the sky I wonder if Someone in the heavens looking back down on me I’ll never know So much space to believe.
+ - I’ll lean on you and you lean on me and we’ll be okay.
+ - I’ll be back ’round again, yes, I’ll walk in time with you, old friend. And we’ll find that place that we had danced in so long ago.
+ - Excuse me please, one more drink Could you make it strong cause I don’t need to think She broke my heart, my grace is gone One more drink and I’ll move on.
+ - We have to be active about kindness and about peace. I’ve always fantasized that it would be great if there was a Department of Peace.
+ - Always walk where you like your steps.
+ - Everything good needs replacing.
+ - So I wonder this, as life billows smoke inside my head This little game where nothing is sure Why would you play by the rules? Who did? You did. You...
+ - The reason I play music is to touch people – for selfish reasons, as well. It feels good to make someone else feel something, whether it’s a kiss, a painting, good idea or it’s a song.
+ - So often we talk about saving the planet, but what we really mean is to save the planet the way it is, so we can live here. So that is can sustain us.
+ - Out of the darkness comes light like a flash You think you can, you think you can Sometimes that is the problem Dream little darling dream.
+ - I think I’m probably a very sad man wrapped in a very joyful package, and I think I’m very resilient, and I think I’m quite generous, sometimes to a fault. And I’m very bad with money, but I don’t see that too much of a flaw.
+ - But then there are magical, beautiful things in the world. There’s incredible acts of kindness and bravery, and in the most unlikely places, and it gives you hope.
+ - I walk into this room All eyes on me now But I do not know the people inside Look straight through me these eyes Seeking more wisdom Than I have to give away.
+ - I go back to South Africa at least once a year, sometimes twice, and usually for a month. And probably, I’m guessing, I’ll spend more time back there as I get older.
+ - Because life is short but sweet for certain We’re climbing two by two To be sure these days continue These things we cannot change.
+ - Nothing is here to stay Everything has to begin and end A ship in a bottle won’t sail All we can do is dream that the wind will blow us across the water A ship in a bottle set sail.
+ - Goodnight moon. Sweet dreams. Smile kindly upon this little blue gum ball of us while we sleep.
+ - What I want is what I’ve not got, but what I need is all around me.
+ - I’m not going to change my ways just to please you, or appease you.
+ - Satellite in my eyes Like a diamond in the sky How I wonder Satellite strung from the moon And the world your balloon Peeping Tom for the mother station.
+ - One sweet world Around this star is spinning One sweet world And in her breath I’m swimming And here we will rest in peace.
+ - When I was a kid growing up in New York, I was pretty unaware of racism. I think when we’re young – before we lose our innocence – we’re sort of unaware of the more flawed qualities of each other.
+ - I was just wondering if you’d come along to hold up my head when my head won’t hold on.
+ - When I step into the light My arms are open wide When I step into the light My eyes searching wildly.
+ - Just knowing that the world is round Here I’m dancing on the ground Am I right side up or upside down? Is this real or am I dreaming?
+ - The world and the universe are far more wonderful if there’s not a puppet master.
+ - You and me have a better time than most can dream of, better than the best.
+ - We have to do much more than believe if we really want to change things.
+ - I’m familiar with that feeling of silence that comes with a very imminent catastrophe, when you know you have absolutely no control over a situation.
+ - You seek up an emotion and your cup is overflowing, you seek up an emotion sometimes your well is dry.
+ - She runs up into the light surprised Her arms are opened Her mind’s eye is Seeing things from a better side than most can dream.
+ - How could I have been anyone other than me?
+ - I don’t think everything is going to get peachy ever. But I think we have to fight for what we believe in.
+ - Funny the way it is, not right or wrong, somebody’s heart is broken, and it becomes your favorite song.
+ - Don’t convince yourself you’re over, don’t convince yourself you’re done, just because the things around you seem heavy, doesn’t mean you can’t get off this ground.
+ - You seek up a big monster for him to fight your wars for you.
+ - In many instances, we are much better at fixing our mistakes after we’ve made them. In some situations, it is easier to sweep things under the rug and forget about them.
+ - Leave the big door open, everyone’ll come around...
+ - I swear by now I’m playing time against my troubles I’m coming slow but speeding.
+ - If I go before I’m old, Oh brother of mine please don’t forget me if I go. Bartender please, fill my glass for me? With the wine you gave Jesus that set him free, after three days in the ground.
+ - Look, here are we on this starry night staring into space, and I must say I feel as small as dust lying down here.
+ - Some might tell you there’s no hope in hand Just because they feel hopeless But you don’t have to be a thing like that You be a ship in a bottle set sail.
+ - She feels like kicking out all the windows And setting fire to this life She could change everything about her using colors bold and bright But all the colors mix together – to grey.
+ - Lying under this spell you cast on me Each moment The more I love you.
+ - I find sometimes it’s easy to be myself, sometimes I find it’s better to be somebody else.
+ - Sitting still as stone watching – watching People walking by you wondering why No one ever stops to talk or thinks about it – if they ever did.
+ - Keep it locked up inside Don’t talk about it Talk about the weather Can’t see the light.
+ - My voice is soft, but oh, my heart roars!
+ - So why would you care To get out of this place? You and me and all our friends, Such a happy human race. Eat, drink and be merry, For tomorrow we die.
+ - Is this not enough? This blessed sip of life Is it not enough? Staring down at the ground Then complain and pray for more from above Greedy little pig.
+ - I was regularly advised not to go into music, that I should give up that foolish dream.
+ - Move into kiss those sweet sugar lips, baby looks just like love.
+ - So let us sleep outside tonight, Lay down in our mother’s arms, for here we can rest safely.
+ - First time I kissed you, I lost my legs.
+ - Life goes on, end of tunnel, TV set Spot in the middle Static fade, statistic bit And soon I fade away, fade away.
+ - And when you wake, you will fly away, holding tight to the legs of all your angels. Goodbye, my love, into your blue, blue eyes.
+ - I don’t understand at best, I cannot speak for all the rest. But you may find a lifetime’s passed you by. Every dog has its day, every day has its way Of being forgotten.
+ - You know she’s gonna leave my broken heart behind her.
+ - A dream is a massive magic trick of the mind. No amount of science could explain away the mysterious wonder.
+ - If you hold on tight to what you think is your thing you may find you re missing all the rest.
+ - If at all God’s gaze falls upon us all it’s with a mischievous grin, look at him.
+ - So the story goes, so I’m told The people he knew were Less than golden hearted Gamblers and robbers Drinkers and jokers, all soul searchers Like you and me.
+ - For a moment this good time would never end You and me Just wasting time I was kissing you You were kissing me love From good day into a moonlight.
+ - She thinks, “Hey, How did I come to this? I dream myself a thousand times around the world, But I can’t get out of this place”
+ - Being able to scream at the top of my lungs in front of people is very therapeutic. It is a great gift for me to be able to do that.
+ - The moon is quite a show off given the chance. The stars make a sound when they shine so bright. Water so blue and so black.
+ - Are you looking for answers, to questions under the stars? If along the way you are growing weary, You can rest with me until a brighter day It’s okay.
+ - Why won’t you run in the rain and play, let the tears splash all over you?
+ - Yorke’s lyrics make me want to give up. I could never in my wildest dreams find something as beautiful as they find for a single song – let alone album after album.
+ - Would you like to play With the thought of a friend In a distant passing stage While you lie around With your hands up and out So resigned you will fall down.
+ - I’m partly obsessed by aging gracefully.
+ - I’m a bit of a caveman – I don’t go out into the digital space very often. I lie facedown on the grass and count how many bugs I can find.
+ - I say my hell is the closet I’m stuck inside.
+ - People in every direction No words exchanged No time to exchange And all the little ants are marching Red and black antennas waving They all do it the same We all do it the same way.
+ - I am who I am who I am who am I Requesting some enlightenment Could I have been anyone other than me?
+ - Good music is good music, and everything else can go to hell.
+ - Success turns a lot of people off. I have a pretty solid sense of joy and respect that irritates people, and can irritate me, too.
+ - Take these chances Place them in a box until a quieter time Lights down, you up and die.
+ - The melodies are always the most important part to me. I am pulled more to the groove than the chord progression. After you find the groove, you find the most simple chord progressions and then sit inside that groove.
+ - I think I am a very kind person. I think I’m joyful, but I could be kinder and I could be more joyful. I do believe peace is a state of grace, and not the absence of violence.
+ - I see you young and soft oh little baby Little feet, little hands, little baby One year of crying and the words creep up inside Creep into your mind So much to say.
+ - I’m glad some people have that faith. I don’t have that faith. If there is a God, a caring God, then we have to figure he’s done an extraordinary job of making a very cruel world.
+ - My songs are like a three-legged dog – you have to get to know them to have any love for them.
+ - Life it seems a struggle between what we think and what we see.
+ - I don’t believe in trickle-down economics. I don’t think that people who have the most are inclined to share it, generally.
+ - There’s a freedom to being young that is harder to come by as time goes on.
+ - I want to figure out a way to not be stupid with money, then make a whole bunch of it, then I want to move to Outer Mongolia. I want to milk a yak. Maybe I’ll just settle for a cow.
+ - It’s funny, I get a little quieter with time. I don’t want to chase my tail and one day repeat myself and repeat myself and one day have kids going to college and not have memories that I should, because I was too busy doing my thing.
+ - I fear that our true motivation is about oil and our own flailing economy; about the failure to destroy Al Qaeda and about revenge.
+ - I grew up in a very politically aware family. My mother always taught me to question everything, never believing anything simply at face value – especially the nicest, most adamant politicians.
+ - Being a white South African, I enjoyed the better things that that country gave to a small percentage of its population.
+ - We look to our leaders once we elect them to either lead us in the right direction or at least not crush us.
+ - I’m a fairly tormented artist, and I’m less willing to indulge myself in self-pity, outside of songwriting.
+ - When I don’t say a word and you know exactly what I mean...
+ - I never went to college – I barely got out of high school.
+ - I don’t want to die, obviously, but really, the wonder of life is amplified by the fact that it ends.
+ - Because one of the properties of music is to entertain and to, I don’t mean this lightly, distract us from the things that pull us down. Music should be not only a source for political ideas but also a source of hope.
+ - It’s a melting pot, southern Africa. You find these cultural collisions that result in art and music, and it’s pretty amazing.
+ - I don’t touch electric guitars. It’s just not my thing – I stick with acoustic guitars only.
+ - I have always been drawn to percussion and drums, to bass and piano, in music much more then I am drawn to the guitar and the other lead instruments.
+ - The idea of God as a fatherly figure who looks down on us and worries about how we’re doing or takes sides when we have fights – it’s more irritating than Santa Claus. The world and the universe are far more wonderful if there’s not a puppet master.
+ - I’m from a very politically and socially conscious family. My mother always made a point of making us look at what was going on around us and take stock of our part in it.
+ - What in the world would I sing for if I had it all?
+ - I use God in my songs a lot but I don’t have a relationship. I don’t know what that means.
+ - I believe in love, but believe it’s love that keeps beating me down.
+ - Well, I’ve been in a few car wrecks.
+ - For me, in songwriting, I have a route I can take. Maybe there’s some forks, I can go this way, this way. But I know those roads. I still have the experience behind me.
+ - I definitely like the oddballs. There’s a song called ‘Little Thing,’ which is the only song that I have recorded that has no words. And it’s the one that I get past my critic inside me.
+ - A friend is always good to have, but a lover’s kiss is better than angels raining down on me.
+ - Remember that there are hundreds of thousands of things you can eat that are not cheese.
+ - Six senses keeping Five around a sense of self.
+ - If you live life, then you become what are.
+ - In so many areas of life, I’m a spaz and incompetent.
+ - I don’t think socialism, and I don’t think warmness and respect are necessarily bad words.
+ - I think we should all talk to our enemies and talk to our friends. Talk! That’s the only way we’ll find solutions.
+ - I always like to have an atlas just so that I can find things out. It’s always good to have an almanac; those sort of things.
+ - If I find something I like, I’ll chase it and see what comes out the other side. Once a song gets momentum and gets away from you, that’s a good sign.
+ - The idea that we’re somehow centrally important to the planet’s existence is pretty comical – although I’d like us to be.
+ - I think some people would say that I do overwhelm the words with the music, and sometimes thank goodness I do.
+ - Isn’t it strange how we move out lives for another day? Like skipping a beat, what if a great wave should wash us all away?
+ - How we can stay faithful to the people that have supported us from the beginning is a thought in my mind. I always want to keep that part of it alive.
+ - I hope that just what I sing about and how I relate to my audience is as much of a political statement as I need to make.
+ - I’ve always been obsessed by visual art as I have been by music personally, but that doesn’t mean anything professionally.
+ - I’m not a real gadgety person. In fact, some people think that I’m kind of primitive.
+ - I feel that I have worked my whole life to get to the point where I should have a good understanding of women.
+ - It is criminal to put our servicemen and women in harm’s way and to put the lives of so many civilians on the line for the misguided frustrations of the Bush administration.
+ - Part of me wishes some of the more obsessive fans would spend a fraction of the time they spend studying the band.
+ - People are not very pro-active in general, I think, because we are too busy rushing blindly towards our own goals.
+ - I’m a very vicious critic of myself.
+ - Probably most of the time I watch children’s movies because my kids are on the bus, so it requires them.
+ - When I listen to my favorite songwriters, they have such simple melodies and chords. I occasionally manage to stop at the right time, but all too often I keep on going until I have way too many notes and words. But that’s just what I do.
+ - I find a therapy in playing music, in many different ways.
+
+156 quotes

@@ -1,0 +1,78 @@
+ - A lack of communication leaves fear and doubt.
+ - I always wanted to play a Greek god in something.
+ - I love Poseidon. His trident – his weapon – is really cool.
+ - I love mythology, grew up loving it. I’m a middle kid, big family, that’s the thing you did in the farm country. I lived in Iowa, I loved mythology. I don’t know, we’re like that.
+ - I’ve got a lot to learn, and I’m very blessed to work with such talented actors. I’m nowhere near my goal. It’s all about applying yourself and taking time to work and train.
+ - With my feelings, I hold a lot in, because I didn’t always have boundaries and people would take advantage of situations because I’m a nice guy.
+ - I love to read. I have a Kindle, and it’s nice to be able to download books that people refer.
+ - I’ve been blessed with a good head on my shoulders and quite a good ability of discernment. I can see through people.
+ - I go to church every Sunday. I’ve always been a believer. I love singing. I don’t have the best voice – I just love getting my emotions out.
+ - People fall out of love, or get married for the wrong reasons. People change. The older generation – they got married and had a kid when they were 20. How do you know who you are when you’re 20?
+ - I have no real tattoos. I wear my bruises and tons of scars as my tattoos.
+ - I love going out for any audition. I’m very professional, I study my stuff, I work on it, and even if I’m not right for the job, so what? I know I did my best.
+ - I’d love to do a movie like ‘The Machinist.’ It’s an extreme movie but it takes you to a place that is quite impressive.
+ - I think fans are just obsessed with the ‘Twilight’ saga and then within it they might have preferences between if they’re Team Jacob, Team Edward or Team Jasper. It just comes down to them loving the whole thing, and if they can get any of the boys from the book they are fine with that.
+ - I want to fly a jet. I’d love to just be in the air and go mach 3 or mach 4. Or, I’d be an underwater salvager. I’ve always been fascinated with the Bermuda Triangle and Atlantis. I love chemistry, also. That’s why acting is so random for me!
+ - I love having candles, especially when you get downtime. I could just pass out seeing the flame flicker with the lights off.
+ - When I’m at craft services, I make the best-tasting,10-layer meat and cheese sandwich with no bread.
+ - I just loved going fast. So I started out with Alka-Seltzer and soda water in a bottle and attached it to the skateboard. That didn’t do much. I would try a leaf blower. I was searching for anything that would go fast. Then, the lawnmower engine.
+ - I’d rather do manual labor than sit behind a desk. And as my grandparents got older, I’d fly out there and help out around the farm. We’d tear barns down; we’d build barns. I’d rather be outside rolling hay or driving the tractors.
+ - I love doing action movies, I love pushing myself to the limit.
+ - It’s all about the quality of the fabric, how soft it is and feeling comfortable in what you’re wearing.
+ - I’m really great with weapons: I did a lot of bo and staff training for ‘Immortals.’ I love knives. I’m a pretty good shot. But I love hand-to-hand combat.
+ - I’m really into extreme sports and just having fun.
+ - I love competition. I thrive on it. I love being able to win the room over before even walking through the door.
+ - When I’m in love with a woman, seeing her in something cozy makes me not want to let go of her when I’m holding her.
+ - I had so many older brothers who beat up on me, so I’m a tough kid. I love mixed martial arts, weapons training, guns, knives, driving fast cars and motorcycles.
+ - When we’re on set, we kind of joke around, and when we’re rehearsing, we change up the scenes and make each other laugh. We lighten up the mood. The blooper reel is going to be amazing on ‘New Moon.’
+ - Twi-moms! I love them, the little cougars!
+ - I’m a comic geek, I love playing video games and I love reading comics.
+ - I’ve never broken a bone in my body, even though I’ve done some extreme things.
+ - I am so fidgety – I swear I have ADD – and I always need to be doing something or being outside, just playing sports.
+ - To be completely honest, I didn’t know ‘Twilight’ was a book.
+ - Actors strive to be part of something like ‘Twilight’ and what ‘Twilight’ is, is unbelievable.
+ - I started out modeling at a young age and surrounded myself with different brilliant minds. I have so many people to get educated from, and I’ve been a sponge.
+ - I was blessed, because I come from a family where they knock you down before you float away. I have a lot of brothers who just make sure we have our feet on the ground, and my mom is a rock star. She is an amazing mother.
+ - I bet on everything. Everything. It’s just like, ‘I bet you I can spin my chair longer.’ Everything, I say ‘I bet you.’ I love to win.
+ - I collect dice and I collect coins. I travel the world so I love dice, I always have dice on me. I collect magnets as well.
+ - You can’t just build a huge chest and arms. You need to work out your body evenly. Otherwise, A, you’ll look weird, and B, it’s not the best for your body.
+ - I love life way too much and find fun in almost anything. I’m a chameleon.
+ - I’ve just always been a coin collector, ever since my grandfather had some ancient coins that he passed down to me, it’s just always been something. I love collecting coins from around the world in my travels but I they don’t really do anything useful anymore, I guess.
+ - My genetics are good, but they aren’t crazy He-Man style.
+ - I don’t have TiVo, but I watch a lot of ‘Judge Judy’ – it makes me happy about my life when I see what the people on that show do.
+ - It’s weird that the world sees modeling as a negative. It just blows my mind how many people think that because I was a model, I think I’m pretty and that I can use my looks to get ahead. I’m not pretty!
+ - I lived in a tiny Midwest town, so I was always looking for adventure.
+ - People are seeing me as the guy who wants to get hurt, who wants to break a bone, get bruises. And that’s how it was growing up with six brothers. I got beat up, and I beat up people.
+ - When you do a movie, it’s like going on a journey. It’s really like the director is the captain of the ship, and that energy, everybody feels.
+ - I always tried to make it a goal to relieve some of the stress my mother went through. I applied myself to school very diligently. I wanted to go out of state so I wouldn’t have to depend on my mother.
+ - What I’ve learned from different designers is that it’s key to be true to who you are and your vision. That’s always been my line of thinking. Working through the whole design process, I don’t want to create something I wouldn’t be proud to wear.
+ - With each movie, we went in trying to explore that character a little deeper, or in a different sense. But, at the same time, there was a comfort in knowing that you know this person.
+ - I used to wear sweats and a T-shirt to auditions, but my agent would yell at me and tell me I had to look nice and presentable. So I had to drop that habit.
+ - I think it’s very important to know what you want to do next versus just leave it up to chance, really position yourself in the right footings to get to where you want to be.
+ - I’ve been very much intrigued by and impressed with women. But I’ve never been intimidated. Even if I make a fool of myself, it’s better to have tried.
+ - I just want to test out all that Kellan is and push him to the limits and create new Kellans.
+ - I’ve had a great run with great projects. I love the film industry. It keeps you young; it really does.
+ - A lot of girls think they have flaws that really aren’t flaws. I’ve never met a girl who was just so secure about everything.
+ - I have always loved fashion, but I have no expertise in it besides being a model.
+ - I have a lot of older brothers who messed up in different ways in my mother’s eyes. So I learned from all of their mistakes.
+ - As long as I can wear something that’s not too tight, I can move in it, it’s not too thick, and I can breathe, it’s great.
+ - You could do a hundred projects and still not have the fans that are there for Twilight.
+ - Even if I make a fool of myself, it’s better to have tried.
+ - I love trying to play the not-confident guy, the guy against my normal character, because that’s when real acting comes into play.
+ - I did Hilary Duff’s ‘With Love’ music video-slash-fragrance ad.
+ - Lucky Justin Timberlake has Jessica Biel. I think she would just be the coolest girl to hang out with.
+ - Producers and studios know what sells. It’s nice to be one of the guys that can help sell a movie by taking his shirt off.
+ - I want to be acting until the day I die. I want to be in movies and working with people who push me to be a better actor. That’s what I look forward to, and that’s what’s important to me.
+ - I love someone who tries to boss me around.
+ - The coolest part about seeing a girl wear something comfortable is the smile that you can just feel coming through from inside her.
+ - I could definitely take someone out with my bare hands.
+ - By no means do I want to be a piece of meat for the rest of my career. It’s funny when you get asked to do a talk show, and then they follow it up with requesting you take your shirt off.
+ - I probably have more friends from ‘Twilight’ than I’ve ever had in my whole life.
+ - I was actually away in Africa doing ‘Generation Kill’ while everyone was auditioning for Twilight. They all had, like, five different auditions: I was so lucky that I came back from Africa just in time and the actor who was playing Emmett fell through, lucky for me!
+ - I love playing the bad guy getting away with stuff. I was that kid who learned from my older brothers who got away with everything by smiling.
+ - I finish so many books it’s amazing. I’m also doing Rosetta Stone, learning some French.
+ - It was really fun to bring that scene to life. I can’t wait to see it at the premiere with the fans.
+ - I don’t really like the gym. I like to fool my body. I run around the beach and then there’s scaffolding so I can just do different pulls-ups there.
+ - You don’t get to Define me, only I can Define me, all I wish from you is to recognize my Definition.
+
+76 quotes

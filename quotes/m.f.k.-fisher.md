@@ -1,0 +1,74 @@
+ - First we eat, then we do everything else.
+ - When shall we live if not now?
+ - I live with carpe diem engraved on my heart.
+ - A writing cook and a cooking writer must be bold at the desk as well as the stove.
+ - War is a beastly business, it is true, but one proof we are human is our ability to learn, even from it, how better to exist.
+ - Children and old people and the parents in between should be able to live together, in order to learn how to die with grace, together. And I fear that this is purely utopian fantasy...
+ - It is all a question of weeding out what you yourself like best to do, so that you can live most agreeably in a world full of an increasing number of disagreeable surprises.
+ - It seems to me that our three basic needs, for food and security and love, are so mixed and mingled and entwined that we cannot straightly think of one without the others.
+ - Wine and cheese are ageless companions, like aspirin and aches, or June and moon, or good people and noble ventures.
+ - One martini is just right. Two martinis are too many. Three martinis are never enough.
+ - Life is hard, we say. An oyster’s life is worse. She lives motionless, soundless, her own cold ugly shape her only dissipation...
+ - Write one good clean sentence and put a period at the end of it. Then write another one.
+ - The oyster leads a dreadful but exciting life. Indeed, his chance to live at all is slim, and if he should survive the arrows of his own outrageous fortune and in the two weeks of his carefree youth find a clean smooth place to fix on, the years afterwards are full of stress, passion, and danger.
+ - There’s a communion of more than our bodies when bread is broken and wine drunk.
+ - It is impossible to think of any good meal, no matter how plain or elegant, without soup or bread in it.
+ - A well-made Martini or Gibson, correctly chilled and nicely served, has been more often my true friend than any two-legged creature.
+ - Digestion is one of the most delicately balanced of all human and perhaps angelic functions.
+ - A pleasant aperitif, as well as a good chaser for a short quick whiskey, as well again for a fine supper drink, is beer.
+ - Sharing our meals should be a joyful and a trustful act, rather than the cursory fulfillment of our social obligations.
+ - I am more modest now, but I still think that one of the pleasantest of all emotions is to know that I, I with my brain and my hands, have nourished my beloved few, that I have concocted a stew or a story, a rarity or a plain dish, to sustain them truly against the hungers of the world.
+ - Cheese has always been a food that both sophisticated and simple humans love.
+ - Sharing food with another human being is an intimate act that should not be indulged in lightly.
+ - When we exist without thought or thanksgiving we are not men, but beasts.
+ - In America we eat, collectively, with a glum urge for food to fill us. We are ignorant of flavour. We are as a nation taste-blind.
+ - An oyster leads a dreadful but exciting life.
+ - There is a communication of more than our bodies when bread is broken and wine is drunk. And that is my answer when people ask me: Why do you write about hunger, and not wars or love.
+ - It must not simply be taken for granted that a given set of ill-assorted people, for no other reason than because it is Christmas, will be joyful to be reunited and to break bread together.
+ - All men are hungry. They always have been. They must eat, and when they deny themselves the pleasures of carrying out that need, they are cutting off part of their possible fullness, their natural realization of life, whether they are rich or poor.
+ - Probably one of the most private things in the world is an egg before it is broken.
+ - I like old people when they have aged well. And old houses with an accumulation of sweet honest living in them are good. And the timelessness that only the passing of Time itself can give to objects both inside and outside the spirit is a continuing reassurance.
+ - Central heating, French rubber goods and cookbooks are three amazing proofs of man’s ingenuity in transforming necessity into art, and, of these, cookbooks are perhaps most lastingly delightful.
+ - Most bereaved souls crave nourishment more tangible than prayers: they want a steak.
+ - No yoga exercise, no meditation in a chapel filled with music will rid you of your blues better than the humble task of making your own bread.
+ - I notice that as I get rid of the protective covering of the middle years, I am more openly amused and incautious and less careful socially, and that all this makes for increasingly pleasant contacts with the world.
+ - Too few of us, perhaps, feel that breaking of bread, the sharing of salt, the common dipping into one bowl, mean more than satisfaction of a need. We make such primal things as casual as tunes heard over a radio, forgetting the mystery and strength in both.
+ - There is a mistaken idea, ancient but still with us, that an overdose of anything from fornication to hot chocolate will teach restraint by the very results of its abuse.
+ - Brioches are a light, pale yellow, faintly sweet kind of muffin with a characteristic blob on top, rather like a mushroom just pushing crookedly through the ground. Once eaten in Paris, they never taste as good anywhere else.
+ - I was horribly self-conscious; I wanted everybody to look at me and think me the most fascinating creature in the world, and yet I died a small hideous death if I saw even one person throw a casual glance at me.
+ - I wrote like a junkie. I had to have my daily fix.
+ - There is no chiropractic treatment, no Yoga exercise, no hour of meditation in a music-throbbing chapel, that will leave you emptier of bad thoughts than this homely ceremony of making bread.
+ - If time, so fleeting, must like humans die, let it be filled with good food and good talk, and then embalmed in the perfumes of conviviality.
+ - On the other hand, a flaccid, moping, debauched mollusc, tired from too much love and loose-nerved from general world conditions, can be a shameful thing served raw upon the shell.
+ - There are may of us who cannot but feel dismal about the future of various cultures. Often it is hard not to agree that we are becoming culinary nitwits, dependent upon fast foods and mass kitchens and megavitamins for our basically rotten nourishment.
+ - Family dinners are more often than not an ordeal of nervous indigestion, preceded by hidden resentment and ennui and accompanied by psychosomatic jitters.
+ - I wrote from the time I was four. It was my way of screaming and yelling, the primal scream. I wrote like a junkie, I had to have my daily fix.
+ - Almost every person has something secret he likes to eat.
+ - Salad is roughage and a French idea.
+ - I cannot count the good people I know who to my mind would be even better if they bent their spirits to the study of their own hungers.
+ - Probably no strychnine has sent as many husbands into their graves as mealtime scolding has, and nothing has driven more men into the arms of other women as the sound of a shrill whine at table.
+ - Probably the most satisfying soup in the world for people who are hungry, as well as for those who are tired or worried or cross or in debt or in a moderate amount of pain or in love or in robust health or in any kind of business huggermuggery, is minestrone.
+ - When I write of hunger, I am really writing about love and the hunger for it, and warmth and the love of it and it is all one.
+ - At present, I myself do not know of any local witches or warlocks, but there are several people who seem to have an uncanny power over food.
+ - A complete lack of caution is perhaps one of the true signs of a real gourmet: he has no need for it, being filled as he is with a God-given and intelligently self-cultivated sense of gastronomical freedom.
+ - Dining partners, regardless of gender, social standing, or the years they’ve lived, should be chosen for their ability to eat – and drink! – with the right mixture of abandon and restraint. They should enjoy food, and look upon its preparation and its degustation as one of the human arts.
+ - In general, I think, human beings are happiest at table when they are very young, very much in love or very alone.
+ - I think that when two people are able to weave that kind of invisible thread of understanding and sympathy between each other, that delicate web, they should not risk tearing it. It is too rare, and it lasts too short a time at best...
+ - I like old people when they have aged well.
+ - In spite of my conviction that a group of deliberately assembled relatives can be one of the dullest, if not most dangerous, gatherings in the world, I am smugly foolhardly enough to have invited all my available family, more than once, to dine with me.
+ - It is easy to think of potatoes, and fortunately for men who have not much money it is easy to think of them with a certain safety. Potatoes are one of the last things to disappear, in times of war, which is probably why they should not be forgotten in times of peace.
+ - There are many people like me who believe firmly, if somewhat incoherently, that pockets on this planet are filled with what humans have left behind them, both good and evil, and that any such spiritual accumulation can stay there forever, past definition of such a stern word.
+ - Dictionaries are always fun, but not always reassuring.
+ - France eats more conciously, more intelligently, than any other nation.
+ - Painting, it is true, was undergoing a series of -isms reminiscent of the whims of a pregnant woman.
+ - I believe that one of the most dignified ways we are capable of, to assert and then reassert our dignity in the face of poverty and war’s fears and pains, is to nourish ourselves with all possible skill, delicacy, and ever-increasing enjoyment.
+ - This is not that, and that is certainly not this, and at the same time an oyster stew is not stewed, and although they are made of the same things and even cooked almost the same way, an oyster soup should never be called a stew, nor stew soup.
+ - I can no more think of my own life without thinking of wine and wines and where they grew for me and why I drank them when I did and why I picked the grapes and where I opened the oldest procurable bottles, and all that, than I can remember living before I breathed.
+ - Between the ages of twenty and fifty, John Doe spends some twenty thousand hours chewing and swallowing food, more than eight hundred days and nights of steady eating. The mere contemplation of this fact is upsetting enough.
+ - When a man is small, he loves and hates food with a ferocity which soon dims. At six years old his very bowels will heave when such a dish as creamed carrots or cold tapioca appear before him.
+ - But if I must be alone, I refuse to be alone as if it were something weak and distasteful, like convalescence.
+ - Good wine, well drunk, can lend majesty to the human spirit.
+ - Almost any normal oyster never knows from one year to the next whether he is he or she, and may start at any moment, after the first year, to lay eggs where before he spent his sexual energies in being exceptionally masculine.
+ - A complete lack of caution is perhaps one of the true signs of a real gourmet...
+
+72 quotes

@@ -1,0 +1,57 @@
+ - What language shall I borrow To thank Thee, dearest Friend, For this, Thy dying sorrow, Thy pity without end? O make me Thine forever, And should I fainting be, Lord, let me never, never Outlive my love for Thee.
+ - Distance not only gives nostalgia, but perspective, and maybe objectivity.
+ - The Black Mountain poet I like most is the early Creeley. Those early poems seem very lyrical and very traditional, with a lot of voice and character.
+ - Southern poets are still writing narrative poems, poems in forms, dramatic poems.
+ - Alchemy is the art of far and near, and I think poetry is alchemy in that way. It’s delightful to distort size, to see something that’s tiny as though it were vast.
+ - We have a lot of long narrative poems written in the 20th century, but they’re not very well known, and they’re not read by very many people.
+ - A lot of my students are Asian-American, and it has been thrilling to watch them break through the stereotypes into something alive and surprising.
+ - I did not have a very literary background. I came to poetry from the sciences and mathematics, and also through an interest in Japanese and Chinese poetry in translation.
+ - Some people want to call me an Appalachian writer, even though I know some people use regional labels to belittle.
+ - One of the most powerful devices is to distort time, to go from human time to atomic time, geologic time. Sometimes you can actually accomplish that, with one unexpected word choice.
+ - If a poem is not memorable, there’s probably something wrong. One of the problems of free verse is that much of the free verse poetry is not memorable.
+ - I seem to keep returning to my father in poems because his personality was so extreme, so driven. He did everything to excess.
+ - The best books of our times have included the three mature volumes of Philip Larkin. They’re very short books of poems, and very carefully arranged.
+ - We don’t want to live in the dark moods of imponderable mystery, but neither do we want to miss them altogether. they allow us to emerge from the tender sadness of the manger to sing with the angels in the skies above...
+ - Young writers find their first audience in little magazines, and experimental writers find their only audience there.
+ - Our most famous writers are Faulkner and Eudora Welty and Flannery O’Connor. It would make sense that the poetry would reflect some of those same values, some of the same techniques.
+ - Philip Larkin has a tough honesty and sense of humor that I find irresistible, as a contemporary poet.
+ - One of the most powerful devices of poetry is the use of distortions. You can go from talking about the way a minute passes to the way a century passes, or a lifetime.
+ - I tell students they will know they are getting somewhere when a scene is so painful they can just barely bring themselves to write about it. A writer has to draw blood.
+ - Maybe the example of Southern fiction writing has been so powerful that Southern poets have sort of keyed themselves to that.
+ - I don’t think poetry is something that can be taught. We can encourage young writers, but what you can’t teach them is the very essence of poetry.
+ - One of the biggest changes that ever occurred in my life was going from the isolation of working part-time as a house painter in Henderson County, to Cornell, where everybody was a literary person.
+ - I write as a way of keeping myself going. You build your life around writing, and it’s what gets you through. So it’s partly just curiosity to see what you can do.
+ - The fact that something is in a rhymed form or in blank verse will not make it good poetry.
+ - A poem in form still has to have voice, gesture, a sense of discovery, a metaphoric connection, as any poetry does.
+ - I love to create interesting textures with language. You can do it as long as it seems like a discovery.
+ - I encourage students to pursue an idea far enough so they can see what the cliches and stereotypes are. Only then do they begin to hit pay dirt.
+ - You have to really dive deep back into yourself and get rid of so much modern analytical categorization. It’s one of the great things poetry does.
+ - Part of what we love about poetry is the fact that it seems ancient, that it has an authority of ancient language and ancient form, and that it’s timeless, that it reaches back.
+ - What actually makes poetry poetry is of course impossible to define. We recognize it when we hear it, when we see it, but we can’t define it.
+ - The young people have MTV and rock and roll. Why would they go to read poetry? Poetry belongs to the Stone Age. It awakens in us perceptions that go back to those times.
+ - Some people swear by writing courses, but whether it really helps American poetry, I have doubts.
+ - Fiction is about intimacy with characters, events, places.
+ - Neither of my parents has been very sensitive about my writing.
+ - In the late 60s and early 70s, I did get interested in voices, and in narration and embodying the voice, making the poem sound like a real person talking.
+ - I learned to impersonate the kind of person that talks about poetry. It comes from teaching, I think.
+ - The decision to write in prose instead of poetry is made more by the readers than by writers. Almost no one is interested in reading narrative in verse.
+ - The great watershed of modern poetry is French, more than English.
+ - With prose you can incorporate more details, develop scenes, sustain the tension in a special way. Prose has its own speed.
+ - The idea of avant-garde art is a very suspicious thing to me, the idea that poetry is new and it keeps being new the way Chevrolets every year are new.
+ - If people associate me with a region, that’s fine with me.
+ - In the best fiction, the language itself can become almost invisible.
+ - Pound’s translation of Chinese poetry was maybe the most important thing I read. Eliot a little bit later.
+ - I don’t think the creative writing industry has helped American poetry.
+ - Young writers only take off when they find their subjects. Since almost everyone has a family and stories about family, that is often a place to start.
+ - Teaching writing over the years intrudes on your own writing in important ways, taking away some of the excitement of poetry.
+ - I considered going to film school; I took a course in film and was very interested in filmmaking as well as film writing.
+ - I don’t think American poetry has gotten any better in the past 35 years. Oddly enough, creative writing programs seem to have been good for fiction, and I would not have predicted that.
+ - Poetry, almost by definition, calls attention to its language and form.
+ - In the later books I am much more at home in the use of language to describe things. I had never thought of that until a critic pointed that out.
+ - The Language Poets are writing only about language itself. The Ashbery poets are writing only about poetry itself. That seems to me a kind of dead end.
+ - When you have an idea for a story, you want those characters to reach as many people as you can. I think you normally think of prose as a way of doing that. It fits our time, the culture.
+ - I have taught students from the New York City area so long I have a special affinity and rapport with them. It surprises me sometimes that there are students from anywhere else.
+ - Among the American contemporaries I read with most enjoyment are several North Carolinians. I think the best poetry being written these days is being written by Southerners.
+ - I think that it’s more likely that in my 60s and 70s I will be writing poetry rather than fiction.
+
+55 quotes

@@ -1,0 +1,55 @@
+ - It’s quite hard to faze me. I’m fairly un-shockable.
+ - It’s nerve-wracking singing in front of people. I think that’s why most people get drunk for karaoke.
+ - People quit on jobs. They quit on marriages. They quit on school. There’s an immediacy of this day and age that doesn’t lend itself to being committed to anything.
+ - I’m such a diva on set.
+ - My objective is that I don’t try to do the same thing. I try not to emulate something I’ve done before. And, I’m a real people watcher, so I like trying to play characters that are as diverse from each other as possible, simply because it’s more fun for me, actually.
+ - It’s always better just to do work that you’re really proud of and work that you enjoy because really all you have are the choices you make and that’s it and who knows after that. I think that’s what I love in acting.
+ - There is absolutely, 100 percent, a light at the end of the tunnel for anyone who stutters.
+ - I find it very strange doing voiceover stuff, because you find you have to enunciate and make stupid faces in order for the point to make sense, because it’s playing against the deadpan Simpson face. If you’re just speaking in the regular way you speak, it will sound really boring.
+ - I had a non-existent knowledge of Queen Victoria’s early years. Like everyone else, I thought of her as an old lady dressed in black. My mom had told me about her, though, that she had a very loving relationship with Albert, that they had lots of kids, and that he died young.
+ - I love ambiguity. People are that way. People are very hard to work out. No one is just strong or just fragile, or anything like that.
+ - I was never a girl that dreamt of being a princess and I never dreamt about my wedding day. I hated pink and I hated fairies. I only liked hanging out with boys. I remember throwing a tantrum if my mum put me in pink. I wasn’t a particularly girly girl.
+ - If you’re very open to watching the world go by, with people’s different tics, you absorb it all without realizing it and find ways to put something into your character. I’m not sure I’m always aware I’m mimicking someone.
+ - It’s very hard to play the straight lead girl and still make her sparkly and fun and real.
+ - I chop a lot of onions because I love cooking, and the times where I’ve never cried chopping onions is when I’m not thinking about it, when I’m talking to someone or I’m listening to music.
+ - To not make any resolutions. Whenever I make them, I wind up ultimately breaking them. I think a lot of people are that way, so I am going to try and avoid inevitable disappointment next year and just not make any.
+ - People just want to know something, anything. It’s all the stuff you never want to talk about, the private stuff.
+ - It’s nice to play someone who is naive.
+ - I’ve always been quite a spontaneous person, so I would lean more towards, if you feel it and you know its right, then do it.
+ - I love character roles. I’m happier in them. I look for roles that have some kind of complexity.
+ - It’s sort of a meat market, the whole awards thing, and I don’t think you can predict it anymore – who’s going to like what you’ve done, if it’s worthy or not. And hopefully, that’s not why you make a film, because if you’re distracted by that, or only striving for that, you don’t do it justice.
+ - When I read a script, I’ll have a very visceral gut reaction to what does this mean to me? How does she feel in my skin? Could I play this role?
+ - It’s funny, because when you work on a set, everyone is watching you. You are being observed by everyone.
+ - If you can capture the humanity of a family struggling in an economic crisis you can make a difference. You can raise awareness just of the simple humanity.
+ - You feel very much like a puppet, but it had been what I was accustomed to – so you just get on with it and try to find something that rings true.
+ - You shouldn’t strategize your career if you’re in a creative realm. You can’t either. I love the unknown. I love the element of surprise. I’ve always felt really inspired by it. I love the spontaneity of the job. I think you can’t really fight against it.
+ - What’s wonderful about Into The Woods is that you have a combination of all the most famous fairytales in this one story.
+ - I really look for asking myself that question, “Oh my God, how am I going to do this?” That’s what I aspire to every time I take on a new role.
+ - I think a shot can actually influence a scene in a huge way. For example, comedy is always better in a two-shot. What’s between the characters is what’s funny. So you learn about these things as you go along.
+ - Watch the History Channel if you want it literal and historically perfect.
+ - Well, you wear underwear. That helps.
+ - I had to learn to dance for ‘The Adjustment Bureau’ and it was nearly impossible. I turned up with my knees knocking in my leotard and went home and cried my eyes out.
+ - It’s a big chip on my shoulder that I have not been to any of his parties – P. Diddy, Diddy Puff. But he was super nice to me. And he does look sharp, that guy. Doesn’t ever go wrong with a suit.
+ - Marriage is something that needs to be worked on every day. I don’t know if I’m the one to give marital advice since I’ve only been married for a little over a year, but marriage is certainly easier if you are open, trusting and loving.
+ - It just proves good movies don’t need 100 million dollars to be good.
+ - I’m with someone who makes me incredibly happy. I’m not one of those people who subscribes to the idea that marriage takes the romance out of things. I think it gets better, it deepens. I love being a wife. We have a blast.
+ - The more we mask ourselves, the freer we’re able to be within ourselves.
+ - Americans are a lot more open, of course. There’s something more declamatory in the way you express emotions. It’s a stereotype but it’s true. British people can appear repressed in expressing emotions. Not very good at self-evaluating, or affirming situations, touching, anything like that.
+ - My personal feeling is that audiences are crying out for stories they can invest in and feel. I see a lot of big movies that leave me feeling rather numb.
+ - I always think that the most interesting characters are those that are trying to cover something or those that have some sense of bravado or composure.
+ - I’m about to do my second Bikram yoga class in Anchorage, Alaska. It’s the only way to stay warm. I’ve got to get into shape. I’ve been eating nothing but fish and chips.
+ - Things happen in the way they usually should. I’m a pretty fatalistic person.
+ - I find that it really helps that I live in the States. I’m married to an American, and I have lots of American friends.
+ - With Ricky Gervais, it’s all shades of wrong, it’s my kind of humor.
+ - I’m a big supporter of Joe Johnston and I think that ‘Captain America’ is going to be really fun and I gather that the story is really interesting. It just wasn’t what I wanted to do next, to be honest.
+ - I’m definitely not a science nerd. That was not my forte at school.
+ - A lot of period dramas can appear quite arch to most people, stuffy.
+ - I do try hard to pick roles that differ. I love that about the job. I think the variety that’s out there is to be taken advantage of and I enjoy that element of shape shifting with everything.
+ - Why should you have to atone for making big movies?
+ - Cate’s absolutely spellbinding. She was like that just eating a sandwich. I knew at the time I was privileged, but since she’s become God’s gift to actresses I realise exactly how lucky I was.
+ - As long as everyone is playing for the scene or the movie, rather than themselves, then you’re going to have something really good.
+ - I’m on a health kick! I’m drawn to cheeseburgers, so I’ve got to just try and keep it on an even keel.
+ - I’m not someone who likes to plan too much ahead.
+ - The performances I enjoy are the ones that are hard to read or ambiguous or left-of-centre because it makes you look closer and that’s what humans are like – quite mysterious creatures, hard to pinpoint.
+
+53 quotes

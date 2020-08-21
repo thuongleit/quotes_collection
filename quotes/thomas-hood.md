@@ -1,0 +1,74 @@
+ - When was ever honey made with one bee in a hive?
+ - Some sigh for this and that; My wishes don’t go far; The world may wag at will, So I have my cigar.
+ - Half of the failures in life come from pulling one’s horse when he is leaping.
+ - O bed! O bed! delicious bed! That heaven upon earth to the weary head.
+ - There is a silence where hath been no sound, There is a silence where no sound may be,- In the cold grave, under the deep, deep sea, Or in the wide desert where no life is found.
+ - It was a childish ignorance, But now ’tis little joy To know I’m further off from heaven Than when I was a boy.
+ - No shade, no shine, no butterflies, no bees, No fruits, no flowers, no leaves, no birds – November!
+ - Frost is the greatest artist in our clime – he paints in nature and describes in rime.
+ - Some dreams we have are nothing else but dreams, Unnatural and full of contradictions; Yet others of our most romantic schemes, Are something more than fictions.
+ - A moment’s thinking is an hour in words.
+ - Alas for the rarity Of Christian charity Under the sun!
+ - Ben Battle was a soldier bold, and used to war’s alarms, But a cannon-ball took off his legs, so he laid down his arms.
+ - What is mind? No matter. What is matter? Never mind. What is the soul? It is immaterial.
+ - I saw old autumn in the misty morn Stand shadowless like silence, listening To silence.
+ - And there is even a happiness That makes the heart afraid.
+ - He lies like a hedgehog rolled up the wrong way, Tormenting himself with his prickles.
+ - But evil is wrought by want of thought, As well as want of heart!
+ - My tears must stop, for every drop Hinders needle and thread.
+ - There is not a string attuned to mirth but has its chord of melancholy.
+ - How bravely Autumn paints upon the sky The gorgeous fame of Summer which is fled!
+ - A man that’s fond precociously of stirring, :;:; Must be a spoon.
+ - Oh! God! That bread should be so dear, and flesh and blood so cheap!
+ - O men with sisters dear, O men with mothers and wives, It is not linen you ‘re wearing out, But human creatures’ lives!
+ - No blessed leisure for love or hope, But only time for grief.
+ - The year’s in wane; There is nothing adorning; The night has no eve, And the day has no morning; Cold winter gives warning!
+ - Whilst breezy waves toss up their silvery spray.
+ - Bells are musics laughter.
+ - Dear bells! how sweet the sound of village bells When on the undulating air they swim!
+ - The Autumn is old; The sere leaves are flying; He hath gather’d up gold, And now he is dying;- Old age, begin sighing!
+ - Extremes meet’, as the whiting said with its tail in its mouth.
+ - Such a blush In the midst of brown was born, Like red poppies grown with corn.
+ - When Eve upon the first of Men The apple press’d with specious cant, Oh! what a thousand pities then That Adam was not Adamant!
+ - Oh would I were dead now, Or up in my bed now, To cover my head now, And have a good cry!
+ - Gold! gold! gold! gold! Bright and yellow, hard and cold!
+ - The cowslip is a country wench.
+ - Oh, if it be to choose and call thee mine, love, thou art every day my Valentine!
+ - Well for the drones of the social hive that there are bees of an industrious turn, willing, for an infinitesimal share of the honey, to undertake the labor of its fabrication.
+ - To attempt to advise conceited people is like whistling against the wind.
+ - Boughs are daily rifled By the gusty thieves, And the book of Nature Getteth short of leaves.
+ - How bless’d the heart that has a friend. A sympathizing ear to lend.
+ - With fingers weary and worn, With eyelids heavy and red, A woman sat in unwomanly rags, Plying her needle and thread.
+ - Some minds improve by travel, others, rather, resemble copper wire, or brass, which get the narrower by going farther.
+ - Our very hopes belied our fears, Our fears our hopes belied; We thought her dying when she slept, And sleeping when she died.
+ - Mother of light! how fairly dost thou go Over those hoary crests, divinely led! Art thou that huntress of the silver bow Fabled of old? Or rather dost thou tread Those cloudy summits thence to gaze below, Like the wild chamois from her Alpine snow, Where hunters never climbed – secure from dread?
+ - The best of friends fall out, and so his teeth had done some years ago.
+ - Coquetry is the champagne of love.
+ - Father of rosy day, No more thy clouds of incense rise; But waking flow’rs, At morning hours, Give out their sweets to meet thee in the skies.
+ - The biggest bore of all is he who is overflowing with congratulations.
+ - Experience enables me to depose to the comfort and blessing that literature can prove in seasons of sickness and sorrow.
+ - Spontaneously to God should turn the soul, Like the magnetic needle to the pole; But what were that intrinsic virtue worth, Suppose some fellow, with more zeal than knowledge, Fresh from St. Andrew’s College, Should nail the conscious needle to the north?
+ - Jasmine is sweet, and has many loves.
+ - She stood breast-high amid the corn Clasp’d by the golden light of morn, Like the sweetheart of the sun, Who many a glowing kiss had won.
+ - How widely its agencies vary,- To save, to ruin, to curse, to bless,- As even its minted coins express, Now stamp’d with the image of Good Queen Bess, And now of a Bloody Mary.
+ - The moon, the moon, so silver and cold, Her fickle temper has oft been told, Now shade – now bright and sunny – But of all the lunar things that change, The one that shows most fickle and strange, And takes the most eccentric range, Is the moon – so called – of honey!
+ - Lives of great men oft remind us as we o’er their pages turn, That we too may leave behind us – Letters that we ought to burn.
+ - Well, something must be done for May, The time is drawing nigh – To figure in the Catalogue, And woo the public eye. Something I must invent and paint; But oh my wit is not Like one of those kind substantives That answer Who and What?
+ - We watch’d her breathing through the night, Her breathing soft and low, As in her breast the wave of life Kept heaving to and fro.
+ - My books kept me from the ring, the dog-pit, the tavern, and the saloon.
+ - Pity it is to slay the meanest thing.
+ - When he is forsaken, Withered and shaken, What can an old man do but die?
+ - The Quaker loves an ample brim, A hat that bows to no salaam; And dear the beaver is to him As if it never made a dam.
+ - Fuss is the froth of business.
+ - Apothegms form a short cut to much knowledge.
+ - Comfort and indolence are cronies.
+ - I resolved that, like the sun, as long as my day lasted, I would look on the bright side of everything.
+ - Sweet are the little brooks that run O’er pebbles glancing in the sun, Singing in soothing tones.
+ - For my part, getting up seems not so easy By half as lying.
+ - For man may pious texts repeat, And yet religion have no inward seat.
+ - A certain portion of the human race has certainly a taste for being diddled.
+ - A name, it has more than nominal worth, And belongs to good or bad luck at birth.
+ - There are three things which the public will always clamor for, sooner or later: namely, novelty, novelty, novelty.
+ - The lily is all in white, like a saint, And so is no mate for me.
+
+72 quotes

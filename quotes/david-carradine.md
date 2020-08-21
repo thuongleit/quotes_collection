@@ -1,0 +1,21 @@
+ - If you trust yourself, any choice you make will be correct. If you do not trust yourself, anything you do will be wrong. – Kung Fu, The Legend Continues -.
+ - There’s an alternative. There’s always a third way, and it’s not a combination of the other two ways. It’s a different way.
+ - There are no good guys in a Quentin Tarantino movie. They’re all bad guys. And you like us. That’s Quentin’s big talent.
+ - Why would you be afraid of death? It would be an inconvenience. I have a lot of undone things and it’s bound to get in the way. But, no, it doesn’t scare me at all.
+ - I don’t need to convince anybody that I know kung fu, but maybe somebody needs to know that I really can act, without doing a Chinese accent or a funny walk.
+ - Tarantino is the coolest damn guy; he’s just so much fun to work with. He might be the best director I’ve ever worked with. He just seems to know how to do it and he knows how to make you feel good about it. He’s having so much fun you start having fun. You can’t help it.
+ - You know, I’ve never actually really believed that death is inevitable. I just think it’s a rumor.
+ - I’m not regretful about dropping acid, but I could have stopped it a little sooner.
+ - I’ve worked with a lot of real heavy hitters, and Quentin is maybe heads and shoulders, at least a forehead, above just about anybody I’ve ever worked with.
+ - It was pretty extensive – we worked out 8 hours a day, 5 days a week, for 3 months, which I think is more than anybody in the Olympics. I thought well I don’t need this, the girls need it, but it was a gift.
+ - My big fight is not in the movie and I don’t understand that decision but I know he’s right about it, whatever it is. Quentin did not hire me because I’m a kung fu expert; he hired me because he liked to listen to me talk.
+ - I was enough of an acrobat and a gymnast and a dancer and everything else so that I could handle the kung fu, because it’s just choreography.
+ - Because you know how you say I’ve got to really get down and really do some training and then of course, you never do or you do it for a couple of weeks and slough it back off again but I’m being forced to do something that I really want to do and I loved it.
+ - One thing I’ve noticed is that I can tell when a young actor or a young actress is going to become a huge star. Everybody else will say, “Oh come on, Michelle Pfeiffer, are you kidding?” and I’m pretty much always right about that.
+ - I remember when I did the pilot, and I though no network is going to want to do this. How could that happen? A half Chinese guy walking the old west that doesn’t fire one gun and never gets on a horse?
+ - I was involved in a web cartoon of Kung Fu with WB a few years back.
+ - But, Tarantino has seen all of my movies. He’s seen my good stuff, he’s seen my bad stuff, he’s seen the ones I directed, he’s read my autobiography. There’s an awful lot of things he knows about me, all of which I think had something to do with his casting.
+ - The success of the ’86 movie with Brandon Lee demanded some kind of continuation. Plus, I had always contemplated a modern version.
+ - Quentin and I were constantly finding something new that we had in common and comic books were one of them. I think we were talking about comic books much earlier in our relationship, before I had the part.
+
+19 quotes

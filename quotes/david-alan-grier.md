@@ -1,0 +1,24 @@
+ - I, myself, identify myself as a heathen.
+ - Some days I think I look kind of cute, but other days I try to avoid the mirror.
+ - America is grappling with cultural diversity, and I just want to put a show on that represents the world in which I live.
+ - I wanted to be a leading man – the black lawyer, the black doctor, the black policeman.
+ - I try to make my bed every day for mental health. Coming home to an unmade bed or a room with clothes all over will depress me.
+ - When I was a kid, I wanted to walk with my dad’s limp – my dad was my hero – but that infuriated him, and he would make me walk back and forth in the living room until I walked without it.
+ - My father contracted polio on a troop train in Korea.
+ - Don’t let anyone try to tell you who you are. Define yourself.
+ - My father was a doctor.
+ - I wanted something where I could have the clearest and most unfiltered artistic and creative voice.
+ - Be talented enough to make it and stupid enough to keep trying.
+ - I never wanted to lose out on an acting job and wonder if I hadn’t been trained enough.
+ - I have a talent for missing the best and greatest parties.
+ - To be known by the public, honestly. People come up and tell them how good I make them feel.
+ - The president is always made fun of.
+ - My grandmother was born in 1900, and she would regale me with tales I call ‘Little House on the Prairie’ tales, but they were tales of segregated and racist America growing up in Alabama and Mississippi, where she came from.
+ - As I get older, my sense of humor is my biggest asset.
+ - I had done the sitcom thing to lesser and lesser degrees of success.
+ - I think Chelsea Handler is the funniest woman.
+ - I decided sitcoms weren’t for me.
+ - Every little kid has always wanted to be a race car driver. This gets some of that out.
+ - I’ve tried actively to define myself and redefine myself, and not be pigeonholed.
+
+22 quotes

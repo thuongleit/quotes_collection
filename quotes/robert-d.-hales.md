@@ -1,0 +1,54 @@
+ - It is not how you start the race or where you are during the race-it is how you cross the finish line that will matter.
+ - If ye love me keep my commandments.
+ - To hope and trust in the Lord requires faith, patience, humility, meekness, long-suffering, keeping the commandments and enduring to the end.
+ - As I recognized the beauty of the earth, I knew that my Heavenly Father loved me.
+ - What is the definition of a friend? Friends are people who make it easier to live the gospel of Jesus Christ.
+ - Light and darkness cannot occupy the same space at the same time.
+ - Pursue your goals with all your heart, might, mind and strength. You are doomed to failure if you pursue them in a vacillating manner.
+ - When we want to speak to God, we pray. And when we want Him to speak to us, we search the scriptures.
+ - In some quiet way, the expression and feelings of gratitude have a wonderful cleansing or healing nature. Gratitude brings warmth to the giver and the receiver alike.
+ - Come walk the path that leads to eternal happiness, joy, and everlasting life in the kingdom of our Heavenly Father.
+ - How we live our religion is far more important than what we may say about our religion.
+ - Each of us has been sent to earth by our Heavenly Father to merit eternal life.
+ - We have not been left alone. We have the light of Christ and the Holy Ghost to lead and guide us in an otherwise very dark and dreary world.
+ - True friends don’t hold us back spiritually or pull us down when we’re trying to rise and progress. True friends protect us. True friends help us be better than we would be on our own.
+ - Be the kind of friend who makes it easier for others to obey the commandments when they are with you.
+ - We sometimes think that being grateful is what we do after our problems are solved, but how terribly shortsighted that is. How much of life do we miss by waiting to see the rainbow before thanking God that there is rain?
+ - Your Heavenly Father needs you. His work, under the direction of our Savior Jesus Christ, needs what you are uniquely prepared to give.
+ - The blessings we enjoy now are because we made the choice to follow the Savior before this life. To everyone hearing or reading these words, whoever you are and whatever your past may be, remember this: it is not too late to make that same choice again to follow him.
+ - When we understand our baptismal covenant and the gift of the Holy Ghost, it will change our lives and will establish our total allegiance to the kingdom of God.
+ - The greatest blessings of general conference come to us after the conference is over. Remember the pattern recorded frequently in scripture: we gather to hear the words of the Lord, and we return to our homes to live them.
+ - To the young members of the Church, I promise that if you will listen, you will feel the Spirit well up within you. The Lord will tell you what He wants you to do with your life.
+ - We learn to endure to the end by learning to finish our current responsibilities, and we simply continue doing it all of our lives. We cannot expect to learn endurance in our later years if we have developed the habit of quitting when things get difficult now.
+ - Sometimes we forget that our Heavenly Father desires that each of us have this joy.
+ - Never make someone have to choose between your ways and the Lord’s ways. And always make sure that you’re making it easier to live God’s commandments for those who are by your side and who are your friends.
+ - Too often we pray to have patience, but we want it right now!
+ - As disciples of Jesus Christ we have a responsibility to work together with like-minded believers, to raise our voices for what is right.
+ - Agency used righteously allows light to dispel the darkness and enables us to live with joy and happiness.
+ - I want to help you “fly right” in the gathering storms of the last days. You are the pilots. You are responsible to think about the consequences of every choice you make. Your righteous choices will keep you from getting off course.
+ - Oh, how we need general conference! Through conferences our faith is fortified and our testimonies deepened. And when we are converted, we strengthen each other to stand strong amid the fiery darts of these last days.
+ - Through the Savior’s Atonement and by following these basic patterns of faithfulness, we receive “power from on high” to face the challenges of life. We need this divine power today more than ever.
+ - Obedience makes us progressively stronger, capable of faithfully enduring tests and trials in the future. Obedience in Gethsemane prepared the Savior to obey and endure to the end on Golgotha.
+ - Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil.
+ - Work together as a family, even if it may be faster and easier to do the job ourselves. Talk with our sons and daughters as we work together.
+ - Every one of us is more beloved than we can possibly understand or imagine. Let us therefore be kinder to one another and kinder to ourselves.
+ - Preparing for the ups and downs of life.
+ - It has always touched my heart to sense so deeply how much the Father loved His eldest son.
+ - We are all welcome to come into the waters of baptism. He was baptized to witness to His Father that He would be obedient in keeping His commandments. He was baptized to show us that we should receive the gift of the Holy Ghost.
+ - We are learning, day by day, about the gift of agency that allows us to experience the consequences, good and bad, of our own choices.
+ - We become converted and spiritually self-reliant as we prayerfully live our covenants-through worthily partaking of the sacrament, being worthy of a temple recommend, and sacrificing to serve others.
+ - When young men prepare, bless, and pass the sacrament in worthiness and reverence, they literally follow the example of the Savior at the Last Supper and become like Him.
+ - Whatever the needs of family members may be, we can strengthen our families as we follow the counsel given by prophets.
+ - Let us not give up on the Lord. His blessings are eternal, not temporary.
+ - We will not fall, we will not fail; for our homes will be founded on Jesus Christ.
+ - The events and prophecies of our time are preparing us for the Savior’s Second Coming.
+ - The gift of the Holy Ghost, given to us when we are confirmed, gives us the ability to discern the difference between the giving ways of the kingdom of God and the taking practices of the world.
+ - We were not sent by Father in Heaven just to be born. We were sent to endure and return to Him with honor.
+ - He set the example for all of us to humble ourselves before our Heavenly Father.
+ - As disciples of Christ, we have a sacred obligation to uphold His laws and commandments and the covenants which we take upon ourselves.
+ - As our understanding of obedience deepens, we recognize the essential role of agency.
+ - The more I live, the more I recognize that the teaching moments in my youth, especially those provided by my parents, have shaped my life and made me who I am. It is impossible to overestimate the influence of parents who understand the hearts of their children.
+ - By choosing to be in His kingdom, we separate – not isolate – ourselves from the world.
+ - Are there times in our lives when we think we have been forsaken by God, or by our fellow men, or by our families? Those are moments when we have to turn to Christ and endure.
+
+52 quotes

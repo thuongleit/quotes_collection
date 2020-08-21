@@ -1,0 +1,97 @@
+ - The one-word cinema wasn’t possible for me anymore. I’d hit a wall, a dead end. Therefore I thought I’d turn back.
+ - In the total darkness, poetry is still there, and it is there for you.
+ - My car is my best friend. My office. My home. My location. I have a very intimate sense when I am in a car with someone next to me. We’re in the most comfortable seats because we’re not facing each other, but sitting side by side.
+ - In order to be universal, you have to be rooted in your own culture.
+ - Close-Up is a very particular film in my oeuvre. It’s a film that was made in a very particular way; mainly because I didn’t really have the time to think about how to go about making the film.
+ - I’ve often noticed that we are not able to look at what we have in front of us, unless it’s inside a frame.
+ - It’s not so much a question of whether we’ve shot it through 35mm or digital video; what is important is whether the audience accepts it as real.
+ - The experience of life teaches us that being like someone in love is more real, because everything is uncertain.
+ - My way of expression is full of complications and mystery because that’s my perception of life.
+ - I think violence can never be justified.
+ - Good cinema is what we can believe and bad cinema is what we can’t believe. What you see and believe in is very much what I’m interested in.
+ - Religion works on some people but not on everyone, because it says, ‘Stop thinking and accept what I tell you.’ That’s not valid for people who want to think and reflect.
+ - Children are very strong and independent characters and can come up with more interesting things than Marlon Brando, and it’s sometimes very difficult to direct or order them to do something.
+ - I only make notes, I don’t write dialogues in full. And the notes are very much based on my knowledge of person.
+ - As film-makers, it is very important for us to find common ground between cultures, and maybe that’s less the case for politicians who benefit more from finding the conflicts and differences between us.
+ - There are certainties in existence, but love is something much harder to define than light and dark, life and death. I think saying you are “like” someone in love sounds right.
+ - I think life is so difficult to catch, it’s so furtive, that a copy, a film, can in no way catch it and represent it.
+ - Film is very much a universal and common voice, and we can’t limit it to one particular culture.
+ - Cinema gives you the opportunity to be both a grandparent and a grandchild whereas in life you cannot be both at the same time.
+ - This kind of directing, I think, is very similar to being a football coach. You prepare your players and place them in the right places, but once the game is on, there’s nothing much you can do – you can smoke a cigarette or get nervous, but you can’t do much.
+ - This concept that you refer to in Buddhism is something I’ve been nurtured with through the history of my country for 700, 800 years – Persian poets and philosophers haven’t said anything different with regard to experiencing life in the moment, as opposed to the belief of permanence.
+ - People have curiosity, they have intelligence, they have interest in understanding their peers. But producers and directors of cinema have decided that the seats in the theaters have been made to transform people’s minds to lazy minds.
+ - It’s true that the best way of knowing yourself is to put yourself into different situations.
+ - I have no advice for anyone on how to live.
+ - Of the hundreds of points to enter and exit that are offered to me, I have to choose the one that I feel is the least wrong, the least fake. It is fake, it is a moment that I choose to erupt the story, but I make it as smooth as I can. What enables me to do it is the skill of filmmaking.
+ - When I find the character, I try to spend time with them and get to know them very well. Therefore my notes are not from the character that I had in my mind before, but are instead based on the people I’ve met in real life.
+ - Cinema seats make people lazy. They expect to be given all the information. But for me, question marks are the punctuation of life.
+ - My films have been progressing towards a certain kind of minimalism, even though it was never intended. Elements which can be eliminated have been eliminated.
+ - A movie is about human beings, about humanity.
+ - Directors don’t always create, they can also destroy with too many demands.
+ - I never reflect or convey that which I have not experienced myself.
+ - When we start shooting I don’t have rehearsals with characters at all. So, rather than pulling them towards myself, I travel closer to them; it’s very much closer to the real person than anything I try to create. So I give them something but I also take from them.
+ - The only thing that I can do is hold a mirror in front of men and women, in front of the viewer in the theater, to reflect. There is nothing but reflection that I could intend to offer the viewer of the film.
+ - There were years when Hitchcock was like a master to me, but now I think he’s so artificial. I can watch films and say how technically beautiful they are, but I’m not impressed by any technicality.
+ - I thought that I had been asked every kind of question possible.
+ - Anything I’ve not experienced I do not look to for a subject. I have to feel it.
+ - When I talk to some of the younger filmmakers, they are so worried about their films that, eventually, this state of being worried reflects itself in and helps the final work. Whereas, with projects that are meticulously planned, you look at the end result and it is full of emptiness.
+ - I believe there’s only good cinema and bad cinema.
+ - I prefer the films that put their audience to sleep in the theater. Some films have made me doze off in the theater, but the same films have made me stay up at night, wake up thinking about them in the morning, and keep on thinking about them for weeks.
+ - I never really learned photography.
+ - I really think that I don’t mind people sleeping during my films, because I know that some very good films might prepare you for sleeping or falling asleep or snoozing. It’s not to be taken badly at all.
+ - If you are a businessman or a politician in Iran, you can get a visa as quickly as you ask for it.
+ - I have somewhat lost my enthusiasm in the last years. Mainly because film students using digital video these days have not really produced anything which is more than superficial or simplistic; so I have my doubts.
+ - The digital camera has given me total freedom and a different way of filming.
+ - It is a very important film, Life And Nothing More, in that what was filmed was inspired by a journey I had made just three days after an earthquake. And I speak not only of the film itself but also of the experience of being in that place, where only three days before 50,000 people had died.
+ - Close-Up has affected later films that I’ve made.
+ - I thought that choosing a non-professional was a condition for me, because it would allow Juliette to have a less-professional way of acting. It would challenge her performance as a professional actress.
+ - I do believe that a film like Ten could never have been made with a 35mm camera. The first part of the film lasts 17 minutes, and by the end of that part, the kid has totally forgotten the camera.
+ - A work of art doesn’t exist outside the perception of the audience.
+ - In real life, when someone’s partner calls them, they can tell from the first word their partner says what their mood is.
+ - I think I really produce my best work in Iran.
+ - I don’t like reverse-angle shots – I find them very fake and very untruthful to the viewer.
+ - In order to be able to cooperate with a child, you have to come down to below their level in order to communicate with them. Actors are also like children.
+ - I would be too selfish if I said everyone should see my movies more than once. To say that would mean I’m just marketing my work!
+ - The day we run out of petrol is the day Iran will be free.
+ - It’s very true that non-actors feel more comfortable in front of a digital camera, without the lights and the large crowd around them, and we arrive at much more intimate moments with them.
+ - I was mentioning with the digital camera, maybe this new fashion of filmmaking gives a closer look of what life may be like. But it’s still nothing but a copy.
+ - In my opinion the man looks at the relationship in a more bitter fashion and the woman still holds great hopes.
+ - Using non-actors has its own rules and really requires that you allow them to do their own thing.
+ - I think that if you’re a digital thinker, you can use a digital camera.
+ - I think being someone in love is so hard to define, so temporary, because retrospectively we often deny the state in which we were in love.
+ - We are nothing but a link between our culture and what we can actually produce.
+ - My last experience of film-making was Tickets, a three-episode film in Italy, the third of which is directed by myself. It’s not for me to judge whether it’s a good film or a bad film, but what I could say is that nobody had a cultural or linguistic issue with what was produced.
+ - I’m still very grateful to digital cameras in general, but I didn’t have this feeling with the RED one.
+ - While shooting Ten I was sitting in the backseat, but I didn’t interfere. Sometimes, I was following in another car, so I was not even present on the “set”, because I thought they would work better in my absence.
+ - If I do continue to have the opportunity to work in Iran, that’s very much what I’d prefer to do.
+ - The Iranian government as a whole has no relationship with my films. They’re not particularly interested, perhaps this kind of cinema is not very interesting to them.
+ - I think Woody Allen is Woody Allen, and no matter where he goes he still makes his Woody Allen films.
+ - Everybody knows that I am not usually patient enough to actually sit down and watch one of my own films from the beginning to the end – I never do.
+ - When I met Akira Kurosawa in Japan, one question he asked me was, “How did you actually make the children act the way they do? I do have children in my films but I find that I reduce and reduce their presence until I have to get rid of them because there’s no way that I can direct them.”
+ - A digital camera does have many advantages and I was a believer that digital video would be a big influence on film-making.
+ - Therefore, when you see the end result, it’s difficult to see who’s the director, me or them. Ultimately, everything belongs to the actors – we just manage the situation.
+ - I prefer the countryside to cities. This is also true of my films: I have made more films in rural societies, and villages, than in towns.
+ - I really haven’t seen The Report in a long time. I don’t have a copy, but I’ll have to see it again. I think it would be good to put both these men next to each other.
+ - It seems that film-makers are being divided between those working in digital and those who are not. I think it’s not something predetermined – it all depends on what project we have in mind, and on that basis we choose the medium.
+ - I don’t generally derive my stories from novels. I try to turn into film things I have felt or experienced.
+ - In my mind, there isn’t as much of a distinction between documentary and fiction as there is between a good movie and a bad one.
+ - Despite the great advantages of digital video and the great ease of using the medium, still those who use it have first to understand the sensitivities of how to best use the medium.
+ - I think, just as footballers play better at home, maybe film-makers, too, create better at home, even though the rules of football are the same wherever you go.
+ - As long as I take the responsibility of the choice, I have to make the choice that is as right as possible.
+ - I really enjoy listening to stories. I remember them and keep them in my mind.
+ - I can only display what I’ve been nurtured with, which is this worldview which has become my view. If I displayed anything different from it in my work, I wouldn’t deserve this heritage.
+ - In my films, I try to give people as little information as possible, which is still much more than what they get in real life. I feel that they should be grateful for the little bit of information I give them.
+ - I spend a lot of time doing carpentry. Sometimes there is nothing that gives me the contentment that sawing a piece of wood does.
+ - In my experience as a director, I think there is obviously something of the way men – maybe that’s a common point with Shirin – the way men see women in the film, and the way these two characters see each other.
+ - I’m not sure that my films show the reality of life in Iran; we show different aspects of life. Iran is a very extensive and expansive place, and sometimes, even for us who live there, some of the realities are very hard to comprehend.
+ - I do think that we are sometimes, as directors, guilty of portraying or asking our actors to behave in certain ways that are perhaps not very morally acceptable. I’m not the only one.
+ - Whether you consider me a master filmmaker or not, I do it with my intuition and my vision, my experience as a storyteller.
+ - This was pointed out to me by somebody who referred to the paintings of Rembrandt and his use of light: some elements are highlighted while others are obscured or even pushed back into the dark. And it’s something that we do – we bring out elements that we want to emphasise.
+ - I wasn’t searching for a common denominator – I started wondering about the challenge of working in other cultures. What I reached was the sudden acknowledgment of the universal aspect of filmmaking.
+ - If we’re not going to take full advantage of digital, then 35mm is a better medium. Especially for shooting dramas – I have no problem with 35mm.
+ - Unfortunately, cinema critics are very few in America, 400-500 people, but there are more critics of Iran.
+ - Having an international voice is not really about whether we speak Persian or any other language.
+ - As soon as people enter a theater they must become moron consumers who must be fed information.
+ - I don’t have very complete scripts for my films. I have a general outline and a character in my mind, and I make no notes until I find the character who’s in my mind in reality.
+
+95 quotes

@@ -1,0 +1,23 @@
+ - The truth is that people – many people are concerned about this, but this is not the first time in America this has happened. There were a significant number of people who didn’t want Jewish refugees before World War II, or even during World War II.
+ - I said, we should allow no Syrian refugees into the country, not even women or children.
+ - Go head Taggert. Take your best shot.
+ - It is lunacy to be bringing refugees into this country who may be terrorists trying to murder Americans.
+ - Trying to turn the Congress the President on the Iran deal, – it’s one thing to do that – it’s a giant moment in Israeli politics to decide to do that.
+ - Donald Trump has been getting favorable comments from white supremacists, from American Nazis. And any explanation of Donald Trump’s rise that does not include those facts is a false analysis.
+ - The rise of Donald Trump is explained not so much by the hatred of Muslims, but rather the hatred of just one Muslim. The one who is not a Muslim.
+ - Safety concerns are reasonable. Banning refugees is certainly not.
+ - Do away with the corporate loopholes that allow major profitable corporations to stash their money in the Cayman Islands and not pay a nickel in some cases in federal income taxes.
+ - My Worst Political Move of the 2015 Year. John Boehner inviting Benjamin Netanyahu to address the joint session of Congress.
+ - According to an analysis by the Tax Policy Center, Donald Trump’s tax plan is going to increase the national debt by more than 50 percent over ten years.
+ - The screening in the United States is the toughest screening of any country in the world in terms of refugees, that accepts refugees. And of course there are those that don’t accept any, or ever have, no matter what kind they are.
+ - I will never forget the day in Washington when I met John Lewis by phone when he called me to ask about something. And the phone just shook in my hand. I couldn’t believe that John Lewis was on the other end of the line.
+ - Donald Trump did his usual softball interview on “Fox News” where the interviewer agreed with Trump that using that Yiddish vulgarity is going to be OK for him.
+ - When you look at that debate stage, Mitt Romney could have dominated it maybe.
+ - Donald J. Trump is calling for a total and complete shutdown of Muslims entering the United States.
+ - You have two people who I would classify as extremists. Donald Trump because of his behavior and Ted Cruz because of his views, leading the Republican Party.
+ - According to the international organization for migration, more than 1 million migrants have arrived in Europe this year, the most since World War II. Half of them were Syrian.
+ - I think most Republicans would rather win this election than have transformation.
+ - We’re going to raise the estate tax for wealthy, very wealthy people.
+ - Donald Trump would not lose a single voter over any report indicating that his tax plan might not work.
+
+21 quotes

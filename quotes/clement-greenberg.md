@@ -1,0 +1,37 @@
+ - All profoundly original art looks ugly at first.
+ - If you want to change your art, change your habits.
+ - The main trouble with avant-garde art and literature, from the point of view of fascists and Stalinists, is not that they are too critical, but that they are too “innocent,” that it is too difficult to inject effective propaganda, that kitsch is more pliable to this end.
+ - Where Picasso paints cause, Repin paints effect. Repin predigests art for the spectator and provides a short cut to the pleasure of art that is necessarily difficult in genuine art. Repin, or kitsch, is synthetic art.
+ - With an ‘advanced’ artist, it’s not now possible to make a portrait.
+ - Art solves nothing, either for the artist himself or for those who receive his art.
+ - Nothing could be further from the authentic art of our time than the idea of a rupture of continuity. Art is – among other things – continuity, and unthinkable without it.
+ - Complete honesty has nothing to do with ‘purity’ or naivety. The full truth is unattainable to naivety, and the completely honest artist is not pure in heart.
+ - The dissolution of the pictorial into sheer texture, into apparently sheer sensation, into an accumulation of repetitions, seems to speak for and answer something profound in contemporary sensibility.
+ - Realistic, naturalistic art had dissembled the medium, using art to conceal art; Modernism used art to call attention to art.
+ - You like it, that’s all, whether it’s a landscape or abstract. You like it. It hits you. You don’t have to read it. The work of art-sculpture or painting-forces your eye.
+ - Kitsch is Mechanical and operates by formulas.
+ - The reality of art is disclosed only in experience, not in reflection upon experience.
+ - The paradox in the evolution of French painting from Courbet to Cezanne is how it was brought to the verge of abstraction in and by its very effort to transcribe visual appearance with ever greater fidelity.
+ - Kitsch is deceptive. It has many different levels, and some of them are high enough to be dangerous to the naive seeker of true light.
+ - Where the Old Masters created an illusion of space into which one could imagine walking, the illusion created by a Modernist is one into which one can look, can travel through, only with the eye.
+ - The avant-garde poet or artist tries in effect to imitate God by creating something valid solely on its own terms.
+ - Decoration is asked to be ‘merely’ pleasing, ‘merely’ embellishing, and the ‘functional’ logic of Modernism leaves no room, apparently, for such ‘mereness.’ This is part of the pity of Modernism, one of the sacrifices it enjoins...
+ - The precondition for kitsch, is the availability of a fully matured cultural tradition, whose discoveries kitsch can take advantage of for its own ends. It draws its lifeblood, so to speak, from this reservoir of accumulated experience.
+ - Photography is the most transparent of the art mediums devised or discovered by man. It is probably for this reason that it proves so difficult to make the photograph transcend its almost inevitable function as document and act as a work of art as well.
+ - For every good art critic there may be ten great artists.
+ - A poor life is lived by any one who doesn’t regularly take time out to stand and gaze, or sit and listen, or touch, or smell, or brood, without any further end in mind, simply for the satisfaction gotten from what is gazed at, listened to, touched, smelled, or brooded upon.
+ - Part of the triumph of modernist poetry is, indeed, to have demonstrated the great extent to which verse can do without explicit meaning and yet not sacrifice anything essential to its effect as art. Here, as before, successful art can be depended upon to explain itself.
+ - The superior artist is the one who knows how to be influenced.
+ - The peasant finds no “natural” urgency within himself that will drive him toward Picasso in spite of all difficulties. In the end the peasant will go back to kitsch when he feels like looking at pictures, for he can enjoy kitsch without effort.
+ - Once efficiency is universally accepted as a rule, it becomes an inner compulsion and weighs like a sense of sin, simply because no one can ever be efficient enough, just as no one can ever be virtuous enough.
+ - Art is a matter strictly of experience, not of principles and what counts first and last in art is quality, all other things are secondary.
+ - A large picture can give us images of things, but a relatively small one can best re-create the instantaneous unity of nature as a view – the unity of which the eyes take in at a single glance.
+ - When you don’t like something the words come more readily.
+ - I don’t get into ‘becauses.’ When you come into a studio you see a number of works. My habit is to go to the one I like most. If you start to say, ‘because,’ you get into art jargon.
+ - The difficulty of carrying on a leisure-oriented tradition of culture in a work-oriented society is enough in itself to keep the present crisis in our culture unresolved.
+ - I myself happen to find, on the basis of experience and nothing else, that photography can be a high art.
+ - Not all, but too many of the best writers, composers, and artists of our time begin to be acclaimed only when they no longer have anything to say and take to performing instead of stating.
+ - One is also reminded of how, in art, the tortoise so often overtakes the hare...
+ - It has become apparent that art can have a startling impact without really being or saying anything startling – or new. The character itself of being startling, spectacular, or upsetting has become conventionalized, part of safe good taste.
+
+35 quotes

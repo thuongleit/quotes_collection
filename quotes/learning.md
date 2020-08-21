@@ -1,0 +1,42 @@
+ - Learn continually. There’s always “one more thing” to learn. ~~Steve Jobs
+ - Learning never exhausts the mind. ~~Leonardo da Vinci
+ - I hear and I forget. I see and I remember. I do and I understand. ~~Confucius
+ - Anyone who has never made a mistake has never tried anything new. ~~Albert Einstein
+ - Try to learn something about everything and everything about something. ~~Thomas Henry Huxley
+ - A man only learns in two ways, one by reading, and the other by association with smarter people. ~~Will Rogers
+ - You don’t understand anything until you learn it more than one way. ~~Marvin Minsky
+ - If you want to increase your success rate, double your failure rate. ~~Thomas J. Watson
+ - Intelligence is what you use when you don’t know what to do. ~~Jean Piaget
+ - Tell me and I forget, teach me and I may remember, involve me and I learn. ~~Benjamin Franklin
+ - The illiterate of the 21st century will not be those who cannot read and write, but those who cannot learn, unlearn, and relearn. ~~Alvin Toffler
+ - Power corrupts. Knowledge is power. Study hard. Be evil. ~~Eleanor Roosevelt
+ - It is what we know already that often prevents us from learning. ~~Claude Bernard
+ - Mathematics is the language with which God has written the universe. ~~Galileo Galilei
+ - The whole purpose of education is to turn mirrors into windows. ~~Sydney J. Harris
+ - I am not afraid of storms for I am learning how to sail my ship. ~~Louisa May Alcott
+ - The only person who is educated is the one who has learned how to learn and change. ~~Carl R. Rogers
+ - I have never met a man so ignorant that I couldn’t learn something from him. ~~Galileo Galilei
+ - Nothing ever goes away until it has taught us what we need to know. ~~Pema Chödrön
+ - I do not think much of a man who is not wiser today than he was yesterday. ~~Abraham Lincoln
+ - I am always doing that which I can not do, in order that I may learn how to do it. ~~Pablo Picasso
+ - You can get help from teachers, but you are going to have to learn a lot by yourself, sitting alone in a room. ~~Dr. Seuss
+ - Any fool can know. The point is to understand. ~~Albert Einstein
+ - Whenever you are asked if you can do a job, tell them, “Certainly I can!”. Then get busy and find out how to do it. ~~Theodore Roosevelt
+ - The purpose of education is to replace an empty mind with an open one. ~~Malcolm S. Forbes
+ - It is better to create than to learn. Creating is the essence of life. ~~Julius Caesar
+ - I am always ready to learn although I do not always like being taught. ~~Winston Churchill
+ - You must be shapeless, formless, like water. When you pour water in a cup, it becomes the cup. When you pour water in a bottle, it becomes the bottle. When you pour water in a teapot, it becomes the teapot. Water can drip and it can crash. Become like water, my friend. ~~Bruce Lee
+ - Being ignorant is not so much a shame, as being unwilling to learn. ~~Benjamin Franklin
+ - Always walk through life as if you have something new to learn, and you will. ~~Vernon Howard
+ - A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. ~~George Bernard Shaw
+ - Education is what remains after one has forgotten what one has learned in school. ~~Albert Einstein
+ - You teach best what you most need to learn. ~~Richard Bach
+ - A little learning is a dangerous thing. ~~Alexander Pope
+ - Learning without thought is labor lost; thought without learning is perilous. ~~Confucius
+ - Common sense is the collection of prejudices acquired by age eighteen. ~~Albert Einstein
+ - A teacher who is attempting to teach without inspiring the pupil with a desire to learn is hammering on cold iron. ~~Horace Mann
+ - It is the supreme art of the teacher to awaken joy in creative expression and knowledge. ~~Albert Einstein
+ - It’s what you learn after you know it all that counts. ~~John Wooden
+ - Learning is not attained by chance, it must be sought for with ardor and diligence. ~~Abigail Adams
+
+40 quotes

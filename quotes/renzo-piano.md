@@ -1,0 +1,21 @@
+ - You can put down a bad book; you can avoid listening to bad music; but you cannot miss the ugly tower block opposite your house.
+ - One of the great beauties of architecture is that each time, it is like life starting all over again.
+ - Knowing how to do things not just with the head, but with the hands as well: this might seem a programmatic and ideological goal. It is not. It is a way of safeguarding creative freedom.
+ - Architects spend an entire life with this unreasonable idea that you can fight against gravity.
+ - As an architect you are a builder. You are of course more than a builder. You need to be a militant, you have to be a poet, you have to be a visionary, you have to be an artist. But certainly you have to be a builder. Everything starts from there.
+ - You have to accept as an architect to be exposed to criticism. Architecture should not rely on full harmony.
+ - A museum is a place where one should lose one’s head.
+ - Every year I spend one month just sailing, but I still work when Im on the boat. You never separate work from leisure. A boat is like a magic world, like a little island.
+ - Light has not just intensity, but also a vibration, which is capable of roughening a smooth material, of giving a three-dimensional quality to a flat surface.
+ - Cities are beautiful because they are created slowly; they are made by time. A city is born from a tangle of monuments and infrastructures, culture and market, national history and everyday stories. It takes 500 years to create a city, 50 to create a neighborhood.
+ - If you have total freedom, then you are in trouble. It’s much better when you have some obligation, some discipline, some rules. When you have no rules, then you start to build your own rules.
+ - Architecture is an imposed art in some ways, imposed upon the public, so people must be sure about what you’re doing. You have to be sure about what you’re doing.
+ - Architects have to dream, we have to search for our Atlantises, to be explorers, adventurers, and yet to build responsibly and well.
+ - A piazza is not a plaza. The plaza is the theme park of the piazza; the plaza is the commercial version. A piazza is an empty space with no function. This is what Europeans understand.
+ - In a way I spend my entire life stealing from everything – from the past, from cities I love, from where I grew up – grabbing things, taking not only from architecture but from Italy, art, writing, poetry, music.
+ - Architecture is art, but art vastly contaminated by many other things. Contaminated in the best sense of the word – fed, fertilised by many things.
+ - A builder is like a little god – somebody who does things, doesnt just draw things.
+ - London is one of the most civilised places in the world for the procedure of making architecture and urban design.
+ - There is something about giving everything to your profession. In Italian, an obsession is not necessarily negative. Its the art of putting all your energy into one thing; its the art of transforming even what you eat for lunch into architecture.
+
+19 quotes

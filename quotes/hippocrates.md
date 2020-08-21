@@ -1,0 +1,114 @@
+ - Cure sometimes, treat often, comfort always.
+ - Wherever the art of Medicine is loved, there is also a love of Humanity.
+ - The greatest medicine of all is teaching people how not to need it.
+ - Walking is a man’s best medicine.
+ - He who wishes to be a surgeon should go to war.
+ - Sport is a preserver of health.
+ - Let your food be your medicine, and your medicine be your food.
+ - Look well to the spine for the cause of disease.
+ - It’s far more important to know what person the disease has than what disease the person has.
+ - If you are not your own doctor, you are a fool.
+ - The physician treats, but nature heals.
+ - All disease starts in the gut.
+ - The way to health is to have an aromatic bath and a scented massage every day.
+ - A wise man ought to realize that health is his most valuable possession.
+ - Healing in a matter of time, but it is sometimes also a matter of opportunity.
+ - The art is long, life is short.
+ - Divine is the task to relieve pain.
+ - War is the only proper school of the surgeon.
+ - The natural healing force within each one of us is the greatest force in getting well.
+ - Nature itself is the best physician.
+ - Make a habit of two things: to help; or at least to do no harm.
+ - Anyone wishing to study medicine must master the art of massage.
+ - Natural forces within us are the true healers of disease.
+ - The wise man should consider that health is the greatest of human blessings. Let food be your medicine.
+ - Our food should be our medicine and our medicine should be our food.
+ - Leave your drugs in the chemist’s pot if you can heal the patient with food.
+ - Whenever a doctor cannot do good, he must be kept from doing harm.
+ - When in sickness, look to the spine first.
+ - If someone wishes for good health, one must first ask oneself if he is ready to do away with the reasons for his illness. Only then is it possible to help him.
+ - Science is the father of knowledge, but opinion breeds ignorance.
+ - Illnesses do not come upon us out of the blue. They are developed from small daily sins against Nature. When enough sins have accumulated, illnesses will suddenly appear.
+ - To do nothing is sometimes a good remedy.
+ - Life is short, art long, opportunity fleeting, experiment uncertain, and judgment difficult.
+ - Foolish the doctor who despises the knowledge acquired by the ancients.
+ - The soul is the same in all living creatures, although the body of each is different.
+ - Health is the greatest of human blessings.
+ - Men ought to know that from the brain, and from the brain only, arise our pleasures, joy, laughter and jests, as well as our sorrows, pains, griefs, and tears.
+ - Men think epilepsy divine, merely because they do not understand it. We will one day understand what causes it, and then cease to call it divine. And so it is with everything in the universe.
+ - There are in fact two things, science and opinion. The former begets knowledge, the latter ignorance.
+ - The function of protecting and developing health must rank even above that of restoring it when it is impaired.
+ - A physician without a knowledge of Astrology has no right to call himself a physician.
+ - Just as food causes chronic disease, it can be the most powerful cure.
+ - He who does not understand astrology is not a doctor but a fool.
+ - The life so short, the craft so long to learn.
+ - Everything in excess is opposed to nature.
+ - Many admire, few know.
+ - If we could give every individual the right amount of nourishment and exercise, not too little and not too much, we would have found the safest way to health.
+ - For extreme diseases, extreme methods of cure, as to restriction, are most suitable.
+ - Even when all is known, the care of a man is not yet complete, because eating alone will not keep a man well; he must also take exercise. For food and exercise, while possessing opposite qualities, yet work together to produce health.
+ - Some patients, though conscious that their condition is perilous, recover their health simply through their contentment with the goodness of the physician.
+ - Wine is an appropriate article for mankind, both for the healthy body and for the ailing man.
+ - That which is used – develops. That which is not used wastes away.
+ - Whoever wishes to investigate medicine should proceed thus: In the first place, consider the seasons of the year and what effect each of them produces.
+ - Each of the substances of a man’s diet acts upon his body and changes it in some way and upon these changes his whole life depends.
+ - Get knowledge of the spine, for this is the requisite for many diseases.
+ - Medicine is of all the Arts the most noble; but, owing to the ignorance of those who practice it, and of those who, inconsiderately, form a judgment of them, it is at present behind all the arts.
+ - There are, in effect, two things, to know and to believe one knows; to know is science; to believe one knows is ignorance.
+ - Silence is not only never thirsty, but also never brings pain or sorrow.
+ - The human soul develops up to the time of death.
+ - Life is short, and the Art long; the occasion fleeting; experience fallacious, and judgment difficult. The physician must not only be prepared to do what is right himself, but also to make the patient, the attendants, and externals cooperate.
+ - In all abundance there is lack.
+ - The chief virtue that language can have is clearness, and nothing detracts from it so much as the use of unfamiliar words.
+ - Extreme remedies are very appropriate for extreme diseases.
+ - Prayer indeed is good, but while calling on the gods a man should himself lend a hand.
+ - An insolent reply from a polite person is a bad sign.
+ - Time is that wherein there is opportunity, and opportunity is that wherein there is no great time.
+ - What I may see or hear in the course of the treatment or even outside of the treatment in regard to the life of men, which on no account one must spread abroad, I will keep to myself holding such things shameful to be spoken about.
+ - Old people have fewer diseases than the young, but their diseases never leave them.
+ - And he will manage the cure best who has foreseen what is to happen from the present state of matters.
+ - There is one common flow, one common breathing, all things are in sympathy.
+ - Sleep and watchfulness, both of them, when immoderate, constitute disease.
+ - Those diseases which medicines do not cure, iron cures; those which iron cannot cure, fire cures; and those which fire cannot cure, are to be reckoned wholly incurable.
+ - The patient must combat the disease along with the physician.
+ - Eunuchs do not take the gout, nor become bald.
+ - What medicines do not heal, the lance will; what the lance does not heal, fire will.
+ - I will give no deadly medicine to any one if asked, nor suggest any such counsel; and in like manner I will not give to a woman a pessary to produce abortion.
+ - We must turn to nature itself, to the observations of the body in health and in disease to learn the truth.
+ - A physician who is a lover of wisdom is the equal to a god.
+ - The art has three factors, the disease, the patient, the physician. The physician is the servant of the art. The patient must cooperate with the physician in combatting the disease.
+ - The dignity of a physician requires that he should look healthy, and as plump as nature intended him to be; for the common crowd consider those who are not of this excellent bodily condition to be unable to take care of themselves.
+ - About medications that are drunk or applied to wounds it is worth learning from everyone; for people do not discover these by reasoning but by chance, and experts not more than laymen.
+ - From nothing else but the brain come joys, delights, laughter and sports, and sorrows, griefs, despondency, and lamentations.
+ - Wherefore the heart and the diaphragm are particularly sensitive, they have nothing to do, however, with the operations of the understanding, but of all these the brain is the cause.
+ - The brain of man, like that of all animals is double, being parted down its centre by a thin membrane. For this reason pain is not always felt in the same part of the head, but sometimes on one side, sometimes on the other, and occasionally all over.
+ - Whoever is to acquire a competent knowledge of medicine, ought to be possessed of the following advantages: a natural disposition; instructionl a favorable place for the study; early tuition, love of labor; leisure.
+ - The physician must have at his command a certain ready wit, as dourness is repulsive both to the healthy and the sick.
+ - All excesses are inimical to Nature. It is safer to proceed a little at a time, especially when changing from one regimen to another.
+ - Who could have foretold, from the structure of the brain, that wine could derange its functions?
+ - Rest as soon as there is pain.
+ - Of several remedies, the physician should choose the least sensational.
+ - I will follow that system of regimen which, according to my ability and judgment, I consider for the benefit of my patients, and abstain from whatever is deleterious and mischievous.
+ - Where prayer, amulets and incantations work it is only a manifestation of the patient’s belief.
+ - The forms of diseases are many and the healing of them is manifold.
+ - When doing everything according to indications, although things may not turn out agreeably to indication, we should not change to another while the original appearances remain.
+ - I have clearly recorded this: for one can learn good lessons also from what has been tried but clearly has not succeeded, when it is clear why it has not succeeded.
+ - If for the sake of a crowded audience you do wish to hold a lecture, your ambition is no laudable one, and at least avoid all citations from the poets, for to quote them argues feeble industry.
+ - It is better to be full of drink than full of food.
+ - Physicians are many in title but very few in reality.
+ - And if this were so in all cases, the principle would be established, that sometimes conditions can be treated by things opposite to those from which they arose, and sometimes by things like to those from which they arose.
+ - A sensible man ought to think about that well being is the best of human blessings, and find out how by his personal thought to derive profit from his sicknesses.
+ - Look to the seasons when choosing your cures.
+ - To really know is science; to merely believe you know is ignorance.
+ - I will not give to a woman a pessary to cause abortion.
+ - Sometimes give your services for nothing.
+ - First of all a natural talent is required; for when Nature opposes, everything else is in vain; but when Nature leads the way to what is most excellent, instruction in the art takes place...
+ - The chief virtue that language can have is clarity.
+ - Opposites are cures for opposites.
+ - I also maintain that clear knowledge of natural science must be acquired, in the first instance, through mastery of medicine alone.
+ - Timidity betrays want of powers, and audacity a want of skill. There are, indeed, two things, knowledge and opinion, of which the one makes its possessor really to know, the other to be ignorant.
+ - And if incision of the temple is made on the left, spasm seizes the parts on the right, while if the incision is on the right, spasm seizes the parts on the left.
+ - The physician must be able to tell the antecedents, know the present, and foretell the future – must mediate these things, and have two special objects in view with regard to disease, namely, to do good or to do no harm.
+ - Those things which are sacred, are to be imparted only to sacred persons; and it is not lawful to import them to the profane until they have been initiated in the mysteries of the science.
+
+112 quotes

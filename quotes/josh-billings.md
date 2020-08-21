@@ -1,0 +1,275 @@
+ - Health is like money, we never have a true idea of its value until we lose it.
+ - There is no revenge so complete as forgiveness.
+ - A dog is the only thing on earth that loves you more than he loves himself.
+ - Half of the troubles of this life can be traced to saying yes too quickly and not saying no soon enough.
+ - Waves are inspiring not because they rise and fail, but because each time they fall. They never fail to rise again.
+ - Silence is one of the hardest kind of arguments to refute. There is no good substitute for wisdom; but silence is the best that has yet been discovered.
+ - A good reliable set of bowels is worth more to a man than any quantity of brains.
+ - It ain’t what a man don’t know that makes him a fool, but what he does know that ain’t so.
+ - There’s a lot of people in this world who spend so much time watching their health that they haven’t the time to enjoy it.
+ - The best time for you to hold your tongue is the time you feel you must say something or bust.
+ - Never work before breakfast; if you have to work before breakfast, eat your breakfast first.
+ - When good-natured people leave us we look forward with extra pleasure to their return.
+ - There are two kinds of fools: those who can’t change their opinions and those who won’t.
+ - Politeness is better than logic. You can often persuade when you cannot convince.
+ - Pity costs nothing, and it ain’t worth nothing.
+ - Don’t have any more secrets than you can keep yourself.
+ - If you believe you can do something, then you can acquire the ability to do it even if you didn’t have it in the beginning.
+ - Lying is like trying to hide in a fog: If you move about you’re in danger of bumping your head against the truth, and as soon as the fog blows off, you are gone anyhow.
+ - I hate to be a kicker, I always long for peace, But the wheel that does the squeaking, is the one that gets the grease.
+ - Don’t ever prophesy; for if you prophesy wrong, nobody will forget it; and if you prophesy right, nobody will remember it.
+ - If animals had reason, they would act just as ridiculous as we menfolks do.
+ - There is gravity in wisdom, but no particular wisdom in gravity.
+ - Don’t put off till tomorrow what can be enjoyed today.
+ - One of the rarest things that a man ever does, is to do the best he can.
+ - Biography is the best form of history.
+ - You should always live within your income, even if you have to borrow to do so.
+ - Ambition is like hunger; it obeys no law but its appetite.
+ - The less we know the more we suspect.
+ - Good nonsense is good sense in disguise.
+ - The wheel that squeaks the loudest is the one that gets the grease.
+ - Time is like money, the less we have of it to spare the further we make it go.
+ - There’s one good thing about tight shoes; they make you forget your other troubles.
+ - Silence is a still noise.
+ - The more humble a man is before God the more he will be exalted; the more humble he is before man, the more he will get rode roughshod.
+ - Honesty is the rarest wealth anyone can possess.
+ - Method is the arithmetic of success.
+ - Opinions should be formed with great caution, and changed with greater.
+ - People who have nothing to say are never at a loss in talking.
+ - If mankind were only just what they pretend to be, the problem of the millennium would be immediately solved.
+ - Plenty of folks are so contrary that if they should fall into the river, they would insist upon floating upstream.
+ - Debt is a trap which man sets and baits himself, and then deliberately gets into.
+ - The man who ain’t got an enemy is really poor.
+ - I don’t care how much a man talks, if he only says it in a few words.
+ - Our continual desire for praise ought to convince us of our mortality, if nothing else will.
+ - Shame is the dying embers of virtue.
+ - Love is said to be blind, but I know some fellows in love who can see twice as much in their sweethearts as I do.
+ - Pedantry is paraded knowledge.
+ - Friendship is like earthenware, once broken, it can be mended; love is like a mirror, once broken that ends it.
+ - I am a poor man, but I have this consolation: I am poor by accident, not by design.
+ - Selfish people, with no heart to speak of, have the best time of it.
+ - Thrice is he armed that hath his quarrel just, But four times he who gets his blow in fust.
+ - Men of genius are like eagles, they live on what they kill, while men of talents are like crows, they live on what has been killed for them.
+ - Laughter is the fireworks of the soul.
+ - Hunting after happiness is like hunting after a lost sheep in the wilderness – when you find it, the chances are that it is a skeleton.
+ - Don’t mistake pleasure for happiness. They are a different breed of dogs.
+ - There are only two qualities in the world: efficiency and inefficiency; and only two sorts of people: the efficient and the inefficient.
+ - Rumor is like bees; the more you fight them the more you don’t get rid of them.
+ - Marrying a woman for her money is very much like setting a rat-trap, and baiting it with your own finger.
+ - When you do laugh, open your mouth wide enough for the noise to get out without squealing, throw your head back as though you were going to be shaved, hold on to your false hair with both hands and then laugh till your soul gets thoroughly rested.
+ - Liberty, like chastity, once lost, can never be regained in its original purity.
+ - A slander is like a hornet; if you cannot kill it dead at the first blow, better not to strike at it.
+ - The highest philosophers, in explaining the mystery of this world, are obliged to call in the aid of another.
+ - The best condition in life is to be not so rich as to be envied nor so poor as to be damned.
+ - To bring up a child in the way he should go, travel that way yourself once in a while.
+ - Newfoundland dogs are good to save children from drowning, but you must have a pond of water handy and a child, or else there will be no profit in boarding a Newfoundland.
+ - The greatest thief this world has ever produced is procrastination, and he is still at large.
+ - Reason often makes mistakes, but conscience never does.
+ - As long as we are lucky we attribute it to our smartness; our bad luck we give the gods credit for.
+ - Learning sleeps and snores in libraries, but wisdom is everywhere, wide awake, on tiptoe.
+ - It is better to know nothing than to know what ain’t so.
+ - Every man should know something of law; if he knows enough to keep out of it, he is a pretty good lawyer.
+ - Experience increases our wisdom but doesn’t reduce our follies.
+ - Don’t take the bull by the horns, take him by the tail; then you can let go when you want to.
+ - It is a statistical fact that the wicked work harder to reach hell than the righteous do to enter heaven.
+ - I called my cat William because no shorter name fits the dignity of his character. Poor old man, he has fits now, so I call him Fitz-William.
+ - If you would make yourself agreeable wherever you go, listen to the grievances of others but never relate your own.
+ - Wise men have but few confidants, and cunning ones none.
+ - Threescore years and ten is enough; if a man can’t suffer all the misery he wants in that time, he must be numb.
+ - Clothes form the intellect of the dandy.
+ - It is easy to assume a habit; but when you try to cast it off, it will take skin and all.
+ - The happiest time in a man’s life is when he is in the red hot pursuit of a dollar with a reasonable prospect of overtaking it.
+ - Jealousy is one of love’s parasites.
+ - True valor is like honesty; it enters into all that a man sees and does.
+ - What is a man profited, if he shall gain the whole world, and lose his own soul I suppose this depends somewhat upon the size of the soul. I think there are cases where the trade would do.
+ - Dangers are sum like a kold bath, very dangerous while you stand stripped on the bank, but often not only harmless, but invigorating, if you pitch into them.
+ - My advice to those who are about to begin, in earnest, the journey of life, is to take their heart in one hand and a club in the other.
+ - Most men had rather say a smart thing than do a good one. John P. Kotter, Leading Change.
+ - Rivalry and envy are Siamese twins.
+ - I never question a success, any more than I do the right of a bulldog to lie in his own gateway.
+ - The best creed we can have is charity toward the creeds of others.
+ - Unless we put heart and soul into our labor we but brutify our actions.
+ - The fools in this world make about as much trouble as the wicked do.
+ - Theory looks well on paper, but does not amount to anything without practice.
+ - If a man is right, he can’t be too radical; if he is wrong, he can’t be too conservative.
+ - Successful writers learn at last what they should learn at first, – to be intelligently simple.
+ - Seneca devoted much of his time to writing essays in praise of poverty, and in lending money at usurious rates.
+ - Man isn’t a fool for his ignorance, but rather for believing things that are wrong.
+ - Rumor is a vagrant without a home, and lives upon what it can pick up.
+ - It’s not so hard to get rich as it is to know when you have gotten rich.
+ - Music wasn’t made to make us wise, but better natured.
+ - There are very few good judges of humor, and they don’t agree.
+ - Advice is like castor oil, easy enough to give but dreadful uneasy to take.
+ - People travel to learn; most of them before they start should learn to travel.
+ - The dog that will follow everbody ain’t worth a curse.
+ - You cannot analyze a kiss any more than you can dissect the fragrance of flowers.
+ - Dr. Holmes says, both wittily and truly, that crying widows are easiest consoled.
+ - Stupidity, – unconscious ignorance.
+ - If you do not know how to lie, cheat, and steal, turn your attention to politics and learn.
+ - The very thing that men think they have got the most of, they have got the least of; and that is judgment.
+ - I hold that a man has as much right to spell a word as it is pronounced as he has to pronounce it the way it ain’t spelled.
+ - And now the lads and lasses, following the example of the birds, bill and coo together.
+ - As a general thing, when a woman wears the pants in a family, she has a good right to them.
+ - If men were stubborn just in proportion as they were right, stubbornness would take her seat among the virtues; but men are generally stubborn just in proportion as they are ignorant and wrong.
+ - Ignorance is the wet-nurse of prejudice.
+ - It is the little bits of things that fret and worry us; we can dodge a elephant, but we can’t dodge a fly.
+ - Genuine laughing is the vent of the soul, the nostrils of the heart, and just as necessary for health and happiness as spring water is for a trout.
+ - Fortune is like a coquette; if you don’t run after her, she will run after you.
+ - Poverty is the step-mother of genius.
+ - A learned fool is one who has read everything and simply remembered it.
+ - Early genius, like early cabbage, does not head well.
+ - Adam invented love at first sight, one of the greatest labor-saving machines the world ever saw.
+ - Incredulity is the wisdom of the fool.
+ - Titles are valuable; they make us acquainted with many persons who otherwise would be lost among the rubbish.
+ - The secret of forgiving everything is to understand nothing.
+ - Fun is a sugar-coated physic.
+ - Peace is the soft and holy shadow that virtue casts.
+ - If there was no faith there would be no living in this world. We could not even eat hash with any safety.
+ - There is no passion of the human heart that promises so much and pays so little as revenge.
+ - Everyone who does the best he can is a hero.
+ - He whom prosperity humbles, and adversity strengthens, is the true hero.
+ - As a general rule, if you want to get at the truth – hear both sides and believe neither.
+ - Music hath the charm to soothe a savage beast, but I’d try a revolver first.
+ - Silence is said to be golden, but the best fools the world has ever produced had nothing to say on the subject.
+ - If the world despises a hypocrite, what must they think of him in heaven?
+ - Experience is a school where a man learns what a big fool he has been.
+ - A puppy plays with every pup he meets, but an old dog has few associates.
+ - Menny think tha luv their husbands almost tew deth, when in fack, tha are only jealous ov them.
+ - As a general thing, an individual who is neat in his person is neat in his morals.
+ - It ain’t no disgrace for a man to fall, but to lie there and grunt is.
+ - When a man gets talking about himself, he seldom fails to be eloquent and often reaches the sublime.
+ - I never knew a man troubled with melancholy, who had plenty to do, and did it.
+ - It strains a man’s philosophy the worst kind to laugh when he gets beat.
+ - The lion and the lamb may, possibly, sumtime lay down in this world together for a fu minnits, but when the lion kums tew git up, the lamb will be missing.
+ - Error will slip through a crack, while truth will stick in a doorway.
+ - Better make a weak man your enemy than your friend.
+ - Faith is the soul riding at anchor.
+ - Fashion makes fools of some, sinners of others, and slaves of all.
+ - Experience makes more timid men than it does wise ones.
+ - It’s a wise man who profits by his own experience, but it’s a good deal wiser one who lets the rattlesnake bite the other fellow.
+ - Fuss is half-sister to hurry, and neither of them can do anything without getting in their own way.
+ - Take the humbug out of this world, and you haven’t much left to do business with.
+ - Woman’s influence is powerful, especially when she wants something.
+ - The hardest thing any man can do is to fall down on the ice when it’s slippery, and get up and praise the Lord.
+ - Put an Englishman into the garden of Eden, and he would find fault with the whole blasted concern; put a Yankee in, and he would see where he could alter it to advantage; put an Irishman in, and he would want to boss the thing; put a Dutchman in, and he would proceed to plant it.
+ - The devil is the father of lies, but he neglected to patent the idea, and the business now suffers from competition.
+ - There is no limit to the vanity of this world. Each spoke in the wheel thinks the whole strength of the wheel depends upon it.
+ - There is a sort of charm in ugliness, if the person has some redeeming qualities and is only ugly enough.
+ - Nature makes all the noblemen; wealth, education, or pedigree never made one yet.
+ - It ain’t because lovers are so sensitive that they quarrel so often; it is because there is so much fun n the making up.
+ - Human happiness konsists in having what yu want, and wanting what yu have.
+ - Show me a thoroughly contented person, and I will show you a useless one.
+ - Life is short, but it’s long enough to ruin any man who wants to be ruined.
+ - Young widows still bide their time.
+ - When a man makes up his mind to become a rascal, he should examine himself closely and see if he isn’t better constructed for a fool.
+ - It is not much trouble to doctor sick folks, but to doctor healthy ones is troublesome.
+ - Where religion is a trade, morality is a merchandise.
+ - It is true that wealth won’t make a man virtuous, but I notice there ain’t anybody who wants to be poor just for the purpose of being good.
+ - It is a great deal easier for a man to find a pedigree to fit his virtues than virtues to fit his pedigree.
+ - Some folks are wise and some otherwise.
+ - The great art of writing is knowing when to stop.
+ - When I see a man of shallow understanding extravagantly clothed, I feel sorry – for the clothes.
+ - Perseverance is king.
+ - Sekts and creeds ov religion, are like pocket compesses, good enuff tu pinte out the direction, but the nearer the pole yu git thewuss tha wurk.
+ - Satire that is seasonable and just is often more effectual than law or gospel.
+ - A witty writer is like a porcupine; his quill makes no distinction between friend and foe.
+ - Men who have much to say use the fewest words.
+ - As the flint contains the spark, unknown to itself, which the steel alone can awaken to life, so adversity often reveals to us hidden gems, which prosperity or negligence would forever have hidden.
+ - Most people repent their sins by thanking God they ain’t so wicked as their neighbors.
+ - Building air castles is a harmless business as long as you don’t attempt to live in them.
+ - It AIN’T so much the things we don’t know that get us into trouble. It’s the things we know that just ain’t so.
+ - Ill-nature is a sort of running sore of the disposition.
+ - I do not know of a better cure for sorrow than to pity somebody else.
+ - Morally considered, laughter is next to the Ten Commandments.
+ - Suicide is cheating the doctor out of job.
+ - Wisdom that don’t make us happier ain’t worth plowing for.
+ - Doesn’t know much, but leads the league in nostril hair.
+ - Beauty is a very handy thing to have, especially for a woman who ain’t handsome.
+ - Men mourn for what they have lost; women for what they ain’t got.
+ - Poverty is one of them kind of misfortunes that we all of us dread but none of us pity.
+ - Vanity is a strange passion; rather than be out of a job it will brag of its vices.
+ - We mingle in society not so much to meet others as to escape ourselves.
+ - A good way I know to find happiness, is to not bore a hole to fit the plug.
+ - Most everyone seems willing to be a fool himself, but he can’t bear to have anyone else one.
+ - A good place to visit, but a poor place to stay.
+ - When a man comes to me for advice, I find out the kind of advice he wants, and I give it to him.
+ - A man running for office puts me in mind of a dog that’s lost-he smells everybody he meets, and wags himself all over.
+ - The morning paper is just as necessary for an American as dew is to the grass.
+ - Love is like the measles; we can’t have it bad but once, and the later in life we have it the tougher it goes with us.
+ - To enjoy a good reputation, give publicly, and steal privately.
+ - Habits are like the wrinkles on a man’s brow; if you will smooth out the one, I will smooth out the other.
+ - There never yet was a mother who taught her child to be an infidel.
+ - The miser and the glutton are two facetious buzzards: one hides his store, and the other stores his hide.
+ - Laughter is the sensation of feeling good all over and showing it principally in one place.
+ - Contentment is a kind of moral laziness; if there wasn’t anything but contentment in his world, man wouldn’t be any more of a success than an angleworm is.
+ - A man cannot learn to be wise any more than he can learn to be handsome.
+ - Pride seems to be equally distributed; the man who owns the carriage and the man who drives it seem to have it just alike.
+ - Never run into debt, not if you can find anything else to run into.
+ - The best medicine I know for rheumatism is to thank the Lord that it ain’t gout.
+ - The easiest thing for our friends to discover in us, and the hardest thing for us to discover in ourselves, is that we are growing old.
+ - A wise man never enjoys himself so much, nor a fool so little, as when alone.
+ - As in a game of cards, so in the game of life, we must play what is dealt to us, and the glory consists, not so much in winning as in playing a poor hand well.
+ - Experience is a grindstone; and it is lucky for us, if we can get brightened by it, and not ground.
+ - Occasions are rare; and those, who know how to seize upon them, are rarer.
+ - Tears are a good alterative, but a poor diet.
+ - The man who has never been tempted doesn’t know how dishonest he is.
+ - Self-made men are most always apt to be a little too proud of the job.
+ - Men are seldom underrated; the mercury in a man finds its true level in the eyes of the world just as certainly as it does in the glass of a thermometer.
+ - Society is composed of slow Christians and wide-awake sinners.
+ - I never had a man come to me for advice yet, but what I soon discovered that he thought more of his own opinion than he did of mine.
+ - Most men would rather be charged with malice than with making a blunder.
+ - The man who gets bit twice by the same dog is better adapted for that kind of business than any other.
+ - Common sense is an instinct given to man and enough of it is genius. Smartness is measured by the level of common sense one has, not by how much educated or knowledgeable he is.
+ - Wisdom has never made a bigot, but learning has...
+ - Prejudice assumes the garb of reason, but the cheat is too thin.
+ - There is only one good substitute for the endearments of a sister, and that is the endearments of some other fellow’s sister.
+ - Zoroaster said, when in doubt abstain; but this does not always apply. At cards, when in doubt take the trick.
+ - When the truth is in your way, you are on the wrong road.
+ - The soul has more diseases than the body.
+ - Most people when they come to you for advice, come to have their own opinions strengthened, not corrected.
+ - Truth is the edict of God.
+ - You can reach stupidity only with a cannon ball.
+ - Life is like a mountain: after climbing up one side and sliding down the other, put up the sled.
+ - The quickest way to take the starch out of someone who is always blaming himself is to agree with him.
+ - Advice maybe wrong, but examples prove themselves.
+ - Keep a cow, and the milk won’t have to be watered but once.
+ - Common sense is the knack of seeing things as they are, and doing things as they ought to be done.
+ - It iz comparitively eazy tew repent ov the sins that we hav committed, but tew repent ov thoze which we intend to commit, is asking tew mutch ov enny man, now days.
+ - I’ve never known an auctioneer to lie unless it was absolutely necessary.
+ - Caution, though very often wasted is a good risk to take.
+ - It is easier to be virtuous than it is to appear so, and it pays better.
+ - We should make virtue our master, not our servant.
+ - Silence never makes any blunders.
+ - Some folks as they grow older grow wise but most folks simply grow stubborner.
+ - The books are balanced in heaven, not here.
+ - Wisdom deprives even poverty of half its power.
+ - The time to pray is not when we are in a tight spot but just as soon as we get out of it.
+ - True wisdom is plenty of experience, observation, and reflection. False wisdom is plenty of ignorance, arrogance, and impudence.
+ - Despatch is taking time by the ears; hurry is taking it by the end of the tail.
+ - We have some writers so abstruse and deep that they drown themselves in their fathomless sentences.
+ - Debt is like any other trap, easy enough to get into, but hard enough to get out of.
+ - Take the selfishness out of this world and there would be more happiness than we should know what to do with.
+ - When a young man begins to go down hill everything seems to be greased for the occasion.
+ - We hate those who will not take our advice, and despise them who do.
+ - It is a great art to be superior to others without letting them know it.
+ - Knowledge is like money, the more a man gits the more he hankers for.
+ - Metaphysics is the science of proving what we don’t understand.
+ - A secret ceases to be a secret if it is once confided – it is like a dollar bill, once broken, it is never a dollar again.
+ - Everybody in this world wants watching, but nobody more than ourselves.
+ - One legged chickens, I know, are the least apt to scratch a garden.
+ - About the only difference between the poor and the rich, is this, the poor suffer misery, while the rich have to enjoy it.
+ - Pedigrees seldom improve by age; the grandson is too often a weak infringement on the grandsire’s parent.
+ - Admiration is a youthful fancy will which scarcely ever survives to mature years.
+ - I would much rather always look forward to the time when I am going to ride in a carriage, than to look back on the time when I used to.
+ - There is a significant Latin proverb; to wit: Who will guard the guards?
+ - Consider the postage stamp: its usefulness consists in the ability to stick to one thing till it gets there.
+ - Prejudice is a house-plant which is very apt to wilt if you take it out-of-doors among folks.
+ - Fools carry their daggers in their open mouths.
+ - Theres not a lot of good humor in medicine, but theres a lot of medicine in good humor.
+ - Virtue does not consist in the absence of the passions, but in the control of them.
+ - The unfortunate do not pity the unfortunate.
+ - Never teach your child to be cunning or you may be certain you will be one of the very first victims of his shrewdness.
+ - The truly innocent are those who not only are guiltless themselves but who think others are.
+ - Anxiety will bear a lot of nuisance.
+
+273 quotes

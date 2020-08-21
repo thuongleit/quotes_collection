@@ -1,0 +1,79 @@
+ - The best camera is the one you have with you.
+ - You need minimum color for maximum effect.
+ - There is no one solution to all problems. It’s the problem itself that can lead to the solution.
+ - As people, we love pattern. But interrupted pattern is more interesting.
+ - Always carry a camera, it’s tough to shoot a picture without one.
+ - Failing is not a problem. Not trying is a problem.
+ - Sometimes as you work, you find that you are learning things about your own perceptions and motivations that are way below you consciousness. If you get lucky, you recognize what you are doing, but all too often we don’t find the connection between our work and our own motivations.
+ - I love when pictures ask questions or make others ask questions.
+ - Be aware of every square millimeter of your frame.
+ - Don’t overthink things in front of you. I fit moves you, shoot it. If it’s fun, shoot it. If you’ve never seen it before, shoot it.
+ - If you want to make more interesting pictures, become a more interesting person.
+ - Light gesture and color of the key compliments of any photograph. Light and color are obvious, but it is just her that is the most important. There is gesture in everything. It’s up to you to find a gesture that is most telling.
+ - It’s always around. You just don’t see it.
+ - If you are out there shooting, things will happen for you. If you’re not out there, you’ll only hear about it.
+ - Some have said that if you take a great picture in color and take away the color, you’ll have a great black-and-white picture. But if you’re shooting something about color and you take away the color, you’ll have nothing.
+ - Sometimes without shooting a picture germinates in your head. Other times, you keep taking pictures of the same thing and watch the images mature and grow.
+ - We have always wanted to find the ‘it-ness’ of anything we shoot. We want to get as deep into the subject as we can.
+ - If you can capture the element of surprise, you’re way ahead of the game.
+ - If you’re not your own severest critic, you are your own worst enemy.
+ - The drama of light exists not only in what is in the light, but also in what is left dark. If the light is everywhere, the drama is gone.
+ - Keep your mind open. You may very well learn something new about yourself and your pictures.
+ - If the light is great in front of you, you should turn around and see what it is doing behind you.
+ - There really isn’t anything that you could call ‘bad’ color. It all has to do with the amount of color you use and in what context it appears.
+ - Money and fame that photography can bring you are wonderful, but nothing can compare to the joy of seeing something new.
+ - It’s important to realize that the images are everywhere, not just where you want or expect them to be.
+ - There is no bad light. There is spectacular light and difficult light. It’s up to you to use the light you have.
+ - You see shape, and how the light hits things, how the color changes from one end of the photo to the other, and how movement affects the mood of the photo.
+ - First, perseverance trumps talent. Second, do what you want to do, otherwise why bother? Third, be ethical; it might rub off on others. Fourth, don’t give up.
+ - There are rules about perception, but not about photography.
+ - The more light you have in an image, the less drama you get. The details start taking over; the mystery is all gone.
+ - Photography is an act of love.
+ - Color is seductive. It changes as it interacts with other colors, it changes because of the light falling upon it, and it changes as it becomes larger in size.
+ - If you’re not shooting in the right direction, it doesn’t matter how well you’re shooting.
+ - One color alone means nothing. I acts as in a vacuum, with no other colors to relate to. It is only when colors relate to other colors that the fun begins.
+ - Gesture will survive whatever kind of light you have. Gesture can triumph over anything because of its narrative content.
+ - A photographer’s art is more in his perceptions than his execution. In a painter, I think the perception is only the first step, and then you have a kind of hard road of execution.
+ - You must not think of yourself as looking at the stage from the audience. You must think of it as theatre in the round and look at it from all sides.
+ - Had I not been told to look, I would have quite, ignorant of what was really there, because I had ‘made plans’ and was wearing visual and emotional blinders that limited my perceptions and my vision.
+ - You have to pick the right tool for the point you’re trying to make and there is no one solution.
+ - When you shoot, that is opportunity number one to make a statement. When you edit, you have opportunity number two to make your statement. It could be an affirmation of your first choice or could go off in another direction.
+ - You can’t just turn on when something happens, you have to be turned on all the time. Then things happen.
+ - Always shoot it now. It won’t be the same when you go back.
+ - Always wait for the trigger. The trigger is the final part of the puzzle, the reason you want to shoot.
+ - We don’t experience light, color, and gesture in a vacuum. We experience it in contexts.
+ - I try not to tell students where to shoot, when to shoot, or what to shoot. I feel finding the picture is the most important part of being a photographer. The actual shooting is of lesser importance.
+ - You are responsible for every part of your image, even the parts you’re not interested in.
+ - What you’re shooting at doesn’t matter, the real question is: ‘Does it give you joy?’
+ - You sort of have to be always aware, even when you’re not thinking of shooting. That’s when the best stuff happens.
+ - Forget what it was. Look at what it is.
+ - I’m a New Yorker. I don’t believe in air unless I can see it.
+ - The awareness of the quality of space in out photos is akin to our awareness of the very air in our photos, the atmosphere that pervades every square inch of our image and yet is often invisible to the photographer.
+ - You cannot accurately remember color...
+ - Allow yourself to lose your way.
+ - The whole world is there for you. Gifts will happen, but only if you are patient with life itself, the shooting process, and your own limitations.
+ - You have to have a lot of ‘overage’ so that your failures aren’t the only thing you come home with. You’ve got to have a lot of things that were magnificent failures, but you want some magnificent successes.
+ - The composition is already there, you just need to crop it.
+ - Gesture is not always action.
+ - Every picture should have a place you can go, a home, a climax.
+ - All these factors are only valuable if you’re curious. But in any case, the more knowledge you have, the more things are open and available to you.
+ - I take pictures, and they are there for the taking. I’ll tell you a quote that I have always thought about. Arthur Miller said, I try to create the poem from the evidence.
+ - Try to go out empty and let your images fill you up.
+ - Color really doesn’t have interaction if it’s full of colors. It’s the interaction or relationship among or between colors that makes a color image. This usually happens with a few colors, not a glut of them.
+ - It’s not just when you shoot, or what you shot, or where you shoot, it’s the combination of the three.
+ - It’s my obligation to take out all the ‘wrong’ pictures.
+ - Pain is not a conduit to art or joy.
+ - I don’t see light as something that falls, but as a positive force.
+ - Each picture you take has power as long as it brings experience to the person who’s looking at it.
+ - Never put lettering in your photos unless you want it read.
+ - You will, in time, see and show others not just the superficial, but the details, the meanings, and the implications of all that you look at...
+ - Never say you’re going back – SHOOT IT NOW!
+ - When we are given gifts, we must be quick and able to accept them.
+ - You have to learn not only from your failures. You must also learn from your successes.
+ - The problem suggests the solution.
+ - If you don’t have a camera, the best thing you can do is describe how great it looked.
+ - You have to let the past successes go, or you’ll never be able to see anew.
+ - It’s a lot easier to take pictures if you always have the camera with you.
+ - The pictures are everywhere. If you’re open, they will find you.
+
+77 quotes

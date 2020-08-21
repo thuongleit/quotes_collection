@@ -1,0 +1,27 @@
+ - Some people get rich studying artificial intelligence. Me, I make money studying natural stupidity.
+ - In life and business, there are two cardinal sins. The first is to act precipitously without thought and the second is to not act at all.
+ - I enjoy the hunt much more than the ‘good life’ after the victory.
+ - Don’t confuse luck with skill when judging others, and especially when judging yourself.
+ - A lot of people died fighting tyranny. The least I can do is vote against it.
+ - I’m no robin hood, I enjoy making the money.
+ - When friends and acquaintances are telling you that you are a genius, before you accept their opinion, take a moment to remember what you always thought of their opinions in the past.
+ - Too often it’s not the most creative guys or the smartest. Instead, it’s the ones who are best at playing politics and soft-soaping their bosses. Boards don’t like tough, abrasive guys.
+ - When most investors, including the pros, all agree on something, they’re usually wrong.
+ - CEOs are paid for doing a terrible job. If the system wasn’t so messed up, guys like me wouldn’t make this kind of money.
+ - Don’t go in and tell somebody else how to run their business.
+ - I like winning. There’s also a certain joy in it. I feel fulfilled by it.
+ - Everything I have is for sale, except for my kids and possibly my wife.
+ - I have to look out for the shareholder’s interests, and I’m the largest shareholder.
+ - We want these assets to be productive. We buy them. We own them. To say we care only about the short term is wrong. What I care about is seeing these assets in the best hands.
+ - Anyone that makes me a quarter of a billion dollars, I like.
+ - A great company in the media business needs visionary leaders, not a conglomerate structure headquartered in Columbus Circle that second guesses.
+ - And I’m convinced, beyond a shadow of a doubt, that you can work with the unions because the unions want to survive. If they are confronted simply with the question: “Do you want this company to survive or do you want it to be broken up?” they will listen. It’s their livelihood.
+ - My wife watches me like a hawk.
+ - I believe there are and will be major opportunities to enhance Time Warner’s value in future combinations.
+ - Yellen’s comments suggest, and I agree, that we are in an asset bubble.
+ - We have bloated bureaucracies in Corporate America. The root of the problem is the absence of real corporate democracy.
+ - Im a cynic about corporate democracy and boards.
+ - We’re not about liquidating companies, but if you do that, why is that terrible? We’re not blowing up the factories. The person who buys it should be able to make the asset more productive.
+ - Had a nice conversation with Tim Cook today. Discussed my opinion that a larger buyback should be done now. We plan to speak again shortly.
+
+25 quotes

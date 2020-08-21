@@ -1,0 +1,30 @@
+ - When you transform your mind, everything you experience is transformed.
+ - The mind is the source of all experience, and by changing the direction of the mind, we can change the quality of everything we experience.
+ - Ultimately, happiness comes down to choosing between the discomfort of becoming aware of your mental afflictions and the discomfort of being ruled by them.
+ - If we could see the whole truth of any situation, our only response would be one of compassion.
+ - If you’re determined to think of yourself as limited, fearful, vulnerable, or scarred by past experience, know only that you have chosen to do so. The opportunity to experience yourself differently is always available.
+ - The opportunity to experience yourself differently is always available.
+ - Meditation is really quite simple. All we have to do is embrace each experience with awareness and open our hearts fully to the present moment. When we are completely at ease with our own being, the ripples of awareness naturally spread out in all directions, touching the lives of everyone we meet.
+ - When we become fixed in our perceptions we lose our ability to fly.
+ - There’s no difference between what is seen and the mind that sees it.
+ - Simply notice that you’re aware. At any given moment, you can choose to follow the chain of thoughts, emotions, and sensations that reinforce a perception of yourself as vulnerable and limited, or to remember that your true nature is pure, unconditioned, and incapable of being harmed.
+ - Being human means having power; specifically, the power to accomplish whatever we want.
+ - We’re all buddhas. We just don’t recognize it.
+ - So overall, though my life is far from perfect, I’m contented with it. And in a peculiar way, I’m grateful for the troubling emotions I experienced. The obstacles we face in life can provide powerful incentives for change.
+ - Any daily activity can be used as an opportunity for meditation.
+ - The expectations you bring to meditation practice are often the greatest obstacles you will encounter.
+ - When you see your own desire to be happy, you can’t avoid seeing the same desire in others.
+ - Practice is personal; no two people’s experiences are alike.
+ - Compassion is the spontaneous wisdom of the heart.
+ - Compassion is the spontaneous wisdom of the heart. It’s always with us. It always has been, and always will be. When it arises in us, we’ve simply learned to see how strong and safe we really are.
+ - Meditation is actually a very simple exercise in resting in the natural state of your present mind, and allowing yourself to be simply and clearly present to whatever thoughts, sensations, or emotions occur.
+ - Not recognizing natural mind is simply an example of the mind’s unlimited capacity to create whatever it wants.
+ - If everything were permanent, singular, or independent, nothing would change.
+ - Happiness and unhappiness are not primarily created by the material world or the physical body. First and foremost, they are decisions of the mind.
+ - The best part of all is that no matter how long you practice, or what method you use, every technique of Buddhist meditation ultimately generates compassion.
+ - All that we are looking for in life – all the happiness, contentment, and peace of mind – is right here in the present moment.
+ - Within our perceived weaknesses and imperfections lies the key to realizing our true strength.
+ - TO CUT THROUGH problems, we need problems.
+ - Emotional states are fairly quick bursts of neuronal gossip. Traits, on the other hand, are more like the neuronal equivalent of committed relationships.
+
+28 quotes

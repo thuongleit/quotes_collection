@@ -1,0 +1,63 @@
+ - Cross Country: No half times, no time outs, no substitutions. It must be the only true sport.
+ - If you want to accomplish anything in life, you can’t just sit back and hope it will happen. You’ve got to make it happen.
+ - The only time we fail is when we stop trying.
+ - Men are like steel. When they lose their temper, they lose their worth.
+ - A lot of times people look at the negative side of what they feel they can’t do. I always look on the positive side of what I can do.
+ - Run while you still have the chance.
+ - A lot of people give up just before they’re about to make it. You know you never know when that next obstacle is going to be the last one.
+ - Good morals lead to good laws.
+ - I’ve always found that anything worth achieving will always have obstacles in the way and you’ve got to have that drive and determination to overcome those obstacles on route to whatever it is that you want to accomplish.
+ - We’re all human beings. And we all have our prejudices and so forth, but the thing is, let’s be tolerant with each other. And if we could do that, there would be a lot more peace in our world today.
+ - Karate is the best thing you can do for your child.
+ - There is no finish line. When you reach one goal, find a new one.
+ - You are not what has happened to you. You are what you choose to become.
+ - One of my life’s principles is to develop myself to the maximum of my potential in all ways and to help others do the same.
+ - Running from your fear can be more painful than facing it, for better or worse.
+ - If I had said, “I don’t stand a chance,” one thing is clear: I wouldn’t have.
+ - Anything worth achieving will always have obstacles in the way.
+ - If you come back in here, I’m gonna hit you with so many rights, you’re gonna beg for a left.
+ - Always remember that your success begins inside you: If you can’t see it first, no one else ever will.
+ - I definitely feel I do have God in my corner.
+ - The best defense is not to offend.
+ - I don’t initiate violence, I retaliate.
+ - The only time you lose at something is when you don’t learn from that experience.
+ - Use God’s mighty weapons, not those made by men, to knock down the devil’s strongholds.
+ - People whine, ‘I haven’t succeeded because I haven’t had the breaks.’ You create your own breaks.
+ - Focus on what it is that you want, set a realistic goal. Start setting goals that you feel you can accomplish. Don’t try to go right to the top in one leap. Every time you accomplish a goal you develop the strength and wisdom to accomplish the next one.
+ - Some of the most miserable people I know are some of the richest people in America, they are the most miserable individuals I’ve ever seen.
+ - Whatever luck I had, I made. I was never a natural athlete, but I paid my dues in sweat and concentration and took the time necessary to learn karate and become world champion.
+ - No one’s perfect. And we’ve all made our mistakes and you just have to live with them and try to not make them again.
+ - I think setting a goal, getting a visual image of what it is you want. You’ve got to see what it is you want to achieve before you can pursue it.
+ - Sometimes the things we want most are the hardest to get. That means you need to be even more determined to succeed. That’s what it takes to be a winner. You have to want it bad enough to stick with it no matter how tough things get.
+ - Chuck Norris knows the last digit of PI.
+ - I have a lot of guns on my ranch. I don’t use them for hunting. I’m not a hunter. It’s for protection. The Second Amendment was designed for tyranny.
+ - Violence is my last option.
+ - There are few problems in this world that cannot be solved by a swift roundhouse kick to the face. In fact, there are none.
+ - While I filmed the ‘Walker, Texas Ranger’ series for eight and a half years, I had never had much time to read, except for screenplays of the episodes.
+ - The 3 key components for success are as follows: Psychological Preparedness Physical Conditioning Mental Toughness.
+ - Life is very fragile and you never know when it is over. Only one instance and then it might be too late to accept Gods offer for forgiveness.
+ - If some thug breaks into my home I can use my roundhouse kick, but I prefer he look down the barrel of my gun.
+ - I hope I don’t get a roundhouse kick from Chuck Norris.
+ - When I got into the film business, my aim was to adopt a positive persona, of a guy who fights against injustice. And it saved me, because my acting was atrocious to say the least!
+ - It’s the bullies who are afraid, are the ones that do all the fighting. It’s not the secure kids that get out there and fight. It’s the insecure kids.
+ - Where’s Barack Obama when Christmas references are being erased from civic calendars? Is he crying out in defense of religious liberty and our First Amendment? Nope. He’s as silent as a church mouse. And animosity toward religion continues to grow.
+ - I’m very grateful for every thing I have. You know when you start losing that then you start losing what life’s all about.
+ - Unfortunately, people are re-interpreting the Constitution as a living document, and it’s not. It’s a solid-based document and it shouldn’t be played with.
+ - I haven’t always been warmly welcomed for holding my conservative positions in Hollywood. Then again, I’ve never been very good at being politically correct either, on or off screen. So why start now?
+ - It’s amazing because people come up to me and say, ‘Chuck, you’re the luckiest guy in the world to be a world karate champion and a movie and TV star.’ When they say this to me, I kind of smile because luck had nothing to do with it; God had everything to do with it.
+ - People have a hard time believing that, but not having a father around, being shy, I just never participated in sports much.
+ - Truthfully, I’m proud of each of my films in a certain way.
+ - I think you can learn from history.
+ - It wasn’t until I went to Korea out of high school and got exposed to the martial arts for the first time and was just completely enamored with the physical ability of the martial arts and making my black belt.
+ - People need to realise what real happiness and success is, because success as an actor is fleeting. You can be up there one day and gone the next.
+ - In America the schools have become too permissive, the kids now are controlling the schools, the tail is wagging the dog. We’ve got to make a change there and get it back to where the teachers have control of the classrooms.
+ - The fact is that everyone has ki, which is really little more than a technique of visualization allowing one to utilize the internal energy that we all have and letting it flow through the body...
+ - Well, I grew up as a democrat.
+ - My whole goal in my film career is to project a positive image on the screen, that I hope people will enjoy watching.
+ - I gave my life to the Lord at 12. I was baptized at 12.
+ - I’m a very religious person.
+ - I’ve been very fortunate to be able to use my series as a platform to show a good message for the kids.
+ - When I have the beard on I have people behind me in traffic honking their horn. I’m thinking “how in the world?” But it’s the beard – it’s kind of the stand out thing.
+ - My acting is atrocious, to say the least. But I’ve found that it’s not acting that people are concerned about, it’s your presence.
+
+61 quotes

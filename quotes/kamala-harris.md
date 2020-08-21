@@ -1,0 +1,39 @@
+ - I was raised to be an independent woman, not the victim of anything.
+ - The American dream belongs to all of us.
+ - Eighty-two percent of prisoners in the United States are high-school dropouts. A high-school dropout between the ages of 30 and 34 is two-thirds more likely to be in jail, or to have been in jail, or to be dead.
+ - Everyone’s perspective of themselves and others is based on the limitations of their exposure.
+ - My mother was and will always remain my greatest hero.
+ - I believe that a child going without an education is a crime.
+ - To change criminal justice policy in any meaningful way means to propose changing a very longstanding system. It’s not realistic to think you can do it overnight.
+ - Don’t pretend that you can just be oblivious to politics. You can’t. What you never do is break your personal code. Have a code and keep it. You should never compromise what your priorities are.
+ - When you expand your ability to see, you understand that there are a lot of false choices being offered.
+ - My mantra about everything that has to do with public policy is: identify and reject the false choice.
+ - Doing nothing while the middle class is hurting. That’s not leadership. Loose regulations and lax enforcement. That’s not leadership. That’s abandoning our middle class.
+ - I’m one of the luckiest people on earth.
+ - These days, children can text on their cell phone all night long, and no one else is seeing that phone. You don’t know who is calling that child.
+ - I have a difficult time sitting down for long periods.
+ - I think I have every piece of music Bob Marley ever made.
+ - We need to incorporate that age-old concept of redemption into the work that we do in the criminal justice system in California.
+ - I love being in a courtroom.
+ - What we all want is public safety. We don’t want rhetoric that’s framed through ideology.
+ - You got to take care of yourself. If I exercise or I eat proper foods, am I indulging myself? That’s called feeding your body.
+ - I am a prosecutor in my bones. When I see something, I immediately go to: how is this going to affect a child?
+ - I work out every morning. Only half an hour. I get on the treadmill. That’s it. Every morning, I don’t care what time. It gets your blood flowing. It gets your adrenaline flowing. I believe in eating well. It’s not fanatical. Eat good food. Make sure you’ve got good vegetables.
+ - I have loved to cook since I was a child in my mother’s kitchen. If I don’t have time to cook, I’ll just read a cookbook.
+ - Everybody will make mistakes, and for some that mistake will rise to the level of being a crime.
+ - In order to find balance, I feel very strongly about two things in particular in terms of routine. Work out, and eat well.
+ - I think Hillary Clinton could do whatever she puts her mind to. I really do. She’s incredibly dedicated to public service, she is smart as a whip, and she’s effective.
+ - I believe in that old adage that ’as goes California, so goes the country.
+ - Let’s not build the policy around the abuse. That’s not good policy. That’s actually bad policy. Build the policy around the aspiration point. That’s what we need to do when we’re seeing abuse online.
+ - Generally speaking, the public appetite for criminal justice policy is just tough talk.
+ - Mitt Romney subscribes to the cynical logic that says the American dream belongs to some of us but not all of us.
+ - I’ve had the good fortune and blessing to run for the offices for which I really wanted to do the work.
+ - In every work environment, there will be politics. If you really want to rise to the top, you need to figure out what those politics in your workplace are. Then, you hook it in. You decide what conforms and what does not conform to your personal code.
+ - You don’t have to care about children to care about children. One of the things that I talk a lot about is the fact of the importance of third-grade reading level. By the end of third grade, if the child is not at reading level, it’ll drop off. They never catch up.
+ - I could do all of my activities at Howard because it was an environment that had essentially rid the ideology of false choices that I feel absolutely constricts young black students.
+ - Women should not allow themselves to be caught up in the hype that says performance, meaning the motions, is what matters.
+ - With the advent of DNA, we know that people have been convicted and sentenced to death who later proved not to be guilty of the crime.
+ - I strongly believe that for serious and violent criminals, we must absolutely hold them accountable for their crimes and send them to prison.
+ - I want to use my position of leadership to help move along at a faster pace what I believe and know the Obama administration wants to do around the urgency of climate change.
+
+37 quotes

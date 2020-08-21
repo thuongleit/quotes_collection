@@ -1,0 +1,42 @@
+ - We should live and learn; but by the time we’ve learned, it’s too late to live.
+ - Actions lie louder than words.
+ - A blunder at the right moment is better than cleverness at the wrong time.
+ - Happiness is the ability to recognize it.
+ - One of the first principles of perseverance is to know when to stop persevering.
+ - Insistent advice may develop into interference, and interference, someone has said, is the hind hoof of the devil.
+ - The wages of sin is alimony.
+ - A guilty conscience is the mother of invention.
+ - A living gale is better than a dead calm.
+ - In December people give no thought to the Past or the Future. They thing only of the Present.
+ - A fool and his money are soon married.
+ - I am more fond of achieving than striving. My theories must prove to be facts or be discarded as worthless. My efforts must soon be crowned with success, or discontinued.
+ - Where there’s a will there’s a detective story.
+ - Of two evils choose the prettier.
+ - At times there is nothing so unnatural as nature.
+ - To take pride in a library kills it. Then, its motive power shifts over to the critical if admiring visitor, and apologies are necessary and acceptable and the fat is in the fire.
+ - Almost before the big motor-car stopped, the girl sprang out.
+ - Take care of your common sense, and your dignity will take care of itsself.
+ - You wouldn’t believe On All Hallow Eve What lots of fun we can make, With apples to bob, And nuts on the hob, And a ring-and-thimble cake.
+ - A critic is a necessary evil, and criticism is an evil necessity.
+ - I’m just the same age I’ve always been.
+ - Wall Street. – The abode of the Brokers and the Broke.
+ - Circumstances alter faces.
+ - What is a magazine? A small body of Literature entirely surrounded by advertisements.
+ - A cynic is a man who looks at the world with a monocle in his mind’s eye.
+ - Contentment is the result of a limited imagination.
+ - Youth is a silly, vapid state, Old age with fears and ills is rife, This simple boon I beg of Fate – A thousand years of Middle Life.
+ - Patriotism covers a multitude of sins.
+ - Every dogma must have its day.
+ - All through the nineties I met people. Crowds of people. Met and met and met, until it seemed that people were born and hastily grew up, just to be met.
+ - Flirtation envies Love, and Love envies Flirtation.
+ - A profit is not without honor save in Boston.
+ - The way to do some things is to do them.
+ - It is the interest one takes in books that makes a library. And if a library have interest it is; if not, it isn’t.
+ - When I feel that I’m going to write a detective story, I buy a five pound box of chocolates and a ream of paper. When the candy is all gone and the paper all used up, I know that the book is long enough.
+ - Invitation is the sincerest flattery.
+ - I view askance a book that remains undisturbed for a year. Oughtn’t it to have a ticket of leave? I think I may safely say no bookin my library remains unopened a year at a time, except my own works and Tennyson’s.
+ - Reward is its own virtue.
+ - To make a library It takes two volumes And a fire. Two volumes and a fire, And interest. The interest alone will do If logs are few.
+ - Advice is one of those things it is far more blessed to give than to receive.
+
+40 quotes

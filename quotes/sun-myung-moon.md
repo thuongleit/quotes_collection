@@ -1,0 +1,53 @@
+ - Give love and forget that you gave it.
+ - True Love comes into being when you practice the highest possible love in the lowest possible place. There you deal with impossible people and try to raise them into the highest possible people by showing them the highest possible standard. There is where True Love can be found and can start.
+ - Even though we are deceived, still believe. Though we are betrayed, still forgive. Love completely even those who hate you.
+ - Anyone can keep going in an easy situation, but do you have a philosophy which can enable you to meet the worst hardship?
+ - Jesus said, “I am the way, the truth, and the life.” In order for you yourself to become the way, the truth, and the life, you must embrace the whole universe and bring harmony to it.
+ - More precious than life is love, for there can be no life without love.
+ - Remember that the Unification Church rose, not in freedom, but from a prison, the pit of suffering.
+ - Even the smallest and most trivial thing can bring you happiness when you do it for another.
+ - If you see the good in others and cover their defects with your love, they will follow you. If you see only weaknesses in others, your spirituality will be ruined.
+ - I am not anyone’s enemy.
+ - In restoring man from evil sovereignty, we must cheat.
+ - I will conquer and subjugate the world.
+ - If you convey God’s words to someone only with the intention to utilize him in some way, you will never be able to establish the standard of the “Way.” Give what you have to others with your sincere heart.
+ - There are enough churches already, but the world still needs salvation.
+ - The spiritual world is connected with the physical world. The common factor connecting all things is true love.
+ - Don’t live your life as though you were measuring it with a ruler.
+ - I did not come here to repeat what you already know. I have come to reveal something new. I want to share with you a new revelation from God.
+ - We leaders should leave the tradition that we have become crazy for God.
+ - There are many crooked lines and one straight line. Which is the line of truth? Why the straight line? Truth is always the shortest distance between two points.
+ - Before children, even the most cynical people throw down their usual masks and become capable of feeling the purity and love which all human beings seek.
+ - I would not be standing here today if my skin were white or my religion were Presbyterian. I am here today only because my skin is yellow and my religion is Unification Church. The ugliest things in this beautiful country of America are religious bigotry and racism.
+ - Absolute faith is not the place of self-affirmation, but the place of self-negation. Life of faith is not limited to our spiritual life. What is important is how our spiritual sensitivity is applied to our relative environment.
+ - So telling a lie becomes a sin if you tell it to take advantage of a person, but if you tell a lie to do a good thing for him that is not a sin. Even God tells lies very often; you can see this throughout history.
+ - A member must say that he is a member of the Unification Church and that he is the follower of Sun Myung Moon. If he doesn’t have the courage to say it, he is not worthy of me.
+ - I created the Women’s Federation for World Peace in order to restore all that woman originally lost. You American women don’t need a man in the position of grandfather, parents, husband, elder or younger brother. You only need the true Adam.
+ - The day will come, however, when they will truly know the Unification Church and me. The day will come when the truth will be known and the message of love will be taught. On that day, their regret will be deep.
+ - The democratic world has come to a dead end; likewise, the communist world has come to a dead end. But the Unification Church is just beginning!
+ - If there is illness in your home, do you not need a doctor from outside? If your home catches on fire, do you not need fire fighters from outside? God has sent me to America in the role of a doctor, in the role of a fire fighter.
+ - My mission is a cosmic mission. My concern is for all of humanity, and not only this present world, but the world hereafter. My mission penetrates the past, present, and future, and encompasses all humanity.
+ - A God who fits within the confines of our conception is useless. God cannot be comprehended by man’s conception or logic. God is an eternal being who transcends the framework of man’s limited logic.
+ - Throughout history no one has suffered more than God. He has suffered because his own children fell away from him. Ever since the Fall, God has been working tirelessly for the restoration of mankind. People do not know this brokenhearted aspect of God.
+ - I can understand why Christians call us heretics. But most important, who will God call a heretic? From God’s point of view, my revelation is deeply orthodox.
+ - I served the famous professors and scholars, and eventually they learned that the Reverend Moon is superior to them. Even Nobel laureate academics who thought they were at the center of knowledge are as nothing in front of me.
+ - You should be a person who can establish the Heavenly Kingdom rather than just the one who can go there. Those who can go to heaven are those who wish to be dependent on God, but those capable of building the Kingdom are those who can let God depend on them.
+ - Am I foolish and insignificant or am I great? I gave all the individuals in the world cause to kneel down in front of me.
+ - My every action is to liberate God from his sorrow.
+ - The true sovereign is not the American president nor the English king, but the Lord of the Second Advent.
+ - The time has come when the whole world must be concerned about me. From now on, American Christianity must follow me.
+ - Looking at the Moonies from the normal, common-sense point of view, we certainly appear to be a bunch of crazy people!
+ - If you tell a lie to make a person better, then that is not a sin.
+ - In a way then, the Divine Principle, this new revelation, is the documentary of my life. It is my own life experience. The Divine Principle is in me, and I am in the Divine Principle.
+ - If the world had attended me after World War II, it would have been united within seven years, and there would have been no suffering of the Unification Church and no damage to the democratic world.
+ - No matter how difficult your situation may be you have to follow the Lord of the Second Advent completely.
+ - If you refrain from judging your worst enemy, his children will come to your side. What more severe judgment could come upon an enemy than this?
+ - Any politician who wants to run for president will come to me in a few years.
+ - True religious movements prosper and flourish under tribulation.
+ - Up until today evil has lured goodness into evil, but goodness has not been able to lure evil into goodness. This may be the reason why up to today Christianity has not been able to boldly fulfill the Will of God.
+ - In my opinion, if we have not achieved peace, it is because people forget its most fundamental aspect. Before we talk about peace among nations, we must settle our peace with God.
+ - Let’s say there are 500 sons and daughters like you in each state. Then we could control the government.
+ - Those who are the most devout, outstanding Unification Church members are they the most beautiful people externally or just so-so? Very often, those who have the features of an Idaho potato are the most loyal members of the Unification Church.
+ - Communism is trying to take the world by force. But God will take the world by love.
+
+51 quotes

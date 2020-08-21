@@ -1,0 +1,42 @@
+ - Children must be taught how to think, not what to think. ~~Margaret Mead
+ - Teachers can change lives with just the right mix of chalk and challenges. ~~Joyce Meyer
+ - Think twice before you speak, because your words and influence will plant the seed of either success or failure in the mind of another. ~~Napoleon Hill
+ - Anything which is troubling you, anything which is irritating you, THAT is your teacher. ~~Ajahn Chah
+ - When the student is ready the teacher will appear. ~~Laozi
+ - Education breeds confidence. Confidence breeds hope. Hope breeds peace. ~~Confucius
+ - Vision is the art of seeing what is invisible to others. ~~Jonathan Swift
+ - There are no mistakes in life, only lessons. There is no such thing as a negative experience, only opportunities to grow, learn and advance along the road of self-mastery. From struggle comes strength. Even pain can be a wonderful teacher. ~~Robin S. Sharma
+ - A teacher should have a creative mind. ~~Abdul Kalam
+ - I’m not a teacher, but an awakener. ~~Robert Frost
+ - If you think your teacher is tough, wait till you get a boss. ~~Bill Gates
+ - I’m not a teacher: only a fellow traveler of whom you asked the way. I pointed ahead – ahead of myself as well as you. ~~George Bernard Shaw
+ - Success is a poor teacher. We learn the most about ourselves when we fail, so don’t be afraid of failing. Failing is part of the process of success. You cannot have success without failure. ~~Robert T. Kiyosaki
+ - Reading maketh a full man; conference a ready man; and writing an exact man. ~~Francis Bacon
+ - Make failure your teacher, not your undertaker. ~~Zig Ziglar
+ - The wisest and noblest teacher is nature itself. ~~Leonardo da Vinci
+ - Tell me, what is it you plan to do with your one wild and precious life? ~~Mary Oliver
+ - He who can, does. He who cannot, teaches. ~~George Bernard Shaw
+ - Failure should be our teacher, not our undertaker. Failure is delay, not defeat. It is a temporary detour, not a dead end. Failure is something we can avoid only by saying nothing, doing nothing, and being nothing. ~~Denis Waitley
+ - When you’re going through something hard and you start wondering where Allah is, just remember, the Teacher is always quiet during a test. ~~Nouman Ali Khan
+ - Tell me and I forget, teach me and I may remember, involve me and I learn. ~~Benjamin Franklin
+ - Experience is a hard teacher because she gives the test first, the lesson afterward. ~~Vern Law
+ - True teachers are those who use themselves as bridges over which they invite their students to cross; then, having facilitated their crossing, joyfully collapse, encouraging them to create their own. ~~Nikos Kazantzakis
+ - Those who educate children well are more to be honored than they who produce them; for these only gave them life, those the art of living well. ~~Aristotle
+ - Stay committed to your decisions, but stay flexible in your approach. ~~Tony Robbins
+ - Today a reader, tomorrow a leader. ~~Margaret Fuller
+ - Education is learning what you didn’t even know you didn’t know. ~~Daniel J. Boorstin
+ - One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child. ~~C.G. Jung
+ - If you take responsibility for yourself you will develop a hunger to accomplish your dreams. ~~Les Brown
+ - Success is a lousy teacher. It seduces smart people into thinking they can’t lose. ~~Bill Gates
+ - Knowledge comes, but wisdom lingers. ~~Alfred Tennyson
+ - The shadow is the greatest teacher for how to come to the light. ~~Ram Dass
+ - If I am walking with two other men, each of them will serve as my teacher. I will pick out the good points of the one and imitate them, and the bad points of the other and correct them in myself. ~~Confucius
+ - Pleasure in the job puts perfection in the work. ~~Aristotle
+ - High achievement always takes place in the framework of high expectation. ~~Charles F. Kettering
+ - There are many things which no teacher can convey to a child of three, but a child of five can do it with ease. ~~Maria Montessori
+ - Being entirely honest with oneself is a good exercise. ~~Sigmund Freud
+ - This very moment is the perfect teacher, and, lucky for us, it’s with us wherever we go. ~~Pema Chödrön
+ - Opportunities are usually disguised as hard work, so most people don’t recognize them. ~~Ann Landers
+ - If we lose the forests, we lose our only teachers. ~~Bill Mollison
+
+40 quotes

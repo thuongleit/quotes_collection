@@ -1,0 +1,37 @@
+ - To paraphrase Winston Churchill, capitalism is the worst economic system except for all the other forms.
+ - Rich countries have ‘kicked away the ladder’ by forcing free-market, free-trade policies on poor countries. Already established countries do not want more competitors emerging through the nationalistic policies they themselves successfully used in the past.
+ - A well-designed welfare state can actually encourage people to take chances with their jobs and be more, not less, open to changes.
+ - There are different ways to organise capitalism. Free-market capitalism is only one of them-and not a very good one at that.
+ - We are not smart enough to leave things to the market.
+ - 95 percent of economics is common sense made complicated, and even for the remaining 5 percent, the essential reasoning, if not all the technical details, can be explained in plain terms.
+ - Once you realize that trickle-down economics does not work, you will see the excessive tax cuts for the rick as what they are – a simple upward redistribution of income, rather than a way to make all of us richer, as we were told.
+ - Rational thinking is an important aspect of human nature, but we have imagination, we have ambition, we have irrational fear, we are swayed by other people, we get indoctrinated and we get influenced by advertising.
+ - Financial markets need to become less, not more, efficient.
+ - The free market doesn’t exist. Every market has some rules and boundaries that restrict freedom of choice. A market looks free only because we so unconditionally accept its underlying restrictions that we fail to see them.
+ - Democracy and markets are both fundamental building blocks for a decent society. But they clash at a fundamental level. We need to balance them.
+ - There is no such thing as a free market.
+ - The best way to boost the economy is to redistribute wealth downward, as poorer people tend to spend a higher proportion of their income.
+ - Equality of opportunity is meaningless for those who do not have the capabilities to take advantage of it.
+ - Countries are poor not because their people are lazy; their people are ‘lazy’ because they are poor.
+ - 95% of Economics is common sense deliberately made complicated.
+ - Making rich people richer doesn’t make the rest of us richer.
+ - The foundation of economic development is the acquisition of more productive knowledge.
+ - Assume the worst about people and you get the worst.
+ - Corruption exists because there is too much, not too little, market.
+ - Low inflation and government prudence may be harmful for economic development.
+ - The Korean economic miracle was the result of a clever and pragmatic mixture of market incentives and state direction.
+ - History is on the side of the regulators.
+ - In manufacturing, where mechanization and the use of chemical processes are much easier, it is easier to raise productivity than in services. In contrast, by their very nature, many service activities are inherently impervious to productivity increase without diluting the quality of the product.
+ - It’s not just about the current economic environment. History shows that slashing budgets always leads to recession.
+ - There is a big logical jump between acknowledging the destructive nature of hyperinflation and arguing that the lower the rate of inflation, the better.
+ - Since the 1980s, we have given the rich a bigger slice of our pie in the belief that they would create more wealth, making the pie bigger than otherwise possible in the long run. The rich got the bigger slice of the pie all right, but they have actually reduced the pace at which the pie is growing.
+ - The top 10 per cent of the US population appropriated 91 per cent of income growth between 1989 and 2006, while the top 1 per cent took 59 per cent.
+ - Democracy is acceptable to neo-liberals only in so far as it does not contradict the free market.
+ - The history of capitalism has been so totally re-written that many people in the rich world do not perceive the historical double standards involved in recommending free trade and free market to developing countries.
+ - Culture changes with economic development.
+ - The washing machine changed the world more than the Internet.
+ - People ‘over-produce’ pollution because they are not paying for the costs of dealing with it.
+ - People who live in poor countries have to be entrepreneurial even just to survive.
+ - The invention of the printing press was one of the most important events in human history.
+
+35 quotes

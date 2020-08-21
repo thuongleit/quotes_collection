@@ -1,0 +1,24 @@
+ - Relax. Be yourself. Play a lot.
+ - I see something in her eyes, sends me to a better place.
+ - Eee-nee-mee-nee-my-nee-moe.
+ - It really sucks when music is so perfect you just don’t need to hear it anymore.
+ - My inspirations don’t come from outer space, they just come to me. I have no idea why they come when they do.
+ - I’ve always done ‘the wrong thing’ and had a pretty wonderful time doing it.
+ - When you hear an instrumental song someone is singing over, you know right away it’s wrong.
+ - I assume most guitar players are like me. They’re playing, having fun; then they get a magazine in the mail that says “Shred Is Dead” and they say, “What the Hell?” They throw it away and keep on playing.
+ - When you hear something you don’t like, don’t ever play it again.
+ - I write the songs first and in most cases teach myself the technique second.
+ - It’s funny how you can struggle with one piece and write a better one in a minute. When things come easy, it means it’s good.
+ - I started out playing guitar because Jimi Hendrix was my hero, so my roots were really based on Jimi Hendrix and his style of playing.
+ - There’s a fine line between giving the sense of freedom and being too free.
+ - Some of us are going to play faster than others. Hitting the right notes and getting your technique right is so much more important than speed.
+ - 18th September, 1970; Jimi Hendrix dies. I’m still on the football team when I get the news. So I take my helmet off and confront the coach to tell him I’m quitting the team. In a moment of brilliance he gives me one look and says “OK”.
+ - Satriani’s Law: There’s at least a 30% chance that someone will print the name Satriani incorrectly.
+ - I pride myself on being incorrigible. I have a very hard time being told what to do.
+ - Basic anatomy. That has got to be the ongoing frustration: Why can’t my fingers do what I want them to do? Not being able to play what I hear in my head – that is the ultimate source of frustration.
+ - Song ideas have come to me in the middle of interviews, in the shower, or while I’m writing another song.
+ - I’m ready to take the heat.
+ - When I want to play music, you’ve got to get me on tape or else it goes.
+ - I started learning to sing what I liked, to experience it in a visceral way. Then it’s inside. Get rid of the neurosis and then you can improvise.
+
+22 quotes

@@ -1,0 +1,56 @@
+ - The brain, is the most complex thing we have yet discovered in our universe.
+ - I don’t think we are here for anything. We’re just products of evolution. You can say, “Gee, your life must be pretty bleak if you don’t think there’s a purpose.” But I’m anticipating a good lunch.
+ - There is only one science, physics: everything else is social work.
+ - The brain is the last and grandest biological frontier, the most complex thing we have yet discovered in our universe. It contains hundreds of billions of cells interlinked through trillions of connections. The brain boggles the mind.
+ - One could not be a successful scientist without realizing that, in contrast to the popular conception supported by newspapers and mothers of scientists, a goodly number of scientists are not only narrow-minded and dull, but also just stupid.
+ - It’s necessary to be slightly underemployed if you are to do something significant.
+ - Whenever you interview fat people, you feel bad, because you know you’re not going to hire them.
+ - DNA was my only gold rush. I regarded DNA as worth a gold rush.
+ - Nothing new that is really interesting comes without collaboration.
+ - For all my life, America was the place to be. And we somehow continue to be the place where there are real opportunities to change the world for the better.
+ - One of the greatest gifts science has brought to the world is continuing elimination of the supernatural.
+ - Every time you understand something, religion becomes less likely. Only with the discovery of the double helix and the ensuing genetic revolution have we had grounds for thinking that the powers held traditionally to be the exclusive property of the gods might one day be ours. 5.
+ - Ever since we achieved a breakthrough in the area of recombinant DNA in 1973, left-wing nuts and environmental kooks have been screaming that we will create some kind of Frankenstein bug or Andromeda Strain that will destroy us all.
+ - Today, the theory of evolution is an accepted fact for everyone but a fundamentalist minority, whose objections are based not on reasoning but on doctrinaire adherence to religious principles.
+ - Our goal should be to understand our differences.
+ - I turned against the left wing because they don’t like genetics, because genetics implies that sometimes in life we fail because we have bad genes. They want all failure in life to be due to the evil system.
+ - There is no firm reason to anticipate that the intellectual capacities of peoples geographically separated in their evolution should prove to have evolved identically. Our wanting to reserve equal powers of reason as some universal heritage of humanity will not be enough to make it so.
+ - If scientists don’t play God, who will?
+ - You’ve never heard of an English lover. Only an English patient.
+ - Science moves with the spirit of an adventure characterized both by youthful arrogance and by the belief that the truth, once found, would be simple as well as pretty.
+ - The biggest advantage to believing in God is you don’t have to understand anything, no physics, no biology. I wanted to understand.
+ - Science has always been my preoccupation and when you think a breakthrough is possible, it is terribly exciting.
+ - A goodly number of scientists are not only narrow-minded and dull, but also just stupid.
+ - If I had been married earlier in life, I wouldn’t have seen the double helix. I would have been taking care of the kids on Saturday. On the other hand, I was lonely a lot of the time.
+ - People say it would be terrible if we made all girls pretty. I think it would be great.
+ - Biology has at least 50 more interesting years.
+ - Take young researchers, put them together in virtual seclusion, give them an unprecedented degree of freedom and turn up the pressure by fostering competitiveness.
+ - We’re not all equal, it’s simply not true. That isn’t science.
+ - Never be the brightest person in the room.
+ - I never dreamed that in my lifetime my own genome would be sequenced.
+ - The pace of discovery is going unbelievably fast.
+ - I am thrilled to see my genome.
+ - Science that leads over the horizon depends on gathering the best minds and enabling them to do what the best minds naturally seek to do: pursue the most thrilling questions of the time.
+ - A clone of Einstein wouldn’t be stupid, but he wouldn’t necessarily be any genius, either.
+ - Do things as soon as you can. If a decision needs to be made, make it. It gives you more time to change your mind.
+ - Some think there is something wrong about enhancing people.
+ - No good model ever accounted for all the facts, since some data was bound to be misleading if not plain wrong.
+ - I think the reason people are dealing with science less well now than 50 years ago is that it has become so complicated.
+ - There are many people of color who are very talented.
+ - Already for thirty-five years he had not stopped talking and almost nothing of fundamental value had emerged.
+ - The luckiest thing that ever happened to me was that my father didn’t believe in God, and so he had no hang-ups about souls.
+ - No one may have the guts to say this, but if we could make better human beings by knowing how to add genes, why shouldn’t we?
+ - I wish there would be more movies about scientists.
+ - If you succeed with your first dream, it helps. You know, people trust you, possibly, for the second one. They give you a chance to play out your second one.
+ - My heroes were never scientists. They were Graham Greene and Christopher Isherwood, you know, good writers.
+ - Ultimately, we’ll help the people we discriminate against if we try to understand more about them; genetics will lead to a world where there is a sympathy for the underdog.
+ - The way to do great science is to stay away from subjects that are overpopulated, and go to the frontiers.
+ - Polls consistently show that the majority of Americans favour research using embryonic stem cells and yet politicians continue to pander to the outspoken religious minority that is hampering efforts to develop this potentially valuable technology.
+ - As an educator, I have always striven to see that the fruits of the American Dream are available to all.
+ - Racists have often used pseudoscience to justify their socially damaging views; watch these films to see how science, by replacing ignorance with knowledge, can undo that damage.
+ - I wanted to see if I could write a good book.
+ - I have been much blessed.
+ - The American public is being sold a very nasty bill of goods about cancer.
+ - Moving forward will not be for the faint of heart. But if the next century witnesses failure, let it be because our science is not yet up to the job, not because we don’t have the courage to make less random the sometimes most unfair courses of human evolution.
+
+54 quotes

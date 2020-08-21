@@ -1,0 +1,57 @@
+ - The opposite of good is not evil; it’s apathy.
+ - Anyone who knows me, knows that I am not afraid of anything.
+ - It’s up to us, the people, to break immoral laws, and resist.
+ - You tell me the truth. You tell me that my son died for oil. You tell me that my son died to make your friends rich. You tell me my son died to spread the cancer of Pax Americana, imperialism in the Middle East.
+ - I’m just a regular mother who’s trying to save lives and be the best human being I can be.
+ - If we stick together as an American people we can bring down the war criminals that are running our country right now.
+ - Loyalty to the true, core values and roots of democracy is what makes a true patriot, not loyalty to a symbol of the country.
+ - Segmented killing and hatred will only stop when we enlarge our personal, national, and international circles of concern to include all six billion people on this planet: not just the white ones, Christian ones, American ones, female ones, or any ones. Simply put: every one.
+ - I love my country. But how many more of our loved ones need to die in this senseless war?
+ - We can’t allow any war for imperialism or greed to be fought in our names. This is what we need to keep fighting for.
+ - It’s obvious that things aren’t going well over there. This is a war based on lies.
+ - It’s up to us, the people, to break immoral laws, and resist. As soon as the leaders of a country lie to you, they have no authority over you. These maniacs have no authority over us. And they might be able to put our bodies in prison, but they can’t put our spirits in prison.
+ - People who are against me attack me personally. They attack the way I look physically, they attack the way I dress, they attack everything but what I say.
+ - Everything I say comes from my heart – and it’s the truth.
+ - If the people of America do not rise up, take ownership of our country, we’re going to lose it forever.
+ - I have been known for some time as a person who speaks the truth and speaks it strongly. I have always called a liar a liar and a hypocrite a hypocrite.
+ - Recruiters in our country are known for lying to people.
+ - No one can sustain rage for long. I am still angry and always will be. My dear son was stolen from me and his family to never return. He was killed for profit and lies. How can I not be angry? Sometimes though, the rage comes back.
+ - One of my biggest inspirations is President Hugo Chavez of Venezuela. Yea, President Hugo.
+ - Why do the right wing media so assiduously scrutinize the words of a grief filled mother and ignore the words of a lying president?
+ - I wake up every day feeling like today’s the day to make a difference. I never question the correctness of what I’m doing or the need for it.
+ - America has been killing people on this continent since it was started. This country is not worth dying for...
+ - My husband has always agreed with me philosophically.
+ - The person who killed my son, I have no animosity for that person at all.
+ - I’m just so honored that the universe chose me to be the spark that has set off a raging inferno.
+ - I think Michael Moore is an amazing man – an amazing, brave man. And I think people are probably going to start saying, ‘Don’t associate with Cindy Sheehan.’ People who speak truth to power somehow are marginalized in this country.
+ - I can’t speak for the other people whose children have died, but I can speak for my family and the other members of Gold Star Families for Peace. We believe we’re honoring our children by working for peace.
+ - My son joined the Army to protect America, not Israel.
+ - I am not a politician or a military strategist. I am just a citizen voicing my opinions.
+ - People demonize me; people idolize me; everything I say and do has been scrutinized.
+ - This was a war that was based on lies. It was wrong for us to invade Iraq. It’s wrong for us to occupy Iraq and we need to bring our troops home.
+ - I’ve always admired President Chavez for standing up to imperialism and the meddling of the American government in South America.
+ - Every day is a new sense of tearing my heart out of my body again when I see other children who have been killed, and I know what their families are going through.
+ - I feel like I gave my son to this country in an illegal and immoral war, and I’ll never get him back.
+ - I believe that it is my right and responsibility as an American to question our government when our government is wrong.
+ - I admire President Chavez for his strength to resist the United States. Instead, Bush is waging a war of terrorism against the world.
+ - The people who are slamming me have no idea about what it feels like to unjustly have a child killed in an insane war.
+ - The Democrats are as much a part of the war machine as the Republicans. We can’t let Democrats get off the hook because they’re Democrats.
+ - I raised four kids in six years.
+ - We’re here to let the Democrats know that the grass roots and the anti-war movement elected them to create change.
+ - We really need to stop the imperialist tendencies of countries like the United States and Great Britain.
+ - Let’s push the Pentagon off the fiscal cliff.
+ - The American electorate are getting disgusted with weaklings who blow where the wind takes them while frittering away our precious lifeblood and borrowing money from our new owners, the Chinese.
+ - The biggest terrorist is George W. Bush.
+ - My son was killed in 2004. I am not paying my taxes for 2004. You killed my son, George Bush, and I don’t owe you a penny.
+ - Many people in San Francisco know me, and they know my persistence.
+ - We haven’t been happy with the way the war has been handled. The president has changed his reasons for being over there every time a reason is proven false or an objective reached.
+ - There has always been excuses for wars, but NONE of them have been good or valid.
+ - I’m working class, my family was working class, and we have struggled the same way our neighbors here in San Francisco have struggled.
+ - I believe that any candidate who supports the war should not receive our support. It doesn’t matter if they’re Senator Clinton or whoever.
+ - I’m a socialist, and I’m not going to be ashamed to say it!
+ - You get America out of Iraq, you get Israel out of Palestine.
+ - My children were the center of my life.
+ - I’m not going to join any party. If I do vote again, and if I do become, you know, politically active, it will be independent.
+ - So what really gets me is these chickenhawks, who sent our kids to die, without ever serving in a war themselves. They don’t know what it’s all about.
+
+55 quotes

@@ -1,0 +1,42 @@
+ - Follow your passion. It will lead you to your purpose. ~~Oprah Winfrey
+ - Activity without purpose is the drain of your life. ~~Tony Robbins
+ - A man without a sense of purpose, even one whose bank accounts are stuffed with money, is always a small man. ~~Stephen King
+ - When every action has a purpose, every action has a result. ~~Greg Plitt
+ - Use me, God. Show me how to take who I am, who I want to be, and what I can do, and use it for a purpose greater than myself. ~~Martin Luther King Jr.
+ - Begin each day as if it were on purpose. ~~Will Smith
+ - Suffering has a noble purpose: the evolution of consciousness and the burning up of the ego. ~~Eckhart Tolle
+ - The best things in life make you sweaty. ~~Edgar Allan Poe
+ - The purpose of life is to discover your gift. The work of life is to develop it. The meaning of life is to give your gift away. ~~David Viscott
+ - Find your purpose, find your voice. ~~Demi Lovato
+ - The difference between successful people and really successful people is that really successful people say no to almost everything. ~~Warren Buffett
+ - The solution to low self-esteem is to get over yourself and get a higher purpose. ~~Marianne Williamson
+ - Define your priorities, know your values and believe in your purpose. Only then can you effectively share yourself with others. ~~Les Brown
+ - Every life has a purpose. Share your story and you may help someone find their own. ~~Demi Lovato
+ - The most dangerous thing in the world is to have no purpose. ~~T.D. Jakes
+ - Morality comes from humanism and is stolen by religion for its own purposes. ~~Christopher Hitchens
+ - The purpose of art is to stop time. ~~Bob Dylan
+ - All I can do is be me, whoever that is. ~~Bob Dylan
+ - The purpose of life is to be defeated by greater and greater things. ~~Rainer Maria Rilke
+ - To succeed, work hard, never give up and above all cherish a magnificent obsession. ~~Walt Disney
+ - God knows your value; He sees your potential. You may not understand everything you are going through right now. But hold your head up high, knowing that God is in control and he has a great plan and purpose for your life. ~~Joel Osteen
+ - Work gives you meaning and purpose and life is empty without it. ~~Stephen Hawking
+ - Man is nothing else but what he purposes, he exists only in so far as he realizes himself, he is therefore nothing else but the sum of his actions, nothing else but what his life is. ~~Jean-Paul Sartre
+ - Love without action is meaningless and action without love is irrelevant. ~~Deepak Chopra
+ - The purpose of computing is insight, not numbers. ~~Richard Hamming
+ - We are created for community, fashioned for fellowship, and formed for a family, and none of us can fulfill God’s purposes by ourselves. ~~Rick Warren
+ - What a different story men would have to tell if only they would adopt a DEFINITE PURPOSE, and stand by that purpose until it had time to become an all-consuming obsession! ~~Napoleon Hill
+ - The ultimate purpose of life is to show that Jesus is more precious than life. ~~John Piper
+ - Everything happens for a reason and a purpose, and it serves you. ~~Tony Robbins
+ - Better by far to embrace the hard truth than a reassuring fable. If we crave some cosmic purpose, then let us find ourselves a worthy goal. ~~Carl Sagan
+ - If through a broken heart God can bring His purposes to pass in the world, then thank Him for breaking your heart. ~~Oswald Chambers
+ - Hands that serve are holier than lips that pray. ~~Sai Baba
+ - The purpose of literature is to turn blood into ink. ~~T. S. Eliot
+ - It’s not my responsibility to be beautiful. I’m not alive for that purpose. My existence is not about how desirable you find me. ~~Warsan Shire
+ - I serve God, and my purpose is to please Him, and if God be for you, who can be against you? ~~Ben Carson
+ - Unless you assume a God, the question of life’s purpose is meaningless. ~~Bertrand Russell
+ - The purpose of a storyteller is not to tell you how to think, but to give you questions to think upon. ~~Brandon Sanderson
+ - Quit living as if the purpose of life is to arrive safely at death. ~~Mark Batterson
+ - If you do not believe in a personal God, the question: ‘What is the purpose of life?’ is unaskable and unanswerable. ~~J. R. R. Tolkien
+ - With me poetry has not been a purpose, but a passion. ~~Edgar Allan Poe
+
+40 quotes

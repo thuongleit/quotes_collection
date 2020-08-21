@@ -1,0 +1,22 @@
+ - I am only one, but still I am one. I cannot do everything, but still I can do something; and because I cannot do everything, I will not refuse to do something that I can do.
+ - I know I am only one, but I am one, and just because I’m one should not stop me from.
+ - In the pure mathematics we contemplate absolute truths which existed in the divine mind before the morning stars sang together, and which will continue to exist there when the last of their radiant host shall have fallen from heaven.
+ - Take time enough for your meals, and eat them in company whenever you can. There is no need for hurry in life – least of all when we are eating.
+ - An intelligent class can scarce ever be, as a class, vicious, and never, as a class, indolent. The excited mental activity operates as a counterpoise to the stimulus of sense and appetite.
+ - I will not refuse to do the something I can do.
+ - Make it your habit not to be critical about small things.
+ - Never bear more than one trouble at a time. Some people bear three kinds – all they have had, all they have now, and all they expect to have.
+ - To look forward and not back, To look out and not in, and To lend a hand.
+ - Wise anger is like fire from a flint: there is great ado to get it out; and when it does come, it is out again immediately.
+ - I can’t do everything, but that won’t stop me from doing the little I can do.
+ - If you have accomplished all that you have planned for yourself, you have not planned enough.
+ - Friendship is one of the greatest luxuries of life.
+ - The making of friends, who are real friends, is the best token we have of a man’s success in life.
+ - You and I must not complain if our plans break down if we have done our part. That probably means that the plans of One who knows more than we do have succeeded.
+ - He loved his country as no other man has loved her, but no man deserved less at her hands.
+ - You shall not pile, with servile toil, Your monuments upon my breast, Nor yet within the common soil Lay down the wreck of power to rest, Where man can boast that he has trod On him that was “the scourge of God.”
+ - War – hard apprenticeship of freedom.
+ - For all mankind that unstained scroll unfurled, Where God might write anew the story of the World.
+ - In the name of Hypocrites, doctors have invented the most exquisite form of torture ever known to man: survival.
+
+20 quotes

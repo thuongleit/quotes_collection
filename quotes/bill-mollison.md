@@ -1,0 +1,24 @@
+ - Though the problems of the world are increasingly complex, the solutions remain embarrassingly simple.
+ - We are surrounded by insurmountable opportunities.
+ - If we lose the forests, we lose our only teachers.
+ - You don’t have a snail problem, you have a duck deficiency.
+ - The only ethical decision is to take responsibility for our own existence and that of our children.
+ - I teach self-reliance, the world’s most subversive practice. I teach people how to grow their own food, which is shockingly subversive. So, yes, it’s seditious. But it’s peaceful sedition.
+ - Permaculture creates a cultivated ecology, which is designed to produce more human and animal food than is generally found in nature.
+ - Women are the holders of all knowledge, everything a man knows he stole from a woman.
+ - We’re only truly secure when we can look out our kitchen window and see our food growing and our friends working nearby.
+ - Compressed air can provide limitless amounts of clean energy using technology we have had for hundreds of years.
+ - Permaculture is a philosophy of working with, rather than against nature; of protracted and thoughtful observation rather than protracted and thoughtless labor; and of looking at plants and animals in all their functions, rather than treating any area as a single product system.
+ - There is no more time-wasting process than that of believing people will act, and then finding that they will not.
+ - To accumulate wealth, power or land beyond one’s needs in a limited world is to be truly immoral, be it as an individual, an institution, or a nation-state.
+ - To create a mess in which we perish by our own inaction makes nonsense of our claim to consciousness and morality.
+ - Pollution is an unused resource.
+ - The American lawn uses more resources than any other agricultural industry in the world. It uses more phosphates than India and puts on more poisons than any other form of agriculture.
+ - Sitting at our back doorsteps, all we need to live a good life lies about us. Sun, wind, people, buildings, stones, sea, birds and plants surround us. Cooperation with all these things brings harmony, opposition to them brings disaster and chaos.
+ - If you only do one thing, collect rainwater...
+ - Type 1 Error: When we settle into wilderness, we are in conflict with so many life forms that we have to destroy them to exist. Keep out of the bush. It is already in good order.
+ - Stupidity is an attempt to iron out all differences, and not to use them or value them creatively.
+ - Few people today muck around in earth, and when on international flights, I often find I have the only decently dirty fingernails.
+ - Permaculture is an integrated, evolving system of perennial and self-perpetuating plants and animal species useful to man.
+
+22 quotes

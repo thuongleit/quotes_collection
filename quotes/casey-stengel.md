@@ -1,0 +1,112 @@
+ - It’s easy to get good players. Getting them to play together, that’s the hard part.
+ - I’ll never make the mistake of being 70 again.
+ - The key to being a good manager is keeping the people who hate me away from those who are still undecided.
+ - Finding good players is easy. Getting them to play as a team is another story.
+ - The only thing worse than a Mets game is a Mets doubleheader.
+ - The secret of successful managing is to keep the five guys who hate you away from the four guys who haven’t made up their minds.
+ - You look up and down the bench and you have to say to yourself, ‘Can’t anybody here play this game?’ There comes a time in every man’s life and I’ve had plenty of them.
+ - We was going to get you a birthday cake, but we figured you’d drop it.
+ - Most ball games are lost, not won.
+ - I love signing autographs. I’ll sign anything but veal cutlets. My ballpoint slips on veal cutlets.
+ - Being with a woman all night never hurt no professional baseball player. It’s staying up all night looking for a woman that does him in.
+ - Some of you fellers are getting ‘Whiskey Slick.’
+ - There comes a time in every man’s life, and I’ve had plenty of them.
+ - After a deplorable day afield, when asked by a reporter what he thought of his team’s execution.
+ - All right everyone, line up alphabetically according to your height.
+ - I made up my mind, but I made it up both ways.
+ - I became a major league manager in several cities and was discharged. We call it discharged because there was no question I had to leave.
+ - You have to draft a catcher, because if you don’t have one, the pitch will roll all the way back to the screen.
+ - The Mets have shown me more ways to lose than I even knew existed.
+ - The Mets are gonna be amazing.
+ - Nobody knows this, but one of us has just been traded to Kansas City.
+ - You have to go broke three times to learn how to make a living.
+ - Oldtimers, weekends, and airplane landings are alike. If you can walk away from them, they’re successful.
+ - I got one that can throw but can’t catch, and one that can catch but can’t throw, and one who can hit but can’t do either.
+ - You could look it up.
+ - Jerry Lumpe looks like the best hitter in the world until you put him in the lineup.
+ - Now there’s three things you can do in a baseball game: You can win or you can lose or it can rain.
+ - Son, it ain’t the water cooler that’s striking you out.
+ - Well, that’s baseball. Rags to riches one day and riches to rags the next. But I’ve been in it 36 years and I’m used to it.
+ - If you walk backwards, you’ll find out you can go forwards and people won’t know if you’re coming or going.
+ - Left-handers have more enthusiasm for life. They sleep on the wrong side of the bed, and their head gets more stagnant on that side.
+ - Never wear a backward baseball cap to an interview unless applying for the job of umpire.
+ - If you’re so smart, let’s see you get out of the Army.
+ - If you ran a delicatessen store, you would want to be the best delicatessen store, wouldn’t you? Well, that’s how I feel about the Yankees.
+ - See that fella over there? He’s 20 years old. In 10 years, he’s got a chance to be a star. Now that fella over there, he’s 20 years old, too. In 10 years he’s got a chance to be 30.
+ - I would not admire hitting against Ryne Duren, because if he ever hit you in the head you might be in the past tense.
+ - I broke in with four hits and the writers promptly declared they had seen the new Ty Cobb. It took me only a few days to correct that impression.
+ - There’s nobody on my ball club that doesn’t go from first to third on a base hit, or from second to home. Every time you steal a base, you’re taking a gamble on getting thrown out, and taking the bat out of the hitter’s hand.
+ - They examined all my organs. Some of them are quite remarkable and others are not so good. A lot of museums are bidding for them.
+ - I don’t like them fellas who drive in two runs and let in three.
+ - When you are younger you get blamed for crimes you never committed and when you’re older you begin to get credit for virtues you never possessed. It evens itself out.
+ - You gotta lose ’em some of the time. When you do, lose ’em right.
+ - Don’t cut off your nose yourself.
+ - They told me my services were no longer desired because they wanted to put in a youth program as an advance way of keeping the club going. I’ll never make the mistake of being seventy again.
+ - What do you think, I was born at 60?
+ - They say Yogi Berra is funny. Well, he has a lovely wife and family, a beautiful home, money in the bank, and he plays golf with millionaires. What’s funny about that?
+ - Play every game as if your job depended on it. It just might.
+ - Canzeroni is the only defensive catcher that can’t catch.
+ - The trick is growing up without growing old.
+ - A lot of people my age are dead and you could look it up.
+ - I couldn’t have done it without my players.
+ - Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?
+ - It’s high time something was done for the pitchers. They put up the stands and take down fences to make more home runs and plague the pitchers. Let them revive the spitter and help the pitchers make a living.
+ - All I ask is that you bust your heiny on that field.
+ - If we’re going to win the pennant, we’ve got to start thinking we’re not as good as we think we are.
+ - That kid can hit balls over buildings.
+ - If you’re playing baseball and thinking about managing, you’re crazy. You’d be better off thinking about being an owner.
+ - I never saw anyone like Ty Cobb. No one even close to him as the greatest all-time ballplayer. That guy was superhuman, amazing.
+ - Managing is getting paid for home runs that someone else hits.
+ - I came in here and a fella asked me to have a drink. I said I don’t drink. Then another fella said hear you and Joe DiMaggio aren’t speaking and I said I’ll take that drink.
+ - Mantle had more ability than any player I ever had on that club.
+ - You can get into the greatest business in the world because you can manufacture money by yourself on the field.
+ - We’ve got to learn how to stay out of triple plays.
+ - Good pitching will always stop good hitting and vice-versa.
+ - Bobby Brown reminds me of a fellow who’s been hitting for 12 years and fielding one.
+ - I was such a dangerous hitter I even got intentional walks during batting practice.
+ - Son, we’d like to keep you around this season but we’re going to try and win a pennant.
+ - If anybody needs me, I’m in my room being embalmed.
+ - I might have been able to make it as a pitcher except for one thing: I had a rather awkward motion and every time I brought my left arm forward I hit myself in the ear.
+ - Without losers, where would the winners be?
+ - I don’t know if he throws a spitball but he sure spits on the ball.
+ - It’s wonderful to meet so many friends that I didn’t used to like.
+ - All that analysis is well and good, but what I need right now is a left-handed batter who can hit the ball over the shortstop’s head.
+ - I got players with bad watches – they can’t tell midnight from noon.
+ - Wake up muscles we’re in New York now.
+ - Do you realize how good you have to be to strike out 2000 times?
+ - We are a much improved ball club: now we lose in extra innings!
+ - I’m mad at him, too, for being out late. But I’m not mad enough to take a chance on losing a ball game and possibly the pennant.
+ - Two hundred million Americans, and there ain’t two good catchers among ’em.
+ - Sometimes it’s easier to understand things than it is to figure them out.
+ - Don’t drink in the hotel bar, that’s where I do my drinking.
+ - You can’t go out to the mound, hobbling and take a pitcher out with a cane.
+ - They say some of my stars drink whiskey, but I have found that ones who drink milkshakes don’t win many ball games.
+ - Been in this game one-hundred years, but I see new ways to lose ’em I never knew existed before.
+ - Best thing wrong with Jack Fisher is nothing.
+ - Take everything you can get over in center. The Dago’s heel is hurting pretty bad.
+ - Baseball is very big at the present time. This makes me think baseball will live longer than Casey Stengel or anybody else.
+ - The best ballplayer’s the one who doesn’t think he made good. He keeps trying to convince you.
+ - They say it can’t be done, but sometimes that doesn’t always work.
+ - The Yankees don’t pay me to win every day, just two out of three.
+ - Don’t cut my throat, I may want to do that later myself.
+ - The way our luck has been lately, our fellas have been getting hurt on their days off.
+ - The trouble with women umpires is that I couldn’t argue with one. I’d put my arms around her and give her a little kiss.
+ - You gotta learn that if you don’t get it by midnight, chances are you ain’t gonna get it, and if you do, it ain’t worth it.
+ - You can’t get into the Hall of Fame unless you limp.
+ - Even my players aren’t players.
+ - Mr. that boy couldn’t hit the ground if he fell out of an airplane.
+ - The Mets has come along slow, but fast!
+ - They got a lot of kids now whose uniforms are so tight, especially the pants, that they cannot bend over to pick up ground balls. And they don’t want to bend over in television games because in that way there is no way their face can get on the camera.
+ - Once someone gave me a picture and I wrote ‘Do good in school.’ I looked up and the guy was 78 years old.
+ - I was not successful as a ball player, as it was a game of skill.
+ - I never saw a player who had greater promise.
+ - Because there’d be two languages I couldn’t speak, French and English.
+ - Johnny Sain don’t say much, but that don’t matter much, because when you’re out there on the mound, you got nobody to talk to.
+ - You got to get twenty-seven outs to win.
+ - Never make bad predictions, especially about the futture.
+ - Whenever I decided to release a guy, I always had his room searched first for a gun. You couldn’t take any chances with some of them birds.
+ - I feel greatly honored to have a ballpark named after me, especially since I’ve been thrown out of so many.
+ - My health is good enough about the shoulders.
+ - Why shouldn’t he break Ruth’s record? He’s got more power than Stalin.
+
+110 quotes

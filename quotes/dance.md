@@ -1,0 +1,42 @@
+ - Dance first. Think later. It’s the natural order. ~~Samuel Beckett
+ - Nobody cares if you can’t dance well. Just get up and dance. Great dancers are great because of their passion. ~~Martha Graham
+ - Dance is music made visible. ~~George Balanchine
+ - When you get the choice to sit it out or dance, I hope you dance. ~~Lee Ann Womack
+ - Dance, when you’re broken open. Dance, if you’ve torn the bandage off. Dance in the middle of the fighting. Dance in your blood. Dance when you’re perfectly free. ~~Rumi
+ - Do it big, do it right and do it with style. ~~Fred Astaire
+ - See the music, hear the dance. ~~George Balanchine
+ - If you don’t do your dance, who will? ~~Gabrielle Roth
+ - Art is not what you see, but what you make others see. ~~Edgar Degas
+ - Dance on the edge of mystery. ~~Alan Cohen
+ - My goal in life is to give to the world what I was lucky to receive: the ecstasy of divine union through my music and my dance. ~~Michael Jackson
+ - Learn to dance, so when you get to heaven the angels know what to do with you. ~~Saint Augustine
+ - At the still point of the turning world. Neither flesh nor fleshless; Neither from nor towards; at the still point, there the dance is. ~~T. S. Eliot
+ - Dances without purpose have false starts and stops. ~~Hanya Holm
+ - So you can’t dance? Not at all? Not even one step? How can you say that you’ve taken any trouble to live when you won’t even dance? ~~Hermann Hesse
+ - The good Lord gave you a body that can stand most anything. It’s your mind you have to convince. ~~Vince Lombardi
+ - In your light I learn how to love. In your beauty, how to make poems. You dance inside my chest where no-one sees you, but sometimes I do, and that sight becomes this art. ~~Rumi
+ - Dance is communication, and so the great challenge is to speak clearly, beautifully and with inevitability. ~~Martha Graham
+ - If a thing is worth doing, it is worth doing badly. ~~Gilbert K. Chesterton
+ - The spine is the tree of life. Respect it. ~~Martha Graham
+ - The fight is won or lost far away from witnesses – behind the lines, in the gym, and out there on the road, long before I dance under those lights. ~~Muhammad Ali
+ - You’re gonna be ok, dum de dum dum dum, just dance. ~~Ellen DeGeneres
+ - The more you lose yourself in something bigger than yourself, the more energy you will have. ~~Norman Vincent Peale
+ - The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can. ~~Neil Gaiman
+ - The only way to do it is to do it. ~~Merce Cunningham
+ - The only sin is mediocrity. ~~Martha Graham
+ - What we hope ever to do with ease, we must learn first to do with diligence. ~~Samuel Johnson
+ - Football isn’t a contact sport; it’s a collision sport. Dancing is a contact sport... ~~Vince Lombardi
+ - It is the supreme art of the teacher to awaken joy in creative expression and knowledge. ~~Albert Einstein
+ - But let there be spaces in your togetherness and let the winds of the heavens dance between you. Love one another but make not a bond of love: let it rather be a moving sea between the shores of your souls. ~~Khalil Gibran
+ - You must understand the whole of life, not just one little part of it. That is why you must read, that is why you must look at the skies, that is why you must sing and dance, and write poems and suffer and understand, for all that is life. ~~Jiddu Krishnamurti
+ - When I give, I give myself. ~~Walt Whitman
+ - The essence of all art is to have pleasure in giving pleasure. ~~Dale Carnegie
+ - Love like you’ll never be hurt... ~~William W. Purkey
+ - In your light I learn how to love. ~~Rumi
+ - What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from. ~~T. S. Eliot
+ - True ease in writing comes from art, not chance, as those who move easiest have learned to dance. ~~Alexander Pope
+ - Please send me your last pair of shoes, worn out with dancing as you mentioned in your letter, so that I might have something to press against my heart. ~~Johann Wolfgang von Goethe
+ - The web of life is a beautiful and meaningless dance. The web of life is a process with a moving goal. The web of life is a perfectly finished work of art right where I am sitting now. ~~Robert Anton Wilson
+ - If I am walking with two other men, each of them will serve as my teacher. I will pick out the good points of the one and imitate them, and the bad points of the other and correct them in myself. ~~Confucius
+
+40 quotes

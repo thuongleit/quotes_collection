@@ -1,0 +1,21 @@
+ - When I get older, I will be stronger.
+ - Until the lion learns to speak, the tales of hunting will be weak.
+ - And any man who knows a thing, knows he knows not a damn, damn thing at all...
+ - I faced quite a few challenging times, and in front of those, I was more positive than some people not facing those conditions. I’m actually of the belief now that it is that struggle that offers you that open-hearted hope.
+ - I’m writing from a place of – a center of authenticity, somewhere that only I know how to write from.
+ - Somalis really are very musically sophisticated, and they’re about their own thing.
+ - The people of Somalia just do not have a voice. They are to me the most forgotten people in the world.
+ - To reach your goal authentically is probably, in the end, going to mean much more to you than having reached it in a false way.
+ - You have to let the world speak to you and then you speak, you know, so I’m in that moment now where I’m finding the world’s voice.
+ - It was not my dream to be an artist. How could it have been? I thought, artist, much like a leader, was something you either were or weren’t. Never something you set out to be.
+ - I’m not about trying to get and get and get. I feel good when I get, but I kind of feel better when I give.
+ - In the time of war, everyone was basically trying to live and manage the best they could. But you also had another period which was not a hard time at all – it was just a beautiful time. I lived in both eras. I got to fully experience and appreciate both the tragedy of Somalia and the beauty of it.
+ - I think it’s a mistake to work on success in career. I’ve worked on my passions obsessively. How can I say what I want to say more precisely than the last time I said it? Success is such an elusive concept. When you work for it, I think you get it in a way you might regret it.
+ - It is the very survival of the streets that makes children pick up guns in Somalia, not some older, wide-eyed rebel leader. My intimate experiences during these years are something which I have shared with people through my music but am very careful about how they are addressed.
+ - I enjoy mediation. I think the artist’s position is often to mend the things we feel are broken. Whether that’s between two cultures or two thoughts. We’re always trying to reach, trying to expand something.
+ - I wasn’t making music consciously when I was younger. I was a musician, but that has its own stigmas. Anywhere on the planet, it’s one of the more undervalued positions.
+ - It’s not longer ‘Look what I can do, I can do it better then you.’ It’s just I am.
+ - Hip-hop in Africa has been very often a duplication of an American experience, but in a context that’s totally alien to it.
+ - It was interesting to find how dominating American vision is all over the world. I think there’s something to be said about the world’s mindset and its economics and all of that, and I think it affects the way we see ourselves and it affects music.
+
+19 quotes

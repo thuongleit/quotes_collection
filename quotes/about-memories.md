@@ -1,0 +1,42 @@
+ - A good life is a collection of happy memories. ~~Denis Waitley
+ - A million feelings. A thousand thoughts. A hundred memories. All for one person. ~~Lil Wayne
+ - Never blame anyone in your life. Good people give you happiness. Bad people give you experience. Worst people give you a lesson. And best people give you memories. ~~Zig Ziglar
+ - Take care of all your memories. For you cannot relive them. ~~Bob Dylan
+ - Nothing is ever really lost to us as long as we remember it. ~~L.M. Montgomery
+ - People’s memories are maybe the fuel they burn to stay alive. ~~Haruki Murakami
+ - Good bye may seem forever. Farewell is like the end, but in my heart is the memory and there you will always be. ~~Walt Disney
+ - Money can’t buy happiness, but it will certainly get you a better class of memories. ~~Ronald Reagan
+ - Childhood memories are sometimes covered and obscured beneath the things that come later, like childhood toys forgotten at the bottom of a crammed adult closet, but they are never lost for good. ~~Neil Gaiman
+ - But memory is an autumn leaf that murmurs a while in the wind and then is heard no more. ~~Khalil Gibran
+ - But if you don’t have that memory of being loved, you are condemned to search the world for something to fill you up. But no matter how much money you make or how famous you become, you will still feel empty. What you are really searching for is unconditional love, unqualified acceptance. And that was the one thing that was denied to you at birth. ~~Michael Jackson
+ - My best fishing-memory is about some fish that I never caught. ~~George Orwell
+ - Maybe it meant something. Maybe not, in the long run, but no explanation, no mix of words or music or memories can touch that sense of knowing that you were there and alive in that corner of time and the world. Whatever it meant. ~~Hunter S. Thompson
+ - Never let your memories be greater than your dreams. ~~Douglas Ivester
+ - Fear is the memory of pain. Addiction is the memory of pleasure. Freedom is beyond both. ~~Deepak Chopra
+ - An educated man is not one whose memory is trained to carry a few dates in history – he is one who can accomplish things. ~~Henry Ford
+ - Remembrance of things past is not necessarily the remembrance of things as they were. ~~Marcel Proust
+ - It’s a little place on the Pacific Ocean. You know what the Mexicans say about the Pacific? They say it has no memory. That’s where I want to live the rest of my life. A warm place with no memory. ~~Stephen King
+ - The legacy of heroes is the memory of a great name and the inheritance of a great example. ~~Benjamin Disraeli
+ - I am hopelessly in love with a memory. An echo from another time, another place. ~~Michel Foucault
+ - Knowledge is real knowledge only when it is acquired by the efforts of your intellect, not by memory. ~~Leo Tolstoy
+ - Karma, memory, and desire are just the software of the soul. It’s conditioning that the soul undergoes in order to create experience. And it’s a cycle. In most people, the cycle is a conditioned response. They do the same things over and over again. ~~Deepak Chopra
+ - Let your memory be your travel bag. ~~Aleksandr Solzhenitsyn
+ - Whether we and our politicians know it or not, Nature is party to all our deals and decisions, and she has more votes, a longer memory, and a sterner sense of justice than we do. ~~Wendell Berry
+ - The darkest moments of our lives are not to be buried and forgotten, rather they are a memory to be called upon for inspiration to remind us of the unrelenting human spirit and our capacity to overcome the intolerable. ~~Vince Lombardi
+ - Nostalgia is also a dangerous form of comparison. Think about how often we compare our lives to a memory that nostalgia has so completely edited that it never really existed. ~~Brené Brown
+ - Memories and possibilities are even more hideous than realities. ~~H.P. Lovecraft
+ - The greatest legacy we can leave our children is happy memories. ~~Og Mandino
+ - I don’t care if someone remembered me. Life is for living and memories for those who we leave behind. ~~Jared Leto
+ - Your memory is a monster; it summons with will of its own. You think you have a memory, but it has you. ~~John Irving
+ - Be a collector of good ideas. Keep a journal. If you hear a good idea, capture it, write it down. Don’t trust your memory. ~~Jim Rohn
+ - Time’s the thief of memory. ~~Stephen King
+ - I believe that the combination of pencil and memory creates a kind of practical magic, and magic is dangerous. ~~Stephen King
+ - Cakes are special. Every birthday, every celebration ends with something sweet, a cake, and people remember. It’s all about the memories. ~~Buddy Valastro
+ - His heart was as great as the world, but there was no room in it to hold the memory of a wrong. ~~Ralph Waldo Emerson
+ - The butterfly counts not months but moments, and has time enough. ~~Rabindranath Tagore
+ - As if you could kill time without injuring eternity. ~~Henry David Thoreau
+ - No one remembers who came in second. ~~Walter Hagen
+ - Without memory, there is no healing. Without forgiveness, there is no future. ~~Desmond Tutu
+ - Lost love is still love. It takes a different form, that’s all. You can’t see their smile or bring them food or tousle their hair or move them around a dance floor. But when those senses weaken another heightens. Memory. Memory becomes your partner. You nurture it. You hold it. You dance with it. ~~Mitch Albom
+
+40 quotes

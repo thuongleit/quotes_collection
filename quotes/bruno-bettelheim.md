@@ -1,0 +1,23 @@
+ - Creativity stands at the center of all education.
+ - Television captures the mind but does not liberate it. A good book at once stimulates and frees the mind.
+ - You can’t teach children to be good. The best you can do for your child is to live a good life yourself. What a parent knows and believes, the child will lean on.
+ - Play permits the child to resolve in symbolic form unsolved problems of the past and to cope directly or symbolically with present concerns. It is also his most significant tool for preparing himself for the future and its tasks.
+ - Raising children is a creative endeavor, an art rather than a science.
+ - The child intuitively comprehends that although these stories are unreal, they are not untrue...
+ - The question for the child is not Do I want to be good? but Whom do I want to be like?
+ - Most advice on child-rearing is sought in the hope that it will confirm our prior convictions. If the parent had wished to proceedin a certain way but was made insecure by opposing opinions of neighbors, friends, or relatives, then it gives him great comfort to find his ideas seconded by an expert.
+ - What cannot be talked about cannot be put to rest. And if it is not, the wounds will fester from generation to generation.
+ - As the creative adult needs to toy with ideas, the child, to form his ideas, needs toys – and plenty of leisure and scope to play with them as he likes, and not just the way adults think proper. This is why he must be given this freedom for his play to be successful and truly serve him well.
+ - No longer can we be satisfied with a life where the heart has its reasons which reason cannot know. Our hearts must know the world of reason, and reason must be guided by an informed heart.
+ - From a child’s play, we can gain understanding of how he sees and construes the world – what he would like it to be, what his concerns are, what problems are besetting him.
+ - Play reaches the habits most needed for intellectual growth.
+ - Whoever influences the child’s life ought to try to give him a positive view of himself and of his world. The child’s future happiness and his ability to cope with life and relate to others will depend on it.
+ - Among the most valuable but least appreciated experiences parenthood can provide are the opportunities it offers for exploring, reliving, and resolving one’s own childhood problems in the context of one’s relation to one’s child.
+ - What children learn from punishment is that might makes right. When they are old and strong enough, they will try to get their ownback; thus many children punish their parents by acting in ways distressing to them.
+ - The ability to read becomes devalued when what one has learned to read adds nothing of importance to one’s life.
+ - Since there are thousands of fairy tales, one may safely guess that there are probably equal numbers where the courage and determination of females rescue males, and vice versa.
+ - If we hope to live not just from moment to moment, but in true consciousness of our existence, then our greatest need and most difficult achievement is to find meaning in our lives.
+ - The parent must not give in to his desire to try to create the child he would like to have, but rather help the child to develop – in his own good time – to the fullest, into what he wishes to be and can be, in line with his natural endowment and as the consequence of his unique life in history.
+ - The fear of failure is so great, it is no wonder that the desire to do right by one’s children has led to a whole library of books offering advice on how to raise them.
+
+21 quotes

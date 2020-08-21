@@ -1,0 +1,23 @@
+ - Where you are is not who you are.
+ - Believe that there are no limitations, no barriers to your success – you will be empowered and you will achieve.
+ - Dreams do come true, but not without the help of others, a good education, a strong work ethic, and the courage to lean in.
+ - If you go to Norway, Finland, Russia or Australia, youll see Xerox or Fuji-Xerox people, not just the name on the door. We have human beings who live and work and serve customers everywhere around the globe.
+ - The world is changing. We all know this. And as that world changes, if you don’t transform your company, you’re stuck.
+ - Xerox is really good at managing documents, and we’re definitely good at managing through a process.
+ - I’ve had many mentors, but the one that has the most impact was my mother.
+ - I don’t think paper will go away. I do believe that the value of paper will change, and Xerox is working on changing that value. Consider a color page. Actual life is in color, but you keep reproducing it in black and white. You remove value. It’s a bad thing to do.
+ - The best way to change it is to do it, right? And then after a while you become it, and it’s easy.
+ - I realized I was more convincing to myself and to the people who were listening when I actually said what I thought, versus what I thought people wanted to hear me say.
+ - My mother raised us to think that if we worked hard, and if we put our end of the bargain in, it would work out OK for us.
+ - Admiration takes on a whole new level when you appreciate just how complex it is to run a modern business.
+ - My mother was pragmatic, focused and extremely, exceedingly practical, and she was the ultimate self-determining person.
+ - I don’t want to overemphasize this, but not a day goes by when I don’t think about my mother and what she would think about what I just did. I often adjust my approach.
+ - My perspective comes in part from being a New York black lady, in part from being an engineer. I know I’m smart and have opinions worth being heard.
+ - I’m a black lady from the Lower East Side of New York. Not a lot intimidates me.
+ - I want to stop transforming and just start being.
+ - I say to my team all the time that this is how I grew up: Always thinking that, at any minute, I could be unemployed. You have to scramble. You have to work hard and get ahead of things.
+ - CEOs resign when the internal dynamics of the company and the external dynamics of the company actually come together to say it is appropriate. When the internal dynamics ask you whether you have a replacement. I think the transition from CEOships have also become cartoonish.
+ - You don’t have to be at every volleyball game. We can’t guilt ourselves.
+ - This old notion that work is drudgery is nonsense. Most days, even back when Xerox was under siege, I could not wait to get to the office.
+
+21 quotes

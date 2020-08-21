@@ -1,0 +1,21 @@
+ - We are all visionaries, and what we see is our soul in things.
+ - The only obvious advantage to being an adult is that you can eat your dessert without haying sampled the vegetables.
+ - A snake will always be a snake, even if you put a chain around its neck and try to make it walk upright.
+ - Any mother could perform the jobs of several air-traffic controllers with ease.
+ - That’s the risk you take if you change: that people you’ve been involved with won’t like the new you. But other people who do will come along.
+ - Depression was a very active state really. Even if you appeared to an observer to be immobilized, your mind was in a frenzy of paralysis. You were unable to function, but were actively despising yourself for it.
+ - The requirements of romantic love are difficult to satisfy in the back seat of a Dodge Dart.
+ - Dying was apparently a weaning process; all the attachments to familiar people and objects have to be undone.
+ - What a surprise to find you could shift the contents of your head like rearranging furniture in a room.
+ - The man who has no inner life is a slave of his surroundings, as the barometer is the obedient servant of the air.
+ - If you kept moving, you never had to mourn what you were leaving behind.
+ - I wrote for twelve years and collected 250 rejection slips before getting any fiction published, so I guess outside reinforcement isn’t all that important to me.
+ - Inspiration never arrived when you were searching for it.
+ - The French would eat anything that couldn’t outrun them.
+ - The strength you’ve insisted on assigning to others is actually within yourself.
+ - One didn’t issue instructions to comets. Grown children did what they had to do, and parents could only grit their teeth and watch and pray for them to get through it.
+ - If this was adulthood the only improvement she could detect in her situation was that she could now eat dessert without eating her vegetables.
+ - It had been fourteen years and I hadn’t had anything published. I had 250 rejection slips. I got my first novel published and it was called Kinflicks. It turned out to be a best seller.
+ - Just as you began to feel that you could make good use of time, there was no time left to you.
+
+19 quotes

@@ -1,0 +1,56 @@
+ - What is beautiful is good, and who is good will soon be beautiful.
+ - A man and his tools make a man and his trade.
+ - I miss you even more than I could have believed; and I was prepared to miss you a good deal.
+ - Serenity of spirit and turbulence of action should make up the sum of a man’s life.
+ - Not seeing is half-believing.
+ - I worshipped dead men for their strength, Forgetting I was strong.
+ - To hope for Paradise is to live in Paradise, a very different thing from actually getting there.
+ - There are no signposts in the sea.
+ - Growth is exciting; growth is dynamic and alarming.
+ - Ambition, old as mankind, the immemorial weakness of the strong.
+ - I loved you when love was Spring, and May, Loved you when summer deepened into June, and now when autumn yellows all the leaves...
+ - April, the angel of the months, the young love of the year.
+ - Travel is in sad case. It is uncomfortable, it is expensive; it is a source of annoyance to our friends, and of loneliness to ourselves.
+ - A flowerless room is a soulless room, to my way of thinking; but even a solitary little vase of a living flower may redeem it.
+ - I suppose the pleasure of country life lies really in the eternally renewed evidences of the determination to live.
+ - Forget not bees in winter, though they sleep.
+ - Is it better to be extremely ambitious, or rather modest? Probably the latter is safer; but I hate safety, and would rather fail gloriously than dingily succeed.
+ - The Saluki is a marvel of elegance.
+ - It isn’t that I don’t like sweet disorder, but it has to be judiciously arranged.
+ - Autumn in felted slipper shuffles on, Muted yet fiery. – Vita Sackville-West.
+ - Damn you, spoilt creature; I shan’t make you love me any the more by giving myself away like this.
+ - There is nothing more lovely in life than the union of two people whose love for one another has grown through the years, from the small acorn of passion, into a great rooted tree.
+ - All craftsmen share a knowledge. They have heldReality down fluttering to a bench.
+ - Successful gardening is not necessarily a question of wealth, it is a question of love, taste, and knowledge.
+ - Tools have their own integrity...
+ - I suppose the pleasure of the country life lies really in the eternally renewed evidences of the determination to live. That is a truism when said, but anything but a truism when daily observed. Nothing shows up the difference between the thing said or read, so much as the daily experience of it.
+ - I like muddling things up; and if a herb looks nice in a border, then why not grow it there? Why not grow anything anywhere so long as it looks right where it is? That is, surely, the art of gardening.
+ - Summer makes a silence after spring.
+ - It is dreadful how I miss you, and everything that everybody says seems flat and stupid.
+ - The most noteworthy thing about gardeners is that they are always optimistic, always enterprising, and never satisfied. They always look forward to doing something better than they have ever done before.
+ - I have come to the conclusion, after many years of sometimes sad experience, that you cannot come to any conclusion at all.
+ - I cannot abide the Mr. and Mrs. Noah attitude towards marriage; the animals went in two by two, forever stuck together with glue.
+ - Every garden-maker should be an artist along his own lines. That is the only possible way to create a garden, irrespective of size or wealth.
+ - Still, no gardener would be a gardener if he did not live in hope.
+ - A good start in life is as important to plants as it is to children: they must develop strong roots in a congenial soil, otherwise they will never make the growth that will serve them richly according to their needs in their adult life.
+ - Travel is the most private of pleasures. There is no greater bore than the travel bore. We do not in the least want to hear what he has seen in Hong-Kong.
+ - Women, like men, ought to have their years so glutted with freedom that they hate the very idea of freedom.
+ - The farmer and the gardener are both busy, the gardener perhaps the more excitable of the two, for he is more of the amateur, concerned with the creation of beauty rather than with the providing of food. Gardening is a luxury occupation; an ornament, not a necessity, of life.
+ - Flowers really do intoxicate me.
+ - Prose is a poor thing, a poor inadequate thing, compared with poetry which says so much more in shorter time.
+ - The more one gardens, the more one learns; And the more one learns, the more one realizes how little one knows.
+ - Of course I should love to throw a toothbrush into a bag, and just go, quite vaguely, without any plans or even a real destination. It is the Wanderlust.
+ - For the last 40 years of my life I have broken my back, my fingernails, and sometimes my heart, in the practical pursuit of my favourite occupation.
+ - Among the many problems which beset the novelist, not the least weighty is the choice of the moment at which to begin his novel.
+ - The wise traveler is he who is perpetually surprised.
+ - One must be businesslike, although the glass is falling.
+ - The writer catches the changes of his mind on the hop. Growth is exciting; growth is dynamic and alarming. Growth of the soul, growth of the mind.
+ - It is no good my telling you. One never believes other people’s experiencem and one is only very gradually convinced by one’s own.
+ - The public, as a whole, finds reassurance in longevity, and, after the necessary interlude of reaction, is disposed to recognize extreme old age as a sign of excellence. The long-liver has triumphed over at least one of man’s initial handicaps: the brevity of life.
+ - I do not like January very much. It is too stationary. Not enough happens. I like the evidences of life, and in January there are too few of them.
+ - Things were not tragic for us then, because although we cared passionately we didn’t care deeply.
+ - Click, clack, click, clack, went their conversation, like so many knitting-needles, purl, plain, purl, plain, achieving a complex pattern of references, cross-references, Christian names, nicknames, and fleeting allusions.
+ - There is always something else to do. A gardener should have nine times as many lives as a cat.
+ - Nothing shows up the difference between the things said or read, so much as the daily experience of it.
+
+54 quotes

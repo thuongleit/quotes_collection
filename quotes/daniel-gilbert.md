@@ -1,0 +1,54 @@
+ - If someone offered you a pill that would make you permanently happy, you would be well advised to run fast and run far. Emotion is a compass that tells us what to do, and a compass that perpetually stuck on north is worthless.
+ - Human beings are works in progress that mistakenly think they’re finished. The person you are right now is as transient, as fleeting and as temporary as all the people you’re ever been. The one constant in our lives is change.
+ - Human beings are works in progress that mistakenly think they’re finished.
+ - Our brain accepts what the eyes see and our eye looks for whatever our brain wants.
+ - What’s so curious about human beings is that we can look deeply into the future, foresee disaster, and still do nothing in the present to stop it. The majority of people on this planet, they’re overwhelmed with concerns about their immediate well being.
+ - People are drastically overconfident about their judgments of others.
+ - The data says that with the poor, a little money can buy a lot of happiness. If you’re rich, a lot of money can buy you a little more happiness. But in both cases, money does it.
+ - Your emotions are meant to fluctuate, just like your blood pressure is meant to fluctuate. It’s a system that’s supposed to move back and forth, between happy and unhappy. That’s how the system guides you through the world.
+ - The brain and the eye may have a contractual relationship in which the brain has agreed to believe what the eye sees, but in return the eye has agreed to look for what the brain wants.
+ - The secret of happiness is variety, but the secret of variety, like the secret of all spices, is knowing when to use it.
+ - We humans can look deep into future and predict what will happen, but then turn around and do nothing about it.
+ - Lower your cortisol level. The happiest people have the lowest level of cortisol, a stress hormone that raises blood pressure and weakens the immune system. Cut the stress-more yoga, less road rage-and you’ll cut your cortisol production.
+ - I think good things are happening to me and will continue. I am not optimistic about the rest of the species, but I’m so blessed, it’s almost scary. I’m sorry to disappoint you, but I have a wildly sunny disposition. I love to laugh.
+ - Happiness refers to feelings, virtue refers to actions, and those actions can cause those feelings. But not necessarily and not exclusively.
+ - Impact is rewarding. Mattering makes us happy.
+ - Hateful, blasphemous, prejudiced, vulgar, rude, or ignorant remarks are the music of a free society, and the relentless patter of idiots is how we know we’re in one. When all the words in our public conversation are fair, good, and true, it’s time to make a run for the fence.
+ - The word happiness is used to indicate at least three related things, which we might roughly call emotional happiness, moral happiness, and judgmental happiness.
+ - The truth is, bad things don’t affect us as profoundly as we expect them to. That’s true of good things, too. We adapt very quickly to either.
+ - Global warming is a deadly threat precisely because it fails to trip the brain’s alarm, leaving us soundly asleep in a burning bed...
+ - The fact that we often judge the pleasure of an experience by its ending can cause us to make some curious choices.
+ - Which is more important – experience or memory of experience? If you could have an hour of ecstasy that you’d forever remember as torture, or an hour of torture that you’d forever remember as ecstasy, which would you prefer?
+ - In short, if we adhere to the standard of perfection in all our endeavors, we are left with nothing but mathematics and the White Album.
+ - The price we pay for our irresponsible explanatory urge is that we often spoil our most pleasant experiences by making good sense of them.
+ - Arthritic toothless people who love orgasms are more likely to reproduce than are limber, toothy people who do not.
+ - If you are like most people, then like most people, you don’t know you’re like most people.
+ - Your mistake was not in imagining things you could not know – that is, after all, what imagination is for. Rather, your mistake was in unthinkingly treating what you imagined as though it were an accurate representation of the facts.
+ - My friends tell me that I have a tendency to point out problems without offering solutions, but they never tell me what I should do about it.
+ - We don’t believe other people’s experiences can tell us all that much about our own. I think this is an illusion of uniqueness.
+ - People want to be happy, and all the other things they want are typically meant to be a means to that end.
+ - We are happy when we have family, we are happy when we have friends and almost all the other things we think make us happy are actually just ways of getting more family and friends.
+ - Is happiness really the only thing we should be aiming for?
+ - I have everything that I could possibly want in life, from a gorgeous granddaughter and a wonderful wife, brilliant students, the best job anyone could hope for, and about half of my hair. Not the half I would have kept, but no one consulted me.
+ - We treat our future selves as though they were our children, spending most of the hours of most of our days constructing tomorrows that we hope will make them happy.
+ - The good news is that going blind is not going to make you as unhappy as you think it will. The bad news is that winning the lottery will not make you as happy as you expect.
+ - I actually think the same things do make most people happy. The differences are extremely small, and around the margins. You like peach ice cream; I like strawberry ice cream. Both of us like ice cream much better than a smack on the head with two-by-four.
+ - Research suggests that people are typically unaware of the reasons why they are doing what they are doing, but when asked for a reason, they readily supply one.
+ - To learn from experience, we must remember it, and, for a variety of reasons, memory is a faithless friend.
+ - Alas, we think of ourselves as unique entities-minds unlike any others-and thus we often reject the lessons that the emotional experience of others has to teach us.
+ - Our inability to recall how we really felt is why our wealth of experiences turns out to be poverty of riches.
+ - Part of us believes the new car is better because it lasts longer. But, in fact, that’s the worst thing about the new car. It will stay around to disappoint you, whereas a trip to Europe is over. It evaporates. It has the good sense to go away, and you are left with nothing but a wonderful memory.
+ - Psychologists call this habituation, economists call it declining marginal utility, and the rest of us call it marriage.
+ - Variety improves the things that we do too often, but it rules the things that we don’t do often enough.
+ - To ensure that our views are credible, our brain accepts what our eye sees. To ensure that our views are positive, our eye looks for what our brain wants. The conspiracy between these two servants allows us to live at the fulcrum of stark reality and comforting illusion.
+ - People are happiest when they’re trying to achieve goals that are difficult but not out of reach.
+ - The mistakes we make when we try to imagine our personal futures are also lawful, regular, and systematic. They, too, have a pattern that tells us about the powers and limits of foresight in much the same way that optical illusions tell us about the powers and limits of eyesight.
+ - Perceptions are portraits, not photographs, and their form reveals the artist’s hand every bit as much as it reflects the things portrayed.
+ - The eye and brain are conspirators, and, like most conspiracies, theirs is negotiated behind closed doors, in the back room, outside of our awareness.
+ - Everyone who has observed human behavior for more than thirty continuous seconds seems to have noticed that people are strongly, perhaps even primarily, perhaps even single-mindedly, motivated to feel happy.
+ - Few of us can accurately gauge how we will feel tomorrow or next week. That’s why when you go to the supermarket on an empty stomach, you’ll buy too much, and if you shop after a big meal, you’ll buy too little.
+ - Daniel Levitin has more insights per page than any other neuroscientist I know. The organized Mind is smart, important, and, as always, exquisitely written.
+ - In short, we derive support for our preferred conclusions by listening to the words that we put in the mouths of people who have already been preselected for their willingness to say what we want to hear.
+ - Most of us appear to believe that we are more athletic, intelligent, organized, ethical, logical, interesting, open-minded, and healthy-not to mention more attractive-than the average person.
+
+52 quotes

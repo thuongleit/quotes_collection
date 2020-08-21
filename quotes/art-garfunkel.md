@@ -1,0 +1,23 @@
+ - Everything worth doing starts with being scared.
+ - I have the feeling that in a balanced life one should die penniless. The trick is dismantling.
+ - Yes, I like that word. “More” is a prayer to God, isn’t it? Gratitude and plea, all in one.
+ - They say in the darkest night there is a light beyond.
+ - We’d go to the fraternity house. It was a good place to practice. But we really wanted the kids to overhear us. And whoever heard us would go nuts over it.
+ - We human beings are tuned such that we crave great melody and great lyrics. And if somebody writes a great song, it’s timeless that we as humans are going to feel something for that and there’s going to be a real appreciation.
+ - New York, you got money on your mind. And my words won’t make a dime’s worth a difference, so here’s to you New York.
+ - After all these years, I’m finally into soccer. The World Cup is on, and my band is an international group – they’re all around me, cheering in the hotel bars.
+ - Never mind the transience of show business and popularity. When we hear Ray Charles, we go, ‘That’s a great singer.’ You don’t need a reporter or a writer to tell us. Good is good and it should shine through the years.
+ - Monterey was the Maraschino cherry on top of the Sundae that was the ’60s. It was totally unprecedented, and the audience was unprecedented in their joy.
+ - I teach well. I used to really like teaching a lot. I enjoyed it a lot and I was good at it.
+ - You jump right over anything in the past, and you don’t analyze problems.
+ - By my 40s, I finally got out of my own way, so I could become a life creator; a life giver.
+ - Paul has more, I think, of a feel for the stage. Whereas I have it more for the notes themselves. I love record making and mixing, arranging, producing. That I love. I love to make beautiful things, but I don’t like to perform.
+ - I would start seeing, in just the sense I was saying now, the kind of record it was going to be and what the arrangement demands, and what my vocal part should be in the record. This was all emerging as the song was emerging.
+ - I like working solo and it was a lot of fun joking around with the audience, saying things. I’m only just learning how to do certain things.
+ - So its mix and match. Hold your line when you really feel something youre saying is wonderful and you really want to get this point across and prove it to your partner by just throwing it into the tape and letting it speak for itself.
+ - Records have images. There are wet records and dry records. And big records.
+ - Records became much cruder in the last 20 years. Let’s put it that way.
+ - I’m the kind of person who can hear that stuff. If you sing along to the radio and you’re not going to sing unison with the melody, but find the harmony, I find that pretty easy to do.
+ - Rodgers and Hammerstein didn’t mean anything to me. I just wanted to have a hit, I just wanted to be like those people on the radio. It was all of a case of the present tense with no projecting into the future, particularly.
+
+21 quotes

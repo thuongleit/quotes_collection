@@ -1,0 +1,22 @@
+ - The most difficult thing in life is to know yourself.
+ - All things are from water and all things are resolved into water.
+ - Time is the wisest of all things that are; for it brings everything to light.
+ - Take Time by the forelock.
+ - Hope is the most universal of human possessions.
+ - The past is certain, the future obscure.
+ - I did not become a father because I am fond of children.
+ - Nothing is more active than thought, for it travels over the universe, and nothing is stronger than necessity for all must submit to it.
+ - Who is happy? This is a person, who has a healthy body, is dowered with peace of mind and cultivates his talents.
+ - Hope is the only good that is common to all men; those who have nothing else possess hope still.
+ - Avoid doing what you would blame others for doing.
+ - As brightness is to rustiness, so labor excelleth idleness.
+ - We live not, in reality, on the summit of a solid earth but at the bottom of an ocean of air.
+ - A multitude of words is no proof of a prudent mind.
+ - There are three attributes for which I am grateful to Fortune: that I was born, first, human and not animal; second, man and not woman; and third, Greek and not barbarian.
+ - If there is neither excessive wealth nor immoderate poverty in a nation, then justice may be said to prevail.
+ - Many words are not proof of the wise man, because the sage only talk when it’s needed, and the words are measured and corresponding with the need.
+ - Conceal thy domestic ills.
+ - Place is the greatest thing, as it contains all things.
+ - I will be sufficiently rewarded if when telling it to others you will not claim the discovery as your own, but will say it was mine.
+
+20 quotes

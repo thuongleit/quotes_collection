@@ -1,0 +1,45 @@
+ - The student of Liberty must constantly endeavor to disassociate his imagination from sanguinary dramas of assassination and revolt.
+ - War and Authority are companions; Peace and Liberty are companions.
+ - If the individual has a right to govern himself, all external government is tyranny. Hence the necessity of abolishing the State.
+ - Monopoly and privilege must be destroyed, opportunity afforded, and competition encouraged. This is Liberty’s work, and Down with Authority her war-cry.
+ - The two principles referred to are Authority and Liberty, and the names of the two schools of Socialistic thought which fully and unreservedly represent one or the other of them are, respectively, State Socialism and Anarchism.
+ - The right of the majority is absolute.
+ - The shortest way to change a radical into a conservative, a liberal into a tyrant, a man into a beast, is to give him power over his fellows.
+ - An Anarchist is anyone who denies the necessity and legitimacy of government; the question of his methods of attacking it is foreign to the definition.
+ - But which is the State’s essential function, aggression or defence, few seem to know or care.
+ - We are here, on earth. Not one of us has any right to the earth.
+ - The State is said by some to be a necessary evil; it must be made unnecessary.
+ - Commanded love of all men indiscriminately is an obliteration of distinction between love and hate, and therefore is not love at all.
+ - This, then, is the Anarchistic definition of government: the subjection of the non-invasive individual to an external will...
+ - The government is a tyrant living by theft, and therefore has no business to engage in any business.
+ - Marx, as we have seen, solved it by declaring capital to be a different thing from product, and maintaining that it belonged to society and should be seized by society and employed for the benefit of all alike.
+ - Almost the only persons who may be said to comprehend even approximately the significance, principles, and purposes of Socialism are the chief leaders of the extreme wings of the Socialistic forces, and perhaps a few of the money kings themselves.
+ - And this is the Anarchistic definition of the State: the embodiment of the principle of invasion in an individual, or a band of individuals, assuming to act as representatives or masters of the entire people within a given area.
+ - The cost of justice can be justly paid only by the invader.
+ - One thing, however, is sure, – that in all cases the effort should be to impose all the cost of repairing the wrong upon the doer of the wrong. This alone is real justice, and of course such justice is necessarily free.
+ - In the matter of the maintenance and rearing of children the Anarchists would neither institute the communistic nursery which the State Socialists favor nor keep the communistic school system which now prevails.
+ - To force a man to pay for the violation of his own liberty is indeed an addition of insult to injury.
+ - Laissez Faire was very good sauce for the goose, labor, but was very poor sauce for the gander, capital.
+ - It is foolish in the extreme not only to resort to force before necessity compels, but especially to madly create the conditions that will lead to this necessity.
+ - The moment that justice must be paid for by the victim of injustice it becomes itself injustice.
+ - Aggression is simply another name for government.
+ - Such security is equal liberty. But it is not necessarily equality in the use of the earth.
+ - Government is the assumption of authority over a given area and all within it, exercised generally for the double purpose of more complete oppression of its subjects and extension of its boundaries.
+ - The makers of dictionaries are dependent upon specialists for their definitions. A specialist’s definition may be true or it may be erroneous. But its truth cannot be increased or its error diminished by its acceptance by the lexicographer. Each definition must stand on its own merits.
+ - The Anarchists never have claimed that liberty will bring perfection; they simply say that its results are vastly preferable to those that follow authority.
+ - The Anarchists are simply unterrified Jeffersonian Democrats. They believe that ‘the best government is that which governs least,’ and that which governs least is no government at all.
+ - Socialism, on the contrary, extends its function to the description of society as it should be, and the discovery of the means of making it what it should be.
+ - The essence of government is control, or the attempt to control.
+ - Capitalism is at least tolerable, which cannot be said of Socialism or Communism.
+ - Is not the very beginning of privilege, monopoly and industrial slavery this erecting of the ballot-box above the individual?
+ - Murder is an offensive act. The term cannot be applied legitimately to any defensive act.
+ - First, then, State Socialism, which may be described as the doctrine that all the affairs of men should be managed by the government, regardless of individual choice.
+ - For, just as it has been said that there is no half-way house between Rome and Reason, so it may be said that there is no half-way house between State Socialism and Anarchism.
+ - And capital punishment, however ineffective it may be and through whatever ignorance it may be resorted to, is a strictly defensive act, – at least in theory.
+ - Anarchists are simply unterrified Jeffersonian Democrats.
+ - Thus, the same blow that strikes interest down will send wages up.
+ - We are here to let in the light of Liberty upon political superstition.
+ - The exercise of authority over the same area by two States is a contradiction.
+ - The Anarchists answer that the abolition of the State will leave in existence a defensive association, resting no longer on a compulsory but on a voluntary basis, which will restrain invaders by any means that may prove necessary.
+
+43 quotes

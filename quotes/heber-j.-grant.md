@@ -1,0 +1,44 @@
+ - I assert with confidence that the law of success, here and hereafter, is to have a humble and a prayerful heart, and to work, work, work.
+ - May we be strengthened with the understanding that being blessed does not mean that we shall always be spared all the disappointments and difficulties of life.
+ - If you desire the spirit of God you must keep the commandments of God.
+ - Teaching by precept, without example, is mighty poor teaching.
+ - No obstacles are insurmountable when God commands and we obey.
+ - The Lord does not need your tithing, as far as He is concerned, but you need it for your growth, spiritually and temporally, that the windows of heaven may be opened and the Spirit of the living God given to you.
+ - Day-dreams without work do not amount to anything; it is the actual work that counts.
+ - Thank God we are not to be judged by the opinions of our fellows, but by the work that we do.
+ - In times of temptation, of sorrow, of peace and of blessing, let us pray always, both alone and with our families.
+ - No man can teach the Gospel of Jesus Christ under the inspiration of the living God and with power from on high unless he is living it.
+ - The singing of the songs of Zion, though imperfectly, with the inspiration of God, will touch the hearts of the honest more effectively than if sung well without the Spirit of God.
+ - No matter in what land we may dwell the Gospel of the Lord Jesus Christ makes us brothers and sisters, interested in each other, eager to understand and know each other.
+ - Let every man feel that he is the architect and builder of his own life, and that he proposes to make a success of it by working.
+ - He will be our comfort and solace, our guide and counselor, our salvation and exaltation, for “there is none other name under heaven given among men, whereby we must be saved.”
+ - I believe unless we have ambition to accomplish things and to do things that we amount to but very little in the battle of life.
+ - The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.
+ - No power on earth, no power beneath the earth, will ever prevent you or me or any Latter-day Saint from being saved, except ourselves.
+ - Of what good is our faith, our repentance, our baptism, and all the sacred ordinances of the gospel by which we have been made ready to receive the blessings of the Lord, if we fail, on our part, to keep the commandments.
+ - I value all things as nothing in comparison with having the spirit of God to guide me.
+ - There is no true Latter-day Saint who would not rather bury a son or a daughter than to have him or her lose his or her chastity – realizing that chastity is of more value than anything else in all the world.
+ - I am free to confess that I am disappointed with the Yosemite valley. It seems only about one-half as grand as the American Fork canyon.
+ - If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means. And if there is any one thing that is grinding and discouraging and disheartening, it is to have debts and obligations that one cannot meet.
+ - There is no other labor in all the world that brings to a human heart, judging from my own personal experience, more joy, peace and serenity than proclaiming the gospel of the Lord Jesus Christ.
+ - The minute a man stops supplicating God for His Spirit and direction, just so soon he starts out to become a stranger to Him and His works. When men stop praying for God’s Spirit, they place confidence in their own unaided reason, and they gradually lose the Spirit of God.
+ - There is a still small voice telling us what is right, and if we listen to that still small voice we shall grow and increase in strength and power, in testimony and in ability not only to live the gospel but to inspire others to do so.
+ - Many of the Latter-day Saints have surrendered their independence; they have surrendered their free thought, politically, and we have got to get back to where we are not surrendering the right. We must stay with the right and if we do so God will bless us.
+ - I consider it one of the greatest accomplishments of my life that I have learned to sing.
+ - Being an only child, my mother reared me very carefully.
+ - I am deeply interested in this work. I am anxious to encourage the people to press on in securing their genealogies and after doing so in laboring in our temples.
+ - The Lord is no respector of persons, and will give success to all who work for it. If l can only impress upon the minds of the youth of Zion the eloquence, the inexpressible eloquence of work, I shall feel fully repaid.
+ - The singing of our sacred hymns, written by the servants of God, has a powerful effect in converting people to the principles of the Gospel, and in promoting peace and spiritual growth.
+ - I have no animosity against any living soul.
+ - We do appeal to all men and women, realizing the responsibility resting upon them, to seek God our heavenly Father to guide them politically as well as religiously, and to stand for right and for those things that are for the good of this nation.
+ - Every individual can improve from day to day, from year to year, and have greater capacity to do things as the years come and the years go.
+ - I know of nothing that I feel is of so great value in life as to be obedient to the counsel and advice of the Lord, and of His servants in this our day.
+ - If a man has the assurance within his own heart that he is worthy, and that he is laboring to the best of his ability to do good, he can stand up under the condemnation, the criticism and the censure of those by whom he is surrounded.
+ - If we are striving, if we are working, if we are trying, to the best of our ability, to improve day by day, then we are in the line of our duty.
+ - He can who thinks he can.
+ - I have felt the inspiration of the living God directing me in my labors.
+ - I have reached out my hand, I have plucked the fruits of the Gospel, I have eaten of them, and they are sweet, yea, above all that is sweet.
+ - I do not believe we accomplish very much in life unless we are enthusiastic, unless we are in earnest, and unless we practice what we preach.
+ - I am always pleased when I have the opportunity of meeting with the Latter-day Saints in any of their gatherings.
+
+42 quotes

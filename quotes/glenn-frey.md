@@ -1,0 +1,37 @@
+ - People don’t run out of dreams – people just run out of time.
+ - People don’t care how you feel. You need to paint pictures, you need to tell stories. That’s what people want. They want to be entertained. Then all of the other stuff kind of filters across as part of the whole thing.
+ - Somebody asked my friend Bob Seger, Why do you think the Eagles broke up? He said, Hotel California.
+ - There’s another kind of poverty that only rich men know, a moral malnutrition that starves their very souls.
+ - Some people, they just don’t get a joke.
+ - Our lives are changing, this old world keeps turning. And I sit here and wonder, baby, what we’re really learning.
+ - We set out to become a band for our time. But sometimes if you do a good-enough job, you become a band for all time.
+ - Money was a much saner goal than adoration. They’ll both drive you crazy but if I’m going to blow my brains out for five years, I want something to show for it.
+ - The last two years with the Eagles were pretty intense times. There was a lot of drinking and we were all getting high a lot. My parents were relieved when I got off the Eagles treadmill.
+ - I read the Life magazine articles about free love and free dope in California. At age 20 I drove to Los Angeles.
+ - It’s a losing proposition, but one you can’t refuse. It’s the politics of contraband, it’s the smuggler’s blues.
+ - Without a reunion, the Eagles are forever young, like James Dean.
+ - I grew up in Detroit. So my mother always loved big band music.
+ - I’m just as insufferable and useless as every other dad is. The dynamic never changes, no matter what you do for a living.
+ - Except for a few guitar chords, everything I’ve learned in my life that is of any value I’ve learned from women.
+ - Hey, a woman changed her mind – what else is new?
+ - Follow your musical instincts. Do what you feel is right. Don’t be relegated to a certain category.
+ - I won’t apologize for ticket prices. I think we’re well worth it. We consider ourselves in the elite touring acts, like the Stones, Elton John, Paul McCartney.
+ - Hey, I didn’t make a big deal out of Hotel California. The 18 million people that bought it did.
+ - I think it would be nice to sell 15 million albums as a solo artist. I’d have to deal with all the repercussions of that, but that wouldn’t be too bad.
+ - I think musicians and artists are the most philanthropic people I know. Their charity record of the music business would hold up to the work of anybody.
+ - It was 1967, and the hippie thing was happening. I got into experimenting with drugs while I was in college in Michigan.
+ - If you get a chance to be in a film, that’s great. One of my goals is to make a record as good as Don Henley’s album, Building the Perfect Beast.
+ - If we’re so awful and we’re so bad, you ought to check out the nightlife in Leningrad.
+ - I really think one of the greatest allies you can have is the imagination of your audience.
+ - My songs grow on people – like warts.
+ - The great thing about being 30 is that there are a great deal more available women. The young ones look younger and the old ones don’t look nearly as old.
+ - If you’re writing songs by yourself, who’s going to tell you if it’s good or not? But if you’re writing songs with somebody else, you get that immediate feedback.
+ - There are only those certain people where things click – at least for me.
+ - If the Eagles were to get back together, it would have to be for the right reasons. I think it would look awful if it were just for the money.
+ - That’s what I miss out of all this synthesized music – it starts to lose dynamics.
+ - I think that’s a powerful thing, to be able to engage your audience and let them put some of themselves into the music.
+ - I wanted to sing songs that my voice was comfortable with.
+ - I’m just a bleeping maniac in straight clothing. There’s no reason to dress my monster up.
+ - I’ve read somewhere that when you’re writing, you should stop while you’re doing well so you always want to go back to work.
+
+35 quotes

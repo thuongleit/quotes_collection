@@ -1,0 +1,42 @@
+ - Insofar as poetry has a social function it is to awaken sleepers by other means than shock.
+ - It’s when we face for a moment the worst our kind can do, and shudder to know the taint in our own selves, that awe cracks the mind’s shell and enters the heart.
+ - I’m not very good at praying, but what I experience when I’m writing a poem is close to prayer.
+ - Nothing we do has the quickness, the sureness, the deep intelligence living at peace would have.
+ - Grief is a hole you walk around in the daytime and at night you fall into it.
+ - You have come to the shore. There are no instructions.
+ - What I heard was my whole self saying and singing what it knew: I can.
+ - Every day, every day I hear enough to fill a year of nights with wondering.
+ - When you’re really caught up in writing a poem, it can be a form of prayer. I’m not very good at praying, but what I experience when I’m writing a poem is close to prayer. I feel it in different degrees and not with every poem. But in certain ways writing is a form of prayer.
+ - Death and pain dominate this world, for though many are cured, they leave still weak, still tremulous, still knowing mortality has whispered to them; have seen in the folding of white bedspreads according to rule the starched pleats of a shroud.
+ - But we have only begun to love the earth. We have only begun to imagine the fullness of life. How could we tire of hope?-so much is in bud.
+ - Peace as a positive condition of society, not merely as an interim between wars, is something so unknown that it casts no images on the mind’s screen.
+ - There comes a time when only anger is love.
+ - We must breathe time as fishes breathe water.
+ - Two girls discover the secret of life in a sudden line of poetry.
+ - In the dark I rest, unready for the light which dawns day after day, eager to be shared. Black silk, shelter me. I need more of the night before I open eyes and heart to illumination. I must still grow in the dark like a root not ready, not ready at all.
+ - The world is not with us enough. O taste and see.
+ - The fire in leaf and grass so green it seems each summer the last summer.
+ - The artist must create himself or be born again.
+ - Rain-diamonds, this winter morning, embellish the tangle of unpruned pear-tree twigs; each solitaire, placed, it appears, with considered judgement, bears the light beneath the rifted clouds – the invisible shared out in endless abundance.
+ - Marvelous Truth, confront us at every turn, in every guise.
+ - There is no savor more sweet, more salt than to be glad to be what, woman, and who, myself, I am...
+ - In city, in suburb, in forest, no way to stretch out the arms – so if you would grow, go straight up or deep down.
+ - Both art and faith are dependent on imagination; both are ventures into the unknown.
+ - We call it “Nature”; only reluctantly admitting ourselves to be “Nature” too.
+ - I believe every space and comma is a living part of the poem and has its function, just as every muscle and pore of the body has its function. And the way the lines are broken is a functioning part essential to the life of the poem.
+ - Let me walk through the fields of paper touching with my wand dry stems and stunted butterflies...
+ - If woman is inconstant, good, I am faithful to ebb and flow, I fall in season and now is a time of ripening.
+ - Very few people really see things unless they’ve had someone in early life who made them look at things. And name them too. But the looking is primary, the focus.
+ - Affliction is more apt to suffocate the imagination than to stimulate it.
+ - You can live for years next door to a big pine tree, honored to have so venerable a neighbor, even when it sheds needles all over your flowers or wakes you, dropping big cones onto your deck at still of night.
+ - In certain ways writing is a form of prayer.
+ - Mediocrity is perhaps due not so much to lack of imagination as to lack of faith in the imagination, lack of the capacity for this abandon.
+ - Wear scarlet! Tear the green lemons off the tree! I don’t want to forget who I am, what has burned in me, and hang limp and clean, an empty dress -.
+ - But for us the road unfurls itself, we don’t stop walking, we know there is far to go.
+ - I’ll dig in into my days, having come here to live, not to visit. Grey is the price of neighboring with eagles, of knowing a mountain’s vast presence, seen or unseen.
+ - Teachers at all levels encourage the idea that you have to talk about things in order to understand them, because they wouldn’t have jobs, otherwise. But it’s phony, you know.
+ - One of the obligations of the writer is to say or sing all that he or she can, to deal with as much of the world as becomes possible to him or her in language.
+ - It is fatal to one’s artistic life to talk about something this is in process.
+ - I like to find what’s not found at once, but lies within something of another nature, in repose, distinct.
+
+40 quotes

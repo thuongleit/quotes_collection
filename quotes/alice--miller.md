@@ -1,0 +1,57 @@
+ - Disrespect is the weapon of the weak. ~~Alice Miller
+ - Emotional access to the truth is the indispensable precondition of healing. ~~Alice Miller
+ - Genuine forgiveness does not deny anger but faces it head-on. ~~Alice Miller
+ - If a mother respects both herself and her child from his very first day onward, she will never need to teach him respect for others. ~~Alice Miller
+ - The reason why parents mistreat their children has less to do with character and temperament than with the fact that they were mistreated themselves and were not permitted to defend themselves. ~~Alice Miller
+ - The more we idealize the past and refuse to acknowledge our childhood sufferings, the more we pass them on unconsciously to the next generation. ~~Alice Miller
+ - Every child has a legitimate narcissistic need to be noticed, understood, taken seriously, and respected by his mother. In the first weeks and months of life he needs to have the mother at his disposal, must be able to use her and to be mirrored by her. ~~Alice Miller
+ - Empathy grows as we learn. ~~Alice Miller
+ - Contempt is the weapon of the weak and a defense against one’s own despised and unwanted feelings. ~~Alice Miller
+ - Courage can be just as infectious as fear. ~~Alice Miller
+ - Wherever I look, I see signs of the commandment to honor one’s parents and nowhere of a commandment that calls for the respect of a child. ~~Alice Miller
+ - For the human soul is virtually indestructible, and its ability to rise from the ashes remains as long as the body draws breath. ~~Alice Miller
+ - What is addiction, really? It is a sign, a signal, a symptom of distress. It is a language that tells us about a plight that must be understood. ~~Alice Miller
+ - An unacknowledged trauma is like a wound that never heals over and may start to bleed again at any time. ~~Alice Miller
+ - The victimization of children is nowhere forbidden; what is forbidden is to write about it. ~~Alice Miller
+ - All children are born to grow, to develop, to live, to love, and to articulate their needs and feelings for their self-protection. ~~Alice Miller
+ - If it’s very painful for you to criticize your friends – you’re safe in doing it. But if you take the slightest pleasure in it, that’s the time to hold your tongue. ~~Alice Miller
+ - Sadism is not an infectious disease that strikes a person all of a sudden. It has a long prehistory in childhood and always originates in the desperate fantasies of a child who is searching for a way out of a hopeless situation. ~~Alice Miller
+ - It is possible to resolve childhood repression safely and without confusion – something that has always been disputed by the most respected schools of thought. ~~Alice Miller
+ - We produce destructive people by the way we are treating them in childhood. ~~Alice Miller
+ - Society chooses to disregard the mistreatment of children, judging it to be altogether normal because it is so commonplace. ~~Alice Miller
+ - Those children who are beaten will in turn give beatings, those who are intimidated will be intimidating, those who are humiliated will impose humiliation, and those whose souls are murdered will murder. ~~Alice Miller
+ - One can only remember what has been consciously experienced. ~~Alice Miller
+ - It is very difficult for people to believe the simple fact that every persecutor was once a victim. Yet it should be very obvious that someone who was allowed to feel free and strong from childhood does not have the need to humiliate another person. ~~Alice Miller
+ - The true opposite of depression is not gaiety or absence of pain, but vitality: the freedom to experience spontaneous feelings. ~~Alice Miller
+ - Child abuse is still sanctioned – indeed, held in high regard – in our society as long as it is defined as child-rearing. It is a tragic fact that parents beat their children in order to escape the emotions from how they were treated by their own parents. ~~Alice Miller
+ - Experience has taught us that we have only one enduring weapon in our struggle against mental illness: the emotional discovery and emotional acceptance of the truth in the individual and unique history of our childhood. ~~Alice Miller
+ - Genuine feelings cannot be produced, nor can they be eradicated. We can only repress them, delude ourselves, and deceive our bodies. The body sticks to the facts. ~~Alice Miller
+ - The free expression of resentment against one’s parents represents a great opportunity. It provides access to one’s true self, reactivates numbed feelings, opens the way for mourning and – with luck – reconciliation. ~~Alice Miller
+ - We don’t yet know, above all, what the world might be like if children were to grow up without being subjected to humiliation, if parents would respect them and take them seriously as people. ~~Alice Miller
+ - Parents are indeed capable of routinely torturing their children without anyone interceding. ~~Alice Miller
+ - If we do not work on all three levels – body, feeling, mind – the symptoms of our distress will keep returning, as the body goes on repeating the story stored in its cells until it is finally listened to and understood. ~~Alice Miller
+ - That probably greatest of narcissistic wounds – not to have been loved just as one truly was – cannot heal without the work of mourning. ~~Alice Miller
+ - It is precisely because a child’s feelings are so strong that they cannot be repressed without serious consequences. The stronger a prisoner is, the thicker the prison walls have to be, which impede or completely prevent later emotional growth. ~~Alice Miller
+ - The child has a primary need to be regarded and respected as the person he really is at any given time, and as the center – the central actor – in his own activity. ~~Alice Miller
+ - The grandiose person is never really free; first because he is excessively dependent on admiration from others, and second, because his self-respect is dependent on qualities, functions, and achievements that can suddenly fail. ~~Alice Miller
+ - You gotta keep that in check – you got to. ~~Alice Miller
+ - We are still barely conscious of how harmful it is to treat children in a degrading manner. Treating them with respect and recognizing the consequences of their being humiliated are by no means intellectual matters; otherwise, their importance would long since have been generally recognized. ~~Alice Miller
+ - The only possible recourse a baby has when his screams are ignored is to repress his distress, which is tantamount to mutilating his soul, for the result is an interference with his ability to feel, to be aware, and to remember. ~~Alice Miller
+ - One of the best ways of keeping your temper in an argument, as most of us know only too well, is not to listen to anything the other person has to say. ~~Alice Miller
+ - Learning is a result of listening, which in turn leads to even better listening and attentiveness to the other person. In other words, to learn from the child, we must have empathy, and empathy grows as we learn. ~~Alice Miller
+ - The abused children are alone with their suffering, not only within the family, but also within themselves. They cannot crate a place in their own soul where they could cry their beart out. ~~Alice Miller
+ - Child abuse damages a person for life and that damage is in no way diminished by the ignorance of the perpetrator. It is only with the uncovering of the complete truth as it affects all those involved that a genuinely viable solution can be found to the dangers of child abuse. ~~Alice Miller
+ - Regression to the stage of early infancy is not a suitable method in and of itself. Such a regression can only be effective if it happens in the natural course of therapy and if the client is able to maintain adult consciousness at the same time. ~~Alice Miller
+ - The commandment to refrain from placing blame on our parents, deeply imprinted in us by our upbringing, skillfully performs the function of hiding essential truths from us. ~~Alice Miller
+ - I sincerely believe that we not only have the right to know what is good and what is evil; we have the duty to acquire that knowledge if we hope to assume responsibility for our own lives and those of our children. Only by knowing the truth can we be set free. ~~Alice Miller
+ - The results of any traumatic experience, such as abuse, can only be resolved by experiencing, articulating, and judging every facet of the original experience within a process of careful therapeutic disclosure. ~~Alice Miller
+ - Genuine feelings are never the product of conscious effort. They are quite simply there, and they are there for a very good reason, even if that reason is not always apparent. ~~Alice Miller
+ - We can never do the right thing as long as we are out to please someone else. ~~Alice Miller
+ - There are people who have benefited from therapy without being confronted with the past at all. ~~Alice Miller
+ - Only the mourning for what one has missed at the crucial time can lead to real healing. ~~Alice Miller
+ - I have never known a patient to portray his parents more negatively than he actually experienced them in childhood but always more positively – because idealization of his parents was essential for his survival. ~~Alice Miller
+ - Today I should not be identified with any kind of regressive therapy. ~~Alice Miller
+ - Don’t ever dare to take your college as a matter of course – because, like democracy and freedom, many people you’ll never know have broken their hearts to get it for you. ~~Alice Miller
+ - Clinging uncritically to traditional ideas and beliefs often serves to obscure or deny real facts of our life history. ~~Alice Miller
+
+55 quotes

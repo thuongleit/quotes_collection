@@ -1,0 +1,56 @@
+ - Never give in, never back down.
+ - Always be yourself, unless you can be Batman, always be Batman.
+ - Be who you want to be and not care about what others think.
+ - Please remember, that even in your darkest moments, you still have the choice to focus your energy on the positive and create a better life.
+ - Life is all about being true to yourself and what you believe in.
+ - You don’t fall in love with a gender, you fall in love with a person.
+ - Let love be your perfect weapon.
+ - And the people who say things to you about the way you look and the way you dress, they have nothing more to their lives. That’s all they do, and you have something more in you.
+ - Take joy in who you are, we know our wings are flawed.
+ - Creating art or something beautiful makes you a more fulfilled person than they can ever be because they’re caught up in what they hate rather than what they love.
+ - I never advocate that you should be lonely, or come to my shows and bring me your razor blade to show me that you don’t cut anymore.
+ - Reverse petting zoo. You pet the animals, and they pet you back.
+ - Black Veil Brides will stand strong for you we will take on the world’s hatred so that you don’t have to listen to your music way to loud and be as crazy and as “different” as you want to be and always remember you’re not alone.
+ - I’m writing songs with the hope someone can get behind my feeling.
+ - I make more time to have fun in the life I’m living before I’m worm food.
+ - I don’t want to get away with murder! I’d have to live with that for the rest of my life. I would never want to live with killing somebody.
+ - I would advocate that you show me your smiling face, and how happy you can make your life.
+ - Without someone telling you what you are doing is wrong, you can’t say what you are doing is right.
+ - It would be weird for me to be raging against all of the bullies in my life because it would be disingenuous. I’ve gotten through all of that and I’m living a wonderful life, but that doesn’t mean that people aren’t mean to me.
+ - There’s absolutely no one in the world that can tell you can’t do something. You’re the only person that can set that limitation.
+ - And death climbs up the steps one by one.
+ - Finally, please remember this. If you EVER need something that you can stand behind, something to help you to take on and deflect all of the hatred of this often cruel world, you will ALWAYS have Black Veil Brides.
+ - It’s so simple just like that, ’cause it’s a shame that where you’re at isn’t always where you really wanna be.
+ - Never ran away for the sake of scars.
+ - It’s a dangerous game to write a song for a person you don’t know. It feels disingenuous.
+ - You try so hard to make something that’s fun and exciting, then all anyone wants to talk about is how no-one likes you. It gets very grinding. I had to let the chip I have on my shoulder about that go.
+ - Love is a power greater than death, just like the songs and stories told.
+ - Every sixty seconds you spend upset is a minute of happiness you’ll never get back.
+ - I know that isn’t always easy and that there is self-harm in the world. Sometimes it’s hard for people to rise above things.
+ - Like birds whose wings are broken, you live without direction!
+ - I didn’t really get the chance to talk to girls. I was a straight boy with hormones kicking in, and I wanted to talk to girls, but they weren’t interested in talking back to me, so there was a real sense of loneliness.
+ - I rather be divisive than boring. The last thing I want to be is a bowl of sugar free vanilla pudding, it’s not something you necessarily hate but it’s not something you ask for. I’d rather be something people passionately care about one way or another than be kind of in the middle.
+ - Pages of revelation lie open in your empty eyes of blue.
+ - I tend to have a very analytical mind, I’m constantly thinking about how things can be better or different.
+ - Find something that is a happy, healthy alternative to hurting yourself, as opposed to taking a razor blade to yourself because at the end of the day, you’re only hurting the most important person in the world and that’s you. And you don’t want to hurt that person.
+ - Me personally, I side more with punk rock bands. I grew up with The Misfits, The Dead Boys, The Damned, Dropkick Murphys, and early AFI. That was the stuff that really got me into music. Song writing wise, bands like Alkaline Trio were very important to me for beginning to write songs.
+ - Every day, people say crappy things about my band or whatever, but I live a positive existence. I got through everything by virtue of having the same passion that I’ve had through the years.
+ - Photograph each day so we can live forever.
+ - You are at home when you’re at a Black Veil Brides concert.
+ - Something pure to burn away the darkness that hides inside my mind.
+ - I don’t believe in ghosts, or fairies, or crystals, or unicorns, or a man that can walk on water, or any of that non sense, I personally rely on logic, and have for the better part of my life.
+ - I need to have something to source my energy to and something to remove me from my own weird brain.
+ - When I was growing up in school, I wasn’t the archetype of the classic American nerd; I was just different.
+ - I was 16 when we made the first song. We’ve been touring for half a decade together and we’ve had quite a bit of time spent learning our craft. You improve as a song writer and as a musician over time.
+ - Aside from comic book heroes, the only real life heroes I had were musicians.
+ - Bathe in your riches and friends, I’ll stay here with my songbooks and pens.
+ - You have exactly the same number of hours per day that were given to any of your heroes. Become what you wish to be.
+ - I had a certain kind of disassociation from the other kids because I had more interest in sociology, ideas and trying to communicate those ideas to the kids around me.
+ - Where you are right now blast some music and forget.
+ - I feel that there is a culture being built that is a celebration of agony. There is also a celebration of being an outcast, to the degree that you are segregating yourself in a negative way from people who may want to be your friend.
+ - Three things it would be extremely difficult to play a show without: makeup, my vocal cords and pants.
+ - I see so many bands, that are trying really hard to write for a person that they’ve never met. I get the idea behind it and the idea of helping people, but I feel you help people more by exposing yourself.
+ - Because of the kind of music that I liked, and the different way that I dressed, it was kind of a perfect storm, creating a situation where I existed on my own throughout my schooling.
+ - Rock and roll is about having a good time.
+
+54 quotes

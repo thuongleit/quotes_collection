@@ -1,0 +1,158 @@
+ - It is not easy to find happiness in ourselves, and it is not possible to find it elsewhere.
+ - The impulse to travel is one of the hopeful symptoms of life.
+ - Friendship takes time.
+ - Miserliness is the one vice that grows stronger with increasing years. It yields its sordid pleasures to the end.
+ - Letter-writing on the part of a busy man or woman is the quintessence of generosity.
+ - People who cannot recognize a palpable absurdity are very much in the way of civilization.
+ - Sleep sweetly in the fields of asphodel, and waken, as of old, to stretch thy languid length, and purr thy soft contentment to the skies.
+ - Necessity knows no Sunday.
+ - Humor distorts nothing, and only false gods are laughed off their earthly pedestals.
+ - Democracy forever teases us with the contrast between its ideals and its realities, between its heroic possibilities and its sorry achievements.
+ - A puppy is but a dog, plus high spirits, and minus common sense.
+ - The vanity of man revolts from the serene indifference of the cat.
+ - The essence of humor is that it should be unexpected, that it should embody an element of surprise, that it should startle us out of that reasonable gravity which, after all, must be our habitual frame of mind.
+ - When the milk of human kindness turns sour, it is a singularly unpalatable draught.
+ - I am seventy years old, a gray age weighted with uncompromising biblical allusions. It ought to have a gray outlook, but it hasn’t, because a glint of dazzling sunshine is dancing merrily ahead of me.
+ - A kitten is the most irresistible comedian in the world. Its wide-open eyes gleam with wonder and mirth. It darts madly at nothing at all, and then, as though suddenly checked in the pursuit, prances sideways on its hind legs with ridiculous agility and zeal.
+ - Love is a malady, the common symptoms of which are the same in all patients...
+ - Laughter springs from the lawless part of our nature, and is purifying only in so far as there is a natural and unschooled goodness in the human heart.
+ - Everybody is now so busy teaching that nobody has any time to learn.
+ - Wit is the salt of conversation, not the food, and few things in the world are more wearying than a sarcastic attitude towards life.
+ - We know when we have had enough of a friend, and we know when a friend has had enough of us. The first truth is no more palatable than the second.
+ - Life is so full of miseries, minor and major; they press so close upon us at every step of the way, that it is hardly worthwhile to call one another’s attention to their presence.
+ - A world of vested interests is not a world which welcomes the disruptive force of candor.
+ - Need drives men to envy as fullness drives them to selfishness.
+ - The choice of a topic which will bear analysis and support enthusiasm, is essential to the enjoyment of conversation.
+ - There is nothing in the world so enjoyable as a thorough-going monomania...
+ - What monstrous absurdities and paradoxes have resisted whole batteries of serious arguments, and then crumbled swiftly into dust before the ringing death-knell of a laugh!
+ - In the stress of modern life, how little room is left for that most comfortable vanity that whispers in our ears that failures are not faults! Now we are taught from infancy that we must rise or fall upon our own merits; that vigilance wins success, and incapacity means ruin.
+ - Humor brings insight and tolerance. Irony brings a deeper and less friendly understanding.
+ - The pessimist is seldom an agitating individual. His creed breeds indifference to others, and he does not trouble himself to thrust his views upon the unconvinced.
+ - We may fail of our happiness, strive we ever so bravely; but we are less likely to fail if we measure with judgement our chances and our capabilities.
+ - An appreciation of words is so rare that everybody naturally thinks he possesses it, and this universal sentiment results in the misuse of a material whose beauty enriches the loving student beyond the dreams of avarice.
+ - Laughter springs from the lawless part of our nature.
+ - There is a natural limit to the success we wish our friends, even when we have spurred them on their way.
+ - But self-satisfaction, if as buoyant as gas, has an ugly trick of collapsing when full blown, and facts are stony things that refuse to melt away in the sunshine of a smile.
+ - I am eighty years old. There seems to be nothing to add to this statement. I have reached the age of undecorated facts – facts that refuse to be softened by sentiment, or confused by nobility of phrase.
+ - Erudition, like a bloodhound, is a charming thing when held firmly in leash, but it is not so attractive when turned loose upon a defenseless and unerudite public.
+ - Every true American likes to think in terms of thousands and millions. The word ‘million’ is probably the most pleasure-giving vocable in the language.
+ - It is not depravity that afflicts the human race so much as a general lack of intelligence.
+ - No rural community, no suburban community, can ever possess the distinctive qualities that city dwellers have for centuries given to the world.
+ - There are few things more wearisome in a fairly fatiguing life than the monotonous repetition of a phrase which catches and holds the public fancy by virtue of its total lack of significance.
+ - A vast deal of ingenuity is wasted every year in evoking the undesirable, in the careful construction of objects which burden life. Frankenstein was a large rather than an isolated example.
+ - If everybody floated with the tide of talk, placidity would soon end in stagnation. It is the strong backward stroke which stirs the ripples, and gives animation and variety.
+ - It is unwise to feel too much if we think too little.
+ - The human race may be divided into people who love cats and people who hate them; the neutrals being few in numbers, and, for intellectual and moral reasons, not worth considering.
+ - There is always a secret irritation about a laugh in which we cannot join.
+ - There is a secret and wholesome conviction in the heart of every man or woman who has written a book that it should be no easy matter for an intelligent reader to lay down that book unfinished. There is a pardonable impression among reviewers that half an hour in its company is sufficient.
+ - The worst in life, we are told, is compatible with the best in art. So too the worst in life is compatible with the best in humour.
+ - Conversation between Adam and Eve must have been difficult at times because they had nobody to talk about.
+ - There was no escape from the letter-writer who, a hundred or a hundred and twenty-five years ago, captured a coveted correspondent. It would have been as easy to shake off an octopus or a boa-constrictor.
+ - The English possess too many agreeable traits to permit them to be as much disliked as they think and hope they are.
+ - We cannot hope to scale great moral heights by ignoring petty obligations.
+ - A kitten is chiefly remarkable for rushing about like mad at nothing whatever and generally stopping before it gets there.
+ - Wit is artificial; humor is natural. Wit is accidental; humor is inevitable. Wit is born of conscious effort; humor, of the allotted ironies of fate. Wit can be expressed only in language; humor can be developed sufficiently in situation.
+ - To be brave in misfortune is to be worthy of manhood; to be wise in misfortune is to conquer fate.
+ - Who that has plodded on to middle age would take back upon his shoulders ten of the vanished years, with their mingled pleasures and pains? Who would return to the youth he is forever pretending to regret?
+ - The pitfall of the feminist is the belief that the interests of men and women can ever be severed; that what brings sufferings to the one can leave the other unscathed.
+ - Sensuality, too, which used to show itself course, smiling, unmasked, and unmistakable, is now serious, analytic, and so burdened with a sense of its responsibilities that it passes muster half the time as a new type of asceticism.
+ - The comfortable thing about the study of history is that it inclines us to think hopefully of our own times.
+ - Traveling is, and has always been, more popular than the traveler.
+ - Neatness of phrase is so closely akin to wit that it is often accepted as its substitute.
+ - Humor brings insight and tolerance.
+ - The diseases of the present have little in common with the diseases of the past save that we die of them.
+ - It has been wisely said that we cannot really love anybody at whom we never laugh.
+ - What strange impulse is it which induces otherwise truthful people to say they like music when they do not, and thus expose themselves to hours of boredom?
+ - For my part, the good novel of character is the novel I can always pick up; but the good novel of incident is the novel I can never lay down.
+ - When the contemplative mind is a French mind, it is content, for the most part, to contemplate France. When the contemplative mind is an English mind, it is liable to be seized at any moment by an importunate desire to contemplate Morocco or Labrador.
+ - Humor, in one form or another, is characteristic of every nation; and reflecting the salient points of social and national life, it illuminates those crowded corners which history leaves obscure.
+ - It is bad enough to be bad, but to be bad in bad taste is unpardonable.
+ - It is not what we learn in conversation that enriches us. It is the elation that comes of swift contact with tingling currents of thought.
+ - The thinkers of the world should by rights be guardians of the world’s mirth.
+ - Science may carry us to Mars, but it will leave the earth peopled as ever by the inept.
+ - It is difficult to admonish Frenchmen. Their habit of mind is unfavorable to preachment.
+ - There is no illusion so permanent as that which enables us to look backward with complacency; there is no mental process so deceptive as the comparing of recollections with realities.
+ - A man who listens because he has nothing to say can hardly be a source of inspiration. The only listening that counts is that of the talker who alternately absorbs and expresses ideas.
+ - The great dividing line between books that are made to be read and books that are made to be bought is not the purely modern thing it seems. We can trace it, if we try, back to the first printing-presses...
+ - The cat dwells within the circle of her own secret thoughts.
+ - If we go to church we are confronted with a system of begging so complicated and so resolute that all other demands sink into insignificance by its side.
+ - There are few nudities so objectionable as the naked truth.
+ - Humor hardens the heart, at least to the point of sanity...
+ - Letters form a by-path of literature, a charming, but occasional, retreat for people of cultivated leisure.
+ - Resistance, which is the function of conservatism, is essential to orderly advance.
+ - Next to the joy of the egotist is the joy of the detractor.
+ - The clear-sighted do not rule the world, but they sustain and console it.
+ - Our belief in education is unbounded, our reverence for it is unfaltering, our loyalty to it is unshaken by reverses. Our passionate desire, not so much to acquire it as to bestow it, is the most animated of American traits.
+ - Just as we are often moved to merriment for no other reason than that the occasion calls for seriousness, so we are correspondingly serious when invited too freely to be amused.
+ - Men who believe that, through some exceptional grace or good fortune, they have found God, feel little need of culture.
+ - The age of credulity is every age the world has ever known. Men have always turned from the ascertained, which is limited and discouraging, to the dubious, which is unlimited and full of hope for everybody.
+ - Books that children read but once are of scant service to them; those that have really helped to warm our imaginations and to train our faculties are the few old friends we know so well that they have become a portion of our thinking selves.
+ - There is a vast deal of make-believe in the carefully nurtured sentiment for country life, and the barefoot boy, and the mountain girl.
+ - People fed on sugared praises cannot be expected to feel an appetite for the black broth of honest criticism.
+ - People with theories of life are, perhaps, the most relentless of their kind, for no time or place is sacred from their devastating elucidations.
+ - A man who owns a dog is, in every sense of the words, its master; the term expresses accurately their mutual relations. But it is ridiculous when applied to the limited possession of a cat.
+ - There is an optimism which nobly anticipates the eventual triumph of great moral laws, and there is an optimism which cheerfully tolerates unworthiness.
+ - The sanguine assurance that men and nations can be legislated into goodness, that pressure from without is equivalent to a moral change within, needs a strong backing of inexperience.
+ - English civilization rests largely upon tea and cricket, with mighty spurts of enjoyment on Derby Day, and at Newmarket.
+ - Edged tools are dangerous things to handle, and not infrequently do much hurt.
+ - Bargaining is essential to the life of the world; but nobody has ever claimed that it is an ennobling process.
+ - The friendships of nations, built on common interests, cannot survive the mutability of those interests.
+ - The tourist may complain of other tourists, but he would be lost without them.
+ - History is, and has always been trameled by facts. It may ignore some and deny others; but it cannot accommodate itself unreservedly to theories; it cannot be stripped of things evidenced in favor of things surmised.
+ - The delusions of the past seem fond and foolish. The delusions of the present seem subtle and sane.
+ - Innovations to which we are not committed are illuminating things.
+ - It has been well said that tea is suggestive of a thousand wants, from which spring the decencies and luxuries of civilization.
+ - Wit is a thing capable of proof.
+ - A dead grief is easier to bear than a live trouble.
+ - Our dogs will love and admire the meanest of us, and feed our colossal vanity with their uncritical homage.
+ - Philadelphians are every whit as mediocre as their neighbors, but they seldom encourage each other in mediocrity by giving it a more agreeable name.
+ - To have given pleasure to one human being is a recollection that sweetens life.
+ - Every misused word revenges itself forever upon a writer’s reputation.
+ - Those persons are happiest in this restless and mutable world who are in love with change, who delight in what is new simply because it differs from what is old; who rejoice in every innovation, and find a strange alert pleasure in all that is, and that has never been before.
+ - The least practical of us have some petty thrift dear to our hearts, some one direction in which we love to scrimp.
+ - If history in the making be a fluid thing, it swiftly crystallizes.
+ - The earliest voice listened to by the nations in their infancy was the voice of the storyteller.
+ - Like simplicity and candor, and other much-commented qualities, enthusiasm is charming until we meet it face to face, and cannot escape from its charm.
+ - There is no liberal education for the under-languaged.
+ - Whatever has “wit enough to keep it sweet” defies corruption and outlasts all time; but the wit must be of that outward and visible order which needs no introduction or demonstration at our hands.
+ - History is not written in the interests of morality.
+ - The universality of a custom is pledge of its worth.
+ - For indeed all that we think so new to-day has been acted over and over again, a shifting comedy, by the women of every century.
+ - Guests are the delight of leisure, and the solace of ennui.
+ - It is in his pleasure that a man really lives.
+ - The necessity of knowing a little about a great many things is the most grievous burden of our day. It deprives us of leisure on the one hand, and of scholarship on the other.
+ - I do strive to think well of my fellow man, but no amount of striving can give me confidence in the wisdom of a congressional vote.
+ - Cats, even when robust, have scant liking for the boisterous society of children, and are apt to exert their utmost ingenuity to escape it. Nor are they without adult sympathy in their prejudice.
+ - We have but the memories of past good cheer, we have but the echoes of departed laughter. In vain we look and listen for the mirth that has died away. In vain we seek to question the gray ghosts of old-time revelers.
+ - An historian without political passions is as rare as a wasp without a sting.
+ - Personally, I do not believe that it is the duty of any man or woman to write a novel. In nine cases out of ten, there would be greater merit in leaving it unwritten.
+ - Lovers of the town have been content, for the most part, to say they loved it. They do not brag about its uplifting qualities. They have none of the infernal smugness which makes the lover of the country insupportable.
+ - Wit is as infinite as love, and a deal more lasting in its qualities.
+ - It was hard to speed the male child up the stony heights of erudition, but it was harder still to check the female child at the crucial point, and keep her tottering decorously behind her brother.
+ - Wit is a pleasure-giving thing, largely because it eludes reason; but in the apprehension of an absurdity through the working of the comic spirit there is a foundation of reason, and an impetus to human companionship.
+ - It is not the office of a novelist to show us how to behave ourselves; it is not the business of fiction to teach us anything.
+ - A real dog, beloved and therefore pampered by his mistress, is a lamentable spectacle. He suffers from fatty degeneration of his moral being.
+ - What puzzles most of us are the things which have been left in the movies rather than the things which have been taken out.
+ - The carefully fostered theory that schoolwork can be made easy and enjoyable breaks down as soon as anything, however trivial, has to be learned.
+ - People who pin their faith to a catchword never feel the necessity of understanding anything.
+ - We owe to one another all the wit and good humour we can command; and nothing so clears our mental vistas as sympathetic and intelligent conversation.
+ - Believers in political faith-healing enjoy a supreme immunity from doubt.
+ - Too much rigidity on the part of teachers should be followed by a brisk spirit of insubordination on the part of the taught.
+ - In those happy days when leisure was held to be no sin, men and women wrote journals whose copiousness both delights and dismays us.
+ - It is because of our unassailable enthusiasm, our profound reverence for education, that we habitually demand of it the impossible. The teacher is expected to perform a choice and varied series of miracles.
+ - It is in his pleasure that a man really lives; it is from his leisure that he constructs the true fabric of self.
+ - It is not begging but the beggar, who has forfeited favor with the elect.
+ - There are many ways of asking a favor; but to assume that you are granting the favor that you ask shows spirit and invention.
+ - Woman is quick to revere genius, but in her secret soul she seldom loves it.
+ - We are tethered to our kind, and may as well join hands in the struggle.
+ - While art may instruct as well as please, it can nevertheless be true art without instructing, but not without pleasing.
+ - No man pursues what he has at hand. No man recognizes the need of pursuit until that which he desires has escaped him.
+ - It takes time and trouble to persuade ourselves that the things we want to do are the things we ought to do.
+ - We cannot learn to love other tourists,-the laws of nature forbid it,-but, meditating soberly on the impossibility of their loving us, we may reach some common platform of tolerance, some common exchange of recognition and amenity.
+ - This is the sphinx of the hearthstone, the little god of domesticity, whose presence turns a house into a home.
+ - Economics and ethics have little in common.
+ - The party which is out sees nothing but graft and incapacity in the party which is in; and the party which is in sees nothing but greed and animosity in the party which is out.
+ - The dog is guided by kindly instinct to the man or woman whose heart is open to his advances. The cat often leaves the friend who courts her, to honor, or to harass, the unfortunate mortal who shudders at her unwelcome caresses.
+ - The soul begins to travel when the child begins to think.
+
+156 quotes

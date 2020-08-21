@@ -1,0 +1,35 @@
+ - We believe people are basically good. We believe everyone has something to contribute. We encourage you to treat others the way that you want to be treated.
+ - When you don’t know what to expect, prepare for the unexpected.
+ - We have technology, finally, that for the first time in human history allows people to really maintain rich connections with much larger numbers of people.
+ - You should pursue your passion. If you’re passionate about something and you work hard, then I think you will be successful.
+ - It is not really work if you are having fun.
+ - Microloans enable the poor to lift themselves out of poverty through entrepreneurship.
+ - To truly prepare for the unexpected, you’ve got to position yourself to keep a couple of options open so when the door of opportunity opens, you’re close enough to squeeze through.
+ - Everyone is born equally capable but lacks equal opportunity.
+ - Don’t let people who you may respect and who you believe know what they’re talking about, don’t let them tell you it can’t be done because often they will tell you it can’t be done, and it’s just because they don’t have the courage to try.
+ - Be an enzyme – a catalyst for change. As a slogan, I don’t know if that’s ever going to be right up there with Ich Bin Ein Berliner, or “I Have A Dream,” but there’s a lot of truth to it.
+ - An honest, open environment can bring out the best in people.
+ - People were doing business with one another through the Internet already, through bulletin boards. But on the Web, we could make it interactive, we could create an auction, we could create a real marketplace. And that’s really what triggered my imagination, if you will, and that’s what I did.
+ - I was just pursuing what I enjoyed doing. I mean, I was pursuing my passion.
+ - One of the things I tend to do is open myself up to a variety of voices. I try to expose myself to the kind of culture shock that occurs when you talk to people who speak a different language.
+ - Long-term sustainable change happens if people discover their own power.
+ - You have to really believe in what you’re doing, be passionate enough about it so that you will put in the hours and hard work that it takes to actually succeed there, and then you’ll be successful.
+ - If you can get over this initial distrust that people have of strangers, you can do remarkable things.
+ - By building a simple system, with just a few guiding principles, eBay was open to organic growth.
+ - I started eBay as an experiment, as a side hobby basically, while I had my day job.
+ - Give the individual the power to be a producer as well as a consumer.
+ - I’ve got a passion for solving a problem that I think I can solve in a new way. And that maybe it helps that nobody has done it before as well.
+ - We ought to be looking at business as a force for good.
+ - You’re able to accomplish anything you set out to accomplish.
+ - The personal wealth that’s coming is absolutely secondary to the stories that I hear about our users who have given themselves some financial independence as well by starting businesses, and all the lives we’ve touched positively.
+ - I want people to be entrepreneurs, but I want them to do it for the right reasons, because they think they can change the world, because they think they have got something of value to give to the world. Not because they think they can make a lot of money.
+ - I built a system simple enough to sustain itself.
+ - In order to access private capital, you have to provide competitive return on investment. In order to give competitive returns to investors, you’ve got to operate on a profitable basis and be thinking of yourself as a business.
+ - I never had it in mind that I would start a company one day and it would really be successful. I have just been motivated by working on interesting technology.
+ - In February of 1996, about six months after I created eBay, I started receiving a spate of complaints. Everyone was complaining about each other. I felt very much like I was a parent who had to adjudicate the brothers beating each other up.
+ - In 1991, I co-founded my first start-up, Ink Development, which made software for an early tablet computer.
+ - In the same way that you’re driven in your business to keep innovating – Facebook is a wonderful example of constant innovation – think about doing that in philanthropy.
+ - I was raised with the notion that you can do pretty much do anything you want. I always kind of just went ahead and tried things.
+ - Whatever future you’re building, don’t try to program everything.
+
+33 quotes

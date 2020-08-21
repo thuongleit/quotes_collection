@@ -1,0 +1,42 @@
+ - We are all wonderful, beautiful wrecks. That’s what connects us – that we’re all broken, all beautifully imperfect.
+ - The low-hanging fruit is cynicism and pessimism, and it’s there if you want it. You can reach out and you can grab it, you don’t even have to make any effort.
+ - We’ve lost touch and allowed technology to take precedence over organic nature. But let’s not forget that those microchips in our computers came from elements of the earth.
+ - In making certain things easier for people, technology has actually demotivated people from using their brains. We have all these devices that keep us connected, and yet we’re more disconnected than ever before. Why is that?
+ - Young people need to re-engage with politics. The life of democracy depends on it. We’ve left it to the stuff shirts, and obviously they haven’t been minding the store.
+ - There is a part of me that still wants to go out and grab a backpack and unplug – not take a cellphone or even a camera and just get out there and experience the world and travel. I have yet to do that, but someday I hope.
+ - By definition, I believe I am unapologetically optimistic and I am unapologetically earnest.
+ - We need to risk, we need to dare to risk and fail greatly because that’s the only way we grow.
+ - You don’t choose a life, dad. You live one.
+ - I’m a wonderful disaster. So are you. We’re all a mess. We’re in this culture that says take this pill and you’ll be happy, go on this diet and you’ll be thinner, have your teeth whitened, people will love you more.
+ - I have a problem with objectifying women, but I don’t have a problem playing a guy who objectifies women.
+ - My mother missed having dinner with Lyndon Johnson because she couldn’t find the right hat to wear. While my father went off to the white house to break bread with the President, my mother, who’s not a things and stuff person, stayed at the hotel and tried on 10 different hats and missed dinner.
+ - My father is the Hollywood equivalent of a clean, fillet-brazed frame. My brother is like one of those fat-tubed aluminum Cannondales. I’m more like one of those Taiwanese Masis.
+ - Writing is a lonely job, unless you’re a drinker, in which case you always have a friend within reach.
+ - I believe the death of Bobby Kennedy was in many ways the death of decency in America. I think it was the death of manners and formality, the death of poetry and the death of a dream.
+ - Literally, if someone says I am grounded, everyday I am at home, I actually have my hands in the ground and dirt under my fingernails. I don’t have a staff to do it all for me. I still plant a seed and I’m amazed it grows.
+ - Film is an illusion. Fame is ephemeral. Faith and family are what endure.
+ - I saw a headshot with the name ‘Emilio Sheen’ printed under it and it looked terrible.
+ - Madrid is enjoyed most from the ground, exploring your way through its narrow streets that always lead to some intriguing park, market, tapas bar or street performer. Each night we’d leave our hotel to begin a new adventure in Madrid and nine out of 10 times, we’d walk through the Plaza Mayor.
+ - We get very set in our ways and it’s sometimes hard to look beyond what else is out there.
+ - If only media people would stop reaching for the low-hanging fruit, which is cynicism and pessimism, and stopped trying so hard to be hip and cool and have a swagger.
+ - We’re all imperfect. And wouldn’t it be great if the message sent out by the mainstream media is that we’re fine being exactly who we are? Wouldn’t that be great for everyone?
+ - When people ask what were the qualities of Bobby Kennedy that they most admired, it was first that he was tough. Second, he told the truth and third, he stood up for the little guy.
+ - This is one of the benefits, as well as one of the difficulties of directing a member of your family. You know where the buttons are. You can push them if you want.
+ - People are beautiful wrecks.
+ - You look at 1968 and it was truly the year that shook the world. The world was really completely upside down.
+ - I’m not a Luddite, but I’m outside more than I’m on my computer. We have a micro-farm – it’s a step up from a garden. We have a pretty extensive vineyard. We grow about 60 percent of our own food, make our own wine, have chickens for eggs.
+ - Spiritually, we’re all on a path. I haven’t declared of defined myself because as soon as you declare yourself you’re identifying with a certain dogma.
+ - In the current climate, we live in a pessimistic and non-idealistic world.
+ - What does it take to get you to the point where you have to kill your brother? It’s biblical, it’s huge. It’s so personal.
+ - Americans are probably more in line than ever before. We’re more moderate than we are liberal or conservative.
+ - I used to Google my name to see what came up – it hurt.
+ - There is no doubt that directing television has helped hone my directing skills. What television teaches you is to be efficient and to think on your feet. You have to adhere to strict deadlines and budget constraints.
+ - What I find interesting is that the people that follow your Twitters are called ‘followers.’ Talk about false idolatry, right?
+ - I probably grow half my food. It’s a good way to keep perspective.
+ - You make a film and you don’t know who it’s going to appeal to.
+ - All the crap that we’ve encumbered our lives with, it’s really meaningless.
+ - I still have the art projects my kids made for me 20 years ago. I cherish them, crude and silly as some of them may be.
+ - We don’t think about pilgrimage in this country. We don’t think about meditation. The idea of taking a six-week walk is totally foreign to most Americans. But it’s probably exactly what we need.
+ - Since the beginning of time, every child on the planet has endeavored to please their parents.
+
+40 quotes

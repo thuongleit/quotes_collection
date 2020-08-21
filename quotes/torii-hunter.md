@@ -1,0 +1,30 @@
+ - I always think about what would Christ do in any circumstances.
+ - My faith is what makes me strong. Without faith, there are only low times.
+ - I have the faith that even at my lowest points, there will come a silver lining through faith.
+ - I’m older, and I’m better. I’m not old, but I’m older and wiser.
+ - My favorite book in the Bible is always Proverbs because it’s where you can find wisdom for no matter what you’re going through. It hits me every time I read it. I’ve always read Proverbs regularly because it helps me deal with what’s happening every day in real life.
+ - I was raised in the church by my grandmother who made sure we went to Sunday School, read the Bible and went to church every Sunday. Every night we read Bible stories before we went to bed.
+ - I was trying my best to just stop that ball from going over the fence, I’d sacrifice my body if I have to. I’ve done that my whole career.
+ - When I rely on my faith, I know God wants to reward and bless me but not because of some great act that I did but because of who He is.
+ - I just didn’t have no edge for baseball. Once special coach Tony Oliva and former Twins coach Al Newman told me what happened, I couldn’t function.
+ - When I see that little white ball go up, I want to catch it, no matter what. If I have to knock myself silly doing it, so be it.
+ - I try to walk like Christ in my life. If I strike out, I don’t curse, or throw my bat or hit things back in the dugout, I try to quietly just put my helmet back. I may be very upset but I try to control myself.
+ - Whether I’m down or whether things are great, I try to stay the same person all the time.
+ - My mother made sure we stayed involved in the church and the things of God. My relationship with Christ came about through that and the influences of my mother and grandmother helped my faith to grow.
+ - I’d rather save a home run than hit one. I’ve always been like that. Defense is what I pride myself on.
+ - What’s the use of saying we’re better at baseball than this country? We all play together. I’m playing with Venezuelans and Dominicans right now. We all play together, so what’s up with saying our country is better than your country? It’s stupid. I don’t like it.
+ - With faith, I know that everything will be taken care of. Even the difficult times become learning experiences to help make my faith stronger.
+ - To catch a ball, I’d commit suicide.
+ - It was so much fun working with these young kid actors. We had a great time and those kids are truly amazing.
+ - I ate the Green Monster. It tasted pretty nasty. It was pretty painful.
+ - Kirby played every day. You feed off of that. When you think of Kirby, you think of motivation. Im definitely going to dedicate this year to him.
+ - When everything is going good, that’s when I know God has rewarded me for my faith.
+ - I wouldn’t play in Minnesota unless my career was at an end and I had to go to Minnesota to play the game.
+ - I attribute being a good center fielder to many things, but being outside with friends as a kid, running around and racing, that was a big part of it.
+ - I go out every day and try to play great defense. I know my hitting will improve.
+ - Christ always had a passion for whatever He was doing. That’s how I try to define myself as an athlete. That’s the example I try to follow.
+ - I mean, I think we are a better team than last year offensively, but there is always a question with the Minnesota Twins. We’ll just have to wait and see.
+ - Now you have kids that say, ‘I wanna be Torii Hunter one day.’ Man, I love that.
+ - I want my teammates to see that I’m following Christ. But, I’m also human, so there are times I slip and make mistakes but I know Christ forgives me.
+
+28 quotes

@@ -1,0 +1,343 @@
+ - Keep your face always toward the sunshine – and shadows will fall behind you.
+ - Do I contradict myself? Very well, then, I contradict myself; I am large – I contain multitudes.
+ - Peace is always beautiful.
+ - Be curious, not judgmental.
+ - Resist much, obey little.
+ - And your very flesh shall be a great poem.
+ - The question, O me! so sad, recurring – What good amid these, O me, O life? That you are here – that life exists and identity, that the powerful play goes on, and you may contribute a verse.
+ - Do anything, but let it produce joy.
+ - What is that you express in your eyes? It seems to me more than all the print I have read in my life.
+ - We were together. I forget the rest.
+ - Oh captain my captain.
+ - I discover myself on the verge of a usual mistake.
+ - The gift is to the giver, and comes back most to him – it cannot fail.
+ - Life doesn’t give You the people you want, It gives you The people you need: To love you, To hate you, To make you, To break you, And to make you the person you Were meant to be.
+ - The powerful play goes on and you may contribute a verse.
+ - Battles are lost in the same spirit in which they are won.
+ - I believe a leaf of grass is no less than the journey work of the stars.
+ - I exist as I am, that is enough.
+ - The road to wisdom is paved with excess. The mark of a true writer is their ability to mystify the familiar and familiarize the strange.
+ - Dismiss whatever insults your soul.
+ - Afoot and lighthearted I take to the open road, healthy, free, the world before me.
+ - I am larger, better than I thought; I did not know I held so much goodness.
+ - I celebrate myself, and sing myself, And what I assume you shall assume, For every atom belonging to me as good belongs to you.
+ - I am large, I contain multitudes.
+ - Not I, nor anyone else can travel that road for you. You must travel it by yourself. It is not far. It is within reach. Perhaps you have been on it since you were born, and did not know. Perhaps it is everywhere – on water and land.
+ - Let your soul stand cool and composed before a million universes.
+ - Re examine all you have been told in school and in church Or in any book, dismiss what insults your own soul and your very flesh shall be a great poem.
+ - To have great poets, there must be great audiences.
+ - All truths wait in all things.
+ - The truth is simple. If it was complicated, everyone would understand it.
+ - I sound my barbaric yawp over the rooftops of the world.
+ - O Captain! My Captain! our fearful trip is done.
+ - This is what you should do; love the Earth and sun and the animals...
+ - I exist as I am, that is enough, If no other in the world be aware, I sit content, And if each and all be aware, I sit content.
+ - I swear to you, there are divine things more beautiful than words can tell.
+ - Nothing can happen more beautiful than death.
+ - To me, every hour of the light and dark is a miracle. Every cubic inch of space is a miracle.
+ - I celebrate myself, and sing myself.
+ - Love, that is day and night – love, that is sun and moon and stars, Love, that is crimson, sumptuous, sick with perfume, no other words but words of love, no other thought but love.
+ - Day by day and night by night we were together – all else has long been forgotten by me.
+ - Henceforth I ask not good fortune. I myself am good fortune.
+ - Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth.
+ - Failing to fetch me at first, keep encouraged. Missing me one place, search another. I stop somewhere waiting for you.
+ - Stranger, if you passing meet me and desire to speak to me, why should you not speak to me? And why should I not speak to you?
+ - Either define the moment or the moment will define you.
+ - I and this mystery, here we stand.
+ - Some people are so much sunshine to the square inch.
+ - In all people I see myself – none more, and not one a barleycorn less; And the good or bad I say of myself, I say of them.
+ - I am as bad as the worst, but, thank God, I am as good as the best.
+ - Oh, to be alive in such an age, when miracles are everywhere, and every inch of common air throbs a tremendous prophecy, of greater marvels yet to be.
+ - I am not to speak to you, I am to think of you when I sit alone or wake at night alone, I am to wait, I do not doubt I am to meet you again, I am to see to it that I do not lose you.
+ - And I will show that there is no imperfection in the present, and can be none in the future, And I will show that whatever happens to anybody it may be turned to beautiful results.
+ - The earth does not argue, Is not pathetic, has no arrangements, Does not scream, haste, persuade, threaten, promise, Makes no discriminations, has no conceivable failures, Closes nothing, refuses nothing, shuts none out.
+ - I hear America singing, the varied carols I hear.
+ - The art of art, the glory of expression, is simplicity. Nothing is better than simplicity, and the sunlight of letters is simplicity. Nothing is better than simplicity-nothing can make up for excess, or for the lack of definiteness.
+ - I do not ask the wounded person how he feels, I myself become the wounded person.
+ - O YOU whom I often and silently come where you are, that I may be with you; As I walk by your side, or sit near, or remain in the same room with you, Little you know the subtle electric fire that for your sake is playing within me.
+ - Unscrew the locks from the doors ! Unscrew the doors themselves from their jambs !
+ - I tramp a perpetual journey.
+ - All beauty comes from beautiful blood and a beautiful brain.
+ - The earth is rude, silent, incomprehensible at first; Be not discouraged – keep on – there are divine things, well envelop’d; I swear to you there are divine things more beautiful than words can tell.
+ - Me imperturbe, standing at ease in nature.
+ - We all have great things on our bucket lists like skydiving, seeing the Northern Lights etc, but what about simply falling in love? Isn’t that the most amazing thing we can do?
+ - I think I could always live with animals. The more you’re around people, the more you love animals.
+ - Simplicity is the glory of expression.
+ - A child said What is the grass? fetching it to me with full hands; How could I answer the child? I do not know what it is any more than he.
+ - Pointing to another world will never stop vice among us; shedding light over this world can alone help us.
+ - Behold I do not give lectures or a little charity, When I give I give myself.
+ - What do you suppose will satisfy the soul, except to walk free and own no superior?
+ - From this hour I ordain myself loos’d of limits and imaginary lines.
+ - TO the States or any one of them, or any city of the States, Resist much, obey little, Once unquestioning obedience, once fully enslaved, Once fully enslaved, no nation, state, city of this earth, ever after-ward resumes its liberty.
+ - When the materials are ready, the architects shall appear.
+ - Now I see that there is no such thing as love unreturn’d. The pay is certain, one way or another.
+ - And if the body were not the soul, what is the soul?
+ - There is that indescribable freshness and unconsciousness about an illiterate person that humbles and mocks the power of the noblest expressive genius.
+ - Praised be the fathomless universe, for life and joy, and for objects and knowledge curious.
+ - I give you my hand, I give you my love more precious than money, I give you myself before preaching or law; Will you give me yourself?
+ - If you done it, it ain’t bragging.
+ - If any thing is sacred, the human body is sacred.
+ - When I give, I give myself.
+ - I have no mockings or arguments; I witness and wait.
+ - Have you heard that it was good to gain the day? I also say it is good to fall, battles are lost in the same spirit in which they are won.
+ - It is only the novice in political economy who thinks it is the duty of government to make its citizens happy – government has no such office.
+ - After you have exhausted what there is in business, politics, conviviality, and so on – have found that none of these finally satisfy, or permanently wear – what remains? Nature remains.
+ - Agonies are one of my changes of garments.
+ - My ties and ballasts leave me – I travel – I sail – My elbows rest in the sea-gaps. I skirt the sierras. My palms cover continents – I am afoot with my vision.
+ - You shall no longer take things at second or third hand, not look through the eyes of the dead, nor feed on the spectres in books. You shall not look through my eyes either, nor take things from me, you shall listen to all sides and filter them from yourself.
+ - I like the scientific spirit-the holding off, the being sure but not too sure, the willingness to surrender ideas when the evidence is against them: this is ultimately fine-it always keeps the way beyond open.
+ - Whoever you are, motion and reflection are especially for you, The divine ship sails the divine sea for you.
+ - The ecstasy is so short but the forgetting is so long.
+ - Have you not learned the most in your life from those with whom you disagreed – those who saw it differently from you?
+ - Americans should know the universe itself as a road, as many roads, as roads for traveling souls.
+ - The orchestra whirls me wider than Uranus flies, It wrenches such ardors from me I did not know I possess’d them.
+ - All the past we leave behind; We debouch upon a newer, mightier world, varied world, Fresh and strong the world we seize, world of labor and the march, Pioneers! O Pioneers!
+ - The future is no more uncertain than the present.
+ - Whoever degrades another degrades me.
+ - I love doctors and hate their medicine.
+ - Whatever satisfies the soul is truth.
+ - The Past – the dark unfathomed retrospect! The teeming gulf – the sleepers and the shadows! The past! the infinite greatness of the past! For what is the present after all but a growth out of the past?
+ - The great city is that which has the greatest man or woman: if it be a few ragged huts, it is still the greatest city in the whole world.
+ - If you want me again look for me under your boot soles.
+ - I am the man, I suffered, I was there.
+ - There was a child went forth every day, And the first object he looked upon, that object he became...
+ - Oh while I live, to be the ruler of life, not a slave, to meet life as a powerful conqueror, and nothing exterior to me will ever take command of me.
+ - Surely whoever speaks to me in the right voice, him or her shall I follow.
+ - We convince by our presence.
+ - I am the poet of the woman the same as the man, And I say it is as great to be a woman as to be a man, And I say there is nothing greater than the mother of a man.
+ - The United States themselves are essentially the greatest poem.
+ - My words itch at your ears till you understand them.
+ - There is no week nor day nor hour when tyranny may not enter upon this country, if the people lose their roughness and spirit of defiance.
+ - These are the days that must happen to you.
+ - To drive free, to love free, to court destruction with taunts, to feed the remainder of life with one hour of fullness and freedom – one brief hour of madness and joy.
+ - I accept reality and dare not question it.
+ - God is a mean-spirited, pugnacious bully bent on revenge against His children for failing to live up to his impossible standards.
+ - Give me solitude, give me Nature, give me again O Nature your primal sanities!
+ - O public road, I say back I am not afraid to leave you, yet I love you, you express me better than I can express myself.
+ - Here is not merely a nation but a teeming nation of nations.
+ - Stop this day and night with me and you shall possess the origin of all poems.
+ - Are you the new person drawn toward me? To begin with, take warning, I am surely far different from what you suppose.
+ - Long enough have you dream’d contemptible dreams, Now I wash the gum from your eyes, You must habit yourself to the dazzle of the light and of every moment of your life.
+ - Books are to be called for and supplied on the assumption that the process of reading is not a half-sleep, but in the highest sense an exercise, a gymnastic struggle; that the reader is to do something for himself.
+ - Every moment of light and dark is a miracle.
+ - Give me the splendid, silent sun with all his beams full-dazzling.
+ - The real war will never get in the books.
+ - There was never any more inception than there is now, Nor any more youth or age than there is now; And will never be any more perfection than there is now, Nor any more heaven or hell than there is now.
+ - For we cannot tarry here, We must march my darlings, we must bear the brunt of danger, We, the youthful sinewy races, all the rest on us depend, Pioneers! O pioneers!
+ - I no doubt deserved my enemies, but I don’t believe I deserved my friends.
+ - And there is no trade or employment but the young man following it may become a hero.
+ - Camerado! This is no book; who touches this touches a man.
+ - Shut not your doors to me proud libraries.
+ - Comrades mine and I in the midst, and their memory ever to keep for the dead I loved so well.
+ - I keep thinking about you every few minutes all day.
+ - Each of us inevitable; Each of us limitless-each of us with his or her right upon the earth.
+ - The earth, that is sufficient, I do not want the constellations any nearer, I know they are very well where they are, I know they suffice for those who belong to them.
+ - I bequeath myself to the dirt to grow from the grass I love If you want me again look for me under your boot-soles. You will hardly know who I am or what I mean But I shall be good health to you nonetheless And filter and fibre your blood.
+ - To me the sea is a continual miracle; The fishes that swim – the rocks – the motion of the waves – the ships, with men in them, what stranger miracles are there?
+ - The press of my foot to the earth springs a hundred affections.
+ - The wild gander leads his flock through the cool night, Ya-honk! he says, and sounds it down to me like an invitation: The pert may suppose it meaningless, but I listen closer, I find its purpose and place up there toward the November sky.
+ - Nothing endures but personal qualities.
+ - Now understand me well. It is provided in the essence of things that from any fruition of success, no matter what, shall come forth something to make a greater struggle necessary.
+ - Over all the sky – the sky! Far, far out of reach, studded with eternal stars.
+ - And as to me, I know nothing else but miracles.
+ - I say to mankind, Be not curious about God. For I, who am curious about each, am not curious about God – I hear and behold God in every object, yet understand God not in the least.
+ - I am not contain’d between my hat and boots.
+ - I will write the evangel-poem of comrades and of love.
+ - I sing the body that is electric! I celebrate the Self yet to be unveiled!
+ - The beauty of independence, departure, actions that rely on themselves.
+ - The moon gives you light, and the bugles and the drums give you music, and my heart, O my soldiers, my veterans, my heart gives you love.
+ - Touch me, touch the palm of your hand to my body as I pass, Be not afraid of my body.
+ - I hate commas in the wrong places.
+ - O lands! O all so dear to me – what you are, I become part of that, whatever it is.
+ - I have learned that to be with those I like is enough.
+ - Strong and content I travel the open road.
+ - I announce the great individual, fluid as Nature, chaste, affectionate, compassionate, fully armed; I announce a life that shall be copious, vehement, spiritual, bold, And I announce an end that shall lightly and joyfully meet its translation.
+ - I do not think seventy years is the time of a man or woman, Nor that seventy millions of years is the time of a man or woman, Nor that years will ever stop the existence of me, or any one else.
+ - A morning-glory at my window satisfies me more than the metaphysics of books.
+ - Now I will do nothing but listen to accrue what I hear into this song. To let sounds contribute toward it. I hear the sound I love. The sound of the human voice. I hear all sounds running together.
+ - Has anyone supposed it lucky to be born? I hasten to inform him or her that it is just as lucky to die, and I know it.
+ - Surrounded, detached, in measureless oceans of space.
+ - Do you see O my brothers and sisters? It is not chaos or death, it is form, union, plan, it is eternal life, it is happiness.
+ - Dazzling and tremendous how quick the sun-rise would kill me, if I could not now and always send sun-rise out of me.
+ - I loafe and invite my soul.
+ - Everybody is writing, writing, writing – worst of all, writing poetry. It’d be better if the whole tribe of the scribblers – every damned one of us – were sent off somewhere with tool chests to do some honest work.
+ - O the joy of my spirit – it is uncaged – it darts like lightning! It is not enough to have this globe or a certain time, I will have thousands of globes and all time.
+ - Beautiful that war and all its deeds of carnage, must in time be utterly lost;.
+ - Whoever degrades another degrades me, And whatever is done or said returns at last to me.
+ - Camden was originally an accident, but I shall never be sorry I was left over in Camden. It has brought me blessed returns.
+ - All music is is what awakes from you when you are reminded by the instruments.
+ - I will sleep no more but arise, You oceans that have been calm within me! how I feel you, fathomless, stirring, preparing unprecedented waves and storms.
+ - So here I sit in the early candle-light of old age-I and my book-casting backward glances over out travel’d road.
+ - And whoever walks a furlong without sympathy walks to his own funeral drest in his shroud.
+ - I say that democracy can never prove itself beyond cavil, until it founds and luxuriantly grows its own forms of art, poems, schools, theology, displacing all that exists, or that has been produced anywhere in the past, under opposite influences.
+ - O the joy of my spirit – it is uncaged – it darts like lightning!
+ - To die is different from what any one supposed, and luckier.
+ - Where the earth is, we are.
+ - Sure as the most certain sure, plumb in the uprights, well entretied, braced in the beams, Stout as a horse, affectionate, haughty, electrical, I and this mystery here we stand.
+ - I hear and behold God in every object, yet understand God not in the least.
+ - Other lands have their vitality in a few, a class, but we have it in the bulk of our people.
+ - Freedom – to walk free and own no superior.
+ - Come lovely and soothing death, Undulate round the world, serenely arriving, arriving, In the day, in the night, to all, to each, Sooner or later, delicate death.
+ - Logic and sermons never convince, The damp of the night drives deeper into my soul.
+ - In the confusion we stay with each other, happy to be together, speaking without uttering a single word.
+ - The smallest sprout shows there is really no death. And if ever there was it led forward life, and does not wait at the end to arrest it.
+ - What stays with you latest and deepest? of curious panics, of hard-fought engagements or sieges tremendous what deepest remains?
+ - You will hardly know who I am or what I mean.
+ - The President eats dirt and excrement for his daily meals, likes it and tries to force it on The States.
+ - The whole theory of the universe is directed unerringly to one single individual.
+ - That the hands of the sisters Death and Night incessantly softly wash again and ever again, this soiled world.
+ - I know I am deathless. No doubt I have died myself ten thousand times before. I laugh at what you call dissolution, and I know the amplitude of time.
+ - Sail Forth- Steer for the deep waters only. Reckless O soul, exploring. I with thee and thou with me. For we are bound where mariner has not yet dared go. And we will risk the ship, ourselves, and all.
+ - The strongest and sweetest song remains to be sung.
+ - The past, the future, majesty, love – if they are vacant of you, you are vacant of them.
+ - Manhattan crowds, with their turbulent musical chorus! Manhattan faces and eyes forever for me.
+ - All the things of the universe are perfect miracles, each as profound as any.
+ - All faults may be forgiven of him who has perfect candor.
+ - I accept Time absolutely. It alone is without flaw, It alone rounds and completes all, That mystic baffling wonder.
+ - I dote on myself. There is a lot of me and all so luscious.
+ - I have heard what the talkers were talking, the talk of the beginning and the end, But I do not talk of the beginning or the end.
+ - The sum of all known value and respect, I add up in you, whoever you are.
+ - Day full-blown and splendid-day of the immense sun, action, ambition, laughter, The Night follows close with millions of suns, and sleep and restoring darkness.
+ - I will go to the bank by the wood and become undisguised and naked.
+ - Thought Of equality- as if it harm’d me, giving others the same chances and rights as myself- as if it were not indispensable to my own rights that others possess the same.
+ - All is procession; the universe is a procession with measured and beautiful motion.
+ - I will You, in all, Myself, with promise to never desert you, To which I sign my name.
+ - Forsake all inhibitions, Pursue thy dreams.
+ - There is no place like it, no place with an atom of its glory, pride, and exultancy. It lays its hand upon a man’s bowels; he grows drunk with ecstasy; he grows young and full of glory, he feels that he can never die.
+ - I am an acme of things accomplished, and I am an encloser of things to be.
+ - When one reaches out to help another he touches the face of God.
+ - Loafe with me on the grass – loose the stop from your throat; Not words, not music or rhyme I want – not custom or lecture, not even the best; Only the lull I like, the hum of your valved voice.
+ - Whoever is not in his coffin and the dark grave, let him know he has enough.
+ - From this hour, freedom! Going where I like, my own master...
+ - Give me odorous at sunrise a garden of beautiful flowers where I can walk undisturbed.
+ - O to be self-balanced for contingencies, to confront night, storms, hunger, ridicule, accidents, rebuffs, as the trees and animals do.
+ - Old age: The estuary that enlarges and spreads itself grandly as it pours into the Great Sea.
+ - Charity and personal force are the only investments worth anything.
+ - Walt Whitman, a kosmos, of Manhattan the son, Turbulent, fleshy, sensual, eating, drinking and breeding, No sentimentalist, no stander above men and women or apart from them, No more modest than immodest.
+ - I think I could turn and live with animals, they are so placid and self-contained, I stand and look at them long and long.
+ - Be not dishearten’d – Affection shall solve the problems of Freedom yet; Those who love each other shall become invincible.
+ - Through the ample open door of the peaceful country barn, A sun-lit pasture field, with cattle and horses feeding; And haze, and vista, and the far horizon, fading away.
+ - Something there is more immortal even than the stars.
+ - I speak the password primeval; I give the sign of democracy.
+ - He most honors my style who learns under it to destroy the teacher.
+ - Future years will never know the seething hell and the black infernal background, the countless minor scenes and interiors of the secession war; and it is best they should not. The real war will never get in the books.
+ - And a mouse is miracle enough to stagger sextillions of infidels.
+ - And I or you pocketless of a dime, may purchase the pick of the earth.
+ - I henceforth tread the world, chaste, temperate, an early riser, a steady grower.
+ - You road I enter upon and look around, I believe you are not all that is here, I believe much unseen is also here.
+ - I cannot be awake for nothing looks to me as it did before, Or else I am awake for the first time, and all before has been a mean sleep.
+ - O America! Because you build for mankind I build for you.
+ - The words of my book nothing, the drift of it everything.
+ - I swear I think there is nothing but immortality!
+ - Only themselves understand themselves and the like of themselves, As souls only understand souls.
+ - I open my scuttle at night and see the far-sprinkled systems, All all I see multiplied as high as I can cipher edge but the rim of the farther systems. Wider and wider they spread, expanding, always expanding, Outward and outward and forever outward.
+ - Great is the faith of the flush of knowledge and of the investigation of the depths of qualities and things.
+ - I sing the body electric.
+ - Long have you timidly waded Holding a plank by the shore, Now I will you to be a bold swimmer, To jump off in the midst of the sea, Rise again, nod to me, shout, And laughingly dash with your hair.
+ - We arrange our lives-even the best and boldest men and women that exist, just as much as the most limited-with reference to what society conventionally rules and makes right.
+ - Where are your combing seas, your blue water, your rollers, your breakers, your whales, or your waterspouts, and your endless motion, in this bit of a forest, child?
+ - And as to you Death, and you bitter hug of mortality, it is idle to try to alarm me.
+ - This face is a dog’s snout sniffing for garbage, snakes nest in that mouth, I hear the sibilant threat.
+ - Viewed freely, the English language is the accretion and growth of every dialect, race, and range of time, and is both the free and compacted composition of all.
+ - I too am not a bit tamed, I too am untranslatable.
+ - Youth, large, lusty, loving – Youth, full of grace, force, fascination. Do you know that Old Age may come after you with equal grace, force, fascination?
+ - O magnet-South! O glistening perfumed South! My South! O quick mettle, rich blood, impulse and love! Good and evil! O all dear to me!
+ - Have you reckon’d a thousand acres much? have you reckon’d the earth much? Have you practis’d so long to learn to read? Have you felt so proud to get at the meaning of poems?
+ - Seeing, hearing, feeling, are miracles, and each part and tag of me is a miracle.
+ - Dearest comrades, all is over and long gone, But love is not over...
+ - A woman waits for me, she contains all, nothing is lacking, Yet all were lacking if sex were lacking, or if the moisture of the right man were lacking.
+ - I wear my hat as I please, indoors or out.
+ - I will not descend among professors and capitalists.
+ - The best writing has no lace on its sleeves.
+ - All architecture is what you do to it when you look upon it;.
+ - Every hour of every day is an unspeakably perfect miracle.
+ - Here the frailest leaves of me and yet my strongest lasting, Here I shade and hide my thoughts, I myself do not expose them, And yet they expose me more than all my other poems.
+ - A man is a great thing upon the earth and through eternity; but every jot of the greatness of man is unfolded out of woman.
+ - I find no sweeter fat than sticks to my own bones.
+ - The beautiful uncut hair of graves.
+ - There is no flaw or vacuum in the amount of the truth – but all is truth without exception; And henceforth I will go celebrate any thing I see or am, And sing and laugh and deny nothing.
+ - Clear and sweet is my soul, clear and sweet is all that is not my soul.
+ - I say the whole earth and all the stars in the sky are for religion’s sake.
+ - An individual is as superb as a nation when he has the qualities which make a superb nation.
+ - Speech is the twin of my vision, it is unequal to measure itself, it provokes me forever, it says sarcastically, Walt you contain enough, why don’t you let it out then?
+ - The art of art, the glory of expression and the sunshine of the light of letters, is simplicity.
+ - The jour printer with gray head and gaunt jaws works at his case, He turns his quid of tobacco, while his eyes blur with the manuscript.
+ - Give me juicy autumnal fruit, ripe and red from the orchard.
+ - Thunder on! Stride on! Democracy. Strike with vengeful stroke!
+ - You must not know too much or be too precise or scientific about birds and trees and flowers and watercraft; a certain free-margin, or even vagueness – ignorance, credulity – helps your enjoyment of these things.
+ - The shallow consider liberty a release from all law, from every constraint. The wise man sees in it, on the contrary, the potent Law of Laws.
+ - In the faces of men and women, I see God.
+ - Of all mankind the great poet is the equable man. Not in him but off from him things are grotesque or eccentric or fail of their sanity.
+ - I know nothing grander, better exercise, better digestion, more positive proof of the past, the triumphant result of faith in human kind, than a well-contested American national election.
+ - The smallest sprout shows there is really no death.
+ - Wisdom is not finally tested by the schools, Wisdom cannot be pass’d from one having it to another not having it, Wisdom is of the soul, is not susceptible of proof, is its own proof.
+ - The Americans, like the English, probably make love worse than any other race.
+ - Have you learned the lessons only of those who admired you, and were tender with you, and stood aside for you? Have you not learned great lessons from those who braced themselves against you, and disputed passage with you?
+ - I see great things in baseball. It’s our game – the American game.
+ - The poet judges not as a judge judges but as the sun falling around a helpless thing.
+ - There is no object so soft but it makes a hub for the wheeled universe.
+ - The most affluent man is he that confronts all the shows he sees by equivalents out of the stronger wealth of himself.
+ - How beggarly appear arguments before a defiant deed!
+ - A writer can do nothing for men more necessary, satisfying, than just simply to reveal to them the infinite possibility of their own souls.
+ - I heard what was said of the universe, heard it and heard it of several thousand years; it is middling well as far as it goes – but is that all?
+ - What a devil art thou, Poverty! How many desires – how many aspirations after goodness and truth – how many noble thoughts, loving wishes toward our fellows, beautiful imaginings thou hast crushed under thy heel, without remorse or pause!
+ - A woman waits for me, she contains all, nothing lacking.
+ - Copulation is no more foul to me than death is.
+ - Afoot and light-hearted I take to the open road. Healthy, free, the world before me. The long brown path before me leading me wherever I choose. Henceforth, I ask not good fortune, I myself am good fortune. Henceforth, I whimper no more, postpone no more, need nothing.
+ - Are you the new person drawn toward me?
+ - Give me such shows – give me the streets of Manhattan!
+ - The proof of a poet is that his country absorbs him as affectionately as he has absorbed it.
+ - But where is what I started for so long ago? And why is it yet unfound?
+ - There can be no theory of any account unless it corroborate with the theory of the earth.
+ - I have sometimes thought that the laws ought not to punish those actions of evil which are committed when the senses are steeped in intoxication.
+ - Do you guess I have some intricate purpose? Well I have, for the Fourth-month showers have, and the mica on the side of a rock has.
+ - The eager and often inconsiderate appeals of reformers and revolutionists are indispensable to counterbalance the inertia and fossilism marking so large a part of human institutions.
+ - Why are there trees I never walk under but large and melodious thoughts descend upon me?
+ - O amazement of things-even the least particle!
+ - To speak in literature with the perfect rectitude and insouciance of the movements of animals and the unimpeachable of the sentiment of trees in the woods and grass by the roadside is the flawless triumph of art.
+ - Many a good man I have seen go under.
+ - The dirtiest book of all is the expurgated book.
+ - Here or henceforward it is all the same to me, I accept Time absolutely.
+ - And I will show of male and female that either is but the equal of the other.
+ - My spirit has pass’d in compassion and determination around the whole earth. I have look’d for equals and lovers an found them ready for me in all lands, I think some divine rapport has equalized me with them.
+ - For all these new and evolutionary facts, meanings, purposes, new poetic messages, new forms and expressions, are inevitable.
+ - O the joy of the strong-brawn’d fighter, towering in the arena in perfect condition, conscious of power, thirsting to meet his opponent.
+ - Liberty is to be subserved, whatever occurs.
+ - In this broad earth of ours, Amid the measureless grossness and the slag, Enclosed and safe within its central heart, Nestles the seed of perfection.
+ - O to speed where there is space enough and air enough at last!
+ - A great city is that which has the greatest men and women.
+ - But the people are ungrammatical, untidy, and their sins gaunt and ill-bred.
+ - Produce great men, the rest follows.
+ - Under the specious pretext of effecting ‘the happiness of the whole community,’ nearly all the wrongs and intrusions of government has been carried through.
+ - To the real artist in humanity, what are called bad manners are often the most picturesque and significant of all.
+ - Judging from the main portions of the history of the world, so far, justice is always in jeopardy.
+ - I refuse putting from me the best that I am.
+ - At times it has been doubtful to me if Emerson really knows or feels what Poetry is at its highest, as in the Bible, for instance, or Homer or Shakspeare. I see he covertly or plainly likes best superb verbal polish, or something old or odd.
+ - Most works are most beautiful without ornament.
+ - I think of few heroic actions, which cannot be traced to the artistical impulse. He who does great deeds, does them from his innate sensitiveness to moral beauty.
+ - What beauty there is in words; what a lurking curious charm in the sound some words.
+ - When I undertake to tell the best, I find I cannot. My tongue is ineffectual on its pivots, My breath will not be obedient to its organs, I become a dumb man.
+ - The genius of the United States is not best or most in its executives or legislatures, nor in its ambassadors or authors or colleges, or churches, or parlors, nor even in its newspapers or inventors, but always most in the common people.
+ - I say you shall yet find the friend you were looking for.
+ - We consider bibles and religions divine I do not say they are not divine. I say they have all grown out of you, and may grow out of you still. It is not they who give the life, it is you who give the life.
+ - Man is about the same, in the main, whether with despotism, or whether with freedom.
+ - It is a beautiful truth that all men contain something of the artist in them. And perhaps it is the case that the greatest artists live and die, the world and themselves alike ignorant what they possess.
+ - A man can be a hero in any profession.
+ - I am for those who believe in loose delights, I share the midnight orgies of young men, I dance with the dancers and drink with the drinkers.
+ - Once fully enslaved, no nation, state, city of this earth ever afterward resumes its liberty.
+ - Let that which stood in front go behind, let that which was behind advance to the front, let bigots, fools, unclean persons, offer new propositions, let the old propositions be postponed.
+ - By writing at the instant, the very heartbeat of life is caught.
+ - Why are there men and women that while they are nigh me the sunlight expands my blood? Why when they leave me do my pennants of joy sink flat and lank?
+ - I see that I am to wait for what will be exhibited by death.
+ - People who serve you without love get even behind your back.
+ - You want to know a sure way to lose money? Buy what’s popular and don’t know what you are investing in.
+ - I meet new Walt Whitmans everyday. There are a dozen of them afloat. I don’t know which Walt Whitman I am.
+ - I say no body of men are fit to make Presidents, judges and generals, unless they themselves supply the best specimens of the same; and that supplying one or two such specimens illuminates the whole body for a thousand years.
+ - Was it doubted that those who corrupt their own bodies conceal themselves?
+ - In nothing is there more evolution than the American mind.
+ - As soon as histories are properly told there is no more need of romances.
+ - I dance with the dancers.
+ - I know perfectly well my own egotism.
+ - Those who love each other shall become invincible.
+
+341 quotes

@@ -1,0 +1,38 @@
+ - Be open. And then the truth follows.
+ - The love that you search for everywhere is already present within you. It may be evoked by any number of people or events. But finally, you must realize you are this love. The source of all love is within you.
+ - Love has nothing to do with another person. Love is Truth. Love is Beauty. Love is Self. To know yourself, to surrender to the truth of yourself, is to surrender to love.
+ - You cannot be happy unless you are serving the truth of your being, however that service looks.
+ - I am inviting you to discover that deeper than any pattern, deeper than personality, deeper than success or failure, deeper than worth or worthlessness, there is a radiance that is undeniable, always present – the truth of who you are.
+ - In a sacred moment, when attention is pulled inward, rather than continuing in its usual outward direction, silence is realized.
+ - You have the freedom, ability and authority to love your life. Just be you, then wait.
+ - If you’re laughing, you’re healing.
+ - When you are willing to stop looking for something in thought, you find everything in silence.
+ - Be naked in the splendor of the truth of who you are.
+ - Finally all that is trustworthy is this immeasurable silent awareness that is the truth of who you are, that is love.
+ - The choiceless truth of who you are is revealed to be permanently here permeating everything. Not a thing and not separate from anything.
+ - True forgiveness and love arise naturally, effortlessly, from the silence of the heart broken all the way open.
+ - Under the obsessive thoughts and plans, under the emotions, positive and negative, there is an ocean of peace.
+ - To be truly happy you must recognize who you are with nothing.
+ - Need nothing and then see what happens.
+ - You cannot truly express yourself until you first discover who you are.
+ - All of the searching, all of the struggling, all of the efforting to find your true self is naturally revealed in open, relaxed simplicity.
+ - There is nothing more potent than thought. Deed follows word and word follows thought. And where the thought is mighty and pure, the result is mighty and pure.
+ - Fulfillment has nothing to do with circumstances.
+ - The truth is you really are nothing, but this nothing is full, whole, infinite in everything and everywhere. This nothing is conciousness itself. It is already whole, complete and fulfilled. This is the amazing irony.
+ - There’s great release, really, in not seeing into the future.
+ - I could see that everything I had identified as really me, was not really me, but was just a pattern of strategies to avoid some kind of abyss or emptiness.
+ - Safety is knowing that when this particular life form is finished, what it has served remains...
+ - Pure no-thing-ness is conscious intelligence.
+ - Fear is about survival. When you drop under that and experience the fear without trying to change it, just letting it be, then it becomes still. When you open your heart to fear, rather than trying to fight it or deny it or even overcome it, then you find it is just energy.
+ - Trust yourself. At the root, at the core, there is pure sanity, pure openness. Don’t trust what you have been taught, what you think, what you believe, what you hope. Deeper than that, trust the silence of your being.
+ - Revelation is beyond doctrines and belief systems. It is beyond everything imaginable. It is beyond because it is so close. Revelation is more direct than every word, for it arises out of the truth of who you are. This truth is all you have ever longed for, all you have ever needed.
+ - Self is not liberated. It was never bound. What gets liberated are the demons as well as gods of your mind. Set them free. You are sick of playing with the game. Be willing to not play the game. This takes huge resolve.
+ - My responsibility is simply being who I am and not buying into any projection as real. No projection is finally real, but projection does play a very important role.
+ - Who you are, in truth, who everyone is, is whole and perfect and beautiful. And if that can be recognized, then it is possible that self-torture can stop!
+ - What ever we embrace eventually reveals the place we have been seeking.
+ - You are here. However you imagine yourself to be, you are here. Imagine yourself as a body, you are here. Imagine yourself as God, you are here. Imagine yourself as worthless, superior, nothing at all, you are still here. My suggestion is that you stop all imagining, here.
+ - But somehow in identifying myself as the healer, there was still a seed of both self-righteousness and defense from a kind of emptiness.
+ - Meditating is not a matter of saying i am going to meditate. It is, just for a moment retreating from the need to do anything and instead just be.
+ - If you are willing to take an instant to withdraw attention from whatever your internal dialogue is, to withdraw energy from whatever the latest point of view about your suffering is, it is immediately obvious what is here: the fullness, the richness and the love of oneself as conscious life.
+
+36 quotes

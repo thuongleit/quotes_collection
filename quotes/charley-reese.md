@@ -1,0 +1,34 @@
+ - Credibility, like virginity, can only be lost once and never recovered.
+ - Politicians are the only people in the world who create problems and then campaign against them.
+ - Capitalism is like math. It is amoral. It is good at producing wealth; it’s bad at distributing wealth. Unless it operates within a moral framework it will produce an unjust society.
+ - Don’t live beyond your means. Don’t buy more than you can pay for. Don’t expect to get rich quick. And don’t confuse salesmen for friends or advisers.
+ - Americans, both politicians and voters, may have become corrupted by big government beyond redemption. A virtuous government requires a virtuous people. A frugal government requires a self-reliant people. A free country requires people who value liberty more than money.
+ - The truth is that neither British nor American imperialism was or is idealistic. It has always been driven by economic or strategic interests.
+ - Reason and truth have rarely prevailed against demagoguery when the audience is too ignorant to tell the difference.
+ - Experience to a politician is like experience to a prostitute – not much to recommend them.
+ - If malice or envy were tangible and had a shape, it would be the shape of a boomerang.
+ - If you believe in the right to life, then you must believe in the right to have the means to defend that life.
+ - Some years ago an excellent professor of economics told his class in his gravelly voice, ‘If you pay me $50,000 a year to solve a problem, I damned sure ain’t going to solve it.’
+ - A nation dies culturally and spiritually first. Its money and its army are the last to go, but go they do once the light goes out in the nation’s soul.
+ - People who believe in gun control are ignorant, superstitious or stupid.
+ - If we could manage our own finances the way the Congress does the nation’s, we’d all be living in high cotton and eating high on the hog.
+ - The new laws passed by Congress in the name of fighting terrorism pose a greater danger to the civil liberties of American citizens than to the operations of terrorists. Powers once assumed are never relinquished, just as bureaucracies, once created, never die.
+ - Crime is a human behavior problem, not a mechanical problem. Furthermore, if firearms were not very useful for self-defense, then police wouldn’t carry them. In a free country, if the government can go armed, so should the citizens, if they so choose.
+ - When power is for sale, then government power should be severely limited. When power is abused, then the less power the better.
+ - There’s no dishonor in being forced by a superior power into slavery, but it is an eternal disgrace to voluntarily surrender one’s liberty for a filthy bowl of oatmeal and promise of security by liars.
+ - Congress seems to want to cure every ill known to man except unconstitutional government and high taxes.
+ - Powers once assumed are never relinquished, just as bureaucracies, once created, never die.
+ - Disregarding the value of religion and believing in egalitarianism are two misconceptions that cause America much trouble today.
+ - Here’s your enemy for this week, the government says. And some gullible Americans click their heels and salute – often without knowing who or even where the enemy of the week is.
+ - Some lawyers and judges may have forgotten it, but the purpose of the court system is to produce justice, not slavish obedience to the law.
+ - I expect to see trade wars, foreign policy disasters, a few race riots, a decrease in personal liberty, higher taxes, higher inflation and probably, economic collapse. The silver lining is, secession will probably become more feasible.
+ - American tyranny has come gradually, like a slow rising river. Each of us does not realize the danger until the water comes to our door. Until then, it is merely someone elses problem and a problem that we fool ourselves into thinking won’t reach us.
+ - Washington, of course, aside from being one of the most mismanaged, crime-ridden cities on the planet, is a place where 535 federal legislators and about 38,000 lobbyists work at confiscating and redistributing the incomes of the American people.
+ - It is a foolish man who believes that the status quo can be maintained indefinitely.
+ - Government is inherently incompetent, and no matter what task it is assigned, it will do it in the most expensive and inefficient way possible.
+ - Americans who value freedom had better be more concerned about the gun control crowd than the criminals. The criminals want your money. The Neo-Totalitarians want your freedom.
+ - A government that intended to protect the liberty of the people would not disarm them. A government planning the opposite most certainly and logically would disarm them. And so it has been in this century. Check out the history of Germany, the Soviet Union, Cuba, China and Cambodia.
+ - Gun-control has always been an elitist method of controlling the common...
+ - It is naturally only a coincidence that all too often, American foreign-policy objectives dovetail nicely with the economic objectives of multinational corporations.
+
+32 quotes

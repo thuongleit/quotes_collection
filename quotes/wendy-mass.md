@@ -1,0 +1,36 @@
+ - Be kind, for everyone you meet is fighting a battle you know nothing about.
+ - If nothing ever changed, there would be no such things as butterflies.
+ - They say the eyes are the window to the soul.
+ - You never know, life is short but it’s wide.
+ - The trick is that as long as you know who you are and what makes you happy, it doesn’t matter how others see you.
+ - I’m going to tell you a secret. Our lives are shaped by the future, not by the past. Once you decide how you want your life to be, all you need to do is live into that future.
+ - I’ve learned that everyone can do their part to repair the world.
+ - Life is short, have dessert first.
+ - Maybe some things aren’t meant to be known. maybe there just meant to be accepted.
+ - The sidelines may be safer but life is played on the field.
+ - Just as I suspected, my room does look different, post-eclipse. It looks smalled, like it can’t contain me anymore. After all, I’ve got a whole new world to see.
+ - When people see you’re happy doing what you’re doing, it sort of takes the power away from them to tease you about it.
+ - I blend in the backgroud. when I arive for lunch my friends are surprised i’m not already there.
+ - I am not plain, or average or – God forbid – vanilla. I am peanut butter rocky road with multicolored sprinkles, hot fudge and a cherry on top.
+ - My sweat smells like peanut-butter.
+ - Life gives meaning to life. The answer to the meaning of life is hidden right there inside the question.
+ - I’ve learned that if you wait long enough, you might get a second chance at something you gave up on. And sometimes you’ll be the one to give the second chance to someone else.
+ - Nothing nice you ever do for anyone is for no reason.
+ - Everyone thinks I named my cat Mango because of his orange eyes, but that’s not the case. I named him Mango because the sounds of his purrs and his wheezes and his meows are all various shades of yellow-orange.
+ - I’m going to be so normal that when people look up normal in the dictionary, my name will be there.
+ - It’s not an old book, or a treasure map. Nope. Staring up at me was a pile of rocks.
+ - I blame my dad for my sweet tooth. His motto was ‘Life is short; eat dessert first.’ How can I argue with that?
+ - The people on the train with me don’t know it, but in my head I’m dancing.
+ - The thing about leaving something behind for the last time is that you rarely realize you’re doing it.
+ - A wise man once remarked that we can count how many seeds are in the apple, but not how many apples are in the seed.
+ - When I was your age I knew nothing about the world or my place in it. I figured I’d be someone’s wife, then someone’s mother. It never occurred to me to be someone myself.
+ - If everyone waited to do something good until they had purely unselfish motivations, no good would ever get done in the world. The point is to do it anyway.
+ - After all, they’d be busy for a while, they were Candymakers now, and they had a whole lotta candy to make.
+ - Sometimes the best things look the strangest.
+ - I bet if you go through the rest of your life telling yourself, “I’m sparkling,” you’ll have a whole different energy and experience.
+ - I had been in the ditch for 2 and a half min. I wondered if my friends missed me.
+ - My arms flew up of thier own accord knoking my bag down. I grabbed hold of the desk to keep myself from falling down.
+ - Its a very good book and i wish i read it first than anyone else!!!!
+ - I’ve learned that almost anyone will help if you ask for it.
+
+34 quotes

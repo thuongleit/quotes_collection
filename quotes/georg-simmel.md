@@ -1,0 +1,29 @@
+ - Gratitude is the moral memory of mankind.
+ - The deepest problems of modern life derive from the claim of the individual to preserve the autonomy and individuality of his existence in the face of overwhelming social forces, of historical heritage, of external culture, and of the technique of life.
+ - The metropolis has always been the seat of the money economy.
+ - Secrecy involves a tension which, at the moment of revelation, finds its release.
+ - For, to be a stranger is naturally a very positive relation; it is a specific form of interaction.
+ - Man’s nature, originally good and common to all, should develop unhampered.
+ - Judging from the ugly and repugnant things that are sometimes in vogue, it would seem as though fashion were desirous of exhibiting its power by getting us to adopt the most atrocious things for its sake alone.
+ - The psychological basis of the metropolitan type of individuality consists in the intensification of nervous stimulation which results from the swift and uninterrupted change of outer and inner stimuli.
+ - In the latter case life rests upon a thousand presuppositions which the individual can never trace back to their origins, and verify; but which he must accept upon faith and belief.
+ - Every superior personality, and every superior performance, has, for the average of mankind, something mysterious.
+ - Secrecy is thus, so to speak, a transition stadium between being and not-being.
+ - Every relationship between two individuals or two groups will be characterized by the ratio of secrecy that is involved in it.
+ - Thus, the technique of metropolitan life is unimaginable without the most punctual integration of all activities and mutual relations into a stable and impersonal time schedule.
+ - Music and love are the only accomplishments of humanity which do not, in an absolute sense, have to be called attempts with unsuitable means.
+ - The individual has become a mere cog in an enormous organization of things and powers which tear from his hands all progress, spirituality, and value in order to transform them from their subjective form into the form of a purely objective life.
+ - Modern culture is constantly growing more objective. Its tissues grow more and more out of impersonal energies, and absorb less and less the subjective entirety of the individual.
+ - For the division of labor demands from the individual an ever more one-sided accomplishment, and the greatest advance in a one-sided pursuit only too frequently means dearth to the personality of the individual.
+ - The intellectually sophisticated person is indifferent to all genuine individuality, because relationships and reactions result from it which cannot be exhausted with logical operations.
+ - Secrecy sets barriers between men, but at the same time offers the seductive temptation to break through the barriers by gossip or confession.
+ - The first internal relation that is essential to a secret society is the reciprocal confidence of its members.
+ - On the one hand, life is made infinitely easy for the personality in that stimulations, interests, uses of time and consciousness are offered to it from all sides. They carry the person as if in a stream, and one needs hardly to swim for oneself.
+ - In order to accommodate to change and to the contrast of phenomena, the intellect does not require any shocks and inner upheavals; it is only through such upheavals that the more conservative mind could accommodate to the metropolitan rhythm of events.
+ - Cities are, first of all, seats of the highest economic division of labor.
+ - Every relationship between persons causes a picture of each to take form in the mind of the other, and this picture evidently is in reciprocal relationship with that personal relationship.
+ - In the immediate as well as the symbolic sense, in the physical as well as the intellectual sense, we are at any moment those who separate the connected, or connect the separate.
+ - Discretion is nothing other than the sense of justice with respect to the sphere of the intimate contents of life.
+ - He is educated who knows how to find out what he doesn’t know.
+
+27 quotes

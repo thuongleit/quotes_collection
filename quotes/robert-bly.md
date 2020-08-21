@@ -1,0 +1,48 @@
+ - To be wild is not to be crazy or psychotic. True wildness is a love of nature, a delight in silence, a voice free to say spontaneous things, and an exuberant curiosity in the face of the unknown.
+ - My life failed on the very day I was born.
+ - We make the path by walking.
+ - Every part of our personality that we do not love will become hostile to us.
+ - I am proud only of those days that pass in undivided tenderness.
+ - Be careful how quickly you give away your fire.
+ - There are years from my childhood that I cannot remember and I cannot forget.
+ - Grief is the doorway to a man’s feelings.
+ - Every modern male has, lying at the bottom of his psyche, a large, primitive being covered with hair down to his feet. Making contact with this Wild Man is the step the Eighties male or the Nineties male has yet to take. That bucketing-out process has yet to begin in our contemporary culture.
+ - I have spent many years trying to recover a common language, one that can cross the distance between people.
+ - Two birds fly past. They are needed somewhere.
+ - The beginning of love is a horror of emptiness.
+ - It’s all right if you grow your wings on the way down.
+ - Every noon as the clock hands arrive at twelve, I want to tie the two arms together, And walk out of the bank carrying time in bags.
+ - A lazy part of us is like a tumbleweed. It doesn’t move on its own. Sometimes it takes A lot of Depression to get tumbleweeds moving.
+ - I knew this friendship with myself couldn’t last forever.
+ - I felt a longing to compose a radical or root poem that would speak to what has its back turned to me.
+ - A person who discreetly farts in an elevator is not a divine being, and a man needs to know this.
+ - We spend our life until we’re twenty deciding what parts of ourself to put into the bag, and we spend the rest of our lives trying to get them out again.
+ - The body weeps the tears the eyes never shed.
+ - Tragedies are about the depths that call up to certain men and insist that they descend.
+ - As the saying goes, you might as well be yourself; everyone else is taken.
+ - The best poems take long journeys. I like poetry best that journeys – while remaining in the human scale – to the other world, which may be a place as easily overlooked as a bee’s wing.
+ - The door to the soul is unlocked; you do not need to please the doorkeeper, the door in front of you is yours, intended for you, and the doorkeeper obeys when spoken to.
+ - I want nothing from You but to see You.
+ - When a father, absent during the day, returns home at six, his children receive only his temperament, not his teaching.
+ - Wherever there is water there is someone drowning.
+ - In ordinary life, a mentor can guide a young man through various disciplines, helping to bring him out of boyhood into manhood; and that in turn is associated not with body building, but with building and emotional body capable of containing more than one sort of ecstasy.
+ - By the time a man is 35 he knows that the images of the right man, the tough man, the true man which he received in high school do not work in life.
+ - I have risen to a body not yet born, existing like a light around a body through which the body moves like a sliding moon.
+ - If you want the truth, I will tell you the truth: Friend, listen: the God whom I love is inside.
+ - You say to yourself, Well, this poem isn’t going to be any good, but I’ll write it anyway.
+ - My feeling is that poetry is also a healing process, and then when a person tries to write poetry with depth or beauty, he will find himself guided along paths which will heal him, and this is more important, actually, than any of the poetry he writes.
+ - The candle is not lit To give light, but to testify to the night.
+ - The lead either forges an instant connection with the reader, or the package fails.
+ - The best presenters have conversations with their audiences.
+ - As I’ve gotten older, I find I am able to be nourished more by sorrow and to distinguish it from depression.
+ - Male initiation does not move toward machoism; on the contrary, it moves toward achieving a cultivated heart before we die.
+ - One out of three black men are in the criminal justice system in some form. Their despair is beginning to resonate through the entire culture; that is why suburban children want rap music.
+ - Those of us who make up poems have agreed not to say what the pain is.
+ - Reclaiming the sacred in our lives naturally brings us close once more to the wellsprings of poetry.
+ - I was unfaithful even to Infidelity.
+ - There are a lot of men who are healthier at age fifty then they have ever been before, because a lot of their fear is gone.
+ - The language you use for your poems should be the language you use with your friends.
+ - It is surely a great calamity for a human being to have no obsessions.
+ - Rumi is astounding, fertile, abundant, almost more an excitable library of poetry than a person.
+
+46 quotes

@@ -1,0 +1,78 @@
+ - Hell hath no fury like a woman scorned.
+ - Heav’n hath no Rage, like Love to Hatred turn’d, Nor Hell a Fury, like a Woman scorn’d.
+ - There is in true beauty, as in courage, something which narrow souls cannot dare to admire.
+ - You are a woman: you must never speak what you think; your words must contradict your thoughts, but your actions may contradict your words.
+ - Women like flames have a destroying power; never to be quenched till they themselves devour.
+ - Say what you will, ’tis better to be left than never to have been loved.
+ - Music has charms to soothe a savage breast, to soften rocks, or bend a knotted oak. I’ve read that things inanimate have moved, and, as with living souls, have been inform’d, by magic numbers and persuasive sound.
+ - Nothing but you can lay hold of my mind, and that can lay hold of nothing but you.
+ - Beauty is the lover’s gift.
+ - He who closes his ears to the views of others shows little confidence in the integrity of his own views.
+ - I know that’s a secret, for it’s whispered everywhere.
+ - I am always of the opinion with the learned, if they speak first.
+ - Thou art a retailer of phrases, and dost deal in remnants of remnants.
+ - Courtship is to marriage, as a very witty prologue to a very dull play.
+ - Music has charms to sooth a savage breast, to soften rocks, or bend a knotted oak.
+ - O, she is the antidote to desire.
+ - A hungry wolf at all the herd will run, In hopes, through many, to make sure of one.
+ - A wit should no more be sincere, than a woman constant; one argues a decay of parts, as to other of beauty.
+ - Music alone with sudden charms can bind The wand’ring sense, and calm the troubled mind.
+ - Grief walks upon the heels of pleasure; married in haste, we repent at leisure.
+ - Marriage is honourable, as you say; and if so, wherefore should Cuckoldom be a Discredit, being deriv’d from so honourable a Root?
+ - Women are like tricks by sleight of hand, Which, to admire, we should not understand.
+ - Uncertainty and expectation are the joys of life. Security is an insipid thing.
+ - Delay not till tomorrow to be wise; tomorrow’s sun to thee may neve rise.
+ - No mask like open truth to cover lies, As to go naked is the best disguise.
+ - I confess freely to you, I could never look long upon a monkey, without very mortifying reflections.
+ - A woman only obliges a man to secrecy, that she may have the pleasure of telling herself.
+ - If this be not love, it is madness, and then it is pardonable.
+ - He that first cries out stop thief, is often he that has stolen the treasure.
+ - I know a lady that loves to talk so incessantly, she won’t give an echo fair play; she has that everlasting rotation of tongue that an echo must wait till she dies before it can catch her last words!
+ - Blessings ever wait on virtuous deeds, and though a late, a sure reward succeeds.
+ - Fear comes from uncertainty. When we are absolutely certain, whether of our worth or worthlessness, we are almost impervious to fear.
+ - To find a young fellow that is neither a wit in his own eye, nor a fool in the eye of the world, is a very hard task.
+ - O fie, miss, you must not kiss and tell.
+ - Words are the weak support of cold indifference; love has no language to be heard.
+ - I nauseate walking; ’tis a country diversion, I loathe the country.
+ - But say what you will, ’tis better to be left than never to have been loved. To pass our youth in dull indifference, to refuse the sweets of life because they once must leave us, is as preposterous as to wish to have been born old, because we one day must be old.
+ - O ay, letters – I had letters – I am persecuted with letters – I hate letters – nobody knows how to write letters; and yet one has ’em, one does not know why – they serve one to pin up one’s hair.
+ - I am a fool, I know it; and yet, Heaven help me, I’m poor enough to be a wit.
+ - Love’s but the frailty of the mind, When ’tis not with ambition joined; A sickly flame, which if not fed expires; And feeding, wastes in self-consuming fires.
+ - It is the business of a comic poet to paint the vices and follies of human kind.
+ - Wit must be foiled by wit: cut a diamond with a diamond.
+ - Every man plays the fool once in his live, but to marry is playing the fool all one’s life long.
+ - They are at the end of the gallery; retired to their tea and scandal, according to their ancient custom.
+ - These articles subscribed, if I continue to endure you a little longer, I may by degrees dwindle into wife.
+ - She likes herself, yet others hates, For that which in herself she prizes; And while she laughs at them, forgets She is the thing that she despises.
+ - She once used me with that insolence, that in revenge I took her to pieces; sifted her, and separated her failings; I studied ’em, and got ’em by rote. The catalogue was so large, that I was not without hopes, one day or other to hate her heartily.
+ - O, nothing is more alluring than a levee from a couch in some confusion.
+ - Guilt is ever at a loss, and confusion waits upon it; when innocence and bold truth are always ready for expression.
+ - I always take blushing either for a sign of guilt, or of ill breeding.
+ - Though marriage makes man and wife one flesh, it leaves ’em still two fools.
+ - One minute gives invention to destroy; What to rebuild, will a whole age employ.
+ - They come together like the Coroner’s Inquest, to sit upon the murdered reputations of the week.
+ - Invention flags, his brain goes muddy, and black despair succeeds brown study.
+ - Thus in this sad, but oh, too pleasing state! my soul can fix upon nothing but thee; thee it contemplates, admires, adores, nay depends on, trusts on you alone.
+ - Whoever is king, is also the father of his country.
+ - I hope you do not think me prone to any iteration of nuptials.
+ - Turn pimp, flatterer, quack, lawyer, parson, be chaplain to an atheist, or stallion to an old woman, anything but a poet; for a poet is worse, more servile, timorous and fawning than any I have named.
+ - Would any thing but a madman complain of uncertainty? Uncertainty and expectation are joys of life; security is an insipid thing; and the overtaking and possessing of a wish discovers the folly of the chase.
+ - Hannibal was a very pretty fellow in those days.
+ - I came up stairs into the world, for I was born in a cellar.
+ - Some by experience find those words mis-placed: At leisure married, they repent in haste.
+ - No, I’m no enemy to learning; it hurts not me.
+ - Defer not till to-morrow to be wise, To-morrow’s Sun to thee may never rise; Or should to-morrow chance to cheer thy sight With her enlivening and unlook’d for light, How grateful will appear her dawning rays! As favours unexpected doubly please.
+ - There are times when sense may be unseasonable, as well as truth.
+ - A little scorn is alluring.
+ - Come, come, leave business to idlers, and wisdom to fools: they have need of ’em: wit be my faculty, and pleasure my occupation, and let father Time shake his glass.
+ - There are come Critics so with Spleen diseased, They scarcely come inclining to be pleased: And sure he must have more than mortal Skill, Who please one against his Will.
+ - If happiness in self-content is placed, The wise are wretched, and fools only blessed.
+ - I find we are growing serious, and then we are in great danger of being dull.
+ - In my conscience I believe the baggage loves me, for she never speaks well of me herself, nor suffers any body else to rail at me.
+ - Who pleases one against his will.
+ - Honor is a public enemy, and conscience a domestic, and he that would secure his pleasure, must pay a tribute to one and go halves with t’other.
+ - Marriage indeed may qualify the fury of his passion, but it very rarely mends a man’s manners.
+ - How hard a thing ’twould be to please you all.
+ - To converse with Scandal is to play at Losing Loadum, you must lose a good name to him, before you can win it for yourself.
+
+76 quotes

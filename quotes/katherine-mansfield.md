@@ -1,0 +1,90 @@
+ - September is different from all other months. It is more magical. I feel the strange chemical change in the earth which produces mushrooms is the cause, too, of the extra ‘life’ in the air – a resilience, a sparkle.
+ - Warm, eager, living life-to be rooted in life-to learn, to desire, to know, to feel, to think, to act. This is what I want. And nothing less. That is what I must try for.
+ - I want to be all that I am capable of becoming.
+ - Risk! Risk anything! Care no more for the opinions of others, for those voices. Do the hardest thing on earth for you. Act for yourself. Face the truth.
+ - The mind I love must have wild places, a tangled orchard where dark damsons drop in the heavy grass, an overgrown little wood, the chance of a snake or two, a pool that nobody’s fathomed the depth of, and paths threaded with flowers planted by the mind.
+ - If you wish to live, you must first attend your own funeral.
+ - When we begin to take our failures non-seriously, it means we are ceasing to be afraid of them.
+ - Could we change our attitude, we should not only see life differently, but life itself would come to be different.
+ - How hard it is to escape from places. However carefully one goes they hold you – you leave little bits of yourself fluttering on the fences – like rags and shreds of your very life.
+ - The pleasure of all reading is doubled when one lives with another who shares the same books.
+ - You might drop your heart into me and you’d never hear it touch bottom.
+ - Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy, you can’t build on it it’s only good for wallowing in.
+ - What I feel for you can’t be conveyed in phrasal combinations; It either screams out loud or stays painfully silent but I promise – it beats words. It beats worlds. I promise.
+ - Would you not like to try all sorts of lives – one is so very small – but that is the satisfaction of writing – one can impersonate so many people.
+ - Outside the sky is light with stars.
+ - My love for you tonight is so deep and tender that it seems to be outside myself as well.
+ - Make it a rule of life never to regret and never to look back.
+ - I feel I must live alone, alone, alone – with artists only to touch the door. Every artist cuts off his ear and nails it on the outside of the door for the others to shout into.
+ - I want, by understanding myself, to understand others.
+ - Looking back, I imagine I was always writing. Twaddle it was too. But better far write twaddle or anything, anything, than nothing at all.
+ - It is of immense importance to learn to laugh at ourselves.
+ - Do the hardest thing on earth for you. ACT YOURSELF.
+ - To be alive and to be a ‘writer’ is enough.
+ - Courage is like a disobedient dog, once it starts running away it flies all the faster for your attempts to recall it.
+ - How idiotic civilization is! Why be given a body if you have to keep it shut up in a case like a rare, rare fiddle?
+ - I am poor – obscure – just eighteen years of age – with a rapacious appetite for everything and principles as light as my purse.
+ - Bless you, my darling, and remember you are always in the heart – oh tucked so close there is no chance of escape – of your sister.
+ - The truth is friendship is every bit as sacred and eternal as marriage.
+ - The ostrich burying its head in the sand does at any rate wish to convey the impression that its head is the most important part of it.
+ - Can one do nothing for the dead? And for a long time the answer had been – Nothing!
+ - Oh, impossible. Fancy cream puffs so soon after breakfast. The very idea made one shudder. All the same, two minutes later Jose and Laura were licking their fingers with that absorbed inward look that only comes from whipped cream.
+ - I love the night. I love to feel the tide of darkness rising, slowly and slowly washing, turning over and over, lifting, floating, all that lies strewn upon the dark beach, all that lies hid in rocky hollows.
+ - Why! Why! Why is the middle-class so stodgy – so utterly without a sense of humor?
+ - I saw myself driving through Eternity in a timeless taxi.
+ - If only one could tell true love from false love as one can tell mushrooms from toadstools.
+ - I must say, I hate money. But it’s the lack of it I hate most.
+ - The mind I love must have wild places.
+ - Wind moving through grass so that the grass quivers. This moves me with an emotion I don’t even understand.
+ - Whenever I prepare for a journey I prepare as though for death. Should I never return, all is in order.
+ - The truth is that every true admirer of the novels cherishes the happy thought that he alone – reading between the lines – has bcome the secret friend of their author.
+ - Now’s the time when children’s noses All become as red as roses And the colour of their faces Makes me think of orchard places Where the juicy apples grow, And tomatoes in a row.
+ - Ah, what happiness it is to be with people who are all happy, to press hands, press cheeks, smile into eyes.
+ - Children are unaccountable little creatures.
+ - As in the physical world, so in the spiritual world, pain does not last forever.
+ - That’s all life is – something childish and very natural. Isn’t it?
+ - Regret is an appalling waste of energy, and no one who intends to be a writer can afford to indulge in it.
+ - I think I hate snow, downright hate it. There is something stupefying in it, a kind of ‘You must be worse before you’re better,’ and down it spins.
+ - It’s rather nice to think of oneself as a sailor bending over the map of one’s mind and deciding where to go and how to go. The great thing to remember is we can do whatever we wish to do provided our wish is strong enough.
+ - I am treating you as my friend, asking you to share my present minuses in the hope that I can ask you to share my future plusses.
+ - There are in life as many aspects as attitudes towards it, and aspects change with attitudes.
+ - But one day we shall be rich, and the next poor. One day we shall dine in a palace and the next we’ll sit in a forest and toast mushrooms on a hatpin...
+ - I don’t believe other people are ever as foolishly excited as I am while I’m working. How could they be? Writers would have to live in trees.
+ - I love the rain. I want the feeling of it on my face.
+ - Tidied all my papers. Tore up and ruthlessly destroyed much. This is always a great satisfaction.
+ - In the woods where snow is thick, bars of sunlight lay like pale fire.
+ - Letters are the real curse of my existence. I hate to write them: I have to. If I don’t, there they are – the great guilty gates barring my way.
+ - Life never become a habit to me. It’s always a marvel.
+ - Yes, my mother’s death is a terrible sorrow to me. I feel – do you know what I mean – the silence of it so. She was more alive than anyone I have ever known.
+ - I’m a writer first and a woman after.
+ - Ach, Tchekov! Why are you dead? Why can’t I talk to you in a big darkish room at late evening – where the light is green from the waving trees outside? I’d like to write a series of Heavens: that would be one.
+ - There are always these moments in life when the limits of suffering are reached and we become heroes and heroines.
+ - You have never been curious about me; you never wanted to explore my soul.
+ - Why it should be such an effort to write to the people one loves I can’t imagine. It’s none at all to write to those who don’t really count.
+ - I always felt that the great high privilege, relief and comfort of friendship was that one had to explain nothing.
+ - The late evening is the time of times. Then with that unearthly beauty before one it is not hard to realise how far one has to go. To write something that will be worthy of that rising moon, that pale light.
+ - To acknowledge the presence of fear is to give birth to failure.
+ - Whatever happens I have had these blissful, perfect moments and they are worth living for.
+ - Once we have learned to read, meaning of words can somehow register without consciousness.
+ - I really only have Perfect Fun with myself. Other people won’t stop and look at the things I want to look at or, if they do, they stop to please me or to humor me or to keep the peace.
+ - To work – to work! It is such infinite delight to know that we still have the best things to do.
+ - Oh, how quickly things changed! Why didn’t happiness last for ever? For ever wasn’t a bit too long.
+ - But the more poetry one reads the more one longs to read!
+ - The whole world shall be ours because of our love.
+ - There is no feeling to be compared with the feeling of having written and finished a story.
+ - What do you want most to do? That’s what I have to keep asking myself, in the face of difficulties.
+ - Everything in life that we really accept undergoes a change.
+ - I have such a horror of telegrams that ask me how I am!! I always want to reply dead.
+ - Regret is an appalling waste of time.
+ - It is strange that there are times when I feel the stars are not at all solemn: they are secretly gay.
+ - Some couples go over their budgets very carefully every month. Others just go over them.
+ - To long for everything: sorrow; to accept everything: joy.
+ - It’s a terrible thing to be alone – yes it is – it is – but don’t lower your mask until you have another mask prepared beneath – as terrible as you like – but a mask.
+ - Perhaps it does not matter so very much what it is one loves in this world. But love something one must.
+ - Better to write twaddle, anything, than nothing at all.
+ - When I say “I fear” – don’t let it disturb you, dearest heart. We all fear when we are in waiting-rooms. Yet we must pass beyond them, and if the other can keep calm, it is all the help we can give each other.
+ - That is the fearful part of having been near death. One knows how easy it is to die. The barriers that are up for everybody else are down for you, and you’ve only to slip through.
+ - Every time one leaves anywhere, something precious, which ought not to be killed, is left to die.
+ - You are a Queen. Let mine be the joy of giving you your kingdom.
+
+88 quotes

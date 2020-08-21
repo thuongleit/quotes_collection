@@ -1,0 +1,46 @@
+ - Your direction is more important than your speed.
+ - Maturity begins on the day we accept responsibility for our own actions.
+ - Don’t let life discourage you; everyone who got where he is had to begin where he was.
+ - Children will not remember you for the material things you provided but for the feeling that you cherished them.
+ - One of the greatest accomplishments in this world would be that of lifting human hearts. Blessed are they who are kind and considerate of the feelings of other people.
+ - May we never let the things we can’t have, or don’t have, or shouldn’t have, spoil our enjoyment of the things we do have and can have. As we value our happiness let us not forget it. For one of the greatest lessons in life is learning to be happy without the things we cannot or should not have.
+ - Keep courage. Whatever you do, do not feel sorry for yourself. You will win in a great age of opportunity.
+ - He who has ceased to pray has lost a great friendship.
+ - There’s no pillow quite so soft as a father’s strong shoulder.
+ - Work is the best wonder drug ever devised by God. Work is as necessary to man as eating and sleeping. Pleasure derived from labor is the sweetest of all pleasures.
+ - It is a great moment in life when a father sees a son grow taller than he or reach farther.
+ - May we never let the things we can’t have, or don’t have, spoil our enjoyment of the things we do have and can have.
+ - Humor is essential to a full and happy life. It is a reliever and relaxer of pressure and tension, and the saving element in many situations.
+ - Enjoy life while it is happening.
+ - If you don’t want temptation to follow you, don’t act as if you are interested.
+ - Things I don’t understand don’t destroy my faith in the things I do understand.
+ - Sincere love is something that sacrifices not something that indulges itself. Sincere love is responsible. It would never knowingly hurt, but would heal.
+ - Whatever you do, do not feel sorry for yourself – things could always be worse and they are for someone else!
+ - We must not let the things we can’t do keep us from doing the things we can do.
+ - We should think seriously before we slam doors, before we burn bridges, before we saw off the limb on which we find ourselves sitting.
+ - A person soon learns how little he knows when a child begins to ask questions.
+ - Shouldn’t the commandments be re-written? No, they should be re-read!
+ - This is life-and it is passing. What are we waiting for?
+ - No man is so wise that he cannot benefit by talking things out with others.
+ - Parents who indulge themselves ‘in moderation’ may have children who indulge themselves to excess.
+ - We can run away from where we are, but not from what we are.
+ - Someone has to do everything that is done.
+ - I don’t think anything is unrealistic if you believe you can do it.
+ - Any man who can’t control his thoughts can’t control his actions, and any man who can’t control his actions isn’t safe in society.
+ - Give no man sympathy because he has to work – it is his blessing that he can.
+ - A boy is the only known substance from which a man can be made.
+ - One of our urgent opportunities is to respond to a child when he earnestly asks, remembering that they don’t always ask.
+ - What better can parents and children give to each other than respectful, understanding attention.
+ - We must carry things beyond conversation to conclusion.
+ - There must be a priority of values in all our lives.
+ - The test of love is in how we live.
+ - Happiness mainly depends on man’s ability to work and the way in which he does it.
+ - There are few of us but who have been touched somehow by death. Some may not have been touched closely by it nor yet have kept vigil with it, but somewhere along our lives, most of us are sorely bereft of someone near and deeply cherished – and all of us will some day meet it face to face.
+ - The interruption we now impatiently put off may be the most important thing we could be doing at this particular time?
+ - Too much pessimism has led too many men into making serious mistakes. And perhaps part of our pessimism comes because we are too close to ourselves to see in proper perspective.
+ - Young people are going to go to someone, somewhere. And we had better see that that ‘someone’ is us.
+ - What is it that makes us suppose that we can more easily do twice tomorrow what we didn’t do once today!
+ - Live so as to have a quiet conscience.
+ - We need the courage to start and continue what we should do, and courage to stop what we shouldn’t do.
+
+44 quotes

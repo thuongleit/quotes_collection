@@ -1,0 +1,24 @@
+ - Martial arts should be part of every girl’s education.
+ - I am a die-hard romantic at heart and love the idea of love. But, when it comes to love, I kinda believe in the old world charm of romance – where there’s mystery and intrigue.
+ - I speak Hindi fluently because my mother speaks only in Hindi and Urdu.
+ - I clean my own utensils, my house and I even travel alone. I don’t know what the life of a superstar is like.
+ - You need a strong family because at the end, they will love you and support you unconditionally. Luckily, I have my dad, mom and sister.
+ - Delhi is definitely a foodie’s paradise.
+ - I come from an army background, and everyone at my home has a habit of getting up early. I continue this habit even today.
+ - I would love to take a road trip across Italy in an Aston Martin S Coupe.
+ - I never get bored of a workout, because I feel great after a session.
+ - I’m a total water-baby. I’ve seen some pristine beaches, from Greece to Goa.
+ - I love watching horror films because I don’t get scared easily.
+ - If a woman goes out with different men on different days, women only will question her character and call her all sort of names.
+ - I would never like to endorse a fairness cream. I believe in natural beauty.
+ - I enjoy cooking for people I am close to.
+ - I like my man to be witty; he needs a sense of humour and needs to be extremely well-mannered.
+ - I just hate going to the gym, unless I need to do cardio once in a while. I think gymming makes you stiff and takes your aura away.
+ - I’d rather be appreciated for my character in a film than my looks.
+ - I never even wanted to be an actress. I studied mass communication and wanted to study law in Newcastle, for which I even got a scholarship. But by then, I had started modelling. So, I took a year off to decide what to do. But once you are used to working, it’s difficult to get back to studies.
+ - I don’t really flaunt any gadget, but I am loving my Nokia Lumia.
+ - I have never had a dietician and I never will, unless I get a disease.
+ - It wasn’t easy for me to start in Bollywood because I was an outsider.
+ - Deepika is the epitome of classiness and hotness; she maintains that balance really well.
+
+22 quotes

@@ -1,0 +1,55 @@
+ - You might be poor, your shoes might be broken, but your mind is a palace.
+ - I am teaching. Storytelling is teaching.
+ - Keep scribbling! Something will happen.
+ - Sing your song. Dance your dance. Tell your tale.
+ - Your mind is a treasure house that you should stock well and it’s the one part of you the world can’t interfere with.
+ - You have to give yourself credit, not too much because that would be bragging.
+ - I learned the significance of my own insignificant life.
+ - A mother’s love is a blessing No matter where you roam. Keep her while you have her, You’ll miss her when she’s gone – Angela’s Ashes.
+ - Love her as in childhood Through feeble, old and grey. For you’ll never miss a mother’s love Till she’s buried beneath the clay.
+ - It’s not enough to be American. You always have to be something else, Irish-American, German-American, and you’d wonder how they’d get along if someone hadn’t invented the hyphen.
+ - The sky is the limit. You never have the same experience twice.
+ - Bless me, Father, for I have sinned, it’s been a minute since my last confession.
+ - I know that big people don’t like questions from children. They can ask all the questions they like, How’s school? Are you a good boy? Did you say your prayers? but if you ask them did they say their prayers you might be hit on the head.
+ - There’s nothing sillier in the world than a teacher telling you don’t do it after you already did it.
+ - After a full belly all is poetry.
+ - When I look back on my childhood I wonder how I survived at all. It was, of course, a miserable childhood: the happy childhood is hardly worth your while. Worse than the ordinary miserable childhood is the miserable Irish childhood, and worse yet is the miserable Irish Catholic childhood.
+ - Shakespeare is like mashed potatoes, you can never get enough of him.
+ - I am not living the American Dream; I am living the American fantasy.
+ - I don’t know what it means and I don’t care because it’s Shakespeare and it’s like having jewels in my mouth when I say the words.
+ - Oh, God above, if heaven has a taste it must be an egg with butter and salt, and after the egg is there anything in the world lovelier than fresh warm bread and a mug of sweet golden tea?
+ - It’s lovely to know that the world can’t interfere with the inside of your head.
+ - Stock your mind. It is your house of treasure and no one in the world can interfere with it.
+ - I say, Billy, what’s the use in playing croquet when you’re doomed? He says, Frankie, what’s the use of not playing croquet when you’re doomed?
+ - If you were mean to your parents, they’d give you a good belt in the gob and send you flying across the room.
+ - I can’t go back. The past won’t go away in this family...
+ - Just let them sit in the goddam sun. But the world won’t let them because there’s nothing more dangerous than letting old farts sit in the sun. They might be thinking. Same thing with kids. Keep ’em busy or they might start thinking.
+ - There are so many ways of saying Hi. Hiss it, trill it, bark it, sing it, bellow it, laugh it, cough it. A simple stroll in the hallway calls for paragraphs, sentences in your head, decisions galore.
+ - I am for who i was in the beginning but now is present and i exist in the future.
+ - There’s no use saying anything in the schoolyard because there’s always someone with an answer and there’s nothing you can do but punch them in the nose and if you were to punch everyone who has an answer you’d be punching morning noon and night.
+ - Happiness is hard to recall. Its just a glow.
+ - And, of course, they’ve always condemned dancing. You know, you might touch a member of the opposite sex. And you might get excited and you might do something natural.
+ - The happy childhood is hardly worth your while.
+ - I admire certain priests and nuns who go off on their own and do God’s work on their own, who help in the ghettos, but as far as the institution of the church is concerned, I think it is despicable.
+ - The master says it’s a glorious thing to die for the Faith and Dad says it’s a glorious thing to die for Ireland and I wonder if there’s anyone in the world who would like us to live.
+ - The main thing I am interested in is my experience as a teacher.
+ - Teacher? I never dreamed I could rise so high in the world.
+ - Andy says, I don’t understand how they can give loans to people who want to spend two weeks lying on the sand at the goddam Jersey shore and then turn down a woman with three kids hanging on by her fingernails.
+ - There’s so much absurdity. Poverty is so absurd.
+ - Where did I get the nerve to think I could handle American teenagers? Ignorance. That’s where I got the nerve.
+ - I’ve been writing in notebooks for 40 years or so.
+ - They can afford to smile because they all have teeth so dazzling if they dropped them in the snow they’d be lost forever.
+ - They all went into the bar business. Which was a mistake, because they began to sip at the merchandise and it set them back, set us all back. Well, them more than I.
+ - When I act tough they listen politely till the spasm passes. They know.
+ - First of all there is always that artistic challenge of creating something. Or the particular experience to take slum life in that period and make something out of it in the form of a book. And then I felt some kind of responsibility to my family.
+ - I’m more interested in writing than in performing.
+ - You feel a sense of urgency, especially at my advanced age, when you’re staring into the grave.
+ - I had to get rid of any idea of hell or any idea of the afterlife. That’s what held me, kept me down. So now I just have nothing but contempt for the institution of the church.
+ - I just have to proceed as usual. No matter what happens, nothing helps with the writing of the next book.
+ - Actually, my mother and Alfie came for three weeks Christmas vacation and stayed for 21 years. I guess my mother never went back because she was lonely.
+ - I can’t go too much into my domestic life because there are ex-wives ready to do me in.
+ - I had no accomplishments except surviving. But that isn’t enough in the community where I came from, because everybody was doing it. So I wasn’t prepared for America, where everybody is glowing with good teeth and good clothes and food.
+ - We never really had any kind of a Christmas. This is one part where my memory fails me completely.
+ - I think I settled on the title before I ever wrote the book.
+
+53 quotes

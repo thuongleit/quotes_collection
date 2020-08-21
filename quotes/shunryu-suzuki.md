@@ -1,0 +1,159 @@
+ - If your mind is empty, it is always ready for anything, it is open to everything. In the beginner’s mind there are many possibilities, but in the expert’s mind there are few.
+ - Hell is not punishment, it’s training.
+ - The beginner’s mind is the mind of compassion. When our mind is compassionate, it is boundless.
+ - The true purpose of Zen is to see things as they are, to observe things as they are, and to let everything go as it goes. Zen practice is to open up our small mind.
+ - In the Lotus Sutra, Buddha says to light up one corner – not the whole world. Just make it clear where you are.
+ - When you do something, you should burn yourself up completely, like a good bonfire, leaving no trace of yourself.
+ - Nothing outside yourself can cause any trouble. You yourself make the waves in your mind. If you leave your mind as it is, it will become calm. This mind is called big mind.
+ - Life is like stepping onto a boat which is about to sail out to sea and sink.
+ - Zen is not some kind of excitement, but concentration on our usual everyday routine.
+ - I think you’re all enlightened, until you open your mouths.
+ - It is easy to have calmness in inactivity, it is hard to have calmness in activity, but calmness in activity is true calmness.
+ - When my master and I were walking in the rain, he would say, ‘Do not walk so fast, the rain is everywhere.’
+ - As soon as you see something, you already start to intellectualize it. As soon as you intellectualize something, it is no longer what you saw.
+ - The purpose of studying Buddhism is not to study Buddhism, but to study ourselves.
+ - We try, and we try, and we fail; and then we go deeper.
+ - Each of us must make our own true way, and when we do, that way will express the universal way.
+ - When you are just you, without thinking or trying to say something special, just saying what is on your mind and how you feel, then there is naturally self-respect.
+ - Because we cannot accept the truth of transience, we suffer.
+ - When you try to understand everything, you will not understand anything. The best way is to understand yourself, and then you will understand everything.
+ - Our way is to practice one step at a time, one breath at a time, with no gaining idea.
+ - You want to eliminate your evil desires in order to reveal your Buddha nature, but where will you throw them away?
+ - Things are always changing, so nothing can be yours.
+ - Without accepting the fact that everything changes, we cannot find perfect composure. But unfortunately, although it is true, it is difficult for us to accept it. Because we cannot accept the truth of transience, we suffer.
+ - The world is its own magic.
+ - In the mind of the beginner, there are many possibilities. In the mind of the expert there are few.
+ - To accept some idea of truth without experiencing it is like a painting of a cake on paper which you cannot eat.
+ - When you do not realize that you are one with the river, or one with the universe, you have fear. Whether it is separated into drops or not, water is water. Our life and death are the same thing. When we realize this fact, we have no fear of death anymore.
+ - From True Emptiness The Wondrous Being Appears.
+ - Everything is perfect, but there is a lot of room for improvement.
+ - Take care of things, and they will take care of you.
+ - So the secret is just to say ‘Yes!’ and jump off from here. Then there is no problem. It means to be yourself, always yourself, without sticking to an old self.
+ - The best way to control cow and sheep is to give them a big grazing field.
+ - Life and death are the same thing. When we realize this fact, we have no fear of death anymore, nor actual difficulty in our life.
+ - Wherever you go you will find your teacher, as long as you have the eyes to see and the ears to hear.
+ - Treat every moment as your last. It is not preparation for something else.
+ - When you are fooled by something else, the damage will not be so big. But when you are fooled by yourself, it is fatal. No more medicine.
+ - It is wisdom that is seeking for wisdom.
+ - For Zen students a weed is a treasure. With this attitude, whatever you do, life becomes an art.
+ - What we call “I” is just a swinging door which moves when we inhale and when we exhale.
+ - For Zen students, a weed is a treasure.
+ - Whereever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything. That is more true than I can say, and more true than you can hear.
+ - To find perfect composure in the midst of change is to find nirvana.
+ - You will always exist in the universe in one form or another.
+ - In your everyday life you always have opportunities for enlightenment. If you go to the rest room, there is a chance to attain enlightenment. When you cook, there is a chance to attain enlightenment. When you clean the floor, there is a chance to attain enlightenment.
+ - When we do not expect anything we can be ourselves. That is our way, to live fully in each moment of time.
+ - Concentration comes not from trying hard to focus on something, but from keeping your mind open and directing it at nothing.
+ - Moment after moment, completely devote yourself to listening to your inner voice.
+ - The mind of the beginner is empty, free of the habits of the experts, ready to accept, to doubt, and open to all possibilities.
+ - If you try to observe the precepts, that is not true observation of precepts. When you observe the precepts without trying to observe the precepts, that is true observation of the precepts.
+ - The highest truth is daiji, translated as dai jiki in Chinese scriptures. This is the subject of the question the emperor asked Bodhidharma: “What is the First Principle?” Bodhidharma said, “I don’t know.” “I don’t know” is the First Principle.
+ - Because all existence is founded upon the ever-present state of union, everything already exists in a state of tranquility. However, this state of tranquility is masked from us by our assumption that there is a separation, that there is a problem.
+ - To express yourself as you are, without any intentional, fancy way of adjusting yourself, is the most important thing.
+ - A garden is never finished.
+ - The goal of our life’s effort is to reach the other shore, Nirvana. Prajna paramita, the true wisdom of life, is that in each step of the way, the other shore is actually reached.
+ - If you continue this simple practice every day, you will obtain some wonderful power. Before you attain it, it is something wonderful, but after you attain it, it is nothing special.
+ - The most important point is to accept yourself and stand on your two feet.
+ - When you say, “Wait a moment,” you are bound by your karma; when you say “Yes I will,” you are free.
+ - Nothing we see or hear is perfect. But right there in the imperfection is perfect reality.
+ - If you think your body and mind are two, that is wrong; if you think that they are one, that is also wrong. Our body and mind are both two and one.
+ - It is not after we understand the truth that we attain enlightenment. To realize the truth is to live – to exist here and now.
+ - We have to study with our warm heart, not just with our brain.
+ - If you can just appreciate each thing, one by one, then you will have pure gratitude. Even though you observe just one flower, that one flower includes everything.
+ - All descriptions of reality are limited expressions of the world of emptiness. Yet we attach to the descriptions and think they are reality. That is a mistake.
+ - Bowing is a very serious practice. You should be prepared to bow, even in your last moment. even though it is impossible to get rid of our self-centered desires, we have to do it. Our true nature wants us to.
+ - Let your ears hear without trying to hear. Let the mind think without trying to think and without trying to stop it. That is practice.
+ - Our mind should be free from traces of the past, just like the flowers of spring.
+ - No matter what god or doctrine you believe in, if you become attached to it, your belief will be based more or less on a self-centered idea.
+ - To cook is not just to prepare food for someone or to cook for yourself; it is to express your sincerity. So when you cook you should express yourself in your activity in the kitchen. You should allow yourself plenty of time.
+ - Time goes from present to past.
+ - Moment after moment everything comes out of nothingness. This is the true joy of life.
+ - Preparing food is not just about yourself and others. It is about everything!
+ - When the restrictions you have do not limit you, this is what we mean by practice.
+ - As long as you seek for something, you will get the shadow of reality and not reality itself.
+ - How much ‘ego’ do you need? Just enough so that you don’t step in front of a bus.
+ - Happiness is sorrow; sorrow is happiness. There is happiness in difficulty; difficulty in happiness. Even though the ways we feel are different, they are not really different; in essense they are the same. This is the true understanding transmitted from Buddha to us.
+ - Only when you understand people, they may understand you. So even though you do not say anything, if you understand people there is some communication.
+ - To give your sheep or cow a large, spacious meadow is the way to control him.
+ - We do not exist for the sake of something else. We exist for the sake of ourselves.
+ - Ego is a social institution with no physical reality. The ego is simply your symbol of yourself.
+ - It is a big mistake to think that the best way to express yourself is to do whatever you want, acting as you please. This is not expressing yourself. If you know what to do exactly, and you do it, then you can express yourself fully.
+ - The true practice to meditation is to sit as if you where drinking water when you are thursty.
+ - There should not be any particular teaching. Teaching is in each moment.
+ - If you want to enjoy the movie, you should know that it is the combination of film and light and white screen, and that the most important thing is to have a plain, white screen.
+ - After you have practiced for a while, you will realize that it is not possible to make rapid, extraordinary progress. Even though you try very hard, the progress you make is always little by little.
+ - A Master who cannot bow to a disciple cannot bow to Buddha.
+ - The point we emphasize is strong confidence in our original nature.
+ - When you do something, if you fix your mind on the activity with some confidence, the quality of your state of mind is the activity itself. When you are concentrated on the quality of your being, you are prepared for the activity.
+ - When we inhale, the air comes into the inner world. When we exhale, the air goes out to the outer world. The inner world is limitless, and the outer world is also limitless. We say “inner world” or “outer world” but actually, There is just one whole world.
+ - The teaching which is written on paper is not the true teaching. Written teaching is a kind of food for your brain. Of course it is necessary to take some food for your brain, but it is more important to be yourself by practicing the right way of life.
+ - Discipline is creating the situation.
+ - Even if the sun were to rise from the west, the Bodhisattva has only one way.
+ - Someone was sitting in front of a sunflower, watching the sunflower, a cup of sun, and so I tried it too. It was wonderful; I felt the whole universe in the sunflower. That was my experience. Sunflower meditation. A wonderful confidence appeared. You can see the whole universe in a flower.
+ - Zen is not some fancy, special art of living. Our teaching is just to live, always in reality, in its exact sense. To make our effort, moment after moment, is our way.
+ - We must exist right here, right now!
+ - Zazen practice is the direct expression of our true nature. Strictly speaking, for a human being, there is no other practice than this practice; there is no other way of life than this way of life.
+ - Usually when someone believes in a particular religion, his attitude becomes more and more a sharp angle pointing away from himself. In our way the point of the angle is always toward ourselves.
+ - We should not be just a fan of dragons; we should always be the dragon himself. Then we will not be afraid of any dragon.
+ - A tiger does not ignore or slight any small animal. The way he catches a mouse and catches and devours a cow are the same.
+ - There is no need to have a deep understanding of Zen.
+ - You may say that things happen just by chance, but I don’t feel that way.
+ - We do not slight the idea of enlightenment, but the most important thing is this moment, not some day in the future. We have to make our effort in this moment. This is the most important thing for our practice.
+ - You should rather be grateful for the weeds you have in your mind, because eventually they will enrich your practice.
+ - Real Freedom is to not feel limited when wearing this Zen robe, this troublesome formal robe. Similarly, in our busy life we should wear this civilization without being bothered by it, without ignoring it, without being caught by it.
+ - To renounce things is not to give them up. It is to acknowledge that all things go away.
+ - When something dies is the greatest teaching.
+ - The person who can freely acknowledge that life is full of difficulties can be free, because they are acknowledging the nature of life – that it can’t be much else.
+ - In reflecting on our problems, we should include ourselves.
+ - Strictly speaking, there are no enlightened people, there is only enlightened activity.
+ - Don’t move. Just die over and over. Don’t anticipate. Nothing can save you now because you have only this moment. Not even enlightenment will help you now because there are no other moments. With no future, be true to yourself and express yourself fully. Don’t move.
+ - Instead of criticizing, find out how to help.
+ - Big mind is something to express, not something to figure out. Big mind is something you have, not something to seek for.
+ - Everything you do is right, nothing you do is wrong, yet you must still make ceaseless effort.
+ - If your practice is good, you may become proud of it. What you do is good, but something more is added to it. Pride is extra. Right effort is to get rid of something extra.
+ - To be different is to have value. In this sense all things have equal, absolute value. Each thing has absolute value and thus is equal to everything else.
+ - Enlightenment is not a complete remedy.
+ - Tai Shimano visited Shunryu Suzuki. “How are you feeling these days?” Suzuki replied, “They have a new name for me: Cancer!”
+ - If you cannot bow to Buddha, you cannot be a Buddha. It is arrogance.
+ - People who know the state of emptiness will always be able to dissolve their problems by constancy.
+ - When we become truly ourselves, we just become a swinging door, and we are purely independent of, and at the same time, dependent upon everything.
+ - There will always be war, but we must always work to oppose it.
+ - An enlightened person does not ignore things and does not stick to things, not even to the truth.
+ - People say that practicing Zen is difficult, but there is a misunderstanding as to why. It is not difficult because it is hard to sit in the cross- legged position, or to attain enlightenment. It is difficult because it is hard to keep our mind pure and our practice pure in its fundamental sense.
+ - If you want to read a letter from the Buddha’s world, it is necessary to understand Buddha’s world.
+ - No teaching could be more direct than just to sit down.
+ - So for a period of time each day, try to sit, without moving, without expecting anything, as if you were in your last moment. Moment after moment you feel your last instant. In each inhalation and each exhalation there are countless instants of time. Your intention is to live in each instant.
+ - If it is raining out, do not walk fast, because it is raining everywhere.
+ - As long as we have some definite idea about or some hope in the future, we cannot really be serious with the moment that exists right now.
+ - Wabi means spare, impoverished; simple and functional. It connotes a transcendence of fad and fashion. The spirit of wabi imbues all the Zen arts, from calligraphy to karate, from the tea ceremony to Zen archery.
+ - To have some deep feeling about Buddhism is not the point; we just do what we should do, like eating supper and going to bed. This is Buddhism.
+ - Meditation opens the mind to the greatest mystery that takes place daily and hourly; it widens the heart so that it may feel the eternity of time and infinity of space in every throb; it gives us a life within the world as if we were moving about in paradise.
+ - The way that helps will not be the same; it changes according to the situation.
+ - Zazen practice and everyday activity are one thing. We call zazen everyday life, and everyday life zazen.
+ - The purpose of our practice is just to be yourself.
+ - Life without zazen is like winding your clock without setting it. It runs perfectly well, but it dosen’t tell time.
+ - We die, and we do not die.
+ - When you sit, everything sits with you.
+ - We ourselves cannot put any magic spells on this world. The world is its own magic.
+ - To stop your mind does not mean to stop the activities of mind. It means your mind pervades your whole body.
+ - You can’t make a date with enlightenment.
+ - When you live completely in each moment, without expecting anything, you have no idea of time.
+ - Instead of respecting things, we want to use them for ourselves and if it is difficult to use them, we want to conquer them.
+ - If you think you will get something from practicing zazen, already you are involved in impure practice.
+ - Even though you have pain in your legs, you can do it. Even though your practice is not good enough, you can do it.
+ - If I tell you something, you will stick to it and limit your own capacity to find out for yourself.
+ - Our tendency is to be interested in something that is growing in the garden, not in the bare soil itself. But if you want to have a good harvest, the most important thing is to make the soil rich and cultivate it well.
+ - It is only by practicing through a continual succession of agreeable and disagreeable situations that we acquire true strengths. To accept that pain is inherent and to live our lives from this understanding is to create the causes and conditions for happiness.
+ - When you understand one thing through and through, you understand everything.
+ - Our practice should be based on the ideal of selflessness. Selflessness is very difficult to understand. If you try to be selfless, that is already a selfish idea. Selflessness will be there when you do not try anything.
+ - Those who sit perfectly physically usually take more time to obtain the true way of Zen.
+ - There is no connection between I myself yesterday and I myself in this moment.
+ - Without ignoring the objective side of the truth, it has to be subjective as well, Buddha’s whole teaching just for you, something you can taste. Not something to believe in but to discover, to experience.
+ - When he bowed to all those buddhas, the buddhas he bowed to were beyond his own understanding. Again and again he did it.
+ - The more you practice zazen, the more you will be able to accept something as your own, whatever it is.
+ - If you take pride in your attainment or become discouraged because of your idealistic effort, your practice will confine you by a thick wall.
+ - In the zazen posture, your mind and body have, great power to accept things as they are, whether agreeable or disagreeable.
+ - If you want to study Zen, you should forget all your previous ideas and just practice zazen and see what kind of experience you have in your practice. That is naturalness.
+ - You must be true to your own way until at last you actually come to the point where you see it is necessary to forget all about yourself.
+
+157 quotes

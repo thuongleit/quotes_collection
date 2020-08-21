@@ -1,0 +1,98 @@
+ - The most important thing in life will always be family. The people right here, right now.
+ - They say the open road helps you think. About where you’ve been and where you’re going.
+ - Being male is a matter of birth. Being a man is a matter of age. But being a Gentleman is a matter of choice.
+ - You break her heart, I’ll break your neck.
+ - We all deal with being unfairly judged.
+ - A transvestite spends her entire life trying to look as feminine as possible and I have clearly spent mine celebrating my masculinity.
+ - Show me how you drive and I’ll show you who you are.
+ - When I’m writing, I’m locking myself in a room. I’m the worst critic in the world. I write something and then I beat myself up. I’m like “Vin, you’re retarded, that makes no sense.”
+ - The video game culture was an important thing to keep alive in the film because we’re in a new era right now. The idea that kids can play video games like Grand Theft Auto or any video game is amazing. The video games are one step before a whole other virtual universe.
+ - It’s insecurity that is always chasing you and standing in the way of your dreams.
+ - It wasn’t until I went to college and I got my first motorcycle that I understood the thrill of speed.
+ - We’ve come a long way, from where we’ve been. I’ll tell you all about it when I see you again.
+ - Video games are one step before a whole other virtual universe.
+ - If you had asked me back in grade school what I wanted to be when I grew up, I would have said my first choice was an actor, but if I couldn’t be that, I’d want to be a superhero.
+ - My mother gave me this book called Feature Films at Used Car Prices by a guy named Rick Schmidt. I gotta credit the guy, cuz he gave me the most practical advice. It empowers you.
+ - Well, love motivates me in everything I do.
+ - Choosing the car you drive is like choosing your wardrobe, maybe even more important.
+ - I’m going to do my best to channel the character on a spiritual level.
+ - I’m a boy who appreciates a good body, regardless of the make.
+ - I’m not really afraid of the dark, except if I’m walking. The thing that scares me the most is the possibility of walking into a wall and busting my lip.
+ - My mom used to say that I became a fighter and a scrapper and a tough guy to protect who I am at my core.
+ - When people believe in you, you can do miraculous things.
+ - I have dangerous bones in my body.
+ - I love thinking about the film, the project and committing myself as much as possible.
+ - Film is my hobby, so I will work well through the night to develop films, whatever film I’m doing or dream projects I have.
+ - I always have issues with trust.
+ - When I got on the set of ‘Saving Private Ryan,’ I discovered, to my amazement, that Steven Spielberg is a gamer.
+ - Career diversification ain’t a bad thing.
+ - The thing that stood out above and beyond all the experiences was this relationship with the nine-month-old baby. On weekends, I’d be thinking about going back to set on Monday just to see the baby.
+ - I am definitely a person of color.
+ - I envision the future sunny and with love, harmony and oneness. I think Hollywood is changing.
+ - I love women more than anything.
+ - I was a bouncer for ten years in New York City.
+ - I’m an actor. I can do whatever I want. As an actor, not everything has to be the most obvious choice. And sometimes, the best thing you can do is to defy expectations.
+ - I approach every film I do in the same way, whether it’s an action film or not an action film. I guess if a certain physicality lends itself to action, but I started acting before I reached puberty. I was 7 years old when I started acting. It wasn’t until I became a bouncer in New York...
+ - The only way anyone knows which girl I’m with is if a one-night stand goes on ‘Howard Stern.’
+ - It’s like you have a child and you think, ‘Everything that I’ve done up until this point is insignificant in comparison to being a father.’ It’s a beautiful, beautiful thing.
+ - It’s really bizarre because no one knows this, but elephants have killed more animal trainers than any other animal.
+ - IT don’t matter if you win by an inch or a milewinning is winning!!
+ - Most of my confidence came from being with ladies, because I certainly wasn’t getting any acting jobs.
+ - I believe in paying special attention to every project that you do and supporting the projects you do.
+ - I’ve been auditioning since I was 7 years old.
+ - I haven’t had that many weird encounters with fans, thank God.
+ - Unfortunately, in Hollywood, there are those directors that have some contempt for actors. We’ve all experienced that, in one way or another.
+ - My mother is the most supportive mother in the world, she’s magical.
+ - With age, you get to a place where you don’t want to knock people out. You just want to give people a hug.
+ - You know when something feels so good but you’re afraid to feel good about it? So you kinda hold back? Everyone says, Congratulations, you must be so happy. And you say something stupid like, I’m just doing what little I can with what little I have.
+ - If you take my performance or my understanding of the role and my appreciation for story and then dress it in CGI, that I guess becomes an action film.
+ - Vin Diesel had to hire a babysitter.
+ - I don’t think a lot of actors talk about it, but there’s usually a process where you essentially purge yourself of the character that you played prior to the movie.
+ - I am flattered that they think that many people would enjoy my work. I don’t approach any genre a different way than I may approach another one. I treat every role I do like a role worthy of applying whatever kind of tactic, process and talent I have.
+ - I could care less about being an action actor like Stallone or Schwarzenegger.
+ - You live these three months in this reality, in this dark reality. You don’t want to do those films every year because they’re taxing. I started smoking a lot of cigarettes.
+ - Nothing comes easy when I’m in character, because everything I do in character, I take seriously.
+ - I used to feel guilty about owning a console.
+ - If you’re the type of person who has to fulfill your dreams, you’ve gotta be resourceful to make sure you can do it. I came out to California when I was 21, thinking my New York credentials would take me all the way. I came back home a year later all dejected and a failure.
+ - I’m a perfectionist. I’m very critical, especially artistically.
+ - To have a director that loves his actors is something that you can see in the film and in the fruits of that labor. You can see that translated in the film. When you watch such movie, you can see a director who loves his actors, and it shines through the movie, in my eyes.
+ - It was interesting to do a completely fictional piece. You know, Saving Private Ryan was not a fictional piece! So the challenge was: How do you incorporate real emotions? How do you incorporate aspects that people are going to be able to identify with?
+ - Any film that you see is never just the director. If it’s a film that you love, it’s not so easy to say, “Oh it’s directed by this person – that means everything that person directs is going be wonderful.”
+ - It would be flattering to call it a modern Dirty Harry, but I think this film deals more with the loss of his wife than the traditional revenge vigilante films.
+ - The idea of exploring character relations and their development over a decade has to be appealing for any actor who cherishes his craft.
+ - I grew up with all kinds of people.
+ - The films that I do are deep, introspective, brooding roles that you’re in this heavy headspace all the time.
+ - I’m not disciplined enough to be a writer consistently. I write when I have to.
+ - A person in my position has to restrain himself.
+ - Deal-making goes on with any job.
+ - I’ve turned down twentysomething million dollars for movies.
+ - The whole year I was in LA I got into telemarketing and learned how to make money. Five years later that skill helped me make my first film.
+ - The majority of the filmmaking process is in pre-production. The more you’ve planned out the more freedom there is on set to find new stuff, to play around, find new jokes and let the actors kind of breathe – but it needs to come from a place where it’s completely structured.
+ - I always have issues. I’m a New Yorker. I always have issues with trust – you adopt it from being a New Yorker. I think trust is something that comes from the gut. I don’t think it’s anything specific. I don’t think it’s anything tangible.
+ - Rated R movies are few and far between, nowadays. We’re all seeing less and less rated R movies, and less and less of them are being made.
+ - You get a timeless cool card in New York.
+ - I do practice martial arts, more as a recreational thing, but a lot of my friends have been heavyweight champions the in mixed martial arts world.
+ - Hollywood is more concerned about its male actors being in shape than its female actors.
+ - Of course, I don’t act in an extreme fashion in my day to day life. I don’t think any of us live do. I think we all have that reserve somewhere and we pull upon it when we need it.
+ - If Clark Gable had a Facebook page, there would have been a Gone with the Wind 2.
+ - I shaved my head about 15 years ago and the first time I shaved it, I started running my hand through my hair and it was very therapeutic.
+ - I was the oldest of the children in my family. I had to do a lot of diaper-changing and lunch-making. I was taking my little sister to ballet, picking up my brother, sort of being a super-nanny.
+ - If you think about my filmography, I have never done a movie that a kid could go see, except for ‘Iron Giant,’ and I’m not even on the screen.
+ - You make movies for the people. If critics happen to like them too, well, that’s a home run.
+ - If you believe in the project, you have to support it.
+ - I grew up the son of an acting teacher but I’ve never been really good at articulating what that process is. It was always a bit more internal.
+ - I grew up in an artists community in New York, in a building that was government-subsidised for artists. No one made any money, but they made art for the sake of art.
+ - If I’m on set and I’m in character, I’m not thinking like a producer. If I’m on set and I’m not in character, wardrobe and make-up, and I’m just coming on set for the moments that I’m not shooting, then I’m able to be the producer.
+ - I always want another actor to shine in my scene because it makes the film stronger. I would encourage people to scene steal, because filmmaking is a collaborative effort.
+ - I enjoy playing a quintessential antihero. There’s something therapeutic about playing such characters. I know it sounds corny but I feel like I learn about myself when I play that characters.
+ - When I was a child actor, I had the fear that I was going to be cast as the tree.
+ - I’ve directed independent film.
+ - I started acting when I was seven-years-old. By the time I was 17 I would say: “If I’m not a star by the time I’m 18, I’ll get out of the business.”
+ - I would love to do more science fiction. I always envisioned the Riddick franchise as a continuing mythology, so I always imagined that there would be many other films to follow.
+ - If it’s an amazing role, I’ll do anything.
+ - When Lucas was doing Star Wars, he didn’t have a 50 million person Facebook following where he could just sift through feedback to try to get an idea for what he was going to do next. It’s a luxury we have today.
+ - When you go to the movies with your whole family, it’s a different experience. For some reason, it’s something that you’re all doing together and you take away something special in that.
+ - My gut feeling about sequels is that they should be premeditated: You should try to write a trilogy first or at least sketch out a trilogy if you have any faith in your film.
+ - When you come onto the set, everything should be focused around your character and you should stay in the pocket, as much as possible. Every actor has their own process. For me, I really need to stay in the pocket.
+
+96 quotes

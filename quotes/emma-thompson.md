@@ -1,0 +1,92 @@
+ - Being disabled should not mean being disqualified from having access to every aspect of life.
+ - I think books are like people, in the sense that they’ll turn up in your life when you most need them.
+ - We all need somewhere where we feel safe.
+ - Just write. It doesn’t matter what you write. Just sit at your desk and write.
+ - Constantly worrying about your reflection and criticizing your body, shape and size is an act of violence against yourself.
+ - My worst quality is impatience.
+ - I think books are like people, in the sense that they’ll turn up in your life when you most need them. I firmly believe there are books whose greatness actually enables you to live, to do something. And sometimes, human beings need story and narrative more than they need nourishment and food.
+ - Any problem, big or small, within a family, always seems to start with bad communication. Someone isn’t listening.
+ - I want a different world. One where I don’t wake up thinking I’m so lucky to be able to feed my daughter, and able to give people a clean drink of water. I don’t want images of starving babies at the breast in my mind. I want that to change. And if I want that, I had better do something about it.
+ - Piracy is our only option.
+ - I don’t think people understand that being poor means you have to work from dawn until dusk just to survive through the day. I think there’s some notion that poor people lie about all day not doing anything.
+ - When you buy Fairtrade products you can guarantee that the farmers who have worked hard to grow them get a minimum price. Fairtrade is a way of giving regular support – and enjoying delicious high quality foods at the same time.
+ - Maybe I don’t take myself so seriously any more. And I don’t care how I’m judged. I’m past all that.
+ - I’ve a problem with the word charity because I think that NGOs, as I prefer calling them, really do take the work of moral and social responsibilities that ought to be taken on by governments.
+ - I think our hearts are very chemical and we change the way we see people according to how we feel about them. That’s what love is, in a way.
+ - But when I lose my temper, I find it difficult to forgive myself. I feel I’ve failed. I can be calm in a crisis, in the face of death or things that hurt badly. I don’t get hysterical, which may be masochistic of me.
+ - I am who I am, and there is nothing I can do about that.
+ - The trick is to age honestly and gracefully and make it look great, so that everyone looks forward to it.
+ - We must remember that all these things, the nuances, the anomalies, the subtleties, which we assume only accessorize our days are in fact here for a much larger and nobler cause. They are here to save our lives.
+ - Marianne Dashwood looks at gray skies and sees blue. That’s all very well, and it’s not something you ever want entirely to lose. But you must lose a little of it; otherwise you’re going to get wet.
+ - The thing that influenced me most in relation to ‘Nanny McPhee’ were the Westerns I watched with my father. All the Spaghetti Westerns; all the Virginians; all the High Chaparrals. Because if you think about the form, it’s a stranger from out of town.
+ - It’s not funny at all that we do all that advertising for children. Why is advertising for children allowed? What possible reason can there be for having those effing adverts on TV for all this crap that’s made by poor people in poor countries that we sell our children who have too much?
+ - Its unfortunate and I really wish I wouldn’t have to say this, but I really like human beings who have suffered. They’re kinder.
+ - The Catholic Church – it’s so difficult because I don’t want say anything offensive but it makes me very angry that religious leaders from this faith have tried to respond negatively to sexual education and to the promotion of condom use.
+ - Once you’re a mom, you’ve been split into two people. It’s like Peter Pan and his shadow.
+ - Difficult for actors to extemporise in nineteenth-century English. Except for Robert Hardy and Elizabeth Spriggs, who speak that way anyway.
+ - My husband is here and I’d like to thank him, for many things, but first of all for pointing out that I had a big hole in my frock and then that my nipples were pointing in different directions. It’s good to have an expert there to help you with that sort of thing.
+ - I Don’t Need the nicotene patch, Penny – I smoke cigarettes.
+ - My appearance has changed a lot over the years, but it has far more to do with how I feel about being a woman.
+ - You can’t imagine what satisfaction can be gotten from throwing a pie into someone’s face.
+ - Don’t ever go on a diet. Just don’t. Walk away. Diets are the spawn of Satan.
+ - Let’s stop feeling so guilty about global warming.
+ - My mother has never approved of high heels. As a result, I have never been able to walk in high heels – and they were all I ever wanted. So of course, my daughter has two pairs.
+ - It’s not my fault that there is this gap between rich and poor, it is the fault of governments. I want a different world. One where I don’t wake up thinking I’m so lucky to be able to feed my daughter.
+ - I firmly believe there are books whose greatness actually enable you to live.
+ - I think people say you shouldn’t work with children or animals, but you must only work with children.
+ - I hate the way market forces try to separate us out in to the appropriate demographic – basically in order to sell us things. We need to find stories that we can enjoy together, not separately.
+ - There is that thing about not working with animals and children – I don’t think that’s true. Although you should never work with donkeys.
+ - The flashbacks are parallel for me. You experience two storylines at the same time, and I’m not switching from one time to another.
+ - I have a nervous breakdown in the film and in one scene I get to stand at the top of the stairs waving an empty sherry bottle which is, of course, a typical scene from my daily life, so isn’t much of a stretch.
+ - Children don’t need much advice but they really do need to be listened to and not just with half an ear.
+ - Indeed – judicious, consistent parenting is a dream of mine. No judgements, learning space and listening carefully are my goals.
+ - Sometimes I get to put on posh frocks and be Madam Glamour, the vendor of my wares. My lovely friend Kath, a stylist, puts me into things I’d never dream of. But my real life is very different. It’s very, very home-based – an intense domestic life, that’s the core of everything.
+ - If you don’t want women to do whatever they need to do then you must provide them with food, you must provide them with shelter and their basic human rights.
+ - I do think that despite my best efforts to resist it, I am now a grown-up. It’s due to lots of very difficult decisions that you make over a long period of time – about motherhood, wifehood, and work, and all the things that one has to make decisions about.
+ - It’s such a cold night and it’s the only time I’ve actively been grateful for menopause. I’ve been entirely comfortable.
+ - Children are much more understanding of the suddenness and arbitrariness of death than we are. The old fairy tales contain a lot of that, and we’ve stolen from them, just as they stole from Greek myth, which has that same mixture of pre-Christian chaos.
+ - Without the ice, the earth will fall.
+ - The trouble is it’s very difficult to pin-point the most important thing because Aids affects everyone in different levels of society, differently and you have to respond to it differently.
+ - I have a lot of people to thank but they’re none of them here so I’m not going to bother.
+ - Can he love her? Can the soul really be satisfied with such polite affections? To love is to burn – to be on fire, like Juliet or Guinevere or Eloise...
+ - I’ve never been on the cover of Empire. I’m very bitter. I’ve got an award but now I feel sad and cross.
+ - Children are the most wonderful audiences. What’s struck me most is that that they watch it so silently, until the end when they shriek and shout and clap.
+ - It’s about time a 55-year-old British woman is the heroine of an action movie. I may have to write it.
+ - When husbands and fathers leave, their wives and daughters tend to value themselves less as a result.
+ - Tell him I mind having to look pretty, that’s what I mind, because it is so much more of an effort.
+ - I don’t mean being famous is a perk, because one knows that it’s not necessarily a perk, but there are certain perks to being well-known and respected in one’s field. Public perks. Like, I don’t know, general friendliness and willingness to please, just to point out two.
+ - It doesn’t matter how good the movie is. What matters is what it takes during the opening weekend. It’s slightly distressing sometimes but that’s how it works.
+ - British aren’t really known for their physical loveliness but firemen, generally speaking, are gorgeous.
+ - You can’t be a great mum and work the whole time necessarily; those two things aren’t ideal. We have an awful lot to work on and to debate about in relation to our working lives, because it isn’t working for a lot of people, particularly for a lot of women.
+ - I’ve realized that in all the great stories, even if there’s a happily-ever-after ending, there’s something sad.
+ - We’ve got people looking at our seamy side and our sad side a lot of the time because that’s easier. It’s much more difficult to make a film about happiness with lots of jokes in it.
+ - There is a painful difference between the expectation of an unpleasant event and its final certainty.
+ - I think the point about ActionAid is what it’s asking people to do is engage with poor people in developing countries and understand what their lives are like and understand how the way we live our lives impacts on theirs.
+ - And it’s absolutely true that male sexual behaviour and female responses to male demands change a lot when they start communicating – and the levels of the communication that I’ve seen on the ground in very, very poor areas are so high and I think why don’t we have that here?
+ - This morning, I went to wipe my hands on a tea towel, and while I was using it, it seemed like it felt a bit light. I unfolded it and realized my daughter had cut little bits out of it to make frocks for her dolls!
+ - I think that my work is my attempt, I suppose, is to try and become a piece of connective tissue. I’m trying to communicate with people here and in America – in rich countries – about what I see on the ground in badly affected areas.
+ - We belabour, I think, under a very heavy crust of consumerism really.
+ - I think that the Bible as a system of moral guidance in the 21st century is insufficient, to put it mildly. I feel quite strongly that we need a new moral lodestone if we can’t rely on what is inside our own selves. Which I think, actually, is pretty reliable.
+ - I have had lots of friends who’ve been affected by Aids and a very good friend of mine, Oscar Moore, died of Aids and I was with him in his last year quite a bit. And of course he was a man living in a very rich culture with a wealthy family who was able to afford health care.
+ - If there’s a role you’re playing and there’s a great deal of material to explore because the person was real then it’s a completely different preparation time and message to playing someone fictional.
+ - Why do we wear them? They’re so painful.
+ - A lot of very beautiful women can be a pain because all they’re thinking about is how they look.
+ - The films I’ve made for children have been my hardest work, my best, because kids deserve the best.
+ - Laughter is a celebration of our failings. That’s what clowns are for. And that’s what I am.
+ - Sometimes you’ll have some things, and sometimes you’ll have other things. And you do not need it all at once; it’s not good for you.
+ - I ask Laurie it it’s possible to get trained fish. Lindsay says this is how we know I’ve never produced a movie.
+ - We have to reinvest, I think, in the idea of articulacy as a form of personal human freedom and power.
+ - Lindsay Doran goes round the table and introduces everyone – making it clear that I am present in the capacity of writer rather than actress, therefore no one has to be too nice to me.
+ - I understand what it’s like to come with your family, and to uproot yourself and come to another culture. You need a lot of support. People say, ‘She’s got her daughter; she’s got her husband.’ Yeah, but she hasn’t got anyone else.
+ - I have to write for everyone. What really fascinates me is how you make films or make stories that can genuinely be shared by different groups.
+ - During an election, it’s like they’re doing my job: they’re going around banging the drum for their party and selling their movie. You know, it’s the same thing.
+ - London has always been a haven for victims of cruelty, and been improved by them. Yet I can see it changing now. Outsiders are demonised, there are little bits of legislation, people are scared.
+ - It is remarkable how many misconceptions there are here about life in the developing world and I think that that knowledge gap has done a lot to contribute to the imbalance quite frankly.
+ - If you’ve got to my age, you’ve probably had your heart broken many times. So it’s not that difficult to unpack a bit of grief from some little corner of your heart and cry over it.
+ - I don’t have technique because I never learnt any.
+ - What was important was trying to create something that families could watch together and enjoy together.
+ - The insanity of consumption bothers me. Talk about the opiate of the masses. It ain’t religion anymore. It’s stuff.
+ - Film is so much to do with perfection and how differently you can feel about someone at the beginning of the film and the end of the film.
+ - I present the nominees, well, not me the Voice of God, for Best Screenplay.
+
+90 quotes

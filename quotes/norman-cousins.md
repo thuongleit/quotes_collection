@@ -1,0 +1,126 @@
+ - Death is not the greatest loss in life. The greatest loss is what dies inside us while we live.
+ - The tragedy of life is not death but what we let die inside of us while we live.
+ - Belief creates biology.
+ - Laughter is a form of internal jogging. It moves your internal organs around. It enhances respiration. It is an igniter of great expectations.
+ - Death is not the greatest tragedy in life. The greatest tragedy is what dies inside us while we live. We need not fear death. We need fear only that we may exist without having sensed something of the possibilities that lie within human existence.
+ - A library is the delivery room for the birth of ideas, a place where history comes to life.
+ - Do you prefer that you be right or happy?
+ - The greatest force in the human body is the natural drive of the body to heal itself – but that force in not independent of the belief system. Everything begins with belief. What we believe is the most powerful option of all.
+ - Your heaviest artillery will be your will to live. Keep that big gun going.
+ - The purpose of education is to enable us to develop to the fullest that which is inside us.
+ - The essence of man is imperfection. Failure is simply a price we pay to achieve success. If we learn to embrace that new definition of failure, then we are free to start moving ahead – and failing forward.
+ - The control center of your life is your attitude.
+ - Just as there is no loss of basic energy in the universe, so no thought or action is without its effects, present or ultimate, seen or unseen, felt or unfelt.
+ - Hearty laughter is a good way to jog internally without having to go outdoors.
+ - Respect for the fragility and importance of an individual life is still the mark of an educated man.
+ - History is a vast early warning system.
+ - Laughter is inner jogging.
+ - Laughter serves as a blocking agent. Like a bullet-proof vest, it may help protect you against the ravages of negative emotions that can assault you in disease.
+ - Cynicism is intellectual treason.
+ - The tragedy of life is in what dies inside a man while he lives – the death of genuine feeling, the death of inspired response, the awareness that makes it possible to feel the pain or the glory of other men in yourself.
+ - Drugs are not always necessary. Belief in recovery always is.
+ - Never deny a diagnosis, but do deny the negative verdict that may go with it.
+ - The possibility of war increases in direct proportion to the effectiveness of the instruments of war.
+ - Laughter may or may not activate the endorphins or enhance respiration, as some medical researchers contend. What seems clear, however, is that laughter is an antidote to apprehension and panic.
+ - Reverence for life is more than solicitude or sensitivity for life. It is a sense of the whole, a capacity for inspired response, a respect for the intricate universe of individual life. It is the supreme awareness of awareness itself.
+ - Nothing is more powerful than an individual acting out their conscience, thus helping bring the collective conscience to life.
+ - Silence must be comprehended as not solely the absence of sound. It is the natural environment for serenity and contemplation. Life without silence is life without privacy. The difference between sanity and madness is the quality of our thoughts. Silence is on the side of sanity.
+ - The heart of the matter is that some people like to cause injury or death to living things. And many of those who do not are indifferent to those who do.
+ - The capacity for hope is the most significant fact of life.
+ - Integration is a basic law of life; when we resist it, disintegration is the natural result, both inside and outside of us. Thus we come to the concept of harmony through integration.
+ - Nixon’s motto was, if two wrongs don’t make a right, try three.
+ - Laughter is a powerful way to tap positive emotions.
+ - Since the human body tends to move in the direction of its expectations- plus or minus-it is important to know that attitudes of confidence and determination are no less a part of the treatment program than medical science and technology.
+ - Don’t defy the diagnosis, try to defy the verdict.
+ - It makes little difference how many university courses or degrees a person may own. If he cannot use words to move an idea from one point to another, his education is incomplete.
+ - Of all the gifts bestowed by nature on human beings, hearty laughter must be close to the top.
+ - Nothing is more essential in the treatment of serious disease than the liberation of the patient from panic and foreboding.
+ - He who keeps his cool best wins.
+ - The human body experiences a powerful gravitational pull in the direction of hope.
+ - Hope is independent of the apparatus of logic.
+ - In a democracy, the individual enjoys not only the ultimate power but carries the ultimate responsibility.
+ - The growth of the human mind is still high adventure, in many ways the highest adventure on earth.
+ - A casual attitude toward human hurt and pain is the surest sign of educational failure.
+ - The starting point for a better world is the belief that it is possible.
+ - The marvelous pharmacy that was designed by nature and placed into our being by the universal architect produces most of the medicines we need.
+ - Progress begins with the belief that what is necessary is possible.
+ - Optimism doesn’t wait on facts. It deals with prospects. Pessimism is a waste of time.
+ - People are never more insecure than when they become obsessed with their fears at the expense of their dreams.
+ - All things are possible, once enough human beings realize that everything is at stake.
+ - The main trouble with despair is that it is self-fulfilling. People who fear the worst tend to invite it. Heads that are down can’t scan the horizon for new openings. Bursts of energy do not spring from a spirit of defeat. Ultimately, helplessness leads to hopelessness.
+ - We are becoming a nation of sissies and hypochondriacs, a self medicating society easily intimidated by pain and prone to panic. We understand almost nothing about the essential robustness of the human body or its ability to meet the challenge of illness.
+ - The more serious the illness, the more important it is for you to fight back, mobilizing all your resources-spiritual, emotional, intellectual, physical.
+ - The individual is capable of both great compassion and great indifference. He has it within his means to nourish the former and outgrow the latter.
+ - The human body experiences a powerful gravitational pull in the direction of hope. That is why the patient’s hopes are the physician’s secret weapon. They are the hidden ingredients in any prescription.
+ - You are younger today than you will ever be again. Make use of it for the sake of tomorrow.
+ - A human being fashions his consequences as surely as he fashions his goods or his dwelling. Nothing that he says, thinks or does is without consequences.
+ - Pessimism is a waste of time.
+ - If there is a conflict between the easy drift of prosperity and the ordeal of peace, the ordeal of peace comes first.
+ - Ten minutes of genuine belly laughter had an anesthetic effect and would give me at least two hours of pain-free sleep.
+ - An adequate share of humor and laughter represents an essential part of the diet of the healthy person.
+ - For every low there is an equal but opposite high.
+ - More and more, the choice for the world’s people is between world warriors and world citizens.
+ - Hope, purpose and determination are not merely mental states. They have electrochemical connections that affect the immune system.
+ - We in America have everything we need except the most important thing of all-time to think and the habit of thought.
+ - Life is an adventure in forgiveness.
+ - I’ve learned that next to the atomic bomb, the greatest danger is defeatism, despair, and inadequate awareness of what human beings possess. I feel that any problem that can be defined is capable of being resolved. Out of this has come my conviction that no person knows enough to be a pessimist.
+ - The message from the moon which we have flashed to the far corners of this planet is that no problem need any longer be considered insoluble.
+ - Infinity converts the possible into the inevitable.
+ - All this sensory input, which begins in the brain, has its effect throughout the body.
+ - We will not have peace by afterthought.
+ - Second only to freedom, learning is the most precious option on earth.
+ - The essence of man is imperfection.
+ - Nature has not been lavish in her endowments, but each person has his or her own potential in terms of achievement and service. The awareness of that potential is the discovery of purpose; the fulfillment of that potential is the discovery of strength.
+ - Man is not imprisoned by habit. Great changes in him can be wrought by crisis – once that crisis can be recognized and understood.
+ - Assume responsibility for the quality of your own life.
+ - Death is not the enemy; living in constant fear of it is.
+ - The most costly disease is boredom costly for both individual and society.
+ - The main trouble with despair is that it is self-fulfilling.
+ - Pain is part of the body’s magic. It is the way the body transmits a sign to the brain that something is wrong.
+ - Intelligence and the spirit of adventure can be combined to create new energies, and out of these energies may come exciting and rewarding new prospects.
+ - A book is like a piece of rope; it takes on meaning only in connection with the things it holds together.
+ - Although a man may have no jurisdiction over the fact of his existence, he can hold supreme command over the meaning of existence for him.
+ - If the United Nations is to survive, those who represent it must bolster it; those who advocate it must submit to it; and those who believe in it must fight for it.
+ - It is no longer correct to regard higher education solely as a privilege. It is a basic right in today’s world.
+ - The old emphasis upon superficial differences that separate peoples must give way to education for citizenship in the human community.
+ - If news is not really news unless it is bad news, it may be difficult to claim we are an informed nation.
+ - Education tends to be diagrammatic and categorical, opening up no sluices in the human imagination on the wonder of the beauty of our unique estate in the cosmos. Little wonder that it becomes so easy for our young to regard human hurt casually or to be uninspired by the magic of sensitivity.
+ - Unobstructed access to facts can produce unlimited good only if it is matched by the desire and ability to find out what they mean and where they lead.
+ - To talk about the need for perfection in man is to talk about the need for another species.
+ - At a Dodger baseball game in Los Angeles, I asked Will Durant if he was ninety-four or ninety-five. “Ninety-four,” he said. “You don’t think I’d be doing anything as foolish as this if I were ninety-five, do you?”
+ - The need is to recognize that The patient is the healer, Not the doctor.
+ - I cannot affirm God if I fail to affirm man. Therefore, I affirm both. Without a belief in human unity I am hungry and incomplete. Human unity is the fulfillment of diversity. It is the harmony of opposites. It is a many-stranded texture, with color and depth.
+ - The one thing I have learned about editing over the years is that you have to edit and publish out of your own tastes, enthusiasms, and concerns, and not out of notions or guesswork about what other people might like to read.
+ - The way a book is read, which is to say, the qualities a reader brings to a book can have as much to do with its worth as anything the author puts into it.
+ - History is an accumulation of error.
+ - The sense of paralysis proceeds not so much out of the mammoth size of the problem but out of the puniness of the purpose.
+ - The doctor knows that it is the prescription slip itself, even more than what is written on it, that is often the vital ingredient for enabling a patient to get rid of whatever is ailing him.
+ - War is an invention of the human mind. The human mind can invent peace with justice.
+ - It is reasonable to expect the doctor to recognize that science may not have all the answers to problems of health and healing.
+ - Freedom of religion, as the Founding Fathers saw it, was not just the right to associate oneself with a certain denomination but the right to disassociate without penalty. Belief or nonbelief was a matter of individual choice – a right underwritten in the basic charter of the nation’s liberties.
+ - We are wide-eyed in contemplating the possibility that life may exist elsewhere in the universe, but we wear blinders when contemplating the possibilities of life on earth.
+ - The life-force may be the least understood force on earth.
+ - Education fails unless the Three R’s at one end of the school spectrum lead ultimately to the Four P’s at the other-Preparati on for Earning, Preparation for Living, Preparation for Understanding, Preparation for Participation in the problems involved in the making of a better world.
+ - All men – whether they go by the name of Americans or Russians or Chinese or British or Malayans or Indians or Africans – have obligations to one another that transcend their obligations to their sovereign societies.
+ - What a man really says when he says that someone else can be persuaded by force, is that he himself is incapable of more rational means of communication.
+ - If something comes to life in others because of you, then you have made an approach to immortality.
+ - It is well known that panic, despair, depression, hate, rage, exasperation, frustration all produce negative biochemical changes in the body.
+ - The eternal quest of the individual human being is to shatter his loneliness.
+ - The physician knows that his little black bag can carry him only so far and that the body’s own healing system is the main resource.
+ - I have learned never to underestimate the capacity of the human mind and body to regenerate – even when prospects seem most wretched. The life force may be the least understood force on earth.
+ - Where is the indignation about the fact that the US and USSR have thirty thousand pounds of destructive force for every human being in the world?
+ - The poet reminds men of their uniqueness and it is not necessary to possess the ultimate definition of this uniqueness. Even to speculate is a gain.
+ - Words have to be crafted, not sprayed. They need to be fitted together with infinite care.
+ - What was most significant about the lunar voyage was not that men set foot on the moon but that they set eye on the earth.
+ - We have learned to live in a world of mistakes and defective products as if they were necessary to life. It is time to adopt a new philosophy in America.
+ - The only security for the American people today, or for any people, is to be found through the control of force rather than the use of force.
+ - Governments are not built to perceive large truths. Only people can perceive great truths. Governments specialize in small and intermediate truths. They have to be instructed by their people in great truths.
+ - Why are people more appalled at what they term an unnatural form of dying than by an unnatural form of living?
+ - My reason nourishes my faith and my faith my reason.
+ - The main failure of education is that it has not prepared people to comprehend matters concerning human destiny.
+ - The physician’s ability to reassure the patient is a major factor in activating the body’s own healing system.
+ - The real wealth, not only of America, but of the world, is in the resources of the ground we stand on, and in the resources of the humankind.
+ - What people most need now is to apply their conversion skills to those things that are essential for their survival. They need to convert facts into logic, free will into purpose, conscience into decision. They need to convert historical experience into a design for a sane world.
+ - The capacity for hope is the most significant fact of life. It provides human beings with a sense of destination and the energy to get started.
+
+124 quotes

@@ -1,0 +1,386 @@
+ - Poetry is the spontaneous overflow of powerful feelings: it takes its origin from emotion recollected in tranquility.
+ - Come grow old with me. The best is yet to be.
+ - Rest and be thankful.
+ - Faith is a passionate intuition.
+ - Come forth into the light of things, let nature be your teacher.
+ - Fill your paper with the breathings of your heart.
+ - That though the radiance which was once so bright be now forever taken from my sight. Though nothing can bring back the hour of splendor in the grass, glory in the flower. We will grieve not, rather find strength in what remains behind.
+ - Knowing that Nature never did betray the heart that loved her; ’tis her privilege, through all the years of this our life, to lead from joy to joy.
+ - I wandered lonely as a cloud That floats on high o’er vales and hills When all at once I saw a crowd A host of golden daffodils Beside the lake beneath the trees Fluttering and dancing in the breeze.
+ - Let Nature be your teacher.
+ - Bliss it was in that dawn to be alive But to be young was very heaven.
+ - A mind forever Voyaging through strange seas of Thought, alone.
+ - The childhood of today is the manhood of tomorrow.
+ - Poetry is emotion recollected in tranquillity.
+ - One impulse from a vernal wood May teach you more of man, Of moral evil and of good, Than all the sages can.
+ - For oft, when on my couch I lie in vacant or in pensive mood they flash upon that inward eye which is the bliss of solitude.
+ - Have I not reason to lament What man has made of man?
+ - That best portion of a man’s life, his little, nameless, unremembered acts of kindness and love.
+ - We will grieve not, rather find strength in what remains behind.
+ - Where is it now, the glory and the dream?
+ - How does the Meadow flower its bloom unfold? Because the lovely little flower is free down to its root, and in that freedom bold.
+ - How many undervalue the power of simplicity ! But it is the real key to the heart.
+ - On Man, on Nature, and on Human Life, Musing is solitude.
+ - The world is too much with us; late and soon, getting and spending, we lay waste our powers: Little we see in Nature that is ours.
+ - Love betters what is best.
+ - Habit rules the unreflecting herd.
+ - Some natural sorrow, loss, or pain That has been, and may be again.
+ - The education of circumstances is superior to that of tuition.
+ - We live by admiration, hope and love.
+ - Wisdom and Spirit of the universe! Thou soul, that art the eternity of thought, And giv’st to forms and images a breath And everlasting motion.
+ - Our birth is but a sleep and a forgetting; The Soul that rises with us, our life’s Star, Hath had elsewhere its setting, And cometh from afar;.
+ - The child is father of the man: And I could wish my days to be Bound each to each by natural piety.
+ - Not without hope we suffer and we mourn.
+ - The good die first, and they whose hearts are dry as summer dust, burn to the socket.
+ - Books are the best type of the influence of the past.
+ - Free as a bird to settle where I will.
+ - A deep distress has humanised my soul.
+ - Wild is the music of autumnal winds Amongst the faded woods.
+ - What are fears but voices airy? Whispering harm where harm is not. And deluding the unwary Till the fatal bolt is shot!
+ - To the solid ground Of Nature trusts the mind which builds for aye.
+ - Strongest minds are often those whom the noisy world hears least.
+ - In that sweet mood when pleasant thoughts bring sad thoughts to the mind.
+ - Let the moon shine on the in thy solitary walk; and let the misty mountain-winds be free to blow against thee.
+ - Sweet childish days, that were as long, As twenty days are now.
+ - What we have loved Others will love And we will teach them how.
+ - Though nothing can bring back the hour Of splendour in the grass, of glory in the flower.
+ - A genial hearth, a hospitable board, and a refined rusticity.
+ - Pictures deface walls more often than they decorate them.
+ - Plain living and high thinking are no more.
+ - A primrose by the river’s brim A yellow rose was to him. And it was nothing more.
+ - And suddenly all your troubles melt away, all your worries are gone, and it is for no reason other than the look in your partner’s eyes. Yes, sometimes life and love really is that simple.
+ - She dwelt among the untrodden ways Beside the springs of Dove, A maid whom there were none to praise And very few to love.
+ - Continuous as the stars that shine And twinkle on the milky way, They stretch’d in never-ending line Along the margin of a bay: Ten thousand saw I at a glance Tossing their heads in sprightly dance.
+ - There was a time when meadow, grove, and stream, The earth, and every common sight, To me did seem Apparelled in celestial light, The glory and the freshness of a dream.
+ - We murder to dissect.
+ - Earth has not anything to show more fair.
+ - Imagination is the means of deep insight and sympathy, the power to conceive and express images removed from normal objective reality.
+ - Wisdom is oftentimes nearer when we stoop than when we soar.
+ - We Poets in our youth begin in gladness; But thereof come in the end despondency and madness.
+ - May books and nature be their early joy!
+ - With an eye made quiet by the power of harmony, and the deep power of joy, we see into the life of things.
+ - A brotherhood of venerable trees.
+ - The eye – it cannot choose but see; we cannot bid the ear be still; our bodies feel, where’er they be, against or with our will.
+ - Our birth is but a sleep and a forgetting. Not in entire forgetfulness, and not in utter nakedness, but trailing clouds of glory do we come.
+ - And homeless near a thousand homes I stood, And near a thousand tables pined and wanted food.
+ - Truth takes no account of centuries.
+ - To me the meanest flower that blows can give thoughts that do often lie too deep for tears.
+ - Two voices are there; one is of the sea, One of the mountains: each a mighty Voice.
+ - Then my heart with pleasure fills And dances with the daffodils.
+ - The gods approve The depth, and not the tumult, of the soul.
+ - Be mild, and cleave to gentle things, thy glory and thy happiness be there.
+ - What is pride? A rocket that emulates the stars.
+ - The sunshine is a glorious birth; But yet I know, where’er I go, That there hath passed away a glory from the earth.
+ - A lake carries you into recesses of feeling otherwise impenetrable.
+ - She lived unknown, and few could know When Lucy ceased to be; But she is in her grave, and oh The difference to me!
+ - Poetry is the breath and finer spirit of all knowledge; it is the impassioned expression which is in the countenance of all Science.
+ - But hearing oftentimes The still, sad music of humanity.
+ - The vision and the faculty divine; Yet wanting the accomplishment of verse.
+ - Hunt half a day for a forgotten dream.
+ - Because the good old rule Sufficeth them,-the simple plan, That they should take who have the power, And they should keep who can.
+ - My apprehension comes in crowds, I dread the rustling of the grass, The very shadows of the clouds, Have power to shake me as they pass, I question things and do not find, one that will answer to my mind, And all the world appears unkind.
+ - Ne’er saw I, never felt, a calm so deep! The river glideth at his own sweet will; Dear God! the very houses seem asleep; And all that mighty heart is lying still!
+ - The ocean is a mighty harmonist.
+ - Happier of happy though I be, like them I cannot take possession of the sky, mount with a thoughtless impulse, and wheel there, one of a mighty multitude whose way and motion is a harmony and dance magnificent.
+ - When from our better selves we have too long been parted by the hurrying world, and droop. Sick of its business, of its pleasures tired, how gracious, how benign is solitude.
+ - Of friends, however humble, scorn not one.
+ - Stern Winter loves a dirge-like sound.
+ - A simple child. That lightly draws its breath. And feels its life in every limb. What should it know of death?
+ - Love, faithful love, recalled thee to my mind – But how could I forget thee?
+ - Science appears but what in truth she is, Not as our glory and our absolute boast, But as a succedaneum, and a prop To our infirmity.
+ - I bounded o’er the mountains, by the sides of the deep rivers, and the lonely streams, wherever nature led.
+ - Dust as we are, the immortal spirit grows Like harmony in music; there is a dark Inscrutable workmanship that reconciles Discordant elements, makes them cling together In one society.
+ - A perfect woman, nobly planned, To warn, to comfort, and command; And yet a Spirit still, and bright With something of angelic light.
+ - Elysian beauty, melancholy grace, Brought from a pensive though a happy place.
+ - The first cuckoo’s melancholy cry.
+ - Small service is true service, while it lasts.
+ - Hearing often-times the still, sad music of humanity, nor harsh nor grating, though of ample power to chasten and subdue.
+ - Ten thousand saw I at a glance, tossing their heads in sprightly dance.
+ - The primal duties shine aloft, like stars; The charities that soothe, and heal, and bless, Are scattered at the feet of Man, like flowers.
+ - Great God! I’d rather be A Pagan suckled in a creed outworn; So might I, standing on this pleasant lea, Have glimpses that would make me less forlorn; Have sight of Proteus rising from the sea; Or hear old Triton blow his wreathed horn.
+ - I travelled among unknown men, In lands beyond the sea; Nor England! did I know till then What love I bore to thee.
+ - She gave me eyes, she gave me ears; And humble cares, and delicate fears; A heart, the fountain of sweet tears; And love and thought and joy.
+ - All that we behold is full of blessings.
+ - Fluttering and dancing in the breeze.
+ - Death is the quiet haven of us all.
+ - Through primrose tufts, in that sweet bower, The periwinkle trailed its wreaths; And ’tis my faith that every flower Enjoys the air it breathes.
+ - Like an army defeated the snow hath retreated.
+ - We live by Admiration, Hope, and Love; And, even as these are well and wisely fixed, In dignity of being we ascend.
+ - This City now doth like a garment wear The beauty of the morning; silent, bare, Ships, towers, domes, theatres and temples lie Open unto the fields and to the sky; All bright and glittering in the smokeless air.
+ - Enough, if something from our hands have power To live, and act, and serve the future hour; And if, as toward the silent tomb we go, Through love, through hope, and faith’s transcendent dower, We feel that we are greater than we know.
+ - Therefore am I still a lover of the meadows and the woods, and mountains; and of all that we behold from this green earth.
+ - And when the stream Which overflowed the soul was passed away, A consciousness remained that it had left Deposited upon the silent shore Of memory images and precious thoughts That shall not die, and cannot be destroyed.
+ - The thought of death sits easy on the man Who has been born and dies among the mountains.
+ - By all means sometimes be alone; salute thyself; see what thy soul doth wear; dare to look in thy chest; and tumble up and down what thou findest there.
+ - This solitary Tree! a living thing Produced too slowly ever to decay; Of form and aspect too magnificent To be destroyed.
+ - His love was like the liberal air, embracing all, to cheer and bless.
+ - That blessed mood in which the burthen of the mystery, in which the heavy and the weary weight of all this unintelligible world is lightened.
+ - Not Chaos, not the darkest pit of lowest Erebus, nor aught of blinder vacancy, scooped out by help of dreams – can breed such fear and awe as fall upon us often when we look into our Minds, into the Mind of Man.
+ - The Poet, gentle creature as he is, Hath, like the Lover, his unruly times; His fits when he is neither sick nor well, Though no distress be near him but his own Unmanageable thoughts.
+ - Where the statue stood Of Newton, with his prism and silent face, The marble index of a mind forever Voyaging through strange seas of thought alone.
+ - Our noisy years seem moments in the being Of the eternal Silence.
+ - The mind of man is a thousand times more beautiful than the earth on which he dwells.
+ - Thought and theory must precede all salutary action; yet action is nobler in itself than either thought or theory.
+ - Sweet is the lore which nature brings, our meddeling interlect mis-shapes the beautious forms of things. we murder to dissect.
+ - Choice word and measured phrase above the reach Of ordinary men.
+ - Laying out grounds may be considered a liberal art, in some sort like poetry and painting.
+ - Miss not the occasion; by the forelock take that subtle power, the never-halting time.
+ - Hope smiled when your nativity was cast, Children of Summer!
+ - The child shall become father to the man.
+ - Minds that have nothing to confer find little to perceive.
+ - Oh, be wise, Thou! Instructed that true knowledge leads to love.
+ - Nor will I then thy modest grace forget, Chaste Snow-drop, venturous harbinger of Spring, And pensive monitor of fleeting years!
+ - Ah, what a warning for a thoughtless man, Could field or grove, could any spot of earth, Show to his eye an image of the pangs Which it hath witnessed,-render back an echo Of the sad steps by which it hath been trod!
+ - The mind that is wise mourns less for what age takes away; than what it leaves behind.
+ - The bosom-weight, your stubborn gift, That no philosophy can lift.
+ - The holy time is quiet as a nun Breathless with adoration.
+ - Not in Utopia, – subterranean fields, – Or some secreted island, Heaven knows whereBut in the very world, which is the worldOf all of us, – the place where in the endWe find our happiness, or not at all.
+ - To be a Prodigal’s favourite,-then, worse truth, A Miser’s pensioner,-behold our lot!
+ - The flower that smells the sweetest is shy and lowly.
+ - Or shipwrecked, kindles on the coast False fires, that others may be lost.
+ - Delivered from the galling yoke of time.
+ - Meek Walton’s heavenly memory.
+ - Our birth is but a sleep and a forgetting...
+ - Getting and spending, we lay waste our powers.
+ - For I have learned to look on nature, not as in the hour of thoughtless youth, but hearing oftentimes the still, sad music of humanity.
+ - He murmurs near the running brooks A music sweeter than their own.
+ - But who, if he be called upon to face Some awful moment to which Heaven has joined Great issues, good or bad for humankind, Is happy as a lover.
+ - The clouds that gather round the setting sun, Do take a sober colouring from an eye, That hath kept watch o’er man’s mortality.
+ - Heaven lies about us in our infancy! Shades of the prison-house begin to close upon the growing boy.
+ - Come, blessed barrier between day and day, Dear mother of fresh thoughts and joyous health!
+ - Imagination, which in truth Is but another name for absolute power And clearest insight, amplitude of mind, And reason, in her most exalted mood.
+ - Me this uncharted freedom tires; I feel the weight of chance desires, My hopes no more must change their name, I long for a repose that ever is the same.
+ - A creature not too bright or good For human nature’s daily food; For transient sorrows, simple wiles, Praise, blame, love, kisses, tears, and smiles.
+ - On Man, on Nature, and on Human Life, Musing in solitude, I oft perceive Fair trains of images before me rise, Accompanied by feelings of delight Pure, or with no unpleasing sadness mixed.
+ - Plain living and high thinking are no more. The homely beauty of the good old cause Is gone; our peace, our fearful innocence, And pure religion breathing household laws.
+ - And you must love him, ere to you He will seem worthy of your love.
+ - The budding rose above the rose full blown.
+ - Lady of the Mere, Sole-sitting by the shores of old romance.
+ - In truth the prison, unto which we doom Ourselves, no prison is.
+ - There is creation in the eye.
+ - The Rainbow comes and goes, And lovely is the Rose.
+ - The soft blue sky did never melt Into his heart; he never felt The witchery of the soft blue sky!
+ - Pleasure is spread through the earth In stray gifts to be claimed by whoever shall find.
+ - Suffering is permanent, obscure and dark, And shares the nature of infinity.
+ - Oft on the dappled turf at ease I sit, and play with similes, Loose type of things through all degrees.
+ - Wisdom married to immortal verse.
+ - Delight and liberty, the simple creed of childhood.
+ - Books! tis a dull and endless strife: Come, hear the woodland linnet, How sweet his music! on my life, There’s more of wisdom in it.
+ - Far from the world I walk, and from all care.
+ - The harvest of a quiet eye, That broods and sleeps on his own heart.
+ - The stars of midnight shall be dear To her; and she shall lean her ear In many a secret place Where rivulets dance their wayward round, And beauty born of murmuring sound Shall pass into her face.
+ - Life is divided into three terms – that which was, which is, and which will be. Let us learn from the past to profit by the present, and from the present, to live better in the future.
+ - Wrongs unredressed, or insults unavenged.
+ - Bright flower! whose home is everywhere Bold in maternal nature’s care And all the long year through the heir Of joy or sorrow, Methinks that there abides in thee Some concord with humanity, Given to no other flower I see The forest through.
+ - Look at the fate of summer flowers, which blow at daybreak, droop ere even-song.
+ - The homely beauty of the good old cause Is gone.
+ - A babe, by intercourse of touch I held mute dialogues with my Mother’s heart.
+ - Up! up! my friend, and quit your books, Or surely you ’ll grow double! Up! up! my friend, and clear your looks! Why all this toil and trouble?
+ - The daisy, by the shadow that it casts, Protects the lingering dewdrop from the sun.
+ - I’ll teach my boy the sweetest things; I’ll teach him how the owlet sings.
+ - A flock of sheep that leisurely pass by One after one; the sound of rain, and bees Murmuring; the fall of rivers, winds and seas, Smooth fields, white sheets of water, and pure sky – I’ve thought of all by turns, and still I lie Sleepless...
+ - We must be free or die, who speak the tongue That Shakespeare spake; the faith and morals hold Which Milton held.
+ - There’s something in a flying horse, There’s something in a huge balloon.
+ - For nature then to me was all in all.
+ - Nature never did betray the heart that loved her.
+ - Stern daughter of the voice of God! O Duty! if that name thou love Who art a light to guide, a rod To check the erring and reprove.
+ - Never to blend our pleasure or our pride With sorrow of the meanest thing that feels.
+ - Huge and mighty forms that do not live like living men, moved slowly through the mind by day and were trouble to my dreams.
+ - Milton, in his hand The thing became a trumpet.
+ - The common growth of Mother Earth Suffices me,-her tears, her mirth, Her humblest mirth and tears.
+ - Ethereal minstrel! pilgrim of the sky! Dost thou despise the earth where cares abound? Or, while the wings aspire, are heart and eye Both with thy nest upon the dewy ground?
+ - His high endeavours are an inward light That makes the path before him always bright.
+ - I, methought, while the sweet breath of heaven Was blowing on my body, felt within A correspondent breeze, that gently moved With quickening virtue, but is now become A tempest, a redundant energy, Vexing its own creation.
+ - Provoke The years to bring the inevitable yoke.
+ - I listened, motionless and still; And, as I mounted up the hill, The music in my heart I bore, Long after it was heard no more.
+ - Whom neither shape of danger can dismay, Nor thought of tender happiness betray.
+ - My heart leaps up when I behold A rainbow in the sky: So was it when my life began; So is it now I am a man;.
+ - The sounding cataract Haunted me like a passion; the tall rock, The mountain, and the deep and gloomy wood, An appetite; a feeling and a love that had no need of a remoter charm by thought supplied, nor any interest Unborrowed from the eye.
+ - Poetry is the first and last of all knowledge – it is as immortal as the heart of man.
+ - O joy! that in our embers Is something that doth live, That nature yet remembers What was so fugitive!
+ - Primroses, the Spring may love them; Summer knows but little of them.
+ - There is One great society alone on earth: The noble living and the noble dead.
+ - The light that never was, on sea or land; The consecration, and the Poet’s dream.
+ - Give all thou canst; high Heaven rejects the lore of nicely-caluculated less or more.
+ - A happy youth, and their old age Is beautiful and free.
+ - The fretful stir Unprofitable, and the fever of the world Have hung upon the beatings of my heart.
+ - No motion has she now, no force; she neither hears nor sees; rolled around in earth’s diurnal course, with rocks, and stones, and trees.
+ - Dreams, books, are each a world.
+ - Pansies, lilies, kingcups, daisies, Let them live upon their praises.
+ - The weight of sadness was in wonder lost.
+ - But an old age serene and bright, and lovely as a Lapland night, shall lead thee to thy grave.
+ - Poetry is most just to its divine origin, when it administers the comforts and breathes the thoughts of religion.
+ - Sensations sweet, Felt in the blood, and felt along the heart.
+ - In years that bring the philosophic mind.
+ - How fast has brother followed brother, From sunshine to the sunless land!
+ - Serene will be our days, and bright and happy will our nature be, when love is an unerring light, and joy its own security.
+ - When men change swords for ledgers, and desert The student’s bower for gold, some fears unnamed I had, my Country – am I to be blamed?
+ - Heaven lies about us in our infancy.
+ - Give unto me, made lowly wise, The spirit of self-sacrifice; The confidence of reason give, And in the light of truth thy bondman let me live!
+ - One that would peep and botanize Upon his mother’s grave.
+ - A cheerful life is what the Muses love. A soaring spirit is their prime delight.
+ - Departing summer hath assumed An aspect tenderly illumed, The gentlest look of spring; That calls from yonder leafy shade Unfaded, yet prepared to fade, A timely carolling.
+ - The thought of our past years in me doth breed perpetual benedictions.
+ - Who, doomed to go in company with Pain And Fear and Bloodshed,-miserable train!- Turns his necessity to glorious gain.
+ - Bright gem instinct with music, vocal spark.
+ - Father! – to God himself we cannot give a holier name.
+ - True dignity abides with him alone Who, in the silent hour of inward thought, Can still suspect, and still revere himself, In lowliness of heart.
+ - Chains tie us down by land and sea; And wishes, vain as mine, may be All that is left to comfort thee.
+ - The earth was all before me. With a heart Joyous, nor scared at its own liberty, I look about; and should the chosen guide Be nothing better than a wandering cloud, I cannot miss my way.
+ - O Cuckoo! shall I call thee bird, Or but a wandering voice?
+ - In heaven above, And earth below, they best can serve true gladness Who meet most feelingly the calls of sadness.
+ - Nor less I deem that there are Powers Which of themselves our minds impress; That we can feed this mind of ours In a wise passiveness.
+ - As high as we have mounted in delight, In our dejection do we sink as low.
+ - Fear is a cloak which old men huddle about their love, as if to keep it warm.
+ - For mightier far Than strength of nerve or sinew, or the sway Of magic potent over sun and star, Is love, though oft to agony distrest, And though his favourite be feeble woman’s breast.
+ - The feather, whence the pen Was shaped that traced the lives of these good men, Dropped from an angel’s wing.
+ - The Poet binds together by passion and knowledge the vast empire of human society.
+ - Fiction; inner thoughts of Elisha True beauty dwells in deep retreats, Whose veil is unremoved Till heart with heart in concord beats, And the lover is beloved.
+ - And mighty poets in their misery dead.
+ - Myriads of daisies have shone forth in flower Near the lark’s nest, and in their natural hour Have passed away; less happy than the one That by the unwilling ploughshare died to prove The tender charm of poetry and love.
+ - That to this mountain-daisy’s self were known The beauty of its star-shaped shadow, thrown On the smooth surface of this naked stone!
+ - A famous man is Robin Hood, The English ballad-singer’s joy.
+ - Neither evil tongues, rash judgments, nor the sneers of selfish men, nor greetings where no kindness is, nor all the dreary intercourse of daily life, shall ever prevail against us.
+ - Scorn not the sonnet. Critic, you have frowned, Mindless of its just honours; with this key Shakespeare unlocked his heart.
+ - Spires whose “silent finger points to heaven.”
+ - Knowledge and increase of enduring joy From the great Nature that exists in works Of mighty Poets.
+ - Though inland far we be, Our souls have sight of that immortal sea Which brought us hither.
+ - Let beeves and home-bred kine partake The sweets of Burn-mill meadow; The swan on still St. Mary’s Lake Float double, swan and shadow!
+ - Thou unassuming common-place of Nature, with that homely face.
+ - And now I see with eye serene, The very pulse of the machine. A being breathing thoughtful breaths, A traveler between life and death.
+ - One in whom persuasion and belief Had ripened into faith, and faith become A passionate intuition.
+ - But thou that didst appear so fair To fond imagination, Dost rival in the light of day Her delicate creation.
+ - With battlements that on their restless fronts Bore stars.
+ - Recognizes ever and anon The breeze of Nature stirring in his soul.
+ - From the body of one guilty deed a thousand ghostly fears and haunting thoughts proceed.
+ - Poetry has never brought me in enough money to buy shoestrings.
+ - Type of the wise who soar but never roam, True to the kindred points of heaven and home.
+ - Babylon, Learned and wise, hath perished utterly, Nor leaves her speech one word to aid the sigh That would lament her.
+ - For youthful faults ripe virtues shall atone.
+ - The intellectual power, through words and things, Went sounding on a dim and perilous way!
+ - We have within ourselves Enough to fill the present day with joy, And overspread the future years with hope.
+ - Great men have been among us; hands that penn’d And tongues that utter’d wisdom – better none.
+ - The Primrose for a veil had spread The largest of her upright leaves; And thus for purposes benign, A simple flower deceives.
+ - My eyes are dim with childish tears, My heart is idly stirred, For the same sound is in my ears Which in those days I heard.
+ - A multitude of causes unknown to former times are now acting with a combined force to blunt the discriminating powers of the mind, and unfitting it for all voluntary exertion to reduce it to a state of almost savage torpor.
+ - Pleasures newly found are sweet When they lie about our feet.
+ - The unconquerable pang of despised love.
+ - The wind, a sightless laborer, whistles at his task.
+ - Blessings be with them, and eternal praise, Who gave us nobler loves, and nobler cares!- The Poets, who on earth have made us heirs Of truth and pure delight by heavenly lays.
+ - A light to guide, a rod To check the erring, and reprove.
+ - Golf is a day spent in a round of strenuous idleness.
+ - And when a damp Fell round the path of Milton, in his hand The thing became a trumpet; whence he blew Soul-animating strains,-alas! too few.
+ - A lawyer art thou? Draw not nigh! Go, carry to some fitter place The keenness of that practised eye, The hardness of that sallow face.
+ - The sightless Milton, with his hair Around his placid temples curled; And Shakespeare at his side,-a freight, If clay could think and mind were weight, For him who bore the world!
+ - O dearer far than light and life are dear.
+ - Sweet Mercy! to the gates of heaven This minstrel lead, his sins forgiven; The rueful conflict, the heart riven With vain endeavour, And memory of Earth’s bitter leaven Effaced forever.
+ - Nuns fret not at their convent’s narrow room; And hermits are contented with their cells.
+ - In modern business it is not the crook who is to be feared most, it is the honest man who doesn’t know what he is doing.
+ - Yet tears to human suffering are due; And mortal hopes defeated and o’erthrown Are mourned by man, and not by man alone.
+ - If thou art beautiful, and youth and thought endue thee with all truth-be strong; – be worthy of the grace of God.
+ - And the most difficult of tasks to keep Heights which the soul is competent to gain.
+ - Milton! thou should’st be living at this hour: England hath need of thee: she is a fen Of stagnant waters.
+ - At length the man perceives it die away, And fade into the light of common day.
+ - For all things are less dreadful than they seem.
+ - Those old credulities, to Nature dear, Shall they no longer bloom upon the stock Of history?
+ - O Reader! had you in your mind Such stores as silent thought can bring, O gentle Reader! you would find A tale in everything.
+ - There is a luxury in self-dispraise; And inward self-disparagement affords To meditative spleen a grateful feast.
+ - The softest breeze to fairest flowers gives birth: Think not that Prudence dwells in dark abodes, She scans the future with the eye of gods.
+ - Rapine, avarice, expense, This is idolatry; and these we adore; Plain living and high thinking are no more.
+ - Oh, blank confusion! true epitome Of what the mighty City is herself, To thousands upon thousands of her sons, Living amid the same perpetual whirl Of trivial objects, melted and reduced To one identity.
+ - The monumental pomp of age Was with this goodly personage; A stature undepressed in size, Unbent, which rather seemed to rise In open victory o’er the weight Of seventy years, to loftier height.
+ - Oh for a single hour of that Dundee Who on that day the word of onset gave!
+ - When his veering gait And every motion of his starry train Seem governed by a strain Of music, audible to him alone.
+ - The streams with softest sound are flowing, The grass you almost hear it growing, You hear it now, if e’er you can.
+ - Of all that is most beauteous, imaged there In happier beauty; more pellucid streams, An ampler ether, a diviner air, And fields invested with purpureal gleams.
+ - Dreams, books, are each a world; and books, we know, Are a substantial world, both pure and good: Round these, with tendrils strong as flesh and blood, Our pastime and our happiness will grow.
+ - Meek Nature’s evening comment on the shows That for oblivion take their daily birth From all the fuming vanities of earth.
+ - That mighty orb of song, The divine Milton.
+ - Rapt into still communion that transcends The imperfect offices of prayer and praise, His mind was a thanksgiving to the power That made him; it was blessedness and love!
+ - By happy chance we saw A twofold image: on a grassy bank A snow-white ram, and in the crystal flood Another and the same!
+ - The mightiest lever known to the world: imagination.
+ - Those obstinate questionings Of sense and outward things, Fallings from us, vanishings; Blank misgivings of a Creature Moving about in worlds not realised, High instincts before which our mortal Nature Did tremble like a guilty thing surprised.
+ - As generations come and go, Their arts, their customs, ebb and flow; Fate, fortune, sweep strong powers away, And feeble, of themselves, decay.
+ - The mysteries that cups of flowers infold And all the gorgeous sights which fairies do behold.
+ - Men are we, and must grieve when even the shade Of that which once was great is passed away.
+ - The best of what we do and are, Just God, forgive!
+ - But who would force the soul tilts with a straw Against a champion cased in adamant.
+ - Spade! Thou art a tool of honor in my hands. I press thee, through a yielding soil, with pride.
+ - Every gift of noble origin Is breathed upon by Hope’s perpetual breath.
+ - Turning, for them who pass, the common dust Of servile opportunity to gold.
+ - A youth to whom was given So much of earth, so much of heaven.
+ - How is it that you live, and what is it you do?
+ - Often have I sighed to measure By myself a lonely pleasure,- Sighed to think I read a book, Only read, perhaps, by me.
+ - We bow our heads before Thee, and we laud, And magnify thy name Almighty God! But man is thy most awful instrument, In working out a pure intent.
+ - Stop thinking for once in your life!
+ - I’m not talking about a “show me other walls of this thing” button, I mean a “stumble” button for wallbase.
+ - And through the heat of conflict keeps the law In calmness made, and sees what he foresaw.
+ - But He is risen, a later star of dawn.
+ - Prompt to move but firm to wait – knowing things rashly sought are rarely found.
+ - A few strong instincts and a few plain rules.
+ - These hoards of wealth you can unlock at will.
+ - That kill the bloom before its time, And blanch, without the owner’s crime, The most resplendent hair.
+ - Monastic brotherhood, upon rock Aerial.
+ - And what if thou, sweet May, hast known Mishap by worm and blight; If expectations newly blown Have perished in thy sight; If loves and joys, while up they sprung, Were caught as in a snare; Such is the lot of all the young, However bright and fair.
+ - The Eagle, he was lord above.
+ - The wealthiest man among us is the best.
+ - He spake of love, such love as spirits feel In worlds whose course is equable and pure; No fears to beat away, no strife to heal,- The past unsighed for, and the future sure.
+ - The memory of the just survives in Heaven.
+ - Whose dwelling is the light of setting suns.
+ - On a fair prospect some have looked, And felt, as I have heard them say, As if the moving time had been A thing as steadfast as the scene On which they gazed themselves away.
+ - Faith is, necessary to explain anything, and to reconcile the foreknowledge of God with human evil.
+ - But how can he expect that others should Build for him, sow for him, and at his call Love him, who for himself will take no heed at all?
+ - Brothers all In honour, as in one community, Scholars and gentlemen.
+ - All men feel a habitual gratitude, and something of an honorable bigotry, for the objects which have long continued to please them.
+ - Society became my glittering bride, And airy hopes my children.
+ - Since every mortal power of Coleridge Was frozen at its marvellous source, The rapt one, of the godlike forehead, The heaven-eyed creature sleeps in earth: And Lamb, the frolic and the gentle, Has vanished from his lonely hearth.
+ - Alas! how little can a moment show Of an eye where feeling plays In ten thousand dewy rays: A face o’er which a thousand shadows go!
+ - What know we of the Blest above but that they sing, and that they love?
+ - A power is passing from the earth.
+ - One of those heavenly days that cannot die.
+ - As in the eye of Nature he has lived, So in the eye of Nature let him die!
+ - Like thoughts whose very sweetness yielded proof that they were born for immortality.
+ - She seemed a thing that could not feel the touch of earthly years.
+ - The oldest man he seemed that ever wore grey hairs.
+ - I should dread to disfigure the beautiful ideal of the memories of illustrious persons with incongruous features, and to sully the imaginative purity of classical works with gross and trivial recollections.
+ - He who feels contempt for any living thing hath faculties that he hath never used, and thought with him is in its infancy.
+ - Oft in my way have I stood still, though but a casual passenger, so much I felt the awfulness of life.
+ - A tale in everything.
+ - Wisdom sits with children round her knees.
+ - Controls them and subdues, transmutes, bereaves Of their bad influence, and their good receives.
+ - Earth helped him with the cry of blood.
+ - The very flowers are sacred to the poor.
+ - In that sweet mood when pleasure loves to pay Tribute to ease; and, of its joy secure, The heart luxuriates with indifferent things, Wasting its kindliness on stocks and stones, And on the vacant air.
+ - Truths that wake To perish never.
+ - Take the sweet poetry of life away, and what remains behind?
+ - Yet sometimes, when the secret cup Of still and serious thought went round, It seemed as if he drank it up, He felt with spirit so profound.
+ - Worse than idle is compassion if it ends in tears and sighs.
+ - Sad fancies do we then affect, In luxury of disrespect To our own prodigal excess Of too familiar happiness.
+ - For by superior energies; more strict affiance in each other; faith more firm in their unhallowed principles, the bad have fairly earned a victory over the weak, the vacillating, inconsistent good.
+ - With little here to do or see Of things that in the great world be, Sweet Daisy! oft I talk to thee For thou art worthy, Thou unassuming commonplace Of Nature, with that homely face, And yet with something of a grace Which love makes for thee!
+ - A man he seems of cheerful yesterdays And confident tomorrows.
+ - The human mind is capable of excitement without the application of gross and violent stimulants; and he must have a very faint perception of its beauty and dignity who does not know this.
+ - Great is the glory, for the strife is hard!
+ - But to a higher mark than song can reach, Rose this pure eloquence.
+ - While all the future, for thy purer soul, With “sober certainties” of love is blest.
+ - Everything is tedious when one does not read with the feeling of the Author.
+ - Burn all the statutes and their shelves: They stir us up against our kind; And worse, against ourselves.
+ - Men who can hear the Decalogue, and feel To self-reproach.
+ - To be young was very heaven!
+ - Every great and original writer, in proportion as he is great and original, must himself create the taste by which he is to be relished.
+ - Tis not in battles that from youth we train The Governor who must be wise and good, And temper with the sternness of the brain Thoughts motherly, and meek as womanhood.
+ - And I am happy when I sing.
+ - And often, glad no more, We wear a face of joy because We have been glad of yore.
+ - One with more of soul in his face than words on his tongue.
+ - One solace yet remains for us who came Into this world in days when story lacked Severe research, that in our hearts we know How, for exciting youth’s heroic flame, Assent is power, belief the soul of fact.
+ - And he is oft the wisest manWho is not wise at all.
+ - But hushed be every thought that springs From out the bitterness of things.
+ - A Briton even in love should be A subject, not a slave!
+ - Shalt show us how divine a thing A woman may be made.
+ - Wisdom and spirit of the Universe!
+ - Nature’s old felicities.
+ - We meet thee, like a pleasant thought, When such are wanted.
+ - Thou has left behind Powers that will work for thee,-air, earth, and skies! There ’s not a breathing of the common wind That will forget thee; thou hast great allies; Thy friends are exultations, agonies, And love, and man’s unconquerable mind.
+ - Great God! I’d rather be a Pagan...
+
+384 quotes

@@ -1,0 +1,74 @@
+ - Quality, not quantity, is my measure.
+ - Luck, mere luck may make even madness wisdom.
+ - Earth is here so kind, that just tickle her with a hoe and she laughs with a harvest.
+ - After all there is something about a wedding-gown prettier than in any other gown in the world.
+ - A man never so beautifully shows his own strength as when he respects a woman’s softness.
+ - Religion is in the heart, not in the knees.
+ - Keep your eyes and ears open, if you desire to get on in the world.
+ - There are some people as obtuse in recognizing an argument as they are in appreciating wit. You couldn’t drive it into their heads with a hammer.
+ - We are all slaves to the shining metal.
+ - Love the sea? I dote upon it – from the beach.
+ - It takes all sorts of people to make a world.
+ - He who owns the soil, owns up to the sky.
+ - The sharp employ the sharp; verily, a man may be known by his attorney.
+ - I would like to have a second chance at my first love.
+ - If slander be a snake, it is a winged one – it flies as well as creeps.
+ - He was so benevolent, so merciful a man that, in his mistaken passion, he would have held an umbrella over a duck in a shower of rain.
+ - Self-defense is the clearest of all laws; and for this reason – the lawyers didn’t make it.
+ - Humor is the harmony of the heart.
+ - Not peace at any price! Chains are worse than bayonets.
+ - A pill that the present moment is daily bread to thousands.
+ - A man is in no danger so long as he talks his love; but to write it is to impale himself on his own pothooks.
+ - Habitual intoxication is the epitome of every crime.
+ - Slugs crawl and crawl over our cabbages, like the world’s slander over a good name. You may kill them, it is true; but there is the slime.
+ - A piece of simple goodness – a letter gushing from the heart; a beautiful unstudied vindication of the worth and untiring sweetness of human nature – a record of the invulnerability of man, armed with high purpose, sanctified by truth.
+ - A man, so to speak, who is not able to bow to his own conscience every morning is hardly in a condition to respectfully salute the world at any other time of the day.
+ - The sharp employ the sharp.
+ - Gravity is more suggestive than convincing.
+ - Rogues are prone to find things before they are lost.
+ - A conservative is a man who will not look at the new moon out of respect for that ‘ancient institution’ the old one.
+ - Fortunes made in no time are like shirts made in no time; it’s ten to one if they hang long together.
+ - Some people are so fond of ill luck that they run halfway to meet it.
+ - There are a good many pious people who are as careful of their religion as of their best service of china, only using it on holy occasions, for fear it should get chipped or flawed in working-day wear.
+ - Women, somehow, have the same fear of witty men as of fireworks.
+ - In this world truth can wait; she is used to it.
+ - Duty, though set about by thorns, may still be made a staff supporting even while it tortures. Cast it away, and, like the prophet’s wand, it changes to a snake.
+ - We love peace, but not peace at any price.
+ - Even the worse of jobs has their pleasures, if I were a grave digger or a hangmen, there are some people I could work for with a great deal of enjoyment.
+ - Dogmation is puppyism come to its full growth.
+ - The language of women should be luminous, but not voluminous.
+ - If an earthquake were to engulf England tomorrow, the English would manage to meet and dine somewhere among the rubbish, just to celebrate the event.
+ - Wit, like money, bears an extra value when rung down immediately it is wanted. Men pay severely who require credit.
+ - The blackest of fluid is used as an agent to enlighten the world.
+ - O this itch of the ear, that breaks out at the tongue! Were not curiosity so over-busy, detraction would soon be starved to death.
+ - There is peace more destructive of the manhood of living man than war is destructive of his material body.
+ - Etiquette has no regard for moral qualities.
+ - Modesty is a bright dish-cover, which makes us fancy there is something very nice underneath it.
+ - I never hear the rattling of dice that it does not sound to me like the funeral bell of the whole family.
+ - What women would do if they could not cry, nobody knows. What poor, defenceless creatures they would be!
+ - Intemperance is the epitome of every crime, the cause of every kind of misery.
+ - That questionable superfluity small beer.
+ - Virtue is a beautiful thing in woman when they don’t go about with it like a child with a drum making all sorts of noise with it.
+ - The best thing I know between France and England is the sea.
+ - Don’t buy a single vote more than necessary.
+ - Wishes, at least, are the easy pleasures of the poor.
+ - Fix yourself upon the wealthy. In a word, take this for a golden rule through life: Never, never have a friend that is poorer than yourself.
+ - A coquette is like a recruiting sergeant, always on the lookout for fresh victims.
+ - Nothing is so beneficial to a young author as the advice of a man whose judgment stands constitutionally at the freezing-point.
+ - Nature designed us to be of good cheer.
+ - Troubles are like babies – they only grow by nursing.
+ - Wits, like drunken men with swords, are apt to draw their steel upon their best acquaintances.
+ - Patience is the strongest of strong drinks; for it kills the giant despair.
+ - As for the brandy, “nothing extenuate”; and the water, put nought in in malice.
+ - Grumblers deserve to be operated upon surgically; their trouble is usually chronic.
+ - Reputations, like beavers and cloaks, shall last some people twice the time of others.
+ - Literature, like a gypsy, to be picturesque, should be a little ragged.
+ - Marriage is like wine. It is not be properly judged until the second glass.
+ - Man owes two solemn debts – one to society, and one to-nature. It is only when he pays the second that he covers the first.
+ - Malice blunts the point of wit.
+ - He is one of those wise philanthropists who, in a time of famine, would vote for nothing but a supply of toothpicks.
+ - That man is thought a dangerous knave, Or zealot plotting crime, Who for advancement of his kind Is wiser than his time.
+ - A creature undefiled by the taint of the world, unvexed by its injustice, unwearied by its hollow pleasures; a being fresh from the source of light, with something of its universal lustre in it. If childhood be this, how holy the duty to see that in its onward growth it shall be no other!
+ - The only athletic sport I ever mastered was backgammon.
+
+72 quotes

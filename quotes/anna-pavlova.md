@@ -1,0 +1,27 @@
+ - Dance is the purest expression of every emotion, earthly and spiritual.
+ - Where there is no heart there is no art.
+ - If I can not dance, I shall die!
+ - Get my swan costume ready.
+ - Master technique and then forget about it and be natural.
+ - If I could have said it, I shouldn’t have had to dance it.
+ - God gives talent. Work transforms talent into genius.
+ - Success depends in a very large measure upon individual initiative and exertion, and cannot be achieved except by a dint of hard work.
+ - A true artist should have no secrets. On the stage, you must be able to transmit every emotion to the spectator.
+ - If I can’t dance then I’d rather be dead.
+ - When a small child, I thought that success spelled happiness. I was wrong, happiness is like a butterfly which appears and delights us for one brief moment, but soon flits away.
+ - To strive tirelessly and at all times to reach one’s goal – therein lies the secret of success.
+ - To tend, unfailingly, unflinchingly, towards a goal, is the secret of success.
+ - To follow without halt, one aim; there is the secret of success. And success? What is it? I do not find it in the applause of the theater; it lies rather in the satisfaction of accomplishment.
+ - Play the last measure very softly.
+ - What exactly is success? For me it is to be found not in applause, but in the satisfaction of feeling that one is realizing one’s ideal.
+ - Although one may fail to find happiness in theatrical life, one never wishes to give it up after having once tasted its fruits.
+ - The right to happiness is fundamental.
+ - To follow, without halt, one aim: There’s the secret of success.
+ - Once upon a time the English knew who they were.
+ - I danced from the moment I could stand.
+ - The more you look back into English history, the more you are forced to the conclusion that alongside civility and the deeply held convictions about individual rights, the English have a natural taste for disorder.
+ - Whenever I have had a sudden urge to quit dancing, I just remember that moment I had when I was young and remember that dancing is what I want to do.
+ - It is by the steady elimination of everything which is ugly – thoughts and words no less than tangible objects – and by the substitution of things of true and lasting beauty that the whole progress of humanity proceeds.
+ - It is useless to dabble in beauty. One must be utterly devoted to beauty, with every nerve of the body.
+
+25 quotes

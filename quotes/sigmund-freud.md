@@ -1,0 +1,398 @@
+ - One day, in retrospect, the years of struggle will strike you as the most beautiful.
+ - Words have a magical power. They can either bring the greatest happiness or the deepest despair.
+ - Out of your vulnerabilities will come your strength.
+ - Being entirely honest with oneself is a good exercise.
+ - We choose not randomly each other. We meet only those who already exists in our subconscious.
+ - Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways.
+ - The goal of all life is death.
+ - Love is a state of temporary psychosis.
+ - The only person with whom you have to compare ourselves, is that you in the past. And the only person better you should be, this is who you are now.
+ - Love and work, work and love... that’s all there is.
+ - Psychoanalysis is in essence a cure through love.
+ - Where does a thought go when it’s forgotten?
+ - Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility.
+ - I cannot think of any need in childhood as strong as the need for a father’s protection.
+ - Dreams are the royal road to the unconscious.
+ - Love and work are the cornerstones of our humanness.
+ - We are what we are because we have been what we have been.
+ - Psychiatry is the art of teaching people how to stand on their own feet while reclining on couches.
+ - Not all men are worthy of love.
+ - The mind is like an iceberg, it floats with one-seventh of its bulk above water.
+ - There are no mistakes.
+ - Religion is a universal obsessional neurosis.
+ - Where id was, there ego shall be.
+ - In the small matters trust the mind, in the large ones the heart.
+ - Without love we fall ill.
+ - The paranoid is never entirely mistaken.
+ - I prefer the company of animals more than the company of humans. Certainly, a wild animal is cruel. But to be merciless is the privilege of civilized humans.
+ - The sexual life of adult women is a “dark continent” for psychology.
+ - The voice of reason is small, but very persistent.
+ - How bold one gets when one is sure of being loved.
+ - The voice of the intellect is a soft one, but it does not rest until it has gained a hearing.
+ - From error to error one discovers the entire truth.
+ - It is not attention that the child is seeking, but love.
+ - All family life is organized around the most damaged person in it.
+ - The first requisite of civilization is that of justice.
+ - A strong egoism is a protection.
+ - If youth knew; if age could.
+ - Time spent with cats is never wasted.
+ - There is a powerful force within us, an un-illuminated part of the mind – separate from the conscious mind that is constantly at work molding our thought, feelings, and actions.
+ - Maturity is the ability to postpone gratification.
+ - I’ve been a fortunate man in life. Nothing has come easily.
+ - The liberty of the individual is no gift of civilization. It was greatest before there was any civilization.
+ - Words have a magical power. They can bring either the greatest happiness or deepest despair; they can transfer knowledge from teacher to student; words enable the orator to sway his audience and dictate its decisions. Words are capable of arousing the strongest emotions and prompting all men’s actions.
+ - If you can’t do it, give up!
+ - Poets are masters of us ordinary men, in knowledge of the mind, because they drink at streams which we have not yet made accessible to science.
+ - Loneliness and darkness have just robbed me of my valuables.
+ - Everywhere I go I find that a poet has been there before me.
+ - Dreams are often most profound when they seem the most crazy.
+ - A piece of creative writing, like a day-dream, is a continuation of, and a substitute for, what was once the play of childhood.
+ - Crystals reveal their hidden structures only when broken.
+ - Anxiety in children is originally nothing other than an expression of the fact they are feeling the loss of the person they love.
+ - The madman is a dreamer awake.
+ - History is just new people making old mistakes.
+ - If you want your wife to listen to you, then talk to another woman; she will be all ears.
+ - Two hallmarks of a healthy life are the abilities to love and to work. Each requires imagination.
+ - Dreams are constructed from the residue of yesterday.
+ - The Irish are the one race for which psychoanalysis is of no use whatsoever... because they already live in a dream world.
+ - Men are more moral than they think and far more immoral than they can imagine.
+ - In mourning it is the world which has become poor and empty; in melancholia it is the ego itself.
+ - Civilization began the first time an angry person cast a word instead of a rock.
+ - The news that reaches your consciousness is incomplete and often not to be relied on... Turn your eyes inward, look into your own depths, learn first to know yourself!
+ - The only shame in masturbation is the shame of not doing it well.
+ - Dreams are the guardians of sleep and not its disturbers.
+ - Writers write for fame, wealth, power and the love of women.
+ - Were we fully to understand the reasons for other people’s behavior, it would all make sense.
+ - The dream is the liberation of the spirit from the pressure of external nature, a detachment of the soul from the fetters of matter.
+ - To be completely honest with oneself is the very best effort a human being can make.
+ - All giving is asking, and all asking is an asking for love.
+ - The poor ego has a still harder time of it; it has to serve three harsh masters, and it has to do its best to reconcile the claims and demands of all three... The three tyrants are the external world, the superego, and the id.
+ - The virtuous man contents himself with dreaming that which the wicked man does in actual life.
+ - Only the real, rare, true scientific minds can endure doubt, which is attached to all our knowledge.
+ - The conscious mind may be compared to a fountain playing in the sun and falling back into the great subterranean pool of subconscious from which it rises.
+ - My boy! Smoking is one of the greatest and cheapest enjoyments in life, and if you decide in advance not to smoke, i can only feel sorry for you.
+ - A father’s death is the most important event, the more heartbreaking and poignant loss in a man’s life.
+ - All that matters is love and work.
+ - My love is something valuable to me which I ought not to throw away without reflection.
+ - Sometimes a cigar is just a cigar.
+ - Desire presses ever forward unsubdued.
+ - The ego is not master in its own house.
+ - When inspiration does not come to me, I go halfway to meet it.
+ - Words and magic were in the beginning one and the same thing, and even today words retain much of their magical power.
+ - Religion is a system of wishful illusions together with a disavowal of reality, such as we find nowhere else but in a state of blissful hallucinatory confusion. Religion’s eleventh commandment is “Thou shalt not question.
+ - In the depths of my heart I can’t help being convinced that my dear fellow-men, with a few exceptions, are worthless.
+ - Knowledge is the intellectual manipulation of carefully verified observations.
+ - No one who, like me, conjures up the most evil of those half-tamed demons that inhabit the human breast, and seeks to wrestle with them, can expect to come through the struggle unscathed.
+ - What we call happiness in the strictest sense comes from the (preferably sudden) satisfaction of needs which have been dammed up to a high degree.
+ - I have never doubted that religious phenomena are only to be understood on the pattern of the individual neurotic symptoms familiar to us.
+ - Whoever loves becomes humble. Those who love have, so to speak, pawned a part of their narcissism.
+ - One is very crazy when in love.
+ - Where such men love they have no desire and where they desire they cannot love.
+ - When we attempt to imagine death, we perceive ourselves as spectators.
+ - The different religions have never overlooked the part played by the sense of guilt in civilization. What is more, they come forward with a claim... to save mankind from this sense of guilt, which they call sin.
+ - A civilization which leaves so large a number of its participants unsatisfied and drives them into revolt neither has nor deserves the prospect of a lasting existence.
+ - Might we not say that every child at play behaves like a creative writer, in that he creates a world of his own, or, rather, rearranges the things of his world in a new way which pleases him?
+ - The ego represents what we call reason and sanity, in contrast to the id which contains the passions.
+ - The very emphasis of the commandment: Thou shalt not kill, makes it certain that we are descended from an endlessly long chain of generations of murderers, whose love of murder was in their blood as it is perhaps also in ours.
+ - Humanity is in the highest degree irrational, so that there is no prospect of influencing it by reasonable arguments. Against prejudice one can do nothing.
+ - The pleasure of satisfying a savage instinct, undomesticated by the ego, is uncomparably much more intense than the one of satisfying a tamed instinct. The reason is becoming the enemy that prevents us from a lot of possibilities of pleasure.
+ - Smoking is indispensable if one has nothing to kiss.
+ - My way of working was different years ago. I used to wait until an idea came to me. Now I go half-way to meet it, though I don’t know whether I find it any the quicker.
+ - The aim of psychoanalysis is to relieve people of their neurotic unhappiness so that they can be normally unhappy.
+ - The great question that has never been answered, and which I have not yet been able to answer, despite my thirty years of research into the feminine soul, is ‘What does a woman want?’
+ - He that has eyes to see and ears to hear may convince himself that no mortal can keep a secret. If his lips are silent, he chatters with his fingertips; betrayal oozes out of him at every pore.
+ - The interpretation of dreams is the royal road to a knowledge of the unconscious activities of the mind.
+ - Toward the person who has died we adopt a special attitude: something like admiration for someone who has accomplished a very difficult task.
+ - It might be said of psychoanalysis that if you give it your little finger it will soon have your whole hand.
+ - Illusions commend themselves to us because they save us pain and allow us to enjoy pleasure instead. We must therefore accept it without complaint when they sometimes collide with a bit of reality against which they are dashed to pieces.
+ - What a distressing contrast there is between the radiant intelligence of the child and the feeble mentality of the average adult.
+ - It is impossible to escape the impression that people commonly use false standards of measurement – that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
+ - Once again, only religion can answer the question of the purpose of life. One can hardly be wrong in concluding that the idea of life having a purpose stands and falls with the religious system.
+ - Creativity is an attempt to resolve a conflict generated by unexpressed biological impulses, such that unfulfilled desires are the driving force of the imagination, and they fuel our dreams and daydreams.
+ - The poets and philosophers before me discovered the unconscious; what I discovered was the scientific method by which the unconscious can be studied.
+ - A hero is a man who stands up manfully against his father and in the end victoriously overcomes him.
+ - Even if all parts of a problem seem to fit together like the pieces of a jigsaw puzzle, one has to remember that the probable need not necessarily be the truth and the truth not always probable.
+ - When someone abuses me I can defend myself, but against praise I am defenceless.
+ - If children could, if adults knew.
+ - A man who has been the indisputable favorite of his mother keeps for life the feeling of a conqueror.
+ - The price we pay for our advance in civilization is a loss of happiness through the heightening of the sense of guilt.
+ - Homosexuality is assuredly no advantage, but it is nothing to be ashamed of, no vice, no degradation, it cannot be classified as an illness.
+ - We may say that hysteria is a caricature of an artistic creation, a compulsion neurosis a caricature of a religion, and a paranoiac delusion a caricature of a philosophic system.
+ - A woman should soften but not weaken a man.
+ - Religion belonged to the infancy of humanity. Now that humanity had come of age, it should be left behind.
+ - A belligerent state permits itself every such misdeed, every such act of violence, as would disgrace the individual.
+ - Sexuality is the key to the problem of the psychoneuroses and of the neuroses in general. No one who disdains the key will ever be able to unlock the door.
+ - Humor is a means of obtaining pleasure in spite of the distressing effects that interface with it.
+ - Yes, America is gigantic, but a gigantic mistake.
+ - If the truth of religious doctrines is dependent on an inner experience that bears witness to the truth, what is one to make of the many people who do not have that experience?
+ - This transmissibility of taboo is a reflection of the tendency, on which we have already remarked, for the unconscious instinct in the neurosis to shift constantly along associative paths on to new objects.
+ - Conscience is the internal perception of the rejection of a particular wish operating within us.
+ - Look into the depths of your own soul and learn first to know yourself, then you will understand why this illness was bound to come upon you and perhaps you will thenceforth avoid falling ill.
+ - We know less about the sexual life of little girls than of boys. But we need not feel ashamed of this distinction; after all, the sexual life of adult women is a ‘dark continent’ for psychology.
+ - The only unnatural sexual behavior is none at all.
+ - The behavior of a human being in sexual matters is often a prototype for the whole of his other modes of reaction in life.
+ - Only a good-for-nothing is not interested in his past.
+ - A strong egoism is a protection against disease, but in the last resort we must begin to love in order that we may not fall ill, and must fall ill if, in consequence of frustration, we cannot love.
+ - A transference neurosis corresponds to a conflict between ego and id, a narcissistic neurosis corresponds to that between between ego and super-ego, and a psychosis to that between ego and outer world.
+ - The tendency to aggression is an innate, independent, instinctual disposition in man... it constitutes the powerful obstacle to culture.
+ - The most complicated achievements of thought are possible without the assistance of consciousness.
+ - In the last analysis the entire field of psychology may reduce to biological electrochemistry.
+ - The inclination to aggression constitutes the greatest impediment to civilization.
+ - Properly speaking, the unconscious is the real psychic; its inner nature is just as unknown to us as the reality of the external world, and it is just as imperfectly reported to us through the data of consciousness as is the external world through the indications of our sensory organs.
+ - When we share – that is poetry in the prose of life.
+ - Religious illusion must bow to scientific truth. It is in total error about the nature of the true world. Only science is not an illusion.
+ - I cannot face the idea of life without work. What would one do when ideas failed or words refused to come? It is impossible not to shudder at the thought.
+ - The Devil would be the best way out as an excuse for God; in that way he would be playing the same part as an agent of economic discharge as the Jew does in the world of the Aryan ideal. But even so, one can hold God responsible for the existence of the Devil just as well as for the existence of the wickedness which the Devil embodies.
+ - Analogies, it is true, decide nothing, but they can make one feel more at home.
+ - Men are strong so long as they represent a strong idea they become powerless when they oppose it.
+ - Life as we find it is too hard for us; it entails too much pain, too many disappointments, impossible tasks. We cannot do without palliative remedies.
+ - It is easy to see that the ego is that part of the id which has been modified by the direct influence of the external world.
+ - Let us consider the polarity of love and hate... Now, clinical observation shows not only that love is with unexpected regularityaccompanied by hate (ambivalence), and not only that in human relationships hate is frequently a forerunner of love, but also that in many circumstances hate changes into love and love into hate.
+ - Civilized society is perpetually menaced with disintegration through this primary hostility of men towards one another.
+ - Talk therapy turns hysterical misery to mundane unhappiness.
+ - The first human who hurled an insult instead of a stone was the founder of civilization.
+ - The whole life of instinct serves the one end of bringing about death.
+ - The creative writer does the same as the child at play; he creates a world of fantasy which he takes very seriously.
+ - The game replaces sexual enjoyment by pleasure in movement.
+ - There is no doubt that the resistance of the conscious and unconscious ego operates under the sway of the pleasure principle: it seeks to avoid the unpleasure which would be produced by the liberation of the repressed.
+ - Conservatism, however, is too often a welcome excuse for lazy minds, loath to adapt themselves to fast changing conditions.
+ - What is characteristic of illusions is that they are derived from human wishes.
+ - Civilization is a process in the service of Eros, whose purpose is to combine single human individuals, and after that families, then races, peoples and nations, into one great unity, the unity of mankind. Why this has to happen, we do not know; the work of Eros is precisely this.
+ - I have found little ‘good’ about human beings. In my experience, most of them are trash...
+ - What progress we are making. In the Middle Ages they would have burned me. Now they are content with burning my books.
+ - The price of civilization is instinctual renunciation.
+ - When a man is freed of religion, he has a better chance to live a normal and wholesome life.
+ - Adolescent stage in the development of the human race from which humanity should free itself.
+ - Analysis does not set out to make pathological reactions impossible, but to give the patient’s ego freedom to decide one way or another.
+ - Religion is an illusion and it derives its strength from the fact that it falls in with our instinctual desires.
+ - America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success.
+ - America is a mistake, admittedly a gigantic mistake, but a mistake nevertheless.
+ - If you want to endure life, prepare yourself for death.
+ - Indeed, the great Leonardo (da Vinci) remained like a child for the whole of his life in more than one way. It is said that all great men are bound to retain some infantile part. Even as an adult he continued to play, and this was another reason why he often appeared uncanny and incomprehensible to his contemporaries.
+ - Woe to you, my Princess, when I come. I will kiss you quite red and feed you till you are plump. And if you are froward, you shall see who is the stronger, a gentle little girl who doesn’t eat enough, or a big wild man who has cocaine in his body. – A love letter from Freud to his fiancée.
+ - I do not doubt that it would be easier for fate to take away your suffering than it would for me. But you will see for yourself that much has been gained if we succeed in turning your hysterical misery into common unhappiness.
+ - The ego is first and foremost a bodily ego; it is not merely a surface entity, but is itself the projection of a surface. If we wish to find an anatomical analogy for it we can best identify it with the ‘cortical homunculus’ of the anatomists, which stands on its head in the cortex, sticks up its heels, faces.
+ - The sexual wishes in regard to the mother become more intense and the father is perceived as an obstacle to the; this gives rise to the Oedipus complex.
+ - In human beings pure masculinity or femininity is not to be found either in a psychological or biological sense.
+ - As regards intellectual work it remains a fact, indeed, that great decisions in the realm of thought and momentous discoveries and solutions of problems are only possible to an individual, working in solitude.
+ - Love can not be much younger than the lust for murder.
+ - It could be ventured to understand obsessive compulsive neurosis as the pathological counterpart of religious development, to define neurosis as an individual religiosity; to define religion as a universal obsessive compulsive neurosis.
+ - No, our science is no illusion. But an illusion it would be to suppose that what science cannot give us we can get elsewhere.
+ - Religion is the process of unconscious wish fulfillment, where, for certain people, if the process did not take place it would put them in self-danger of coming to mental harm, being unable to cope with the idea of a godless, purposeless life.
+ - The motive forces of phantasies are unsatisfied wishes, and every single phantasy is the fulfillment of a wish, a correction of unsatisfying reality.
+ - I am actually not at all a man of science, not an observer, not an experimenter, not a thinker. I am by temperament nothing but a conquistador.
+ - The Mosaic religion had been a Father religion; Christianity became a Son religion. The old God, the Father, took second place; Christ, the Son, stood in His stead, just as in those dark times every son had longed to do.
+ - We find a place for what we lose. Although we know that after such a loss the acute stage of mourning will subside, we also know that we shall remain inconsolable and will never find a substitute. No matter what may fill the gap, even if it be filled completely, it nevertheless remains something else.
+ - In some place in my soul, in a very hidden corner, I am a fanatical Jew. I am very much astonished to discover myself as such in spite of all efforts to be unprejudiced and impartial. What can I do against it at my age?
+ - No one who has seen a baby sinking back satiated from the breast and falling asleep with flushed cheeks and a blissful smile can escape the reflection that this picture persists as a prototype of the expression of sexual satisfaction in later life.
+ - At bottom God is nothing more than an exalted father.
+ - Our fascination with gold is related to the fantasies of early childhood.
+ - When making a decision of minor importance, I have always found it advantageous to consider all the pros and cons.
+ - He does not believe that does not live according to his belief.
+ - Thinking is an experimental dealing with small quantities of energy, just as a general moves miniature figures over a map before setting his troops in action.
+ - An overwhelming majority of symbols in dreams are sexual symbols.
+ - What is common in all these dreams is obvious. They completely satisfy wishes excited during the day which remain unrealized. They are simply and undisguisedly realizations of wishes.
+ - When the wayfarer whistles in the dark, he may be disavowing his timidity, but he does not see any the more clearly for doing so.
+ - It is a great injustice to persecute homosexuality as a crime, and cruelty too.
+ - The great majority of people have a strong need for authority which they can admire, to which they can submit, and which dominates and sometimes even ill-treats them.
+ - When a love-relationship is at its height there is no room left for any interest in the environment; a pair of lovers are sufficient to themselves.
+ - What decides the purpose of life is simply the programme of the pleasure principle. This principle dominates the operation of the mental apparatus from the start. There can be no doubt about its efficacy, and yet its programme is at loggerheads with the whole world, with the macrocosm as much as with the microcosm.
+ - If a man has been his mother’s undisputed darling he retains throughout life the triumphant feeling, the confidence in success, which not seldom brings actual success along with it.
+ - The communal life of human beings had... a two-fold foundation: the compulsion to work, which was created by external necessity, and the power of love.
+ - Children are completely egoistic; they feel their needs intensely and strive ruthlessly to satisfy them.
+ - We are so constituted that we can gain intense pleasure only from the contrast, and only very little from the condition itself.
+ - Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone.
+ - The most ancient and important taboo prohibitions are the two basic laws of totemism: not to kill the totem animal and to avoid sexual intercourse with members of the totem clan of the opposite sex.
+ - If it’s not one thing, it’s your mother.
+ - There is to my mind no doubt that the concept of beautiful had its roots in sexual excitation and that its original meaning was sexually stimulating.
+ - There is little that gives children greater pleasure than when a grown-up lets himself down to their level, renounces his oppressive superiority and plays with them as an equal.
+ - A man like me cannot live without a hobby-horse, a consuming passion – in Schiller’s words a tyrant. I have found my tyrant, and in his service I know no limits. My tyrant is psychology. It has always been my distant, beckoning goal and now since I have hit upon the neuroses, it has come so much the nearer.
+ - I cannot face with comfort the idea of life without work; work and the free play of the imagination are for me the same thing, I take no pleasure in anything else.
+ - A religion, even if it calls itself a religion of love, must be hard and unloving to those who do not belong to it.
+ - A fear of weapons is a sign of retarded sexual and emotional maturity.
+ - Cigars served me for precisely fifty years as protection and a weapon in the combat of life... I owe to the cigar a great intensification of my capacity to work and a facilitation of my self-control.
+ - In general people experience their present naively, as it were, without being able to form an estimate of its contents; they have first to put themselves at a distance from it – the present, that is to say, must have become the past – before it can yield points of vantage from which to judge the future.
+ - Our unconscious, then, does not believe in its own death; it behaves as if it were immortal. It knows nothing that is negative; in it contradictories coincide. This may be the secret of heroism.
+ - A man should not strive to eliminate his complexes but to get into accord with them: they are legitimately what directs his conduct in the world.
+ - I am not aware, however, that patients suffering from traumatic neurosis are much occupied in their waking lives with memories of their accident. Perhaps they are more concerned with not thinking of it.
+ - Writing was in its origin, the voice of an absent person.
+ - Now it is nothing but torture.
+ - Religion originates in the child’s and young mankind’s fears and need for help. It cannot be otherwise.
+ - The meager satisfaction that man can extract from reality leaves him starving.
+ - Religion is an attempt to get control over the sensory world, in which we are placed, by means of the wish-world which we have developed inside us as a result of biological and psychological necessites.
+ - The goal towards which the pleasure principle impels us – of becoming happy – is not attainable: yet we may not – nay, cannot – give up the efforts to come nearer to realization of it by some means or other.
+ - A certain degree of neurosis is of inestimable value as a drive, especially to a psychologist.
+ - A state of consciousness is characteristically very transitory; an idea that is conscious now is no longer so a moment later, although it can become so again under certain conditions that are easily brought about.
+ - It is impossible to overlook the extent to which civilization is built upon a renunciation of instinct.
+ - Civilized people have exchanged some part of their chances of happiness for a measure of security.
+ - Cruelty and intolerance to those who do not belong to it are natural to every religion.
+ - Civilization runs a greater risk if we maintain our present attitude to religion than if we give it up.
+ - It is a predisposition of human nature to consider an unpleasant idea untrue, and then it is easy to find arguments against it.
+ - No matter how much restriction civilization imposes on the individual, he nevertheless finds some way to circumvent it. Wit is the best safety valve modern man has evolved; the more civilization, the more repression, the more need there is for wit.“.
+ - A man’s heterosexuality will not put up with any homosexuality, and vice versa.
+ - When one does not have what one wants, one must want what one has.
+ - Lead us, heavenly Father, lead us O’er the world’s tempestuous sea; guard us, guide us, keep us, feed us, for we have no help but thee.
+ - Just as a satisfaction of instinct spells happiness for us, so severe suffering is caused us if the external world lets us starve, if it refuses to sate our needs. One may therefore hope to be freed from a part of one’s sufferings by influencing the instinctual impulses.
+ - The study of dreams may be considered the most trustworthy method of investigating deep mental processes. Now dreams occurring in traumatic neuroses have the characteristic of repeatedly bringing the patient back into the situation of his accident, a situation from which he wakes up in another fright.
+ - Just as no one can be forced into belief, so no one can be forced into unbelief.
+ - The moment a man questions the meaning and value of life, he is sick, since objectively neither has any existence; by asking this question one is merely admitting to a store of unsatisfied libido to which something else must have happened, a kind of fermentation leading to sadness and depression.
+ - Intelligence will be used in the service of the neurosis.
+ - Flowers are restful to look at. They have neither emotions nor conflicts.
+ - What good to us is a long life if it is difficult and barren of joys, and if it is so full of misery that we can only welcome death as a deliverer?
+ - A poor girl may have an illusion that a prince will come and fetch her home. It is possible, some such cases have occurred. That the Messiah will come and found a golden age is much less probable.
+ - A love that does not discriminate seems to me to forfeit a part of its own value, by doing an injustice to its object; and secondly, not all men are worthy of love.
+ - Free sexual intercourse between young males and respectable girls” was urgently necessary or society was “doomed to fall a victim to incurable neuroses which reduce the enjoyment of life to a minimum, destroy the marriage relation and bring hereditary ruin on the whole coming generation.
+ - Christmas is the alcoholidays.
+ - Sadism is all right in its place, but it should be directed to proper ends.
+ - Beauty has no obvious use; nor is there any clear cultural necessity for it. Yet civilization could not do without it.
+ - The doctor should be opaque to his patients and, like a mirror, should show them nothing but what is shown to him.
+ - A strong experience in the present awakens in the creative writer a memory of an earlier experience (usually belonging to his childhood) from which there now proceeds a wish which finds its fulfilment in the creative work.
+ - You wanted to kill your father in order to be your father yourself. Now you are your father, but a dead father.
+ - It sounds not only disagreeable but also paradoxical, yet it must nevertheless be said that anyone who is to be really free and happy in love must have surmounted his respect for women and have come to terms with the idea of incest with his mother or sister.
+ - If there are quarrels between the parents or if their marriage is unhappy, the ground will be prepared in their children for the severest predisposition to a disturbance of sexual development or to neurotic illness.
+ - The pleasure principle long persists, however, as the method of working employed by the sexual instincts, which are so hard to ‘educate’, and, starting from those instincts, or in the ego itself, it often succeeds in overcoming the reality principle, to the detriment of the organism as a whole.
+ - Love in the form of longing and deprivation lowers the self regard.
+ - I had thought about cocaine in a kind of day-dream.
+ - No neurotic harbors thoughts of suicide which are not murderous impulses against others redirected upon himself.
+ - The gods retain their threefold task: they must exorcize the terrors of nature, they must reconcile men to the cruelty of Fate, particularly as it is shown in death, and they must compensate them for the sufferings and privations which a civilized life in common has imposed on them.
+ - After all, we did not invent symbolism; it is a universal age-old activity of the human imagination.
+ - Men are not gentle, friendly creatures wishing for love, who simply defend themselves if they are attacked, but... a powerful measure of desire for aggression had to be reckoned as part of their instinctual endowment.
+ - The unconscious of one human being can react upon that of another without passing through the conscious.
+ - The primitive stages can always be re-established; the primitive mind is, in the fullest meaning of the word, imperishable.
+ - Instinct of love toward an object demands a mastery to obtain it, and if a person feels they can’t control the object or feel threatened by it, they act negatively toward it.
+ - Sexual morality – as society in its extreme form, the American, defines it – is contemptible. I advocate an incomparably freer sexual life.
+ - Long ago man formed an ideal conception of omnipotence and omniscience which he embodied in his gods. Whatever seemed unattainable to his desires – or forbidden to him – he attributed to these gods... Now he has himself approached very near to realizing this ideal, he has nearly become a god himself.
+ - The transformation of object-libido into narcissistic libido which thus takes place obviously implies an abandonment of sexual aims, a desexualization – a kind of sublimation, therefore.
+ - But the less a man knows about the past and the present the more insecure must prove to be his judgment of the future.
+ - Human life in common is only made possible when a majority comes together which is stronger than any separate individual and which remains united against all separate individuals. The power of this community is then set up as right in opposition to the power of the individual, which is condemned as brute force.
+ - That which we can’t remember, we will repeat.
+ - Mans most disagreeable habits and idiosyncrasies, his deceit, his cowardice, his lack of reverence, are engendered by his incomplete adjustment to a complicated civilisation. It is the result of the conflict between our instincts and our culture.
+ - Religion is comparable to a childhood neurosis.
+ - It is always possible to bind together a considerable number of people in love, so long as there are other people left over to receive the manifestations of their aggressiveness.
+ - The impression forces itself upon one that men measure by false standards, that everyone seeks power, success, riches for himself, and admires others who attain them, while undervaluing the truly precious thing in life.
+ - Men have gained control over the forces of nature to such an extent that with their help they would have no difficulty exterminating one another to the last man. They know this, and hence comes a large part of their current unrest, their unhappiness and their mood of anxiety.
+ - The psychoanalysis of neurotics has taught us to recognize the intimate connection between wetting the bed and the character trait of ambition.
+ - One must learn to give up momentary, uncertain and destructive pleasure for delayed, restrained, but dependable pleasure.
+ - Immorality, no less than morality, has at all times found support in religion.
+ - Whatever fosters the growth of civilization works at the same time against war.
+ - To endure life remains, when all is said, the first duty of all living being Illusion can have no value if it makes this more difficult for us.
+ - The act of birth is the first experience of anxiety, and thus the source and prototype of the affect of anxiety.
+ - Concerning the factors of silence, solitude and darkness, we can only say that they are actually elements in the production of the infantile anxiety from which the majority of human beings have never become quite free.
+ - But one thing about human beings puzzles me the most is their conscious effort to be connected with the object of their affection even if it kills them slowly within.
+ - In matters of sexuality we are at present, every one of us, ill or well, nothing but hypocrites.
+ - We must not allow ourselves to be deflected by the feminists who are anxious to force us to regard the two sexes as completely equal in position and worth.
+ - The dream acts as a safety-valve for the over-burdened brain.
+ - It would be very nice if there were a God who created the world and was a benevolent providence, and if there were a moral order in the universe and an after-life; but it is a very striking fact that all this is exactly as we are bound to wish it to be.
+ - My psychoanalysis has equipped you with the equivalent of a train ticket to recovery. It is now your decision whether or not you choose to make full use of it.
+ - An intimate friend and a hated enemy have always been indispensable requirements for my emotional life; I have always been able to create them anew, and not infrequently my childish ideal has been so closely approached that friend and enemy coincided in the same person.
+ - Religious doctrines … are all illusions, they do not admit of proof, and no one can be compelled to consider them as true or to believe in them.
+ - Perhaps the gods are kind to us, by making life more disagreeable as we grow older. In the end death seems less intolerable than the manifold burdens we carry.
+ - I became aware of my destiny: to belong to the critical minority as opposed to the unquestioning majority.
+ - The defense against childish helplessness is what lends its characteristic features to the adult’s reaction to the helplessness which he has to acknowledge – a reaction which is precisely the formation of religion.
+ - Every normal person, in fact, is only normal on the average. His ego approximates to that of the psychotic in some part or other and to a greater or lesser extent.
+ - We have become convinced that it is better to avoid such symbolic disguisings of the truth in what we tell children and not to withhold from them a knowledge of the true state of affairs commensurate with their intellectual level.
+ - The three major mother gods of the Eastern populations seemed to be generating and destroying entities at the same time; both goddesses of life and fertility as well as goddesses of death.
+ - The unconscious – that is to say, the ‘repressed’ – offers no resistance whatever to the efforts of the treatment. Indeed, it itself has no other endeavour than to break through the pressure weighing down on it and force its way either to consciousness or to a discharge through some real action.
+ - Thinking in pictures is, therefore, only a very incomplete form of becoming conscious. In some way, too, it stands nearer to unconscious processes than does thinking in words, and it is unquestionably older than the latter both ontogenetically and phylogenetically.
+ - One must not be mean with affections; what is spent of the funds is renewed in the spending itself. Left untouched for too long, they diminish imperceptibly or the lock gets rusty; they are there all right but one cannot make use of them.
+ - To be sure, the ancient belief that the dream reveals the future is not entirely devoid of truth. By representing to us a wish as fulfilled the dream certainly leads us into the future; but this future, taken by the dreamer as present, has been formed into the likeness of that past by the indestructible wish.
+ - It is a mistake to believe that science consists in nothing but conclusively proved propositions, and it is unjust to demand that it should. It is a demand made by those who feel a craving for authority in some form to replace the religious catechism by something else, even a scientific one.
+ - Experience teaches that for most people there is a limit beyond which their constitution cannot comply with the demands of civilization. All who wish to reach a higher standard than their constitution will allow, fall victims to neurosis. It would have been better for them if they could have remained less “perfect”.
+ - In the long run, nothing can withstand reason and experience, and the contradiction religion offers to both is palpable.
+ - Where questions of religion are concerned, people are guilty of every possible sort of dishonesty and intellectual misdemeanor.
+ - Obviously one must hold oneself responsible for the evil impulses of one’s dreams. In what other way can one deal with them? Unless the content of the dream rightly understood is inspired by alien spirits, it is part of my own being.
+ - Neurosis is the result of a conflict between the ego and its id, whereas psychosis is the analogous outcome of a similar disturbance in the relation between the ego and the external world.
+ - It is not so much that man is a herd animal, but that he is a horde animal led by a chief.
+ - The division of the psychical into what is conscious and what is unconscious is the fundamental premise of psycho-analysis; and it alone makes it possible for psycho-analysis to understand the pathological processes in mental life, which are as common as they are important, and to find a place for them in the framework of science.
+ - I regard myself as one of the most dangerous enemies of religion.
+ - Much of our highly valued cultural heritage has been acquired at the cost of sexuality.
+ - We must reckon with the possibility that something in the nature of the sexual instinct itself is unfavorable to the realization of complete satisfaction.
+ - We have long observed that every neurosis has the result, and therefore probably the purpose, of forcing the patient out of real life, of alienating him from actuality.
+ - Man has, as it were, become a kind of prosthetic God.
+ - Another technique for fending off suffering is the employment of the displacements of libido which our mental apparatus permits of and through which its function gains so much in flexibility. The task here is that of shifting the instinctual aims in such a way that they cannot come up against frustration from the external world.
+ - Illusions commend themselves to us because they save us pain and allow us to enjoy pleasure instead.
+ - I do not in the least underestimate bisexuality... I expect it to provide all further enlightenment.
+ - The intention that man should be happy is not in the plan of Creation.
+ - Demons do not exist any more than gods do, being only the products of the psychic activity of man.
+ - The world is no nursery.
+ - Perception is less of a recording system and more of a protection system against external stimuli.
+ - The religions of mankind must be classed among the mass-delusions of this kind. No one, needless to say, who shares a delusion ever recognizes it as such...
+ - I have often felt as though I had inherited all the defiance and all the passions with which our ancestors defended their Temple and could gladly sacrifice my life for one great moment in history. And at the same time I always felt so helpless and incapable of expressing these ardent passions even by a word or a poem.
+ - Man has, as it were, become a kind of prosthetic God. When he puts on all his auxiliary organs, he is truly magnificent; but those organs have not grown on him and they still give him much trouble at times.
+ - It often seems that the poet’s derisive comment is not unjustified when he says of the philosopher: “With his nightcaps and the tatters of his dressing-gown he patches the gaps in the structure of the universe.
+ - The true believer is in a high degree protected against the danger of certain neurotic afflictions; by accepting the universal neurosis he is spared the task of forming a personal neurosis.
+ - The dream unites the grossest contradictions, permits impossibilities, sets aside the knowledge that influences us by day, and exposes us as ethically and morally obtuse.
+ - Neurotics complain of their illness, but they make the most of it, and when it comes to talking it away from them they will defend it like a lioness her young.
+ - Tobacco is the only excuse for Columbus’s misadventure in discovering America.
+ - Plaque was placed on 6 May 1977 at Bellevue (a house on the slopes of the Wienerwald) where the Freud family spent their summers.
+ - The psychic development of the individual is a short repetition of the course of development of the race.
+ - We believe that civilization has been created under the pressure of the exigencies of life at the cost of satisfaction of the instincts.
+ - The state in which the ideas existed before being made conscious is called by us repression, and we assert that the force which instituted the repression and maintains it is perceived as resistance during the work of analysis.
+ - Not to know the past is to be in bondage to it, while to remember, to know, is to be set free.
+ - But the repressed merges into the id as well, and is merely a part of it. The repressed is only cut off sharply from the ego by the resistances of repression; it can communicate with the ego through the id.
+ - I should like to raise the question whether the inevitable stunting of the sense of smell as a result of man’s turning away from the earth, and the organic repression of the smell-pleasure produced by it, does not largely share in his predisposition to nervous diseases.
+ - There is an intellectual function in us which demands unity, connection and intelligibility from any material, whether of perception or thought, that comes within its grasp; and if, as a result of special circumstances, it is unable to establish a true connection, it does not hesitate to fabricate a false one.
+ - The genitals themselves have not undergone the development of the rest of the human form in the direction of beauty.
+ - None believes in his own death. In the unconscious everyone is convinced of his own immortality.
+ - When it happens that a person has to give up a sexual object, there quite often ensues an alteration of his ego which can only be described as a setting up of the object inside the ego, as it occurs in melancholia; the exact nature of this substitution is as yet unknown to us.
+ - The idea of life having a purpose stands and falls with the religious system.
+ - I consider it a good rule for letter-writing to leave unmentioned what the recipient already knows, and instead tell him something new.
+ - We are so made that we can derive intense enjoyment only from a contrast.
+ - The ego refuses to be distressed by the provocations of reality, to let itself be compelled to suffer. It insists that it cannot be affected by the traumas of the external world; it shows, in fact, that such traumas are no more than occasions for it to gain pleasure.
+ - I no longer believe that William Shakespeare the actor from Stratford was the author of the works that have been ascribed to him.
+ - In the important decisions of personal life, we should be governed by the deep inner needs of our nature.
+ - So in every individual the two trends, one towards personal happiness and the other unity with the rest of humanity, must contend with each other.
+ - A string of reproaches against other people leads one to suspect the existence of a string of self-reproaches with the same content.
+ - A lady once expressed herself in society – the very words show that they were uttered with fervour and under the pressure of a great many secret emotions: “Yes, a woman must be pretty if she is to please the men. A man is much better off. As long as he has five straight limbs, he needs no more!”
+ - One becomes gradually accustomed to a new realization of the nature of ‘happiness’: one has to assume happiness when Fate does not carry out all its threats simultaneously.
+ - I have found little that is ‘good’ about human beings on the whole. In my experience most of them are trash, no matter whether they publicly subscribe to this or that ethical doctrine or to none at all. That is something that you cannot say aloud, or perhaps even think.
+ - The wish to be able to fly is to be understood as nothing else than a longing to be capable of sexual performance.
+ - The time comes when each of us has to give up as illusions the expectations which, in his youth, he pinned upon his fellow-men, and when he may learn how much difficulty and pain has been added to his life by their ill-will.
+ - Only a rebuke that ‘has something in it’ will sting, will have the power to stir our feelings, not the other sort, as we know.
+ - The essence of analysis is surprise. When people are themselves surprised by what they say, that’s when they are really making some progress.
+ - I was making frequent use of cocaine at that time... I had been the first to recommend the use of cocaine, in 1885, and this recommendation had brought serious reproaches down on me.
+ - Opposition is not necessarily enmity; it is merely misused and made an occasion for enmity.
+ - The individual does actually carry on a double existence: one designed to serve his own purposes and another as a link in a chain, in which he serves against, or at any rate without, any volition of his own.
+ - In the development of mankind as a whole, just as in individuals, love alone acts as the civilizing factor in the sense that it brings a change from egoism to altruism.
+ - There is a psychological technique which makes it possible to interpret dreams, and... if that procedure is employed, every dream reveals itself as a psychical structure which has a meaning and which can be inserted at an assignable point in the mental activities of waking life.
+ - The facts which have caused us to believe in the dominance of the pleasure principle in mental life also find expression in the hypothesis that the mental apparatus endeavours to keep the quantity of excitation present in it as low as possible or at least to keep it constant.
+ - It is unavoidable that if we learn more about a great man’s life, we shall also hear of occasions on which he has done no better than we, and has in fact come nearer to us as a human being.
+ - Do you not know how uncontrolled and unreliable the average human being is in all that concerns sexual life?
+ - I had the greatest respect for the authorities of my day – until I studied things for myself, and came to my own conclusions.
+ - You can always make a lot of people love one another so long as there are a smaller number outside the group for them to kick.
+ - A collection to which nothing can be added and from which nothing can be removed is, in fact, dead!
+ - The psychical, whatever its nature may be, is itself unconscious.
+ - In almost every place where we find totems we also find a law against persons of the same totem having sexual relations with one another and consequently against their marrying. This, then, is ‘exogamy’, an institution related to totemism.
+ - These patients have turned away from outer reality; it is for this reason that they are more aware than we of inner reality and can reveal to us things which without them would remain impenetrable.
+ - Nature delights in making use of the same forms in the most various biological connections: as it does, for instance, in the appearance of branch-like structures both in coral and in plants, and indeed in some forms of crystal and in certain chemical precipitates.
+ - There is no likelihood of our being able to suppress humanity’s aggressive tendencies... Complete suppression of man’s aggressive tendencies is not an issue; what we may try is to direct it into a channel other than that of warfare.
+ - I think that it is a good plan to bear in mind that people were in the habit of dreaming before there was such a thing as psychoanalysis.
+ - Hatred of Judaism is at bottom hatred of Christianity.
+ - The more the fruits of knowledge become accessible to men, the more widespread is the decline of religious belief.
+ - I have an infamously low capacity for visualizing relationships, which made the study of geometry and all subjects derived from it impossible for me.
+ - Intolerance of groups is often, strangely enough, exhibited more strongly against small differences than against fundamental ones.
+ - Like the physical, the psychical is not necessarily in reality what it appears to us to be.
+ - Incidentally, why was it that none of all the pious ever discovered psycho-analysis? Why did it have to wait for a completely godless Jew?
+ - I like to avoid concessions to faint-heartedness. One can never tell where that road may lead one; one gives way first in words, and then little by little in substance too.
+ - One must not be mean with the affections; what is spent of the fund is renewed in the spending itself.
+ - I no longer count as one of my merits that I always tell the truth as much as possible; it has become my metier.
+ - The rest of our enquiry is made easy because this God-Creator is openly called Father. Psycho-analysis concludes that he really is the father, clothed in the grandeur in which he once appeared to the small child.
+ - The reproaches against science for not having yet solved the problems of the universe are exaggerated in an unjust and malicious manner; it has truly not had time enough yet for these great achievements. Science is very young – a human activity which developed late.
+ - We should picture the instrument that carries our mental functioning as resembling a compound microscope or photographic apparatus.
+ - Obsessional prohibitions are extremely liable to displacement. They extend from one object to another along whatever paths the context may provide, and this new object then becomes, to use the apt expression of one of my women patients, ‘impossible’ – till at last the whole world lies under an embargo of ‘impossibility’.
+ - It almost looks like analysis were the third of those ‘impossible’ professions in which one can be quite sure of unsatisfying results. The other two, much older-established, are the bringing up of children and the government of nations.
+ - Religious ideas have sprung from the same need as all the other achievements of culture: from the necessity for defending itself against the crushing supremacy of nature.
+ - I do not think our successes can compete with those of Lourdes. There are so many more people who believe in the miracles of the Blessed Virgin than in the existence of the unconscious.
+ - If one wishes to form a true estimate of the full grandeur of religion, one must keep in mind what it undertakes to do for men. It gives them information about the source and origin of the universe, it assures them of protection and final happiness, and it guides – by – precepts – backed by the full force of its authority.
+ - The effect of the consolations of religion may be compared to that of a narcotic.
+ - Neither in my private life nor in my writings, have I ever made a secret of being an out-and-out unbeliever.
+ - The view is often defended that sciences should be built up on clear and sharply defined basal concepts. In actual fact no science, not even the most exact, begins with such definitions. The true beginning of scientific activity consists rather in describing phenomena and then in proceeding to group, classify and correlate them.
+ - When a man has once brought himself to accept uncritically all the absurdities that religious doctrines put before him and even to overlook the contradictions between them, we need not be greatly suprised at the weakness of his intellect.
+ - Opposition is not necessarily enmity.
+ - We are never so defensless against suffering as when we love.
+ - No other technique for the conduct of life attaches the individual so firmly to reality as laying emphasis on work; for his work at least gives him a secure place in a portion of reality, in the human community.
+ - In so doing, the idea forces itself upon him that religion is comparable to a childhood neurosis, and he is optimistic enough to suppose that mankind will surmount this neurotic phase, just as so many children grow out of their similar neurosis.
+ - An unrestricted satisfaction of every need presents itself as the most enticing method of conducting one’s life, but it means putting enjoyment before caution, and soon brings its own punishment.
+ - The voice of the intellect is soft one, but it does not rest until it has gained a hearing. Ultimately, after endless rebuffs, it succeeds. This is one of the few points in which one may be optimistic about the future of mankind.
+
+396 quotes

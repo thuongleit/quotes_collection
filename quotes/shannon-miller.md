@@ -1,0 +1,48 @@
+ - Doing your best is more important than being the best.
+ - Goals have to be realistic and flexible.
+ - Everyone gets scared, and everyone falls. The key is to get right back up and try again.
+ - Face each day with the expectation of achieving good, rather than the dread of falling short.
+ - I got into law school to supplement my business background. I’m not planning to practice law.
+ - Gymnastics is a lot like life. You don’t become an Elite gymnast by bickering and having a negative attitude. You have to be positive to get to that level.
+ - So if you think being thin is enough to succeed in gymnastics, you’re wrong.
+ - Gymnastics is the type of sport where you can’t take something that gives you more energy. Something may be great for the vault, but then you have the bars after it and you have to be more sedate for that.
+ - Go into the sport because you have fun doing it, not because of ‘what ifs’ and dreams of gold medals. That way, no matter what happens, you win.
+ - I don’t believe that there’s anyone in the world without a competitive bone in their body.
+ - Everyone has obstacles, and you’re not going to have the right answer or do the right thing every single time.
+ - There are parents, siblings, teachers and friends, but counting on them to motivate you isn’t fair. They’ve all got their own lives, and while the may be able to help you out, if you can motivate yourself, then you’re golden.
+ - There is always going to be a reason why you can’t do something; your job is to constantly look for the reasons why you can achieve your dreams.
+ - I think it’s really important to look at the big picture instead of just one competition.
+ - If you want to take it up a step and aim to become a competitive gymnast, you have to be mentally strong and prepared to take on the workload of going to the gym every day, rain or shine.
+ - Gymnastics uses every single part of your body, every little tiny muscle that you never even knew.
+ - It’s amazing to me that they’re cutting physical education programs in the school systems.
+ - I want to bring more gymnastics on television.
+ - I thought about running a marathon a long time ago, but I’m just not a runner.
+ - In gymnastics, the longest routine you do is a minute and a half, and that’s pretty tough to get through.
+ - It’s important to have a plan, a big picture. You can deviate from it or change it completely, but it gives you something to work for.
+ - There’s not a whole lot of events out there on television, especially in the years between Olympic Games.
+ - Floor exercise, the longest you run is two or three steps. In the vault, it’s not a whole lot more than that.
+ - I’m an athlete rep, so I’ll be available if they need me for anything.
+ - We typically don’t choose our athletes until about a month prior to the Games because anything can happen.
+ - I think that to be a competitive athlete, you have to be goal-oriented.
+ - For the most part I’ll probably do floor exercise and balance beam. Those are the two things that I do.
+ - I’m used to short distances and short bursts of energy; it was just fastest.
+ - I’m coming up on 30. There are other things that I want to pursue outside of just performing.
+ - The rate of childhood obesity is just ridiculous. Anytime I can get involved with teaching them how to get physical exercise, I want to help in any way possible.
+ - In gymnastics, you have to be perfect every step along the way.
+ - When you grow up on camera and in the public eye, you feel you have to put forth this image. I just took that to the extreme and there was a lot of pressure on me.
+ - When I go in to compete, whether it’s gymnastics or anything else, I do my own thing. I compete with myself.
+ - If you can’t handle all the injuries and scars, choose a less demanding sport.
+ - I was always athletic and I could do a lot of things.
+ - Charles Barkley, I used to watch him growing up. Then I met him. He was a big teddy bear.
+ - And we realized that it was kind of a starting point for gymnastics, to go professional, and also to just get a lot more of the audiences in the arenas on the off years, in the years that we’re not in the Olympics.
+ - It’s been really good to have a goal and go after it. That feels good.
+ - At the Olympics, you there to do a job. I feel you should take it seriously. You should be respectful. You are putting on the red-white-and-blue and going out there to perform for your country.
+ - I will be talking with gymnasts from some of the other countries. I will be getting a feel for what they’re thinking and what they’re doing. It should be a really great meet.
+ - At an Olympics Game, you want to enjoy it, especially if you know it’s going to be your last one.
+ - I can now successfully drive a stick. That’s a huge accomplishment.
+ - I don’t think I have the mileage on me to really complain of any injuries yet.
+ - I’m a competitor. I really enjoyed the race more than just going out and running to run.
+ - There’s never going to be a system that is fair to everyone.
+ - Charles Barkley was a big teddy bear.
+
+46 quotes

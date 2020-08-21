@@ -1,0 +1,41 @@
+ - Human beings, we have dark sides; we have dark issues in our lives. To progress anywhere in life, you have to face your demons.
+ - Fringe is essentially a love story, so the scenes where Walter had close connection with Peter, but also with Anna’s character or Jasika’s character, were very special to me.
+ - Working in television is very hard. I think people know that.
+ - In Revelation 12, we see a pure, holy woman giving birth to a son – a corporate son who brings victory by the blood of Jesus, their testimony and sacrifice. My vision is to see that kind of church moving in the authority, the sacrifice and love of Jesus.
+ - Mars tugs at the human imagination like no other planet. With a force mightier than gravity, it attracts the eye to the shimmering red presence in the clear night sky...
+ - We shouldn’t be put out to pasture just because we’ve reached somebody’s idea of retirement, which was certainly happening in Australia, and I think elsewhere as well.
+ - I love having played Walter because I suppose any actor brings a certain aspect of their own personality to their work, and I had a fairly broad canvas to paint on with the different versions.
+ - I would kill to do more work with Orla Brady, I think she’s that gifted.
+ - I find science really sexy and, at the time that I was a school kid, it certainly wasn’t.
+ - We often get pigeon-holed as a tough guy, or whatever else. I’ve been pigeon-holed as a heavy and serious, and almost a baddy, but not quite a baddy, over the years of my work in television, particularly.
+ - I always loved the challenge. When something new happened, I always used to get quite excited.
+ - My last two characters have been Denethor and Walter Bishop. Both will be hard acts to follow. That sits in the hands of my managers, at present. I just have no idea what’s going to be offered to me.
+ - You’re always working with the relationships. It’s pretty demanding, but then again I love that.
+ - We’ve had such a close relationship with the fans. Through social networking and the internet, we have much more contact, and we did go to things like Comic-Con. So, I think people know most of our secrets.
+ - With science becoming far more accessible to all of us, I’ve become a pretty avid reader and devourer of it. One of the objectives that I had working with Fringe was to get more people talking about it because it’s such fun.
+ - You basically go in animation and it’s all in the imagination. There aren’t even pictures to look at. You usually go in there and work with whoever the director is to create this voice and this character.
+ - Doing animation is great fun. It’s like a different world.
+ - I didn’t drop into the mannerisms of another version of the character, but I guess I was pretty alert to that.
+ - I could go anywhere in the world and people would stop me in the street and talk about ‘Fringe’ and how much they adored it and asked questions about it.
+ - I’m a character actor, so as a character actor, I’m always looking for something interesting.
+ - Over the last 25 years, since a lot of science writing became accessible to layman, I’ve become quite a consumer of science. As a child, I wasn’t streamed into science, and I regret that now.
+ - I’d never done anything that required a five-year commitment. To build a show that seems to have kept the imagination of the world so much was a bit otherworldly.
+ - It was wonderful to be able to play a character who had so many colors and who was able to play comedy, to play incredibly vulnerable, which he did a lot of the time, to play the love story, and to play the relationship with the son, which is quite unusual. That’s a gift to me, as an actor.
+ - Walter is incredibly complex. I do a lot of thinking about the work I do, and try to get the rhythms of scenes.
+ - The international reach of Fringe still catches me by surprise a bit, at times. Also, I was given the gift of a character that is every actor’s dream. So, you combine those two factors and it’s been an incredibly memorable five years.
+ - I was a theater man, so I was never in the situation of being a handsome Hollywood leading man, and then having to age.
+ - Many very strong fathers have turned out ineffectual sons by not allowing them to grow as men.
+ - I’m truly grateful to the writers of Fringe for giving me that because, over the years, when I’ve spoken about the character with them, I’ve always felt that this would be the perfect way to end and complete his journey, and to complete the journey of this series, and they gave it to me.
+ - There’s a certain pattern that exists with geniuses – an eccentricity, a lack of social graces and an inability to really communicate with mere mortals.
+ - I suppose, when you start up in acting, you hope to be given challenges, and you always have dreams about the things you could do and couldn’t do, but normally we get pigeon-holed a little bit, as we go on in our careers.
+ - A lot of the times, roles are chosen for us.
+ - I think main storylines are what always intrigued me, with those that were the relationships between the characters against whatever backdrop, whether it was in an ordinary universe or a universe in the future.
+ - I loved playing Walternate because he was completely the same character, version 1985, and then it developed in such a different way, physically and mentally. So, to be able to play that, in the same television series, as playing the other ones was a fantastic gift for me.
+ - I think the glue that held ‘Fringe’ together was the relationships.
+ - I don’t know how I absorb things, but I do. I just absorb them. I don’t over read the script, and I don’t really ever spend much time learning it.
+ - It might be different for people that are A-list actors, but a lot of us really look at what’s offered to us and look for something that has some traction with other people. But, it’s not like I read 100 scripts a week, and then pick and choose. Maybe some actors do. I certainly don’t do that.
+ - I don’t know where the line is. I don’t know how much of myself is in Walter. There’s got to be a bit of him there.
+ - As actors, you don’t actually need to know the future of the character. You just need to know the backgrounds.
+ - I was a very lucky actor.
+
+39 quotes

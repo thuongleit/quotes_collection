@@ -1,0 +1,43 @@
+ - Every time I look in the mirror, God looks back.
+ - I know how to behave but sometimes I can’t be bothered.
+ - Chris Martin looks like a geography teacher.
+ - It gets better and better being me.
+ - I am a tender, beautiful and loving guy that happens to slap a photographer now and then because they get in my way.
+ - There’s no rules. Show me the rule book.
+ - You’ve either got it or you haven’t.
+ - I’m not like John Lennon, who thought he was the great Almighty. I just think I’m John Lennon.
+ - I was walking along and this chair came flying past me, and another, and another, and I thought, man, is this gonna be a good night.
+ - I will always be an Oasis.
+ - Discipline? I don’t know the meaning of the word.
+ - Being a lad is what I’m about. I can tell you who isn’t a lad – anyone from Blur.
+ - I love the Beatles. What more can I say? I’m not gonna lie to you. I love ’em. They make me happy. And I think they were the best, and still are.
+ - I’m Liam Gallagher and I’m in Oasis. The whole world is jealous of me. It should be.
+ - I’ll never have a stylist.
+ - Not everyone can say, ‘I’m going to write a classic today.’ If that was the case, we’d all be doing it.
+ - The idea of sitting at home, not making music, just makes me want to throw up.
+ - Everyone knows that if you’ve got a brother, you’re going to fight.
+ - I respect the Stones but their songs are a pile of crap. As for U2, they don’t say a lot or seem like normal persons.
+ - I’m not looking for guidance.
+ - Once the music gets in you, it doesn’t leave you.
+ - She can’t even chew gum and walk in a straight line, let alone write a book.
+ - My favorite album would have to be something from The Beatles.
+ - I live for now, not for what happens after I die. I’m going to hell, not heaven. The devil has all the good gear. What’s God got? The Inspiral Carpets and nuns.
+ - Lennon was right. And we are bigger than Jesus. We will be as big as the Beatles, if not bigger.
+ - That’s what you join a band for, is to make music. Not to sit around and have five years off. We’re not getting any younger.
+ - Yeah, I’ve mellowed, but not in the sense of liking Radiohead or Coldplay. I don’t hate them, I don’t wish they had accidents. I think their fans are boring and ugly and don’t look like they’re having a good time.
+ - I find words really hard.
+ - I’m into the girls fancying me and stuff, mad for it.
+ - I don’t know what any of my tunes are about, they’re just out there. I’m not good with words. I just say the first thing that comes into my head.
+ - I didn’t always want to be a dad.
+ - You’ve seen one of the our gigs you’ve seen ’em all. But if you’re into the music, you’ll know that we played better the night before or we can play better.
+ - It’s about the music and that’s it. I’m not an entertainer. But I do entertain people, see what I mean?
+ - New York is my favorite city in the world.
+ - Being a lad is what I’m about.
+ - I don’t know what any of my songs are about. I don’t sit down to write about anything. They’re about whatever you want. I don’t pick subjects. I just start.
+ - I don’t like jeans with holes in ’em. I like ’em faded.
+ - I live for now, not for what happens after I die.
+ - I’ve got to be by trees, otherwise I get claustrophobic.
+ - Americans want grungy people, stabbing themselves in the head on stage. They get a bright bunch like us, with deodorant on, they don’t get it. I’m 24 years old, I’ve got a load a money, what am I gonna do, sit at home and twiddle me thumbs? No. I’m gonna go out and ’ave it.
+ - If I like something, I get it and I put it on.
+
+41 quotes

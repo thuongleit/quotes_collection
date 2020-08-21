@@ -1,0 +1,34 @@
+ - If plan A fails, remember there are 25 more letters.
+ - If you make your business about helping others, you’ll always have plenty of work.
+ - You don’t have to live your life the way other people expect you to.
+ - The best time to start was last year. Failing that, today will do.
+ - It’s a lonely road for those of us who choose to be remarkable, and the path of convention can sometimes be appealing. That path is paved with safe lives, middle of the road monotony, and little chance of failure. But where’s the fun in being like everyone else out there?
+ - If you want to achieve the unimaginable, you start by imagining it.
+ - Embracing new things often requires us to embrace our fears, however trivial they may seem. You deal with fear not by pretending it doesn’t exist, but by refusing to give it decision-making authority.
+ - The choices we make now affect the opportunities available in the future.
+ - Regret is what you should fear the most. If something is going to keep you awake at night, let it be the fear of not following your dream.
+ - Your possibilities are unlimited, but it all begins with the deliberate choice to think differently.
+ - Why travel – because the world was meant to be experienced, not imagined.
+ - I know if I missed a day and nothing happened, then it would be much easier to miss another day. Pretty soon I wouldn’t have much of a schedule, and then I’d have less motivation. It’s a downward spiral that I want to avoid, so I keep the schedule sacred.
+ - Don’t try to be fearless or pretend you aren’t impacted by fear. Just try to prevent fear from making your decisions for you.
+ - Pursue meaningful adventures.
+ - Don’t think innovation, think usefulness.
+ - Instead of reflecting on the past, predict the future.
+ - Courage comes through achievement, but also through the attempt.
+ - Instead of convincing people who are opposed to your message, spend your time finding people who are already predisposed to it.
+ - Always revisit your decisions in the light of new knowledge and information. Don’t be afraid to change.
+ - We must purposefully create a life of gratitude if we want to be fully alive.
+ - Never despise small beginnings, and don’t belittle your own accomplishments. Remember them and use them as inspiration as you go on to the next thing. When you venture outside your comfort zone, wherever the starting point may be, it’s kind of a big deal.
+ - We often feel paralyzed by choice and make no choice. But the thing is, no choice is a choice. If you’re not doing something about it, you’re doing something about it.
+ - Let’s embrace more of life, not less. Balanced people don’t change the world, and I’d rather spend my time feeling worn out from meaningful activities and projects.
+ - Some people think self-employment is risky, but the real risk lies in deriving your security from an external source.
+ - In the long-term, security comes from an asset you create or acquire, not a position in someone else’s asset.
+ - Often when we ask for advice, we don’t really want advice-we want someone to say “That’s great! Go for it!”
+ - If you’re worried about life-work balance, something is probably wrong with your life or your work. Instead of agonizing over balance, get excited and create change.
+ - Say yes to everything you’re excited about or afraid of.
+ - Give yourself permission to do what you’ve always wanted.
+ - Whereever you are in life, however old you are, begin thinking about every day as the first day of your life.
+ - In the battle between planning and action, action wins.
+ - Many of us live our lives out of the fear of what other people think of us. We’re waiting for someone to give us a permission slip that tells us it’s OK to be ourselves. Don’t try to be fearless or pretend you aren’t impacted by fear. Just try to prevent fear from making your decisions for you.
+
+32 quotes

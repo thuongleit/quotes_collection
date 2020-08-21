@@ -1,0 +1,42 @@
+ - Depression scares people off. It makes me laugh that it has that kind of effect.
+ - I’ve always craved to belong to somewhere, but I never have and never will.
+ - If you’re a musician and an artist, you don’t just stop.
+ - You’d better hope and pray That you make it safe back to your own world You’d better hope and pray That you’ll wake one day in your own world Because when you sleep at night They don’t hear your cries in your own world Only time will tell If you can break the spell back in your own world.
+ - If you suffer from depression, anything that makes you feel has to the most important thing in your life, because it’s the only thing that can save you.
+ - Fashion goes round in circles.
+ - I can’t remember what the last film I saw was, as I can’t smoke or drink in cinemas.
+ - Life is a process of working out what’s not working for you and disentangling yourself from it and trying then not walk into the same thing again. Watching your patterns and correcting them if you can.
+ - I really, really love music. I’m affected by it and uplifted by it, and made to laugh and cry, and almost fall in love with the person who has made me feel so brilliant and communicated so profoundly to me.
+ - I’m a crap guitarist and I find it really hard writing on my own.
+ - I come from the home-grown punk ethic, where it doesn’t matter if you can’t play a note, it’s how you communicate.
+ - Most of my life I’ve had long periods of feeling down and lost. That’s why every five years or so I’ve smashed my life to pieces and started again.
+ - I absolutely hate Take That, East 17, the Spice Girls.
+ - Being a woman is really crap.
+ - There’s a lot of rage you have to express it somehow. If I didn’t express it in song, I’d become incredibly violent.
+ - I consider the Stooges to be pop music.
+ - I love to sing old Motown songs to myself, or some Patti Smith Edith Piaf or Billie Holiday. That gets me in the mood for singing.
+ - I’m still grappling with all the things most people resolve by the time they’re 35. Maybe that’s why I make music that is relevant to young people. I’m emotionally stuck at the age of 13.
+ - I just can’t seem to write songs about peace and love. Yeah right, how do you get that?
+ - No stranger ever comes up and talks to me. I’m the invisible woman.
+ - I’ve tended to avoid meeting my heroes. They aren’t necessarily the nicest people anyway. The exception was George Harrison, one of the loveliest men I’ve ever met. He lent me his home studio to make Hormonally Yours.
+ - I’ve always been an outsider; a displaced person.
+ - I’m a hopeless mother; a hopeless wife; I have to try harder. I’m just a pathetic case history, really.
+ - The ultimate revenge is being on Top Of The Pops.
+ - I’m absolutely obsessed with The Jesus And Mary Chain and Patti Smith, but I’m a massive pop fan. I love pop culture, It’s a total reflection of the zeitgeist.
+ - This is what I am. I have periods of enormous self-destructive depression, where I go completely off my trolley and lose all sight of reality and reason.
+ - When do you know you’re insane? And when do you known you’re sane? I think I treat a fine line between the two. It’s a battle to function, but somehow I manage.
+ - It’s tragic when people think feminism is a dirty word.
+ - You put something you like on really loud, and you feel godlike.
+ - I carry on in my own narrow little tunnel and we have very different experiences of life even though we live together.
+ - I never belonged anywhere. I just felt like a creature from another planet.
+ - I have this massive love for the whole culture of pop music. It’s my fascination, my ongoing passion.
+ - I’ve seen many of my contemporaries become superstars, and the way fame and fortune starts to really affect the way they treat other people, and I think it’s ugly.
+ - Music is a gut thing. You’re working in a medium which is more in touch with the primal than the modern. A gig is a ritual. There’s a congregation.
+ - It’s refreshing to hear something that’s pop but doesn’t sound like Britney Spears.
+ - We were signed to a label that wanted us to remain little girls who appealed to other little girls, who were cute and non-threatening.
+ - Pop music allows you to be who you are without having to wear a social uniform or to conform, which some people find impossible to do.
+ - Bananarama were written off from day one. Nobody believed in us but us. We kept having hits despite the record company, despite the press.
+ - I’m quite repulsed by the diva type.
+ - I watched my mother waste her life on housework and swore I’d never do that. Dave does the cooking.
+
+40 quotes

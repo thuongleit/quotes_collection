@@ -1,0 +1,82 @@
+ - GOD is watching us, from a Distance...
+ - Give a girl the right shoes, and she can conquer the world.
+ - I want it all – and I would like it delivered.
+ - Some say love, it is a razor that leaves your soul to bleed.
+ - I sold my soul to rock and roll.
+ - Find your Light; They can’t love you if they can’t see you.
+ - Just remember, during the winter, far beneath the bitter snow, that there’s a seed that with the sun’s love in the spring becomes a rose.
+ - People are not the best because they work hard. They work hard because they are the best.
+ - It’s the one who won’t be taken that cannot seem to give, and the soul afraid of dying that never learns to live.
+ - People have an obligation to live up to their potential.
+ - My whole life has been spent waiting for an epiphany, a manifestation of God’s presence, the kind of transcendent, magical experience that let’s you see your place in the big picture. And that is what I had with my first compost heap.
+ - It’s the heart afraid of breaking that never learns to dance. It is the dream afraid of waking that never takes the chance.
+ - If you can accept your differentness and learn to love it and encourage it, then you can be someone wonderful.
+ - I married a German. Every night I dress up as Poland and he invades me.
+ - I’m working my way toward divinity.
+ - I feel like a million tonight – but one at a time.
+ - Enough about me. What do you think about me?
+ - When it’s three o’clock in New York, it’s still 1938 in London.
+ - I celebrate everyone’s religious holidays. if it’s good enough for the righteous, it’s good enough for the self-righteous, I always say.
+ - I always try to balance the light with the heavy – a few tears of human spirit in with the sequins and the fringes.
+ - If somebody makes me laugh, I’m his slave for life.
+ - I made a pact with myself a long time ago: Never watch anything stupider than you. It’s helped me a lot.
+ - Sometimes my brain goes on CD shuffle. You know, you put a bunch of CD’s on and hit play and random things come out.
+ - If sex is such a natural phenomenon, how come there are so many books on how to do it?
+ - Men’s brains are smaller than those of women so they can fit into their penises.
+ - After thirty, a body has a mind of its own.
+ - Cherish forever what makes you unique, ’cuz you’re really a yawn if it goes.
+ - I can get plenty of men, keeping them is the hard part.
+ - The outside world doesn’t have a lot to offer. You have to make your own heaven in your own home.
+ - I read neither good nor bad about me. I let it not even in my life, so it has no effect on me. I am very sensitive.
+ - I love nature, in spite of what it did to me.
+ - If only I’d known my differentness would be an asset, then my earlier life would have been much easier.
+ - I’m so glad to be back in New York. Los Angeles can be so cold, so cruel after you’ve been-what’s the word?-oh yes: ‘fired.’
+ - I haven’t left my house in days. I watch the news channels incessantly. All the news stories are about the election; all the commercials are Viagra and Cialis. Election, erection, election, erection! Either way we’re screwed!
+ - Total contentment is only for cows.
+ - I have my standards. They’re low, but I have them.
+ - A lot of people have no access to beauty. When I was growing up, my mother had only a few pretty things to look at.
+ - Self-esteem is something you have to earn! The only way to achieve self-esteem is to work hard. People have an obligation to live up to their potential.
+ - I try not to drink too much because when I’m drunk, I bite.
+ - I wouldn’t say I invented tacky, but I definitely brought it to its present high popularity.
+ - The only thing Madonna will ever do like a virgin is give birth in a stable.
+ - Sold my soul. Bought these devil chains.
+ - Honey, I can smell the scent of another woman from 500 paces.
+ - Make sure your life is a rare entertainment! It doesn’t take anything drastic. You needn’t be gorgeous or wealthy or smart, just very enthusiastic!
+ - You have to think you’re the greatest thing since sliced bread, but you have to know that you’re not.
+ - If I don’t feel right about what I’m in, I don’t feel right about anything.
+ - The worst part of success is to try to find someone who is happy for you.
+ - The Internet has changed everything. People will be discovered online. People buy music online. It’s a completely different way to get entertainment.
+ - Do I understand this right? I’m being marked down?
+ - I bear no grudges. I have a mind that retains nothing.
+ - I’m the last of the truly tacky women. I do trash with flash and sleaze with ease.
+ - I never know how much of what I say is true.
+ - Cats always seem so very wise, when staring with their half-closed eyes. Can they be thinking, I’ll be nice, and maybe she will feed me twice?
+ - I’d make a wonderful Lady Macbeth. I’ll wear a pair of platform shoes or something.
+ - The inventor of the modern foundation garment that we women wear today was a German scientist and opera lover by the name of Otto Titsling.
+ - Music is probably the only place I get energy from. Music and maybe watching a really tremendous performer, watching a terrific performer like Jagger or watching a great movie.
+ - I’ve always said we got married because there was nothing on TV.
+ - I always wanted to be a performer, I didn’t know exactly what kind of performer, all I knew was there were certain things that I liked. I liked movies a whole lot, and I loved music.
+ - I tried to charm the pants off Bob Dylan, but everyone will be disappointed to learn that I was unsuccessful. I got close – a couple of fast feels in the front seat of a Cadillac.
+ - My parents taught me: Do not rely on a man. Not rely on it that you get married and it pays for you. That’s what I figured. I have always paid my own bills.
+ - For days on end, I would hardly speak, and when I did only the vilest sort of gibberish would spout forth. I became morose and fat. Unapproachable, except when eating – and then only by waiters.
+ - Sometimes you have to make your own opportunities and that’s why I’m on TV. I wasn’t going to sit around anymore, waiting patiently for the damn phone to ring. I had to create my own place- I’ve always done that.
+ - Through books and photographs, I saw a world that was not my own – and I realized that there was another world. That’s why I’m concerned about education, because it helps our children see other worlds.
+ - My idea of superwoman is someone who scrubs her own floors.
+ - There’s a kind of emotional exploration you plumb with a friend that you don’t really do with your family.
+ - My parents have not insisted that we go to college, but she wanted us to learn. Teacher, librarian, secretary, nurse. All my siblings were employed. But I wanted to be the boss, an independent contractor.
+ - Here I am, one of the most colorful women of my time – if not of my block – being made to sound positively legumelike in printed interviews.
+ - Rap is poetry set to music. But to me it’s like a jackhammer.
+ - Self-esteem is something you have to earn!
+ - The old forms of entertainment are not extinct. Live performances are the pinnacle. If you can something that people want to see live, then you have a great career.
+ - When you have a steady job you’re more inspired to broaden yourself.
+ - If you’re passionate about something, then you should pick up your flag and run with it.
+ - Thank God for the gays. I don’t know what would have happened but I know what did happen. Good for them and good for me.
+ - Group conformity scares the pants off me because it’s so often a prelude to cruelty towards anyone who doesn’t want to – or can’t – join the Big Parade.
+ - Only two groups of people intimidate me absolutely: salespeople and the French.
+ - Me, I’m just a hack. I’m just a schlep-per. I just do what I can do.
+ - There comes a time whenyou haveto let yourclothesgo out in the world and try to make it on their own.
+ - If you’re frightened, you’re out of luck.
+ - Writing a book is not as tough as it is to haul thirty-five people around the country and sweat like a horse five nights a week.
+ - I hope to keep entertaining in some way until I can’t physically entertain any longer. It’s what I was born to do, and I love this profession.
+
+80 quotes

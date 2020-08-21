@@ -1,0 +1,70 @@
+ - Women and elephants never forget an injury.
+ - Life is full of its disappointments, and I suppose the art of being happy is to disguise them as illusions.
+ - The cook was a good cook, as cooks go; and as cooks go, she went.
+ - I always say beauty is only sin deep.
+ - You needn’t tell me that a man who doesn’t love oysters and asparagus and good wines has got a soul, or a stomach either. He’s simply got the instinct for being unhappy highly developed.
+ - People talk vaguely about the innocence of a little child, but they take mighty good care not to let it out of their sight for twenty minutes.
+ - Never be a pioneer. It’s the early Christian that gets the fattest lion.
+ - Find yourself a cup of tea, the teapot is behind you. Now tell me about hundreds of things.
+ - Romance at short notice was her speciality.
+ - It’s no use growing older if you only learn new ways of misbehaving yourself.
+ - I hate babies. They’re so human.
+ - The censorious said she slept in a hammock and understood Yeats’s poems, but her family denied both stories.
+ - Sherard Blaw, the dramatist who had discovered himself, and who had given so ungrudgingly of his discovery to the world.
+ - I love Americans, but not when they try to talk French. What a blessing it is that they never try to talk English.
+ - To be clever in the afternoon argues that one is dining nowhere in the evening.
+ - His socks compelled one’s attention without losing one’s respect.
+ - In baiting a mousetrap with cheese, always leave room for the mouse.
+ - We all know that Prime Ministers are wedded to the truth, but like other wedded couples they sometimes live apart.
+ - Her frocks are built in Paris, but she wears them with a strong English accent.
+ - The people of Crete unfortunately make more history than they can consume locally.
+ - Mother, may I go and maffick, Tear around and hinder traffic?
+ - Every reformation must have its victims. You can’t expect the fatted calf to share the enthusiasm of the angels over the prodigal’s return.
+ - There is no easy in the world neither hard everything is the same in a way.
+ - Think how many blameless lives are brightened by the blazing indiscretions of other people.
+ - The revenge of an elder sister may be long in coming, but, like a South-Eastern express, it arrives in its own good time.
+ - All decent people live beyond their incomes; those who aren’t respectable live beyond other people’s; a few gifted individuals manage to do both.
+ - A little inaccuracy sometimes saves a ton of explanation.
+ - If he had unlimited money at his disposal, he might go into the wilds somewhere and shoot big game. I never know what the big game have done to deserve it, but they do help to deflect the destructive energies of some of our social misfits.
+ - Hating anything in the way of ill-natured gossip ourselves, we are always grateful to those who do it for us and do it well.
+ - I believe I once considerably scandalized her by declaring that clear soup was a more important factor in life than a clear conscience.
+ - It is an admitted fact that the ordinary tomtit of commerce has a sounder aesthetic taste than the average female relative in the country.
+ - Poverty keeps together more homes than it breaks up.
+ - To be among people who are smothered in furs when one hasn’t any oneself makes one want to break most of the Commandments.
+ - A woman who takes her husband about with her everywhere is like a cat that goes on playing with a mouse long after she’s killed it.
+ - Why are women so fond of raking up the past? They’re as bad as tailors, who invariably remember what you owe them for a suit long after you’ve ceased to wear it.
+ - He seems the incarnation of everything soft and silky and velvety, without a sharp edge in his composition, a dreamer whose philosophy is sleep and let sleep.
+ - Confront a child, a puppy, and a kitten with a sudden danger; the child will turn instinctively for assistance, the puppy will grovel in abject submission, the kitten will brace its tiny body for a frantic resistance.
+ - Monogamy is the Western custom of one wife and hardly any mistresses.
+ - No one can be an unbeliever nowadays. The Christian apologists have left one nothing to disbelieve.
+ - He spends his life explaining from his pulpit that the glory of Christianity consists in the fact that though it is not true it has been found necessary to invent it.
+ - And the vagueness of his alarm added to its terrors; when once you have taken the Impossible into your calculations its possibilities become practically limitless.
+ - People may say what they like about the decay of Christianity the religious system that produced green Chartreuse can never really die.
+ - There are certain fixed rules that one observes for one’s own comfort. For instance, never be flippantly rude to any inoffensive grey-bearded stranger that you may meet in pine forests or hotel smoking-rooms on the Continent. It always turns out to be the King of Sweden.
+ - He is one of those people who would be enormously improved by death.
+ - Children with Hyacinth’s temperament don’t know better as they grow older; they merely know more.
+ - It was one thing to go to the end of the world; it was quite another thing to make oneself at home there. Even respectability seemed to lose some of its virtue when one practiced it in a tent.
+ - Sophie Chattel-Monkheim was a Socialist by conviction and a Chattel-Monkheim by marriage.
+ - Children are given us to discourage our better emotions.
+ - The cat of the slums and alleys, starved, outcast, harried, still keeps amid the prowlings of its adversity the bold, free, panther-tread with which it paced of yore the temple courts of Thebes, still displays the self-reliant watchfulness which man has never taught it to lay aside.
+ - Once a female, always a female. Nature is not always infallible but she always abides by her mistakes.
+ - When people grow gradually rich their requirements and standard of living expand in proportion, while their present-giving instincts often remain in the undeveloped condition of their earlier days. Something showy and not-too-expensive in a shop is their only conception of the ideal gift.
+ - It occurred to me that I would like to be a poet. The chief qualification, I understand is that you must be born. Well, I hunted up my birth certificate, and found that I was all right on that score.
+ - The fashion just now is a Roman Catholic frame of mind with an Agnostic conscience; you get the mediaeval picturesqueness of the one with the modern conveniences of the other.
+ - Hors d’oeuvres have always a pathetic interest for me; they remind me of one’s childhood that one goes through wondering what the next course is going to be like – and during the rest of the menu one wishes one had eaten more of the hors d’oeuvres.
+ - Great Socialist statesmen aren’t made, they’re still-born.
+ - A beautifully constructed borshch, such as you are going to experience presently, ought not only to banish conversation but almost to annihilate thought.
+ - The cat is domestic only as far as suits its own ends...
+ - There may have been disillusionments in the lives of the medieval saints, but they would scarcely have been better pleased if they could have foreseen that their names would be associated nowadays chiefly with racehorses and the cheaper clarets.
+ - On horseback he seemed to require as many hands as a Hindu god, at least four for clutching the reins, and two more for patting the horse soothingly on the neck.
+ - The young have aspirations that never come to pass, the old have reminiscences of what never happened.
+ - I hate posterity – it’s so fond of having the last word.
+ - He’s simply got the instinct for being unhappy highly developed.
+ - Whenever a massacre of Armenians is reported from Asia Minor, every one assumes that it has been carried out “under orders” from somewhere or another; no one seems to think that there are people who might like to kill their neighbours now and then.
+ - But, good gracious, you’ve got to educate him first. You can’t expect a boy to be vicious till he’s been to a good school.
+ - You evidently feel that brevity is the soul of widowhood.
+ - It is one of the consolations of middle aged reformers that the good that they inculcate must live after them if it is to live at all.
+ - I think she must have been very strictly brought up, she’s so desperately anxious to do the wrong thing correctly.
+ - The man is a common murderer. A common murderer, possible, but a very uncommon cook.
+
+68 quotes

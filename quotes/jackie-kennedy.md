@@ -1,0 +1,65 @@
+ - There will be great presidents again but there will never be another Camelot.
+ - Pearls are always appropriate.
+ - There are many little ways to enlarge your child’s world. Love of books is the best of all.
+ - I am happiest when I am alone.
+ - I want minimum information given with maximum politeness.
+ - Once you can express yourself, you can tell the world what you want from it. All the changes in the world, for good or evil, were first brought about by words.
+ - We should all do something to right the wrongs that we see and not just complain about them.
+ - Love of books is the best of all.
+ - If you produce one book, you will have done something wonderful in your life.
+ - Being a reporter seems a ticket out to the world.
+ - I want to live my life, not record it.
+ - The first time you marry for love, the second for money, and the third for companionship.
+ - If you want things to be right, you have to do them yourself.
+ - You have to be doing something you enjoy. That is a definition of happiness!
+ - Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President’s widow?
+ - A great goal in life is the only fortune worth finding.
+ - I think my biggest achievement is that after going through a rather difficult time, I consider myself comparatively sane. I’m proud of that.
+ - The only routine with me is no routine at all.
+ - You must continue. Poets are the ones who change the world.
+ - I am a woman above everything else.
+ - Whenever I was upset by something in the papers, Jack always told me to be more tolerant, like a horse flicking away flies in the summer.
+ - Even though people may be well known, they hold in their hearts the emotions of a simple person for the moments that are the most important of those we know on earth: birth, marriage and death.
+ - Do you think that God would separate me from my husband if I killed myself? I feel as though I am going out of my mind at times. Wouldn’t God understand that I just want to be with him?
+ - You have only one chance to raise your child.
+ - Being away from home gave me the chance to look at myself with a jaundiced eye. I learned not to be ashamed of a real hunger for knowledge, something I had always tried to hide, and I came home glad to start in here again with a love for Europe that I am afraid will never leave me.
+ - If you bungle raising your children, I don’t think whatever else you do matters very much.
+ - If you cut people off from what nourishes them spiritually, something in them dies.
+ - One must not let oneself be overwhelmed by sadness.
+ - I’ll be a wife and mother first, then First Lady.
+ - History – its what those bitter old men write.
+ - Now, I think that I should have known that he was magic all along. I did know it – but I should have guessed that it would be too much to ask to grow old with and see our children grow up together. So now, he is a legend when he would have preferred to be a man.
+ - I don’t think there are any men who are faithful to their wives.
+ - I will tell you one thing. They will never drag me out like a little old widow like they did Mrs. Wilson when President Wilson died. I will never be used that way.
+ - Dear God, please take care of your servant John Fitzgerald Kennedy.
+ - I think the best thing I can do is to be a distraction. A husband lives and breathes his work all day long. If he comes home to more table thumping, how can the poor man ever relax?
+ - I don’t understand it. Jack will spend any amount of money to buy votes but he balks at investing a thousand dollars in a beautiful painting.
+ - If school days are the happiest days of your life, I’m hanging myself with my skip-rope tonight.
+ - One should always dress like a marble column.
+ - You have to be doing something you enjoy. That is a definition of happiness: Complete use of one’s faculties along lines leading to excellence in a life affording them scope. It applies to women as well as to men. We can’t all reach it, but we can try to reach it to some degree.
+ - The river of sludge will go on and on. It isn’t about me.
+ - Aristotle Onassis rescued me at a moment when my life was engulfed with shadows. He brought me into a world where one could find both happiness and love. We lived through many beautiful experiences together which cannot be forgotten, and for which I will be eternally grateful.
+ - The greatest responsibility is your children. If my children turned out badly, I’d feel that nothing I had done was worthwhile.
+ - A camel makes an elephant feel like a jet plane.
+ - Being a journalist seemed the ideal way of both having a job and experiencing the world, especially for anyone with a sense of adventure.
+ - When Harvard men say they have graduated from Radcliffe, then we’ve made it.
+ - Our culture will become like it was during the medieval times when there truly was a cultural elite. The rest of the people will just watch television, which will be their only frame of reference.
+ - Being away from home gave me a chance to look at myself with a jaundiced eye.
+ - An Editor becomes kind of your mother. You expect love and encouragement from an Editor.
+ - The children have been a wonderful gift to me, and I’m thankful to have once again seen our world through their eyes. They restore my faith in the family’s future.
+ - Americans care about their past, but for short term gain they ignore it and tear down everything that matters.
+ - We are the only country in the world that trashes its old buildings. Too late we realize how very much we need them.
+ - The trouble with me is that I’m an outsider. And that’s a very hard thing to be in American life.
+ - It looks like it’s been furnished by discount stores.
+ - The one thing I do not want to be called is First Lady. It sounds like a saddle horse.
+ - What is sad for women of my generation is that they weren’t supposed to work if they had families. What were they going to do when the children are grown – watch the raindrops coming down the window pane?
+ - You have to have been a Republican to know how good it is to be a Democrat.
+ - You are about to have your first experience with a Greek lunch. I will kill you if you pretend to like it.
+ - One of the things I like about publishing is that you don’t promote the editor – you promote the book and the author.
+ - I think the major role of the First Lady is to take care of the President so that he can best serve the people. And not to fail her family, her husband, and children.
+ - The one thing I do not want to be called is First Lady. It sounds like a saddle horse. Would you notify the telephone operators and everyone else that I’m to be known simply as Mrs. Kennedy and not as First Lady.
+ - He didn’t even have the satisfaction of being killed for civil rights. it had to be some silly little Communist.
+ - A newspaper reported that I spent $30,000 a year buying Paris clothes and that women hate me for it. I couldn’t spend that much unless I wore sable underwear.
+ - In the event you bungle elevating your sons or daughters, I do not imagine regardless of what else you are doing nicely issues very considerably.
+
+63 quotes

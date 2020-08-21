@@ -1,0 +1,25 @@
+ - If I’d learnt one thing from travelling, it was that the way to get things done was to go ahead and do them. Don’t talk about going to Borneo. Book a ticket, get a visa, pack a bag, and it just happens.
+ - I do all this alone, everything I achieve, I achieve alone, because it’s my head I’m locked into, and I share this space with nobody but myself.
+ - Escape through travel works. Almost from the moment I boarded my flight, life in England became meaningless. Seat-belt signs lit up, problems switched off. Broken armrests took precedence over broken hearts. By the time the plane was airborne I’d forgotten England even existed.
+ - Vietnam, me love you long time. All day, all night, me love you long time.
+ - I carry a lot of scars. I like the way that sounds. I carry a LOT of scars.
+ - I knew my affection for the Philippines was equally as telling: a democracy on paper, apparently well ordered, regularly subverted by irrational chaos. A place where I’d felt instantly at home.
+ - Well, if there’s an infinite amount of chances for something to happen, then eventually it will happen – no matter how small the likelihood.
+ - The first I heard of the beach was in Bangkok, on the Ko Sanh Road.
+ - Tourists went on holidays while travellers did something else. They travelled.
+ - Waking was the most reliable part of a dream, as built into dreams as death is to life. You dream, you wake: you live, you die.
+ - When I see ‘Sunshine,’ I see a film that part of me is kind of very proud of and another part of me is very sad about, so it’s a really complicated film for me. And I’ve never been really able to resolve all that in myself.
+ - I wrote a whole novel before The Beach. Unpublishable. Junk. But, for some reason I stuck at novels and wrote a second. Still not sure why I didn’t give up. Stubborn, maybe.
+ - I don’t like dealing with money transactions in poor countries. I get confused between the feeling that I shouldn’t haggle with poverty and getting ripped off.
+ - I did keep a travel diary once and it was a big mistake. All I remember of that trip is what I bothered to write down.
+ - If you look at the whole life of the planet, we – you know, Man – has only been around for a few blinks of an eye. So if the infection wipes us all out, that is a return to normality.
+ - Normally, small talk is enough for me to form an opinion of someone. I make quick judgments, often completely wrong, and then stick by them rigidly.
+ - Of course witnessing poverty was the first to be ticked off the list. Then I had to graduate to the more obscure stuff. Being in a riot was something I pursued with a truly obsessive zeal, along with being tear-gassed and hearing gunshots fired in anger.
+ - I think everything I write is from an atheist perspective. I mean, it’s partly from an atheist perspective because I’m an atheist, and I’m just not really interested in religious-based questions.
+ - I’ve never been to Comic-Con, but I’m certainly aware from this side of the Atlantic that it’s a very important part of film marketing now, even when the films are not directly linked to a comic.
+ - By the time the plane was airborne I’d forgotten England even existed.
+ - I’ve written original material before, where I’ve come up with the idea and the characters myself, and that’s definitely very different to working with someone else’s characters and stories.
+ - It slightly depends on your perspective, sort of how you look at these things, but when I sit down to write a script, I’m not planning to write a script; I’m planning to make a film, and so I only see the script as being just a step there.
+ - Every dream that anyone ever has is theirs alone and they never manage to share it. And they never manage to remember it either. Not truly or accurately. Not as it was. Our memories and our vocabularies aren’t up to the job.
+
+23 quotes

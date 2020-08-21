@@ -1,0 +1,25 @@
+ - In baseball, my theory is to strive for consistency, not to worry about the numbers. If you dwell on statistics you get shortsighted, if you aim for consistency, the numbers will be there at the end.
+ - You have the honor and privilege of being in position to do something amazingly special. If you have the chance, you must do it.
+ - God is living in New York, and he’s a Mets fan.
+ - If the Mets can win the World Series, the United States can get out of Vietnam.
+ - If you don’t think baseball is a big deal, don’t do it. But if you do, do it right.
+ - Pitch within yourself.
+ - The concentration and dedication- the intangibles are the deciding factors between who won and who lost.
+ - Fenway is the essence of baseball.
+ - There are only two places in this league, First Place and No Place.
+ - The good rising fastball is the best pitch in baseball.
+ - Once a year, I take my whole wine team down to see the Giants, and we meet the players. Ive never seen anyone pitch like Lincecum that can throw the ball and get through the front leg. He has that stiff front leg.
+ - A good professional athlete must have the love of a little boy. And the good players feel the kind of love for the game that they did when they were Little Leaguers.
+ - My job isn’t to strike guys out; it’s to get them out, sometimes by striking them out.
+ - I would like to be a great artist. I would quit pitching if I could paint like Monet or Rousseau. But I cant. What I can do is pitch, and I can do that very well.
+ - Some pitchers want to be known as the fastest throwers that ever lived. Some want to win 30 games in one season. Some want to pitch a no-hitter. All I want to do is the best I can, day after day. In other words, I want to prove I am the best.
+ - Im a huge advocate of pitching. You have to have good pitching as the solid core, the foundation. It keeps you in every game.
+ - Take a look at all of them: Marichal, Jenkins, Spahn – what do you think made them successful? They conditioned their arms by pitching more, not less, starting from when they signed their first contract.
+ - I wasn’t ever much of a Yankee fan.
+ - There is no set numerical value you can put on a pitcher. Theyre all different.
+ - Lou Brock, along with Maury Wills, are probably the two players most responsible for the biggest change in the game over the last fifteen years – the stolen base.
+ - My pitch count as a general rule was 135. And I knew how many pitches I had when I went to the mound for the last three innings.
+ - It takes 20 victories for people to recognize you as a great pitcher.
+ - Pitching is what you have best on the day you work, and if you cant get your fastball over the plate, then maybe you can win with your curve.
+
+23 quotes

@@ -1,0 +1,31 @@
+ - Jim Carrey is a consummate actor and professional. He comes on set, knows his lines and knows his moves.
+ - It’s the thing that you do well that brings you to prominence. The very thing that brings you to success can also be like a curse, because then people think that’s all you can do.
+ - Why put it on if you’re not going to strut?
+ - I do think funny is like sexy. You’re either funny and sexy, or you’re not.
+ - Bambi has a profound effect on children because it’s about losing your mother.
+ - A great need a mother has to know that her daughters will find somebody or will be okay in life. That’s very primal as they get older. You know, you should get married, you should have children.
+ - In the early ’90s, New York was a pretty depressing place.
+ - I often close my eyes because I can’t tolerate violence.
+ - The sibilant s is the most difficult sound to correct.
+ - You can only do the work to the very best of your ability.
+ - I adore clothes, I adore drinking. I just don’t have the time or the inclination to totally indulge in it.
+ - Really, can anyone drink several martinis at lunch?
+ - I’m sad to say that stardom is a commodity in our culture.
+ - Why would I lose sleep when I really need valuable sleep just to recuperate and come back and do my job?
+ - It’s a great time to be an actress at this point in my life.
+ - I do enjoy film. The more I do it the more I learn.
+ - Lawrence of Arabia is the ultimate movie, deeply cinematic.
+ - You make a choice whether or not to turn that TV on. We didn’t even have a television in the house.
+ - I wish I didn’t have to live up to anything.
+ - Audrey Hepburn’s face was made for the camera.
+ - Acting is like a high wire act. Your margin for error is very slim.
+ - I always say God should have given women one extra decade at least, especially if you want a family. You’re trying to pack a lot in.
+ - Mike Nichols asked if I would do The Birdcage. Mike and I are dear friends but he had never offered me a feature role in a movie. My television career opened other doors for me.
+ - If I never do another movie, I will have had the privilege of working on one of the big Hollywood movies with top people, creating a world that can only be described as totally cinematic.
+ - Ron Howard is as good a person as you could want to work with on film. He never lost his cool. He’s the most easygoing, lovely man, but he’s got this enormous intelligence and a wonderful humanity.
+ - It is really hard to do comedy; it takes a lot of energy and focus. It’s rather like music: It’s a lot of hitting notes precisely.
+ - I’m a nice, happily married wife and mom and I live in Connecticut.
+ - You are always damned by things that you do well as an actor.
+ - I never say I have a preference for one medium as opposed to another.
+
+29 quotes

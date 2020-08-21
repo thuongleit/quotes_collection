@@ -1,0 +1,48 @@
+ - If you want peace, understand war.
+ - In strategy the longest way round is often the shortest way there- a direct approach to the object exhausts the attacker and hardens the resistance by compression, whereas an indirect approach loosens the defender’s hold by upsetting his balance.
+ - War is always a matter of doing evil in the hope that good may come of it.
+ - In war, the chief incalculable is the human will.
+ - The search for the truth for truth’s sake is the mark of the historian.
+ - The most effective indirect approach is one that lures or startles the opponent into a false move – so that, as in ju-jitsu, his own effort is turned into the lever of his overthrow.
+ - Direct pressure always tends to harden and consolidate the resistance of an opponent.
+ - The military weapon is but one of the means that serve the purposes of war: one out of the assortment which grand strategy can employ.
+ - I used to think that the causes of war were predominantly economic. I came to think that they were more psychological. I am now coming to think that they are decisively “personal,” arising from the defects and ambitions of those who have the power to influence the currents of nations.
+ - Every action is seen to fall into one of three main categories, guarding, hitting, or moving. Here, then, are the elements of combat, whether in war or pugilism.
+ - The predominance of moral factors in all military decisions. On them constantly turns the issue of war and battle. In the history of war they form the more constant factors, changing only in degree, whereas the physical factors are different in almost every war and every military situation.
+ - To foster the people’s willing spirit is often as important as to possess the more concrete forms of power.
+ - The practical value of history is to throw the film of the past through the material projector of the present on to the screen of the future.
+ - For the spread and endurance of an idea the originator is dependent on the self-development of the receivers and transmitters.
+ - A complacent satisfaction with present knowledge is the chief bar to the pursuit of knowledge.
+ - In a campaign against more than one state or army, it is more fruitful to concentrate first against the weaker partner than to attempt the overthrow of the stronger in the belief that the latter’s defeat will automatically involve the collapse of the others.
+ - To ensure attaining an objective, one should have alternate objectives. An attack that converges on one point should threaten, and be able to diverge against another. Only by this flexibility of aim can strategy be attuned to the uncertainty of war.
+ - The effect to be sought is the dislocation of the opponent’s mind and dispositions – such an effect is the true gauge of an indirect approach.
+ - Guerrilla war is a kind of war waged by the few but dependent on the support of many.
+ - Ensure that both plan and dispositions are flexible, adaptable to circumstances. Your plan should foresee and provide for a next step in case of success or failure.
+ - Natural hazards, however formidable, are inherently less dangerous and less uncertain than fighting hazards. All conditions are more calculable, all obstacles more surmountable than those of human resistance.
+ - For whoever habitually suppresses the truth in the interests of tact will produce a deformity from the womb of his thought.
+ - This high proportion of history’s decisive campaigns, the significance of which is enhanced by the comparative rarity of the direct approach, enforces the conclusion that the indirect is by far the most hopeful and economic form of strategy.
+ - If you find your opponent in a strong position costly to force, you should leave him a line of retreat as the quickest way of loosening his resistance. It should, equally, be a principle of policy, especially in war, to provide your opponent with a ladder by which he can climb down.
+ - No man can exactly calculate the capacity of human genius and stupidity, nor the incapacity of will.
+ - In reality, it si more fruitful to wound than to kill. While the dead man lies still, counting only one man less, the wounded man is a progressive drain upon his side.
+ - With growing experience, all skillful commanders sought to profit by the power of the defensive, even when on the offensive.
+ - The unexpected cannot guarantee success, but it guarantees the best chance of success.
+ - The most dangerous error is failure to recognize our own tendency to error.
+ - In should be the duty of every soldier to reflect on the experiences of the past, in the endeavor to discover improvements, in his particular sphere of action, which are practicable in the immediate future.
+ - The only thing harder than getting a new idea into the military mind is to get an old one out.
+ - Avoid self-righteousness like the devil- nothing is so self-blinding.
+ - The profoundest truth of war is that the issue of battle is usually decided in the minds of the opposing commanders, not in the bodies of their men.
+ - Loss of hope rather than loss of life is what decides the issues of war. But helplessness induces hopelessness.
+ - The easiest and quickest path into the esteem of traditional military authorities is by the appeal to the eye, rather than to the mind. The ‘polish and pipeclay’ school is not yet extinct, and it is easier for the mediocre intelligence to become an authority on buttons, than on tactics.
+ - As has happened so often in history, victory had bred a complacency and fostered an orthodoxy which led to defeat in the next war.
+ - The downfall of civilized states tends to come not from the direct assaults of foes, but from internal decay combined with the consequences of exhaustion in war.
+ - The implied threat of using nuclear weapons to curb guerrillas was as absurd as to talk of using a sledge hammer to ward off a swarm of mosquitoes.
+ - Inflict the least possible permanent injury, for the enemy of to-day is the customer of the morrow and the ally of the future.
+ - Air Power is, above all, a psychological weapon – and only short-sighted soldiers, too battle-minded, underrate the importance of psychological factors in war.
+ - In the case of a state that is seeking not conquest but the maintenance of its security, the aim is fulfilled if the threat is removed – if the enemy is led to abandon his purpose.
+ - While there are many causes for which a state goes to war, its fundamental object can be epitomized as that of ensuring the continuance of its policy – in face of the determination of the opposing state to pursue a contrary policy. In the human will lies the source and mainspring of conflict.
+ - The nearer the cutting off point lies to the main force of the enemy, the more immediate the effect; whereas the closer to the strategic base it takes place, the greater the effect.
+ - While the nominal strength of a country is represented by its numbers and resources, this muscular development is dependent on the state of its internal organs and nerve-system – upon its stability of control, morale, and supply.
+ - A modern state is such a complex and interdependent fabric that it offers a target highly sensitive to a sudden and overwhelming blow from the air.
+ - An army should always be so distributed that its parts can aid each other and combine to produce the maximum possible concentration of force at one place, while the minimum force necessary is used elsewhere to prepare the success of the concentration.
+
+46 quotes

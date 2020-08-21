@@ -1,0 +1,31 @@
+ - A monkey is a much better voter than a socialist. Statistically speaking, if we assume that there are two options to choose from: the “A” and the “B” – the monkey is voting randomly, so its wrong 50% of the time. The socialist, however – is always wrong.
+ - You people are right – I am for equal rights for women. I am for that, female jobs such as feeding husband and children be considered as valuable as male jobs.
+ - When in organism there are cancer cells, they have to be removed, not helped because they’re “so young” and “so creative”.
+ - The purpose of road traffic is speed, not safety.
+ - I’ve had no sexual education, but I have six children.
+ - Before I was nine years old, I had been a socialist. When young, everyone is a socialist; later he becomes cleverer.
+ - The world is not ruled by those who have money, but those who have dreams.
+ - Nobody is sure of his life, property and health when the parliament deliberates.
+ - Socialists believe otherwise – a man is not competent enough to make decision should he use seatbelt, should he buy insurance, and the same man is competent enough to elect president and government.
+ - Paleontologists do not have to search for famous “missing link” from which humans supposedly came, and current great apes. This link is simply the socialist – because he has both monkey genes.
+ - If socialism gave more prosperity than capitalism does, I would still prefer capitalism – as it gives more freedom. Luckily, though, I do not have to face this dillema...
+ - A jump from the sixth floor is definitely more harmful than taking heroin, yet we don’t forbid building sixth floors.
+ - If every other Jew had a weapon in 1939, there wouldn’t be a Holocaust.
+ - We are not for making shoes, so the shoemakers can have jobs, but so we can wear the shoes.
+ - Every fascist state like Germany, France, or modern Poland takes away citizen’s right to self-defense. Fascist Americans such as Barack Obama or Hillary Clinton want to take arms away from American society.
+ - Socialism is a monster, which will die.
+ - I suspect in Lenin’s works there’s everything, if you search well.
+ - Socialists try to convince us that the tea becomes sweet not because of sugar, but because of mixing.
+ - A scientist who writes for a grant has to write subpar papers – so that the grant giver will understand what the paper is about.
+ - Saying you are a patriot is not enough – you have to be one.
+ - I am for joining a free trade zone. The European Union is not such zone, but a zone of raging bureaucracy which stears every hectolitre of wine, and every tone of beef.
+ - Socialism destroys everywhere one thing – diversity. Everything is supposed to be best, and as we know, best things are always in shortage. I remind once more that for reds “best” is what they consider “best” for us, and not what we like.
+ - Fight to preserve these traits of civilization, that made us go forward.
+ - Building of European Commission would be perfect for a brothel.
+ - Socialist is not a human but animal – because human differs from animal in this that he has moral rules, and reds, as their program states they disobey them.
+ - For if the car drives in the wrong direction better fuel doesn’t help.
+ - It is the nature of the pig, that if there’s nothing to stop her from stepping into abreuvoir – then it will. Nothing will stop bureaucracy from continuing to serve us “good” and protecting us from “evil” – if we’ll let them do that.
+ - I support the protection of life from conception to natural death. But a natural death for a murderer is a death on the gallows.
+ - Prisons are the universities of the opposition.
+
+29 quotes

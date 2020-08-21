@@ -1,0 +1,31 @@
+ - Jobs are a priority for every country. Doing more to improve regulation and help entrepreneurs is the key to creating jobs – and more growth.
+ - I told my father I had to try political science for a year. He thought I was throwing my life away.
+ - That sense of what happened in Europe in World War II has shaped a lot of my views.
+ - Iraq has no history of ethnic conflict.
+ - We did not go to war in Afghanistan or in Iraq to, quote, ‘impose democracy.’ We went to war in both places because we saw those regimes as a threat to the United States.
+ - Sometimes corruption is slowed by shedding light into what was previously shadowed.
+ - Poles understand perhaps better than anyone the consequences of making toothless warnings to brutal tyrants and terrorist regimes.
+ - It’s hard to conceive that it would take more forces to provide stability in post-Saddam Iraq than it would take to conduct the war itself and secure the surrender of Saddam’s security forces and his army. Hard to imagine.
+ - I think one has to say it’s not just simply a matter of capturing people and holding them accountable, but removing the sanctuaries, removing the support systems.
+ - One of the things that ultimately led me to leave mathematics and go into political science was thinking I could prevent nuclear war.
+ - For one thing I tend not to see myself in various moulds that people fit me into.
+ - I think all foreigners should stop interfering in the internal affairs of Iraq. Those who want to come and help are welcome. Those who come to interfere and destroy are not.
+ - I like globalization; I want to say it works, but it is hard to say that when six hundred million people are slipping backwards.
+ - For the private sector to flourish, special privilege must give way to equal opportunity and equal risk for all.
+ - China, in the future, is going to have even more nuclear capability than it has had in the past. I don’t believe that they have anything to fear from the United States, and I frankly don’t believe they do fear the United States.
+ - I mean, we’re going to probably debate the Iraq war for at least as long as I’m alive.
+ - I think, in the longer view of things, there is a very powerful pull in the direction of participatory government.
+ - I’m constantly asking for alternative views on most things that come to me.
+ - Firing employees, that’s unfortunately a part of doing business.
+ - You cant win if youre chasing the wrong problem.
+ - I’ve met quite a few dictators up close and personal in my life.
+ - Public action should seek to expand the set of opportunities of those who have the least voice and fewest resources and capabilities.
+ - Look, I think the notion that theres a dogma or doctrine of foreign policy that gives you a textbook recipe for how to react to all situations is really nonsense.
+ - Every math curriculum in the world is based on the idea of hand-calculating, and most of what you’re teaching is how to calculate. And I think the resistance to this is very variable.
+ - History is just littered with problems that were solved that were supposed to be impossible.
+ - I think it’s a mistake to rely too much on any one economic factor. It’s why investors try to spread their portfolio round.
+ - It’s a very bad thing when people exterminate other people, and people persecute minorities.
+ - The use of force to liberate people is very different from the use of force to suppress or control them, or even to defeat them.
+ - The absence of Saddam is a huge weight off the Arab world.
+
+29 quotes

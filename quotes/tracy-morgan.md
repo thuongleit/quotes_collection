@@ -1,0 +1,83 @@
+ - Live every week like it’s shark week.
+ - Having a daughter makes you see things in a different way. This is my only girl. So I don’t care what it takes to protect her. You can call it what you want to call it. As long as you treat her the same way I treat her, like my princess, I don’t mind.
+ - The truth is, I’ve never thought of myself as the Michael Jordan of comedy. And that’s a good thing. You know why? Because I’m not. Wasn’t that Richard Pryor? Yes, it was. I know what I am: I’m funny!
+ - It’s just, people recognize you for your work, you know? They love you for your work, and they judge you for your work. It’s awesome to have people quoting you. I love it.
+ - My father was the role model I looked up. My dad was an entertainer, too. I patterned my life after him. He wanted me to do better than he did. He never sold a record in his life, but to me he was still a rock star.
+ - I just want to be funny, I just want to do comedy.
+ - If you don’t laugh, you’re going to cry and people are crying. That’s why I guess you have lots of people like comedians to keep us laughing.
+ - I’m not really struggling about my career. The struggles are in my personal life. I can’t really pinpoint how long it took me to get where I’m at, and I didn’t care how long it was going to take, because it’s not about the destination, it’s about the journey.
+ - Affirmative action was designed to keep women and minorities in competition with each other to distract us while white dudes inject AIDS into our chicken nuggets.
+ - And when I was angry, when I was younger, I was in a cocoon. Now I’m a beautiful, black butterfly.
+ - I have snakes, three sharks, moray eels, piranhas, five scorpions and a bird spider. All of them are predators. They are dangerous but it’s cool to have strong and powerful pets.
+ - I just want to have a star on the Hollywood Walk of Fame, so that when I’m long gone my great-great-grandchildren can walk up to it and say, “That’s my ancestor.” That will be my legacy.
+ - When a child is born, it’s born with a heart of gold, but the way of this world can turn that heart cold. I’m still a good person, and I thank God for that – He’s working with me on it.
+ - I love this cornbread so much, I wanna take it behind a middle school and get it pregnant.
+ - My father said: “If you want to catch your girl cheating, you knock on the front door and run to the back, because he’s coming out the back.”
+ - I grew up in the projects in Brooklyn, and I consider myself lucky and blessed to be where I am – just working.
+ - Bad news travels at the speed of light; good news travels like molasses.
+ - Listen, Bruce Lee fought out of anger. That’s why they call it the ‘Fists of Fury.’ Michael Jackson danced with fury. I do stand up out of fury. I’m not mad at anybody. I’m not mad at any human being because I’m a human being.
+ - I live life and I don’t take it for granted.
+ - A stand-up’s job is to hold the mirror up to society and to look at what we’re afraid of. That’s why we had shows like ‘All in the Family’ and ‘The Jeffersons.’ We made fun of ourselves then.
+ - I had a great time working on ‘Saturday Night Live.’ It was one of the important times in my life.
+ - I’m old, and so busy with work, that I like to just stay home and get my sleep now. I try not to burn both ends of the candle.
+ - I love my mother. My mother made sure, her stubbornness – she made sure we was going to eat. She made sure we had Christmases. That was my mother. My father wasn’t there for that.
+ - I don’t have a hateful bone in my body. I don’t believe anyone should be bullied or made to feel bad about who they are.
+ - I don’t need no stool and mike stand. I don’t need all of that to be funny. I’ve been funny my whole life. This is a gift God gave me. I spread love wherever I’m at. I’m like Marvin Gaye.
+ - I’ve been funny my whole life. This is a gift God gave me.
+ - Michael’s the ultimate entertainer. After Michael Jackson, it’s Elvis Presley, Frank Sinatra, and Bruce Lee.
+ - The actors are different, although I didn’t set out to be different. My inspiration came from people like Eddie Murphy, Martin Lawrence and Will Smith. The genre is what it is. My inspiration was drawn from great movies like 48 Hours, Bad Boys and Rush Hour.
+ - I see knowledge of self. I know who I am. When I look in the mirror, I see me.
+ - You get somebody to crack a smile, that’s a beautiful thing.
+ - Make your judgments and then you don’t have to worry about it. You’re always going to have those people who are offended about every little thing.
+ - My sense of humor was a tool for me getting past my mother and father separating, my older brother having cerebral palsy, and the bullies in the schoolyard. I had to make them laugh to keep them off my ass. I brought that to my professional career.
+ - I don’t even deal with politics. I just don’t believe in them. I think politics are politricks. My whole thing is power to the people. I don’t put my faith in any one man. I keep my faith in God. That’s where I keep my faith.
+ - I’m from Bed-Stuy, Brooklyn. So, you grow up around police officers. Some of them are in your family, some of them you have encounters with. I had a young police officer we were friends with in our group.
+ - It’s very important to be in your child’s life and know what’s going on and be there with them.
+ - When I was a young kid, my pops introduced me to it. He took me to Harlem, 145th and Edgecombe, to watch the filming of Claudine with James Earl Jones and Diahann Carroll. That was my first taste of seeing a set and the cameras, and I was bit by the acting bug at a young age.
+ - Being funny wasn’t a career choice growing up, it was my way out of situations; a way to survive another day.
+ - I think the word ‘pregnant’ is funny.
+ - My sense of humor is a turkey, and I pull it out of the oven and baste it in reality.
+ - I would love to try action films.
+ - Life smacks Tracy Morgan in the face, and I don’t mean to talk in third party, but no, it doesn’t stop raining when I come outside, no, absolutely not. I’m very in touch.
+ - My life growing up was a twisted Bronx version of The Color Purple. It had a much different soundtrack and no trees, but that desperation was the same.
+ - I spread love wherever I’m at. I’m like Marvin Gaye.
+ - I’m a big, big movie fan. I watch ‘The Ten Commandments’ and the original ‘Planet of the Apes’ every night.
+ - To me, politics is a pile of tricks.
+ - I love 30 Rock because Tina Fey allows me to fly over the cuckoo nest once a week.
+ - If you can survive ‘Saturday Night Live,’ then you’re good as far as show business is concerned.
+ - If we all had a little bit of Michael Jackson in us, I think it would make the world a better place.
+ - You will be surprised but I do a lot of studying and I watch National Geographic.
+ - I’m around my kids every day. I’m regular. We’re a regular family. My wife cooks, she washes clothes, I read books, I pump my own gas, I get my own hair cut.
+ - Stand-up don’t get no respect – it’s the hardest thing to do in show business. You don’t have no band and there’s no music.
+ - Reality is the scary thing. Not my work, not comedy.
+ - I’m not really much into politics, because it’s rarely discussed in my line of work.
+ - The things I did on Saturday Night Live are going to stay as Saturday Night Live. You’ve never seen Eddie Murphy do a Gumby movie. There’s a lot more new material inside of me.
+ - Stand-up is my foundation. That’s where it started at. And I love it because it’s personal. It’s mine. It’s all me. It’s my experience in life.
+ - Martin Lawrence is one of my comedic heroes, and he’s a genius.
+ - I just see myself as a short, dumpy guy with bad feet, and I’m passionate.
+ - I was like any other inner-city kid with a chip on his shoulder because his daddy and his mommy wasn’t together.
+ - Stand-up is the foundation to my career. It’s what I started out doing.
+ - I do stand up sometimes out of anger. Sometimes the greatest stuff comes from a dark place.
+ - I love being around people who love to do what I love to do, which is comedy.
+ - People bring camera phones into comedy shows and clubs and concerts, and sound bites never come out right.
+ - Sometimes I think we’re exposed to things we shouldn’t be exposed to too early. I think that sets the tone to a person’s whole life.
+ - People walked out on Richard Pryor and he’s the funniest man alive.
+ - Every person has contributed to me as a human, but a lot of the characters I do are ones I created.
+ - Too many people focus on the thing, instead of the heavenly glory of it. I don’t want to give away what to expect.
+ - My father was funnier than me. My father was Richard Pryor-funny. I’m just a better businessman.
+ - If I don’t offend somebody, then I’m probably not funny.
+ - I’m not focused on the outrageousness. I’m just focused on being funny, and raising my kids. I don’t even read the newspaper, I don’t read that crap.
+ - I don’t take any relationships for granted and I won’t ever again. I just enjoy life.
+ - Comedy clubs are sacred ground. That’s where anything goes.
+ - You can’t hold me to the same standard as the president or a school teacher. I’m just a comedian. My job is like Archie Bunker.
+ - Stand-up and comedy is the place where we are supposed to be able to make fun of all of the world’s ills.
+ - I deal with my sons like young men. If they have a problem with something, they come to me. I am the type of dad that will drop everything I am doing for them, and always tell them to talk to me about it.
+ - I think people would want to see Tracy Morgan host ‘Saturday Night Live.’
+ - I don’t do drama. I’m a comedian.
+ - What I have learned over the years is to try to stay in the moment. I want to feel it all because I’ve realized nothing lasts.
+ - I’m very giving. Even if it’s for nonsense, I’ll give it to you.
+ - I want to let my fans know I love them and I’m coming your way and I’m bringing truckloads of funny.
+ - I love Ice Cube and Charlie Day. They’re brilliant men, great actors and very funny people.
+ - As a child, I was able to know that I wanted a better life.
+
+81 quotes

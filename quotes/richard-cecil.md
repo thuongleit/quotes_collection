@@ -1,0 +1,50 @@
+ - Regeneration is God’s disposing the heart to Himself; conversion is the actual turning of the heart to God.
+ - God’s way of answering the Christian’s prayer for more patience, experience, hope and love often is to put him into the furnace of affliction.
+ - The first step towards knowledge is to know that we are ignorant.
+ - In the midst of sorrow, faith draws the sting out of every trouble, and takes out the bitterness from every affliction.
+ - The Christian’s fellowship with God is rather a habit than a rapture.
+ - Faith laughs at the shaking of the spear; unbelief trembles at the shaking of a leaf.
+ - Prayer is faith passing into action.
+ - Let family worship be short, savory, simple, plain, tender, heavenly.
+ - Every man will have his own criterion in forming his judgment of others. I depend very much on the effect of affliction. I consider how a man comes out of the furnace; gold will lie for a month in the furnace without losing a grain.
+ - Duties are ours; events are God’s. This removes an infinite burden from the shoulders of a miserable, tempted, dying creature. On this consideration only, can he securely lay down his head, and close his eyes.
+ - Think of the ills from which you are exempt, and it will aid you to bear patiently those which now you may suffer.
+ - Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.
+ - All extremes are error. The reverse of error is not truth, but error still. Truth lies between extremes.
+ - The nurse of infidelity is sensuality.
+ - Time can take nothing from the BIBLE. It is the living monitor. Like the sun, it is the same in its light and influence to man this day which it was years ago. It can meet every present inquiry and console every present loss.
+ - Unbelief starves the soul; faith finds food in famine.
+ - Eloquence is vehement simplicity.
+ - An accession of wealth is a dangerous predicament for a man. At first he is stunned if the accession be sudden, and is very humble and very grateful. Then he begins to speak a little louder, people think him more sensible, and soon he thinks himself so.
+ - Sin, without strong restraints, would pull God from His throne, make the world the minion of its lusts, and all beings bow down and worship.
+ - Providence is a greater mystery than revelation.
+ - Method is the very hinge of business, and there is no method without punctuality.
+ - Example is more forcible than precept. People look at my six days in the week to see what I mean on the seventh.
+ - The world looks at ministers out of the pulpit to know that they mean in it.
+ - The history of all the great characters of the Bible is summed up in this one sentence: They acquainted themselves with God, and acquiesced His will in all things...
+ - In viewing the scheme of redemption, I seem like one viewing a vast and complicated machine of exquisite contrivance; what I comprehend of it is wonderful, what I do not, is, perhaps, more so still.
+ - Philosophy is a proud, sullen detector of the poverty and misery of man. It may turn him from the world with a proud, sturdy contempt; but it cannot come forward and say, here are rest, grace, pardon, peace, strength, and consolation.
+ - A wise man looks upon men as he does on horses; all their caparisons of title, wealth, and place, he considers but as harness.
+ - Religion is such a belief of the Bible as maintains a living influence on the heart.
+ - An idle man has a constant tendency to torpidity. He has adopted the Indian maxim that it is better to walk than to run, and better to stand than to walk, and better to sit than to stand, and better to lie than to sit. He hugs himself into the notion, that God calls him to be quiet.
+ - Nothing can be proposed so wild or so absurd as not to find a party, and often a very large party to espouse it.
+ - The spirit and tone of your home will have great influence on your children. If it is what it ought to be, it will fasten conviction on their minds, however wicked they may become.
+ - If there is any person to whom you feel a dislike, that is the person of whom you ought never to speak.
+ - He who sows, even with tears, the precious seed of faith, hope, and love, shall doubtless come again with joy, bringing his sheaves with him, because it is the very nature of that seed to yield a joyful harvest.
+ - Self-will so ardent and active that it will break a world to pieces to make a stool to sit on.
+ - Our Heavenly Father always sends His children the things they ask, or better things.
+ - It is much easier to settle a point than to act on it.
+ - I could write down twenty cases wherein I wished that God had done otherwise than he did, but which I now see, if I had had my own way, would have led to extensive mischief.
+ - Faith makes all evil good to us, and all good better; unbelief makes all good evil, and all evil worse.
+ - The religion of a sinner stands on two pillars; namely, what Christ did for us in the flesh, and what he performs in us by his Spirit. Most errors arise from an attempt to separate these two.
+ - We are urgent about the body; He is about the soul. We call for present comforts; He considers our everlasting rest. And therefore when He sends not the very things we ask, He hears us by sending greater than we can ask or think.
+ - Abraham teaches us the right way of conversing with God : “And Abraham fell on his face, and God talked with him.” When we plead with Him, our faces should be in the dust.
+ - The Christian will find his parentheses for prayer even in the busiest hours of life.
+ - Wisdom prepares for the worst, but folly leaves the worst for the day when it comes.
+ - The man who labors to please his neighbor for his good to edification has the mind that was in Christ. It is a sinner trying to help a sinner. Even a feeble, but kind and tender man, will effect more than a genius, who is rough and artificial.
+ - The only instance of praying to saints, mentioned in the Bible, is that of the rich man in torment calling upon Abraham; and let it be remembered, that it was practised only by a lost soul and without success.
+ - There is no such thing as a fixed policy, because policy like all organic entities is always in the making.
+ - The Old and New Testaments contain but one scheme of religion. Neither part of this scheme can be understood without the other.
+ - Every man is an original and solitary character. None can either understand or feel the book of his own life like himself.
+
+48 quotes

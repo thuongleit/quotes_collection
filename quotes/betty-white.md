@@ -1,0 +1,111 @@
+ - You don't luck into integrity. You work at it.
+ - You’re never too old for anything!
+ - My mother always used to say: ‘The older you get, the better you get, unless you’re a banana.’
+ - I don’t know people get so anti-something. Just mind your own business, take care of your own affairs, and don’t worry about other people so much.
+ - People forget the good that zoos do. If it weren’t for zoos, we would have so many species that would be extinct today.
+ - Get at least 8 hours of beauty sleep. 9 if you’re ugly.
+ - Friendship takes time and energy if it’s going to work. You can luck into something great, but it doesn’t last if you don’t give it proper appreciation. Friendship can be so comfortable, but nurture it-don’t take it for granted.
+ - It’s your outlook on life that counts. If you take yourself lightly and don’t take yourself too seriously, pretty soon you can find the humor in our everyday lives. And sometimes it can be a lifesaver.
+ - I think everybody needs a passion. Whether it’s one passion or a hundred, that’s what keep life interesting.
+ - Trolls suck.
+ - I know unless I’m true to myself I couldn’t be happy. Too much emphasis is placed today on externals and too little on character.
+ - If one has no sense of humor, one is in trouble.
+ - Kindness and consideration of somebody besides yourself. I think that keeps you feeling young. I really do.
+ - Don’t try to be young. Just open your mind. Stay interested in stuff. There are so many things I won’t live long enough to find out about, but I’m still curious about them. You know people who are already saying, ‘I’m going to be 30 – oh, what am I going to do?’ Well, use that decade! Use them all!
+ - You can always tell about somebody by the way they put their hands on an animal.
+ - I just make it my business to get along with people so I can have fun. It’s that simple.
+ - Retirement is not in my vocabulary. They aren’t going to get rid of me that way.
+ - Animals don’t lie. Animals don’t criticize. If animals have moody days, they handle them better than humans do.
+ - Animal lover that I am, a cougar I am not.
+ - All creatures must learn to coexist. That’s why the brown bear and the field mouse can share their lives in harmony. Of course, they can’t mate or the mice would explode.
+ - Keep the other person’s well being in mind when you feel an attack of soul-purging truth coming on.
+ - I really don’t care with whom you sleep. I just care what kind of a decent human being you are.
+ - You know what the problem that animal activists sometimes have? They only concentrate on the heartbreaking things to the point where the general public thinks, ‘Oh, here comes those animal folks again and I’m going to hear all the things I don’t want to hear.’
+ - I’ve worked with Morris Animal Foundation for more than 40 years now, and I’m so proud of all they’ve done to advance veterinary medicine for animals worldwide.
+ - Take personal responsibility. A lot of people go, ‘Well, I’ll get a dog because I have a kid and a kid needs a dog.’ And it doesn’t work out for that dog and the dog is on the street.
+ - If the guy’s a cutie, you’ve gotta tap that booty.
+ - My blessing is I’m blessed with good health. If I weren’t feeling good or if I didn’t have the energy, then it’s not that much fun. But this way, you can get away with murder because you’re going to be 90 in January.
+ - One thing they don’t tell you about growing old – you don’t feel old, you just feel like yourself. And it’s true. I don’t feel eighty-nine years old. I simply am eighty-nine years old.
+ - I didn’t know what Facebook was, and now that I do know what it is, I have to say, it sounds like a huge waste of time.
+ - I have a two-story house and a bad memory, so I’m up and down those stairs all the time. That’s my exercise.
+ - Snow always inspires such awe in me. Just consider one tiny snowflake alone, so delicate, so fragile, so ethereal. And yet, let a billion of them come together through the majestic force of nature, they can screw up a whole city.
+ - Once someone has had the good fortune to share a true love affair with a Golden Retriever, one’s life and one’s outlook is never quite the same.
+ - Facebook just sounds like a drag, in my day seeing pictures of peoples vacations was considered a punishment.
+ - My mother and dad were big animal lovers, too. I just don’t know how I would have lived without animals around me. I’m fascinated by them – both domestic pets and the wild community. They just are the most interesting things in the world to me, and it’s made such a difference in my lifetime.
+ - I may be a senior, but so what? I’m still hot.
+ - Those that just talk are also the ones that say, ‘Why don’t they do this?’ and ‘Why don’t they do that?’ Well, they’re they. We’re all they, and we can all do a little something.
+ - The bottom line is, I’m blessed with good health. On top of that, I don’t go around thinking ‘Oh, I’m 90, I better do this or I better do that.’ I’m just Betty. I’m the same Betty that I’ve always been. Take it or leave it.
+ - Well, I mean, if a joke or humor is bawdy, it’s got to be funny enough to warrant it. You can’t just have it bawdy or dirty just for the sake of being that – it’s got to be funny.
+ - People who don’t like cats haven’t been around them. There’s the old joke: dogs have masters, cats have staff.
+ - During the Depression, my dad made radios to sell to make extra money. Nobody had any money to buy the radios, so he would trade them for dogs. He built kennels in the backyard, and he cared for the dogs.
+ - I think a lot of people like hidden-camera shows where they think they’re spying on somebody who doesn’t know they’re looking at them. And nobody takes it seriously – you either enjoy it and get a laugh out of the reactions or not.
+ - There is no fool like an old fool.
+ - I love bawdy humor, but not dirty humor.
+ - I’m a teenager trapped in an old body.
+ - I’m blessed with good health for which I’m deeply grateful, so for that reason, I feel so good. Everybody else is far more excited about the 90 than I am.
+ - If you call me a comedian I will be very grateful. I will thank you profoundly. No, I love doing comedy. It’s fun once in a while to do a serious part but I really enjoy doing comedy because I love to laugh.
+ - I enjoy being busy, I really do. Remember, I’m the stub end of the railroad. I have no family, so I’m not taking busy time away from people that I should be spending it with. So I’m just relaxing and enjoying it.
+ - I’m just happy as a lark having a good health. People say are you thinking about retiring, I don’t have time to think about retiring.
+ - Humor is like music. It’s a rhythm, and you just kind of get the rhythm of it, and you have to know not to let the beat go too long, but to leave a beat in there for it to gel.
+ - A good friend of mine was Lucy Ball. Her mother and my mother were best friends.
+ - I love straight-face comedy or relatively subtle comedy. And then I turn around and I find myself doing very broad comedy but it’s all fun and you have to keep your sense of humor and not take yourself seriously.
+ - I had to make a major decision with myself because I just don’t think you can do both: try to have a baby career and raise it and have a baby baby and raise it. And to try to do justice to either one. It was a very conscious decision on my part not to have children – which I have never regretted.
+ - The thing that I love about television there are no more than two or three people watching you at a time. If there are more than two or three people in a room they’re talking to each other, they’re not listening to you.
+ - Being blessed with good health gives you the strength and loving what you do and – is a privilege that keeps you going. So I’m just happy as a lark.
+ - I’m a big cockeyed optimist. I try to accentuate the positive as opposed to the negative.
+ - I think the best kind of comedy is the least self conscious. I think if you just sort of let the comedy happen without the elbow nudge, did you get it, did you get it. I love straight face comedy or subtle – relatively subtle comedy.
+ - I always tape my Christmas show in advance. That way I can spend the season of joy and goodwill with my only sister in Florida. She’s kinda a creep but she’s got a pool.
+ - Literally it’s the precise moment when dog doo turns white, but in general it refers to the type of person you don’t want to share your hoogencogles with.
+ - I’ve always had a bawdy sense of humor. My father was a traveling salesman and he would bring jokes home. He would say, “Honey, you can take this one to school, but you can’t take that one to school.”
+ - A lady likes to be complimented on her looks, her eyes, her figure. But the personality comments are much appreciated.
+ - I don’t seem to require a lot of sleep. I just – if I get four, five good hours, I’m fine. But sleeping is sort of dull. There’s a lot of other good stuff that you can do without just lying down and closing your eyes.
+ - I like double entendre because then the people who get it enjoy it, and the people who don’t get it don’t know about it.
+ - Hot dogs and Red Vines and potato chips and French fries are my favorite foods.
+ - Retirement is not a dirty word, I am just enjoying what I am doing. If they want me to retire, then stop asking me. Ask and I will say yes unless it is something I really don’t like.
+ - I’m the luckiest broad on two feet, I’ll tell you that. They say once a woman passes 40 she doesn’t get any good parts, so I’m blessed.
+ - Gravity has taken over me from time to time. But otherwise than that, I’m blessed with good health. That’s the bottom line.
+ - I’m so compulsive about stuff, I know if I had ever gotten pregnant, of course, that would have been my whole focus. But I didn’t choose to have children because I’m focused on my career. And I just don’t think, as compulsive as I am, that I could manage both.
+ - Wilderness is harder and harder to find these days on this beautiful planet, and we’re abusing our planet to the point of almost no return.
+ - When I’m around animals, I don’t pay attention to people.
+ - We didn’t have Facebook in my day, we had a phone book but you wouldn’t waste an afternoon on it.
+ - I have the backbone of an eel.
+ - I am the luckiest old broad on two feet if the truth were known. It’s – but it all goes back to ‘Mary Tyler Moore,’ ‘Golden Girls,’ all those – actors love to take the credit. We couldn’t do it without the writers.
+ - Why retire from something if you’re loving it so much and enjoying it so much, and you’re blessed with another group of people to work with like the gang on ‘Hot in Cleveland?’ Why would I think of retiring? What would I do with myself?
+ - I still like to see that a man opens the door. I like those touches of chivalry that are fast disappearing. If I sound old-fashioned, it’s because I’m as old as I am! But it’s just polite.
+ - I’ve always liked older men. They’re just more attractive to me. Of course, at my age there aren’t that many left!
+ - We laugh a lot. That’s for sure. Sure beats the alternative, doesn’t it?
+ - It’s been phenomenal, but everybody keeps congratulating me on my resurgence and my big comeback. I haven’t been away, guys. I’ve been working steadily for the last 63 years.
+ - Having a live audience makes a world of difference to the acting. It keeps your timing sharp. When something doesn’t work, the actor can sense the reaction from the audience and quickly move on.
+ - I’m blessed with learning easily. I’ve always had a good thing about memorizing quickly, and I just leave the script kind of open somewhere, and as I walk by I’ll just take a swipe at it and then go on about my business and pretty soon it sticks.
+ - Long ago, I did a five-and-a-half-hour-a-day, six-day-a-week talk show for four years, early on, in Los Angeles – local show. And when you are on that many hours with no script, you know, you get very comfortable, maybe overly comfortable with that small audience.
+ - Of course, nobody’s tearing my door down. If you’re successful you’re going to intimidate and scare off the people you’d like to spend time with. They’re not going to approach you. And the ones who do are often there because you are a celebrity.
+ - I think older women still have a full life. Maybe the writers don’t address it these days, but it doesn’t change the fact.
+ - When you start explaining why something’s funny or finding a formula for it I think it loses some of its funniness.
+ - I go out to the kitchen to feed the dog, but that’s about as much cooking as I do.
+ - The film industry gives you the opportunity to meet interesting people.
+ - I was one of the first women producers in Hollywood.
+ - Now that I’m 91, as opposed to being 90, I’m much wiser. I’m much more aware and I’m much sexier.
+ - Retirement is not in my vocabulary.
+ - Avoid tweeting any photos of your private parts.
+ - I stayed in show business to pay for my animal business.
+ - If you have one good series, you know, it’s a blessing. Two good series is unusual. Three is a phenomenon.
+ - You gotta use everything you possibly can!
+ - I’m in the middle of my sixth book, which is about animals at the Los Angeles Zoo.
+ - The writers are the stars of every really successful sitcom.
+ - When I started in television, it was brand new. It was the miracle over in the corner of your room. Now the audience has seen every story line. People have heard every joke. They can predict the plot almost before a show starts. That’s a hard, sophisticated audience to reach.
+ - I’m wearing a put-together from a little shop that I favor called the back of my closet.
+ - I don’t know where I learned elephants like their tongues slapped. Whatever turns you on.
+ - When we started in television, there was that magic box in the corner of the room, and ‘Oh my gosh – look what it’s doing!’
+ - We actors can’t take the credit. We love to try to claim the credit.
+ - If you get into a Broadway show and it doesn’t work, you’re a failure. And if it does work, you may be stuck for who knows how long. It just doesn’t sound great to me!
+ - As the years went on, the audience has become very jaded. They’ve heard every joke, they’ve seen every story line, they know where you’re going before you even start to get there. And that’s a hard audience to keep interested.
+ - When I realized I could use Facebook as a way to communicate directly with my fans, I thought it would be a great idea.
+ - I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don’t appreciate it.
+ - I won’t do anything that is connected with drugs. I’ve seen drugs ruin so many people’s lives. I don’t think there’s anything cute about drugs. And I don’t believe in celebrating them.
+ - I think we’re losing our sense of humor instead of being able to relax and laugh at ourselves. I don’t care whether it’s ethnicity, age, sexual orientation, or whose ox is being gored.
+ - Humor is like a rhythm; it’s like music. And you throw a couple of extra syllables in, you wreck the beat and you kill the laugh. So I try to follow the writers very carefully because I know how carefully they worked to do it that way.
+ - I happen to be blessed with loving what I do for a living. I love acting and I’m so fortunate to be able to work in this business. And I get these marvelous letters about how encouraging it is to see someone making the most of their time and still enjoying it.
+ - When I pontificate, it sounds so, you know, Oh, well, she’s preaching. I’m not preaching, but I think maybe I learned it from my animal friends. Kindness and consideration of somebody besides yourself. I think that keeps you feeling young. I really do.
+ - The audience today has heard every joke. They know every plot. They know where you’re going before you even start. That’s a tough audience to surprise, and a tough audience to write for. It’s much more competitive now, because the audience is so much more – I want to say ‘sophisticated.’
+
+109 quotes

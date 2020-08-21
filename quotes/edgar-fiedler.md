@@ -1,0 +1,9 @@
+ - For economist the real world is often a special case.
+ - If you have to forecast, forecast often...
+ - Ask five economists and you’ll get five different answers – six if one went to Harvard...
+ - Economists state their GNP growth projections to the nearest tenth of a percentage point to prove they have a sense of humor.
+ - The herd instinct among forecasters makes sheep look like independent thinkers...
+ - Forecasters tend to learn less and less about more and more, until in the end they know nothing about everything.
+ - When you know absolutely nothing about the topic, make your forecast by asking a carefully selected probability sample of 300 others who don’t know the answer either.
+
+7 quotes

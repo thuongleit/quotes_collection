@@ -1,0 +1,231 @@
+ - Wisdom is knowing I am nothing, Love is knowing I am everything, and between the two my life moves.
+ - Past and future are in the mind only – I am now.
+ - Once you realize that the road is the goal and that you are always on the road, not to reach a goal, but to enjoy its beauty and its wisdom, life ceases to be a task and becomes natural and simple, in itself an ecstasy.
+ - You will receive everything you need when you stop asking for what you do not need.
+ - It is always the false that makes you suffer, the false desires and fears, the false values and ideas, the false relationships between people. Abandon the false and you are free of pain; truth makes happy, truth liberates.
+ - In my world, nothing ever goes wrong.
+ - Give up all ideas about yourself and simply be.
+ - You are not the body. You are the immensity and infinity of consciousness.
+ - You are not the mind. If you know you are not the mind, then what difference does it make if it’s busy or quiet? You are not the mind.
+ - Whatever happens, happens to you by you, through you; you are the creator, enjoyer and destroyer of all you perceive.
+ - To know that you are a prisoner of your mind is the dawn of wisdom.
+ - You are not in this world. This world is inside you.
+ - The search for Reality is the most dangerous of all undertakings, for it destroys the world in which you live.
+ - The consciousness in you and the consciousness in me, apparently two, really one, seek unity and that is love.
+ - The attitude of silent observation is the very foundation of yoga. You see the picture, but you are not the picture.
+ - I am that by which I know ‘I am’
+ - Realize that your world is only a reflection of yourself and stop finding fault with the reflection. Attend to yourself, set yourself right; mentally and emotionally. The physical self will follow automatically.
+ - The root of fear is the feeling of not being what you are.
+ - You begin by letting thoughts flow and watching them. The very observation slows down the mind till it stops altogether. Once the mind is quiet, keep it quiet. Don’t get bored with peace, be in it, go deeper into it.
+ - If you are angry or in pain, separate yourself from anger and pain and watch them. Externalization is the first step to liberation.
+ - The mind creates the abyss, and the heart crosses it.
+ - Believe me, there is no goal, nor a way to reach it. You are the way and the goal, there is nothing else to reach except yourself.
+ - Between the banks of pain and pleasure the river of life flows. It is only when the mind refuses to flow with life, and gets stuck at the banks, that it becomes a problem.
+ - When I look beyond the mind, I see the witness. Beyond the witness, there is infinite intensity of emptiness and silence.
+ - Stay open and quiet, that is all. What you seek is so near you that there is no place for a way.
+ - Don’t rely on your mind for liberation. It is the mind that brought you into bondage. Go beyond it altogether.
+ - Whatever can be understood or perceived can never be the eternal Truth. The Unknown is the Truth.
+ - In the stillness of the mind I saw myself as I am – unbound.
+ - Life is love and love is life.
+ - In reality there are no others, and -helping yourself you help everybody else.
+ - In peace and silence, the skin of the ‘I’ dissolves and the inner and the outer become one.
+ - There is nothing to do, just be. Do nothing. Be. No climbing mountains and sitting in caves. I do not even say “be yourself” since you do not know yourself. Just be.
+ - Whatever you may have to do, watch your mind. Also you must have moments of complete inner peace and quiet, when your mind is absolutely still. If you miss it, you miss the entire thing. If you do not, the silence of the mind will dissolve and absorb all else.
+ - Simply look at whatever happens and know that you are beyond it.
+ - Truth gives no advantage. It gives no higher status, no power over others; all you get is truth and freedom from the false.
+ - Laugh with people laughing, cry with people crying, but don’t fall into the river of world illusion. Stay on the banks.
+ - Unless you know yourself, what else can you know?
+ - These moments of inner quiet will burn out all obstacles without fail. Don’t doubt its efficacy. Try it.
+ - Love is not selective, desire is selective. In love there are no strangers.
+ - There is no second, or higher self to search for. You are the highest self, only give up the false ideas you have about your self.
+ - When I look inside and see that I’m nothing, that’s wisdom. When I look outside and see that I’m everything, that’s love. And between these two, my life turns.
+ - In marriage you are neither the husband nor the wife; you are the love between two.
+ - Suffering is due entirely to clinging or resisting. It is a sign of our unwillingness to move on, to flow with life.
+ - All is a play in consciousness. All divisions are illusory. You can know the false only. The true you must yourself be.
+ - Let the dream unroll itself to its very end. You cannot help it. But you can look at the dream as a dream, refuse it the stamp of reality.
+ - There is only life, there is nobody who lives a life.
+ - How can an unsteady mind make itself steady? Of course it cannot. It is the nature of the mind to roam about. All you can do is to shift the focus of consciousness beyond the mind.
+ - Forget the known, don’t be all the time immersed in your experiences.
+ - Real happiness is not vulnerable, because it does not depend on circumstances.
+ - Abandon the false and you are free of pain; truth makes happy, truth liberates.
+ - Leave greatness to others. Become so small that no one can see you. This conviction results from growing devotion to the supreme reality.
+ - Nothing can trouble you but your own imagination.
+ - You are really in search of yourself, without knowing it. You are love-longing for the love-worthy, the perfect lovable. Due to ignorance you are looking for it in the world of opposites and contradictions. When you find it within, your search will be over.
+ - Having never left the house you are looking for the way home.
+ - You can become a night watchman and live happily. It is what you are inwardly that matters. Your inner peace and joy you have to earn. It is much more difficult than earning money. No university can teach you to be yourself.
+ - Shift your attention from words to silence and you will hear.
+ - Contemplate life as infinite, undivided, ever present, ever active, until you realize yourself as one with it. It is not even very difficult, for you will be returning only to your own natural condition.
+ - The universe is but a partial manifestation of your limitless capacity to become.
+ - When you demand nothing of the world, nor of God, when you want nothing, seek nothing, expect nothing, then the supreme state will come to you uninvited and unexpected.
+ - There is only one meditation – the rigorous refusal to harbor thoughts.
+ - Awareness is ever there. It need not be realized. Open the shutter of the mind, and it will be flooded with light.
+ - Whatever you come across- go beyond.
+ - Don’t ask the mind to confirm what is beyond the mind. Direct experience is the only valid confirmation.
+ - When you go beyond awareness, there is a state of nonduality, in which there is no cognition, only pure being. In the state of nonduality, all separation ceases.
+ - You will get to your maturity quickly if you stay in the nothingness.
+ - Stop imagining yourself being or doing this or that and the realization that you are the source and heart of all will dawn on you.
+ - To go beyond the mind, you must be silent and quiet. Peace and silence, silence and peace – this is the way beyond. Stop asking questions.
+ - When effort is needed, effort will appear. When effortlessness becomes essential, it will assert itself. You need not push life about. Just flow with it and give yourself completely to the task of the present moment...
+ - All happiness comes from awareness. The more we are conscious the deeper the joy. Acceptance of pain, non-resistance, courage and endurance – these open deep and perennial sources of real happiness, true bliss.
+ - All you can teach is understanding. The rest comes on its own.
+ - I ask you only to stop imagining that you were born, have parents, are a body, will die and so on. Just try, make a beginning-it is not as hard as you think.
+ - It is just like your tape-recorder. It records, it reproduces – all by itself. You only listen. Similarly, I watch all that happens, including my talking to you. It is not me who talks, the words appear in my mind and then I hear them said.
+ - Whatever comes and goes, is not reality. See the event as event only. Then you are vulnerable to reality, no longer armoured against it, as you were when you gave reality to events and experiences.
+ - When you desire the common good, the whole world desires with you. Make humanity’s desire your own and work for it. There you cannot fail.
+ - The only thing required of you is to allow all your raging desires to relax into preferences. Then everything will be done through you and for you, not by you.
+ - Get hold of the main thing: That the world and the self are one and perfect. Only your attitude is faulty and needs readjustment.
+ - Imagine a dense forest full of tigers and you in a strong steel cage. Knowing that you are well protected by the cage, you watch the tigers fearlessly. Next, you find the tigers in the cage and yourself roaming about in the jungle. Last, the cage disappears and you ride the tigers!
+ - Between the banks of pleasure and pain flows the river of life. If you spend much time on either bank you will miss out on life.
+ - You have never been, nor shall ever be, a person. Refuse to consider yourself as one. But as long as you do not even doubt yourself to be Mr. So-and-so, there is little hope. When you refuse to open your eyes, what can you be shown?
+ - Abandon false ideas, that is all. There is no need of true ideas. There aren’t any.
+ - When you believe yourself to be a person, you see persons everywhere. In reality there are no persons, only threads of memories and habits. At the moment of realisation the person ceases.
+ - The legitimate function of the mind is to tell you what is not. But if you want positive knowledge, you must go beyond the mind.
+ - You want to know yourself. For this keep steadily in the focus of consciousness, the only clue you have: your certainty of being. Be with it, play with it, ponder over it, delve deeply into it, till the shell of ignorance breaks open and you emerge into the realm of reality.
+ - The world does not yield to changing. By its very nature it is painful and transient. See it as it is and divest yourself of all desire and fear. When the world does not hold and bind you, it becomes an abode of joy and beauty. You can be happy in the world only when you are free of it.
+ - The first steps in self-acceptance are not at all pleasant, for what one sees is not a happy sight. One needs all the courage to go further.
+ - It is your restlessness that causes chaos.
+ - Seeking out causes is a pastime of the mind. There is no duality of cause and effect. Everything is its own cause.
+ - We grow through investigation, and to investigate we need experience. We tend to repeat what we have not understood. If we are sensitive and intelligent, we need not suffer. Pain is a call for attention and the penalty of carelessness. Intelligent and compassionate action is the only remedy.
+ - Earnestness is the most important thing.
+ - I am told I was born. I do not remember...
+ - Do what you believe in and believe in what you do. The rest is a waste of time and energy.
+ - All you need is to stop searching outside for what can be found only within. Set your vision right before you operate. You are suffering from acute misapprehension. Clarify your mind, purify your heart, sanctify your life – this is the quickest way to a change in your world.
+ - The innermost light, shining peacefully and timelessly in the heart, is the real Guru. All others merely show the way.
+ - Inquire, investigate, doubt yourself and others. To find truth, you must not cling to your convictions; if you are sure of the immediate, you will never reach the ultimate. Your idea that you were born and that you will die is absurd – both logic and experience contradict it.
+ - As long as the mind is there, your body and your world are there. Your world is mind-made, subjective, enclosed within the mind, fragmentary, temporary, personal, hanging on the thread of memory.
+ - Meditation will help you to find your bonds, loosen them, untie them and cast your moorings. When you are no longer attached to anything, you have done your share. The rest will be done for you.
+ - Discard every self-seeking motive as soon as it is seen, and you need not search for truth; truth will find you...
+ - All your desires, whatever they may be, are expressions of your longing for happiness. Basically, you wish yourself well.
+ - All that happens is the cause of all that happens. Causes are numberless; the idea of a sole cause is an illusion.
+ - Unless you make tremendous efforts, you will not be convinced that effort will take you nowhere. The self is so self-confident that unless it is totally discouraged it will not give up. Mere verbal conviction is not enough. Hard facts alone can show the absolute nothingness of the self-image.
+ - Whatever state I am in, I see it as a state of mind to be accepted as it is.
+ - Pure knowledge is not imparted by another; it comes unmasked. It is the one that is listening: it is your own true nature.
+ - Detach yourself from all that makes your mind restless. Renounce all that disturbs its peace. If you want peace, deserve it. By being a slave to your desires and fears, you disturb peace.
+ - If you could only keep quiet, clear of memories and expectations, you would be able to discern the beautiful pattern of events. Its your restlessness that causes chaos.
+ - The moment you know your real being, you are afraid of nothing. Death gives freedom and power. To be free in the world, you must die to the world. Then the universe is your own, it becomes your body, an expression and a tool. The happiness of being absolutely free is beyond description.
+ - The problem is not yours – it is your mind’s only. Begin by disassociating yourself from your mind. Resolutely remind yourself that you are not the mind and that its problems are not yours.
+ - You are already perfect, only you don’t know it. Learn to know yourself and you will discover wonders.
+ - Being oneself is completely beyond all motivation. You cannot be yourself for some reason. You are yourself, and no reason is needed.
+ - Leave your mind alone, that is all. Do not go along with it. After all, there is no such thing as mind apart from thoughts which come and go obeying their own laws, not yours. They dominate you only because you are interested in them.
+ - The real does not die, the unreal never lived.
+ - Pleasure puts you to sleep and pain wakes you up. If you don’t want to suffer, don’t go to sleep.
+ - Just as every drop of the ocean carries the taste of the ocean, so does every moment carry the taste of eternity.
+ - The world you perceive is made of consciousness; what you call matter is consciousness itself.
+ - Look at your mind dispassionately; this is enough to calm it. When it is quiet, you can go beyond it. Do not keep it busy all the time. Stop it – and just BE.
+ - Instead of searching for what you do not have, find out what it is that you have never lost.
+ - You have projected onto yourself a world of your own imagination, based on memories, on desires and fears, and you have imprisoned yourself in it. Break the spell and be free.
+ - Surrender to your own self, of which everything is an expression.
+ - The real you is timeless and beyond life and death.
+ - In the light of calm and steady self-awareness, inner energies wake up and work miracles without any effort on your part.
+ - A quiet mind is all you need. All else will happen rightly, once your mind is quiet.
+ - The ultimate point of view is that there is nothing to understand, so when we try to understand, we are only indulging in acrobatics of the mind. Whatever you have understood, you are not. Why are you getting lost in concepts? You are not what you know, you are the knower.
+ - Cooperate with your destiny, don’t go against it, don’t thwart it. Allow it to fulfill itself.
+ - When pain is accepted for what it is, a lesson and a warning, and deeply looked into and heeded, the separation between pain and pleasure breaks down, both become just experience – painful when resisted, joyful when accepted.
+ - Do not neglect this body. This is the house of God; take care of it, only in this body can God be realized.
+ - Nothing can make you happier than you are. All search for happiness is misery and leads to more misery. The only happiness worth the name is the natural happiness of conscious being.
+ - The silence before the words were spoken, is it different from the silence that came after?
+ - Deepen and broaden your awareness of yourself and all the blessings will flow. You need not seek anything, all will come to you most naturally and effortlessly.
+ - All will happen as you want it, provided you really want it.
+ - Freedom is from something. What are you to be free from? Obviously, you must be free from the person you take yourself to be, for it is the idea you have of yourself that keeps you in bondage.
+ - When you know beyond all doubting that the same life flows through all that is, and you are that life, you will love all naturally and spontaneously.
+ - Your first task is to see the sorrow in you and around you; your next, to long intensely for liberation. The very intensity of longing will guide you; you need no other guide.
+ - I ask you what is the taste of your mouth all you can do is to say: it is neither sweet nor bitter, nor sour nor astringent; it is what remains when all these tastes are not. Similarly, when all distinctions and reactions are no more, what remains is reality, simple and solid.
+ - It is not the right advice that liberates, but the action based on it.
+ - There is no such thing as a person. There are only restrictions and limitations. The sum total of these defines the person. The person merely appears to be, like the space within the pot appears to have the shape and volume and smell of the pot.
+ - Multiplicity without strife is joy.
+ - Knowledge gives power. In practice it is very simple. To control yourself, know yourself.
+ - You are so used to the support of concepts that when your concepts leave you, although it is your true state, you get frightened and try to cling to them again.
+ - Concentration, Full Confidence, Pure Will. With these 3, what cannot be accomplished?
+ - Pain is physical; suffering is mental. Beyond the mind there is no suffering. Pain is essential for the survival of the body, but none compels you to suffer. Suffering is due entirely to clinging or resisting; it is a sign of our unwillingness to move on, to flow with life.
+ - You cannot transcend what you do not know. To go beyond yourself, you must know yourself.
+ - Watch your thoughts as you watch the street traffic. People come and go; you register without response. It may not be easy in the beginning, but with some practice you will find that your mind can function on many levels at the same time and you can be aware of them all.
+ - Give your real being a chance to shape your life. You will not regret it.
+ - The unexpected and unpredictable is real.
+ - In my world love is the only law. I do not ask for love, I give it.
+ - Absolute perfection is here and now, not in some future, near or far.
+ - Don’t try to understand! It’s enough if you do not misunderstand.
+ - My stand is clear; produce to distribute, feed before you eat, give before you take, think of others before you think of yourself. Only a selfless society based on sharing can be stable and happy. This is the only practical solution. If you do not want it, then – fight.
+ - Your own self is your ultimate teacher. The outer teacher is merely a milestone. It is only your inner teacher that will walk with you to the goal, for he is the goal.
+ - There is in the body, a current of energy, affection and intelligence, which guides, maintains and energizes the body. Discover that current and stay with it.
+ - You know that you are. Don’t burden yourself with names, just be. Any name or shape you give yourself obscures your real nature.
+ - Just be. Let your true nature emerge. Don’t disturb your mind with seeking.
+ - The real is behind and beyond words, incommunicable, directly experienced, explosive in its effect on the mind. It is easily had when nothing else is wanted.
+ - Time is in the mind, space is in the mind. The law of cause and effect is also a way of thinking. In reality all is here and now and all is one. Multiplicity and diversity are in the mind only.
+ - All separation, every kind of estrangement and alienation is false. All is one...
+ - Come to the conclusion: I am unborn, I was unborn and I shall remain unborn.
+ - Suffering is a call for inquiry, all pain needs investigation.
+ - Know yourself to be the changeless witness of the changeful mind. That is enough.
+ - Devotion to your goal makes you live a clean and orderly life, given to search for truthand to helping people, and realization makes noble virtue easy and spontaneous, by removing for good the obstacles in the shape of desires and fears and wrong ideas .
+ - Don’t pretend to be what you are not. Don’t refuse to be what you are.
+ - Even for a moment do not think that you are the body. Give yourself no name, no shape. In the darkness and the silence reality is found.
+ - Once you understand that the false needs time and what needs time is false, you are nearer the Reality, which is timeless, ever in the NOW.
+ - We miss the real by lack of attention, and create the unreal by excess of imagination.
+ - Your true meaning cannot be grasped or captured by words. You can never be equated with any words, because you are prior to words.
+ - The mind exists in two states: as water and as honey. The water vibrates at the least disturbance, while the honey, however disturbed, returns quickly to immobility.
+ - Would people know that nothing can happen unless the entire universe makes it happen, they would achieve much more with less expenditure of energy.
+ - Even faith in God is only a stage on the way. Ultimately you abandon all, for you come to something so simple that there are no words to express it.
+ - Consciousness is an attribute while awareness is not; one can be aware of being conscious, but not conscious of awareness. God is the totality of consciousness, but awareness is beyond all – being as well as not-being.
+ - Words can bring you only up to their own limit; to go beyond, you must abandon them. Remain as the silent witness only.
+ - Your burden is of false self-identifications – abandon them all.
+ - You need not know what you are. Enough to know what you are not. What you are you will never know, for every discovery reveals new dimensions to conquer. The unknown has no limits.
+ - You may die a hundred deaths without a break in the mental turmoil. Or, you may keep your body and die only in the mind. The death of the mind is the birth of wisdom.
+ - The personal needs a base, a body to identify oneself with, just as a colour needs a surface to appear on.
+ - Nature is neither pleasant nor painful. It is all intelligence and beauty. Pain and pleasure are in the mind.
+ - Your weakness is due to your conviction that you were born into the world. In reality the world is ever recreated in you and by you. See everything as emanating from the light which is the source of your own being.
+ - What is beautiful? Whatever is perceived joyfully is beautiful. Bliss is the essence of beauty.
+ - The world you think of is in your own mind.
+ - Sadhana is a search for what to give up. Empty yourself completely.
+ - Meet you own self. Be with your own self, listen to it, obey it, cherish it, keep it in mind ceaselessly. You need no other guide.
+ - Only the people who have gone beyond the world can change the world.
+ - You have put so much energy into building a prison for yourself. Now spend as much on demolishing it.
+ - Moods are in the mind and do not matter. Go within, go beyond. Cease being fascinated by the content of your consciousness. When you reach the deep layers of your true being, you will find that the mind’s surface-play affects you very little.
+ - You are too much concerned with past and future. It is all due to your longing to continue, to protect yourself against extinction. And as you want to continue, you want others to keep you company, hence your concern with their survival. But what you call survival is but the survival of a dream.
+ - One who is afraid of time becomes a prey of time. But time itself becomes a prey of that one who is not afraid of it.
+ - To see myself in everybody, and everybody in myself, most certainly is love.
+ - Everybody does the same mistake: refusing the means, but wanting the ends. You want peace and harmony in the world, but refuse to have them in yourself.
+ - You are not what you think yourself to be, I assure you. The image you have of yourself is made up from memories and is purely accidental.
+ - Self-remembrance, awareness of ‘I am’ ripens him powerfully and speedily. Give up all ideas about yourself and simply be.
+ - Until we can look at fear and accept it as the shadow of personal existence, as persons we are bound to be afraid.
+ - Awareness neither dies nor is re-born. It is the changeless reality itself.
+ - The mind is what it thinks. To make it true, think true.
+ - There is no such thing as unconsciousness for it is not experienceable. We infer unconsciousness when there is a lapse in memory or communication.
+ - To find reality you must be real in the smallest daily action; there can be no deceit in the search for truth.
+ - The relinquishing of the lesser is the gaining of the greater. Give up all and you gain all.
+ - The primary purpose of meditation is to become conscious of, and familiar with, our inner life. The ultimate purpose is to reach the source of life and consciousness.
+ - When all names and forms have been given up, the real is with you. You need not seek it.
+ - You’re free. You’ve taken this burden of being a human being on yourself. You’re free.
+ - The world has only as much power over you as you give it. Rebel. Go beyond duality.
+ - There is nothing wrong with duality as long as it does not create conflict. Multiplicity and variety without strife is joy. In pure consciousness there is light. For warmth, contact is needed. Above the unity of being is the union of love. Love is the purpose of duality.
+ - To know that you are neither the body nor mind, watch yourself steadily and live unaffected by your body and mind, completely aloof, as if you were dead. It means you have no vested interests, either in the body or in the mind.
+ - Punishment is but legalized crime. In a society built on prevention, rather than retaliation, there would be very little crime. The few exceptions will be treated medically, as of unsound mind and body.
+ - There is no question of going anywhere, arriving anywhere, or doing anything; you are there already.
+ - It is not what you do, but what you stop doing that matters.
+ - All I plead with you is this: make love of your self perfect.
+ - Steady faith is stronger than destiny. Destiny is the result of causes, mostly accidental, and is therefore loosely woven. Confidence and good hope will overcome it easily.
+ - The window is the absence of the wall, and it gives air and light because it is empty. Be empty of all mental content, of all imagination and effort, and the very absence of obstacles will cause reality to rush in.
+ - The sum and substance of my teaching is this: Don’t be dishonest to your vital breath; worship that only, abide in that only, accept it as yourself. And when you worship in this manner, it can lead you anywhere, to any heights- this is the quintessence of my talks.
+ - You take yourself to be limited, but you are not. Discover this. Stay silent and attentive. Be earnest about it. Just be aware of your being here and now. Reality will find you.
+ - By all means be selfish; the right way. Wish yourself well, labour at what is good for you. Destroy all that stands between you and happiness. Be all; love all; be happy; make happy. No happiness is greater.
+ - Having realized that you cannot influence the results, pay no attention to your desires and fears. Let them come and go. Don’t give them the nourishment of interest and attention...
+ - True happiness cannot be found in things that change and pass away. Pleasure and pain alternate inexorably. Happiness comes from the Self and can be found in the Self only. Find your real Self and all else will come with it.
+ - To believe that you depend on things and people for happiness is due to ignorance of your true nature; to know that you need nothing to be happy, except Self-knowledge, is wisdom.
+ - It is your fixed idea that you must be something or other, that blinds you.
+ - Stop, look, investigate, ask the right questions, come to the right conclusions and have the courage to act on them and see what happens. The first steps may bring the roof down on your head, but soon the commotion will clear and there will be peace and joy.
+ - I am timeless being. I am free of desire or fear, because I do not remember the past or imagine the future.
+ - The old grooves must be erased in your brain, without forming new ones. You must realize yourself as the immovable, behind and beyond the movable, the silent witness of all that happens.
+ - Freedom to do what one likes is really bondage, while being free to do what one must, what is right, is real freedom.
+ - It does not matter much what happens.
+ - In reality, time and space exist in you. You do not exist in them.
+ - If you imagine yourself as separate from the the world, the world will appear as separate from you and you will experience desire and fear. I do not see the world as separate from me and so there is nothing for me to desire, or fear.
+ - In nature nothing is at standstill, everything pulsates, appears and disappears. Heart, breath, digestion, sleep and waking – birth and death – everything comes and goes in waves. Rhythm, periodicity, harmonious alternation of extremes is the rule. No use rebelling against the very pattern of life.
+ - There is nothing to practice. To know yourself, be yourself. To be yourself, stop imagining yourself to be this or that. Just be. Let your true nature emerge. Don’t disturb your mind with seeking.
+ - Find what is it that never sleeps and never wakes, and whose pale reflection is our sense of ‘I’
+ - To go beyond you need alert immobility, quiet attention.
+ - To deal with things knowledge of things is needed. To deal with people, you need insight, sympathy. To deal with yourself, you need nothing. Be what you are – conscious being – and don’t stray away from yourself.
+ - To see the unreal is wisdom. Beyond this lies the inexpressible.
+ - Nothing troubles me. I offer no resistance to trouble – therefore it does not stay with me. On your side there is so much trouble. On mine there is no trouble at all. Come to my side.
+ - When all the false self-identifications are thrown away, what remains is all-embracing love.
+ - No particular thought can be mind’s natural state, only silence. Not the idea of silence, but silence itself. When the mind is in its natural state, it reverts to silence spontaneously after every experience, or, rather, every experience happens against the background of silence.
+ - For me the moment of death will be a moment of jubilation, not of fear. I cried when I was born and I shall die laughing.
+
+229 quotes

@@ -1,0 +1,86 @@
+ - No amount of guilt can change the past and no amount of worrying can change the future.
+ - Sometimes the people with the worst past, create the best future.
+ - No amount of worrying can change the future. Go easy on yourself, for the outcome of all affairs is determined by God’s decree. If something is meant to go elsewhere, it will never come your way, but if it is yours by destiny, from you it cannot flee.
+ - Be patient; patience is a pillar of faith.
+ - I have never regretted my silence. As for my speech, I have regretted it over and over again.
+ - Hold on to your salah, because if you lose that, you will lose everything else.
+ - Learn the Arabic language; it will sharpen your wisdom.
+ - Sit with those who love Allah, for that enlightens the mind.
+ - Do not put off today’s work until tomorrow, lest work accumulate and you achieve nothing.
+ - To speak less is wisdom, to eat less is healthy, and to mingle less with te people is safe and serene.
+ - Acquire knowledge, and learn tranquility and dignity.
+ - The person I like most is the one who points out my defects.
+ - Forgive people so that Allah may forgive you.
+ - Hold yourselves accountable before you are held accountable.
+ - Do not put off today’s work for tomorrow.
+ - Islam will be destroyed by the mistakes of scholars, the arguments of the hypocrites who misinterpret the Qur’an to support their views and misleading rulers.
+ - Taqwaa is not by praying all night and fasting all day but rather it is abiding by the commands of Allah and staying away from His prohibitions.
+ - Be dignified, honest and truthful.
+ - Do not depend upon the morality of a person until you have seen him behave while in anger.
+ - Let not your love become attachment, nor your hate become destruction.
+ - Get used to a rough life, for luxury does not last forever.
+ - To be alone means that you avoid bad company. But to have a true friend is better than being alone.
+ - Don’t forget your own self while preaching to others.
+ - Earning of livelihood by following some profession is better than living on charity.
+ - Praise Allah, for by praise His blessings multiply.
+ - I fear the day when the Kuffar are proud of their falsehood, and the Muslims are shy of their faith.
+ - There is no goodness in people who don’t give advice, and there is no goodness in people who don’t like to be advised.
+ - The less of the World, the freer you live.
+ - He who does not live in the way of his beliefs starts to believe in the way he lives.
+ - May Allah bless the man who says less and does more.
+ - If a person has ten habits out of which nine are good and one bad, that bad one will destroy the good ones.
+ - As long as you are pure of heart, you speak the truth.
+ - Trust is that there should be no difference between what you do and say and what you think.
+ - He who wins through fraud is not a winner.
+ - Patience is the healthiest ingredient of our life.
+ - We are a people whom Allah gave might and glory to through Islam, so we will never seek glory through anything else.
+ - Seek knowledge and teach it to people. Learn dignity and tranquillity, and be humble towards those from whom you learn knowledge and be humble towards those to whom you teach it, and do not be tyrannical scholar otherwise your knowledge cannot be established because of your tyranny.
+ - Do not be misled by hearing of anyone’s reputation.
+ - Women are not a garment you wear and undress however you like. They are honored and have their rights.
+ - Avoidance of sin is lighter than the pain of remorse.
+ - Fear Allah, for He alone lives; all other things are liable to perish.
+ - The death of a thousand worshipers is easier to bear than the death of a scholar who has knowledge of what Allah has permitted and forbidden.
+ - What regresses, never progresses.
+ - That which you do not wish for yourself, do not impose on others.
+ - On every dishonest man, there are two watchmen, his possessions, and his way of living.
+ - Allah loves moderation and hates extravagance and excess.
+ - A man may be as straight as an arrow, but even then he will have some critics.
+ - Death is teacher enough, true faith is wealth enough, and worship is action enough.
+ - The wisest among you is he whose sustenance is the fear of Allah.
+ - Sit with those who constantly repent, for they have the softest hearts.
+ - May Allah have mercy on him who sends me my faults as a present.
+ - No man can have anything better after faith than a woman of righteous character, loving and child-bearing. And no man can have anything worse after unbelief than a sharp-tongued woman of bad character.
+ - To forgive an oppressor is oppression upon the oppressed.
+ - If Allah wants for a people ill, he gives them debates and takes away from them actions.
+ - The criterion of action is that todays work should not be deferred till the following day.
+ - Do not overeat; that invites disease.
+ - He who keeps his own counsel keeps his affairs in his own hands.
+ - Fear him, whom you hate.
+ - The wisest man is he who can account for his actions.
+ - He who went to the kings to seek favors went away from Allah.
+ - Try as much as you can to mention death. For if you were having hard times in your life, then it would give you more hope and would ease things for you. And if you were having abundant affluence of living in luxury, then it would make it less luxurious.
+ - Take account of your deeds before they are taken account of.
+ - He who sleeps without offering the night prayer, may he never enjoy a sound sleep.
+ - Luxury is an obstacle, and so is the fatness of the body.
+ - God forbid, men should be jealous of knowledge as they are jealous of women.
+ - Acquire knowledge before you become leaders and pride prevents you from learning and you live in ignorance.
+ - If a sheep dies on the shore of the Euphrates I fear lest Allah ask me to account for it on the Day of Resurrection.
+ - Do not be deceived by a man’s eloquence; rather whoever fulfils trusts and refrains from impugning people’s honour is a real man.
+ - Renouncing the worldly pleasures is a comfort for both the human heart and body.
+ - He who does now know evil will fall into it.
+ - Preserve the sayings of those people who are indifferent to the world. They say only that what Allah wishes them to say.
+ - When you do not know of a thing say so plainly.
+ - Money cannot help lifting its head.
+ - For those who practise tyranny and deprive others of their rights, I will be harsh and stern, but for those who follow the law, I will be most soft and tender.
+ - The most important of your affairs in my view is prayer; whoever prays regularly has protected his faith, but whoever neglects it, is bound to be more negligent in other issues of faith.
+ - Fear Allah, for that is fortune; indifference to Allah is misfortune.
+ - Do not be an arrogant scholar, for scholarship cannot subsist with arrogance.
+ - If patience and gratitude had been she camels, it would have mattered little on which I rode.
+ - O Allah do not give me in excess lest I may be disobedient.
+ - The happiest of people is the one under whose care people are happy because of him, and the most miserable of people is the one under whose care people are miserable because of him.
+ - When you see that any scholar loves the world, then his scholarship is in doubt.
+ - When a man puts me a question, I judge of his intelligence.
+ - Who do you think’s better looking people in the north or people in the south?
+ - If your ruler is just, then praise God; but if he is unjust, pray to God to rid you of him.
+
+84 quotes

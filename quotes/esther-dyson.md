@@ -1,0 +1,44 @@
+ - Always make new mistakes.
+ - Change means that what was before wasn’t perfect. People want things to be better.
+ - Cyberspace still exists at the pleasure of the real world.
+ - People have to understand that they can reject technology. They can turn off their cell phone. They can stop looking at their e-mail. It’s there if they want it. It’s not being forced on them.
+ - From the business point of view – not to overstate it – intellectual property is dead; long live intellectual process. Long live service; long live performance.
+ - The definition of the problem, rather than its solution, will be the scarce resource in the future.
+ - People still have a choice, but, if they find it all too confusing, or they just want someone else to make a choice for them, there’s a default that works pretty well. That’s this concept of libertarian paternalism. And it’s handy.
+ - I joined the board of the Santa Fe Institute.
+ - Having seen a non-market economy, I suddenly understood much better what I liked about a market economy.
+ - Owning the intellectual property is like owning land: You need to keep investing in it again and again to get a payoff; you can’t simply sit back and collect rent.
+ - Oh, that all the things my father had told me about how disgusting Washington is are true. And again it’s the system – there are lots of nice, well-meaning people there. But it’s a sleazy place. And politics is all about doing favors.
+ - The Internet is like alcohol in some sense. It accentuates what you would do anyway. If you want to be a loner, you can be more alone. If you want to connect, it makes it easier to connect.
+ - We invented our computers in the ’80s. We networked them together in the ’90s. Now we’re giving them eyes, ears and sensory organs. And we’re asking them to observe and manipulate the world on our behalf.
+ - The nature of business and government has been to build a surplus and self-perpetuate, but the Internet fosters and rewards smaller, more fluid organizations.
+ - Dyson’s Law: Do ask; don’t lie.
+ - Few influential people involved with the Internet claim that it is a good in and of itself. It is a powerful tool for solving social problems, just as it is a tool for making money, finding lost relatives, receiving medical advice, or, come to that, trading instructions for making bombs.
+ - It may not always be profitable at first for businesses to be online, but it is certainly going to be unprofitable not to be online.
+ - I think copyright is moral, proper. I think a creator has the right to control the disposition of his or her works – I actually believe that the financial issue is less important than the integrity of the work, the attribution, that kind of stuff.
+ - I would much rather see responsibilities exercised by individuals than have them imposed by the government.
+ - I believe in markets doing what they do well, which is to develop technology, and letting citizens do what they ideally do well, which is to set policy.
+ - I think we really made a mistake in separating the Internet from capitalism in a certain way that is bad for our country.
+ - When I was a young student, I thought grow-ups would come and make things work. Now I realize that grown-ups are just kids with wrinkles.
+ - No system in the world is so well-designed that it can’t grow stale, rigid, or corrupted by those who benefit most from it.
+ - There’s almost no way of doing importing honestly, because if you do you’re at such a disadvantage competitively. So people spend huge amounts of effort getting around stupid laws and not paying taxes.
+ - In the sense that people who produce things and work get rewarded, statistically. You don’t get rewarded precisely for your effort, but in Russia you got rewarded for being alive, but not very well rewarded.
+ - People need to understand that the technology is for them. It’s not to them. It’s not over them. People still sometimes want to be led a little too much.
+ - As long as a government can come and shoot you, you can’t jump on the Internet to freedom.
+ - The best investor is your customer.
+ - As an investor in small companies, I don’t care how rich Microsoft is. I care about what my opportunities are.
+ - Part of the problem is when we bring in a new technology we expect it to be perfect in a way that we don’t expect the world that we’re familiar with to be perfect.
+ - The Net is not a single home. Rather, it’s an environment where thousands of small homes and communities can form and define and design themselves.
+ - I think I have the right to know what Steve Forbes paid in taxes – I don’t think there should be a law. I think there should be a presumption. I wouldn’t vote for a guy who wouldn’t reveal what he paid in taxes. That kind of thing.
+ - I’ve seen disgusting excess in business, and I’ve seen disgusting excess in Washington. But at the same time, I’ve certainly learned that Washington matters and that you can’t ignore it, especially when you get into telecom.
+ - If the past decade was the decade of searching and finding and looking for stuff, this coming decade is going to be the decade of filtering and going to your friends for recommendations.
+ - I became a real free market fanatic. I’m probably less so now than even two or three years ago.
+ - New landscape of personal media has given us a vaster wasteland of cyberspace. But, luckily for us, there’s some really wonderful stuff in it. And if history is any guide, as the media matures, the quality will continue to go up.
+ - And the Russians certainly don’t have it. If a woman shows up in a fur coat, I just assume she’s a crook. And that’s me, the nice American. The assumption that you can’t make money honestly is a killer.
+ - I think that the use of copyright is going to change dramatically. Part of it is economics. There is just going to be so much content out there – there’s a scarcity of attention. Information consumes attention, and there’s too much information.
+ - Since I became chairman, I’ve tried to turn EFF into civil liberties and responsibilities.
+ - But there is a corollary to freedom and that’s personal responsibility, and the real challenge is how you generate that personal responsibility without imposing it.
+ - Don’t leave hold of your common sense. Think about what you’re doing and how the technology can enhance it. Don’t think about technology first.
+ - I would like to see us shake-in, instead of a shakeout, in the sense that it’s true that there’s a lot of junk online, and we have to filter it and so forth.
+
+42 quotes

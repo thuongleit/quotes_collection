@@ -1,0 +1,48 @@
+ - Confront the dark parts of yourself, and work to banish them with illumination and forgiveness. Your willingness to wrestle with your demons will cause your angels to sing.
+ - Use the pain as fuel, as a reminder of your strength.
+ - The simpler you say it, the more eloquent it is.
+ - Life don’t owe you nothing.
+ - You get to the point where your demons, which are terrifying, get smaller and smaller and you get bigger and bigger.
+ - You are responsible for the world that you live in. It is not government’s responsibility. It is not your school’s or your social club’s or your church’s or your neighbor’s or your fellow citizen’s. It is yours, utterly and singularly yours.
+ - All you need in the world is love and laughter. That’s all anybody needs. To have love in one hand and laughter in the other.
+ - When the sins of our fathers visit us We do not have to play host. We can banish them with forgiveness As God, in his His Largeness and Laws.
+ - You got to be right with yourself before you can be right with anybody else.
+ - Have a belief in yourself that is bigger than anyone’s disbelief.
+ - All you need is the blues. To me, the blues is the book, it’s the bible, it’s everything.
+ - I cried a river of tears but he was too heavy to float on them. So I dragged him with me these years across an ocean.
+ - I been with strangers all day and they treated me like family. I come in here to family and you treat me like a stranger.
+ - I ain’t never found no place for me to fit. Seem like all I do is start over. It ain’t nothing to find no starting place in the world. You just start from where you find yourself.
+ - I done learned my mistake and learned to do what’s right by it. You still trying to get something for nothing. Life don’t owe you nothing. You owe it to yourself. – Troy -.
+ - You got to take the crookeds with the straights. That’s what Papa used to say.
+ - Freedom is heavy. You got to put your shoulder to freedom. Put your shoulder to it and hope your back holds up.
+ - Death ain’t nothing but a fastball on the outside corner.
+ - I may be personable, but I assure you I am a lion.
+ - You are responsible for the world that you live in.
+ - I found out life’s hard but it ain’t impossible...
+ - There are always and only two trains running. There is life and there is death. Each of us rides them both. To live life with dignity, to celebrate and accept responsibility for your presence in the world is all that can be asked of anyone.
+ - All art is political in the sense that it serves someone’s politics.
+ - I don’t go by what the law say. The law’s liable to say anything. I go by if it’s right or not. It don’t matter what the law say. I take and look at it for myself.
+ - If you want to support a writer, produce the first five plays he writes.
+ - I don’t write for a particular audience.
+ - Style ain’t nothing but keeping the same idea from beginning to end. Everybody got it.
+ - Blues is the bedrock of everything I do. All the characters in my plays, their ideas and their attitudes, the stance that they adopt in the world, are all ideas and attitudes that are expressed in the blues.
+ - I’m a black American playwright. I couldn’t be anything else. I make my art out of black American culture; they’re all cut out of the same cloth. That’s who I am; that’s who I write about.
+ - I write for myself and my goal is bringing that world and that experience of black Americans to life on the stage and giving it a space there.
+ - My greatest influence has been the blues. And that’s a literary influence, because I think the blues is the best literature that we as black Americans have.
+ - My influences have been what I call my four Bs – the primary one being the blues, then Borges, Baraka, and Bearden.
+ - There’s no idea in the world that is not contained by black life. I could write forever about the black experience in America.
+ - Between speeches and awards, you can find something to do every other week. It’s hard to write. Your focus gets splintered. Once you put one thing in your calendar, that month is gone.
+ - What do you do with your legacy, and how do you best put it to use?
+ - The director works as an interpretive artist, but he’s still an artist, so you also have to give him room to create and to put his vision of the play or his translation or interpretation of the material on the stage.
+ - I first got involved in theater in 1968, at the height of a social tumult. I was a poet.
+ - Suffice it to say, I’m not poor.
+ - For me, the original play becomes an historical document: This is where I was when I wrote it, and I have to move on now to something else.
+ - I work as an artist, and I think the audience of one, which is the self, and I have to satisfy myself as an artist. So I always say that I write for the same people that Picasso painted for. I think he painted for himself.
+ - All of art is a search for ways of being, of living life more fully.
+ - So somehow, things that seem extraneous to the play in reality are not. The scene lasts 37 minutes, and you only need 12 minutes of that for the plot. But if you pull the rest of it out, it’s not my play.
+ - I know some things when I start. I know, let’s say, that the play is going to be a 1970s or a 1930s play, and it’s going to be about a piano, but that’s it. I slowly discover who the characters are as I go along.
+ - Blacks have traditionally had to operate in a situation where whites have set themselves up as the custodians of the black experience.
+ - As soon as white folks say a play’s good, the theater is jammed with blacks and whites.
+ - Your demons will cause your angels to sing. Use the pain as fuel.
+
+46 quotes

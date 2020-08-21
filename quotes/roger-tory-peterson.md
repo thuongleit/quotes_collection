@@ -1,0 +1,23 @@
+ - The truth of the matter is, the birds could very well live without us, but many – perhaps all – of us would find life incomplete, indeed almost intolerable without the birds.
+ - Birds have wings; they’re free; they can fly where they want when they want. They have the kind of mobility many people envy.
+ - Birds are indicators of the environment. If they are in trouble, we know we’ll soon be in trouble.
+ - Not all is doom and gloom. We are beginning to understand the natural world and are gaining a reverence for life – all life.
+ - Birding, after all, is just a game. Going beyond that is what is important.
+ - The more you look, the more you will see.
+ - My father said you can’t make a living in birds, my relatives all went into business: bankers, stockbrokers. However, they eventually lost it all and died in wheelchairs. Sometimes you have to be a little aberrant.
+ - Birds, it must be admitted, are the most exciting and most deserving of the vertebrates; they are perhaps the best entre into the study of natural history, and a very good wedge into conservation awareness.
+ - Birds are, perhaps, the most eloquent expression of reality.
+ - Butterflies may be better indicators of the health of our environment than birds.
+ - Birds are an ecological litmus paper.
+ - Penguins are an indicator of the health of our watery planet, and if they are unable to survive, we had better take notice or we might find our own survival threatened.
+ - The other creatures with which we share this world have their rights too, but not speaking our language, they have no voice, no vote; it is our moral duty to take care of them.
+ - Vultures are homely, but they clean up all the garbage and that’s good. And they’re elegant in the sky.
+ - I consider myself to have been the bridge between the shotgun and the binoculars in bird watching. Before I came along, the primary way to observe birds was to shoot them and stuff them.
+ - Conservation is not just an ideal that we read about; it works.
+ - I can recognize the calls of practically every bird in North America. There are some in Africa I don’t know, though.
+ - Butterflies are very interesting. Here these things are little grubs for a while. And then they go into a little coffin. There they are in a sarcophagus, and then they come out and dance with the angels.
+ - Of all the various out-door recreations I have tried, when it comes to genuine, exciting sport, give me hunting with a camera...
+ - We don’t have to go to wild places to find wildlife. A surprisingly wide range of species can be found in our sities and towns, from familiar animals like the raccoon to more exotic ones like the mountain lion.
+ - More birds have adapted to a changing world than have failed. Very few have the narrow tolerance of the ivory-billed woodpecker or the Bachman’s warbler.
+
+21 quotes

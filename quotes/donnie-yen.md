@@ -1,0 +1,53 @@
+ - Martial art is a form of expression, an expression from your inner self to your hands and legs.
+ - I’m a very emotional guy.
+ - I gained a lot of confidence after ‘IP Man’ as being a true actor. I went on to tackle what it is an actor is supposed to do before a film. Do a lot of research, get into the character. That’s what I did with ‘Dragon.’
+ - Better to be called something positive and inspirational than something negative.
+ - A period film, where you, for example, where you have a traditional wardrobes, you are bound to act a certain way. But in a modern film, a lot of body gesture.
+ - For me, the challenge of a period film is that, unlike a contemporary film where the character can be very free-form when it comes to the acting, there’s a burden to acting in a period film because you have to stay within the character’s historical background and the gestures of certain periods.
+ - I try to update my arsenal constantly. Learning different martial arts since childhood. To understand what’s out there. To really be in tune.
+ - For me, shooting, editing, and scoring rely on rhythm.
+ - I think film, to me, as a director, is about telling a story.
+ - The main reason I like UFC is not just the martial arts aspect, but it’s about one person against the other person. It’s about being able to test yourself with the truth.
+ - My action follows my characters. If a character is a cop, you cannot be posing all the time, you cannot fly off the roof because it doesn’t make any sense – it’s not practical.
+ - When you watch my films, you’re feeling my heart.
+ - A lot of people don’t realize, when you are acting in a martial arts film, you’re not just performing martial arts. You’re not just performing martial arts. You’re actually acting as much as any other actor.
+ - I think a lot of people don’t realize that martial arts are just an expression like anything else. It’s just that most people are not trained to punch or kick, but you can walk or run or dance, which is also part of expression.
+ - I guess I’m pretty lucky because in childhood I studied so many martial arts styles and I never stopped researching them, my body is very adjustable and I can turn into different expressions with my body.
+ - I have always been a great fan of Peter Chan and many other great directors who specialize in anything outside of action.
+ - My mum lives in Boston; she’s famous for teaching wushu and t’ai chi. So from when I was young, my mum and aunt were like: ‘You’re training; you’re not playing baseball or football.’ Training every day was normal. Later, when I was almost a teenager, Bruce Lee became my idol.
+ - I got nominated for my second film as best young director in the Aikido Film Festival in Japan.
+ - There are two types of Chinese growing up in America. One is the kind that does really well in school, with thick, thick glasses. And the other is involved with the gangs.
+ - I spent a couple of years doing American films. I did a few.
+ - Bruce is the man. He was definitely ahead of his time.
+ - As an action director, I always try to bring something fresh and new.
+ - I did a couple comedies to balance myself as an actor and balance how audiences see Donnie Yen as an actor, and I would even say as a celebrity or icon, to some fans. I want to show that I’m not Terminator.
+ - It takes years of building that experience as a filmmaker, as well as physically. You have to have a high level understanding of martial arts.
+ - Whether I’m acting or making it, at the end of the day it’s telling the story; action, drama. You want the audience to feel it – the story, the action, the scene, or a particular shot. I just keep working on crafting my art, on how to make action movies.
+ - Like any other actor, I draw on life experience.
+ - For years, I looked to Bruce Lee as a mentor as being a Chinese and Asian man living in this country.
+ - A lot of Chinese martial arts films were based on Chinese martial arts novels. And these novels created a world of putting history, calligraphy, and martial arts into one.
+ - I love working with older actors because number one, I can learn so much from them because they have so much experience. And it’s fun to hear their stories from their era, some of the jokes.
+ - An action choreographer is kind of like a dance choreographer. You choreograph the moves and you let the director, cinematographer take into positioning their cameras.
+ - When audiences look at an action actor like myself, sometimes we are very easily stereotyped or characterized as one type. They forget that we are actors, too.
+ - If you’re playing a cop in a modern film, you don’t have to walk with your spine straight up and bow before a fight. There’s a lot of free form of expressing yourself as an actor.
+ - It’s a blessing to be given a variety of roles to what I call an iconic action actor like myself.
+ - Action choreographer is like talking. When you talk, you have a rhythm. When you act, you have a rhythm. When you’re moving your body, you have a rhythm. So as an actor, as a choreographer, the objective is trying to blend everything in – into – ultimately back into that character.
+ - When you direct a movie, you’re basically looking at a story, the way you want to look at it. You bring that director’s vision, and I’m totally open for that.
+ - In Hong Kong, particularly, we craft this art for decades. The action choreographer actually is the action director. He takes over and he choreographs with – by himself or with his team, and place the camera where he feels cinematic effect to bring out that choreography.
+ - From my experience as an actor, choreographer, action director, and producer, I understand the elements and the dynamics of being a film maker.
+ - I think action movies bring more excitement than tears, but I always want to take it to another level. I mean, I think if one appreciates anything in life to a certain degree, it could possibly bring tears to your eyes.
+ - Doing a movie is a stressful thing. You spend months of you life focusing into that one project, and I want to make sure I do something I really like or I’m really passionate about.
+ - There is also a strong following among the urbanites on the East Coast when it comes to martial arts films.
+ - Still, as much as I wish Ballistic Kiss could be a better film, the recognition it gained from critics and at festivals speaks for itself.
+ - I just like to choose projects that will allow me as an artist to make my art.
+ - I think every actor wants to try out different things.
+ - I like to stay within the context of the character’s background. If he’s a cop, I have to make sure the audience is convinced that this person, a cop, can do only so much without a gun.
+ - I certainly hope ‘Dragon’ can leave some legacy behind.
+ - I act according to the requirements of the character, and if I try to play the role, then I play it truthfully. In my daily life, I’m a laid-back, peaceful guy. I’m just doing my job to act.
+ - I always tell younger filmmakers, it’s not just about the acting or the art itself. It’s about how big of an audience watches your film.
+ - I’ve always been in a rebel.
+ - Personally, I prefer contemporary films, but the market calls for more period choices, especially since China opened up a cinema market in Hong Kong. There’s a lot of restriction for contemporary films simply because of subject matter.
+ - For me, I like to have explosive moments, whether it is a particular movement itself in the whole sequence. I like to have shocking moments; for audiences to feel, like, ‘Whoa!’ It’s always been my forte.
+ - In Hollywood, I’m lucky, I only do big movies like ‘Blade.’ It’s much more comfortable: you have a trailer.
+
+51 quotes

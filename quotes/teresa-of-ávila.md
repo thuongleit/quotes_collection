@@ -1,0 +1,190 @@
+ - Let nothing disturb you. Let nothing frighten you. Everything passes away except God. God alone is sufficient.
+ - Christ has no body now on earth but yours.
+ - Christ has no body now on earth but yours, no hands, no feet but yours. Yours are the eyes with which Christ looks out his compassion to the world. Yours are the feet with which he is to go about doing good. Yours are the hands with which he is to bless us now.
+ - Never compare one person with another: comparisons are odious.
+ - Don’t be curious of matters that don’t concern you; never speak of them, and don’t ask about them.
+ - Let nothing perturb you, nothing frighten you. All things pass. God does not change. Patience achieves everything.
+ - Teach by works more than words.
+ - You pay God a compliment by asking great things of Him.
+ - We always find that those who walked closest to Christ were those who had to bear the greatest trials.
+ - Before prayer, endeavor to realize whose Presence you are approaching, and to whom you are about to speak. We can never fully understand how we ought to behave towards God, before whom the angels tremble.
+ - God has no hands or feet or voice except ours and through these He works.
+ - The surest way to determine whether one possesses the love of God is to see whether he or she loves his or her neighbor. These two loves are never separated. Rest assured, the more you progress in love of neighbor the more your love of God will increase.
+ - Trust God that you are exactly where you are meant to be.
+ - It is love alone that gives worth to all things.
+ - God never changes; Patient endurance Attains to all things; Who God possesses In nothing is wanting; Alone God suffices.
+ - Settle yourself in solitude, and you will come upon God in yourself.
+ - Always think of yourself as everyone’s servant; look for Christ Our Lord in everyone and you will then have respect and reverence for them all.
+ - May God protect me from gloomy saints.
+ - God is even kinder than you think.
+ - Prayer is an act of love. Words are not needed.
+ - Love draws forth love.
+ - Patience obtains everything.
+ - As God’s beloved, I live in the bliss knowing that my soul is never separated from Him, for I learn to know Her in all that I see. God dissolved my mind-my separation. I cannot describe now my intimacy with Him.
+ - Souls without prayer are like bodies, palsied and lame, having hands and feet they cannot use.
+ - Let nothing disturb thee, let nothing affright thee. All things are passing. Patience obtains all things. He who has God has everything – God alone suffices.
+ - From heaven even the most miserable life will look like one bad night at an inconvenient hotel.
+ - From silly devotions and from sour-faced saints, good Lord, deliver us.
+ - What peace can we hope to find elsewhere if we have none within us.
+ - Humility must always be doing its work like a bee making honey in the hive: without humility all will be lost.
+ - Never exaggerate, but express your feelings with moderation.
+ - He who has God finds he is lacking nothing.
+ - If this is the way You treat Your friends, no wonder You have so few!
+ - What a miserable life is this! There is no happiness that is secure and nothing that does not change.
+ - Consider seriously how quickly people change, and how little trust is to be had in them; and hold fast to God, Who does not change.
+ - What a great favor God does to those He places in the company of good people!
+ - In light of heaven, the worst suffering on earth will be seen to be no more serious than one night in an inconvenient hotel.
+ - Whoever has God lacks nothing. God alone suffices.
+ - In all created things discern the providence and wisdom of God, and in all things give Him thanks.
+ - May nothing wind you up, nothing affright you; everything comes and goes. God, still, just there; through patience all will be achieved. If you have God, you lack nothing: God alone will do.
+ - We shall never learn to know ourselves except by endeavoring to know God; for, beholding His greatness, we realize our own littleness; His purity shows us our foulness; and by meditating upon His humility we find how very far we are from being humble.
+ - For pity’s sake, don’t start meeting troubles halfway.
+ - After you die, you wear what you are.
+ - Out of suffering comes the serious mind; out of salvation, the grateful heart; out of endurance, fortitude; out of deliverance faith. Patient endurance attends to all things.
+ - However much we do to avoid them, we shall never lack crosses in this life if we are in the ranks of the Crucified.
+ - It constantly happens that the Lord permits a soul to fall so that it may grow humbler.
+ - Everything seems to me to pass so quickly that we must concentrate on how to die rather than on how to live. How sweet it is to die if one has lived on the Cross with Christ.
+ - The important thing is not to think much but to love much; do, then, whatever most arouses you to love.
+ - If we plant a flower or a shrub and water it daily it will grow so tall that in time we shall need a spade and a hoe to uproot it. It is just so, I think, when we commit a fault, however small, each day, and do not cure ourselves of it.
+ - In a state of grace, the soul is like a well of limpid water, from which flow only streams of clearest crystal. Its works are pleasing both to God and man, rising from the River of Life, beside which it is rooted like a tree.
+ - Souls who do not practice prayer are like people whose limbs are paralyzed.
+ - The saints rejoiced at injuries and persecutions, because in forgiving them they had something to present to God when they prayed to Him.
+ - Prayer is a friendly conversation with the One we know loves us.
+ - Those seeking the life of the spirit should be cheerful and free, and not neglect recreation. Married people must act in conformity with their vocation – but their progress will of necessity be but the pace of a hen.
+ - Anyone who truly loves God travels securely.
+ - It is a dangerous thing to be satisfied with ourselves.
+ - How is it, Lord, that we are cowards in everything save in opposing thee?
+ - Don’t imagine that, if you had a great deal of time, you would spend more of it in prayer. Get rid of that idea; it is no hindrance to prayer to spend your time well.
+ - Ah, how true it is that we love ourselves too much and proceed with too much human prudence, that we may not lose an atom of our consideration! Oh, what a great mistake that is! The Saints did not act thus.
+ - I would never want any prayer that would not make the virtues grow within me.
+ - I have always had this failing – that I cannot explain myself, as I have said, except at the cost of many words.
+ - If you fall sometimes, you must not be discouraged.
+ - If we practice love of neighbor with great perfection, we will have done everything.
+ - All things must come to its roots from where it is planted.
+ - Happy the heart where love has come to birth.
+ - It is a great folly to be willing to violate the friendship of God, rather than the law of human friendship.
+ - A slight failing in one virtue is enough to put all the others to sleep.
+ - Lord, how Thou dost afflict Thy lovers!
+ - Life is a night spent in an uncomfortable inn.
+ - Every part of the journey is of importance to the whole.
+ - All times are dangerous times.
+ - Any real ecstasy is a sign you are moving in the right direction.
+ - Let us look at our own faults, and not other people’s. We ought not to insist on everyone following in our footsteps, nor to take upon ourselves to give instructions in spirituality when, perhaps, we do not even know what it is.
+ - True perfection consists in the love of God and our neighbour, and the better we keep both these commandments, the more perfect we shall be.
+ - About the injunction of the Apostle Paul that women should keep silent in church? Don’t go by one text only.
+ - Love turns work into rest.
+ - God prefers your health, and your obedience, to your penance.
+ - As to the aridity you are suffering from, it seems to me our Lord is treating you like someone He considers strong: He wants to test you and see if you love Him as much at times of aridity as when He sends you consolations. I think this is a very great favor for God to show you.
+ - Be kind to all and severe to thyself.
+ - Let us remember that within us there is a palace of immense magnificence.
+ - Oh, how everything that is suffered with love is healed again!
+ - When we accept what happens to us and make the best of it, we are praising God.
+ - We bloomed in Spring. Our bodies are the leaves of God. The apparent seasons of life and death our eyes can suffer; but our souls, dear, I will just say this forthright: they are God Himself, we will never perish until He does.
+ - Hope, O my soul, hope. Watch carefully, for everything passes quickly, even though your impatience turns a very short time into a long one.
+ - Christ does not force our will, He only takes what we give Him. But He does not give Himself entirely until He sees that we yield ourselves entirely to Him.
+ - Granting that we are always in the presence of God, yet it seems to me that those who pray are in His presence in a very different sense; for they, as it were, see that He is looking upon them, while others may go for days on end without even once recollecting that God sees them.
+ - You ought to make every effort to free yourselves even from venial sin, and to do what is most perfect.
+ - Let us consider what the glorious Virgin endured, and what the holy apostles suffered, and we shall find that they who were nearest to Jesus Christ were the most afflicted.
+ - To wish to act like angels while we are still in this world is nothing but folly.
+ - God deliver me from people who are so spiritual that they want to turn everything into perfect contemplation, come what may.
+ - People in the world pay little heed to reason where their own interests are involved.
+ - Jacob did not cease to be a Saint because he had to attend to his flocks.
+ - I fully realize that this gratitude of mine is not in the least a sign of perfection: it must be my nature – I could be suborned with a sardine...
+ - In order that love be fully satisfied, It is necessary that It lower Itself and that It lower Itself to nothingness and transform this nothingness into fire.
+ - I made you, dear, and all I make is perfect. Please come close, for I desire you.
+ - Blessed be He, Who came into the world for no other purpose than to suffer.
+ - But the fact is, things always seem to come slowly when you are longing for them.
+ - There was the torture of sermons, and that not a slight one, for I was very fond of them.
+ - Alas, O Lord, to what a state dost Thou bring those who love Thee!
+ - Never do anything which you could not do in the sight of all.
+ - Oh, my Lord! How true it is that whoever works for you is paid in troubles! And what a precious price to those who love you if we understand its value.
+ - Patient endurance attends to all things.
+ - The more we see that any action springs not from the motive of obedience, the more evident is it that it is a temptation of the enemy; for when God sends an inspiration, the very first effect of it is to infuse a spirit of docility.
+ - Untilled soil, however fertile it may be, will bear thistles and thorns; so it is with man’s mind.
+ - Prayer is an act of love; words are not needed. Even if sickness distracts from thoughts, all that is needed is the will to love.
+ - The feeling remains that God is on the journey, too.
+ - We may speak of love and humility as the true flowers of spiritual growth; and they give off a wonderful scent, which benefits all those who come near.
+ - There is no affliction, trial, or labor difficult to endure, when we consider the torments and sufferings which Our Lord Jesus Christ endured for us.
+ - True love grows by sacrifice and the more thoroughly the soul rejects natural satisfaction the stronger and more detached its tenderness becomes...
+ - To converse with You, O King of glory, no third person is needed, You are always ready in the Sacrament of the Altar to give audience to all. All who desire You always find You there, and converse with You face to face.
+ - If you seek to carry no other crosses but those whose reason you understand, perfection is not for you.
+ - May I not come before You with empty hands, since we are rewarded according to our deeds.
+ - Never affirm anything unless you are sure it is true.
+ - My good works, however wretched and imperfect, have been made better and perfected by Him Who is my Lord: He has rendered them meritorious. As to my evil deeds and my sins, He hid them at once. The eyes of those who saw them, He made even blind; and He has blotted them out of their memory.
+ - How is it that there are not many who are led by sermons to forsake open sin? Do you know what I think? That is because preachers have too much worldly wisdom.
+ - Union is as if in a room there were two large windows through which the light streamed in; it enters in different places but it all becomes one.
+ - There is more value in a little study of humility and in a single act of it than in all the knowledge in the world.
+ - Christ moves along the pots and pans.
+ - Nothing is small if God accepts it.
+ - I am quite sure that if we could but once approach the Most Holy Sacrament with great faith and love, it would suffice to make us rich. How much more so if we approach it often!
+ - How friendly all men would be one with another, if no regard were paid to honour and money! I believe it would be a remedy for everything.
+ - I am afraid that if we begin to put our trust in human help, some of our Divine help will fail us.
+ - We need no wings to go in search of Him, but have only to look upon Him present within us.
+ - I am quite sure I am more afraid of people who are themselves terrified of the devil than I am of the devil himself.
+ - Hope, O my soul, hope. You know neither the day nor the hour.
+ - It should be observed that perfect love of God consists not in those delights, tears and sentiments of devotion that we generally seek, but in a strong determination and keen desire to please God in all things, and to promote His glory.
+ - Each of us has a soul, but we forget to value it. We don’t remember that we are creatures made in the image of God. We don’t understand the great secrets hidden inside of us.
+ - We should blush for shame to show so much resentment at what is done or said against us, knowing that so many injuries and affronts have been offered to our Redeemer and the saints.
+ - Whenever conscience commands anything, there is only one thing to fear, and that is fear.
+ - Humility, however deep it be, neither disquiets nor troubles nor disturbs the soul; it is accompanied by peace, joy and tranquillity.
+ - The hour I have long wished for is now come.
+ - There is more security in self-denial, mortification, and other like virtues, than in an abundance of tears.
+ - Much more is accomplished by a single word of the Our Father said, now and then, from our heart, than by the whole prayer repeated many times in haste and without attention.
+ - Let him never cease from prayer who has once begun it, be his life ever so wicked; for prayer is the way to amend it, and without prayer such amendment will be much more difficult.
+ - How friendly we should all be with one another if nobody were interested in money and honor.
+ - It is true that we cannot be free from sin, but at least let our sins not always be the same.
+ - It is not so essential to think much as to love much.
+ - They deceive themselves who believe that union with God consists in ecstasies or raptures, and in the enjoyment of Him. For it consists in nothing except the surrender and subjection of our will – with our thoughts, words and actions – to the will of God.
+ - All the troubles of the Church, all the evils in the world, flow from this source: that men do not by clear and sound knowledge and serious consideration penetrate into the truths of Sacred Scripture.
+ - Our greatest gain is to lose the wealth that is of such brief duration and, by comparison with eternal things, of such little worth; yet we get upset about it and our gain turns to loss.
+ - So dearly does His Majesty love us that He will reward our love for our neighbor by increasing the love which we bear to Himself, and that in a thousand ways.
+ - Seldom or never is a poor man honored by the world; however worthy of honor he may be, he is apt rather to be despised by it.
+ - All blessings come to us through our Lord. He will teach us, for in beholding His life we find that He is the best example.
+ - With all this wide and beautiful creation before me, the restless soul longs to enjoy its liberty and rest beyond its bound.
+ - Do you know when people really become spiritual? It is when they become the slaves of God and are branded with His sign, which is the sign of the Cross, in token that they have given Him their freedom.
+ - The closer one approaches to God, the simpler one becomes.
+ - It is certain that the love of God does not consist in this sweetness and tenderness which we for the most part desire; but rather in serving Him in justice, fortitude, and humility. His Majesty seeks and loves courageous souls.
+ - God has been very good to me, for I never dwell upon anything wrong which a person has done, so as to remember it afterwards. If I do remember it, I always see some other virtue in that person.
+ - Truth suffers, but never dies.
+ - No one should think or say anything of another which he would not wish thought or said of himself.
+ - It is not a matter of thinking a great deal but of loving a great deal, so do whatever arouses you most to love.
+ - However softly we speak, God is near enough to hear us.
+ - It is of great importance, when we begin to practise prayer, not to let ourselves be frightened by our own thoughts.
+ - Dream that the more you struggle, the more you prove the love that you bear your God, and the more you will rejoice one day with your Beloved, in a happiness and rapture that can never end.
+ - It will be as well, I think, to explain these locutions of God, and to describe what the soul feels when it receives them.
+ - Holy church-that mother who is also a queen because she is a king’s bride.
+ - It is the nature of love to work in a thousand different ways.
+ - Strive to close the eyes of the body and open those of the soul and look into your own heart.
+ - In the presence of Jesus in the Holy Sacrament we ought to be like the Blessed in heaven before the Divine Essence.
+ - Lord, how you afflict your lovers! But everything is small in comparison to what you give them afterwards.
+ - All the trials we endure cannot be compared to these interior battles.
+ - While the soul is in mortal sin, nothing can profit it; none of its good works merit an eternal reward, since they do not proceed from God as their first principle, and by Him alone is our virtue real virtue.
+ - One always goes on as one begins...
+ - Those who in fact risk all for God will find that they have both lost all and gained all.
+ - Mental prayer is nothing else but being on terms of friendship with God, frequently conversing in secret with Him.
+ - Praised be the Lord, who has redeemed me from myself.
+ - Thank God for the things that I do not own.
+ - Do you suppose that God has any need of our works? What God needs is the resoluteness of our will.
+ - One must not think that a person who is suffering is not praying. He is offering up his sufferings to God, and many a time he is praying much more truly than one who goes away by himself and meditates his head off, and, if he has squeezed out a few tears, thinks that is prayer.
+ - Christ has no body now but mine. He prays in me, works in me, looks through my eyes, speaks through my words, works through my hands, walks with my feet and loves with my heart.
+ - From moment to moment one can bear much.
+ - Let us live in such a way as not to be afraid to die.
+ - The best thing must be to flee from all to the All.
+ - The life of prayer is just love to God, and the custom of being ever with Him.
+ - There seem to me a great many blessings which come from true poverty and I should be sorry to be deprived of them.
+ - Desire to see God, be fearful of losing Him, and find joy in everything that can lead to Him. If you act in this way, you will always live in great peace.
+ - The life of the spirit is not our life, but the life of God within us.
+ - If Christ Jesus dwells in a man as his friend and noble leader, that man can endure all things, for Christ helps and strengthens us and never abandons us. He is a true friend.
+ - To argue over who is the more noble is nothing more than to dispute whether dirt is better for making bricks or for making mortar.
+ - How often I failed in my duty to God, because I was not leaning on the strong pillar of prayer.
+ - How poor is the wisdom of men, and how uncertain their forecast!
+ - Our soul can find in the Blessed Sacrament all the joys and consolations it desires.
+ - It is impossible for human tongue to exaggerate the riches which a vision from God brings to the soul: it even bestows health and refreshment on the body.
+ - For, as I said a little way back, perfect souls are in no way repelled by trials, but rather desire them and pray for them and love them. They are like soldiers: the more wars there are, the better they are pleased, because they hope to emerge from them with the greater riches.
+ - Do not think you have gained a virtue unless you have first been tried by its opposite.
+ - Let thy words be few when in the midst of many...
+ - It is only mercenaries who expect to be paid by the day.
+ - Learn to self-conquest, persevere thus for a time, and you will perceive very clearly the advantage which you gain from it.
+ - I only wish I could write with both hands, so as not to forget one thing while I am saying another.
+
+188 quotes

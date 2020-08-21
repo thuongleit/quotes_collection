@@ -1,0 +1,189 @@
+ - It’s time to start living the life you’ve imagined.
+ - Excellence does not require perfection.
+ - Three things in human life are important. The first is to be kind. The second is to be kind. And the third is to be kind.
+ - Until you try, you don’t know what you can’t do.
+ - We work in the dark – we do what we can – we give what we have. Our doubt is our passion, and our passion is our task. The rest is the madness of art.
+ - I’ve always expected the worst, and it’s always worse than I expected.
+ - Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.
+ - Adjectives are the sugar of literature and adverbs the salt.
+ - To believe in a child is to believe in the Future.
+ - You are good for nothing unless you are clever.
+ - Deep experience is never peaceful.
+ - I’m yours for ever – for ever and ever. Here I stand; I’m as firm as a rock. If you’ll only trust me, how little you’ll be disappointed. Be mine as I am yours.
+ - I have performed the necessary butchery. Here is the bleeding corpse.
+ - Art is nothing more than the shadow of humanity.
+ - It takes an endless amount of history to make even a little tradition.
+ - Summer afternoon, summer afternoon; to me those have always been the two most beautiful words in the English language.
+ - You must save what you can of your life; you musn’t lose it all simply because you’ve lost a part.
+ - When I am wicked I am in high spirits.
+ - Try to be one of the people on whom nothing is lost!
+ - What is character but the determination of incident? What is incident but the illustration of character?
+ - Don’t underestimate the value of irony – it is extremely valuable.
+ - Never say you know the last word about any human heart.
+ - The right time is any time that one is still so lucky as to have.
+ - He is outside of everything, and alien everywhere. He is an aesthetic solitary. His beautiful, light imagination is the wing that on the autumn evening just brushes the dusky window.
+ - Live all you can; it’s a mistake not to.
+ - A tradition is kept alive only by something being added to it.
+ - Live as you like best, and your character will take care of itself. Most things are good for you; the exceptions are very rare.
+ - Americans will eat garbage provided you sprinkle it liberally with ketchup.
+ - She took refuge on the firm ground of fiction, through which indeed there curled the blue river of truth.
+ - He valued life and literature equally for the light they threw upon each other; to his mind one implied the other; he was unable to conceive of them apart.
+ - All roads lead to Rome, and there were times when it might have struck us that almost every branch of study or subject of conversation skirted forbidden ground.
+ - Art requires, above all things, a suppression of self, a subordination of one’s self to an idea.
+ - If you have work to do, don’t wait to feel like it; set to work and you will feel like it.
+ - To read between the lines was easier than to follow the text.
+ - It doesn’t matter what you do in particular, so long as you have had your life.
+ - Keep making the movements of life.
+ - I don’t want everyone to like me; I should think less of myself if some people did.
+ - He is the same old sausage, fizzing and sputtering in his own grease.
+ - I think patriotism is like charity – it begins at home.
+ - She feels in italics and thinks in CAPITALS.
+ - She is like a revolving lighthouse; pitch darkness alternating with a dazzling brilliancy!
+ - His kiss was like white lightning, a flash that spread, and spread again, and stayed.
+ - Everything about Florence seems to be colored with a mild violet, like diluted wine.
+ - Under certain circumstances there are few hours in life more agreeable than the hour dedicated to the ceremony known as afternoon tea.
+ - People talk about the conscience, but it seems to me one must just bring it up to a certain point and leave it there. You can let your conscience alone if you’re nice to the second housemaid.
+ - Her reputation for reading a great deal hung about her like the cloudy envelope of a goddess in an epic.
+ - Art does not lie in copying nature.- Nature furnishes the material by means of which is to express a beauty still unexpressed in nature.-The artist beholds in nature more than she herself is conscious of.
+ - A man who pretends to understand women is bad manners. For him to really to understand them is bad morals.
+ - The superiority of one man’s opinion over another’s is never so great as when the opinion is about a woman.
+ - Experience is never limited, and it is never complete; it is an immense sensibility, a kind of huge spider-web of the finest silken threads suspended in the chamber of consciousness, and catching every air-borne particle in its tissue.
+ - To believe in a child is to believe in the future. Through their aspirations they will save the world. With their combined knowledge the turbulent seas of hate and injustice will be calmed.
+ - I call people rich when they’re able to meet the requirements of their imagination.
+ - Always keep a window in the attic open; not just cracked: open.
+ - Don’t pass it by – the immediate, the real, the only, the yours.
+ - New York is appalling, fantastically charmless and elaborately dire.
+ - Kidd, turn off the light to spare my blushes.
+ - The fatal futility of Fact.
+ - Most English talk is a quadrille in a sentry-box.
+ - It is no wonder he wins every game. He has never done a thing in his life exept play games.
+ - It’s a complex fate, being an American, and one of the responsibilities it entails is fighting against a superstitious valuation of Europe.
+ - There are moods in which one feels the impulse to enter a tacit protest against too gross an appetite for pure aesthetics in this starving and sinning world. One turns half away, musingly, from certain beautiful useless things.
+ - I have in my own fashion learned the lesson that life is effort, unremittingly repeated.
+ - Sometimes she went so far as to wish that she should find herself in a difficult position, so that she might have the pleasure of being as heroic as the occasion demanded.
+ - I am blackly bored when they are at large and at work; but somehow I am still more blackly bored when they are shut up in Holloway and we are deprived of them.
+ - If I should certainly say to a novice, ‘Write from experience and experience only,’ I should feel that this was rather a tantalizing monition if I were not careful immediately to add, ‘Try to be one of the people on whom nothing is lost.’
+ - The time-honored bread-sauce of the happy ending.
+ - Her imagination was by habit ridiculously active; when the door was not open it jumped out the window.
+ - We are divided of course between liking to feel the past strange and liking to feel it familiar.
+ - There’s no more usual basis of union than mutual misunderstanding.
+ - The historian, essentially, wants more documents than he can really use; the dramatist only wants more liberties than he can really take.
+ - Oxford lends sweetness to labour and dignity to leisure.
+ - Novelist-Citizen of Two Countries Interpreter of his Generation on both Sides of the Sea.
+ - I adore adverbs; they are the only qualifications I really much respect.
+ - If you haven’t had your life what have you had?
+ - I intend to judge things for myself; to judge wrongly, I think, is more honorable than not to judge at all.
+ - God’s creature is one. He makes man, not men. His true creature is unitary and infinite, revealing himself, indeed, in every finite form, but compromised by none.
+ - The girl had a certain nobleness of imagination, which rendered her a good many services and played her a great many tricks.
+ - I have only to let myself go! So I have said all my life, yet I have never fully done it.
+ - Life is a predicament which precedes death.
+ - The visible world is but man turned inside out that he may be revealed to himself.
+ - Money’s a horrid thing to follow, but a charming thing to meet.
+ - It is art that makes life, makes interest, makes importance.
+ - Experience was to be taken as showing that one might get a five-pound note as one got a light for a cigarette; but one had to check the friendly impulse to ask for it in the same way.
+ - Art without life is a poor affair.
+ - London is on the whole the most possible form of life.
+ - One doesn’t defend one’s god: one’s god is in himself a defense.
+ - Don’t try so much to form your character – it’s like trying to pull open a tight, tender young rose. Live as you like best and your character will take care of itself.
+ - It is difficult to speak adequately or justly of London. It is not a pleasant place; it is not agreeable, or cheerful, or easy, or exempt from reproach. It is only magnificent.
+ - It exhibits the effort of an essentially prosaic mind to lift itself, by a prolonged muscular strain, into poetry.
+ - There were several ways of understanding her: there was what she said, and there was what she meant, and there was something between the two, that was neither.
+ - All intimacies are based on differences.
+ - And remember this, that if you’ve been hated, you’ve also been loved.
+ - London doesn’t love the latent or the lurking, has neither time, nor taste, nor sense for anything less discernible than the red flag in front of the steam-roller. It wants cash over the counter and letters ten feet high.
+ - She is written in a foreign tongue.
+ - Women never dine alone. When they dine alone they don’t dine.
+ - Little by little, even with other cares, the slowly but surely working poison of the garden-mania begins to stir in my long-sluggish veins.
+ - If I were to live my life over again, I would be an American. I would steep myself in America, I would know no other land.
+ - She had a certain way of looking at life which he took as a personal offense.
+ - If the artist is necessarily sensitive, does that sensitiveness form in its essence a state constantly liable to shade off into the morbid? Does this liability, moreover, increase in proportion as the effort is great and the ambition intense?
+ - People can be in general pretty well trusted, of course – with the clock of their freedom ticking as loud as it seems to do here – to keep an eye on the fleeting hour.
+ - I recall my fleeting instants in Savannah as the taste of a cup charged to the brim.
+ - Ideas are, in truth, forces. Infinite, too, is the power of personality. A union of the two always makes history.
+ - She had her own way of doing all that she did, and this is the simplest description of a character which, although by no means without liberal motions, rarely succeeded in giving an impression of suavity.
+ - Every good story is of course both a picture and an idea, and the more they are interfused the better.
+ - It was the way the autumn day looked into the high windows as it waned; the way the red light, breaking at the close from under a low sombre sky, reached out in a long shaft and played over old wainscots, old tapestry, old gold, old colour.
+ - If this was love, love had been overrated.
+ - The advantage, the luxury, as well as the torment and responsibility of the novelist, is that there is no limit to what he may attempt as an executant – no limit to his possible experiments, efforts, discoveries, successes.
+ - England always seems to me like a man swimming with his clothes on his head.
+ - In the long run an opinion often borrows credit from the forbearance of its patrons.
+ - Autobiography may be the preeminent kind of American expression.
+ - Art derives a considerable part of its beneficial exercise from flying in the face of presumptions.
+ - What is either a picture or a novel that is not character?
+ - I mean that everything this afternoon has been too beautiful, and that perhaps everything together will never be so right again. I’m very glad therefore you’ve been a part of it.
+ - We care what happens to people only in proportion as we know what people are.
+ - A swift carriage, of a dark night, rattling with four horses over roads that one can’t see – that’s my idea of happiness.
+ - A solitary maple on a woodside flames in single scarlet, recalls nothing so much as the daughter of a noble house dressed for a fancy ball, with the whole family gathered around to admire her before she goes.
+ - You wanted to look at life for yourself – but you were not allowed; you were punished for your wish. You were ground in the very mill of the conventional.
+ - You seemed to me to be soaring far up in the blue – to be sailing in the bright light, over the heads of men. Suddenly some one tosses up a faded rosebud – a missile that should never have reached you – and down you drop to the ground.
+ - I would give all I possess to get out of myself; but somehow, at the end, I find myself so vastly more interesting than nine tenths of the people I meet.
+ - I hold any writer sufficiently justified who is himself in love with his theme.
+ - If we pretend to respect the artist at all we must allow him his freedom of choice, in the face, in particular cases, of innumerable presumptions that the choice will not fructify.
+ - Any point of view is interesting that is a direct impression of life. You each have an impression colored by your individual conditions; make that into a picture, a picture framed by your own personal wisdom, your glimpse of the American world.
+ - To take what there is in life and use it, without waiting forever in vain for the preconceived, to dig deep into the actual and get something out of that; this, doubtless, is the right way to live.
+ - It is art that makes life, makes interest, makes importance, for our consideration and application of these things, and I know of no substitute whatever for the force and beauty of its process.
+ - Writing is not primarily escape, but use.
+ - There are women who are for all your ‘times of life.’ They’re the most wonderful sort.
+ - One might enumerate the items of high civilization, as it exists in other countries, which are absent from the texture of American life, until it should become a wonder to know what was left.
+ - Ideas are, in truth, force.
+ - There are two kinds of taste, the taste for emotions of surprise and the taste for emotions of recognition.
+ - I take up my own pen again – the pen of all my old unforgettable efforts and sacred struggles. To myself – today – I need say no more. Large and full and high the future still opens. It is now indeed that I may do the work of my life. And I will.
+ - Of course what he most intensely dreams of is being taken out on walks, and the more you are able to indulge him the more will he adore you and the more all the latent beauty of his nature will come out.
+ - To treat a big subject in the intensely summarized fashion demanded by an evening’s traffic of the stage when the evening, freely clipped at each end, is reduced to two hours and a half, is a feat of which the difficulty looms large.
+ - However British you may be, I am more British still.
+ - Which of you with taking thought can add to his stature one cubit?
+ - I don’t care anything about reasons, but I know what I like.
+ - I have lived too long in foreign parts.
+ - He was there or was not there: not there if I didn’t see him.
+ - The black and merciless things that are behind the great possessions.
+ - Though there are some disagreeable things in Venice there is nothing so disagreeable as the visitors.
+ - The artist beholds in nature more than she herself Nature is conscious of.
+ - I hate American simplicity. I glory in the piling up of complications of every sort. If I could pronounce the name James in any different or more elaborate way I should be in favor of doing it.
+ - Experience is never limited, and it is never complete.
+ - True happiness, we are told, consists in getting out of one’s self; but the point is not only to get out – you must stay out; and to stay out you must have some absorbing errand.
+ - Her memory’s your love. You want no other.
+ - She was a woman who, between courses, could be graceful with her elbows on the table.
+ - She had an unequalled gift, usually pen in hand, of squeezing big mistakes into opportunities.
+ - I’ve struck up a tremendous intimacy with Conte Alberto, and we literally can’t live without each other. He is the first object my eyes greet in the morning, and the last at night.
+ - I think I don’t regret a single ‘excess’ of my responsive youth – I only regret, in my chilled age, certain occasions and possibilities I didn’t embrace.
+ - The only reason for the existence of a novel is that it does attempt to represent life.
+ - It might seem that an egg which has succeeded in being fresh has done all that can reasonably be expected of it.
+ - To kill a human being is, after all, the least injury you can do him.
+ - It had been agreed between them that lighted candles at wayside inns, in strange countries amid mountain scenery, gave the evening meal a peculiar poetry.
+ - Things are always different from what they might be.
+ - Criticism talks a good deal of nonsense, but even its nonsense is a useful force. It keeps the question of art before the world, insists upon its importance.
+ - We must for dear life make our own counter-realities.
+ - Cats and monkeys; monkeys and cats; all human life is there.
+ - To criticize is to appreciate, to appropriate, to take intellectual possession, to establish in fine a relation with the criticized thing and to make it one’s own.
+ - Be generous, be delicate, and always pursue the prize.
+ - Nothing, of course, will ever take the place of the good old fashion of ‘liking’ a work of art or not liking it; the more improved criticism will not abolish that primitive, that ultimate, test.
+ - If one is strong, one loves the more strongly.
+ - My sole wish is to frustrate as utterly as possible the post-mortem exploiter.
+ - We trust to novels to train us in the practice of great indignations and great generosity.
+ - It’s never permitted to be surprised at the aberrations of born fools.
+ - There were always people to snatch at you, and it would never occur to them that they were eating you up. They did that without tasting.
+ - Really, universally, relations stop nowhere, and the exquisite problem of the artist is eternally but to draw, by a geometry of his own, the circle within which they shall happily appear to do so.
+ - One can’t judge till one’s forty; before that we’re too eager, too hard, too cruel, and in addition much too ignorant.
+ - The artist is present in every page of every book from which he sought so assiduously to eliminate himself.
+ - In museums and palaces we are alternate radicals and conservatives.
+ - One is oneself a fine consequence.
+ - When you forget to eat, you know you’re alive.
+ - Love has nothing to do with good reasons.
+ - Art is a point of view, and a genius way of looking at things.
+ - Of course you’re always at liberty to judge the critic. Judge people as critics, however, and you’ll condemn them all!
+ - The “germ,” wherever gathered, has ever been for me, “the germ of a story,” and most of the stories strained to shape under my hand have sprung from a single small seed, a seed as remote and windblown as a casual hint.
+ - The only obligation to which in advance we may hold a novel, without incurring the accusation of being arbitrary, is that it be interesting.
+ - Innocent and infinite are the pleasures of observation.
+ - Every governmental institution has been a standing testimony to the harmonic destiny of society, a standing proof that the life of man is destined for peace and amity, instead of disorder and contention.
+ - That accurst autobiographic form which puts a premium on the loose, the improvised, the cheap, and the easy.
+ - I ought to tell you I’m probably your cousin.
+ - The women one meets – what are they but books one has already read? You’re a library of the unknown, the uncut. Upon my word I’ve a subscription.
+ - Though it might have its momentary alarms, paternity is not an exciting vocation.
+ - I know of no substitute whatever for the force and beauty of an artistic process.
+ - Her chief dread in life, at this period of her development, was that she would appear narrow minded; what she feared next afterwards was that she should be so.
+ - An Englishman’s never so natural as when he’s holding his tongue.
+ - It is, I think, an indisputable fact that Americans are, as Americans, the most self-conscious people in the world, and the most addicted to the belief that the other nations of the earth are in a conspiracy to under value them.
+ - No, no – there are depths, depths! The more I go over it, the more I see in it, and the more I see in it, the more I fear. I don’t know what I don’t see – what I don’t fear!
+ - Take the word for it of a man who has made his way inch by inch, and does not believe that we’ll wake up to find our work done because we’ve lain all night a-dreaming of it; anything worth doing is devilish hard to do!
+
+187 quotes

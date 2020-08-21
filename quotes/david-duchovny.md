@@ -1,0 +1,116 @@
+ - If you’re smart, you’ll always be humble. You can learn all you want, but there’ll always be somebody who’s never read a book who’ll know twice what you know.
+ - The happiest moment of my life was probably when my daughter was born.
+ - I always dreamt of being a basketball player. A dream that only I believed in.
+ - I don’t make decisions based on money.
+ - I love dogs. They live in the moment and don’t care about anything except affection and food. They’re loyal and happy. Humans are just too damn complicated.
+ - Women’s fashion is a subtle form of bondage. It’s men’s way of binding them. We put them in these tight, high-heeled shoes, we make them wear these tight clothes and we say they look sexy. But they’re actually tied up.
+ - I lost my virginity when I was 14. And I haven’t been able to find it.
+ - Humility is considered an un-masculine quality.
+ - Those characters are forever searchingeven if we’re not watching them, they’re out there, in some dimension. Mulder and Scully are still doing their thing, because that’s their nature.
+ - It’s always like you write a poem when you can’t really say what you’re trying to say.
+ - I’m not going to give up. I can’t give up. Not as long as the truth is out there.
+ - My whole life, Ive wanted things before I was ready. I was always pushing for the next job, the next success. I was so focused on achieving and the path that I was missing some great point about life.
+ - Everybody gets the tattoo they deserve.
+ - I really enjoy taking an outdoor shower.
+ - We all know people for that length of time and people change. They mature. There is a certain expectation that a fictional character does not change. But you can’t go back and play him the same way.
+ - Our country was founded on a distrust of government. Our founding fathers gave power to the people to keep an eye on government. So when politicians say, ‘Trust me,’ they’re actually being very un-American.
+ - The key is to get to know people and trust them to be who they are. Instead, we trust people to be who we want them to be – and when they’re not, we cry.
+ - I understand the self-loathing and the resentment, and the discipline that it takes to sit down in front of a typewriter or computer every single day, whether it’s going well or not going well.
+ - I’m half Jewish, half Scottish. It’s hard for me to buy anything.
+ - I’ve turned down jobs because I’ve said, ‘Honestly, I can’t find my way in. I can’t do it. I love you, as a director. I think the script is good. You deserve better than I think I can do.’
+ - People always love and respect characters who speak the truth, even if the truth hurts.
+ - One of the scary things is that, when you’re a kid, you look at your dad as the man who has no fear. When you’re an adult, you realize your father had fear, and that you have it, too.
+ - I’m very proud of my Scottish blood.
+ - As names that can mean things, I prefer spiritual to a lot of other things.
+ - In this age of media and Internet access, we are much more talkative than ever before.
+ - The real truth about a lot of life’s mysteries can be explained by science but people don’t want to get in bed with science because it’s cold. They prefer religion, myth, drama.
+ - I’m the one usually wearing the dress, which is what I would’ve preferred, but they wouldn’t let me. It’s been 15 years since I did that and my ass isn’t as good as it used to be.
+ - I think the real heroic teachers are the ones who work with kids, like my mom and my sister do.
+ - I don’t need my phone to play me music. I need it to be a phone and an e-mail thing.
+ - If somebody says what they want or what they need it gives the person the chance to say yes or no, instead of suffering in silence or depravation or whatever it is.
+ - Dogs are the broccaflower of the animal kingdom.
+ - A lot of times passion projects or films are difficult to make because they don’t have proven directors attached to them.
+ - There’s two things I gotta do. One is, I gotta update my resume. And then, I have to call my mother.
+ - Sometimes when I’m swimming, I think that maybe someday I’ll put my red Speedo up for auction. Or maybe I’ll donate it to the Smithsonian. They can stuff it with two plums and a gherkin and put it on display.
+ - I love Doctor Who and I remember the first one, which was wonderful in its low-tech quality. I also loved the theme song, which sounded like The Cure to me. Which character would I like to play in Doctor Who? Who’s the bad guy? The Dalek? OK, I’ll play him.
+ - The critical mind is the creative mind.
+ - I drive an electric car.
+ - Anxiety is part of creativity, the need to get something out, the need to be rid of something or to get in touch with something within.
+ - I’m not a comic book character. I’m not Indiana Jones or Bond, I’m a flesh and blood guy who is ageing and changing. I don’t have to do what I did in ’93. I couldn’t do it and thank God.
+ - Part of being an actor is letting things come about organically as opposed to forcing them.
+ - Feelings come and go, unless you don’t feel them. Then they stay, and hurt, and grow pear-shaped and weird.
+ - You can go through life and actually speak your mind and do it in an articulate fashion and with a really intelligent point of view.
+ - I’ve got huge tubs full of X-Files memorobilia that I can sell on eBay.
+ - Games, by nature, have more plot options and non-linear qualities than TV and film.
+ - It’s almost obscene when you see people who haven’t matured, who haven’t changed, who don’t have the weight of years on them. So that’s interesting to me – to think about playing him into the future, anew.
+ - I don’t think I’d ever be cruel to an animal.
+ - Whenever somebody says they need an angle for their story I always fear that they’ve got an idea and they want me to fit into it or they want me to come up with an idea myself or I’m supposed to be more revealing than I’ve been, and to me it just sounds like something I don’t want to do.
+ - If young actors ask me things, I always tell them to get on set and watch how it’s done. If you can, watch the people that you like, how they work.
+ - You’re raising a kid and you give it food and shelter and, most importantly, you give it the feeling that it’s special. I think people react to celebrities like that – I mean, they treat celebrities like children.
+ - There is never a personal-life connection between my characters and myself. I’m a professional and I can access what I need to access, so there’s no bleed-over. I didn’t need to believe in aliens to play Mulder. As for my personal life, everything is fantastic right now.
+ - I mean, you always want everybody to pat you on the back and tell you you’re wonderful every time you do something; I think that’s human nature.
+ - Just like every show has a tone, every show has different people on it playing different games. I don’t say ‘game’ in a pejorative sense, I just mean, these are different stories that we tell ourselves when we go to work.
+ - Willie Mays was the best ever. When I was in college I once made a catch like the one Mays made over his head. Sometimes when I’m lying in bed at night I think about it. It still makes me warm.
+ - There are moments when you get out of your own head and you exist in the moment, and that can be good acting.
+ - I just spend my money on the essentials. Just basically food and shelter.
+ - I was about 26 or 27 and it was imperative that I make a living right away and it’s hard to make a living on stage, so I started in television and film.
+ - Every day I try to do breathing exercises, meditation, and yoga. These things sound awfully cliche, but they help me slow down and try to point to a truth.
+ - I wouldn’t succeed at musical theater.
+ - At one time there were voiceover artists, now there are celebrity voiceover artists. It’s unfortunate because these people need the money less than the voiceover artist.
+ - I may be learning guitar, but I’ll never be able to sing.
+ - One of the great things about doing series television is the guest actors that you can have come on and play around with.
+ - Larry Grobel’s interviews are informative and insightful without being pandering or intrusive. You get the sense at all times of both intelligence at work-the interviewee’s and Grobel’s-both inspired by the encounter.
+ - If my work was good enough, I would never have to do publicity.
+ - Fame does lead to money, which I don’t have a close relationship with. I’m the kind of guy who never sees the money – it all goes somewhere else. I don’t understand it, I don’t like to deal with it. I have a fear of not having it, because I grew up without it.
+ - Usually, when I act, I try to forget the words and let them come, and just find my way through them.
+ - If you have Darwin, Christ and Nietzsche, they’re all going to talk at once. You need somebody who listens.
+ - Our human nature is exactly the same as it was 500 years ago, let alone five years ago.
+ - It’s rare in movies or even in life where somebody owns up to their needs. I guess in a relationship it’s the only way it has a chance to survive it.
+ - I think people still have a need for miracles. Science keeps telling them there’s no life on Mars, there’s no God, nothing’s trailing Hale-Bopp, those people are just dead in their Nikes. But they want to believe in something.
+ - My entire life has been an attempt to get back to the kind of feelings you have on a field. The sense of brotherhood, the esprit de corps, the focus – there being no past or future, just the ball. As trite as it sounds, I was happiest playing ball.
+ - Without whining and without making myself a tragic figure, there is no replacement for the loss of your privacy. It’s a huge sacrifice.
+ - It seems unlikely that we’re alone in the universe. But I’m pretty sure nobody’s hiding any contact.
+ - In the general sense, there’s a journey to be had. You either start at the top or the bottom for a journey to happen. Our movie has to start at the top and work it’s way down. Or start at the bottom and work it’s way up.
+ - I mean, there’s chemistry in life and there’s acting chemistry. I’m not saying they’re the same thing, but they’re as mysterious.
+ - I enjoy comedy and I hope that people enjoy watching me do it.
+ - People are really much more respectful than they’re made out to be and much more discerning about the fact that I’m not the character I play.
+ - I don’t know how anybody gets better at anything aside from doing it.
+ - I’ll instinctively know that I identify with a character.
+ - I like my computer. But I don’t know how to use it as well as the 10-year-old daughter.
+ - When I started getting notoriety it was cheesy to appear in a commercial.
+ - My favorite parts of work as an actor and a director are those unplanned mistakes that do happen, because it’s like catching lightning in a bottle. It’s the best part of what we do.
+ - I don’t think you could function on set if you think like that. I think once you start to think of the impact, then you’re not really coming from a truthful place. I think the best thing to do for me is what’s worked in the past.
+ - For hundreds of years, that was the major form of entertainment: The grown-ups sat around and watched the kids play. Now they sit around and watch the television. The actors are the kids.
+ - I enjoy trying to figure out the best way to compliment the picture and not overpower it.
+ - Privacy is something I have come to respect. I think when I was younger I wanted to tell everybody everything, because I thought I was so damn interesting. Then I heard the snoring.
+ - Approaching a part or thinking about taking a part, I never think, ‘Is that person like me?’
+ - A dream is the mind’s way of answering a question it hasn’t yet figured out how to ask.
+ - I don’t believe in a conspiracy to hide the existence of extraterrestrial life.
+ - I think patience is a skill and I wish I had it.
+ - I had to work in one of the most beautiful ski resorts in the world for almost three weeks. Pity me.
+ - I’m always trying to perfect the romantic comedy, though.
+ - I had a fear that I’d be typecast, but I don’t really have that fear anymore.
+ - I don’t like watching people work if they’re making art.
+ - In high school and college, I was an athlete.
+ - I don’t mind close-ups, I like them, but they’re kind of forceful – you see a lot, you get a lot of information in a close-up. There’s less mystery.
+ - I’m actually thinking about getting back to being a bath tub. I don’t think anyone’s ever quite segued into that.
+ - I wouldn’t say we were doing that. I think we probably stopped thinking. Though it took a while to stop thinking.
+ - Most journalists expect me to answer all their questions about aliens and spaceships.
+ - I think Mulder is the worst FBI agent in the world. He spends millions of dollars investigating these paranormal phenomena and never comes up with any evidence. He’s the Kenneth Starr of the FBI.
+ - I’ve run into certain geniuses of individualism – they are very few and far between – who live their lives completely on their own terms; they are very powerful and have a great amount of happiness. We all should aspire to that.
+ - When I grew up, I was in Manhattan the whole time. But my kids have been all over the world.
+ - What makes me mad is arrogance, pretension, putting on airs.
+ - On the one hand, people think they own kids; they feel that they have the right to tell the kids what to do. On the other hand, people envy kids. We’d like to be kids our whole lives. Kids get to do what they do. They live on their instincts.
+ - Maybe the best things about celebrity are the things like being able to get that seat on the plane that you wouldn’t normally get, but that’s kind of like cheating.
+ - I don’t discount belief. I just discount most of the things that people believe in.
+ - I don’t see any difference in the craft of acting, in film or television. It’s absolutely the same. It’s different storytelling, playing a character over multiple hours, as opposed to two.
+ - You do hear some strange rumours floating around. One I’ve heard is that I’m allergic to metal.
+ - Linda Brewer’s example is inspiring, colorful and potentially very funny. Her journey also exists firmly in the Heartland tradition of American success stories and comedies.
+ - It’s hard to find scripts that know what they are from page one to page 115.
+ - A bath tub, apparently, was the first thing I wanted to be.
+ - It’s not someone else’s responsibility to honor my marriage. It’s my responsibility.
+ - People think celebrities don’t have to worry about human things like sickness and death and rent. It’s like you’ve traveled to this Land of Celebrity, this other country. They want you to tell about what you saw.
+ - I don’t think of myself as a TV actor. I think of myself as a film, television and Off-Off-Off-Off Broadway actor.
+ - I don’t want to know what happens in any movie that I go to see.
+
+114 quotes

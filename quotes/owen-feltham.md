@@ -1,0 +1,69 @@
+ - Knowledge is the treasure of the mind, but discretion is the key to it, without which it is useless. The practical part of wisdom is the best.
+ - In business, three things are necessary: knowledge, temper, and time.
+ - Perfection is immutable. But for things imperfect change is the way to perfect them. It gets the name of wilfulness when it will not admit of a lawful change to the better. Therefore constancy without knowledge cannot be always good. In things ill it is not virtue, but an absolute vice.
+ - By gaming we lose both our time and treasure – two things most precious to the life of man.
+ - To go to law is for two persons to kindle a fire, at their own cost, to warm others and singe themselves to cinders; and because they cannot agree as to what is truth and equity, they will both agree to unplume themselves that others may be decorated with their feathers.
+ - The greatest results in life are usually attained by simple means and the exercise of ordinary qualities. These may for the most part be summed up in these two – common sense and perseverance.
+ - Truth and fidelity are the pillars of the temple of the world; when these are broken, the fabric falls, and crushes all to pieces.
+ - God has made no one absolute.
+ - The greatest results in life are usually attained by common sense and perseverance.
+ - It is much safer to reconcile an enemy than to conquer him; victory may deprive him of his poison, but reconciliation of his will.
+ - Negligence is the rust of the soul that corrodes through all her best resolves.
+ - God has made no one absolute. The rich depend on the poor, as well as the poor on the rich. The world is but a magnificent building; all the stones are gradually cemented together. No one subsists by himself.
+ - Business is the salt of life, which not only gives a grateful smack to it, but dries up those crudities that would offend, preserves from putrefaction and drives off all those blowing flies that would corrupt it.
+ - Discontent is like ink poured into water, which fills the whole fountain full of blackness.
+ - To trust God when we have securities in our iron chest is easy, but not thankworthy; but to depend on him for what we cannot see, as it is more hard for man to do, so it is more acceptable to God.
+ - He that always waits upon God is ready whenever He calls. Neglect not to set your accounts even; he is a happy man who to lives as that death at all times may find him at leisure to die.
+ - Virtue dwells at the head of a river, to which we cannot get but by rowing against the stream.
+ - A sentence well couched takes both the sense and understanding. I love not those cart-rope speeches that are longer than the memory of man can fathom.
+ - Some are so uncharitable as to think all women bad, and others are so credulous as to believe they are all good. All will grant her corporeal frame more wonderful and more beautiful than man’s. And can we think God would put a worse soul into a better body?
+ - Discontents are sometimes the better part of our life. I know not well which is the most useful; joy I may choose for pleasure, but adversities are the best for profit; and sometimes those do so far help me, as I should, without them, want much of the joy I have.
+ - Perfection is immutable. But for things imperfect, change is the way to perfect them.
+ - Take heed of a speedy professing friend; love is never lasting which flames before it burns.
+ - It is rare to see a rich man religious; for religion preaches restraint, and riches prompt to unlicensed freedom.
+ - When two friends part they should lock up one another’s secrets, and interchange their keys.
+ - Promises may get friends, but it is performance that must nurse and keep them.
+ - All men will be Peters in their bragging tongue, and most men will be Peters in their base denial; but few men will be Peters in their quick repentance.
+ - Praise has different effects, according to the mind it meets with; it makes a wise man modest, but a fool more arrogant, turning his weak brain giddy.
+ - Show me the man who would go to heaven alone if he could, and in that man I will show you one who will never be admitted into heaven.
+ - Shall I speak truly what I now see below? The World is all a carkass, smoak and vanity, The shadow of a shadow, a play And in one word, just Nothing.
+ - Contemplation is necessary to generate an object, but action must propagate it.
+ - The irresolute man flecks from one egg to another, so hatches nothing.
+ - Where there is plenty, charity is a duty, not a courtesy.
+ - Gold is the fool’s curtain, which hides all his defects from the world.
+ - Works without faith are like a fish without water, it wants the element it should live in. A building without a basis cannot stand; faith is the foundation, and every good action is as a stone laid.
+ - Honesty is a warrant of far more safety than fame.
+ - The noblest part of a friend is an honest boldness in the notifying of errors. He that tells me of a fault, aiming at my good, I must think him wise and faithful – wise in spying that which I see not; faithful in a plain admonishment, not tainted with flattery.
+ - He that despairs degrades the Deity, and seems to intimate that He is insufficient, or not just to His word; and in vain hath read the scriptures, the world, and man.
+ - Meditation is the soul’s perspective glass, whereby, in her long remove, she discerneth God, as if He were nearer at hand.
+ - To be gentle is the test of a lady.
+ - How many would die did not hope sustain them...
+ - Zeal without humanity is like a ship without a rudder, liable to be stranded at any moment.
+ - There is no belittling worse than to over praise a man.
+ - The boundary of man is moderation. When once we pass that pale our guardian angel quits his charge of us.
+ - Vice is a peripatetic, always in progression.
+ - There is no one subsists by himself alone.
+ - Any man shall speak the better when he knows what others have said, and sometimes the consciousness of his inward knowledge gives a confidence to his outward behavior, which of all other is the best thing to grace a man in his carriage.
+ - There is no detraction worse than to overpraise a man, for if his worth proves short of what report doth speak of him, his own actions are ever giving the lie to his honor.
+ - It is to be doubted whether he will ever find the way to heaven who desires to go thither alone.
+ - Every man should study conciseness in speaking; it is a sign of ignorance not to know that long speeches, though they may please the speaker, are the torture of the hearer.
+ - I love the man that is modestly valiant; that stirs not till he most needs, and then to purpose. A continued patience I commend not.
+ - Meditation is the soul’s perspective glass.
+ - Pleasures can undo a man at any time, if yielded to.
+ - Time is like a ship which never anchors; while I am on board, I had better do those things that may profit me at my landing, than practice such as shall cause my commitment when I come ashore.
+ - Virtue were a kind of misery if fame were all the garland that crowned her.
+ - When I but hear her sing, I fare Like one that raised, holds his ear To some bright star in the supremest Round; Through which, besides the light that’s seen There may be heard, from Heaven within, The rests of Anthems, that the Angels sound.
+ - He that, when he should not, spends too much, shall, when he would not, have too little to spend.
+ - Reason and right give the quickest despatch.
+ - If ever I should affect injustice, it would be in this, that I might do courtesies and receive none.
+ - We pick our own sorrows out of the joys of other men, and from their sorrows likewise we derive our joys.
+ - It is a most unhappy state to be at a distance with God: man needs no greater infelicity than to be left to himself.
+ - Fear, if it be not immoderate, puts a guard about us that does watch and defend us; but credulity keeps us naked, and lays us open to all the sly assaults of ill-intending men: it was a virtue when man was in his innocence; but since his fall, it abuses those that own it.
+ - Virtue is the truest liberty.
+ - Men are like wine, – not good before the lees of clownishness be settled.
+ - Riches, though they may reward virtues, yet they cannot cause them; he is much more noble who deserves a benefit than he who bestows one.
+ - He who would be singular in his apparel had need have something superlative to balance that affectation.
+ - For converse among men, beautiful persons have less need of the mind’s commending qualities. Beauty in itself is such a silent orator, that it is ever pleading for respect and liking, and by the eyes of others is ever sending, to their hearts for love.
+ - That man is but of the lower part of the world that is not brought up to business and affairs.
+
+67 quotes

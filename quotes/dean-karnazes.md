@@ -1,0 +1,49 @@
+ - Run when you can, walk if you have to, crawl if you must; just never give up.
+ - Don’t run with your legs, run with your heart.
+ - If you keep chasing your dreams, one day you’ll catch them.
+ - Running is about finding your inner peace, and so is a life well lived.
+ - Regardless of how distant your dreams may seem, every second counts.
+ - Listen to everyone, follow no one.
+ - Don’t confuse comfort with happiness.
+ - The only one who can tell you “You can’t” is you. And you don’t have to listen.
+ - If it felt good, you didn’t push hard enough. It’s supposed to hurt like hell.
+ - There is magic in misery. Just ask any runner.
+ - Struggling and suffering are the essence of a life worth living. If you’re not pushing yourself beyond the comfort zone, if you’re not demanding more from yourself – expanding and learning as you go – you’re choosing a numb existence. You’re denying yourself an extraordinary trip.
+ - Sometimes you’ve got to go through hell to get to heaven.
+ - I run to breathe the fresh air. I run to explore. I run to escape the ordinary.
+ - Any goal worth achieving involves an element of risk.
+ - When all else fails, start running!
+ - The human body is capable of amazing physical deeds. If we could just free ourselves from our perceived limitations and tap into our internal fire, the possibilities are endless.
+ - Pain is the body’s way of ridding itself of weakness.
+ - Want a strong, solid relationship that is willing to go the distance? Get to know your running shoes.
+ - I never feel more alive than when I’m in great pain, struggling against insurmountable odds and untold adversity. Hardship? Suffering? Bring it!
+ - The marathon is an opportunity for redemption. Opportunity, because the outcome is uncertain. Opportunity, because it is up to you, and only you, to make it happen.
+ - I love surfing, rock climbing, cycling – all that stuff. But it’s just amazing that I can inspire people with my running. It’s humbling, really.
+ - The human body has limitations. The human spirit is boundless.
+ - I run because it always takes me where I want to go.
+ - Go out hard and finish harder.
+ - We have killed our souls with comfort instead of seeking fulfillment and achievement.
+ - Once you permit yourself to compromise, you fail yourself.
+ - I love to run and I have some tips to keep it fresh and novel. I rarely use the same route twice. That keeps things new.
+ - For me, as for so many runners, there really are no finish lines. Runs end; running doesn’t.
+ - Running is a simple, primitive act, and therein lays its power. For it is one of the few commonalities left between us as a human race.
+ - A lot of ultramarathoners are soloists. They’re single and live lives off the grid.
+ - If you just go out there and run 100 miles, it breaks down a lot of barriers in terms of self-imposed limitations.
+ - You cannot grow and expand your capabilities without running the risk of failure.
+ - Toeing the starting line of a marathon, regardless of the language you speak, the God you worship or the color of your skin, we all stand as equal. Perhaps the world would be a better place if more people ran.
+ - Some seek the comfort of their therapist’s office, other head to the corner pub and dive into a pint, but I chose running as my therapy.
+ - Endurance running was my passion, my ride. So here, I was in the driver’s seat, running for two days straight pushing the mental and physical limits striving to be better, to go farther, to give more.
+ - I have my whole office set-up at waist level; I don’t sit at all during the day. Sitting, to me, is the devil.
+ - Adventure books are my personal favorites. ‘The Endurance,’ a story about Ernest Shackleton’s legendary Antarctica expedition, or ‘Into Thin Air,’ Jon Krakauer’s personal account of the 1996 disaster on Mt Everest, are two notables.
+ - Runners are competitive folks. I think some might feel slighted they haven’t got more recognition. I think they have a point. In running, you won’t necessarily get noticed just for turning in good performances.
+ - Even if you’re inches away from the finish, never take success for granted.
+ - I’ve raced on all seven continents at least twice. I’ve probably run thousands of races. But the single race that I’m most proud is a 10K. Yes, a 10K. I ran it with my daughter on her 10th birthday.
+ - Running back-to-back races requires a certain tactical prudence. Going too hard in any one race might jeopardize your performance in another. Maintaining proper hydration and caloric equilibrium also becomes increasingly critical.
+ - I run with a credit card and a cell phone, so when there is not a 7-Eleven around, like some of the country roads out there, I can get him to deliver a pizza to me. And I kind of give them a coordinate, a corner.
+ - When I ran across America, for 75 days I ate 10,000 calories a day. I still lost about five pounds.
+ - I’m not trying to take more of the pie for myself. I’m trying to make the pie larger for everyone.
+ - I have an ElliptiGO. It’s a standup bicycle. You don’t pedal; you stride on it. It allows me to have the same striding motion as running without the impact.
+ - I do a lot of marathons as training runs. If I’m somewhere and there’s a marathon, I’ll sign up and just go run it.
+ - Sure I’m cut but not for the sake of vanity...
+
+47 quotes

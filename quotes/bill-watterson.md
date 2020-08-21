@@ -1,0 +1,241 @@
+ - You can’t just turn on creativity like a faucet. You have to be in the right mood. What mood is that? Last-minute panic.
+ - If people sat outside and looked at the stars each night, I'll bet they'd live a lot differently. 
+ - The surest sign that intelligent life exists elsewhere in the universe is that it has never tried to contact us.
+ - Reality continues to ruin my life.
+ - Rainy days should be spent at home with a cup of tea and a good book.
+ - To invent your own life’s meaning is not easy, but it’s still allowed, and I think you’ll be happier for the trouble.
+ - Know what’s weird? Day by day, nothing seems to change. But pretty soon, everything’s different.
+ - God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die.
+ - We’re so busy watching out for what’s just ahead of us that we don’t take time to enjoy where we are.
+ - There is not enough time to do all the nothing we want to do.
+ - If people looked at the stars each night, they’d live a lot differently. When you look into infinity, you realize that there are more important things than what people do all day.
+ - Creating a life that reflects your values and satisfies your soul is a rare achievement.
+ - I think we dream so we don’t have to be apart so long. If we’re in each other’s dreams, we can play together all night.
+ - I let my mind wander and it didn’t come back.
+ - Never argue with a six-year-old who shaves.
+ - It’s not denial. I’m just selective about the reality I accept.
+ - Weekends don’t count unless you spend them doing something completely pointless.
+ - If good things lasted forever, would we appreciate how precious they are?
+ - From now on, I’ll connect the dots my own way.
+ - A playful mind is inquisitive, and learning is fun. If you indulge your natural curiosity and retain a sense of fun in new experience, I think you’ll find it functions as a sort of shock absorber for the bumpy road ahead.
+ - Letting your mind play is the best way to solve problems.
+ - The truth is, most of us discover where we are headed when we arrive.
+ - People think it must be fun to be a super genius, but they don’t realize how hard it is to put up with all the idiots in the world.
+ - At school, new ideas are thrust at you every day. Out in the world, you’ll have to find your inner motivation to seek for new ideas on your own.
+ - If you can’t control your peanut butter, you can’t expect to control your life.
+ - It’s psychosomatic. You need a lobotomy. I’ll get a saw.
+ - That’s one of the remarkable things about life. It’s never so bad that it can’t get worse.
+ - That’s the difference between me and the rest of the world! Happiness isn’t good enough for me! I demand euphoria!
+ - A day can really slip by when you’re deliberately avoiding what you’re supposed to do.
+ - Repetition is the death of magic.
+ - Once it’s too late, you appreciate what a miracle life is.
+ - Life is full of surprises, but never when you need one.
+ - Genius is never understood in its own time.
+ - Did you ever wonder if the person in the puddle is real, and you’re just a reflection of him?
+ - The problem with people is that they’re only human.
+ - There’s more to this world than just people, you know.
+ - I hate to think that all my current experiences will someday become stories with no point.
+ - You will do well to cultivate the resources in yourself that bring you happiness outside of success or failure.
+ - Dad, how do soldiers killing each other solve the world’s problems?
+ - Life is like topography, Hobbes. There are summits of happiness and success, flat stretches of boring routine and valleys of frustration and failure.
+ - You know, Hobbes, some days even my lucky rocket ship underpants don’t help.
+ - I suppose if we couldn’t laugh at things that don’t make sense, we couldn’t react to a lot of life.
+ - You can present the material, but you can’t make me care.
+ - Selling out is usually more a matter of buying in. Sell out, and you’re really buying into someone else’s system of values, rules, and rewards.
+ - I have all these great genes, but they’re recessive. That’s the problem here.
+ - I’m killing time while I wait for life to shower me with meaning and happiness.
+ - I find my life is a lot easier the lower I keep everyone’s expectations.
+ - People who get nostalgic about childhood were obviously never children.
+ - You mix a bunch of ingredients, and once in a great while, chemistry happens.
+ - Life’s disappointments are harder to take when you don’t know any swear words.
+ - Careful. We don’t want to learn from this.
+ - Sometimes when I’m talking, my words can’t keep up with my thoughts. I wonder why we think faster than we speak. Probably so we can think twice.
+ - Shutting off the thought process is not rejuvenating; the mind is like a car battery – it recharges by running.
+ - I go to school, but I never learn what I want to know.
+ - As far as I’m concerned, if something is so complicated that you can’t explain it in 10 seconds, then it’s probably not worth knowing anyway.
+ - I asked mom if I was a gifted child. She said they certainly wouldn’t have paid for me.
+ - Tomorrow we’ll not only seize the day, we’ll throttle it.
+ - I’m a misunderstood genius.
+ - If you do the job badly enough, sometimes you don’t get asked to do it again.
+ - Things are never quite as scary when you’ve got a best friend.
+ - I try to make everyone’s day a little more surreal.
+ - Form follows function, as the architects say. With words and pictures, you can do just about anything.
+ - I’ve got plenty of common sense! I just choose to ignore it.
+ - HOBBES: All this modern technology just makes people try to do everything at once.
+ - I thought my life would seem more interesting with a musical score and a laugh track.
+ - I wish I had more friends, but people are such jerks. If you can just get most people to leave you alone, you’re doing good. If you can find even one person you really like, you’re lucky. And if that person can also stand you, you’re really lucky.
+ - My whole problem is that my lips move when I think.
+ - Scientific Progress goes boink?
+ - I’m crying because out there he’s gone, but he’s not gone inside me.
+ - You can make your superhero a psychopath, you can draw gut-splattering violence, and you can call it a “graphic novel,” but comic books are still incredibly stupid.
+ - I like these cold, gray winter days. Days like these let you savor a bad mood.
+ - Yakka foob mog. Grug pubbawup zink wattoom gazork. Chumble spuzz. I love loopholes.
+ - It’s always better to leave the party early.
+ - HOBBES: If you don’t get a goodnight kiss you get Kafka dreams.
+ - When life gives you lemons, chunk it right back.
+ - People pay more attention when they think you’re up to something.
+ - The score is still Q to 12!
+ - Isn’t it sad how some people’s grip on their lives is so precarious that they’ll embrace any preposterous delusion rather than face an occasional bleak truth?
+ - History is the fiction we invent to persuade ourselves that events are knowable and that life has order and direction. That’s why events are always reinterpreted when values change. We need new versions of history to allow for our current prejudices.
+ - Paul Gauguin asked, “whence do we come? What are we? Where are we going?” Well, I don’t know about anyone else, but I came from my room, I’m a kid with big plans, and I’m going outside! See ya later! Say, who the heck is Paul Gauguin anyway?
+ - No sport is less organized than Calvinball.
+ - Hold it. You know what I’d like to see? I’d like to see the three bears eat the three little pigs, and then the bears join up with the big bad wolf and eat Goldilocks and Little Red Riding Hood! Tell me a story like that, OK?
+ - I say if a novelty Christmas song is funny one time, then it is funny every time. – Calvin.
+ - Mothers are the necessity of invention.
+ - I like maxims that don’t encourage behavior modification. -Calvin.
+ - I wonder if you can refuse to inherit the world.
+ - What state do you live in? Denial.
+ - As you can see, I have memorized this utterly useless piece of information long enough to pass a test question. I now intend to forget it forever. You’ve taught me nothing except how to cynically manipulate the system. Congratulations.
+ - Talking with you is sort of the conversational equivalent of an out of body experience.
+ - Hey Susie Derkins, is that your face, or is a ’possum stuck in your collar?
+ - The real fun of living wisely is that you get to be smug about it.
+ - I’m a 21st-century kid trapped in a 19th-century family.
+ - I’m not dumb. I just have a command of thoroughly useless information.
+ - Childhood is for spoiling adulthood.
+ - Girls are like slugs – they probably serve some purpose, but it’s hard to imagine what.
+ - I think nighttime is dark so you can imagine your fears with less distraction.
+ - You know, sometimes kids get bad grades in school because the class moves too slow for them. Einstein got D’s in school. Well guess what, I get F’s!!!
+ - Calvin: Do you believe in the devil? You know, a supreme evil being dedicated to the temptation, corruption, and destruction of man? Hobbes: I’m not sure man needs the help.
+ - It’s hard to be religious when certain people are never incinerated by bolts of lightning.
+ - I’m not a vegetarian! I’m a dessertarian!
+ - A little rudeness and disrespect can elevate a meaningless interaction to a battle of wills and add drama to an otherwise dull day.
+ - Nothing helps a bad mood like spreading it around.
+ - For no reason I can think of, I’ve wandered far astray. And that is how I got to where I find myself today.
+ - Leader, bandits at 2 o’clock! Roger; it’s only 1:30 now-what’ll I do ’til then?
+ - Calvin : There’s no problem so awful, that you can’t add some guilt to it and make it even worse.
+ - So the secret to good self-esteem is to lower your expectations to the point where they’re already met?
+ - Reading goes faster if you don’t sweat comprehension.
+ - For your information, I’m staying like this, and everyone else can just get used to it! If people don’t like me the way I am, well TOUGH BEANS! It’s a free country! I don’t need anyone’s permission to be the way I want! This is who I am – Take it or leave it!
+ - Calvin: Know what I pray for? Hobbes: What? Calvin: The strength to change what I can, the inability to accept what I can’t, and the incapacity to tell the difference.
+ - Well, remember what you said, because in a day or two, I’ll have a witty and blistering retort! You’ll be devastated THEN.
+ - The problem with the future is that it keeps turning into the present.
+ - For me, it’s been liberating to put myself in the mind of a fictitious six year-old each day, and rediscover my own curiosity. I’ve been amazed at how one idea leads to others if I allow my mind to play and wander.
+ - I always think of “Popeye” and “Barney Google” as quintessential comic strips in that old rollicky, slapstick way we’ve sort of lost.
+ - We all have different desires and needs, but if we don’t discover what we want from ourselves and what we stand for, we will live passively and unfulfilled.
+ - I can never enjoy Sundays, because in the back of my mind I always know I’ve got to go to school the next day. It’s like trying to enjoy your last meal before the execution.
+ - It’s gratifying to hear that from people who care about comic art. I never know what to make of it when someone writes to say, “Calvin and Hobbes is the best strip in the paper. I like it even more than Nancy.”
+ - I like my smock. You can tell the quality of the artist by the quality of his smock. Actually, I just like to say smock. Smock smock smock smock smock smock.
+ - Until you stalk and overrun, you cannot devour anyone. -Hobbes.
+ - You can draw a penguin on a toilet reading The New York Times and it’s adorable, but try doing it with an adult male character, and it’s disgusting.
+ - They say the secret of success is being at the right place at the right time, but since you never know when the right time is going to be, I figure the trick is to find the right place and just hang around.
+ - In the short term, it would make me happy to go play outside. In the long term, it would make me happier to do well at school and become successful. But in the VERY long term, I know which will make better memories.
+ - Problems often look overwhelming at first. The secret is to break problems into small, manageable chunks. If you deal with those, you’re done before you know it.
+ - It seems like once people grow up, they have no idea what’s cool.
+ - The secret to happiness is short-term, stupid self-interest!
+ - You never know when some crazed rodent with cold feet could be running loose in your pants.
+ - The purpose of writing is to inflate weak ideas, obscure pure reasoning, and inhibit clarity. With a little practice, writing can be an intimidating and impenetrable fog!
+ - That’s the whole problem with science. You’ve got a bunch of empiricists trying to describe things of unimaginable wonder.
+ - Specifically, I’d like to debate whether cannibalism ought to be grounds for leniency in murders, since it’s less wasteful.
+ - I know the world isn’t fair, but why isn’t it ever unfair in my favor?
+ - It’s going to be a grim day when the world is run by a generation that doesn’t know anything but what it’s seen on TV.
+ - I must follow the inscrutable exhortations of my soul.
+ - I think hiccup cures were really invented for the amusement of the patient’s friends.
+ - We don’t devote enough scientific research to finding a cure for jerks.
+ - Instead of asking what’s wrong with rampant consumerism, we ought to be asking, ‘What justifies it?’ Popular art does not have to pander to the lowest level of intelligence and taste.
+ - Hello Dad! It is now three in the morning. Do you know where I am?
+ - Happiness is being famous for your financial ability to indulge in every kind of excess.
+ - I keep forgetting that rules are only for little nice people.
+ - Van Gogh would’ve sold more than one painting if he’d put tigers in them.
+ - I hope some historian will confirm that I was the first cartoonist to use the word ‘booger’ in a newspaper comic strip.
+ - Why does man create? Is it man’s purpose on earth to express himself, to bring form to thought, and to discover meaning in experience? Or is it just something to do when he’s bored?
+ - I’ve always tried to make the strip animated, even when the characters aren’t moving, with expressions or perspectives or some sort of exaggeration. There’s great potential for that which has yet to be fully mined.
+ - Heck, what’s a little extortion among friends?
+ - So long, Pop! I’m off to check my tiger trap!
+ - If you’ve ever compared a film to a novel it’s based on, you know the novel gets bludgeoned. It’s inevitable, because different media have different strengths and needs, and when you make a movie, the movie’s needs get served.
+ - Having an enviable career is one thing. Being a happy person is another.
+ - Leave it to a girl to take the fun out of sex discrimination.
+ - The strips I admire go farther than a gag a day, and take us into a special world.
+ - In a culture that relentlessly promotes avarice and excess as the good life, a person happy doing his own work is usually considered an eccentric, if not a subversive.
+ - I won’t eat any cereal that doesn’t turn the milk purple.
+ - A real job is a job you hate.
+ - When birds burp, it must taste like bugs.
+ - But Calvin is no kind and loving god! He’s one of the old gods! He demands sacrifice!
+ - Getting an inch of snow is like winning 10 cents in the lottery.
+ - It’s a cruel season that makes you get ready for bed while it’s light out.
+ - I think comics overall would be better. I think there’s a tremendous potential to be tapped.
+ - I write separately from the inking up. I’m sure this varies from cartoonist to cartoonist; I find that the writing is the hard part and the drawing is the fun part.
+ - I’ve been interested in cartooning all my life. I read the comics as a kid, and I did cartoons for high school publications – the newspaper and yearbook and soon. In college, I got interested in political cartooning and did political cartoons.
+ - In a comic strip, you can suggest motion and time, but it’s very crude compared to what an animator can do. I have a real awe for good animation.
+ - Animation, by necessity, is a team sport, and the fewer people with input into my work, the better I like it.
+ - What I try to do in writing any character is to put myself in his position.
+ - If comics need to be deconstructed and explained, something is really wrong with them.
+ - I’ve always been a huge fan of fantasy and adventure, putting yourself in someone else’s shoes, I’m sure that’s why I’m an actor. It’s why I played with action figures as a kid, that’s why I wrote and drew and read comics as a kid.
+ - If you can’t win by reason, go for volume.
+ - Virtual reality has nothing on Calvin.
+ - If your knees aren’t green by the end of the day, you ought to seriously re-examine your life.
+ - Look! A trickle of water running through some dirt! I’d say our afternoon just got booked solid!
+ - What assurance do I have that your parenting isn’t screwing me up?
+ - Everybody I know fails the acid test of friendship.
+ - The more words you have at your disposal, the more precisely you can express yourself.
+ - CALVIN: Our hero regains consciousness at the feet of a sarcastic alien.
+ - Yeah, but actually, I’ve got the same questions about God.
+ - My problem is that I don’t paint ambitiously. It’s all catch and release – just tiny fish that aren’t really worth the trouble to clean and cook.
+ - The way Calvin’s brain is wired you can almost hear the fuses blowing.
+ - I’ll bet my autopsy reveals my mouth is too big.
+ - I’m willing to take the blame if the strip goes down the drain, and I want the credit if it succeeds. So long as it has my name on it, I want it to be mine.
+ - Garry Trudeau is the only cartoonist with the clout to get his strip published large enough to accomodate extended dialogue. It’s ashame.
+ - The secret to enjoying your job is to have a hobby that’s even worse.
+ - Few things are less comforting than a tiger who’s up too late.
+ - I don’t enjoy lettering very much, but that’s the way I write and that belongs in the strip because the strip is a reflection of me.
+ - In the right hands, a comic strip attains a beauty and elegance that, really, I would put against any other art.
+ - Mom and dad say I should make my life an example of the principles I believe in. But every time I do, they tell me to stop it.
+ - Calvin: Life’s a lot more fun when you aren’t responsible for your actions.
+ - I guess I just don’t have the killer instinct that I think makes a great political cartoonist.
+ - I think most of us would be horrified to meet ourselves and discover what everyone else already knows about us.
+ - Often it takes some calamity to make us live in the present. Then suddenly we wake up and see all the mistakes we have made.
+ - Miss Wormwood: Calvin, your test was an absolute disgrace! It’s obvious you haven’t read any of the material. Our first president was not Chef Boy-Ar-Dee and you ought to be ashamed to have turned in such preposterous answers! Calvin: I just don’t test well.
+ - Hobbes: Do you think there’s a God? Calvin: Well, somebody’s out to get me!
+ - CALVIN: When I grow up I want to be an inventor. First I will invent a time machine. Then I’ll come back to yesterday and take myself to tomorrow and skip this dumb assignment.
+ - If you’re a painter, it’s simply taken for granted that you’ll spend a lot of time in museums studying great paintings, but if you’re a cartoonist, it used to be very hard to see an original cartoon drawing.
+ - I don’t think I’d have been in such a hurry to reach adulthood if I’d known the whole thing was going to be ad-libbed.
+ - You are demoted from First Tiger to bulk rate.
+ - Boy, there’s nothing worse than an inscrutable omen.
+ - If I had rolled along with the strip’s popularity and repeated myself for another five, 10 or 20 years, the people now ‘grieving’ for ‘Calvin and Hobbes’ would be wishing me dead.
+ - They can’t chain my spirit! My spirit runs free! Walls can’t contain it! Laws can’t restrain it! Authority has no power over it!
+ - Why waste time learning, when ignorance is instantaneous?
+ - Art has to keep moving and discovering to stay alive.
+ - The writing doesn’t distract me while I’m drawing and vice versa. I can devote my full attention to each.
+ - Calvin: Dad where do babies come from? Dad: Well Calvin, you simply go to Sears, buy the kit and follow the assembly instructions. Calvin: I came from Sears? Dad: No you were a blue-light special at K-Mart – almost as good and a lot cheaper!
+ - When I get to the drawing, I really enjoy taking a big chunk of time and working on the drawing and nothing else. That allows me to make sure that I’m really challenging the art, making each picture as interesting as I can.
+ - Even when you look for it, you’re never prepared for it.
+ - Of course, REAL zombies never get the giggles when they look at each other...
+ - What fun is it being cool if you can’t wear a sombrero?
+ - You know, there are times when it’s a source of personal pride to not be human.
+ - What’s the point of wearing your favorite rocket ship underpants if nobody ever asks to see ’em?
+ - It must be hard to cook if you anthropomorphisize your vegetables.
+ - Hey Dad, will you buy me a flame thrower? Of course not. Don’t be silly. Even if I didn’t use it in the house?
+ - Cleveland is a really hard place, it’s a very creative place, it feeds you creatively, but it’s a very hard place to make a living creatively.
+ - I’ve never sat down to quantify how many hours I actually spend on the strip. I use the deadlines to estimate my progress; each month I know that I have to produce so many strips, and by the end of the month I’ll make sure that I have.
+ - It’s not the medium, but the quality of perception and expression, that determines the significance of art.
+ - Ah, the life of a newspaper cartoonist – how I miss the groupies, drugs and trashed hotel rooms!
+ - I’d like to see cartoonists measuring their work by higher standards than how many papers their strips are in and how much money they make.
+ - When the cartoonist is trying to talk honestly and seriously about life, then I believe he has a responsibility to think beyond satisfying the market’s every whim and desire.
+ - I’ve got to start listening to those quiet, nagging doubts.
+ - If you’ve got more ambiguous characters or stock stereotypes, the plastic comes through and they don’t work as well.
+ - Surprise is the essence of humor, and nothing is more surprising than truth.
+ - Is it truly being good if the only reason I behave well is so I can get more loot at Christmas? I mean, really, all I’m doing is saying I can be bribed.
+ - I’m pulling out different aspects of my personality in writing each character and, if I’m doing my job well, I’m being true to the situation and true to the character.
+ - Even if lives did hang in the balance, it would depend on whose they were.
+ - It’s only work if somebody makes you do it.
+ - I think of football as a sport the way ducks think of hunting as a sport.
+ - I’m related to people I don’t relate to.
+ - HOBBES: Virtue needs some cheaper thrills.
+ - I’d hate to have a kid like me.
+ - It’s surprising how hard we’ll work when the work is done just for ourselves.
+ - So, what’s it like in the real world? Well, the food is better, but beyond that, I don’t recommend it.
+ - Obviously the great thing about this job is the complete freedom of the schedule. So long as I meet the deadline, they don’t care when I work or how I work.
+ - I chose to tell the story visually, so that anyone of any age, from any country, could understand it.
+ - Every time I’ve built character, I’ve regretted it.
+ - I enjoy the drawing more than the writing, so I try to think of ideas that will allow me to develop the visual side of the strip as fully as possible.
+ - CALVIN: As usual goodness hardly puts up a fight.
+ - I guess I have a gift for expressing pedestrian tastes. In a way, it’s kind of depressing.
+ - You can drag my body to school but my spirit refuses to go.
+ - Books are almost always better than the movies made from them, because there are things books do well and things movies do well, but usually those things don’t overlap: the same with comics and animation.
+ - I liked things better when I didn’t understand them.
+ - As a kid, I knew I wanted to be either a cartoonist or an astronaut. The latter was never much of a possibility, as I don’t even like riding in elevators.
+ - The whole idea of hobknobbing and schmoozing and the concept of an “elite” class of celebrities better than the common people has always made my stomach turn.
+ - I still read newspaper comics, but without much hope for their future.
+ - But for my own example, I’d never believe one little kid could have so much brains!
+ - Verbing weirds language.
+
+239 quotes

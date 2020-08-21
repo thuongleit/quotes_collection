@@ -1,0 +1,156 @@
+ - Between stimulus and response, there is a space. In that space is our power to choose our response. In our response lies our growth and our freedom.
+ - When we are no longer able to change a situation – we are challenged to change ourselves.
+ - Everything can be taken from a man but one thing: the last of the human freedoms – to choose one’s attitude in any given set of circumstances, to choose one’s own way.
+ - Between stimulus and response is the freedom to choose.
+ - What is to give light must endure burning.
+ - When a person can’t find a deep sense of meaning, they distract themselves with pleasure.
+ - It is here that we encounter the central theme of existentialism: to live is to suffer, to survive is to find meaning in the suffering.
+ - So live as if you were living already for the second time and as if you had acted the first time as wrongly as you are about to act now!
+ - No one can take away my freedom to choose how I will react.
+ - Life is never made unbearable by circumstances, but only by lack of meaning and purpose.
+ - For success, like happiness, cannot be pursued; it must ensue, and it only does so as the unintended side-effect of one’s personal dedication to a cause greater than oneself or as the by-product of one’s surrender to a person other than oneself.
+ - Ultimately, man should not ask what the meaning of his life is, but rather must recognize that it is he who is asked. In a word, each man is questioned by life; and he can only answer to life by answering for his own life; to life he can only respond by being responsible.
+ - Man’s search for meaning is the chief motivation of his life.
+ - Despair is suffering without meaning.
+ - Suffering presents us with a challenge: to find our goals and purpose in our lives that make even the worst situation worth living through.
+ - What you have experienced, no power on earth can take from you.
+ - What man actually needs is not a tensionless state but rather the striving and struggling for some goal worthy of him. What he needs is not the discharge of tension at any cost, but the call of a potential meaning waiting to be fulfilled by him.
+ - Everyone has his own specific vocation or mission in life; everyone must carry out a concrete assignment that demands fulfillment. Therein he cannot be replaced, nor can his life be repeated, thus, everyone’s task is unique as his specific opportunity to implement it.
+ - The salvation of man is through love and in love.
+ - You can take away my wife, you can take away my children, you can strip me of my clothes and my freedom, but there is one thing no person can ever take away from me – and that is my freedom to choose how I will react to what happens to me!
+ - The meaning of my life is to help others find meaning in theirs.
+ - Forces beyond your control can take away everything you possess except one thing, your freedom to choose how you will respond to the situation.
+ - Our greatest freedom is the freedom to choose our attitude.
+ - In some ways suffering ceases to be suffering at the moment it finds a meaning, such as the meaning of a sacrifice.
+ - Decisions, not conditions, determine what a man is.
+ - If there is meaning in life at all, then there must be meaning in suffering.
+ - Man does not simply exist but always decides what his existence will be, what he will become the next moment. By the same token, every human being has the freedom to change at any instant.
+ - If there is meaning in life at all, then there must be a meaning in suffering. Suffering is an ineradicable part of life, even as fate and death. Without suffering and death human life cannot be complete.
+ - Man’s main concern is not to gain pleasure or to avoid pain but rather to see a meaning in his life.
+ - Ultimately, man should not ask what the meaning of his life is, but rather he must recognize that it is he who is asked.
+ - An abnormal reaction to an abnormal situation is normal behavior.
+ - The existential vacuum manifests itself mainly in a state of boredom.
+ - View your life from your funeral, looking back at your life experiences, what have you accomplished? What would you have wanted to accomplish but didn’t? What were the happy moments? What were the sad? What would you do again, and what you wouldn’t.
+ - If we take a man as he is, we make him worse, but if we take man as he should be we make him capable of becoming what he can be.
+ - The one thing you can’t take away from me is the way I choose to respond to what you do to me. The last of one’s freedoms is to choose one’s attitude in any given circumstance.
+ - The quest for meaning is the key to mental health and human flourishing.
+ - But there was no need to be ashamed of tears, for tears bore witness that a man had the greatest of courage, the courage to suffer.
+ - For what then matters is to bear witness to the uniquely human potential at its best, which is to transform a personal tragedy into a triumph, to turn one’s predicament into a human achievement.
+ - Happiness cannot be pursued; it must ensue.
+ - Pain from problems and disappointments, etc., is inevitable in life, but suffering is a choice determined by whether you choose to compare your experience and pain to something better and therefore feel unlucky and bitter or to something worse and therefore feel lucky and grateful!
+ - Self-actualization cannot be attained if it is made an end in itself, but only as a side effect of self-transcendence.
+ - Love is the ultimate and the highest goal to which man can aspire.
+ - Pain is only bearable if we know it will end, not if we deny it exists.
+ - I want you to listen to what your conscience commands you to do and go on to carry it out to the best of your knowledge. Then you will live to see that in the long run- in the long run, I say! – success will follow you precisely because you had forgotten to think of it.
+ - There are only two races, the decent and the indecent.
+ - Life is not primarily a quest for pleasure, as Freud believed, or a quest for power, as Alfred Adler taught, but a quest for meaning. The greatest task for any person is to find meaning in his or her own life.
+ - Man’s search for meaning is the primary motivation in his life and not a “secondary rationalization” of instinctual drives. This meaning is unique and specific in that it must and can be fulfilled by him alone; only then does it achieve a significance which will satisfy his own will to meaning.
+ - We can discover this meaning in life in three different ways: 1. by doing a deed; 2. by experiencing a value; and 3. by suffering.
+ - Even when it is not fully attained, we become better by striving for a higher goal.
+ - There are two races of men in this world but only these two: the race of the decent man and the race of the indecent man.
+ - The angels are lost in perpetual contemplation of an infinite glory.
+ - Humor was another of the soul’s weapons in the fight for self-preservation.
+ - I recommend that the Statue of Liberty be supplemented by a Statue of Responsibility on the west coast.
+ - A man who becomes conscious of the responsibility he bears toward a human being who affectionately waits for him, or to an unfinished work, will never be able to throw away his life. He knows the “why” for his existence, and will be able to bear almost any “how”.
+ - The point is not what we expect from life, but rather what life expects from us.
+ - No man should judge unless he asks himself in absolute honesty whether in a similar situation he might not have done the same.
+ - At any moment, man must decide, for better or for worse, what will be the monument of his existence.
+ - You don’t create your mission in life – you detect it.
+ - What was really needed was a fundamental change in our attitude toward life. We had to learn ourselves and, furthermore, we had to teach the despairing men, that it did not really matter what we expected from life, but rather what life expected from us.
+ - Life can be pulled by goals just as surely as it can be pushed by drives.
+ - It is not freedom from conditions, but it is freedom to take a stand toward the conditions.
+ - For the meaning of life differs from man to man, from day to day and from hour to hour. What matters, therefore, is not the meaning of life in general but rather the specific meaning of a person’s life at a given moment.
+ - Every human being has the freedom to change at any instant.
+ - Love is the only way to grasp another human being in the innermost core of his personality. No one can become fully aware of the very essence of another human being unless he loves him. By his love he is enabled to see the essential traits and features.
+ - And I quoted from Nietzsche: That which does not kill me, makes me stronger.
+ - I never would have made it if I could not have laughed. It lifted me momentarily out of this horrible situation, just enough to make it livable.
+ - Our generation is realistic, for we have come to know man as he really is. After all, man is that being who invented the gas chambers of Auschwitz; however, he is also that being who entered those gas chambers upright, with the Lord’s Prayer or the Shema Yisrael on his lips.
+ - View life as a series of movie frames, the ending and meaning may not be apparent until the very end of the movie, and yet, each of the hundreds of individual frames has meaning within the context of the whole movie.
+ - The more one forgets one’s own self, the more human the person becomes.
+ - A human being is a deciding being.
+ - Either belief in God is unconditional or it is no belief at all.
+ - Then I grasped the meaning of the greatest secret that human poetry and human thought and belief have to impart: The salvation of man is through love and in love.
+ - For the world is in a bad state, but everything will become still worse unless each of us does his best.
+ - Life ultimately means taking the responsibility to find the right answer to its problems and to fulfill the tasks which it constantly sets for each individual.
+ - The last of human freedoms – the ability to chose one’s attitude especially an attitude of gratitude in a given set of circumstances especially in difficult circumstances.
+ - The more one forgives himself – by giving himself to a cause to serve or another person to love – the more human he is and the more he actualizes himself.
+ - In times of crisis, people reach for meaning. Meaning is strength. Our survival may depend on our seeking and finding it.
+ - I do the unpleasant tasks before I do the pleasant ones.
+ - Set me like a seal upon thy heart, love is as strong as death.
+ - The struggle for existence is a struggle ‘for’ something; it is purposeful and only in so being is it meaningful and able to bring meaning into life.
+ - No one can take from us the ability to choose our attitudes toward the circumstances in which we find ourselves. This is the last of human freedoms.
+ - It is always important to have something yet to do in life.
+ - Man can only find meaning for his existence in something outside himself.
+ - Just as a small fire is extinguished by the storm whereas a large fire is enhanced by it – likewise a weak faith is weakened by predicament and catastrophes whereas a strong faith is strengthened by them.
+ - Man’s inner strength may raise him above his outward fate.
+ - Happiness cannot be attained by wanting to be happy – it must come as the unintended consequence of working for a goal greater than oneself.
+ - The attempt to develop a sense of humor and to see things in a humorous light is some kind of a trick learned while mastering the art of living.
+ - Being tolerant does not mean that I share another one’s belief. But it does mean that I acknowledge another one’s right to believe, and obey, his own conscience.
+ - It is a peculiarity of man that he can only live by looking to the future.
+ - The meaning of our existence is not invented by ourselves, but rather detected.
+ - Man is capable of changing the world for the better if possible, and of changing himself for the better if necessary.
+ - Love goes very far beyond the physical person of the beloved.
+ - It is the pursuit of happiness that thwarts happiness.
+ - I would say that our patients never really despair because of any suffering in itself! Instead, their despair stems in each instance from a doubt as to whether suffering is meaningful. Man is ready and willing to shoulder any suffering as soon and as long as he can see a meaning in it.
+ - Our main motivation for living is our will to find meaning in life.
+ - As the struggle for survival has subsided, the question has emerged: survival for what? Ever more people have the means to live, but no meaning to live for.
+ - It is well known that humor, more than anything else in the human make-up, can afford an aloofness and an ability to rise above any situation, even if only for a few seconds.
+ - Sunday neurosis, that kind of depression which afflicts people who become aware of the lack of content in their lives when the rush of the busy week is over and the void within themselves becomes manifest.
+ - What is demanded of man is not, as some existential philosophers teach, to endure the meaninglessness of life, but rather to bear his incapacity to grasp its unconditional meaningfulness in rational terms.
+ - Everywhere man is confronted with fate, with a chance of achieving something through his own suffering.
+ - Freedom is in danger of degenerating into mere arbitrariness unless it is lived in terms of responsibleness. That is why I recommend that the Statue of Liberty on the East Coast be supplemented by a Statue of Responsibility on the West Coast.
+ - Fear may come true that which one is afraid of.
+ - Challenging the meaning of life is the truest expression of the state of being human.
+ - God is the partner of your most intimate soliloquies.
+ - Since Auschwitz we know what man is capable of. And since Hiroshima we know what is at stake.
+ - Ever more people today have the means to live, but no meaning to live for.
+ - Having been is also a kind of being, and perhaps the surest kind.
+ - A man’s concern, even his despair, over the worthwhileness of life is an existential distress but by no means a mental disease.
+ - Nothing is likely to help a person overcome or endure troubles than the consciousness of having a task in life.
+ - In his creative work the artist is dependent on sources and resources deriving from the spiritual unconscious.
+ - No one can become fully aware of the very essence of another human being unless he loves him.
+ - I am absolutely convinced that the gas chambers of Auschwitz, Treblinka, and Maidanek were ultimately prepared not in some ministry or other in Berlin, but rather at the desks and in the lecture halls of nihilistic scientists and philosophers.
+ - Life asks of every individual a contribution, and it is up to that individual to discover what it should be.
+ - Once an individual’s search for meaning is successful, it not only renders him happy but also gives him the capability to cope with suffering.
+ - To suffer unecessarily is masochistic rather than heroic.
+ - Woe to him who saw no more sense in his life, no aim, no purpose, and therefore no point in carrying on.
+ - Human kindness can be found in all groups, even those which as a whole it would be easy to condemn.
+ - I understood how a man who has nothing left in this world still may know bliss, be it only for a brief moment, in the contemplation of his beloved.
+ - There is nothing in the world, I venture to say, that would so effectively help one to survive even the worst conditions as the knowledge that there is a meaning in one’s life.
+ - Somewhere I heard a victorious “Yes” in answer to my question of the existence of ultimate purpose.
+ - A human being is not one thing among others; things determine each other, but man is ultimately self-determining. What he becomes-within the limits of endowment and environment-he has made out of himself.
+ - I try to do everything as soon as possible, and not at the last moment. This ensures that, when I am overburdened with work, I will not face the added pressure of knowing that something is still to be done.
+ - I became acquainted with those martyrs whose behavior in camp, whose suffering and death, bore witness to the fact that the last inner freedom cannot be lost.
+ - How can we dare to predict the behavior of man? We may predict the movements of a machine, of an automaton; more than this, we many even try to predict the mechanisms or “dynamisms” of the human psyche as well. But man is more than psyche.
+ - Here lies the chance for a man either to make use of or to forgo the opportunities of attaining the moral values that a difficult situation may afford him. And this decides whether he is worthy of his sufferings or not.
+ - As for the concept of collective guilt, I personally think that it is totally unjustified to hold one person responsible for the behavior of another person or a collective of persons.
+ - Love goes very far beyond the physical person of the beloved. It finds its deepest meaning in its spiritual being, his inner self. Whether or not he is actually present, whether or not he is still alive at all, ceases somehow to be of importance.
+ - Sports allow men to build up situations of emergency. What he then demands of himself is unnecessary achievement – and unnecessary sacrifice. He artificially creates the tension that he has been spared by affluent society.
+ - These tasks, and therefore the meaning of life, differ from man to man, and from moment to moment. Thus it is impossible to define the meaning in life in a general way.
+ - Now, it is my contention that the deneuroticization of humanity requires a rehumanization of psychotherapy.
+ - Man’s last freedom is his freedom to choose how he will react in any given situation.
+ - It said to me, ‘I am here – I am here – I am life, eternal life.’
+ - Our attitude towards what has happened to us in life is the important thing to recognize. Once hopeless, my life is now hope-full, but it did not happen overnight. The last of human freedoms, to choose one’s attitude in any given set of circumstances, is to choose one’s own way.
+ - The transitoriness of our existence in now way makes it meaningless. But it does constitute our responsibleness; for everything hinges upon our realizing the essentially transitory possibilities.
+ - Only to the extent that someone is living out this self transcendence of human existence, is he truly human or does he become his true self. He becomes so, not by concerning himself with his self’s actualization, but by forgetting himself and giving himself, overlooking himself and focusing outward.
+ - Life requires of man spiritual elasticity, so that he may temper his efforts to the chances that are offered.
+ - Love is the only way to grasp another human being in the innermost core of his personality.
+ - Instead of possibilities, I have realities in my past, not only the reality of work done and of love loved, but of sufferings bravely suffered. These sufferings are even the things of which I am most proud, though these are things which cannot inspire envy.
+ - Fundamentally, therefore, any man can, even under such circumstances, decide what shall become of him – mentally and spiritually. He may retain his human dignity even in a concentration camp.
+ - We dislike talking about our experiences. No explanations are needed for those who have been inside, and the others will understand neither how we felt then nor how we feel now.
+ - But my mind clung to my wife’s image, imagining it with an uncanny acuteness. I heard her answering me, saw her smile, her frank and encouraging look. Real or not, her look then was more luminous than the sun which was beginning to rise.
+ - The crowning experience of all, for the homecoming man, is the wonderful feeling that, after all he has suffered, there is nothing he need fear anymore – except his God.
+ - Such a value system might be responsible for the fact that the burden of unavoidable unhappiness is increased by unhappiness about being unhappy.
+ - Each of us carries a unique spark of the divine, and each of us is also an inseparable part of the web of life.
+ - One can choose one’s attitude in any given set of circumstances.
+ - A sound philosophy of life, I think, may be the most valuable asset for a psychiatrist to have when he is treating a patient.
+ - Man is not fully conditioned and determined but rather determines himself whether he gives in to conditions or stands up to them. In other words, man is ultimately self-determining. Man does not simply exist but always decides what his existence will be, what he will become in the next moment.
+ - It isn’t the past which holds us back, it’s the future; and how we undermine it, today.
+ - We needed to stop asking about the meaning of life.
+ - There is also purpose in life which is almost barren of both creation and enjoyment and which admits of but one possibility of high moral behavior: namely, in man’s attitude to his existence, an existence restricted by external forces.
+ - It is true that we can see the therapist as a technician only if we have first viewed the patient as some sort of machine.
+ - Thus, human existence-at least as long as it has not been neurotically distorted-is always directed to something, or someone, other than itself, be it a meaning to fulfill or another human being to encounter lovingly.
+ - Man ultimately decides for himself! And in the end, education must be education towards the ability to decide.
+ - Austrian public-opinion pollsters recently reported that those held in highest esteem by most of the people interviewed are neither the great artists nor the great scientists, neither the great statesmen nor the great sport figures, but those who master a hard lot with their heads held high.
+
+154 quotes

@@ -1,0 +1,24 @@
+ - We have met the enemy and he is us.
+ - There’s no easy quick way out, we’re gonna have to live through our whole lives, win, lose, or draw.
+ - It is not good enough for things to be planned – they still have to be done; for the intention to become a reality, energy has to be launched into operation.
+ - We are confronted with insurmountable opportunities.
+ - Having lost sight of our objectives, we redoubled our efforts.
+ - Now is the time for all good men to come to.
+ - God is not dead-He is merely unemployed...
+ - In like a dimwit, out like a light.
+ - Twenty Percent of Zero is Better than Nothing.
+ - Don’t take life so serious. It ain’t no-hows permanent.
+ - Food for thought is no substitute for the real thing.
+ - Don’t believe something just because you didn’t read it in the papers. Wait until you haven’t seen it on television.
+ - A lump in the throat is worth two on the head.
+ - Many years ago in a period commonly know as Next Friday Afternoon, there lived a King who was very Gloomy on Tuesday mornings because he was so Sad thinking about how Unhappy he had been on Monday and how completely Mournful he would be on Wednesday...
+ - Some is more equal than others, as is well known. It ain’t that your majority is outnumbered, you’re just out-surrounded.
+ - Thank goodness modern convenience is a thing of the remote future.
+ - A parade is the worst form of transportation known to man.
+ - Man tries to swallow meaning whole as a dog would eat his dinner.
+ - Women aren’t as mere as they used to be.
+ - Traces of nobility, gentleness, and courage persist in all people, do what we will to stamp out the trend. So, too, do those characteristics which are ugly...
+ - What’s good about March? Well, for one thing, it keeps February and April apart.
+ - If I could only write, I’d write a nasty letter to the mayor, if he could only read.
+
+22 quotes

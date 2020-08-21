@@ -1,0 +1,33 @@
+ - 80% of the results come from 20% of the causes. A few things are important; most are not.
+ - Strive for excellence in few things, rather than good performance in many.
+ - The key is to work out the few things that are really important, and the few methods that will give us what we really want.
+ - There is no rush. If we think intelligently about what we can achieve with our time, we can be relaxed, even lazy. In fact, being lazy – having plenty of time to think – may actually be a precondition for achieving a great deal.
+ - To be strategic is to concentrate on what is important, on those few objectives that can give us a comparative advantage, on what is important to us rather than others, and to plan and execute the resulting plan with determination and steadfastness.
+ - Only do the thing we are best at doing and enjoy most.
+ - Laziness is the road to progress, but only when it is allied to intelligent thought and high ambition.
+ - It is not shortage of time that should worry us, but the tendency for the majority of time to be spent in low-quality ways.
+ - Make the choice that you want to be happy. You owe it to yourself and you owe it to other people too.
+ - Few people take objectives really seriously. They put average effort into too many things, rather than superior thought and effort into a few important things. People who achieve the most are selective as well as determined.
+ - Use all the willpower at your disposal to make yourself happy. Construct the right stories about yourself – and believe them!
+ - Creation occurs when ideas and individuals collide and collude.
+ - People think that creativity is largely a matter of talent, experience, or luck. They are wrong. Talent, experience, and luck are all key elements, but there is something more fundamental, accessible, and powerful that you can use to multiply your creative effect.
+ - What could you achieve that would make you proud, that no one else could do with the same ease?
+ - Hard work leads to low returns. Insight and doing what we want lead to high returns.
+ - Where a chunk of business is simple, the chances are that it is.
+ - Instead of expending time to train yourself not to be afraid of snakes, avoid them altogether.
+ - Most of us don’t work out what we want. And most of us end up with lopsided lives as a result.
+ - The few things that work fantastically well should be identified, cultivated, nurtured, and multiplied.
+ - If we did realize the difference between the vital few and the trivial many in all aspects of our lives, and if we did something about it, we could multiply anything that we valued.
+ - I make it a personal rule never to do anything that I don’t really care about. It is surprising how much this cuts out.
+ - The road to hell is paved with the pursuit of volume. Volume leads to marginal products, marginal customers, and greatly increased managerial complexity.
+ - Celebrate exceptional productivity, rather than raise average efforts.
+ - Chose the niche that you enjoy, where you can excel and stand a chance of becoming and acknowledged leader.
+ - Those who seize the day become seriously rich.
+ - Our current use of time is not rational. There is therefore no point in seeking marginal improvements in how we spend our time. We need to go back to the drawing board and overturn all our assumptions about time.
+ - If we want to sum up the theory of evolution by natural selection in two words, which have great relevance for all societies and businesses, we should simply remember: diversity works.
+ - To get useful new ideas, we must go beyond our immediate circle and make contact with distant parts of the social system.
+ - Marketing, and the whole firm, should devote extraordinary endeavour towards delighting, keeping for ever and expanding the sales to the 20 per cent of customers who provide 80 per cent.
+ - It may be that you will be happiest in the rat race; perhaps, like me, you are basically a rat.
+ - Progress is personal; it comes from individuals demanding more of themselves and everyone else.
+
+31 quotes

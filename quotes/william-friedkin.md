@@ -1,0 +1,55 @@
+ - Star Wars gave birth to all the computer-generated superhero films.
+ - I’m not a fan of Star Wars. That is not for me. That is for my nephews and nieces. I don’t get it.
+ - If Star Wars had failed, you wouldn’t have 90 percent of what’s out there today.
+ - All of the films I have made, that I have chosen to make, are all about the thin line between good and evil. And also the thin line that exists in each and every one of us. That’s what my films are about.
+ - I’m not a fan of 3D. But I am a huge fan of digital imagery. Because it allows a filmmaker much more latitude to appreciate their own visions and dreams.
+ - With all of my films that are on DVD and Blu-ray, I have spent weeks with them in a color timing room. Just changing or enhancing them. I have been desaturating the color. Sometimes I will make a scene bluer or redder. I do use the new medium. I believe in it.
+ - There is a thin line between the policeman and the criminal. The best cops are always crossed. The best cops are the ones who are able to think like criminals. But for a quirk of fate, they might have been criminals.
+ - I believe it’s true that there’s good and evil in everyone and it’s a constant struggle to have your better angels prevail.
+ - I tend to be attracted to characters who are up against a wall with very few alternatives. And the film then becomes an examination of how they cope with very few options. And that’s, I guess, what interests me in terms of human behavior.
+ - You don’t leave the film alone. You have a new audience, and you have a new medium. Why would you leave it alone? Film is not an antique. It’s not a relic. It’s not a Leonardo da Vinci. I don’t want someone painting over a da Vinci or Rembrandt. But these movies aren’t that.
+ - One of my themes is that there is good and evil in everyone. I was not out to make these guys heroes. I really don’t believe in heroes. The best of people have a dark side and it’s a constant struggle for the better side to survive and to thrive.
+ - To me, the art of cinema is the same as the art of painting. The artist takes a 2D medium and gives you the illusion of depth. If you look at any of the great paintings, you have the illusion of depth. Which is part of the art. The same with the great movies.
+ - The first work of the director is to set a mood so that the actor’s work can take place, so that the actor can create. And in order to do that, you have to communicate, communicate with the actors. And direction is about communication on all levels.
+ - I have to see the whole scene in my head before I go out and do it. Which I do. I will envision the entire scene before I shoot it.
+ - I can’t sit through the superhero films. But I watched Draft Day, and it was kind of sweet in an old-fashioned way.
+ - But the audience is right. They’re always, always right. You hear directors complain that the advertising was lousy, the distribution is no good, the date was wrong to open the film. I don’t believe that. The audience is never wrong. Never.
+ - The art of movies is to allow the audience to suspend their disbelief. They need to use their imaginations.
+ - There are many untalented people making millions of dollars in the film business.
+ - I don’t believe that Citizen Kane or Gone With the Wind, or any damn picture that you can name, would be better off in 3D. I think it’s a gimmick. I find 3D distracting.
+ - We all wind up the same way, no matter what our goals or ambitions are. We have nothing at all to say about how we got into this world or how are going to leave it.
+ - To me, the art of movies is to take a two-dimensional image and give the illusion of depth.
+ - Edgar Allan Poe is considered the great writer of horror stories, perhaps the greatest – I will say the greatest.
+ - Style is something that’s extremely important, but it must grow naturally out of who and what you are and what the material calls for. It cannot be superimposed.
+ - If you call yourself a non-believer, you’re referring to disbelief in something, and you’re acknowledging that there is something to believe in or not.
+ - The informing idea of what you want to say and do, that’s what will take you from film school to professional – the idea. That’s what is original to you.
+ - Even with some of the best action films like The Bourne Ultimatum, which is a great action film with a great chase sequence, so much of it is computer-generated. But that doesn’t bother me. I think it works. It’s fantastic.
+ - Sure, you could go out and make Jaws today. But all of the sequels to Jaws weren’t good. They are all worthless. The Godfather II is the only sequel that I have ever seen that is as good as or better than the original.
+ - Technique is of less interest than character and story.
+ - Violence is not funny.
+ - I believe today that there is no film and no shot in a film that is worth a squirrel getting a sprained ankle.
+ - The Blu-ray is the real cinematech of world cinema. That’s how it’s being preserved. All of these guys that are trying to preserve 35mm negatives? They are wasting their time. There are better ways to see and project this stuff. It’s called digital.
+ - I’ve seen my own films close to a thousand times in one form or another. When you edit them. When you shoot them. Then you run them over and over again for sound and music. Then you’d go to premiere screenings, and have to do promotional screenings in other cities. I can’t watch any of my old films.
+ - And it was only a week later that I realized a close up of Steve McQueen was worth the greatest landscape you could find.
+ - You are always cheating for the audience.
+ - The digital process gives me total control over how I want the film to look. The films look like they did when I was first looking through the viewfinder.
+ - I don’t think sexuality defines a person. It’s one small part of who you are, in my view. You are many things, and I never felt that people were defined by their sexuality solely.
+ - Every time you run a 35mm print, it picks up scratches. It picks up dirt. Sometimes it breaks, and you have to re-splice it. You lose frames. This doesn’t happen with digital or Blu-ray. I think that’s great. Because I love the new media.
+ - Star Wars is one of a handful of films that changed the zeitgeist forever.
+ - I had absolutely no focus as a kid. I never paid attention at school, I never went to college. Not because we were too poor; we were. But if I wanted to go to college, I would have found a way.
+ - When you make a Blu-ray, its not the same as the print process was. You have little or no control over any print that was ever made. You are a victim of the 35mm printing process.
+ - I don’t like 3D. I don’t believe there is any film that I have seen and loved that would have been improved by a scintilla in 3D. To me, it’s just a gimmick.
+ - I don’t go to the movies much anymore. There’s very little that draws me. I watch mostly the older stuff, and I often don’t sit through the new films.
+ - The studios are making fewer films. They are making more expensive films. Profits are tougher to come by. Not only because of the expense of production. But also because of the expense of promotion and hype. To boil that all down, it’s more about hype than it is about filmmaking.
+ - All the great countries are at odds with one another over something, and yet if they don’t cooperate they’re going to blow up.
+ - If you’re a movie star, the studios don’t want you to act. They just want you to show up and look good and chase girls and have a lot of laughs.
+ - The thing that interests me is the good and evil in everybody. I don’t have conventional heroes in the films that I directed, because I believe there’s good and evil in everybody.
+ - I have control over every single frame on Blu-ray. If I want a scene bluer, I get that scene bluer. Originally, there was some fluctuation with the prints. If you made a thousand, or a few thousand prints, there is no control over any of that. But now I can make a master using the digital process.
+ - Sam Jackson is a director’s dream. Some actors hope to find their character during shooting. He knows his character before shooting. Sam’s old-school. I just got out of his way. I never did more than two takes with Sam.-william friedkin.
+ - There are films that I’ve made that I like a little bit more than the others. But the films that I mostly watch, and see over and over again, are not my own.
+ - The studios mostly threw away the negatives of the classic films. They had no interest in their legacy.
+ - I don’t look back or analyze my films. I just make them. It’s for someone else to look at.
+ - I have seen lampoons of my work. And I have really enjoyed them. But I would never do another version of The Exorcist.
+ - When you go to a studio with something you want to make, or they come to you with something they want to make, more often than not, it’s a tent pole. Not something one single person is really passionate about on a creative level.
+
+53 quotes

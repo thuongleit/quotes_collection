@@ -1,0 +1,21 @@
+ - All happiness depends on a leisurely breakfast.
+ - I have so much to do! And there’s so little time!
+ - Live while you live, then die and be done with.
+ - What is life? It departs covertly. Like a thief Death took him.
+ - France is the most civilized country in the world and doesn’t care who knows it.
+ - Yemen produces coffee, Egypt cotton, Iraq dates, Palestine oranges, and Syria trouble.
+ - Moscow is the city where if Marilyn Monroe should walk down the street with nothing on but shoes, people would stare at her feet first.
+ - Ours is the only country deliberately founded on a good idea.
+ - What interested me was not news, but appraisal. What I sought was to grasp the flavor of a man, his texture, his impact, what he stood for, what he believed in, what made him what he was and what color he gave to the fabric of his time.
+ - Count Hermann Keyserling once said truly that the greatest American superstition was the belief in facts.
+ - The last copy of the Chicago Daily News I picked up had three crime stories on its front page. But by comparison to the gaudy days, this is small-time stuff. Chicago is as full of crooks as a saw with teeth, but the era when they ruled the city is gone forever.
+ - One travels like a golf ball, hopping from green to green.
+ - The first essence of journalism is to know what you want to know, the second, is to find out who will tell you.
+ - Touch water in the West and you touch everything.
+ - He was trying to save both his faces.
+ - God is what’s good in me.
+ - Old and new kiss everywhere in Africa.
+ - The camera is one of the greatest liars of our time.
+ - There are no generalizations in American politics that vested selfishness cannot cut through.
+
+19 quotes

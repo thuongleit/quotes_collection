@@ -1,0 +1,68 @@
+ - Choice is the only tool we have that enables us to go from who we are today to who we want to be tomorrow.
+ - What you see determines how you interpret the world, which in turn influences what you expect of the world and how you expect the story of your life to unfold.
+ - So gut tells you “How do I feel about this right now?” It doesn’t tell me how I feel about it tomorrow or even a few minutes from now. It just tells me how I’m feeling right now.
+ - Like, people are less likely to invest in their retirement when they have more options in their 401K plans than when they have fewer.
+ - What leads us astray is confusing more choices with more control. Because it is not clear that the more choices you have the more in control you feel. We have more choices than we’ve ever had before.
+ - Too many choices can overwhelm us and cause us to not choose at all. For businesses, this means that if they offer us too many choices, we may not buy anything.
+ - The phantasmagoria, the actual experience that we try to understand and organize through narrative, varies from place to place. No single narrative serves the needs of everyone everywhere.
+ - The key to getting the most from choice is to be choosy about choosing.
+ - First-generation children were strongly influenced by their immigrant parents approach to choice. For them, choice was not just a way of defining and asserting their individuality, but a way to create community and harmony by deferring to the choices of people whom they trusted and respected.
+ - As we get older, we get better at choosing in ways that will make us happy. We do a better job at picking activities that make us happy, and at spending time with people who make us happy. We’re also better at letting things go.
+ - What is freedom? Freedom is the right to choose: the right to create for oneself the alternatives of choice. Without the possibility of choice a man is not a man but a member, an instrument, a thing. – Archibald MacLeish.
+ - I mean we might even go to war as to whether we love Coke or Pepsi and our whole identity is wrapped up in that choice. You know, for the Russians they felt that these minor differences between these various sodas was just hyped up and irrelevant.
+ - Being a Sikh meant having to do what Mom and Dad said, and going to temple, and Mom and Dad choosing who I would marry. But going to an American school taught me that I was the one who’s supposed to make those choices.
+ - Choosing is a creative process, one through which we construct our environment, our lives, ourselves.
+ - When we speak of choice, what we mean is the ability to exercise control over ourselves and our environment. In order to choose, we must first perceive that control is possible.
+ - There is a different attitude about, you know, how much differentiation there needs to be between our options and how many choices do I need to have in order to make a choice.
+ - We are often in society told to make decisions in one of two ways. We’re either told “Use your gut, just go with how you feel about it and let that guide you,” or we’re told to use reason – some very deliberative methodical process of pros and cons and really thinking it through.
+ - My child’s first word was “more,” but and it’s all about, “I want.” “I’m going to tell you what I want and what I don’t want.” It’s about my desire to express my preferences. And that is really innate.
+ - What we share with animals is a desire for choice. It’s a desire to have control over our life and a desire to live and use choice as a way in which we can facilitate our ability to live and that is something we really were born with.
+ - You know if they said kindness or funniness was really most important to them then they will be more likely to say yes to the person that they thought was kind and funny.
+ - Reason tells me, when I do the pros and cons analysis, how I should feel about it right now and how I should feel about it in 10 years from now and so that the only...
+ - Choice is more than picking ‘x’ over ‘y.’ It is a responsibility to separate the meaningful and the uplifting from the trivial and the disheartening. It is the only tool we have that enables us to go from who we are today to who we want to be tomorrow.
+ - Consumers presented with six choices on an item were twice as likely to buy as consumers overwhelmed with 24 varieties of the same item.
+ - In America we tell our parents to bring their child home and put him or her in a crib; as they get older, children sleep in they own room not in Mom and Dad’s room. What are we training them for? It’s independence, because that’s what being empowered is all about.
+ - I pick what are my priorities and I limit those priorities to less than five in my life and really in those particular areas put in the energy to try to make good choices.
+ - In order to ‘hold fast’ to something, one must allow oneself to be held to something. That commitment may be one of the hardest things to practice in a world of so much choice.
+ - In reality, many choices are between things that are not that much different. The value of choice depends on our ability to perceive differences between the options.
+ - We’re born with the desire, but we don’t really know how to choose. We don’t know what our taste is, and we don’t know what we are seeing.
+ - Balancing hopes, desires and an appreciating of the possibilities with a clear-eyed assessment of the limitations: that is the art of choosing.
+ - I could wear makeup today, and one person would say it looks bland, another would say it looks fake, and another might tell me I look really natural. Everyone is convinced their opinion is the truth, and that’s what I struggle against.
+ - I don’t know if I approach choice any differently than the sighted people do, but what I am very cognizant of is that choice does have limits and because of that I really try to take advantage of the domains in which I do have choice.
+ - We make choices and are in turn made by them.
+ - I mean can you walk to school on your own? Can you study science? Can you study math? Can you go to a normal school? Do you need to go to a special school? What is going to become of you when you grow up? Are you going to have to live on social security and SSI?
+ - You know give me choices that are truly different from one another, otherwise they don’t regard them as meaningful choices.
+ - When I was in Russia I found that I thought I was going to give these people that I was interviewing a whole bunch of choice in terms of what they could drink while we were chatting.
+ - We have the ability to create choice by altering our interpretations of the world.
+ - So on the one hand in school you’re teachers are constantly telling you that you can be whatever it is you want to be as long as you put your mind and heart to it, and yet at the same time I was also getting the clear message of, well, what can you do really?
+ - I put out a good 10 different types of drinks for them and they just said, “Oh, okay, so it’s just one choice.” One choice? I gave you Coke, Pepsi, Ginger Ale, Sprite. They saw that as one choice. Now why was that one choice? Because they felt, well, it was just all soda.
+ - So for decisions about happiness you essentially need at least both and probably even more than that, you probably also need to do analysis that doesn’t involve yourself to get at the answer of what will make you happy in 10 years.
+ - So most of the time when we are confronted by more, rather than a few, choices we’re often novices and so we don’t really know how to differentiate these various options.
+ - We either put out 6 different flavors of jam or 24 different flavors of jam and we looked at 2 things. First, in what case were people more likely to buy a jar of jam?
+ - Well certainly not having any choice – having your entire life dictated by others...
+ - Now if you expand their choice set. Say you give them 20 different speed dates, everything goes out the window. Everybody starts choosing in accordance with looks because that becomes the easiest criteria by which to weed out all the options and decide “So who am I going to say yes to?”
+ - If you truly have expertise – and expertise can be say a chess master who has really mastered something or an artist or a musician of some sort you know if you give a jazz musician...
+ - Knowledge should be a public good, and I want my ideas to have as much exposure as possible.
+ - The first thing we looked at, in what case were people more likely to be attracted to the jar or jam, so in which case are people more likely to stop when they saw the display of jams and what we found was that more people stopped when there were 24 jams.
+ - We are sculptors finding ourselves in the evolution of choosing, not in the results of choice.
+ - We also don’t always know what we want. And in those cases it can actually make us worse off because it’s actually easier to figure out what you want and to figure out how the options differ if you have about a handful of them than if you have a hundred of them.
+ - Then, the other thing that affected my interest in choices growing up was the fact that I was going blind and that meant that there were lots of questions that constantly kept arising about how much choices I actually could have.
+ - A person of “good character” was one who acted in accordance with the expectations of his community.
+ - The typical Walmart today offers you 100,000 products.
+ - You know, like, none of us would choose – no matter where we are in the world – would choose to you know become a member of Orwell’s “Nineteen Eighty-Four” world, but how much choice is really the question.
+ - I do think that there are cultural differences in the extent to which we value having more and more choice.
+ - So it was constantly going back and forth between these two cultures that kept raising the question, well, how important is personal freedom? And I think that has always been of interest to me.
+ - Also if they choose from more options than fewer options they’re less satisfied with what they choose and that is true whether they’re choosing chocolates or which job offer to accept.
+ - I mean it wasn’t that they sat around thinking oh gosh I needed more choices in my grocery stores the way I had come to think about it as an American growing up.
+ - About the only time our gut can truly outperform our reason is if we truly have developed a kind of informed intuition. So that means the chess master or someone who has really thought about it and given themselves feedback on a particular activity for at least 10,000 hours or more.
+ - What’s interesting is that the way we go about finding our marriage partners today is quite different from the way it used to be in this culture.
+ - People will make worse financial decisions for them if they’re choosing from a lot of options than if they’re choosing from a few options. If they have more options they’re more likely to avoid stocks and put all their money in money market accounts, which doesn’t even grow at the rate of inflation.
+ - When companies try to guess what consumers want, they essentially make the choice for consumers.
+ - Once the jazz musician learns all the fundamentals they can keep track of a lot of choices in an instant.
+ - A clear right answer and the opportunity to change the options? This is the chooser’s dream.
+ - I mean we know that some choice makes you better off than no choice. Now do we get better off if we go from a lot of choice versus a few choices? And there I think the answer is much, much, much more complicated.
+ - You know, whether it be humans or animals. So even humans – before we can speak or we can understand a baby’s cognition – they’re already showing us signs that they want choice.
+ - What we found was that of the people who stopped when there were 24 different flavors of jam out on display only 3% of them actually bought a jar of jam whereas of the people who stopped when there were 6 different flavors of jam 30% of them actually bought a jar of jam.
+ - The expansion of choice has become an explosion of choice.
+
+66 quotes

@@ -1,0 +1,26 @@
+ - May the wind always be at your back and the sun upon your face, and the winds of destiny carry you aloft to dance with the stars.
+ - Life passes most people by while they’re making grand plans for it.
+ - Sometimes you’re flush and sometimes you’re bust, and when you’re up, it’s never as good as it seems, and when you’re down, you never think you’ll be up again, but life goes on.
+ - All I can say is that my ambition far exceeded my talent.
+ - That’s a terrible price to pay because you loved life so much, with the intensity of a thousand suns, and the women and all of it – and then it’s all taken away from you. You end up walking the hallways of always to a place called tedium and apathy, day after day after day. Years go by.
+ - Danbury wasnt a prison, it was a crime school. I went in with a Bachelor of marijuana, came out with a Doctorate of cocaine.
+ - The war on drugs was an ideology the government came up with, and there never really was a war on drugs. I mean, to stop the importation of drugs into the United States of America is an impossibility.
+ - The official toxicity limit for humans is between one and one and half grams of cocaine depending on body weight. I was averaging five grams a day, maybe more. I snorted ten grams in ten minutes once. I guess I had a high tolerance.
+ - I was snorting a lot of cocaine and I had lost myself to a great degree. A lot of people, everybody was starting to realize what the coke was all about and they were all starting to get lost.
+ - I suddenly began to realize that to become an entrepreneur in the marijuana business would make me fairly well off. And I also liked the lifestyle, my own working hours.
+ - I thought heroin was evil and morally, myself, I thought that pot was okay. That it wasn’t a bad thing and so therefore thought I wasn’t doing a bad thing. I knew I was breaking the law but I thought that the law was wrong also. So I morally justified what I was doing.
+ - After a while, the cocaine – I didn’t have any friends. I was just alone and I didn’t even like myself.
+ - I was the kid who would take the car out at night when he was 16 and see if he can redline it. And then there’s the kid who will be careful of it because it’s his dad’s car, or whatever, and drive it safely home and go to bed. And that’s how my whole life was.
+ - People don’t grow up to become thrill junkies – they’re born like that.
+ - If somebody had come to me and said will you move heroin, I would have told them no.
+ - In fact, I was welcomed. There were movie stars and rock stars. I became a pot star. I glorified in that. And of course as time wore on the business began to expand and grow. It went from more or less a college fun thing to a serious business. As the money grew, the power grew.
+ - I’ve had so many great experiences in my life, of living total free will, that I wouldn’t change it for all the gold in the earth.
+ - Smoking marijuana – or most everybody who smokes marijuana deals it in small amounts to their friends, innocently enough. I think it’s innocently enough.
+ - Nixon wasn’t really considered the president by the youth of America. He was considered to be a fraud and which he proved himself to be.
+ - Any marijuana transaction I ever did with anyone, there were never any guns involved, ever.
+ - I hope there’s a life after life – and maybe I can even come back again and get on another train, and ride and gain some more wisdom.
+ - Strange thing, when they arrested me for the pot, the federal agents, they said, “We’re sorry, we really don’t want to bust pot people but this is tied into a heroin operation and we have to arrest you.”
+ - Basically I was no different than a rock star or a movie star. I was a coke star.
+ - I felt that there was nothing wrong with what I was doing because I was supplying a product to people that wanted it and it was accepted. I mean nobody really was making any negative statements about marijuana.
+
+24 quotes

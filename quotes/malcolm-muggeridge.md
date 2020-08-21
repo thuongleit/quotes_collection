@@ -1,0 +1,105 @@
+ - Never forget that only dead fish swim with the stream.
+ - The depravity of man is at once the most empirically verifiable reality but at the same time the most intellectually resisted fact.
+ - What will finally destroy us is not communism or fascism, but man acting like God.
+ - Every happening, great and small, is a parable whereby God speaks to us, and the art of life is to get the message.
+ - Behind the debris of these self-styled, sullen supermen and imperial diplomatists, there stands the gigantic figure of one person, because of whom, by whom, in whom, and through whom alone mankind might still have hope. The person of Jesus Christ.
+ - If God is dead, somebody is going to have to take his place. It will be megalomania or erotomania, the drive for power or the drive for pleasure, the clenched fist or the phallus, Hitler or Hugh Hefner.
+ - There’s far more truth in the Book of Genesis than in the quantum theory.
+ - We have now educated ourselves into a state of complete imbecility.
+ - In the beginning was the Lie and the Lie was made news and dwelt among us, graceless and false.
+ - People do not believe lies because they have to, but because they want to.
+ - The whole social structure is now tumbling down, dethroning its God, undermining all its certainties. All this, wonderfully enough, is being done in the name of the health, wealth, and happiness of all mankind.
+ - One of the peculiar sins of the twentieth century which we’ve developed to a very high level is the sin of credulity. It has been said that when human beings stop believing in God they believe in nothing. The truth is much worse: they believe in anything.
+ - I can say that I never knew what joy was like until I gave up pursuing happiness, or cared to live until I chose to die. For these two discoveries I am beholden to Jesus.
+ - For us humans, everything is permanent – until it changes, as we are immortal until we die.
+ - I myself am convinced that the theory of evolution, especially to the extent to which it has been applied, will be one of the greatest jokes in the history books of the future. Posterity will marvel that so very flimsy and dubious an hypothesis could be accepted with the incredible credulity it has.
+ - History will see advertising as one of the real evil things of our time. It is stimulating people constantly to want things, want this, want that.
+ - The essential feature, and necessity of life is to know reality, which means knowing God.
+ - I never met a rich man who was happy, but I have only very occasionally met a poor man who did not want to become a rich man.
+ - God, stay with me, let no word cross my lips that is not your word, no thoughts enter my mind that are not your thoughts, no deed ever be done or entertained by me that is not your deed.
+ - All new news is old news happening to new people.
+ - I think that once you’ve produced a conformist, a totally conformist society, a society in which there were no critics, that would in fact be an exact equivalent of the totalitarian societies against which we are supposed to be fighting in a cold war.
+ - The orgasm has replaced the Cross as the focus of longing and the image of fulfillment.
+ - The only ultimate disaster that can befall us is to feel ourselves at home on this earth.
+ - In the end, coming to faith remains for all a sense of homecoming, of picking up the threads of a lost life, of responding to a bell that had long been ringing, of taking a place at a table that had long been vacant.
+ - Few men of action have been able to make a graceful exit at the appropriate time.
+ - Bad humor is an evasion of reality; good humor is an acceptance of it.
+ - The genius of Man in our time has gone into jet-propulsion, atom-splitting, penicillin-curing, etc. There is none over for works of imagination; of spiritual insight or mystical enlightenment. I asked for bread and was given a tranquilliser.
+ - Posterity will surely be amazed, and I hope vastly amused, that such slipshod and unconvincing theorizing should have so easily captivated twentieth-century minds and been so widely and recklessly applied.
+ - St. Teresa of Avila described our life in this world as like a night at a second-class hotel.
+ - The English have this extraordianry respect for longevity. The best example of this was Queen Victoria, a most unpleasant woman who achieved a sort of public affection simply by living to be an enormous age.
+ - The media have, indeed, provided the Devil with perhaps the greatest opportunity accorded him since Adam and Eve were turned out of the Garden of Eden.
+ - Television was not intended to make human beings vacuous, but it is an emanation of their vacuity.
+ - I think that the essence of a free and civilized society is that everything in it should be subject to criticism, that all forms of authority, should be treated with a certain reservation.
+ - Education, the great mumbo jumbo and fraud of the age purports to equip us to live and is prescribed as a universal remedy for everything from juvenile delinquency to premature senility.
+ - All happenings, great and small, are parables whereby God speaks. The art of life is to get the message. To see all that is offered us at the windows of the soul, and to reach out and receive what is offered, this is the art of living.
+ - The “pursuit of happiness” is responsible for a good part of the ills and miseries of the modern world.
+ - The hallmark of religion is to distrust claims made for mortal men. It is in ages of great religious faith that great skepticism can find expression.
+ - I beg you to believe that life is not a process, it’s a drama.
+ - I accept the fact I am an unregenerate egghead.
+ - Humor is practically the only thing about which the English are utterly serious.
+ - I’m much too modest a person.
+ - There is no such things as darkness, only a failure to see.
+ - The great advantage of the sort of education I had was precisely that it made practically no mark upon those subjected to it.
+ - Education, the great mumbo jumbo and fraud of the age.
+ - I hate government. I hate power. I think that man’s existence, insofar as he achieves anything, is to resist power, to minimize power, to devise systems of society in which power is the least exerted.
+ - I don’t like seeing people angry.
+ - The price you pay for being powerful and being rich is to be hated.
+ - One of the many pleasures of old age is giving things up.
+ - An orgy looks particularly alluring seen through the mists of righteous indignation.
+ - In retrospect, all these exercises in self-gratification seem pure fantasy, what Pascal called, licking the earth.
+ - I think that in free societies, and we’re constantly talking about living in free societies, aren’t we, in contradiction with unhappy people who live in non-free societies, that the benefit, the dividend of living in a free society is that you say what you think.
+ - The Sputnik is just to me like a firework, a rocket, a new invention.
+ - Marx and Freud are the two great destroyers of Christian civilization, the first replacing the gospel of love by the gospel of hate, the other undermining the essential concept of human responsibility.
+ - The only thing that really teaches one what life’s about the joy of understanding, the joy of coming in contact with what life really signifies – is suffering, affliction.
+ - The pursuit of happiness, which American citizens are obliged to undertake, tends to involve them in trying to perpetuate the moods, tastes and aptitudes of youth.
+ - How do I know pornography depraves and corrupts? It depraves and corrupts me.
+ - I am in a slight difficulty because I find myself in a minute minority there, in that this Sputnik didn’t either interest me or frighten me, but that’s because I don’t, you see, believe that the circumstances of life are the important thing.
+ - The truth is that a lost empire, lost power and lost wealth provide perfect circumstances for living happily and contentedly in our enchanted island.
+ - Its avowed purpose is to excite sexual desire, which, I should have thought, is unnecessary in the case of the young, inconvenient in the case of the middle aged, and unseemly in the old.
+ - I have had my television aerials removed. It is the moral equivalent of a prostate operation.
+ - I wouldn’t have said that Anthony Eden was equipped by nature to deal with the situation in the world today. I would have said that he was portentous, sincere, honest and rather stupid.
+ - Travel, of course, narrows the mind.
+ - I have a very great respect for Americans, and having been a correspondent in this country, and I believe that Americans are people who respond much better to facts and truthful, genuine speculation, than they do to purely, kind of phoney, adulation.
+ - A decrepit society shuns humor as a decrepit individual shuns drafts.
+ - On television I feel like a man playing piano in a brothel; every now and again he solaces himself by playing ‘Abide with Me’ in the hope of edifying both the clients and the inmates.
+ - All of us admire people we don’t like and like people we don’t admire.
+ - Higher education is booming in the United States; the Gross National Mind is mounting along with the Gross National Product.
+ - I will lift mine eyes unto the pills. Almost everyone takes them, from the humble aspirin to the multi-colored, king-sized three deckers, which put you to sleep, wake you up, stimulate and soothe you all in one. It is an age of pills.
+ - There’s nothing is this world more instinctively abhorrent to me than finding myself in agreement with my fellow-humans.
+ - I have to say that I think that Anthony Eden was probably the most disastrous Prime Minister in our history, and I am not forgetting Lord North and a few people like that.
+ - Tranquilizers to overcome angst, pep pills to wake us up, life pills to ensure blissful sterility. I will lift up my ears unto the pills whence cometh my help.
+ - He was not only a bore; he bored for England.
+ - I think Winston Churchill is an appallingly bad politician, and always has been, that he hung onto power long after he should have done, and that his post-war administration was a disaster.
+ - When you reach your sixties, you have to decide whether you’re going to be a sot or an ascetic. In other words if you want to go on working after you’re sixty, some degree of asceticism is inevitable.
+ - It’s a sad thing about politics that most people get power too late, in that they differ from ladies of easy virtue who get their pleasures too early.
+ - Animistic savages prostrating themselves before a painted stone have always seemed to me to be nearer the truth than any Einstein or Bertrand Russell.
+ - In the cycle of a great civilization, the artist begins as priest, and ends as a clown or buffoon.
+ - It was a somber place, haunted by old jokes and lost laughter. Life, as I discovered, holds no more wretched occupation than trying to make the English laugh.
+ - I have absolutely no doubt that there is an intense anti-Americanism in all Western Europe, and I think the reason for that is a very, very simple one.
+ - It’s very nearly impossible to tell the truth in television.
+ - Surely the glory of journalism is its transience.
+ - It’s the circumstances of popular monarchy, the manner in which it’s developed, and it is also the fault of the people who present her with this unquestioning adulation. In other words, it’s their lack of a larger faith. Which makes them fasten onto, a purely earthly symbol.
+ - I don’t think that it would make the slightest difference to life and to the aspects of life that interest me if we could go to the moon tomorrow, because I think what really makes life interesting is the big question “Why?”
+ - I believe that the visit of the Queen to the United States is an admirable occasion to produce an historical, truthful, sincere, genuine analysis of how the British Monarchy evolved into its present situation.
+ - I think that Sir Winston Churchill, in the period that the Germans occupied the Channel Ports, when the whole war hung in issue, fulfilled a role, which is as great as any role in our history.
+ - I think that Harold MacMillan is a very intelligent man, who, as so often happens in politics, achieved supreme power too late.
+ - The only people I’ve met in this world who never doubt are materialists and atheists.
+ - I simply make this point, that the monarchy in so far, as it is identified with what is, in my opinion, an obsolete class structure, is making a mistake, and the task of those who are responsible for the conduct of the monarchical institution is to detach it from that class structure.
+ - The trouble with kingdoms of heaven on earth is that they’re liable to come to pass, and then their fraudulence is apparent for all to see. We need a kingdom of heaven in Heaven, if only because it can’t be realized.
+ - I think that any person who is commenting on public affairs is entitled to point out those dangers.
+ - Future historians will surely see us as having created in the media a Frankenstein monster whom no one knows how to control ordirect, and marvelthat weshould have so meekly subjected ourselves to its destructive and often malign influence.
+ - It is simply that America is very rich and very powerful and generally speaking everybody hates the rich and the powerful.
+ - Civilization – a heap of rubble scavenged by scrawny English Lit. vultures.
+ - I think Queen Elisabeth II is a charming woman.
+ - Politicians get their power too late, and I think that he has inherited an impossible situation in which he is ill-equipped to deal.
+ - One of the stupidest theories of Western life.
+ - The monarchical institution in England is immensely valuable.
+ - When Dwight Eisenhower became president, I personally was delighted. I thought that that was a very good thing.
+ - American Women: How they mortify the flesh in order to make it appetizing! Their beauty is a vast industry, their enduring allure a discipline which nuns or athletes might find excessive.
+ - My opinion, my conviction, gains immensely in strength and sureness the minute a second mind as adopted it.
+ - The skyscrapers began to rise again, frailly massive, elegantly utilitarian, images in their grace, audacity and inconclusiveness, of the whole character of the people who produces them.
+ - In politics, as in womanizing, failure is decisive. It sheds its retrospective gloom on earlier endeavor which at the time seemed full of promise.
+ - As Man alone, Jesus could not have saved us; As God alone, He would not; Made flesh, He could and did.
+
+103 quotes

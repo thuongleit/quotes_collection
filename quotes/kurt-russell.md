@@ -1,0 +1,37 @@
+ - The legs feed the wolf.
+ - I’m a libertarian. I think a lot of people are libertarians and are afraid to admit it – or don’t know.
+ - We are in a democratic society. It’s our job to question.
+ - Sure I love Goldie. How could you not love Goldie? Everyone loves Goldie. I love her, and I hope our love will continue, but I don’t want to give an I-love-Goldie-Hawn interview.
+ - If I see one side of somebody, I want to see the other side.
+ - I was brought up by two people who just said, Whatever it is you’re interested in, go do it. There is no winning or losing. You find out when you do it what the experience is.
+ - I know I come off differently than I think of myself. I’m always surprised by what people say about me.
+ - It’s not easy making money as an actor. It’s just not an easy thing to do. There’s so many that want to do it and so few opportunities to do it that it’s not as easy as it would seem.
+ - You can always tell somebody’s sense of humor by if they like this movie or not.
+ - I’m a reasonable guy, but I’ve just experienced some very unreasonable things...
+ - I think I’ve done a lot of movies that people would like to have seen a sequel to. But I grew up in a time when we didn’t do sequels. You just did a movie because you wanted to do a movie and you wanted to tell a story. It wasn’t to build a franchise.
+ - I was brought up as a Republican. But when I realized that at the end of the day there wasn’t much difference between a Democrat and Republican, I became a libertarian.
+ - Society questions the police and their methods, and the police say, Do you want the criminals off the street or not?
+ - I don’t really look for specific types of projects any more. I’m not taking care of a career anymore. I’m just having fun acting.
+ - If it hadn’t been for the videocassette, I may not have had a career at all.
+ - I usually hang out on the set. I get to know everybody. I have a nice time with the other actors.
+ - My first year of pro ball I played in the Northwest league and made the all-star team, and the next year I played I led the team in hitting and was third or fifth in the league.
+ - We all do that thing which is the best in movies – we relate.
+ - I wasn’t really serious about acting – I was serious about baseball.
+ - Human beings, from their own point of view, are very different than what people see.
+ - I got a kick out of the stands when they would heckle me. I would take the energy from that.
+ - I seem to have a knack for picking movies that go on to be cult favorites.
+ - I do get cynical, but what can you do? It doesn’t make any difference.
+ - I started playing ball when I was a kid. My dad was a pro ball player and he passed on his knowledge to me.
+ - When I was working on my career, I was very aware of what I had done, what I wanted to do next. I’m having a good time just reading things that might be interesting to do.
+ - A great pinot chases its own tail. You drink it and you just keep finding new tastes that go with it, my dream was to make a world-class pinot and learn more about other wines as well.
+ - I’ve never looked at my career in terms of, What haven’t I done that I want to do? I just generally find a story that I think is a good one and go to work.
+ - I’m not much on sequels; I’m not much on remakes for the most part. I don’t really like or dislike them.
+ - I played professional level sports. When you’re playing for money, it’s a whole other level.
+ - I no longer look at my life and times in the motion picture industry as my career. I just look at it now as something I like and want to do.
+ - Acting was something that just came along. But I made good money, so it wasn’t something I was just going to put aside and pretend it didn’t exist.
+ - When you first are in front of the camera as a young person, you’d be surprised at all the insecurities you can get.
+ - For guys playing sports at a high level, for money, I can’t put my finger on it, but in a man’s world of sport, there is something visceral to beating another man.
+ - When you think you’re good, you will play at that level. If you doubt yourself, you will play like crap.
+ - If they’re willing to pay you what you think you’re worth for it, that’s why an actor goes to work. A lot of times they want to pay you a lot for a picture you don’t want to do.
+
+35 quotes

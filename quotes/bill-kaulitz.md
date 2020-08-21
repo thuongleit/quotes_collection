@@ -1,0 +1,26 @@
+ - I want an intelligent girl whom I can talk about everything. I want her to be my friend, to be partners. I don’t like when a girl is rough, but delicate and subtle. I like good manners and not rudeness nor arrogance.
+ - Live every second, Here and now. Don’t let go, Before it’s to late.
+ - I will wait for love to fly to me and teach me how to fly.
+ - You know, we’re all human beings, and we’re not made to be alone.
+ - There is never a reason to give up! It’s always going on somehow!
+ - I am the author of my life. Unfortunately, I am writing in pen and can’t erase my mistakes.
+ - Always remember, believe in today, believe in tomorrow, believe in yourself, and whatever happens, don’t jump.
+ - If you’re really in love, you don’t care about all the other girls that are standing in line for you.
+ - It’s important to be yourself.
+ - If I had a girlfriend I would write her letters instead of using Twitter.
+ - I want my true love, because I don’t have so much time, and I wanna spend my time with the right girl.
+ - I won’t let anyone stand between me and my brother.
+ - Dear children, don’t eat anything healthy at home, just keep eating those hamburgers.
+ - The best birthday present I ever got was born 10 minutes before I was.
+ - The connection we have is something special. We know each other since we were in the womb! You can’t get any closer then that.
+ - Music, it’s an emotion; if you’re just a puppet, how can you put your soul in what you do? For my part, I believe that I put my soul to it, so I get angry when people think that what I do is plastic.
+ - The real love is when you wish to give something and not to get.
+ - Laughing is such a pure and natural thing I try to laugh every day. Think that’s one of the most important things in life.
+ - I really love dogs. When I see a dog, I go crazy, it’s like, “Oh my God, come here, come here!”
+ - Georg always looks beautiful! He wakes up like beauty himself.
+ - I don’t care about the fact that a dogs place is not in a bed – the closer they are to me, the more beautiful it is.
+ - I wasn’t somebody who raised his finger and then talked in a hushed voice. I always shouted.
+ - I simply find it boring to walk around like everybody else. I find it really great to stand out and do something special.
+ - What do yo think human flesh tastes like?
+
+24 quotes

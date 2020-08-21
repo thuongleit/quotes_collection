@@ -1,0 +1,109 @@
+ - We don’t need virtual reality, we need virtual unreality.
+ - Cinema is dead, long live cinema.
+ - I think my films are always quite self-reflexive and always question ’why am I doing this, is this the right way to do it, what is cinema for, does it have a purpose?
+ - I’ve always been fascinated by maps and cartography. A map tells you where you’ve been, where you are, and where you’re going – in a sense it’s three tenses in one.
+ - Americans don’t understand what metaphor in cinema is about. They’re extremely good at making straightforward, linear narrative movies, which entertain superbly. But they very rarely do anything else.
+ - If Good approved of his creature’s creation, He breathed the painted clay-model into life by signing His name.
+ - Most cinema is not about images but text. Why on earth have we based cinema on text? Why can’t we break that umbilical cord? Why do we have to pollute cinema?
+ - I don’t want to be a film-maker. I think painting is far more exciting and profound.
+ - We live in a time of excess – excess population, excess information.
+ - Too many proofs spoil the truth.
+ - There’s no such thing as history, only historians. That’s how we know about the past.
+ - I was born on the 5th April 1942. On Good Friday. Round about crucifixion time. Archbishop Ussher, a man for dates, who calculated that the world began on September 27th 4004 BC, says the crucifixion took place at three o’clock in the afternoon on Good Friday in the year 33 AD. I was right on time.
+ - Every historian has a vested interest. “The Decline and Fall of the Roman Empire” was not about the Roman but the British empire. What price the truth?
+ - The pretence that numbers are not the humble creation of man, but are the exacting language of the Universe and therefore possess the secret of all things, is comforting, terrifying and mesmeric.
+ - Painting is the supreme form of expression; you don’t need to ‘read’ painting.
+ - The game Flights of Fancy or Reverse Strip Jump is played from as high a jumping-point as a competitor will dare. After each successful jump, the competitor is allowing to put on an article of clothing. Thirteen jumps is normally more than enough to see a competitor fully dressed for the day.
+ - To be an atheist you have to have ten thousand times more imagination than if you are a religious fundamentalist. You must take the responsibility to acquire information, digest and use it to understand what you can.
+ - Continuity is boring.
+ - I would be curious about one of those Jane Austen women – you know – long-suffering, dutiful – but all right in the end – a plump 19th century type, five foot four, ringlets, brown eyes, long fingers.
+ - You can play lacrosse all over the world provided you know where the goalposts are.
+ - I share this interest in the weird, strange, unusual, surreal.
+ - A really intelligent man makes an indifferent painter. For painting requires a certain blindness, a partial refusal to be aware of all the options...
+ - Imagine a world where nothing is stable. In the West, we have three moving elements – Air, Fire, Water – but at least we can depend on the fourth.
+ - I went to art school, and every Tuesday and Friday we drew the nude. If you look at Western painting, male and female nudes are in the center of every painting. It’s difficult and exciting to draw the nude. Why get so upset about this? It’s our duty to break taboos.
+ - Life is full of a thousand red herrings, and it takes the history of a civilisation to work out which are the red herrings and which aren’t.
+ - I certainly don’t believe you documentary filmmakers. Like me, you are involved in making fiction, and your fiction is just as well organized and just as well predicated, but the big difference between me and you is that I’m honest and you’re dishonest. I know I’m telling you lies.
+ - Anybody who writes a diary insists it must be read by someone else.
+ - I am Welsh by birth, English by education, and European by nature.
+ - As for critics, one mediocre writer is more valuable than ten good critics. They are like haughty, barren spinsters lodged in a maternity ward.
+ - I like to think of The Falls as my own personal encyclopedia Greenaway-ensis.
+ - I don’t believe in the deplorable notion of realism in the cinema: you can over-reach it, and it becomes as false as convention.
+ - English culture is highly literary-based.
+ - Whispering can be a rest from a noisy world of words.
+ - The Sistine Chapel is an extraordinary work of education – it lays out all the early books of the Bible.
+ - Since Caesar, we know his historians are liars. The good writers get read. Bad history doesn’t get read.
+ - If you never lived out your sexuality – it’s a great force, and if you try to fight it, what does that create? Energy: positive and negative, self-loathing.
+ - I don’t think we’ve seen any cinema yet. I think we’ve seen 100 years of illustrated text.
+ - Only cinema narrows its concern down to its content, that is to its story. It should, instead, concern itself with its form, its structure.
+ - I think my films are very English. That certain emotional distance, interest in the world, interest in irony. These are all deeply English propositions.
+ - Cinema has reached a dead end.
+ - You should be allowed to rub out and start again, it means that you are human. The purists are tedious, they tell you a mistake is like an enduring black mark. Nonsense – better to be human than some infernal machine never going wrong.
+ - I never go to the cinema. I can’t stand sitting in the dark with strangers – all of us obliged to share the same emotional experiences – it’s too intimate. I like to be emotional in private.
+ - A hand cannot write on itself.
+ - There have been innumerable films about film-making, but Otto e Mezzo was a film about the processes of thinking about making a film – certainly the most enjoyable part of any cinema creation.
+ - I like a lot of glasses about – it highers the tone.
+ - I really, sincerely believe that one should trust the work, and not the author.
+ - Cinema is far too rich and capable a medium to be merely left to the storytellers.
+ - Cinema basically examines a personality first and the body afterward.
+ - The start of a film is like a gateway, a formal entrance-point. The first three minutes of a film make great demands on an audience’s patience and credulity. A great deal has to be learnt very rapidly about place and attitude, character and intent and ambition.
+ - I also think that everyone has an elitist approach to his own art, a complex knowledge of it, whether he is a clockmaker or an engineer. And I think it’s perfectly legitimate to make use of this knowledge because it enriches the overall texture of life.
+ - My second Christian name is John. Good solid bourgeois Christian name, like my first name, Peter, a rock. Minerals. Build on rock, rocks, uranium. Peter and John were two of the twelve apostles – arguable the two most significant. Were my parents hedging their bets?
+ - I suppose I am gently cynical about notions of who we think we are, but I certainly don’t hate my fellow man. I think my cinema, although it might often deal with death and decay, is highly celebratory.
+ - The best painting is totally non-narrative. It doesn’t have to tell you a story.
+ - In practically every film you experience, you can see the director following the text. Illustrating the words first, making the pictures after, and, alas, so often not making pictures at all, but holding up the camera to do its mimetic worst.
+ - I wanted to make a cinema of ideas, not plots, and to use the same aesthetics as painting, which has always paid great attention to formal devices of structure, composition and framing.
+ - I want to regard my public as infinitely intelligent, as understanding notions of the suspension of disbelief and as realising all the time that this is not a slice of life, this is openly a film.
+ - Jean Renoir once suggested that most true creators have only one idea and spend their lives reworking it, but then very rapidly he added that most people don’t have any ideas at all, so one idea is pretty amazing.
+ - Churchill was a good writer but a bad historian.
+ - Works of art are never finished, just stopped.
+ - For so many filmmakers, cinema is a means to an end.
+ - I am certain that there are two things in life which are dependable – the delights of the flesh and the delights of literature. I have had the good fortune to bring them together and enjoy them together in full quantity.
+ - I don’t want to become an ivory tower filmmaker. That sounds peculiar, but I want to be a mainstream filmmaker. I want the largest possible audience that I can find – but, of course, on my terms.
+ - I got in trouble with the stern-faced Russians who didn’t want me to create a guy who is mortal.
+ - I do feel for me that cinema has somehow ceased to be a spectator sport. I get tremendous excitement out of making it rather than watching it.
+ - I was continually connected with the whole world and never got any rest. At the moment, I spend only a few hours weekly on the net, that’s just better for me.
+ - All the material is fictional and develops its own eight and a half private, coelesced journeys, where, perhaps not unexpectedly, the females can run faster than the men and trade their freedoms by exhausting the male sexual fantasies and replacing them by some of their own.
+ - It seems so tragic to me that so many filmmakers are making movies up against this extra-ordinary revolution with one eye closed and two hands tied behind their backs.
+ - Itch to read, scratch to understand.
+ - There’s more religion in my little finger than there is in the pope. But no, I don’t believe in God. I am an athiest. A Darwinian evolutionist.
+ - In a world where we can all be our own filmmakers, the old elites are disappearing and there is no desire to look at somebody else’s dream anymore because you can go off and make your own.
+ - It serves the purpose of not serving a purpose, surely quite a valid one.
+ - I think it is really important to be in some way provocative – either intellectually or viscerally – in the films one makes.
+ - What are you – some kind of addict? Is this where you come to...
+ - There are many photos of Eisenstein. I think he was quite vain, and he liked photos of him. Being a virgin at 33 is strange now, but let’s not be too high-minded about that.
+ - There are, after all, approaches to be made other than the dependable routes that massage sentimental expectations and provide easy opportunities for emotional identification.
+ - We all know that we’re going to die, but we don’t know when. That’s not a blessing, that’s a curse.
+ - I always think that art is one of the most wonderful exciting curious ways to learn. I have no worries or apologies about art being used as a teaching medium.
+ - I don’t believe that one has to tear down the cinema screen in order to renew cinema. But new input and new energy are lacking. They are flowing above all into the television technologies. We must, therefore, concentrate on the CD-ROM.
+ - The range of human skin colours is quite narrow when you think about it – and I do – and subtle – beige, pink, white, tan, taup...
+ - Creation, to me, is to try to orchestrate the universe to understand what surrounds us. Even if, to accomplish that, we use all sorts of strategems which in the end prove completely incapable of staving off chaos.
+ - Blind eyes cannot read.
+ - Words reproduce themselves pleasurably too.
+ - I can’t think of anyone who has done anything remotely useful after the age of 80.
+ - All religions have always hated females.
+ - Investigation is never complete.
+ - My personal obsessions are much more interesting to me than other people’s.
+ - What do you want art to give you? What do you want cultural experience to give you? Shouldn’t it be in-depth, profound experiences which have some satisfaction and can be retained in your four senses and your imagination for the rest of your life?
+ - One of my heroes, almost necessarily from what I’m saying, of course, is Borges, who is a supreme master of doing thing – being a data bank – and the beauty of this economy is that he could have written War and Peace in three or four pages; who knows, it might have been a better book.
+ - I admit that death is not just about you, it’s also about the people who love you.
+ - It’s precisely on the Internet that the majority of the writing is terribly bad and uninteresting.
+ - There are those who think that Zeffirelli’s Hamlet is the way to treat Shakespeare. I think that cinema can handle much more. We somehow expect cinema to provide us with meaning, to console us. But that’s not the purpose of art.
+ - We all live to a formula. Maybe the secret lies in keeping that formula secret.
+ - Cinema is not a playground for Sharon Stone.
+ - We are all united by the phenomenon that we have a body and that body is universally the same, more or less. If we lose sight of that perspective, everything can desperately suffer.
+ - I do indeed think that cinema is mortal. There is a lot of evidence already that it is dying on its feet.
+ - Eisenstein was a good editor. I was trained as a film editor, and I’ve no doubt that the editor is key to a film.
+ - Bill Viola is worth ten Scorseses.
+ - I think that films or indeed any art work should be made in a way that they are infinitely viewable; so that you could go back to it time and time again, not necessarily immediately but over a space of time, and see new things in it, or new ways of looking at it.
+ - This is where I begin to do the writing. I am now going to be the pen and not the paper.
+ - I have often thought it was very arrogant to suppose you could make a film for anybody but yourself.
+ - It’s so miserable and so easy to keep slamming Titanic – I’ll shut up.
+ - That comes from most people having an American film model in their heads which is nothing but a total illusionary masturbatory massage.
+ - I still would like you to feel the enthusiasm that all those people felt in the twenties and thirties, that indeed we had discovered, with cinema, the great 20th-century, all-embracing medium.
+ - If you want to tell stories, be a writer, not a filmmaker.
+ - I obviously irritate people. I obviously antagonise them.
+ - I’ve always been fascinated by Eisenstein.
+ - My favourite way of watching the cinema is the biggest possible cinema you can find, with the biggest possible screen, and the loudest possible Dolby – but just me. Nobody else.
+
+107 quotes

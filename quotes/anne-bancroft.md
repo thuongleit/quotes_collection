@@ -1,0 +1,25 @@
+ - To push behind the dog sled and run in front of the dog sled. That was always an interesting job.
+ - I do not think about being beautiful. What I devote most of my time to is being healthy.
+ - If you marry the wrong person for the wrong reasons, then no matter how hard you work, it’s never going to work, because then you have to completely change yourself, completely change them, completely – by that time, you’re both dead.
+ - I’m lucky I had some teachers who saw something in me.
+ - Haiku is a particularly Zen form of poetry; for Zen detests egoism in the form of calculated effects or self-glorification of any sort. The author of haiku should be absent, and only the haiku present.
+ - Girls should go on thinking that there is a world out there and that it is theirs for the taking.
+ - The aim of Zen training is to attain the state of consciousness which occurs when the individual ego is emptied of itself and becomes identified with the infinite reality of all things.
+ - The challenge, whenever you create anything, is to persevere and push away the negative voices. And the more you accomplish, the louder they get. The key is to shut them off and trust in your heart where you’re going.
+ - Zen is not interested in high-flown statements; it wants its pupil to bite his apple and not discuss it.
+ - A life lesson for me is, how do you muster the courage to take on a new risk? Whether it’s starting up a business or taking on a new project or expedition. I think the risks that we take are all relative to the risk-taker.
+ - For me, exploration is about that journey to the interior, into your own heart. I’m always wondering, how will I act at my moment of truth? Will I rise up and do what’s right, even if every fiber of my being is telling me otherwise?
+ - Getting through high school and college was one of my greatest achievements.
+ - Skydiving is something I’ve never done! And I am very excited to take the leap with a community of like-minded courageous women.
+ - I was at a point where I was ready to say I am what I am because of what I am and if you like me I’m grateful, and if you don’t, what am I going to do about it?
+ - I had no doubts I could go to the pole. I may not be as strong, but I make up for physical strength in other areas, like steadiness and not panicking under stress.
+ - I think we all strive to push ourselves, to overcome our struggles. And when we do, we get to know ourselves better.
+ - The things we overcome in life really become our strengths.
+ - Life is here only to be lived so that we can, through life, earn the right to death, which to me is paradise. Whatever it is that will bring me the reward of paradise, I’ll do the best I can.
+ - It’s really important that, as women, we tell our stories. That is what helps seed our imaginations.
+ - And then there’s also this element of – some people would describe it as spirits or a presence that appears when things are very difficult, physically and emotionally. You know, when you’re really putting out. So the third man aura is sort of an appearance. It’s the yeti.
+ - The author of haiku should be absent, and only the haiku present.
+ - Slowing down reminds you that the journey is supposed to be fun.
+ - The greatest way to get most husbands to eliminar la celulitis do one thing is to suggest that perhaps they’re also old to do it.
+
+23 quotes

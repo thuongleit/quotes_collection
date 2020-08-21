@@ -1,0 +1,42 @@
+ - Our history is not our destiny. ~~Alan Cohen
+ - Our destiny is not written for us, but by us. ~~Barack Obama
+ - Your biography is not your destiny, your decisions are. ~~Tony Robbins
+ - No amount of worrying can change the future. Go easy on yourself, for the outcome of all affairs is determined by God’s decree. If something is meant to go elsewhere, it will never come your way, but if it is yours by destiny, from you it cannot flee. ~~Umar
+ - Luck and destiny are the excuses of the world’s failures. ~~Henry Ford
+ - Decisions decide destiny, there is no action without decision. ~~Tony Robbins
+ - Life’s too short to spend it trying to keep others happy. You can’t please everyone. To fulfill your destiny, stay true to your heart. ~~Joel Osteen
+ - That which you do not bring to consciousness comes to you as your Fate, that which you do bring to consciousness, whether it was what you thought you wanted or not, is your destiny. ~~C.G. Jung
+ - Our lives will depend upon the decisions which we make, for decisions determine destiny. ~~Thomas S. Monson
+ - Your destiny is too great, your assignment too important, your time too valuable. Don’t let fear intimidate you. ~~Joel Osteen
+ - Our destiny is not determined by the number of times we stumble but by the number of times we rise up, dust ourselves off, and move forward. ~~Dieter F. Uchtdorf
+ - It is only in God that we discover our origin, our identity, our meaning, our purpose, our significance, and our destiny. Every other path leads to a dead end. ~~Rick Warren
+ - Whatever may happen to you was prepared for you from all eternity; and the implication of causes was from eternity spinning the thread of your being. ~~Marcus Aurelius
+ - We are not creatures of circumstance; we are creators of circumstance. ~~Benjamin Disraeli
+ - Commitment is that turning point in your life when you seize the moment to alter your destiny. ~~Denis Waitley
+ - Accept whatever comes to you woven in the pattern of your destiny, for what could more aptly fit your needs? ~~Marcus Aurelius
+ - Decision is the ultimate power. Decisions shape destiny. ~~Tony Robbins
+ - Our problems are man-made, therefore they may be solved by man. And man can be as big as he wants. No problem of human destiny is beyond human beings. ~~John F. Kennedy
+ - You are a person of destiny. You are not here by accident. There is no obstacle too big, no dream you can’t accomplish. ~~Joel Osteen
+ - Life by the yard is hard; by the inch it’s a cinch. Decisions Determine Destiny. ~~Thomas S. Monson
+ - Of course there’s destiny, but destiny doesn’t push you where you don’t want to go. You’re the ones who choose. Destiny is up to you. ~~Richard Bach
+ - When people walk away from you, let them go. Your destiny is never tied to anyone who leaves you, and it doesn’t mean they are bad people. It just means that their part in your story is over. ~~T.D. Jakes
+ - You cannot embrace your destiny if you do not let go of your history. ~~T.D. Jakes
+ - Ya gotta do what ya gotta do. ~~Sylvester Stallone
+ - Bottom line: God will not allow any person to keep you from your destiny. They may be bigger, stronger, or more powerful, but God knows how to shift things around and get you to where you’re supposed to be. ~~Joel Osteen
+ - Live each day, as if it we’re your last. It’s written in the stars, your destiny is cast. ~~Elvis Presley
+ - No matter what you have gone through in your youth, it is about who you choose to be in life. You can define your own destiny. You can be stronger than a very difficult past and overcome it. ~~Angelina Jolie
+ - As long as we persist in our deepest destiny, we will continue to grow. ~~Denis Waitley
+ - Men acquire a particular quality by constantly acting in a particular way. ~~Aristotle
+ - Everything happens for a reason. I’m used to it, I prepare for it. Like I say, at the end of the day, those in charge of their own destiny are going to do what’s right for them and their family. ~~Shaquille O'Neal
+ - I found out that the things that hurt us the most can become the fuel and the catalyst that propel us toward our destiny. It will either make you bitter or it will make you better. ~~T.D. Jakes
+ - In real open source, you have the right to control your own destiny. ~~Linus Torvalds
+ - The destiny of human rights is in the hands of all our citizens in all our communities. ~~Eleanor Roosevelt
+ - It has been said that the gate of history turns on small hinges, and so do people’s lives. The choices we make determine our destiny. ~~Thomas S. Monson
+ - There is no fate that cannot be surmounted by scorn. ~~Albert Camus
+ - We can meet our destiny, and that destiny to build a land here that will be, for all mankind, a shining city on a hill. ~~Ronald Reagan
+ - I don’t understand how a woman can leave the house without fixing herself up a little – if only out of politeness. And then, you never know, maybe that’s the day she has a date with destiny. And it’s best to be as pretty as possible for destiny. ~~Coco Chanel
+ - I think secretly and privately there is a destiny for me and just for me to stay on that track and follow it. I really believe and feel I am here for a reason and that’s my job, you know, to perform for the people and if they accept it that I am rewarded. ~~Michael Jackson
+ - Surround yourself with people whose definition of you is not based on your history, but your destiny. ~~T.D. Jakes
+ - I have no doubt that it is part of the destiny of the human race in it’s gradual improvement, to leave off eating animals. ~~Henry David Thoreau
+
+40 quotes

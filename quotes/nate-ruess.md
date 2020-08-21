@@ -1,0 +1,33 @@
+ - In a city like New York, any night can be completely different, even in a subtle way.
+ - It takes a lot to still believe in people.
+ - There’s always some level of optimism in every single song.
+ - I kind of like being depressed.
+ - Running in Central Park is my favorite thing to wake up and do. I have my own specific path that I have to run every single time. There’s a little bit of OCD involved, but I love it.
+ - As a songwriter I hate this whole, ‘If it’s a sad song, it has to sound like a sad song thing.’ And that goes all the way back to my days with the Format. I’m an insane narcissist, so if I have to get something off my chest, I’ll get something off my chest.
+ - The Queen and Electric Light Orchestra harmonies are so distinct and fit in our songs so well sometimes, but we don’t know how to do them properly.
+ - My girlfriend is a fashion designer. She has her own company called Rachel Antonoff. She is doing a collaboration with Urban Outfitters right now, a shoe collaboration with Bass. She sells to Barneys, stuff like that.
+ - I don’t play an instrument – I just write in my head, and I usually hear fully formed songs. ‘We Are Young’ turned out so much like it was in my head. But it also exceeded all my expectations.
+ - My dad dragged me to a Bruce Springsteen concert as a kid. It was my first concert, but I fell asleep in the middle. My second concert was Weezer on the Pinkerton tour, and Pinkerton is the reason why Im doing this.
+ - I always wanted to be a singer, but none of my friends thought I could sing.
+ - We love a good, hyped sound, but when it starts to sound insincere, that’s when I lose interest. I hope that our music, even if it sounds polished, doesn’t sound insincere.
+ - Lyrics are so important, I hate every second of writing them, but it’s something I take great pride in when it’s finished.
+ - I don’t have a Twitter or a Facebook, but that doesn’t mean I’m any more productive than the rest of the world.
+ - I try and get about eight hours of sleep every single night. And I like to think that I drink more water than anyone, ever.
+ - I was signed at 19 years old to a major label, and dropped by the time I was 22.
+ - If you look at a lot of the songs I’ve been involved in, there’s always been this retro vibe. I started getting worried that I wasn’t moving forward very much, nor was I even in tune with the music today. I almost scoffed at it.
+ - I idolised bands like Pearl Jam and Smashing Pumpkins, who wanted to reach as many people as they could.
+ - I tried to play bass in a punk band once, and it was an absolute disaster. I can’t play anything. I don’t know what it is.
+ - Even now, when I try and think of band names just randomly, I’m so thankful that ‘fun.’ is the name of the band. I never really think twice about it. It is so simple and so easy.
+ - A lot of times when I’m writing lyrics, I just think about insecurities that I might have and turn them into a scene. Some things may be true, and some things may not.
+ - It’s as simple as finding something on the street and then writing a jingle. If I’m driving and I have my turn signal on and it’s rhythmic, maybe I just write a song to that.
+ - I’m not going to lie. I check the iTunes charts. It’s all about the iTunes charts. I only go on the Internet for the iTunes charts and basketball blogs.
+ - But as long as you’re creating the art you want to create, if people start liking you, you shouldn’t have to apologize. You want your stuff to be heard by as many people as possible.
+ - It’s the coolest part about writing music. I don’t know how other people work, but so much is derived from some amalgamation of all these different songs that I love. That’s why they jump all over the place.
+ - I don’t want to be known for anything other than writing songs.
+ - I prefer to connect with fans from the stage. Like, I don’t have a Twitter page, or anything like that. So for me, that’s what the show is about. For me – is a way to interact with fans; being up onstage and showing them, through music – which is all I really know – the best way to say thank you.
+ - I came from somewhat of a musical family. I had an uncle on Broadway. My dad kind of knows how to play instruments. Although, I always find it annoying when he does play an instrument.
+ - If you can make the song a soundtrack to what you’re living at the time, I think that’s the most important part of a song.
+ - I knew how touring was for 10 years, but it’s completely different now that things are popping off.
+ - It’s important that I get time to run, to just go for a jog for about 30 minutes. It helps with my voice, but it also kind of gives me a little bit of time to myself – and you get to see a city.
+
+31 quotes

@@ -1,0 +1,24 @@
+ - Homeowners who refinanced their mortgages took out cash and reduced their monthly payments at the same time. Much of the cash obtained by refinancing was spent on consumer durables, home improvements and the like.
+ - Increased government spending can provide a temporary stimulus to demand and output but in the longer run higher levels of government spending crowd out private investment or require higher taxes that weaken growth by reducing incentives to save, invest, innovate, and work.
+ - And finally, no matter how good the science gets, there are problems that inevitably depend on judgment, on art, on a feel for financial markets.
+ - Domestic inflation reflects domestic monetary policy.
+ - A second reason why science cannot replace judgement is the behavior of financial markets.
+ - Unless the trade deficit shrinks, the combination of the trade deficit and the interest and dividend payments to foreigners will grow ever more rapidly.
+ - Inflation is lower and more stable and the real business cycle fluctuations are more modest.
+ - In short, both experience and economic theory imply that the US could now t to a more competitive dollar without experiencing either increased inflation or decreased economic growth.
+ - The only way that we can reduce our financial dependence on the inflow of funds from the rest of the world is to reduce our trade deficit.
+ - Thirty years ago, many economists argued that inflation was a kind of minor inconvenience and that the cost of reducing inflation was too high a price to pay. No one would make those arguments today.
+ - But because we in the United States finance our current account deficit by borrowing in our own currency, we can move to a more competitive dollar without the adverse effects that followed currency declines in other countries.
+ - The good news is that a competitive dollar in the global market and a strong dollar at home are compatible in both the long run and during the transition to a more competitive dollar.
+ - After all, an overvalued dollar gives us the ability to buy foreign goods at lower prices. And the existing volume of exports brings more yen and euros than they would if the dollar were more competitive.
+ - So just as I want pilots on the planes that I fly, when it comes to monetary policy, I want to think that there is someone with sound judgement at the controls.
+ - But the primary reason for wanting the dollar to become more competitive in the near future is that we may need an increase in exports this year and in 2007 to sustain the economy’s current pace of expansion.
+ - But then in April of 1985 the dollar began a sharp decline. The dollar’s trade weighted value fell 23 percent in just 12 months and by a total of 37 percent by the beginning of 1988.
+ - Even if the dollar does decline during the coming months, the delays in the response of exports and imports to the more competitive dollar will mean that the increase in aggregate demand from this source may not happen for a year or more.
+ - First, I think the science of monetary economics has clearly gotten better.
+ - Although economists have studied the sensitivity of import and export volumes to changes in the exchange rate, there is still much uncertainty about just how much the dollar must change to bring about any given reduction in our trade deficit.
+ - An increase in the relative price of products from the low wage manufacturers in Asia and Latin America will also make those products less attractive to American consumers.
+ - The more competitive value of the dollar turned around the trade deficit.
+ - We pay some price when necessary to bring down inflation but that price is temporary and is not large relative to the permanent gain from reduced inflation.
+
+22 quotes

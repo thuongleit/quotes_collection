@@ -1,0 +1,30 @@
+ - The first 10 000 shots are the worst.
+ - I hate good taste. It’s the worst thing that can happen to a creative person.
+ - Genius and taste don’t go together.
+ - Photography is 10% inspiration and 90% moving furniture.
+ - Some people’s photography is an art. Not mine. Art is a dirty word in photography. All this fine art crap is killing it already.
+ - My job as a portrait photographer is to seduce, amuse and entertain.
+ - I spend a lot of time preparing. I think a lot about what I want to do. I have prep books, little notebooks in which I write everything down before a sitting. Otherwise I would forget my ideas.
+ - The desire to discover, the desire to move, to capture the flavor, three concepts that describe the art of photography.
+ - Look, I’m not an intellectual – I just take pictures.
+ - It’s that I don’t like white paper backgrounds. A woman does not live in front of white paper. She lives on the street, in a motor car, in a hotel room.
+ - You should feel that, under the right conditions, all women would be available.
+ - My women are always victorious.
+ - I used to hate doing color. I hated transparency film. The way I did color was by not wanting to know what kind of film was in my camera.
+ - In my vocabulary there are two bad words: art and good taste.
+ - The photographs don’t arouse me. All I can think about is the hard work it took to make them.
+ - I was lucky to have my wife as the art director, and it turned out to be quite something – a great success. I’m very proud of it.
+ - There are two dirty words in photography, one is art, the other is good taste.
+ - There must be a certain look of availability in the women I photograph. I think the woman who gives the appearance of being available is sexually much more exciting than a woman who’s completely distant. This sense of availability I find erotic.
+ - Some people’s photography is an art. Mine is not. If they happen to be exhibited in a gallery or a museum, that’s fine. But that’s not why I do them. I’m a gun for hire.
+ - Technically, I have not changed very much. Ask my assistants. They’ll tell you, I am the easiest photographer to work with. I don’t have heavy equipment. I work out of one bag.
+ - It’s quite true that what I am aiming at, even when I take portraits, is to get a scandalous picture. I would love to be a paparazzo.
+ - What I find interesting is working in a society with certain taboos and fashion photography is about that kind of society. To have taboos, then to get around them that is interesting.
+ - I did find a wonderful girl last year, but the photographs that we did were more about motorcars.
+ - I like photographing the people I love, the people I admire, the famous, and especially the infamous. My last infamous subject was the extreme right wing French politician Jean-Marie Le Pen.
+ - In the photographs themselves there’s a definite contrast between the figures and the location – I like that kind of California backyard look; clapboard houses, staircases outdoors.
+ - The point of my photography has always been to challenge myself, to go a little further than my Germanic discipline and Teutonic nature would traditionally permit me to.
+ - They often ask me to shoot for them. But I say no. I think an old guy like me ought not take pages away from young photographers who need the exposure.
+ - It began when I was so ill that there was a good chance of dying. I promised myself that if I survived I would never again pander to a magazine’s requests or follow the ideas of art directors. I would only make images which were personal, which arose out of my own life.
+
+28 quotes

@@ -1,0 +1,25 @@
+ - At the end of the day, give up your worries and give thanks for the journey.
+ - The theater was my first training ground. It taught me discipline, dedication and appreciation of hard work.
+ - If we plant the right seeds, tomorrow will be better. If you put out good things, then you’ll get good things back. That’s part of our responsibility as entertainers.
+ - Sometimes we look for those thunderous things to happen in our life for our lives to change or go in the other direction. We seek the miracle. We seek the parting of the seas, the moving of the mountains. But no, its a quiet thing. At least for me it was.
+ - I had a teacher, he was 86 years old and his name was Luigi in New York City, and he said, ‘Never stop moving. You get to reinvent yourself.’ So you have to find ways to reinventing yourself. Especially today, because it’s a whole different market – social media is so important.
+ - Our creator says, ‘Here’s your birth and here’s your death’ – and the rest are the things you learn on your journey. This was my experience – and the choice is, I can lay in the misery, or choose to learn from it and move on.
+ - I love sharing my story. It’s endlessly healing.
+ - So be encouraged and dedicate yourself to your dream and if your dream should come my way one day then we will dance upon the boards of life.
+ - The death of my daughter is a subject I talk about briefly because there is nothing more tragic.
+ - You’ve got to make haste while it’s still light of day. My godmother used to say, I don’t want to rust out, I just want to work out. If you stand still long enough, people will throw dirt on you.
+ - I coach young people. I have a group called BTP – Broadway Theatre Project.
+ - When people come and see my show, I try to infuse into them that they can walk away feeling like their lives are a victory.
+ - Nine years after I had my own accident, I find that in trying to go back to doing those things that I used to do just doesn’t fit. Everything seems to just fall apart. I don’t know why but I think it is because I am this new creature.
+ - People talk about love and it seems like a cliche but it’s a real thing – the more love we spread around the world the more it’s going to change lives.
+ - The stage sharpened my creative instrument and encouraged me to go deeper and try new things.
+ - Live stage is being made as you go along. You feel the energy. There’s nothing like a live audience.
+ - I want to show people what the possibilities are if you take care of yourself and do the right thing.
+ - I go to my grandchildren. They keep their grandpa informed on what’s going on.
+ - Everyone I’ve worked with has been good. You learn from the good, what’s good, and you learn from the bad what not to do.
+ - I used to dance, but now I only move.
+ - I didn’t know who Langston Hughes was till he met me backstage.
+ - You’ve got to make haste while it’s still light of day.
+ - As I laid in the hospital bed I started thinking that I had a show to do. I was hoping the Doctor would put me together so I could do the show.
+
+23 quotes

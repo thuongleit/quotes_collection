@@ -1,0 +1,131 @@
+ - Never give up on something you really want. However impossible things seem, there’s always a way.
+ - Women need chocolate. It’s a scientific fact.
+ - My life has changed, and I’m changing with it.
+ - A real relationship is two-way.
+ - There’s no luck in business. There’s only drive, determination, and more drive.
+ - Suddenly I’ve had enough of all this. I’ve had enough of being made to feel insecure and paranoid and wondering what’s going on.
+ - Lover? I don’t know. I don’t know if she loves me. I don’t know if I love her. All I can say is, she’s the one I think about. All the time. She’s the voice I want to hear. She’s the face I hope to see.
+ - Don’t beat yourself up for not knowing the answers. You don’t always have to know who you are. You don’t have to have the big picture, or know where you’re heading. Sometimes, it’s enough just to know what you’re going to do next.
+ - If I’ve learned one lesson from all that’s happened to me, it’s that there is no such thing as the biggest mistake of your existence. There’s no such thing as ruining your life. Life’s a pretty resilient thing, it turns out.
+ - Everyone’s moving on without me, into a world I don’t understand.
+ - I’m blushing at my own stupid, nonsensical, meaningless thought process, which, by the way, nobody knows about except me.
+ - If you look good, you feel good!
+ - If you can’t be honest with your friends and colleagues and loved ones, then what is life all about?
+ - I love new clothes. If everyone could just wear new clothes everyday, I reckon depression wouldn’t exist anymore.
+ - There’s no such thing as ruining your life. Life’s a pretty resilient thing, it turns out.
+ - You can’t just switch off your feelings because the other person did.
+ - Darling, when things go wrong in life, you lift your chin, put on a ravishing smile, mix yourself a little cocktail...
+ - Everyone knows revenge is a dish best served when you’ve had enough time to build up enough vitriol and fury.
+ - We’re all confused, Samantha. We all need more time to think. That’s life. Get over it.
+ - Some things are best left a blur. Births and Visa Bills.
+ - Ok. don’t panic. Don’t panic. It’s only a VISA bill. It’s a piece of paper; a few numbers. I mean, just how scary can a few numbers be?
+ - That’s the trouble with having the whole world love you. One day, you wake up and it’s flirting with your best friend instead. And you don’t know what to do. You’re thrown.
+ - Life is like an escalator. You see, it carries you on regardless. And you might as well enjoy the view and seize every opportunity while you’re passing. Otherwise, it’ll be too late.
+ - I’ve always had this deep-down conviction that I’m not like everybody else, and there’s an amazingly exciting new life waiting for me just around the corner.
+ - Still, that’s the point of love; you love someone despite their flaws.
+ - There’s nothing like your mother’s sympathetic voice to make you want to burst into tears.
+ - It’s not enough to believe! Don’t you see that, you stupid girl? You could spend your whole life hoping and believing! If a love affair is one-sided, then it’s only ever a question, never an answer. You can’t live your life waiting for an answer.
+ - Emma, I’m sorry, I can’t help you. This is a disaster. You’re completely vulnerable. It’s like going into battle in a nightie.
+ - Life’s too short for minimalism.
+ - If you want something you can’t afford, think what else that money could buy: a week’s groceries, a month’s rent, or a weekend away. That will put things into perspective.
+ - This is what happens. You tell your friends your most personal secrets, and they use them against you.
+ - Shopping with friends is a great way of still enjoying the thrill of the chase without having to make a purchase. It can also be a real bonding opportunity. Helping your friend find something nice is just as rewarding as helping yourself.
+ - It’s like I’m thirteen again and he’s my crush. All I’m aware of in this entire roomful of people is him. Where he is, what he’s doing, who he’s talking to.
+ - They said I was a valued customer, now they send me hate mail.
+ - Rule of life. If you bother to ask someone’s advice, then bother to listen to it.
+ - I always thought ‘chick lit’ meant third-person contemporary funny novels, dealing with issues of the day. I mean, it’s not the ideal term; when I’m asked to describe what I do, I say I write romantic comedies, cause that’s what I feel they are. But I’m quite pragmatic.
+ - You don’t always have to know who you are. Sometimes, it’s enough just to know what to do next.
+ - The worst thing a girl can do is trail after a boy when a love affair is dead.
+ - But sometimes you have to be brave. Sometimes you have to show people what’s important in life.
+ - Honestly, shopping beats therapy, anytime. It costs the same and you get a dress out of it.
+ - Visiting any shop for the first time is exciting. There’s always that buzz as you push open the door; that hope; that belief – that this is going to be the shop of all shops, which will bring you everything you ever wanted, at magically low prices.
+ - It’s just the way things are. And you can’t dwell on what might have been. You have to look at what is.
+ - In the end, you have to choose whether or not to trust someone.
+ - I can see the warmth. He’s falling for me.
+ - I can’t cook. I don’t have the right brain for it, somehow. I can’t walk into a room and tidy it up. I get distracted. I pick up one thing and I start looking at it. And my cooking is truly heinous.
+ - Philosophy wasn’t about facts, it was about ideas. My first essay title was something like: ‘How can you know what other people are thinking?’ I thought, ‘Wow, what an amazing thing.’ I really thought deeply for the first time.
+ - Don’t think about it. Don’t think about what could have been. It’s too unbearable.
+ - The thing about lying to your parents is, you have to do it to protect them. It’s for their own good.
+ - I’m sitting at the dinner table, wearing my future mother-in-law’s underwear. It’s like some twisted dream that you wake up and thinkL Crikey Moses! Thank God that didn’t really happen!
+ - I can’t get over this. Dad isn’t Sam’s dad? Dad is a friend? How was I supposed to know that? People shouldn’t be allowed to sign themselves as Dad unless they are your dad. It should be the law.
+ - All this time, I wasn’t hungry for success, I was hungry.
+ - I’ve never felt so bereft and panicky. What do I do without my phone? How do I function? My hand keeps automatically reaching for my phone in its usual place in my pocket. Every instinct in me wants to text someone, ‘OMG, I’ve lost my phone! ’ but how can do that without a bloody phone?
+ - I mean, when I think about it, what’s more important? Clothes – or the miracle of new life?
+ - Relationships are all about trust and equality. If one person shares, then the other person should share, too.
+ - We’re on this planet for too short a time. And at the end of the day, what’s more important? Knowing that a few meaningless figures balanced – or knowing that you were the person you wanted to be?
+ - You never know how things are going to turn out, however much you plan. But you already know that.
+ - There are moments in life that the white-chocolate Magnum ice cream was invented for, and this is one of them.
+ - I’m allergic to family occasions. Sometimes I think we’d do better as dandelion seeds-no family, no history, just floating off into the world, each on our own piece of fluff.
+ - When I’m on a break from writing, I’ll log on to Amazon and eBay. The doorbell is constantly being rung by deliverymen.
+ - Once you’ve started cheating, does it really matter what your methods are?
+ - I did a lot of shopping for her in Tokyo because the colors here are very conservative. A shopaholic would have a coat in every color and lots of accessories.
+ - No human on God’s earth is a nobody.
+ - People used to ask me for advice, and I’d say, ‘Please, don’t ask me!’ Yes, I did economics at Oxford, but that’s not the same as having a broad knowledge of personal finance.
+ - My real name is Madeleine Wickham, under which I write dramas with an edge of humour. As Sophie Kinsella its fast, all-out comedies, such as the Shopaholic series.
+ - My childhood was spent embracing one literary heroine after another. I identified passionately with each one and would slavishly imitate them.
+ - I love all my characters. I love their weaknesses and flaws. I feel like they’re all my best friends and I adore being with them.
+ - Jeez Louise. I know why rich people are so thin: it’s from trekking around their humongous houses the whole time.
+ - Oh, please. If she’s going to use Mr. Darcy to prop up her arguments, I give up.
+ - Christmas shopping! I can do all my Christmas shopping here! I know March is a bit early, but why not be organized? And then when Christmas arrives I won’t have to go near the horrible Christmas crowds.
+ - I had gone to Oxford to read music. I had done music all my life, but when I got to college I didn’t want to do it anymore.
+ - I’m lying. I don’t just need someone like you. I need you.
+ - Why didn’t I buy a new phone earlier? Why don’t I always walk around with a spare phone? It should be the law, like having a spare tire.
+ - Every time I mention her, Magnus says, “Are you two getting along?” in raised, hopeful tones, like we’re endangered pandas who need to make a baby.
+ - The way I write is totally instinctive. I just write what I feel or what I find funny – and hope everyone else agrees.
+ - Everyone keeps saying I’ll pick it up. But what if I don’t? I did algebra for three years, and I never picked that up.
+ - Shopping is actually very similar to farming a field. You can’t keep buying the same thing, you have to have a bit of variety. Otherwise you get bored and stop enjoying yourself.
+ - Why can’t parents dance? Is it some universal law of physics or something?
+ - I’m a great fan of taking my laptop out and about.
+ - He so did not sit down and have a proper talk with her. I know it. He probably sent her a brief text, saying, Over. Sam.
+ - Everyone knows the first rule of business is “Look good during confrontations.” Or if it isn’t, it should be.
+ - I know what it’s like to squander all your hours and all your tears and all your heart on something which turns out to be nothing. Don’t waste your time.
+ - People who want to make a million borrow a million first.
+ - I chose to publish the first ‘Shopaholic’ book under a pseudonym because I wanted it to be judged on its own merits.
+ - Obviously this is engagement ring city. Couples are wandering along and girls are pointing through the windows and the men are smiling but all look slightly sick whenever their girlfriends turn away.
+ - I once tried to give him a friendly little “drugs chat”. He politely corrected me on every single fact, then said he’d noticed I drank above the recommended guidelines of Red Bull and did I think I might have an addiction? That was the last time I tried to act like the older sister.
+ - I’d probably still be a financial journalist now if it weren’t for writing novels. Mmm. Fun! I’m much happier writing novels!
+ - If I behave as though this is a completely normal situation, then maybe it will be...
+ - Being a journalist is good if you want to write books: it teaches you to get beyond the blank screen. My books have been described as froth, but there’s scope to be witty and ironic about everything in life.
+ - Honestly, it’s so easy to get what you want from people if they think you’re a psycho.
+ - Great. Just great. One glimpse of his body and I have a full-blown crush. I honestly thought I was a bit deeper than that.
+ - The great thing about being a novelist is that you organize your own day.
+ - I adore all Agatha Christie’s books and turn to them whenever I’m ill or need cheering up.
+ - Whoever it was, whether I knew them or not, if I could help in some way, I would. I mean, if you can help, you have to help. Don’t you think? – Poppy Wyatt.
+ - Sometimes, when I can’t get to sleep, I imagine all the rules I’d invent if I ever got to be in charge of the world.
+ - I’m an impulse buyer. I don’t really go out with a list.
+ - I know this is our honeymoon. But just sometimes, I wish Luke was a girl.
+ - Maybe my identity’s been stolen. Or maybe I was sleep-shopping!
+ - The thing with giving up is you never know. You never know whether you could have done the job. And I’m sick of not knowing about my life.
+ - Youth is still where you left it, and that’s where it should stay. Anything that was worth taking on life’s journey, you’ll already have taken with you.
+ - So I buy it. The most perfect little cardigan in the world. People will call me the Girl in the Gray Cardigan. I’ll be able to live in it. Really, it’s an investment.
+ - Why on earth declutter when you can just shrinkwrap?
+ - The truth is, some relationships are supposed to last forever, and some are only supposed to last a few days. That’s the way life is.
+ - I think a lot of people still fantasise about that first love and what might happen if they rekindled the relationship.
+ - If my writing comes to a halt, I head to the shops: I find them very inspirational. And if I get into real trouble with my plot, I go out for a pizza with my husband.
+ - If your life’s at a juncture and you need to think about things, there’s nowhere better than home. However old you are.
+ - Life would be a lot easier if conversations were rewindable and erasable, like videos. Or if you could instruct people to disregard what you just said, like in a courtroom.
+ - I am not a label snob and have learned that the thrill of shopping can be just as great, if not more so, when you find a bargain.
+ - Wow. I’ve never been a VIP before. I’ve never even been a IP.
+ - Our whole family thrives under pressure. It’s like our family motto or something. Apart from my brother Peter, of course. He had a nervous break down. But the rest of us.
+ - I’ve never written a children’s book, but when people meet me for the first time and I say I write books, they invariably reply, ‘Children’s books?’ Maybe it’s something about my face.
+ - I change my mind so much, I’m better going on my own. Shopping is a selfish activity anyway.
+ - A divorce is like a controlled explosion. Everyone on the outside is OK.
+ - Every instinct in me wants to text someone OMG, I’ve lost my phone! but how can I do that without a bloody phone?
+ - I bet he never goes on YouTube. He’s too busy. It’s only tragic cases like you and me who are always online.
+ - Oh, this shouldn’t be allowed. There should be a rule which says that people you’ve met in the gym should never meet you in real life.
+ - To have someone who never makes a mistake, never finds her personal life in disarray, never worries about work-life balance? I think that would be unreal. What Im writing is real.
+ - There’s genuine pain in Eric’s eyes. And I feel a stab of guilt. But you can’t stay with people because of guilt.
+ - And maybe now you’ll start treating everybody with respect. Not just the people you think are important.
+ - This is what’s so annoying about going out with Luke. You can’t get away with anything.
+ - You won’t let me buy any clothes. Now you won’t let me buy a road map, either! I need to spend some money or I’m going to go crazy!
+ - Our eyes met in the math class. How were we to know that trigonometry would lead to matrimony?
+ - A mistake isn’t a mistake unless it can’t be put right.
+ - If it’s in the bin, it’s public property.
+ - Look into your heart- and go after what you really want.
+ - But you can’t stay with people because of guilt. Or because they can drive a speedboat.
+ - My voice is clotted with unshed tears.
+ - You’re working for me cut out the attitude.
+ - It was in the forest. No one saw it or heard it. So did it actually happen?
+ - We all fail to appreciate each day just how much we already possess. Light, air, freedom, the companionship of friends.
+
+129 quotes

@@ -1,0 +1,26 @@
+ - I hate that word – “lucky.” It cheapens a lot of hard work. Living in Brooklyn in an apartment without any heat and paying for dinner at the bodega with dimes – I don’t think I felt myself lucky back then. Doing plays for 50 bucks and trying to be true to myself as an artist and turning down commercials where they wanted a leprechaun. Saying I was lucky negates the hard work I put in and spits on that guy who’s freezing his ass off back in Brooklyn. So I won’t say I’m lucky. I’m fortunate enough to find or attract very talented people. For some reason I found them, and they found me.
+ - I waited a long time out in the world before I gave myself permission to fail. Please don’t even bother asking. Don’t bother telling the world you are ready. Show it. Do it.
+ - I hate that word – ‘lucky.’ It cheapens a lot of hard work.
+ - I love animals. All animals. I wouldn’t hurt a cat or a dog – or a chicken, or a cow. And I wouldn’t ask someone else to hurt them for me. That’s why I’m a vegetarian.
+ - I spend my nights just sitting and reading a book and drinking my tea and walking my dog. That’s about as exciting as my life gets.
+ - Saying I was lucky negates the hard work I put in and spits on that guy who’s freezing his ass off back in Brooklyn.
+ - So I won’t say I’m lucky. I’m fortunate enough to find or attract very talented people. For some reason I found them, and they found me.
+ - George Martin is an incredible writer.
+ - I don’t socialize. I’m kind of a hermit. The life of an actor can be very lonely.
+ - Bad guys are complicated characters. It’s always fun to play them. You get away with a lot more. You don’t have a heroic code you have to live by.
+ - I was opposed to doing TV for a long time because I thought the quality of writing wasn’t very strong, as opposed to film, but there’s been a shift in term of the quality of scripts. HBO has attracted a tremendous amount of great writing talent.
+ - You can say no. You can not be the object of ridicule.
+ - That’s one of the things about theater vs. film – with theater, actors have a little more control, and one of the disappointing things about films is that once you’re done shooting, anything can happen, you know?
+ - Maybe everyone is a little too reassuring that things are going to be OK to college graduates. It gives them a false sort of security.
+ - I love working with the same actors repeatedly. That happens a lot. It’s kind of inevitable, especially if you work with the same writers and directors and you start to form a company of actors. You gravitate towards each other.
+ - I like playing the guy on the sidelines. They have more fun.
+ - I think if actors are successful at one thing, they paint themselves into a corner sometimes, and what’s the fun in that?
+ - My family had a habit of collecting creatures that didn’t always want to be pets. The first animal I can remember was a Lab named Zoe.
+ - I think a lot of great male comic actors are introspective, quiet personalities, which I really admire. But they are really able to turn it up when the camera’s on.
+ - I dress and eat like a fifth-grader, basically. I like sandwiches and cereal and hooded sweatshirts.
+ - Animals on factory farms all face pain and fear, just like the animals we share our homes with, yet are repeatedly abused in shocking ways.
+ - I was fortunate enough to have an upbringing that made me more accepting of who I am.
+ - I never lived in an abandoned railroad station.
+ - Being on television, playing the same character for many years, for me, I think that would get a little tedious.
+
+24 quotes

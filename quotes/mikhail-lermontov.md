@@ -1,0 +1,33 @@
+ - I was ready to love the whole world, but no one understood me, and I learned to hate.
+ - Many a calm river begins as a turbulent waterfall, yet none hurtles and foams all the way to the sea.
+ - What of it? If I die, I die. It will be no great loss to the world, and I am thoroughly bored with life. I am like a man yawning at a ball; the only reason he does not go home to bed is that his carriage has not arrived yet.
+ - It is sad to see a young man’s fondest hopes and dreams shattered when the rose-colured veil is plucked away and he sees the actions and feelings of men for what they are. But he still has the hope of replacing his old illusions with others, just as fleeting, but also just as sweet.
+ - We survive on novelty, so much less demanding than commitment.
+ - Love, like fire, goes out without fuel.
+ - Afraid of decision, I buried my finer feelings in the depths of my heart and they died there.
+ - My whole life has been merely a succession of miserable and unsuccessful denials of feelings or reason.
+ - I am like a mariner born and bred on board a buccaneer brig whose soul has become so inured to storm and strife that if cast ashore he would weary and languish no matter how alluring the shady groves and how bright the gentle sun.
+ - An unusual beginning must have an unusual end.
+ - Out of life’s storm I carried only a few ideas – and not one feeling.
+ - If only people thought a little more about it, they would see that life is not worrying about so much.
+ - We almost always forgive those we understand.
+ - Happiness comes the way the wind blows.
+ - In people’s eyes I readPages of malice and sin.
+ - Evil spawns evil. The first experience of torture gives an understanding of the pleasure in tormenting others.
+ - Women love only those whom they do not know!
+ - One should never spurn a penitent criminal: in his despair he may become twice as much a criminal as before.
+ - I have a congenital desire to contradict; my whole life is merely a chain of sad and unsuccessful contradictions to heart and mind. When faced with enthusiasm, I am seized by a midwinter freeze, and I suppose that frequent dealings with sluggish phlegmatics would have made a passionate dreamer.
+ - In simple hearts the feeling for the beauty and grandeur of nature is a hundred-fold stronger and more vivid than in us, ecstatic composers of narratives in words and on paper.
+ - Passions are merely ideas in their initial stage.
+ - O vanity! you are the lever by means of which Archimedes wished to lift the earth!
+ - Russian ladies, for the most part, cherish only Platonic love, without mingling any thought of matrimony with it; and Platonic love is exceedingly embarrassing.
+ - A strange thing, the human heart in general, and woman’s heart in particular.
+ - No good ever becomes of a man who forgets an old friend.
+ - Of two friends, one is always the slave of the other, although frequently neither acknowledges the fact to himself.
+ - When we retire from the conventions of society and draw close to nature, we involuntarily become children: each attribute acquired by experience falls away from the soul, which becomes anew such as it was once and will surely be again.
+ - And I, as I lived, in an alien landWill die a slave and an orphan.
+ - Anyone who has chanced like me to roam through desolate mountains and studied at length their fantastic shapes and drunk the invigorating air of their valleys can understand why I wish to describe and depict these magic scenes for others.
+ - Happy people are ignoramuses and glory is nothing else but success, and to achieve it one only has to be cunning.
+ - I was born, so that the whole world could be a spectatorOf my triumph or my doom...
+
+31 quotes

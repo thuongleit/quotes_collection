@@ -1,0 +1,40 @@
+ - I love my teammates, and I’ll do anything for them.
+ - I wasn’t playing mind games with anybody, I just said what I said. I am responsible for it, but I wish everybody would fall asleep for that one and let me go out there and do my thing.
+ - All I can say is, I will put my heart and soul into helping the Red Sox win.
+ - My brother never got an opportunity to throw a pitch, and I didn’t want the same thing to happen to another young kid.
+ - If I wanted to pitch that bad, I probably would. But I don’t think I’m in that stage.
+ - If the shortstop makes an error, I am responsible. I let the batter hit the ball.
+ - Every time I feel mad or something, I run somewhere. It gets my frustrations away. I run and run and run.
+ - The bigger the contract, the bigger the responsibility.
+ - If you want to follow some good steps, it would Proverbs, all over.
+ - I just try to do what I have to do and let the people out there do what they have to do, which is have fun, scream, yell and jump around. I try to do what I have to do, which is play baseball, and I can only play in that piece of area there, so that’s what I try to do.
+ - Whether you like it or not, the last few years I’d be the first one to tell you I haven’t been the Pedro Martinez that I’m used to being.
+ - I believe that if you’re healthy, you’re capable of doing everything. There’s no one else who can give you health but God, and by being healthy I believe that God is listening to me.
+ - I want to feel secure personally. Have a competitive team out there – I really want to win; I hate losing – and, I guess, I want to be treated like a normal person.
+ - I’m not in the big leagues just because I’m cute.
+ - Before, if I wasn’t in baseball, I wanted to become a doctor.
+ - I understand business and understand the ugly face of baseball, which is the business part of baseball.
+ - There was always something missing in Montreal.
+ - I keep active because I have not announced my retirement, because that is something that takes time and you have to plan it. Plus, it is something that the Dominican people expected.
+ - You can’t have a family when you’re playing because you’re away from home so much. So believe me, I won’t be pitching forever. I won’t make it to 300 wins or anything like that. No way.
+ - I’m open to play for anybody that would give me respect, treat me the right way, and actually going to make me feel comfortable.
+ - I believe I have a responsibility that goes along with the money I make. I can help a lot of people.
+ - Baseball is a game of the soul.
+ - Some of the things I’ve done are really special.
+ - I do miss competing, being out there – the atmosphere, I do miss it.
+ - Actually the adrenaline of the game will probably help me out a little bit to regain command and concentration about the things that I have to do.
+ - My first ball I ever got from a Big League player I actually got to purchase in Dodger Stadium in a silent auction, was Reggie Jackson.
+ - I’m thankful for not ever taking anything illegal.
+ - I had the opportunity to go with some other teams. But I didn’t consider those teams to be contenders, and I was right.
+ - I enjoy every bit of baseball I can get.
+ - Georgie Porgie, he might buy the whole league, but he doesn’t have enough money to buy fear to put in my heart.
+ - None of the teams that actually probably were offering me a job from the getgo, actually in spring training, are in the playoffs right now.
+ - Because I want to have my arm in good shape, I need to have my legs in good shape. Without a leg, there is no arm.
+ - I get a lot of kids distracted. Sometimes they got to go cover left field, but they’re over here talking to me, getting an autograph.
+ - I doubt that I will get involved with politics. That’s something I don’t have in me.
+ - Some other things I don’t miss: the media and the pressure of just being asked to do, and being asked questions every day.
+ - When I go to the plate, I think about putting the ball in play. It’s important to get on base and get some walks, but I don’t go to the plate thinking of walking.
+ - I like the challenge. I do not like the attention.
+ - We grew up poor, very poor, but I am very proud of where I come from.
+
+38 quotes

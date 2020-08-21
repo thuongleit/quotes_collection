@@ -1,0 +1,67 @@
+ - Journalism combines adventure with culture.
+ - True power does not need arrogance, a long beard and a barking voice. True power strangles you with silk ribbons, charm and intelligence.
+ - The moment you give up your principles, and your values, you are dead, your culture is dead, your civilization is dead. Period.
+ - Europe is no longer Europe, it is Eurabia, a colony of Islam, where the Islamic invasion does not proceed only in a physical sense, but also in a mental and cultural sense.
+ - Listening to someone talk isn’t at all like listening to their words played over on a machine. What you hear when you have a face before you is never what you hear when you have before you a winding tape.
+ - Physical courage is a great test.
+ - There are three points of view to everything – mine, yours, and the truth.
+ - I am an atheist, and if an atheist and a pope think the same things, there must be something true. There must be some human truth that is beyond religion.
+ - Arafat contradicts himself every five minutes. He always plays the double-cross, lies even if you ask him what time it is.
+ - Glory is a heavy burden, a murdering poison, and to bear it is an art. And to have that art is rare.
+ - Objectivity does not exist. The word is a hypocrisy which is sustained by the lie that the truth stays in the middle. No, sir: Sometimes truth stays on one side only.
+ - You cannot survive if you do not know the past.
+ - Sometimes the dead are more alive than the living. And they can kill the living.
+ - Is it right to shoot the poor prostitute or a woman who is unfaithful to her husband, or a man who loves another man?
+ - I don’t even know if I will be around next year. My cancers are so bad that I think I’ve arrived at the end of the road. What a pity. I would like to live not only because I love life so much, but because I’d like to see the result of the trial. I do think I will be found guilty.
+ - You belong neither to God nor the state nor me. You belong to yourself and no one else.
+ - Khomeini was not a puppet like Arafat or Qaddafi or the many other dictators I met in the Islamic world. He was a sort of Pope, a sort of king – a real leader.
+ - There are moments in Life when keeping silent becomes a fault, and speaking an obligation. A civic duty, a moral challenge, a categorical imperative from which we cannot escape.
+ - Love isn’t putting chain on someone who wants to struggle and is ready to die for it, love is letting him die in the way he’s chosen.
+ - What’s the point anyway – Of suffering, dying? It teaches us to live, boy. A man who does not struggle does not live, he survives.
+ - To have realized your dream makes you feel lost.
+ - This Islam business kidnapped me.
+ - To be good or bad doesn’t count: life out in this world doesn’t depend on that. It depends on a relation of forces based on violence. And survival is violence. You’ll wear leather shoes because someone has killed a cow and skinned it to make leather.
+ - If a man is a man and not a sheep in the flock, he has a survival instinct in him that leads him to fight even if he realizes he’s fighting in vain, even if he knows he will lose...
+ - Instead of learned young people we have donkeys with University degrees. Instead of future leaders we have mollusks with expensive blue jeans and phony revolutionaries with ski masks. And do you know what? Maybe this is another reason why our Moslem invaders have such an easy game.
+ - With our progress we have destroyed our only weapon against tedium: that rare weakness we call imagination.
+ - Life is such an effort, Child. It’s a war that is renewed each day, and its moments of joy are brief parentheses for which you pay a cruel price.
+ - But here’s what I’ve learned in this war, in this country, in this city: to love the miracle of having been born.
+ - I am a danger to myself if I get angry.
+ - I am known for a life spent in the struggle for freedom, and freedom includes the freedom of religion.
+ - I have reached the conclusion that those who have physical courage also have moral courage. Physical courage is a great test.
+ - You wear yourself out in the pursuit of wealth or love or freedom, you do everything to gain some right, and once it’s gained you take no pleasure in it.
+ - Have you ever thought that war is a madhouse and that everyone in the war is a patient?
+ - The Muslims refuse our culture and try to impose their culture on us. I reject them, and this is not only my duty toward my culture-it is toward my values, my principles, my civilization.
+ - America is God equals America equals Business equals America equals God.
+ - I don’t want to hear about my death.
+ - If you put a pistol against my head and ask which I think is worse, Muslims or Mexicans, I’d have to think a moment, then I’d say the Muslims because they’ve broken my balls.
+ - I have never met a man more shy than Clark Gable. He was so shy, you couldn’t make him talk.
+ - I cry, sometimes, because I’m not 20 years younger, and I’m not healthy. But if I were, I would even sacrifice my writing to enter politics.
+ - How do you dare to ask me for a solution? It’s like asking Seneca for a solution. You remember what he did? He committed suicide!
+ - I’ve found what I was looking for, Child: what people call love between a man and a woman is a season. And if, at its flowering, this season is a feast of greenery, at its waning, it’s only a heap of rotting leaves.
+ - America’s a hard school, I know, but hard schools make excellent graduates.
+ - I was a little girl fighting as a partisan against Nazi-Fascism.
+ - No matter what system you live under, there is no escaping the law that it’s always the strongest, the cruellest, the least generous who win.
+ - I find it shameful that in nearly all the universities of Europe, Palestinian students sponsor and nurture anti-Semitism.
+ - Why do the people humiliate themselves by voting? I didn’t vote because I have dignity. If I had closed my nose and voted for one of them, I would spit on my own face.
+ - The more democratic and open a society is, the more it’s exposed to terrorism. The more a country is free, not governed by a police regime, the more it risks hijackings or massacres like the ones that took place for many years in Italy and Germany and other parts of Europe.
+ - I always introduce myself as an encyclopedia of defects which I do not deny. Why should I? It took me a whole life to build myself as I am.
+ - I feel less alone when I read the books of Ratzinger.
+ - I have always looked on disobedience toward the oppressive as the only way to use the miracle of having been born.
+ - I’ll parade with those who are alone like me. They exist. They are very few, but they exist. I’ll find them.
+ - Listen: if I am a painter and I do your portrait, have I or haven’t I the right to paint you as I want?
+ - I am disgusted by the anti-Semitism of many Italians, of many Europeans.
+ - You cannot govern, you cannot administrate, with an ignoramus.
+ - I know ours is a world made by men for men, their dictatorship is so ancient it even extends to language.
+ - I defend Israel’s right to exist, to defend themselves, to not let themselves be exterminated a second time.
+ - I didn’t want to kill a man. I’m not capable of killing a man. I wanted to kill a tyrant.
+ - America’s vulnerability comes precisely from its strength, its wealth, its power and its modernity. It’s the usual story of the dog chasing its own tail.
+ - Whether it comes from a despotic sovereign or an elected president, from a murderous general or a beloved leader, I see power as an inhuman and hateful phenomenon.
+ - When my father was arrested, we didn’t know where they had him. My mother found him at the house of torture. It was called Villa Triste.
+ - The increased presence of Muslims in Italy and in Europe is directly proportional to our loss of freedom.
+ - We are an age without leaders. We stopped having leaders at the end of the 20th century.
+ - Wojtyla was a warrior, who did more to end the Soviet Union than even America.
+ - War is something Arafat sends others to do for him. That is, the poor souls who believe in him. This pompous incompetent caused the failure of the Camp David negotiations, Clinton’s mediation.
+ - I have expressed my opinion through the written word through my books, that is all.
+
+65 quotes

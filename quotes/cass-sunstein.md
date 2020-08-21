@@ -1,0 +1,57 @@
+ - I think it’s a very firm part of human nature that if you surround yourself with like-minded people, you’ll end up thinking more extreme versions of what you thought before.
+ - There is no liberty without dependency. That is why we should celebrate tax day.
+ - Once we know that people are human and have some Homer Simpson in them, then there’s a lot that can be done to manipulate them.
+ - I think it may be that the fans of your least-favorite political candidate, whoever it is, are much more likable and light-side types than you might think going in. One way to reach them is to talk about Star Wars.
+ - It is even possible that desirable redistribution is more likely to occur through climate change policy than otherwise, or to be accomplished more effectively through climate policy than through direct foreign aid.
+ - It’s very common to say that Star Wars in the late ’70s, that was kind of perfect for Cold War culture and the aftermath of Vietnam in the ’60s to have an upbeat, hopeful, cartoonish tale of a hero’s journey. I think those explanations are easy to offer and almost always wrong.
+ - Sunstein said government agents ‘might enter chat rooms, online social networks, or even real-space groups and attempt to undermine percolating conspiracy theories by raising doubts about their factual premises, causal logic or implications for political action,’
+ - Presumed consent preserves freedom of choice, but it is different from explicit consent because it shifts the default rule. Under this policy, all citizens would be presumed to be consenting donors, but they would have the opportunity to register their unwillingness to donate.
+ - I love The Matrix, especially the first one.
+ - Most problems are best solved privately, not through government. There’s a problem of discourtesy in the world, which is best handled through social norms, which are indispensable. But you wouldn’t want the government to be mandating courtesy.
+ - I dealt with people with diverse political views. If you find people who are your political opponents, and talk to them for an hour, chances are you’re going to like them, and they’re not full of hate.
+ - I’ll tell you an explanation that I find commonly overrated and speculative in the extreme: the idea that things that succeed in popular culture do that because they hit the temper of the times.
+ - I am proud to say that the Federalist Society was founded in part at the University of Chicago, and one of its best characteristics has been an attack on liberal shibboleths by looking at real consequences and specific problems and by asking what law actually does.
+ - If Star Wars had been released in the late ’60s, or late ’80s, or late ’90s, adjusting for technology, it fits spectacularly well.
+ - We might have new issues involving information technology for example, or new questions arising out of the war on terror, or new issues arising from natural disasters that can’t be anticipated.
+ - There is no proportional representation requirement in the Equal Protection Clause.
+ - Those who believe in climate change, as I do, I think it’s also fair to say that they are more receptive to confirming evidence than disconfirming evidence. They happen to be right, but their motivations are in play also.
+ - We ought to ban hunting, I suggest, if there isn’t a purpose other than sport and fun. That should be against the law. It’s time now.
+ - Game Of Thrones is arguably the hottest thing on television.
+ - A program that saves young people produces more welfare than one that saves old people.
+ - I started to read as obsessively about Star Wars as I once did about Kant – and still do about behavioral economics and behavioral psychology.
+ - So, I subscribe to the following reading: Star Wars is an essentially Christian tale.
+ - A system of limitless individual choices, with respect to communications, is not necessarily in the interest of citizenship and self-government.
+ - As a matter of history, the Fourteenth Amendment was not understood to ban segregation on the basis of race.
+ - I think a lot of the Trump supporters think that the job situation is not good.
+ - The idea that Taylor Swift would become the giant pop icon of 2015, 2016 – she’s really good, but I don’t think it’s written in the stars.
+ - The middle class is not doing well, and trade policy might have something to do with that, and so someone who is going to be fixated on those things, who has a business background, has some appeal.
+ - How do things, whether they are movies, or plays, Hamilton, or people, ideas – how do they become transformative or iconic? That is in some ways what the actual Star Wars saga gets at, with the tale of the rise and the fall of the empire and the rise and the fall of Republics.
+ - I’m interested in how the Internet spreads information.
+ - Almost all gun control legislation is constitutionally fine. And if the court is right, then fundamentalism does not justify the view that the Second Amendment protects an individual right to bear arms.
+ - If you have a regulation that’s going to save hundreds of thousands of lives annually and not cost very much, that sounds like a very good idea.
+ - This is a very, very conservative judge who in his dissenting opinions is overwhelmingly likely to be more conservative than the majority.
+ - We often see a temper of the times connection, and it’s just like a fairy tale. It’s not true.
+ - There are some lawyers who think of themselves as basically instruments of whoever their clients are, and they pride themselves on their professional craft.
+ - I would reject the distinction between a Keynesian moment and a behavioral moment.
+ - A lot of people are focused on climate change as a defining challenge of our time. A lot of people think it is a non-problem, at least in the United States.
+ - Wikipedia works because those who know the truth are usually more numerous and committed than those who believe in a falsehood.
+ - It’s deeply human to do both the worst things and the best things because of your fear of loss.
+ - I have argued in favor of a reformulation of First Amendment law. The overriding goal of the reformulation is to reinvigorate processes of democratic deliberation, by ensuring greater attention to public issues and greater diversity of views.
+ - Probably, if we looked at Da Vinci or Michelangelo with care, we’d see a historical particularity that the work is not treated as having. It’s certainly true of Shakespeare.
+ - Somewhat more broadly, I will suggest that animals should be permitted to bring suit, with human beings as their representatives, to prevent violations of current law.
+ - Catholicism is a wide tent in terms of political and legal positions. We could have nine Catholics on the Supreme Court and a great deal of diversity toward the law.
+ - Faust seems to have exerted a big influence on Star Wars. You know, the “give up your soul for immortality” or something.
+ - I strongly believe that the Second Amendment creates an individual right to possess and use guns for purposes of both hunting and self-defense.
+ - Well, I’ve liked Star Wars since the late ’70s. I liked it a lot.
+ - For the Sanders supporters, there’s a thought that the people who are well off are doing really great, and the system is systematically unfair, and that’s a very deeply felt and serious objection to the current situation.
+ - My own view is that institutions are a glory, and for all their imperfections, something really to be proud of. It is true that things can be a lot better than they are. It’s okay to emphasize that.
+ - I got into the genesis of Star Wars, and the tale seemed to me endlessly fascinating.
+ - Liberals are sometimes defined as people who can’t take their own side in an argument.
+ - The fear of loss is an engine of horrors, but also a source of the greatest forms of heroism. There’s not a lot of art that puts that in bold letters. It’s psychologically very interesting and acute, I think. That’s not the central reading, I think, of the New Testament.
+ - The ‘cash for clunkers’ program was a big success in part because it gave people the sense that the economy was moving.
+ - I wouldn’t call Trump supporters or Sanders supporters fanatical. One thing, I would say they’re very discouraged with where things are. I don’t think in either case they’re fanatical.
+ - If you take anything that succeeded, just imagine it succeeding 10 years before or 10 years after, you could almost always make, with the same plausibility, the “it fit the times” argument.
+ - My role in the government was not to think about narratives and consistency with narratives, but think of the human consequences of rules.
+ - Donald Trump and Senator Cruz have occasional Manichean tendencies.
+
+55 quotes

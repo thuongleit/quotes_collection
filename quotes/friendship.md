@@ -1,0 +1,23 @@
+ - Many people will walk in and out of your life, but only true friends will leave footprints in your heart. ~~Eleanor Roosevelt
+ - A friend is someone who gives you total freedom to be yourself. ~~Jim Morrison
+ - I would rather walk with a friend in the dark, than alone in the light. ~~Helen Keller
+ - A friend is someone who knows all about you and still loves you. ~~Elbert Hubbard
+ - Friendship is the hardest thing in the world to explain. It's not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. ~~Muhammad Ali
+ - Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. ~~Albert Camus
+ - I’m a success today because I had a friend who believed in me and I didn’t have the heart to let him down. ~~Abraham Lincoln
+ - True friends are families which you can select. ~~Audrey Hepburn
+ - Friendship is born at that moment when one person says to another: What! You too? I thought I was the only one. ~~C. S. Lewis
+ - The trouble is not in dying for a friend, but in finding a friend worth dying for. ~~Mark Twain
+ - The only way to have a friend is to be one. ~~Ralph Waldo Emerson
+ - A good friend will always stab you in the front. ~~Oscar Wilde
+ - There is nothing better than a friend, unless it is a friend with chocolate. ~~Linda Grayson
+ - What is a friend? A single soul dwelling in two bodies. ~~Aristotle
+ - A friend may be waiting behind a stranger's face. ~~Maya Angelou
+ - Each friend represents a world in us, a world possibly not born until they arrive, and it is only by this meeting that a new world is born. ~~Anaïs Nin
+ - Do I not destroy my enemies when I make them my friends? ~~Abraham Lincoln
+ - It is one of the blessings of old friends that you can afford to be stupid with them. ~~Ralph Waldo Emerson
+ - Anybody can sympathise with the sufferings of a friend, but it requires a very fine nature to sympathise with a friend's success. ~~Oscar Wilde
+ - Stay is a charming word in a friend's vocabulary. ~~Amos Bronson Alcott
+ - There is nothing I would not do for those who are really my friends. I have no notion of loving people by halves, it is not my nature. ~~Jane Austen
+
+21 quotes

@@ -1,0 +1,502 @@
+ - Your future is created by what you do today, not tomorrow.
+ - Losers quit when they fail. Winners fail until they succeed.
+ - FOCUS – Follow One Course Until Successful.
+ - Sometimes you win, sometimes you learn.
+ - Financial freedom is freedom from fear.
+ - You become what you study.
+ - When you are young, work to learn, not to earn.
+ - Real estate investing, even on a very small scale, remains a tried and true means of building an individual’s cash flow and wealth.
+ - You and only you are responsible for your life choices and decisions.
+ - Entrepreneurs don’t finish when we are tired. We finish when we are done.
+ - Financial freedom is available to those who learn about it and work for it.
+ - Don’t waste a good mistake, learn from it.
+ - Confidence comes from discipline and training.
+ - Self-discipline is the No. 1 delineating factor between the rich, the middle class and the poor.
+ - Never say you cannot afford something. That is a poor man’s attitude. Ask HOW to afford it.
+ - Remember, your mind is your greatest asset, so be careful what you put into it.
+ - Network marketing is the fastest growing business model in the world today.
+ - Start small and dream big.
+ - If you want to change your life, begin by changing your words. Start speaking the words of your dreams, of who you want to become, not the words of fear or failure.
+ - Failure defeats losers, failure inspires winners.
+ - The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.
+ - Change your focus from making money to serving more people. Serving people makes the money come in.
+ - Don’t let the fear of losing be greater than the excitement of winning.
+ - Everyone can tell you the risk. An entrepreneur can see the reward.
+ - The biggest risk a person can take is to do nothing.
+ - Success takes an investment in time, dedication, and sacrifice. This is true education. It is a process.
+ - It’s not how much money you make, but how much money you keep, how hard it works for you, and how many generations you keep it for.
+ - Schools teach you how to work for money, but don’t teach how to make money work for you.
+ - Money is not the goal. Money has no value. The value comes from the dreams money helps achieve.
+ - A network marketing business is the perfect business for people who like helping other people.
+ - Face your fears and doubts, and new worlds will open to you.
+ - Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success.
+ - Hoping drains your energy. Action creates energy.
+ - To obtain financial freedom, one must be either a business owner, an investor, or both, generating passive income, particularly on a monthly basis.
+ - The word accounting comes from the word accountability. If you are going to be rich, you need to be accountable for your money.
+ - Rich people buy luxuries last, while the poor and middle class tend to buy luxuries first.
+ - Don’t be addicted to money. Work to learn. don’t work for money. Work for knowledge.
+ - Dreamers dream dreams and rich people create plans and build bridges to their dreams.
+ - Sight is what you see with your eyes, vision is what you see with your mind.
+ - The truth is that money doesn’t make you rich; knowledge does.
+ - Before you invest in something, invest the time to understand it.
+ - It does not take money to make money.
+ - The rich are those who play to win. The middle class plays not to lose.
+ - People who dream small dreams continue to live as small people.
+ - Get out of your own way. Often, we’re our own worst enemy when working towards our goals.
+ - Innovation is key. Only those who have the agility to change with the market and innovate quickly will survive.
+ - Successful people don’t fear failure, but understand that it’s necessary to learn and grow from.
+ - True learning takes energy, passion and a burning desire.
+ - Some people worry. Others prepare.
+ - The moment you stop learning you’re dying.
+ - My Poor Dad Often Said, ‘I’d Rather Be Happy Than Rich.’ My Rich Dad Said, ‘Why Not Be Both?’
+ - Failure is part of the process of success.
+ - If you want to be rich, don’t allow yourself the luxury of excuses.
+ - In the real world, the smartest people are people who make mistakes and learn. In school, the smartest people don’t make mistakes.
+ - The richest people in the world build networks. Everyone else is trained to look for work, that’s why there are two types of people today. Those who build their own dreams and those who build someone else dreams.
+ - People need to wake up and realize that life doesn’t wait for you. If you want something, get up and go after it.
+ - Life isn’t fair. It never will be. Quit trying to make it fair. You don’t need it to be fair. Go make life unfair to your advantages.
+ - Often, the more money you make the more money you spend; that’s why more money doesn’t make you rich – assets make you rich.
+ - If you want to go somewhere, it is best to find someone who has already been there.
+ - True passion attracts. If you have passion in your business, the right people will be attracted to your team.
+ - It’s more important to grow your income than cut your expenses. It’s more important to grow your spirit that cut your dreams.
+ - Before you can transform your wallet from poor to rich, you’ve got to transform your spirit from poor to rich.
+ - If you avoid failure, you also avoid success.
+ - Every time you quit, someone else gets your prize. Every time you make a mistake, you get closer to yours.
+ - Anyone can be an entrepreneur. All it takes is a little drive and ambition.
+ - The poor, the unsuccessful, the unhappy, the unhealthy are the ones who use the word tomorrow the most.
+ - The problem with having a job is that it gets in the way of getting rich.
+ - The poor look for jobs while the rich build networks.
+ - If your business is to grow and prosper, as a leader, you need to focus on people development.
+ - If you realize that you’re the problem, then you can change yourself, learn something and grow wiser. Don’t blame other people for your problems.
+ - If you want a solid future, you need to create it. You can take charge of your future only when you take control of your income source. You need your own business.
+ - The more security you seek, the less freedom you have.
+ - A high income job, a big house, nice cars, and lavish vacations don’t mean you are rich, in fact it could mean exactly opposite.
+ - What are you doing this weekend to improve your financial situation? Sacrifice made today goes a long way for a better tomorrow.
+ - People’s lives are forever controlled by two emotions: fear and greed.
+ - If you fail, learn, and move on, you’re growing.
+ - A mistake is a signal that it is time to learn something new, something you didn’t know before.
+ - Giving honest and well-intended feedback is often confused with being mean. It’s not mean; it’s nice.
+ - There is a difference between being poor and being broke. Broke is temporary, and poor is eternal.
+ - What you think of me is none of my business. What is most important is what I think of myself.
+ - Employees pay the highest percentage of taxes. Big business and investors pay the least.
+ - Life is a game, where either you lose or you learn.
+ - When times are bad is when the real entrepreneurs emerge.
+ - Too many people are too lazy to think. Instead of learning something new, they think the same thought day in day out.
+ - My Rich Dad said, ‘All of us have the power of choice. I choose to be rich, and I make that choice every day.’
+ - Doing more with less, is a crucial principle to learn; especially if you’re going to be in business in this rapidly changing world.
+ - The world is full of smart, poor people.
+ - Emotions are what make us human. Make us real. The word ‘emotion’ stands for energy in motion. Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself.
+ - There’s a bit of hidden magic in every mistake. The magic is called learning.
+ - The hardest part of change is going through the unknown.
+ - If you are not a brand, you are a commodity.
+ - Once a person stops searching for information and self-knowledge, ignorance sets in.
+ - Financial leverage is the advantage the rich have over the poor and middle class.
+ - Life will get in the way. Count on it. Be prepared for it. Maintain focus and press on towards your goal.
+ - You will make some mistakes but, if you learn from those mistakes, those mistakes will become wisdom and wisdom is essential to becoming wealthy.
+ - There is nothing more dangerous than a person with only one right answer.
+ - You cannot be all things to all people. Be unique. Be different. Give to others what you want yourself. And do what you were made to do.
+ - Most people try to get rich by being cheap and the price for that is that you live cheap and there is so much money out there; why would you want to live cheap?
+ - Instead, to be financially free, we need to learn how to make mistakes and manage risk.
+ - Do not let fear of failure overwhelms joy success.
+ - Rich don’t work for money. They work for assets.
+ - Inside of every problem lies an opportunity.
+ - The rich buy assets. The poor only have expenses. The middle class buys liabilities they think are assets. The poor and the middle class work for money. The rich have money work for them.
+ - The problem with tomorrow is that I have never seen a tomorrow. Tomorrow does not exist. Tomorrow only exist in the mind of dreamers and losers.
+ - A job is a short term solution to a long term problem.
+ - Comfort kills ambition. Get uncomfortable and get used to it in your pursuit of your goals and dreams.
+ - Rule One. You must know the difference between an asset and a liability, and buy assets. An asset is something that puts money in my pocket. A liability is something that takes money out of my pocket.
+ - The strength of character and emotional intelligence to face your failures and learn from them are at the core of success.
+ - Passion is the beginning of success.
+ - The poor and the middle class work for money. The rich have money work for them.
+ - In today’s fast-changing world, it’s not so much what you know anymore that counts, because often what you know is old. It is how fast you learn. That skill is priceless.
+ - Work to learn. Don’t work for money.
+ - In today’s rapidly changing world, the people who are not taking risk are the risk takers.
+ - Humility is the first step towards learning. You can’t learn until you are humble enough to realize there is something for you to learn.
+ - There are no mistakes in life, just learning opportunities.
+ - Success is a poor teacher. We learn the most about ourselves when we fail, so don’t be afraid of failing. Failing is part of the process of success. You cannot have success without failure.
+ - The richest people in the world build networks; everyone else is trained to look for work.
+ - If you want to retire young and retire rich, it is very important that your money be like a bird dog, going out every day and bringing home more and more assets.
+ - Getting rich begins with the right mindset, the right words and the right plan.
+ - Building your own business is the best way to become rich. Then you can begin investing in other assets.
+ - If you’re lazy, don’t expect much in terms of success. You’re owed nothing and success will not be given to you. It’s earned.
+ - Don’t bury your failures, let them inspire you.
+ - Education is more valuable than money, in the long run.
+ - The biggest challenge you have is to challenge your own self doubt and your laziness. It is your self doubt and your laziness that defines and limit who you are.
+ - The network marketing industry offers many unique benefits to those who want more out of life.
+ - Money is just an idea.
+ - We were not taught financial literacy in school. It takes a lot of work and time to change your thinking and to become financially literate.
+ - You cannot be successful without failure.
+ - Learn to use your emotions to think, not think with your emotions.
+ - If you want to be rich, think big, think differently.
+ - People with low financial literacy standards are often unable to take their ideas and create assets out of them.
+ - If you want to be rich, be friends with people who have the same mindset as you, or who at least won’t try to change your mindset to be more like theirs. Life is too short to spend time with people who don’t help you move forward.
+ - Often, in the real world, it’s not the smart that get ahead but the bold.
+ - You get one life. Live it in a way that it inspires someone.
+ - The entrepreneur must be the best salesperson and marketer in his business.
+ - Talk is cheap. Learn to listen with your eyes. Actions do speak louder than words. Watch what a person does more than what he says.
+ - Broke is temporary, poor is eternal.
+ - Leverage is the reason some people become rich and others do not become rich.
+ - The single most powerful asset we all have is our mind. If it is trained well, it can create enormous wealth in what seems to be an instant.
+ - Business is like a wheel barrow. Nothing happens until you start pushing.
+ - The best way to predict the future is to study the past, or prognosticate.
+ - By asking the question How can I afford it? your brain is put to work.
+ - The fear of being different prevents most people from seeking new ways to solve their problems.
+ - Successful people take big risks knowing that they might fall hard. But, they might succeed more than they ever dreamed, too.
+ - For winners, losing inspires them. For losers, losing defeats them.
+ - The moment you make passive income and portfolio income a part of your life, your life will change. Those words will become flesh.
+ - Don’t buy luxuries until you’ve built the assets to afford them.
+ - It’s not what you say out of your mouth that determines your life, it’s what you whisper to yourself that has the most power!
+ - Action first, mistakes second, lessons third.
+ - Starting a business is like jumping out of an airplane without a parachute. In mid air, the entrepreneur begins building a parachute and hopes it opens before hitting the ground.
+ - Quitting is the easiest thing to do.
+ - You get rich because you do things most people will not do. Success requires sacrifice. You must be willing to make those sacrifices.
+ - When people are lame, they love to blame.
+ - The ability to sell is the number one skill in business. If you cannot sell, don’t bother thinking about becoming a business owner.
+ - You have to be smart. The easy days are over.
+ - Skills make you rich, not theories.
+ - You won’t learn if you think you already know everything.
+ - Ephemeralization means the ability to do everything with nothing, or leverage, or doing more with less. So, as a businessman, I’m constantly ephemeralizing, figuring out how I can do more and more for less and less.
+ - Making money is a common sense. It’s not rocket science. But unfortunately, when it comes to money, common sense is uncommon.
+ - Remember to dream big, think long-term, underachieve on a daily basis, and take baby steps. That is the key to long-term success.
+ - The most successful people in life are the ones who ask questions. They’re always learning. They’re always growing. They’re always pushing.
+ - There is no one road to success, you must find your own route.
+ - It’s not what you know anymore that counts, it’s how fast you learn.
+ - To be a successful business owner and investor, you have to be emotionally neutral to winning and losing. Winning and losing are just part of the game.
+ - Passion pushes you to learn more, create more and to create better. Best of all, it’s contagious.
+ - Always start at the end before you begin. Professional investors always have an exit strategy before they invest. Knowing your exit strategy is an important investment fundamental.
+ - There is gold everywhere, most people are not trained to see it.
+ - Good debt is a powerful tool, but bad debt can kill you.
+ - A plan is a bridge to your dreams. Your job is to make the plan or bridge real, so that your dreams will become real. If all you do is stand on the side of the bank and dream of the other side, your dreams will forever be just dreams.
+ - Network marketing gives people the opportunity, with very low risk and very low financial commitment, to build their own income-generating asset and acquire great wealth.
+ - You can always quit, so why quit now.
+ - If you want to be financially-free, you need to become a different person than you are today and let go of whatever has held you back in the past.
+ - Finding your entrepreneurial spirit and making it strong is more important than the idea or business you are developing.
+ - The problem with real estate is that it’s local. You have to understand the local market.
+ - In school we learn that mistakes are bad, and we are punished for making them. Yet, if you look at the way humans are designed to learn, we learn by making mistakes. We learn to walk by falling down. If we never fell down, we would never walk.
+ - The world has changed, but education has not changed with it.
+ - I wasn’t born a natural entrepreneur. I had to be trained.
+ - My brain gets stronger every day because I exercise it. The stronger it gets, the more money I can make.
+ - One of the reasons the rich get richer, the poor get poorer and the middle class struggles in debt is because the subject of money is taught at home, not at school.
+ - Successful people ask questions. They seek new teachers. They’re always learning.
+ - A great property manager is key to success in real estate.
+ - Money will never make you happy if you are an unhappy person.
+ - How you earn your money and build your career is how you earn your destiny and build your legacy.
+ - The most life destroying word of all is the word tomorrow.
+ - Workers work hard enough to not be fired, and owners pay just enough so that workers won’t quit.
+ - There is a good life waiting for you. Its just waiting for you to grab it.
+ - The reason so many people fail to achieve success is because they fail to fail enough times.
+ - If you’re working for a good company and you’re happy there, and you’re being compensated accordingly, and your work satisfies you, you should stay there.
+ - Don’t invest in what you don’t know. Learn first then invest.
+ - What you think is real is your reality.
+ - Have the backbone to go after what you want in life. It’s too easy to settle.
+ - Passion is a powerful force. Passion properly directed is unstoppable.
+ - Most small businesses failed because the owner was under skilled, not under capitalized.
+ - By its very nature and design, Network Marketing is a strikingly Fair, Democratic, Socially Responsible system of generating wealth.
+ - The most important word in the world of money is cash flow. The second most important word is leverage.
+ - The harder you work for money, the more you are taxed, the harder your money works, the less it is taxed.
+ - You can tell a person’s past, present and future by listening to the words they use.
+ - The power of “can’t”: The word “can’t” makes strong people weak, blinds people who can see, saddens happy people, turns brave people into cowards, robs a genius of their brilliance, causes rich people to think poorly, and limits the achievements of that great person living inside us all.
+ - If you’re not working to get your business or investing operation to operate without you, you’re thinking too small. Think team and systems.
+ - People without leverage work for those with leverage.
+ - Take responsibility for your finances or get used to taking orders for the rest of your life. You’re either a master of money or a slave to it. Your choice.
+ - It’s easier to stand on the sidelines, criticize, and say why you shouldn’t do something. The sidelines are crowded. Get in the game.
+ - There are always going to be skeptics. Prove them wrong.
+ - Don’t sacrifice your spirit for wealth. Grow your wealth by first growing your spirit.
+ - There are no bad business and investment opportunities, but there are bad entrepreneurs and investors.
+ - Be careful who you get advice from. I get advice from people who are where I want to be.
+ - Financial struggle is often the direct result of people working all their lives for someone else.
+ - Every successful person in life began by pursuing a passion, usually against all odds.
+ - Your Mentors in life are important, so choose them wisely.
+ - One of the reasons people aren’t rich is because almost everyone has more excuses than money.
+ - I am successful because I have always been a tortoise. I did not come from a rich family. I was not smart in school. I did not finish school. I am not particularly talented. Yet, I am far richer than most people simply because I did not stop.
+ - People with vision master the ability to see through to the heart of issues and investments. They value transparency.
+ - The only person who is going to give you security and the life you want is you.
+ - Education is cheap; experience is expensive.
+ - The losers in life think they have all the answers. They can’t learn because they’re too busy telling everyone what they know.
+ - I found in direct selling companies an education system designed to draw out the rich person in you.
+ - You cannot improve your future if you are not willing to try something new and risk making mistakes and learning from them.
+ - You’re only poor if you give up. The most important thing is that you did something. Most people only talk and dream of getting rich. You’ve done something.
+ - Rather than risk starting their own businesses, most people seek safer environments, preferring job security to freedom and a steady paycheck to greater wealth. Their fear of failing is greater than the joy of freedom.
+ - I don’t save money. Save is a four letter word! I like to borrow money because I can get richer faster on borrowed money. I have what is called retained earnings, so I don’t have to save money. If I need money, I will go out and borrow it.
+ - You need to have the courage to fail.
+ - Never stand idly while people commit what you know to be an injustice! Injustice only leads to more injustice!
+ - A true luxury is a reward for investing in and developing a real asset.
+ - Don’t be afraid of your worst times. If you learn from them, you’ll look back on them as the best times.
+ - One of the best skills of an entrepreneur is the ability to question. By asking new questions, new answers are found.
+ - Those who are humble enough to learn anew will succeed in this new age.
+ - Cynics criticize and winners analyze.
+ - At the point the money hits your hands, you have the power to determine your financial future.
+ - Losers are those who are afraid of losing.
+ - As I said, I wish I could say it was easy. It wasn’t, but it wasn’t hard either. But without a strong reason or purpose, anything in life is hard.
+ - One of the great things about being willing to try new things and make mistakes is that making mistakes keeps you humble. People who are humble learn more than people who are arrogant.
+ - Your most expensive advice is the free advice you receive from your financially struggling friends and relatives.
+ - A good leader is always looking for people smarter and more experienced than they are. If you are the smartest one in the room, then you are stupid.
+ - For most people, the price for security is personal freedom. And without freedom, many people spend their lives working for money, rather than living out to their dreams.
+ - Education is the foundation of success. Just as scholastic skills are vitally important, so are financial skills and communication skills.
+ - Be worried if no one is criticizing you. Your job in life is to ignore the 33% who will never like you and do your best to convince the 33% who don’t care either way to join the 33% who love you.
+ - The philosophy of the rich and the poor is this: the rich invest their money and spend what is left. The poor spend their money and invest what is left.
+ - Finding good partners is the key to success in anything: in business, in marriage and, especially, in investing.
+ - People who are unwilling to make mistakes or have made mistakes and have not yet learned from them are those who wake up each morning and continue to make the same mistakes.
+ - If I had to do it all over again, rather than build an old style type of business, I would have started building a network marketing business.
+ - Arrogant or critical people are often people with low self-esteem who are afraid of taking risks. That’s because, if you learn something new, you are then required to make mistakes in order to fully understand what you have learned.
+ - Don’t just try to find great opportunities. Find an opportunity and make it great.
+ - To me, a spouse should be a life partner AND a business partner. Just like any good partner, her strengths must make up for my weaknesses and vice versa.
+ - Dreams are not easy. Dreams are painful. They force work and commitment. They are challenging and motivating.
+ - The biggest trap, the biggest dungeon in life isn’t laziness or bad luck, it’s comfort.
+ - It is easier to invest for cash flow during a financial crisis. So don’t waste a good crisis by hiding your head in the sand. The longer the crisis lasts, the richer some people will become.
+ - No one cares about it more than you. Give it the attention it needs.
+ - Most people never get wealthy simply because they are not trained financially to recognize opportunities right in front of them. The rich have learned to recognize opportunities as well as how to create them.
+ - If you want to change who you are, begin by changing the size of your dream. Even if you are broke, it does not cost you anything to dream of being rich. Many poor people are poor because they have given up on dreaming.
+ - The No.1 thing people can do to increase their wealth is to start a part-time business.
+ - Intention is for achievers. Hope is for the hopeless.
+ - Hoping gets you nothing in life. If you want more in life it’s your job to earn it.
+ - Most people want everyone else in the world to change themselves. Let me tell you, it’s easier to change yourself than everyone else.
+ - Most people are poor not because they are not smart – most people are poor or struggle financially because they’re fearful of losing.
+ - A lot of people are afraid to tell the truth, to say no. That’s where toughness comes into play. Toughness is not being a bully. It’s having backbone.
+ - A network marketing business is based upon the leaders pulling people up, while a traditional corporate or government business is based upon only promoting a few and keeping the masses of employees content with a steady paycheck.
+ - Criticism is easier to take when you realize that the only people who aren’t criticized are those who don’t take risks.
+ - In 1997, in Rich Dad, Poor Dad, I stated, ‘Your home is not an asset.’ Real estate agents sent me hate mail.
+ - Most people put money in their piggy bank. I buy a goose that lays golden eggs over and over again. That’s what an asset is.
+ - Being an entrepreneur is simply going from one mistake to the next. You must have the fortitude to continue on.
+ - You can either blame everybody else or you can take a look at yourself and determine where you can improve.
+ - The unique ability to take decisive action while maintainign focus on the ultimate mission is what defines a true leader.
+ - In the world of entrepreneurs, you don’t need a college education. You need a proper education.
+ - It’s the investor who is risky, not the investment.
+ - When we’re passionate about something, we innovate, create, and continue on with our dreams.
+ - Intelligence is the ability to solve problems.
+ - Listen to the advice from the one who’s already achieved your goal.
+ - Get your assets working for you so that your “ass” isn’t working for someone else.
+ - Negative thoughts are not protecting you. They are making you smaller.
+ - If you work for money, you give the power to your employer. If your money works for you, you keep and control the power.
+ - Before there is a business, a successful entrepreneur is designing this type of business in his or her mind’s eye. According to my rich dad, this is the job of a true entrepreneur.
+ - In the information age, the richest people are entrepreneurs. We may not become a king or queen, but we can all be entrepreneurs.
+ - Jobs are a centuries-old concept created during the Industrial Revolution. Despite the reality that we’re now deep in the Information Age, many people are studying for, or working at, or clinging to the Industrial Age idea of a safe, secure job.
+ - The greatest secret of winners is that failure inspires winning; thus, they are not afraid of losing.
+ - Changing quadrants is often a change at the core of who you are, how you think, and how you look at the world. The change is easier for some people than for others simply because some people welcome change and others fight it.
+ - When employees unite, they form a union but when business owners unite, they form a team.
+ - An intelligent person hires people who are more intelligent than he is.
+ - If you want to be rich, you need to develop your vision. You must be standing on the edge of time gazing into the future.
+ - If you don’t first handle fear and desire, and you get rich, you’ll only be a highpay slave.
+ - A winning strategy must include losing.
+ - Nine out of ten businesses fail; so I came up with a foolproof plan – create ten businesses.
+ - I’d rather welcome change than cling to the past.
+ - We all have defining moments. It is in these moments that we find our true characters. We become heroes or cowards; truth tellers or liars; we go forward or we go backward.
+ - Sometimes the hardest thing to do is to trust your team. It’s a lesson I’ve had to relearn quite a few times.
+ - As long as you blame someone or something else – something outside you that’s bigger than you are – as the source of your problems, the problems won’t get solved.
+ - It’s not what you have to “do” that needs to change. It’s first how you “think” that needs to change. It’s who you have to “be” in order to “do” what needs to be done.
+ - Most people want to be rich but they do not want to pay the price, in fact there are ways of becoming rich in which the odds are in the person’s favor.
+ - Good entrepreneurs are community builders, actively involved with their communities and dedicated to the community’s well being. If you’re dedicated to your community, it will be dedicated to you.
+ - If you want to thrive in today’s economy, you must challenge the status quo and get the financial education necessary to succeed.
+ - If you do not know how to care for money, money will stay away from you.
+ - One of the biggest defects in life is the inability to ask for help.
+ - Most people work all week to get to the weekend. A few work all weekend for years to get to freedom.
+ - You can invest with less risk and make more money in the stock market. All you have to do is not be an average investor. Intelligence is the ability to make finer distinctions.
+ - People without financial knowledge, who take advice from financial experts are like lemmings simply following their leader. They race for the cliff and leap into the ocean of financial uncertainty, hoping to swim to the other side.
+ - If you are not successful, that means you’re not making enough mistakes.
+ - Humans cannot find freedom until they let go of old obsolete ideas.
+ - The idea that success can happen overnight is crippling the financial future of generations. You have to work for it.
+ - It’s not about the money. Its about creating a business out of your life’s purpose and mission.
+ - The greatest cause of human financial struggle is the fear of losing money.
+ - Don’t cut up your credit cards, the problem is not the cards, it’s the lack of financial literacy of the person holding the cards and always make the best out of a bad situation.
+ - The primary difference between rich people and poor people is how they handle fear.
+ - Selling is the most important skill as an entrepreneur. I’m not talking so much about selling a product so much as selling yourself, team, and deals.
+ - If you change your thoughts you can change your actions.
+ - Friends and family will tell you why your ideas won’t work. Most are left-brained employees and specialists and NOT entrepreneurs.
+ - When your own mind tells you to quit, you must ignore your negative thoughts and press on.
+ - Find the game where you can win, and then commit your life to playing it; and play to win.
+ - Any time an investment company has to spend heavily on advertising, it’s probably a bad business in which to invest.
+ - Critics only make you stronger. You have to look at what they are saying as feedback. Sometimes the feedback helps, and other times, it’s just noise that can be a distraction.
+ - What you don’t know keeps you poor.
+ - If you’re going to be a winner in life, you have to constantly go beyond your best.
+ - If you’re the kind of person who has no guts, you just give up every time life pushes you. If you’re that kind of person, you’ll live all your life playing it safe, doing the right things, saving yourself for something that never happens. Then, you die a boring old man.
+ - Start a part-time business and make as many mistakes as you possibly can while you still have your daytime job.
+ - In most cases, when people make more money, they get deeper in debt. This is why money alone does not make you rich.
+ - I would say raising capital is one of the weakest things for most entrepreneurs.
+ - Asking Wall Street to provide financial education is the same as asking a fox to raise your chickens.
+ - We go to school to learn to work hard for money. I write books and create products that teach people how to have money work hard for them.
+ - In school, you are given the lesson first. On the street, you’re given the mistake first and then it’s up to you to find the lesson, if you ever find it.
+ - One of the primary reasons why people struggle financially is because they cannot control their emotion of fear.
+ - People don’t like the idea of thinking long term. Many are desperately seeking short term answers because they have money problems to be solved today.
+ - One of the most stupid things to do is to pretend you are smart. When you pretend to be smart, you are at the height of stupidity.
+ - If you own a butcher shop, don’t hire vegetarians. To hire the right people, you have to let the wrong people go.
+ - Complaining about your current position in life is worthless. Have a spine and do something about it instead.
+ - French fries kill more people than guns and sharks, yet nobody’s afraid of French fries.
+ - People who pay the price for security may never really feel secure rather the more their insecurity grows inside them because they are paying the price for action but not their internal reaction.
+ - A truly intelligent person is the dumbest person on the team he is leading.
+ - Commodities such as gold and silver have a world market that transcends national borders, politics, religions, and race. A person may not like someone else’s religion, but he’ll accept his gold.
+ - Knowing you need to make a change isn’t enough. You’ve got to find the guts to do it.
+ - Making mistakes is natural. Making mistakes is how we learn.
+ - So where in the old economy, content was king, in the new economy, context is king.
+ - The trouble with school is they give you the answer, then they give you the exam. That’s not life.
+ - The better you are at communicating, negotiating, and handling your fear of rejection, the easier life is.
+ - It’s human nature to blame someone else for your shortcomings or upsets.
+ - The reason so many financial advisors are called brokers is because they are often broker than you.
+ - Today is the word for winners and tomorrow is the word for losers.
+ - If I lost my job, I’d get a job at McDonald’s.
+ - For people choosing to use a network marketing system to build a business in the B quadrant, the price of entry is a lot lower, the risks are lower, and the education and support are there to guide you through this personal development process.
+ - If you are the kind of person who is waiting for the ‘right’ thing to happen, you might wait for a long time. It’s like waiting for all the traffic lights to be green for five miles before starting the trip.
+ - Because students leave school without financial skills, millions of educated people pursue their profession successfully, but later find themselves, struggling financially.
+ - Don’t bother with New Year’s resolutions if you don’t have the discipline to put a plan in place to actually achieve them.
+ - In the world of money and investing, you must learn to control your emotions.
+ - Think of something new you’ve actually learned in the past week; if you can’t think of anything, get comfortable where you’re at because you’re not going anywhere. To stop learning is to stop living.
+ - Most businesses think that product is the most important thing, but without great leadership, mission and a team that deliver results at a high level, even the best product won’t make a company successful.
+ - A successful business is created before there is a business.
+ - Failure inspires winners. And failure defeats losers. It is the biggest secret of winners. It’s the secret that loser do not know. The greatest secret of winners is that failure inspires winning; thus, they’re not afraid of losing.
+ - The problem with this world is not enough problem solvers. So, if you become a problem solver you become rich.
+ - If you took all of my money away, I would have it right back. I don’t really care about money. I mean I do but why worry about it because I can make my own money all the time.
+ - If you are not doing what you love, then start doing it, even if it is only part-time.
+ - The keys to success, in business and in life, are truthfulness, the ability to take and give, honest and well-intended feedback, strength of character and conviction in one’s principles.
+ - I strongly urge students to learn to take risks, to be bold, to let their genius convert that fear into power and brilliance.
+ - I have found that the more I teach those who want to learn, the more I learn.
+ - Excuses are the words coming from the loser in you.
+ - Nice guys do not finish last. Last place is for the cowards and those too full of fear to take action.
+ - Be careful when you take on debt. If you take on debt personally, make sure it is small. If you take on large debt, make sure someone else is paying for it.
+ - You can become rich by being cheap but the problem is that even though you are rich, you are still cheap.
+ - Your job isn’t to make money. It’s to find a problem that needs solving.
+ - Look at the world of books nowadays. People just download books. They don’t go to a bookstore. Amazon is wiping out Borders and Barnes and Noble. Those are brilliant examples of ephemeralization doing more with less at a better price.
+ - You’ll often find that it’s not mom or dad, husband or wife, or the kids that’s stopping you. It’s you. Get out of your own way.
+ - If you look at any successful person, at the start they were not balanced, balanced people go nowhere. They stay in one spot. To make progress you must first go unbalanced. Just look at how you make progress walking.
+ - A business owner can become rich exponentially and people who work for wages become rich incrementally.
+ - The problem with a job is that relying on others to give you a living is the biggest risk of all.
+ - Have the courage to say what needs to be said to who it needs to be said to. You’ll both be better for it.
+ - True leaders inspire us to be bigger and do things we are afraid of doing.
+ - The size of your organization is directly related to your ability to enforce the rules.
+ - Excuses cost a dime and that’s why the poor could afford a lot of it.
+ - Success is a poor teacher.
+ - Your mind, more than your actions, determines your net worth.
+ - To gain more abundance a person needs more skills and needs to be more creative and cooperative.
+ - In order to sustain the integrity of the organization, a business must dedicate time and resources to education, leadership development, and personnel development. Don’t focus on the product. Focus on the team.
+ - I want parents to teach that academic intelligence is essential, but so is financial intelligence.
+ - People who refuse to open their minds to new strategies seldom become rich.
+ - The idea of working all your life, saving, and putting money into a retirement account is a very slow plan.
+ - When you hear that something can’t be done, ignore that advice and push forward.
+ - The avoidance of money is just as psychotic as being attached to money.
+ - By 2003, every fool was getting into real estate. The checkout girl at my local supermarket handed me her newly printed real estate agent business card.
+ - Corporate America is a 20th-century dinosaur, trembling on the edge of extinction, and the only way for you to have a genuinely secure future is for you to take control of that future.
+ - The world’s not going to wait for you. If you have an idea, put some effort behind it and get it out there.
+ - I would not be well-known if I had just used my gift to make money for me. The moment I started to teach others – you teach people to fish – I think that’s why my book Rich Dad, Poor Dad became an international bestseller, and things like this.
+ - If you must work for money, find a way to work and be happy. That is financial intelligence.
+ - Making mistakes isn’t enough to become great. You must also admit the mistake, and then learn how to turn that mistake into an advantage.
+ - Whatever you want in life, you’ve got to give away first.
+ - Find out where you are at, where you are going and build a plan to get there.
+ - When success and incompetence meet, disaster is not far away.
+ - The only people who think life should be easy are lazy people.
+ - By giving kids an allowance, you teach that child to work for money rather than learn to create money.
+ - Doing more and more with less and less is one form of being generous. In fact, the easiest way to become rich is by being generous.
+ - If you want to get richer quicker, then solve bigger problems!
+ - People who lie to themselves about investing are the same as overweight people who blame their genes for their obesity.
+ - People, who live below their means, save for a rainy day – the price is a cheap life. There are a lot of people who have a lot of money; but at the end of the process, they are still cheap; so they have made money their God.
+ - The main cause of poverty or financial struggle is fear and ignorance, not the economy or the government or the rich.
+ - I can see being kind to people, but I don’t think giving them money solves the problem. I think it makes the problem worse and it prolongs the ultimate, inevitable end anyway.
+ - No one achieves great things by following the crowd. Have a spine. Strike your own path.
+ - Just as we can learn from our mistakes, we can gain character from our disappointments.
+ - Investing isn’t risky; not being in control is risky.
+ - One of the things I didn’t like about school is that every time they told a story about a rich guy in school, he was an evil guy. Our school system is programming us to think the rich are greedy and evil.
+ - You have a choice in life. Would you rather be lonely or miserable? I would rather be lonely. A lot of people are miserable in a marriage and they don’t get along with their wife or husband and it’s not worth it.
+ - It is easy to stay the same but it is not easy to change. Most people choose to stay the same all their lives.
+ - Few people realize that luck is created.
+ - Saying that financial literacy means diversification is just another example of the fox teaching the chickens.
+ - Once a person gains experience and a good reputation, it takes less and less money to create bigger and bigger investments.
+ - If you are moving, even fire will not hurt you. If you are standing still near the fire, even though you are not in the fire, the heat will eventually get to you.
+ - Most people struggle financially because they take advice from sales people, not rich people.
+ - The key to life is to be happy with or without money. Money only magnifies who you really are.
+ - Don’t do anything for the money you WILL make, but instead for the SKILLS you will learn.
+ - If you have faith in our leaders of commerce, don’t buy gold. If you do not have faith in them, maybe you should buy gold or silver.
+ - I have a problem with too much money. I can’t reinvest it fast enough, and because I reinvest it, more money comes in. Yes, the rich do get richer.
+ - By pursuing the things you love, all the other things in life will fall into order.
+ - I could be a school teacher and be rich. It has nothing to do with your money; it has to do with your knowledge. If I was a school teacher, I would be ten times richer because I have more time off! They get the summer off, holidays off, weekends off.
+ - The boundaries of a person’s reality often do not change until that person forsakes what he or she feels confident in and then goes blindly with faith.
+ - If you do not like Real Estate, all you have to do is make hamburgers, build a business around that hamburger, and franchise it.
+ - I believe that one key to success is to accept truth, no matter how it’s spoken.
+ - The main cause of poverty is self-inflicted fear and ignorance.
+ - Congratulations on your job at the bank! Yes. You work for the bank. After taxes, your largest expense is your mortgage and credit-card debt.
+ - When I was young, people lived paycheck to paycheck. Today, it seems like they live from credit card payment to credit card payment.
+ - Money is kind of a base subject. Like water, food, air and housing, it affects everything yet for some reason the world of academics thinks it’s a subject below their social standing.
+ - A winner is just someone who doesn’t give up when they lose.
+ - Someone who seeks low-risk investments never really feels investing is safe and someone who is always right eventually winds up wrong.
+ - In military school, on day one you must memorize the mission of the Merchant Marine Academy.
+ - Over the years I have found that many of the richest people in the world began their lives with the habit of tithing.
+ - If you want to be successful on the right side, when it comes to money, you have got to know the difference between facts and opinions. You must know numbers. You must know the facts.
+ - The more I risk being rejected, the better my chances are of being accepted.
+ - Going into our fear and confronting our greed, our weaknesses, our neediness is the way out. And the way out is through the mind, by choosing our thoughts.
+ - There are many people who have big plans but their big plans never come true. The reason is, too many people have big plans but fail to keep their small agreements.
+ - In my opinion, the United States and many Western nations have a financial disaster coming, caused by our educational system’s failure to adequately provide a realistic financial education program for students.
+ - You don’t achieve success by “taking it easy” or “working on it later.” You achieve it thru persistence and hard work.
+ - If the investor is uneducated, anything he or she invests in will be risky. So it’s not the investment that is risky. It’s the investor.
+ - If you are not happy while getting rich, chances are that you will not be happy when you do get rich.
+ - Just as a fisherman must watch the ebb and flow of the tides, an investor and businessperson must be keenly aware of the subtle shifts in cash flow.
+ - Tomorrow is for losers and dreamers.
+ - I worked for Xerox for 4 years and after that I knew I was never going to be a corporate person. It wasn’t my environment.
+ - Financial planners are salespeople. They are NOT teachers. Get your education from someone NOT getting a commission.
+ - I’ve traveled all over the world and America is the easiest place to get rich.
+ - Academic qualifications are important and so is financial education. They’re both important and schools are forgetting one of them.
+ - A game is like a mirror that allows you to look at yourself.
+ - I’m not a Republican or a Democrat, but George Bush has just put us so greatly into debt; now Obama’s going to make it even worse. So, it’s basically highway robbery, and I think it’s a tragedy.
+ - The right decisions come from the right focus. You’ll succeed if your focus is on the mission, not the money.
+ - Always remember that no matter what anyone is saying to you from the outside, the most important conversation is the one you are having with yourself on the inside.
+ - In real estate, many investors love triple net leases. With NNN’s investors receive income without the expenses of taxes, repairs and insurance. The tenant covers these costs.
+ - If you are afraid of making mistakes, you won’t learn anything and you won’t make much money.
+ - If you had seen me back in high school, there’s no way you would have ever said I would become an author or teacher because I was a horrible student.
+ - The economy is in tatters; your job is in trouble – if you still have a job. And you know what? I’ve been saying it for years.
+ - Rich dad said it this way, ‘Big people have big dreams and small people have small dreams. If you want to change who you are, begin by changing the size of your dreams.’
+ - The moment you believe your own crap and excuses, you fail.
+ - Many people start a business only to make money. Just to make money is not a strong enough mission.
+ - Your poverty today is because of who you are. Want wealth? Let go of your anchors and inhibitions and change yourself.
+ - Money does not make you happy, but the lack of money can cause unhappiness.
+ - With any method of attaining great wealth, there is a price, and price is not always measured in money.
+ - Direct sales offers the education my rich dad taught: build your own network rather than working for a network.
+ - Earning money has a way of increasing financial intelligence quickly.
+ - If I have cash and I can’t figure a way to put it into real estate or my business, I hold it in gold and silver.
+ - Sitting and watching a game show, or betting on your lucky numbers is not the price that most of the top 1% paid to become rich.
+ - When it comes to money, the only skill most people know is to work hard.
+ - One of the main reasons people are not rich is that they worry too much about things that might never happen.
+ - The most successful people are mavericks who aren’t afraid to ask why, especially when everyone thinks it’s obvious.
+ - We live in a global community and we can’t really remain isolated. I believe that when we hold a very narrow view about our attitudes of politics or culture or religion, then we cut out the opportunity to really engage with other points of view.
+ - If you look at anyone who has achieved great success and wealth, people like Warren Buffett, Oprah Winfrey, or Lance Armstrong, they have all focused intensely in order to win.
+ - Don’t be so bitter about a bad experience from your past that you miss the opportunities in front of you.
+ - Entrepreneurship is a process, not a job or profession. So be faithful to the process and remember that even when times are bad, the process will give you a glimpse of the future that lies ahead.
+ - To be truly wealthy, we must be able to give more than what we receive.
+ - I think it’s a tragedy that our schools don’t teach kids about money. I think it’s a tragedy that it has to come to an emergency before we evolve.
+ - The financial education taught in schools is funded and taught by the big banks and corporations. It’s like having the cat train the mice.
+ - If you want to be rich the rule of thumb is to teach others how to be rich.
+ - Typically the person who raises the money, or puts up the money to start the business, owns the lion’s share of the business. So learn how to sell and keep learning. It will usually be your own fear that you have to overcome.
+ - Retarget your money. When your money comes in, you need to have already targeted where you are going to invest or doodad temptation will set in.
+ - As the owner of the company, I’m always focusing on how my company can do more for less. And it’s one of the principles of the world.
+ - The next great transfer of wealth WILL take place, not by conspiracy but by ignorance.
+ - Making money and making the world a better place are not contrary to one another.
+ - Do today what you want for your tomorrows.
+ - Success is not a stop sign.
+ - The more a person seeks security, the more that person gives up control over his life.
+ - A smart entrepreneur knows they cannot run a business on their own. They know that business is a team sport.
+ - Most people spend their lives building financial houses of straws, which are susceptible to wind, fire, rain and big bad wolves.
+ - Those who have safe and secure jobs pay more taxes than those who own the business that provides the jobs.
+ - Choosing what we think rather than reaction to our emotions.
+ - Being prepared for a job is a good idea for the short term, but it is not enough for the long term.
+ - Toughness is not being a bully, it’s having a backbone.
+ - My company survives because I’ve learned to respect the ideas of people younger than me and recognize when my wisdom is obsolete.
+ - Instead of labeling and discriminating against one or the other, we need to learn to blend our gifts and complement our geniuses.
+ - Within 7 days, 75% of people will have given up on their New Year’s resolutions; that’s tomorrow. Evaluate yourself. Don’t be one of them.
+ - I’m actually a lot happier because I work as a teacher; more than just a capitalist making money for myself.
+ - Capitalism is about producing a better product at a better price. As individuals, we have to keep producing better products at a better price, also, or we’re obsolete.
+ - The good news is that it doesn’t cost much money to change your thinking. In fact, it can be done for free.
+ - Does God say, “cut back on the sunsets?” No, our Maker is abundant.
+ - Most people know how to set goals; few know how to achieve them.
+ - You have to look for teachers. If you want to be a mechanic, go hang out with mechanics.
+ - I can lose three million dollars because it’s just paper. Thus, my lifestyle is not dependent up the stock market.
+ - The faster you want to get rich, the more accurate with numbers you must be.
+ - As long as you have more cash flowing in than flowing out, your investment is a good investment.
+ - It’s when you take that first step opening a business or making an investment that it becomes real.
+ - The most important job of an entrepreneur is to design the business before there is a business.
+ - To be a good detective you must also think like a crook, an immoral, unethical or unlawful person.
+ - Texans don’t bury their failures. They get inspired by them. They take their failures and turn them into rallying cries. Failure inspires Texans to become winners. But that formula is not just the formula for Texans. It is formula for all winners.
+ - So the Marine Corps really did teach me to conquer fear, and then to go for higher causes, higher purposes.
+ - Sometimes, what is right for you at the beginning of your life is not the right thing for you at the end of your life.
+ - Rich dad has taught me “You can’t do it” doesn’t necessarily mean “you can’t”. It more often means “they can’t”.
+ - I’ve been saying this for years: There is no longer such a thing as a safe and secure job.
+ - I still consider myself a little, fat kid from Hawaii.
+ - Leadership is what you need to learn next.
+ - For there to be an expense, there must be income somewhere else.
+ - When you combine boring with fear, you have fun.
+ - A goal is different from a wish. You may wish to be rich, but there’s no responsibility for it. With a goal, it’s on you to achieve it.
+
+500 quotes

@@ -1,0 +1,45 @@
+ - Dyslexia is not due to a lack of intelligence, it’s a lack of access. It’s like, if you’re dyslexic, you have all the information you need, but find it harder to process.
+ - Being a gentleman is a worthy goal.
+ - I trained for three years at drama school to be an actor – not a celebrity.
+ - Women are beautiful. They deserve to be cherished and respected.
+ - Women, as mothers of the earth, deserve the utmost respect.
+ - I need to keep reinventing myself.
+ - I’m quite sensitive to women. I saw how my sister got treated by boyfriends. I read this thing that said when you are in a relationship with a woman, imagine how you would feel if you were her father. That’s been my approach, for the most part.
+ - A big part of what I wanted to do with this character was go from when I was a boy and try and develop into a man, really try and play him as a man who is on this search, on a journey of personal, spiritual, political, social discovery.
+ - If you have kids who are struggling with dyslexia, the greatest gift you can give them is the sense that nothing is unattainable. With dyslexia comes a very great gift, which is the way that your mind can think creatively.
+ - I’m still at the beginning of my career. It’s all a little new, and I’m still learning as I go.
+ - We have to make good use of the time we have. That simple. We have to wake up every day, knowing that it’s not just an ordinary day. We have to take the moment, seize each day.
+ - The philosophies behind meditation are very current today and are a way of finding some sort of peace.
+ - The process of making a movie is what I love. I thrive on that. It’s an exciting miracle, a mad adventure. I love being part of it.
+ - I don’t know any family that doesn’t have a story somewhere. Besides, it you didn’t have those things in life, you’d be so bland.
+ - My baby is amazing, even his head smells amazing. His breath, the whole thing, you could eat him!
+ - I know you can be up one minute and drop the next, so I’m trying to maintain a steady course so I can have some longevity.
+ - I hated kissing Zoe Saldana too! I was like, “Take your tongue out of my mouth, please. Your boyfriend is standing right there.” Most people think kissing beautiful costars must be great. But it’s always awkward, man.
+ - Creativity is the key for any child with dyslexia, or for anyone for that matter. Then you can think outside of the box. Teach them anything is attainable. Let them run with what you see is whatever they need to run with.
+ - The philosophy that I’ve embraced isn’t about sitting under a tree and studying my navel.
+ - A friend told me that teenage girls are always looking for someone to pin their dreams on. That doesn’t make it any less weird though.
+ - I’m amazed that things have panned out the way they have. I always say I’m so lucky, though my mum always says, ‘You make your own luck.’
+ - I got to dress up in funny clothes and run around New Zealand with a bow and arrow for 18 months, how bad could that be?
+ - My whole career has been fulfilling my childhood fantasies, playing characters that are larger than life, getting to play a knight, an elf, a prince, and a soldier.
+ - I’m probably a good boyfriend, but I’m pretty intense. When you’re with me it’s exciting, fun and very intense. At the same time, I’m easy going. But all that depends on what girl I’m with.
+ - Failure is simply the non-presence of success. But a fiasco is a disaster of mythic proportions.
+ - I mean, I have a great job. I get to dress up and become somebody else, especially when it’s someone like Legolas, who’s this super-cool kind of otherworldly elf. It’s, like, I’m lucky, man, so why would I not appreciate that?
+ - I just keep pinching myself that that’s my wife.
+ - I think a film set is a quite controlled environment and you feel like you can trust them and it is going to be a safe place to work, but I really don’t think about it.
+ - I’m trying to mix the cool, independent stuff with the big stuff, but it’s been difficult finding the right roles. It’s been an interesting ride as far as my career pendulum is concerned.
+ - If you read 50 books, I’ll get you a motor bike.
+ - I don’t do a film unless it has a sword in it. And if it doesn’t have a sword in it, I insist that they have one in the same room to keep me comfortable.
+ - The thing about fame, is you never think it’s going to happen to you. So when it does, it’s sort of a shock. Some people are just better at it than others.
+ - Lord of the Rings was my first experience making movies and at the time, I had no ideas how movies were done. I thought that’s the way they’re done, so in a way, I had nothing to compare it to.
+ - I try to take the time to appreciate and I certainly do appreciate and I do feel proud but that is probably one of the things I need to work on, building a bit of time for myself.
+ - Everything you know, all the things that you thought were important, drift into the background. And even things that were important really come to the fore and he’s one of them.
+ - I came back out here from England and I was there for a while and it was beautiful and it is just great to see London going from Spring to Summer and Autumn.
+ - My experience of singing, as an actor, was that there’s a different creative feeling of freedom. The acting thing is a bit more defined and cerebral. I can see why people would want to cross over. If you have so much freedom on stage then perhaps you want to be confined a bit, and vice versa.
+ - Obviously I always wanted to do a contemporary piece.
+ - I don’t care much about the money at all. Frankly, if I get the chance to kiss someone in a movie, they wouldn’t need to pay me at all.
+ - When everyone around you is doing all this incredible pirate acting and you’re having to sort of play the straight guy and move the story forward, you kind of want to be doing some of that pirate ripping it up stuff, but in truth, to be a part of that project is what I love.
+ - Yeah, I mean the material, directors, the other cast, and if you think you can do something with the character then you do it and go from there. I am looking forward to doing some smaller movies.
+ - I feel really privileged to be an actor, to be paid to do something I love.
+ - Wanting to be a rock star, I get it. I’m like, ‘Oh, my God, dude! The freedom!’
+
+43 quotes

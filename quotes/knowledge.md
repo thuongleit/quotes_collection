@@ -1,0 +1,42 @@
+ - Knowledge is of no value unless you put it into practice. ~~Anton Chekhov
+ - Any fool can know. The point is to understand. ~~Albert Einstein
+ - To acquire knowledge, one must study; but to acquire wisdom, one must observe. ~~Marilyn Vos Savant
+ - When you know better you do better. ~~Maya Angelou
+ - The improvement of understanding is for two ends: first, our own increase of knowledge; secondly, to enable us to deliver that knowledge to others. ~~John Locke
+ - Information is just bits of data. Knowledge is putting them together. Wisdom is transcending them. ~~Ram Dass
+ - Where there is shouting, there is no true knowledge. ~~Leonardo da Vinci
+ - Knowledge that is not put into practice is like food that is not digested. ~~Sathya Sai Baba
+ - Beware of false knowledge; it is more dangerous than ignorance. ~~George Bernard Shaw
+ - Ignorance is a virus. Once it starts spreading, it can only be cured by reason. For the sake of humanity, we must be that cure. ~~Neil deGrasse Tyson
+ - A loving heart is the beginning of all knowledge. ~~Thomas Carlyle
+ - Science is organized knowledge. Wisdom is organized life. ~~Immanuel Kant
+ - Faith is a knowledge within the heart, beyond the reach of proof. ~~Khalil Gibran
+ - If you have knowledge, let others light their candles in it. ~~Margaret Fuller
+ - Science is a way of thinking much more than it is a body of knowledge. ~~Carl Sagan
+ - Mathematics is the key and door to the sciences. ~~Galileo Galilei
+ - I am enough of an artist to draw freely upon my imagination. Imagination is more important than knowledge. Knowledge is limited. Imagination encircles the world. ~~Albert Einstein
+ - Knowledge is power but only wisdom is liberty. ~~Will Durant
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. ~~Isaac Asimov
+ - One does not become enlightened by imagining figures of light, but by making the darkness conscious. ~~C.G. Jung
+ - Knowledge is power. ~~Francis Bacon
+ - Imagination is more important than knowledge. ~~Albert Einstein
+ - The true sign of intelligence is not knowledge but imagination. ~~Albert Einstein
+ - Knowledge is knowing a tomato is a fruit; wisdom is not putting it in a fruit salad. ~~Miles Kington
+ - Real knowledge is to know the extent of one’s ignorance. ~~Confucius
+ - The greatest obstacle to discovery is not ignorance – it is the illusion of knowledge. ~~Daniel J. Boorstin
+ - If money is your hope for independence, you will never have it. The only real security that a man can have in this world is a reserve of knowledge, experience and ability. ~~Henry Ford
+ - Information is not knowledge. ~~Albert Einstein
+ - There is no substitute for knowledge. ~~W. Edwards Deming
+ - For me, I am driven by two main philosophies: know more today about the world than I knew yesterday and lessen the suffering of others. You’d be surprised how far that gets you. ~~Neil deGrasse Tyson
+ - Education is learning what you didn’t even know you didn’t know. ~~Daniel J. Boorstin
+ - The art of being wise is the art of knowing what to overlook. ~~William James
+ - Reading furnishes the mind only with materials of knowledge; it is thinking that makes what we read ours. ~~John Locke
+ - Know, first, who you are, and then adorn yourself accordingly. ~~Epictetus
+ - You have to know the past to understand the present. ~~Carl Sagan
+ - It is the supreme art of the teacher to awaken joy in creative expression and knowledge. ~~Albert Einstein
+ - Knowledge comes, but wisdom lingers. ~~Alfred Tennyson
+ - The desire of knowledge, like the thirst of riches, increases ever with the acquisition of it. ~~Laurence Sterne
+ - You never know what is enough unless you know what is more than enough. ~~William Blake
+ - A little learning is a dangerous thing. ~~Alexander Pope
+
+40 quotes

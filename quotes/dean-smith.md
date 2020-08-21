@@ -1,0 +1,47 @@
+ - You should just do the right thing.
+ - A lion never roars after a kill.
+ - What do do with a mistake: recognize it, admit it, learn from it, forget it.
+ - Basketball is a beautiful game when the five players on the court play with one heartbeat.
+ - You should never be proud of doing the right thing. You should just do it.
+ - The most important thing in good leadership is truly caring.
+ - If you treat every situation as a life and death matter, you’ll die a lot of times.
+ - I only use statistics to reinforce what I already think, or if it’s something unusual.
+ - The truly free person in society is a disciplined person.
+ - Good people are happy when something good happens to someone else.
+ - Given the fact that we are in a capitalist society, we still do not want to overlook not only what a corporation produces and its profitability but also how it impacts the environment, touches human life and whether it protects or undermines the dignity of the human person.
+ - The key statistic is still to get to the foul line.
+ - I do believe in praising that which deserves to be praised.
+ - There is a point in every contest when sitting on the sidelines is not an option.
+ - One player’s selfish attitude can poison a locker room and make it hard, if not impossible, to establish team work.
+ - If you make every game a life and death proposition, you’re going to have problems. For one thing, you’ll be dead a lot.
+ - There is a lot of basketball beyond our control, but a player should never let anyone try harder than he does.
+ - I would never recruit a player who yells at his teammates, disrespected his high school coach, or scores 33 points a game and his team goes 10-10.
+ - I always mean what I say, but I don’t always say what I’m thinking.
+ - The best way to build team chemistry is the way Rupp used to substitute, when they fouled out.
+ - Only praise behavior that you want to be repeated. Never use false praise.
+ - You can’t teach court savvy.
+ - The presidents of colleges have to have some courage to step forward. You can’t limit alcohol in college sports, you have to get rid of it.
+ - Our teachers at the public school level are the most underpaid for the importance of their job in America.
+ - Motor cut. Forced landing. Hit cow. Cow died. Scared me.
+ - Michael, if you can’t pass, you can’t play.
+ - The best way to stop the problem of agents would be for the NCAA to come down hard and suspend a school for two years if it finds players with agents on campus.
+ - The focus should be on the players. I’m here a long time. You can call me in the summer. Our seniors will be gone.
+ - Basketball is a team game. But that doesn’t mean all five players should have the same amount of shots.
+ - I enjoy basketball. I enjoy coaching basketball. It’s the out-of-season stuff I didn’t handle well.
+ - As soon as you try to describe a close friendship, it loses something.
+ - The death penalty makes us all murderers.
+ - Over coaching is the worst thing you can do to a player.
+ - I know a lawyer who’d love to retire and be an assistant coach. I mean, it’s fun.
+ - The coach’s job is to be part servant in helping each player reach his goals within the team concept.
+ - I’d never get elected if people in North Carolina realized how liberal I am.
+ - I wasn’t as critical during games as I was at practice. Players needed confidence during games more than criticism.
+ - I’ve always believed in quickness over strength and size.
+ - Everyone on the bench stands for the man coming out of the game.
+ - You should sub a player out when you see a player not going full-speed or playing selfish basketball.
+ - I’d like to see the high schools put in a rule that limits recruitable athletes from playing on teams outside a 100-mile radius from their home or school.
+ - Any old coach will say the game was meant for finesse. It’s a beautiful game, especially on television.
+ - I think the real free person in society is one that’s disciplined. It’s the one that can choose; that is the free one.
+ - The real issue is not if a crossing is put in, but when. It would be negligent on the part of Union Pacific and the California Public Utilities Commission to not address the problem.
+ - Always have your players go and pick-up the guy who draws the charge.
+
+45 quotes

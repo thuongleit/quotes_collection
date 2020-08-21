@@ -1,0 +1,22 @@
+ - I’m pro-life. I’m pro-gun. I’m pro-family. And I’m pro-business.
+ - When I look at President Obama, I see a leader with a cool head, a caring heart and an open mind, a president who has demonstrated through his demeanor and through his deeds that he is uniquely qualified to heal our divisions, rebuild our nation and lead us to a brighter future together.
+ - Hurricane Charley is the worst natural disaster to befall our state in a dozen years, and it is unthinkable that anyone would try to take advantage of neighbors at a time like this,.
+ - It’s more important to promote a culture of life. What I mean by that is that I believe what we need to do is not change the law, but change hearts.
+ - I didn’t leave the Republican Party. It left me.
+ - Half a century ago, Ronald Reagan, the man whose relentless optimism inspired me to enter politics, famously said that he didn’t leave the Democratic Party; the party left him. I can certainly relate. I didn’t leave the Republican Party; it left me.
+ - As Realtors, you live and breathe the American dream.
+ - I’m a conservative, and I’m a compassionate conservative. And I think it’s important that Florida continues to move in that direction.
+ - I’ll continue to fight for school choice and home schooling. Do I believe in accountability? You bet I do.
+ - Can you even imagine not hugging?
+ - President Obama has a strong record of doing what is best for America and Florida, and he built it by spending more time worrying about what his decisions would mean for the people than for his political fortunes.
+ - I’m here tonight, not as a Republican, not as a Democrat, but as an optimistic American who understands that we must come together behind the one man who can lead the way forward in these challenging times: my president, our president, Barack Obama!
+ - I’ve decided to do it, for the pure and simple reason that I just think it’s the right thing to do.
+ - Any person, institution or organization that conveys bodies or parts of bodies into or out of the state for medical education or research purposes shall notify the Anatomical Board of such intent and receive approval from the board.
+ - You know, as attorney general, there’s no issue more important than making sure you are safe, that your families are safe.
+ - I was a Republican, and I saw the activists and what they were doing; it was intolerable to me.
+ - I’ll be honest with you, I don’t agree with President Obama about everything. But I’ve gotten to know him, I’ve worked with him, and the choice is crystal clear.
+ - DiCaprio left the party with 20 women? I did that in 2012!
+ - You can trust Charlie Crist.
+ - When I was a Republican governor, he was obviously a Democratic president, but on issue after issue after issue, President Obama was very helpful to us in education, in the environment, with the handling of the BP oil spill.
+
+20 quotes

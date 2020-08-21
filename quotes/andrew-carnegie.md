@@ -1,0 +1,118 @@
+ - If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes.
+ - People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents.
+ - You are what you think. So just think big, believe big, act big, work big, give big, forgive big, laugh big, love big and live big.
+ - Young man, make your name worth something.
+ - Teamwork is the ability to work together toward a common vision. The ability to direct individual accomplishments toward organizational objectives. It is the fuel that allows common people to attain uncommon results.
+ - TEAMWORK: the fuel that allows common people attain uncommon results.
+ - There is little success where there is little laughter.
+ - Anything in life worth having is worth working for.
+ - Teamwork is the ability to work together toward a common vision.
+ - You develop millionaires the way you mine gold. You expect to move tons of dirt to find an ounce of gold, but you don’t go into the mine looking for the dirt-you go in looking for the gold.
+ - Teamwork appears most effective if each individual helps others to succeed, increasing the synergy of that team; ideally, every person will contribute different skills to increase the efficiency of the team and develop its unity.
+ - Show me a man of average ability but extraordinary desire and I’ll show you a winner every time.
+ - One great cause of failure of young men in business is the lack of concentration.
+ - Any idea that is held in the mind that is either feared or revered will, begin at once to clothe itself in the most convenient and appropriate physical forms available.
+ - The best time to expand is when no one else dares to take risks.
+ - A library outranks any other one thing a community can do to benefit its people. It is a never failing spring in the desert.
+ - The older I get the less I listen to what people say and the more I look at what they do.
+ - I am no longer cursed by poverty because I took possession of my own mind, and that mind has yielded me every material thing I want, and much more than I need. But this power of mind is a universal one, available to the humblest person as it is to the greatest.
+ - Capitalism is about turning luxuries into necessities.
+ - Concentrate your energies, your thoughts and your capital. The wise man puts all his eggs in one basket and watches the basket.
+ - The man who dies rich, dies disgraced.
+ - The wise young man or wage earner of today invests his money in real estate.
+ - The secret of success lies not in doing your own work, but in recognizing the right man to do it.
+ - The greatest astonishment of my life was the discovery that the man who does the work is not the man who gets rich.
+ - Wealth is not to feed our egos but to feed the hungry and to help people help themselves.
+ - I spent the first half of my life making money and the second half of my life giving it away to do the most good and the least harm.
+ - Here is the prime condition of success: Concentrate your energy, thought and capital exclusively upon the business in which you are engaged. Having begun on one line, resolve to fight it out on that line, to lead in it, adopt every improvement, have the best machinery, and know the most about it.
+ - Ninety percent of all millionaires become so through owning real estate. More money has been made in real estate than in all industrial investments combined. The wise young man or wage earner of today invests his money in real estate.
+ - There is a power under your control that is greater than poverty, greater than the lack of education, greater than all your fears and superstitions combined. It is the power to take possession of your own mind and direct it to whatever ends you may desire.
+ - Don’t be content with doing only your duty. Do more than your duty. It’s the horse that finishes a neck ahead that wins the race.
+ - The more difficult a problem becomes, the more interesting it is.
+ - My hopes were high, and I looked every day for some change to take place. What it was to be I knew not, but that it would come I felt certain if I kept on. One day the chance came.
+ - I wish to have as my epitaph: ‘Here lies a man who was wise enough to bring into his service men who knew more than he.’
+ - The secret of happiness is renunciation.
+ - Do not look for approval except for the consciousness of doing your best.
+ - Ninety percent of all millionaires become so through owning real estate.
+ - No man becomes rich unless he enriches others.
+ - The rare individuals who unselfishly try to serve others have an enormous advantage-they have little competition.
+ - Success can be attained in any branch of labor. There’s always room at the top in every pursuit.
+ - Watch the costs and the profits will take care of themselves.
+ - Here lies one who knew how to get around him men who were cleverer than himself.
+ - There is no use whatsoever in trying to help people who do not help themselves.
+ - It is more difficult to give money away intelligently than to earn it in the first place.
+ - A sunny disposition is worth more than fortune.
+ - Pioneering don’t pay.
+ - Every act you have ever performed since the day you were born was performed because you wanted something.
+ - Men who reach decisions promptly usually have the capacity to move with definiteness of purpose in other circumstances.
+ - He that cannot reason is a fool.
+ - It is not the rich man’s son that the young struggler for advancement has to fear in the race for life, nor his nephew, nor his cousin. Let him look out for the dark horse in the boy who begins by sweeping out the office.
+ - Humanities education is the worst thing for an industrialist.
+ - Success is the power to acquire whatever one demands of life without violating the rights of others.
+ - There are two types of people who never achieve very much in their lifetimes. One is the person who won’t do what he or she is told to do, and the other is the person who does no more than he or she is told to do.
+ - When fate hands us a lemon, let’s try to make lemonade.
+ - It marks a big step in your development when you come to realize that other people can help you do a better job than you could do alone.
+ - Mutual ignorance breeds mutual distrust.
+ - Touch his head, and he will bargain and argue with you to the last; Touch his heart, and he falls upon your breast.
+ - The only irreplaceable capital an organization possesses is the knowledge and ability of its people. The productivity of that capital depends on how effectively people share their competence with those who can use it.
+ - I choose free libraries as the best agencies for improving the masses of the people, because they give nothing for nothing. They only help those who help themselves.
+ - Do real and permanent good in this world.
+ - Be king in your dreams. Make your vow that you will reach that position, with untarnished reputation, and make no other vow to distract your attention.
+ - The sole purpose of being rich is to give away money.
+ - I give money for church organs in the hope the organ music will distract the congregation’s attention from the rest of the service.
+ - There is no idol more debasing than the worship of money.
+ - I shall argue that strong men, conversely, know when to compromise and that all principles can be compromised to serve a greater principle.
+ - Strength is derived from unity. The range of our collective vision is far greater when individual insights become one.
+ - Why should men leave great fortunes to their children? If this is done from affection, is it not misguided affection? Observation teaches that, generally speaking, it is not well for the children that they should be so burdened.
+ - Give me the life of the boy whose mother is nurse, seamstress, washerwoman, cook, teacher, angel, and saint, all in one, and whose father is guide, exemplar, and friend. No servants to come between. These are the boys who are born to the best fortune.
+ - The surest foundation of a manufacturing concern is quality. After that, and a long way after, comes cost.
+ - Any person can achieve greatness if they understand the philosophy of success and the steps required to achieve it.
+ - I believe that the road to pre-eminent success in any line of work is to make yourself master of that line of work.
+ - The man of business knows that only by years of patient, unremitting attention to affairs can he earn his reward, which is the result, not of chance, but of well-devised means for the attainment of ends.
+ - Three generations from shirtsleeves to shirtsleeves.
+ - I would as soon leave my son a curse as the almighty dollar.
+ - All honor’s wounds are self-inflicted.
+ - Surplus wealth is a sacred trust to be managed for the good of others.
+ - The morality of compromise sounds contradictory.
+ - The worlds civilization started from the day on which everyone received reward for labour.
+ - Steel is prince or pauper.
+ - All is well since all grows better.
+ - A man’s reading program should be as carefully planned as his daily diet, for that too is food, without which he cannot grow mentally.
+ - There is not such a cradle of democracy upon the earth as the Free Public Library, this republic of letters, where neither rank, office, nor wealth receives the slightest consideration.
+ - A business is seldom if ever built up except on lines of strictest integrity.
+ - There is no way of making a business successful that can vie with the policy of promoting those who render exceptional service.
+ - That 95 per cent. fail of those who start in business upon their own account seems incredible, and yet such are said to be the statistics upon the subject.
+ - There is scarcely an instance of a man who has made a fortune by speculation and kept it.
+ - I will give a million dollars for any convincing proof of a future life.
+ - I began to learn what poverty meant. It was burnt in my heart then that my father had to beg for work and there came the resolve that I would cure that when I got to be a man.
+ - Pittsburgh entered the core of my heart when I was a boy and cannot be torn out.
+ - The man who dies leaving behind him millions of available wealth, which was his to administer during his life, will pass away unwept, unhonoured and insung no matter to what uses he leaves the dross which he cannot take with him.
+ - Upon the sacredness of property civilization itself depends-the right of the laborer to his hundred dollars in the savings bank, and equally the legal right of the millionaire to his millions.
+ - Strong men don’t compromise, it is said, and principles should never be compromised.
+ - The Republic may not give wealth or happiness, she has not promised these. It is the freedom to pursue these, not their realization, we can claim.
+ - Every man gravitates to where he belongs in life, just as surely as water seeks and finds its level. His position is measured precisely by the quality and quantity of the service he renders, plus the mental attitude with which he relates himself to other people...
+ - Speculation is a parasite feeding upon values, creating none.
+ - When I did big things, some large corporations like the Pennsylvania Railroad Company were behind me and responsible party.
+ - Those who would administer wisely must, indeed, be wise, for one of the serious obstacles to the improvement of our race is indiscriminate charity.
+ - Nothing tells in the long run like a good judgment, and no sound judgment can remain with the man whose mind is disturbed by the mercurial changes of the stock exchange. It places him under an influence akin to intoxication. What is not, he sees, and what he sees, is not.
+ - It was from my own early experience that I decided there was no use to which money could be applied so productive of good to girls and boys who have good within them and ability and ambition to develop it as the founding of a public library.
+ - The average person puts only 25% of his energy and ability into his work.
+ - A word, a look, an accent, may affect the destiny not only of individuals, but of nations. He is a bold man who calls anything a trifle.
+ - Instead of the question “What must I do for my employer?” substitute “What can I do”
+ - It is trying to be other than one’s self that unmans one. Be your own natural self and go ahead.
+ - Not evil, but good, has come to the race from the accumulation of wealth by those who have the ability and energy that produce it.
+ - Life is not so much a matter of position as of disposition.
+ - The problem of our age is the proper administration of wealth, so that the ties of brotherhood may still bind together the rich and poor in harmonious relationship.
+ - Neither the individual nor the race is improved by almsgiving. The best means of benefiting the community is to place within its reach the ladders upon which the aspiring can rise.
+ - The battle of life is already half won by the young man who is brought in contact with high officials; and the great aim of every boy should be to do something beyond the sphere of his duties- something which attracts the attention of those over him.
+ - Do not think a man has done his full duty when he has performed the work assigned him. A man will never rise if he does only this. Promotion comes from exceptional work.
+ - I don’t believe in God. My God is patriotism. Teach a man to be a good citizen and you have solved the problem of life.
+ - Golf is an indispensable adjunct to high civilisation.
+ - What one does easily, one does well.
+ - A man who was generous with his wealth. It has been reported that during his lifetime, Carnegie gave away over $350 million of his money to help others.
+ - I can’t afford to pay them any other way.
+ - There is nothing that robs a righteous cause of its strength more than a millionaire’s money.
+ - I have had a long, long life full of troubles, but there is one curious fact about them-nine-tenths of them never happened.
+ - If it is right that schools should be maintained by the whole community for the well-being of the whole, it is right also that libraries should be so maintained.
+
+116 quotes

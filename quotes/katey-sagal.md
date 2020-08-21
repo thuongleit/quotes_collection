@@ -1,0 +1,69 @@
+ - I don’t like violence.
+ - I love interpreting other people’s music.
+ - The reason people are watching women in their mid-fifties is because a lot of those women feel great and have different, interesting stories to tell.
+ - I’ve never worked on a lawyer show for a long time, but I imagine the actors all start acting like lawyers.
+ - You know, it’s hard sometimes to just detach yourself from what you’re doing.
+ - I love to perform live.
+ - I’ve certainly experienced physical pain in my life.
+ - It’s great to be mean, it is, it’s fun.
+ - I’m a pretty emotional person.
+ - I think we respond well when we do something well.
+ - It’s so weird that I play this woman who pretty much deals with violence on a daily basis, and I’m such a wimp in who I am.
+ - I was very rebellious.
+ - I don’t know, Y’know, I always wanted to be one of those cheerleader girls and I never was that, and I was never sort of cute and perky, and I always thought it was fun to be cute and perky, and those, I don’t know what those girls are doing now.
+ - We all have that desire to be kind of wild and bad.
+ - Being a mother has been my greatest teacher and also the most self-sacrificing thing I’ve ever done.
+ - I’m a better mother if I’m also doing my work. Some women find a lot more satisfaction from doing the hardest job, which is being a mom. But I like my day job, so I juggle a lot.
+ - I really like sort of disappearing.
+ - There’s so many great songs already written, it’s kind of really wonderful you don’t have to write your own.
+ - I made a living being a background singer for years.
+ - I do a lot of writing about my family.
+ - When they say laughter is healing, it absolutely is the truth.
+ - But I started it when I was going through a transitional time in my life. At the end of it, it really sort of symbolized it. I had made room to change, and room to grow. I recorded it in a little room.
+ - When you grow up around it, I just watched my father work really hard. He wasn’t around as much as I would have liked. And when I grew up, I understood why.
+ - I work with all these amazing voice actors that do a kajillion voices.
+ - Music is extremely intuitive, which acting too in a different way.
+ - I have teenagers, so I listen to a lot of music. They turn me on to great music.
+ - I had to accept the fact that sometimes things happen that are out of our hands.
+ - You realize mortality is everywhere.
+ - So you know, my plan was that I was going to make records, and be a rock star. And that’s really what I wanted to do. And I sang from the time I was very young.
+ - I loved Peg Bundy. I am so happy that I got to do that. It was really fun.
+ - You know, episodic TV directing is a very long and arduous job. You have very short schedules, short short shooting days, and you have to get lot of pages done.
+ - I have pretty strong views about censorship, and I don’t like it. I believe that we should be able to monitor our own families and our own children.
+ - For me it’s also – the music is equally as important. I mean I think as somebody who writes music, there just has to sort of be the marriage between both.
+ - My thing about having another child was, time’s-a-wasting!
+ - I’m very comfortable as a singer. In fact, I think it’s more – I identified my self-esteem, my self more in those ways when I was growing up. I really – it was kind of my calling card as a kid.
+ - Each time I seem to go through one of life’s huge things, I want to play music.
+ - There isn’t a lot written about the motorcycle culture.
+ - I think I’m a soulful singer.
+ - I have this whole new audience now.
+ - I grew up listening to a lot of soul music, and a lot of folk music.
+ - I like when everything’s naturally moving along – I find that pretty exciting.
+ - It’s a conversation that nobody really likes to have, and it seems that we never can get to a solution with it and something horrific happens. We all stand back and say, “How could we let that happen?” and then it goes away and we move on.
+ - I’ve never played a character that would sing.
+ - I’m a big ‘American Idol’ watcher, and sometimes I like to watch ‘America’s Got Talent.’ Those are big, corny admissions, but sometimes it’s so fun to see those kids really sing their hearts out.
+ - My father was a director, and he used to always tell me, “You should be an actress.” When I was 17, he gave me a job so that I’d be in the union.
+ - You know, we travelled a lot when I was a kid because my father was wherever the work was.
+ - I would literally have to go meet people so they could see I didn’t have big red hair and wear high heels constantly. It was just really ingrained in people.
+ - Anytime I am asked to use my creativity as a way to be of service, I consider it an opportunity I cannot refuse. This experience was truly a pleasure. Scott’s enthusiasm is infectious His voice is soothing and beautiful at the same time.
+ - I don’t live in an outlaw world and I don’t carry a gun.
+ - I didn’t actually begin professionally acting until I was 30.
+ - When you tour with a band, you’re just out there, and it’s just you guys. That’s your little universe. If you do a play, it’s the same deal. That becomes your world, for the cast and crew.
+ - I’ve done comedy most of my career, which I love, but I wanted to expand.
+ - I do tend to play characters that have a lot of costume and hair change. I sort of like the change of physicality thing.
+ - And this one I wanted to do some covers. So I just really sang some of my favorite songs.
+ - To be shapely when you’re in the seventh grade is not exactly what everyone’s looking for, or they weren’t then, as someone was telling me the other day. now, that’s like a really great thing to do, to be, but then it wasn’t.
+ - It’s sort of the mixed blessing of being on television for so long in one thing; sometimes that backfires, in that you’re not able to continue on.
+ - And I think that’s why I was going to be a musician. I was very rebellious. And I didn’t want to be an actor. My father used to say to me you should be an actor if you want to be in the arts.
+ - It was never about sort of being famous. I just wanted to be good at what I did.
+ - I was kind of lost for several years.
+ - And I like to interpret music. So I think it’s all interpretive.
+ - Going to set was always a great release.
+ - Generally, I find a lot to be grateful for.
+ - My parents were very artistic, but busy.
+ - I don’t take story input from fans.
+ - I think the biggest change has been realizing I now have three children.
+ - Um, I have an enormous faith in God. I have an enormous support system that also has that same belief.
+ - I’ve never loved anybody the way I love my children.
+
+67 quotes

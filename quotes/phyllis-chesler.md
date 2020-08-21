@@ -1,0 +1,22 @@
+ - Time is life. Anyone who wastes my time is killing me. Please don’t!
+ - Ideal mental health, like freedom, exists for one person only if it exists for all people.
+ - Only the powerless live in a money culture and know nothing about money.
+ - Most mother-women give up whatever ghost of a unique and human self they may have when they ‘marry’ and raise children.
+ - It is no accident that stock exchange floors – in addition to bedroom floors – bring out the noisy blood, the flushed cheek, and the passionate cries of men. Most men are making love when they make ‘magical’ amounts of money.
+ - Good people in the West have often failed to distinguish between Islam and Islamism...
+ - For most women, being seen, having others pay attention to you, is imagined and experienced as more desirable and more powerful than commanding an army or seizing control of the means of production and reproduction.
+ - Sexual pleasure is not a sin. Nor is it a sacrament. It is your right as a human being to exercise as you see fit. It’s amazing that I feel the need to say this, but, given our times, I do.
+ - Afghans excel at fighting Afghans. This is what Afghans do, even when they are not being invaded by foreign powers. They fight each other, tribe against tribe, brother against brother, half-brother against half-brother, cousin against cousin, uncle against nephew, father against son.
+ - Many ‘natural’ events – like early death, disease, hardship – are neither desirable nor necessary.
+ - Women must begin to “save” themselves and their daughters before they “save” their husbands and their sons; before they “save” the whole world.
+ - All men are not rapists – but almost all rapists are men.
+ - Feminism is a way of understanding reality, not just a series of things to do. Feminism challenges our predilection for one right answer, one right God, one size fits all.
+ - If it were natural for father to care for their sons, they would not need so many laws commanding them to do so.
+ - Goddesses never die. They slip in and out of the world’s cities, in and out of our dreams, century after century, answering to different names, dressed differently, perhaps even disguised, perhaps idle and unemployed, their official altars abandoned, their temples feared or simply forgotten.
+ - How sad that men would base an entire civilization on the principle of paternity, upon the legal owership and presumed responsibility for children, and then never really get to know their sons and daughters very well.
+ - Women must convert their love for and reliance on strength and skill in others to a love for all manner of strength and skill in themselves.
+ - Jews have always yearned for Jerusalem, from which they’d been exiled many times, but they also yearned for each and every one of the countries where they had been persecuted and where their ancestors once lived and are still buried.
+ - The West has funded the war against itself by buying Arab oil. It is as simple and as tragic as that.
+ - Perhaps only some young women, perhaps only a minority of all women, will be able to effect such changes through consciousness alone, through the strength of understanding, which, if transformed into wisdom, always means the performance of necessary actions.
+
+20 quotes

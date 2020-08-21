@@ -1,0 +1,34 @@
+ - I am not afraid of tomorrow, for I have seen yesterday and I love today.
+ - In education, we are striving not to teach youth to make a living, but to make a life.
+ - Liberty is the only thing you cannot have unless you are willing to give it to others.
+ - Peace without justice is tyranny.
+ - Since others have to tolerate my weaknesses, it is only fair that I should tolerate theirs.
+ - Youth should be radical. Youth should demand change in the world. Youth should not accept the old order if the world is to move on.
+ - Any appeasement of tyranny is treason.
+ - As a matter of fact student riots of one sort or another, protests against the order that is, kicks against college and university management indicate a healthy growth and a normal functioning of the academic mind.
+ - I fear vastly more a futile, incompetent old age than I do any form of death.
+ - A little learning is not a dangerous thing to one who does not mistake it for a great deal.
+ - My advice to the women of America is to raise more hell and fewer dahlias.
+ - Never use the word, ‘very.’ It is the weakest word in the English language; doesn’t mean anything. If you feel the urge of ‘very’ coming on, just write the word, ‘damn,’ in the place of ‘very.’ The editor will strike out the word, ‘damn,’ and you will have a good sentence.
+ - The talent of a meat packer, the morals of a money changer, and the manners of an undertaker.
+ - If our colleges and universities do not breed men who riot, who rebel, who attack life with all the youthful vim and vigor, then there is something wrong with our colleges. The more riots that come on college campuses, the better world for tomorrow.
+ - The facts fairly and honestly presented; truth will take care of itself.
+ - We say that money talks, but it speaks a broken, poverty-stricken language. Hearts talk better, clearer, and with wider intelligence.
+ - Whenever a free man is in chains we are threatened also. Whoever is fighting for liberty is defending America.
+ - There is no insanity so devastating in man’s life as utter sanity.
+ - Dip your pen into your arteries and write.
+ - You can have no wise laws nor free enforcement of wise laws unless there is free expression of the wisdom of the people – and, alas, their folly with it. But if there is freedom, folly will die of its own poison, and the wisdom will survive.
+ - I would rather have written Fables in Slang than be President.
+ - I have tried to teach people there are three kicks in every dollar: one, when you make it; two, when you have it. The third kick it when you give it away – and it is the biggest kick of all.
+ - The more riots that come out of our college campuses, the better the world for tomorrow.
+ - Whoever tramples on the plea for justice temperately made in the name of peace only outrages peace and kills something fine in the heart of man which God put there when we got our manhood.
+ - I have never been bored an hour in my life. I get up every morning wondering what new strange glamorous thing is going to happen and it happens at fairly regular intervals.
+ - Democracy is an experiment, and the right of the majority to rule is no more inherent than the right of the minority to rule; and unless the majority represents sane, righteous, unselfish public sentiment, it has no inherent right.
+ - We all have weaknesses. But I have figured that others have put up with mine so tolerably that I would be much less than fair not to make a reasonable discount for theirs.
+ - Reason has never failed men. Only force and repression have made the wrecks in the world.
+ - Greatness, generally speaking, is an unusual quantity of a usual quality grafted upon a common man.
+ - From 4 to 6 percent of the presidential office is not in administration but in morals, politics, and spiritual leadership. He has to guide a people in the greatest adventure ever undertaken on the planet.
+ - Every one expects to go further than his father went; every one expects to be better than he was born and every generation has one big impulse in its heart – to exceed all the other generations of the past in all the things that make life worth living.
+ - You say that freedom of utterance is not for time of stress, and I reply with the sad truth that only in time of stress is freedom of utterance in danger? Only when free utterance is suppressed is it needed, and when it is needed it is most vital to justice.
+
+32 quotes

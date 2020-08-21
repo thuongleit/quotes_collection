@@ -1,0 +1,84 @@
+ - Mathematics is the language with which God has written the universe.
+ - The book of nature is written in the language of mathematics.
+ - Mathematics is the key and door to the sciences.
+ - Passion is the genesis of genius.
+ - Eppur si muove.
+ - To understand the Universe, you must understand the language in which it’s written, the language of Mathematics.
+ - I’ve loved the stars too fondly to be fearful of the night.
+ - We cannot teach people anything; we can only help them discover it within themselves.
+ - I have never met a man so ignorant that I couldn’t learn something from him.
+ - Measure what is measurable, and make measurable what is not so.
+ - Nature’s great book is written in mathematics.
+ - I do not feel obliged to believe that the same God who has endowed us with sense, reason, and intellect has intended us to forego their use.
+ - You cannot teach a person something he does not already know, you can only bring what he does know to his awareness.
+ - Where the senses fail us, reason must step in.
+ - Two truths cannot contradict one another.
+ - The Bible shows the way to go to heaven, not the way the heavens go.
+ - If I were again beginning my studies, I would follow the advice of Plato and start with mathematics.
+ - The Universe is a grand book which cannot be read until one first learns to comprehend the language and become familiar with the characters in which it is composed. It is written in the language of mathematics.
+ - Knowing thyself, that is the greatest wisdom.
+ - God is known by nature in his works, and by doctrine in his revealed word.
+ - You can’t teach anybody anything, only make them realize the answers are already inside them.
+ - The greatest wisdom is to get to know oneself.
+ - Nonetheless, it moves.
+ - Wine is sunlight, held together by water.
+ - All truths are easy to understand once they are discovered; the point is to discover them.
+ - The sun, with all those planets revolving around it and dependent on it, can still ripen a bunch of grapes as if it had nothing else in the universe to do.
+ - What has philosophy got to do with measuring anything? It’s the mathematicians you have to trust, and they measure the skies like we measure a field.
+ - The Milky Way is nothing else but a mass of innumerable stars planted together in clusters.
+ - It is a beautiful and delightful sight to behold the body of the Moon.
+ - In questions of science, the authority of a thousand is not worth the humble reasoning of a single individual.
+ - You may force me to say what you wish; you may revile me for saying what I do. But it moves.
+ - See now the power of truth.
+ - Who would dare assert that we know all there is to be known?
+ - There are those who reason well, but they are greatly outnumbered by those who reason badly.
+ - I, Galileo, son of the late Vicenzo Galilei, swear that I never said that the prime numbers are useless. What I said was that you cannot count lunar craters by counting 2, 3, 5, 7...
+ - Nothing occurs contrary to nature except the impossible, and that never occurs.
+ - See now the power of truth; the same experiment which at first glance seemed to show one thing, when more carefully examined, assures us of the contrary.
+ - Philosophy is written in that great book which ever lies before our eyes – I mean the universe – but we cannot understand it if we do not first learn the language and grasp the symbols, in which it is written.
+ - In my studies of astronomy and philosophy I hold this opinion about the universe, that the Sun remains fixed in the centre of the circle of heavenly bodies, without changing its place; and the Earth, turning upon itself, moves round the Sun.
+ - By denying scientific principles, one may maintain any paradox.
+ - Nature is relentless and unchangeable, and it is indifferent as to whether its hidden reasons and actions are understandable to man or not.
+ - Facts which at first seem improbable will, even on scant explanation, drop the cloak which has hidden them and stand forth in naked and simple beauty.
+ - I truly believe the book of philosophy to be that which stands perpetually open before our eyes, though since it is written in characters different from those of our alphabet it cannot be read by everyone.
+ - My dear Kepler, what would you say of the learned here, who, replete with the pertinacity of the asp, have steadfastly refused to cast a glance through the telescope? What shall we make of this? Shall we laugh, or shall we cry?
+ - Science proceeds more by what it has learned to ignore than what it takes into account.
+ - The prohibition of science would be contrary to the Bible, which in hundreds of places teaches us how the greatness and the glory of God shine forth marvelously in all His works, and is to be read above all in the open book of the heavens.
+ - The hypothesis is pretty; its only fault is that it is neither demonstrated nor demonstrable. Who does not see that this is purely arbitrary fiction that puts nothingness as existing and proposes nothing more than simple noncontradiciton?
+ - Names and attributes must be accommodated to the essence of things, and not the essence to the names, since things come first and names afterwards.
+ - I do not know what to say in a case so surprising, so unlooked for and so novel.
+ - The deeper I go in considering the vanities of popular reasoning, the lighter and more foolish I find them. What greater stupidity can be imagined than that of calling jewels, silver, and gold “precious,” and earth and soil “base”?
+ - The doctrine that the earth is neither the center of the universe nor immovable, but moves even with a daily rotation, is absurd, and both philosophically and theologically false, and at the least an error of faith.
+ - Being infinitely amazed, so do I give thanks to God, Who has been pleased to make me the first observer of marvelous things, unrevealed to bygone ages.
+ - I think that in the discussion of natural problems we ought to begin not with the Scriptures, but with experiments, and demonstrations.
+ - It is surely harmful to souls to make it a heresy to believe what is proved.
+ - Showing a greater fondness for their own opinions than for truth, they sought to deny and disprove the new things which, if they had cared to look for themselves, their own senses would have demonstrated to them.
+ - Infinities and indivisibles transcend our finite understanding, the former on account of their magnitude, the latter because of their smallness; Imagine what they are when combined.
+ - I am certainly interested in a tribunal in which, for having used my reason, I was deemed little less than a heretic. Who knows but men will reduce me from the profession of a philosopher to that of historian of the Inquisition!
+ - It was granted to me alone to discover all the new phenomena in the sky and nothing to anybody else. This is the truth which neither envy nor malice can supress.
+ - Well, since paradoxes are at hand, let us see how it might be demonstrated that in a finite continuous extension it is not impossible for infinitely many voids to be found.
+ - We must say that there are as many squares as there are numbers.
+ - Some, merely to contradict what I had said, did not scruple to cast doubt upon things they had seen with their own eyes again and again.
+ - Scripture is a book about going to Heaven. It’s not a book about how the heavens go.
+ - Nothing can be taught to a man, only it’s possibly to help him to discover it inside.
+ - They seemed to forget that the increase of known truths stimulates the investigation, establishment and growth of the arts; not their dimination or destruction.
+ - Philosophy itself cannot but benefit from our disputes, for if our conceptions prove true, new achievements will be made; if false, their refutation will further confirm the original doctrines.
+ - If you could see the earth illuminated when you were in a place as dark as night, it would look to you more splendid than the moon.
+ - It is necessary for the Bible, in order to be accommodated to the understanding of every man, to speak many things which appear to differ from the absolute truth so far as the bare meaning of the words is concerned.
+ - One can understand nature only when one has learned the language and the signs in which it speaks to us; but this language is mathematics and these signs are methematical figures.
+ - I abjure with a sincere heart and unfeigned faith, I curse and detest the said errors and heresies, and generally all and every error and sect contrary to the Holy Catholic Church.
+ - The earth, in fair and grateful exchange, pays back to the moon an illumination similar to that which it receives from her throughout nearly all the darkest gloom of the night.
+ - It is very pious to say and prudent to affirm that the holy Bible can never speak untruth – whenever its true meaning is understood. But I believe nobody will deny that it is often very abstruse, and may say things which are quite different from wha.
+ - I would say here something that was heard from an ecclesiastic of the most eminent degree: The intention of the Holy Spirit is to teach us how one goes to heaven, not how the heavens go.
+ - They who depend upon manifest observations will philosophize better than those who persist in opinions repugnant to the senses.
+ - To command their professors of astronomy to refute their own observations is to command them not to see what they do see and not to understand what they do understand.
+ - But some, besides allegiance to their original error, possess I know not what fanciful interest in remaining hostile not so much toward the things in question as toward their discoverer.
+ - With regard to matters requiring thought: the less people know and understand about them, the more positively they attempt to argue concerning them.
+ - Holy Writ was intended to teach men how to go to Heaven not how the heavens go.
+ - Spots are on the surface of the solar body where they are produced and also dissolved, some in shorter and others in longer periods. They are carried around the Sun; an important occurrence in itself.
+ - I do not think it is necessary to believe that the same God who has given us our senses, reason, and intelligence wished us to abandon their use, giving us by some other means the information that we could gain through them.
+ - I believe that the intention of Holy Writ was to persuade men of the truths necessary to salvation; such as neither science nor other means could render credible, but only the voice of the Holy Spirit.
+ - For my part I consider the earth very noble and admirable precisely because of the diverse alterations, changes, generations, etc. that occur in it incessantly.
+ - It vexes me when they would constrain science by the authority of the Scriptures, and yet do not consider themselves bound to answer reason and experiment.
+
+82 quotes

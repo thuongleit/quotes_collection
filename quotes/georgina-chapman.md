@@ -1,0 +1,32 @@
+ - My family is my number one priority.
+ - My great-grandfather was in the army in India, and we have photographs of my family there in full Victorian dress. They’re incredibly romantic.
+ - I make sure I carve out time to be with my daughter.
+ - I’m a designer, not a businesswoman.
+ - One of my most sentimental items is my grandmother’s engagement ring that my mom gave me a few years ago. It’s a Victorian-style setting that’s closed in the back, so it doesn’t sparkle the way diamonds do now. I wear it as a pendant.
+ - I went camping in the Maasai Mara and we moved site every night. I had no idea how spectacular it would be, how removed from ordinary life, or how many animals we would see.
+ - We don’t leave home without my daughter’s doll La-La. She looks like a bit of a rag, but India is obsessed with her.
+ - I love children. I’ve always loved children.
+ - My mother says I’m like a disease that can walk into a room and get it infected. I can destroy things in seconds.
+ - I enjoyed studying costume, learning about the corsetry and the historical context of fashion. I never had any real intention of being a costume designer.
+ - I love imagining being someone else in another time.
+ - Bridesmaids are never going to upstage the bride.
+ - I always go to the Cannes Film Festival and it’s just such a glamorous time.
+ - I’m actually an incredibly disorganized, messy person.
+ - Sometimes if I can’t sleep and I am up in the night, I will start researching things – it could be an image I’ve seen, or a book I am reading.
+ - My wedding was at home, so I didn’t really want to wear a veil in my house. Instead I wore a lot of diamond hair clips. They were brooches, actually, designed by Lorraine Schwartz.
+ - I’m an enormous fan of Ron Howard. I mean, he’s the most extraordinary director.
+ - New York is very career-orientated and it’s hard to take time off here, but that is great for building a business.
+ - It’s funny, because I sometimes feel that I’m most creative when I’m pregnant.
+ - I am a control freak.
+ - When I got pregnant, I became very interested in natural products. You wonder what you’re putting on your skin when you’re carrying a child.
+ - I didn’t finish my dress until about three days before my wedding – I had the flu and was stitching it from my bed. And the tulle came back from India all brown. We had to wash it for hours, but that didn’t dissuade me from wearing it.
+ - I always have a camera now that I’ve got a kid, but I don’t think I’ve got one picture of anyone other than my daughter.
+ - If you’ve chosen someone to be in your bridal party, she should be a good enough friend that she does not want to upstage you.
+ - I love vintage and prints.
+ - The Indians have such strong traditions and aesthetics, and the people are beautiful, as are their goods.
+ - What I love about my husband is that he really allows me to be the best person I can.
+ - It’s good to talk to people and get ideas.
+ - I look much more civilized than I actually am.
+ - I think it’s very empowering to be able to have a career and to be a mother. It gives you an amazing sense of self.
+
+30 quotes

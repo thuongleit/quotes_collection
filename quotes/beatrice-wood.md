@@ -1,0 +1,31 @@
+ - You can’t change the world, you can only change yourself.
+ - I owe it all to art books, chocolate and young men.
+ - Celibacy is exhausting.
+ - And then a great thing in my life was going to India.
+ - I, who wanted danger, adventure, and love.
+ - There’s so much more to life than that, though I think that acting is fascinating because you can forget your own sorrow as you act and become somebody else.
+ - My life is full of mistakes. They’re like pebbles that make a good road.
+ - Very few people know how to work. Inspiration, everybody has inspiration. That’s just hot air.
+ - And I have exposed myself to art so that my work has something beyond just the usual potter.
+ - A rich poet from Harvard has no sense in his mind, except the aesthetic.
+ - The second time I was there I met Marcel Duchamp, and we immediately fell for each other. Which doesn’t mean a thing because I think anybody who met Marcel fell for him.
+ - Yes, because when you’re in love, you are shy.
+ - And then, of course, most potters, they go in for earth tones and subdued things, and I like color.
+ - Well, I don’t go out much socially. I don’t enjoy going out.
+ - But I was very, very unhappy because my mother was very charming and generous, but to me, very dominating.
+ - I happen to believe that there is an afterlife.
+ - Certainly I was relatively a refined person. No way a tramp.
+ - I hang on to the statement of scientists that there is no time. Therefore, join me in telling everyone you are thirty-two. This allows me to go after young men and plan grabbing husbands from my girlfriends. Choosing to live in the timeless, I am now at the easiest and happiest time of my life.
+ - But you can’t realize, you can’t know what another person goes through.
+ - First of all, I’d like to say here the fact that I’m not naturally a craftsman has made me work very hard.
+ - I’m not too interested in books about India.
+ - But, you see, the theatre is not always art in America.
+ - Here in America we’re doing the most wonderful crafts.
+ - I was in a convent for a year.
+ - You see, I was never stage-struck the way most girls were.
+ - I don’t like to sell my finest pieces.
+ - Over and over I’m on the point of giving it up.
+ - You know, acting is very fascinating. But being an actress is not, because you become so concentrated on yourself.
+ - The only works of art America has given are her plumbing and her bridges.
+
+29 quotes

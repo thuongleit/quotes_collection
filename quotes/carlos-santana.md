@@ -1,0 +1,71 @@
+ - One day there will be no borders, no boundaries, no flags and no countries and the only passport will be the heart.
+ - There is no greater reward than working from your heart and making a difference in the world.
+ - Most people don’t have that willingness to break bad habits. They have a lot of excuses and they talk like victims.
+ - Happiness is not a destination or an experience. It’s a decision.
+ - There is divinity in your DNA. Live your light.
+ - Your mind is a magnet. You don’t attract what you need or what you want; you attract who you are. And I love who I am!
+ - My job in this life is to give people spiritual ecstasy through music. In my concerts people cry, laugh, dance. If they climaxed spiritually, I did my job. I did it decently and honestly.
+ - Live up to your convictions. You walk in grace or you walk in fear. You can’t have it both ways.
+ - Your wrinkles either show that you’re nasty, cranky, and senile, or that you’re always smiling.
+ - There’s never one sunrise the same or one sunset the same.
+ - There is nothing more contagious on this planet than enthusiasm.
+ - If you stay in your heart you will always be inspired and if you are inspired you will always be enthusiastic. There is nothing more contagious on this planet as enthusiasm.
+ - The most valuable possession you can own is an open heart. The most powerful weapon you can be is an instrument of peace.
+ - I invite you, wholeheartedly, to read books that remind you of your highest self and emancipate you from mental slavery or false beliefs and illusions. The more you invest in attracting books that resonate with the frequency of your true self, the more light you will bring to the world.
+ - You’re always cursing, you’re always praying and you’re always making love. It ain’t do-re-mi-fa-so-la-ti-do.
+ - There is no person that love cannot heal; there is no soul that love cannot save.
+ - You can take things that Jimi Hendrix took, from Curtis Mayfield or from Buddy Guy for example, because we are all children of everything, even Picasso. But if you want to stand out, you have to learn to crystallize your existence and create your own fingerprints.
+ - The guitar is your first wings. It’s assigned and designed to unfold your vision and imagination.
+ - When you are in your heart of hearts, you can see beyond appearances.
+ - I am becoming the people I love.
+ - You cannot behave appropriately, unless you perceive correctly. Once you perceive you are a beam of Light, that comes from the mind of God, you will carry yourself differently.
+ - I realised a long time ago that instrumental music speaks a lot more clearly than English, Spanish, Yiddish, Swahili, any other language. Pure melody goes outside time.
+ - All music is important if it comes from the heart.
+ - The worst thing you can become in life is cynical. Cynical is like concrete. and nothing grows in concrete.
+ - I don’t eat meat because meat brings out negative qualities such as fear, anger, anxiety, aggressiveness, etc. Vegetables peacefully offer themselves to the earth when ripe, thus allowing a sublime and peaceful thought-conscio usness.
+ - You’ve got to change your evil ways, baby, before I start loving you.
+ - If our history can challenge the next wave of musicians to keep moving and changing, to keep spiritually hungry and horny, that’s what it’s all about.
+ - When my father passed away two or three years ago, I didnt listen to music for four days – thats a long time for me.
+ - Most people are prisoners, thinking only about the future or living in the past. They are not in the present, and the present is where everything begins.
+ - The people of Arizona, the people of Atlanta, Georgia, you should be ashamed of yourselves.
+ - I have come to the conclusion – and I don’t know why it took me so long, but nevertheless, I’m here now – that a lot of people tell me they don’t get enough guitar on my albums. So I decided to do an album where the guitar would be the singer, playing the melody.
+ - I knuckle down with my demons, and with my weaknesses.
+ - People are flowers. Music is water. Musicians are the hose.
+ - There’s a melody in everything. And once you find the melody, then you connect immediately with the heart. Because sometimes English or Spanish, Swahili or any language gets in the way. But nothing penetrates the heart faster than the melody.
+ - Music rearranges your molecular structure.
+ - First of all, the music that people call Latin or Spanish is really African. So Black people need to get the credit for that.
+ - When a baby comes you can smell two things: the smell of flesh, which smells like chicken soup, and the smell of lilies, the flower of another garden, the spiritual garden.
+ - Disposicion a transformacion personal es clave para Iluminacion Global.
+ - Bring the brothers home, and sisters home now. Legalize marijuana and take all that money and invest it in teachers and in education. You will see a transformation in America.
+ - The Devil is like a strainer that separates the mud from the gold.
+ - If you want to be successful, just meditate, man. God will tell you what people need.
+ - I think of music as a menu. I can’t eat the same thing every day.
+ - You are not realistic unless you believe in miracles!
+ - No one’s better than me. I’m not better than anyone. Whether it’s Eric Clapton or BB King we look straight at each other. And that keeps it real.
+ - I am here to give voice to the invisible.
+ - Everything is a battlefield. If you fight with anger, you are part of the problem. If you fight with joy, you’re part of the solution.
+ - I can show you that I have played with just about every jazz musician, every African musician, every blues musician. It’s not like I’m cashing in on a false concept. This is what I do.
+ - Whether you are doing it in the bar, the church, the strip joint, or the Himalayas, the first duty of music is to complement and enhance life.
+ - Every day you wake up is an opportunity to go beyond, and that ’s why I let my band go right now. For the first time in my life I’m just roaming around, vagabonding.
+ - Everybody sooner or later has to drop the luggage and the baggage of illusions.
+ - I’m laughing because I know the secret of life. And the secret of life is that I have validated my existence. I know that I am worth more than my house, my bank account, or any physical thing.
+ - I know I’m not the kind of person who’s gonna wind up a walking jukebox, like many rock ‘n’ roll artists. They just play their hits and that’s it. That doesn’t appeal to me.
+ - He just seems as cool as ever. I can smell him. Even on the other side, there is smell. Like, when babies are born, there’s two smells-one is chicken soup, which is the flesh, and the other is lilacs, which is coming from the spiritual garden. The spirit has a lilac smell.
+ - When you fly to New York, sometimes they put you on hold and you just go round and around in a holding pattern. Sometimes in a concert, I feel other spirits in a holding pattern that they want to land through my heart and through my fingers.
+ - There is more value in placing a flower in a rifle barrel than making war. As Jimi Hendrix used to say, musical notes have more importance than bullets.
+ - Peace has never come from dropping bombs. Real peace comes from enlightenment and educating people to behave more in a divine manner.
+ - I’m ready to do something with Lady Gaga or Andrea Bocelli. I’m really grateful that nothing is out of the realm of possibility.
+ - I have wisdom. I feel love. I live in the present and I try to present a dimension that brings harmony and healing.
+ - A lot of people said to me, ‘Enough with the guest vocalists for a while. We want to hear the Mexican play the guitar!’
+ - I have been accused of being a very simplistic, very lyrical player, and that’s okay. That just comes from the blues, which is my background. But every day you wake up and transcend. You can’t ever rest on your laurels.
+ - The music of Hendrix wakes people up to their possibilities. It’s more than just dreaming about being a guitar hero.
+ - Blues was my first love. It was the first thing where I said, ‘Oh man, this is the stuff.’ It just sounded so raw and honest, gut-bucket honest. From then I started rebelling.
+ - The more choices we give patients affected by depression, the better we will serve them.
+ - The best part of touring, still, is touching people’s hearts and igniting my band and igniting the people into what you call a spiritual revelation is sound and emotion.
+ - If You’re going to sweep the floor, sweep it better than anybody in town. And if You’re going to play the guitar, really, really, really get in it, and don’t be jivin’.
+ - I would invite all Latin people to do nothing for about two weeks so you can see who really, really is running the economy I am here to give voice to the invisible.
+ - Ever since I was a child I’ve always been very attracted to melodies. Whether I hear Jeff Beck, a choir, an ocean or the wind, there’s always a melody in there.
+ - KISS is Las Vegas entertainment. A musician doesn’t need the mask.
+ - I realized that it’s all really one, that John Lennon was correct. We utilize the music to bring down the walls of Berlin, to bring up the force of compassion and forgiveness and kindness between Palestines, Hebrews. Bring down the walls here in San Diego, Tijuana, Cuba.
+
+69 quotes

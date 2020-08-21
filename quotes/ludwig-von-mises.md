@@ -1,0 +1,426 @@
+ - The worst evils which mankind has ever had to endure were inflicted by bad governments.
+ - Do not give in to evil, but proceed ever more boldly against it.
+ - Freedom really means the freedom to make mistakes.
+ - Human action is purposeful behavior.
+ - The mark of the creative mind is that it defies a part of what it has learned.
+ - Liberty is always freedom from the government.
+ - The market is a democracy in which every penny gives a right to vote.
+ - Under capitalism everybody is the architect of his own fortune.
+ - Economics must not be relegated to classrooms and statistical offices and must not be left to esoteric circles. It is the philosophy of human life and action and concerns everybody and everything. It is the pith of civilization and of man’s human existence.
+ - Many who are self-taught far excel the doctors, masters, and bachelors of the most renowned universities.
+ - Capitalism needs neither propaganda nor apostles. Its achievements speak for themselves. Capitalism delivers the goods.
+ - In the market economy the worker sells his services as other people sell their commodities. The employer is not the employee’s lord. He is simply the buyer of services which he must purchase at their market price.
+ - Economic knowledge necessarily leads to liberalism.
+ - Whoever wishes peace among peoples must fight statism.
+ - The foundation of any and every civilization, including our own, is private ownership of the means of production. Whoever wishes to criticize modern civilization, therefore, begins with private property.
+ - What generates war is the economic philosophy of nationalism: embargoes, trade and foreign exchange controls, monetary devaluation, etc. The philosophy of protectionism is a philosophy of war.
+ - Every socialist is a disguised dictator.
+ - German Marxian’s coined the dictum: If socialism is against human nature, then human nature must be changed.
+ - Socialism is not an alternative to capitalism; it is an alternative to any system under which men can live as human beings.
+ - The program of classical liberalism, condensed into a single word, would have to read: property.
+ - In public administration there is no connection between revenue and expenditure.
+ - The philosophy commonly called individualism is a philosophy of social cooperation and the progressive intensification of the social nexus.
+ - The fact is that, under a capitalistic system, the ultimate bosses are the consumers. The sovereign is not the state, it is the people.
+ - Government means always coercion and compulsion and is by necessity the opposite of liberty.
+ - There is no means of avoiding the final collapse of a boom brought about by credit expansion. The alternative is only whether the crisis should come sooner as the result of voluntary abandonment of further credit expansion, or later as a final and total catastrophe of the currency system involved.
+ - An entrepreneur cannot be trained. A man becomes and entrepreneur by seizing an opportunity and filling the gap. No special education is required for such a display of keen judgment, foresight, and energy.
+ - The Welfare State is merely a method for transforming the market economy step by step into socialism.
+ - Western civilization is based upon the libertarian principle, and all its achievements are the results of the action of free men.
+ - Taxes are necessary. But the system of discriminatory taxation universally accepted under the misleading name of progressive taxation of income and inheritance is not a mode of taxation. It is rather a mode of disguised expropriation of the successful capitalists and entrepreneurs.
+ - The philosophy of protectionism is a philosophy of war.
+ - It is vain to fight totalitarianism by adopting totalitarian methods. Freedom can only be won by men unconditionally committed to the principles of freedom. The first requisite for a better social order is the return to unrestricted freedom of thought and speech.
+ - He who only wishes and hopes does not interfere actively with the course of events and with the shaping of his own destiny.
+ - The fundamental law of the market is: the customer is always right.
+ - The worship of the state is the worship of force. There is no more dangerous menace to civilization than a government of incompetent, corrupt, or vile men. The worst evils which mankind ever had to endure were inflicted by governments.
+ - He who is unfit to serve his fellow citizens wants to rule them.
+ - Civilization is a work of peaceful co-operation.
+ - Some experts have declared that it is necessary to tax the people until it hurts. I disagree with these sadists.
+ - All people, however fanatical they may be in their zeal to disparage and to fight capitalism, implicitly pay homage to it by passionately clamoring for the products it turns out.
+ - Freedom is indivisible. As soon as one starts to restrict it, one enters upon a decline on which it is difficult to stop.
+ - The real bosses, in the capitalist system of market economy, are the consumers.
+ - The philosophy of protectionism is a philosophy of war. The wars of our age are not at variance with popular economic doctrines; they are, on the contrary, the inescapable result of a consistent application of these doctrines.
+ - There prevails on a free labor market a tendency toward full employment.
+ - The word “Capitalism” expresses, for our age, the sum of all evil. Even the opponents of Socialism are dominated by socialist ideas.
+ - It cannot be denied that Fascism and similar movements aiming at the establishment of dictatorships are full of the best intentions and that their intervention has, for the moment, saved European civilization. The merit that Fascism has thereby won for itself will live on eternally in history.
+ - Socialist society is a society of officials.
+ - Rulers do not like to admit that their power is restricted by any laws other than those of physics and biology. They never ascribe their failures and frustrations to the violation of economic law.
+ - Only to bureaucrats can the idea occur that establishing new offices, promulgating new decrees, and increasing the number of government employees alone can be described as positive and beneficial measures.
+ - Liberty is meaningless if it is only the liberty to agree with those in power.
+ - The capitalist system, in spite of all obstacles put in its way by governments and politicians, has raised the standard of living of the masses in an unprecedented way.
+ - Government cannot make man richer, but it can make him poorer.
+ - If you increase the quantity of money, you bring about the lowering of the purchasing power of the monetary unit.
+ - The meaning of economic freedom is this: that the individual is in a position to choose the way in which he wants to integrate himself into the totality of society.
+ - No private enterprise will ever fall prey to bureaucratic methods of management if it is operated with the sole aim of making profit.
+ - No one can escape the influence of a prevailing ideology.
+ - In the capitalist society there is a place and bread for all. Its ability to expand provides sustenance for every worker. Permanent unemployment is not a feature of free capitalism.
+ - The mixing of politics and business not only is detrimental to politics, as is frequently observed, but even much more so to business.
+ - The idea that political freedom can be preserved in the absence of economic freedom, and vice versa, is an illusion. Political freedom is the corollary of economic freedom.
+ - The salesman thanks the customer for patronizing his shop and asks him to come again. But the socialists say: Be grateful to Hitler, render thanks to Stalin; be nice and submissive, then the great man will be kind to you later too.
+ - The alcoholic and the drug addict harm only themselves by their behavior; the person who violates the rules of morality governing mans life in society harms not only himself, but everyone.
+ - Value is not intrinsic, it is not in things. It is within us; it is the way in which man reacts to the conditions of his environment. Neither is value in words and doctrines, it is reflected in human conduct. It is not what a man or groups of men say about value that counts, but how they act.
+ - Thoughts and ideas are not phantoms. They are real things. Although intangible and immaterial, they are factors in bringing about changes in the realm of tangible and material things.
+ - It is merely a metaphor to call competition competitive war, or simply, war. The function of battle is destruction; of competition, construction.
+ - Inflation is the fiscal complement of statism and arbitrary government. It is a cog in the complex of policies and institutions which gradually lead toward totalitarianism .
+ - Progressive taxation of income and profits means that precisely those parts of the income which people would have saved and invested are taxed away.
+ - Spontaneous actions of individuals, aiming at nothing else than at the improvement of their own state of satisfaction, undermined the prestige of the coercive status system step by step.
+ - In a battle between force and an idea, the latter always prevails.
+ - Those who are asking for more government interference are asking ultimately for more compulsion and less freedom.
+ - Credit expansion can bring about a temporary boom. But such a fictitious prosperity must end in a general depression of trade, a slump.
+ - Tyranny is the political corollary of socialism, as representative government is the political corollary of the market economy.
+ - The market economy needs no apologists and propagandists. It can apply to itself the words of Sir Christopher Wren’s epitaph in St. Paul’s: ‘If you seek his monument, look around.’
+ - Man is not, like the animals, an obsequious puppet of instincts and sensual impulses. Man has the power to suppress instinctive desires, he has a will of his own, he chooses between incompatible ends.
+ - The democracy of the market consists in the fact that people themselves make their choices and that no dictator has the power to force them to submit to his value judgments.
+ - Do the American voters know that the unprecedented improvement in their standard of living that the last hundred years brought was the result of the steady rise in the per-head quota of capital invested? Do they realize that every measure leading to capital decumulation jeopardizes their prosperity?
+ - The struggle for freedom is not the struggle of the many against the few, but of minorities, sometimes of a minority of but one man gainst the majority.
+ - Capitalism or market economy is that system of social cooperation and division of labor that is based on private ownership of the means of production.
+ - The government pretends to be endowed with the mystical power to accord favors out of an inexhaustible horn of plenty. It is both omniscient and omnipotent. It can by a magic wand create happiness and abundance. The truth is the government cannot give if it does not take from somebody.
+ - Nothing is more calculated to make a demagogue popular than a constantly reiterated demand for heavy taxes on the rich. Capital levies and high income taxes on the larger incomes are extraordinarily popular with the masses, who do not have to pay them.
+ - What makes small business develop into big business is not spending, but saving and capital accumulation.
+ - The planner is a potential dictator who wants to deprive all other people of the power to plan and act according to their own plans. He aims at one thing only: the exclusive absolute preeminence of his own plan.
+ - The elimination of profit, whatever methods may be resorted to for its execution, must transform society into a senseless jumble. It would create poverty for all.
+ - The productivity of social cooperation surpasses in every respect the sum total of the production of isolated individuals.
+ - There is no such thing as a just and fair method of exercising the tremendous power that interventionism puts into the hands of the legislature and the executive.
+ - The middle-of-the-road policy is not an economic system that can last. It is a method for the realization of socialism by installments.
+ - A nation, therefore, has no right to say to a province: You belong to me, I want to take you. A province consists of its inhabitants. If anybody has a right to be heard in this case it is these inhabitants. Boundary disputes should be settled by plebiscite.
+ - It is necessary to curb the power of government. This is the task of all constitutions, bills of rights and laws. This is the meaning of all struggles which men have fought for liberty.
+ - A new type of superstition has got hold of people’s minds, the worship of the state. People demand the exercise of the methods of coercion and compulsion, of violence and threat. Woe to anybody who does not bend his knee to the fashionable idols!
+ - There cannot be stable money within an environment dominated by ideologies hostile to the preservation of economic freedom.
+ - The aim of the popularization of economic studies is not to make every man an economist. The idea is to equip the citizen for his civic functions in community life.
+ - The characteristic feature of a free society is that it can function in spite of the fact that its members disagree in many judgments of value. Freedom really means the freedom to make mistakes.
+ - What those people who ask for equality have in mind is always an increase in their own power to consume.
+ - There is no reason why capitalists and entrepreneurs should be ashamed of earning profits.
+ - Aggressors cannot wage total war without introducing Socialism.
+ - Government is essentially the negation of liberty.
+ - History does not provide any example of capital accumulation brought about by a government. As far as governments invested in the construction of roads, railroads, and other useful public works, the capital needed was provided by the savings of individual citizens and borrowed by the government.
+ - Unemployment doles can have no other effect than the perpetuation of unemployment.
+ - No matter how efficient school training may be, it would only produce stagnation, orthodoxy, and rigid pedantry if there were no uncommon men pushing forward beyond the wisdom of their tutors.
+ - The gold standard makes the money’s purchasing power independent of the changing, ambitions and doctrines of political parties and pressure groups. This is not a defect of the gold standard; it is its main excellence.
+ - If the members of parliament no longer consider themselves mandatories of the taxpayers but deputies of those receiving salaries, wages, subsidies, doles, and other benefits from the treasury, democracy is done for.
+ - Innovators and creative geniuses cannot be reared in schools. They are precisely the men who defy what the school has taught them.
+ - In life everything is continually in flux.
+ - We owe the origin and development of human society and, consequently, of culture and civilization, to the fact that work performed under the division of labor is more productive than when performed in isolation.
+ - Our whole civilization rests on the fact that men have always succeeded in beating off the attack of the re-distributors.
+ - Education rears disciples, imitators, and routinists, not pioneers of new ideas and creative geniuses. The schools are not nurseries of progress and improvement, but conservatories of tradition and unvarying modes of thought.
+ - Inflation is the true opium of the people and it is administered to them by anticapitalist governments and parties.
+ - The entrepreneur profits to the extent he has succeeded in serving the consumers better than other people have done.
+ - Governments, political parties, pressure groups, and the bureaucrats of the educational hierarchy think they can avoid the inevitable consequences of unsuitable measures by boycotting and silencing the independent economists. But truth persists and works, even if nobody is left to utter it.
+ - Capital is not a free gift of God or of nature. It is the outcome of a provident restriction of consumption on the part of man. It is created and increased by saving and maintained by the abstention from dissaving.
+ - It is labor alone that is productive: it creates wealth and therewith lays the outward foundations for the inward flowering of man.
+ - The only source from which an entrepreneurs profits stem is his ability to anticipate better than other people the future demand of the consumers.
+ - Those politicians, professors and union bosses who curse big business are fighting for a lower standard of living.
+ - The truth is that most people lack the intellectual ability and courage to resist a popular movement, however pernicious and ill-considered.
+ - Lenin’s ideal was to build a nation’s production effort according to the model of the post office.
+ - Historical knowledge is indispensable for those who want to build a better world.
+ - Government is the only institution that can take a valuable commodity like paper, and make it worthless by applying ink.
+ - Innovation is the whim of an elite before it becomes a need of the public.
+ - What is a loophole? If the law does not punish a definite action or does not tax a definite thing, this is not a loophole. It is simply the law.
+ - All rational action is in the first place individual action. Only the individual thinks. Only the individual reasons. Only the individual acts.
+ - Inflation has always been an important resource of policies of war and revolution and why we also find it in the service of socialism.
+ - A nation cannot prosper if its members are not fully aware of the fact that what alone can improve their condition s is more and better production. And this can only be brought about by increased saving and capital accumulation.
+ - The flowering of human society depends on two factors: the intellectual power of outstanding men to conceive sound social and economic theories, and the ability of these or other men to make these ideologies palatable to the majority.
+ - The most successful businessmen were often uneducated when measured by the scholastic standards of the teaching profession. But they were equal to their social function of adjusting production to the most urgent demand. Because of these merits the consumers chose them for business leadership.
+ - Spiritual movements are revolts of thought against inertia, of the few against the many; of those who because they are strong in spirit are strongest alone against those who can express themselves only in the mass and the mob, and who are significant only because they are numerous.
+ - How pale is the art of sorcerers, witches, and conjurors when compared with that of the government’s Treasury Department!
+ - Mankind does not drink alcohol because there are breweries, distilleries, and vineyards; men brew beer, distill spirits, and grow grapes because of the demand for alcoholic drinks.
+ - In order to succeed in business a man does not need a degree from a school of business administration. These schools train the subalterns for routine jobs. They certainly do not train entrepreneurs.
+ - Human civilization is not something achieved against nature; it is rather the outcome of the working of the innate qualities of man.
+ - Continued adherence to a policy of compulsory education is utterly incompatible with efforts to establish lasting peace.
+ - The most serious dangers for American freedom and the American way of life do not come from without.
+ - You call it a ‘loophole’ when the government still allows you some freedom.
+ - Both force and money are impotent against ideas.
+ - The Pseudo-liberals monopolize the teaching jobs at many universities. Only men who agree with them are appointed as teachers and instructors of the social sciences, and only textbooks supporting their ideas are used.
+ - The state is essentially an apparatus of compulsion and coercion. The characteristic feature of its activities is to compel people through the application or the threat of force to behave otherwise than they would like to behave.
+ - As the prosperity of the nation and the height of wage rates depend on a continual increase in the capital invested in its plants, mines and farms, it is one of the foremost tasks of good government to remove all obstacles that hinder the accumulation and investment of new capital.
+ - Only one thing can conquer war-that attitude of mind which can see nothing in war but destruction and annihilation...
+ - A genius is always a teacher, never a pupil; he is always self-made.
+ - In all countries with a settled bureaucracy people used to say: The cabinets come and go, but the bureaus remain.
+ - Planning other people’s actions means to prevent them from planning for themselves, means to deprive them of their essentially human quality, means enslaving them.
+ - If the government objects to monopoly prices for new inventions, it should stop granting patents.
+ - Marx and Engels openly declared that the progressive income tax and the death tax are ‘economically untenable’ and that they advocated them only because ‘they necessitate further inroads’ upon the capitalist system and are ‘unavoidable’ as a means of bringing about socialism.
+ - Sovereignty must not be used for inflicting harm on anyone, whether citizen or foreigner.
+ - The inequality of income and fortunes is essential in capitalism.
+ - Fascism was an emergency makeshift. To view it as something more would be a fatal error.
+ - The concept of a ‘just’ or ‘fair’ price is devoid of any scientific meaning; it is a disguise for wishes, a striving for a state of affairs different from reality.
+ - The class of those who have the ability to think their own thoughts is separated by an unbridgeable gulf from the class of those who cannot.
+ - Almost all the fathers of socialism were members of the upper middle class or of the professions.
+ - It is solely bigness in business which makes it possible to supply the masses with all those products the present-day American common man does not want to do without. Luxury goods for the few can be produced in small shops. Luxury goods for the many require big business.
+ - There were nowhere more docile disciples of Lenin, Trotsky and Stalin than the Nazis were.
+ - Reason is the main resource of man in his struggle for survival.
+ - If one regards inflation as an evil, then one has to stop inflating. One has to balance the budget of the government.
+ - The main achievement of economics is that it has provided a theory of peaceful human cooperation. This is why the harbingers of violent conflict have branded it as a dismal science and why this age of wars, civil wars, and destruction has no use for it.
+ - Once it has been perceived that the division of labour is the essence of society, nothing remains of the antithesis between individual and society. The contradiction between individual principle and social principle disappears.
+ - What impels every man to the utmost exertion in the service of his fellow man. Is, in the market not compulsion on the part of gendarmes, hangmen and penal courts, it is self interest.
+ - Peace and not war is the father of all things.
+ - History can tell us what happened in the past. But it cannot assert that it must happen again in the future.
+ - In the world of reality, life, and human action there is no such thing as interests independent of ideas, preceding them temporarily and logically. What a man considers his interest is the result of his ideas.
+ - Anarchism misunderstands the real nature of man. It would be practicable only in a world of angels and saints.
+ - This is the difference between slavery and freedom. The slave must do what his superior orders him to do, but the free citizen-and this is what freedom means-is in a position to choose his own way of life.
+ - A society that chooses between capitalism and socialism does not choose between two social systems; it chooses between social cooperation and the disintegration of society. Socialism is not an alternative to capitalism; it is an alternative to any system under which men can live as human beings.
+ - Every specific tax, as well as the nation’s whole tax system, becomes self-defeating above a certain height of the rates.
+ - The consumers are asking for, they lose their office. Their task is service to the consumer. Profit and loss are the instruments by means of which the consumers keep a tight rein on all business activities.
+ - Socialism in Russia has not brought about an improvement in the conditions of the average man which can be compared with the improvement of conditions, during the same period, in the United States.
+ - Every innovation makes its appearance as a ‘luxury’ of the few well-to-do. After industry has become aware of it, the luxury then becomes a ‘necessity’ for all.
+ - What mankind needs today is liberation from the rule of nonsensical slogans and a return to sound reasoning.
+ - The Marxians love of democratic institutions was a stratagem only, a pious fraud for the deception of the masses. Within a socialist community there is no room left for freedom.
+ - The uncouth hordes of common men are not fit to recognize duly the merits of those who eclipse their own wretchedness.
+ - People do not cooperate under the division of labor because they love or should love one another. They cooperate because this best serves their own interests.
+ - The philosophy underlying the system of progressive taxation is that the income and wealth of the well-to-do classes can be freely tapped. What the advocates of these tax rates fail to realize is that the greater part of the incomes taxed away would not have been consumed but saved and invested.
+ - Two hundred years ago, before the advent of capitalism, a man’s social status was fixed from the beginning to the end of his life; he inherited it from his ancestors and it never changed.
+ - There can be no freedom in art and literature where the government determines who shall create them.
+ - Capitalism gave the world what it needed, a higher standard of living for a steadily increasing number of people.
+ - Keynes did not teach us how to perform the miracle of turning a stone into bread, but the not at all miraculous procedure of eating the seed corn.
+ - It is impossible to understand the history of economic thought if one does not pay attention to the fact that economics as such is a challenge to the conceit of those in power.
+ - Under the gold standard gold is money and money is gold. It is immaterial whether or not the laws assign legal tender quality only to gold coins minted by the government.
+ - Competition on the market aims at assigning to every individual that function in the social system in which he can render to all his fellow men the most valuable of the services he is able to perform.
+ - It is evident that youth is the first victim of the trend toward bureaucratization. The young men are deprived of any opportunity to shape their own fate.
+ - On the unhampered market there prevails an irresistible tendency to employ every factor of production for the best possible satisfaction of the most urgent needs of the consumers. If the government interfered with this process, it can only impair satisfaction; it can never improve it.
+ - War can really cause no economic boom, at least not directly, since an increase in wealth never does result from destruction of goods.
+ - Society has arisen out of the works of peace; the essence of society is peacemaking. Peace and not war is the father of all things.
+ - An anti-something movement displays a purely negative attitude. It has no chance whatever to succeed. Its passionate diatribes virtually advertise the program they attack. People must fight for something that they want to achieve, not simply reject an evil, however bad it may be.
+ - All almsgiving inevitably tends to pauperize the recipient.
+ - Scientific criticism has no nobler task than to shatter false beliefs.
+ - Neither the entrepreneurs nor the farmers nor the capitalists determine what has to be produced. The consumers do that.
+ - The greater productivity of work under the division of labor is a unifying influence. It leads men to regard each other as comrades in a joint struggle for welfare, rather than as competitors in a struggle for existence. It makes friends out of enemies, peace out of war, society out of individuals.
+ - The essence of democracy is not that everyone makes and administers laws but that lawgivers and rulers should be dependent on the people’s will in such a way that they may be peaceably changed if conflict occurs.
+ - It is impossible to grasp the meaning of the idea of sound money if one does not realize that it was devised as an instrument for the protection of civil liberties against despotic inroads on the part of governments.
+ - The essence of Keynesianism is its complete failure to conceive the role that saving and capital accumulation play in the improvement of economic conditions.
+ - Free markets. What does this system mean? The answer is simple: it is the market economy, it is the system in which the cooperation of individuals in the social division of labor is achieved by the market.
+ - The better an entrepreneur succeeds, the more is he vilified and themore is he soaked by taxation.
+ - There is no remedy for the inefficiency of public management.
+ - Whoever prefers life to death, happiness to suffering, well-being to misery must defend without compromise private ownership in the means of production.
+ - The continued existence of society depends upon private property.
+ - Science does not give us absolute and final certainty. It only gives us assurance within the limits of our mental abilities and the prevailing state of scientific thought.
+ - Action based on reason, action therefore which is only to be understood by reason, knows only one end, the greatest pleasure of the acting individual.
+ - If people do not consume their whole incomes, the non-consumed surplus can be invested, it increases the amount of capital goods available and thereby makes it possible to embark upon projects which could not be executed before.
+ - Economic prosperity is not so much a material problem; it is, first of all, an intellectual, spiritual, and moral problem.
+ - Laissez faire does not mean: let soulless mechanical forces operate. It means: let individuals choose how they want to cooperate in the social division of labor and let them determine what the entrepreneurs should produce.
+ - Facts per se can neither prove nor refute anything. Everything is decided by the interpretation and explanation of the facts, by the ideas and the theories.
+ - If history could teach us anything, it would be that private property is inextricably linked with civilization.
+ - Nobody can be at the same time a correct bureaucrat and an innovator.
+ - The vigorous man industriously striving for the improvement of his condition acts neither more nor less than the lethargic man who sluggishly takes things as they come. For to do nothing and to be idle are also action, they too determine the course of events.
+ - The sharper the competition, the better it serves its social function to improve economic production.
+ - The characteristic feature of capitalism that distinguishes it from pre-capitalist methods of production was its new principle of marketing. Capitalism is not simply mass production, but mass production to satisfy the needs of the masses.
+ - The masses favor socialism because they trust the socialist propaganda of the intellectuals. The intellectuals, not the populace, are molding public opinion.
+ - Progress is precisely that which rules and regulations did not foresee.
+ - Taxing profits is tantamount to taxing success.
+ - What economic calculation requires is a monetary system whose functioning is not sabotaged by government interference.
+ - The root of the evil is not the construction of new, more dreadful weapons. It is the spirit of conquest.
+ - If, as is generally the case, the heirs are not equal to the demands which life makes on an entrepreneur, the inherited wealth rapidly vanishes.
+ - Action is an attempt to substitute a more satisfactory state of affairs for a less satisfactory one. We call such a willfully induced alteration an exchange.
+ - Depressions and mass unemployment are not caused by the free market but by government interference in the economy.
+ - No increase in the welfare of the member of society can result from the availability of an additional quantity of money.
+ - No architect is held responsible for the behavior of those who inhabit the structure he designed.
+ - The boom squanders through malinvestment scarce factors of production and reduces the stock available through overconsumption; its alleged blessings are paid for by impoverishment.
+ - Government is an apparatus of compulsion and coercion.
+ - Business is a means- the only means- to increase the quantity of goods available for preserving life and rendering it more agreeable.
+ - What counts alone is the innovator, the dissenter, the harbinger of things unheard of, the man who rejects the traditional standards and aims at substituting new values and ideas for old ones.
+ - The main political problem is how to prevent the police power from becoming tyrannical. This is the meaning of all the struggles for liberty.
+ - Society is best served when the means of production are in the possession of those who know how to use them best.
+ - It is impossible to describe any human action if one does not refer to the meaning the actor sees in the stimulus as well as in the end his response is aiming at.
+ - The study of economics has been again and again led astray by the vain idea that economics must proceed according to the pattern of other sciences.
+ - Changes in human conditions are brought about by the pioneering of the cleverest and most energetic men. They take the lead and the rest of mankind follows them little by little.
+ - As soon as the economic freedom which the market economy grants to its members is removed, all political liberties and bills of rights become humbug.
+ - Everybody thinks of economics whether he is aware of it or not. In joining a political party or in casting his ballot, the citizen implicitly takes a stand upon essential economic theories.
+ - Without speculation there can be no economic activity reaching beyond the immediate present.
+ - Despots and democratic majorities are drunk with power.
+ - Every step toward the elimination of profit is progress on the way toward social disintegration.
+ - If some peoples pretend that history or geography gives them the right to subjugate other races, nations, or peoples, there can be no peace.
+ - The situation of having to belong to a state to which one does not wish is no less onerous if it is the result of an election than if one must endure it as the consequence of a military conquest.
+ - Government is a guarantor of liberty and is compatible with liberty only if its range is adequately restricted to the preservation of what is called economic freedom.
+ - Continued inflation inevitably leads to catastrophe.
+ - Daily experience proves clearly to everybody but the most bigoted fanatics of socialism that governmental management is inefficient and wasteful.
+ - The causes of all panics, crashes and depressions can be summed up in only four words: the misuse of credit.
+ - To defeat the aggressors is not enough to make peace durable. The main thing is to discard the ideology that generates war.
+ - State interference in economic life, which calls itself economic policy, has done nothing but destroy economic life. Prohibitions and regulations have by their general obstructive tendency fostered the growth of the spirit of wastefulness.
+ - Inflation is essentially antidemocratic.
+ - The system that would stand midway between capitalism and socialism.
+ - Some think that they will exercise power for the general good, but that is what all those with power have believed. Power is evil in itself, regardless of who exercises it.
+ - The market is not a place, a thing, or a collective entity. It is a process.
+ - No very deep knowledge of economics is usually needed for grasping the immediate effects of a measure; but the task of economics is to foretell the remoter effects, and so to allow us to avoid such acts as attempt to remedy a present ill by sowing the seeds of a much greater ill for the future.
+ - It is certain that many intellectuals envy the higher income of prosperous businessmen and that these feelings drive them toward socialism. They believe that the authorities of a socialist commonwealth would pay them higher salaries than those that they earn under capitalism.
+ - The prerequisite for more economic equality in the world is industrialization. And this is possible only through increased capital investment, increased capital accumulation.
+ - Capitalism has improved the standard of living of the wage earners to an unprecedented extent. The average American family enjoys today amenities of which, only a hundred years ago, not even the richest nabobs dreamed.
+ - The history of mankind is the history of ideas. For it is ideas, theories, and doctrines that guide human action, determine the ultimate ends men aim at, and the choice of the means employed for the attainment of these ends.
+ - Economics is not about things and tangible material objects; it is about men, their meanings and actions.
+ - The worst law is better than bureaucratic tyranny.
+ - Socialism is the renunciation of rational economy.
+ - The tow pillars of democratic government are the primacy of the law and the budget.
+ - The struggle for freedom is ultimately not resistance to autocrats or oligarchs but resistance to the despotism of public opinion.
+ - The government and its chiefs do not have the powers of the mythical Santa Claus. They cannot spend except by taking out of the pockets of some people for the benefit of others.
+ - Each epoch has found in the Gospels what it sought to find there, and has overlooked what it wished to overlook.
+ - Thus, the isolated interference with one or a few prices of consumer goods always bring about effects-and this is important to realize-which are even less satisfactory than the conditions that prevailed before.
+ - All this talk: the state should do this or that, ultimately means: the police should force consumers to behave otherwise than they would behave spontaneously.
+ - The essential feature of government is the enforcement of its decrees by beating, killing, and imprisoning.
+ - We must fight all that we dislike in public life. We must substitute better ideas for wrong ideas.
+ - The average American worker enjoys amenities for which Croesus, Crassus, the Medici, and Louis XIV would have envied him.
+ - It is the worst of all superstitions to assume that the epistemological characteristics of one branch of knowledge must necessarily be applicable to any other branch.
+ - The supremacy of public opinion determines not only the singular role that economics occupies in the complex of thought and knowledge. It determines the whole process of human history.
+ - The history of mankind is the history of ideas.
+ - Depression is the aftermath of credit expansion.
+ - Everything brought forward in favor of Socialism during the last hundred years, in thousands of writings and speeches, all the blood which has been spilt by the supporters of Socialism, cannot make socialism workable.
+ - Public opinion always wants easy money, that is, low interest rates.
+ - A higher standard of living also brings about a higher standard of culture and civilization.
+ - The living is not perfect because it is liable to change; the dead is not perfect because it does not live.
+ - The methods of the natural sciences cannot be applied to human behavior because this behaviorlacks the peculiarity that characterizes events in the field of the natural sciences, viz., regularity.
+ - The superiority of the gold standard consists in the fact that the value of gold develops independent of political actions.
+ - The socialist system, however, forbids this fundamental freedom to choose one’s own career. Under socialist conditions, there is only one economic authority, and it has the right to determine all matters concerning production.
+ - The common man is the sovereign consumer whose buying or abstention from buying ultimately determines what should be produced and in what quantity and quality.
+ - The first thing a genius needs is to breath free air.
+ - Nothing, however, is as ill founded as the assertion of the alleged equality of all members of the human race.
+ - In the bureaucratic machine of socialism the way toward promotion is not achievement but the favor of the superiors.
+ - Public opinion takes no offense at the endeavors of farmers, workers, clerks, teachers, doctors, ministers, and people from many other callings to earn as much as they can. But it censures the capitalists and entrepreneurs for their greed.
+ - It is untrue that some are poor because others are rich. If an order of society in which incomes were equal replaced the capitalist order, everyone would become poorer.
+ - The first socialists were the intellectuals; they, and not the masses, are the backbone of Socialism.
+ - The criterion of truth is that it works even if nobody is prepared to acknowledge it.
+ - Modern society, based as it is on the division of labor, can be preserved only under conditions of lasting peace.
+ - The boom produces impoverishment. But still more disastrous are its moral ravages. It makes people despondent and dispirited. The more optimistic they were under the illusory prosperity of the boom, the greater is their despair and their feeling of frustration.
+ - The only source of the generation of additional capital goods is saving. If all the goods produced are consumed, no new capital comes into being.
+ - Freedom and liberty always mean freedom from police interference.
+ - Liberalism must be intolerant of every sort of intolerance.
+ - Big business always serve – directly or indirectly – the masses.
+ - Every step by which an individual substitutes concerted action for isolated action results in an immediate and recognizable improvement in his conditions. The advantages derived from peaceful cooperation and division of labor are universal.
+ - Only the naive inflationist’s could believe that government could enrich mankind through fiat money.
+ - The development of capitalism consists in everyone having the right to serve the consumer better or more cheaply.
+ - The aim of all struggles for liberty is to keep in bounds the armed defenders of peace, the governors and their constables. The political concept of the individual’s freedom means: freedom from arbitrary action on the part of the police power.
+ - A country becomes more prosperous in proportion to the rise in the invested capital unit per unit of its population.
+ - The illusiveness of this concept of national income is to be seen in its dependence on changes in the purchasing power of the monetary unit. The more inflation progresses, the higher rises the national income.
+ - What pushes the masses into the camp of socialism is, even more than the illusion that socialism will make them richer, the expectation that it will curb all those who are better than they themselves are.
+ - In spite of the anticapitalistic policies of all governments and of almost all political parties, the capitalist mode of production.
+ - Political ideas that have dominated the public mind for decades cannot be refuted through rational arguments. They must run their course in life and cannot collapse otherwise than in great catastrophe...
+ - In the socialist commonwealth every economic change becomes an undertaking whose success can be neither appraised in advance nor later retrospectively determined. There is only groping in the dark. Socialism is the abolition of rational economy.
+ - Nobody is in a position to decree what should make a fellow man happier.
+ - The policies advocated by the welfare school remove the incentive to saving on the part of private citizens.
+ - The most important thing to remember is that inflation is not an act of God, that inflation is not a catastrophe of the elements or a disease that comes like the plague. Inflation is a policy.
+ - Every collectivist assumes a different source for the collective will, according to his own political, religious and national convictions.
+ - The essential characteristic of Western civilization that distinguishes it from the arrested and petrified civilizations of the East was and is its concern for freedom from the state.
+ - Every man aims at avoiding what causes him pain; the activities of government ultimately consist in the infliction of pain. All great achievements of mankind were the product of a spontaneous effort on the part of individuals; government substitutes coercion for voluntary action.
+ - It has always been the task of the new generation to provoke changes.
+ - The unpopularity of economics is the result of its analysis of the effects of privileges. It is impossible to invalidate the economists demonstration that all privileges hurt the interests of the rest of the nation or at least a great part of it.
+ - What pays under capitalism is satisfying the common man, the customer. The more people you satisfy, the better for you.
+ - Those who satisfy the wants of a smaller number of people only collect fewer votes-dollars-than those who satisfy the wants of more people.
+ - The market system makes all producers responsible to the consumer.
+ - Plato and Hitler were both the same kind of consistent socialists who planned also for the production of future socialists, the breeding and education of future members of society.
+ - Wars of aggression are popular nowadays with those nations convinced that only victory and conquest could improve their material well-being.
+ - Seen from the point of view of the particular group interests of the bureaucrats, every measure that makes the government’s payroll swell is progress.
+ - It is not conclusive proof of a doctrine’s correctness that its adversaries use the police, the hangman, and violent mobs to fight it. But it is a proof of the fact that those taking recourse to violent oppression are in their subconscious convinced of the untenability of their own doctrines.
+ - When we call a capitalist society a consumers democracy we mean that the power to dispose of the means of production, which belongs to the entrepreneurs and capitalists, can only be acquired by means of the consumers ballot, held daily in the marketplace.
+ - There is simply no other choice than this: either to abstain from interference in the free play of the market, or to delegate the entire management of production and distribution to the government. Either capitalism or socialism: there exists no middle way.
+ - The body of economic knowledge is an essential element in the structure of human civilization; it is the foundation upon which modern industrialism and all the moral, intellectual, technological, and therapeutical achievements of the last centuries have been built.
+ - In capitalist enterprise there is no secure income and no security of wealth.
+ - The school is a political prize of the highest importance. It cannot be deprived of its political character as long as it remains a public and compulsory institution.
+ - What can prevent the coming of totalitarian socialism is only a thorough change in ideologies. What we need is an open positive endorsement of that system to which we owe all the wealth that distinguished our age from the conditions of ages gone by.
+ - There is in the universe something for the description and analysis of which the natural sciences cannot contribute anything. There are events beyond the range of those events that the procedures of the natural sciences are fit to observe and describe. There is human action.
+ - All attempts to coerce the living will of human beings into the service of something they do not want must fail.
+ - No people and no part of a people shall be held against its will in a political association that it does not want.
+ - War prosperity is like the prosperity that an earthquake or a plague brings.
+ - This, then, is freedom in the external life of man-that he is independent of the arbitrary power of his fellows.
+ - The public firm can nowhere maintain itself in free competition with the private firm; it is possible today only where it has a monopoly that excludes competition. Even that alone is evidence of its lesser economic productivity.
+ - The comparatively greater prosperity of the United States is an outcome of the fact that the New Deal did not come in 1900 or 1910, but only in 1933.
+ - Is still fulfilling its social function in supplying the consumers with more, better and cheaper goods.
+ - A lasting order cannot be established by bayonets.
+ - The boom is called good business, prosperity, and upswing. Its unavoidable aftermath, the readjustment of conditions to the real data of the market, is called crisis, slump, bad business, depression.
+ - The state can be and has often been in the course of history the main source of mischief and disaster.
+ - A new type of superstition has got hold of people’s minds, the worship of the state.
+ - Economic control is not merely control of a sector of human life that can be separated from the rest; it is the control of the means for all our ends.
+ - One has to recognize that science is not metaphysics, and certainly not mysticism; it can never bring us the illumination and the satisfaction experienced by one enraptured in ecstasy. Science is sobriety and clarity of conception, not intoxicated vision.
+ - The characteristic mark of this age of dictators, wars and revolutions is its anticapitalistic bias. Most governments and political parties were eager to restrict the sphere of private initiative and free enterprise.
+ - During the 2300 years since Plato, very little opposition has been registered to his ideas.
+ - Those who disagree with the dictator’s plan have no other means to carry on than to defeat the despot by force of arms.
+ - Where there is no market economy, the best intentioned provisions of constitutions and laws remain a dead letter.
+ - An intellectual inferiority of the masses would manifest itself most evidently in their aiming at the abolition of the system in which they themselves are supreme and are served by the elite of the most talented men.
+ - The whole of mankind’s progress has had to be achieved against the resistance and opposition of the state and its power of coercion.
+ - For it is an essential difference between capitalist and socialist production that under capitalism men provide for themselves, while under Socialism they are provided for.
+ - The desire for an increase of wealth can be satisfied through exchange, which is the only method possible in a capitalist economy, or by violence and petition as in a militarist society, where the strong acquire by force, the weak by petitioning.
+ - Fortunes cannot grow; someone has to increase them.
+ - A wealthy man can preserve his wealth only by continuing to serve the consumers in the most efficient way.
+ - Socialism and interventionism. Both have in common the goal of subordinating the individual unconditionally to the state.
+ - The policy of letting the free market determine the height of wage rates is the only reasonable and successful full-employment policy.
+ - Society is joint action and cooperation in which each participant sees the other partner’s success as a means for the attainment of his own.
+ - Production is not something physical, material, and external; it is a spiritual and intellectual phenomenon.
+ - This dilettantish inability to comprehend the essential issues of the conduct of production affairs is not only manifested in the writings of Marx and Engels. It permeates no less the contributions of contemporary pseudo-economics.
+ - The only means to well-being is to increase the quantity of products. This is what business aims at.
+ - Interventionism cannot be considered as an economic system destined to stay. It is a method for the transformation of capitalism into socialism by a series of successive steps.
+ - The market and its inescapable law are supreme.
+ - What is lacking to the underdeveloped nations is not knowledge, but capital.
+ - A short time ago the demagogues blamed capitalism for the poverty of the masses. Today they rather blame capitalism for the “affluence” that it bestows upon the common man.
+ - The member of a contractual society is free because he serves others only in serving himself. What restrains him is only the inevitable natural phenomenon of scarcity.
+ - Economic progress is the work of the savers, who accumulate capital, and of the entrepreneurs, who turn capital to new uses.
+ - The characteristic mark of economic history under capitalism is unceasing economic progress, a steady increase in the quantity of capital goods available, and a continuous trend toward an improvement in the general standard of living.
+ - Whoever wants peace among nations must seek to limit the state and its influence most strictly.
+ - The early industrialists were for the most part men who had their origin in the same social strata from which their workers came. They lived very modestly, spent only a fraction of their earnings for their households and put the rest back into the business.
+ - What governments call international monetary cooperation is concerted action for the sake of credit expansion.
+ - The governments alone are responsible for the spread of the superstitious awe with which the common man looks upon every bit of paper upon which the treasury or agencies which it controls have printed the magical words legal tender.
+ - My theories explain, but cannot slow the decline of a great civilization. I set out to be a reformer, but only became the historian of decline.
+ - In the long run the ideas of the majority, however detrimental they may be, will carry on. The future of mankind depends on the ability of the elite to influence public opinion in the right direction.
+ - As soon as we surrender the principle that the state should not interfere in any questions touching on the individuals mode of life, we end by regulating and restricting the latter down to the smallest details.
+ - It is inherent in the nature of the capitalistic economy that, in the final analysis, the employment of the factors of production is aimed only toward serving the wishes of consumers.
+ - Experience shows that nothing is operated with less economy and with more waste of labor and material of every kind than public services and undertakings. Private enterprise on the other hand naturally induces the owner to work with the greatest economy in his own interest.
+ - He who serves the public best, makes the highest profits.
+ - Assistance granted to the unemployed does not dispose of unemployment. It makes it easier for the unemployed to remain idle.
+ - The Santa Claus principle liquidates itself.
+ - What is needed for a sound expansion of production is additional capital goods, not money or fiduciary media. The credit expansion is built on the sands of banknotes and deposits. It must collapse.
+ - Against nature and within nature there is no freedom.
+ - It is the rule of law alone which hinders the rulers from turning themselves into the worst gangsters.
+ - Once the principle is admitted that it is the duty of the government to protect the individual against his own foolishness, no serious objections can be advanced against further encroachments.
+ - The issue is always the same: the government or the market. There is no third solution.
+ - The final outcome of the credit expansion is general impoverishment.
+ - The distinctive principle of Western social philosophy is individualism.
+ - Capitalists have the tendency to move toward those countries in which there is plenty of labor available and at which labor is reasonable. And by the fact that they bring capital into these countries, they bring about a trend toward higher wage rates.
+ - The tricks and artifices of advertising are available to the seller of the better product no less than to the seller of the poorer product. But only the former enjoys the advantage derived from the better quality of his product.
+ - In many fields of the administration of interventionist measures, favoritism simply cannot be avoided.
+ - The attainment of the economic aims of man presupposes peace.
+ - The prevailing legal and moral views of a time are held not only by those whom they benefit but by those, too, who appear to suffer from them. Their domination is expressed in that fact- that the people from whom they claim sacrifice accept them.
+ - Big business depends entirely on the patronage of those who buy its products: the biggest enterprises loses its power and its influence when it loses its customers.
+ - The avowed aim of all utopian movements is to put an end to history and to establish a final and permanent calm.
+ - Perhaps there are somewhere in the infinite universe beings whose minds outrank our minds to the same extent as our minds surpass those of the insects. Perhaps there will once somewhere live beings who will look upon us with the same condescension as we look upon amoebae.
+ - The standard of living of the common man is higher in those countries which have the greatest number of wealthy entrepreneurs.
+ - American authors or scientists are prone to consider the wealthy businessman as a barbarian, as a man exclusively intent upon making money.
+ - If it is unnecessary to adjust the amount of expenditure to the means available, there is no limit to the spending of the great god State.
+ - History makes one wise, but not competent to solve concrete problems.
+ - Democracy is not a good that people can enjoy without trouble. It is, on the contrary, a treasure that must be daily defended and conquered anew by strenuous effort.
+ - Scientific research sooner or later, but inevitably, encounters something ultimately given that it cannot trace back to something else of which it would appear as the regular or necessary derivative. Scientific progress consists in pushing further back this ultimately given.
+ - What workers must learn is that the only reason why wage rates are higher in the United States is that the per head quota of capital invested is higher.
+ - A citizen who casts his ballot without having to the best of his abilities studied as much economics as he can fails in his civic duties.
+ - What matters is not the allocation of portions out of a fund presented to man by nature. The problem is rather to further those social institutions which enable people to continue and to enlarge the production of all those things which they need.
+ - All present-day governments are fanatically committed to an easy money policy.
+ - Manufacturing and commercial monopolies owe their origin not to a tendency imminent in a capitalist economy but to governmental interventionist policy directed against free trade and laissez faire.
+ - Those fighting for free enterprise and free competition do not defend the interests of those rich today. They want a free hand left to unknown men who will be the entrepreneurs of tomorrow...
+ - It is extremely difficult for our contemporaries to conceive of the conditions of free banking because they take government interference with banking for granted and as necessary.
+ - No one should expect that any logical argument or any experience could ever shake the almost religious fervor of those who believe in salvation through spending and credit expansion.
+ - An essential point in the social philosophy of interventionism is the existence of an inexhaustible fund which can be squeezed forever. The whole system of interventionism collapses when the fountain is drained off: The Santa Clause principle liquidates itself.
+ - Private property creates for the individual a sphere in which he is free of the state. It sets limits to the operation of the authoritarian will.
+ - Society is only possible on these terms, that the individual finds therein a strengthening of his own ego and his own will.
+ - A free press can only exist where there is private control over the means of production.
+ - The advocates of public control cannot do without inflation. They need it in order to finance their policy of reckless spending and of lavishly subsidizing and bribing the voters.
+ - Not mythical material productive forces, but reason and ideas determine the course of human affairs. What is needed to stop the trend toward socialism and despotism is common-sense and moral courage.
+ - The people who think that the power of big business is enormous are mistaken.
+ - There is no other planning for freedom and general welfare than to let the market system work.
+ - If men do not now succeed in abolishing war, civilization and mankind are doomed.
+ - The consumers suffer when the laws of the country prevent the most efficient entrepreneurs from expanding the sphere of their activities. What made some enterprises develop into “big business” was precisely their success in filling best the demand of the masses.
+ - Within the market society each serves all his fellow citizens and each is served by them. It is a system of mutual exchange of services and commodities, a mutual giving, and receiving.
+ - Every restriction of trade creates vested interests that are from then on opposed to its removal.
+ - There would not be any profits but for the eagerness of the public to acquire the merchandise offered for sale by the successful entrepreneur. But the same people who scramble for these articles vilify the businessman and call his profit ill-got.
+ - What vitiates entirely the socialists economic critique of capitalism is their failure to grasp the sovereignty of the consumers in the market economy.
+ - Economic theory has demonstrated in an irrefutable way that a prosperity created by an expansionist monetary and credit policy is illusory and must end in a slump, an economic crisis.
+ - It is indeed one of the principal drawbacks of every kind of interventionism that it is so difficult to reverse the process.
+ - The masses, in their capacity as consumers, ultimately determine everybody’s revenues and wealth.
+ - In a game there are winners and losers. But a business deal is always advantageous for both parties. If both the buyer and the seller were not to consider the transaction as the most advantageous action they could choose under the prevailing conditions, they would not enter into the deal.
+ - Nobody ever recommended a dictatorship aiming at ends other than those he himself approved. He who advocates dictatorship always advocates the unrestricted rule of his own will.
+ - The riches of successful entrepreneurs is not the cause of anybody’s poverty; it is the consequence of the fact that the consumers are better supplied than they would have been in the absence of the entrepreneur’s efforts.
+ - The capitalist system was termed “capitalism” not by a friend of the system, but by an individual who considered it to be the worst of all historical systems, the greatest evil that had ever befallen mankind. That man was Karl Marx.
+ - The market economy as such does not respect political frontiers. Its field is the world.
+ - The masses do not like those who surpass them in any regard. The average man envies and hates those who are different.
+ - Professor von Mises has a splendid analytical mind and an admirable passion for liberty; but as a student of human nature he is worse than null and as a debater he is of Hyde Park standard.
+ - Under capitalism the common man enjoys amenities which in ages gone by were unknown and therefore inaccessible even to the richest people.
+ - He who disdains the fall in infant mortality and the gradual disappearance of famines and plagues may cast the first stone upon the materialism of the economists.
+ - To assign to everybody his proper place in society is the task of the consumers. Their buying and abstention from buying is instrumental in determining each individual’s social position.
+ - Public works are not accomplished by the miraculous power of a magic wand. They are paid for by funds taken away from the citizens.
+ - There is no western, capitalistic country in which the conditions of the masses have not improved in an unprecedented way.
+ - Every extension of the functions and power of the State beyond its primary duty of maintaining peace and justice should be scrutinized with jealous vigilance.
+ - The bureaucrat is not free to aim at improvement. He is bound to obey rules and regulations established by a superior body. He has no right to embark upon innovations if his superiors do not approve of them. His duty and his virtue is to be obedient.
+ - Economically considered, war and revolution are always bad business.
+ - In relation to the immense sacrifices that the state demands of the individual through the blood tax, it seems rather incidental whether it compensates the soldier more or less abundantly for the loss of time that he suffers from his military-service obligation.
+ - Servile labour disappeared because it could not stand the competition of free labour; its un-profitability sealed its doom in the market economy.
+ - The egalitarian doctrine is manifestly contrary to all the facts established by biology and by history. Only fanatical partisans of this theory can contend that what distinguishes the genius from the dullard is entirely the effect of postnatal influences.
+
+424 quotes

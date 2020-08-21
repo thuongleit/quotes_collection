@@ -1,0 +1,23 @@
+ - The ring always believes that the finger lives for it.
+ - The mind gets distracted in all sorts of ways. The heart is its own exclusive concern and diversion.
+ - The family is a court of justice which never shuts down for night or day.
+ - The flower in the vase smiles, but no longer laughs.
+ - The man who can make others laugh secures more votes for a measure than the man who forces them to think.
+ - We sometimes laugh from ear to ear, but it would be impossible for a smile to be wider than the distance between our eyes.
+ - A women knows how to keep quiet when she is in the right, whereas a man, when he is in the right, will keep on talking.
+ - The idealist walks on tiptoe, the materialist on his heels.
+ - Monkeys are superior to men in this: when a monkey looks into a mirror, he sees a monkey.
+ - In mixed company women practise a kind of visual shorthand that they later decode in detail in other women’s company.
+ - We always keep God waiting while we admit more importunate suitors.
+ - The glance embroiders in joy, knits in pain, and sews in boredom. When indifferent, the eye takes stills, when interested, movies. Laughter is regional: a smile extends over the whole face.
+ - The ears are the last feature to age.
+ - Women eat while they are talking; men talk while they are eating.
+ - In the distance, the gestures of animals look human, the gestures of human beings bestial.
+ - Art is nature speeded up and God slowed down.
+ - Women make us poets, children make us philosophers.
+ - Our expression and our words never coincide, which is why the animals don’t understand us.
+ - Chins are exclusively a human feature, not to be found among the beasts. Ithey had chins, most animals would look like each other.
+ - Animals awaken, first facially, then bodily. Men’s bodies wake before their faces do. The animal sleeps within its body, man sleeps with his body in his mind.
+ - Laughter is regional: a smile extends over the whole face.
+
+21 quotes

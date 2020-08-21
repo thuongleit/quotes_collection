@@ -1,0 +1,125 @@
+ - It’s not how we fall. It’s how we get back up again.
+ - Without a filter, a man is just chaos walking.
+ - We are the choices we make.
+ - Your mind will believe comforting lies while also knowing the painful truths that make those lies necessary. And your mind will punish you for believing both.
+ - Librarians are tour-guides for all of knowledge.
+ - I wish I had a hundred years, she said, very quietly. A hundred years I could give to you.
+ - Belief is half of all healing. Belief in the cure, belief in the future that awaits.
+ - We don’t say nothing more. What else is there to say? Everything and nothing. You can’t say everything, so you don’t say nothing.
+ - There is not always a good guy. Nor is there always a bad one. Most people are somewhere in between.
+ - Being a leader is making the people you love hate you a little more each day.
+ - To live is to fight, to preserve life is to fight everything that man stands for.
+ - Don’t deceive me. Never leave me.
+ - Conor held tightly onto his mother. And by doing so, he could finally let her go.
+ - War makes monsters out of men.
+ - To say you have no choice is to relieve yourself of responsibility.
+ - We have to lie to ourselves to live. Otherwise, we’d go crazy.
+ - I am Todd Hewitt, I think to myself with my eyes closed. I am twelve years and twelve months old. I live in Prentisstown on New World. I will be a man in one month’s time exactly.
+ - People say they want freedom, but what they really want is freedom from worry. If I take care of their problems, they don’t mind being told what to do.
+ - And it feels like, finally.
+ - It’s not that you should never love something so much that it can control you. It’s that you need to love something that much so you can never be controlled. It’s not a weakness. It’s your best strength.
+ - Real life is only ever just real life. Messy. What it means depends on how you look at it. The only thing you’ve got to do is find a way to live there.
+ - Choices may be unbelievably hard but they’re never impossible. To say you have no choice is to release yourself from responsibility and that’s not how a person with integrity acts.
+ - We all fall but that’s not what matters. What matters is picking yourself up again.
+ - Life ain’t fair. It ain’t. Not never.
+ - We are the choices we make. And have to make. We aren’t anything else.
+ - Things change, but they stay the same.
+ - So the good prince was a murderer and the evil queen wasn’t a witch after all.
+ - Don’t think you haven’t lived long enough to have a story to tell.
+ - Faith with proof is no faith at all.
+ - Hope may be the thing that pulls you forward, may be the thing that keeps you going, but that it’s dangerous, that it’s painful and risky, that it’s making a dare in the world and when has the world ever let us win a dare?
+ - Here I am. Here we are. Here we go. Here is all that matters.
+ - Know yourself and go in swinging.
+ - Stories are the wildest things of all. Stories chase and bite and hunt.
+ - And the pain is too much it’s too much it’s too much and my hands are on my head and I’m rearing back and my mouth is open in a never-ending wordless wail of all the blackness that’s inside me. And i fall back into it.
+ - The only place you belong is the place you can never go back. And so yer always alone, forever and always.
+ - There’s always beauty, if you know where to look.
+ - War makes monsters of men, you once said to me Todd. Well, so does too much knowledge. Too much knowledge of your fellow man, too much knowledge of his weakness, his pathetic greed and vanity, and how laughably easy it is to control him.
+ - And I know it – I know it in my heart – Right now – Todd Hewitt – There’s nothing we can’t do together -.
+ - Knowledge is dangerous and men lie and the world changes, whether I want it to or not.
+ - Stories were wild, wild animals and went off in directions you couldn’t expect.
+ - The justifications of men who kill should always be heard with skepticism, said the monster.
+ - And too much informayshun can drive a man mad. Too much informayshun becomes just Noise. And it never, never stops.
+ - If a crowd can flinch, they flinch. More than a thousand men flinch under the fist of just one. I don’t see what the women do.
+ - And then a low and powerful sound rumbles thru the sky, like some giant, deep horn. A sound God would make when he wanted yer attenshun.
+ - Shout for libraries. Shout for the young readers who use them.
+ - I remember the ache I used to feel when she got too close, how it felt like grief, how it felt like a loss, like I was falling, falling into nothing, how it clenched me up and made me want to weep, made me actually weep.
+ - Do we hate paradise so much we need to make sure it becomes a trash heap?
+ - And here was a man who lived on belief, but who sacrificed it at the first challenge, right when he needed it most.
+ - Teenagers are the greatest readers in the world – honest, unsnobby and loyal.
+ - I want a campfire box.
+ - Except I didn’t say eff.
+ - Ow, Todd? Ow?
+ - Never trust a politician, Todd. They have no fixed center, so you can never believe them.
+ - You said we all want there to be more than this! Well, there’s always more than this. There’s always something you don’t know.
+ - And it hurts her, but it’s an okay hurt, but it hurts still, but it’s good, but it hurts.
+ - And it’s a sad song, Todd, but it’s also a promise. I’ll never deceive you and I’ll never leave you and I promise you this so you can one day promise it to others and know that it’s true.
+ - Ah, well, then you’ve never stood on a beach as the waves came crashing in, the water stretching out from you until it’s beyond sight, moving and blue and alive and so much bigger than even the black beyond seems because the ocean hides what it contains.
+ - Everything that’s happened has brought me here, to this place, with this knife in my hand, and something worth saving.
+ - But a knife ain’t just a thing, is it? It’s a choice, it’s something you do. A knife says yes or no, cut or not, die or don’t. A knife takes a decision out of your hand and puts it in the world and it never goes back again.
+ - Guessing a thing ain’t knowing a thing.
+ - It is a true story, the monster said. Many things that are true feel like a cheat.
+ - Viola? Keep calling for me– And I’ll keep searching for you– And I’ll find you– You bet yer life on it– I’ll find you– Keep calling for me, Viola– Cuz here I come.
+ - Sometimes witches merit saving. Quite often, actually. You’d be surprised.
+ - There’s so much wonder in the world. Don’t let no one tell you otherwise.
+ - I’ll find you- Keep calling for me, Viola- Cuz here I come.
+ - I promised to keep on going but maybe keep on going means coming back first.
+ - What a sad thing men are. Can’t do nothing good without being so weak we have to mess it up. Can’t build something up without tearing it down.
+ - The monster showed up just after midnight. As they do.
+ - In this world of numbness and information overload, the ability to feel, my boy, is a rare gift indeed.
+ - A monster, I think, remembering what Ben told me once. War makes Monsters of Men.
+ - A thing worth learning is worth learning well.
+ - Life equals running and when we stop running maybe that’s how we’ll know life is finally finished.
+ - A knife is only as good as the one who wields it.
+ - Doing what’s right should be easy. It shouldn’t be just another big mess like everything else.
+ - Know yourself and go in swinging, if it hurts when you hit, it might be real, too.
+ - Conor was no longer invisible. They all saw him now. But he was further away than ever.
+ - And then his noise falls completely silent- And he stops struggling- And looking right into my eyes- He dies. My Todd dies.
+ - Men do monstrous things but if you call a man a monster you have absolved yourself of blame. You don’t have to think that you might ever do these things. I don’t think that’s true.
+ - No one escapes from a war. No one. Not even the survivors. You accept things that would appall you at any other time because life has temporarily lost all meaning.
+ - Why can’t we learn to live with how we are? And whatever anybody chooses is okay by the rest of us?
+ - And otherwise normal men become monsters, too.
+ - Do you not wonder sometimes, she showed now, sadly, if in some ways they are correct? That we are asking too much of the world?“No,” he said. “They’re the ones who are asking for too little.”
+ - I take my rucksack and go out the opening where the front door used to be. Manchee gets up from where he’s curled and follows me. When I sit down, he recurls by my legs and fall asleep, farting happily and giving a doggy sigh. Simple to be a dog.
+ - You can’t say everything, so you don’t say nothing.
+ - We run down the right fork, Manchee at our heels, the night and a dusty road stretching out in front of us, an army and a disaster behind us, me and Viola, running side by side.
+ - They open up the world. Because knowledge is useless if you don’t know how to find it, if you don’t even know where to begin to look. – on librarians.
+ - As destruction goes, the monster said behind him, this is all remarkably pitiful.
+ - It was solitude, but it was solitude that wasn’t lonely. Solitude that could sort things out. And he hadn’t had that in ages.
+ - That’s the thing I’m learning about being thrown out on yer own. Nobody does nothing for you. If you don’t change it, it don’t get changed.
+ - Midnight passes and I’m twenty-five days and a million years from becoming a man.
+ - Girls are small and polite and smiley. They wear dresses and their hair is long and it’s pulled into shapes behind their heads or on either side.
+ - It’s always nice when two people who don’t got no one else find each other as friends.
+ - There ain’t nothing good that don’t got real bad waiting to follow it.
+ - Time goes on, even when yer not looking.
+ - If you ever want to see how small you are in the plan of God, just stand at the edge of an ocean.
+ - Now that I’ve seen her, I can’t stop seeing her.
+ - You tell a man the truth about himself and, well, they find they have trouble accepting it.
+ - Here is the boy, drowning.
+ - And I look at her sitting there and she looks across the river and we wait as the dawn fully arrives, each of us knowing. Each of us knowing the other.
+ - Dogs don’t got the problems of people. Dogs can be happy any old time.
+ - Superior numbers versus superior firepower. A recipe for unending slaughter.
+ - How do you know yer alive if you don’t hurt?
+ - Francia don’t look too convinced. I never seen arms so crossed.
+ - The sound when we crash is so loud it’s almost impossible.
+ - This is what war does. Right here, in my hands. This is war.
+ - I was a hugely unchaperoned reader, and I would wander into my local public library and there sat the world, waiting for me to look at it, to find out about it, to discover who I might be inside it.
+ - Men lie, and they lie to theirselves worst of all.
+ - But, somehow, Wilf knows. Somehow, Wilf always knows.
+ - Flakes of white fall thru the trees and onto the road, catching on our clothes and hair. It’s a silent fall and it’s weird how it makes everything else seem quiet, too, like it’s trying to tell you a secret, a terrible, terrible secret.
+ - A man is capable of thought. A crowd is not.
+ - It’s a trick Ben taught me to help settle my Noise. You close yer eyes and as clearly and calmly as you can you tell yerself who you are, cuz that’s what gets lost in all that Noise.
+ - Maybe probably ain’t all that comforting a word when it’s maybe yer not dying.
+ - I just stand there like a doofus wondering just what in the effing blazes is going on.
+ - If the world wants you, it’s gonna keep on coming till it gets you. And who am I that can fix it? Who am I that can change this if the world wants it so badly? Who am I to stop the end of the world if it keeps on coming?
+ - Noise ain’t Truth, Noise is what men want to be true, and there’s a difference twixt those two things so big that it could ruddy well kill you if you don’t watch out.
+ - Stories don’t end with the writers, however many started the race.
+ - It’s not the mistakes I made but how I responded to them.
+ - Worst is the one who knows better and does nothing.
+ - He was still alive. Which was the worst thing that could have happened.
+ - That’s another thing about Noise. Everything that’s ever happened to you just keeps right on talking, for ever and ever.
+ - She looks at me. She does. She.
+ - You went up a girl and came down a woman.
+ - This is how we are protecting you, by getting you out.
+
+123 quotes

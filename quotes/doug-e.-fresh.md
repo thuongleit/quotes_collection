@@ -1,0 +1,22 @@
+ - I’m always trying to come up with something new and unique. I do a beatbox with a harmonica.
+ - It’s like having a conversation. Doing beatbox for me is as natural as talking is for someone else. Sending sound through a certain part of my throat, so that I am accurate every time. It’s not like whatever happens happens, this is a focused sound.
+ - I was probably like 13 years old, 14. And I used to walk home doing the beatbox from school. That’s how I created it. There was no walkmans back then, no iPods, no CDs. There was just me. Back then there was the boom box.
+ - I could still walk the street. I don’t have to have no massive security.
+ - I’m forever learning and that’s why I’m always able to create new styles and new dimensions of hip-hop.
+ - When I first started to beatbox on the microphone with the Get Fresh Crew, people were shocked. Some things are just supposed to happen and you have to roll with it.
+ - Hip-hop is supposed to uplift and create, to educate people on a larger level and to make a change.
+ - I told my father to stop smoking around the age of two or three years old and he stopped smoking. So the relationship between the kid and the parent is very powerful, and if you give the kid the right information, it can be very useful to the family.
+ - Scientology is not written with disrespect toward God. It doesn’t worship something that is evil. It is scientific, mathematical, and spiritual. The black community has to check it out and see what’s there. I’m not saying it’s for everyone, but you have to take a look.
+ - There’s nothing more special than talking in your community, and using your celebrity to uplift people and help them.
+ - I think the rebuilding of the city has to start with the spirit first. So the music, the vibe, the connection spiritually with the artists. Everybody out here is the main key. A lot of people are still in a lot of tough situations. My heart still goes out to the people of New Orleans.
+ - Health has always been an important thing to me. I exercise and try to take care of myself, and drink a lot of water! And I push that to my kids so that they can carry on that same energy.
+ - My sons are coming out with music. Square Off, they’re called.
+ - Honestly, a lot of pop records have beatboxing. Timbaland beatboxes on his tracks. Justin Timberlake beatboxes.
+ - People can look to me as a teacher, but I consider myself a student of hip-hop.
+ - I’m coming up with new music, I’m in the best shape of my life, I’m real sharp, my energy is strong. I look at it as: I’m just following the energy. That’s how I sum that up.
+ - I’ve learned how to look at things and not judge them, but respect them and use it in a way that people understand that I respect them, show them love and respect their reality.
+ - I have new music coming out. I’m working on some television shows. I still do a tremendous amount of concerts. I’m doing my restaurant. I got a club coming in New York. The restaurant is called Doug E. The club is called Fresh.
+ - Everybody’s doing it. When I’m performing and I do the Dougie, the fans lose their minds.
+ - Scientology is not a White religion. It is not just for White people.
+
+20 quotes

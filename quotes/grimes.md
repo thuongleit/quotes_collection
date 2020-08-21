@@ -1,0 +1,83 @@
+ - I love humanity, I love the way people look.
+ - In America there’s lot of cool cities, but in Canada there’s, like, well, Vancouver, Toronto and Halifax may be cool, but they’re so expensive. Montreal is the only city that’s affordable but also has buses and culture.
+ - I cry really easily. If I see a butterfly, I’ll practically burst into tears. So it’s really hard for me to yell at people, because I’ll feel so guilty about it. But if I don’t, then they don’t take me seriously and it’s this endless cycle.
+ - I like creating beauty out of scary things.
+ - Just because something might not have a deep philosophical meaning doesn’t mean it’s not important or relevant.
+ - My manager lives on my block; four of the apartments in my apartment complex of seven are people I know. It’s a really close-knit community, and almost everyone on these few blocks are artists or graphic designers, because we live right on the cusp of a warehouse district.
+ - I’m a very unhealthy person, and Montreal is very cold, and I’m usually sick when I’m there.
+ - The way that you present yourself visually totally dictates your audience and everything that anyone thinks about you.
+ - Ugly girls generally don’t become successful in music. And it sucks because it’s a standard that just exists.
+ - The groove can go for like three days – once I’m in it it will just keep going until I’m totally exhausted. But that’s how I like to work, I like to be away from everyone and just get in the zone, and stay there for as long as I can keep it there.
+ - I want to make Grimes a high-fashion sci-fi act.
+ - I just watched another person I care deeply about basically turn into Gollum and my heart is broken.
+ - Removing all stimulation around you is a really positive thing in terms of stimulating your creativity.
+ - I don’t want to have to compromise my morals in order to make a living.
+ - When an artist, or whomever, moves from their scene to the bigger pond, it starts getting crazy, because all of a sudden people don’t respect you, and you have to start being a lot more aggressive than you would normally be.
+ - I want to say my life inspires my lyrics, but I also try to abstract them as much as possible because I don’t want to refer to my life explicitly. I’m definitely really embarrassed by my lyrics.
+ - I don’t even wear shoes with heels because I hate making a noise when I walk and people looking at me.
+ - I listen to a lot of medieval music.
+ - I’m just very obsessed with Japanese stuff in general.
+ - I prefer making videos to making music.
+ - I’m so sick of my own music that I don’t know if I can edit another video, which involves hundreds of hours of listening to your own song again and again and again. It becomes so grating after a while.
+ - Obviously, I like things that are cute and aggressive at the same time, but I didn’t want it to just be mini-bangs and lip-syncing in a dress. I need to get away from that stuff.
+ - As a producer, I’m trying to challenge myself to just make something that is of a professional quality – not necessarily pop music, but maybe in the sense that Nine Inch Nails is professional quality.
+ - It’s kind of like I’m Phil Spector, and I’m forcing a young girl to make pop music and perform exhaustively. Except, instead of it being someone else, that girl is also me.
+ - I think a lot of music that’s really innovative is not even considered because it was made by people who had a sexual image. And people assume that it’s a commodified thing, so it can’t be “indie.”
+ - I feel like vocals are to music what portraits are to painting. They’re the humanity. Landscapes are good and fine, but at the end of the day everyone loves the Mona Lisa.
+ - I approach music- and this sounds crazy- as though I’m Phil Spector, and I’m cranking out these pop stars and forcing them to do all this stuff-except they’re all me. But I’m not, like, transgendered.
+ - I definitely see the voice as an instrument: It makes great drums, great synth pads, great everything.
+ - I’m sad that it’s uncool or offensive to talk about environmental or human rights issues.
+ - Mariah Carey is my favorite singer because her voice sounds utterly groundless. It’s not even a human voice; it almost sounds mechanical.
+ - Especially with music, people want confidence.
+ - You don’t just have to be influenced by rock, or goth, anymore. It’s okay to say, ‘My influences are Tin Pan music from Bali and Rihanna.’ There are still so many combinations that haven’t been done yet.
+ - I just can’t perform well unless I’m wearing jeans.
+ - Art gives me an outlet where I can be aggressive in a world where I usually can’t be.
+ - I find it really hard to throw myself into something artistically where I’m making up a whole character and finding something for that character to do.
+ - You rarely find someone who sings really well and who produces really well; it’s a problem, and I just think it’s a missing link in the music scene.
+ - I write music better in the winter, I prefer making music when it’s dark.
+ - Lets make it known that we don’t want to give away our beautiful homeland to corporate interests. It is our right as Canadians to be part of these decisions. The only thing standing between this world and environmental catastrophe is us.
+ - There aren’t many other labels who I can say are that successful, and can give me as much as 4AD gives me, and still have such a great roster.
+ - If you look at the way people behave at shows, icons are now musicians; they are the people that we worship.
+ - I don’t own anything designer.
+ - It’s important for people not to feel like doing things that are immature, stuff you have to try out when you’re a teenager, is bad, per se. Demonizing it is one of the reasons it becomes such an issue.
+ - I love a lot of very sentimental music, but I shouldn’t necessarily be the person who makes it.
+ - I’m tired of being congratulated for being thin because I can more easily fit into sample sizes from the runway.
+ - Success, for me, is a song that can deliver shivers.
+ - If you tell someone you’re doing something innovative, they’ll think you’re doing something innovative.
+ - I get offers to do huge-budget music videos with big production companies all the time, but I have no interest.
+ - If you focus too much on development of the visual angle, it could be a detriment to what you’re doing musically.
+ - By the time I’m 50, there is probably going to be a nuclear holocaust. I should just enjoy myself.
+ - I like performing, but I usually get really sick when I’m on tour, and it’s just hard.
+ - I love pop music, but I also love noise music, IDM – anything really, I get something out of most kinds of music. I just need to enjoy the process.
+ - I usually like to get people in because I don’t have a band or anything. In cities where I have friends, I try to get them to come out and dance for me.
+ - When I’m making something I need it to be catchy – I need it to hit the sweet spot.
+ - I don’t think I know anyone who has a steady job in Montreal.
+ - Fashion can be a really powerful tool, but it’s also a place where you can be totally humiliated and have your power taken from you.
+ - I always wanted to be really experimental.
+ - I like going crazy. And not just for art – I like extremes in general.
+ - I believe the human mind is a very fallible thing, but it’s the only thing that I can really know, I guess.
+ - If I went on ‘American Idol,’ I would definitely be kicked out immediately.
+ - Even though I really admire what Beyonce does, and she’s probably got one of the best live shows in the world – honestly! – that’s so not my style.
+ - I think the internet is kind of redefining what it is to be a teenager. Because there’s a lot of media that’s aimed at teenagers that other people are getting into. But, conversely, pornography or stuff that’s intended for adults is completely readily available to anyone, like teenagers.
+ - I don’t have any money to hire actors. I just need to get people who are going to do a good job being themselves.
+ - I have an intense desire to constantly make music, and I don’t feel that way about anything else.
+ - Whenever I’m making music I’m always waiting for the shivers to happen – that’s an important thing for me.
+ - Sometimes you find people who are magnetic, but once they get in front of a camera, they freak out and get weird.
+ - I grew up going to punk shows, that kind of thing – I don’t wanna make pop punk! – but I like the idea of people going totally crazy and it being really intimate, loud and super-aggressive, but combining that with pop music.
+ - The most valuable live thing for me is when people look like they’re having a good time.
+ - Basically, I’m really impressionable and have no sense of consistency in anything I do.
+ - I know texture is really important, but I think texture and stuff precedes songwriting a lot of the time these days.
+ - I like being behind the camera because I can control perception and what people see.
+ - Most of my music videos were made for under $200.
+ - I was raised in a Catholic household and went to a Catholic school, and my childhood brain perceived medieval Catholicism as an action movie: There’s this crazy omnipresent guy who can destroy you at any moment.
+ - From an early age, I knew I would be unhappy if I wasn’t doing something creative.
+ - I can tell really early on in a painting if I’m going to toss it or not.
+ - I think Canadians make a lot of music because we’re stuck inside all the time.
+ - I can’t censor myself; it’s really important for me to say how I feel.
+ - If I think about what other people are thinking when I’m making music, I just can’t do it. It’s too withheld – I need to go totally over the top, and then kind of clean it up a bit and make it more reasonable after the fact.
+ - I have a lot of Japanese friends: I grew up in Vancouver, and there’s this huge Japanese population over there.
+ - It’s really hard to be on stage and packing your gear when people who just saw you play are in the room, because they all just want to talk to you.
+ - If painters could be compared to filmmakers, Bosch is the Hype Williams of renaissance painters. With Bosch, there’s always a narrative that is very nonlinear – and that’s the essence of a good music video.
+ - The last thing I think about when I’m making music is its reception.
+
+81 quotes

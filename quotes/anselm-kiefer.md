@@ -1,0 +1,26 @@
+ - Art is difficult. Its not entertainment.
+ - Art is longing. You never arrive, but you keep going in the hope that you will.
+ - I believe in empty spaces; they’re the most wonderful thing.
+ - What does the artist do? He draws connections. He ties the invisible threads between things. He dives into history, be it the history of mankind, the geological history of the Earth or the beginning and end of the manifest cosmos.
+ - Art maybe the only space where an indvidual can be utterly free to question himself, as well as his relationship to his God.
+ - Ruins, for me, are the beginning. With the debris, you can construct new ideas. They are symbols of a beginning.
+ - Life is an illusion. I am held together in the nothingness by art.
+ - Art is difficult. It’s not entertainment. There are only a few people who can say something about art – it’s very restricted. When I see a new artist I give myself a lot of time to reflect and decide whether it’s art or not. Buying art is not understanding art.
+ - History speaks to artists. It changes the artist’s thinking and is constantly reshaping it into different and unexpected images.
+ - As a child I had no toys; our house was bombed, but there were lots of bricks. Ruins are wonderful because they are the beginning of something new, you can do something with them.
+ - But I believe above all that I wanted to build the palace of my memory, because my memory is my only homeland.
+ - Buying art is not understanding art.
+ - If I do something that depresses, it’s not because I’m depressed, but because political life and history is depressing.
+ - When, at the end of the 1960s, I became interested in the Nazi era, it was a taboo subject in Germany. No one spoke about it anymore, no more in my house than anywhere else.
+ - When knowledge becomes rigid, it stops living.
+ - History is formed by the people, those who have power and those without power. Each one of us makes history.
+ - When I see a new artist I give myself a lot of time to reflect and decide whether it’s art or not.
+ - I never see a forest that does not bear a mark or a sign of history.
+ - I might have been born into a very literal sense of chaos, but in fact that state is true of all of us.
+ - Art really is something very difficult. It is difficult to make, and it is sometimes difficult for the viewer to understand. It is difficult to work out what is art and what is not art.
+ - I believe art has to take responsibility but it should not give up being art.
+ - Because of my Calvinistic upbringing, I was trained to think that what you do has to have a purpose.
+ - Not content, but the road the artist takes, is the interesting part.
+ - I am against the idea of the end, that everything culminates in paradise or judgment.
+
+24 quotes

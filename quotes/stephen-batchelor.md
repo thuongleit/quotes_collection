@@ -1,0 +1,27 @@
+ - A secular approach is not a dumbing down, it’s not reductively identifying Buddhism with one or two particular techniques of meditation, but it is actually a complete world view and way of life in this world.
+ - Yet Gotama’s Dhamma is more than just a series of axioms. It is to be lived rather than simply adopted and believed in. It entails that one embrace this world in all its contingency and specificity, with all its ambiguity and flaws.
+ - We cannot choose whether to engage with the world, only how to.
+ - Awakening is the purpose that enfolds all purposes.
+ - Buddhism, I think, is probably facing the single most difficult transition from one historical epoch to another, which is really the transition to modernity.
+ - The greatest threat to compassion is the temptation to succumb to fantasies of moral superiority.
+ - In taking life for granted, we fail to notice it.
+ - A compassionate heart still feels anger, greed, jealousy, and other such emotions. But it accepts them for what they are with equanimity, and cultivates the strength of mind to let them arise and pass without identifying with or acting upon them.
+ - Living from our deepest understanding requires an enormous effort, especially when it goes against the stream of our instinctually programmed perceptions of the world.
+ - This body is fragile. It is just flesh. Listen to the heartbeat. Life depends on the pumping of a muscle.
+ - The origin of the conflict, frustration, and anxiety we experience does not lie in the nature of the world itself but in our distorted conceptions of the world.
+ - Consciousness is an emergent, contingent, and impermanent phenomenon. It has no magical capacity to break free from the field of events out of which it springs.
+ - The first step in this process of mindfulness is radical self-acceptance .
+ - Agnosticism is no excuse for indecision. If anything, it is a catalyst for action; for in shifting concern away from a future life and back to the present, it demands an ethics of empathy rather than a metaphysics of fear and hope.
+ - Exotic names, robes, insignia of office, titles – the trappings of religion – confuse as much as they help. They endorse the assumption of the existence of an elite whose explicit commitment grants them implicit extraordinariness.
+ - It has taken four billion years of evolution to generate this kind of organism with this kind of brain, and yet we wake up in the morning and feel bored.
+ - While ‘Buddhism’ suggests another belief system, ‘dharma practice’ suggests a course of action. The four ennobling truths are not propositions to believe; they are challenges to act.
+ - The idea that there will be something spiritual or subtle, some sort of consciousness that can escape the collapse of the body and brain, is not very credible in the modern scientific worldview.
+ - In taking the everyday details of life for granted, we fail to appreciate the extraordinary fact that we are conscious at all.
+ - In varying degrees, the authority of the dharma was replaced by the authority of the guru, who came, in some traditions, to assume the role of the Buddha himself.
+ - To preserve the integrity of the tradition, we have to distinguish between what is central to that integrity and what is peripheral. We have to discern between what elements are vital for the survival of dharma practice and what are alien cultural artefacts that might obstruct that survival.
+ - Without a rigorous, self-critical discourse, one risks lapsing into pious platitudes and unexamined generalizations.
+ - Our conceptions of the world affect our perceptions of the world which, in turn, condition the way we subsequently conceive the world.
+ - Each time the dharma moved into a different civilization or historical period, it faced a twofold challenge: to maintain its integrity as an internally coherent tradition, and to express its vision in a way that responded to the needs of the new situation.
+ - We can be consicous of how we tend to ignore or escape anguish rather than understand and accept it. We can be aware that even when we gain insight into these things, we rarely behave differently in the future. Despite our overt resolve, we are still creatures of habit.
+
+25 quotes

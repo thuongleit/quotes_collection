@@ -1,0 +1,48 @@
+ - The invitation to repent is rarely a voice of chastisement but rather a loving appeal to turn around and to “re-turn” toward God.
+ - Fear and faith cannot coexist in our hearts at the same time.
+ - You don’t know everything, but you know enough!
+ - Your faith will not grow by chance, but by choice.
+ - Families are the treasure of heaven.
+ - We see God’s miracles in His wondrous work and in our own personal lives.
+ - Challenges will come to you, but as you trust in God, they will strengthen your faith.
+ - As you keep the commandments and pray in faith to see the Lord’s hand in your life, I promise you that He will open your spiritual eyes even wider, and you will see more clearly that you are not alone.
+ - Like the intense fire that transforms iron into steel, as we remain faithful during the fiery trial of our faith, we are spiritually refined and strengthened.
+ - Repentance is a blessing to all of us. We each need to feel the Savior’s arms of mercy through the forgiveness of our sins.
+ - Motherhood is not a hobby, it is a calling. You do not collect children because you find them cuter than stamps. It is not something to do if you can squeeze the time in. It is what God gave you time for.
+ - The wisdom of the world, while in many cases very valuable, is most valuable when it humbly bows to the wisdom of God.
+ - The Savior taught us to love not only our friends but also those who disagree with us- and even those who repudiate us.
+ - If you’re not a full-time missionary with a missionary badge pinned on your coat, now is the time to paint one on your heart-painted, as Paul said, ‘not with ink, but with the Spirit of the living God.’
+ - This isn’t missionary work. This is missionary fun.
+ - In the gospel of Jesus Christ, there is no place for ridicule, bullying, or bigotry.
+ - How do you remain – steadfast and immovable during a trial of faith? You immerse yourself in the very thing that helped your core of faith: you exercise faith in Christ, you pray, you ponder the scriptures, you repent, you keep the commandments, and you serve others.
+ - Everyone, regardless of his or her decisions, deserves our kindness!
+ - We each have moments of spiritual power, moments of inspiration and revelation. We must sink them deep into the chambers of our souls. As we do, we prepare our spiritual home storage for moments of personal difficulty.
+ - Our journey of discipleship is not a dash around the track, nor is it fully comparable to a lengthy marathon. In truth, it is a lifelong migration toward a more celestial world.
+ - The blessings of the priesthood are infinitely greater than the one who is asked to administer the gift.
+ - With all the blessings our modern age has given to us, let us not give up the things that promote the workings of the Holy Ghost.
+ - But our trials need not be spiritually fatal. They need not take us from our covenants or from the household of God.
+ - As we act in faith, we often find that the blessings from the Lord are different than we expected but much better than we imagined.
+ - To mothers who are raising their children without a father in the home, I promise you that as you speak of Jesus Christ, you will feel the power of heaven blessing you.
+ - No trial is so large we can’t overcome it together.
+ - If a child is not listening, don’t despair. Time and truth are on your side. At the right moment, your words will return as if from heaven itself. Your testimony will never leave your children.
+ - While many governments and well-meaning individuals have redefined marriage, the Lord has not.
+ - As we are spiritually awake and alert we see His hand across the world and we see His hand in our own personal lives.
+ - We are all in this together. With fellow ward members and missionaries, we plan and pray and help one another. Please keep the full-time missionaries in your thoughts and prayers. Trust them with your family and friends. The Lord trusts them and has called them to teach and bless those who seek Him.
+ - When you are faced with a test of faith, stay within the safety and security of the household of God. There is always a place for you here. No trial is so large we can’t overcome it together.
+ - Spiritual questions deserve spiritual answers from God.
+ - Can you see the hand of God in your own life?
+ - Don’t let the whirlwinds drag you down. These are your days – to stand strong as disciples of the Lord Jesus Christ.
+ - The Lord will make much more out of your life than you can by yourself.
+ - Embrace more deeply His love, His mercy and grace, and the powerful gifts of His Atonement.
+ - The Prophet Joseph Smith warned us to ‘beware of self-righteousness’ and to enlarge our hearts toward all men and women until we feel ’to take them upon our shoulders.
+ - Our conversion comes step by step, line upon line. We first build a foundation of faith in the Lord Jesus Christ.
+ - Faith in Jesus Christ is a gift from heaven that comes as we choose to believe and as we seek it and hold on to it.
+ - We do not discard something we know to be true because of something we do not yet understand.
+ - Our desire to share the gospel takes all of us to our knees, and it should, because we need the Lord’s help.
+ - As surely as the Lord has inspired more missionaries to serve, He is also awakening the minds and opening the hearts of more good and honest people to receive His missionaries.
+ - You are His disciple; you are His friend. By His grace He will do for you what you cannot do for yourself.
+ - In his own time and in his own way, the Lord will bring about his miracles.
+ - With faith come trials of faith, bringing increased faith.
+ - Counting the ways the Book of Mormon brings peace to the soul is like counting the sand on the seashore.
+
+46 quotes

@@ -1,0 +1,42 @@
+ - The only true disability is a crushed spirit.
+ - Belief in oneself is incredibly infectious. It generates momentum, the collective force of which far outweighs any kernel of self-doubt that may creep in.
+ - Adversity is just change that we haven’t adapted ourselves to yet.
+ - Life is about making your own happiness – and living by your own rules.
+ - I’m not running around as a continual ray of sunshine. It’s just I don’t believe in wasting time feeling sorry for myself. Get over it.
+ - People presume my disability has to do with being an amputee, but that’s not the case; our insecurities are our disabilities, and I struggle with those as does everyone.
+ - With L’Oreal, I get to be Aimee Mullins, model. No qualifier. And that means everything to me.
+ - I’ve had journalists asking me, ‘What do we call you – is it handicapped, are you disabled, physically challenged?’ I said, ‘Well hopefully you could just call me Aimee. But if you have to describe it, I’m a bilateral below-the-knee amputee.’
+ - When I watch ‘Mad Men’ and I see the patronising attitudes to women that are so shocking for all of us to watch now, I feel that I’ve lived and see the same evolution in this regard around disability.
+ - The power of the human will to compete and the drive to excel beyond the body’s normal capabilities is most beautifully demonstrated in the arena of sport.
+ - If left to their own devices a child will achieve.
+ - Confidence is the sexiest thing a woman can have. It’s much sexier than any body part.
+ - The idea of prosthetics is a tool. Most peoples cell phones are prosthetics. If you leave your cell phone at home, you feel impacted by not having it. Its an important part of your daily function and what you can do in a day.
+ - It’s an objective fact that I am a double amputee, but it’s very subjective opinion as to whether that makes me disabled.
+ - Giving up is conceding that things will never get better, and that is just not true. Ups and downs are a constant in life, and I’ve been belted into that roller coaster a thousand times.
+ - I like that Pilates compromises the mind and body. It’s not just about being able to run around the block a few times. It’s about alleviating stress and controlling breathing. It’s about being balanced.
+ - I’m not an advocate for disability issues. Human issues are what interest me. You can’t possibly speak for a diverse group of people. I don’t know what it’s like to be an arm amputee, or have even one flesh-and-bone leg, or to have cerebral palsy.
+ - Beauty is not skin-deep; it can be a means of self-affirmation, a true indicator of personality and confidence.
+ - Sure, I’d love to have children some day. But world domination comes first.
+ - Pamela Anderson has more prosthetic in her body than I do. Nobody calls her disabled.
+ - You know, I think there are certain words like ‘illegitimate’ that should not be used to describe a person. And certainly, we have come far enough in our technology that our language can evolve, because it has an impact.
+ - In sports, I refused to do any interviews that were just going to become human-interest stories. Don’t turn me into a tragic heroine.
+ - It’s hard enough for women to walk on high heels. And I’m on stilts!
+ - Adversity isn’t an obstacle that we need to get around in order to resume living our life. It’s part of our life.
+ - For me, I never ever felt the ownership or any identity with any community of disabilities. I didn’t grow up being told that I was a disabled child.
+ - At some point in every person’s life, you will need an assisted medical device – whether it’s your glasses, your contacts, or as you age and you have a hip replacement or a knee replacement or a pacemaker. The prosthetic generation is all around us.
+ - Our responsibility is not simply shielding those we care for from adversity but preparing them to meet it well.
+ - In athletics, the idea of possibility is presumed. It’s not ‘if;’ it’s ‘how.’
+ - It’s society that disables an individual by not investing in enough creativity to allow for someone to show us the quality that makes them rare and valuable and capable.
+ - When I’m curious about something, I do it full on and take it as far as I go, but when I feel like I’ve really explored it, I’m OK with putting it aside and going on to something else.
+ - The legs that I have made are far more perfect than the ones nature would have given me – my mother’s side of the family have awful legs.
+ - I’m not an advocate for disability issues. Human issues are what interest me.
+ - A lot of my life is about will – having the will to prove what my body can do.
+ - I had a paper round and every night I would put the dinner on before Mum came home from work. I was capable because I had to be.
+ - The Pentagon isn’t a place that champions individuality and innovation.
+ - I’ve said this before, but I believe more than ever that confidence is sexier than any body part.
+ - We all bullet point our triumphs, but I am who I am because of everything you don’t see on my CV. The stuff that doesn’t work out teaches you how to trust your instincts and adapt.
+ - I have learned not to overlook the advantages of being me. From when I was a softball player, and I held the stolen bases record. I would slide into second with my prostheses, and the girl on the base could either step aside or meet two wooden sticks.
+ - True beauty is when someone radiates that they like themselves.
+ - If you watch any John Hughes film of the eighties, that was my childhood experience.
+
+40 quotes

@@ -1,0 +1,21 @@
+ - If it happened to me, it can happen to anyone.
+ - It is my goal to learn as much about the people I’m surrounded by. I am slowly widening who I am close with, and at the same time, growing further away from others.
+ - You do in your art what you cannot do in your life.
+ - The press always ends up being much nicer than I expect. A lot of times they say something snarky about you, but then you meet them in person and they couldn’t be nicer.
+ - Certainly there’s got to be a little bit of reality show fatigue happening.
+ - I’d started working when I was 21 and had been very determined about my career, very focused, even as a little kid, so it was something I had been working at for a long time.
+ - I think our show is very different from Orange County.
+ - The girls in high school who watched 90210? I was watching Seinfeld.
+ - It’s really hard in this day and age, with radio and MTV being so consolidated, to get new music out there. I think we’ve become a really legitimate, viable avenue for getting new music out there.
+ - I think you’re only as good as the work that you do.
+ - Year Two is a critical year for any television show.
+ - At first we didn’t have a lot of access to New York City, but very quickly, I think people recognized if you were on the show that was a good thing. We always saw the show as a love letter to New York City.
+ - Like they said about The West Wing, you can’t do a show about Washington until you can.
+ - I am the kind of person that takes everything as is and then look at it from the outside looking in.
+ - The fun thing about TV is you get the opportunity to discover things, and somebody who starts off in a smaller part can really emerge and surprise you.
+ - I want every character be an outsider in some way.
+ - It’s my experience that the fluidity of sexuality with younger people is more accepted.
+ - We have some of the most passionate, vocal fans in the history of television.
+ - Certainly the experiences of Seth and his relationship to his parents and his point of view of the world are very similar to my own and very much based on my experiences at the University of Southern California.
+
+19 quotes

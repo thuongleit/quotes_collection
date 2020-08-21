@@ -1,0 +1,23 @@
+ - Love is always in the mood of believing in miracles.
+ - The strongest of all psychic forces in the world is unsatisfied desire.
+ - No refining of one’s taste in matters of art or literature, no sharpening of one’s powers of insight in matters of science or psychology, can ever take the place of one’s sensitiveness to the life of the earth. This is the beginning and the end of a person’s true education.
+ - Ambition is the grand enemy of all peace.
+ - The permanent mental attitude which the sensitive intelligence derives from philosophy is an attitude that combines extreme reverence with limitless skepticism.
+ - One needs no strange spiritual faith to worship the earth.
+ - Man is the animal who weeps and laughs – and writes. If the first Prometheus brought fire from heaven in a fennel-stalk, the last will take it back – in a book.
+ - Most of the pathetic scenes in almost everybody’s life are scenes unnoted by anyone and totally disregarded by the person in question.
+ - A bookshop is powder-magazine, a dynamite-shed, a drugstore of poisons, a bar of intoxicants, a den of opiates, an island of sirens.
+ - If by the time we’re sixty we haven’t learned what a knot of paradox and contradiction life is, and how exquisitely the good and the bad are mingled in every action we take, and what a compromising hostess Our Lady of Truth is, we haven’t grown old to much purpose.
+ - To a real child anything will serve as a toy.
+ - Let none count themselves wise who have not with the nerves of their imagination felt the pain of the vivisected.
+ - Having once aroused in our mind enough faith in our own will-power to create a universe of contemplation and forget everything else, there are few limitations to the happiness we may enjoy.
+ - The more money you give to people the better; and the less advice.
+ - Who has not watched a mother stroke her child’s cheek or kiss her child in a certain way and felt a nervous shudder at the possessive outrage done to a free solitary human soul?
+ - The influence of friendship upon culture differs from that of love, in that it assumes the basic idiosyncrasies of personal taste to be unalterable. Love, in spite of all rational knowledge to the contrary, is always in the mood of believing in miracles.
+ - Every day that we allow ourselves to take things for granted, every day that we allow some little physical infirmity or worldly worry to come between us and our obstinate, indignant, defiant exultation, we are weakening our genius for life.
+ - It is strange how few people make more than a casual cult of enjoying Nature. And yet the earth is actually and literally the mother of us all. One needs no strange spiritual faith to worship the earth.
+ - Words cannot be remote from reality when they create reality.
+ - Our rulers at the present day, with their machines and their preachers, are all occupied in putting into our heads the preposterous notion that activity rather than contemplation is the object of life.
+ - The love that interferes and knows not how to leave alone is a love alien to Nature’s ways.
+
+21 quotes

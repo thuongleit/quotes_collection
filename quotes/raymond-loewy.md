@@ -1,0 +1,26 @@
+ - Design is too important to be left to designers.
+ - Ugliness does not sell.
+ - People will turn to you, follow you, support you only as long as they are confident that you are doing your best.
+ - I alienated the automotive industry by saying that cars should be lightweight and compact.
+ - A designer must always think about the unfortunate production engineer who will have to manufacture what you have designed; try to understand his problems.
+ - The most beautiful curve is a rising sales graph.
+ - Good design keeps the user happy, the manufacturer in the black and the aesthete unoffended.
+ - I sought excitement and, taking chances, I was all ready to fail in order to achieve something large.
+ - Never leave well enough alone.
+ - Good design is not an applied veneer.
+ - The main goal is not to complicate the already difficult life of the consumer.
+ - It all must start with an inspired, spontaneous idea.
+ - I believe most in educated intuition, in what you get through profound experience.
+ - The adult public’s taste is not necessarily ready to accept the logical solutions to their requirements if the solution implies too vast a departure from what they have been conditioned into accepting as the norm.
+ - Between two products equal in price, function and quality, the one with the most attractive exterior will win.
+ - Design, vitalized and simplified, will make the comforts of civilized life available to an ever-increasing number of Americans.
+ - It would seem that more than function itself, simplicity is the deciding factor in the aesthetic equation. One might call the process beauty through function and simplification.
+ - No manufacturer, from General Motors to the Little Lulu Novelty Company, would think of putting a product on the market without benefit of a designer.
+ - I believe one should design for the advantage of the largest mass of people, first and always. That takes care of ideologies and sociologies.
+ - If America wants to make “made in America” a symbol of excellence and worth. They have to make everything of high quality, otherwise the best.
+ - There is a frantic race to merchandise tinsel and trash under the guise of ‘modernism.’
+ - I can claim to have made the daily life of the 20th Century more beautiful.
+ - It’s a simple exercise; a little logic, a little taste, and the will to cooperate.
+ - Form, which should be the clean-cut expression of mechanical excellence, has become sensuous and organic.
+
+24 quotes

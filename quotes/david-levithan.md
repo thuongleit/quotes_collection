@@ -1,0 +1,457 @@
+ - I am a firm believer in serendipity- all the random pieces coming together in one wonderful moment, when suddenly you see what their purpose was all along.
+ - You don’t know me. You know one me, just like I know one you. And you can’t know every me, and I can’t know every you.
+ - It would be too easy to say that I feel invisible. Instead, I feel painfully visible, and entirely ignored.
+ - Music is everywhere. It’s in the air between us, waiting to be sung.
+ - I am constantly torn between killing myself and killing everyone around me.
+ - She is my first and only love. Most people know that their first love will not be their only love. But for me, she is both.
+ - You are so close, and I can’t reach you.
+ - If you stare at the center of the universe, there is coldness there. A blankness. Ultimately, the universe doesn’t care about us. Time doesn’t care about us. That’s why we have to care about each other.
+ - She is so lost in her sadness that she has no idea how visible it is.
+ - There are all these moments you don’t think you will survive. And then you survive.
+ - Every day I am someone else. I am myself-I know I am myself-but I am also someone else. It has always been like this.
+ - Things that matter are not easy. Feelings of happiness are easy. Happiness is not. Flirting is easy. Love is not. Saying you’re friends is easy. Being friends is not.
+ - I wake up thinking of yesterday. The joy is in remembering; the pain is in knowing it was yesterday.
+ - Honestly, I’m just trying to live day to day.
+ - You spend so much time, so much effort, trying to hold yourself together. And then everything falls apart anyway.
+ - I am proud that I defy your categories. I am proud that I don’t fit easily into any box. I am proud of all the things I am and all the things i can be. Question yourself every time you think you only see one thing in me.
+ - A sound waiting to be a word.
+ - Her mind is an unquiet one, words and thoughts and impulses constantly crashing into each other.
+ - What separates us from the animals, what separates us from the chaos, is our ability to mourn people we’ve never met.
+ - And If only I could, I’d make a deal with God...
+ - Because when something happens, she’s the person I want to tell. The most basic indicator of love.
+ - Love me less, but love me for a long time.
+ - Love is so painful, how could you ever wish it on anybody? And love is so essential, how could you ever stand in its way?
+ - You like him because he’s a lost boy. Believe me, I’ve seen it happen before. But do you know what happens to girls who love lost boys? They become lost themselves. Without fail.
+ - Ignorance is not bliss. Bliss is knowing the full meaning of what you have been given.
+ - I want love to conquer all. But love can’t conquer anything. It can’t do anything on it’s own. It relies on us to do the conquering on its behalf.
+ - Kindness connects to who you are, while niceness connects to how you want to be seen.
+ - You think you know your possibilities. Then other people come into your life and suddenly there are so many more.
+ - If there’s one thing I’ve learned, it’s this: We all want everything to be okay. We don’t even wish so much for fantastic or marvelous or outstanding. We will happily settle for okay, because most of the time, okay is enough.
+ - Love is the higher law.
+ - Fate has a strange way of making plans.
+ - There is no word for our kind of friendship. Two people who don’t see each other a lot, but can make each other effortlessly happy.
+ - There will always be more questions. Every answer leads to more questions. The only way to survive is to let some of them go.
+ - If you let the world in, you open yourself up to the world. Even if the world doesn’t know that you’re there.
+ - People say that time slips through our fingers like sand. What they don’t acknowledge is that some of the sand sticks to the skin. These are memories that will remain, memories of the time when there was still time left.
+ - Life goes on. Get over it. You’re still young. It’ll get better. Blah, Blah, Blah.
+ - Dullness is the spice of life. Which is why we must always use other spices.
+ - The way you’re singing in your sleep The way you look before you leap The strange illusions that you keep You don’t know But I’m noticing The way your touch turns into arcs The way you slide into the dark The beating of my open heart You don’t know But I’m noticing.
+ - Remember that at any given moment there are a thousand things you can love.
+ - The minute I knew I was in love was the minute when there was no question about it.
+ - It’s one thing to fall in love. It’s another to feel someone else fall in love with you, and to feel a responsibility toward that love.
+ - Breathing is hard. When you cry so much, it makes you realize that breathing is hard.
+ - When I am with you, there is nowhere else I’d rather be. And I am a person who always wants to be somewhere else.
+ - You leave the phone on beside you as you fall asleep. I sit in my bed and listen to your breathing, until I know you are safe, until I know you no longer need me for the night.
+ - Yesterday is another world. I want to go back there.
+ - The important people in our lives leave imprints. They may stay or go in the physical realm, but they are always there in your heart, because they helped form your heart. There’s not getting over that.
+ - Once time is lit, it will burn whether or not you’re breathing it in. Even after smoke becomes air, there is the memory of smoke. I am seeing as if by the light of a match, a glimpse of my life and having it feel right.
+ - I no longer think she’s just being nice. She’s being kind. Which is much more a sign of character than mere niceness. Kindness connects to who you are, while niceness connects to how you want to be seen.
+ - Self-preservation isn’t worth it if you can’t live with the self you’re preserving.
+ - I want you to be honest with me. Even if it hurts. Although I would prefer for it not to hurt.
+ - You wanna-I dunno-get coffee or something sometime?
+ - I feel the universe is telling me something. And it doesn’t even matter if it’s true or not. What matters is that I feel it, and believe it.
+ - To get something you must give something away. To hold something you must give something away. To love something you must give something away.
+ - I am a drifter, and as lonely as that can be, it is also remarkably freeing. I will never define myself in terms of anyone else.
+ - I have learned how to observe, far better than most people observe. I am not blinded by the past or motivated by the future. I focus on the present, because that is where I am destined to live.
+ - Do not just seek happiness for yourself. Seek happiness for all. Through kindness. Through mercy.
+ - I get it. The things you hope for the most are the things that destroy you in the end.
+ - If other people see you differently, you’ll end up seeing them differently, too.
+ - I know the odds are all against me and I know you might not feel this way too but I know I would rather die trying to know if I could mean something to you.
+ - I’m not good at relationships I always manage to find the flaws sometimes in others but mostly my own. I foretell the ending then go and create the cause save myself and end up alone.
+ - That’s what the voices in your head are for, to get you through the silent parts.
+ - Which is more stubborn, the love or the two arguing people caught within it?
+ - I only have eyes for you.
+ - The world, right now, is only us.
+ - Its a fine line between love and stalking.
+ - If I lose it now, I will lose you, too. I know that. I hate it.
+ - Without you I wouldn’t have been able to contain the hate. I would have used it against myself. You’re the one who helped me control it. My mind spun out to other things. But it always came back to you.
+ - And who am I to blow against the wind?
+ - The clock always ticks. There are times you don’t hear it, and there are times that you do.
+ - I should talk to him I know I should talk to him. But I do not talk to him. I watch after him from afar and love him.
+ - Let’s always love each other, and never be in love with each other.
+ - I am breathing. In dreams, we never bother to breathe.
+ - Make more than dust.
+ - What I learned The well-documented difference Between alone and lonely The comfort of knowing.
+ - He has no idea how beautiful the ordinary becomes once it disappears.
+ - My mother said I should have a ‘change of scenery.’ The word scenery made be think of a play. And as we were driving around, it made sense that way. Because no matter how much the scenery changed, we were still on the same stage.
+ - You want meaning? Well, the meanings are out there. We’re just so damn good at reading them wrong.
+ - It’s the way you say thank you like you’re genuinely thankful. I have never met anyone else who does that on a regular basis.
+ - Maybe language is kind, giving us these double meanings. Maybe it’s trying to teach us a lesson, that we can always be two things at once.
+ - I guess I don’t believe these things can ever be easy, although I also don’t see why they have to be hard.
+ - Even if neither of us got what we wanted, we found freedom in the third choices.
+ - The tenderness between two people can turn the air tender, the room tender, time itself tender. As I step out of bed and slip on an oversize shirt, everything around me feels like it’s the temperature of happiness.
+ - The words that matter always stay.
+ - This is as much a part of my story as anything else. Friendship is love as much as any romance.
+ - Answerless questions can destroy you. Move on.
+ - We switch to another language – not our invented language or the language we’ve learned from our lives. As we walk further up the mountain, we speak the language of silence. This language gives us time to think and move. We can be here and elsewhere at the same time.
+ - Every relationship has a hard part at the beginning. This is our hard part. It’s not like a puzzle piece where there’s an instant fit. With relationships, you have to shape the pieces on each end before they go perfectly together.
+ - This is the thing they don’t tell you about being a third wheel – it’s not like you’re the wheel that’s added on. You were one of the original two wheels, but suddenly you’re not so important anymore. The relationship drives fine without you.
+ - I feel my life is so scattered right now. Like it’s all these small pieces of paper and someone’s turned on the fan. But talking to you makes me feel like the fan’s been turned off for a little bit. Like things could actually make sense. You completely unscatter me, and I appreciate that so much.
+ - The mistake is thinking that there can be an antidote to the uncertainty.
+ - You can’t know what it is like for us now – you will always be one step behind. Be thankful for that. You can’t know what it was like for us then – you will always be one step ahead. Be thankful for that, too.
+ - Life tells you to take the elevator, but love tells you to take the stairs.
+ - If you zoom close-if you get really close to someone, if you really get close to yourself-then you lose the other person, you lose yourself entirely. You get so close you can’t see anything anymore.
+ - That strange, twisted, torn love. That conflict between what your heart knows is right and what your mind is told is right.
+ - I love you-I do-but I am afraid of making that love too important. Because you’re always going to leave me, A. We can’t deny it. You’re always going to leave.
+ - I can see that the sadness has returned. And it’s not a beautiful sadness- beautiful sadness is a myth. Sadness turns our features to clay, not porcelain.
+ - It scares me how hard it is to remember life before you. I can’t even make the comparisons anymore, because my memories of that time have all the depth of a photograph. It seems foolish to play games of better and worse. It’s simply a matter of is and is no longer.
+ - It’s as if when you love someone, they become your reason.
+ - Part of growing up is making sure your sense of reality isn’t entirely grounded in your own mind.
+ - He was my first boyfriend, and I made him my everything – he was my new life, my new love, my new compass point. I guess that’s the danger with firsts – you lose all sense of proportion.
+ - Once you experience enormity, it lingers everywhere you look, and want to be every word you say.
+ - People often say that when couples are married for a long time, they start to look alike. I don’t believe that. But I do believe their sentences start to look alike.
+ - Feeling someone else’s anger is bad; being left alone is worse.
+ - It’s as simple as that. Simple and complicated, as most true things are.
+ - I am learning that a life isn’t real unless someone else knows its reality. And I want my life to be real.
+ - I am like the fish in the aquarium, thinking in a different language, adapting to a life that’s not my natural habitat. I am the people in the other cars, each with his or her own story, but passing too quickly to be noticed or understood.
+ - But I guess you don’t see the planets when you’re staring at the sun. You just get blinded.
+ - I had gotten so used to being alone, but never entirely used to it. Never used to it enough to stop wanting the alternative.
+ - People take love’s continuity for granted, just as they take their body’s continuity for granted. They don’t realize that the best thing about love is its regular presence. Once you can establish that, it’s an added foundation to your life.
+ - We found out a long time ago that we weren’t meant to fall in love with each other. But a part of me still fell in hope with him.
+ - You know, I’d get a tattoo with your name on it. Only, I want you to have the freedom to change your name if you want to.
+ - Deep down, you see, I long to be arcane, esoteric. I would love to confound people with their own language.
+ - There is no such thing as no choice. There is always a choice. The only question is whether it’s a bearable one.
+ - Love and I once had a great relationship, but I fear we’ve broken up. It cheated on me, wrecked my heart, and then went on to date other people. A lot of other people. And I can’t stand to watch it, since love’s going to cheat on them too.
+ - We do not start as dust. We do not end as dust. We make more than dust. That’s all we ask of you. Make more than dust.
+ - I never felt the urge to jump off a bridge, but there are times I have wanted to jump out of my life, out of my skin.
+ - Are you going to be playing for the pure thrill of unreluctant desire?
+ - It is very hard to stay alive just for your own sake. It is very hard to stare into day after day without another familiar face staring back. It turns your heart into a purposeless muscle.
+ - Why do we feel the need to disconnect in order to connect?
+ - As if when someone close to us dies, we momentarily trade places with them, in the moment right before. And as we get over it, we’re really living their life in reverse, from death to life, from sickness to health.
+ - But I think we were walking around like we were invincible. And maybe that’s a bad way to live your life. Because you’re not invincible. Nobody is. And maybe now that we’ve learned that, we’ll be better.
+ - Void is when there is absolutely nothing there and the nothing is natural, a complete vacuum. But empty – with empty, you are aware of what’s supposed to be there. Empty means something is missing.
+ - The unwarranted devotion. Putting up with the fear of being with the wrong person because you can’t deal with the fear of being alone. The hope tinged with doubt, and the doubt tinged with hope. Every time I see these feelings in someone else’s face, it weighs me down.
+ - Maybe, it’s not the distance that’s the problem, but how you handle it.
+ - But I think we both knew, even then, that what we had was something even more rare, and even more meaningful. I was going to be his friend, and was going to show him possibilities. And he, in turn, would become someone I could trust more than myself.
+ - In my experience, desire is desire, love is love. I have never fallen in love with a gender. I have fallen for individuals.
+ - I was attempting to write the story of my life. It wasn’t so much about plot. It was much more about character.
+ - Teens wanted things that were real, that they connected with, it doesn’t have to reflect reality directly. They love ‘The Hunger Games’ not because it’s real in that it happens, but the emotions there are real, and it’s very relatable.
+ - But you have to figure that if it’s too hard to hang on, then maybe you should let go.
+ - Belonging. Togetherness. These words are as complicated and confusing as the word love. It’s probably all the same thing. Or it would be if we let it be. I can only guess from observation.
+ - It will affect me in ways I can’t even begin to get my mind around. This day is a dark crater. There is no room for songs. The songs are wrong. Every song is wrong. And I don’t know what to do without music.
+ - I close my eyes. And i scream. If my whole world is crashing down around me, then I am going to make the sound of the crashing. I want to scream until all my bones break.
+ - I am always amazed by people who know something is wrong but still insist on ignoring it, as if that will somehow make it go away. They spare themselves the confrontation, but end up boiling in resentment anyway.
+ - How can you spend hours every day trying in small ways to figure out who you are, then have a near-stranger give you a sentence of yourself that says it better than you ever could?
+ - I want to kiss her without counting the seconds. I want to hold her so long that I get to know her skin. I want, I want, I want.
+ - Every you, every me. Fractals. Fractures.
+ - My pride shut me up, my hurt shut me down, and together they ganged up on my hope and let her get away.
+ - There are times when I worry that I’ve already lost myself. That is, that my self is so inseparable from being with you that if we were to separate, I would no longer be. I save this thought for when I feel the darkest discontent. I never meant to depend so much on someone else.
+ - We pencil-sketch our previous life so we can contrast it to the technicolor of the moment.
+ - And once again I think about how people use the devil as an alias for the things they fear. The cause and effect is backward. The devil doesn’t make anyone do anything. People just do things and blame the devil after.
+ - I am stronger than words and I am bigger than the box I’m in, and then I see her in the crowd and I fall apart.
+ - I am not dangerous. Only the stories are dangerous. Only the fictions we create, especially when they become expectations.
+ - We are so used to releasing words, we don’t know what to do with them if they stay. No matter how many times we let them go, they come back. The words that matter always stay.
+ - That’s the problem with having a moral code. We want to destroy the jerkish part of the jerks, but we want to save the human being underneath.
+ - When I say, “Be my lover”, I don’t mean, “Let’s have an affair.” I don’t mean “Sleep with me.” I don’t mean, “Be my secret.” I want us to go back down to that root. I want you to be the one who loves me. I want to be the one who loves you.
+ - And just like that, the universe goes wrong. Just like that, all the enormity seems to shrink into a ball and float away from my reach. I feel it, and she doesn’t. Or I feel it, and she won’t.
+ - I had made it somewhere special, and I’d gotten there all on my own. Nobody had given it to me. Nobody had told me to do it. I’d climbed and climbed and climbed, and this was my reward. To watch over the world, and to be alone with myself. That, I found, was what I needed.
+ - I don’t want you to think I got through this undamaged, okay? But I’m learning to live with it. Because otherwise, the damage is all you are.
+ - A photograph it a souvenir of a memory. It is not a moment. It is the looking at the photograph that becomes the moment. Your own moment.
+ - It was so much easier when I didn’t want anything. Not getting what you want can make you cruel.
+ - I notice you, I want to say. Even when no one else does, I do. I will.
+ - And as we drift into sleep, I feel something I’ve never felt before. A closeness that isn’t merely physical. A connection that defies the fact that we’ve only just met. A sensation that can only come from the most euphoric of feelings: belonging.
+ - I don’t like it when you use my shampoo, because then your hair smells like me, not you.
+ - I am jealous of anyone who can make other people care so much.
+ - Making love without noise is like playing a muted piano-fine for practice, but you cheat yourself out of hearing the glorious results.
+ - It’s only a game if there is an absence of meaning. And we’ve already gone too far for that.
+ - Maybe there’s a way to keep us in this moment. Not the sad part. But the coming together part.
+ - I try to be a careful person. Most of the time my carelessness is completely unintentional.
+ - I want to believe there is a somebody out there just for me. I want to believe that I exist to be there for that somebody.
+ - You never let things go unanswered for too long. Emails. Phone calls. Questions. As if you know the waiting is the hardest part for me.
+ - There are boys so enraptured by love that they can’t get their hearts to slow down enough to get some rest, and other boys so damaged by love that they can’t stop picking at their pain.
+ - The older I get, the more I lose my ability to breathe.
+ - I want to write my life. I want to be able to write my life. You are a second away from saying it. You have no idea how much I love you.
+ - When the shock wears off, you always hope there’s understanding underneath.
+ - I still felt fondness for her – fondness, that pleasant, detached mix of admiration and sentiment, appreciation and nostalgia.
+ - When you live as I do, you cannot indulge in jealousy. If you do, it will rip you apart.
+ - Trying to write about love is ultimately like trying to have a dictionary represent life. No matter how many words there are, there will never be enough.
+ - After tiny has tried ballerina pose, swing-batter-batter pose, pump-up-the-jam pose, and top-of-the-mountain-sound-of-music pose in the reflection of the bean, he walks us to a bench overlooking lake shore drive.
+ - Sharing truth is not the kind of gift that comes in wrapping paper – ripped open once and, there, you’re done. No, this is a gift that must be unfolded.
+ - I had forgotten this about love: how the simple things- the turn away, the turn towards- could be so complicated, and how the complicated things- the stolen night, the right words- could be so simple.
+ - I know I should just leave. Just go. Because there’s a point where a mistake turns into a big mistake, and I should probably come to my senses before I get there.
+ - I’ll see you later, he says, and as he does, he runs his finger briefly over my wrist. It passes over me like air, and makes me shiver like a kiss.
+ - I want to take back at least half of the “I love you”s, because I didn’t mean them as much as the other ones.
+ - If I’m not telling you something, it’s for a reason. Just because you trust me, it doesn’t mean I have to automatically trust you. Trust doesn’t work like that.
+ - I don’t get this at all. It’s like protesting the fact that some people are red-haired.
+ - You could be the leaf that never falls from the tree you could be the sun that never leaves the sky this might be the happy ending without the ending this might be a reason to try.
+ - But I want to feel like life matters. I had something real with you, but then the realness scared me. I decided to go for other things instead.
+ - But whether or not you are here, you are here – because these words are for you, and they wouldn’t exist if you weren’t here in some way.
+ - You have to believe there are kisses and laughs and risks worth taking.
+ - When someone breaks up with you, their beauty – which you took such satisfaction in – suddenly becomes unfair.
+ - I learn about the highs and lows of living with the same mother for your entire life, about how no one can make you angrier, but how you can’t really love anyone more.
+ - The way you argued with me, you would have thought that we were debating the existence of God or whether or not we should move in together. These kinds of fights can never be won – even if you’re the victor, you’ve hurt the other person, and there has to be some loss associated with that.
+ - I find faith in human perseverance, even as the universe throws challenge after challenge our way.
+ - People are rarely as attractive in reality as they are in the eyes of the people who are in love with them. Which is, I suppose, as it should be.
+ - What a strange phrase – –not seeing other people. As if it’s been constructed to be a lie. We see other people all the time. The question is what we do about it.
+ - Most people, I’ve noticed, are instinctively harsh to strangers. They expect every approach to be an attack, every question to be an interruption.
+ - The assumption of the word reunion is that, once you’re together again, you are united. Two as one. Pulling close to someone is only a temporary symbol. It’s the way you breathe with each other that’s the telltale sign.
+ - Little less than a promise, and a little more than a chance.
+ - Eventually she fell asleep, but I kept the phone against my ear, lulled by her breathing, and her breathing again in the background. And yes, it felt like home. Like everything belonged exactly where it was.
+ - We didn’t believe in fate, but we believed in serendipity. We felt very lucky.
+ - Every single answer starts with the phrase ‘I don’t know.’ But most of the time she does know, if I give her the time and the space in which to answer.
+ - When first love ends, most people eventually know there will be more to come. They are not through with love. Love is not through with them. It will never be the same as the first, but it will be better in different ways.
+ - It is not desire. Instead it is something deeper. I don’t want to be with him constantly and forever. I want to be with him for the moment, and I want the moments to go on forever.
+ - Some days are like this. And the only way to get through them is to remember that they are only one day, and that every day ends.
+ - I am starting to get tired of relying on words.
+ - Be careful what you’re doing, because no one is ever who you want them to be.
+ - I can’t pretend to know what love is. It just is.
+ - Deep down? That sounds like settling to me. You shouldn’t have to venture deep down in order to get to love.
+ - Beauty comes naturally, but it’s hard to be stunning by accident.
+ - I always think of each night as a song. Or each moment as a song. But now I’m seeing we don’t live in a single song. We move from song to song, from lyric to lyric, from chord to chord. There is no ending here. It’s an infinite playlist.
+ - It is an awful thing to be betrayed by your body. And it’s lonely, because you feel you can’t talk about it.
+ - We all contain mysteries, especially when seen from the inside.
+ - It is hard to stop seeing your son as a son and to start seeing him as a human being. It is hard to stop seeing your parents as parents and to start seeing them as human beings. It’s a two-sided transition, and very few people manage it gracefully.
+ - Sometimes desire is air, sometimes desire is liquid. And every now and then, when everything else is air and liquid, desire solidifies, and the body is the magnet that draws its weight.
+ - Why do we even bother? Why do we make ourselves so open to such easy damage? Is it all loneliness? Is it all fear? Or is it just to experience those narcotic moments of belonging with someone else?
+ - When we’re alone together, I’m the destination. When I’m here in her life at school, I’m the disruption.
+ - I have taken advantage of other people’s weaknesses in order to cover my own.
+ - Because sometimes you just have to dance like a madman in the Self-Help section of your local bookstore.
+ - Every two people cause and intersection. Every person alters the world.
+ - We stay this way until twilight colours the window and the hour calls me home.
+ - She has been hanging on to the hope of him for so long that she doesn’t realize there isn’t anything left to hope for.
+ - He’ll have to prove it to you. Every day, he’ll have to prove he’s worthy of you. And if he doesn’t, that’s it. But I think he will.
+ - There is something so intimate about saying the truth out loud. There is something so intimate about hearing the truth said. There is something so intimate about sharing the truth, even if you are not entirely sure what it means.
+ - All this hoping for something- or someone- that’s maybe hopeless. I’m having a hard time processing what I am supposed to believe, or if I’m even supposed to. There is too much information, and I don’t like a lot of it.
+ - We always see our worst selves. Our most vulnerable selves. We need someone else to get close enough to tell us we’re wrong. Someone we trust.
+ - The boy I just kissed is talking to my father. The boy I want to kiss again is waiting for my mother to serve pancakes. I must fight the urge to freak.
+ - It feels like I am wasting time. I mean, that’s always the case. My life doesn’t add up to anything.
+ - I don’t want to fall. All I want to do is stand on solid ground.
+ - In small letters, someone has written NEVER FORGET on one of the slats. I know it’s supposed to be a pledge, but it feels like a curse. Don’t we have to forget some of it? Don’t we have to forget this feeling? If we don’t, how will we live?
+ - This is the hard part about having best friends that I feel no attachment to – I don’t give them any benefit of the doubt. And being best friends is always about the benefit of the doubt.
+ - There are few things harder than being born into the wrong body.
+ - Sometimes when you hit send, you can imagine the message going straight into the person’s heart. But other times, like this time, it feels like the words are merely falling into a well.
+ - If you want to live within the definition of your own truth, you have to choose to go through the initially painful and ultimately comforting process of finding it.
+ - A year. A thousand kisses. And now a thousand one, a thousand two. There are so many other place we could have ended up, but I have to believe none of them would have felt this right. “All I want is you” is not entirely true. I want so much more, and with you I think I can get it.
+ - The more kindness and justice are challenged, the more we must embrace them. Only when you are challenged – and only when you challenge yourself – do you discover what truly matters.
+ - Knowledge is the only thing I take with me when I go.
+ - It’s goodbye to some things. And hello to others.
+ - There’s no way for them to take away my sadness, but they can make sure I am not empty of all the other feelings.
+ - Our moments are music, and sometimes – just sometimes – we can catch them and put them into some lasting form. If we didn’t have music, I don’t think we could ever be truly happy, and if we didn’t have special moments, we would never find music.
+ - Every person is a possibility. The hopeless romantics feel it most acutely, but even for others, the only way to keep going is to see every person as a possibility.
+ - Your humor is your compass and your shield. You can hone it into a weapon or you can pull its strands out to make your very own cotton-candy blanket. You can’t exist on a diet of humor alone, but you can’t exist on a diet without it, either.
+ - Sometimes the space between knowing what to do and actually doing it is a very short walk. Other times it is an impossible expanse.
+ - There has to be a moment at the beginning when you wonder whether you’re in love with the person or in love with the feeling of love itself.
+ - If this continues, if this goes on, then when I die, your memories of me will be my greatest accomplishment. You memories will be my most lasting impressions.
+ - When distractions are manifold, it’s best to remember what you are supposed to be doing.
+ - Every time you love someone, you put not just your faith in them, but your faith in everything to the test.
+ - Because it is senior year I have begun to see things as potential absences. The things I love will become the things I’ll miss.
+ - Happiness is so rarely a part of my vocabulary, because for me it’s so fleeting.
+ - I saw his scars – the visible ones-and saw how breaking him had not made him any less beautiful. If anything, he stood stronger, because he’d survived.
+ - You make it a production. Slam doors. Knock things over. Scream. But I just leave. Even if I’m still standing there, I leave. I am refusing you. I am denying you. I am an adjective that is quickly turning into a noun.
+ - We believe in the wrong things, that’s what frustrates me the most. Not the lack of belief, but the belief in the wrong things. You want meaning? Well, the meanings are out there. We’re just so damn good at reading them wrong.
+ - In my experience, desire is desire, love is love.
+ - How do you commemorate a year? A paper anniversary, but we are the words written down, not the paper.
+ - You don’t know, but I’m noticing.
+ - There is no word for the recipient of the love. There is only a word for the giver. There is the assumption that lovers come in pairs.
+ - I had no idea what I wanted, only that I wanted something, which is the worst kind of wanting.
+ - It felt good to be surrounded by books, by all this solid knowledge, by these objects that could be ripped page by page but couldn’t be torn if the pages all held together.
+ - I hope suffering don’t exist.
+ - These teenager looks aren’t going to last forever, and that there are much better foundation to build a life upon than how attractive you are.
+ - You’re giving up. You’re slipping into being miserable and if you are being miserable, then it’s all about you again. But it’s not all about you. Love doesn’t work that way.
+ - Our lives change. Our feelings for each other change. Our bearings change. The song changes. The air changes. The temperature of the shower changes. Accept this. We must accept this.
+ - Is that all we need? Can the way we say each other’s names encompass all our history, all our love, all our fear, all our fights, all our reunions, all of what we know about each other, all of what we don’t know?
+ - I never know what you really want, if I can give it to you, or if I’m already too late.
+ - There is always something new to learn about the person you love.
+ - You know there’s no such thing as a complete lie. There’s always some truth in there.
+ - Part of love is letting a person be who they want to be.
+ - I don’t want to steal anybody’s story. I very much want to use the stories that I hear to get lost in my mind, to tell a larger story.
+ - I try to convince myself that it’s the alcohol talking. But alcohol can’t talk. It just sits there. It can’t even get itself out of the bottle.
+ - This is the trap of having something to live for: Everything else seems lifeless.
+ - The truth feels different from other things. The closest you can come to describing it is that it feels like taking a perfect breath.
+ - But death is not freedom. For a moment, it can look like freedom. But then it’s death. Anything. Something. Nothing.
+ - There is the sudden. There is the eventual. And in between, there is the living.
+ - Long live protest songs, in whatever form they take.
+ - She stays in the same spot, anchored by the profound, desperate loneliness of a bad relationship.
+ - We were painting by numbers, starting with the greens. Because that happened to be our favorite color. And this, we figured, had to mean something.
+ - We love and we feel and we try and we hope.
+ - I wake up feverish, sore, uncomfortable. Is it sickness or is it heartbreak? I can’t tell. The thermometer says I’m normal, but I’m clearly not.
+ - Because what’s the point of something virtual if it doesn’t end up being real?
+ - I was starting to think I was making up memories, just to have answers. Our brain does that sometimes. Or at least mine does.
+ - The boy I loved didn’t know I existed. Then again, he was obsessed with Camus, so he didn’t know if any of us existed.
+ - When it comes to true dance, it’s not about how you look, it’s all about the joy you feel.
+ - Things are not magical because they’ve been conjured for us by some outside force. They are magical because we create them.
+ - Readers embrace all kinds of characters as long as they are written with emotional truth.
+ - Love weaves itself from hundreds of threads.
+ - Because that’s the thing about mean people: They make you think that the world will never work, that there are divides that you will fall into if you approach. It takes a whole lot of good people to fill in the breach created by a single mean one.
+ - I asked you what you wanted and you said you didn’t want anything. And I told you I wasn’t planning on giving you anything; I was planning on giving you something.
+ - I felt like I was missing something. Missing you more. Missing whatever was going to happen next.
+ - Self-esteem can be so exhausting. I want to cut my hair, change my clothes, erase the pimple from the near-tip of my nose, and strengthen my upper-arm definition, all in the next hour.
+ - Falling in love with someone doesn’t mean you know any better how they feel. It only means you know how you feel.
+ - She transforms once again into someone carefree, and I transform into someone whose only care is her.
+ - If smart people are parodying it, that’s a sure sign that some less smart people are believing it.
+ - It’s almost heartening to think that the attachment you have can define your perception as much as any other influence.
+ - We’d said we’d keep in touch. But touch is not something you can keep; as soon as it’s gone, it’s gone. We should have said we’d keep in words, because they are all we can string between us – words on a telephone line, words appearing on a screen.
+ - It’s one of the secrets of strength: We’re so much more likely to find it in the service of others than in service to ourselves.
+ - When you need to hold onto something, you should. Whatever gets you through, take it.
+ - The ocean makes its music; the wind does its dance. We hold on. At first we hold on to one another, but then it starts to feel like we are holding on to something even bigger than that. Greater.
+ - I barely notice colors unless I taste them. Not the yellows or the greens. I taste the deeper blues. The darker reds.
+ - The important thing is for the characters to feel real, and to be given the humanity they are due. That granting of humanity is what separates a full portrait from a stereotype.
+ - How sad it must be for you to be nothing more than a hollow statue, to have your tomb preserved and your story forgotten.
+ - Maybe there is hope in the fragments, that what is lost can always be filled in by someone who knows.
+ - You know what’s a great metaphor for love? Sleeping beauty. Because you have to plow through this incredible thicket of thorns in order to get to beauty, and even then, when you get there, you still have to wake her up. – Tiny Cooper.
+ - Once the storm comes out, the landscape changes. What you had before is altered in some way. And you have a choice: build something new and better from what is left or abandon it.
+ - You will always be my always.
+ - We just want to walk. Our legs need to move to keep our minds from collapsing.
+ - What I really want, and what I never get – is to be appreciated.
+ - Pride is allowed to have an element of worry, especially when you are a mother.
+ - Maybe that’s what history is, you go from one I can’t believe it the next. And sometimes the I can’t believe its are good, and sometimes they’re bad. But the sum total of positive ones always outweighs the negative ones.
+ - I feel such a tenderness for these vulnerable nighttime conversations, the way words take a different shape in the air when there’s no light in the room.
+ - I want to take back the secrets I told you so I can decide now whether to tell them to you again. I want to take back the piece of me that lies in you, to see if I truly miss it. I want to take back at least half the “I love you”s, because it feels safer that way.
+ - She is carrying herself through the day, and it’s not an easy task.
+ - Hello, my name is ees Lebkuchen Spice, and I vant to show you my coooooookies...
+ - The secret to living long is to have something to live for.
+ - Just because a person is beautiful doesn’t mean there’s no soul beneath. Doesn’t mean that person hasn’t suffered like everyone else, doesn’t mean they don’t hope to still be a good human being in an awful world.
+ - It’s you. You deserve this. There is a reason this is happening to you.
+ - It was rather awkward, insofar as we were both teetering between the possibility of something and the possibility of nothing.
+ - It was the most amazing feeling in the world. to know that something right happened, and to know that it had happened not through luck or command but simply because it was right.
+ - I know from experience that beneath every peripheral girl is a central truth. She’s hiding hers away, but at the same time she wants me to see it.
+ - You went and broke our lives. You are so much worse than a cheater. You killed something. And you killed it when its back was turned.
+ - I want this world small enough for the two of us I want you to think of me that way I want this world to crash us into marvelous I want you to kiss me and say:.
+ - They defy gravity, as good books should.
+ - There is certainty in a ring. The non-ending, the non-beginning. The ongoing. The way it holds on to you not because it’s fastened or stretched or adhered. It holds on because it fits.
+ - It is much harder to lie to someone’s face. But. It is also much harder to tell the truth to someone’s face.
+ - By the time I got there, you’d already decided. And I quickly decided to let you decide. You were already seeing the rooms as ours, and that was enough for me.
+ - And I’m moved, it’s so beautiful. Not what I wrote, but to have it given back like this. To have her remember the words and the tune. To hear it in her voice.
+ - I measure the moment in the heartbeats I skip.
+ - For I have never wanted a lover, but I have always wanted to love, and to be loved.
+ - But if I didn’t want to be alone, then why didn’t I want to be with anyone else?
+ - His books are kept on freestanding shelves hung at different angles on a sea-green wall. They defy gravity, as good books should.
+ - Putting up with the fear of being with the wrong person because you can’t deal with the fear of being alone.
+ - There’s no way to release yourself from a memory. It ends when it wants to end, whether it’s in a flash or long after you’ve begged it to stop.
+ - I suspected that what happens in hotel rooms rarely lasts outside of them. I suspected that when something was a beginning and an ending at the same time, that meant it could only exist in the present.
+ - How amazing it is that friendships can become so full that you can’t imagine what your life was like before them.
+ - One of my best friends is named David Leventhal, and it has always been a constant source of amusement to see how the similarity and differences play out in our lives.
+ - But there was something about you that made me think of sparks and motion.
+ - I’ve found that people tend to trust other people who dress like them.
+ - Let me hold on to this the way it was, before I knew anything else.
+ - But I still has enough longing for that concept that I didn’t want to dispel it completely. Meaning: I didn’t want to tell Lily that I felt we’d all been duped by Plato and the idea of a soul mate. Just in case it turned out that she was mine.
+ - But the thing about a cry for help is that someone else needs to be around to hear it.
+ - I can honestly say Ive never thought for a second about whether a character reflects poorly on any group. All that matters to me is that the character is true to my belief in who he or she is.
+ - You are happy even if you are afraid to admit it.
+ - It feels like we’ve stepped outside of time. Even though there is no such place.
+ - This is what my voice sounds like I don’t need to be talking to someone else To hear it.
+ - Ted is smart and good-looking, but he doesn’t use it to good effect, like a rich person that never gives to charity.
+ - My lines all curve. I tend to connect the wrong dots.
+ - The word I think of is precarious. I am struck by how precarious it all is. How the things that hold us are only as strong as the faith we have in them.
+ - I was sixteen and equipped with the appropriate genitalia, so I cleared that hurdle nicely.
+ - Told her she was beautiful. Didn’t give up when she didn’t believe me.
+ - It’s hard to answer a question you haven’t been asked. It’s hard to show you tried unless you end up succeeding.
+ - Yes, time can be buoyed by wordlessness, but it needs to be anchored in words.
+ - I have no more idea now of who I am than I did before. But at least I know that. And I’m starting to figure out who I want to be.
+ - Luckily, I always travel with a book, just in case I have to wait on line for Santa, or some such inconvenience.
+ - This is a difference between us: you desire what other people have, while I desire the things I used to have, or think I might have one day.
+ - With all due respect, if you’re forty-three, then I’m a fetus.
+ - I’m always standing on the edge of something bad.
+ - It’s up to you, not fate. True. But it was also up to Lily. That was the trickiest part.
+ - Its almost scary how amateur I am when it comes to musicals – Im a musical goer, but I am not as obsessed with musicals as perhaps some of my theatrical friends are.
+ - I see no sin in a kiss. I only see sin in the condemnation.
+ - Her vulnerability is open, but she’s safe within it.
+ - I find my greatest strengths in wanting ti be strong. I find my greatest bravery in deciding to be brave.
+ - To love – to fall – is not a question. To touch – to kiss – to speak – those are questions.
+ - If you start the day reading the obituaries, you live your day a little differently.
+ - I find I very rarely live up to my words. And since you know me primarily through my words, there are oh so many ways I can disappoint.
+ - I say good-bye to hope, but I also say good-bye to hope’s disappointment.
+ - So I said I wanted you to stay, even though nothing could stay the same.
+ - Moments into minutes. Minutes into hours. Hours into days. Days into years. Years into possibility. This will linger.
+ - I have always been aware of how I break. I know what kind of situations will break me. I know what kind of people will do it. I know how much it will hurt.
+ - But I had a feeling I wasn’t supposed to find her that way. She was not a needle. This was not a haystack. We were people, and people had ways of finding each other.
+ - Maybe relationships could have fractals, too. And maybe the sense of loss was when you’re becoming a fractal of what you once were to each other.
+ - You have to trust the words. They do not create anything more than themselves.
+ - I never understood why anyone would have sex on the floor. Until I was with you and I realized: you don’t realize you’re on the floor.
+ - I had always felt that mittens were a few steps back on the evolutionary scale – why, I wondered, would we want to make ourselves into a less agile version of lobster.
+ - He is much stronger than I think I am. He is mischievous, outgoing, ready to soar through the clouds, while I often feel like the cloud itself.
+ - In the next election, I’m voting for your mom to be the next God.
+ - Do I really have to find a word for it? Can’t it just be what it is?
+ - I wonder if it’s possible to start a new relationship without hurting someone else.
+ - For whatever reason, we like to focus on the 2 percent that’s different, and most of the conflict in the world comes from that.
+ - It is its own form of conversation – you can learn a lot about people from the stories they tell, but you can also know them from the way they sing along, whether they like the windows up or down, if they live by the map or by the world, if they feel the pull of the ocean.
+ - We walk into a bar, and you’re aware of all the eyes on you. We walk into a bar, and I’m aware of all the eyes on you, too. For you, this translate into confidence. But me? All I can feel is doubt.
+ - He was attractive. I knew that. And I knew that attractive people always got away with things.
+ - Now when I have to remember a date, all I have to do is consult my rap sheet.
+ - This, I think, is how people survive: Even when horrible things have been done to us, we can still find gratitude in one another.
+ - Enlightenment is scary. Sometimes things look better in the dark.
+ - If there wasn’t a word for it, would we realize our masochism as much?
+ - That’s what it felt like – that if I let a little of the hurt out, it would keep pouring out until I was a deflated balloon of a person, with a big monster of hurt in front of me.
+ - Even though it was hard to see you, it was good to see you.
+ - Slowly would be better than not at all.
+ - It’s like, you know how sometimes you see a really sexy baby? Wait...
+ - It’s not the easy things that let you get to know a person.
+ - I’m not in love with you.
+ - My face seems too square and my eyes too big, like I’m perpetually surprised, but there’s nothing wrong with me that I can fix.
+ - I want to talk to you and be random with you and be ridiculous with you.
+ - This is my life, I think. I am an accumulation of objects.
+ - A guy can do far far worse than surrounding himself with people who restore his faith in humanity.
+ - But we comforted ourselves with what we really meant to say, which was: “I don’t normally feel this good about what I’m doing.” Measure the hope of that moment, that feeling. Everything else will be measured against it.
+ - It won’t be a normal life-I know that. But it will be a life. A life together.
+ - That no matter what i did, I would always be missing something else. And the only way to live, the only way to be happy, was to make sure the things I didn’t miss meant more to me than the things I missed.
+ - What i want is for what i want to actually matter.
+ - I am here because of love.
+ - As long as we can conjure, who needs anything else? As long as we can agree on the magical lie and be happy, what more is there to ask for? “I loved you from that moment on,” I say. “I loved you from that moment on,” you agree.
+ - There is no reason that we should ever be ashamed of our bodies or ashamed of our love.
+ - Please may this not be a game. Please may this not be a game. Because if it’s a game, I know I’m going to lose.
+ - After a while, you have to be at peace with the fact that you simple are.
+ - I preferred to hang out with the dead, dying, or desperate books – used we call them, in a way that we’d never call a person, unless we meant it cruelly.
+ - I could point out that it isn’t always easy knowing who you are and what you want, because then you have no excuse for not trying to get it.
+ - Even though I’m seventeen, I guess I still thought this would always be true – that there would always be that lost-and-found, and not the lost-and-still-lost that I am now trapped inside.
+ - That lasting things do, in fact, last.
+ - What did it matter to me? Did I think that by making you rational about one thing, I could make you rational about everything? Maybe. Or maybe I just wanted to save you from your fears.
+ - This is not something insignificant. This is real. This is happening, and this is ours.
+ - Gone is not forgotten, but our lives cannot be a memorial. This city cannot be a memorial. This city has to be a city. Our lives have to be our lives.
+ - People are always separable.
+ - I immediately suspected there was much more to it than was being said.
+ - I want to know why this is such a part of me. I want to know why this thing that happened to other people has happened so much to me. I keep looking for the lesson.
+ - After working for so long on being sure of each other, sure of this thing, suddenly we were unsure again.
+ - I can flirt with the best of them, but only when it doesn’t matter.
+ - This is what a memorial is: standing still, staring at something that isn’t ther.
+ - They don’t have silences together; they have noise. Mostly his.
+ - I couldn’t fault her for believing, because I had to imagine i was nice to have that illusion still intact.
+ - I would always wait to take you home.
+ - School is school-she wants it to be over, but she’s afraid of it being over, because then she’ll have to figure out what comes next.
+ - I know it was more than that. But it was also less than that, too.
+ - This isn’t even something I’ve feared, because I never knew it was a possibility.
+ - I couldn’t remember ordinary moments, only the ones that had made an impression. Ordinary moments were the ones that fell away first.
+ - Freedom is also about what you will allow yourself to do.
+ - Your life is inescapable. Unless you decide to escape it.
+ - Neophyte, n. There are millions upon millions of people who have been through this before – why is it that no one can give my good advice?
+ - Magic naturally fades over distance. But proximity – well, when it works, proximity amplifies magic.
+ - I just needed to realize that style was like personality – it didn’t always have to be consistent; it just had to be something you lived with.
+ - I’m told there’s no going back. So I’m choosing forward.
+ - Here’s what breaks us: Even though we know better, we still want everything to be all right.
+ - I don’t want to know anything, and I want to know it all.
+ - I have become very good at clearing histories.
+ - He doesn’t just look upset – he looks newly blind. There is such loss in his eyes, and it permeates every other part of his body.
+ - All I get is tomorrow.
+ - Dispel, v. It was the way you said, “I have something to tell you.” I could feel the magic drain from the room.
+ - Getting what you want is just as difficult as not getting what you want. Because then you have to figure out what to do with it instead of figuring out what to do without it.
+ - I’m a firm believer that every person, young or old, has at least one good story to tell.
+ - Maybe your history just repeats and repeats until it batters you enough to snap the seams that hold you together.
+ - With some break-ups, all you can think about afterwards is how badly it ended and how much the other person hurt you. With others, you become sentimental for the good times and lose track of what went wrong.
+ - It was one of those moments when you feel the future so much that it humbles the present.
+ - Everyone tried with me. And everytime, it felt like the whole point of life was to see if trying was ever enough.
+ - If goodness can’t come from bad things, it makes bad things unbearable.
+ - Sometimes memory tricks you. Sometimes beauty is best when it’s distant.
+ - Things rarely get fixed the way they need to be.
+ - I had a sense then of how if we truly understood how many of the unimportant things we do will end up outliving us, we’d never be able to go on.
+ - I will be the one to leave you.
+ - I’m swimming in your cadences that you permeate my very language.
+ - I have already spent roughly five thousand hours asleep next to you. This has to mean something.
+ - If you want to be loved, be a lovable. It’s a good place to start.
+ - Sorry to be so cynical, but this is New York.
+ - The key is to never recognize these imbalances. To not let the dauntingness daunt us.
+ - These words are now mine, but soon they’ll be ours.
+ - It doesn’t feel like a date. It doesn’t feel like friendship. It feels like something that fell off the tightrope but hasn’t yet hit the net.
+ - The most understandable thing in the world should be how minutes lead to hours, how hours lead to days, how days can make a year. And yet, this neat progression can still be surprising.
+ - Pink is female – but why? Are girls any more pink than boys? Are boys any more blue than girls? It’s something that has been sold to us, mostly so other things can be sold to us.
+ - Laughter rarely lasts longer than a few seconds, it’s true. But how enjoyable those few seconds are.
+ - I can take everything on her face at face value, and that’s valuable in a friend.
+ - I think they have compatible silences.
+ - I’ve worn black today, because I’ve heard so often that it’s supposed to be slimming. But instead I am this sphere of darkness submarining through the halls.
+ - And I, who have never thought in terms of a life, think to myself that I could make a life out of this.
+ - I was horribly bookish, to the point of coming right out and saying it, which I knew was not socially acceptable. I particularly loved the adjective bookish, which I found other people used about as often as ramrod or chum or teetotaler.
+ - I say good-bye to the part of myself that misses him so much.
+ - I still don’t know if this is a good quality or a bad one, to be able to be in the moment and then step out of it.
+ - And maybe it is only by finding yourself that you can feel the true intensity of becoming close to another person.
+ - Measure the hope of that moment, that feeling. Everything else will be measured against it.
+ - Life goes on is a redundancy. Life is defined by its going on.
+
+455 quotes

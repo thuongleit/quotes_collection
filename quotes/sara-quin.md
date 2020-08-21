@@ -1,0 +1,27 @@
+ - I just want you that’s it. All your flaws, mistakes, smiles, giggles, jokes, sarcasm. Everything. I just want you.
+ - I know how I was born and I know that I have no choice. I know it may not show on the color of my skin, but I know it’s in my heart and in my soul.
+ - I don’t feel anti-love. I feel suspicious of love, and I feel suspicious of what it means to be in love. And I also feel suspicious of what it means to feel pretend love for someone.
+ - I always say that if I end up in a relationship where I feel like seventy-five percent of what I was looking for is there, then I’ve already won, then we’re all winners in that relationship.
+ - I don’t think people understand how stressful it is to explain what’s going on in your head when you don’t even understand it yourself.
+ - The sun’s rays don’t bother me. No they cast down such a wonderful heat. Masking beauty, by a terrible fate.
+ - I hate being so emotionally slutty. I need to stop loving everyone I have a long conversation with.
+ - This next song is about when you get your heart broken and you try your best to glue it back together and you wake up one morning and you’re so happy because you realize, Oh my God, the tape’s holding!
+ - Me being in love with a girl and wanting her to be with me, doing what I need to do to make her stay with me; it affects no one, yet it’s terrifying to people and they think you’re a monster.
+ - Yes here I am doing what I do best; and that’s taking a selfie. People make fun of me but the reality is if I didn’t take them you would never see me as I want to be seen. I’m a difficult subject and my greatest fear is dying and someone finding my phone and the hundreds upon hundreds of selfies.
+ - I am occasionally loveable but for the most part I’m like loving a raincloud.
+ - That’s the thing about success and happiness. Every time I fall in love I become absolutely, pathologically obsessed. The moment that you have what you want, and you’re not totally ready for it, you become obsessed with the idea that you don’t deserve it.
+ - I’ve always been a sort of self-imposed outsider, not a geeky outsider or a snobby outsider but, I just have a natural desire to live on the fringe. I’m not like a weirdo with a trench-coat but I just prefer to be alone or minimally surrounded by people.
+ - I think that bad drama in a relationship has nothing to do with the individuals, it just really has to do with the dynamic that those individuals create.
+ - I have a tendency, not that anyone I’ve ever dated I thought wasn’t a good person, but sometimes you’re not always a good match.
+ - I didn’t know someone could cry that much, I thought the tears would run out. They don’t.
+ - I don’t jump in real life, why would I jump in a photo?
+ - I live my life in a way that I feel completely comfortable with. I don’t struggle with who I am, who I date, who I love, what I say or what I stand for, not just sexuality but everything.
+ - My dad used to open up photo albums and stuff and you’d have to tell a story about the picture but you couldn’t tell the truth so you had to make up a story about whatever you were looking at. He really taught us how to lie.
+ - Maybe I just stay in relationships for too long and then they get really dramatic.
+ - Sometimes I worry I’m not going to be the best parent because if my baby gets a skin fungus I might sell him at a garage sale.
+ - Although we are Canadian, we have both vowed to remain unmarriad in solidarity with the millions who don’t have the same rights as us around the world.
+ - I’ve been having a lot of dance parties alone in my apartment while learning to cook. Part of my quest to be an attractive single is to learn how to cook and sew and get a license.
+ - Sometimes, what probably makes writing songs really easy is that I’ve generally been attracted to situations that aren’t always the healthiest.
+ - Dallas Green is basically Canadian royalty.
+
+25 quotes

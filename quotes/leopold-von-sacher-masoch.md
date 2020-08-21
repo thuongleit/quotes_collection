@@ -1,0 +1,38 @@
+ - Above all else I am a dilettante in life.
+ - Venus in Furs has caught his soul in the red snares of hair. He will paint her, and go mad.
+ - Be then my slave, and know what it means to be delivered into the hands of a woman.
+ - You have corrupted my imagination and inflamed my blood...
+ - A real apple is more beautiful than a painted one, and a live woman is more beautiful than a Venus of stone.
+ - You are cold, while you yourself fan flames.
+ - I love her passionately with a morbid intensity; madly as one can only love a woman who never responds to our love with anything but an eternally uniform, eternally calm, stony smile.
+ - Never feel safe with the woman you love, for a woman’s nature conceals more dangers than you think.
+ - Despite all the progress of civilization, women have remained exactly as they emerged from the hand of Nature.
+ - People who want to live like Olympian gods must have slaves whom they throw into their fishponds and gladiators who fight during their masters sumptuous banquets-and the pleasure-seekers never care if some blood splatters on them.
+ - Pleasure alone makes existence worthwhile. A pleasure-seeker has a difficult time parting from life.
+ - Every man – I know this – turns weak, pliant, ridiculous as soon as he’s in love.
+ - Whoever allows himself to be whipped, deserves to be whipped.
+ - You know how to paint pleasure, cruelty, arrogance in glowing colors.
+ - My heart is a void, dead, and this makes me sad.
+ - You cannot deny that love lasts for only a brief moment, uniting two beings as a single being that is capable of only one thought, one sensation, one will.
+ - Desire followed the glance, pleasure followed desire.
+ - Oh, you are the kind of man who will corrupt a woman to her very last fiber.
+ - You modern men, you children of reason, cannot begin to appreciate love as pure bliss and divine serenity.
+ - Why become well-versed in science and the arts if not to impress a lovely little woman?
+ - The true comic muse is the one with tears running down under her laughing mask.
+ - Woman, as Nature has created her and as she is currently reared by man, is his enemy and can only be his slave or his despot, but never his companion. She will be able to become his companion only when she has the same rights as he, when she is his equal in education and work.
+ - Alas, woman is faithful as long as she loves, but you demand that she be faithful without love and give herself without enjoyment. Who is cruel then, woman or man?
+ - Now her eyes meet mine like green lightning-they are green, these eyes of hers, whose power is so indescribable-green, but as are precious stones, or deep unfathomable mountain lakes.
+ - Love knows no virtue, no merit; it loves and forgives and tolerates everything because it must. We are not guided by reason...
+ - Man desires, woman is desired.
+ - There is no describing the feeling of being mistreated by a successful rival in front of the woman you worship.
+ - The person who doesn’t know how to subjugate will all too quickly feel the other’s foot on the nape of his neck.
+ - A slap in the face is more effective than ten lectures. It makes you understand very quickly.
+ - You have a curious way of arousing one’s imagination, stimulating all one’s nerves, and making one’s pulses beat faster. You put an aureole on vice, provided only if it is honest. Your ideal is a daring courtesan of genius. Oh, you are the kind of man who will corrupt a woman to her very last fiber.
+ - If I can’t enjoy the full and total happiness of love, then I want to drain its torments, its tortures to the dregs; then I want the woman I love to mistreat me, betray me, and the more cruelly the better. That too is a pleasure.
+ - Every woman has the instinct, the propensity to profit from her charms, and there’s a lot to be said for giving oneself without love, without pleasure.
+ - The struggle of the spirit against the senses is the gospel of modern man. I do not wish to have any part in it.
+ - It is merely the egoism of the man, who wants to bury a woman like a treasure. All attempts at using vows, contracts, and holy ceremonies have failed to bring permanence into the most changeable aspect of changeable human existence, namely love.
+ - Watch out, I have a large, very large fur, with which I could cover you up entirely, and I have a mind to catch you in it as in a net.
+ - Until then I had lived as I had painted and versified – that is, I never got far beyond priming canvas, beyond penning an outline, a first act, a first stanza. There are simply people who start all sorts of things and yet never finish any of them. And that was the kind of person I was.
+
+36 quotes

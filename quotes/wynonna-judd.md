@@ -1,0 +1,39 @@
+ - Silence is refreshment for the soul.
+ - To heal from the inside out is the key.
+ - Sometimes all it takes is just a smile to change somebody’s weather.
+ - I learned again that the mind-body-spirit connection has to be in balance.
+ - In my darkest hours I had a choice to make. I could be a victim or a victor.
+ - The mother-daughter relationship is the most complex.
+ - It sounds corny, but I’ve promised my inner child that never again will I ever abandon myself for anything or anyone else again.
+ - I always go into a bit of a funk when the days get shorter and there’s not enough sunlight.
+ - To all the dreamers out there, don’t give up on your dreams.
+ - There’s just no stopping those girls with guitars.
+ - Without love in you life, you have nothing.
+ - Because I now realize, after all this time, I have never truly felt worthy of all that I have been given.
+ - I literally went from the outhouse to the White House.
+ - Digital downloading of music has affected us all in adverse ways.
+ - Most of us are imprisoned by something. We’re living in darkness until something flips on the switch.
+ - I am a fan of today’s sound as long as we don’t get too slick, and yet I am very reverent of my roots.
+ - If I can make a connection, one connection, to any one listener in the world, I consider that successful.
+ - You’ll be surprised how much better you feel about the world when you feel better about your self.
+ - It took me 36 years to be able to be by myself and like it.
+ - There’s a place for all types of country music as long as there is honesty and realness and a real human experience for the fans.
+ - My mom always said normal is just a cycle on the washing machine.
+ - Success takes us to the top and away from those we love.
+ - When you are real in your music, people know it and they feel your authenticity.
+ - I am grateful for all the military families that I’ve met. I wanted to spread hope and cheer to all; little did I know that they would be the ones to change my life the way they have!
+ - I have a very deep and wide relationship with my fans.
+ - I never took a music lesson in my life, it just came naturally.
+ - The failures and successes are necessary for learning.
+ - I always make music that is true to my spirit.
+ - I also believe my musical abilities are a true gift from God.
+ - I am most proud that I stayed true to the music of my soul.
+ - Sometimes running a corporation, dealing with powerful companies and trying to juggle so many projects takes its toll.
+ - I know that the internet has helped a new world audience find me.
+ - The love of these people and of my fans mean more than any award or special accomplishment.
+ - My music is about the journey, about love and the human experience.
+ - I have always loved the process of making the music, reading the letters from the fans who get married to my music, have children to my music and play my music at their funerals.
+ - I’ve learned lately that no one is going to hand me a permission slip and tell me to take time out for me.
+ - My story of success and failure is not just about music and being famous. It’s about living and loving and trying to find purpose in this crazy world.
+
+37 quotes

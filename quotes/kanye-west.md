@@ -1,0 +1,309 @@
+ - Success is the best revenge.
+ - Shoot for the stars, so if you fall you land on a cloud.
+ - Everyone’s always telling you to be humble. When was the last time someone told you to be great?
+ - Love your haters – they’re your biggest fans.
+ - Everything I’m not makes me everything I am.
+ - For me giving up is way harder than trying.
+ - We gonna touch the sky.
+ - If you’re a Kanye West fan, you’re not a fan of me, you’re a fan of yourself. You will believe in yourself. I’m just the espresso.
+ - Nothing in life is promised except death.
+ - I refuse to accept other people’s ideas of happiness for me. As if there’s a ‘one size fits all’ standard for happiness.
+ - I hate when I’m on a flight and I wake up with a water bottle next to me like oh great now I gotta be responsible for this water bottle.
+ - That that don’t kill me, can only make me stronger.
+ - Recognize and embrace your flaws so you can learn from them. Sometimes it takes a little polishing to truly shine.
+ - If you know you’re the best it only makes sense for you to surround yourself with the best. NO EXCEPTIONS.
+ - Hate and love are very similar emotions. The opposite of love is you don’t care.
+ - I refuse to follow the rules where society tries to control people with low self esteem.
+ - I’m a creative genius and there’s no other way to word it.
+ - They say your attitude determines your latitude...
+ - This is my life homie, you decide yours.
+ - The plan was to drink until the pain is over, But what’s worse, the pain or the hangover?
+ - We all self-conscious. I’m just the first to admit it.
+ - If you admire somebody, you should go ahead and tell them. People never get the flowers while they can still smell them.
+ - Criticism can bother you, but you should be more bothered if there’s no criticism. That means you’re too safe.
+ - Know your worth! People always act like they’re doing more for you than you’re doing for them.
+ - Wait ’till I get my money right...
+ - I’m typing so f-ing hard I might break my f-ing Mac book Air!!!!!!!!
+ - I’m on the pursuit of awesomeness, excellence is the bare minimum.
+ - Having money isn’t everything, not having it is.
+ - No one man should have all that power.
+ - Fur pillows are actually hard to sleep on.
+ - I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.
+ - My Caps Lock Key Is Loud!
+ - My attitude is tattooed that means it’s permanent.
+ - Rome wasn’t built in a day, and the internet is our new Rome.
+ - Sophisticated ignorance, write my curses in cursive.
+ - Sometimes I feel the music is the only medicine.
+ - Fonts. I get emotional over fonts.
+ - Everything in the world is exactly the same.
+ - 50 told me go head and switch the style up and if they hate, let ’em hate, watch the money pile up.
+ - I feel like I’m too busy writing history to read it.
+ - George Bush doesn’t care about black people.
+ - I guess every superhero need his theme music.
+ - If you fall on concrete, that’s yo ass fault.
+ - I never seen snakes on a plane.
+ - If I don’t win, the award show loses credibility.
+ - If you’re taught you can’t do anything you won’t do anything, I was taught I could do everything.
+ - I am a God, so hurry up with my damn massage; in a French-ass restaurant, hurry up with my damn croissants.
+ - I completely lost everything, but I gained everything because I lost the fear.
+ - I feel that I’m very blessed. But with great blessings come great responsibility.
+ - It’s motivation. Some people are gifted at specific things, but I had to develop. The thing I’m most talented at is the ability to learn.
+ - I make all my own decisions and I take full responsibility.
+ - You’re not perfect, but you’re not your mistakes.
+ - When you’re the absolute best, you get hated on the most.
+ - God show me the way because the Devil trying to break me down.
+ - Thank God I’m not too cool for a seatbelt.
+ - It’s a tough world out there. You’re going to prepare yourself for politics, bad bosses, hating employees – and usually when you’re the absolute best, you get hated on the most.
+ - If you have power, you have to empower.
+ - For me to say I wasn’t a genius I’d just be lying to you and to myself.
+ - I don’t even listen to rap. My apartment is too nice to listen to rap in.
+ - We’re not always in the position that we want to be at. We’re constantly growing We’re constantly making mistakes. We’re constantly trying to express ourselves and actualize our dreams.
+ - I don’t like facts, because facts get in the way of my feelings.
+ - To use is necessary. And if you can’t be used, then you’re useless.
+ - Okay, for me, first of all, dopeness is what I like the most.
+ - When we die, the money we can’t keep, but we probably spend it all cause the pain ain’t cheap.
+ - I’m a champion, so I turn tragedy to triumph.
+ - I’m the No. 1 living and breathing rock star. I am Axl Rose; I am Jim Morrison; I am Jimi Hendrix.
+ - I see stuff from the future, and I’m such a futurist that I have to slow down and talk in the present.
+ - I am not a fan of books.
+ - I will go down as the voice of this generation, of this decade, I will be the loudest voice.
+ - Would you believe in what you believe in if you were the only one who believed it?
+ - They say people in your life are seasons and anything that happens is for a reason.
+ - I worked a telemarketing job. I always worked those because I always knew how to talk to people and I always knew how to sell because my father was a salesman. He used to sell vacuum cleaners, payroll services to companies, so that was natural for me to go into sales.
+ - You can’t look at a glass half full or empty if it’s overflowing.
+ - I think I’m a whole lot to handle. I definitely am, on every aspect. I’m the video director. I’m the graphics designer. I’m the rapper. I’m the visionary. I’m the music producer. I’m the executive producer. I’m just going to end it off to be poetic: I’m the future of music.
+ - I just think that when my confidence meets other people’s insecurity, that equals Kanye’s arrogant.
+ - People let their frustrations out on me. I love Kanye West. They say the opposite of that. But I’m not going to say that. I’m only going to say what I’m want to put into the universe.
+ - I’ve known my mom since I was zero years old. She is quite dope.
+ - I can be vilified. I can be misunderstood. I didn’t come here to be liked. I came here to make a difference.
+ - Everyone’s born confident, and everything’s taken away from you.
+ - Couldn’t afford a car so he named his daughter Alexis.
+ - Brands are selling our self-esteem back to us, through association. We need to own our brands.
+ - An artist’s career doesn’t happen in the cycle of one week of news. An artist’s career happens in a lifetime, and if you’re a true artist you’re willing to die for what you believe in.
+ - People will have a problem with whatever you do. At the end of the day, nobody can determine what you need to do in order to be successful and why would you listen to someone who is not successful tell you what you need to do?
+ - I can’t be a slave to the machine, you feel like you’re in the matrix.
+ - Having a Rolex or a Benz is not something that actually represents your success because there’s always something more expensive to buy. Success is really being able to do things for others as well as the people around you and yourself.
+ - What happens if a drone falls right next to her?
+ - When I think of competition it’s like I try to create against the past. I think about Michelangelo and Picasso, you know, the pyramids.
+ - We rappers are role models.
+ - Benjamin Franklin didnt win 21 Grammys right?
+ - In America, they want you to accomplish these great feats, to pull off these David Copperfield-type stunts. You want me to be great, but you don’t ever want me to say I’m great?
+ - If you talking ’bout classics, do my name get brought up?
+ - Drug dealer buy Jordans, crackhead buy crack. And a white man get paid off of all of that.
+ - No flip flops for black dudes. I don’t care where you at. Wear some hot ass Jordans on the beach.
+ - People in this world shun people for being great, for being a bright color, for standing out. But the time is now, to be OK with being the greatest you.
+ - I’ve reached a point in my life where my Truman Show boat has hit the painting.
+ - The way Kathy Lee needs Regis, that’s the way I need Jesus.
+ - I would like to thank Julius Caesar for originating my hairstyle.
+ - Us as a people, we can’t do it on our own. We have to understand that we’re not each other’s enemy. We have to stop discriminating against each other due to class and due to race and due to location or financial position.
+ - Thirty-three-years-old, still creating art. It’s rage, it’s creativity, it’s pain, it’s hurt, but it’s the opportunity to still have my voice get out there through music.
+ - Taste and style is beyond clothes. It’s in food; it’s in quality. Working out, healthy bodies, organic food-they’re all part of the same thing.
+ - I won’t go into a big spiel about reincarnation, but the first time I was in the Gucci store in Chicago was the closest I’ve ever felt to home.
+ - I know I got to be right now Cause I can’t get much wronger.
+ - You know, if Michael Jordan can scream at the refs, me as Kanye West, as the Michael Jordan of music, can go and say, ‘This is wrong.’
+ - Memories have to be our most painful blessing.
+ - Rap is the new rock ‘n’ roll. We the real rock stars, and I’m the biggest of all of them. I’m the No. 1 rock star on the planet.
+ - Living well eliminates the need for revenge.
+ - I specifically ordered persian rugs with cherub imagery!!! What do I have to do to get a simple persian rug with cherub imagery uuuuugh.
+ - I am so credible and so influential and so relevant that I will change things.
+ - My goal, if I was going to do art, fine art, would have been to become Picasso or greater.
+ - You’ve got to be really dialed into exactly who you are to the one hundredth power or you’re just everyone else.
+ - I’m not comfortable with comfort. I’m only comfortable when I’m in a place where I’m constantly learning and growing.
+ - I’m a minimalist in a rapper’s body.
+ - I am God’s vessel. But my greatest pain in life is that I will never be able to see myself perform live.
+ - You basically can say anything to someone on an email or text as long as you put LOL at the end.
+ - I’m never at my worst because even at my lowest, its a learning experience. It’s something that I’ll bounce ideas off. I can take negatives and flip them to positives at all times.
+ - This dark diction has become America’s addiction.
+ - There’s nothing I really wanted to do in life that I wasn’t able to get good at. That’s my skill. I’m not really specifically talented at anything except for the ability to learn. That’s what I do. That’s what I’m here for.
+ - We culture. Rap is the new rock ’n roll. We the rockstars. It’s been like that for a minute, Hedi Slimane!
+ - Keep your nose out the sky, keep your heart to god, and keep your face to the raising sun.
+ - It’s illegal to be naked.
+ - People say it takes a village to raise a child. People ask me how my daughter is doing. She’s only doing good if your daughter’s doing good. We’re all one family.
+ - I had a dream I could buy my way to heaven, when I awoke, I spent that on a NECKLACE...
+ - My parents taught me that AIDS was a man-made disease designed to get rid of the undesirable people.
+ - I’m a heaven sent instrument. My rhythmatic regimen navigates melodic notes for your soul and your mental. That’s why I’m instrumental, vibrations is what I’m into.
+ - Bravery and courage is walking into pain and knowing that something better is on the other side.
+ - My music is rock. I listen to Red Hot Chili Peppers and I listen to one of my songs, and if I don’t give you the same emotion, then I go back and re-spit.
+ - Me and my girl split the buffet at KFC.
+ - If y’all fresh to death, then I’m deceased.
+ - Like, I want the world to be better! All I want is positive! All I want is dopeness! Why would you want to control that?
+ - Do you think there’d be a Givenchy in the hood if it wasn’t for that South Park photo?
+ - Look, I can be married to the most beautiful woman in the world, and I am. I can have the most beautiful little daughter in the world, and I have that. But I’m nothing if I can’t be me. If I can’t be true to myself, they don’t mean anything.
+ - I am a pop artist, so my medium is public opinion and the world is my canvas.
+ - The media crucify me like they did Christ.
+ - Racism is still alive they just be concealing it.
+ - I know you can’t control everything, and everything is in God’s hands ultimately, but I’m going to fight, go out and perform for everybody, I don’t care.
+ - Even a broke clock is right twice a day.
+ - Beauty has been stolen from the people and is being sold back to them as luxury.
+ - Why would anyone pick blue over pink? Pink is obviously a better colour.
+ - If it wasn’t for race mixing, there’d be no video girls.
+ - The prettiest people do the ugliest things.
+ - I’m not going to sit inside of a corporation for 20 years. The time is now. The time is now to express yourself. The time is now to believe in yourself.
+ - The longer your gevity is, the more confidence you build.
+ - Okay, everyone please be completely quiet, because I can literally hear a whisper, and it’ll throw off my stream of consciousness, and when I get my stream of consciousness going that’s when I give the best, illest quotes. Literally, a whisper can throw it off.
+ - I’m like a vessel, and God has chosen me to be the voice and the connector.
+ - I’ll say things that are serious and put them in a joke form so people can enjoy them. We laugh to keep from crying.
+ - Now that you’re gone, it hit us, super hard on Thanksgiving and Chrismas, this can’t be right, yo you heard the track I did called this can’t be life.
+ - It was a strike against me that I didn’t wear baggy jeans and jerseys and that I never hustled, never sold drugs.
+ - I want to help change the way young people look at school, and hence, the way they look at their futures.
+ - I just close my eyes and act like I’m a 3-year-old. I try to get as close to a childlike level as possible because we were all artists back then. So you just close your eyes and think back to when you were as young as you can remember and had the least barriers to your creativity.
+ - What’s the main thing that makes magic magic? The fact that no one believes that it’s possible.
+ - I was wearing like, a Juicy Couture men’s polo shirt. We weren’t there, like, ready for war.
+ - I think there are school teachers who are on the exact same mission as me.
+ - I use too much of my brain and need to let some of it rest.
+ - I would never want a book’s autograph. I am a proud non-reader of books.
+ - Great art comes from great artists. There’s a bunch of people that are hurt that still couldn’t have made the album that was super-polarizing and redefined the sound of radio.
+ - Fashion breaks my heart.
+ - I would rather sit in a factory than sit in a Maybach.
+ - Cause I want to be on 106 and Park pushing a benz.
+ - Nike told me, ‘We can’t give you royalties because you’re not a professional athlete.’ I told them ‘I’ll go to the Garden and play one-on-no-one.’ I’m a performance athlete!
+ - I understand culture. I am the nucleus.
+ - Versace! Versace! Versace! Versace! Versace! Versace! We love Versace. Versace is the greatest designer of all time!
+ - So I hope that there are people out there laughing. Laugh loud, please. Laugh until your lungs give out because I will have the last laugh.
+ - What if you’re Gaudi and you know you’re the best architect and everyone is saying that you’re saying you’re the best architect the wrong way?
+ - Throw your diamonds in the sky if you feel the vibe.
+ - If you a Kanye West fan, you a fan of yourself.
+ - I’m not a corny-ass booty freak! I’m the greatest musician of all-time.
+ - I am in the lineage of Gil Scott-Heron, great activist-type artists. But I’m also in the lineage of a Miles Davis – you know, that liked nice things also.
+ - There’s a lack of creativity in every field because people are afraid. As an artist in this world we can do whatever we want.
+ - I was never really good at anything except for the ability to learn.
+ - Why, if someone is good in one field can they not be accepted or given the slightest opportunity to express and be creative in other fields?
+ - But for me to have the opportunity to stand in front of a bunch of executives and present myself, I had to hustle in my own way. I can’t tell you how frustrating it was that they didn’t get that. No joke – I’d leave meetings crying all the time.
+ - I wanna make uniforms for my high school basketball team through brand Yeezy.
+ - If you don’t make Christmas presents, meaning making something that’s so emotionally connected to people, don’t talk to me.
+ - I’m talkin’ about us, the new slaves, the people who love fashion. I’m talking about us, you know? ‘Cause I’m a slave to it. I love it.
+ - All I need is the breakthrough. The joint-venture for my clothing. Same as Stella McCartney has...
+ - If you can focus the energy into something valuable, put that into work ethic...
+ - Respect my trendsetting abilities. Once that happens, everyone wins.
+ - Let the music defuse all the tension.
+ - Slavery is more mental than anything.
+ - Maybe 90 percent of the time it looks like I’m not having a good time.
+ - I performed it all the way through for people. People would say, “We love you, we want to sign you,” and then there’d always be one person who’d say, “He’s just a producer.”
+ - I’m really happy I’m me because if I wasn’t I’d be scared. If you want that Number One spot you need to listen to my album and try to beat it.
+ - I’m a let you finish, but the French Revolution had the best severed heads of ALL TIME.
+ - I am the number one human being in music. That means any person that’s living or breathing is number two.
+ - The dinosaurs are remember only by their bones. What will we be remembered for with humanity?
+ - I don’t expect to be understood at all.
+ - People don’t stand up and protect their dreams because they get spoofed in a way.
+ - I ain’t crazy, I’m just not satisfied.
+ - As a man I am flawed, but my music is perfect.
+ - Clothing should be like food. There should never be a $5000 sweater. You know what should cost $5000? A car.
+ - I’m gonna be the first hip-hop designer and because of that I’m gonna be bigger than Wal-Mart.
+ - Black people can be the most conservative, the most discriminating. Especially among ourselves. It wasn’t white people who said all black men have to wear baggy jeans.
+ - I try to get as close to a childlike level as possible because we were all artists back then.
+ - I could still do a suit, I just wouldn’t have done that exact lapel situation.
+ - I think what Kanye West is going to mean is something similar to what Steve Jobs means.
+ - My wife has dated broke black dudes.
+ - I honestly feel that because Steve has passed, you know, it’s like when Biggie passed and Jay-Z was allowed to become Jay-Z.
+ - So few hip-hop artists have ever advanced. Their songs on their seventh, eighth albums sound exactly like the songs on their first album. More than an artist, I’m a real person-and real people grow. And I wanna just sing my growth.
+ - I know I got angels watchin me from the other side.
+ - The concept of commercialism in the fashion and art world is looked down upon. You know, just to think, ‘What amount of creativity does it take to make something that masses of people like?’ And, ‘How does creativity apply across the board?’
+ - It’s only led me to complete awesomeness at all times. It’s only led me to awesome truth and awesomeness. Beauty, truth, awesomeness. That’s all it is.
+ - Turn that 62 to 125, 125 to 250, 250 to half a million, ain’t nothing nobody can do with me.
+ - I thank Marc Jacobs so much for giving me the opportunity to design a shoe for Louis Vuitton, but the thing that broke my heart most was when they said, ‘You’re finished. The shoe’s finished.’
+ - In Paris, you’re as far as possible from the land of pleasant smiles.
+ - We are the creatives with teeth. We know ideas are more important than our personal wellbeing.
+ - Every time I crash the Internet, it’s like this little drop of truth. Every time I say something that’s extremely truthful out loud, it literally breaks the Internet. So what are we getting all of the rest of the time?
+ - Taking 1,000 meetings attempting to get backing to do clothing...
+ - I’ve had meetings where a guy actually told me, “What we’re trying to figure out is how we can control you.” In the meeting, to me! Why do you want to control me?
+ - The dinosaurs aren’t remembered for much more than their bones. When humanity’s gone, what do we give to this little planet that we’re on, and what could we do collectively, removing the pride?
+ - I eventually want to be the anchor of the first trillion-dollar company.
+ - People want fame and I would never tell a person to not want that, because it’s f – ing awesome. Actually.
+ - If anyone’s reading this waiting for some type of full-on, flat apology for anything, they should just stop reading right now.
+ - Take your diamonds and throw em up like you’re bulimic. Yeah, the beat cold, but the flow is anemic.
+ - My definition of genius is not being that person the actual human is a genius, but it’s a person that just allows God to work through them.
+ - There are people who have figured out the exact, you know, Kanye West formula, the mix between “Graduation” and “808s,” and were able to become more successful at it.
+ - People say I’ve got a bad reputation. I think I’ve got the best reputation in the building.
+ - You have to be able to swim in backlash.
+ - We’ve been sold a concept of joy through advertising. It was somehow sold to us through a Gucci bag or something.
+ - I was on the junior team when I was a freshman, that’s how good I was. But I wasn’t on my eighth-grade team, because some coach – some Grammy, some reviewer, some fashion person, some blah blah blah – they’re all the same as that coach.
+ - I could never be in a situation with a job where I was not allowed to listen to music all day. I would rather work at a fast food restaurant where I could turn on the radio all day rather than be in a situation where I have to sneak and listen to music.
+ - What I had to learn from Kim is how to take more of her advice and less of other people’s advice. There’s a lot of Kim K skills that were added. In order to win at life, you need some Kim K skills, period.
+ - Could have sworn her breastses was sending me messages.
+ - I feed the branches of the people.
+ - I live and breathe every element in life.
+ - We have the ability to approach our race like ants, or we have the ability to approach our race like crabs.
+ - Come on now! How could you be me and want to be someone else?
+ - If I do become more successful, either as a producer or a rapper, I’m going to do everything I can to help whoever I can on the label.
+ - If your job is inspiration you have to go at it at all costs.
+ - People say, ‘What do you mean you want to help the world, but you’re so concerned about fashion?’ It’s illegal to be naked. It is something that is extremely important.
+ - People always try to box you in to what they know you best for.
+ - It’s like this, by not giving my album a classic rating, you diminish your magazine’s credibility. And that’s real.
+ - I am a black new wave artist.
+ - I’m my favorite rapper.
+ - I still think I am the greatest.
+ - I gave him his first TV and he needs to remember that.
+ - Death is promised. So what do you do with your life? How do you make the most of it? How do you make your voice the loudest?
+ - I’m the type of rock star that likes to have a girlfriend, you know?
+ - I’ve got a million people telling me why I can’t do it. You know, that I’m not a real designer, that I’m not this. I’m not a real rapper, either!
+ - If you can do it better than me, then you do it.
+ - Like, this is my baby. This isn’t America’s baby.
+ - I believe in myself like a five-year-old believes in himself. They say look at me, look at me! Then they do a flip in the backyard. It won’t even be that amazing, but everyone will be clapping for them.
+ - The only luxury is time. The time you get to spend with your family.
+ - If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don’t appreciate the moment until it’s passed.
+ - But I think I’m on track to do something even bigger. I liberate minds with my music. That’s more important than liberating a few people from apartheid or whatever.
+ - I’m the smartest celebrity you’ve ever dealt with. I’m not Britney Spears.
+ - And wouldn’t change by the change, or the game, or the fame, when he came, in the game, he made his own name.
+ - If I was just a fan of music, I would think that I was the number one artist in the world.
+ - When someone comes up and says something like, ‘I am a god,’ everybody says ‘Who does he think he is?’ I just told you who I thought I was. A god. I just told you. That’s who I think I am.
+ - Talkin’, talkin, talkin’, talk. Baby, let’s just knock it off. They don’t know what we been through. They don’t know ’bout me and you.
+ - If you ask me a question like what is your greatest accomplishment, it should be what I’m about to do.
+ - I’m a blowfish. I’m not a shark, I’m a blowfish.
+ - I ain’t here to argue about his facial features. Or here to convert atheists into believers. I’m just trying to say the way school need teachers the way Kathie Lee needed Regis that’s the way yall need Jesus.
+ - Being fresh is more important than having money.
+ - That’s very cool. Well, that’s great. If I were to cater to Kanye, he would know that I’m catering to him. The fact that I make what I make-he gets it. He gets the quality and he respects it. And I think that’s the key, why I work all the time is to do that. That’s the fun.
+ - I don’t like to say something’s weird when it’s innovative and fresh.
+ - I looked at Justin, and I was like: ‘Do you want me to go onstage for you?’
+ - The idea of Kanye and vanity are like, synonymous. But I’ve put myself in a lot of places where a vain person wouldn’t put themselves in. Like what’s vanity about wearing a kilt?
+ - You want me to be great, but you don’t ever want me to say I’m great?
+ - I will be the leader of a company that ends up being worth billions of dollars, because I got the answers.
+ - I am not what I would consider truly a musician. I am an inventor. I am an innovator.
+ - Whenever y’all are in the store from and y’all are trying to decide whether or not to get something, think if you saw me wear it before or not, and if I have, then it’s okay.
+ - I think that’s a responsibility that I have, to push possibilities, to show people: ‘This is the level that things could be at.’
+ - Sometimes people write novels and they just be so wordy and so self-absorbed.
+ - I don’t have one regret.
+ - The idea of Kanye and vanity are like, synonymous.
+ - Any woman that you’re in love with or that loves you is going to command a certain amount of, you know, energy. It’s actually easier to focus, in some ways.
+ - You have to think like a designer. You have to establish the trend four seasons before it becomes popular.
+ - You have the power to let power go.
+ - I didn’t want to play it boring and safe. I also didn’t want to innovate too much. Second albums, man, they’re even scarier than first ones.
+ - The same people that tell me what I ought to have is the same people asking for an autograph.
+ - A lot of people are very sacred with their ideas, and there is something to protecting yourself in that way, but there’s also something to idea sharing, or being the person who makes the mistake in public so people can study that.
+ - I wouldn’t even say that I’m a rapper. I’d say I’m more of a messenger.
+ - I believe that everyone is a fashion insider, because it’s illegal to be naked.
+ - I gotta new strategy it’s called no strategy. And I gotta way to sell more music its called make better music.
+ - I’m a pop enigma. I live and breathe every element in life. I rock a bespoke suit and I go to Harold’s for fried chicken. It’s all these things at once, because, as a taste maker, I find the best of everything.
+ - They say, he must had an angel, cuss look how death missed his ass. Unbreakable, what you thought they’d call me Mr. Glass?
+ - I’m not a celebrity, I’m an activist. The fact that when I see truth it’s really hard for me to sit back and just allow it to happen in front of me on my clock makes me, a lot of times, a bad celebrity.
+ - To be a visionary, all you have to do is make decisions based off of your eyes instead of your ears and your memory.
+ - If you see a black family, it’s looting, but if it’s a white family they are looking for food.
+ - Just know that if you want to be a boxer you’re going to get your face beaten constantly but then you may end up being a Mayweather or an Ali at the end of the day.
+ - Michael Jordan changed so much in basketball, he took his power to make a difference. It’s so much going on in music right now and somebody has to make a difference.
+ - I hope we don’t see no paparazzi today. Because I’m still getting acquainted with these jogging pants I threw on. Like, ‘That’s not my statement!’
+ - I’m gonna sit here on this runway until I’m at the end of it. Because that’s that thing that people slave over. That’s that thing that people are slaves to. That’s that thing that I’m a slave to.
+ - I’m pretty calculating. I take stuff that I know appeals to people’s bad sides and match it up with stuff that appeals to their good sides.
+ - Yeah, I think that I have like, faltered, you know, as a human. My message isn’t perfectly defined. I have, as a human being, fallen to peer pressure.
+ - I want to dress like a child as much as possible.
+ - As a rapper, I feel like image is always important but even more so than image, I really love clothes, that’s why I don’t use stylists. I want to do it myself because I really love it.
+ - I don’t know if this is statistically right, but I’m assuming I have the most Grammys of anyone my age, but I haven’t won one against a white person.
+ - It’s about whatever I want to make it about. It’s my world.
+ - Well, if someone has got all the money in the world, they’d still want love.
+ - If I was more complacent and I let things slide, my life would be easier, but you all wouldn’t be as entertained. My misery is your pleasure.
+ - No one is looking at what President Obama is wearing. Michelle Obama cannot Instagram a bikini pic like what my girl Instagrammed the other day...
+ - Nobody’s gonna be bigger than Eminem.
+ - When I was in fourth grade I was drawing Jordans when my mama couldn’t afford them.
+ - If I were to write my title like going through the airport and you have to put down what you do? I would literally write ‘creative genius’ except for two reasons: Sometimes it takes too long to write that and sometimes I spell the word ‘genius’ wrong. The irony.
+ - I’m giving all that I have in this life. I’m opening up my notebook and I’m saying everything in there out loud.
+ - I was always considered this crazy hothead kid, but I would always just go and just really break bread with someone who I respected. I will completely bow to anybody I respect.
+ - They classify my motivational speeches as rants!
+ - I believe that bad taste is vulgar. It’s like cursing. I think the world can be saved through design, because what is the most distasteful thing someone can do? Kill someone. So, good taste is the opposite of that.
+ - Yo Taylor, I’m really happy for you. I’ma let you finish. But Beyonce had one of the best videos of all time!
+ - I can always tell if a band has a British rhythm section due to the gritty production.
+ - I’m supposed to be a musical genius, but I can’t work the car seat that well.
+ - Anytime I’ve had a big thing that’s ever pierced and cut across the Internet, it was a fight for justice. Justice. And when you say justice, it doesn’t have to be war. Justice could just be clearing a path for people to dream properly.
+ - Pharrell has always been my style idol.
+ - In the night, I hear ’em talk. Coldest story ever told. Somewhere far along this road he lost his soul.
+ - Never stop fighting no matter what anyone says. If it’s in your gut, your soul, there’s nothing, no worldly possession that should come between you and your expression.
+ - I wake up every day trying to give something back to you that you can rock to and be proud of.
+
+307 quotes

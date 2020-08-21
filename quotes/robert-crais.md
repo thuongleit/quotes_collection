@@ -1,0 +1,32 @@
+ - Efficiency and focus are the keys to success.
+ - If my vision was good enough, I’d be an astronaut.
+ - Sometimes I am so dry that people don’t know I’m kidding and think I’m being serious. I enjoy this because their reactions are often funny.
+ - Everything we are is anchored in our childhoods. The drama comes in how we deal with it. Are we slaves to our past, or can we rise above it? This is the stuff of great stories.
+ - I have these huge black foam boards on the wall, and tacked to them, I have these white punch cards with my story ideas, scenes and notes.
+ - I admire people who re-create themselves. And it seems to me that what gives us all the opportunity to be heroic in our own lives is that we work to heal ourselves and be better than we were yesterday.
+ - My fiction is almost always inspired by a character’s need or desire to rise above him- or herself. No one is perfect and some of us have much adversity in our lives; it is those people who struggle to rise above their nature or background that I find the most interesting and heroic.
+ - At Lackland Air Force Base, they make an effort to retrain military dogs that suffer from PTSD. It’s a lengthy, long process. The treatment is much the same as it would be for people, but it’s a difficult road back.
+ - Some of us find our way with a single light to guide us; others lose themselves even when the star field is as sharp as a neon ceiling. Ethics may not be situational, but feelings are. We learn to adjust, and, over time, the stars we use to guide ourselves come to reside within rather than without.
+ - Everyone knows dogs. Most people love dogs. I think most American families probably have a dog, but I don’t think people really realize or understand just how wonderful and special dogs are.
+ - People want you to be ordinary. They don’t like it when people are different. They don’t like it when a man soars over their heads while they stand in the dirt. People hate you when you’re special; it reminds them of everything that they aren’t.
+ - A dog could see your heart in your eyes, Budress told him, and dogs were drawn to our hearts.
+ - I had a big Akita, Yoshi, who was fabulous. I loved him. We lost him when he was 12, and I’ve never been able to replace him. Normally, most people lose a pet and get another and keep going on. But it just felt wrong to me; it felt disloyal.
+ - People want you to be ordinary.
+ - Los Angeles is the evolutionary edge.
+ - My family was all police and hard hats at the refineries; they didn’t know what to think about me. So I became a closet writer.
+ - I was digging for stuff in a used bookstore, and I came upon ‘Little Sister.’ I fell in love with Chandler that night. I fell right down the rabbit hole of crime fiction.
+ - What they smell isn’t the emotion of fear. What dogs can smell is the changes in a person’s skin that suggest fear to the dog, anxiety, the way your skin sweats, the amount of uric acid that suddenly pours out of your pores.
+ - She asked me why I always had something flip to say. I said that I didn’t know, but having been blessed with the gift, I felt obliged to use it.
+ - Adults always wonder what to say and how to say it when they’re talking to a child. You want to be wise, but all you are is a child yourself in a larger body. Nothing is ever what it seems. The things that you think you know are never certain. I know that now. I wish that I didn’t, but I do.
+ - I write characters and stories that move me, and I write from the heart.
+ - The sense of smell in all dogs is their primary doorway to the world around them.
+ - When dogs fulfill their roles they are ecstatically happy.
+ - Dogs give us something just as we give something to them.
+ - My books come to me in images, and sometimes the image is at the beginning of the book, and sometimes it’s simply a flash somewhere in the middle.
+ - It’s easy to sound good. All you do is leave in the parts where you act tough and forget the parts where you get shoved around.
+ - Pike put down the cat. He slid from Pike’s arms like molasses and puddled at his feet.
+ - I love the fact that you collaborate with your readers when you write a book.
+ - Lucy took a single plain donut from the bag and held it for me to take a bite. Tender and light and still warm from the frying. Not too sugary.
+ - The relationship between a military working dog and a military dog handler is about as close as a man and a dog can become. You see this loyalty, the devotion, unlike any other and the protectiveness.
+
+30 quotes

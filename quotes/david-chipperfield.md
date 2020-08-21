@@ -1,0 +1,22 @@
+ - The difference between good and bad architecture is the time you spend on it.
+ - You don’t restore ‘The Last Supper’ by filling in the missing bits – you preserve. You accept the material that has somehow survived.
+ - It used to be presumed that if you weren’t at your desk working, you weren’t working, But we said, ‘Why can’t we make a workplace where casual meetings are as important as working at your desk?’ Sometimes that’s where your better creative work happens.
+ - I may not be the most interesting architect, but I’m still out there and have maintained some position of integrity.
+ - I suppose I’m trying to build an architecture that’s as timeless as possible, although we’re all creatures of our age.
+ - Architecture has curled up in a ball and it’s about itself. It has found itself either as a freakshow, where you’re not sure if it’s good or bad but at least it’s interesting, or at the behest of forces of commerce.
+ - Often, architects work too hard trying to make their buildings look different. It’s like we’re actors let loose on a stage, all speaking our parts at the same time in our own private languages without an audience.
+ - There is a danger when every building has to look spectacular; to look like it is changing the world. I don’t care how a building looks if it means something, not to architects, but to the people who use it.
+ - I do very little industrial design. I’m asked a lot, but I certainly don’t see myself as an industrial designer.
+ - I do quite like Gehry’s Guggenheim. But where in Bilbao it’s seen as an outgrowth of years of investment in urban design and engineering, in Britain it’s seen as the catalyst for urban regeneration rather than the icing on the cake.
+ - Most architects work in studios largely divorced from academia, as if ideas, criticism and historical research were irrelevant.
+ - If you look at a building by Mies van der Rohe, it might look very simple, but up close, the sheer quality of construction, materials and thought are inspirational.
+ - Seeing architecture differently from the way you see the rest of life is a bit weird. I believe one should be consistent in all that one does, from the books you read to the way you bring up your children. Everything you do is connected.
+ - A building is no good if someone’s got to explain to you why it’s good. You can’t say you don’t know enough about architecture – that’s ridiculous. It’s got to work on many levels.
+ - I’m suspicious of the idea of architects acting like business executives, brand managers, or purveyors of luxury goods.
+ - I think that the point of being an architect is to help raise the experience of everyday living, even a little. Putting a window where people would really like one. Making sure a shaving mirror in a hotel bathroom is at the right angle. Making bureaucratic buildings that are somehow cheerful.
+ - It is difficult to separate oneself from one’s design moralities.
+ - Britain loves a bargain, but you don’t get good, lasting architecture on the cheap.
+ - Britain gets the architecture it deserves. We don’t value architecture, we don’t take it seriously, we don’t want to pay for it and the architect isn’t trusted.
+ - I don’t think architecture is radical. How can something that takes years and costs millions be radical?
+
+20 quotes

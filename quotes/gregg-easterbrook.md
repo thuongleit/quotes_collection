@@ -1,0 +1,27 @@
+ - Torture numbers, and they’ll confess to anything.
+ - Count your blessings for selfish reasons! Psychological studies show that people who are aware of their blessings and feel grateful for them live longer than non-grateful people, have fewer medical problems such as hypertension, earn more and achieve longer marriages.
+ - Stereotypes involving Christian identity, Christian persecution is so far back in history now that no one fears it being revived, unless you live in China, I guess.
+ - Autumn truly is what summer pretends to be: the best of all seasons. It is as glorious as summer is tedious; as subtle as summer is obvious; as refreshing as summer is wearying. Autumn seems like paradise.
+ - A transition from material want to meaning want is in progress on an historically unprecedented scale-involving hundreds of millions of people-and may eventually be recognized as the principal cultural development of our age.
+ - The only reason runaway global warming seems unstoppable is that we have not yet tried to stop it.
+ - Heroic people take risks to themselves to help others. There’s nothing heroic about accepting $5 million to go out and run around chasing a ball, although you may show fortitude or those other qualities while you do it.
+ - When television producers say it is the parents obligation to keep children away from the tube, they reach the self satire point of warning that their own product is unsuitable for consumption.
+ - Jewish persecution is a historical memory of the present generation and people fear it in the present day, and that’s why those references are so much more powerful. I just understand that better now.
+ - I’m working seven days a week in the fall. I couldn’t possibly keep that up. This is only for the fall. In the last couple of years I’ve tended to do most of my serious writing in the winter, when there’s nothing going on with football.
+ - But by showing us live coverage of every bad thing happening everywhere in the world, cable news makes life seem like it’s just an endless string of disasters – when, for most people in most places today, life is fairly good.
+ - Even though Rush is not me and the situations were very different, I think, in the Rush Limbaugh thing, ESPN was criticized for not acting, and you remember that after a couple days of controversy over Rush.
+ - Instant-doomsday hyperbole caused the world’s attention to focus on the hypothetical threat of global warming to the exclusion of environmental menaces that are real, palpable, and awful right now.
+ - Everyone needs a certain amount of money. Beyond that, we pursue money because we know how to obtain it. We don’t necessarily know how to obtain happiness.
+ - How many times have you bought something thinking it would make you happy, and found it does not?
+ - Now, for pure bloggers, for individual people who are just posting their own thoughts, they would still run the same risk of saying something wrong or embarrassing, but they wouldn’t harm their institutions by doing so.
+ - For what I wrote that started this whole controversy, I deserved to be criticized, and I felt bad about writing it. I felt bad mainly as a writer and a thinker.
+ - Peace on earth and mercy mild are still possible. On Christmas Eve, all things are possible.
+ - You know, some of the good part of blog theory was that blogs would be like diaries that the world could read. They would be spontaneous, whatever pops into your mind, as a diary would be.
+ - I don’t think there are many larger lessons to be found in sports.
+ - I think professional sports, football, to use it as an example, it’s fundamentally a form of entertainment.
+ - And if there was something, suppose I wanted to write something really damning or embarrassing about one of the owners, that would really be a problem on the NFL’s site.
+ - Though environmental orthodoxy holds that Third World deforestation is caused by rapacious clear-cutters and ruthless cattle barons, penniless peasants seeking fuel wood may be the greatest threat to our forests.
+ - Seek happiness and you may or may not find it; seek grievances and you are guaranteed success.
+ - I think the thing that I most appreciate now is that stereotypes involving Jewish identity activate fears of persecution that exist in the present day.
+
+25 quotes

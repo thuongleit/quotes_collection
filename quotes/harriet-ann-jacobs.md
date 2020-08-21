@@ -1,0 +1,35 @@
+ - Death is better than slavery.
+ - The beautiful spring came; and when Nature resumes her loveliness, the human soul is apt to revive also.
+ - The war of my life had begun; and though one of God’s most powerless creatures, I resolved never to be conquered.
+ - There are wrongs which even the grave does not bury.
+ - When I was six years old, my mother died; and then, for the first time, I learned, by the talk around me, that I was a slave.
+ - If a slave is unwilling to go with his new master, he is whipped, or locked up in jail, until he consents to go, and promises not to run away during the year.
+ - No pen can give an adequate description of the all-pervading corruption produced by slavery.
+ - When they told me my new-born babe was a girl, my heart was heavier than it had ever been before. Slavery is terrible for men; but it is far more terrible for women.
+ - Southern women often marry a man knowing that he is the father of many little slaves. They do not trouble themselves about it.
+ - Lives that flash in sunshine, and lives that are born in tears, receive their hue from circumstances.
+ - The slave child had no thought for the morrow; but there came that blight, which too surely waits on every human being born to be a chattel.
+ - Cruelty is contagious in uncivilized communities.
+ - There are no bonds so strong as those which are formed by suffering together.
+ - There is something akin to freedom in having a lover who has no control over you, except that which he gains by kindness and attachment.
+ - But to the slave mother New Year’s day comes laden with peculiar sorrows. She sits on her cold cabin floor, watching the children who may all be torn from her the next morning and often does she wish that she and they might die before the day dawns.
+ - I would rather drudge out my life on a cotton plantation, till the grave opened to give me rest, than to live with an unprincipled master and a jealous mistress.
+ - Every where the years bring to all enough of sin and sorrow; but in slavery the very dawn of life is darkened by these shadows.
+ - For years, my master had done his utmost to pollute my mind with foul images, and to destroy the pure principles inculcated by my grandmother, and the good mistress of my childhood.
+ - Hot weather brings out snakes and slaveholders, and I like one class of the venomous creatures as little as I do the other.
+ - When I was nearly twelve years old, my kind mistress sickened and died.
+ - DURING the first years of my service in Dr. Flint’s family, I was accustomed to share some indulgences with the children of my mistress.
+ - Dr. Flint had sworn that he would make me suffer, to my last day, for this new crime against him, as he called it; and as long as he had me in his power he kept his word.
+ - I WAS born a slave; but I never knew it till six years of happy childhood had passed away.
+ - Notwithstanding my grandmother’s long and faithful service to her owners, not one of her children escaped the auction block. These God-breathing machines are no more, in the sight of their masters, than the cotton they plant, or the horses they tend.
+ - The slave girl is reared in an atmosphere of licentiousness and fear.
+ - But I now entered on my fifteenth year – a sad epoch in the life of a slave girl. My master began to whisper foul words in my ear. Young as I was, I could not remain ignorant of their import.
+ - There is a great difference between Christianity and religion at the south. If a man goes to the communion table, and pays money into the treasury of the church, no matter if it be the price of blood, he is called religious.
+ - My master had power and law on his side; I had a determined will. There is might in each.
+ - The secrets of slavery are concealed like those of the Inquisition.
+ - When my babe was born, they said it was premature. It weighed only four pounds; but God let it live.
+ - Always it gave me a pang that my children had no lawful claim to a name.
+ - The degradation, the wrongs, the vices, that grow out of slavery, are more than I can describe. They are greater than you would willingly believe.
+ - There must be sophistry in all this; but the condition of a slave confuses all principles of morality, and, in fact, renders the practice of them impossible.
+
+33 quotes

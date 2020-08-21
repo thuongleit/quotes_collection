@@ -1,0 +1,51 @@
+ - It’s nice to just embrace the natural beauty within you.
+ - You have to be really careful with what you put out on social media and who you’re talking to online. You can’t just trust someone that you meet online. People aren’t always who they say they are.
+ - Power to me is having the ability to make a change in a positive way.
+ - Had an amazing weekend hanging with my pals.
+ - Never let anyone take away your dream.
+ - Guys don’t like girls that throw themselves at them. That’s something that I’ve learned.
+ - A guy wants a classy girl who is smart and has goals – someone that he wouldn’t be afraid to bring home to his parents.
+ - You know when you have a good relationship with someone when you are just perfectly happy to be quiet and just hang out and do nothing.
+ - My favorite TV show is probably ‘Glee.’ I’m a Gleek, like everyone else!
+ - Being a teen can be tough. Just try to surround yourself with really good friends that really have your back, and also be a really good friend to those who really care about you. If you’re not sure about certain things, talk to your friends that you trust and your family.
+ - If you’re going through friendship issues, I would say, first of all take a step back. How important is the friendship to you? Sometimes, if someone’s not being a good friend to you and isn’t treating you the way you should be treated, then you kind of have to move on sometimes.
+ - Everyone wants me to be perfect, but I am so far from perfect!
+ - I can’t worry about what people are going to think of me and if they’re going to like me more than other people. You just have to be present and live in the moment and if it works out, then awesome and I wish everyone who is trying to do the same thing, genuinely the best of luck.
+ - I don’t want to sing boring pop songs – I want to sing songs that are meaningful to me.
+ - People always ask me, ‘Is there a rivalry between the Nickelodeon and Disney stars? Do you guys hate each other?’ Like everyone has to be on one team. If you’re a Selena Gomez fan, you can’t be a Victoria Justice fan. We’re both half-Latin, and people put us in the same category.
+ - I definitely think there could be stricter teen driving laws.
+ - I’m half Puerto Rican and every Friday we have rice and beans and chicken in my house – so that’s like a very Latin staple. It’s just so comforting. I look forward to every single Friday because I just can’t wait for my rice and beans and chicken.
+ - I do a lot of vintage shopping. I love going to second-hand stores.
+ - When I go to a concert, I can’t help but feel happy and everything else just goes away. I hope everyone feels that way at my concerts.
+ - Guys who are charismatic and fun-loving and sweet and generous are the ones I want to date.
+ - I love making movies and hope to write my own screenplay someday and do some producing and be behind-the-scenes as well.
+ - I do love getting dressed up, but sometimes it’s glam and edgy mixed together.
+ - There’s really so much more to me than that.
+ - Both music and acting are huge parts of my life – it’s all about balance.
+ - At a young age, I had to give up a lot of things, like being able to hang out with my friends.
+ - I want to work with producers who are unique and have a different sound.
+ - If you love something, you have to stay really focused and can’t let outside things distract you.
+ - To even be called the ‘teen queen’ is crazy.
+ - I want to write music that’s going to appeal to everyone.
+ - I think prom is just about enjoying yourself.
+ - I don’t have to wear any other makeup as long as I have blush.
+ - I like to dress for my body type and for my coloring.
+ - I think theres a perception out there that people know me based on these glamorous photos they see of me in magazines, but I have about two hours of hair and makeup and then people to dress me, to make me look even better, in those pictures. Theres really so much more to me than that.
+ - I don’t think I ever wore anything that was like really ugly, I just didn’t really care.
+ - I love ‘Homeland.’ I think it’s such a well-done, well-acted TV show.
+ - I like being active and riding a bike around my neighborhood and exercising when I can.
+ - Someone once told me that something they really liked about me was that they thought that I was really down to earth and not high-maintenance. I think that was cool. It’s important to stay grounded.
+ - I like people who can and like to make fun of themselves!
+ - I don’t take myself too seriously.
+ - I want to play a variety of different characters in different genres of film.
+ - Going to a concert is so overwhelming and the energy is amazing.
+ - I could work 24 hours and I wouldn’t complain once because I’m happiest when I’m working.
+ - I don’t want to be the type of person to have my relationships plastered in magazines.
+ - My day-to-day look is inspired by comfort, color and just how I’m feeling that day.
+ - As far back as I can remember though, I always loved performing.
+ - I guess because people are more aware of who I am, they’re going to wonder about my personal life.
+ - I only went to school up until the beginning of tenth grade and I think that’s when my style was developing.
+ - I am undeniably afraid of the dark!
+ - My number one thing was that if I ever did get successful enough to make it, I wanted to be able to give back to my family.
+
+49 quotes

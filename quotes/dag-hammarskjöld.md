@@ -1,0 +1,101 @@
+ - For all that has been, Thank you. For all that is to come, Yes!
+ - The longest journey is the journey inward.
+ - If only I may grow: firmer, simpler, quieter, warmer.
+ - The UN wasn’t created to take mankind into paradise, but rather, to save humanity from hell.
+ - The longest journey is the journey inwards. Of him who has chosen his destiny, Who has started upon his quest for the source of his being.
+ - Forgiveness is the answer to the child's dream of a miracle by which what is broken is made whole again, what is soiled is made clean again.
+ - Do not seek death. Death will find you. But seek the road which makes death a fulfillment.
+ - Never measure the height of a mountain until you have reached the top. Then you will see how low it was.
+ - You cannot play with the animal in you without becoming wholly animal, play with falsehood without forfeiting your right to truth, play with cruelty without losing your sensitivity of mind. He who wants to keep his garden tidy does not reserve a plot for weeds.
+ - It is more noble to give yourself completely to one individual than to labor diligently for the salvation of the masses.
+ - Constant attention by a good nurse may be just as important as a major operation by a surgeon.
+ - He who wants to keep his garden tidy doesn’t reserve a plot for weeds.
+ - Perhaps a great love is never returned.
+ - Pray that your loneliness may spur you into finding something to live for, great enough to die for.
+ - Never look down to test the ground before taking your next step; only he who keeps his eye fixed on the far horizon will find the right road.
+ - Peacekeeping is not a job for soldiers, but only soldiers can do it.
+ - Perhaps a great love is never returned. Had it been given warmth and shelter by its counterpart in the Other, perhaps it would have been hindered from ever growing to maturity. It “gives” us nothing. But in its world of loneliness it leads us up to the summits with wide vistas – of great insights.
+ - Life yields only to the conqueror.
+ - You take the pen, and the lines dance. You take the flute and the notes shimmer. You take the brush, and the colors sing. So all things have meaning and beauty in that space beyond time where you are. How, then, can I hold back anything from you?
+ - It is playing safe that we create a world of utmost insecurity.
+ - When the morning’s freshness has been replaced by the weariness of midday, when the leg muscles give under the strain, the climb seems endless, and suddenly nothing will go quite as you wish it is then that you must not hesitate.
+ - We are not permitted to choose the frame of our destiny. But what we put into it is ours.
+ - Do not look back and do not dream about the future. It will neither give you back the past, nor satisfy your other daydreams. Your duty, your reward, your destiny, is in the present moment.
+ - We all have within us a center of stillness surrounded by silence.
+ - If a good person does you wrong, act as though you had not noticed it. They will make note of this and not remain in your debt long.
+ - Each morning we must hold out the chalice of our being to receive, to carry, and give back. It must be held out empty – for the past must only be reflected in its polish, its shape, its capacity.
+ - This accidental meeting of possibilities calls itself I. I ask: what am I doing here? And, at once, this I becomes unreal.
+ - Our work for peace must begin within the private world of each of us.
+ - At some moment I did answer “Yes” to someone or something. And from that hour on I was certain that existence is meaningful.
+ - To preserve the silence within – amid all the noise. To remain open and quiet, a moist humus in the fertile darkness where the rain falls and the grain ripens – no matter how many tramp across the parade ground in whirling dust under an arid sky.
+ - It is not we who seek the Way, but the Way which seeks us. That is why you are faithful to it, even while you stand waiting, so long as you are prepared, and act the moment you are confronted by its demands.
+ - Only one feat is possible: not to have run away.
+ - Be grateful as your deeds become less and less associated with your name, as your feet ever more lightly tread the earth.
+ - Fatigue dulls the pain, but awakes enticing thoughts of death. So! that is the way in which you are tempted to overcome your loneliness – by making the ultimate escape from life. – No! It may be that death is to be your ultimate gift to life: it must not be an act of treachery against it.
+ - Like the bee, we distill poison from honey for our self-defense – what happens to the bee if it uses its sting is well known.
+ - Here man is no longer the center of the world, only a witness, but a witness who is also a partner in the silent life of Nature, bound by secret affinities of the trees.
+ - Life yields only to the conqueror. Never accept what can be gained by giving in. You will be living off stolen goods, and your muscles will atrophy.
+ - The pursuit of peace and progress cannot end in a few years in either victory or defeat. The pursuit of peace and progress, with its trials and its errors, its successes and its setbacks, can never be relaxed and never abandoned.
+ - What you must dare: is to be yourself.
+ - It is more important to understand the ground of your own behavior than to understand the motives of another.
+ - In the presence of God, nothing stands between Him and us – we are forgiven. But we cannot feel His presence if anything is allowed to stand between ourselves and others.
+ - The breaking wave and the muscle as it contracts obey the same law. Delicate line gathers the body’s total strength in a bold balance. Shall my soul meet so severe a curve, journeying on its way to form?
+ - Our work for peace must begin within the private world of each of us. To build for man a world without fear, we must be without fear. To build a world of justice, we must be just.
+ - The devils enter uninvited when the house stands empty. For other kinds of guests, you have to first open the door.
+ - The concept of loyalty is distorted when it is understood to mean blind acceptance. It is correctly interpreted when it is assumed to cover honest criticism.
+ - On the bookshelf of life, God is a useful work of reference, always at hand but seldom consulted.
+ - Everything will be all right – you know when? When people, just people, stop thinking of the United Nations as a weird Picasso abstraction and see it as a drawing they made themselves.
+ - We’ve got to learn hard things in our lifetime, but it’s love that gives you the strength. It’s being nice to people and having a lot of fun and laughing harder than anything, hopefully every single day of your life.
+ - It was when Lucifer first congratulated himself upon his angelic behavior that he became the tool of evil.
+ - It is not the repeated mistakes, the long succession of petty betrayals – though, God knows, they would give cause enough for anxiety and self-contempt – but the huge elementary mistake, the betrayal of that within me which is greater than I – in complacent adjustment to alien demands.
+ - Friendship needs no words – it is solitude delivered from the anguish of loneliness.
+ - The truth is so simple that it is regarded as a pretentious banality.
+ - Unless there is a spiritual renaissance, the world will know no peace.
+ - Humility is just as much the opposite of self-abasement as it is of self-exaltation.
+ - God does not die on the day when we cease to believe in a personal deity, but we die on the day when our lives cease to be illumined by the steady radiance, renewed daily, of a wonder, the source of which is beyond all reason.
+ - Forgiving is forgetting, in spite of remembering.
+ - Doffing the ego’s safe glory, he finds his naked reality.
+ - Is life so wretched? Isn’t it rather your hands which are too small, your vision which is muddled? You are the one who must grow up.
+ - The ‘great’ commitment is so much easier than the ordinary everyday one.
+ - He is one of those who has had the wilderness for a pillow, and called a star his brother. Alone. But loneliness can be a communion.
+ - The dizziness in the face of les espaces infinis – only overcome if we dare to gaze into them without any protection. And accept them as the reality before which we must justify our existence. For this is the truth we must reach to live, that everything is and we just in it.
+ - I am the vessel. The draft is God’s. And God is the thirsty one.
+ - Beneath the hush a whisper from long ago, promising peace of mind and a burden shared. No peace which is not peace for all, no rest until all has been fulfilled.
+ - Maturity – among other things, the unclouded happiness of the child at play, who takes it for granted that he is at one with his play-mates.
+ - Your position never gives you the right to command. It only imposes on you the duty of so living your life that others can receive your orders without being humiliated.
+ - Humility before the flower at the timber line is the gate which gives access to the path up the open fell.
+ - The big, shoe-thumping fellow continues as a dark thunderhead to threaten all unrepentant non-Communists with hail and thunder.
+ - I have only my own burden to bear.
+ - I believe that we should die with decency so that at least decency will survive.
+ - Only he deserves power who every day justifies it.
+ - Destiny is something not to be desired and not to be avoided.
+ - Destiny is something not be to desired and not to be avoided. a mystery not contrary to reason, for it implies that the world, and the course of human history, have meaning.
+ - It is easy to be nice, even to an enemy – from lack of character.
+ - You wake from dreams of doom and – for a moment – you know: beyond all the noise and the gestures, the only real thing, love’s calm unwavering flame in the half-light of an early dawn.
+ - Those who invoke history will certainly be heard by history. And they will have to accept its verdict.
+ - Time always seems long to the child who is waiting – for Christmas, for next summer, for becoming a grownup: long also when he surrenders his whole soul to each moment of a happy day.
+ - The myths have always condemned those who ‘looked back.’ Condemned them, whatever the paradise may have been which they were leaving. Hence this shadow over each departure from your decision.
+ - The only kind of dignity which is genuine is that which is not diminished by the indifference of others.
+ - In the last analysis, it is our conception of death which decides our answers to all the questions that life puts to us.
+ - I never discuss discussions.
+ - Setbacks in trying to realize the ideal do not prove that the ideal is at fault.
+ - A task becomes a duty from the moment you suspect it to be an essential part of that integrity which alone entitles a man to assume responsibility.
+ - To reach perfection, we must all pass, one by one, through the death of self-effacement.
+ - Isn’t the fulfillment of our duty towards our neighbor an expression of deepest desire?
+ - Praise those of your critics for whom nothing is up to standard.
+ - Your body must become familiar with its death – in all its possible forms and degrees – as a self-evident, imminent, and emotionally neutral step on the way towards the goal you have found worthy of your life.
+ - Acts of violence – Whether on a large or a small scale, the bitter paradox: the meaningfulness of death – and the meaninglessness of killing.
+ - If even dying is to be made a social function, then, grant me the favor of sneaking out on tiptoe without disturbing the party.
+ - When the sense of the earth unites with the sense of one’s body, one becomes earth of the earth, a plant among plants, an animal born from the soil and fertilizing it. In this union, the body is confirmed in its pantheism.
+ - There is a point at which everything becomes simple and there is no longer any question of choice, because all you have staked will be lost if you look back. Life’s point of no return.
+ - The Assembly has witnessed over the last weeks how historical truth is established; once an allegation has been repeated a few times, it is no longer an allegation, it is an established fact, even if no evidence has been brought out in order to support it.
+ - The life of simplicity is simple, but it opens to us a book in which we never get beyond the first syllable.
+ - Creative people have to be fed from the divine source.
+ - The more faithfully you listen to the voices within you, the better you will hear what is sounding outside.
+ - Life only demands from you the strength that you possess. Only one feat is possible; not to run away.
+ - Friendship needs no words.
+ - Never, for the sake of peace and quiet, deny your own experience or convictions.
+ - Your cravings as a human animal do not become a prayer just because it is God whom you ask to attend to them.
+ - Time goes by: reputation increases, ability declines.
+
+99 quotes

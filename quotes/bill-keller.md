@@ -1,0 +1,38 @@
+ - I’m a Capricorn, actually.
+ - I make a joke that I’m the Internet curmudgeon, but ‘wary’ is a good way to put it.
+ - Every technology, including the printing press, comes at some price.
+ - My view of social media is that it is a set of tools, not a religion.
+ - The most obvious drawback of social media is that they are aggressive distractions.
+ - One of the reasons that I’m a lurker on Twitter is that every time I tweet an idea, I feel like I’m delivering something to the competition that I ought to be giving to a reporter here.
+ - Liberation movements – operating surreptitiously and conspiratorially – thrive on discipline and suspicion, and punish deviation or dissent.
+ - Anyone with an Internet service provider can be a pundit or whatever they want.
+ - Liberation movements – prizing ends over means – are not always particular about their friends or scrupulous about their transactions.
+ - My dad was an engineer, and he became the CEO of Chevron. His was an engineer’s mind-set: Everything’s kind of a problem how do you approach the problem?
+ - Whether or not Twitter makes you stupid, it certainly makes some smart people sound stupid.
+ - The curse of a journalist is that he always has more questions than answers.
+ - Julian Assange, the WikiLeaks founder, has on several occasions talked about transparency as an absolute principle. I don’t personally believe that.
+ - Choosing my favorite moment in journalism would be like picking a favorite among my children. I can’t pick one favorite.
+ - Everything is accessible to everyone all the time, and I think there are wondrous things to treasure with what the Internet has made available to journalists. But I think it’s also had some effects that are less pleasant. It has chipped away at a sense of privacy and secrecy.
+ - I don’t think anyone at Fox believes they are producing even-handed, impartial coverage.
+ - Buying an aggregator and calling it a content play is a little like a company’s announcing plans to improve its cash position by hiring a counterfeiter.
+ - I think there’s been a decline in the public’s access to what’s being done with their tax dollars, what’s being done in their name. I hope that that will be repaired.
+ - The Democrats generally recoil from the subject of entitlements.
+ - I don’t have dating tips.
+ - I don’t think fairness means that you give equal time to every point of view no matter how marginal. You weigh the sides, you do some truth-testing, you apply judgment to them.
+ - I’m convinced that the most important division in human affairs is probably not the one between left and right, liberal and conservative. It’s the one between zealotry and understanding, between absolute conviction and compromise, between preachers and politicians.
+ - My feeling about the Internet or anything else is that the more it tends to become a cult, the more I want to call it into question.
+ - I may be the old-media id, but I think I may be entitled to some credit for being a new-media pioneer.
+ - Beating up on the so-called elite media has a nice populist ring to it.
+ - I do care if religious doctrine becomes an excuse to exclude my fellow citizens from the rights and protections our country promises.
+ - A vote for Mitt Romney is a vote for Satan.
+ - I think there’s a misconception that I’m opposed to social media.
+ - One of the most important disciplines in journalism is to challenge your working premises.
+ - It’s a considerable source of tragedy in the world that people stay in powerful jobs long past the point where they’re a spent force.
+ - Twitter and Facebook are brilliant- tools, the journalistic uses of which are still being plumbed. They are great for disseminating interesting material. They are useful for gathering information, including from places that are inaccessible.
+ - I think Twitter is a fabulous tool. Crowd-sourcing by Twitter is useful in getting early warnings.
+ - There is something decidedly faux about the camaraderie of Facebook, something illusory about the connectedness of Twitter.
+ - Being an editor has been a source of great satisfaction, but writing is the thing I truly love.
+ - You don’t want to go around willy-nilly suing news organizations. That’s probably self-defeating.
+ - The queen of aggregation is, of course, Arianna Huffington, who has discovered that if you take celebrity gossip, adorable kitten videos, posts from unpaid bloggers and news reports from other publications, array them on your Web site and add a left-wing soundtrack, millions of people will come.
+
+36 quotes

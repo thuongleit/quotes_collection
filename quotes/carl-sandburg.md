@@ -1,0 +1,223 @@
+ - Be careful with your words, once they are said, they can only be forgiven, not forgotten.
+ - I’m an idealist. I don’t know where I’m going, but I’m on my way.
+ - If the facts are against you, argue the law. If the law is against you, argue the facts. If the law and the facts are against you, pound the table and yell like hell.
+ - Nothing happens unless first we dream.
+ - Nearly all the best things that came to me in life have been unexpected, unplanned by me.
+ - There is an eagle in me that wants to soar, and there is a hippopotamus in me that wants to wallow in the mud.
+ - Time is the coin of your life. It is the only coin you have, and only you can determine how it will be spent. Be careful lest you let other people spend it for you.
+ - Let a joy keep you. Reach out your hands and take it when it runs by.
+ - When a nation goes down, or a society perishes, one condition may always be found; they forgot where they came from. They lost sight of what had brought them along.
+ - Money buys everything except love, personality, freedom, immortality, silence, peace.
+ - Beware of advice-even this.
+ - Look out how you use proud words. When you let proud words go, it is not easy to call them back. They wear long boots, hard boots; they walk off proud; they can’t hear you calling. Look out how you use proud words.
+ - To work hard, to live hard, to die hard, and then go to hell after all would be too damned hard.
+ - To be a good loser is to learn how to win.
+ - Poetry is an echo, asking a shadow to dance.
+ - A tree is best measured when it is down – and so it is with people.
+ - Not often in the story of mankind does a man arrive on earth who is both steel and velvet, who is as hard as rock and soft as drifting fog, who holds in his heart and mind the paradox of terrible storm and peace unspeakable and perfect.
+ - The single clenched fist lifted and ready, Or the open asking hand held out and waiting. Choose: For we meet by one or the other.
+ - Poetry is the journal of a sea animal living on land, wanting to fly in the air.
+ - A man may be born, but in order to be born he must first die, and in order to die he must first awake.
+ - The squeaky wheel gets the grease but the quacking duck gets shot.
+ - The greatest certainty in life is death. The greatest uncertainty is the time.
+ - The fog comes on little cat feet.
+ - Such a Big miracle in such a tiny baby. Big things often have small beginnings A baby is God’s opinion that life should go on.
+ - Poetry is a mystic, sensuous mathematics of fire, smoke-stacks, waffles, pansies, people, and purple sunsets.
+ - There is only one child in the world and the Child’s name is All Children.
+ - Come on, you Do you want to live forever?
+ - Sometime they’ll give a war and nobody will come.
+ - Drum on your drums, batter on your banjos, sob on the long cool winding saxophones. Go to it, O jazzmen.
+ - Love your neighbor as yourself; but don’t take down the fence.
+ - The secret of happiness is to admire without desiring.
+ - Anger is the most impotent of passions. It effects nothing it goes about, and hurts the one who is possessed by it more than the one against whom it is directed.
+ - Shame is the feeling you have when you agree with the woman who loves you that you are the man she thinks you are.
+ - Who am I, where have I been, and where am I going?
+ - Time is the coin of your life. You spend it. Do not allow others to spend it for you.
+ - Men of ideas vanish when freedom vanishes.
+ - God, let me remember all good losers.
+ - There is only one man in the world and his name is All Men. There is only one woman in the world and her name is All Women. There is only one child in the world and the child’s name is All Children.
+ - Ashes to ashes, dust to dust, if the women don’t get you then the whiskey must.
+ - Yesterday is done. Tomorrow never comes. Today is here. If you don’t know what to do, sit still and listen. You may hear something. Nobody knows.
+ - Slang is a language that rolls up its sleeves, spits on its hands and goes to work.
+ - There is an eagle in me that wants to soar...
+ - The moon is a friend for the lonesome to talk to.
+ - The past is a bucket of ashes.
+ - Let your heart look on white sea spray and be lonely. Love is a fool star. You and a ring of stars may mention my name and then forget me. Love is a fool star.
+ - Life is like an onion. You peel it off one layer at a time, and sometimes you weep.
+ - Our lives are like a candle in the wind.
+ - I am still studying verbs and the mystery of how they connect nouns. I am more suspicious of adjectives than at any other time in all my born days.
+ - Poetry is a fresh morning spider-web telling a story of moonlit hours of weaving and waiting during a night.
+ - Poetry is a type-font design for an alphabet of fun, hate, love, death.
+ - The machine yes the machine never wastes anybody’s time never watches the foreman never talks back.
+ - My name is Truth and I am the most elusive captive in the universe.
+ - Under the summer roses When the flagrant crimson Lurks in the dusk Of the wild red leaves, Love, with little hands, Comes and touches you With a thousand memories, And asks you Beautiful, unanswerable questions.
+ - I am the people the mob the crowd the mass. Do you know that all the great work of the world is done through me?
+ - In the night the cabbages catch at the moon, the leaves drip silver, the rows of cabbages are a series of little silver waterfalls in the moon.
+ - Alike and ever alike, we are on all continents in the need of love, food, clothing, work, speech, worship, sleep, games, dancing, fun. From tropics to arctics humanity live with these needs so alike, so inexorably alike.
+ - I won’t take my religion from any man who never works except with his mouth.
+ - And those who say, “I’ll try anything once,” often try nothing twice, three times, arriving late at the gate of dreams worth dying for.
+ - Poetry is the silence and speech between a wet struggling root of a flower and a sunlit blossom of that flower.
+ - Poetry is a theorem of a yellow-silk handkerchief knotted with riddles, sealed in a balloon tied to the tail of a kite flying in a white wind against a blue sky in spring.
+ - A baby is God’s opinion that life should go on.
+ - Where was I going? I puzzled and wondered about it til I actually enjoyed the puzzlement and wondering.
+ - I glory in this world of men and women, torn with troubles, yet living on to love and laugh through it all.
+ - Give me hunger, pain and want, Shut me out with shame and failure From your doors of gold and fame, Give me your shabbiest, weariest hunger! But leave me a little love.
+ - Poetry is a fossil rock-print of a fin and a wing, with an illegible oath between.
+ - Every blunder behind us is giving a cheer for us, and only for those who were willing to fail are the dangers and splendors of life.
+ - After the sunset on the prairie, there are only the stars.
+ - Now is the time. It is never too late to start something.
+ - I have become infected, now that I see how beautifully a book is coming out of all this.
+ - I can remember only a few of the strange and curious words now dead but living and spoken by the English people a thousand years ago.
+ - In these times you have to be an optimist to open your eyes when you awake in the morning.
+ - By night the skyscraper looms in the smoke and the stars and has a soul.
+ - Under the harvest moon, When the soft silver Drips shimmering Over the garden nights, Death, the gray mocker, Comes and whispers to you As a beautiful friend Who remembers.
+ - Time is a great teacher, Who can live without hope?
+ - The sea speaks a language polite people never repeat. It is a colossal scavenger slang and has no respect.
+ - Yesterday and tomorrow cross and mix on the skyline. The two are lost in a purple haze. One forgets, one waits.
+ - Poetry is a diary kept by a sea creature who lives on land and wishes he could fly.
+ - Poetry is a projection across silence of cadences arranged to break that silence with definite intentions of echoes, syllables, wave lengths.
+ - POETRY: A sliver of the moon lost in the belly of a golden frog.
+ - Valor is a gift. Those having it never know for sure whether they have it until the test comes.
+ - Strange things blow in through my window on the wings of the night wind and I don’t worry about my destiny.
+ - So I turn once more to those who sneer at this my city, and I give them back the sneer and say to them: Come and show me another city with lifted head singing so proud to be alive and coarse and strong and cunning.
+ - The woman named Tomorrow sits with a hairpin in her teeth and takes her time.
+ - Why does a hearse horse snicker, hauling a lawyer away?
+ - Come clean with a child heart Laugh as peaches in the summer wind Let rain on a house roof be a song Let the writing on your face be a smell of apple orchards on late June.
+ - Poetry is an art practiced with the terribly plastic material of human language.
+ - The drum in a dream pounds loud to the dreamer.
+ - We live in the time of the colossal upright oblong.
+ - Poetry is the report of a nuance between two moments, when people say, ‘Listen!’ and ‘Did you see it?’ ‘Did you hear it? What was it?’
+ - There is a music for lonely hearts nearly always. If the music dies down there is a silence. Almost the same as the movement of music. To know silence perfectly is to know music.
+ - Tongues wrangled dark at a man. He buttoned his overcoat and stood alone. In a snowstorm, red hollyberries, thoughts, he stood alone.
+ - Arithmetic is where numbers fly like pigeons in and out of your head.
+ - Poetry is a shuffling of boxes of illusions buckled with a strap of facts.
+ - Poetry is a section of river-fog and moving boat-lights, delivered between bridges and whistles, so one says, ‘Oh!’ and another, ‘How?’
+ - A politician should have three hats. One for throwing into the ring, one for talking through, and one for pulling rabbits out of if elected.
+ - People lie because they don’t remember clear what they saw. People lie because they can’t help making a story better than it was the way it happened.
+ - The shovel is the brother to the gun.
+ - Time is a sandpile we run our fingers in.
+ - I tell you the past is a bucket of ashes, so live not in your yesterdays, no just for tomorrow, but in the here and now. Keep moving and forget the post mortems; and remember, no one can get the jump on the future.
+ - Poetry is a packsack of invisible keepsakes.
+ - Poetry is a series of explanations of life, fading off into horizons too swift for explanations.
+ - Poetry is a tracing of the trajectories of a finite sound to the infinite points of its echoes.
+ - Poetry is a search for syllables to shoot at the barriers of the unknown and the unknowable.
+ - Poetry is an enumeration of birds, bees, babies, butterflies, bugs, bambinos, babayagas, and bipeds, beating their way up bewildering bastions.
+ - Pile the bodies high at Austerlitz and Waterloo. Shovel them under and let me work. I am the grass. I cover all.
+ - And all poets love dust and mist because all the last answers. Go running back to dust and mist.
+ - When I was writing pretty poor poetry, this girl with midnight black hair told me to go on.
+ - Hog butcher for the world, Tool maker, stacker of wheat, Player with railroads and the nation’s freight handler; Stormy, husky, brawling, City of big shoulders.
+ - Poetry is the harnessing of the paradox of earth cradling life and then entombing it.
+ - Corn wind in the fall, come off the black lands, come off the whisper of the silk hangers, the lap of the flat spear leaves.
+ - The impact of television on our culture is just indescribable.
+ - The peace of great books be for you, Stains of pressed clover leaves on pages, Bleach of the light of years held in leather.
+ - Poetry is the cipher key to the five mystic wishes packed in a hollow silver bullet fed to a flying fish.
+ - Enough small empty boxes thrown into a big empty box fill it full.
+ - Hope is an echo, hope ties itself yonder, yonder.
+ - Now I am here – now read me – give me a name.
+ - My room for books and study or for sitting and thinking about nothing in particular to see what would happen was at the end of a hall.
+ - I had taken a course in Ethics. I read a thick textbook, heard the class discussions and came out of it saying I hadn’t learned a thing I didn’t know before about morals and what is right or wrong in human conduct.
+ - Ordering a man to write a poem is like commanding a pregnant woman to give birth to a red-headed child.
+ - I make it clear why I write as I do and why other poets write as they do. After hundreds of experiments I decided to go my own way in style and see what would happen.
+ - There will be a rusty gun on the wall, sweetheart, The rifle grooves curling with flakes of rust. A spider will make a silver string nest in the darkest, warmest corner of it.
+ - We don’t have to think up a title till we get the doggone book written.
+ - Revolt and terror pay a price. Order and law have a cost.
+ - Poetry is a plan for a slit in the face of a bronze fountain goat and the path of fresh drinking water.
+ - Poetry is the arithmetic of the easiest way and the primrose path, matched up with foam-flanked horses, bloody knuckles, and bones, on the hard ways to the stars.
+ - An ambition is a little creeper that creeps and creeps in your heart night and day, singing a little song, “Come and find me, come and find me.”
+ - Poetry is a sequence of dots and dashes, spelling depths, crypts, cross-lights, and moon wisps.
+ - There is a warning love sends and the cost of it is never written till long afterward.
+ - Poetry is a sky dark with a wild-duck migration.
+ - My first stringed instrument was a cigar box banjo where I cut and turned the pegs and strung the wires myself.
+ - It was here we turned the coffee cups upside down. And your eyes and the moon swept the valley.
+ - I take you and pile high the memories. Death will break her claws on some I keep.
+ - There are dreams stronger than death. Men and women die holding these dreams.
+ - We read Robert Browning’s poetry. Here we needed no guidance from the professor: the poems themselves were enough.
+ - Somebody’s little girl- how easy it is to make a sob story over who she once was and who she now is.
+ - Always the path of American destiny has been into the unknown. Always there arose enough reserves of strength, balances of sanity, portions of wisdom to carry the nation through to a fresh start with ever-renewing vitality.
+ - There have been as many varieties of socialists as there are wild birds that fly in the woods and sometimes go up and on through the clouds.
+ - I am an idealist. I believe in everything – I am only looking for proofs.
+ - I’ll die propped up in bed trying to do a poem about America.
+ - You remember some bedrooms you have slept in. There are bedrooms you like to remember and others you would like to forget.
+ - Poetry is the opening and closing of a door, leaving those who look through to guess about what is seen during the moment.
+ - Who else speaks for the Family of Man? They are in tune and step with constellations of universal law.
+ - I never made a mistake in grammar but one in my life and as soon as I done it I seen it.
+ - Poetry is a mock of a cry at finding a million dollars and a mock of a laugh at losing it.
+ - In democracy both a deep reverence and a sense of the comic are requisite.
+ - A liar is a liar and lives on the lies he tells and dies in a life of lies.
+ - Poetry is statement of a series of equations, with numbers and symbols changing like the changes of mirrors, pools, skies, the only never-changing sign being the sign of infinity.
+ - Time is the coin of our live. We must take care how we spend it.
+ - There are some people who can receive a truth by no other way than to have their understanding shocked and insulted.
+ - It is the business of little minds to shrink.
+ - In the average newspaper there is not a complete suppression of stories that the sacred cows don’t want printed. But rather what happens is that the stories get printed with stresses, colorations and emphasis that favor the sacred cows.
+ - There was always the consolation that if I didn’t like what I wrote I could throw it away or burn it.
+ - You know being born is important to you. You know nothing else was ever so important to you.
+ - Poetry is an exhibit of one pendulum connecting with other and unseen pendulums inside and outside the one seen.
+ - I learned you can’t trust the judgment of good friends.
+ - Let the gentle bush dig its root deep and spread upward to split the boulder.
+ - Arithmetic is numbers you squeeze from your head to your hand to your pencil to your paper till you get the answer.
+ - Poetry is any page from a sketchbook of outlines of a doorknob with thumb-prints of dust, blood, dreams.
+ - I cried over beautiful things, knowing no beautiful thing lasts.
+ - I wrote poems in my corner of the Brooks Street station. I sent them to two editors who rejected them right off. I read those letters of rejection years later and I agreed with those editors.
+ - I was up day and night with Lincoln for years. I couldn’t have picked a better companion.
+ - The simple dignity of a child drinking a bowl of milk embodies the fascination of an ancient rite.
+ - There are people who want to be everywhere at once, and they get nowhere.
+ - Poetry is a puppet-show, where riders of skyrockets and divers of sea fathoms gossip about the sixth sense and the fourth dimension.
+ - Back of every mistaken venture and defeat is the laughter of wisdom, if you listen.
+ - There are men and women so lonely they believe God, too, is lonely.
+ - To never see a fool you lock yourself in your room and smash the looking-glass.
+ - All my life I have been trying to learn, to read, to see and hear, and to write. At sixty-five I began my first novel and after the five years, lacking a month, I took to finish it, I was still traveling, still a seeker.
+ - I have always felt that a woman has the right to treat the subject of her age with ambiguity until, perhaps, she passes into the realm of over ninety. Then it is better she be candid with herself and with the world.
+ - If I added to their pride of America, I am happy.
+ - The scholars and poets of an earlier time can be read only with a dictionary to help.
+ - We had two grand antique professors who had been teaching at Lombard since before I was born.
+ - One of the greatest necessities in America is to discover creative solitude.
+ - Poetry is a slipknot tightened around a time-beat of one thought, two thoughts, and a last interweaving thought there is not yet a number for.
+ - The sea is always the same: and yet the sea always changes.
+ - Tell no man anything, for no man listens Yet hold thy lips ready to speak.
+ - The people know what the land knows.
+ - Often I look back and see that I had been many kinds of a fool-and that I had been happy in being this or that kind of fool.
+ - A liar goes in fine clothes, a liar goes in rags, a liar is a liar, clothes or no clothes.
+ - The buffaloes are gone. And those who saw the buffaloes are gone.
+ - Lay me on an anvil, O God. Beat me and hammer me into a steel spike.
+ - The greatest cunning is to have none at all.
+ - Read the dictionary from A to Izzard today. Get a vocabulary. Brush up on your diction. See whether wisdom is just a lot of language.
+ - Poetry is a kinetic arrangement of static syllables.
+ - A book is never a masterpiece: it becomes one. Genius is the talent of a dead man.
+ - Whenever a people or an institution forget its hard beginnings, it is beginning to decay.
+ - The dead hold in their hands only what they have given away.
+ - Poetry is the synthesis of hyacinths and biscuits.
+ - Lips half-willing in a doorway. Lips half-singing at a window. Eyes half-dreaming in the walls. Feet half-dancing in a kitchen. Even the clocks half-yawn the hours And the farmers make half-answers.
+ - Poetry is the establishment of a metaphorical link between white butterfly-wings and the scraps of torn-up love-letters.
+ - And even now she beats her head against the bars in the same old way and wonders if there is a bigger place the railroads run to from Chicago where maybe there is romance and big things and real dreams that never go smash.
+ - I decided I would go to Chicago and try my luck as a writer after those eight months as a fireman.
+ - Poetry is a phantom script telling how rainbows are made and why they go away.
+ - Poetry is a dance music measuring buck-and-wing follies along with the gravest and stateliest dead-marches.
+ - I had been keeping an off eye on the advertising field, thinking I might become an idea man and a copywriter.
+ - There is no song to your singing.
+ - I stayed away from mathematics not so much because I knew it would be hard work as because of the amount of time I knew it would take, hours spent in a field where I was not a natural.
+ - I have in later years taken to Euclid, Whitehead, Bertrand Russell, in an elemental way.
+ - Poetry is the capture of a picture, a song, or a flair, in a deliberate prism of words.
+ - I doubt if you can have a truly wild party without liquor.
+ - What is there more of in the world than anything else? Ends.
+ - What else have I done nearly all my life than go hungry and go on singing?
+ - I couldn’t see myself filling some definite niche in what is called a career. This was all misty.
+ - Newspapers tell beforehand what is going to happen – maybe.
+ - Here is the difference between Dante, Milton, and me. They wrote about hell and never saw the place. I wrote about Chicago after looking the town over for years and years.
+ - Calling it off comes easy enough if you haven’t told the girl you are smitten with her.
+ - There are 10 men in me and I do not know or understand one of them.
+ - I have often wondered what it is an old building can do to you when you happen to know a little about things that went on long ago in that building.
+ - I knew I would read all kinds of books and try to get at what it is that makes good writers good. But I made no promises that I would write books a lot of people would like to read.
+ - Freedom is baffling: men having it often know not they have it till it is gone and they no longer have it.
+ - I am! I have come through! I belong!
+ - Rest is not a word of free people. Rest is a monarchical word.
+ - I fell in love, not deep, but I fell several times and then fell out.
+ - All my life I have been trying to learn to read, to see and hear, and to write.
+ - Arithmetic is where the answer is right and everything is nice and you can look out of the window and see the blue sky – or the answer is wrong and you have to start over and try again and see how it comes out this time.
+ - I remember in my early 20s when I felt I couldn’t live past 30. I was learning how to write. I had a lot of hard work ahead of me.
+ - I took to wearing a black tie known as the Ascot, with long drooping ends. I had seen pictures of painters, sculptors, poets, wearing this style of tie.
+ - I’ve written some poetry I don’t understand myself.
+ - The more rhymethere isin poetry the more dangerof its tricking the writer into something other than the urge in the beginning.
+ - An expert is a damn fool a long way from home.
+ - Never will a time come when the most marvelous recent invention is as marvelous as a newborn child.
+
+221 quotes

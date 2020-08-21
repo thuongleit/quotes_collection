@@ -1,0 +1,66 @@
+ - You need to surround yourself with quality human beings that are intelligent and have a vision.
+ - I have balls the size of grapefruits and come this Sunday, you’ll be spitting out the seeds.
+ - I got balls the size of grapefruits!
+ - Anything can happen in the WWF!
+ - I think my idea of retirement might be to one day work a 40-hour week.
+ - I’m not afraid of failing. I don’t like to fail. I hate to fail. But I’m not afraid of it.
+ - You can rise above it. This country gives you opportunity if you want to take it, so don’t blame your environment. I look down on people who use their environment as a crutch.
+ - From a person standpoint, the old expression of what doesn’t kill you makes you stronger is somewhat true.
+ - I don’t know what drives me, I don’t have a clue, but I’m driven more today than I ever have been.
+ - If you stop building stars, which we never do, you wouldn’t be in business.
+ - If I were someone named Mr. Ass, I’d be really worried about doing time.
+ - I guess maybe another gift I have is a great work ethic.
+ - The boyhood dream has come true for Shawn Michaels.
+ - That’s right, you and God versus me, Vincent Kennedy McMahon, and the product of my semen, my son Shane!
+ - I’m your genetic jackhammer!
+ - In the real world of competition, the players want to compete and they want to compete at the very highest level.
+ - I don’t give a damn what the fans think cause, quite frankly, I know what the fans want better than they do.
+ - I’m Vince McMahon, dammit, let’s hear it!
+ - The chances of you winning are the same as the chances of HELL freezing over.
+ - If I like you, I’m going to tell you. I’m a hugger, even with men: I’m just very deep.
+ - I came, I saw, and I KICKED Stone Cold’s ASS!
+ - What’s good in the hood?
+ - It was me, Austin. It was me all along, Austin!
+ - I don’t mind paying people more for something if we’re getting more. But just to change a deal because you’re greedy and you want more? No. I’m not gonna go along with that.
+ - I don’t like to sleep. I’m missing something when I’m sleeping.
+ - You had some unexpected help. You had help from God! Essentially, it became a handicap match! Me vs you and God!
+ - Pro wrestling is what my dad did.
+ - Steve, it’s OK. I know Angle is a dork, but he’s a dangerous dork, our dork and your backup dork!
+ - The biggest thrill in the world is entertaining the public, there is no bigger thrill than that.
+ - We’re going to be treated very poorly, I think that goes with the territory, and you have to get over it, get beyond it and know who you are among your peers and especially among your family when you look in the mirror.
+ - If Stone Cold was to become champion, as of now, that would be a public-relations corporate nightmare.
+ - I understand the common man because I understand me in that regard at least.
+ - I’m not too good at lying still in the sun.
+ - We love our fans, so there’s nothing we wouldn’t do for them, and we go directly to t hem.
+ - But because our organization has grown so much and in so many different ways, the delegation process places responsibility and authority on the shoulders of people you can watch grow and watch the way they treat others.
+ - I’m a guy who gets more out of life than some people – more out of one big breath of fresh air than most people get from breathing in and out for a lifetime.
+ - I have to do something with my mind, or I’ll get in trouble.
+ - Regardless of how well a studio is run, it’s only as good as the product it produces.
+ - I do think the standards of the media have dropped to an all-time low in terms of credibility.
+ - Thou art relieved of thy duties!
+ - One of the problems with the Internet is that a lot of times it is inaccurate.
+ - I assaulted Stone Cold Steve Austin and got away with it! It was indeed a very special night for me...
+ - The next time you drop my jacket, I’ll drop you!
+ - I believe that given the audience attention level, we could do an even more compelling 90 minutes.
+ - I think there are certain business matters which we must now conduct differently than we used to.
+ - We are Hollywood. We’re entertainment, and that’s what the World Wrestling Federation is all about.
+ - The standards are being lowered, not just on the Internet, but in all of news and media.
+ - I would dare say that most anyone in public life, if they stay in public long enough, is not treated fairly.
+ - I’m a real common sense guy who caught a lot of good breaks and who has been very, very fortunate.
+ - The next thing you’re going to tell me is Daniel Bryan is the United States Champion.
+ - Giving it to the audience is probably the easiest thing. Finding out what they truly want is probably the most difficult.
+ - Shawn Michaels – the greatest WWE champion of all time!
+ - I’m excited about it, thrilled with the success thus far.
+ - In Europe we could do it, if we fly as soon as the event is over.
+ - When I’m on vacation here in the States, I can do all kinds of stuff; I can train and keep busy.
+ - Better than that orange crap you wear!
+ - So, I get a kick out of working with the media.
+ - It’s difficult to do that internally, because you’re flying five, six hours.
+ - We do have our finger on the pulse of the marketplace, if for no other reasons than having all these live events and listening to our audience all the time.
+ - Be nice to me or you won’t get a future XFL franchise.
+ - The Rock will always come back to us.
+ - As far as sustaining our popularity, I believe we can.
+ - The key, of course, is to stay away from the losing years.
+ - That’s Right! I Own the WCW!
+
+64 quotes

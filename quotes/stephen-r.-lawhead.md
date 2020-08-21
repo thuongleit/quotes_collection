@@ -1,0 +1,38 @@
+ - Alea iacta est. The die has been cast.
+ - See here, if a simple act of kindness or generosity, such as buying a loaf of bread for some poor working women, can mean that wholesale death and destruction will be avoided why, a man would be a monster who had it in his power to alleviate all that suffering yet stood by and did nothing.
+ - Do not think it impossible just because it has never happened. – Friar Tuck.
+ - Three things cannot be called back: the arrow when it speeds from the bow, the milk when the churn is upturned, the word when it leaps from the tongue.
+ - Unbelievers enjoy the security of their unbelief; there is great confidence in ignorance.
+ - Do not borrow tomorrow’s troubles today.
+ - Perhaps it is how we are made; perhaps words of truth reach us best through the heart, and stories and songs are the language of the heart.
+ - We are closest to Christ when sharing the world’s misery. Think you Jesus came to remove our pains? Wherever did you get that notion? The Lord came, not to remove our suffering, but to show us the way through it to the glory beyond. We can overcome our travails. That is the promise of the cross.
+ - To see evil and call it good, mocks God. Worse, it makes goodness meaningless. A word without meaning is an abomination, for when the word passes beyond understanding the very thing the word stands for passes out of the world and cannot be recalled.
+ - I will weep no more for the lost, asleep in their water graves.
+ - They are young and life has no limits. Nothing is impossible, nothing beyond doing or knowing. The world is theirs and everything in it.
+ - Life is a school of the spirit.
+ - Time is the central mystery of our existence. It confines and defines us in many ways.
+ - Apart from pleasure, beauty also kindles imagination, hope and encouragement. If beauty ceased to exist, we would, in a very real sense, cease to exist – for we would be no longer who we are.
+ - Words are worth little when the heart refuses to hear. Therefore, judge us by our works.
+ - Knowledge is a burden – once taken up, it can never be discarded.
+ - Call me Silidons, for such I am.
+ - Death wears many faces, but it’s stench is always the same.
+ - To friends! Life belongs to those who love, and where love reigns is man truly king!
+ - Early man recognised these lines of force and marked them out on the landscape with, well, any old thing, really standing stones, ditches, mounds, tumps, sacred wells, and that sort of thing. And, later on, with churches, market crosses, crossroads, and whatnot.
+ - Who upholds the gorsedd if not You? Who counts the ages of the world if not You? Who commands the Wheel of Heaven if not You? Who quickens life in the womb if not You? Therefore, God of All Virtue and Power, sain us and shield us with Your Swift Sure Hand.
+ - Contrary to what many may think, immortality is not a fairy tale invented to compensate for an unhappy life.
+ - Jump blind and you might find yourself on the rim of a raging volcano, or smack in the middle of a battlefield during a savage war, or on a swiftly tilting ice floe in a tempest-tossed sea.
+ - A ley line is what might be called a field of force, a trail of telluric energy. There are hundreds of them, perhaps thousands, all over Britain, and they’ve been around since the Stone Age.
+ - Humility, if it comes at all, almost always comes too late.
+ - I tell you the truth, a man may not make himself king; only the blessing of him who holds the kingship can elevate a man to that high place. For sovereignty is a sacred trust that may not be bartered or sold; still less may it be stolen or taken by force.
+ - You see, this universe we inhabit is made up of billions of galaxies literally beyond counting and this is only one universe.
+ - Truth is a constant delight to those that love her; such beauty holds no power to offend.
+ - When heaven joins the battle against you, who could stand?
+ - If thou wouldst seek justice, thyself must be just.
+ - None of us ever knows what impact we have on the world around us.
+ - The path is revealed in the treading.
+ - People did not go jumping from one place to another with nothing in between. It simply did not happen.
+ - The air crackled with the presage of lightning, and a heavy mist descended around them.
+ - It had long been an ambition to find the line of force that might lead to the Holy Land in the time of Christ.
+ - We in our present generation stand on the cusp of a new and glorious dawn when mastery of these energies lies fully within our grasp as secret yields to inquiry, which yields to experimentation, which leads to verification and duplication, which, in the final course, leads to knowledge.
+
+36 quotes

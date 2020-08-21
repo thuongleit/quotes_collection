@@ -1,0 +1,502 @@
+ - If you want to be happy, be.
+ - The two most powerful warriors are patience and time.
+ - Everyone thinks of changing the world, but no one thinks of changing himself.
+ - In the name of God, stop a moment, cease your work, look around you.
+ - When you love someone, you love the person as they are, and not as you'd like them to be.
+ - We can know only that we know nothing. And that is the highest degree of human wisdom.
+ - The strongest of all warriors are these two – Time and Patience.
+ - We are asleep until we fall in love.
+ - Wrong does not cease to be wrong because the majority share in it.
+ - If you look for perfection, you'll never be content.
+ - Love is the only way to rescue humanity from all ills.
+ - Respect was invented to cover the empty place where love should be.
+ - Boredom: the desire for desires.
+ - The sole meaning of life is to serve humanity.
+ - Happy people have no history.
+ - Music is the shorthand of emotion.
+ - What counts in making a happy marriage is not so much how compatible you are but how you deal with incompatibility.
+ - A man is like a fraction whose numerator is what he is and whose denominator is what he thinks of himself. The larger the denominator, the smaller the fraction.
+ - If you’re not enjoying your work, you should either change your attitude, or change your job.
+ - He stepped down, trying not to look long at her, as if she were the sun, yet he saw her, like the sun, even without looking.
+ - It's hard to love a woman and do anything.
+ - Patience is waiting. Not passively waiting. That is laziness. But to keep going when the going is hard and slow – that is patience. The two most powerful warriors are patience and time.
+ - There are no conditions to which a person cannot grow accustomed, especially if he sees that everyone around him lives in the same way.
+ - If we admit that human life can be ruled by reason, then all possibility of life is destroyed.
+ - Read less, study less, but think more.
+ - There is only one time that is important – NOW! It is the most important time because it is the only time hat we have any power.
+ - The key to success in life is using the good thoughts of wise people.
+ - Vengeance is mine; I will repay.
+ - Everything comes in time to him who knows how to wait.
+ - All great literature is one of two stories; a man goes on a journey or a stranger comes to town.
+ - An arrogant person considers himself perfect. This is the chief harm of arrogance. It interferes with a person’s main task in life – becoming a better person.
+ - There is something in the human spirit that will survive and prevail, there is a tiny and brilliant light burning in the heart of man that will not go out no matter how dark the world becomes.
+ - A man can live and be healthy without killing animals for food; therefore, if he eats meat, he participates in taking animal life merely for the sake of his appetite.
+ - It is not enough to be a hardworking person. Think: what do you work at?
+ - Many people have ideas on how others should change; few people have ideas on how they should change.
+ - It is amazing how complete is the delusion that beauty is goodness.
+ - The most important time is Now.
+ - Life is fragile and absurd.
+ - The only purpose of education is freedom; the only method is experience.
+ - As long as there are slaughter houses there will always be battlefields.
+ - Truth, like gold, is to be obtained not by its growth, but by washing away from it all that is not gold.
+ - Let us forgive each other – only then will we live in peace.
+ - Every lie is a poison; there are no harmless lies. Only the truth is safe. Only the truth gives me consolation – it is the one unbreakable diamond.
+ - In the midst of winter, I find within me the invisible summer...
+ - Upon meeting, you’re judged by your clothes, upon parting you’re judged by your wits.
+ - Each person’s task in life is to become an increasingly better person.
+ - When the suffering of another creature causes you to feel pain, do not submit to the initial desire to flee from the suffering one, but on the contrary, come closer, as close as you can to her who suffers, and try to help her.
+ - For man to be able to live he must either not see the infinite, or have such an explanation of the meaning of life as will connect the finite with the infinite.
+ - Perfection is impossible without humility. Why should I strive for perfection, if I am already good enough?
+ - To abolish war it is necessary to abolish patriotism, and to abolish patriotism it is necessary first to understand that it is an evil. Tell people that patriotism is bad and most will reply, ‘Yes, bad patriotism is bad, but mine is good patriotism.’
+ - Just as one candle lights another and can light thousands of other candles, so one heart illuminates another heart and can illuminate thousands of other hearts.
+ - Knowledge is real knowledge only when it is acquired by the efforts of your intellect, not by memory.
+ - Only people who are capable of loving strongly can also suffer great sorrow, but this same necessity of loving serves to counteract their grief and heals them.
+ - The legislation of Quran will spread all over the world, because it agrees with the mind, logic and wisdom.
+ - Man discovers truth by reason only, not by faith.
+ - Happiness is an allegory, unhappiness a story.
+ - Love is God, and to die means that I, a particle of love, shall return to the general and eternal source.
+ - It seldom happens that a man changes his life through his habitual reasoning. No matter how fully he may sense the new plans and aims revealed to him by reason, he continues to plod along in old paths until his life becomes frustrating and unbearable – he finally makes the change only when his usual life can no longer be tolerated.
+ - Art lifts man from his personal life into the universal life.
+ - The most important knowledge is that which guides the way you lead your life.
+ - But the law of loving others could not be discovered by reason, because it is unreasonable.
+ - Our whole life is taken up with anxiety for personal security, with preparations for living, so that we really never live at all.
+ - Happiness consists of living each day as if it were the first day of your honeymoon and the last day of your vacation.
+ - Faith is the force of life.
+ - It is easier to produce ten volumes of philosophical writings than to put one principle into practice.
+ - Art is not a pleasure, a solace, or an amusement; art is a great matter. Art is an organ of human life, transmitting man’s reasonable perception into feeling.
+ - Life could be limitless joy, if we would only take it for what it is, in the way it is given to us.
+ - True life is lived when tiny changes occur.
+ - Effort is not a means to lead us to happiness. Effort itself is happiness.
+ - God is the same everywhere.
+ - All happy families resemble one another, each unhappy family is unhappy in its own way.
+ - Music is the shorthand of emotion. Emotions, which let themselves be described in words with such difficulty, are directly conveyed to man in music, and in that is its power and significance.
+ - The kinder and more thoughtful a person is, the more kindness they can find in other people.
+ - The most mentally deranged people are certainly those who see in others indications of insanity they do not notice in themselves.
+ - If you make it a habit not to blame others, you will feel the growth of the ability to love in your soul, and you will see the growth of goodness in your life.
+ - Am I mad, to see what others do not see, or are they mad who are responsible for all that I am seeing?
+ - There is only one way to put an end to evil, and that is to do good for evil.
+ - What is important is not the length of life, but the depth of life. What is important is not to make life longer, but to take your soul out of time, as every sublime act does.
+ - Government is an association of men who do violence to the rest of us.
+ - He felt now that he was not simply close to her, but that he did not know where he ended and she began.
+ - But I’m glad you’ll see me as I am. Above all, I wouldn’t want people to think that I want to prove anything. I don’t want to prove anything, I just want to live; to cause no evil to anyone but myself. I have that right, haven’t I?
+ - In all history there is no war which was not hatched by the governments, the governments alone, independent of the interests of the people, to whom war is always pernicious even when successful.
+ - History would be an excellent thing if only it were true.
+ - God cannot be understood by logical reasoning but only by submission.
+ - The goal of our life should not be to find joy in marriage, but to bring more love and truth into the world.
+ - To say that you can love one person all your life is just like saying that one candle will continue burning as long as you live.
+ - The hero of my tale, whom I love with all the power of my soul, whom I have tried to portray in all his beauty, who has been, is, and will be beautiful, is Truth.
+ - My principal sin is doubt. I doubt everything, and am in doubt most of the time.
+ - Here I am alive, and it’s not my fault, so I have to try and get by as best I can without hurting anybody until death takes over.
+ - I sit on a man’s back, choking him and making him carry me, and yet assure myself and others that I am very sorry for him and wish to ease his lot by all possible means – except by getting off his back.
+ - He never chooses an opinion; he just wears whatever happens to be in style.
+ - The sole meaning of life is to serve humanity by contributing to the establishment of the kingdom of God, which can only be done by the recognition and profession of the truth by every man.
+ - I have now understood that though it seems to men that they live by care for themselves, in truth it is love alone by which they live. He who has love, is in God, and God is in him, for God is love.
+ - It’s not given to people to judge what’s right or wrong. People have eternally been mistaken and will be mistaken, and in nothing more than in what they consider right and wrong.
+ - Nietzsche was stupid and abnormal.
+ - If everyone fought for their own convictions there would be no war.
+ - Kings are the slaves of history.
+ - One can live magnificently in this world if one knows how to work and how to love.
+ - Art is not a handicraft, it is the transmission of feeling the artist has experienced.
+ - Art is a microscope which the artist fixes on the secrets of his soul, and shows to people these secrets which are common to all.
+ - The highest wisdom has but one science – the science of the whole – the science explaining the whole creation and man’s place in it.
+ - One of the first conditions of happiness is that the link between Man and Nature shall not be broken.
+ - A holy spirit lives within you.
+ - Seize the moments of happiness, love and be loved! That is the only reality in the world, all else is folly.
+ - The only absolute knowledge attainable by man is that life is meaningless.
+ - Act as if you are, and you will become such.
+ - The kinder and more intelligent a person is, the more kindness he can find in other people. Kindness enriches our life; with kindness mysterious things become clear, difficult things become easy and dull things become cheerful.
+ - Since corrupt people unite amongst themselves to constitute a force, then honest people must do the same.
+ - It is not beauty that endears, it’s love that makes us see beauty.
+ - To sin is a human business, to justify sins is a devilish business.
+ - Love is life. All, everything that I understand, I understand only because I love. Everything is, everything exists, only because I love. Everything is united by it alone. Love is God, and to die means that I, a particle of love, shall return to the general and eternal source.
+ - If, then, I were asked for the most important advice I could give, that which I considered to be the most useful to the men of our century, I should simply say: in the name of God, stop a moment, cease your work, look around you.
+ - All, everything that I understand, I understand only because I love.
+ - Art is the uniting of the subjective with the objective, of nature with reason, of the unconscious with the conscious, and therefore art is the highest means of knowledge.
+ - The more we live by our intellect, the less we understand the meaning of life.
+ - Perhaps it’s because I appreciate all I have so much that I don’t worry about what I haven’t got.
+ - All art has this characteristic-it unites people.
+ - Spring is the time of plans and projects.
+ - Happiness is in your ability to love others.
+ - Freethinkers are those who are willing to use their minds without prejudice and without fearing to understand things that clash with their own customs, privileges, or beliefs. This state of mind is not common, but it is essential for right thinking...
+ - I wanted movement and not a calm course of existence. I wanted excitement and danger and the chance to sacrifice myself for my love.
+ - He in his madness prays for storms, and dreams that storms will bring him peace.
+ - Music is love in search of a voice.
+ - Happiness does not depend on outward things, but on the way we see them.
+ - Human science fragments everything in order to understand it, kills everything in order to examine it.
+ - The whole world is divided for me into two parts: one is she, and there is all happiness, hope, light; the other is where she is not, and there is dejection and darkness...
+ - For a few seconds they looked silently into each other’s eyes, and the distant and impossible suddenly became near, possible, and inevitable.
+ - Men need only trust in Christ’s teaching and obey it, and there will be peace on earth.
+ - Without knowing what I am and why I am here, life is impossible.
+ - If you do not know your place in the world and the meaning of your life, you should know there is something to blame; and it is not the social system, or your intellect, but the way in which you have directed your intellect.
+ - Music makes me forget myself, my true condition, it carries me off into another state of being, one that isn’t my own.
+ - Wealth brings a heavy purse; poverty, a light spirit.
+ - Rummaging in our souls, we often dig up something that ought to have lain there unnoticed.
+ - God knows, but He’s waiting.
+ - There is no greatness where there is no simplicity, goodness and truth.
+ - And where love ends, hate begins.
+ - Ivan Ilych’s life had been most simple and most ordinary and therefore most terrible.
+ - And the light by which she had read the book filled with troubles, falsehoods, sorrow, and evil, flared up more brightly than ever before, lighted up for her all that had been in darkness, flickered, began to grow dim, and was quenched forever.
+ - I love her not with my mind or my imagination, but with my whole being. Loving her I feel myself to be an integral part of all God’s joyous world.
+ - Very often, all the activity of the human mind is directed not in revealing the truth, but in hiding the truth.
+ - From the child of five to myself is but a step. But from the newborn baby to the child of five is an appalling distance.
+ - Go take the mother’s soul, and learn three truths: Learn What dwells in man, What is not given to man, and What men live by. When thou hast learnt these things, thou shalt return to heaven.
+ - Pierre was right when he said that one must believe in the possibility of happiness in order to be happy, and I now believe in it. Let the dead bury the dead, but while I’m alive, I must live and be happy.
+ - Anything is better than lies and deceit!
+ - Happiness is pleasure without regret.
+ - Grow spiritually and help others to do so. It is the meaning of life.
+ - It’s all God’s will: you can die in your sleep, and God can spare you in battle.
+ - We lost because we told ourselves we lost.
+ - All governments are in equal measure good and evil. The best ideal is anarchy.
+ - Patriotism is a survival from barbarous times which must not only be evoked and educated but which must be eradicated by all means – by preaching, persuasion, contempt and ridicule.
+ - My piece of bread only belongs to me when I know that everyone else has a share, and that no one starves while I eat.
+ - Joy can only be real if people look upon their life as a service and have a definite object in life outside themselves and their personal happiness.
+ - It is a rude feeling, because it is natural only to people standing on the lowest level of morality, and expecting from other nations such outrages as they themselves are ready to inflict.
+ - In order to get power and retain it, it is necessary to love power; but love of power is not connected with goodness but with qualities that are the opposite of goodness, such as pride, cunning and cruelty.
+ - War on the other hand is such a terrible thing, that no man, especially a Christian man, has the right to assume the responsibility of starting it.
+ - Why should I live? Why should I do anything? Is there in life any purpose which the inevitable death that awaits me does not undo and destroy?
+ - Never did Christ utter a single word attesting to a personal resurrection and a life beyond the grave.
+ - All the variety, all the charm, all the beauty of life is made up of light and shadow.
+ - Until you do what you believe in, you don’t know whether you believe it or not.
+ - Woman is generally so bad that the difference between a good and a bad woman scarcely exists.
+ - The essence of all slavery consists in taking the product of another’s labor by force. It is immaterial whether this force be founded upon ownership of the slave or ownership of the money that he must get to live.
+ - The most important person is the one you are with in this moment.
+ - All the true heroes of history will be forgotten and all the villains will be remembered as heroes.
+ - By words one transmits thoughts to another, by means of art, one transmits feelings.
+ - He had heard that women often love plain ordinary men, but he did not believe it, because he judged by himself and he could only love beautiful mysterious exceptional women.
+ - Regard the society of women as a necessary unpleasantness of social life, and avoid it as much as possible.
+ - Suddenly I heard the words of Christ and understood them, and life and death ceased to seem to me evil, and instead of despair I experienced happiness and the joy of life undisturbed by death.
+ - In infinite time, in infinite matter, in infinite space, is formed a bubble organism, and that bubble lasts a while and bursts, and that bubble is Me.
+ - Government is violence, Christianity is meekness, non-resistance, love. And, therefore, government cannot be Christian, and a man who wishes to be a Christian must not serve government.
+ - A leader is the wave pushed ahead by the ship.
+ - Vegetarianism serves as the criterion by which we know that the pursuit of moral perfection on the part of humanity is genuine and sincere.
+ - Art is a means of union among men, joining them together in the same feeling.
+ - The vocation of every man and woman is to serve other people.
+ - There can be only one permanent revolution- a moral one: the regeneration of the inner man.
+ - He soon felt that the fulfillment of his desires gave him only one grain of the mountain of happiness he had expected. This fulfillment showed him the eternal error men make in imagining that their happiness depends on the realization of their desires.
+ - Nothing is so necessary for a young man as the company of intelligent women.
+ - We imagine that when we are thrown out of our usual ruts all is lost, but it is only then that what is new and good begins. While there is life there is happiness. There is much, much before us.
+ - Everything depends on upbringing.
+ - War is so unjust and ugly that all who wage it must try to stifle the voice of conscience within themselves.
+ - One ought only to write when one leaves a piece of one’s own flesh in the inkpot, each time one dips one’s pen.
+ - It is within my power either to serve God or not to serve Him. Serving Him, I add to my own good and the good of the whole world. Not serving Him, I forfeit my own good and deprive the world of that good, which was in my power to create.
+ - Is it really possible to tell someone else what one feels?
+ - Men pray to the Almighty to relieve poverty. But poverty comes not from God’s laws-it is blasphemy of the worst kind to say that. Poverty comes from man’s injustice to his fellow man.
+ - The most difficult subjects can be explained to the most slow- witted man if he has not formed any idea of them already; but the simplest thing cannot be made clear to the most intelligent man if he is firmly persuaded that he knows already, without a shadow of doubt, what is laid before him.
+ - What is important is not the quantity of your knowledge but its quality. You can know many things without knowing the most important.
+ - A battle is won by him who is firmly resolved to win it.
+ - If I know the way home and am walking along it drunkenly, is it any less the right way because I am staggering from side to side!
+ - Great works of art are only great because they are accessible and comprehensible to everyone.
+ - If you see that some aspect of your society is bad, and you want to improve it, there is only one way to do so: you have to improve people. And in order to improve people, you begin with only ONE thing: you can become better yourself.
+ - Science is meaningless because it gives no answer to our question, the only question important for us: ’what shall we do and how shall we live.
+ - Money is a new form of slavery, and distinguishable from the old simply by the fact that it is impersonal – that there is no human relation between master and slave.
+ - People try to do all sorts of clever and difficult things to improve life instead of doing the simplest, easiest thing-refusing to participate in activities that make life bad.
+ - There are as many loves as there are hearts.
+ - Patriotism is the principle that will justify the training of wholesale murderers.
+ - I must write each day without fail, not so much for the success of the work, as in order not to get out of my routine.
+ - Condemn me if you choose I do that myself, but condemn me, and not the path which I am following, and which I point out to those who ask me where, in my opinion, the path is.
+ - You can love a person dear to you with a human love, but an enemy can only be loved with divine love.
+ - Real wisdom is not the knowledge of everything, but the knowledge of which things in life are necessary, which are less necessary, and which are completely unnecessary to know.
+ - Once we’re thrown off our habitual paths, we think all is lost, but it’s only here that the new and the good begins.
+ - The epitaph that I would write for history would say: I conceal nothing. It is not enough not to lie. One should strive not to lie in a negative sense by remaining silent.
+ - I believe in one, incomprehensible God, the immortality of the soul and eternal retribution for our acts.
+ - The Christian churches and Christianity have nothing in common save in name: they are utterly hostile opposites. The churches are arrogance, violence, usurpation, rigidity, death; Christianity is humility, penitence, submissiveness, progress, life.
+ - Even if the absence of government really did mean anarchy in a negative, disorderly sense – which is from from being the case – even then, no anarchical disorder could be worse than the position to which government has led humanity.
+ - Be bad, but at least don’t be a liar, a deceiver!
+ - Honest work is much better than a mansion.
+ - Division of labor is a justification for sloth.
+ - Every heart has its own skeletons.
+ - When we do not love, we sleep, we are children of the dust – but love, and you are a god, you are pure, as on the first day of creation.
+ - When you feel the desire for power, you should stay in solitude for some time.
+ - One can no more approach people without love than one can approach bees without care. Such is the quality of bees...
+ - Genuine religion is not about speculating about God or the soul or about what happened in the past or will happen in the future; it cares only about one thing finding out exactly what should or should not be done in this lifetime.
+ - We must not only cease our present desire for the growth of the state, but we must desire its decrease, its weakening.
+ - People jump back and forth in pursuit of pleasures only because they see the emptiness of their lives more clearly than they do the emptiness of whichever new entertainment attracts them.
+ - When I have one foot in the grave, I will tell the whole truth about women. I shall tell it, jump into my coffin, pull the lid over me and say, “Do what you like now.”
+ - I don’t want to prove anything; I merely want to live, to do no one harm but myself. I have the right to do that, haven’t I?
+ - The chief attraction of military service has consisted and will consist in this compulsory and irreproachable idleness.
+ - Wealth is a great sin in the eyes of God. Poverty is a great sin in the eyes of man.
+ - I have to create a circle of reading for myself: Epictetus, Marcus Aurelius, Lao-Tzu, Buddha, Pascal, The New Testament. This is also necessary for all people.
+ - All violence consists in some people forcing others, under threat of suffering or death, to do what they do not want to do.
+ - If so many men, so many minds, certainly so many hearts, so many kinds of love.
+ - Faith is the sense of life, that sense by virtue of which man does not destroy himself, but continues to live on. It is the force whereby we live.
+ - Instead of going to Paris to attend lectures, go to the public library, and you won’t come out for twenty years, if you really wish to learn.
+ - Man has received direct from God only one instrument wherewith to know himself and to know his relation to the universe – he has no other – and that instrument is reason.
+ - Without Greek studies there is no education.
+ - To say that a work of art is good, but incomprehensible to the majority of men, is the same as saying of some kind of food that it is very good but that most people can’t eat it.
+ - In spite the mountains of books written about art, no precise definition of art has been constructed. And the reason for this is that the conception of art has been based on the conception of beauty.
+ - To speak of it would be giving importance to something that has none.
+ - The essence of any religion lies solely in the answer to the question: why do I exist, and what is my relationship to the infinite universe that surrounds me?
+ - She had no need to ask why he had come. She knew as certainly as if he had told her that he was here to be where she was.
+ - The business of art lies just in this, – to make that understood and felt which, in the form of an argument, might be incomprehensible and inaccessible.
+ - I’d rather end up wishing I hadn’t than end up wishing I had.
+ - To love life is to love God. Harder and more blessed than all else is to love this life in one’s sufferings, in undeserved sufferings.
+ - I prefer a good pair of boots to Shakespeare.
+ - For us, with the rule of right and wrong given us by Christ, there is nothing for which we have no standard. And there is no greatness where there is not simplicity, goodness, and truth.
+ - The purpose of life is to bring forth goodness. Now, in this life.
+ - One must put oneself in every one’s position. To understand everything is to forgive everything.
+ - If goodness has causes, it is not goodness; if it has effects, a reward, it is not goodness either. So goodness is outside the chain of cause and effect.
+ - The happiness of men consists in life. And life is in labor.
+ - Rivers are places that renew our spirit, connect us with our past, and link us directly with the flow and rhythm of the natural world.
+ - Man survives earthquakes, epidemics, the horrors of disease, and all the agonies of the soul, but for all time his tormenting tragedy is, and will be, the tragedy of the bedroom.
+ - The true meaning of Christ’s teaching consists in the recognition of love as the supreme law of life, and therefore not admitting any exceptions.
+ - Power is a word the meaning of which we do not understand.
+ - A Christian cannot help being free, because in the pursuit and attainment of his object, no one can either hinder or retard him.
+ - Konstantin Levin did not like talking and hearing about the beauty of nature. Words for him took away the beauty of what he saw.
+ - All the girls in the world were divided into two classes: one class included all the girls in the world except her, and they had all the usual human feelings and were very ordinary girls; while the other class -herself alone- had no weaknesses and was superior to all humanity.
+ - Everything ends in death, everything. Death is terrible.
+ - Death destroys the body, as the scaffolding is destroyed after the building is up and finished. And he whose building is up rejoices at the destruction of the scaffolding and of the body.
+ - The greater the state, the more wrong and cruel its patriotism, and the greater is the sum of suffering upon which its power is founded.
+ - Muhammad has always been standing higher than the Christianity. He does not consider god as a human being and never makes himself equal to God. Muslims worship nothing except God and Muhammad is his Messenger. There is no any mystery and secret in it.
+ - We live in this world like a child who enters a room where a clever person is speaking. The child did not hear the beginning of the speech, and he leaves before the end; and there are certain things which he hears but does not understand.
+ - Man cannot possess anything as long as he fears death. But to him who does not fear it, everything belongs. If there was no suffering, man would not know his limits, would not know himself.
+ - Much unhappiness has come from things left unsaid.
+ - The best thoughts most often come in the morning after waking, while still in bed or while walking.
+ - There is nothing more harmful to you than improving only your material, animal side of life. There is nothing more beneficial, both for you and for others, than activity directed to the improvement of your soul.
+ - India, which is the nursery of the great faiths of the world.
+ - Each time of life has its own kind of love.
+ - Man recognizes that he will not die, only when he recognizes that he was never born, but always has been, is, and will be.
+ - Pretence about anything sometimes deceives the wisest and shrewdest man, but, however cunningly it is hidden, a child of the meanest capacity feels it and is repelled by it.
+ - Prayer is addressed to the personal God, not because he is personal indeed, I know for certain that he is not personal, because personality is limitation, while God is unlimited.
+ - When ignorance does not know something, it says that what it does not know is stupid.
+ - Dear Lord, what a madhouse the world is!
+ - The great tragedy of atheists is that they walk through this world and have no one to thank.
+ - The law condemns and punishes only actions within certain definite and narrow limits; it thereby justifies, in a way, all similar actions that lie outside those limits.
+ - You say: I am not free. But I have raised and lowered my arm. Everyone understands that this illogical answer is an irrefutable proof of freedom.
+ - The struggle with evil by means of violence is the same as an attempt to stop a cloud, in order that there may be no rain.
+ - I feel that I am entitled to my share of lightheartedness and there is nothing wrong with enjoying one’s self simply, like a boy.
+ - The changes in our life must come from the impossibility to live otherwise than according to the demands of our conscience not from our mental resolution to try a new form of life.
+ - He liked fishing and seemed to take pride in being able to like such a stupid occupation.
+ - If you love me as you say you do,? she whispered, ’make it so that I am at peace.
+ - Levin scowled. The humiliation of his rejection stung him to the heart, as though it were a fresh wound he had only just received. But he was at home, and at home the very walls are a support.
+ - Woman, you see, is an object of such a kind that study it as much as you will, it is always quite new.
+ - He sought his former accustomed fear of death and did not find it. “Where is it? What death?” There was no fear because there was no death. In place of death there was light.
+ - Like all mad men, I thought everyone was mad except myself...
+ - Work is the inevitable condition of human life, the true source of human welfare.
+ - There are always so many conjectures as to the issue of any event that, whatever the outcome, there will always be people to say: ‘I said then that it would be so’
+ - We shall all of us die, so why grudge a little trouble?
+ - Violence produces only something resembling justice, but it distances people from the possibility of living justly, without violence.
+ - In the best, the friendliest and simplest relations flattery or praise is necessary, just as grease is necessary to keep wheels turning.
+ - Christianity, with its doctrine of humility, of forgiveness, of love, is incompatible with the state, with its haughtiness, its violence, its punishment, its wars.
+ - The life of our class, of the wealthy and the learned, was not only repulsive to me but had lost all meaning. The sum of our action and thinking, of our science and art, all of it struck me as the overindulgences of a spoiled child.
+ - Religion reveals the meaning of life, and science only applies this meaning to the course of circumstances.
+ - We love people not so much for the good they’ve done us, as for the good we’ve done them.
+ - Good fiction doesn’t come out of the basic conflict of good versus bad. Instead, it comes out of a conflict between good and good.
+ - They’ve got no idea what happiness is, they don’t know that without this love there is no happiness or unhappiness for us – there is no life.
+ - Our body is a machine for living. It is organized for that, it is its nature. Let life go on in it unhindered and let it defend itself.
+ - Prayer is an invisible tool which is wielded in a visible world.
+ - Human love serves to love those dear to us but to love one’s enemies we need divine love.
+ - There will be today, there will be tomorrow, there will be always, and there was yesterday, and there was the day before...
+ - Christian love comes from the understanding that there is a unity of divine origins in oneself and in other people, and not only in people, but in all living things.
+ - Writing laws is easy, but governing is difficult.
+ - I have discovered nothing new; I have only perceived what I already knew.
+ - Debates conceal rather than reveal the truth. Truth is revealed in solitude.
+ - My life had come to a sudden stop. I was able to breathe, to eat, to drink, to sleep. I could not, indeed help doing so; but there was no real life in me.
+ - To educate the peasantry, three things are needed: schools, schools and schools.
+ - I’m getting old, that’s the thing! What’s in me now won’t be there anymore.
+ - The ideas of the wise have been tested by centuries. Everything medium is lost and only original, deep and useful things are left.
+ - If you no longer believe in the God in whom you believed in before, this comes from the fact that there was something wrong with your belief, and you must strive to understand better that which you call God.
+ - The subject of history is the life of peoples and mankind.
+ - Our body is a machine for living.
+ - There is no significant idea which cannot be explained to an intelligent twelve year old boy in fifteen minutes.
+ - I think that when you remember, remember, remember everything like that, you could go on until you remember what was there before you were in the world.
+ - A man’s every action is inevitably conditioned by what surrounds him and by his own body.
+ - You can’t imagine what a pleasure this complete laziness is to me: not a thought in my brain- you might send a ball rolling through it!
+ - The only significance of life consists in helping to establish the kingdom of God.
+ - Always the same. Now a spark of hope flashes up, then a sea of despair rages, and always pain; always pain, always despair, and always the same.
+ - Where is there any book of the law so clear to each man as that written in his heart?
+ - True science investigates and brings to human perception such truths and such knowledge as the people of a given time and society consider most important. Art transmits these truths from the region of perception to the region of emotion.
+ - The earth is the general and equal possession of all humanity and therefore cannot be the property of individuals.
+ - Energy is based on love.
+ - In difficult circumstances always act on first impressions.
+ - Every reform by violence is to be deprecated, because it does little to correct the evil while men remain as they are, and because wisdom has no need of violence.
+ - So he lived, not knowing and not seeing any chance of knowing what he was and for what purpose he had been placed in the word.
+ - The more is given the less the people will work for themselves, and the less they work the more their poverty will increase.
+ - History is the product of vast, amorphous and indecipherable social movements.
+ - And yet, now that years have passed, I recall it and wonder that it could distress me so much. It will be the same thing, too, with this trouble. Time will go by and I shall not mind about this either.
+ - He was right in saying that the only certain happiness in life is to live for others.
+ - Her face was brilliant and glowing; but this glow was not one of brightness; it suggested the fearful glow of a conflagration in the midst of a dark night.
+ - Do not be sad about what you do not have. Instead, be happy about what you do have. If you will be sad about what you don’t have, you will not be happy about what you do have.
+ - Love those you hate you.
+ - We walked to meet each other up at the time of our love and then we have been irresistibly drifting in different directions, and there’s no altering that.
+ - Sometimes she did not know what she feared, what she desired: whether she feared or desired what had been or what would be, and precisely what she desired, she did not know.
+ - Hypocrisy in anything whatever may deceive the cleverest and most penetrating man, but the least wide-awake of children recognizes it, and is revolted by it, however ingeniously it may be disguised.
+ - Smiling with pleasure, they went through their memories, not sad, old people’s memories, but poetic, youthful ones, those impressions from the very distant past where dream merges with reality, and they laughed softly, rejoicing at something.
+ - Which is worse? the wolf who cries before eating the lamb or the wolf who does not.
+ - The difference between real material poison and intellectual poison is that most material poison is disgusting to the taste, but intellectual poison, which takes the form of cheap newspapers or bad books, can unfortunately sometimes be attractive.
+ - After the doctor’s departure Koznyshev felt inclined to go to the river with his fishing rod. He was fond of angling, and seemed proud of being able to like such a stupid occupation.
+ - Progress consists only in the greater clarification of answers to the basic questions of life.
+ - He remembered his mother’s love for him, and his family’s, and his friends’, and the enemy’s intention to kill him seemed impossible.
+ - I simply want to live; to cause no evil to anyone but myself.
+ - I felt a wish never to leave that room – a wish that dawn might never come, that my present frame of mind might never change.
+ - In order to obtain and hold power, a man must love it.
+ - I’m like a starving man who has been given food. Maybe he’s cold, and his clothes are torn, and he’s ashamed, but he’s not unhappy.
+ - A Gentleman is a man who will pay his gambling debts even when he knows he has been cheated.
+ - But our idea is that the wolves should be fed and the sheep kept safe.
+ - In education, once more, the chief things are equality and freedom.
+ - Because of the self-confidence with which he had spoken, no one could tell whether what he said was very clever or very stupid.
+ - A person who has spoiled his stomach will criticize his meal saying that the food is bad; the same thing happens with people who are not satisfied with their lives.
+ - I feel not only that I cannot disappear, as nothing disappears in the world, but that I will always be and have always been. I feel that, besides me, above me, spirits live, and that in this world there is truth.
+ - I often think how unfairly life’s good fortune is sometimes distributed.
+ - He looked at her as a man might look at a faded flower he had plucked, in which it was difficult for him to trace the beauty that had made him pick and so destroy it.
+ - Not one word, not one gesture of yours shall I, could I, ever forget...
+ - I have found that a story leaves a deeper impression when it is impossible to tell which side the author is on.
+ - And all people live, Not by reason of any care they have for themselves, But by the love for them that is in other people.
+ - By patriotism is meant, not only spontaneous, instinctive love for one’s own nation, and preference for it above all other nations, but also the belief that such love and preference are good and useful.
+ - Then he thought himself unhappy, but happiness was all in the future; now he felt that the best happiness was already in the past.
+ - A monkey was carrying two handfuls of peas. One little pea dropped out. He tried to pick it up, and split twenty. He tried to pick up the twenty, and split them all. Then he lost his temper, scattered the peas in all directions and ran away.
+ - And those who only know the non-platonic love have no need to talk of tragedy. In such love there can be no sort of tragedy.
+ - The pleasure lies not in discovering truth, but in searching for it.
+ - I am always with myself, and it is I who am my tormentor.
+ - In life, in true life, there can be nothing better than what is. Wanting something different than what is, is blasphemy.
+ - Art is a human activity consisting in this, that one man consciously, by means of certain external signs, hands on to others feelings he has lived through, and that other people are infected by these feelings, and also experience them.
+ - Even in the valley of the shadow of death, two and two do not make six.
+ - And not only the pride of intellect, but the stupidity of intellect. And, above all, the dishonesty, yes, the dishonesty of intellect. Yes, indeed, the dishonesty and trickery of intellect.
+ - It is possible to live only as long as life intoxicates us; once we are sober we cannot help seeing that it is all a delusion, a stupid delusion.
+ - The recognition of the sanctity of the life of every man is the first and only basis of all morality.
+ - People involve themselves in countless activities which they consider to be important, but they forget about one activity which is more important and necessary than any other, and which includes all other things: the improvement of their soul.
+ - These joys were so trifling as to be as imperceptible as grains of gold among the sand, and in moments of depression she saw nothing but the sand; yet there were brighter moments when she felt nothing but joy, saw nothing but the gold.
+ - Historians are like deaf people who go on answering questions that no one has asked them.
+ - The artist’s mission must not be to produce an irrefutable solution to a problem, but to compel us to love life in all its countless and inexhaustible manifestations.
+ - Those whom God wishes to destroy he drives mad.
+ - Teach French and unteach sincerity.
+ - One must be cunning and wicked in this world.
+ - Whenever my life came to a halt, the questions would arise: Why? And what next?
+ - If religion is the establishing of a relationship between man and the universe, then morality is the explanation of those activities that automatically result when a person maintains a relationship to the universe.
+ - I am sure that nothing has such a decisive influence upon a man’s course as his personal appearance, and not so much his appearance as his belief in its attractiveness or unattractiveness.
+ - Don’t seek God in temples. He is close to you. He is within you. Only you should surrender to Him and you will rise above happiness and unhappiness.
+ - Her maternal instinct told her Natasha had too much of something, and because of this she would not be happy.
+ - The compassionate are not rich; therefore, the rich are not compassionate.
+ - At moments of departure and a change of life, people capable of reflecting on their actions usually get into a serious state of mind. At these moments they usually take stock of the past and make plans for the future.
+ - Without the support from religion – remember, we talked about it – no father, using only his own resources, would be able to bring up a child.
+ - Something magical has happened to me: like a dream when one feels frightened and creepy, and suddenly wakes up to the knowledge that no such terrors exist. I have wakened up.
+ - In order to obtain and hold power a man must love it. Thus the effort to get it is not likely to be coupled with goodness, but with the opposite qualities of pride, craft and cruelty.
+ - Do not resist the evil-doer and take no part in doing so, either in the violent deeds of the administration, in the law courts, the collection of taxes, or above all in soldiering, and no one in the world will be able to enslave you.
+ - To get rid of an enemy one must love him.
+ - The appreciation of the merits of art of the emotions it conveys depends upon an understanding of the meaning of life...
+ - I say that the God who created the world in six days and who sent His son, and also his son himself, are not God, but that God is the one existing, incomparable good, the beginning of everything.
+ - I don’t allow myself to doubt myself even for a moment.
+ - I do value my work awfully; but in reality only consider this: all this world of ours is nothing but a speck of mildew, which has grown up on a tiny planet. And for us to suppose we can have something great – ideas, work – it’s all dust and ashes.
+ - I ask one thing only: I ask for the right to hope, to suffer as I do. But if even that cannot be, command me to disappear, and I disappear. You shall not see me if my presence is distasteful to you.
+ - Friends we shall never be, you know that yourself. Whether we shall be the happiest or the wretchedest of people – that’s in your hands.
+ - People of limited intelligence are fond of talking about “these days,” imagining that they have discovered and appraised the peculiarities of “these days” and that human nature changes with the times.
+ - Loving the same man or woman all your life, why, that’s like supposing the same candle could last you all your life.
+ - To tell the truth is very difficult, and young people are rarely capable of it.
+ - And the angel said – “I have learned that every man lives not through care of himself, but by love”...
+ - I must have physical exercise, or my temper’ll certainly be ruined.
+ - If it were not so frightening it would be amusing to observe the pride and complacency with which we, like children, take apart the watch, pull out the spring and make a toy of it, and are then surprised when the watch stops working.
+ - The soul is immortal- well then, if I shall always live, I must have lived before, lived for a whole eternity.
+ - And whatever people might say about the time having come when young people must arrange their future for themselves, she could not believe it any more than she could believe that loaded pistols could ever be the best toys for five-year-old children.
+ - There can be no peace for us, only misery, and the greatest happiness.
+ - Though the doctors treated him, let his blood, and gave him medications to drink, he nevertheless recovered.
+ - Ah, if everyone was as sensitive as you! There’s no girl who hasn’t gone through that. And it’s all so unimportant!
+ - In order to know what he is, a man must first know what the sum of this mysterious humanity is, a humanity made up of people who, like himself, do not understand what they are.
+ - Christianity in its true sense puts an end to the State. It was so understood from its very beginning, and for that Christ was crucified.
+ - The higher a man’s conception of God, the better will he know Him. And the better he knows God, the nearer will he draw to Him.
+ - The one who is happy, that’s the one who is right.
+ - The idea of beauty is the fundamental idea of everything. In the world we see only distortions of the fundamental idea, but art, by imagination, may lift itself to the height of this idea. Art is therefore akin to creation.
+ - The idea shared by many that life is a vale of tears is just as false as the idea shared by the great majority, the idea to which youth and health and riches incline you, that life is a place of entertainment.
+ - The only happy marriages I know are arranged ones.
+ - Man must not check reason by tradition, but contrariwise, must check tradition by reason.
+ - Art should cause violence to be set aside and it is only art that can accomplish this.
+ - Only greatly insolent people establish a religious law which is to be taken for granted by others, which should be accepted by everyone on faith, without any discussion or doubts. Why must people do this?
+ - I often think that men don’t understand what is noble and what is ignorant, though they always talk about it.
+ - Energy rests upon love; and come as it will, there’s no forcing it.
+ - It is by those who have suffered that the world has been advanced.
+ - Art begins when a man, with a purpose of communicating to other people a feeling he once experienced, calls it up again within himself and expresses it by certain external signs.
+ - Governments not only are not necessary, but are harmful and most highly immoral institutions.
+ - And so he who looks down at his feet will not know the truth, but he who discerns by the sun which way to go.
+ - The teaching of the church, theoretically astute, is a lie in practice and a compound of vulgar superstitions and sorcery.
+ - The magnanimity and sensibility of a lady who faints when she sees a calf being killed, she is so kind hearted that she can’t look at the blood, but enjoys serving the calf up with sauce.
+ - People are always happy where there is love, because their happiness in in themselves.
+ - There was no solution, save that universal solution which life gives to all questions, even the most complex and insolvable: One must live in the needs of the day – that is, forget oneself.
+ - The best method for a given teacher is the one which is most familiar to the teacher.
+ - But the peasants – how do the peasants die?
+ - The question of how things will settle down is the only important question...
+ - In order to understand, observe, deduce, man must first be conscious of himself as alive.
+ - If a man does not work at necessary and good things, then he will work at unnecessary and stupid things.
+ - He who has a mistaken idea of life, will always have a mistaken idea of death.
+ - Pure and complete sorrow is as impossible as pure and complete joy.
+ - What I think about vivisection is that if people admit that they have the right to take or endanger the life of living beings for the benefit of many, there will be no limit to their cruelty.
+ - In all human sorrow nothing gives comfort but love and faith, and that in the sight of Christ’s compassion for us no sorrow is trifiling.
+ - In Varenka, she realized that one has but to forget oneself and love others, and one will be calm, happy, and noble.
+ - Doctoring her seemed to her as absurd as putting together the pieces of a broken vase. Her heart was broken. Why would they try to cure her with pills and powders?
+ - God is that infinite All of which man knows himself to be a finite part.
+ - But every acquisition that is disproportionate to the labor spent on it is dishonest.
+ - No matter when, at whatever moment, if she were asked what she was thinking about she could reply quite correctly – one thing, her happiness and her unhappiness.
+ - I can’t think of you and myself apart. You and I are the same to me.
+ - Power is the relation of a given person to other persons, in which the more this person expresses opinions, theories and justifications of the collective action the less is his participation in that action.
+ - Meanwhile spring arrived. My old dejection passed away and gave place to the unrest which spring brings with it, full of dreams and vague hopes and desires.
+ - When joy disappears, look for your mistake.
+ - The true office of any faith is to give life a meaning which death cannot destroy.
+ - Happiness consists in always aspiring perfection, the pause in any level in perfection is the pause of happiness.
+ - With friends, one is well; but at home, one is better.
+ - One of the most obtuse superstitions is the superstition of the scientists who say that man can exist without faith.
+ - Man’s mind cannot grasp the causes of events in their completeness, but the desire to find the causes is implanted in man’s soul.
+ - War is not a polite recreation but the vilest thing in life, and we ought to understand that and not play at war.
+ - But that’s just the aim of civilization – to make everything a source of enjoyment.
+ - I now understand that my welfare is only possible if I acknowledge my unity with all the people of the world without exception.
+ - It is terrible when people do not know God, but it is worse when people identify as God what is not God.
+ - No one has yet added up all the heavy, stress-filled workdays as well as the hundreds, perhaps thousands, of lives that are wasted to produce the world’s amusements. It is for this reason that “amusements” are not so amusing.
+ - There’s a way out of every situation.
+ - Physical violence is the basis of authority.
+ - He was afraid of defiling the love which filled his soul.
+ - This is where the strength of the physician lies, be he a quack, a homeopath or an allopath. He supplies the perennial demand for comfort, the craving for sympathy that every human sufferer feels.
+ - The most important of all sciences man can and must learn is the science of living so as to do the least evil and the greatest possible good.
+ - The improvement of life was only accomplished to the extent to which it was based on a change of consciousness, that is, to the extent to which the law of violence was replaced in men’s consciousness by the law of love.
+ - It’s not so much that he can’t fall in love, but he has not the weakness necessary.
+ - Stepan Arkadyevitch had not chosen his political opinions or his views; these political opinions and views had come to him of themselves, just as he did not choose the shapes of his hat and coat, but simply took those that were being worn.
+ - Children: a torment and nothing more.
+ - If there are as many minds as there are men, then there are as many kinds of love as there are hearts.
+ - It may be suggested by some books that it is not a sin to kill an animal, but it is written in our own hearts – more clearly than in any book – that we should take pity on animals in the same way as we do on humans.
+ - She did not want to talk of her sorrow, but with that sorrow in her heart she could not talk of outside matters.
+ - The political is not compatible with the artistic, because the former, in order to prove, has to be one-sided.
+ - Both salvation and punishment for man lie in the fact that if he lives wrongly he can befog himself so as not to see the misery of his position.
+ - I can’t understand how anyone can write without rewriting everything over and over again.
+ - But men are now united in states; that work is done; why now maintain exclusive devotion to one’s own state, when this produces terrible evils for all.
+ - Beautiful as seemed mama’s face, it became more lovely when she smiled and seemed to enliven everything about her.
+ - One may say with one’s lips: ‘I believe that God is one, and also three’ – but no one can believe it, because the words have no sense.
+ - The military world is characterized by the absence of freedom – in other words, a rigorous discipline-enforced inactivity, ignorance, cruelty, debauchery and drunkenness.
+ - We should show life neither as it is or as it ought to be, but only as we see it in our dreams.
+ - Can it be that there is not enough space for man in this beautiful world, under those immeasurable, starry heavens?
+ - It seems as though mankind has forgotten the laws of its divine Saviour, Who preached love and forgiveness of injuries – and that men attribute the greatest merit to skill in killing one another.
+ - God gave the day, God gave the strength.
+ - Today, nobody sees, or wishes to see, that in our time the enslavement of the majority of men is based on money taxes, levied on land and otherwise, which are collected by government from the subjects.
+ - When one’s head is gone one doesn’t weep over one’s hair!
+ - The example of a syllogism that he had studied in Kiesewetter’s logic: Caius is a man, men are mortal, therefore Caius is mortal, had throughout his whole life seemed to him right only in relation to Caius, but not to him at all.
+ - Conceit is incompatible with understanding.
+ - Under the influence of music, it seems that I feel what I do not really feel, that I understand what I do not understand, that I do what I cannot do.
+ - He could not be mistaken. There were no other eyes like those in the world. There was only one creature in the world who could concentrate for him all the brightness and meaning of life. It was she. It was Kitty.
+ - If once we admit, be it for a single hour or in a single instance, that there can be anything more important than compassion for a fellow human being, then there is no crime against man that we cannot commit with an easy conscience.
+ - I was now prepared to accept any faith so long as it did not demand a direct denial of reason, which would have been a deceit.
+ - The antagonism between life and conscience may be removed in two ways: by a change of life or by a change of conscience.
+ - Every revolution by force only puts more violent means of enslavement into the hands of the persons in power.
+ - There are no conditions to which a man cannot become accustomed.
+ - With one hand I take thousands of rubles from the poor, and with the other I hand back a few kopecks.
+ - Man lives consciously for himself, but is an unconscious instrument in the attainment of the historic, universal, aims of humanity.
+ - What time can be more beautiful when the one in which the finest virtues, innocent cheerfulness and indefinable longing for love constitute the sole motives of your life.
+ - Many families remain for years in the same place, though both husband and wife are sick of it, simply because there is neither complete division nor agreement between them.
+ - We acknowledge God only when we are conscious of His manifestation in us.
+ - There are such repulsive faces in the world.
+ - I wanted to run after him, but remembered that it is ridiculous to run after one’s wife’s lover in one’s socks; and I did not wish to be ridiculous but terrible.
+ - The possibility of killing one’s self is a safety valve. Having it, man has no right to say life is unbearable.
+ - Before we can study the central issues of life today, we must destroy the prejudices and fallacies born of previous centuries.
+ - The chief difference between words and deeds is that words are always intended for men for their approbation, but deeds can be done only for God.
+ - Power, from the standpoint of experience, is merely the relation that exists between the expression of someone’s will and the execution of that will by others.
+ - Woman is more impressionable than man. Therefore in the Golden Age they were better than men. Now they are worse.
+ - There are many faiths, but the spirit is one, in me, in you, and in every man.
+ - To regard Christ as God, and to pray to him, are to my mind the greatest possible sacrilege.
+ - I don’t think badly of people. I like everybody, and I’m sorry for everybody.
+ - Only those live who do good.
+ - The higher a man stands on the social ladder, the greater the number of people he is connected with, the more power he has over other people, the more obvious is the predestination and inevitability of his every action.
+ - Drama, instead of telling us the whole of a man’s life, must place him in such a situation, tie such a knot, that when it is untied, the whole man is visible.
+ - To know God and to live is the same thing. God is Life.
+ - We are all created to be miserable, and that we all know it, and all invent means of deceiving each other. And when one sees the truth, what is one to do?
+ - It is no sin to look at a nice girl.
+ - How important the concept of God is, and how instead of valuing what has been given us, we with light hearts spurn it because of absurdities that have been attached to it.
+ - Giving alms is only a virtuous deed when you give money that you yourself worked to get.
+ - All that day she had had the feeling that she was playing in the theatre with actors better than herself and that her poor playing spoiled the whole thing.
+ - Life did not stop, and one had to live.
+ - Better to know a few things which are good and necessary than many things which are useless and mediocre.
+ - And that which yesterday was the novel opinion of one man, to-day becomes the general opinion of the majority.
+
+500 quotes

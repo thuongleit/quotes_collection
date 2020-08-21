@@ -1,0 +1,222 @@
+ - The objective of Nonviolent Communication is not to change people and their behavior in order to get our way: it is to establish relationships based on honesty and empathy, which will eventually fulfill everyone’s needs.
+ - Your presence is the most precious gift you can give to another human being.
+ - Every criticism, judgment, diagnosis, and expression of anger is the tragic expression of an unmet need.
+ - People don’t make us angry, how we think makes us angry.
+ - Our survival as a species depends on our ability to recognize that our well-being and the well-being of others are in fact one and the same.
+ - What others do may be the stimulus of our feelings, but never the cause.
+ - You don’t have to be brilliant. It’s enough to become progressively less stupid.
+ - When we understand the needs that motivate our own and others behavior, we have no enemies.
+ - To practice the process of conflict resolution, we must completely abandon the goal of getting people to do what we want.
+ - We are compassionate with ourselves when we are able to embrace all parts of ourselves and recognize the needs and values expressed by each part.
+ - Empathy is a respectful understanding of what others are experiencing. Instead of offering empathy, we often have a strong urge to give advice or reassurance and to explain our own position or feeling. Empathy, however, calls upon us to empty our mind and listen to others with our whole being.
+ - NVC requires us to be continually conscious of the beauty within ourselves and other people.
+ - Use anger as a wake-up call to unmet needs.
+ - As we learn to speak from the heart we are changing the habits of a lifetime.
+ - Use the words “I feel because I” to remind us that what we feel it isn’t because of what the other person did, but because of a choice I’ve made.
+ - While we may not consider the way we talk to be ‘violent,’ our words often lead to hurt and pain, whether for others or for ourselves.
+ - The cause of anger lies in our thinking – in thoughts of blame and judgment.
+ - All violence is the result of people tricking themselves into believing that their pain derives from other people and that consequently those people deserve to be punished.
+ - Self-empathy in NVC means checking in with your own feelings and needs.
+ - The Indian philosopher J. Krishnamurti once remarked that observing without evaluating is the highest form of human intelligence. When I first read this statement, the thought, ‘What nonsense!’ shot through my mind before I realized that I had just made an evaluation.
+ - Intellectual understanding blocks empathy.
+ - If you are a jackal, you will try to reassure. Jackals try to fix people in pain. They can’t stand pain, but make matters worse by trying to get rid of it. Put on giraffe ears. Try to hear what they are feeling and needing.
+ - At the core of all anger is a need that is not being fulfilled.
+ - A difficult message to hear is an opportunity to enrich someone’s life.
+ - Never question the beauty of what you are saying because someone reacts with pain, judgment, criticism. It just means they have not heard you.
+ - Empathy allows us to re-perceive our world in a new way and move forward.
+ - An important aspect of self-compassion is to be able to empathically hold both parts of ourselves-the self that regrets a past action and the self that took the action in the first place.
+ - NVC enhances inner communication by helping us translate negative internal messages into feelings and needs. Our ability to distinguish our own feelings and needs and to empathize with them can free us from depression.
+ - If we don’t tell people about our needs, it is much less likely they will be met.
+ - Anger, depression, guilt, and shame are the product of the thinking that is at the base of violence on our planet.
+ - The most important use of NVC may be in developing self-compassion.
+ - Labeling and diagnosis is a catastrophic way to communicate. Telling other people what’s wrong with them greatly reduces, almost to zero, the probability that we’re going to get what we’re after.
+ - If we wish to express anger fully, the first step is to divorce the other person from any responsibility for our anger.
+ - It’s harder to empathize with those who appear to possess more power, status, or resources.
+ - Most of us grew up speaking a language that encourages us to label, compare, demand, and pronounce judgments rather than to be aware of what we are feeling and needing.
+ - Everything we do is in service of our needs. When this one concept is applied to our view of others, we’ll see that we have no real enemies, that what others do to us is the best possible thing they know to do to get their needs met.
+ - A need is life seeking expression within us.
+ - When you are in a jackal environment, never give them the power to submit or rebel. We want to teach this to children very early: Never lose track that you are always free to choose. Don’t allow institutions to determine what you do.
+ - All human actions are an attempt to meet needs.
+ - To be able to hear our own feelings and needs and to empathize with them can free us from depression.
+ - We’re not taught to think in terms of needs. We don’t make nice dead people when we’re in touch with needs. Domination structures cannot maintain themselves when citizens are educated to be alive.
+ - I try never to hear what another person thinks of me. I enjoy life a lot more when I spend as little time as possible hearing or thinking about what other people think about me. I go to the needs behind the thoughts. Then I’m in a different world.
+ - Empathy gives you the ability to enjoy another person’s pain.
+ - Punishment is the root of violence on our planet.
+ - Time and again, people transcend the paralyzing effects of psychological pain when they have sufficient contact with someone who can hear them empathically.
+ - Getting in touch with unmet needs is important to the healing process.
+ - Staying with empathy we allow speakers to touch deeper levels of themselves.
+ - Anger tells us we’ve disconnected from life. The purpose in anger is to use it to come back to life.
+ - There are the two main reasons we don’t get our needs met. First, we don’t know how to express our needs to begin with and second if we do, we forget to put a clear request after it, or we use vague words like appreciate, listen, recognize, know, be real, and stuff like that.
+ - NVC self-forgiveness: connecting with the need we were trying to meet when we took the action that we now regret.
+ - Conventional compliments often take the form of judgments however positive, and are sometimes offered to manipulate the behavior of others. NVC encourages the expression of appreciation solely for celebration.
+ - Avoid ‘shoulding’ on others and yourself!
+ - People have been trained to criticize, insult, and otherwise communicate in ways that create distance among people.
+ - I never have to worry about another person’s response, only how I react to what they say.
+ - Classifying and judging people promotes violence.
+ - Interpretations, criticisms, diagnoses, and judgments of others are actually alienated expressions of our unmet needs.
+ - We are never angry because of what others say or do. It is our thinking that makes us angry.
+ - Expressing our vulnerability can help resolve conflicts.
+ - A respectful understanding of another’s experience.
+ - My ultimate goal is to spend as many of my moments in life as I can in that world that the poet Rumi talks about, ’a place beyond rightness and wrongness.
+ - At the root of every tantrum and power struggle are unmet needs.
+ - Punishment also includes judgmental labeling and the withholding of privileges.
+ - Don’t get addicted to your requests. Your objective is needs, not requests. Because then it becomes a demand.
+ - People heal from their pain when they have an authentic connection with another human being.
+ - You’ll find people less threatening if you hear what they’re needing rather than what they’re thinking about you.
+ - I find that my cultural conditioning leads me to focus attention on places where I am unlikely to get what I want. I developed NVC as a way to train my attention-to shine the light of consciousness-on places that have the potential to yield what I am seeking.
+ - Two things distinguish nonviolent actions from violent actions. First, you don’t see an enemy and second, your intention is not to make the other side suffer.
+ - To practice NVC, it’s critical for me to be able to slow down, take my time, to come from an energy I choose, the one I believe that we were meant to come from, not the one I was programmed into.
+ - This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately, it provokes defensiveness, resistance, and counterattack. It is a language of demands.
+ - When I am angry I have a judgment and an unmet need.
+ - Blaming and punishing others are superficial expressions of anger.
+ - Most of us live in a Jackal world where we take turns using the other person as a waste basket for our words.
+ - The key to fostering connection in the face of a ‘no’ is always hearing ‘yes’ to something else.
+ - Every time I mess up is a chance to practice.
+ - Unless we as social change agents come from a certain kind of spirituality, we’re likely to create more harm than good.
+ - Fear of punishment diminishes self-esteem and goodwill.
+ - It may be most difficult to empathize with those we are closest to.
+ - Behind intimidating messages are simply people appealing to us to meet their needs.
+ - The most dangerous of all behaviors may consist of doing things ’because we’re supposed to.
+ - We only feel dehumanized when we get trapped in the derogatory images of other people or thoughts of wrongness about ourselves.
+ - NVC is interested in learning that is motivated by reverence for life, by a desire to learn skills, to contribute better to our own well-being and the well-being of others.
+ - Keep in mind that other people’s actions can never ‘make’ you feel any certain way. Feelings are your warning indicators.
+ - The spirituality that we need to develop for social change is one that mobilizes us for social change.
+ - It’s really a spiritual practice that I am trying to show as a way of life.
+ - We use NVC to evaluate ourselves in ways that engender growth rather than self-hatred.
+ - I think that there is a problem with rewards and consequences because in the long run, they rarely work in the ways we hope. In fact, they are likely to backfire.
+ - We are dangerous when we are not conscious of our responsibility for how we behave, think, and feel.
+ - Fear of corporal punishment obscures children’s awareness of the compassion underlying the parent’s demands.
+ - When we make mistakes, we can use the process of NVC mourning and self-forgiveness to show us where we can grow instead of getting caught up in moralistic self-judgments.
+ - Anger can be a wonderful wake up call to help you understand what you need and what you value.
+ - Don’t hate the circumstance, you may miss the blessing.
+ - We are responsible for what we hear other people say and for how we act.
+ - Also, think about your intentionality – are you getting lost in the method? or coming from the intentionality, the purpose? You don’t want to do the mechanics without the consciousness.
+ - I believe that the most joyful and intrinsic motivation human beings have for taking any action is the desire to meet our needs and the needs of others.
+ - NVC helps us connect with each other and ourselves in a way that allows our natural compassion to flourish.
+ - Any time you throw pain at a Jackal without a clear present request, within a millisecond he’ll jump in.
+ - Thinking based on who deserves what blocks compassionate communication.
+ - I don’t think you can have an authentic connection when one person is diagnosing the other.
+ - Once you have access to key people in an organization, if you go into a meeting with enemy images of those people – then you are not going to connect.
+ - Our goal is to create a quality of empathic connection that allows everyone’s needs to be met.
+ - Empathize, rather than put your “but” in the face of an angry person.
+ - As NVC replaces our old patterns of defending, withdrawing or attacking in the face of judgment and criticism. We come to perceive ourselves and others, as well as our intentions and relationships, in a new light. Resistance, defensiveness, and violent reactions are minimized.
+ - Before we tackle the gangs and the basic story, we have to make sure that we have liberated ourselves from how we have been educated and make sure we are coming from a spirituality of our own choosing.
+ - Learning is too precious to be motivated by coercive tactics.
+ - Our ability to offer empathy can allow us to stay vulnerable, defuse potential violence, help us hear the word ‘no’ without taking it as a rejection, revive lifeless conversation, and even hear the feelings and needs expressed through silence.
+ - When I recognize I’ve got anger, then I realize it’s because I have a need that’s not being met.
+ - Instead of playing the game “Making Life Wonderful”, we often play the game called “Who’s Right”. Do you know that game? It’s a game where everybody loses.
+ - What bores the listener bores the speaker too.
+ - When we focus on clarifying what is being observed, felt, and needed rather than on diagnosing and judging, we discover the depth of our own compassion.
+ - Life-Enriching Education: an education that prepares children to learn throughout their lives, relate well to others, and themselves, be creative, flexible, and venturesome, and have empathy not only for their immediate kin but for all of humankind.
+ - Children need far more than basic skills in reading, writing, and math, as important as those might be. Children also need to learn how to think for themselves, how to find meaning in what they learn, and how to work and live together.
+ - Always listen to what people need rather than what they are thinking about us.
+ - Translate all self-judgments into self-empathy.
+ - NVC shows us a way of being very honest, but without any criticism, insults, or putdowns, and without any intellectual diagnosis implying wrongness.
+ - Ask before offering advice or reassurance.
+ - Anger is a signal that you’re distracted by judgmental or punitive thinking, and that some precious need of yours is being ignored.
+ - My need is for safety, fun and to have distribution of resources, a sustainable life on the planet. NVC is a strategy that serves me to meet these needs.
+ - When we listen for feelings and needs – we can see that people who seem like monsters are simply human beings whose language and behavior sometimes keep us from seeing their humanness.
+ - We want people to change because they see better ways of meeting their needs at less cost, not because of fear that we’re going to punish them, or ‘guilt’ them if they don’t. This applies to ourselves as well.
+ - Tragically, one of the rarest commodities in our culture is empathy. People are hungry for empathy, They don’t know how to ask for it.
+ - NVC is a way of keeping our consciousness tuned in moment by moment to the beauty within ourselves.
+ - As radical as it may seem, it is possible to do things only out of play. I believe that to the degree that we engage moment by moment in the playfulness of enriching life- motivated solely by the desire for its enrichment- to that degree are we being compassionate with ourselves.
+ - The number one reason that we don’t get our needs met, we don’t express them. We express judgments. If we do express needs, the number two reasons we don’t our needs met, we don’t make clear requests.
+ - We are designed for Giving.
+ - Plans to exact retribution are never going to make us safer.
+ - When we have our consciousness on needs, images come to us, naturally, of how to meet those needs.
+ - When we are depressed, our thinking blocks us from being aware of our needs, and then being able to take action to meet our needs.
+ - Never do anything that isn’t play.
+ - Never hear what a jackal-speaking person thinks, especially what they think about you.
+ - Never give advice to your children unless you have it in writing and notarized.
+ - Empathy before education.
+ - Empathy lies in our ability to be present without opinion.
+ - Fix-it jackals can’t wait to fix it, because they don’t know how to enjoy pain. And until you learn how to enjoy pain, you can’t enjoy intimacy.
+ - NVC can be effectively applied at all levels of communication and in diverse situations: intimate relationships, families, schools, organizations and institutions, therapy and counseling, diplomatic and business negotiations, disputes and conflicts of any nature.
+ - Power-Over leads to punishment and violence. Power-With leads to compassion and understanding, and to learning motivated by reverence for life rather than fear, guilt, shame, or anger.
+ - Violence comes from the belief that other people cause our pain and therefore deserve punishment.
+ - Never connect yourself with the other person’s pain. Just hear their need. Leave yourself out of the other person’s feelings and needs.
+ - Enemy images are the main reason conflicts don’t get resolved.
+ - Miracles can happen when we can keep our consciousness away from analyzing and classifying one another.
+ - Every message, regardless of form or content, is an expression of a need.
+ - We give empathy to others for our own benefit.
+ - Needs are never conflicting. When we say that, we are only saying that at the moment we aren’t seeing how both needs can be met. That leaves an opening. When you think in the way I’m suggesting, you’ll often find a way to get most needs met simultaneously.
+ - A second even more obvious sign is that the person will stop talking. If we are uncertain as to whether we have stayed long enough in the process, we can always ask, “Is there more that you wanted to say”?
+ - We need to receive empathy to give empathy.
+ - Never hear what somebody thinks about you, you’ll live longer. Hear that they’re in pain. Don’t hear their analysis.
+ - However impressed we may be with NVC concepts, it is only through practice and application that our lives are transformed.
+ - Empathizing with someone’s ‘no’ protects us from taking it personally.
+ - If we ask two questions, we will see that punishment never works. First: What do we want the other person to do? Second: What do we want the other person’s reasons to be for doing as we request?
+ - Social change involves helping people see new options for making life wonderful that are less costly to get needs met.
+ - We can’t win at somebody else’s expense. We can only fully be satisfied when the other person’s needs are fulfilled as well as our own.
+ - We are this divine energy. It’s not something we have to attain. We just have to realize it, to be present to it.
+ - When we are angry, killing people is too superficial.
+ - Teacher, school administrators and parents will come away from Life-Enriching Education with skills in language, communication, and ways of structuring the learning environment that support the development of autonomy and interdependence in the classroom.
+ - How I choose to look at any situation will greatly affect whether I have the power to change it or make matters worse.
+ - People do not hear our pain when they believe they are at fault.
+ - We want to take action out of the desire to contribute to life rather than out of fear, guilt, shame, or obligation.
+ - When we judge others we contribute to violence.
+ - In NVC, no matter what words others may use to express themselves, we simply listen for their observations, feelings, needs, and requests.
+ - We do not look for compromise; rather, we seek to resolve the conflict to everyone’s complete satisfaction.
+ - When we fear punishment, we focus on consequences, not on our own values.
+ - NVC is founded on language and communication skills that strengthen our ability to remain human, even under trying conditions.
+ - We can never make anyone do anything against their will without enormous consequences.
+ - When our communication supports compassionate giving and receiving, happiness replaces violence and grieving.
+ - Compliments and praise, for their part, are tragic expressions of fulfilled needs.
+ - NVC gives us tools and understanding to create a more peaceful state of mind.
+ - Whether I praise or criticize someone’s action, I imply that I am their judge, that I’m engaged in rating them or what they have done.
+ - When we hear the other person’s feelings and needs, we recognize our common humanity.
+ - In our culture, most of us have been trained to ignore our own wants and to discount our needs.
+ - As long as I think I ‘should’ do it, I’ll resist it, even if I want very much to do it.
+ - NVC suggests behind every action, however ineffective, tragic, violent, or abhorrent to us, is an attempt to meet a need.
+ - I wouldn’t expect someone who’s been injured to hear my side until they felt that I had fully understood the depth of their pain.
+ - In these long-standing conflicts, I find that most cases it gets resolved in about twenty minutes after each side can tell me the needs of the other.
+ - All that has been integrated into NVC has been known for centuries about consciousness, language, communication skills, and use of power that enable us to maintain a perspective of empathy for ourselves and others, even under trying conditions.
+ - If the other persons behavior is not in harmony with my own needs, the more I empathize with them and their needs, the more likely I am to get me own needs met.
+ - The best way I can get understanding from another person is to give this person the understanding, too. If I want them to hear my needs and feelings, I first need to empathize.
+ - Imagine connecting with the human spirit in each person in any situation at any time. Imagine interacting with others in a way that allows everyone’s need to be equally valued. Imagine creating organizations and life-serving systems responsive to our needs and the needs of our environment.
+ - We know the speaker has received adequate empathy when a. we sense a release of tension, or b. the flow of words comes to a halt.
+ - Let’s shine the light of consciousness on places where we can hope to find what we are seeking.
+ - NVC is a reminder; to focus our attention where we are most likely to get our needs met.
+ - The first step in healing is to put the focus on what’s alive now, not what happened in the past.
+ - Clinical training in psychoanalysis has a deficit. It teaches how to sit and think about what a person is saying and how to interpret it intellectually, but not how to be fully present to this person.
+ - The more we use words that in any way imply criticism, the more difficult it is for people to stay connected to the beauty within themselves.
+ - Once you can clearly describe what you are reacting to, free of your interpretation or evaluation of it, other people are less likely to be defensive when they hear it.
+ - When we are in contact with our feelings and needs, we humans no longer make good slaves and underlings.
+ - Empathy: Emptying our mind and listening with our whole being.
+ - Upset? Ask yourself what this person does that is a trigger for judging them?
+ - The intention behind the protective use of force is to prevent injury, never to punish or to cause individuals to suffer, repent or change.
+ - By maintaining our attention on what’s going on within others, we offer them a chance to fully explore and express their interior selves. We would stem this flow if we were to shift attention too quickly either to their request or to our own desire to express ourselves.
+ - Be very slow to go into looking for solutions.
+ - With every choice you make, be conscious of what need it serves.
+ - In a Giraffe institution, the head nurse job would be to serve the nurses, not to control them. Teachers are there to serve the students, not control them.
+ - The punitive use of force tends to generate hostility and to reinforce resistance to the very behavior we are seeking.
+ - You can’t make your kids do anything. All you can do is make them wish they had. And then, they will make you wish you hadn’t made them wish they had.
+ - If people just asked: “Here are the needs of both sides, here are the resources. What can be done to meet these needs?” the conflict would be easy to resolve.
+ - When people hear needs, it provokes compassion. When people hear diagnoses, it provokes defensiveness and attack.
+ - With empathy, I’m fully with them, and not full of them – that’s sympathy.
+ - Make your goal to attend to your underlying needs and to aim for a resolution so satisfying that everyone involved has their needs met also.
+ - Some people use NVC to respond compassionately to themselves, some to create greater depth in their personal relationships, and still others to build effective relationships at work or in the political arena. Worldwide, NVC is used to mediate disputes and conflicts at all levels.
+ - Remember that whatever anyone does, it is an effort to meet a need.
+ - My anger tells me firstly that there’s a need of mine that’s not getting met.
+ - Analyses of others are actually expressions of our own needs and values.
+ - If we become skilled in giving ourselves empathy, we often experience in just a few seconds a natural release of energy which then enables us to be present with the other person. If this fails to happen, however, we have a couple of other choices.
+ - The number one rule of our training is empathy before education.
+ - When it comes to giving advice, never do so unless you’ve first received a request in writing, signed by a lawyer.
+ - It’s never what people do that makes us angry; it’s what we tell ourselves about what they did.
+ - Every moment each human being is doing the best we know at that moment to meet our needs. We never do anything that is not in the service of a need, there is no conflict on our planet at the level of needs. We all have the same needs. The problem is in strategies for meeting the needs.
+ - When people hear needs, it provokes compassion.
+ - Not getting our needs fulfilled is painful – but it’s a sweet pain, not suffering, which is what comes from life-alienated thinking and interpretation.
+ - Empathize with silence by listening for the feelings and needs behind it.
+ - If we want to make meetings productive, we need to keep track of those whose requests are on the table.
+ - What all the basic religions are saying is this: Don’t do anything that isn’t play.
+ - I have tried to integrate the spirituality into the training in a way that meets my need not to destroy the beauty of it through abstract philosophizing.
+ - Get very clear about the kind of world we would like and then start living that way.
+ - Understanding and connection can transcend conflict.
+ - The more we empathize with the other party, the safer we feel.
+ - NO is always a YES to something else.
+ - Judgments of others contribute to self-fulfilling prophecies.
+ - We recognize that real educational reform is essential if today’s and tomorrow’s children are to live in a more peaceful, just, and sustainable world.
+ - With empathy we don’t direct, we follow. Don’t just do something, be there.
+ - They have most likely said it because they have an unmet need.
+
+220 quotes

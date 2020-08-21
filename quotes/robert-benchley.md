@@ -1,0 +1,102 @@
+ - Drawing on my fine command of the English language, I said nothing.
+ - This is a test. It is only a test. Had it been an actual job, you would have received raises, promotions, and other signs of appreciation.
+ - There is no such place as Budapest. Perhaps you are thinking of Bucharest, and there is no such place as Bucharest, either.
+ - Every boy should have two things: a dog and a mother who lets him have one.
+ - The freelance writer is a man who is paid per piece or per word or perhaps.
+ - It took me fifteen years to discover I had no talent for writing, but I couldn’t give it up because by that time I was too famous.
+ - A boy can learn a lot from a dog: obedience, loyalty, and the importance of turning around three times before lying down.
+ - Opera is when a guy gets stabbed in the back and, instead of bleeding, he sings.
+ - I have tried to know absolutely nothing about a great many things, and I have succeeded fairly well.
+ - Birds which are the same color as the foliage in which they nest are less likely to be disturbed by other birds who want to drop in and chat, and therefore last longer.
+ - After an author has been dead for some time, it becomes increasingly difficult for his publishers to get a new book out of him each year.
+ - There are several ways to apportion the family income, all of them unsatisfactory.
+ - Central Park is the grandiose symbol of the front yard each child in New York hasn’t got.
+ - In America there are two classes of travel – first class, and with children.
+ - Drinking makes such fools of people, and people are such fools to begin with that it’s compounding a felony.
+ - The wise man thinks once before he speaks twice.
+ - In Milwaukee last month a man died laughing over one of his own jokes. That’s what makes it so tough for us outsiders. We have to fight home competition.
+ - The only cure for a real hangover is death.
+ - If you think that you have caught a cold, call in a good doctor. Call in three good doctors and play bridge.
+ - My only solution for the problem of habitual accidents is to stay in bed all day. Even then, there is always the chance that you will fall out.
+ - Anything can happen, but it usually doesn’t.
+ - Anyone can do any amount of work, provided it isn’t the work he is supposed be doing at that moment.
+ - There is probably no more obnoxious class of citizen, taken end for end, than the returning vacationist.
+ - She sleeps alone at last.
+ - There may be said to be two classes of people in the world; those who constantly divide the people of the world into two classes and those who do not.
+ - A real hangover is nothing to try out family remedies on. The only cure for a real hangover is death.
+ - People who begin sentences with “I may be old-fashioned but – ” are usually not only old-fashioned but wrong. I never thought the time would come when I should catch myself leading off with that crack. But I feel it coming on right now.
+ - Streets full of water. Please Advise.
+ - The art of cursing people seems to have lost its tang since the old days when a good malediction took four deep breaths to deliverand sent the outfielders scurrying toward the fence to field.
+ - I never liked bananas much anyway. Two-thirds of the way down even one banana I am willing to concede defeat smilingly and give the rest to the nearest monkey.
+ - Most of the arguments to which I am party fall somewhat short of being impressive, owing to the fact that neither I nor my opponent knows what we are talking about.
+ - Charlemagne either died or was born or did something with the Holy Roman Empire in 800.
+ - I can’t bring myself to say, ‘Well, I guess I’ll be toddling along.’ It isn’t that I can’t toddle. It’s just that I can’t guess I’ll toddle.
+ - Defining and analyzing humor is a pastime of humorless people.
+ - Nothing makes a man feel older than to hear a band coming up the street and not to have the impulse to rush downstairs and out on to the sidewalk.
+ - The naturalistic literature of this country has reached such a state that no family of characters is considered true to life whichdoes not include at least two hypochondriacs, one sadist, and one old man who spills food down the front of his vest.
+ - A man may take care of a furnace for twenty-five years and still forget to duck his head when he starts going down the cellar stairs.
+ - The Great Arizona Desert is full of the bleaching bones of people who waited for me to start something.
+ - The pencil sharpener is about as far as I have ever got in operating a complicated piece of machinery with any success.
+ - Anyone will be glad to admit that he knows nothing about beagling, or the Chinese stock market, or ballistics, but there is not a man or woman alive who does not claim to know how to cure hiccoughs.
+ - Except for an occasional heart attack I feel as young as I ever did.
+ - This congestion in the post offices is due to what are technically known as “regulations” but what are really a series of acrostics and anagrams devised by some officials who got around a table one night and tried to be funny.
+ - Why don’t you get out of that wet coat and into a dry martini?
+ - I don’t trust a bank that would lend money to such a poor risk.
+ - Who said time machines haven’t been built yet? They already exist. They’re called books.
+ - In preparing the soil for planting, you will need several tools. Dynamite would be a beautiful thing to use, but it would have a tendency to get the dirt into the front-hall and track up the stairs.
+ - It has always seemed to me that the most difficult part of building a bridge would be the start.
+ - I do most of my work sitting down; that’s where I shine.
+ - You won’t find one fish in a million that has enough sense to come in when it rains.
+ - There seems to be no lengths to which humorless people will not go to analyze humor. It seems to worry them.
+ - You want to go easy on the suicide stuff – first thing you know, you’ll ruin your health.
+ - All laughter is a muscular rigidity spasmodically relieved by involuntary twitching.
+ - Breaking the ice in the pitcher seems to be a feature of the early lives of all great men.
+ - I once heard of a murderer who propped his two victims up against a chess board in sporting attitudes and was able to get as far as Seattle before his crime was discovered.
+ - But compared with the task of selecting a piece of French pastry held by an impatient waiter a move in chess is like reaching for a salary check in its demand on the contemplative faculties.
+ - There is probably no moment more appalling than that in which the tongue comes suddenly upon the ragged edge of a space from which the old familiar filling has disappeared.
+ - It is rather to be chosen than great riches, unless I have omitted something from the quotation.
+ - It was one of those plays in which all of the actors unfortunately enunciated very clearly.
+ - Work is a form of nervousness.
+ - If Shakespeare were alive today and writing comedy for the movies, he would be the head-liner for the Mack Sennett studios.
+ - I never knew anyone yet who got up at six who did anything more useful between that time and breakfast than banging a tennis ballup against the side of the house, waiting for the more civilized members of the party to get up.
+ - I know I’m drinking myself to a slow death, but then I’m in no hurry.
+ - I am pretty sure that, if you will be quite honest, you will admit that a good rousing sneeze, one that tears open your collar and throws your hair into your eyes, is really one of life’s sensational pleasures.
+ - Traveling with children corresponds roughly to traveling third class in Bulgaria.
+ - The biggest obstacle to professional writing is the necessity for changing a typewriter ribbon.
+ - If there is a streak of ham anywhere in an actor, Shakespeare will bring it out.
+ - The ideal age for a boy to own a dog is between forty-five and fifty.
+ - Great literature must spring from an upheaval in the author’s soul. If that upheaval is not present then it must come from the works of any other author which happens to be handy and easily adapted.
+ - All that a spectator gets out of the game is fresh air, the comical articles in his program, the sight of twenty-two young men rushing about in mysterious formations, and whatever he brought in his flask.
+ - I have been told by hospital authorities that more copies of my works are left behind by departing patients than those of any other author.
+ - Even nowadays a man can’t step up and kill a woman without feeling just a bit unchivalrous.
+ - There seems to be a common strain of miserliness in the American people when it comes to throwing away toothpaste tubes which havea little left in the bottom.
+ - At fifteen one is first beginning to realize that everything isn’t money and power in this world, and is casting about for joys that do not turn to dross in one’s hands.
+ - In a house where there are small children the bathroom soon takes on the appearance of the Old Curiosity Shop.
+ - Infants need the most sleep, and, what is more, get it. Stunning them with a soft, padded hammer is the best way to insure their getting it at the right times.
+ - You might think that after thousands of years of coming up too soon and getting frozen, the crocus family would have had a little sense knocked into it.
+ - Dachshunds are ideal dogs for small children, as they are already stretched and pulled to such a length that the child cannot do much harm one way or the other.
+ - One cubic foot less of space and it would have constituted adultery.
+ - Other men wear white suits in summer and it doesn’t seem to bother them. But my white suit seems to be a little whiter than theirs. I think also that it may have something written on the back of it, although I can’t find it when I take the suit off.
+ - A great many people have come up to me and asked how I manage to get so much work done and still keep looking so dissipated.
+ - Sheer madness is, of course, the highest possible brow in humor.
+ - One of the chief duties of the fan is to engage in arguments with the man behind him. This department of the game has been allowed to run down fearfully.
+ - We are constantly being surprised that people did things well before we were born.
+ - If Mr. Einstein doesn’t like the natural laws of the universe, let him go back to where he came from.
+ - A dog teaches a boy fidelity, perseverance, and to turn around three times before lying down.
+ - The surest way to make a monkey of a man is to quote him. That remark in itself wouldn’t make any sense if quoted as it stands.
+ - We call ourselves a free nation, and yet we let ourselves be told what cabs we can and can’t take by a man at a hotel door, simply because he has a drum major’s uniform on.
+ - The Ultimate Day really begins the night before, when you sit up until one o’clock trying to get things into trunk and bags. This is when you discover the well-known fact that summer air swells articles to twice or three times their original size.
+ - For a nation which has an almost evil reputation for bustle, bustle, bustle, and rush, rush, rush, we spend an enormous amount of time standing around in line in front of windows, just waiting.
+ - I haven’t been abroad in so long that I almost speak English without an accent now.
+ - One of the easiest forms of pretense to break down is the pretense of enthusiasm for exotic foods. Just bring on the exotic foods.
+ - An ardent supporter of the hometown team should go to a game prepared to take offense, no matter what happens.
+ - England and America should scrap cricket and baseball and come up with a new game that they both can play. Like baseball, for example.
+ - It is one of the most discouraging experiences I have ever had, not forgetting the time when I winked at the Queen Mother in London once.
+ - I am more the inspirational type of speller. I work on hunches rather than mere facts, and the result is sometimes open to criticism by purists.
+ - There is a note in the front of the volume saying that no public reading may be given without first getting the author’s permission. It ought to be made much more difficult to do than that.
+ - I once heard a woman laugh at that most tragic moment in all drama, the off-stage shot in “The Wild Duck,” and I afterward had her killed, so there will be no more of that out of her.
+ - Next to a shot of some good, habit-forming narcotic, there is nothing like travelling alone as a ’builder-upper.
+ - The most common of all antagonisms arises from a man’s taking a seat beside you on the train, a seat to which he is completely entitled.
+ - Anyone who tries to keep track of what is happening in China is going to end up by wearing all the skin of his left ear from twirling around on it.
+
+100 quotes

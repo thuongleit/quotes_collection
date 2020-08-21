@@ -1,0 +1,22 @@
+ - Think before you act: it’s not your money.
+ - Cash in must exceed cash out.
+ - The easiest way of making money is to stop losing it.
+ - Most people don’t manage to the utmost of their ability because they don’t want to.
+ - Management capability is always less than the organization actually needs.
+ - Without the right attitude, a business with everything going for it will fail.
+ - No executive devotes effort to proving himself wrong.
+ - Never ignore a gut feeling, but never believe that it’s enough.
+ - The first myth of management is that it exists.
+ - If sophisticated calculations are needed to justify an action, don’t do it.
+ - In getting good results team leaders become conductor rather than driver, enabling others to play the right music, not by hands-on domination of all decisions and execution, but by providing inspiration, motivation and stimulus.
+ - All good management is the expression of one great idea.
+ - Successful innovation has consistently proved to be fluid and flexible, fast and furious – that is, passionate.
+ - If you are attempting the impossible, you will fail.
+ - Effective management always means asking the right question.
+ - Things have to be made to happen in a way you want them to happen. Without management, without the intervention of organized willpower the desired result simply cannot be obtained.
+ - Here lies one of the world’s rare generalized TINAs. There Is No Alternative to creativity and innovation: these days, obscurantism and conservatism will do for you every time.
+ - No talent in management is worth more than the ability to master facts-not just any facts, but the ones that provide the best answers.
+ - Managers are to information as alcoholics are to booze. They consume enormous amounts, constantly crave more, but have great difficulty in digesting their existing intake.
+ - Either an executive can do his job or he can’t.
+
+20 quotes

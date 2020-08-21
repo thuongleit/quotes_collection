@@ -1,0 +1,25 @@
+ - I sing a bit and play guitar.
+ - Game of Thrones is great. Love it.
+ - I’m estranged from my father and that relationship, as a young man, is incredibly important. It’s probably responsible for the man I’ve become.
+ - There’s no perfect relationship. All relationships are work. If you put in the work, you’ll reap the rewards.
+ - My mother never married my father. She was married to and divorced from another man, then she married and divorced my stepfather and then, ultimately, they ended up getting back together.
+ - When you release endorphins, you just feel good.
+ - Having a profile means you have to be cautious of who you let into your world, as you don’t know if they’re being genuine or not, but it’s more that it can be a strain on your relationships.
+ - I don’t have a type. But one thing I can say from my dating experience is that a physical attraction will only take you so far. So you definitely have to have a strong intellectual connection as well.
+ - I’d like to meet a nice girl and leave all those ‘hottest bachelor’ lists behind.
+ - You connect with who you connect with, and if your feelings are strong enough then you’ll make that work.
+ - I do have the cheesiest of cheesy chat-up lines used on me.
+ - I never really had that father figure to look up to. I think that’s the reason I’m so ambitious. I felt like I wasn’t appreciated as a child so I wanted to prove my worth as an adult, as an actor.
+ - I had a relatively tumultuous childhood.
+ - Fame introduced me to a world of instant gratification and decadence I hadn’t seen before.
+ - I start nearly every day with a workout.
+ - If my shirt’s off all the time on national TV, with 20 million people watching, I want to look my best.
+ - I don’t think I’m destined to be the eternal bachelor.
+ - It’s a privilege to act, and you have to protect and cherish it.
+ - You should only be in a relationship if it adds to your life.
+ - I didnt really watch Dallas growing up, as I was a bit young and into other things, like sports.
+ - The reason so many celebrities try to keep things secret is you want the chance to get to know someone without the glare of public scrutiny.
+ - I think there are shows that are long-running and successful, where some or all of the cast members hate each other, but I think it’s a lot easier to have an environment where everyone feels secure and supported to do the best work possible.
+ - I went out with the same girl throughout all four years of high school.
+
+23 quotes

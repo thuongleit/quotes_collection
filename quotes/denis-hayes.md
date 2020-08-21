@@ -1,0 +1,22 @@
+ - I feel more confident than ever that the power to save the planet rests with the individual consumer.
+ - Zeroes are important. A million seconds ago was last week. A billion seconds ago, Richard Nixon resigned the presidency. A trillion seconds ago was 30,000 BC, and early humans were using stone tools.
+ - Listen up, you couch potatoes: each recycled beer can saves enough electricity to run a television for three hours.
+ - An acre of windy prairie could produce between $4,000 and 10,000 worth of electricity per year – which is far more than the value of the land’s crop of corn or wheat.
+ - The sunshine that strikes American roads each year contains more energy than all the fossil fuels used by the entire world.
+ - As a student of conservation biology, I believe that characteristics with survival value will ultimately prevail. There is no survival value in pessimism. If you think failure is inevitable, that view will probably become self-fulfilling.
+ - Under communism, prices were not allowed to reflect economic reality. Under capitalism, prices don’t reflect ecological reality. In the long run, the capitalist flaw – if uncorrected – may prove to be the more catastrophic.
+ - Asbestos, EMFs, and CFCs have given us a degree of humility. When yesterday’s “triumph of modern chemistry” turns out instead to be today’s deadly threat to the global environment, it is legitimate to ask what else we don’t know.
+ - It is already too late to avoid mass starvation.
+ - By the year 2000, such renewable energy sources could provide 40 percent of the global energy budget; by 2025, humanity could obtain 75 percent of its energy from solar resources.
+ - When civilization stands at the edge of a cliff, a step forward doesn’t make much sense.
+ - America has the technology and resources to meet all its energy needs while safeguarding the earth’s climate. The urgent question now is, ‘Do we have the will?’ At least one city does, and I’m proud to live in it.
+ - Earth Day gathered up those strands, and dozens more, and knitted them together in the public consciousness as “environmental” issues. The nation was pretty startled when 20 million people hit the streets. Congress, which had adjourned for the day to go back to its districts, was blown away.
+ - There really wasn’t an environmental movement 30 years ago. The Sierra Club national office in 1969 consisted of one full-time volunteer.
+ - When we held the first Earth Day, everyone said it was a success because of the huge turnout. It was probably the largest planned event across the country.
+ - We got everyone’s attention, but we didn’t solve any environmental problems.
+ - I suppose I’d characterize myself as having a faith-based optimism. My faith is parental and Darwinian.
+ - Build high-speed, electrified trains over the most-traveled corridors. It’sreally hard to power carbon-free airplanes, but electrified trains are much easier. We’ll be a half century behind the Japanese, but better late than never.
+ - There are a few obvious consequences and perhaps one subtle possibility. One obvious thing is that, to stimulate the economy, President Obama has committed to creating millions of green jobs that will leave a legacy – much as Roosevelt’s public works did during the new deal.
+ - I would love to see a fundamental re-thinking of whether we truly want to be the world’s largest debtor nation, feeding an insatiable desire for mall-crawling with cheaply made crap from all over the world.
+
+20 quotes

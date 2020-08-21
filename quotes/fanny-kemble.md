@@ -1,0 +1,30 @@
+ - Better trust all, and be deceived, And weep that trust and that deceiving, Than doubt one heart, that if believed Had blessed one’s life with true believing.
+ - Place, time, life, death, earth, heaven are divisions and distinctions we make, like the imaginary lines we trace upon the surface of the globe.
+ - The most intense curiosity and excitement prevailed, and though the weather was uncertain, enormous masses of densely packed people lined the road, shouting and waving hats and handkerchiefs as we flew by them.
+ - Simplicity is a great element of good breeding.
+ - An actor’s life is the shadow of a cloud, the echo of a sound, the memory of a dream, nothing come of nothing. The finest actor does not create, he is but a translator of another man’s work.
+ - I never desire to know anything of the detail of political measures, lest even those which I think best should lose anything of their intrinsic value to me, by seeing what low, paltry, personal motives and base machinery and dirty hands have helped to bring them about.
+ - Yesterday morning I amused myself with an exercise of a talent I once possessed, but have so neglected that my performance might almost be called an experiment. I cut out a dress for one of the women.
+ - Modesty is a diamond setting to female beauty.
+ - The death I should prefer would be to break my neck off the back of a good horse at a full gallop on a fine day.
+ - The large and rapid fortunes by which vulgar and ignorant people become possessed of splendid houses, splendidly furnished, do not of course, give them the feelings and manners of gentle folks.
+ - I want to do everything in the world that can be done.
+ - The spring is already here with her hands full of flowers.
+ - Those that we love never alter, unless we cease to love them...
+ - Christmas is a season of such infinite labour, as well as expense in the shopping and present-making line, that almost every woman I know is good for nothing in purse and person for a month afterwards, done up physically, and broken down financially.
+ - I have been taking my daily walk round the island, and visited the sugar mill and the threshing mill again.
+ - The master’s irresponsible power has no such bound.
+ - Politics of all sorts, I confess, are far beyond my limited powers of comprehension. Those of this country as far as I have been able to observe, resolve themselves into two great motives. The aristocratic desire of elevation and separation, and the democratic desire of demolishing and levelling.
+ - The plodding thrift and scrupulous integrity and long-winded patient industry of our business men of the last century are out of fashion in these “giddy-paced” times, and England is forgetting that those who make haste to be rich can hardly avoid much temptation and some sin.
+ - A great number of the women are victims to falling of the womb and weakness in the spine; but these are necessary results of their laborious existence, and do not belong either to climate or constitution.
+ - Your theory of partial immortality is abhorrent to me. I would rather disbelieve in the immortality of my own soul than suppose the boon given to me was withheld from any of my fellow creatures.
+ - I have sometimes been haunted with the idea that it was an imperative duty, knowing what I know, and having seen what I have seen, to do all that lies in my power to show the dangers and the evils of this frightful institution.
+ - Carols of gladness ring from every tree.
+ - Maids must be wives and mothers to fulfill the entire and holiest end of woman’s being.
+ - The drama is the looking-glass in which we see the hideousness of vice and the beauties of virtue.
+ - When marriage is what it ought to be, it is indeed the very happiest condition of existence.
+ - The vast concourse of people who had assembled to witness the triumphant arrival of the successful travellers was of the lowest orders of mechanics and artisans, among whom great distress and a dangerous spirit of discontent with the government at that time prevailed.
+ - I have been out again on the river, rowing. I find nothing new.
+ - They frequently find the truth who do not seek it, they who do, frequently lose it.
+
+28 quotes

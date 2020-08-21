@@ -1,0 +1,42 @@
+ - Life’s a game made for everyone, and love is the prize. ~~Avicii
+ - Love without action is meaningless and action without love is irrelevant. ~~Deepak Chopra
+ - To Love is to reach God. ~~Rumi
+ - Love is the only way to rescue humanity from all ills. ~~Leo Tolstoy
+ - Love is not words, it’s actions, and love isn’t feelings, it’s a decision. ~~Steven Furtick
+ - The opposite of love is not hate. It is fear. ~~Gary Zukav
+ - O Love, O pure deep Love, be here, be now, be all... ~~Rumi
+ - We are born of love. Love is our mother. ~~Rumi
+ - Whatever the question, love is the answer. ~~Wayne W. Dyer
+ - So love is the recognition of oneness in a world of duality. This is the birth of God into the world of form. Love makes the world less worldly, less dense, more transparent to the divine dimension, the light of consciousness itself. ~~Eckhart Tolle
+ - Love is wise – Hatred is foolish. ~~Bertrand Russell
+ - Don’t waste another minute dealing with a toxic, negative, energy-draining person. Some people are wired for negativity. They love being argumentative, combative and abusive. Run for your life as quickly as possible. ~~Les Brown
+ - God’s love is there for you whether or not you feel you deserve love. It is simply always there. ~~Thomas S. Monson
+ - Love is the Song of the Soul singing to God. ~~Paramahansa Yogananda
+ - The feeling of love is the highest frequency you can emit. The greater the love you feel and emit, the greater the power you are harnessing. ~~Rhonda Byrne
+ - Love is a hero’s journey, and the hero’s journey is a noble but difficult path. ~~Marianne Williamson
+ - Love is a never ending smile. ~~Ronnie James Dio
+ - Love is where you find it. ~~Kurt Vonnegut
+ - Only love can bring us peace. And the experience of love is a choice we make, a mental decision to see love as the only real purpose and value in any situation. ~~Marianne Williamson
+ - Between what is said and not meant, and what is meant and not said, most of love is lost. ~~Khalil Gibran
+ - It doesn’t matter what blood or race or creed or color. Love is love and it breaks all boundaries and you just see it right away. ~~Michael Jackson
+ - Strength is Life, Weakness is Death. Expansion is Life, Contraction is Death. Love is Life, Hatred is Death. ~~Swami Vivekananda
+ - A heart filled with love is like a phoenix that no cage can imprison. ~~Rumi
+ - Love is a state of temporary psychosis. ~~Sigmund Freud
+ - Love is evil, spell it backwards, I’ll show ya. ~~Eminem
+ - Love is not self-sacrifice, but the most profound assertion of your own needs and values. It is for your own happiness that you need the person you love, and that is the greatest compliment, the greatest tribute you can pay to that person. ~~Ayn Rand
+ - We are not human beings having a spiritual experience, we are spiritual beings having a human experience and Infinite love is the only truth; everything else is an illusion. ~~Pema Chödrön
+ - There is no pit so deep, that God’s love is not deeper still. ~~Corrie ten Boom
+ - Love is the law, love under will. ~~Aleister Crowley
+ - Sex with love is the greatest thing in life. But sex without love – that’s not so bad either. ~~Mae West
+ - I am an Instrument of Nature. Love is my message. ~~Michael Jackson
+ - Money is not the most important thing in the world. Love is. Fortunately, I love money. ~~Jackie Mason
+ - To one who has faith, no explanation is necessary. To one without faith, no explanation is possible. ~~Thomas Aquinas
+ - God’s love is too great to be confined to any one side of a conflict or to any one religion. ~~Desmond Tutu
+ - Love is an act of faith. ~~Erich Fromm
+ - Love is not about property, diamonds and gifts. It is about sharing your very self with the world around you. ~~Pablo Neruda
+ - Love is a serious mental disease. ~~Plato
+ - Deep in earth my love is lying And I must weep alone. ~~Edgar Allan Poe
+ - To feel the love of people whom we love is a fire that feeds our life. ~~Pablo Neruda
+ - People must learn to hate and if they can learn to hate, they can be taught to love. ~~Nelson Mandela
+
+40 quotes

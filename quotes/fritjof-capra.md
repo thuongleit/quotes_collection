@@ -1,0 +1,34 @@
+ - Ecology and spirituality are fundamentally connected, because deep ecological awareness, ultimately, is spiritual awareness.
+ - Understanding of life begins with the understanding of patterns.
+ - During periods of relaxation after concentrated intellectual activity, the intuitive mind seems to take over and can produce the sudden clarifying insights which give so much joy and delight.
+ - Whenever we look at life, we look at networks.
+ - A sustainable human community is designed in such a manner that its ways of life, technologies, and social institutions honor, support, and cooperate with nature’s inherent ability to sustain life.
+ - At the deepest level of ecological awareness you are talking about spiritual awareness. Spiritual awareness is an understanding of being imbedded in a larger whole, a cosmic whole, of belonging to the universe.
+ - Genuine mental health would involve a balanced interplay of both modes of experience, a way of life in which one’s identification with the ego is playful and tentative rather than absolute and mandatory, while the concern with material possessions is pragmatic rather than obsessive.
+ - The mystic and the physicist arrive at the same conclusion; one starting from the inner realm, the other from the outer world. The harmony between their views confirms the ancient Indian wisdom that Brahman, the ultimate reality without, is identical to Atman, the reality within.
+ - The elements of life are dynamic patterns of mass and energy, events rather than objects.
+ - In the end, the aggressors always destroy themselves, making way for others who know how to cooperate and get along. Life is much less a competitive struggle for survival than a triumph of cooperation and creativity.
+ - The more complex the network is, the more complex its pattern of interconnections, the more resilient it will be.
+ - Whenever the essential nature of things is analysed by the intellect, it must seem absurd or paradoxical. This has always been recognized by the mystics, but has become a problem in science only very recently.
+ - Zen phrase says The instant you speak about a thing you miss the mark.
+ - Mystics understand the roots of the Tao but not its branches; scientists understand its branches but not its roots. Science does not need mysticism and mysticism does not need science; but man needs both.
+ - The phenomenon of emergence takes place at critical points of instability that arise from fluctuations in the environment, amplified by feedback loops. Emergence results in the creation of novelty, and this novelty is often qualitatively different from the phenomenon out of which it emerged.
+ - As long as we do science, some things will always remain unexplained.
+ - Before the 1940s the terms “system” and “systems thinking” had been used by several scientists, but it was Bertalanffy’s concepts of an open system and a general systems theory that established systems thinking as a major scientific movement.
+ - One of the key insights of the systems approach has been the realization that the network is a pattern that is common to all life. Wherever we see life, we see networks.
+ - Our Western science, ever since the 17th century, has been obsessed with the notion of control, of man dominating nature. This obsession has led to disaster.
+ - Science does not need mysticism and mysticism does not need science but man needs both.
+ - The more we study the major problems of our time, the more we come to realise that they cannot be understood in isolation. They are systemic problems, which means that they are interconnected and interdependent.
+ - With the subsequent strong support from cybernetics, the concepts of systems thinking and systems theory became integral parts of the established scientific language, and led to numerous new methodologies and applications – systems engineering, systems analysis, systems dynamics, and so on.
+ - Tektology was the first attempt in the history of science to arrive at a systematic formulation of the principles of organization operating in living and nonliving systems.
+ - For children, most importantly, being in the garden is something magical.
+ - The influence of modern physics goes beyond technology. It extends to the realm of thought and culture where it has led to a deep revision in man’s conception of the universe and his relation to it.
+ - In modern physics, the universe is experienced as a dynamic inseparable whole which always includes the observer in an essential way.
+ - A page from a journal of modern experimental physics will be as mysterious to the uninitiated as a Tibetan mandala. Both are records of enquiries into the nature of the universe.
+ - When the concept of human spirit is understood as the mode of consciousness in which the individual feels connected to the Cosmos as a whole, it becomes clear that ecological awareness is spiritual in its deepest sense.
+ - Both the physicist and the mystic want to communicate their knowledge, and when they do so with words their statements are paradoxical and full of logical contradictions.
+ - Subatomic particles have no meaning as isolated entities, but can only be understood as interconnections between the preparation of an experiment and the subsequent measurement.
+ - Knowledge cannot be separated from a certain way of life which becomes its living manifestation. To acquire mystical knowledge means to undergo a transformation; one could even say that the knowledge is the transformation.
+ - The basic pattern of life is a network. Whenever you see life, you see networks. The whole planet, what we can term ‘Gaia’ is a network of processes involving feedback tubes. Humans are part of the larger whole, Gaia.
+
+32 quotes

@@ -1,0 +1,48 @@
+ - We have not touched the stars, nor are we forgiven, which brings us back to the hero’s shoulders and the gentleness that comes, not from the absence of violence, but despite the abundance of it.
+ - I sleep. I dream. I make up things that I would never say. I say them very quietly.
+ - You go to work the next day pretending nothing happened. Your co-workers ask if everything’s okay and you tell them you’re just tired. And you’re trying to smile. And they’re trying to smile.
+ - Here I am leaving you clues. I am singing now while Rome burns. We are all just trying to be holy. My applejack, my silent night, just mash your lips against me. We are all going forward. None of us are going back.
+ - I swear, I end up feeling empty, like you’ve taken something out of me and I have to search my body for scars.
+ - I am singing now while Rome burns.
+ - Who am I? I’m just a writer. I write things down. I walk through your dreams and invent the future. Sure, I sink the boat of love, but that comes later. And yes, I swallow glass, but that comes later.
+ - Oh, the things we invent when we are scared and want to be rescued.
+ - Do we simply stare at what is horrible and forgive it?
+ - I’m not suggesting the world is good, that life is easy, or that any of us are entitled to better. But please, isn’t this the kind of thing you talk about in somber tones, in the afternoon, with some degree of hope and maybe even a handful of strategies?
+ - Everyone needs a place. It shouldn’t be inside of someone else.
+ - I’m bleeding, I’m not just making conversation.
+ - Love always wakes the dragon and suddenly flames everywhere.
+ - You play along, because you want to die for love, you always have.
+ - He was pointing at the moon, but I was looking at his hand.
+ - If you love me, Henry, you don’t love me in a way I understand.
+ - The way you slam your body into mine reminds me I’m alive, but monsters are always hungry, darling.
+ - Sorry about the blood in your mouth. I wish it was mine. I couldn’t get the boy to kill me, but I wore his jacket for the longest time.
+ - Here is the repeated image of the lover destroyed.
+ - We have not touched the stars, nor are we forgiven...
+ - Is that too much to expect? That I would name the stars for you? That I would take you there? The splash of my tongue melting you like a sugar cube?
+ - Sometimes you get so close to someone you end up on the other side of them.
+ - Tell me about the dream where we pull the bodies out of the lake and dress them in warm clothes again.
+ - Tell me we’re dead and I’ll love you even more.
+ - I don’t know where I end and the world begins. My best guess? Skin. It’s the only actual boundary between the body and the world, between a body and any other body.
+ - Someone is digging your grave right now.
+ - Okay, so I’m the dragon. Big deal. You still get to be the hero.
+ - This is where the evening splits in half, Henry, love or death. Grab an end, pull hard, and make a wish.
+ - Fairy tales have rules. You are a princess or you aren’t. You are pure at heart or you aren’t. If you are pure at heart, or lucky, you might catch a break.
+ - We can do anything. It’s not because our hearts are large, they’re not, it’s what we struggle with. The attempt to say Come over. Bring your friends. It’s a potluck, I’m making pork chops, I’m making those long noodles you love so much.
+ - You wanted happiness, I can’t blame you for that, and maybe a mouth sounds idiotic when it blathers on about joy but tell me you love this, tell me you’re not miserable.
+ - Actually, you said Love, for you, is larger than the usual romantic love. It’s like a religion. It’s terrifying. No one will ever want to sleep with you.
+ - Tell me how all this, and love too, will ruin us. These, our bodies, possessed by light. Tell me we’ll never get used to it.
+ - Everything affects my poetry, every day something happens that changes me forever. I’m susceptible and plastic, thin-skinned and moody.
+ - The light is no mystery, the mystery is that there is something to keep the light from passing through.
+ - You see, I take the parts that I remember and stitch them back together to make a creature that will do what I say or love me back.
+ - The entire history of human desire takes about seventy minutes to tell. Unfortunately, we don’t have that kind of time.
+ - Moonlight making crosses on your body, and me putting my mouth on every one.
+ - Here I am in a rabbit run, here I am in a valley of pine, waiting for you to find me. I could pretend I’m speaking to everyone – assume a middle distance and transcend myself – but I’m taking to you and you know it.
+ - He could build a city. Has a certain capacity. There’s a niche in his chest where a heart would fit perfectly and he thinks if he could just maneuver one into place – well then, game over.
+ - When you have nothing to say, set something on fire.
+ - I woke up in the morning and I didn’t want anything, didn’t do anything, couldn’t do it anyway, just lay there listening to the blood rush through me and it never made any sense, anything.
+ - I wouldn’t kill your pony. I’d like to believe it, anyway. I’d like to believe I wouldn’t drag you out in to the woods and leave you there, either. So far, it hasn’t come up.
+ - From the landscape: a sense of scale. From the dead: a sense of scale.
+ - A kid under a tablecloth insists he’s a ghost. A table underneath a tablecloth is, I guess, like the rest of us, only pretending to be invisible.
+ - Wearing your clothes or standing in the shower for over an hour, pretending that this skin is your skin, these hands your hands, these shins, these soapy flanks.
+
+46 quotes

@@ -1,0 +1,21 @@
+ - People with nothing to hide don’t usually feel the need to say so.
+ - If you’re a fighter, you recognize a fighter.
+ - I write about African women, that’s really my topic. I have no shame or qualm in it because it’s a very underrepresented topic, which is part of the reason I started to write.
+ - The best characters are always wretchedly flawed.
+ - My favorite TV shows are Orange Is the New Black, House of Cards, Modern Family, and Veep.
+ - I hate horror movies! I avoid them like the plague. I don’t like getting scared.
+ - A zombie apocalypse isn’t the most jovial situation.
+ - My artistic spirit is not nurtured by blogospheres.
+ - You Americans, you have no idea how much your stuff infiltrates the rest of the world!
+ - Back in the day, I used to read ‘Archie,’ but I haven’t been a comic book aficionado.
+ - I’ve always been attracted to action stuff.
+ - Zimbabweans are so smart and witty and able to weave together tons of situations and experiences into terminologies that are just utterly original.
+ - My assumption is I’m not going to be recognized. But when I am, I’m like, “Dang, you know who I am?” I always think I look so different.
+ - I love writing for other actors, women of African descent and people who are generally underrepresented.
+ - You look at women like Lena Dunham, you look at how women are kind of crafting their own space on the screen. I want to add to that.
+ - I create fictional narratives, but it’s based on literal people.
+ - I always used to say hybrids would rule the world – people who have an understanding of many cultures and can relate to them with ease. And then along came Obama.
+ - All the struggles that were fought for here in the United States for African Americans, you now enjoy the privileges of. You now come here and can enjoy privileges that were fought for by African Americans over several generations.
+ - I don’t care about the quality of the film as a whole, but I loved ‘Salt.’ I loved it!
+
+19 quotes

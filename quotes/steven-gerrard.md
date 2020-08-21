@@ -1,0 +1,65 @@
+ - When I die, don’t bring me to the hospital. Bring me to Anfield. I was born there and will die there.
+ - Don’t visualize beating the keeper, visualize destroying the keeper.
+ - The odds were against us, but we deserve to be where we are.
+ - Liverpool is a massive club and has obviously been very successful over the years.
+ - In football, the hero and legend status is given out far too easily for me.
+ - We are Liverpool Football Club and the expectations are so high.
+ - I’m playing second fiddle to Justin Bieber – Bieber Fever is sweeping our house, and my girls have made it clear I’m no longer their favourite man.
+ - Grilled salmon and brown pasta works for me every time.
+ - I will be the one lifting that trophy, not Paolo Maldini. Imagine me hoisting the trophy. It is an image I have in my mind and I want to make it a reality. We have world-class players and, believe me, they are in the mood to do it. The atmosphere around the club at the moment is just top-class.
+ - Loyalty doesn’t seem to be in the game that much these days where players leave their clubs which made them the stars they are today either to seek personal glory or fill their pockets. But one man serves as the epitome of club loyalty...
+ - It’s probably been the worst three months of my life.
+ - As club captain all I want to do is help us get back up the table and into the Champions League.
+ - If I ever saw one of my team-mates diving, I’d definitely have a word.
+ - Torres was easily the best player I have ever played with in my career. I loved him. And when he approached me and said he wanted out, it was like a knife to the heart.
+ - This club is all about winning trophies and we’ve got a chance of bringing the greatest trophy of them all back to Anfield, so it means a great deal obviously.
+ - I tried to nutmeg him. It never came off and he gave me a slap on the back of the head and told me to start behaving.
+ - I didn’t sleep with the European Cup but it was in my room! It was just special and I just had to have the cup with me, lifting the cup as Liverpool captain was just the best moment of my life.
+ - It’s too easy to blame other people in football.
+ - We’ve proved a lot of people wrong so far but the job is not finished yet and if we come home from Istanbul empty handed then it would be a disaster.
+ - I’m a fan myself and I’m frustrated just as much as them when we get beat.
+ - How can I think of leaving Liverpool after a night like this?
+ - If other people want to talk about my future I can’t control that.
+ - Football is all about winning things as a team but it’s also important to pick up individual awards along the way.
+ - But I it doesn’t matter who scores the goals so long as we win.
+ - I am gonna go into my coaching badges after my England days are finished and I have the time on my international break.
+ - It was difficult knowing one of your cousins had lost his life.
+ - I can play anywhere on the park. Im a bit like that in bed, too.
+ - That win means so much. They got back into the game but I think we showed today that we want to go to the wire. We want to go all the way.
+ - I might be an ambassador.
+ - A mate owned a Bryan Robson top. We were kicking about, and I asked if I could be Robbo for a while. My dad looked out and went ballistic. He wasn’t having his kid dragging the Gerrard name through the gutter. I thought we’d have to move!
+ - We need to forget about mistakes and take the positives.
+ - If you don’t play well, you have a bad game or a nightmare you know that the amount of coverage is worldwide.
+ - I’ve seen the slip a few times. I don’t have to watch something like that to go through the pain again and again and again.
+ - Even now I can say I’d love to finish my career here, and then stay in the game after that.
+ - Against Juventus we were massive underdogs, so to beat them was fantastic.
+ - I’ve got absolutely no intention of ever going to play at another club.
+ - There is going to be a lot asked of me over the next few weeks but I am getting more experience now and learning all the time.
+ - I think we could do with being a little more adventurous in certain areas and push on that little bit more, while a bit of luck also wouldn’t go amiss.
+ - Taking the lead, that was the hard part. To concede after that was a massive disappointment – not good enough.
+ - I was always determined to make it as a footballer, but if things hadn’t worked out, I’d have maybe followed my dad into the building industry.
+ - This does not – ing slip now.
+ - Obviously the fans are very important to me, in fact they mean everything to me and they are the people I try to please when I play.
+ - My message to the fans would be that hopefully I can continue to perform as consistently as I have done this season and lift a trophy for them soon.
+ - Hopefully it’ll give us a bit of luck on the night, but I’m not really a superstitious person.
+ - The Champions League is the competition everyone wants to be in.
+ - I share their frustration at times and I get down just like them when we suffer a bad result.
+ - There’s no doubt that the squad needs strengthening if we are to get back up among the top three because they are operating on another level to us at the moment.
+ - The fact I’ve played well means that on a personal level I have enjoyed the season.
+ - I listen to the phone-ins on the way home and I know how the fans feel.
+ - Everyone is going to be talking about Chelsea and Liverpool but the others are very tough teams.
+ - But I think the Champions League Final puts a massive pressure on every player and the manager, but we’re enjoying the pressure and hopefully we can go there and win it.
+ - To me it’s the best trophy you can win and to bring it back for all them fans that have supported us right through would be something special.
+ - I’ll admit, it gives me a real buzz when I hear my name being chanted and that feeling is the same now as it was when I first broke into the team.
+ - I think everyone around the world knows the tools are there in England’s armoury to do well in a World Cup. The challenge is to go out there and prove it.
+ - How can I think of leaving Liverpool after a night like this? I am really happy with the club. I will be having talks with the chairman and the manager shortly, but it is looking good. Liverpool fans are crazy, they were unbelievable, and I’d like to dedicate this victory to them.
+ - The last player you want the ball to go to is the best player on the planet.
+ - I think it all goes down to who plays the better football on the night.
+ - I think every player listens out for his name being sung and it’s something I really enjoy.
+ - I think we’ve got a lot players in the squad who are more suited to European football at the moment.
+ - I’m born in Liverpool, I’m a Liverpool supporter.
+ - The fans have played a massive part in getting us to where we are, but the job’s not finished.
+ - I have always applied myself the same for club and country.
+ - Kenny Dalglish is a hero of mine and is the best player to ever wear a red shirt.
+
+63 quotes

@@ -1,0 +1,45 @@
+ - The sea was angry that day my friend, like an old man trying to send back soup at a deli.
+ - Into the dark night Resignedly I go, I am not so afraid of the dark night As the friends I do not know, I do not fear the night above As I fear the friends below.
+ - This Englishwoman is so refined, She has no bosom and no behind.
+ - Colours are what drive me most strongly.
+ - O happy dogs of England, Bark well at errand boys, If you lived anywhere else, You would not be allowed to make such an infernal noise.
+ - I’m sorry to say my dear wife is a dreamer, and as she dreams she gets paler and leaner. Then be off to your Dream, with his fly-away hat, I stay with the girls who are happy and fat.
+ - Oh Lion in a peculiar guise, Sharp Roman road to Paradise, Come eat me up, I’ll pay thy toll With all my flesh, and keep my soul.
+ - The human creature is alone in his carapace. Poetry is a strong way out.
+ - I’ll have your heart, if not by gift my knife Shall carve it out. I’ll have your heart, your life.
+ - Why does my muse only speak when she is uhnhappy? She does not, I only listen when I am unhappy.
+ - The flower and fruit of love are mine The ant, the fieldmouse and the mole.
+ - It is the privilege of the rich To waste the time of the poor To water with tears in secret A tree that grows in secret That bears fruit in secret That ripened falls to the ground in secret And manures the parent tree Oh the wicked tree of hatred and the secret The sap rising and the tears falling.
+ - My heart was full of softening showers, I used to swing like this for hours, I did not care for war or death, I was glad to draw my breath.
+ - The religion of Christianity Is mixed of sweetness and cruelty Reject this Sweetness, for she wears A smoky dress out of hell fires.
+ - People who are always praising the past And especially the time of faith as best Ought to go and live in the Middle Ages And be burnt at the stake as witches and sages.
+ - I’m alive today, therefore I’m just as much a part of our time as everybody else. The times will just have to enlarge themselves to make room for me, won’t they, and for everybody else.
+ - Unpopular, lonely and loving, Elinor need not trouble, For if she were not so loving, She would not be so miserable.
+ - My Muse sits forlorn She wishes she had not been born She sits in the cold No word she says is ever told.
+ - Death’s not a separation or alteration or parting; it’s just a one-handled door.
+ - Life may be treacherous, but you can always depend on death.
+ - I like to see cats in movement. A galloping cat is a fine sight. See it cross the road in a streak, cursed by the drivers of motor cars and buses, dodging the butcher’s bicycle, coming safe to the kerb and bellying under its home gate.
+ - All poetry has to do is to make a strong communication. All the poet has to do is listen. The poet is not an important fellow. There will also be another poet.
+ - It is an amiable part of human nature, that we should love our animals; it is even better to love them to the point of folly, than not to love them at all.
+ - I only asked my friends to be friendly and polite, I found them indifferent and censorious; The one I left to silence, the other to reproach: God send me over all such friends victorious.
+ - This is the simplest of all thoughts, that Death must come when we call, although he is a god.
+ - I made Man with too many faults. Yet I love him. And if he wishes, I have a home above for him.
+ - If there wasn’t death, I think you couldn’t go on.
+ - Christianity in the suburb is cheerful. The church is a centre of social activity and those who go to church need never be lonely.
+ - See the cat at love, rolling with its sweetheart, up and over, with shriek and moan. But if a person comes by, they break away, sit separate upon a fence washing their faces – and might never have met at all.
+ - I don’t think Auden liked my poetry very much, he’s very Anglican.
+ - If a lady comes up to you and tells you that your dear mama is lying in a faint on the pavement round the corner, don’t you believe her, don’t have anything to do with her, do not go with her into the cab. It is the White Slave Traffic.
+ - I love people, but I love the thought and memory of them just as much.
+ - Love is not love that wounded bleeds And bleeding sullies slow. Come death within my hands and I Unto my love will go.
+ - But one wants the idea of Death, you know, as something large and unknowable, something that allows a person to stretch himself out. Especially one wants it if one is tired. Or perhaps what one wants is simply a release from sensation, from all consciousness for ever...
+ - I like food, I like stripping vegetables of their skins, I like to have a slim young parsnip under my knife.
+ - You must have some money if you are going to live simply. It need not be much, but you must have some.
+ - Who is this that comes in grandeur, coming from the blazing East? This is he we had not thought of, this is he the airy Christ.
+ - There can be no good art that is international. Art to be vigorous and gesund must use the material at hand.
+ - So I fancy my Muse says, when I wish to die, Oh no, Oh no, we are not yet friends enough, And Virtue also says: We are not yet friends enough.
+ - A man may forgive many wrongs, but he cannot easily forgive anyone who makes it plain that his conversation is tedious.
+ - I may be smelly and I may be old, Rough in my pebbles, reedy in my pools, But where my fish float by I bless their swimming, And I like the people to bathe in me especially women.
+ - Youth is an arithmetical statement of passing interest, each hour eats it up.
+ - The world is come upon me, I used to keep it a long way off, But now I have been run over and I am in the hands of the hospital staff.
+
+43 quotes

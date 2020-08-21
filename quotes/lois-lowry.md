@@ -1,0 +1,87 @@
+ - Take pride in your pain; you are stronger than those who have none.
+ - Keep a green tree in your heart and perhaps the singing bird will come.
+ - The community of the Giver had achieved at such great price. A community without danger or pain. But also, a community without music, color or art. And books.
+ - The fact that I lost my son permeates my being.
+ - The worst part of holding the memories is not the pain. It’s the loneliness of it. Memories need to be shared.
+ - It’s the choosing that’s important, isn’t it?
+ - Every ‘no’ means you are that much closer to a ’yes.
+ - Fear dims when you learn things.
+ - And here in this room, I re-experience the memories again and again it is how wisdom comes and how we shape our future.
+ - There is something about that moment, when literature becomes accessible, and a door of the world opens.
+ - But there’s a whole world waiting, still, and there are good things in it.
+ - What’s important is the preparation for adult life, and the training you’ll receive in your Assignment.
+ - Think only on the climb. Think on what you control.
+ - Today is declared an unscheduled holiday.
+ - The mind can’t explain it, and you can’t make it go away. It’s called love.
+ - I believe without a single shadow of a doubt that it is necessary for young people to learn to make choices. Learning to make right choices is the only way they will survive in an increasingly frightening world.
+ - I have been fortunate. I have done so many things and enjoyed so many things and had such a great life, not to imply that it is ending, but that there aren’t many things that I feel I have left undone.
+ - Evil can do anything, for a price.
+ - I feel sorry for anyone who is in a place where he feels strange and stupid.
+ - We gained control of many things. But we had to let go of others.
+ - Of course they needed to care. It was the meaning of everything.
+ - He wept, and it felt as if the tears were cleansing him, as if his body needed to empty itself.
+ - It is so good to have friends who understand how there is a time for crying and a time for laughing, and that sometimes the two are very close together.
+ - Even trained for years as they all had been in precision of language, what words could you use which would give another the experience of sunshine?
+ - She fell asleep, and it was a sleep as thin as the night clouds, dotted with dreams that came and went like the stars.
+ - It be better, I think, to climb out in search of something, instead of hating, what you’re leaving.
+ - I think ‘The Giver’ is such a moral book, so filled with important truths, that I couldn’t believe anyone would want to suppress it, to keep it from kids.
+ - It was almost December, and Jonas was beginning to be frightened.
+ - There was just a moment when things weren’t quite the same, weren’t quite as they had always been through the long friendship.
+ - I don’t set out to transmit a message. I don’t write with a political point of view. There are no religious overtones. Looking back at my books, I can say, ‘Oh, yes, it is there.’ But it’s not in my mind when I write.
+ - I turn to books for a feeling of companionship: for somebody knowing what I have known.
+ - People do things that turn out badly, often for the most benevolent of reasons.
+ - I’m not terribly conversant with children’s literature in general. I tend to read books for adults, being an adult.
+ - I don’t read young adult or children’s books, now that my grandchildren are beyond the age of my reading to them. I read reviews, and so I’m aware of what’s out there. But I tend not to read the books.
+ - I see all of them. All the colors.
+ - Reading is the most important way to prepare for life.
+ - Because of fear, they made shelter and found food and grew things. For the same reason, weapons were stored, waiting.
+ - Making lists of reasons was sometimes a good way to figure things out.
+ - You eat canned tuna fish and you absorb protein. Then, if you’re lucky, someone give you Dover Sole and you experience nourishment. It’s the same with books.
+ - Once she read a book but found it distasteful because it contained adjectives.
+ - I think I’ve written 40 books, and none of them have been heavy on action. I’m an introspective person.
+ - The life where nothing was ever unexpected. Or inconvenient. Or unusual. The life without colour, pain or past.
+ - If you were to be lost in the river, Jonas, your memories would not be lost with you. Memories are forever.
+ - And they are beginning to realize that the world they live in is a place where the right thing is often hard, sometimes dangerous, and frequently unpopular.
+ - Mama was crying, and the rain made it seem as if the whole world was crying.
+ - Memory is the happiness of being alone.
+ - You may lie.
+ - Sometimes I wish they’d ask for my wisdom more often – there are so many things I could tell them; things I wish they would change. But they don’t want change. Life here is so orderly, so predictable – so painless. It’s what they’ve chosen.
+ - People in the know say The Giver was the first young adult dystopian novel.
+ - I don’t know what you mean when you say ‘the whole world’ or ’generations before him.’I thought there was only us. I thought there was only now.
+ - And it was lonely, to yearn, all alone.
+ - That’s why they call you Seer. You see more than most.
+ - They were satisfied with their lives which had none of the vibrance his own was taking on. And he was angry at himself, that he could not change that for them.
+ - For a contributing citizen to be released from the community was a final decision, a terrible punishment, an overwhelming statement of failure.
+ - Teasing’s part of the fun that comes before kissing.
+ - He hunched his shoulders and tried to make himself smaller in the seat. He wanted to disappear, to fade away, not to exist.
+ - It is very risky. But each time a child opens a book, he pushes open the gate that separates him from Elsewhere.
+ - Things seem more when you’re little. They seem bigger, and distances seem farther.
+ - Ellen had said that her mother was afraid of the ocean, that it was too cold and too big. The sky was, too, thought Annemarie. The whole world was: too cold, too big. And too cruel.
+ - For the first time, he heard something that he knew to be music. He heard people singing. Behind him, across vast distances of space and time, from the place he had left, he thought he heard music too. But perhaps, it was only an echo.
+ - So many of my books, I don’t want to say they have messages, but they have important things to say.
+ - He was free to enjoy the breathless glee that overwhelmed him: the speed, the clear cold air, the total silence, the feeling of balance and excitement and peace.
+ - What if they were allowed to choose their own mate? And chose wrong?
+ - I don’t for one second think about the possibility of censorship when I am writing a new book. I know I am a person who cares about kids and who cares about truth and I am guided by my own instincts, and trust them.
+ - It is much easier to be brave if you do not know everything.
+ - He wept because he was afraid now that he could not save Gabriel. He no longer cared about himself.
+ - Kids deserve the right to think that they can change the world.
+ - It’s a funny thing about names, how they become a part of someone.
+ - The writer after all is only half the book, the other half is the reader.
+ - Writing is hard work, and fun, and requires you to keep your backside in a chair when you would sometimes like to put it elsewhere. So the only wisdom is the advice to keep at it, I guess.
+ - I don’t know what she is now. A stranger, mostly. It’s as if she has become a part of a different world, one that doesn’t include me anymore...
+ - Writing is self employment, so you can make your own schedule.
+ - But then everyone would be burdened and pained. They don’t want that. And that’s the real reason The Receiver is so vital to them, and so honored. They selected me – and you-to lift that burden from themselves.
+ - There will always be a place for bunnies to talk in rhyme, but that’s not what I do.
+ - Gathering Blue’ was a separate book. I wanted to explore what a society might become after a catastrophic world event. Only at the end did I realize I could make it connect to ‘The Giver.
+ - Then I went home to continue my life, which had changed a little, as lives do every day, inching by microspecks forward toward whatever surprises are coming next.
+ - I left home at the correct time but when I was riding along near the hatchery, the crew was separating some salmon, I guess I just got distraught, watching them.
+ - It’s hard to give up the being together with someone.
+ - I was a sidelines child: never class president, never team captain, never the one with the most valentines in my box.
+ - I tend not to think about audience when I’m writing. Many people who read ‘The Giver’ now have their own kids who are reading it. Even from the beginning, the book attracted an audience beyond a child audience.
+ - I have learned over the course of my many years that it is a bad idea, usually, to investigate piteous weeping but always a fine thing to look into a giggle.
+ - Genius disregards the boundaries of propriety. Genius is permitted to shout if shouting is productive.
+ - So actually, there could be parents-of-the-parents-of-the-parents-of-the parents?
+ - We live in times that are in many ways ambiguous. Maybe that’s why kids want precision in what they read – they don’t like that moral ambiguity.
+ - I think of every book as a single entity, and some have later gone on to become a series, often at the request of readers.
+
+85 quotes

@@ -1,0 +1,51 @@
+ - The more you sweat in peace, the less you bleed in war.
+ - Success is sweet, but the secret is sweat.
+ - It doesn’t take a hero to order men into battle. It takes a hero to be one of those men who goes into battle.
+ - When placed in command, take charge.
+ - You can’t help someone get up a hill without getting closer to the top yourself.
+ - True courage is being afraid, and going ahead and doing your job anyhow, that’s what courage is.
+ - Ninety-nine percent of leadership failures are failures of character.
+ - Leadership is a potent combination of strategy and character. But if you must be without one, be without the strategy.
+ - I admire men of character and I judge character not by how men deal with their superiors, but mostly how they deal with their subordinates. And that, to me, is where you find out what the character of a man is.
+ - You learn far more from negative leadership than from positive leadership. Because you learn how not to do it. And, therefore, you learn how to do it.
+ - It’s the sense of duty that keeps you going sometimes when things get very, very rough. Somebody’s got to do it. And if you don’t, who will?
+ - As far as Saddam Hussein being a great military strategist, he is neither a strategist, nor is he schooled in the operational arts, nor is he a tactician, nor is he a general, nor is he a soldier. Other than that, he’s a great military man, I want you to know that.
+ - I believe that forgiving them is god’s function, our job is to arrange the meeting.
+ - I hate war. Absolutely, I hate war.
+ - Fear will keep you alive in a war. Fear will keep you alive in business. There’s nothing wrong with fear.
+ - I am living proof that if you catch prostate cancer early, it can be reduced to a temporary inconvenience, and you can go back to a normal life.
+ - I have seen competent leaders who stood in front of a platoon and all they saw was a platoon. But great leaders stand in front of a platoon and see it as 44 individuals, each of whom has aspirations, each of who wants to live, each of whom wants to do good.
+ - Leadership consists of character and strategy. If you can’t have both, opt for character.
+ - I prided myself on being unflappable even in the most chaotic of circumstances.
+ - Do what is right, not what you think the high headquarters wants or what you think will make you look good.
+ - I get angry at a principle, not a person.
+ - First of all, Saddam did not win the war, even though he says he did, I mean, you know, that’s a joke and everybody in the world knows it.
+ - Any soldier worth his salt should be antiwar. And still there are things worth fighting for.
+ - A professional soldier understands that war means killing people, war means maiming people, war means families left without fathers and mothers.
+ - A very great man once said you should love your enemies and that’s not a bad piece of advice. We can love them but, by God, that doesn’t mean we’re not going to fight them.
+ - How do you fight someone who doesn’t care if they get killed? You accommodate them.
+ - From the time I was twelve years old until I retired last year at the age of fifty-seven, the Army was my life. I loved commanding soldiers and being around people who had made a serious commitment to serve their country.
+ - I am quite confident that in the foreseeable future armed conflict will not take the form of huge land armies facing each other across extended battle lines, as they did in World War I and World War II or, for that matter, as they would have if NATO had faced the Warsaw Pact on the field of battle.
+ - I’d like to think I’m a caring human being.
+ - I don’t consider myself dovish and I certainly don’t consider myself hawkish. Maybe I would describe myself as owlishthat is wise enough to understand that you want to do everything possible to avoid war.
+ - With a chemical alarm, you’re going to build one that is oversensitive because you would rather the alarm go off and give you a false alarm than to err on the other side.
+ - If Saddam were to be replaced tomorrow he would probably be replaced with someone who’s just as bad or worse than he is.
+ - Judge your enemy based upon capabilities, not intent, you have to look at the enemy and really almost make a worst case call every time.
+ - I like to say I’m not a hero.
+ - War is a profane thing.
+ - I may have made my reputation as a general in the Army and I’m very proud of that. But I’ve always felt that I was more than one-dimensional.
+ - What is postwar Iraq going to look like, with the Kurds and the Sunnis and the Shiites? That’s a huge question, to my mind.
+ - To be an effective leader, you have to have a manipulative streak – you have to figure out the people working for you and give each tasks that will take advantage of his strength.
+ - If we invade Iraq and the regime is very close to falling, I’m very, very concerned that the Iraqis will, in fact, use weapons of mass destruction.
+ - Had we taken all of Iraq, we would have been like a dinosaur in the tar pit – we would still be there, and we, not the United Nations, would be bearing the costs of that occupation.
+ - Well, unfortunately, I have always regretted the fact that I have a temper, but I also have, you know, have great love and respect for all of the people that have worked for me. I think like everything else, this is one of those things that has been blown out of proportion.
+ - I was lucky enough to lead a very successful war.
+ - But I would defy anyone to go back over the years and tell me anyone whose career I’ve ruined, anyone whom I’ve driven out of the service, anyone I’ve fired from a job.
+ - If it had been our intention to take Iraq, if it had been our intention to destroy the country, if it had been our intention to overrun the country, we could have done it unopposed.
+ - Going to war without France is like going hunting without an accordion.
+ - It is God’s job to forgive Osama Bin Laden. It is our job to arrange a face to face meeting.
+ - I do hunt, and I do fish, and I don’t apologize to anybody for hunting and fishing.
+ - I’m not a politician. I’d make a lousy politician.
+ - An awful lot has been written about my temper.
+
+49 quotes

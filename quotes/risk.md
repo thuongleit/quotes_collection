@@ -1,0 +1,42 @@
+ - Risk, then, is not just part of life. It is life. The place between your comfort zone and your dream is where life takes place. It’s the high-anxiety zone, but it’s also where you discover who you are. ~~Nick Vujicic
+ - There’s no reward without work, no victory without effort, no battle won without risk. ~~Nora Roberts
+ - The biggest risk a person can take is to do nothing. ~~Robert T. Kiyosaki
+ - Speak up. Believe in yourself. Take risks. ~~Sheryl Sandberg
+ - Take Risks in Your Life If u Win, U Can Lead! If u Lose, U Can Guide! ~~Swami Vivekananda
+ - The real risk is doing nothing. ~~Denis Waitley
+ - Only the person who risks is truly free. ~~William Arthur Ward
+ - The greatest risk in life is to risk nothing. The person who risks nothing, does nothing, has nothing, is nothing and becomes nothing. ~~Norman Vincent Peale
+ - Move fast, take risks, it’s okay to try big things you’re better off trying something and having it not work and learning from that than having not done anything at all. ~~Mark Zuckerberg
+ - Every risk is worth taking as long as it’s for a good cause, and contributes to a good life. ~~Richard Branson
+ - Take the risk of thinking for yourself. ~~Christopher Hitchens
+ - Risk being seen in all of your glory. ~~Jim Carrey
+ - In today’s rapidly changing world, the people who are not taking risk are the risk takers. ~~Robert T. Kiyosaki
+ - Daring to set boundaries is about having the courage to love ourselves, even when we risk disappointing others. ~~Brené Brown
+ - Life is inherently risky. There is only one big risk you should avoid at all costs, and that is the risk of doing nothing. ~~Denis Waitley
+ - The essence of investment management is the management of risks, not the management of returns. ~~Benjamin Graham
+ - Love and life belongs to great risk. ~~Chuck Palahniuk
+ - Without risk, faith is an impossibility. ~~Soren Kierkegaard
+ - The dangers of life are infinite, and among them is safety. ~~Johann Wolfgang von Goethe
+ - If you live gladly to make others glad in God, your life will be hard, your risks will be high, and your joy will be full. ~~John Piper
+ - The future belongs to the risk-takers, not the comfort-seekers . ~~Brian Tracy
+ - Any goal worth achieving involves an element of risk. ~~Dean Karnazes
+ - If you don’t want it bad enough to risk losing it – you don’t want it bad enough. ~~Tom Krause
+ - The person who risks nothing, does nothing, has nothing, is nothing. He may avoid suffering and sorrow, but he cannot learn, feel change, grow or live... ~~William Arthur Ward
+ - Everyone can tell you the risk. An entrepreneur can see the reward. ~~Robert T. Kiyosaki
+ - Risk comes from not knowing what you’re doing. ~~Warren Buffett
+ - The majority of short term trading results are just random. In the long term the money ends up with those that can trade and manage risk. ~~Steve Burns
+ - To know what life is worth you have to risk it once in a while. ~~Jean-Paul Sartre
+ - The greatest risk is to risk nothing at all. ~~Leo Buscaglia
+ - A commitment to growth is a commitment to risk, courage, faith, strength, hope, and a willingness to make mistakes, get back up and try again. ~~Christine Caine
+ - That’s the good part of dying; when you’ve nothing to lose, you run any risk you want. ~~Ray Bradbury
+ - The greatest hazard in life is to risk NOTHING. ~~William Arthur Ward
+ - To love is to risk not being loved in return. ~~Leo Buscaglia
+ - If you want to see the big stuff that God has, you’ve got to take some risk and trust only in the Gospel. ~~Francis Chan
+ - Life is dangerous and you’re not gonna live a life without risk. ~~Will Smith
+ - If you risk nothing, you gain nothing. ~~Bear Grylls
+ - To believe in love, to be ready to give up anything for it, to be willing to risk your life for it, is the ultimate tragedy. ~~Leonardo DiCaprio
+ - Instead, to be financially free, we need to learn how to make mistakes and manage risk. ~~Robert T. Kiyosaki
+ - The story of human intimacy is one of constantly allowing ourselves to see those we love most deeply in a new, more fractured light. Look hard. Risk that. ~~Cheryl Strayed
+ - Greatest risk is not development of new product, but development of customers and markets. ~~Steve Blank
+
+40 quotes

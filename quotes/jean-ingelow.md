@@ -1,0 +1,25 @@
+ - I don’t want to die. But I want to be dead.
+ - The moon looks upon many night flowers; the night flowers see but one moon.
+ - I have lived to thank God that all my prayers have not been answered.
+ - It is a comely fashion to be glad; Joy is the grace we say to God.
+ - Youth! youth! how buoyant are thy hopes! they turn, like marigolds, toward the sunny side.
+ - Man is the miracle in nature. God Is the One Miracle to man.
+ - I am glad to think I am not bound to make the world go right, but only to discover and to do, with cheerful heart, the work that God appoints.
+ - When sparrows build and the leaves break forth My old sorrow wakes and cries.
+ - O fateful flower beside the rill- The Daffodil, the daffodil!
+ - There’s no dew left on the daisies and clover; there’s no rain left in heaven.
+ - Man is the miracle in nature. God Is the One Miracle to man. Behold, “There is a God,” thou sayest. Thou sayest well: In that thou sayest all. To Be is more Of wonderful, than being, to have wrought, Or reigned, or rested.
+ - Reign, and keep life in this our deep desireOur only greatness is that we aspire.
+ - I am athirst for God, the living God.
+ - Such a slender moon, going up and up, Waxing so fast from night to night, And swelling like an orange flower-bud, bright, Fated, methought, to round as to a golden cup, And hold to my two lips life’s best of wine.
+ - And bitter waxed the fray; Brother with brother spake no word When they met in the way.
+ - Her face betokened all things dear and good, The light of somewhat yet to come was there Asleep, and waiting for the opening day, When childish thoughts, like flowers would drift away.
+ - How gently rock yon poplars high Against the reach of primrose sky With heaven’s pale candles stored.
+ - Children bring their own love with them when they come.
+ - Tears are the showers that fertilize this world...
+ - It is not reason which makes faith hard, but life.
+ - A healthful hunger for a great idea is the beauty and blessedness of life.
+ - People newly emerged from obscurity generally launch out into indiscriminate display.
+ - And old affront will stir the heart Through years of rankling pain.
+
+23 quotes

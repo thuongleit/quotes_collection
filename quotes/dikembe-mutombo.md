@@ -1,0 +1,32 @@
+ - When an elevator brings u upstairs, you better send it back down in order to bring others up!
+ - God put us here to prepare this place for the next generation. That’s our job. Raising children and helping the community, that’s preparing for the next generation.
+ - It took a long time for me to walk. I was falling down all the time. But I ended up being one of the dangerous men, who broke so many people’s noses, which is bad.
+ - My heroes always are mostly my parents – my father especially, and my mom, who’s passed on already. My dad is a very strong man, and by him being educated, and a principal and school superintendent over 37 years, he plays such a big role in my life.
+ - I come from a large family, but I was not raised with a fortune. Something more was left me, and that was family values.
+ - The doctors and nurses at the Biamba Marie Mutombo Hospital are saving lives every day and helping improve health care in the DRC which has been ravaged by more than a decade of war and disease.
+ - When you take the elevator to the top, please remember to send it back down so someone else might use it.
+ - When I was born, my dad and my mom gave me names, but in Africa, when your child is born, especially close family members can suggest names they want to add on.
+ - I don’t think God said we should all be soft. My job is to compete, and the best prevails. I will continue to play, and that’s the way I’m succeeding in my life. If I hit you by mistake, all I can say is ‘I’m sorry,’ and I keep moving on.
+ - Food – there’s no greater gift...
+ - My favorite memory is my five years with the Nuggets. From my first day to my last day is a great memory. There wasn’t a year that I was a Nugget that I didn’t think we succeeded.
+ - There are people out there dying every day, so when you wake up, you just have to thank the Man Upstairs for another day on this planet. There’s not much else we can ask for.
+ - I’ve always felt obligated to help those less fortunate than me. It’s an obligation that anyone who has a chance to be in the NBA should feel and act upon.
+ - 24,000 people, 18,000 of them children, die every day because of hunger. Each year we bring food to nearly 90 million people in more than 80 countries. Food – there’s no greater gift, and no better way to give it than the World Food Programme.
+ - Me as a backup center? Hell no.
+ - I was not very strong growing up, and my uncle used to look at me, like, This kid is not growing up, he is growing tall but he can be broken like a banana.
+ - I believe in the Democratic party, and their philosophy and what they stand for – for the poor people.
+ - I cannot forget the place that I come from. The Congo is much in need.
+ - Scores of Congolese die each day unnecessarily due to the lack of access to healthcare and modern medicine.
+ - It’s not easy to teach a child how to win.
+ - I’m so glad I didn’t become a doctor, because I do more than any doctor can do. I am an administrator, a CEO, doctor, psychiatrist, an activist, a campaign funder. I think I did well.
+ - After spending more than 17 years playing for the NBA, in the summertime, I always came back to community service and different basketball clinics.
+ - I am not in politics. ‘President Mutombo?’ No, no, no. There has never been a politician in my family, and I am not going to try to be the first one.
+ - As a matter of fact I’ve been asked to come when I’m free to play at the White House.
+ - I remember when I came into the NBA, eighteen years ago, there were maybe nine to twelve international players playing in the NBA. Today we’ve got more than 85, so that tells you how our game has grown at that level.
+ - It’s easy to be a spokesman and ambassador for a great organization like the NBA. I thank Commissioner David Stern for putting that trust in me to serve the NBA around the globe.
+ - I usually just speak in English when I’m on the basketball court. For some reason, my mind never even tried to cross any other language when I’m playing basketball.
+ - The NBA is becoming a global game.
+ - My decision leaving the Nuggets was based on the organization not saying they had the cap room to sign me.
+ - I know the president is quick. I have friends who played with him during the campaign; they say he’s very good. I told the president that whenever the next pickup game is, I’ll get on the plane to Washington – but sometimes they play so early in the morning.
+
+30 quotes

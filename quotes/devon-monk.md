@@ -1,0 +1,21 @@
+ - Mouth in gear, brain stuck in neutral.
+ - Let go of the past, of the things I wanted, of the people I loved, and move forward.
+ - Keep digging, Flynn. Six feet makes a grave.
+ - Rock, meet stubborn place.
+ - Maybe in the morning, sunlight would to turn him back into a statue; then I could take Stone out to the forest where he could frolic among the ferns, gurgle at streams, and make friends with the other interesting rocks.
+ - Night Owls is a fast, fun read that kept me turning the pages. Lauren M. Roy delivers a plot that zips, dialogue that zings, and a cast of characters you’ll cheer for to the very end. Thumbs up!
+ - Hey, rock dude, are you destroying the house? Causing mayhem? Who’s a ferocious gargoyle? Stoney’s a ferocious gargoyle.
+ - Instinct told me it was dangerous. I could handle dangerous. Dangerous and me went back a long way. We did lunch when dangerous was in town.
+ - He was like an undead boomerang. A zomberang.
+ - The price for using dark magic is death, so that goes a long way toward deterring users.
+ - Don’t know about my knives, but my gun’s made of pain.
+ - Trace of Magic caught me up fast and pulled me in tight for a fun, action-and-sass adventure full of deadly magic and dangerous romance. Diana Pharaoh Francis delivers a downright terrific read.
+ - I needed sleep. Big squishy bunches of it. Soon.
+ - I don’t know what’s happened to you. You used to be such a nice girl. Now you’ve gone all stabby and whatnot.
+ - Then they both smiled the exact same smile. Narcissism times two. Oh, get a room already.
+ - Whether you approach your dreams on soft feet or in a breathless run, just so long as you acknowledge that your dreams are valuable and worthy of pursuing, then you’ve made it.
+ - Since I didn’t have a spork handy, I leaned over the sink and scooped up a palmful of cold water and pressed it against my face. There had to be a better option than a violent sporking. There had to be a way to get rid of my dad.
+ - I resisted the urge to pour mouthwash in my brain.
+ - For a brief, weird minute I felt like Dorothy in Oz, walking down the street with Terric the doubtful, Shame the brainless, and heartless Zay.
+
+19 quotes

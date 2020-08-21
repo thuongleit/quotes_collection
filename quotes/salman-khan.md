@@ -1,0 +1,24 @@
+ - A lion runs the fastest when he is hungry.
+ - The only person I have hurt is myself.
+ - Don’t throw out buzz words without really knowing what is going on behind it.
+ - If you have an idea that seems worth doing, don’t wait to hire other people and get funding and all those things. Just start doing it, wait to see what happens, and then iterate on that.
+ - Turn your nightmares into your dreams, some dreams don’t turn out the way you want them to, then wake up and turn and turn it around in your favour.
+ - Have you seen a duck gliding smoothly on water? Does it ever look like it is paddling furiously underneath the surface? I don’t have to show that I am working very hard.
+ - I am not born to just become an actor.
+ - I am more convinced than ever that mindsets toward learning could matter more than anything else we teach.
+ - What you have in most education software is that they’re catering to the decision-maker who makes the budget allocations, and that decision-maker has a lot of check boxes. Does it do this? Check. Does it do that? Check. They could care less about the end user experience.
+ - Style is something very individual, very personal, and in their own unique way, I believe everyone is stylish.
+ - Sometimes I feel I hope I am not taking advantage of my stardom.
+ - I don’t go out anywhere. I don’t go to nightclubs, so meeting somebody in the nightclub is out of question.
+ - Now at 47, 48 I am expected to do ten times better work that I did when I was 24.
+ - All fashion brands are about looking good. Being Human is also about doing good. And you can do good by the simple act of slipping into a t-shirt or a pair of jeans.
+ - Why should I marry? One marries to have children, but I already have children! My nieces and nephews are my children.
+ - Any film is about heroism: the triumph of good over evil. If you look back at my films, you will see that as a recurring theme.
+ - I can get caught in many things but there is one thing I will never get caught in, and that is acting – because I don’t act. On screen I am like I am in real life.
+ - Shah Rukh is not my girlfriend that I should remember him. When I don’t remember my past girlfriends, what will I remember Shah Rukh for?
+ - There are actors who can pull of a writer’s lines; I am not competent enough to do that.
+ - If the film is a hit then everyone shares the success. If it is going to be a disaster then it might as well be because of me, not because of somebody else.
+ - For me acting, comes straight from the heart. In that sense I don’t act at all. I think that to feel the character’s pain I have to be myself. Somewhere audiences see that.
+ - There are people who want awards because it changes the perception of the audience. But I’m not into all that.
+
+22 quotes

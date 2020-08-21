@@ -1,0 +1,66 @@
+ - My coach said I ran like a girl, I said if he could run a little faster he could too.
+ - Celebrate what you’ve accomplished, but raise the bar a little higher each time you succeed.
+ - I am a member of a team, and I rely on the team, I defer to it and sacrifice for it, because the team, not the individual, is the ultimate champion.
+ - The vision of a champion is bent over, drenched in sweat, at the point of exhaustion, when nobody else is looking.
+ - It is more difficult to stay on top than to get there.
+ - Success breeds success.
+ - A winner is that person who gets up one more time than she is knocked down.
+ - I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.
+ - Many people say I’m the best women’s soccer player in the world. I don’t think so. And because of that, someday I just might be.
+ - You can’t just beat a team, you have to leave a lasting impression in their minds so they never want to see you again.
+ - The person that said winning isn’t everything, never won anything.
+ - Failure happens all the time. It happens every day in practice. What makes you better is how you react to it.
+ - If you don’t love what you do, you won’t do it with much conviction or passion.
+ - True champions aren’t always the ones that win, but those with the most guts.
+ - Follow your heart and make it your decision.
+ - It isn’t sacrifice if you love what you’re doing.
+ - No-one gets an iron-clad guarantee of success. Certainly, factors like opportunity, luck and timing are important. But the backbone of success is usually found in old-fashioned, basic concepts like hard work, determination, good planning and perseverance.
+ - Take your victories, whatever they may be, cherish them, use them, but don’t settle for them.
+ - Being a good teammate is when you try to sprint down a ball that everyone thinks is going out of bounds. But you go after it anyways and you get it.
+ - After each game, I want to be able to say: I gave it all I could, I gave it my best.
+ - I could just have chips and salsa for dinner every day.
+ - Sports can do so much. It’s given me confidence, self-esteem, discipline, and motivation.
+ - I’ve worked too hard and too long to let anything stand in the way of my goals. I will not let my teammates down and I will not let myself down.
+ - You may get skinned knees and elbows, but it’s worth it if you score a spectacular goal.
+ - The most important attribute a player must have is mental toughness.
+ - I learned a long time ago that there is something worse than missing the goal, and that’s not pulling the trigger.
+ - Sports can do so much. They’ve given me a framework: meeting new people, confidence, self-esteem, discipline, motivation. All these things I learned, whether I knew I was learning them or not, through sports.
+ - Every morning, I wake up trying to be the best mom and the best role model for my kids in a healthy diet and active lifestyle.
+ - I don’t like to play rough, but I will if I have to.
+ - I don’t want to sit and look at all the trophies. I don’t want to live in the past – I want to live now!
+ - Soccer isn’t very social. Plus, if you don’t like someone on the other team, you can do something about it.
+ - You’re worth the investment in yourself and what you feel, you can and want to be.
+ - I love watching gymnastics, swimming, and track and field.
+ - I know I wouldn’t be here, and all of us wouldn’t be here, without certain sacrifices and certain stands that people have made – not just women, but men stepping up and supporting what we do and how we do it.
+ - Every single day I wake up and commit myself to becoming a better player. Some days it happens, and some days it doesn’t. Sure, there are games I’m going to dominate and there are going to be games when I struggle. But it doesn’t mean I give up.
+ - We play because we love the game, we love each other, and we love to win.
+ - I’m a part of a team, and I’m no better or any worse than any single player on this team. That’s the approach I’ve always had and will continue to have. It’s not about me. It has never been all about me. If it had, this would have been a really lonely journey.
+ - There are always new, grander challenges to confront, and a true winner will embrace each one.
+ - Every day I look for ways to be inspired, to learn and to grow. And trying to be the best for my kids, my husband and my family. One thing I really wanna do is being there for my kids, be part of my siblings and my parents.
+ - I was given a tremendous gift in terms of athleticism. Maybe it was because I wasn’t so confident in other areas.
+ - Experience means you did a lot of things wrong.
+ - Sports are not about awards or world championships, though those are great. They’re about the relationships we have with each other.
+ - Good players create opportunities. The great players and the great people seize them.
+ - Sport taught me how to goal set, it really gave me a voice and identity.
+ - English muffins with avocado is one of my favorite breakfasts.
+ - Every single day I wake up and commit to myself to becoming a better player.
+ - Learn to differentiate between what is truly important and what can be dealt with at another time.
+ - Chicken, brown rice, and veggies is a great healthy dinner option. It’s full of whole grains and protein, and will keep you full for a long time.
+ - I played soccer because my friends did. Besides we got sodas afterwards.
+ - I got to experience soccer at the highest level at a young age; I decided I wanted to be part of that for as long as possible.
+ - I don’t like to stop. I’m a big person who looks at where the hubs are because I hate changing planes.
+ - The team, not the individual, is the ultimate champion.
+ - Focus on what you know you can do. Know what you’re capable of on any given day, and what you can count on. Do the simple things well, and then use the confidence to build up the rest of your game. Learn to differentiate between what is truly important and what can be dealt with at another time.
+ - People ask me, ‘Would you ever want to play professional golf?’ And I’m like, ‘No. No, no, no, no. Just because I can hit a good shot every now and then doesn’t make me a pro.’
+ - Goals have never defined me as a player. What has defined me is my impact on the team. If that means passing or playing defense to win, I’ll do it.
+ - If a team intimidate you physically and you let them, they’ve won.
+ - Golf is social. It brings a lot of people together. And the great thing about a scramble, there’s less pressure because you don’t feel like every shot has to be your shot.
+ - I played basketball and soccer my freshman year in high school.
+ - Golf is social. It brings a lot of people together.
+ - I am happy that the young girls have a lot more choices these days and an opportunity to feel better about themselves.
+ - I’m not someone who goes around the locker room before a game trying to motivate my teammates. I don’t say a lot before the game. I don’t say a lot in general. It takes too much energy to do that.
+ - I could sit there and eat pasta all day long and not worry about it when I was younger, and now I really have to focus on making sure I set a good example for my kids.
+ - If you’ve got hips, you can’t be a gymnast or dancer. That ruled me out.
+ - Sports have become increasingly more specialized, but that doesn’t mean they shouldn’t be fun.
+
+64 quotes

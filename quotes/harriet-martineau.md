@@ -1,0 +1,61 @@
+ - Readers are plentiful; thinkers are rare.
+ - I romanced internally about early death till it was too late to die early...
+ - Women, like men, must be educated with a view to action, or their studies cannot be called education.
+ - You had better live your best and act your best and think your best today; for today is the sure preparation for tomorrow and all the other tomorrows that follow.
+ - Moral excellence has no regard to classes and professions.
+ - There have been few things in my life which have had a more genial effect on my mind than the possession of a piece of land.
+ - The imagination, once awakened, must and will work, and ought to work.
+ - Religion is a temper, not a pursuit.
+ - The lesson taught us by these kindly commentators on my present experience is that dogmatic faith compels the best minds and hearts to narrowness and insolence.
+ - My business in life has been to think and learn, and to speak out with absolute freedom what I have thought and learned. The freedom is itself a positive and never-failing enjoyment to me, after the bondage of my early life.
+ - Keep innocency, and take heed unto the thing that is right, for that shall bring a man peace at the last.
+ - The progression of emancipation of any class usually, if not always, takes place through the efforts of individuals of that class.
+ - The sum and substance of female education in America, as in England, is training women to consider marriage as the sole object in life, and to pretend that they do not think so.
+ - It is hard to tell which is worse; the wide diffusion of things that are not true, or the suppression of things that are true.
+ - The Penny Post will do more for the circulation of ideas, for the fostering of domestic affections, for the humanizing of the mass generally, than any other single measure that our national wit can devise.
+ - It is characteristic of genius to be hopeful and aspiring.
+ - The sick-room becomes the scene of intense convictions; and among these, none, it seems to me, is more distinct and powerful than that of the permanent nature of good, and the transient nature of evil.
+ - Laws and customs may be creative of vice; and should be therefore perpetually under process of observation and correction: but laws and customs cannot be creative of virtue: they may encourage and help to preserve it; but they cannot originate it.
+ - I want to be a free rover on the breezy common of the universe.
+ - Religion is a temper, not a pursuit. It is the moral atmosphere in which human beings are to live and move. Men do not live to breathe: they breathe to live.
+ - I have no sympathy for those who, under any pressure of circumstances, sacrifice their heart’s-love for legal prostitution.
+ - The voice of a whole people goes up in the silent workings of an institution.
+ - But is it not the fact that religion emanates from the nature, from the moral state of the individual? Is it not therefore true that unless the nature be completely exercised, the moral state harmonized, the religion cannot be healthy?
+ - I loved, as I still love, the most monotonous life possible...
+ - School is no place of education for any children whatever till their minds are well put in action. This is the work which has to be done at home, and which may be done in all homes where the mother is a sensible woman.
+ - Leisure, some degree of it, is necessary to the health of every man’s spirit.
+ - I saw no poor men, except a few intemperate ones. I saw some very poor women; but God and man know that the time has not come for women to make their injuries even heard of.
+ - A Queen, or a Prime Minister’s secretary may be shot at in London, as we know; and probably there is no person eminent in literature or otherwise who has not been the object of some infirm brain or another. But in America the evil is sadly common.
+ - Men who pass most comfortably through this world are those who possess good digestions and hard hearts.
+ - Any one must see at a glance that if men and women marry those whom they do not love, they must love those whom they do not marry.
+ - Authorship has never been with me a matter of choice. I have not done it for amusement, or for money, or for fame, or for any reason but because I could not help it.
+ - We do not believe in immortality because we can’t prove it, but we try to prove it because we cannot help believing it.
+ - Fidelity to conscience is inconsistent with retiring modesty. If it be so, let the modesty succumb. It can be only a false modesty which can be thus endangered.
+ - Happiness consists in the full employment of our faculties in some pursuit.
+ - Wherever the appearance of a conventional aristocracy exists in America, it must arise from wealth, as it cannot from birth. An aristocracy of mere wealth is vulgar everywhere. In a republic, it is vulgar in the extreme.
+ - What office is there which involves more responsibility, which requires more qualifications, and which ought, therefore, to be more honorable, than that of teaching?
+ - Goodness and simplicity are indissolubly united.-The bad are the most sophisticated, all the world over, and the good the least.
+ - If a test of civilization be sought, none can be so sure as the condition of that half of society over which the other half has power.
+ - The habit of dwelling on the past, has a narrowing as well as a debilitating influence. Behind us, there is a small, – an almost insignificant measure of time; before us, there is an eternity. It is the natural tendency of the mind to magnify the one, and to diminish the other...
+ - I am sure that no traveler seeing things through author spectacles can see them as they are.
+ - There is no death to those who perfectly love-only disappearance, which in time may be borne.
+ - I think that few people are aware how early it is right to respect the modesty of an infant.
+ - For my own part, I had rather suffer any inconvenience from having to work occasionally in chambers and kitchenthan witness the subservience in which the menial class is held in Europe.
+ - My own feeling of concern arises from seeing how much moral injury and suffering is created by the superstitions of the Christian mythology.
+ - Scarcely anything that I observed in the United States caused me so much sorrow as the contemptuous estimate of the people entertained by those who were bowing the knee to be permitted to serve them.
+ - It is my deliberate opinion that the one essential requisite of human welfare in all ways is scientific knowledge of human nature.
+ - The clergy complain of the enormous spread of bold books, from the infidel tract to the latest handling of the miracle question.
+ - A soul occupied with great ideas performs small duties.
+ - It never enters the lady’s head that the wet-nurse’s baby probably dies.
+ - I never did a right thing or abstained from a wrong one from any consideration of reward or punishment.
+ - While feeling far less injured by toil than my friends took for granted I must be, I yet was always aware of the strong probability that my life would end as the lives of hard literary workers usually end, – in paralysis, with months or years of imbecility.
+ - I would not exchange my freedom from old superstition, if I were to be burned at the stake next month, for all the peace and quiet of orthodoxy, if I must take the orthodoxy with peace and quiet.
+ - Self-denial is taught much better by inspiring the love of our neighbor, than by the prohibition of innocent comforts and pleasures. Spirituality is much better taught by making spiritual things the objects of supreme desire, than by commanding an ostentatious avoidance of the enjoyments of life.
+ - I wrote because I could not help it. There was something that I wanted to say, and I said it: that was all. The fame and the money and the usefulness might or might not follow. It was not by my endeavor if they did.
+ - If there is any country on earth where the course of true love may be expected to run smooth, it is America.
+ - Who is apt, on occasion, to assign a multitude of reasons when one will do? This is a sure sign of weakness in argument.
+ - As new discoveries are causing all-penetrating physical lights so to abound as that, as has been said, we shall soon not know where in the world to get any darkness, so our new facilities for every sort of communication work to reduce privacy much within its former limits.
+ - I certainly had no idea how little faith Christians have in their own faith till I saw how ill their courage and temper can stand any attack on it.
+ - Even if their outward fortunes could be absolutely equalized, there would be, from individual constitution alone, an aristocracy and a democracy in every land. The fearful by nature would compose an aristocracy, the hopeful by nature a democracy, were all other causes of divergence done away.
+
+59 quotes

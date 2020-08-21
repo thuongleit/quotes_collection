@@ -1,0 +1,35 @@
+ - Life is about becoming a better version of yourself.
+ - Life is like Facebook. People will like and coments your problems, but no one will solve them because they’re busy updating them.
+ - Surround yourself with the right people, and realize your own worth.
+ - I don’t really believe in cliques – I think everyone can be friends with everyone.
+ - I’m beautifully strong and tragically confused.
+ - My ultimate dream is to become a famous star because I love to sing.
+ - I hate flying. I don’t planes. I get really anxious.
+ - But little white lies here and there is human nature. Everybody does that.
+ - Surround yourself with the right people, and realize your own worth. Honestly, there are enough bad people out there in the world – you don’t need to be your own worst enemy.
+ - I’m so boy-crazy. It’s like I don’t even know what’s wrong with me. I love boys.
+ - I just love the thrill of performing on stage. I believe that singing is something I was put here to do.
+ - I was the one small brunete among tall blondes. You only get one body, might as well love it. Nothing is the end of the world. Flash forward a year and ask, “Is this really going to be that big of a deal? In the long run, it’s really not”.
+ - I love movies like ‘500 Days of Summer’ and ‘Juno.’ Something offbeat without the glamour and the makeup and the clothing.
+ - I’m from Tennessee. My mom lives in Nashville. I’m born and bred country. That’s all I listen to.
+ - My favorite toy growing up was Polly Pocket. But one gift that I wanted though never received for Christmas was a pair of trampoline moon shoes. You strap them to your feet and they have springs on them, and you can just jump around!
+ - I definitely love that all these car brands are coming out with hybrid forms of every car that they have. It’s very awesome because I think it does make a difference, and it doesn’t hurt that you save a lot of money on gas.
+ - I feel like girls in general will always worry about the same things, and it’s all appearance related. That will always be there. When you grow older, you grow more confident with who you are.
+ - I love Paranormal Activity and The Exorcist. The Shining is a great one too, but theres not a lot that scares me. Maybe its because I know the other side of it, and I know how movies are made, but it takes a lot for me to get freaked out.
+ - My body is normal, and I’m not trying to prove anything.
+ - I took guitar a while back, and my heart wasn’t in it at the time, but I’m ready to try it again. I sing in the car, at home – it’s a huge part of my life, especially since I’m from Tennessee.
+ - I hated school, but I was a good student. I made straight A’s.
+ - I was lucky enough to grow up in a home where I woke up Christmas morning and had toys. I know that’s not the case with all people and I don’t think kids should go without experiencing that sort of joy.
+ - I definitely used to lie about my age. I’m from Tennessee and everyone would vacation in Destin, Florida, where there are lots of cute guys. I would go with my older sister and lie about my age to them.
+ - There is nothing else that I would rather do than sing. I have such a great passion for it. Even if I don’t become successful or famous I am still going to continue singing.
+ - The image you see of me out in public is really different from who I am in real life.
+ - It’s fun to pretend you’re a little kid, you get to use your imagination and live in a world that’s not real.
+ - Basically, I just want to make movies and maybe even produce TV later down the line, do some writing, maybe a tour with my music. And start a family! That’s really important to me.
+ - People have the “ships” that they love, and I think they love the show’s original relationship the most.
+ - I would take it to heart if people were mad about something my character did.
+ - I’m a really good juggler.
+ - When I dress up for events, I prefer Marc Jacobs and Dior. But I dream about wearing Chanel one day.
+ - I was home schooled, so I never got a yearbook.
+ - I’m not trying to be something I’m not. I know what I believe in. I know my morals and I know what I have to offer.
+
+33 quotes

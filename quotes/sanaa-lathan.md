@@ -1,0 +1,35 @@
+ - Sometimes when you don’t care, people are attracted to that.
+ - Being strong can be also feminine. I don’t think feminine equals being weak. Being strong is very sexy.
+ - Some of us just have to work harder to stay in the game.
+ - Chemistry on film is like chemistry in real life, it’s either there or it isn’t.
+ - I love going to the movies and getting Raisinets, a big tub of popcorn and a Coke. That’s definitely a guilty pleasure because I can’t be doing that all the time.
+ - If someone has already done a role I’m about to do, I won’t watch the original until after I’m finished playing the role.
+ - Im loving the ingredients that are in Pantene, and it smells so good, and thats important to me. It has cassia and aloe vera. The cassia flower is really good for strengthening hair strands and the aloe is wonderful for moisturizing.
+ - I have dated all races, and I believe you should be free to do whatever you want.
+ - There is a lot of struggle in being an actor; you need so much emotional strength, no matter what level of stardom you have, that it’s nice to have something steady.
+ - I think I’m a character actress in a leading lady’s body, but the industry doesn’t really see me that way.
+ - I’ve never gotten any complaints about my headscarf from a man. You can be sexy with a head wrap!
+ - People make jokes about how black people are the first ones to be killed off.
+ - People may know me from films, but theater is my first love. I did about 35 plays before I even landed my first screen role. I’m very comfortable on stage, and theater is not something you can just wing.
+ - The Alien is gross, scary. There is something in a human being that looks at them and sees it as a cockroach. You can never feel nurturing towards the cockroach.
+ - I really prefer the actual experience of being onstage and living the character from beginning to end with the energy of the audience. There’s nothing that beats that feeling, and yet I really have trouble with the eight shows a week.
+ - If you’re in love and there’s that chemistry, that’s what it’s all about.
+ - In terms of facial creams or lotions, I try to switch it up and stay as natural as possible. l like Le Mer facial cream for when I have an event. It’s very rich and sometimes too rich for some people, but I like it.
+ - I’ll eventually go back to theater because the feeling of being on stage where you have the audience right there, you can’t replace that with anything.
+ - I think Hollywood is so driven by money, the people who are making the decisions are not necessarily reflective of the melting pot, so what stories are you going to want to tell? You’re going to want to tell stories about yourself.
+ - There’s a lot of Kenya that’s not like me. I like Birkenstocks, granola, my dog Pops.
+ - I did work out every day. I needed it to have the endurance to do what needed to be done and not get hurt. I have such a new respect for action stars now.
+ - Kelsey Grammer is one of the best actors I’ve ever worked with.
+ - When you have a play, you have to be on every night.
+ - You would never expect a black woman to be the hero.
+ - I didn’t get to see Predator until halfway through shooting. It was great to get an education while I was shooting because it made me excited to be part of this legacy.
+ - The great thing about the stage is that you have a structured month-long rehearsal period where you’re going in every day. You have to have lots of run-throughs with theater because there are no second takes in front of a live audience.
+ - When you’re on a set it can be very tedious and slow. It’s just not as big as when you see it on film.
+ - To make a movie is very grueling at times. Long, long hours and cold weather.
+ - Good storytelling appeals to me – good writing.
+ - I wouldn’t want anyone to destroy the earth.
+ - I look forward to going to work. Everybody is at the top of their game. It was like we just got to play.
+ - I got nominated for a Tony, which was a complete surprise. It was an experience that I will always cherish.
+ - I had never picked up a basketball before. I went through a grueling audition process. It was almost as if I was learning to walk. It would be like teaching somebody to dance ballet for a role.
+
+33 quotes

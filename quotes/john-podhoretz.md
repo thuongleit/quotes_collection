@@ -1,0 +1,80 @@
+ - The sad truth is that you can have peace processes all you like, but if one side is committed to war, then it’s war.
+ - There’s no light at the end of the tunnel in the Republican message, no promise of better things to come. There’s only the present stagnation, followed by a slow decline.
+ - The idea that the rest of the world was somehow being held hostage by the Arab-Israeli conflict once had a minimal basis in reality. In the first 20 years of Israel’s existence, every Arab country was in an active state of war with the Jewish state.
+ - Pop culture is a reflection of social change, not a cause of social change.
+ - The most passionately anti-Obama Republican politicians and activists consider themselves the truest and purest of conservatives, and often unleash their scorn and fury on others who also call themselves conservative but differ on strategy and tactics.
+ - Christopher Nolan’s astounding third Batman feature, ‘The Dark Knight Rises,’ represents the true maturation of the superhero movie – and provides the key to understanding the bottomless craving moviegoers have for these films, 34 years after the Christopher Reeve Superman gave birth to the genre.
+ - The problem is that borrowing money to pay back more borrowed money that will oblige you in the future to borrow even more money doesn’t sound kosher. Because it isn’t.
+ - What people adore about superhero movies is the signal quality of the Christopher Nolan films – their complete lack of irony when it comes to the portrayal of heroism and the need for heroes to confront evil.
+ - Every great political campaign rewrites the rules; devising a new way to win is what gives campaigns a comparative advantage against their foes.
+ - Making recess appointments when the Senate isn’t in recess is neither rational nor moderate. It’s a raw misuse of executive power by a president whose love of government is his most vulnerable spot with the electorate.
+ - Conservatives must avoid the siren song of schism, or all is lost.
+ - The real story of the Ground Zero mosque is that the project only became feasible because of the appalling and astonishing fecklessness of the officials who were charged with the reconstruction of the site and the neighborhood all the way back in 2001.
+ - All non-incumbent campaigns promise hope and change, but Obama took the promise to a new level of absurdity. He suggested that a vote for him would literally transform the Earth.
+ - What Obama is saying is simple: The United States has become Too Big To Fail.
+ - Back in 1995, Bill Gates himself didn’t understand that the internet was the direction computing was going.
+ - Robots have a rich and storied history in movies.
+ - It has never made any sense to argue that, unique among the people of the world, Arabs are more concerned on a day-to-day basis about the treatment of people they don’t know than they are about how they’re going to put food on their own tables, or whether their sons will ever find a job.
+ - The United States established itself as a trustworthy new nation in its first two decades after the Revolutionary War by paying its debts, even when many in the country believed it had no obligation to do so. Alexander Hamilton, the founder of this newspaper, insisted on it.
+ - While negativity is politically useful, it is also demoralizing unless it is accompanied – and to some extent overshadowed – by elevated and inspiring ideas about the American future.
+ - Insulting the electorate and accusing it of spiritual weakness and sinfulness are not the ways to get yourself the job of president.
+ - In the Democratic primary in 2008, the Obama team devised a strategy to use the caucuses and a complicated system of awarding delegates in the state primaries to sneak up on Hillary Clinton and establish a lead Obama never surrendered.
+ - As a member of the Mormon church, Romney is instructed to tithe 10 percent of his income. That’s in keeping with most charitable giving: Religious institutions get about one-third of all contributions, according to ‘The American’ magazine.
+ - Nixon was an awful president in many ways, including in some of his foreign-policy choices. But he left no doubt that foreign policy and America’s leadership in the world outside its borders was of paramount importance to him.
+ - Obama’s presidency hasn’t been dedicated to achieving economic growth in the short term, or about creating jobs.
+ - Your race and gender don’t change, but you can choose to change your political affiliation at will.
+ - Over the next decade, cities and states across America will be compelled to tighten their belts as the really big bills – the pension bills they cannot afford – come due. They’ll have to go after existing contracts with current workers.
+ - Obama’s coalition would have consigned him to the political margins as little as 12 years ago, but the nation’s demographic changes are moving far more quickly than most Republicans anticipated.
+ - I think making a pretense of civility toward Eric Alterman is like making a pretense of civility to a scorpion.
+ - Romney is a good, intelligent, extraordinarily generous man who put on a great fight. But he didn’t understand the country or the people he sought to lead, and that is why he lost.
+ - Some candidates need to say provocative things that make noise to break through the media muffle and get themselves noticed.
+ - The exit polls suggest that after a relatively disappointing first term, Obama managed to reassemble almost all of his 2008 electorate.
+ - Many people crave security and stability rather than risk-taking, and that doesn’t make them any less American. They are the workers rather than the job creators, and all societies need both.
+ - This has always been the way of presidential politics. The president rises above the fray while his surrogates go on the attack. They throw the spears and fling the mud; he sits upon the throne.
+ - America may be in a dour condition, but it is not going to elect a dour president.
+ - You’d think experienced political professionals would know better than to place their trust in exit polls, notoriously inaccurate surveys that had John Kerry winning the 2004 election by five points when he actually lost by three.
+ - Our compulsive hunger always to know first, speak first and decide first has only been amplified by the fact that we can now all participate instantly in a virtual version of a national cocktail-party conversation on Twitter, Facebook and blogs.
+ - Imagine his delight after it ‘leaked’ that he will propose raising taxes on the wealthy by $320 billion over the next 10 years, including increases to the capital gains and inheritance taxes.
+ - I don’t feel alienated from American culture, but I understand people who do.
+ - Let us now praise Barack Obama.
+ - Newt Gingrich never received more than 100,000 votes in his life. He’ll never be president.
+ - Barack Obama is one of the greatest politicians in American history.
+ - Romney is right that the Obama vision is too centered on government. But his is too centered on the promotion of business and wealth creation at the expense of everything else.
+ - Electoral contests have nothing but polls, which is why people have grown so obsessed with them; we’re desperate for an objective rendering of what is happening and what may happen.
+ - She needs to seem tough, and whatever Hillary’s weaknesses, tough is a pretty good word to describe her.
+ - America is great not because it’s a team. America is great because it is a nation whose founding documents elevated the rights of the individual.
+ - Romney has adopted almost every position conservatives want their candidate to espouse: He’s pro-life, he wants to repeal ObamaCare, he wants to cut taxes and cut the federal budget, and he wants an unapologetic foreign policy dedicated to the proposition that this too will be the American century.
+ - When Obama was inaugurated, he and his team had an insight – though whether the insight was conscious or not I don’t know. But it was this: The TARP $700 billion price tag was a new kind of model.
+ - Here’s a very good rule of thumb in politics: losing begets losing.
+ - The great mystery is why robots come off so well in science-fiction films when the human characters are often so astoundingly wooden.
+ - Newt Gingrich has a restless and outsized intelligence that is tragically unleavened by any kind of critical sensibility.
+ - All conservatives are bilingual we have to be. We speak both liberal and conservative. But liberals are monolingual – they don’t have to be anything else. They speak liberal, and are completely ignorant of the conservative tongue.
+ - Comedians and impressionists used to be two different showbiz animals entirely, but now there’s no such thing as a comedian who doesn’t do impressions.
+ - As a matter of policy, increasing taxes on the most economically productive group, which already generates 60 percent of the nation’s federal revenues, during a sustained period of economic doldrums is a wretched idea.
+ - Obama has seen to the passage of the most radical legislation in recent American history and so-called ‘progressives’ should be thanking him for it – even as many of the rest of us rear in horror from its implications.
+ - You want a political culture that works to create conditions under which an economy can thrive? Since signing the Oslo Accords with the Palestinians, Israel has spent two decades working to unshackle its economy from its socialist roots, with remarkable results.
+ - For Obama to save himself, he should be thinking about the example of an unlikely Republican predecessor: Richard Nixon.
+ - The presidency is not an entry-level electoral job.
+ - The classic rule of thumb is that if you are an intellectual ideological magazine, you do better in opposition than you do if your views are reflected by people in power.
+ - Obama is talking to voters as though he is their boss, or their principal, or their father. He is not any of those things. He is their employee. And employers don’t like it when their employees yell at them – even if their employees have it right.
+ - You want a culture where citizens are free to express themselves and so live in the openness necessary to the functioning of a successful economy? Israel has a free press, much of it openly hostile to the parties in power.
+ - Obama’s victory in November 2008 was a historic political accomplishment.
+ - The thing is, Obama is right that it would be a calamity for the government to default on its debt by not meeting its obligations. Such a thing has never happened and can’t be allowed to happen.
+ - Memories of the last nine years have turned Ground Zero from a site of horror, to a reminder of grief, to an occasion for ludicrous artistic posturing – and now to something very close to parody.
+ - Why, listening to Obama talk about his economic triumphs over the last three years might make you want to move to the country he was describing. Too bad that country exists primarily in his own head.
+ - Unquestionably, American political rhetoric can be repugnant, and the Right can certainly be as guilty as the Left.
+ - The Middle East Media Research Institute has spent decades detailing the diseased messages emanating from Palestinian TV and textbooks, instructing children in the glories of suicide terrorism against innocent Israelis.
+ - Obama lost his ability to push his agenda through Congress when he received what he himself called a ‘shellacking’ in the November 2010 elections. That shellacking was primarily the result of massive policy overreach when he had a Democratic Congress in his pocket.
+ - In 2013, there were 6,261 black homicide victims in the US – almost all killed by black civilians.
+ - I was wholeheartedly attracted to the conservative atmosphere that permeated the city of Washington.
+ - I’ve worked as someone’s deputy, and now it’s time for me to run something. It’s time for me to run my own shop.
+ - I look at ‘The New York Review of Books.’ It’s what it has been for 35 or 40 years, which is a highly sophisticated vehicle for anti-American self-hatred.
+ - Nixon in 1968, unlike Obama 2008, was elected as a minority president with only 43 percent of the vote. Yet, in 1972, he won what, in some measures, was the most lopsided election in American history with 61 percent.
+ - By keeping most tax rates at present levels, Obama and the Democrats will claim that they have championed tax cuts for the middle class.
+ - If you want to know why Republicans and conservatives are in a political crisis, you need only consider the fact that the Right’s deeply held view now boils down to this: Taxes should not go up on the wealthy, and your health benefits should be cut.
+ - Is victory sweet because your side wins – or is it really because the other side loses?
+ - Obama is defining himself in a way that will destroy him.
+ - Obama’s explanation for the slowdown in economic growth is that the public sector is hurting, and that’s where Washington must step in and act.
+ - The 2004 presidential election that saw George W. Bush win with 51 percent of the vote was the last one Republicans will ever win with the overwhelmingly white and male coalition they have now.
+
+78 quotes

@@ -1,0 +1,216 @@
+ - Ideas are bulletproof.
+ - All it takes is one bad day to reduce the sanest man alive to lunacy. That’s how far the world is from where I am. Just one bad day.
+ - People shouldn’t be afraid of their government. Governments should be afraid of their people.
+ - God is in the rain.
+ - There is no coincidence. Only the illusion of coincidence.
+ - Remember, remember the fifth of November of gunpowder treason and plot. I know of no reason why the gun powder treason should ever be forgot.
+ - Never despair. Never surrender.
+ - No. Not even in the face of Armageddon. Never compromise.
+ - My experience of life is that it is not divided up into genres; it’s a horrifying, romantic, tragic, comical, science-fiction cowboy detective novel. You know, with a bit of pornography if you’re lucky.
+ - The past can’t hurt you anymore, not unless you let it.
+ - Once you realize what a joke everything is, being the Comedian is the only thing that makes sense.
+ - Roses are red Violets are blue Everything’s possible Nothing is true.
+ - Knowledge, like air, is vital to life. Like air, no one should be denied it.
+ - It is not the job of artists to give the audience what the audience want. If the audience knew what they needed, then they wouldn’t be the audience. They would be the artist. It is the job of artists to give the audience what they need.
+ - The roots of the word ‘anarchy’ are ‘an archos,’ ‘no leaders,’ which is not really about the kind of chaos that most people imagine when the word ‘anarchy’ is mentioned. I think that anarchy is, to the contrary, about taking personal responsibility for yourself.
+ - Art is, like magic, the science of manipulating symbols, words or images to achieve changes in consciousness.
+ - So when you find yourself locked onto an unpleasant train of thought, heading for the places in your past where the screaming is unbearable, remember there’s always madness. Madness is the emergency exit.
+ - I live my life free of compromise, and step into the shadows without complaint or regret.
+ - We’re all puppets, Laurie. I’m just a puppet who can see the strings.
+ - Why do we argue? Life’s so fragile, a successful virus clinging to a speck of mud, suspended in endless nothing.
+ - Everybody is special. Everybody. Everybody is a hero, a lover, a fool, a villain. Everybody. Everybody has their story to tell.
+ - Language comes first. It’s not that language grows out of consciousness, if you haven’t got language, you can’t be conscious.
+ - Technology is always a two-edged sword. It will bring in many benefits, but also many disasters.
+ - Since mankind’s dawn, a handful of oppressors have accepted the responsibility over our lives that we should have accepted for ourselves. By doing so, they took our power. By doing nothing, we gave it away. We’ve seen where their way leads, through camps and wars, towards the slaughterhouse.
+ - Love your rage, not your cage.
+ - None of you understand. I’m not locked up in here with YOU. You’re locked up in here with ME.
+ - If you give me a typewriter and I’m having a good day, I can write a scene that will astonish its readers. That will perhaps make them laugh, perhaps make them cry – that will have some emotional clout to it. It doesn’t cost much to do that.
+ - There are two worlds we live in: a material world, bound by the laws of physics, and the world inside our mind, which is just as important.
+ - I shall die here. Every last inch of me shall perish. Except one. An inch. It’s small and it’s fragile and it’s the only thing in the world worth having. we must never lose it, or sell it, or give it away. We must never let them take it from us.
+ - You wear a mask for so long, you forget who you were beneath it.
+ - There’s no flesh or blood within this cloak to kill. There’s only an idea. Ideas are bulletproof.
+ - This is not anarchy, Eve. This is chaos.
+ - But what I hope most of all is that you understand what I mean when I tell you that even though I do not know you, and even though I may never meet you, laugh with you, cry with you, or kiss you. I love you. With all my heart, I love you.
+ - There’s no such thing as quitting. Just sometimes there’s a longer pause between relapses.
+ - The ending is nearer than you think, and it is already written. All that we have left to choose is the correct moment to begin.
+ - In order to be able to make it, you have to put aside the fear of failing and the desire of succeeding. You have to do these things completely and purely without fear, without desire. Because things that we do without lust of result are the purest actions we shall ever take.
+ - Artists use lies to tell the truth. Yes, I created a lie. But because you believed it, you found something true about yourself.
+ - While a truncheon may be used in lieu of conversation, words will always retain their power.
+ - Famously, there’s not really anywhere to go after nihilism. It’s not progressing toward anything, it’s a statement of outrage, however brilliant.
+ - Is it meaningless to apologize? Never.
+ - I think that we need mythology. We need a bedrock of story and legend in order to live our lives coherently.
+ - Real life is messy, inconsistent, and it’s seldom when anything ever really gets resolved. It’s taken me a long time to realize that.
+ - The things we do without the fear of failure and the desire for success are the purest acts we’ll ever do.
+ - Sexually progressive cultures gave us literature, philosophy, civilization and the rest, while sexually restrictive cultures gave us the Dark Ages and the Holocaust.
+ - The past can’t hurt you anymore. Not unless you let it. They made you into a victim, Evey. They made you into a statistic. But, that’s not the real you. That’s not who you are inside.
+ - Your pretty empire took so long to build, now, with a snap of history’s fingers, down it goes.
+ - What does fighting crime mean, exactly? Does it mean upholding the law when a woman shoplifts to feed her children, or does it mean struggling to uncover the ones who, quite legally, have brought about her poverty?
+ - Well, what do you expect? The Comedian is dead.
+ - Authority, when first detecting chaos at its heels, will entertain the vilest schemes to save its orderly facade.
+ - Our masters have not heard the people’s voice for generations and it is much, much louder than they care to remember.
+ - Don’t leave home without your sword – your intellect.
+ - Love doesn’t have a point. Love is the point.
+ - Please! Don’t all leave. Somebody has to do it, don’t you see? Somebody has to save the world...
+ - The magician to some degree is trying to drive him or herself mad in a controlled setting, within controlled laws.
+ - The dusk reeks of fornication and bad consciences.
+ - It is the oldest ironies that are still the most satisfying: man, when preparing for bloody war, will orate loudly and most eloquently in the name of peace.
+ - Does the human heart know chasms so abysmal?
+ - I didn’t put you in a prison, Evey. I just showed you the bars.
+ - Nothing is insoluble. Nothing is hopeless. Not while there’s life.
+ - You know what I wish? I wish all the scum of the Earth had one throat and I had my hands about it.
+ - Who? Who is but the form following the function of what, and what I am is a man in a mask.
+ - Once a man has seen society’s black underbelly, he can never turn his back on it. Never pretend, like you do, that it doesn’t exist.
+ - With so much chaos, someone will do something stupid. And when they do, things will turn nasty.
+ - A live body and a dead body contain the same number of particles. Structurally, there’s no discernible difference. Life and death are unquantifiable abstracts. Why should I be concerned?
+ - Magic and art tend to share a lot of the same language. They both talk about evocation, invocation, and conjuring.
+ - Magic is a state of mind. It is often portrayed as very black and gothic, and that is because certain practitioners played that up for a sense of power and prestige. That is a disservice. Magic is very colorful. Of this, I am sure.
+ - This city is dying of rabies. Is the best I can do to wipe random flecks of foam from its lips?
+ - There is an inverse relationship between imagination and money.
+ - Truly, whoever we are, wherever we reside, we exist upon the whim of murderers.
+ - Art makes us feel less alone. It makes us think: somebody else has thought this, somebody else has had these feelings.
+ - Existence is random. Has no pattern save what we imagine after staring at it for too long. No meaning save what we choose to impose.
+ - Everybody has their story to tell.
+ - I’ve never really cared much about money. I’ve got enough to live on. And it’s not like I live in a fancy house, it’s not like I own a car, and it’s not like I ever go on holiday.
+ - As people get more desperate, history suggests that they’re not going to rise in a mighty proletarian tidal wave and wash away their oppressors. They’re gonna turn on each other.
+ - I’ve never studied anything formally. I was excluded from school at the age of 17, so I am an autodidact, which is a word that I have taught myself.
+ - I’m 65 years old. Everyday the future looks a little bit darker. But the past, even the grimy parts of it, well, it just keeps on getting brighter all the time.
+ - I am brother to dragons, and companion to owls. My skin is black upon me, and my bones are burned with heat.
+ - All we ever see of stars are their old photographs.
+ - There is no future. There is no past. Do you see? Time is simultaneous, an intricately structured jewel that humans insist on viewing one edge at a time, when the whole design is visible in every facet.
+ - The superman exists and he’s American.
+ - The one place gods inarguably exist is in the human mind.
+ - On my fortieth birthday, rather than merely bore my friends by having anything as mundane as a midlife crisis I decided it might be more interesting to actually terrify them by going completely mad and declaring myself to be a magician.
+ - All culture must have arisen from cult.
+ - It’s only those exceptional and rare individuals who have brilliant ideas delivered to them by the muse, complete and gift wrapped. The rest of us have to work at it.
+ - Nothing ends, Adrian. Nothing ever ends.
+ - It doesn’t do you any service to demonize any group of people. It’s much better to try and understand from the inside.
+ - If I have to have a past, then I prefer it to be multiple choice.
+ - I’ve known a lot of people go mad over the years, and it is more distressing than people dying. People dying is quite natural, people going mad is the complete antithesis of that.
+ - I’m not a particularly dark individual. I have my moments, it’s true, but I do have a sense of humor.
+ - I wouldn’t be the person I am today if it wasn’t for the opportunities the library gave me.
+ - It seems strange that my life should end in such a terrible place, but for three years I had roses, and apologized to no one.
+ - Evey Hammond: Who are you? V: Who? Who is but the form following the function of what and what I am is a man in a mask. Evey Hammond: Well I can see that. V: Of course you can. I’m not questioning your powers of observation I’m merely remarking upon the paradox of asking a masked man who he is.
+ - As I see it, part of the art of being a hero is knowing when you don’t need to be one anymore.
+ - As I come to understand Vietnam and what it implies about the human condition, I also realize that few humans will permit themselves such an understanding.
+ - It’s cold and it’s mean spirited and I don’t like it here anymore.
+ - Please don’t worry. It’s a psychological complaint, common amongst ex-librarians. You see, she thinks she’s a coffee table edition...
+ - How can two people hate so much without knowing each other?
+ - In an era of stress and anxiety, when the present seems unstable and the future unlikely, the natural response is to retreat and withdraw from reality, taking recourse either in fantasies of the future or in modified visions of a half-imagines past.
+ - No one will ever forget that night, and what it meant for this country. But I will never forget the man and what he meant to me.
+ - I don’t distinguish between magic and art. When I got into magic, I realised I had been doing it all along, ever since I wrote my first pathetic story or poem when I was twelve or whatever. This has all been my magic, my way of dealing with it.
+ - Romantic poetry had its heyday when people like Lord Byron were kicking it large. But you try and make a living as a poet today, and you’ll find it’s very different!
+ - The one thing with writing stories about the rise of fascism is that if you wait long enough, you’ll almost certainly be proved right. Fascism is like a hydra – you can cut off its head in the Germany of the ’30s and ’40s, but it’ll still turn up on your back doorstep in a slightly altered guise.
+ - We have laboured long to build a heaven, only to find it populated with horrors.
+ - I really can’t be bothered going to a barber. And shaving every morning, that’s nightmarish. I spent my teenage years covered in tiny little bits of toilet paper.
+ - I am watching the stars, admiring their complex trajectories through space and time. I am trying to give a name to the force that set them in motion.
+ - I did it thirty-five minutes ago.
+ - Dan, I’m not a Republic serial villain. Do you seriously think I’d explain my master-stroke if there remained the slightest chance of you affecting its outcome? I did it thirty-five minutes ago.
+ - It has occurred to me that the superhero really only originates in America. That seems to be the only country that has produced this phenomenon.
+ - To some degree Satanism is purely a kind of disease of Christianity. You’ve got to really be Christian to believe in Satan.
+ - There’s a notion I’d like to see buried: the ordinary person. Ridiculous. There is no ordinary person.
+ - Truth is a well-known pathological liar. It invariably turns out to be Fiction wearing a fancy frock. Self-proclaimed Fiction, on the other hand, is entirely honest. You can tell this, because it comes right out and says, “I’m a Liar,” right there on the dust jacket.
+ - We gaze continually at the world and it grows dull in our perceptions. Yet seen from another’s vantage point, as if new, it may still take the breath away.
+ - I leave the human cockroaches to discuss their heroin and child pornography.
+ - You’ve got to be able to pay your bills, otherwise you’re not going to sleep at night. But beyond that, the world inside my head has always been a far richer place than the world outside it. I suppose that a lot of my art and writing are meant to bring the two together.
+ - A world grows up around me. Am I shaping it, or do its predetermined contours guide my hand?
+ - I’m a very smug show-off at heart. I’m altogether too pleased with myself. The big boost for me is to be able to turn out something that I think is pretty marvelous. I’m not in it for money, I’m just in it for the glory.
+ - As far as I can see, it’s not important that we have free will, just as long as we have the illusion of free will to stop us going mad.
+ - Equality and freedom are not luxuries to lightly cast aside. Without them, order cannot long endure before approaching depths beyond imagining.
+ - I’m the king of the 20th century. I’m the boogeyman, the villian, the black sheep of the family.
+ - For me, there is very little difference between magic and art. To me, the ultimate act of magic is to create something from nothing: It’s like when the stage magician pulls the rabbit from the hat.
+ - Authority allows two roles: the torturer and the tortured. Twists people into joyless mannequins that fear and hate, while culture plunges into the abyss.
+ - Ideas, unlike solid structures, do not perish. They remain immortal, immaterial and everywhere, like all Divine things. Ideas are a golden, savage landscape that we wander unaware, without a map. Be careful: in the last analysis, reality may be exactly what we think it is.
+ - The entire universe – for one thing – only exists in your perceptions. That’s all you’re gonna see of it. To all practical intents and purposes this is purely some kind of lightshow that’s being put on in the kind of neurons in our brain. The whole of reality.
+ - I’m not a very shy person. I’m just somebody who’s got a lot of work and who doesn’t like to parade himself in new celebrity contexts.
+ - Most of the people who get sent to die in wars are young men who’ve got a lot of energy and would probably rather, in a better world, be putting that energy into copulation rather than going over there and blowing some other young man’s guts out.
+ - Our environments shape the way we see ourselves. If you have been condemned to live in an area that is pretty evidently a rat-run, then sooner or later you’re gonna come to the conclusion that you’re a rat.
+ - We are alone. Live our lives, lacking anything better to do. Devise reason later.
+ - Happiness is the most insidious prison of all.
+ - I was kind of a selfish child, who always wanted things his way, and I’ve kind of taken that over into my relationship with the world.
+ - I’m dependent on writing for a living, so really it’s to my advantage to understand how the creative process works. One of the problems is, when you start to do that, in effect you’re going to have to step off the edge of science and rationality.
+ - I don’t think there’s really any difference between art – or writing, or music – and magic. And I particularly draw the link between magic and writing. I think that they are profoundly connected.
+ - They say we have we created the man to end all wars; I say we have created a man to end all worlds.
+ - If you’re using sex to sell sneakers, then you’re not just selling sneakers, you’re selling sex as well, and you’re contributing to the sexual temperature of society.
+ - In the human mind, the number of possible connections that can be made between neurons greatly exceeds the number of atoms in the universe.
+ - I’m not personally connected to the Internet, although nearly everyone that I know is, and many of them have a great time and no problems with it. And on the surface you can see that the Internet could go an awful long way to educating, enlightening, informing and connecting the world.
+ - If the audience knew what they wanted then they wouldn’t be the audience, they would be the artist.
+ - Right from the outset, the prevailing mindset in British comics fandom was a radical and progressive one. We were all proto-hippies, and we all thought that comics would be greatly improved if everything was a bit psychedelic like Jim Steranko.
+ - War is a perversion of sex.
+ - There is no substitute for practical experience, and if you want to write about people you ought to put down that comic book and go out and meet some of them rather than studying the way that Stan Lee or Chris Claremont depict people.
+ - I try to do things in comics that cannot be repeated by television, by movies, by interactive entertainment.
+ - If we can come up with all sorts of imaginative ways in which people die, then I really don’t see what the problem is with coming up with imaginative ways in which people can procreate.
+ - My dear, beautiful and imaginative things can be destroyed. Beauty and imagination cannot.
+ - Culture is just a shambling zombie that repeats what it did in life; bits of it drop off, and it doesn’t appear to notice.
+ - Because our entire universe is made up of consciousness, we never really experience the universe directly we just experience our consciousness of the universe, our perception of it, so right, our only universe is perception.
+ - There are people. There are stories. The people think they shape the stories, but the reverse if often closer to the truth. Stories shape the world. They exist independently of people, and in places quite devoid of man, there may yet be mythologies.
+ - Perhaps this is the purpose of all art, all writing, on the murders, fiction and non-fiction: Simply to participate.
+ - The Conservative Party is a religion in that they are bound together by belief. Almost any organization has its religious aspects.
+ - I enjoy putting my mind into different situations rather than my body.
+ - There’s been a growing dissatisfaction and distrust with the conventional publishing industry, in that you tend to have a lot of formerly reputable imprints now owned by big conglomerates.
+ - Here’s the thing: If you’re monitoring every single thing that goes on in a given culture, if you have all the information that is there to be had, then that is the equivalent of having none of it. How are you going to process that amount of information?
+ - It’s pretty much a fact that our entire universe is a mental construct. We don’t actually deal with reality directly. We simply compose a picture of reality from what’s going on in our retinas, in the timpani of our ears, and in our nerve endings.
+ - It may be true that the only reason the comic book industry now exists is for this purpose, to create characters for movies, board games and other types of merchandise.
+ - I think that in an increasingly virtual world, lovingly produced artefacts are at a premium.
+ - Please, don’t go. It’s lonely. There’s a hole in my head as big as the world and it’s so very lonely...
+ - Nothing’s that simple, not even things that are simply awful.
+ - One of the advantages of travelling the world is that you get to know the world broadly. And one of the advantages of staying in one place is that you get to know the world deeply.
+ - I’ve had years of bizarre hallucinogenic magical experiences in which I believed I had communicated with entities that may well have been disassociated parts of my own personality or conceivably some independent entity of a metaphysical nature. Both would seem equally interesting.
+ - It was Kovacs who said “Mother” then, muffled under latex. It was Kovacs who closed his eyes. It was Rorschach who opened them again.
+ - Material existence is entirely founded on a phantom realm of mind, whose nature and geography are unexplored.
+ - I genuinely like the people I meet at signings or the bits of public talking that I do.
+ - To paint comic books as childish and illiterate is lazy. A lot of comic books are very literate – unlike most films.
+ - I love the smell of paper in the morning; it smells like victory.
+ - It’s early days. A few skeletons are bound to keep jumping out of the closet.
+ - I increasingly fear that nothing good can come of almost any adaptation, and obviously that’s sweeping. There are a couple of adaptations that are perhaps as good or better than the original work. But the vast majority of them are pointless.
+ - I don’t like to go to conventions, and I don’t like to relate to people on a level of hero worship, because there’s no real communication going on there.
+ - In a sense, the story, or poem or verse or whatever it is you’re writing, you can kind of think of it as a kind of projectile. Imagine it is a kind of projectile which has been specially shaped to be aerodynamic, and that your target is the soft grey putty of the reader’s brain.
+ - Yes, of course, the whole idea is utterly inane, but to let its predictable inanities blind you to its truly fabulous and breathtaking aspects is to do both oneself and the genre a disservice.
+ - A lot of the critique of our growing mechanization was actually at its strongest, and arguably at its most perceptive, during the late ’60s.
+ - The comics medium has some unusual features that do make it very different, in that it’s combining a verbal narrative with a visual one that allows for much richer possibilities of transmitting information.
+ - My main point about films is that I don’t like the adaptation process, and I particularly don’t like the modern way of comic book-film adaptations, where, essentially, the central characters are just franchises that can be worked endlessly to no apparent point.
+ - The announcement that there is a League of Extraordinary Gentlemen television series hasn’t caused me to drastically alter my opinions. Now it seems they are recycling things that have already proven not to work.
+ - My only problem with fans is when they turn pro. For example, when all the professional writers were fired by DC in the ’60s, they brought in a generation of comic book fans who would have paid to have written these stories.
+ - London has been used as the emblematic English city, but it’s far from representative of what life in England is actually about.
+ - Despite the constant clamor for attention from the modern world, I do believe we need to procure a psychological space for ourselves. I apparently know some people who try to achieve this by logging off or going without their Twitter or Facebook for a limited period.
+ - Consciousness, unprovable by scientific standards, is forever, then, the impossible phantom in the predictable biologic machine, and your every thought a genuine supernatural event. Your every thought is a ghost, dancing.
+ - I suppose that the main drive is to find the edge of something and then throw myself over it.
+ - There’s a widespread cultural barrenness across art and political culture. But there are some pockets of resistance on the extreme margins, like the techno-savvy protest movements, small press, the creator-owned comics, that seem to be getting some signs of hope for the future.
+ - Life isn’t divided into genres.
+ - Growing up in the Boroughs, I thought I must be the cleverest boy in the world, an illusion that I was able to maintain until I got to the grammar school.
+ - I’m the idea of the human imagination, which, when you think about it, is the only thing we can really be certain ISN’T imaginary.
+ - I don’t think you can separate a place from its history. I think a place is much more than the bricks and mortar that go into its construction. I think it’s more than the accidental topography of the ground it stands on.
+ - A lot of people have found the idea of living your life over and over again absolutely terrifying; there’s some people that find it very comforting. There are others that are appalled by it.
+ - Rather than being able to have a healthy relationship with our own sexual imagination, we’re driven into some dark corners by shame and embarrassment and guilt, and those dark corners breed all sorts of monsters.
+ - When I hear alcoholics talk about having their demons, I think that they’re probably absolutely literally correct.
+ - The Here-and-Now demands attention, is more present to us. We dismiss the inner world of our ideas as less important, although most of our immediate physical reality originated only in the mind. The TV, sofa, clock and room, the whole civilisation that contains them once were nothing save ideas.
+ - You see, there’s the way things seemed and then there’s the way things were and one is so often the total reverse of the other.
+ - I’m very distanced from the comics industry. I love the comics medium, but I have no time for the industry.
+ - I think that the Occupy movement is, in one sense, the public saying that they should be the ones to decide who’s too big to fail.
+ - Do I believe, for example, that by using magic I could fly? No. How would you get around gravity? Impossible. Do I believe that I might be able to project my consciousness into a very, very vivid simulation of flying? Yeah. Yes, I’ve done that. Yes, that works.
+ - I’m remote from most technology to the point that I’m kind of Amish.
+ - Certainly, my many years working in the comics industry, creating products that I do not own, has made me rather fierce on the subject of giving up rights.
+ - I despise the comic industry, but I will always love the comic medium.
+ - I suppose all fictional characters, especially in adventure or heroic fiction, at the end of the day are our dreams about ourselves. And sometimes they can be really revealing.
+ - I didn’t really sign up to be a celebrity, I only signed up to be a writer.
+ - I’ve never watched any of the adaptations of my books. I’ve never wanted to, and there’s absolutely no chance of me doing so in the future.
+ - I’d prefer to include sex scenes alongside the adventure scenes and everyday-life scenes, as if they were all part of the same thing. Which of course they are. Sex is not discrete from the rest of our existence.
+ - I don’t really think that very much is interesting about the superhero as an archetype.
+ - On the one occasion where I did try writing a screenplay, I found the rewriting just unendurable.
+ - The more I look at most of the art movements, it’s all occultism, when you get down to it. The Surrealists were openly talking about being magicians.
+ - Now everything is wonderful and hazardous and nothing’s hypothetical.
+ - In the sixties, for anybody to suggest that the government didn’t have our best interests at heart and policemen sometimes killed people would have automatically made them a radical firebrand lefty. That’s not the case anymore.
+ - If we loved Steve Aylett, really loved him in the way that he deserves, a selfless love that genuinely wanted nothing save his happiness and comfort, we’d lobotomise him.
+ - Every film is a remake of a previous film, or a remake of a television series that everyone loved in the 1960s, or a remake of a television series that everyone hated in the 1960s. Or it’s a theme park ride; it will soon come to breakfast cereal mascots.
+ - If light is outlawed, then only outlaws will be able to see where they’re going.
+ - Our consciousness, a startling outgrowth of the universe, is possibly its most important part, the fraction of existence that can think, feel, marvel at itself.
+ - If you’re going to have any kind of political opposition in the 21st century, then it has to be as fundamentally liquid as the rapidly changing society we’re living in.
+ - If you’re functional, it doesn’t matter if you’re mad.
+ - It wasn’t so much all the sex that robbed me of my moral bearings, but all the narcotics. I must say, there’s something about opium that goes very well with lesbianism.
+ - In many ways, my entire graphic novel career was a long diversion. Originally, all I wanted to do was to be an underground cartoonist and maybe bring out a groovy underground mag.
+ - I love films that are made with almost no budget.
+ - There has been a rather unpleasant sensibility apparent in Frank Miller’s work for quite a long time.
+ - I have so very much. I have so very little.
+ - I don’t think any of us grew up into the world we were hoping for or expecting.
+ - People have asked me why I made the first chapter of my first novel so long, and in an invented English. The only answer I can come up with that satisfies me is, ‘To keep out the scum.’
+
+214 quotes

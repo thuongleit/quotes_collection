@@ -1,0 +1,87 @@
+ - If you seek nothing but the will of God, He will always put you in the right place at the right time.
+ - God does not call those who are equipped, He equips those whom He has called.
+ - I am not moved by what I see. I am not moved by what I feel. I am moved by what I believe.
+ - There is nothing impossible with God. All the impossibility is with us when we measure God by the limitations of our unbelief.
+ - There are four principles we need to maintain: First, read the Word of God. Second, consume the Word of God until it consumes you. Third believe the Word of God. Fourth, act on the Word.
+ - Great faith is the product of great fights. Great testimonies are the outcome of great tests. Great triumphs can only come out of great trials.
+ - I don’t often spend more than half an hour in prayer at one time, but I never go more than half an hour without praying.
+ - All things are possible, only believe.
+ - A man is in a great place when he has no one to turn to but God.
+ - The power of God will take you out of your own plans and put you into the plan of God.
+ - Enter into the promises of God. It is your inheritance. You will do more in one year if you are really filled with the Holy Ghost than you could do in fifty years apart from Him.
+ - To hunger and thirst after righteousness is when nothing in the world can fascinate us so much as being near God.
+ - Live in the Acts of the Apostles, and every day you will see some miracle worked by the power of the living God.
+ - God has chosen us to help one another.
+ - Nothing in the world glorifies God so much as simple rest of faith in what God’s Word says.
+ - I find nothing in the Bible but holiness, and nothing in the world but worldliness. Therefore, if I live in the world, I will become worldly; on the other hand, if I live in the Bible, I will become holy.
+ - Desire God, and you will have desires from God.
+ - A prayer without faith is without accomplishment.
+ - God wants His people to be ablaze with Holy Ghost activity.
+ - When we come to the place of impossibilities, it is the grandest place for us to see the possibilities of God.
+ - There is nothing that our God cannot do. He will do everything if you will dare to believe.
+ - Some people read their Bibles in Hebrew, some in Greek; I like to read mine in the Holy Ghost.
+ - To the man of faith, there is not a thing that is not opportunity.
+ - The Word of God will bring you into a wonderful place of rest in faith.
+ - I’d rather die believing than live doubting.
+ - There is something about believing God that will cause Him to pass over a million people to get to you.
+ - Before God could bring me to this place He has broken me a thousand times.
+ - God can so fill a man with His Spirit that he can laugh and believe in the face of a thousand difficulties.
+ - If the spirit does not move me, I move the Spirit.
+ - God is more eager to answer than we are to ask.
+ - I can get more out of God by believing Him for one minute than by shouting at Him all night.
+ - Great triumphs can only come out of great trials.
+ - God has privileged us in Christ Jesus to live above the ordinary human plane of life. Those who want to be ordinary and live on a lower plane can do so, but as for me, I will not.
+ - You must come to see how wonderful you are in God and how helpless you are in yourself.
+ - There are two kinds of faith. There is the natural faith. But the supernatural faith is the gift of God.
+ - I’m a thousand times bigger on the inside than I am on the outside.
+ - I never get out of bed in the morning without having communion with God in the Spirit.
+ - There is a place where God, through the power of the Holy Ghost, reigns supreme in our lives.
+ - You have to bring your mind to the Word of God and not try to bring the Word of God to your mind.
+ - The plan of God for your life is that you should be held captive by His power, doing that which you in the natural world would never do, but that which you are forced to do by the power of the Holy Ghost moving through you.
+ - The devil knows if he can capture your thought life he has won a mighty victory over you.
+ - Dare to believe, and then dare to speak, and you shall have whatsoever you say if you doubt not.
+ - If I read the newspaper I come out dirtier than I went in. If I read my Bible, I come out cleaner than I went in, and I like being clean!
+ - When the saint ceases to seek after holiness, purity, righteousness, truth; when he ceases to pray, stops reading the Word and gives way to carnal appetites, then it is that Satan comes.
+ - Real faith has perfect peace and joy and a shout at any time. It always sees the victory.
+ - How great is the position of the man who is born of God, born of purity, born of faith, born of life, born of power!
+ - There are boundless possibilities for us if we dare to act in God and dare to believe!
+ - If you are in the same place today as you were yesterday, you are a backslider.
+ - The living Word is able to destroy Satanic forces.
+ - The Spirit reveals, unfolds, takes of the things of Christ and shows them to us, and prepares us to be more than a match for Satanic forces.
+ - Fear looks; faith jumps. Faith never fails to obtain its object. If I leave you as I found you, I am not God’s channel. I am not here to entertain you, but to get you to the place where you can laugh at the impossible.
+ - Wherever the Holy Ghost has right of way, the gifts of the Spirit will be in manifestation; and where these gifts are never in manifestation, I question whether He is present.
+ - God never intended His people to be ordinary or commonplace. His intentions were that they should be on fire for Him, conscious of His divine power, realizing the glory of the cross that foreshadows the crown.
+ - Perfect love will never want the preeminence in everything, it will never want to take the place of another, it will always be willing to take the back seat.
+ - Pentecost came with the sound of a mighty rushing wind, a violent blast from heaven! Heaven has not exhausted its blasts, but our danger is we are getting frightened of them.
+ - When faith lays hold, impossibilities must yield.
+ - In me is working a power stronger than every other power. The life that is in me is a thousand times bigger than I am outside.
+ - Life comes after you have been filled with the Holy Ghost, get down and pray for power.
+ - One man in a meeting, filled with unbelief, can make a place for the devil to have a seat.
+ - The moment a man falls into sin, divine life ceases to flow, and his life becomes one of helplessness.
+ - You must be yielded to the Word of God. The Word will work out love in our hearts, and when practical love is in our hearts, there is no room to boast about ourselves. We see ourselves as nothing when we get lost in this divine love.
+ - Believe that when you come into the presence of God you can have all you came for. You can take it away, and you can use it, for all the power of God is at your disposal in response to your faith.
+ - It is better to live ready than to get ready!
+ - How can one come to possess great faith? Now listen, here is the answer to that: First, the blade, then the ear, then the full corn in the ear. Faith must grow by soil, moisture, and exercise.
+ - The devil will endeavor to fascinate through the eyes and through the mind.
+ - Whatever God has done for other men, He can do for me.
+ - Praise is God’s sunlight in the heart. It destroys sin germs. It ripens the fruits of the Spirit. It is the oil of gladness that lubricates life’s activities.
+ - There is a fruit of the Spirit that must accompany the gift of healing and that is longsuffering.
+ - To live two days in succession on the same spiritual plane is a tragedy.
+ - Desire toward God and you will have desires from God and He will meet you on the line of those desires when you reach out in simple faith.
+ - God’s canopy is over you and will cover you at all times, preserving you from evil.
+ - There are two sides to this Baptism: The first is, you possess the Spirit; The second is that the Spirit possesses you.
+ - God wants us so badly that he has made the condition as simple as he possibly could: Only believe.
+ - The man who is going through with God to be used in healing must be a man of longsuffering.
+ - Great faith is the product of great fights.
+ - Two things will get you to leap out of yourselves into the promises of God today. One is purity, and the other is FAITH, which is kindled more and more BY PURITY.
+ - God longs intensively for unhindered communication and total response between him and the believer indwelt by the Holy Spirit.
+ - It is impossible to overestimate the importance of being filled with the Spirit.
+ - People could be built far greater in the Lord and be more wonderfully established if they would move out sometimes and think over the graces of the Lord.
+ - It pays to trust God with all and to make no reservation.
+ - The Lord would so cleanse the motive and desires of our hearts that we will seek but one thing only, and that is, His glory.
+ - I am never happier in the Lord than when I am in a bedroom with a sick person.
+ - I am satisfied with the dissatisfaction that never rests until it is satisfied and satisfied again.
+ - It is one to say you have faith and another to be in a tight corner and prove it.
+ - The heart is the mainspring.
+
+85 quotes

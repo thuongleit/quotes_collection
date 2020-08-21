@@ -1,0 +1,31 @@
+ - There are three sides to every argument. Yours. The other guy’s. And the right side.
+ - Thousands of miles of wheat, indifference, and self- apology.
+ - The Canadian kid who wants to grow up to be Prime Minister isn’t thinking big, he is setting a limit to his ambitions rather early.
+ - Edmonton is not the end of the world but you can certainly see it from there.
+ - Each man creates god in his own image.
+ - The revolution eats its own. Capitalism re-creates itself.
+ - A boy can be two, three, four potential people, but a man is only one. He murders the others.
+ - Beauty, like male ballet dancers, makes some men afraid.
+ - Fiorito has all the right stuff. His splendid memoir about his relationship with his dying father belongs on that small shelf with Philip Roth’s Patrimony and Frank McCourt’s Angela’s Ashes.
+ - I obviously prefer writing novels but I take my journalism very seriously, and I enjoy doing it between novels. It gives me an opportunity to move in the outside world.
+ - This is an age of scientific wonders. You miss somebody so you pick up the phone to say hello. Three minutes for sixty-five cents. Nobody goes broke.
+ - I don’t hold with shamans, witch doctors, or psychiatrists. Shakespeare, Tolstoy, or even Dickens, understood more about the human condition than ever occurred to any of you. You overrated bunch of charlatans deal with the grammar of human problems, and the writers I’ve mentioned with the essence.
+ - In Canada, nobody is ever overthrown because nobody gives a damn.
+ - If you caricature friends in your first novel they will be upset, but if you don’t they will feel betrayed.
+ - I work every day – or at least I force myself into office or room. I may get nothing done, but you don’t earn bonuses without putting in time. Nothing may come for three months, but you don’t earn the fourth without it.
+ - Nothing is absolute any longer. There is a choice of beliefs and a choice of truths to go with them. If you choose not to choose then there is no truth at all. There are only points of view.
+ - I’m criticized by the feminists, by the Jewish establishment, by Canadian nationalists. And why not? I’ve had my pot shots at them. I’m fair game.
+ - If you’re writing a novel, you’re in a room for three or four years. There’s not much coming in from the outside.
+ - Mr. Bernard died on a Monday, at the age of seventy-five, his body wasted. He lay in state for two days in the lobby of the Bernard Gursky Tower and, as he failed to rise on the third, he was duly buried.
+ - And furthermore did you know that behind the discovery of America there was a Jewish financier?
+ - Fundamentally, all writing is about the same thing; it’s about dying, about the brief flicker of time we have here, and the frustration that it creates.
+ - For the record, pot, like the Reader’s Digest, is not necessarily habit-forming, but both can lead to hard-core addiction : heroin, in one case, abridged bad books, in the other. Either way you look at it, a withdrawal from a meaningful life.
+ - Tomorrow country then, tomorrow country now.
+ - If you don’t count some of Jehovah’s injunctions, there are no humorists in the Bible.
+ - Actually, when it comes to knocking the Canadian cultural scene, nobody outdoes Canadians, myself included. We are veritable masters of self-deprecation.
+ - There are ten commandments, right? Well, it’s like an exam. You get eight out of ten, you’re just about top of the class.
+ - Listen your Lordship, I’m a respecter of institutions. Even in Paris, I remained a Canadian. I puffed hashish, but I didn’t inhale.
+ - The process hasn’t changed, but the writer has developed. I still get up every morning and go to work.
+ - I have always been skeptical of medical orthodoxies, because sooner, rather than later, so many of them are turned on their heads. Or, put another way, providing you are prepared to wait it out, what was adjudged bad for you yesterday is likely to prove beneficial today.
+
+29 quotes

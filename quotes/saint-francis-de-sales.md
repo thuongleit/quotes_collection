@@ -1,0 +1,159 @@
+ - Be who you are and be that well.
+ - Have patience with all things, but chiefly have patience with yourself. Do not lose courage in considering your own imperfections but instantly set about remedying them – every day begin the task anew.
+ - Have patience with all things – but first with yourself. Never confuse your mistakes with your value as a human being. You are perfectly valuable, creative, worthwhile person simply because you exist. And no amount of triumphs or tribulations can ever change that.
+ - What we need is a cup of understanding, a barrel of love, and an ocean of patience.
+ - Every Christian needs a half-hour of prayer each day, except when he is busy, then he needs an hour.
+ - In everything, love simplicity.
+ - Great occasions for serving God come seldom, but little ones surround us daily.
+ - True progress quietly and persistently moves along without notice.
+ - We must fear God out of love, not love Him out of fear.
+ - Have patience to walk with short steps until you have wings to fly.
+ - When you encounter difficulties and contradictions, do not try to break them, but bend them with gentleness and time.
+ - Never be in a hurry; do everything quietly and in a calm spirit. Do not lose your inner peace for anything whatsoever, even if your whole world seems upset.
+ - Nothing is so strong as gentleness, nothing so gentle as real strength.
+ - Where there is peace and meditation, there is neither anxiety nor doubt.
+ - We shall steer safely through every storm, so long as our heart is right, our intention fervent, our courage steadfast, and our trust fixed on God. If at times we are somewhat stunned by the tempest, never fear. Let us take breath, and go on afresh.
+ - You learn to speak by speaking, to study by studying, to run by running, to work by working; and just so, you learn to love by loving. All those who think to learn in any other way deceive themselves.
+ - A spoon full of honey gets more flies than a barrel full of vinegar.
+ - Take care of your health, that it may serve you to serve God.
+ - We have freedom to do good or evil; yet to make choice of evil, is not to use, but to abuse our freedom.
+ - The Lord delights in every little step you take.
+ - Is it not a great temptation to be so valiant in imagination and so cowardly in execution?
+ - Anxiety is the greatest evil that can befall a soul, except sin. God commands you to pray, but He forbids you to worry.
+ - Every morning prepare your soul for a tranquil day.
+ - Do not wish to be anything but what you are, and try to be that perfectly.
+ - Truly it is a blessed thing to love on earth as we hope to love in Heaven, and to begin that friendship here which is to endure for ever there.
+ - God is present everywhere, and every person is His work.
+ - Humility consists in not esteeming ourselves above other men, and in not seeking to be esteemed above them.
+ - The state of marriage is one that requires more virtue and constancy than any other; it is a perpetual exercise in mortification.
+ - Have patience with all things, But, first of all with yourself.
+ - God takes pleasure to see you take your little steps; and like a good father who holds his child by the hand, He will accommodate His steps to yours and will be content to go no faster than you. Why do you worry?
+ - There is nothing small in the service of God.
+ - Never be hurried in anything. Do all things calmly and in a spirit of repose. Do not lose your inward peace even if everything seems to be going wrong. What is anything in life compared to peace of soul?
+ - It is not those who commit the least faults who are the most holy, but those who have the greatest courage, the greatest generosity, the greatest love, who make the boldest efforts to overcome themselves, and are not immediately apprehensive about tripping.
+ - Obedience is a consecration of the heart, chastity of the body, and poverty of all worldly goods to the Love and Service of God. Blessed indeed are the obedient, for God will never permit them to go astray.
+ - Mount Calvary is the academy of love.
+ - Don’t get upset with your imperfections. Surrender to the Power of God’s Love, which is greater than our weakness.
+ - Make sickness itself a prayer.
+ - If, when stung by slander or ill-nature, we wax proud and swell with anger, it is a proof that our gentleness and humility are unreal, and mere artificial show.
+ - To love our neighbor in charity is to love God in man.
+ - Pride dies 20 minutes after death.
+ - Doing little things with a strong desire to please God makes them really great.
+ - You learn to love by loving.
+ - He who stays not in his littleness, loses his greatness.
+ - There is no artifice as good and desirable as simplicity.
+ - Whatever happens, abide steadfast in a determination to cling simply to God.
+ - Friendship requires great communication.
+ - Work hard every day at increasing your purity of heart, which consists in appraising things and weighing them in the balance of God’s will.
+ - Faith is like a bright ray of sun light. It enables us to see God in all things as well as all things in God.
+ - Make yourself familiar with the angels and behold them frequently in spirit; for without being seen, they are present with you.
+ - I have made a pact with my tongue, not to speak when my heart is disturbed.
+ - Faith fills a man with love for the beauty of its truth, with faith in the truth of its beauty.
+ - The whole world is not worth one soul.
+ - Be not miserable about what may happen tomorrow. The same everlasting Father, who cares for you today, will care for you tomorrow.
+ - Let the enemy rage at the gate; let him knock, pound, scream, howl; let him do his worst. We know for certain that he cannot enter our soul except by the door of our consent.
+ - You can attract more bees with a spoonful of sugar than a cupful of vinegar.
+ - Half an hour’s meditation each day is essential, except when you are busy. Then a full hour is needed.
+ - Humility makes our lives acceptable to God, meekness makes us acceptable to men.
+ - All of us can attain to Christian virtue and holiness, no matter in what condition of life we live and no matter what our life work may be.
+ - Let us think only of spending the present day well. Then when tomorrow shall have come, it will be called today, and then we will think about it.
+ - When charity requires it we must freely and mildly communicate to our neighbor not only what is his instruction, but also what is profitable for his consolation.
+ - Let God be the air in which your heart breathes at ease.
+ - It is wonderful how attractive a gentle, pleasant manner is, and how much it wins hearts.
+ - Hell is full of good intentions and wills.
+ - When you have received Him, stir up your heart to do Him homage; speak to Him about your spiritual life, gazing upon Him in your soul where He is present for your happiness; welcome Him as warmly as possible, and behave outwardly in such a way that your actions may give proof to all of His Presence.
+ - It is right that you should begin again every day. There is no better way to complete the spiritual life than to be ever beginning it over again.
+ - He who can preserve gentleness amid pains, and peace amid worry multitude of affairs, is almost perfect.
+ - Be patient with everyone, but above all with yourself. I mean do not be disheartened by your imperfections, but always rise up with fresh courage.
+ - Nothing is more like a wise man than a fool who holds his tongue.
+ - We may be excused for not always being bright, but we are not excused for not being gracious, yielding and considerate.
+ - Humor is the foundation of reconciliation.
+ - He who complains, sins.
+ - God will either shield you from suffering or give you unfailing strength to bear it.
+ - Those who love to be feared fear to be loved.
+ - Every moment comes to us pregnant with a command from God, only to pass on and plunge into eternity, there to remain forever what we have made of it.
+ - Flowers often grow more beautifully on dung-hills than in gardens that look beautifully kept.
+ - The Prayer of the sick person is his patience and his acceptance of his sickness for the love of Jesus Christ. Make sickness itself a prayer, for there is none more powerful, save martyrdom!
+ - It is better to remain silent than to speak the truth ill-humoredly, and spoil an excellent dish by covering it with bad sauce.
+ - The test of a preacher is that his congregation goes away saying, not “What a lovely sermon!” but “I will do something.”
+ - Consider all the past as nothing, and say, like David: Now I begin to love my God.
+ - Have Jesus always for your patron, His Cross for a mast on which you must spread your resolutions as a sail. Your anchor shall be a profound confidence in Him, and you shall sail prosperously.
+ - While extremely sensitive as to the slightest approach to slander, you must also guard against an extreme into which some people fall, who, in their desire to speak evil of no one, actually uphold and speak well of vice.
+ - The greatest method of praying is to pray the Rosary.
+ - A heart-memory is better than a mere head-memory. Better to carry away a little of the love of Christ in our souls, than if we were able to repeat every word of every sermon we ever heard.
+ - Since God often sends us inspirations by means of His angels, we should frequently return our aspirations to him by means of the same messengers.
+ - Provided that God be glorified, we must not care by whom.
+ - One rarely does well what one rarely does.
+ - The spirit cannot endure the body when overfed, but, if underfed, the body cannot endure the spirit.
+ - A judicious silence is always better than truth spoken without charity.
+ - A quarrel between friends, when made up, adds a new tie to friendship.
+ - Go in all simplicity; do not be anxious to win a quiet mind, and it will be all the quieter. Do not examine so closely into the progress of your soul. Do not crave too much to be perfect, but let your spiritual life beformed by your duties, and by the actions which are called forth by circumstances.
+ - One single act done with aridity of spirit is worth more than many done with feelings of devotion.
+ - If you would fall into any extreme, let it be on the side of gentleness. The human mind is so constructed that it resists rigor, and yields to softness.
+ - Friendships begun in this world will be taken up again, never to be broken off.
+ - It is a great imperfection to complain unceasingly of little things.
+ - While I am busy with little things, I am not required to do greater things.
+ - Cook the truth in charity until it tastes sweet.
+ - A dance is the devil’s procession, and he that entereth into a dance, entereth into his possession.
+ - Nothing appeases an enraged elephant so much as the sight of a little lamb.
+ - Let us run to Mary, and, as her little children, cast ourselves into her arms with a perfect confidence.
+ - I recommend to you holy simplicity.
+ - We are sometimes so busy being good angels that we neglect to be good men and women.
+ - Big fires flare up in a wind, but little ones are blown out unless they are carried in under cover.
+ - One of the most evil dispositions possible is that which satirizes and turns everything to ridicule. God abhors this vice, and has sometimes punished it in a marked manner.
+ - One single day of devotion is worth more than a thousand years of worldly life.
+ - God requires a faithful fulfillment of the merest trifle given us to do, rather than the most ardent aspiration to things to which we are not called.
+ - The highest degree of meekness consists in seeing, serving, honoring, and treating amiably, on occasion, those who are not to our taste, and who show themselves unfriendly, ungrateful, and troublesome to us.
+ - Many who confess their venial sins out of custom and concern for order but without thought of amendment remain burdened with them for their whole life and thus lose many spiritual benefits and advantages.
+ - To live according to the spirit is to love according to the spirit.
+ - Better make penitents by gentleness than hypocrites by severity.
+ - Make friends with the angels, who though invisible are always with you. Often invoke them, constantly praise them, and make good use of their help and assistance in all your temporal and spiritual affairs.
+ - There are no galley-slaves in the royal vessel of divine love – every man works his oar voluntarily!
+ - Do not fret under such assistance as is needful; therein lies one great grace of poverty. It were overambitious to aim at being poor without suffering any inconvenience, in other words, to have the credit of poverty and the convenience of riches.
+ - The merit of the cross does not consist in its heaviness, but in the manner in which we carry it. I would even say that it is sometimes more virtuous to carry a cross of straw than a heavy cross because we have to be more attentive for fear of losing it.
+ - Every vocation becomes more agreeable when united with devotion.
+ - We can never attain to perfection while we have an affection for any imperfection.
+ - He prays well who is so absorbed with God that he does not know he is praying.
+ - The highest point of humility consists in not merely acknowledging one’s abjection, but in taking pleasure therein, not from any want of breadth or courage, but to give the more glory to God’s Divine Majesty, and to esteem one’s neighbour more highly than one’s self.
+ - By giving yourself to God, You not only receive Himself in exchange, but eternal life as well.
+ - Do not complain then of your poverty, my daughter, – we only complain of that which is unwelcome, and if poverty is unwelcome to you, you are no longer poor in spirit.
+ - We must never undervalue any person. The workman loves not that his work should be despised in his presence. Now God is present everywhere, and every person is His work.
+ - During the night we must wait for the light.
+ - The Devil doesn’t fear austerity but holy obedience.
+ - Fear is a greater evil than evil itself.
+ - It is to those who have the most need of us that we ought to show our love more especially.
+ - I see crosses at every turn. My flesh shudders over it, but my heart adores them. Yes, I hail you, crosses little and great, I hail you, and kiss your feet, unworthy of the honor of your shadow.
+ - I have the same opinion of dances that physicians have of mushrooms: the best of them are good for nothing.
+ - Obedience is a virtue of so excellent a nature, that Our Lord was pleased to mark its observance upon the whole course of His life; thus He often says, He did not come to do His Own will, but that of His Heavenly Father.
+ - If after all your efforts you cannot succeed, you could not please our Lord more than by sacrificing to Him your will, and remaining in tranquility, humility, and devotion, entirely conformed and submissive to His divine will and good pleasure.
+ - The truly patient man neither complains of his hard lot nor desires to be pitied by others. He speaks of his sufferings in a natural, true, and sincere way, without murmuring, complaining, or exaggerating them.
+ - Let us be what God likes, so long as we are His, and let us not be what we want to be, if it is against his intention.
+ - Naturally we all have an inclination to command, and a great aversion to obey; and yet it is certain that it is more for our good to obey than to command; hence perfect souls have always had a great affection for obedience, and have found all their joy and comfort in it.
+ - Do not desire crosses, unless you have borne well those laid on you; it is an abuse to long after martyrdom while unable to bear an insult patiently.
+ - In no other action can our Savior be considered more tender or more loving than in this, in which He, as it were, annihilates Himself and reduces Himself to food, that He may penetrate our souls and unite Himself to the hearts of His faithful.
+ - For every great temptation there will be many small ones. Wolves and bears are more dangerous than flies, but we are bothered most by flies.
+ - What son would not bring his mother back to life and would not bring her into paradise after her death if he could?
+ - If we say a little it is easy to add, but having said too much it is hard to withdraw and never can it be done so quickly as to hinder the harm of our success.
+ - The declared enemies of God and His Church, heretics and schismatics, must be criticized as much as possible, as long as truth is not denied. It is a work of charity to shout: ‘Here is the wolf!’ when it enters the flock or anywhere else.
+ - Charity and devotion differ no more, the one from the other, than the flame from the fire.
+ - Though perseverance does not come from our power, yet it comes from within our power.
+ - Those who love to be feared fear to be loved, and they themselves are more afraid than anyone, for whereas other men fear only them, they fear everyone.
+ - To lose ourselves in God is simply to give up our own will to Him. When a soul can truly say Lord I have no other will than Thine it is truly lost in God and united to Him.
+ - It matters little how one begins, provided that he be resolved to go on well, and to end well.
+ - True humility scarcely ever utters words of humility.
+ - Professions of humility are the very cream, the very essence of pride; the really humble person wishes to be, and not to appear so. Humility is timorous, and starts at her shadow; and so delicate that if she hears her name pronounced it endangers her existence.
+ - By turning your eyes on God in meditation, your whole soul will be filled with God. Begin all your prayers in the presence of God.
+ - Many would be willing to have afflictions provided that they not be inconvenienced by them.
+ - Trouble that is easily recognized is half-cured.
+ - Examine from time to time what are the dominant passions of your soul, and having ascertained this, mold your life, so that in thought, word, and deed you may as far as possible counteract them.
+ - True virtue has no limits, but goes on and on, and especially holy charity, which is the virtue of virtues, and which having a definite object, would become infinite if it could meet with a heart capable of infinity.
+ - Do not lose courage in considering your own imperfections.
+ - All the science of the Saints is included in these two things: To do, and to suffer. And whoever had done these two things best, has made himself most saintly.
+ - To be pleased at correction and reproofs shows that one loves the virtues which are contrary to those faults for which he is corrected and reproved. And, therefore, it is a great sign of advancement in perfection.
+ - Souls do not wish to be bullied, but gently brought back; such is the nature of man.
+ - Those who pray from the heart do not think about the prayer they are saying, but about the God to whom they pray.
+ - The damned are in the abyss of Hell, as within a woeful city, where they suffer unspeakable torments, in all their senses and members, because as they have employed all their senses and their members in sinning, so shall they suffer in each of them the punishment due to sin.
+ - We must visit Jesus in the Blessed Sacrament a hundred thousand times a day.
+ - A good discourse is that from which nothing can be retrenched without cutting into the quick.
+
+157 quotes

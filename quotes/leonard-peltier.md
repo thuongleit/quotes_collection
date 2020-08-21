@@ -1,0 +1,33 @@
+ - I don’t know how to save the world. I don’t have the answers or The Answer. I hold no secret knowledge as to how to fix the mistakes of generations past and present. I only know that without compassion and respect for all of Earth’s inhabitants, none of us will survive – nor will we deserve to.
+ - AIM in essence is a movement rather than just an organization. It is a manifestation of the desperation of our people.
+ - They still don’t want to admit to the world that this isn’t the best and the fairest and most equal justice system. And that they are guilty of railroading people into jail. They don’t want to, or never will, admit these things.
+ - What I am is a father, a grandfather, a great grandfather, and an artist. I am a man who loves his people and wants to go home.
+ - We need to do more than just what is right. We need to join together and right what is wrong.
+ - Only one thing’s sadder than remembering you were once free, and that’s forgetting you were once free.
+ - I think only a massive public outcry would result in my receiving any measure of justice.
+ - Justice is not a flexible tool. Unless we all do our part to ensure that justice is applied equally to all human beings, we are a party to its abuse. We must stand together to protect the rights of others.
+ - The FBI with their heavy influence on the judiciary system has successfully blocked me on every turn.
+ - We have over the years proven again and again that every piece of evidence used to convict me has been false. The FBI with its unlimited resources has done everything it possibly can to keep me in prison.
+ - United States Government needs to acknowledge and respect our sovereignty, treaties, traditional Native American values, and our human rights as a people, which under the law as written we deserve, and which should be protected.
+ - This American government has become very adept at attaching labels to people who defend themselves, so that the general population in America will condone their behavior.
+ - As to whether I will ever get out, it will obviously take some large measures of public opinion because the judiciary system of America is totally interlaced with bureaucratic influences that perpetuate FBI control over judges, prosecutors and court proceedings.
+ - There are so many things that we could do but education would be our primary need in this regard. And in obtaining this education we need to also educate ourselves and others to the truths that we have possessed from the beginning that allow men to live in harmony with one another.
+ - Innocence has a single voice that can only say over and over again, “I didn’t do it.” Guilt has a thousand voices, all of them lies.
+ - The America that never cared or felt guilty about portraying us as undignified people on their television screen, or in some old history book that never stated truthfully the facts of our invasion or the cruelty we had to endure for generations.
+ - You can’t believe one thing and do another. What you believe and what you do are the same thing.
+ - It is difficult for me to talk about some of these things without reliving the extreme emotions and loss one always feels for the untimely deaths of acquaintances, family and friends, all because they stood up against the unlawful tyranny of non-Indian America.
+ - Our people still need support. Support us through writing your government officials. We are still on the verge of extinction, with continued injustices brought against us.
+ - The United States government can indict you on something, and now you’ve got to prove your innocence. And that’s not the Constitution of the United States.
+ - If you look at the statistics regarding Native Americans, you will see that most of the tribes since the 70s have improved their economic situation in some form. And this has been brought about by their aggressive assertion of their sovereign treaty rights.
+ - In the past, when we were initially organizing to bring about changes, our elders had little or no political experience. However, today, most of those American Indian Movement organ-izers are the elders. They are quite adept at bringing attention to the public about any attacks upon our people.
+ - I see, or at least it appears to me, that there is some concerted effort to discredit them, and categorize the American Indian Movement as some adverse entity, as opposed to it being a manifestation of the desperations of a whole race of people.
+ - The FBI has always supported big business and big government.
+ - I, however, fear that at some future point there will possibly be concerted backlash against us because of our successes in business and other ventures. I fear this because I see a concerted effort by writers across the countries to sway public opinions by past AIM organizers.
+ - With what sovereignty we have retained, we choose to decide for ourselves our needs in accordance with our values, exerting our rights of empowerment under those articles of the treaties.
+ - My continued incarceration has served some good purposes. My defense committee has served as a training ground for other organizers in their defense of freedom and justice.
+ - A political prisoner is someone who is out fighting for his or her people’s rights and freedom and is imprisoned for that alone.
+ - I was like so many others passion-ately involved in trying to bring those truths to the world’s attention. We did our very best to peacefully do that. The city, state, and federal governments did their very best to quell our efforts. They were used to using heavy-handed tactics to silence us.
+ - In them days, it was just still not illegal to kill an Indian. If you killed an Indian, you’d be very unfortunate if you got probation – most of them were released immediately.
+ - I would like to say prison life at its very best and worst infinitely sucks.
+
+31 quotes

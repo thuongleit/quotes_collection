@@ -1,0 +1,70 @@
+ - Destiny is no matter of chance. It is a matter of choice. It is not a thing to be waited for, it is a thing to be achieved.
+ - Real estate is the best investment for small savings. More money is made from the rise in real estate values than from all other causes combined.
+ - On Thanksgiving Day we acknowledge our dependence.
+ - The greatest things ever done on Earth have been done little by little.
+ - If the Bible and the microscope do not agee, the microscope is wrong.
+ - If the Bible had said that Jonah swallowed the whale, I would believe it.
+ - If we have to give up either religion or education, we should give up education.
+ - Our government conceived in freedom and purchased with blood can be preserved only by constant vigilance.
+ - The people of Nebraska are for free silver and I am for free silver. I will look up the arguments later.
+ - The Rock of Ages is more important than the age of rocks.
+ - I can not wish you success in your effort to reject the treaty because while it may win the fight it may destroy our cause. My plan cannot fail if the people are with us and we ought not to succeed unless we do have the people with us.
+ - Christ has made of death a narrow starlit strip between the companionships of yesterday and the reunions of tomorrow.
+ - Anglo-Saxon civilization has taught the individual to protect his own rights; American civilization will teach him to respect the rights of others.
+ - If we steal a man’s purse we are thieves. If we steal twelve hundred islands we are patriots. If you steal a man’s money you will be sent to the penitentiary. If you steal his liberty you will be sent to the White House.
+ - The wisdom of the Bible writers is more than human; the prophecies proclaim a Supreme Ruler who, though inhabiting all space, deigns to speak through the hearts and minds and tongues of His children.
+ - An orator is a man who says what he thinks and feels what he says.
+ - Only those who believe attempt the seemingly impossible.
+ - Principles are eternal...
+ - If matter mute and inanimate, though changed by the forces of Nature into a multitude of forms, can never die, will the spirit of man suffer annihilation when it has paid a brief visit, like a royal guest, to this tenement of clay?
+ - Selfish interest is one of the most common obstructions to the advance of truth.
+ - When I find a man who is not willing to pay his share of the burden of the government which protects him, I find a man who is unworthy to enjoy the blessings of a government like ours.
+ - You shall not crucify mankind upon a cross of gold.
+ - Behold a republic standing erect while empires all around are bowed beneath the weight of their own armaments – a republic whose flag is loved while other flags are only feared.
+ - One miracle is just as easy to believe as another.
+ - Facts mean nothing unless they are rightly understood, rightly related and rightly interpreted.
+ - You shall not press down upon the brow of labor this crown of thorns; you shall not crucify mankind upon a cross of gold.
+ - If there is no God there is no hereafter. When, therefore, one drives God out of the universe he closes the door of hope upon himself.
+ - Evolution seems to close the heart to some of the plainest spiritual truths while it opens the mind to the wildest guesses advanced in the name of science.
+ - The large banking interests were deeply interested in the World War because of the wide opportunities for large profits.
+ - Two people in a conversation amount to four people talking. The four are what one person says, what he really wanted to say, what his listener heard, and what he thought he heard.
+ - The essence of patriotism lies in a willingness to sacrifice for one’s country, just as true greatness finds expression, not in blessings enjoyed, but in good bestowed.
+ - Success is brought by continued labor and continued watchfulness. We must struggle on, not for one moment hesitate, nor take one backward step.
+ - No greater victory can be won by citizens or soldiers than to transform temporary foes into permanent friends.
+ - Evolution is not truth; it is merely a hypothesis-it is millions of guesses strung together.
+ - Darwin begins by assuming life upon the earth; the Bible reveals the source of life and chronicles its creation.
+ - The Old Testament gave us the law; the New Testament reveals the love upon which the law rests.
+ - Agnosticism is the natural attitude of the evolutionist. How can a brute mind comprehend spiritual things?
+ - Love makes money-grabbing seem contemptible; love makes class prejudice impossible; love makes selfish ambition a thing to be despised; love converts enemies into friends.
+ - If evolution wins, Christianity goes!
+ - If God himself was not willing to use coercion to force man to accept certain religious views, man, uninspired and liable to error, ought not to use the means that Jehovah would not employ.
+ - Atheists have just as much civil right to teach atheism as Christians have to teach Christianity; agnostics have just as much right to teach agnosticism as Christians have to teach their religion.
+ - Wars are sometimes waged to extend trade-the blood of many being shed to enrich a few.
+ - A corporation has no rights except those given it by law. It can exercise no power except that conferred upon it by the people through legislation, and the people should be as free to withhold as to give, public interest and not private advantage being the end in view.
+ - Whenever one refuses to admit such a self-evident truth, for instance, as that it is wrong to steal, don’t argue with him-search him; the reason may be found in his pocket.
+ - We have our thoughts, our hopes, our fears, and yet we know that in a moment a change may come over any one of us that will convert a living, breathing human being into a mass of lifeless clay.
+ - God may be a matter of indifference to the evolutionists, and a life beyond may have no charm for them, but the mass of mankind will continue to worship their creator and continue to find comfort in the promise of their Savior that he has gone to prepare a place for them.
+ - All the ills from which America suffers can be traced back to the teaching of evolution. It would be better to destroy every other book ever written, and save just the first three verses of Genesis.
+ - The money power denounces, as public enemies, all who question its methods or throw light upon its crimes.
+ - Belief in God is almost universal and the effect of this belief is so vast that one is appalled at the thought of what social conditions would be if reverence for God were erased from every heart.
+ - If it weren’t for the lawyers we wouldn’t need them.
+ - A belief in God is fundamental; upon it rest the influences that control life.
+ - Patriotism is a mystery-intangible, invisible, and yet eternal.
+ - A man who murders another shortens by a few brief years the life of a human being; but he who votes to increase the burden of debts upon the people of the United States assumes a graver responsibility.
+ - Most of the temptations that come to us to sell the soul come in connection with the getting of money.
+ - The speech of one who knows what he is talking about and means what he says-it is thought on fire.
+ - If you want criticisms, read the dissenting opinions of the Court. That will give you criticisms.
+ - If we desire rules to govern our spiritual development we turn back to the Sermon on the Mount.
+ - That is the one thing in my public career that I regret – my work to secure the enactment of the Federal Reserve Law.
+ - If it be true, as I believe it is, that morality is dependent upon religion, then religion is not only the most practical thing in the world, but the first essential.
+ - The first thing to understand is the difference between the natural person and the fictitious person called a corporation. They differ in the purpose for which they are created, in the strength which they possess, and in the restraints under which they act.
+ - The great political questions are in their final analysis great moral questions.
+ - We can exterminate Ku Kluxism better by recognizing their honesty and teaching them that they are wrong.
+ - Greed is at the bottom of most of the wrong-doing with which government has to deal.
+ - We spend months inside them, then the rest of our lives getting babied by them.
+ - This nation is able to legislate for its own people on every question, without waiting for the aid or consent of any other nation on earth.
+ - When we advocate a thing which we believe will be successful we are not compelled to raise a doubt as to our own sincerity by trying to show what we will do if we are wrong.
+ - Nation after nation, when at the zenith of its power, has proclaimed itself invincible because its army could shake the earth with its tread and its ships could fill the seas, but these nations are dead, and we must build upon a different foundation if we would avoid their fate.
+ - There is no more reason to believe that man descended from an inferior animal than there is to believe that a stately mansion has descended from a small cottage.
+
+68 quotes

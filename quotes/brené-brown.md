@@ -1,0 +1,212 @@
+ - Vulnerability is the birthplace of innovation, creativity and change.
+ - Authenticity is the daily practice of letting go of who we think we’re supposed to be and embracing who we are.
+ - You can choose courage or you can choose comfort, but you can’t have both.
+ - Daring greatly means the courage to be vulnerable. It means to show up and be seen. To ask for what you need. To talk about how you’re feeling. To have the hard conversations.
+ - I define connection as the energy that exists between people when they feel seen, heard, and valued; when they can give and receive without judgment; and when they derive sustenance and strength from the relationship.
+ - Believing that you’re enough is what gives you the courage to be authentic.
+ - There is no innovation and creativity without failure. Period.
+ - You are imperfect, you are wired for struggle, but you are worthy of love and belonging.
+ - You either walk inside your story and own it or you stand outside your story and hustle for your worthiness.
+ - Vulnerability is not about winning, and it’s not about losing. It’s about having the courage to show up and be seen.
+ - Vulnerability is the core of shame and fear and our struggle for worthiness, but it appears that it’s also the birthplace of joy, of creativity, of belonging, of love.
+ - If you’re not in the arena also getting your ass kicked, I’m not interested in your feedback.
+ - Daring to set boundaries is about having the courage to love ourselves, even when we risk disappointing others.
+ - Maybe stories are just data with a soul.
+ - Want to be happy? Stop trying to be perfect.
+ - Vulnerability sounds like truth and feels like courage. Truth and courage aren’t always comfortable, but they’re never weakness.
+ - Empathy fuels connection; sympathy drives disconnection.
+ - The dark does not destroy the light; it defines it. It’s our fear of the dark that casts our joy into the shadows.
+ - Worthiness doesn’t have prerequisites.
+ - Talk to yourself like you would to someone you love.
+ - Courage, the original definition of courage, when it first came into the English language – it’s from the Latin word cor, meaning heart – and the original definition was to tell the story of who you are with your whole heart.
+ - When perfectionism is driving us, shame is riding shotgun and fear is that annoying backseat driver!
+ - We are hardwired to connect with others, it’s what gives purpose and meaning to our lives, and without it there is suffering.
+ - When we deny our stories, They define us. When we own our stories, we get to write the ending.
+ - Lean into the discomfort of the work.
+ - Authenticity is a collection of choices that we have to make every day. It’s about the choice to show up and be real. The choice to be honest. The choice to let our true selves be seen.
+ - Vulnerability is the birthplace of love, belonging, joy, courage, empathy, and creativity. It is the source of hope, empathy, accountability, and authenticity. If we want greater clarity in our purpose or deeper and more meaningful spiritual lives, vulnerability is the path.
+ - Self-compassion is key because when we’re able to be gentle with ourselves in the midst of shame, we’re more likely to reach out, connect, and experience empathy.
+ - Only when we are brave enough to explore the darkness will we discover the infinite power of our light.
+ - There is no joy without gratitude.
+ - Yes, I am imperfect and vulnerable and sometimes afraid, but that doesn’t change the truth that I am also brave and worthy of love and belonging.
+ - In order for connection to happen, we have to allow ourselves to be seen, really seen.
+ - I don’t have to chase extraordinary moments to find happiness – it’s right in front of me if I’m paying attention and practicing gratitude.
+ - Compassion is not a virtue – it is a commitment. It’s not something we have or don’t have – it’s something we choose to practice.
+ - Courage starts with showing up and letting ourselves be seen.
+ - Trust is a product of vulnerability that grows over time and requires work, attention, and full engagement.
+ - Don’t try to win over the haters; you are not a jackass whisperer.
+ - Let go of who you think you should be in order to be who you are. Be imperfect and have compassion for yourself. Connection is the result of authenticity.
+ - When you numb your pain you also numb your joy.
+ - If we can share our story with someone who responds with empathy and understanding, shame can’t survive.
+ - What makes you vulnerable makes you beautiful.
+ - Perfectionism is a self destructive and addictive belief system that fuels this primary thought: If I look perfect, and do everything perfectly, I can avoid or minimize the painful feelings of shame, judgment, and blame.
+ - If you put shame in a petri dish, it needs three ingredients to grow exponentially: secrecy, silence, and judgment. If you put the same amount of shame in the petri dish and douse it with empathy, it can’t survive.
+ - What we know matters but who we are matters more.
+ - The willingness to show up changes us, It makes us a little braver each time.
+ - The truth is, rarely can a response make something better – what makes something better is connection.
+ - What separates privilege from entitlement is gratitude.
+ - Joy, collected over time, fuels resilience – ensuring we’ll have reservoirs of emotional strength when hard things do happen.
+ - I now see how owning our story and loving ourselves through that process is the bravest thing that we will ever do.
+ - We cannot selectively numb emotions, when we numb the painful emotions, we also numb the positive emotions.
+ - What’s worth doing even if you fail?
+ - Mindfully practicing authenticity during our most soul-searching struggles is how we invite grace, joy and gratitude into our lives.
+ - Hope is a function of struggle.
+ - Tell your story with your whole heart.
+ - Rest and play, are as vital to our health as nutrition and exercise.
+ - Shame cannot survive being spoken. It cannot tolerate having words wrapped around it. What it craves is secrecy, silence, and judgment. If you stay quiet, you stay in a lot of self-judgment.
+ - Imperfections are not inadequacies; they are reminders that we’re all in this together.
+ - Laughter, song, and dance create emotional and spiritual connection; they remind us of the one thing that truly matters when we are searching for comfort, celebration, inspiration, or healing: We are not alone.
+ - Because true belonging only happens when we present our authentic, imperfect selves to the world, our sense of belonging can never be greater than our level of self-acceptance.
+ - At the end of my life I want to be able to say I contributed more than I criticized.
+ - We don’t have to be perfect, just engaged and committed to aligning values with actions.
+ - Owning our story can be hard but not nearly as difficult as spending our lives running from it.
+ - When you get to a place where you understand that love and belonging, your worthiness, is a birthright and not something you have to earn, anything is possible.
+ - The question isn’t so much, Are you parenting the right way? as it is: Are you the adult you want your child to grow up to be?
+ - That’s what life is about: about daring greatly, about being in the arena.
+ - The opposite of play is not work – the opposite of play is depression.
+ - Vulnerability is the core, the heart, the center, of meaningful human experience.
+ - You cannot shame or belittle people into changing their behaviors.
+ - If you trade your authenticity for safety, you may experience the following: anxiety, depression, eating disorders, addiction, rage, blame, resentment, and inexplicable grief.
+ - Those who have a strong sense of love and belonging have the courage to be imperfect.
+ - You can’t get to courage without walking through vulnerability.
+ - Wholehearted living is not like trying to reach a destination. It’s like walking toward a star in the sky. We never really ‘arrive,’ but we certainly know that we’re heading in the right direction.
+ - Share with people who have earned the right to hear your story.
+ - Nothing has transformed my life more than realizing that it’s a waste of time to evaluate my worthiness by weighing the reaction of the people in the stands.
+ - We cultivate love when we allow our most vulnerable and powerful selves to be deeply seen and known, and when we honor the spiritual connection that grows from that offering with trust, respect, kindness and affection.
+ - Shame is the most powerful, master emotion. It’s the fear that we’re not good enough.
+ - When we fail to set boundaries and hold people accountable, we feel used and mistreated. This is why we sometimes attack who they are, which is far more hurtful than addressing a behavior or a choice.
+ - Perfectionism is a twenty-ton shield that we lug around thinking it will protect us when, in fact, it’s the thing that’s really preventing us from taking flight.
+ - The two most powerful words when we’re in struggle: me too.
+ - I don’t just want someone who says they love me; I want someone who practices that love for me every day.
+ - There’s nothing more daring than showing up, putting ourselves out there and letting ourselves be seen.
+ - When I look at narcissism through the vulnerability lens, I see the shame-based fear of being ordinary. I see the fear of never feeling extraordinary enough to be noticed, to be lovable, to belong, or to cultivate a sense of purpose.
+ - When failure is not an option, we can forget about creativity, learning, and innovation.
+ - Numb the dark and you numb the light.
+ - Faith is a place of mystery, where we find the courage to believe in what we cannot see and the strength to let go of our fear of uncertainty.
+ - Shame cannot survive being spoken. It cannot survive empathy.
+ - Shame corrodes the very part of us that believes we are capable of change.
+ - We are a culture of people who’ve bought into the idea that if we stay busy enough, the truth of our lives won’t catch up with us.
+ - Until we can receive with an open heart, we’re never really giving with an open heart. When we attach judgment to receiving help, we knowingly or unknowingly attach judgment to giving help.
+ - It’s not about ‘what can I accomplish?’ but ‘what do I want to accomplish?’ Paradigm shift.
+ - Connection, the ability to feel connected, is neurobiologically wired, that’s why we’re here!
+ - Nostalgia is also a dangerous form of comparison. Think about how often we compare our lives to a memory that nostalgia has so completely edited that it never really existed.
+ - Knowledge is important, but only if we’re being kind and gentle with ourselves as we work to discover who we are.
+ - Perfectionism is self destructive simply because there’s no such thing as perfect. Perfection is an unattainable goal.
+ - Vulnerability is our most accurate measurement of courage.
+ - When we lose our tolerance for vulnerability, joy becomes foreboding.
+ - Hope is not an emotion; it’s a way of thinking or a cognitive process.
+ - How can we embrace rest and play if we’ve tied our self-worth to what we produce?
+ - Staying vulnerable is a risk we have to take if we want to experience connection.
+ - Joy comes to us in moments – ordina ry moments. We risk missing out on joy when we get too busy chasing down the extraordinary.
+ - Are you the adult that you want your child to grow up to be?
+ - If you own this story you get to write the ending.
+ - Our sense of belonging can never be greater than our level of self acceptance.
+ - The only unique contribution that we will ever make in this world will be born of our creativity.
+ - Unused creativity is not benign.
+ - Knowledge is only rumor until it lives in the bones.
+ - We’re a nation of exhausted and over-stressed adults raising over-scheduled children.
+ - There is no such thing as creative and non-creative people, only people who use their creativity and people who don’t.
+ - Vulnerability is not about fear and grief and disappointment; it is the birthplace of everything we’re hungry for.
+ - If we want to fully experience love and belonging, we must believe that we are worthy of love and belonging.
+ - I believe a joyful life is made up of joyful moments, gracefully strung together by trust, gratitude, inspiration, and faith.
+ - What we know matters, but who we are matters more. Being rather than knowing requires showing up and letting ourselves be seen. It requires us to dare greatly, to be vulnerable.
+ - For me, the opposite of scarcity is not abundance. It’s enough. I’m enough. My kids are enough.
+ - Understanding the difference between healthy striving and perfectionism is critical to laying down the shield and picking up your life. Research shows that perfectionism hampers success. In fact, it’s often the path to depression, anxiety, addiction, and life paralysis.
+ - Wholeheartedness. There are many tenets of Wholeheartedness, but at its very core is vulnerability and worthiness; facing uncertainty, exposure, and emotional risks, and knowing that I am enough.
+ - Vulnerability is about showing up and being seen. It’s tough to do that when we’re terrified about what people might see or think.
+ - If we want to live and love with our whole hearts, and if we want to engage with the world from a place of worthiness, we have to talk about the things that get in the way- especially shame, fear and vulnerability.
+ - I now see how gifts like courage, compassion, and connection only work when they are exercised. Every day.
+ - I carry a small sheet of paper in my wallet that has written on it the names of people whose opinions of me matter. To be on that list, you have to love me for my strengths and struggles.
+ - Vulnerability sounds like truth and feels like courage.
+ - Many people think of perfectionism as striving to be your best, but it is not about self-improvement; it’s about earning approval and acceptance.
+ - A good life happens when you stop and are grateful for the ordinary moments that so many of us just steamroll over to try to find those extraordinary moments.
+ - We cannot give our children what we don’t have.
+ - If we want to cultivate hopefulness, we have to be willing to be flexible and demonstrate perseverance. Not every goal will look and feel the same. Tolerance for disappointment, determination, and a belief in self are the heart of hope.
+ - We cannot give our children what we don’t have. Where we are on our journey of living and loving with our whole hearts is a much stronger indicator of parenting success than anything we can learn from how-to books.
+ - Who we are matters immeasurably more than what we know or who we want to be.
+ - I’m just so grateful, because to feel this vulnerable means I’m alive.
+ - Guilt is just as powerful, but its influence is positive, while shame’s is destructive. Shame erodes our courage and fuels disengagement.
+ - Connection gives purpose and meaning to our lives.
+ - The universe is not short on wake-up calls. We’re just quick to hit the snooze button.
+ - Shame derives its power from being unspeakable.
+ - It’s in our biology to trust what we see with our eyes. This makes living in a carefully edited, overproduced and photoshopped world very dangerous.
+ - Courage is like – it’s a habitus, a habit, a virtue: You get it by courageous acts. It’s like you learn to swim by swimming. You learn courage by couraging.
+ - We teach what we have to learn. It’s been an extraordinary journey that I couldn’t have done with not only the research participants but the community, the tribe that we’ve built of people who are also on this journey.
+ - Talk about your failures without apologizing.
+ - We’re raising children who have little tolerance for disappointment.
+ - We are so busy that the truth about our lives can’t catch up.
+ - We’re all so busy chasing the extraordinary that we forget to stop and be grateful for the ordinary.
+ - We can’t practice compassion with other people if we can’t treat ourselves kindly.
+ - Every time we choose courage, we make everyone around us a little better and the world a little braver. And our world could stand to be a little kinder and braver.
+ - Vulnerability is not weakness. And that myth is profoundly dangerous.
+ - We’re a nation hungry for more joy: Because we’re starving from a lack of gratitude.
+ - If we share our shame story with the wrong person, they can easily become one more piece of flying debris in an already dangerous storm.
+ - Shame hates it when we reach out and tell our story. It hates having words wrapped around it- it can’t survive being shared. Shame loves secrecy. When we bury our story, the shame metastasizes.
+ - Courage is a value. My faith is the organizing principle in my life and what underpins my faith is courage and love, and so I have to be in the arena if I’m going to live in alignment with my values.
+ - Here’s what is truly at the heart of wholeheartedness: Worthy now, not if, not when, we’re worthy of love and belonging now. Right this minute. As is.
+ - Nothing is as uncomfortable, dangerous and hurtful as believing that I’m standing on the outside of my life looking in and wondering what it would be like if I had the courage to show up and let myself be seen.
+ - The most powerful teaching moments are the ones where you screw up.
+ - The difficult thing is that vulnerability is the first thing I look for in you and the last thing I’m willing to show you. In you, it’s courage and daring. In me, it’s weakness.
+ - I wasn’t really testing it on myself as much as I was learning from other people about what it meant to live and love with your whole heart, and then thinking, oh my god, I’m not doing that.
+ - Faith minus vulnerability and mystery equals extremism. If you’ve got all the answers, then don’t call what you do ‘faith.’
+ - In a highly critical, scarcity-based world, everyone’s afraid to fail. As long as we’re afraid to fail, we’ll never come up with the big, bold ideas we need to solve these problems.
+ - All the stuff that keeps you safe from feeling scary emotions? They also keep you from feeling the good emotions. You have to shake those off. You have to become vulnerable.
+ - Hope is really a thought.
+ - When you ask people about love, they tell you about heartbreak.
+ - Social media has given us this idea that we should all have a posse of friends when in reality, if we have one or two really good friends, we are lucky.
+ - You cannot talk about race without talking about privilege. And when people start talking about privilege, they get paralyzed by shame.
+ - I’m never more courageous than when I’m embracing imperfection, embracing vulnerabilities, and setting boundaries with the people in my life.
+ - Men walk this tightrope where any sign of weakness illicits shame, and so they’re afraid to make themselves vulnerable for fear of looking weak.
+ - First and foremost, we need to be the adults we want our children to be. We should watch our own gossiping and anger. We should model the kindness we want to see.
+ - Living a connected life ultimately is about setting boundaries, spending less time and energy hustling and winning over people who don’t matter, and seeing the value of working on cultivating connection with family and close friends.
+ - There is no intimacy without vulnerability. Yet another powerful example of vulnerability as courage.
+ - Vulnerability is not knowing victory or defeat, it’s understanding the necessity of both; it’s engaging. It’s being all in.
+ - When the people we love stop paying attention, trust begins to slip away and hurt starts seeping in.
+ - We have to be women we want our daughters to be.
+ - Feeling vulnerable, imperfect, and afraid is human. It’s when we lose our capacity to hold space for these struggles that we become dangerous.
+ - Who we are and how we engage with the world are much stronger predictors of how our children will do than what we know about parenting.
+ - It’s hard to practice compassion when we’re struggling with our authenticity or when our own worthiness is off-balance.
+ - But I don’t think it’s as dangerous, scary, or terrifying as getting to the end of our lives and wondering, what if I would have shown up?
+ - If we want greater clarity in our purpose or deeper and more meaningful spiritual lives, vulnerability is the path.
+ - Through my research, I found that vulnerability is the glue that holds relationships together. It’s the magic sauce.
+ - Even to me the issue of “stay small, sweet, quiet, and modest” sounds like an outdated problem, but the truth is that women still run into those demands whenever we find and use our voices.
+ - Creativity, which is the expression of our originality, helps us stay mindful that what we bring to the world is completely original and cannot be compared.
+ - Do you light up when your kids are coming in the room or do you become the instant critic?
+ - What makes something better is connection.
+ - Sufficiency isn’t two steps up from poverty or one step short of abundance. It isn’t a measure of barely enough or more than enough. Sufficiency isn’t an amount at all. It is an experience, a context we generate, a declaration, a knowing that there is enough, and that we are enough.
+ - Courage is telling our story, not being immune to criticism.
+ - When we’re defined by what people think we lose the courage to be vulnerable.
+ - Our capacity for wholeheartednes s can never be greater than our willingness to be broken-hearted.
+ - It’s no longer a question of can I do it. It’s a question of: Do I want to do it?
+ - We can only belong when we offer our most authentic selves and when we’re embraced for who we are.
+ - The one thing that keeps us out of connection is our fear that we’re not worthy of connection.
+ - Cool is the emotional straightjacket. It makes us less available for connection which makes us less equipped for leadership roles.
+ - Perfect and bulletproof are seductive, but they don’t exist in the human experience.
+ - In many ways, September feels like the busiest time of the year: The kids go back to school, work piles up after the summer’s dog days, and Thanksgiving is suddenly upon us.
+ - Live-tweeting your bikini wax is not vulnerability. Nor is posting a blow-by-blow of your divorce. That’s an attempt to hot-wire connection. But you can’t cheat real connection. It’s built up slowly. It’s about trust and time.
+ - We cannot ignore our pain and feel compassion for it at the same time.
+ - Caring about the welfare of children and shaming parents are mutually exclusive endeavors.
+ - There really is “no effort without error and shortcoming” and there really is no triumph without vulnerability.
+ - I believe that owning our worthiness is the act of acknowledging that we are sacred. Perhaps embracing vulnerability and overcoming numbing is ultimately about the care and feeding of our spirits.
+ - Faith minus vulnerability is fundamentalism.
+ - Vulnerability pushed, I pushed back. I lost the fight, but probably won my life back.
+ - Ads sell a great deal more than products. They sell values, images, and concepts of success and worth.
+ - I only share when I have no unmet needs that I’m trying to fill. I firmly believe that being vulnerable with a larger audience is only a good idea if the healing is tied to the sharing, not to the expectations I might have for the response I get.
+ - I’ve found what makes children happy doesn’t always prepare them to be courageous, engaged adults.
+ - Embracing our vulnerabilities is risky but not nearly as dangerous as giving up on love and belonging and joy.
+ - Cruelty is easy, cheap and rampant.
+ - We cannot grow when we are in shame, and we can’t use shame to change ourselves or others.
+ - If you can’t say it to me in front of my kids, don’t say it.
+ - I believe joy is a spiritual practice.
+ - Loving and accepting ourselves are the ultimate acts of courage.
+ - We need to change what we say and what we allow to be said in front of us.
+ - Then I tell my own story. The two things that people really need to transform is language to understand their experience and to know they’re not alone. It’s the combination of the researcher-storyteller part.
+ - There’s no evidence that vulnerabilty is weakness.
+ - Think about what’s pleasurable, not just what’s possible.
+ - If we can’t stand up to the never good enough and who do you think you are? we can’t move forward.
+ - I became Vulnerability TED, like an action figure – like Ninja Barbie, but I’m Vulnerability TED.
+ - There are infinite numbers of do overs for your teen girls.
+ - You can’t dress rehearse the bad moments.
+ - Love is a connection that can only be cultivated between two people when it exists within each one of them – we can only love others as much as we love ourselves.
+
+210 quotes

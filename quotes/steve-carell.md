@@ -1,0 +1,77 @@
+ - Is it true that if you don’t USE it you LOSE it?
+ - I’m not superstitious, but I’m a little stitious.
+ - Your brain, like your tongue, is a muscle. Practicing thinking by yourself really helps develop your brain, which you need throughout your day. I like to practice my thinking in a darkened room, alone.
+ - I can get lazy. I don’t think I’m a very driven person. When I have work, I work very hard. But when I don’t work, I really don’t do anything. I could easily just fade away.
+ - It’s harder when people are playing along, because it’s just not as funny. They’re trying to be funny, and it sort of cancels out the whole joke.
+ - I think there’s a little bit of idiot in everybody and I think some people cover it better than others but I think I am very much a guy who wears his heart on his sleeve.
+ - I’m not good with pickup lines or flirting. I don’t have that kind of self-confidence or natural charisma.
+ - I wasn’t a class clown, I never developed this comedic flair as a kid. Even when I decided to become an actor, it was just to be an actor, not necessarily a comedic actor. I wasn’t that guy who struck out with women so he became really funny, and that’s when the women started to like him.
+ - I had, like, two goals in my career: One was to try to get into ‘Second City.’ When I moved to Chicago, my goal was to try to work at ‘Second City.’ And beyond that, my goal was to make enough money as an actor to not do anything else but act, not have to go and wait tables again.
+ - I’ve waited my entire life to be busy. Whenever I hear actors complain about being busy, I think, ‘shut up.’ Because you do, you wait to be successful or to be able to work.
+ - Maybe the coolest people are the ones who don’t care about being cool.
+ - I find things funny that aren’t self-aware. That don’t know they’re funny, and I think the same can hold true for drama. If you think you’re in this tragedy and you play it for tragedy, there’s a self-awareness there that I think takes you out of watching it and I believe it cuts both ways.
+ - Reading a book, watching a movie, going to a play, it’s transporting, and very, very exciting. And to be a part of that, creating things with your imagination, whoa.
+ - I don’t do anything to try to change people’s perceptions of me. I tend to think that’s sort of an ego driven thing.
+ - That’s an interesting way to put it: an expectation of who you should be. More often than not, it’s described as an expectation of who you are.
+ - As a parent, all you want is for your kids to be safe but you don’t want to be over-protective and so you know that at some stage, they’re going to make their own mistakes and get hurt emotionally when all you want to do is protect them from that.
+ - Instead of telling our young people to plan ahead, we should tell them to plan to be surprised.
+ - We are all facing the end one day or another. I say, live a good and prosperous life, make sure your choices count, make them count.
+ - You’re so in love with your children that you’d do anything for them; that’s not necessarily the best thing.
+ - For me, at least, all of my career goals, all of my focus, everything just shifted and the importance was my children, and that’s where all the joy came from as well.
+ - You’re doing your kids a disservice if they do get everything they want because that’s not the way life’s going to go, and I think kids have to have some reality.
+ - My maternal grandma was a tough, tough lady and a stern woman, who lost her husband young and raised six kids by herself. She lived in a mining community in Upstate New York and ran a boarding house for miners. She took care of an entire family and miners who lived in the house as well.
+ - Taste in comedy, like fashion, changes all the time.
+ - Some people just derive great joy from making other people laugh. And I do, but I don’t feel like I need to do it 24 hours a day.
+ - People just like to be on camera. There’s a huge desire to be in front of the camera, and once there, people will say and do almost anything. It’s sort of a drug, and I think people get addicted to it.
+ - You know, what’s funny to one person is not at all to someone else.
+ - If I’d had a great level of success early on, who knows how I would have responded. I might have been a complete jerk.
+ - I am always the type of person who is waiting for the other shoe to drop and for it to peter out and end. And if it does that’s fine.
+ - Divorce is fairly common these days, and I think many times people disregard the emotional impact that divorce has on a couple and a family, because it happens so frequently.
+ - Like most people, I have painful memories of trying to fit in as a child. I wore, said, and did pretty much what everyone else did.
+ - I play the baritone horn – which is like a mini tuba, and is the least sexy instrument you can choose, and I generally say I don’t play one so I don’t have to acknowledge it. I also play fife.
+ - What kind of person would have a real craving for gummy worms?
+ - We always spend the summer together. My wife and kids, we always go back to Massachusetts and spend the summer there near where my wife and I both grew up. I wasn’t willing to sacrifice the summer to go elsewhere.
+ - Wikipedia is the best thing ever. Anyone in the world can write anything they want about any subject. So you know you are getting the best possible information.
+ - Relationships shouldn’t be disposable. If there’s something worth saving – not always the case, some relationships are irreconcilable – but if there is something that you determine is worth saving, then try to do that.
+ - Sending a handwritten letter is becoming such an anomaly. It’s disappearing. My mom is the only one who still writes me letters. And there’s something visceral about opening a letter – I see her on the page. I see her in her handwriting.
+ - I’m listening to a lot of Katy Perry, Taylor Swift, and Rihanna. A lot of pop female artists. I have to say I’m pretty well-versed in the pop female category.
+ - Even the most self-confident people, at one point of their lives, felt like outsiders or felt like they weren’t being heard or seen or witnessed in some way.
+ - People say, ‘What’s the secret to a marriage?’ There’s no secret – I think you get lucky.
+ - Do not to be as shy around girls, because they’re probably just as shy and just as scared as you are.
+ - I think when someone who’s known for doing drama does a comedy but just tries to be funny, that’s a mistake.
+ - I’ll do whatever I can do to remain employed. I’m just not precious about doing comedy or doing drama. I never want to do something in order to prove to other people what I can do.
+ - I was a bad dater, and up until 8th grade I went to an all boy’s school. So, by the time I hit high school I was a bit freaked out by women in general.
+ - I don’t know how other people perceive the lives of actors, but my life is fairly ordinary. I go to work, I come home, I put my kids to bed. If I’m home in time for dinner, I have dinner, and then it’s bedtime.
+ - Different things just strike people differently. And it’s so subjective, too. Because what makes one person laugh won’t make others laugh. I guess it’s kind of checkerboarded.
+ - Whenever you see people talking about how real they are or how normal they are, it seems odd to have that self awareness that you could potentially not be normal.
+ - In my wildest dreams i never thought- well, I never thought I’d work.
+ - Steve Buscemi is hilarious. He’s really, really good with improv.
+ - In my role of agent for Miss Hathaway, I would like to say that she does not answer questions relating to this subject.
+ - I think ultimately, when you believe somebody is going through a situation and it’s either awkward or ridiculous, but you believe it, that can be funny.
+ - As soon as you start to talk about your own mannerisms, you are screwed. Because if you are aware of your own mannerisms, or beyond that even what makes any one thing funny to people, I really ascribe to that that if you start deconstructing it too much, it is immediately not funny.
+ - There’s such a freewheeling nature to ‘Second City,’ and the greatest thing about ‘Second City’ was having a sophisticated audience night after night who appreciated what it was. They knew it wasn’t all going to be great when you improvised, so they were very forgiving that way.
+ - High school – those are your prime suffering years. They don’t get better suffering than that.
+ - Six-year-olds are very wrapped up in their own lives, and that’s the way it should be.
+ - People know where romantic comedies are going. It’s not brain surgery to figure out the end of a romantic comedy.
+ - I’m a fun dad, but I don’t know if I’m the fun, crazy dad.
+ - I don’t ever want to take a part in order to prove that I’m capable of doing something. It’s all based in doing stuff that’s interesting or working with people who would be fun to work with.
+ - When you do an animated movie – at least the ones that I’ve been a part of – you never see any of the other actors. It’s all done separately with headphones in a voice booth.
+ - It’s nice to find people who live on the fringe, finding one another and she’s just unrelentingly funny.
+ - In an enclosed space, a camel’s breath can change the atmosphere of the room. Not only just the smell, they literally seem to change the atmospheric pressure. It’s so disgusting. It’s like they have eight stomachs each more rancid then the next and it just comes out of their mouth.
+ - Whenever I’m offered something, I always read the script and meet the director. I still appreciate just being considered.
+ - It’s a very familiar type of place where people either go to their house on the lake or they get together in different places. This was a normal, relatable place that I think a lot of people have in their childhood.
+ - I’ve thought a lot about success, because it’s very strange to me that I’ve been successful.
+ - There’s plenty of room for all sorts of movies and all sorts of comedies, so I never saw that as a competitive thing. I think there’s room in the marketplace for everything.
+ - It’s interesting when you’re trying to create a character in animation. It’s really a communal effort.
+ - I tend not to be someone who’s on all the time, or is always trying to make other people laugh.
+ - When you approach it, and I hate sounding like the pretentious actor, but yeah, I think you have to find things within the character that are likeable, or at least human, and not to go at it with any sort of predetermined notions as to what that character is.
+ - When someone is good, but it doesn’t seem like their world will collapse if they don’t get the part, it’s more appealing. It’s like dating someone: You don’t want someone who’s too into you.
+ - I don’t text, I don’t have a Blackberry. Literally, I just have a cell phone that I haven’t programmed and the whole Bluetooth. No. I don’t even have an earpiece for my cell phone.
+ - Talking to my wife, we stare at each other, saying, ‘How is this happening? Why is this happening? Why now?’ It’s nothing I ever aspired to.
+ - For my wife and I, the challenge is to not make every day the best day possible because it’s not realistic.
+ - I don’t want to, I don’t plan my career based on what I want people to believe I’m capable of doing. So I just take things that I think might be good or might be fun to do or might ultimately entertain.
+ - I am happily married, and I think I was lucky that success came a little later in my life. It’s difficult to handle all the attention when you are a young gun.
+ - Anything nice that’s said about me is diametrically opposed to who I am.
+ - The ability to compromise and having the ability to laugh at ourselves is huge and works well for me.
+
+75 quotes

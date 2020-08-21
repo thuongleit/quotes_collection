@@ -1,0 +1,70 @@
+ - You’re never a loser until you quit trying.
+ - In life, you get what you tolerate.
+ - Losers quit when they’re tired. Winners quit when they’ve won.
+ - Success is about taking advantage of opportunity.
+ - Before you can win, you have to believe you are worthy.
+ - Coffee, It’s the life blood that fuels the dreams of champions!
+ - Success is never permanent, and failure is never final.
+ - Success isn’t measured by money or power or social rank. Success is measured by your discipline and inner peace.
+ - Those who live in the past are cowards and losers.
+ - You gotta live in the moment. I don’t care what you’ve done in your life, it has nothing to do with what you’re gonna do or what you can do. The past is history, tomorrow is a mystery. But today is a gift-that’s why they call it the present.
+ - If you’re not in the parade, you watch the parade. That’s life.
+ - Promises are empty words if you’re not keeping them.
+ - If things came easy, then everybody would be great at what they did.
+ - You have to be tough.
+ - The shoulder surgery was a success. The lobotomy failed.
+ - If you don’t play, then don’t pick up a paycheck. Competition is why you play the game. I understand they’ve already reached some goals. That’s all good. But if you can make history, take a shot at it.
+ - Life’s not about money. Look at achievements, accomplishments. It’s about having fun. It’s about enjoying life.
+ - Failure isn’t fatal unless you let it be.
+ - I don’t think anything is unrealistic if you believe you can do it. I think if you are determined enough and willing to pay the price, you can get it done.
+ - Jesus’s first temptation was to be relevant: to turn stones into bread. Oh, how often I wished I could do that!
+ - He’s just jealous. You know what they say. Empty tin cans make the most noise, and he’s an empty tin can. This game is between the Bears and the Eagles, not Ditka and Ryan. We all know who would win that one. Ditka, hands down.
+ - There are teams that are fair-haired, and those that aren’t so fair-haired. Some teams are named Smith, some Grabowski. We’re Grabowskis!
+ - If God had wanted man to play soccer, he wouldn’t have given us arms.
+ - We have a strange and wonderful relationship – he’s strange and I’m wonderful.
+ - George Halas throws nickels around like man hole covers.
+ - The greatest gift we have is the gift of life.
+ - Sometimes, God gives you physical talent and takes away the brain.
+ - When I put some Tabasco on things, and there’s really nothing in Tabasco, it’s not bad for you in any way, so that’s kind of become my substitute. Now you got to get used to a hot mouth, but that’s okay.
+ - People want a cop-out, listen I’m a realist and I talk about motivation, talk about all the things it takes to be greater or are important to win and people want to use excuses all the time.
+ - Cap Boso? How could I cut a guy with a name like that?
+ - Success is about having, excellence is about being. Success is about having money and fame, but excellence is being the best you can be.
+ - Motivation comes from within each individual. It’s a personal thing. It’s pride, guts, desire, whatever you want to call it; some people have it in their bellies, and some don’t.
+ - You remember what happened when Eddie Pipp got hurt? A guy named Lou Gehrig took over.
+ - One of my favorite things is mayonnaise and I have to tell you that. I love mayonnaise, but I don’t eat it any more. If I do I put light mayonnaise on it, which I know is still not good but it’s a lot better than the other one and I don’t eat it that much.
+ - I don’t believe in living in the past. Living in the past is for cowards. If you live in the past, you die in the past.
+ - I always tell people I want to live to be 150 and they say why would you want to do that. I say, well there’s a few people I haven’t made mad yet, I want to get them.
+ - Just because you liked something as a youngster doesn’t mean you have to like it as an adult. You can change your taste a little bit on the sweets and things like that.
+ - Some people are willing to pay the price and it’s the same with staying healthy or eating healthy. There’s some discipline involved. There’s some sacrifices.
+ - The ones who want to achieve and win championships motivate themselves.
+ - Here’s what I tell anybody and this is what I believe. The greatest gift we have is the gift of life. We understand that. That comes from our Creator. We’re given a body. Now you may not like it, but you can maximize that body the best it can be maximized.
+ - Basically, my problem was attributed to stress more than anything. I don’t know what that does and I guess doctors can tell you that there’s chemicals that build up in your system when you go through a lot of stress and constant stress.
+ - I don’t care where you are, but the fans only remember your last time at bat.
+ - What’s the difference between a three-week-old puppy and a sportswriter? In six weeks, the puppy stops whining.
+ - There’s just me and my wife and a dog and we feed him Healthy Choice also.
+ - What you feel spiritually. I think a lot of that has to do with it. If you have no spiritual life, chances are everything is going to aggravate you, you’re going to fly off the handle at everything and that’s what I did in the past. I’ve kind of got that under control now.
+ - I do like beer, but lately I’ve started drinking non-alcoholic beer and I like the taste of it and I don’t get the alcohol, so that’s a good alternative also.
+ - You got to sue the offensive line for non-support.
+ - Success is about having. Excellence is about Being!
+ - Not really, and actually my cholesterol was 190 when I had the heart attack. 190, which isn’t that high. I took it down to about 130 and it’s probably about 140 or 145 now.
+ - When I get my heart rate up, I get good exercise and I think it’s good for a lot of things, plus it’s not hurting my hips right now.
+ - I think your alcohol intake has to change. You know, usually a big person feels they can drink anything they want to and as much as they want to and I’ve cut that way back.
+ - Eating properly is great. I mean you cut the fat down, cut the cholesterol out, but still you got to get your rest and you got to have some form of exercise.
+ - Can’t make chicken salad out of chicken noodle.
+ - I don’t know how to put it, but yet you know we have so many people who the way they look at life, the way they work depends on what happens, us winning or losing. It’s kind of crazy. So, I kind of got caught up in that, I’m gonna try to stay away from that.
+ - So, when it comes to eating healthy, it’s just doing the right thing. And it’s not something you have to do 365 days a year, but I think it’s something you have to do 25 days a month. Let’s put it that way.
+ - I don’t pick on anybody who has a number above 30.
+ - I will never coach again. I don’t want to, but I wouldn’t even if I did.
+ - I’m not a mean player. You’ll notice I never pick on a player who has a number above 30.
+ - Those players really believe in him.
+ - I do some weights and I do a lot of stretching.
+ - I mean, when you’ve had a problem in your past, whether it’s attributed directly to high cholesterol or not, you want to lower your cholesterol. You want to eat healthy. You want to feel healthy. You want to have a little more energy.
+ - Well, after I had the heart attack, it was a very simple choice. What the doctor told me I did and I did it religiously. I ate nothing but lean turkey breast or chicken breast or a piece of fish that was very lean. I mean I stayed away from everything.
+ - Really, if I’m gonna eat a meat, I’d rather eat venison than anything and I do like it a little on the rare side. That’s probably my favorite meat and I’ve had some awfully good venison in some of the great restaurants.
+ - You see people who have been very heavy in their life who have taken that body, trimmed it down, firmed it up through discipline, exercise and being able to say no. Eating properly, that all comes into it.
+ - I think it’s important to stretch as you get older, but I try to do basically all the things I did when I played, except I can’t do them as well and as much.
+ - It’s your body and you’re going to have a much better life, you are going to have a quality life, better lifestyle, you’re going to be healthier, you’re going to be happier, you’re going to enjoy the people around you and they’re going to enjoy you more.
+ - I’ve been into the habit of freezing white grapes and using them as a snack. Instead of eating peanuts or popcorn or something like that or pretzels, I just eat the white grapes.
+ - I really believe the only way to stay healthy is to eat properly, get your rest and exercise. If you don’t exercise and do the other two, I still don’t think it’s going to help you that much.
+
+68 quotes

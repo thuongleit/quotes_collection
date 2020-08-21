@@ -1,0 +1,34 @@
+ - Once we recognize our need for Jesus, then the building of our faith begins. It is a daily, moment-by-moment life of absolute dependence upon Him for everything.
+ - The purpose of all prayer is to find God’s will and to make that our prayer.
+ - A Christian has no business being satisfied with mediocrity. He’s supposed to reach for the stars. Why not? He’s not on his own anymore. He has God’s help now.
+ - Our prayers must not be efforts to bend God to our will but to yield ourselves to His.
+ - God is the only one who can make the valley of trouble a door of hope.
+ - The unfolding of our friendship with the Father will be a never-ending revelation strretching on into eternity.
+ - God’s way of dealing with us is to throw us into situations over our depth, then supply us with the necessary ability to swim.
+ - Of course you’ll encounter trouble. But behold a God of power who can take any evil and turn it into a door of hope.
+ - Lord, what are you trying to teach me?
+ - I learned that true forgiveness includes total self-acceptance. And out of acceptance wounds are healed and happiness is possible again.
+ - God insists that we ask, not because He needs to know our situation, but because we need the spiritual discipline of asking.
+ - My father always told us that if we will let God, He can use even our disappointements, even our annoyances to bring us a blessing. There’s a practical way to start the process too: by thanking HIm for whatever happens, no matter how disagreeable it seems.
+ - The search for God begins at the point of need.
+ - So once I shut down my privilege of disliking anyone I choose and holding myself aloof if I could manage it, greater understanding, growing compassion came to me.
+ - Acceptance says, True, this is my situation at the moment. I’ll look unblinkingly at the reality of it. But I’ll also open my hands to accept willingly whatever a loving Father sends me.
+ - There’s always the danger that the extreme feminist will end up quite unfulfilled as a girl.
+ - One can believe in the divinity of Jesus Christ and feel no personal loyalty to Him at all – indeed, pay no attention whatever to His commandments and His will for one’s life.
+ - I learned that true forgiveness includes total acceptance.
+ - I still don’t understand anything- exept that somehow I know that You are love. And that in my heart has been so great a love for Christy as I did not know could exist on this earth. You, God, must be responsible. You must have put it there. So what do I do with it now?
+ - So many people never pause long enough to make up their minds about basic issues of life and death. It’s quite possible to go through your whole life, making the mechanical motions of living, adopting as your own sets of ideas you’ve come to any conslusion for yourself as to what life is all about.
+ - No matter how little you have, you can always give some of it away.
+ - Whence comes this idea that if what we are doing is fun, it can’t be God’s will? The God who made giraffes, a baby’s fingernails, a puppy’s tail, a crooknecked squash, the bobwhite’s call, and a young girl’s giggle, has a sense of humor. Make no mistake about that.
+ - The only time I ever find my dealings with God less than clear-cut is when I’m not being honest with Him. The fuzziness is always on my side, not His.
+ - When you heart is ablaze with the love of God, when you love other people – especially the ripsnorting sinners – so much that you dare to tell them about Jesus with no apologies, then never fear, there will be results.
+ - One can believe intellectually in the efficacy of prayer and never do any praying.
+ - The cross stands as the final symbol that no evil exists that God cannot turn into a blessing. He is the living Alchemist who can take the dregs from the slag-heaps of life – disappointment, frustration, sorrow, disease, death, economic loss, heartache – and transform the dregs into gold.
+ - Those who never rebelled against God or at some point in their lives shaken their fists in the face of heaven, have never encountered God at all.
+ - Have you ever thought that the only ugl things in this Cove are man’s fault, while the beautiful things are God’s work? Look at those mountains.
+ - Poverty is a scandal of our times because it CAN be changed.
+ - Despite disappointments, the Christian is obligated to pray for the sick because we are bidden to do so and because the crumb of our caring is but a morsel broken from the whole loaf of the Father’s infinite and tender love.
+ - Why should a child’s future be shaped by where they are born?
+ - Often God has to shut a door in our face, so that He can subsequently open the door through which He wants us to go.
+
+32 quotes

@@ -1,0 +1,55 @@
+ - It's very hard in the beginning to understand that the whole idea is not to beat the other runners. Eventually you learn that the competition is against the little voice inside you that wants you to quit.
+ - Success means having the courage, the determination, and the will to become the person you believe you were meant to be.
+ - The real competition is against the little voice inside you that wants to quit.
+ - I have met my hero, and he is me.
+ - Out on the roads there is fitness and self-discovery and the persons we were destined to be.
+ - Happiness is different from pleasure. Happiness has something to do with struggling and enduring and accomplishing.
+ - Sport is an essential element of education.
+ - The mind’s first step to self-awareness must be through the body.
+ - Running is just such a monastery- a retreat, a place to commune with God and yourself, a place for psychological and spiritual renewal.
+ - The answer to the big questions in running is the same as the answer to the big questions in life: Do the best with what you’ve got.
+ - If you want to win anything – a race, yourself, your life – you have to go a little berserk.
+ - Everyone is an athlete. The only difference is that some of us are in training, and some are not.
+ - The more I run, the more I want to run, and the more I live a life conditioned and influenced and fashioned by my running. And the more I run, the more certain I am that I am heading for my real goal: to become the person I am.
+ - Every runner is an experiment of one.
+ - If marathoners finish they win.
+ - Of all the races, there is no better stage for heroism than a marathon.
+ - Sweat cleanses from the inside. It comes from places a shower will never reach.
+ - Anything that changes your values changes your behaviour.
+ - Fitness has to be fun. If it is not play there will be no fitness. Play, you see, is where the process. Fitness is merely the product.
+ - The obsession with running is really an obsession with the potential for more and more life.
+ - Exercise: you don’t have time not to.
+ - Fitness is just a stage you pass through on the way to becoming a racer.
+ - Listen to your body. Do not be a blind and deaf tenant.
+ - There are as many reasons for running as there are days in the year, years in my life. But mostly I run because I am an animal and a child, an artist and a saint. So, too, are you. Find your own play, your own self-renewing compulsion, and you will become the person you are meant to be.
+ - Play is where life lives.
+ - To make your life a work of art, you must have the material to work with. The race, any race, is just such an experience.
+ - Success rests with having the courage and endurance and, above all, the will to become the person you are, however peculiar that may be. Then you will be able to say, I found my hero and he is me.
+ - Why race? The need to be tested, perhaps; the need to take risks; and the chance to be number one.
+ - To keep from decaying, to be a winner, the athlete must accept pain – not only accept it, but look for it, live with it, learn not to fear it.
+ - The difference between a jogger and a runner is an entry blank.
+ - Because until we write it down, we don’t know what is actually at the root of our lives.
+ - I run each day to preserve the self I attained the day before and to secure the self yet to be.
+ - If you want to find the answers to the Big Questions about your soul, you’d best begin with the Little Answers about your body.
+ - The music of a marathon is a powerful strain, one of those tunes of glory. It asks us to forsake pleasures, to discipline the body, to find courage, to renew faith and to become one’s own person, utterly and completely.
+ - The true runner is a very fortunate person. He has found something in him that is just perfect.
+ - Have you ever felt worse after a run?
+ - On the roads, I can see truth revealed whole without thought or reason. There I experience the sudden understanding that comes unasked, unbidden. I simply rest, rest within myself, rest within the pure rhythm of my running. And I wait.
+ - There is no substitute for learning to live in our bodies.
+ - I will not last forever. But I am damn well going to know I have been here.
+ - The desire to run comes from deep within us – from the unconscious, the instinctive, the intuitive.
+ - Life is a positive-sum game. Everyone from the gold medallist to the last finisher can rejoice in a personal victory.
+ - No matter how old I get, the race remains one of life’s most rewarding experiences.
+ - Nothing is more certain than the defeat of a man who gives up.
+ - Life is the greatest experiment. Each of us is an experiment of one-observer and subject-making choices, living with them, recording the effects.
+ - Sport is singularly able to give us peak experience where we feel completely one with the world and transcend all conflicts as we finally become our own potential.
+ - Once you have decided that winning isn’t everything, you become a winner.
+ - To know you are one with what you are doing, to know that you are a complete athlete, begins with believing you are a runner.
+ - Exercise is done against one’s wishes and maintained only because the alternative is worse.
+ - And while these pounds were being shed, while the physiological miracles were occurring with the heart and muscle and metabolism, psychological marvels were taking place as well. Just so, the world over, bodies, minds, and souls are constantly being born again, during miles on the road.
+ - I have a bumper sticker that Bowen created that says Regardless of my kids grades, they have an ‘A’ in my book’. Without play the child that still lives in all of us will always be incomplete. And not only physically, but creatively, intellectually, and spiritually as well.
+ - Do not tell me what to do, tell me what you do. Do not tell me what is good for me, tell me what is good for you. If, at the same time, you reveal the you in me, if you become a mirror to my inner self, then you have made a reader and a friend.
+ - For every runner who tours the world running marathons, there are thousands who run to hear the leaves and listen to the rain, and look to the day when it is suddenly as easy as a bird in flight.
+ - People begin running for any number of motives, but we stick to it for one basic reason-to find out who we really are.
+
+53 quotes

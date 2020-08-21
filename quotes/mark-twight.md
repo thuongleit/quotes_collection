@@ -1,0 +1,21 @@
+ - Punish the body to perfect the soul.
+ - Some of us wake up. Others roll over.
+ - Success can breed contempt, and a casual attitude toward danger.
+ - One hour three times per week in the gym is no counterbalance to all of the other behavior in those other 165 hours.
+ - Inconsistency, incompetence, and lies are all cut short by the ground. It will stop you if you can’t stop yourself.
+ - Sometimes you must sacrifice yourself on the altar of effort to be reminded of what and who you could become if you applied yourself.
+ - Everything costs something everyone pays.
+ - So go ahead, break stuff. Break yourself on the once-hard edges of yourself. And recycle the debris into the foundation of your future.
+ - Effort and pain may not be avoided. Physical and psychological breakdowns occur. The support of a like-minded group, dedicated to The Art of Suffering, provides a safety net. An individual will push harder and risk more in the company of trustworthy peers...
+ - It doesn’t have to be fun to be fun.
+ - You become what you do. How and what you become depends on environmental influence so you become who you hang around. Raise the standard your peers must meet and you’ll raise your expectations of yourself. If your environment is not making you better, change it.
+ - Apperance is a Consequence of Fitness.
+ - Crested Butte is for spectators; Chamonix is for participants.
+ - The simple fact is this: when you goto Alaska, you get your ass kicked.
+ - I don’t actually care what I climb, only how it affects me. Which means the summit doesn’t matter as much as the emotional process.
+ - Frostbite? I consider that a failure.
+ - We may train ourselves to be adaptable as possible, to respond appropriately in each situation, but the ideal of controlling the outcome or steering events as they occur must be relinquished. Chaos rules it all.
+ - Ultimately, I wanted to own a big truck, exercise my second Amendment rights, listen to hardcore music, and let my congressman know how poorly he represents me. None of this could occur in France.
+ - I scavenged for sensation, sought myself in the rewards of being out there, across the Border.
+
+19 quotes

@@ -1,0 +1,24 @@
+ - I don’t care what people call me, labels have the negative value of making smaller boundaries for people.
+ - My favorite project is always the next one.
+ - Architecture is not all about the design of the building and nothing else, it is also about the cultural setting and the ambience, the whole affair.
+ - In America, writers are afforded the freedom to express themselves in unlimited manners. Creative liberty is a privilege.
+ - In any architecture, there is an equity between the pragmatic function and the symbolic function.
+ - It was always my goal to ‘up the ante’ on good design and rye devoted much of my career to this.
+ - The Alessi relationship and the Target one has broadened the role of architects in society and broadened the concept that design belongs to everyone.
+ - Architectural and product designs have a narrative capacity – you can start to tell a story about them and imagine a lot of things.
+ - Architects love to rethink a project – that’s what we do. If something is successful, like a house or a kettle, in this case, it’s a great compliment when someone wants another one.
+ - If I have a style, I am not aware of it.
+ - My favorite is the garlic press. I think it’s beautiful as an object. But the awkward part of it all is that I don’t use it much because I’m allergic to garlic.
+ - The design of the building addresses the public nature of both the urban context and the internal program. In order to reinforce the building’s associative or mimetic qualities, the facades are organized in a classical three-part division of base, middle or body, and attic or head.
+ - I have architects write to me and ask me: How do you – and what do you do to – design the magic thing? I answer that very carefully. It’s not necessarily about what you do, but the clients you do it for. You should write to Target, not me.
+ - I don’t believe in morality in architecture.
+ - I stayed true to what I thought was good design no matter who it was for.
+ - I’ve always believed that what can make a domestic setting truly home is the infusion of a cultural dimension.
+ - I learned in architecture that you have to have a real plan. You have to have a client, they have to have distribution, start-up money, and have a vision of where it’s going to go. All this has to be settled before you start, or else your work is just a story.
+ - I wouldn’t have been a health care nut if it hadn’t been for my paralysis, so something good came from this.
+ - The dialogue of architecture has been centered too long around the idea of truth.
+ - I know that’s not something that people like to do – identify a favorite. But I do.
+ - In designing hardware to be used every day, it was important to keep both the human aspects and the machine in mind. What looks good also often feels good.
+ - I have no requirements for a style of architecture.
+
+22 quotes

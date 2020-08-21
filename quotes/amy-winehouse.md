@@ -1,0 +1,119 @@
+ - What kind of fuckery is this?
+ - I love to live and I live to love.
+ - If you don’t throw yourself into something, you’ll never know what you could have had.
+ - Life’s short. Anything could happen, and it usually does, so there is no point in sitting around thinking about all the ifs, ands and buts.
+ - We only said goodbye with words I died a hundred time, you go back to her and I go back to black...
+ - Life happens. There is no point in being upset or down about things we can’t control or change.
+ - They tried to make me go to rehab, I said ‘No, no, no,’
+ - Every bad situation is a blues song waiting to happen.
+ - I don’t ever wanna drink again, I just, ooh I just need a friend.
+ - There’s no point in saying anything but the truth.
+ - Music is the only thing that will give and give and give and not take...
+ - I like pin-up girls. I’m more of a boy than a girl. I’m not a lesbian, though – not before a sambuca anyway.
+ - I’m not frightened of appearing vulnerable.
+ - I’m romantic. I fall in love every day. Not with people but with situations. The other day, I saw a tramp polishing his shoes. That just gripped my heart.
+ - If I died tomorrow, I would be a happy girl.
+ - Cause there’s nothing, there’s nothing you can teach me That I can’t learn from Mr. Hathaway.
+ - A little bit of anorexia, a little bit of bulimia. I’m not totally OK now but I don’t think any woman is.
+ - Life is so much more rewarding if you strive for something, rather than take what’s given to you on a plate.
+ - I do suffer from depression, I suppose. Which isn’t that unusual. You know, a lot of people do.
+ - I can’t help you if you won’t help yourself.
+ - It’s too much of a drinking culture, everything tastes better with a drink. Like, watch TV: glass of wine. Cooking dinner: glass of champagne. White wine vinegar hasn’t got white wine in it. Has it?
+ - I told you I was trouble, you know that I’m no good.
+ - I knew I could sing but I always thought everyone could sing, that everyone was born with a singing voice. Even when I was getting interest from singing, I just thought ‘what about all these guys?’ Yes, I can sing, I have a good voice but there’s so many people that can and do.
+ - I’ve got a crush on my backing singer.
+ - Having listened to great songwriters like James Taylor and Carole King, I felt there was nothing new that was coming out that really represented me and the way I felt. So I started writing my own stuff.
+ - Mr False Pretence, you don’t make sense I just don’t know you But you make me cry, where’s my kiss goodbye I think I love you.
+ - I can’t be arsed with game players. I’m more ‘I like you, do you like me? Let’s go and do something about it.’ I’m a very straightforward person like that.
+ - I think that we have to be aware that people are allowed to make mistakes.
+ - Relationship doesn’t remain, We resonate on different flames, I could cut you down again, If you were like all other men, If you were like all other men, I know that I could shut you down again.
+ - I’m of the school of thought where, if you can’t sort something out for yourself, no one can help you. Rehab is great for some people but not others.
+ - If you’re nice to me I’ll never write anything bad about you.
+ - I’ve never been an idiot – I was a smart girl but I’d do stupid things like go around Asda and nick stuff because my friends told me to. I was a good girl as a teenager.
+ - I don’t think your ability to fight has anything to do with how big you are. It’s to do with how much anger is in you.
+ - I’m my own worst critic, and if I don’t pull off what I think I wanted to do in my head, then I won’t be a happy girl.
+ - I don’t understand, Why do I stress the man, When there’s so many bigger things at hand?
+ - Some men do think I’m a psycho bunny-boiler.
+ - Girls talk to each other like men talk to each other. But girls have an eye for detail.
+ - I’m a realist and a dreamer. There are certain things you can give certain people and certain things you can’t.
+ - I’ve always had my own style, I’ve always been different. I don’t like to wear anything that anyone else is wearing because it’s very important for me to make a statement.
+ - I was expecting it to be cynical because I’m like that myself. I wouldn’t want it to be all roses because life isn’t like that.
+ - I was hit by a car once on my bike, but I still rode home.
+ - I don’t need help because if I can’t help myself I can’t be helped.
+ - I don’t care what people think about me. Never did, never will. Life is too short to be worrying about that.
+ - I do see myself settling down, getting married and having kids. But when I think about a family life in the future there’s rarely a man involved which is kind of weird.
+ - My justification is that most people my age spend a lot of time thinking about what they’re going to do for the next five or ten years. The time they spend thinking about their life, I just spend drinking.
+ - At Age 11, I used to listen to Madonna’s Immaculate Collection every day.
+ - Music was my ultimate ambition but I liked all of it. I wanted to discipline myself in dance and acting too and I’d done all three since I was 9-years-old. I could sing, but I didn’t become a great singer.
+ - Sisters come before carpet burns and blisters.
+ - I wouldn’t say I’m a feminist, but I don’t like girls pretending to be stupid because it’s easier.
+ - The jazz I love is sweet and pure with raw elements, which is exactly what the good hip-hop is doing now.
+ - Yes, I’m still going to misbehave!
+ - I write songs about stuff that I can’t really get past personally – and then I write a song about it and I feel better.
+ - I fall in love every day. Not with people but with situations.
+ - I’m planning my most ambitious tattoo yet. You can never have enough tats.
+ - People say my content’s mature, I don’t think it’s mature at all. I’m just a normal 20 year old. I’m opinionated.
+ - I’m not trying to stay away from being a celebrity, I’m not saying, ‘I’m sooo not famous,’ I’m trying to continue being a musician in a time when everyone is very celebrity-led.
+ - You know how you either grow up in a Michael Jackson house or a Prince house? For me it was Michael Jackson. I could never decide whether I wanted to be Michael Jackson or marry him.
+ - There are certain songs I cannot hear because they are so personal that it hurts me to listen.
+ - Since I was 16, I’ve felt a black cloud hangs over me. Since then, I have taken pills for depression.
+ - Here in England, everyone’s a pop star, innit, whereas in America they believe in the term artist.
+ - Now I think that going to the gym is the best drug. I go four times a week and it gives me the buzz I need.
+ - I really thought I was on the way out. My husband Blake saved my life. Often I don’t know what I do, then the next day the memory returns. And then I am engulfed in shame.
+ - I wanted to be Snoopy’s girlfriend and when I got older I wanted to be Bart Simpson’s girlfriend. Then I couldn’t decide whether I wanted marry Snoopy or Michael Jackson – because he was God to me – or to just be them.
+ - To be honest, I think kids have got a lot more going on than adults. They’ve got their heads screwed on a lot better.
+ - I don’t think I’m such an amazing person who needs to be written about.
+ - I believe in fate and I believe that things happen for a reason but I don’t think that there’s a high power, necessarily. I believe in karma very much though.
+ - I’m happiest with my family around me.
+ - I wouldn’t be with a man who was scared of me, but I don’t think men are scared of me – look at me, I’m tiny. I don’t think I’m capable of putting anyone off. I’m a nice girl.
+ - I would say that jazz is my own language.
+ - And as a writer, your self-worth is literally based on the last thing you wrote.
+ - A song marks an occasion in my life and that’s how I live my life, by songs.
+ - I’m not a natural born performer.
+ - I know definitive points in my life and in relationships because of my songs. I write my music so that I’ll never be bored of it.
+ - I read a lot when I’m travelling and always have a couple of books on the go.
+ - My dad always had music playing around us and he was always a happy chirpy man with a beautiful voice. I was always singing around the house and I assumed that’s what all families did. It wasn’t until I went through that nasty teenage stage that I started to realise that wasn’t the case.
+ - I would love to study guitar or trumpet.
+ - I don’t listen to a lot of new stuff. I just like the old stuff. It’s all quite dramatic and atmospheric. You’d have an entire story in song. I never listen to, like, white music – I couldn’t sing you a Zeppelin or Floyd song.
+ - You’ve got a degree in philosophy; so you think you’re cleverer than me. But I’m not just some drama queen. Cause it’s where you’re at, not where you’ve been.
+ - When you’re around kids you can be a little kid yourself and pretend that life is magic and you don’t have to be one of those sweaty people going to work every day.
+ - I’ve had everything pierced at some point.
+ - I always wrote poetry and stuff like that, so putting songs together wasn’t that spectacular.
+ - I’m much healthier now.
+ - I know I’m talented, but I wasn’t put here to sing. I was put here to be a wife and a mom and look after my family. I love what I do, but it’s not where it begins and ends.
+ - I was gutted to leave my boyfriend at home when I started my tour, but taking my pillow was like taking a little bit of him with me.
+ - I’m lucky because I do get to fly first-class now.
+ - I’ve never been a boyfriend kind of girl.
+ - I like stylish men although I’m someone who sees a man who’s not dressed right and think what I could do with him to make him cute. I’m a typical Jewish woman like that.
+ - I’m not Amy the star, I’m Amy the girl with the guitar.
+ - I’m not very ambitious at all.
+ - The dark covers me and I cannot run now.
+ - I’ve always written poetry but I didn’t realise it was a therapy for me until I was maybe 15. That’s when my singing started to come together as well because I was listening to so much jazz. What I love I will always embrace.
+ - My husband is everything to me and without him it’s just not the same.
+ - I never went round to loads of managers saying ‘this is what I have, this is my product and I’m going to be famous so you’d better sign me up.’ They came to me.
+ - I couldn’t resist him, his eyes were like yours, his hair was exactly the shade of brown. He’s just not as tall, but I couldn’t tell, it was dark and I was lying down.
+ - Some people reckoned that I looked healthier when I was bigger but I had terrible skin and no energy.
+ - I really started writing music to challenge myself, to see what I could write.
+ - The more people see of me, the more they’ll realize that all I’m good for is MAKING MUSIC.
+ - If you play an instrument, it makes you a better singer. The more you play, the better you sing, the more you sing, the better you play.
+ - If I heard someone else singing like me, I would buy it in a heartbeat.
+ - I don’t have emotional needs, only physical ones.
+ - I listen to music that is of our time and I just get angry.
+ - I’m always happy to blow up any misconceptions that people have about stage school cos everyone thinks it’s really nasty there but it’s not.
+ - Christina Aguilera has her own style, so good on her. I don’t think anyone’s every told her to put on some leather chaps and get her noonie out. She’s an amazing singer but a lot of her music I can’t even hear.
+ - I’m a young woman and I’m going to write about what I know.
+ - I didn’t think it was special to be able to sing.
+ - Cause I’m a musician, I’m not really good at posing and being a model, like, modeling.
+ - I can play a lot of different instruments adequately but nothing really well.
+ - When I’m nervous, I stutter, and I had to keep stopping and starting.
+ - I saw a picture of myself when I came out of the hospital. I didn’t recognize myself.
+ - It’s important for me to be with a musician or someone who has a creative mind.
+ - All the songs I write are about human dynamics, whether it’s with girlfriends, boyfriends, or family.
+ - I always said I never wanted to write about love, but then I went and did that anyway.
+ - Basically, I live to do gigs.
+ - When I was a little kid it was my dream to go to drama school, but it was never something I thought would happen to me. I was a Jewish girl from North London and things like that don’t happen to Jewish girls from North London called Amy Winehouse.
+ - I love America, it’s a much more permissive place.
+ - I had a real stage school voice and I could do loud things, but it’s not about being loud, it’s about sensitivity and subtlety in music. You can do so much more with a quiet voice than with a belter.
+ - I always try to write a song to work things out with myself and I want to do it with a little punchline at the end, because I never want to remember anything bad in my life.
+
+117 quotes

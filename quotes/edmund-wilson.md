@@ -1,0 +1,32 @@
+ - No two persons ever read the same book.
+ - If you ain’t the lead dog, the scenery never changes.
+ - Marxism is the opium of the intellectuals.
+ - Keep going; never stop; sit tight; Read something luminous at night.
+ - Every work of art is a trick by which the artist manipulates appearances.
+ - Old-fogyism is comfortably closing in.
+ - The product of the scientific imagination is a new vision of relations – like that of artistic imagination.
+ - All Hollywood corrupts; and absolute Hollywood corrupts absolutely.
+ - The only thing that we can really make is our work, and deliberate work of the mind, imagination and hand, done, as Nietzsche said, ‘notwithstanding,’ in the long run remakes the world.
+ - I have learned to read the papers calmly and not to hate the fools I read about.
+ - I find more and more that I am a man of the 1920s. I still expect something exciting. Drinks, animated conversation, gaiety: the uninhibited exchange of ideas.
+ - Only the curious will learn and only the resolute will overcome the obstacles to learning. The quest quotient has always excited me more than the intelligence quotient.
+ - There is nothing more demoralizing than a small but adequate income.
+ - Real genius of moral insight is a motor which will start any engine.
+ - In a sense, one can never read the book that the author originally wrote, and one can never read the same book twice.
+ - Education, the last hope of the liberal in all periods.
+ - From the moment a New Yorker is confronted with almost any large city of Europe, it is impossible for him to pretend to himself that his own city is anything other than an unscrupulous real-estate speculation.
+ - His style has the desperate jauntiness of an orchestra fiddling away for dear life on a sinking ship.
+ - The cruelest thing that has happened to Lincoln since he was shot by Booth was to fall into the hands of Carl Sandburg.
+ - In times of disorder and stress, the fanatics play a prominent role; in times of peace, the critics. Both are shot after the revolution.
+ - At 60 the sexual preoccupation, when it hits you, seems sometimes sharper, as if it were an elderly malady, like gout.
+ - One didn’t really believe till one saw it demonstrated that giving oneself up completely to art, to emotion, to enjoyment, without planning for the future or counting the cost, produced dreadful disabilities and bankruptcies later.
+ - The most immoral and disgraceful and dangerous thing that anybody can do in the arts is knowingly to feed back to the public its own ignorance and cheap tastes.
+ - The human imagination has already come to conceive the possibility of recreating human society.
+ - I think with my right hand.
+ - If I could only remember that the days were not bricks to be laid row on row, to be built into a solid house, where one might dwell in safety and peace, but only food for the fires of the heart.
+ - The great mistake about Europe is taking the countries seriously and letting them quarrel and drop bombs on one another.
+ - The Jew lends himself easily to Communism because it enables him to devote himself to a high cause, involving all of humanity, characteristics which are natural to him as a Jew.
+ - I really can’t stand any more to pay for a burst of animation when someone comes in for drinks with a depressed and low-keyed next day, in which I have to go around on my hands and knees.
+ - I am not quite a poet but I am something of the kind.
+
+30 quotes

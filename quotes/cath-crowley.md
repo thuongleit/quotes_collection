@@ -1,0 +1,21 @@
+ - It’s harder to make someone laugh than it is to make them cry.
+ - I need the shade of blue that rips your heart out. You don’t see that type of blue around here.
+ - If you treat glass right, it doesn’t crack. If you know the properties, you can make things; the color of dusk and night and love. But you can’t control people like that and I really, really wish you could. I want the world to be glass.
+ - I guess love’s kind of like a marshmallow in a microwave on high. After it explodes it’s still a marshmallow. but, you know, now it’s a complicated marshmallow.
+ - Remember Love doesn’t make the world go round Sex makes it spin for a second or two If you’re lucky So do chips, sausage rolls and girls in short skirts Remember Love Lays its fingers on your heart And holds it Under water Remember that When the next girl smiles.
+ - We’ll meet and click and sit up all night and everything will tip out of me and into him and the other way around and while we’re tipping the night will fade and the world will get pink and in that pinkness he’ll kiss me.
+ - I spray the sky fast. Eyes ahead and behind. Looking for cops. Looking for anyone I don’t want to be here. Paint sails and the things that kick in my head scream from can to brick. See this, see this. See me emptied onto a wall.
+ - There was no skin on my voice and she heard the bones in my words.
+ - You were right. Real is better. The truth is better. It makes you feel kind of stupid, but it’s better.
+ - I liked that he had hair that was growing without a plan. A grin that came out of nowhere and left the same way.
+ - Everything is what it is. I just wish it were something else.
+ - When wanting collides with getting, that’s the moment of truth. I want to collide.
+ - I like that about art, that what you see is sometimes more about who you are than what’s on the wall. I look at this painting and think about how everyone has some secret inside, something sleeping like that yellow bird.
+ - Mum says when wanting collides with getting, that’s the moment of truth. I want to collide. I want to run right into Shadow and let the force spill our thoughts so we can pick each other up and pass each other back like piles of shiny stones.
+ - It’s a different kind of missing. You’re trying to remember, and he’s trying to forget.
+ - You’re always saying people don’t like you but people can’t like something that’s not there.
+ - And I look at him because he needs to be looked at. He needs to be seen. I hate that he has been on his own for so long painting graffiti moons in the dark keeping quiet about who he really is.
+ - Kept dreaming of this spot she had on her neck, this tiny country. I wanted to visit, to paint a picture of what I found there, a wall with a road map of her skin.
+ - If you don’t want a generation of robots, fund the arts!
+
+19 quotes

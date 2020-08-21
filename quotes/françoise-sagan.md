@@ -1,0 +1,73 @@
+ - Money may not buy happiness, but I’d rather cry in a Jaguar than on a bus.
+ - I have loved to the point of madness; that which is called madness, that which to me, is the only sensible way to love.
+ - There is a certain age when a woman must be beautiful to be loved, and then there comes a time when she must be loved to be beautiful.
+ - I like men to behave like men. I like them strong and childish.
+ - Whisky, gambling and Ferraris are better than housework.
+ - In love, as in finance, only the rich can get credit.
+ - It would be bad form for me to describe people I don’t know and don’t understand.
+ - A dress makes no sense unless it inspires men to take it off of you.
+ - At night, time becomes a calm sea. It goes on for ever.
+ - Curiosity is the beginning of all wisdom.
+ - He lifted me up and held me close against him, my head on his shoulder. At that moment I loved him. In the morning light he was as golden, as soft, as gentle as myself, and he would protect me.
+ - Art must take reality by surprise. It takes those moments which are for us merely a moment, plus a moment, plus another moment, and arbitrarily transforms them into a special series of moments held together by a major emotion.
+ - Jazz music is an intensified feeling of nonchalance.
+ - The happiness of others is never bearable for very long...
+ - No one is more conventional than a woman who is falling out of love.
+ - Nothing brings on jealousy like laughter.
+ - One partner is always more in love than the other.
+ - When man, Apollo man, rockets into space, it isn’t in order to find his brother, I’m quite sure of that. It’s to confirm that he hasn’t any brothers.
+ - To jealousy, nothing is more frightful than laughter.
+ - Love lasts about seven years. That’s how long it takes for the cells of the body to totally replace themselves.
+ - Illness is the opposite of freedom. It makes everything impossible.
+ - One can never speak enough of the virtues, the dangers, the power of shared laughter.
+ - You should celebrate the end of a love affair as they celebrate death in New Orleans, with songs, laughter, dancing and a lot of wine.
+ - I found myself both touched and irritated by the discovery that she was vulnerable.
+ - We are torn between the craving to know and the despair of having known.
+ - If you treat life well, life is usually good to you. And I love life. There’s a long-standing affair between us.
+ - The one thing I regret is that I will never have time to read all the books I want to read.
+ - Love is worth whatever it costs.
+ - It is healthier to see the good points of others than to analyze our own bad ones.
+ - There are moments when you feel trapped, ill at ease. A year later the same feeling can turn out to be the theme of a book.
+ - Of course the illusion of art is to make one believe that great literature is very close to life, but exactly the opposite is true. Life is amorphous, literature is formal.
+ - If you don’t have imagination you’re lost. But it’s a virtue that’s becoming increasingly rare, especially in its higher form: spontaneity. Mad, happy spontaneity.
+ - I feel sorry for men. They have more problems than women, because they now have to compete with women.
+ - All my life, I will continue obstinately to write about love, solitude and passion among the kind of people I know. The rest don’t interest me.
+ - Looking for pleasure is the best way to ensure you won’t find it.
+ - It isn’t common sense that is paramount in this world, it’s wishful thinking.
+ - The rich have a passion for bargains as lively as it is pointless.
+ - People respect unhappiness and find it especially hard to forgive success.
+ - Unhappiness has nothing to teach, and resignation is ugly.
+ - I did not find him absurd. I saw he was kind, that he was on the verge of real love. I thought it would be nice for me to be in love with him, too.
+ - After Proust, there are certain things that simply cannot be done again. He marks off for you the boundaries of your talent.
+ - I think the best way to waste time is to try to save time.
+ - Passion is the salt of life, and that at the times when we are under its spell this salt is indispensable to us, even if we have got along very well without it before.
+ - Usually I avoided college students, whom I considered brutal, wrapped up in themselves, particularly in their youth, in which they found material for drama or an excuse for their own boredom. I did not care for young people.
+ - The happiness of people who are in love and who are loved shows in their faces. They have an expression that’s at once very far away and very much part of the present.
+ - There is no such thing as an ideal man. The ideal man is the man you love at the moment.
+ - My love of pleasure seems to be the only consistent side of my character. Is it because I have not read enough?
+ - Every little girl knows about love. It is only her capacity to suffer because of it that increases.
+ - I’ve often found myself preferring second-rate people to supposedly superior people, simply and solely because of their uncontrollable tendency to bang themselves against the sides of life’s vast lampshade like fireflies or moths.
+ - I’ve tried very hard and I’ve never found any resemblance between the people I know and the people in my novels.
+ - No one, but no one, ever behaves ‘well’ in bed unless they love or are loved – two conditions seldom fulfilled.
+ - I dreamt of being a writer once I started to read. I started to write ‘Bonjour Tristesse’ in bistros around the Sorbonne. I finished it, I sent it to editors. It was accepted.
+ - I shall live badly if I do not write, and I shall write badly if I do not live.
+ - I always believe things are going to work out.
+ - Houses are for private living, for friends, and for dogs.
+ - Marriage? It’s like asparagus eaten with vinaigrette or hollandaise, a matter of taste but of no importance.
+ - Writing is a question of finding a certain rhythm. I compare it to the rhythms of jazz. Much of the time life is a sort of rhythmic progression of three characters. If one tells oneself that life is like that, one feels it less arbitrary.
+ - It seems to me that there are two kinds of trickery: the “fronts” people assume before one another’s eyes, and the “front” a writer puts on the face of reality.
+ - I had a strong desire to write and some free time.
+ - I was thinking that I should be content to kiss him until the break of day. Bertrand ran out of kisses too soon; desire made them superfluous in his eyes. They were only a stage on the road to pleasure, not something inexhaustible and self-sufficient, as Luc had revealed them to me.
+ - Writing is just having a sheet of paper, a pen and not a shadow of an idea of what you are going to say.
+ - For what are we looking for if not to please? I do not know if the desire to attract others comes from a superabundance of vitality, possessiveness, or the hidden, unspoken need to be reassured.
+ - When you make a decision to write according to a set schedule and really stick to it, you find yourself writing very fast. At least I do.
+ - I’ve read Proust and Stendhal. That keeps you in your place.
+ - Life has confirmed for me the thoughts and impressions I had when I was 18, as if it was all intuition.
+ - For this was the round of love: fear which leads on desire, tenderness and fury, and that brutal anguish which triumphantly follows pleasure.
+ - What you call types of mind are only mental ages.
+ - Art must take reality by surprise.
+ - It amused me to think that one can tell the truth when one is drunk and nobody will believe it.
+ - For me writing is a question of finding a certain rhythm. I compare it to the rhythms of jazz.
+ - Every time I see a film about Joan of Arc I’m convinced she’ll get away with it. It’s the only way to get through life.
+
+71 quotes

@@ -1,0 +1,33 @@
+ - Failure is never quite so frightening as regret.
+ - I never met Barry Crump, but I was in an audience once for a play once. There was a drunken man at the back of the auditorium that was shouting during a performance of a one man play, and it turned out later on that was Barry Crump and he was in a state of inebriation.
+ - Where we’re going, we won’t need eyes to see.
+ - Nobody knows who Barry Crump is, anywhere, but in New Zealand he’s huge. I am of that age, where I sort of grew up with Barry Crump books. Look, if you read the book, you realize it is actually not a funny book at all.
+ - No intelligent man wears a moustache voluntarily – you can write that down.
+ - I’m not big on Champagne, but I’d take along a bottle of Cristal to pop for when the boat comes to the rescue.
+ - Try and fit in in a New Zealand playground with an Armagh accent – it doesn’t work.
+ - Wines are like women in that it’s often the imperfections that fascinate.
+ - Magic realism – somebody used that phrase the other day that is familiar with South American literature. That rang a bell. It resonates with me.
+ - As much as possible, I try to encourage people to use stunt men because that is really their job.
+ - People turn into fools when they see a movie star and do weird things.
+ - I like actors. I like their insecurities, their humor and their intelligence.
+ - I understand acting and I understand actors. I don’t really understand the world of celebrity. That’s just bizarre. Those sorts of elements I’m at sea with.
+ - I go by the role pretty much. And I think the only genre I haven’t gotten to do but I’d love to is a western, but no one has ever asked me to do that. Unfortunately they are very few and far between these days, but that is one type of film I’d love to do.
+ - In the case of Wilderpeople, I walked on the first day with some apprehension actually; because it doesn’t come anywhere close to anything I’ve really played before, this part.
+ - You don’t necessarily have to go a long way in New Zealand to be in some pretty dense and scary bush.
+ - I think you need brains to do any Shakespeare with any authority. I could do Shakespeare, but not with any authority.
+ - Big budgets don’t necessarily give you big films.
+ - You never really know who you’re going to be acting with, but that doesn’t really matter. 99% of the actors I’ve worked with, and they number in the thousands, I’ve liked.
+ - I get very antsy and nervous if I don’t know what the next job is.
+ - I hate to say it, but there seems to have been some sort of dumbing down as far as movies go.
+ - Actors are easy to like. They are generally sociable, thoughtful people.
+ - I’ve worked all my life to shed myself of any character.
+ - If you want to learn about America, watch The Wire. Its a profound piece of entertainment.
+ - I can never really remember what I look like. I’m just sort of neutral. I don’t think I’m sort of, you know, hideous.
+ - When I started in films, it never really occurred to me that I could make a career out of acting.
+ - Every actor wants more offers, but I get enough and I do like to be busy.
+ - I like being around actors. Imagine not liking actors.
+ - I can tell you where I was when Kennedy was shot – which was in the common room at school. I heard about it on the old valve radio. At the time of Armstrong’s landing, I was at university rehearsing a play.
+ - I enjoy some physical stuff. But if I had a choice between playing a scene where it’s raining, it’s terribly cold, I’m wet and I’m being drowned and playing a scene with dinosaur eggs in a laboratory, I’d probably take the latter. It’s warmer and generally more comfortable!
+ - When I left university I was working for a documentary film company for six or seven years to the great relief of my father whose greatest waking fear was that I would become an actor.
+
+31 quotes

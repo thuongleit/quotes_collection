@@ -1,0 +1,42 @@
+ - Being happy never goes out of style. ~~Lilly Pulitzer
+ - A negative mind will never give you a positive life. ~~Ziad K. Abdelnour
+ - Don’t find a reason to smile. Find a way. ~~Rita Zahara
+ - A man is happy so long as he chooses to be happy and nothing can stop him. ~~Aleksandr Solzhenitsyn
+ - What we see depends mainly on what we look for. ~~John Lubbock
+ - There’s no such thing as bad weather – only the wrong clothes. ~~Billy Connolly
+ - If your happiness depends on what somebody else does, I guess you do have a problem. ~~Richard Bach
+ - Love is when the other person’s happiness is more important than your own. ~~H. Jackson Brown Jr.
+ - Don’t wait around for other people to be happy for you. Any happiness you get you’ve got to make yourself. ~~Alice Walker
+ - People are chasing cash, not happiness. When you chase money, you’re going to lose. You’re just going to. Even if you get the money, you’re not going to be happy. ~~Gary Vaynerchuk
+ - Walk as if you are kissing the Earth with your feet. ~~Nhat Hanh
+ - At some point, you gotta let go, and sit still, and allow contentment to come to you. ~~Elizabeth Gilbert
+ - Of course, I want to be number one. But being happy and healthy is the most important thing. ~~Venus Williams
+ - Joy multiplies when it is shared among friends, but grief diminishes with every division. That is life. ~~R.A. Salvatore
+ - You don’t develop courage by being happy in your relationships everyday. You develop it by surviving difficult times and challenging adversity. ~~Epicurus
+ - If you can do what you do best and be happy, you’re further along in life than most people. ~~Leonardo DiCaprio
+ - To be happy we must not be too concerned with others. ~~Albert Camus
+ - Real elation is when you feel you could touch a star without standing on tiptoe. ~~Doug Larson
+ - Why not seize the pleasure at once? How often is happiness destroyed by preparation, foolish preparation. ~~Jane Austen
+ - Synchronicity: A meaningful coincidence of two or more events where something other than the probability of chance is involved. ~~C.G. Jung
+ - I, not events, have the power to make me happy or unhappy today. I can choose which it shall be. Yesterday is dead, tomorrow hasn’t arrived yet. I have just one day, today, and I’m going to be happy in it. ~~Groucho Marx
+ - There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. ~~Epictetus
+ - We all live with the objective of being happy; our lives are all different and yet the same. ~~Anne Frank
+ - I’m happy being myself, which I’ve never been before. I always hid in other people, or tried to find myself through the characters, or live out their lives, but I didn’t have those things in mine. ~~Angelina Jolie
+ - You could say, in a vulgar Freudian way, that I am the unhappy child who escapes into books. Even as a child, I was most happy being alone. This has not changed. ~~Slavoj Žižek
+ - Puritanism. The haunting fear that someone, somewhere, may be happy. ~~H. L. Mencken
+ - People take different roads seeking fulfilment and happiness. Just because they’re not on your road doesn’t mean they’ve gotten lost. ~~H. Jackson Brown Jr.
+ - That’s the difference between me and the rest of the world! Happiness isn’t good enough for me! I demand euphoria! ~~Bill Watterson
+ - There must be a happy medium somewhere between being totally informed and blissfully unaware. ~~Doug Larson
+ - We find that the more a cultivated reason devotes itself to the aim of enjoying life and happiness, the further does man get away from true contentment. ~~Immanuel Kant
+ - Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone. ~~Sigmund Freud
+ - It’s never too late – never too late to start over, never too late to be happy. ~~Jane Fonda
+ - The most important thing is to enjoy your life, to be happy. It’s all that matters. ~~Audrey Hepburn
+ - If you have health, you probably will be happy, and if you have health and happiness, you have all the wealth you need, even if it is not all you want. ~~Elbert Hubbard
+ - Some cause happiness wherever they go; others whenever they go. ~~Oscar Wilde
+ - Even a happy life cannot be without a measure of darkness, and the word happy would lose its meaning if it were not balanced by sadness. ~~C.G. Jung
+ - The secret of happiness is not in doing what one likes, but in liking what one does. ~~James M. Barrie
+ - Don’t waste a minute not being happy. If one window closes, run to the next window – or break down a door. ~~Brooke Shields
+ - The habit of being happy enables one to be freed, or largely freed, from the domination of outward conditions. ~~Robert Louis Stevenson
+ - Trust yourself. Create the kind of self that you will be happy to live with all your life. Make the most of yourself by fanning the tiny, inner sparks of possibility into flames of achievement. ~~Golda Meir
+
+40 quotes

@@ -1,0 +1,31 @@
+ - Marketing strategy is a series of integrated actions leading to a sustainable competitive advantage.
+ - No great marketing decisions have ever been made on qualitative data.
+ - Marketing is really theater. It’s like staging a performance.
+ - As a brand marketer, I’m a big believer in ‘branding the customer experience,’ not just selling the service.
+ - Healthcare has been the last major industry that hasn’t been touched by technology in terms of productivity and consumer adoption in the way so many other industries have.
+ - There are just moments when all the stars are aligned for breakthrough products.
+ - If you spend too much time worrying about how other people perceive you, you’ll never break the rules.
+ - Innovation has never come through bureaucracy and hierarchy. It’s always come from individuals.
+ - Apple is so focused on its vision that it does things in a very careful, deliberate way.
+ - People who take risks are the people you’ll lose against.
+ - Nothing will divide this nation more than ignorance, and nothing can bring us together better than an educated population.
+ - People are going to be most creative and productive when they’re doing something they’re really interested in.
+ - We expect teachers to handle teenage pregnancy, substance abuse, and the failings of the family. Then we expect them to educate our children.
+ - Everything at Apple can be best understood through the lens of designing. Whether it’s designing the look and feel of the user experience, or the industrial design, or the system design, and even things like how the boards were laid out.
+ - The news of my pregnancy spread like a forest fire in summer.
+ - Great marketing cannot sell a pedestrian product very well.
+ - The Japanese always started with the market share of components first. So one would dominate, let’s say, sensors, and someone else would dominate memory, and someone else hard drives and things of that sort.
+ - Innovation, I believe, is the only way that America will regain the initiative in a global dynamic economy.
+ - The Mac defined personal technology, and the iPhone defines intimate technology as a convergence of communications, content and location.
+ - The new leaders face new tests such as how to lead in this idea-intensive, interdependent network environment.
+ - I have found that I always learn more from my mistakes than from my successes. If you aren’t making some mistakes, you aren’t taking enough chances.
+ - Apple no longer builds any products. When I was there, people used to call Apple “a vertically integrated advertising agency,” which was not a compliment.
+ - If we hadn’t put a man on the moon, there wouldn’t be a Silicon Valley today.
+ - You can’t be No. 1 unless you think like No. 1. You have to appear like No. 1.
+ - In many cases, jobs that used to be done by people are going to be able to be done through automation. I don’t have an answer to that. That’s one of the more perplexing problems of society.
+ - Implementers aren’t considered bozos anymore.
+ - Health care missed the PC and Internet revolutions, but it can’t afford to miss the cloud and mobile revolution.
+ - I believe that crisis really tends to help develop the characer of an organisation.
+ - Those lessons that I got along the way are the ones that have shaped my life for the last 20 years.
+
+29 quotes

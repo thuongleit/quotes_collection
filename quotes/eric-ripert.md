@@ -1,0 +1,34 @@
+ - I am an audiophile. It’s almost like a virus. I’m completely crazy about the quality of sound. It’s interesting and painful at the same time; you have to really spend a lot of money on the equipment.
+ - The importance of reading, for me, is that it allows you to dream.
+ - When you are 25, 30, you know, you have no responsibility, no mortgage, no kids, no retirement to think about, nothing.
+ - My New Year’s resolution is to cut my diet sodas down to two cans a day!
+ - For me, food is about memories, feelings, emotions, and so is Le Bernardin, and that’s why it’s not just a restaurant.
+ - I love eggs. When it’s the season of truffles, scrambled eggs with truffles, and I’m happy. I’m smiling like that.
+ - I am a Buddhist, therefore I should not be collecting anything – however, I have a collection of Buddhas. I have a lot of them.
+ - I have more eating memories than cooking memories and many memories of being in the kitchen – I was always attracted to the kitchen – but nobody ever wanted me to touch anything.
+ - California is lucky, the East Coast is lucky because we get great seafood and a lot of produce from Florida, locally in good weather, but in the winter we have to buy it.
+ - When I was twelve, I decided to become a chef. I stole a book from the library about the greatest restaurants in France. I’d flip the pages and dream. I should return that book to the library some day.
+ - We lived in St. Tropez when I was young, and there were a lot of Vietnamese refugees in France at the time, after the war. My mother had many Vietnamese friends who entertained a lot, and she was taught how to make that spring roll. She would make them all the time.
+ - You don’t become a chef to become famous.
+ - When you serve lobster, you’ve taken a being’s life away. Therefore if you create a recipe, you have to be very dedicated to elevate the lobster, to make it good and tasty of course, but at the end of the day it’s a matter of paying homage.
+ - I’m very bad, but I like to dance.
+ - I had a passion for cooking, and I was a very bad student.
+ - I don’t like it when I go to a restaurant and I’m lectured from the menu.
+ - A lot of foreign people say, when asking about eating habits, ‘What is your guilty pleasure?’ I have no guilt. Whatever I do, I enjoy and it’s the point. I think if you start to feel guilty about it, that’s a problem. So, no guilty pleasures. I have pleasure and no guilt at all.
+ - The fish is the star of the plate.
+ - At 15, I had to choose a vocational school, and I was delighted, of course, to go to culinary school. But learning the basics was not as exciting as being the chef I am today.
+ - I don’t follow the food trends.
+ - Money is not necessarily, although it helps a lot for happiness, it’s not necessarily the best way to be happy, to be rich, you know.
+ - America is a such a melting pot, I’m not sure if roast chicken is the classic comfort food for everybody.
+ - I love garlic, and I use it often.
+ - When I realized, “Hm, I’m not that good at all. It will take me weeks, maybe months, to master the 32 yolks.” When I did, it was a turning point in my career.
+ - If I go to a nightclub, even if the music is good, if the sound system is not, I don’t stay.
+ - Today, because I want to be gentle on my back, I listen to jazz.
+ - I come from a family of farmers on both sides of my family.
+ - Obviously California is fantastic in terms of produce, vegetables.
+ - My mother and my grandmother would make an apple tart in different styles, and I had one per day. Every day I would eat one full apple tart.
+ - In New York there used to be some very good clubs with amazing sound systems. Techno was part of the process.
+ - When I started to work in Paris in fine dining, the passion really kicked in, and I knew that I would not, for the rest of my life, do anything else.
+ - In a professional kitchen, the idea is to have your cooks not moving much while theyre cooking. You want them to stay in the same spot.
+
+32 quotes

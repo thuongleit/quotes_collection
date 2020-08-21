@@ -1,0 +1,45 @@
+ - Etiquette means behaving yourself a little better than is absolutely essential.
+ - All Modern Men are descended from a Wormlike creature but it shows more on some people.
+ - Just when you’re beginning to think pretty well of people, you run across somebody who puts sugar on sliced tomatoes.
+ - Young normal tigers do not eat people. If eaten by a tiger you may rest assured he was abnormal.
+ - Let’s not be too quick to blame the human race for everything. A great many species of animals became extinct before man ever appeared on earth.
+ - Some people lose all respect for the lion unless he devours them instantly. There is no pleasing some people.
+ - A few Cobras in your home will soon clear it of Rats and Mice. Of course, you will still have the Cobras.
+ - The moral of the story of the Pilgrims is that if you work hard all your life and behave yourself every minute and take no time out for fun you will break practically even, if you can borrow enough money to pay your taxes.
+ - The stork is voiceless because there is really nothing to say.
+ - Orangutans teach us that looks are not everything-but warned near it.
+ - The Love bird is one hundred percent faithful to his mate-who is locked into the same cage.
+ - Alexander III of Macedon is known as Alexander the Great because he killed more people of more different kinds than any other man of his time.
+ - Ah, well! We live and learn, or, anyway, we live.
+ - A hermit is simply a person to whom civilization has failed to adjust itself.
+ - The sloth lives his life upside down. He is perfectly comfortable that way. If the blood rushes to his head, nothing happens because there is nothing to work on.
+ - The Ancient Egyptians considered it good luck to meet a swarm of Bees on the road. What they considered bad luck I couldn’t say.
+ - My philosophy of life can be summed up in four words: It can’t be helped.
+ - I do not travel. I am not much of an extrovert, and I’m not much interested in extroverted objects. I do not care for the ‘ideas’ of novelists. Novels are wonderful, of course, but I prefer newspapers.
+ - Borrowing has a bad name, but you would be surprised how it helps in a pinch.
+ - To the seeing eye life is mostly Sparrows.
+ - I hear so many things about who I am supposed to be I hardly know what to believe. I am willing to tell all, but what Is it? Doubtless all these myths and legends will be straightened out eventually, but It may take years.
+ - Aristotle described the Crow as chaste. In some departments of knowledge, Aristotle was too innocent for his own good.
+ - It’s easy to see the faults in people I know; it’s hardest to see the good. Especially when the good isn’t there.
+ - Male penguins are unfaithful up to an advanced age, a phenomenon sometimes attributed to the sea air.
+ - Even as a child back in Indiana, whenever I took a Butterbelly off the hook I used to ask myself, “Does this fish think?” I would even ask others, “Do you suppose this Butterbelly can think?” And all I would get in reply was a look. At the age of eighteen, I left the state.
+ - Humor springs from rage, hay fever, overdue rent and miscellaneous hell.
+ - Never call anyone a baboon unless you are sure of your facts.
+ - Frogs will eat red-flannel worms fed to them by biologists; this proves a great deal about both parties concerned.
+ - Aristotle taught that the brain exists merely to cool the blood and is not involved in the process of thinking. This is true only of certain persons.
+ - If a cat does something, we call it instinct; if we do the same thing, for the same reason, we call it intelligence.
+ - I borrow to pay my honest debts and not to squander foolishly. What’s more, I confine my borrowing to those who can well afford it. I don’t go around sponging on widows and orphans unless they have plenty.
+ - The trouble with the dictionary is that you have to know how a word is spelled before you can look it up to see how it is spelled.
+ - The Dodo never had a chance. He seems to have been invented for the sole purpose of becoming extinct and that was all he was good for.
+ - The hippopotamus looks monogamous- he looks as if he would have to be.
+ - I only know that all is lost, and that nothing can help me unless I inherit money, strike oil or go to work.
+ - Galvani was mistaken about the amount of electricity in frogs, but he had some good ideas, too, for the galvanometer is named in his honor, and you don’t have galvanometers named after you merely for making a mistake about a frog.
+ - I am billed as a humorist, but of course I am a tragedian at heart.
+ - Armadillos make affectionate pets, if you need affection that much.
+ - We all make mistakes, but intelligence enables us to do it on purpose.
+ - Caesar might have married Cleopatra, but he had a wife at home. There’s always something.
+ - Henry VIII had so many wives because his dynastic sense was very strong whenever he saw a maid of honour.
+ - The wren-box problem is becoming more acute each year, for wrens now demand better housing conditions and labor-saving devices.
+ - The male is colored much more gorgeously than the female so that he can be shot and made into feather embroidery.
+
+43 quotes

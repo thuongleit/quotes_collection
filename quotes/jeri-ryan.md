@@ -1,0 +1,27 @@
+ - Cheating is often more efficient.
+ - That’s what makes a character interesting from an actor’s perspective – the more screwed up, the better.
+ - I was always a fan of horror films as a kid.
+ - No doubt that he will make an excellent senator.
+ - My husband travels a lot with his job, so we have a lot of frequent flyer miles so we can hop on a plane with no notice. That’s a nice luxury and he is very supportive.
+ - You can’t really prepare yourself for being greeted by a dozen Klingons drinking blood wine. So, it can be a bit off-putting coming in from the outside. But it’s great fun and there are no fans like Star Trek fans.
+ - I have a lot of fun with guns, especially the M-16, but my favourite is my little .22. It fits nicely in the palm of your hand. I do limit myself to blanks.
+ - This was truly guerilla filmmaking. We shot out in the middle of nowhere in a place called Delta Flats, where basically every day was some new minor catastrophe.
+ - I was raised all over. Kansas, Hawaii, Georgia, Texas and Kentucky, by the time I was 11.
+ - Sorry, I get a little excited when I talk about firearms.
+ - I could do without the Bubonic Plague.
+ - I think the more stressful our times get, the more we look for fantasy escapes.
+ - I loved working with Eric Close and J. T. Walsh.
+ - I don’t necessarily believe in aliens coming to the States, and I don’t buy into the government cover-up.
+ - My background has been very helpful for this experience. But everyone was so accommodating because they knew it’s not the most comfortable position to be the new kid.
+ - I’m not so widely known that I’m going to be pigeonholed.
+ - It was really a pleasure to play someone who’s literally pushed past her breaking point repeatedly.
+ - I get to pretend I’m flying into space, and hang out with my friends. That’s what I do for a living.
+ - The costume that I wear on the show is a little snug and doesn’t leave a whole lot to the imagination. I don’t have a problem with it because of the way this character’s been written.
+ - I have no specific ideas in mind of what I will or won’t do; it’s all about the roles.
+ - I’ve loved the escapism of being another person, slipping into another character for a little while.
+ - There is a very large chunk of our population who firmly believe in extraterrestrials.
+ - It might be arrogant to think that we’re the only living creations in all of the solar systems that there are. Space is so vast.
+ - I’m not real impressed with the Star Trek weaponry, I gotta be honest.
+ - My husband is someone who’s in the real world. It’s a big help that I don’t have both feet in Hollywood.
+
+25 quotes

@@ -1,0 +1,35 @@
+ - Miracles happen to those who believe in them.
+ - We usually meet all of our relatives only at funerals where somebody always observes: “Too bad we can’t get together more often”.
+ - It makes me happy to encounter goodness, love of work, humane intelligence, and people no matter at what kind of job, be it ever so humble, or ever so exalted, who do it well and con amore.
+ - In figure painting, the type of all painting, I have endeavoured to set forth that the principal if not sole source of life enchantments are Tactile Values, Movement and Space Composition.
+ - Between truth and the search for it, I choose the second.
+ - A complete life may be one ending in so full an identification with the oneself that there is no self left to die.
+ - The ultimate justification of the work of art is to help the spectator to become a work of art himself.
+ - Taste begins when appetite is satisfied.
+ - Literature in its most comprehensive sense is the autobiography of humanity.
+ - Miracles happen to those who believe in them. Otherwise why does not the Virgin Mary appear to Lamaists, Mohammedans, or Hindus who have never heard of her.
+ - Enemies could become the best companions. Companionship is based on a common interest, and the greater the interest the closer the companionship. What makes enemies of people, if not the eagerness, the passion for the same thing?
+ - Consistency requires you to be as ignorant today as you were a year ago.
+ - Government is the art of the momentary feasible, of the least bad attainable, and not of the rationally most desirable.
+ - Genius is the capacity for productive reaction against one’s training.
+ - The artist, depicting man disdainful of the storm and stress of life, is no less reconciling and healing than the poet who, while endowing Nature and Humanity, rejoices in its measureless superiority to human passions and human sorrows.
+ - I would willingly stand at street corners, hat in hand, begging passerby to drop their unused minutes into it.
+ - Boast is always a cry of despair, except in the young it is a cry of hope.
+ - I am only a picture-taster, the way others are wine-or tea-tasters.
+ - Art is mind and heart and touch as much and more than it is mere instrument, technique – without which however it cannot exist at all.
+ - Life has taught me that it is not for our faults that we are disliked and even hated, but for our qualities.
+ - Not what man knows but what man feels, concerns art. All else is science.
+ - The average European does not seem to feel free until he succeeds in enslaving and oppressing others.
+ - You can parody and make fun of almost anything, but that does not turn the universe into a caricature.
+ - As I got warmed up, and felt perfectly at home in talk, I heard myself boasting, lying, exaggerating. Oh, not deliberately, far from it. It would be unconvivial and dull to stop and arrest the flow of talk, and speak only after carefully considering whether I was telling the truth.
+ - I wonder whether art has a higher function than to make me feel, appreciate, and enjoy natural objects for their art value?
+ - German is of stone, limestone, pudding stone, marble, granite even, and so to a considerable degree is English, whereas French is bronze and gives out a metallic resonance with tones that neither German nor English tolerate.
+ - There are two futures, the future of desire and the future of fate, and man’s reason has never learned to separate them.
+ - International affairs will be placed on a better footing when it is understood that there is no way of punishing a people for the crimes of its rulers.
+ - I never felt that there was anything enviable in youth. I cannot recall that any of us, as youths, admired our condition to excess or had a desire to prolong it.
+ - One can repent even of having repented.
+ - Psychoanalysts are not occupied with the minds of their patients; they do not believe in the mind but in a cerebral intestine.
+ - Government lasts as long as the under-taxed can defend themselves against the over-taxed.
+ - All of the arts, poetry, music, ritual, the visible arts, the theater, must singly and together create the most comprehensive art of all, a humanized society, and its masterpiece, free man.
+
+33 quotes

@@ -1,0 +1,61 @@
+ - A dysfunctional family is any family with more than one person in it.
+ - Sure the world breeds monsters, but kindness grows just as wild...
+ - Such a small, pure object a poem could be, made of nothing but air a tiny string of letters, maybe small enough to fit in the palm of your hand. But it could blow everybody’s head off.
+ - Childhood was terrifying for me. A kid has no control. You’re three feet tall, flat broke, unemployed, and illiterate. Terror snaps you awake. You pay keen attention. People can just pick you up and move you and put you down.
+ - There’s a space at the bottom of an exhale, a little hitch between taking in and letting out that’s a perfect zero you can go into. There’s a rest point between the heart muscle’s close and open – an instant of keenest living when you’re momentarily dead. You can rest there.
+ - Memoir is not an act of history, but an act of memory, which is innately corrupt.
+ - A pool game mixes ritual with geometry.
+ - It turned out to be impossible for me to ‘run away’ in the sense other American teenagers did. Any movement at all was taken for progress in my family.
+ - I’ve never contended that I had a really horrible life.
+ - I get about five memoirs per week in my mailbox, and few of them inspire anything but a desire to pick up the channel changer.
+ - Every now and then we enter the presence of the numinous and deduce for an instant how we’re formed, in what detail the force that infuses every petal might specifically run through us, wishing only to lure us into our full potential.
+ - The emotional stakes a memoirist bets with could not be higher, and it’s physically enervating. I nap on a daily basis like a cross-country trucker.
+ - Im always terrified when Im writing.
+ - Faith is a choice like any other. If you’re picking a career or a husband – or deciding whether to have a baby – there are feelings and reasons pro and con out the wazoo. But thinking it through is – at the final hour – horse dookey. You can only try out.
+ - Love is the only passion which includes in its dreams the happiness of someone else.
+ - For me, everything’s too much and nothing’s enough.
+ - If you lie to your husband – even about something so banal as how much you drink – each lie is a brick in a wall going up between you, and when he tells you he loves you, it’s deflected away.
+ - When I got sober, I thought giving up was saying goodbye to all the fun and all the sparkle, and it turned out to be just the opposite. That’s when the sparkle started for me.
+ - There are women succeeding beyond their wildest dreams because of their sobriety.
+ - Mother’s particular devils had remained mysterious to me for decades. So had her past. Few born liars ever intentionally embark in truth’s direction, even those who believe that such a journey might axiomatically set them free.
+ - Be willing to be a child and be the Lilliputian in the world of Gulliver.
+ - I get so lonely sometimes, I could put a box on my head and mail myself to a stranger.
+ - I’d spent way more years worrying about how to look like a poet – buying black clothes, smearing on scarlet lipstick, languidly draping myself over thrift-store furniture – than I had learning how to assemble words in some discernible order.
+ - We are in the grip of some big machine grinding us along. The force of it simplifies everything. A weird calm settled over me from inside out. What is about to happen has stood in line to happen. All the roads out of that instant have been closed, one by one.
+ - Reading is socially accepted disassociation. You flip a switch and you’re not there anymore. It’s better than heroin. More effective and cheaper and legal.
+ - If dysfunction means that a family doesn’t work, then every family ambles into some arena in which that happens, where relationships get strained or even break down entirely. We fail each other or disappoint each other. That goes for parents, siblings, kids, marriage partners – the whole enchilada.
+ - He never gave up on me, I only stopped being matriculated.
+ - The shreiking fight or the out-of-character insult endures forever, while the daily sweetness dissolves like sugar in water.
+ - In my godless household, poems were the closest we came to sacred speech – the only prayers said.
+ - I do have a really good memory. I mean, like, I can remember all the phone numbers of everybody on the street I grew up on.
+ - That’s what’s so gorgeous about humanity. It doesn’t matter how bleak our daily lives are, we still fight for the light. I think that’s our divinity. We lean into love, even in the most hideous circumstances. We manage to hope.
+ - Ten years, she’s dead, and I still find myself some mornings reaching for the phone to call her. She could no more be gone than gravity or the moon.
+ - I think we fall in love and become adults and become citizens in a way by writing stories about ourselves.
+ - The failures of other genres to provide an emotional connection with some of their characters and narratives gives memoir a toehold.
+ - Your heart, Mary Karr, he’d say. His pen touched my sternum, and it felt for all the world like the point of a dull spear as he said, Your heart knows what your head don’t. Or won’t.
+ - Poetry is for me Eucharistic. You take someone else’s suffering into your body, their passion comes into your body, and in doing that you commune, you take communion, you make a community with others.
+ - I’m bred for farm work, and for such folk, the only A’s you get come from effort. Strife and strain are all the world can offer, and they temper you into something unbreakable because Lord knows they’ll try – without let up – to break you.
+ - It strikes me that whatever advantages there are to being a boy – getting to stay out late and having other people wash your clothes and bring you plates of stuff – get undercut by having to play football.
+ - The words and sentences you take into your body from books are no less sacred and healing than communion. Surely at least one such person lives in your zip code.
+ - Most great writers suffer and have no idea how good they are. Most bad writers are very confident. Be willing to be a child and be the Lilliputian in the world of Gulliver, the bat girl in Yankee Stadium. That’s a more fruitful way to be.
+ - People who didn’t live pre-Internet can’t grasp how devoid of ideas life in my hometown was. I stopped in the middle of the SAT to memorize a poem, because I thought, This is a great work of art and I’ll never see it again.
+ - I’m doomed to act like myself, even when it’s inconvenient!
+ - I always say that a poet loves the world, and the prose writer needs to create an alternative world.
+ - How much smaller the large places are once we’re grown up, when we have car keys and credit cards.
+ - I’m not nearly smart enough or imaginative enough to tackle the novel form. Never happen.
+ - Even the best of us are at least part-time bastards.
+ - I don’t think I look like the pope’s favorite Catholic – at least not under close scrutiny.
+ - When people suffer, their relationships usually suffer as well. Period. And we all suffer because, as the Buddha says, that’s the nature of being human and wanting stuff we don’t always get.
+ - I find a great deal of comfort and care in my faith and prayer. I’d sooner do without air than prayer.
+ - I don’t have a copy of my books, and the degree to which I never read them is profound. I never look.
+ - I believe in God, but even if you don’t, you can believe in a self, the person who is innately who you are. Once you fully become that person, then everything you do will be blessed.
+ - Nobody sounds good writing about your divorce, let’s face it.
+ - I tell people not to write too soon about their lives. Writing about yourself too young is loaded with psychological complexities.
+ - I was 40 years old before I became an overnight success, and I’d been publishing for 20 years.
+ - Age about 30, I stopped looking up my books in bookstores. Paying attention to the marketplace isn’t a healthy thing for me.
+ - The truth is when I went to graduate school I would’ve said I was among the least talented of the students, I was certainly the least smart, or less educated. But I worked very hard.
+ - As a memoirist, I strive for veracity.
+ - Having a great dad probably permitted me to pal around with guys in a way that some women don’t.
+ - When you do try to picture the boys who do ask you out, they’re absolutely featureless, like old carvings eroded by centuries of rain and wind.
+
+59 quotes

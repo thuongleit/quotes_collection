@@ -1,0 +1,34 @@
+ - You gotta have a dream. If you don’t have a dream, how you gonna make a dream come true?
+ - Walk on, walk on with hope in your heart.
+ - Walk on, walk on with hope in your heart, and you’ll never walk alone, you’ll never walk alone.
+ - When the dog bites, when the bee stings, when I’m feeling sad, I simply remember my favorite things and then I don’t feel so bad.
+ - These are a few of my favorite things.
+ - It is a modern tragedy that despair has so many spokesmen, and hope so few.
+ - Do you love me because I’m beautiful, or am I beautiful because you love me?
+ - I’m as corny as Kansas in August.
+ - Be brave, young lovers, and follow your star.
+ - There is a very real relationship, both quantitatively and qualitatively, between what you contribute and what you get out of this world.
+ - I know the world is filled with troubles and many injustices. But reality is as beautiful as it is ugly. I think it is just as important to sing about beautiful mornings as it is to talk about slums. I just couldn’t write anything without hope in it.
+ - If you become a teacher, by your pupils you’ll be taught.
+ - You’ve got to be taught to hate and fear.
+ - The hills are alive with the sound of music, with songs they have sung for a thousand years.
+ - I’m in Love with a Wonderful Guy.
+ - Some enchanted evening, you may see a stranger Across a crowded room.
+ - If you really believe in the brotherhood of man, and you want to come into its fold, you’ve got to let everyone else in, too.
+ - Fools give you reasons, wise men never try.
+ - Peace is not the product of a victory or a command. It has no finishing line, no final deadline, no fixed definition of achievement. Peace is a never-ending process, the work of many decisions.
+ - You’ve got to be taught to be afraid Of people whose eyes are oddly made, Of people whose skin is a different shade. You’ve got to be carefully taught.
+ - I’m not going to run, I’m going to stand here and watch. Every blow will cut into my heart, and tell me who and what you are.
+ - The dearest things I know are what you are.
+ - Fish got to swim, birds got to fly.
+ - For when I fool the people I fear, I fool myself as well.
+ - I’d let my golden chances pass me by.
+ - I’m as restless as a willow in a windstorm.
+ - Hello, Young Lovers, Wherever You Are.
+ - But I’m only a cockeyed optimist.
+ - Ev’rythin’s up to date in Kansas City.
+ - Berlin’s great secret is that he says exactly what he means; sometimes he hits a gigantic line both musically and lyrically – almost Wagnerian in its strength.
+ - You can have fun with a son, But you got to be a father to a girl.
+ - There is Nothing Like a Dame.
+
+32 quotes

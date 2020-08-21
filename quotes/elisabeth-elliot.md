@@ -1,0 +1,158 @@
+ - God is God. Because he is God, He is worthy of my trust and obedience. I will find rest nowhere but in His holy will that is unspeakably beyond my largest notions of what he is up to.
+ - You are loved with an everlasting love. And underneath are the everlasting arms.
+ - The secret is Christ in me, not me in a different set of circumstances.
+ - Fear arises when we imagine that everything depends on us.
+ - When you don’t know what to do, do the thing in front of you.
+ - God has promised to supply all our needs. What we don’t have now, we don’t need now.
+ - When obedience to God contradicts what I think will give me pleasure, let me ask myself if I love Him.
+ - Of one thing I am perfectly sure: God’s story never ends with ’ashes.
+ - I realized that the deepest spiritual lessons are not learned by His letting us have our way in the end, but by His making us wait, bearing with us in love and patience until we are able to honestly to pray what He taught His disciples to pray: Thy will be done.
+ - It is always possible to be thankful for what is given rather than to complain about what is not given. One or the other becomes a habit of life.
+ - God never denies us our hearts desire except to give us something better.
+ - I have one desire now – to live a life of reckless abandon for the Lord, putting all my energy and strength into it.
+ - The life of faith is lived one day at a time, and it has to be lived – not always looked forward to as though the “real” living were around the next corner. It is today for which we are responsible. God still owns tomorrow.
+ - Waiting on God requires the willingness to bear uncertainty, to carry within oneself the unanswered question, lifting the heart to God about it whenever it intrudes upon one’s thoughts.
+ - God will not protect you from anything that will make you more like Jesus.
+ - If your goal is purity of heart, be prepared to be thought very odd.
+ - It is impossible to love deeply without sacrifice.
+ - We cannot give our hearts to God and keep our bodies for ourselves.
+ - A whole lot of what we call ‘struggling’ is simply delayed obedience.
+ - Faith does not eliminate questions. But faith knows where to take them.
+ - No marriage can survive without forgiveness. Marriage is a long term commitment between two sinners.
+ - Ordinary work, which is what most of us do, most of the time, is ordained by God every bit as much as is the extraordinary.
+ - Discipline, for the Christian, begins with the body. We have only one. It is this body that is the primary material given to us for sacrifice. We cannot give our hearts to God and keep our bodies for ourselves.
+ - Today is mine. Tomorrow is none of my business. If I peer anxiously into the fog of the future I will strain my spiritual eyes so that I will not see clearly what is required of me now!
+ - If my life is surrendered to God, all is well. Let me not grab it back, as though it were in peril in His hand but would be safer in mine!
+ - Leave it all in the Hands that were wounded for you.
+ - It is God to whom and with whom we travel, and while He is the end of our journey, He is also at every stopping place.
+ - A grandmother’s special calling is to pray and to be a fellow worker in the battle in which her children or her grandchildren are engaged.
+ - No one whose first concern is feeling good can be a disciple. We are called to carry a cross and to glorify God.
+ - Things happen which would not happen without prayer. Let us not forget that.
+ - The fact that I am a woman does not make me a different kind of Christian, but the fact that I am a Christian makes me a different kind of woman.
+ - The way we live ought to manifest the truth of what we believe. A messy life speaks of a messy and incoherent faith.
+ - The willingness to be and to have just what God wants us to be and have, nothing more, nothing less, and nothing else, would set our hearts at rest, and we would discover the simpler life, the greater peace.
+ - Restlessness and impatience change nothing except our peace and joy. Peace does not dwell in outward things, but in the heart prepared to wait trustfully and quietly on Him who has all things safely in His hands.
+ - A quiet heart is content with what God gives. It is enough. All is grace.
+ - Praise and glory to God for whom nothing is too hard.
+ - The world is full of noise. Might we not set ourselves to learn silence, stillness solitude?
+ - To love God is to love His will. It is to wait quietly for life to be measured by One who knows us through and through. It is to be content with His timing and His wise appointment.
+ - Blessings taken for granted are often forgotten.
+ - By trying to grab fulfillment everywhere, we find it nowhere.
+ - The heart set to do the Father’s will, need never fear defeat.
+ - God’s command ‘Go ye, and preach the gospel to every creature’ was the categorical imperative. The question of personal safety was wholly irrelevant.
+ - The husband is the head of the wife as Christ is the Head of the Church. And the wife is there to bless and support and help him.
+ - You will never understand why God does what He does, but if you believe Him, that is all that is necessary. Let us learn to trust Him for who He is.
+ - Lonely? Give it to Jesus. The loneliness itself is material for sacrifice.
+ - Among the most joyful people I have known have been some who seem to have had no human reason for joy. The sweet fragrance of Christ has shown through their lives.
+ - New Year’s Day is a good time to fix one’s eyes on the only One who knows what the year is to hold.
+ - Remind me that not everything needs to be said, and that there are very few things that need to be said by me.
+ - We are women, and my plea is Let me be a woman, holy through and through, asking for nothing but what God wants to give me, receiving with both hands and with all my heart whatever that is.
+ - The will of God is never exactly what you expect it to be. It may seem to be much worse, but in the end it’s going to be a lot better and a lot bigger.
+ - One does not surrender a life in an instant. That which is lifelong can only be surrendered in a lifetime.
+ - A prayerful heart and an obedient heart will learn, very slowly and not without sorrow, to stake everything on God Himself.
+ - The question is simply,’Who is your master?’Once that’s settled, you ask whether any word have been spoken. If it has, you have your orders.
+ - The only crown Jesus ever wore on earth was a crown of thorns.
+ - Worry is the antithesis of trust. You simply cannot do both. They are mutually exclusive.
+ - Choices will continually be necessary and – let us not forget – possible. Obedience to God is always possible. It is a deadly error to fall into the notion that when feelings are extremely strong we can do nothing but act on them.
+ - A spirit of restlessness and resistance can never wait, but one who believes he is loved with an everlasting love, and knows that underneath are the everlasting arms, will find strength and peace.
+ - Holiness has never been the driving force of the majority. It is, however, mandatory for anyone who wants to enter the kingdom.
+ - There is nothing worth living for, unless it is worth dying for.
+ - Loneliness itself is material for sacrifice. The very longings themselves can be offered to Him who understands perfectly. The transformation into something He can use for the good of others takes place only when the offering is put into his hands.
+ - For one who has made thanksgiving the habit of his life, the morning prayer will be, ‘Lord, what will you give me today to offer back to you?’
+ - Waiting silently is the hardest thing of all.
+ - Lead me, Lord, to the Rock that is higher than I. Let me hear your word, give me grace to obey, to build steadily, stone upon stone, day by day, to do what You say. Establish my heart where floods have no power to overwhelm, for Christ’s sake. Amen.
+ - Loneliness is a required course for leadership.
+ - We must quit bending the Word to suit our situation. It is we who must be bent to that Word, our necks that must bow under the yoke.
+ - The world looks for happiness through self-assertion. The Christian knows that joy is found in self-abandonment. ‘If a man will let himself be lost for My sake,’ Jesus said, ’he will find his true self.
+ - The preoccupations of young women-their looks, their clothes, their social life-don’t seem to change much from generation to generation. But in every generation there are a few that make others choices.
+ - You can never lose what you have offered to Christ.
+ - In whatever God does in the course of our lives, he gives us, through the experience, some power to help others.
+ - Where reasons are given, we don’t need faith. Where only darkness surrounds us, we have no means for seeing except by faith.
+ - The process of shaping the child, shapes also the mother herself. Reverence for her sacred burden calls her to all that is pure and good, that she may teach primarily by her own humble, daily example.
+ - The woman who accepts the limitations of womanhood finds in those very limitations her gifts, her special calling which bears her up into perfect freedom, into the will of God.
+ - The world cries for men who are strong; strong in conviction, strong to lead, to stand, to suffer.
+ - Faith has to be exercised in the midst of ordinary, down-to-earth living.
+ - But the things that we feel most deeply we ought to learn to be silent about, at least until we have talked them over thoroughly with God.
+ - Worship is not an experience. Worship is an act, and this takes discipline. We are to worship ?in spirit and in truth.? Never mind about the feelings. We are to worship in spite of them.
+ - Restlessness and impatience change nothing except our peace and joy.
+ - Sometimes God’s refusals are His mercies.
+ - Does God ask us to do what is beneath us? This question will never trouble us again if we consider the Lord of heaven taking a towel and washing feet.
+ - A broken heart is a reminder of our only source of power.
+ - If we do anything to further the kingdom of God, we may expect to find what Christ found on that road abuse, indifference, injustice, misunderstanding, trouble of some kind. Take it. Why not? To that you were called.
+ - Muddled thinking inevitably results in muddled living.
+ - Virginity is something that can be offered to God.
+ - To be a follower of the Crucified means, sooner or later, a personal encounter with the cross. And the cross always entails loss.
+ - Our Heavenly Healer often has to hurt us in order to heal us. We sometimes fail to recognize His mighty love in this, yet we are firmly held always in the Everlasting Arms.
+ - The disciplined Christian will be very careful what sort of counsel he seeks from others. Counsel that contradicts the written Word is ungodly counsel. Blessed is the man that walketh not in that.
+ - There is no need for faith where there is no consciousness of an element of risk.
+ - There is something that pretends to be christianity which is mostly mood. The measure of its faith is merely the measure of its feeling.
+ - The man whose eye is single for the glory of Another can be trusted.
+ - We can’t really tell how crooked our thinking is until we line it up with the straight edge of Scripture.
+ - Where does your security lie? Is God your refuge, your hiding place, your stronghold, your shepherd, your counselor, your friend, your redeemer, your saviour, your guide? If He is, you don’t need to search any further for security.
+ - The heart which has no agenda but God’s is the heart at leisure from itself. Its emptiness is filled with the Love of God. Its solitude can be turned into prayer.
+ - In order to learn what it means to be a woman we must start with the One who made her.
+ - Faith’s most severe tests come not when we see nothing, but when we see a stunning array of evidence that seems to prove our faith vain.
+ - Action that is clearly right needs no justification.
+ - God is God. I dethrone Him in my heart if I demand that he act in ways that satisfy my idea of justice.
+ - Prayer lays hold of God’s plan and becomes the link between His will and its accomplishment on earth. Amazing things happen, and we are given the privilege of being the channels of the Holy Spirit’s prayer.
+ - Modesty means to be free from undue familiarity, from indecency, from lewdness, pure in thought and conduct. Speaking of modest apparel, it means decent, seemly. The opposite of modesty is conceit, boldness, immodesty, brazenness, lewdness.
+ - God never witholds from His child that which His love and wisdom call good. God’s refusals are always merciful – “severe mercies” at times but mercies all the same. God never denies us our hearts desire except to give us something better.
+ - If all struggles and sufferings were eliminated, the spirit would no more reach maturity than would the child.
+ - The devil has made it his business to monopolize on three elements: noise, hurry, crowds. He will not allow quietness.
+ - Teach me to treat all that comes to me with peace of soul and with firm conviction that Your will governs all.
+ - Either we are adrift in chaos or we are individuals, created, loved, upheld and placed purposefully, exactly where we are. Can you believe that? Can you trust God for that?
+ - Maturity starts with the willingness to give oneself.
+ - Failure means nothing now, only that it taught me life.
+ - The only basis of peace is the cessation of the conflict of two wills: my will vs God’s.
+ - If it were not for uncertainties, we would have no need to walk by faith.
+ - It is when we come to the Lord in our nothingness, our powerlessness and our helplessness that He then enables us to love in a way which, without Him, would be absolutely impossible.
+ - Prostitutes dress obviously, so as to draw attention. It’s their business, isn’t it? The last thing that a Christian woman is thinking of is being like a prostitute.
+ - True faith goes into operation when there are no answers.
+ - If you are married, then accept that. Accept the husband that God has given you. If you are single, accept your singleness and take it as if today was the last day of your life. Don’t be looking constantly to the future.
+ - Cold prayers, like cold suitors, are seldom effective in their aims.
+ - If God, like a father, denies us what we want now it is in order to give us some far better thing later on. The will of God, we can rest assured, is invariably a better thing.
+ - Our future may look fearfully intimidating, yet we can look up to the Engineer of the Universe, confident that nothing escapes His attention or slips out of the control of those strong hands.
+ - What I ought to do and what I feel like doing are seldom the same thing.
+ - Everything if given to God can become your gateway to joy.
+ - Cruelty and wrong are not the greatest forces in the world. There is nothing eternal in them. Only love is eternal.
+ - He is always doing something – the very best thing, the thing we ourselves would certainly choose if we knew the end from the beginning. He is at work to bring us to our full glory.
+ - Nothing trains and teaches so powerfully as love. Love attracts. it does not coerce. If the aim of parents is to teach their children to love God they must show their love for Him by loving each other and loving the children.
+ - The Bible doesn’t explain everything necessary for our intellectual satisfaction, but it explains everything necessary for our obediance.
+ - The cross means suffering. Suffering’s meaning is to be learned through the cross.
+ - Stand true to your calling to be a man. Real women will always be relieved and grateful when men are willing to be men.
+ - Freedom begins way back. It begins not with doing what you want but with doing what you ought – that is, with discipline.
+ - Christ is sufficient. We do not need “support groups” for each and every separate tribulation. The most widely divergent sorrows may all be taken to the foot of the same old rugged cross and find there cleansing, peace, and joy.
+ - All our problems are theological ones, William Temple said. All of them have to do with our relationship to God and his to us, and this is precisely why it makes sense to come to God with them.
+ - Women still dream and hope, pin their emotions on some man who doesn’t reciprocate, and end up in confusion.
+ - We have ample evidence that the Lord is able to guide. The promises cover every imaginable situation. All we need to do is to take the hand he stretches out.
+ - The deepest lessons come out of the deepest waters and the hottest fires.
+ - Psychology describes. The Bible prescribes. ‘Turn from evil. Let that be the medicine to keep you in health.’ Pr 3:7,8.
+ - I’m convinced that there is nothing that can happen to me in this life that is not precisely designed by a sovereign Lord to give me the opportunity to learn to know Him.
+ - It seems disrespectful to me to see ladies in church in very short skirts or skimpy, sleeveless tops. I would imagine that it could be distracting to men who are trying to keep their minds on God.
+ - I seek the lessons God wants to teach me, and that means that I ask why.
+ - A little quiet reflection will remind me that yes to God always leads in the end to joy.
+ - She is free not by disobeying the rules but by obeying them.
+ - Jesus never pussyfooted.
+ - What God gives in answer to our prayers will always be the thing we most urgently need, and it will always be sufficient.
+ - Money holds terrible power when it is loved.
+ - Faith receives, day by day, what a loving Heavenly Father apportions...
+ - We are not meant to die merely in order to be dead. God could not want that for the creatures to whom He has given the breath of life. We die in order to live.
+ - Are you afraid? Remember the “fear nots” of the Bible.
+ - Most of the time we like the idea of our own freedom. There are times when we do not at all like the idea of the freedom of others. If we suffer because of their freedom, let us remember that they suffer because of ours.
+ - But the question to precede all others, which finally determines the course of our lives is What do I really want? Was it to love what God commands, in the words of the collect, and to desire what He promises? Did I want what I wanted, or did I want what He wanted, no matter what it might cost?
+ - Is the distinction between living for Christ and dying for Him so great? Is not the second the logical conclusion of the first?
+ - Think of this- we may live together with Him here and now, a daily walking with Him who loved us and gave Himself for us.
+ - If you have lost your life, remember that He promises that you will find it.
+ - Until the will and the affections are brought under the authority of Christ, we have not begun to understand, let alone to accept, His lordship.
+ - We never know what God has up His sleeve. You never know what might happen; you only know what you have to do now.
+ - The one who loves knows better than anyone else how to conduct himself, how to serve the one he loves. Love prescribes an answer in a given situation as no mere rule can do.
+ - I will offer to Him both my tears and my exultation. Nothing we offer to Him will be lost.
+ - Have we the humility to thank our Father for the gift of pain?
+ - It would seem that unless we see through and beyond the physical, we shall not even see the physical as we ought to see it: as the very vehicle for the glory of God.
+ - Things which sound like platitudes become vital, living and powerful when you have to learn them in dark tunnels.
+ - We fundamentalists are a pack of mood-loving showoffs. I’m sure the Minor Prophets would have found subject for correction.
+ - A man will be as much of a gentleman as a woman requires.
+ - It is in our acceptance of what is given that God gives Himself.
+ - Of all things difficult to rule, none were more so than my will and affections.
+
+156 quotes

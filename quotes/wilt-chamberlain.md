@@ -1,0 +1,36 @@
+ - Everybody pulls for David, nobody roots for Goliath.
+ - It is said that good things come to those who wait. I believe that good things come to those who work.
+ - Everything is habit-forming, so make sure what you do is what you want to be doing.
+ - People say my ego is grand. I think it’s in proportion to me.
+ - Monogamy is the true path to happiness.
+ - This is a team game and one man doesn’t win and one man doesn’t lose. In the end, the best team usually wins.
+ - If you have ability in a certain area, why not capitalize on it and improve it and use it?
+ - You must understand as a kid of color in those days, the Harlem Globetrotters were like being movie stars.
+ - They were so clever finding ways to get me the ball. They had to do more than just give up open shots. They had to avoid fouls and pass me the ball in traffic.
+ - They were willing to do anything to stop me.
+ - We’re all fascinated by the numbers, as we were about the 100 points.
+ - Scoring 100 points is a lot, but I maybe could have scored 140 if they had played straight-up basketball.
+ - It was a challenge to my teammates to help me.
+ - I get constant reminders from fans who equate that game and my career as one and the same.
+ - That’s my tag, whether I like it or not.
+ - I’ve prided myself on being in excellent condition-as good as any man in my profession. Now this doesn’t come from sitting around on your rear end. This comes from hard, hard work.
+ - He fouled out in the fourth quarter, and that’s when I really started getting points. He was no more at fault than anyone.
+ - Meadowlark was the most sensational, awesome, incredible basketball player I’ve ever seen.
+ - I was played the villain so much because I was bigger and stronger than most, and they cast me as the villain everywhere I went.
+ - We make too much of winning. The mere fact of winning doesn’t make you great.
+ - They say that nobody is perfect. Then they tell you practice makes perfect. I wish they’d make up their minds.
+ - It was a different sexual situation going on than it is in the ’80s and ’90s, and I did a very poor job of describing that.
+ - A big dog tends to be much more at ease with kids and gentle with them than a little one that’s always yelping.
+ - It seemed like whatever I touched, I was breaking record after record. I just knew I was on. I completely destroyed all existing shooting records there – an omen of things to come.
+ - Bill Russell helped make my dream a better dream because when you play with the best, you know you have to play your best.
+ - With all of you men out there who think that having a thousand different ladies is pretty cool, I have learned in my life I’ve found out that having one woman a thousand different times is much more satisfying.
+ - The man who won’t loan money isn’t going to have many friends – or need them.
+ - Villains are kind of hard to really know on a personal level when you see them as mean, unsensitive-type people.
+ - If I were given a change of life, I’d like to see how it would be to live as a mere six-footer.
+ - I guarantee you, if you could give me 10 points in all those seventh games against the Boston Celtics, instead of Bill Russell having 11 rings, I could’ve at least had nine or eight.
+ - I think a lot of ladies found me so attractive because I was different, and I acted on that in a way.
+ - The toughest thing for me was growing up and being stared at and being looked at and being talked about in that particular way. Other than that it was a good childhood.
+ - It just wasn’t right the way they were behind by 25 points and then they’re told to hold the ball.
+ - When you go out there and do the things you’re supposed to do, people view you as selfish.
+
+34 quotes

@@ -1,0 +1,57 @@
+ - Don’t smoke. Don’t kill yourselves. Don’t maim yourselves. Tell your friends. Please don’t smoke.
+ - There are some young women movie stars who are doing it everywhere, smoking in every movie, sometimes even with placements with a pack of cigarettes.
+ - I have my own religious bond with the God in my own head.
+ - My father could have been deported because on his immigration application he said that he was a printer, obviously because he didn’t want them to be checking his writings.
+ - Actors always loved props and-so instead of a hat or an umbrella, they feel really comfortable with a cigarette as a prop.
+ - Bette Davis had a phrase that called it “cigarette smoking acting” .
+ - Certainly on a political and a legislative level, Bill Clinton was effective, but the example that he ultimately left, I think for posterity, tragically, is going to begin with that single paragraph lead with the White House intern.
+ - Your characters get angry at you if you speak about them and stop you from giving birth to them on the page in revenge. Real writers sit down and write. Wannabe writers sit around and talk.
+ - A cigarette in the hands of a Hollywood star onscreen is a gun aimed at a 12- or 14-year-old.
+ - Politics has become entertainment.
+ - Joe Lieberman was threatening censorship. What I’m arguing is that if the creative people in Hollywood themselves have a responsibility, have a moral responsibility in terms of smoking, not to show smoking in movies.
+ - I will focus on smoking in movies and with the amount of time that I have left in the world, I will do the best I can to stop smoking in movies and also to help people stop smoking, just normal ordinary people who may need help.
+ - Let’s make Joe Lieberman accountable for his rhetoric. Not a penny more until he ‘clarifies’ his positions to the satisfaction of our creative freedom.
+ - No one is going to tell a movie star to smoke or not smoke because they can do whatever they want .
+ - I’ve seen Joe take on many battles, cancer being one of them, and the determination that he has, and he won’t stop, he’s not going to make one announcement and write one editorial and go away.
+ - I have only one loyalty – to my writing. I never wanted to be the head of a studio or a producer.
+ - You must show how gruesome that death is because if you don’t, then you turn into some kind of comic book and pain, then death, doesn’t have a consequence, and pain doesn’t have a consequence.
+ - I think it’s terrible to show that to kids. It’s – I think you should – if you – if you do a piece where something violent happens and someone dies or is badly injured, you must show the pain.
+ - Every time I flicked channels, there I was, talking. I was talking too much and writing too little. So Naomi and I went to Hawaii. The phone was cut off and we lost touch. This gave me the chance to have a good think about my life.
+ - What Hollywood has done through the years is glamorized it even more, made it sexy, made it sensuous, and dwelled on those pleasure aspects, completing ignoring the fact that Hollywood as an industry, was pointing the gun at young people – pointing a gun at them when they were 12 to 14 years.
+ - From a writing point of view, you now have teams of screenwriters working with a director. What’s lost in the process is the power of that one heart, brain, gut and soul that makes something an original piece of writing.
+ - I think that Hollywood is sort of guilty of having a moral blind eye on this subject. While at the same time, you know, being involved in a lot of liberal causes and being involved very militantly, Hollywood is, in fact, guilty of helping to addict people to smoke.
+ - I just wanted to make sure that what I write is what appears on screen, to not have some idiot change it on its way to the screen.
+ - I began my addiction when I was 12 years old. By the time 40, 45 years later, when it, you know, it threatened my life and maimed me in terms of my voice, I was so addicted that I was smoking four packs of cigarettes a day.
+ - Bill Klinton was the ultimate rock star as president. I don’t think as a result of his presidency we will ever have a rock star as president again. In the same way that we will never get involved in another Vietnam.
+ - I was a militant smoker, and in my case, I think I particularly used smoking because what I felt was a kind of politically correct big brother assault on smoking.
+ - I do want to make a special appeal to women movie stars to, I think, have a special responsibility these days to stop smoking, not to do it up on screen because the example that’s being set is really an awful example.
+ - I had read too many memoirs that were written after the writer or the director was past his or her prime.
+ - The-one of the odd things that’s going on with smoking these days is that in the ’90s, smoking at movies in the ’90s, there were more movies showing smoking than there were in the ’60s.
+ - I have been an accomplice to the murders of untold numbers of human beings. I am admitting this only because I have made a deal with God. Spare me, I said, and I will try to stop others from committing the same crimes I did.
+ - Sirens wailed; the revolution had come to Harrisonville. Blood was flowing on Pearl Street.
+ - I think the main issue is that a lot of the stars today are very addicted, and they simply feel more comfortable smoking as they act.
+ - There are no crowds out there demanding to see smoking scenes in movies.
+ - Joe Lieberman frightens me. Why should we, an Hollywood voter, donate money to a man who threatens our creative freedom, our freedom of expression.
+ - I was surprised by how warm the response was, even among studio heads, who said they really, we do have to do something about glamourization of smoking.
+ - I worry that we are approaching a time when that which is shocking is squeezed out by the Stalinism of political correctness.
+ - I always try to do true endings and that’s where I got into trouble always because Hollywood wants to do happy endings.
+ - Cigarettes are not a part of human behaviour, they are a habit.
+ - I have always been fascinated by the corruption of power.
+ - Before I would view Rob Reiner as this really annoying pest. Every time he’d come on TV or talking about smoking, I found my blood pressure go up. I just met-really met Rob for the first time last week and told him how much I admire him. He’s done more than anyone else in the industry.
+ - Cigarettes, cigarettes were much tougher. Booze was tough And I had a real drinking problem before as we discovered in the hospital really, but the cigarettes are much tougher and to tell you the truth.
+ - And the inner dynamics of Hollywood are like politics. Say you give a script to a group of executives – they all sit around, afraid to voice an opinion, saying nothing, waiting to know what the consensus is. Just like focus groups, opinion polls or a cabinet.
+ - Meanwhile, politics is about getting a candidate in front of the public as a star, politics as rock’n’roll, politics as a movie.
+ - Fact is we went on to do other things. But we still wanted to do our success like rock’n’roll stars.
+ - Anyone I think who – that would go through a cancer ward and would see the result of what smoking does, would never, ever think of smoking is sexy again.
+ - There’s no doubt in my mind that Bill Clinton will stop smoking cigars, will never smoke them again, as a result of what he did with that cigar.
+ - I haven’t really spoken to God since I was a boy and I’ve rediscovered god and prayer in the process and all of that has come together.
+ - If they gave a Nobel Peace Prize for work against big tobacco, not just in the industry, but also with the California tax initiative, Rob Reiner really deserves one.
+ - From what I’ve been able to determine, many of our big stars are addicted to tobacco. They want to smoke in movies for the same reason I smoked as I wrote, which is that they think their performance is going to be better.
+ - The studios have been taken over by marketing people and accountants.
+ - I was six when we came to this country. When I was 14 or so, I still had a lot of trouble with it.
+ - I started making a point earlier that women’s cancer rates are skyrocketing, and we have some women movie stars, young women movie stars, who are smoking in many of their movies.
+ - I always wanted to be a rock’n’roll star.
+ - I think to put death on screen where it isn’t that turns it into comic book time and there I think by desensitizing an audience, you really do open the possibility that someone is going to kill .
+ - There are certainly a lot of sins to be taken on. To take on smoking and movies is a weighty enough thing, I think, and it’s one I’ve experienced, and it’s what’s caused me to live in-with my voice maimed for the rest of my life.
+
+55 quotes

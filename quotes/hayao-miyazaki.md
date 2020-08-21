@@ -1,0 +1,81 @@
+ - Engineers turn dreams into reality.
+ - Reality is for people that lack imagination.
+ - You must see with eyes unclouded by hate. See the good in that which is evil, and the evil in that which is good. Pledge yourself to neither side, but vow instead to preserve the balance that exists between the two.
+ - I would like to make a film to tell children “it’s good to be alive”.
+ - Always believe in yourself. Do this and no matter where you are, you will have nothing to fear.
+ - Do everything by hand, even when using the computer.
+ - See with eyes unclouded by hate.
+ - Life is a winking light in the darkness.
+ - We each need to find our own inspiration. Sometimes it is not easy.
+ - I do believe in the power of story. I believe that stories have an important role to play in the formation of human beings, that they can stimulate, amaze and inspire their listeners.
+ - Many of my movies have strong female leads – brave, self-sufficient girls that don’t think twice about fighting for what they believe in with all their heart. They’ll need a friend, or a supporter, but never a savior. Any woman is just as capable of being a hero as any man.
+ - I believe that fantasy in the meaning of imagination is very important. We shouldn’t stick too close to everyday reality but give room to the reality of the heart, of the mind, and of the imagination.
+ - The creation of a single world comes from a huge number of fragments and chaos.
+ - I get inspiration from my everyday life.
+ - In order to grow your audience, you must betray their expectations.
+ - Animators can only draw from their own experiences of pain and shock and emotions.
+ - Modern life is so thin and shallow and fake. I look forward to when developers go bankrupt, Japan gets poorer and wild grasses take over.
+ - Airplanes are the most beautiful when they are in the air.
+ - Its not a story in which the characters grow up, but a story in which they draw on something already inside them, brought out by the particular circumstances. I want my young friends to live like that, and I think they, too, have such a wish.
+ - Children understand intuitively that the world they have been born into is not a blessed world.
+ - Whenever someone creates something with all of their heart, then that creation is given a soul.
+ - Almost all Japanese animation is produced with hardly any basis taken from observing real people, you know. It’s produced by humans who can’t stand looking at other humans. And that’s why the industry is full of otaku!
+ - Actually I think CGI has the potential to equal or even surpass what the human hand can do.
+ - We get strength and encouragement from watching children.
+ - I can’t stand modern movies. The images are too weird and eccentric for me.
+ - The concept of portraying evil and then destroying it – I know this is considered mainstream, but I think it is rotten. This idea that whenever something evil happens someone particular can be blamed and punished for it, in life and in politics is hopeless.
+ - I’m not going to make movies that tell children, “You should despair and run away”.
+ - Nobody has the right to sit in judgment and decide what’s good or bad for you.
+ - I’d like to see Manhattan underwater. I’d like to see when the human population plummets and there are no more high rises, because nobody’s buying them. I’m excited about that. Money and desire – all that is going to collapse, and wild green grasses are going to take over.
+ - Virtual reality is a denial of reality. We need to be open to the powers of imagination, which brings something useful to reality. Virtual reality can imprison people.
+ - Since I am a person who starts work without clear knowledge of a storyline, every single scene is a pivotal scene.
+ - The villains are all parts of me. For years I’ve been wondering what it would be like if all those negative elements were forced onto the main character’s side. I can understand a character with that kind of anger.
+ - I don’t like games. You’re robbing the precious time of children to be children. They need to be in touch with the real world more.
+ - Is someone different at age 18 or 60? I believe one stays the same.
+ - It would be wonderful if I could see the end of civilization during my lifetime.
+ - In our work, the question is, how much you absorb from others. So for me, creativity, is really like a relay race. As children we are handed a baton. Rather than passing it onto the next generation as is, first we need to digest it and make it our own.
+ - If you’re going to retire, retire early.
+ - There are so many ships in the animation sea that are computer driven, that I think we can have at least one that’s just a log raft that we can row by hand.
+ - The single difference between films for children and films for adults is that in films for children, there is always the option to start again, to create a new beginning. In films for adults, there are no ways to change things. What happened, happened.
+ - I make films as a business, not as a cultural endeavor.
+ - Prizes do not mean anything to me. I think it is more important to make a child aware of the existence of a weird creature like a water spider that breathes through its backside.
+ - I myself become terrified of death when I am in a negative state of mind. But the thought of death ceases to bother me once I become productive.
+ - You always have to appeal to your audience. You always have to consider how well your project will do in terms of admissions. I abandoned many stories because of that. But I don’t get too down about it. It’s something I accepted from the time I decided to work in films.
+ - When a man is shooting a handgun, it’s just like he is shooting because that’s his job, and he has no other choice. It’s no good. When a girl is shooting a handgun, it’s really something.
+ - Cut off a wolf’s head and it still has the power to bite.
+ - When I start creating a villain, I start liking the villain and so the villain is not really evil.
+ - You should despair and run away.
+ - The principle I adhere to when directing, is that I make good use of everything my staff creates. Even if they make foregrounds that don’t quite fit with my backgrounds, I never waste it and try to find the best use for it.
+ - I find it pointless sitting in my house not working, though I like to go on extended vacations from time to time.
+ - Humans have both the urge to create and destroy.
+ - I’d like more of the world go back to being wild.
+ - I create women characters by watching the female staff at my studio. Half the staff are women.
+ - Some people spend their lives interested only in themselves.
+ - Chihiro, huh? Her real name’s Chihiro? Can’t beat the power of love.
+ - Plants exist in the weather and light rays that surround them – waving in the wind, shimmering in the sunlight. I am always puzzling over how to draw such things.
+ - We depict hatred, but it is to depict that there are more important things. We depict a curse, to depict the joy of liberation.
+ - What you mean by ‘peace’ is nothing more than the endless repetition of human folly.
+ - When you watch the subtitled version you are probably missing just as many things. There is a layer and a nuance you’re not going to get. Film crosses so many borders these days. Of course it is going to be distorted.
+ - I like underwater life.
+ - I don’t intentionally make deep movies.
+ - I managed to work for more than 50 years with just paper, pencils and film. My son’s generation and the one coming up after can’t work with just paper and pencils any more. I managed to avoid using a computer. I don’t even have a cellphone. I feel lucky I managed to live like that.
+ - My process is thinking, thinking and thinking – thinking about my stories for a long time.
+ - When I say I get inspiration from my real life, I think of my real life as extending about 300 meters radius around me. So what I see in that area is what inspires me.
+ - I’ve never studied psychology.
+ - At the time, sword and sorcery stories were quite popular. There were female warriors waving swords around as well, but the genre is populated entirely with people who have absolutely no responsibility to anyone, so I knew my story would have to be completely different from any of these.
+ - I think it’s really good for a family or children to have a dog, cat, bird or whatever to grow up with.
+ - All my films are all my children.
+ - Rather than making that a good project, I like to make the kinds of films that children can understand in five minutes what the film is about.
+ - Any woman is just as capable of being a hero as any man.
+ - I wish I was better at art. I love some of the great artists of the 19th century and, compared to them, I just feel I lack this technique that they had. They have so much skill.
+ - Maybe that’s what these films are doing. They are my way of blessing the child.
+ - I am an animator. I feel like I’m the manager of a animation cinema factory. I am not an executive. I’m rather like a foreman, like the boss of a team of craftsmen. That is the spirit of how I work.
+ - Those are shrines. Some people believe spirits live in them.
+ - The love of weaponry is often a manifestation of infantile traits in an adult.
+ - We live in an age when it is cheaper to buy the rights to movies than to make them.
+ - People in Japan have experienced many tsunamis and various earthquakes throughout the ages.
+ - Currently computer graphics are used a great deal, but it can be excessive.
+ - I think we should stop using nuclear power plants because it’s an old system that we can’t control.
+ - I think 2-D animation disappeared from Disney because they made so many uninteresting films. They became very conservative in the way they created them. It’s too bad. I thought 2-D and 3-D could coexist happily.
+
+79 quotes

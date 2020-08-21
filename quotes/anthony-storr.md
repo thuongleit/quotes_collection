@@ -1,0 +1,28 @@
+ - It’s not psychopathology that counts. It’s what you do with it.
+ - Originality implies being bold enough to go beyond accepted norms.
+ - I want to show that the dividing lines between sanity and mental illness have been drawn in the wrong place.
+ - Whether a belief is considered to be a delusion or not depends partly upon the intensity with which it is defended, and partly upon the numbers of people subscribing to it.
+ - The creative person is constantly seeking to discover himself, to remodel his own identity, and to find meaning in what he creates.
+ - One man’s faith is another man’s delusion.
+ - In a culture in which interpersonal relationships are generally considered to provide the answer to every form of distress, it is sometimes difficult to persuade well-meaning helpers that solitude can be as therapeutic as emotional support.
+ - All the world loves a lover, and a lover loves all the world.
+ - With the exception of certain rodents, no other vertebrate except Homo sapiens habitually destroys members of his own species.
+ - The professional must learn to be moved and touched emotionally, yet at the same time stand back objectively: I’ve seen a lot of damage done by tea and sympathy.
+ - Imagination flourishes best in solitude.
+ - It is widely believed that interpersonal relationships of an intimate kind are the chief, if not the only, source of human happiness, yet the lives of creative individuals often seem to run counter to this assumption.
+ - If we did not look to marriage as the principal source of happiness, fewer marriages would end in tears.
+ - It is only when we no longer compulsively need someone that we can have a real relationship with them.
+ - When a man suffers from delusions he is described as mad but when a million do so they belong to a world religion.
+ - So-called “inspiration” is no more than an extreme example of a process which constantly goes on in the minds of all of us.
+ - Idiosyncratic belief systems which are shared by only a few adherents are likely to be regarded as delusional. Belief systems which may be just as irrational but which are shared by millions are called world religions.
+ - Part of what we admire about a painting or a piece of music is the order which the artist has imposed upon what would otherwise have appeared disconnected or chaotic.
+ - Some split between the inner world and outer world is common to all behaviour, and the need to bridge the gap is the source of creative behaviour.
+ - Since I was not able wholly to subscribe to any one set of beliefs advanced by any ‘guru’ I had to fall back on my own, however derivative.
+ - I get intrigued by a puzzle, and writing a book is the best way to solve it.
+ - The sane are madder than we think, the mad saner.
+ - It is a tragic paradox that the very qualities that have led to man’s extraordinary capacity for success are also those most likely to destroy him.
+ - The creative consequences of man’s imaginative strivings may never make him whole; but they constitute his deepest consolations and his greatest glories.
+ - Inspiration cannot be willed, though it can be wooed.
+ - The human spirit is not indestructible; but a courageous few discover that, when in hell, they are granted a glimpse of heaven.
+
+26 quotes

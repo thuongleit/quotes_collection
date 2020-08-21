@@ -1,0 +1,218 @@
+ - In order to succeed, your desire for success should be greater than your fear of failure. 
+ - I don’t know the key to success, but the key to failure is trying to please everyone.
+ - Decide that you want it more than you are afraid of it.
+ - If you want to be seen, stand up. If you want to be heard, speak up. If you want to be appreciated, shut up.
+ - The past is a ghost, the future a dream and all we ever have is now.
+ - People can be more forgiving than you can imagine. But you have to forgive yourself. Let go of what's bitter and move on.
+ - Is the glass half full, or half empty? It depends on whether you're pouring, or drinking.
+ - Man cannot live by bread alone; he must have peanut butter.
+ - You can turn painful situations around through laughter. If you can find humor in anything, even poverty, you can survive it.
+ - Don’t let your victories go to your head, or your failures go to your heart.
+ - Let us now set forth one of the fundamental truths about marriage: the wife is in charge.
+ - Betrayal, abandonment, deceit and manipulation.
+ - The secret of success is to be like a duck, Smooth and unruffled on top, But paddling furiously underneath.
+ - Parents are not interested in justice, they're interested in peace and quiet.
+ - Women don't want to hear what you think. Women want to hear what they think - in a deeper voice.
+ - Through humor, you can soften some of the worst blows that life delivers. And once you find laughter, no matter how painful your situation might be, you can survive it.
+ - The main goal of the future is to stop violence. The world is addicted to it.
+ - Your parents put a curse on you – Someday your kids are going to act just like you.
+ - Those who criticize our generation forget who raised it.
+ - A grandchild is God's reward for raising a child.
+ - You can’t be everything to everyone.
+ - Every closed eye is not sleeping, and every open eye is not seeing.
+ - No matter how calmly you try to referee, parenting will eventually produce bizarre behavior, and I'm not talking about the kids. Their behavior is always normal.
+ - Civilization had too many rules for me, so I did my best to rewrite them.
+ - A word to the wise ain’t necessary – it’s the stupid ones that need the advice.
+ - When you graduate from college, they tell you to follow your dreams. Does anyone say you have to wake up first?
+ - I can’t even talk the way these people talk. ‘Why you ain’t?’ ‘Where you is?’ Everybody knows it’s important to speak English except these knuckleheads. You can’t be a doctor with that kind of crap coming out of your mouth.
+ - If you can find humour in anything, you can survive it.
+ - Human beings are the only creatures that allow their children to come back home.
+ - Old is always fifteen years from now.
+ - Sometimes you try to help people, and it backfires on you, and then they try to take advantage of you.
+ - How long can you tread water?
+ - People say “God will find a way.” God can’t find a way if you’re in the way.
+ - A child who is disciplined will be more obedient and also more organized as a student.
+ - Every success story has a parent who says, ‘over my dead body.’ Every success story has an old person who walks up to you and says, when you’re acting the fool, ‘you know I worry about you sometimes.’
+ - I have to follow my thoughts and mine for the gold. I have to dig it out.
+ - Grandparents are God’s gifts to children.
+ - If you took your child to the dentist and check for cavities, the child likely won’t get them. If you take them just for emergency, that’s all they’re gonna get.
+ - Anyone can dabble, but once you’ve made that commitment, your blood has that particular thing in it, and it’s very hard for people to stop you.
+ - Fatherhood is pretending the present you love most is soap-on-a-rope.
+ - A pelican that is wet walks with a gated limp, but a dry fish swims alone.
+ - Take your bottom lip and pull it over your head.
+ - A sail boat that sails backwards can never see the sun rise.
+ - Now, this is the fun part about getting stoned. They get stoned, then they become paranoid. Now, when they started out, they said, “Let’s get high and have fun.” So they’re high; now they’re paranoid. “Am I falling out of this chair?”
+ - The first-born in every family is always dreaming for an imaginary older brother or sister who will look out for them.
+ - Immortality is a long shot, I admit. But somebody has to be first.
+ - In your 50s, time becomes precious and must not be wasted. Every minute is an excellent opportunity for a good nap. Happy 50th birthday!
+ - Why do kids always say peace out, I though peace was in.
+ - Fatherhood is helping your children learn English as a foreign language.
+ - You know the only people who are always sure about the proper way to raise children? Those who’ve never had any.
+ - I was a physical education major with a child psychology minor at Temple, which means if you ask me a question about a child’s behavior, I will advise you to tell the child to take a lap.
+ - Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.
+ - All parents experience the same problems.
+ - The essence of childhood, of course, is play, which my friends and I did endlessly on streets that we reluctantly shared with traffic.
+ - Mediocre people are the most dangerous people in the world.
+ - Fatherhood is asking your son to make up a name rather than tell anybody who he is.
+ - Any husband who says, “My wife and I are completely equal partners,” is talking about either a law firm or a hand of bridge.
+ - The weatherman is always right. It’s just his timing that’s off.
+ - There is no labor a person does that is undignified; if they do it right.
+ - You also notice that the right side of your face feels like it’s sliding off of your skull. And your bottom lip is in your lap!
+ - Always end the name of your child with a vowel, so that when you yell the name will carry.
+ - Nothing I’ve ever done has given me more joys and rewards than being a father to my children.
+ - My father walked to school 4 o’clock every morning with no shoes on, uphill, both ways, in 5 feet of snow and he was thankful.
+ - If I use the word romance, whether it’s my wife or not, it does not mean sex. We can use the word sex when sex is there.
+ - After creating the heaven, the earth, the ocean, and the entire animal kingdom, God created Adam and Eve. And the first thing He said to them was “Don’t.”
+ - Zip zop wop boopity bop.
+ - Sex education may be a good idea in the schools, but I don’t believe the kids should be given homework.
+ - I often try to tell kids to think about all the people who love you, don’t cry over the one person who doesn’t.
+ - I once asked my father for a dollar for the school picnic. He told me how he once killed a grizzly bear with his loose-leaf notebook.
+ - It is a warning, Godspeed. It means you are no longer welcome here at these prices.
+ - The heart of marriage is memories; and if the two of you happen to have the same ones and can savor your reruns, then your marriage is a gift from the gods.
+ - It isn’t a matter of black is beautiful as much as it is white is not all that’s beautiful.
+ - Gray hair is God’s graffiti.
+ - I don’t have a clue about the way to achievement, however the way to disappointment is attempting to please everyone.
+ - Calculus is one course you can come with to your parents and say, I am dropping it. And they’ll understand.
+ - Fatherhood is telling your daughter that Michael Jackson loves all his fans, but has special feelings for the ones who eat broccoli.
+ - The serve was invented so that the net could play.
+ - I brought you in this world, and I can take you out!
+ - My eleven year old daughter mopes around the house all day waiting for her breasts to grow.
+ - Did you ever see the customers in health – food stores? They are pale, skinny people who look half – dead. In a steak house, you see robust, ruddy people. They’re dying, of course, but they look terrific.
+ - If the new American father feels bewildered and even defeated, let him take comfort from the fact that whatever he does in any fathering situation has a fifty percent chance of being right.
+ - As a comedian, I can walk out in front of 5000 people and not worry about a thing. Not a thing, believe me. But to stand up a face a camera and crew of maybe 15 guys and get up tight about it – to me that’s weird.
+ - Give me 200 active 2-year-olds and I could conquer the world.
+ - All Children Have Brain Damage!
+ - Family is conflict and it’s something that we all relate to.
+ - I don’t think you can bring the races together by joking about the differences between them. I’d rather talk about the similarities, about what’s universal in their experiences.
+ - In my old neighborhood, a boy stopped playing when he began to lose his pulse. And then he became the referee.
+ - Don’t talk yourself into not being you.
+ - I’m not sure if my parents had me because they loved me, or because they wanted someone to watch their other children.
+ - Why do I have to feed the kids? They just ate twelve hours ago!
+ - All around the United States of America – in the cities and the counties – our public education is suffering and has been suffering. Cuts, cuts, cuts.
+ - Brown versus the Board of Education is no longer the white person’s problem.
+ - Kids need to remember that when you put something on Twitter, it’s not like whispering to your friend, you’ve put it on a billboard that the whole world, including your own kids someday, can see.
+ - The summit, which is set up to educate people about managing their money and protecting their income, leads to empowerment of self, for which this summit needs to be applauded.
+ - If you have no faith, you’ve lost your battle.
+ - Men and women belong to different species and communications between them is still in its infancy.
+ - If you know what you want, you will recognize it when you see it.
+ - Social networking helps reach people easier and quicker.
+ - Intellectuals are people who go to study things other people do naturally.
+ - I’ve got a Ferrari. VROOM! I do 104 from the garage to the front door.
+ - The heart of marriage is memories.
+ - I guess the real reason that my wife and I had children is the same reason that Napoleon had for invading Russia: it seemed like a good idea at the time.
+ - Whenever your kids are out of control, you can take comfort from the thought that even God’s omnipotence did not extend to His kids.
+ - It’s more blessed to give than to receive – especially kittens.
+ - Our children are angry. The profanity is out in the street. It’s on the buses and in the subway. Our children are trying to tell us something, and we are not listening.
+ - Every romance does not lead to sex.
+ - Dentists tell you not to pick your teeth with any sharp metal object. Then you sit in their chair and the first thing they grab is an iron hook.
+ - There are no absolutes in raising children. In any stressful situation, fathering is always a roll of the dice. The game may be messy, but I have never found one with more joys and rewards.
+ - Romance is a different word than sexual contact.
+ - There are certain times of the day when you need a balance – that is, your protein and your carbs. I’m a Barry Sears man. I believe that anything green is a carb, and I need 2:1. Two of the carbs to one of the protein.
+ - You can teach an old dog new tricks. You just don’t want to see the dog doing them.
+ - My wife was a beautiful woman before we had children.
+ - There should be marches in every neighborhood every day telling the people about the negativity of drugs and how the drugs help us to behave negatively.
+ - That’s why ears have cartilage, to keep them from flapping.
+ - We’re not raising children with the love that we need to.
+ - I’m not the healthiest, but I am healthy. I’m healthy to the point where there are things that I have to eat that I don’t want to eat, but I eat it because I’m enjoying staying alive.
+ - A father has to do everything in his power to keep a tight ship, even though he knows the crew would like to send him away in a dinghy.
+ - It’s painful, but we can’t heal ourselves unless we cleanse the wounds.
+ - Anyone who has brought up children knows that consistency has absolutely nothing to do with discipline.
+ - I didn’t know how serious it is to a female that you lift the lid.
+ - You can never give complete authority and overall power to anyone until trust can be proven.
+ - Education happens to be something that all people, all cultures, need to embrace. Math, science, the words of the world. To be able to speak and be able to have clarity and to be able to think. Those are the greatest of gifts.
+ - The dentist drills some more and you hear him make a mistake. And to cover it up, they all say the same thing: “Okay, rinse.”
+ - There is hope for the future because God has a sense of humor and we are funny to God.
+ - That married couples can live together day after day is a miracle that the Vatican has overlooked.
+ - A Hoyo de Monterrey double corona is my favourite Cuban since Desi Arnaz.
+ - Fathers are the geniuses of the house because only a person as intelligent as we could fake such stupidity.
+ - The very first law in advertising is to avoid the concrete promise and cultivate the delightfully vague.
+ - You go and you buy a lottery ticket. You’ve got just as much chance of getting struck by lightning as you do of winning the lottery.
+ - Laughter brings out the child in all of us.
+ - Having a child is surely the most beautifully irrational act that two people in love can commit.
+ - I don’t wear no condom and I don’t plan for no kids.
+ - For college seniors there should be a week of being allowed to cry. Just break down and cry because you are scared and don’t know what’s next.
+ - Even though your kids will consistently do the exact opposite of what you’re telling them to do, you have to keep loving them just as much.
+ - The only thing that you can get into without a lot of trouble is a lot of trouble.
+ - Because for me it is almost analgesic to talk about what the white man is doing against us. And it keeps a person frozen in their seat, it keeps you frozen in your hole you’re sitting in.
+ - What’s your name again? That’s right. I’m so glad you know your name.
+ - I did not want to turn to playing golf because golf is about as much exercise as shuffling cards.
+ - Beware of people who fall at your feet. They may be reaching for the corner of the rug.
+ - My father would pass gas and then blame it on imaginary animals.
+ - Any man today who returns from work, sinks into a chair, and calls for his pipe is a man with an appetite for danger.
+ - When I was a child, I was living in the housing projects of Philadelphia. I didn’t even have a Christmas tree.
+ - The first time I came across the birds and the bees in actual flight, I couldn’t identify the formation.
+ - Like everyone else who makes the mistake of getting older, I begin each day with coffee and obituaries.
+ - I think you need to make responsibility something that’s not just a word.
+ - I use the exercise room early, because I don’t want to get on the treadmill and everyone’s going ‘Oh, Bill Cosby,’ and then they come around to see how fast I’m walking, and it becomes very competitive.
+ - One of the great mistakes that can be made by a man of my age is to get involved in athletic competition with children-unless, of course, they are under six. And even then, stay away from hide-and-seek.
+ - Repeat after me. I promise not to run outside of the house. I promise not to run inside of the house. I promise not to touch, pick up, step on, anything that looks interesting.
+ - The worst thing to do is to die while reading LIFE magazine.
+ - What is it about grandparents that is so lovely? I’d like to say that grandparents are God’s gifts to children.
+ - Criticizing is easy, art is difficult.
+ - The most important educational vehicle in all life is a parent figure.
+ - Now, Richard Pryor was unique. Many misunderstood his humor. He lit up the hallway, but they didn’t understand his use of profanity. He didn’t use it just to be using it; he used it in the context of his satire.
+ - When you become senile, you won’t know it.
+ - In spite of what Thomas Jefferson wrote, all men may be created equal, but not to all women.
+ - You can not make everybody happy...
+ - My mother comes in my room and says, “Just look at this mess! This is a pig sty!” Now, I’ve already been in the room five hours, and she wants me to LOOK at it.
+ - You are more important to yourself than you think you are.
+ - My childhood should have taught me lessons for my own fatherhood, but it didn’t because parenting can only be learned by people who have no children.
+ - Let me say this: I only expect the black media to uphold the standards of excellence in journalism and when you do that, you have to go in with a neutral mind.
+ - You’ll have many, many friends, but if your relationship with your mate is one hundred per cent of your heart, you’ll never need a friend.
+ - I am proud to be an American. Because an American can eat anything on the face of this earth as long as he has two pieces of bread.
+ - When I was a boy if a girl got pregnant the shame was placed on her and the boy could get away.
+ - The wisest married men give in early. They get in touch with the wife side of themselves, and that’s when they stop arguing.
+ - Our children are trying to tell us something, and we are not listening.
+ - Poets have said that the reason to have children is to give yourself immortality. Immortality? Now that I have five children, my only hope is that they are all out of the house before I die.
+ - It is not a matter of who is rejecting me, as much as it is somebody may get it, and I am going to keep plowing through it because in this world of education, there is a harvest.
+ - And to those people with no children but who think they’d like to have them some day to fulfill their lives. Remember: With fulfillment comes responsibility.
+ - I cannot understand how the education of this United States of America has been fooled time and time again. Either make it separate but equal or integrate, therefore it will be equal. And it has been separate and unequal.
+ - The essence of childhood, of course, is play.
+ - You people are not prepared. You are well educated and you look cute, but that’s not going to cut it.
+ - George Carlin is brilliant with words, and Johnny Winters is very creative. It’s taking something common and drawing out the humor, being clever with words.
+ - When I say, I don’t care what white people think, I mean that.
+ - I want all this loud profanity in the street stopped. I want people to think about choices.
+ - Ours is a youth culture, and like a golf tournament, we honor only low scores.
+ - My mother was an authority on pig sties. This is the worst looking pigsty I have ever seen in my life, and I want it cleaned up right now.
+ - With my wife Camille’s help, I took to social networking. I’m working with the computers.
+ - Every father says the same thing: “Where’s your mother?”
+ - Have you ever had a cookie? Then you won’t get any here either.
+ - If you speak your mind and if it is true what you’re saying, then I think the integrity of what you’re saying carries through.
+ - A new father quickly learns that his child invariably comes to the bathroom at precisely the times when he’s in there, as if he needed company. The only way for this father to be certain of bathroom privacy is to shave at the gas station.
+ - But if that’s what you want to be, that’s what you will be – as long as you study.
+ - Parenting needs to come to the forefront.
+ - If you have a question about anything, the answer can be found in a book somewhere in the library.
+ - When you introduce competition into the public school system, most studies show that schools start to do better when they are competing for students.
+ - The problem is that your daughter has given her heart to a 15-year-old boy, and a 15-year-old boy does not yet qualify as a human being.
+ - Today’s parents grew up with the silly notion that music was meant to be heard.
+ - We’ve got to get the gun out of the hands of people who are supposed to be on neighborhood watch.
+ - You are not going to ‘go forth.’ You are going to take that damn hat off and you’re going to get a job.
+ - When you carry a gun, you mean to harm somebody, kill somebody.
+ - College was a wonderful time – except, of course, when it was trying to teach you things.
+ - All men should freely use those seven words which have the power to make any marriage run smoothly: You know dear, you may be right.
+ - What best defines a child is the total inability to receive information from anything not plugged in.
+ - It is a point of pride for the American male to keep the same size jockey shorts for his entire life.
+ - There are some people who have trouble recognizing a mess.
+ - People should fact check. People shouldn’t have to go through that and shouldn’t answer to innuendos.
+ - I am certainly not an authority on love because there are no authorities on love, just those who’ve had luck with it and those who haven’t.
+ - If you listen carefully to what a child is saying to you, you’ll see that he has a point to make. So I listen. And I answer them just as seriously as possible. And if I don’t know the answer, I’ll tell them I don’t know.
+ - Meadowlark and I share a common vision of bringing joy and laughter to others.
+ - The measure ov overexposure is not how many times people see you on TV or in the bookstores. It’s whether you can maintain the quality of your entertainment. If you can, people will always be glad to see you.
+ - If the audience knows you can be funny when you want to be, they will be willing to wait for that payoff.
+ - I wanted to give the house back to the parents.
+ - My wife and I have five children. And the reason why we have five children is because we do notwantsix.
+ - These people marched and were hit in the face with rocks to get an education and now we’ve got these knuckleheads walking around.
+ - You can’t compete with Walmart. But you can have smaller businesses that are successful.
+ - In spite of the six thousand manuals on child raising in the bookstores, child raising is still a dark continent and no one really knows anything. You just need a lot of love and luck – and, of course, courage.
+ - A word to the wise ain’t...
+ - We parents ask dumb questions, therefore we get dumb answers.
+ - Violence won’t solve a thing. It makes it more challenging to solve, though.
+ - I’m a Christian. But Muslims are misunderstood. Intentionally misunderstood. We should all be more like them.
+ - A baseball manager has learned a lot about his job from having played the game, but a parent has not learned a thing from having once been a child.
+ - Children today know more about sex than I or my father did.
+ - I recently turned fifty, which is young for a tree, mid-life for an elephant, and ancient for a quarter-miler, whose son now says, “Dad, I just can’t run the quarter with you anymore, unless I bring something to read.”
+ - Nothing separates the generations more than music. By the time a child is eight or nine, he has developed a passion for his own music that is even stronger than his passions for procrastination and weird clothes.
+ - You know my father’s favorite game? Come here and pull my finger.
+ - When a person has a gun, sometimes their mind clicks that this thing will win arguments and straighten people out.
+
+216 quotes

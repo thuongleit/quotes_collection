@@ -1,0 +1,101 @@
+ - I was born for a storm and a calm does not suit me.
+ - After eight years as President I have only two regrets: that I have not shot Henry Clay or hanged John C. Calhoun.
+ - When you get in debt you become a slave.
+ - Heaven will be no heaven to me if I do not meet my wife there.
+ - You are a den of vipers. I intend to rout you out and by the Eternal God I will rout you out. If the people only understood the rank injustice of our money and banking system, there would be a revolution before morning.
+ - John Calhoun, if you secede from my nation I will secede your head from the rest of your body.
+ - You must pay the price if you wish to secure the blessings.
+ - There is no pleasure in having nothing to do; the fun is having lots to do and not doing it.
+ - Give me a thousand Tennesseans, and I’ll whip any other thousand men on the globe!
+ - When the time for action arrives, stop thinking and go in.
+ - I do not forget that I am a mechanic. I am proud to own it. Neither do I forget that the apostle Paul was a tentmaker; Socrates was a sculptor; and Archimedes was a mechanic.
+ - But you must remember, my fellow-citizens, that eternal vigilance by the people is the price of liberty, and that you must pay the price if you wish to secure the blessing.
+ - There are only two things I can’t give up; one is coffee and the other is tobacco.
+ - I weep for the liberty of my country when I see at this early day of its successful experiment that corruption has been imputed to many members of the House of Representatives, and the rights of the people have been bartered for promises of office.
+ - There are no necessary evils in government. Its evils exist only in its abuses. If it would confine itself to equal protection, and, as Heaven does its rains, shower its favors alike on the high and the low, the rich and the poor, it would be an unqualified blessing.
+ - You are a den of vipers and thieves. I intend to rout you out, and by the eternal God, I will rout you out.
+ - I have never in my life seen a Kentuckian who didn’t have a gun, a pack of cards, and a jug of whiskey.
+ - Live within your means, never be in debt, and by husbanding your money you can always lay it out well.
+ - The brave man, inattentive to his duty, is worth little more to his country than the coward who deserts her in the hour of danger.
+ - The great can protect themselves, but the poor and humble require the arm and shield of the law.
+ - There are no necessary evils in government. Its evils exist only in its abuses.
+ - All the rights secured to the citizens under the Constitution are worth nothing, and a mere bubble, except guaranteed to them by an independent and virtuous Judiciary.
+ - Internal improvement and the diffusion of knowledge, so far as they can be promoted by the constitutional acts of the Federal Government, are of high importance.
+ - No free government can stand without virtue in the people, and a lofty spirit of partiotism.
+ - Disunion by force is treason.
+ - The Constitution and the laws are supreme and the Union indissoluble.
+ - Perpetuity is stamped upon the Constitution by the blood of our fathers.
+ - The Supreme Court has made its decision, now let them enforce it.
+ - Peace, above all things, is to be desired, but blood must sometimes be spilled to obtain it on equable and lasting terms.
+ - Every good citizen makes his country’s honor his own, and cherishes it not only as precious but as sacred. He is willing to risk his life in its defense and its conscious that he gains protection while he gives it.
+ - What good man would prefer a country covered with forests and ranged by a few thousand savages to our extensive Republic, studded with cities, towns, and prosperous farms, embellished with all the improvements which art can devise or industry execute.
+ - War is a blessing compared with national degradation.
+ - Americans are not a perfect people, but we are called to a perfect mission.
+ - Elevate those guns a little lower.
+ - You are uneasy; you never sailed with me before, I see.
+ - Equality of talents, of education, or of wealth can not be produced by human institutions.
+ - It will be my sincere and constant desire to observe toward the Indian tribes within our limits a just and liberal policy, and to give that humane and considerate attention to their rights and their wants which is consistent with the habits of our Government and the feelings of our people.
+ - I am one of those who do not believe that a national debt is a national blessing, but rather a curse to a republic; inasmuch as it is calculated to raise around the administration a moneyed aristocracy dangerous to the liberties of the country.
+ - I hope and trust to meet you in Heaven, both white and black-both white and black.
+ - Temporize not! It is always injurious.
+ - The hydra of corruption is only scotched, not dead. An investigation kills and it and its supporters dead. Let this be had.
+ - We must regain Texas, peaceably if we can, forcibly if we must.
+ - I have always been afraid of banks.
+ - Do they think that I am such a damned fool as to think myself fit for President of the United States? No, sir; I know what I am fit for. I can command a body of men in a rough way, but I am not fit to be President.
+ - In a country where offices are created solely for the benefit of the people no one man has any more intrinsic right to official station than another.
+ - I am a Senator against my wishes and feelings, which I regret more than any other of my life.
+ - When death comes, he respects neither age nor merit. He sweeps from the earthly existence the sick and the strong, the rich and the poor, and should teach us to live to be prepared for death.
+ - Although I could lament in the language and feelings of David for Absalom, I am constrained to say, peace to his manes. Let us weep for the living, and not for the dead.
+ - I say to you never involve yourself in debt, and become no man’s surety.
+ - Freemasonry is an institution calculated to benefit mankind.
+ - This spirit of mob-law is becoming as great an evil as a servile war.
+ - Democracy shows not only its power in reforming governments, but in regenerating a race of men and this is the greatest blessing of free governments.
+ - Were all the worshippers of the gold calf to memorialize me and request a restoration of the deposits I would cut my right hand from my body before I would do such an act. The gold calf may be worshipped by others but as for myself I serve the Lord.
+ - There are, perhaps, few men who can for any length of time enjoy office and power without being more or less under the influence of feelings unfavorable to the faithful discharge of their political duties.
+ - Thomas Paine needs no monument made with hands; he has erected a monument in the hearts of all lovers of liberty.
+ - Too much praise cannot be bestowed on those who managed my artillery.
+ - We are beginning a new era in our government. I cannot too strongly urge the necessity of a rigid economy and an inflexible determination not to enlarge the income beyond the real necessities of the government.
+ - The authority of the Supreme Court must not be permitted to control the Congress or the Executive when acting in their legislative capacities, but to have only such influence as the force of their reasoning may deserve.
+ - The President is the direct representative of the American people and is elected by the people and responsible to them.
+ - I feel in the depths of my soul that it is the highest, most sacred, and most irreversible part of my obligation to preserve the union of these states, although it may cost me my life.
+ - I carried $5000 when I went to Washington. I returned with barely $90 in our pockets.
+ - I not only rejoice, but congratulate my beloved country Texas is reannexed, and the safety, prosperity, and the greatest interest of the whole Union is secured by this great and important national act.
+ - The murderer only takes the life of the parent and leaves his character as a goodly heritage to his children, whilst the slanderer takes away his goodly reputation and leaves him a living monument to his children’s disgrace.
+ - I am now eased in my finances and replenished in my wardrobe.
+ - I am fearful that the paper system will ruin the state. Its demoralizing effects are already seen and spoken of everywhere. I therefore protest against receiving any of that trash.
+ - I cannot consent that my mortal body shall be laid in a repository prepared for an Emperor or a King my republican feelings and principles forbid it the simplicity of our system of government forbids it.
+ - The safety of the republic being the supreme law, and Texas having offered us the key to the safety of our country from all foreign intrigues and diplomacy, I say accept the key and bolt the door at once.
+ - In England the judges should have independence to protect the people against the crown. Here the judges should not be independent of the people, but be appointed for not more than seven years. The people would always re-elect the good judges.
+ - Desperate courage makes One a majority.
+ - The people are the government, administering it by their agents; they are the government, the sovereign power.
+ - There goes a man made by the Lord Almighty and not by his tailor.
+ - It was settled by the Constitution, the laws, and the whole practice of the government that the entire executive power is vested in the President of the United States.
+ - To the victors belong the spoils.
+ - If a warden sees cigarette litter being thrown from a car, they will take the number and trace the owner to send them a fine.
+ - There is nothing that I shudder at more than the idea of a separation of the Union. Should such an event ever happen, which I fervently pray God to avert, from that date I view our liberty gone.
+ - Men do not get up and do mischief, without there is someone in the head of it.
+ - Freemasonry is a moral order, instituted by virtuous men, with the praiseworthy design of recalling to our remembrance the most sublime truths, in the midst of the most innocent and social pleasures, founded on liberality, brotherly love and charity.
+ - The individual who refuses to defend his rights when called by his government deserves to be a slave, and must be punished as an enemy of his country and a friend to her foe.
+ - Their object is disunion.
+ - Toward the aborigines of the country no one can indulge a more friendly feeling than myself, or would go further in attempting to reclaim them from their wandering habits and make them a happy, prosperous people.
+ - Freemasonry is an establishment founded on the benevolent intention of extending and conferring mutual happiness upon the best and truest principles of moral life and social virtue.
+ - My political enemies I can freely forgive; but as for who abused me when I was serving my country in the field, and those who attacked me for serving my country – Doctor, that is a different case.
+ - If congress has the right under the Constitution to issue paper money, it was given them to use themselves, not to be delegated to individuals or corporations.
+ - I would sincerely regret, and which never shall happen whilst I am in office, a military guard around the President.
+ - In a free government the demand for moral qualities should be made superior to that of talents.
+ - I find virtue to be found amongst the farmers of the country alone, not about courts, where courtiers dwell.
+ - The great constitutional corrective in the hands of the people against usurpation of power, or corruption by their agents is the right of suffrage; and this when used with calmness and deliberation will prove strong enough.
+ - Money is power, and in that government which pays all the public officers of the states will all political power be substantially concentrated.
+ - Corporations have neither bodies to kick, nor souls to damn.
+ - To extraordinary powers of labor, both mental and physical, he unites that tact and judgement which are requisite to the successful direction of such an office as that of Chief Magistrate of a free people.
+ - From his proceedings in Congress, he appears demented, and his actings and doings inspire my pity more than anger.
+ - The duty of government is to leave commerce to its own capital and credit as well as all other branches of business, protecting all in their legal pursuits, granting exclusive privileges to none.
+ - This season has been full of rewards. The dinners and banquets just keep on coming. It’s great. We want to carry it on as long as we can.
+ - If in madness of delusion, anyone shall lift his parricidal hand against this blessed union, the arms of thousands will be raised to save it, and the curse of millions will fall upon the head which may have plotted its destruction.
+ - I do not promise to believe tomorrow exactly what I believe today, and I do not believe today exactly what I believed yesterday. I expect to make, as I have made, some honest progress within every succeeding twenty-four hours.
+ - It is to be regretted that the rich and powerful too often bend the acts of government to their own selfish purposes.
+ - Oh, do not cry – be good children and we will all meet in heaven.
+ - Mere precedent is a dangerous source of authority.
+ - As long as our government is administered for the good of the people, and is regulated by their will; as long as it secures to us the rights of person and property, liberty of conscience, and of the press, it will be worth defending.
+
+99 quotes

@@ -1,0 +1,37 @@
+ - Risk is the price you pay for opportunity.
+ - Life isn’t fair, but you can be.
+ - I live a pretty simple life.
+ - Few of us are as good as we think we are; none of us are as good as we can be.
+ - On a day when you’re not feeling so good, you put on a happy face, it’s infectious – these things sound kind of corny and stupid, but this is our life.
+ - Unless you treat failure as part of the journey, you’re never going to get anywhere.
+ - We judge ourselves by our good intentions, but we’re judged by our last word.
+ - You know I grew up watching the TV series The Rifleman.
+ - Popularity is the pocket change of history. The true measure is courage. There will never be another Charlton Heston.
+ - The two things that will defeat a lot of young actors are fear of failure and lack of preparation. With acting, I didn’t have a problem with either one – but somehow I didn’t equate either one of them to the academic world.
+ - Shooting clay targets is a very cleansing experience. It’s very relaxing. It takes a lot of concentration. It’s also very social, since you’re usually shooting with friends. You can talk and forget about almost anything else that’s on your mind.
+ - There was a time I could have been mistaken for Burt Reynolds. I had a moustache and so did he. But he was the number one star in the world, so there wasn’t really much confusion.
+ - My mustache gets so many questions he has his own agen now.
+ - I praise CBS for taking a risk, which is always the price you pay for opportunity. This is not standard movie of the week storytelling. I think movies of the week have fallen into a niche and that isn’t my niche.
+ - At my age, turning gray is kind of a blessing, where it softens all of the other horrible things it does to you, but it is what it is.
+ - I’ve learned by hanging out in Hollywood, where I disagree politically with most people, that most people’s hearts are in the right place, and the only thing we have to argue about is the way to solve the problems.
+ - I’ve never reacted well to other people telling me what to do.
+ - But, you know there’s a lot of westerns – not that they were bad – it’s just that they can be remade because they’re great stories that aren’t indelible in an audience’s mind when it comes to both the cast and the story.
+ - It’s not that conservatives don’t care. We do. We just have different answers than liberals do. It’s a difference of the mind, not of the heart.
+ - Stand up and pledge with me: A government of the United States is not on the auction block. And America is not for sale!
+ - People tracking your life and photographing you anywhere you go, that can make you crazy.
+ - I haven’t gotten fired from many jobs, but you finish a job and nine times out of ten you’re just unemployed and you don’t know where the next one is. And that does get old. It’s stressful.
+ - I guess after Dances With Wolves they probably tried some derivative westerns, and if they didn’t work, they said the western is dead and moved on to something else.
+ - Television’s grown up a lot. It’s a little more adult, which I think is a good thing. It allows actors to tell more complex stories. I’m happy to see where it ends up.
+ - Hopefully you marry someone who you not only love, but who you like as well.
+ - The Westerns I like aren’t really comedies. I’m drawn to the scope of them and the land as a central character.
+ - Which to this day is a source of enormous guilt, because I left with three classes to go in the business school to sign a contract with 20th Century Fox.
+ - I think television has always been one to replicate when something’s successful.
+ - And besides, because of all she has accomplished, Barbara Jordan has always been a hero of mine.
+ - I realized I really liked the screen. I knew it was a challenge, but I wasn’t afraid of risk.
+ - All I see is people out there who are hungry for more.
+ - It is scary for an actor when you get hired as a lead. No matter what the plot is, it is your job to do something interesting enough to make them want to get inside the lead character’s head.
+ - I had a strong, really good upbringing, not puritanical.
+ - You don’t do characters that are the same as you, otherwise why bother to act?
+ - I feel the other element of a western is the land, which is very important in this movie. I mean the land is another character in the piece, actually.
+
+35 quotes

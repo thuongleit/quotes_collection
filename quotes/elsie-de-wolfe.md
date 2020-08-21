@@ -1,0 +1,32 @@
+ - I am going to make everything around me beautiful – that will be my life.
+ - Be pretty if you can, be witty if you must, but be gracious if it kills you.
+ - Simplicity, suitability and proportion.
+ - You will soon find that your joy in your home is growing, and that you have a source of happiness within yourself that you had not suspected.
+ - We cannot do better than to accept the standards of other times, and to adapt them to our uses.
+ - The cardinal virtue of all beauty is restraint.
+ - What is the goal? A house that is like the life that goes with it, a house that gives us beauty as we understand it- and beauty of a nobler kind that we may grow to understand.
+ - Eating outdoors makes for good health and long life and good temper, everyone knows that.
+ - I can’t paint. I can’t write. I can’t sing. But I can decorate and run a house, and light it, and heat it, and have it like a living thing.
+ - No one chair should be isolated...
+ - My business is to preach to you the beauty of suitability.
+ - I was not ugly. I might never be anything for men to lose their heads about, but I need never again be ugly. This knowledge was like a song within me. Suddenly it all came together. If you were healthy, fit, and well-dressed, you could be attractive.
+ - I believe in plenty of optimism and white paint.
+ - You can’t take it with you. There are no pockets in a shroud.
+ - I was born with the courage to live. Only those are unwise who have never dared to be fools.
+ - I know of nothing more significant than the awakening of men and women throughout our country to the desire to improve their houses. Call it what you will – awakening, development, American Renaissance – it is a most startling and promising condition of affairs.
+ - It does not matter whether one paints a picture, writes a poem, or carves a statue – simplicity is the mark of a master-hand...
+ - I opened the doors and windows of America, and let the air and sunshine in.
+ - It is the personality of the mistress that the home expresses. Men are forever guests in our homes, no matter how much happiness they may find there.
+ - I am going in now for interior decoration. By that I mean supplying objets d’art and giving advice regarding the decoration of their houses to wealthy persons who do not have the time, inclination, nor culture to do such work for themselves. It is nothing new. Women have done the same thing before.
+ - To conform within rational limits to a given style is no more servile than to pay one’s taxes or to write according to the rule of grammar.
+ - When one begins to think of oneself as growing old, one is already old.
+ - Good dressing is largely a question of detail and accessories.
+ - You will express yourself in your house whether you want to or not.
+ - Light, air and comfort – these three things I must always have in a room...
+ - No, I don’t take soup. You can’t build a meal on a lake.
+ - There never has been a house so bad that it couldn’t be made over into something worthwhile.
+ - Never, under any circumstance, do I touch soup, as I do not believe in building a meal on a lake.
+ - It is not chic to be too chic.
+ - A house should be a synthesis of comfort, practicality, and tradition.
+
+30 quotes

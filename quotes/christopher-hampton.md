@@ -1,0 +1,21 @@
+ - The only unbearable thing is that nothing is unbearable.
+ - To seduce a woman famous for strict morals, religious fervor and the happiness of her marriage: what could possibly be more prestigious?
+ - Since my adaptation of Ian McEwan’s ‘Atonement,’ I get sent a lot of novels that people think will work as movies. So every now and then I make a point of sitting down and reading a couple of them.
+ - I think there’s something degrading about having a husband for a rival. It’s humiliating if you fail and commonplace if you succeed.
+ - You see, I always divide people into two groups. Those who live by what they know to be a lie, and those who live by what they believe, falsely, to be the truth.
+ - If I had to give a definition of capitalism I would say: the process whereby American girls turn into American women.
+ - I became a virtuoso of deceit. It wasn’t pleasure I was after, it was knowledge. I consulted the strictest moralists to learn how to appear, philosophers to find out what to think and novelists to see what I could get away with.
+ - My problem is I’m a man of no convictions – at least, I think I am.
+ - I’m ashamed to say the first play I saw at the Royal Court was mine.
+ - It’s possible to disagree with someone about the ethics of non-violence without wanting to kick his face in.
+ - I find I have to give myself a day when I just shut myself off and do nothing but read.
+ - You know very well that unless you’re a scientist, it’s much more important for a theory to be shapely, than for it to be true.
+ - Often I think the novels I read won’t make very good movies – I better not say which I’m looking at for potential films! – but it’s nice to have an excuse to just sit and read for a whole day.
+ - I love films. If I’d known how to get into or do it from the word go, I would have done that.
+ - If you take a really good book, then the potential is for a really good film. But you’ve got to get it right.
+ - It’s great to get out of the study and work with real living and breathing people.
+ - I have always thought of sophistication as rather a feeble substitute for decadence.
+ - There is a sort of theory that you should adapt bad books because they always make more successful films.
+ - A great number of the disappointments and mishaps of the troubled world are the direct result of literature and the allied arts. It is our belief that no human being who devotes his life and energy to the manufacture of fantasies can be anything but fundamentally inadequate.
+
+19 quotes

@@ -1,0 +1,239 @@
+ - To love and win is the best thing. To love and lose, the next best.
+ - Successful people aren’t born that way. They become successful by establishing the habit of doing things unsuccessful people don’t like to do. The successful people don’t always like these things themselves; they just get on and do them.
+ - Love makes fools of us all, big and little.
+ - Life is a mirror: if you frown at it, it frowns back; if you smile, it returns the greeting.
+ - Dare and the world always yields; or if it beats you sometimes, dare it again and it will succumb.
+ - Never lose a chance of saying a kind word.
+ - The world is good natured to people who are good natured.
+ - A cheerful look brings joy to the heart.
+ - Mother is the name for God in the lips and hearts of little children.
+ - Revenge may be wicked, but it’s natural.
+ - I will bring order from chaos and light from darkness.
+ - A good woman is the loveliest flower that blooms under heaven; and we look with love and wonder upon its silent grace, its pure fragrance, its delicate bloom of beauty.
+ - The two most engaging powers of an author are to make new things familiar, familiar things new.
+ - Good humor may be said to be one of the very best articles of dress one can wear in society.
+ - Vanity Fair is a very vain, wicked, foolish place, full of all sorts of humbugs and falsenesses and pretensions.
+ - Business first; pleasure afterwards.
+ - Pray God, keep us simple.
+ - Pray, dear madam, another glass; it is Christmas time, it will do you no harm.
+ - Bravery never goes out of fashion.
+ - Humor is the mistress of tears.
+ - If success is rare and slow, everybody knows how quick and easy ruin is.
+ - Do not be in a hurry to succeed. What would you have to live for afterwards? Better make the horizon your goal; it will always be ahead of you.
+ - Time passes, Time the consoler, Time the anodyne.
+ - Malice is of the boomerang character, and is apt to turn upon the projector.
+ - I would rather make my name than inherit it.
+ - Everybody in Vanity Fair must have remarked how well those live who are comfortably and thoroughly in debt; how they deny themselves nothing; how jolly and easy they are in their minds.
+ - What stories are new? All types of all characters march through all fables.
+ - Since the days of Adam, there has been hardly a mischief done in this world but a woman has been at the bottom of it.
+ - There is no good in living in a society where you are merely the equal of everybody else. The true pleasure of life is to live with your inferiors.
+ - You must not judge hastily or vulgarly of Snobs: to do so shows that you are yourself a Snob.
+ - Are not there little chapters in everybody’s life, that seem to be nothing, and yet affect all the rest of the history?
+ - Titles are abolished; and the American Republic swarms with men claiming and bearing them.
+ - People who do not know how to laugh are always pompous and self-conceited.
+ - Except for the young or very happy, I can’t say I am sorry for anyone who dies.
+ - We love being in love, that’s the truth on’t.
+ - The world is a looking glass and gives back to every man the reflection of his own face.
+ - It is best to love wisely, no doubt; but to love foolishly is better than not to be able to love at all.
+ - An evil person is like a dirty window, they never let the light shine through.
+ - Never lose a chance of saying a kind word. As Collingwood never saw a vacant place in his estate but he took an acorn out of his pocket and planted it, so deal with your compliments through life. An acorn costs nothing, but it may spread into a prodigious timber.
+ - To see a young couple loving each other is no wonder; but to see an old couple loving each other is the best sight of all.
+ - Presently, we were aware of an odour gradually coming towards us, something musky, fiery, savoury, mysterious, – a hot drowsy smell, that lulls the senses, and yet enflames them, – the truffles were coming.
+ - Those we love can but walk down to the pier with us – the voyage we must make alone.
+ - Under the magnetism of friendship the modest man becomes bold; the shy, confident; the lazy, active; and the impetuous, prudent and peaceful.
+ - The Pall Mall Gazette is written by gentlemen for gentlemen.
+ - Oh, Vanity of vanities! How wayward the decrees of Fate are; How very weak the very wise, How very small the very great are!
+ - Fairy roses, fairy rings, turn out sometimes troublesome things.
+ - Frequent the company of your betters.
+ - People hate as they love, unreasonably.
+ - What is a gentleman? It is to be honest, to be gentle, to be generous, to be brave, to be wise; and possessed of all these qualities to exercise them in the most graceful manner.
+ - Our great thoughts, our great affections, the truths of our life, never leave us. Surely they can not separate from our consciousness, shall follow it whithersoever that shall go, and are of their nature divine and immortal.
+ - There are a thousand thoughts lying within a man that he does not know till he takes up a pen to write.
+ - The best of women are hypocrites.
+ - Tis misfortune that awakens ingenuity, or fortitude, or endurance, in hearts where these qualities had never come to life but for the circumstance which gave them a being.
+ - A lady who sets her heart upon a lad in uniform must prepare to change lovers pretty quickly, or her life will be but a sad one.
+ - Vanity is often the unseen spur.
+ - If you had told Sycorax that her son Caliban was as handsome as Apollo, she would have been pleased, witch as she was.
+ - The true pleasure of life is to live with your inferiors.
+ - Charming Alnaschar visions! it is the happy privilege of youth to construct you.
+ - To be thought rich is as good as to be rich.
+ - A woman with fair opportunities, and without an absolute hump, may marry whom she likes. Only let us be thankful that the darlings are like the beasts of the field, and don’t know their own power. They would overcome us entirely if they did.
+ - In the midst of friends, home, and kind parents, she was alone.
+ - The death of a child occasions a passion of grief and frantic tears, such as your end, brother reader, will never inspire.
+ - If thou hast never been a fool, be sure thou wilt never be a wise man.
+ - Life is soul’s nursery- its training place for the destinies of eternity.
+ - A clever, ugly man every now and then is successful with the ladies, but a handsome fool is irresistible.
+ - It is impossible, in our condition of Society, not to be sometimes a Snob.
+ - Novels are sweets. All people with healthy literary appetites love them-almost all women; a vast number of clever, hardheaded men.
+ - There is a skeleton in every house.
+ - A pair of bright eyes with a dozen glances suffice to subdue a man; to enslave him, and enflame him; to make him even forget; they dazzle him so that the past becomes straightway dim to him; and he so prizes them that he would give all his life to possess ’em.
+ - True love is better than glory.
+ - He who meanly admires mean things is a Snob.
+ - If a secret history of books could be written, and the author’s private thoughts and meanings noted down alongside of his story, how many insipid volumes would become interesting, and dull tales excite the reader!
+ - If a man’s character is to be abused, say what you will, there’s nobody like a relative to do the business.
+ - Novelty has charms that our minds can hardly withstand.
+ - What a charming reconciler and peacemaker money is!
+ - If people only made prudent marriages, what a stop to population there would be!
+ - I never was much of an oyster eater, nor can I relish them ‘in naturalibus’ as some do, but require a quantity of sauces, lemons, cayenne peppers, bread and butter, and so forth, to render them palatable.
+ - A good laugh is sunshine in the house.
+ - Some cynical Frenchman has said that there are two parties to a love-transaction: the one who loves and the other who condescends to be so treated.
+ - Always to be right, always to trample forward, and never to doubt, are not these the great qualities with which dullness takes the lead in the world?
+ - Oh, those women! They nurse and cuddle their presentiments, and make darlings of their ugliest thoughts.
+ - Certain corpuscles, denominated Christmas Books, with the ostensible intention of swelling the tide of exhilaration, or other expansive emotions, incident upon the exodus of the old and the inauguration of the New Year.
+ - Which of us is happy in this world? Which of us has his desire? or, having it, is satisfied?
+ - Then sing as Martin Luther sang, As Doctor Martin Luther sang, “Who loves not wine, woman and song, He is a fool his whole life long.”
+ - A crow, who had flown away with a cheese from a dairy window, sate perched on a tree looking down at a great big frog in a pool underneath him.
+ - The moral world has no particular objection to vice, but an insuperable repugnance to hearing vice called by its proper name.
+ - Why do they always put mud into coffee on board steamers? Why does the tea generally taste of boiled boots?
+ - I set it down as a maxim, that it is good for a man to live where he can meet his betters, intellectual and social.
+ - It is a friendly heart that has plenty of friends.
+ - The unambitious sluggard pretends that the eminence is not worth attaining, declines altogether the struggle, and calls himself a philosopher. I say he is a poor-spirited coward.
+ - When you look at me, when you think of me, I am in paradise.
+ - The affection of young ladies is of as rapid growth as Jack’s beanstalk, and reaches up to the sky in a night.
+ - This Bouillabaisse a noble dish is – A sort of soup or broth, or brew, Or hotchpotch of all sorts of fishes, That Greenwich never could outdo; Green herbs, red peppers, mussels, saffron, Soles, onions, garlic, roach, and dace; All these you eat at Terre’s tavern, In that one dish of Bouillabaisse.
+ - Life without laughing is a dreary blank.
+ - I wonder is it because men are cowards in heart that they admire bravery so much, and place military valor so far beyond every other quality for reward and worship.
+ - It was in the reign of George II. that the above-named personages lived and quarrelled ; good or bad, handsome or ugly, rich or poor, they are all equal now.
+ - To be beautiful is enough! if a woman can do that well who should demand more from her? You don’t want a rose to sing.
+ - Remember, it’s as easy to marry a rich woman as a poor woman.
+ - You read the past in some old faces.
+ - Charlotte, having seen his body Borne before her on a shutter, Like a well-conducted person, Went on cutting bread and butter.
+ - If fathers are sometimes sulky at the appearance of the destined son-in-law, is it not a fact that mothers become sentimental and, as it were, love their own loves over again.
+ - Choose a good disagreeable friend, if you be wise – a surly, steady, economical, rigid fellow.
+ - He that has ears to hear, let him stuff them with cotton.
+ - That which we call a snob by any other name would still be snobbish.
+ - Happiest time of youth and life, when love is first spoken and returned; when the dearest eyes are daily shining welcome, and the fondest lips never tire of whispering their sweet secrets; when the parting look that accompanies “Good night!” gives delightful warning of tomorrow.
+ - An immense percentage of snobs, I believe, is to be found in every rank of this mortal life.
+ - Never marry with the expectation of changing a person.
+ - Life is the soul’s nursery.
+ - There are many sham diamonds in this life which pass for real, and vice versa.
+ - If fun is good, truth is still better, and love best of all.
+ - When a mother, as fond mothers will; vows that she knows every thought in her daughter’s heart, I think she pretends to know a great deal too much.
+ - When I walk with you I feel as if I had a flower in my buttonhole.
+ - As if the ray which travels from the sun would reach me sooner than the man who blacks my boots.
+ - Alas! we are the sport of destiny.
+ - Dinner was made for eating, not for talking.
+ - For my part, I believe that remorse is the least active of all a man’s moral senses, – the very easiest to be deadened when wakened, and in some never wakened at all.
+ - When a man is in love with one woman in a family, it is astonishing how fond he becomes of every person connected with it.
+ - How grateful are we – how touched a frank and generous heart is for a kind word extended to us in our pain! The pressure of a tender hand nerves a man for an operation, and cheers him for the dreadful interview with the surgeon.
+ - One of the great conditions of anger and hatred is, that you must tell and believe lies against the hated object, in order, as we said, to be consistent.
+ - The tallest and the smallest among us are so alike diminutive and pitifully base, it is a meanness to calculate the difference.
+ - Follow your honest convictions and be strong.
+ - When I say that I know women, I mean I know that I don’t know them. Every single woman I ever knew is a puzzle to me, as, I have no doubt, she is to herself.
+ - Almost all women have hearts full of pity.
+ - Despair is perfectly compatible with a good dinner, I promise you.
+ - If I mayn’t tell you what I feel, what is the use of a friend?
+ - Out of the fictitious book I get the expression of the life, of the times, of the manners, of the merriment, of the dress, the pleasure, the laughter, the ridicules of society. The old times live again. Can the heaviest historian do more for me?
+ - You, who are ashamed of your poverty, and blush for your calling, are a snob; as are you who boast of your wealth.
+ - Diffidence is a sort of false modesty.
+ - An intelligent wife can make her home, in spite of exigencies, pretty much what she pleases.
+ - It is only hope which is real, and reality is a bitterness and a deceit.
+ - At that comfortable tavern on Pontchartrain we had a bouillabaisse than which a better was never eaten at Marseilles; and not the least headache in the morning, I give you my word; on the contrary, you only wake with a sweet refreshing thirst for claret and water.
+ - I have seen no men in life loving their profession so much as painters, except, perhaps, actors, who, when not engaged themselves, always go to the play.
+ - To our betters eve can reconcile ourselves, if you please – respecting them sincerely, laughing at their jokes, making allowance for their stupidities, meekly suffering their insolence; but we can’t pardon our equals going beyond us.
+ - What a dignity it gives an old lady, that balance at the bankers! How tenderly we look at her faults if she is a relative; what a kind, good-natured old creature we find her!
+ - Who does not believe his first passion eternal?
+ - Let us people who are so uncommonly clever and learned have a great tenderness and pity for the poor folks who are not endowed with the prodigious talents which we have.
+ - To forego even ambition when the end is gained – who can say this is not greatness?
+ - No particular motive for living, except the custom and habit of it.
+ - One tires of a page of which every sentence sparkles with points, of a sentimentalist who is always pumping the tears from his eyes or your own.
+ - Love seems to survive life, and to reach beyond it. I think we take it with us past the grave. Do we not still give it to those who have left us? May we not hope that they feel it for us, and that we shall leave it here in one or two fond bosoms, when we also are gone?
+ - The pipe draws wisdom from the lips of the philosopher, and shuts up the mouth of the foolish; it generates a style of conversation, contemplative, thoughtful, benevolent, and unaffected.
+ - Taste is something quite different from fashion, superior to fashion.
+ - As nature made every man with a nose and eyes of his own, she gave him a character of his own, too; and yet we, O foolish race! must try our very best to ape some one or two of our neighbors, whose ideas fit us no more than their breeches!
+ - When one fib becomes due as it were, you must forge another to take up the old acceptance; and so the stock of your lies in circulation inevitably multiplies, and the danger of detection increases every day.
+ - Perhaps there is no greater test of a man’s regularity and easiness of conscience than his readiness to face the postman. Blessed is he who is made happy by the sound of a rat-tat! The good are eager for it; but the naughty tremble at the sound thereof.
+ - In effective womanly beauty form is more than face, and manner more than either.
+ - Werther had a love for Charlotte Such as words could never utter; Would you know how first he met her? She was cutting bread and butter.
+ - It’s a great comfort to some people to groan over their imaginary ills.
+ - Ah! gracious Heaven gives us eyes to see our own wrong, however dim age may make them; and knees not too stiff to kneel, in spite of years, cramp, and rheumatism.
+ - I want a sofa, as I want a friend, upon which I can repose familiarly. If you can’t have intimate terms and freedom with one and the other, they are of no good.
+ - The book of female logic is blotted all over with tears, and Justice in their courts is forever in a passion.
+ - Almost all women will give a sympathizing hearing to men who are in love. Be they ever so old, they grow young again with that conversation, and renew their own early times.
+ - As fits the holy Christmas birth, Be this, good friends, our carol still Be peace on earth, be peace on earth, To men of gentle will.
+ - So, with their usual sense of justice, ladies argue that because a woman is handsome, therefore she is a fool. O ladies, ladies! there are some of you who are neither handsome nor wise.
+ - One of the greatest of a great man’s qualities is success; ’t is the result of all the others; ’t is a latent power in him which compels the favor of the gods, and subjugates fortune.
+ - It is comparatively easy to leave a mistress, but very hard to be left by one.
+ - What will a man not do when frantic with love? To what baseness will he not demean himself? What pangs will he not make others suffer, so that he may ease his selfish heart?
+ - A fool can no more see his own folly than he can see his ears.
+ - Come children, let us shut up the box and the puppets, for our play is played out.
+ - Is beauty beautiful, or is it only our eyes that make it so?
+ - She lived in her past life- these relics and remembrances of dead affection were all that was left her in the world.
+ - It is all very well for you, who have probably never seen any spiritual manifestations, to talk as you do; but if you had seen what I have witnessed you would hold a different opinion.
+ - What man’s life is not overtaken by one or more of those tornadoes that send us out of the course, and fling us on rocks to shelter as best we may?
+ - What money is better bestowed than that of a schoolboy’s tip? How the kindness is recalled by the recipient in after days! It blesses him that gives and him that takes.
+ - It is to the middle-class we must look for the safety of England.
+ - The world is full of love and pity, I say. Had there been less suffering, there would have been less kindness.
+ - Hint at the existence of wickedness in a light, easy, and agreeable manner, so that nobody’s fine feelings may be offended.
+ - Next to excellence is the appreciation of it.
+ - You can’t order remembrance out of the mind; and a wrong that was a wrong yesterday must be a wrong to-morrow.
+ - The little cares, fears, tears, timid misgivings, sleepless fancies of I don’t know how many days and nights, were forgotten under one moment’s influence of that familiar, irresistible smile.
+ - Sure, occasion is the father of most that is good in us.
+ - If you take temptations into account, who is to say that he is better than his neighbor?
+ - Sir, Respect Your Dinner: idolize it, enjoy it properly. You will be many hours in the week, many weeks in the year, and many years in your life happier if you do.
+ - Learn to admire rightly; the great pleasure of life is that. Note what the great men admired; they admired great things; narrow spirits admire basely, and worship meanly.
+ - Every man ought to be in love a few times in his life, and to have a smart attack of the fever. You are better for it when it is over: the better for your misfortune, if you endure it with a manly heart; how much the better for success, if you win it and a good wife into the bargain!
+ - The ladies – Heaven bless them! – are, as a general rule, coquettes from babyhood upwards.
+ - To endure is greater than to dare; to tire out hostile fortune; to be daunted my no difficulty; to keep heart when all have lost it; to go through intrigue spotless; to forgo even ambition when the end is gained – who can say this is not greatness?
+ - Bad husbands will make bad wives.
+ - That acknowledgment of weakness which we make in imploring to be relieved from hunger and from temptation is surely wisely put in our daily prayer. Think of it, you who are rich, and take heed how you turn a beggar away.
+ - If a man has committed wrong in life, I don’t know any moralist more anxious to point his errors out to the world than his own relations...
+ - Ho, pretty page, with the dimpled chin That never has known the barber’s shear, All your wish is woman to win, This is the way that boys begin. Wait till you come to Forty Year.
+ - Let a man who has to make his fortune in life remember this maxim: Attacking is the only secret. Dare and the world yields, or if it beats you sometimes, dare it again and you will succeed.
+ - Women like not only to conquer, but to be conquered.
+ - I never knew whether to pity or congratulate a man on coming to his senses.
+ - Not only is the world informed of everything about you, but of a great deal more.
+ - Oh, brother wearers of motley, are there not moments when one grows sick of grinning and trembling and the jingling of cap and bells?
+ - We can’t all be lions in this world. There must be some lambs, harmless, kindly, gregarious creatures for eating and shearing.
+ - Which of us that is thirty years old has not had its Pompeii? Deep under ashes lies the life of youth – the careless sport, the pleasure and the passion, the darling joy.
+ - A woman’s heart is just like a lithographer’s stone; what is once written upon it cannot be rubbed out.
+ - It is an awful thing to get a glimpse, as one sometimes does, when the time is past, of some little, little wheel which works the whole mighty machinery of fate, and see how our destinies turn on a minute’s delay or advance.
+ - What woman, however old, has not the bridal-favours and raiment stowed away, and packed in lavender, in the inmost cupboards of her heart?
+ - Kindnesses are easily forgotten; but injuries! what worthy man does not keep those in mind?
+ - Ah me! we wound where we never intended to strike; we create anger where we never meant harm; and these thoughts are the thorns in our cushion. – William Makepeace Thackeray.
+ - A snob is that man or woman who is always pretending to be something better – especially richer or more fashionable – than he is.
+ - He who meanly admires a mean thing is a snob – perhaps that is a safe definition of the character.
+ - Perhaps all early love affairs ought to be strangled or drowned, like so many blind kittens.
+ - Come forward, some great marshal, and organize equality in society, and your rod shall swallow up all the juggling old court gold-sticks.
+ - Nature has written a letter of credit upon some men’s faces that is honored wherever presented. You cannot help trusting such men. Their very presence gives confidence. There is promise to pay in their faces which gives confidence and you prefer it to another man’s endorsement. Character is credit.
+ - There are other books in a man’s library besides Ovid, and after dawdling ever so long at a woman’s knee, one day he gets up and is free. We have all been there; we have all had the fever – the strongest and the smallest, from Samson, Hercules, Rinaldo, downward: but it burns out, and you get well.
+ - When Fate wills that something should come to pass, she sends forth a million of little circumstances to clear and prepare the way.
+ - I knew all along that the prize I had set my life on was not worth the winning.
+ - Who feels injustice, who shrinks before a slight, who has a sense of wrong so acute, and so glowing a gratitude for kindness, as a generous boy?
+ - If dying, I yet live in a tender heart or two; nor am I lost and hopeless living, if a sainted departed soul still loves and prays for me.
+ - Those who forgets their friends to follow those of a higher status are truly snobs.
+ - The world is a looking-glass, and gives back to every man the reflection of his own face. Frown at it, and it will in turn look sourly upon you; laugh at it and with it, and it is a jolly kind companion; and so let all young persons take their choice.
+ - How hard it is to make an Englishman acknowledge that he is happy! Pendennis. Book ii. Chap. xxxi.
+ - We have only to change the point of view and the greatest action looks mean.
+ - Might I give counsel to any man, I would say to him, try to frequent the company of your betters. In books and in life, that is the most wholesome society; learn to admire rightly; the great pleasure of life is that. Note what great men admire.
+ - Society having ordained certain customs, men are bound to obey the law of society, and conform to its harmless orders.
+ - Money has only a different value in the eyes of each.
+ - Benevolence and feeling ennoble the most trifling actions.
+ - If there is no love more in yonder heart, it is but a corpse unburied.
+ - A man is seldom more manly than when he is what you call unmanned, – the source of his emotion is championship, pity, and courage; the instinctive desire to cherish those who are innocent and unhappy, and defend those who are tender and weak.
+ - There is no man that can teach us to be gentlemen better than Joseph Addison.
+ - Lucky he who has been educated to bear his fate, whatsoever it may be, by an early example of uprightness, and a childish training in honor.
+ - Happy! Who is happy? Was there not a serpent in Paradise itself? And if Eve had been perfectly happy beforehand, would she have listened to the tempter?
+ - The thorn in the cushion of the editorial chair.
+ - At certain periods of life, we live years of emotion in a few weeks, and look back on those times as on great gaps between the old life and the new.
+ - Next to the young, I suppose the very old are the most selfish.
+ - Who has not remarked the readiness with which the closest of friends and honestest of men suspect and accuse each other of cheating when they fall out on money matters? Everybody does it. Everybody is right, I suppose, and the world is a rogue.
+ - We pass by common objects or persons without noticing them; but the keen eye detects and notes types everywhere and among all classes.
+ - Kindness is very indigestible. It disagrees with proud stomachs.
+ - Humor is wit and love.
+ - The great quality of Dulness is to be unalterably contented with itself.
+ - It is from the level of calamities, not that of every-day life, that we learn impressive and useful lessons.
+ - All amusements to which virtuous women are not admitted, are, rely upon it, deleterious in their nature.
+ - The wicked are wicked, no doubt, and they go astray and they fall, and they come by their deserts; but who can tell the mischief which the very virtuous do?
+ - Tis hard with respect to Beauty, that its possessor should not have a life enjoyment of it, but be compelled to resign it after, at the most, some forty years lease.
+ - She had not character enough to take to drinking, and moaned about, slip-shod and in curl-papers, all day.
+ - Next to eating good dinners, a healthy man with a benevolent turn of mind, must like, I think, to read about them.
+ - A person can’t help their birth.
+ - He was always thinking of his brother’s soul, or of the souls of those who differed with him in opinion: it is a sort of comfort which many of the serious give themselves.
+ - If you will fling yourself under the wheels, Juggernaut will go over you; depend upon it.
+ - Oh, my young friends, how delightful is the beginning of a love-business, and how undignified, sometimes, the end!
+ - All is vanity, look you; and so the preacher is vanity too.
+ - We are most of us very lonely in this world; you who have any who love you, cling to them and thank God.
+ - Sure, love vincit omnia; is immeasurably above all ambition, more precious than wealth, more noble than name. He knows not life who knows not that: he hath not felt the highest faculty of the soul who hath not enjoyed it.
+
+237 quotes

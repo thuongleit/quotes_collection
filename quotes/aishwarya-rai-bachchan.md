@@ -1,0 +1,30 @@
+ - Haters are a drop in the ocean. Theres that much more love.
+ - My family is my strength and my weakness.
+ - Life will take its toll on all of us. We get injured, we get old. It’s really sad to try to run away from these harsh realities of life. Looks are not everything. I am not going to look beautiful all the time.
+ - Right now, I’m following the Buddhist principle: Smile as abuse is hurled your way and this too shall pass.
+ - Even in India the Hindi film industry might be the best known but there are movies made in other regional languages in India, be it Tamil or Bengali. Those experiences too are different from the ones in Bombay.
+ - I always believed that my silence on several topics will be an advantage in the long run.
+ - Beauty is transient and changes with time.
+ - I know for a fact that if there’s a role which I am suited for, I’ll be signed on. I’ll never go begging.
+ - I don’t believe in proving a point to anybody. Nobody is that important.
+ - Even prior to marriage and motherhood, it’s always been about prioritising and focusing on what you can commit to. That’s been my approach to every aspect of my life, be it my relationships or my professional commitments.
+ - Strangely, nothing makes me feel tired, fatigued, at all. I’ve gone days and nights without sleep, and still the mind is in such a positive space it just doesn’t make you feel fatigued.
+ - I don’t know about changing my perspective, because motherhood is such a glorious blessing and I am very thankful for that. It is such a beautiful experience. I so strongly recommend it. It’s bliss, love, and fulfillment of another level.
+ - The more you are blessed with experience, the fuller and the more enriched you are in your craft.
+ - Sexy in India is not considered positive. But, with today’s crop of fresh faces in the modelling arena, being sexy is an asset.
+ - I have a great story to tell and I tell it well. No holds barred.
+ - I’m just an average woman with average concerns.
+ - I was more excited than scared, at the opportunity to work in an English movie.
+ - I’m not the type who’ll yell about my achievements from the rooftops.
+ - I’m a student. I want to do better, and I want directors who can find the actress in me and be my teachers. I’m interested in the whole process of editing, post-production and direction.
+ - I was studying to be an architect, I wasn’t plotting to join the movies. Films were just another career option. I took acting up with the same schoolgirl enthusiasm I had for examinations. Acting is a job and I take it very seriously.
+ - Comedy is difficult for an actor. But I think I have a good sense of humor and manage to make people laugh and make them happy.
+ - I always knew I would be successful. So there was no element of surprise.
+ - Do we recognize the platform that Indian cinema has been given? Of course. And typically India of us, we gracefully acknowledge our host’s grace and we thank you for celebrating us and our cinema.
+ - Despite being in showbiz, I have a very real approach to my life. It plays off with my social life.
+ - I have always been a person who is extremely comfortable in my skin. I have always just been myself in all these years on the public platform.
+ - The larger the audience the better. The more pockets in the world, the more interesting and exciting because it just makes it that much more liberating. This makes it that much more liberating for the various facets of creativity to be explored.
+ - I just take on what I can commit to completely at that point in time, and that way you’ll be able to give your best.
+ - For me, it’s not about breaking big in Hollywood, but having interesting experiences.
+
+28 quotes

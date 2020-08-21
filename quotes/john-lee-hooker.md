@@ -1,0 +1,29 @@
+ - When I die, they’ll bury the blues with me. But the blues will never die.
+ - I am a happy man. I’ve had a good life.
+ - I wanna get drunk ’til I’m off my mind. One bourbon, one scotch, and one beer.
+ - The blues tells a story. Every line of the blues has a meaning.
+ - It don’t take me no three days to record no album.
+ - Ron Thompson, he’s my main man!
+ - I don’t do nothing I don’t want to do.
+ - I don’t like no fancy chords. Just the boogie. The drive. The feeling. A lot of people play fancy but they don’t have no style. It’s a deep feeling-you just can’t stop listening to that sad blues sound. My sound.
+ - I remember back in Detroit, I used to go to the Apex Bar every night after I got off work. The bartender there used to call me Boom Boom. I don’t know why, but he did.
+ - No matter what you got, the blues is there.
+ - Poor people have the blues because they’re poor and hungry. Rich people can’t sleep at night because they’re trying to hold on to their money and everything they have.
+ - I went on to Cincinnati. I had got a taste of the big cities and them bright lights. I stayed there until I was about 18 or 19 and then I went on to Detroit.
+ - I don’t think about time. You’re here when you’re here. I think about today, staying in tune.
+ - I don’t play a lot of fancy guitar. I don’t want to play it. The kind of guitar I want to play is mean, mean licks.
+ - That girl has a special talent.
+ - The one thing the blues don’t get is the backing and pushing of TV and radio like a lot of this garbage you hears. They choke stuff down people’s throat so they got no choice but to listen to it.
+ - I’m even afraid to lay down with you at night, because when you go to bed at night, mean woman, you got an ice pick in your hand.
+ - I’ve got enough money to live me two lifetimes so I don’t have to do nothing I don’t want to.
+ - I want to play music when I want, write a song if I want or watch a baseball game if I want.
+ - The way Will Moore taught me, and the way I play it, the blues is just something different.
+ - Groups are corporations now. They have pension plans. Musicians have saw the daylight.
+ - But I don’t want to do no big tours or go out on the road.
+ - I like dropping into a small club and playing with some people, trying to help them get a start.
+ - I do benefits. I do them all the time. There’s so many people out there that needs help that I can’t say I won’t help them.
+ - I just get an idea and then all of a sudden I’ve got a song.
+ - If they played more blues, people would just get it – they try to hold it back but just about can’t hold it back now because the blues is really going.
+ - My style is all to myself.
+
+27 quotes

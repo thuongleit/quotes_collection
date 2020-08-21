@@ -1,0 +1,75 @@
+ - The mind of the polyglot is a very particular thing, and scientists are only beginning to look closely at how acquiring a second language influences learning, behavior and the very structure of the brain itself.
+ - Your parents leave you too soon and your kids and spouse come along late, but your siblings know you when you are in your most inchoate form.
+ - The best thing about science is that hard, empirical answers are always there if you look hard enough. The best thing about religion is that the very absence of that certainty is what requires – and gives rise to – deep feelings of faith.
+ - Since narcissism is fueled by a greater need to be admired than to be liked, psychologists might use that fact as a therapeutic lever – stressing to patients that being known as a narcissist will actually cause them to lose the respect and social status they crave.
+ - In both children and adults, there can be a hard-to-deny link between a robust sense of hope and either work productivity or academic achievement.
+ - There’s a universe inside your head – a place of pictures and passions, of songs and sorrows. It’s everything you are – and it’s an utter mystery.
+ - Narcissism falls along the axis of what psychologists call personality disorders, one of a group that includes antisocial, dependent, histrionic, avoidant and borderline personalities. But by most measures, narcissism is one of the worst, if only because the narcissists themselves are so clueless.
+ - All behavioral or mood disorders – including depression, OCD, ADHD and addiction – have some neurochemical components, but sufferers can still work to overcome them.
+ - Suffering is always hard to quantify – especially when the pain is caused by as cruel a disease as Alzheimer’s. Most illnesses attack the body; Alzheimer’s destroys the mind – and in the process, annihilates the very self.
+ - A fishnet is made up of a lot more holes than strings, but you can’t therefore argue that the net doesn’t exist. Just ask the fish.
+ - Habitual texters may not only cheat their existing relationships, they can also limit their ability to form future ones since they don’t get to practice the art of interpreting nonverbal visual cues.
+ - We’re learning how important it is both to preserve sibling relationships if they work and repair them if they’re broken. We’re also learning a lot about nonliteral siblings – stepsiblings, half-siblings – and the surprising power they can have.
+ - Confidence quickly curdles into arrogance; smarts turn to smugness, charm turns to smarm.
+ - If you’re an older sibling and you have a younger sibling who needs mentoring or is afraid of the dark, you develop nurturing and empathic skills that you wouldn’t otherwise have.
+ - Photography is about freezing a moment in time; McGinley’s is about freezing a stage in a lifetime.
+ - Tamerlan Tsarnaev is telling no tales. The older of the two brothers who committed the Boston Marathon bombings was likely the one who planned the attack, but when he died in a shootout with police just days after the blasts, his thoughts and motivations vanished with him.
+ - Why are some people born with a fire in the belly, while others need something to get their pilot light lit?
+ - There’s a deep-freeze of sorts for all good intentions – a place that you store your plans to make changes in your life when you know you’re not going to make them at all.
+ - What makes spinal-cord injuries as devastating as they are is that everything about them plays out in absolutes: they are instantaneous, utterly disabling and horribly permanent.
+ - Older fatherhood isn’t all bad: testosterone rates drop about 1% per year as men age, making them less reactive and more patient, and a professionally established middle-aged man is likely to have more time and money to devote to his kids than a twenty-something who’s just getting started.
+ - A mere ape in our world may be a scholar in its own, and the low life of any beast may be a source of deep satisfaction for the beast itself.
+ - Never mind what you’ve heard. Halle Berry was not the first black woman to win an Academy Award for Best Actress. She was actually the 74th white one. And never mind all this talk about America electing its first black President; Barack Obama is actually the 44th white man to hold the job.
+ - When our culture shifts, it tends to overcorrect, throwing out everything associated with an era we’ve moved past, rather than saving what was good and combining it with what is new.
+ - The golden child may be the oldest one, unless it’s the youngest. It may be the toughest one, unless it’s the most sensitive. It’s not even necessary that Mom and Dad have the same favorite – and typically they don’t.
+ - There’s no one place a virus goes to die – but that doesn’t make its demise any less a public health victory. Throughout human history, viral diseases have had their way with us, and for just as long, we have hunted them down and done our best to wipe them out.
+ - There’s a sort of sibling moratorium when you’re establishing yourself as an adult. So much of your energy has to be focused on other things like work and kids. But when people become more settled, siblings tend to regroup because now you’re building a new extended family.
+ - A cockroach likely has no less brainpower than a butterfly, but we’re quicker to deny it consciousness because it’s a species we dislike.
+ - We pride ourselves on being the only species that understands the concept of risk, yet we have a confounding habit of worrying about mere possibilities while ignoring probabilities, building barricades against perceived dangers while leaving ourselves exposed to real ones.
+ - There are a lot of downsides to being male. We age faster and die younger. But give us this: we’re lifetime baby-making machines. Women’s reproductive abilities start to wane when they’re as young as 35. Men? We’re good to go pretty much till we’re dead.
+ - Humans are crude linguists from the moment of birth – and perhaps even in the womb – to the extent at least that we can hear spoken sounds and begin to recognize different combinations of language sounds.
+ - When we’re awake, cortisol can fragment memories – one reason eyewitness crime scene accounts are so unreliable. But at night that very fragmentation allows creative recombinations of ideas.
+ - Everybody loves to spend money at least some of the time – because everybody loves the stuff you can buy with it. The key to the pleasure level of any transaction is the balance between the pain of the payment and the reward of the purchased object.
+ - The truth, of course, is that the only necessary and sufficient condition for human beings to murder one another is the simple fact of being human.
+ - Toxins love to get you while you’re young. Lead, mercury, secondhand smoke and sundry other environmental nasties do a lot more damage when tissue is immature, vulnerable and growing than when it’s mature and comparatively fixed.
+ - Sisters have ways of socializing brothers into the mysteries of girls. Brothers have ways of socializing sisters into the puzzle that is boys.
+ - When it comes to raising civilized kids there are no hard rules, but there are two things on which most parents agree: Boys are generally wilder than girls, and adolescents are wilder than kids of any other age. If you’ve got an adolescent boy, you’re in the sweet spot for trouble.
+ - Identical twins are ideal lab specimens for studying the difference between learned and inherited traits since they come from the womb preloaded with matching genetic operating systems. Any meaningful differences in their behaviors or personalities are thus likely to have been acquired, not innate.
+ - Psychopaths know the technical difference between right and wrong – which is one of the reasons their insanity pleas in criminal cases so rarely succeed; they just fail to act on that knowledge.
+ - Humans have a fraught relationship with beasts. They are our companions and our chattel, our family members and our laborers, our household pets and our household pests. We love them and cage them, admire them and abuse them. And, of course, we cook and eat them.
+ - Well, I think of the folks who are the climate deniers as the flat Earthers and the people who say the moon landings never happened.
+ - More and more NFL players have been willing their bodies to science so that their brains can be studied even if they die of other causes.
+ - There’s no such thing as downtime for your brain.
+ - Overspending is as certain a part of the holiday season as overeating. But pushing away from both the table and the cash register at least a little bit sooner can make the post-holiday hangover hurt a little bit less.
+ - The families of many athletes – incensed at the sports leagues and hoping to make games safer overall – are increasingly making the brains of players who die prematurely and suspiciously available for study. Some athletes are even making the bequest themselves.
+ - There are a lot of ways to make people not like you, but one of the most powerful – if least fair – is to be really, really successful. Nobody resents the guy who just lost his job. But the guy whose Internet start-up made him a billionaire at 25? That’s a whole different kettle of envy.
+ - There’s plenty to read about keeping your sanity while raising children, but it’s all common-sense stuff about task division and taking breaks and the relentlessly repeated magic of date night with your spouse. What’s missing is some ’tude.
+ - Kids whose puberty begins too soon face not just psychological risks, but physical ones too, with an increased likelihood of cancer, as well as skeletal changes that could prevent them from attaining their full adult height.
+ - It’s not mere extremism that makes folks at the fringes so troubling; it’s extremism wedded to false beliefs. Humans have long been dupes, easily gulled by rumors and flat-out lies.
+ - Is there anything sadder than the foods of the 1950s? Canned, frozen, packaged concoctions, served up by the plateful, three meals per day, in an era in which the supermarket was king, the farmer’s market was, well, for farmers, and the word ‘locavore’ sounded vaguely like a mythical beast.
+ - A child gets vaccinated and soon after, autism symptoms emerge. The apparent cause-and-effect is understandable but erroneous – more a coincidence of the calendar and childhood developmental stages than anything else, as repeated and exhaustive studies have shown.
+ - No one ever pretended that shopping for anything is a rational experience. If it were, would there be Fluffernutter? Laceless sneakers? Porkpie hats? Would the Chia Pet even exist?
+ - Kids are anarchy writ large.
+ - My own life has in some ways been a decades-long tour of the sibling experience. I have full sibs, I have half-sibs, and for a time I had step-sibs.
+ - Members of royal families are born into a world of indulgence and entitlement, and the princelings who grow up that way may never have to develop the emotional musculature that will allow them to show self-restraint.
+ - A close family member once offered his opinion that I exhibit the phone manners of a goat, then promptly withdrew the charge – out of fairness to goats.
+ - Learning to speak was the most remarkable thing you ever did.
+ - It’s a deep and all but certain truth about narcissistic personalities that to meet them is to love them, but to know them well is to find them unbearable. Confidence quickly curdles into arrogance; smarts turn to smugness, charm turns to smarm.
+ - Some of the most rewarding times my brothers and I have are when all of us get together, and we can see what we’ve been building genetically and culturally.
+ - As with real reading, the ability to comprehend subtlety and complexity comes only with time and a lot of experience. If you don’t adequately acquire those skills, moving out into the real world of real people can actually become quite scary.
+ - There may be no more-radioactive term in the English language than what we now almost always refer to as the ‘n-word’ – itself a coy means of linguistic sidestepping that is a sign of how perilous it is to utter the thing in full, even in conversations about language.
+ - Becoming food savvy is one thing, but it’s amazing how fast savvy turns to snooty, and snooty leaves you preparing three-hour meals that break your budget and that the kids won’t even eat.
+ - Introverts listen better, they assess risks more carefully, they can be wiser managers. It’s not for nothing that the Silicon Valley billionaires are so often the retiring types.
+ - A jellyfish is little more than a pulsating bell, a tassel of trailing tentacles and a single digestive opening through which it both eats and excretes – as regrettable an example of economy of design as ever was.
+ - Jellyfish serve as a model for bioengineers for the same reason yeast were once so valuable to geneticists: they’re simple to deconstruct.
+ - We are all born with an innate understanding of interpersonal equity – the idea that if you lend me your rake today, I’ll respond in kind when you come to borrow my shovel tomorrow. Or nearly all of us are born with that. Psychopaths aren’t.
+ - Indeed, the best way to think of willpower is not as some shapeless behavioral trait but as a sort of psychic muscle, one that can atrophy or grow stronger depending on how it’s used.
+ - My family went through divorces and remarriages and the later, blended home – and then watched that home explode, too.
+ - Marketers have long known that a name can make all the difference when you’re trying to move the merch. The kiwifruit was once the Chinese gooseberry, after all – at least until the produce peddlers wised up – and the Chilean sea bass was once the singularly unappetizing Patagonian toothfish.
+ - Paul McCartney had a baby when he was 61; Rod Stewart was 66; Rupert Murdoch was a stunning 72. Not only does that mean they’ll have less stamina than the average dad, that means they’ll, well, check out a lot sooner too.
+ - Sadoway does more than entertain; he gives you a glimpse into the future of energy.
+ - Even the best computer in the world has no idea that it exists. You do. No one knows what creates that ineffable awareness that we’re here...
+ - The best you can sometimes do is learn to take a breath, count to ten and simply accept that try as you might, no, your husband will never, ever learn not to drop a wet towel on the bed. That acceptance too counts as resolving a fight.
+ - Scarily, football helmets, which do a fine job of protecting against scalp laceration and skull fracture, do little to prevent concussions and may even exacerbate them, since even as the brain is rattling around inside the skull, the head is rattling around inside the helmet.
+
+73 quotes

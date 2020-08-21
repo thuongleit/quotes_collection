@@ -1,0 +1,32 @@
+ - Against the ruin of the world, there is only one defense: the creative act.
+ - Crooked cards and straight whiskey, Slow horses and fast women.
+ - The mature man lives quietly, does good privately, takes responsibility for his actions, treats others with friendliness and courtesy, finds mischief boring and avoids it. Without the hidden conspiracy of goodwill, society would not endure an hour.
+ - The meaning of life can be revealed but never explained.
+ - I’ve had it with these cheap sons of bitches who claim they love poetry but never buy a book.
+ - The free, creative, loving people who shine so brightly in my memory of studios and coffee shops have become models for a huge section of the population. If they in turn can just stay alive in the face of power and terror, they may become the decisive section.
+ - Love is the garment of knowledge.
+ - Lost in loneliness and pain. Black and unendurable, Thinking of you with every Corpuscle of my flesh, in Every instant of night And day.
+ - Man thrives where angels would die of ecstasy and where pigs would die of disgust.
+ - Maturity is having the ability to escape categorization.
+ - Men who live like Casanova are seldom interested in themselves; their egocentricity does not give them time for egotism.
+ - An entomologist is not a bug.
+ - Any talented decadent can make unreality believable. To make reality convincing is another matter, a matter for only the greatest masters.
+ - I’ve been around jazz and jazz musicians most of my life.
+ - Bohemia is a commune in which the Revolution is over and everyone is a member of the aristocracy.
+ - Erotic love is one of the highest forms of contemplation.
+ - Art is the reasoned derangement of the senses.
+ - Harvey, Galileo, Copernicus do not seem occult to us, but they did so to their contemporaries, hierophants of the mysteries of Natural Law, revealers of the secrets of a New Order of the Ages. After all, the movement eventually came to be called the Age of Enlightenment.
+ - It takes great labor to uncover the convincing simple speech of the heart. Poetic candor comes with hard labor, so even does impetuosity and impudence.
+ - As Aristotle said, you have to be an aristocrat or a reactionary to write a good proletarian poem.
+ - It is a commonplace that Racine is untranslatable. This is not because his verse is difficult, but because it is not.
+ - Marriage is the last sacrament available to modern man, and with the terrible destruction of interpersonal relations by capitalism and its war-making State, it is not very available, nor is it surely enduring. But then, vision does not come with guarantees.
+ - With my own group I like to keep it loose. They have to counter rather than go with me. When they stop I like to be moving.
+ - You learn nothing if you carry with you a journalistic system of values, which is invented to save reporters from experience.
+ - You don’t become a saint until you lead a good life whether in Tibet or Italy or America.
+ - Did you know I staged the first performance in America of At the Hawk’s Well?
+ - There have always been those who, though they see tragedy as the outcome of freedom, will nevertheless judge that tragedy is not too high a price to pay.
+ - When the newspapers have got nothing else to talk about, they cut loose on the young. The young are always news. If they are up to something, that’s news. If they aren’t, that’s news too.
+ - Perhaps this is what really happens in life to most good men. They are not crucified. They simply pass through life and then die, and their passing influences just a few people to make them just a little happy.
+ - Ex-cons always say, “You never know what makes the wheels go round until you’ve done time in the joint.” This is even more true of psychiatric hospitals. It is a perfect mass hypostatization of society, the organization of the Social Lie.
+
+30 quotes

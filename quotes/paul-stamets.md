@@ -1,0 +1,30 @@
+ - Mycelium is Earth’s natural Internet.
+ - Fungi are the interface organisms between life and death.
+ - Lions mane may be our first smart mushroom. It is a safe, edible fungus that appears to confer cognitive benefits on our aging population.
+ - We need to have a paradigm shift in our consciousness. If we don’t get our act together and come in commonality and understanding with the organisms that sustain us today, not only will we destroy those organisms, but we will destroy ourselves.
+ - Growing the mycelium of the Chaga mushroom under laboratory conditions provides an ecologically friendly alternative supply of this unique medicinal mushroom.
+ - I love a challenge and saving the Planet seems like a good one.
+ - Mushrooms have many helpful nutrients, including beta glucans for immune enhancement, ergothioneines for antioxidative potentiation, nerve growth stimulators for helping brain function, and antimicrobial compounds for limiting viruses.
+ - Mushrooms are miniature pharmaceutical factories, and of the thousands of mushroom species in nature, our ancestors and modern scientists have identified several dozen that have a unique combination of talents that improve our health.
+ - Vitamin D from mushrooms is not only vegan and vegetarian friendly, but you can prepare your own by exposing mushrooms to the summer sun.
+ - Of all mushrooms commonly consumed, oyster mushrooms in the genus Pleurotus stand out as exceptional allies for improving human and environmental health. These mushrooms enjoy a terrific reputation as the easiest to cultivate, richly nutritious and medicinally supportive.
+ - Mycologists are few and far between. We are under-funded, poorly represented in the context of other sciences – ironic, as the very foundation of our ecosystems are directly dependent upon fungi, which ultimately create the foundation of soils.
+ - The task that we face today is to understand the language of nature.
+ - Although oyster mushrooms have been studied extensively and support health in a number of ways, it is also extremely important to always cook oyster mushrooms!
+ - I believe nature is a force of good. Good is not only a concept, it is a spirit.
+ - Disasters such as earthquakes, tsunamis, volcanoes, floods, oil spills and radioactive fallout cause massive death of people, pigs, bats and birds. These disasters also impact the immune health of survivors. All harbor viruses.
+ - If you do not know where the mushroom products you are consuming are grown, think twice before eating them.
+ - Chaga is one of the weirdest mushrooms you may ever see. A fungal parasite found on birch trees, Chaga is a hardened, blackened, crusty formation that looks like a bursting tumor.
+ - Although the trends are promising and reishi mushrooms exhibit a number of interesting medicinal properties, modern scientific techniques have yet to affirm its traditional ‘panacea polypore’ status.
+ - From dead plant matter to nematodes to bacteria, never underestimate the cleverness of mushrooms to find new food!
+ - Agarikon contains antiviral molecules new to science. Researchers for pharmaceutical companies may have missed its potent antiviral properties. Our analyses show that the mycelial cultures of this mushroom are most active but that the fruitbodies, the natural form of the mushroom, are not.
+ - Enoki mushrooms, a tasty variety commonly sold in grocery stores, were one of the first mushrooms studied for preventing cancer.
+ - Today, reishi stands out as one the most valuable of all polypore mushrooms in nature for the benefit of our health. Many naturopaths and doctors prefer organically-grown reishi from pristine environments because they are more pure.
+ - If we just stay at the crest of the mycelial wave, it will take us into heretofore unknown territories that will be just magnificent in their implications.
+ - Nature is a numbers game. We need all the support we can get as our immune systems and health are under assault from pollution, stress, contaminated food and age-related diseases as our lifespans increase.
+ - The virus-to-cancer connection is where medicinal mushrooms offer unique opportunities for medical research.
+ - Known colloquially as ‘winter,’ ‘golden needle,’ and ‘velvet foot’ mushrooms, enoki mushrooms grow across much of the world, inhabiting dead conifer trees and stumps, and generally appearing throughout the late fall and winter months.
+ - In the wild, an enoki mushroom is often squat-looking and its stem is rarely more than twice as long as the cap is wide. When they are grown by farmers and hobbyists, however, their stems elongate, the caps are smaller, and a forest of golden colored needle-like mushrooms shoot up all at once.
+ - For many years, I have sought and studied Agarikon, an unusual mushroom native to the old growth conifer forests of North America and Europe.
+
+28 quotes

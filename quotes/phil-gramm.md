@@ -1,0 +1,27 @@
+ - I don’t accept defeat as final. Only death is final – and even then I hope for a reprieve.
+ - I love Texas because Texas is future-oriented, because Texans think anything is possible. Texans think big.
+ - Government is not the generator of economic growth; working people are.
+ - We’re going to keep building the party until we’re hunting Democrats with dogs.
+ - If I brought groceries the way I buy health insurance, I’d eat a lot better – and so would my dog.
+ - I look at subprime lending and I see the American dream in action.
+ - I own more shotguns than I need. But less shotguns than I want.
+ - Balancing the budget is like going to heaven. Everybody wants to do it, but nobody wants to do what you have to do to get there.
+ - I have the most reliable friend you can have in American politics, and that is ready money.
+ - Thank God the economy is not as bad as you read in the newspaper every day.
+ - It’s not fair to say that people who work with their head or with their hands ought to pay taxes, but people who earn their living with capital ought not to.
+ - We’re the only nation in the world where most of our poor people are fat.
+ - The genius of the American system is that we have created extraordinary results from plain old ordinary people.
+ - We have benefited greatly from the globalization of the economy in the last 30 years.
+ - You just hear this constant whining, complaining about a loss of competitiveness, America in decline.
+ - Running for president must be like having babies. You have to forget what it was like the last time before you want to do it again.
+ - I did not come to Washington to be loved, and I have not been disappointed.
+ - Quite frankly, I think nothing could do more to immediately bolster national security then enabling us to produce more oil and gas here at home at a price consumers could afford.
+ - All over the world, people want to know what kind of people Texans are, and I explain that Texans are America’s ideal Americans.
+ - I’m carrying so much pork, I’m beginning to get trichinosis.
+ - Sophia Loren is not a citizen.
+ - Half the world does not know the joy of wearing cotton underwear.
+ - I would be the last person who would say immigrants are not important to America.
+ - You’ve heard of mental depression; this is a mental recession.
+ - Granting amnesty to people who broke the law penalizes the millions of people who are waiting to come to America legally.
+
+25 quotes

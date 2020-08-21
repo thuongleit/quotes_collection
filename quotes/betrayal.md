@@ -1,0 +1,42 @@
+ - Each betrayal begins with trust. ~~Martin Luther
+ - The lesser the friends, the lesser the chances of betrayal. ~~Tupac Shakur
+ - Trust is earned, respect is given, and loyalty is demonstrated. Betrayal of any one of those is to lose all three. ~~Ziad K. Abdelnour
+ - That was how dishonesty and betrayal started, not in big lies but in small secrets. ~~Amy Tan
+ - The liar’s punishment is not in the least that he is not believed, but that he cannot believe anyone else. ~~George Bernard Shaw
+ - Always seek less turbulent skies. Hurt. Fly above it. Betrayal. Fly above it. Anger. Fly above it. You are the one who is flying the plane. ~~Marianne Williamson
+ - Betrayal, abandonment, deceit and manipulation. ~~Bill Cosby
+ - Let’s call cheating what it is: a complete betrayal of trust. ~~Greg Behrendt
+ - Even loss and betrayal can bring us awakening. ~~Buddha
+ - We have to distrust each other. It is our only defense against betrayal. ~~Tennessee Williams
+ - Betrayal answers betrayal, the mask of love is answered by the disappearance of love. ~~Albert Camus
+ - We forget all too soon the things we thought we could never forget. We forget the loves and the betrayals alike, forget what we whispered and what we screamed, forget who we were. ~~Joan Didion
+ - In a restless heart the seed of betrayal lay. ~~Bruce Springsteen
+ - Just because they say they’re praying for you in your face, doesn’t mean they aren’t laughing at your struggle behind your back. ~~Trent Shelton
+ - Confession is not betrayal. What you say or do doesn’t matter; only feelings matter. If they could make me stop loving you-that would be the real betrayal. ~~George Orwell
+ - Two people who were once very close can without blame or grand betrayal become strangers. Perhaps this is the saddest thing in the world. ~~Warsan Shire
+ - In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so. ~~Immanuel Kant
+ - I could never hurt him enough to make his betrayal stop hurting. And it hurts, in every part of my body. ~~Veronica Roth
+ - For only when faithfulness turns to betrayal And betrayal into trust Can any human being become part of the truth. ~~Rumi
+ - While overeating would be seen by some as an indulgence of self, it is in fact a profound rejection of self. It is a moment of self-betrayal and self-punishment, and anything but a commitment to one’s own well-being. ~~Marianne Williamson
+ - Some people are willing to betray years of friendship just to get a little bit of the spotlight. ~~Lauren Conrad
+ - It is undoubtedly easier to believe in absolutes, follow blindly, mouth received wisdom. But that is self-betrayal. ~~John Ralston Saul
+ - The betrayal of a belief is not the same thing as ceasing to believe. If this were not so there would be no moral standards in the world at all. ~~James Baldwin
+ - He that has eyes to see and ears to hear may convince himself that no mortal can keep a secret. If his lips are silent, he chatters with his fingertips; betrayal oozes out of him at every pore. ~~Sigmund Freud
+ - I think given the choice between loving Mare – betrayal included – and never knowing her, I’d chose love. I risked, and I lost, but the risk was still worth it. ~~Brandon Sanderson
+ - Love all, trust a few, do wrong to none. ~~William Shakespeare
+ - It is more shameful to distrust our friends than to be deceived by them. ~~Confucius
+ - The highest, most decisive experience is to be alone with one’s own self. You must be alone to find out what supports you, when you find that you can not support yourself. Only this experience can give you an indestructible foundation. ~~C.G. Jung
+ - I used to advertise my loyalty and I don’t believe there is a single person I loved that I didn’t eventually betray. ~~Albert Camus
+ - My heart is the throne of the Beloved, the Beloved the heart’s destiny: Whoever breaks another’s heart will find no homecoming in this world or any other. ~~Yunus Emre
+ - I would never betray a friend to serve a cause. Never reject a friend to help an institution. Great nations may fall in ruin before I would sell a friend to save them. ~~Edward Abbey
+ - But now the joy is gone and the sadness is back, the sadness feels like something deserved, the price of some not-quite-forgotten betrayal. ~~Stephen King
+ - The male, for all his bravado and exploration, is the loyal one, the one who generally feels love. The female is skilled at betrayal and torture and damnation. ~~Charles Bukowski
+ - Sincerity is a great but rare virtue, and we pardon to it much complaining, and the betrayal of many weaknesses. ~~Henry David Thoreau
+ - The most dangerous follower is the one whose defection would destroy the whole party: hence, the best follower. ~~Friedrich Nietzsche
+ - I find life itself provides ample and sufficient tests of my valor and mettle: illness; betrayal; fruitless searches for love; working for the abusive, the insane, and the despotic. All challenges easily as thrilling to me as scrambling over icy rock in a pair of barely adequate boots. ~~David Rakoff
+ - It is most true, stylus virum arguit, – our style betrays us. ~~Robert A. Burton
+ - To reduce the imagination to a state of slavery – even though it would mean the elimination of what is commonly called happiness – is to betray all sense of absolute justice within oneself. Imagination alone offers me some intimation of what can be. ~~André Breton
+ - Violent antipathies are always suspicious, and betray a secret affinity. ~~William Hazlitt
+ - A promise made is a debt unpaid. ~~Robert W. Service
+
+40 quotes

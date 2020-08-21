@@ -1,0 +1,136 @@
+ - Never be afraid to trust an unknown future to a known God.
+ - Worry does not empty tomorrow of its sorrow. It empties today of its strength.
+ - Faith sees the invisible, believes the unbelievable, and receives the impossible.
+ - Is prayer your steering wheel or your spare tire?
+ - When a train goes through a tunnel and it gets dark, you don’t throw away the ticket and jump off. You sit still and trust the engineer.
+ - Forgiveness is the key that unlocks the door of resentment and the handcuffs of hatred. It is a power that breaks the chains of bitterness and the shackles of selfishness.
+ - If you look at the world, you’ll be distressed. If you look within, you’ll be depressed. If you look at God you’ll be at rest.
+ - You can never learn that Christ is all you need, until Christ is all you have.
+ - Let God’s promises shine on your problems.
+ - There is no pit so deep, that God’s love is not deeper still.
+ - Worrying is carrying tomorrow’s load with today’s strength- carrying two days at once. It is moving into tomorrow ahead of time. Worrying doesn’t empty tomorrow of its sorrow, it empties today of its strength.
+ - We must mirror God’s love in the midst of a world full of hatred. We are the mirrrors of God’s love, so we may show Jesus by our lives.
+ - Hold loosely to the things of this life, so that if God requires them of you, it will be easy to let them go.
+ - If the devil cannot make us bad, he will make us busy.
+ - Don’t pray when you feel like it. Have an appointment with the Lord and keep it.
+ - Worry is a cycle of inefficient thoughts whirling around a center of fear.
+ - God buries our sins in the depths of the sea and then puts up a sign that reads, “No fishing.”
+ - Forgiveness is setting the prisoner free, only to find out that the prisoner was me.
+ - It is not my ability, but my response to God’s ability, that counts.
+ - God has plans, not problems for our lives. The life of a Christian is an education for a higher service. God is training you for something.
+ - If all things are possible with God, then all things are possible to him who believes in Him.
+ - Faith is like radar that sees through the fog – the reality of things at a distance that the human eye cannot see.
+ - In order to realize the worth of the anchor we need to feel the stress of the storm.
+ - The safest place to be is in the center of God’s will.
+ - Does being born into a Christian family make one a Christian? No! God has no grandchildren.
+ - Worry does not empty tomorrow of its sorrow, it empties today of its strength. it does not enable us to escape evil. It makes us unfit to face evil when it comes. it is the interest you pay on trouble before it comes.
+ - I have learned to hold all things loosely, so God will not have to pry them out of my hands.
+ - You never so touch the ocean of God’s love as when you forgive and love your enemies.
+ - The measure of a life, after all, is not its duration, but its donation.
+ - Worry is an old man with bended head, carrying a load of feathers which he thinks are lead.
+ - Love is the strongest force in the world.
+ - There is no panic in Heaven! God has no problems, only plans.
+ - A person is either a missionary or a mission field.
+ - What wings are to a bird, and sails to a ship, so is prayer to the soul.
+ - The best learning I had came from teaching.
+ - Hold everything in your hands lightly, otherwise it hurts when God pries your fingers open.
+ - Any concern too small to be turned into a prayer is too small to be made into a burden.
+ - This is what the past is for! Every experience God gives us, every person He puts in our lives is the perfect preparation for the future that only He can see.
+ - In God’s faithfulness lies eternal security.
+ - Trying to do the Lord’s work in your own strength is the most confusing, exhausting, and tedious of all work. But when you are filled with the Holy Spirit, then the ministry of Jesus just flows out of you.
+ - Don’t bother to give God instructions; just report for duty.
+ - A man is powerful on his knees.
+ - Forgiveness is an act of the will, and the will can function regardless of the temperature of the heart.
+ - Faith is like radar that sees through the fog.
+ - No pit is so deep that He is not deeper still; with Jesus even in our darkest moments, the best remains and the very best is yet to be.
+ - Jesus loves sinners. He only loves sinners. He has never turned anyone away who came to Him for forgiveness, and He died on the cross for sinners, not for respectable people.
+ - As a camel kneels before his master to have him remove his burden at the end of the day, so kneel each night and let the Master take your burden.
+ - If God sends us on strong paths, we are provided strong shoes.
+ - There are no ‘ifs’ in God’s Kingdom. His timing is perfect. His will is our hiding place. Lord Jesus, keep me in Your will! Don’t let me go mad by poking about outside it.
+ - The school of life offers some difficult courses, but it is in the difficult class that one learns the most.
+ - Expect resistance but pray for miracles!
+ - Four marks of true repentance are: acknowledgement of wrong, willingness to confess it, willingness to abandon it, and willingness to make restitution.
+ - There are no ‘if’s’ in God’s world. And no places that are safer than other places. The center of His will is our only safety – let us pray that we may always know it!
+ - In darkness God’s truth shines most clear.
+ - He uses our problems for His miracles. This was my first lesson in learning to trust Him completely...
+ - If Jesus were born one thousand times in Bethlehem and not in me, then I would still be lost.
+ - Thank you, Lord, that You are the Conqueror and that You want to make us more than conquerors.
+ - The first step on the way to victory is to recognize the enemy.
+ - God, make me willing to be made willing.
+ - Only Heaven will reveal the top part of God’s tapestry.
+ - When I try, I fail. When I trust, He succeeds.
+ - Memories are the key not to the past, but to the future.
+ - The human spirit fails, except when the Holy Spirit fills.
+ - Jesus did not promise to change the circumstances around us. He promised great peace and pure joy to those who would learn to believe that God actually controls all things.
+ - We can’t solve problems for others. We can introduce them to the Lord.
+ - Today I know that such memories are the key not to the past, but to the future. I know that the experiences of our lives, when we let God use them, become the mysterious and perfect preparation for the work He will give us to do.
+ - You see, a potter can only mold the clay when it lies completely in his hand. It requires complete surrender.
+ - You can’t love God without loving the Jewish people.
+ - You know, eternal life does not start when we go to heaven. It starts the moment you reach out to Jesus. He never turns His back on anyone. And He is waiting for you...
+ - When a Christian shuns fellowship with other Christians, the devil smiles, When he stops studying the Bible, the devil laughs. When he stops praying, the devils shouts for joy.
+ - Only to those who have been in prison does freedom have such great meaning.
+ - The devil smiles when we are up to our ears in work, but he trembles when we pray.
+ - What a sad mistake we sometimes make when we think that God only cares about Christians.
+ - Child, you have to learn to see things in the right proportions. Learn to see great things great and small things small.
+ - Don’t hold onto anything so tightly that Jesus can’t take it from you.
+ - Discernment is God’s call to intercession, never to faultfinding.
+ - In the center of a hurricane there is absolute peace and quiet. There is no safer place than in the center of the will of God.
+ - Be united with other Christians. A wall with loose bricks is not good. The bricks must be cemented together.
+ - A religion that is small enough for our understanding would not be big enough for our needs.
+ - Children need the wisdom of their elders; the aging need the encouragement of a child’s exuberance.
+ - I have experienced His presence in the deepest hell that man can create. I have really tested the promises of the Bible, and believe me, you can count on them.
+ - We never know how God will answer our prayers, but we can expect that He will get us involved in His plan for the answer. If we are true intercessors, we must be ready to take part in God’s work on behalf of the people for whom we pray.
+ - Perhaps only when human effort had done it’s best and failed, would God’s power alone be free to work.
+ - When you want to work for God start a committee. When you want to work with God start a prayer group.
+ - I would much rather be the trusting child of a rich Father, than a beggar at the door of worldly men.
+ - The amount of God’s love is unlimited, but we only receive as much as we use.
+ - Oh, this was the great ploy of Satan in that kingdom of his: to display such blatant evil one could almost believe one’s own secret sin didn’t matter.
+ - If God has called you, do not spend time looking over your shoulder to see who is following you.
+ - The life of a Christian is an education for higher service.
+ - We are not a postwar generation, but a pre-peace generation. Jesus is coming.
+ - Forgiveness is not an emotion; it is an act of the will.
+ - The Lord never makes a mistake. One day, when we are in heaven, I’m sure we shall see the answers to the whys.
+ - Your love in me is stronger than the hatred.
+ - When you are covered by His wings, it can get pretty dark.
+ - There is an ocean of Gods love available-there is plenty for everyone. May God grant you never to doubt that victorious love-whatever the circumstances.
+ - We deal with God – who is Love. He isn’t a dictator. He is a loving Father. There is no end to what He would like to do for us.
+ - Surely there is no more wretched sight that the human body unloved and uncared for.
+ - Love is larger than the walls which shut it in.
+ - Lord, we claim your strength to serve you, no matter what our circumstances may be. Amen.
+ - If God has shown us bad times ahead, it’s enough for me that He knows about them. That’s why He sometimes shows us things, you know – to tell us that this too is in His hands.
+ - God only make plans, no problems. In heaven, there is never panic.
+ - God can give a straight blow with a crooked stick.
+ - God has plans, not problems for our lives.
+ - When He tells us to love our enemies He gives, along with the command, the love itself.
+ - When a house is on fire and you know that there are people in it, it is a sin to straighten pictures in that house. When the world about you is in great danger, works that are in themselves not sinful can be quite wrong.
+ - In this dark world, the Lord Jesus gave us the task of passing on His love.
+ - Voltaire expected that within fifty years of his lifetime there would not be one Bible in the world. His house is now a distribution center for Bibles in many languages.
+ - To pray only when in peril is to use safety belts only in heavy traffic.
+ - Although the threads of my life have often seemed knotted, I know, by faith, that on the other side of the embroidery there is a crown...
+ - No matter how deep our darkness, he is deeper still.
+ - And our wise Father in heaven knows when we’re going to need things too. Don’t run out ahead of Him.
+ - If the Gospels were truly the pattern of God’s activity, then defeat was only the beginning.
+ - How often it is a small, almost unconscious event that makes a turning point.
+ - God raises the level of the impossible.
+ - And for all these people alike, the key to healing turned out to be the same. Each had a hurt he had to forgive.
+ - It hurts when God has to PRY things out of our hand!
+ - Worries carry responsibilitie s that belong to God, not to you. Worry does not enable us to escape evil; it makes us unfit to cope with it when it comes.
+ - If a bird is flying for pleasure, it flies with the wind, but if it meets danger it turns and faces the wind, in order that it may rise higher.
+ - More and more the distinction between prayer and the rest of life seemed to be vanishing for Betsie.
+ - What joy that the Bible tells us the great comfort that the best is yet to be. Our outlook goes beyond this world.
+ - My father prayed because he had a good friend with whom to share the problems of the day.
+ - You are redeemed and you are also victorious, over your sins in Jesus.
+ - If we forgive other people, our hearts are made fit to receive forgiveness.
+ - You are not reconciled to God if you are unreconciled with your fellow human beings.
+ - Nobody can take away from you those texts from the Bible which you have learned by heart.
+ - If you have an important decision to make, or even a small one, it is good to make your decision with the guidance of the Lord.
+ - How rich is anyone who can simply see human faces.
+ - On the other hand, I have never before so learned to know the Lord Jesus as a tender, loving Friend, who never forsakes us or casts us off when we are bad, but rather helps us to gain the mastery over sin.
+ - We are born into God’s kingdom when we ask the Lord Jesus to come into our lives. But this is only the beginning.
+ - I knew my life had been given back for a purpose.
+ - Worry is like racing the engine of an automobile without letting in the clutch.
+ - Satan sometimes suggests that an offering will satisfy God, when in fact He is demanding our all.
+ - There is explosive power in virtue.
+ - You saw we could lose our lives for this child. I would consider that the greatest honor that could come to my family.
+
+134 quotes

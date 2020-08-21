@@ -1,0 +1,50 @@
+ - Life will hit you hard in the face, wait for you to get back up just so it can kick you in the stomach. But getting the wind knocked out of you is the only way to remind your lungs how much they like the taste of air.
+ - I have seen the best of you, and the worst of you, and I choose both.
+ - And know this: Know you are the type of woman who is searching for a place to call yours. Let the statues crumble. You have always been the place. You are a woman who can build it yourself. You were born to build.
+ - Forgive yourself for the decisions you have made, the ones you still call mistakes when you tuck them in at night.
+ - No matter your wreckage. There will be someone to find you beautiful, despite the cruddy metal. Your ruin is not to be hidden behind paint and canvas. Let them see the cracks. Someone will come to sing into these empty spaces.
+ - Because there’s nothing more beautiful than the way the ocean refuses to stop kissing the shoreline, no matter how many times it’s sent away.
+ - Artistry is important. Skill, hard work, rewriting, editing, and careful, careful craft: All of these are necessary. These are what separate the beginners from experienced artists.
+ - Remember that good things come in threes and so do bad things and always apologize when you’ve done something wrong but don’t you ever apologize for the way your eyes refuse to stop shining.
+ - There is hurt that cannot be fixed by band aids or poetrybecause no matter how wide you stretch your fingers, your hands will always be too small to catch all the pain you want to heal. Believe me, I’ve tried.
+ - This world is made out of sugar. It can crumble so easily but don’t be afraid to stick your tongue out and taste it.
+ - Still now I send letters into space Hoping that some mailman somewhere will track you down And recognise you from the descriptions in my poems That he will place the stack of them in your hands and tell you, There is a girl who still writes you, she doesn’t know how not to.
+ - If I should have a daughter, instead of Mom, she’s gonna call me Point B, because that way she knows that no matter what happens, at least she can always find her way to me.
+ - I write poems to figure things out.
+ - Most days it feels as if the world is whirling around me and I am standing still. In slow motion, I watch the colors blur; people and faces all become a massive wash.
+ - I use poetry to help me work through what I don’t understand, but I show up to each new poem with a backpack full of everywhere else that I’ve been.
+ - My self-confidence can be measured out in teaspoons mixed into my poetry, and it still always tastes funny in my mouth.
+ - Things that I have a hard time being able to fully grasp, sometimes writing the poem helps me work through it. Or I get to the end of the poem and I still haven’t figured anything out, but at least I have a new poem out of it.
+ - It’s not just the adage ‘write what you know,’ it’s about gathering up all of the knowledge and experience you’ve collected up to now to help you dive into the things you don’t know.
+ - Hands learn more than minds do, hands learn how to hold other hands...
+ - It does not matter how strong your gravity is, we were always meant to fly.
+ - You are not made of metaphors, Not apologies, not excuses.
+ - Spoken word teaches that if you have the ability to express yourself and the courage to present those stories and opinions, you could be rewarded with a room full of your peers or your community who will listen.
+ - Not all poetry wants to be storytelling. And not all storytelling wants to be poetry. But great storytellers and great poets share something in common: They had something to say, and did.
+ - Some people read palms to tell your future, but I read hands to tell your past. Each scar makes a story worth telling. Each callused palm, each cracked knuckle is a missed punch or years in a factory.
+ - The first spoken word poem I ever wrote was when I was 14 and I wrote it because I was accidentally signed up for a teen poetry slam. Because I loved poetry I said that I’d try it out.
+ - You can only fit so many words in a postcard, only so many in a phone call, only so many into space before you forget that words are sometimes used for things other than filling emptiness.
+ - Fingers interlocked like a beautiful accordion of flesh or a zipper of prayer.
+ - I love books that create worlds for me that I don’t want to leave. I recently lost my entire life to Haruki Murakami – 1Q84. I tell people that book ruined my life in the best possible way. I couldn’t think of anything else for weeks after I read it.
+ - Nothing is as universal as some good scatalogical humor. Even if it means having to be a little silly or cheeky, I think it is worth it.
+ - It is equally important to listen as it is to speak.
+ - I do like celebrating women, I do like celebrating different lifestyles and choices and people and it makes me happy when others find my work empowering.
+ - Poetry makes people nervous. Especially in schools.
+ - I write poetry to figure things out. Any time I’m trying to wrap my head around something, poetry is like a puzzle-solving strategy for me.
+ - When words become a poem, it makes sense to me, but I don’t know how to explain to someone why the words are the way they are. It’s just the logic of the poem to me.
+ - Poetry is like a puzzle-solving strategy for me. I like to poem my way through tricky questions and ideas. That’s about the only consistent thread through my poem-creation process.
+ - I want to welcome folks to poetry, especially those who may have previously felt unwelcome; I want to celebrate everyone who is trying to make sense of this world through poetry the way I try to.
+ - I often tell people to stop being afraid of writing bad poetry, or bad anything. I think that a lot of times, when people claim that they have writer’s block, or that they get stuck, it’s just because they’re scared of writing bad things.
+ - Thinking about writing as an act of celebration is sometimes a helpful framework for me. It allows me to prioritize what I want to call attention to and what I want others to know about me. It makes me ask: What is worth celebrating?
+ - There are parts of me I only recognize from photographs.
+ - Every moment I choose to write about is one I have deemed important enough to dwell inside of and share with others. I am holding this moment up to the light and saying, “Wow, will you look at that?”
+ - One thing that I believe is that every time I write something, I am taking the time to celebrate. Even if I am writing a sad story or an angry poem, I am still giving those stories my time and attention.
+ - I think there is a human instinct to tell stories, no matter who you are or where you live.
+ - Part of what I try to do in schools is take poetry off of a pedestal and make it a little more accessible and approachable.
+ - Our day-to-day lives are pretty chaotic. So in terms of the writing part, you have to get pretty disciplined about finding quiet moments and making sure you’re making time for the art side, on top of all the time-consuming business side.
+ - One of my highest priorities as an educator is to be as inclusive as possible.
+ - I fell in love with poetry through storytelling, so my poetry tends to be fairly narrative. I like characters, I like having a beginning, middle, and ending, though not necessarily in that order.
+ - You can be an artist, work hard for your work and also share while trying to create community with other artists.
+ - Ever hear that expression, “it was the best of times, it was the worst of times”? That’s what high school was like for me. Both of those – all the time.
+
+48 quotes

@@ -1,0 +1,42 @@
+ - Regret is a form of punishment itself. ~~Nouman Ali Khan
+ - The price of discipline is always less than the pain of regret. ~~Nido R. Qubein
+ - Never look back in regret – move on to the next thing. ~~Richard Branson
+ - Discipline weighs ounces and regret weighs tons. ~~Jim Rohn
+ - Live fast, fight hard, no regrets! ~~John Cena
+ - In a world where death is the hunter, my friend, there is no time for regrets or doubts. There is only time for decisions. ~~Carlos Castaneda
+ - Never regret anything that makes you smile. ~~Audrey Hepburn
+ - It is not the things we do in life that we regret on our death bed. It is the things we do not. ~~Randy Pausch
+ - Regrets are illuminations come too late. ~~Joseph Campbell
+ - Bravery is the solution to regret. ~~Robin S. Sharma
+ - Life is simple: Make choices and don’t look back. ~~Sung Kang
+ - Do not regret what you have done. ~~Miyamoto Musashi
+ - If you don’t set goals, you can’t regret not reaching them. ~~Yogi Berra
+ - Why didn’t I learn to treat everything like it was the last time. My greatest regret was how much I believed in the future. ~~Jonathan Safran Foer
+ - There are no regrets in life, just lessons. ~~Jennifer Aniston
+ - As far as Im concerned, I regret nothing. ~~Miyamoto Musashi
+ - Never say that you regret something, because at one point in your life, you wanted it. ~~Drake
+ - The only time you really live fully is from thirty to sixty. The young are slaves to dreams; the old servants of regrets. Only the middle-aged have all their five senses in the keeping of their wits. ~~Theodore Roosevelt
+ - You can’t win an argument. You can’t because if you lose it, you lose it; and if you win it, you lose it. ~~Dale Carnegie
+ - Regret is such a pointless emotion, don’t you agree? ~~Cassandra Clare
+ - Until we have finally accepted the fact that there is nothing we can do to change the past, our feelings of regret and remorse and bitterness will prevent us from designing a better future with the opportunity that is before us today. ~~Jim Rohn
+ - No regrets, just love. We can dance until we die. You and I, we’ll be young forever! ~~Katy Perry
+ - The great tragedy of the average man is that he goes to his grave with his music still in him. ~~Henry Wadsworth Longfellow
+ - Don’t be on your deathbed someday, having squandered your one chance at life, full of regret because you pursued little distractions instead of big dreams. ~~Derek Sivers
+ - It was like trying to bail out an ocean of water with a teaspoon. ~~Jodi Picoult
+ - I don’t regret any of the decisions I’ve made in my life. Because with every choice I’ve made, I’ve learned something new. ~~Ariana Grande
+ - When I look at my life I realise that the mistakes I have made, the things I really regret, were not errors of judgement but failures of feeling. ~~Jeanette Winterson
+ - Dead people receive more flowers than the living ones because the regret is stronger than gratitude. ~~Anne Frank
+ - I’m very versatile and there’s nothing I really regret in my life. I’m excited with who I am and I’m just going to keep riding the wave. ~~Rick Ross
+ - The only regret I will have in dying is if it is not for love. ~~Gabriel Garcí­a Márquez
+ - She was stronger alone; and her own good sense so well supported her, that her firmness was as unshaken, her appearance of cheerfulness as invariable, as, with regrets so poignant and so fresh, it was possible for them to be. ~~Jane Austen
+ - Sacrifice is a part of life. It’s supposed to be. It’s not something to regret. It’s something to aspire to. Little sacrifices. Big sacrifices. A mother works so her son can go to school. A daughter moves home to take care of her sick father. ~~Mitch Albom
+ - I guess if a person didn’t quit when the going got tough, they wouldn’t have anything to regret for the rest of their life. ~~Lance Armstrong
+ - The one thing I regret was that my work required an enormous amount of my time, and a lot of travel. ~~Neil Armstrong
+ - Long were the days of pain I have spent within its walls, and long were the nights of aloneness; and who can depart from his pain and his aloneness without regret? ~~Khalil Gibran
+ - She was fabulously wrong when she said it the first time, and stunningly arrogant in her refusal to express any regret for lying to our fellow citizens. ~~Trey Gowdy
+ - To give up yourself without regret is the greatest charity. ~~Bodhidharma
+ - Live with intention. Walk to the edge. Listen hard. Practice wellness. Play with abandon. Laugh. Choose with no regret. Appreciate your friends. Continue to learn. Do what you love. Live as if this is all there is. ~~Mary Anne Radmacher
+ - Making a big life change is pretty scary. But know what’s even scarier? Regret. ~~Zig Ziglar
+ - I don’t think I have any regrets, but I can tell you what I learned from mistakes or failures. I’ve had plenty of those. I just don’t believe in regret, and my economic world is not what I would ever have imagined; I’m financially free. ~~Tony Robbins
+
+40 quotes

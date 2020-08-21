@@ -1,0 +1,27 @@
+ - Pen-bereavement is a serious matter.
+ - You can miss a lot by sticking to the point.
+ - If the soul cannot find its jacket. it is condemned to an eternity of wandering – naked and alone.
+ - I’d rather have a book, but in a pinch I’ll settle for a set of Water Pik instructions.
+ - It is a truism of epistolary psychology that, for example, a Christmas thank-you note written on December 26 can say any old thing, but if you wait until February, you are convinced that nothing less than Middlemarch will do.
+ - It is a grave error to assume that ice cream consumption requires hot weather.
+ - Our view of reality is only a view, not reality itself.
+ - A philosophy professor at my college, whose baby became enamored of the portrait of David Hume on a Penguin paperback, had the cover laminated in plastic so her daughter could cut her teeth on the great thinker.
+ - E-mail is a modern Penny Post: the world is a single city with a single postal rate.
+ - If my father were still writing essays, every full-grown ‘girl’ would probably be transformed into a’woman’.
+ - For me, literature is a way of enlarging myself by learning about people who are not like me.
+ - If you truly love a book, you should sleep with it, write in it, read aloud from it, and fill its pages with muffin crumbs.
+ - Reading aloud means no skipping, no skimming, no cutting to the chase.
+ - To use an electronics analogy, closing a book on a bookmark is like pressing the Stop button, whereas when you leave the book facedown, you’ve only pressed Pause.
+ - In my view, nineteen pounds of old books are at least nineteen times as delicious as one pound of fresh caviar.
+ - Americans admire success. Englishmen admire heroic failure.
+ - It has long been my belief that everyone’s library contains an Odd Shelf. On this shelf rests a small, mysterious completely unrelated to the rest of the library, yet which, upon closer inspection, reveals a good deal about its owner.
+ - Anyone who doubts that caffeine is a drug should read some of the prose composed under its influence.
+ - The action most worth watching is not at the center of things, but where edges meet.
+ - I have never been able to resist a book about books.
+ - One reason we have children I think is to learn that parts of ourselves we had given up for dead are merely dormant and that the old joys can re emerge fresh and new and in a completely different form.
+ - I, on the other hand, believe that books, maps, scissors, and Scotch tape dispensers are all unreliable vagrants, likely to take off for parts unknown unless strictly confined to quarters.
+ - When I visit a new bookstore, I demand cleanliness, computer monitors, and rigorous alphabetization. When I visit a secondhand bookstore, I prefer indifferent housekeeping, sleeping cats, and sufficient organizational chaos...
+ - I can imagine few worse fates than walking around for the rest of one’s life wearing a typo.
+ - I can think of few better ways to introduce a child to books than to let her stack them, upend them, rearrange them, and get her fingerprints all over them.
+
+25 quotes

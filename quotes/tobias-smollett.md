@@ -1,0 +1,25 @@
+ - Some folks are wise and some are otherwise.
+ - Thy spirit, Independence, let me share! Lord of the lion-heart and eagle-eye thy steps I follow with my bosom bare, nor heed the storm that howls along the sky.
+ - Number three is always fortunate.
+ - To the valiant actions speak alone.
+ - True courage scorns to vent her prowess in a storm of words; and to the valiant action speaks alone.
+ - The Highlanders regale themselves with whisky. They find it an excellent preservation against the winter cold. It is given with great success to the infants in the confluent smallpox.
+ - There is not room to swing a cat.
+ - The capital is become an overgrown monster; which, like a dropsical head, will in time leave the body and extremities without nourishment and support.
+ - The bread I eat in London, is a deleterious paste, mixed up with chalk, alum, and bone ashes: insipid to the taste, and destructive to the constitution.
+ - Who bravely dares must sometimes risk a fall.
+ - A man’s opinion of danger varies at different times, in consequence of an irregular tide of animal spirits; and he is actuated by considerations which he dares not avow.
+ - False as the fowler’s artful snare.
+ - I think for my part one half of the nation is mad – and the other not very sound.
+ - Writing is all a lottery – I have been a loser by the works of the greatest men of the age.
+ - And hearts resolved and hands prepared The blessings they enjoy to guard.
+ - Ridiculous modes, invented by ignorance, and adopted by folly.
+ - Glory is the child of peril.
+ - Nature and wisdom are not, but should be, companions.
+ - One wit, like a knuckle of ham in soup, gives a zest and flavour to the dish, but more than one serves only to spoil the pottage.
+ - Opposition is the very spur of love.
+ - Of this diversion the Scots are so fond, that, when the weather will permit, you may see a multitude of all ranks, from the senator of justice to the lowest tradesman, mingled together, in their shirts, and following the balls with utmost eagerness.
+ - Every shot has its commission, d’ye see? We must all die at one time, as the saying is.
+ - A mere index hunter, who held the eel of science by the tail.
+
+23 quotes

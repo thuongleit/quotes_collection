@@ -1,0 +1,130 @@
+ - You’re not really an adult at all. You’re just a tall child holding a beer, having a conversation you don’t understand.
+ - Don’t do it! Stay away from your potential. You’ll mess it up, it’s potential, leave it. Anyway, it’s like your bank balance – you always have a lot less than you think.
+ - Oh how I hate you. I hate you so much it gives me energy. I have to get up early in the morning just to hate you, because there’s not enough time in the day! Please GO AWAY!
+ - You can’t please everyone, nor should you seek to, because then you won’t please anyone, least of all yourself.
+ - Tequila? It’s not even a drink. It’s a way for having the cops around without using a phone.
+ - Men look at breasts the way women look at babies. ‘Aw, isn’t that lovely.’
+ - People will kill you over time, and how they’ll kill you is with tiny, harmless phrases, like ‘be realistic.’
+ - I’m a quitter. I come from a long line of quitters. It’s amazing I’m here at all.
+ - Nothing can make me feel better now, except cocaine.
+ - I don’t do drugs. If I want a rush I just stand up when I’m not expecting it.
+ - The terror of failure can make you feel like a failure. So a bunch of people think you’re not very good at your thing. How much do you invest in what they say? How much do you care? Failure is not putting yourself on the line.
+ - Women are like canoes, full of soup. At first everyone is suspicious but then everyone wants one.
+ - I’m not a fighter, I’m a bleeder.
+ - And yet, people still turn to Jesus. You will notice though that the kind of people who turn to Jesus tend to be the sort of people who haven’t done that well with everybody else.
+ - I’ve seen stand up comedy, and after a while you start to notice that a lot of people are doing things that are like a lot of other people. There can be a bit of a herd mentality, and that’s obviously less interesting because there’s less going on. I’m just being totally frank with you.
+ - Money can’t buy you love, but it can get you some really good chocolate ginger biscuits.
+ - I can’t relax here. These people have no pubic hair anywhere. We have pubic hair on the ceiling.
+ - I need a healthy injection of cynicism right now.
+ - You should be as alive as you can, until you’re totally dead!
+ - Why do I even dare to think I could dream I could imagine I could hope?
+ - I can’t swim. I can’t drive, either. I was going to learn to drive but then I thought, well, what if I crash into a lake?
+ - Look at his face. I bet his cornflakes try to crawl out of the bowl.
+ - I feel very very old. My hair hurts. I have buttocks all over my body and I can’t even smoke properly any more. I don’t have lungs, I just have two poppadoms in here.
+ - It’s easy to smile when you have a squirrel’s intellect.
+ - You know it’s a sad day when your child looks at you and asks ‘Daddy, are these organic?’
+ - You try various things when you’re growing up. I was an attache in the Foreign Service for a while and then I drove a bulldozer, but neither of those panned out for me so it had to be stand-up.
+ - I do pauses, pauses work for me.
+ - I’m really not big on nationalism, to be honest with you. I really don’t think it gets people anywhere except near a pile of dead bodies. I’m Irish, yeah, but I don’t need to get up on a soapbox about it.
+ - You exaggerate your own reactions.
+ - I’m a vegetarian, well I’m not hardcore because I eat meat, but only because I like the taste, and I hate vegetables on a personal level so I’m not too good!
+ - What are children anyway? Midget drunks. They greet you in the morning by kneeing you in the face and talking gibberish. They can’t even walk straight.
+ - I’m quite a compulsive person-I only worked this out recently-I’m compulsive, but I’m also very indecisive. I don’t know what I want, but I know that I want it now.
+ - A lot of the fiction I read growing up was post-war American, and not all of it centers on Manhattan, but around people of the Mad Men generation, people like John Cheever and, in more modern times, Don DeLillo, who I always mention.
+ - You achieve the surreal jokes through the realism by making it elastic.
+ - Don’t you DARE use party as a verb in my shop.
+ - I quite fancy the 1940s. I like the trams and the trousers.
+ - EGGS! They’re not a food, they belong in no group! They’re just farts clothed in substance!
+ - Everybody is corrupted by hotel rooms. You can’t help it. It’s the only place in the world where you walk in and the first think you do is steal everything before you take your coat off.
+ - I’m just trying to understand what’s around me as much as anyone else is, really. To draw a bead on a moving target.
+ - All the shy people are doomed! Natural selection favors the loud and the aggressive.
+ - When I was young, all the politicians looked like ancient Latin teachers or greengrocers. They were mumbly, stumbly men with their hair blowing in their eyes, walking into trees, opening the wrong door. They had no idea how to present themselves.
+ - Two young, fit, healthy attractive people in love? There’s nothing worse to look at in the world.
+ - Don’t clap I’m not a jazz band for Christ’s sake.
+ - We all know smoking is bad. I know I’m going to quit someday, if I thought I wasn’t I’d quit now.
+ - Because their bones are growing, they can only sleep in certain positions, obviously. The crucifix and the swastika tend to be the most popular. Sometimes a combination of the two.
+ - The truth is that I’m constitutionally incapable of doing an ordinary job.
+ - Have I had therapy? I went to a yoga class once.
+ - Shame is one of the greatest aphrodisiacs in the world, anyway, built into religion.
+ - You’re never going to go. Why would you go? It’s a disgusting place. It’s always wet even when it’s dry. There’s nothing there. Farmers aren’t really people, you know this. They’re just necessary, we need somebody to kill cows.
+ - Kids, they are always hurting themselves. It’s like, “Quick, get me to casualty quick!” while your doing something important like sitting down picking your ear.
+ - I think you should, yeah. You should wash your beard, then shave it off, nail it to a Frisbee and fling it over a rainbow.
+ - You’re not going to learn anything if you’re not prepared to go flat, so I’m very happy to go flat.
+ - I thought The Office was good, though I didn’t think of it as a sitcom, just as a very good programme.
+ - Paper acts as an eraser on the mind, as soon as you look at what you’ve written.
+ - He could dismiss several schools of philosophy by shifting slightly in his chair or toting his whisky glass.
+ - Irish people give big hellos and very little goodbyes. Unless they’re female, and then they spend five hours talking in the doorway to the person that’s leaving their house.
+ - Idioms are a big thing in Ireland. They want to fill the time, to show how good they are at talk – it’s a talk-off.
+ - The measure of a conversation is how much mutual recognition there is in it; how much shared there is in it. If you’re talking about what’s in your own head, or without thought to what people looking and listening will feel, you might as well be in a room talking to yourself.
+ - I’m Irish, yeah, but I don’t need to get up on a soapbox about it.
+ - You learn very very quickly that it is mostly about swearing, actually. That’s all you’re doing, swearing, in a box with wheels.
+ - America’s work ethic is non-stop; it’s not even enshrined in law that workers have to get their two weeks holiday money. But Americans work harder than everyone else I can think of.
+ - When things are going well, I can’t write fast enough to keep up with my mind. Writing walks, speech runs and talk flies. Other times, though, it’s like fishing.
+ - As an Irish person, there’s a historical fascination with America: America is the default green and promised land for Irish people and Italians; that’s what we grow up with.
+ - Children are very overprotected now, in lots of ways. We’re very nervous about them. You know, people go, “Don’t go outside! Or inside! Get into the cupboard with some spinach!” When I was a child they’d kick you out and you weren’t expected to come back until there were bats!
+ - I’m organised in some ways, but not in others.
+ - I have a very low level of recognition, which is fine by me.
+ - We are both drawn to surreal situations so the writing was a joy.
+ - It should not be an act of social disobedience to light a cigarette. Unless you’re actually a doctor working at an incubator.
+ - I’m very drawn to Eastern Europe, so I like a Hungarian writer who wrote in French called Emil Cioran; he was always good for giving me such a stir.
+ - I do not walk around imaging myself to be intimidating or smart.
+ - I’m actually about as famous as a fourth division footballer from the 70s.
+ - I think that women just have a primeval instinct to make soup, which they will try to foist on anybody who looks like a likely candidate.
+ - When did you ever hear of a child not in need? ‘Oh that’s enough jam tart for me, I’ll just go now and clean the toilets.’
+ - I never thought I want to do anything, really, except not go to work properly and turn up at the same place every day and eat sandwiches in the same canteen, if I can possibly help it, as I don’t think I’d be very good at it.
+ - I don’t have lungs anymore! Just two spare bags that flew in under a bridge one day.
+ - One thing that’s coming up a lot is: are you as grumpy as you appear from this Black Books thing.
+ - Cooking? Oh we were great, you’d take anything and melt cheese on it, and the one who could guess what it was didn’t have to wash up!
+ - I fear we might be losing the basic human facility to be alone – and with that you throw out independent decision-making, what to trust, what not to trust; key stuff – a perilous loss.
+ - There’s always a host of voices you’re inspired by. I love Don DeLillo, and I love Isaac Bashevis Singer, and I love Beckett, and I love Pinter. He’s one of the funniest voices in English literature since Dickens.
+ - You look like a horse in a man costume.
+ - I wanted to show off – a simple impulse or drive; in much the same way as some kids wanted to play football, I wanted to show off. Not complicated in that sense, very natural; it just depends on how you want to show off.
+ - I write all the time, but you just want to be careful what you put out. That’s all. You want to have the confidence that you’ve done what you need to do to it, because otherwise it’s an exercise in vanity.
+ - I have no qualifications to do anything else and there weren’t any formal application forms you had to fill in for stand-up, so I thought I’d give that a twist.
+ - You’re supposed to eat the cows. They’re great big lumbering stupid things – they’d be everywhere if we didn’t eat them.
+ - In the same way, there is some creature gnawing away inside of me, urging me to do things in different ways.
+ - Home gigs can be hard because it’s an odd collision. More than anything, I feel self-conscious when my family are in the audience. I’m doing this job which is not quite acting – part of it is me, part performance. You’re presenting a cartoon of yourself to people who know you as a line-drawing.
+ - America is this incredible mosaic of immigrants, so people really want to be anchored in some kind of culture as well as the one they are living in.
+ - The characters can’t be wittier than people are in real life. They have to be character witty.
+ - You know what you are? You’re a beard with an idiot hanging off it.
+ - I do think it’s perfectly natural and human to want to invest belief in something. It’s just a facet of who we are. What do I believe in? I believe in the obvious things. The people I’m close to and my work – it’s not complicated.
+ - The East is very mysterious to Westerners. Even post-Cold War, it’s still an unknown entity.
+ - I don’t go to different countries to criticise their political system and tell them what they should be doing – what do I know?
+ - I actually very rarely see comedy myself, and although I admire the work of some comics, it does come from all over, so I’ll get a charge out of some fiction writers and poets.
+ - I get a phone call once every 18 months from some mad person who wants me to do something for less than no money and they give me about a week’s notice. That’s my film career, most of the time.
+ - I don’t know what I want but I know that I want it now.
+ - I never really had a career, to be honest with you. I never in my life sat down and planned it. I have thought, ‘Oh, I’d like to do this,’ like anybody would. But I’m not the type that says, ‘If I do this, it will lead to that.’
+ - I don’t know that you’re able to measure your aggregate wisdom as you go through life. I can’t say that I ever feel that I’m sitting on top of a growing mound of wisdom.
+ - The trend now is to get away from stage bound sitcoms.
+ - I don’t want to do the same thing over and over again.
+ - A man does not know how he came by the half a pie he is holding in his hand!
+ - When I was a child, I wanted to watch things that made me laugh. It’s attacking boredom, as simple as that. I was 19 when I first went to a comedy club – I wanted to do it, so I gave it a try and that was it. I found my office.
+ - Showing off seemed to me to be a highly valuable and necessary activity when I was 20.
+ - It probably says something really clinically terrible about my character that I need to get up on a stage and go ‘Ra ra ra’ in front of people.
+ - Black Books adheres to a more old fashioned, traditional sitcom format, which I think works, because in its own way, it’s quite theatrical.
+ - It’s true that I have spoken about doing a book before, but then everyone you speak to is planning to write a book.
+ - What I prefer is an audience who listen. And are intelligent. Which I try and assume every audience is. And that if something goes wrong, it’s generally my fault and not theirs.
+ - If you’re a comic, you don’t have a rehearsal room, you rehearse on stage. My main concern is remembering everything.
+ - I was fat! I was pustule-rich! I looked like a pink human grenade! When did I blossom into the irresistible little orchid that I am now? I don’t know. Getting taller helps. It spreads out a bit.
+ - Maybe this is just me, but as time goes by, I’m more bewildered by modernity. It gets more unfathomable with every passing year.
+ - Lots of comics try stuff out all year round, which is very sensible – I don’t.
+ - I wish I was like you! You know startled by direct sunlight.
+ - I’m not drunk onstage, although I’ve done that a couple of times when I was younger. It’s partly just the way I talk – I talk like somebody in a rocking chair. I’m your 150-year-old grandmother.
+ - I think a lot of the time you just parody yourself.
+ - I don’t really think of myself as an actor.
+ - I’m just a guy who happens to work in public from time to time. I’ve built a reputation as an established comic, not as a celebrity – a celebrity is someone who is famous but doesn’t do anything.
+ - If I hadn’t done this I might have ended up digging the roads.
+ - Organic? I grew up on Angel Delight. We didn’t have anything in the house if it wasn’t neon!
+ - Do your own thing. Speak in your voice.
+ - I’m delighted to make as many people feel ashamed as possible. There’s probably a site like that for everybody. I’ve heard Newt Gingrich has his own as well.
+ - I’m fascinated by how you’ll change your position so many times over a lifetime, but really what you’re doing is occupying a series of positions on a landscape.
+ - I would never really analyse what I do. I leave that to other people – I’m not a critic. I just want to get on with whatever I have in hand, you know? Just try to make the best job of the available material.
+ - I enjoy performing, always, but when you’re taping a gig, you’ve got to blank out this mass apparatus of self-consciousness that’s surrounding you, this invitation to drown in self-consciousness. Otherwise you just won’t be able to do anything.
+ - I was lucky in the sense that I was never blessed with an overly reflective nature.
+ - My drive to put myself on the line comes from boredom. From that feeling when you go to bed and think, ‘What did I do today?’ It doesn’t have to be something monumental, just a feeling that you really tried to look at something, or look into something.
+ - I’d be hard-pressed to think of anybody who’s made me laugh, who’s funny, but who’s also relentlessly positive.
+ - Now, I meant to talk about something else earlier on, and I’ve forgotten what it was. I’ve remembered what it is again, but I’ve also forgotten. And that’s really what adult life is like most of the time.
+ - I’ve been writing since I was very young, even before I was a teenager. As far as I’m concerned, I am a writer – whether my writing’s spoken or written in a blog, paper, book or printed on the side of a submarine.
+ - I’ve always been a big consumer of American journalism over the years and had an interest in the history of it and of the press in America; how it has changed.
+
+128 quotes

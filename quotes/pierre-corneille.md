@@ -1,0 +1,139 @@
+ - Self-love is the source of all our other loves.
+ - To win without risk is to triumph without glory.
+ - Every man of courage is a man of his word.
+ - The manner of giving is worth more than the gift.
+ - Desire increases when fulfillment is postponed.
+ - Brave men are brave from the very first.
+ - Love is a tyrant sparing none.
+ - I love you much less than my God, but much more than myself.
+ - Love lives on hope, and dies when hope is dead; It is a flame which sinks for lack of fuel.
+ - We triumph without glory when we conquer without danger.
+ - Time is a great manager: it arranges things well.
+ - A liar is always lavish of oaths.
+ - I am master of myself as of the universe, so I am; so I wish to be.
+ - When there is no peril in the fight there is no glory in the triumph.
+ - Do your duty and leave the rest to heaven.
+ - Those who resolve to conquer or die, are rarely conquered.
+ - When obedience is so impious, revolt is a necessity.
+ - Flee an enemy who knows your weakness.
+ - Obedience is a hard profession.
+ - Guess if you can, choose if you dare.
+ - Kindness acts Not always as you think; a hated hand Renders it odious.
+ - Rome is no longer in Rome, it is here where I am.
+ - Every brave man is a man of his word; to such base vices he cannot stoop, and shuns more than death the shame of lying.
+ - If anyone wants to know what elephants are like, they are like people only more so.
+ - I would tell you I love you, Sir, if I knew what it was to love.
+ - When a woman has the gift of silence she possesses a quality above the vulgar. It is a gift of Heaven seldom bestowed; without a little miracle it cannot be accomplished; and Nature suffers violence when Heaven puts a woman in the humor of observing silence.
+ - This dark brightness that falls from the stars.
+ - Good fortune leads one to the highest glory, But to renounce it calls for equal courage.
+ - Among wellborn spirits courage does not depend on age.
+ - Just as We never taste happiness in perfection, our most fortunate successes are mixed with sadness. So too we never taste sadness completely, as things could always be worse in some way and for this we can be grateful.
+ - I can be forced to live without happiness, but I will never consent to live without honor.
+ - If you betray me, can I take a better revenge than to love the person you hate?
+ - Danger breeds best on too much confidence.
+ - Patience and time conquer all things.
+ - Deceit is the game of petty spirits, and that is by nature a woman’s quality.
+ - Happiness seems made to be shared.
+ - To take revenge halfheartedly is to court disaster; either condemn or crown your hatred.
+ - Here honor binds me, and I wish to satisfy it.
+ - Your heart is mine; there I reign. I am content.
+ - The greater the effort, the greater the glory.
+ - It is an imprudence common to kings to listen to too much advice and to err in their choice.
+ - One half of my life has put the other half in the grave.
+ - Each instant of life is a step toward death.
+ - For souls nobly born, valor doesn’t await the passing of years.
+ - To he who avenges a father, nothing is impossible.
+ - I am young, it is true; but in noble souls valor does not wait for years.
+ - Just vengeance does not call for punishment.
+ - It takes good memory to keep up a lie.
+ - He who has resolved to conquer or die is seldom conquered; such noble despair perishes with difficulty.
+ - He who allows himself to be insulted deserves to be.
+ - The man who pardons easily courts injury.
+ - Violence is just, where kindness is vain.
+ - Peace is produced by war.
+ - Rome, if you do not wish me to betray you, make enemies that I can hate!
+ - Rome alone can resist Rome.
+ - Generosity is the accompaniment of high birth; pity and gratitude are its attendants.
+ - Death was to be my glory, but destiny has refused it.
+ - A true king is neither husband nor father; he considers his throne and nothing else.
+ - It is only blood that can wash away such an outrage; die or kill.
+ - How delicious is pleasure after torment!
+ - Those who easily forgive invite offenses.
+ - Ah, though a Roman, I am not less a man.
+ - I don’t know how to defend myself: surprised innocence cannot imagine being under suspicion.
+ - Master of the universe but not of myself, I am the only rebel against my absolute power.
+ - And the combat ceased, for want of combatants.
+ - The fire which seems extinguished often slumbers beneath the ashes.
+ - My reason, it’s true, controls my feelings, but whatever its authority, it doesn’t rule them so much as tyrannize them.
+ - Clemency is the noblest trait which can reveal a true monarch to the world.
+ - One ought to have a good memory when he has told a lie.
+ - Treachery is noble when aimed at tyranny.
+ - Oh rage! Oh despair! Oh age, my enemy!
+ - Be it only for a day, it is still a glory without equal to be master of the world just that day.
+ - He who does not fear death cares naught for threats.
+ - I am Roman, alas, because Horace is Roman.
+ - An example is often a deceptive mirror, and the order of destiny, so troubling to our thoughts, is not always found written in things past.
+ - All great virtues become great men.
+ - All evils are equal when they are extreme.
+ - He who despises life is his life’s master.
+ - To die for one’s country is such a worthy fate that all compete for so beautiful a death.
+ - I agree to, or rather aspire to, my doom.
+ - They who overcome their desires once can overcome them always.
+ - We never taste a perfect joy; our happiest successes are mixed with sadness.
+ - Doubt, but still hate!
+ - Your arm is unvanquished, but not invincible.
+ - As our self-interests differ, so do our feelings.
+ - There are secret ties, there are sympathies, by the sweet relationship of which souls that are well matched attach themselves to each other, and are affected by I know not what, which cannot be explained.
+ - It is the gift of heaven and not of reason.
+ - After having won a scepter, few are so generous as to disdain the pleasures of ruling.
+ - Liberty may be of no more use Than stirring up the flame of civil wars; Then, by disorder fatal to the world, One wants no king, the other wants no equal.
+ - One often calms one’s grief by recounting it.
+ - How sweet to die after one’s enemies.
+ - He who can live in infamy is unworthy of life.
+ - Omnipotence is bought with ceaseless fear.
+ - The people you killed seem to be in excellent health.
+ - Severity is allowable where gentleness has no effect.
+ - A monarch must sometimes rule even himself: he who wants everything must risk very little.
+ - Heaven often regulates effects by their causes, and pays the wicked what they have deserved.
+ - Whoever can do as he pleases, commands when he entreats.
+ - What destroys one man preserves another.
+ - Ambition aspires to descend.
+ - In recounting our woes, we often soothe them.
+ - It is hard to hate what one has loved, and a half-extinguished fire is soon relit.
+ - It matters more how one gives than what one gives.
+ - He should be envied Who when his strength is spent lays down his life. Old age reserves a melancholy fate For noble souls before their life is done.
+ - In the service of Caesar, everything is legitimate.
+ - He who is hated by all can not expect to live long.
+ - A good memory is needed after one has lied.
+ - Your virtue raises your glory above your crime.
+ - The worst of all States is the democratic State.
+ - I have deserved neither so much honor or so much disgrace.
+ - Let us attend to the present, and as to the future we shall know how to manage when the occasion arrives.
+ - I would not like a king who could obey.
+ - Sir, what does it matter whom I serve, so long as I am right?
+ - When the patient loves his disease, how unwilling he is to allow a remedy to be applied.
+ - My sweetest hope is to lose hope.
+ - I see, I know, I believe, I am undeceived.
+ - It is a crime against the State to be powerful enough to commit one.
+ - Who is all-powerful should fear everything.
+ - Alas, I emerge from one disaster to fall into a worse.
+ - How much must I overcome before I triumph?
+ - He who plays advisor is no longer ambassador.
+ - The subject of a good tragedy must not be realistic.
+ - To myself alone do I owe my fame.
+ - He who allows me to rule is in fact my master.
+ - He on whom heaven confers a sceptre knows not the weight till he bears it.
+ - As for our gods, we have a few too many to be true.
+ - One is often guilty by being too just.
+ - I believe everything to be just when a king ordains it.
+ - Heaven absolves all crimes committed to gain a throne Once Heaven gives it to us.
+ - The king, just and prudent, wants only those things which he can get.
+ - Ambition becomes displeasing when it is once satiated; there is a reaction; and as our spirit, till our last sigh, is always aiming toward some object, it falls back on itself, having nothing else on which to rest; and having reached the summit, it longs to descend.
+ - Have others fear you, and I will have no fear.
+ - One doesn’t wish to see those to whom one owes so much.
+ - As great as kings may be, they are what we are: they can err like other men.
+ - Oh, how sweet it is to pity the fate of an enemy who can no longer threaten us!
+ - It is the crime not the scaffold which is the disgrace.
+ - A first impulse was never a crime.
+
+137 quotes

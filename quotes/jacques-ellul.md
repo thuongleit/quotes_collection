@@ -1,0 +1,54 @@
+ - Modern technology has become a total phenomenon for civilization, the defining force of a new social order in which efficiency is no longer an option but a necessity imposed on all human activity.
+ - Propaganda begins when dialogue ends.
+ - Education no longer has a humanist end or any value in itself; it has only one goal, to create technicians.
+ - Technique has taken over the whole of civilization. Death, procreation, birth all submit to technical efficiency and systemization.
+ - Christians should be troublemakers, creators of uncertainty, agents of a dimension incompatible with society.
+ - For in a civilization which has lost the meaning of life, the most important thing a Christian can do is to live, and life, understood from the point of view of faith, has an extraordinary explosive force.
+ - Again I want to emphasize that the study of propaganda must be conducted within the context of a technological society. Propaganda is called upon to solve problems created by technology, to play on maladjustments, and to integrate the individual into a technological world.
+ - Belief is reassuring. People who live in the world of belief feel safe. On the contrary, faith is forever placing us on the razor’s edge.
+ - When there is propaganda, we are no longer able to evaluate certain questions, or even to discuss them.
+ - Propaganda does not aim to elevate man, but to make him serve .
+ - The orchestration of press, radio and television to create a continuous, lasting and total environment renders the influence of propaganda virtually unnoticed precisely because it creates a constant environment.
+ - We have to admit that there is an immeasurable distance between all that we read in the Bible and the practice of the Church and of Christians.
+ - Mass media provides the essential link between the individual and the demands of the technological society.
+ - True technique will know how to maintain the illusion of liberty, choice, and individuality; but these will have been carefully calculated so that they will be integrated into the mathematical reality merely as appearances!
+ - When God picks out a man and speaks to him, it is to engage him in a work, an action. Nowhere in Scripture do we find indeterminate or purely mystical vocation.
+ - Prayer holds together the shattered fragments of creation. It makes history possible.
+ - The most favorable moment to seize a man and influence him is when he is alone in the mass. It is at this point that propaganda can be most effective.
+ - It is the emergence of mass media which makes possible the use of propaganda techniques on a societal scale.
+ - Human life as a whole is not inundated by technique. It has room for activities that are not rationally or systematically ordered. But the collision between spontaneous activities and technique is catastrophic for the spontaneous activities.
+ - What we are witnessing at the moment is a rearrangement of the world in an intermediate stage; the change is not in the use of a natural force but in the application of technique to all spheres of life.
+ - Fate operates when people give up.
+ - Journalistic content is a technical complex expressly intended to adapt man to the machine.
+ - There is one act par excellence which profanes money by going directly against the law of money, an act for which money is not made. That act is giving.
+ - The fact of knowing how to read is nothing, the whole point is knowing what to read.
+ - In sum, thought and reflection have been rendered thoroughly pointless by the circumstances in which modern men and women live and act.
+ - This is where each individual must decide for himself. The essential thing is the decision to challenge the modern state, which without this small group of protesters will be checked by neither brake, value, nor reason.
+ - Science brings to the light of day everything man had believed sacred. Technique takes possession of it and enslaves it.
+ - The goal of modern propaganda is no longer to transform opinion but to arouse an active and mythical belief.
+ - The Holy Spirit alone can do this, the Holy Spirit alone can establish this link with one’s neighbor.
+ - Freedom is completely without meaning unless it is related to necessity, unless it represents victory over necessity.
+ - Hate, hunger, and pride make better levers of propaganda than do love or impartiality.
+ - No matter what God’s power may be, the first aspect of God is never that of the absolute Master, the Almighty. It is that of the God who puts himself on our human level and limits himself.
+ - Salvation is universal because the love of God encompasses all. If God is God and if God is love, nothing is outside the love of God. A place like hell is thus inconceivable.
+ - All human language draws its nature and value from the fact that it both comes from the Word of God and is chosen by God to manifest himself. But this relationship is secret and incomprehensible, beyond the bounds of reason and analysis.
+ - The intellectual who wants to do her work properly must today go back to the starting point: the woman whom she knows, and first of all to herself. It is at that level, and at no other, that she ought to begin to think about the world situation.
+ - The will of the world is always a will to death, a will to suicide. We must not accept this suicide, and we must so act that it cannot take place.
+ - The machine is a tool. But it is not a neutral tool. We are deeply influenced by the machine while using it.
+ - No one knows where we are going, the aim of life has been forgotten, the end has been left behind. Man has set out at tremendous speed- to go nowhere.
+ - There are different forms of anarchy and different currents in it. I must, first say very simply what anarchy I have in view. By anarchy I mean first an absolute rejection of violence.
+ - So I can very well say without hesitation that all those who have political power, even if they use it well have acquired it by demonic mediation and even if they are not conscious of it, they are worshippers of diabolos.
+ - The biblical God lets us make our own history, and goes with us on the more or less unheard-of adventures we concoct.
+ - Prayer is not a discourse. It is a form of life, the life with God. That is why it is not confined to the moment of verbal statement.
+ - God is not an encyclopedia whose task it is to satisfy our curiosity.
+ - For the word is dialectical in itself and at the same time is integrated into the whole of existence. By this I mean that the word is intended to be lived.
+ - Technical civilization has made a great error in not suppressing death, the only human reality still intact.
+ - Our civilization is first and foremost a civilization of means; in the reality of modern life, the means, it would seem, are more important than the ends.
+ - Philosophy which asserts that human experience repeats itself is ineffectual.
+ - To the ideal of high consumption and the downgrading of spiritual values corresponds a conception of injustice that centers exclusively on the problem of consumption; and equality in consumption cannot be achieved except by violence.
+ - I describe a world with no exit, convinced that God accompanies man throughout his history .
+ - And an apprenticeship to whatever gadgetry is useful in a technical world.
+ - The individual who is the servant of technique must be completely unconscious of himself.
+ - It is the multiplication of men who are exluded from working which provokes war. We ought at least to bear this in mind when we boast of the continual decrease in human participation in technical operations.
+
+52 quotes

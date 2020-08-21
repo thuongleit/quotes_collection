@@ -1,0 +1,64 @@
+ - In my current work on global warming, I argue that the only apparent solution to the deep problem of climate change would require very large transfers of wealth from rich nations to poor nations, so that the entire world can make the transition to renewable forms of energy as fast as possible.
+ - It is hard to hide our genes completely. However devoted someone may be to the privacy of his genotype, others with enough curiosity and knowledge can draw conclusions from the phenotype he presents and from the traits of his relatives.
+ - Mann’s Death in Venice actually contains a snippet of philosophy about the second question, when Aschenbach, collapsed in the plaza, engages in his quasi-Socratic, anti-Socratic, ruminations.
+ - Current education in science treats all students as if they were going to have scientific careers. They are required to solve problems and memorize lists. For many of them, this kills interest very quickly.
+ - In ethics, we don’t make progress by discovering pre-existent truths; we do so by solving problems.
+ - I have enormous respect for Derek Parfit, although he seems to me bound within an unfortunate philosophical tradition – rather like the extraordinarily brilliant exponents of Ptolemaic astronomy in the Middle Ages.
+ - I’m quite pessimistic about climate change. This is an urgent problem, and much of the world is only now waking up to the easiest part of solving – the realization that anthropogenic global warming is real.
+ - After the success of Buddenbrooks, he married and fathered six children. Yet the surviving diaries tell us of recurrent sexual problems – and of Katia Mann’s extremely sympathetic response to them.
+ - Was Mann himself fully aware of all the facets of his irony? Probably not – any more than Shakespeare was fully aware of all the riches subsequent critics have found in his plays.
+ - The balance between literature and philosophy in Schopenhauer and Nietzsche is different from that struck in the novella, but, as Mann clearly pointed out in his writings about both thinkers, both modes are present.
+ - When I try to outline the history of ethical life, it’s sometimes possible to find evidence for a hypothesis about how important transitions actually went. Often, however, that isn’t so. There are many facts about human life in the Paleolithic we’re never likely to know.
+ - A different vision of ethics is that of a collection of resources people can use to act better. The resources might be firm rules that could always be relied on. Or they might be ideals that could often be followed without thinking but that sometimes conflicted with one another.
+ - Science literacy consists in the ability and the desire to follow reports of new scientific advances, throughout your whole life.
+ - Look at Mann’s reading habits, his explicit comments on Nietzsche, and his copy of Birth of Tragedy, and it starts to seem doubtful that this work of Nietzsche’s played much role in the gestation of the novella.
+ - To my mind, Death in Venice represents an enormous advance in Mann’s literary development, not simply for the commonly appreciated reason that he crafted a superbly supple and elegant style, apparently well suited to the kind of prose Aschenbach is supposed to write.
+ - Most influential of all is the philosopher Stanley Cavell, and a younger generation of philosophers who have attempted to follow his pioneering work in thinking about literature philosophically.
+ - I’m very suspicious of the idea of a “final theory” in natural science, and the thought of a complete system of ethical rules seems even more dubious.
+ - I was occupied by a range of questions, often different from those fashionable in the professional philosophy of the past half century, that have sometimes troubled philosophers in the past. It’s taken me several decades to work out my own philosophical agenda, and it is wide.
+ - I argue against literal interpretation of religious doctrines. Religions make progress when they emancipate themselves from literalism, and take their doctrinal statements to be metaphors or allegories.
+ - I take the ethical truths to be the stable elements that emerge out of ethical progress and that are retained under further ethical progress.
+ - For a pragmatist like me, the important issues concern the words we might deploy to achieve our purposes, rather than the language we actually use.
+ - Refined religion is aimed at realizing ethical values, including the fostering of human lives and human communities.
+ - The classical allusions and the Platonic disquisitions on beauty are no longer a form of cover, but integral to Aschenbach’s complex sexuality. Moreover, the wandering around Venice in pursuit of Tadzio isn’t a prelude to some sexual contact for which Aschenbach is yearning.
+ - If the intuition-mongering were abandoned, would that be the end of philosophy? It would be the end of a certain style of philosophy – a style that has cut philosophy off, not only from the humanities but from every other branch of inquiry and culture.
+ - The “little theme” from Vinteuil, heard by Swann as emblematic of his love for Odette, remains a point of reference for him, as the character of that love changes and as the love eventually fades.
+ - In my view, we ought to replace the notion of analytic philosophy by that of synthetic philosophy.
+ - Those citizens are distracted by the toys technology has supplied, and fail to recognize the ways in which what they most deeply want is made vulnerable by the coming disruptions of human relations on an over-heated planet.
+ - In working towards ways of reading Mann, so that his own advances in suggesting new perspectives will become more vivid, I do some fairly standard philosophical analysis of ideas in Nietzsche and Schopenhauer.
+ - For anyone who conceives literature in terms of plurality of perspectives, Finnegans Wake has to be the apogee. For, as we are told, every word in it has three score and ten “toptypsical” meanings – an exaggeration, of course, but an important reminder to readers who like their fiction definite.
+ - Because the problems are objective features of the human situation – social animals without the capacities for making social life come easily – ethics is objectively constrained. It’s not the case that “anything goes”.
+ - I don’t think readers of Mann have overlooked the fact that he was a great ironist, but they have tended to see the irony in particular parts of the novella, and to miss it in others.
+ - Ethical inquiry has always been motivated by the aim of improving human conduct. It doesn’t follow from that that the goal is to produce a complete rule book that would be applicable to all cases.
+ - In my view, all students should be given an initial opportunity to pursue the science track as far as it goes. But for those who quickly decide that track isn’t for them, a different style of teaching is in order.
+ - I didn’t know that Mahler would come to play so large a role, nor that music and literature and philosophy can interinanimate one another in the way I’ve come to think they do in this case.
+ - It may be hyperbolic to declare that Shakespeare teaches us more about being human than all the natural scientists combined.
+ - It’s not at all a bad idea for scientific questions to be chosen because a democratic deliberation would identify them as important for people’s lives.
+ - The more you read the novella, the more you should wonder, I think, which judgments are to be taken as bedrock.
+ - I suggest in my own discussion of this episode, Mann invites us to set the attempt to philosophize about his predicament in the context of Aschenbach’s life. The literary presentation thus adds to the naked philosophical skeleton.
+ - So is fighting incompleteness the source of artistic neurosis? I doubt it. At most, this would apply to artists who deal with particular kinds of problems. I don’t think we should think of Haydn or Mozart or Dickens or George Eliot in these terms.
+ - The amalgam of psychological attitudes we form is the synthetic complex. It may fall apart quite quickly as further reflection or further experience bears on it, and we may revert to our former judgments, feelings and tendencies.
+ - It’s a very bad idea for scientific conclusions to be accepted because they fit with the political values of a group of researchers.
+ - The point of philosophy, as I see it, is to change thinking, and thereby to change the conversation.
+ - My ideal of conversation that includes wide representation of perspectives, informed by the consensus view of current experts, pursued with an attempt to find a position with which all can live, brings the expert and the public dimensions together.
+ - I read Aschenbach’s constant desire to go beyond the works he has already produced to be the counterpart of Mann’s deep wish to surpass his previous fiction; sometimes the diaries express this in terms of a dejected judgment that the summit has already been reached.
+ - The hardest problem of all is to appreciate the facts that the poor nations are – quite reasonably – not going to forgo their development, and that they can only afford to develop by consuming fossil fuels.
+ - Sometimes, however, the new synthetic complex proves stable, and even serves as the beginning of a much larger cluster of attitudes that displace some we’ve previously considered to be fixed parts of ourselves.
+ - The theory of evolution explains to us what our ancestry has been. It does not explain away our worth. Why should we be afraid to learn more about what we are?
+ - The variety within Mann’s fiction is impressive and fascinating. But Joyce is even more various and many-sided. He begins his career with a wonderful sequence of bleak studies about the ways in which human lives can go awry – in my view, Dubliners is underrated.
+ - Any writer who could handle all these different voices would deserve high praise, but to do so without any sense of jarring or incoherence is an extraordinary accomplishment.
+ - Secular humanists should recognize those forms of religion as allies in the struggle for human advancement. They should also learn from them, as they try to build a fully secular world in which people can have the opportunity to live rich and fulfilling lives.
+ - If the research agenda reflects “market forces”, the problems of the poor are likely to be even more neglected than they already are.
+ - I believe that the arts make indispensable contributions to our understanding.
+ - The expert is a midwife. The expert is not someone who has the authority to pronounce the last word on the subject.
+ - I don’t deny that scientific investigation is capable of delivering important truths about nature, but that doesn’t stop questions about whether, as it is practiced, science today lives up to its potential for benefiting humanity.
+ - I think the tone of mockery Heller finds is a part of Mann’s irony, but only a part – a brilliant further touch consists in juxtaposing perspectives so that we’re led to wonder whether the mockery itself is the last word.
+ - The result can be quite new – perhaps a tendency to judge that something we’ve never conceived of is possible, or to feel sympathy for a trait or a type of person whom we’ve regarded with indifference or even hostility.
+ - Philosophers ought to aspire to know lots of different things and to forge useful synthetic perspectives.
+ - One goal of ethical inquiry might be to uncover strategies available for use when values conflict or when rules are incomplete.
+ - We know that he gave Aschenbach Mahler’s first name, and also his facial features. So Visconti picks up on something interesting. That led me to think about ways of developing further the Aschenbach-Mahler connection.
+ - I rather stumbled into philosophy. When I began my undergraduate career at Cambridge, I studied mathematics.
+ - I’m very concerned about the increasing distortion of research by the intrusion of the market. Universities are beginning to see science as a means of attracting funds.
+ - Experiments work when, and only when, they call into action cognitive capacities that might reliably deliver the conclusions drawn.
+
+62 quotes

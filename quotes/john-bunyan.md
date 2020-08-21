@@ -1,0 +1,142 @@
+ - You have not lived today until you have done something for someone who can never repay you.
+ - In prayer it is better to have a heart without words than words without a heart.
+ - An idle man’s brain is the devil’s workshop.
+ - If my life is fruitless, it doesn’t matter who praises me, and if my life is fruitful, it doesn’t matter who criticizes me.
+ - Then I saw that there was a way to hell, even from the gates of heaven.
+ - He that is down needs fear no fall. He that is low, no pride; He that is humble, ever shall have God to be his Guide.
+ - What God says is best, is best, though all the men in the world are against it.
+ - Dark clouds bring waters, when the bright bring none.
+ - Pray and read, read and pray; for a little from God is better than a great deal from men.
+ - You can do more than pray after you have prayed, but you cannot do more than pray until you have prayed. Pray often, for prayer is a shield to the soul, a sacrifice to God, and a scourge to Satan.
+ - Prayer opens the heart to God, and it is the means by which the soul, though empty, is filled with God.
+ - I will stay in jail to the end of my days before I make a butchery of my conscience.
+ - Prayer is a sincere, sensible, affectionate pouring out of the soul to God, through Christ, in the strength and assistance of the Spirit, for such things as God has promised.
+ - I was never out of my Bible.
+ - You have chosen the roughest road, but it leads straight to the hilltops.
+ - He who runs from God in the morning will scarcely find Him the rest of the day.
+ - I am content with what I have, little be it, or much.
+ - To run and work the law commands, but gives us neither feet nor hands. But better news the gospel brings, it bids us fly and gives us wings.
+ - In times of affliction we commonly meet with the sweetest experiences of the love of God.
+ - He hath given me rest by His sorrow, and life by His death.
+ - Prayer will make a man cease from sin, or sin will entice a man to cease from prayer.
+ - And, indeed, this is one of the greatest mysteries in the world; namely, that a righteousness that resides in heaven should justify me, a sinner on earth!
+ - Temptation provokes me to look upward to God.
+ - There is enough sin in my best prayer to send the whole world to Hell.
+ - I will stay in prison till the moss grows on my eye lids rather than disobey God.
+ - I am now a man of despair, rejected, abandoned, shut up in this iron cage from which there is no escape.
+ - Be of good cheer, Jesus Christ maketh thee whole.
+ - Though there is not always grace where there is the fear of hell, yet, to be sure, there is no grace where there is no fear of God.
+ - It is said that in some countries trees will grow, but will bear no fruit because there is no winter there.
+ - He that is down needs fear no fall.
+ - Now, Mr. Great-heart was a strong man, so he was not afraid of a lion.
+ - The road of denial leads to the precipice of destruction.
+ - Great grace and small gifts are better than great gifts and no grace.
+ - Therefore, I bind these lies and slanderous accusations to my person as an ornament; it belongs to my Christian profession to be vilified, slandered, reproached and reviled, and since all this is nothing but that, as God and my conscience testify, I rejoice in being reproached for Christ’s sake.
+ - Run when I can, walk when I cannot run, and creep when I cannot walk.
+ - The spirit of prayer is more precious than treasures of gold and silver.
+ - If you have sinned, do not lie down without repentance; for the want of repentance after one has sinned makes the heart yet harder and harder.
+ - I preach deliverance to others, I tell them there is freedom, while I hear my own chains clang.
+ - The more he cast away, the more he had.
+ - Afflictions make the heart more deep, more experimental, more knowing and profound, and so, more able to hold, to contain, and beat more.
+ - The best prayer I ever prayed had enough sin to damn the whole world.
+ - The fear of God is the beginning of wisdom, and they that lack the beginning have neither middle nor end.
+ - If you release me today, I’ll preach tomorrow.
+ - His love is what makes us live, love, sing, and praise forever.
+ - To go back is nothing but death; but to go forward is fear of death and life everlasting beyond.
+ - The greatness of God, of the God and Father of our Lord Jesus Christ, is that, if rightly considered, which will support the spirits of those of his people that are frighted with the greatness of their adversaries.
+ - No child of God sins to that degree as to make himself incapable of forgiveness.
+ - A sensible thanksgiving for mercies received is a mighty prayer in the Spirit of God. It prevails with Him unspeakably.
+ - He who bestows his goods upon the poor shall have as much again, and ten times more.
+ - The Lord uses his flail of tribulation to separate the chaff from the wheat.
+ - He that forgets his friend is ungrateful to him; but he that forgets his Saviour is unmerciful to himself.
+ - The difference between true and false repentance lies in this: the man who truly repents cries out against his heart; but the other, as Eve, against the serpent, or something else.
+ - If people really see that Christ has removed the fear of punishment from them by taking it into Himself, they won’t do whatever they want, they’ll do whatever He wants.
+ - Whatever contradicts the Word of God should be instantly resisted as diabolical.
+ - Nothing can hurt you except sin; nothing can grieve me except sin; nothing can defeat you except sin. Therefore, be on your guard, my Mansoul.
+ - No man, without trials and temptations, can attain a true understanding of the Holy Scriptures.
+ - Humility is the light of the understanding.
+ - The reason why the Christians in this day are at such a loss as to some things is that they are contented with what comes from man’s mouth, without searching and kneeling before God to know of Him the truth of things.
+ - Our sins, when laid upon Christ, were yet personally ours, not his; so his righteousness, when put upon us, is yet personally his, not ours.
+ - There was a castle called Doubting Castle, the owner whereof was Giant Despair.
+ - I come from the Town of Stupidity; it lieth about four degrees beyond the City of Destruction.
+ - It could be a sign of pride in your life if a word of reproof or admonition is not able to be received with the same grace, whether it be given by the poorest of saints or the most educated person.
+ - To pray rightly, you must make God your hope, stay, and all. Right prayer sees nothing substantial or worth being concerned about except God.
+ - There is no way to kill a man’s righteousness but by his own consent.
+ - In all your prayers forget not to thank the Lord for his mercies.
+ - Temptations, when we meet them at first, are as the lion that reared upon Samson; but if we overcome them, the next time we see them we shall find a nest of honey within them.
+ - The heart must be beaten or bruised, and then the sweet scent will come out.
+ - Though the world disregard the society of God’s children now, yet there is a time coming in which they would be glad to have the least company with them.
+ - Old truths are always new to us, if they come with the smell of heaven upon them.
+ - Riches and power, what is there more in the world? For money answereth all things-that is, all but soul concerns. It can neither be a price for souls while here, nor can that, with all the forces of strength, recover one out of hell fire.
+ - A saint abroad, and a devil at home.
+ - If that a pearl may in a toad’s head dwell, And may be found too in an oyster shell.
+ - I seek a place that can never be destroyed, one that is pure, and that fadeth not away, and it is laid up in heaven, and safe there, to be given, at the time appointed, to them that seek it with all their heart. Read it so, if you will, in my book.
+ - It beareth the name of Vanity Fair, because the town where ’t is kept is lighter than vanity.
+ - Doth Jesus Christ stand up to plead for us with God, to plead with him for us against the devil? Let this teach us to stand up to plead for him before men, to plead for him against the enemies of his person and gospel.
+ - Knock, and it shall be opened unto you.
+ - But pleasures are like poppies spread: You seize the flower.
+ - I have given Him my faith, and sworn my allegiance to Him; how, then, can I go back from this, and not be hanged as a traitor?
+ - The law, instead of cleansing the heart from sin, doth revive it, put strength into, and increase it in the soul, even as it doth discover and forbid it, for it doth not give power to subdue.
+ - Prayer is a shield to the soul.
+ - I found it hard work now to pray to God, because despair was swallowing me up.
+ - Though it be said that faith cometh by hearing, yet it is the Spirit that worketh faith in the heart through hearing, or else they are not profited by hearing.
+ - Words easy to be understood do often hit the mark, when high and learned ones do only pierce the air.
+ - We know not the matter of the things for which we should pray, neither the object to whom we pray, nor the medium by or through whom we pray; none of these things know we, but by the help and assistance of the Spirit.
+ - Hope is never ill when faith is well.
+ - The Author’s Way of sending forth his Second Part of the Pilgrim. Some things are of that nature as to make One’s fancy chuckle, while his heart doth ache.
+ - A comely sight indeed it is to see, a world of blossoms on an apple tree.
+ - The man who does not know the nature of the Law, cannot know the nature of sin.
+ - There hath not one tear dropped from thy tender eye against thy lusts, the love of this world, or for more communion with Jesus Christ, but as it is now in the bottle of God.
+ - The same yesterday, today, and forever.
+ - Farewell, I wish our souls may meet with comfort at the journey’s end.- The Heavenly Footman: A Puritan’s View of How to Get to Heaven.
+ - What a fool, quoth he, am I, thus to lie in a stinking dungeon, when I may as well walk at liberty! I have a key in my bosom, called Promise, that will, I am persuaded, open any lock in Doubting Castle.
+ - Sincerity carries the soul in all simplicity to open its heart to God.
+ - A tender heart is a wakeful, watchful heart. It watches against sin in the soul, sin in the family, sin in the calling, sin in spiritual duties and performances.
+ - Beware of resting in the word of the kingdom, without the spirit and power of the kingdom of that gospel, for the gospel coming in word only saves nobody, for the kingdom of God or the gospel, where it comes to salvation, is not in word but in power.
+ - God, as I may say, is forced to break men’s hearts, before he can make them willing to cry to him, or be willing that he should have any concerns with them; the rest shut their eyes, stop their ears, withdraw their hearts, or say unto God, Be gone.
+ - Yet my great-grandfather was but a water-man, looking one way and rowing another: and I got most of my estate by the same occupation.
+ - I could not be satisfied unless some fruits did appear in my work.
+ - For to speak the truth, there are but few that care thus to spend their time, but choose rather to be speaking of things to no profit.
+ - Breathes there a man, whose judgment clear Can others teach their course to steer, Yet run himself life’s mad career Wild as the wave?
+ - Now, I saw, upon a time, when he was walking in the fields, that he was, as he was wont, reading in his book, and greatly distressed in his mind; and, as he read, he burst out, as he had done before, crying, What shall I do to be saved?
+ - Hanging is too good for him said Mr. Cruelty.
+ - The name of the Slough was Despond.
+ - This hill though high I covent ascend; The difficulty will not me offend; For I perceive the way of life lies here. Come, pluck up, heart; let’s neither faint nor fear.
+ - Prayer is an ordinance of God, that must continue with a soul so long as it is on this side glory.
+ - If you do not put a difference between justification wrought by the Man Christ without, and sanctification wrought by the Spirit of Christ within, you are not able to divide the word aright; but contrariwise, you corrupt the word of God.
+ - Grace can pardon our ungodliness and justify us with Christ’s righteousness; it can put the Spirit of Jesus Christ within us; it can help us when we are down; it can heal us when we are wounded; it can multiply pardons, as we through frailty multiply transgressions.
+ - The best prayers have often more groans than words.
+ - Some said, “John, print it”; others said “Not so.” Some said, “It might do good”; others said, “No.”
+ - The man that takes up religion for the world will throw away religion for the world.
+ - Man indeed is the most noble, by creation, of all the creatures in the visible World; but by sin he has made himself the most ignoble.
+ - Now may this little Book a blessing be To those that love this little Book, and me: And may its Buyer have no cause to say, His money is but lost, or thrown away.
+ - To-despise the world is the way to enjoy heaven; and blessed are they who delight to converse with God by prayer.
+ - I have often thought that the best Christians are found in the worst of times.
+ - Fear, lest, by forgetting what you are by nature, you also forget the need that you have of continual pardon, support, and supplies from the Spirit of grace, and so grow proud of your own abilities, or of what you have received from God.
+ - Care, mad to see a man sae happy, E’en drouned himsel amang the nappy.
+ - I saw, moreover, that it was not my good frame of heart that made my righteousness better, nor my bad frame that made my righteousness worse; for my righteousness was Jesus Christ himself, the same yesterday and today and forever.
+ - To seek yourself in this world is to be lost; and to be humble is to be exalted.
+ - It is possible to learn all about the mysteries of the Bible and never be affected by it in one’s soul. Great knowledge is not enough.
+ - Christians are like the several flowers in a garden that have each of them the dew of heaven, which, being shaken with the wind, they let fall at each other’s roots, whereby they are jointly nourished, and become nourishers of each other.
+ - There can be but one will the master in our salvation, but that shall never be the will of man, but of God; therefore man must be saved by grace.
+ - Thou art beaten that thou mayest be better.
+ - Nae man can tether time nor tide.
+ - Sleep is sweet to the labouring man.
+ - If you are not a praying person, you are not a Christian.
+ - As your faith is, such your hope will be. Hope is never ill when faith is well, nor strong if faith be weak.
+ - It is easier going out of the way when we are in, than going in when we are out.
+ - The truths that I know best I have learned on my knees. I never know a thing well, till it is burned into my heart by prayer.
+ - Christ is the desire of nations, the joy of angels, the delight of the Father. What solace then must that soul be filled with, that has the possession of Him to all eternity!
+ - Wherefore, though the Christian, as a Christian, is the only man at liberty, as called thereunto of God; yet his liberty is limited to things that are good: he is not licensed thereby to indulge the flesh.
+ - Love is the beauty and the strength of all societies and the great pleasure of our lives on earth.
+ - Our heart oft times wakes when we sleep, and God can speak to that, either by words, by proverbs, by signs and similitudes, as well as if one was awake.
+ - Nothing can render affliction so insupportable as the load of sin. Would you then be fitted for afflictions? Be sure to get the burden of your sins laid aside, and then what affliction soever you may meet with will be very easy to you.
+ - The heart, when broken, is like sweet gums and spices when beaten; for as such cast their fragrant scent into the nostrils of men, so the heart, when broken, casts its sweet smell into the nostrils of God.
+ - Men, even the elect, have too many infirmities to come to Christ without help from heaven; inviting will not do.
+ - At the day of Doom men shall be judged according to their fruits. It will not be said then, did you believe? But, were you doers or talkers only?
+ - He that lives in sin and looks for happiness hereafter is likehimthat soweth cockleand thinkstofill hisbarnwith wheat or barley.
+ - Without the Spirit man is so infirm that he cannot, with all other means whatsoever, be enabled to think one right saving thought of God, of Christ, or of his blessed things.
+ - I love to hear my Lord spoken of, and wherever I have seen the print of His shoe in the earth, there have I coveted to put mine also.
+ - It is profitable for Christians to be often calling to mind the very beginnings of grace with their souls.
+
+140 quotes

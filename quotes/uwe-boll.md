@@ -1,0 +1,27 @@
+ - I boxed 15 years in a club.
+ - Actors don’t have real value.
+ - Agents are still asking for millions of dollars for actors that don’t sell one ticket.
+ - If people hate me they hate me.
+ - I produce for a low price and I sell it on my own to 80 countries.
+ - House of the Dead 2 I gave away. Alone in the Dark 2 I will also not do; even if the DVD movie made money. BloodRayne 2 in the Wild West is what I really want to do.
+ - I play PC and Xbox games at home, and I just got a PSP as a birthday present.
+ - I think video games are a great kind of entertainment. They have replaced a lot of games people normally play with their friends and neighbours, like Monopoly.
+ - So if you want to have a great video game-based movie you have to keep the mood of the game, use the normal character setup – but you have to flesh out the story and provide more background for the characters.
+ - Alone is a much better film than House of the Dead and better than most horror movies out today.
+ - Maybe you know it but it’s not so easy to finance movies in total. And the reason I am able to do these kind of movies is I have a tax shelter fund in Germany, and if you invest in a movie in Germany you get basically fifty percent back from the government.
+ - A movie like House of the Dead with around $7 million budget or Alone in the Dark with around $16 million budget are much easier to make profit than the typical $50 million major motion picture.
+ - Heart of America is a movie I’m very proud of. The young actors are great and the story has impact.
+ - We thought about it, what we want to tell, and I didn’t want to move it directly into the Nazi times. I thought it’s much more interesting to see how BloodRayne became BloodRayne.
+ - In The Name of the King is the right title. To be honest, I don’t know who had the final idea for the title but I liked it and it has a strong connection to the movie’s story.
+ - In the Seventies, a lot of executions via electric chair failed because of technical problems. Seed tells the true story of someone who survived and sought revenge. They buried him alive to make it seem he was dead.
+ - My favourite game is Postal because it is so politically incorrect.
+ - Now while the German money is over for Hollywood, I still have $80 million to make movies, and we will have two things coming up: less major movies and the price for actors will go down.
+ - The thing is, I think as a director or a writer or whatever, you have to have a vision. And you have to be maybe sometimes too early, somewhere.
+ - I think Alone in the Dark was too much an action creature movie than a horror creature movie.
+ - Postal will be so politically incorrect and harsh, it’s like a mirror to American society, and I don’t think the movie will be well received by anybody. For example, Osama Bin Laden will be one of the lead characters-I think that shows the mood of the movie.
+ - Slater’s a big star and he’s been in the business a long time. He’s always in a good mood and easygoing but he takes his character very seriously.
+ - House was the first film where I had no influence on the script. I had to buy the script with the game rights.
+ - So if I get these actors for 30% of their price by coming in so late with an offer when they know they are not getting another offer then I do it this way.
+ - Homer is the nice side of Al Bundy with the same intellect. I really like him and Al Bundy.
+
+25 quotes

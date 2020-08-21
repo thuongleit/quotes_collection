@@ -1,0 +1,68 @@
+ - There comes a time in a man’s life when to get where he has to go – if there are no doors or windows – he walks through a wall.
+ - If your train’s on the wrong track every station you come to is the wrong station.
+ - Without heroes, we are all plain people and don’t know how far we can go.
+ - For misery don’t blame God. He gives the food but we cook it.
+ - The purpose of freedom is to create it for others.
+ - Nationality isn’t soul...
+ - First drafts are for learning what your story is about.
+ - Politics isn’t in my nature.
+ - Life is a tragedy full of joy.
+ - What suffering has taught me is the uselessness of suffering.
+ - Some men are by nature explorers; my nature is to stay under the same moon and stars, and if the weather is wet, under the same roof. It’s a strange world, why make it stranger?
+ - Tomorrow the world is not the same as today, though God listens with the same ear.
+ - A writer is a spectator, looking at everything with a highly critical eye.
+ - Teach yourself to work in uncertainty.
+ - One’s fantasy goes for a walk and returns with a bride.
+ - If you ever forget you are a Jew a goy will remind you.
+ - Where to look if you’ve lost your mind?
+ - If you don’t hear His voice so let Him hear yours. When prayers go up blessings descend.
+ - Those who write about life, reflect about life. you see in others who you are.
+ - I fix what’s broken – except in the heart.
+ - I sometimes confuse myself with the little I know.
+ - I love metaphor. It provides two loaves where there seems to be one. Sometimes it throws in a load of fish.
+ - We’re persecuted in the most civilized languages.
+ - The whole history of baseball has the quality of mythology.
+ - We didn’t starve, but we didn’t eat chicken unless we were sick, or the chicken was.
+ - We can’t all be friends and relatives as the world is; most of us have to be strangers.
+ - No use fanning up hot coals when you have to walk across them.
+ - Charity you can give even when you haven’t got.
+ - Reader, I am myself the subject of my book; you would be unreasonable to spend your leisure on so frivolous and so vain a matter.
+ - All my life I wanted to accomplish something worthwhile-a thing people will say took a little something...
+ - When I don’t feel hurt, I hope they bury me.
+ - The idea is to get the pencil moving quickly.
+ - The short story packs a self in a few pages predicating a lifetime.
+ - Somewhere I put it this way: first drafts are for learning what one’s fiction wants him to say. Revision works with that knowledge to enlarge and enhance an idea, to reform it. Revision is one of the exquisite pleasures of writing.
+ - Revision is one of the exquisite pleasures of writing.
+ - The past exudes legend: one can’t make pure clay of time’s mud.
+ - Space plus whatever you feel equals more whatever you feel, marvelous for happiness, God save you otherwise.
+ - Overnight business could go down enough to hurt; yet as a rule it slowly recovered-sometimes it seemed to take forever-went up, not high enough to be really up, only not down.
+ - The wild begins where you least expect it, one step off your normal course.
+ - You could not pity anything if you weren’t a man; pity was a surprise to God. It was not his invention.
+ - If the stories come, you get them written, you’re on the right track. Eventually everyone learns his or her own best way. The real mystery to crack is you.
+ - Prufrock had measured out his life with measuring spoons; Dubin, in books resurrecting the lives of others.
+ - I don’t think you can do anything for anyone without giving up something of your own.
+ - In my dreams I ate and I ate my dreams.
+ - As long as a man stays alive he can’t tell what chances will pop up next. But a dead man signs no checks.
+ - It’s one thing for a man not to know, not to have learned; it’s another not to be able to live by what one does know.
+ - There is in the darkness a unity, if you will, that cannot be achieved in any other environment, a blending of self with what the self perceives, and exquisite mystical experience.
+ - A man is an island in the only sense that matters, not an easy way to be. We live in mystery, a cosmos of separate lonely bodies, men, insects, stars. It is all loneliness and men know it best.
+ - Completed, most lives were alike in stages of living-joys, celebrations, crises, illusions, losses, sorrows.
+ - I work with language. I love the flowers of afterthought.
+ - It was all those biographies in me yelling, ‘We want out. We want to tell you what we’ve done to you.’
+ - A man has to construct, invent, his freedom.
+ - You see in others who you are.
+ - Writing is a mode of being. If I write I live.
+ - All men are Jews, though few men know it.
+ - Ithink Isaid’All menare Jews excepttheydon’t know it.’I doubt I expected anyone to take the statement literally. But I think it’s an understandable statement and a metaphoric way of indicating how history, sooner or later, treats all men.
+ - How can we be strangers if we both believe in God?
+ - A writer has to surprise himself to be worth reading.
+ - There are no wrong books. What’s wrong is the fear of them.
+ - Comedy, I imagine, is harder to do consistently than tragedy, but I like it spiced in the wine of sadness.
+ - I write a book at least three times-once to understand it, the second time to improve the prose, and a third to compel it to say what it still must say.
+ - Of course it would cost something, but he was an expert in cutting corners; and when there were no more corners left he would make circles rounder.
+ - You can’t eat language but it eases thirst.
+ - Writers who can’t invent stories often substitute style for narrative. They remind me of the painter who couldn’t paint people, so he painted chairs.
+ - Children were strangers you loved because you could love. If they gave back love when they were grown you were ahead of the game.
+ - You write by sitting down and writing. There’s no particular time or place – you suit yourself, your nature. How one works, assuming he’s disciplined, doesn’t matter.
+
+66 quotes

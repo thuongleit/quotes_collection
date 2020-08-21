@@ -1,0 +1,31 @@
+ - Look deep inside, and when you locate the sadness, give it a vacation, and focus on the simple things.
+ - If they aren’t going to advance God’s kingdom, I don’t care to help them advance their kingdom.
+ - I’m only here on Earth to serve God. I never had a career. I don’t care about commercialism. I have a ministry and I’ll fight for the ministry.
+ - Gospel songs to me are about the mansion in the sky, and washed in the blood of Christ’s crimson blood, songs that are filled with biblical wording that’s no longer understood by a lot of people.
+ - I’m fishing for men with a certain kind of bait, and the bait that I am offering is not a candy; it’s a very specific thing that I’m offering, which is a deep gospel and a deep conversion.
+ - I think we should all be servants. To be really great in God’s eyes is to be least among each other and serve each other.
+ - Don’t ask me for answers, I’ve only got one. That a man leaves the darkness, when he follows the Son.
+ - My music was too religious for the rock and roll stores and too rock and roll for the religious stores.
+ - I don’t see the point in being a star – it takes a lot of energy to carry yourself off as being more perfect than somebody else. I’d rather just be available with all my weaknesses.
+ - Outside of Christ, my songs have no value.
+ - The Beatles said ‘all you need is love,’ then they broke up.
+ - I love God and I follow Jesus but I just don’t have much affinity for the organized folderol of the churches in the Western World.
+ - Jesus got me through the slums without getting murdered. I just walked with him as though he were really there and not a spirit just floating around.
+ - I don’t live my life as a Christian with trepidation, feeling that perhaps I’ve failed to give the best gospel possible on each occasion, but realising that God’s taking care of a lot through his Holy Spirit.
+ - I never felt part of the Christian industry.
+ - Apparently God makes us all different. Some of us are happy to respond to His individual touch on our lives by remaining individuals, and others of us are intimidated or frightened into trying to become like each other so that we have company, so that we don’t feel so lonely.
+ - I want to encourage other people to try to discover who they are, not to try to fit into some superficial prototype of what they think a Christian should be, but to discover who they really are.
+ - Only in a concert situation do I have access to people directly to preach to them, and I don’t believe that the bigger your platform is, the more people will pay attention.
+ - Art is more engaging that propaganda.
+ - We need worship for our spirit, fellowship for our soul and committed subservience for our body.
+ - I can’t improve on how the Bible expresses itself, so I don’t even try.
+ - I never sent promotional copies to Christian radio stations in my life. It’s not what I’m interested in.
+ - I don’t know how people can easily remain Christian if they get no fellowship. They may be able to do it intellectually, but part of the body of man is composed of spirit and parts of soul and of flesh.
+ - I know I stand visibly onstage, but my function is still unseen, because I rarely see the immediate results of what I am saying or doing or writing.
+ - Christians don’t seem to be as aware of, or as sensitive to, the dire state of humanity as they are about the pleasant growth of their Christian walk.
+ - I feel that Christian music is a subculture directed towards the Christians. It’s not really being exposed to non-Christians and it’s not really created for non-Christians, so non-Christians almost never hear any of this music.
+ - I wonder who would lead us if none of us would vote.
+ - The churches weren’t going to accept me looking like a street person with long hair and faded jeans. They did not like the music I was recording. And I had no desire to preach the gospel to the converted.
+ - All music written by a Christian should be as integrated as everything else done by a Christian.
+
+29 quotes

@@ -1,0 +1,112 @@
+ - We’re all a little weird. And life is a little weird. And when we find someone whose weirdness is compatible with ours, we join up with them and fall into mutually satisfying weirdness – and call it love – true love.
+ - I believe that imagination is stronger than knowledge. That myth is more potent than history. That dreams are more powerful than facts. That hope always triumphs over experience. That laughter is the only cure for grief. And I believe that love is stronger than death.
+ - Above all, if what you’ve done is stupid, but it works, it ain’t stupid.
+ - Don’t worry that children never listen to you; worry that they are always watching you.
+ - It doesn’t matter what you say you believe – it only matters what you do.
+ - If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
+ - Clean up your own mess.
+ - The grass is not, in fact, always greener on the other side of the fence. No, not at all. Fences have nothing to do with it. The grass is greenest where it is watered. When crossing over fences, carry water with you and tend the grass wherever you may be.
+ - Be aware of wonder. Live a balanced life – learn some and think some and draw and paint and sing and dance and play and work every day some.
+ - The grass is not always greener on the other side of the fence. The grass is greenest where it is watered.
+ - Anything not worth doing is worth not doing well.
+ - If I don’t have time to live my life well the first time, when am I going to find the time to go back and live it over?
+ - Water is everywhere and in all living things; we cannot be separated from water. No water, no life. Period. Water comes in many forms – liquid, vapor, ice, snow, fog, rain, hail. But no matter the form, it’s still water.
+ - It will be a great day when our schools have all the money they need, and our air force has to have a bake-sale to buy a bomber.
+ - Remember the little seed in the Styrofoam cup. The roots go down and the plant goes up and nobody really knows how or why, but we are all like that.
+ - One of life’s best coping mechanisms is to know the difference between an inconvenience and a problem.
+ - Life is lumpy. And a lump in the oatmeal, a lump in the throat, and a lump in a breast are not the same lump. One should learn the difference.
+ - Peace is not something you wish for, it’s something you make.
+ - The myth of the impossible dream is more powerful than all the facts of history.
+ - Only now have I finally realized that my life has been an unending field trip. And I have tried hard not to be a tourist. But to be an adventurer, a traveler, an explorer, a learner, and a pilgrim.
+ - The kindergarten children are confident in spirit, infinite in resources, and eager to learn. Everything is still possible.
+ - Share everything. Don’t take things that aren’t yours. Put things back where you found them.
+ - Hide-and-seek, grown-up style. Wanting to hide. Needing to be sought. Confused about being found.
+ - The name is not important anymore – it’s the tone that counts. I feel like an old dog I know. He will come to any name you call him, just so long as your demeanor carries with it the promise of affection and food.
+ - If you tell people you talk to God, they’ll think you’re religious, but if you say God talks to you, it’s ten to one they’ll think you’re crazy.
+ - Love is a fabric which never fades, no matter how often it is washed in the water of adversity and grief.
+ - About winning and losing: It isn’t important, what really counts is how you play the game. About playing the game: PLAY TO WIN!
+ - Play fair. Don’t hit people. Say you’re sorry when you hurt somebody.
+ - The best feelings in your life come when you start feeling good after you’ve been feeling just awful.
+ - The examined life is no picnic.
+ - And good neighbors make a huge difference in the quality of life. I agree.
+ - My goal now is to dance all the dances as long as I can, and then to sit down contented after the last elegant tango some sweet night and pass on because there wasn’t another dance left in me.
+ - Ignorance and power and pride are a deadly mixture, you know.
+ - Never forget that music is too important to be left entirely in the hands of professionals.
+ - And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.
+ - You can’t always explain everything you do to everybody, you know.
+ - A giraffe has a black tongue twenty-seven inches long and no vocal cords. A giraffe has nothing to say. He just goes on giraffing.
+ - Always trust your fellow man. And always cut the cards. Always trust God. And always build your house on high ground. Always love thy neighbor. And always pick a good neighborhood to live in.
+ - Living things have been doing just that for a long, long time. Through every kind of disaster and setback and catastrophe. We are survivors.
+ - Why is love easy? I don’t know. And the raccoons don’t say.
+ - Sticks and stones will break our bones, but words will break our hearts.
+ - I believe that imagination is stronger than knowledge.
+ - We could learn a lot from crayons; some are sharp, some are pretty, some are dull, while others bright, some have weird names, but they all have learned to live together in the same box.
+ - I’ve always thought anyone can make money. Making a life worth living, that’s the real test.
+ - And sure, I know if you eat this way you’ll die. So? If you don’t eat this way you’re still going to die. Why not die happy?
+ - But since everything and anything are always possible, the miraculous is always nearby, and wonders shall never, ever cease.
+ - Almost anything can be dealt with if people are of good will and light hearts and strong values.
+ - The world does not need tourists who ride by in a bus clucking their tongues. The world as it is needs those who will love it enough to change it, with what they have, where they are.
+ - Dreams are more powerful than facts.
+ - I fear the boredom that comes with not learning and not taking chances.
+ - Is it always to be a winners-losers world, or can we keep everyone in the game? Do we still have what it takes to find a better way?
+ - I once listed all the good things I did over the past year, and then turned them into resolution form and backdated them. That was a good feeling.
+ - Life is. I am. Anything might happen.
+ - So you drive as far as you can, even when you can clearly read the sign. You want to think you are exempt, that it doesn’t apply to you. But it does. Life is still a dead end. And we still have a hard time believing it.
+ - It’s the spirit here that counts. The time may be long, the vehicle may be strange or unexpected. But if the dream is held close to the heart, and imagination is applied to what there is close at hand, everything is still possible.
+ - I believe it is in my nature to dance by virtue of the beat of my heart, the pulse of my blood and the music in my mind.
+ - Even if your watch is full of diamonds the hour is still 60 minutes.
+ - The point is that getting married for lust or money or social status or even love is usually trouble. The point is that marriage is a maze into which we wander – a maze that is best got through with a great companion.
+ - Wisdom was not at the top of the graduate-school mountain, but there at the sandpile at Sunday School.
+ - Goldfish and hamsters and white mice and even the little seed in the Styrofoam cup-they all die. So do we.
+ - Anything can happen. The great banana peel of existence is always on the floor somewhere.
+ - All of these are names given me by other people, but not names I would have given myself. My name is not mine, it’s theirs. It’s a series of costumes put on my life by other people.
+ - Speed and efficiency do not always increase the quality of life.
+ - The heart will turn to a prune if love is always by the numbers. How will you know if someone really loves you if they only meet your expectations and not your needs?
+ - The leaves let go, the seeds let go, and I must let go sometimes, too, and cast my lot with another of nature’s imperfect but tenacious survivors.
+ - To ponder is not to brood or grieve or even meditate. It is to wonder at a deep level.
+ - Doing a straight-forward, clear-cut task that has a beginning and an end balances out the complexity-without-end that often vexes the rest of my life. Sacred simplicity.
+ - Never, ever regret or apologize for believing that when one man or one woman decides to risk addressing the world with truth, the world may stop what it is doing and hear. There is too much evidence to the contrary.
+ - Life-and-death. Lifedeath. One event. One short event. Don’t forget.
+ - I’ve always made a clear distinction between making a life and making a living.
+ - The winding down of summer puts me in a heavy philosophical mood.
+ - But love may have to be left off the exam. Most of us will never learn.
+ - To be human is to keep rattling the bars of the cage of existence, hollering, ‘What’s it for?’
+ - This is an exercise in power – the power of mind over matter. If you don’t mind being inadequate, it doesn’t matter.
+ - There is nothing in your budget for joy. No books, no flowers, no music, not even a cold beer. And there is nothing in your budget to give away to someone else. We don’t help people who don’t have better values than you do.
+ - If we could just figure out how to have more fun at it, maybe more of us would join the ranks of those who seek after justice and mercy.
+ - I get tired of hearing it’s a crummy world and that people are no damned good. What kind of talk is that? I know a place in Payette, Idaho, where a cook and a waitress and a manager put everything they’ve got into laying a chicken-fried steak on you.
+ - Children are sent to school to be civilized, to learn to be part of the social enterprise.
+ - Now everybody has some secret goals in life.
+ - I’d like to speak a foreign language well enough to get the jokes. I’d like to talk with Socrates, and watch Michelangelo sculpt David. I’d like to see the world as it was a million years ago and a million years hence.
+ - Remember, most of us got something for nothing the first time just by showing up here at birth. Now we have to qualify.
+ - I don’t think there is a hidden purpose to the universe that you have to puzzle out.
+ - Any fool can make enough money to survive. It’s another thing to keep yourself consistently entertained. It’s a lot of work, and a lot of fun, to make a life.
+ - You feel like an ant contemplating Chicago.
+ - Weddings seem to be magnets for mishap and for whatever craziness lurks in family closets. In more ways than one, weddings bring out the ding-dong on everybody involved.
+ - It is the chair in honor of all those who, however competently, embrace the impossible. Sit in that chair someday.
+ - I believe in dancing.
+ - If you want an interesting party sometime, combine cocktails and a fresh box of crayons for everyone.
+ - It wasn’t in books. It wasn’t in a church. What I needed to know was out there in the world.
+ - An artists job is to see. And to go out in the world and see it firsthand, just as it is; to report with line and words what is seen. To be in the world, not just study about the world, that is the artists task.
+ - Love is the grand prize and the garbage heap. Love is a spiritual root canal and the only thing that makes life worth living. Love is a little taste of always and a big bite of nothing. And love is everything in between these extremes.
+ - I wanted to be a citizen of the world but not in a superficial way.
+ - My secret agenda is to convey my values to my kids.
+ - I and you-We are infinate, rich, large, contradictory, living, breathing miracles-free human beings, children of God and the everlasting universe. That’s what we do.
+ - Infinite possibility in all things is a certainty. That pretty much covers theology and philosophy for me.
+ - I talk about very serious human affairs but with a lightness of heart.
+ - Just when you thought that you already learned the way how to live, life changes – and you’re left the same as you begun.
+ - We even make ourselves up, fusing what we are with what we wish into what we must become. I’m not sure why it must be so, but it is.
+ - We are the only creatures that both laugh and weep. I think it’s because we are the only creatures that see the difference between the way things are and the way they might be.
+ - You will continue to read stories of crookedness and corruption – of policemen who lie and steal, doctors who reap where they do not sew, politicians on the take. Don’t be misled. They are news because they are the exceptions.
+ - Even the finest workman needs to inspect his work critically.
+ - If you can’t find the exact quote you want, make it up.
+ - Wherever and however any one of us may be conceived, it is the same. We come into being in the arms of God.
+ - I think my writing is part of my ministry.
+ - And I’m not confused about the lack of, or the need for, imagination in low or high places. We could do better we must do better. There are far worse things to drop on people than crayolas.
+ - The gift was not large as money goes, and my need was not great, but the spirit of the gift is beyond price and leaves me blessed and in debt.
+ - Desire is the intangible quality that has more impact on success than talent, education, or IQ. You can’t see desire, but you can feel its presence, and see its results in the lives of successful people.
+ - Once you know where the roller coaster is going, are you in for the ride?
+ - Sometimes history knocks at the most ordinary door to see if anyone is home. Sometimes someone is.
+ - It’s not that I’m not grateful for all this attention. It’s just that fame and fortune ought to add up to more than fame and fortune.
+
+110 quotes

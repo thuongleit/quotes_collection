@@ -1,0 +1,22 @@
+ - Effective communication is a key factor in the success of your product.
+ - Problems with visual design can turn users off so quickly that they never discover all the smart choices you made with navigation or interaction design.
+ - User-centered design means understanding what your users need, how they think, and how they behave – and incorporating that understanding into every aspect of your process.
+ - But the best teams I’ve encountered have one important thing in common: their team structure and processes cover a full range of distinct competencies necessary for success.
+ - Ajax isn’t a technology. It’s really several technologies, each flourishing in its own right, coming together in powerful new ways.
+ - A journalist and an information architect face exactly the same problem – how to give shape to the pile of information in front of you in a way that will make it easy and natural for people to comprehend. I can’t imagine any better preparation for the work I do now.
+ - Building technical systems involves a lot of hard work and specialized knowledge: languages and protocols, coding and debugging, testing and refactoring.
+ - If you need to take a step back from day-to-day operations and plot out the long-term direction of your user experience strategy, consultants can give you a perspective you can’t get on your own.
+ - Ajax is an important development for Web applications, and its importance is only going to grow.
+ - A good designer can create a design that accommodates all the constraints and still delivers an elegant, satisfying experience to the user. A great designer can go beyond this and create a design that demonstrates that some of those constraints weren’t really there to begin with.
+ - At Adaptive Path, we’ve been doing our own work with Ajax over the last several months, and we’re realizing we’ve only scratched the surface of the rich interaction and responsiveness that Ajax applications can provide.
+ - The more everybody knows about all aspects of the problems we face, the better off all of us will be. Less time spent explaining things means more time for coming up with creative solutions.
+ - Also, if nothing else, writing this book has really changed the way I experience bookstores. I have a whole different appreciation for the amount of work packed into even the slimmest volume on the shelves.
+ - My job involves a lot of different skills now – I’m as much entrepreneur and management consultant as anything else these days – but IA is still my favorite part of the work I do.
+ - Giving something your time isn’t the same as giving it your attention.
+ - Content is often the reason users come to your site.
+ - But despite the universality of URLs, we often forget that they’re not just a handy way to address network resources. They’re also valuable communication tools.
+ - I’m not sure that you can say definitively that some roles are better filled by consultants, but I would say that some projects are better handled by consultants.
+ - As much as we may want to withdraw into a world of pure problem solving, we have to acknowledge that the most successful architectures are the ones you can actually convince someone to implement.
+ - Google is making a huge investment in developing the Ajax approach.
+
+20 quotes

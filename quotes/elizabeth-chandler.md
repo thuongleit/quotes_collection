@@ -1,0 +1,36 @@
+ - When you love someone, its never over. You move on, because you have to but you take them with you in your heart.
+ - You’ve grown up, girl. You’ve grown up real nice, Welcome home.
+ - A storm was brewing. The wind has picked up and a mass of purple clouds was coming in from the West. It felt good to have my hair whipping around my head. I thought it might feel good to have hail beat down on me. Sometimes storms outside are the only relief for storms inside...
+ - This isn’t a game for me. I love you, Ivy, and one day you’re going to believe me.
+ - I think I’m dying to get to know a particular guy. Then he opens his mouth and ruins it.
+ - Creativity is no excuse for obnoxious behavior.
+ - I had discovered that there was something more painful than falling in love with someone who hasn’t fallen for you; hurting that person-hurting him and not being able to do anything about it.
+ - He had told her he would love her forever, but he could not stay with her. From that time on, she couldn’t see his glow or hear his voice in her head. Could he still hear her? Was he even aware of her existence?
+ - The truth was, it was myself I couldn’t trust, my eyes from betraying my heart.
+ - Endings are beginnings, and beginnings are ours to turn into something good.
+ - Some people fall head over heels. Other people begin to fall without even knowing it – love grows like a spring flower beneath last autumn’s leaves and catches them by surprise.
+ - Good people were also capable of doing very bad things.
+ - I’m sorry that you’re still hurting.
+ - Every night she had fallen asleep dreaming about that kiss, and each kiss after.
+ - We sat in silence, both of us looking up at the stars. He was probably envisioning a machine headed for Pluto. I wished i was on that machine.
+ - He leaned over her, the sun behind his head making a halo of gold, his face lit by the reflections off the water.
+ - Its just the anniversary, she wanted to tell him. Its just this time of the year stirring up these memories. Everything will be all right. But she couldn’t say that, because she wasn’t sure it was true.
+ - Everyday, every hour, I have held you close in my heart.
+ - I took a step back. “Here.” He plunked his wet hat on my head. “Don’t go anywhere,” he told me, then turned away.
+ - What do you do with your anger when the person you’re mad at goes off and dies? Bury it? Bury it inside you?
+ - I leaned back against him and rested my cheek on his shoulder. I could feel the river water dripping off of him. “Thank you” I whispered. When I looked up, I saw he was crying.
+ - Despite what I said about staying the way we were, I changed. I, who have always believed in speaking my mind and made it my mission to uncover the truth, have found myself keeping secrets. Sometimes life is more complicated than the simple rules we make for it.
+ - Change can be good. It just depends on what we make of it.
+ - Words are precious things meant to create, to imagine, to dream with.
+ - I should have known it. You still have those chocolate-kiss eyes.
+ - It was Nick’s voice Nick’s arms. He turned me on my back and swam with me, pulling me to the bank.
+ - Her joy with him was like nothing she had ever experienced. His love for her felt like a miracle.
+ - You fell in love with me?
+ - People fear anyone who differs from what is considered normal, and in a small town the idea of normal can be as narrow as the streets.
+ - Was he still, somehow, watching over her?
+ - The problem for me is that I can’t ever really see who Gregory is, any more than I can see what a mirror by itself looks like, because he reflects whoever’s around him.
+ - I love the book legacy of lies it amazing and is fun to read over and over again.
+ - Let’s just say that if you were stealing TVs instead of thoughts, you would have been caught by a half-deaf, mostly blind, fifteen year old dog three robberies ago.
+ - Ten, I thought, he’s definitely a ten.
+
+34 quotes

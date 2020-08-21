@@ -1,0 +1,58 @@
+ - I’ve always been a fighter. If you tell me I can’t, I’ll die trying to prove you wrong.
+ - Change is not always growth, but growth is often rooted in change. Drizzt Do’Urden.
+ - Beware the engineers of society, I say, who would make everyone in all the world equal. Opportunitty should be equal, must be equal, but achievement must remain individual. – Drizzt Do’Urden.
+ - No, I would not want to live in a world without dragons, as I would not want to live in a world without magic, for that is a world without mystery, and that is a world without faith.
+ - Artemis Entreri: Do not underestimate Jarlaxle. Many have; they all are dead.
+ - Joy multiplies when it is shared among friends, but grief diminishes with every division. That is life.
+ - Loss of empathy might well be the most enduring and deep-cutting scar of all, the silent blade of an unseen emey, tearing at our hearts and stealing more than our strength- Drizzt Do’Urden.
+ - The meekest of animals will fight bravely when it is backed against a wall, for it has nothing left to lose. A poor man is more deadly than a rich man because he puts less value on his own life.
+ - We need to be reminded sometimes that a sunrise last but a few minutes. But its beauty can burn in our hearts eternally.
+ - Everyone dies. It is how one lives that matters.
+ - I don’t have to prove my worth and value to any but those I love, and that I do by being who I am, with confidence that those I love appreciate the good and accept the bad. Does anything else really matter?
+ - First blood is mine. Last blood counts for more. – Artemis Entreri and Drizzt Do’Urden.
+ - A world without dragons is a world not worth living in.
+ - Because everything of value that we will know in this life comes from our relationships with those around us. Because there is nothing material that measures against the intangibles of love and friendship.
+ - I’ve spared with demons from the Nine Hells themselves, I shall barely break a sweat here today.
+ - Farewell is said by the living, in life, every day. It is said with love and friendship, with the affirmation that the memories are lasting if the flesh is not.
+ - These were the companions who justified my principles, who gave me the strength to continue against any foe, real or imagined. These were the companions who fought the helplessness, the rage, and frustration. These were the friends who gave me my life.
+ - Because in fantasy perhaps more than in any other genre, the character is rewarded for making the right choices and punished for making the bad. Ask Boromir.
+ - I will always love you Drizzt Do’Urden my life was full and without regret because I knew you and was completed by you. Sleep well, my love.
+ - We are all prisoners at one time or another in our lives, prisoners to ourselves or to the expectations of those around us. It is a burden that all people endure, that all people despise, and that few people ever learn to escape.
+ - I’m trying to make all the characters change and grow, or regress.
+ - It is better, I think, to grab at the stars than to sit flustered because you know you cannot reach them.
+ - Truth, though, is nothing in the face of self-falsehood, and principles are of no value if the idealist cannot live up to his own standards.
+ - If you can quit, then quit. If you can’t quit, you’re a writer.
+ - It is more difficult by far to be independent of our own inner shackles than it is of the shackles that others might place upon us.
+ - To view current events as a historian is to account for all perspectives, even those of your enemy.
+ - There is a wide world out there, full of pain, but filled with joy as well. The former keeps you on the path of growth and the latter makes the journey tolerable.
+ - There is no pain greater than this; not the cut of a jagged-edged dagger nor the fire of a dragon’s breath. Nothing burns in your heart like the emptiness of losing something, someone, before you truly have learned of its value.
+ - I am no longer amazed by how quickly a man will justify his change of heart when a spear is leveled his way.
+ - There is no way of truly knowing where a road will lead until it is walked.
+ - I’m a working-class kid from a blue-collar New England family.
+ - A span of a few heartbeats can make for a greater memory than the sum of a mundane year.-Catti-brie.
+ - Take your love and your pleasure as you find it. Do not worry so much of the future that you let today pass you by. you are happy. need you know more than that?
+ - I need no fantasies to belittle the great treasures that I already possess.
+ - Whenever you’re writing a book or creating a movie or a game, your first task is to get the reader to suspend disbelief, to buy into the logic and boundaries of your world, even though those boundaries might include things like dragons and magic.
+ - Never confuse honor with stupidity!
+ - I shudder at the concept of a world tamed.
+ - The most common criticism that I’ve seen is that I write “popcorn fantasy”: lightweight action-adventure. Some people call it that as they explain why they love it for exactly that reason. I’m cool with that, either way. I just nod and let it go.
+ - Also, there are authors and publicists using the Internet to manipulate opinion, both positively for a work and negatively against the competition. I don’t do this and can’t stomach it, honestly.
+ - I loved to read and to write, but then something happened. As I made my way through school, I kept getting handed books to read that didn’t excite me and didn’t even remotely connect to the realities of my life.
+ - Writing is an incredibly lonely job.
+ - No one will ever write a fantasy novel better than The Hobbit.
+ - To grant the power of a weapon master to anyone at all, without effort, without training and proof that the lessons have taken hold, is to deny the responsibility that comes with such power.
+ - Drizzt had always suspected it, but now it was confirmed, that “welcome” was his favortie word in the Common Tongue, and a word, he understood with no equivalent in the language of the drow.
+ - There’s way too much pain in this business for anyone who doesn’t HAVE to write.
+ - How many people long for that “past, simpler, and better world,” I wonder, without ever recognizing the truth that perhaps it was they who were simpler and better, and not the world about them?
+ - In the past, TSR and now Wizards of the Coast have asked me to do game stats for my characters, and I’m never comfortable doing that. It’s all relative after all.
+ - The gods of the realms are many and varied – or they are the many and varied names and identities tagged onto the same being. I know not – and care not – which.
+ - Writing a book for me, I expect, is very similar to the experience of reading the book for my readers.
+ - Definitely they write themselves. It’s an amazing experience. It’s like the characters have come alive and are sitting on my shoulder talking to me, telling me their tales.
+ - It got so bad that by the time I was graduated, the only reading I did was in order to get the grade and the only writing I did was in order to get the grade.
+ - I didn’t and don’t go to Internet for any business purposes. The book sales for me by this point are way beyond any influence I might have, positively, or others might have, negatively.
+ - And the real thing can kill you whether you believe in it or not.
+ - Here’s the thing, for me at least: this is a huge genre now. It wasn’t always so. Not so many years ago, it wasn’t so. There is a tremendous diversity in fantasy today.
+ - There is a place within each of us where we cannot hide from the truth, where virtue sits as judge. To admit the truth of our actions is to go before that court, where process is irrelevant. Good and evil are intents, and intent is without excuse.
+ - I loved the world of imagination.
+
+56 quotes

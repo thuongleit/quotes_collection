@@ -1,0 +1,42 @@
+ - Momentum solves 80% of your problems. ~~John C. Maxwell
+ - Keep moving ahead because action creates momentum, which in turn creates unanticipated opportunities. ~~Nick Vujicic
+ - Forward momentum. That’s my new motto. No regrets. And no going back. ~~Gayle Forman
+ - While a good leader sustains momentum, a great leader increases it. ~~John C. Maxwell
+ - Excitement must lead to immediate action or you will lose the power of momentum. More dreams die because we fail to seize the moment. Do it now! ~~Tony Robbins
+ - For any movement to gain momentum, it must start with a small action. ~~Adam Braun
+ - What simple action could you take today to produce a new momentum toward success in your life? ~~Tony Robbins
+ - Never surrender to the momentum of mediocrity. ~~Marlon Brando
+ - You have to have a patience for exercise. You have to have a patience for college. You have to have a patience for relationships. Once the momentum gets going it takes on a life all of its own. ~~Simon Sinek
+ - He who is doing his true will is assisted by the momentum of the universe. ~~Peter J. Carroll
+ - When you have momentum going, play the momentum. ~~Donald Trump
+ - There is something about the momentum of travel that makes you want to just keep moving, to never stop. ~~Bill Bryson
+ - When a long-term trend loses it’s momentum, short-term volatility tends to rise. It is easy to see why that should be so: the trend-following crowd is disoriented. ~~George Soros
+ - Don’t get bogged down with all the details of how it’s going to come together. Just do the dishes. And watch the momentum build. ~~Brian J. White
+ - The most important thing you can do to achieve your goals is to make sure that as soon as you set them you immediately begin to create momentum. ~~Tony Robbins
+ - Forward momentum only worked as a strategy if one had correctly identified which way was forward. ~~Lois McMaster Bujold
+ - I’ve got forward momentum. There’s no virtue in it. It’s just a balancing act. I don’t dare stop. ~~Lois McMaster Bujold
+ - As the arrow endures the string, and in the gathering momentum becomes more than itself. Because to stay is to be nowhere. ~~Rainer Maria Rilke
+ - We have got to keep the momentum going in order to achieve all of our objectives. ~~Bill Vaughan
+ - The notion of auspiciousness is something positive, something with forward momentum, coming out of our actions. ~~Sakyong Mipham
+ - The words carry their own momentum. A confession in motion tends to stay in motion. Newton’s first law of jealousy. ~~Erica Jong
+ - The stream of thinking has enormous momentum that can easily drag you along with it. Every thought pretends that it matters so much. ~~Eckhart Tolle
+ - India has created a special momentum in world history as a country to be searched for knowledge. ~~Georg Wilhelm Friedrich Hegel
+ - Build confidence and momentum with each good decision you make from here on out and choose to be inspired. ~~Joe Rogan
+ - Accounting is a big subject and there are huge forces in play. The entire momentum of existing thinking and existing custom is in a direction that allows terrible follies to happen, and the terrible follies have terrible consequences. ~~Charlie Munger
+ - Momentum? Momentum is the next day’s starting pitcher. ~~Earl Weaver
+ - Human nature, as manifested in tribalism and nationalism, provides the momentum of the machinery of human evolution. ~~Arthur Keith
+ - Thus, the more precisely the position is determined, the less precisely the momentum is known, and conversely. ~~Werner Heisenberg
+ - Being right can stop all the momentum of a very interesting idea. ~~Robert Rauschenberg
+ - As economic globalization gathers momentum, China and the United States have become highly interdependent economically. Such economic relations would not enjoy sustained, rapid growth if they were not based on mutual benefit or if they failed to deliver great benefits to the United States. ~~Xi Jinping
+ - There appears to be momentum towards more and more misunderstandings between religions, a degradation of relations. ~~Aga Khan IV
+ - Momentum is whatever your attitude determines it to be. ~~Lou Holtz
+ - Most companies don’t die because they are wrong; they die because they don’t commit themselves. They fritter away their momentum and their valuable resources while attempting to make a decision. The greatest danger is standing still. ~~Andy Grove
+ - Hold fast, therefore, O circular philosopher, to thy centre, and drive the globe along its orbit by the momentum of thy thought. ~~Amos Bronson Alcott
+ - Demand and supply are the opposite extremes of the beam, whence depend the scales of dearness and cheapness; the price is the point of equilibrium, where the momentum of the one ceases, and that of the other begins. ~~Jean-Baptiste Say
+ - The momentum now is inevitable. Now it’s about each of us individually arranging the furniture of our own mind to deal with what has become inevitable. ~~Terence McKenna
+ - Momentum is your next day’s pitcher. ~~Jim Leyland
+ - In an economy that already has lost some momentum, one must remain alert to the possibility that greater caution and weakening asset values in financial markets could signal or precipitate an excessive softening in household and business spending. ~~Alan Greenspan
+ - Like all books that have that kind of momentum, it starts from word of mouth. ~~Nick Hornby
+ - He’s marked his entrance with an error of some momentum. ~~Barry Davies
+
+40 quotes

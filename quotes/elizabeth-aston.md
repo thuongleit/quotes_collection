@@ -1,0 +1,24 @@
+ - One’s first love is always perfect until one meets one’s second love.
+ - Love has no place in a lawyer’s office.
+ - Mountains inspire awe in any human person who has a soul. They remind us of our frailty, our unimportance, of the briefness of our span on this earth. They touch the heavens, and sail serenely at an altitude beyond even the imaginings of a mere mortal.
+ - It’s not what you want in this life, it’s what you get that you have to do with.
+ - The trouble with lies was that once started, the fiction had to be continued, and it was hard always to be remembering details that you had made up upon the spur of the moment.
+ - You can’t jump down the stairs in one leap, however much you might wish to, and you even more surely can’t jump up it, but one step and then the next and there you are, at the top or the bottom and not a bit out of breath or discomposed.
+ - When men are scared of a woman, they always accuse her of being mannish.
+ - Concern for someone else was a good remedy for taking the mind off one’s own troubles.
+ - One remembers horrors, I think, for the rest of one’s life, but memories do not always remain so sharp, and with time, and new circumstance, do not affect us so powerfully.
+ - What is right for one couple is wrong for another. I would say that there are many more important factors to a happy marriage.
+ - We have to have the money to do the work we want to do, as well as to keep a roof over our heads and food on the table. Fat commissions are good, but not always easy to come by, and each new painting takes its time. So we need to find every way possible to earn extra income from our work.
+ - Anyone may have diamonds: an heirloom is an ornament of quite a different kind.
+ - It is a sadness of growing older that some of us lose our ardent appreciation of what is new and different and difficult.
+ - Charge less, but charge. Otherwise, you will not be taken seriously, and you do your fellow artists no favours if you undercut the market.
+ - Clergymen have much the same in their breeches as other men.
+ - There are people who may be trusted, men as well as women. There are are as many difference in their natures as there are flowers in these meadows.
+ - There was no escaping by means of any journey, however adventurous, one took one’s problems and sorrows with one.
+ - How close the sexes sometimes come to one another. It is as much a matter of behaviour and the spere in which they move that separates the masculine part of humanity from the feminine.
+ - A man’s looks are measured by the depth of his pockets.
+ - People make one happy, not houses.
+ - People make one happy, not houses? I do not think so. Houses are more to be trusted than people.
+ - You would not think that birds who have no brain at all could become so friendly. I swear some of them are more intelligent than many humans, but that says more about our fellow beings than it does about the birds.
+
+22 quotes

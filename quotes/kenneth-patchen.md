@@ -1,0 +1,27 @@
+ - Think enough and you won’t know anything.
+ - That which is not daring is nothing.
+ - Gentle and giving-all the rest is treason.
+ - Now is then’s only tomorrow.
+ - Everyman is me. I am his brother. No man is my enemy. I am Everyman and he is in and of me. This is my faith, my strength, my deepest hope, and my only belief.
+ - Do I not deal with angels When her lips I touch.
+ - The best hope is that one of these days the ground will get disgusted enough just to walk away – leaving people with nothing more to stand on than what they have so bloody well stood for up to now.
+ - The question is not: do we believe in God? but rather: does God believe in us? And the answer is: only an unbeliever could have created our image of God; and only a false God could be satisfied with it.
+ - Literature is what you write when you think you should be saying something. Writing begins when you’d rather be doing anything else: and you’ve just done it.
+ - Dogs with broken legs are shot; men with broken souls write through the night.
+ - You will protect with the last drop of someone else’s blood what was never yours.
+ - There are so many little dyings How do we know which one of them is death?
+ - Come now, my child, if we were planning to harm you, do you think we’d be lurking here beside the path in the very darkest part of the forest?
+ - The one who comes to question himself cares for mankind.
+ - All at Once Is What Eternity Is.
+ - Art is not to throw light but to be light...
+ - Snow is the only one of us that leaves no tracks.
+ - I think people need a little joy and humor as well as commitment in their lives.
+ - It is fully practical to create that which has form in the silence. The noise art makes is usually heard by those whose lives listen to god. It is not adviseable to cheat that which has no other stake than the deeps and brights of all man.
+ - Law and order embrace on hate’s border.
+ - Destiny is the music of the improbable. Were it otherwise, almost anyone could exist.
+ - In literature as in life, to conform to anything is to knuckle under to your inferiors.
+ - For greatness is only the drayhorse that coaxes The built cart out; and where we go is reason. But genius is an enormous littleness, a trickling Of heart that covers alike the hare and the hunter.
+ - God must have loved the People in Power, for he made them so very like their own image of him.
+ - In the love of a man and a woman is the look of God looking.
+
+25 quotes

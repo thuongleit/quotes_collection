@@ -1,0 +1,23 @@
+ - Life’s funny. You have to find a way to keep going, to keep laughing, even after you realize that none of your dreams will come true. When you realize that, there’s still so much of a life to get through.
+ - Above all, in my anger, I was sad. Isn’t that always the way, that at the heart of the fire is a frozen kernel of sorrow that the fire is trying – valiantly, fruitlessly – to eradicate.
+ - Yes, writing is essential to me. It’s my way of living in the world.
+ - But we’re lost in a world of appearances now.
+ - That’s so her. You know, torn between Big Ideas and a party. She’s always been that way.
+ - As my wise friend Didi has more than once observed about life’s passages, every departure entails an arrival elsewhere, every arrival implies a departure from afar.
+ - Maybe that, really, is as good a definition as any of an artist in the world: a ruthless person.
+ - We read to find life, in all its possibilities.
+ - I believe that, in an ideal world, writers would feel free to write what matters to them without having to consider success, failure, the market, etc.
+ - If you’re reading to find friends, you’re in deep trouble. We read to find life, in all its possibilities. The relevant question isn’t ‘Is this a potential friend for me?’ but ‘Is this character alive?’
+ - I’m not a writing group member, not a joiner in that way. I don’t seek a wide swath of feedback.
+ - To my mind, Guernica is the most important online intellectual and literary journal in America today.
+ - The more accurately one can illuminate a particular human experience, the better the work of art.
+ - Geniuses have the shortest biographies.
+ - If I had to summarize, most broadly, my concerns as a writer, I’d say the question ‘How then must we live?’ is at the heart of it, for me.
+ - An abiding preoccupation for me is how much of our lives are invisible and unknown by other people, like the Chekhov story ‘The Lady With the Little Dog.’
+ - It doesn’t ever occur to you, as you fashion your mask so carefully, that it will grow into your skin and graft itself, come to seem irremovable.
+ - I wanted to write a voice that for me, as a reader, had been missing from the chorus: the voice of an angry woman.
+ - I was funny – ha-ha, not peculiar. It was a modest currency, like pennies: pedestrian, somewhat laborious, but a currency nonetheless. I was funny, in public, most often at my own expense.
+ - If you’re reading to find friends, you’re in deep trouble.
+ - I’ve discovered over the years that the simplest explanation is almost always the right one; and that hunger of one kind or another – desire, by another name – is the source of almost every sorrow.
+
+21 quotes

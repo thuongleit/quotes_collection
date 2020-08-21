@@ -1,0 +1,28 @@
+ - The most powerful weapon on earth is the human soul on fire.
+ - The will to conquer is the first condition of victory.
+ - My center is giving way, my right is in retreat; situation excellent. I shall attack.
+ - This is not a peace. It is an armistice for twenty years.
+ - It take 15,000 casualties to train a major general.
+ - The unknown is the governing principle of war.
+ - Aviation is fine as a sport. But as an instrument of war, it is worthless.
+ - No study is possible on the battlefield.
+ - One is defeated only when one accepts defeat.
+ - The power to command has never meant the power to remain mysterious.
+ - A beaten general is disgraced forever.
+ - The military mind always imagines that the next war will be on the same lines as the last. That has never been the case and never will be. One of the great factors on the next war will be aircraft obviously. The potentialities of aircraft attack on a large scale are almost incalculable.
+ - A battle won is a battle which we will not acknowledge to be lost.
+ - In war there are none but particular cases; everything has there an individual nature; nothing ever repeats itself. In the first place, the data of a military problem are but seldom certain; they are never final. Everything is in a constant state of change and reshaping.
+ - In whatever position you find yourself, determine first your objective.
+ - Don’t drown yourself in details. Look at the whole.
+ - There is but one means to extenuate the effects of enemy fire: it is to develop a more violent fire oneself.
+ - A war not only arises, but derives its nature, from the political ideas, the moral sentiments, and the international relations obtaining at the moment when it breaks out. This amounts to saying:;: try and know why and with the help of what you are going to act; then you will find out how to act.
+ - The truth is, no study is possible on the battle-field; one does there simply what one can in order to apply what one knows. Therefore, in order to do even a little, one has already to know a great deal and to know it well.
+ - I am conscious of having served England as I served my own country.
+ - Victory is a thing of the will.
+ - The laurels of victory are at the point of the enemy bayonets. They must be plucked there ; they must be carried by a hand-to-hand fight if one really means to conquer.
+ - To inform, and, therefore to reconnoitre, this is the first and constant duty of the advanced guard.
+ - Every manoeuvre must be the development of a scheme; it must aim at a goal.
+ - Regulations are all very well for drill, but in the hour of danger they are no more use. You have to learn to think.
+ - One does simply what one can in order to apply what one knows .
+
+26 quotes

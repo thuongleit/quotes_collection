@@ -1,0 +1,502 @@
+ - We are what we repeatedly do. Excellence, therefore, is not an act, but a habit.
+ - Through discipline comes freedom.
+ - Knowing yourself is the beginning of all wisdom.
+ - Hope is a waking dream.
+ - The more you know, the more you know you don’t know.
+ - Excellence is never an accident. It is always the result of high intention, sincere effort, and intelligent execution; it represents the wise choice of many alternatives - choice, not chance, determines your destiny.
+ - No great mind has ever existed without a touch of madness.
+ - To avoid criticism say nothing, do nothing, be nothing.
+ - Pleasure in the job puts perfection in the work.
+ - He who has overcome his fears will truly be free.
+ - It is during our darkest moments that we must focus to see the light.
+ - He who cannot be a good follower cannot be a good leader.
+ - The roots of education are bitter, but the fruit is sweet.
+ - I count him braver who overcomes his desires than him who overcomes his enemies.
+ - Happiness is a state of activity.
+ - Happiness is the meaning and the purpose of life, the whole aim and end of human existence.
+ - Patience is bitter, but its fruit is sweet.
+ - Where the needs of the world and your talents cross, there lies your vocation.
+ - The antidote for fifty enemies is one friend.
+ - Courage is the first of human qualities because it is the quality which guarantees the others.
+ - What is a friend? A single soul dwelling in two bodies.
+ - Fortune favours the bold.
+ - Happiness depends upon ourselves.
+ - He who is to be a good ruler must have first been ruled.
+ - Educating the mind without educating the heart is no education at all.
+ - The whole is greater than the sum of its parts.
+ - It is the mark of an educated mind to be able to entertain a thought without accepting it.
+ - Quality is not an act, it is a habit.
+ - Well begun is half done.
+ - Those who know, do. Those that understand, teach.
+ - Anybody can become angry – that is easy, but to be angry with the right person and to the right degree and at the right time and for the right purpose, and in the right way – that is not within everybody’s power and is not easy.
+ - For the things we have to learn before we can do them, we learn by doing them.
+ - Learning is not child’s play; we cannot learn without pain.
+ - A friend to all is a friend to none.
+ - Whosoever is delighted in solitude, is either a wild beast or a god.
+ - Our problem is not that we aim too high and miss, but that we aim too low and hit.
+ - The high-minded man must care more for the truth than for what people think.
+ - In all things of nature there is something of the marvelous.
+ - Men acquire a particular quality by constantly acting in a particular way.
+ - The energy of the mind is the essence of life.
+ - To write well, express yourself like the common people, but think like a wise man.
+ - It is not enough to win a war; it is more important to organize the peace.
+ - Excellence is an art won by training and habituation.
+ - Excellence is an art won by training and habituation. We do not act rightly because we have virtue or excellence, but we rather have those because we have acted rightly. We are what we repeatedly do. Excellence, then, is not an act but a habit.
+ - The complete man must work, study and wrestle.
+ - What is the essence of life? To serve others and to do good.
+ - The Law is Reason free from Passion.
+ - Great men are always of a nature originally melancholy.
+ - All paid jobs absorb and degrade the mind.
+ - Poverty is the parent of revolution and crime.
+ - The worst form of inequality is to try to make unequal things equal.
+ - Freedom is obedience to self-formulated rules.
+ - To perceive is to suffer.
+ - Wit is educated insolence.
+ - Nature does nothing uselessly.
+ - All men by nature desire knowledge.
+ - All human actions have one or more of these seven causes: chance, nature, compulsion, habit, reason, passion, and desire.
+ - Courage is the first virtue that makes all other virtues possible.
+ - Character may almost be called the most effective means of persuasion.
+ - All communication must lead to change.
+ - Greatness of spirit is accompanied by simplicity and sincerity.
+ - Learning is an ornament in prosperity, a refuge in adversity, and a provision in old age.
+ - Tolerance and apathy are the last virtues of a dying society.
+ - Wonder implies the desire to learn.
+ - Happiness does not consist in pastimes and amusements but in virtuous activities.
+ - Beauty is the gift of God.
+ - When you ask a dumb question, you get a smart answer.
+ - There is a foolish corner in the brain of the wisest man.
+ - The best way to avoid envy is to deserve the success you get.
+ - Man is by nature a political animal.
+ - Our characters are the result of our conduct.
+ - The aim of art is to represent not the outward appearance of things, but their inward significance.
+ - I have gained this by philosophy: that I do without being commanded what others do only from fear of the law.
+ - Without friends, no one would want to live, even if he had all other goods.
+ - It is not always the same thing to be a good man and a good citizen.
+ - We make war that we may live in peace.
+ - Fear is pain arising from the anticipation of evil.
+ - Masculine republics give way to feminine democracies, and feminine democracies give way to tyranny.
+ - A person’s life persuades better than his word.
+ - Saying the words that come from knowledge is no sign of having it.
+ - Dignity does not consist in possessing honors, but in the consciousness that we deserve them.
+ - Those who educate children well are more to be honored than they who produce them; for these only gave them life, those the art of living well.
+ - Philosophy begins with wonder.
+ - Human beings are curious by nature.
+ - In the arena of human life the honors and rewards fall to those who show their good qualities in action.
+ - All teaching and all intellectual learning come about from already existing knowledge.
+ - It is better for a city to be governed by a good man than by good laws.
+ - One swallow does not make a summer, neither does one fine day; similarly one day or brief time of happiness does not make a person entirely happy.
+ - Plato is dear to me, but dearer still is truth.
+ - Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+ - Our youth should also be educated with music and physical education.
+ - The avarice of mankind is insatiable.
+ - Mothers are fonder than fathers of their children because they are more certain they are therir own.
+ - If the art of ship-building were in the wood, ships would exist by nature.
+ - The guest will judge better of a feast than the cook.
+ - The many are more incorruptible than the few; they are like the greater quantity of water which is less easily corrupted than a little.
+ - Every realm of nature is marvelous.
+ - It is the mark of an educated mind to expect that amount of exactness which the nature of the particular subject admits. It is equally unreasonable to accept merely probable conclusions from a mathematician and to demand strict demonstration from an orator.
+ - Man is the metre of all things, the hand is the instrument of instruments, and the mind is the form of forms.
+ - The most beautiful colors laid on at random, give less pleasure than a black-and-white drawing.
+ - He who has conferred a benefit on anyone from motives of love or honor will feel pain, if he sees that the benefit is received without gratitude.
+ - Virtue is the golden mean between two vices, the one of excess and the other of deficiency.
+ - We are the sum of our actions, and therefore our habits make all the difference.
+ - 95% of everything you do is the result of habit.
+ - Be a free thinker and don’t accept everything you hear as truth. Be critical and evaluate what you believe in.
+ - A promise made must be a promise kept.
+ - Justice therefore demands that no one should do more ruling than being ruled, but that all should have their turn.
+ - At the intersection where your gifts, talents, and abilities meet a human need; therein you will discover your purpose.
+ - We can’t learn without pain.
+ - The greatest of all pleasures is the pleasure of learning.
+ - The quality of life is determined by its activities.
+ - Happiness is the highest good.
+ - Teaching is the highest form of understanding.
+ - Happiness belongs to the self sufficient.
+ - At his best, man is the noblest of all animals; separated from law and justice he is the worst.
+ - The worst thing about slavery is that the slaves eventually get to like it.
+ - The soul never thinks without a picture.
+ - What it lies in our power to do, it lies in our power not to do.
+ - There’s many a slip between the cup and the lip.
+ - The intelligence consists not only in the knowledge but also in the skill to apply the knowledge into practice.
+ - Man is a goal-seeking animal. His life only has meaning if he is reaching out and striving for his goals.
+ - A tragedy is that moment where the hero comes face to face with his true identity.
+ - Speech is the representation of the mind, and writing is the representation of speech.
+ - First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end.
+ - The weak are always anxious for justice and equality. The strong pay no heed to either.
+ - Give a man a fish, you feed him for a day. Give a man a poisoned fish, you feed him for the rest of his life.
+ - The misanthrope, as an essentially solitary man, is not a man at all: he must be a beast or a god...
+ - It is well to be up before daybreak, for such habits contribute to health, wealth, and wisdom.
+ - The high-minded man does not bear grudges, for it is not the mark of a great soul to remember injuries, but to forget them.
+ - To appreciate the beauty of a snow flake, it is necessary to stand out in the cold.
+ - To lead an orchestra, you must turn your back on the crowd.
+ - Greed has no boundaries.
+ - Music has the power of producing a certain effect on the moral character of the soul, and if it has the power to do this, it is clear that the young must be directed to music and must be educated in it.
+ - Every virtue is a mean between two extremes, each of which is a vice.
+ - The aim of the wise is not to secure pleasure, but to avoid pain.
+ - We become just by the practice of just actions, self-controlled by exercising self-control, and courageous by performing acts of courage.
+ - We become brave by doing brave acts.
+ - The hardest victory is the victory over self.
+ - The fool tells me his reason; the wise man persuades me with my own.
+ - Nothing is what rocks dream about.
+ - Health is a matter of choice, not a mystery of chance.
+ - There is nothing unequal as the equal treatment of unequals.
+ - Art completes what nature cannot bring to finish. The artist gives us knowledge of nature’s unrealized ends.
+ - The end of labor is to gain leisure.
+ - Think as the wise men think, but talk like the simple people do.
+ - Good habits formed at youth make all the difference.
+ - The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival.
+ - He who sees things grow from the beginning will have the best view of them.
+ - The habits we form from childhood make no small difference, but rather they make all the difference.
+ - Law is order, and good law is good order.
+ - All men seek one goal: success or happiness.
+ - The greatest thing by far is to be a master of metaphor; it is the one thing that cannot be learned from others; and it is also a sign of genius, since a good metaphor implies an intuitive perception of the similarity of the dissimilar.
+ - Fate of empires depends on the education of youth.
+ - Happiness is the settling of the soul into its most appropriate spot.
+ - Each human being is bred with a unique set of potentials that yearn to be fulfilled as surely as the acorn yearns to become the oak within it.
+ - Soul and body, I suggest react sympathetically upon each other. A change in the state of the soul produces a change in the shape of the body and conversely, a change in the shape of the body produces a change in the state of the soul.
+ - We become just by performing just action, temperate by performing temperate actions, brave by performing brave action.
+ - Prosperity makes friends and adversity tries them. A true friend is one soul in two bodies.
+ - Character is determined by choice, not opinion.
+ - The ideal man bears the accidents of life with dignity and grace, making the best of circumstances.
+ - In a polity, each citizen is to possess his own arms, which are not supplied or owned by the state.
+ - Music has a power of forming the character, and should therefore be introduced into the education of the young.
+ - You will never do anything in this world without courage. It is the greatest quality of the mind next to honor.
+ - The beauty of the soul shines out when a man bears with composure one heavy mischance after another, not because he does not feel them, but because he is a man of high and heroic temper.
+ - Love is the cause of unity in all things.
+ - We give up leisure in order that we may have leisure, just as we go to war in order that we may have peace.
+ - He who has never learned to obey cannot be a good commander.
+ - To say of what is that it is not, or of what is not that it is, is false, while to say of what is that it is, and of what is not that it is not, is true.
+ - Knowledge of the fact differs from knowledge of the reason for the fact.
+ - We work to earn our leisure.
+ - Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind.
+ - Time crumbles things; everything grows old under the power of Time and is forgotten through the lapse of Time.
+ - The best way to teach morality is to make it a habit with children.
+ - All who have meditated on the art of governing mankind have been convinced that the fate of empires depends on the education of youth.
+ - Equity is that idea of justice which contravenes the written law.
+ - Change in all things is sweet.
+ - Have a definite, clear, practical ideal – a goal, an objective.
+ - Hippodamus, son of Euryphon, a native of Miletus, invented the art of planning and laid out the street plan of Piraeus.
+ - There is more both of beauty and of raison d’etre in the works of nature- than in those of art.
+ - The senses are gateways to the intelligence. There is nothing in the intelligence which did not first pass through the senses.
+ - When the storytelling goes bad in a society, the result is decadence.
+ - If you would understand anything, observe its beginning and its development.
+ - Only an armed people can be truly free. Only an unarmed people can ever be enslaved.
+ - Leisure of itself gives pleasure and happiness and enjoyment of life, which are experienced, not by the busy man, but by those who have leisure.
+ - Friendship is two souls inhabiting one body.
+ - Cruel is the strife of brothers.
+ - The young are heated by Nature as drunken men by wine.
+ - True happiness comes from gaining insight and growing into your best possible self. Otherwise all you’re having is immediate gratification pleasure, which is fleeting and doesn’t grow you as a person.
+ - Wicked men obey for fear, but the good for love.
+ - Why is it that all men who are outstanding in philosophy, poetry or the arts are melancholic?
+ - We do not know a truth without knowing its cause.
+ - A democracy exists whenever those who are free and are not well-off, being in the majority, are in sovereign control of government, an oligarchy when control lies with the rich and better-born, these being few.
+ - Friends hold a mirror up to each other; through that mirror they can see each other in ways that would not otherwise be accessible to them, and it is this mirroring that helps them improve themselves as persons.
+ - All persons ought to endeavor to follow what is right, and not what is established.
+ - Whether we call it sacrifice, or poetry, or adventure, it is always the same voice that calls.
+ - The ideal man takes joy in doing favors for others.
+ - Quitting smoking is rather a marathon than a sprint. It is not a one-time attempt, but a longer effort.
+ - The soul is the form of the body.
+ - The one exclusive sign of thorough knowledge is the power of teaching.
+ - A true friend is one soul divided into two people.
+ - A common danger unites even the bitterest enemies.
+ - Poetry is finer and more philosophical than history; for poetry expresses the universal, and history only the particular.
+ - Adventure is worthwhile.
+ - Money was intended to be used in exchange, but not to increase at interest. And this term interest, which means the birth of money from money, is applied to the breeding of money because the offspring resembles the parent. Wherefore of all modes of getting wealth this is the most unnatural.
+ - Boundaries don’t protect rivers, people do.
+ - Art takes nature as its model.
+ - When there is no middle class, and the poor greatly exceed in number, troubles arise, and the state soon comes to an end.
+ - The real difference between democracy and oligarchy is poverty and wealth. Wherever men rule by reason of their wealth, whether they be few or many, that is an oligarchy, and where the poor rule, that is a democracy.
+ - The physician heals, Nature makes well.
+ - The greatest thing by far is to have a command of metaphor. This alone cannot be imparted by another; it is the mark of genius, for to make good metaphors implies an eye for resemblances.
+ - The secret to humor is surprise.
+ - Happiness is self-connectedness.
+ - Life is only meaningful when we are striving for a goal .
+ - The knowledge of the soul admittedly contributes greatly to the advance of truth in general, and, above all, to our understanding of Nature, for the soul is in some sense the principle of animal life.
+ - Metaphysics involves intuitive knowledge of unprovable starting-points concepts and truth and demonstrative knowledge of what follows from them.
+ - Again, the male is by nature superior, and the female inferior; and the one rules, and the other is ruled; this principle, of necessity, extends to all mankind.
+ - Law is mind without reason.
+ - There is only one good, that is knowledge; there is only one evil, that is ignorance.
+ - The greatest virtues are those which are most useful to other persons.
+ - Character is that which reveals moral purpose, exposing the class of things a man chooses and avoids.
+ - Worms are the intestines of the earth.
+ - Men come together in cities in order to live: they remain together in order to live the good life.
+ - For just as for a flute-player, a sculptor, or an artist, and, in general, for all things that have a function or activity, the good and the well is thought to reside in the function, so would it seem to be for man, if he has a function.
+ - For imitation is natural to man from his infancy. Man differs from other animals particularly in this, that he is imitative, and acquires his rudiments of knowledge in this way; besides, the delight in it is universal.
+ - Yes the truth is that men’s ambition and their desire to make money are among the most frequent causes of deliberate acts of injustice.
+ - By ‘life,’ we mean a thing that can nourish itself and grow and decay.
+ - No science ever defends its first principles.
+ - The seat of the soul and the control of voluntary movement – in fact, of nervous functions in general, – are to be sought in the heart. The brain is an organ of minor importance.
+ - To love someone is to identify with them.
+ - Humility is a flower which does not grow in everyone’s garden.
+ - It is our choice of good or evil that determines our character, not our opinion about good or evil.
+ - Laughter is a bodily exercise, precious to Health.
+ - That which is common to the greatest number has the least care bestowed upon it.
+ - God has many names, though He is only one Being.
+ - In justice is all virtues found in sum.
+ - Emotions of any kind are produced by melody and rhythm; therefore by music a man becomes accustomed to feeling the right emotions; music has thus the power to form character, and the various kinds of music based on various modes may be distinguished by their effects on character.
+ - Selfishness doesn’t consist in a love to yourself, but in a big degree of such love.
+ - To give away money is an easy matter and in any man’s power. But to decide to whom to give it and how large and when, and for what purpose and how, is neither in every man’s power nor an easy matter.
+ - To be ignorant of motion is to be ignorant of nature.
+ - Nature operates in the shortest way possible.
+ - The true end of tragedy is to purify the passions.
+ - The duty of rhetoric is to deal with such matters as we deliberate upon without arts or systems to guide us, in the hearing of persons who cannot take in at a glance a complicated argument or follow a long chain of reasoning.
+ - No democracy can exist unless each of its citizens is as capable of outrage at injustice to another as he is of outrage at unjustice to himself.
+ - Democracy is the form of government in which the free are rulers, and oligarchy in which the rich; it is only an accident that the free are the many and the rich are the few.
+ - With the truth, all given facts harmonize; but with what is false, the truth soon hits a wrong note.
+ - People become house builders through building houses, harp players through playing the harp. We grow to be just by doing things which are just.
+ - Probable impossibilities are to be preferred to improbable possibilities.
+ - The least initial deviation from the truth is multiplied later a thousandfold.
+ - It’s the fastest who gets paid, and it’s the fastest who gets laid.
+ - The soul suffers when the body is diseased or traumatized, while the body suffers when the soul is ailing.
+ - If everything when it occupies an equal space is at rest, and if that which is in locomotion is always occupying such a space at any moment, the flying arrow is therefore motionless.
+ - Plato is my friend, but truth is a better friend.
+ - True happiness flows from the possession of wisdom and virtue and not from the possession of external goods.
+ - Imagination is a sort of faint perception.
+ - No one loves the man whom he fears.
+ - Personal beauty requires that one should be tall; little people may have charm and elegance, but beauty-no.
+ - Life in the true sense is perceiving or thinking.
+ - So it is naturally with the male and the female; the one is superior, the other inferior; the one governs, the other is governed; and the same rule must necessarily hold good with respect to all mankind.
+ - The activity of God, which is transcendent in blessedness, is the activity of contemplation; and therefore among human activities that which is most akin to the divine activity of contemplation will be the greatest source of happiness.
+ - The Eyes are the organs of temptation, and the Ears are the organs of instruction.
+ - Youth is easily deceived because it is quick to hope.
+ - We can do noble acts without ruling the earth and sea.
+ - No excellent soul is exempt from a mixture of madness.
+ - Those who have been eminent in philosophy, politics, poetry, and the arts have all had tendencies toward melancholia.
+ - Rhetoric may be defined as the faculty of observing in any given case the available means of persuasion.
+ - Art not only imitates nature, but also completes its deficiencies.
+ - A change in the shape of the body creates a change in the state of the soul.
+ - It is a part of probability that many improbable things will happen.
+ - Perception starts with the eye.
+ - The principle aim of gymnastics is the education of all youth and not simply that minority of people highly favored by nature.
+ - Good moral character is not something that we can achieve on our own. We need a culture that supports the conditions under which self-love and friendship flourish.
+ - If you prove the cause, you at once prove the effect; and conversely nothing can exist without its cause.
+ - The greatest crimes are caused by surfeit, not by want.
+ - And of course, the brain is not responsible for any of the sensations at all. The correct view is that the seat and source of sensation is the region of the heart.
+ - No one would choose a friendless existence on condition of having all the other things in the world.
+ - To learn is a natural pleasure, not confined to philosophers, but common to all men.
+ - The greatest injustices proceed from those who pursue excess, not by those who are driven by necessity.
+ - It is the mark of an educated mind to rest satisfied with the degree of precision which the nature of the subject admits and not to seek exactness where only an approximation is possible.
+ - Those that deem politics beneath their dignity are doomed to be governed by those of lesser talents.
+ - God and nature create nothing that does not fulfill a purpose.
+ - In practical matters the end is not mere speculative knowledge of what is to be done, but rather the doing of it. It is not enough to know about Virtue, then, but we must endeavor to possess it, and to use it, or to take any other steps that may make.
+ - The citizens begin by giving up some part of the constitution, and so with greater ease the government change something else which is a little more important, until they have undermined the whole fabric of the state.
+ - Happiness seems to require a modicum of external prosperity.
+ - When a draco has eaten much fruit, it seeks the juice of the bitter lettuce; it has been seen to do this.
+ - Peace is more difficult than war.
+ - We are not angry with people we fear or respect, as long as we fear or respect them; you cannot be afraid of a person and also at the same time angry with him.
+ - A speaker who is attempting to move people to thought or action must concern himself with Pathos.
+ - The right constitutions, three in number- kingship, aristocracy, and polity- and the deviations from these, likewise three in number – tyranny from kingship, oligarchy from aristocracy, democracy from polity.
+ - Before you heal the body you must first heal the mind.
+ - All virtue is summed up in dealing justly.
+ - Poetry demands a man with a special gift for it, or else one with a touch of madness in him.
+ - Humor is the only test of gravity, and gravity of humor; for a subject which will not bear raillery is suspicious, and a jest which will not bear serious examination is false wit.
+ - Reason is a light that God has kindled in the soul.
+ - With respect to the requirement of art, the probable impossible is always preferable to the improbable possible.
+ - Wickedness is nourished by lust.
+ - We praise a man who feels angry on the right grounds and against the right persons and also in the right manner at the right moment and for the right length of time.
+ - For good is simple, evil manifold.
+ - To be always seeking after the useful does not become free and exalted souls.
+ - All food must be capable of being digested, and that what produces digestion is warmth; that is why everything that has soul in it possesses warmth.
+ - So the good has been well explained as that at which all things aim.
+ - Authority is no source for Truth.
+ - The activity of happiness must occupy an entire lifetime; for one swallow does not a summer make.
+ - Bring your desires down to your present means. Increase them only when your increased means permit.
+ - Man, as an originator of action, is a union of desire and intellect.
+ - Of the irrational part of the soul again one division appears to be common to all living things, and of a vegetative nature.
+ - The mathematical sciences particularly exhibit order symmetry and limitations; and these are the greatest forms of the beautiful.
+ - The only stable principle of government is equality according to proportion, and for every man to enjoy his own.
+ - Money is a guarantee that we may have what we want in the future. Though we need nothing at the moment it insures the possibility of satisfying a new desire when it arises.
+ - Maybe crying is a means of cleaning yourself out emotionally. Or maybe it’s your last resort; the only way to express yourself when words fail, the same as when you were a baby and had no words.
+ - The life of theoretical philosophy is the best and happiest a man can lead. Few men are capable of it and then only intermittently. For the rest there is a second-best way of life, that of moral virtue and practical wisdom.
+ - Time is the measurable unit of movement concerning a before and an after.
+ - The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit.
+ - A gentleman is not disturbed by anything.
+ - It is evident that the state is a creation of nature, and that man is by nature a political animal.
+ - Between friends there is no need of justice.
+ - Perfect friendship is the friendship of men who are good, and alike in excellence; for these wish well alike to each other qua good, and they are good in themselves.
+ - That which is impossible and probable is better than that which is possible and improbable.
+ - The life of money-making is one undertaken under compulsion, and wealth is evidently not the good we are seeking; for it is merely useful and for the sake of something else.
+ - Thinking is different from perceiving and is held to be in part imagination, in part judgment.
+ - To run away from trouble is a form of cowardice and, while it is true that the suicide braves death, he does it not for some noble object but to escape some ill.
+ - I call that law universal, which is conformable merely to dictates of nature; for there does exist naturally an universal sense of right and wrong, which, in a certain degree, all intuitively divine, even should no intercourse with each other, nor any compact have existed.
+ - The so-called Pythagoreans, who were the first to take up mathematics, not only advanced this subject, but saturated with it, they fancied that the principles of mathematics were the principles of all things.
+ - Men are marked from the moment of birth to rule or be ruled.
+ - There are some jobs in which it is impossible for a man to be virtuous.
+ - Temperance and bravery, then, are ruined by excess and deficiency, but preserved by the mean.
+ - A brave man is clear in his discourse, and keeps close to truth.
+ - Men create gods after their own image, not only with regard to their form but with regard to their mode of life.
+ - Music directly represents the passions of the soul. If one listens to the wrong kind of music, he will become the wrong kind of person.
+ - The law is reason unaffected by desire.
+ - Definition of tragedy: A hero destroyed by the excess of his virtues.
+ - Sophocles said he drew men as they ought to be, and Euripides as they were.
+ - It is of the nature of desire not to be satisfied, and most men live only for the gratification of it.
+ - A good style must, first of all, be clear. It must not be mean or above the dignity of the subject. It must be appropriate.
+ - The blood of a goat will shatter a diamond.
+ - A city is composed of different kinds of men; similar people cannot bring a city into existence.
+ - The avarice of mankind is insatiable; at one time two obols was pay enough; but now, when this sum has become customary, men always want more and more without end.
+ - Equality consists in the same treatment of similar persons.
+ - When the looms spin by themselves, we’ll have no need for slaves.
+ - Injustice results as much from treating unequals equally as from treating equals unequally.
+ - We may assume the superiority ceteris paribus of the demonstration which derives from fewer postulates or hypotheses – in short, from fewer premises.
+ - If things do not turn out as we wish, we should wish for them as they turn out.
+ - Today, see if you can stretch your heart and expand your love so that it touches not only those to whom you can give it easily, but also to those who need it so much.
+ - There is always something new coming out of Africa.
+ - All Earthquakes and Disasters are warnings; there’s too much corruption in the world.
+ - The state comes into existence for the sake of life and continues to exist for the sake of good life.
+ - A right election can only be made by those who have knowledge;.
+ - Aristocracy is that form of government in which education and discipline are qualifications for suffrage and office holding.
+ - Should a man live underground, and there converse with the works of art and mechanism, and should afterwards be brought up into the open day, and see the several glories of the heaven and earth, he would immediately pronounce them the work of such a Being as we define God to be.
+ - Remember that time slurs over everything, let all deeds fade, blurs all writings and kills all memories. Exempt are only those which dig into the hearts of men by love.
+ - Happiness lies in virtuous activity, and perfect happiness lies in the best activity, which is contemplative.
+ - Every rascal is not a thief, but every thief is a rascal.
+ - The character which results from wealth is that of a prosperous fool.
+ - A likely impossibility is always preferable to an unconvincing possibility.
+ - When you are lonely, when you feel yourself an alien in the world, play Chess. This will raise your spirits and be your counselor in war.
+ - Those who cannot bravely face danger are the slaves of their attackers.
+ - The light of the day is followed by night, as a shadow follows a body.
+ - The virtue of justice consists in moderation, as regulated by wisdom.
+ - No notice is taken of a little evil, but when it increases it strikes the eye.
+ - Teachers, who educate children, deserve more honour than parents, who merely gave them birth; for the latter provided mere life, while the former ensure a good life.
+ - It is clear that the earth does not move, and that it does not lie elsewhere than at the center.
+ - Fine friendship requires duration rather than fitful intensity.
+ - Of the modes of persuasion furnished by the spoken word there are three kinds. The first kind depends on the personal character ofthe speaker; the second on putting the audience into a certain frame of mind; the third on the proof, provided by the words of the speech itself.
+ - The society that loses its grip on the past is in danger, for it produces men who know nothing but the present, and who are not aware that life had been, and could be, different from what it is.
+ - It is easy to perform a good action, but not easy to acquire a settled habit of performing such actions.
+ - There is simple ignorance, which is the source of lighter offenses, and double ignorance, which is accompanied by a conceit of wisdom.
+ - The chief forms of beauty are order and symmetry and definiteness, which the mathematical sciences demonstrate in a special degree.
+ - Comedy aims at representing men as worse, Tragedy as better than in actual life.
+ - Tyrants preserve themselves by sowing fear and mistrust among the citizens by means of spies, by distracting them with foreign wars, by eliminating men of spirit who might lead a revolution, by humbling the people, and making them incapable of decisive action...
+ - People never know each other until they have eaten a certain amount of salt together.
+ - The precepts of the law may be comprehended under these three points: to live honestly, to hurt no man willfully, and to render every man his due carefully.
+ - Metaphor is halfway between the unintelligible and the commonplace.
+ - Some vices miss what is right because they are deficient, others because they are excessive, in feelings or in actions, while virtue finds and chooses the mean.
+ - Republics decline into democracies and democracies degenerate into despotisms.
+ - Now the greatest external good we should assume to be the thing which we offer as a tribute to the gods, and which is most coveted by men of high station, and is the prize awarded for the noblest deeds; and such a thing is honor, for honor is clearly the greatest of external goods.
+ - Women should marry when they are about eighteen years of age, and men at seven and thirty; then they are in the prime of life, and the decline in the powers of both will coincide.
+ - Whereas the law is passionless, passion must ever sway the heart of man.
+ - But the whole vital process of the earth takes place so gradually and in periods of time which are so immense compared with the length of our life, that these changes are not observed, and before their course can be recorded from beginning to end whole nations perish and are destroyed.
+ - Let us first understand the facts and then we may seek the cause.
+ - For though we love both the truth and our friends, piety requires us to honor the truth first.
+ - The best tragedies are conflicts between a hero and his destiny.
+ - But nature flies from the infinite; for the infinite is imperfect, and nature always seeks an end.
+ - It is the characteristic of the magnanimous man to ask no favor but to be ready to do kindness to others.
+ - Gentleness is the ability to bear reproaches and slights with moderation, and not to embark on revenge quickly, and not to be easily provoked to anger, but be free from bitterness and contentiousness, having tranquility and stability in the spirit.
+ - People of superior refinement and of active disposition identify happiness with honour; for this is roughly speaking, the end of political life.
+ - Being a father is the most rewarding thing a man whose career has plateaued can do.
+ - The angry man wishes the object of his anger to suffer in return; hatred wishes its object not to exist.
+ - Distance does not break off the friendship absolutely, but only the activity of it.
+ - One swallow does not make a spring, nor does one fine day.
+ - It makes no difference whether a good man has defrauded a bad man, or a bad man defrauded a good man, or whether a good or bad man has committed adultery: the law can look only to the amount of damage done.
+ - Why is it that all those who have become eminent in philosophy, politics, poetry, or the arts are clearly of an atrabilious temperament and some of them to such an extent as to be affected by diseases caused by black bile?
+ - The most important relationship we can all have is the one you have with yourself, the most important journey you can take is one of self-discovery. To know yourself, you must spend time with yourself, you must not be afraid to be alone. Knowing yourself is the beginning of all wisdom.
+ - Friendship is essentially a partnership.
+ - For the real difference between humans and other animals is that humans alone have perception of good and evil, just and unjust, etc. It is the sharing of a common view in these matters that makes a household and a state.
+ - For often, when one is asleep, there is something in consciousness which declares that what then presents itself is but a dream.
+ - The pleasures arising from thinking and learning will make us think and learn all the more. 1153a 23.
+ - Irrational passions would seem to be as much a part of human nature as is reason.
+ - The good citizen need not of necessity possess the virtue which makes a good man.
+ - The brave man, if he be compared with the coward, seems foolhardy; and, if with the foolhardy man, seems a coward.
+ - Pleasure causes us to do base actions and pain causes us to abstain from doing noble actions.
+ - We deliberate not about ends, but about means.
+ - Happiness is prosperity combined with virtue.
+ - One may go wrong in many different ways, but right only in one, which is why it is easy to fail and difficult to succeed.
+ - All friendly feelings toward others come from the friendly feelings a person has for himself.
+ - Every man should be responsible to others, nor should any one be allowed to do just as he pleases; for where absolute freedom is allowed, there is nothing to restrain the evil which is inherent in every man.
+ - If one way be better than another, that you may be sure is nature’s way.
+ - The trade of the petty usurer is hated with most reason: it makes a profit from currency itself, instead of making it from the process which currency was meant to serve. Their common characteristic is obviously their sordid avarice.
+ - Character is revealed through action.
+ - Men are good in but one way, but bad in many.
+ - The soul becomes prudent by sitting and being quiet.
+ - Obstinate people can be divided into the opinionated, the ignorant, and the boorish.
+ - A true disciple shows his appreciation by reaching further than his teacher.
+ - Art is a higher type of knowledge than experience.
+ - My best friend is the man who in wishing me well wishes it for my sake.
+ - Man perfected by society is the best of all animals; he is the most terrible of all when he lives without law, and without justice.
+ - It is the mark of an educated man to look for precision in each class of things just so far as the nature of the subject admits.
+ - Man first begins to philosophize when the necessities of life are supplied.
+ - Prayers and sacrifices are of no avail.
+ - Evil brings men together.
+ - Virtue makes us aim at the right end, and practical wisdom makes us take the right means.
+ - Tragedy is an imitation not of men but of a life, an action.
+ - Men are swayed more by fear than by reverence.
+ - Emotions of any kind can be evoked by melody and rhythm; therefore music has the power to form character.
+ - It has been well said that ‘he who has never learned to obey cannot be a good commander.’ The two are not the same, but the good citizen ought to be capable of both; he should know how to govern like a freeman, and how to obey like a freeman – these are the virtues of a citizen.
+ - The perversions are as follows: of royalty, tyranny; of aristocracy, oligarchy; of constitutional government, democracy.
+ - What soon grows old? Gratitude.
+ - A tyrant must put on the appearance of uncommon devotion to religion. Subjects are less apprehensive of illegal treatment from a ruler whom they consider god-fearing and pious. On the other hand, they do less easily move against him, believing that he has the gods on his side.
+ - Yellow-colored objects appear to be gold.
+ - The first principle of all action is leisure.
+ - For legislators make the citizens good by forming habits in them, and this is the wish of every legislator, and those who do not effect it miss their mark, and it is in this that a good constitution differs from a bad one.
+ - Misfortune shows those who are not really friends.
+ - In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief; to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds.
+ - A body in motion can maintain this motion only if it remains in contact with a mover.
+ - Equality is of two kinds, numerical and proportional; by the first I mean sameness of equality in number or size; by the second, equality of ratios.
+ - We ought, so far as it lies within our power, to aspire to immortality, and do all that we can to live in conformity with the highest that is within us; for even if it is small in quantity, in power and preciousness, it far excels all the rest.
+ - We must no more ask whether the soul and body are one than ask whether the wax and the figure impressed on it are one.
+ - Nature, as we say, does nothing without some purpose; and for thepurpose of making mana political animal she has endowed him alone among the animals with the power of reasoned speech.
+ - A constitution is the arrangement of magistracies in a state, especially of the highest of all. The government is everywhere sovereign in the state, and the constitution is in fact the government.
+ - Friendship is a thing most necessary to life, since without friends no one would choose to live, though possessed of all other advantages.
+ - Every wicked man is in ignorance as to what he ought to do, and from what to abstain, and it is because of error such as this that men become unjust and, in a word, wicked.
+ - The beautiful is that which is desirable in itself.
+ - To be conscious that we are perceiving or thinking is to be conscious of our own existence.
+ - Anything that we have to learn to do we learn by the actual doing of it; People become builders by building and instrumentalists by playing instruments. Similarily, we become just by performing just acts, temperate by performing temperate ones, brave by performing brave ones.
+ - The greatest threat to the state is not faction but distraction.
+ - If the hammer and the shuttle could move themselves, slavery would be unnecessary.
+ - The purpose of art is to represent the meaning of things. This represents the true reality, not external aspects.
+ - It is likely that unlikely things should happen.
+ - It is best to rise from life as from a banquet, neither thirsty nor drunken.
+ - A democracy is a government in the hands of men of low birth, no property, and vulgar employments.
+ - Life cannot be lived, and understood, simultaneously.
+ - If some animals are good at hunting and others are suitable for hunting, then the Gods must clearly smile on hunting.
+ - It is their character indeed that makes people who they are. But it is by reason of their actions that they are happy or the reverse.
+ - Modesty is hardly to be described as a virtue. It is a feeling rather than a disposition. It is a kind of fear of falling into disrepute.
+ - Democracy arose from men’s thinking that if they are equal in any respect, they are equal absolutely.
+ - Shipping magnate of the 20th century If women didn’t exist, all the money in the world would have no meaning.
+ - If you string together a set of speeches expressive of character, and well finished in point and diction and thought, you will not produce the essential tragic effect nearly so well as with a play which, however deficient in these respects, yet has a plot and artistically constructed incidents.
+ - Since music has so much to do with the molding of character, it is necessary that we teach it to our children.
+ - What is the highest good in all matters of action? To the name, there is almost complete agreement; for uneducated and educated alike call it happiness, and make happiness identical with the good life and successful living. They disagree, however, about the meaning of happiness.
+ - Where perception is, there also are pain and pleasure, and where these are, there, of necessity, is desire.
+ - While fiction is often impossible, it should not be implausible.
+ - It is simplicity that makes the uneducated more effective than the educated when addressing popular audiences.
+ - A flatterer is a friend who is your inferior, or pretends to be so.
+ - The only way to achieve true success is to express yourself completely in service to society.
+ - Men pay most attention to what is their own: they care less for what is common; or, at any rate, they care for it only to the extent to which each is individually concerned.
+ - Now property is part of a household, and the acquisition of property part of household-management; for neither life itself nor the good life is possible without a certain minimum supply of the necessities.
+ - The best political community is formed by citizens of the middle class.
+ - The ideal man is his own best friend and takes delight in privacy.
+ - Truth is a remarkable thing. We cannot miss knowing some of it. But we cannot know it entirely.
+ - There is honor in being a dog.
+ - Man’s best friend is one who wishes well to the object of his wish for his sake, even if no one is to know of it.
+ - The word is a sign or symbol of the impressions or affections of the soul.
+ - The heart is the perfection of the whole organism. Therefore the principles of the power of perception and the souls ability to nourish itself must lie in the heart.
+ - Knowing what is right does not make a sagacious man.
+ - Happiness is the utilization of one’s talents along lines of excellence.
+ - In a race, the quickest runner can never overtake the slowest, since the pursuer must first reach the point whence the pursued started, so that the slower must always hold a lead.
+ - The bad man is continually at war with, and in opposition to, himself.
+ - Female cats are very Lascivious, and make advances to the male.
+ - Every great genius has an admixture of madness.
+ - The Life of the intellect is the best and pleasantest for man, because the intellect more than anything else is the man. Thus it will be the happiest life as well.
+ - He is his own best friend and takes delight in privacy whereas the man of no virtue or ability is his own worst enemy and is afraid of solitude.
+ - Nature does nothing without a purpose. In children may be observed the traces and seeds of what will one day be settled psychological habits, though psychologically a child hardly differs for the time being from an animal.
+ - Nature makes nothing incomplete, and nothing in vain.
+ - The intention makes the crime.
+ - There are no experienced young people. Time makes experience.
+ - A life of wealth and many belongings is only a means to happiness. Honor, power, and success cannot be happiness because they depend on the whims of others, and happiness should be self-contained, complete in itself.
+ - Evidence from torture may be considered completely untrustworthy.
+ - Happiness does not lie in amusement; it would be strange if one were to take trouble and suffer hardship all one’s life in order to amuse oneself.
+ - Good laws, if they are not obeyed, do not constitute good government.
+ - Even the best of men in authority are liable to be corrupted by passion. We may conclude then that the law is reason without passion, and it is therefore preferable to any individual.
+ - Between husband and wife friendship seems to exist by nature, for man is naturally disposed to pairing.
+ - The coward calls the brave man rash, the rash man calls him a coward.
+ - Anyone who has no need of anybody but himself is either a beast or a God.
+ - Philosophy can make people sick.
+ - Art is identical with a state of capacity to make, involving a true course of reasoning.
+ - Virtue is more clearly shown in the performance of fine ACTIONS than in the non-performance of base ones.
+ - Justice is that virtue of the soul which is distributive according to desert.
+ - The difference between a learned man and an ignorant one is the same as that between a living man and a corpse.
+ - In the human species at all events there is a great diversity of pleasures. The same things delight some men and annoy others, and things painful and disgusting to some are pleasant and attractive to others.
+ - Happiness comes from theperfect practice of virtue.
+ - For the more limited, if adequate, is always preferable.
+ - We should venture on the study of every kind of animal without distaste; for each and all will reveal to us something natural and something beautiful.
+
+500 quotes

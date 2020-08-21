@@ -1,0 +1,80 @@
+ - Reading is by far the most successful pursuit of happiness.
+ - Live your life the way you want. You’ll figure it out.
+ - Don’t compromise yourself – you’re all you have.
+ - If you’re gonna be stupid you gotta be tough.
+ - In life, finding a voice is speaking and living the truth. Each of you is an original. Each of you has a distinctive voice. When you find it, your story will be told. You will be heard.
+ - And that’s the mission of The Innocence Project in New York, is to exonerate people who have been wrongfully convicted, and also work from a policy angle with Congress and state legislatures to prevent future wrongful convictions.
+ - You live your life today, Not tommorow, and certainly not yesterday.
+ - He’s my client, and he’s counting on me. I’ll take him, warts and all.
+ - When witnesses concoct lies, they often miss the obvious.
+ - The mother of a trophy wife is not automatically a trophy mother-in-law.
+ - I guess under the right circumstances, a man will do just about anything.
+ - Every morning I wake at 6am or 6.30am, champing at the bit.
+ - Writing was not a childhood dream of mine. I do not recall longing to write as a student. I wasn’t sure how to start.
+ - Death row is a nightmare to serial killers and ax murderers. For an innocent man, it’s a life of mental torture that the human spirit is not equipped to survive.
+ - Some people have more guts than brains.
+ - Please give me fifty more years of work and fun, then an instant death when I’m sleeping.
+ - I am currently reading, “The Broker” by John Grisham. it is alittle slow to start so I will have to let you know if it gets better.
+ - I’m alone and outgunned, scared and inexperienced, but I’m right.
+ - I didn’t dare think of the future; the past was still happening.
+ - We learned after the first semester in law school that it’s best never to discuss exams. If notes are compared afterwards, you become painfully aware of things you missed.
+ - The good thing about writing fiction is that you can get back at people.
+ - Poverty is a great equalizer.
+ - Four rehabs meant a fifth was somewhere down the road.
+ - One thing you really have to watch as a writer is getting on a soapbox or pulpit about anything. You don’t want to alienate readers.
+ - I struggle with racism every day.
+ - It’s a game. We tax lawyers teach the rich how to play it so they can stay rich-and the IRS keeps changing the rules so we can keep getting rich teaching them.
+ - Still, something about writing made me spend large hours of my free time at my desk.
+ - There’s always such a rush to judgment. It makes a fair trial hard to get.
+ - I was a lawyer for 10 years – a short time, but it molded me into who I am.
+ - Keeping a guy in prison costs 50,000 bucks a year. Executing one costs a couple million.
+ - After I’d been a lawyer for about five or six years, I started playing around with fiction.
+ - I have learned not to read reviews. Period. And I hate reviewers. All of them, or at least all but two or three. Life is much simpler ignoring reviews and the nasty people who write them. Critics should find meaningful work.
+ - You burn a man’s pickup, and he’s ready for war.
+ - I’ve written 17 novels, and I’ve found out that fiction can’t keep up with real life.
+ - The worst letters come from retired high school English teachers. They will literally take a book and pick it to pieces and send me 14 pages of notes.
+ - I don’t usually eat breakfast. I prefer to be asleep during the hours that it is served.
+ - In one long glorious acknowledgment of failure, he laid himself bare before God.
+ - Shame was an emotion he had abandoned years earlier. Addicts know no shame. You disgrace yourself so many times you become immune to it.
+ - I don’t want to force my politics on my readers.
+ - When you work at street level you never know who’s going to walk through your door.
+ - I looked at her and tried to speak, but all I could think about was how shocked she’d be if I said what I was thinking.
+ - I learned that lesson a long time ago. When you write popular fiction, you’re going to get bashed by critics.
+ - Nobody wants to read about the honest lawyer down the street who does real estate loans and wills. If you want to sell books, you have to write about the interesting lawyers – the guys who steal all the money and take off. That’s the fun stuff.
+ - Privileged people don’t march and protest; their world is safe and clean and governed by laws designed to keep them happy.
+ - My name became a brand, and I’d love to say that was the plan from the start. But the only plan was to keep writing books. And I’ve stuck to that ever since.
+ - Jesus preached more and taught more about helping the poor and the sick and the hungry than he did about heaven and hell. Shouldn’t that tell us something?
+ - I don’t feel stupid, just inadequate. After three years of studying the law, I’m very much aware of how little I know.
+ - I seriously doubt I would ever have written the first story had I not been a lawyer. I never dreamed of being a writer. I wrote only after witnessing a trial.
+ - I was tired of secrets, tired of seeing things I was not supposed to see. And so I just cried.
+ - My decision to become a lawyer was irrevocably sealed when I realized my father hated the legal profession.
+ - Prisons are hate factories, Pastor, and society wants more and more of them.
+ - It’s as if we spend our entire lives avoiding Jell-O but it is always there at the end, waiting.
+ - Quite often I can be in a bookshop, standing beneath a great big picture of myself and paying for a book with a credit card clearly marked John Grisham, yet no one recognises me. I often say I’m a famous author in a country where no one reads.
+ - Once again, I was reminded that Tally was the prettiest girl I’d ever met, and when she smiled at me my mind went blank. Once you’ve seen a pretty girl naked, you feel a certain attachment to her.
+ - A battered wife is a married woman until she gets a divorce. Or until she kills the bastard.
+ - I’m being followed so much I’m causing traffic jams.
+ - Writing’s still the most difficult job I’ve ever had – but it’s worth it.
+ - I can’t change overnight into a serious literary author. You can’t compare apples to oranges. William Faulkner was a great literary genius. I am not.
+ - I was a lawyer for 10 years, and several of my clients had the misfortune, through no fault of my own, of going to prison. I visited them occasionally.
+ - I’m a Christian, and those beliefs occasionally come out in the books.
+ - She was pondering the option of law school, the great American baby-sitter for directionless postgrads.
+ - Ricky had taught me a few cuss words. I usually practiced them in the woods by the river, then prayed for forgiveness as soon as I was done.
+ - The coffee arrives, and we backslide into what lawyers do best – talking about other lawyers.
+ - I always do book signings with the same blue pen. That way, if I add a personalised message to a book I’ve already signed, it’ll be in the same colour as my signature.
+ - The first thing my family did when we moved was join the local church. The second was to go to the library and get library cards.
+ - The company later went broke, and of course all blame was directed at the lawyers. Not once did I hear any talk that maybe a trace of mismanagement could in any way have contributed to the bankruptcy.
+ - I was a lawyer for 10 years – a short time, but it molded me into who I am. My clients were little people fighting big corporations, so it was a natural thing to not only represent the little guy but also to pull for him – it’s the American way.
+ - A riveting, exciting and thoroughly compelling tale of adventure.
+ - My mum was never too keen on TV, so we kids all went to the library and got books out. Right from the start, I loved the works of Mark Twain. Every time I read about Tom Sawyer, I’d go out and do something low-level naughty, just like him.
+ - I earned my first steady paycheck watering rose bushes at a nursery for a dollar an hour.
+ - Ten years from now I plan to be sitting here, looking out over my land. I hope I’ll be writing books, but if not, I’ll be on my pond fishing with my kids. I feel like the luckiest guy I know.
+ - There are few things in life worse than a long-winded lawyer.
+ - In little pockets of conversation, old men were telling stories of ancient floods. Women were talking of about how much rain there’d been in other towns – Paragould, Lepanto, and Manila.
+ - Prisons are fascinating places, especially when the inmates are educated white-collar types.
+ - Critics should find meaningful work.
+ - Michael Harvey should be read by all.
+ - Because I was single, there was a chance I was a homosexual. Because I went to Syracuse, wherever that was, then I was probably a Communist. Or worse, a Liberal. Because I was from Memphis, I was a subversive intent on embarrassing Ford County.
+ - How could homosexuals possibly srew up the sanctity of marriage any worse than heterosexuals?
+
+78 quotes

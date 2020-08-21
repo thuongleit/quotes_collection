@@ -1,0 +1,22 @@
+ - I’ve gone through hell and back.
+ - I’m not a rich man, and Greg Lake is certainly not. I don’t know how he can survive. I don’t know how he can be that suicidal. But having said that, I’d love to be there to help Greg.
+ - You’ve got to keep things flying.
+ - The best thing about this band is I’m the leader!
+ - I was always playing the Hammond Organ back to front even during the days of the Nice, going back to 1968. Really what I was doing there, was choosing notes at random and trying to make some sense of them, improvising back to front.
+ - I consider everything I compose a gift.
+ - If youre a good parent, see the changes that are happening in your kids.
+ - I love my mother dearly, but it wouldn’t be suitable for me to live with her all the time.
+ - I’m proud of my kids, they are doing what they want to do.
+ - Ive broken my nose, Ive broken ribs. You name it. In fact, we just got back from South America, and I fell over a monitor speaker on the stage and almost ended up in the front row of the audience. I managed to sprain my wrist on that one but luckily nothing was broken.
+ - We can all put weight on or lose weight.
+ - I remember that I used to mix with my friends who had brothers and sisters. I was an only child.
+ - My sons are into German music, but they are into all kinds of music.
+ - I don’t regard myself as a great classical or jazz pianist. I like country music, but I’m not a great player. I just like music. Drums ‘n’ bass is pretty exciting and I’d love to explore it.
+ - If we didn’t do the tour, it would have been disastrous.
+ - Next year I’m going to be a guesting soloist with orchestras all over Europe, to start off with.
+ - If it wasn’t good, I wouldn’t be going back out on tour.
+ - Find a good teacher, as I found for my sons. I feel the worst thing you can do is to try and teach your own children yourself, because there is a natural rebellion that occurs.
+ - If they want a photograph, then just take it.
+ - I don’t care who I play to, as long as they enjoy listening to what I play.
+
+20 quotes

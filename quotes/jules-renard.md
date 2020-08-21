@@ -1,0 +1,99 @@
+ - Liberty is the right to choose. Freedom is the result of the right choice.
+ - On earth there is no heaven, but there are pieces of it.
+ - Laziness is nothing more than the habit of resting before you get tired.
+ - It’s not how old you are, it’s how you are old.
+ - Writing is the best way to talk without being interrupted.
+ - I don’t know if God exists, but it would be better for His reputation if He didn’t.
+ - Failure is not our only punishment for laziness; there is also the success of others.
+ - Style is to forget all styles.
+ - As I grow to understand life less and less, I learn to love it more and more.
+ - It is more difficult to be an honorable man for a week than to be a hero for fifteen minutes.
+ - Being bored is an insult to oneself.
+ - Man who waits for roast duck to fly into mouth must wait very, very long time.
+ - If you are afraid of being lonely, don’t try to be right.
+ - We must be greater than God, for we have to undo His injustice.
+ - Love is like an hourglass, with the heart filling up as the brain empties.
+ - Paradise does not exist, but we must nonetheless strive to be worthy of it.
+ - If I had my life to live over again, I would ask that not a thing be changed, but that my eyes be opened wider.
+ - The less I understand life, the more I live it!
+ - Add two letters two paris and it’s paradise.
+ - If one were to build the house of happiness, the largest space would be the waiting room.
+ - If money does not make you happy, give it back.
+ - There are moments when everything goes well, but don’t be frightened.
+ - Style means the right word. The rest matters little.
+ - Don’t tell a woman she’s pretty; tell her there’s no other woman like her, and all roads will open to you.
+ - Words should be only the clothes, carefully custom-made to fit the thought.
+ - Words are the small change of thought.
+ - The strong do not hesitate. They settle down, they sweat, they go on to the end. They exhaust the ink, they use up the paper.
+ - Talent is a question of quantity. Talent does not write one page; it writes three hundred.
+ - Talent is like money; you don’t have to have some to talk about it.
+ - Some people are so boring that they make you waste an entire day in five minutes.
+ - Be modest! It is the kind of pride least likely to offend.
+ - Wrinkles are engraved smiles.
+ - The ideal of calm exists in a sitting cat.
+ - We don’t understand life any better at forty than at twenty, but we know it and admit it.
+ - Dreaming is to think by moonlight by the light of an inner moon.
+ - A beautiful line of verse has twelve feet, and two wings.
+ - To have a horror of the bourgeois is bourgeois.
+ - Those moments when you feel you want to read something truly beautiful. The eyes make a tour of the library, and there is nothing. Then you decide to take no matter what, and it is full of beautiful things.
+ - I finally know what distinguishes man from the other beasts: financial worries.
+ - Broken china lasts longer than unbroken.
+ - Look for the ridiculous in everything and you will find it.
+ - Our dream dashes itself against the great mystery like a wasp against a window pane. Less merciful than man, God never opens the window.
+ - We are in the world to laugh. In purgatory or in hell we shall no longer be able to do so. And in heaven it would not be proper.
+ - Do not ask me to be kind; just ask me to act as though I were.
+ - Walks. The body advances, while the mind flutters around it like a bird.
+ - An optimist is a driver who thinks that empty space at the curb won’t have a hydrant beside it.
+ - The only man who is really free is the one who can turn down an invitation to dinner without giving an excuse.
+ - There is a justice, but we do not always see it. Discreet, smiling, it is there, at one side, a little behind injustice, which makes a big noise.
+ - We are ignorant of the Beyond because this ignorance is the condition of our own life. Just as ice cannot know fire except by melting and vanishing.
+ - I am not sincere, even when I say I am not.
+ - In the most complete friendship there is always a little empty space, like the space in an egg.
+ - The story I am writing exists, written in absolutely perfect fashion, some place, in the air. All I must do is find it, and copy it.
+ - Fame is a constant effort.
+ - When the defects of others are perceived with so much clarity, it is because one possesses them oneself.
+ - Truth makes many appeals, not the least of which is its power to shock.
+ - In literature, there are only oxen. The biggest ones are the geniuses-the ones who toil eighteen hours a day without tiring.
+ - Acting of some actors seems natural, because they have no talent.
+ - The reward of great men is that, long after they have died, one is not quite sure that they are dead.
+ - When I think of all the books still left for me to read, I am certain of further happiness.
+ - Life is what our character makes it. We fashion it, as a snail does its shell. A man can say: I never made a fortune because it is not in my character to be rich.
+ - It is not enough to be happy, it is also necessary that others not be.
+ - I have a remarkable memory; I forget everything. It is wonderfully convenient. It is as though the world were constantly renewing itself for me.
+ - In morals, always do as others do; in art, never.
+ - Let us stay at home: there we are decent. Let us not go out: our defects wait for us at the door, like flies.
+ - Literature is an occupation in which you have to keep proving your talent to people who have none.
+ - To succeed you must add water to your wine, until there is no more wine.
+ - The danger of success is that it makes us forget the world’s dreadful injustice.
+ - At the bottom of all patriotism there is war: that is why I am no patriot.
+ - It is easy for a somebody to be modest, but it is difficult to be modest when one is a nobody.
+ - How many people have wanted to kill themselves, and have been content with tearing up their photograph!
+ - Words are the coins making up the currency of sentences, and there are always too many small coins.
+ - Clarity is the politeness of the man of letters.
+ - To think is not enough, you must think of something.
+ - God, he whom everyone knows, by name.
+ - Art: to nudge truth along a little.
+ - Socialism must come down from the brain and reach the heart.
+ - It astounds us to come upon other egoists, as though we alone had the right to be selfish, and to be filled with eagerness to live.
+ - It is in the midst of the city that one writes the most inspiring pages about the country.
+ - An egotist always resents meeting another egotist as if he alone had the right to be one.
+ - God does not believe in our God.
+ - We are so happy to advise others that occasionally we even do it in their interest.
+ - A cold in the head causes less suffering than an idea.
+ - Whenever I have talked to anyone at too great length, I am like a man who has drunk too much, and ashamed, doesn’t know where to put himself.
+ - You can recover from the writing malady only by falling mortally ill and dying.
+ - There is nothing like literature: I lose a cow, I write about her death, and my writing pays me enough to buy another cow.
+ - The void yields up nothing. You have to be a great poet to make it ring.
+ - Somewhere in the shadow cast by every famous man is a feminine victim.
+ - The bourgeois are other people.
+ - We spend our lives talking about this mystery. Our life.
+ - The horse is the only animal into which one can bang nails.
+ - I find that when I do not think of myself I do not think at all.
+ - Writing is the only profession where no one considers you ridiculous if you earn no money.
+ - How describe the delicate thing that happens when a brilliant insect alights on a flower? Words, with their weight, fall upon the picture like birds of prey.
+ - Posterity! Why should people be less stupid tomorrow than they are today?
+ - I am afraid I shall not find him, but I shall still look for him, for if he exists, he may be appreciative of my efforts.
+ - There are places and moments in which one is so completely alone that one sees the world entire.
+ - The profession of letters is, after all, the only one in which one can make no money without being ridiculous.
+
+97 quotes

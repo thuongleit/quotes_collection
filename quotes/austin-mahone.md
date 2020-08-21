@@ -1,0 +1,25 @@
+ - Everything that happens helps you grow, even if its hard to see right now.
+ - I’m always looking for a girlfriend.
+ - If I see my fans crying, I just want to give them a hug and tell them I love them.
+ - To be honest, I know this probably sounds corny or whatever because I’m a musician, but listening to music really helps me relax and calm down – listening to my favorite songs. Also, laughing and hanging out with my friends.
+ - They’re just opinions, what people say about you. None of that stuff’s true. The only thing that matters is what you think of yourself.
+ - I promoted myself on Twitter and Facebook as hard as possible, nonstop. People started realizing that if they commented on my videos, I’d reply to their comment, so I started getting a lot more views and comments.
+ - Music is my life. I love doing it, so I just do it nonstop all day. And with dancing, I wanted to put on a show for people. I don’t want to just be sitting there doing nothing, so that’s when I started to dance.
+ - Find out whats possible, If you never give up.
+ - When my YouTube videos started to get really big, I was like, ‘Man, this is pretty sweet.’ It started as my hobby, and then I started traveling and learning how to play different instruments, and then it just kind of became my life.
+ - I like girls that have a nice smile and nice eyes. I want to date a girl who understands my busy schedule and that I have to be on tour a lot. And she has to make me laugh!
+ - I would go on the iTunes chart and see the hottest songs, then I’d cover them. People would go on YouTube and search for those songs. That’s how I got my views. I’d post two or three songs a week.
+ - A secret talent or hobby Hmm I weirdly collect shot glasses.
+ - I told my fans online how I hated my squeaky office chair. One day, a fan sent me a new chair. It was crazy! I still use the chair today. Pretty awesome.
+ - A lot of people have said that I’m trying to be like Justin Bieber by wearing a hat all the time. But the truth is, I don’t like the way my hair looks. It’s kind of weird, so I wear a hat all the time to cover it. I’ve been doing it since I was thirteen.
+ - It makes me feel so amazing to know there’s people out here that support me and follow me on Twitter and watch my shows on YouTube and come to my concert, so I’m very thankful.
+ - When I awake dramatically I start off my day by reciting aloud a fan letter.
+ - I think it’s important to update my fans on what I’m doing and where I’m going next and when my next single is going to drop and my album.
+ - It’s been amazing getting to go from city to city and perform for thousands of people. It’s an amazing feeling, and the energy is crazy.
+ - I would say my dream collaboration would probably have to be with Drake. I think he is an amazing artist.
+ - I love fashion. I like looking fresh and wearing new stuff.
+ - I do a lot of co-writing with my producer RedOne, and then a lot on my own. I just like to be creative.
+ - When I’m 18, I can finally order that paid programming stuff on TV. Like it always says, ‘Must be 18 or older to call,’ so I’ll be able to call! I can finally buy some blenders from the TV.
+ - I think that it’s important to have good people around you, like my friends.
+
+23 quotes

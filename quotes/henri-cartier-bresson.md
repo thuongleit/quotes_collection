@@ -1,0 +1,95 @@
+ - Your first 10,000 photographs are your worst.
+ - You just have to live and life will give you pictures.
+ - Life is once. Forever.
+ - Photography is not documentary, but intuition, a poetic experience.
+ - Culture shock is often felt sharply at the borders between countries, but sometimes it doesn’t hit fully until you’ve been in a place for a long time.
+ - Of course it’s all luck.
+ - Sharpness is a bourgeois concept.
+ - There is nothing in this world that does not have a decisive moment.
+ - It’s seldom you make a great picture. you have to milk the cow quite a lot to get plenty of milk to make a little cheese.
+ - Your eye must see a composition or an expression that life itself offers you, and you must know with intuition when to click the camera.
+ - Photography is nothing-it’s life that interests me.
+ - While we’re working, we must be conscious of what we’re doing.
+ - For me, the camera is a sketch book, an instrument of intuition and spontaneity.
+ - Photography is like fencing. You must keep your distance, wait, and then thrust.
+ - One eye of the photographer looks wide open through the viewfinder, the other, the closed looks into his own soul.
+ - The camera can be a machine gun, a warm kiss, a sketchbook. Shooting a camera is like saying, Yes, yes, yes. There is no maybe. All the maybes should go in the trash.
+ - Oop! The Moment! Once you miss it, it is gone forever.
+ - To photograph: it is to put on the same line of sight the head, the eye and the heart.
+ - The difference between a good picture and a mediocre picture is a question of millimeters – small, small differences – but it’s essential. I didn’t think there is such a big difference between photographers. Very little difference. But it is that little difference that counts, maybe.
+ - To take photographs is putting one’s head, one’s eye, and one’s heart on the same axis.
+ - Time runs and flows and only our death succeeds in catching up with it. Photography is a blade which, in eternity, impales the dazzling moment.
+ - To take photographs means to recognize – simultaneously and within a fraction of a second – both the fact itself and the rigorous organization of visually perceived forms that give it meaning. It is putting one’s head, one’s eye and one’s heart on the same axis.
+ - Photography is only intuition, a perpetual interrogation – everything except a stage set.
+ - As time passes by and you look at portraits, the people come back to you like a silent echo. A photograph is a vestige of a face, a face in transit. Photography has something to do with death. It’s a trace.
+ - Freedom for me is a strict frame, and inside that frame are all the variations possible.
+ - In order to give meaning to the world, one has to feel oneself involved in what he frames. This attitude requires concentration, a discipline of mind, sensitivity, and a sense of geometry.
+ - If, in making a portrait, you hope to grasp the interior silence of a willing victim, it’s very difficult, but you must somehow position the camera between his shirt and his skin. Whereas with pencil drawing, it is up to the artist to have an interior silence.
+ - I enjoy very much seeing a good photographer working. There’s an elegance, just like in a bullfight.
+ - Actually, I’m not all that interested in the subject of photography. Once the picture is in the box, I’m not all that interested in what happens next. Hunters, after all, aren’t cooks.
+ - We must avoid however, snapping away, shooting quickly and without thought, overloading ourselves with unnecessary images that clutter our memory and diminish the clarity of the whole.
+ - We must respect the atmosphere which surrounds the human being.
+ - The adventurer in me felt obliged to testify with a quicker instrument than a brush to the scars of the world.
+ - I love painting. As far as photography is concerned, I understand nothing.
+ - To photograph is to hold one’s breath, when all faculties converge to capture fleeting reality. It’s at that precise moment that mastering an image becomes a great physical and intellectual joy.
+ - A photographer must always work with the greatest respect for his subject and in terms of his own point of view.
+ - All I care about these days is painting – photography has never been more than a way into painting, a sort of instant drawing.
+ - Thinking should be done before and after, not during photographing.
+ - Think about the photo before and after, never during. The secret is to take your time. You mustn’t go too fast. The subject must forget about you. Then, however, you must be very quick.
+ - Photographers deal in things which are continually vanishing and when they have vanished there is no contrivance on earth which can make them come back again.
+ - Pictures should never be posed. They are ‘revealed’ so must be accepted as they are. Left alone.
+ - In every photographer there is something of a stroller.
+ - During the work, you have to be sure that you haven’t left any holes, that you’ve captured everything, because afterwards it will be too late.
+ - We cannot develop and print a memory.
+ - Nobody takes photographs, photographs take you.
+ - It is by great economy of means that one arrives at simplicity of expression.
+ - Photography is an immediate reaction, drawing is a meditation.
+ - In a portrait, I’m looking for the silence in somebody.
+ - I suddenly understood that photography can fix eternity in a moment. It is the only photo that influenced me. There is such intensity in this image, such spontaneity, such joie de vivre, such miraculousness, that even today it still bowls me over.
+ - And no photographs taken with the aid of flash light, either, if only out of respect for the actual light – even when there isn’t any of it.
+ - For me the camera is a sketch book, an instrument of intuition and spontaneity, the master of the instant which, in visual terms, questions and decides simultaneously. It is by economy of means that one arrives at simplicity of expression.
+ - Photography appears to be an easy activity; in fact it is a varied and ambiguous process in which the only common denominator among its practitioners is in the instrument.
+ - Everyone has got some preconceptions, but you have to readjust them in front of reality. Reality has the last word.
+ - Photographier: c’est mettre sur la meme ligne de mire la tete, l’oeil et le coeur.
+ - This recognition, in real life, of a rhythm of surfaces, lines, and values is for me the essence of photography; composition should be a constant of preoccupation, being a simultaneous coalition – an organic coordination of visual elements.
+ - To me, photography is the simultaneous recognition, in a fraction of a second, of the significance of an event.
+ - The most difficult thing for me is a portrait. You have to try and put your camera between the skin of a person and his shirt.
+ - I am a visual man. I watch, watch, watch. I understand things through my eyes.
+ - Only a fraction of the camera’s possibilities interests me – the marvelous mixture of emotion and geometry, together in a single instant.
+ - In photography, the smallest thing can become a big subject, an insignificant human detail can become a leitmotiv. We see and we make seen as a witness to the world around us; the event, in its natural activity, generates an organic rhythm of forms.
+ - Give me inspiration over information.
+ - In photography, the smallest thing can be a great subject. The little, human detail can become a Leitmotiv.
+ - Photography is, for me, a spontaneous impulse coming from an ever attentive eye which captures the moment and its eternity.
+ - It is through living that we discover ourselves, at the same time as we discover the world around us.
+ - I am neither an economist nor a photographer of monuments, and I am not much of a journalist either. What I am trying to do more than anything else is to observe life.
+ - Thinking should be done before and after, not during photographing. Success depends on the extent of one’s general culture. one’s set of values, one’s clarity of mind one’s vivacity. The thing to be feared most is the artificially contrived, the contrary to life.
+ - Of all the means of expression, photography is the only one that fixes a precise moment in time.
+ - I am a pack of nerves while waiting for the moment, and this feeling grows and grows and grows and then it explodes, it is a physical joy, a dance, space and time united. Yes, yes, yes, yes!
+ - Photography is a way of shouting, of freeing oneself, not of proving or asserting one’s own originality. It’s a way of life.
+ - The photograph itself doesn’t interest me. I want only to capture a minute part of reality.
+ - In whatever one does there must be a relationship between the eye and the heart.
+ - The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.
+ - For the world is movement, and you cannot be stationary in your attitude toward something that is moving.
+ - One eye looks within, the other eye looks without.
+ - Inside movement there is one moment in which the elements are in balance. Photography must seize the importance of this moment and hold immobile the equilibrium of it.
+ - A photographer is part pick-pocket and part tightrope dancer.
+ - He made me suddenly realize that photographs could reach eternity through the moment.
+ - Why do photographers start giving numbers to their prints? It’s absurd. What do you do when the 20th print has been done? Do you swallow the negative? Do you shoot yourself? It’s the gimmick of money.
+ - There is no closed figure in nature. Every shape participates with another. No one thing is independent of another, and one thing rhymes with another, and light gives them shape.
+ - What reinforces the content of a photograph is the sense of rhythm – the relationship between shapes and values.
+ - Human faces are such a world!
+ - Photographers deal in things which are continuously vanishing...
+ - It’s wonderful to be famous as long as you remain unknown.
+ - Reality offers us such wealth that we must cut some of it out on the spot, simplify. The question is, do we always cut out what we should?
+ - The world is being created every minute, and the world is falling to pieces every minute.
+ - Photography has not changed since its origin except in its technical aspects, which for me are not important.
+ - The Photography is a chopper which in the eternity seizes the moment which dazzled it.
+ - Memory is very important, the memory of each photo taken, flowing at the same speed as the event.
+ - The picture is good or not from the moment it was caught in the camera.
+ - It seems dangerous to be a portrait artist who does commissions for clients because everyone wants to be flattered, so they pose in such a way that there’s nothing left of truth.
+ - One has to tiptoe lightly and steal up to one’s quarry; you don’t swish the water when you are fishing.
+ - Some photographs are like a Chekhov short story or a Maupassant story. They’re quick things and there’s a whole world in them. But one is unconscious of it while shooting.
+ - Above all, I craved to seize the whole essence, in the confines of one single photograph, of some situation that was in the process of unrolling itself before my eyes.
+ - It is the photo that takes you. One must not take photos.
+
+93 quotes

@@ -1,0 +1,28 @@
+ - The art of teaching is the art of assisting discovery.
+ - Any piece of knowledge I acquire today has a value at this moment exactly proportional to my skill to deal with it. Tomorrow, when I know more, I recall that piece of knowledge and use it better.
+ - Our best chance for happiness is education.
+ - If you look around the table and you can’t tell who the sucker is, it’s you.
+ - There is one thing we can do, and the happiest of people are those who do it to the limit of their ability. We can be completely present.
+ - Respect for the Truth is an acquired taste.
+ - There are two statements about human beings that are true: that all human beings are alike, and that all are different. On those two facts all human wisdom is founded.
+ - Weightless in water, swift as the wind, Subtle of purpose – a feather blown – I go with my oarsmen where they will, My beautiful body and theirs all one.
+ - The connectedness of things is what the educator contemplates to the limit of his capacity. No human capacity is great enough to permit a vision of the world as simple, but if the educator does not aim at the vision no one else will, and the consequences are dire when no one does.
+ - I love the fall. I love it because of the smells that you speak of; and also because things are dying, things that you don’t have to take care of anymore, and the grass stops growing.
+ - Memory performs the impossible for man; holds together past and present, gives continuity and dignity to human life.
+ - I have always had the greatest respect for students. There is nothing I hate more than condescension – the attitude that they are inferior to you. I always assume they have good minds.
+ - To fail to love is not to exist at all.
+ - It’s a curious thing. I suppose most people think of artists as impatient but I don’t know of any first-rate artist who hasn’t manifested in his career an appalling patience, a willingness to wait and to do his best now in the expectation that next year he will do better.
+ - An unexamined idea, to paraphrase Socrates, is not worth having and a society whose ideas are never explored for possible error may eventually find its foundations insecure.
+ - A classic is a book that remains in print.
+ - Wit is the only wall between us and the dark.
+ - The art of reading is the art of adopting the pace the author has set. Some books are fast and some are slow, but no book can be understood if it is taken at the wrong speed.
+ - Nothing in man is more serious than his sense of humor; it is the sign that he wants all the truth.
+ - Bring ideas in and entertain them royally, for one of them may be the king.
+ - To be what no one ever was, to be what everyone has been: Freedom is the mean of those extremes that fence all effort in.
+ - When it aims to express a love of the world it refuses to conceal the many reasons why the world is hard to love, though we must love it because we have no other, and to fail to love it is not to exist at all.
+ - There is no appeal from the ways of the world, which must continue on its own terms or take us all down with it into chaos and confusion.
+ - The job of the poet is to render the world-to see it and report it without loss, without perversion. No poet ever talks about feelings. Only sentimental people do.
+ - The literature of the world has exerted its power by being translated.
+ - Wisdom before experience is only words; wisdom after experience is of no avail.
+
+26 quotes

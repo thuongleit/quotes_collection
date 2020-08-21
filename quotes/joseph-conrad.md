@@ -1,0 +1,209 @@
+ - We live as we dream – alone. While the dream disappears, the life continues painfully.
+ - We live as we dream – alone...
+ - Being a woman is a terribly difficult task, since it consists principally in dealing with men.
+ - It’s only those who do nothing that make no mistakes, I suppose.
+ - The sea has never been friendly to man. At most it has been the accomplice of human restlessness.
+ - Let them think what they liked, but I didn’t mean to drown myself. I meant to swim till I sank – but that’s not the same thing.
+ - We penetrated deeper and deeper into the heart of darkness.
+ - My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel – it is, before all, to make you see.
+ - God is for men, and religion for women.
+ - The vilest scramble for loot that ever disfigured the history of human conscience.
+ - The belief in a supernatural source of evil is not necessary; men alone are quite capable of every wickedness.
+ - An artist is a man of action, whether he creates a personality, invents an expedient, or finds the issue of a complicated situation.
+ - Facing it, always facing it, that’s the way to get through. Face it.
+ - We live in the flicker – may it last as long as the old earth keeps rolling! But darkness was here yesterday.
+ - The mind of man is capable of anything – because everything is in it, all the past as well as all the future. What was there after all? Joy, fear, sorrow, devotion, valor, rage – who can tell? – but truth – truth stripped of its cloak of time.
+ - The true peace of God begins at any spot a thousand miles from the nearest land.
+ - The mind of man is capable of anything.
+ - Art is long and life is short, and success is very far off.
+ - All creative art is magic, is evocation of the unseen in forms persuasive, enlightening, familiar and surprising.
+ - Woe to the man whose heart has not learned while young to hope, to love – and to put its trust in life.
+ - Like a flash of lightning between the clouds, we live in the flicker.
+ - A writer without interest or sympathy for the foibles of his fellow man is not conceivable as a writer.
+ - The dreams of men, the seed of commonwealth, the germs of empires.
+ - You can’t breathe dead hippo waking, sleeping, and eating, and at the same time keep your precarious grip on existence.
+ - A ship in dock, surrounded by quays and the walls of warehouses, has the appearance of a prisoner meditating upon freedom in the sadness of a free spirit put under restraint.
+ - In order to move others deeply we must deliberately allow ourselves to be carried away beyond the bounds of our normal sensibility.
+ - I was constantly watching myself, my secret self, as dependent on my actions as my own personality.
+ - The air of the New World seems favorable to the art of declamation.
+ - But his soul was mad. Being alone in the wilderness, it had looked within itself and, by heavens I tell you, it had gone mad.
+ - Any fool can carry on, but a wise man knows how to shorten sail in time.
+ - The human heart is vast enough to contain all the world.
+ - Action is consolatory. It is the enemy of thought and the friend of flattering illusions.
+ - Vanity plays lurid tricks with our memory.
+ - A man is a worker. If he is not that he is nothing.
+ - The blight of futility that lies in wait for men’s speeches had fallen upon our conversation and made it a thing of empty sounds.
+ - Even extreme grief may ultimately vent itself in violence – but more generally takes the form of apathy.
+ - I like what is in the work – the chance to find yourself.
+ - He struggled with himself, too. I saw it – I heard it. I saw the inconceivable mystery of a soul that knew no restraint, no faith, and no fear, yet struggling blindly with itself.
+ - Your strength is just an accident owed to the weakness of others.
+ - Conrad placed on the title page an epigraph taken from Edmund Spenser’s The Faerie Queene: “Sleep after toyle, port after stormie seas, Ease after warre, death after life, does greatly please” This also became Conrad’s epitaph.
+ - Watching a coast as it slips by the ship is like thinking about an enigma. There it is before you, smiling, frowning, inviting, grand, mean, insipid, or savage, and always mute with an air of whispering, “Come and find out”.
+ - It echoed loudly within him because he was hollow at the core.
+ - To have his path made clear for him is the aspiration of every human being in our beclouded and tempestuous existence.
+ - I slipped the book into my pocket. I assure you to leave off reading was like tearing myself away from the shelter of an old and solid friendship.
+ - My task is to make you hear, feel and see. That and no more, and that is everything.
+ - It is my belief no man ever understands quite his own artful dodges to escape from the grim shadow of self knowledge.
+ - What makes mankind tragic is not that they are the victims of nature, it is that they are conscious of it.
+ - There is a taint of death, a flavour of mortality in lies...
+ - They talk of a man betraying his country, his friends, his sweetheart. There must be a moral bond first. All a man can betray is his conscience.
+ - The scrupulous and the just, the noble, humane, and devoted natures; the unselfish and the intelligent may begin a movement – but it passes away from them. They are not the leaders of a revolution. They are its victims.
+ - It is when we try to grapple with another man’s intimate need that we perceive how incomprehensible, wavering, and misty are the beings that share with us the sight of the stars and the warmth of the sun.
+ - Violence is not a catalyst but a diversion.
+ - When one has got to make correct entries, one comes to hate those savages – hate them to the death.
+ - In the empty immensity of earth, sky, and water, there she was, incomprehensible, firing into a continent.
+ - Sleep after toyle, port after stormie seas, Ease after warre, death after life, does greatly please.
+ - I am a great foe of favoritism in public life, in private life, and even in the delicate relationship of an author to his works.
+ - Droll thing life is – that mysterious arrangement of merciless logic for a futile purpose. The most you can hope from it is some knowledge of yourself – that comes too late – a crop of inextinguishable regrets.
+ - No, it is impossible; it is impossible to convey the life-sensation of any given epoch of one’s existence – that which makes its truth, its meaning – its subtle and penetrating essence. It is impossible. We live, as we dream – alone.
+ - Everything can be found at sea according to the spirit of your quest.
+ - One can’t live with one’s finger everlastingly on one’s pulse.
+ - Writing in English is like throwing mud at a wall.
+ - It is the mark of an inexperienced man not to believe in luck.
+ - Kisses are the remnants of paradise.
+ - One must explore deep and believe the incredible to find the new particles of truth floating in an ocean of insignificance.
+ - Imagination, not invention, is the supreme master of art as of life.
+ - Never test another man by your own weakness.
+ - Follow your bliss. Find where it is and don’t be afraid to follow it.
+ - For a time I would feel I belonged still to a world of straightforward facts; but the feeling would not last long. Something would turn up to scare it away.
+ - I remember my youth and the feeling that will never come back any more.
+ - How does one kill fear, I wonder? How do you shoot a specter through the heart, slash off its spectral head, take it by its spectral throat?
+ - The question is not how to get cured, but how to live.
+ - It made you feel very small, very lost, and yet it was not altogether depressing, that feeling. After all, if you were small, the grimy beetle crawled on – which was just what you wanted it to do.
+ - The sky over Patusan was blood-red, immense, streaming like an open vein. An enormous sun nestled crimson amongst the treetops, and the forest below had a black and forbidding face.
+ - Fiction is history, human history, or it is nothing.
+ - He has to live in the midst of the incomprehensible, which is also detestable.
+ - The offing was barred by a black bank of clouds, and the tranquil water-way leading to the uttermost ends of the earth flowed somber under an overcast sky – seemed to lead into the heart of an immense darkness.
+ - All roads are long which lead to one’s heart’s desire.
+ - The terrorist and the policeman both come from the same basket. Revolution, legality – counter-moves in the same game; forms of idleness at bottom identical.
+ - The ocean has the conscienceless temper of a savage autocrat spoiled by much adulation.
+ - Madness alone is truly terrifying, inasmuch as you cannot placate it by threats, persuasion, or bribes.
+ - A fool has more ideas than a wise man can foresee.
+ - There is never enough time to say our last word-the last word of our love, of our desire, faith, remorse, submission, revolt.
+ - The old river in its broad reach rested unruffled at the decline of day, after ages of good service done to the race that peopled its banks, spread out in the tranquil dignity of a waterway leading to the uttermost ends of the earth.
+ - There is nothing more enticing, disenchanting, and enslaving than the life at sea.
+ - All a man can betray is his conscience.
+ - It would take too long to explain the intimate alliance of contradictions in human nature which makes love itself wear at times the desperate shape of betrayal. And perhaps there is no possible explanation.
+ - I couldn’t have felt more of lonely desolation somehow, had I been robbed of a belief or had missed my destiny in life...
+ - We can never cease to be ourselves.
+ - It is not the clear-sighted who rule the world. Great achievements are accomplished in a blessed, warm fog.
+ - I sit down religiously every morning, I sit down for eight hours every day – and the sitting down is all.
+ - Everything belonged to him – but that was a trifle. The thing to know was what he belonged to, how many powers of darkness claimed him for their own.
+ - Reality, as usual, beats fiction out of sight.
+ - They were conquerors, and for that you want only brute force – nothing to boast of, when you have it, since your strength is just an accident arising from the weakness of others.
+ - It’s extraordinary how we go through life with eyes half shut, with dull ears, with dormant thoughts. Perhaps it’s just as well; and it may be that it is this very dullness that makes life to the incalculable majority so supportable and so welcome.
+ - This magnificent butterfly finds a little heap of dirt and sits still on it; but man will never on his heap of mud keep still.
+ - Who knows what true loneliness is – not the conventional word but the naked terror? To the lonely themselves it wears a mask. The most miserable outcast hugs some memory or some illusion.
+ - The real significance of crime is in its being a breach of faith with the community of mankind.
+ - The reaches opened before us and closed behind, as if the forest had stepped leisurely across the water to bar the way for our return. We penetrated deeper and deeper into the heart of darkness.
+ - A man’s real life is that accorded to him in the thoughts of other men by reason of respect or natural love.
+ - There is a subtle and unmistakable touch of love and pride, beyond mere skill, almost an inspiration which gives to all work that finish which is almost art – which is art.
+ - The Westerly Wind asserting his sway from the south-west quarter is often like a monarch gone mad, driving forth with wild imprecations the most faithful of his courtiers to shipwreck, disaster, and death.
+ - There is something haunting in the light of the moon.
+ - The conquest of the earth, which mostly means the taking it away from those who have a different complexion or slightly flatter noses than ourselves, is not a pretty thing when you look into it too much.
+ - Don’t you forget what’s divine in the Russian soul and that’s resignation.
+ - Give me the right word and the right accent and I will move the world.
+ - I am afraid that if you want to go down into history you’ll have to do something for it.
+ - The Nellie, a cruising yawl, swung to her anchor without a flutter of the sails, and was at rest. The flood had made, the wind was nearly calm, and being bound down the river, the only thing for it was to come and wait for the turn of the tide.
+ - I have a voice, too, and for good or evil mine is the speech that cannot be silenced.
+ - It occurred to me that my speech or my silence, indeed any action of mine, would be a mere futility.
+ - The last thing a woman will consent to in a man whom she loves, or on whom she simply depends, is want of courage.
+ - The atmosphere of officialdom would kill anything that breathes the air of human endeavour, would extinguish hope and fear alike in the supremacy of paper and ink.
+ - It is very difficult to be wholly joyous or wholly sad on this earth. The comic, when he is human, soon takes upon itself the face of pain.
+ - He has to live in the midst of the incomprehensible, which is detestable. And it has a fascination, too, which goes to work upon him. The fascination of the abomination – you know.
+ - I had no particular desire to enlighten them, but I had some difficulty in restraining myself from laughing in their faces, so full of stupid importance.
+ - A train of thought is never false. The falsehood lies deep in the necessities of existence.
+ - History repeats itself, but the special call of an art which has passed away is never reproduced. It is as utterly gone out of the world as the song of a destroyed wild bird.
+ - A writing may be lost; a lie may be written; but what the eye has seen is truth and remains in the mind!
+ - A man that is born falls into a dream like a man who falls into the sea. If he tries to climb out into the air as inexperienced people endeavor to do, he drowns.
+ - Words, as is well known, are the great foes of reality.
+ - The sea never changes and its works, for all the talks of men, are wrapped in mystery.
+ - Mathematics commands all my respect, but I have no use for engines.
+ - The very young have, properly speaking, no moments. It is the privilege of early youth to live in advance of its days in all the beautiful continuity of hope which knows no pauses and no introspection.
+ - The humblest craft that floats makes its appeal to a seaman by the faithfulness of her life.
+ - Few men realize that their life, the very essence of their character, their capabilities and their audacities, are only the expression of their belief in the safety of their surroundings.
+ - He hated all this, and somehow he couldn’t get away.
+ - A task, any task, undertaken in an adventurous spirit acquires the merit of romance.
+ - Protection is the first necessity of opulence and luxury.
+ - All one’s work might have been better done; but this is a sort of reflection a worker must put aside courageously if he doesn’t mean every one of his conceptions to remain forever a private vision, an evanescent reverie.
+ - I have been called romantic. Well, that can’t be helped. But stay. I seem to remember that I have been called a realist also. And as that charge too can be made out, let us try to live up to it, at whatever cost, for a change.
+ - The East Wind, an interloper in the dominions of Westerly Weather, is an impassive-faced tyrant with a sharp poniard held behind his back for a treacherous stab.
+ - I suppose everybody must be always just a little homesick.
+ - The world of finance is a mysterious world in which, incredible as the fact may appear, evaporation precedes liquidation.
+ - A word carries far, very far, deals destruction through time as the bullets go flying through space.
+ - It is to be remarked that a good many people are born curiously unfitted for the fate waiting them on this earth.
+ - The ethical view of the universe involves us in so many cruel and absurd contradictions that I have come to suspect that the aim of creation cannot be ethical at all.
+ - If you don’t make mistakes, you don’t make anything .
+ - For the great mass of mankind the only saving grace that is needed is steady fidelity to what is nearest to hand and heart in the short moment of each human effort.
+ - To be a great autocrat you must be a great barbarian.
+ - I have wrestled with death. It is the most unexciting contest you can imagine.
+ - What is a novel if not a conviction of our fellow men’s existence strong enough to take upon itself a form of imagined life clearer than reality and whose accumulated verisimilitude of selected episodes puts to shame the pride of documentary history.
+ - Vanity plays lurid tricks with our memory, and the truth of every passion wants some pretence to make it live.
+ - The way of even the most jusitifiable revolution is prepared by personal impulses disguised into creeds.
+ - Any work that aspires, however humbly, to the condition of art should carry its justification in every line.
+ - Going home must be like going to render an account.
+ - As a general rule, a reputation is built on manner as much as on achievement.
+ - Resignation, not mystic, not detached, but resignation open-eyed, conscious, and informed by love, is the only one of our feelings for which it is impossible to become a sham.
+ - We owe much to the fruitful meditation of our sages, but a sane view of life is, after all, elaborated mainly in the kitchen.
+ - Let a fool be made serviceable according to his folly.
+ - A caricature is putting the face of a joke on the body of a truth.
+ - There is no credulity so eager and blind as the credulity of covetousness, which, in its universal extent, measures the moral misery and the intellectual destitution of mankind.
+ - I do not know whether I have been a good seaman, but I know I have been a very faithful one.
+ - The discovery of America was the occasion of the greatest outburst of cruelty and reckless greed known in history.
+ - Of all the inanimate objects, of all men’s creations, books are the nearest to us for they contain our very thoughts, our ambitions, our indignations, our illusions, our fidelity to the truth, and our persistent leanings to error. But most of all they resemble us in their precious hold on life.
+ - I can’t tell if a straw ever saved a drowning man, but I know that a mere glance is enough to make dspair pause. For in truth, we who are creatures of impulse, are creatures of despair.
+ - In plucking the fruit of memory one runs the risk of spoiling its bloom, especially if it has got to be carried into the market.
+ - Everything belonged to him. It made me hold my breath in expectation of hearing the wilderness burst into prodigious peal of laughter that would shake the fixed stars in their places.
+ - All ambitions are lawful except those which climb upward on the miseries or credulities of mankind.
+ - Each blade of grass has its spot on earth whence it draws its life, its strength; and so is man rooted to the land from which he draws his faith together with his life.
+ - Truth of a modest sort I can promise you, and also sincerity. That complete, praiseworthy sincerity which, while it delivers one into the hands of one’s enemies, is as likely as not to embroil one with one’s friends.
+ - There is something haunting in the light of the moon; it has all the dispassionateness of a disembodied soul, and something of its inconceivable mystery.
+ - The terrorist and the policeman both come from the same basket.
+ - That faculty of beholding at a hint the face of his desire and the shape of his dream, without which the earth would know no lover and no adventurer.
+ - There is a kind way of assisting our fellow-creatures which is enough to break their hearts while it saves their outer envelope.
+ - Being a lady is a frightfully troublesome assignment, since it comprises mainly in managing men.
+ - Some of us, regarding the ocean with understanding and affection, have seen it looking old, as if the immemorial ages had been stirred up from the undisturbed bottom of ooze. For it is a gale of wind that makes the sea look old.
+ - The sea – this truth must be confessed – has no generosity. No display of manly qualities – courage, hardihood, endurance, faithfulness – has ever been known to touch its irresponsible consciousness of power.
+ - A man’s most open actions have a secret side to them.
+ - Every age is fed on illusions, lest men should renounce life early and the human race come to an end.
+ - It is not Justice the servant of men, but accident, hazard, Fortune-the ally of patient Time-that holds an even and scrupulous balance.
+ - They had behind them, to my mind, the terrific suggestiveness of words heard in dreams, of phrases spoken in nightmares.
+ - Here’s the main page of motivational quotes, if you want a different topic. Gossip is what no one claims to like, but everybody enjoys.
+ - It is a maudlin and indecent verity that comes out through the strength of wine.
+ - I always went my own road and on my own legs where I had a mind to go.
+ - Nowhere else than upon the sea do the days, weeks, and months fall away quicker into the past. They seem to be left astern as easily as the light air-bubbles in the swirls of the ship’s wake.
+ - Criticism, that fine flower of personal expression in the garden of letters.
+ - As in political so in literary action a man wins friends for himself mostly by the passion of his prejudices and the consistent narrowness of his outlook.
+ - The revolutionary spirit is mighty convenient in this, that it frees one from all scruples as regards ideas.
+ - We looked at the venerable stream not in the vivid flush of a short day that comes and departs forever, but in the august light of abiding memories.
+ - Nations it may be have fashioned their Governments, but the Governments have paid them back in the same coin.
+ - A modern fleet of ships does not so much make use of the sea as exploit a highway.
+ - As to honor – you know – it’s a very fine mediaeval inheritance which women never got hold of. It wasn’t theirs.
+ - It is respectable to have no illusions, and safe, and profitable and dull.
+ - His very existence was improbable, inexplicable, and altogether bewildering. He was an insoluble problem. It was inconceivable how he had existed, how he had succeeded in getting so far, how he had managed to remain – why he did not instantly disappear.
+ - A certain simplicity of thought is common to serene souls at both ends of the social scale.
+ - For a moment I had a view of a world that seemed to wear a vast and dismal aspect of disorder, while, in truth, thanks to our unwearied efforts, it is as sunny an arrangement of small conveniences as the mind of man can conceive.
+ - Who would care to question the ground of forgiveness or compassion.
+ - I can’t imagine a human being so hard up for something to do as to quarrel with me.
+ - Society was calling to its accomplished child to come, to be taken care of, to be instructed, to be judged, to be condemned; it called him to return to that rubbish heap from which he had wandered away, so that justice could be done.
+ - Necessity, they say, is mother of invention, but fear, too, is not barren of ingenious suggestions.
+ - A nickname may be the best record of a success. That’s what I call putting the face of a joke upon the body of a truth.
+ - And perhaps in this is the whole difference; perhaps all the wisdom, and all truth, and all sincerity, are just compressed into that inappreciable moment of time in which we step over the threshold of the invisible.
+ - I take it that what all men are really after is some form or perhaps only some formula of peace.
+ - To a teacher of languages there comes a time when the world is but a place of many words and man appears a mere talking animal not much more wonderful than a parrot.
+ - The good author is he who contemplates without marked joy or excessive sorrow the adventures of his soul amongst criticisms.
+ - He who wants to persuade should put his trust not in the right argument, but in the right word. The power of sound has always been greater than the power of sense.
+ - Sometimes it takes all my resolution and power of self-control to refrain from butting my head against the wall. I want to howl and foam at the mouth but I daren’t.
+ - Some great men owe most of their greatness to the ability of detecting in those they destine for their tools the exact quality of strength that matters for their work.
+ - You can’t, in sound morals, condemn a man for taking care of his own integrity. It is his clear duty.
+ - Books may be written in all sorts of places. Verbal inspiration may enter the berth of a mariner on board a ship frozen fast in a river in the middle of a town.
+ - Yet, when one thinks of it, diplomacy without force is a but a rotten reed to lean upon.
+ - A historian may be an artist too, and a novelist is a historian, the preserver, the keeper, the expounder, of human experience.
+ - There are men here and there to whom the whole of life is like an after-dinner hour with a cigar; easy, pleasant, empty, perhaps enlivened by some fable of strife to be forgotten – before the end is told – even if there happens to be any end to it.
+ - Everybody had to be thoroughly understood before being accepted.
+ - Things and men have always a certain sense, a certain side by which they must be got hold of if one wants to obtain a solid grasp and a perfect command.
+ - The artist in his calling of interpreter creates because he must. He is so much of a voice that, for him, silence is like death.
+ - The condemned social order has not been built up on paper and ink, and I don’t fancy that a combination of paper and ink will ever put an end to it.
+ - She feared the unknown as we all do, and her ignorance made the unknown infinitely vast.
+
+207 quotes

@@ -1,0 +1,26 @@
+ - You know it’s right when you feel this undeniable connection and chemistry.
+ - My dream is to do something like the female Bourne, and do something in that world. To mix that high level of drama with the covert operation, conspiracy theory spy world fascinates me and it’s so interesting. It’s fun to do it.
+ - If I have a day off, I want to get on a plane and go to Paris! If I have a couple hours off work, I want to run to the market and make a four-course meal. I like to do things that are unexpected.
+ - I hate pretty-looking boys. I’d rather have a guy with a potbelly than one who’s in the gym all the time and watches what he eats.
+ - I just remember sitting in my trailer hysterically crying from the embarrassment I felt about myself, my body – and that no one could talk to me directly.
+ - I’m a big fan of glamour. It’s something I don’t think there’s enough of in Hollywood anymore. I enjoy putting on a sexy dress and heels. I want to work it.
+ - I love to cook. I spend weekends reading cookbooks-it’s really my relaxation.
+ - There’s a directness and a feistiness to being from Jersey.
+ - I love true love, and I’m a woman who wants to be married for a lifetime. That traditional life is something that I want.
+ - I don’t care how stylish something is if it doesn’t flatter me.
+ - When it comes down to it, at the end of the day, I need more out of my life and I need to push myself harder. And if at the end of the day I don’t have it, then I don’t have it, but at least I’m going to put myself out there. If I fail, I’m going to fail terrifically.
+ - I’m definitely someone who likes to fly by the seat of her pants. My mum always prays for the best...
+ - I never got into using my phone’s calendar. It’s easier to write in my Tiffany day planner. There’s something charming about having a datebook.
+ - I was brought up to believe that there is no such thing as failure as long as I’m trying my best. So I’ve had a ‘blood, guts and glory’ approach through my whole life.
+ - I told my boyfriend after three weeks that I wanted to marry him and that we could do it tomorrow.
+ - It’s much easier to cheat than it is to be loyal. Everyone goes through down times. You just don’t put yourself in those situations, you know?
+ - What I do for a living puts me in the spotlight.
+ - Growing up, others girls wanted to dance and help their mums with the cooking. I liked to play soccer with the boys. Or I’d be off on my own, tilting mirrors towards the sun in order to burn armies of ants. That was my idea of fun.
+ - Since I was 15 years old, all I wanted was to find the guy I was going to marry.
+ - If I could have a special power in real life I’d love to fly.
+ - I’ve been in a lot of fiery relationships, and it is so exciting. But there’s a more profound feeling when the love is just real and not so painful.
+ - I feel really lucky that, in my career, I’ve gotten a chance to explore a lot of different genres and kinds of films.
+ - I would actually love to fly. I think that that would be probably the most exhilarating feeling, and as close as you can get to true freedom.
+ - I have tons of sunglasses. My husband won’t let me buy another pair because I lose them all the time.
+
+24 quotes

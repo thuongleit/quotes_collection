@@ -1,0 +1,96 @@
+ - Either America will destroy ignorance or ignorance will destroy the United States.
+ - Education must not simply teach work-it must teach life.
+ - There is no force equal to a woman determined to rise.
+ - Children learn more from what you are than what you teach.
+ - There is in this world no such force as the force of a person determined to rise. The human soul cannot be permanently chained.
+ - Strive for that greatness of spirit that measures life not by its disappointments but by its possibilities.
+ - A system cannot fail those it was never meant to protect.
+ - Ignorance is a cure for nothing.
+ - When you have mastered numbers, you will in fact no longer be reading numbers, any more than you read words when reading books You will be reading meanings.
+ - The cost of liberty is less than the price of repression.
+ - The dark world is going to submit to its present treatment just as long as it must and not one moment longer.
+ - To the real question, How does it feel to be a problem? I answer seldom a word.
+ - It is a peculiar sensation, this double-consciousness, this sense of always looking at one’s self through the eyes of others, of measuring one’s soul by the tape of a world that looks on in amused contempt and pity.
+ - I insist that the object of all true education is not to make men carpenters, it is to make carpenters men.
+ - The worker must work for the glory of his handiwork, not simply for pay; the thinker must think for truth, not for fame.
+ - There can be no perfect democracy curtailed by color, race, or poverty. But with all we accomplish all, even peace.
+ - One thing alone I charge you. As you live, believe in life! Always human beings will live and progress to greater, broader and fuller life. The only possible death is to lose belief in this truth simply because the great end comes slowly, because time is long.
+ - Education is that whole system of human training within and without the school house walls, which molds and develops men.
+ - The problem of the twentieth century is the problem of the color line.
+ - The cause of war is preparation for war.
+ - We must complain. Yes, plain, blunt complaint, ceaseless agitation, unfailing exposure of dishonesty and wrong – this is the ancient, unerring way to liberty and we must follow it.
+ - The true college will ever have but one goal – not to earn meat, but to know the end and aim of that life which meat nourishes.
+ - I am especially glad of the divine gift of laughter: it has made the world human and lovable, despite all its pain and wrong.
+ - Herein lies the tragedy of the age: Not that men are poor, – all men know something of poverty. Not that men are wicked, – who is good? Not that men are ignorant, – what is truth? Nay, but that men know so little of men.
+ - I believe that all men, black, brown, and white, are brothers.
+ - Men must not only know, they must act.
+ - I believe in Liberty for all men: the space to stretch their arms and their souls.
+ - How shall Integrity face Oppression?
+ - In 1956, I shall not go to the polls. I have not registered. I believe that democracy has so far disappeared in the United States that no ‘two evils’ exist. There is but one evil party with two names, and it will be elected despite all I can do or say.
+ - Violence, naked force, has settled more issues in history than has any other factor, and the contrary opinion is wishful thinking at its worst. Breeds that forget this basic truth have always paid for it with their lives and freedoms.
+ - To stimulate wildly weak and untrained minds is to play with mighty fires.
+ - We shall never secure emancipation from the tyranny of the white oppressor until we have achieved it in our own souls.
+ - I believe that all men, black and brown, and white, are brothers, varying, through Time and Opportunity, in form and gift and feature, but differing in no essential particular, and alike in soul and in the possibility of infinite development.
+ - For education among all kinds of men always has had, and always will have, an element of danger and revolution, of dissatisfaction and discontent.
+ - Most men today cannot conceive of a freedom that does not involve somebody’s slavery.
+ - We black men seem the sole oasis of simple faith and reverence in a dusty desert of dollars and smartness.
+ - To be a poor man is hard, but to be a poor race in a land of dollars is the very bottom of hardships.
+ - A man does not look behind the door unless he has stood there himself.
+ - If there is anybody in this land who thoroughly believes that the meek shall inherit the earth they have not often let their presence be known.
+ - I sit with Shakespeare and he winces not.
+ - It is as though nature must needs make men narrow in order to give them force.
+ - And yet not a dream, but a mighty reality- a glimpse of the higher life, the broader possibilities of humanity, which is granted to the man who, amid the rush and roar of living, pauses four short years to learn what living means.
+ - Little of beauty has America given the world save the rude grandeur God himself stamped on her bosom; the human spirit in this new world has expressed itself in vigor and ingenuity rather than in beauty.
+ - The theory of democratic government is not that the will of the people is always right, but rather that normal human beings of average intelligence will, if given a chance, learn the right and best course by bitter experience.
+ - The power of the ballot we need in sheer defense, else what shall save us from a second slavery?
+ - There is but one coward on earth, and that is the coward that dare not know.
+ - In the treatment of the child the world foreshadows its own future and faith. All words and all thinking lead to the child, – to that vast immortality and wide sweep of infinite possibility which the child represents.
+ - I am one who tells the truth and exposes evil and seeks with Beauty for Beauty to set the world right.
+ - America is not another word for Opportunity to all her sons.
+ - Whiteness is ownership of the earth.
+ - Lord, make us mindful of the little things that grow and blossom in these days to make the world beautiful for us.
+ - Begin with art, because art tries to take us outside ourselves. It is a matter of trying to create an atmosphere and context so conversation can flow back and forth and we can be influenced by each other.
+ - It is the stars, it is the ancient stars, it is the young and everlasting stars!
+ - What do nations care about the cost of war, if by spending a few hundred millions in steel and gunpowder they can gain a thousand millions in diamonds and cocoa?
+ - Life has its pains and evils-its bitter disappointments; but like a good novel and in healthful length of days, there is infinite joy in seeing the World, the most interesting of continued stories, unfold...
+ - Nothing in the world is easier in the United States than to accuse a black man of crime.
+ - A little less complaint and whining, and a little more dogged work and manly striving, would do us more credit than a thousand civil rights bills.
+ - The favorite device of the devil, ancient and modern, is to force a human being into a more or less artificial class, accuse the class of unnamed and unnameable sin, and then damn any individual in the alleged class, however innocent he may be.
+ - The world is shrinking together; it is finding itself neighbor to itself in strange, almost magic degree.
+ - Histories of the world omitted China; if a Chinaman invented compass or movable type or gunpowder we promptly “forgot it” and named their European inventors. In short, we regarded China as a sort of different and quite inconsequential planet.
+ - Believe in life! Always human beings will live and progress to greater, broader, and fuller life.
+ - Oppression costs the oppressor too much if the oppressed stands up and protests. The protest need not be merely physical-the throwing of stones and bullets-if it is mental, spiritual; if it expresses itself in silent, persistent dissatisfaction, the cost to the oppressor is terrific.
+ - But art is not simply works of art; it is the spirit that knows Beauty, that has music in its soul and the color of sunsets in its headkerchiefs; that can dance on a flaming world and make the world dance, too.
+ - The chief problem in any community cursed with crime is not the punishment of the criminals, but the preventing of the young from being trained to crime.
+ - Honest and earnest criticism from those whose interests are most nearly touched,- criticism of writers by readers, of government by those governed, of leaders by those led, – this is the soul of democracy and the safeguard of modern society.
+ - The music of an unhappy people, of the children of disappointment; they tell of death and suffering and unvoiced longing toward a truer world, of misty wanderings and hidden ways.
+ - Had it not been for the race problem early thrust upon me and enveloping me, I should have probably been an unquestioning worshipper at the shrine of the established social order and of the economic development into which I was born.
+ - It is the wind and the rain, O God, the cold and the storm that make this earth of yours to blossom and bear its fruit. So in our lives it is storm and stress and hurt and suffering that make real men and women bring the world’s work to its highest perfection.
+ - The time must come when, great and pressing as change and betterment may be, they do not involve killing and hurting people.
+ - The main thing is the YOU beneath the clothes and skin – the ability to do, the will to conquer, the determination to understand and know this great, wonderful, curious world.
+ - Progress in human affairs is more often a pull than a push, a surging forward of the exceptional man, and the lifting of his duller brethren slowly and painfully to his vantage-ground.
+ - A classic is a book that doesn’t have to be written again.
+ - I believe in pride of race and lineage and self: in pride of self so deep as to scorn injustice to other selves.
+ - Half the Christian churches of New York are trying to ruin the free public schools in order to replace them by religious dogma.
+ - I believe that there are human stocks with whom it is physically unwise to intermarry, but to think that these stocks are all colored or that there are no such white stocks is unscientific and false.
+ - Liberty trains for liberty.
+ - The problem of the twentieth century is the problem of the color-line, – the relation of the darker to the lighter races of men in Asia and Africa, in America and the islands of the sea.
+ - The kind of sermon which is preached in most colored churches is not today attractive to even fairly intelligent men.
+ - It is the trained, living human soul, cultivated and strengthened by long study and thought, that breathes the real breath of life into boys and girls and makes them human, whether they be black or white, Greek, Russian or American.
+ - All womanhood is hampered today because the world on which it is emerging is a world that tries to worship both virgins and mothers and in the end despises motherhood and despoils virgins.
+ - The future woman must have a life work and economic independence. She must have the right of motherhood at her own discretion.
+ - Race prejudice decreases values, both real estate and human.
+ - At best, the natural good-nature is edged with complaint or has changed into sullenness and gloom. And now and then it blazes forth in veiled but hot anger.
+ - The return from your work must be the satisfaction which that work brings you and the world’s need of that work. With this, life is heaven, or as near heaven as you can get. Without this – with work which you despise, which bores you, and which the world does not need – this life is hell.
+ - So often do you see collegians enter life with high resolve and lofty purpose and then watch them shrink and shrink to sordid, selfish, shrewd plodders, full of distrust and sneers.
+ - Most men in this world are colored. A belief in humanity means a belief in colored men. The future will, in all reasonable possibility, be what colored men make of it.
+ - Liberty trains for liberty. Responsibility is the first step in responsibility.
+ - Harriet Tubman fought American slavery single handed and was a pioneer in that organized effort known as the Underground Railroad.
+ - Disfranchisement is the deliberate theft and robbery of the only protection of poor against rich and black against white.
+ - If the unemployed could eat plans and promises, they would be able to spend the winter on the Riviera.
+ - There may often be excuse for doing things poorly in this world, but there is never any excuse for calling a poorly done thing, well done.
+ - It is the growing custom to narrow control, concentrate power, disregard and disenfranchise the public; and assuming that certain powers by divine right of money-raising or by sheer assumption, have the power to do as they think best without consulting the wisdom of mankind.
+ - We cannot escape the clear fact that what is going to win in this world is reason, if this ever becomes a reasonable world.
+ - Now is the accepted time, not tomorrow, not some more convenient season. It is today that our best work can be done.
+
+94 quotes

@@ -1,0 +1,26 @@
+ - The blues is life itself.
+ - Turn on, tune up, rock out.
+ - Until you learn to play what you want to hear, you’re barking up the wrong tree.
+ - Sounds like the blues are composed of feeling, finesse, and fear.
+ - Water doesn’t hurt a vinyl record. Put it into a dishwasher and you’re fine.
+ - I’ve been touted for my guacamole. I’ll stand by my method. People have asked me to come to their home and prepare it. Restaurants have asked me about it.
+ - In 1950, the biggest amp you could get was no bigger than a tabletop radio.
+ - The blues is a mighty long road. Or it could be a river, one that twists and turns and flows into a sea of limitless musical potential.
+ - Did Muddy Waters play an acoustic? Well of course he did. But did he turn his back on being able to plug it in and play louder? No, he plugged in and turned it up and got miles and miles ahead of the game in one fateful act of just plugging in.
+ - Can’t do it, simply cause underneath ’em is too ugly.
+ - It’s important to collect unusual characters. It keeps you sharp.
+ - Most of the reggae awareness is still among music industry people and people who are already into all types of music.
+ - Sooner rather than later, any other form other than digital media will be a thing of the past. It won’t vanish, but let’s face it, this is seemingly the way of the future.
+ - The band is tight enough. Quit practicing!
+ - Having a visual element to your band is a good thing.
+ - Experience is definitely the high road once driven. It actually enhances the songwriting and song sourcing process.
+ - If you’re really looking for something in particular, it helps to take your time.
+ - Ever since I was a little kid and first heard Jimmy Reed’s ‘Honey, Don’t Let Me Go,’ the blues has been in my blood.
+ - Well, everybody faces the fact there really aren’t many records stores around to just go and browse. Maybe browse online, yet that tactile feel of flipping through a stack of vinyl remains one of life’s simple pleasures.
+ - It’s a real uphill challenge to battle the white-guyness.
+ - I probably owe as much to Jeff Beck as I do to Son House with connections to the blues.
+ - Our skin colours may vary, but what’s upstairs – there’s certain things we’ve all got in common.
+ - There’s not a single genre that is hard to find or hard to get.
+ - It doesn’t take much to be good, but it takes a lot to be real good.
+
+24 quotes

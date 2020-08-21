@@ -1,0 +1,68 @@
+ - Only the strong survive.
+ - I’m not perfect. But I am trying every day to concentrate on being better.
+ - When you are not practicing, someone else is getting better.
+ - When you work hard, good things happen.
+ - I don’t put pressure on myself. I just compete.
+ - Life is short. Im gonna be happy with mine.
+ - I play every game like it’s my last game. All that matters is that you go out there and play every game as if it was your last.
+ - I wasn’t a bad guy. I just wanted God to give me a second chance.
+ - Mistakes happen. But after a while you’ve got to stop making them happen twice.
+ - A jump shot can get you a shoe deal, a big house, a supermodel, fancy cars, a bunch of yes men, a Swiss bank account. But none of these things can get you a jump shot.
+ - I had a lot of growing up to do. A lot of times, I learned the hard way.
+ - You have to go through good times and bad times to get where you’re trying to go.
+ - The basket looked like an ocean, and I was just throwing rocks in.
+ - I just try to look into the mirror, and work on the things that I wasn’t doing, and I made a promise to myself that after the season, I will look at the same mirror, and say that you did everything you could.
+ - If you’re struggling with your shooting, then do other things on the basketball court. Get steals, get assists, get rebounds-do anything on the court to help the team win.
+ - How the hell can I make my teammates better by practicing?!
+ - I’d rather have more heart than talent any day.
+ - One of the things you have to learn is that you don’t have to have the ball all the time to be effective.
+ - It’s unfair because the people booing, I believe, wouldn’t want to have their child booed. Fans don’t understand our lives and what we go through. They don’t look at us as humans. We love the fans because they support and love the game, but at the same time it hurts when they turn their back on us.
+ - I was the bridge between the Michael Jordan era and LeBron James era.
+ - I went through what I went through because God said go through it.
+ - Man, people have been waiting for me to fall off my whole career. From the first time I stepped on the court. It probably made people sick to their stomachs watching my whole career, watching the things that I’ve done in my career.
+ - I made a lot of mistakes, a lot of things I’m not proud of. But it’s only for other people to learn from.
+ - I remember playing in a tournament when at home we didn’t have light, because my mom spent her last money on my sneakers.
+ - I love you Philadelphia. I want to thank you for accepting me, and letting me be me and make this my home forever.
+ - My whole thing is, if you love me, then love me. If you don’t, then believe what you hear and run with that.
+ - You can put a murderer in a suit, and hes still a murderer.
+ - I would rather win than have good sportsmanship.
+ - I don’t want to just go to the playoffs, I don’t want to go to the playoffs and win the first round, second round, and not win the whole thing because it’s bittersweet.
+ - I didn’t know I had this many fans in Puerto Rico. I’m going to carry this memory to my grave.
+ - In 2001 we didn’t have all the talent in the world, we just had me on offense and just a bunch of tough ass dudes, and a great coach in Larry Brown.
+ - If I don’t believe it, then they don’t need me on the court. I’ve just got to believe that in my heart.
+ - People think that I’m some tough renegade, black-hearted being, evil, but that ain’t me.
+ - I’ve always said, just go ask my teammates if you want to know about me. Go ask the guys that I’ve played with. Don’t ask or get information about me from people who are not in the locker room or not around me all of the time. Then you’ll get legit answers.
+ - Believe me, I am not even that brave enough to miss that many practices.
+ - I gave everything I had to basketball. The passion is still there but the desire to play is not. It was a great ride.
+ - Please don’t try to make things nice! All the wrong notes are right? I want it that way.
+ - My whole thing was, just being me. Now, you look around the NBA and all of them have tattoos, guys wearing cornrows. Now you see the police officers with the cornrows. I took a beating for those types of things.
+ - I don’t even have money for a cheeseburger!
+ - If that many people recognize how hard I go every night and what I put into my game, to make myself and my team better, it means a lot to mean. I’m fortunate; I’m blessed to be in the situation that I’m in right now.
+ - Being an All-Star is everything.
+ - When I was a little kid I used to go on the playground and say: today I will shoot like Bird, pass like Magic, jump like Mike, be quick like Zeke. I am thankful to them, since without seeing them do things they did, I wouldn’t be in the NBA.
+ - When you lose, there is a whole bunch of room for negativity and I don’t feed into this stuff and I do not do any talking. I don’t run my mouth.
+ - I’m going to always be a Sixer til I die.
+ - I don’t care. I feel like if we don’t make a trade, we have to get it done with what we’ve got.
+ - I love my fans in Philadelphia, but this is the hardest place in the world to play in. And I think it’s the hardest place to play in to be a superstar. Just to be the No. 1 guy. All eyes on you – because everybody wants you to be perfect, but not themselves.
+ - When you get to that level, it’s not a matter of talent anymore – because all the players are so talented – it’s about preparation, about playing smart and making good decisions. If I don’t believe it, then they don’t need me on the court. I’ve just got to believe that in my heart.
+ - We should because when coaches get fired, the players have a lot to do with it.
+ - I believe in my heart I’m the best player in the world. I’m just a scorer. I try to put the ball in the basket for my team. I’m just confident in my ability to play ball.
+ - I am the MVP and I gotta worry about the trade talk.
+ - We had a lot to do with Randy being fired. If we were to do a lot better, then it probably wouldn’t have happened.
+ - I never took the game for granted as far as not having to work on what I needed to do to accomplish all of the things that I wanted to accomplish.
+ - God chose Memphis as the place that I will continue my career.
+ - I see kids today trying to do the things I did, and it makes me feel like I’ve come a long way.
+ - I owe all of this to the guys I’ve played with and all the coaches that have helped me get to where I’m at right now. I’m honored to be here.
+ - I want to return to the NBA this season, and help any team that wants me, in any capacity that they feel that I can help. I’m disappointed.
+ - There’s nothing less than that. I don’t care about just going to the playoffs; I’ve been to the playoffs before.
+ - This is the thing you dream about when you’re a kid, even before getting into the league.
+ - I believe that whatever we have, regardless of a trade being done or not, I feel we have a shot. I’ve just got to believe that we’re going to be all right. I’ve got to just play basketball.
+ - He’s helped me do so much in my career, helped me be the player that I am. If there’s no Larry Brown, then there’s no MVP, Allen Iverson.
+ - I just wanted to set a good example. I wanted to do things that I hadn’t done before. My whole thing was to just try to be professional. I think when you work hard, good things happen, so obviously, because we’re going to the Finals.
+ - Personally I just want to win a championship.
+ - People try to start things with me because of who I am, and I know that means I have to stay away. Its definitely racial.
+ - I thought we’d be discussing about me not leaving Philadelphia and they just kept asking me about the practice, so I lost it.
+ - I take everything I learned from the streets and put it in my NBA game.
+ - This is like a tribute to them, the people who helped me to get here. The thing that makes me feel good about the whole thing is, the fans voted me here.
+
+66 quotes

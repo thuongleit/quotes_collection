@@ -1,0 +1,34 @@
+ - Expectations are like hidden rocks in your path, All they do is trip you up.
+ - A problem becomes a problem only if you believe it to be so. And often others see you as you see yourself.
+ - Each day has a color, a smell.
+ - Your childhood hunger is the one that never leaves you.
+ - Each spice has a special day to it. For turmeric it is Sunday, when light drips fat and butter-colored into the bins to be soaked up glowing, when you pray to the nine planets for love and luck.
+ - Tomorrow is another day. I’ve got plenty of things to worry about right now.
+ - But maybe as I get older, I begin to see beauty where I least expected it before.
+ - Often, others see you, as you see yourself.
+ - The heart itself is beyond control. That is its power, and its weakness.
+ - Love comes like lightning, and disappears the same way. If you are lucky, it strikes you right. If not, you’ll spend your life yearning for a man you can’t have.
+ - Everyone has a story. I don’t believer anyone can go through life without encountering at least one amazing thing.
+ - Everytime i have turned the page he re-enters my life as awkward as postscript.
+ - Sometimes – she knows this from her own life – to get to the other side, you must travel through grief. No detours are possible.
+ - Everyone breathes in air, but it’s a wise person who knows when to use that air to speak and when to exhale in silence.
+ - Monday is the day of silence, day of the whole white mung bean, which is sacred to the moon.
+ - I am buoyant and expansive and uncontainable – but I always was so, only I never knew it!
+ - I saw something I hadn’t realized before: words wasted energy. I would use my strength instead to nurture my belief that my life would unfurl uniquely.
+ - Buddha’s Wife tells a fascinating story, little known in the west, about the woman whom Buddha left behind. Gabriel Constans focuses the reader’s attention on the strong and complicated women who surrounded Buddha and makes us re-think the nature of spiritual life.
+ - Girls have to be toughened so they can survive a world that presses harder on women.
+ - I guess there’s a lot we hope for that never happens.
+ - Chili, spice of red Thursday, which is the day of reckoning. Day which invites us to pick up the sack of our existence and shake it inside out. Day of suicide, day of murder.
+ - Looking back, I could not point to one special time and say, There! That’s what is amazing. We can change completely and not recognize it. We think terrible events have made us into stone. But love slips in like a chisel – and suddenly it is an ax, breaking us into pieces from the inside.
+ - That’s how it is sometimes when we plunge into the depths of our lives. No one can accompany us, not even those who would give up their hearts for our happiness.
+ - Above us our palace waits, the only one I’ve ever needed. Its walls are space, its floor is sky, its center everywhere. We rise; the shapes cluster around us in welcome, dissolving and forming again like fireflies in a summer evening.
+ - Fenugreek, Tuesday’s spice, when the air is green like mosses after rain.
+ - I liked his voice, rich and unself-conscious even when he forgot words and hummed to fill in the gap. What I didn’t understand, I imagined, and thus it became a love song.
+ - Or is this how humans survive, shrugging off history, immersing themselves in the moment?
+ - I tried to hold on to this compassion, sensing its preciousness, but even as I reached to grasp it, it dissipated into wisps. No revelation can endure unless it is bolstered by a calm pure mind- and I’m afraid I didn’t possess that.
+ - How can I forgive if you are not ready to give up that which caused you to stumble?
+ - The dream is not a drug but a way. Listen to where it can take you.
+ - In life, it’s best not to take anything for free – unless it’s from someone who wishes you well.
+ - Or perhaps it is just that desire lies at the heart of human existence. When we turn away from one desire, we must find another to cleave to with all our strength – or else we die.
+
+32 quotes

@@ -1,0 +1,71 @@
+ - O my soul, do not aspire to immortal life, but exhaust the limits of the possible.
+ - Every gift which is given, even though is be small, is in reality great, if it is given with affection.
+ - Learn what you are and be such.
+ - Water is the best of all things.
+ - Unsung, the noblest deed will die.
+ - Forge thy tongue on an anvil of truth and what flies up, though it be but a spark, will have light.
+ - To each thing belongs it’s measure. Occasion is best to know.
+ - Words have a longer life than deeds.
+ - Even success softens not the heart of the envious.
+ - Even now I am full of hope, but the end lies in God.
+ - Sweet is war to those who know it not.
+ - Often silence is the wisest thing for a man to heed.
+ - Time is the best preserver of righteous men.
+ - It is God that accomplishes all term to hopes, God, who overtakes the flying eagle, outpasses the dolphin in the sea; who bends under his strength the man with thoughts too high.
+ - Mother of the Sun, Theia of many names, for your sake men honor gold as more powerful than anything else; and through the value you bestow on them, o queen, ships contending on the sea and yoked teams of horses in swift-whirling contests become marvels.
+ - The noblest of the elements is water.
+ - Success for the striven washes away the effort of striving.
+ - A good deed hidden in silence dies.
+ - Law, the king of all mortals and immortals.
+ - Humble in a humble state and great in greatness, I will work out the divinity that is busy within my mind.
+ - A graceful and honorable old age is the childhood of immortality.
+ - Man’s pleasure is a short time growing And it falls to the ground As quickly.
+ - Convention is the ruler of all.
+ - Water is best, but gold shines like fire blazing in the night, supreme of lordly wealth.
+ - For lawless joys a bitter ending waits.
+ - Creatures of a day, what is any one? What is he not? Man is but a dream of a shadow. Yet when there comes as a gift of heaven a gleam of sunshine, there rest upon men a radiant light and, aye, a gentle life.
+ - Envy, the attendant of the empty mind.
+ - War is sweet for those who haven’t experienced it.
+ - Many a time the thing left silent makes for happiness.
+ - The test of any man lies in action.
+ - The days that are still to come are the wisest witnesses.
+ - Men are the dreams of a shadow.
+ - Not every truth is the better for showing its face undisguised; and often silence is the wisest thing for a man to heed.
+ - Point thy tongue on the anvil of truth.
+ - To be envied is a nobler fate than to be pitied.
+ - Rich man and poor move side by side toward the limit of death.
+ - Great deeds give choice of many tales. Choose a slight tale, enrich it large, and then let wise men listen.
+ - Yet that man is happy and poets sing of him who conquers with hand and swift foot and strength.
+ - In all things rest is sweet; there is sur feit even in honey, even in Aphrodite s lovely flowers.
+ - My God grant me love for that which has splendor, but in this time of my life let me strive for attainable things.
+ - The race of gods and men is one, and from one mother we both draw our breath. Yet all the difference in our power holds us apart, so that man is nothing, but the brazen floor of heaven is eternally unshakable.
+ - The present will not long endure.
+ - We are things of a day. What are we? What are we not? The shadow of a dream is man, no more.
+ - Of the good things given between man and man, I say that a neighbor, true and loving in heart, to neighbor is a joy beyond all things else.
+ - There is a mortal breed most full of futility. In contempt of what is at hand, they strain into the future, hunting impossibilities on the wings of ineffectual hopes.
+ - Whatever is beautiful is beautiful by necessity.
+ - I will not steep my speech in lies; the test of any person lies in action.
+ - To bear lightly the neck’s yoke brings strength; but kicking against the goads is the way of failure.
+ - There are many roads to happiness, if the gods assent.
+ - Wrapt up in error is the human mind, And human bliss is ever insecure; Know we what fortune yet remains behind? Know we how long the present shall endure?
+ - I will be small in small things, great among great.
+ - Even wisdom has to yield to self-interest.
+ - When men succeed, even their neighbors think them wise.
+ - Skills vary with the man. We must tread a straight path and strive by that which is born in us.
+ - With our mortal minds we should seek from the gods that which becomes us.
+ - He is gifted with genius who knoweth much by natural inspiration.
+ - Even genius is tied to profit.
+ - The forehead of every work must shine from afar.
+ - A thing said walks in immortality if it has been said well.
+ - Finding that the middle condition of life is by far the happiest, I look with little favor upon that of princes.
+ - Various are the uses of friends, beyond all else in difficulty, but joy also looks for trust that is clear in the eyes.
+ - If any man thinks to swindle God, he is wrong.
+ - Envy bestrides praise.
+ - One race there is of men, one of gods, but from one mother we both draw our breath.
+ - Time is the turning over of days, works change for better or worse.
+ - Every noble deed dieth, if suppressed in silence.
+ - If one but tell a thing well, it moves on with undying voice, and over the fruitful earth and across the sea goes the bright gleam of noble deeds ever unquenchable.
+ - Natural ability is by far the best, but many men have succeeded in winning high renown by skill that is the fruit of teaching.
+ - Success abides longer among men when it is planted by the hand of God.
+
+69 quotes

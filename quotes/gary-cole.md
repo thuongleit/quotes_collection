@@ -1,0 +1,38 @@
+ - Let’s focus on where you could end up, not where you were or are.
+ - Good decisions don’t make life easy, but they do make it easier.
+ - I just don’t eat too much. That’s never been my problem.
+ - I miss everything about Chicago, except January and February.
+ - I grew up with Apocalypse Now and Badlands, so I had a real awe thing going.
+ - Clint Eastwood is a very soft-spoken, humble guy, actually, which helped put somebody like me at ease, who had never worked with somebody as huge as that. I’m sure that’s not always the case with legendary people.
+ - I don’t think anyone sets out to do something bad, it’s just that it’s very difficult.
+ - You don’t really have time to do other than what’s written. It’s very rigid. Shows have a certain rhythm that nobody wants disturbed. So a lot of that doesn’t take place on television, at least the television I was doing at the time when I first started.
+ - I still like to listen to the people that I came of age on.
+ - You make the choice. You look at each scene and you make sure that this is not a person deceiving people.
+ - A show that’s been successful that been on a while, chances are it’s going to stay that way. At least it’s going to maintain some kind of standard. But when a show begins, there’s no telling. Even after 13 shows or a whole year, you don’t know what will become of it.
+ - You always know when something works it’s a result of everything firing on all cylinders.
+ - A lot of actors in my age bracket look at being still standing as pretty good.
+ - It’s always best not to be thinking a hell of a lot while you’re acting, because you want it to be as spontaneous as possible, not too intellectual. Just behaving and listening to other people who you’re doing scenes with. I always like the latter when it looks easy, even though it may not be.
+ - If someone comes up to me, 90 percent of the time it’s about Office Space.
+ - Part of you wants to look over at the people watching and say, “Not bad, huh? Me and Clint Eastwood.” But you have to get past that and just be an actor.
+ - I was a little nervous coming in mostly because my first scene was with Martin Sheen, who I’m a huge fan of.
+ - Television is a big roulette table on so many levels. That’s all it is for actors.
+ - I messed around in high school, but I pretty much put it away until I did a television show in San Francisco.
+ - I like the fact that this kind of family has been seen in a movie a million times: teenage kids, the family is a bit strained and they don’t have enough money, but in the background the guy used to be a Gene Simmons type.
+ - Then, at some point, you get identified with certain things.
+ - When you make a movie, it’s up to so many things and so many people.
+ - I look at it scene-by-scene. Whether it’s a historical character or not, whatever, on the page is one thing and delving into the history or somebody is one thing, but making something work for an audience in front of a camera is another exercise and you bring whatever authenticity you can to it.
+ - You can go out in a good movie and look bad as well.
+ - I love going to concerts, so that whole environment is something that intrigues me anyway.
+ - I am also a drummer of sorts. I’ve got an electronic set sitting in my bedroom.
+ - I was initially a leading man, but only on television.
+ - I will confess I did none of my own singing. I did all my own costume and makeup, though.
+ - Karl Malden was quite a mentor. He taught me things he had learned from being in front of a camera so long.
+ - I think it had something to do with my love of music, especially rock music.
+ - Improv is not something I had a lot of experience with, because for a long time, my only experience in front of a camera was all television, which is pretty rigid script-wise, except for the occasional scene where you toss in an ad-lib just to elongate something.
+ - You need someone to tell you how to do things like hitting your marks, or driving a car so it looks right or getting out of a car so it doesn’t take a million years of screen time.
+ - There is no handbook about how a career is going to go.
+ - The one nice thing about doing a character for a long time is, you begin to feel more comfortable, and you are thinking less and behaving more.
+ - Being able to fantasize for a couple of days at being a rock singer surpassed most things I’ve done on stage.
+ - If you’re onstage and you’re improvising and nothing’s happening, people are racing for the door. But the director can go shopping later and pick up pieces and moments and insert them.
+
+36 quotes

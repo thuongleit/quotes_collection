@@ -1,0 +1,79 @@
+ - My role model is my dad.
+ - Everyone should walk across the Brooklyn Bridge. I did it three days in a row because it was one of the most exhilarating experiences I’ve ever had. The view is breathtaking.
+ - I wish I had more confidence.
+ - Wait a minute! I’m not interested in agriculture. I want the military stuff. During a briefing military stuff in which officials began telling him about missile silos.
+ - My dad was diagnosed with cancer, so we ended up burying him a year to the day that he was diagnosed.
+ - There’s a lot of us idiot actors that get tattoos and they cover them with makeup when you do a film.
+ - I was a loser in high school.
+ - I’m never afraid to try something if I think it’s funny. And I know I’ll regret it if I don’t.
+ - I got my very last tattoo after my father died. I’m not getting anymore; otherwise I’ll end up like Mike Tyson with a tattoo on my face.
+ - I’m cool with the way I look, I’m not an ugly dog, but I don’t see myself as a stud or anything.
+ - I don’t know where the loyalty lies in baseball. You really don’t have to protect each other much, unless there’s like a bench-clearing brawl. In hockey, it’s important that they look out for each other.
+ - I love everything Minnesota.
+ - Anyone serious about playing indoor, you should play outdoor.
+ - I’m not sure anybody’s ready to see me in a drama. And loving movies so much, I’ve seen a lot of comics try to make that transition too fast, and it can be detrimental. And I don’t think I’ve had as much success as I need in the comedy genre to open up those opportunities.
+ - I’m a big people-watcher. I love it. But I feel bad about it, because I always get caught!
+ - I thought I was a good kid.
+ - It’s been a huge blessing, being able to travel and have a great life.
+ - I’m still trying to figure myself out as an actor.
+ - I’m still a big kid – I make mistakes all time.
+ - The longest road trip I’ve ever been on is from Minnesota to Los Angeles.
+ - An act of thinking without restriction- without boundaries or rules can lead to the point of no return.
+ - Maybe I’ll just become a cartoon character because there’s nothing left for me to do in an R-rated comedy.
+ - I don’t really necessarily think I’m a funny guy, but I like the opportunity to take on something that I don’t feel I’m the best at doing.
+ - New York is like a vacation – no beach required.
+ - I wanted to make people feel the same way I feel when I see a good movie.
+ - I don’t know anything about this engagement stuff. I never thought I was going to get engaged.
+ - When I was in high school I was a super serious athlete. I wasn’t fun at all.
+ - I feel constricted if I become too much aware of the act of making. Liberty is lost and instead of an instinctual lyrical expression the whole thing becomes arid.
+ - I’m the kind of guy that if I don’t work out, I will get bigger and look like one of the guys who used to play sports.
+ - I grew up, probably like a lot of people, on cartoons. And I never thought I would have the chance to be in an animated movie. It’s good also to show the world my sweet side with them.
+ - My oldest brother was a big influence on the films I watched as a kid.
+ - I don’t think I had a Catherine Bach poster, but I know a lot of my friends desecrated those, big time.
+ - I just thought it could make a really cool movie. It’s not that it’s just a buddy comedy but it’s all about two guys hating each other and towards the end they’re good friends. I liked that these two guys were best friends from the very beginning, and they’re crazy.
+ - If I wasn’t an actor and I watched my films, I could easily be like ‘This guy’s a clown,’ you know?
+ - I grew up in Minnesota and everyone is so nice there. It is like Fargo. Everyone’s so chipper and you make friends just grocery shopping. We kill each other with kindness.
+ - At times it’s been weird because for the first phase of my career, I’ve been really well-known for a character that I was so not like and a character I never anticipated doing.
+ - In high school I went on about three dates.
+ - I’m the youngest of seven kids.
+ - I would watch ‘The Dukes of Hazzard’ on loop. At one point I had 30 televisions in my bedroom and I would watch it over and over.
+ - I’ve always played the guys that end up having the wisecracks.
+ - I live in New York, where people don’t tend to go up to actors as much.
+ - The surprising thing is that I was not funny in high school. I was always jealous of the funny kids because they always got the girls. I couldn’t tell a joke to save my life.
+ - To do a sequel is so weird, you don’t really think about it.
+ - I try to make the best of the opportunities that have been given to me.
+ - I did this TV show, which was my first job ever. It wasn’t a real acting part. It was like this promo for this sitcom and the main actress was meeting three different real people and then she was going to decide who was going to be on the episode.
+ - I’ve been doing comedies but I’m not a comedian.
+ - I don’t generally do movies that get good reviews.
+ - I tend to go for women with common sense. Being down to earth stands out more than looks.
+ - Most actors feel only one way. We’re just grateful to have a job.
+ - As I’ve gotten older, I’ve become attracted to things that have substance.
+ - There are a lot of movies I’ve done that come and go, and don’t really establish a growing fan base.
+ - I think I’ve done every disgusting thing you can in a film.
+ - You have to have fear to take risks – and I want to at least try.
+ - You know, I’ve always wanted to do dramas.
+ - I consider myself to be a good guy so it’s not hard for me to play that.
+ - I find that when you see somebody in the tabloids all the time, you have no desire to see them in movies.
+ - I don’t want to be known as a jerk forever.
+ - I went to college for about a year in California.
+ - I’ve definitely been typecast, but I have time to do other things and I was glad to have the chances I did.
+ - When I was maybe like, under 10 years old, I was kind of like a maniac.
+ - I think I would do a much better job if I had a chance to do things that were edgier than I get to do in comedies.
+ - I live right next to a grocery store and I don’t know if it’s the bachelor in me, but I just go in and shop for what I need for the day. I’m an idiot because I don’t shop for the whole week. The check out clerks always crack jokes about the fact that I’m in there sometimes twice a day.
+ - Every painting I do is related to the last one: it may be a continuation of a previous painting or it may be a reaction against it.
+ - What I love doing is taking my dog for runs.
+ - I always think everything has been the best part of my life.
+ - I was a total athlete. I loved sports, but when I realized I wasn’t going to be a professional athlete, I realized I wanted to be in movies.
+ - I love mockumentaries. When they’re done right, they’re really good.
+ - I don’t really party.
+ - This was a really big opportunity. This script was even mediocre. The idea was great, but Jay came on with his guys made it great and very specific. It all came together well.
+ - I also have this kind of fascination with Don Quixote, kind of like wanting something you’re not going to get. I like that a lot.
+ - I’m a much better singer than actor, which doesn’t really say a whole lot.
+ - I don’t do any amount of stunts.
+ - Ever since the first ‘American Pie,’ I’ve always been happy to just have an opportunity, I just didn’t think it was going to be with comedies. Now I really like it.
+ - I love being able to create something from the page and bring it to life.
+ - When ‘American Pie’ happened, I was so lucky to get that opportunity and I just tried to do a good job in that genre. But the films that inspired me as a kid were, like, Malcolm McDowall in ‘A Clockwork Orange.’ He was my hero.
+ - Working on the ‘Ice Age’ movies, I’m really proud to be in them.
+ - There are certain filmmakers I’d like to work with that I don’t think would take a risk with me, because I could be distracting in their film. It’ll take a couple films to prove to them that it’s worth the risk.
+
+77 quotes

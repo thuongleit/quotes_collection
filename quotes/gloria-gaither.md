@@ -1,0 +1,29 @@
+ - Memories are perhaps the best gifts of all.
+ - Satan labels you. God names you.
+ - How beautiful it is to learn that Grace isn’t fragile, and that in the family of God we can fail and not be a failure.
+ - We may run, walk, stumble, drive, or fly, but let us never lose sight of the reason for the journey or miss a chance to see a rainbow on the way.
+ - God walks with us. He scoops us up in His arms or simply sits with us in silent strength until we cannot avoid the awesome recognition that yes, even now, He is there.
+ - With each new experience of letting God be in control, we gain courage and reinforcement for daring to do it again and again.
+ - Love is the seed of all hope. It is the enticement to trust, to risk, to try, to go on...
+ - Even in the winter, in the midst of the storm, the sun is still there. Somewhere above the clouds, it still shines and warms and pulls at the life buried deep inside the brown branches and frozen earth.
+ - There may be no trumpet sound or loud applause when we make a right decision, just a calm sense of resolution and peace.
+ - I’m not what I want to be. I’m not what I’m going to be. But, thank God, I’m not what I was!
+ - Choices can change our lives profoundly. The choice to mend a broken relationship, to say “yes” to a difficult assignment, to lay aside some important work to play with a child, to visit some forgotten person – these small choices may affect many lives eternally.
+ - The things that matter the most in this world, they can never be held in our hand.
+ - I hear people say, “It’s not the quantity of time that’s important; it’s the quality.” Well, technically that may be true, but quality doesn’t happen in a hurry.
+ - What will your children remember? Moments spent listening, talking, playing and sharing together may be the most important times of all.
+ - We need the whole song, all the verses and the choruses to serve us as our own story unfolds because- trust me- life is hard, but God is good.
+ - God must have said, “I know what I’ll do, I’ll send my Love right down there where they are. And I’ll send it as a tiny baby, so they’ll have to touch it, and they’ll have to hold it close.”
+ - Memories, important yesterdays, were once todays. Treasure and notice today.
+ - Tradition gives us a sense of solidarity and roots, a knowing there are some things one can count on.
+ - What will your children remember? We can change the world inside our own houses. Take the gift of this moment and make something beautiful of it. Few worthwhile experiences just happen; memories are made on purpose.
+ - Line by line, moment by moment, special times are etched into our memories in the permanent ink of everlasting love in our relationships.
+ - When I look at where I’ve been, I see that what I am becoming is a whole lot further down the road from where I was.
+ - When we read of the great Biblical leaders, we see that it was not uncommon for God to ask them to wait, not just a day or two, but for years, until God was ready for them to act.
+ - There is something in every season, in every day, to celebrate with thanksgiving.
+ - Scripture has always been a part of my life. My dad was a pastor. My mother was a speaker, writer, and teacher. I memorized Scripture from the time I was little.
+ - In working with people across the country and around the world, I’ve come to know that most of us go through times that re-route our prayer life.
+ - There are times when I draw near enough to touch Him, then I know that He has been there all the time.
+ - If we just give God the little that we have, we can trust Him to make it go around.
+
+27 quotes

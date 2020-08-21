@@ -1,0 +1,23 @@
+ - Judiciary is where my passion is.
+ - Of course no president, Democratic or Republican – no president – is above the law, as neither are you, nor I, nor anyone.
+ - The federal judiciary is unlike the other branches of government. And once confirmed, a federal judge serves for life. And there’s no court above the Supreme Court.
+ - The rights of copyright holders need to be protected, but some draconian remedies that have been suggested would create more problems than they would solve.
+ - The appointment of the next Supreme Court justice must be made in the people’s interest and in the nation’s interest, not in the interest of any partisan faction.
+ - The American public is sick and tired of being lied to.
+ - Press releases tell us when federal agencies do something right, but the Freedom of Information Act lets us know when they do not.
+ - The American people deserve a Supreme Court justice who can demonstrate that he or she will not be beholden to the president, but only to the law.
+ - Stealing is stealing. I don’t care if it’s on the Internet or you’re breaking into a warehouse somewhere – it’s theft.
+ - Why do the President and Vice-President constantly change the subject when asked to explain why things are going so badly in Iraq? The answer is simple. They have been consistently wrong about Iraq, and the results speak for themselves.
+ - Most Americans want a sense of privacy. A lot of us don’t realize how much of our privacy we’re exposing by the internet.
+ - We need to consider nominations as thoroughly and carefully as the American people deserve. No one is entitled to a free pass to a lifetime appointment to the Supreme Court.
+ - A lot of people in my state of Vermont are gun owners.
+ - We’ve won wars before and we’ve certainly retained our rights as Americans.
+ - The court that serves America should reflect America.
+ - You get fifteen democrats in a room, and you get twenty opinions.
+ - The part that frightens the hell out of me is the goverment deciding where technology goes.
+ - I regret that some on the extreme right have been so critical of Justice Sandra Day O’Connor and have adamantly opposed the naming of a successor who shares her judicial philosophy and qualities. And their criticism actually reflects poorly upon them.
+ - The FBI wanted us to introduce the 1994 Digital Telephony bill today and I said absolutely not. They have to understand they have a Vermonter as the Chairman Of the Technology and Law committee and that we Vermonters respect our privacy.
+ - Justice Sandra Day O’Connor serves as a model Supreme Court justice, widely recognized as a jurist with practical values, a sense of the consequences of the legal decisions being made by the Supreme Court.
+ - I look forward to the time when the membership of the Supreme Court’s more reflective of the country it serves.
+
+21 quotes

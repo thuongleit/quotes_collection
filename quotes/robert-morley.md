@@ -1,0 +1,23 @@
+ - To fall in love with yourself is the first secret to happiness.
+ - A party: one arrives long after it’s started, and one’s going to leave long before it’s over.
+ - The British tourist is always happy abroad as long as the natives are waiters.
+ - The ball is man’s most disastrous invention, not excluding the wheel.
+ - No man is lonely while eating spaghetti.
+ - I have little patience with anyone who is not self-satisfied. I am always pleased to see my friends, happy to be with my wife and family, but the high spot of every day is when I first catch a glimpse of myself in the shaving mirror.
+ - Show me the man who has enjoyed his schooldays and I will show you a bully and a bore.
+ - A cough is a symptom, not a disease. Take it to your doctor and he can give you something serious to worry about.
+ - I have never willingly chased a ball.
+ - If the critics were always right we should be in deep trouble.
+ - A man who has his initials on his pyjamas must be uncertain of himself. Surely you should know who you are at bed time.
+ - If in the paddock the owner is surrounded by a herd of young children, don’t back his horse. But if the owner is accompanied by a beautiful lady, plunge to the hilt.
+ - Most owners are at length able to teach themselves to obey their dog.
+ - Every child should be placed on a doorstep to sell something. It’s the best possible training for life.
+ - It is a great help for a man to be in love with himself. For an actor, however, it is absolutely essential.
+ - We are articulate, but we are not particularly conversational. An Englishman won’t talk for the sake of talking. He doesn’t mind silence. But after the silence, he sometimes says something.
+ - I don’t work. I merely inflict myself on the public.
+ - Fat men get knocked over by buses no earlier, nor later, than thin men. And I, for one, have buried most of my thin friends.
+ - Beware of the conversationalist who adds “In other words.”
+ - The French are a logical people, which is one reason the English dislike them so intensely. The other is that they own France, a country which we have always judged to be much too good for them.
+ - If people take the trouble to cook, you should take the trouble to eat.
+
+21 quotes

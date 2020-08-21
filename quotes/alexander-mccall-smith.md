@@ -1,0 +1,99 @@
+ - Manners are the basic building blocks of civil society.
+ - You can go through life and make new friends every year – every month practically – but there was never any substitute for those friendships of childhood that survive into adult years. Those are the ones in which we are bound to one another with hoops of steel.
+ - A life without stories would be no life at all. And stories bound us, did they not, one to another, the living to the dead, people to animals, people to the land?
+ - None of us knows how we will cope with snakes until the moment arises, and then most of us find out that we do not do it very well.
+ - Any extreme political creed brought only darkness in the long run; it lit up nothing. The best politics were those of caution, tolerance and moderation, Angus maintained, but such politics were, alas, also very dull, and certainly moved nobody to poetry.
+ - Talking about pumpkins doesn’t make them grow.
+ - Be content with who you are and where you are, and do whatever you can do to bring to others such contentment, and joy, and understanding that you have managed to find yourself.
+ - At night we are all strangers, even to ourselves.
+ - The Okavango Delta is an astonishing sight: the great Okavango River, rather than flow towards the sea, flows inland, into the sands of the Kalahari.
+ - Ritual is a terribly important, binding cement in a society. If we abandon formality and rituals, we’re actually weakening the relationships that exist between people that bind.
+ - Old friends, like old shoes, are comfortable. But old shoes, unlike old friends, tend not to be supportive: it is easier to stumble and sprain an ankle while wearing a pair of old shoes than it is in new shoes, with their less yielding leather.
+ - We should be careful of the insults we fling at others, lest they return and land at our feet, newly minted to apply to those who had first coined them.
+ - She was made for untidy rooms and rumpled beds.
+ - There are old mycologists and there are bold mycologists, but there are no old, bold mycologists.
+ - International business, once allowed to stalk uncontrolled, killed the local, the small, the quirky.
+ - We think the world is ours forever, but we are little more than squatters.
+ - That my philosophy of life is, as far as possible, one of enjoyment. I’m not nihilistic.
+ - Botswana is actually very peaceful. It’s democratic. It never was in debt. They’ve been fortunate, they’ve had diamonds.
+ - One of the most destructive things that’s happening in modern society is that we are losing our sense of the bonds that bind people together – which can lead to nightmares of social collapse.
+ - Do not act meanly, do not be unkind, because the time for setting things right may pass before your heart changes course. Isabel Dalhousie.
+ - Dogs are in on our human silliness; lions are not.
+ - If your ceiling should fall down, then you have lost a room, but gained a courtyard. Think of it that way.
+ - Everything has been something before.
+ - It’s through the small things that we develop our moral imagination, so that we can understand the sufferings of others.
+ - Simple questions – and simple answers – were what we needed in life. That was what Mma Ramotswe believed. Yes.
+ - There are many women whose lives would be immeasurably improved by widowhood, but one should not always point that out.
+ - The people with the strong, brave exteriors are just as weak and vulnerable as the rest of us. And of course they never admit to their childish practices, their moments of weakness or absurdity, and then the rest of us think that’s how it should be.
+ - It is sometimes easier to be happy if you don’t know everything.
+ - I write four books a year. I’m very fortunate that I write quickly; around 3,500 words a day. Being strict about delineating my writing time and personal life, as well as keeping distractions at bay, is the only way I can accomplish this.
+ - I see no point in being despondent. We might as well enjoy ourselves during our brief tenure of this life.
+ - I’ve also long since realized that the way to really engage children is to give out prizes; it’s amazing how it concentrates their minds.
+ - I am just a tiny person in Africa, but there is a place for me, and for everybody, to sit down on this earth and touch it and call it their own.
+ - There is room in history for all of us.
+ - My wife Elizabeth and I started The Really Terrible Orchestra for people like us who are pretty hopeless musicians who would like to play in an orchestra. It has been a great success. We give performances; weve become the most famous bad orchestra in the world.
+ - The point about love, the essential point, was that we loved what we loved. We did not choose. We just loved.
+ - It was easy to be moral when that was the way you felt anyway. The hard bit about morality was making yourself feel the opposite of what you really felt.
+ - We need to believe I think in justice. We need to run our lives as if justice existed. If we abandon a belief that justice will eventually be done, we make this world much more difficult for ourselves.
+ - If you want to write, do two things – read lots of books and also, in your own writing, practise. Just write and write and then write again. persist. And never be put off or discouraged. You can do it!
+ - Lou knew that joy unshared was a halved emotion, just as sadness and loss, when borne alone, were often doubled.
+ - I cannot see myself in a new car. I am a tiny white van person. That is what i want!
+ - But we make such mistakes all the time, all through our lives. Wisdom, I suppose, is seeing this and acting upon it before it is too late. But it is often too late, isn’t it? – and those things that we should have said are unsaid, and remain unsaid for ever.
+ - Every small wrong, every minor act of cruelty, every act of petty bullying was symbolic of a greater wrong. And if we ignored these small things, then did it not blunt our outrage over the larger wrongs?
+ - My parents were very supportive and always encouraged us. My father was a gentle, nice man. My mother was quite a colorful character and a keen reader who encouraged me to write.
+ - We all know that it is women who take the decisions, but we have to let men think that the decisions are theirs. It is an act of kindness on the part of women.
+ - I’ve always had a creative urge and I get immense satisfaction from creating something because it feels like I’m making sense of the world and imposing order on it.
+ - It was time to take the pumpkin out of the pot and eat it. In the final analysis, that was what solved these big problems of life. You could think and think and get nowhere, but you still had to eat your pumpkin. That brought you down to earth. That gave you a reason for going on. Pumpkin.
+ - Life consists of positive and negative features, and I think that it is permissible to write about both.
+ - I have three older sisters, so we were a reasonably large family and, in general, a happy one.
+ - They’re very beautiful, aren’t they? Clouds are very beautiful and yet so often we fail to appreciate them properly. We should do that. We should look at them and think about how lucky we are to have them.
+ - I have always taken the view that one should never hold against a man anything he says after twelve o’clock at night or after a glass or two of anything.
+ - The telling of a story, like virtually everything in this life, was always made all the easier by a cup of tea.
+ - There is plenty of work for love to do.
+ - That of all people, it should be him; that took her aback. That the heart should settle on somebody like him; that surprised her. But she was so certain about it, so certain.
+ - But don’t we often lie to people we love, or not tell them things, precisely because we love them?
+ - Most people want nothing to happen. That is the problem with governments these days. They want to do things all the time; they are always very busy thinking of what things they can do next. That is not what people want. People want to be left alone to look after their cattle.
+ - New York is a wonderful place to be up, an awful place to be down.
+ - Do you realise that people die of boredom in London suburbs? It’s the second biggest cause of death amongs the English in general. Sheer boredom...
+ - There was a distinction between lying and telling half-truths, but it was a very narrow one.
+ - I’m very interested in tea. I wouldn’t mind being involved in some aspect of the tea industry.
+ - It’s a different sort of love taht puts up with illness. Old love.
+ - I just focus on getting the first scene right, with a few lines about the overall plot, and then the book grows organically.
+ - It is not enough just to identify a problem; there are plenty of people who were very skilled at pointing out what was wrong with the world, but they were not always so adept at working out how these things could be righted.
+ - Some of my characters are a mixture of various aspects of people I have met. others are pure invention.
+ - I would certainly never consider myself a Renaissance Man; I’m not fit to look at the dust from the chariot wheels of many of those who have gone before me.
+ - Small things may be important to us; to be a sometime anything is sometimes something.
+ - Writers obviously have to bear witness to the harsh face of the age.
+ - Every novel presents a slice of life. A noir policier for example presents one slice, one that perhaps addresses social dysfunction or some sort of pathology, while mine present a slice that is more upbeat and affirmative.
+ - Edinburgh used to be a haughty city.
+ - The previously unloved may find it hard to believe that they are now loved; that is such a miracle, they feel; such a miracle.
+ - I am capable of being idle.
+ - As a writer I’ve learned certain lessons. One of them is to be careful about how you put a view, and to bear in mind how easily and readily you’ll be misinterpreted.
+ - I write four or five a books a year. That means that I usually have one on the go. I am fortunate in being able to write quickly – 1000 words an hour.
+ - It seems to me that we’re in danger of losing sight of certain basic civic values in society by allowing the growth of a whole generation of people who really have no sense of attachment to society.
+ - And that, in a way, was the burden of being a philosopher: one knew what one had to do, but it was so often the opposite of what one really wanted to do.
+ - As a writer, I have readers who will have a range of political views. I don’t think they look to me for political guidance.
+ - Painters aren’t expected to paint bleak pictures, are they?
+ - I enjoy women’s conversation, and I think that helps me to describe them in fiction.
+ - Everybody has friends they dislike; people who they have slipped into relationships with, people they would not have chosen had they been more cautious, more circumspect.
+ - Oh I love gadgets and I pride myself on keeping at the cutting edge of technology.
+ - As a writer, you have to realize that people want to like the characters, so you have to be careful to keep them involved.
+ - I am often thanked by people for inventing the term traditionally built. The people who give me thanks for this are often traditionally built themselves.
+ - Who can’t like pigs? They’re wonderful creatures! I’ve always liked pigs.
+ - Many of my books are written from a female perspective. I rather enjoy the take that women have on the world, and certainly I enjoy the conversations that women have.
+ - But you cannot expect every writer to dwell on human suffering. I think my books do deal with grave issues. People who say they are too positive probably havent read them.
+ - Do not take on a traditionally built person unless you are prepared for a heavyweight bout.
+ - Any author of fiction will tell you that characters don’t need to be told what to do.
+ - I am easily persuaded to continue to have fun.
+ - The good were worthy of note because they battled and that battle was a great story, whereas the evil were evil because of moral laziness, or weakness, and that was ultimately a dull and uninteresting affair.
+ - It would be wonderful to have a guru; it would be like having a social worker or a personal trainer, not that people who had either of these necessarily appreciated the advice they received.
+ - I’m interested in character and dialogue and exchange of ideas.
+ - When you allow people to do what they wish, then that is what they do. They stop doing the things they need to do.
+ - We are all tempted, Mma. We are all tempted when it comes to cake.
+ - A very powerful theme in fiction is that of loss.
+ - Self-pity does not appreciate pedantry.
+ - Antonia was very conscious of the corrosive power of envy and felt that it was this emotion, more than any other, which lay behind human unhappiness. People did not realize how widespread envy was.
+ - Our minds can come up with the most entertaining possibilities, if we let them. But most of the time, we keep them under far too close a check.
+ - I think that we’ve made great moral progress in the second half of the 20th century in many respects, and particularly in relation to human rights but I think that we are losing sight of some of the values of concern for others, and self-respect and respect for others.
+
+97 quotes

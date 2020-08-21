@@ -1,0 +1,97 @@
+ - Beware the fury of a patient man.
+ - The control of information is something the elite always does, particularly in a despotic form of government. Information, knowledge, is power. If you can control information, you can control people.
+ - Fix your eyes forward on what you can do, not back on what you cannot change.
+ - An overnight success is ten years in the making.
+ - The good old days are now.
+ - If you want to kick the tiger in his ass you’d better have a plan for dealing with his teeth.
+ - The difference between fiction and reality? Fiction has to make sense.
+ - Victory comes only to those prepared to make it, and take it.
+ - Keep at it! The one talent that’s indispensable to a writer is persistence. You must write the book, else there is no book. It will not finish itself. Do not try to commit art. Just tell the damned story.
+ - We cannot fail to win unless we fail to try.
+ - I do not over-intellectualize the production process. I try to keep it simple: Tell the damned story.
+ - I know I’m paranoid, but am I paranoid enough?
+ - What the government is good at is collecting taxes, taking away your freedoms and killing people. It’s not good at much else.
+ - Life is about learning; when you stop learning, you die.
+ - The Only way to do all the things you’d like to do is to read.
+ - My life is a very simple life thank you.
+ - Helicopters don’t fly, they vibrate so badly the ground rejects them.
+ - Show me an elitist, and I’ll show you a loser.
+ - I wanted to see my name on the cover of a book. If your name is in the Library of Congress, you’re immortal.
+ - Nothing is as real as a dream. The world can change around you, but your dream will not. Responsibilities need not erase it. Duties need not obscure it. Because the dream is within you, no one can take it away.
+ - If you don’t write the book, the book ain’t gonna get written.
+ - Speak your dialogue out loud. If it sounds like the way people talk, then write it down.
+ - Switzerland is a land where crime is virtually unknown, yet most Swiss males are required by law to keep in their homes what amounts to a portable, personal machine gun.
+ - There is a long and honorable tradition of citizens in service to their nation that goes back at least as far as Cincinnatus, the Roman citizen who, more than once answered his country’s call, then returned to his farm and his family and his work.
+ - Whenever somebody comes up with a good idea, there’s somebody else who has never had a good idea in his life who stands up and says, Oh, you can’t do that.
+ - There was a time when nails were high-tech. There was a time when people had to be told how to use a telephone. Technology is just a tool. People use tools to improve their lives.
+ - It was one thing to use computers as a tool, quite another to let them do your thinking for you.
+ - America is the most inventive country in the world because everybody has access to information.
+ - It is a principle of diplomacy that one must know something of the truth in order to lie convincingly.
+ - I am a politician which means I am a liar and a crook. When I am not kissing babies I am stealing their lollypops.
+ - Being a victim is more palatable than having to recognize the intrinsic contradictions of one’s own governing philosophy.
+ - Every person you meet – and everything you do in life – is an opportunity to learn something.
+ - Once you stop believing in Santa Claus, the whole world just goes downhill.
+ - The general difference between conservatives and liberals is that liberals like pretty pictures and conservatives like to build bridges that people can drive across.
+ - What do I know about sex? I’m a married man.
+ - Collaboration on a book is the ultimate unnatural act.
+ - Surviving is much more painful than death.
+ - Anti-Catholicism is the last respectable prejudice. You can’t hate black people anymore, of course, and you can’t hate homosexuals anymore, but you can hate all the Catholics you want.
+ - Never ask what sort of computer a guy drives. If he’s a Mac user, he’ll tell you. If not, why embarrass him?
+ - Books and movies are different art forms with different rules. And because of that, they never translate exactly.
+ - Suspense is achieved by information control: What you know. What the reader knows. What the characters know.
+ - That’s the ultimate pornography There’s nothing more pornographic than glorifying war.
+ - There is an old saying: In history nothing is true but the names and dates. In fiction everything is true but the names and dates. The difference between reality and fiction? Fiction has to make sense.
+ - I’d rather talk to people who do things than complain about other people who do things. I say they’re idiots.
+ - When you have stopped learning you have begun to die.
+ - Bill Clinton is a man who thinks international affairs means dating a girl from out of town.
+ - Probably what pushed the Russians over the edge was SDI. They realized they couldn’t beat us.
+ - Success will ruin your life.
+ - The first rumors about Zenith came from the Czechoslovakians.
+ - Life was such a strange thing, so permanent when one had it, so fleeting when it was lost- and those who lost it could never tell you what it was like, could they?
+ - Remember, for every shot you fire, someone, somewhere, is making money.
+ - I just finished reading the Koran, and there’s nothing in there I didn’t hear in Sunday school.
+ - Civilians listened to officers, which said a lot about the intelligence of civilians.
+ - Things rarely happen for a single reason. Even the cleverest and most skilled manipulators recognize that their real art lies in making use of that which they cannot predict.
+ - Every novel begins with the speculative question, What if “X” happened? That’s how you start.
+ - Liberation and equal-rights issues notwithstanding, it was a man’s job to make a woman feel cherished and respected.
+ - In the Soviet Union it was illegal to take a photograph of a train station. Look what happened to them. They tried to classify everything.
+ - Wars are begun by frightened men.
+ - I don’t discuss works in progress...
+ - Of all human lamentations, without doubt, the most common is if only I had known. But we can’t know, and so days of death and fire so often begin no differently than those of love and warmth.
+ - A lawyer is just like an attack dog, only without a conscience.
+ - I haven’t got any fan mail from Osama bin Laden. I have no reason to believe he reads my stuff I’ll never decide for commercial reasons to put something in that endangers our national security. You just can’t do that.
+ - It’s not right to say that our loss in Vietnam turned out to be a gain. But lessons were learned. And they were the right lessons.
+ - The human condition today is better than it’s ever been, and technology is one of the reasons for that.
+ - There used to be this country called the Soviet Union; it’s not there anymore. Our technology was better than theirs.
+ - Ice hockey is the closest thing to religion permitted by the Soviet Union.
+ - Courage is being the only only one who knows how terrified you are.
+ - One thing about flying that he never got used to was that no matter how awful the weather was on the ground, if you flew high enough you could always find the sun.
+ - She didn’t strike me as a “crossword in ink” kind of girl.
+ - People live longer today than they ever have. They live happier lives, have more knowledge, more information. All this is the result of communications technology. How is any of that bad?
+ - Privacy and loneliness were the traditional luxuries accorded to a skipper.
+ - Most things in here don’t react well to bullets.
+ - Wars are begun by frightened men. They fear war, but more than that, they fear what will happen if they don’t start one or take equivalent action, I suppose.
+ - No matter what you or anyone else does, there will be someone who says that there’s something bad about it.
+ - The smaller the mind, the greater the ego.
+ - People, I am actually fairly smart. Why has this not occurred to anyone? The information is all out there, if you go looking for it, and the classified stuff just comes from analyzing the unclassified stuff and connecting the dots...
+ - The only person who has artistic control is the director, and ‘director’ is how you spell God in Hollywood.
+ - There are only two ways we can be beaten: we die or we give up. And we’re not giving up.
+ - In battle, you forgive a man anything except an unwillingness to take risks. Sometimes you have to put it on the line.
+ - To Ronald Wilson Regan, The Fortieth President of The United States: The Man Who Won The War.
+ - Fighting wars is not so much about killing people as it is about finding things out. The more you know, the more likely you are to win a battle.
+ - Even true believers had consciences, Too bad.
+ - All field agents have some cowboy in them – even the ones from New York.
+ - I understand why we do that now. It’s a help, not a threat. It’s something to remind you how important words are. Ideas are important. Principles are important. Words are important. Your word is the most important of all. Your word is who you are.
+ - The point of life was to press on, to do the best you can, to make the world a better place.
+ - There are two kinds of people: the ones who need to be told and the ones who figure it out all by themselves.
+ - Man is a creature of hope and invention, both of which belie the idea that things cannot be changed.
+ - I’ve been telling people for 12 years that if you want to get a nuclear device into the United States, just bring it through the port of Miami disguised as cocaine.
+ - Colleges typically did not tell you that ninety percent of your education came after you hung the parchment on the wall. People might ask for a rebate.
+ - Success is a finished book, a stack of pages each of which is filled with words. If you reach that point, you have won a victory over yourself no less impressive than sailing single-handed around the world.
+ - I think it’s an intellectual duty for a person who lives in a free society to read material not only with which you agree, but with which you disagree. Because every so often somebody you think is wrong will actually turn out to be right.
+ - The difference between me and you is that I do good fiction.
+ - I was one of the first generations to watch television. TV exposes people to news, to information, to knowledge, to entertainment. How is it bad?
+ - Learn to write the same way you learn to play golf. You do it and keep doing it until you get it right.
+ - The KGB still killed people, the KGB would not execute its last prisoner until the final days of its existence in 1991, but by the eighties a termination required paperwork and signatures and a post-action review.
+
+95 quotes

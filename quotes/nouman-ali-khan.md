@@ -1,0 +1,56 @@
+ - When you find yourself in a position to help someone, be happy because Allah is answering that person’s prayer through you.
+ - The real Da’wah to Islam is the character of a Muslim.
+ - If someone corrects you, and you feel offended, then YOU have an EGO problem.
+ - When you’re going through something hard and you start wondering where Allah is, just remember, the Teacher is always quiet during a test.
+ - Guilt is a gift from Allah warning you that what you are doing is violating your soul.
+ - Regret is a form of punishment itself.
+ - Sabr is not remaining quiet and allowing anger to build up inside you. Sabr is to talk about what’s bothering you without losing control of your emotions.
+ - Allah says Jannah is awesome, imagine how awesome that is when the All-Knowing is calling it awesome.
+ - People have no idea how true the promise of Allah is. Put your trust in Allah, and He will see you through.
+ - You and I are not Muslim, because we are born in a Muslim family. You and I are not Muslim, because you read a book about Islam, or saw a Youtube video and decided to become Muslim. We are Muslim, because Allah chose us. Allah chose us.
+ - Your relationship with Allah, depends on the heart being clean.
+ - If we show Allah just a little bit of gratitude, He tells us, ‘I will increase you, and increase you, and increase you, I swear to it. If you could only show Me the least bit of gratitude.’
+ - If your parents are alive, be grateful at the opportunity to earn Jannah by serving them.
+ - I should be grateful for the tough times because Allah chose me, thought I was good enough to go through it.
+ - If shaytan has entered into your heart – evil will look beautiful to you and good will seem tiring and exhausting.
+ - Your sin is not greater than God’s mercy.
+ - You can’t change someone’s behaviour, all you can do is remind them, and hope that Allah will change their heart.
+ - You can’t just pretend that the things you watch, and the things you hear, and the places you go will not have an impact on your character. They will.
+ - Filthy language is used by people who don’t have the maturity or intelligence to express themselves with better words.
+ - Every Hour has its own value. Every minute is precious. Every second is irreplaceable. Thank Allah for the time you have, be it little. If you thank Allah for something, He will surely increase it in its blessings.
+ - Islam is not a set of rules. It’s a way of seeing life and the world.
+ - If you have friends or family who are not practicing, give them your company and not your judgment. They need your patience and your love. Allah is sufficient for judgment and He subhanahu wa ta’ala is a perfect Judge. We are not.
+ - People can put you down, and they will but Allah will never abandon you, so long as you don’t.
+ - Not letting our mood affect the way we treat people is a forgotten sunnah.
+ - When Allah grants us the sense to ask Him for forgiveness, then He has granted us a huge favor. It’s a sign that He wants to forgive us.
+ - When you’re not patient, you start complaining. And the fact that you’re complaining is a sign that you’re not grateful.
+ - Our religion doesn’t demand perfection but instead a manageable strive to better ourselves.
+ - Forgiving someone isn’t just about doing good to another. It’s also about healing a scar in your own heart.
+ - Allah will intervene into our emotional states. He can give you tranquillity again; whether it’s anxiety, fear, grief, anger – whatever emotion, whatever thing that’s happened that has left you scared, Allah can remove that scar entirely.
+ - There is nothing wrong with having a good job, there is nothing wrong with having a nice house, there is nothing wrong with that. There is something wrong when that is your goal.
+ - Every relationship has tough days. Don’t let the grudge last. Be the first to try to make things right and stop waiting for an apology.
+ - Do not force the religion on your family. Show them the beauty of the Religion through your own practice.
+ - When someone isn’t smart enough to express their frustration, they use dirty words. Those are words that describe a lack of intelligence. Smart people don’t use those kind of dirty words, because they find it an insult to their intelligence.
+ - The Heart is like a fuel tank, that you always have to keep filling up with Imaan.
+ - There’s a battle going on inside you in Ramadan, and for 30 days Allah gives you the power to win.
+ - If you believe in justice, surely you believe in the hereafter, because this world is not just.
+ - Find better company, find company of people better than yourself so you be surrounded with those best in character and so you may learn something.
+ - I look back and half of Ramadan is over in the blink of an eye. Before I know I’ll be saying that about my entire life.
+ - Low self esteem is rooted in many things. One of them is not spending time to appreciate the gifts we’ve been given.
+ - Just because you’re a Believer, doesn’t mean your safe from the Hell-fire.
+ - The hypocrite takes good advice as an insult.
+ - We live in a society where we wake up our kids for school but not Fajr.
+ - Talk with your daughters, Play with your sons. You need to be a better friend to them than anyone else. This society offers lots of evil friends. Before they make those kinds of friends, they need to find their best friend in you.
+ - Allah created the bonds of family, so Who are you to cut bonds that Allah has created.
+ - People of dua are optimistic by definition. They know that dua and thoughts like ‘unlikely’ or ‘impossible’ don’t coexist.
+ - You train your heart to control your body. That’s what you do when you fast.
+ - For those of you that use YOLO to justify sin: YOLO, you only live once, but then you burn in hell forever.
+ - The most important investment of our time is in our people and in our youth.
+ - Forget bad deeds, even the good we do are full of mistakes.
+ - Spirituality is impacted not only by remembrance but by diet, stress, sleeping and eating habits among other things. Take care of yourself.
+ - Self restraint in speech, food, entertainment and vanity are the most essential fundamental of spiritual growth.
+ - Religion becomes a hollow shell of its former self when ritual remains and thoughtful reflection disappears.
+ - I’m grateful for believing in a religion that can naturally adapt to changing times yet uphold timeless values and principles.
+ - If doctors are paid the same salary as bus drivers, community would not be crazy about making their children doctors.
+
+54 quotes

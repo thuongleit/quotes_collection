@@ -1,0 +1,98 @@
+ - It has always been forever, for me, Sassenach.
+ - Hodie mihi cras tibi, said the inscription. Sic transit gloria mundi. My turn today, yours tomorrow. And thus passes away the glory of the world.
+ - Ye are Blood of my Blood, and Bone of my Bone, I give ye my Body, that we Two might be One. I give ye my Spirit, ’til our Life shall be Done.
+ - Lord, ye gave me a rare woman, and God! I loved her well.
+ - It was a beautiful bright autumn day, with air like cider and a sky so blue you could drown in it.
+ - I work late at night. I’m awake and nobody bothers me. It’s quiet and things come and talk to me in the silence.
+ - What underlies great science is what underlies great art, whether it is visual or written, and that is the ability to distinguish patterns out of chaos.
+ - I know why the Jews and Muslims have nine hundred names for God; one small word is not enough for love.
+ - Man’s sense of Morality tends to decrease as his Power increases.
+ - You are mine, always, if ye will it or no, if ye want me or nay. Mine, and I willna let ye go.
+ - Your face is my heart Sassenach, and the love of you is my soul.
+ - For where all love is, the speaking is unnecessary.
+ - All I want, is for you to love me. Not because of what I can do or what I look like, or because I love you – just because I am.
+ - This is our time. Until that time stops – for one of us, for both – it is our time. Now. Will you waste it, because you are afraid?
+ - I can bear pain myself, he said softly, but I couldna bear yours. That would take more strength than I have.
+ - While the Lord might insist that vengeance was His, no male Highlander of my acquaintance had ever thought it right that the Lord should be left to handle such things without assistance.
+ - Knowing that everything is possible suddenly nothing is necessary.
+ - We have nothing now between us, save – respect, perhaps. And I think that respect has maybe room for secrets, but not for lies.
+ - I stood still, vision blurring, and in that moment, I heard my heart break. It was a small, clean sound, like the snapping of a flower’s stem.
+ - And if Time is anything akin to God, I suppose that Memory must be the Devil.
+ - If I die before I say ‘I love you’ it’s because I didn’t have the time.
+ - If she was broken, she would slash him with her jagged edges, reckless as a drunkard with a shattered bottle.
+ - Your face is my heart.
+ - He reached forward then took me in his arms, held me close for a moment, the breath of snow and ashes cold around us. Then he kissed me, released me, and I took a deep breath of cold air, harsh with the scent of burning.
+ - Highlanders make the truest friends-if only because they make the worst enemies.
+ - Home is the place where they have to take you in.
+ - When you’re reading, you’re not where you are; you’re in the book. By the same token, I can write anywhere.
+ - We are bound, you and I, and nothing on this earth shall part me from you.
+ - Hard to believe lightning can strike twice, but it surely did. The moment Caitriona Balfe came on screen, I sat up straight and said, ‘There she is!’ She and Sam Heughan absolutely lit up the screen with fireworks.
+ - Sometimes our best action result in things that are most regrettable.
+ - There were moments, of course. Those small spaces in time, too soon gone, when everything seems to stand still, and existence is balanced on a perfect point, like the moment of change between the dark and the light, and when both and neither surround you.
+ - Gentle he would be, denied he would not.
+ - Then let amourous kisses dwell On our lips, begin and tell A Thousand and a Hundred score A Hundred and a Thousand more.
+ - Don’t be afraid. There’s the two of us now.
+ - One dictum I had learned on the battlefields of France in a far distant war: You cannot save the world, but you might save the man in front of you, if you work fast enough.
+ - Damn right I begrudge! I grudge every memory of yours that doesna hold me, and every tear ye’ve shed for another, and every second you’ve spent in another man’s bed!
+ - Tell him I hate him to his guts and the marrow of his bones!
+ - But a man is not forgotten, as long as there are two people left under the sky. One, to tell the story; the other, to hear it.
+ - I work on multiple projects at a time because it keeps me from getting writer’s block.
+ - And I mean to hear ye groan like that again. And to moan and sob, even though you dinna wish to, for ye canna help it. I mean to make you sigh as though your heart would break, and scream with the wanting, and at last to cry out in my arms, and I shall know that I’ve served ye well.
+ - There comes a turning point in intense physical struggle where one abandons oneself to a profligate usage of strength and bodily resource, ignoring the costs until the struggle is over. Women find this point in childbirth; men in battle.
+ - An Englishman thinks a hundred miles is a long way; and American thinks a hundred years is a long time.
+ - Are some people destined for a great fate, or to do great things? Or is it only that they’re born somehow with that great passion – and if they find themselves in the right circumstances, then things happen? It’s the sort of thing you wonder...
+ - No wonder he was so good with horses, I thought blearily, feeling his fingers rubbing gently behind my ears, listening to the soothing, incomprehensible speech. If I were a horse, I’d let him ride me anywhere.
+ - If I find I need guidance, I’ll ask.
+ - D’ye ken that the only time I am without pain is in your bed, Sassenach? When I take ye, when I lie in your arms-my wounds are healed, then, my scars forgotten.
+ - The past is gone-the future is not come. And we are here together, you and I.
+ - Character, I think, is the single most important thing in fiction. You might read a book once for its interesting plot – but not twice.
+ - So remember it, lad. If your head thinks up mischief, your backside’s going to pay for it. Brian Fraser to young Jamie.
+ - It’s a good country for myths. Things seem to take root here.
+ - Overall, the library held a hushed exultation, as though the cherished volumes were all singing soundlessly within their covers.
+ - He touched the rough crucifix that lay against his chest and whispered to the moving air, “Lord, that she might be safe, she and my children.” Then turned his cheek to her reaching hand and touched her throught the veils of time.
+ - While ye sleep in my arms, I can say things to ye that would be daft and silly waking, and your dreams will know the truth of them.
+ - When God closes a door, he opens a window. Yeah. The problem was that this particular window opened off the tenth story, and he wasn’t so sure God supplied parachutes.
+ - That’s for calling your father a fool. It may be true, but it’s disrespectful. Brian Fraser to teenage Jamie.
+ - Well, I can’t remember not being able to read. I was told I could read by myself very well at the age of three.
+ - I shook so that it was some time before I realized that he was shaking too, and for the same reason. I don’t know how long we sat there on the dusty floor, crying in each others arms with the longing of twenty years spilling down our faces.
+ - People assume that science is a very cold sort of profession, whereas writing novels is a warm and fuzzy intuitive thing. But in fact, they are not at all different.
+ - When you hold a child to your breast to nurse, the curve of the little head echoes exactly the curve of the breast it suckles, as though this new person truly mirrors the flesh from which it sprang.
+ - The colors of living things begin to fade with the last breath, and the soft, springy skin and supple muscle rot within weeks. But the bones sometimes remain, faithful echoes of the shape, to bear some last faint witness to the glory of what was.
+ - Men go where they will, they do as they must; it is not a woman’s part to bid them to stay, nor yet to reproach them for being what they are-or for not coming back.
+ - He was dead. However, his nose throbbed painfully, which he thought odd in the circumstances.
+ - The most irritating thing about cliches, I decided, was how frequently they were true.
+ - There aren’t any answers, only choices.
+ - My father liked me, when I wasna being an idiot. And he loved me, too – enough to beat the daylights out of me when I was being an idiot. Jamie Fraser.
+ - And if your life is a suitable exchange for my honor, why is my honor not a suitable exchange for your life?
+ - She sounded as though love were an unfortunate but unavoidable condition.
+ - I’m afraid that my wife picked up a number of colorful expressions from the Yanks and such, Frank offered, with a nervous smile. True, I said, gritting my teeth as I wrapped a water-soaked napkin about my hand. Men tend to be very colorful when you’re picking shrapnel out of them.
+ - I thought I could make out Jamie’s Highland screech, but that was likely imagination; they all sounded equally demented.
+ - He splayed a hand out over the photographs, trembling fingers not quite touching the shiny surface, and then he turned and leaned toward me, slowly, with the improbable grace of a tall tree falling. He buried his face in my shoulder and went very quietly and thoroughly to pieces.
+ - I gave you justice, it said, as I was taught it. And I gave you mercy, too, so far as I could. While I could not spare you pain and humiliation, I make you a gift of my own pains and humiliations, that yours might be easier to bear.
+ - Everyone can lie, young Roger, given cause enough. Even me. It’s only that it’s harder for those of us who live in glass faces; we have to think up our lies ahead of time.
+ - Not for the first time, I reflected that intimacy and romance are not synonymous.
+ - I don’t plot the books out ahead of time, I don’t plan them. I don’t begin at the beginning and end at the end. I don’t work with an outline and I don’t work in a straight line.
+ - For if you feel for me as i do for you – then I am asking you to tear out your heart and live without it.
+ - Scots have long memories, and they’re not the most forgiving of people.
+ - Healing comes from the healed; not from the physician.
+ - He shook his head, absorbed in one of his feats of memory, those brief periods of scholastic rapture where he lost touch with the world around him, absorbed completely in conjuring up knowledge from all its sources.
+ - Perhaps it was only that the sense of reaching out to something larger than yourself gives you some feeling that there is something larger – and there really has to be, because plainly you aren’t sufficient to the situation.
+ - That’s what marriage is good for; it makes a sacrament out of things ye’d otherwise have to confess. Jamie Fraser.
+ - Any piece of good music is in essence a love song.
+ - Deftly whipping a small tuning fork from his pocket, he struck it smartly against a pillar and held it next to Jamie’s left ear. Jamie rolled his eyes heavenward, but shrugged and obligingly sang a note. The little man jerked back as though he’d been shot.
+ - I didn’t want to tell the story of what makes two people come together, although that’s a theme of great power and universality. I wanted to find out what it takes for two people to stay together for fifty years – or more. I wanted to tell not the story of courtship, but the story of marriage.
+ - No wonder men got impervious to superficial pain, I thought. It came from this habit of hammering each other incessantly.
+ - I felt the tributaries of his veins, wished to enter into his bloodstream, travel there, dissolved and bodiless, to take refuge in the thick walled chambers of his heart.
+ - It was in a way a comforting idea; if there was all the time in the world, then the happenings of a given moment became less important.
+ - Through eons of living in a land so poor there was little to eat but oats, they had as usual converted necessity into a virtue, and insisted that they liked the stuff.
+ - As usual, the note occupied less than a page and included neither salutation nor closing, Uncle Hal’s opinion being that since the letter had a direction upon it, the intended recipient was obvious, the seal indicated plainly who had written it, and he did not waste his time in writing to fools.
+ - I want to hold you like a kitten in my shirt, and still I want to spread your thighs and plow ye like a rotting bull. I dinna understand myself.
+ - Lord that she might be safe. She and my children.
+ - With that height, plus a face of an ugliness so transcendant as to be grotesquely beautiful, it was obvious why she had embraced a religious life – Christ was the only man from whom she might expect embrace in return.
+ - It wasn’t a thing I had consciously missed, but having it now reminded me of the joy of it; that drowsy intimacy in which a man’s body is accessible to you as your own, the strange shapes and textures of it like a sudden extension of your own limbs.
+ - Conflict and character are the heart of good fiction, and good mystery has both of those in spades.
+ - This wife you have, Bird said at last, deeply contemplative, did you pay a great deal for her? She cost me almost everything I had, he said, with a wry tone that made the others laugh. But worth it.
+ - Torn between the impulse to stroke his head, and the urge to cave it in with a rock, I did neither.
+ - I read all the time. People ask, ‘Do you read while you work?’ And I say, ‘I better.’ I take two or three years to finish one of my enormous books, and I can’t go that long without reading.
+
+96 quotes

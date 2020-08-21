@@ -1,0 +1,30 @@
+ - I’m not aware of too many things, I know what I know, if you know what I mean.
+ - You feel like a prisoner if you don’t create. You’re jailed up inside of yourself.
+ - Philosophy is talk on a cereal box.
+ - Religion is a smile on a dog.
+ - Choke me in the shallow water before I get too deep.
+ - I hope I’m better today than I was yesterday. I don’t believe in glory days or anything like that, so I think the best is tomorrow or later this afternoon!
+ - I’m filling in all the negative spaces with positively everything.
+ - When I’m all alone, nobody else can say goodbye.
+ - There’s nothing I hate more than nothing. Nothing keeps me up at night. I toss and turn over nothing. Nothing could cause a great big fight.
+ - It’s hard to believe that you’re really here, so I just pretend that you’re not here.
+ - What I am is what I am. Are you what you are – or what?
+ - My grandmother was the greatest cook in the world. She could just go in there, the whole kitchen would look like a tornado hit it and then she’d come out with the best food. Then she’d sit at the table and she wouldn’t eat!
+ - I need to go outside. I wouldn’t say I’m an outdoors person, but I like to go outside.
+ - We were too young to know better, and none of us were very aggressive people. It would have helped a lot if just one of us had been aggressive enough to say no.
+ - A lot of the songs start with an image. I was sitting there playing the guitar and I pictured this old, dirty green car, with the window rolled down, in the hot, hot, hot Texas heat, and this beautiful woman I knew when I was a kid sitting behind the wheel, looking out at me.
+ - I’ll protect myself by making up all this crazy stuff. It’ll be like a little shell. Like an Easter egg shell that’s all decorated.
+ - If it turns out to be a hit, well, good luck dealing with fame. And if it’s not a hit and you can still survive and make music you believe in, well, then you’re truly blessed. I think that’s where we are now.
+ - You can look back at anything and wish you’d done something differently.
+ - You’re just playing, playing, playing, and then an image or something will come into your mind, and basically you’re just narrating it with music, letting it move along.
+ - When I look at my kids, and the ease with which they pick up music, I wish I had that.
+ - I was seeing people that were older who didn’t create any kind of foundation in their lives, and it scared me to death.
+ - I can make dressing – or stuffing. Y’all call it stuffing up here, we call it dressing down there. It’s really good dressing. That family recipe was passed on, and I love to make that.
+ - There’s nothing I hate more than nothing.
+ - Becoming a mom made me more contentious about expressing my true taste.
+ - My son writes songs and plays. He sings like an angel.
+ - I like Rufus Wainwright a whole lot. He makes me wanna be even more musical.
+ - But I really love music, and having a creative outlet is really the best thing you can do for yourself.
+ - She smiles at her reflection in a spoon.
+
+28 quotes

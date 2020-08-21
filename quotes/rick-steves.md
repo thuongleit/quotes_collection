@@ -1,0 +1,21 @@
+ - Be fanatically positive and militantly optimistic. If something is not to your liking, change your liking.
+ - I have a New Year’s tradition. I lay all my travel dreams on the table, sort them out, prioritize, and begin the process of turning those dreams into reality.
+ - Travel is rich with learning opportunities, and the ultimate sourvenir is a broader perspective.
+ - Fear is for people who don’t get out very much.
+ - I travel around the world in a way that tries to open my mind and give me empathy and inspire me to come home and make this world a better place.
+ - Travel like Ghandi, with simple clothes, open eyes and an uncluttered mind.
+ - It’s never too late to have a happy childhood, and age only matters if you’re a cheese.
+ - It seems that the most fearful people in our country are those who don’t travel and are metaphorically barricaded in America. If we all stayed home and built more walls and fewer bridges between us and the rest of the world, eventually we would have something to actually be fearful of.
+ - Like skiing with bent knees makes the moguls fun, you need to take risks, get out of your comfort zone, have a positive attitude, and enjoy the bumps in the road. I like to say that if things aren’t to your liking, change your liking.
+ - Self-consciousness kills communication.
+ - I shutter to think how many people are underexposed and lacking depth in this field.
+ - I have used cannabis all over the world.
+ - A society has to make a choice: tolerate alternative lifestyles or build more prisons.
+ - As a traveler, I’ve often found that the more a culture differs from my own, the more I am struck by its essential humanity.
+ - Ideally, travel broadens our perspectives personally, culturally, and politically. Suddenly, the palette with which we paint the story of our lives has more colors.
+ - Travel challenges truths that we were raised thinking were self-evident and God-given. Leaving home, we learn other people find different truths to be self-evident. We realize that it just makes sense to give everyone a little wiggle room.
+ - I believe, very strongly, that it is the responsible, adult, recreational, no apologies necessary, ‘it just makes my music more fun,’ recreational use of marijuana is a civil liberty.
+ - I would like travelers, especially American travelers, to travel in a way that broadens their perspective...
+ - I believe if you’re going to bomb someone you should know them first. It should hurt when you kill someone.
+
+19 quotes

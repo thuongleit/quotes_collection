@@ -1,0 +1,334 @@
+ - Everything happens for a reason. I’m used to it, I prepare for it. Like I say, at the end of the day, those in charge of their own destiny are going to do what’s right for them and their family.
+ - Excellence is a habit. You are what you repeatedly do.
+ - Me shooting 40% at the foul line is just God’s way to say nobody’s perfect.
+ - I really get motivated when I have doubters.
+ - I never worry about the problem. I worry about the solution.
+ - The only person who can really motivate you is you.
+ - It is not about how much money you make. The question is are you educated enough to KEEP it.
+ - The day I stopped worrying about stats is the day I started winning.
+ - I’ll beat you up right now if you want me to.
+ - For all my friends in the media who like quotes, mark this quote down. From this day on I’d like to be known as ‘The Big Aristotle’ because Aristotle once said, ‘Excellence is not a singular act; it’s a habit. You are what you repeatedly do.’
+ - I don’t ever want to grow up. I guess I’m like Peter Pan. Grown-ups have problems. I want to stay happy.
+ - Pluto is not a planet, but I am.
+ - I’m a mama’s boy above all.
+ - Win or lose, I am programmed to do more. That’s because I am the other son of Jorel – Superman.
+ - Everybody talks about being a role model. But if you look up the word ‘role’ in a dictionary, it describes playing a part. Everything I’m into, it’s real to me. There’s nothing fake about it.
+ - I told Leonard, in the immortal words of Tom Cruise in Mission Impossible 2, ‘I’m going on vacation. If I tell you where I’m going, then it won’t be a vacation.’
+ - Like my good friend Eminem the rapper says, you only get one shot.
+ - To all the young people out there who think money and fame is important: that’s only a small piece of the pie. You need an education to be totally secure in life. I feel very secure I can go get a real job now.
+ - Some things you just can’t question. Like you can’t question why two plus two is four. So don’t question it, don’t try to look it up. I don’t know who made it, all I know is it was put in my head that two plus two is four. So certain things happen. Why does it rain? Why am I so sexy? I don’t know.
+ - I’m going back to the old Shaq. I was normal last year – I was an earthling last summer. I had to go back to my alien roots.
+ - Anyone can win a slam-dunk contest. The real Superman is dead. He was assassinated by Pat Riley. I’m the Big Cactus now and ready to roll again.
+ - I’m not going to try to go out there and outdo him. I don’t have to try to outdo him, I’m Shaq.
+ - When you’re righteous, you don’t have to tell people that you’re righteous.
+ - You guys should be ashamed of yourselves. You all should be spanked for this.
+ - But, hey I did everything the right way and earned my spot in this game, nothing was given to me.
+ - I’m dominant every night. I come in every night and get beat up. I never make a face when they try to flagrant or hack-a-Shaq me, because I’m not from this planet. Earthlings don’t faze me.
+ - Excellence is not a singular act, but a habit.
+ - When you feed the big dog, it does whatever you tell him to do.
+ - One lucky shot deserves another.
+ - They shot the ball well early. What comes out of the microwave hot doesn’t always stay hot. I know, because I eat bagels in the morning.
+ - But that is the only thing that slows me down is the system. No one, two or three was big enough to slow me down, only the system. It was the system that slowed me down to make my numbers fall. Not because I am older.
+ - That’s sort of a trick question, and I don’t have a trick answer. Next question, please.
+ - I love the Miami atmosphere.
+ - We’re going to do it again next year. We’ll see you again next year. Yeah, I said it. Yeah, I said it. We will do it again next year.
+ - Talk to the guys that ain’t doing nothing, don’t talk to me. I just want eight guys out there with me who want to play.
+ - Blah, blah, blah, blah, blah, blah, bet you can’t type that.
+ - I’m like President Bush. You may not like me, you may not respect me, but you voted me in.
+ - As my great friend Aristotle said, ‘If you cannot command, you must learn to listen.’ I’m not the hierarchy here. I am a worker bee.
+ - A lot of coaches play percentages when it comes to me, but that’s just a way of saying that you can’t stop me.
+ - I think the new ball is terrible. It’s the worst decision some expert, whoever did it, made. It’s terrible. It’s like touching an exotic dancer and then going and touching a plastic blow-up doll. You know, it feels different.
+ - The two top teams with nice weather and nice people were Dallas and Miami. Of course, the Lakers wouldn’t want to trade me in the same conference, so Miami was perfect.
+ - If they want to play football, we can play football.
+ - This summer is going to be a different summer for a lot of people. Everyone is going to take care of their own business and everyone is going to do what’s best for them, including me.
+ - I’ve won at every level, except college and pro.
+ - I’m tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, wear Reebok.
+ - Since I suffered the injury on company time, why shouldn’t I also be able to get surgery and do recovery on company time?
+ - Challenge me. Treat me like a game of checkers and play me. That’s all I’m asking, just play me. Treat me like Sega and play me.
+ - A pinch is a pinch. If you pinch my right nipple, I’m going to say, ‘ouch.’ If I pinch your right nipple, you’re going to say ‘ouch.’ A foul is a foul and a flagrant is a flagrant.
+ - I’m one year older, one year sexier – one more, baby. For me, it’s all about the bigger picture. We want to win the whole thing. We’ve got to beat whoever is in our way.
+ - I wouldn’t. I would just go home. I’d fake an injury or something.
+ - That was a foul, young lady. You know that was a foul. Don’t ask dumb questions.
+ - As a basketball fan, I get sick and tired of people talking about numbers. To me, the world is getting too materialistic.
+ - I think it would be a boring game if everybody was the same, just like it would be boring if you guys asked the same dumb questions.
+ - I’m like toilet paper, toothpaste and certain amenities – I’m proven to be good. I’ve still got 5, 6, 7, 8, 9, 10 years left.
+ - I’d like to thank everyone who voted for me. And the one guy who didn’t vote for me, thank you, too.
+ - Tell Yao Ming, Ching chong-yang-wah-ah-soh.
+ - I knew I was dog meat. Luckily, I’m the high-priced dog meat that everybody wants. I’m the good-quality dog meat. I’m the Alpo of the NBA.
+ - Why did it happen? The big dog got fed. And when the big dog was fed, the little dog even got some meat in there, too. Big dog owns the domain, but the little dog can go wherever he wants.
+ - It was a cheap shot. They won the game, move on. My thing is, I don’t ask for a lot, but I demand my respect, especially from a guy like that.
+ - I’m always ready for a change. I’m Irish. I’m a leprechaun.
+ - As a military child I first learned how to deal with different types of people and how to deal with order.
+ - I’m a realist. I like to put it in business terms. I ran three different corporations my way and I was successful. But I’m an older guy who is on his way out so they brought me in as a consultant for the new, up-and-coming CEO. I’m here for him.
+ - Y’all reporters like my quotes, don’t you. Yeah, my quotes are Shaqalicious.
+ - Well, I don’t remember all the names of all the clubs we went to.
+ - I made a 1,600 minus 800 minus 200 on the SAT, so I’m very intelligent when I speak.
+ - I’m the master marketer.
+ - If you’ve got a Corvette that runs into a brick wall, you know what’s going to happen. He’s a Corvette. I’m a brick wall.
+ - You know how I be. Last week Kobe couldn’t do without me.
+ - I said what I felt, and people try to control people. But you can never control me. I’m a 31-year-old juvenile delinquent. Nobody can control me.
+ - If you’re going to hire an assassin, let him go out and kill someone. I can’t be Shaq taking six or seven shots.
+ - Somebody out there was trying to use my language and trying to speak for me. Rather than have that happen, I thought I’d do it myself. It’s a fun thing. It’s a way for fans to connect.
+ - I’m a combination of the Terminator and Bambi.
+ - There will be a report coming out, and my name will be on it.
+ - I’m playing like Eric Dampier.
+ - I’m going to be on a mission. I’ve handled my personal vendettas and handled them well. Every challenge you put in front of me, I’ve handled it, dismantled it – ate them, dropped them off in the bathroom and flushed them away.
+ - Being here feels like I’m out of prison. This is the right place, the right time, the right team.
+ - I just want everyone to know I’m suing Ruben Studdard. He had his hand on my ass and he wouldn’t let go.
+ - I don’t believe in pressure. Pressure is when you don’t know where your next meal is coming from.
+ - You gotta fight all the karate guys, and once you kill them off, now you gotta get to the ninjas. Once you get through the ninjas, now you gotta get to the showmen. Now me, I’m the showman of big men.
+ - David Stern should get with the mothers of the NBA and let the moms decide what the dress code should be. I asked my mother if I could wear a chain, and she told me yeah. So I do stuff that my parents allow me to do.
+ - Afterwards I said Chris Webber was going to leave as a free agent and Sacramento would go back to expansionism.
+ - If you take a needle and stick her in the booty and take a needle and stick me in the booty, we’re both going to say ouch.
+ - I’m not worried about facing the Sacramento Queens. Write it down. Take a picture. I’m not going to talk about this all year. When I get back, there’s going to be trouble.
+ - They are that same group, but I’ve got my own rivalristic problems. Is that a word, rivalristic? I’ve got my own rivalristic problems in the Eastern Conference.
+ - I want to go to police academy, I want to actually go out and make a couple of arrests. I want to go undercover.
+ - That has nothing to do with basketball. That’s just because I’m sexy.
+ - In the seven or eight years we were together, we were never together.
+ - I’m an unorthodox type of guy, a funny guy – at least I think I’m funny. And one of the things I like to do is come up with nicknames for myself.
+ - This is my disguise, but it doesn’t work.
+ - I take it personal when people don’t double me. It’s against my religion not to double me. It upsets me. It makes me think they’re saying to themselves I don’t have it anymore.
+ - Stay out of the gentlemen’s clubs. Get a lot of rest. Just have fun and relax and stay focused.
+ - Our offense is like the pythagorean theorem: There is no answer!
+ - How can Benedict Arnold be reliable in what he says?
+ - I had an awful first quarter but I picked it up. To all you single guys out there, it’s not how you start the date, it’s how you finish it sir. A lot of people can, you know, start the date with flowers and candy, but if you don’t finish the date – you know what I mean?
+ - A friend tweeted me with ‘The Big Freeze.’ I don’t know about that one. I’ve got to go home, play around with the kids and figure something out. I’ll have one.
+ - I don’t know how it is for you earthlings, but where I’m from, strength is mental.
+ - The stats win nothing. I’m still sexy. I’m still great.
+ - I am Superman. And the only thing that can kill Superman is Kryptonite. And Kryptonite doesn’t exist.
+ - It feels good. It’s not bad for somebody who can’t shoot.
+ - I’m a very quotatious person.
+ - If I were a painter, you’d be calling me Shaqcasso.
+ - I’m known as The Big Baryshnikov.
+ - A lot of times when I buy a lot of toys, I get a little jealous and keep one or two for myself. So I’ve got a couple of drones. I’ve got a couple of remote-control cars. I like to have fun.
+ - Can I go one day without somebody saying something negative about me?
+ - I started out as a young Ninja and killed all of the Shoguns. I am a Shogun now and I’m holding my spot. There probably won’t be another Shogun after this.
+ - I want to be known as ‘The Big Shakespeare.’ It was Shakespeare that said, ‘Some men are born great, some achieve greatness, some have greatness thrust upon them.’
+ - I’ve been 11, 12 percent body fat my whole career. But when you’ve got a big, sexy, beautiful man that’s up in the 340s, 350s, the way you guys were taught on this planet, you’re going to automatically think it’s fat.
+ - I urge all children to listen to their mothers and fathers. My mom was helping out some kids and she didn’t want to call me for all of the money; she only wanted to take care of some of the kids.
+ - I’m still the Dun Dada of all big men.
+ - I’m a season kind of guy – not the preseason but the regular season.
+ - I told my wife the other day, I’m the Halle Berry of the NBA. Everybody wants this, baby. Everybody wants me.
+ - He’s a jokester, and that’s funny, very funny. Ha-ha. Very funny.
+ - I’m very excited about my new agreement with the Heat. This contract allows me to address all of my family’s long-term financial goals while allowing the Heat the ability to acquire those players that we need to win a championship.
+ - And if the big dog ain’t me, then the house won’t get guarded period.
+ - Because I grew up with a drill sergeant in my life, I respect order and it really gave me the discipline to be a leader and not a follower. It also helped me stay out of trouble.
+ - We want to win. We want to win big. We want to win the whole thing.
+ - I think he got an incidental elbow in the face, messed up his pretty red lips a little bit. But other than that he’ll be fine.
+ - I think Bush came back because Colin Powell was there. Hey, I’m the brigadier general, baby.
+ - I don’t know. I don’t have a fax machine, so I didn’t get that message.
+ - I have orders not to come back until I’m a thousand percent.
+ - We’re just going to come out and play. We know that we’re supposed to win all the games, but if we don’t, we just have to take the next game and focus on what we did wrong in the game before and just try to do better at the next game.
+ - I’d heard stuff from out there that I was just another player, that I was too young. I wanted to show I could play with anybody.
+ - You guys make the rules up, so a foul is a foul. It doesn’t matter if a guy is bigger and stronger. It’s not my fault I ate my Frosted Flakes when I was little, and you ate Wheaties.
+ - I’m more like a senior adviser so I don’t like to come in here and try to take over. Just like your basic karate movie where the young guys come to the old guys with beards who have them do weird stuff to get to the other side. That’s who I am, the old guy with a long beard.
+ - I’m probably going to have to go with Kobester. He’s an assassin with LeBron coming right after.
+ - There was not too much to do as a kid when we arrived in Germany. Playing basketball and listening to music gave me something to do.
+ - It’s a different role for me, playing with the great Dwyane Wade.
+ - My father made me who I am. He gave me a basketball and told me to play with the ball, sleep with the ball, dream with the ball. Just don’t take it to school. I used it as a pillow, and it never gave me a stiff neck.
+ - There is nothing to say because I know everything about him. I raised him. I know what’s a charade, and I know what’s not a charade. I’ll leave it at that.
+ - I painted my toenails before Dennis Rodman. One time at training camp, I stubbed my toe and the nail came loose. My mom gave me some toenail hardener, and I painted over it. I scored 40-something points that night, so it became a ritual. Paint my toenails, score 40 points.
+ - Opinions are like belly buttons; everybody has one. I never knock a man for his opinion.
+ - I know how to turn the bad into good always.
+ - We have strict orders: If we talk about it we get fined $50,000.
+ - I’m not going to go home and drink rat urine.
+ - They say things happen in three. I won with the great Kobe, the great D-Wade and now it’s my job to win one with the great LeBron James. We have everything in place. We just got to get it done.
+ - One time, I put up 40, 50 points dunking on Shawn Bradley. After the game, he brought his family over. He was like, ‘This is my wife. She wants to take a picture.’ I’m like, ‘Nice to meet you.’ I smile into the camera, take the picture, and then feel guilty about dunking on him so many times.
+ - They say old people always come to Arizona, you know, to get recharged.
+ - It’s my job to make him look good. He’s a very good looking man, so it’s my job to keep him looking good.
+ - You know, I’m very photogenic.
+ - Like I’ve always said, what’s hot must go cold.
+ - Look up the word role in the dictionary and you’ll see it means playing a part. That’s why I call myself a real model.
+ - If you want Shaq to be Shaq, you’ve got to remember that Shaq is known for wreaking havoc offensively – 26,000-plus points without consistently making free throws. Don’t have me doing something I’m not used to doing. I ain’t used to being a pick-setter. Let me badda-bing, badda-bang.
+ - If you don’t like me, there must be something wrong with you.
+ - You always have to take care of the sisters first, so my dad would buy Barbies and stuff and I wouldn’t get anything. So I don’t want any other kid to feel like that.
+ - Kids can still call me Shaq, but adults should call me Dr. O’Neal.
+ - I think it was 89.2% cheers and 11.8% boos, but I’m used to that.
+ - He looks like a woman coach sometimes. I guess he’s just trying to get into certain people’s heads, but it won’t work with me. Like a woman who coaches and cries all the time. He can’t get in my head. He’s a crybaby.
+ - This is a tough game. There are times when you’ve got to play hurt, when you’ve got to block out the pain.
+ - I don’t really consider myself one of those superstars. I just consider myself a guy that was lucky enough to win the athletic lottery many times over.
+ - I just want to keep people entertained.
+ - I’ll take 14 out of 15 any day of the week, any week of the month, any month of the year, any year of the century. I don’t know what comes after century.
+ - I was really upset. I felt like they tried to limit me, whoever ‘they’ may be. So I just said to myself third quarter I’m going to come out and do what I do.
+ - There is no answer to the Pythagorean theorem. Well, there is an answer, but by the time you figure it out, I got 40 points, 10 rebounds and then we’re planning for the parade.
+ - I am the number one Ninja and I have killed all the Shoguns in front of me.
+ - We want you all to be in shape and look as good as me. Because I will be walking naked on the beach.
+ - If you got the game, you got the game. That’s why Tiger Woods is out there playing golf with Greg Norman.
+ - When I concentrate and focus, they always go in, so I’m gonna continue to do that, and they will go in.
+ - You’re messing up my highlights.
+ - I’m not the one buying love. He’s the one buying love.
+ - I don’t send messages, I’m not a fax machine.
+ - Sometimes I feel like the Tom Hanks character in Big. But my life is not a movie. I never have to go back to Coney Island to find the fortune-teller machine so I have to grow up again.
+ - There’s two kinds of dirty – dirty and sewer-dirty. Danny Ferry is sewer-dirty and has been ever since he was at Duke.
+ - My secret? See it, and stay focused on it.
+ - There’s no answer for my offense, just like the polythagorean theorem.
+ - Thank God I had two parents who loved me enough to stay on my case.
+ - My personal opinion is, how, if you never hung out with somebody, do you know them so well? I never hung out with that dude because the dude is a weirdo.
+ - I didn’t say anything. Got nothing to say. I’m a married man; I don’t need a relationship with another man.
+ - About strip clubs and athletes. The best way I can explain why a lot of players end up there is because it’s one of the safest places a high-profile person can spend time in a boring city.
+ - The Spurs are a great WNBA team.
+ - I look forward to making Miami a media mecca.
+ - Jealous punks can’t stop my dunks.
+ - Przybilla can’t guard me when I’m 27, 37 or 47.
+ - I’m George Bush. I’m the president.
+ - I was a medium-level juvenile delinquent from Newark who always dreamed about doing a movie. Someone said, ‘Hey, here’s $7 million, come in and do this genie movie.’ What am I going to say, no? So I did it.
+ - It’s t’ai chi every time. I’m using your positive energy, and I’m blowing off it. See, most guys can’t push, they got to lean. When they lean, I spin.
+ - I knew Rick Pitino was going to make them play that outbreak, monkey defense. He’s been doing it all his life.
+ - We know what we have to do. I know I have to get up in the morning, put my underwear on first and then put my pants on first. I don’t need people to tell me that.
+ - I don’t know their names. Their names have been erased from my memory banks. If I tried to bring ’em back, I’d get shocked.
+ - The problem with kids these days is they don’t have enough fun stuff to do. When I was stationed with my family in Germany, youth basketball programs gave me something to strive to do my best at.
+ - He’s the Italian version of my father. I don’t know if he’s Italian or not.
+ - I want to be strong, dominant. Like Wilt Chamberlain.
+ - If I get that thing down there in that area, that’s 67% lifetime. If you don’t believe me, Google it. I’m on the Internet.
+ - I’m getting older. I’m getting sexier. I’m getting meaner. I can still do what I do.
+ - If he wants to get that next contract, he’s going to have to go to the New York Athletic Club three times a day and just ride the bike.
+ - I am a tropical black man.
+ - He can play. He can shoot. He can dribble. He can pass. He’s a great player. Period. No question about it. And if anyone thinks Dirk is not a great player, I’ll punch them in their face.
+ - That is why one day I said my game will be like the Pythagorean Theorem – hard to figure out. A lot of people really don’t know the Pythagorean Theory. They don’t make them like me anymore. They don’t want to make them like that anymore.
+ - I know that this is sport first and business second, and people have to do what’s right for them.
+ - Doesn’t matter. If I would’ve had a beer before the game, I would’ve been drunk. So I don’t believe in ‘if.’
+ - Georgetown. Alonzo was the guy I always heard about. I’ve always wanted to measure myself against the best.
+ - The Big Cactus. I will stick you.
+ - Me and Penny are going to be the Kareem and Magic of the ’90s.
+ - I’m the LCL – the Last Center Left. I’ve been doing the same things for 13 years, but now they’re flopping and falling, and the refs are falling for it, too.
+ - I’m the last in the line of Russells and Chamberlains.
+ - I have never been a shooter.
+ - Finally, I have someone that’s like me. My other two pupils were the opposite sides of the moon. But this guy is on the same side of the moon, is on the same planet that I’m on.
+ - Now, the mistakes that I made with my other two sons, Penny and Kobe, I won’t make with D-Wade. We can’t let them break us up and we can’t break each other up.
+ - They want to beat the Don Dadda. It means, ‘The Man.’
+ - Incense. Books. Just weird.
+ - In junior high in Germany I fought kids all the time. I had such a bad temper, I almost got thrown out of school. A few lickings from my dad got me out of that scene. He wore me out with a paddle.
+ - He could be dominant – if he played in the WNBA.
+ - It’s pretty much the same; it’s just that Phil was very weird with his system. This is more of the traditional system.
+ - I’ve read that same formula, but as an athlete I’m classified as phenomenal. You could look it up.
+ - My sons love LeBron more than they love me. I’m just a little jealous about it.
+ - I’m a cop, and cops talk. They called me the day he did it, but did you ever hear me say anything about it? I played ball, because that’s how I am. I’m true.
+ - First person who says that to my face, I’ll punch you!
+ - I’ll hit them when it matters.
+ - He’s got a ring, so I’m taking home the trophy.
+ - I don’t get tired. I get beat up. You keep chopping on a tree, you need to give the tree some rest so the chlorophyll will fill back up and the tree gets its energy back.
+ - I blame Riley for my broken thumb, not Matt Geiger. That ain’t defense Miami is playing. That’s just chopping. I have no idea how his team gets away with it. I guess when you’ve been in the league 30 years you can do it. Respect, he gets it – he’s like John Gotti.
+ - Get away from my house. What do you want?
+ - I told our guys they must not have cable because Antoine Walker knows how to play, Derek Anderson can play, Shandon Anderson knows how to play, and Gary Payton knows how play.
+ - Shaquille O’Neal has always been one to speak the truth.
+ - Once you learn how to do something, you don’t lose it. Unless you die.
+ - If you don’t stick to simplicity, you’ll die a horrible death.
+ - I’m going to be looking to get out like Randy Moss and Terrell Owens.
+ - On paper, I think this is the best team I’ve been on.
+ - Enunciation, diction, all that stuff. None of that is in my personality.
+ - He’s the president. I’m the general. Unless I want to get impeached, I got to do what he says.
+ - I think it’s a great city. I think it’s a fabulous city. But in my young juvenile days, I was an idiot, and I bought 30 cars. And I need to drive those cars, and New York isn’t really the place you can do that.
+ - Nobody’s going to tell me how to be different, so stop asking me. Stop asking me what two-plus-two is. Everybody knows two-plus-two is five.
+ - Some of my favorite songs – and I don’t know if this is the right terminology – are white-boy classics.
+ - As a man, you got to know how to take it, so I just took it.
+ - Word has it, they think I’m an old man, and they’re not gonna double me. My message is that I’m the baddest for my age bracketest. What I mean by age bracketest is that I came in at 20, I was the baddest 20, and I’m the baddest at 35.
+ - I just said to myself, ‘Damn, I’m a great player.’
+ - Keep in mind, I’m not allowed to be tough. I’m tamed.
+ - Alvin’s the coach. We must be the Clippers. And I must be Olowokandi. Nooooo!
+ - I’ve been an athlete that’s sort of in advance; always thinking. After basketball I’d love to have my own radio show, my own TV show.
+ - I told my wife when I was rolling up, I felt like the president.
+ - I don’t see us having a problem. It’s going to be my job to manage the locker room, anyway, so it will work out.
+ - Someday I might have to put down a basketball and have a regular 9-to-5 like everybody else.
+ - Remember this-I’m going to bring a championship to Miami. I promise.
+ - I’ll just have to get it against my favorite team.
+ - Get your tickets now. Buy cable now. Get your jerseys now. Pull your boats up to the docking stations now. Bring your Sea-Doos now. If you can’t afford a Sea-Doo, get a raft.
+ - I take that as an insult, even at 36.
+ - I’m a weird big guy. Doing rapping, doing movies. Do a lot of stuff. But always do things the right way.
+ - I’m just getting better and better. It’s just like a bunch of worker bees protecting the king bee, because I’m not a queen bee. I’m a king bee.
+ - Tell them it was a foul.
+ - Being the best right now doesn’t do anything for my feathers.
+ - Obviously, Sam is the type of guy that hides behind his pen and pad. I promise you he wouldn’t say that to my face in a dark alley where it’s just me and him and no witnesses.
+ - That’s what I do. I get in and get under people’s skin and all that stuff. But you will remember me – and that’s all that matters.
+ - Kobe always tried to be a hero. But you know, as the saying goes, a hero ain’t nothing but a sandwich.
+ - I guess people think the taller you are the more dominant you have to be.
+ - I started out as a football player. I liked to inflict pain. In basketball, it was the same thing.
+ - I put a lot into it, and when I am done playing, I plan on going undercover and then being the sheriff or chief of police somewhere, either Miami or Orlando, I don’t know yet.
+ - Their unselfishness, the way they play and their poise factor. When you never panic, that’s a great sign.
+ - This really isn’t a game we really should be proud of. This game is liking taking your kids to the zoo. You’re supposed to take your kids to the zoo. You’re a father. So a team like that, we’re supposed to beat them like this.
+ - My first movie. I think I won an Oscar for this.
+ - That dude scored 8 points in the last 19 seconds, pulled out a miracle win at the Garden. He made me choke on a chicken bone that day. I’m serious.
+ - My message to little kids who aspire to be anything they want to be is to listen to their parents.
+ - I’m sort of like a specialist. I go in, do what I do and every four years, they get tired of me and I have to relocate myself.
+ - We’re the most experienced team in the league. I think we got a little too happy, running our mouths, jumping up and down, looking at the Heat dancers and all of that stuff. We had to step it up and show them what we’re all about.
+ - I’m pretty much able to play any style. I’m not here to demand 40 or 50 shots. But I would like 30.
+ - They asked me when I was out there, ‘Why do you want to be traded?’ I said me staying here is like divorcing my wife and marrying someone who looks like me. That’s backwards, man.
+ - We had more great times than bad times together, but they’ve moved on, I’ve moved on. I have a new team now and I have a new focus.
+ - Most ferocious was Kobe. Fiercest, most competitive, it was Kobe. D Wade is second after that.
+ - I knew I was going to make one. I wanted to make two, but the first one rattled in and rattled right out.
+ - Nietzsche was so intelligent and advanced. And that’s how I am. I’m the black, basketball-playing Nietzsche.
+ - It matters in a fatherly way.
+ - It’s LeBron’s team. He’s the captain. This is the time in my career where I can fit in. I’m now in the security business. My job is to protect the King, and that’s what I’m here to do.
+ - Do we play Chicago again? I going to hit Othella Harrington right in the mouth. If he didn’t have his clumsy ass on the floor, I wouldn’t have fell. How he got on the ground, I don’t know. He’s clumsy. Quote me on that. I’m going to get him.
+ - I was like, ‘Huh? You want my jersey?’
+ - The NBA is fairy tale and real life mixed together.
+ - There is nothing for me to be sour about. What you got to understand is that I’m a military man. We usually do my shift for four or five years and then you got to move on.
+ - If he were on fire, he couldn’t act as if he were burning. He can’t out-act me on the big screen.
+ - Write this: Since my boy is the coach, I’m going to try out for the Dolphins next year. Tight end.
+ - I don’t have to make a point. I’m George Bush. I’m the president. I built that arena, so I don’t have to make a point.
+ - I don’t get nervous in any situation. There’s no such thing as nerves when you’re playing games.
+ - I’ve been playing on Christmas for the last 10, 11, 12 years. So just got to get up early with the babies, and give them their toys and try to get a nap in and just come to play.
+ - I don’t believe that I personally have been changed by the money. The bad thing is people assume you’ve changed because now you have money.
+ - I’m not a young jitterbug anymore. When I was a young jitterbug, I never won. I didn’t start winning until I got older. The older I get, the wiser I get. You just have to play it smart.
+ - I was kind of hoping it was Anna Kournikova.
+ - You like that analogy? That was pretty good?
+ - I got into foul trouble, so I really kind of had to play on egg shells from there on out.
+ - Why aren’t the Nets playing in Newark?
+ - I ate too many Frosted Flakes. I don’t remember what I said last night.
+ - For once in my career, I won’t have to hold anybody’s hand and they won’t have to hold mine. I’m surrounded by veterans. We had a great battle last Thursday at HealthPoint. It was something I never had before – three, four, really great players all in one pickup game.
+ - When you flop, that’s just another message that you don’t know how to play me. Stand up and take your medicine like a man.
+ - When you’ve got a guy that’s going to look for you, you run. A lot of people think I can’t run, but my thing was I wasn’t going to be running if you’re not going to throw it. I know Nash will throw it.
+ - No one was there. Some teammates, huh? I guess they didn’t want to get their lip busted like the gentleman I busted. Sorry for that sir.
+ - I said it jokingly, so this guy was just trying to stir something up that’s not there. He’s just somebody who doesn’t have a sense of humor, like I do.
+ - But you can not compare Yao’s stats to mine. You just can’t compare it and I am playing everyone one-on-one.
+ - They won’t talk to you because I’m undercover.
+ - I think I’m one of the patches of the quilt here, myself and Dwyane.
+ - I’m the first player in history that doesn’t want to play defense and still gets in foul trouble.
+ - Now I see why everybody who plays for him doesn’t like him.
+ - Well, Doctor, I don’t have the diagnosis on that. I’ll be sure to do a physical checkup and get back to you.
+ - Being that I’m a tropical black man I don’t get to see much snow. When I see snow I go crazy. That’s why they call me Sasquatch. There’s no Sasquatch found in the snow so I had to go back to my Sasquatchian roots.
+ - I play against a front and a back every night, Ming does not have to do that, Duncan does not have to do that, Garnett doesn’t do that. I am the only one that has to do that.
+ - I got it, I dove on the floor, he dove on my head and I hit my teeth on the ground. It was just one of my police reactions to get that criminal off me.
+ - You have to foul me to stop me, period.
+ - I’m short and to the point.
+ - I don’t see anybody, in any conference, that can shut me down. Any conference, anywhere in the world.
+ - We’re focusing on the whole pie, not a slice. A slice is good, but it’s not good enough to get you fat. We’re trying to get fat.
+ - It gets bigger every time you go over. In China, there was Yao Ming stuff everywhere. I’m just fortunate to have a good-looking face to where they recognize me.
+ - No one calls me out, I’m from LSU.
+ - Everything is done out of respect, whether it’s a cheer or a boo.
+ - It means I don’t have to charter that big jet for the family.
+ - I’m like tax. You’re going to pay one way or the other.
+ - I respect the older guys.
+ - I’d shoot zero percent before I’d shoot underhanded.
+ - Now, if you’re an NBA fan, you know what Vince Carter did. I came up with a line about him: ‘Half-man, half-amazing.’
+ - Dampier is soft. Quote it, underline it, tape it and send it to him.
+ - I think I’m the only player who looks at each and every center and says to myself, ‘That’s barbecued chicken down there.’
+ - I make the game easy. Double and triple me, I’ll kick it out to you for a wide-open shot. I’ll add years to your career.
+ - Yeah, D-Wade called me up last night and said that he saw some film of me in high school and thinks that my form then was better and that I should shoot like that. I told him I’d think about it and then my pops called and said something like that so I decided to revert back and then...
+ - I don’t take anything personal. I just have a certain file in my head, so Earthlings must be careful with what they say.
+ - I came here with the perfect chemist’s perception. The formula they had was perfect and any added ingredient could make it go bad or worse.
+ - I endorse only products I actually use. Like Wheaties keeps offering me money, but I don’t eat Wheaties, so I can’t do it. Now, if Rice Krispies or Frosted Flakes offered me a deal, I’d take it right away. Apple Jacks, I’d be on the box in a heartbeat. Apple Shaqs. Yeah.
+ - I average 25 with three guys on me and they are just looking at stats I guess.
+ - The best quality about Kobe Bryant? You want me to be honest? I don’t know. I’ll tell you why. I open my arms to everybody. But he never stepped forward for the embrace. So I never really got to know him. I don’t know anything about him, and it’s kinda sad.
+ - I don’t listen to people who can’t do stuff that I do.
+ - Every team that plays us plays above their heads. That’s because of me.
+ - When I retire, I’m going after his job. If I don’t make sheriff, I’m going after his job. He’s not that good. You can quote me on that.
+ - I don’t have to shoot from more than two feet. I’m top 50. I’ve got 23,000 from where I shoot.
+ - My children, every time they ask me for something, I tell them to round their old stuff up.
+ - It’s hard to get up for a good high-school team like the Chicago Bulls.
+ - All of my projects are done right because I know the game, and I consider myself a rap expert.
+ - And I want to do it the right way, like everybody else, not just a famous figurehead that gets a job because he is a famous basketball player. I want to really learn the business.
+ - If I was able to have the game I have and shoot 80% from the line, I’d probably be an arrogant person rather than a humble one. Everything happens for a reason.
+ - I’m very educated and can give you somewhat of a vocabulary, but I don’t get to the philosophical side.
+ - Against Bradley, every time I’m trying to dunk, dunk, dunk.
+ - The only demise of Shaquille O’Neal will be his age.
+ - The East is going to be pretty easy for me. The Great Chest of the West becomes the Great Beast of the East.
+ - No matter where they put people, no matter how they try to promote people, there aren’t too many people in the game today that are on my level on and off the court.
+ - I would love an extension, who wouldn’t? If they offer me a $35 million-a-year extension, I’ll sign it right now. I won’t even read the contract. I’m just here to take care of business and I know can help give the city what it’s looking for.
+ - It’s over now. He said what he had to say, I said what I had to say. Don’t play with me. Seriously, don’t play with me.
+ - The Miami Heat has the best fans.
+ - I do what I do. Always.
+ - Flash, take the game off. I’ll go out and do the work.
+ - Once the Hack-a-Shaq works once, you know I’m going to see it again. The only thing worse for basketball than that defense is the Lack-a-Shaq offense, where I have to go to the bench because of foul trouble. There is no fun in that.
+ - My motto is very simple. Win a Ring for the King.
+
+332 quotes

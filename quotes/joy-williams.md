@@ -1,0 +1,26 @@
+ - Why does the writer write? The writer writes to serve – hopeless ly he writes in the hope that he might serve – not himself and not others, but that great cold elemental grace that knows us.
+ - The story knows itself better than the writer does at some point, knows what’s being said before the writer figures out how to say it.
+ - As you grow older, you’ll find that you enjoy talking to strangers far more than to your friends.
+ - Nothing we do is inevitable, but everything we do is irreversible.
+ - You don’t believe in Nature anymore. It’s too isolated from you. You’ve abstracted it. It’s so messy and damaged and sad. Your eyes glaze as you travel life’s highway past all the crushed animals and the Big Gulp cups.
+ - What a story is, is devious. It pretends transparency, forthrightness. It engages with ordinary people, ordinary matters, recognizable stuff. But this is all a masquerade. What good stories deal with is the horror and incomprehensibi lity of time, the dark encroachment of old catastrophes...
+ - But who knows what good might come from the least of us? From the bones of old horses is made the most beautiful Prussian Blue.
+ - One is always enthralled, I think, when a young writer you’re just beginning to read and comprehend dies.
+ - You must stop worrying about why things happen and wonder what they mean when they do.
+ - I think the writer has to be responsible to signs and dreams. If you don’t do anything with it, you lose it.
+ - Nothing the writer can do is ever enough.
+ - A writer loves the dark, loves it, but is always fumbling around in the light.
+ - Writers when they’re writing live in a spooky, clamorous silence, a state somewhat like the advanced stages of prayer but without prayer’s calming benefits.
+ - It’s become fashionable these days to say that the writer writes because he is not whole, he has a wound, he writes to heal it, but who cares if the writer is not whole; of course the writer is not whole, or even particularly well.
+ - I believe in guilt. There’s not enough guilt around these days for my taste.
+ - Of course there is nothing that cannot be done incorrectly.
+ - There is a certain type of conversation one hears only when one is drunk and it is like a dream, full of humor and threat and significance, deep significance.
+ - A writer starts out, I think, wanting to be a transfiguring agent, and ends up usually just making contact, contact with other human beings. This, unsurprisingly, is not enough.
+ - Writers are like eremites or anchorites – natural-born eremites or anchorites – who seem puzzled as to why they went up the pole or into the cave in the first place.
+ - Words at night were feral things.
+ - Good writing never soothes or comforts. It is no prescription, neither is it diversionary, although it can and should enchant while it explodes in the reader’s face.
+ - A side benefit of the new and developing technologies is that soon we won’t have to feel guilty about the suffering and denigration of the animals because we will have made them up.
+ - There is something unwholesome and destructive about the entire writing process.
+ - Many writers today are wanderers. There is not only an unhousedness in language – how to convey, to say nothing of converge – but an unhousedness of place.
+
+24 quotes

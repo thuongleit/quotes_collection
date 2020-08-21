@@ -1,0 +1,65 @@
+ - The treasures of the earth were movement, courage, laughter and love.
+ - Justice can sleep for years and awaken when it is least expected. A miracle is nothing more than dormant justice from another time arriving to compensate those it has cruelly abandoned. Whoever knows this is willing to suffer, for he knows that nothing is in vain.
+ - If it weren’t for music, I would think that love is mortal.
+ - No one ever said that you would live to see the repercussions of everything you do, or that you have guarantees, or that you are not obliged to wander in the dark, or that everything will be proved to you and neatly verified like something in science. Nothing is: at least nothing that is worthwhile.
+ - A good river is nature’s life work in song.
+ - To be mad is to feel with excruciating intensity the sadness and joy of a time which has not arrived or has already been.
+ - Words were all he knew; they possessed and overwhelmed him, as if they were a thousand white cats with whom he shared a one-room apartment.
+ - Peter Lake had no illusions about mortality. He knew that it made everyone perfectly equal, and that the treasures of the earth were movement, courage, laughter, and love. The wealthy could not buy these things. On the contrary, they were for the taking.
+ - He could say nothing. He had no right to be there, he had already been profoundly changed, he was no good at small talk, she was half naked, it was dawn and he loved her.
+ - They’re not just dreams. Not anymore, I dream more than I wake now, and, at times, I have crossed over. Can’t you see? I’ve been there.
+ - Perhaps things are most beautiful when they are not quite real; when you look upon a scene as an outsider, and come to possess it in its entirety and forever; when you live in the present with the lucidity and feeling of memory; when, for want of connection, the world deepens and becomes art.
+ - There is justice in the world, Peter Lake, but it cannot be had without mystery.
+ - It’s a defining difference, curiosity. I’ve never known a stupid person who was curious, or a curious person who was stupid.
+ - I have seen lonely people of advancing age, yet as constant as angels, keeping faith to those they loved who fell in wars that current generations, not having known them, cannot even forget. The sight of them moving hesitantly among the tablets and crosses is enough to break your heart.
+ - If nothing is random, and everything is predetermined, how can there be free will? The answer to that is simple. Nothing is predetermined; it is determined, or was determined, or will be determined.
+ - For what can be imagined more beautiful than the sight of a perfectly just city rejoicing in justice alone.
+ - There’s something about rushing water that I can watch for hours and feel as if I need to do nothing more. It’s alive in a way that’s greater than any description of it...
+ - Truth is no rounder than a horse’s eye.
+ - They gave themselves up to the stars the way swimmers can surrender to the waves, and the stars took them without resistance.
+ - As it somehow always manages before the winter solstice, but never after, the early darkness was cheerful and promising, even for those who had nothing.
+ - To see the beauty of the world is to put your hands on lines that run uninterrupted through life and through death. Touching them is an act of hope, for perhaps someone on the other side, if there is another side, is touching them, too.
+ - Mozart and Neil Diamond may have begun with the same idea, but that a work of art is more than an idea is confirmed by the difference between the ‘Soave sia il vento’ and ‘Kentucky Woman.’ We have different words for ‘art’ and ‘idea’ because they are two different things.
+ - Heavy blizzards start as a gentle and persistent snow.
+ - He moved like a dancer, which is not surprising; a horse is a beautiful animal, but it is perhaps most remarkable because it moves as if it always hears music.
+ - Well-timed silence is the most commanding expression.
+ - Because there were all kinds of hell – some were black and dirty, and some were silvery and high.
+ - It was a good speech, but the reaction was due to the fact that politics are madness, and even if one does not know it, a country in electoral season experiences flares of lunacy like the great storms that sometimes march across the golden surface of the sun.
+ - Then the bow orchestra began to play an apocalyptically beautiful canon, one of those pieces in which, surely, the composer simply transcribed what was given, and trembled in awe of the hand that was guiding him.
+ - A tranquil city of good laws, fine architecture, and clean streets is like a classroom of obedient dullards, or a field of gelded bulls – whereas a city of anarchy is a city of promise.
+ - The horse could not do without Manhattan. It drew him like a magnet, like a vacuum, like oats, or a mare, or an open, never-ending, tree-lined road.
+ - I’ve never had a cup of coffee in my life. I can’t even remain in the same room with coffee.
+ - I have been fighting over commas all my life.
+ - When faced with something I fear, I tend to eat spaghetti.
+ - And they’ll vote for me because I’m the best liar, because I do it honestly, with a certain finesse. They know that lies and truth are very close, and that something beautiful rests between.
+ - The best way to meet a woman is in an emergency situation – if you’re in a shipwreck, or you find yourself behind enemy lines, or in a flood.
+ - I saw how greatly he suffered the requirement of being clever. It separated him from his soul, and it didn’t get him anything other than a living.
+ - And if you were a spirit, and time did not bind you, and patience and love were all you knew, then there you would wait for someone to return, and the story to unfold.
+ - The voodoo priest and all his powders were as nothing compared to espresso, cappuccino, and mocha, which are stronger than all the religions of the world combined, and perhaps stronger than the human soul itself.
+ - Whatever I do I’ve always done not because I want something but to compensate for a loss, to bring about a balance, to create amends, to make things right.
+ - The streets of New York and some wards of its venerable institutions were packed with people who, despite being entirely forsaken, had episodes of glory that made the career of Alexander the Great seem like a day in the life of a file clerk.
+ - The human race is intoxicated with narrow victories, for life is a string of them like pearls that hit the floor when the rope breaks, and roll away in perfection and anarchy.
+ - As the clockwork of the millennia moved a notch in front of their eyes, it had taken their thoughts from small things and reminded them of how vulnerable they were to time.
+ - Of course, you would have to be insane to hope your child grows up to be a playwright or poet. Given the odds, you would have to be quite cavalier about your children’s future.
+ - Accident is as much a part of fiction as anything else, symbolic of the grace that, along with will, conspires to put words on the page.
+ - Writing is still my main career, but I would love, for instance, to serve in the New York State Assembly.
+ - My father ran London Films. He made films like ‘The Red Shoes,’ ‘The Third Man.’ And he had had a long career in the film business, which was bifurcated with a career in intelligence. He had to deal with gangsters, and sometimes he would take me with him. Also, I went to school with their children.
+ - From long familiarity, we know what honor is. It is what enables the individual to do right in the face of complacency and cowardice. It is what enables the soldier to die alone, the political prisoner to resist, the singer to sing her song, hardly appreciated, on a side street.
+ - I made a boy’s mistake, common enough, of thinking that real life was knowing many things and many people, living dangerously in faraway places, crossing the sea, or starting a power company on the Columbia River, a steamship line in Bolivia.
+ - He felt as if he were paying for the privilege of music with portions of his life and body. But it was well worth it.
+ - Quite possibly there’s nothing as fine as a big freight train starting across country in early summer, Hardesty thought. That’s when you learn that the tragedy of plants is that they have roots.
+ - I’m sort of murdered for selling books. The idea is, if you make money your work can’t be literary.
+ - I’ve imagined great victories, and I’ve imagined great races. The races are better.
+ - The shelf was filled with books that were hard to read, that could devastate and remake one’s soul, and that, when they were finished, had a kick like a mule.
+ - I have to confess that I have so rarely experienced triumph that I cannot claim to know it well enough to judge, but it seems to be at best a momentary joy followed instantly by sadness, and, then, of necessity, by wariness.
+ - Not born to be rich, by 1981 I had nonetheless begun to use a PC that required for its operation the absorption of several hundred pages of protocols and the placement of very large floppy disks in the freezer to fix frequent crashes.
+ - Justice came from a fight amid complexities, and required all the virtues in the world merely to be perceived.
+ - Perhaps he was a fool, but he thought that if a work were truly great you would only have to read it once and you would be stolen from yourself, desperately moved, changed forever.
+ - When you die, you know, you hear the insistent pounding that defines all things, whether of matter or energy, since there is nothing in the universe, really, but proportion.
+ - She knew words no one had ever heard of, and she used words every day that had been mainly dead or sleeping for hundreds of years.
+ - Marxists are people whose insides are torn up day after day because they want to rule the world and no one will even publish their letter to the editor.
+ - They were dancing around the fountain, arm in arm, in an old Dutch dance, their cheeks touching, their hands entwined. They had no music; they hummed. And there was no reason for them to be dancing that Peter Lake could see, except that it was an exceptionally beautiful night.
+ - Not surprisingly, he began to sing, and because no one in the world could hear him, and he sang without inhibition, he sang well.
+ - In daily life language is important, if not in itself, then as a symptom.
+
+63 quotes

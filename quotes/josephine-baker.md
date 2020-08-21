@@ -1,0 +1,35 @@
+ - To realise our dreams we must decide to wake up.
+ - You must get an education. You must go to school, and you must learn to protect yourself. And you must learn to protect yourself with the pen, and not the gun.
+ - Surely the day will come when color means nothing more than the skin tone, when religion is seen uniquely as a way to speak one’s soul; when birth places have the weight of a throw of the dice and all men are born free, when understanding breeds love and brotherhood.
+ - God dislikes evil, and no happiness can be built on hate. Love one another as brothers.
+ - All my life, I have maintained that the people of the world can learn to live together in peace if they are not brought up in prejudice.
+ - I spent 30 minutes each morning rubbing my body with half a lemon to lighten my skin.
+ - Oh, you young people act like old men. You have no fun.
+ - I think they must mix blood, otherwise the human race is bound to degenerate. Mixing blood is marvelous. It makes strong and intelligent men. It takes away tired spirits.
+ - I’m not intimidated by anyone. Everyone is made with two arms, two legs, a stomach and a head. Just think about that.
+ - I have two loves: my country and Paris.
+ - What am I most ashamed of in my life? Not keeping my promise to my sister and being too scared of America to attend her funeral.
+ - We must change the system of education and instruction. Unfortunately, history has shown us that brotherhood must be learned, when it should be natural.
+ - I believe in prayer. It’s the best way we have to draw strength from heaven.
+ - You are on the eve of a complete victory. You can’t go wrong. The world is behind you.
+ - He was my cream, and I was his coffee – And when you poured us together, it was something.
+ - I have never really been a great artist. I have been a human being that has loved art, which is not the same thing. But I have loved and believed in art and the idea of universal brotherhood so much, that I have put everything I have into them, and I have been blessed.
+ - One dance had made me the most famous colored woman in the world.
+ - The white imagination is sure something when it comes to blacks.
+ - The secret to the fountain of youth is to think youthful thoughts.
+ - A violinist had a violin, a painter his palette. All I had was myself. I was the instrument that I must care for.
+ - I was learning the importance of names – having them, making them – but at the same time I sensed the dangers. Recognition was followed by oblivion, a yawning maw whose victims disappeared without a trace.
+ - I love performing. I shall perform until the day I die.
+ - Is that what they call a vocation, what you do with joy as if you had fire in your heart, the devil in your body?
+ - When I was a child and they burned me out of my home, I was frightened and I ran away. Eventually I ran far away. It was to a place called France. Many of you have been there, and many have not. But I must tell you, ladies and gentlemen, in that country I never feared. It was like a fairyland place.
+ - We’ve got to show that blacks and whites are treated equally in the army. Otherwise, what’s the point of waging war on Hitler?
+ - I wanted to get far away from those who believed in cruelty, so then I went to France, a land of true freedom, democracy, equality and fraternity.
+ - I like Frenchmen very much, because even when they insult you they do it so nicely.
+ - The old Catholic parties hounded me with a Christian hatred from station to station, city to city, one stage to another.
+ - Art is an elastic sort of love.
+ - Since I personified the savage on the stage, I tried to be as civilized as possible in daily life.
+ - I ran away from St. Louis, and then I ran away from the United States, because of that terror of discrimination.
+ - Each time I leaped I seemed to touch the sky and when I regained earth it seemed to be mine alone.
+ - I believe if the white and colored people could get together and be let alone, they would understand each other and consequently love each other.
+
+33 quotes

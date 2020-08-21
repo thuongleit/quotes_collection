@@ -1,0 +1,25 @@
+ - We are born of risen apes, not fallen angels.
+ - Aggressiveness is the principal guarantor of survival.
+ - We were born of risen apes, not fallen angels, and the apes were armed killers besides. And so what shall we wonder at? Our murders and massacres and missiles, and our irreconcilable regiments?
+ - While we pursue the unattainable, we make impossible the realizable.
+ - Why is man man? As long as we have had minds to think with, stars to ponder upon, dreams to disturb us, curiosity to inspire us, hours free for meditation, words to place our thoughts in order, the question like a restless ghost has prowled the cellars of our consciousness.
+ - The dog barking at you from behind his master’s fence acts for a motive indistinguishable from that of his master when the fence was built.
+ - If you watch lizards and lions copulating, then you will see that in 200 million years the male has not had a single new idea.
+ - Far from the truth lay the antique assumption that man had fathered the weapon. The weapon, instead, had fathered man.
+ - For the soundest of evolutionary reasons man appears at his best when times are worst.
+ - A bird does not fly because it has wings; it has wings because it flies.
+ - There is a virtue, I must presume, in shamelessness, since by placing on parade the things one does not know, one discovers that no one else knows either.
+ - What could not be denied was that in vast segments of the animal world natural selection of the most qualified individuals took place not by competition for females but by competition for space.
+ - There is nothing so moving – not even acts of love or hate – as the discovery that one is not alone.
+ - Animal language is a contagious expression of mood effecting communication between social partners.
+ - Not in innocence, and not in Asia, was mankind born. The home of our fathers was that African highland reaching north from the Cape to the Lakes of the Nile. Here we came about-slowly, ever so slowly-on a sky-swept savannah glowing with menace.
+ - Do you care about freedom? Dreams may have inspired it, and wishes prompted it, but only war and weapons have made it yours.
+ - Human war has been the most successful of our cultural traditions.
+ - A human being is a problem in search of a solution.
+ - The hunter died when he achieved supremacy. Perhaps the death of the hunter will be the long monument to interglacial man. We denied a future to our sucessor beings.
+ - Natural selection deals ruthlessly with any population, bird or beaver, which fails to solve the problems of its environment with all those resources, learned or unlearned, which may be at its disposal.
+ - Men, unlike mockingbirds, have the capacity for systematic self-delusion. We echo each other with equal precision, equal eloquence, equal assurance.
+ - Classic is our daring, classic our cowardice. Classic is our cruelty, classic our charity.
+ - What truly leads the evolutionary procession, in other words, is behavior.
+
+23 quotes

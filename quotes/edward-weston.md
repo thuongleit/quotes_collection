@@ -1,0 +1,51 @@
+ - Why limit yourself to what your eyes see when you have an opportunity to extend your vision?
+ - Good composition is merely the strongest way of seeing.
+ - The camera sees more than the eye, so why not make use of it?
+ - To consult the rules of composition before making a picture is a little like consulting the law of gravitation before going for a walk.
+ - Dare to be irrational! – keep free from formulas, open to any fresh impulse, fluid.
+ - Clouds, torsos, shells, peppers, trees, rocks, smoke stacks, are but interdependent, interrelated parts of a whole, which is life.
+ - The camera should be used for a recording of life, for rendering the very substance and quintessence of the thing itself, whether it be polished steel or palpitating flesh.
+ - My own eyes are no more than scouts on a preliminary search, for the camera’s eye may entirely change my idea, even switch me to different subject matter. So I start out with my mind as free from image as the silver film on which I am to record, and I hope as sensitive.
+ - Photography to the amateur is recreation, to the professional it is work, and hard work too, no matter how pleasurable it my be.
+ - My work is never intellectual. I never make a negative unless emotionally moved by my subject.
+ - A lifetime can well be spent correcting and improving one’s own faults without bothering about others.
+ - Anything more than 500 yards from the car just isn’t photogenic.
+ - For photography is a way to capture the moment – not just any moment, but the important one, this one moment out of all time when your subject is revealed to the fullest – that moment of perfection which comes once and is not repeated.
+ - My true program is summed up in one word: life. I expect to photograph anything suggested by that word which appeals to me.
+ - I want the stark beauty that a lens can so exactly render presented without interference of artistic effect.
+ - When a photographer masters the tools and processes of the art, then the quality of the work is only limited by his creative vision.
+ - Photography, not soft gutless painting, is best equipped to bore into the spirit of today.
+ - If I have any ‘message’ worth giving to a beginner it is that there are no short cuts in photography.
+ - As great a picture can be made as one’s mental capacity-no greater. Art cannot be taught; it must be self-inspiration, though the imagination may be fired and the ambition and work directed by the advice and example of others.
+ - To compose a subject well means no more than to see and present it in the strongest manner possible.
+ - The great scientist dares to differ from accepted ‘facts’ – think irrationally – let the artist do likewise.
+ - Photography suits the temper of this age – of active bodies and minds. It is a perfect medium for one whose mind is teeming with ideas, imagery, for a prolific worker who would be slowed down by painting or sculpting, for one who sees quickly and acts decisively, accurately.
+ - When money enters in – then, for a price, I become a liar – and a good one I can be whether with pencil or subtle lighting or viewpoint. I hate it all, but so do I support not only my family, but my own work.
+ - It seems so utterly naive that landscape – not that of the pictorial school – is not considered of “social significance” when it has a far more important bearing on the human race of a given locale than excrescences called cities.
+ - Is love like art – something always ahead, never quite attained.
+ - I would say to any artist: Don’t be repressed in your work, dare to experiment, consider any urge, if in a new direction all the better.
+ - This then: to photograph a rock, have it look like a rock, but be more than a rock.
+ - I see no reason for recording the obvious.
+ - When subject matter is forced to fit into preconceived patterns, there can be no freshness of vision. Following rules of composition can only lead to a tedious repetition of pictorial cliches.
+ - A photograph has no value unless it looks exactly like a photograph and nothing else.
+ - My own eyes are no more than scouts on a preliminary search, or the camera’s eye may entirely change my idea.
+ - An excellent conception can be quite obscured by faulty technical execution or clarified by faultless technique.
+ - If I am interested, amazed, stimulated to work, that is sufficient reason to thank the gods, and go ahead!
+ - I am not limiting myself to theories, so I never question the rightness to my approach.
+ - People who wouldn’t think of taking a sieve to the well to draw water fail to see the folly in taking a camera to make a painting.
+ - No photographer is better than the simplest of cameras.
+ - Anything that excites me for any reason, I will photograph; not searching for unusual subject matter, but making the commonplace unusual.
+ - It’s hard not to tell the truth with a camera. Artists are particularly good at that.
+ - The photograph isolates and perpetuates a moment of time: an important and revealing moment, or an unimportant and meaningless one, depending upon the photographer’s understanding of his subject and mastery of his process.
+ - Ultimately success or failure in photographing people depends on the photographer’s ability to understand his fellow man.
+ - Modern Art is being used to index me. Surely it was a source but photographers have influenced Modern Art quite as deeply as they have been influenced, maybe more. Anyway painters don’t have a copyright on M. A. We were all born in the same upheaval.
+ - I don’t care if you make a print on a bath mat, just as long as it is a good print.
+ - I find myself every so often looking at my ground glass as though the unrecorded image might escape me!
+ - I was extravagant in the matter of cameras – anything photographic – I had to have the best. But that was to further my work. In most things I have gone along with the plainest – or without.
+ - I always work better when I do not reason, when no question of right or wrong enter in,-when my pulse quickens to the form before me without hesitation nor calculation.
+ - Results alone should be appraised; the way in which these are achieved is of importance only to the maker.
+ - Restricting too personal, and therefore prejudiced, interpretation leads to revolution – the fusion of an inner and outer reality derived from the wholeness of life – sublimating things seen into things known.
+ - Art is based on order. The world is full of ‘sloppy Bohemians’ and their work betrays them.
+ - Since the recording process is instantaneous, and the nature of the image such that it cannot survive corrective handwork, it is obvious that the finished print must be created in full before the film is exposed.
+
+49 quotes

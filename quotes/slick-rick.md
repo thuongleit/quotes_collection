@@ -1,0 +1,26 @@
+ - We need realism to deal with reality.
+ - Ricky Ricky Ricky, can’t you see? Somehow your words just hypnotize me.
+ - Wassup dear? Sup babe? What street you by? On 5th Bout to hit the West Side High.
+ - There is not enough high intellect to be catered to and when most people think of Hiphop they think of low intellect.
+ - Treat ’em like a prostitute, don’t treat ’em well until your sure of the scoop.
+ - We might be workers, but we are not happy go-lucky jungle bunnies.
+ - She takes off your drawers and works you over, she calls you Twinkles and you call her Rover.
+ - That song is a story that shows how easily you could get slipped into being labeled as the bad guy, even though what you really trying to do is tell the bad guy to leave you alone.
+ - Take off your rubber and there’s one more inside her, it’s not yours, who can it be?
+ - Hiphop hasn’t had stages of growth through its 30 years of existence.
+ - I think that Hiphop should be a pulpit for the people.
+ - You commit a felony, it does not matter who you are, you could be deported.
+ - I was never a rah-rah person. I never sold drugs or did anything crazy.
+ - Ran out of bullets and still had static, grabbed a pregnant lady and out the automatic. Pointed at her head and said the gun was full of lead, he told the cops, back off or honey here’s dead.
+ - While Dawn worked two jobs to meet ends, her son was busy cutting school and hanging with his friends.
+ - I wish I could see outta two eyes.
+ - I like the black and white movies on AMC.
+ - I love eggs fried over medium.
+ - People think that I’m conceited, and I’m not a nice person.
+ - Nobody thought about having more money than you could ever spend.
+ - When I was little, I always used to like to tell stories cuz it was entertaining to people.
+ - I kicked down doors to show that Hiphop has matured. And it may be a little controversial.
+ - I never really went to any concerts that I wasn’t in.
+ - Hiphop has remained in an infantile stage and has not been allowed to grow.
+
+24 quotes

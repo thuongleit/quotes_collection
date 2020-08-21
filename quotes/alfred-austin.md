@@ -1,0 +1,29 @@
+ - He is dead already who doth not feel Life is worth living still.
+ - Thought, stumbling, plods Past fallen temples, vanished gods, Altars unincensed, fanes undecked, Eternal systems flown or wrecked; Through trackless centuries that grant To the poor trudge refreshment scant, Age after age, pants on to find A melting mirage of the mind.
+ - We are all alike, and we love to keep passion aglow at our feet, Like one that sitteth in shade and complacently smiles at the heat.
+ - In vain would science scan and trace Firmly her aspect. All the while, There gleams upon her far-off face A vague unfathomable smile.
+ - Tis true among fields and woods I sing, Aloof from cities – that my poor strains Were born, like the simple flowers you bring, In English meadows and English lanes.
+ - The bright incarnate spirit of the Morn.
+ - Faded smiles oft linger in the face, While grief’s first flakes fall silent on the heart!
+ - When held up to the window pane, What fixed my baby stare? The glory of the glittering rain, And newness everywhere.
+ - Falling stars are high examples sent To warn, not lure. Gross fancy says they are Substantial meteors; but that is not so. They are the merest phantasies of Night, When she’s asleep, and, dimly visited By past effects, she dreams of Lucifer Hurled out of Heaven.
+ - If Nature built by rule and square, Than man what wiser would she be? What wins us is her careless care, And sweet unpunctuality.
+ - So, timely you came, and well you chose, You came when most needed, my winter rose. From the snow I pluck you, and fondly press Your leaves ’twixt the leaves of my leaflessness.
+ - Though my verse but roam the air And murmur in the trees, You may discern a purpose there, As in music of the bees.
+ - A garden that one makes oneself becomes associated with one’s personal history and that of one’s friends, interwoven with one’s tastes, preferences and character and constitutes a sort of unwritten autobiography.
+ - Where has thou been all the dumb winter days When neither sunlight was nor smile of flowers, Neither life, nor love, nor frolic, Only expanse melancholic, With never a note of thy exhilarating lays?
+ - There is no gardening without humility.
+ - From sunny woof and cloudy weft Fell rain in sheets; so, to myself I hummed these hazard rhymes, and left The learned volume on the shelf.
+ - Life seems like a haunted wood, where we tremble and crouch and cry.
+ - Doth Nature draw me, ’tis because, Unto my seeming, there doth lurk A lawlessness about her laws, More mood than purpose in her work.
+ - No one can rightly call his garden his own unless he himself made it.
+ - My virgin sense of sound was steeped In the music of young streams; And roses through the casement peeped, And scented all my dreams.
+ - Imagination in poetry, as distinguished from mere fancy is the transfiguring of the real or actual to the ideal.
+ - Have you never, when waves were breaking, watched children at sport on the beach, With their little feet tempting the foam-fringe, till with stronger and further reach Than they dreamed of, a billow comes bursting, how they turn and scamper and screech!
+ - No verse which is unmusical or obscure can be regarded as poetry whatever other qualities it may possess.
+ - In my song you catch at times Note sweeter far than mine, And in the tangle of my rhymes Can scent the eglantine.
+ - Through the dripping weeks that follow One another slow, and soak Summer’s extinguished fire and autumn’s drifting smoke.
+ - Perhaps a maiden’s bashfulness is more A matron’s lesson than our lips aver.
+ - Show me your garden and I shall tell you what you are.
+
+27 quotes

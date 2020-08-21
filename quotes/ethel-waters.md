@@ -1,0 +1,67 @@
+ - I am somebody cause God don’t make no junk.
+ - We are all gifted. That is our inheritance.
+ - I had a probing mind and an elephant memory.
+ - Many people know how to criticize, but few know how to praise.
+ - I never felt I belonged. I was always an outsider.
+ - Today or any day that phone may ring and bring good news.
+ - What broke Mom’s heart was realizing that her children knew nothing and cared nothing about the better side of life.
+ - Though I was excited about the Sojourner Truth play, it was not reassuring to think that my entire future might depend on the success of that one show.
+ - Mom never quit on me. My only regret is that she didn’t live long enough to share some of the money and comforts my work in show business has brought me.
+ - Only those who are being burned know what fire is like.
+ - Nothing can beat the smell of dew and flowers and the odor that comes out of the earth when the sun goes down.
+ - The big compliment came from the beer drinkers who didn’t know me. They wouldn’t drink or move when I sang. If they had their glasses in mid-air, the glasses wouldn’t come down.
+ - I’m not afraid to die. I’m looking forward to it. I know the Lord has His arms wrapped around this big sparrow.
+ - In her whole life Mom never earned more than five or six dollars a week. Being without a husband, it was hard for her to find any place at all for us to live.
+ - When you dominate other people’s emotions, the time has to come when you will have to pay, and heavily, for that privilege.
+ - Twenty-five years is a long time for a girl to live out of a trunk, and after looking over a few houses, I fell in love with one in Southwest Los Angeles.
+ - I learned early in life not to judge others. We outcasts are very happy and content to leave that job to our social superiors.
+ - There’s no hypocrisy in Hell’s Kitchen.
+ - I know the most terrible thing that can happen to a woman. That is the gang-up. Men put you to sleep with their drops and one man after another goes in and takes you.
+ - It has been an ache and a joy both to look over this big shoulder of mine at all my yesterdays.
+ - Whenever I write for hotel reservations, I always enclose a set of rules I have made for the hotels.
+ - We miss a lot in life because we don’t know when to quit, what to leave out.
+ - Asking what I considered an impossible salary when I didn’t want to work for someone has boosted my pay again and again.
+ - Mom was the greatest influence of my childhood. She wanted to save me from the vice, lust, and drinking that was all about me.
+ - I want affection and tenderness desperately, but there’s something in me that prevents me from handing it out.
+ - My whole family could sing. My family harmonized without any instruments to accompany them.
+ - I don’t care to dress up except when it is necessary or good for my business.
+ - I have no acting technique I act instinctively. That’s why I can’t play any role that isn’t based on something in my life.
+ - We never had a bathtub. Mom would bathe me in the wooden or tin washtub in the kitchen, or in a big lard can.
+ - The greatest acts in colored show business had long made Harlem their home and favorite stamping ground.
+ - I could depend a lot on my shaking, though I never shimmied vulgarly and only to express myself.
+ - All the men in my life have been two things: an epic and an epidemic.
+ - There was one emotional outlet my people always had when they had the blues. That was singing.
+ - Though I was a Catholic, I recognized that Protestant churches had something.
+ - After years in white theaters I dreaded working in colored houses. The noise, the stomping, whistling, and cheering that hadn’t annoyed me when I was young was now something I dreaded.
+ - I was born out of wedlock. Nobody brought me up.
+ - There had been lots of crises in my life. And there was plenty of spunk and battle cry still left in me.
+ - I have reason to be shy. I’ve been hurt plenty.
+ - The white audiences thought I was white, my features being what they are, and at every performance I’d have to take off my gloves to prove I was a spade.
+ - My aunts lived on liquor and seldom felt like eating much. I don’t know what’s wrong about a kid stealing when he’s hungry.
+ - I am an isolationist.
+ - If whites bored me, it was because they bored themselves. They seemed to get little fun out of life and were desperately lonely.
+ - Somehow, the things my mother wanted to do, the release in evangelism she sought with such frenzy, were transferred to me.
+ - When I first went on the stage I was 17 and under the legal age for performers.
+ - All my life I’ve been prejudiced against wealthy people.
+ - You are a person of the greatest importance when you are a mother of the family.
+ - If I wanted pity, I got it because I’m illegitimate. And when I didn’t want it I was mean and nasty.
+ - I found that a couple of bottles of beer would give me a lift, but the third bottle would sober me up.
+ - There is a great supply of amateur undertakers in show business.
+ - Today I blame only certain agents for my long eclipse as a public entertainer.
+ - I never posed as a saint. I would have slept with a man for nothing if I liked him well enough.
+ - We show girls were forced to live in whorehouses in each town, no other accommodations being available.
+ - New York is only 97 miles from Philadelphia but was the Big Time as no other American city has ever been.
+ - I had always loved John Ford’s pictures. And I came to love him, too, but I was frightened to death working for him. He used the shock treatment while directing me.
+ - I wondered what I would do if I didn’t have my God to turn to and be able to read the Book He had divinely inspired.
+ - I have always been psychic. The walls of any room I walk into talk to me.
+ - I’ve never been able to feel that there is anything undignified about making your living by the sweat of your brow.
+ - I dressed plain, but my partners were always spending more money on clothes than I could afford.
+ - I never accepted the idea that I was all through. I guess no person who has once been a star can do that, ever.
+ - What impressed me most about New York were its huge apartment houses.
+ - I wanted to be with the kind of people I’d grown up with, but you can’t go back to them and be one of them again, no matter how hard you try.
+ - Whenever I played Columbus, Ohio, I dropped in to see my close friend, a medium who had mysterious powers. Her Indian guide was Mohawk.
+ - I could always open shows, perform through the middle, and close shows.
+ - Basically there is no difference between whites and blacks, browns and yellows. I decided to think no more of people as Northerners and Southerners.
+ - When I act I try to express the suffering or joy I’ve known during my lifetime.
+
+65 quotes

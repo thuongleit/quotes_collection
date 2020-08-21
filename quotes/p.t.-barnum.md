@@ -1,0 +1,72 @@
+ - The noblest art is that of making others happy.
+ - Fortune always favors the brave, and never helps a man who does not help himself.
+ - Literature is one of the most interesting and significant expressions of humanity.
+ - I don’t care what the newspapers say about me as long as they spell my name right.
+ - If I shoot at the sun, I may hit a star.
+ - To forgive heals the wound, to forget heals the scar.
+ - A salary was not sufficient for me.
+ - The best kind of charity is to help those who are willing to help themselves.
+ - Your success depends on what you do yourself, with your own means.
+ - Without publicity a terrible thing happens: nothing.
+ - Nothing draws a crowd quite like a crowd.
+ - If you hesitate, some bolder hand will stretch out before you and get the prize.
+ - Whatever you do, do it ardently.
+ - Energy and patience in business are two indispensable elements of success.
+ - The foundation of success in life is good health: that is the substratum fortune; it is also the basis of happiness. A person cannot accumulate a fortune very well when he is sick.
+ - To me there is no picture so beautiful as smiling, bright-eyed, happy children; no music so sweet as their clear and ringing laughter.
+ - A penny here, and a dollar there, placed at interest, goes on accumulating, and in this way the desired result is attained.
+ - Many people are gullible, and we can expect this to continue.
+ - Clowns are the pegs on which the circus is hung.
+ - When a man is in the right path, he must persevere.
+ - Never attempt to catch a whale with a minnow.
+ - Every man’s occupation should be beneficial to his fellow-man as well as profitable to himself. All else is vanity and folly.
+ - Advertising is like learning – a little is a dangerous thing. If a man has not the pluck to keep on advertising, all the money he has already spent is lost.
+ - Politeness and civility are the best capital ever invested in business.
+ - Unless a man enters upon the vocation intended for him by nature, and best suited to his peculiar genius, he cannot succeed.
+ - More persons, on the whole, are humbugged by believing in nothing, than by believing too much.
+ - There is no greater picture than that of 10,000 smiling children. No brighter music than their clear-ringing laughter. That I, with my small amusements, have created such precious art is my life’s proudest achievement.
+ - There is a fool born every minute.
+ - You can fool most of the people most of the time.
+ - The bigger the humbug, the better people will like it.
+ - Money is good for nothing unless you know the value of it by experience.
+ - No man has a right to expect to succeed in life unless he understands his business, and nobody can understand his business thoroughly unless he learns it by personal application and experience.
+ - Science is the pursuit of pure truth, and the systematizing of it.
+ - Politics and government are certainly among the most important of practical human interests.
+ - You must exercise your caution in laying your plans, but be bold in carrying them out.
+ - We cannot all see alike, but we can all do good.
+ - Every crowd has a silver lining.
+ - The orthodox faith painted God as a revengeful being, and yet people talk about loving such a being.
+ - No man ever went broke overestimating the ignorance of the American public.
+ - A lovely nook of forest scenery, or a grand rock, like a beautiful woman, depends for much of its attractiveness upon the attendance sense of freedom from whatever is low; upon a sense of purity and of romance.
+ - In the United States, where we have more land than people, it is not at all difficult for persons in good health to make money.
+ - Engage in one kind of business only, and stick to it faithfully until you succeed, or until you conclude to abandon it. A constant hammering on one nail will generally drive it home at last, so that it can be clinched.
+ - Advertising is to a genuine article what manure is to land, – it largely increases the product.
+ - The common man, no matter how sharp and tough, actually enjoys having the wool pulled over his eyes, and makes it easier for the puller.
+ - No profession, trade, or calling, is overcrowded in the upper story.
+ - The plan of “counting the chickens before they are hatched” is an error of ancient date, but it does not seem to improve by age.
+ - There is no class of people in the world, who have such good memories as creditors.
+ - I think it is conceded that I generally do pretty big things as a manager, am audacious in my outlays and risks, give much for little money, and make my shows worthy the support of the moral and refined classes.
+ - True economy consists in always making the income exceed the outgo.
+ - Instead of spending money, I earned it.
+ - The truth is, the more kind and liberal a man is, the more generous will be the patronage bestowed upon him.
+ - The wonders of the ages assembled for your edification, education and enjoyment – for a price.
+ - Advertising is like learning – a little is a dangerous thing.
+ - The desire for wealth is nearly universal, and none can say it is not laudable, provided the possessor of it accepts its responsibilities, and uses it as a friend to humanity.
+ - I would rather hear the pleased laugh of a child over some feature of my exhibition than receive as I did the flattering compliments of the Prince of Wales.
+ - I never liked to work, I mean manual work.
+ - With the young man starting in business, let him understand the value of money by earning it.
+ - Those who really desire to attain an independence, have only set their minds upon it, and adopt the proper means, as they do in regard to any other object which they wish to accomplish, and the thing is easily done.
+ - But however mysterious is nature, however ignorant the doctor, however imperfect the present state of physical science, the patronage and the success of quacks and quackeries are infinitely more wonderful than those of honest and laborious men of science and their careful experiments.
+ - He who is without a newspaper is cut off from his species.
+ - The possession of a perfect knowledge of your business is an absolute necessity in order to insure success.
+ - I risked much, but I made much.
+ - Witchcraft is one of the most baseless, absurd, disgusting and silly of all the humbugs.
+ - Small does of advertising result in nothing, obviously. It’s like giving a sick person half the medicine he needs. It just causes more suffering. Give the whole dose, and the cure will be certain and decisive.
+ - If I was not a remarkably modest man, I should probably brag a little, and say that I had done what no American ever before accomplished by visiting the queen at her palace twice within eight days.
+ - In fact, as a general thing, money-getters are the benefactors of our race.
+ - Money is the excellent slave and a horrible master.
+ - There is scarcely anything that drags a person down like debt.
+ - I am indebted to the press of the United States for almost every dollar which I possess...
+ - Medicine is the means by which we poor feeble creatures try to keep from dying or aching.
+
+70 quotes

@@ -1,0 +1,37 @@
+ - Perfume follows you; it chases you and lingers behind you. It’s a reference mark. Perfume makes silence talk.
+ - Being one step ahead of a fashion trend is not so important to me. What matters is to always forge ahead.
+ - I think in the darkest moments, we need a break.
+ - How can you live the high life if you do not wear the high heels?
+ - A very young girl, myself, and my 70-year-old mother all look quite different wearing some of the same clothes from my shop. The whole secret is to know how to do it and some people never will, just like some can’t make light pastry: they are lacking in some sort of grace.
+ - Perfume is like a parenthesis, a moment of freedom, peace, love and sensuality in between the disturbances of modern living.
+ - A scarf has to be the most beautiful thing ever invented to wear! It’s a winding, a continuity, an infinity! I love things that are endless, I hate them to stop. It’s like order and disorder: I rather love disorder and things that move, it’s a state where one gets more things done!
+ - I love to leave, to be ready-for, to be on the run! That’s my boyish side, it’s the pant’s me! Pants which allow for the attitudes, gestures and movements of a man but that are still female in taste and free enough so that I can slip my hands inside!
+ - You have to be luxurious nude. It’s difficult to move in the nude in front of a mirror. It’s much easier to move when you’re dressed. But if you can walk around in the nude easily in front of your man, if you can be luxurious in the nude, then you’ve really got it.
+ - I hate the word feminine! I mean, there is a woman and a man and when I say “woman” it suggests all that is radiant, tender, fascinating, gentle, demoniac, exaggerated! Feminine makes me think of somebody who is spindly and over-sweet: I don’t like that!
+ - Everything I do is really an expression of myself, through colors and shapes and, at the same time, I try to explain what I feel not only as a creator but also as a woman. I cannot separate one from the other.
+ - I always have a lot of vents and slits in the clothes I design, even inside the pockets so that I can slip my hands inside my clothes and touch my skin. I want to be able to feel my body naked inside my clothes.
+ - My breakfast is very important.
+ - I love flinging everything I buy behind me onto the back-seat of the car: it’s always full of packages when I travel, when I leap in my car!
+ - I don’t like women who are multiform, who wear many different shapes. Women who retain a unique shape are usually unique people.
+ - The essence of seduction for me in a man, although it stems from his rough, almost rough-neck looks, still contains something of the woman: he must be seductive and intelligent.
+ - People said making clothes inside out was not proper. I disagreed, because clothes that are inside out are as beautiful as a cathedral.
+ - I love chocolate. Black chocolate with marshmallow inside, caramel inside. If I could only have two foods, I’d take some fantastic chocolate. And some terrible chocolate. I love the Clark Bar.
+ - First I made a dress because I was pregnant and I wanted to be the most beautiful pregnant woman. Then I made a sweater because I wanted to have one that wasn’t like anyone else’s.
+ - Even if I’m in Japan and I don’t speak Japanese and the woman facing me doesn’t speak French but she’s dressed in Rykiel, and she recognizes me, then we have a common language right away.
+ - It’s useless to send models out on the runway to cry.
+ - At hotels, you are an actress. Absolutely. You can do what you want. Go where you want. I love my home too. But I love to arrive in a hotel. They have books, chocolate, food. I put things in the little refrigerator.
+ - My shows are about the complete woman who swallows it all. It’s a question of survival.
+ - The key to my collections is sensuality.
+ - I think that clothes should be a shelter like a house or a rug. I think that there is that element of protection and a uniform can be just that.
+ - I am what I am. Before I was not so proud to make fashion. My family thought fashion wasn’t very interesting. So I hid that.
+ - For me, luxury isn’t just the real thing. It’s also fake. Swarovski crystals or real diamonds? It’s a game. You have to be luxurious nude.
+ - It doesn’t matter one damn bit whether fashion is art or not. You don’t question whether an incredible chef is an artist or not-his cakes are delicious and that’s all that matters.
+ - The natures of men and women are very mixed and for me the most fascinating type of woman is the one who is a little masculine, has a little of the man in her, and the sort of man who is fabulous is the one who is a little woman too. It’s impossible not to mix them!
+ - I’m not at all interested in doing clothes for movies or stage, in stage dressing or costuming. Nor can I design lingerie, for I never wear any! At one time I used to wear a lot of lingerie but now I’m in a mood of total nudity!
+ - You can create fashion everywhere in the world, but the place where you are crowned is Paris.
+ - My clothes are put together out of different basic elements so that a woman can express the way she wants to look, transform, metamorphosize herself not as the woman I decided but as she herself wants to be.
+ - With the exception of lingerie and theater I’m interested in everything to do with clothes and perfumes: everything which is an extension of woman.
+ - For the collection, I am like a painter or a writer. I may or may not be a character in my own story.
+ - Design job fell on me. I didn’t want to do it. It was an accident. For the first 10 years I said, “Tomorrow I’m stopping.”
+
+35 quotes

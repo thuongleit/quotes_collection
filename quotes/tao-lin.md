@@ -1,0 +1,36 @@
+ - Patriotism is the belief that not all human lives are worth the same.
+ - I just keep investing in the future, and I haven’t reached the point where I’m not doing that.
+ - I can feel the universe expanding and making things be further apart.
+ - I cried when my ex-girlfriend sent me a text message saying how much she liked my present to her.
+ - The correct arrangement of words will make these bad feelings go away tonight.
+ - While other rich people might be like, “Once I’m rich I’m going to go on a vacation to wherever,” but instead they just keep wanting to be more rich. It just seems like it would be fun to do whatever you wanted. If I were really rich I would be flying places, I think.
+ - As a child, she’d always had what she imagined were fascinating thoughts, but didn’t ever say them. Once, as a little girl, at recess, she thought that if she ran very fast at a pole and then caught it and swung quickly around, part of her would keep going, and she would become two girls.
+ - Moose had no friends that year. A lot of the time a moose would feel tired and lean against other moose. Only there wouldn’t be moose there and the moose would fall.
+ - You were one person alive and your brain was encased in a skull. There were other people out there. It took effort to be connected.
+ - Sometimes an alien would stand with a moose, not because of solidarity, but because of accidentally doing it.
+ - On average, since the urge to kill myself isn’t so strong that I actually kill myself, the world is worth living in.
+ - I was delivering pizzas at Domino’s. I was 17 maybe. I liked it a lot. Just driving in the nice weather and listening to music.
+ - I just don’t feel good if I’m repeating myself.
+ - I think Gmail chats are different than IRL conversations because Gmail chats are saved by Gmail exactly as they occurred. I like texts and emails. Seems like I don’t have anything to say that isn’t obvious about texts, emails, and Gmail chats.
+ - I don’t know how to incorporate regret. But I’ll say, like, “It affected me that way,” “I learned this,” “Next time maybe I’ll do it differently.”
+ - Life, people learned, was not easy. Life was not cake. Life was not a carrot cake.
+ - Matt would stare at Andrew for 10 minutes. It’s depressing that people are different. Everyone should be one person, who should then kill itself in hand-to-hand combat.
+ - The distracting feeling of disbelief when you’re finally doing something you’ve procrastinated on for notable amounts of time.
+ - If I don’t like someone and I start reading their stuff, it seems like my brain will just automatically start criticizing everything that’s there. It’s really hard to read a book without having all this outside information telling you what to think about it.
+ - Lately, they were always reassuring each other that nothing was wrong; and probably it was true – life wasn’t supposed to be incredible, after all. Life wasn’t some incredible movie. Life was all the movies, ever, happening at once. There were good ones, bad ones, some went straight to video.
+ - I don’t know what Douglas Coupland thinks about his writing. I’ve read maybe one page of one of his books and didn’t think I was similar to him. But it seems like people just compare you to anyone, pretty much.
+ - I like reading books where people with a lot of money use it to do whatever they want. Like stay in expensive hotels and do whatever drugs they want and fly wherever they want.
+ - It sometimes seemed to him that for love to work, it had to be fair, that he should tell only half the joke, and she the other half. Otherwise, it would not be love, but something completely else–pity or entertainment, or stand-up comedy.
+ - Novels–and memoirs–are perhaps the most comprehensive reports humans can deliver, of their private experiences, to other humans. In these terms there is only one kind of novel: a human attempt to transfer or convey some part or version of their world of noumenon to another’s world of noumenon.
+ - Life has never died, which is something that I think people ignore.
+ - I know Bret Easton Ellis has said he has some amount of empathy for every character he has written about, though, so maybe I am similar to him in terms of that. I’m not sure what he thinks exactly.
+ - It seems like most people will agree that they would like if they were treated by other people based on what they have concretely done in their life, not what other people have done, with their lives.
+ - It seems like for the last 10 years, I’ve just been investing in the future.
+ - I think Bret Easton Ellis has said that he doesn’t completely identify with his characters. And I think he has referred to them as immoral before.
+ - One seemed simply to be here, less an accumulation of moments than a single arrangement continuously gifted from some inaccessible future.
+ - Regarding drugs: just the existence of drugs seems troubling to me.
+ - If a context and a goal is defined I could say if it’s good or bad. But overall I don’t view things as good or bad. So I’m like a robot or computer in that sense. So maybe that’s why people don’t think they know me when they read my writing.
+ - But there was nothing I could do with the emotion really. It just went away after a while.
+ - I think mostly the commodifying comes after I’ve done something that has some other value to me.
+
+34 quotes

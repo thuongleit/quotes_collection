@@ -1,0 +1,68 @@
+ - Take risks and you’ll get the payoffs. Learn from your mistakes until you succeed.
+ - I’d love to visit Thailand just for the street food and the energy of a city like Bangkok.
+ - A molcajete is a stone mortar and pestle from Mexico. They’re great for grinding spices and making salsa and guacamole because they give everything a nice coarse and rustic feel. I’ve never collected anything, but I think I might start collecting these because each one is decorated differently.
+ - Go vegetable heavy. Reverse the psychology of your plate by making meat the side dish and vegetables the main course.
+ - Grilling takes the formality out of entertaining. Everyone wants to get involved.
+ - I don’t have a long family history of good cooks in my family.
+ - I probably use my chef’s knives more than any other tool in the kitchen. I’m not married to a particular brand, because they all work, they all have sharp blades.
+ - Cooking is a subject you can never know enough about. There is always something new to discover.
+ - If you aren’t nervous about your passion, you aren’t passionate about it.
+ - Even if the chef has a good business head, his focus should be behind kitchen doors. A business partner should take care of everything in front of the kitchen doors.
+ - Habaneros have a great fruity flavor, but the challenge is that you have to deflect the heat in order to taste the flavor. If you don’t, you’re dead. They should really have a warning sign on them. Deflect the habanero’s heat by pairing it with sweet food.
+ - I want to go to college and go back to Georgetown. It’s a really cool place.
+ - It’s important to have balance in your life between work and play.
+ - Do you want to make a tamale with peanut butter and jelly? Go Ahead! Somebody will eat it.
+ - Don’t try to be the next Rachael Ray or Bobby Flay, we already have those people. We want someone who is going to make their own mark on ‘Food Network.’
+ - You have to have your face in the food. These days people think a tattoo and a bottle of Sriracha equals success.
+ - For me, it’s all about moderation. I don’t kick things out of my diet, like carbs. But I’m not going to eat fast food.
+ - An instant-read thermometer is your best bet for making sure that meat and fish are cooked to the proper temperature.
+ - I don’t like to dump the dressing on top of the greens. Instead, I pour it against the side of the bowl – using only enough to glaze the leaves – then toss.
+ - If my daughter wants to get into this business, I would support that decision. She’s going to have a hard time not being in it. She loves food and she’s around it all the time.
+ - I can’t grill vegetables, shellfish or steaks without tongs. Don’t bother with those long-handled grilling tongs normally found in the BBQ section of your home store. Get intimate with your grill and opt for the regular stainless steel tongs.
+ - Don’t underestimate the importance of having enough room to work. Grilling is much more relaxing when you are not trying to juggle a whole collection of plates and bowls as you do it. If your grill doesn’t have enough workspace – and they almost never do – set up a table right next to your grill.
+ - When I’m hiring a cook for one of my restaurants, and I want to see what they can do, I usually ask them to make me an omelette.
+ - Nothing goes perfectly, especially when you’re opening a restaurant.
+ - When I go to a restaurant, I eat three-quarters of the food in front of me. That cuts my calorie intake by 25 percent.
+ - I was hired as a sous-chef at a restaurant on the Upper East Side. The chef liked to drink – some mornings we would find him sleeping. Two weeks after its opening, I became the chef. I was 20 years old, and way over my head. I had to hire the cooks and do the menus.
+ - I dropped out of high school. I really had no interest in doing any school work whatsoever.
+ - Basically, there are two things we know: Everybody has less time, and the general public is demanding better food – better in terms of quality and better in terms of flavor.
+ - Obviously, the easiest recipes are the most successful when it comes to the home cook, because they’re not intimidated by them. If I’m doing ‘Boy Meets Grill,’ and I do something very simple like grilled hamburgers or steaks or chicken, those are the most sought-after recipes.
+ - Lime juice makes things taste fresher. I use it for drinks, salsas, relishes, soups, and sauces. You want some give to your limes – firmness means the inside is dry – and they’ll stay softer longer if you don’t refrigerate them.
+ - One of the things that happens in my house on the holidays is after dessert, we sit down to a very ambitious men-versus-women game of Trivial Pursuit. It’s brutal. And there’s a trophy.
+ - There are so many great things about this business. Almost everybody is on the same team. It is all for one-friendly competitiveness. No one is out to hurt anyone.
+ - I love working with big flavors like chiles and smoke. Honey is perfect for softening the edges, mellowing them out a bit. I put it in everything – vinaigrettes, soups, stocks, salsas, so I’m always on the hunt for great honey.
+ - I think New York has the most diverse and best quality representation of so many different cuisines at all levels.
+ - Grilling outside with my parents at the Jersey shore. We would grill lobster and corn in the summer.
+ - Nobody believed the ‘Food Network’ could last. Even I was short sighted and thought to myself, 24 hours of food on TV? They’ll run out of things to talk about in four days! But that wasn’t true. ‘Food Network’ continues to get better and evolve.
+ - I think a lot of times people design restaurants with flash in mind. I think you should design restaurants with function in mind. Make sure it’s functional and works with what you’re trying to accomplish. Design can come later.
+ - I live in New York and I’m in New York basically all the time. I spend a lot of my time in my restaurants, and I feel like that’s why they’re successful.
+ - Charcoal or gas. Both give excellent results, so choose the one that best suits your style of cooking.
+ - Most of the time, I grill over high heat. I like things to move fast. I like the sound and smell of a very hot fire. I gravitate towards dishes that you can get on and off the grill as quickly as possible. After a while, you’ll know without thinking about it how hot the fire is.
+ - My partner and I are looking at several locations on Park Avenue South and Midtown for a new restaurant space.
+ - In the end, your creativity – perhaps even your outrageousness – will determine the final result.
+ - My contribution I hope is to get people to eat full-flavored food. If I could come away with that alone, that would be a fantastic accomplishment. I’m also very proud of being a very American chef.
+ - I spend 80% of my time in my restaurants. Taping my TV shows doesn’t take much time, and then they get aired a lot. That’s the thing people don’t realize.
+ - When I’m on television, I think that I appeal to the everyday guy, ’cause that’s who I am. The guys who go to the football games on the weekends are my viewers, for sure.
+ - Everybody says, ‘I have problems overcooking steak on the grill,’ but just take it off earlier! Grilling is really common sense. It’s very simple. You should think of a grill as a burner – it just happens to have grates. You shouldn’t be intimidated by it.
+ - I still love making hamburgers on the grill. I guess whenever I eat them childhood memories come up for me.
+ - You can’t chase everybody on the Internet who’s saying stuff about you, that’s for sure.
+ - I love using gas grills because they are easier to heat and it’s much easier to control the flames with a gas grill than with a charcoal fire. Grilling is not just about lighting a fire.
+ - In those days, the main requirement to be on the Food Network was being able to get there by subway.
+ - I love the culture of grilling. It creates an atmosphere that is festive but casual.
+ - Brushes are crucial for applying glazes, sauces, and oils. The pastry brushes that you find in homestores can be pricey so pay a visit to your local hardware store and pick up a few paint brushes which are less expensive and work equally as well.
+ - I wasn’t passionate about food until I’d been cooking for a while. I started long before food became part of the mainstream media. I just wanted to cook, period.
+ - I think cookies are sort of the unsung sweet, you know? They’re incredibly popular. But everybody thinks of cakes and pies and fancier desserts before they think cookies. A plate of cookies is a great way to end dinner and really nice to share at the holidays.
+ - Cook ingredients that you are used to cooking by other techniques, such as fish, chicken, or hamburgers. In other words be comfortable with the ingredients you are using.
+ - Chipotles to me are a one-of-a-kind pepper because they’re smoked jalapenos, so they’re fiery and they’re smoky. It’s good to use chipotles in salsas or soups or condiments – that works really well. To me, they always really pick up anything you put them in.
+ - I think everybody at some point in time has thought to themselves, ‘I have a really great idea for a restaurant.’
+ - It is very important that when you put something on the grill, you leave it in place to cook. If you move it around too quickly, chances are it is going to stick.
+ - One thing you don’t want to do as a host is be running around all evening. Do as much as you can ahead of time, so all you have to do is grill the main ingredients.
+ - The first time I was cooking for my wife, Stephanie, way before she was my wife, I actually put three chickens on the rotisserie and I closed the grill, which is really a bad idea. But I just wasn’t thinking very straight that day. And I looked outside and I saw, like, smoke and flames.
+ - I can’t be on the cheeseburger diet all the time.
+ - When people pile seven things onto one burger, it drives me nuts!
+ - I prefer lump charcoal over briquettes but I do use both for different reasons and different recipes and sometimes I combine them both when I really want the woodsy aroma from the lump charcoal and long, even heat from the briquettes.
+ - I guess I fell into cooking.
+ - Today, when I hire, I look for people who want to be trained and molded.
+ - A grill is just a source of heat. Just like a stove, it is very user-friendly.
+
+66 quotes

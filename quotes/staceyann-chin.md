@@ -1,0 +1,10 @@
+ - I want to go down in history in a chapter marked miscellaneous because the writers could find no other way to categorize me In this world where classification is key I want to erase the straight lines So I can be me.
+ - Every day I get better at knowing that it is not a choice to be an activist; rather, it is the only way to hold on to the better parts of my human self. It is the only way I can live and laugh without guilt.
+ - I think one of the most radical things a girl can do is to own her body. And we learn so young not to own these bodies of ours.
+ - It’s so funny the world we live in now. The years where you are most fertile, those are also the fertile years for career and personal growth. And so you’re not encouraged to get pregnant in your 20s. But the 30s are when the biology kind of has you by the ovaries, so to speak.
+ - Hungry people make the best revolutionaries. Because when you’re hungry, it’s easy to get angry about things that aren’t right.
+ - There are those nights where you are just so emotionally present that you crack yourself open. And it works. And on the nights when you don’t have it in you because you’re tired or you’ve got no voice, you still are able to do your job and tell the story that people have come to hear.
+ - I’m a memoir writer. I try to understand the world by taking experiences I have and making them into a story, whether it’s a narrative memoir, blogging for The Huffington Post, writing poems, or talking on the screen about what has happened to me and how that relates to the world at large.
+ - What’s surprising to me now is that now that I’m talking to a lot of women about this, so many women are doing this. Straight women, lesbian women, bisexual women, poor women, White women, immigrant women. This does not affect one group.
+
+8 quotes

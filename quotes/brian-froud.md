@@ -1,0 +1,34 @@
+ - To believe in faeries is to step into an enchanted space where the rational mind meets the irrational heart, and all things become possible.
+ - Remember, as each man and woman is a microcosm reflecting the larger natural world, so healing of the self is also a healing for the world. As above, so below.
+ - Voices in the forest tell of dark and twisted enchantments – as dark and twisted as the roots and grasping branches of the trees themselves. Even the most gnarled tree is eloquent in the telling of its own tale.
+ - Once you step onto the fairy path, it’s almost like there’s no way off. You have to keep going.
+ - The sylph is a fragment of the earth’s soul in faery form.
+ - My art’s not safe, I don’t want it to be safe, it’s not meant to be safe, its controversial, it takes you into deep areas, it’s a journey, its starts off in safe areas but it gets into deep waters.
+ - Not all meanings are meant to be clear at once. Some ideas take time. Some words are designed to lead us on inner journeys, with truth hidden deep inside them.
+ - At the edge of our world, at the edge of the otherworld, the beautiful and mysterious faeries stand, watching and waiting to greet us, inviting us to journey with them as our guides while we walk the infinite paths of the Faerie.
+ - I went and studied graphic design, because it seemed to me that advertising is more honest – the image actually has a function. But once I started on that, I realized that was really boring.
+ - Faeries are not fantasy, but a connection to reality. Faeries are irrational, poetic, absurd, and very, very wise. Faeries say there is nonsense in dogma, and sense in nonsense. Faeries express themselves with high seriousness and low humour. Faeries are resistant to all definitions.
+ - I paint the spirit and soul of what I see.
+ - I started studying as an artist, but I got fed up with the fact that you can paint terrible pictures and if you explain them in an erudite way it’s called great art. I thought this was rubbish.
+ - Once upon a time, I thought faeries lived only in books, old folktales, and the past. That was before they burst upon my life as vibrant, luminous beings, permeating my art and my everyday existence, causing glorious havoc.
+ - Nobody wanted to publish a book about fairies; they said people wouldn’t be interested. Luckily, I discovered Lady Cottington and her pressed fairies, which revived a huge amount of interest in fairies, so I could go ahead and do the book I wanted to do.
+ - I had a job as an illustrator, and I wanted to change the direction of my work. I moved to the country, and immediately I started to paint fairies and trolls.
+ - Spirits were seen to be very much part of the everyday world, and you were accosted by spirits all the time. It’s only really quite recently that we’ve relegated the fantastic as being just imagination and not real and having no purpose.
+ - It was hard for me to move forward, because I take responsibility for what I introduce into the world through my paintings. So to actually introduce something evil or bad was quite hard for me.
+ - It seems to me that art has lost its connection to spirit.
+ - The myths and legends about Faerie are many and diverse, and often contradictory. Only one thing is certain – that nothing is certain. All things are possible in the land of Faerie.
+ - For me drawing is an attempt to understand what I feel about the world I live in.
+ - I feel that what you should illustrate is the space between the words. It’s the betweenness, the otherness, that gives depth and dimension.
+ - Faeries are seen through the heart, not through the eyes. Remember that faeries inhabit the interior of the earth and the interior of all things, so look, in the first place, in the interior of yourself.
+ - In college, I became interested in folk tales and fairy tales. Gradually I became more and more interested in the underlying meaning of it all and the possibility of the reality of real fairies.
+ - You do not see fairies through the eyes, you see them through the heart and that took me a long time to learn because I was always trying to see them through my eyes.
+ - It was ironic that there I was finally painting the pictures I’d always wanted to paint and feeling very much at home in the countryside, and I ended up working in New York City, which is definitely the archetypal city.
+ - I live in a house that’s incredibly old, and it’s typical that part of it is slightly in the ground. It’s very earthed. It’s almost like living in a hobbit house.
+ - I always believed that the picture itself should tell the story.
+ - Art always used to involve spirit. Painters painted spirit. They painted by commission things to go into churches, and that was painting spirit. Or they would paint people of wealth, and they would try to show how they had power, and again, this is sort of spirit.
+ - Naming a fairy is notoriously difficult, because they don’t particularly like to be named. There are so many of them, and humans have always wanted to categorize them. In that way, we think we can have more control over them.
+ - In the 20th century, artists did a great disservice to fairies. They painted fairies in a way that was shallow and trite. So when people see my stuff, they suddenly realize the depth of fairies.
+ - To me, intolerance leads down a dreadful path that the world sometimes seems to be going to.
+ - Fairies are becoming much more popular. I see fairyland as this big sea, and the tide is sometimes out.
+
+32 quotes

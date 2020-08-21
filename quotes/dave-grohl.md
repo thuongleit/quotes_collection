@@ -1,0 +1,155 @@
+ - No one is you, and that is your power.
+ - That’s one of the great things about music. You can sing a song to 85,000 people and they’ll sing it back for 85,000 different reasons.
+ - Always have the highest bar for yourself. Wake up everyday and no matter how crappy you feel, want to change something for the better. Do something that makes someone happy. Create something that inspires someone. Be someone’s light when they are hopeless.
+ - Be someone’s light when they are hopeless.
+ - When something good comes your way, you better feel fortunate, because it doesn’t last forever.
+ - I think that if you’re passionate about something and you’re driven and you’re focused, then you can pretty much do anything that you want to do in life.
+ - Never lose faith in real rock and roll music. Never lose faith in that. You might have to look a little harder, but it’s always going to be there.
+ - Don’t look at the poster on your wall and think ‘I could never do that.’ Look at the poster on your wall and think ‘I’m gonna do that!’
+ - Wow, I get to wake up again? Ok. You have to make good with what you’ve got.
+ - The human element of making music is what’s most important.
+ - I think people should feel encouraged to be themselves.
+ - I think I’m scared a lot. I’m scared of almost everything. And I’m constantly trying to work my way through each obstacle, whether it’s a present, past, or future relationship.
+ - It’s nice when people are happy to hear that you’re still alive, rather than feeling like “Oh, finally he’s dead?”
+ - Rock stars are like sports stars: If you snap your ankle, you’re done.
+ - My songwriting is like extending a hand to the listener.
+ - Your personal history is a part of what happens with your hands and your head as you play music.
+ - You will only be great at things you love to do don’t pursue a career in something you hate to do.
+ - I taught myself how to play the guitar, I taught myself how to play the drums, and I kind of fake doing both of them. But drumming comes more natural to me, and it just feels better.
+ - A long time ago, I made a promise to myself: “Okay, you know what? I’m going to play music, and hopefully I’ll make enough money that I can go back to school. Once I make enough money to put myself through school, that’s what I’m going to do.”
+ - It’s good to wander into the studio and walk out with something that’s better than you’d imagined it to be. If everything was as you imagined it to be, it just wouldn’t be as much fun.
+ - We just do what we always do. We play shows and go home and rest and then play more shows.
+ - Guilt is cancer. Guilt will confine you, torture you, destroy you as an artist. It’s a black wall. It’s a thief.
+ - From one generation to the next, The Beatles will remain the most important rock band of all time.
+ - The most important thing for me is my family, and my health and happiness, and making sure everyone’s cool.
+ - There’s some things in life that you really consider to be priceless.
+ - Ladies and gentlemen, god bless America – land of the free, home of the brave.
+ - If you play a Nickleback song backwards you’ll hear messages from the devil. Even worse, if you play it forwards you’ll hear Nickleback.
+ - Develop that individuality by working as hard as you can at what you love.
+ - It’s tough to go to sleep at night, and I wake up after five hours because I feel like I’m wasting time. I just sit up at night and think about what I can do next.
+ - My mother was a public school teacher in Virginia, and we didn’t have any money, we just survived on happiness, on being a happy family.
+ - I always loved writing songs – writing for myself and demo-ing songs, really with no intention of ever letting anyone else hear them.
+ - I mean, I never liked being told what to do. It’s one of the reasons I dropped out of school. Give me something to assemble, I won’t look at the directions, I’ll try to figure it out by myself. It’s why I love Ikea furniture.
+ - What I really miss these days in music – is the music. I prefer to listen to melodies and songs, not just sounds.
+ - Whenever I say I made a record in the garage, people just assume that I have, like, a Lear jet parked in there or something. But really there’s old luggage, a couple of bikes. It’s big enough to put one minivan in. That’s it. No dartboard. I’m so not macho.
+ - I love everything about my job, except being away from the kids.
+ - If there’s one thing I’m good at, it’s gathering people together to do something fun.
+ - Being in Nirvana was amazing an experience that will never happen again for me. And I look on them as some of the best and worst times of my life.
+ - I stopped doing drugs when I was 20. I was finished with drugs before Nirvana even started.
+ - Someone curating songs for you through your computer or being able to hold 10,000 songs on your watch – that convenience is pretty incredible, but so is the emotional impact of holding a Beatles record in your hand and listening to Let It Be.
+ - If it weren’t for the Beatles, I would not be a musician.
+ - How do I stay humble? Because I’m the best at being humble.
+ - We’re in this band, the Foo Fighters, making music for the love of music. We all came from bands that had disbanded, and we were drawn to each other because we missed playing.
+ - I’m a skinny, geeky, high school dropout – it works, kids! Sensitive guys always get the girl. You’ll get laid 10 times as much as that guy on the football team ’cause he’s on steroids and he’s gonna get fat.
+ - I have crazy claustrophobic dreams, weird elevator dreams where the elevator closes in and all of a sudden I am lying down – oh my God, it’s a casket. Just freaky stuff like that.
+ - When digital technology started becoming the norm, you’ve got 50, 60, 70 years of recordings on tapes that are just deteriorating. Like, a two-inch reel of recording tape won’t last forever. It dissolves. It will disappear.
+ - What’s the last thing a drummer says in a band: Hey guys, why don’t we try one of my songs?
+ - I’m told that my blood sugar level was twelve times the legal limit – I was sweating honey.
+ - I can understand how some people might resent me for having the audacity to continue playing music, but it’d take a lot more than that to stop me from doing it. I started Foo Fighters because I didn’t want to retreat.
+ - Mom, thanks for letting me drop out of high school. Haha!
+ - I love to play music. So why endanger that with something like drugs?
+ - For every Foo Fighters record, we’ve had two or three beautiful, acoustic-based songs, but they never usually make their way to the record, because we want to make rock records.
+ - I had long hair since I was 17 years old. It was time for me to let go. I hated being the guy at the wedding in a suit with a ponytail.
+ - I’d love it if everyone knew one Foo Fighters song.
+ - When you’re young, you’re not afraid of what comes next. You’re excited by it.
+ - When Nirvana became popular, you could very easily slip and get lost during that storm. I fortunately had really heavy anchors – old friends, family.
+ - At school where you a dunce or a teacher’s pet? All of the above. I was stupid so they thought I was cute.
+ - I had a Super Grover doll growing up. Super Grover was very clumsy, he wasn’t very good-looking. But in his own way he’d always save the day.
+ - Always have the highest bar for yourself.
+ - I’m not like a voracious hoarder who has 50,000 albums of vinyl stacked in a storage space in the San Fernando Valley. But I do have albums from the last 40 years of my life.
+ - The Nirvana unplugged album was something we’d always knew we were capable of doing, but it was just a matter of doing it right.
+ - We only do what feels right. If something feels forced or contrived, then we pull back. We remain the Foo Fighters.
+ - You know why Foo Fighters have been a band for 20 years? Because I’ve never really told anybody what I think of them. The last thing you ever want to do is go to therapy with your band.
+ - Music will never go away, and I will never stop making music; it’s just what capacity or what arena you decide to do it.
+ - I’d like to imagine I won’t end up in Hell, but I think I’ve done too much acid and listened to too much death metal to sit on a cloud next to God with angels floating above my head.
+ - I’m obsessed with Led Zeppelin and have been since I was a teenager.
+ - I’m not allergic to fashion. I’m just one of those people who when they put on a suit look like they’re going to a funeral or to court.
+ - When you have kids, you see life through different eyes. You feel love more deeply and are maybe a little more compassionate. It’s inevitable that that would make its way into your songwriting.
+ - Because you have things like ‘American Idol’ and you’ve got radio stations that play music made entirely by computers, it’s easy to forget there are bands with actual people playing actual instruments that rock.
+ - I’m big on taking the lady out to dinner. We have some candlelight romance every now and then. And our whole family is within a 6-mile radius. It’s disgustingly domestic. I’m big on Costco.
+ - There’s a big difference between falling in love with someone and falling in love with someone and getting married. Usually, after you get married, you fall in love with the person even more.
+ - People are so into digital recording now they forgot how easy analog recording can be.
+ - The most important thing is that you honor that musical integrity, whether you make music that sounds like ABBA or you make music that sounds like Void.
+ - Through Kurt I saw the beauty of minimalism and the importance of music that’s stripped down.
+ - The best time for gum is just before getting onstage. I need a minty-fresh microphone.
+ - Some people record onto tape, and then they pay for the tape, and download those onto a hard drive. Initially in a Pro Tools program. Other people go straight into digital, and use no tape at all.
+ - There weren’t a lot of career opportunities in crazy-fast hardcore punk, so you didn’t have a lot of ambition, just the love and passion to play music with your friends.
+ - When you’re thirteen and listening to punk, the aggressive nature of music can sway you to the dark side.
+ - Neil Young is my hero. You know what that guy has been doing for the past 40 years? Making music. That’s what that guy does.
+ - Nothing’s going to keep me from making music. If I were in the want-ads in the back of the paper or playing to six people at a coffee shop, I’d still love to make music.
+ - It’s funny, there aren’t too many musicians that also moonlight as studio engineers. There’s a few – the really brilliant ones.
+ - My first instrument was actually the trombone, but that didn’t last long. Soon I was playing guitar in bands from the time I was 11 or 12.
+ - Sharing music is not a crime. It shouldn’t be. There should be a deeper meaning to making music than just selling downloads.
+ - I think my biggest musical hero growing up was probably Ian MacKaye. He set a great example for all of us local musicians. Still, to this day, I see him as the best example of a right-on musician.
+ - There’s nothing better than having a bottle of beer in your hand in the waves.
+ - I listen to boy band music before I have to fire someone.
+ - When I sit down to interview people, I don’t hold questions and I don’t know the answers. They’re more like conversations that become lessons.
+ - I once received a cape that was made from the little purple bags that Crown Royal Whisky comes in.
+ - Different boards do different things to the sound that’s coming through them. An old Neve desk does embellish it in a way that makes it sound sort of bigger or warmer. It doesn’t change the performance but it does enhance the way that it sounds.
+ - I’ve experienced great things, I’ve experienced great tragedies. I’ve done almost everything I could possibly ever imagine doing, but I just know that there’s more.
+ - When I joined Nirvana, I was the fifth or sixth drummer – I don’t know if they’d ever had a drummer they were totally happy with. And they were strangers. There was never much of a deeper connection outside of the music.
+ - There’s nothing I’d rather do than make music. It’s the love of my life.
+ - Just the other day someone threw a bra duct-taped to a tennis ball. I just stood there, playing guitar, thinking how this was totally premeditated. Some girl sat around inventing a way to get her bra onstage from 40 rows back.
+ - There are times when I feel like I’m a traveling minister. I’m trying to go out and get kids to pick-up yard sale instruments and change the world.
+ - There’s poetry in being the band that can sell out Wembley but also makes a record in a garage. I don’t like doing what people expect me to do.
+ - I don’t want to say that most rock bands live these formulaic biography existences – but they kinda do. There’s always a divorce. There’s always an OD. There’s always a bad business manager.
+ - How come drummers leave their drumsticks on the dashboard of their car? So they can park in the handicapped spaces.
+ - I had never been in charge of anything. I’d always worked for someone. I worked for a furniture warehouse. I did masonry. I always had a boss yelling at me. So I’d never been in charge of an organization.
+ - I owe everything to Nirvana. But I can’t let that overshadow the future. For the first few years, I didn’t even want to talk about Nirvana. Partly because it was just painful to talk about losing Kurt but also because I wanted the Foo Fighters to mean something.
+ - Dude, maybe not everyone loves ‘Glee.’ Me included. I watched 10 minutes and it wasn’t my thing.
+ - Mick Fleetwood was one of my first interviews. And if you’ve ever talked to that dude, he’s the sweetest guy in the world – he’s just a trip.
+ - I was at a New Year’s Eve party, and someone asked me how was my year, and I said, ‘I honestly think 2011 was the best year of my entire life,’ and I actually meant it.
+ - A lot of people from my generation of music are so focused on playing things correctly or to perfection that they’re stuck in that safe place.
+ - I dropped out of high school and I couldn’t go to college ’cause I wasn’t smart enough, so I’d resigned myself to loading trucks and playing punk rock on the weekends.
+ - Most of our songs were written on acoustic guitar before they made it to the practice stage.
+ - A musician should only sound like what they do, and no two musicians sound the same. It’s an individual-feel thing, you know?
+ - When you’re recording to analog tape, it captures performance and you can’t necessarily manipulate that in different ways. It is what it is.
+ - Once I got into punk rock, I started mail-ordering albums, because a lot of the record stores in my area didn’t carry the punk bands from England or Sweden or Chicago or Los Angeles.
+ - There’s something about pulling out a real tape from a shelf and looking at it and knowing that ‘Everlong’ is on it, or ‘Best of You’ is on it, and it’s really special.
+ - Who’s to say what’s a good voice and not a good voice?
+ - When I listen to the radio, I just hear so much music that doesn’t even sound like people. The vocals are all tuned, and the drums are all fake.
+ - I love Black Sabbath. They made an amazing contribution to music today. Almost every band that made it big in the Nineties owed a debt to them.
+ - And later, if I ever felt that I was getting swept away by the craziness of being in a band, well, I’d go back to Virginia.
+ - I like the rock documentaries that make it seem real. Some rock documentaries are meant to make the bands look larger than life.
+ - When I listen to music these days, and I hear Pro Tools and drums that sound like a machine – it kinda sucks the life out of music.
+ - Usually, when Nirvana made music, there wasn’t a lot of conversation. We wanted everything to be surreal. We didn’t want to have some contrived composition.
+ - You can make yourself the greatest singer in the world or the best drummer in the world with the aid of technology.
+ - It’s not until recently that I could even imagine myself as an adult. But these kids today, they look at me like I’m Neil Young. Nirvana is the band their parents listen to.
+ - Joining a band without ever having really met the people before, you just want to be musically powerful.
+ - The whole slacker generation totally didn’t apply to us musically.
+ - When it comes to making an album I take that very seriously. I am meticulous, overworked. That’s my time to put everything under the microscope.
+ - No one has any faith in the tape anymore – everyone just relies on computers and considers the hardrive to be the safest option, and I don’t. I think an analog tape is something you can hold.
+ - I mean, I never liked being told what to do. It’s one of the reasons I dropped out of school.
+ - When there’s so much left to do, why spend your time focusing on things you’ve already done, counting trophies or telling stories about the good old days?
+ - Actually, I didn’t start sweating until I had children.
+ - You look up to your heroes and you shouldn’t be intimidated by them, you should be inspired by them.
+ - A place like Sound City, which was just a big, beautiful room where you would hit record and capture the sound of the performer – a place like that isn’t necessarily in demand anymore.
+ - If you’re trying to connect to people with music – it’s more of an outward process and a lot of times musicians can be very inward.
+ - I love being a drummer but I love being a musician in general and I love the Foo fighters.
+ - Usually, when you go in to make a record, you have 30 songs, and you record 30 of them, and 12 of them make it to the record.
+ - When you’re recording to tape, you usually just settle for what you have. There’s not a lot of options to manipulate the performance.
+ - In this day and age, when you can use a machine or computer to simulate or emulate what people can do together, it still can’t replace the magic of four people in a room playing.
+ - Going out and playing music – that’s what I do. I don’t do much else.
+ - People should never be afraid that Foo Fighters are ever going to break up, it’s like your grandparents getting divorced – it’s not gonna happen.
+ - I’m so not macho. It’s crazy. My man cave is so not a man cave.
+ - I’ve always been a fan of melody and emotional melancholy, whether it was Rites of Spring or Tears for Fears or Neil Young. If I hear a song that has a sweet melody, I’m a sucker for it, whether it’s Linkin Park or Little Richard.
+ - In a way, as much as we love to be a big, loud rock band, the acoustic album was a lot easier to make than the rock records. I think because it was brand new territory for the band.
+ - I hate the solo artist aspect of rock-‘n’-roll. I don’t have enough personality or charisma to be a solo star.
+ - It’s funny; recently I’ve started to notice people’s impersonations of me, and it’s basically like a hyperactive child.
+ - Chicago gave me more music than any other city in America.
+ - I never needed much, and I never thought I’d get more than what I had. A trip to Burger King was the biggest thing in the world to me. Heaven.
+ - I believe the history of American music is just as important as anything political because it’s changed generations of people.
+ - It was supposed to be gross, and now it’s gorgeous.
+ - What we feel most comfortable doing is playing loud, screaming rock songs.
+ - It’s important to me that people feel connected to the band through the music, you know? I don’t want it to be wallpaper. I don’t want it to be background music. I want it to be clear: This is the song. These are the words. If you feel the same way as I do, sing it as loud as you can.
+ - From the time that ‘Nevermind’ came out in September of 1991 to the time that Nirvana was over, it was really just a few years, and a lot happened in those few years.
+ - It’s terrifying to play your favorite band’s song in front of your favorite band.
+ - I think musicians like me are drawn to those older desks, not just because they’re legend and lore but also because they do something really specific that is hard to emulate or re-create digitally.
+ - When you’re sequencing a record, you want the listener to stick with it from beginning to end, and in order to do that, you really have to map out the journey from the first song to the last.
+ - I think actually singing the words is more therapeutic than just sitting down to write them, because then you are letting it out, and it’s coming from your gut.
+ - To me the most important thing is getting into a studio and making an album that is 12 or 14 amazing songs, getting up onstage, and making people happy by livening the rock.
+ - I was ready to quit music. It felt to me like music equalled death.
+ - CBGB represents a lot to New York City and to underground rock and to new wave and post-punk and whatever. But, you know, it’s like tearing down the Jefferson Memorial or something.
+ - I know a lot of people who wouldn’t be comfortable with everything that comes with being in a band as big as Nirvana. The thing that I don’t understand is not appreciating that simple gift of being able to play music.
+
+153 quotes

@@ -1,0 +1,122 @@
+ - As I am humbled by my difficulties, so I am strengthened by God’s grace.
+ - It is impossible to serve God without serving one another.
+ - It’s all about God. May He forgive us for every time we start to think it’s actually all about us.
+ - Singleness is a gift; marriage is a gift. We should not misuse the gifts we’ve been given.
+ - When my children hear godliness out of my mouth and they see wickedness in my life, then I point them to heaven and I lead them to hell.
+ - It takes a whole Bible to make a whole Christian.
+ - The kingdom of God is like a mustard seed. It happens quietly. It happens inevitably. Don’t underestimate God’s power.
+ - Regular expository preaching of the Bible is the staple diet of a healthy church.
+ - The reason most preaching is ignored today is that it deserves to be.
+ - What kind of wonderful God is this who reaches down into the lives of people, picks them up, grants them faith, and changes them!
+ - The Creator of the universe knows me.
+ - Our relationship with God will never be right as long as our relationship with others is wrong.
+ - Father, help us to rest our heads on the soft pillow of Your providence.
+ - There are times in our Christian life when we cannot see beyond the next step and we have to trust God.
+ - Holy Spirit, take the Word of truth as we find it in the Scriptures and bring it home to our lives.
+ - Refusal to forgive reveals we have minimized our offense against God and we have maximized a brother’s offense against us.
+ - It is in getting to know my Bible that I get to know Jesus.
+ - We find Christ in all the Scriptures. In the Old Testament He is predicted, in the Gospels He is revealed, in Acts He is preached, in the epistles He is explained, and in Revelation He is expected.
+ - There is an old joke that went around- it goes, in the beginning God made man in His own image, and since the fall, man has been seeking to return the compliment.
+ - The death of Jesus is the pivotal event of human history and everything needs to be understood in light of that.
+ - There is no one insignificant in the purposes of God.
+ - The great need is for us to be taught theologically, not just stirred emotionally.
+ - Only when we are captured by an overwhelming sense of awe and reverence in the presence of God, will we begin to worship God in spirit and in truth.
+ - It is not our believing of the Gospel that makes it true. It exists as independent, true Truth.
+ - Jesus did not come to live as an example of how to die as a martyr, but as a substitute, taking the place that we deserve in order that we might enjoy what we don’t deserve. This is good news. Let us tell all our friends!
+ - Would anyone choose Hell over Heaven? YES! Why? Pride. They don’t want to go in the only way you can go in, on your knees. They don’t want to admit they are a failure, that their life is a mess.
+ - God’s concern is for His name, His glory, His people, His unfolding eternal purpose and for His Kingdom.
+ - You don’t know who you are until you know God and you don’t know how to live until you’ve settled the question of how to die.
+ - Do you want to lead, or do you want to be liked?
+ - Gods law has been written on all of our consciences, but only in Christ is it written on our hearts.
+ - I only need a mirror to see a sinner.
+ - If you live in such a manner as to stand the test of the last judgment, you can depend upon it that the world will not speak well of you.
+ - We’re to love our children for who they are, not for what we want them to become.
+ - Father, write Your Word in our heart; make us men and women who understand Your truth.
+ - When all a man has is worldly wealth, he is poor indeed.
+ - You will never have a better friend than a friend who points you to Christ.
+ - Prayer is the means that God has ordained for the supply of grace that is necessary to be joyful in hope.
+ - The providence of God does not relieve us of our human responsibility: it doesn’t call for inactivity, it calls for activity.
+ - Unfortunately, preachers who distort God’s Word are all too common today. Sometimes this springs from a sincere desire to soften hard hearts, but hearts aren’t changed by compromise.
+ - Sincere love is not as a result of emotional surges – it’s a result of obedience to the Truth.
+ - This is no time for wimpy Christians. It’s time for soldiers of Christ to arise!
+ - Endurance is a key indicator of spiritual fitness.
+ - We must think ourselves empty when coming to the text of scripture and read ourselves full.
+ - As a result of grace, we have been saved from sin’s penalty. One day we will be saved from sin’s presence. In the meantime we are being saved from sin’s power.
+ - The return of Jesus will be personal, physical, visible and glorious.
+ - The wisdom of God is vaster than the wisdom of man. Failure to pay attention to it will have ramifications.
+ - We have taken the latter course as a culture. So there is mass confusion today – even in the evangelical church – over whether the Bible is true and over how far we should go in obeying it.
+ - When we become captive to the Word of God, then we discover true freedom.
+ - How immense God is, that He is able to sweep into His purposes even foolish requests and bad motivations.
+ - The fact that we have to discuss reality as though there were no reality is an indication of the confusion of our times.
+ - At best we are but clay, animated dust; but viewed as sinners, we are monsters indeed. Let it be published in heaven as a miracle that the Lord Jesus should set His heart’s love upon people like us.
+ - We may be confident in this: that in the pain of our suffering is the presence of a faithful God.
+ - Father, we long for the clarity of Your truth to dawn upon our minds and for the immensity of Your love to grip our hearts.
+ - Christianity is not about how to escape from the difficulties of life – it is about how to face the difficulties of life.
+ - The grace of God reaches to the furthest extent to those who are prepared to acknowledge their need.
+ - Children should be able to see the Gospel modeled in the way their father loves their mother with a sacrificial love...
+ - The authority of God is behind the establishing of human authority.
+ - If our Christianity doesn’t work at home, it doesn’t work.
+ - If you want to be a wise person, you need a Bible.
+ - There are no freelance Christians; there is no solo-flying to heaven.
+ - I know that a man is converted when he starts to sing.
+ - Those who love the Gospel will love to be stirred by its truth all over again.
+ - Love reacts with goodness towards those who ill-treat it.
+ - How do I know that I am in Christ? Because of my trusting, costly obedience to the Word.
+ - The story line of the Bible is the story line of God taking the initiative in seeking out a people who are His very own.
+ - To expose our minds constantly to ungodly thinking is a great danger.
+ - Unless the Bible is first taught to our own hearts, then we have no basis from which to teach it to others at all.
+ - If truth were told, most of us spend longer each day on personal cleanliness than on practical godliness.
+ - The main things are the plain things, and the plain things are the main things.
+ - Singleness and marriage are both evidences of God’s grace that are to be experienced and sustained purely by the strength which God supplies.
+ - Let us remember the loving-kindness of the Lord and rehearse His deeds of grace. Let us open the volume of recollection, which is so richly illuminated with memories of His mercy, and we will soon be happy.
+ - Death for the Christian is to fall asleep in the arms of Jesus and waking up and finding out that you’re home.
+ - We should not seek to confirm God’s will by the absence of adversity.
+ - A good church is a Bible-centered church. Nothing is as important as this – not a large congregation, a witty pastor, or tangible experiences of the Holy Spirit.
+ - God’s plan for moving people from the broad road to the narrow road involves you.
+ - Our words and our works are evidence that our profession of faith in the Lord Jesus Christ is true.
+ - The foolishness of the cross is the wisdom of God and the wisdom of God is powerful in its impact.
+ - The mercy of God is an all-embracing mercy and it breaks down the barriers that man erects.
+ - When grace begins to rule, then our preoccupation with ourselves begins to leave.
+ - The same Holy Spirit who implants faith within a life implants the boldness to verbalize that faith.
+ - It is in our forgiveness of other people’s sins against us that we reveal the fact that we have been truly forgiven by God.
+ - Withhold no part of the precious truth, but speak what you know and declare what you have seen. Do not allow the toil or darkness or possible unbelief of your friends to dissuade you. Let us rise and march to the place of duty, and there declare what great things God has shown to our soul.
+ - The preacher’s task is to declare what God has said, explain the meaning, and establish the implications so that no one will mistake its relevance.
+ - The Bible is one story that unfolds in one book, by one author, about one subject. A story that moves from promise to fulfillment.
+ - The protestant martyrs and their monuments testify to the fact that they died, not on account of ecclesial differences, but because the issue was the way of salvation.
+ - The pathway to lasting honor is to honor Christ.
+ - The Church is where it is today because it has decided that the advertising agents know better than the Holy Spirit of God.
+ - The Bible comes both to warn and to encourage and always to turn us again to the Lord Jesus Christ.
+ - The glory does not lie in our inadequacy, but lies in the adequacy of Christ discovered in our weakness and in our insufficiency.
+ - You need to be in a church where the pastors are urging you, not so much to listen to what they say as to turn to the Bible from which they teach.
+ - We lose our way around the Bible when we take our eyes off the Cross.
+ - We are not brought by faith into a realm of passivity, but rather, we are brought into the realm of diligent activity.
+ - The callings of God never leave you where they find you.
+ - A Christian way of thinking is not just thinking Christian thoughts, singing Christian songs, reading Christian books, going to Christian schools; it is learning to think about the whole spectrum of life from the perspective of a mind that has been trained in truth.
+ - God is not counting our sins against us because He is counting our sins against Christ.
+ - I never met a hopeful Christian who didn’t read their Bible.
+ - Father, look upon us in Your goodness and kindness, we pray as a church. Help us to love each other.
+ - I do not come to God so that Jesus can give me what I want. But I must come to God so that Jesus will grant me what I need.
+ - When we turn luxuries into necessities, we jeopardize our ability for contentedness.
+ - We Christians are secure, realizing that even our failures and our sins are under His control.
+ - Christ, because of who He is, can look death in the face.
+ - When a man or woman is born again by the Spirit of God they will give evidence of it in part by striving to live a holy life.
+ - Human mercy is proof of having received divine mercy.
+ - People may not be impressed by our theological grasp, but they may be impressed by our expressions of practical godliness.
+ - If the law does not lead us to Christ and redemption, it will lead us to despair.
+ - Undefined Christianity is not a problem in our generation. It is defined Christianity that brings the rub.
+ - It is imperative that those who name the name of Christ would be instructed in the truth of Scripture.
+ - The ultimate fulfillment of God’s mercy in Jesus is not something that is supplied in time to correct a default in the system, but is something that is planned from all of eternity.
+ - I once was absolutely useless, and God in His grace has made me useful.
+ - Hold material goods and wealth on a flat palm and not in a clenched fist.
+ - Our gracious God, we need the ministry of the Spirit of God within our lives so that Your Word may take root within us.
+ - If we do not roll up our sleeves to the task of the Gospel in our days, then we will amount to virtually nothing for God.
+ - I am weaker and more sinful than I ever before believed, but through Jesus Christ I’m more loved and accepted than I ever dared hope.
+ - Many of us are tempted to find the key in doing, but the answer is actually found in being. It is vital that we are routinely humbled by the reminder that Christian life is grounded, not in what we can do, but what has been done for us and what we need done to us.
+ - The task of the teacher of the Bible is to open up what’s closed, to make plain what is obscure, to unravel what is knotted and to unfold what is tightly packed.
+ - Even the most casual events are connected to God’s purpose for His people from all eternity.
+ - We must be willing to say what the Bible says.
+ - May the spirit of Christ so fill us afresh that we might in turn be a refreshment and an encouragement to one another.
+ - Consider how Jesus came from a position of glory and consistently reached out to the lowly.
+ - Prayer is an acknowledgment that our need of God’s help is not partial but total.
+
+120 quotes

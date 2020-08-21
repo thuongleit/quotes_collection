@@ -1,0 +1,241 @@
+ - Travel makes one modest. You see what a tiny place you occupy in the world.
+ - There is no truth. There is only perception.
+ - The art of writing is the art of discovering what you believe.
+ - Do not read, as children do, to amuse yourself, or like the ambitious, for the purpose of instruction. No, read in order to live.
+ - Read in order to live.
+ - Human speech is like a cracked kettle on which we tap crude rhythms for bears to dance to, while we long to make music that will melt the stars.
+ - Talent is a long patience, and originality an effort of will and intense observation.
+ - The most glorious moments in your life are not the so-called days of success, but rather those days when out of dejection and despair you feel rise in you a challenge to life, and the promise of future accomplishments.
+ - Success as I see it is a result, not a goal.
+ - I know nothing more noble than the contemplation of the world.
+ - The one way of tolerating existence is to lose oneself in literature as in a perpetual orgy.
+ - To be stupid, selfish, and have good health are three requirements for happiness, though if stupidity is lacking, all is lost.
+ - Earth has its boundaries, but human stupidity is limitless.
+ - The whole dream of democracy is to raise the proletarian to the level of stupidity attained by the bourgeois.
+ - The principal thing in this world is to keep one’s soul aloft.
+ - Pleasure is found first in anticipation, later in memory.
+ - There is not a particle of life which does not bear poetry within it.
+ - I am irritated by my own writing. I am like a violinist whose ear is true, but whose fingers refuse to reproduce precisely the sound he hears within.
+ - Be steady and well-ordered in your life so that you can be fierce and original in your work.
+ - Be orderly and disciplined in daily life, like a good bourgeois, so that I might be wild and violent in my art.
+ - Anything becomes interesting if you look at it long enough.
+ - One can be the master of what one does, but never of what one feels.
+ - I go dreaming into the future, where I see nothing, nothing. I have no plans, no idea, no project, and, what is worse, no ambition. Something – the eternal ‘what’s the use?’ – sets its bronze barrier across every avenue that I open up in the realm of hypothesis.
+ - You don’t make art out of good intentions.
+ - A thing derided is a thing dead; a laughing man is stronger than a suffering man.
+ - You can calculate the worth of a man by the number of his enemies, and the importance of a work of art by the harm that is spoken of it.
+ - The idea of bringing someone into the world fills me with horror. I would curse myself if I were a father. A son of mine! Oh no, no, no! May my entire flesh perish and may I transmit to no one the aggravations and the disgrace of existence.
+ - Mediocrity cherishes rules; as for me, I hate them; I feel for them and for every restriction, corporation, caste, hierarchy, level, herd, a loathing which fills my soul, and it is in this respect perhaps that I understand martyrdom.
+ - A man is a critic when he cannot be an artist, in the same way that a man becomes an informer when he cannot be a soldier.
+ - One’s duty is to feel what is great, cherish the beautiful, and to not accept the conventions of society with the ignominy that it imposes upon us.
+ - It is an excellent habit to look at things as so many symbols.
+ - COLD. Healthier than heat.
+ - By dint of railing at idiots, one runs the risk of becoming an idiot oneself.
+ - One’s existence should be in two parts: one should live like a bourgeois and think like a demigod.
+ - Put all your rage and madness into your work and live as orderly a life as possible.
+ - Writing is a dog’s life, but the only life worth living.
+ - The heart, like the stomach, wants a varied diet.
+ - She wanted to die, but she also wanted to live in Paris.
+ - I spent the morning putting in a comma and the afternoon removing it.
+ - That man has missed something who has never left a brothel at sunrise feeling like throwing himself into the river out of pure disgust.
+ - Me and my books in the same apartment, like a gherkin in its vinegar.
+ - Stupidity lies in wanting to draw conclusions.
+ - One day, I shall explode like an artillery shell and all my bits will be found on the writing table.
+ - It’s a delicious thing to write. To be no longer yourself but to move in an entire universe of your own creating.
+ - The denigration of those we love always detaches us from them in some degree. Never touch your idols: the gilding will stick to your fingers.
+ - Reveal art; conceal the artist.
+ - Art requires neither complaisance nor politeness; nothing but faith, faith and freedom.
+ - Prose is like hair; it shines with combing.
+ - Sometimes I think I’m liquefying like an old Camembert.
+ - Our ignorance of history causes us to slander our own times.
+ - Life is so horrible that one can only bear it by avoiding it. And that can be done by living in the world of art.
+ - Stupidity is an immovable object: you can’t try to attack it wiithout being broken by it.
+ - You must write for yourself, above all. That is your only hope of creating something beautiful.
+ - I tried to discover, in the rumor of forests and waves, words that other men could not hear, and I pricked up my ears to listen to the revelation of their harmony.
+ - A friend who dies, it’s something of you who dies.
+ - I don’t believe that happiness is possible, but I think tranquility is.
+ - Nothing is more humiliating than to see idiots succeed in enterprises we have failed in.
+ - There are two infinities that confuse me: the one in my soul devours me; the one around me will crush me.
+ - The better a work is, the more it attracts criticism; it is like the fleas who rush to jump on white linens.
+ - It is necessary to sleep upon the pillow of doubt.
+ - For him the universe did not extend beyond the circumference of her petticoat.
+ - I am a man-pen. I feel through the pen, because of the pen.
+ - Each dream finds at last its form; there is a drink for every thirst, and love for every heart. And there is no better way to spend your life than in the unceasing preoccupation of an idea – of an ideal.
+ - Love, she thought, must come suddenly, with great outbursts and lightnings, – a hurricane of the skies, which falls upon life, revolutionises it, roots up the will like a leaf, and sweeps the whole heart into the abyss.
+ - Maybe happiness too is a metaphor invented on a day of boredom.
+ - For a long time now my heart has had its shutters closed, its steps deserted, formerly a tumultuous hotel, but now empty and echoing like a great empty tomb.
+ - Stupidity consists in wanting to reach conclusions. We are a thread, and we want to know the whole cloth.
+ - I live absolutely like an oyster.
+ - Everything is there: the love of Art.
+ - L’Ide e seule est e ternelle et ne cessaire. The idea alone is eternal and necessary.
+ - Years passed; and he endured the idleness of his intelligence and the inertia of his heart.
+ - Everyone became brave from excess of terror.
+ - Reality does not conform to the ideal, but confirms it.
+ - After a person dies, there is always something like a feeling of stupefaction, so difficult is it to comprehend this unexpected advent of nothingness and to resign oneself to believing it.
+ - Only three things are infinite. The sky in its stars, the sea in its drops of water, and the heart in its tears.
+ - Are the days of winter sunshine just as sad for you, too? When it is misty, in the evenings, and I am out walking by myself, it seems to me that the rain is falling through my heart and causing it to crumble into ruins.
+ - After the pain of this disappointment her heart once more stood empty, and the succession of identical days began again.
+ - What seems to me the highest and the most difficult achievement of Art is not to make us laugh or cry, or to rouse our lust or our anger, but to do as nature does-that is, fill us with wonderment.
+ - Axiome: la haine du bourgeois est le commencement de la vertu. Axiom: Hatred of the bourgeois is the beginning of wisdom.
+ - Our ignorance of history causes us to slander our own times. The ordinary person today lives better than a king did a century ago but is ungrateful!
+ - An infinity of passion can be contained in one minute, like a crowd in a small space.
+ - She was the amoureuse of all the novels, the heroine of all the plays, the vague “she” of all the poetry books.
+ - Of all the icy blasts that blow on love, a request for money is the most chilling.
+ - The artist must be in his work as God is in creation, invisible and all-powerful; one must sense him everywhere but never see him.
+ - The more you approach infinity, the deeper you penetrate terror.
+ - It is always sad to leave a place to which one knows one will never return.
+ - By trying to understand everything, everything makes me dream.
+ - One must always hope when one is desperate, and doubt when one hopes.
+ - One mustn’t look at the abyss, because there is at the bottom an inexpressible charm which attracts us.
+ - Iced champagne was served, and the feel of the cold wine in her mouth gave Emma a shiver that ran over her from head to toe.
+ - One must laugh and weep, love, work, enjoy and suffer, in short vibrate as much as possible in all his being.
+ - Writing this book I am like a man playing the piano with lead balls attached to his knuckles.
+ - It is always sad to leave a place to which one knows one will never return. Such are the melancolies du voyage: perhaps they are one of the most rewarding things about traveling.
+ - What an awful thing life is, isn’t it? It’s like soup with lots of hairs floating on the surface. You have to eat it nevertheless.
+ - What baffled him was that there should be all this fuss about something so simple as love.
+ - Whatever the thing you wish to say, there is but one word to express it, but one verb to give it movement, but one adjective to qualify it; you must seek until you find this noun, this verb, this adjective.
+ - The future is the worst thing about the present.
+ - The style, which is something I take to heart, is getting on my nerves horribly. It frustrates and torments me. I have days when Iam sick about it and nights when it gives me a fever. The more I go at it the more I find myself incapable of conveying the Idea.
+ - One mustn’t ask apple trees for oranges, France for sun, women for love, life for happiness.
+ - The more humanity advances, the more it is degraded.
+ - May I die like a dog rather than hasten the ripening of a sentence by a single second!
+ - Boredom, that silent spider, was spinning its web in the darkness in every corner of her heart.
+ - Sick, irritated, and the prey to a thousand discomforts, I go on with my labor like a true workingman, who, with sleeves rolled up, in the sweat of his brow, beats away at his anvil, not caring whether it rains or blows, hails or thunders.
+ - She would have liked not to be alive, or to be always asleep.
+ - Everything, even herself, was now unbearable to her. She wished that, taking wing like a bird, she could fly somewhere, far away to regions of purity, and there grow young again.
+ - The deplorable mania of doubt exhausts me. I doubt about everything, even my doubts.
+ - It’s hard to communicate anything exactly and that’s why perfect relationships between people are difficult to find.
+ - What is the beautiful, if not the impossible.
+ - What I would like to write is a book about nothing, a book without exterior attachments, which would be held together by the innerforce of its style, as the earth without support is held in the air – a book that would have almost no subject or at least in which the subject would be almost invisible.
+ - I have the handicap of being born with a special language to which I alone have the key.
+ - I detest my fellow-beings and do not feel that I am their fellow at all.
+ - God is only a word dreamed up to explain the world.
+ - Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.
+ - He dreamed of funeral love, but dreams crumble and the tomb abides.
+ - Coffee: Induces wit. Good only if it comes through Havre. After a big dinner party it is taken standing up. Take it without sugar – very swank: gives the impression you have lived in the East.
+ - My kingdom is as wide as the universe and my wants have no limits. I go forward always, freeing spirits and weighing words, without fear, without compassion, without love, without God. I am called science.
+ - There are three thing in the world I love most: the sea, Hamlet, and Don Giovanni.
+ - Of all lies, art is the least untrue.
+ - My life which I dream will be so beautiful, so poetic, so vast, so filled with love will turn out to be like everybody else’s – monotonous, sensible, stupid.
+ - But, in her life, nothing was going to happen. Such was the will of God! The future was a dark corridor, and at the far end the door was bolted.
+ - But the most wretched thing, is it not-is to drag out, as I do, a useless existence. If our pains were only of some use to someone, we should find consolation in the thought of the sacrifice.
+ - As words have an effective power of their own, curses reported against someone might turn against the speaker.
+ - When you reduce a woman to writing, she makes you think of a thousand other women.
+ - And so I will take back up my poor life, so plain and so tranquil, where phrases are adventures and the only flowers I gather aremetaphors.
+ - Madame Bovary is myself.
+ - One never tires of what is well written, style is life! It is the very blood of thought!
+ - You need a high degree of corruption or a very big heart to love absolutely everything.
+ - One mustn’t always believe that feeling is everything. In the arts, it is nothing without form.
+ - And he beholds the moon; like a rounded fragment of ice filled with motionless light.
+ - What a heavy oar the pen is, and what a strong current ideas are to row in!
+ - Woman is a vulgar animal from whom man has created an excessively beautiful ideal.
+ - Everything one invents is true, you may be perfectly sure of that. Poetry is as precise as geometry.
+ - You can’t find the soul with a scalpel.
+ - Better to work for yourself alone. You do as you like and follow your own ideas, you admire yourself and please yourself: isn’t that the main thing? And then the public is so stupid. Besides, who reads? And what do they read? And what do they admire?
+ - Love, to her, was something hat comes suddenly, like a blinding flash of lightening – a heaven-sent storm hurled into life, uprooting it, sweeping every will before it like a leaf, engulfing all feelings.
+ - On spinach: I dislike it, and am happy to dislike it because if I liked it I would eat it, and I cannot stand it.
+ - But some day sooner or later our passion would have cooled – inevitably – it’s the way with everything human.
+ - The hearts of women are like those little pieces of furniture with secret hiding – places, full of drawers fitted into each other; you go a lot of trouble, break your nails, and in the bottom find some withered flower, a few grains of dust – or emptiness!
+ - He had the vanity to believe men did not like him – while men simply did not know him.
+ - Farming – a vocation accursed of heaven, since one never saw a millionaire involved in it.
+ - The most important quality of art and its aim is illusion; emotion, which is often obtained by certain sacrifices of poetic detail, is something else entirely and of an inferior order.
+ - How we keep these dead souls in our hearts. Each one of us carries within himself his necropolis.
+ - The public wants work which flatters its illusions.
+ - Casting aspersions on those we love always does something to loosen our ties. We shouldn’t maltreat our idols: the gilt comes off on our hands.
+ - Noble characters and pure affections and happy scenes are very comforting things. They’re a refuge from life’s disillusionments.
+ - The citadel of Machaerus rose east of the Dead Sea on a basalt Peak shaped like a cone, girdled by four deep valleys; two about its sides, one in front, and the fourth behind.
+ - I have dreamed much and have done very little.
+ - Abstraction can provide stumbling blocks for people of strange intelligence.
+ - Stupidity is something unshakable; nothing attacks it without breaking itself against it; it is of the nature of granite, hard and resistant.
+ - A rich woman seems to have all her banknotes about her, guarding her virtue, like a cuirass, in the lining of her corset.
+ - I hate that which we have decided to call realism, even though I have been made one of its high priests.
+ - Everyone, either from modesty or egotism, hides away the best and most delicate of his soul’s possessions; to gain the esteem of others, we must only ever show our ugliest sides; this is how we keep ourselves on the common level.
+ - And the more he was irritated by her basic personality, the more he was drawn to her by a harsh, bestial sensuality, illusions of a moment, which ended in hate.
+ - The faster the word sticks to the thought, the more beautiful is the effect.
+ - In my view, the novelist has no right to express his opinions on the things of this world. In creating, he must imitate God: do his job and then shut up.
+ - They took each other’s advice, opened one book, went over to another, then did not know what to decide when opinions diverged so widely.
+ - I have patience in all things – as far as the antechamber.
+ - Everything depends on the value we give to things. We are the ones who make morality and virtue. The cannibal who eats his neighbor is as innocent as the child who sucks his barley-sugar.
+ - Melancholy is a sensual pleasure that is deliberately provoked. How many people shut themselves away to make themselves sadder, or to weep beside a stream, or choose a sentimental book! We are constantly building and unbuilding ourselves.
+ - Love is a springtime plant that perfumes everything with its hope, even the ruins to which it clings.
+ - Here is true immorality: ignorance and stupidity; the devil is nothing but this. His name is Legion.
+ - She was as sated with him as he was tired of her. Emma had rediscovered in adultery all the banality of marriage.
+ - Emma was no asleep, she was pretending to be asleep; and, while he was dozing off at her side, she lay awake, dreaming other dreams.
+ - Speech is a rolling press that always amplifies one’s emotions.
+ - Poetry is as precise a thing as geometry.
+ - As for the piano, the faster her fingers flew over it, the more he marveled. She struck the keys with aplomb and ran from one end of the keyboard to the other without a stop.
+ - Do not imagine you can exorcise what oppresses you in life by giving vent to it in art.
+ - Haven’t you ever happened to come across in a book some vague notion that you’ve had, some obscure idea that returns from afar and that seems to express completely your most subtle feelings?
+ - What seems beautiful to me, what I should like to write, is a book about nothing, a book dependent on nothing external, which would be held together by the strength of its style, just as the earth, suspended in the void, depends on nothing external for its support.
+ - Come, let’s be calm: no one incapable of restraint was ever a writer.
+ - What is glory? It is to have a lot of nonsense talked about you.
+ - How you measure the performance of your managers directly affects the way they act.
+ - Exuberance is better than taste.
+ - There comes a point at which you stop writing and think all the more.
+ - Art is nothing without form.
+ - I have come to have the firm conviction that vanity is the basis of everything, and finally that what one calls conscience is only inner vanity.
+ - My foregrounds are imaginary, my backgrounds real.
+ - For some men, the stronger their desire, the more difficult it is for them to act.
+ - Madame Aubain’s servant Felicite was the envy of the ladies of Pont-l’Eveque for half a century.
+ - I like prostitution. My heart has never failed to pound at the sight of one of those provocatively dressed women walking in the rain under the gaslamps, just as the sight of monks in their robes and girdles touches some ascetic, hidden corner of my soul.
+ - A memory is a beautiful thing, it’s almost a desire that you miss.
+ - And indeed, what is better than to sit by one’s fireside in the evening with a book, while the wind beats against the window and the lamp is buring?
+ - I invite all brats to throw their cookies at the baker’s head if they’re not sweet, winos to chuck their wine if it’s bad, the dying to shuck their souls when they croak, and men to throw their existence in God’s face when it’s bitter.
+ - The morality of art is in its very beauty.
+ - I believe that if one always looked at the skies, one would end up with wings.
+ - Let us not kid ourselves; let us remember that literature is of no use whatever, except in the very special case of somebody’s wishing to become, of all things, a Professor of Literature.
+ - Thought is the greatest of pleasures – pleasure itself is only imagination – have you ever enjoyed anything more than your dreams?
+ - I have no use for the kind of God who goes walking in his garden with a stick, sends his friends to live in the bellies of whales, gives up the ghost with a groan and then comes back to life three days later!
+ - We should not touch our idols: their gilding will remain on our hands.
+ - I am alone on this road strewn with bones and bordered by ruins! Angels have their brothers, and demons have their infernal companions. Yet I have but the sound of my scythe when it harvests, my whistling arrows, my galloping horse. Always the sound of the same wave eating away at the world.
+ - Judge the goodness of a book by the energy of the punches it has given you. I believe the greatest characteristic of genius, is, above all, force.
+ - A good sentence in prose should be like a good line in poetry, unchangeable, as rhythmic, as sonorous.
+ - Caught up in life, you see it badly. You suffer from it or enjoy it too much. The artist, in my opinion, is a monstrosity, something outside of nature.
+ - The author, in his work, must be like God in the Universe, present everywhere and visible nowhere.
+ - I go from exasperation to a state of collapse, then I recover and go from prostration to Fury, so that my average state is one of being annoyed.
+ - Concern for morality makes every work of the imagination false and stupid.
+ - Women want you to deceive them: they force you to, and if you resist, they blame you.
+ - I do not like to “interest” the public with myself.
+ - Talent is long patience.
+ - The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.
+ - I love good sense above all, perhaps because I have none.
+ - Isn’t ‘not to be bored’ one of the principal goals of life?
+ - Tout ce qu’on invente est vrai, soi-en sure. La poesie est une chose aussi precise que la geometrie.
+ - To be simple is no small matter.
+ - The true poet for me is a priest. As soon as he dons the cassock, he must leave his family.
+ - A superhuman will is needed in order to write, and I am only a man.
+ - I had, as I told you, a great passion while still almost a child. When it was over, I divided myself in two, placing on one side the soul I kept for Art, and on the other, my body, which would have to fend for itself.
+ - On certain occasions art can shake very ordinary spirits, and whole worlds can be revealed by its clumsiest interpreters.
+ - The cult of art gives pride; one never has too much of it.
+ - What wretched poverty of language! To compare stars to diamonds!
+ - Snicker on hearing his name: ‘the gentleman who thinks we are descended from the apes.’
+ - The great natures which are good, are above everything generous and don’t begrudge the giving of themselves.
+ - There are some men whose only mission among others is to act as intermediaries; one crosses them like bridges and keeps going.
+ - Once one has kissed a cadaver’s forehead, there always remains something of it on the lips, an infinite bitterness, an aftertasteof nothingness that nothing can erase.
+ - Life must be a constant education; one must learn everything, from speaking to dying.
+ - The writer must wade into life as into the sea, but only up to the navel.
+ - For every bourgeois, in the heat of youth, if only for a day, for a minute, has believed himself capable of immense passions, of heroic enterprises. The most mediocre libertine has dreamed of oriental princesses; every rotary carries about inside him the debris of a poet.
+ - She did not believe that things could remain the same in different places, and since the portion of her life that lay behind her had been bad, no doubt that which remained to be lived would be better.
+ - What an elder sees sitting; the young can’t see standing.
+ - I love my work with a frenetic and perverse love, as an ascetic loves the hair shirt which scratches his belly.
+ - Happiness is a monstrosity! Punished are those who seek it.
+ - The finest works of art are those in which there is the least matter. The closer expression comes to thought, the more the word clings to the idea and disappears, the more beautiful the work of art.
+ - You don’t know what it is to stay a whole day with your head in your hands trying to squeeze your unfortunate brain so as to find a word.
+ - It is splendid to be a great writer, to put men into the frying pan of your words and make them pop like chestnuts.
+ - There are neither good nor bad subjects. From the point of view of pure Art, you could almost establish it as an axiom that the subject is irrelevant, style itself being an absolute manner of seeing things.
+ - You’ll always have to deal with bastards, being lied to, deceived, slandered and ridiculed, but that’s to be expected and you must thank heaven when you meet the exception.
+ - By working one can bend fortune. She is fond of crafty men.
+ - Criticism occupies the lowest place in the literary hierarchy: as regards form, almost always; and as regards moral value, incontestably. It comes after rhyming games and acrostics, which at least require a certain inventiveness.
+ - If you knew all the dreams I’ve dreamed!
+ - Of all possible debauches, traveling is the greatest that I know; that’s the one they invented when they got tired of all the others.
+ - Sentences must stir in a book like leaves in a forest, each distinct from each despite their resemblance.
+ - He was bored now when Emma suddenly began to sob on his breast; and his heart, like the people who can only stand a certain amount of music, became drowsy through indifference to the vibrations of a love whose subtleties he could no longer distinguish.
+ - I am finding it very hard to get my novel started. I suffer from stylistic abscesses; and sentences keep itching without coming to a head.
+ - Style is as much under the words as in the words. It is as much the soul as it is the flesh of a work.
+ - We have all been beaten! Each one has to bear his misfortune! Resign yourself!
+ - It seems to me that I have always existed and that I possess memories that date back to the Pharaohs.
+ - One arrives at style only with atrocious effort, with fanatical and devoted stubbornness.
+ - Beautiful things spoil nothing.
+ - To see one’s name in print! Some people commit a crime for no other reason.
+
+239 quotes

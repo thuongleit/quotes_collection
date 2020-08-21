@@ -1,0 +1,74 @@
+ - If it makes you nervous- you’re doing it right.
+ - We lay out our lives in a narrative we understand, like a movie, but are you enjoying making it or are you wondering who’s watching my movie.
+ - Don’t be mad cuz I’m doing me better than you doing you.
+ - The worst is feeling worthless.
+ - May your dreams be sweet and your nightmares be spooky-monster-scary and not grandma-died-scary.
+ - I am what I am, everything I wanna be.
+ - Girls are supposed to dance. That’s why God gave them parts that jiggle.
+ - Careers very rarely are a waste of time; jobs usually are.
+ - I try to be me to the utmost.
+ - When I wanna be a superhero I just wake up.
+ - It seems the more I try to connect with the world, I am feeling more alone than I ever have felt before.
+ - I’m very impatient, so I was like, ‘I want to be able to do whatever I want now.’ But even the biggest stars – you look back and they weren’t overnight.
+ - Suicide is kinda dumb to me. If I wanna kill myself I will. It’s not hard to die, I could do it like right now. But why is everybody pretending like everything’s ok, Everything’s not ok. We are more connected than we’ve ever been, But I feel more alone than I’ve ever been.
+ - I hope in general that my music allows somebody to follow what they really like doing.
+ - Bright lights, they tend to burn out fast. So I shine bright, but I’m scared that it won’t last.
+ - I have an obsession with books about kids with Asperger’s syndrome.
+ - You have to be real with yourself. No one is doing that. People are too concerned with making everything look nice and calm and pretty.
+ - I don’t talk soft, that’s that other dude.
+ - When anybody pays you to be creative, you’re very lucky.
+ - Took the G out yo waffle, all you got left is your ego.
+ - Black men struggle with masculinity so much. The idea that we must always be strong really presses us all down – it keeps us from growing.
+ - You started rapping when you wasn’t good at basketball. I started rapping because I needed Adderall.
+ - Yes I’m grown and sexy, and I’m worth the wait. Girls act like I’m the only dude on earth to date.
+ - Revenge is for the weak so I have settled my vendettas with all of the kids who made my early life a living hell.
+ - I refuse to go back to not liking who I was.
+ - Girls who used to tell me I ain’t cool enough now text me pics saying you can tear this up!
+ - One thing my dad once said to me, “You either want to be right, or you want to be happy. To be happy, there’s gotta be a conversation.”
+ - Black culture is a fight. We want to hold on to what we are, but sometimes the things that we are can be totally negative. You have to think: can’t we try something new and not be seen as suspect?
+ - I felt like high school for me was like a big whirlpool of me trying to figure out what was OK for me to do.
+ - If you like strange, specific stuff – that’s a nerd. Kanye West is a black nerd. He likes strange, specific stuff. If you go up to Kanye West and say, ‘Hey, what are your favorite things?’ He’ll be like, ‘Robots and teddy bears.’ That’s a nerd.
+ - I’m trying hard not to use a specific reference, but you’ll probably know it’s you after the first sentence.
+ - Writing is a very strenuous thing – it’s like banging your head against a wall. At the end of the day, acting is better, just because nobody ever asked me if I wanted a Pellegrino in the writer’s room.
+ - I personally don’t believe people really grow. They just learn stuff when they were a kid, and hold on to it, and that affects every relationship they have.
+ - We put stereotypes on ourselves. Everybody does that. But I think it’s just a little harder for black kids to just be who they are.
+ - Most people think I’m Danny Glover’s son when they meet me. So when they ask, I say ‘No, I’m Crispin Glover’s son.’ Then we stare at each other for a long time.
+ - My swag is always capital and live in north Virginia.
+ - I hope a kid listens to my stuff, I hope there’s a change made and at least somebody walks away with: “I’m doing this because I like it.” People are going to hate it and that’s okay, but I have to do it because my happiness is important too, it’s worth it.
+ - I’m probably going to get in trouble for this but ‘American Dad’ is one of my favourite shows. It gets very dark in places but the jokes are there.
+ - What’s the point of rap if you can’t be yourself, huh?
+ - People are sometimes like: “Oh man, you’re so talented and you do a bunch of stuff.” I’m not! I swear to god, I’m not. I just like learning stuff, I like doing stuff. And I feel like everybody can definitely do it.
+ - Kept looking for something to be in with. Follow someone’s blueprint. But you have to be on your own.
+ - I like horror films and romance films. Films where you’re going in being like, ‘I’m coming here to be scared or to fall in love.’ You have a goal.
+ - I come around when you least expect me! I’m sitting at the bar when your glass is empty!
+ - To all my fans who’s saying Donald Glover about to blow, just give me six months so you can say I told you so.
+ - Don’t add an eezy to my name, ‘cause it has never been that’
+ - I don’t even think I’m that good at rapping, but I think what makes a great rapper – what CAN make a great rapper – is someone who wants to be better.
+ - I think it’s a comedian’s job to make everything funny. Nothing is off-limits.
+ - I don’t think I’m good, I don’t think I’m a good rapper. I think a lot of people always want me to battle somebody and stuff like that which is cool, but I don’t see myself as a rapper.
+ - Never kiss in public, but at home I am affectionate.
+ - The only reason I’m able to do music is because I’m making money on ‘Community.’ If I wasn’t, I couldn’t pay for things.
+ - Why does every girl in the world wanna date me? Especially right now man, especially when I’m busy!
+ - I think that’s what makes a good rapper. Somebody who wants to push themselves and their audience further.
+ - Twitter does have an effect on everything – things you put out there, they are out there for good.
+ - The thing about stand-up was, I was doing all this sketch and YouTube stuff where I was not being censored and I got to do my own thing, and it was really cool.
+ - They say my public persona don’t have enough appeal, I take a lesson from Kanye and give ’em something real.
+ - You’re always allowed to be better.
+ - Rapper, just puts so much connotation on who you are and what is exposed. Even if a lot of it is out-dated, people still bring a lot to it.
+ - I try and go to as many places as possible. It’s really cool that I even get to see different places.
+ - I feel like guys don’t think it’s cool to use emojis. I’m like, that’s so whack. Emojis help so much. They really do give context to something.
+ - Usually, if I think something is really funny, I’m not gonna test it. I’ll just test it when I’m onstage.
+ - You know who was on time tonight, which surprised me? Ghostface. Ghostface was early and making calls – what rapper does that?
+ - I call ‘Community’ the best day job in the world, because between takes, I get to write music. I get to write sketches. I get to write movies. It’s the best job ever.
+ - Also, I realized a lot of kids are listening to me. Whether I want to be or not, they’re looking up to me.
+ - I would never challenge any rapper to a rap-off. It’s weird, I’m not that type of rapper.
+ - I think the best music videos are the ones that have nothing to do with the song. Those are all my favorites.
+ - A lot of my sketches came from thoughts, and I always just wanted to act them out.
+ - You used to have to beg and be the busboy to do standup. I got on Community because people saw my videos on YouTube, which were free.
+ - I hope people come to the shows because they feel like there’s something there that I can’t necessarily articulate, but it’s real and it’s fun.
+ - There are some rappers out there that I listen to, that I’m like: “You are really good but you could be like the Michael Jordan of rap if you applied yourself.” There’s a lot of people who are better at basketball than Michael Jordan, but Michael Jordan just wanted to be Michael Jordan, more.
+ - But I just think I was lucky enough to figure out early on that I wanted to do comedy, so that’s what I put all my effort into.
+ - I feel like there’s a lot of rappers that could out-rap me and I wouldn’t want to face any of them.
+ - Dress like a gentleman, but my mouth is never civilized.
+
+72 quotes

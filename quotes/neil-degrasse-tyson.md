@@ -1,0 +1,351 @@
+ - The Universe is under no obligation to make sense to you.
+ - The good thing about science is that it’s true whether or not you believe in it.
+ - We are all connected; To each other, biologically. To the earth, chemically. To the rest of the universe atomically.
+ - Not only do we live among the stars, the stars live within us.
+ - Knowing how to think empowers you far beyond those who know only what to think.
+ - There's as many atoms in a single molecule of your DNA as there are stars in the typical galaxy. We are, each of us, a little universe.
+ - Math is the language of the universe. So the more equations you know, the more you can converse with the cosmos.
+ - We spend the first year of a child's life teaching it to walk and talk and the rest of its life to shut up and sit down. There's something wrong there.
+ - When students cheat on exams it’s because our school system values grades more than students value learning.
+ - Curious that we spend more time congratulating people who have succeeded than encouraging people who have not.
+ - For me, I am driven by two main philosophies: know more today about the world than I knew yesterday and lessen the suffering of others. You’d be surprised how far that gets you.
+ - Follow the evidence wherever it leads, and question everything.
+ - Science reveals that all life on Earth is one.
+ - Everyone should have their mind blown once a day.
+ - We are part of this universe; we are in this universe, but perhaps more important than both of those facts, is that the universe is in us.
+ - Dinosaurs are extinct today because they lacked opposable thumbs and the brainpower to build a space program.
+ - To learn more about science, turn off your electronic device and go outside and look around a bit. Nature is calling you. Go on. The internet will still be here.
+ - If you’re scientifically literate, the world looks very different to you, and that understanding empowers you.
+ - I think of space not as the final frontier but as the next frontier. Not as something to be conquered but to be explored.
+ - The remarkable feature of physical laws is that they apply everywhere, whether or not you choose to believe in them. After the laws of physics, everything else is opinion.
+ - There is no greater education than one that is self-driven.
+ - Ignorance is a virus. Once it starts spreading, it can only be cured by reason. For the sake of humanity, we must be that cure.
+ - I dream of a world where the truth is what shapes people’s politics, rather than politics shaping what people think is true.
+ - We are not figuratively, but literally Stardust.
+ - Photography is a form of time travel.
+ - If your belief system is not founded in an objective reality, you should not be making decisions that affect other people.
+ - Pretending to know everything closes the door to finding out what’s really there.
+ - The day we stop exploring is the day we commit ourselves to live in a stagnant world, devoid of curiosity, empty of dreams.
+ - When you are a hammer, all of your problems will look like nails to you.
+ - As areas of knowledge grow, so too do the perimeters of ignorance.
+ - If you want to assert a truth, first make sure it’s not just an opinion that you desperately want to be true.
+ - Science literacy is a vaccine against the charlatans of the world that would exploit your ignorance.
+ - Relativity. Gravity. Quantum. Electrodynamics. Evolution. Each of these theories is true, whether or not you believe in them.
+ - One thing in life is for certain, the more profoundly baffled you have been in your life, the more open your mind becomes to new ideas.
+ - Intelligent design is a philosophy of ignorance.
+ - All information is good, even when it is bad.
+ - If we have the power to turn another planet into Earth, then we have the power to turn Earth back into Earth.
+ - Aliens might be surprised to learn that in a cosmos with limitless starlight, humans kill for energy sources buried in the sand.
+ - I think the best thing a parent can do, when raising a child, is simply get out of their way.
+ - Space exploration is a force of nature unto itself that no other force in society can rival.
+ - On this day long ago, a child was born who, by age 30, would transform the world. Happy Birthday Isaac Newton b. Dec 25, 1642.
+ - It’s my duty to enlighten people.
+ - When we try to look farther into the universe we come to what appears to be the end of space but actually it’s the beginning of time.
+ - Feeling a little small? Well, in the context of the cosmos, we are small.
+ - The most successful people recognize that in life they create their own love, they manufacture their own meaning, they generate their own motivation.
+ - Science is like an inoculation against charlatans who would have you believe whatever it is they tell you.
+ - In life and in the universe it’s always best to keep looking up.
+ - Give a kid a book, and you change the world. In a way, even the universe.
+ - Science is a way of equipping yourself with the tools to interpret what happens in front of you.
+ - Not only are we in the universe, the universe is in us. I don’t know of any deeper spiritual feeling than what that brings upon me.
+ - I’m often asked whether I believe in Global Warming. I now just reply with the question: “Do you believe in Gravity?”
+ - The greatest of people that have ever been in society, they were never versions of someone else. They were themselves.
+ - Down there between our legs, it’s like an entertainment complex in the middle of a sewage system. Who designed that?
+ - Our five senses are faulty data-taking devices, and they need help.
+ - The only way you can invent tomorrow is if you break out of the enclosure that the school system has provided for you by the exams written by people who are trained in another generation.
+ - Why can’t we summon the ingenuity and courage of the generations that came before us? The dinosaurs never saw that asteroid coming. What’s our excuse?
+ - For your own safety, do not ever tell an astrophysicist, I hope all your stars are twinkling.
+ - No one is dumb who is curious.
+ - Perhaps these ancient observatories like Stonehenge perennially impress modern people because modern people have no idea how the Sun, Moon, or stars move. We are too busy watching evening television to care what’s going on in the sky.
+ - I think if everyone had the luxury to pursue a life of exactly what they love, we would all be ranked as visionaries and brilliant.
+ - People like it when they understand something that they previously thought they couldn’t understand. It’s a sense of empowerment.
+ - Does the full moon affect people’s behavior, you ask? Yup. It makes people think the full moon affects people’s behavior.
+ - So maybe part of our formal education should be training in empathy. Imagine how different the world would be if, in fact, that were ‘reading, writing, arithmetic, empathy.’
+ - Science is a philosophy of discovery. Intelligent design is a philosophy of ignorance. You cannot build a program of discovery on the assumption that nobody is smart enough to figure out the answer to a problem.
+ - What are the lessons to be learned from this journey of the mind through the universe? That humans are emotionally fragile, perennially gullible, hopelessly ignorant masters of an insignificantly small speck in the cosmos. Have a nice day.
+ - Scientific inquiry shouldn’t stop just because a reasonable explanation has apparently been found.
+ - Extreme skepticism and extreme gullibility are two equal ways of not having to think at all. And I don’t think I’m the first to say that.
+ - Quantum physics fluctuates all the time. But now the fluctuations are not just particles coming into and out of existence, which happens all the time. It’s whole universes coming into and out of existence.
+ - My view is that if your philosophy is not unsettled daily then you are blind to all the universe has to offer.
+ - We are star dust in the highest exalted way, called by the universe, reaching out to the universe.
+ - What would aliens say when told earthlings shift clocks twice a year to fool themselves into thinking there’s more sunlight?
+ - What I’m saying is, when different experiments give you the same result, it is no longer subject to your opinion. That’s the good thing about science: It’s true whether or not you believe in it. That’s why it works.
+ - Our nation is turning into an idiocracy.
+ - Society needs to see science not as a luxury of funding but as a fundamental activity that drives enlightenment, economics, and security.
+ - Whenever people have used religious documents to make accurate predictions about our base knowledge of the physical world, they have been famously wrong.
+ - As children we all wonder – we wonder all the time. And that gets lost in adulthood. It gets beaten out, it gets filtered out or diluted out.
+ - I’m a little fatigued of adults saying we’ve got to worry about the kids. And these are the same adults that don’t know science and are running things and wielding resources and legislation.
+ - Claiming there is no other life in the universe is like scooping up some water, looking at the cup and claiming there are no whales in the ocean.
+ - In the animal kingdom, one of the keys to survival is to outwit your enemies. And when you’re surrounded by carnivores, one of the best strategies is to fade into the background and disappear.
+ - I want to put on the table, not why 85% of the members of the National Academy of Sciences reject God, I want to know why 15% of the National Academy don’t.
+ - Physics is the only profession in which prophecy is not only accurate but routine.
+ - I’ve known from long ago that the universe was calling me. If you were one of those annoying adults that said, ‘Oh, what are you gonna be when you grow up?’ I would say, ‘Astrophysicist .’ And then they’d walk away real quickly.
+ - In physics, opinions don’t matter, only demonstrated experiments. The day the fellow succeeds, if ever, he won’t need anybody else’s opinion.
+ - Let us not fool ourselves into thinking we went to the Moon because we are pioneers, or discoverers, or adventurers. We went to the Moon because it was the militaristically expedient thing to do.
+ - When you innovate, you create new industries that then boost your economy. And when you create new industries and that becomes part of your culture, your jobs can’t go overseas because no one else has figured out how to do it yet.
+ - That is a big question we all have: are we alone in the universe? And exoplanets confirm the suspicion that planets are not rare.
+ - Astronauts are the only kind of celebrity I know who can have a line of people waiting for their autograph, even if the line of people does not know in advance the astronaut’s name.
+ - The typical person has no trouble believing without knowing. What people need to realize is simply that you do not need to believe to know.
+ - I agree that we should go back to the moon and on to Mars. We should treat all objects in the solar system, including comets and asteroids, as exploration targets.
+ - The first colony on Mars is not going to be built by a private company. How are you going to make money? You’re not.
+ - You can make a stack high enough to reach the moon and back, and only then will you have used your 100 billion hamburgers. This is terrifying news to cows.
+ - Like no other science, astrophysics cross-pollinate s the expertise of chemists, biologists, geologists and physicists, all to discover the past, present, and future of the cosmos-and our humble place within it.
+ - I don’t want to go into space because of war. I think we would if it was triggered. If China said they want to put military bases on Mars, we’d be at Mars in two years. That would be quick. I don’t want that to be the reason.
+ - If there were biologists among the extremophiles organisms that live in extreme conditions, they would surely classify themselves as normal and any life that thrived in room temperature as an extremophile.
+ - It’s short-sighted to think ads won’t one day end up wherever humans are – even the moon.
+ - In any city with lots of skyscrapers, lots of skyline, the moon seems bigger than it is. It’s called the moon illusion.
+ - Unlike what you may be told in other sectors of life, when observing the universe, size does matter, which often leads to polite ‘telescope envy’ at gatherings of amateur astronomers.
+ - When everyone agrees to a single solution and a single plan, there’s nothing more efficient in the world than an efficient democracy.
+ - Access to science is greater than ever before. There are more vehicles out there that grant the public access to science. Not to mention the Internet.
+ - We’re talking about a being whose very existence challenges our own sense of priority in the universe.
+ - When I reach to the edge of the universe, I do so knowing that along some paths of cosmic discovery, there are times when, at least for now, one must be content to love the questions themselves.
+ - There is no true understanding of Biology without Chemistry. And there’s no true understanding of Chemistry without Physics.
+ - Space enthusiasts are the most susceptible demographic to delusion that I have ever seen.
+ - You have the illusion of free will, but, in fact, that illusion comes about because you don’t know the future. Because you are a prisoner of the present, forever locked in transition, between the past and the future.
+ - Where ignorance lurks, so too do the frontiers of discovery and imagination.
+ - To achieve this density of a neutron star at home, just cram a herd of 50 million elephants into the volume of a thimble.
+ - When NASA says they’re going into space, they don’t mean up and back. They mean orbit.
+ - Perhaps we’ve never been visited by aliens because they have looked upon Earth and decided there’s no sign of intelligent life.
+ - Science literacy is the artery through which the solutions of tomorrow’s problems flow.
+ - No one is dumb who is curious. The people who don’t ask questions remain clueless throughout their lives.
+ - Science is not a subject you took in school. It’s life. We are wrapped by it, in it, with it.
+ - The theory of evolution, like the theory of gravity, is a scientific fact.
+ - I try to show the public that chemistry, biology, physics, astrophysics is life. It is not some separate subject that you have to be pulled into a corner to be taught about.
+ - If cosmological theory were dominated by women, who are no strangers to cycles, how can we know for sure that we wouldn’t then be told that the oscillating universe is the more aesthetically fulfilling alternative?
+ - The Big Bang Theory: When geeky scientists can be main characters in a hit prime time series, you know there’s hope for the world.
+ - Whether or not you can become great at something, you can always become better.
+ - Kids should be allowed to break stuff more often. That’s a consequence of exploration. Exploration is what you do when you don’t know what you’re doing.
+ - If there’s something that someone else can do, let them do it. If I couldn’t do it uniquely, let someone else do it and I would get back to the lab.
+ - WhenIWasYourAge: People were never “living with their disease.” We cured them. Or they died from it.
+ - No matter what eyewitness testimony is in the court of law, it is the lowest form of evidence in the court of science.
+ - Words that make questions may not be questions at all.
+ - I as an astrophysicist, see the universe, feel the universe, smell the universe every day. Every day. And for people to say, I’m cool, I’m right here, it’s all I need.
+ - In five billion years, the sun will expand and engulf our orbit as the charred ember that was once Earth vaporizes. Have a nice day.
+ - A scientist is just a kid who never grew up.
+ - Passion is what gets you through the hardest times that might otherwise make strong men weak, or make you give up.
+ - Just to settle it once and for all: Which came first, the chicken or the egg? The egg, laid by a bird that was not a chicken.
+ - We went to the moon and discovered earth.
+ - Even with all our technology and the inventions that make modern life so much easier than it once was, it takes just one big natural disaster to wipe all that away and remind us that, here on Earth, we’re still at the mercy of nature.
+ - So what is true for life itself is no less true for the universe: knowing where you came from is no less important than knowing where you are going.
+ - Dreams about the future are always filled with gadgets.
+ - Everything we do, every thought we’ve ever had, is produced by the human brain. But exactly how it operates remains one of the biggest unsolved mysteries, and it seems the more we probe its secrets, the more surprises we find.
+ - If the Sun exploded, we wouldn’t know about it for 8 minutes and 20 seconds. Light and gravity take that long to reach us. Then we would vaporize.
+ - In the end, it’s the people who are curious who change the world.
+ - God is an ever receding pocket of? scientific ignorance.
+ - I know of no time in human history where ignorance was better than knowledge.
+ - We need more science in the world. Train me.
+ - Private enterprise can never lead a space frontier. It’s not possible because a space frontier is expensive, it has unknown risks and it has unquantified risks.
+ - The past is another planet.
+ - Many people feel small because they’re small and the universe is big, but I feel big.
+ - Imagination alone is not enough, because the reality of nature is far more wondrous than anything we can imagine.
+ - The limits on your enlightenment come not from the age you stopped going to school but from the age you stopped being curious.
+ - The iron from that meteorite and the iron from your blood have common origin in the core of a star.
+ - I want to encourage people to not think in terms of gifts, but think in terms of, wow. You work hard to succeed at that, because that’s exactly what I do.
+ - Revelation replaced investigation.
+ - I would request that my body in death be buried not cremated, so that the energy content contained within it gets returned to the earth, so that flora and fauna can dine upon it, just as I have dined upon flora and fauna during my lifetime.
+ - All the traditional STEM fields, the science, technology, engineering, and math fields, are stoked when you dream big in an agency such as NASA.
+ - Italy valued cathedrals while Spain valued explorers. So worldwide, five times as many people speak Spanish than Italian.
+ - If it’s a new planet, sign me up. I’m tired of driving around the block, boldly going where hundreds have gone before in orbit around earth-give me a place to go and I’ll go.
+ - Imagine a world in which we are all enlightened by objective truths rather than offended by them.
+ - So not enough people in this world, I think, carry a cosmic perspective with them. It could be life-changing.
+ - I don’t want people to say, ‘Something is true because Tyson says it is true.’ That’s not critical thinking.
+ - Whether or not you can never become great at something, you can always become better at it. Don’t ever forget that! And don’t say “I’ll never be good”. You can become better! and one day you’ll wake up and you’ll find out how good you actually became.
+ - Some air you inhale was exhaled by Cleopatra.
+ - 85 percent of the gravity of the universe has a point of origin about which we know nothing.
+ - Santa knows Physics: Of all colors, Red Light penetrates fog best. That’s why Benny the Blue-nosed reindeer never got the gig.
+ - Wanna lose 1200 Calories a month? Drink a liter of ice water a day. You burn the energy just raising the water to body temp.
+ - If aliens did visit us, I’d be embarrassed to tell them we still dig fossil fuels from the ground as a source of energy.
+ - Today, scientists sound the alarm on other environmental dangers. Vested interests still hire their own scientists to confuse the issue. But in the end, nature, will not be fooled.
+ - And extracting one molecule’s signature in spectral analysis from the rest of the signatures is hard work, sort of like picking out the sound of your toddler’s voice in a roomful of screaming children during playtime. It’s hard, but you can do it.
+ - Part of knowing how to think is knowing how the laws of nature shape the world around us. Without that knowledge, without that capacity to think, you can easily become a victim of people who seek to take advantage of you.
+ - UV is bad for molecules because its high energy breaks the bonds between a molecule’s constituent atoms. That’s why UV is bad for you, too: it’s always best to avoid things that decompose the molecules of your flesh.
+ - The more of us that feel the universe, the better off we will be in this world.
+ - I’m not criticizing the science in Star Wars. That’s a waste of everybody’s time.
+ - To believe in a universe as young as 6- or 7,000 years old, is to extinguish the light of most of the galaxy.
+ - In modern times, if the sole measure of what’s out there flows from your five senses then a precarious life awaits you.
+ - Countless women are alive today because of ideas stimulated by a design flaw in the Hubble Space Telescope.
+ - The very nature of science is discoveries, and the best of those discoveries are the ones you don’t expect.
+ - Mars once was wet and fertile. It’s now bone dry. Something bad happened on Mars. I want to know what happened on Mars so that we may prevent it from happening here on Earth.
+ - Kids are born curious about the world. What adults primarily do in the presence of kids is unwittingly thwart the curiosity of children.
+ - Curiously, light-loving green plants reject the Sun’s green light, reflecting it back at you, which is why they look green.
+ - Science is a cooperative enterprise spanning the generations. It’s the passing of a torch from teacher to student to teacher. A community of minds, reaching back to antiquity and forward to the stars.
+ - When Kennedy said, ‘Let’s go to the moon,’ we didn’t yet have a vehicle that wouldn’t kill you on launch. He said we’ll land a man on the moon in eight years and bring him back. That was an audacious goal to put forth in front of the American people.
+ - I knew my interest in the universe and I owned a telescope that I bought with money I earned by walking dogs. 50 cents per walk, per dog, and that accumulated quickly. I bought a camera, a telescope. I taught myself astrophotography. I did all this.
+ - If each dead person became a ghost, there’d be more than 100 billion of them haunting us all. Creepy, but cool.
+ - The chances that your tombstone will read ‘Killed by Asteroid’ are about the same as they’d be for ‘Killed in Airplane Crash.’
+ - As a scientist, I want to go to Mars and back to asteroids and the Moon because I’m a scientist. But I can tell you, I’m not so naive a scientist to think that the nation might not have geopolitical reasons for going into space.
+ - We live in the kind of society where, in almost all cases, hard work is rewarded.
+ - I didn’t even know there were stars to look at to not see. If you don’t know that they’re there, you don’t know that you’re missing them.
+ - It is astonishing to realize that until Galileo performed his experiments on the acceleration of gravity in the early seventeenth century, nobody questioned Aristotle’s falling balls. Nobody said, Show Me!
+ - After 50 years of television, there’s no other conclusion the aliens could draw, but that most humans are neurotic, death-hungry, dysfunctional idiots.
+ - With no gravitational force to work against, your body not only doesn’t need the same amount of muscle and bone, it starts breaking them down. As on Earth, so in space: use it or lose it. And exercise may not solve the problem.
+ - God displayed a sense of humor when he configured the region between our legs an entertainment complex built around a sewage system.
+ - I am proud to be part of a species where a subset of its members willingly put their lives at risk to push the boundaries of our existence.
+ - Odd how often blood is shed to obtain freedom from those in power. Oppressors must be the most insecure people in the world.
+ - Only when creative people take ownership of cosmic discovery will society accept science as the cultural activity that it is.
+ - Science is basically an inoculation against charlatans.
+ - Emotional truths woven by lawyers in the court of law are apparently more important than the truths of actual events. I have grown to fear for those whose innocence became trapped within the legal system.
+ - We are not simply in the universe, we are part of it. We are born from it. One might even say we have been empowered by the universe to figure itself out – and we have only just begun.
+ - A conspiracy theorist is a person who tacitly admits that they have insufficient data to prove their points. A conspiracy is a battle cry of a person with insufficient data.
+ - Your center of mass is a place you cannot visit but you always carry with you. Like memories, it is part of life’s baggage.
+ - When scientifically investigating the natural world, the only thing worse than a blind believer is a seeing denier.
+ - Exploration is what you do when you don’t know what you’re doing. That’s what scientists do every day. If a scientist already knew what they were doing, they wouldn’t be discovering anything, because they already knew what they were doing.
+ - If Neptune were analogized with a Chevy Impala in mass, then how big is pluto compared to that? Pluto would be a matchbox car sitting on the curb.
+ - If Pizza sizes were given in area not diameter, you’d see instantly that a 7 inch is less than half the size of a 10 inch pie.
+ - If you need to invoke your academic pedigree or job title for people to believe what you say, then you need a better argument.
+ - If you’re a scientist, and you have to have an answer, even in the absence of data, you’re not going to be a good scientist.
+ - Today secular philosophers call that kind of divine invocation God of the gaps-which comes in handy, because there has never been a shortage of gaps in people’s knowledge.
+ - The supermoon is a 16-inch pizza compared with a 15-inch pizza. It’s a slightly bigger moon; I ain’t using the adjective ‘supermoon.’
+ - The last person I ever want working for me is someone who says ’that’s not in my job description.
+ - It’s better to understand something than to memorize something.
+ - For me, the most fascinating interface is Twitter. I have odd cosmic thoughts every day and I realized I could hold them to myself or share them with people who might be interested.
+ - There’s a lot of memorization that goes on in school. You memorize vocabulary words and all these sorts of things.
+ - If you want a nation to have space exploration ambitions, you’ve got to send humans.
+ - What are you doing? Why are you concerning yourself with the meaning of meaning?
+ - I’ve accomplished enough in life so that I do not fear death.
+ - One should not be too distracted by definitions. Ideas transcend definitions.
+ - We’re an elective democracy where science and technology will define where the economically strong countries in the world will be. And science and technological literacy is important for security, as well.
+ - If the only time you think of me as a scientist is during Black History Month, then I must not be doing my job as a scientist.
+ - For centuries, magicians have intuitively taken advantage of the inner workings of our brains.
+ - I want and need the artist to take me to new places, and the new place that Van Gogh took me not the sky as it is but the sky as he felt it. And the more of us that feel the universe, the better off we will be in this world.
+ - Why can’t Pluto be a planet? Some people like Pluto. And if it doesn’t exist then they don’t have a favorite planet. Right? Please write back but not in cursive because I can’t read cursive.
+ - The worst thing that ever happened to America was the 19th Amendment.
+ - So when I think of, what is the meaning of life, to me, that’s not an eternal unanswerable question. To me it is in arms reach of me every day.
+ - I love the future we might invent for ourselves that I have not yet dreamt of.
+ - I’m a fan of the planets in any combination. When I was born, Mercury, Venus, Jupiter, Saturn, Uranus, Neptune, Pluto, the Sun, and the Moon were all in the sky.
+ - Rational thoughts never drive people’s creativity the way emotions do.
+ - The day that you stop looking – because you’re content God did it – I don’t need you in the lab. You’re useless on the frontier of understanding the nature of the world.
+ - Doing what has never been done before is intellectually seductive, whether or not we deem it practical.
+ - The people talking on their cell phone and following GPS instructions to where grandma’s house is saying I don’t need space – excuse me, that’s how you know where grandma lives, and when to make the left turn.
+ - Everyone has all different experiences in school. I just know that throughout my life, at no time did any teacher ever point to me and say, hey. He’ll go far.
+ - Any astrophysicist does not feel small looking up at the universe; we feel large.
+ - The tenacity of life is mind-boggling. We keep finding it where no one thought it could be.
+ - I can tell you about the universe, but she feels it; and when you feel the universe, it has a whole other meaning to you. Otherwise, you just put a Wiki page on camera. You can learn something, but it won’t mean anything to you later on.
+ - Space is the ultimate frontier. I think when people historically thought of the frontier, there was where you were living and then there was some edge beyond which no one had explored.
+ - I lose sleep at night wondering whether we are intelligent enough to figure out the universe. I don’t know.
+ - You don’t want to raise a kid in a culture where the kid who asks the most questions is annoying. You want a culture where the kid who asks the most questions gets awards and gets another piece of cake.
+ - If Mars formed life, then life on Earth could have been seeded by life on Mars, making every life form on Earth descended from Martians.
+ - I’d rather enjoy the money, and then be buried, offering my body back to the flora and fauna of which I have dined my whole life.
+ - I remain unconvinced that anything other than rapid decomposition is the fate of my body and mind after death.
+ - Next time you’re stunned by a large moon on the horizon, bend over and view it between your legs. The effect goes away entirely.
+ - Miniaturization of electronics started by NASA’s push became an entire consumer products industry. Now we’re carrying the complete works of Beethoven on a lapel pin listening to it in headphones.
+ - As a child, I was aware that, at night, infrared vision would reveal monsters hiding in the bedroom closet only if they were warm-blooded. But everybody knows that your average bedroom monster is reptilian and cold-blooded.
+ - Scientists are human. We have our blind spots and prejudices. Science is a mechanism designed to ferret them out. Problem is we aren’t always faithful to the core values of science.
+ - Humans aren’t as good as we should be in our capacity to empathize with feelings and thoughts of others, be they humans or other animals on Earth.
+ - The universe is almost 14 billion years old, and, wow! Life had no problem starting here on Earth! I think it would be inexcusably egocentric of us to suggest that we’re alone in the universe.
+ - I never volunteer to talk about god or religion, but people feel compelled to talk about it.
+ - If you get asteroids about a kilometer in size, those are large enough and carry enough energy into our system to disrupt transportation, communication, the food chains, and that can be a really bad day on Earth.
+ - The persistent failures of controlled, double-blind experiments to support the claims of parapsychology suggest that what’s going on is nonsense rather than sixth sense.
+ - There are street artists. Street musicians. Street actors. But there are no street physicists. A little known secret is that a physicist is one of the most employable people in the marketplace – a physicist is a trained problem solver.
+ - The universe is hilarious! Like, Venus is 900 degrees. I could tell you it melts lead. But that’s not as fun as saying, ‘You can cook a pizza on the windowsill in nine seconds.’ And next time my fans eat pizza, they’re thinking of Venus!
+ - I think on some level, role models are overrated If you require a role model who looks just like you to be something you wanna be and you can’t find one, is that a reason to not be what you wanna be? No!
+ - You don’t take a dead cat to the vet. I mean you might, but why?
+ - Evidence my 14yr old daughter is geek-literate: In lieu of OK, one might type K while texting. She instead typed “Potassium”.
+ - You get to say that the Earth is flat because we live in a country that guarantees your free speech. But it’s not a country that guarantees that anything you say is correct.
+ - I can’t think that leaving Earth once is enough.
+ - As important as the civil rights movement was, I think what will rise to the top is that we left Earth in that time.
+ - Gamma rays are the sort of radiation you should avoid. Want proof? Just remember how the comic strip character “The Hulk” became big, green, and ugly.
+ - We didn’t go to the moon to explore or because it was in our DNA or because we’re Americans. We went because we were at war and we felt a threat.
+ - Would a NASA reality show “Lunar Shore” be more popular than “Jersey Shore?” Civilization’s future depends on that answer.
+ - The urge to miniaturize electronics did not exist before the space program. I mean our grandparents had radios that was furniture in the living room. Nobody at the time was saying, ‘Gee, I want to carry that in my pocket.’ Which is a non-thought.
+ - The Venus transit is not a spectacle the way a total solar eclipse is a spectacle.
+ - Some of the greatest poetry is revealing to the reader the beauty in something that was so simple you had taken it for granted.
+ - If there’s some kind of rock star status, would I be irresponsible if I didn’t somehow use it for a continued greater good? I’m always involved in some way with reaching the public.
+ - I want people to see that the cosmic perspective is simultaneously honest about the universe we live in and uplifting, when we realize how far we have come and how wonderful is this world of ours.
+ - We need to look at NASA, not as a handout, but as an investment.
+ - The universe’s destiny has very little to do with the near-term destiny of Earth.
+ - The depth of experience fine wine can bring to a dinner, particularly a bottle that has been through the past 100 years, makes you take stock of your own life.
+ - I wonder if, in fact, we have been observed by aliens and upon close examination of human conduct and human behavior they have concluded that there is no sign of intelligent life on Earth.
+ - The more I learn about the universe, the less convinced I am that there’s any sort of benevolent force that has anything to do with it, at all.
+ - The greatest teachers are the ones that turn a B student into an A student, or a failing student into a B student.
+ - A state of negative energy means that you are essentially getting something for nothing.
+ - Photons are accurately and legitimately described as waves and particles at the same time. They are genuine wavicles.
+ - Space in general gave us GPS – that’s not specifically NASA, but it’s investments in space.
+ - Any time we are answer-driven rather than idea driven, we have lost the true meaning of education.
+ - While I’m a big fan of science fiction, especially as rendered in expensive Hollywood blockbusters, it’s the real universe that calls to me. To fall into a black hole, that is more amazing than anything I’ve ever read in a science-fiction story.
+ - Computers have proved to be formidable chess players. In fact, they’ve beaten our top human chess champions.
+ - NASA has spin-offs, and it’s a huge and very impressive list, including accurate and affordable LASIK eye surgery.
+ - The whole society has to recognize the importance of the value in embracing what science is going into the 21st Century. Otherwise, we might as well start packing and moving back into the cave right now, because that’s where we’ll end up.
+ - With automatic spell checkers running unleashed over what we compose, our era is that of correctly spelled typos.
+ - You can’t have people making decisions about the future of the world who are scientifically illiterate. That’s a recipe for disaster. And I don’t mean just whether a politician is scientifically literate, but people who vote politicians into office.
+ - Space only becomes ordinary when the frontier is no longer being breached.
+ - There’s a saying in the scientific community, that every great truth goes through three phases. First, people deny it. Second, they say that it conflicts with the Bible. Third, they say that they’ve known it all along.
+ - Seventy percent of Earth’s surface is water and over 99 percent is uninhabited, so you would expect nearly all impactors to hit either the ocean or desolate regions on Earth’s surface. So why do movie meteors have such good aim?
+ - The greatest explorer of recent decades is not even human.
+ - Practically every food you buy in a store for consumption by humans is genetically modified food. There are no wild, seedless watermelons. There’s no wild cows.
+ - In America, there are people who don’t read science fiction but still think about tomorrow, so it’s not only the force of science-fiction that makes you a tomorrow thinker.
+ - We fail in even the simplest of all scientific observations-nobody looks up anymore.
+ - Modern science is under no obligation to satisfy the expectations of your five senses.
+ - The center line of science literacy – which not many people tell you, but I feel this strongly, and I will go to my grave making this point – is how you think.
+ - I never got into ‘Star Wars.’ Maybe because they made no attempt to portray real physics. At all.
+ - After all, what nobler thought can one cherish than that the universe lives within us all?
+ - There is a growing awareness that we’re losing our technological competitive edge. I think there’s an awareness that we’re losing our leadership, and that maybe our self image over the past several decades has been a little bit delusional.
+ - To the scientist, the universality of physical laws makes the cosmos a marvelously simple place. By comparison, human nature-the psychologist’s domain-is infinitely more daunting.
+ - The methods and tools of science perennially breach barriers, granting me confidence that our epic march of insight into the operations of nature will continue without end.
+ - I object to religion in science classrooms not because it’s religion but because it’s not science.
+ - No one with a living room radio that was a piece of furniture at the time would say, gee. I want to carry that around on my hip pocket. That was not a thought until NASA initiated this whole exercise. So there’s an influence that’s not just spinoff.
+ - What’s up with chicks and science?
+ - Never presume that just because you disagree with an idea that you must be correct.
+ - All tweets are tasty. Any tweet anybody writes is tasty. So, I try to have each tweet not simply be informative, but have some outlook, some perspective that you might not otherwise had.
+ - If all that you see, do, measure and discover is the will of a deity, then ideas can never be proven wrong, you have no predictive power, and you are at a loss to understand the principles behind most of the fundamental interconnections of nature.
+ - Kids are never the problem. They are born scientists. The problem is always the adults. They beat the curiosity out of kids. They outnumber kids. They vote. They wield resources. That’s why my public focus is primarily adults.
+ - If a scientist is not befuddled by what they’re looking at, then they’re not a research scientist.
+ - Ever since there have been people, there have been explorers, looking in places where other hadn’t been before. Not everyone does it, but we are part of a species where some members of the species do-to the benefit of us all.
+ - No one wants to die, and no one wants to die poor. These are the two fundamental truths that transcend culture, they transcend politics, they transcend economic cycles.
+ - The universe is so amazing and so limitless, who wouldn’t want to study the universe?
+ - People like death and mayhem.
+ - The history of science shows that great mysteries get solved. It may be that there’s an answer that humans are too stupid to understand. I’m intrigued by that possibility.
+ - I’d bet almost anything that life from another planet, if formed independently from life on Earth, would be more different from all species of Earth life than any two species of Earth life are from each other.
+ - I have yet to see a successful prediction about the physical world that was inferred or extrapolated from the content of any religions document.
+ - We are in the universe and the universe is in us.
+ - America 2012: The Learning Channel has HoneyBooBoo, History Channel has PawnStars: and the Science Channel has PumpkinChunkin.
+ - WhenIWasYourAge: We had to open all doors by ourselves. None of them knew we were coming.
+ - There’s no tradition of scientists knocking down the Sunday school door, telling the preacher, That might not necessarily be true. That’s never happened. There’re no scientists picketing outside of churches.
+ - I can’t tell you how many people say they were turned off from science because of a science teacher that completely sucked out all the inspiration and enthusiasm they had for the course.
+ - On some issues, I’m a staunch Conservative – like curtailing greenhouse gas emissions so that we can Conserve the environment.
+ - Deep in the world of atomic nuclei, life is not always tranquil.
+ - I believe that the manned space program can engage the public by advancing the space frontier. Every next mission takes you farther out in space than you were before, either technologically or in terms of distance.
+ - Note, however, that you cannot simply add temperatures the way you can add volumes or weights. Two people in bed, each with body temperatures of 98.6 degrees Fahrenheit, do not normally create a 197.2 degree under-the-cover oven.
+ - If you seek only easy problems to solve, then ultimately, there’ll be nothing about you to distinguish yourself from others.
+ - Knowledge of the natural world and how it works should be counted as fundamental to informed governance. You can’t have a functioning democracy, if the electorate is under-informed or, worse, mis-informed.
+ - When your reasons for believing something are justified ad hoc, you are left susceptible to further discoveries undermining the rationale for that belief.
+ - It seems that we’re better at finding someone to blame for our problems than we are at finding creative solutions to fix them.
+ - Grab something off the shelf that’s on the spaceship-an ashtray, it doesn’t matter what. Because I can tell you, if they flew here from another galaxy, no matter what you’ve pulled off the shelf, it’ll be unlike anything we have on Earth.
+ - I was born the same week NASA was founded, so we’re the same age and feel some of the same pains, joys, and frustrations.
+ - I am convinced that the act of thinking logically cannot possibly be natural to the human mind. If it were, then mathematics would be everybody’s easiest course at school and our species would not have taken several millennia to figure out the scientific method.
+ - One of the things that fascinates me most is when people are so charmed by the universe that it becomes part of their artistic output.
+ - I’d like – inviting aliens and have them observe what we do because so much of what we do that we take for granted will just be weird or extraordinary or just plain dumb when observed by an alien from another civilization.
+ - You don’t need to be a scientist to know Earth’s age or that life evolved. You just need be one who embraces objective truths.
+ - All Plutophiles are based in America. If you go to other countries, they have much less of an attachment to either the existence or preservation of Pluto as a planet.
+ - What are we promoting in society? Well-behaved automatons that spew back what they learned in a book. That’s not science. You can get a parrot to do that.
+ - What do you call those knobby things on doors that help you open them?
+ - There are no articles any more that dream about the cities of tomorrow.
+ - Something we all have as kids and is beaten out of us as adults. Parents come up to me, “How do I get my kids interested in science?” They’re already interested in science. Just stop beating it out of them.
+ - I bought it, I read it, and I heeded its advice. I remain unabducted.
+ - I don’t even understand why I have 1.7 million Twitter followers. Every day, I want to remind them and say, “Do you realize I’m an astrophysicist? Do you know what you’re doing here?”
+ - But you will hardly ever read about them. Why? Because once again, the media has predetermined what is not worthy of coverage, even when the news item is something as uninteresting as the cosmic origin of every element in your body.
+ - My investment of time, as an educator, in my judgment, is best served teaching people how to think about the world around them. Teach them how to pose a question. How to judge whether one thing is true versus the other.
+ - It’s part of our pop culture to give animals human personalities and talents.
+ - Some morning while your eating breakfast and you need something new to think about, though, you might want to ponder the fact that you see your kids across the table not as they are but as they once were, about three nanoseconds ago.
+ - Don’t know if it’s good or bad that a Google search on “Big Bang Theory” lists the sitcom before the origin of the Universe.
+ - If the purpose of the universe was to create humans then the cosmos was embarrassingly inefficient about it.
+ - WhenIWasYourAge: It took a week to learn whether your photos came out okay.
+ - We have people who believe they are scientifically literate but, in fact, are not.
+ - As a citizen, as a public scientist, I can tell you that Einstein essentially overturned a so strongly established paradigm of science, whereas Darwin didn’t really overturn a science paradigm.
+ - There are countless space activities that would be no less exciting than the moon missions were, I have no doubt. The search for life on Mars, for example.
+ - I don’t have specific television ambitions in the sense that I remain fundamentally and academic, and so, my innermost ambitions are what’s the next discovery I can make; that’s in my direct center.
+ - I’m fascinated by the deaths of stars and the havoc they wreak on their environments.
+ - Speaking as just simply an American who cares about the economic health of our country, I see one of the surest ways to bring wealth and prosperity to the country is to innovate in science and technology.
+ - To earn the right to be criticized on a scientific level is a high compliment indeed.
+ - The most successful scientists in the history of the world are those who posed the right questions.
+ - We are only intelligent by our own measures.
+ - There’s no denying the public’s appetite for cosmic discovery.
+ - All of the full moons for the entire year are special in that they have particular names.
+ - People generally don’t recognize how long it takes to conceive, publish, and write a book.
+ - As an educator, I think educators should meet the people wherever they are. Don’t even ask them to come half-way. Find them where they are, and sit on a couch with them.
+ - What scientists want next is a thorough comparison of what we and exosolar planets and vagabonds look like. Only in this way will we know whether our home life is normal or whether we live in a dysfunctional solar family.
+ - But the moment the politicians start saying they are in denial of what the scientists are telling them, of what the consensus of scientific experiments demonstrates, that is the beginning of the end of an informed democracy.
+ - Once something is answered, then there’s another question. Hence the eternal quest.
+ - I always wanted to be respected for my mind...
+
+349 quotes

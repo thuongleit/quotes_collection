@@ -1,0 +1,148 @@
+ - Ethical behavior is doing the right thing when no one else is watching- even when doing the wrong thing is legal.
+ - Conservation is getting nowhere because it is incompatible with our Abrahamic concept of land. We abuse land because we regard it as a commodity belonging to us. When we see land as a community to which we belong, we may begin to use it with love and respect.
+ - It must be poor life that achieves freedom from fear.
+ - The oldest task in human history: to live on a piece of land without spoiling it.
+ - One of the penalties of an ecological education is that one lives alone in a world of wounds.
+ - I am glad I will not be young in a future without wilderness.
+ - Harmony with land is like harmony with a friend; you cannot cherish his right hand and chop off his left. That is to say, you cannot love game and hate predators; you cannot conserve the waters and waste the ranges; you cannot build the forest and mine the farm. The land is one organism.
+ - The first law of intelligent tinkering is to save all the parts.
+ - There are two spiritual dangers in not owning a farm. One is the danger of supposing that breakfast comes from the grocery, and the other that heat comes from the furnace.
+ - Land is not merely soil, it is a fountain of energy flowing through a circuit of soils, plants and animals.
+ - Nonconformity is the highest evolutionary attainment of social animals.
+ - To look into the eyes of a wolf is to see your own soul – hope you like what you see.
+ - Our remnants of wilderness will yield bigger values to the nation’s character and health than they will to its pocketbook, and to destroy them will be to admit that the latter are the only values that interest us.
+ - Only the mountain has lived long enough to listen objectively to the howl of the wolf.
+ - We abuse land because we regard it as a commodity belonging to us.
+ - Conservation viewed in its entirety, is the slow and laborious unfolding of a new relationship between people and land.
+ - A river or stream is a cycle of energy from sun to plants to insects to fish. It is a continuum broken only by humans.
+ - The landscape of any farm is the owner’s portrait of himself.
+ - What avail are forty freedoms without a blank spot on the map?
+ - Conservation is a state of harmony between men and land.
+ - I love all trees, but I am in love with pines.
+ - There are some who can live without wild things and some who cannot.
+ - That land is a community is the basic concept of ecology, but that land is to be loved and respected is an extension of ethics.
+ - If we lose our wilderness, we have nothing left worth fighting for.
+ - Teach the student to see the land, understand what he sees, and enjoy what he understands.
+ - To build a road is so much simpler than to think of what the country really needs.
+ - Six days shalt thou paddle and pack, but on the seventh thou shall wash thy socks.
+ - The sweetest hunts are stolen. To steal a hunt, either go far into the wilderness where no one has been, or else find some undiscovered place under everybody’s nose.
+ - Education, I fear, is learning to see one thing by going blind to another.
+ - The hope of the future lies not in curbing the influence of human occupancy – it is already too late for that – but in creating a better understanding of the extent of that influence and a new ethic for its governance.
+ - We can be ethical only in relation to something we can see, feel, understand, love, or otherwise have faith in.
+ - Harmony with land is like harmony with a friend; you cannot cherish his right hand and chop off his left.
+ - We face the question whether a still higher “standard of living” is worth its cost in things natural, wild, and free.
+ - If we lose our wilderness, we have nothing left, in my opinion, worth fighting for; or to be more exact, a completely industrialized United States is of no consequence to me.
+ - Cease being intimidated by the argument that a right action is impossible because it does not yield maximum profits, or that a wrong action is to be condoned because it pays.
+ - Keeping records enhances the pleasure of the search and the chance of finding order and meaning in these events.
+ - To keep every cog and wheel is the first precaution of intelligent tinkering.
+ - It is inconceivable to me that an ethical relation to land can exist without love, respect, and admiration for land, and a high regard for its value. By value, I of course mean something far broader than mere economic value; I mean value in the philosophical sense.
+ - Conservation is a positive exercise of skill and insight, not merely a negative exercise of abstinence and caution.
+ - When some remote ancestor of ours invented the shovel, he became a giver: He could plant a tree. And when the axe was invented, he became a taker: He could chop it down. Whoever owns land has thus assumed, whether he knows it or not, the divine functions of creating and destroying plants.
+ - For one species to mourn the death of another is a new thing under the sun.
+ - Man always kills the thing he loves, and so we the pioneers have killed our wilderness. Some say we had to. Be that as it may, I am glad I shall never be young without wild country to be young in. Of what avail are forty freedoms without a blank spot on the map?
+ - One swallow does not make a summer, but one skein of geese, cleaving the murk of March thaw, is the Spring.
+ - Acts of creation are ordinarily reserved for gods and poets. To plant a pine, one need only own a shovel.
+ - I do not imply that this philosophy of land was always clear to me. It is rather the end result of a life journey.
+ - We all strive for safety, prosperity, comfort, long life, and dullness.
+ - Examine each question in terms of what is ethically and aesthetically right, as well as what is economically expedient.
+ - No one would rather hunt woodcock in October than I, but since learning of the sky dance I find myself calling one or two birds enough. I must be sure that, come April, there be no dearth of dancers in the sunset sky.
+ - The modern dogma is comfort at any cost.
+ - Prudence never kindled a fire in the human mind; I have no hope for conservation born of fear.
+ - Do we realize that industry, which has been our good servant, might make a poor master?
+ - What more delightful avocation than to take a piece of land and by cautious experimentation to prove how it works. What more substantial service to conservation than to practice it on one’s own land?
+ - Wilderness is the very stuff America is made of.
+ - Every region should retain representative samples of its original or wilderness condition, to serve science as a sample of normality. Just as doctors must study healthy people to understand disease, so must the land sciences study the wilderness to understand disorders of the land-mechanism.
+ - There are some of us who can live without wild things, and some who cannot. For us of the minority, the opportunity to see geese or wild flowers is a right as inalienable as free speech.
+ - Civilization has so cluttered this elemental man-earth relationship with gadgets and middlemen that awareness of it is growing dim. We fancy that industry supports us, forgetting what supports industry.
+ - To those devoid of imagination a blank place on the map is a useless waste; to others, the most valuable part.
+ - I shall now confess to you that none of those three trout had to be beheaded, or folded double, to fit their casket. What was big was not the trout, but the chance. What was full was not my creel, but my memory.
+ - There are two things that interest me: the relation of people to each other, and the relation of people to land.
+ - Conservation will ultimately boil down to rewarding the private landowner who conserves the public interest.
+ - We stand guard over works of art, but species representing the work of aeons are stolen from under our noses.
+ - Is education possibly a process of trading awareness for things of lesser worth? The goose who trades his is soon a pile of feathers.
+ - Like all real treasures of the mind, perception can be split into infinitely small fractions without losing its quality. The weeds in a city lot convey the same lesson as the redwoods; the farmer may see in his cow-pasture what may not be vouchsafed to the scientist adventuring in the South Seas.
+ - Bread and beauty grow best together. Their harmonious integration can make farming not only a business but an art; the land not only a food-factory but an instrument for self-expression, on which each can play music to his own choosing.
+ - In farm country, the plover has only two real enemies: the gully and the drainage ditch. Perhaps we shall one day find that these are our enemies, too.
+ - Man brings all things to the test of himself, and this is notably true of lightning.
+ - Science contributes moral as well as material blessings to the world. Its great moral contribution is objectivity, or the scientific point of view. This means doubting everything except facts; it means hewing to the facts, let the chips fall where they may.
+ - The richest values of wilderness lie not in the days of Daniel Boone, nor even in the present, but rather in the future.
+ - Recreational development is a job not of building roads into lovely country, but of building receptivity into the still unlovely human mind.
+ - The good life of any river may depend on the perception of its music; and the preservation of some music to perceive.
+ - Wilderness is a resource which can shrink but not grow.
+ - Hemispheric solidarity is new among statesmen, but not among the feathered navies of the sky.
+ - Like winds and sunsets, wild things were taken for granted until progress began to do away with them.
+ - The rich diversity of the world’s cultures reflects a corresponding diversity in the wilds that gave them birth.
+ - Our tools are better than we are, and grow better faster than we do. They suffice to crack the atom, to command the tides, but they do not suffice for the oldest task in human history, to live on a piece of land without spoiling it.
+ - The drama of the sky dance is enacted nightly on hundreds of farms, the owners of which sigh for entertainment, but harbor the illusion that it is to be sought in theaters. They live on the land, but not by the land.
+ - The life of every river sings its own song, but in most the song is long marred by the discords of misuse.
+ - Every farm woodland, in addition to yielding lumber, fuel and posts, should provide its owner a liberal education. This crop of wisdom never fails, but it is not always harvested.
+ - Is it possible to preserve the element of Unknown Places in our national life? Is it practicable to do so, without undue loss in economic values? I say ‘yes’ to both questions. But we must act vigorously and quickly, before the remaining bits of wilderness have disappeared.
+ - Ability to see the cultural value of wilderness boils down, in the last analysis, to a question of intellectual humility. The shallow-minded modern who has lost his rootage in the land assumes that he has already discovered what is important.
+ - The land-relation is still strictly economic, entailing privileges but not obligations.
+ - He who hopes for spring with upturned eye never sees so small a thing as Draba. He who despairs of spring with downcast eye steps on it, unknowing. He who searches for spring with his knees in the mud finds it, in abundance.
+ - For us in the minority, the opportunity to see geese is more important than television.
+ - Wilderness is the raw material out of which man has hammered the artifact called civilization.
+ - Land health is the capacity for self-renewal in the soils, waters, plants, and animals that collectively comprise the land.
+ - What a dull world if we knew all about geese!
+ - O, God assist our side: at least, avoid assisting the enemy and leave the rest to me.
+ - Our ability to perceive quality in nature begins, as in art, with the pretty. It expands through successive stages of the beautiful to values as yet uncaptured by language.
+ - Relegating grizzlies to Alaska is about like relegating happiness heaven; one may never get there.
+ - Only economists mistake physical opulence for riches.
+ - I know a painting so evanescent that it is seldom viewed at all except by some wandering deer. It is a river who wields the brush and it is the same river who before I can bring my friends to view his work erases it forever from human view. After that it exists only in my mind’s eye.
+ - An Ecologist lives in a world of wounds.
+ - Individual thinkers since the days of Ezekiel and Isaiah have asserted that the despoliation of land is not only inexpedient but wrong. Society, however, has not yet affirmed their belief.
+ - It is part of wisdom never to revisit a wilderness, for the more golden the lily, the more certain that someone has gilded it.
+ - To those who know the speech of hills and rivers straightening a stream is like shipping vagrants – a very successful method of passing trouble from one place to the next. It solves nothing in any collective sense.
+ - Having to squeeze the last drop of utility out of the land has the same desperate finality as having to chop up the furniture to keep warm.
+ - There is, as yet, no sense of pride in the husbandry of wild plants and animals, no sense of shame in the proprietorship of a sick landscape. We tilt windmills in behalf of conservation in convention halls and editorial offices, but on the back forty we disclaim even owning a lance.
+ - Wilderness areas are first of all a series of sanctuaries for the primitive arts of wilderness travel, especially canoeing and packing.
+ - Time was when education moved toward soil, not away from it.
+ - There is time not only to see who has done what, but to speculate why.
+ - Health is the capacity of the land for self-renewal.
+ - We shall never achieve harmony with land, any more than we shall achieve absolute justice or liberty for people. In these higher aspirations, the important thing is not to achieve but to strive.
+ - He who searches for spring with his knees in the mud finds it, in abundance.
+ - No important change in ethics was ever accomplished without an internal chage in our intellectual emphasis, loyalties, affections, and convictions.
+ - Thus far we have considered the problem of conservation of land purely as an economic issue. A false front of exclusively economic determinism is so habitual to Americans in discussing public questions that one must speak in the language of compound interest to get a hearing.
+ - Mechanized recreation already has seized nine-tenths of the woods and mountains; a decent respect for minorities should dedicate the other tenth to wilderness.
+ - On motionless wing they emerge from the lifting mists, sweep a final arc of sky, and settle in clangorous descending spirals to their feeding grounds. A new day has begun on the crane marsh.
+ - All conservation of wildness is self-defeating, for to cherish we must see and fondle, and when enough have seen and fondled, there is no wilderness left to cherish.
+ - That dark laboratory we call the soil.
+ - The worthiness of any cause is not measured by its clean record, but by its readiness to see the blots when they are pointed out, and to change its mind.
+ - Your woodlot is, in fact, an historical document which faithfully records your personal philosophy.
+ - We console ourselves with the comfortable fallacy that a single museum piece will do, ignoring the clear dictum of history that a species must be saved in many places if it is to be saved at all.
+ - The whole conflict thus boils down to a question of degree. We of the minority see a law of diminishing returns in progress; our opponents do not.
+ - The elemental simplicities of wilderness travel were thrills. They represented complete freedom to make mistakes. The wilderness gave those rewards and penalties, for wise and foolish acts against which civilization has built a thousand buffers.
+ - Hydrologists have demonstrated that the meanderings of a creek are a necessary part of the hydrologic functioning. The flood plain belongs to the river. The ecologist sees clearly that for similar reasons we can get along with less channel improvement on Round River.
+ - What conservation education must build is an ethical underpinning for land economics and a universal curiosity to understand the land mechanism. Conservation may then follow.
+ - Agricultural science is largely a race between the emergence of new pests and the emergence of new techniques for their control.
+ - There are idle spots on every farm, and every highway is bordered by an idle strip as long as it is; keep cow, plow, and mower out of these idle spots, and the full native flora, plus dozens of interesting stowaways from foreign parts, could be part of the normal environment of every citizen.
+ - How would you like to have a thousand brilliantly colored cliff swallows keeping house in the eaves of your barn, and gobbling up insects over your farm at the rate of 100,000 per day? There are many Wisconsin farmsteads where such a swallow-show is a distinct possibility.
+ - I confess my own leisure to be spent entirely in search of adventure, without regard to prudence, profit, self improvement, learning, or any other serious thing.
+ - No matter how intently one studies the hundred little dramas of the woods and meadows, one can never learn all the salient facts about any one of them.
+ - Only the most uncritical minds are free from doubt.
+ - Wildlife administration, in this respect, is not yet a profession.
+ - In June as many as a dozen species may burst their buds on a single day. No man can heed all of these anniversaries; no man can ignore all of them.
+ - The outstanding scientific discovery of the twentieth century is not television, or radio, but rather the complexity of the land organism.
+ - The only true development in American recreational resources is the development of the perceptive faculty in Americans. All of the other acts we grace by that name are, at best, attempts to retard or mask the process of dilution.
+ - A profession is a body of men who voluntarily measure their work by a higher standard than their clients demand. To be professionally acceptable, a policy must be sound as well as salable. Wildlife administration, in this respect, is not yet a profession.
+ - We Americans, in most states at least, have not yet experienced a bear-less, eagle-less, cat- less, wolf-less woods. Germany strove for maximum yields of both timber and game and got neither.
+ - How like fish we are: ready, nay eager, to seize upon whatever new thing some wind of circumstance shakes down upon the river of time! And how we rue our haste, finding the gilded morsel to contain a hook!
+ - Never did we plan the morrow, for we had learned that in the wilderness some new and irresistible distraction is sure to turn up each day before breakfast. Like the river, we were free to wander.
+ - There is value in any experience that exercises those ethical restraints collectively called sportsmanship.
+ - Relegating conservation to government is like relegating virtue to the Sabbath. Turns over to professionals what should be daily work of amateurs .
+ - A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.
+ - Wildflower corners are easy to maintain, but once gone, they are hard to rebuild.
+ - At first blush I am tempted to conclude that a satisfactory hobby must be in large degree useless, inefficient, laborious, or irrelevant.
+ - In our attempt to make conservation easy, we have made it trivial.
+ - Tell me of what plant-birthday a man takes notice, and I shall tell you a good deal about his vocation, his hobbies, his hay fever, and the general level of his ecological education.
+ - It is, by common consent, a good thing for people to get back to nature.
+ - Patriotism requires less and less of making the eagle scream, but more and more of making him think.
+ - The problem, then, is how to bring about a striving for harmony with land among a people many of whom have forgotten there is any such thing as land, among whom education and culture have become almost synonymous with landlessness. This is the problem of conservation education.
+ - Wilderness, then, assumes unexpected importance as a laboratory for the study of land – health.
+ - If the land mechanism as a whole is good then every part is good, whether we understand it or not...
+ - All history consists of successive excursions from a single starting-point, to which man returns again and again to organize yet another search for a durable scale of values.
+ - A peculiar virtue in wildlife ethics is that the hunter ordinarily has no gallery to applaud or disapprove of his conduct.
+ - No farmer-sportsman group is stronger than the ties of mutual confidence and enthusiasm which bind its members.
+ - Once you learn to read the land, I have no fear of what you will do to it, or with it. And I know many pleasant things it will do to you.
+
+146 quotes

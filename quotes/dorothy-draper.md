@@ -1,0 +1,27 @@
+ - Never look back, except for an occasional glance, look ahead and plan for the future. Success is not built on past laurels, but rather on a continuous activity. Keep busy searching out new ideas and, experimentally, keep ahead of the times, or at least up with them.
+ - You don’t sell a commodity, you sell joy, gaiety, excitement. You aim at people’s hearts, not their minds.
+ - I always put in one controversial item. It makes people talk.
+ - Too much of anything is the beginning of a mess.
+ - You can never judge a paint hue by the liquid color in the paint pot. You must apply it to a wall, wait for the paint to dry, then decide.
+ - You don’t have to know anything about a subject as long as you use common sense and imagination, plus enthusiasm! I use all periods of design in my work, for, after all, decorative styles are simply indications of a manner of living.
+ - The finest thing about a hobby is that you can’t do any pretending about it. You either like it or you don’t.
+ - It is just as disastrous to have the wrong accessories in your room, as it is to wear sport shoes with an evening dress.
+ - Of all the rooms in the house your bedroom is yours.
+ - Don’t buy a bedroom suite, but collect your pieces separately – generally cheaper and always the decorator’s way of furnishing.
+ - Mirrors have come to mean much more than the original ‘looking glass.’ They are now a part of the decorative scheme of a modern home. By using them, there are no dark, gloomy corners, no drab caverns for halls. There can be a feeling of freedom, light, air, space.
+ - There seems to be within all of us an innate yearning to be lifted momentarily out of our own lives into the realm of charm and make believe.
+ - The more mirror-minded you become, the more your home will reflect shining charm!
+ - Good liquor is not cheap. Cheap liquor is not good.
+ - If it looks right, it is right.
+ - This can be one of cheerfulness or gloom because color which is so inexpensive, is what does the trick. Not color alone but color plus imaginative lighting and cleverly grouping of the furniture. You say you have an old lobby that nothing much can be done with? Oh yes it can!
+ - Salad is never more appetizing than when served in a large wooden bowl.
+ - I believe in doing the thing you feel is right. If it looks right, it is right.
+ - You just can’t beat slip covers for giving that friendly air hospitals need so desperately.
+ - Too often when we’re buying or building a house we do not consider each room. We are carried away by one charming feature and are blind to details that will give us trouble later on.
+ - No room can be called perfect unless it has real comfort.
+ - I always think out a problem as clearly as possible, and then act on it. My theory has always been to get started. The moment I get an idea I act upon it. If only people would act on more of their ideas, I am convinced they would lead more interesting lives.
+ - Eating is really one of your indoor sports. You play three times a day, and it’s well worth while to make the game as pleasant as possible.
+ - I started this career because I loved doing houses. I’d done three of my own and I couldn’t keep on moving my family all the time, so I decided to decorate other people’s homes and buildings.
+ - I don’t believe anything can do as much for a room as a glowing fire in an attractive fireplace. Men and dogs love an open fire – they show good sense. It is the heart of any room and should be kindled on the slightest provocation.
+
+25 quotes

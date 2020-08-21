@@ -1,0 +1,45 @@
+ - Hire for attitude, train for skill.
+ - You don’t hire for skills, you hire for attitude. You can always teach skills.
+ - Your employees come first. And if you treat your employees right, guess what? Your customers come back, and that makes your shareholders happy. Start with employees and the rest follows from that.
+ - Think small and act small, and we’ll get bigger. Think big and act big, and we’ll get smaller.
+ - You have to treat your employees like customers.
+ - Positions and titles mean absolutely nothing. They’re just adornments; they don’t represent the substance of anybody. Every person and every job is worth as much as any other person and any other job.
+ - If you don’t treat your own people well, they won’t treat other people well.
+ - If the employees come first, then they’re happy. A motivated employee treats the customer well. The customer is happy so they keep coming back, which pleases the shareholders. It’s not one of the enduring green mysteries of all time, it is just the way it works.
+ - If you create an environment where the people truly participate, you don’t need control. They know what needs to be done and they do it. And the more that people will devote themselves to your cause on a voluntary basis, a willing basis, the fewer hierarchies and control mechanisms you need.
+ - We will hire someone with less experience, less education, and less expertise, than someone who has more of those things and has a rotten attitude. Because we can train people. We can teach people how to lead. We can teach people how to provide customer service. But we can’t change their DNA.
+ - It is my practice to try to understand how valuable something is by trying to imagine myself without it.
+ - The essential difference in service is not machines or ‘things.’ The essential difference is minds, hearts, spirits, and souls.
+ - I forgive all personal weaknesses except egomania and pretension.
+ - It takes nerves of steel to stay neurotic.
+ - You have to have the service mentality in the sense that you subjugate your own ego, and you subjugate a large part of your own life to really helping other people, being successful on their behalf.
+ - Leading an organization is as much about soul as it is about systems. Effective leadership finds its source in understanding.
+ - The more time I spend with our people, the more I find out about our business.
+ - Wild Turkey whiskey and Philip Morris cigarettes are essential to the maintenance of human life!
+ - The tragedy of our time is that we’ve got it backwards, we’ve learned to love techniques and use people.
+ - The Wright Amendment is a pain in the ass, but not every pain in the ass is a constitutional infringement.
+ - We have the best customer satisfaction record, based on Transportation Dept. statistics, of any airline in America, the fewest complaints filed per 100,000 passengers carried. So you’re not just getting low fares, you’re also getting wonderful customer service.
+ - Your people come first, and if you treat them right, they’ll treat the customers right.
+ - Power should be reserved for weightlifting and boats, and leadership really involves responsibility.
+ - If you’re crazy enough to do what you love for a living, then you’re bound to create a life that matters.
+ - The business of business is people.
+ - I’m here to tell you that I am proud of a couple of things. First, I am very good at projectile vomiting. Second, I’ve never had a really serious venereal disease.
+ - Keep costs low and spirits high, and the people of Southwest Airlines will keep LUV in the air.
+ - A company is stronger if it is bound by love rather than by fear.
+ - You must be very patient, very persistent. The world isn’t going to shower gold coins on you just because you have a good idea. You’re going to have to work like crazy to bring that idea to the attention of people. They’re not going to buy it unless they know about it.
+ - One piece of advice that always stuck in my mind is that people should be respected and trusted as people, not because of their position or title.
+ - I learned it by doing it, and I was scared to death.
+ - I think my greatest moment in business was when the first Southwest airplane arrived after four years of litigation and I walked up to it and I kissed that baby on the lips and I cried.
+ - The important thing is to take the bricklayer and make him understand that he’s building a home, not just laying bricks.
+ - If employees aren’t satisfied, they won’t promote the product we need.
+ - People with different personalities, different approaches, different values succeed not because one set of values or priorities is superior but because their values and practices are genuine.
+ - If the Wright brother were alive today Wilbur would have to fire Orville to reduce costs.
+ - The people of Southwest have always been my pride, my joy and my love. Their indomitable dedication and esprit de corps have taken Southwest from a three-airplane dream to a 500-airplane reality.
+ - Succession planning has been a major priority at Southwest for quite some time. We think we have come up with a winning combination of talent for our company reorganization.
+ - The clear, unmistakable sign of a bureaucrat is somebody who worries about whether he has a window.
+ - Sometimes you need a little courage too just to buck popular opinion.
+ - I’ve always been able to make erroneous decisions very quickly.
+ - Everybody in Texas would tell me that they thought I was nuts trying to start Southwest Airlines. There probably weren’t 10 people in the state who would have given a plug nickel for our chances of making a dollar. So sometimes, you need a little courage, too, just to buck popular opinion.
+ - I’ve found that many of the greatest ideas surface in bars because that’s where many people cultivate inspiration.
+
+43 quotes

@@ -1,0 +1,24 @@
+ - I excavate history. I look at lives buried under too much silence. Periods of time, like slavery, have to be revisited, reimagined, so we can move through them.
+ - Poetry helps me understand who I am. It helps me understand the world around me. But above all, what poetry has taught me is the fact that I need to embrace mystery in order to be completely human.
+ - I’m uncomfortable with the focus on the poet and not on the poem.
+ - Through the years I have seen myself as a peaceful person, but the awareness of the anger is part of that process.
+ - I think of my poems as personal and public at the same time. You could say they serve as psychological overlays. One fits on top of the other, and hopefully there’s an ongoing evolution of clarity.
+ - I like connecting the abstract to the concrete. There’s a tension in that. I believe the reader or listener should be able to enter the poem as a participant. So I try to get past resolving poems.
+ - We have to embrace the good over the bad. That has to be one’s personal project.
+ - It took me 14 years to write poems about Vietnam. I had never thought about writing about it, and in a way I had been systematically writing around it.
+ - I close my eyes and can see men drawing lines in the dust. America pushes through the membrane of mist and smoke, and I’m a small boy again in Bogalusa.
+ - Whoever said men hit harder when women are around, is right. Word for word, we beat the love out of each other.
+ - I am this space my body believes in.
+ - It wasn’t a deliberate decision to become a poet. It was something I found myself doing – and loving. Language became an addiction.
+ - Poets are seen as the caretakers of language, so working with words no matter what the form is what we do.
+ - I think of language as our first music.
+ - I’ve been here before, dreaming myself backwards, among grappling hooks of light. True to the seasons, I’ve lived every word spoken. Did I walk into someone’s nightmare?
+ - My great-grandfather Melvin had been a carpenter – so was my father – and they taught me the value of tools: saws, hammers, chisels, files and rulers. It all dealt with conciseness and precision. It eliminated guesswork. One has to know his tools, so he doesn’t work against himself.
+ - Students often have such a lofty idea of what a poem is, and I want them to realize that their own lives are where the poetry comes from. The most important things are to respect the language; to know the classical rules, even if only to break them; and to be prepared to edit, to revise, to shape.
+ - Vietnam helped me to look at the horror and terror in the hearts of people and realize how we can’t aim guns and set booby traps for people we have never spoken a word to. That kind of impersonal violence mystifies me.
+ - I see many black males grasping for some thread of hope. There are so many destructive practices, glimpses into a psychic abyss. That must be very frightening.
+ - Poetry is a process of getting back to the unconscious. Hence, I am always writing-even when I’m not facing the white space. I feel writers are like reservoirs of images. We take in what is around us.
+ - I like what Oliver Lakes does on the saxophone. The saxophone comes pretty close to the sound of the human voice and when Oliver plays with other sax players, it’s like a dialogue.
+ - I said that love heals from inside.
+
+22 quotes

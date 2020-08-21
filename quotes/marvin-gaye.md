@@ -1,0 +1,47 @@
+ - Ain’t no mountain high enough, ain’t no valley low enough, ain’t no river wide enough, to keep me from getting to you.
+ - If you cannot find peace within yourself, you will never find it anywhere else.
+ - Mercy, mercy me, things ain’t what they used to be.
+ - War is not the answer, for only love can conquer hate.
+ - Ain’t nothing like the real thing.
+ - Let’s save all the children, save the babies, save the babies.
+ - Every chance you get you seem to hurt me more and more, but each hurt makes my love stronger than before.
+ - Love your mother, she bore you. Love your father, he works for you.
+ - To be an artist is a blessing and a privilege. Artists must never betray their true hearts. Artists must look beneath the surface and show that there is more to this world than what meets the eye.
+ - Don’t you know how sweet and wonderful life can be?
+ - I want to stop and thank you baby, how sweet it is to be loved by you.
+ - Marriage is miserable unless you find the right person that is your soulmate and that takes a lot of looking.
+ - Jesus left a long time ago, said he would return. He left us a book to believe in, in it we’ve got an awful lot to learn.
+ - Sexual healing is good for me.
+ - I am not a star. At least, I don’t consider myself a star.
+ - Give out some love and you’ll find peace sublime.
+ - Great artists suffer for the people.
+ - Art is a way of possessing destiny.
+ - LIVE for LIFE, but let live everybody.
+ - I’m hooked my friend to the boy who makes slaves out of men, and oh believe me, flying high in a friendly sky.
+ - An artist, if he is truly an artist, is only interested in one thing and that is to wake up the minds of men, to have mankind and womankind realize that there is something greater than what we see on the surface.
+ - I’d been studying the microphone for a dozen years, and I suddenly saw what I’d been doing wrong. I’d been singing too loud. One night I was listening to a record by Lester Young, the horn player, and it came to me. Relax, just relax. It’s all going to be all right.
+ - Natural fact is, I can’t pay my taxes. Make me wanna holler and throw up on my hands.
+ - Who are they to judge us, simply because our hair is long?
+ - Don’t play with something you should cherish for life...
+ - Most fear stems from sin; to limit one’s sins, one must assuredly limit one’s fear, thereby bringing more peace to one’s spirit.
+ - When I get that feeling, I want some sexual healing.
+ - Politics and hypocrites is turning us all into lunatics.
+ - Anger destroys your soul.
+ - I hope to refine music, study it, try to find some area that I can unlock. I don’t quite know how to explain it but it’s there. These can’t be the only notes in the world, there’s got to be other notes some place, in some dimension, between the cracks on the piano keys.
+ - I don’t make records for pleasure. I did when I was a younger artist, but I don’t today. I record so that I can feed people what they need, what they feel. Hopefully, I record so that I can help someone overcome a bad time.
+ - Music is one of the closest link-ups with God that we can probably experience. I think it’s a common vibrating tone of the musical notes that holds all life together.
+ - To share is precious, pure and fair. Don’t play with something you should cherish for life. Don’t you wanna care, ain’t it lonely out there?
+ - For me, love carries the seeds of its own destruction.
+ - Too busy thinking about my baby and I ain’t got time for nothing else.
+ - When I look at the world it fills me with sorrow, little children today are really going to suffer tomorrow.
+ - I am not going to be dictated to by fans, certainly. I am dictated enough to by my record company to last me a million years.
+ - Who isn’t fascinated by evil?
+ - I wish that being famous helped prevent me from being constipated.
+ - Little Willie John is the soul singer’s soul singer.
+ - Negotiating means getting the best of your opponent.
+ - Crime is increasing, trigger happy policing. Panic is spreading, God knows where we’re heading.
+ - I’ve never had any problems with women. Having been one of the world’s greatest womanizers they’ve probably had more problems with me.
+ - Detroit turned out to be heaven, but it also turned out to be hell.
+ - If you escape from people too often,, you wind up escaping from yourself.
+
+45 quotes

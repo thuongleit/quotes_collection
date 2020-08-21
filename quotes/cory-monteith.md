@@ -1,0 +1,42 @@
+ - The show must go on all over the place or something.
+ - When the music hits, you feel no pain, to quote Bob Marley. But it’s true. It’s like all art and creation: You’re completely in the moment, and you just feel free.
+ - At some point, you realize your parents are human. They make the best decisions they can with the options available to them.
+ - I think if you show up and you work hard and you’re straightforward, you can always create your own opportunities. I hope I’m right.
+ - I’m a cat whisperer. When I go to people’s houses, their cats always like me better than the owners.
+ - My life has changed in almost every way but I couldn’t be more grateful. I couldn’t be happier – I feel like the luckiest guy in the world.
+ - I’m lucky on so many counts – I’m lucky to be alive.
+ - I’m pretty goofy and I make a lot of dumb jokes – life is too short to be serious, so I guess that’s how I flirt. To be honest, I think I’m too shy and reserved to be a proper old fashioned flirt.
+ - It’s really annoying when you’re trying to get to know someone and she doesn’t pay attention to you because she’s obsessed with her phone.
+ - Every single day I wake up in the morning, and I wonder if this is some kind of amazing dream that’s gonna end all of a sudden. And, you know, I’m gonna wake up and be somewhere else.
+ - I like the idea of dating, but I’m not dating anyone exclusively, particularly right now. It’s hard to be in a relationship unless you’re ready to go public with it. So it’s a lot easier for me to not be in a relationship. I really don’t want that part of my life to be tabloid fodder.
+ - How do I put this? ‘Glee’ is like ‘High School Musical’ if ‘High School Musical’ had its stomach punched and its lunch money stolen.
+ - I play a lot of ultra-violent video games.
+ - I want to get married and have children and live happily ever after. That’s important to me.
+ - I don’t have to hide or be somebody I’m not. I don’t have to compromise. I can just be myself.
+ - If you focus on what you want and you persevere, chances are you succeed. You know, that’s what I found. It might not be in acting – it might be in business, financing, it might be in the arts, it might be in anything. But it’s all about focusing and being inspired.
+ - And everything that comes out of my mouth is gonna be repeated in two-sentence-long bites for the next years of my life. Certain words travel far and wide.
+ - I’ve got the rest of my life to be a grown-up. And for now, it’s OK to be young.
+ - I’m Canadian, but no, I don’t speak French.
+ - I’m pretty focused on my career, and if it comes down to hanging out with somebody or learning my lines, it’s gonna be learning my lines.
+ - I’m a big fan of ‘Glee.’ I think it’s really smart. And I think it’s well-timed. But you can’t not be surprised at the reception this show’s received. It’s really something else.
+ - I keep a pretty low profile. I live in Culver City with some roommates. I don’t do the whole ‘Hollywood’ thing.
+ - Fox taught me how to sing and dance.
+ - I have a solo deal with Columbia Records. So it’s about, do I want to release an album, when can we do it, what kind of album should it be, how should it be released and marketed and what’s the right timing? Do I have time to do it? It’s all about questions.
+ - But when the ‘Glee’ audition came around, my manager literally had to talk me into it. I was petrified to sing in front of anyone.
+ - I don’t need to be wildly famous for my life to make sense.
+ - I recently had a few days off while shooting a movie in Budapest, so I took a cab from the set to the airport, looked at the departure board, and decided where I wanted to go right then and there. I spent four days in Rome and didn’t tell anyone I was going.
+ - It’s all about perseverance. Absolute perseverance. You can always get back up.
+ - I used to do tech support for MSN in Canada.
+ - I say eat fast and die young.
+ - I probably tweet every other day, which I know isn’t half as much as some people.
+ - But for those people who might give up: Get real about what you want and go after it.
+ - I stole a significant amount of money from a family member. I knew I was going to get caught, but I was so desperate I didn’t care. It was a cry for help.
+ - Evolved? As a dancer? Me? I don’t fall down as much, unless it’s part of the scripted dance. I don’t step on other people’s toes anymore. I think if I started the show a one out of ten dancer, now I am a two and a half.
+ - I don’t need to be wildly famous for my life to make sense. I guess I’m kind of happy where I’m at, and I take whatever comes, and it’s a good thing.
+ - If people are taking pictures of me at Starbucks, it’s not the end of the world. It’s cool, it’s fun, it’s exciting.
+ - I took out a whole fireplace and put in broken glass and installed a burner underneath, so it looks like fire on ice. I did that in my bedroom suite. I’m pretty handy.
+ - I don’t read that many novels, I’m more of a nonfiction fan.
+ - I’m Joe Canada, who never went to high school. I’ve never even been to a football game.
+ - I see the people in the tabloids, the ones that get bad press, who have kind of gone off the edge, and I try to study them so that I don’t do that. It seems like they lost focus at some point – that’s the one thing they all have in common.
+
+40 quotes

@@ -1,0 +1,22 @@
+ - The idea of dancing to bad house music is something I could never get behind.
+ - Songwriting is reliant on inspiration, which ideally you don’t have that much control over. Songs kind of half make themselves, and then you have to finish them.
+ - The Flaming Lips have been on Warner Bros. forever, and certainly everything I heard growing up was on a major label in some way, from the Cure to Radiohead to Bjork.
+ - It seems like the record industry made so much crazy money in the 1960s that everyone wanted to get in on it. Now it’s just become very corporate. So all of these people who despise music end up being in charge.
+ - Being in a rock band, I feel a certain responsibility to have a weird haircut. I mean, who else gets to do that?
+ - Major labels just lost their way. It’s like the housing bubble. They lost a sense of the fundamentals.
+ - My favorite English teacher in high school showed me ‘Brazil’ when I was 15 and it blew my mind. It’s one of those movies that’s revealed itself in different ways as I’ve gone back to it over the years.
+ - The film Black Orpheus is one of my favorite films of all time, which is set in Carnival in Brazil.
+ - I try not get too self-aware when writing lyrics.
+ - I think of hip hop as a mass media, radio, MTV thing. It’s been extremely relevant over the last 10 years and rock music is just not anymore – -a tear rolls down my cheek as I say that.
+ - I find myself a lot more open to bands if I just hear their song. It gives you an opportunity to engage with the thing itself and not be overwhelmed by everything else that surrounds it.
+ - I just wanted to make something in the world and worry about the rest of it later and not get too caught up in rules.
+ - I think filmmakers all secretly wanna be musicians and all musicians secretly wanna be filmmakers.
+ - While there are so many beautiful Baroque churches and it’s a beautiful artistic tradition, it almost gets hideous and grotesque if you push it further. You can take something beautiful and overdo it.
+ - I don’t think the emotional quality is the defining quality of the music but it’s definitely something that people have picked up on a lot.
+ - When I was younger, bands helped me connect to part of my humanity; bands that had nothing to do with anything political helped to form me. There’s a correlation in that: If people can connect to music, maybe they can connect to each other.
+ - A lot of artists write about the same things their whole career.
+ - Music is made by individuals. Some artists will be very politically overt in their songs, some will be more subtle. You have to be true to yourself, true to your nature.
+ - When I was living in Boston I worked in this store that played the college radio station. I had to listen to it all day, and I didn’t care for most of it.
+ - I think you have to want to be really famous. It’s a lot easier to sabotage your career than to have a career to sabotage.
+
+20 quotes

@@ -1,0 +1,255 @@
+ - Everyone has a plan ’till they get punched in the mouth.
+ - Everybody you fight is not your enemy and everybody who helps you is not your friend.
+ - Discipline is doing what you hate to do, but nonetheless doing it like you love it.
+ - You never lose until you actually give up.
+ - Don’t be surprised if I behave like a savage. I am a savage.
+ - No one wants to get up at 4 and run when it’s pitch-dark, but it has to be done. The only reason i do it so early is because i believe the other guy isn’t doing it and that gives me a little edge.
+ - Money is my God. If you think God will help you then quit your job and see how much he cares.
+ - If you’re not humble, life will visit humbleness upon you.
+ - Fear is like fire; it can be helpful if you know how to use. If not, you’ll get burned.
+ - The tempt for greatness is the biggest drug in the world.
+ - You can’t be disturbed by anything. There’s no emotion involved. You can’t feel sorrow, you can’t feel pity, there’s nothing you feel. The job has to be done.
+ - There’s nothing to fear but fear itself. It’s an illusion of fear. Fear is an illusion. If you gonna die, you gonna die anyway; it’s not something to fear, fear is not gonna help.
+ - I’m a dreamer. I have to dream and reach for the stars, and if I miss a star then I grab a handful of clouds.
+ - I want your heart, I want to eat your children.
+ - Real freedom is having nothing. I was freer when I didn’t have a cent.
+ - I am the most ruthless, brutal champion ever. There is no one who can match me. I want your heart. I want to eat your children.
+ - A man that is a friend to everyone is an enemy to himself.
+ - I fight for perfection.
+ - Basically I don’t care what people think of me. I’m not in the communications business.
+ - Fighting is not physical, fighting is spiritual. It’s the determination and the will in the guy.
+ - You need to learn independence. You have to be independent – it builds character.
+ - You have to feel comfortable being uncomfortable. I’m always comfortable being uncomfortable. And to be comfortable being uncomfortable, I have to hone my discipline, which to me is doing what I have to do, but also doing it like I love it.
+ - I’m on the Zoloft to keep from killing y’all.
+ - As long as we persevere and endure, we can get anything we want.
+ - My biggest weakness is my sensitivity. I am too sensitive a person.
+ - What I’ve done in the past is history and what I’m gonna do in the future is a mystery.
+ - Destroy or be destroyed! I just love that way of life!
+ - Whatever my situation, I’m a strong disciplinarian; I can do what I hate to do but do it like I love it.
+ - Anger is my biggest enemy in life.
+ - God lets everything happen for a reason. It’s all a learning process, and you have to go from one level to another.
+ - I’m addicted to perfection. Problem with my life is I was always also addicted to chaos. Perfect chaos.
+ - I’m scared every time I go into the ring, but it’s how you handle it. What you have to do is plant your feet, bite down on your mouthpiece and say, ‘Let’s go.’
+ - It’s nothing personal, but I’m going to kill this guy.
+ - I normally don’t do interviews with women unless I fornicate with them.
+ - When I fight someone, I want to break his will. I want to take his manhood. I want to rip out his heart and show it to him.
+ - I felt the same fear in my first fight as I did in my last fight. It never goes away.
+ - All praise is to Allah, I’ll fight any man, any animal, if Jesus were here I’d fight him too.
+ - Kindness and humbleness are really good qualities to possess. But, if you have to use the word humble, it means you’re not humble. And if you’re not humble to this world, this world will thrust humbleness upon you.
+ - I just want to conquer people and their souls.
+ - I never think of physical fighting. It’s always spiritual. Fighting is spiritual.
+ - Nothing is more humbling than getting your ass kicked.
+ - There’s no future in our past. Just experience. We want to return to it, but we don’t want to close the door on it either.
+ - There’s nothing like being young, and happy, and fighting.
+ - I’m a good friend, but I’m a hell of an enemy. As your enemy, I want your demise. When I feel that in my heart it burns till I die.
+ - I just look around and say, I’m a mess. I don’t know why I do things.
+ - At one point, I thought life was about acquiring things. Life is totally about losing everything.
+ - Things can change. Life is all a learning process.
+ - Everybody thinks this is a tough man’s sport. This is not a tough man’s sport. This is a thinking man’s sport. A tough man is gonna get hurt real bad in this sport.
+ - Unfortunately, sometimes you can’t have fun accomplishing your goals. Sometimes people don’t have the determination, the will, the steadfastness, the tenacity, they give in under the slightest struggle.
+ - Hard times fall upon everybody. Whatever it is, we’re going to get out of it.
+ - Most of my fans are too sensitive. I’m a cruel and cold and hard person. I’ve been abused in every way you can imagine. Save your tears. I lost my sensitivity. You embarrass me when you cry.
+ - I’m a man. I lived it and I’m not afraid to die but when I die I’m going to paradise and I’m not worried.
+ - I’ve lived places these guys can’t defecate in.
+ - I think I’ll take a bath in his blood.
+ - I’m here to serve God and be of service. I’m nothing; everything out here is a lot bigger than me.
+ - I sacrifice so much of my life, can I at least get laid?
+ - You can’t be everybody’s friend, you can’t save the world, I learned this word: self-preservation. Once you do that, you can be friends with people, but how would you be a friend to anybody if you’re not a friend to yourself.
+ - I try my best to learn from other people’s mistakes. I have a lot of respect for people who can change.
+ - The mind is a real dangerous neighborhood to travel by ourselves.
+ - I could feel his muscle tissues collapse under my force. It’s ludicrous these mortals even attempt to enter my realm.
+ - Sometimes, the people we invest the most time in disappoint us the most.
+ - There are not many regrets that I have. There are a few things that I wish I’d changed in my life, but they are not so dramatic that I’d go out of my way to change them. But I go back and think about my life so far periodically in my head.
+ - I may have smoked too much weed, but I wasn’t taking drugs or anything.
+ - They say I can’t lose. I say you can’t win!
+ - I ain’t the same person I was when I bit that guy’s ear off.
+ - I’m trying to figure things out in the world. No one knows what this life thing is all about – there’s no manual. Just trying to figure it out.
+ - Fighters are never who they appear to be.
+ - You’re sweet. I’m going to make sure you kiss me good with those big lips. I’m gonna make you my girlfriend.
+ - I just want to try everything. I want to see how good I can be, the best I can be at what I’m doing. I want to do everything. You know? I want to be in a musical. I want to do everything. I want to try and sing.
+ - I don’t react to a tragic happening any more. I took so many bad things as a kid and some people think I don’t care about anything. It’s just too hard for me to get emotional. I can’t cry no more.
+ - Fighting is a sport if you’re not humble it’s going to bring humbleness to you.
+ - I’m a historian, and that freaks me out.
+ - My style was impetuous, my defenses were impregnable, and I was ferocious.
+ - I want to throw down your kid and stomp on his testicles, and then you will know what it is like to experience waking up everyday as me. And only then will you feel my pain.
+ - Greatness is not guarding yourself from people. Greatness is being accepted by the people.
+ - You have to compete in life because if you don’t have no competition – no competition, no spirit, you know, you’ll fall under the slightest struggle...
+ - Being a champion opens lots of doors – I’d like to get a real estate license, maybe sell insurance.
+ - I’m going to gut you like a fish.
+ - When Jesus comes back, these crazy, greedy, capitalistic men are gonna kill him again.
+ - My power is discombobulatingly devastating.
+ - I don’t want anyone to have to interview me. I wish I didn’t have to talk too much about myself.
+ - I just have this thing inside me that wants to eat and conquer. Maybe it’s egotistical, but I have it in me. I don’t want to be a tycoon. I just want to conquer people and their souls.
+ - Everybody wants to be somebody. Everybody wants to be noticed. Everybody wants to be somebody important. Importance is just treating people good. That’s important.
+ - If he’s not dead, it doesn’t count.
+ - I don’t want to be remembered. As long as my kids remember me, I’d rather be forgotten by everybody else.
+ - If you can’t remember the small things, how are you going to remember the big things? The mind is a real dangerous neighborhood to travel by ourselves.
+ - He was crying in there, making woman gestures.
+ - I’ll go back and take what the people owe me.
+ - Our money is bait money, and bait money is not to be used.
+ - It’s good to know how to read, but it’s dangerous to know how to read and not how to interpret what you’re reading.
+ - Lennox Lewis, I’m coming for you man. My style is impetuous. My defense is impregnable, and I’m just ferocious. I want your heart. I want to eat his children. Praise be to Allah!
+ - If I was fighting myself, I always say that I would kill Mike Tyson but then again I don’t know how hard a punch Mike Tyson can take and I don’t know how hard Mike Tyson’s punch is. I don’t know. For me looking at me, I think I can beat me.
+ - If you’re a professional, you’ll make it work. you can be like, ‘I’m not going to do that, I’m going to do it where I’m satisfied.’ But I’m very comfortable being uncomfortable so I just go for it.
+ - When I was young, I thought I was a god. Now, I just basically work on staying humble. My priorities changed. Just to be able to try to change them – that was frightening to me.
+ - Fade into Bolivian, I guess.
+ - I’m not afraid to be a jerk or anything and laugh at myself anymore.
+ - If my children will live a better life than I did by my getting brain damage, by my being brain dead, then let it be.
+ - Treat the world the way you want to be treated.
+ - I’m a Muslim, but I think Jesus would have a drink with me. He would be cool. He would talk to me.
+ - You stand your ground and you perform your art. That’s what the artist does. The artist is about perfection.
+ - We all have struggles in life but we have to continue to fight.
+ - We all have to control our feelings. That’s the thing that separates us from animals.
+ - I just want to do what I do best, and that’s fight. I love it.
+ - I’m the most brutal and ruthless conquerer there has ever been.
+ - Boxing brought me money and fame, but it never brought me no happiness.
+ - My objective was to hurt the other fighters. I wanted to hurt them. I wanted to be merciless. Man, I was a wild thing. It’s kind of a drug, a rush.
+ - They called me a ‘rapist’ and a ‘recluse.’ I’m not a recluse.
+ - Hannibal rode elephants into cartilage.
+ - Every punch was thrown with bad intentions.
+ - People love you when you’re successful, but if you’re not, who really cares about you?
+ - It doesn’t faze me what anyone says about me. It doesn’t matter what anyone says about me. I’m a totally different entity to what other people think. Michael and Tyson are two different people. I’m Tyson here.
+ - How dare these boxers challenge me with their primitive skills? It makes me angry.
+ - I want to rip out his heart and feed it to Lennox Lewis. I want to kill people. I want to rip their stomachs out and eat their children.
+ - I can’t change myself. I’m Mike Tyson. I’m a regular kid from the getto striving to do something positive with myself. I happen to fight well.
+ - I don’t care how much you love each other, if you have secrets, it’ll never work. That’s why she’s your loved one, because it’s the love of one. Togetherness, you are one.
+ - Everybody in America is so money-hungry. It’s like a rat race and even when you win you’re still a freaking rat.
+ - You think the speed of your fingers can match the strength of my fists?
+ - I can talk about humility, but I’m not humble. I mean, if you say, I’m humble, you’ve just contradicted yourself. But I’m trying to be, man, I’m trying so hard.
+ - I’m just trying to change my life because I’m not above killing any drug dealer for money.
+ - We live in a society where we basically live and strive on what people think about us. We’re more visual people so what we see is basically what we believe which is not necessarily true.
+ - Some people are faster than others; I’m just figuring it out later, that’s all. I’m getting smart too late and old too soon.
+ - I don’t understand why people would want to get rid of pigeons. They don’t bother no one.
+ - Ten years ago, if you asked me where I’d be now, I’d have said F-ing dead. But I’m not dead. I have an awesome life. And I’m just very grateful. That’s the one thing I try to convey. Gratitude.
+ - I know I’m going to blow one day. My life is doomed the way it is. I have no future.
+ - If Jesus was here, do you think Jesus would show me any love? Do you think Jesus would love me?
+ - I think the reality of prison is you don’t get anything unless you want it in there. Whatever happens to you in prison, this is what you asked for. Nothing happens to you if you don’t give that vibe.
+ - Man is not meant to be humble, he’s meant to be humbled.
+ - I feel like sometimes that I was not meant for this society.
+ - I hate to cry and I hate to sound like sour grapes, but no one ever listens to me. No one ever hears what I have to say.
+ - That’s all they said was wrong with me?
+ - Sometimes I put on a ski mask and dress in old clothes, go out on the streets and beg for quarters.
+ - I have the same malice in my heart as far as the fight game is concerned, but outside the ring, I won’t say anything a dignified man won’t say.
+ - When I was in prison, I was wrapped up in all those deep books. That Tolstoy crap – people shouldn’t read that stuff.
+ - I’m a bad guy. But if I was a good guy, nobody would want to pay to see me fight.
+ - Every win, regardless a good or bad one, gives you more confidence.
+ - People say ‘Poor guy.’ That insults me. I despise sympathy. So I screwed up. I made some mistakes. ‘Poor guy,’ like I’m some victim. There’s nothing poor about me.
+ - I didn’t know how to be any other way. I felt like one of those barbarian kings just coming to conquer the Roman Empire.
+ - If you did everything your mind told you to do, you do some really strange stuff. You’ll probably be in jail, you’ll be in trouble. But, it’s all about control. We all have to control our feelings. That’s the thing that separates us from animals.
+ - He was screaming like my wife.
+ - I refuse to let adversity allow me to be average.
+ - I was blessed with speed and a good punch. Everybody thinks I’m the hardest puncher ever. But I just think I was really fast, and my punches got to the target faster. That’s what made my knockouts always seem spectacular.
+ - I could never stop drugs, I could never stop drinking, until I received my spiritual awakening.
+ - I can quit boxing now and practically go into any kind of business and I’ll be successful just as well as I was in boxing.
+ - It’s unnatural to fight somebody who has nothing against you and never did anything to you or to your family, who never stole anything from you. And now you’ve got to go and try to dismantle this guy.
+ - In order to succeed greatly, you have to be prepared to fail greatly. If you can’t do both of them, you’ve got a problem.
+ - As human beings, nobody gets out of this world free. We all have to do some suffering before we leave.
+ - I’m not Mother Teresa, but I’m not Charles Manson, either.
+ - Mr. Arthur Ashe, he was good. I read some of his books. He knew about everything, but he was real quiet and didn’t talk much. I never met him.
+ - Guess I’m going to fade into Bolivian.
+ - I don’t try to intimidate anybody before a fight. That’s nonsense. I intimidate people by hitting them.
+ - The one thing I know, everyone respects the true person and everyone’s not true with themselves.
+ - I can deal with adversity.
+ - It’s good to be successful and have financial status but if you’re only gonna live for the money, you’re only gonna reach a certain status and I’m in there for greatness and peace of mind.
+ - I try to catch them right on the tip of his nose, because I try to punch the bone into the brain.
+ - I was in handcuffs. I was under arrest. I remember there was this old lady looking at me, and I could tell she felt real sorry for me, and she did’nt know but all I wanted to do was take her purse.
+ - I’ll fight anybody my trainer puts me in with because I’m confident I can beat any fighter in the world. If anybody can see I’m almost a master at evading punches coming at me.
+ - Sarah Palin met the wombshifter! Old Sarah and the wombshifter.
+ - I haven’t been with a woman in nine months.
+ - I intend to fight and I want to win. But my priorities are basically to be a good Brother and a strong one, and to try to be a good father one day.
+ - I feel bad about my outlook, how I feel about people and society, and that I’ll never be part of society the way I should.
+ - I’m not a good-looking guy. I don’t care if my nose gets mashed.
+ - Most fighters are the most humble people in the world because they’ve gotten their ass kicked before.
+ - I’m just like you. I enjoy the forbidden fruits in life, too.
+ - You have to be a friend to yourself. You know, ’cause if you’re not a friend to yourself, you’re an enemy to yourself and if someone’s a friend of everybody they are an enemy to themselves.
+ - I’m not much for talking. You know what I do. I put guys in body bags when I’m right.
+ - At times, I come across as crude or crass, that irritates you when I come across like a Neanderthal or a babbling idiot at times. But I like to be that person. I like to show you all that person because that’s who you come to see.
+ - There are nine million people who see me in the ring and hate my guts. Most of them are white. That’s okay. Just spell my name right.
+ - People look at me as some bruiser, but I want to entertain people. I want people to applaud. I want to be the cause of people being happy, their emotions changing, to tell me I did a good performance.
+ - I tried to stay away from King. You can’t do it. It’s like staying away from taxes. Sooner or later, he’ll get you.
+ - God, it would be good to be a fake somebody rather than a real nobody.
+ - Most writers, in my opinion, are dysfunctional derelicts.
+ - I don’t want to be grotesque, but when you’re 330 pounds, it’s hard to wipe your ass. You know?
+ - Every time there’s a revolution, it comes from somebody reading a book about revolution. David Walker wrote a book and Nat Turner did his thing.
+ - If Mike Tyson is in your courtroom and you don’t send him to jail, it’s an injustice. Everyone knows he’s a bad guy. So if he is in your courtroom, he should go to jail.
+ - Five heads are definitely better than one when they’re thinking in the same perspective. I think that you really need to have people that you trust. And for me, trust comes from that synchronizing, that same-mindedness.
+ - Boxing is an ego-driven sport. The idea is to not get too personal or emotional with it. You just know when it’s over, it’s over, and that’s it.
+ - Some people try to get you out of slavery for you to be their slave.
+ - For this fight my blood, my soul, everything was on the line.
+ - Every great general and warrior from the beginning of time was high.
+ - I just love to fight. I like to hurt people. I haven’t lost that. I didn’t lose it when I first got a bit of wealth and I haven’t lost it now. The nature of my business is to hurt people.
+ - I just want them to keep bringing guys on and I’am going to strip them of their health. I bring pain a lot of pain.
+ - I probably have a 20,000-word vocabulary. I’ll match my wits with anyone on literature, science and the arts.
+ - I could have knocked him out in the 3rd round but I wanted to do it slowly, So he would remember this night for a long time.
+ - I’m the biggest fighter in the history of the sport. If you don’t believe it, check the cash register.
+ - My life’s not tragic at all. How many guys do you know who are bankrupt and just bought a $3 million house and are getting ready to get $6 million more?
+ - Sometimes they laugh at things I don’t think are funny, but I believe if they’re laughing at me, it’s a good show.
+ - Another thing that freaks me out is time. Time is like a book. You have a beginning, a middle and an end. It’s just a cycle.
+ - Nietzsche’s my favorite. He’s just insane.
+ - I love to hit people. I love to.
+ - You come home, and you party. But after that, you get a hangover. Everything about that is negative.
+ - I was hoping he would get up so I could hit him again and keep him down.
+ - My career has been over since 1990.
+ - I’am not predictor of fights, but I know when I hit ’em good, the fight is close to an end.
+ - Any man can do what he has to do. But doing it like you love it? That is what takes it to a whole different level. A champion does it like he loves it, even when he doesn’t.
+ - Back when I was a kid, I never liked the kind of kids that my kids have become. They’re privileged and have things very easy. But I’m proud of them. None of my kids are getting high, they love school, they’re very popular.
+ - Anyone with a grain of sense would know that if I punched my wife I would rip her head off. It’s all lies. I have never laid a finger on her.
+ - I know at times I come across like a Neanderthal or a babbling idiot, but I like that person.
+ - I like horror movies. Nightmare on Elm Street is my favourite. I even get scared a little bit watching horror.
+ - I used to have lots of tigers. I had all sorts of exotic pets when I had some money. Before I was broke, I had everything. Pigeons and vultures, lions, tigers, and bears. I had it all.
+ - It’s the emotional punches that you can’t see that are just overwhelmingly devastating to your heart – your moral fiber.
+ - When you see me smash somebody’s skull, you enjoy it.
+ - Fighting is endurance, knocking a guy out in 10 seconds is not fighting, its beating him to the punch. But when you put in that time, that is fighting because you are thinking.
+ - I like doing other things. I like getting high, hanging out with my kids. I like drinking. I have so many demons.
+ - I didn’t come from a household where my mother dragged me outside and said, “You’d better fight.” My mother wouldn’t let me fight. I was not an aggressive kid.
+ - I think the average person thinks I’m a nut and I deserve whatever happens to me.
+ - When you’re a great finisher, you’ll become popular. Joe Louis was a great finisher.
+ - That equals to being a fool, having fame and no fortune. A lot of guys out there have fame doing this and doing that, but they are broke.
+ - Not to be egotistical, but I don’t think there is a man on this planet who can beat me.
+ - Sometimes during a relationship, a friendship, a friend’s gonna have to prove they’re your friend, and you’re gonna have to prove you’re their friend.
+ - I am not a role model.
+ - This is my career. I have children to raise. I have to retaliate. He butted me. Look at me. My kids will be scared of me.
+ - I’m not a Republican, but I have some conservative views on certain things. I’m not a Democrat, either. It’s just very difficult that these people hate each other over a belief. I think it all comes down to ego and competitiveness.
+ - The drug dealers, they sympathize with me. They see me as some sort of pathetic character.
+ - I’m a vegan. I lost 150 pounds because of being a vegan.
+ - I’m just happy I’m not a phoney.
+ - People relate to fighters so much because fighting reflects life.
+ - I can inspire people on how to use money, how to get economically powerful.
+ - My intentions were not to fascinate the world with my personality.
+ - I live for the moment to hit people.
+ - The most important thing in the world for show business, really, you know everything’s a high-tech business, but what people want now is what they can’t get – exclusivity.
+ - Box gap is not a thing. If you need to back up to a mirror and bend over to find out how you look, you are playing to the wrong audience.
+ - Quayle said the worst thing that happened to him was that he never trusted his own judgment. I said from now on I am going to go with my own judgment.
+ - I had to persevere because this was my life. This championship, this was the stuff I dreamt of all my life, and I wasn’t gonna be denied.
+ - My father was a pimp before he became a deacon or something. These people know how to handle women. I’m the worst guy in the world with women. They run circles around me.
+ - In order to be a friend to anybody, you have to be a friend to yourself. If you’re not a friend to yourself, there’s no way you’re gonna have any friends.
+ - What really amazed me was when I sent a suit out for cleaning, forgetting that $700 was in the pocket. They sent the suit back to me. If that happened in New York, both money and suit would be gone.
+ - I want someone to attack me. No weapons. Just me and him. I like to beat men and beat them bad.
+ - People are going to say what they say. I know sometimes I say things; I offend people.
+ - The only thing I do is just pray for inspiration, for a way of thinking, because I don’t have any particular goal in sight.
+ - I never look at a high point in my career. Everyone thinks about the Spinks fight, but that fight only lasted 91 seconds, so it’s hard to say it defined my career.
+ - For what I get paid to get into the ring, I owe it to my fans to uphold the institution of sportsmanship.
+ - Being in the ring became my reality, and, in my reality, I’d think I was someone special.
+ - I’m a nut case, but that is what I believe.
+ - Everybody in boxing probably makes out well except for the fighter.
+ - My nature is to get instant gratification. On stage, I can feel everybody’s anticipation. I know what they want, I know what I’m going to give them, I know when I’m going to give it to them, I know when they want it.
+ - Sued King for $100 million, alleging the boxing promoter cheated him out of millions over more than a decade. It was settled out of court for $14 million.
+ - I’m doing what great artists before me did, like Judy Garland, Sammy Davis, Eddie Cantor. I’m doing what they were doing, not at their level yet, but one day I will be. I’m just happy to be in their company.
+ - One day some guy is going to get a billion-dollar fight.
+ - Common sense is so very simple but very difficult to grasp.
+ - There’s nothing wrong with making mistakes, just don’t make the same ones. We don’t want to duplicate them.
+ - I felt Holyfield was using his head illegally. I told the referee I wasn’t getting any help, so I went back to the streets. I cannot defend it, but it happened.
+ - That’s what people respect, the fact that I wasn’t a chump that laid on his back and gave up.
+ - I’m just a sucker even talking to you guys. I should be ready to rip your heads off your necks. But it’s just not the right thing to do.
+ - King has big offices, houses, and he pays his fighters a lot of money. An, because he’s black, the FBI figures he must be doing something crooked.
+ - Friendth, Romanth, countrymen, lend me your earsth.
+ - Anything that helps pay the bills, I love it. Anything that makes people happy, I’m happy with that.
+ - I know how hard it is to be a woman, especially a black woman.
+ - There’s no way I would want to hurt him or bust him up. That’s why, for the sake of the family as well as himself, I will take him out in the opening round.
+ - My main objective is to be professional but to kill him.
+ - You can’t stay married in a situation where you are afraid to go to sleep in case your wife might cut your throat.
+ - I know why they don’t like me because they want the money I have.
+ - We’re all going to be tested. The dark energy is going to knock on all of our doors.
+ - I’m in trouble because I’m normal and slightly arrogant. A lot of people don’t like themselves and I happen to be totally in love with myself.
+
+253 quotes

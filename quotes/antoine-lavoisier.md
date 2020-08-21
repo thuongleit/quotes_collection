@@ -1,0 +1,22 @@
+ - Nothing is lost, nothing is created, everything is transformed.
+ - Nothing is born, nothing dies.
+ - It required 85 parts by weight of oxygen and 15 parts of hydrogen to compose 100 parts of water.
+ - I am young and avid for glory.
+ - I consider nature a vast chemical laboratory in which all kinds of composition and decompositions are formed.
+ - Vegetation is the basic instrument the creator uses to set all of nature in motion.
+ - Vegetables are organized bodies that grow on the dry areas of the globe and within its waters. Their function is to combine immediately the four elements and to serve as food for animals.
+ - Languages are true analytical methods.
+ - It is almost possible to predict one or two days in advance, within a rather broad range of probability, what the weather is going to be; it is even thought that it will not be impossible to publish daily forecasts, which would be very useful to soci.
+ - One succeeds in obtaining an equivalent production at a lower price by improving the arts, trades and agriculture and by developing the physical and moral qualities of workers, farmers and craftsmen.
+ - Sulfur, when burning, absorbs oxygen gas; the resulting acid is considerably heavier than the sulfur burned; its weight is equal to the sum of weights of the sulfur burned and the oxygen absorbed.
+ - Thus, while I thought myself employed only in forming a Nomenclature, and while I proposed to myself nothing more than to improve the chemical language, my work transformed itself by degrees, without my being able to prevent it, into a treatise upon the Elements of Chemistry.
+ - Imagination, on the contrary, which is ever wandering beyond the bounds of truth, joined to self-love and that self-confidence we are so apt to indulge, prompt us to draw conclusions which are not immediately derived from facts.
+ - We must trust to nothing but facts: These are presented to us by Nature, and cannot deceive. We ought, in every instance, to submit our reasoning to the test of experiment, and never to search for truth but by the natural road of experiment and observation.
+ - It is not only by the pores of the skin that this aqueous emaciation takes place. A considerable quantity of humidity is also exhaled by the lungs at each expiration.
+ - Mathematicians come to the solution of a problem by the simple arrangement of the data, and reducing the reasoning to such simple operations, to judgments so brief, that they never lose sight of the evidence that serves as their guide.
+ - A wealthy landowner cannot cultivate and improve his farm without spreading comfort and well-being around him. Rich and abundant crops, a numerous population and a prosperous countryside are the rewards for his efforts.
+ - The whole art of making experiments in chemistry is founded on the principle: we must always suppose an exact equality or equation between the principles of the body examined and those of the products of its analysis.
+ - Experiments upon vegetation give reason to believe that light combines with certain parts of vegetables, and that the green of their leaves, and the various colors of flowers, is chiefly owing to this combination.
+ - Diminish the mass of evils that afflict the human species, increase enjoyment and well-being. And even if the new routes opened up could prolong the average life of mankind by only a few hours, or even a few days, then the scientist, too could aspire.
+
+20 quotes

@@ -1,0 +1,172 @@
+ - Talk is cheap. Show me the code.
+ - A computer is like air conditioning – it becomes useless when you open Windows.
+ - Bad programmers worry about the code. Good programmers worry about data structures and their relationships.
+ - Avoiding complexity reduces bugs.
+ - Most good programmers do programming not because they expect to get paid or get adulation by the public, but because it is fun to program.
+ - Those that can, do. Those that can’t, complain.
+ - All operating systems suck, but Linux just sucks less.
+ - Don’t hurry your code. Make sure it works well and is well designed. Don’t worry about timing.
+ - If you think your users are idiots, only idiots will use it.
+ - Nobody actually creates perfect code the first time around, except me. But there’s only one of me.
+ - I have an ego the size of a small planet.
+ - In real open source, you have the right to control your own destiny.
+ - I like offending people, because I think people who get offended should be offended.
+ - Backups are for wimps. Real men upload their data to an FTP site and have everyone else mirror it.
+ - Excusing bad programming is a shooting offence, no matter what the circumstances.
+ - Intelligence is the ability to avoid doing work, yet getting the work done.
+ - In personal conversations with technical people, I call myself a hacker. But when I’m talking to journalists I just say “programmer” or something like that.
+ - My name is Linus, and I am your God.
+ - I started Linux as a desktop operating system. And it’s the only area where Linux hasn’t completely taken over. That just annoys the hell out of me.
+ - An infinite number of monkeys typing into GNU emacs would never make a good program.
+ - I don’t think I’m unusual in preferring my laptop to be thin and light.
+ - Theory and practice sometimes clash. And when that happens, theory loses. Every single time.
+ - People who are doing things for fun do things the right way by themselves.
+ - An individual developer like me cares about writing the new code and making it as interesting and efficient as possible. But very few people want to do the testing.
+ - In my opinion MS is a lot better at making money than it is at making good operating systems.
+ - I think, fundamentally, open source does tend to be more stable software. It’s the right way to do things.
+ - There are lots of Linux users who don’t care how the kernel works, but only want to use it. That is a tribute to how good Linux is.
+ - Every time I see some piece of medical research saying that caffeine is good for you, I high-five myself. Because I’m going to live forever.
+ - Developers have the attention spans of slightly moronic woodland creatures.
+ - You won’t get sued for anticompetitive behavior.
+ - The thing with Linux is that the developers themselves are actually customers too: that has always been an important part of Linux.
+ - Non-technical questions sometimes don’t have an answer at all.
+ - I think of myself as an engineer, not as a visionary or ‘big thinker.’ I don’t have any lofty goals.
+ - I’m interested in Linux because of the technology, and Linux wasn’t started as any kind of rebellion against the ‘evil Microsoft empire.’
+ - See, you not only have to be a good coder to create a system like Linux, you have to be a sneaky bastard too.
+ - The memory management on the PowerPC can be used to frighten small children.
+ - I want my office to be quiet. The loudest thing in the room – by far – should be the occasional purring of the cat.
+ - If Microsoft ever does applications for Linux it means I’ve won.
+ - The way to do good basic design isn’t actually to be really smart about it, but to try to have a few basic concepts.
+ - In many cases, the user interface to a program is the most important part for a commercial company: whether the programs works correctly or not seems to be secondary.
+ - I will, in fact, claim that the difference between a bad programmer and a good one is whether he considers his code or his data structures more important. Bad programmers worry about the code. Good programmers worry about data structures and their relationships.
+ - Given enough eyeballs, all bugs are shallow.
+ - When you say ‘I wrote a program that crashed Windows,’ people just stare at you blankly and say ‘Hey, I got those with the system, for free.’
+ - I try to avoid long-range plans and visions – that way I can more easily deal with anything new that comes up.
+ - In open source, we feel strongly that to really do something well, you have to get a lot of people involved.
+ - Once you realize that documentation should be laughed at, peed upon, put on fire, and just ridiculed in general, THEN, and only then, have you reached the level where you can safely read it and try to use it to actually implement a driver.
+ - I don’t actually go to that many conferences. I do that a couple of times a year. Normally, I am not recognized; people don’t throw their panties at me. I’m a perfectly normal person sitting in my den just doing my job.
+ - I think the term “intellectual property” should be avoided, not because it’s a bad term, but because it mixes things up that shouldn’t be mixed up. There are different forms, and they hardly have anything to do with each other.
+ - I very seldom worry about other systems. I concentrate pretty fully on just making Linux the best I can.
+ - On the internet nobody can hear you being subtle.
+ - Portability is for people who cannot write new programs.
+ - I’ve actually found the image of Silicon Valley as a hotbed of money-grubbing tech people to be pretty false, but maybe that’s because the people I hang out with are all really engineers.
+ - Linux has definitely made a lot of sense even in a purely materialistic sense.
+ - With software, you really can replicate and do a lot of very real and active development in parallel, and actually try it out and see what works.
+ - I am not out to destroy Microsoft, that would be a completely unintended side effect.
+ - I am pragmatic. That which works, works, and theory can go screw itself. However, my pragmatism also extends to maintainability, which is why I also want it done well.
+ - Only religious fanatics and totalitarian states equate morality with legality.
+ - Fairly cheap home computing was what changed my life.
+ - I may make jokes about Microsoft at times, but at the same time, I think the Microsoft hatred is a disease.
+ - Eventually the revolutionaries become the established culture, and then what will they do.
+ - I’ve never regretted not making Linux shareware: I really don’t like the pay for use binary shareware programs.
+ - So I’ve decided to be a very rich and famous person who doesn’t really care about money, and who is very humble but who still makes a lot of money and is very famous, but is very humble and rich and famous...
+ - I actually think that I’m a rather optimistic and happy person; it’s just that I’m not a very positive person, if you see the difference.
+ - The economics of the security world are all horribly, horribly nasty and are largely based on fear, intimidation and blackmail.
+ - A lot of people still like Solaris, but I’m in active competition with them, and so I hope they die.
+ - Right now some people are just running around in circles and claiming that moving things to the kernel automatically makes it more stable. I’m telling you that the kernel is stable not because it’s a kernel, but because I refuse to listen to arguments like this.
+ - When it comes to software, I much prefer free software, because I have very seldom seen a program that has worked well enough for my needs, and having sources available can be a life-saver.
+ - I’m a technical manager, but I don’t have to take care of people. I only have to worry about technology itself.
+ - If you think penguins are fat and waddle, you have never been attacked by one running at you in excess of 100 miles per hour.
+ - Once you start thinking more about where you want to be than about making the best product, you’re screwed.
+ - It’s a personality trait: from the very beginning, I knew what I was concentrating on. I’m only doing the kernel – I always found everything around it to be completely boring.
+ - The cyberspace earnings I get from Linux come in the format of having a Network of people that know me and trust me, and that I can depend on in return.
+ - It was such a relief to program in user mode for a change. Not having to care about the small stuff is wonderful.
+ - This ‘users are idiots, and are confused by functionality’ mentality of Gnome is a disease. If you think your users are idiots, only idiots will use it.
+ - Whoever came up with “hold the shift key for eight seconds to turn on ‘your keyboard is buggered’ mode” should be shot.
+ - Shareware tends to combine the worst of commercial software with the worst of free software.
+ - Artists usually don’t make all that much money, and they often keep their artistic hobby despite the money rather than due to it.
+ - By staying neutral, I end up being somebody that everybody can trust. Even if they don’t always agree with my decisions, they know I’m not working against them.
+ - I’d much rather have 15 people arguing about something than 15 people splitting into two camps, each side convinced it’s right and not talking to the other.
+ - There are “extremists” in the free software world, but that’s one major reason why I don’t call what I do “free software” any more. I don’t want to be associated with the people for whom it’s about exclusion and hatred.
+ - Only wimps use tape backup. REAL men just upload their important stuff on ftp and let the rest of the world mirror it.
+ - I used to be interested in Windows NT, but the more I see it, the more it looks like traditional Windows with a stabler kernel. I don’t find anything technically interesting there.
+ - There’s innovation in Linux. There are some really good technical features that I’m proud of. There are capabilities in Linux that aren’t in other operating systems.
+ - Let’s put it this way: if you need to ask a lawyer whether what you do is right or not, you are morally corrupt. Let’s not go there. We don’t base our morality on law.
+ - There were open source projects and free software before Linux was there. Linux in many ways is one of the more visible and one of the bigger technical projects in this area, and it changed how people looked at it because Linux took both the practical and ideological approach.
+ - I can mostly laugh at myself and this whole mess called “Linux developers,” which means that I get along with most people and most people get along with me.
+ - If you like using CVS, you should be in some kind of mental institution or somewhere else.
+ - I don’t doubt at all that virtualization is useful in some areas. What I doubt rather strongly is that it will ever have the kind of impact that the people involved in virtualization want it to have.
+ - Personally, I’m not interested in making device drivers look like user-level. They aren’t, they shouldn’t be, and microkernels are just stupid.
+ - And what’s the Internet without the rick-roll?
+ - A consumer doesn’t take anything away: he doesn’t actually consume anything. Giving the same thing to a thousand consumers is not really any more expensive than giving it to just one.
+ - I changed the Linux copyright license to be the GPL some time in the first half of 1992. Mostly because I had hated the lack of a cheaply and easily available UNIX when I had looked for one a year before.
+ - What commercialism has brought into Linux has been the incentive to make a good distribution that is easy to use and that has all the packaging issues worked out.
+ - One of the reasons that I really don’t mind that people are selling Linux commercially is exactly because it does make me feel good that people use the product.
+ - The correct form factor for a laptop is obviously 12" and 2 lbs, and I don’t understand why everybody gets that wrong.
+ - I get the biggest enjoyment from the random and unexpected places. Linux on cellphones or refrigerators, just because it’s so not what I envisioned it. Or on supercomputers.
+ - I obviously think that freely available software can not only keep up with the evolution of commercial software, but often exceed what you can do commercially.
+ - Helsinki may not be as cold as you make it out to be, but California is still a lot nicer. I don’t remember the last time I couldn’t walk around in shorts all day.
+ - Software patents, in particular, are very ripe for abuse. The whole system encourages big corporations getting thousands and thousands of patents. Individuals almost never get them.
+ - I’ve felt strongly that the advantage of Linux is that it doesn’t have a niche or any special market, but that different individuals and companies end up pushing it in the direction they want, and as such you end up with something that is pretty balanced across the board.
+ - I’m perfectly happy with all the people who are walking around and just staring at the clouds and looking at the stars and saying, “I want to go there.” But I’m looking at the ground, and I want to fix the pothole that’s right in front of me before I fall in.
+ - No problem is too big it can’t be run away from.
+ - I’m basically a very lazy person who likes to get credit for things other people actually do.
+ - Microsoft isn’t evil, they just make really crappy operating systems.
+ - No-one has ever called me a cool dude. I’m somewhere between geek and normal.
+ - I don’t expect to go hungry if I decide to leave the University. Resume: Linux looks pretty good in many places.
+ - So I would not be surprised if the globbing libraries, for example, will do NFD-mangling in order to glob “correctly”, so even programs ported from real Unix might end up getting pathnames subtly changed into NFD as part of some hot library-on-library action with UTF hackery inside.
+ - The bulk of all patents are crap. Spending time reading them is stupid. It’s up to the patent owner to do so, and to enforce them.
+ - In short: just say NO TO DRUGS, and maybe you won’t end up like the Hurd people.
+ - The fact that ACPI was designed by a group of monkeys high on LSD, and is some of the worst designs in the industry obviously makes running it at any point pretty damn ugly.
+ - I don’t go to conferences quite as much as I used to: having a child and movin away from the university leaves me with less time, but I’ve tried to balance things out – not just spending time with Linux all the time, but having a real job and a real life at the same time.
+ - I never felt that the naming issue was all that important, but I was obviously wrong, judging by how many people felt. I tell people to call it just plain Linux and nothing more.
+ - Helsinki isn’t all that bad. It’s a very nice city, and it’s cold really only in wintertime.
+ - I am very happy about Android obviously. I use Android, and it’s actually made cellphones very usable.
+ - I don’t try to be a threat to MicroSoft, mainly because I don’t really see MS as competition. Especially not Windows-the goals of Linux and Windows are simply so different.
+ - To be honest, the fact that people trust you gives you a lot of power over people. Having another person’s trust is more powerful than all other management techniques put together.
+ - When you hear voices in your head that tell you to shoot the pope, do you do what they say? Same thing goes for customers and managers. They are the crazy voices in your head, and you need to set them right, not just blindly do what they ask for.
+ - One of the questions I’ve always hated answering is how do people make money in open source. And I think that Caldera and Red Hat – and there are a number of other Linux companies going public – basically show that yes, you can actually make money in the open-source area.
+ - I’ve been employed by the University of Helsinki, and they’ve been perfectly happy to keep me employed and doing Linux.
+ - Hmmm, completely a-religious – atheist. I find that people seem to think religion brings morals and appreciation of nature. I actually think it detracts from both.
+ - I actually don’t believe that everybody should necessarily try to learn to code. I think it’s reasonably specialized, and nobody really expects most people to have to do it. It’s not like knowing how to read and write and do basic math.
+ - Every once in a while an issue comes up where I have to make a statement. I can’t totally avoid all political issues, but I try my best to minimize them. When I do make a statement, I try to be fairly neutral.
+ - You know, the mark of intelligence is realizing when you’re making the same mistake over and over and over again, and not hitting your head in the wall five hundred times before you understand that it’s not a clever thing to do.
+ - If you start doing things because you hate others and want to screw them over, the end result is bad.
+ - I’m generally a very pragmatic person: that which works, works.
+ - OK, I admit it. I was just a front-man for the real fathers of Linux, the Tooth Fairy and Santa Claus.
+ - Language is one of the fundamental principles of human understanding. It is the way we interact with each other and how we grasp the world we live in. Intelligence is the ability to avoid doing work, yet getting the work done.
+ - I like to think that I’ve been a good manager. That fact has been very instrumental in making Linux a successful product.
+ - While I may not get any money from Linux, I get a huge personal satisfaction from having written something that people really enjoy using, and that people find to be the best alternative for their needs.
+ - I do get my pizzas paid for by Linux indirectly.
+ - Making Linux GPL’d was definitely the best thing I ever did.
+ - To be a nemesis, you have to actively try to destroy something, don’t you? Really, I’m not out to destroy Microsoft. That will just be a completely unintentional side effect.
+ - I never try to make any far-reaching predictions, so much can happen that it simply only makes you look stupid a few years later.
+ - Bill Gates really seems to be much more of a business man than a technologist, while I prefer to think of Linux in technical terms rather than as a means to money. As such, I’m not very likely to make the same kind of money that Bill made.
+ - Part of doing Linux was that I had to communicate a lot more instead of just being a geek in front of a computer.
+ - If you want an application to be portable, you don’t necessarily create an abstraction layer like a microkernel so much as you program intelligently.
+ - Programmers are in the enviable position of not only getting to do what they want to, but because the end result is so important they get paid to do it. There are other professions like that, but not that many.
+ - Any program is only as good as it is useful.
+ - If it is relevant there is always somebody else out there.
+ - Real quality means making sure that people are proud of the code they write, that they’re involved and taking it personally.
+ - Some people have told me they don’t think a fat penguin really embodies the grace of Linux, which just tells me they have never seen an angry penguin charging at them in excess of 100mph. They’d be a lot more careful about what they say if they had.
+ - There are literally several levels of SCO being wrong. And even if we were to live in that alternate universe where SCO would be right, they’d still be wrong.
+ - The idea of abstracting away the one thing that must be blindingly fast, the kernel, is inherently counter productive.
+ - I don’t think commercialization is the answer to anything. It’s just one more facet of Linux, and not the deciding one by any means.
+ - I spend a lot more time than any person should have to talking with lawyers and thinking about intellectual property issues.
+ - I’m perfectly happy complaining, because it’s cathartic, and I’m perfectly happy arguing with people on the Internet because arguing is my favourite pastime – not programming.
+ - People enjoy the interaction on the Internet, and the feeling of belonging to a group that does something interesting: that’s how some software projects are born.
+ - Me trying to make a business around Linux would have been a total disaster.
+ - I think people can generally trust me, but they can trust me exactly because they know they don’t have to.
+ - That’s what makes Linux so good: you put in something, and that effort multiplies. It’s a positive feedback cycle.
+ - Turtles are very stable and have been around forever. But they have problems adapting. When humans came along, turtles came under serious threat. Biodiversity is good, and I think it is good in technology as well.
+ - In many ways, I am very happy about the whole Linux commercial market because the commercial market is doing all these things that I have absolutely zero interest in doing myself.
+ - I made very sure that I did not get involved with any of the commercial Linux companies, exactly so that I would be neutral and not ever seen as “working for the competition”.
+ - When I do programming in my free time and for my own enjoyment, I really want to have a kind of protection: knowing that when I improve a program those improvements will continue to be available to me and others in future versions of the program.
+ - What I find most interesting is how people really have taken Linux and used it in ways and attributes and motivations that I never felt.
+ - I’m sitting in my home office wearing a bathrobe. The same way I’m not going to start wearing ties, I’m also not going to buy into the fake politeness, the lying, the office politics and backstabbing, the passive aggressiveness, and the buzzwords.
+ - So I decided that if the architecture is fundamentally sane enough, say it follows some basic rules like it supported paging, then I would be able to say, yes, Linux fundamentally supports that model.
+ - I think one thing I do pretty well is not taking myself too seriously.
+ - Finnish companies tend to be very traditional, not taking many risks. Silicon Valley is completely different: people here really live on the edge.
+ - I’m not worried about the kernel itself or the basic system. All the commercialization is about the distributions and the applications. As such, it only brings value-added things to Linux, and it doesn’t take anything away from the Linux scene.
+ - The thing I love about diving is the flowing feeling. I like a sport where the whole point is to move as little as humanly possible so your air supply will last longer. That’s my kind of sport. Where the amount of effort spent is absolutely minimal.
+ - I’ve been very happy with the commercial Linux CD-ROM vendors linux Red Hat.
+ - The fame and reputation part came later, and never was much of a motivator, although it did enable me to work without feeling guilty about neglecting my studies.
+ - The fact is, there aren’t just two sides to any issue, there’s almost always a range of responses, and “it depends” is almost always the right answer in any big question.
+ - One of the reasons I like open source is that it allows people to work on the parts they are good at, and I don’t mean just on a technical level; some people are into the whole selling and support, and that’s just not me.
+ - On a purely technical side, I’m really very happy with how Linux gets used in a very wide set of different areas. It’s important for development.
+ - I see myself as a technical person who chose a great project and a great way of doing that project.
+ - I don’t have any authority over Linux other than this notion that I know what I’m doing.
+ - Before the commercial ventures, Linux tended to be rather hard to set up, because most of the developers were motivated mainly by their own interests.
+ - I’m simply too content doing what I want to do to really have a very negative attitude towards MicroSoft. They make bad products – so what? I don’t need to care, because I happily don’t have to use them, and writing my own alternative has been a very gratifying experience in many ways.
+
+170 quotes

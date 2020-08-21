@@ -1,0 +1,21 @@
+ - Don’t bring me problems. Bring me solutions.
+ - Even a kick in the ass is good when you’re facing the right direction.
+ - Whatever energy you put out there, that’s the energy you’re going to get back.
+ - It doesn’t matter if it’s raining and dark. The sun is shining above the clouds.
+ - Love is a key ingredient for creativity.
+ - I worked in a boutique after work, my second job, selling women’s clothes. And that was a way of not just making money but meeting women. That was very exciting job. I loved that job.
+ - Every day has its own challenges, and every day those challenges make us stronger.
+ - It’s not about the outside, it’s the inside. But dressing on the outside can help the inside.
+ - You can only be connected to others if you are connected to yourself and the truth inside.
+ - Clothing should be quieter than the woman so that her true beauty can shine through.
+ - If you like something, go for it.
+ - Creativity to me is the life force that is in us. It’s an animalistic instinct for survival.
+ - New York. Truly, this is the only city that I feel this energy. Everyone is accepted. This is the first place that I felt open and that I can do everything.
+ - I got involved in fashion by accident. When I got to New York, my intention was to have enough money to eat and to stay and I don’t have to leave. I just loved New York – the energy, the culture, the freedom.
+ - If you love what you do, it won’t be work.
+ - I grew up in different orphanages in Israel, and if they gave me a pair of shoes, a shirt, and pair of pants every year, I was lucky. The rest was handouts, leftover clothes. So I appreciated clothes because I only had one new shirt each year.
+ - Financially Im comfortable. But life has a lot more in store for me.
+ - I had to succeed. Failure means I would have to be homeless again.
+ - Getting up in the morning and loving what you do is a dream come true.
+
+19 quotes

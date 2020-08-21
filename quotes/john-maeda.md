@@ -1,0 +1,51 @@
+ - People who can focus, get things done. People who can prioritize, get the right things done.
+ - If you have no fear, no one has power over you.
+ - Simplicity is about subtracting the obvious and adding the meaningful.
+ - Design is a solution to a problem. Art is a question to a problem.
+ - Knowledge makes everything simpler.
+ - When you’re younger, think less and do more; when you’re older, do less and think more.
+ - Technology makes possibilities. Design makes solutions. Art makes questions. Leadership makes actions.
+ - Too little confidence, and you’re unable to act; too much confidence, and you’re unable to hear.
+ - Simplicity and complexity need each other.
+ - Good problem-seekers are in higher demand than good problem-solvers.
+ - Creativity’s about ownership.
+ - The simplest way to achieve simplicity is through thoughtful reduction.
+ - If you are going to have less things, they have to be great things.
+ - How do we slow down what matters the most and speed up what benefits change and progress? We don’t want to impede progress, but we are seeking reconnection to ourselves, to each other, and with the world.
+ - The problem isn’t how to make the world more technological. It’s about how to make the world more humane again.
+ - My role is to find strategic insights as to where design can have the most business impact. A designer can bring a viewpoint of not just aesthetics, but economics and usage.
+ - Art shows us that human beings still matter in a world where money talks the loudest, where computers know everything about us, and where robots fabricate our next meal and also our ride there.
+ - Our economy is built upon convergent thinkers, people that execute things, get them done. But artists and designers are divergent thinkers: they expand the horizon of possibilities.
+ - Videogames are indeed design: They’re sophisticated virtual machines that echo the mechanical systems inside cars.
+ - As a genre, videogames take our minds on journeys, and we can control and experience them much more interactively than passively – especially when they are well-designed.
+ - We seem to forget that innovation doesn’t just come from equations or new kinds of chemicals, it comes from a human place. Innovation in the sciences is always linked in some way, either directly or indirectly, to a human experience.
+ - Skill in the digital age is confused with mastery of digital tools, masking the importance of understanding materials and mastering the elements of form.
+ - A designer is someone who constructs while he thinks, someone for whom planning and making go together.
+ - Apple products aren’t simple technologies by any stretch, but there is a beautiful simplicity to them.
+ - Think of the computer as a spiritual space for thinking.
+ - The best designers in the world all squint when they look at something. They squint to see the forest from the trees – to find the right balance. Squint at the world. You will see more, by seeing less.
+ - Things that I can do myself, I either do by myself, or teach a willing undergraduate who doesn’t know how to do those things by doing it for me. Things that I can’t do myself, my graduate students should be doing.
+ - Organization makes a system of many appear fewer.
+ - Communication in every which way is everything for the leader.
+ - I like stuff designed by dead people. The old designers. They always got it right because they didn’t have to grow up with computers. All of the people that made the spoon and the dishes and the vacuum cleaner didn’t have microprocessors and stuff. You could do a good design back then.
+ - The difference between closing or opening your eyes is the choice between the imagined vs real. Blinking is only human.
+ - Corporations today, by their razor sharp focus on the ‘bottom line’ and quarterly earnings, have lost their ability to innovate.
+ - If there were a prerequisite for the future successful digital creative, it would be the passion for discovery.
+ - I don’t really love computers.
+ - Design is about crafting an experience that is unfamiliar enough to feel novel, yet familiar enough to instill confidence.
+ - Teaching is the rare profession where the customer isn’t always right and needs to be told so appropriately.
+ - The best scientists that I’ve met are those that are humanists and scientists at the same time.
+ - All artists yearn to struggle, when they struggle they know they’re alive.
+ - In the ’70s and ’80s there was an attempt in K-12 to teach science through art or art through science. The challenge today is how do you build the ethos of art and design into the academy of science.
+ - Information is expanding daily. How to get it out visually is important.
+ - All I want to be is, someone that makes, new things and, thinks about them.
+ - Research universities need excellent means to communicate and express their results to regular people.
+ - Artists change how we see the world – and that can have value in the way people do business.
+ - I don’t like creating software anymore. It’s too exact. It’s like karate; there’s no room for error.
+ - The artist needs to understand the truth that lies at the bottom of an enigma.
+ - Anyone with a computer and a design program can create a page layout. But unless you’re trained in design, it won’t look very good and it won’t communicate very well.
+ - I have a confession: I’m not a man of simplicity. I spent my entire early career making complex stuff. Lots of complex stuff.
+ - No place in the US better exemplifies the ethos to engineer new digital technologies than Silicon Valley.
+ - With regard to what is designed really well, I think people are the best-designed objects in the world. Seriously.
+
+49 quotes

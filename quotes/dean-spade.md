@@ -1,0 +1,26 @@
+ - Let’s be gentle with ourselves and each other and fierce as we fight oppression.
+ - The point for me is to create relationships based on deeper and more real notions of trust. So that love becomes defined not by sexual exclusivity, but by actual respect, concern, commitment to act with kind intentions, accountability for our actions, and a desire for mutual growth.
+ - Military inclusion has never been a central demand from trans populations, who consistently name criminalization, immigration enforcement, poverty and joblessness as top priorities.
+ - Choosing an agenda that supports the apparatuses of racial violence always pays better.
+ - I am interested in recent scholarly work examining the emergence of women’s studies and ethnic studies departments and the development of the neoliberal university.
+ - Gender segregated shelters are inaccessible to many trans people, and trans women in particular are often forced to choose between going into a men’s shelter where they face enormous danger, or remaining street homeless and facing the violence, harassment, arrest, and exposure risks of that.
+ - Many people who are drawn to work about racism and transphobia may be new to thinking deeply about colonialism and indigenous resistance in their North America.
+ - My work is heavily influenced by critiques that many critical intellectual traditions, especially Critical Race Theory, have made of reform projects focused on legal equality.
+ - Legal doctrine requiring a showing of evidence of racist intent and a narrow chain of causation has made it very difficult to prove in court that a person or group is experiencing racism because the standards are too narrow and too focused on individual intentions.
+ - I argue that legal equality has failed resistance movements aimed at transforming material conditions of violence, and that trans activists should take a decidedly different approach.
+ - In recent years I have become more interested in making the critical ideas that I love teaching and talking about available in more forms, because many people prefer to engage with ideas in films, infographics, comics and other forms that are not traditional books or articles.
+ - In addition to encouraging us to participate in narratives of “deservingness” that cast large parts of our constituencies as “undeserving,” legal reform strategies encourage us to valorize harmful systems that our movements should be seeking to dismantle.
+ - Law reforms in the US, ostensibly enacted to prohibit racism, have proven ineffective because they focus on bad intentions of individuals and fail to comprehend population-level conditions.
+ - As trans advocacy has institutionalized and developed, the context of the undemocratic nature of US non-profits and the ways that white, wealthy individuals can intensely influence the directions of advocacy have increasingly come to the surface for trans activists.
+ - Legal reform has significant dangers: changing only the window-dressing of harmful systems but leaving the violence of the systems in tact, failing to provide actual relief for those facing the worst conditions, and legitimizing or expanding systems of harm.
+ - More conservative advocacy work often encourages portrayals of trans people as people who deserve rights. Deservingness, of course, corresponds to national racial, gender and ability norms.
+ - I see the concepts spatially in my mind. I see the boxes and corrals and grids into which administrative systems require people, things and information to be fit in order to be legible, made to live, or in order to facilitate death and abandonment.
+ - I have deliberated carefully about which of the terms that are unfamiliar to many of my readers I wanted to take time to introduce and explain, and which terms I would not introduce, despite the fact that I find them useful in my other work, in teaching, or in other activist contexts.
+ - We should interact with legal reform tactically, knowing that it will not meet our ultimate goals but asking whether there are ways that engaging with particular reforms might benefit our work and help reduce certain harms or dangers.
+ - I strive to find materials that will engage students, expand their capacities as critical readers and thinkers, and feel immediately relevant to their daily lives and future work in court and social service systems.
+ - We should understand that in the context of the US, where our legal system is based in settler colonialism, capitalism and white supremacy, changing laws will never sufficiently change the conditions of harm and violence our movements seek to transform.
+ - We must experiment, fail, and try again, but beginning with a critique of legal reform and a commitment to center the most vulnerable moves us away from some of the most common, obvious pitfalls of neoliberal social movement strategies.
+ - I am not arguing that we should never use legal reform as a tactic. Instead, I argue that it should not be a goal.
+ - Making my work more visual is something I am increasingly excited about. I am hopeful that it will broaden access to some of the ideas being engaged in activist and scholarly communities of which I am part.
+
+24 quotes

@@ -1,0 +1,31 @@
+ - Segregation or separation is thus a basic principle of Biblical Law with respect to religion and morality. Every attempt to destroy this principle is an effort to reduce society to its lowest common denominator.
+ - Some people are by nature slaves and will always be so.
+ - Humanistic law aims at saving man and remaking society. For Humanism, salvation is an act of the state.
+ - The only true order is founded on Biblical Law. All law is religious in nature, and every non-Biblical law-order represents an anti-Christian religion.
+ - It must be recognized that in any culture the source of law is the god of that society.
+ - All men are NOT created equal before God; the facts of heaven and hell, election and reprobation make clear that they are not equal. Moreover, an employer has aproperty rights to prefer whom he will in terms of “color” creed, race or national origin.
+ - The result of becoming tolerant towards sin is that we become intolerant towards God and His Word.
+ - History has never been dominated by majorities, but only by dedicated minorities who stand unconditionally on their faith.
+ - The University of Timbuktu never existed. The only thing that existed in Timbuktu was a small mud hut.
+ - To be fearless in the Lord does not require us to be great and powerful men, but only to believe in the great and powerful God.
+ - Few things are more commonly misunderstood than the nature and meaning of theocracy. It is commonly assumed to be a dictatorial rule by self-appointed men who claim to rule for God. In reality, theocracy in Biblical law is the closest thing to a radical libertarianism that can be had.
+ - We cannot use our thoughts and feelings as a standard: only God’s Word is the test.
+ - People do not avoid the Bible because it is difficult to understand as much as because what they understand condemns their conscience and throws light on dark corners in their lives which they prefer to keep dark.
+ - To control the future requires the control of education and of the child. Hence, for Christians to tolerate statist education, or to allow their children to be trained thereby, means to renounce power in society, to renounce their children, and to deny Christ’s Lordship over all of life.
+ - Concerning the press and politicians, the hatred for all such evangelical groups is not because of their real or fancied blunders but because they have reintroduced biblical morality into politics.
+ - The goal is the developed Kingdom of God, the New Jerusalem, a world order under God’s law.
+ - Democracy is the great love of the failures and cowards of life.
+ - Life is rarely easy, but, with Christ our King, it is always good.
+ - The triune God exercises total government over all things, and He requires us as His image-bearers to exercise government in Christ in our own spheres in terms of His law.
+ - Do we need more laws? God forbid! We need more righteousness, more freedom, and more godly men – and fewer laws.
+ - There can be no good character in civil government if there is none in the people. You cannot make a good omelet with bad eggs.
+ - Whenever freedom is made into the absolute, the result is not freedom but anarchism. Freedom must be under law, or it is not freedom.
+ - A man’s faith governs the totality of his life, or else his professed faith is not his real faith.
+ - The state is a bankrupt institution. The only alternative to this bankrupt ‘humanistic’ system is a God-centered government.
+ - The Lord supplies our needs, but not our selfishness.
+ - Man lives in time but his life transcends time.
+ - In any age, our problems are a result of sin, and the solution is faith and obedience.
+ - Our basic problem today is that we have two religions in conflict, humanism and Christianity, each with its own morality and the laws of that morality.
+ - Law is good, proper, and essential in its place, but law can save no man, nor can law remake man and society.
+
+29 quotes

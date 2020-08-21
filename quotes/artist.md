@@ -1,0 +1,42 @@
+ - Artists are here to disturb the peace. ~~James Baldwin
+ - All Children are Artists. ~~Pablo Picasso
+ - There is no greater harm than that of time wasted. ~~Michelangelo
+ - Inside you there’s an artist you don’t know about. ~~Rumi
+ - We’re here to make a dent in the universe. Otherwise, why even be here? We’re creating a completely new consciousness, like an artist or a poet. That’s how you have to think of this. We’re rewriting the history of human thought with what we’re doing. ~~Steve Jobs
+ - The role of the artist is exactly the same as the role of the lover. If I love you, I have to make you conscious of the things you don’t see. ~~James Baldwin
+ - The function of artists is “the mythologization of the world.” ~~Joseph Campbell
+ - I see myself forever and ever as the ridiculous man, the lonely soul, the wanderer, the restless frustrated artist, the man in love with love, always in search of the absolute, always seeking the unattainable. ~~Henry Miller
+ - Artistry is important. Skill, hard work, rewriting, editing, and careful, careful craft: All of these are necessary. These are what separate the beginners from experienced artists. ~~Sarah Kay
+ - Paintings have a life of their own that derives from the painter’s soul. ~~Vincent van Gogh
+ - Never permit a dichotomy to rule your life, a dichotomy in which you hate what you do so you can have pleasure in your spare time. Look for a situation in which your work will give you as much happiness as your spare time. ~~Pablo Picasso
+ - I am in no sense of the word a great artist, not even a great animator; I have always had men working for me whose skills were greater than my own. I am an idea man. ~~Walt Disney
+ - Take me, I am the drug; take me, I am hallucinogenic. ~~Salvador Dalí
+ - I’m supposed to be, I am an artist. Yes, I’m lonely. But I’m married to my loneliness. ~~Lady Gaga
+ - In times of dread, artists must never choose to remain silent. ~~Toni Morrison
+ - The rapists of the intellectual world become politicians; the seducers become artists. ~~Robert Anton Wilson
+ - I love things that age well – things that don’t date, that stand the test of time and that become living examples of the absolute best. ~~Giorgio Armani
+ - The great leaders of business, industry and finance, and the great artists, poets, musicians and writers all became great because they developed the power of self-motivation. ~~Napoleon Hill
+ - Artists are born not made. There’s nothing you can do for them. ~~Louise Bourgeois
+ - The object of the artist is the creation of the beautiful. What the beautiful is is another question. ~~James Joyce
+ - You are both a work of art and an artist at work. ~~Erwin Raphael McManus
+ - There may be a great fire in our hearts, yet no one ever comes to warm himself at it, and the passers-by see only a wisp of smoke. ~~Vincent van Gogh
+ - Let my enemies devour each other. ~~Salvador Dalí
+ - The mother is the one supreme asset of national life; she is more important by far than the successful statesman, or business man, or artist, or scientist. ~~Theodore Roosevelt
+ - It is not the job of artists to give the audience what the audience want. If the audience knew what they needed, then they wouldn’t be the audience. They would be the artist. It is the job of artists to give the audience what they need. ~~Alan Moore
+ - The miniatures of the Mughal period are really the pinnacle of Indian artistic achievement. And not a single one of those paintings is done by an individual artist. ~~Salman Rushdie
+ - We will make love an art and we will love like artists. ~~Marianne Williamson
+ - The most exciting thing is not doing it. If you fall in love with someone and never do it, it’s much more exciting. ~~Andy Warhol
+ - If your life changes, we can change the world, too. ~~Yoko Ono
+ - The man who never alters his opinions is like standing water, and breeds reptiles of the mind. ~~William Blake
+ - Every time an artist dies, part of the vision of mankind passes with him. ~~Franklin D. Roosevelt
+ - An artist must smash down the systems that domesticate the mind. ~~Jean Giraud
+ - Anxious, inexperienced writers obey rules. Rebellious, unschooled writers break rules. Artists master the form. ~~Robert McKee
+ - I am an artist first and a photographer second. ~~Andres Serrano
+ - You cannot have Liberty in this world without what you call Moral Virtue, and you cannot have Moral Virtue without the slavery of that half of the human race who hate what you call Moral Virtue. ~~William Blake
+ - My bottom line is that I think Ridley Scott is one of the greatest visual artists of our time and I feel very privileged that he wants to work with me, so I go with that flow. ~~Russell Crowe
+ - You seldom hear any young artists in country music. ~~Conway Twitty
+ - My painting carries with it the message of pain. ~~Frida Kahlo
+ - I think the key is basically just your determination. As far an artist is concerned, it’s just about your drive and your dream. ~~Chris Brown
+ - An artist must be free to choose what he does, certainly, but he must also never be afraid to do what he might choose. ~~Langston Hughes
+
+40 quotes

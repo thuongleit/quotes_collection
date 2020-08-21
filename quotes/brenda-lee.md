@@ -1,0 +1,23 @@
+ - God has never disappointed me.
+ - I’m not used to introspection. I’ve never lingered on my feelings. The show must go on.
+ - I’m sorry if I took some things for granted, I’m sorry for the chains I put on you. But more than anything, I’m sorry for myself for living without you.
+ - The Beatles were raw musically, but I think they really had something.
+ - Im Sorry was one of the first songs to come out of Nashville using strings.
+ - I still sing because I love the sound of applause, because it’s who I am, and because I still can.
+ - Whatever happened to the tomboy I used to be, the slightly rebellious rocker?
+ - The amazing thing is that I’m sane. I’m not bitter. I’m not drugged out. I’m not broke. I’m still married to the same guy. My children don’t hate me.
+ - I always loved reading. I always was the spelling bee champion. I always loved words. I always wanted to know what they meant, why you used them, who first said them. I was always interested in that.
+ - John Lennon was very irreverent and very intelligent.
+ - Brother, if you want to get the lowdown, Come along and let’s all have a hoedown.
+ - I only wish Chet Atkins could be here for this joyous occasion.
+ - The music business can be very cold. And it doesn’t honor its elders.
+ - I gave up my childhood for a career.
+ - I always felt that I was one of the women who helped lay the foundation for rock and roll. But I’d always been overlooked by the Hall of Fame.
+ - I’ve spent an awful lot of my time in the air. I’ve had everything happen to me in a plane that could happen. Except a crash.
+ - I didnt really have an agenda for my talent. I just wanted to be able to sing.
+ - I was nuts about Elvis, like every girl in America.
+ - I believe I became one of the first singers to be launched via television exposure. I guess I was a new kind of musical stylist for a new kind of media.
+ - I had been singing since I was 3 years old, so my love of singing was always there.
+ - I still don’t look at myself as a star. I’ve always had a thankful heart.
+
+21 quotes

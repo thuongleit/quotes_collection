@@ -1,0 +1,37 @@
+ - It is difficult to get a man to understand something, when his salary depends on his not understanding it.
+ - Fascism is capitalism plus murder.
+ - One of the necessary accompaniments of capitalism in a democracy is political corruption.
+ - Human beings suffer agonies, and their sad fates become legends; poets write verses about them and playwrights compose dramas, and the remembrance of past grief becomes a source of present pleasure – such is the strange alchemy of the spirit.
+ - It is foolish to be convinced without evidence, but it is equally foolish to refuse to be convinced by real evidence.
+ - American journalism is a class institution, serving the rich and spurning the poor.
+ - You don’t have to be satisfied with America as you find it. You can change it. I didn’t like the way I found America some sixty years ago, and I’ve been trying to change it ever since.
+ - Pessimism is mental disease. It means illness in the person who voices it, and in the society which produces that person.
+ - I am sustained by a sense of the worthwhileness of what I am doing; a trust in the good faith of the process which created and sustains me. That process I call God.
+ - There is one kind of prison where the man is behind bars, and everything that he desires is outside; and there is another kind where the things are behind the bars, and the man is outside.
+ - I aimed at the public’s heart, and by accident I hit it in the stomach.
+ - We define journalism in America as the business and practice of presenting the news of the day in the interest of economic privilege.
+ - All art is propaganda. It is universally and inescabably propaganda; sometimes unconsciously, but often deliberately, propaganda.
+ - The old wanderlust had gotten into his blood, the joy of the unbound life, the joy of seeking, of hoping without limit.
+ - An event of colossal and overwhelming significance may happen all at once, but the words which describe it have to come one by one in a long chain.
+ - Man is an evasive beast, given to cultivating strange notions about himself.
+ - All truly great art is optimistic. The individual artist is happy in his creative work. The fact that practically all great art is tragic does not in any way change the above thesis.
+ - Can you blame me if I am pursued by the thought of how much we could do to remedy social evils, if only we had an honest and disinterested press?
+ - I don’t know whether anyone will care to examine my heart, but if they do, they will find two words there- ‘social justice.’ For that is what I have believed in and fought for.
+ - The supreme crime of the church to-day is that everywhere and in all its operations and influences it is on the side of sloth of mind; that it banishes brains, it sanctifies stupidity, it canonizes incompetence.
+ - They use everything about the hog except the squeal.
+ - But the devil is a subtle worm; he does not give up at one defeat, for he knows human nature, and the strength of the forces which battle for him.
+ - It was cold and clammy in the stone cell; they called it the “cooler,” and used it to reduce the temperature of the violent and intractable. It was a trouble-saving device; they just left the man there and forgot him, and his own tormented mind did the rest.
+ - I have not only found good health, but perfect health; I have found a new state of being, a potentiality of life; a sense of lightness and cleanness and joyfulness, such as I did not know could exist in the human body.
+ - The private control of credit is the modern form of slavery.
+ - In a society dominated by the fact of commercial competition, money is necessarily the test of prowess, and wastefulness the sole criterion of power.
+ - Dad, as a good American, believed his newspapers.
+ - The proletarian writer is a writer with a purpose; he thinks no more of art for art’s sake than a man on a sinking ship thinks of painting a beautiful picture in the cabin; he thinks of getting ashore – and then there will be time enough for art.
+ - The first thing brought forth by the study of any religion, ancient or modern, is that it is based upon Fear, born of it, fed by it – and that it cultivates the source from which its nourishment is derived.
+ - In the twilight, it was a vision of power.
+ - Wall Street had been doing business with pieces of paper; and now someone asked for a dollar, and it was discovered that the dollar had been mislaid.
+ - Over the vast plain I wander, observing a thousand strange and incredible and terrifying manifestations of the Bootstrap-lifting impulse.
+ - If we are the greatest nation the sun ever shone upon, it would seem to be mainly because we have been able to goad our wage-earners to this pitch of frenzy.
+ - It is the music which makes it what it is; it is the music which changes the place from the rear room of a saloon in back of the yards to a fairy place, a wonderland, a little comer of the high mansions of the sky.
+ - I just put on what the lady says. I’ve been married three times, so I’ve had lots of supervision.
+
+35 quotes

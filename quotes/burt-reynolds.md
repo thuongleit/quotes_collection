@@ -1,0 +1,32 @@
+ - All you really have in the end are your stories.
+ - Money doesn’t buy happiness. It buys great hookers – but not happiness.
+ - Sometimes you have to lose yourself ’fore you can find anything.
+ - Florida is a very healing place.
+ - The most important thing to remember is: to protect your quarterback – ME!
+ - You get to a certain age, where you know you can’t go over the wall, but I’ll never get to the age where I can’t go through it.
+ - The moment you grab someone by the lapels, you’re lost.
+ - Women are my drugs and alcohol. When I’m involved with one woman, I’m involved with one woman. Period. But between romances, I am carnivorous.
+ - The audience will always forgive you for being wrong and exciting, but never for being right and dull.
+ - Marriage is about the most expensive way for the average man to get laundry done.
+ - The best way not to fail again is to be absolutely positive that when you do it this time, you’re going to do it right.
+ - The more the art dominated my life and my house, the more the house became a home.
+ - My movies were the kind they show in prisons and airplanes, because nobody can leave.
+ - I’m paying the third highest alimony and child support in the world. And the only two ahead of me are sheiks.
+ - You’re not a man until your father says you’re a man.
+ - In football you can make it if you’ve got the ‘I’m-going-to-get-up-off-the-ground-and-kick-your-ass’ attitude.
+ - Friends come in herds and they leave in herds. Hollywood loves an adventure, but you have to hit bottom. Then they love to save you and be a part of it. Or think they’re a part of it.
+ - I can tell a young person where the mines are, but he’s probably going to step on them anyway.
+ - Jay Leno is wonderful and a good friend, but it will always be the Carson show to a lot of people.
+ - I’m terrified of marriage. I’m terrified of not doing something so important and at the same time I think you shouldn’t rush into these things.
+ - I’ve always gotten along well with Texans. You’ve got to.
+ - I regret that I do not have the dignity of Ricardo Montalban, the class of Dean Martin, or the humor of Bill Cosby. I DO have the heart of a lion.
+ - When an actor marries an actress they both fight for the mirror.
+ - There are three stages of an actor’s career. Young, old, and “You look good”.
+ - There are no awards in Hollywood for being an idiot.
+ - I can sing as well as Fred Astaire can act.
+ - Having done 300 television shows and almost 60 movies, I’m tired of having guys who are younger than some sandwiches I’ve had, telling me to turn left at the couch. There’s no appreciation of actors and no sense of history.
+ - If I want to be up for an Academy Award, I’m either going to have to play a tour de force of some kind or have a tracheotomy just before the nominations.
+ - All of the younger actors keep coming up to me and asking me where all of the land mines are because they know I’ve stepped on them all.
+ - My acting is a bit like basketball. Most females in my films come off very well. I give great assist. And if I’m lucky, I even score.
+
+30 quotes

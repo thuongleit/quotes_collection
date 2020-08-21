@@ -1,0 +1,281 @@
+ - Love all. Serve all. Help ever. Hurt never.
+ - Knowledge that is not put into practice is like food that is not digested.
+ - Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?
+ - All is divine, all is God, and unity is divinity.
+ - You are not one person, but three: The one you think you are; The one others think you are; The one you really are.
+ - The end of education is character.
+ - Real happiness lies within you.
+ - Teachers are reservoirs from which, through the process of education, students draw the water of life.
+ - Less talk – more work! There is too much talking going on. Because of excessive talking, spiritual energy is being wasted.
+ - Being a good example is the best form of service.
+ - You can hear the footsteps of God when silence reigns in the mind.
+ - I – Want – Peace, I is ego, Want is desire; Remove ego and desire and you have peace.
+ - The cultivation of Human Values alone is Education.
+ - Politics without principles, Education without character, Science without humanity, and Commerce without morality are not only useless, but also positively dangerous.
+ - Hear good things, see good, do good, think good, then you get the Grace of God, as all the evil tendencies will be uprooted.
+ - Every experience is a lesson. Every loss is a gain.
+ - Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!
+ - Love must express itself as service.
+ - Duty without love is deplorable.
+ - God, if you think, God you are. Dust if you think, dust you are. As you think, so you become. Think God, be God.
+ - If there is righteousness in the heart, there will be beauty in the character. If there is beauty in the character, there will be harmony in the home. If there is harmony in the home, there will be order in the nations. When there is order in the nations, there will peace in the world.
+ - Let us grow together, enjoy together...
+ - Love as Thought is Truth.
+ - The essence of all religions is One. Surrender is the main duty of everyone. Surrender means the feeling of oneness, I and God are One. Why? The reason is that the One who is present in you is present in me.
+ - It is only by means of purity of mind can you come close to the Lord.
+ - Adore God, abhor sin.
+ - Silence is the only language of the realized. Practice moderation in speech.
+ - Discipline is the mark of intelligent living.
+ - Service broadens your vision widens your awareness. Deepens your compassion.
+ - Whoever tries to understand the Human Values of Truth, Righteous conduct, Peace, Love and Non-violence properly, who practises these values and propagates them with zeal and sincerity can alone be described as a truly educated person.
+ - Love is selflessness, Self is lovelessness.
+ - Trust in my wisdom. I do not make mistakes. Love my uncertainty for it is not a mistake. It is my intent and will. Remember – nothing happens without my will. Be still. Do not ask to understand. Do not want to understand.
+ - Once we surrender our mind to God completely, He will take care of us in every way.
+ - Leadership is Idealism in Action.
+ - God has no beginning and no end.
+ - Whenever and wherever you put yourself in touch with GOD, that is the state of meditation.
+ - Human values should predominate in men’s thoughts. Human life has no meaning without these values.
+ - God is the mother and father of the world. Our parents are the mother and father of this body.
+ - Man loves because he is Love. He seeks Joy, for he is Joy. He thirsts for God for he is composed of God and he cannot exist without Him.
+ - Have a sense of pride in your motherland. Just as your mother has given birth to you, so too the land has given birth to you.
+ - The gift of food to the hungry is the noblest of all gifts.
+ - You have it in your power to make your days on Earth a path of flowers, instead of a path of thorns.
+ - Let us live and move in harmony. Let us grow together. Let us cherish the wisdom that we have acquired together. Let us live in complete harmony without any misunderstanding.
+ - Learn to speak what you feel, and act what you speak.
+ - It is when you experience another’s suffering as your own that your human values is manifested.
+ - Your true nature is purity, peace and joy.
+ - Good company is important, it helps to cultivate good qualities.
+ - All service should be regarded as an offering to God, and every opportunity to serve should be welcomed as a gift from God. When service is done in this spirit, it will lead to self- realization.
+ - Desire is storm, greed is whirlpool, pride is precipice, attachment is avalanche, ego is volcano. Discard desire and you are liberated.
+ - Travel light, Arrive quickly.
+ - Of the twenty-four hours a day, Use six for earning and spending, six for contemplation of God, six of sleep and six for service to others.
+ - Human values are born with man. They are not got from outside. Man in his ignorance is not aware of these values. when man sheds his ignorance, he will experience his divine nature.
+ - Do not contemplate on death; it is just an incident in life; contemplate on God, who is the master of all life.
+ - Knowledge without devotion to God produces hatred.
+ - When you speak about these miracles, I laugh within Myself out of pity, that you allow yourself so easily to loose the precious awareness of My Reality.
+ - The fundamental human values all emanate from Dharma, based on Truth. If human behaviour has no such basis, it leads to disaster.
+ - The mind must become the servant of the intellect, not the slave of the senses. It must discriminate and detach itself from the body. Like the ripe tamarind fruit, which, becomes loose inside the shell, it must be unattached to this shell, this casement called body.
+ - God is in everyone. God is in you and you are God. Strengthen this fundamental truth. When you propagate this truth, that is the real service. It is the service that will take you to closer proximity, a boat. In this ocean of life, take the help of this boat and gain the proximity.
+ - Example, not precept, is the best teaching aid.
+ - The aim of all spiritual practice is love.
+ - The secret of perfect health lies in keeping the mind always cheerful – never worried, never hurried, never borne down by any fear, thought or anxiety.
+ - A wicked person, swayed by evil motives and evil actions, is described as a demon.
+ - Silence is the speech of the spiritual seeker.
+ - The body will shine if the character is fine; service of man and worship of God will preserve its charm.
+ - Life is a mosaic of pleasure and pain – grief is an interval between two moments of joy.
+ - You have come from God, you are a spark of His Glory; you are a wave of that Ocean of Bliss; you will get peace only when you again merge in Him.
+ - If you honour your mother, the Mother of the Universe will guard you against harm.
+ - The narrow-minded who undertake any work will never be satisfied. They cannot understand the actions of those who are large hearted and broad-minded.
+ - You are seeking joy and peace in far-off places. But the spring of joy is in your heart. The haven of peace is in yourself.
+ - The mother must set the example in holding out the shrine as the heart of the house hold! She must enforce discipline over the children in personal cleanliness in humility and hospitality, in good manners and acts of service.
+ - One without health cannot achieve any small thing.
+ - If you sing alone in your shrine, the vibrations return to you as a reaction. But in community singing, what you have is not a reaction but a wave of vibrations. They enter into the atmosphere and purify the polluted air.
+ - There should be a harmonious blend of religion, philosophy and art for man to live healthily in the world.
+ - For the progress of humanity, work alone is not adequate, but the work should be associated with love, compassion, right conduct, truthfulness and sympathy...
+ - My people do not come to me of their own accord; it is I who seek and bring them to me.
+ - Your sight must become an insight; it must be turned within and used to purify and clarify your mind.
+ - Our life is like a block of ice which is melting away every moment. Before it spends itself, devote it to the service of others. Education in Human Values is designed to prepare everyone for this life of dedicated service.
+ - I have come to light the lamp of love in your hearts, to see that it shines day by day with added luster.
+ - There was no one to understand Me until I created the whole world.
+ - All things are beautiful seen through the eyes of love.
+ - Do not develop jealousy, hatred or envy on any count.
+ - Discipline trains you to put up with disappointments, every rose has a thorn.
+ - Man must saturate his daily life in truthful speech, virtuous acts and holy thoughts.
+ - True devotion must not get dispirited; nor elated or satisfied with lesser gains; it must fight against failure, loss, calumny, calamity, ridicule and against egoism and pride, impatience and cowardice .
+ - No bird casts the seed on land to grow food for itself, nor do beasts plough and enclose fields claiming – this is mine, this is for my children and children’s children -.
+ - Man’s many desires are like the small metal coins he carries about in his pocket. The more he has the more they weight him down.
+ - Death may call any moment. Every moment, everyone is nearing death.
+ - A person might be an expert in any field of knowledge or a master of many material skills and accomplishments. But without inner cleanliness his brain is a desert waste.
+ - When you retire for the night offer grateful homage to God for being with you all day long.
+ - You must enshrine in your hearts the spiritual urge towards light and love, Wisdom and Bliss!
+ - Sacrifice, so that you may be saved. You have to sacrifice, not a bleating sheep or a horse or a cow, but your animality, the bestial lust and greed, hate and malice. Sacrifice these and you earn the heaven of unflinching peace.
+ - The greatest formula that can liberate, cleanse and elevate the mind is Rama-Name, the Name of Rama.
+ - Devotional singing induces in you a desire for experiencing the truth, to glimpse the beauty that is God, to taste the bliss that is the Self. It encourages man to dive into himself and be genuinely his real Self.
+ - Be ashamed of your hatred. Give up hatred and be quiet.
+ - Eating meat and drinking liquor are demonic vices. Those indulging in drink lose all sense of propriety, have no compassion or love and become demons.
+ - The grace of God is like insurance. It will help you in your time of need without any limit.
+ - Unity is divinity, purity is enlightenment.
+ - Develop a sense of the brotherhood of man. Look upon each person as your own brother. There is only one caste, the caste of humanity. All of us belong to the human race, so everyone is equal. Therefore, love each one equally.
+ - Krishna insisted on outer cleanliness and inner cleansing. Clean clothes and clean minds are an ideal combination.
+ - It is best to live with honor for just a day than with dishonor for many decades; better a short lived celestial swan than a century-lived crow.
+ - A man who has no love in him is as barren as a cloud with no moisture, a tree with no fruits or a cow yielding no milk; he is ever far from God and can never earn His Grace.
+ - Together with worldly education, you have to cultivate the human values and undertake spiritual discipline.
+ - Only that which is got by hard effort will yield lasting benefit.
+ - The fear and anxiety that infect humanity today are the results of this degradation of values, this ignorance of what is of significance and what is not, this want of faith in what the elders and sages have handed down as the wisdom of ages. People prefer what is pleasing to what is beneficial.
+ - No religion has a separate God showering grace only on those who profess to abide by that faith.
+ - Small minds select narrow roads; expand your mental vision and take to the broad road of helpfulness, compassion and service.
+ - God is the embodiment of compassion. He watches for a grain of goodness or humility so that He can reward it with tons of grace.
+ - Keep your own house and its surroundings pure and clean. This hygiene will keep you healthy and benefit your worldly life.
+ - Truth has to persist unaffected, in the past, present and future. That which is absent in two states, how can it be true.
+ - Never believe that body is permanent. Body is like a water bubble. Mind is like a mad monkey.
+ - Do not use poisonous words against anyone, for words wound more fatally than even arrows.
+ - It is a living death if one is obsessed by pride, ego and anger.
+ - Anger cannot be destroyed by anger and cruelty by cruelty.
+ - Evil habits, in which men indulge, are the chief cause of disease in the physical as well as the mental state.
+ - A human body is associated with six stages of transformation, birth, growth, change, evolution, death and destruction.
+ - No one can understand my Mystery. The best you can do is to get immersed in it. It is no use your arguing about pros and cons; dive and know the depth; eat and know the taste.
+ - Control of senses is an important human value.
+ - Practice the vocabulary of love – unlearn the language of hate and contempt.
+ - Agriculture is for living; mind culture is for life. Skills are for shaping material things so that they cater more for the comfort of man; studies are for shaping attitudes, feelings, desires, emotions and impulses of man, so that they may confer more peace, more joy and more fortitude on man.
+ - Thus, the Lingam is the simplest sign or symbol of Emergence and Mergence.
+ - If you incline towards God the passions that enslaves you will be rendered powerless.
+ - One should cultivate human values for healthy living. this calls for harmony in thought, word and deed. When you cultivate this harmony you will be free from desires and fears.
+ - Mind, word and act; all three must be filled with the belief that all is His play; that is the genuine path.
+ - The values a man must cherish as his life-breath are: Truth, Righteousness, Peace, Love and Non violence.
+ - Virtue is the fragrance of the flowers which the tree of life puts forth. Educated people must be identified in society by their strict adherence to virtue, not by more skilled methods of escaping the consequences of vice.
+ - As a matter of fact, there is no trace of ill-health in Me. I am always healthy. Not only today, till 96 years I will be like this.
+ - Speak with Love and it becomes Truth.
+ - To a worldly man, a God-intoxicated person will appear mad and he will laugh at him, But to the God-intoxicated man, the worldly appear insane, foolish, misled, blind.
+ - Willing is superfluous for Me. For grace is ever available to devotees who have steady love and faith. Since I move freely with them, talking and singing, even intellectuals are unable to grasp My Truth, My power, My glory or My real task as Avatar.
+ - The sincere effort to accept and promote the human values – Truth, Right Conduct, Peace, Non-Violence and Love. These five values are a essential for a full and worthwhile life as the five vital airs or pranas mentioned in the scriptures.
+ - God does not live in structures of stone or brick. He lives in soft hearts warm with sympathy and fragrant with universal love.
+ - Human society needs essntially fellow-feeling and unity. When these two are present, humanness will flourish.
+ - Adore man, the adoration reaches Me. Neglect man; you neglect Me. Of what avail is it to worship the Lord and to suppress man, His counterpart on earth? Love for God must be manifested as Love for man, and Love must express itself as service.
+ - My power is immeasurable; My truth inexplicable, unfathomable.
+ - You must be ever vigilant to discover the unifying Truth behind all the scintillating variety.
+ - Joy needs no object; it is our own nature.
+ - Treat all as your own self. Do not have a double standard.
+ - Let love flow so that it cleanses the world.
+ - When you feel you cannot do good, at least desist from doing evil.
+ - People have become so selfish that they no longer care for others, or anything other than their own welfare.
+ - Plant the seeds of Love in your hearts. Let them grow into trees of Service and shower the sweet fruit of Ananda. Share the Ananda with all. That is the proper way to celebrate the Birthday.
+ - Humanness consists in harmony of thought, word and deed.
+ - Let the wave of memory, the storm of desire, the fire of emotion pass through without affecting your equanimity.
+ - WOMEN preserve the culture of this country with greater tenacity and faith. They keep men on the moral path and inspire them to follow spiritual discipline. Their hearts are tender and full of compassion for the hungry and the distressed. That is why in this land, women are adored and revered.
+ - You take this meat eating. Many people have to kill the animals because of your non-vegetarianism. You are responsible for the death of those animals. They are killed because you eat them. This is a sin. What a sin to kill innocent animals and eat them.
+ - God can do anything. He has all power in the palm of His Hand. My Body, like all other bodies, is a temporary habitation; but, My Power is eternal, all-pervasive, ever-dominant.
+ - The enumeration of human values as five – Truth, Righteousness, Peace, Love and Non-violence is not correct. They are all facets of the foundational humanness. They grow together; they are absence of Inner conflicts. How can one have peace when he revels in violence of speach and action?
+ - Man has boyhood, adolescence, youth, middle age and senescence, as stages of growth; there are also corresponding stages in the growth of wisdom in him.
+ - I have come not to disturb or destroy any faith, but to confirm each in his own faith – so that the Christian becomes a better Christian, the Muslim, a better Muslim, and the Hindu, a better Hindu.
+ - It is a fact that plants also have life like animals. But animals are endowed with mind, and nervous systems too while the plants do not possess the same.
+ - Cultivate the heart to raise a harvest of Truth, Righteousness, Peace and Love. This crop has to be raised in your heart and should be shared with others.
+ - It is because the doctrine of human unity based on the spiritual oneness of all beings, is not propagated in the right manner that we have today many divisions leading to many conflicts.
+ - God is without birth and death and is an eternal witness; you must strive hard to earn the love of God.
+ - Anger is like an intoxicant; it reduces man and degrades him to the level of an animal.
+ - Man is now able to soar into outer space and reach up to the moon; but he is not moral enough to live at peace with his neighbor!
+ - But a little milk, butter and cheese are acceptable because no harm is done in obtaining them.
+ - Sathya, Dharma, Shanghai and prema are the hall-marks of a purified heart, a heart where God is enshrined and is manifest.
+ - Be discriminating when dispensing charity. In the name of charity or philanthropy, we tend to do injustice to one’s country.
+ - Without God, life is like a school without a teacher. It is a wire with no current passing through it; it is a body with no soul.
+ - There is no enemy more vicious than your own anger.
+ - Human values can be listed as 50, 60, 70, 80 in all. But they can be better grouped under the following three heads; pure thoughts, pure words, pure deed; thoughts, words and deed cordinated with one another.
+ - Open the gates of wisdom, tear the veil of ignorance, enter the abode of Divine Bliss. Rest in peace forever.
+ - Prayer must emanate from the heart, where God resides, and not from the head where doctrines and doubts clash.
+ - You cannot be fresh and feeling fine, wearing a washed vest under an unwashed shirt; or, an unwashed vest over a washed shirt. Both have to be clean, to provide a sense of tingling joy. So too outer and inner cleanliness is but the reflection of the inner achievement.
+ - When you do not accept the insult some one casts on you, it goes back to the person who indulged in it first; a registered letter that is not accepted returns to the sender.
+ - Conflicts and factions, violence and upheavals are caused by the neglect of human values in daily life.
+ - Let all beings in all the worlds be happy. Include this universal prayer in your prayers every day. This is my birthday message to you.
+ - Develop the feeling of brotherhood of man and fatherhood of God.
+ - The giver gives, but really he is sowing the seed for later, the gift of a rich harvest.
+ - Study the lives of our great women, who were models of patience, fortitude, compassion and sacrifice...
+ - Desire is a bonfire that burns with greater fury, asking for more fuel...
+ - All religions teach one basic discipline – the removal from the mind of the blemish of egoism, of running after little joys.
+ - People should remain unaffected by what others may say. A true man is one who overcomes the ups and downs of life with fortitude. One should not recoil before reverses of fortunes. One should bravely face them and overcome them.
+ - The Human Values should be regarded as basic requirements for every human being. In spreading the message of these values to the world, you should all cooperate with each other and act in harmony.
+ - Multiplicity is a delusion. Unity is the Reality.
+ - It is only when the individual is good that society will progress. When the society and the nation is based on the observance of human values.
+ - Death happens to the body with which it is associated, with which it mixes. The delusion that the body is the core, that the body is real, that verily is the death.
+ - The Avatar appears to be human and we are misled into thinking of him in these terms but the Avatar himself warns us against this error.
+ - Affliction by that falsehood is the act of dying. To be free from that delusion is to attain Immortality.
+ - If you live on the level of the Body and the Individual, you will get entangled in food, fun and frolic, ease, envy and pride. Forget it, ignore it, overcome it – You will have peace, joy and calm. In the Divine Path, there is no chance of failure; it is the Path of Love.
+ - If you strive to find your Self by using your mind, you will strive and strive in vain, because the mind cannot give you the Truth. You are that Self. All else is illusion of the mind’s creation.
+ - Rama for you should mean the Path He trod, the ideal He held aloft, and the Ordinance He laid down. They are eternal and timeless.
+ - Education must remove hatred between the pilgrims on the various roads to God. There is only one God, one Goal, one Law, one Truth, one Religion and one Reason.
+ - If there is hatred in your vision, you will see hatred everywhere. Hence, change your vision to start with.
+ - Life is endless, not punctuated by nights, days, months and years – for all are one, in the eternal stream...
+ - As close as you are to God, so close is God to you.
+ - The world is a nest of crows; some caw in praise; some caw in derision. But men should be above the reach of praise and blame.
+ - God can be addressed by any name that taste sweet to your tongue or pictured in any form that appeals to your sense of wonder and awe.
+ - Love is a bridge over the sea of change. Do not build a house on it.
+ - Do not be obsessed by egotism, imagining that you are the cause of action, everything is due to God.
+ - Be sincere; talk only about your genuine experience; do not distort, exaggerate or falsify that experience.
+ - I behave like you, moving, singing, laughing, journeying, but watch out for the blow I inflict all of a sudden, to chastise and to warn.
+ - Though, I am here bodily, still I know what you do; beyond the seven seas. Go wherever you will, over the wide world, I am with you. My abode is in your heart and I am within you. Always worship Me, Who is seated in your heart, as well as in the hearts of all beings.
+ - Life is an opportunity afforded to each not to eat and drink, but to achieve something nobler and higher to merge in the Reality.
+ - Limiting birth by artificial means is an absurdly wrong step. The consequences of this act are irresponsible fatherhood or frustrated motherhood.
+ - God designed in different faiths adored by different human communities are all limbs of the One God that really is.
+ - What is the freedom a man can enjoy? Man is governed by certain restraints. He has to adhere to truth.
+ - God is to be recognized in all that exists, all that is charming, suffering, blooming or drooping.
+ - When the Giver of Grace is here, you run after persons who claim that they got this or the other article from Me or were blessed with this gift from Me.
+ - God is one; there are not many Gods, one for each tribe among men.
+ - Whatever books you may read, you cannot realize the Divine merely by intellectual effort. Oneness can only be promoted by the practice of love.
+ - Desire is like the shadow caused by the morning sun; it gets longer when you run to catch it...
+ - God will certainly be pleased if you give water for the thirsty, bread for the hungry and clothes to the naked.
+ - When you have God come amongst you to support and sustain you, why grovel through crude vulgar entities? Avoid places where they bargain in terms of gifts, donations, for Spiritual guidance and Transmission.
+ - Heart is consciousness, I is Baba.
+ - Without the confidence, nothing can be accomplished.
+ - Men seek the causes for death but no one seeks the Divine source of life.
+ - I will have to forego the car and even the aeroplane when I move from place to place, for the crowds pressing around them will be too huge; I will have to move across the sky; yes, that too will happen, believe Me.
+ - YOU find some one parade all of a sudden some -ism- as new and revolutionary socialism, for example.
+ - Everyone has Love towards some thing or other, and that Love is a spark of the Divine; everyone has ultimately to base his life on some one Truth; that Truth is God.
+ - You have not known even a fragment of My reality. The full nature of this reality can never be understood by anyone.
+ - When the yearning for living ends, there can be no more birth.
+ - PERFORM all acts with as much love as you would offer God. In Truth, you eat for the satisfaction of the I in you and dress up to please the self-same I. The husband loves his wife for the sake of the I. And who is this I that is persistently inherent in everyone? It is God Himself.
+ - When asked where God is, people point towards the sky or some far and distant region: no wonder then that He does not manifest Himself! Realize that He is in you, with you, behind you, and all around you; and He can be seen and felt everywhere.
+ - People abuse their own friends and family, but it is only after performing many meritorious acts that one gets a human birth.
+ - God is worshipped only inpictures, images, idols.
+ - Make the mind, the voice and the actions agree in harmony. That is the right way of life.
+ - Some people think, Swami calls himself a powerful magnet, but He is unable to attract us. The fault lies in them only.
+ - My construction will cover the entire Universe.
+ - I am you; you are ME. You are the waves; I am the ocean. Know this and be free, be divine.
+ - Cultivate a sweet temper and the sweet speech which is its natural consequence.
+ - Your duty is to pray for the welfare of the world and to work for it as far as it lies in your power.
+ - Truth is condemned as a trap; justice is jeered at; saints are harassed as social enemies. Hence this Incarnation has come to uphold the Truth and suppress the False.
+ - All spiritual practice must be directed to the removal of the husk and the revelation of the kernel.
+ - When individuals change, society will change. And when society changes, the whole world will change. The welfare of the individual is bound up with the welfare of society as a whole.
+ - God plays pranks and directs.
+ - Some say knowledge is power, but that is not true. Character is power.
+ - The feminine is the foundation on which a peaceful and happy world is to be raised.
+ - Look at the world with the vision of peace, love, and compassion. Then the whole world will appear loving and peaceful.
+ - You are always your own best guru, your own best teacher, the answers are always inside you.
+ - When you want to be honored by others, you learn to honor them first.
+ - What is the unmistakable mark of a wise man? It is Love, Love for all humanity.
+ - It is significant to note that those who live on vegetarian food are less prone to diseases, whereas non-vegetarians are subject to more diseases. Why? Because animal food is incompatible with the needs of the human body.
+ - See the Divine in everyone. Eschew hatred and ill will. After years of devotion, many still lack a broad outlook and an all-encompassing love.
+ - The whole world will be transformed into Sathya Sai Organisation and Sathya Sai will be installed in the hearts of one and all.
+ - If you conduct yourself with peace love and compassion, then you are God.
+ - Charity does not mean that the land should be full of beggars. We can provide some support and means for the beggars, but provide food, clothing and other conveniences in such a way that you are not encouraging laziness and begging.
+ - There is no one who can change My course or affect My conduct to the slightest extent. I am the Master over all.
+ - The only ache people have nowadays is ache in the stomach due to over eating and lack of exercise!
+ - Seek your own Reality, That is what a wise man should do.
+ - Serve others for they are reflections of the same Entity of which you are yourself another reflection. No one of you has any authenticity, except in reference to the Original. Feel always kinship with all creation.
+ - You must welcome tests because it gives you confidence and it ensures promotion.
+ - However great an intellectual may be, however great one may be as a scholar or a man of learning, one has also to acquire humanness. Without humanness, scholarship and intellectual eminence are of no value.
+ - Man’s sense of values is so degraded that he does not revere the Geetha, as much as he values and scans the pages of the daily newspaper. This is to be attributed to sheer ignorance and perversity, or pitiable fate.
+ - If the fruit is green it will not fall to the ground even if you beat it with a sharp stick. When it is ripe it falls of its own accord in the silence of the night.
+ - I am all deities in one. You may endeavour your best for thousands of years and have all mankind with you in your search. But you cannot understand My Reality.
+ - God rewards according to the mannerin which He is conceived or approached.
+ - We must seek ways to solve difficulties such as hatred, envy and jealousy.
+ - God is the Seed; The Universe is the Tree, Impulses and passions are the branches, Intelligence is the flower, Pure Consciousness is the fruit, Love is the sweetness in the fruit.
+ - If we want to eliminate bad qualities like hatred, envy, pride and ostentation, we have to employ Sathya, Dharma, Santhi and Prema and Ahimsa as the cleaning instruments.
+ - In truth you cannot understand the nature of My Reality, either today, or even after a thousand years of steady austerity or ardent inquiry, even if all mankind joins in that effort.
+ - When human body itself is made of flesh, where is the need to consume the flesh of birds and animals? You should partake of only sacred food. Only then you will have sacred feelings.
+ - God has no forms, no limbs, no qualities, no preferences, no prejudices.
+ - Some consider themselves great because they have vast territory, some because they have finance, some because they have arms, some because they have vast populations, but, the real wealth, real greatnesss is virtue which earns the Grace of God.
+ - Your friends today attach themselves not to you but to your purse or to some advantage they can gain through your father’s kindness. When your purse is empty or when your father is no longer in power, they bid you good-bye.
+ - Whenever you undertake to do something, do it thoroughly or not at all.
+ - I insist on group singing of the names of the Lord.
+ - When you stick to the path of Truth and Righteousness, pain and poverty haunt you. But they are only clouds passing through the sky, hiding for a little time, the splendor of the Sun.
+ - God is the Sun and when His rays fall upon your heart, not impeded by the clouds of egoism, the lotus blooms and the petals unfold.
+ - What do we lose by another’s good fortune? Let us celebrate with them, or strive to emulate them. That should be our desire and determination.
+ - The development of the society, the state and the nation is proportionate to the development of the Human.
+ - Breaking the cycle takes time. Be Patient and Gentle with yourself. Set long term goals. And be persistent! Remember to Stretch, Laugh and be Unshakable!
+ - At the root of all this is purity. Where there is purity there love grows. When purity and love come together, there is bliss.
+ - If you develop love, you do not need to develop anything else.
+ - Do not allow doubt to distract you if only you will install in the altar of your heart steady faith in My Divinity, you can win a vision of My Reality.
+ - Spiritual education is not a distinct and separate discipline; it is part and parcel of all types and levels of education, In fact, it is the very foundation on which a lasting edifice can be built.
+ - Violence in any form is evil and to kill innocent animals in tantamount to blatant savagery.
+ - He alone is a redeemed being who causes no pain to others and avoids pain to himself.
+ - Everyone should prepare NOW for this change, for I promise you that it will come, and only those who are ready will survive.
+ - Baba’s words and actions have lit the lamp of love in the hearts of devotees and they will always remember him for the good things he has done.
+ - Whatever may be the experience in everyday life, the basci inner Truth should not be forgotten.
+ - Whatever happens, the path of virtue should not be given up.
+ - How can anyone be called human, if being born a human being and growing in a human society, he does not recognise human values? You must see that you don’t harm any living being. He alone is a redeemed being who causes no pain to others and avoids pain to himself.
+ - Never have hatred toward any religion.
+ - Don’t follow the mind. Don’t follow the body. Follow the Conscience. That is the main principle of this text. So we should follow our Conscience.
+ - The heart with compassion is the temple of God.
+ - In cultivating human values, emphasis should also be placed on avoiding wastage of money, food and time.
+ - The eye sees the physical body, other individuals, even insects, worms and things. It sees everything that is within its range. The body too is a thing that the eye sees, along with the rest. So, how can we conclude that the body is the I?
+ - Give up all bad qualities in you, banish the ego and develop the spirit of surrender. You will then experience Bliss.
+
+279 quotes

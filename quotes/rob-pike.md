@@ -1,0 +1,21 @@
+ - Data dominates. If you’ve chosen the right data structures and organized things well, the algorithms will almost always be self-evident. Data structures, not algorithms, are central to programming.
+ - Eventually, I decided that thinking was not getting me very far and it was time to try building.
+ - Languages that try to disallow idiocy become themselves idiotic.
+ - Object-oriented design is the roman numerals of computing.
+ - If POSIX threads are a good thing, perhaps I don’t want to know what they’re better than.
+ - Rule 1. You can’t tell where a program is going to spend its time. Bottlenecks occur in surprising places, so don’t try to second guess and put in a speed hack until you’ve proven that’s where the bottleneck is.
+ - Caches aren’t architecture, they’re just optimization.
+ - Such is modern computing: everything simple is made too complicated because it’s easy to fiddle with; everything complicated stays complicated because it’s hard to fix.
+ - Procedure names should reflect what they do; function names should reflect what they return.
+ - Not only is UNIX dead, it’s starting to smell really bad.
+ - Narrowness of experience leads to narrowness of imagination.
+ - There’s nothing in computing that can’t be broken by another level of indirection.
+ - Productivity is most important by engineering management rules, but enjoyment is most important for engineers. One stems from the other.
+ - When there is no type hierarchy you don’t have to manage the type hierarchy.
+ - Using Unix is the computing equivalent of listening only to music by David Cassidy.
+ - A smart terminal is not a smartass terminal, but rather a terminal you can educate.
+ - There’s no such thing as a simple cache bug.
+ - Why would you have a language that is not theoretically exciting? Because it’s very useful.
+ - Sockets are the X windows of IO interfaces.
+
+19 quotes

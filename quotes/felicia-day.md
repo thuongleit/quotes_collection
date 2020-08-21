@@ -1,0 +1,61 @@
+ - Social media is an amazing tool, but it’s really the face-to-face interaction that makes a long-term impact.
+ - The substance of what it means to be a geek is essentially someone who’s brave enough to love something against judgment. The heart of being a geek is a little bit of rejection.
+ - Geek and Sundry has an eclectic line-up of shows all targeted around things I love: Comics, Tabletop Games, Books and more.
+ - I’m super excited about gaming always. That’s the thing that I geek out over; those are the vlogs that I’m surfing if I’m not already playing a game at night.
+ - I am excited for the future of the industry, because we’re at that point now where digital is becoming pertinent to release and distribution strategy versus releasing on cable or anywhere else.
+ - I’m not a very vengeful person. I like to accept people; I tend to see the good in everybody, so I’m kind of stupid like that.
+ - Hollywood typecast me as the secretary. I could have worked as the quirky secretary for the rest of my life, but I decided not to do that.
+ - It’s so much easier to measure life in experience points.
+ - Obviously geek culture is super influential, the web kind of started from a very geeky point of view because geeks are all about technology.
+ - My dad was in the military, yeah. He was in the Air Force, and he was a doctor, so he would go places for six months here, and two years there. And I was home-schooled because I played the violin, and I did a lot of competitions.
+ - I feel like maybe I’m part of that generation that became more of a gamer than a video consumer. It’s always been something I’ve done with my spare time. If I had three hours on a Friday night, I’m not out partying. I’m probably playing video games.
+ - I don’t need millions of dollars. I need to know that what I’m doing with my life is expressing who I am, and maybe making people happy. This is all we get.
+ - Every single job is a challenge. You are walking into a new set, a new character, creating a world and trying to get comfortable to do your best work.
+ - I was just confused about why I was feeling overwhelmed all the time and trying to adjust to having people work for me. Surprisingly, I think if you’re known on the Internet, you’re probably an introvert.
+ - I think the whole definition of a geek is somebody being passionate and focused, and being proud of saying that they’re passionate and focused, on a narrow range of subjects.
+ - I tend to have more anxious dreams where I’m late getting to places. That’s definitely a recurring dream; I hate being late to places.
+ - Now I understand what exhaustion is. It’s not just a code word for heroin addiction. People don’t teach you how to handle the workload that comes from a little bit of success, and it’s something I’d never had to handle, because I’d been rejected for so long.
+ - That is not what Geek means to me. We are more than the hobbies that we do or the things that we like. To me, Geek means an outsider, a rebel, a dreamer, a creator, a fighter. It’s a person who dares to love something that isn’t conventional.
+ - Voice acting is very different from live-action. You only have one tool to convey emotion. You can’t sell a line with a look. It’s all about your vocal instrument. Doing voice work is also great because you don’t have to get your hair done, which I despise.
+ - The support of my fans is something I treasure more than anything, and I wouldn’t be here today without their support, their involvement in my shows.
+ - I’m a big champion of people doing things outside the system.
+ - Basically, my socialization as a child didn’t come from any schooling; it came from being in theater and meeting people online.
+ - In life they’re not going to serve you lemons, they’re going to serve you lemonade; and I don’t really like lemonade because I’ve got a really bad acid reflux.
+ - There is definitely a way in which women are raised to be less proactive, less business-oriented, and less willing to jump into creative no man’s land. I think media has more of an influence on how we perceive gender identity than anything else.
+ - Just because you have star power and a huge marketing budget, you can see from some professional web series, it doesn’t equal views.
+ - I’m definitely more of a ‘think game’ kind of girl. I’ll read every single dialogue and codex entry and lore entry. I really do love projecting myself and creating my character.
+ - Comic-Con has become more of a pop cultural festival, and to not be included feels like you’re missing the biggest celebration of the year.
+ - Each one of us is finite, and if we can spread ourselves out in a way to inspire and help other people to be all they can be, I think that’s so much more important than one person’s glory.
+ - If you know your characters well enough, you aren’t trying to grasp for storylines. You’re really thinking about their flaws and their passions and what they’re chasing.
+ - When I carve out time to game, it’s because I rationalize that I ‘deserve it,’ so I relish every minute of that 2-3 hour session.
+ - I believe you are never past the point of creating opportunities for yourself.
+ - I’ll be in a series for three or four episodes, but then I’ll be off the series, and downtime, as an actor, is a little more than most people understand. Most of the time you’re just sitting around taking coffee with friends.
+ - I could go off into the wilderness and write fantasy novels for the rest of my life and probably be happy; but I always want to challenge myself.
+ - I always enjoyed acting. My aunt was actually an actress.
+ - At no point am I ever threatened by people who question who I am, or why I like the things I do, or my legitimacy. Because I know who I am very strongly, and I think that’s what geek culture can reinforce.
+ - Finishing games has been something I’m really proud of, seeing something through to the end.
+ - For the vlogging channel, I wanted to build the infrastructure and build up all the personalities in a way that felt like weren’t just forcing the audience to watch everyone we have.
+ - I love sitcoms, and I grew up on sitcoms. That’s my tasty junk food.
+ - The spirit is the thing I most love about my kind of geekdom.
+ - It’s good to let the other worries have a vacation and have different worries take over and then go back to the old worries.
+ - I do get offered a lot more roles than I choose to do. I’m very busy as a producer and a writer, especially with my Internet stuff, and I tend to only accept the roles that I know will have an impact and has a fanbase.
+ - Surprisingly, I think if you’re known on the Internet, you’re probably an introvert.
+ - I’m much more interested in shows that maybe not everybody loves, but a lot of people REALLY love. That’s how I am as a person. I’m as extreme as the roles in the shows that I like to be on.
+ - My favorite ‘Mister Rogers’ episodes were always the ones where Mr. Rogers would go into the community.
+ - I created ‘The Guild’ because nobody was offering me the roles I thought I could do best at in Hollywood.
+ - I still do commercial work as an actor, which I love, because it’s very quick, and it definitely pays my bills.
+ - That’s the great thing about incubating something on the web: you have the potential to go to other platforms. Every single platform has a different audience that you find.
+ - You never know how people are gonna receive you and especially a character that’s so close to the fans in type.
+ - I do not sleep, but it’s totally fine, because I love what I do.
+ - TV and comics and movies are what you think about when you think about geek, but people can be a geek about anything.
+ - I would never let somebody say that they’re me. That would be the ultimate betrayal of what I stand for.
+ - I have a little obsessive-compulsive personality. You can tell because I played online games for eight hours a day.
+ - I learned that lack of budget can be overcome by fan passion if you can get your content to the people who like what you do.
+ - I was a child of a tech family. My grandfather was a nuclear physicist and was always a gadget guy.
+ - I think Hollywood has seen what fandom can do for a project. You can definitely see that when you go to Comic-con.
+ - You don’t need millions of dollars or millions of people if you’re doing what you love.
+ - I’d been on ‘Buffy’ – that is an amazing community, the Joss Whedon fans.
+ - I think every role is always exciting and intimidating. I’ve never had a role where I wasn’t intimidated by it.
+ - I think it’s really good to create pockets and events throughout the year that highlight certain things that are really popular on YouTube.
+
+59 quotes

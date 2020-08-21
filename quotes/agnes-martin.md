@@ -1,0 +1,30 @@
+ - Fulfill your potential. That’s the way to happiness.
+ - I often paint tranquility. If you stop thinking and rest, then a little happiness comes into your mind. At perfect rest you are comfortable.
+ - I paint with my back to the world.
+ - Happiness is being on the beam with life – to feel the pull of life.
+ - It’s through discipline and tremendous disappointment and failure that you arrive at what it is you must paint.
+ - I hope I have made it clear that the work is about perfection as we are aware of it in our minds but that the paintings are very far from being perfect – completely removed in fact – even as we ourselves are.
+ - I think our minds respond to things beyond this world. Take beauty: it’s a very mysterious thing, isn’t it? I think it’s a response in our minds to perfection. It’s too bad, people not realizing that their minds expand beyond this world.
+ - It’s not about facts, it’s about feelings. It’s about remembering feelings and happiness. A definition of art is that it makes concrete our most subtle emotions. I think the highest form of art is music. It’s the most abstract of all art expression.
+ - When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.
+ - My paintings are certainly nonobjective. They’re just horizontal lines. There’s not any hint of nature. And still everybody responds, I think.
+ - I’m very careful not to have ideas, because they’re inaccurate.
+ - I used to meditate until I learned to stop thinking.
+ - Art is the concrete representation of our most subtle feelings.
+ - You can’t make a perfect painting. We can see perfection in our minds. But we can’t make a perfect painting.
+ - To progress in life you must give up the things you do not like. Give up doing the things that you do not like to do. You must find the things that you do like. The things that are acceptable to your mind.
+ - What we really want to do is serve happiness. We want everyone to be happy, never unhappy even for a moment. We want the animals to be happy. The happiness of every living thing is what we want.
+ - The enormous pitfall is devotion to oneself instead of to life. All works that are self-devoted are absolutely ineffective.
+ - It is commonly thought that everything that is can be put into words.
+ - Beauty and happiness and life are all the same and they are pervasive, unattached and abstract and they are our only concern. They are immeasurable, completely lacking in substance. They are perfect and sublime. This is the subject matter of art.
+ - Inspiration is there all the time. For everyone whose mind is not clouded over with thoughts whether they realize it or not.
+ - When you look in your mind you find it covered with a lot of rubbishy thoughts. You have to penetrate these and hear what your mind is telling you to do. Such work is original work.
+ - When I first made a grid I happened to be thinking of the innocence of trees and then this grid came into my mind and I thought it represented innocence, and I still do, and so I painted it and then I was satisfied. I thought, this is my vision.
+ - Pollock was terrific. I think he freed himself of all kinds of worry about this world. Ran around and dripped, and then he managed to express ecstasy.
+ - Anything can be painted without representation.
+ - I once taught art to adults in a night course. I had a woman who painted her back yard, and she said it was the first time she had ever really looked at it. I think everyone sees beauty. Art is a way to respond.
+ - My paintings are not about what is seen. They are about what is known forever in the mind.
+ - That which takes us by surprise-moments of happiness-that is inspiration.
+ - What I say is that we’re capable of a transcendent response, and I think it makes us happy. And I do think beauty produces a transcendent response.
+
+28 quotes

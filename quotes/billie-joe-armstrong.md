@@ -1,0 +1,96 @@
+ - I’m always a work in progress.
+ - It’s better to regret something you have done than to regret something you haven’t done.
+ - Music to me is the air I breathe it’s the blood that pumps through my veins that keeps me alive.
+ - Our passion is our strength.
+ - You can’t change the wind but you can set your sails.
+ - Life isn’t pretty but it sure is beautiful.
+ - It’s okay to be a loser, it just depends on how good you are at being one.
+ - Always move forward, going straight will get you nowhere.
+ - We put the fun back into dysfunctional.
+ - To do something that you feel in your heart that’s great, you need to make a lot of mistakes. Anything that’s successful is a series of mistakes.
+ - I want to go home and just go for a long walk. And where I want to go, I have no idea.
+ - Time passes by like lightning. Before you know it you’re struck down.
+ - Slipknot sounds like Tre choking on a hairball.
+ - A man once asked me, what’s punk? I kicked over a trash can and said that’s punk. He kicked over a trash can and then asked me again, Is that punk? I replied no. That’s just trendy.
+ - I don’t feel any shame I won’t apologize if there ain’t nowhere you can go running away from pain when you’ve been victimized tales from another broken home.
+ - I hate television. I hate the internet. I hate cell phones. I hate cameras. I hate everything that destroys creativity.
+ - I was on drugs when I wrote some of my songs. It was a rough time for me, but I’m lucky enough to be one of the people who learned from that experience and moved on, where other people just got addicted and more addicted and more addicted until it killed them.
+ - Well, you know, I look at myself in the morning and yes, yeah I-I am a God.
+ - My job description is that I’m a rock star. And I’m good at it.
+ - Every night I play as if my life depends on it.
+ - Do you have a problem? I have a gun. I’ll shoot you. No problem.
+ - I can’t sleep very well at night. It takes me a while to get to sleep. I could just be nocturnal. I have my nighttime witching hour where I hang out, listen to records or watch TV.
+ - Anything that is successful is a series of mistakes.
+ - Nobody leaves this band unless it’s in a coffin.
+ - I just wanted to get the hell out of my town. I wanted to leave with reckless abandon. I didn’t care where I ended up, as long as I saw as much as humanly possible.
+ - I think it’s your own choice if you turn from an angry young man to a bitter, old bastard.
+ - Attack your instruments. Don’t let them attack you.
+ - People think we really look good. I think that’s the biggest misconception people have.
+ - Thats what Green Day is-there are no rules.
+ - If someone falls down, pick them back up. Just because there’s not a frickin camera in your face doesn’t mean you don’t have to look out for each other.
+ - Some times I need to apologize, sometimes I need to admit that I ain’t right, sometimes I should just keep my mouth shut, or only say hello, sometimes I still feel I’m walking alone.
+ - Punk is dead to anyone who didn’t get it in the first place.
+ - You want a drumstick? Like a ice cream cone or a chicken wing!?
+ - Just because you’re in the missionary position don’t make you no missionary.
+ - Rock ‘n’ roll can be fun and dangerous at the same time.
+ - It’s okay to grow up, it’s just slowing down that’s the scary part. Running out of time. It’s okay to grow up, but it doesn’t mean you have to become like your parents.
+ - There’s an honesty in our family – my kids and I are able to talk about things without me putting the fear of God into them.
+ - The first time I ever saw him play, Tre Cool was wearing a tutu and an old-womans swimming cap.
+ - I think the working-class part of me comes out. Sometimes the people who have the loudest mouths are upper-class, upper-middle-class. The quietest are often working-class people, people who are broke. There is a fear of losing whatever it is that you have. I come from that background.
+ - A lot of people, when they talk to me, I can’t wait for them to shut up. Like, shut up. you’re a moron. I have nothing to say, you know?
+ - I’m not f-ing Justin Bieber, you motherf-ers!
+ - Minority is about being an individual. It’s like you have to sift through the darkness to find your place and be that individual you want to be your entire life.
+ - The bigger the risks, the better off you are. Otherwise you’re just boring.
+ - We are not afraid to be entertainers.
+ - The thing is, my education was music. I knew I’d be playing music no matter what. That’s all I thought about, I was obsessed with it. I’m still obsessed with it. It gets the best of me sometimes.
+ - I love my friends and family, but playing, that’s my DNA.
+ - My goal is to be one of the biggest bands in the world, and I have never been bashful about saying that.
+ - They have bad taste. I am not a good-looking guy.
+ - I’m not as depressed as I used to be. The Prozac’s working!
+ - Never run in the rain with your socks on.
+ - When someone is in a car accident and they’re driving at 100 mph, drunk, who’s tape do you think his listening to at that time? Think about it.
+ - I got body lice in Germany! I’d tell you they were crabs, but I wasn’t getting laid.
+ - And for our fans, they’re just crazy people anyway. I always look at people in a Green Day shirt, and I think, ‘What’s wrong with that person? What kind of hang-ups does that person have?’ Obviously, it’s not just the catchy songs, it goes deeper than that.
+ - I like to keep my girlish figure.
+ - And you don’t want to always write about politics just for the sake of writing about politics.
+ - Woodstock was about the closest thing to anarchy I’ve ever seen in my whole life, and I didn’t like it.
+ - The darkness is coming now god dammit!
+ - I think everybody should get married. Boys and girls. Girls and boys. Boys and boys! Girls and girls! Shouldn’t we all be entitled to a family-Civil rights baby it’s civil rights. It doesn’t get any better here in Berkeley I’ll tell you that.
+ - That was the hard part of having kids: trying to be on their schedule, then fighting to get to sleep while they are sleeping.
+ - Just seeing the things on TV and the things in front of you, the amount of information coming in, and the lack of information not coming in, how could you not help but write songs about it.
+ - We pride ourselves on trying to put on the best show we can and we’re not afraid to say that we happen to be the best live band in the world.
+ - If me and Mike Dirnt are in the same room, it’s not quite right if he’s not on stage with me.
+ - I’m a dirt bag rock and roller. I want to represent that before anything else.
+ - That’s where all good music comes from, I think – anything that’s likely to have an impact on pop culture comes from a point where there’s no expectation of it becoming anything other than personal.
+ - Just because you sing songs about a certain feeling doesn’t mean you have to go feeling that way forever. You can sing about that for the rest of your life, but that doesn’t mean things aren’t going to change in your own life.
+ - One thing I want to teach my son is sensitivity to other people. I want to teach him not to be this macho freak.
+ - I just want to write good songs that people love, which is a tough thing to do.
+ - You have to search the absolute demons of your soul to make a great record.
+ - Pretty and demented at the same time, like me.
+ - I’m a songwriter-I’m obligated to keep pushing myself.
+ - To me, it doesn’t feel like it’s just another rock record that somebody put out. It feels like we taped into the culture a little bit.
+ - I just plug in and let go.
+ - The first time that you escape from home or the small town that you live in – there’s a reason a small town is called a small town: It’s because not many people want to live there.
+ - Just about 99% of the population masturbates while the other 1% lie about it.
+ - Moshing and broken glass just don’t go together.
+ - I think the little bush is a bit stupid and more or less the puppet of his old man.
+ - I’m an idiot anyway, but sometimes you feel like an idiot times ten when you’re stoned.
+ - Controversy What controversy This is reality. What I see is that no matter if you’re a conservative or a liberal or whatever side you stand on, this is the reality of the situation – that people’s families and their young kids are being affected.
+ - We’re gonna get high, high, high, when we’re low. The fires burn from better days. She scream why, oh why? I said I don’t know!
+ - You don’t mow another man’s lawn!
+ - I sound like an Englishman impersonating an American impersonating an Englishman.
+ - We’ve been a band for 16 years. This is what you dream about.
+ - I think we have the worst name in rock, I really do. It’s the worst name in the world.
+ - I wrote a song called ‘Green Day’ because I was smoking a lot of dope.
+ - I just open my mouth and out it comes.
+ - One thing I can’t do is do anything half-assed. I want to make sure everything is right, that the song is fully realized.
+ - Punk is not just the sound, the music. Punk is a lifestyle.
+ - You can’t go voicing something if it’s just not right.
+ - History will tell if we were really a good band or just a one day fly.
+ - The thing is, acoustic could be like a four-letter word to a lot of kids.
+ - Punk rock isn’t supposed to be for everyone. There is that sort of private club mentality, which is necessary. It keeps things from getting watered down and boring.
+ - Punk is always something that’s going to be with us and to try and explain that would be stupid at this point.
+ - I thought everybody was in on the joke. But I was the joke.
+ - Set lists are tough because you come up with this structure of how the songs are going to go from one to the next, but at the same time, you have to be spontaneous and take requests and change the set list at the drop of a hat.
+
+94 quotes

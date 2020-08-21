@@ -1,0 +1,41 @@
+ - So yes I know how angry, or naive, or self-destructive, or messed up, or even deluded I sound weaving my way through these life stories at times. But beautiful things. Graceful things. Hopeful things can sometimes appear in dark places.
+ - Memoirs have at their heart a content that “happened” to someone in real life. Is that what you are itching at in your question, so that if you are a reviewer or you are writing a critique you might feel as if you are stepping on someone’s actual face?
+ - The rocks. They carry the chronology of water. All things simultaneously living and dead in your hands.
+ - The maternal impulse in animals to protect their young – that kind of instinct and subsequent violence is quite beautiful. Mythic even.
+ - Have endless patterns and repetitions accompanying your thoughtlessness, as if to say let go of that other more linear story, with its beginning, middle, and end, with its transcendent end, let go, we are the poem, we have come miles of life, we have survived this far to tell you, go on, go on.
+ - Books, like all art, breed in us desire. In times of crisis and fear and misrepresentation we need desire, or else we shut down and hide out in our houses, succumbing to infotainment and the ease of an available latte, turning off our brains and emotions. Books breed desire.
+ - This is something I know: damaged women? We don’t think we deserve kindness. IN fact, when kindness happens to us, we go a little berserk. It’s threatening. Deeply. Because if I have to admit how profoundly I need kindness? I have to admit that I hid the me who deserves it down in a sadness well.
+ - Words carry oceans on their small backs.
+ - I’m kind of still down with Virg Woolf on this one: “women must kill the aesthetic ideal through which they themselves have been ‘killed’ into art.”
+ - I love the walking contradiction of the body. I want to make corporeal characters, corporeal writing, I want to bring the intensities and contradictions and beauty and violence and stench and desire and astonishing physicality of the body back into literature.
+ - Your life doesn’t happen in any kind of order. Events don’t have cause and effect relationships the way you wish they did. It’s all a series of fragments and repetitions and pattern formations. Language and water have this in common.
+ - I get kind of tired of the “But it’s your life!” attitude about memoir. I wrote. I engaged in artistic production. I made a piece of art. Why the preciousness or mystical unicorns around “memoir”? I’m curious how you feel about it just now.
+ - I drop to the curb like childhood leaving a body.
+ - To be honest, we live in an exciting time where form is concerned. My sincerest hope is that more people will notice this and agree to play and invent – the only way to not succumb to the complacency and market-driven schlock of the present tense is to continually interrogate it from the inside out.
+ - Laughter can shake you from the delirium of grief.
+ - When someone says something dunderheaded to me about the material, it’s usually a big neon sign revealing their own damage or ignorance, so my compassion kicks in.
+ - In water, like in books – you can leave your life.
+ - As far as being territorial about one’s own life, that’s a mistake for ANY writer. All writers everywhere, in every genre, are drawing from their life and the lives of those around them for “material.” Memoirs just make transparent and even amplify that activity.
+ - I am not alone. Whatever else there was or is, writing is with me.
+ - Birth is of course violent. Menstruation is violent. Trust me, if men’s penises opened up once a month and shot blood, we’d be hearing about the violence of it.
+ - Only when I make movements away from the tribe of indie art and literature. Maybe that’s something important for me to keep thinking about. What you gain, what you lose, why and how. Maybe the edge of the page is the place for me. Maybe that’s OK.
+ - I don’t have much interest in writing if there are not opportunities to crack open the inherited forms. The writing I love to read most does this as well. I’m a form junkie.
+ - The chief reason I shove the reader inside the body – or more specifically, the chief reason I try to get the reader to feel their own body while they are reading, is this: we live by and through the body, and the body, is a walking contradiction.
+ - We live through sound and light – through our technologies.
+ - We can’t handle violence in women characters but we CAN handle what’s done to women in our present tense every second of the day worldwide? Or next door? Or in political or medical discourse? Please. That idea just makes me want to crap on a table at a very fancy restaurant.
+ - In my real life I had to confront the sins of the father, but it’s also a symbolic journey – a social, psychological, sexual journey for women and minorities who must pass through patriarchy and the symbolic order in order to claim a self.
+ - I’ve noticed over the past years of my writerly life that women writers in particular are discouraged in cleverly disguised forms from including the intellectual in their creative material way more than you would believe.
+ - Fiction and poetry expose intimate things from a person’s life every bit as much as memoir does, and sometimes more. I don’t quite see or live the distinction you are making about the forms.
+ - To a certain extent that happens with all kinds of successful writers and artists and celebrities, but there is also something about the form of memoir that creates an eerie reader space of intimacy that is only “real” in the space of the text.
+ - The memoir as a somewhat indistinct form is absolutely true. So many of the memoirs I’ve read, and the ones I have gravitated toward most, somehow upend what I expect from memoir and the project seems greater than just the exposition of a life.
+ - The practice of employing metaphor and image and composition and linguistic choices to move the reader through the content.
+ - Underneath the forms of fiction and poetry, you can bet your ass the ground comes from someone’s actual life experience.
+ - Sometimes saviors look different than you thought they would.
+ - The convention of the coming-of-age story and the love story were literally abandoned – because they had to be – and a new kind of coming-of-age and love story emerged that required a different kind of telling the story.
+ - I just want my stories to be mine.
+ - Aspiration gets stuck in some people. It’s difficult to think yes. Or up. When all you feel is fight or run.
+ - I work from the body – I try to develop a language of the body. I’ve invented a term I call “corporeal writing” around that idea. I love teaching and collaborating around this idea, because no new breakthrough in literature ever happened because everyone was doing what was already there.
+ - I might think that equality has been achieved, there is no power relation going on in terms of class, race, or gender, I might just want to drink my latte and buy pretty shoes and write books about girls who marry, die, or go insane, then go get my nails done.
+ - Make up stories until you find one you can live with.
+
+39 quotes

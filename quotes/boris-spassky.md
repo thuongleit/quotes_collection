@@ -1,0 +1,30 @@
+ - I still hope to kill Fischer.
+ - A man who is willing to commit suicide has the initiative.
+ - There is only one thing Fischer does in Chess without pleasure: to lose!
+ - Nowadays there is more dynamism in chess, modern players like to take the initiative. Usually they are poor defenders though.
+ - Bobby Fischer has an enormous knowledge of chess and his familiarity with the chess literature of the USSR is immense.
+ - In my country, at that time, being a champion of chess was like being a King. At that time I was a King and when you are King you feel a lot of responsibility, but there is nobody there to help you.
+ - Often, in the Ruy Lopez, one must be patient, wait and carry on a lengthy and wearisome struggle.
+ - After I won the title, I was confronted with the real world. People do not behave naturally anymore – hypocrisy is everywhere.
+ - I don’t want ever to be champion again.
+ - The best indicator of a Chess Player’s form is his ability to sense the Climax of the game.
+ - The place of chess in the society is closely related to the attitude of young people towards our game.
+ - When I am in form, my style is a little bit stubborn, almost brutal. Sometimes I feel a great spirit of fight which drives me on.
+ - When you play Bobby, it is not a question if you win or lose. It is a question if you survive.
+ - The computer age has arrived, and it influences everything: analysis, preparation, information. Now a different talent is required – the ability to synthesize ideas.
+ - For example, computer defends well, but for humans its is harder to defend than attack, particularly with the modern time control.
+ - My forte was the middlegame. I had a good feeling for the critical moments of the play. This undoubtedly compensated for my lack of opening preparation and, possibly, not altogether perfect play in the endgame. In my games things often did not reach the endgame!
+ - Time control directly influences the quality of play.
+ - Nowadays the dynamic element is more important in chess – players more often sacrifice material to obtain dynamic compensation.
+ - The shortcoming of hanging pawns is that they present a convenient target for attack. As the exchange of men proceeds, their potential strength lessens and during the endgame they turn out, as a rule, to be weak.
+ - I also follow chess on the Internet, where Kasparov’s site is very interesting.
+ - Nowadays young people have great choice of occupations, hobbies, etc, so chess is experiencing difficulties because of the high competition. Now it’s hard to make living in chess, so our profession does attract young people.
+ - We can compare classical chess and rapid chess with theatre and cinema – some actors don’t like the latter and prefer to work in the theatre.
+ - I think that the World Champion should try to defend the quality of play more than anyone else.
+ - Recently I saw Kasparov and he looked to me as still young and potent champion.
+ - I try to help developing junior chess. When I lived in USSR, I got a lot of free help from very good coaches – now I am trying to repay that debt.
+ - The Soviet Union was an exception, but even there chess players were not rich. Only Fischer changed that.
+ - I don’t play in tournaments, but I follow some.
+ - The power of hanging Pawns is based precisely in their Mobility, in their Ability to create acute situations instantly.
+
+28 quotes

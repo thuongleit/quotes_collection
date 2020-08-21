@@ -1,0 +1,23 @@
+ - As the saying goes, type is a beautiful group of letters, not a group of beautiful letters.
+ - I’ve always been introverted and so from a very young age I would play different scenarios in my head and let my imagination run free.
+ - Let’s be pastors who cast vision that are worth people giving their life for.
+ - As humans, no matter our level of understanding, we are very complex beings with very complex thoughts. There are ideas that each of us have within our heads that are so different from each other it is mind boggling.
+ - I don’t particularly like the word average because when it comes down to it there is no average in people. Everybody has their own streak of uniqueness within them.
+ - Throughout my life I had wandered alone, trying to find pieces of me in any place I could and when it came down to it, I was nothing but a shell of missed opportunities.
+ - When your vision is a biblical vision, the people arguing with it are not arguing with you. They are arguing with God.
+ - Step 1 in casting vision is to make sure your people love Jesus more than they love the vision you are casting.
+ - The last thing I want to do is pastor a church Jesus ain’t at.
+ - If God doesn’t build the vision, He will tear it down.
+ - I am an eternally curious person, but I wouldn’t go to such lengths to know what it is like to be someone else.
+ - Everybody has secrets and some are deeper and darker than others. I think if we peered within the psyche of another we would be all of those things and so very much more.
+ - Make sure you are passionate about the vision.
+ - There was never a point in which I was worried about being jealous about what my friends had seen or done. Instead, I felt blessed that I was able to feel what others were all about. I was enlightened by their truth and way about things.
+ - The first thing Jesus tells the church of Ephesus that He loves about them is they have sound doctrine.
+ - I love the arts, and enjoy going to the art museum whenever I get a chance.
+ - There’s all kind of vision in this Book. Just open it up and your people will follow.
+ - Make sure your vision is biblical. You want to make sure you can defend the vision biblically.
+ - I have always been curious about other people. I wonder what goes on in their minds, whether they are good, or bad and I wonder about their lives.
+ - Many of us struggle with ideas that come to our head from our self-identification.
+ - Cast first to your church those visions you absolutely know are the Lord’s.
+
+21 quotes

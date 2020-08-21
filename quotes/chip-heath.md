@@ -1,0 +1,31 @@
+ - The Curse of Knowledge: when we are given knowledge, it is impossible to imagine what it’s like to LACK that knowledge.
+ - What looks like resistance is often a lack of clarity.
+ - Just look for a strong beginning and a strong ending and get moving.
+ - What’s working, and how can we do more of it?
+ - You’ve got a good idea, how do you make it stick?
+ - Create a need for closure.
+ - The most basic way to get someone’s attention is this: Break a pattern.
+ - Success emerges from the quality of the decisions we make and the quantity of luck we receive. We can’t control luck. But we can control the way we make choices.
+ - What looks like a people problem is often a situation problem.
+ - When people know the desired destination, they’re free to improvise, as needed, in arriving there.
+ - Mental simulation is not as good as actually doing something. But it’s the next best thing. And the right kind of a story is a simulation.
+ - The Aha! experience is much more satisfying when it’s preceded by the huh experience.
+ - Change is hard because people wear themselves out. And that’s the second surprise about change: What looks like laziness is often exhaustion.
+ - Once we know something, we find it hard to imagine what it was like not to know it.
+ - It takes emotion to bring knowledge to a boil.
+ - This is the biggest problem in analytics today.
+ - The more we reduce the amount of information in an idea, the stickier it will be.
+ - Lots of us have expertise in particular areas. Becoming an expert in something means that we become more and more fascinated by nuance and complexity. That’s when the Curse of Knowledge kicks in, and we start to forget what it’s like not to know what we know.
+ - The first problem of communication is getting people’s attention.
+ - There’s no such thing as a passive audience.
+ - What questions do I want my audience to ask?
+ - Grit is not synonymous with hard work. It involves a certain single-mindedness. An ungritty prison inmate will mount a daring new escape attempt every month, but a gritty prison inmate will tunnel his way out one spoonful of concrete at a time. Grit.
+ - Anger prepares us to fight and fear prepares us to flee.
+ - The more hooks an idea has, the better it will cling to memory.
+ - One of my favorite bloggers who can articulate his ideas clearly is Avinash Kaushik. The only problem? His ideas are so awesome his posts are a mile long, but I promise they are worth the time.
+ - Stories are flight simulators for our brains.
+ - Many armies fail because they put all their emphasis into creating a plan that becomes useless ten minutes into the battle.
+ - When you’re at the beginning, don’t obsess about the middle, because the middle is going to look different once you get there.
+ - Most analysts are SO SMART and have amazing ideas, but they can’t convey their genius ideas to others.
+
+29 quotes

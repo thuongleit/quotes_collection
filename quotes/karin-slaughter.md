@@ -1,0 +1,25 @@
+ - Reading develops cognitive skills. It trains our minds to think critically and to question what you are told. This is why dictators censor or ban books. It’s why it was illegal to teach slaves to read. It’s why girls in developing countries have acid thrown in their faces when they walk to school.
+ - Reading is not just an escape. It is access to a better way of life.
+ - You didn’t realize what was passing you by until you slowed down a little bit to get a better look.
+ - Even Gone With the Wind had a shocking, cold-blooded murder.
+ - Ultimately, I’m in control of what’s going on in the books, so I can back off, if it’s scaring me too much.
+ - Like every Southern writer, I thought that I needed to write the next Gone With the Wind.
+ - Alafair Burke understands the criminal mind. Long Gone is both an education and an entertainment of the first order. This is a very clever and very smart novel by a very clever and smart writer. The dialogue crackles, the plot is intriguing, and the pacing is perfect.
+ - I never felt isolated; I just liked being alone. I think that some people are good at being alone, and some people arent, and as a child, I really liked it.
+ - I think that people do things for a reason – that we have mental illness, that we have genetic wiring that can get triggered by certain environmental factors.
+ - Books are not like albums, where you can simply download and enjoy your favorite chapter and ignore the rest.
+ - You can take my heart, but I can’t let you take my dog.
+ - You can only make decisions with the information you have at the time.
+ - As a Southerner, I love obstacles for my characters.
+ - I’ve always been drawn to historical fiction.
+ - Long Gone is the type of book that should come with a warning. It’s a compulsively readable, highly addictive story. The ending will leave you breathless.
+ - I’m sold as a literary writer in Holland; I’m sold as crime fiction in England. I think of it as just literature.
+ - Meg Gardiner is one of my favorite authors. She always delivers a terrific read. Phantom Instinct should go to the top of your ‘to-be-read’ pile.
+ - Everyone had a reason for everything they did, even if that reason was sometimes stupidity.
+ - I’m not somebody who believes in evil.
+ - I have a few unusual fans, as you can imagine, so I try to protect the privacy of my home life.
+ - Keeping libraries open, giving access to all children to all books is vital to our nation’s sovereignty.
+ - A lot of novels use crime as a stepping stone to talk about greater issues. So I just think of myself as a writer.
+ - Everybody had something horrible happen to them at one time or another in their life.
+
+23 quotes

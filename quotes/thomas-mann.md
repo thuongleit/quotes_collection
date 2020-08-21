@@ -1,0 +1,63 @@
+ - A writer is someone for whom writing is more difficult than it is for other people.
+ - Order and simplification are the first steps toward the mastery of a subject.
+ - People’s behavior makes sense if you think about it in terms of their goals, needs, and motives.
+ - Tolerance becomes a crime when applied to evil.
+ - Laughter is a sunbeam of the soul.
+ - Everything is politics.
+ - A harmful truth is better than a useful lie.
+ - What we call National-Socialism is the poisonous perversion of ideas which have a long history in German intellectual life.
+ - Time has no divisions to mark its passage, there is never a thunder-storm or blare of trumpets to announce the beginning of a new month or year. Even when a new century begins it is only we mortals who ring bells and fire off pistols.
+ - It is love, not reason, that is stronger than death.
+ - We don’t love qualities, we love persons; sometimes by reason of their defects as well as of their qualities.
+ - Time cools, time clarifies; no mood can be maintained quite unaltered through the course of hours.
+ - In books we never find anything but ourselves. Strangely enough, that always gives us great pleasure, and we say the author is a genius.
+ - A great truth is a truth whose opposite is also a truth.
+ - This was love at first sight, love everlasting: a feeling unknown, unhoped for, unexpected – in so far as it could be a matter of conscious awareness; it took entire possession of him, and he understood, with joyous amazement, that this was for life.
+ - Speech is civilization itself.
+ - Thought that can merge wholly into feeling, feeling that can merge wholly into thought – these are the artist’s highest joy.
+ - War is only a cowardly escape from the problems of peace.
+ - He who loves the more is the inferior and must suffer.
+ - Yes, they are carnal, both of them, love and death, and therein lies their terror and their great magic!
+ - There is only one real misfortune: to forfeit one’s own good opinion of oneself. Lose your complacency, once betray your own self-contempt and the world will unhesitatingly endorse it.
+ - One must die to life in order to be utterly a creator.
+ - It is remarkable how a man cannot summarize his thoughts in even the most general sort of way without betraying himself completely, without putting his whole self into it, quite unawares, presenting as if in allegory the basic themes and problems of his life.
+ - If you are possessed by an idea, you find it expressed everywhere, you even smell it.
+ - Distance in a straight line has no mystery. The mystery is in the sphere.
+ - But my deepest and most secret love belongs to the fair-haired and the blue-eyed, the bright children of life, the happy, the charming and the ordinary.
+ - Forbearance in the face of fate, beauty constant under torture, are not merely passive. They are a positive achievement, an explicit triumph.
+ - There are so many different kinds of stupidity, and cleverness is one of the worst.
+ - Art is the funnel, as it were, through which spirit is poured into life.
+ - Reduced to a miserable mass level, the level of a Hitler, German Romanticism broke out into hysterical barbarism.
+ - For the myth is the foundation of life; it is the timeless schema, the pious formula into which life flows when it reproduces its traits out of the unconscious.
+ - All interest in disease and death is only another expression of interest in life.
+ - Solitude produces originality, bold and astonishing beauty, poetry. But solitude also produces perverseness, the disproportianate, the absurd and the forbidden.
+ - For to be poised against fatality, to meet adverse conditions gracefully, is more than simple endurance; it is an act of aggression, a positive triumph.
+ - He probably was mediocre after all, though in a very honorable sense of that word.
+ - Innate in nearly every artistic nature is a wanton, treacherous penchant for accepting injustice when it creates beauty and showing sympathy for and paying homage to aristocratic privilege.
+ - He took in the squeaky music, the vulgar and pining melodies, because passion immobilizes good taste and seriously considers what soberly would be thought of as funny and to be resented.
+ - A man’s dying is more his survivor’s affair than his own.
+ - Has the world ever been changed by anything save the thought and its magic vehicle the Word?
+ - For the sake of goodness and love, man shall let death have no sovereignty over his thoughts.
+ - I never can understand how anyone can not smoke it deprives a man of the best part of life. With a good cigar in his mouth a man is perfectly safe, nothing can touch him, literally.
+ - I shall need to sleep three weeks on end to get rested from the rest I’ve had.
+ - I don’t think anyone is thinking long-term now.
+ - No man remains quite what he was when he recognizes himself.
+ - I tell them that if they will occupy themselves with the study of mathematics they will find in it the best remedy against the lusts of the flesh.
+ - Often I have thought of the day when I gazed for the first time at the sea. The sea is vast, the sea is wide, my eyes roved far and wide and longed to be free. But there was the horizon. Why a horizon, when I wanted the infinite from life?
+ - A man lives not only his personal life, as an individual, but also, consciously or unconsciously, the life of his epoch and his contemporaries.
+ - Solitude gives birth to the original in us, to beauty unfamiliar and perilous – to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.
+ - What a wonderful phenomenon it is, carefully considered, when the human eye, that jewel of organic structures, concentrates its moist brilliance on another human creature!
+ - Is not life in itself a thing of goodness, irrespective of whether the course it takes for us can be called a ‘happy’ one?
+ - Only love, and not reason, yields kind thoughts.
+ - Animals do not admire each other. A horse does not admire its companion.
+ - Technology and comfort – having those, people speak of culture, but do not have it.
+ - What good would politics be, if it didn’t give everyone the opportunity to make moral compromises.
+ - The Freudian theory is one of the most important foundation stones for an edifice to be built by future generations, the dwelling of a freer and wiser humanity.
+ - We do not fear being called meticulous, inclining as we do to the view that only the exhaustive can be truly interesting.
+ - He thought what a fine thing it was that people made music all over the world, even in the strangest settings – probably even on polar expeditions.
+ - A solitary, unused to speaking of what he sees and feels, has mental experiences which are at once more intense and less articulate than those of a gregarious man.
+ - Every reasonable human being should be a moderate Socialist.
+ - One has the idea of a stupid man as perfectly healthy and ordinary, and of illness as making one refined and clever and unusual.
+ - What pleases the public is lively and vivid delineation which makes no demands on the intellect; but passionate and absolutist youth can only be enthralled by a problem.
+
+61 quotes

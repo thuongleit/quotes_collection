@@ -1,0 +1,33 @@
+ - What this world needs is a new kind of army – the army of the kind.
+ - Support your right to arm bears.
+ - The customer is always right! John Wanamaker must be turning in his grave. If you’re a customer today, you’re an intruder.
+ - Man has an infinite capacity to rationalize – especially when it comes to what he wants to eat.
+ - People ask me what makes a good funeral, and I tell them the most important thing is your man in the casket. If you have a man of substance in there, you have the makings of a first-class funeral.
+ - You can’t make the Duchess of Windsor into Rebecca of Sunnybrook Farm. The facts of life are very stubborn things.
+ - Giving the cat a name, like marriage, is not an easy thing. Soon I experienced the selection of name for a baby, a dog, a book, a warship, a sports team, even the king, the pope or a hurricane is just child’s play compared to the selection of the cat’s name.
+ - Opera is like a husband with a foreign title: expensive to support, hard to understand, and therefore a supreme social challenge.
+ - On resigning as collaborator on the memoirs of the former Wallis Warfield Simpson, new summaries, 6 October 1955. You can’t make the Duchess of Windsor into Rebecca of Sunnybrook Farm.
+ - For an animal person, an animal-less home is no home at all.
+ - As far as I’m concerned, the only difference between the Republicans and the Democrats is the Republicans are Socialists and the Democrats are Bolsheviks.
+ - As anyone who has ever been around a cat for any length of time well knows cats have enormous patience with the limitations of the human kind.
+ - To anyone who has ever been owned by a cat, it will come as no surprise that there are all sorts of things about your cat you will never, as long as you live, forget. Not the least of these is your first sight of him or her.
+ - You cannot expect everything even from the friendliest cat. It is still a cat.
+ - The facts of life are very stubborn things.
+ - Relations between the sexes are so complicated that the only way you can tell if members of the set are going together is if they are married. Then, almost certainly, they are not.
+ - Have you ever heard one civilized person whose opinion you respect, at any time, anywhere, in any civilized country anywhere, say the good new days?
+ - The National Park Service shot a mule in the face. He survived but had trouble swallowing and often food came out of his nose.
+ - It suddenly dawned on me one day, when I was reading in the paper about a woman wrestler, that being a curmudgeon was the last thing in the world that a man can be that a woman cannot be. Women can be irritating – after all, they are women – but they cannot be curmudgeons.
+ - In my day the schools taught two things, love of country and penmanship-now they don’t teach either.
+ - I detest professional anythings but particularly professional writers. Most of them today are just garbage collectors.
+ - A “good” family, it seems, is one that used to be better.
+ - I told the good Father that if he and I were going in the future to some wonderful Elysian Field and the animals were not going to go anywhere, that was all the more reason to give them a little better shake in the one life they did have.
+ - There are three terrible ages of childhood – 1 to 10, 10 to 20, and 20 to 30.
+ - I can’t take a well-tanned person seriously.
+ - You can give of your talent, you can give of your possessions, or you can give of yourself. For God’s sake, give something.
+ - I will omit but I will not distort.
+ - Every damn President since I can remember has been so in love with foreign policy that they’re just like a schoolboy with a new girl.
+ - I’ve always had a sneaking fondness for Martin Van Buren. He wrote his autobiography, you know, and never once mentioned his wife. Now that’s what I call a mans man.
+ - It has long been a theory of mine and I am known, if I do say so, for my long theories that authors, generally speaking, are rotten letter writers.
+ - I consider the 3 most cruelly produced foods to be from lobsters, dropped alive into boiling water, veal from calves separated from their mothers and kept in crates, and pate de foie gras.
+
+31 quotes

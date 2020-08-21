@@ -1,0 +1,39 @@
+ - Freedom is not free. Free men are not equal. Equal men are not free.
+ - That which does not kill me, has made a grave tactical error.
+ - Freedom is not free. It is bought at a high price. It can be squandered cheaply.
+ - Unrestricted laissez faire capitalism allocates resources in a most efficient way to satisfy human wants without regard to the rationality or morality of those desires.
+ - The definition of a Dark Age is that we no longer remember what we once could do.
+ - Everything takes longer and costs more.
+ - We juggle priceless eggs in variable gravity. I am afraid. I will taste fear until I die.
+ - Of course most people underestimate the warrior characteristics of the Anglo-Saxon and Norman peoples anyway. It takes a heap of piety to keep a Viking from wanting to go sack a city.
+ - Bureaucracies are progressive. meaning they have a burning fear that someone. somewhere, is doing something without permission.
+ - The difference between Libertarian and Conservative is that Conservatives understand this, and know that unregulated capitalism will eventually end with human meat sold in market places, and slavery. Alas, many Conservatives think that everything has to be regulated and controlled.
+ - A Dark Age is not just a period in which people no longer know how to do things. The real key is that people no longer remember that certain things can be done at all.
+ - Paradoxically, the few eras of peace were times when men of war had high influence. The Pax Romana was enforced by Caesar’s Legions. The Pax Brittanica was enforced by the Royal Navy and His Majesty’s Forces.
+ - We have for years been building a society in which everybody plunders everybody, and while we are weary of being plundered, we enjoy the plunder.
+ - You no longer have much in the way of knowing what to do in a big, epic novel about the future, because nobody knows what the hell is going to happen.
+ - Grinding the faces of the poor seems to be the policy of the Greens.
+ - It’s the nature of government, to build enduring institutions, structures that stay long after their purpose is over. If you pay people to help the poor, you have people who won’t be paid if there aren’t any poor, so they’ll be sure to find some.
+ - Mutually Assured Destruction, MAD, works only as long as it works; it does not know what to do if deterrence fails, for it envisions no defensive capabilities. A deterrent works until it is needed; then one needs defenses.
+ - The importance of information is directly proportional to its improbability.
+ - A smart soldier wants to know the causes of wars. Also how to end them. After all, war is the normal state of affairs, isn’t it? Peace is the name of the ideal we deduce from the fact that there have been interludes between wars.
+ - What man has done, man can aspire to do.
+ - I think it takes about a million words to make a writer. I mean that you’re going to throw away.
+ - Write a lot. And finish what you write. Don’t join writer’s clubs and go sit around having coffee reading pieces of your manuscript to people. Write it. Finish it. I set those rules up years ago, and nothing’s changed.
+ - The arrogance of some of those who are so damned sure they are right is just astounding. Scientific witch hunts are often the worst kind, and have been since the secular authorities stopped enforcing the local bishop’s decrees of anathema.
+ - It’s not only possible, but likely that the Nobel Prize in economics will go in alternate years to people who disagree on nearly everything fundamental.
+ - In any ethical situation, the thing you want least to do is probably the right action.
+ - The hard part of writing at all is sitting your ass down in a chair and writing it. There’s always something better to do, like I’ve got an interview, sharpening the pencils, trimming the roses. There’s always something better to do. Going to a writer’s club?
+ - I am sure it has been done with less, but you should be prepared to write and throw away a million words of finished material. By finished, I mean completed, done, ready to submit, and written as well as you know how at the time you wrote it. You may be ashamed of it later, but that’s another story.
+ - Much of economics isn’t difficult, or rather, the difficulty is in cooking up arguments to “prove” that commonsense conclusions are wrong. The fact is that many commonsense conclusions are quite correct, and it takes a lot of education to get you to believe different.
+ - I’ve noticed that just about every time I find a large program with known glitches that no one seems able to fix, that program is written in C and is likely written by a programming team in a remote location.
+ - I have more information in one place than anybody in the world.
+ - The Aztecs believe they started up in what’s now New Mexico, and wandered for 10,000 years before they got down into where they are now, in Mexico City. That’s a weird legend.
+ - And that’s another piece of advice I’ll give junior writers; when you get to the point where they take you to lunch, let the editor suggest where to go.
+ - You see, I used to do a certain amount of market research by going to the local drugstore and seeing what the truck drivers would put up. Now it’s all just copies from the latest best-seller list and damn little of anything else.
+ - And in down times it shakes a lot of the bad SF out, a lot the stuff that was bought for literary reasons, which is neither entertaining nor great literature.
+ - The American way of war is to build an army, then another, then a third, while building fleets. If the war is still on at that point we smash.
+ - One of the things we must be able to agree to is to lose an election and not take to the streets.
+ - Because Tom Doherty and people like that are not stupid. If they could have streamlined their operation more to get more money out of it, they would have done it. It’s not like they’re a bunch of idiots.
+
+37 quotes

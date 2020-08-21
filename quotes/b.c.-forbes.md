@@ -1,0 +1,100 @@
+ - He who has faith has an inward reservoir of courage, hope, confidence, calmness, and assuring trust that all will come out well – even though to the world it may appear to come out most badly.
+ - Kill time and you will kill your career.
+ - Plan your work – work your plan.
+ - If you don’t drive your business, you will be driven out of business.
+ - History has demonstrated that the most notable winners usually encountered heartbreaking obstacles before they triumphed. They won because they refused to become discouraged by their defeats.
+ - Diamonds are only lumps of coal that stuck to their jobs.
+ - The man who is too busy to read is never likely to lead.
+ - In the race for success, speed is less important than stamina.
+ - Acting without thinking is like shooting without aiming.
+ - Enthusiasm is the electric current that keeps the engine of life going at top speed. Enthusiasm is the very propeller of progress.
+ - The Bible says, ‘Where there is no vision, the people perish.’ Have you a vision? And are you undeviatingly pressing and pushing toward its accomplishment? Dreaming alone will not get you there. Mix your dreams with determination and action.
+ - Opportunity rarely knocks on your door. Knock rather on opportunity’s door if you ardently wish to enter.
+ - It is only the farmer who faithfully plants seeds in the Spring, who reaps a harvest in the Autumn.
+ - There is more credit and satisfaction in being a first-rate truck driver than a tenth-rate executive.
+ - There’s no such thing as a self-made man. I’ve had much help and have found that if you are willing to work, many people are willing to help you.
+ - If you do the best and the most you can today, don’t worry about tomorrow.
+ - Jealousy is an inner consciousness of one’s own inferiority. It is a mental cancer.
+ - A word of appreciation often can accomplish what nothing else could accomplish.
+ - How you start is important, but it is how you finish that counts. In the race for success, speed is less important than stamina. The sticker outlasts the sprinter.
+ - Honesty pays dividends both in dollars and in peace of mind.
+ - Justice must be blind to the hardness or softness of a man’s hands, as well as to the leanness or fatness of his pocketbook.
+ - Triumph often is nearest when defeat seems inescapable.
+ - I have never seen people who could do real work except under the stimulus of encouragement and enthusiasm and the approval of the people for whom they are working.
+ - Our future and our fate lie in our wills more than in our hands, for our hands are but the instruments of our wills.
+ - The be-all and end-all of life should not be to get rich, but to enrich the world.
+ - Opportunity can benefit no man who has not fitted himself to seize it and use it. Opportunity woos the worthy, shuns the unworthy. Prepare yourself to grasp opportunity, and opportunity is likely to come your way. It is not so fickle, capricious and unreasoning as some complain.
+ - The bargain that yields mutual satisfaction is the only one that is apt to be repeated.
+ - Work done with little effort is likely to yield little result.
+ - No man can fight his way to the top and stay at the top without exercising the fullest measure of grit, courage, determination, resolution.
+ - To make headway, improve your head.
+ - Temporary release from work, through vacations, becomes more welcome, more pleasurable, even more necessary, as we grow older.
+ - Honesty is the cornerstone of character.
+ - What you have outside you counts less than what you have inside you.
+ - There is no fun equal to the satisfaction of doing one’s best. The things that are most worthwhile in life are really those within the reach of almost every normal human being who cares to seek them out.
+ - Honesty is the cornerstone of character. The honest man or woman seeks not merely to avoid criminal or illegal acts, but to be scrupulously fair, upright, fearless in both action and expression. Honesty pays dividends both in dollars and in peace of mind.
+ - Real riches are the riches possessed inside.
+ - The man who is cocksure that he has arrived is ready for the return journey.
+ - Bragging often precedes begging.
+ - Think not of yourself as the architect of your career but as the sculptor. Expect to have to do a lot of hard hammering and chiselingand scraping and polishing.
+ - Work is the meat of life, pleasure the dessert.
+ - Turn resolutely to work, to recreation, or in any case to physical exercise till you are so tired you can’t help going to sleep, and when you wake up you won’t want to worry.
+ - Search and you will find that at the base and birth of every great business organization was an enthusiast, man consumed with earnestness of purpose, with confidence in his powers, with faith in the worthwhileness of his endeavors.
+ - Lady Luck generally woos those who earnestly, enthusiastically, unremittingly woo her.
+ - The person who renders loyal service in a humble capacity will be chosen for higher responsibilities, just as the biblical servant who multiplied the one pound given him by his master was made ruler over ten cities...
+ - Mediocre men wait for opportunity to come to them. Strong, able, alert men go after opportunity.
+ - The human being who lives only for himself finally reaps nothing but unhappiness. Selfishness corrodes. Unselfishness ennobles, satisfies.
+ - Upon our children-how they are taught-rests the fate-or fortune-of tomorrow’s world.
+ - The man without religion is as a ship without a rudder.
+ - Vitally important for a young man or woman is, first, to realize the value of education and then to cultivate earnestly, aggressively, ceaselessly, the habit of self-education.
+ - Golf without bunkers and hazards would be tame and monotonous. So would life.
+ - Better to be occasionally cheated than perpetually suspicious.
+ - The real friend is he or she who can share all our sorrow and double our joys.
+ - I resolve for 1920 to sit down all by myself and take a personal stock-taking once a month. To be no more charitable in viewing my own faults than I am an viewing the faults of others. To face the facts candidly and courageously. To address myself carefully, prayerfully, to remedying defects.
+ - The men who have done big things are those who were not afraid to attempt big things, who were not afraid to risk failure in order to gain success.
+ - The most profitless things to manufacture are excuses.
+ - Backboneless employees are too ready to attribute the success of others to luck. Luck is usually the fruit of intelligent application. The man who is intent on making the most of his opportunities is too busy to bother about luck.
+ - A shady business never yields a sunny life.
+ - Golf is an ideal diversion, but a ruinous disease.
+ - The man who has won millions at the cost of his conscience is a failure.
+ - A price has to be paid for success. Almost invariably those who have reached the summits worked harder and longer, studied and planned more assiduously, practiced more self- denial, overcame more difficulties than those of us who have not risen so far.
+ - It is when things go hardest, when life becomes most trying, that there is greatest need for having a fixed goal.
+ - The victors of the battles of tomorrow will be those who can best harness thought to action. From office boy to statesman, the prizes will be for those who most effectively exert their brains, who take deep, earnest and studious counsel of their minds, who stamp themselves as thinkers.
+ - It is the hard-boiled employer, not the soft-hearted species, that incites most of our strikes and does most ot endanger the harmonious progress of democracy.
+ - Success consists of being and doing, not simply accumulating.
+ - We must learn that to enjoy happiness we must conscientiously and continuously seek to spread happiness. Selfishness is suicidal to happiness.
+ - There are two brands of discontent: the brand that merely fosters greed and snarling and back-biting, and the brand that inspires greater and greater effort to reach the desired goal. Which is your brand?
+ - Many a man thinks he is patient when, in reality, he is indifferent.
+ - Time mends all, ends all things earthly.
+ - Success is sweetest to one who has known failure.
+ - A nation’s economic salvation does not lie in the amount of money its rich inhabitants can squander recklessly. A nation’s economic salvation lies in the amount of money its inhabitants can save and invest after providing themselves with all the necessaries and all the reasonable comforts of life.
+ - If a pig could pray, it would pray for swill. What do you pray for?
+ - Cheerfulness is among the most laudable virtues. It gains you the good will and friendship of others. It blesses those who practice it and those upon whom it is bestowed.
+ - To get the most out of the world one must conscientiously strive to put the most into it. Life without worthy ideals becomes wholly unsatisfying, sour. If our supreme objective is to serve, no blow fate may administer can daunt us.
+ - The man who is intent on making the most of his opportunities is too busy to bother about luck.
+ - Madame Curie didn’t stumble upon radium by accident. She searched and experimented and sweated and suffered years before she found it. Success rarely is an accident.
+ - Selfishness corrodes. Unselfishness ennobles, satisfies. Don’t put off the joy derivable from doing helpful, kindly things for others.
+ - Don’t forget until too late that the business of life is not business but living.
+ - He best keeps from anger who remembers that God is always looking upon him.
+ - The bell of public opinion is today making the Morgan-Rockefeller-Vanderbilt class jump. Nor are the strongest of our corporations immune. The railroads have had to jump pretty lively, and certain gigantic industrial combinations are also being put through their paces.
+ - Whimpering never kept a leaking vessel from foundering. Vigorously manning the pumps has. Get busy with your head and hands, not your chin.
+ - Are you doing the kind of work you were built for, so that you can expect to be able to do very large amounts of that kind and thrive under it? Or are you doing a kind of which you can do comparatively little.
+ - An idea, like a machine, must have power applied to it before it can accomplish anything.
+ - The man of fixed ingrained principles who has mapped out a straight course, and has the courage and self-control to adhere to it, does not find life complex. Complexities are all of our own making.
+ - The Christmas spirit brings home to us-or should bring home to us-the profound Biblical truth that it is more blessed to give than to receive. Anything which inspires unselfishness makes for our ennoblement. Christmas does that. I am all for Christmas.
+ - The fellow who isn’t fired with enthusiasm is apt to be fired.
+ - Next to the dog, the wastebasket is your best friend.
+ - It is not a case of whether we want to wash our hands of Europe or want to help her to regain her feet. The troubles of Europe have been laid on our doorstep, so to speak, and will plague us, if we do nothing to cure them, whether we like it or not.
+ - If the deal isn’t good for the other party, it isn’t good for you.
+ - Money, or even power, can never yield happiness unless it be accompanied by the goodwill of others.
+ - Use life to provide something that outlasts it.
+ - You have no idea how big the other fellow’s troubles are.
+ - It’s so much easier to do good than to be good.
+ - Anything that inspires unselfishness makes for our ennoblement. Christmas does that. I am all for Christmas.
+ - To succeed, we must have the will to succeed, we must have stamina, determination, backbone, perseverance, self-reliance, and faith.
+ - If the United States is to produce a nation of investors-as we must if we are to gain financial world-leadership-it is imperative that boards of directors be so constituted as to adequately represent the interests and inspire the complete confidence of investors of moderate substance.
+ - Some people are so methodical that that is all they are or ever will be.
+ - I have known not a few men who, after reaching the summits of business success, found themselves miserable on attaining retirement age. They were so exclusively engrossed in their day to day affairs that they had no time for friend making.
+ - The truth doesn’t hurt unless it ought to.
+
+98 quotes

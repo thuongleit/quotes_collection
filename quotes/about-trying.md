@@ -1,0 +1,42 @@
+ - Don’t bother just to be better than others. Try to be better than yourself. ~~William Faulkner
+ - Try and fail, but never fail to try! ~~Jared Leto
+ - If I fail, I try again, and again, and again. ~~Nick Vujicic
+ - Set your target and keep trying until you reach it. ~~Napoleon Hill
+ - The only failure is not trying. ~~Robin S. Sharma
+ - Don’t waste your energy trying to convince people to understand you. Your time is too valuable to try to prove yourself to people. ~~Joel Osteen
+ - Do or do not. There is no try. Only do. ~~Frank Oz
+ - Before you react, think. Before you spend, earn. Before you criticize, wait. Before you quit, try. ~~William Arthur Ward
+ - The less you try to impress, the more impressive you are. ~~Denis Waitley
+ - I’ve always been a fighter. If you tell me I can’t, I’ll die trying to prove you wrong. ~~R.A. Salvatore
+ - Trying to get everyone to like you is a sign of mediocrity. ~~Colin Powell
+ - Most people can learn a lot more than they think they can. They sell themselves short without trying. ~~Elon Musk
+ - What I’m trying to do is to maximise the probability of the future being better. ~~Elon Musk
+ - Try not to resist the changes that come your way. Instead let life live through you. And do not worry that your life is turning upside down. How do you know that the side you are used to is better than the one to come? ~~Rumi
+ - We will all fail in life, but nobody has to be a failure. Failing at a thing doesn’t make you a failure. You are only a failure when you quit trying. ~~Joyce Meyer
+ - I know fear is an obstacle for some people, but it is an illusion to me. Failure always made me try harder next time. ~~Michael Jordan
+ - You’ve got to start with the customer experience and work backwards to the technology. You can’t start with the technology and try to figure out where you’re going to sell it. ~~Steve Jobs
+ - Until we have met the monsters in ourselves, we keep trying to slay them in the outer world. And we find that we cannot. For all darkness in the world stems from darkness in the heart. And it is there that we must do our work. ~~Marianne Williamson
+ - Hurrying and delaying are alike ways of trying to resist the present. ~~Alan Watts
+ - Take the probability of loss times the amount of possible loss from the probability of gain times the amount of possible gain. That is what we’re trying to do. It’s imperfect, but that’s what it’s all about. ~~Warren Buffett
+ - Remember, don’t try to build the greatest wall that’s ever been built. Focus on laying a single, expertly-placed brick. Then keep doing that, every day. ~~Will Smith
+ - Life is about trying things to see if they work. ~~Ray Bradbury
+ - Breathe and don’t try to be perfect. ~~Nicole Kidman
+ - I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. ~~Warren Buffett
+ - All too often, the security of a mediocre present is more comfortable than the adventure of trying to be more in the future. ~~Tony Robbins
+ - The more you are like yourself, the less you are like anyone else which makes you unique. The problem with most people is that they spend their lives trying to emulate others and so we have lots of copies but few originals. ~~Walt Disney
+ - If you are going to try, go all the way or don’t even start. If you follow it you will be alive with the gods. It is the only good fight there is. ~~Charles Bukowski
+ - Most people try to get rich by being cheap and the price for that is that you live cheap and there is so much money out there; why would you want to live cheap? ~~Robert T. Kiyosaki
+ - Now I know who you are U got nothin’ on me, I see I should’ve known it from the start You can’t tell me lies Don’t even try cuz This is goodbye Goodbye. ~~Demi Lovato
+ - Don’t be afraid to fail. Be afraid not to try. ~~Michael Jordan
+ - If you’re going to try, go all the way. Otherwise, don’t even start. ~~Charles Bukowski
+ - Don’t bother people for help without first trying to solve the problem yourself. ~~Colin Powell
+ - Try to imagine what it will be like to go to sleep and never wake up. Now try to imagine what it was like to wake up having never gone to sleep. ~~Alan Watts
+ - Writers aren’t people exactly. Or, if they’re any good, they’re a whole lot of people trying so hard to be one person. ~~F. Scott Fitzgerald
+ - We are not an endangered species ourselves yet, but this is not for lack of trying. ~~Douglas Adams
+ - We can do all things through Christ who strengthens us, but frankly we won’t if we’re too afraid to try. ~~Beth Moore
+ - Here I am alive, and it’s not my fault, so I have to try and get by as best I can without hurting anybody until death takes over. ~~Leo Tolstoy
+ - We should try to hold on to the Christmas spirit, not just one day a year, but all 365. ~~Mary Martin
+ - Just don’t give up trying to do what you really want to do. ~~Ella Fitzgerald
+ - Prosperity tries the fortunate, adversity the great. ~~Rose Kennedy
+
+40 quotes

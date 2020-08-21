@@ -1,0 +1,56 @@
+ - Don’t give up your power.
+ - Change is such hard work.
+ - By the time a man is wise enough to watch his step, he’s too old to go anywhere.
+ - I can’t be funny if my feet don’t feel right.
+ - It is better to look good than to feel good.
+ - Nothing can take the sting out of the world’s economic problems like watching millionaires present each other with golden statues.
+ - What’s so fascinating and frustrating and great about life is that you’re constantly starting over, all the time, and I love that.
+ - Gentlemen, start your egos.
+ - My granddaughter’s birth has made me want to create things she will love.
+ - My mind is always going. I’m always thinking what I need to do, what I haven’t done, what I did do, what I didn’t do as well as I could – I’m relentless that way with myself.
+ - In high school, I was the class comedian as opposed to the class clown. The difference is the class clown is the guy who drops his pants at the football game, the class comedian is the guy who talked him into it.
+ - I’m a baby. I sleep like a baby – I’m up every two hours. And I think a lot. I worry a lot. I have great nights of no sleep where ideas come.
+ - Two thousand years ago Jesus is crucified, three days later he walks out of a cave and they celebrate with chocolate bunnies and marshmallow Peeps and beautifully decorated eggs. I guess these were things Jesus loved as a child.
+ - It’s money. I remember it from when I was single.
+ - That’s the thing about jazz: it’s free flowing, it comes from your soul.
+ - I don’t like heights. This is why I stopped growing at fifth grade.
+ - Great news! Hosting Oscars counts five hours toward my community service!
+ - Did you ever reach a point in your life, where you say to yourself, ‘This is the best I’m ever going to look, the best I’m ever going to feel, the best I’m ever going to do,’ and it ain’t that great?
+ - You have to really respect what your kids are doing with their kids and how they’re raising them. You can’t push your way into areas where you shouldn’t be saying anything. You have to always remember they’re not your own kids. Play with them, love them, spoil them to death – then hand them back.
+ - I’m married – I’ve caught my limit.
+ - The Passion of the Christ opened up on Ash Wednesday, had a Good Friday.
+ - When comedy is good, it’s jazz. The beats of it, the looseness, the improvisational part, the music-the way you hit the inflection, the high notes of a joke. It’s all melody to me.
+ - I quit drinking. That was a big problem for a lot of years. Then after that, I just started feeling grateful again.
+ - Bambi, to a kid, was scary.
+ - Good news, they found Nemo! The bad news is, they found him in one of Wolfgang Puck’s puff pastries.
+ - To be good, you need to believe in what you’re doing.
+ - I had a dream that Connie Chung is doing a newscast about my death and they show a clip from Soap.
+ - Despite what The Wall Street Journal says, our awards are the best-kept secret in America, with the possible exception of what George W. Bush did in the ’70s.
+ - My grandparents invented joylessness. They were not fun. I’ve already had more fun with my grandchildren than my grandparents ever had with me.
+ - Well, the way things are going, aside from wheat and auto parts, America’s biggest export is now the Oscar.
+ - You really have to have some muscle to be on the stage in front of the world.
+ - As a director and an actor, I encourage improvisation but in character and in the moment of what it is.
+ - When you realize you want to invest the rest of your lifestyle with somebody, you want the rest of your life to commence as quickly as achievable.
+ - I think when I feel I’m at my best is when I’m on stage, and it’s my version of jazz because it’s just riffing or something.
+ - I used to limp around my neighborhood imitating him. I did my Bar Mitzvah with an Oklahoma drawl.
+ - From the first time I saw Sid Caesar be funny I knew that’s what I had to do.
+ - A laugh is a weird sound, and when you get a couple thousand people making it at once, it’s really strange. But when I can feel proud of myself for causing it, it’s great.
+ - At some point I stopped stand-up because I didn’t have something to say on a nightly basis.
+ - I’m a sucker for a free tuxedo.
+ - I always was a performer, from the time I was little. It was always a natural place for me to be.
+ - I’d like to think there is a Heaven, and it starts from the happiest day in your life.
+ - The inspiration was this great group of 40 or 50 relatives, sometimes for Thanksgiving or Passover or something and my brothers would just go up and make them laugh.
+ - Even when I was in school shows, in elementary school doing plays, I’d always go off book and start improvising.
+ - There’s only, I think, in life, three things that I do pretty well: Performing, I still can field ground balls, and I make nice kids.
+ - Dad had a music store, and he’d often bring home comedy albums that I would listen to. I started listening to Bob Newhart and Bill Cosby, and developing taste. They really influenced my style of comedy.
+ - I didn’t rebel as a child. I missed that angry teenager thing.
+ - You give up your dream, you give up.
+ - When I’ve gotten criticism, it’s that it’s too long, too soft, didn’t hit the government hard enough. Then when I do hit the government, they go, What’s he doing hitting the government?
+ - I was a film-directing major at NYU. I’m still not sure why I became a directing major, when I was really an actor and a comedian, but there was something that drew me to doing that.
+ - Nobody is more truthful when he’s acting than De Niro.
+ - I’m going to go on just living and laughing and loving.
+ - If you do something for the first time, you will always remember it. If your Dad has something to do with it, you write about it.
+ - I had really good hearing and when you’re scared it gets heightened so you hear scratching noises or something.
+ - At 60, I could do the same things I could do at 30, if I could only remember what those things are.
+
+54 quotes

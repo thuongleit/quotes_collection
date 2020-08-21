@@ -1,0 +1,22 @@
+ - Man doth not yield him to the angels, nor unto death utterly, save only through the weakness of his feeble will.
+ - The woman in us still prosecutes a deceit like that begun in the garden.
+ - And the will therein lieth, which dieth not. Who knoweth the mysteries of the will, with its vigor? For God is but a great will pervading all things by nature of its intentness, Man doth not yield himself to the angels, nor unto death utterly, save only through the weakness of his feeble will.
+ - They that never peeped beyond the common belief in which their easy understandings were at first indoctrinated are strongly assured of the truth of their receptions.
+ - The sages of old live again in us, and in opinions there is a metempsychosis.
+ - What’s impossible to all humanity may be possible to the metaphysics and physiology of angels.
+ - And for mathematical science, he that doubts their certainty hath need of a dose of hellebore.
+ - Some pretences daunt and discourage us, while others raise us to a brisk assurance.
+ - It is the great beauty of true religion that it shall be universal, and a departure in any instance from universality is a corruption of religion itself.
+ - To converse at the distance of the Indes by means of sympathetic contrivances may be as natural to future times as to us is a literary correspondence.
+ - The understanding also hath its idiosyncrasies as well as other faculties.
+ - The belief of our Reason is an Exercise of Faith, and Faith is an Act of Reason.
+ - The union of a sect within itself is a pitiful charity; it’s no concord of Christians, but a conspiracy against Christ; and they that love one another for their opinionative concurrence, love for their own sakes, not their Lord’s.
+ - Justice is but the distributing to everything according to the requirements of its nature.
+ - Time, as a river, hath brought down to us what is more light and superficial, while things more solid and substantial have been immersed.
+ - It may not be impossible, but that our Faculties may be so construed, as always to deceive us in the things we judge most certain and assured.
+ - There is nothing in words and styles out suitableness that makes them acceptable and effective.
+ - The precipitancy of disputation, and the stir and noise of passions that usually attend it, must needs be prejudicial to verity.
+ - That though we are certain of many things, yet that Certainty is no absolute Infallibility, there still remains the possibility of our being mistaken in all matters of humane Belief and Inquiry.
+ - We have a mistaken notion of antiquity, calling that so which in truth is the world’s nonage.
+
+20 quotes

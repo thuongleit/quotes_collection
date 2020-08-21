@@ -1,0 +1,42 @@
+ - A good friend is a connection to life – a tie to the past, a road to the future, the key to sanity in a totally insane world.
+ - Grandchildren are the dots that connect the lines from generation to generation.
+ - The single and most dangerous word to be spoken in business is no. The second most dangerous word is yes. It is possible to avoid saying either.
+ - Men are taught to apologize for their weaknesses, women for their strengths.
+ - A mother becomes a true grandmother the day she stops noticing the terrible things her children do because she is so enchanted with the wonderful things her grandchildren do.
+ - No matter what the job description says, your real job is to make the boss look good.
+ - Don’t worry whether or not I am now happy. Today is only chapter one, we have yet to write a book.
+ - If you can’t add to the discussion, don’t subtract by talking.
+ - For all of us, whether we walk old paths or blaze new trails, friends remain important.
+ - The only people in the world who can change things are those who can sell ideas.
+ - Most meetings are too long, too dull, too unproductive – and too much a part of corporate life to be abandoned.
+ - Didn’t we, like our grandchildren, begin with a childhood we thought would never end? Now, all of a sudden, I’m older than my parents were when I thought they were old.
+ - Nothing is more stylish than power.
+ - If I had known how wonderful it would be to have grandchildren, I’d have had them first.
+ - Did I choose you? Did you choose me? And what difference does it make? All that really matters, friend, is that we chose together.
+ - Fear is born in uncertainty and nourished by pessimism.
+ - For most of us, dreams come true only after they do not matter, Only in childhood do we ever have the chance of making dreams come true when they mean everything.
+ - Always hire people who are better than you. Hiring dummies is shortsighted. You can’t move up the ladder until everyone is comfortable with your replacement.
+ - So, if you have a grandma, thank the good Lord above, and give your grandmamma hugs and kisses, for grandmothers are to love.
+ - Power always works from the corner office.
+ - Carelessness with details sinks more careers than anyone will admit.
+ - Letters remind us that when we write we can bring back the best of times, even make time stand still, if only for a few minutes.
+ - Don’t ever take advice from anyone who starts a sentence with, ‘You may not like me for this, but it’s for your own good – ’ It never is.
+ - Women on the way up generally fail to win popularity contests. The only compensation is that once you’re there you will become very well liked.
+ - Repeat nothing – absolutely nothing – that is told you in confidence. There is no such thing as telling just one person.
+ - It was only long after the ceremony that we learned why we got married in the first place.
+ - Power, like fear, had a taste. But power tasted better.
+ - A child who has a grandparent has a softened view of life, the feeling that there is more to life than what we see, more than getting and gaining, winning and losing.
+ - Love is a great glue, but there is no cement like mutual hate.
+ - Don’t get so involved in the duties of your life and your children that you forget the pleasure. Remember why you had children.
+ - A letter is never ill-timed; it never interrupts. Instead it waits for us to find the opportune minute, the quiet moment to savor the message. There is an element of timelessness about letter writing...
+ - Briefcases, like CEOs, should never look new and unused.
+ - Corporations, being only human, make mistakes. Sometimes you may end up working for one of those mistakes.
+ - Your mother calls and says she hasn’t seen you for a long time. The first year: You invite her for a week. You give her your room, and you both sleep on the lumpy studio couch. The fifth year: Your mother sleeps on the lumpy studio couch. The tenth year: You send the children to mother.
+ - We are the generation that came of age in an ageless society.
+ - I thought about all of us women and how we spend half our lives rebelling against our mothers and the next half rebelling against our daughters.
+ - Power never takes two weeks off. Power takes long weekends.
+ - Age becomes reality when you hear someone refer to that attractive young woman standing next to the woman in the green dress, and you find that you’re the one in the green dress.
+ - All friends are not for life, but if you have a true friend, you have a life.
+ - Survival must come before civilization.
+
+40 quotes

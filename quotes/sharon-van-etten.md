@@ -1,0 +1,27 @@
+ - I’m excited to go study and read and immerse myself in something.
+ - Everything will be okay. I have a sticker on my laptop that says that.
+ - You’re the reason why I’ll move to the city; you’re why I’ll need to leave.
+ - Life is too short to surround yourself with people who aren’t looking out for you.
+ - I have a day job Monday to Friday. I work at a record label in Brooklyn called Ba Da Bing. It’s a great indie label and I listen to music all day. I meet people online and find out about the cool new music blogs.
+ - I hate putting negative energy out into the world. But it’s either inside or out. I mean, it’s either get an ulcer or have a fight.
+ - The musician lifestyle is not easy for most people to understand. This is something I’m struggling with. When you’re on tour, people think you’re just having the time of your life and it’s really romantic.
+ - One day when I have a band I will have a band name, but since it’s just me I feel it should just be my name. For me it doesn’t make much sense since the music is from me and about me. I haven’t ever been in a band.
+ - When you get home after being gone for a month or two, time moves on without you. You’re scrambling to catch up with the people. Some friends and family understand, but then there are others who just think that you can’t find enough time in your life for them.
+ - Im trying to learn how to cook.
+ - Don’t ever feel inhibited. It’s harder to censor yourself than to just be yourself.
+ - I have this red cardigan that my friend Coco gave me that has holes for thumbs. It’s my cozy sweater. I wear it a lot.
+ - Saw Torres play their first New York show tonight at Cake Shop. SO good. Do yourself a favor and check out her record. Her voice is KILLER.
+ - I did jazz dance for a few years.
+ - I try to focus on the melodies and try to make everything else minimal. The melody and the lyrics are most important to me.
+ - My mom used to ask me when I was gonna write a happy song. I still tell her that it’s when I start to write really happy-sounding songs that everyone needs to start worrying.
+ - If you work on anything long enough hopefully you’ll get better and I feel like we’re just growing.
+ - I really hope that when someone puts my record on that they hear me.
+ - I grew up going to musicals with my mom here in New York, going to Broadway. I used to be in musicals in high school.
+ - Honestly, live is my favorite way of performing. Every show is a completely different energy. With recording, it’s not really as organic as it can be. But I feel like I’m a lot more fluid, and I can be a little bit more aggressive.
+ - I’m getting bored performing the same songs over and over. Songwriting comes and goes.
+ - Honestly, live is my favorite way of performing. Every show is a completely different energy.
+ - I’m really out of touch with myself emotionally. I’ve always had a hard time talking about how I feel.
+ - I guess I usually write when I’m in a really intense headspace, because it’s my form of self-therapy.
+ - I don’t want to bury anything in poetry.
+
+25 quotes

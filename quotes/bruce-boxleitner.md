@@ -1,0 +1,26 @@
+ - If more of our so-called leaders would walk the same streets as the people who voted them in, live in the same buildings, eat the same food instead of hiding behind glass and steel and bodyguards, maybe we’d get better leadership and a little more concern for the future.
+ - So I had a ghostwriter, they call them, or somebody who is an experienced writer, to help. I’ve got the ideas in my head, it’s getting them properly on paper.
+ - My fear, is that we are becoming so dependent on technology that if it was all taken away for some reason, some big incident, that we are losing our ability to function without it.
+ - I’ve had quarter horses for the last 18 years.
+ - A show needs time to find an audience, and they’re very quick to pull them off the air now.
+ - I had a great run on Babylon 5. It was a lot of fun.
+ - I started acting professionally at age 19.
+ - It’s very frustrating not being on the air.
+ - The most colorful section of a bookstore is the display of SF books, with art by people like Wayne Barlow, who is a terrific artist.
+ - Thats the great thing about being an actor, you get to try out lots of things for your roles.
+ - Will Shatner, Jonathan Frakes of Star Trek have already put novels out.
+ - I don’t call myself a writer.
+ - A storyteller is basically what actors and writers are.
+ - In television, the audience has to be comfortable with you, and Ive managed to prove that I can be in American homes to some degree, and not necessarily where everyone knows me, either.
+ - Yes, I’ve just bought a new horse, named Jedi.
+ - I started in high school and then I went onto professional training after that.
+ - I would love to do a Western again if Westerns came back into fashion.
+ - Certainly, because the computer and computer language was still not as common as it is today. That’s one of the reasons I believe Tron wasn’t as popular back then as it is today.
+ - Star Wars, the original movie, was all the various old genre of pictures: the swashbucklers, the war movies, all those things were put n there in a different look.
+ - I think every leading man wants to be a character actor, and every character actor wants to be a leading man.
+ - The making of television has changed quite a bit. Now you have to do them n cheaper budgets.
+ - I just always had a love for television and movies.
+ - I’m living what I always wanted to do.
+ - As a boy, I didn’t need a lot of playmates to have a good time.
+
+24 quotes

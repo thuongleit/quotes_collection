@@ -1,0 +1,24 @@
+ - I like Mutemath a lot.
+ - I’m not a man of many words, I’m not very expressive or emotional, but it comes out in my music.
+ - I am really laid back and kind of go-with-the-flow, but I will never do anything that I don’t believe in.
+ - Arkansas is really, really nice. Its got the nature feel.
+ - I love pop music, but I love pop music that does something a little bit different.
+ - I love my fans because they’re smart, dude.
+ - I’ve always wanted to be a dad.
+ - I’m not a terrible person, I know that, but sometimes in a relationship, I can be crappy.
+ - I tell people this: It’s hard to write about walking in the park, but it’s easy to write about a breakup.
+ - I love really good food and I don’t ever want to spend too much for it, but I like hanging out and having really good, tasty, interesting food.
+ - I want my music to feel like I’m giving something to someone else and not that I’m expecting something back.
+ - II know very, very little about the ukulele, but I actually grew up playing the viola from 4th grade through high school.
+ - It’s hard to write music for specific things, because I’m always writing just to write.
+ - For me, I feel like I relate to a lot of people.
+ - I say the stupidest stuff, all the time, off of Twitter, and so I think Twitter is good way for people to get to know the stupid side of me.
+ - I love any kind of candy.
+ - I would love to just talk to Paul McCartney. That would be incredible, but that is definitely like a dream.
+ - The biggest thing I learned was that the harder you work for the thing that you love the most, then everything that you want is going to come true.
+ - I am a huge sports fan.
+ - Journaling is something that I’ve always tried to get into.
+ - I have an amazing relationship with my wife, but sometimes there are arguments. It happens.
+ - When you write an album and you’re writing about relationships, the stuff that I’ve been through in my relationships, 99 percent of it is really good, but it’s that one percent that always inspires you to write a song.
+
+22 quotes

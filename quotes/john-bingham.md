@@ -1,0 +1,25 @@
+ - If you run, you are a runner. It doesn’t matter how fast or how far. It doesn’t matter if today is your first day or if you’ve been running for twenty years. There is no test to pass, no license to earn, no membership card to get. You just run.
+ - The miracle isn’t that I finished. The miracle is that I had the courage to start.
+ - I am a runner because I run. Not because I run fast. Not because I run far. I am a runner because I say I am. And no one can tell me I’m not.
+ - Believe that you can run farther or faster. Believe that you’re young enough, old enough, strong enough, and so on to accomplish everything you want to do. Don’t let worn-out beliefs stop you from moving beyond yourself.
+ - The joy is in the journey, not the destination. We have a better chance of seeing where we are when we stop trying to get somewhere else.
+ - We run to undo the damage we’ve done to body and spirit. We run to find some part of ourselves yet undiscovered.
+ - Running is not just exercise; it is a lifestyle.
+ - It was being a runner that mattered, not how fast or how far I could run. The joy was in the act of running and in the journey, not in the destination.
+ - Every day gives you an opportunity to improve. With every run, you can try to be better. Not just a better runner, but a better person.
+ - Frustration is the first step towards improvement. I have no incentive to improve if I’m content with what I can do and if I’m completely satisfied with my pace, distance and form as a runner. It’s only when I face frustration and use it to fuel my dedication that I feel myself moving forwards.
+ - You already have everything you need to be a long-distance athlete. It’s mindset, not miles, that separates those who do from those who dream.
+ - Don’t let worn-out beliefs stop you from moving beyond yourself.
+ - Marathons are about tenacity as much as talent.
+ - Focus on where you are instead of where you wish you were. The joy will follow.
+ - Being inspired is fine for a week, and being motivated might work for a month or so, but to make any lifestyle change last a lifetime, you need dedication.
+ - Trying harder doesn’t always equal more success; it leads to more frustration, less satisfaction, and giving up.
+ - As an athlete, when you least expect it, you may find yourself standing on the threshold of an accomplishment so monumental that it strikes fear into your soul. You must stand ready, at any moment, to face the unknown. You must be ready to walk boldly thru the wall of uncertainty.
+ - It isn’t a matter of getting the body you want, it’s a matter of doing the most you can with the body you have.
+ - Every human being born within the United States of parents not owing allegiance to any foreign sovereignty is in the language of your Constitution itself, a natural born citizen.
+ - I’m not saying running could solve all of the world’s problems, but I think it would be a good start.
+ - I didn’t train all that time just to come here and get it over with as fast as I can.
+ - I’m not sure who invented dodgeball, but I can almost guarantee you that it wasn’t the shortest kid in the class.
+ - The only magic in our lives as runners is the magic of consistency. Not every run will make you feel great.
+
+23 quotes

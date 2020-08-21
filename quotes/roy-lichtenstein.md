@@ -1,0 +1,35 @@
+ - Outside is the world; it’s there. Pop Art looks out into the world.
+ - All my art is in some way about other art, even if the other art is cartoons.
+ - People think one-point and two-point perspective is how the world actually looks, but of course, it isn’t. It’s a convention.
+ - Organized perception is what art is all about.
+ - I’m never drawing the object itself; I’m only drawing a depiction of the object – a kind of crystallized symbol of it.
+ - My use of evenly repeated dots and diagonal lines and uninflected color areas suggest that my work is right where it is, right on the canvas, definitely not a window into the world.
+ - You know, as you compose music, you’re just off in your own world. You have no idea where reality is, so to have an idea of what people think is pretty hard.
+ - I take a cliche and try to organize its forms to make it monumental. The difference is often not great, but it is crucial.
+ - Pop Art is industrial painting. I think the meaning of my work is that it is industrial, it’s what all the world will soon become. Europe will be the same way, soon, it won’t be American; it will be universal.
+ - My work isn’t about form. It’s about seeing. I’m excited about seeing things, and I’m interested in the way I think other people see things.
+ - Use the worst colour you can find in each place – it usually is the best.
+ - Pop Art looks out into the world. It doesnt look like a painting of something, it looks like the thing itself.
+ - Color is crucial in painting, but it is very hard to talk about.
+ - Picasso’s always been such a huge influence that I thought when I started the cartoon paintings that I was getting away from Picasso, and even my cartoons of Picasso were done almost to rid myself of his influence.
+ - I like to pretend that my art has nothing to do with me.
+ - Yes, you know sometimes, we started out thinking out how strange our painting was next to normal painting, which was anything expressionist. You forget that this has been thirty five years now and people don’t look at it as if it were some kind of oddity.
+ - I think that most people think painters are kind of ridiculous, you know?
+ - In America the biggest is the best.
+ - Art doesn’t transform. It just plain forms.
+ - When I met Steve Kaufman, I thought he was Gene Simmons, but what an artist talent he is. He will be an art force in the art world to deal with.
+ - Everybody knows that abstract art can be art, and most people know that they may not like it, even if they understand there’s another purpose to it.
+ - I don’t think that I’m over his influence but they probably don’t look like Picassos; Picasso himself would probably have thrown up looking at my pictures.
+ - I don’t think of form as a kind of architecture. The architecture is the result of the forming. It is the kinesthetic and visual sense of position and wholeness that puts the thing into the realm of art.
+ - I’d always wanted to know the difference between a mark that was art and one that wasn’t.
+ - Im interested in what would normally be considered the worst aspects of commercial art. I think its the tension between what seems to be so rigid and cliched and the fact that art really cant be this way.
+ - I kind of do the drawing with the painting in mind, but it’s very hard to guess at a size or a color and all the colors around it and what it will really look like.
+ - Yeah, you know, you like it to come on like gangbusters, but you get into passages that are very interesting and subtle, and sometimes your original intent changes quite a bit.
+ - But when I worked on a painting I would do it from a drawing but I would put certain things I was fairly sure I wanted in the painting, and then collage on the painting with printed dots or painted paper or something before I really committed it.
+ - I suppose I would still prefer to sit under a tree with a picnic basket rather than under a gas pump, but signs and comic strips are interesting as subject matter.
+ - But usually I begin things through a drawing, so a lot of things are worked out in the drawing. But even then, I still allow for and want to make changes.
+ - Personally, I feel that in my own work I wanted to look programmed or impersonal but I don’t really believe I am being impersonal when I do it. And I don’t think you could do this.
+ - Painting stems from a sense of organisation, the sensed positions of contrasts. Not that it is about this.
+ - There is a relationship between cartooning and people like Mir? and Picasso which may not be understood by the cartoonist, but it definitely is related even in the early Disney.
+
+33 quotes

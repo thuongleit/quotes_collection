@@ -1,0 +1,59 @@
+ - It’s hard to beat a person who never gives up.
+ - Heroes get remembered, but legends never die.
+ - Never let the fear of striking out keep you from playing the game.
+ - Every strike brings me closer to the next home run.
+ - The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don’t play together, the club won’t be worth a dime.
+ - Yesterday’s home runs don’t win today’s games.
+ - Don’t be afraid to take advice. There’s always something new to learn.
+ - Wealth is always attracted, never pursued.
+ - A part of control is learning to correct your weaknesses.
+ - I swing big, with everything I’ve got. I hit big or I miss big. I like to live as big as I can.
+ - I have only one superstition. I touch all the bases when I hit a home run.
+ - Life is a game like any other; we just don’t take it as seriously.
+ - The way a team plays as a whole determines its success.
+ - Who is richer? The man who is seen, but cannot see? Or the man who is not being seen, but can see?
+ - I’m only going one way.
+ - What the hell difference does it make?
+ - If you want to hit home runs, you’ve go to swing a lot.
+ - What do I think about when I strike out? I think about hitting home runs.
+ - Well, the good Lord and good luck must have been with me because I did exactly what I said I was going to do.
+ - Baseball was, is and always will be to me the best game in the world.
+ - Love the game of baseball and baseball will love you.
+ - What I am, what I have, what I am going to leave behind me – all this I owe to the game of baseball.
+ - I’ll promise to go easier on drinking and to get to bed earlier, but not for you, fifty thousand dollars, or two-hundred and fifty thousand dollars will I give up women. They’re too much fun.
+ - The only real game, I think, in the world is baseball.
+ - If it wasn’t for baseball, I’d be in either the penitentiary or the cemetery.
+ - I said I’m going to hit the next one right over the flagpole. God must have been with me.
+ - What the hell has Hoover got to do with it? Besides, I had a better year than he did.
+ - Cobb is a prick. But he sure can hit. God Almighty, that man can hit.
+ - Whenever I hit a home run, I make certain I touch all four bases.
+ - I learned early to drink beer, wine and whiskey. And I think I was about 5 when I first chewed tobacco.
+ - I’d give a year of my life if I could hit a homerun on opening day of this great new park.
+ - Gee, its lonesome in the outfield. It’s hard to keep awake with nothing to do.
+ - Reading isn’t good for a ballplayer. Not good for his eyes. If my eyes went bad even a little bit I couldn’t hit home runs. So I gave up reading.
+ - All I can tell them is pick a good one and sock it. I get back to the dugout and they ask me what it was I hit and I tell them I don’t know except it looked good.
+ - I hear the cheers when they roared and the jeers when they echoed.
+ - To my sick little pal. I will try to knock you another homer, maybe two today.
+ - Baseball is the greatest game in the world and deserves the best you can give it.
+ - If it wasn’t for baseball, I’d be in either the penitentiary or the cemetery. I have the same violent temper my father and older brother had. Both died of injuries from street fights in Baltimore, fights begun by flare-ups of their tempers.
+ - The termites have got me.
+ - You know this baseball game of ours comes up from the youth – that means the boys. And after you’ve been a boy, and grow up to know how to play ball, then you come to the boys you see representing themselves today in our national pastime.
+ - I won’t be happy until we have every boy in America between the ages of six and sixteen wearing a glove and swinging a bat.
+ - I know, but I had a better year than Hoover.
+ - Don’t ever forget two things I’m going to tell you. One, don’t believe everything that’s written about you. Two, don’t pick up too many checks.
+ - Hotter ’n hell, ain’t it, Prez?
+ - I didn’t mean to hit the umpire with the dirt, but I did mean to hit that bastard in the stands.
+ - I’ve never heard a crowd boo a homer, but I’ve heard plenty of boos after a strikeout.
+ - Baseball changes through the years. It gets milder.
+ - Read about your case of amnesia. Must be a new brand.
+ - They started something here, and the kids are keeping the ball rolling.
+ - As soon as I got out there I felt a strange relationship with the pitcher’s mound. It was as if I’d been born out there. Pitching just felt like the most natural thing in the world. Striking out batters was easy.
+ - Paris ain’t much of a town.
+ - That last one sounded kinda high to me.
+ - If I’d just tried for them dinky singles I could’ve batted around .600.
+ - I don’t need to know where the green is. Where is the golf course?
+ - I hit an inside-the-park home run! I beat it out! Can you believe that?
+ - How about a little noise. How do you expect a man to putt?
+ - All ballplayers should quit when it starts to feel as if all the baselines run uphill.
+
+57 quotes

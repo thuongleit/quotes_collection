@@ -1,0 +1,32 @@
+ - We need time to defuse, to contemplate. Just as in sleep our brains relax and give us dreams, so at some time in the day we need to disconnect, reconnect, and look around us.
+ - Dinner alone is one of life’s pleasures.
+ - And, for an unsurpassed double whammy, there is talking about eating while you are eating with friends.
+ - It is always wise to make too much potato salad. Even if you are cooking for two, make enough for five. Potato salad improves with age – that is, if you are lucky enough to have any left over.
+ - There is nothing like soup. It is by nature eccentric: no two are ever alike, unless of course you get your soup in a can.
+ - No one who cooks, cooks alone. Even at her most solitary, a cook in the kitchen is surrounded by generations of cooks past, the advice and menus of cooks present, the wisdom of cookbook writers.
+ - The table is a meeting place, a gathering ground, the source of sustenance and nourishment, festivity, safety, and satisfaction. A person cooking is a person giving: even the simplest food is a gift.
+ - A world without tomatoes is like a string quartet without violins.
+ - A person cooking is a person giving. Even the simplest food is a gift.
+ - To feel safe and warm on a cold wet night, all you really need is soup.
+ - The sharing of food is the basis of social life.
+ - In this world of uncertainty and woe, one thing remains unchanged: Fresh, canned, pureed, dried, salted, sliced, and served with sugar and cream, or pressed into juice, the tomato is reliable, friendly, and delicious. We would be nothing without it.
+ - We know that without food we would die. Without fellowship, life is not worth living.
+ - Friendship is not possible between two women one of whom is very well dressed.
+ - The sharing of food is the basis of social life, and to many people it is the only kind of social life worth participating in.
+ - Unlike some people, who love to go out, I love to stay home.
+ - Many people eat salad dutifully because they feel it is good for them, but more enlightened types eat it happily because it is good.
+ - No one who cooks cooks alone.
+ - Lentils are friendly – the Miss Congeniality of the bean world.
+ - When I was alone, I lived on eggplant, the stove top cook’s strongest ally. I fried it and stewed it, and ate it crisp and sludgy, hot and cold. It was cheap and filling and was delicious in all manner of strange combinations. If any was left over, I ate it cold the next day on bread.
+ - I will never eat fish eyeballs, and I do not want to taste anything commonly kept as a house pet, but otherwise I am a cinch to feed.
+ - I come from a coffee-loving family, and you can always tell when my sister and I have been around, because both of us collect all the dead coffee from everyone’s morning cup, pour it over ice, and drink it. This is a disgusting habit.
+ - That family glaze of common references, jokes, events, calamities-that sense of a family being like a kitchen midden: layer upon layer of the things daily life is made of. The edifice that lovers build is by comparison delicate and one-dimensional.
+ - I do not believe that you have to spend a lot of money to eat well: it is hard to beat a plain old baked potato.
+ - Fulfillment leaves an empty space where longing used to be.
+ - For the socially timid, the kitchen is the place to be. At least, it is a place to start.
+ - Once my jars were labeled, I felt contentedly thrilled with myself, as if I had pulled off a wonderful trick. People feel this way when they bake bread or have babies, and although they are perfectly entitled to feel that way, in fact, nature does most of the work.
+ - When I was alone, I lived on eggplant, the stove top cook’s strongest ally...
+ - The old days were slower. People buttered their bread without guilt and sat down to dinner en famille.
+ - The best way to eat crabs, as everyone knows, is off newspaper at a large table with a large number of people.
+
+30 quotes

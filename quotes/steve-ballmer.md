@@ -1,0 +1,88 @@
+ - Developers, developers, developers, developers.
+ - There’s no chance that the iPhone is going to get any significant market share. No chance.
+ - Accessible design is good design – it benefits people who don’t have disabilities as well as people who do. Accessibility is all about removing barriers and providing the benefits of technology for everyone.
+ - Computer science is the operating system for all innovation.
+ - Great companies with the way they work, first start with great leaders.
+ - Linux is a cancer that attaches itself in an intellectual property sense to everything it touches.
+ - I would love to see all open-source innovation happen on top of Windows.
+ - Accessible design is good design.
+ - I have four words for you: I love this company, yeah!
+ - I’d rather use Windows and Internet Explorer in Hell than I’d use Linux and Mozilla Firefox in Heaven!
+ - It’s how tenacious you are that will determine your success.
+ - 500 dollars? Fully subsidized? With a plan? I said that is the most expensive phone in the world. And it doesn’t appeal to business customers because it doesn’t have a keyboard. Which makes it not a very good email machine.
+ - As a global company, our future growth and success requires that we constantly look at ways to improve our ability to serve customers worldwide.
+ - Make hiring a top priority.
+ - Analytics only goes so far. Basketball, more than baseball, for example, is really a team sport.
+ - Google’s not a real company. It’s a house of cards.
+ - This is all about having great leaders who can drive agile innovation and agile decision-making.
+ - I like to tell people that all of our products and business will go through three phases. There’s vision, patience, and execution.
+ - Great companies have high cultures of accountability, it comes with this culture of criticism I was talking about before, and I think our culture is strong on that.
+ - I didn’t leave business school to go bankrupt.
+ - I want people to understand the amazing, positive way our software can make leisure time more enjoyable, and work and businesses more successful.
+ - A plane is a guilty pleasure. I have one. It’s a great luxury. I appreciate it. I couldn’t do what I do. It’s not something you can write down as anything other than, “Wow, I can’t believe I have this and I’m absolutely spoiled and entitled.” On the other hand, I have one and I use it.
+ - We’re going to think big, we’re going to bet big.
+ - The world is changing, but so is Microsoft.
+ - In many ways I think the company’s doing quite a good job. If you look at the transition to Office 365 we started when I was there, I’m excited about that and I think the company’s doing a great job on that.
+ - Everyone likes to differentiate between business and consumers but I don’t see the difference really. Most people are people. I get personal and business mail and I have one set of contacts from my life. I don’t want to manage two sets. I want one view of my world.
+ - Our industry is going through quite a wave of innovation and it’s being powered by a phenomenon which is referred to as the cloud.
+ - I think the biggest mistake most people make when they pick their first job is they don’t worry enough about whether they’ll love the work, and they worry more about whether it’s good experience.
+ - I loved every minute of my time at Microsoft, but I had always envisioned having another phase of life just because I thought that would be interesting. It had never been my plan to work until I literally didn’t want to do anything and then hang it up.
+ - It’s always great when you get a lot of people pushing themselves to do better, be better, invent better, better serve, better lead customers in new directions.
+ - The Internet Was Designed For The PC. The Internet Is Not Designed For The iPhone.
+ - I have never, honestly, thrown a chair in my life.
+ - At Microsoft, we’re investing heavily in security because we want customers to be able to trust their computing experiences, so they can realize the full benefits of the interconnected world we live in.
+ - My children – in many dimensions they’re as poorly behaved as many other children, but at least on this dimension I’ve got my kids brainwashed: You don’t use Google, and you don’t use an iPod.
+ - Throughout our history, Microsoft has won by making big, bold bets. I believe that now is not the time to scale back the scope of our ambition or the scale of our investment. While our opportunities are greater than ever, we also face new competitors, faster-moving markets and new customer demands.
+ - This is a great opportunity for Don, and I wish him success. I am incredibly proud of the work and vision culminating in Xbox One. I’m particularly excited about how Xbox pushes forward our devices and services transformation by bringing together the best of Microsoft.
+ - And then you take a look at Spaces, there is this great innovation that came out of nowhere. We have the number one blogging site in the world because of the innovation that’s there.
+ - We’re going to try to do more to communicate the value of activation to customers in addition to making the process simpler and more consistent.
+ - What we’ve gone through in the last several years has caused some people to question ‘Can we trust Microsoft?’ .
+ - The company I invested in is probably a leader in that area. They’re a company called Second Spectrum, which happens to be based in LA but was started by two USC computer-science professors. It’s filled with guys who love sports, who played sports, but really look like programmers.
+ - We don’t have a monopoly. We have market share. There’s a difference...
+ - Let’s face it, the Internet was designed for the PC. The Internet is not designed for the iPhone. That’s why they’ve got 75,000 applications – they’re all trying to make the Internet look decent on the iPhone.
+ - Maybe I’m an emblem of an old era, and I have to move on.
+ - I’d like to own Microsoft shares until I either give something to charity or I die.
+ - All the consumer market mojo is with Apple and to a lesser extent BlackBerry. And yet, the real market momentum with operators and the real market momentum with device manufacturers seems to primarily be with Windows Mobile and Android.
+ - There’s a huge crowd out there that basically will go nuts recommending to every coach on the planet, “Hey, coach, I’ve been playing with the analytics. I think you should do X, Y, and Z.”
+ - It’s hard to invent a new thing, and it’s just as hard to invent another new thing.
+ - All companies of any size have to continue to push to make sure you get the right leaders, the right team, the right people to be fast acting, and fast moving in the marketplace. We’ve got great leaders, and we continue to attract and promote great new leaders.
+ - I’m going to f – ing kill Google.
+ - Getting the big things right that make all the money, that’s long cycle, really executing in a way that allows you to do it, that’s short cycle.
+ - I’m going to f – ing bury that guy, I have done it before, and I will do it again. I’m going to f – ing kill Google.
+ - You can have an Apple in the phone business, or a RIM, and they can do very well, but when 1.3 billion phones a year are all smart, the software that’s gonna be most popular in those phones is gonna be software that’s sold by somebody who doesn’t make their own phones.
+ - Only our company and a handful of others are poised to write the future.
+ - Since I’m not a seller of the stock, I don’t really care what it is today.
+ - The most common format of music on an iPod is ‘stolen.’
+ - We’ve grown from 18% of the profits of the top 25 companies in our industry to 23% of the profits of the top 25 companies in our industry over the last five years. Profits are up over 70%, where the industry profit is up about 35%. Pretty good.
+ - I come back to the same thing: We’ve got the greatest pipeline in the company’s history in the next 12 months, and we’ve had the most amazing financial results possible over the last five years, and we’re predicting being back at double-digit revenue growth in fiscal year ’06.
+ - I think PCs are going to continue to shift in form factor. The real question is: What’s a PC?
+ - I think good ideas are usually better done quickly than slowly.
+ - I don’t know what a monopoly is until somebody tells me.
+ - There is such an overvaluation of technology stocks that it is absurd. I would include our stock in that category. It is bad for the long-term worth of the economy.
+ - I don’t really know that anybody’s proven that a random collection of people doing their own thing actually creates value.
+ - The way I do things I usually always prefer to have a very clear strategy and be very focused. At the same time to be very rock solid, and crisp in execution.
+ - I’ve got my kids brainwashed: You don’t use Google, and you don’t use an iPod.
+ - Ultimately progress is measured sort of through the eyes of users.
+ - I’m very, very bullish about our prospects, and as I tell our board, as I tell our employees, this is the time to invest. There’s so much opportunity. Let’s just invest in that opportunity, and really get after it.
+ - It actually turns out to be much harder to really understand government across state local and federal.
+ - Most people still steal music.
+ - If you look at companies with upside potential, Twitter’s right there. They’ve established a brand in a world where it’s extremely difficult to establish a brand. It’s a global brand, people recognize it, people want to let you know what their Twitter handles are, etc.
+ - The stock market has always had its own meter. Sometimes it’s ahead of itself, sometimes it’s behind itself. A broken watch is right twice a day.
+ - So, I think the output of our innovation is great. We have a culture of self-improvement. I know we can continue to improve. There is no issue. But at the same time, our absolute level of output is fantastic.
+ - We can believe that we know where the world should go. But unless we’re in touch with our customers, our model of the world can diverge from reality. There’s no substitute for innovation, of course, but innovation is no substitute for being in touch, either.
+ - Our goal in making these changes is to enable Microsoft to achieve greater agility in managing the incredible growth ahead and executing our software-based services strategy.
+ - I’m not sure blogs are necessarily the best place to get a pulse on anything. People want to blog for a variety of reasons, and that may or may not be representative.
+ - Not only because the product wasn’t a great product, but remember it took us five or six years to ship it. Then we had to sort of fix it. That was what I might call Windows 7.
+ - If the CEO doesn’t see the playing field, nobody else can. The team may need to see it too, but the CEO really needs to be able to see the entire competitive space.
+ - Our people, our shareholders, me, Bill Gates, we expect to change the world in every way, to succeed wildly at everything we touch, to have the broadest impact of any company in the world.
+ - As a shareholder I have expressed my frustration with not getting more information about revenue and margins from the cloud.
+ - There’s a lot of Google fascination out there and we share it, and we’re going to compete, we’re going to compete very, very hard.
+ - Ford shared this vision. We are inviting more players to join in.
+ - I think it would be absolutely reckless and irresponsible for anyone to try and break up Microsoft.
+ - Any idea that turns out to be truly great can be harvested for tens of years. On the other hand, if you want to continue to be great, you’ve got to bet on new things, big, bold bets.
+ - No. 1 thing is that life is just not as interrupt-driven as when you’re running a company.
+ - Eventually the Internet will be accessed by PC, television, and wireless devices.
+ - I have lots of sources of information about what’s going on at the company. I think I have a pretty good pulse on where we are and what people are thinking.
+ - I can tell you first-hand from my experiences with Sacramento, the league does try to honor the fan bases it has, and encourage teams to stay in their home markets.
+
+86 quotes

@@ -1,0 +1,64 @@
+ - If I ever have sex with someone I might be able to develop a sense of humor.
+ - I think that dwelling on other people’s perception of you is the road to complete madness, unfortunately. I try and resist that.
+ - No one is more enslaved than a slave who doesn’t think they’re enslaved.
+ - I’m glad I’ve never been so successful that I couldn’t stop doing one thing. I’ve kind of been able to just kick it along and switch around.
+ - Everybody likes the underdog, because everybody feels like the underdog. No matter how successful you are, you always think, No one’s being nice enough to me!
+ - I always felt that anorexia was the form of breakdown most readily available to adolescent girls.
+ - If I get a script that’s set in the jungle it goes to the bottom of the pile because I don’t think the playgrounds are going to be very good there! I’m really aware of how lucky I am but I have the kind of job where I can bring my child to work.
+ - I think I like playing the bad girl. I like complicated. I like flawed, messed up complicated. It’s more interesting.
+ - I try and take lots of vitamins and I don’t drink. I do smoke, though, I’d be insufferable if I didn’t smoke, you’d have to push me off a balcony I’d be so boring.
+ - I am a Death Dealer, sworn to destroy those known as the Lycans. Our war has waged for centuries, unseen by human eyes.
+ - Sleep is like the holy grail. My trainer says if you’re tired, your workout will suffer. Sleep is magic stuff.
+ - My best feature is unfortunately a private matter, although I’m told it is spectacular. But you can’t really walk it down the red carpet. What can I say?
+ - I have to say, sushi freaks me out more than almost anything.
+ - I have a husband who literally worships me. And cleans the house. And blow-dries my daughter’s hair.
+ - I grew up as an only child and my mother was also an only child, so we were both very passionate about reading. I think I passed that on to my daughter, who went plowing through ‘Harry Potter’ and every other book possible!
+ - If someone had told me years ago that sharing a sense of humour was so vital to partnerships, I could have avoided a lot of sex!
+ - It’s a very difficult thing losing a parent, but I think there’s an added complication for me, because he was so well-loved and he had this very open charm that made people feel they had a personal relationship with him.
+ - I don’t tend to do much with my lips. My lips are naturally very pink, so if I add any more colour, it looks like I’ve been smacked in the mouth!
+ - Someone once said that you can make the choice between getting old and getting creepy, and I think getting old is the way to go.
+ - Apparently, I’m very good at firing a gun without blinking, which is unusual. That’s why so many action characters have to wear sunglasses during shoot-out scenes. That’s my party trick.
+ - I would say probably my least favorite costume ever was in ‘Van Helsing.’ That was a huge pain because it had thigh-high boots with 30 buckles on them that had to be done up individually.
+ - The secret to everything for me is doing yoga every day. It does do nice things for your body, but it also kind of calms you down and chills you out. Other than that, I don’t really drink alcohol and I always take my makeup off at night!
+ - I love my fan base because they never high-five me; they always get really shifty and hide. Adam Sandler’s fan base are like, ‘Hey!’ and high-five him and want to hang out, but mine go behind pillars and get really freaked out.
+ - I didn’t go looking to marry an American, it just kinda happened like that.
+ - Were I not married to the director, I’m not sure I’d know anything about the ‘Underworld’ sequel.
+ - Obviously I’ve had great experiences with people I’ve worked with on films – I’ve married half of them! I should come with a warning sign that says, ‘Don’t worry, I’m not going to try to marry you. I’m done.’
+ - I don’t really watch all that much television, I have to say, because I’m so intimidated by how many channels there are. I really cannot find my way back to anything. But I’m compulsively addicted to ‘24.’ I love that show.
+ - People keep asking me about it but I don’t want to be famous for being a former anorexic.
+ - As an actor, your motives and your own crazy psyche is really all you’re responsible for in the movie.
+ - I dropped out of Oxford, and now I only speak Russian with the woman who gives me a bikini-wax. See what Hollywood does to you?
+ - I would quite like to play a big concert as Freddie Mercury. I cant sing that great and I havent yet found a use for the over large size of my teeth. I quite fancy a mustache like that and he was such a great showman.
+ - I am used to wearing corsets. Even when I was first starting out it was either Shakespeare or Chekov. Everything that I was doing involved corsets. I guess I am just not destined to breathe that deeply.
+ - As a mother, you feel much more vulnerable. And when you’re vulnerable, you’re a much better actress.
+ - I think actors always like to think they don’t bring the character home, and then their family all laugh and tell you otherwise.
+ - It’s wonderful to have the most important thing in the world there first thing in the morning. And especially in this business, where the opportunity to think everything is about you is there every day, now I really know that it isn’t all about me.
+ - It’s the only time my education has come in remotely handy. -on using her Russian literature studies for copying her “Van Helsing” script into Russian to acquire a Slavic accent.
+ - Always argue over text so other people aren’t embarrassed!
+ - If I had a child actor, I would wish for it to be in an Adam Sandler movie, because he just comes in and makes them so comfortable and is so brilliant with them and they all go home and they that they’ve got this special relationship.
+ - I didn’t feel very attractive as a child and actually I wasn’t.
+ - But it still feels like it’s a reach for me. I am more comfortable doing a drama. I feel like I know what I’m doing a bit better there. But it’s good to be scared.
+ - I’m attracted to playing things that I find difficult, just because it’s a journey that is much more interesting.
+ - I feel like I’m really lucky.
+ - I was a very difficult child, and the time I spent reading was about the only peace I gave my mother.
+ - Apparently, I get facials and manicures all the time. I read this and think, ‘Oh, I wish I did that!’ I don’t think I’ve had a facial since I was 19.
+ - Theres such a pressure on women that we put on ourselves and everyone else puts on us to look unrealistic and everything, but you just cant compare yourself to people in magazines.
+ - I think that at some point everybody turns into their mother or their father, it’s just not normally from morning to afternoon.
+ - I don’t have a big career plan. I just like to see how things come out, and I just try to keep going in different directions.
+ - It is very different. I mean, it was immediately different because it’s a human being and it’s not a vampire and it’s not fighting monsters. This isn’t the kind of movie that’s got the comic book style of fighting to it. It was a bit more gritty.
+ - No one really knows who I am or where I came from in America, and there’s something quite nice about that.
+ - I’m a fan of action movies.
+ - I feel like my brain is more geared towards a novel than it is to a movie.
+ - Given that I can’t sing like Freddie Mercury, obviously I’m not going to pursue it as a career. What would be the point?
+ - I feel like I’ve done a bunch of period stuff and then a bunch of romantic comedies.
+ - Books have always helped me make sense of things. With any life experience, you can find someone who has documented it in a poetic way.
+ - I feel like I flunked at adolescence really badly. I found it really difficult.
+ - I’m surprised there aren’t more celebrities in burkhas.
+ - With every project you do, you bring out a part of yourself, and it seems to be quite a good way of expanding a person.
+ - I think what’s dangerous about being an actor who does action movies is you think, ‘Well, I can totally handle myself now.’ But if my opponent didn’t know the other half of the routine, I don’t know how well I’d do.
+ - Yes, because it’s Len’s obsession with practical. I’ve never really had that experience that I hear people having of being on an empty soundstage painted green talking to a tennis ball on a stick.
+ - Job-wise, I did have a moment of panic that I should have been a doctor a few years ago, but I hate when people vomit.
+ - I must say, I am thrilled with my fan base. For some reason some of them are quite young, so they are quite frightened.
+ - I have found being a mother has made me emotionally raw in many situations. You heart is beating outside your body when you have a baby.
+
+62 quotes

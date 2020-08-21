@@ -1,0 +1,35 @@
+ - Leave it better than you found it.
+ - Try to leave this world a little better than you found it and, when your turn comes to die, you can die happy in feeling that at any rate you have not wasted your time but have done your best.
+ - A week of camp life is worth six months of theoretical teaching in the meeting room.
+ - Look wide, and even when you think you are looking wide – look wider still.
+ - The most worth-while thing is to try to put happiness into the lives of others.
+ - No one can pass through life, any more than he can pass through a bit of country, without leaving tracks behind, and those tracks may often be helpful to those coming after him in finding their way.
+ - Girls should be brought up to be comrades and helpers, not to be dolls. They should take a real and not a visionary share in the welfare of the nation.
+ - Look wide, beyond your immediate surroundings and limits, and you see things in their right proportion. Look above the level of things around you and see a higher aim and possibility to your work.
+ - The secret of sound education is to get each pupil to learn for himself, instead of instructing him by driving knowledge into him on a stereotyped system.
+ - Success in training the boy depends largely on the Scoutmaster’s own personal example.
+ - Happiness is not mere pleasure not the outcome of wealth. It is the result of active work rather than passive enjoyment of pleasure.
+ - Sunday is a day of rest. Loafing is not rest.
+ - If a man cannot make his point to keen boys in ten minutes, he ought to be shot!
+ - O God, help me to win, but in thy wisdom if thou willest me not to win, then O God, make me a good loser.
+ - Yet one more item is needed to complete success, and that is the rendering of service to others in the community. Without this the mere satisfaction of selfish desire does not reach the top notch.
+ - Make good scouts of yourselves, become good rifle shots so that if it becomes necessary that you defend your families and your country that you can do it.
+ - In a difficult situation one never-failing guide is to ask yourself: “What would Christ have done?” Then do it-as nearly as you can.
+ - The patrol system leads each boy to see that he has some individual responsibility for the good of his patrol.
+ - It is the Patrol System that makes the Troop, and all Scouting for that matter, a real co-operative matter.
+ - As Sir Henry Newbolt sums it up: “The real test of success is whether a life has been a happy one and a happy giving one.”
+ - The secret of getting successful work out of your trained men lies in one nutshell – in the clearness of the instructions they receive.
+ - I have known lots of millionaires who were not happy men; they had not got all they wanted and therefore had failed to find success in life. A Singalese proverb says: “He who is happy is rich, but it does not follow that he who is rich is happy.” The really rich man is the man who has fewest wants.
+ - It is risky to order a boy not to do something; it immediately opens to him the adventure of doing it.
+ - Happiness is open to all, since, when you boil it down, it merely consists of contentment with what you have got and doing what you can for other people.
+ - Loyalty is a feature in a boy’s character that inspires boundless hope.
+ - Almost any biography will have its useful suggestions for making life a success, but none better or more unfailing than the biography of Christ.
+ - Your natural inclination is to preach and to warn other travellers of snags in the path, but isn’t it better to signal to them some of the joys by the way which they might otherwise miss?
+ - The Scoutmaster teaches boys to play the game by doing so himself.
+ - A thing that many young fellows don’t seem to realism at first is that success depends on oneself and not on a kindly fate, nor on the interest of powerful friends.
+ - Young men, of course, don’t want to be guided by old back numbers, but at the same time I know that in my own case I gained a lot by studying the characters of the chiefs under whom I served from time to time. Lord Wolseley, for instance, said: “Use your common sense rather than book instructions.”
+ - Football is a grand game for developing a lad physically and also morally, for he learns to play with good temper and unselfishness, to play in his place, and to play the game, and these are the best of training for any game of life.
+ - After forming a cadet corps of boys for assisting as noncombatants during a military campaign in 1900: We then made the discovery that boys, when trusted and relied on, were just as capable and reliable as men.
+ - To get a hold on boys you must be their friend.
+
+33 quotes

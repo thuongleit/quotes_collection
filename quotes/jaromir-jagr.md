@@ -1,0 +1,23 @@
+ - I’m trying not to be a kid all the time, but it’s hard.
+ - You can’t give up in any game, even if you are losing.
+ - I don’t try to be anything. I just want to play my game.
+ - I yell at the players if I don’t like the way they are playing. But when they’re playing well, I hug them.
+ - People judge you by the way you play in the playoffs.
+ - Every time I see you naked, I feel sorry for your wife.
+ - Most people have friends, but no money. I have the opposite. I don’t have a chance to talk to my real friends, the ones I’ve had since I was 5 years old. Sometimes I wish I could bring Czechoslovakia to America. Then I would be the happiest guy in the world.
+ - You appreciate things after you lose them.
+ - For me, it is the worst kind of sacrilege if you are given some of special talent and you don’t take advantage of this gift.
+ - If I was on a third or fourth line I would probably be in the NHL, because you don’t have to produce every night.
+ - When I’m not happy, I can’t play. That’s just the way I am.
+ - Crosby is a great player, but I’d have to say Ovechkin, who is also a great player but doesn’t have the same kind of support, and who does something great on almost every shift.
+ - It’s tough in the NHL; you have to produce on a high level. And everybody expects you to do it because you make a lot of money. And I never minded it. I always want to be that guy.
+ - All that matters is that you find a way to put the puck in the net. It doesn’t matter how. I learned that from Mario.
+ - Old people, don’t watch it because you might die just watching it.
+ - I know how well I can play. I don’t mention myself with the other players. I mention myself with the best.
+ - My goal was to play in the NHL, because that is the best hockey in the world.
+ - Russia has got to be the team to beat, in my opinion. When they are playing together as a team, they are tough to beat.
+ - You have to be a good team, but you have to be lucky and stay away from injuries.
+ - There’s probably a lot of people wondering if I can play.
+ - I’m not 21 and trying to prove something with my words.
+
+21 quotes

@@ -1,0 +1,35 @@
+ - Serendipity. Look for something, find something else, and realize that what you’ve found is more suited to your needs than what you thought you were looking for.
+ - One aspect of serendipity to bear in mind is that you have to be looking for something in order to find something else.
+ - Our happiest moments as tourists always seem to come when we stumble upon one thing while in pursuit of something else.
+ - Dangerous thing, giving humanity the knowledge of good and evil. And the capacity to make the wrong choice more often than not.
+ - My mother’s father was from Sligo, and he used to say it was the hardest thing in the world to find a man alive in Dublin who wasn’t in the GPO during the Easter Rising. Twenty brave men marched into that post office, he said, and thirty thousand marched out.
+ - Every year there’s a few more things I’m not sure of. I’ve decided that a wide-ranging uncertainty is the mark of the true maturity of man.
+ - Ideas come to people who are receptive to them.
+ - If you build a better mousetrap, Nature will build a better mouse.
+ - The less attention I pay to what people want and the more attention I pay to just writing the book I want to write, the better I do.
+ - People don’t get to change things. Things change people once in a while, but people don’t change things.
+ - It’s the easiest thing in the world to know God’s will. You just wait and see what happens, and that’s it.
+ - I haven’t got anything against cats. I haven’t got anything against elk either, but that doesn’t mean I’m going to keep one in the store so I’ll have a place to hang my hat.
+ - As my late mother famously observed, the one thing to be said for growing old is that every year there are a few more things I don’t have to give a rat’s ass about.
+ - The short story, I should point out, is perforce a labor of love in today’s literary world; there’s precious little economic incentive to write one...
+ - And, as long as you can make yourself go on choosing the pain over the relief, you can keep going.
+ - I don’t know about the rest of the country but in New York more people have learned anonymity from rent control than ever discovered it in a twelve-step program.
+ - I think persistence in the face of adversity is an essential part of a writer’s job description. If you don’t care enough about it to avoid being easily disheartened that way, you really should be doing something else.
+ - Why on earth should I care whether people read me with their eyes or their ears?
+ - Something I learned long ago. It is not necessary to know what a person is afraid of. It is enough to know the person is afraid.
+ - I wouldn’t presume to define noir – if we could define it, we wouldn’t need to use a French word for it – but it seems to me it’s more a way of looking at the world than what one sees.
+ - To say I drank my way into marriage isn’t much of an exaggeration, and it’s none at all to say I drank my way out of it.
+ - When you get older, keeping the private stuff private seems less important.
+ - Asking me why I did or didn’t do anything is generally pointless. How do I know? And asking me what I’ll do in the future is even less rewarding.
+ - If you cannot stand a spoon upright in the cup, then the coffee is too weak.
+ - I don’t plan an awful lot in life just as I don’t plan an awful lot in my fiction.
+ - I never know what I’m going to write next, and when I think I do I usually turn out to be mistaken.
+ - If you want to write fiction, the best thing you can do is take two aspirins, lie down in a dark room, and wait for the feeling to pass.
+ - As a friend of mine, herself a writer, says, ‘People who spend the most meaningful hours of their lives in the exclusive company of imaginary people are apt to be a little strange’
+ - Everybody’s weird, fundamentally everybody is a snap. Sometimes it’s a sexual thing and sometimes it’s a different kind of weirdness, but one way or another everybody’s nuts.
+ - Donald Westlake’s Parker novels are among the small number of books I read over and over. Forget all that crap you’ve been telling yourself about War and Peace and Proust-these are the books you’ll want on that desert island.
+ - I’ve tried writing and the sentences come out fine, but I write a few pages and I don’t want to go on.
+ - Back then, before it became clear that democracy was best served by a drunken electorate, the bars in New York City were required to close on Election Day.
+ - If fate sends you a lemon, use it to make lemonade.
+
+33 quotes

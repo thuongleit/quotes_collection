@@ -1,0 +1,21 @@
+ - A gentleman is simply a patient wolf.
+ - A successful man is one who makes more money than his wife can spend. A successful woman is one who can find such a man.
+ - It’s said in Hollywood that you should always forgive your enemies – because you never know when you’ll have to work with them.
+ - All men are alike. The approach is different; the result is always the same.
+ - I’m so gullible. I’m so damn gullible. And I am so sick of me being gullible.
+ - I find men terribly exciting, and any girl who says she doesn’t is an anemic old maid, a streetwalker, or a saint.
+ - How does it happen that something that makes so much sense in the moonlight doesn’t make any sense at all in the sunlight?
+ - Trash is something you get rid of – or disease. I’m not something you get rid of.
+ - If you stay away from parties, you’re called a snob. If you go, you’re an exhibitionist. If you don’t talk, you’re dumb. If you do talk, you’re quarrelsome. Pardon me while I change my nail polish.
+ - I expected to have one husband and seven babies. Instead I had seven husbands and one living baby.
+ - Where wolves live, the forest is healthy.
+ - I planned on having one husband and seven children, but it turned out the other way around.
+ - Well, I’m going up and up and up – and nobody’s going to pull me down!
+ - I’ve always loved a challenge.
+ - The more famous an actress becomes, the less she’s allowed to eat. Unless she wants to play people’s mothers. And in bad clothes, yet.
+ - I would rather lose a good earring than be caught without make-up.
+ - My life has been a series of emergencies.
+ - Humor has been the balm of my life, but it’s been reserved for those close to me, not part of the public Lana.
+ - Fame is one thing, notoriety is another.
+
+19 quotes

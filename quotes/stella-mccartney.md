@@ -1,0 +1,61 @@
+ - Everyone can do simple things to make a difference, and every little bit really does count.
+ - A little black dress is something to rely on. To fill you with confidence and ease. To have an attitude that is pure and effortless, yet sexy and classy.
+ - I personally love sportswear, and love using it in high fashion.
+ - When you think of fashion photography, it’s a dream. It’s like we all want to be those women. We want to wear those dresses.
+ - Laugh my friend, for laughter ignites a fire within the pit of your belly and awakens your being.
+ - The consumption of animals – whether you’re wearing them or eating them – is extraordinarily damaging to the planet. There are over a billion animals killed a year for food, half of which don’t even get eaten. And there’s over 50 million animals killed just for fashion.
+ - There’s nothing fashionable about a dead animal that has been cruelly killed just because some people think it looks cool to wear.
+ - I confess to being a frustrated musician.
+ - Being effortless is the coolest thing in the world.
+ - The really great thing about my shoe store is that there’s not one dead animal in it.
+ - Sometimes I wish I were less sensible.
+ - You feel like everyone hates you if you’ve got a good life, now I feel maybe it’s allowed because I’ve had my share of sadness.
+ - It’s incredibly important that if you have the dream of having your own house, you don’t pretend to be something you’re not. Ultimately, it’s unsustainable and people will see through. You have to work; you can’t expect your dreams to be handed to you on a plate.
+ - The beliefs I was raised with – to respect animals and to be aware of nature, to understand that we share this planet with other creatures – have had a huge impact on me.
+ - For me, women’s ski wear has always been black and, again, not as feminine or sexy as I think it could look while still having the technology there.
+ - Depending on the season, between 20 and 30 percent of my collections contain some sort of eco or sustainable element, whether it’s a beautiful organic fabric or a natural dye. And obviously I don’t use animal skins or fur of any kind.
+ - People think I’m strong, but actually I wanted to crawl away. I thought, I’m going to live in the country with my horse and I’ll get a nine-to-five; I don’t need this.
+ - I feel like a different person since my mum passed away, like I’m driving a ship with my husband alongside me and we’re leading these four children into unknown waters.
+ - I loved all those Doris Day visuals of her being a tomboy and then changing into this gorgeous girl in a ballgown.
+ - I’m not offended or embarrassed by the fact that I design clothes for women to wear. So when I meet women who love my clothes, it’s a really good, straightforward thing. It makes me feel like I’m doing my job right.
+ - For me, singing is the most natural thing in the world. I’ve grown up with it and I know I’ve got that gift.
+ - Success financially is a measure of creative success, it is the same in all arts.
+ - I am a fashion designer. I’m not an environmentalist. When I get up in the morning, number one I’m a mother and a wife, and number two I design clothes. So the main thing I need to do is create, hopefully, exquisitely beautiful, desirable objects for my customer.
+ - I used to get embarrassed about the fact I liked fashion. I still get a bit cringy.
+ - I think deep down I’m spiritual, but there’s nothing I practice.
+ - As a designer, I like to work with fabrics that don’t bleed; that’s why I avoid all animal skins.
+ - It’s immoral that people make money out of writing crap, but I try not to obsess about it. I don’t want to spend my life being angry.
+ - I think it’s very wrong to have the mass murder, every single day, of millions of animals.
+ - I love that you can have the language between the two worlds of technology and fashion, because I don’t think that many designers get to do that.
+ - We always had our own vegetables growing up and now I’m doing it with my kids at our house in the country.
+ - We try to make earth-friendly decisions whenever we can, as it’s part of our brand DNA.
+ - I was brought up to understand that we are all here on planet earth together.
+ - If people stop liking my clothes, I’ll make a record.
+ - I think the moment that I’m very proud of is building a business without using animals. And, hopefully, changing people’s perception of how you can do luxury fashion.
+ - At the end of the day I separate things; my life is my life and my work is my work.
+ - I literally have meetings at eight o’clock in the morning, and I finish at nine o’clock at night. It sounds pathetic, but I don’t even have time to go shopping.
+ - Whether you eat meat of not, you can be part of this decision to limit the meat industry destroying our planet’s resources.
+ - My mum taught me to have a soul.
+ - You want to be confident when you work out because it takes a lot to make you work out. So many women really enjoy it, but it’s a hard thing and you have to make yourself do it most of the time. I think you want to feel that you look good to make you want to work out a little bit more.
+ - It’s not realistic to live in the country at this stage. I’ve got a business in London. I beat myself up about it all the time.
+ - I don’t use specific brands really. It’s just that for my skin, I need as high an SPF factor as I can get my hands on. That’s the only rule.
+ - I get a real kick out of it, seeing people wear my designs.
+ - I think it took me a little while to be true to myself as a designer, and in some ways I’m still trying to do that. I have to choose things that come naturally to me. Whenever I challenge something too much or try too hard, it never quite works out.
+ - The main thing I need to do is create, hopefully, exquisitely beautiful, desirable objects for my customer.
+ - I didn’t want to be thirtysomething and not know what I was going to do. I was quite afraid of that, there were quite a lot of aimless kids around, in that ‘other’ side of my life, who didn’t really know what to do because they always had a bank balance to fall back on and they were quite lost.
+ - It’s not about what it looks like in the studio or on the runway. It’s what it looks like on a real person that matters.
+ - I can honestly say this industry hasn’t made me neurotic about my looks, except maybe my weight. I hope my clothes kind of reflect that. They’re meant to make you feel good.
+ - Someone from Manolo Blahnik went into my shop and said: ‘These shoes are not vegetarian.’ That’s the highest compliment, because you just can’t tell that they are, and they are. My mum taught me to have a soul.
+ - I never wanted to make it too easy for people to sum me up.
+ - My biggest surprises in my everyday job have to do with the challenges of trying to be slightly more responsible as a brand.
+ - At times I make music, but in private.
+ - I’d rather people turn up than not. And of course I’d rather have people be enthusiastic.
+ - I run a lot. If I don’t have time to go to the gym or don’t have time to work out properly, I will go for a quick run. I think running is a great way to stay fit, and I really concentrate on fitting into a realistic urban lifestyle.
+ - I ride my bike, I work out, I do a bit of, er, dancey things.
+ - More than anything I want to be fit so I don’t get out of breath when I play football with the kids.
+ - I don’t plan massively in advance.
+ - Most male painters have historically admired the female form. It’s got a lot going for it.
+ - People work better when they are afforded to be themselves.
+ - Now, get out there and kick ass!
+
+59 quotes

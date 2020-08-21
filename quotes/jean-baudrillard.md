@@ -1,0 +1,109 @@
+ - Philosophy leads to death, sociology leads to suicide.
+ - Feelings are never true. They play with their mirrors.
+ - We live in a world where there is more and more information, and less and less meaning.
+ - What I am, I don’t know. I am the simulacrum of myself.
+ - Disneyland is presented as imaginary in order to make us believe that the rest is real.
+ - The simulacrum is never that which conceals the truth – it is the truth which conceals that there is none. The simulacrum is true.
+ - Art does not die because there is no more art. It dies because there is too much.
+ - Photography is our exorcism. Primitive society had its masks, bourgeois society its mirrors. We have our images.
+ - When the real is no longer what it used to be, nostalgia assumes its full meaning.
+ - The secret of theory is that truth does not exist.
+ - The new shopping malls make possible the synthesis of all consumer activities, not least of which are shopping, flirting with objects, idle wandering, and all the permutations of these.
+ - You think you photograph a particular scene for the pleasure it gives. In fact it’s the scene that wants to be photographed. You’re merely an extra in the production.
+ - Television knows no night. It is perpetual day. TV embodies our fear of the dark, of night, of the other side of things.
+ - Nothing is wholly obvious without becoming enigmatic. Reality itself is too obvious to be true .
+ - A negative judgment gives you more satisfaction than praise, provided it smacks of jealousy.
+ - It is the real, and not the map, whose vestiges subsist here and there, in the deserts which are no longer those of the Empire but our own: The desert of the real itself.
+ - The only thing worse than being bored is being boring.
+ - Challenge, and not desire, lies at the heart of seduction.
+ - Today’s terrorism is not the product of a traditional history of anarchism, nihilism, or fanaticism. It is instead the contemporary partner of globalization.
+ - Power is only too happy to make football bear a diabolical responsibility for stupifying the masses.
+ - It is perhaps not a surprise that photography developed as a technological medium in the industrial age, when reality started to disappear. It is even perhaps the disappearance of reality that triggered this technical form. Reality found a way to mutate into an image.
+ - The desert is a natural extension of the inner silence of the body.
+ - Terrorism, like viruses, is everywhere. There is a global perfusion of terrorism, which accompanies any system of domination as though it were its shadow, ready to activate itself anywhere, like a double agent.
+ - Art is no longer anything more than a kind of meta-language for banality.
+ - Postmodernity is the simultaneity of the destruction of earlier values and their reconstruction. It is renovation within ruination.
+ - For me, the photography, in its purest form, is a variant of the fable. Another way of saving the appearances – a way of signifying, through this fabulous capture, that this supposed real world is always about to lose its meaning and its reality...
+ - We are becoming like cats, slyly parasitic, enjoying an indifferent domesticity. Nice and snug in the social, our historic passions have withdrawn into the glow of an artificial coziness, and our half-closed eyes now seek little other than the peaceful parade of television pictures.
+ - Forgetting the extermination is part of the extermination itself.
+ - Everywhere one seeks to produce meaning, to make the world signify, to render it visible. We are not, however, in danger of lacking meaning; quite the contrary, we are gorged with meaning and it is killing us.
+ - The desert is a natural extension of the inner silence of the body. If humanity’s language, technology, and buildings are an extension of its constructive faculties, the desert alone is an extension of its capacity for absence, the ideal schema of humanity’s disappearance.
+ - There is nothing more mysterious than a TV set left on in an empty room. It is even stranger than a man talking to himself or a woman standing dreaming at her stove. It is as if another planet is communicating with you.
+ - All societies end up wearing masks.
+ - The need to speak, even if one has nothing to say, becomes more pressing when one has nothing to say, just as the will to live becomes more urgent when life has lost it’s meaning.
+ - What you have to do is enter the fiction of America, enter America as fiction. It is, indeed, on this fictive basis that it dominates the world.
+ - Prophesying catastrophe is incredibly banal. The more original move is to assume that it has already happened.
+ - Man has lost the basic skill of the ape, the ability to scratch its back. Which gave it extraordinary independence, and the liberty to associate for reasons other than the need for mutual back-scratching.
+ - The cities of the world are concentric, isomorphic, synchronic. Only one exists and you are always in the same one. It’s the effect of their permanent revolution, their intense circulation, their instantaneous magnetism.
+ - Power floats like money, like language, like theory.
+ - In our culture, futility plays the role of transgression and fashion is condemned for having within it the force of the pure sign which signifies nothing.
+ - Every photographed object is merely the trace left behind by the disappearance of all the rest. It is an almost perfect crime, an almost total resolution of the world, which merely leave the illusion of a particular object shining forth, the image of which then becomes an impenetrable enigma.
+ - Information can tell us everything. It has all the answers. But they are answers to questions we have not asked, and which doubtless don’t even arise.
+ - So-called ‘realist’ photography does not capture the ‘what is.’ Instead, it is preoccupied with what should not be, like the reality of suffering for example.
+ - A society which allows an abominable event to burgeon from its dung heap and grow on its surface is like a man who lets a fly crawl unheeded across his face or saliva dribble from his mouth – either epileptic or dead.
+ - The very definition of the real becomes: that of which it is possible to give an equivalent reproduction. The real is not only what can be reproduced, but that which is always already reproduced. The hyper real.
+ - One can speak of an alterity of desire – a paradigm defined outside the tired, tacitly accepted regime, but one comes up short when attempting to posit a framework of desire beyond available, known desires.
+ - History that repeats itself turns to farce. Farce that repeats itself turns to history.
+ - The day the world ends, no one will be there, just as no one was there when it began. This is a scandal. Such a scandal for the human race that it is indeed capable collectively, out of spite, of hastening the end of the world by all means just so it can enjoy the show.
+ - Simulation is the situation created by any system of signs when it becomes sophisticated enough, autonomous enough, to abolish its own referent and to replace it with itself.
+ - Illusion is no longer possible, because the real is no longer possible.
+ - At the heart of pornography is sexuality haunted by its own disappearance.
+ - America is the original version of modernity. We are the dubbed or subtitled version. America ducks the question of origins; it cultivates no origin or mythical authenticity; it has no past and no founding truth. Having known no primitive accumulation of time, it lives in a perpetual present.
+ - Sadder than destitution, sadder than a beggar is the man who eats alone in public. Nothing more contradicts the laws of man or beast, for animals always do each other the honor of sharing or disputing each other’s food.
+ - Democracy is the menopause of Western society, the Grand Climacteric of the body social. Fascism is its middle-aged lust.
+ - The opposite of knowledge is not ignorance, but deceit and fraud.
+ - Sadder than the beggar is the man who eats alone in public.
+ - It is the corpse of the bourgeoisie that separates us. With us, it is that class that is the carrier of the chromosome of banality.
+ - If everything is perfect, language is useless. This is true for animals. If animals don’t speak, it’s because everything’s perfect for them. If one day they start to speak, it will be because the world has lost a certain sort of perfection.
+ - One of the pleasures of travel is to dive into places where others are compelled to live and come out unscathed, full of the malicious pleasure of abandoning them to their fate.
+ - If you are prepared to accept the consequences of your dreams then you must still regard America today with the same naive enthusiasm as the generations that discovered the New World.
+ - Driving is a spectacular form of amnesia. Everything is to be discovered, everything to be obliterated.
+ - In days gone by, we were afraid of dying in dishonor or a state of sin. Nowadays, we are afraid of dying fools. Now the fact is that there is no Extreme Unction to absolve us of foolishness. We endure it here on earth as subjective eternity.
+ - Fiction is not imagination. It is what anticipates imagination by giving it the form of reality.
+ - The era of the political was one of anomie: crisis, violence, madness and revolution. The era of the trans-political is that of anomaly: an aberration of no consequence, contemporaneous with the event of no consequence.
+ - The order of the world is always right – such is the judgment of God. For God has departed, but he has left his judgment behind, the way the Cheshire Cat left his grin.
+ - You are born modern, you do not become so.
+ - It is not enough for theory to describe and analyze, it must itself be an event in the universe it describes.
+ - Imagine the amazing good fortune of the generation that gets to see the end of the world. This is as marvelous as being there in the beginning.
+ - Boredom is like a pitiless zooming in on the epidermis of time. Every instant is dilated and magnified like the pores of the face.
+ - The price we pay for the complexity of life is too high.
+ - Contact with men who wield power and authority still leaves an intangible sense of repulsion. It’s very like being in close proximity to fecal matter, the fecal embodiment of something unmentionable, and you wonder what it is made of and when it acquired its historically sacred character.
+ - The repentant, run-to-seed ultra-Leftists who have converted to humanitarianism, artificial inseminators of the widow and the orphan, themselves orphans of reality and malades imaginaires of politics, premature ejaculators of posthistory and hyperchondriacs of the dead body of ideology and morality.
+ - It is in love with its limitless horizontality, as New York may be with its verticality.
+ - The war was won on both sides: by the Vietnamese on the ground, by the Americans in the electronic mental space. And if the one side won an ideological and political victory, the other made Apocalypse Now and that has gone right around the world.
+ - Animals have no unconscious, because they have a territory. Men have only had an unconscious since they lost a territory.
+ - The desert is no longer a landscape, it is a pure form produced by the abstraction of all others.
+ - You have to know how to disappear.
+ - It is the task of radical thought, since the world is given to us unintelligibly, to make it more unintelligible, more enigmatic, more fabulous.
+ - We have dreamt of every woman there is, and dreamt too of the miracle that would bring us the pleasure of being a woman, for women have all the qualities – courage, passion, the capacity to love, cunning – whereas all our imagination can do is naively pile up the illusion of courage.
+ - The confrontation between America and Europe reveals not so much a rapprochement as a distortion, an unbridgeable rift. There isn’t just a gap between us, but a whole chasm of modernity.
+ - Business owners are like joggers. If you stop a jogger, he goes on running on the spot. If you drag an owner away from his business, he goes on running on the spot, pawing the ground, talking business. He never stops hurtling onwards, making decisions and executing them.
+ - There is no human reason to be here, except for the sheer ecstasy of being crowded together.
+ - Terror is as much a part of the concept of truth as runniness is of the concept of jam. We wouldn’t like jam if it didn’t, by its very nature, ooze. We wouldn’t like truth if it wasn’t sticky, if, from time to time, it didn’t ooze blood.
+ - With the truth, you need to get rid of it as soon as possible and pass it on to someone else. As with illness, this is the only way to be cured of it. The person who keeps truth in his hands has lost...
+ - We are all hostages, and we are all terrorists. This circuit has replaced that other one of masters and slaves, the dominating and the dominated, the exploiters and the exploited. It is worse than the one it replaces, but at least it liberates us from liberal nostalgia and the ruses of history.
+ - The Yuppies are not defectors from revolt, they are a new race, assured, amnestied, exculpated, moving with ease in the world of performance, mentally indifferent to any objective other than that of change and advertising.
+ - Genius is childhood recaptured.
+ - This is what terrorism is occupied with as well: making real, palpable violence surface in opposition to the invisible violence of security.
+ - There are only a few images that are not forced to provide meaning, or have to go through the filter of a specific idea.
+ - Mistakes, scandals, and failures no longer signal catastrophe. The crucial thing is that they be made credible, and that the public be made aware of the efforts being expended in that direction. The marketing immunity of governments is similar to that of the major brands of washing powder.
+ - We are no longer in a state of growth; we are in a state of excess. We are living in a society of excrescence. The boil is growing out of control, recklessly at cross purposes with itself, its impacts multiplying as the causes disintegrate.
+ - One has never said better how much “humanism”, “normality”, “quality of life” were nothing but the vicissitudes of profitability.
+ - The obese is in a total delirium. For he is not only large, of a size opposed to normal morphology: he is larger than large. He no longer makes sense in some distinctive opposition, but in his excess, his redundancy.
+ - I hesitate to deposit money in a bank. I am afraid I shall never dare to take it out again.
+ - Neither dead nor alive, the hostage is suspended by an incalculable outcome. It is not his destiny that awaits for him, nor his own death, but anonymous chance, which can only seem to him something absolutely arbitrary. He is in a state of radical emergency, of virtual extermination.
+ - In the same way that we need statesmen to spare us the abjection of exercising power, we need scholars to spare us the abjection of learning.
+ - The image is not a medium for which we have to find the proper use. It is what it is and it is beyond all our moral considerations. It is by its essence immoral, and the world’s becoming-image is an immoral process.
+ - In its artless cruelty, Dallas is superior to any “intelligent” critique that can be made of it. That is why intellectual snobberymeets its match here.
+ - The sickly cultural pathos which the whole of France indulges in, that fetishism of the cultural heritage.
+ - Perhaps our eyes are merely a blank film which is taken from us after our deaths to be developed elsewhere and screened as our life story in some infernal cinema or dispatched as microfilm into the sidereal void.
+ - It only takes a politician believing in what he says for the others to stop believing him.
+ - Laughter on American television has taken the place of the chorus in Greek tragedy. It is unrelenting; the news, the stock-exchange reports, and the weather forecast are about the only things spared.
+ - Smile and others will smile back.
+ - A series of accidents creates a positively light-hearted state, out of consideration for this strange power.
+ - The surprises of thought are like those of love: they wear out. But here too you can carry on for a long time doing your conjugal duty.
+ - Every woman is like a time-zone. She is a nocturnal fragment of your journey. She brings you unflaggingly closer to the next night.
+ - For the heavenly fire no longer strikes depraved cities, it is rather the lens which cuts through ordinary reality like a laser, putting it to death.
+ - It is exciting to hear one of your fondest ideas formulated in one fell swoop, better than you could have done yourself.
+
+107 quotes

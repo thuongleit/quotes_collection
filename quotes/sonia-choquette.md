@@ -1,0 +1,51 @@
+ - Small steps work – grandiose goals don’t.
+ - Your sixth sense should be your first sense.
+ - The open heart sees, feels and absorbs the beauty of the world.
+ - Tenacity is when you follow your heart – when the whole world is screaming to get back into your head.
+ - If you want to reach out for something new, you must first let go of what’s in your hand.
+ - Prayer is asking for guidance. Meditation is listening to it.
+ - Give yourself permission to immediately walk away from anything that gives you bad vibes. there is no need to explain or make sense of it. just trust what you feel.
+ - To live in alignment with your Spirit is to live your truth and build your life upon it.
+ - Clear focus is the mind’s magic wand. It points your creativity in a particular direction and channels your experience behind it. Wherever you clearly focus, you create.
+ - I am deeply reminded that our life’s journey is a gift, not a given, and that we can never truly know how long the journey will last. All we can do is decide how it unfolds.
+ - So often we wait for the climate and conditions in life to be perfect before we feel safe enough to step forward, trust, and be our authentic selves. What we don’t realize is that in order to create the ideal climate we are waiting for, we must be authentic first.
+ - Love your life and live your spirit!
+ - The Universe has a pulse and rhythm of its own, and it wants to carry you with it-so if you dance with Spirit, just remember to let it lead.
+ - Intention is power. Intention is ownership. Intention is commitment. Intention is magic.
+ - Genuine relationships depend first on a healthy relationship with ourselves.
+ - Denying our weaknesses is neither power, nor protection. We cannot overcome those disabling parts of our own nature which in fact steal our power away, if we do not acknowledge they exist.
+ - Your heart pilots you to a far better life than you could have ever dreamed of. That’s how the heart works.
+ - Only when we accept and forgive all that is or has been the good, the bad, and the ugly of our human lives can we get off the guilt trip and back into the flow. That means we must love our humanness and all of our failings; we must accept, learn from, and yes, even love our mistakes.
+ - Not trusting your sixth sense, will always -and I mean always- come back to haunt you. Have the courage to stand alone and trust your vibes.
+ - If you want to learn to trust your vibes, you must maintain a peaceful and relatively calm attitude. When you’re tense, nervous, or anxious, your energy gets tangled up and blocked and can’t enter your heart center, where your Higher Self and your vibes communicate.
+ - If you look at yourself and life through the lens of your ego, you’ll feel isolated, ganged up on, alone, dfferent, and not part of the crowd. If you look through the lens of Spirit, knowing we’re all one, you’ll always feel safe, secure, ad loved.
+ - The more you choose to do things that uplift yourself and others the more your Spirit can shine, can heal you, can lead your life. What can you do today to uplift yourself? To uplift others?
+ - Today, take a break from your ego and don’t take yourself too seriously. Enjoy your Spirit and laugh!
+ - When our personal inner vision is sharp and balanced, it awakens our ability to look at life with a creative and positive point of view. It stimulates our thirst for knowledge and education in every possible way.
+ - Behind every word flows energy. If you use your words to gossip or babble about what you are going to do before you do it, then you are siphoning off the energy needed to actually do the work. Your words become an energy leak.
+ - When the heart is open and balanced, we enter into a state of attraction to what we need, because the power of love is magnetic and harmonious.
+ - Divine Consciousness is constantly seeking ways to express itself through us.
+ - You cannot breathe deeply and worry at the same time. Breathe. Let the worry go. Breathe. Allow the love and intuition in.
+ - Life is always full of drama and challenges, but you don’t have to overreact to any of it if you choose not to.
+ - Like flowers and plants, we too need ground under our feet, warmth and sunshine and food for our spirit, protective boundaries, tending and care, freedom to grow unencumbered and without limitation, and complete support from the Universe to become our greatest possible self.
+ - A connection to Spirit restores your confidence, relieves your anxiety, and frees you from the desire to control everything in your life.
+ - I pray that my heart can continue to open and expand so I can fully receive love and not waste a drop of it!
+ - Take a few moments every day to sit in silence and turn your full awareness inward to connect with your Spirit. These moments of silence can occur anytime and anyplace. The more you learn to tune in wherever you are, the easier it will become.
+ - People frustrate us and let us down. Not because we aren’t lovable, but because we rely on them to do our job of loving us. We must accept that our lovability and worth doesn’t come from others. It comes from within.
+ - Your words are the greatest power you have. The words you choose and their use establish the life you experience.
+ - Intuition doesn’t tell you what you want to hear; it tells you what you need to hear.
+ - Our minds are confused, but not our souls.
+ - Once we tune in to what we feel in our heart and Spirit, our intuition kicks into gear and starts to communicate with us in so many delightful ways.
+ - In fully accepting your creative power, you honor and respect your soul and remind others to do the same.
+ - We are all unconsciously in search of love. Whenever we feel its presence in our environment, we can’t help but be drawn to it. There is no more compelling energy in the world.
+ - When you breathe into fear it becomes adventure.
+ - As with everything in nature, if your life isn’t supported by a grounded source of energy, it will wither and lose its vitality.
+ - None of us are too sensitive to live our purpose.
+ - Everyday, say a hundred things you love about yourself.
+ - Life can dictate that we suffer physical restrictions and limitations, but no one has the ability to restrict or in any way demean our spirit unless we agree to it.
+ - To genuinely discover your Spirit, stop talking, stop reading, and start listening to your heart.
+ - There are three things you need to live abundantly: awareness, imagination and gratitude.
+ - The power of the word is real whether or not you are conscious of it.
+ - We have bodies. We have personalities. We have histories, stories and experiences. But we are not those things – we are Spirit.
+
+49 quotes

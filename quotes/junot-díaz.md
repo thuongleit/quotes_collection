@@ -1,0 +1,180 @@
+ - The only way out is in.
+ - The half-life of love is forever.
+ - But if these years have taught me anything it is this: you can never run away. Not ever. The only way out is in.
+ - In my view, a writer is a writer because even when there is no hope, even when nothing you do shows any sign of promise, you keep writing anyway.
+ - If you want to make a human being into a monster, deny them, at the cultural level any reflection of themselves.
+ - The whole culture is telling you to hurry, while the art tells you to take your time. Always listen to the art.
+ - In order to write the book you want to write, in the end you have to become the person you need to become to write that book.
+ - She was the kind of girlfriend God gives you young, so you’ll know loss the rest of your life.
+ - If you didn’t grow up like I did then you don’t know, and if you don’t know it’s probably better you don’t judge.
+ - I’m like everybody else: weak, full of mistakes, but basically good.
+ - It’s never the changes we want that change everything.
+ - We all have a blind spot and it’s shaped exactly like us.
+ - Colleagues are a wonderful thing – but mentors, that’s where the real work gets done.
+ - And that’s when I know it’s over. As soon as you start thinking about the beginning, it’s the end.
+ - Every single immigrant we have, undocumented or documented, is a future American. That’s just the truth of it.
+ - I’m an immigrant and I will stay an immigrant forever.
+ - Travel light. She extended her arms to embrace her house, maybe the whole world.
+ - I just want some space to myself every now and then. Every time I’m with you I have this sense that you want something from me.
+ - Tell her that you love her hair, that you love her skin, her lips, because, in truth, you love them more than you love your own.
+ - For a long time, I let my mother say what she wanted about me, and what was worse, for a long time I believed her.
+ - You eventually erase her contact info from your phone but not the pictures you took of her in bed while she was naked and asleep, never those.
+ - Stereotypes, they’re sensual, cultural weapons. That’s the way that we attack people. At an artistic level, stereotypes are terrible writing.
+ - My African roots made me what I am today. They’re the reason I exist at all.
+ - I guess it’s true what they say: if you wait long enough everything changes.
+ - I think men spend so much time passing for being men.
+ - A first lesson in the fragility of love and the preternatural cowardice of men. And out of this disillusionment and turmoil sprang Beli’s first adult oath, one that would follow her into adulthood, to the States and beyond. I will not serve.
+ - People are always fascinated by infidelity because, in the end – whether we’ve had direct experience or not – there’s part of you that knows there’s absolutely no more piercing betrayal. People are undone by it.
+ - Once someone gets a little escape velocity going, ain’t no play in the world that will keep them from leaving.
+ - Love is the great test of the human. The human is tested by our ability to withstand love. Love is so difficult, it is so challenging, it demands of us that we wreck it with ourselves. It demands of us an honesty that few of us could sustain.
+ - Know that in this world there’s somebody who will always love you.
+ - God bless perseverance. Because it’s not easy.
+ - This is what I know: people’s hopes go on forever.
+ - Art is not boosterism, it’s not propaganda, and it’s not spin, but that’s not something that art does, and nor has it historically ever done it.
+ - She smelled like herself, like the wind through a tree.
+ - You can’t regret the life you didn’t lead.
+ - She would be a new person, she vowed. They said no matter how far a mule travels it can never come back a horse, but she would show them all.
+ - Sometimes you just have to try, even if you know it won’t work.
+ - It’s exactly at these moments, when all hope has vanished, that prayer has dominion.
+ - You’re Dominican only if you do this, this, and that. And if you do this and that, you’ll be accepted to a certain degree and if you don’t, people will scorn you for it.
+ - Any art worth its name requires you to be fundamentally lost for a very long time.
+ - The thoughts he put in her head. Someone should’ve arrested him for it.
+ - If we do not begin to practice the muscles of having a possessive investment in each other’s oppressions, then we are in some serious trouble.
+ - So the kind of boy I was, or that I was told to be, you were kind of this like half-gladiator, half-dude who, you know, was supposed to have as many girls as possible and work until your heart exploded, have no fear, you know.
+ - The greatest myth of all is what America is. I think that America is such an incredibly dynamic place because of immigration.
+ - When I write, what I long for is not more realism or fiction but more courage. That’s what I always find myself short on and what I have to struggle to achieve in order that the work might live.
+ - I was surrounded by a lot of male writers of color who have this incredibly bizarre relationship to masculinity. It’s like we were all mega-nerds but you would never know that if you listened to the way they talk about themselves.
+ - We’re accepted as long as we conform to what we are expected to be, and I’m sure that’s not any different for anyone else.
+ - I write very, very slowly, and for me, I have to summon all sorts of resources to make one of these pieces work.
+ - I’m one of those apocalyptics. From the start of my immigrant days, I’ve been fascinated by end-of-the-world stories, by outbreak narratives, and always wanted to set a world-ender on Hispaniola.
+ - I never hear white writers get asked, ‘Do you worry about how you represent white people?’
+ - Of course we all know that’s not how life works. The novel that is our life can end at any time. Sometimes even on page one.
+ - It’s just a matter of willpower. The day you decide it’s over, it’s over. You never get over it.
+ - You don’t want to let go, but don’t want to be hurt, either. It’s not a great place to be but what can I tell you?
+ - You said i could call you when i wanted but that you wouldn’t call me. you have to decide where and when, you said. if you leave it up to me i’ll want to see you every day. At least you were honest, which is more than i can say for me.
+ - Success, after all, loves a witness, but failure can’t exist without one.
+ - Sucks to be left out of adolescence, sort of like getting locked in the closet on Venus when the sun appears for the first time in a hundred years.
+ - She’s applying her lipstick; I’ve always believed that the universe invented the color red solely for Latinas.
+ - Then you look at her and smile a smile your dissembling face will remember until the day you die. Baby, you say, baby, this is part of my novel. This is how you lose her.
+ - I never wanted to be away from the family. Intuitively, I knew how easily distances could harden and become permanent.
+ - She’s sensitive, too. Takes to hurt the way water takes to paper.
+ - What else she doesn’t know: that the man next to her would end up being her husband and the father of her two children, that after two years together he would leave her, her third and final heartbreak, and she would never love again.
+ - As expected: she, the daughter of the Fall, recipient of its heaviest radiation, loved atomically.
+ - Privilege does not operate without silence.
+ - Clavo saca clavo. Nothing sacas nothing, you reply. No one will ever be like her.
+ - I am a person who dreads any kind of public exposure and any kind of public event. I spend all day, if I have to do a reading, preparing.
+ - Love was a rare thing, easily confused with a million other things, and if anybody knew this to be true it was him.
+ - You ask everybody you know: How long does it usually take to get over it? There are many formulas. One year for every year you dated. Two years for every year you dated. It’s just a matter of will power: The day you decide it’s over, it’s over. You never get over it.
+ - Books don’t live and die by awards. You don’t listen to an Hector Lavoe album because it won some awards.
+ - Dominican men are told to look at women all the time, but they’re definitely not told to see them.
+ - It was like being at the bottom of an ocean, she said. There was no light and a whole ocean crushing down on you. But most people had gotten so used to it they thought it normal, they forgot even that there was a world above.
+ - Ana Iris once asked me if I loved him and I told her about the lights in my old home in the capital, how they flickered and you never knew if they would go out or not. You put down your things and you waited and couldn’t do anything really until the lights decided. This, I told her, is how I feel.
+ - Beli at thirteen believed in love like a seventy-year-old widow who’s been abandoned by family, husband, children and fortune believes in God.
+ - The truth is there ain’t no relationship in the world that doesn’t hit turbulence.
+ - You’re the only person I’ve ever met who can stand a bookstore as long as I can.
+ - Each morning, before Jackie started her studies, she wrote on a clean piece of paper: Tarde venientibus ossa. To the latecomers are left the bones.
+ - People can say what they want, but historically, feminism in the Dominican Republic has been extremely strong.
+ - That’s life for you. All the happiness you gather to yourself, it will sweep away like it’s nothing. If you ask me I don’t think there are any such things as curses. I think there is only life. That’s enough.
+ - Here at last is her smile: burn it into your memory; you won’t see it often.
+ - My thing is, I’m just way too harsh. It’s an enormous impediment, and that’s just the truth of it. It doesn’t make me any better, make me any worse, it certainly isn’t more valorous. I have a character defect, man.
+ - You never forget the discovery years. First kisses. The first time you try certain foods.
+ - I think the average guy thinks they’re pro-woman, just because they think they’re a nice guy and someone has told them that they’re awesome. But the truth is far from it.
+ - Out of nowhere you said, I love you. For whatever it’s worth.
+ - I am a chatty person, but colossally discreet.
+ - You were at the age where you could fall in love with a girl over an expression, over a gesture. That’s what happened with your girlfriend, Paloma- she stooped to pick up her purse and your heart flew out of you.
+ - Infidelity raises profound questions about intimacy.
+ - I think a lot of the most interesting immigrant writing involves stepping outside of that old, dreary binary. Chang-rae Lee’s Native Speaker is a great example. Same goes for Maxine Hong Kingston’s The Woman Warrior.
+ - If you, like, consciously think about being cool, you’re not cool. If you consciously think about being, like, different or original, you ain’t different or original.
+ - New Jersey for me is so alive with history. It’s old, dynamic, African-American, Latino.
+ - I wring my hands because I know that as a dude, my privilege, my long-term deficiencies work against me in writing women, no matter how hard I try and how talented I am.
+ - I sat down next to her. Took her hand. This can work, I said. All we have to do is try.
+ - My father was a Little League dictator. That really affected me, his control-freakery, his impunity, his arbitrary unreasonable power.
+ - When I got heartbroken at 20, it just felt like someone had spiraled a football right into my skull. At 40, it feels like someone had driven a 757 right through me.
+ - I was really drawn to thinking about the women in my life. Thinking about my mother, who’s a very powerful force on me. And I have these two very strong sisters who took up a lot of imaginary space in my life.
+ - I’m not writing fairy tales or object lessons.
+ - And because love, real love, is not so easily shed.
+ - If you were a nerd computer geek in 1982, the amount of isolation you felt – at least what I experienced, or the kids I knew, the isolation they felt – was almost total. They were not part of society; no one thought they were cool.
+ - You think people hate a fat person? Try a fat person who’s trying to get thin.
+ - I mean, I’m an artist by nature; no one considers what I do and no one knows who the heck I am, but that anybody does – it is astonishing.
+ - I seem to enjoy telling stories with a central absence, with a lacuna tunnelled into them.
+ - Shot at twenty-seven times – what a Dominican number...
+ - Ybon was the one who suggested calling the wait something else. Yeah, like what? Maybe, she said, you could call it life.
+ - Run a hand through your hair, like the white boys do, even though the only thing that runs easily through your hair is Africa.
+ - There’s little question that short stories, like poetry, don’t get the respect they deserve in the culture – but what can you do? Like Canute, one cannot fight the sea, you have to go with your love, and hope one day, things change.
+ - I’m just this Dominican kid from New Jersey.
+ - I can always tell if someone’s from Harvard because they trot out their vitae. I would die at Harvard.
+ - You need to learn how to walk the world, he told me. There’s a lot out there.
+ - My mother took care of us until my father scrammed, and then she ended up working in the small-factory sector of New Jersey with a lot of other immigrants.
+ - The world should always be concerned whenever a vast human rights violation occurs anywhere on the planet.
+ - I’ve been trying to write. I also spent a lot of time on different campuses, in conversation, helping other writers. That’s what I do: I teach them writing.
+ - Migration gives a blank cheque to put anything you don’t feel like addressing in the memory hold. No neighbours can go against the monster narrative of your family.
+ - I can’t imagine anybody who ends up being an artist who didn’t pass through a time of geekiness.
+ - When I read Toni Morrison and Sandra Cisneros as a freshman at Rutgers, it all clicked – that writing was all I wanted to do. It became my calling.
+ - I seem to have to make my characters family before I can access their hearts in any way that matters.
+ - I know for a fact that – it’s just the way our biases work now in the industry of literature, but certainly a short story collection does not receive the same kind of attention as a novel.
+ - I grew up in the shadow of the Trujillato, saw how the regime had ravaged so many families.
+ - I think what happened to me was that I was always being taught to look, but one day I started to see. And it was because a lot of women in my life were refusing just to be looked at, to be this passive figure.
+ - Spin is ‘something is beautiful because we say it’s beautiful.’
+ - Stories are hard. I have friends who knock out stories on a weekly or monthly basis, like they’re running on medicinal-strength Updike. But for me a story is as daunting a prospect as a novel.
+ - Genre might certainly increase some of your narrative freedoms, but it also diminishes others. That’s the nature of genre.
+ - To an outsider, I just seem like a list of accomplishments. To me, all there is is how often I fail.
+ - My father was a trigamist; he supported three families. We were never not poor.
+ - Artists are not cheerleaders, and we’re not the heads of tourism boards. We expose and discuss what is problematic, what is contradictory, what is hurtful and what is silenced in the culture we’re in.
+ - Love is understood, in a historical way, as one of the great human vocations – but its counterspell has always been infidelity. This terrible, terrible betrayal that can tear apart not only another person, not only oneself, but whole families.
+ - You keep waiting for the heaviness to leave you. You keep waiting for the moment you never think about the ex again. It doesn’t come.
+ - My greatest responsibility is to acknowledge the mistakes and the shortcomings of the country in which I live, to acknowledge my privileges, and to try to make it a better place.
+ - She had reason to doubt him; he was real good at planning but real bad at doing.
+ - We get these lives for free. I didn’t do anything to get this life, and no matter what the hardships are, it is free and, in a way, it’s an extraordinary bargain.
+ - The Prisoner’s Wife echoes Edwidge Danticat’s Farming of the Bones in the urgency in which it reminds us of the possibility of love even amidst the ruins. This is a terrifying, heart-breaking and, ultimately, important book.
+ - I really am a believer that 99.99% of all the stories we need, not only as artists but as human beings, not only as writers but as readers, haven’t been written yet. Certainly haven’t been published yet.
+ - I mean, the nation in which we live – and the world in which we live – is so extraordinarily more like a future than the futures that we’re being sold on the screen and on television.
+ - I’m having so much trouble with writing. Maybe if I help other people, it’ll be easier for me.
+ - Used to be in the old days, only the pulp writers wrote like machines. Now everybody is expected to be literary John Henrys. So in that context someone like me is an anomaly.
+ - I don’t think you can be from the Caribbean and not know a certain amount about the apocalypse.
+ - Nobody warned me that when you fall in love, you really fall in love forever.
+ - When I was working on ‘Drown’ – this was way back in the mid-’90s – I had this idea that I wanted to do another collected stories. I wanted to do another book like ‘Drown’ that focused specifically on infidelity.
+ - Well, when you look at a lot of science fiction novels they’re asking questions about power. There are questions about what it means to have power and what are the long-term consequences of power.
+ - A person doesn’t mourn forever.
+ - Anger has a way of returning.
+ - That was the summer when everything we would become was hovering just over our heads.
+ - Honestly, connecting once at the deepest level with someone, you know, once you’ve done that, even if your life goes to hell, man, it was really worth living.
+ - Nobody likes children, your mother assured you. That doesn’t mean you don’t have them.
+ - Literature is less involved in giving you answers and more dedicated to giving you insight.
+ - You whispered my full name and we fell asleep in each other’s arms and I remember how the next morning you were gone, completely gone, and nothing in my bed or the house could have proven otherwise.
+ - I write for the people I grew up with. I took extreme pains for my book to not be a native informant. Not: ‘This is Dominican food. This is a Spanish word.’ I trust my readers, even non-Spanish ones.
+ - I sleep way too much and I read tremendously.
+ - Personally I always feel like I could use a little more of poetry apothegmatic power in my own work but we’re always lacking something.
+ - In fact, looking at the darkest sides of the United States has only made me appreciate the things that we do right, the things that we do beautifully. We are, for all of our mistakes and all of our crimes, a remarkable place.
+ - I love ‘The Autobiography of Malcolm X.’ That was like the only black book we read in high school.
+ - I think one of the paradoxes of writing fiction is when people enjoy it, they want it to be real. So they look for connections.
+ - As artists we are here to make you uncomfortable with the complexity of your reality.
+ - I was neither black enough for the black kids or Dominican enough for the Dominican kids. I didn’t have a safe category.
+ - I have three storage units, and that’s no lie. Three storage units. All books.
+ - Just the fact that you get to live and breathe and interact with the world – that’s pretty marvelous.
+ - I didn’t start writing until late high school and then I was just diddling. Mainly I loved to read and my writing was an outgrowth of that.
+ - When I became my masked identity I was this incredible little nerd, but in the real world I had to be this tough kid from the neighborhood.
+ - Katrina was one of those things that rips the clothes off of the guy who keeps saying he’s a saint, and underneath you see that he’s a monster.
+ - It took me sixteen years to write.
+ - Even if you didn’t come from another country, the idea of how do you make a home somewhere new is common to anyone who’s either going to college, shifting towns.
+ - You can’t be a human without seeing.
+ - I always individuate myself from other writers who say they would die if they couldn’t write. For me, I’d die if I couldn’t read.
+ - The only difference between a published and unpublished writer is a tolerance for imperfection.
+ - Because I can’t seem to escape it. It’s a way for me to address and counter my questions about what it means to be human, or, in my case a Dominican human who grew up in New Jersey.
+ - Being an author is always like being a well-run dictatorship – it’s all one person speaking.
+ - Sadness at being caught, at the incontrovertibe knowledge that she will never forgive you.
+ - I was in fact pretty much – by the larger culture, by the local culture, by people around me, by people on TV – encouraged to imagine women as something slightly inferior to men.
+ - To produce that identity among young people required guinea pigs.
+ - As for my slowness as a writer – that’s been a struggle, no question. We live in a culture that values and rewards machine-speed productivity. Even the arts are expected to conform to the Taylor model of productivity.
+ - In the end, all worlds, whether they’re set in the future or in New Jersey of today, are fictions. Sure, you don’t got to do too much work to build a mundane world, but don’t get it twisted: you still got to do some work.
+ - We hide so well. This is the bottom line: how hidden is male subjectivity? Name five books where male subjectivity is produced in an honest way.
+ - In the months that follow you bend to the work, because it feels like hope, like grace – and because you know in your lying cheater’s heart that sometimes a start is all we ever get.
+ - You know how it is when you get back with somebody you’ve loved. It felt better than it ever was, better than it ever could be again.
+ - Character is the plot in many ways.
+ - In minority communities there’s a sensitivity, often a knee-jerk reaction, to critical representations. There’s a misunderstanding of what an artist does.
+ - There is a lot of scepticism today as to whether memoir is real. But when fiction is done at a certain level there is scepticism as to whether it is really fiction.
+ - For me it’s a remarkable thing that there is a prize celebrating and honouring and making for a brief moment short fiction the centre of the literary universe.
+ - Love is the only thing – I don’t want to say that “makes it bearable” – but I feel like without the possibility of love, this place would just devour us.
+ - I discovered early that as an artist there was absolutely nothing wrong with being surrounded by people who were not dedicated to your field.
+ - I guess I’m just hopelessly fascinated by the realities that you can assemble out of connected fragments.
+
+178 quotes

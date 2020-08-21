@@ -1,0 +1,333 @@
+ - It is not enough to succeed. Others must fail.
+ - The unfed mind devours itself.
+ - Style is knowing who you are, what you want to say, and not giving a damn.
+ - The brain that doesn’t feed itself, eats itself.
+ - Write something, even if it’s just a suicide note.
+ - Persuading the people to vote against their own best interests has been the awesome genius of the American political elite from the beginning.
+ - I’m a born – again atheist.
+ - At any given moment, public opinion is a chaos of superstition, misinformation, and prejudice.
+ - There are two things you never turn down: sex and appearing on television.
+ - The four most beautiful words in our common language: I told you so.
+ - I have no social position and I stay away from what is known as society as much as possible.
+ - Today’s public figures can no longer write their own speeches or books, and there is some evidence that they can’t read them either.
+ - Every time a friend succeeds, I die a little.
+ - I can understand companionship. I can understand bought sex in the afternoon. I cannot understand the love affair.
+ - The word ‘radical’ derives from the Latin word for root. Therefore, if you want to get to the root of anything you must be radical. It is no accident that the word has now been totally demonized...
+ - Think of the earth as a living organism that is being attacked by billions of bacteria whose numbers double every forty years. Either the host dies, or the virus dies, or both die.
+ - The people are not stupid, but they are totally misinformed.
+ - Reality is something the human race doesn’t handle very well.
+ - When anyone says to me, ‘Can you keep a secret?’ I say, ‘Why should I, if you can’t?’
+ - The fool is often oblivious of his own gaucherie.
+ - Those who have not undergone minor disasters are usually being held in reserve for something major.
+ - There’s no such thing as a war against terrorism. It’s idiotic. These are slogans. These are lies. It’s advertising, which is the only art form we ever invented and developed.
+ - I regard monotheism as the greatest disaster ever to befall the human race. I see no good in Judaism, Christianity, or Islam – good people.
+ - Once people get hung up on theology, they’ve lost sanity forever.
+ - History is idle gossip about a happening whose truth is lost the instant it has taken place.
+ - Liberal comes from the Latin liberalis, which means pertaining to a free man. In politics, to be liberal is to want to extend democracy through change and reform. One can see why that word had to be erased from our political lexicon.
+ - Don’t ever make the mistake with people like me thinking we are looking for heroes. There aren’t any and if there were, they would be killed immediately. I’m never surprised by bad behaviour. I expect it.
+ - I have always regarded as a stroke of good fortune that I was not born or brought up in a small American town; they may be the backbone of the nation, but they are also the backbone of ignorance, bigotry, and boredom, all in vast quantities.
+ - You cannot get through the density of the propaganda with which the American people, through the dreaded media, have been filled and the horrible public educational system we have for the average person. It’s just grotesque.
+ - The corporate grip on opinion in the United States is one of the wonders of the Western world. No First World country has ever managed to eliminate so entirely from its media all objectivity – much less dissent.
+ - Television is a great leveler. You always end up sounding like the people who ask the questions.
+ - Ideally, the writer needs no audience other than the few who understand that it is immodest and greedy to want more.
+ - To speak today of a famous novelist is like speaking of a famous cabinetmaker or speedboat designer. Adjective is inappropriate to noun.
+ - When you control opinion, as corporate America controls opinion in the United States by owning the media, you can make the masses believe almost anything you want, and guide them as you please.
+ - Having no talent is no longer enough.
+ - We are the United States of Amnesia, we learn nothing because we remember nothing.
+ - I am a correctionist. If something is wrong in society, it must be fixed. At least one should try to fix it.
+ - Litigation takes the place of sex at middle age.
+ - It is of no consequence to you what others think of you. What matters is what you think of them. That is how you live your life.
+ - Although the notion of one god may give comfort to those in need of a daddy, it reminds the rest of us that the totalitarian society is grounded upon the concept of God the father. One paternal god, one paternal leader. Authority is absolute.
+ - Perfect love sometimes does not come until the first grandchild.
+ - To justify and extol human greed and egotism is to my mind not only immoral, but evil.
+ - I’m exactly as I appear. There is no warm, lovable person inside. Beneath my cold exterior, once you break the ice, you find cold water.
+ - I’m not sentimental about anything. Life flows by, and you flow with it or you don’t. Move on and move out.
+ - I have been saying for the some time now that America has only one party – the property party. It’s the party of big corporation, the party of money. It has two right wings; one is Democrat and the other is Republican.
+ - We were to be forever at war with somebody. We were going to fight communism everywhere on earth even if it didn’t threaten us. It was a holy war, just as we’ve made one on terrorism and Islam, equally stupid and equally irrelevant.
+ - Never offend an enemy in a small way.
+ - The critics are like tourists who return from a trip saying they’ve “done” Machu Picchu: “Okay, we’ve done magical realism,” so now we can throw it out.
+ - Lonely children often have imaginary playmates but I was never lonely; rather, I was solitary, and wanted no company at all other than books and movies, and my own imagination.
+ - In fact, life itself is a contradiction if only because birth is the direct cause, in every single case, of death.
+ - But women are always attracted to power. I do not think there could ever be a conqueror so bloody that most women would not willingly lie with him in the hope of bearing a son who would be every bit as ferocious as the father.
+ - Love is a fan club with only two fans.
+ - In a society like ours, politics is improvisation. To the artful dodger rather than the true believer goes the prize.
+ - Always a godfather, never a god.
+ - No one reads novels anymore. And I don’t see the situation improving. People prefer video games, reality TV, and films. There are so many reasons now not to read novels.
+ - Write what you know will always be excellent advice for those who ought not to write at all. Write what you think, what you imagine, what you suspect!
+ - Altruism is a brief phase through which some adolescents must pass. It is rather like acne. Happily, as with acne, only a few are permanently scarred.
+ - A narcissist is someone better looking than you are.
+ - Drugs. If they did not exist our governors would have invented them in order to prohibit them and so make much of the population vulnerable to arrest, imprisonment, seizure of property, and so on.
+ - The idea of a good society is something you do not need a religion and eternal punishment to buttress; you need a religion if you are terrified of death.
+ - When you are brought up in a zoo, you know what’s going on in the monkey house. You see a couple of monkeys loose and one is President and one is Vice President, you know it’s trouble. Monkeys make trouble.
+ - Astronauts: rotarians in outer space.
+ - Traitors who prevail are patriots; usurpers who succeed are divine emperors.
+ - Each writer is born with a repertory company in his head.
+ - Art is not a democracy, in fact art is the enemy of democracy.
+ - You can’t be both a writer and a politician, at least not a good writer. A writer must always tell the truth as he sees it. And the politician must never give the game away.
+ - Women are put on earth only to provide men with sons.
+ - The worst that can be said about pornography is that it leads not to anti-social acts but to the reading of more pornography.
+ - Since nothing is free, to each his price.
+ - Most lives are spent putting on and taking off masks.
+ - One of the most fascinating aspects of politician-watching is trying to determine to what extent any politician believes what he says.
+ - As societies grow decadent, the language grows decadent, too. Words are used to disguise, not to illuminate, action...
+ - I’m in favor of any form of sexual relationship that gives pleasure to those involved. And I have never heard a convincing argument to the contrary.
+ - The problem with most Americans is that they don’t like any question that takes more than ten seconds to answer.
+ - The important thing is not the object of love, but the emotion itself.
+ - I’m devoted to promiscuity, and always have been. I believe the more you do, the better it is for you. I’m a great health nut, and sex is, I think, absolutely marvelous for the whole system; tones you up.
+ - I like Italy. I was always at home there, it’s a marvelous place to become invisible. Nobody bothers you and nobody is interested in you and I find that very good for work.
+ - How to get people to vote against their interests and to really think against their interests is very clever. It’s the cleverest ruling class that I have ever come across in history. It’s been two hundred years at it. It’s superb.
+ - I’m all for bringing back the birch, but only between consenting adults.
+ - It is ironic that a nation that has never experienced a coup d’etat should be so obsessed with the idea of conspiracy.
+ - Apparently, ‘conspiracy stuff’ is now shorthand for unspeakable truth.
+ - Christianity is such a silly religion.
+ - To bring into the world an unwanted human being is as antisocial an act as murder.
+ - That peculiarly American religion, President-worship.
+ - Monotheism is easily the greatest disaster to befall the human race.
+ - Ronald Reagan: a triumph of the embalmer’s art.
+ - To have an interest in both sexes is equally normal. Whether it’s practiced or not is something else. Some do. Some don’t.
+ - Despite the warnings of other times, the impetuous and the confident continue their indiscriminate cultivation of weeds at the expense of occasional flowers.
+ - By 1948, the Italians had begun to pull themselves together, demonstrating once more their astonishing ability to cope with disaster which is so perfectly balanced by their absolute inability to deal with success.
+ - You can improve your talent, but your talent is a given, a mysterious constant. You must make it the best of its kind.
+ - Commercialism is doing well that which should not be done at all.
+ - The genius of our ruling class is that it has kept a majority of the people from ever questioning the inequity of a system where most people drudge along, paying heavy taxes for which they get nothing in return.
+ - The Puritans left England for America not because they couldn’t be Puritans in their mother country, but because they were not allowed to force others to become Puritans; in the New World, of course, they could and did.
+ - Everybody is bisexual, and that is a fact of human nature. Some people practice both, and some practice one thing, and some people practice another thing and that is the way human beings are.
+ - I am glad my life is coming to an end. To think that it might last another five hundred years, now that would be terrible, in my case.
+ - I look into my own black heart.
+ - Sex is. There is nothing more to be done about it. Sex builds no roads, writes no novels and sex certainly gives no meaning to anything in life but itself.
+ - First coffee, then a bowel movement. Then the Muse joins me.
+ - Between Malraux, Balzac, and Montaigne, I choose Montaigne. Montaigne will survive all the others, because the essay, meaning direct communication between the writer and his reader, will outlast the novel, by at least a thousand years.
+ - Truman Capote has made lying an art. A minor art.
+ - By the time a man gets to be presidential material, he’s been bought ten times over.
+ - Nonprofit status is what created the Bible Belt. The tax code brought religion back to this country.
+ - If most men and women were forced to rely upon physical charm to attract lovers, their sexual lives would be not only meager but in a youth-worshiping country like America painfully brief.
+ - I am savage about what has been done to the United States by its rulers.
+ - If satire is to be effective, the audience must be aware of the thing satirized.
+ - If Henry Miller often sounded like a village idiot, it is because, like Whitman, he was the rest of the village as well.
+ - The real writer learns nothing from life. He is more like an oyster or a sponge.
+ - Vitriolic is a needless and malign attack on something, excessive attack on something. It is a rather pointless thing to do.
+ - It is vice to go to bed with someone you are not married to or have someone of your own sex or to get money for having sex with someone who does not appeal to you-incidentally, the basis of half the marriages of my generation.
+ - Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half.
+ - Any American who is prepared to run for president should automatically, by definition, be disqualified from ever doing so.
+ - Vitriolic really is personal. I am vitriolic. I am savage.
+ - Every four years the naive half who vote are encouraged to believe that if we can elect a really nice man or woman President everything will be all right. But it won’t be.
+ - Once people get hung up on theology, they’ve lost sanity forever. More people have been killed in the name of Jesus Christ than any other name in the history of the world.
+ - True wisdom is to know the extent of what you don’t know quite as well as you know what you do know.
+ - I was never my own type so I completely missed my beauty all through my youth.
+ - We must always remember that the police are recruited from the criminal classes.
+ - There is something about the state putting the power to bully into the hands of subnormal, sadistic apes that makes my blood boil.
+ - Poor John Simon – what a nightmare, to wake up in the morning and realize that you are John Simon.
+ - Class is the most difficult subject for American writers to deal with as it is the most difficult for the English to avoid.
+ - Love and hate are so confused in your savage minds and the vibrations of the one are so very like those of the other that I can’t always distinguish. You see, we neither love nor hate in my world. We simply have hobbies.
+ - The true confessors have been aware that not only is life mostly failure, but that in one’s failure or pettiness or wrongness exists the living drama of the self.
+ - I have been on the cover of Time magazine. My father was on the cover of Time, and my grandfather was on the cover of Time.
+ - Laughing at someone else is an excellent way of learning how to laugh at oneself; and questioning what seem to be the absurd beliefs of another group is a good way of recognizing the potential absurdity of many of one’s own cherished beliefs.
+ - Who gives a damn about being remembered? That’s really for amateurs.
+ - I have always found men quite fathomable. They look entirely to their own interest.
+ - I come from the highest class of all. I am a third-generation celebrity.
+ - The United States was founded by the brightest people in the country – and we haven’t seen them since.
+ - I write in different styles because I hear different voices in my head. It would be boring to have always the same voice, point of view.
+ - I suppose my liking for Italy is partly atavism, my family are of the old Roman stock. They came from the Alps north of Venice.
+ - I’m not for real revolutions, because they always bring you the opposite of what you want. You very seldom get what you want if you have a violent revolution.
+ - Great critics do not explicate a text; they describe it and then report on what they have described, if the description itself is not the criticism.
+ - That loyal retainer of the Chase Manhattan Bank, the American president.
+ - I never miss a chance to have sex or appear on television.
+ - The New York Times is the worst in that hardly anybody can write English over there. Most of it reads like slight translations from the German.
+ - I suppose that one is always tempted to challenge those who think that they and they alone possess the truth or the way or the key to the mystery.
+ - One is sorry one could not have taken both branches of the road. But we were not allotted multiple selves.
+ - All children alarm their parents, if only because you are forever expecting to encounter yourself.
+ - He’s a full-fledged housewife from Kansas with all the prejudices.
+ - Many human beings enjoy sexual relations with their own sex; many don’t; many respond to both. This plurality is part of our nature and not worth fretting about.
+ - On 16 September 1985, when the Commerce Department announced that the United States had become a debtor nation, the American Empire died.
+ - Nothing that Shakespeare ever invented was to equal Lincoln’s invention of himself and, in the process, us.
+ - There is something about a bureaucrat that does not like a poem.
+ - The war against terror is like a war against dandruff. It’s a metaphor. It’s not about anything.
+ - If the splitter of hairs has a sharp enough knife, the fact of life itself can be chopped into nothing.
+ - Nixon was a Southern Rim President, and so antipathetic to the old guard.
+ - Our form of democracy is bribery, on the highest scale.
+ - The whole point to American journalism is what ought to be true is true. Since I ought to be arrogant, impressed with my social position, overwhelmed by my beauty, therefore I am.
+ - There’s a lot to be said for being nouveau riche, and the Reagans mean to say it all.
+ - It makes no difference who you vote for – the two parties are really one party representing four percent of the people.
+ - The same people own the media that own the White House that own the Congress that own the oil fields. They all work together to give a false view of the world to the American people.
+ - You know, I’ve been around the ruling class all my life, and I’ve been quite aware of their total contempt for the people of the country.
+ - Before the word gay had really been invented, was there’s no such thing. Only a country, basically as mindless about these matters – based upon our peasant superstitions, religious superstitions – would they make categories. Everybody’s everything.
+ - To a born-again atheist like myself, it is clear that each of us has multiple selves, talents, perceptions. But to the Roman Catholic, unity is all.
+ - I’m a much worse guest than I am a host, and I’m not an awfully good host either. I really like being alone.
+ - We are given our place in time as we are given our eyes: weak, strong, clear, squinting, the thing is not ours to choose. Well, this has been a squinting, walleyed time to be born in.
+ - Envy is the central fact of American life.
+ - Everybody has two legs, two lobes to the brain which is why we tend to be interested in symmetry, always balancing things.
+ - You can’t really succeed with a novel anyway; they’re too big. It’s like city planning. You can’t plan a perfect city because there’s too much going on that you can’t take into account. You can, however, write a perfect sentence now and then. I have.
+ - The world came so close to self-destruction during my lifetime. I was serving in the American Army, in the Pacific, at the time they bombed Hiroshima and then Nagasaki, and I felt there something like a foretaste of the end of the world.
+ - In matters of faith, inconvenient evidence is always suppressed while contradictions go unnoticed.
+ - Religions sprang up among men to deal with the sometimes terrifying aspects of existence, to make sense out of the senseless, to explain things we find inexplicable.
+ - Instead of finding alternative energy sources, we try to subjugate entire regions of the world. People do not understand that by doing this, the United States are going to absolute ruin.
+ - Since the individual’s desire to dominate his environment is not a desirable trait in a society which every day grows more and more confining, the average man must take to daydreaming.
+ - A talent for drama is not a talent for writing, but is ability to articulate human relationships.
+ - People have forgotten the effects of prohibition. We have become the United Statesof Amnesia.
+ - Love, like a sense of humor, is now claimed by everyone even though Love, like a sense of humor, is rather more rare than not, and to most of us poor muddlers unbearable at full strength.
+ - Populists have never had a good press in Freedom’s land.
+ - I don’t deny or affirm anything. I’m not very personal.
+ - Obviously I’m in favor of protecting the rights of everybody: gay, black, women, what have you, American Indians.
+ - As one gets older, litigation replaces sex.
+ - A babble of words that no one understands now fills the airwaves, and language loses all meaning as we sink slowly, mindlessly, into herstory rather than history because most rapists are men, aren’t they?
+ - I think the Chinese will say the hell with you and pull their money out of the United States. That’s the end of our wars.
+ - I might become an ascetic, live in India. A little rice is about the best I can do now.
+ - A superficial education would be worse than none. But a full education would open every man’s eyes to the nature of human existence.
+ - Next to “I win,” “I told you so” are the sweetest words.
+ - Precocious talents mature slowly if at all.
+ - I have been asked whether I wish to nominate a successor, an inheritor, a dauphin or delfino. I have decided to name Christopher Hitchens.
+ - This separation was absolute in our original Republic. But the sky-godders do not give up easily. In the 1950s they actually got the phrase In God We Trust onto the currency, in direct violation of the First Amendment.
+ - We’re supposed to procreate and society, god knows, is ferocious on the subject. Heterosexuality is considered such a great and natural good that you have to execute people and put them in prison if they don’t practice this glorious act.
+ - The worst thing to happen to Lincoln – aside from the unfortunate incident at Ford’s theatre – was to fall into the hands of Carl Sandburg.
+ - The oligarchs think that the people are both dangerous and stupid. Their point is moot. But we do know that the oligarchs are a good deal more dangerous to the polity than the people at large.
+ - Congress no longer declares war or makes budgets. So that’s the end of the constitution as a working machine.
+ - As Brooks Adams put it, the sole problem of our ruling class is whether to coerce or to bribe the powerless majority.
+ - We have a great deal to learn from Scandinavia and a great deal to be alarmed at from the Mediterranean.
+ - Writing when you are already very old means you have lived through the endings of so many things, you are more aware of the shape life takes. You begin to know Death, you’ve been close to it. But youth can barely imagine the end of this journey.
+ - When you come from a family that has been political, and I was brought up by my grandfather in the Senate, my father was in Roosevelt’s Cabinet, this is not the class that produces writers or reflective people.
+ - Fifty percent of people won’t vote, and fifty percent don’t read newspapers. I hope it’s the same fifty percent.
+ - I’ve always said, ‘I have nothing to say, only to add.’ And it’s with each addition that the writing gets done. The first draft of anything is really just a track.
+ - Capote I truly loathed. The way you might loathe an animal. A filthy animal that has found its way into the house.
+ - For half a century photography has been the “art form” of the untalented. Obviously some pictures are more satisfactory than others, but where is credit due? To the designer of the camera? to the finger on the button? to the law of averages?
+ - Then die. We must all do that. But die, as they say, game.
+ - I find in most novels no imagination at all. They seem to think the highest form of the novel is to write about marriage, because that’s the most important thing there is for middle-class people.
+ - There is no human problem which could not be solved if people would simply do as I advise.
+ - History is nothing but gossip about the past, with the hope that it might be true.
+ - Everybody likes a bit of gossip to some point, as long as it’s gossip with some point to it. That’s why I like history. History is nothing but gossip about the past, with the hope that it might be true.
+ - What is a political party but a conspiracy?
+ - That is sad until one recalls how many bad books the world may yet be spared because of the busyness of writers.
+ - By and large, serious fiction was the work of victims who portrayed victims for an audience of victims who, it was oddly assumed, would want to see their lives realistically portrayed.
+ - I don’t seem to be cynical to myself but how what I say goes down with others is their problem. I’m realistic.
+ - For the average American, freedom of speech is simply the freedom to repeat what everyone else is saying and no more.
+ - Southerners make good novelists: they have so many stories because they have so much family.
+ - Religions are manipulated in order to serve those who govern society and not the other way around.
+ - I think since Watergate people are interested in what the past of this country was really like.
+ - In writing and politicking, it’s best not to think about it, just do it.
+ - We’re the most captive nation of slaves that ever came along. The moral timidity of the average American is quite noticeable. Everybody’s afraid to be thought in any way different from everyone else.
+ - Write what you think, what you imagine, what you suspect!
+ - We must declare ourselves, become known; allow the world to discover this subterranean life of ours which connects kings and farm boys, artists and clerks. Let them see that the important thing is not the object of love, but the emotion itself.
+ - Most writers are middle-class and are the children of doctors or lawyers.
+ - Our rulers for more than half a century have made sure that we are never to be told the truth about anything that our government has done to other people, not to mention our own.
+ - France is a nation devoted to the false hypothesis on which it then builds marvelously logical structures.
+ - Before the cards that one is dealt by life are the cards that fate has dealt: one’s family.
+ - We should stop going around babbling about how we’re the greatest democracy on earth, when we’re not even a democracy. We are a sort of militarised republic.
+ - If you are at the mercy of what they call print interviews and the mercy of people who write about you, they can always tell lies.
+ - If you want to rise in politics in the United States, there is one subject you must stay away from, and that is politics.
+ - Nothing human is finally calculable; even to ourselves we are strange.
+ - The Americans are clever. They thoroughly understand things that have to do with money, war, death, sickness. And there is also a real tradition of skepticism in this country.
+ - Do nothing that is not natural – and ritual is natural – and all will be for the best.
+ - The theater needs continual reminders that there is nothing more debasing than the work of those who do well what is not worth doing at all.
+ - I don’t want anything. I don’t want a job. I don’t want to be respectable. I don’t want prizes. I turned down the National Institute of Arts and Letters when I was elected to it in 1976 on the grounds that I already belonged to the Diners Club.
+ - I deny that there’s such a thing as a gay person. I deny there’s such a thing as a heterosexual person.
+ - Since no one can ever know for certain whether or not his own view of life is the correct one, it is absolutely impossible for him to know if someone else’s is the wrong one.
+ - I liked the trichotomy, that’s the only thing I ever liked.
+ - At a certain age, you have to live near good medical care – if, that is, you’re going to continue. You always have the option of not continuing, which, I fear, is sometimes nobler.
+ - Some of my father’s fellow West Pointers once asked him why I turned out so well, his secret in raising me. And he said, “I never gave him any advice, and he never asked for any.” We agreed on nothing, but we never quarreled once.
+ - All Americans born between 1890 and 1945 wanted to be movie stars.
+ - The British are absolutely hung up on class, and whenever they start to really – class for the English is like sex for Americans: They start to shake all over when the subject comes up.
+ - How marvelous books are, crossing worlds and centuries, defeating ignorance and, finally, cruel time itself.
+ - Until the rise of American advertising, it never occurred to anyone anywhere in the world that the teenager was a captive in a hostile world of adults.
+ - I don’t see us winning the war. We have made enemies of one billion Muslims.
+ - I went to Europe to live in 1961. I’d never have written Julian if it hadn’t been for the sequestered life that I led in Rome and the classical library at the America Academy.
+ - Can you imagine having a love affair going on and on decade after decade? Macabre.
+ - The first TV babies are now writing with a TV mind that has no attention span at all.
+ - Miss Rand now tells us that what we have thought was right is really wrong. The lesson should have read: One for one and none for all.
+ - I have no television to go on so I get a lot of writing done. That’s my substitute for television.
+ - Gentlemen are not supposed to tell the truth about their sex lives, nor are ladies, for that matter. Of course Clinton lied – as would anybody in his position.
+ - The creation of a work of art, like an act of love, is our one small ‘yes’ at the center of a vast ‘no.’
+ - Come to me and show me a small cancer and I’ll tell you you’ve got a small cancer that should be cut out. That’s realism but in America it’s called cynicism.
+ - I came out of Capitol Hill. Well, that’s just not an ordinary background for a writer of the ordinary American sort.
+ - We’ve had parallel lives. And frankly, I prefer mine to his. I would not like to be George Bush.
+ - You can only have a war with another country. You can’t have a war with bad temper or a war against paranoids.
+ - Many writers who choose to be active in the world lose not virtue but time, and that stillness without which literature cannot be made.
+ - I like the distance that Europe gives me. Also if I stayed in America I’d be a full-time politician and have no time for writing, which is why I went to Europe to live in 1961.
+ - I said, well, it’s a very primitive country, the United States, and it’s full of superstitions, which come out of a very fundamental religious bias, which is primitive Christianity.
+ - Writing fiction has become a priestly business in countries that have lost their faith.
+ - Only a country that is based upon an extremely primitive religion, which is Christianity, I am a devoted enemy of monotheism in all of its forms, could have come with a categorizing of people as one thing or the other.
+ - There are certain truths so true that they are practically unbelievable.
+ - What is there to say, finally, except that pain is bad and pleasure good, life all, death nothing.
+ - It is curious how often one prefers his enemies to his friends.
+ - The only absolute attainment is absolute abandonment.
+ - No reform ever came from the bottom, and it was always people who understood how the ruling class worked who turned out to be the reformers.
+ - All in all, I would not have missed this century for the world.
+ - It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.
+ - All I want is that Americans still be able to read the alphabet in a hundred years. I am not very ambitious.
+ - I’m in favor of sexual encounters.
+ - I do not much care for nature, and believe that flowers belong in vases rather than loose and untidy on the ground.
+ - I am an obsessive rewriter, doing one draft and then another and another, usually five. In a way, I have nothing to say, but a great deal to add.
+ - I believe it’s my pastoral duty to convert friends to atheism.
+ - There are a great many people who have a vested interest in maintaining the stupidity of the American public.
+ - God, or what have you, will not be found at the far end of a syllogism, no matter how brilliantly phrased or conceived.
+ - Realism has always been called cynicism.
+ - The United States is my subject, but as Hawthorne once wrote, “the United States are suited for many admirable purposes, but not to live in.”
+ - I’d still like to be the President, of course, and I think the best way to do that would be to raise an army and seize the Capital. This strikes me as true democracy.
+ - What other culture could have produced someone like Hemmingway and not seen the joke?
+ - Somebody has to keep score and I decided I was going to do it. I’m a born score-keeper and I realize, like an umpire, that my decisions may cause distress.
+ - American writers want to be not good but great; and so are neither.
+ - There is no such thing as a true account of anything.
+ - The whole point to American journalism is what ought to be true is true.
+ - The more money an American accumulates, the less interesting he becomes.
+ - Politically, of course, it’s to the Right, but then the whole country is to the Right.
+ - Most writers write books that they wouldn’t read. I ought to know; I’ve done it myself.
+ - Americans worship the Constitution but do not observe it.
+ - I’m in Hollywood right now, surrounded by nothing but the sons and grandsons of movie stars.
+ - I never reread a text until I have finished the first draft. Otherwise it’s too discouraging.
+ - I do not admire ‘the people,’ as such. No one really does. Their folk wisdom is usually false, their instincts predatory. Even their sense of survival – so highly developed in the individual – goes berserk in the mass. A crowd is a fool.
+ - Everything’s wrong on Wikipedia.
+ - CO? emissions anywhere threaten civilisation everywhere.
+ - I am a born novelist, which does not happen all that often. There are people who try to write for a certain time, then they become Ministers of Culture under de Gaulle, and they begin living their own fictions.
+ - As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.
+ - In the town of Ravella, where I have a house, when the Supreme Court said that an act of sodomy, as they describe it, could not be committed between a man and his wife, the entire square burst into laughter.
+ - In a nation that has developed to a high art advertising, the creator who refuses to advertise himself is immediately suspected of having no product worth selling.
+ - I’d like to see a revival of state legislatures, in which I am a true Jeffersonian.
+ - Writers who teach tend to prefer literary theory to literature and tenure to all else. Writers who do not teach prefer the contemplation of Careers to art of any kind.
+ - The American vice is explanation.
+ - Where there is no desire or pursuits, there is no wholeness. But there are satisfying lesser states, fragments.
+ - I have never been particularly impressed by the self centered musings of my fellow writers.
+ - These are two opposing forces, and whenever I am in active politics, I stop writing. And when I’m writing, I don’t politick.
+ - I sometimes think it is because they are so bad at expressing themselves verbally that writers take to pen and paper in the first place.
+ - If you’re a critic of the rulers of the United States, you are either demonized, or you are trivialized by the press, and they do a very good job of making you into a non-person or a ridiculous person.
+ - Age bothers everybody. I was never narcissistic about my looks, but people thought that I should be so therefore I was.
+ - Sex was a great no-no for Americans, so that was obviously an attraction to the writers, and since sex is a great part of most people’s lives, it’s a great subject.
+ - Private lives should be no business of the State. The State is bad enough as it is. It cannot educate or medicate or feed the people; it cannot do anything but kill the people. No State like that do we want prying into our private lives.
+ - People in my situation get to read about themselves whether they want to or not. It’s generally wrong. Or oversimplified – which is sometimes useful.
+ - One’s neighbor is always the enemy. That is the nature of things.
+ - I suspect that one of the reasons we create fiction is to make sex exciting.
+ - You hear all this whining going on, ‘Where are our great writers?’ The thing I might feel doleful about is: ‘Where are the readers?’
+ - Movie acting, I later realized, reminds me of contract bridge. Each requires the same concentration, intense short-term memory, and obliviousness to everything else until the last trump is called – or whatever it is they do.
+ - World events are the work of individuals whose motives are often frivolous, even casual.
+ - Teaching has ruined more American novelists than drink.
+ - It is reasonable to assume that, by and large, what is not read now will not be read, ever. It is also reasonable to assume that practically nothing that is read now will be read later.
+ - Nothing is durable, I think anybody who thinks sex is durable is going to have a lot of grief.
+ - The best novelist of my generation is an Italian living in Paris, still working and improving – Italo Calvino.
+ - In America, the race goes to the loud, the solemn, the hustler. If you think you’re a great writer, you must say that you are.
+ - Now you have people in Washington who have no interest in the country at all. They’re interested in their companies, their corporations grabbing Caspian oil.
+ - Democracy is supposed to give you the feeling of choice, like Painkiller X and Painkiller Y. But they’re both just aspirin.
+ - Celebrities are invariably celebrity-mad, just as liars always believe liars.
+ - It never occurred to any Enlightenment figure in the eighteenth century that law was not preferable to man.
+ - I don’t think contemporary writers spend a lot of time reading each other. Particularly writers of the same nationality.
+ - The Gores, I think, are a bit brighter than the Bushes, historically speaking.
+ - The greatest pleasure when I started making money was not buying cars or yachts but finding myself able to have as many freshly typed drafts as possible.
+ - American laws don’t work, but at least the laws of physics might work.
+ - In Southern Europe, we have, of course, very bad governments.
+ - When the Presidential virus attacks the system there is a tendency for the patient in his fever to move from the Right or the Left to the Center where the curative votes are.
+ - From the age of 1 to 6 there is a small percentage that is exclusively homosexual, a small percentage heterosexual and there’s a wide band in the middle of people who respond to various stimuli. A little bit here, a little more there.
+ - What we are is seldom what we want to be, while what we want to be is either denied us or changes with the seasons.
+ - Some writers take to drink, others take to audiences.
+ - The most interesting thing about writing is the way that it obliterates time. Three hours seem like three minutes.
+ - To a man, ornithologists are tall, slender, and bearded so that they can stand motionless for hours, imitating kindly trees, as they watch for birds.
+ - Television is now so desperately hungry for material that they’re scraping the top of the barrel.
+ - USA is suffering between imperialists and anti-imperialists. That is the situation. The most powerful country in the world is on its way back to the Stone Age.
+ - I was brought up to believe that what is out-of-doors should stay there and not be encouraged in any way.
+ - Anybody, at any time, may equally find himself victim or executioner.
+ - Apparently, a democracy is a place where numerous elections are held at great cost without issues and with interchangeable candidates.
+ - I write in the morning at a table, longhand on yellow legal pads, just like Nixon, when I’m doing fiction.
+ - The behaviour of President Bush on 11 September certainly gives rise to not unnatural suspicions.
+ - Americans are not only a less homogenous population than we were when we were 3 million ex-colonists, but we’re less educated. On top of that, we have constant misinformation and manipulation by media.
+ - Of course his dust would be absorbed in other living things and to that degree at least he would exist again, though it was plain enough that the specific combination which was he would never exist again.
+ - If you’re not part of that club, as I certainly am not, you are not presidential.
+ - I started to read my first book at about the age of six. I started to write a book simultaneously. Not to compete, just to augment. And that’s how one starts. Or I started.
+ - What is in question is a kind of book reviewing which seems to be more and more popular: the loose putting down of opinions as though they were facts, and the treating of facts as though they were opinions.
+ - Never have children, only grandchildren.
+
+331 quotes

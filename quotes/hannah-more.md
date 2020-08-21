@@ -1,0 +1,111 @@
+ - A small unkindness is a great offence.
+ - Absence in love is like water upon fire; a little quickens, but much extinguishes it.
+ - Prayer is not eloquence, but earnestness; not the definition of helplessness, but the feeling of it; not figures of speech, but earnestness of soul.
+ - Small habits well pursued betimes May reach the dignity of crimes.
+ - Did not God Sometimes withhold in mercy what we ask, We should be ruined at our own request.
+ - If faith produce no works, I see That faith is not a living tree. Thus faith and works together grow, No separate life they never can know. They’re soul and body, hand and heart, What God hath joined, let no man part.
+ - To be good and disagreeable is high treason against the royalty of virtue.
+ - The ingenuity of self-deception is inexhaustible.
+ - Oh! the joy Of young ideas painted on the mind, In the warm glowing colors fancy spreads On objects not yet known, when all is new, And all is lovely.
+ - Since trifles make the sum of human things, And half our misery from our foibles springs.
+ - Imagination frames events unknown, In wild, fantastic shapes of hideous ruin, And what it fears creates.
+ - Pride never sleeps. The principle at least is always awake. An intemperate man is sometimes sober, but a proud man is never humble.
+ - The world does not require so much to be informed as to be reminded.
+ - Proportion and propriety are among the best secrets of domestic wisdom; and there is no surer test of integrity than a well-proportioned expenditure.
+ - Subduing and subdued, the petty strife, Which clouds the colour of domestic life; The sober comfort, all the peace which springs From the large aggregate of little things; On these small cares of daughter, wife or friend, The almost sacred joys of home depend.
+ - To those who know thee not, no words can paint! And those who know thee, know all words are faint!
+ - Life though a short, is a working day. Activity may lead to evil; but inactivity cannot be led to good.
+ - The secret heart is fair devotion’s temple; there the saint, even on that living altar, lights the flame of purest sacrifice, which burns unseen, not unaccepted.
+ - Prayer is not eloquence but earnestness.
+ - If I wished to punish my enemy, I should make him hate somebody.
+ - The soul on earth is an immortal guest.
+ - Where bright imagination reigns, the fine-wrought spirit feels acuter pains.
+ - Affliction is the school in which great virtues are acquired, in which great characters are formed.
+ - That silence is one of the great arts of conversation is allowed by Cicero himself, who says, there is not only an art, but even an eloquence in it.
+ - In grief we know the worst of what we feel but who can tell the end of what we fear?
+ - People talk as if the act of death made a complete change in the nature, as well as in the condition of man. Death is the vehicle to another state of being, but possesses no power to qualify us for that state. In conveying us to a new world it does not give us a new heart.
+ - The keen spirit seizes the prompt occasion.
+ - Love never reasons, but profusely gives; it gives like a thoughtless prodigal its all, and then trembles least it has done to little...
+ - A slowness to applaud betrays a cold temper or an envious spirit.
+ - It is not so important to know everything as to know the exact value of everything, to appreciate what we learn and to arrange what we know.
+ - Who are those ever multiplying authors that with unparalleled fecundity are overstocking the world with their quick succeeding progeny? They are novel-writers...
+ - Anger is the common refuge of insignificance. People who feel their character to be slight, hope to give it weight by inflation: but the blown bladder at its fullest distention is still empty.
+ - Perfect purity, fullness of joy, everlasting freedom, perfect rest, health and fruition, complete security, substantial and eternal good.
+ - When you are disposed to be vain of your mental acquirements, look up to those who are more accomplished than yourself, that you may be fired with emulation; but when you feel dissatisfied with your circumstances, look down on those beneath you, that you may learn contentment.
+ - Gentleness is the outgrowth of benignity.
+ - Yes, thou art ever present, power divine; not circumscribed by time, nor fixed by space, confined to altars, nor to temples bound. In wealth, in want, in freedom, or in chains, in dungeons or on thrones, the faithful find thee.
+ - If a young lady has that discretion and modesty without which all knowledge is little worth, she will never make an ostentatious parade of it, because she will rather be intent on acquiring more than on displaying what she has.
+ - Outward attacks and troubles rather fix than unsettle the Christian, as tempests from without only serve to root the oak faster; while an inward canker will gradually rot and decay it.
+ - What ascends up in prayer descends to us again in blessings. It is like the rain which just now fell, and which had been drawn up from the ground in vapors to the clouds before it descended from them to the earth in that refreshing shower.
+ - A faint endeavor ends in a sure defeat.
+ - Depart from discretion when it interferes with duty.
+ - One kernel is felt in a hogshead; one drop of water helps to swell the ocean; a spark of fire helps to give light to the world. None are too small, too feeble, too poor to be of service. Think of this and act.
+ - Sow an action, reap a habit.
+ - All desire the gifts of God, but they do not desire God.
+ - Of two evils, had not an author better be tedious than superficial! From an overflowing vessel you may gather more, indeed, than you want, but from an empty one you can gather nothing.
+ - Our infinite obligations to God do not fill our hearts half as much as a petty uneasiness of our own; nor His infinite perfections as much as our smallest wants.
+ - I used to wonder why people should be so fond of the company of their physician, till I recollected that he is the only person with whom one dares to talk continually of oneself, without interruption, contradiction or censure; I suppose that delightful immunity doubles their fees.
+ - Everything which relates to God is infinite. We must therefore, while we keep our hearts humble, keep our aims high. Our highest services are indeed but finite, imperfect. But as God is unlimited in goodness, He should have our unlimited love.
+ - No man ever repented of being a Christian on his death bed.
+ - The wretch who digs the mine for bread, or ploughs, that others may be fed, feels less fatigued than that decreed to him who cannot think or read.
+ - Anger is a violent act, envy a constant habit – no one can be always angry, but he may be always envious...
+ - We are apt to mistake our vocation by looking out of the way for occasions to exercise great and rare virtues, and by stepping over the ordinary ones that lie directly in the road before us.
+ - The roses of pleasure seldom last long enough to adorn the brow of him who plucks them; for they are the only roses which do not retain their sweetness after they have lost their beauty.
+ - Commending a right thing is a cheap substitute for doing it, with which we are too apt to satisfy ourselves.
+ - No adulation; ’tis the death of virtue; Who flatters, is of all mankind the lowest Save he who courts the flattery.
+ - Wisdom views with an indifferent eye all finite joys, all blessings born to die.
+ - I am persuaded that there is no affection of the human heart more exquisitely pure, than that which is felt by a grateful son towards a mother...
+ - If I wanted to punish an enemy it should be by fastening on him or her the trouble of constantly hating somebody.
+ - In men this blunder still you find; all think their little set mankind.
+ - My plan of instruction is extremely simple and limited. They learn, on week-days, such coarse works as may fit them for servants. I allow of no writing for the poor. My object is not to make fanatics, but to train up the lower classes in habits of industry and piety.
+ - Man can see his reflection in water only when he bends down close to it, and the heart of man, too, must lean down to the heart of his fellow; then it will see itself within his heart.
+ - Idleness among children, as among men, is the root of all evil, and leads to no other evil more certain than ill temper.
+ - Repentance is not completed by a single act, it must be incorporated into our mind, till it become a fixed state, arising from a continual sense of our need of it.
+ - The artful injury, whose venomed dart scarce wounds the hearing, while it stabs the heart.
+ - Rage is for little wrongs; despair is dumb.
+ - Names govern the world.
+ - O jealousy, Thou ugliest fiend of hell! thy deadly venom Preys on my vitals, turns the healthful hue Of my flesh check to haggard sallowness, And drinks my spirit up!
+ - It is an excellent sign, that after the cares and labors of the day, you can return to your pious exercises and meditations with undiminished attention.
+ - When we read, we fancy we could be martyrs; when we come to act, we cannot bear a provoking word.
+ - Forgiveness saves the expense of anger.
+ - Long habit so reconciles us to almost any thing, that the grossest improprieties cease to strike us when they once make a part of the common course of action.
+ - If faith produce no works, I see That faith is not a living tree.
+ - It is doing some service to humanity, to amuse innocently. They know but little of society who think we can bear to be always employed, either in duties or meditation, without relaxation.
+ - Affliction is a sort of moral gymnasium in which the disciples of Christ are trained to robust exercise, hardy exertion, and severe conflict.
+ - Our merciful Father has no pleasure in the sufferings of His children; He chastens them in love; He never inflicts a stroke He could safely spare; He inflicts it to purify as well as to punish, to caution as well as to cure, to improve as well as to chastise.
+ - How much it is to be regretted, that the British ladies should ever sit down contented to polish, when they are able to reform; to entertain, when they might instruct; and to dazzle for an hour, when they are candidates for eternity!
+ - A corrupt practice may be abolished, but a soiled imagination is not easily cleansed.
+ - If we commit any crime, or do any good here, it must be in thought; for our words are few and our deeds none at all.
+ - Goals help you overcome short-term problems.
+ - Sound economy is a sound understanding brought into action; it is calculation realized; it is the doctrine of proportion reduced to practice; it is foreseeing contingencies, and providing against them.
+ - Those who want nothing are apt to forget how many there are who want every thing.
+ - Pleasure is by much the most laborious trade I know, especially for those who have not a vocation to it.
+ - Luxury! more perilous to youth than storms or quicksand, poverty or chains.
+ - Sweet is the breath of praise when given by those whose own high merit claims the praise they give.
+ - We do not so much want books for good people, as books which will make bad ones better.
+ - The misfortune is, that religious learning is too often rather considered as an act of the memory than of the heart and affections; as a dry duty, rather than a lively pleasure.
+ - Glory darts her soul-pervading ray on thrones and cottages, regardless still of all the artificial nice distinctions vain human customs make.
+ - All reformations seem formidable before they are attempted.
+ - Youth has a quickness of apprehension, which it is very apt to mistake for an acuteness of penetration.
+ - There are only two bad things in this world, sin and bile.
+ - Strange! that what is enjoyed without pleasure cannot be discontinued without pain!
+ - The abuse of terms has at all times been an evil.
+ - It is the large aggregate of small things perpetually occurring that robs me of all my time. The expense of learning to read might have been spared in my education, for I never read.
+ - Genius without religion is only a lamp on the outer gate of a palace; it may serve to cast a gleam of light on those that are without, while the inhabitant sits in darkness.
+ - Resentment is an evil so costly to our peace that we should find it more cheap to forgive even were it no more right.
+ - It is a sober truth that people who live only to amuse themselves work harder at the task than most people do in earning their daily bread.
+ - Temptation does not make the sin, it lies ready in the heart.
+ - There is one single fact that one may oppose to all the wit and argument of infidelity; namely, that no man ever repented of being a Christian on his deathbed.
+ - Where evil may be done, it is right to ponder; where only suffered, know the shortest pause is much too long.
+ - We have employments assigned to us for every circumstance in life. When we are alone, we have our thoughts to watch; in the family, our tempers; and in company, our tongues.
+ - Indeed, I have, alas! outlived almost every one of my contemporaries. One pays dear for living long.
+ - When thou hast truly thanked the Lord for every blessing sent, But little time will then remain for murmur or lament.
+ - To hint at a fault does more mischief than speaking out; for whatever is left for the imagination to finish will not fail to be overdone...
+ - The ubiquity of the Divine presence is the only true support, and I am sometimes astonished how persons, who evidently do not possess that grand source of consolation, keep up their spirits under trials and difficulties. It must be owing to careless tempers and nerves of brass.
+ - It is a part of Christianity to convert every natural talent to a religious use.
+ - Luxury and dissipation, soft and gentle as their approaches are, and silently as they throw their silken chains about the heart, enslave it more than the most active and turbulent vices.
+ - He who has once taken to drink can seldom be said to be guilty of one sin only...
+ - There is scarcely any fault in another which offends us more than vanity, though perhaps there is none that really injures us so little.
+ - Going to the opera, like getting drunk, is a sin that carries its own punishment with it.
+
+109 quotes

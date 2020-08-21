@@ -1,0 +1,86 @@
+ - Don’t stop chasing your dreams, because dreams do come true.
+ - It’s important to work hard – there’s no short cut around that.
+ - People throw stones at you and you convert them into milestones.
+ - I have never tried to compare myself to anyone else.
+ - It’s mental discipline that sets one apart, the ability to think differently and to generate energy in the right direction.
+ - I just want to continue the way I am going.
+ - Making an effort is in your hands. Giving 100% is in your hands.
+ - If you don’t execute on your plans, then you don’t reach anywhere.
+ - Commit all your crimes when Sachin is batting. They will go unnoticed because even the Lord is watching.
+ - I’m confident and I trust my instincts.
+ - I am not thinking too far ahead, just want to take it one thing at a time.
+ - I hate losing and cricket being my first love, once I enter the ground it’s a different zone altogether and that hunger for winning is always there.
+ - Having, and seeing, your dreams is very important, and so is chasing those dreams. You see dreams when you sleep, and as you chase your dreams, it keeps you awake. So it’s important to stay awake.
+ - I am a Maharashtrian and I am extremely proud of that. But I am an Indian first. And Mumbai belongs to all Indians.
+ - When there is time to think about cricket, I think but when there is time to be with family, I try to do justice to that aspect of my life as well.
+ - I played under many Captains, but Dhoni is the one, who fulfilled my Dream of winning World Cup.
+ - I used to crack A joke when Sourav Ganguly is upset and make him happy, i usually speak in bengali which would make him laugh.
+ - I always had a dream to play for India but I never let it put pressure on me.
+ - I really like Iceland. One of the nicest things about it is that I hardly ever had to reach for my credit card. There’s practically nothing there to go shopping for.
+ - I get 0.5 seconds to react to a ball, sometimes even less than that. I can’t be thinking of what XYZ has said about me. I need to surrender myself to my natural instincts. My subconscious mind knows exactly what to do. It is trained to react. At home, my family doesn’t discuss media coverage.
+ - It doesn’t always happen according to the way you have planned things out but I feel if you have covered most of the aspects, it does help out there in the middle.
+ - I couldn’t have asked for anything more than this. Winning the World Cup is the proudest moment of my life. Thanks to my team-mates. Without them, nothing would have happened. I couldn’t control my tears of joy.
+ - New Zealand’s Daniel Vettori is a very good bowler.
+ - I want to give my six hours of serious cricket on the ground and then take whatever the result.
+ - Every individual has his own style, his own way of presenting himself on and off the field.
+ - I feel when somebody has been playing cricket for a long time, he creates a separate identity for himself.
+ - I never played with a runner in my entire life, even in schools, because only I know where the ball is going and how hard, when I hit the ball, something my runner will never know about.
+ - I just keep it simple. Watch the ball and play it on merit.
+ - It’s hard for me to imagine a life without playing cricket because it’s all I have ever done since I was 11 years old.
+ - It is my job to make runs for the country and win. That is the job I have to do.
+ - When I walk into bat, I should know that ‘Yes, I’ve prepared to the best of my ability. I couldn’t have done anything better.’ That is when I feel that I am ready to go out and play.
+ - There have been ups and downs, but it has taught us a lot in life. Going with the team through those ups and downs is a terrific journey.
+ - I fail sometimes, I succeed sometimes, so that’s fair enough. It’s a package deal. It comes with that package: failures and success.
+ - If efforts to do social work are couched in selfish motives, then they will die a premature death. Why would my efforts get politicised? I have values I inherited from my father. He helped many. Anyone, even a postman knocking on our door would get a glass of water and some sweets.
+ - I believe in controlling the control elements. Something where we don’t have control on certain things, those things you obviously cannot waste your energy in trying to figure out ‘How can I control this?’ You would much rather focus all your energy on the things that you can control.
+ - Even my father’s name is Sachin Tendulkar.
+ - My point of view is that when I am playing cricket I cannot think that this game is less or more important.
+ - Obviously if you’re positive, then there’s positive energy flowing in your body. The moments are smoother – thought process is smoother. But if there is doubt, then also your body’s not going to move that well, your thought process is not clear.
+ - At least with me, the match starts much, much earlier than the actual match.
+ - But eventually it is a game of cricket.
+ - To me, pre-match preparation is extremely important because that’s something which is within my control.
+ - In any profession, there are always ups and downs.
+ - The only thing that was on my mind was, ‘I want to play for India one day,’ and I was pretty sure and confident that one day I will.
+ - Sourav’s greatest strength is his mind. He is hardworking – not only in the nets but also mentally. He bounces back.
+ - Before you lay a foundation on the cricket field, there should be a solid foundation in your heart and you start building on that. After that as you start playing more and more matches, you learn how to score runs and how to take wickets.
+ - It’s important not to take anything for granted.
+ - Along with the talent, you also need direction.
+ - It is important to understand that if you do fall, it’s important for you to get right back up again.
+ - Before coming here I had a minor back problem and I thought whenever I play Pakistan I get a back problem.
+ - Let us celebrate the spirit of sport through the National Games.
+ - I am a sportsman and not a politician. I am a sportsman and will always remain one. I am not going to enter politics giving up cricket, which is my life. I will continue to play cricket.
+ - Obviously after such a long gap, one itches to get back to the game and score big runs.
+ - Great individuals and great performances build a team, which produces brilliant performances.
+ - When I was 15, I started playing first class cricket and always dreamt of being a Test cricketer, wanted to do something for the country, married in 1995, have 2 kids it’s been great.
+ - At the start of my career, when I used to toss and turn at night, I was fighting that feeling and wanting to go to sleep. Now I know that’s normal, so I’ll just get up and watch TV or something. I know it’s just my subconscious mind getting ready for a game.
+ - I grew up looking at my father as to how to behave. In watching him I grasped so many things. His own temperament was of a calm person. He was very composed and I never saw anger in him. To me, that was fascinating.
+ - Dhoni Is The Best Captain I Have Played Under.
+ - I’m really focusing now on how I can get to the next level as a batsman. How can I get even more competitive? How can I get even more consistent? How can I get better?
+ - Sometimes I need to look at the scoreboard to figure out whether I’m batting hundred-plus or whether I am on zero.
+ - Wasim and Waqar were amazing bowlers. I would put them right up there with the best in the world.
+ - Some people call it fearless, some people call it confidence. And I feel I’m confident of whatever I do.
+ - The Australian tour was good for us; it was ideal preparation for us.
+ - It’s about not accepting every challenge thrown at you. Sometimes you hold back and when it’s needed you go for it.
+ - Critics haven’t taught me my cricket, and they don’t know what my body and mind are up to.
+ - I have never believed in comparisons, whether they are about different eras, players or coaches.
+ - I have played for 15 years and it has been a dream.
+ - From the spinners, Anil and I have been together for a long time and I respect him a lot.
+ - I believe every era has its significance and the same holds true for players and coaches.
+ - And that is the reason why this victory is great, because different players have made contributions to the win.
+ - Shoaib Akhtar has been playing for 5, 6 years and is an experienced bowler.
+ - Lara’s done very well recently and I never had any doubts about the abilities of Lara or Waugh.
+ - Isn’t cricket supposed to be a team sport? I feel people should decide first whether cricket is a team game or an individual sport.
+ - If one man is representing India in cricket, then yes, blame that person when things go wrong.
+ - I need at least two months to try and figure out where the centre of the bat is.
+ - As a kid I loved John McEnroe. They called me Mac because, while everyone else liked Borg, I was crazy about McEnroe. I tried wearing headbands and sweatbands, and whooping at people. It didn’t quite work.
+ - I have never thought where I will go, or forced any targets on myself.
+ - Schools across India do not have teachers, libraries, playing grounds and even toilets. I do not want to see empty classrooms, empty libraries. I do not want to see cattle grazing on fields meant to be cricket or football grounds.
+ - Any team sport, there are certain team targets and those targets should always be in the forefront.
+ - Beating Pakistan is always special because they are a tough team and we have a bit if a history regarding Pakistan.
+ - I am excited about Indian Grand Prix F1 race. I will support the Force India team. I have friends like Michael Schumacher but I will support Force India because that is the Indian team and country comes first.
+ - It has been very good here, but the World Cup game was different. It had a different significance to it.
+ - There are a few players who don’t like to think about the game.
+ - I am not going to come back and play IPL. Have a few plans and may play a few matches here and there.
+ - The International Cricket Calender shouldn’t be so packed with action that it drives spectators away. Also there should be enough space between cricket events to help players recharge their batteries – not just physically but mentally too.
+
+84 quotes

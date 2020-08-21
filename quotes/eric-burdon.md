@@ -1,0 +1,38 @@
+ - Inside each of us, there is the seed of both good and evil. It’s a constant struggle as to which one will win. And one cannot exist without the other.
+ - Everything changes and, somewhere along the line, I’m changing with it.
+ - I don’t think I’ve ever changed. I am only one person, it’s just me. I’m confident and I’m quite happy with who I am, but it’s my life and I’ll be what I want.
+ - The basis of everything that I plugged into when I was younger was blues, and it always stayed with me.
+ - Everything I do – if I do it, is going to be personal.
+ - You’ve got to create a dream. You’ve got to uphold the dream. If you can’t, go back to the factory or go back to the desk.
+ - If you think that UFOs will come and save you, don’t be fooled. The Nazis invented UFOs...
+ - It’s more important what you leave to people on this planet. I want my legacy to exist now, currently, not after I’m gone.
+ - This really blew my mind, the fact that me, an over fed, long haired, leaping gnome, should be the star of a Hollywood movie.
+ - I’m not bitter, I’m bittersweet.
+ - The Animals were their own worst enemy. The Animals were a band that couldnt live up to their name. I was the singer in the band and as long as I was enjoying myself I would keep on working with the band. But it got to be rather nasty once the big money showed up – things started to turn toxic.
+ - I may sing the same songs for over 40 years now but I always sing them in different ways in order to keep the excitement and passion alive.
+ - I always wanted to be a Californian. In my wildest dreams, I always liked California – it’s the place where oranges grows on trees! Fruit just falls off the trees.
+ - My activism was, and is, unknown, unannounced, but somehow effective.
+ - There are so many times in one’s life, when one feels he has nothing more to offer. But no, my river has not run dry.
+ - I did have a life before the Animals, and I’m trying constantly to prove that I have a life after the Animals. People tend to forget that I was the frontman with War for two years. People sort of have compartmental memories.
+ - It’s the need for change that drives us to join forces with our brothers and sisters all around the world – but change is slow.
+ - I look upon The Animals, they were a great band initially, we left our mark, but thing was it was a band that couldn’t live up to its name so I soldiered on. On one level, it was devastating for a while. On another level, maybe I should thank them for helping me make my own way in my own career.
+ - In a nut shell, air travel is the worst part about touring.
+ - In the day-to-day life of a traveling musician, it’s easy to miss so many details. The world goes by at high-speed; it will take your breath away.
+ - Britain, and my hometown, will always be with me wherever I go and whatever I do – but I prefer to live in California.
+ - OK, I’ve had a life of sort of success, some people know who I am but a lot of people don’t. I feel the need to change that still.
+ - I have a life beyond performance. I love it, and it probably is the better part of my life, but I do have another life.
+ - Having lived in the arid deserts of Southern California since the 1970s, my interest in water conservation is a very personal concern. Water! The source of life! Some people are squandering the world’s most precious resource while others have too little clean water to drink.
+ - I feel great that I’ve been given a chance in the golden years of my life. To me, it’s the last battle, and I’ve been given a chance to get stuck in some good armament, some good power, and there’s a chance that now I can finish off my working years with my head held high.
+ - I’ve got a great dislike of reunions. It’s a little like trying to go back and relive the best parts of your life, but you can’t do it. Nothing is ever the same.
+ - As far as the Animals breaking up – it was my fault. I wanted out. We took it to the max, as far as we could take it. Our reunion tour in 1983 went pretty good until we left America. Then we pushed it too hard and it fell apart.
+ - I tried to reach the combatants with my music. I tried to turn my anger into something positive. Myself, and others like me, just tried to keep rock and roll alive.
+ - From my personal point of view, the Animals are dead. They killed themselves.
+ - The rock biz is the low end of the creative world. Faces come and go so fast.
+ - Recording – once something’s done, it’s done, there’s not much you can do about it. It’s out there and you just have to pray to the gods.
+ - I used to hang out a lot in jazz clubs, and the groups took to a kid like me who wasn’t afraid to get up and sing with a jazz band. Then I started to hang out in rock clubs and learned to carry off different styles.
+ - My voice? Yeah, well, I used to drink a lot of beer when I was a kid and I sounded like a drunk in a choir. I don’t drink anymore.
+ - I don’t think Jimi committed suicide in the conventional way. He just decided to exit when he wanted to.
+ - Have you seen ‘American Idol’ lately? I’m sure that some kids somewhere at this moment are thrashing themselves silly over what they call ‘Rock n’ Roll.
+ - Blues was made for the recessed.
+
+36 quotes

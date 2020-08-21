@@ -1,0 +1,502 @@
+ - Life sucks, and then you die...
+ - I like the night. Without the dark, we’d never see the stars.
+ - And so the lion fell in love with the lamb.
+ - You really should stay away from me.
+ - I love you more than anything in the world combined.
+ - You’re not the center of the universe, you know.
+ - I promise to love you forever – every single day of forever.
+ - What am I dying for?
+ - You are the most beautiful thing in my world.
+ - When you can live forever what do you live for?
+ - Sometimes I’m afraid that I’m losing myself.
+ - Death is Peaceful, Life is Harder.
+ - I hate myself for liking you.
+ - When life offers you a dream so far beyond any of your expectations, it’s not reasonable to grieve when it comes to an end.
+ - I promise that this will be the last time you’ll see me. I won’t come back. I won’t put you through anything like this again. You can go on with your life without any more interference from me. It will be as if I’d never existed.
+ - I’ll be back so soon you won’t have time to miss me. Look after my heart I’ve left it with you.
+ - I’d been broken beyond repair.
+ - No measure of time with you will be long enough, but we’ll start with forever.
+ - And then we continued blissfully into this small but perfect piece of our forever.
+ - I decided as long as I’m going to hell, I might as well do it thoroughly.
+ - Today is the first and last day of forever.
+ - You live a thousand lives when you read a thousand books.
+ - I am Switzerland. I refuse to be affected by territorial disputes between mythical creatures.
+ - Perhaps without the lows, the highs could not be reached.
+ - It’s not the face, but the expressions on it. It’s not the voice, but what you say. It’s not how you look in that body, but the thing you do with it. You are beautiful.
+ - Perhaps there could be no joy on this planet without an equal weight of pain to balance it out on some unknown scale.
+ - Sometimes you have to learn to love what’s good for you.
+ - What if I’m not a superhero. What if I’m the bad guy?
+ - Age is just a number baby, what are you now? 40?
+ - I want you, and I want you forever. One lifetime is simply not enough for me.
+ - Idiot! Lunatic! Moron! Jackass! Selfish irresponsible fool!
+ - You and I won’t lose each other, I will always find you again. No matter how well you hide. I’m unstoppable.
+ - And third, I was unconditionally and irrevocably in love with him.
+ - You’re not asleep, and you’re not dead. I’m here, and I love you. I have always loved you, and I will always love you. I was thinking of you, seeing your face in my mind, every second that I was away. When I told you that I didn’t want you, it was the very blackest kind of blasphemy.
+ - The only reason I left was to protect you.
+ - Lie to me. she whispered. I love you. he said.
+ - Time passes. Even when it seems impossible. Even when each tick of the second hand aches like the pulse of blood behind a bruise. It passes unevenly, in strange lurches and dragging lulls, but pass it does. Even for me.
+ - Look after my heart – I’ve left it with you.
+ - It Will Be As If I Never Existed.
+ - I’ve chosen my life – now I want to start living it.
+ - Bring on the shackles – I’m your prisoner.
+ - Do I dazzle you?
+ - Whatever end found us, it would not find us separated. – Bella Cullen.
+ - I honestly have no idea how to live without you.
+ - I belong wherever I want to be.
+ - You are the most important thing to me now. The most important thing to me ever.
+ - Yeah, I’ll always be your friend. No matter what you love.
+ - Please don’t run away. And, um, I’d rather you didn’t kick me again either.
+ - Her existence alone was excuse enough to justify the creation of the entire world.
+ - Like a stalker. An obsessed stalker. An obsessed, vampire stalker.
+ - Could I betray my absent heart to save my pathetic life?
+ - Someone has to spread the good news that we survived.
+ - Even if we all want you here, you don’t belong until you decide you do.
+ - The waves of pain that had only lapped at me before now reared high up and washed over my head, pulling me under. I did not resurface.
+ - Hasn’t anyone ever told you? Life isn’t fair.
+ - Love doesn’t always come in convenient packages.
+ - I love a happy ending. They are so rare.
+ - It never made sense for you to love me.
+ - Becoming a vampire is forever. You don’t get to change your mind about it later. For me, I think that’s one of the big drawbacks with anything that’s permanent. How do you know how you’re going to feel in five years or 10 years? Even with a tattoo.
+ - Strange world isn’t it?
+ - Hate is a passionate emotion.
+ - Don’t worry, Mel. Miracles don’t work that way. I’ll never lose you. I’ll never let you get away from me.
+ - After all the planets and all the hosts you’ve left behind, you’ve finally found the place and the body you’d die for. I think you’ve found your home, Wanderer.
+ - His voice was like honey and velvet. “Death, that hath sucked the honey of thy breath, hath had no power yet upon thy beauty,” he murmured, and I recognized the line spoken by Romeo in the tomb.
+ - He’s playing every bit as hard as I am, only he knows what he’s doing and I don’t. Don’t blame me because he’s a better manipulator than I am – I haven’t been around long enough to learn all his tricks.
+ - The smile broke across his face the way the sunrise set the clouds on fire...
+ - Fall down again, Bella?? No, Emmett, I punched a werewolf in the face.
+ - It was nice to be alone, not to have to smile and look pleased; a relief to stare dejectedly out the window at the sheeting rain and let just a few tears escape.
+ - There was a different ending to New Moon originally. It was a much quieter book. It was very much all in Bellas head.
+ - I have an immature, Homer Simpson-like tendency to giggle when I say the words ‘seminal fluids’ in public.
+ - I wanted him like I wanted air to breathe. Not a choice- a necessity.
+ - Leave it to you, Bella. Anyone else would be better off when the vampires left town. But you have to start hanging out with the first monsters you can find.
+ - You may have taken the planet, but you will lose this game!
+ - I shuddered at the image in my head, at the word feed. But Jasper wasn’t worried about frightening me, not overprotective like Edward always was.
+ - Your scent is like a drug to me like my own personal brand of heroin.
+ - Twilight, again. Another ending. No matter how perfect the day is, it always has to end.
+ - When you can’t be with the one you love, will you stay with the one who loves you?
+ - I, the soul called Wanderer, love you, human Ian. And that will never change, no matter what I might become.
+ - I’m gonna fight for you, until your heart stops beating.
+ - Do you have a multiple personality disorder?
+ - The wasting of finite resources is everyones business.
+ - Sometimes the best hiding place is the one that’s in plain sight.
+ - Don’t be self-conscious, if I could dream at all, it would be about you. And I’m not ashamed of it.
+ - Do you think I’ll ever get better at this? That my heart might someday stop trying to jump out of my chest whenever you touch me?
+ - But the absence of him is everywhere I look. It’s like a huge hole has been punched through my chest.
+ - Would you like to hear my story, Bella? It doesn’t have a happy ending – but which of ours does? If we had happy endings, we’d all be under gravestones now.
+ - Nature taking its course – hunter and prey, the endless circle of life and death.
+ - Now and then I see something in her eyes, and I wonder if I’ve ever grasped how much pain she’s really in.
+ - I’m just going to do what I want now, and let the chips fall where they may.
+ - Just because I’m resisting the wine doesn’t mean I can’t appreciate the bouquet.
+ - You haven’t changed at all. I expected a perceptible difference, but here you are, red-faced just like always.
+ - About three things I was absolutely positive. First, Edward was a vampire. Second, there was a part of him-and I didn’t know how potent that part might be-that thirsted for my blood. And third, I was unconditionally and irrevocably in love with him.
+ - Don’t let anyone tell you that high school is supposed to be fun. High school is to be endured. College is fun.
+ - He’s like a drug for you, Bella.
+ - Kryptonite doesn’t bother me, either.
+ - Tonight the sky was utterly black. Perhaps there was no moon tonight – a lunar eclipse, a new moon. A new moon. I shivered, though I wasn’t cold.
+ - Inspiration in desperation.
+ - Edward: It wasn’t the worst night of my life. Jake: Did it make the top ten? Edward: Possibly. But, if I had been able to take your place last night, it would not have made the top ten of the best nights of my life. Dream about that.
+ - I would always love this fragile human girl, for the rest of my limitless existence.
+ - He was my best friend. I would always love him, and it would never, ever be enough.
+ - Listen up, Wanda. I know exactly what you don’t want to be. But we’re human, and we’re selfish, and we don’t always do the right thing. We aren’t going to let you go. Deal with it.
+ - May the best man win That’s about right pup.
+ - What am I going to do with you? Yesterday I kiss you, and you attack me! Today you pass out on me!
+ - Happiness expanded like an explosion inside me – so extreme, so violent that I wasn’t sure I’d survive it.
+ - I know the exact date that I began writing Twilight, because it was also the first day of swim lessons for my kids. So I can say with certainty that it all started on June 2, 2003.
+ - Stupid, shiny Volvo owner.
+ - In my head, Carlisle’s kind eyes did not judge me. I knew that he would forgive me for this horrible act that I would do. Because he loved me. Because he thought I was better than I was. And he would still love me, even as I now proved him wrong.
+ - Why can you believe the lie, but not the truth?
+ - It was all very childish. Why on earth should Edward have to leave for Jacob to come over? Weren’t we past this immaturity?
+ - Just snow and sapphire and ink.
+ - If you turned the fabric of our lives over, I imagined the design on the backside would be woven in the bleak grays of doubt and fear.
+ - I watched his fingers clench and unclench, and I wondered if he was dreaming that they were wrapped around my neck.
+ - It was amazing how instantaneously the choking fear vanished, amazing how suddenly the feeling of security washed over me – even before I was off the street – as soon as I heard his voice.
+ - Bella, it’s not my fault if you are exceptionally unobservant.
+ - I grinned at him, feeling more enthusiastic about my plan now that he was on board. Rosalie was a pain, but I would always owe her one for choosing Emmett; no one had a better brother than mine.
+ - I was perfect- not healed, but as if there had never been a wound in the first place.
+ - Hard to feel confident when you’re surrounded by horse-sized wolves. Emmett Cullen, Breaking Dawn, Chapter 39, p.745.
+ - It’s not a good feeling – knowing that you profoundly deserve the title of monster. It’s better to be kind than to feel guilty.
+ - What is she to me? Except a menace – a danger you’ve chosen to inflict on all of us.
+ - You don’t have anything like this. For crying out loud, you only own one skirt!
+ - I tried to be diplomatic, but mostly I just lied a lot.
+ - Dazed and disoriented, I looked up from the bright red blood pulsing out of my arm – into the fevered eyes of the six suddenly ravenous vampires.
+ - He was right – she was beating herself up about hurting his feelings. The girl was a classic martyr. She’d totally been born in the wrong century. She should have lived back when she could have gotten herself fed to some lions for a good cause.
+ - Edward: Bella, please stop taking your clothes off! Bella: Why? Did you wanna do that part?
+ - For one half second, I wondered what it would feel like to put my hand in the fire. What it would feel like when I burned...
+ - Your number was up the first time I met you.
+ - The shadows didn’t seem as dark as usual. Not with my personal sun along.
+ - Jacob’s little smirk became a full-blown grin, and I knew he was picturing Charlie showing up to arrest him. This grin was too bitter, too full of mocking to satisfy me. This wasn’t the smile I’d been waiting to see.
+ - Bella: “Should I be afraid?” Edward: “Terrified.”
+ - You scared me for a minute there. I thought Newton was dragging your dead body off to bury it in the woods.
+ - You. Are. Not. Leaving. Me.
+ - Good or Bad? Good. That’s what I thought.
+ - Like we were connected, the echo of his pain twisted inside inside me. his pain, my pain.
+ - He thinks things through too much.
+ - How well opposed to grand Theft Auto are you?
+ - No, actually ‘The Host’ was totally a palate-cleanser for me. I wanted to do something a little bit different than romantic love. Romantic love is in there, obviously, because I enjoy writing about that and living it a lot.
+ - A hundred yards away, Mike Newton was lowering Bella’s limp body to the sidewalk. She slumped unresponsively against the wet concrete, her skin chalky as a corpse. I almost took the door off the car.
+ - Once people start throwing wet stuff, I go inside.
+ - What were you two doing last night, discussing the national debt?
+ - That actually is one of my huge challenges right now because I write best at night, no question. I can focus. You know you’re not getting any phone calls, I can shut everything down, and I’m just more creative at night.
+ - Out of all the things about me that could frighten you, you worry about my driving.
+ - He wished he hadn’t pulled me from the path of Tyler’s van – there was no other conclusion I could come to.
+ - The only parents in the world who don’t need sleep, and our child already sleeps through the night. Edward Cullen, Breaking Dawn, Chapter 22, p.429.
+ - Just you wait till I’m a vampire! I’m not going to be sitting on the sidelines next time.
+ - After all, what was more important, in the end, than love?
+ - Do you like scary stories? he asked ominously. Jacob Black.
+ - Children in the abstract, had never appealed to me. They seemed to be loud creatures, often dripping some form of goo.
+ - Why does Ian think I have to kiss you?
+ - You’ve got to have a little more confidence in us than that. It’s insulting.
+ - Mike’s eyes narrowed shrewdly. “Don’t kid yourself, Bella. The guy’s head over heels for you.” “I know,” I sighed. “Life is complicated.” “And girls are cruel,” Mike said under his breath.
+ - Jacob was a gift from the gods.
+ - With our rarely changing temperaments strong emotions can alter us in permanent ways. But he said I did not need to worry about that part – you had already altered me so completely.
+ - It’s real interesting to have a soul as a friend, and it makes me feel super special that I’ve managed it.
+ - I know love and lust don’t always keep the same company.
+ - As long as she wants me, I’m here.
+ - It took only seconds for me to make these discoveries, but even in that short time, my stomach nearly jumped through my mouth trying to reach the food.
+ - It was a strange combination to absorb – the everyday concerns of the town doctor stuck in the middle of a discussion of his early days in seventeenth-century London.
+ - I don’t have the strength to stay away from you anymore.
+ - If you throw a frog in a pot of boiling water, it will hop right out. But if you put that frog in a pot of tepid water and slowly warm it, the frog doesn’t figure out what going on until it’s too late. Boiled frog. It’s just a metter of working by slow degrees.
+ - Forbidden to remember, terrified to forget; it was a hard line to walk.
+ - The worst part is that I saw the whole thing – our whole life. And I want it bad, Jake, I want it all. I want to stay right here and never move. I want to love you and make you happy. And I can’t, and it’s killing me.
+ - Be happy that after living so many lives, I finally found something to die for.
+ - Love is irrational, I reminded myself. The more you loved someone, the less sense anything made.
+ - Thank you, Wanda. My sister. I will never forget you. Be happy, Mel. Enjoy it all. Appreciate it for me.
+ - You’re not like anyone I’ve ever known. You fascinate me.
+ - Your hold on me is permanent and unbreakable. Never doubt that.
+ - I don’t care about anything but keeping her alive. If it’s a child she wants, she can have it. She can have half a dozen babies. Anything she wants. She can have puppies, if that’s what it takes.
+ - Mostly I dream about being with you forever.
+ - Sleep, my Bella. Dream happy dreams. You are the only one who has ever touched my heart. It will always be yours. Sleep, my only love.
+ - Fire and ice, somehow existing together without destroying each other. More proof that I belonged with him.
+ - I’m really glad I did not tattoo on my body ’cause I don’t want them. So, permanence is a very scary thing to me, along with things that don’t change at all.
+ - What do I look like? The Wizard of Oz? You need a brain? You need a heart? Go ahead, take mine. Take everything I have.
+ - Even more, I had never meant to love him. One thing I truly knew – knew it in the pit of my stomach, in the center of my bones, knew it from the crown of my head to the soles of my feet, knew it deep in my empty chest – was how love gave someone the power to break you.
+ - There are no rules that can bind you when you find your other half.
+ - I miss you when you’re not there. When you’re happy, it makes me happy. But I could say the same thing about Charlie, Jacob. You’re family. I love you, but I’m not in love with you.
+ - Could a dead, frozen heart beat again? It felt like mine was about to.
+ - I had never given much thought to how I would die, but dying in the place of someone I love doesn’t seem like such a bad way to go.
+ - Well, I’m so sorry that I can’t be the right kind of monster for you, Bella.
+ - I can do this, I lied to myself feebly. No one was going to bite me.
+ - Bella, can you drop the rock, please? Carefully. Don’t hurt yourself.
+ - I thought I’d explained it clearly before. Bella, I can’t live in a world where you don’t exist.
+ - I can feel what you’re feeling now – and you are worth it.
+ - It was not going to be the end of the world. Just the end of the Cullens. The end of Edward, the end of me. I preferred it that way – the last part anyway. I would not live without Edward again; if he was leaving this world, then I would be right behind him.
+ - And it was different because I’d already lost her so many times, so many ways, in my head. And different because she was never really mine to lose. And different because this wasn’t my fault.
+ - Does it bother you, me being half naked all the time?
+ - I don’t want you to leave Which is exactly why I should. But don’t worry. I’m essentially a selfish creature. I crave your company too much to do what I should.
+ - The bond forged between us was not one that could be broken by absence, distance, or time. And no matter how much more special or beautiful or brilliant or perfect than me he might be, he was as irreversibly altered as I was. As I would always belong to him, so would he always be mine.
+ - Nudity was an inconvenient but unavoidable part of pack life. We’d all thought nothing of it before Leah came along. Then it got awkward.
+ - When I left you, Bella, I left you bleeding. Jacob was the one to stitch you back up again. That was bound to leave its mark – on both of you.
+ - My house, my rules!
+ - Do you want me to sing to you? I’ll sing all night if it will keep the bad dreams away.
+ - Despite my best efforts I’ve seen you naked before – doesn’t do much for me so no worries.
+ - Maybe I was what Leah thought she was. Some kind of dead end that shouldn’t be passed on to another generation. Or maybe it was just that my life was a big, cruel joke, and there was no escape from the punch line. -Jacob.
+ - Without the existence of the opposite, the concept has no meaning.
+ - Sometimes I wondered if I was seeing the same things through my eyes that the rest of the world was seeing through theirs. Maybe there was a glitch in my brain.
+ - But it’s possible to love more than one person at a time, Bella. I’ve seen it in action.
+ - My first language, the true language of the soul spoken only on our planet of origin, had no word for betrayal or traitor. Or even loyalty- because without the opposite, the concept had no meaning.
+ - But I’ll never see anyone else, Bella. I only see you. Even when I close my eyes and try to see something else. Ask Quil or Embry. It drives them all crazy.
+ - I know Okay, Sorry. I am. Look, I’m human. It’s hard to be fair sometimes. We don’t always feel the right thing, do the right thing.
+ - Do I dazzle you? – Edward Frequently – Bella.
+ - I could see it in your eyes, that you honestly believed that i didn’t want you anymore. The mos t absurd ridiculous concept as if there were any way I could exist without needing you.
+ - Like all bullies, they’re cowards underneath the swagger.
+ - I know you’re frustrated that he’s keeping you locked up like this, but don’t give him too bad a time when he gets back. He loves you more than you know. It terrifies him to be away from you.
+ - I was like a lost moon – my planet destroyed in some cataclysmic, disaster-movie scenario of desolation – that continued, nevertheless, to circle in a tight little orbit around the empty space left behind, ignoring the laws of gravity.
+ - Why didn’t I just walk away? Oh right, because I’m a idiot.
+ - Yes, you are exactly my brand of heroin.
+ - I do a good job of blocking painful, unnecessary things from my memory.
+ - Good luck, little Wanderer, good luck. How I wish you didn’t need it.
+ - You are safe inside your mind. No one can reach you there.
+ - What a marshmallow. You should hold out for someone with a stronger stomach. Someone who laughs at the gore that makes weaker men vomit.
+ - Repeat one word of what I just said and I’ll cheerfully beat you to death, Mike.
+ - Sometimes, kismet happens.
+ - So, how come Jacob Black gets to give you a gift and I don’t? Because I have nothing to give back to you. Bella, you give me everything just by breathing.
+ - I coveted you. I had no right to want you – but I reached out and took you anyway. And now look what’s become of you! Trying to seduce a vampire.
+ - Super-secret Ninja Club sounds way cooler than the whole BFF thing.
+ - Surely it was a good way to die, in the place of someone else, someone I loved.
+ - Good luck tended to avoid me.
+ - So eager for eternal damnation.
+ - Thats the beautiful thing about being human: Things change.
+ - They call her my singer – because her blood sings for me.
+ - Sometimes, loyalty gets in the way of what you want to do. Sometimes, it’s not your secret to tell.
+ - Spider-Man is such a whiny loser.
+ - You’re intoxicated by my very presence.
+ - After all, how many ways can one heart be mangled and still be expected to keep beating?
+ - He squeezes my hand, and my heart punches against my ribs. It’s just like pain, this pleasure.
+ - It’s too easy to be myself with you.
+ - No, I had never intentionally caused anyone physical pain, but I had hurt Ian deeply enough just by hurting myself. Human lives were so impossibly tangled. What a mess.
+ - I wish there had been someone there to vote no for me -Rosalie Cullen.
+ - You’re awfully small to be so hugely irritating.
+ - The absence of him is everywhere I look.
+ - I’m just here to be your friend. Your best friend, one last time.
+ - My life was an unending, unchanging midnight. It must, by necessity, always be midnight for me. So how was it possible that the sun was rising now, in the middle of my midnight?
+ - The irresponsible mother helped explain bella’s maturity. She’d had to grow up early, to become the caretaker. That’s why she didn’t like being cared for- she felt it was her job.
+ - Like everything in life, I just had to decide what to do with what I was given.
+ - So, did you stab Edward Cullen with a pencil or what? I’ve never seen him act like that.
+ - He’s like a drug for you, Bella. I see that you can’t live without him now. It’s too late. But I would have been healthier for you. Not a drug; I would have been the air, the sun.
+ - Neither heaven nor hell can keep me apart from you, Melanie.
+ - Believe me, I wanted to say. I’ve tried. Oh, and also, I’m wretchedly in love with you. Keep it light.
+ - How did anyone survive this world, with these bodies whose memories wouldn’t stay in the past where they should? With the emotions that were so strond I couldn’t tell what I felt anymore?
+ - Body armor. Four thousand pounds of body armor. And missile-proof glass? Nice. What had happened to good old-fashioned bulletproof?
+ - Of course, you’d warm up faster if you took your clothes off.
+ - Romeo wouldn’t change his mind. That’s why people still remembered his name, always twined with hers.
+ - You held out your hand, and I took it without stopping to make sense of what I was doing. For the first time in almost a century, I felt hope.
+ - Cerulean left. I wondered if she was from Flower Planet. Blue flowers were rare – one might take a name from that.
+ - It’s important for me to be free and know I’m acting for myself. I do things because I want to, and that’s important. You want to be your own person.
+ - I always write things that entertain me, and one of the things that I find really enjoyable to explore is the idea of love. I like looking at my own life and my friends and family and how love changes who you are. It fascinates me.
+ - Books have been thought of as windows to another world of imagination.
+ - I’ve never tried to keep a specific person alive before, and it’s much more troublesome than I would have believed. But that’s probably just because it’s you. Ordinary people seem to make it through the day without so many catastrophes.
+ - My life and his were twisted into a single strand. Cut one, and you cut both. If he were gone, I would not be able to live through that. If I were gone, he wouldn’t live through it, either.
+ - He was giving up on keeping me alive, letting nature–or rather mob justice–take its course. When he returned, and I was dead, he wouldn’t hold anyone responsible. He would not mourn. All this I could hear in those three words.
+ - There really is something irresistible about a lost cause.
+ - Sometimes, fact mixed with fiction so thoroughly that, though no lies were told, it was hard to remember what was strictly true.
+ - There’s no good story without romance.
+ - What’s funny about that is when I was writing Twilight just for myself and not thinking of it as a book, I was not thinking about publishing, and yet at the same time I was casting it in my head. Because when I read books, I see them very visually.
+ - Her name is Wanda, not it. You will not touch her. Any mark you leave on her, I will double on your worthless hide.
+ - You can’t trust a vampire, trust me.
+ - Billy wanted me to stay a safe distance from the most important person in my life. It turned out that his concern was, in the end, unnecessary. I was all too safe now.
+ - So you see, Hell’s not so bad if you get to keep an angel with you.
+ - Run, Bella, run. I love you too much, for your good or mine.
+ - Funny how it kept hitting me, like each new thing was a surprise. When was I going to stop being surprised?
+ - You’re my life now and I will do anything to protect you.
+ - Dear Jacob, I win. Sincerely, Edward.
+ - I was just thinking – today is the first and last day of forever. It’s kind of hard to wrap my head around it. Even with all this extra room for wrapping.
+ - Yes, because a vampire slumber party is the pinnacle of safety conscious behavior.
+ - Did you seriously just stamp your foot? I thought girls only did that on TV.
+ - I thought you were supposed to be pretending I don’t exist, not irritating me to death.
+ - I’d rather die than be with anyone but you.
+ - He was silent for a moment, staring out the window into the rain; I imagined he was contemplating the fact that his family’s presence was turning the locals into giant dogs.
+ - It’s been almost a century that Edward’s been alone. Now he’s found you. You can’t see the changes we see, we who have been with him for so long. Do you think any of us want to look into his eyes for the next hundred years if he loses you?
+ - How did people do this – swallow all their fears and trust someone else so implicitly with every imperfection and fear they had...
+ - So this was different. I was amazing now – to them and to myself. It was like I had been born to be a vampire. The idea made me want to laugh, but it also made me want to sing. I had found my true place in the world, the place I fit, the place I shined.
+ - What is a valid reason for someone to love someone else? Since apparently I’m doing it wrong.
+ - Would you please tell me what you are thinking? Before I go mad?
+ - Try not to trip. We don’t have time for a concussion today.
+ - I was consumed by the mystery Edward presented. And more than a little obsessed by Edward himself. Stupid, stupid, stupid. I wasn’t as eager to escape Forks as I should be, as any normal, sane person would be.
+ - I said it would be better if we weren’t friends, not that I didn’t want to be.
+ - You still owe me a yellow Porsche.
+ - I watched her, waiting. She smiled. Her lips curved up and the edges, and her chocolate eyes warmed. I’d just admitted to stalking her, and she was smiling.
+ - As if you could outrun me...
+ - Trust Emmett to find the joke in the destruction of my life.
+ - I stared because their faces, so different, so similar, were all devastatingly, inhumanly beautiful.
+ - Of course, die for the monster spawn. It was so Bella.
+ - Bachelor parties are designed for those who are sad to see the passing of their single days. I couldn’t be more eager to have mine behind me. So there’s really no point.
+ - I know you think that I have some kind of perfect, unyielding self-control, but that’s not actually the case. – Edward Cullen.
+ - Laughter was like a fresh breeze – it cleaned its way through the body making everything feel good. Did other species have such a simple healer?
+ - If we could bottle your luck, we’d have a weapon of mass destruction on our hands.
+ - When I told you I didn’t want you it was the blackest kind of blasphemy.
+ - As far as expense, I think if ‘Twilight’ does well enough, then we should be able to do the big expensive stuff for the sequels. I mean, we have to have werewolves, there’s no way around it. They have to be there.
+ - You want me to be all doom and gloom, or just shut up?
+ - You’ve got a bit of a temper, don’t you?
+ - I tried to remember how to exhale. I had to look away before it came back to me.
+ - It was like someone had died- like I had died. Because it had been more than just losing the truest of true loves, as if that were not enough to kill anyone. It was also losing a whole future, a whole family- the whole life that I’d chosen...
+ - No blood, no foul.
+ - Darkness is so predictable.
+ - When I was 8, I was reading ‘Gone with the Wind’ and ‘Pride and Prejudice’ and all that, not knowing it wasn’t my reading level.
+ - Dad, I wrote. I’m with Alice. Edward’s in trouble. You can ground me when I get back. I know it’s a bad time. So sorry. Love you so much. Bella.
+ - We should have been wiser; we should have died yesterday.
+ - Ian paused and leaned closer to me so that I couldn’t seem to see anything around his face, just snow and sapphire and ink.
+ - I was just wondering why you stabbed him. Not that I object.
+ - Forever is only the beginning.
+ - Stop it, Mom, you’re making me blush.
+ - I wrapped my arms around his neck and pulled myself closer to him until my lips touched his.
+ - My skin burns where it meets his. It feels better than good, but it sets off a strange aching in my chest.
+ - There s a difference between being in love and being in love with the idea of love.
+ - I’ll always be waiting in the wings Bella.
+ - I was thinking about how disjointedly time seemed to flow, passing in a blur at times, with single images standing out more clearly than others. And then, at other times, every second was significant, etched in my mind.
+ - I can always make things longer than I intend for them to be, but cutting things down is just brutal. It’s like cutting off your fingers every time you lose a word.
+ - The author of the extremely successful Twilight series was rejected by 14 different publishers before the 15th picked up Twilight. What would all the tweens do if Bella and Edward hadn’t been brought to life?!
+ - It’s just been my experience that some kinds of working relationships are better motivated by fear than by monetary gain.
+ - You can have me the way i am – bad behavior included – or not at all.
+ - You’re still waiting for the running and the screaming, aren’t you?
+ - You never know how much time you’ll have.
+ - Are you referring to the fact that you can’t walk across a flat, stable surface without finding something to trip over?
+ - What happens when you lose your heart’s desire?
+ - I can’t be sure, of course, but I’d compare it to living on tofu and soy milk; we call ourselves vegetarians, our little inside joke. – Edward Cullen.
+ - Go sit down and look pale.
+ - I would probably never be able to do anything interesting or special like Edward, Alice and Jasper could do. Maybe I would just love Edward more than anyone in the history of the world had ever loved anyone else.
+ - She sees things – things that might happen, things that are coming. But it’s very subjective. The future isn’t set in stone. Things change.
+ - How dare you imprint on my baby? Have you lost you mind?
+ - If there was a Jane Austen camp, I would go, no question.
+ - For some reason, my temper was hardwired to my tear ducts. I usually cried when I was angry, a humiliating tendency.
+ - I knew the human exaggeration for sorrow-a broken heart.
+ - I held you in my hands, Wanderer, and you were beautiful.
+ - Her scent blazed in my throat and I was glad. It was a pain that meant she was alive. As long as I burned, she was safe.
+ - Go jump off a cliff, Leah.
+ - I glanced, wide eyed, from Edward’s grimace to Jacob’s sneer.
+ - She looked around herself, disoriented, like she’d forgotten we were at lunch. Like she’d forgotten we were even at school-surprised that we were not alone in some private place. I understood that feeling exactly. It was hard to remember the rest of the world when I was with her.
+ - Hey, Rosalie? Do you know how to drown a blonde? Stick a mirror to the bottom of a pool.
+ - There was no reason for Bella Swan to cross paths with me. She would be avoided like the plague she was.
+ - Jared glared balefully at the old man, his eyes full of the shock and pain of the betrayed. I had only human comparisons for such a look. Caesar and Brutus, Jesus and Judas.
+ - No point in ignoring the truth. Doesn’t make it worse to have it said out loud.
+ - Say what you want, I still think Dracula One and Dracula Two are creep-tacular.
+ - She reminded me of what it did to her when I left – what it still does to her when I leave. She feels horrible about bringing that up, but she’s right. I’ll never be able to make up for that, but I’ll never stop trying anyway.
+ - That’s Edward. He’s gorgeous, of course, but don’t waste your time. He doesn’t date. Apparently none of the girls here are good-looking enough for him.
+ - I knew I was too late – and I was glad something bloodthirsty waited in the wings. For in failing at this, I forfeited any desire to live.
+ - For a second I was just a kid – a kid who had lived all of his life in the same tiny town. Just a child. Because I knew I would have to live a lot more, suffer a lot more, to ever understand the searing agony in Edward’s eyes.
+ - Why am I covered in feathers.
+ - Sometimes it was so easy to forget that I was kissing a vampire.
+ - More than my own life.
+ - Everyone needs a little Edward in their life.
+ - I like it when pessimism goes unrewarded.
+ - You nicked-named my daughter after the Lock Ness Monster!
+ - I peeked up at him one more time, and regretted it. He was glaring down at me again, his black eyes full of revulsion. As I flinched away from him, shrinking against my chair, the phrase if looks could kill suddenly ran through my mind.
+ - Body and soul. Two different things.
+ - I gave you life. You’re wasting it.
+ - I prefer brunettes.
+ - I was a vampire, and she had the sweetest blood I’d smelled in eighty years.
+ - Because there was nothing more terrifying to me, more excruciating, than the thought of turning away from him. it was an impossibility.
+ - It felt almost rude to ignore toe pretty white bed, but we just weren’t going to make it that far.
+ - Sell stupid somewhere else – there’s nothing better than that face!
+ - He was a different Edward than the one I had known. And I felt all the more besotted by him. It would cause me physical pain to be separated from him now.
+ - Bella, would you please stop trying to take your clothes off?
+ - Next time you want to hit me hit me with a baseball bat or a crowbar!
+ - Bella, there’s a part of you that loves me.
+ - Because when I thought of him, of his voice, his hypnotic eyes, the magnetic force of his personality, I wanted nothing more than to be with him right now.
+ - You know when things are bad when you feel guilty for being rude to vampires. Jacob B. Ch.14.
+ - My last night as Isabella Swan. Tomorrow night, I would be Bella Cullen. Though the whole marriage ordeal was a thorn in my side, I had to admit that I liked the sound of that. – bella swan.
+ - Do you remember when you told me I couldn’t see myself clearly? You obviously have the same blindness.
+ - Don’t be a baby about this. No tantrums.
+ - If I was given the choice between having the world back and having you, I wouldn’t be able to give you up. Not to save five billion lives.
+ - Jasper? What do vampires do for bachelor parties? You’re not taking him to a strip club, are you?
+ - Speak of the devil, and the devil shall appear.
+ - I’d noticed that his eyes were black – coal black.
+ - I almost took the door off the car.
+ - I didn’t want the life that made sense. Not if the chaos meant i could have Bella.
+ - No one dressed by me ever looks like an idiot.
+ - If your life was all you had to give your beloved, how could you not give it?
+ - Storytelling was the most honored of all talents, for it benefited everyone.
+ - I don’t like to lie – so there’d better be a good reason why I’m doing it.
+ - I couldn’t get the words exactly right; I only remembered wishing that Jacob were my brother so that we could love each other without any confusion or pain.
+ - As long as you like me the best. And you think I’m good-looking – sort of. I’m prepared to be annoyingly persistent.
+ - Kiss me, Jacob. Kiss me, and then come back.
+ - I want to be a monster too.
+ - Life and love go on...
+ - I had a secret that I was bound to protect but a secret that i was not to share. A secert that suddenly he knew all about.
+ - But on a clear, sunny day? How would she know to flee when she couldn’t see any place for danger to hide?
+ - Yes Rosalie, we all know how proficient of an assassin you are.
+ - But never in the four hundred years now since I was born, have I ever seen anything to make me doubt whether God exists in some form or the other. Not even the reflection in the mirror.
+ - Two voices struggled inside me. One that wanted to be good and brave, and one that told the good one to keep her mouth shut.
+ - I’d really like having a couple days of being a rock star, although I’d rather be a backup – like maybe the drummer for Muse It would also be fun to be gorgeous, like be Charlize Theron, just for a couple of days.
+ - I was in disbelief that I’d just explained my dreary life to this bizarre, beautiful boy who may or may not despise me. Bella Swan.
+ - One of the many hazards of socializing with vampires. It makes you smell bad. A minor hazard, comparatively.
+ - Who gives an island as a gift? I frowned. I hadn’t realized Edward’s extreme generosity was a learned behavior. Bella.
+ - Nice girl who knew cars. Wow. I stared at her face harder, wishing I knew how to make it work. C’mon, Jake – imprint already.
+ - You are my life. You’re the only thing it would hurt to lose.
+ - Carlisle: “I’ve seen vampire venom work miracles, but there are conditions that even venom cannot overcome.”
+ - I walked towards my fate with my destiny standing solidly by my side.
+ - I didn’t want to be the monster! I didn’t want to kill this room full of harmless children! I didn’t want to lose everything I’d gained in a lifetime of sacrifice and denial!
+ - I’m a pro at weird.
+ - Just like a kitten that thinks its a tiger.
+ - Only a teenage boy would agree to this: deceiving both our parents while repairing dangerous vehicles using money meant for my college education. He didn’t see anything wrong with that picture. Jacob was a gift from the gods.
+ - And he was my friend. Not that he wouldn’t kill me if things turned out that way, but he wouldn’t like doing it. With humans, what more could you ask for a friend?
+ - It’s easier to come up with new stories than it is to finish the ones you already have. I think every author would feel that way.
+ - I’ve seen little pieces of ‘Interview with a Vampire’ when it was on TV, but I kind of always go yuck! I don’t watch R-rated movies, so that really cuts down on a lot of the horror.
+ - Charlie took my hand and, in a symbol as old as the world, placed it in Edward’s. I touched the cool miracle of his skin, and I was home.
+ - The thing people don’t realize, God bless them, is that my books are supposed to suck.
+ - Edward stretched out his arm, his hand curled into a fist. Seth grinned, revealing the long row of dagger teeth, and bumped his nose against Edward’s hand. “Nice teamwork,” Edward murmured.
+ - Bite me.
+ - Love is simply where it is.
+ - We did not hope for the same things, but we all hoped.
+ - It’s not what you are. It’s what you do.
+ - It’s like pain, this pleasure.
+ - Edward’s only human Bella. He’s going to react like any other boy.
+ - I think she’s having hysterics. Maybe you should slap her.
+ - You know, Jacob, if it weren’t for the fact that we’re natural enemies and that you’re also trying to steal away the reason for my existence, I might actually like you.
+ - That maybe you should make the most of what time you have? That you shouldlive while you’re alive?
+ - Time means little; I never notice its passing.
+ - I’d forgotten how exuberant you are.
+ - Don’t worry?! You sliced your hand open!
+ - Edward thought he was going to ruin Bella’s life and he made her happy. And that really was everything for him.
+ - You aren’t exactly the best judge of what is or isn’t dangerous.
+ - I was ninety-nine point nine percent sure that I was dreaming.
+ - She wasn’t speaking to me – in the juvenile, petty sense of the phrase.
+ - I had enough trouble not falling down when the ground was dry; it might be safer for me to go back to bed now.
+ - I’m afraid you’re going to have to make a choice.
+ - And then as you were sleeping, you said my name. You spoke so clearly, at first I thought you’d woken. But you rolled over restlessly and mumbled my name once more, and sighed. The feeling that coursed through me then was unnerving, staggering. And I knew I couldn’t ignore you any longer.
+ - Whoa, whoa! Hold up, there, kid. She lives in Forks, remember? So she gets rained on.
+ - Don’t take too long, Mrs. Cullen.
+ - You’re not making my mistakes, Bella. You sound like you’re scared silly, and I’m guessing it’s because you’re afraid of me.
+ - It’s over. We’ve all been sentenced to die.
+ - It took less than half a second for me to realize that, as long as I was truly insane now, I might as well enjoy the delusions while they were pleasant.
+ - When I write a story, it’s not like I’m thinking about what I’m doing.
+ - That’s the funny thing about knowing you can’t have something. It makes you desperate. -Leah.
+ - My mom is part albino.
+ - He never leaves, does he?
+ - The Seeker needed a nice long lifetime eating sunshine.
+ - How was I ever going to fight the blurring lines in our relationship when I enjoyed being with him so much?
+ - Never before had I recognized the ring of majesty that was in Billy Black’s voice, though I realized now that this authority had always been there.
+ - He’s got to let go of you sometime.
+ - When you live for the fight, for the blood, the relationships you form are tenuous and easily broken.
+ - I thought about that for a minute – about what I wanted.
+ - But most significant in this tidal wave of happiness was the surest fact of all: I was with Edward. Forever – Bella Cullen.
+ - I was much more upset by the situation with Jacob than by the possibility of being eaten by a bear.
+ - History was easy, but I don’t know about the Calculus. It seemed like it was making sense, so that probably means I failed.
+ - What kind of an idiotic question is that?
+ - You’ve never been a teenager, sweetie. You know what’s best for you.
+ - If this is how you’re going to react, I’ll freak out more often.
+ - You are my life now.
+ - I have forseen...
+ - With ‘Twilight,’ I felt the actors needed to be up-and-coming artists that haven’t been recognized yet.
+ - You think I should be as forgiving as you are? We can’t all be saints and martyrs.
+ - You don’t get a lot of suicidal vampires.
+ - We’re a bit sensitive to blood around here. I’m sure you can understand that.
+ - How could you fall in love with a three inch worm?
+ - You think I regret saving your life?
+ - My heart hasn’t beat in almost ninety years but this was different it was like my heart was gone like I was hallow like I’d left everything here with you.
+ - Because there was just one thing that I had to believe to be able to live – I had to know that he existed. That was all. Everything else I could endure. So long as he existed.
+ - I tried, after I wrote ‘Twilight,’ to read ‘The Historian,’ because it was the big thing that summer. But I can’t read other people’s vampires. If it’s too close, I get upset; if it’s too far away, I get upset. It just makes me very neurotic.
+ - I took his hand, and suddely he yanked me – too roughly – right off the bed so that I thudded against his chest. “Just in case,” he muttered against my hair, crushing me in a bear hug that about to broke my ribs. “Can’t – breathe!” I gasped.
+ - Edward was always focused, watching and also listening to what others couldn’t see.
+ - I’d rather know what you’re thinking – even if what you’re thinking is insane.
+ - Sometimes ideas feel like they were already there, and that you’re just discovering them.
+ - They wouldn’t let me play; only Alice would play games with me anymore.
+ - She was thinking what I think she was thinking, wasn’t she?
+ - I may not be a human, but I am a man.
+ - Edward helped, making faces every so often at the raw ingredients-human food was mildly repulsive to him.
+ - His gift is slower than Jane’s. It creeps. It will touch us in a few seconds.
+ - I have to step out for a second. Don’t do anything funny while I’m gone.
+ - Speaking of which, would you like to explain to me how you’re alive.
+ - Over my pile of ashes.
+ - And I started to cry again, realizing that it must be changing him, too, this man who was kind enough to be a soul but strong as only a human could be.
+ - If we had happy endings, we’d all be under gravestones now.
+ - Jackson Rathbone can really play the guitar. Our taste in music is not exactly the same, but we found common ground with Radiohead’s Creep, with which he then serenaded me.
+ - Life and love would go on. Even though it would happen without me, the idea brought me joy.
+ - He sparked on his body that reflect like mini mirrors of diamond.
+ - I had the feeling Edward wasn’t the kind of person anyone got used to.
+ - I figured if I played nice, I’d get more time with you.
+ - Once you cared about a person, it was impossible to be logical about them anymore.
+ - I was all braced for the wrath that was going to put grizzlies to shame, and this is what I get? I should infuriate you more often.
+ - Not many people get every single thing they want plus all the things they didn’t think to ask for in the same day.
+ - The boy in the pearl gray suit could have been Jane’s twin. His hair was darker, and his lips were not as full, but he was just as lovely.
+ - Casting is really exciting. With ‘Twilight,’ I wasn’t involved at all with the casting in the original. They kept me in the loop, which was great. They’d be like, ‘Hey Kristen Stewart’s gonna do it’ and I was like, ‘Really? Awesome.’
+ - I was stronger than Edward. I’d made him say ow.
+ - He didn’t ask what I was thinking, which was out of character for him. I guessed that meant that he was just as nervous as I suddenly was.
+ - Yes, heaven forbid I not be protected from tanks.
+ - Who are you and what have you done with my brother?
+ - Those who lived in peaceful nations had looked the other way as members of their own species starved on their door step.
+ - It must be a hard thing, to be a father; living in fear that your daughter would meet a boy she liked, but also having to worry if she didn’t.
+ - Interceded? You threw me to the sharks!
+ - The bottom line is that you have to choose who you are going to commit to – that’s the foundation of true love, not the lack of other options.
+ - No one could be still like Edward.
+ - I wanted myself. I wouldn’t let what was mine be destroyed.
+ - The morning brought with it, if not a brighter outlook, at least a measure of control, some acceptance. Instinctively, I knew that the new tear in my heart would always ache. That was just going to be a part of me now.
+ - I bit a pillow. Or two.
+ - I wanted the monster back and that was plainly wrong.
+ - It was the first time I’d ever felt truly jealous of anyone else in my entire life.
+ - I always needed that extra fantasy world. I had to have another world I could be in at the same time.
+ - I feel like humor is a part of life. I don’t think it comes through as much in the novels as it does in my head.
+ - After all I’ve seen, if I hadn’t learned compassion, I wouldn’t be worth much.
+ - You’re exactly like Charlie. Once you make up your mind, there is no reasoning with you. Of course, exactly like Charlie, you stick by your decisions, too.
+ - The part that kills me is that you already know. I already told you everything!
+ - I knew it would begin with the end, and the end would look like death to these eyes. I had been warned.
+ - Real. Does that make me imaginary?
+ - Vampirism, for me, was a way to live in fantasy and have superpowers, but not just in a really perfect, happy, everything is great way. It’s superpowers with a cost. It’s having to be the villain, and what do you do about that.
+ - I came to witness. I stay to fight.
+ - If he’d done something to harm her, I would annihilate him.
+ - There was no way Jacob would voluntarily miss an afternoon with Renesmee sans bloodsuckers. -Bella Cullen.
+ - It was very relaxing to be away from civilization, and this bothered me. I should not have found the loneliness so welcoming.
+ - It’s not the end. It’s the beginning.
+ - Are you still faint from the run? Or was it my kissing expertise?
+
+500 quotes

@@ -1,0 +1,29 @@
+ - If I ever grow up, I don’t want to be around for it.
+ - Quebec City is the most European of any city in North America; they speak French all the time. There is a part of town called Old Quebec which is really like being in France. The architecture is just gorgeous, food, shopping. I’d say Quebec City is the most beautiful city in North America I’ve seen.
+ - My vocal style is called bel canto, which is an old Italian vocal style going back hundreds of years.
+ - What is music for? It’s to make you feel good.
+ - There is no singing anymore, everything is yelling and shouting and rapping and that is real boring to a guy like me.
+ - Nobody wants a fat lead singer.
+ - I don’t understand the mentality of a rock fan, being obsessed with two or three songs from 25 years ago. I’m not that kind of a fan.
+ - I’m not interested in thinking up the name of a band and a logo and all that. Been there, done that, sold a million T-shirts.
+ - America gets rock stars a little more than Canada does.
+ - I listen to music for emotion and I get zero emotion from rap.
+ - Yes, but I have to say this: the band is going to decide where the band plays.
+ - A lot of people when they try to sing Skid Row songs, they’re screaming and yelling too much. It’s more singing than screaming.
+ - I would say a must-do in Canada would be to go skiing at Whistler in Vancouver. You could take a chair lift for, like, a half hour to the top of this mountain, and you ski down; it takes like so long to get to the bottom. You go past the clouds. Its absolutely incredible.
+ - Kids don’t go out and buy CDs, they make their own, they download them from the Internet.
+ - You ever heard of a guy named Jeff Buckley? He’s one of the best singers I’ve ever heard.
+ - The worst thing I ever wore, really, was rubber pants, but I don’t think that was a cliche. They were just way too hot. Rubber doesn’t breathe. I look back on my photos, and I dig them. I think I look really cool.
+ - I’ve been solo since 1996, so I’ve been doing it for a while now.
+ - Inside I never said I wanted to do theatre or be an actor.
+ - You have got to make new music, that is the way that I look at it anyway.
+ - It’s weird, like, my life has always imitated art, and my art has always imitated life.
+ - It is incredible to me that my Twitter feed is a source of ‘news’ for every rock news outlet around the world.
+ - My voice has gotten me everything in my life, not my hair.
+ - The way I look at a solo project is, I create what I want with whoever I want.
+ - Sometimes you can do things for people other than yourself.
+ - Well, you know, if you do 200 shows a year, they’re not all going to be like Castle Donnington.
+ - It is easy for me to go play a rock show, I have been doing that all my life and I love that.
+ - I get noticed for different things I’ve done in different areas of town. If I’m in a rock club, it’ll be Skid Row, if I’m in a mall it’s the ‘Gilmore Girls.’
+
+27 quotes

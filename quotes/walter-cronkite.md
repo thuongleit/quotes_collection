@@ -1,0 +1,75 @@
+ - Freedom of the press is not just important to democracy, it is democracy.
+ - The ethic of the journalist is to recognize one’s prejudices, biases, and avoid getting them into print.
+ - Success is more permanent when you achieve it without destroying your principles.
+ - In seeking truth you have to get both sides of a story.
+ - The profession of journalism ought to be about telling people what they need to know – not what they want to know.
+ - Whatever the cost of our libraries, the price is cheap compared to that of an ignorant nation.
+ - If that is what makes us liberals, so be it, just as long as in reporting the news we adhere to the first ideals of good journalism – that news reports must be fair, accurate and unbiased.
+ - There is no such thing as a little freedom. Either you are all free, or you are not free.
+ - Ethics must be reintroduced to public service to restore people’s faith in government. Without such faith, democracy cannot flourish. Your ambitious agenda is filling a desperate need.
+ - Our job is only to hold up the mirror – to tell and show the public what has happened.
+ - We’ve got a great percentage of our population that, to our great shame, either cannot or, equally unfortunate, will not read. And that portion of our public is growing. Those people are suckers for the demagogue.
+ - I am neither Republican nor Democrat. I am a registered independent because I find that I cast my votes not on the basis of party loyalty but on the issues of the moment and my assessment of the candidates.
+ - I never had the ambition to be something. I had the ambition to do something.
+ - Leaving San Francisco is like saying goodbye to an old sweetheart. You want to linger as long as possible.
+ - Our task is not to tell the truth; we are opinion molders.
+ - Objective journalism and an opinion column are about as similar as the Bible and Playboy magazine.
+ - America’s health care system is neither healthy, caring, nor a system.
+ - People who understand music hear sounds that no one else makes when Frank Sinatra sings.
+ - The daily coverage of the Vietnamese battlefield helped convince the American public that the carnage was not worth the candle.
+ - Never before probably has the need for interfaith commitment been nearly as great as it is at this very moment.
+ - We are not educated well enough to perform the necessary act of intelligently selecting our leaders.
+ - We know that no one should tell a woman she has to bear an unwanted child. We know that religious beliefs cannot define patriotism.
+ - The first priority of humankind in this era is to establish an effective system of world law that will assure peace with justice among the peoples of the world.
+ - Interviewing friends is a tough one. Your duty to the interview must transcend your friendship. Occasionally you’ll lose a friend.
+ - The perils of duck hunting are great- especially for the duck.
+ - We cannot defer this responsibility to posterity. Time will not wait.
+ - Those advocates who work for world peace by urging a system of world government are called impractical dreamers. Those impractical dreamers are entitled to ask their critics what is so practical about war.
+ - When the Eagle landed on the moon, I was speechless – overwhelmed, like most of the world. Couldn’t say a word. I think all I said was, ‘Wow! Jeez!’ Not exactly immortal. Well, I was nothing if not human.
+ - Not only do we have a right to know, we have a duty to know what our Government is doing in our name. If there’s a criticism to be made today, it’s that the press isn’t doing enough to put the pressure on the government to provide information.
+ - Everything is being compressed into tiny tablets. You take a little pill of news every day-23 minutes-and that’s supposed to be enough.
+ - I am not a contemplative type, basically. I am much more of an action person and, as a consequence, I look forward to today and tomorrow and what’s breaking.
+ - I think it is absolutely essential in a democracy to have competition in the media, a lot of competition, and we seem to be moving away from that.
+ - I want to say that probably 24 hours after I told CBS that I was stepping down at my 65th birthday, I was already regretting it. And I regretted it every day since.
+ - And that’s the way it is.
+ - We are on the precipice of being so ignorant that our democracy is threatened.
+ - The 60s undoubtedly were the most turbulent years of the century.
+ - News reporters are certainly liberal and left of center.
+ - I am a news presenter, a news broadcaster, an anchorman, a managing editor – not a commentator or analyst. I feel no compulsion to be a pundit.
+ - In all my years as a news commentator I was never once, able to tell the truth, about anything.
+ - I am dumbfounded that there hasn’t been a crackdown with the libel and slander laws on some of these would-be writers and reporters on the Internet.
+ - Not only do we have a right to know, we have a duty to know what our Government is doing in our name.
+ - Probably the most important single element that I found in my own marriage was a sense of humor. My wife had a delicious sense of humor, and I think I have an adequate one.
+ - The great sadness of my life is that I never achieved the hour newscast, which would not have been twice as good as the half-hour newscast, but many times as good.
+ - The sweet smell of the South, of Camellias and Azaleas, clings to Beaufort’s ancient and historic buildings.
+ - Old anchormen, you see, don’t fade away. They just keep coming back for more. And that’s the way it is, Friday, March 6, 1981.
+ - I’ve gone from the most trusted man in America to one of the most debated.
+ - Everybody knows that there’s a liberal, that there’s a heavy liberal persuasion among correspondents.
+ - There is a compulsion that is perhaps the heart of life’s meanings, this marvelous mystery of blood ties that brings joy whenever a new family member comes on the scene.
+ - Let us hear the peal of a new international liberty bell that calls us all to the creation of a system of enforceable world law in which the universal desire for peace can place its hope and prayers.
+ - I have never pretended to be a great writer. I am totally immodest about being a great reporter and a good news writer. I write fast and I write accurately, nearly as accurately as anybody can be, and that’s my skill.
+ - We’re living in a state where no one can trust his telephone conversations, nor even his personal conversations in a room, in a bar or anywhere else.
+ - Be kind to an old man.
+ - For how many thousands of years now have we humans been what we insist on calling “civilized?” And yet, in total contradiction, we also persist in the savage belief that we must occasionally, at least, settle our arguments by killing one another.
+ - We’ve always known you can gain circulation or viewers by cheapening the product, and now you’re finding the bad driving out the good.
+ - It is a seldom proffered argument as to the advantages of a free press that it has a major function in keeping the government itself informed as to what the government is doing.
+ - Justice was born outside the home and a long way from it; and it has never been adopted there.
+ - I am in a position to speak my mind. And that is what I propose to do.
+ - I was lucky enough to have one of the first high school classes in the country.
+ - I’m still ready to go to the moon, if they’ll take me.
+ - The battle for the airwaves cannot be limited to only those who have the bank accounts to pay for the battle and win it.
+ - The invasion of Iraq was illegal from the start.
+ - I think most newspapermen by definition have to be liberal; if they’re not liberal, by definition of it, then they can hardly be good newspapermen. If they’re preordained dogmatists for a cause, then they can’t be very good journalists.
+ - This opens the door on another chapter of history.
+ - Dan Rather and I just aren’t especially chummy.
+ - I’m very proud of what Harry Truman turned out to be in office and the record he made. Certainly I think he’ll go down in history as one of the greats, because of his conscience, his determination to stick with what he knew was right.
+ - For many years, I did my best to report on the issues of the day in as objective a manner as possible. When I had my own strong opinions, as I often did, I tried not to communicate them to my audience.
+ - Putting it as strongly as I can, the failure to give free airtime for our political campaigns endangers our democracy.
+ - I sort of think in a way that many of us young reporters who had the opportunity to go overseas for our organizations were kind of, in a sense, war profiteers. We were enhancing our careers while covering that terrible conflict.
+ - The debates are part of the unconscionable fraud that our political campaigns have become a format that defies meaningful discourse. They should be charged with sabotaging the electoral process.
+ - When you’re bringing in a fairly unknown candidate challenging a sitting president, the population needs a lot more information than reduced coverage provides.
+ - I think somebody ought to do a survey as to how many great, important men have quit to spend time with their families who spent any more time with their family. Probably less.
+ - We must strengthen the United Nations as a first step toward a World Government, patterned after our Own Government with a legislature, executive and judiciary and police.
+ - I’d like to be a song and dance man.
+
+73 quotes

@@ -1,0 +1,46 @@
+ - As a writer you ask yourself to dream while awake.
+ - That’s the thing with handmade items. They still have the person’s mark on them, and when you hold them, you feel less alone. This is why everyone who eats a Whopper leaves a little more depressed than they were when they came in. Nobody cooked that burger.
+ - I like birthday cake. It’s so symbolic. It’s a tempting symbol to load with something more complicated than just ‘Happy birthday!’ because it’s this emblem of childhood and a happy day.
+ - I give boring people something to discuss over corn.
+ - My genes, my love, are rubber bands and rope – make yourself a structure you can live inside.
+ - Mom loved my brother more. Not that she didn’t love me – I felt the wash of her love every day, pouring over me, but it was a different kind, siphoned from a different, and tamer, body of water. I was her darling daughter; Joseph was her it.
+ - I want to be violated by insight.
+ - We hit the sidewalk, and dropped hands. How I wished, right then, that the whole world was a street.
+ - I knew if I ate anything of hers again, it would lkely tell me the same message: help me, I am not happy, help me – like a message in a bottle sent in each meal to the eater, and I got it. I got the message.
+ - We’re all getting too smart. Our brains are just getting bigger and bigger, and the world dries up and dies when there’s too much thought and not enough heart.
+ - There’s a gift in your lap and it’s beautifully wrapped and it’s not your birthday. You feel wonderful, you feel like somebody knows you’re alive, you feel fear because it could be a bomb, because you think you’re that important.
+ - It is so often surprising, who rescues you at your lowest moments.
+ - Many kids, it seemed, would find out that their parents were flawed, messed-up people later in life, and I didn’t appreciate getting to know it all so strong and early.
+ - While she cut the mushrooms, she cried more than she had at the grave, the most so far, because she found the saddest thing of all to be the simple truth of her capacity to move on.
+ - It is all about numbers. It is all about sequence. It’s the mathematical logic of being alive. If everything kept to its normal progression, we would live with the sadness-cry and then walk-but what really breaks us cleanest are the losses that happen out of order.
+ - I am the drying meadow; you the unspoken apology; he is the fluctuating distance between mother and son; she is the first gesture that creates a quiet that is full enough to make the baby sleep. My genes, my love, are rubber bands and rope; make yourself a structure you can live inside. Amen.
+ - It was like we were exchanging codes, on how to be a father and a daughter, like we’d read about it in a manual, translated from another language, and were doing our best with what we could understand.
+ - My lover is experiencing reverse evolution.
+ - To see someone you love, in a bad setting, is one of the great barometers of gratitude.
+ - I’m obsessed with adolescence. I love to write about people in their 20s. It’s such a fraught and exciting and kind of horrible time.
+ - You can ruin anything if you focus at it.
+ - I could feel the tears beginning to collect in my throat again, but I pushed them apart, away from each other. Tears are only a threat in groups.
+ - You try, you seem totally nuts, you go underground.
+ - But I loved George in part because he believed me; because if I stood in a cold, plain room and yelled FIRE, he would walk over and ask me why.
+ - Light is good company, when alone; I took my comfort where I found it, and the warmest yellow bulb in the living-room lamp had become a kind of radiant babysitter all its own.
+ - Large meadows are lovely for picnics and romping, but they are for the lighter feelings. Meadows do not make me want to write.
+ - I was with them for all of it, but more like an echo than a participant.
+ - I don’t think so, I don’t agree. The most unbearable thing I think by far, she said, is hope.
+ - But the sky is interesting, it changes all the time.
+ - Mom flipped through the magazines like the pages needed to be slapped.
+ - With my hand in his, I looked at all the apartment buildings with rushes of love, peering in the wide streetside windows that revealed living rooms painted in dark burgandies and matte reds.
+ - My eyelids are my own private cave, he murmured. That I can go to anytime I want.
+ - I felt the crumpled paper that had taken the place of my lungs expand as if released from a fist.
+ - I was right at the edge of their circle, like the tail of a Q...
+ - I didn’t mind the quiet stretches. It was like we were trying out the idea of being side by side.
+ - Language is the ticket to plot and character, after all, because both are built out of language.
+ - I watched as she added a question mark at the end. Arc, line, space, dot.
+ - It seems the best work I do is when I am really allowing the unconscious to rule the page and then later I can go back and hack around and make sense of things...
+ - I admired that stride; it was like he folded space in two with it.
+ - When language is treated beautifully and interestingly, it can feel good for the body: It’s nourishing; it’s rejuvenating.
+ - When the light at Vernon turned green, we stepped into the street and George grabbed my hand and the ghosts of our younger selves crossed with us.
+ - The writing I tend to think of as ‘good’ is good because it’s mysterious.
+ - It seemed to happen in springs, the revealing of things.
+ - The wine glasses are empty except for that one undrinkable red spot at the bottom.
+
+44 quotes

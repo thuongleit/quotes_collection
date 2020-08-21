@@ -1,0 +1,32 @@
+ - Change terrifies people. They like new, but they don’t like new with change.
+ - My guaranteed way of sending myself into deep depression is to read music trade papers and watch MTV.
+ - Music is something that should speak for itself, straight from the heart. It took me a long time to understand that.
+ - In the Sixties people took acid to make the world weird. Now the world is weird, people take Prozac to make it normal.
+ - I have to wear a new T-shirt every night. I throw them into the audience. One day I’m going to go around the world and reclaim all my T-shirts.
+ - There’s need to be some sort of disturbance in your psyche for creativity to be sparked.
+ - Every time I go to Africa, I see the future. I see what the Western world is going to become. It’s a very futuristic place.
+ - If you don’t see something as a career but as an important part of your life, you don’t know how you’re going to feel about it.
+ - The Gorillaz cartoons seem more real to me than the actual people on TV. Because at least you know that there’s some intelligence behind the cartoons, and there’s a lot of work that’s gone into it, so it can’t all be just a lie.
+ - I’ve always known I’m incredibly special. All my life. You know? It’s not a big deal.
+ - If punk was about getting rid of hippies, then I’m getting rid of grunge.
+ - I can’t be bothered anymore about giving songs titles.
+ - Being in Blur has allowed me to travel and hear the music that’s being made all over the world.
+ - Oasis were like the bullies I had to put up with at school.
+ - There’s always been a hip-hop element to my trousers.
+ - No, every album is something like a snapshot. It only shows one moment in time. It shows what we feel and think right at that point in time, nothing more and nothing less.
+ - The best way to get to know Africa is to go there and see what it is. To know somewhere that crazy and that magnificent, you have to spend some time among people, the rhythm of their lives.
+ - As a musician usually music is your way out.
+ - More and more, cultural groups are cross-pollinating, and we’re getting much more interesting art as a result.
+ - I was naive enough to believe it would be enough to replace the government. Well, I made fun of the people in the government and then realized that even if we got rid of them, they were replaced by exactly the same guys.
+ - What you learn from working with other performers and musicians is invaluable, really, and can only help you grow. I mean, if you spend your whole life focusing on yourself, you’re not really learning much.
+ - Danger Mouse is now working on a bunch of other records, translating his ideas about remixing into all sorts of other projects.
+ - The cartoon is a metaphor really for the fact that it’s almost impossible in our celebrity obsessed culture to move around genres and sort of change you ideas, change your face, you know?
+ - In Africa, as resources inevitably disappear, people have to make do with a lot less. You have to be much more ingenious with a lot less, and accept that you can’t get your perfect tuna sandwich on a street corner.
+ - When you’re doing a deal with someone in the southern Sahara, it’s a very different way of doing business than in London. You can’t sign them in the usual way because they’d end up getting ripped off, which would defeat the object of setting up a label like this.
+ - And there are no stars and that you’re never really sure who’s doing what and what voice is what and, you know what I mean? It’s supposed to be quite elusive.
+ - Trying to write music that’s sensitive to 400 years ago takes a bit of madness, as it’s such a long stretch of time.
+ - The things that make me happy most are my family and working.
+ - I’m not really one of those people who believes that if you’re a musician you can just leave that behind and start getting into politics.
+ - I was approached by Oxfam to go to Mali as their ambassador and get involved in their various initiatives out there. But I felt that was missing the point of using me, a musician.
+
+30 quotes

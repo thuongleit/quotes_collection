@@ -1,0 +1,41 @@
+ - Dying really isn’t so bad after you’ve done it once. And I have. I’m not afraid of death anymore. I’m afraid of everything else.
+ - Good morning, Sunshine.
+ - I don’t really care what people say about me. I’m fine with lies and rumors. It’s the truth I don’t want being told.
+ - I’m tired of being responsible for other people’s misery. I can’t even put up with my own.
+ - Do real boys actually call girls baby? I don’t have enough experience to know. I do know that if a guy ever called me baby, I’d probably laugh in his face. Or choke him.
+ - Just because I don’t talk about it, doesn’t mean I forget.
+ - You can’t change the rules and think everyone else is just going to keep playing.
+ - Maybe nobody knows how. Sometimes it’s easier to pretend nothing is wrong than to face the fact that everything is wrong, but you’re powerless to do anything about it.
+ - I live in a world without magic or miracles. A place where there are no clairvoyants or shapeshifters, no angels or superhuman boys to save you. A place where people die and music disintegrates and things suck.
+ - My mother’s hope is a weapon.
+ - There’s a reverence in the way he kisses me that frightens me, because it’s the most wonderful thing I’ve ever felt.
+ - His hands are miracles. I can watch them for hours, transforming wood into something it never dreamed of being.
+ - Call me Sunshine again, and I will murder you, cocksucker.
+ - I’m not sure how long we sit in Josh’s truck, holding hands, surrounded by darkness and unspoken regrets. But it’s long enough to know that there are no stories or secrets in the world worth holding onto more than his hand.
+ - Seeing Josh is my homecoming. I didn’t tell him I was coming back. He doesn’t say anything when he sees me, and neither do I, because the fact that I’m here is an answer. We just look at each other and speak in the silence like we always have and no one interrupts the conversation.
+ - I doubt taking in a sullen, bitter, teenage girl with more issues than National Geographic is at the center of the vision board for a single woman in her early thirties.
+ - You get halfway through with your life and you realize you haven’t done the things you wanted to do or become what you’d thought you’d become and it’s disheartening.
+ - Daylight won’t protect you from anything. Bad things happen all the time; they don’t wait until after dinner.
+ - I don’t know if I’m okay. It shouldn’t be possible to be this close to another person. To let them crawl inside you.
+ - I’d trade my hand all over again to take back everything I did and hear him call me Sunshine.
+ - Wonderful. Last night’s dinner, the charred remains of my dignity, and apparently, now, my undergarments, too. What else did I leave on Josh Bennett’s bathroom floor?
+ - My jealousy is a living thing. Shifting, changing, growing. Like my rage and my mother’s regret.
+ - Because it’s good when you find one that does mean something. Makes all the empty ones worthwhile.
+ - People who go around advertising their birthdays are douchebags. It’s a fact. You can look it up on Wikipedia.
+ - There are so many things that can break you if there’s nothing to hold you together.
+ - He’s the kind of good-looking that transforms once self-respecting females into useless puddles of dumbass.
+ - What? Sunshine fits you. It’s bright and warm and happy. Just. Like. You.
+ - True story.
+ - I may not be allowed to love her, but that doesn’t mean I’ll let anyone hurt her.
+ - Nothing is perfect. It’s not even good yet. But maybe.
+ - I can be your other hand when you need it.
+ - I’ve done goodbyes before, and I can do this one, too. Somehow this one hurts worse than the others; because this one I could prevent if I wanted to, since I’m the one saying it. This goodbye comes with a choice the way none of the others did.
+ - He’s kissing me. And when he does, part of me is lost. But it’s the part that’s twisted and mangled and wrong, and for just that moment, with his hands in my hair and his lips on my mouth, I can pretend that it never existed.
+ - I know at that moment what he’s given me and it isn’t a chair. It’s an invitation, a welcome, the knowledge that I am accepted here. He hasn’t given me a place to sit. He’s given me a place to belong.
+ - I have a black-belt in self-pity. I was an expert in the field. Still am. It’s a skill you never forget.
+ - We’re like mysteries to one another. Maybe if I can solve him and he can solve me, we can explain each other. Maybe that’s what I need. Someone to explain me.
+ - It’s a little bit devastating being surrounded by people who can do what you can’t anymore. People who create. People whose souls don’t live in their bodies anymore because they’ve leached so much of themselves into their work.
+ - Josh Bennett laughs, and for one minute, everything is right in the world.
+ - I’d watch her, amazed at just how much a person could accomplish fueled by tea and regret.
+
+39 quotes

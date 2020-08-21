@@ -1,0 +1,153 @@
+ - Arguing that you don’t care about the right to privacy because you have nothing to hide is no different than saying you don’t care about free speech because you have nothing to say.
+ - Even if you’re not doing anything wrong, you are being watched and recorded.
+ - Truth is coming and it cannot be stopped.
+ - What is right is not always the same as what is legal.
+ - A child born today will grow up with no conception of privacy at all.
+ - I would rather be without a state than without a voice.
+ - Under observation, we act less free, which means we effectively are less free.
+ - We don’t have to ask for our privacy, we can take it back.
+ - If you’re not acting on your beliefs, then they probably aren’t real.
+ - I have no intention of hiding who I am because I know I have done nothing wrong.
+ - I had been looking for leaders, but I realized that leadership is about being the first to act.
+ - The NSA and Israel wrote Stuxnet together.
+ - Because, remember, I didn’t want to change society. I wanted to give society a chance to determine if it should change itself.
+ - If you seek to help, join the open source community and fight to keep the spirit of the press alive and the internet free. I have been to the darkest corners of government, and what they fear is light.
+ - A child born today will grow up with no conception of privacy at all. They’ll never know what it means to have a private moment to themselves an unrecorded, unanalysed thought. And that’s a problem because privacy matters, privacy is what allows us to determine who we are and who we want to be.
+ - Being called a traitor by Dick Cheney is the highest honor you can give an American.
+ - The NSA was actually concerned back in the time of the crypto-wars with improving American security. Nowadays, we see that their priority is weakening our security, just so they have a better chance of keeping an eye on us.
+ - All I wanted was for the public to be able to have a say in how they are governed. That is a milestone we left a long time ago.
+ - When you say, ‘I have nothing to hide,’ you’re saying, ‘I don’t care about this right.’ You’re saying, ‘I don’t have this right, because I’ve got to the point where I have to justify it.’ The way rights work is, the government has to justify its intrusion into your rights.
+ - My perspective is if you’re not willing to be called a few names to help out your country, you don’t care enough.
+ - Your rights matter, because you never know when you’re going to need them.
+ - You shouldn’t change your behavior because a government agency somewhere is doing the wrong thing. If you sacrifice your values because you’re afraid, you don’t care about those values very much.
+ - There have been times throughout American history where what is right is not the same as what is legal. Sometimes to do the right thing you have to break the law.
+ - The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change.
+ - If I wanted to see your emails or your wife’s phone, all I have to do is use intercepts. I can get your emails, passwords, phone records, credit cards.
+ - The immoral cannot be made moral through the use of secret law.
+ - Initially I was very encouraged. Unfortunately, the mainstream media now seems far more interested in what I said when I was 17 or what my girlfriend looks like rather than, say, the largest program of suspicionless surveillance in human history.
+ - It’s really hard to take that step-not only do I believe in something, I believe in it enough that I’m willing to set my own life on fire and burn it to the ground.
+ - I’m neither traitor nor hero. I’m an American.
+ - The government has granted itself power it is not entitled to. There is no public oversight. The result is people like myself have the latitude to go further than they are allowed to.
+ - So many of the things we’re told by the government simply aren’t true.
+ - I went to a website the other day and right at the top of the page it showed me my ip address. It was the most disturbing moment I have ever experienced. This website even told me what internet browser I was using, and what day it was. Computers can do anything.
+ - The NSA has built an infrastructure that allows it to intercept almost everything.
+ - I do not expect to see home again.
+ - Privacy is a function of liberty.
+ - The NSA routinely lies in response to congressional inquiries about the scope of surveillance in America.
+ - The question for us is not what new story will come out next. The question is, what are we going to do about it?
+ - You shouldn’t send an email from a computer that’s associated with you if you don’t want it to be tracked back to you. You don’t want to hack the power plant from your house if you don’t want them to follow the trail back and see your IP address.
+ - I care more about the country than what happens to me. But we can’t allow the law to become a political weapon or agree to scare people away from standing up for their rights, no matter how good the deal. I’m not going to be part of that.
+ - The community of technical experts who really manage the internet, who built the internet and maintain it, are becoming increasingly concerned about the activities of agencies like the NSA or Cyber Command, because what we see is that defense is becoming less of a priority than offense.
+ - Let’s put it this way. The United States government has assembled a massive investigation team into me personally, into my work with the journalists, and they still have no idea what documents were provided to the journalist, what they have, what they don’t have, because encryption works.
+ - We hack everyone everywhere. We like to make a distinction between us and the others. But we are in almost every country in the world. We are not at war with these countries.
+ - The definition of a security state is one that prioritizes security over all other considerations.
+ - We have seen enough criminality on the part of government. It is hypocritical to make this allegation against me. They have narrowed the public sphere of influence.
+ - Bathtub falls and police officers kill more Americans than terrorism, yet we’ve been asked to sacrifice our most sacred rights for fear of falling victim to it.
+ - There are times throughout history and it doesn’t take long for either an American or a German, to think about times in the history of their country where the law provided the Government to do things which were not right.
+ - We watch our own people more closely than anyone else in the world.
+ - I believe that at this point in history, the greatest danger to our freedom and way of life comes from the reasonable fear of omniscient State powers kept in check by nothing more than policy documents.
+ - Encryption works. Properly implemented strong crypto systems are one of the few things that you can rely on. Unfortunately, endpoint security is so terrifically weak that NSA can frequently find ways around it.
+ - I took what I knew to the public, so what affects all of us can be discussed by all of us in the light of day, and I asked the world for justice.
+ - I have been to the darkest corners of government, and what they fear is light.
+ - FBI creating a world where citizens rely on Apple to defend their rights, rather than the other way around.
+ - I don’t think there’s anything, any threat out there today that anyone can point to, that justifies placing an entire population under mass surveillance.
+ - When you use any kind of internet based capability, any kind of electronic capability, to cause damage to a private entity or a foreign nation or a foreign actor, these are potential acts of war.
+ - There are proxies, proxy servers on the internet, and this is very typical for hackers to use. They create what are called proxy chains where they gain access to a number of different systems around the world, sometimes by hacking these, and they use them as sort of relay boxes.
+ - We need to put the security back in the National Security Agency. We can’t have the national surveillance agency.
+ - I’m still alive, and I don’t lose sleep because I have done what I feel I needed to do, it was the right thing to do and I am not going to be afraid.
+ - I don’t want to live in a society that does these sort of things.
+ - As a general rule, US-based multinationals should not be trusted until they prove otherwise. This is sad, because they have the capability to provide the best and most trusted services in the world if they actually desire to do so.
+ - We have the means and we have the technology to end mass surveillance without any legislative action at all, without any policy changes.
+ - Ending mass surveillance of private phone calls under the Patriot Act is a historic victory for the rights of every citizen. Yet while we have reformed this one program, many others remain.
+ - America is a fundamentally good country. We have good people with good values who want to do the right thing. But the structures of power that exist are working to their own ends to extend their capability at the expense of the freedom of all publics.
+ - I’ve been a spy for almost all of my adult life – I don’t like being in the spotlight.
+ - When the lights go out at a power plant sometime in the future, we’re going to know that that’s a consequence of deprioritizing defense for the sake of an advantage in terms of offense.
+ - There’s no saving me.
+ - I don’t want to hide. If I get arrested, I get arrested.
+ - I have had no contact with the Chinese government. I only work with journalists.
+ - Citizens have to fight suppression of information on matters of vital public importance. To tell the truth is not a crime.
+ - These activities can be misconstrued, misinterpreted, and used to harm you as an individual, even without the government having any intent to do you wrong.
+ - We have to be able to reject disproportionate and unjustified responses in the cyber domain just as we do in the physical domain.
+ - Most of the secrets the CIA has are about people, not machines and systems, so I didn’t feel comfortable with disclosures that I thought could endanger anyone.
+ - The most important thing to the United States is not being able to attack our adversaries, the most important thing is to be able to defend ourselves. And we can’t do that as long as we’re subverting our own security standards for the sake of surveillance.
+ - We should never allow computers to make inherently governmental decisions in terms of the application of military force, even if that’s happening on the internet.
+ - There’s no question that the US is engaged in economic spying. If there’s information at Siemens that they think would be beneficial to the national interests, not the national security of the United States, they’ll go after that information and they’ll take it.
+ - The majority of terrorist attacks that have been disrupted in the United States have been disrupted due to things like the Time Square bomber, who was caught by a hotdog vendor, not a mass surveillance program, not a cyber-espionage campaign.
+ - Cyber Command is supposed to be defending our critical infrastructure at home, but they are spending so much time looking at how to attack networks, how to break systems, and how to turn things off. I don’t think it adds up as representing a defensive team.
+ - It’s important to remember when you start doing things like attacking hospitals through the internet, when you start attacking things like internet exchange points, when something goes wrong, people can die. If a hospital’s infrastructure is affected, lifesaving equipment turns off.
+ - The only thing I fear is the harmful effects on my family, who I won’t be able to help any more. That’s what keeps me up at night.
+ - There are cyber threats out there, this is a dangerous world, and we have to be safe, we have to be secure no matter the cost.
+ - It is afraid of an informed, angry public demanding the constitutional government it was promised – and it should be.
+ - We have got a CIA station just up the road – the consulate here in Hong Kong – and I am sure they are going to be busy for the next week. And that is a concern I will live with for the rest of my life, however long that happens to be.
+ - The ‘music’ is not an open court and a fair trial.
+ - The work of a generation is beginning here, with your hearings, and you have the full measure of my gratitude and support.
+ - My intention is to ask the courts and people of Hong Kong to decide my fate.
+ - I think the public still isn’t aware of the frequency with which the cyber-attacks, as they’re being called in the press, are being used by governments around the world, not just the US.
+ - Acting Government officials, they said they wanted – they would be happy, they would love to put a bullet in my head, to poison me as I was returning from the grocery store, and have me die in the shower.
+ - The United States need to put internet processes, policies, and procedures in place with real laws that forbid going beyond the borders of what’s reasonable to ensure that the only time that we and other countries around the world exercise these authorities are when it is absolutely necessary.
+ - You can show a guy sort of peeking over the wall, you can see a guy tunneling underneath, you can see a guy going through the front door. All of those, in cyber terms, are vulnerabilities, because it’s not that you have to look for one hole of a specific type. It’s the whole paradigm.
+ - When you are subverting the power of government, that’s a fundamentally dangerous thing to democracy.
+ - US has to be able to rely on a safe and interconnected internet in order to compete with other countries.
+ - It’s critical how we want to use these spy programs, these electronic capabilities, where we want to draw the line, and who should approve these programs, these decisions, and at what level, for engaging in operations that could lead us as a nation into a war.
+ - A lot of people in 2008 voted for Obama. I did not vote for him. I voted for a third party. But I believed in Obama’s promises.
+ - I have no relationship with the Russian government at all.
+ - I’m not a spy for Russia or China or any other country for that matter.
+ - If the Obama administration responds with an even harsher hand against me, they can be assured that they’ll soon find themselves facing an equally harsh public response.
+ - What has a great value to us as a nation is the internet itself. The internet is critical infrastructure to the United States. We use the internet for every communication that businesses rely on every day.
+ - I know the media likes to personalize political debates, and I know the government will demonize me.
+ - I carefully evaluated every single document I disclosed to ensure that each was legitimately in the public interest. There are all sorts of documents that would have made a big impact that I didn’t turn over, because harming people isn’t my goal. Transparency is.
+ - There is a policy response that needs to occur. There is also a technical response that needs to occur. It is the development community that can really craft the solutions and make sure we are safe.
+ - I will be satisfied if the federation of secret law, unequal pardon and irresistible executive powers that rule the world that I love are revealed even for an instant.
+ - America should be cooling down the tensions in the internet, making it a more trusted environment, making it a more secure environment, making it a more reliable environment, because that’s the foundation of our economy and our future.
+ - Everyone everywhere now understands how bad things have gotten – and they’re talking about it. They have the power to decide for themselves whether they are willing to sacrifice their privacy to the surveillance state.
+ - The consent of the governed is not consent if it is not informed.
+ - Any analyst at any time can target anyone. Any selector, anywhere I, sitting at my desk, certainly had the authorities to wiretap anyone, from you or your accountant, to a federal judge, to even the President.
+ - The sad truth is that societies that demand whistleblowers be martyrs often find themselves without either, and always when it matters the most.
+ - I don’t want the stage. I’m terrified of giving these talking heads some distraction, some excuse to jeopardize, smear, and delegitimize a very important movement.
+ - Citizens with a conscience are not going to ignore wrong-doing simply because they’ll be destroyed for it: the conscience forbids it.
+ - Individuals have international duties which transcend the national obligations of obedience. Therefore individual citizens have the duty to violate domestic laws to prevent crimes against peace and humanity from occurring.
+ - I have had many opportunities to flee HK, but I would rather stay and fight the United States government in the courts, because I have faith in Hong Kong’s rule of law.
+ - You are not even aware of what is possible. The extent of their capabilities is horrifying. We can plant bugs in machines. Once you go on the network, I can identify your machine. You will never be safe whatever protections you put in place.
+ - The majority of people in developed countries spend at least some time interacting with the Internet, and Governments are abusing that necessity in secret to extend their powers beyond what is necessary and appropriate.
+ - Much of what I saw in Geneva really disillusioned me about how my government functions and what its impact is in the world. I realized that I was part of something that was doing far more harm than good.
+ - My sole motive is to inform the public as to that which is done in their name and that which is done against them.
+ - Defending ourselves from internet-based attacks, internet-originated attacks, is much, much more important than our ability to launch attacks against similar targets in foreign countries.
+ - I understand that I will be made to suffer for my actions, and that the return of this information to the public marks my end.
+ - I’m still working for the government.
+ - When Clapper raised his hand and lied to the American public, was anyone tried? Were any charges brought? Within 24 hours of going public, I had three charges against me.
+ - The United States need to be focusing more on creating a more secure, more reliable, more robust, and more trusted internet, not one that’s weaker, not one that relies on this systemic model of exploiting every vulnerability, every threat out there.
+ - The public don’t want to authorize the internet to become a battleground. We need to do everything we can as a society to keep that a neutral zone, to keep that an economic zone that can reflect our values, both politically, socially, and economically.
+ - Ultimately, if people lose their willingness to recognize that there are times in our history when legality becomes distinct from morality, we aren’t just ceding control of our rights to the government, but our futures.
+ - If you ask anybody at Cyber Command or look at any of the job listings for openings for their positions, you’ll see that the one thing they don’t prioritize is computer network defense. It’s all about computer network attack and computer network exploitation at Cyber Command.
+ - We need to think about encryption not as this sort of arcane, black art. It’s a basic protection.
+ - US spend more on research and development than the other countries, so we shouldn’t be making the internet a more hostile, a more aggressive territory.
+ - If I defected at all, I defected from the government to the public.
+ - We’ve learned that we’ve allowed technological capabilities to dictate policies and practices, rather than ensuring that our laws and values guide our technological capabilities.
+ - You will never be completely free from risk, if you’re free. The only time you can be free from risk is when you’re in prison.
+ - I’m not a spy, which is the real question.
+ - When it comes to cyber conflicts between, say, America and China or even a Middle Eastern nation, an African nation, a Latin American nation, a European nation, we have more to lose.
+ - The internet has to be protected from intrusive monitoring or else the medium upon which we all rely for the basis of our economy and our normal life, we’ll lose that, and it’s going to have broad effects as a consequence that we cannot predict.
+ - If an adversary didn’t target our power plants but they did target the core routers, the backbones that tie our internet connections together, entire parts of the United States could be cut off. That would have a tremendous impact on us as a society and it would have a policy backlash.
+ - And that’s not something I’m willing to support, it’s not something I’m willing to build and it’s not something I’m willing to live under.
+ - As a general rule, so long as you have any choice at all, you should never route through or peer with the UK under any circumstances. Their fibers are radioactive, and even the Queen’s selfies to the pool boy get logged.
+ - When people are talking about cyber weapons, digital weapons, what they really mean is a malicious program that’s used for a military purpose. A cyber weapon could be something as simple as an old virus from 1995 that just happens to still be effective if you use it for that purpose.
+ - It’s becoming less and less the National Security Agency and more and more the national surveillance agency. It’s gaining more offensive powers with each passing year.
+ - The United States is more reliant on the technical systems. We’re more reliant on the critical infrastructure of the internet than any other nation out there. And when there’s such a low barrier to entering the domain of cyber-attacks we’re starting a fight that we can’t win.
+ - I don’t want to live in a world where there’s no privacy, and therefore no room for intellectual exploration and creativity.
+ - You can’t come up against the world’s most powerful intelligence agencies and not accept the risk.
+ - The US government is not going to be able to cover this up by jailing or murdering me. Truth is coming, and it cannot be stopped.
+ - They are intent on making every conversation and every form of behavior in the world known to them.
+ - Our founders did not write that We hold these Truths to be self-evident, that all US Persons are created equal.
+ - I do not want to live in a world where everything I do and say is recorded. That is not something I am willing to support or live under.
+ - We are no longer citizens, we no longer have leaders. We’re subjects, and we have rulers.
+ - One of the foremost activities of the NSA’s FAD, or Foreign Affairs Division, is to pressure or incentivize EU member states to change their laws to enable mass surveillance.
+ - When it is made to appear as though not knowing everything about everyone is an existential crisis, then you feel that bending the rules is okay. Once people hate you for bending those rules, breaking them becomes a matter of survival.
+ - The US government still has no idea what documents I have because encryption works.
+ - There can be no faith in government if our highest offices are excused from scrutiny – they should be setting the example of transparency.
+ - The internet is the most complex system that humans have ever invented. And with every internet enabled operation that we’ve seen so far, all of these offensive operations, we see knock on effects. We see unintended consequences.
+ - There are programs such as the NSA paying RSA $10 million to use an insecure encryption standard by default in their products. That’s making us more vulnerable not just to the snooping of our domestic agencies, but also foreign agencies.
+ - People have to be free to investigate computer security. People have to be free to look for the vulnerabilities and create proof of concept code to show that they are true vulnerabilities in order for us to secure our systems.
+ - We’ve seen a departure from the traditional work of the National Security Agency. They’ve become sort of the national hacking agency, the national surveillance agency. And they’ve lost sight of the fact that everything they do is supposed to make us more secure as a nation and a society.
+ - I have been a systems engineer, systems administrator, a senior adviser for the Central Intelligence Agency, a solutions consultant and a telecommunications information systems officer.
+
+151 quotes

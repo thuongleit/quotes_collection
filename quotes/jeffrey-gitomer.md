@@ -1,0 +1,117 @@
+ - Invest time, don’t spend it.
+ - Customer satisfaction is worthless. Customer loyalty is priceless.
+ - Differentiate with value or die with price.
+ - Obstacles can’t stop you. Problems can’t stop you. Most of all, other people can’t stop you. Only you can stop you.
+ - Quality performance starts with a positive attitude.
+ - Proper prospecting prevents poverty.
+ - There’s no lotion or potion that will make sales faster and easier for you – unless your potion is hard work.
+ - Your grammar is a reflection of your image. Good or bad, you have made an impression. And like all impressions, you are in total control.
+ - Customers will want to talk to you if they believe you can solve their problems.
+ - In business, your positive thoughts and lifestyle choices lead to your personal success and your career success.
+ - People don’t like to be sold, but they love to buy!
+ - You don’t earn loyalty in a day. You earn loyalty day-by-day.
+ - Take more chances than you dare. You’ll make more sales than you expect. That’s the formula.
+ - Resilience is not what happens to you. It’s how you react to, respond to, and recover from what happens to you.
+ - Prepare to win, or lose to someone who is.
+ - Great people have great values and great ethics.
+ - Trust is even more important than love.
+ - Failure is not about insecurity. It’s about lack of execution.
+ - The key in mastering any kind of sales is switching statements about you and how great you are and what you do, to statements about them, and how great they are and how they will produce more and profit more from ownership of your product or service.
+ - To be a great leader of people – inspire them to follow you, not your rules.
+ - All things being equal, people want to do business with their friends.
+ - Most people will not do the hard work it takes to make success easy. Don’t be like most people.
+ - If you make a sale, you can earn a commission. If you make a friend, you can earn a fortune!
+ - If you want to be the best salesperson, first you must be the best person.
+ - Every time a customer calls or you call a customer, you have an opportunity and a choice. What choice are you making?
+ - Biggest question: Isn’t it really ‘customer helping’ rather than customer service? And wouldn’t you deliver better service if you thought of it that way?
+ - Don’t dwell on the problem; concentrate on the solution.
+ - Good things come to those who have patience and take consistent, persistent actions toward what they want.
+ - Rich relationships lead to much more than money. They lead to success, fulfillment, and wealth.
+ - Friendly makes sales – and friendly generates repeat business.
+ - Loyalty is earned with friendliness, responsiveness, ease of doing business, fair value, and the good feeling customers get when they call you, visit you, or interact with you.
+ - Random acts of kindness and the desire to do the best job possible lead to trust.
+ - Positive attitude is the foundation of your life – and the determining factor of your ability to serve.
+ - Positive mental attitude is determined by you. Not others.
+ - It ain’t the rain, the snow, the boss, the competition, the spouse, the money, the car, the job, or the kids – it’s you! And it always has been.
+ - In sales, it’s not what you say; it’s how they perceive what you say.
+ - Ignore the junk news – work on a worthwhile project, make a plan, or do something to enhance your life.
+ - A big part of honesty is self-discipline, personal resolve, and taking pride in who you are as a person and what each action means to your character.
+ - There is no one way to Happiness. Happiness is the way! It’s inside your head FIRST and everyplace else second.
+ - There is no prize in sales for second place. It’s win or nothing. The masters know this and strive for – they fight for – that winning edge.
+ - Make everyday as productive as the day before you go on vacation.
+ - Attitude precedes service. Your positive mental attitude is the basis for the way you act and react to people. ‘You become what you think about’ is the foundation of your actions and reactions. What are your thoughts? Positive all the time? How are you guiding them?
+ - If you don’t think you can do it, who will? You control the most important tool in success, your mind.
+ - Trust is not spoken, Trust is a feeling.
+ - Be friendly first. Service starts with a friendly person with a friendly smile, who offers friendly words first. How friendly are you?
+ - Use your CRM to retain customers.
+ - Improve writing skills: 1. Keep paragraphs short. 2. Use bold and CAPS to make points. 3. Start with a question or short statement. 4. Give me meat in the middle. All meat. 5. Make me smile, think, or act at the end.
+ - The best way to learn how to become trustworthy is to study other trustworthy people.
+ - If you want or need to move, move with a winning record of success, move with a plan, and move to something you love.
+ - Most salespeople are half prepared. They know everything about their company and their product. They know nothing about their prospect.
+ - The deeper your belief, the deeper your pockets.
+ - Negative people are worse than negative occurrences. The argument is over in ten minutes – the person may hang around for years.
+ - Value the relationship more than making your quota.
+ - The secret to sucessful customer service starts with YES!
+ - If you don’t give trust to others, it’s because you haven’t earned it. If you don’t have trust form others, it’s because YOU haven’t earned it.
+ - I believe that a smile is the attribute of a positive attitude, both for yourself and the perception of others.
+ - If you think that I’m nuts, you may be right. But I’m a nut with a positive attitude, baby!
+ - You can’t trust others unless you trust yourself.
+ - If all it takes is an angry stranger to ruin your day, what are you going to do if something really serious happens? Why give someone else control of your life like that?
+ - The secret to climbing up is to put your heart into your work.
+ - It’s your thoughts behind the words you speak that create your attitude.
+ - Accepting responsibility is the fulcrum point for succeeding at anything.
+ - Sales is survival, the best-prepared are most likely to survive.
+ - Writing is a key differentiator. I’ve used it for 14 years. Writing will not just lead to differentiation. Writing is the credibility you need to create buyer confidence.
+ - You cannot buy trust at any price. But slowly, over time, you can build it for free.
+ - If you are going to leave message, you have to be able to give enough value or reason to get your voice mail returned.
+ - Social media presents an opportunity for business people to connect and know each other prior to a phone call or email taking place.
+ - A person who seems to have all of the answers, usually isn’t listening.
+ - Take action every day – some small dose at a time.
+ - Everything you need to know about a customer has been written by them or about them. And it lives on the Internet. All you have to do is uncover it. And use it.
+ - The best way to make a sale is to ask for ask for a date of beginning, or some type of commitment to move forward after you are certain you have removed all the risks, and all the barriers, from your prospect’s buying process.
+ - It seems to me that it’s actually harder to invent excuses than it is to get a sale.
+ - Ignore people who tell you ‘you can’t’ or try to discourage you.
+ - My website, my email magazine, my blog, my books, my corporate seminars, and my public seminars all create the ability for social media to work and all build reputation and ranking.
+ - Create a friendly atmosphere on the inside and outside. Live Friendly. Be a friendly person on the inside. Have the attitude it takes to be smiling internally first.
+ - Memorable customer service can only take place in a human-to-human situation.
+ - What is a positive attitude? The simple definition is the way you dedicate yourself to the way you think. Interestingly, it’s also the definition of a negative attitude.
+ - Your character holds the key to your trustworthiness.
+ - The reason you have to say “Trust me” is that you haven’t earned it and are forced to ask for it – BAD MOVE.
+ - Some people serve with pride – because they ‘want to’ do and be their best; other people serve with disdain because they ‘have to’ do their job. Which person do you think will end up running the show?
+ - I put myself in front of people who can say yes to me, and I deliver value first.
+ - Satisfied customers are apathetic. Loyal customers will be your advocate.
+ - Your job is to meet the right people and read the right books.
+ - People who to back and chastise themselves, or second guess themselves, for making a wrong decision or a weak decision continues to set themselves up for failure in future decisions simply because they don’t trust themselves.
+ - When you begin to give value to the world, somehow the people you affect will find a way to tell you. Even if it takes a couple of years.
+ - Persuasion occurs when trust and confidence meet belief, risk tolerance, and safety.
+ - It never ceases to amaze me that companies will spend thousands of hours and millions of dollars teaching people ‘how to sell,’ and not one minute or not $10 on ‘why they buy.’ And ‘why they buy’ is all that matters.
+ - The only way to achieve your desires and dreams is to ACT ON THEM. The greater you trust in yourself, your beliefs, and your thoughts, the more action you will take.
+ - Once you discover what your attitude is, or isn’t, you’ll have a starting point and an understanding of how to move forward.
+ - Courage is a self-inflicted quality that gains momentum every time you try it.
+ - Create a story of WOW that will be retold.
+ - National Defense is not a threat to peace; it is the guarantee of peace with freedom.
+ - The more a prospective customer clicks on you and your stuff, the easier it is for them to make a buying decision in your favor.
+ - Listening is the hard part. Listening is the important part. The hot button is in the prospect’s response.
+ - If you’re not convinced, how can you convince others?
+ - If you look deep inside trust, you’ll find truth.
+ - Your mental attitude is your motivation and your inspiration.
+ - One legislator accused me of having a 19th century attitude on law and order. That is a totally false charge. I have an 18th century attitude. That is when the Founding Fathers made it clear that the safety of law abiding citizens should be one of government’s primary concerns.
+ - The key is not to call the decision maker. The key is to have the decision maker call you.
+ - Testimonials are the BEST way to beat down the price objection and win the sale.
+ - Bankrupsy stays on your record for 7-10yrs. That gives you an idea how long it takes to rebuild trust.
+ - I graduated from high school in 1963. There were no computers, cell phones, Internet, credit cards, cassette tapes or cable TV.
+ - Price is not a consideration when a personal relationship exists.
+ - Sell yourself before you try to sell your company or your product.
+ - If you believe in your company. If you believe in your product. If you believe in yourself. Then you can march to success.
+ - If you own the problem, you own the customer. If you lose the problem, you lose the customer. It’s that simple.
+ - You don’t get great at selling in a day. You get great at selling day by day.
+ - Next time someone tells you ‘never,’ remember that means ‘not for at least one hour.’
+ - The biggest reason that positive endings don’t happen is because employees are trained on policies and rules rather than principles.
+ - Great salespeople are relationship builders who provide value and help their customers win.
+ - Go to humorous events at comedy clubs and watch laughable movies.
+ - The reason Trust is requested is because the person seeking Trust realizes that Trust is the key to Yes.
+ - What is the image you have of yourself?
+ - The biggest mistake businesses make is advertising before they have become well known.
+ - Mistakes in judgment are the best teachers in the world, and if you choose to learn from them then you will begin to trust yourself and understand that, correct or incorrect you were decisive and moved on.
+
+115 quotes

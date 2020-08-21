@@ -1,0 +1,55 @@
+ - Dads are most ordinary men turned by love into heroes, adventurers, story-tellers, singers of songs.
+ - A friendship can weather most things and thrive in thin soil; but it needs a little mulch of letters and phone calls and small, silly presents every so often – just to save it from drying out completely.
+ - Always smile back at little children. To ignore them is to destroy their belief that the world is good.
+ - When sisters stand shoulder to shoulder, who stands a chance against us?
+ - An older sister is a friend and defender – a listener, conspirator, a counsellor and a sharer of delights. And sorrows too.
+ - We expect too much at Christmas. It’s got to be magical. It’s got to go right. Feasting. Fun. The perfect present. All that anticipation. Take it easy. Love’s the thing. The rest is tinsel.
+ - We shared. Parents. Home. Pets. Celebrations. Catastrophes. Secrets. And the threads of our experience became so interwoven that we are linked. I can never be utterly lonely, knowing you share the planet.
+ - If you’ve only one breath left, use it to say thank you.
+ - Friendship is not diminished by distance or time, by imprisonment or war, by suffering or silence. It is in these things that it roots most deeply.
+ - From serenity comes gentleness, comes lasting strength.
+ - Cats can work out mathematically the exact place to sit that will cause most inconvenience.
+ - Dads don’t need to be tall and broad-shouldered and clever. Love makes them so.
+ - Becoming a grandmother is wonderful. One moment you’re just a mother. The next you are all-wise and prehistoric.
+ - Sisters don’t need words. They have perfected a language of snarls and smiles and frowns and winks – expressions of shocked surprise and incredulity and disbelief. Sniffs and snorts and gasps and sighs – that can undermine any tale you’re telling.
+ - Loss leaves us empty – but learn not to close your heart and mind in grief. Allow life to replenish you. When sorrow comes it seems impossible – but new joys wait to fill the void.
+ - You took me to adventure and to love. We two have shared great joy and great sorrow. And now I stand at the gate of the paddock watching you run in an ecstasy of freedom, knowing you will return to stand quietly, loyally, beside me.
+ - A teddy bear is your childhood wrapped up in faded yellow fur, and as such, he commands affection long after he is out grown.
+ - If there is a heaven, it’s certain our animals are to be there. Their lives become so interwoven with our own, it would take more than an archangel to detangle them.
+ - A horse can lend its rider the speed and strength he or she lacks – but the rider who is wise remembers it is no more then a loan.
+ - The child who ran weeping to you with a cut finger is now brought home, smiling gamely, with a broken collarbone and incredible contusions- ‘it wasn’t Jezebels fault, Dad.’
+ - You never realize how much your mother loves you till you explore the attic – and find every letter you ever sent her, every finger painting, clay pot, bead necklace, Easter chicken, cardboard Santa Claus, paperlace Mother’s Day card and school report since day one.
+ - Brooks too wide for our leaping, hedges far to high. Loads too heavy for our moving, burdens too cumbersome for us to bear. Distances far beyond our journeying. The horse gave us mastery.
+ - Sisters annoy, interfere, criticize. Indulge in monumental sulks, in huffs, in snide remarks. Borrow. Break. Monopolize the bathroom. Are always underfoot. But if catastrophe should strike, sisters are there. Defending you against all comers.
+ - Be wary of the horse with a sense of humor.
+ - It’s hard to be responsible, adult and sensible all the time. How good it is to have a sister whose heart is as young as your own.
+ - Bears need people. People need bears.
+ - Horses lend us the wings we lack.
+ - The baby rises to its feet, takes a step, is overcome with triumph and joy – and falls flat on its face. It is a pattern for all that is to come! But learn from the bewildered baby. Lurch to your feet again. You’ll make the sofa in the end.
+ - Medicines may be necessary. Flowers lift the heart. But your smile is the best restorative of all.
+ - Sisters never quite forgive each other for what happened when they were five.
+ - A dog wakens your heart to joy and companionship.
+ - Give a pup a home and a little love and he will give you his heart forever.
+ - The trouble with sharing one’s bed with cats is that they’d rather sleep on you than beside you.
+ - You are asleep. Deep, deep asleep – and then the world caves in. The cat has leapt from the top window onto your stomach. He is saturated. He is hungry. He taps you into full wakefulness with a sodden paw “Could you open a can?”
+ - Integrity rings like fine glass. True, clear, and reassuring.
+ - A sister is the cure for swollen heads and ego trips. One may a star, a Chief Executive-famous and rich and beautiful. But one’s sister has the family photo album. And a long, long memory. And a tendency to wink at one on Top Occasions.
+ - Human beings are drawn to cats because they are all we are not – self-contained, elegant in everything they do, relaxed, assured, glad of company, yet still possessing secret lives.
+ - We have become a society where the artist is regarded as a self-indulgent superfluity, and the person who juggles stocks and shares is an essential part of the economy.
+ - In a world gone bad, a bear – even a bear standing on its head – is a comforting, uncomplicated, dependable hunk of sanity.
+ - A teddy bear does not depend upon mechanics to give him the semblance of life. He is loved – and therefore he lives.
+ - The first step to wisdom is to be sure one says and does what one believes.
+ - Love is to understand, at last, the suffering of another.
+ - For sheer excitement you can keep movie premieres and roller-coasters. An empty white canvas waiting to be filled. That’s the thing.
+ - However time or circumstances may come between mother and her child, their lives are interwoven forever.
+ - Music speaks of Platonic truth – the ideal river rather than the polluted reality, love as we dream it rather than we experience it, grief noble and uplifting rather than our distracted weeping. It is necessary to our survival and our sanity.
+ - A cat likes to hear you calling him. He sits in a bush a yard from your shoes – and listens.
+ - For the sake of the sons – and even for the son’s future wives – a woman must keep a part of her mind and heart entirely for herself. Every family is better off with a wife and mother who can astonish and occasionally dewilder.
+ - It should be possible to exist with only a short shelf of books, to read and give away. After all – we may not open a book, once read, for ten years or more. But the act of reading has made it part of us – to relinquish it would be to lose an extension of our being.
+ - The work of a garden bears visible fruits-in a world where most of our labours seem suspiciously meaningless.
+ - A friend is the only person you will let into the house when you are Turning Out Drawers.
+ - Bears being sent through the mail should never be squashed up to make them fit. It gives them indigestion.
+ - Thank you for being interested. Doesn’t sound much but it meant just about everything.
+ - Many a cat can only be lured in by switching off all the lights and keeping very still. Until the indignant cry of a cat-locked-out comes at the door.
+
+53 quotes

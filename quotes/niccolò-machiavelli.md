@@ -1,0 +1,268 @@
+ - Everyone sees what you appear to be, few experience what you really are.
+ - The lion cannot protect himself from traps, and the fox cannot defend himself from wolves. One must therefore be a fox to recognize traps, and a lion to frighten wolves.
+ - It is better to be feared than loved, if you cannot be both.
+ - Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not to suffer.
+ - Before all else, be armed.
+ - The wise man does at once what the fool does finally.
+ - Entrepreneurs are simply those who understand that there is little difference between obstacle and opportunity and are able to turn both to their advantage.
+ - Make no small plans for they have no power to stir the soul.
+ - Politics have no relation to morals.
+ - Where the willingness is great, the difficulties cannot be great.
+ - If an injury has to be done to a man it should be so severe that his vengeance need not be feared.
+ - It is double pleasure to deceive the deceiver.
+ - Never attempt to win by force what can be won by deception.
+ - The first method for estimating the intelligence of a ruler is to look at the men he has around him.
+ - It is much safer for the prince to be feared than loved, but he ought to avoid making himself hated.
+ - There is no avoiding war; it can only be postponed to the advantage of others.
+ - Men judge generally more by the eye than by the hand, for everyone can see and few can feel. Every one sees what you appear to be, few really know what you are.
+ - It is just as difficult and dangerous to try to free a people that wants to remain servile as it is to enslave a people that wants to remain free.
+ - Impetuosity and audacity often achieve what ordinary means fail to achieve.
+ - Never was anything great achieved without danger.
+ - No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.
+ - Any man who tries to be good all the time is bound to come to ruin among the great number who are not good.
+ - Wisdom consists of knowing how to distinguish the nature of trouble, and in choosing the lesser evil.
+ - Men should be either treated generously or destroyed, because they take revenge for slight injuries – for heavy ones they cannot.
+ - There is nothing as likely to succeed as what the enemy believes you cannot attempt.
+ - It is not titles that honor men, but men that honor titles.
+ - I’m not interested in preserving the status quo; I want to overthrow it.
+ - How we live is so different from how we ought to live that he who studies what ought to be done rather than what is done will learn the way to his downfall rather than to his preservation.
+ - Always assume incompetence before looking for conspiracy.
+ - A sign of intelligence is an awareness of one’s own ignorance.
+ - It must be considered that there is nothing more difficult to carry out, nor more doubtful of success, nor more dangerous to handle, than to initiate a new order of things.
+ - He who wishes to be obeyed must know how to command.
+ - Since love and fear can hardly exist together, if we must choose between them, it is far safer to be feared than loved.
+ - Power is the pivot on which everything hinges. He who has the power is always right; the weaker is always wrong.
+ - So far as he is able, a prince should stick to the path of good but, if the necessity arises, he should know how to follow evil.
+ - Never do your enemy a minor injury.
+ - He who builds on the people, builds on the mud.
+ - One must be a fox to recognize traps and a lion to frighten wolves.
+ - There is nothing more important than appearing to be religious.
+ - Men are always wicked at bottom unless they are made good by some compulsion.
+ - War should be the only study of a prince. He should consider peace only as a breathing-time, which gives him leisure to contrive, and furnishes as ability to execute, military plans.
+ - One should never risk one’s whole fortune unless supported by one’s entire forces.
+ - Men are driven by two principal impulses, either by love or by fear.
+ - There are three kinds of brains. The one understands things unassisted, the other understands things when shown by others, the third understands neither alone nor with the explanations of others.
+ - People should either be caressed or crushed. If you do them minor damage they will get their revenge; but if you cripple them there is nothing they can do. If you need to injure someone, do it in such a way that you do not have to fear their vengeance.
+ - There is no other way to guard yourself against flattery than by making men understand that telling you the truth will not offend you.
+ - A prince never lacks legitimate reasons to break his promise.
+ - A wise ruler should rely on what is under his own control, not on what is under the control of others.
+ - One must consider the final result.
+ - The sinews of war are not gold, but good soldiers; for gold alone will not procure good soldiers, but good soldiers will always procure gold.
+ - The more sand has escaped from the hourglass of our life, the clearer we should see through it.
+ - To understand the nature of the people one must be a prince, and to understand the nature of the prince, one must be of the people.
+ - Hatred is gained as much by good works as by evil.
+ - For the great majority of mankind are satisfied with appearances, as though they were realities, and are often more influenced by the things that seem than by those that are.
+ - He who blinded by ambition, raises himself to a position whence he cannot mount higher, must thereafter fall with the greatest loss.
+ - The promise given was a necessity of the past: the word broken is a necessity of the present.
+ - There is nothing more difficult to take in hand, more perilous to conduct, or more uncertain in its success, than to take the lead in the introduction of a new order of things.
+ - There is nothing so difficult or so dangerous as to undertake to change the order of things.
+ - Forgiveness proceeds from a generous soul.
+ - The leader should know how to enter into evil when necessity commands.
+ - The one who adapts his policy to the times prospers, and likewise that the one whose policy clashes with the demands of the times does not.
+ - A prince is also esteemed when he is a true friend and a true enemy.
+ - One who deceives will always find those who allow themselves to be deceived.
+ - A prince need trouble little about conspiracies when the people are well disposed, but when they are hostile and hold him in hatred, then he must fear everything and everybody.
+ - Wise men say, and not without reason, that whosoever wished to foresee the future might consult the past.
+ - Hence it comes about that all armed Prophets have been victorious, and all unarmed Prophets have been destroyed.
+ - It has always been the opinion and judgment of wise men that nothing can be so uncertain as fame or power not founded on its own strength.
+ - One should never permit a disorder to persist in order to avoid a war, for wars cannot be avoided and can only be deferred to the advantage of others.
+ - Whoever desires to found a state and give it laws, must start with assuming that all men are bad and ever ready to display their vicious nature, whenever they may find occasion for it.
+ - War brings out thieves and peace hangs them.
+ - There is no surer sign of decay in a country than to see the rites of religion held in contempt.
+ - A wise ruler ought never to keep faith when by doing so it would be against his interests.
+ - I hope and hoping feeds my pain I weep and weeping feeds my failing heart I laugh but the laughter does not pass within I burn but the burning makes no mark outside.
+ - The fact is that a man who wants to act virtuously in every way necessarily comes to grief among so many who are not virtuous.
+ - Violence must be inflicted once for all; people will then forget what it tastes like and so be less resentful. Benefits must be conferred gradually; and in that way they will taste better.
+ - The unarmed man is not just defenseless – he is also contemptible.
+ - A battle that you win cancels any other bad action of yours. In the same way, by losing one, all the good things worked by you before become vain.
+ - He who becomes a Prince through the favour of the people should always keep on good terms with them; which it is easy for him to do, since all they ask is not to be oppressed.
+ - Therefore the best fortress is to be found in the love of the people, for although you may have fortresses they will not save you if you are hated by the people.
+ - Good order makes men bold, and confusion, cowards.
+ - One change always leaves the way open for the establishment of others.
+ - Thus it is well to seem merciful, faithful, humane, sincere, religious, and also to be so; but you must have the mind so disposed that when it is needful to be otherwise you may be able to change to the opposite qualities.
+ - The vulgar crowd always is taken by appearances, and the world consists chiefly of the vulgar.
+ - He who is the cause of another’s advancement is thereby the cause of his own ruin.
+ - The chief foundations of all states, new as well as old or composite, are good laws and good arms.
+ - It is a common failing of man not to take account of tempests during fair weather.
+ - Therefore it is unnecessary for a prince to have all the good qualities I have enumerated, but it is very necessary to appear to have them.
+ - Is it better to be loved or feared?
+ - A son can bear with equanimity the loss of his father, but the loss of his inheritance may drive him to despair.
+ - For a long time I have not said what I believed, nor do I ever believe what I say, and if indeed sometimes I do happen to tell the truth, I hide it among so many lies that it is hard to find.
+ - Only those means of security are good, are certain, are lasting, that depend on yourself and your own vigor.
+ - Every little advantage is of great moment when men have to come to blows.
+ - Among other evils which being unarmed brings you, it causes you to be despised.
+ - By the delusions of seeming good the people are often misled to desire their own ruin; and they are frequently influenced by great hopes and brave promises.
+ - With difficulty he is beaten who can estimate his own forces and those of his enemy.
+ - For as laws are necessary that good manners be preserved, so there is need of good manners that law may be maintained.
+ - For, besides what has been said, it should be borne in mind that the temper of the multitude is fickle, and that while it is easy to persuade them of a thing, it is hard to fix them in that persuasion.
+ - Although deceit is detestable in all other things, yet in the conduct of war it is laudable and honorable; and a commander who vanquishes an enemy by stratagem is equally praised with one who gains victory by force.
+ - All the States and Governments by which men are or ever have been ruled, have been and are either Republics or Princedoms.
+ - In conclusion, the arms of others either fall from your back, or they weigh you down, or they bind you fast.
+ - Men ought either to be indulged or utterly destroyed, for if you merely offend them they take vengeance, but if you injure them greatly they are unable to retaliate, so that the injury done to a man ought to be such that vengeance cannot be feared.
+ - Whosoever desires constant success must change his conduct with the times.
+ - There should be many judges, for few will always do the will of few.
+ - Nothing is of greater importance in time of war than in knowing how to make the best use of a fair opportunity when it is offered.
+ - Tardiness often robs us opportunity, and the dispatch of our forces.
+ - I desire to go to Hell and not to Heaven. In the former I shall enjoy the company of popes, kings and princes, while in the latter are only beggars, monks and apostles.
+ - Good order and discipline in any army are to be depended upon more than courage alone.
+ - Wars begin when you will, but they do not end when you please.
+ - God is not willing to do everything, and thus take away our free will and that share of glory which belongs to us.
+ - The princes who have done great things are the ones who have taken little account of their promises.
+ - Nature that framed us of four elements, warring within our breasts for regiment, doth teach us all to have aspiring minds.
+ - I hold strongly to this: that it is better to be impetuous than circumspect; because fortune is a woman and if she is to be submissive it is necessary to beat and coerce her.
+ - It is better to be adventurous than cautious, because fortune is a woman.
+ - When you disarm the people, you commence to offend them and show that you distrust them either through cowardice or lack of confidence, and both of these opinions generate hatred.
+ - Every one sees what you appear to be, few really know what you are, and those few dare not oppose themselves to the opinion of the many, who have the majesty of the state to defend them.
+ - How perilous it is to free a people who prefer slavery.
+ - Anyone who becomes master of a city accustomed to freedom and does not destroy it may expect to be destroyed by it; for such a city may always justify rebellion in the name of liberty and its ancient institutions.
+ - The prince must be a lion, but he must also know how to play the fox.
+ - The peasant wants only to be left alone to prosper in peace.
+ - A prudent man should always follow in the path trodden by great men and imitate those who are most excellent, so that if he does not attain to their greatness, at any rate he will get some tinge of it.
+ - It is often found that modesty and humility not only do no good, but are positively hurtful, when they are shown to the arrogant who have taken up a prejudice against you, either from envy or from any other cause.
+ - Gold will not always get you good soldiers, but good soldiers can get you gold.
+ - I hold it to be a proof of great prudence for men to abstain from threats and insulting words toward anyone, for neither diminishes the strength of the enemy.
+ - Men rise from one ambition to another: first, they seek to secure themselves against attack, and then they attack others.
+ - For, in truth, there is no sure way of holding other than by destroying.
+ - You have to be a prince to understand the people, and you have to belong to the people to understand the princes...
+ - For this is the tragedy of man circumstances change, but he does not.
+ - One should never allow chaos to develop in order to avoid going to war, because one does not avoid a war but instead puts it off to his disadvantage.
+ - One should never fall in the belief that you can find someone to pick you up.
+ - And here comes in the question whether it is better to be loved rather than feared, or feared rather than loved. It might perhaps be answered that we should wish to be both; but since love and fear can hardly exist together, if we must choose between them, it is far safer to be feared than loved.
+ - For it must be noted, that men must either be caressed or else annihilated; they will revenge themselves for small injuries, but cannot do so for great ones; the injury therefore that we do to a man must be such that we need not fear his vengeance.
+ - Of mankind we may say in general they are fickle, hypocritical, and greedy of gain.
+ - He who neglects what is done for what ought to be done, sooner effects his ruin than his preservation.
+ - Any harm you do to a man should be done in such a way that you need not fear his revenge.
+ - The best fortress which a prince can possess is the affection of his people.
+ - A battle that you win cancels all your mistakes.
+ - Men shrink less from offending one who inspires love than one who inspires fear.
+ - If the present be compared with the remote past, it is easily seen that in all cities and in all peoples there are the same desires and the same passions as there always were.
+ - Therefore, it is necessary to be a fox to discover the snares and a lion to terrify the wolves.
+ - One arises from a low to a high station more often by using fraud instead of force.
+ - Men as a whole judge more with their eyes than with their hands.
+ - Since it is difficult to join them together, it is safer to be feared than to be loved when one of the two must be lacking.
+ - A return to first principles in a republic is sometimes caused by the simple virtues of one man. His good example has such an influence that the good men strive to imitate him, and the wicked are ashamed to lead a life so contrary to his example.
+ - Severities should be dealt out all at once, so that their suddenness may give less offense; benefits ought to be handed ought drop by drop, so that they may be relished the more.
+ - God creates men, but they choose each other.
+ - Women are the most charitable creatures, and the most troublesome. He who shuns women passes up the trouble, but also the benefits. He who puts up with them gains the benefits, but also the trouble. As the saying goes, there’s no honey without bees.
+ - Ability and perseverance are the weapons of weakness.
+ - A government which does not trust its citizens to be armed is not itself to be trusted.
+ - In respect to foresight and firmness, the people are more prudent, more stable, and have better judgement than princes.
+ - For one change always leaves a dovetail into which another will fit.
+ - For among other evils caused by being disarmed, it renders you contemptible; which is one of those disgraceful things which a prince must guard against.
+ - Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+ - Whoever conquers a free town and does not demolish it commits a great error and may expect to be ruined himself.
+ - Appear as you may wish to be.
+ - It is necessary that the prince should know how to color his nature well, and how to be a hypocrite and dissembler. For men are so simple, and yield so much to immediate necessity, that the deceiver will never lack dupes.
+ - Change has no constituency.
+ - It makes him hated above all things, as I have said, to be rapacious, and to be a violator of the property and women of his subjects, from both of which he must abstain.
+ - It is better to be bold than too circumspect, because fortune is of a sex which likes not a tardy wooer and repulses all who are not ardent.
+ - Men are so stupid and concerned with their present needs, they will always let themselves be deceived.
+ - The world has always been the same; and there is always as much good fortune as bad in it.
+ - It is necessary for him who lays out a state and arranges laws for it to presuppose that all men are evil and that they are always going to act according to the wickedness of their spirits whenever they have free scope.
+ - Men are so simple and so much inclined to obey immediate needs that a deceiver will never lack victims for his deceptions.
+ - Men walk almost always in the paths trodden by others, proceeding in their actions by imitation.
+ - Speaking generally, men are ungrateful, fickle, hypocritical, fearful odanger and covetous ogain.
+ - Nature creates few men brave, industry and training makes many.
+ - Rome remained free for four hundred years and Sparta eight hundred, although their citizens were armed all that time; but many other states that have been disarmed have lost their liberties in less than forty years.
+ - Men are so simple and yield so readily to the desires of the moment that he who will trick will always find another who will suffer to be tricked.
+ - Occasionally words must serve to veil the facts. But let this happen in such a way that no one become aware of it; or, if it should be noticed, excuses must be at hand to be produced immediately.
+ - When fortune wishes to bring mighty events to a successful conclusion, she selects some man of spirit and ability who knows how to seize the opportunity she offers.
+ - Delusion gives you more happiness than truth gives to me. For injuries ought to be done all at one time, so that, being tasted less, they offend less; benefits ought to be given little by little, so that the flavour of them may last longer.
+ - In our own days we have seen no princes accomplish great results save those who have been accounted miserly.
+ - The greatest remedy that is used against a plan of the enemy is to do voluntarily what he plans that you do by force.
+ - To ensure victory the troops must have confidence in themselves as well as in their commanders.
+ - Men may second fortune, but they cannot thwart her.
+ - We cannot attribute to fortune or virtue that which is achieved without either.
+ - There is simply no comparison between a man who is armed and one who is not. It is simply unreasonable to expect that an armed man should obey one who is unarmed, or that an unarmed man should remain safe and secure when his servants are armed.
+ - A man who is used to acting in one way never changes; he must come to ruin when the times, in changing, no longer are in harmony with his ways.
+ - Whoever is the cause of another becoming powerful, is ruined himself; for that power is produced by him either through craft or force; and both of these are suspected by the one who has been raised to power.
+ - And above all you ought to guard against leading an army to fight which is afraid or which is not confident of victory. For the greatest sign of an impending loss is when one does not believe one can win.
+ - Few men are brave by nature, but good discipline and experience make many so.
+ - Without doubt, ferocious and disordered men are much weaker than timid and ordered ones. For order chases fear from men and disorder lessens ferocity.
+ - Princes should delegate to others the enactment of unpopular measures and keep in their own hands the means of winning favours.
+ - A multitude is strong while it holds together, but so soon as each of those who compose it begins ro think of his own private danger, it becomes weak and contemptible.
+ - Cruelties should be committed all at once.
+ - But in Republics there is a stronger vitality, a fiercer hatred, a keener thirst for revenge. The memory of their former freedom will not let them rest; so that the safest course is either to destroy them, or to go and live in them.
+ - So long as the great majority of men are not deprived of either property or honor, they are satisfied.
+ - A wise man will see to it that his acts always seem voluntary and not done by compulsion, however much he may be compelled by necessity.
+ - I consider it a mark of great prudence in a man to abstain from threats or any contemptuous expressions, for neither of these weaken the enemy, but threats make him more cautious, and the other excites his hatred, and a desire to revenge himself.
+ - Never lead your soldiers to battle if you have not first confirmed their spirit and known them to be without fear and ordered; and never test them except when you see that they hope to win.
+ - He who has not first laid his foundations may be able with great ability to lay them afterwards, but they will be laid with trouble to the architect and danger to the building.
+ - Whoever is the cause of another becoming powerful, is ruined himself.
+ - Results are often obtained by impetuosity and daring which could never have been obtained by ordinary methods.
+ - Men sooner forget the death of their father than the loss of their patrimony.
+ - When you disarm your subjects, however, you offend them by showing that either from cowardliness or lack of faith, you distrust them; and either conclusion will induce them to hate you.
+ - Men are more apt to be mistaken in their generalizations than in their particular observations.
+ - Republics have a longer life and enjoy better fortune than principalities, because they can profit by their greater internal diversity. They are the better able to meet emergencies.
+ - Fear is secured by a dread of punishment.
+ - To know in war how to recognize an opportunity and seize it is better than anything else.
+ - War is just when it is necessary; arms are permissible when there is no hope except in arms.
+ - You must know, then, that there are two methods of fighting, the one by law, the other by force: the first method is that of men, the second of beasts; but as the first method is often insufficient, one must have recourse to the second.
+ - Men generally decide upon a middle course, which is most hazardous, for they know neither how to be entirely good nor entirely bad.
+ - He who makes war his profession cannot be otherwise than vicious. War makes thieves, and peace brings them to the gallows.
+ - The main foundations of every state, new states as well as ancient or composite ones, are good laws and good arms you cannot have good laws without good arms, and where there are good arms, good laws inevitably follow.
+ - Men are always averse to enterprises in which they foresee difficulties.
+ - Men seldom rise from low condition to high rank without employing either force or fraud, unless that rank should be attained either by gift or inheritance.
+ - Because there are three classes of intellects: one which comprehends by itself; another which appreciates what others comprehend; and a third which neither comprehends by itself nor by the showing of others; the first is the most excellent, the second is good, the third is useless.
+ - Men ought either to be well treated, or crushed.
+ - The innovator has for enemies all who have done well under the old, and lukewarm defenders in those who may do well under the new.
+ - Men never do good unless necessity drives them to it; but when they are free to choose and can do just as they please, confusion and disorder become rampant.
+ - The nature of man is such that people consider themselves put under an obligation as much by the benefits they confer as by those they receive.
+ - So in all human affairs one notices, if one examines them closely, that it is impossible to remove one inconvenience without another emerging.
+ - The distinction between children and adults, while probably useful for some purposes, is at bottom a specious one, I feel. There are only individual egos, crazy for love.
+ - It is the duty of a man of honor to teach others the good which he has not been able to do himself because of the malignity of the times, that this good finally can be done by another more loved in heaven.
+ - You must never believe that the enemy does not know how to conduct his own affairs. Indeed, if you want to be deceived less and want to bear less danger, the more the enemy is weak or the less the enemy is cautious, so much more must you esteem him.
+ - States that rise quickly, just as all the other things of nature that are born and grow rapidly, cannot have roots and ramifications; the first bad weather kills them.
+ - Whoever takes it upon himself to establish a commonwealth and prescribe laws must presuppose all men naturally bad, and that they will yield to their innate evil passions as often as they can do so with safety.
+ - When they remain in garrison, soldiers are maintained with fear and punishment; when they are then led to war, with hope and reward.
+ - The new ruler must determine all the injuries that he will need to inflict. He must inflict them once and for all.
+ - For as good habits of the people require good laws to support them, so laws, to be observed, need good habits on the part of the people.
+ - It is much better to tempt fortune where it can favor you than to see your certain ruin by not tempting it.
+ - For without invention, no one was ever a great man in his own trade.
+ - The end of the republic is to enervate and to weaken all other bodies so as to increase its own body.
+ - A blast in the human breast is nothing to boast of.
+ - There are three kinds of minds: first those that attain insight and understanding of things by their own means, then those that recognize what is right when others explain it to them, and finally those that are capable of neither one nor the other.
+ - The Swiss are well armed and enjoy great freedom.
+ - And if such malignity is hidden for a time, it proceeds from the unknown reason that would not be known because the experience of the contrary had not been seen, but time, which is said to be the father of every truth, will cause it to be discovered.
+ - He who has once begun to live by rapine always finds reasons for taking what is not his.
+ - Decide which is the line of conduct that presents the fewest drawbacks and then follow it out as being the best one, because one never finds anything perfectly pure and unmixed, or exempt from danger.
+ - I say that every prince must desire to be considered merciful and not cruel. He must, however, take care not to misuse this mercifulness.
+ - Because just as good morals, if they are to be maintained, have need of the laws, so the laws, if they are to be observed, have need of good morals.
+ - It is a foolish prince who entrusts the safety of his lands to hired men.
+ - When settling disputes between his subjects, he should ensure that his judgement is irrevocable; and he should be so regarded that no one ever dreams of trying to deceive or trick him.
+ - Princes and governments are far more dangerous than other elements within society.
+ - A wise prince will seek means by which his subjects will always and in every possible condition of things have need of his government, and then they will always be faithful to him.
+ - Since the handling of arms is a beautiful spectacle, it is delightful to young men.
+ - To be feared is much safer then to be loved.
+ - When men receive favours from someone they expected to do them ill, they are under a greater obligation to their benefactor...
+ - In order not to annul our free will, I judge it true that Fortune may be mistress of one half our actions but then even she leaves the other half, or almost, under our control.
+ - We have not seen great things done in our time except by those who have been considered mean; the rest have failed.
+ - When neither their property nor their honor is touched, the majority of men live content.
+ - The answer is, of course, that it would be best to be both loved and feared. But since the two rarely come together, anyone compelled to choose will find greater security in being feared than in being loved.
+ - There are three kinds of brains: One understands of itself, another can be taught to understand, and the third can neither understand to itself or be taught to understand.
+ - All the armed prophets conquered; all the unarmed ones perished.
+ - I believe that it is possible for one to praise, without concern, any man after he is dead since every reason and supervision for adulation is lacking.
+ - Then also pretexts for seizing property are never wanting, and one who begins to live by rapine will always find some reason for taking the goods of others, whereas causes for taking life are rarer and more quickly destroyed.
+ - War is a profession by which a man cannot live honorably; an employment by which the soldier, if he would reap any profit, is obliged to be false, rapacious, and cruel.
+ - The sinews of war are not gold, but good soldiers.
+ - A prince ought to have two fears, one from within, on account of his subjects, the other from without, on account of external powers.
+ - Human beings remain constant in their methods of conduct.
+ - Necessities can be many, but the one that is stronger is that which constrains you to win or to die.
+ - Knowing how to fight made men more bold, because no one fears doing what it seems to him he has learned to do. Therefore, the ancients wanted their citizens to be trained in every warlike action.
+ - He who would foresee what is to happen should look to what has happened: for all that is has its counterpart in time past.
+ - Nothing feeds upon itself as liberality does.
+ - In the armies, and among every ten men, there must be one of more life, of more heart, or at least of more authority, who with his spirit, with his words, and with his example keeps the others firm and disposed to fight.
+ - Benefits should be granted little by little, so that they may be better enjoyed.
+ - They have not any difficulties on the way up because they fly, but they have many when they reach the summit.
+ - There is nothing that Nature seems to have inclined us to as much as society.
+ - If the course of human affairs be considered, it will be seen that many things arise against which heaven does not allow us to guard.
+ - No one should therefore fear that he cannot accomplish what others have accomplished, for, men are born, live, and die in quite the same way they always have.
+ - My view is that it is desirable to be both loved and feared; but it is difficult to achieve both and, if one of them has to be lacking, it is much safer to be feared than loved.
+ - And if, to be sure, sometimes you need to conceal a fact with words, do it in such a way that it does not become known, or, if it does become known, that you have a ready and quick defense.
+ - And truly it is a very natural and ordinary thing to desire to acquire, and always, when men do it who can, they will be praised or not blamed; but when they cannot, and wish to do it anyway, here lies the error and the blame.
+ - Men are able to assist fortune but not to thwart her. They can weave her designs, but they cannot destroy them.
+ - Present wars impoverish the lords that win as much as those that lose.
+ - In war, discipline can do more than fury.
+ - Everyone who wants to know what will happen ought to examine what has happened: everything in this world in any epoch has their replicas in antiquity.
+
+266 quotes

@@ -1,0 +1,33 @@
+ - Creativity is the answer. I always prefer the creative solution to an expensive solution.
+ - I put heavy emphasis on the characters.
+ - I always prefer the big laugh. That is always the objective, especially with a film like Scary Movie 2.
+ - We do nods to Charlie’s Angels and Mission Impossible because they are popular with our fan base.
+ - People who are innately funny are innately disturbed.
+ - I’m just calm under fire. I’m not intimidating at all.
+ - All I need is a camera and I’ll make things happen.
+ - Slot machines are like crack for old people.
+ - There are two phases to a movie. First you shoot the movie, and then you make the movie. Generally, post-production is longer than filming.
+ - Just making a good movie is hard to do.
+ - Comedy has a responsibility to be a voice of society, so within that, there’s always going to be those that talk about those subjects and things that are going on in the world.
+ - In rare instances you have to give up what you thought was a great scene.
+ - I’m not on all the time. I like to have fun and be funny, but I’m much more of a thinker.
+ - I think a lot comes from having the experience of doing stand-up comedy. It allows you to figure out the psychology of an audience; what things are funny and not.
+ - Great art is not instant. It comes from experience, it comes from a place within. If you’re trying to generate material, then you’re going to generate stuff. It’s not going to be great, it’s just going to be stuff.
+ - You just can’t make any movie and it will be good now. This is a really a difficult time to be in films.
+ - The pressures having grown up in this business can be really rough. And it is a testament to you that you have remained focused and NOT lost your mind.
+ - You do what it takes. It was on me to deliver.
+ - I enjoy the character interplay. Sometimes the audience is not laughing, but smiling, and that is almost just as good because it keeps them ready to laugh.
+ - You never really know until you put the movie in front of an audience. I am a big advocate of screenings, which are getting harder and harder to do nowadays.
+ - It’s rare that you cut out something that is really good. You screen all of it, and when the audience doesn’t respond, you cut out whatever is holding the story down.
+ - A comedian, or any artist, needs their time to develop what they are doing. There has to be some respect for the art form and when it’s allowed to be seen.
+ - I have been a director who has starred, participated on both sides of the filmmaking process.
+ - I go through a whole process with the actors first, building and creating characters, then I encourage them to sort of live in that character when they’re in the screen.
+ - My brothers can be a little out of control sometimes and so somebody has to be able to keep them focused.
+ - I think that if you, as a comedian, are trying to be in people’s face, then you’ve got to come up with new stuff every year. We’re in a mass consumption phase where people take things for granted and want things to be instant when these are not things that can be instant.
+ - I prefer the smaller budget versus the bigger budget because the mentality that goes along with big budget filmmaking doesn’t really suit me; the mind-set that money is the answer.
+ - We’ve seen so many films now, that you have to be on par with the best films that have preceded you. You just can’t make any movie and it will be good.
+ - We felt like we had done as much as you can do with the slasher genre. We were trying to find the next group of scary movies that were ripe for parody.
+ - I put the cameras on her and told her to be obnoxious as she could possibly could be. She was.
+ - You can kind of feel when things are going to work out.
+
+31 quotes

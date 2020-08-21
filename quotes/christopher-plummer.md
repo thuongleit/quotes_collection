@@ -1,0 +1,22 @@
+ - Sometimes you have to look into a mirror and look at the worst you could have been if you’re ever going to know the best you were meant to be.
+ - I would rather not know about how one gets parts in movies these days.
+ - Unless you can surround yourself with as many beautiful things as you can afford, I don’t think life has very much meaning.
+ - I couldn’t believe when I first got a fan letter from Al Pacino, it was unreal.
+ - A truly great structure, one that is meant to stand the tests of time, never disregards its environment. A serious architect takes that into account. He knows that if he wants presence, he must consult with nature.
+ - You’re only two years older than me, darling. Where have you been all my life?
+ - Try and stay sober. Until the curtain call. And for God’s sake, have fun. Don’t suffer for your art. Just have fun.
+ - History remembers most what you did last.
+ - The first time my father saw me in the flesh was on the stage, which is a bit weird. We went out to dinner, and he was charming and sweet, but I did all the talking.
+ - I’m talking about when you’re nearer the end of your life than the beginning. Now what do you think you think about then? The future? In the future I’m going to do this? Become that? What future? No. What you think is, ‘How will I be regarded in the end?’
+ - Working with Julie Andrews is like getting hit over the head with a valentine.
+ - Here is Mike Wallace, who is visible to the public, and I have been watching him since the early ’50s. Smoking up a storm and insulting his guests and being absolutely wonderfully evil and charming too.
+ - In Stratford you either turn into an alcoholic or you better write.
+ - The devil is more interesting than God.
+ - Most of my life I have played a lot of famous people but most of them were dead so you have a poetic license.
+ - Not the challenges necessarily, but the way in which you get ready because your technique has improved over the years and you perhaps know how to be more economical than perhaps you used to be when you tried to work perhaps too hard.
+ - I’ve been very fortunateit’s just been an amazing piece of luck. I haven’t had to suffer for my art but I’ve suffered enough inside to hopefully be called an artist.
+ - I just can’t tell you what fun I’ve had being a member of the world’s second oldest profession.
+ - I want to paint Montreal as a rather fantastic city, which it was, because nobody knows today what it was like. And I’m one of the last survivors, or rapidly becoming one.
+ - I’m too old-fashioned to use a computer. I’m too old-fashioned to use a quill.
+
+20 quotes

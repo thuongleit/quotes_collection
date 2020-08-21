@@ -1,0 +1,43 @@
+ - Ninety percent of leadership is the ability to communicate something people want.
+ - Women have begun to see that if I go through that doorway, I take everybody through it.
+ - All vets are mentally ill in some way and government should prevent them from owning firearms.
+ - Domestic violence causes far more pain than the visible marks of bruises and scars. It is devastating to be abused by someone that you love and think loves you in return. It is estimated that approximately 3 million incidents of domestic violence are reported each year in the United States.
+ - The National Guard fulfills the militia mentioned in the Second amendment. Citizens no longer need to protect the states or themselves.
+ - Toughness doesn’t have to come in a pinstripe suit.
+ - We have federal regulations and state laws that prohibit hunting ducks with more than three rounds. And yet it’s legal to hunt humans with 15-round, 30-round, even 150-round magazines.
+ - I think that some restriction on speech is appropriate.
+ - So there will be a bill. We’ve been working on it now for a year.
+ - Winning may not be everything, but losing has little to recommend it.
+ - The criteria for serving one’s country should be competence, courage and willingness to serve. When we deny people the chance to serve because of their sexual orientation, we deprive them of their rights of citizenship, and we deprive our armed forces the service of willing and capable Americans.
+ - Rogue internet pharmacies continue to pose a serious threat to the health and safety of Americans. Simply put, a few unethical physicians and pharmacists have become drug suppliers to a nation.
+ - An inflated balloon – impressive to look at but hollow at the core and easily punctured.
+ - Women are beginning to feel that they are not fairly represented. As we say, 2% may be fine for fat in milk, but not for the United States Senate.
+ - Survival is nothing more than recovery.
+ - Domestic violence does not only happen to adults. Forty percent of girls age 14 to 17 report knowing someone their age who has been hit or beaten by a boyfriend, and approximately one in five female high school students reports being physically and sexually abused by a dating partner.
+ - It is abundantly clear that a total review of all intelligence programs is necessary so that members of the Senate Intelligence Committee are fully informed as to what is actually being carried out by the intelligence community.
+ - Ports are the gaping hole in America’s homeland security.
+ - Global warming is real. It is happening today. It is being charted by our satellites. It is being charted by our scientists. It is being charted by those of us in this body, and I think the real key is if we are ready to admit that fact and take the action to make the necessary conversion.
+ - With the right person in place, a very distressing chapter in the Justice Department’s history can be closed and the process of restoring its credibility as a strong and independent department can begin.
+ - It’s a myth that the border can’t be enforced. It can be enforced.
+ - There is no more direct or honest person than Jim Clapper.
+ - I’m concerned about the role the court will play in protecting individual rights in this and the next century.
+ - It is my belief that tax credits only go to people who are making money, and they generally keep it.
+ - Banning guns addresses a fundamental right of all Americans to feel safe.
+ - I’ve passed on a number of bills. I’ve studied the Constitution myself. I am reasonably well educated.
+ - Once you sacrifice your rights, it’s hard to get those rights protected again.
+ - Assault weapons pose a grave threat to all Americans, but most especially to law enforcement officers on our city streets.
+ - Gentlemen, as sure as I’m sitting here now, the result of continuation of a non-system, the ostrich-like head-in-the-sand attitude, the constant rejection of any efforts to solve this problem, will produce an Armageddon in the American population in those states where there is a big problem.
+ - Well, that day is gone, and it will not occur again.
+ - I am not a high-tech techie, but I have been told that is not possible.
+ - I basically believe the medical insurance industry should be nonprofit, not profit-making. There is no way a health reform plan will work when it is implemented by an industry that seeks to return money to shareholders instead of using that money to provide health care.
+ - We have a chance to wind down and expedite the removal of 96 percent of the world’s nuclear weapons. What an achievement it would be, if at the end of the next administration, we could say that the nuclear arsenals of both Russia and the United States had been reduced to the barest minimums.
+ - And in an issue with this kind of concern to a committee that bears the oversight responsibility, I think you can see that we’re very dismayed about it .
+ - Instead of starting a new nuclear arms race, now is the time to reclaim our Nation’s position of leadership on nuclear nonproliferation efforts.
+ - I’m one that believes that Samuel Alito appointment on the Supreme Court is a pivotal appointment. And because he replace Sandra Day O’Connor and because she was the fifth vote on 148 cases, you well could be a very key and decisive vote.
+ - I think the greatest threat to the privacy of Americans is the drone, and the use of the drone and the very few regulations that are on it today, and the booming industry of commercial drones.
+ - While the distance between the United States and Iraq is great, Saddam Hussein’s ability to use his chemical and biological weapons against us is not constrained by geography – it can be accomplished in a number of different ways – which is what makes this threat so real and persuasive.
+ - Historically, the court has been the forum to which individuals can turn when they believed their constitutional rights were violated. This has been especially noteworthy in the arena of civil rights.
+ - It appears to be a case of revenge run amok.
+ - It is my hope that the number of stem cell lines available for federally-funded research will be expanded so that the government can continue to participate in this vital research and provide hope to the millions of Americans with diseases that might be cured.
+
+41 quotes

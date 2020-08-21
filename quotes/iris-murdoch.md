@@ -1,0 +1,146 @@
+ - We live in a fantasy world, a world of illusion. The great task in life is to find reality.
+ - One of the secrets of a happy life is continuous small treats, and if some of these can be inexpensive and quickly procured so much the better.
+ - Between saying and doing, many a pair of shoes is worn out.
+ - Our actions are like ships which we may watch set out to sea, and not know when or with what cargo they will return to port.
+ - We can only learn to love by loving.
+ - Every book is the wreck of a perfect idea.
+ - All art is a struggle to be, in a particular sort of way, virtuous.
+ - Jealousy comes from self-love rather than from true love.
+ - People from a planet without flowers would think we must be mad with joy the whole time to have such things about us.
+ - Man’s creative struggle, his search for wisdom and truth, is a love story.
+ - Every artist is an unhappy lover. And unhappy lovers want to tell their story.
+ - Starting a novel is opening a door on a misty landscape; you can still see very little but you can smell the earth and feel the wind blowing.
+ - Bereavement is a darkness impenetrable to the imagination of the unbereaved.
+ - The most essential and fundamental aspect of culture is the study of literature, since this is an education in how to picture and understand human situations.
+ - I just enjoy translating, it’s like opening one’s mouth and hearing someone else’s voice emerge.
+ - Happiness is a matter of one’s most ordinary and everyday mode of consciousness being busy and lively and unconcerned with self.
+ - Only the very greatest art invigorates without consoling.
+ - Upon the demon-ridden pilgrimage of human life, what next I wonder.
+ - A middling talent makes for a more serene life.
+ - I have used the word “attention,” which I borrow from Simone Weil, to express the idea of a just and loving gaze directed upon individual reality. I believe this to be the characteristic and proper mark of the active moral agent.
+ - One should go easy on smashing other people’s lies. Better to concentrate on one’s own.
+ - Remember that the secret of all learning is patience and that curiosity is not the same thing as a thirst for knowledge.
+ - Love is the last and secret name of all the virtues.
+ - There is nothing like the bootless solitude of those who are caged together.
+ - Possibly, more people kill themselves and others out of hurt vanity than out of envy, jealousy, malice or desire for revenge.
+ - The absolute yearning of one human body for another particular body and its indifference to substitutes is one of life’s major mysteries.
+ - Falling out of love is very enlightening. For a short while you see the world with new eyes.
+ - Perhaps when distant people on other planets pick up some wavelength of ours all they hear is a continuous scream.
+ - All art deals with the absurd and aims at the simple. Good art speaks truth, indeed is truth, perhaps the only truth.
+ - All artists dream of a silence which they must enter, as some creatures return to the sea to spawn.
+ - Moralistic is not moral. And as for truth – well, it’s like brown – it’s not in the spectrum. Truth is so generic.
+ - We need a moral philosophy in which the concept of love, so rarely mentioned now by philosophers, can once again be made central.
+ - True love gallops, it flies, it is the swiftest of all modes of thought, swifter even than hate and fear.
+ - Only love has clear vision. Hatred has cloudy vision. When we hate we know not what we do.
+ - The chief requirement of the good life, is to live without any image of oneself.
+ - Love can’t always do work. Sometimes it just has to look into the darkness.
+ - Those who hope, by retiring from the world, to earn a holiday from human frailty, in themselves and others, are usually disappointed.
+ - A long marriage is very unifying, even if it’s not ideal, and those old structures must be respected.
+ - Good writing is full of surprises and novelties, moving in a direction you don’t expect.
+ - Art is not cozy and it is not mocked. Art tells the only truth that ultimately matters. It is the light by which human things can be mended. And after art there is, let me assure you all, nothing.
+ - Nothing is more beautifully and acceptably self-assertive than good singing.
+ - We defend ourselves with descriptions and tame the world by generalizing.
+ - Food is a profound subject and one, incidentally, about which no writer lies.
+ - We must live by the light of our own self-satisfaction, through that secret vital busy inwardness which is even more remarkable than our reason.
+ - My heart was beating like an army on the march.
+ - A bad review is even less important than whether it is raining in Patagonia.
+ - I see myself as Rhoda, not Mary Tyler Moore.
+ - A death is the most terrible of facts.
+ - There is no beyond, there is only here, the infinitely small, infinitely great and utterly demanding present.
+ - Mathematics is good for the soul, getting things right enlivens a sense of truth, efforts to understand automatically purify desires.
+ - Intense mutual erotic love, love which involves with the flesh all the most refined sexual being of the spirit, which reveals and perhaps even ex nihilo creates spirit as sex, is comparatively rare in this inconvenient world.
+ - The bereaved cannot communicate with the unbereaved.
+ - Our destiny can be examined, but it cannot be justified or totally explained. We are simply here.
+ - The sin of pride may be a small or a great thing in someone’s life, and hurt vanity a passing pinprick, or a self-destroying or ever murderous obsession.
+ - The bicycle is the most civilized conveyance known to man. Other forms of transport grow daily more nightmarish. Only the bicycle remains pure in heart.
+ - There is a gulf fixed between those who can sleep and those who cannot. It is one of the greatest divisions of the human race.
+ - I feel half faded away like some figure in the background of an old picture.
+ - Literature could be said to be a sort of disciplined technique for arousing certain emotions.
+ - The cry of equality pulls everyone down.
+ - But fantasy kills imagination, pornography is death to art.
+ - Daytime sleep is a cursed slumber from which one wakes in despair.
+ - The bicycle is the most civilized conveyance known to man.
+ - Anything that consoles is fake.
+ - What a test that is: more than devotion, admiration, passion. If you long and long for someone’s company you love them.
+ - People who boast of happy marriages are, I submit, usually self-deceivers, if not actually liars.
+ - Perhaps misguided moral passion is better than confused indifference.
+ - There is nothing like early promiscuous sex for dispelling life’s bright mysterious expectations.
+ - In philosophy if you aren’t moving at a snail’s pace you aren’t moving at all.
+ - In almost every marriage there is a selfish and an unselfish partner. A pattern is set up and soon becomes inflexible, of one person always making the demands and one person always giving way.
+ - Oh the piercing sadness of life in the midst of its ordinariness!
+ - Every man needs two women: a quiet home-maker, and a thrilling nymph.
+ - It is difficult in life to be good, and difficult in art to portray goodness. Perhaps we don’t know much about goodness.
+ - How different each death is, and yet it leads us into the self-same country, that country which we inhabit so rarely, where we see the worthlessness of what we have long pursued and will so soon return to pursuing.
+ - Dogs are very different from cats in that they can be images of human virtue. They are like us.
+ - Language is a machine for making falsehoods.
+ - All our failures are ultimately failures in love.
+ - Falling out of love is chiefly a matter of forgetting how charming someone is.
+ - I think being a woman is like being Irish. Everyone says you’re important and nice, but you take second place all the same.
+ - Actors are cave dwellers in a rich darkness which they love and hate.
+ - The priesthood is a marriage. People often start by falling in love, and they go on for years without realizing that love must change into some other love which is so unlike it that it can hardly be recognized as love at all.
+ - People have obsessions and fears and passions which they don’t admit to. I think every character is interesting and has extremes. It’s the novelist privilege to see how odd everyone is.
+ - Only lies and evil come from letting people off.
+ - One of the secrets of a happy life is continous small treats.
+ - Socrates wrote nothing. Christ wrote nothing.
+ - One doesn’t have to get anywhere in a marriage. It’s not a public conveyance.
+ - Love is the difficult realization that something other than oneself is real.
+ - Human affairs are not serious, but they have to be taken seriously.
+ - Being in love is an exhausting business.
+ - The notion that one can liberate another soul from captivity is an illusion of the very young.
+ - Hegel says that Truth is a great word and the thing is greater still. With Dave we never seemed to get past the word.
+ - The theatre is a tragic place, full of endings and partings and heartbreak.
+ - Real worship involves waiting.
+ - To be a complete victim may be another source of power.
+ - Music relates sound and time and so pictures the ultimate edges of human commmunications.
+ - Writing is like getting married. One should never commit oneself until one is amazed at one’s luck.
+ - It’s easier to sell junk when you’re known than works of genius when you’re unknown.
+ - Philosophy! Empty thinking by ignorant conceited men who think they can digest without eating!
+ - Jealousy is the most dreadfully involuntary of all sins.
+ - In a happy marriage there is a continuous dense magnetic sense of communication.
+ - Words are the most subtle symbols which we possess and our human fabric depends on them.
+ - Every artist is an unhappy lover.
+ - How rarely can happiness be really innocent and not triumphant, not an insult to the deprived.
+ - The human soul is not framed for continued proximity, and the result of this enforced neighbourhood is often an appalling loneliness for which the rules of the game forbid assuagement.
+ - The sending of a letter constitutes a magical grasp upon the future.
+ - The best thing about being God would be making the heads.
+ - Most real relationships are involuntary.
+ - Real misery cuts off all paths to itself.
+ - They are universal places, like churches, hallowed meeting places of all mankind.
+ - Nothing is more maddening than being questioned by the object of one’s interest about the object of hers, should that object not be you.
+ - Reading and writing and the preservation of language and its forms and the kind of eloquence and the kind of beauty which the language is capable of is terribly important to the human beings because this is connected to thought.
+ - Another person’s illness is often harder to bear than one’s own.
+ - As we live our precarious lives on the brink of the void, constantly coming closer to a state of nonbeing, we are all too often aware of our fragitlity.
+ - Probably no adult misery can be compared with a child’s despair.
+ - For most of us, for almost all of us, truth can be attained, if at all, only in silence. It is in silence that the human spirit touches the divine.
+ - I am not famous for anything in particular. I am just famous.
+ - Of course men play roles, but women play roles too, blanker ones. They have, in the play of life, fewer good lines.
+ - We shall be better prepared for the future if we see how terrible, how doomed the present is.
+ - Of course reading and thinking are important but, my God, food is important too.
+ - Being good is just a matter of temperament in the end.
+ - The notion that one will not survive a particular catastrophe is, in general terms, a comfort since it is equivalent to abolishing the catastrophe.
+ - Art is a kind of artificial memory and the pain which attends all serious art is a sense of that factitiousness.
+ - A letter is a barrier, a reprieve, a charm against the world, an almost infallible method of acting at a distance.
+ - Freedom may be a value in politics, but it is not a value in morals.
+ - Art is the final cunning of the human soul which would rather do anything than face the gods.
+ - Learning philosophy is learning a particular kind of intuitive understanding.
+ - I think philosophy is extremely good training for anyone who wants to do anything. Although that is an idea which people may speak scornfully of now, I think it does teach one to.
+ - Coffee, unless it is very good and made by somebody else, is pretty intolerable at any time.
+ - The most interesting things are always happening behind one.
+ - There is no triumph of good, and if there were it would not be a triumph of good.
+ - I daresay anything can be made holy by being sincerely worshipped.
+ - The entry of a child into any situation changes the whole situation.
+ - He was a sociologist; he had got into an intellectual muddle early on in life and never managed to get out.
+ - Not to have been born is undoubtedly best, but sound sleep is second best.
+ - That’s how vile i am! I live Ireland, I breathe Ireland, and Christ how I loathe it, I wish I were a bloody Scot, that’s how bloody awful it is being Irish!
+ - The very madness of the scheme protects it.
+ - No love is entirely without worth, even when the frivolous calls to the frivolous and the base to the base.
+ - We are all prisoner, but the name of our cure is not freedom.
+ - We re all muddlers. The thing is to see is when one’s got to stop muddling.
+ - You cannot have both truth and what you call civilisation.
+ - We are such inward secret creatures, that inwardness is the most amazing thing about us, even more amazing than our reason.
+ - Marriage isn’t a tram. It doesn’t have to get anywhere.
+ - Most of our love is shabby stuff, but there is always a thin line of gold, the bit of pure love on which all the rest depends – and which redeems all the rest.
+ - The most potent and sacred command which can be laid upon any artist is the command: wait.
+ - There is no substitute for the comfort supplied by the utterly taken-for-granted relationship.
+
+144 quotes

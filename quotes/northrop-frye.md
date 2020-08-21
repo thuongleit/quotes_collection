@@ -1,0 +1,85 @@
+ - This story of loss and regaining of identity is, I think, the framework of all literature.
+ - The simplest questions are the hardest to answer.
+ - Literature speaks the language of the imagination, and the study of literature is supposed to train and improve the imagination.
+ - Even the human heart is slightly left of centre.
+ - Physics is an organized body of knowledge about nature, and a student of it says that he is learning physics, not nature. Art, like nature, has to be distinguished from the systematic study of it, which is criticism.
+ - The most technologically efficient machine that man has ever invented is the book.
+ - My subject is the educated imagination, and education is something that affects the whole person, not bits and pieces of him .
+ - The world of literature is a world where there is no reality except that of the human imagination.
+ - Failure to grasp centrifugal meaning is incomplete reading; failure to grasp centripetal meaning is incompetent reading.
+ - Teaching literature is impossible; that is why it is difficult.
+ - Literature is not a subject of study, but an object of study.
+ - The pursuit of beauty is much more dangerous nonsense than the pursuit of truth or goodness, because it affords a stronger temptation to the ego.
+ - To bring anything really to life in literature we can’t be lifelike: we have to be literature-like.
+ - The disinterested imaginative core of mythology is what develops into literature, science, philosophy. Religion is applied mythology.
+ - Literature encourages tolerance-bigots and fanatics seldom have any use for the arts, because they’re so preoccupied with their beliefs and actions that they can’t see them also as possibilities.
+ - Nature is inside art as its content, not outside as its model.
+ - Wherever illiteracy is a problem, it’s as fundamental a problem as getting enough to eat or a place to sleep.
+ - Read Blake or go to hell, that’s my message to the modern world.
+ - One doesn’t bother to believe the credible: the credible is believed already, by definition. There’s no adventure of the mind.
+ - Advertising – a judicious mixture of flattery and threats.
+ - A person who knows nothing about literature may be an ignoramus, but many people don’t mind being that.
+ - Literature is a human apocalypse, man’s revelation to man, and criticism is not a body of adjudications, but the awareness of that revelation, the last judgement of mankind.
+ - Every human society possesses a mythology which is inherited, transmitted and diversified by literature.
+ - We must reject that most dismal and fatuous notion that education is a preparation for life.
+ - Metaphors of unity and integration take us only so far, because they are derived from the finiteness of the human mind.
+ - Literature begins with the possible model of experience, and what it produces is the literary model we call the classic.
+ - The Bible should be taught so early and so thoroughly that it sinks straight to the bottom of the mind where everything that comes along can settle on it.
+ - The objective world is the order of nature, thinking or reflection follows the suggestions of sense experience, and words are the servomechanisms of reflection.
+ - Man is constantly building anxiety-structures, like geodesic domes, around his social and religious institutions.
+ - Separatism is a very healthy movement within culture. It’s a disastrous movement within politics and economics.
+ - No human society is too primitive to have some kind of literature. The only thing is that primitive literature hasn’t yet become distinguished from other aspects of life: it’s still embedded in religion, magic and social ceremonies.
+ - Poetry can only be made out of other poems; novels out of other novels.
+ - Popular art is normally decried as vulgar by the cultivated people of its time; then it loses favor with its original audience as a new generation grows up; then it begins to merge into the softer lighting of.
+ - There is only one way to degrade mankind permanently and that is to destroy language.
+ - The fable says that the tortoise won in the end, which is consoling, but the hare shows a good deal of speed and few signs of tiring.
+ - The tricky or boastful gods of ancient myths and primitive folk tales are characters of the same kind that turn up in Faulkner or Tennessee Williams.
+ - The entire Bible, viewed as a “divine comedy,” is contained within a U-shaped story of this sort, one in which man, as explained, loses the tree and water of life at the beginning of Genesis and gets them back at the end of Revelation.
+ - What if criticism is a science as well as an art? Not a pure or exact science, of course, but these phrases belong to a nineteenth-century cosmology which is no longer with us.
+ - The human landscape of the New World shows a conquest of nature by an intelligence that does not love it.
+ - In literature, questions of fact or truth are subordinated to the primary literary aims of producing a structure of words for its own sake, and the sign-values of symbols are subordinated to their importance as a structure of interconnected motifs.
+ - The operations of the human mind are also controlled by words of power, formulas that become a focus of mental activity.
+ - War appeals to young men because it is fundamentally auto-eroticism.
+ - Just as a new scientific discovery manifests something that was already latent in the order of nature, and at the same time is logically related to the total structure of the existing science, so the new poem manifests something that was already latent in the order of words.
+ - Historically, a Canadian is an American who rejects the Revolution.
+ - No matter how much experience we may gather in life, we can never in life get the dimension of experience that the imagination gives us. Only the arts and sciences can do that, and of these, only literature gives us the whole sweep and range of human imagination as it sees itself.
+ - We have to look at the figures of speech a writer uses, his images and symbols, to realize that underneath all the complexity of human life that uneasy stare at an alien nature is still haunting us, and the problem of surmounting it still with us.
+ - A snowflake is probably quite unconscious of forming a crystal, but what it does may be worth study even if we are willing to leave its inner mental processes alone.
+ - We find rhetorical situations everywhere in life, and only our imaginations can get us out of them.
+ - The ups and downs of this cosmos may sometimes be acknowledged to be metaphorical ups and downs, but until about Newton’s time most people took the “up” of heaven and the “down” of hell to be more or less descriptive.
+ - It is of the essence of imaginative culture that it transcends the limits both of the naturally possible and of the morally acceptable.
+ - Real unity tolerates dissent and rejoices in variety of outlook and tradition, recognizes that it is man’s destiny to unite and not divide, and understands that creating proletariats and scapegoats and second-class citizens is a mean and contemptible activity.
+ - A writers desire to write can only have come from previous experience of literature, and he’ll start by imitating whatever he’s read, which usually means what the people around him are writing.
+ - Americans like to make money; Canadians like to audit it. I know no other country where accountants have a higher social and moral status.
+ - We do not live in centred space anymore, but have to create our own centres.
+ - We are always in the place of beginning; there is no advance in infinity.
+ - In the world of the imagination, anything goes that’s imaginatively possible, but nothing really happens.
+ - Man lives, not directly or nakedly in nature like the animals, but within a mythological universe, a body of assumptions and beliefs developed from his existential concerns.
+ - I soon realized that a student of English literature who does not know the Bible does not understand a good deal of what is going on in what he reads: The most conscientous student will be continually misconstruing the implications, even the meaning.
+ - Literature as a whole is not an aggregate of exhibits with red and blue ribbons attached to them, like a cat-show, but the range of articulate human imagination as it extends from the height of imaginative heaven to the depth of imaginative hell.
+ - The primary and literal meaning of the Bible, then, is its centripetal or poetic meaning.
+ - The metaphor of the king as the shepherd of his people goes back to ancient Egypt. Perhaps the use of this particular convention is due to the fact that, being stupid, affectionate, gregarious, and easily stampeded, the societies formed by sheep are most like human ones.
+ - We have revolutionary thought whenever the feeling “life is a dream” becomes geared to an impulse to awaken from it.
+ - Beauty and truth may be attributes of good writing, but if the writer deliberately aims at truth, he is likely to find that what he has hit is the didactic.
+ - Writing: I certainly do rewrite my central myth in every book, and would never read or trust any writer who did not also do so.
+ - Writers don’t seem to benefit much by the advance of science, although they thrive on superstitions of all kinds.
+ - Most of my writing consists of an attempt to translate aphorisms into continuous prose.
+ - The Book of Revelation, difficult as it may be for “literalists,” becomes much simpler when we read it typologically, as a mosiac of allusions to Old Testament prophecy.
+ - Those who do succeed in reading the Bible from beginning to end will discover that at least it has a beginning and an end, and some traces of a total structure.
+ - For the serious mediocre writer convention makes him sound like a lot of other people; for the popular writer it gives him a formula he can exploit; for the serious good writer it releases his experiences or emotions from himself and incorporates them into literature, where they belong.
+ - We notice as the Bible goes on, the area of scared space shrinks.
+ - It seems clear that the Bible belongs to an area of language in which metaphor is functional, and were we have to surrender precision for flexibility.
+ - The first thing that confronts us in studying verbal structures is that they are arranged sequentially, and have to be read or listened to in time.
+ - Culture’s essential service to a religion is to destroy intellectual idolatry, the recurrent tendency in religion to replace the object of its worship with its present understanding and forms of approach to that object.
+ - Man creates what he calls history as a screen to conceal the workings of the apocalypse from himself.
+ - Everything that happens in the Old Testament is a “type” or adumbration of something that happens in the New Testament, and the whole subject is therefore called typology, though it is a typology in a special sense.
+ - We are being swallowed up by the popular culture of the United States, but then the Americans are being swallowed up by it too. It’s just as much a threat to American culture as it is to ours.
+ - The bedrock of doubt is the total nothingness of death. Death is a leveler, not because everybody dies, but because nobody understands what death means.
+ - Those who are concerned with the arts are often asked questions, not always sympathetic ones, about the use or value of what they are doing. It is probably impossible to answer such questions directly, or at any rate to answer the people who ask them.
+ - Between religion’s this is and poetry’s but suppose this is, there must always be some kind of tension, until the possible and the actual meet at infinity.
+ - The book is the world’s most patient medium.
+ - The supremacy of the verbal over the monumental has something about it of the supremacy of life over death.
+ - A public that tries to do without criticism, and asserts that it knows what it wants or likes, brutalizes the arts and loses its cultural memory. Art for art’s sake is a retreat from criticism which ends in an impoverishment of civilized life itself.
+ - The simple point is that literature belongs to the world man constructs, not to the world he sees; to his home, not his environment.
+
+83 quotes

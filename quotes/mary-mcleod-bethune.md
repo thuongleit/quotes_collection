@@ -1,0 +1,28 @@
+ - Faith is the first factor in a life devoted to service. Without it, nothing is possible. With it, nothing is impossible.
+ - Enter to learn; depart to serve.
+ - Believe in yourself, learn, and never stop wanting to build a better world.
+ - For I am my mother’s daughter, and...
+ - I leave you love. I leave you hope. I leave you the challenge of developing confidence in one another. I leave you respect for the use of power. I leave you faith. I leave you racial dignity.
+ - We have a powerful potential in our youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.
+ - A woman is free if she lives by her own standards and creates her own destiny, if she prizes her individuality and puts no boundaries on her hopes for tomorrow.
+ - Cease to be a drudge, seek to be an artist.
+ - Education is the great American adventure, the world’s most colossal democratic experiment.
+ - I do feel, in my dreamings and yearnings, so undiscovered by those who are able to help me.
+ - If we have the courage and tenacity of our forebears, who stood firmly like a rock against the lash of slavery, we shall find a way to do for our day what they did for theirs.
+ - Next to God we are indebted to women, first for life itself, and then for making it worth living.
+ - Studying goes deeper than mere reading. There are surface nuggets to be gathered but the best of the gold is underneath, and it takes time and labor to secure it.
+ - World peace and brotherhood are based on a common understanding of the contributions and cultures of all races and creeds.
+ - Forgiving is not about forgetting, it’s letting go of the hurt.
+ - To those of you with your years of service still ahead, the challenge is yours. Stop doubting yourselves. Have the courage to make up your minds and hold your decisions. Refuse to be BOUGHT for a nickel, or a million dollars, or a job!
+ - There is a place in God’s sun for the youth “farthest down” who has the vision, the determination, and the courage to reach it.
+ - I never stop to plan. I take things step-by-step.
+ - I thought, maybe the difference between white folks and colored is just this matter of reading and writing. I made up my mind I would know my letters.
+ - We live in a world which respects power above all things. Power, intelligently directed, can lead to more freedom. Unwisely directed, it can be a dreadful, destructive force.
+ - I have had more than half a century of such happiness. A great deal of worry and sorrow, too, but never a worry or a sorrow that was not offset by a purple iris, a lark, a bluebird, or a dewy morning glory.
+ - The progress of the world will call for the best that all of us have to give.
+ - Whatever the white man has done, we have done, and often better.
+ - From the first, I made my learning, what little it was, useful every way I could.
+ - Greatness is largely a social accident, and almost always socially supported.
+ - Knowledge is the prime need of the hour.
+
+26 quotes

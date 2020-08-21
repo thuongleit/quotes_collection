@@ -1,0 +1,34 @@
+ - Everything which the economist takes from you in the way of life and humanity, he restores to you in the form of money and wealth.
+ - Ideology is not the product of thought; it is the habit or the ritual of showing respect for certain formulas to which, for various reasons having to do with emotional safety, we have very strong ties of whose meaning and consequences in actuality we have no clear understanding.
+ - We are at heart so profoundly anarchistic that the only form of state we can imagine living in is Utopian; and so cynical that the only Utopia we can believe in is authoritarian.
+ - Some paradox of our natures leads us, when once we have made our fellow men the objects of our enlightened interest, to go on to make them the objects of our pity, then of our wisdom, ultimately of our coercion.
+ - Where misunderstanding serves others as an advantage, one is helpless to make oneself understood.
+ - I find righteous denunciations of the present state of the language no less dismaying than the present state of the language.
+ - The function of literature, through all its mutations, has been to make us aware of the particularity of selves, and the high authority of the self in its quarrel with its society and its culture. Literature is in that sense subversive.
+ - We are all ill; but even a universal sickness implies an idea of health.
+ - It is possible that the contemplation of cruelty will not make us humane but cruel; that the reiteration of the badness of our spiritual condition will make us consent to it.
+ - Even the nonreligious may exercise aesthetic judgment in matters of religion, and indeed our age has given the unbelieving a sophisticated taste in religious literature.
+ - Being a Jew is like walking in the wind or swimming: you are touched at all points and conscious everywhere.
+ - Unless we insist that politics is imagination and mind, we will learn that imagination and mind are politics, and of a kind we will not like.
+ - It is now life and not art that requires the willing suspension of disbelief.
+ - What marks the artist is his power to shape the material of pain we all have.
+ - Immature artists imitate. Mature artists steal.
+ - We who are liberal and progressive know that the poor are our equals in every sense except that of being equal to us.
+ - Youth is a time when we find the books we give up but do not get over.
+ - We properly judge a critic’s virtue not by his freedom from error but by the nature of the mistakes he does make, for he makes them, if he is worth reading, because he has in mind something besides his perceptions about art in itself he has in mind the demands that he makes upon life.
+ - In the American Metaphysical, reality is always material reality, hard, resistant, unformed, impenetrable, and unpleasant.
+ - The poet is in command of his fantasy, while it is exactly the mark of the neurotic that he is possessed by his fantasy.
+ - There is no connection between the political ideas of our educated class and the deep places of the imagination.
+ - Our culture peculiarly honors the act of blaming, which it takes as the sign of virtue and intellect.
+ - If one defends the bourgeois, philistine virtues, one does not defend them merely from the demonism or bohemianism of the artist but from the present bourgeoisie itself.
+ - Literature is the human activity that make the fullest and most precise account of variousness, possibility, complexity, and difficulty.
+ - After all, no one is ever taken in by the happy ending, but we are often divinely fuddled by the tragic curtain.
+ - The poet may be used as a barometer, but let us not forget that he is also part of the weather.
+ - Every neurosis is a primitive form of legal proceeding in which the accused carries on the prosecution, imposes judgment and executes the sentence: all to the end that someone else should not perform the same process.
+ - At the bottom of at least popular Marxism there has always been a kind of disgust with humanity as it is and a perfect faith in humanity as it is to be.
+ - This desire to fashion, to shape, a self and a life has all but gone from a contemporary culture whose emphasis, paradoxically enough, is so much on self.
+ - The diminution of the reality of class, however socially desirable in many respects, seems to have the practical effect of diminishing our ability to see people in their difference and specialness.
+ - We have all in some degree become anarchistic.
+ - Probably it is impossible for humor to be ever a revolutionary weapon. Candide can do little more than generate irony.
+
+32 quotes

@@ -1,0 +1,34 @@
+ - The spectacle is not a collection of images, but a social relation among people, mediated by images.
+ - The spectacle is capital accumulated to the point where it becomes image.
+ - Behind the masks of total choice, different forms of the same alienation confront each other.
+ - What is false creates taste, and reinforces itself by knowingly eliminating any possible reference to the authentic. And what is genuine is reconstructed as quickly as possible, to resemble the false.
+ - Quotations are useful in periods of ignorance or obscurantist beliefs.
+ - Like lost children we live our unfinished adventures.
+ - The spectacle is the bad dream of a modern society in chains and ultimately expresses nothing more than its wish for sleep. The spectacle is the guardian of that sleep.
+ - Looting is a natural response to the unnatural and inhuman society of commodity abundance. It instantly undermines the commodity as such, and it also exposes what the commodity ultimately implies: the army, the police and the other specialized detachments of the state’s monopoly of armed violence.
+ - In a world that has REALLY been turned on its head, truth is a moment of falsehood.
+ - In our society now, we prefer to see ourselves living than living.
+ - Art need no longer be an account of past sensations. It can become the direct organization of more highly evolved sensations. It is a question of producing ourselves, not things that enslave us.
+ - Plagiarism is necessary, progress implies it.
+ - Among the small number of things that I have liked and known how to do well, what I have assuredly known how to do best is drink. Even though I have read a lot, I have drunk even more. I have written much less than most people who write; but I have drunk much more than most people who drink.
+ - The more powerful the class, the more it claims not to exist.
+ - The advertisements during intermissions are the truest reflection of an intermission from life.
+ - Work is only justified by leisure time. To admit the emptiness of leisure time is to admit the impossibility of life.
+ - None of the activity stolen by work can be regained by submitting to what work has produced. – The Society of The Spectacle.
+ - Where the real world changes into simple images, the simple images become real beings and effective motivations of hypnotic behavior.
+ - In societies where modern conditions of production prevail, all of life presents itself as an immense accumulation of spectacles. Everything that was directly lived has moved away into a representation.
+ - Tourism, human circulation considered as consumption is fundamentally nothing more than the leisure of going to see what has become banal.
+ - Young people everywhere have been allowed to choose between love and a garbage disposal unit. Everywhere they have chosen the garbage disposal unit.
+ - Ideas improve. The meaning of words participates in the improvement. Plagiarism is necessary. Progress implies it. It embraces an author’s phrase, makes use of his expressions, erases a false idea, and replaces it with the right idea.
+ - Everyone accepts that there are inevitably little areas of secrecy reserved for specialists; as regards things in general, many believe they are in on the secret.
+ - I have written much less than most people who write; I have drunk much more than most people who drink.
+ - All that once was directly lived has become mere representation.
+ - As specialists of apparent life, stars serve as superficial objects that people can identify with in order to compensate for the fragmented productive specialisations that they actually live.
+ - In the zone of perdition where my youth went as if to complete its education, one would have said that the portents of an imminent collapse of the whole edifice of civilization had made an appointment.
+ - Boredom is always counter-revolutionary. Always.
+ - With the destruction of history, contemporary events themselves retreat into a remote and fabulous realm of unverifiable stories, uncheckable statistics, unlikely explanations and untenable reasoning.
+ - What appears is good; what is good appears.
+ - He will essentially follow the language of the spectacle, for it is the only one he is familiar with.
+ - There is nothing more natural than to consider everything as starting from oneself, chosen as the center of the world; one finds oneself thus capable of condemning the world without even wanting to hear its deceitful chatter.
+
+32 quotes

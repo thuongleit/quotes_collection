@@ -1,0 +1,76 @@
+ - You is kind. You is smart. You is important.
+ - All I’m saying is, kindness don’t have no boundaries.
+ - I always thought insanity would be a dark, bitter feeling, but it is drenching and delicious if you really roll around in it.
+ - Write about what disturbs you, particularly if it bothers no one else.
+ - That’s what I love about Aibileen, she can take the most complicated things in life and wrap them up so small and simple, they’ll fit right in your pocket.
+ - Sorry is the fool who ever underestimates my mother.
+ - This woman talk like she from so deep in the country she got corn growing in her shoes.
+ - Truth. It feels cool, like water washing over my sticky-hot body. Cooling a heat that’s been burning me up all my life. Truth, I say inside my head again, just for that feeling.
+ - Stuart needs “space” and “time,” as if this were physics and not a human relationship.
+ - It weren’t too loo long before I seen something in me, had changed. A bitter seed was planted inside of me. And I just didn’t feel so, accepting, anymore.
+ - I’d cry, if only I had the time to do it.
+ - Wasn’t that the point of the book? For women to realize, We are just two people. Not that much separates us. Not nearly as much as I’d thought.
+ - That’s the way prayer do. It’s like electricity, it keeps things going.
+ - Mrs. Charlotte Phelan’s Guide to Husband-Hunting, Rule Number One: a pretty, petite girl should accentuate with makeup and good posture. A tall plain one, with a trust fund.
+ - Mississippi is like my mother. I am allowed to complain about her all I want, but God help the person who raises an ill word about her around me, unless she is their mother too.
+ - Shame ain’t black, like dirt, like I always thought it was. Shame be the color of a new white uniform your mother ironed all night to pay for, white without a smudge or a speck a work-dirt on it.
+ - Ugly live up on the inside. Ugly be a hurtful, mean person.
+ - And why? Because they are suffocating within the lines that define their town and their times. And sometimes lines are made to be crossed.
+ - They say it’s like true love, good help. You only get one in a lifetime.
+ - The day your child says she hates you, and every child will go through the phase, it kicks like a foot in the stomach.
+ - I always order the banned books from a black market dealer in California, figuring if the State of Mississippi banned them, they must be good.
+ - It seems like at some point you’d run out of awful.
+ - And you call yourself a Christian,? were Hilly’s words to me and I thought, God. When did I ever do that?
+ - She’s wearing a tight red sweater and a red skirt and enough makeup to scare a hooker.
+ - You got nothing left here but enemies in the Junior League and a mama that’s gonna drive you to drink. You done burned ever bridge there is. And you ain’t never gone get another boyfriend in this town and everbody know it. So don’t walk your white butt to New York, run it.
+ - Great books give you a feeling that you miss all day, until you finally get to crawl back inside those pages again.
+ - And if your friends make fun of you for chasing your dream, remember – just lie.
+ - Her nose wrinkle up cause now she got to remember to say she Mae Mobley Three, when her whole life she can remember, she been telling people she Mae Mobley Two. When you little, you only get asked two questions, what’s your name and how old you is, so you better get em right.
+ - Got to be the worst place in the world, inside a oven. You in here, you either cleaning or you getting cooked.
+ - All my life I’d been told what to believe about politics, coloreds, being a girl. But with Constantine’s thumb pressed in my hand, I realized I actually had a choice in what I could believe.
+ - I have decided not to die.
+ - I may not remember my name or what country I live in, but you and that pie is something I will never forget.
+ - I have never been more proud of the United States than I am this year. We have elected an African-American president. We have the stellar Michelle Obama setting the standard for American women. I simply cannot say it enough: look how far we’ve come.
+ - Because ain’t that white people for you, wondering if they are happy enough.
+ - I’ve become one of those people who prowl around at night in their cars. God, I am the town’s Boo Radley, just like in To Kill A Mockingbird.
+ - Babies like fat. Like to bury they face up in you armpit and go to sleep. They like big fat legs too. That I know.
+ - I listened wide-eyed, stupid. Glowing by her voice in the dim light. If chocolate was a sound, it would’ve been Constantine’s voice singing. If singing was a color, it would’ve been the color of that chocolate.
+ - But after Mr. Evers got shot a week ago, lot a colored folk is frustrated in this town. Especially the younger ones, who ain’t built up a callus yet.
+ - She hug me around my neck, say, “You’re righter than Miss Taylor.” I tear up then. My cup is spilling over. Those is new words to me.
+ - I’m sorry, but were you dropped on your head as an infant?
+ - It’s already 95 degrees outside. Mississippi got the most unorganized weather in the nation.
+ - I tell myself that’s what you get when you put thirty-one toilets on the most popular girl’s front yard. People tend to treat you a little differently than before.
+ - Miss Leefolt sigh, hang up the phone like she just don’t know how her brain gone operate without Miss Hilly coming over to push the Think buttons.
+ - Frying chicken always makes me feel a little better about life.
+ - I nursed a worthless, pint drinker for twelve years and when my lazy, life-sucking, daddy finally died, I swore to God with tears in my eyes I’d never marry one. And then I did.
+ - She already got the blue dress on I ironed this morning, the one with sixty-five pleats on the waist, so tiny I got to squint through my glasses to iron. I don’t hate much in life, but me and that dress is not on good terms.
+ - President Kennedy’s assassination, less than two weeks ago, has struck the world dumb. It’s like no one wants to be the first to break the silence. Nothing seems important.
+ - Bosoms are for bedrooms and breastfeeding.
+ - Rich folk don’t try so hard.
+ - I reckon that’s the risk you run, letting somebody else raise you chilluns.
+ - I intend to stay on her like hair on soap.
+ - Some readers tell me, ‘We always treated our maid like she was a member of the family.’ You know, that’s interesting, but I wonder what your maid’s perspective was on that.
+ - With other people, Hilly hands out lies like the Presbyterians hand out guilt, but it’s our own silent agreement, this strict honesty, perhaps the one thing that has kept us friends.
+ - Who knew heartbreak would be so goddamn hot.
+ - Everyone knows how we white people feel, the glorified Mammy figure who dedicates her whole life to a white family. Margaret Mitchell covered that. But no one ever asked Mammy how she felt about it.
+ - Im a Southerner – I never take satisfaction in touching a nerve.
+ - I don’t know what to say to her. All I know is, I ain’t saying it. And I know she ain’t saying what she want a say either and it’s a strange thing happening here cause nobody saying nothing and we still managing to have us a conversation.
+ - Only three things them ladies talk about: they kids, they clothes, and they friends. I hear the word Kennedy, I know they ain’t discussing no politic. They talking about what Miss Jackie done wore on the tee-vee.
+ - At one O’Clock, Miss Celia comes in the kitchen and says she’s ready for her first cooking lesson. She settles on a stool. She’s wearing a tight red sweater and a red skirt and enough makeup to scare a hooker.
+ - As children, we looked up to our maids and our nannies, who were playing in some ways the role of our mothers. They were paid to be nice to us, to look after us, teach us things and take time out of their day to be with us. As a child you think of these people as an extension of your mother.
+ - I was surprise to see the world didn’t stop just cause my boy did.
+ - Why don’t we just build you an house outside Hilly?
+ - That’s all a grit is, a vehicle. For whatever it is you rather be eating.
+ - Down in the national news section, there’s an article on a new pill, the ‘Valium’ they’re calling it, ‘to help women cope with everyday challenges.’ God, I could use about ten of those little pills right now.
+ - I grew up in the 1970s, but I don’t think a whole lot had changed from the ’60s. Oh, it had changed in the law books – but not in the kitchens of white homes.
+ - I wait on white ladies who walk right out the bedroom wearing nothing but they personality...
+ - No one tells us, girls who don’t go on dates, that remembering can be almost as good as what actually happens.
+ - Cause everbody care. Black, white, deep down we all do.
+ - Lord, I never seen blue hair on a black woman before or since. Leroy say you look like a cracker from outer space.
+ - Having a separate bathroom for the black domestic was just the way things were done. It had faded out in new homes by the time the ’70s and ’80s rolled up.
+ - I started writing it the day after Sept. 11. I was living in New York City. We didnt have any phone service and we didnt have any mail. Like a lot of writers do, I started to write in a voice that I missed.
+ - If singing was a color, it would’ve been the color of that chocolate.
+ - When you little, you only get asked two questions, what’s your name and how old you is, so you better get em right.
+ - It can be really powerful to write something when youre sad.
+
+74 quotes

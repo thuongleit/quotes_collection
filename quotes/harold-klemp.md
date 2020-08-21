@@ -1,0 +1,92 @@
+ - The quest for God is the quest for true happiness.
+ - There is a power in people who dream big and who try hard.
+ - Abundance flourishes in a grateful heart; gratutude is the secret of love.
+ - A solution exists for every challenge to our peace of mind. There is always a way, somehow. What holds us back from happiness is our lack of faith in the mighty power of the Holy Spirit to address our most humble needs.
+ - The real meaning of detached love is to let others exist without forcing our will upon them. That is spiritual love.
+ - The journey home to God is what life is about. In a sense it’s not even a journey. It’s an ongoing experience.
+ - We love our dear ones deeply and miss them when they leave us. But we know that the bond of love is greater than death.
+ - When your day is hard, remember to sing HU. It puts you back in line with the Holy Spirit.
+ - What is the spiritual purpose of the arts? It is to learn structure. Once an artist creates a true structure, then divine love can pour into it and make it a living thing of beauty.
+ - Our dreams are the forgotten path to Heaven.
+ - The window of heaven is what all truth seekers are trying to open.
+ - Herein, lies the key to love. Love builds bridges. Soul exists because God loves It. Soul equals Soul; no one Soul is greater than another. Experience the greatest love of all.
+ - Soul, a particle of God, is blessed with the gift of creative imagination, which finds a solution for every problem.
+ - If you keep in mind that love and love alone is the reason for living, it will calm your heart and free you from your worries.
+ - Whenever you’re in doubt about any action, ask yourself: Is it true? Is it necessary? Is it kind? You can also ask, what would love do now?
+ - Soul yearns to return home to God. Home to God means the area of supreme divine love that has no conditions attached to it: unconditional love.
+ - Contemplate sweetly on love, and the wisdom of God shall find you.
+ - And where there’s pure love, there is no room for anger of any kind.
+ - The ECK books are simply to show people how to go inside themselves, into the pureness of their heart, where they can get answers directly from the Inner Master about things of a spiritual nature, insights to help them in their life.
+ - Love Gratefully. This love expands your heart into a greater vessel which can hold yet more love.
+ - Every problem contains a solution. The key is self-discipline and surrender of the mental habits to the Holy Spirit.
+ - Self-Realisation. Soul recognition. The entering of Soul into the Soul Plane and there beholding Itself as pure Spirit. A state of seeing, knowing, and being.
+ - Dreams touch every level of our life. They may let us glimpse the future, or give suggestions for healing, or share insights into our relationships. Above all, they can and will steer us more directly toward God.
+ - If we want to keep the blessings of life coming to us, we must learn to be grateful for whatever is given.
+ - Only the brave and adventuresome find God, never the timid.
+ - Both the dream state and Soul Travel are doors to the same spiritual worlds.
+ - All good virtues and goodness itself will gradually find their true home in the heart in which love dwells, and all other qualities will wither and die.
+ - We are personally responsible for our own state of consciousness. As Soul unfolds toward total freedom, It understands total responsibility must be accepted for every thought and action.
+ - Every time you walk through a doorway today, whether at work or at home, know that on the inner planes you are walking through a doorway to heaven. An that is every doorway, as long as you recognise this in your consciousness.
+ - All the help that comes to us is form the Holy Spirit, whether it comes in a dream or through the help of a friend or doctor. The trick is the discrimination you need: to tell what’s good for you and what’s not good for you. This comes by listening to your heart.
+ - Youth are the leaders of tomorrow. Those who practice the Spiritual Exercises of Eck will know how to lead by the example of love instead of the methods of force and lies, which are the standards of leaders under the spell of the negative force.
+ - Leaders when not leading are outcasts.
+ - The greatest thing we can possibly gain from this life is the ability to love, and to love greatly.
+ - The classic Soul Travel experience is leaving the human body in full awareness and having the Light and Sound of God flow directly into the Soul body.
+ - Earth allows several levels for Soul to gain experience in life, including the mineral, plant, fish, animal and human stages.
+ - The outflow that comes from giving of oneself opens the door to spiritual unfoldment while the attitude of taking locks it.
+ - The love and protection of the Holy Spirit are with you in all spiritual concerns.
+ - There’s a spiritual bond that connects all Souls: human, animal, and lower forms of life.
+ - One word of love is worth more than a thousand clever speeches.
+ - You can’t make yourself closer to God by hating someone else, whether you believe it’s righteous anger or not. The relationship between Soul – which is you – and God is one of love. And where there’s pure love, there is no room for anger of any kind.
+ - Love does not come to those who seek it, but to those who give love. It is a binding force between souls who have nothing to give but themselves to one another.
+ - As we unfold spiritually, the reality of our inner life enters new dimensions and we must change with it.
+ - When you do your best, you are expressing an attribute of God.
+ - An unselfish dream, goal, or service can help us to the height of spiritual living.
+ - Love won’t come through unless the heart is open. To work with an open heart is to love or care for something or someone more than you do for yourself. This is the first step to the divine love that we all are looking for.
+ - You must always remember this. When hardships come, don’t automatically ask God to deliver you from them. Perhaps it would be wiser to ask: What do I have to learn before I am delivered from this problem?
+ - One of the biggest lessons we can learn in life is to do everything possible to reach an accord with the individual we are having trouble with.
+ - Whether you are out in the world, or you’re at home, you are simply an instrument of God’s love in your universe.
+ - The way to God is ever within the heart, within the loving heart.
+ - Your state of consciousness today is not the same as it used to be or as it will be in two weeks or a couple of years from now.
+ - Know that you are a spark of God and can exist fully only within the realization of that profound truth. As such, you are a light and inspiration to others.
+ - Every thought, word, or deed, either purifies or pollutes the body.
+ - We recognise that Soul is eternal; It has no beginning or ending. Therefore, when a person leaves his physical body, he continues to exist, usually on a higher plane of consciousness.
+ - Most people think they are searching for truth when they are really searching for love.
+ - Very often, we are confronted by people who want us to pray their way or colleagues who want us to think their way. We must remember to maintain our individual relationship with God. We have the shining light of Soul, and because we have it, we also have the wisdom of God.
+ - When Spirit comes into your life, It will uplift you and give you an understanding into the problems and the joys of your daily life. It gives direction, and for many people this is the first time that they have found it.
+ - Before you can improve your life and find a measure of happiness, you must learn to do one thing every day out of pure love.
+ - True contemplation is reflecting on the blessings of God in your life.
+ - Our memory of dreams is a glimpse of the full spiritual life that each of us leads beyond the physical.
+ - If you have love, you have all.
+ - Most people who desire God look for the God state too far from home, but the seed of spiritual greatness is in the heart of all. The spiritual exercises help one find a comfortable relationship with the Eck, the Holy Spirit – and with all life.
+ - The nature of life is to face us with ourselves, until we are able to handle the problems that knocked us into the dirt yesterday.
+ - Life is a stream of happy and unhappy experiences, because that leads to Soul’s purification. How do you get by in the dark times? Try to give love to someone, especially then.
+ - The EKC or Holy Spirit, can lift the most common beginning to the highest good. Yet to secceed, we must surrender our little self to achieve divine love.
+ - An invitation is extended to any true seeker who wants to find for himself the Light and Sound of God. This treasure is the birthright of Soul that leads to the Kingdom of Heaven.
+ - When we work from the Soul consciousness, we can shape our own destiny.
+ - Fill yourself with love. Then you will learn everything you ever need to know about God and life.
+ - Every experience, waking or dream, has a lesson or message to impart to us.
+ - In this world we are in precarious position, balanced midway between material and spiritual hungers. We find heaven to be a delicate state of consciousness that can be lost in a single moment of forgetfulness.
+ - The secret of a balanced life is to live each moment in the right spiritual frame of mind.
+ - This is a warring universe. To survive here, one must know its ways.
+ - We are learning to work with intuition, which actually is Soul giving us gentle guidance to make our life better.
+ - We must first give to life if we expect life to give anything in return. This is the divine law.
+ - There is a way to bring peace and harmony to yourself even in the most difficult of times.
+ - The choices you’ve made in the past are the direct cause of all your unhappiness today.
+ - The point of any religion should be this: how to open your heart to love.
+ - We’re using our creativity to learn how to work with Divine Spirit, how to come into harmony with life around us.
+ - Divine Spirit has a way of doing exactly what is right for everyone concerned at the moment.
+ - Every issue of life is determined not by external conditions and things, but by one’s consciousness.
+ - Learning means making errors. Those who are learning spiritually make errors just the way anyone does when he is growing.
+ - The experiences of life teach truth.
+ - It’s quite a discipline when we’re in trouble to think of God and say, “I need some help.”
+ - Children have the wisdom of God and are closer to it than many people who have spent years in this world gaining all kinds of knowledge about the nature of religion. Children have it naturally.
+ - If one gets his life together, there will be enough love and bounty to take care of every avenue of life.
+ - As you grow in spirituality, your whole life must improve.
+ - Humanity starts at the level of the human consciousness and makes its deliberate way to the summit, which is God Consciousness.
+ - As we raise ourselves in the spiritual consciousness, we are better able to solve the problems of life. We are happy. We are at home in every environment.
+ - The movement of Soul beyond the human senses is such a natural process that one is likely to overlook it in its simplicity.
+ - You know your general purpose is to become a Co-worker with God. So how do you identify your personal goal?
+ - The secret is this. You make your own happiness.
+
+90 quotes

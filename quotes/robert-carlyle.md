@@ -1,0 +1,34 @@
+ - It’s much more fun to be ugly.
+ - I feel like I’m the luckiest man on the planet.
+ - I do tend to divide my childhood into darkness and light, and the first seven years were certainly the darkness.
+ - I owe my father everything.
+ - I want to keep audiences off balance, so they don’t know who I am or how to take me. If I duck and weave, as Frank Bruno might say, I’ll have a longer shelf life.
+ - Acting is probably the greatest therapy in the world. You can get a lot stuff out of you on the set so you don’t have to take it home with you at night. It’s the stuff between the lines, the empty space between those lines which is interesting.
+ - I was 16 when I was in a band, for about 10 minutes. I went off and did acting after that. So it was a wee moment for me when I sang.
+ - The darker the character, the more interesting.
+ - Guys, particularly in the West, go to the gym and train for hours and hours to pick up something that is heavier than them. Why would you want to do that?
+ - I’ve always believed that as an actor anything you’re asked to do is within you. You just have to try and find it.
+ - Every actor I think has got their own number of takes that they like, you know. Some actors like to go all day, you know on the one scene and some actors want to take two takes. I personally like four.
+ - So many of my friends, old friends I haven’t seen in years, made their way out there and got lost, then found their way back. That seems believable to me.
+ - At times of the severest depression, humor is what binds people together.
+ - A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can’t balk at work like that. As an actor, that’s as good as it gets.
+ - I’ve always taken my love of children from my father. He was a children magnet. Suddenly, having my first child hit home what my dad went through.
+ - When I look back at my past and the way I grew up, I grew up on communes. That was meant to be.
+ - Early days, I was a bit racked, particularly when I did Hitler, for CBS. That was hellish. That stayed with me for quite a long time.
+ - The thing I miss the most about Scotland is the football.
+ - There’s a kind of unwritten rule: Don’t say anything at all, and everything will be fine. It’s a producer’s medium. The directors aren’t there to make any decisions. They’re not going to change anything.
+ - I’ve never been good at accepting jobs six months down the line. I can’t do it. If I’m thinking about this, I can’t think about that. So I always seem to fly by the seat of my pants.
+ - My understanding of zombie movies is people rising from the dead, from their graves, stuff like that, and walking very slowly.
+ - I think I have a natural, if I can say that, got a kind of natural ability in comedy.
+ - I used to be a rabid reader, but now it’s scripts or nothing – network television is quite relentless, and you can’t drop the ball.
+ - Each performance and each film is what it is. It’s right and belongs within that moment. You look at it and try to make it fit your particular part of your character and your particular film.
+ - I have a reputation for being an improvisational actor, which is true, but I also know what I’m doing so that if the improvisational strand doesn’t work I can go back to what I know’s already there.
+ - I don’t want to be a luvvie actor. It took a long time for me to accept I was an actor, a professional actor, and that, actually, I make a living out of this.
+ - I played a maniac fan who murders a policeman and she did my makeup. I thought anyone interested in me looking like that must have genuinely liked me.
+ - The more people know about an actor the less convincing they become. A bit of mystery’s a good thing.
+ - The script will point you in certain directions and I go the opposite if I can. I try do do one thing and tell a different story with my eyes. I believe what’s more interesting is always what’s not being said.
+ - I don’t take a great deal of interest in party politics. Social politics interests me a great deal more.
+ - Anyone that knows me knows what I’m about, and I’m very much a British actor, a European actor.
+ - A lot of Scots have settled in Canada over the years and it’s a very easy place for Scots – they understand us, we understand them.
+
+32 quotes

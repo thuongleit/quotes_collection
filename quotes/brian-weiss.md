@@ -1,0 +1,36 @@
+ - Your task is not to judge or punish. Karma will take care of that. Your task is to love.
+ - You are not your body; you are not your brain, not even your mind. You are Spirit. All you have to do is reawaken to the memory, to remember.
+ - Souls don’t have races or sexes or religions. They are beyond artificial divisions.
+ - A life with difficult relationships, filled with obstacles and losses, presents the most opportunity for the soul’s growth.
+ - Other inner peace quotes encourage letting go of the desire to control everything around us, and slowing down as ways of attaining inner peace.
+ - Inner peace is impossible without patience. Wisdom requires patience. Spiritual growth implies the mastery of patience. Patience allows the unfolding of destiny to proceed at its won unhurried pace.
+ - Love is the energy from which all people and things are made. You are connected to everything in your world through love.
+ - All of nature is resurrection.
+ - You need your ego to survive in the three-dimensional world, but you need only that part of the ego which processes information. The rest – pride, arrogance, defensiveness, fear – is worse than useless. The rest of the ego separates you from wisdom, joy, and God.
+ - Happiness comes from within. It is not dependent on external things or on other people. You become vulnerable and can be easily hurt when your feelings of security and happiness depend on the behavior and actions of other people. Never give your power to anyone else.
+ - Sometimes the most evolved souls take the most challenging paths.
+ - If you rely exclusively on the advice of others, you may make terrible mistakes. Your heart knows what you need. Other people have other agendas.
+ - Forgive the past. It is over. Learn from it and let go. People are constantly changing and growing. Do not cling to a limited, disconnected, negative image of a person in the past. See that person now. Your relationship is always alive and changing.
+ - That putt had more breaks than a government job.
+ - Eventually we will all understand that all wisdom is within us, and as we remember, practice and access this wisdom, we will become our own best teacher.
+ - Understanding dissolves fear. When we understand the true nature of our being, fears dissipate. We are spiritual beings, not human beings.
+ - For truly we are all angels temporarily hiding as humans.
+ - Sometimes, soulmates may meet, stay together until a task or life lesson is completed, and then move on. This is not a tragedy, only a matter of learning.
+ - Happiness is really rooted in simplicity. The tendency to excessiveness in thought and action diminishes happiness.
+ - I know that there is a reason for everything. Perhaps at the moment that an event occurs we have neither the insight or the foresight to comprehend the reason, but with time and patience it will come to light.
+ - Worrying is worthless. When you stop focusing on what has already happened and what may never happen, then you’ll be in the present moment. Then you’ll begin to experience joy in life.
+ - Understand the nature and influence of repeating patterns, from childhood experiences or even from past lives. Wthout understanding, patterns tend to repeat, unnecessarily damaging the relationship.
+ - Experience is stronger than belief. Once we have experiences our mind begins to open. This works better than me forcing my own experience or knowledge onto anyone. Show them how to have their own experiences.
+ - Golf is like smoking, I have been trying to quit for years.
+ - What is the biggest thing that stops people from living their lives in the present moment? Fear – and we must learn how to overcome fear.
+ - It breaks towards the center of the earth when it is above the hole.
+ - Our rational minds often attempt to minimise or negate the mystical encounters. We forget the power of our experiences. We must embrace the reality of that event, which is a miracle.
+ - To reach back and help, and expect neither reward nor even thanks. To reach back and help, because that is what spiritual beings do.
+ - That divot is so deep, I will need a sod cutter to fix it.
+ - The more you go within, the more you understand your true nature, and the more joy and happiness you feel in your life.
+ - Never take a mulligan on a par 3. A “hole in three” is not a fun story to relive.
+ - The ball retriever is not long enough to get my putter out of the tree.
+ - I was asked by a golfer how to lower his scores. I replied start playing 9 holes instead of 18. I worked for me, it cut my scores in half.
+ - Every individual soul chooses the significant people in that life. Destiny will place you in the particular circumstance; it will dictate that you will encounter a particular person, at a certain time, place.
+
+34 quotes

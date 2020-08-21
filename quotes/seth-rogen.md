@@ -1,0 +1,90 @@
+ - Claiming that someone’s marriage is against your religion is like being angry at someone for eating a donut because you’re on a diet.
+ - Most people I work with are older than me and the main thing I’ve learnt is that everyone is a dumb as an 18-year-old.
+ - It’s not dying you need to be afraid of, it’s never having lived in the first place.
+ - I am lazy, but for some reason, I am so paranoid that I end up working hard.
+ - I honestly don’t love the Cheech and Chong movies, I’ve got to say.
+ - It’s important to see your parents as individuals. As a son or as a daughter you don’t stop and think that your parents might have their own expectations, dreams or disappointments.
+ - My mom drives me crazy sometimes, but I have a good relationship with her.
+ - I’m a process server, so I have to wear a suit.
+ - As soon as I realized you could be funny as a job, that was the job I wanted.
+ - I guess it’s a kind of a goal for any actor to be the lead of a movie. Not for ego reasons, but because it is creatively the biggest challenge.
+ - It always seems crazy to tell people what to expect. That never works! So, I don’t know what to say, other than that they can expect me.
+ - There is no such thing as a villain. It’s the others who are wrong. In as much, all villains are the same.
+ - I’m used to really struggling and facing a hard time to get things going, until I’m comfortable at all with them.
+ - I’ve never had something – like, you know, drunk people have tried to do that to me, and I instantly shut it off. I say, don’t to this, dude; you’ll feel terrible about this later. It’ll be – I’ll bring it up all the time; I’ll make fun of you. Just save yourself the embarrassment and don’t do it.
+ - Please don’t wear skinny jeans if you don’t have skinny genes.
+ - I always thought realistic was a better way to explain things that were “dramedies” because life is like that. It’s funny, it’s dramatic and to me that’s how I see it.
+ - I mean, where I come from, ‘communism’ is not a terrible word.
+ - I eat well, and I exercise.
+ - In “Superbad,” I carry a gun, but I didn’t get to shoot it that much.
+ - I did karate for a really long time, almost 10 years when I was younger.
+ - People make fun of what I’m eating because they can tell I hate it. They know I am not happy eating healthy food. I look miserable – I look like I would rather be eating something else.
+ - Uh, stay fat people – That’s my motto. It’s no picnic!
+ - There was a year straight where every weekend, I went to at least one bar mitzvah or bat mitzvah, and we would all go, and it was a lot of fun. We sneak some beer; we’d hang out; we would try to get with girls and not. And usually we’d just end up hanging out together alone.
+ - People constantly make pop-culture references. That’s why it’s called popular culture, because people are aware of it and reference it constantly.
+ - I met Evan Goldberg at bar-mitzvah class. It was called tallis and tefillin.
+ - Some of my friends would lie to girls to get them, or do things that – you know, they would cheat on girls. I was just never in the realm of what, you know, what’s instilled to me, you know? Yeah, I mean, my mom’s a social worker, for God’s sakes.
+ - I feel much more comfortable as a writer than an actor. I feel like I am a much better writer than I am an actor.
+ - To me, what separates a funny movie from a good movie is something personal.
+ - Every time I improvise I’m aware that I could be ruining what it is that we’re doing and we’ll just have to do it again.
+ - When we grew up in Vancouver our friends were – I don’t know if I’d say callous, but we had a very, you know, harsh relationship with one another; we’d constantly make fun of each other.
+ - All my friends are talented enough to get nominated for awards. I just am always surprised when things and people I like are also liked by things like the Oscars.
+ - I remember when I got my first Adam Sandler CD and it was the funniest thing I’d ever heard in my entire life, and continues to be.
+ - I do believe in monsters oddly enough. I think they’re under my bed. But aliens are ridiculous; monsters I think are real completely though.
+ - It’s definitely not true what they say about women wanting a guy with a sense of humour. What women mean is that they want a guy with a sense of humour who is really handsome. If a girl had a choice between Brad Pitt or me, she’d pick Brad Pitt. And I’m a lot funnier than he is.
+ - I’ve never really had a real job. When I was young doing stand-up, I’d get 50 bucks a week here or 100 bucks a week there. Sometimes for headlining one of the rooms, or MC-ing, or something like that. So, I’ve never had like a normal job.
+ - When I was a little kid, I used to say, “I would rather host the Oscars than win an Oscar.” To me, that seemed like the more appealing, fun gig.
+ - I liked actions movies. Jean-Claude Van Damme was a major influence on me at that point in my life.
+ - There’s just nothing funnier than, like, a guy awkwardly explaining to another guy that he’s hurt his feelings, and then later, awkwardly, you know, forgiving him for doing that.
+ - It’s always funny to find what people’s button is.
+ - Most comedy comes out of misery.
+ - I don’t even have a stalker. I’m just not the guy that people stalk.
+ - Shutting people down creatively often doesn’t get the best performance out of them.
+ - There’s something you can get away with when you know you’re only going to be on one season. There’s no sense of, “We should save that.” It’s just like, “Use that! Get it out there now. They could shut us down any second!”
+ - I think people do get better as the movies go on sometimes, and I’m always happy that we’re shooting out of order, so it’s kind of scattered throughout the movie, and there isn’t like a clear build in everyone finding their characters.
+ - For a Jewish mother, having a country wage war on your son is the worst. If Kim Jong-un only knew what he was doing to my mother!
+ - My characters come from a good place.
+ - In my sick brain, gruesome violence and comedy go as hand-to-hand together as anything else in the world.
+ - I’m the person who writes most of my movies so every role is exactly what I want to be doing.
+ - I’m a complete coward in real life.
+ - Oftentimes what happens actually is people say to me, ‘I didn’t know if it was you or not, and then I heard you laugh, and then obviously I could tell it was you.’
+ - There was, like, a week straight of shooting, where, like, all I did was shoot a machine gun. And I hate to – every – it went against all my Jewish and Canadian instincts, but I enjoyed every second of it.
+ - It’s nice to win an award, I would assume. I’ve never won one, but I would imagine it’s great. I have no idea what I’ll do.
+ - People don’t usually wanna kill me for one of my movies until after they’ve paid 12 bucks for it.
+ - Really, if I’m honest, sci-fi is where my sensibility instinctively goes – I’m a big comic-book fan.
+ - We just kind of wanted to play with these iconic moments of action. There’s a really small one that always makes me laugh really hard, where there’s a big shootout at the end, and the moment my gun runs out of bullets, I turn and there’s just another gun sitting there, and I’m, like, oh, nice.
+ - I don’t make the best movies in the world, but at times, I do feel like I’m adding something to the cinematic community.
+ - When it came to, like, appropriate behavior towards one another, it was – I was well-versed.
+ - When I was 13 and 14, there were a lot of jokes about my bar mitzvah and my grandparents, and then when I got older, it became more about touching boobs and trying to get liquor. I kind of ran the gamut of infantile behavior and I haven’t moved one step forward since.
+ - I watch a lot of TV. I love nothing more than having a good TV show on DVD, to just plow through.
+ - You don’t have to put dresses in a movie to make girls like it.
+ - I know most people don’t like their jobs very much and don’t get a lot of personal satisfaction from their jobs. That’s something that I really do get a lot of.
+ - I work under the assumption that, generally speaking, my taste and the taste of the Oscar voters are not one in the same.
+ - To me, always just – that scene is, like, so convenient. They never run out of bullets in action movies, unless it’s at the most dramatic time possible.
+ - Steve Wozniak literally one of the sweetest guys. And that was kind of the thing I had to reconcile: how do I try to do this guy’s sweetness justice in some capacity when most of the things I’m doing in the movie are pretty confrontational, and pretty argumentative.
+ - The current Babe Ruth of improv? Sacha Baron Cohen. He’s pretty amazing.
+ - I grew up in Vancouver, man. That’s where more than half of my style comes from.
+ - I remember, when I was an up-and-coming comic, how annoyed I would be when the famous guys would show up and just take everyone’s spots.
+ - I’ll vote for whoever is the Democrat. That’s all I need to know.
+ - If I were directing a movie, it would scare me.
+ - Sometimes what you lose in the time it takes to let an actor do something that you don’t like as a director, you gain in not shutting them down creatively by telling them their idea sucks.
+ - A TV show is constant work, which is the great thing about it.
+ - You want to create an environment where we’re fostering ideas, not rejecting them.
+ - I feel like if I won an award and I was giving my speech and the music started, that’s all I’d remember, the humiliation I felt when the music started. It would mar the entire experience for me.
+ - I’m intimidated anytime I work with someone who’s directly outside my very insulated group of friends.
+ - Are we gonna just make movies about trying to get laid over and over again or focus on something that’s more relevant?
+ - Good comedy doesn’t have to be a comedy idea.
+ - I don’t weigh myself.
+ - To me it’s a mystery that you can show the horrific things in the movies, but not some sexual stuff which everyone does.
+ - I don’t think all of my ideas are good. It’s almost easier when people are critical of you because it helps with the quality control.
+ - If you ask most high schoolers who Bruce Lee is, they will say that it someone they sit next to in English class.
+ - If you take a tube TV to a donation center, they won’t accept it.
+ - Every once in a while you definitely have to film someone for half an hour saying something that you do not think is funny because for the previous two hours they said a bunch of stuff that you think is really funny.
+ - I didn’t think I’d ever be an actor.
+ - We started when we’re around 13 writing it – maybe 14. I’m a little older than Evan Goldberg is, like, only like six months. But like, I would say, like, the general structure of the movie, like, the series of events is very similar to what it was when we first wrote it.
+ - After every single take, I laugh. It’s my own awkwardness and discomfort about being an actor.
+ - I was always big. I was kind of around this size, like, since I went into high school. I played rugby and stuff like that. So, people, you know, would screw with me, but I never got into, like, a real fight or anything like that.
+ - For me to act natural and real but also try to be funny while doing that is hard.
+ - I mean, I love Comic-Con.
+
+88 quotes

@@ -1,0 +1,68 @@
+ - We are the ones we’ve been waiting for.
+ - Maybe the purpose of being here, wherever we are, is to increase the durability and occasions of love among and between peoples.
+ - I am a feminist, and what that means to me is much the same as the meaning of the fact that I am Black: it means that I must undertake to love myself and to respect myself as though my very life depends upon self-love and self-respect.
+ - I am not wrong: Wrong is not my name.
+ - And who will join this standing up and the ones who stood without sweet company will sing and sing back into the mountains and if necessary even under the sea: we are the ones we have been waiting for.
+ - As I think about anyone or anything – whether history or literature or my father or political organizations or a poem or a film – as I seek to evaluate the potentiality, the life-supportive commitment and possibilities of anyone or any thing, the decisive question is always where is the love?
+ - I am the history of the rejection of who I am.
+ - Poetry is a political act because it involves telling the truth.
+ - I am a stranger, learning to love the strangers around me.
+ - I wrote those poems for myself, as a way of being a soldier here in this country. I didn’t know the poems would travel. I didn’t go to Lebanon until two years ago, but people told me that many Arabs had memorized these poems and translated them into Arabic.
+ - We survive our love because we go on loving.
+ - There are two ways to worry words. One is hoping for the greatest possible beauty in what is created. The other is to tell the truth.
+ - To tell the truth is to become beautiful, to begin to love yourself, value yourself. And that’s political, in its most profound way.
+ - In the name of motherhood and fatherhood and education and good manners, we threaten and suffocate and bind and ensnare and bribe and trick children into wholesale emulation of our ways.
+ - To rescue our children we will have to let them save us from the power we embody: we will have to trust the very difference that they forever personify.
+ - That a little child will lead us back to the child we will always be, vulnerable and wanting and hurting for love and for beauty.
+ - So, poetry becomes a means for useful dialogue between people who are not only unknown, but mute to each other. It produces a dialogue among people that guards all of us against manipulation by our so-called leaders.
+ - A democratic state is not proven by the welfare of the strong but by the welfare of the weak.
+ - I believe that love is the single, true prosperity of any moment.
+ - To begin is no more agony than opening your hand.
+ - Like a lot of Black women, I have always had to invent the power my freedom requires...
+ - I am working never to be late again.
+ - The purpose of polite behavior is never virtuous. Deceit, surrender, and concealment these are not virtues. The goal of the mannerly is comfort, per se.
+ - Bisexuality means I am free and I am as likely to want to love a woman as I am likely to want to love a man, and what about that? Isn’t that what freedom implies?
+ - We do not deride the fears of prospering white America. A nation of violence and private property has every reason to dread the violated and the deprived.
+ - Good poetry and successful revolution change our lives. And you cannot compose a good poem or wage a revolution without changing consciousness unless you attack the language that you share with your enemies and invent a language that you share with your allies.
+ - Consequently, most of us really exist at the mercy of other people’s formulations of what’s important.
+ - Language is political. That’s why you and me, my Brother and Sister, that’s why we supposed to choke our natural self into the weird, lying, barbarous, unreal, white speech and writing habits that the schools lay down like holy law.
+ - As a child I was taught that to tell the truth was often painful. As an adult I have learned that not to tell the truth is more painful, and that the fear of telling the truth – whatever the truth may be – that fear is the most painful sensation of a moral life.
+ - I care because I want you to care about me. I care because I have become aware of my absolute dependency upon you, whoever you are, for the outcome of my social, my democratic experience.
+ - I do believe that the analogy for bisexuality is a multicultural, multi-ethnic, multiracial world view. Bisexuality follows from such a perspective and leads to it, as well.
+ - What tyranny could exceed a tyranny that dictates to the human heart?
+ - As a poet and writer, I deeply love and I deeply hate words. I love the infinite evidence and change and requirements and possibilities of language.
+ - To believe is to become what you believe.
+ - If we lived in a democratic state our language would have to hurtle, fly, curse, and sing, in all the common American names, all the undeniable and representative and participating voices of everybody here.
+ - Freedom is indivisible, and either we are working for freedom or you are working for the sake of your self-interests and I am working for mine.
+ - Americans have begun to understand that trouble does not start somewhere on the other side of town. It seems to originate inside the absolute middle of the homemade cherry pie.
+ - Revolution always unfolds inside an atmosphere of rising expectations.
+ - What’s important about poetry in the context of leadership is that most of the time, power has to do with dominance. But poetry is never about dominance. Poetry is powerful but it cannot even aspire to dominate anyone. It means making a connection. That’s what it means.
+ - The first function of poetry is to tell the truth, to learn how to do that, to find out what you really feel and what you really think.
+ - Reproductive choice is not some trendy item to toss or keep around the house. If you cannot get an education or a job, if you cannot choose what will or will not happen with your own body, then what freedom do you have?
+ - My heart is not peripheral to me.
+ - My father was both the person who gave me reason to learn how to fight and the one who taught me the basics of fighting. He would tell me that if it was a big fight, it would probably be uneven, it wouldn’t be fair.
+ - The United States Supreme Court, once a reliable if ultimate recourse for progressive and even revolutionary grievances, has become a retrograde wellspring for enormous economic and social distress.
+ - Body and soul, Black America reveals the extreme questions of contemporary life, questions of freedom and identity: How can I be who I am?
+ - The music of language became extremely important to me, and obvious to me. By the time I was seven I was writing myself. I was a poet.
+ - The thing about genius is it will never yield to circumstances. Genius regards what’s given as the beginning of its need to find or devise something else.
+ - Like running trying to live a good life has to hurt a little bit, or we’re not running hard enough, not really trying.
+ - The courts cannot garnish a fathers salary, nor freeze his account, nor seize his property on behalf of his children, in our society. Apparently this is because a kid is not a car or a couch or a boat.
+ - One of the reasons I came to Berkeley was because I saw so many students of all different colors speaking so many different languages and ferociously presenting all these different views. I thought, this is the 21st century and I want to be here!
+ - Let me just say, at once: I am not now nor have I ever been a white man. And, leaving aside the joys of unearned privilege, this leaves me feeling pretty good...
+ - My father was very intense, passionate and over-the-top. He was my hero and my tyrant.
+ - As I am a poet I express what I believe, and I fight against whatever I oppose, in poetry.
+ - As a poet and writer, I deeply love and I deeply hate words.
+ - Sometimes we become so sophisticated we have to read the New York Times in order to figure out whether it’s a hot or a rainy day.
+ - Overall, white men run America. From nuclear armaments to the filth and jeopardy of New York City subways to the cruel mismanagement of health care, is there anything to boast about?
+ - In the process of telling the truth about what you feel or what you see, each of us has to get in touch with himself or herself in a really deep, serious way.
+ - If you are free, you are not predicatable and you are not controllable.
+ - Behold the heart and mind of Angela Davis: open, relentless, and on time! She is as radiant, she is as true, as that invincible sunrise she means means means to advance With all of the faith and all of the grace of her entirely devoted life.
+ - If any of us hopes to survive, she must meet the extremity of the American female condition with immediate and political response. The thoroughly destructive and indefensible subjugation of the majority of Americans cannot continue except at the peril of the entire body politic.
+ - But, based on my friendship with Evie as young mothers, I started going on freedom rides in 1966.
+ - The neglected legacy of the Sixties is just this: unabashed moral certitude, and the purity – the incredibly outgoing energy – of righteous rage.
+ - To tell the truth is to become beautiful.
+ - It means to educate myself incessantly about the world around me.
+ - I think I have come to a place where I’m able to feel more comfortable about being honest.
+ - That attitude that fighting is probably not fair, but you have to defend yourself anyway and damage the enemy, has been profoundly consequential as far as my political activism goes.
+
+66 quotes

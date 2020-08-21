@@ -1,0 +1,116 @@
+ - The American dream does not come to those who fall asleep.
+ - Music education opens doors that help children pass from school into the world around them – a world of work, culture, intellectual activity, and human involvement. The future of our nation depends on providing our children with a complete education that includes music.
+ - My fellow Americans, our long national nightmare is over.
+ - Personal excellence can be achieved by a visionary goal, through planning, dedicated execution, and total follow-through.
+ - Never be satisfied with less than your very best effort. If you strive for the top and miss, you’ll still ‘beat the pack.’
+ - A government big enough to give you everything you want is a government big enough to take from you everything you have.
+ - If I went back to college again, I’d concentrate on learning to write and to speak before an audience. Nothing is more important than the abillity to communicate effectively.
+ - I do believe that the buck stops here, that I cannot rely upon public opinion polls to tell me what is right.
+ - We cannot stand still or slip backwards. We must go forward now together.
+ - The spirit of seeking understanding through personal contact with people of other nations and other cultures deserves the respect and support of all.
+ - Let America symbolize humanity’s struggle to conquer nature and master technology. The time has now come for our Government to facilitate the individual’s control over his or her future-and of the future of America.
+ - Without God there could be no American form of government, nor an American way of life.
+ - Nothing in life is more important than the ability to communicate effectively.
+ - In the age-old contest between popularity and principle, only those willing to lose for their convictions are deserving of posterity’s approval.
+ - The political lesson of Watergate is this: Never again must America allow an arrogant, elite guard of political adolescents to by-pass the regular party organization and dictate the terms of a national election.
+ - My goal is for a cooperative world at peace, using its resources to build, not to destroy.
+ - I am acutely aware that you have not elected me as your President by your ballots, so I ask you to confirm me with your prayers.
+ - An American tragedy in which we all have played a part.
+ - Sit down before facts as a little child, be prepared to give up every preconceived notion – or you shall learn nothing.
+ - I recognize the need for technology that enriches life while preserving our natural environment. My goal is to stimulate productivity, but use technology to redeem, not to destroy our environment.
+ - There is no Soviet domination of Eastern Europe.
+ - There is no undertaking more challenging, no responsibility more awesome, than that of being a mother.
+ - An impeachable offense is whatever a majority of the House of Representatives considers it to be at a given moment in history.
+ - The Constitution is the bedrock of all our freedoms; guard and cherish it; keep honor and order in your own house; and the republic will endure.
+ - Mr. President, putting it bluntly, wouldn’t we just be continuing a bloodbath that already exists in Cambodia if we voted the 222 million in aid?
+ - I know I will go to hell, because I pardoned Richard Nixon.
+ - I believe in friendly compromise. I said over in the Senate hearings that truth is the glue that holds government together. Compromise is the oil that makes governments go.
+ - The length of one’s days matters less than the love of one’s family and friends.
+ - I don’t know what the future may hold for me-or for any of us. But I want you to know that I am a man who likes having critics who are not enemies.
+ - If Lincoln were alive today, he’d be turning over in his grave.
+ - The future of our nation depends on providing our children with a complete education that includes music.
+ - We are bound together by the most powerful of all ties, our fervent love for freedom and independence, which knows no homeland but the human heart.
+ - Theirs is an American tragedy in which we all have played a part. It could go on and on, or someone must write “The End” to it. I have concluded that only I can do that. And if I can, I must.
+ - Our Nation has a diverse and extremely rich cultural heritage. It is a source of pride and strength to millions of Americans who look to the arts for inspiration, communication and the opportunity for creative self-expression.
+ - I know I am getting better at golf because I am hitting fewer spectators.
+ - The harder you work, the luckier you are, and I worked like hell.
+ - The power and diversity of the Armed Forces, active Guard and Reserve, the resolve of our fellow citizens, the flexibility in our command to navigate international waters that remain troubled are all essential to our security.
+ - I am a Ford, not a Lincoln. My addresses will never be as eloquent as Mr. Lincoln’s. But I will do my very best to equal his brevity and his plain speaking.
+ - We must introduce a new balance in the relationship between the individual and the government – a balance that favors greater individual freedom and self-reliance.
+ - One of the enduring truths of the nation’s capital is that bureaucrats survive.
+ - There is an old saying, The harder you try the luckier you get. I kind of like that definition of luck.
+ - Let us remember that our national unity is a most priceless asset.
+ - I would like to deny all allegations by Bob Hope that during my last game of golf, I hit an eagle, a birdie, an elk and a moose.
+ - I have always felt that the real purpose of government is to enhance the lives of people and that a leader can best do that by restraining government in most cases instead of enlarging it at every opportunity.
+ - I love sports. Whenever I can, I always watch the Detroit Tigers on the radio.
+ - My fellow Americans, our long national nightmare is over. Our Constitution works; our great Republic is a government of laws and not of men. Here the people rule. But there is a higher Power, by whatever name we honor Him, who ordains not only righteousness but love, not only justice but mercy.
+ - I do believe, with all my heart and mind and spirit, that I, not as President but as a humble servant of God, will receive justice without mercy if I fail to show mercy.
+ - I watch a lot of baseball on the radio.
+ - I was dumbfounded by the stupidity of the Watergate break-in.
+ - We have come tardily to the tremendous task of cleaning up our environment. We should have moved with similar zeal at least a decade ago. But no purpose is served by post-mortems. With visionary zeal but the greatest realism, we must now address ourselves to the vast problems that confront us.
+ - This is an hour of history that troubles our minds and hurts our hearts.
+ - I believe that truth is the glue that holds government together, not only our government, but civilization itself.
+ - Real assistance is to help people to help themselves. We can’t do everything for everybody, but there is room for all who try to make it.
+ - Obviously, it’s a great privilege and pleasure to be here at the Yale Law School Sesquicentennial Convocation. And I defy anyone to say that and chew gum at the same time.
+ - Let us put an end to self-inflicted wounds. Let us remember that our national unity is a most priceless asset. Let us deny our adversaries the satisfaction of using Vietnam to pit Americans against Americans.
+ - History and experience tell us that moral progress comes not in comfortable and complacent times, but out of trial and confusion.
+ - Frankly, I’ve never felt voting to be all that essential to the process.
+ - The pat on the back, the arm around the shoulder, the praise for what was done right and the sympathetic nod for what wasn’t are as much a part of golf as life itself.
+ - America needed recovery, not revenge. The hate had to be drained and the healing begun.
+ - Ronald Regan doesn’t dye his hair – he’s just prematurely orange.
+ - A coalition of groups is waging a massive propaganda campaign against the president of the United States. an all-out attack. Their aim is total victory for themselves and total defeat for him.
+ - A great nation cannot abandon its responsibilities. Responsibilities abandoned today return as more acute crises tomorrow.
+ - I cannot imagine any other country in the world where the opposition would seek, and the chief executive would allow, the dissemination of his most private and personal conversations with his staff, which, to be honest, do not exactly confer sainthood on anyone concerned.
+ - When a man is asked to make a speech, the first thing he has to decide is what to say.
+ - I remain convinced that pardoning Nixon was the right thing to do.
+ - The old question still remains: Can a free people restrain crime without sacrificing fundamental liberties and a heritage of compassion?
+ - All of us who served in one war or another know very well that all wars are the glory and the agony of the young.
+ - I think that sports, particularly football, gave me an opportunity to be out front, to be a leader, which helped me later on, when I got into politics.
+ - I had pro offers from the Detroit Lions and Green Bay Packers, who were pretty hard up for linemen in those days. If I had gone into professional football the name Jerry Ford might have been a household word today.
+ - Even though this is late in an election year, there is no way we can go forward except together and no way anybody can win except by serving the people’s urgent needs. We cannot stand still or slip backwards. We must go forward now together.
+ - I strongly support the feeding of children.
+ - We must proceed with our own energy development. Exploitation of domestic petroleum and natural gas potentialities, along with nuclear, solar, geothermal, and non-fossil fuels is vital. We will never again permit any foreign nation to have Uncle Sam over a barrel of oil.
+ - It’s the quality of the ordinary, the straight, the square, that accounts for the great stability and success of our nation. It’s a quality to be proud of. But it’s a quality that many people seem to have neglected.
+ - It is good to be back in the Peoples House. But this cannot be a real homecoming. Under the Constitution, I now belong to the executive branch. The Supreme Court has even ruled that I am the executive branchhead, heart, and hand.
+ - In a democracy, the public has a right to know not only what the government decides, but why and by what process.
+ - To me, the Presidency and the Vice-Presidency were not prizes to be won, but a duty to be done.
+ - In all my public and private acts as your president, I expect to follow my instincts of openness and candor with full confidence that honesty is always the best policy in the end.
+ - It’s more like it is now than it ever has been.
+ - So much of what passes for public life consists of little more than candidates without ideas, hiring consultants without conviction, to stage campaigns without content. The result, increasingly, is elections without voters.
+ - I had a lot of experience with people smarter than I am.
+ - America’s leadership is essential. America’s resources are vast. America’s opportunities are unprecedented.
+ - In baseball when they say you’re out, you’re out. It’s the same way in politics.
+ - It’s discouraging how hard it is for a President to slice away large chunks of a $305 billion budget.
+ - I can assure you the National Federation is an organization of Republican women whose power, prestige, perception, and purpose will never be underestimated by anyone.
+ - I am determined to seek self-sufficiency in energy as an urgent national priority. My goal is to make America independent of foreign energy sources by 1985.
+ - All my children have spoken for themselves since they first learned to speak, and not always with my advance approval, and I expect that to continue in the future.
+ - As I rejected amnesty, so I reject revenge. I ask all Americans who ever asked for goodness and mercy in their lives, who ever sought forgiveness for their trespasses, to join in rehabilitating all the casualties of the tragic conflict of the past.
+ - I hope never to see the day that I cannot admit having made a mistake.
+ - Government exists to create and preserve conditions in which people can translate their ideas into practical reality. In the best of times, much is lost in translation. But we try.
+ - I am the first to admit that I am no great orator or no person that got where I have gotten by any William Jennings Bryan technique.
+ - I couldn’t wait to start the day.
+ - Richard Nixon was just offered $2 million by Schick to do a television commercial – for Gillette.
+ - The Communist leaders in Moscow, Peking and Hanoi must fully understand that the United States considers the freedom of South Viet Nam vital to our interests. And they must know that we are not bluffing in our determination to defend those interests.
+ - We came from many roots, and we have many branches.
+ - As a man of the Congress, let me reaffirm my conviction that the collective wisdom of our two great legislative bodies, while not infallible, will in the end serve the people faithfully and very, very well.
+ - My golf must be improving, I’m not hitting as many spectators.
+ - There are no adequate substitutes for father, mother, and children bound together in a loving commitment to nurture and protect. No government, no matter how well-intentioned, can take the place of the family in the scheme of things.
+ - For millions of men and women, the church has been the hospital for the soul, the school for the mind and the safe depository for moral ideas.
+ - I think they ought to be treated equally. Period.
+ - We have too long treated the natural world as an adversary rather than as a life-sustaining gift from the Almighty. If man has the genius to build, which he has, he must also have the ability and the responsibility to preserve.
+ - During the day on Monday, Washington time, the airport at Saigon came under persistent rocket as well as artillery fire and was effectively closed. The military situation in the area deteriorated rapidly. I therefore ordered the evacuation of all American personnel remaining in South Vietnam.
+ - It feels like getting a back massage from the Grim Reaper: one must get comfortable with the most horrifying things in the world.
+ - The Federal role in overcoming barriers to needed health care should emphasize health care financing programs-such as Medicare and Medicaid.
+ - The three-martini lunch is the epitome of American efficiency. Where else can you get an earful, a bellyful and a snootful at the same time?
+ - Today, America can regain the sense of pride that existed before Vietnam. These events, tragic as they are, portend neither the end of the world nor of America’s leadership in the world.
+ - If it is a clich? to say athletics build character as well as muscle, then I subscribe to the clich.
+ - If compassion and mercy are not compatible with politics then something is the matter with politics.
+ - Ronald Reagan was an excellent leader of our nation during challenging times at home and abroad.
+ - Compromise is the oil that makes governments go.
+ - As President, I am determined to offer leadership to overcome our current economic problems. My goal is for jobs for all who want to work and economic opportunity for all who want to achieve.
+ - Our great Republic is a government of laws and not of men. Here, the people rule.
+ - I had a life-long ambition to be a professional baseball player, but nobody would sign me.
+ - I just don’t think we should go hellfire damnation around the globe freeing people, unless it is directly related to our own national security.
+ - I would hope that understanding and reconciliation are not limited to the 19th hole alone.
+
+114 quotes

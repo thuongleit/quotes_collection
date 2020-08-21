@@ -1,0 +1,63 @@
+ - Comeback is a good word, man.
+ - I had a lot of anger inside me and that came out at times that were not particularly advantageous to me career-wise.
+ - Bounty hunters these days – because everything is so sophisticated with computers and surveillance, it doesn’t have to be a one-man-army-type guy who goes in and kicks a door down.
+ - Sometimes, when a man is alone, that’s all you got is your dog.
+ - I did think for many, many years that because of my ability I could beat the system. And I was wrong.
+ - Being out of work for 13 to 15 years is no walk in the park.
+ - I never knew my father, and I’d hate to repeat that kind of cycle with my own children, because I’d also want to be there for them no matter what.
+ - Women are much stronger than men. When a woman says enough is enough, which means enough is enough. Man will always lie at her feet in the hope of return. I was lying. And somehow happy.
+ - My dogs are more important than my family.
+ - It’s always been the case that you have the really rich, and the really poor. But hey, look, all the great empires have their periods where they rule the world, and then they crumble.
+ - I’m the worst surfer in California. My balance is off from boxing.
+ - Years ago I realized that maybe I made mistake, politically, when I turned a lot of that stuff down. I would go off to obscure places and make movies that six people went to see.
+ - I have so many boxing gloves around my house that I would get them confused with other gloves.
+ - I’ve been with a lot of women, but who’s counting? It’s nothing I’m proud of. It’s a physical need. Sometimes afterwards I just want to blow my brains out, it’s so meaningless.
+ - Hey, baby, nobody suffers like the poor.
+ - A lot of those who let you down are those who seemed the closest to you.
+ - All I am hoping for is to be able to work-I think my best work is still ahead of me-I think all that I have been through in the last several years have only made me a better, more interesting actor.
+ - I spent a lot of years trying to beat the system and, in the end, the system kicked my behind good.
+ - If you look closely at some scenes in Diner, my eyes look like Dracula’s.
+ - Some of your worst gangsters are guys who were very low-key.
+ - Actors should shut up about politics. They tend to be ill-informed finger-pointers who just cosy up to some flavour of-the-month liberal.
+ - People are always afraid of the truth.
+ - It’s the formulaic studio movies the make money, and when they do, the actors in them are automatically movie stars.
+ - I come from a violent background. So I became hard. I realised that I had made myself that way to deal with a feeling of abandonment and shame.
+ - Where I come from, being a hard man is being able to take a good beating and then get back up again and carry on fighting.
+ - I thought my talent would transcend my outspokenness. I was wrong.
+ - I spent so long studying really hard to become a fine actor, but threw it all away because I got the adulation and the fame so easily.
+ - I was very ashamed of seeing a therapist because I thought only crazy people went, and then, after about nine years, I asked him, ‘Well, was I really crazy?’ And he nodded and said, ‘You were but not any more.’
+ - Since I knew wrestling was all choreographed, I thought, Oh, they don’t get hurt at all. But I walked away with a renewed respect for the sport. Because I was very ignorant before – I knew nothing about it.
+ - I never look backwards. I have always been an athlete. I boxed before I acted.
+ - I had a bonding problem when I went off and boxed for five years. I was over in Europe and Asia fighting because I wanted to do something different; I was tired of acting. But the thing is, when I was done doing that, I couldn’t get a job.
+ - I trained like an animal, but the thing is focus and concentration. When the bell rings it’s like when the little red light goes on over the camera. And I can usually nail my lines on the first or second take because I’m right there.
+ - I don’t care what Tom Cruise says about therapy.
+ - Wrestling and boxing is like Ping-Pong and rugby. There’s no connection.
+ - I grew up in a gym in Miami, the one where Muhammad Ali trained. I had 142 amateur fights and lost three.
+ - I was very immature when I was young, and for me there was no balance. Everything was just all or nothing.
+ - In order to understand the stock market we have to realize that, like anything enormous and inert, it’s fundamentally stable, and, like anything emotion-driven, it’s volatile as hell. Got that? Me neither.
+ - It was either therapy or die.
+ - A lot of the stuff I am now seeing is edgy, raw kinda material.
+ - I still work out most days. When I do it, I go full blast five or six days a week, two to three hours a day. I enjoy it. It’s therapeutic for me.
+ - A couple of guys won Academy Awards for the things that I turned down. Today, after coming to terms with everything, after being in therapy for a long time-there are areas where I will compromise.
+ - I probably did a dozen plays, like Off-Off-Broadway stuff.
+ - People ask me about that all the time. They say, “Did you ever think of directing?” And I say, “It’s completely out of the question.”
+ - I think the first year and a half that I was in New York I was having trouble just living somewhere. Back in them days the city was a lot different than it is now.
+ - I behaved worse than anybody for 15 years, and you have to pay the price for that. I used to blame other people, then therapy made me realise I had to change.
+ - All that prosthetic makeup drains you. By the time it’s lunch, you’re done.
+ - In boxing, you don’t know what’s going to happen. In wrestling, it’s already prearranged.
+ - I had some things I had to fix. It took me 14 years to do it. But it was never really fun back in the day to work with directors who were a lot older and were like authoritarian and talking to you like that.
+ - I don’t mind getting punched in the nose by a guy standing in front of me. It’s getting stabbed in the back that I can’t handle.
+ - A reputation is really hard to live down.
+ - Hollywood’s famous for putting you in a box.
+ - I started to shortcircuit because I had high aspirations for the film. I never told anybody that.
+ - I had gotten injured during the boxing, and I was supposed to take several months off because I’d had a couple of concussions, and so I sort of just left the boxing and got into the acting by accident.
+ - Evan Rachel Wood is the best actress I’ve ever worked with, hands down.
+ - I wanted to change my name to Romeo Florentino. Romeo Florentino – that’s a good fighter’s name.
+ - Usually if you read a screenplay, no matter who’s writing it, the bad guy is always written as a one-dimensional bad guy.
+ - I always knew I’d accomplish something very special – like robbing a bank perhaps.
+ - Wrestlers are all pretty busted-up by the ends of their careers.
+ - Acting was never my first choice as a profession, but I came to terms with it when I decided I better buckle down and be the best I can be at it.
+ - Boxers are very isolated – or isolated within their own camps.
+ - I have a really good relationship with a lot of designers. I like Gaultier, Billionaire and Cavalli.
+
+61 quotes

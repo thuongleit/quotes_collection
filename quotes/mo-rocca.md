@@ -1,0 +1,35 @@
+ - I have a Keurig coffee maker, which is really kind of a luxury. It was given to me by an ex. I realized when I’m feeling sentimental, I’ll gently, tenderly press the button. Then when I remember he dumped me, I punch it.
+ - I love the excess of Christmas. The shopping season that begins in September, the bad pop star recordings of Christmas carols, the decorations that don’t know when to come down.
+ - Think of all that hard work our founding fathers put in – the revolutionizing, the three-fifths compromising, having to write the entire Constitution with a quill – and yet they neglected to include the right to vote.
+ - Hypocrisy is great fodder for comedy.
+ - One Christmas my father kept our tree up till March. He hated to see it go. I loved that.
+ - Wheel of Fortune was an important SAT prep for me.
+ - If I had a time machine I would go back 30 years and show up at my grandmother’s apartment before the gargantuan meals she would serve and I would help her.
+ - I love Christmas. Frosty the Snowman, peace on Earth and mangers, Salvation Army bell ringers and reindeer, the movie ‘Meet Me in St. Louis,’ office parties and cookies.
+ - I don’t think everyone should vote. If you have to be dragged into the polls, carried into the polls and smelling salts have to be used, you probably shouldn’t be voting. However, we shouldn’t be putting up barriers to voting that target certain groups.
+ - Christmas is a stocking stuffed with sugary goodness.
+ - I mean, you’re gonna be left behind if you don’t appreciate the genius that is Meredith Vieira.
+ - I’d rather call myself a mischief-maker, an imp, rather than a satirist. Satirist sounds so self important. Plus no one is calling himself an imp right now. It makes me feel special.
+ - I wish I had played team sports. I think every kid should. Teamwork builds character – teaches people about leadership and cooperation.
+ - I was way too hyperactive to study for long. I would freak out, then crash, then be too tired to read or write. I really should have had less sugar.
+ - Did I end up finding a little blue pill to cure America’s electoral dysfunction? Unfortunately, it’s not that simple.
+ - I’m always working on a few different stories at once, so there’s always some really big coffee table book I’m carrying around.
+ - I have a dream, and a plan, to combine the commercial possibilities of Valentine’s Day with the substance and meaning of black history month. I call it: Blackentine’s Day.
+ - When it comes to war, we focus more on the mainstream coverage of the event, rather than the event itself. People dying is never funny. Protest puppets are always funny.
+ - The most important thing is to write material that YOU think is funny. If you don’t think it’s funny, but you’re convinced that other people will think it is, well they won’t.
+ - While some of my closest friends were jocks, it seemed that they spoke a different language with each other. Joining in their conversation was fraught with risk.
+ - Digital television, satellite radio, videogames, iPods – so much media. Do books even matter anymore?
+ - Yes, I still love ‘South Park,’ but I also love morning TV now.
+ - I’m in fact a hair under six feet, but I’m very svelte. People would never see me if I turned sideways.
+ - Homemade sweaters are always itchy.
+ - Generally I get up at around 7. But oftentimes, I’ll be lolling in bed a little bit earlier – sometimes as early as 5:45 – filing in my mind all the things I have to get done. Which is, of course, totally unproductive.
+ - If there’s one thing that everyone can agree on, it’s that, right or wrong, they hate the press.
+ - I was not a jock in high school. I know, you’re shocked.
+ - Look, not embracing the ‘Today’ show is soooo yesterday.
+ - I know a lot about a few things – mostly useless things.
+ - It’s interesting, because I tend to trust a man with big ears.
+ - Politicians who wear little tennis socks with the balls at the back should not be taken seriously.
+ - I still don’t know how to cook and that’s just unacceptable.
+ - It’s much easier to make jokes about sensitive issues if there is some dissent, some conflict.
+
+33 quotes

@@ -1,0 +1,33 @@
+ - I like to imagine that the world is one big machine. You know, machines never have any extra parts. They have the exact number and type of parts they need. So I figure if the entire world is a big machine, I have to be here for some reason. And that means you have to be here for some reason, too.
+ - I address you all tonight for who you truly are: wizards, mermaids, travelers, adventurers, and magicians. You are the true dreamers.
+ - I think when I’m drawing, I’m seeing what’s happening on the page almost as if it were unfolding like a movie in my head.
+ - Ben wished the world was organized by the Dewey decimal system. That way you’d be able to find whatever you were looking for.
+ - Maybe we are all cabinets of wonders.
+ - If you’ve ever wondered where your dreams come from when you go to sleep at night, just look around. This is where they are made.
+ - Like a mermaid rising from an ocean of paper, the girl emerged across the room.
+ - I can draw pencil lines to show something is moving, but if I’m writing, I struggle with how to write it. The boy ran down the hallway? The boy ran quickly down the hallway? The boy ran down the marble hallway? I agonize over the words. So my editor works very hard. I’m lucky to have her.
+ - Time can play all sorts of tricks on you. In the blink of an eye, babies appear in carriages, coffins disappear into the ground, wars are won and lost, and children transform, like butterflies, into adults.
+ - Even if all the clocks in the station break down, thought Hugo, time won’t stop. Not even if you really want it to. Like now.
+ - I love being an illustrator because I get to read really great stories, work with amazing people, travel and see places I never would’ve seen. And I get to draw all the time.
+ - I hope the snow covers everything so all the footsteps are silenced, and the whole city can be at peace.
+ - You can make up your own story when you look at a photo.
+ - She walked to the rear door and took out a bobby pin from her pocket. Hugo watched as she fiddled with the pin inside the lock until it clicked and the door opened. “How did you learn to do that?” asked Hugo. “Books,” answered Isabelle.
+ - I think the most important thing you can do is to keep drawing no matter what. And to not be afraid of drawing whatever interests you. If there is something that you want to draw, to make, then I think you should pursue it and not let anybody tell you that you cant do it.
+ - He wished he was with his mom in her library, where everything was safe and numbered and organized by the Dewey decimal system. Ben wished the world was organized by the Dewey decimal system. That way you’d be able to find whatever you were looking for, like the meaning of your dream, or your dad.
+ - In that moment, the machinery of the world lined up. Somewhere a clock struck midnight, and Hugo’s future seemed to fall perfectly into place.
+ - I majored in illustration at the Rhode Island School of Design, although I never had any intention of being an illustrator and didn’t take any classes in illustration there. It was just that the illustration degree had no requirements.
+ - I guess I see a part of myself in everyone I write about. I tend to write about kids who are obsessed with something, and even though I have never been good with machines the way Hugo is, I did love miniature things when I was a kid.
+ - I think from an early age I was aware of how a camera can tell a story, how a movie camera can affect how the narrative is told.
+ - Since I spend such a long time making each book, I only choose books that I’m really interested in and that I really love.
+ - Having an eye patch actually makes it easier to look through a camera – I don’t have to close one eye like everyone else.
+ - It’s fun to see how other artists adapt my work.
+ - I’ve always loved children’s books – it’s not that I didn’t like them, I just didn’t think I wanted to do that. But then I suddenly realized I did...
+ - Well, everything surprises me about the writing process because illustrating comes much more naturally to me than writing does.
+ - But I’m a fairly mechanical worker – I tend not to think about themes so much as plot. I want to get the feeling right. If it’s moving through tunnels, I ask myself, what is it like to move through tunnels?
+ - Once I’m given an idea for a story I have a million ideas on how it should be illustrated, but I don’t have a big shoebox full of unfinished ideas.
+ - My house had suddenly turned into a hospital ward.
+ - I think I always knew that I would do something with art because it was the one thing that I knew I was really good at.
+ - A friend suggested that I get a job at a children’s book store so I could meet kids and read books, and that turned out to be the single best bit of advice I’ve ever gotten.
+ - I love illustrating for other writers because I am given stories I never would have thought of, and my work as an illustrator is always in support of the story.
+
+31 quotes

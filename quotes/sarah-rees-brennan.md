@@ -1,0 +1,56 @@
+ - Listen to me. I don’t know what’s going on. I don’t know what any of this means. But I know this much. It doesn’t matter. You’re not one of them. You never were. You’re not theirs. You’re mine.
+ - Fear’s useless. Either something bad happens or it doesn’t: If it doesn’t, you’ve wasted time being afraid, and if it does, you’ve wasted time that you could have spent sharpening your weapons.
+ - I don’t mean to cast a dark shadow on all your hopes and dreams, except of course I do, because that is who I am. I’m a dream ruiner.
+ - I am in full possession of the amazing power of being sarcastic.
+ - Real life is sometimes boring, rarely conclusive and boy, does the dialogue need work.
+ - She had worried that she would break if her heart broke, but she wasn’t broken. she had lost everything, but she was not lost. It seemed a worthwhile thing to know.
+ - Forest deep, silent bells There’s a secret no one tells Valley quiet, water still Lynburns watching on the hill Apples red, corn gold Almost everyone grows old.
+ - I don’t trust men everybody likes. Being nice isn’t the same as being good.
+ - Being able to depend on someone doesn’t mean you’re dependent on them.
+ - Your soul is like the souls of a thousand monkeys on crack, all smushed together.
+ - You want useless, you have come to the right guy. I can be useless for hours at a time. Weeks even. I’m currently closing in on a month of being totally useless, which is by way of being a personal best.
+ - Once you start thinking about the lies people tell when they don’t know they’re telling them, the truths people reveal when they think they’re lying, then you can start to build a world.
+ - Romance is something people make fun of others for caring about, and yet it’s something that’s very natural to care about – it’s a loving connection between people, like family and friendships: it’s a significant emotional choice people make.
+ - I have changed my mind. You can help cook by standing in a corner and not touching anything. Do it carefully. -Nick to Jamie.
+ - Don’t waste time blaming yourself when you can spend time planning how to destroy our enemies.
+ - Put the jerk in the south wing, you won’t see him for weeks at a time. Or lock him in the attic. The law will not be on your side, but literary precedent will.
+ - Personally, I’d prefer a guy who wants to see my boobs.
+ - My life was going to flash before my eyes, but it decided to hide behind my eyes and quake with terror instead.
+ - If the truth didn’t help anyone, and love didn’t last, what was there left to struggle toward?
+ - Would it help if I stood around uselessly not knowing what to say?
+ - I’d rather live laughing for one year than live without laughing for one hundred.
+ - Lillian shut her eyes briefly, as if she hoped when she opened them she would behold a world in which people never said ridiculous things.
+ - Kami’d always retold her fairy tales to make the fair maidens braver and more self-sufficient, but she had never had any real objection to the handsome prince.
+ - Do you mean am I worried about people seeing me with my jeans off? Sure. Sometimes people are overcome. They fall down. They hit their heads. It’s worrying.
+ - Words felt so clumsy when she was talking about feelings and not facts.
+ - There are none so deaf as those listening to ‘All by Myself’ over and over and over again.
+ - It is always about you for me.
+ - She hesitated, then reached out to Jared in her mind, and uncertainty washed away in the wave of reassurance she got back.
+ - I realise people exist who don’t read. But it’s like I knew there were people who didn’t breathe or eat: I can’t imagine a life like that.
+ - Jared sidled up. He was not very good at sidling; he was more of a loomer.
+ - Nick spoke for the first time. “Can I go to the nurse’s office too?” Ms. Popplewell looked at him It obviously took her only one look to decide. “No.” “I’m traumatized too,” Nick claimed, his voice completely flat. “He’s a delicate flower,” Alan said under his breath.
+ - Angela spared a glare for Kami, and then resumed her marathon glaring session at Jared. ‘It’s too weird. I’m going to call you Carl.’ Jared scowled. ‘I don’t want you to call me Carl.’ ‘That’s interesting, Carl,’ said Angela, cheering up.
+ - Technically speaking, you drive like a rabid chicken who has hijacked a tractor.
+ - Also, vampires don’t eat food. You never get to eat chocolate again. Ever. I’d rather die.
+ - Sometimes I want to be human for you.
+ - If I wasn’t going to be a world-famous journalist and if I didn’t have such respect for truth and justice, I could be an amazing master criminal.
+ - Want me to flex my magic for you, baby?
+ - I hate this, I want this to stop, how are we supposed to live with this, and how am I supposed to walk away? You’re real and I hate you for it.
+ - Sin met Mae and Alan coming into the flat. Mae frowned. “Is it no-shirts festival day?” “Every day with Nick is no-shirts festival day,” Alan said absently, but he was frowning too.
+ - Jared glared. Some people, Kami knew, had bedroom eyes. She was saddened to have to admit that Jared had filthy alleyway eyes.
+ - You’re barely even wearing a shirt! What are you going to do if a mugger jumps out at you, flash them?
+ - Wearing that? Wouldn’t you fancy a shapeless cardigan instead? You rock a shapeless cardigan, honey.
+ - She walked beside Jared, four inches of rain-dashed darkness between her hanging wrist and his.
+ - Not doing things you can do is the whole point of laziness. Not doing something you can’t do is just sensible.
+ - I read books, but I do it because I want to – because it’s like an escape in my head, like being with you.
+ - They should’ve built a city on rock and roll.
+ - Friends don’t menace friends with giant terrifying swords, okay?
+ - You know my beautiful speech has made you see me in a whole new and even more attractive light. You totally think I’m secretly deep now. And you are right. It is true. I have deeps.
+ - She was kind of in love with him.
+ - Nick looked vaguely homicidal, but that was sort of his default expression.
+ - You’re dying every minute, but you won’t die yet.
+ - Nothing else ever mattered to me, and you weren’t even real. All I ever wanted was you.
+ - It’s bits of dead cow; don’t ask it to perform miracles.
+ - Not really a party until someone brings the surprise zombies.
+
+54 quotes

@@ -1,0 +1,31 @@
+ - A positive attitude is something everyone can work on, and everyone can learn how to employ it.
+ - Holding on to anger, resentment and hurt only gives you tense muscles, a headache and a sore jaw from clenching your teeth. Forgiveness gives you back the laughter and the lightness in your life.
+ - A heart filled with anger has no room for love.
+ - Anger is a thief who steals away the nice moments.
+ - We can all learn to live jubilantly. We can all learn to alter our attitudes so that we can better realize our dreams.
+ - Our life is all about the choices we make, and when I was looking for a mate for life, I really was looking for someone who was a family man, somebody who would embrace my girls as much as they were going to embrace me. I guess I just wasn’t finished having children yet.
+ - We need to reform our school lunch programs. We need to get healthy items into the vending machines.
+ - Show me a person who doesn’t like french fries and we’ll swap lies.
+ - Remove failure as an option.
+ - Remove failure as an option and your chances for success become infinitely better.
+ - To know that children are suffering and going without food is intolerable in a society such as ours. I hope that all our leaders, in both the public and private sectors, will work tirelessly to eradicate hunger. We all have a responsibility to bring back life to our most precious natural resource.
+ - Surrogacy used to be difficult, because the woman that was carrying the child was biologically related to the child. And sometimes you can still do it that way, but you do not have to do it that way anymore.
+ - Exude happiness and you will feel it back a thousand times.
+ - So many women waited until later to get married and then even later after they got married to have children. And then they have problems, and it takes them five, six, seven years to have children.
+ - Holding on to anger only gives you tense muscles.
+ - A fulfilling life is different to each person. You have to acknowledge your dreams, and not just wait for life to happen, and opportunities to come knocking at your door.
+ - It’s not always as comfortable blazing the trail as it is walking on it.
+ - It is reassuring to know that I can control how I feel and what I do on any given day. The eay I choose to see the world creates the world I see.
+ - I had three children while doing a show, as demanding as ‘Good Morning America,’ so this is – you know, it’s almost like I’m less daunted about motherhood, and parenting at this point in time. And I think I’m just much more fit and healthy than I was 20-years-ago.
+ - Usually people have gone through years of in vitro, just trying. The dilemma that faces infertile couples right now in America, there’s so many of them. That’s why – you know that’s why I started talking about it, so that they didn’t hear just the terrible stories.
+ - I’m still a news junkie. I mean, I always was, I am now.
+ - I think that in our society we should do everything to encourage child-bearing and family-making. And I think that if insurance will cover Viagra for men, it should also be covering these kinds of methods to try to build families.
+ - I’m almost reluctant to say it because it sounds superficial, but when you lose your hair, it just affects the way that you look at yourself in the mirror. You feel less feminine, pretty or desirable, and it’s not an easy thing to go through.
+ - I’ve always looked at friends as the family we choose.
+ - To be able to look at change as an opportunity to grow – that is the secret to being happy.
+ - Often, we don’t recognize real moments of happiness in our lives because we’ve been expecting something different- something bigger or perhaps more dramatic.
+ - I feel fortunate I have this amazing relationship with so many people in America, because I was in their homes at a very private time of day. They probably might have still had their robe on and their slippers and haven’t made the beds.
+ - Anything you think you “must have” usually comes to own you.
+ - Forgiveness gives you back the laughter and the lightness in your life.
+
+29 quotes

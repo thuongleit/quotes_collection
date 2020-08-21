@@ -1,0 +1,28 @@
+ - But I figure you’re never too old to learn. That’s when you become old, when you stop being fascinated by things, when you stop wanting to learn and explore...
+ - You can’t make yourself fall in love, just as you can’t choose who you fall in love with.
+ - We are the sum total of our memories. Memories are the most precious things we have. Good or bad. That’s what make us who we are. What would we be without them?
+ - Life isn’t complicated. It’s very simple, really. It’s us who make it complicated.
+ - Forget men, I want to marry my MacBook. It’s dependable, reliable and you can even go shopping with it.
+ - Why is it that when you discover you can’t have something, you want it even more?
+ - Life can change in the blink of an eye. All you have is right now. So don’t ever put off telling someone how you feel about them, don’t assume that they know, because they might not and it might be too late.
+ - I am a hopeless romantic. A silly, ridiculous, foolish romantic. I live in a fantasy land. I need to get real. And now, for the first time, I want to get real. I want a real relationship with a real man in the real world–-with all the real problems, faults, and whatever comes with it.
+ - Because you will meet somebody more exceptional than anyone you have ever know. Who will love you warmly as possible. And who will so completely attract you that you will feel you never really loved before.
+ - Too many people miss out on real love because they’re too busy waiting for the ONE to show up.
+ - Life doesn’t hang around, it keeps moving and if you don’t keep up you can lose things.
+ - Their eyes met. It had begun. They had begun.
+ - And like a soprano shattering glass, Juliet heard something snap deep inside. It was the sound of her heart breaking.
+ - I don’t understand it myself, really. It’s like the idea of him is better than the him of him.
+ - For a split second they stared at each other. A fleeting, lasting moment. One person noticing another person out of a whole crowd of strangers.
+ - If the worst is going to happen, it’ll happen. Worrying can’t protect you from that. And if it doesn’t happen then you’ve missed out on all the time that when you could have been having fun.
+ - He hadn’t lost Grace. Because she’d never been his to lose in the first place.
+ - It is always the silly things that remind me.
+ - I never stopped joking around long enough to realize you weren’t laughing anymore.
+ - Time has a funny way of airbrushing relationships, removing all the things that were wrong so when you look back it looks much better than it really was.
+ - If you want a man who’s commited, go look in a mental hospital.
+ - If only men were like New York taxi-cabs and had a light that they can switch on when they’re interested and off when they’re not available. Then you’d know exactly where you were and you wouldn’t have to worry about getting it wrong and being horribly embarrassed. – Lucy.
+ - Not doing anything can be worse than doing the wrong thing.
+ - It’s not getting what you want that’s the hard part, it’s deciding what you want.
+ - I was in love with the idea of him. An ideal of him. Of who I thought he was. Of who he used to be.
+ - Men, Grace learned, seemed to think women were all frustrated nurses.
+
+26 quotes

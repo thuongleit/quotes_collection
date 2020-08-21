@@ -1,0 +1,49 @@
+ - It’s all about portion control. Grilled fish, a small amount of wild rice and vegetables is a good meal.
+ - I love moving. I love new houses. I’m always looking for somewhere else.
+ - I like people to match my energy.
+ - Spending time outdoors makes you feel great.
+ - I’ve always been obsessed by beef jerky.
+ - The whole thing with modeling with Estee Lauder – no one could have a better, nicer modeling job.
+ - Getting as much sleep as possible and following a healthy diet will stop you from feeling run-down if, like me, you’re super-stressed.
+ - I didn’t have a cup of coffee until I was 27.
+ - It’s appalling that there should be hunger anywhere, but particularly in a country like America, where there is also such great wealth.
+ - In America uniformed cops eat in coffee shops, diners and restaurants and I always feel safer having them around.
+ - You can’t force someone to learn. You present these beautiful lines that have so much to do with the world today and let them fall where they will.
+ - I’d kill myself if I was as fat as Marilyn Monroe.
+ - A bit of lusting after someone does wonders for the skin.
+ - I’m not in my element standing around in a bikini in front of strangers. I never stand up in a bikini, even at the swimming pool. I feel like a normal person when it comes to things like that. I’m like any other girl who doesn’t want to show her bottom.
+ - Divorce is, of course, difficult for a child. I didn’t go through it as my parents stayed together, but I have a lot of friends who did.
+ - Hugh Grant is fantastic in bed. He always has been.
+ - I would seriously question whether anybody is really foolish enough to really say what they mean. Sometimes I think that civilization as we know it would kind of break down if we all were completely honest.
+ - I’ve always wanted to be a spy, and frankly I’m a little surprised that British intelligence has never approached me.
+ - I love to see other women in pink. It’s good for every shade of skin and hair.
+ - I don’t know much about only children. I was the middle one of three, and if ever I was alone with mum and dad, it was a rare moment.
+ - I love pilates and yoga but don’t do them regularly.
+ - Nothing irritates me more than chronic laziness in others. Mind you, it’s only mental sloth I object to. Physical sloth can be heavenly.
+ - Breast cancer is being detected at an earlier, more treatable stage these days, largely because women are taking more preventive measures, like self-exams and regular mammograms. And treatment is getting better too.
+ - Why look worse when you can look better?
+ - Hugh Grant and I both laugh and cringe at the same things, worship the same books, eat the same food, hate central heating and sleep with the window open. I thought these things were vital, but being two peas in a pod ended up not being enough.
+ - I am passionate about talking to women about their breast health.
+ - I am a terrible mixture of being organized, controlling, but chaotic. My desk is monstrous.
+ - It’s definitely part of my job description not to be too fat.
+ - I was completely loyal and faithful to Stephen throughout this time as, indeed, he assured me he was to me.
+ - When bad things happen, it’s the time when you get to work in the garden and sort out the pots from the weeds.
+ - I know so many people who have battled breast cancer and they didn’t all make it.
+ - I do like my life very much, yes.
+ - I don’t want someone to watch sports in bed. That drives me nuts.
+ - It took me six years to be comfortable modeling a swimsuit.
+ - I keep getting these extraordinary letteres, really weird ones from American sports stars – I’ve always thought you were one pretty lady and now that you’re single I want to meet you for a drink.
+ - You know, I’ve virtually never been chatted up in my life, it’s true.
+ - I’m very attracted to Indians.
+ - During production, I didn’t ever have one minute off to go file my nails, or do anything which girls quite like to do some of the time. I couldn’t do anything. I turned into a zombie.
+ - I have always been attracted to Australians and Australia.
+ - I love glamorous women. Hugh adores glamour, as well. Im completely behind women dressing up and looking as good as they can.
+ - I feel like a semi-single mum.
+ - It’s very hard to get the dynamics where two people can stimulate each other and be happy.
+ - I have three lives: actress, model, producer. Sometimes I’m aware that there’s a fourth life, which is somewhat neglected, which is living a bit.
+ - I always wear make-up as I’ve never seen the point of looking less than your best.
+ - I walk every day with my dogs and force myself to run a bit but I hate it.
+ - I think, if you were being cruel to animals, then the thought of eating them would be horrific.
+ - Being English, I always laugh at anything to do with the lavatory or bottoms.
+
+47 quotes

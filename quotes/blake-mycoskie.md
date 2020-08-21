@@ -1,0 +1,44 @@
+ - The most important step of all is the first step. Start something.
+ - If you organize your life around your passion, you can turn your passion into your story and then turn your story into something bigger – something that matters.
+ - I am a big believer in the value of traveling while you are young. The experiences you have in other countries can inspire greatness.
+ - Exercise your purchasing power as a consumer, volunteer and bring joy to those in need, and share your experiences, tell your stories, and inspire others along the way.
+ - TOMS didn’t have to focus on advertising, but on giving in a way that’s sustainable.
+ - What got us to where we are today is not going to get us to where we need to go tomorrow.
+ - Giving is what fuels us. Giving is our future.
+ - People always ask me, when I had the idea for TOMS, did it change my life? As romantic and noble as it is, no it did not change my life. But when I went to Argentina on that first shoe-drop, it did change my life.
+ - If you just go out and try to make money by starting a business, you’re going to come up with something that’s just like what everyone else has done. But if you look at the world and see opportunities that can be taken more seriously, then you come up with a great idea.
+ - The more you give, the more you live.
+ - The goal isn’t how much money you make, but how much you help people.
+ - If whatever you do helps just one person, you’ve done something wonderful.
+ - Keep it simple: own as little as you can get away with, schedule everything, keep a notebook, don’t let technology enslave you.
+ - When you incorporate giving into your business, you attract the most amazing partners.
+ - Make the most out of every single day you have on earth and be thankful for them.
+ - Allow your team to incorporate giving into their life through their job. Not only do employees stay around a lot longer, they do a lot more good.
+ - No matter how convenient it is for us to reach out to people remotely, sometimes the most important task is to show up in person.
+ - We believe Skype in the Classroom will be a milestone in inspiring the next generation of social entrepreneurs and we can’t wait to connect students with TOMS partners.
+ - I don’t get jet lagged that much. I’m so used to traveling and being in different places every day that I can sleep anywhere.
+ - I think once you start traveling, you don’t stop.
+ - Be tenacious. One thing that has allowed me to have some level of success is that I am fine with cold-calling people. It doesn’t scare me to call someone who has no idea who I am and say I’d love to take you to lunch.
+ - One day, when I own a house, I’ll keep a library full of books. Books are different from other possessions-they’re more like friends.
+ - When you don’t know the rules, you break them all. It’s hard to take big risks when you know the history of an industry and what has worked and what didn’t.
+ - Setbacks and fear are inevitable. The thing that distinguishes the ultimate successes from the ultimate failures is this: What do you do with them?
+ - A good story transcends boundaries, breaks barriers and opens doors.
+ - I don’t think college is for everyone. School is awesome, but for me, I was learning a lot more outside the classroom in the real world than I was in school.
+ - The most important things are actually the easiest to obtain: great friends, good food, and a decent bottle of wine.
+ - The greatest competitive advantage is to allow your employees to be part of something. Something bigger than what you’re doing.
+ - Vogue Magazine does something really interesting here: They make it look like I know exactly what I’m doing. Because Vogue made it look like I knew exactly what I’m doing, stores from all over started calling.
+ - My goal was to go back to Argentina, and give them all-all the shoes-away. Not just to give them away, but to place them on each child’s foot.
+ - Simplicity is simple. Perhaps this sounds redundant. But it’s true, and it’s important.
+ - When you’re buying a pair of TOMS, if you don’t feel like you’re part of a community, then I’ve failed.
+ - Giving does not just feel good, but it’s really, really good for business, and it’s good for your personal brand.
+ - When you have a memorable story about who you are and what your mission is, your success no longer depends on how experienced you are or how many degrees you have or who you know. A good story transcends boundaries, breaks barriers, and opens doors.
+ - Complicated lives and heaps of possessions don’t necessarily bring happiness; in fact, they can bring the opposite.
+ - I did what I think a lot of entrepreneurs do. I started putting up a lot of ads on Craigslist for interns.
+ - Stories are the most primitive and purest form of communication.
+ - Instead of squirreling away your earnings early in your career, spend on experiences that will enrich your life – like diving with great white sharks. It can expose you to influential people who could open doors for you.
+ - With technology today, companies are less in control of their brand.
+ - Who is Tom? There is no Tom. If we sell a pair of shoes today, we give away a pair of shoes tomorrow. Originally we thought of “Tomorrow’s Shoes,” but I could only fit “TOMS” on the label. I had no idea everybody would want to meet him. There is no Tom; it’s an idea for a better tomorrow.
+ - I surround myself with inspirational quotations.
+ - I surround myself with inspirational quotations. This easy-to-follow piece of advice has played a huge role in my being able to get past my own fears and insecurities throughout my entrepreneurial career.
+
+42 quotes

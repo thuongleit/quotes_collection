@@ -1,0 +1,61 @@
+ - God is a twelve year old boy with Asperger’s.
+ - Confidence is the key to virtually everything. It’s just deciding that you’re qualified because once you decide you’re qualified, everything else becomes very easy.
+ - Is the square root of hate the same thing as love times love?
+ - What I think you should do is imagine people in their underwear but then also imagine them crying, and that – that is truly relaxing.
+ - I think in Russia, there’s a lot of storytelling and anecdotes.
+ - Before going home with a guy, give him a blow job. Guys are always more relaxed after a blow job.
+ - Never give in to peer pressure, especially if the peer is not attractive.
+ - Marriage is when two people love each other so much that they promise that if they ever, ever stop they’ll fill out tons of paperwork.
+ - I don’t speak French, but I took it for five years growing up. So, if I were in a situation where I had to be, like, ‘Excuse me, pineapple dog house red, what time is it library?’ – no problem.
+ - If this is airing in the future and no one knows who Karl Rove is – he’s the reason you all live underground.
+ - People used to make fun of alternative comedy because sometimes it would be someone being funny, and sometimes it was a crazy man with a flute making no sense. And it’s very easy to be like, yeah, that’s not really comedy.
+ - I laugh at weird times – at good and bad things alike. I laugh simply when things are incongruous. It’s not necessarily a judgment – as it is noticing the oddity of something.
+ - If things are really overwhelming and you need to talk, you can give me a call at 347-273-2044.
+ - I like the idea of being sort of withdrawn and mysterious, and what can be more mysterious that someone wearing a trash bag, like a dark trash bag, with eye holes that say “nihilism?” You’d be curious. What’s underneath that? Is it perfect? Or is it broken?
+ - I forget, is freedom of speech when it’s legal to say what you want or is it when it has no consequences for some reason?
+ - Is it okay to go the roof of the tallest building in your town and jerk off into the street?
+ - What do you think you should do if you’re attacked by a bear? Play dead? No – that’s a lie promoted by the bears.
+ - On a scale of one to ten, how punk am I? Apple. I don’t use your scale.
+ - Oh, Hello. I’m Eugene Mirman, and I’m here to introduce my special. It’s called An Evening of Comedy in a Fake Underground Laboratory.
+ - If no one figures out you are pretending to be retarded, your life will be greeted with treasure.
+ - On a quick side note, I would argue that – much like Samuel L. Jackson – I am not arrogant at all; I’m just actually really, really great.
+ - Try not to wake up on fire.
+ - Everyone knows that Jews control the media and banks and stuff. But did you know that when you go to a carnival and you have to be a certain height to go on a ride, Jews control that height? It has nothing to do with safety. It’s just us flexing our Semitic muscles.
+ - I moved recently and I moved my cable and Internet and phone service which was all provided by Time Warner Cable. And you know, I made a plan with them where they’d come sometime between summer solstice and winter solstice and I would wait.
+ - A lot of people think that kids say the darnedest things. But so would you if you had no education. You’d just be like, I am bike cheese. Because you wouldn’t know what words were.
+ - Boys have penises and girls have vaginas. If they touch at the wrong time, you can make a baby or die.
+ - I don’t emphasize the whatevs. I say it as if it’s truly a toss-away word.
+ - You are an alchemist who can turn six beers into an awkward three week relationship.
+ - Like if you’re Jewish you have to wear a hat, but only in the middle of your head. But it all becomes clear the second that you realize that God is a 12-year-old boy with Asperger’s.
+ - It’s important to prepare audience for the worst in life. People come to forget their problems, and it’s my job, right before I leave, to go, “Don’t forget: You’re going through a divorce and there’s a recession.” It’s always good to end on a pensive note.
+ - I was in Vancouver, and I was in what I was told was the poorest neighborhood in North America – which I find very hard to believe because has anyone here ever been to Detroit?
+ - I don’t have a kid, but I think that I would be a good father, especially if my baby liked to go out drinking.
+ - Think of me as an impetuous Hegel, drunk with power, and also, regular drunk.
+ - In this time of recession, it is the time for invention. Did you know both the telephone and the automobile were invented during recessions? So was ‘talking dirty.’
+ - I went to high school in Lexington, Massachusetts, which in hindsight was very nice.
+ - Don’t throw a baby at anything – even a burglar.
+ - I believe in diversification of income, because you never know what will happen. I’m a slightly paranoid person who thinks things could be ruined at any time.
+ - Yes, I’m known as America’s most genuine comedian.
+ - I don’t know what it would be like to actually play guitar. I’ve toured with a lot of comedians and it’s never been like it is for a rock band.
+ - It’s weird – the cab driver is playing very loud dance music and yet it doesn’t really feel like a party.
+ - In America, Qualification is simply an attitude. I’ve adopted it. So, yes. I am qualified.
+ - I just loved comedy as a kid and I think at some point, it just occurred to me that you could try it, and I did.
+ - Comedy clubs were something that came to pass in the ’80s, but toward the end of that, in the early ’90s, people started doing comedy again in alternative spaces.
+ - Imagine the wars we would’ve avoided if prior generations had a website where they could debate tragedy and politics in terse sentences?
+ - I’m fascinated by the logic that leads to something.
+ - To create a comedy major, I ended up starting a comedy night in the basement of my dorm, and I promoted and produced my final project, which meant I faxed press releases from an old Apple IIC, or whatever it was, to newspapers, not knowing if that would work or if that’s how you do things.
+ - You can do anything you want, as long as it works.
+ - The truth is, for however much my stories come out of things that have happened to me, they’re not darkly or as deeply personal as someone like Marc Maron or a lot of comedians, but they are essentially my life and my interpretation of it.
+ - The only thing wrong with me was that I was a weirdo that hated school. I’m sure now there’d be a disorder for it, but I was just an oddball.
+ - The good thing about being stuck at the airport for an extra hour, is that it gives you a chance to give weary travelers surprise massages.
+ - I can kill a dog in six ways. Five of them are throwing missiles at it.
+ - Why is no one talking about all the potential savings from a complete economic collapse?
+ - A lot of the things I do are the sort of things I think are funny.
+ - When years from now people look back on today, they will think the same thing they already do but with more reasons for it.
+ - I don’t think you should invest in commodities. Eddie Murphy made it seem risky in Trading Places.
+ - One of the best things I found out about Detroit is that bears have started returning to the city. When bears are gentrifying your neighborhood and opening Thai restaurants, that’s a poor neighborhood.
+ - It’s easy to sit on a mountaintop and tell people what to do and how to be happy. I have chosen to do that. Not because it’s easy, but for a different reason, which I would reveal, if your mind was ready to handle it, which it isn’t, which is also very convenient for me.
+ - You wanna know what a gateway drug is? It opens a gate.
+ - There’s something therapeutic about connecting with an audience – when there’s something really sort of odd or silly that you think is funny, and conveying it to an audience.
+
+59 quotes

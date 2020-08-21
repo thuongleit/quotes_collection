@@ -1,0 +1,145 @@
+ - The truth can’t hurt you, it’s just like the dark. It scares you witless, but in time you see things clear and stark.
+ - I love you more than anything in this world. I don’t expect that will last.
+ - And I’m up while the dawn is breaking, even though my heart is aching. I should be drinking a toast to absent friends instead of these comedians.
+ - Good manners and bad breath will get you nowhere.
+ - I used to be disgusted; now I try to be amused.
+ - History repeats the old conceits, the glib replies, the same defeats.
+ - We’re all just animals. That’s all we are, and everything else is just an elaborate justification of our instincts. That’s where music comes from. And romantic poetry. And bad novels.
+ - It’s the stupid details that my heart is breaking for.
+ - I feel like a juggler running out of hands.
+ - I’m a man with a mission in two or three editions And I’m giving you a longing look Everyday, everyday, everyday I write the book.
+ - You’ll never be alone in the bone orchard.
+ - Was it a millionaire who said, “Imagine no possessions”?
+ - Your mind is made up but your mouth is undone.
+ - I’ve worked hard, every single day since I left school. I think I have a Protestant work ethic.
+ - Sometimes I write notes that I have difficulty singing.
+ - Don’t wear your heart on your sleeve when your remarks are off the cuff.
+ - Days of Dutch courage, just three French letters, and a German sense of humour.
+ - Theres so many fish in the sea That only rise up in the sweat and smoke like mercury.
+ - Morrissey writes wonderful song titles, but sadly he often forgets to write the song.
+ - I’m just the mere shadow of my former selfishness. I crave the silhouette of your kiss.
+ - She pulls the eyes out with a face like a magnet.
+ - There’s no money back guarantee on future happiness.
+ - You swore you wouldn’t shout. If it’s not your punch, then it’s your pout.
+ - I wish you luck with a capital F.
+ - You’re drinking vintage Elvis Presley wine.
+ - I’m not going to get too sentimental, like those other sticker valentines, ’cause I don’t know if you are loving some body. I only know it isn’t mine.
+ - I can’t say anymore than I love you. Anything else would be a waste of breath.
+ - If I am frightened then I can hide it If I am crying, I’ll call it laughter If I am haunted, I’ll call it my imaginary friend If I am bleeding I’ll call it wine But if you leave me then I am broken And if I’m broken then only death remains.
+ - I wanna bite the hand that feeds me. I wanna bite that hand so badly. I want to make them wish they’d never seen me.
+ - People tend to repeat the same quotes at me that I said when I was 23. And of course, you say things then, and sometimes they’re ill-advised.
+ - The Internet is overrated. It’s much smaller an innovation than people think it is. I don’t think it’s changed the way anybody makes music.
+ - Even in a perfect world, where everyone was equal I’d still own the film rights and be working on the sequal.
+ - The long arm of the law slides up the outskirts of town.
+ - The wages of sin are an expensive infection.
+ - Oh I used to be disgusted and now I try to be amused. But since their wings have got rusted, you know, the angels wanna wear my red shoes.
+ - Those days she was just a beautiful girl, now she’s framed and hung up.
+ - There was not a lot of rock n roll in the house. Our parents didnt think it was very groovy, and I tend to agree with them. If you grew up with Charlie Parker, Bill Haley wasnt very hip.
+ - Sometimes I almost feel just like a human being.
+ - It’s a petty thing, but I wouldn’t join the Scouts when I was a kid, ’cause you had to swear allegiance to the queen. I’m just not a royalist. I think it’s idiotic, a hereditary principle.
+ - There’s so many people to see. So many people to check up on and add to your collection.
+ - Happiness isn’t a fortune in a cookie. It’s deeper, wider, funnier, and more transporting than that.
+ - When they finally put you in the ground, I’ll stand on your grave and tramp the dirt down.
+ - She’s filing her nails while they are dragging the lake.
+ - Somebody should clip Sting around the head and tell him to stop using that ridiculous Jamaican accent.
+ - You can’t live in the past, and I don’t. I’m not nostalgic about my own work at all.
+ - Funny, now I can see, how looks can be deceiving.
+ - My ultimate vocation in life is to be an irritant, someone who disrupts the daily drag of life just enough to leave the victim thinking there’s maybe more to it all than the mere hum-drum quality of existence.
+ - They say you better listen to the voice of reason But they don’t give you any choice ’cause they think that it’s treason. So you had better do as you are told. You better listen to the radio.
+ - Music is more like water than a rhinoceros. It doesn’t charge madly down one path. It runs away in every direction.
+ - The battle with the bottle is nothing so novel.
+ - When in doubt, play track 4 – it is usually the one you want.
+ - It’s a dangerous game that comedy plays. Sometimes it tells you the truth; sometimes it delays it.
+ - I find it to be the ultimate backhanded compliment when you are compared against yourself.
+ - Songs are more powerful than books.
+ - I’m not even sure what I want, but that’s not the point – it’s that I want it now.
+ - My ultimate vocation in life is to be an irritant.
+ - Why can’t a man stand alone? Must he be burdened by all that he’s taught to consider his own? His skin and his station, his kin and his crown, his flag and his nation They just weigh him down.
+ - I really thought twice about the Rock and Roll Hall of Fame when that came in. I always was of a mind that it’s an inherently stupid idea to put something like that in a glass case.
+ - Smokey Robinson writes the heartfelt songs, whereas it was my job to write the songs about weakness and failure in love.
+ - I get very frustrated by this term ‘genre exercise.’ I mean, what exactly is that? Genre is not really relevant when you are writing a song; hopefully you are doing it to explore something, to create something, and I don’t agree that any of my albums are genre exercises.
+ - Don’t start me talking, I could talk all night. My mind goes sleepwalking while I’m putting the world right.
+ - There are a few things that I regret, but nothing that I need to forget.
+ - Life for me is about movement.
+ - My dad’s father was a White Star Line trumpet player in the ’20s. It shaped the way that I think about music. My grandfather was classically trained, military trained. He was an orphan who ended up in the Military School of Music in Kneller Hall.
+ - You can be addicted to misery the same way as you can be addicted to drugs.
+ - Sometimes I write notes that I have difficulty singing. And you start talking yourself out of the bold melody and start wanting to arrange it in another key or something. Maybe I just never learned my harmony part, because what everybody says sounds odd to them sounds perfectly natural to me.
+ - You must hold on to the sort of finger-painting aspect of music. That’s something I learned, particularly from listening to Neil Young. Tom Waits is another one, because Tom’s music is incredibly sophisticated and beautifully arranged, but he’s using a toolbox that’s unlike anybody else’s.
+ - Cause somewhere in the Quizling Clinic, there’s a shorthand typist taking seconds over minutes.
+ - The cost of living in sin would make a poor man out of Paul Getty.
+ - I woke up and one of us was crying.
+ - I don’t think I was ever particularly mean. I can certainly think of some idiotic exchanges I’ve had. I was accused of destroying pop music, like Wagner destroyed opera – a guy in Germany started ranting that at me.
+ - When you’re working with the same band you kind of know their style inside out, and even when you’ve been working for seven years with the same people, suddenly they’ll do something you didn’t even think they were capable of.
+ - Sleeping with forgiveness in your heart for me.
+ - Certain songs have been written years apart, but they have a natural continuity to my mind.
+ - And over the last ten years, after my work with the Brodsky Quartet, I had the opportunity to write arrangements for chamber group, chamber orchestra, jazz orchestra, symphony orchestra even.
+ - Anything that has to travel all the way down from your cerebellum to your fingertips, there’s a lot of things that can happen on the journey. Sometimes I’ll listen to records, my own stuff, and I think god, the original idea for this was so much better than the mutation that we arrived at.
+ - I’ve been lucky to listen to lots of different types of music.
+ - It’s not crazy to want to have certain songs be developed harmonically and still want to make noise with the guitar. And you can have both.
+ - Elvis Presley and Puccini shall return.
+ - Patsy Cline belongs shoulder-to-shoulder with Frank Sinatra and Ella Fitzgerald.
+ - Imagination is a powerful deceiver.
+ - Though the passion still flutters and flickers, it never got into our knickers.
+ - Clowntime is over Time to take cover While others just talk and talk Somebody’s watching where the others don’t walk.
+ - In the tiny torn up pieces of his mind he’s irresistible too.
+ - I could promise that I’ll always be true to you, but we may not live to be so old.
+ - There are some things you can’t cover up with lipstick and powder.
+ - It’s the damage that we do and never know. It’s the words that we don’t say that scare me so.
+ - What do we care, if the world is a joke? We’ll give it a big kiss, we’ll give it a poke. Death wears a big hat cause he’s a big bloke.
+ - I’ve never had any real concern about posterity. I hope some people will be sorry when I’m not here, but I’m not playing for that.
+ - It’s what’s on the record not what labels on it. You know, that’s like getting a box of cornflakes and eating the cardboard.
+ - There is something wrong with you if you don’t get angry about something.
+ - There are many critics who have an idealised version of where my strengths lie.
+ - These are the sort of things that push you on in music – the curiosity, a passion for new ideas.
+ - Obviously the people that I admired, like the Beatles, were really into rock’n’roll, but it was already a little past rock’n’roll when I started listening and making my own choices about music.
+ - When you work with new people, I think that it throws all of the matters into relief, because you have to explain yourself every time. It’s like crossing a new border. They want to see your documents.
+ - I’m a working travelling musician, but just on a bigger scale.
+ - If it wasn’t for some acci-accidents, then some would never learn.
+ - Maybe I just never learned my harmony part, because what everybody says sounds odd to them sounds perfectly natural to me.
+ - I can write orchestrations, but I can’t sight-read music and play at the same time. I don’t have enough facility.
+ - Now I just don’t know who to tell to go to hell Who put the old devil in the distorted angel?
+ - Women hear rhythm differently than men.
+ - But there are things in Il Sogno that the methods of The Delivery Man could never achieve.
+ - Then I became an altar boy because of the solemn face, but I got thrown out at fourteen for laughing, because the priest used to mumble everything except the church plate takings.
+ - Don’t try to touch my heart, it’s darker than you think. And don’t try to read my mind, because it’s full of disappearing ink.
+ - And I don’t feel any form of music is beyond me in the sense of that I don’t understand it or I don’t have some love for some part of it.
+ - People become so deeply attached to the sound of one period that they blow a fuse when you move on. I’ve heard people complain bitterly about recordings they haven’t even heard.
+ - I think when I was younger I was not very good at writing love songs that didn’t have a twist.
+ - I mistrust these people in music industry who can be everybody. This is where technology dictates to them. I mistrust that, that in somehow the chips capture the soul of a player, that’s patent nonsense.
+ - Writing about music is like dancing about architecture – it’s really a stupid thing to want to do.
+ - There are a lot of things that you can like at a distance without spending a huge amount of time pondering. It’s not so complicated.
+ - I’ve never felt British. I’m just not interested in national identity. I don’t know why.
+ - Well there’s a line that you must toe and it’ll soon be time to go but it’s darker than you know in those Complicated Shadows.
+ - The theme of exile is attractive to me, because it’s sort of like the family business. Not just music, but travel.
+ - I know that when I make a record like The Delivery Man as a contrast to even Il Sogno, this is going to reach a wider audience, because it communicates in that very direct way.
+ - It’s what I do. I don’t deserve any awards for this, it’s just music. It’s just writing songs. You sit down, you write a song, you record it. You tour and play the songs live, dress them up a bit differently, or dress them down.
+ - You need a platform upon which to release an orchestral record, otherwise it’s just going to be an obscurity.
+ - There are five things to write songs about: I’m leaving you. You’re leaving me. I want you. You don’t want me. I believe in something. Five subjects, and 12 notes. For all that, we musicians do pretty well.
+ - I’d been to Memphis before, but we stayed out of Memphis early on in the late 70s for obvious reasons. People were very sensitive about Elvis Presley, and my stage name obviously would be provocative to some people in that area at that time.
+ - The way you look I understand how you were not impressed, but I heard you let that little friend of mine take off your party dress.
+ - I find humming is very useful.
+ - Serious music usually doesn’t pay.
+ - Obviously I got known for some other songs early on, and some of those were rock’n’roll songs. Some of them were melodic pop songs. And I’ve done lots of different things, as you know, but every so often I get drawn back.
+ - I’ve had an unusual life. A life far removed from most people’s experience.
+ - Some people can’t physically hear things. A kid that listens to Metallica or something can’t hear that, because he’s filled himself up with this stuff, he physically can’t hear a banjo or a harp or something.
+ - You do have to be a bit careful with your voice. It is an instrument.
+ - I believe that music is connected by human passions and curiosities rather than by marketing strategies.
+ - Mention Hubert Sumlin, as well, because Hubert’s a great man, and again, you know, I don’t play the guitar very good, but when I’m playing this kind of music, I always have him in my mind. I wish I could play like Hubert.
+ - Well, T Bone’s had a remarkable career as a producer since the time that we first worked together. He was dividing his time between recording and producing when we first met, and touring. We toured together and we were great friends.
+ - For all the courage that we never had, I’m just about glad.
+ - My grandfather and my father disagreed about music, not least of all because my dad wanted to improvise. It wasn’t just that he wanted to play different music; it was just that he came off the dots.
+ - And obviously, when I started out, I had a little bit more curiosity than some, and went seeking out the original artists, or in some cases searching up country music.
+ - I’ve always felt writing a song was a bit like going on location. That’s true in an almost literal sense. Where you are seeps in somehow.
+ - I knew I was in trouble, but I thought I was in hell.
+ - I’m drawing from two generations back how to think about music, how to think about why you travel to make music, what the possible pitfalls of that are for the way your life is structured. The good and bad of all of it get into the mix of what’s created, what you’re creating.
+ - Living a very long time would be a very scary thing.
+ - Really the only thing holding a lot of records together is the personality of the singer, and the will to write all of these different things.
+ - People speak with enormous pomposity and arrogance about music.
+ - No use wishing now for any other sin.
+ - Turn up the TV. No one listening will suspect, even your mother won’t detect it, no your father won’t know. they think that I’ve got no respect but everything means less than zero.
+ - The people with the most resources are the federal government. If you can invade a country halfway across the world in a matter of days, you can surely come to the aid of your own citizens in a shorter order of time.
+ - My dad had a steady job with a really major dance band from ’54 till ’68, and then quit because he wanted to play different music. He wanted to sing about peace. He believed in these things.
+ - Don’t tell me you don’t know what love is When you’re old enough to know better.
+ - She said she was working for the ABC news, it was as much of the alphabet as she knew how to use.
+
+143 quotes

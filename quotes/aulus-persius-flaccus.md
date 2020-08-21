@@ -1,0 +1,26 @@
+ - He conquers who endures.
+ - Each man has his fancy.
+ - Oh, what a void there is in things.
+ - Our life is our own to-day, to-morrow you will be dust, a shade, and a tale that is told. Live mindful of death; the hour flies.
+ - Quantum est in rebus inane! How much folly there is in human affairs.
+ - Is any man free except the one who can pass his life as he pleases?
+ - Live according to your income.
+ - We consume our tomorrows fretting about our yesterdays.
+ - The stomach is the teacher of the arts and the dispenser of invention.
+ - Bad advice is often most fatal to the adviser.
+ - I know you even under the skin.
+ - Learn whom God has ordered you to be, and in what part of human affairs you have been placed.
+ - For Yesterday was once To-morrow.
+ - Your knowing a thing is nothing, unless another knows you know it.
+ - Things fit only to give weight to smoke.
+ - The belly is the giver of genius.
+ - Is then thy knowledge of no value, unless another know that thou possessest that knowledge?
+ - Each man has his own desires; all do not possess the same inclinations.
+ - Oh, the cares of men! how much emptiness there is in human concerns!
+ - The man who wishes to bend me with his tale of woe must shed true tears – not tears that have been got ready overnight.
+ - And don’t consult anyone’s opinions but your own.
+ - Check disease in its approach.
+ - But when to-morrow comes, yesterday’s morrow will have been already spent: and lo! a fresh morrow will be for ever making away with our years, each just beyond our grasp.
+ - Nothing can be born of nothing; nothing can be resolved into nothing.
+
+24 quotes

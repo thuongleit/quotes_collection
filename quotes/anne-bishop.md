@@ -1,0 +1,24 @@
+ - Everything has a price.
+ - Everything has a price. It’s just what your willing to pay for it.
+ - Words lie. Blood doesn’t.
+ - I can heal the scars on your body, but I can’t heal the scars of the soul. Not yours, not mine. You have to learn to live with them. You have to choose to live beyond them.
+ - Let your heart travel lightly. Because what you bring with you becomes part of the landscape.
+ - More than a shadow and less than a soul.
+ - Briarwood is the pretty poison. There is no cure for Briarwood.
+ - But wouldn’t it be lovely to watch two people fall in love?
+ - Stubborn, snarly male.
+ - A woman with an education may be able to spend more time sitting in a chair instead of lying on her back. A sound advantage, I should think.
+ - Mother Night and May The Darkness Be Merciful!
+ - We are what we are. Nothing more, nothing less. There is good and evil among every kind of people. It’s the evil among us who rule now.
+ - Opportunities and choices. When a person makes a heart wish, that wish resonates through the currents and things will happen to give the person an opportunity to make the wish come true. Like a hand offered and accepted.
+ - There are some questions that shouldn’t be asked until a person is mature enough to appreciate the answers.
+ - Not fault of teaching spider if little spider pay more attention to catching fly than doing lesson.
+ - Our recovery of hope – full colour, three-dimensional, hard working, clear thinking, wildly radical, living hope – is our key to liberation.
+ - We know how it ends practically before it starts. That’s why stories appeal to us. They give us the clarity and simplicity our real lives lack.
+ - When a man wears his pants that tight, they tend to pinch his balls, and that tends to pinch his temper.
+ - Perhaps not willingly, but pain can make a man do things he wouldn’t willingly do.
+ - Vlad hated doing the paperwork as much as he did when a human employee quit, which was why they’d both made a promise not to eat quitters just to avoid the paperwork. As Tess had pointed out, eating the staff was bad for marale and made it so much harder to find new employees.
+ - She was the most painful, most glorious dance of his life.
+ - Okay. I picked up a movie to watch tonight. You can watch it with me if you like. It’s a chick movie. Merri Lee said that means girls like it, not that there are small birds in it.
+
+22 quotes

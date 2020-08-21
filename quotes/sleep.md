@@ -1,0 +1,42 @@
+ - Study while others are sleeping; work while others are loafing; prepare while others are playing; and dream while others are wishing. ~~William Arthur Ward
+ - Dreams are not what you see in your sleep, dreams are things which do not let you sleep. ~~Cristiano Ronaldo
+ - If you don’t find a way to make money while you sleep, you will work until you die. ~~Warren Buffett
+ - It’s not about how much you sleep. It’s what you do while you’re awake. ~~Gary Vaynerchuk
+ - Success and rest don’t sleep together. ~~Og Mandino
+ - I have miles to go before I sleep... ~~Robert Frost
+ - It’s early in the morning and your competition is still sleeping. ~~Greg Plitt
+ - My specialty is sleeping and my hobby is also sleeping. ~~Jessica Jung
+ - Sleep is good, he said, And books are better. ~~George R.R. Martin
+ - You grow ravenous. You run fevers. You know exhilarations. You can’t sleep at night, because your beast-creature ideas want out and turn you in your bed. It is a grand way to live. ~~Ray Bradbury
+ - That most of you say you want to be successful, but you don’t want it bad. You just kinda want it. You don’t want it badder than you wanna party. You don’t want it as much as you want to be cool. Most of you don’t want success as much as you want to sleep! ~~Eric Thomas
+ - Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. ~~William Blake
+ - And where I excel is ridiculous, sickening, work ethic. You know, while the other guy’s sleeping? I’m working. ~~Will Smith
+ - You sleep on a win and you’ll wake up with a loss. ~~Conor McGregor
+ - Do your best at every job. Don’t sleep! Success generates more success so be hungry for it. Hire good people with a passion for excellence. ~~Steve Jobs
+ - You want to be a millionaire. But your values system says you believe in sleep more than grinding! ~~Eric Thomas
+ - I’ll sleep well tonight. ~~Henry Ford
+ - Even while the Earth sleeps we travel. ~~Khalil Gibran
+ - Do not sleep under a roof. Carry no money or food. Go alone to places frightening to the common brand of men. Become a criminal of purpose. Be put in jail, and extricate yourself by your own wisdom. ~~Miyamoto Musashi
+ - I would like to be the air that inhabits you for a moment only. I would like to be that unnoticed and that necessary. ~~Margaret Atwood
+ - The search for Nirvana, like the search for Utopia or the end of history or the classless society, is ultimately a futile and dangerous one. It involves, if it does not necessitate, the sleep of reason. There is no escape from anxiety and struggle. ~~Christopher Hitchens
+ - Make sure you never, never argue at night. You just lose a good night’s sleep, and you can’t settle anything until morning anyway. ~~Rose Kennedy
+ - I want to sleep for eternity with a broad smile on my face. I want those who remain behind to say this man has done his duty. ~~Nelson Mandela
+ - Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth. ~~Walt Whitman
+ - I keep having vivid dreams of success. Then it’s time to sleep. ~~Conor McGregor
+ - Try to imagine what it will be like to go to sleep and never wake up. Now try to imagine what it was like to wake up having never gone to sleep. ~~Alan Watts
+ - Because I cannot sleep I make music in the night. ~~Rumi
+ - Go to sleep in peace. God is awake. ~~Victor Hugo
+ - Sleep late, have fun, get wild, drink whisky and drive fast on empty streets with nothing in mind but falling in love and not getting arrested. ~~Hunter S. Thompson
+ - Sleep is like the unicorn – it is rumored to exist, but I doubt I will see any. ~~Dr. Seuss
+ - Well, the end of another busy day. I can’t wait till I get back to bed. If that don’t work I’ll try to sleep. ~~Mae West
+ - I’d sleep and forget it; I had my own life, my own sad and ragged life forever. ~~Jack Kerouac
+ - Home is watching the moon rise over the open, sleeping land and having someone you can call to the window, so you can look together. Home is where you dance with others, and dancing is life. ~~Stephen King
+ - It’s all God’s will: you can die in your sleep, and God can spare you in battle. ~~Leo Tolstoy
+ - Good night, belovedest. Your sleep will be sweet if there is any influences in the wishes of your own. ~~L.M. Montgomery
+ - A boy spends his time finding a girl to sleep with. A real man spends his time looking for the one worth waking up to. ~~John F. Kennedy
+ - I want to let her know though that all the nights sleeping beside her even the useless arguments were things ever splendid and the hard words I ever feared to say can now be said: I love you. ~~Charles Bukowski
+ - When I die, I want to die like my grandfather who died peacefully in his sleep. Not screaming like all the passengers in his car. ~~Will Rogers
+ - I look upon death to be as necessary to our constitution as sleep. We shall rise refreshed in the morning. ~~Benjamin Franklin
+ - The greatest achievement was at first and for a time a dream. The oak sleeps in the acorn, the bird waits in the egg, and in the highest vision of the soul a waking angel stirs. Dreams are the seedlings of realities. ~~James Allen
+
+40 quotes

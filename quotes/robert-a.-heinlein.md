@@ -1,0 +1,502 @@
+ - Love is that condition in which the happiness of another person is essential to your own.
+ - Never try to teach a pig to sing; it wastes your time and it annoys the pig.
+ - When one teaches, two learn.
+ - Women and cats will do as they please, and men and dogs should relax and get used to the idea.
+ - I am free because I know that I alone am morally responsible for everything I do. I am free, no matter what rules surround me. If I find them tolerable, I tolerate them; if I find them too obnoxious, I break them. I am free because I know that I alone am morally responsible for everything I do.
+ - There ain’t no such thing as a free lunch.
+ - In the absence of clearly-defined goals, we become strangely loyal to performing daily trivia until ultimately we become enslaved by it.
+ - Never attribute to malice that which can be adequately explained by stupidity. Never underestimate the power of human stupidity.
+ - Progress isn’t made by early risers. It’s made by lazy men trying to find easier ways to do something.
+ - Ignorance is curable, stupid is forever.
+ - The United States has become a place where entertainers and professional athletes are mistaken for people of importance.
+ - One man’s ‘magic’ is another man’s engineering. ‘Supernatural’ is a null word.
+ - Everything is theoretically impossible, until it is done.
+ - You can sway a thousand men by appealing to their prejudices quicker than you can convince one man by logic.
+ - Being right too soon is socially unacceptable.
+ - A dying culture invariably exhibits personal rudeness. Bad manners. Lack of consideration for others in minor matters. A loss of politeness, of gentle manners, is more significant than is a riot...
+ - I never learned from a man who agreed with me.
+ - Everything in excess! To enjoy the flavor of life, take big bites. Moderation is for monks.
+ - The human race divides politically into those who want people to be controlled and those who have no such desire.
+ - Being privileged to work hard for long hours at something you think is worth doing is the best kind of play.
+ - Love your country, but never trust its government.
+ - An armed society is a polite society. Manners are good when one may have to back up his acts with his life.
+ - Duty is a debt you owe to yourself to fulfill obligations you have assumed voluntarily.
+ - One of the sanest, surest, and most generous joys of life comes from being happy over the good fortune of others.
+ - Place your clothes and weapons where you can find them in the dark.
+ - Fulfillment in life is loving a good woman and killing a bad man.
+ - A child’s life is like a piece of paper on which every person leaves a mark.
+ - Always listen to experts. They’ll tell you what can’t be done, and why. Then do it.
+ - You don’t pay back, you pay forward.
+ - Nothing of value is free. Even the breath of life is purchased at birth only through gasping effort and pain.
+ - There is no worse tyranny than to force a man to pay for what he does not want merely because you think it would be good for him.
+ - You can have peace. Or you can have freedom. Don’t ever count on having both at once.
+ - Climate is what you expect, weather is what you get.
+ - You can’t conquer a free man; the most you can do is kill him.
+ - It is a bad sign when the people of a country stop identifying themselves with the country and start identifying with a group. A racial group. Or a religion. Or a language. Anything, as long as it isn’t the whole population.
+ - I am free, no matter what rules surround me. I am free because I know that I alone am morally responsible for every thing I do.
+ - Being generous is inborn; being altruistic is a learned perversity. No resemblance –.
+ - May you live as long as you wish and love as long as you live.
+ - There is no such thing as luck; there is only adequate or inadequate preparation to cope with a statistical universe.
+ - When you vote, you are exercising political authority, you’re using force. And force, my friends, is violence. The supreme authority from which all other authorities are derived.
+ - The moral difference between a soldier and a civilian is that the soldier accepts personal responsibility for the safety of the body politic of which he is a member. The civilian does not.
+ - A generation which ignores history has no past – and no future.
+ - Never insult anyone by accident.
+ - A motion to adjourn is always in order.
+ - Heinlein’s Rules for Writers Rule One: You Must Write Rule Two: Finish What Your Start Rule Three: You Must Refrain From Rewriting, Except to Editorial Order Rule Four: You Must Put Your Story on the Market Rule Five: You Must Keep it on the Market until it has Sold.
+ - A competent and self-confident person is incapable of jealousy in anything. Jealousy is invariably a symptom of neurotic insecurity.
+ - The capacity of the human mind for swallowing nonsense and spewing it forth in violent and repressive action has never yet been plumbed.
+ - Secrecy begets tyranny.
+ - Circumstances can force your hand. So think ahead!
+ - The right to figure things out for yourself is the only true freedom everyone shares. Go use it.
+ - Democracy is four wolves and a sheep voting on dinner.
+ - Specialisation is for insects!
+ - You do not truly own anything that you can’t carry in both arms at a dead run.
+ - No matter where or what, there are makers, takers, and fakers.
+ - Stupidity cannot be cured. Stupidity is the only universal capital crime; the sentence is death. There is no appeal, and execution is carried out automatically and without pity.
+ - It is impossible for anyone to be responsible for another person’s behavior. The most you or any leader can do is to encourage each one to be responsible for himself.
+ - My old man taught me two things: ‘Mind own business’ and ‘Always cut cards.’
+ - Most people who sneer at technology would starve to death if the engineering infrastructure were removed.
+ - The lessons of history teach us – if the lessons of history teach us anything – that nobody learns the lessons that history teaches us.
+ - Sin lies only in hurting others unnecessarily. All other “sins” are invented nonsense.
+ - Ninety percent of all human wisdom is the ability to mind your own business.
+ - Don’t tell me violence doesn’t solve anything. Look at Carthage.
+ - He never gave up his search for the Door into Summer.
+ - Work is not an end in itself; there must always be time enough for love.
+ - Stupidity cannot be cured with money, or through education, or by legislation.
+ - Never do today what you can put off till tomorrow if tomorrow might improve the odds.
+ - The universe never did make sense; I suspect it was built on government contract.
+ - The Earth is just too small and fragile a basket for the human race to keep all its eggs in.
+ - The Bible is such a gargantuan collection of conflicting values that anyone can prove anything from it.
+ - It’s amazing how much ‘mature wisdom’ resembles being too tired.
+ - Jealousy is a disease, love is a healthy condition. The immature mind often mistakes one for the other, or assumes that the greater the love, the greater the jealousy – in fact, they are almost incompatible; one emotion hardly leaves room for the other.
+ - Never underestimate the power of human stupidity.
+ - Anyone who cannot cope with mathematics is not fully human. At best, he is a tolerable subhuman who has learned to wear his shoes, bathe, and not make messes in the house.
+ - A desire not to butt into other people’s business is at least eighty percent of all human wisdom.
+ - Yield to temptation. It may not pass your way again.
+ - The meek shall inherit the earth – a 6 foot plot above them.
+ - An armed society is a polite society.
+ - Death is the lot of us all, and the only way that the human race has ever conquered death is by treating it with contempt. By living every golden minute as if one had all Eternity.
+ - Death is an old friend; I know him well. I lived with him, ate with him, slept with him; to meet him again does not frighten me death is as necessary as birth, as happy in its own way.
+ - There are perhaps 5% of the population that simply can’t think. There are another 5% who can, and do. The remaining 90% can think, but don’t.
+ - Liberty is never unalienable; it must be redeemed regularly with the blood of patriots or it always vanishes. Of all the so-called natural human rights that have ever been invented, liberty is least likely to be cheap and is never free of cost.
+ - To permit irresponsible authority is to sell disaster.
+ - Once you get to earth orbit, you’re halfway to anywhere in the solar system.
+ - Man is not a rational animal, he is a rationalizing animal.
+ - Life is short, but the years are long.
+ - Happiness consists in getting enough sleep. Just that, nothing more.
+ - Most people can’t think, most of the remainder won’t think, and the small fraction who do think mostly can’t do it very well.
+ - Tilting at windmills hurts you more than the windmills.
+ - Free will is a golden thread running through the frozen matrix of fixed events.
+ - Certainly the game is rigged. Don’t let that stop you; if you don’t bet you can’t win.
+ - If you don’t like yourself, you can’t like other people. – Lazarus Long.
+ - A human being has no natural rights of any nature.
+ - Women are amazing creatures-sweet, soft, gentle, and far more savage than we are.
+ - Faith is intellectual laziness.
+ - Never try to have the last word. You might get it.
+ - Minimize your therbligs until it becomes automatic; this doubles your effective lifetime – and thereby gives time to enjoy butterflies and kittens and rainbows.
+ - Thou art god, I am god. All that groks is god.
+ - Its very variety, subtlety, and utterly irrational, idiomatic complexity makes it possible to say things in English which simply cannot be said in any other language.
+ - Most gods have the morals of a spoiled child.
+ - The most important lesson in the writing trade is that any manuscript is improved if you cut away the fat.
+ - First you must learn to control your self. The rest follows. Blessed is he who knows himself and commands himself, for the world is his and love and happiness and peace walk with him wherever he goes.
+ - One man’s theology is another man’s belly laugh.
+ - Anyone can see a forest fire. Skill lies in sniffing the first smoke.
+ - I believe in – I am proud to belong to – the United States.
+ - A pacifist male is a contradiction in terms. Most self-described “pacifists” are not pacific; they simply assume false colors. When the wind changes, they hoist the Jolly Roger.
+ - In a family argument, if it turns out you are right, apologize at once.
+ - Finish what you start. Keep submitting until it sells.
+ - Democracy is based on the assumption that a million men are wiser than one man. How’s that again? I missed something.
+ - Touch is the most fundamental sense. A baby experiences it, all over, before he is born and long before he learns to use sight, hearing, or taste, and no human ever ceases to need it. Keep your children short on pocket money but long on hugs.
+ - Never appeal to a man’s ‘better nature.’ He may not have one. Invoking his self-interest gives you more leverage.
+ - Never cast pearls before swine.
+ - Coffee comes in five descending stages: Coffee, Java, Jamoke, Joe, and Carbon Remover.
+ - I don’t see why human people make such a heavy trip out of sex. It isn’t anything complex, it is simply the best thing in life, even better than food.
+ - Time is your total capital, and the minutes of your life are painfully few.
+ - Obscurity is the refuge of incompetence.
+ - Social responsibility above the level of family, or at most of tribe, requires imagination – devotion, loyalty, all the higher virtues – which a man must develop himself; if he has them forced down him, he will vomit them out.
+ - The price of freedom is the willingness to do sudden battle anywhere, any time and with utter recklessness.
+ - There are no dangerous weapons; there are only dangerous men.
+ - Man has no moral instinct. He is not born with moral sense. You were not born with it, I was not – and a puppy has none. We acquire moral sense, when we do, through training, experience, and hard sweat of the mind.
+ - Cats have no sense of humor, they have terribly inflated egos, and they are very touchy.
+ - For me, politeness is a sine qua non of civilization.
+ - The most noble fate a man can endure is to place his own mortal body between his loved home and the war’s desolation.
+ - We each have a moral obligation to conserve and preserve beauty in this world; there is none to waste.
+ - The truth of a proposition has nothing to do with its credibility. And vice versa.
+ - To assess the intelligence of a committee, divide the IQ of its stupidest member by the number of members.
+ - Behind every mystery lies another mystery.
+ - People who go broke in a big way never miss any meals. It is the poor jerk who is shy a half slug who must tighten his belt.
+ - When any government, or any church for that matter, undertakes to say to its subjects, This you may not read, this you must not see, this you are forbidden to know, the end result is tyranny and oppression no matter how holy the motives.
+ - More people worry themselves to death than bleed to death.
+ - Audacity, always audacity – soundest principal of strategy.
+ - Since when was an emotional argument won by logic?
+ - Nobody ever wins a lawsuit but the lawyers.
+ - One should not attend even the end of the world without a good breakfast.
+ - When the citizens of a nation will no longer volunteer to defend it, then it is probably not worth saving. No nation has the right to survive with conscript troops, and in the long run, no nation ever has.
+ - Luck is a tag given by the mediocre to account for the accomplishments of genius.
+ - ANYTHING will burn with enough gasoline and dynamite.
+ - Goodness without wisdom always accomplishes evil.
+ - I have never been able to see life as anything but a vast complicated practical joke, and it’s better to laugh than cry.
+ - I was not offended, my love. An insult is like a drink; it affects one only if accepted. And pride is too heavy baggage for my journey...
+ - When the need arises – and it does – you must be able to shoot your own dog.
+ - The stars incline, but do not impel.
+ - Nowhere on Earth was sex so vigorously suppressed as in America – and nowhere else was there such a deep interest in it.
+ - Avoid making irrevocable decisions while tired or hungry.
+ - Why do some people act as if making money offended their delicate minds? I am out for a legitimate profit, and not ashamed of it; the fact that people will pay money for my goods and services shows that my work is useful.
+ - Never tease an old dog; he might have one bite left.
+ - How you behave toward cats here below determines your status in Heaven.
+ - Why don’t they make more science fiction movies? The answer to any question starting, Why don’t they- is almost always, Money.
+ - The supreme irony of life is that hardly anyone gets out of it alive.
+ - The greatest fallacy of democracy is that everyone’s opinion is worth the same.
+ - Don’t handicap your children by making their lives easy.
+ - Never try to outstubborn a cat.
+ - If tempted by something that feels ‘altruistic,’ examine your motives and root out that self-deception. Then, if you still want to do it, wallow in it!
+ - Anyone who considers protocol unimportant has never dealt with a cat.
+ - Violence, naked force, has settled more issues in history than has any other factor.
+ - Cast me into a dungeon;, burn me at the state, crown me king of kings, I can ‘pursue happiness’ as long as my brain lives – but neither gods nor saints, wise men nor subtle drugs, can insure that I will catch it.
+ - Sex should be friendly. Otherwise stick to mechanical toys; it’s more sanitary.
+ - There is no such thing as ‘social gambling.’ Either you are there to cut the other bloke’s heart out and eat it – or you’re a sucker. If you don’t like this choice – don’t gamble.
+ - To stay young requires unceasing cultivation of the ability to unlearn old falsehoods.
+ - Evolution is a process that never stops. Baboons who fail to exhibit moral behavior do not survive; they wind up as meat for leopards.
+ - Always tell her she is beautiful, especially if she is not.
+ - Don’t ever become a pessimist, Ira; a pessimist is correct oftener than an optimist, but an optimist has more fun – and neither can stop the march of events.
+ - Never encourage a man to cook breakfast; it cause him to wonder if women are necessary.
+ - If you would know a man, observe how he treats a cat.
+ - God created men to test the souls of women.
+ - Expertise in one field does not carry over into other fields. But experts often think so. The narrower their field of knowledge the more likely they are to think so.
+ - When it don’t rain, the roof don’t leak; when it rains, I can’t fix it nohow.
+ - Waking a person unnecessarily should not be considered a capital crime. For a first offense, that is.
+ - There comes a time in the life of every human when he or she must decide to risk ‘his life, his fortune and his sacred honor’ on an outcome dubious. Those who fail the challenge are merely overgrown children, can never be anything else.
+ - Learning isn’t a means to an end; it is an end in itself.
+ - They didn’t want it good, they wanted it Wednesday.
+ - Always store beer in a dark place.
+ - Between being ‘right’ and being kind, I know which way I vote.
+ - The difference between science and the fuzzy subjects is that science requires reasoning while those other subjects merely require scholarship.
+ - I woke up in bed with a man and a cat. The man was a stranger; the cat was not.
+ - Theology is never any help; it is searching in a dark cellar at midnight for a black cat that isn’t there. Theologians can persuade themselves of anything.
+ - I think that science fiction has a distinct therapeutic value because all of it has as its primary postulate that the world does change. I cannot overemphasize the importance of that idea.
+ - All cats are not gray after midnight.
+ - Big money isn’t hard to come by. All it costs is a lifetime of single-minded devotion to acquiring it and making it grow into more money.
+ - Library Science is the key to all science, just as mathematics is its language – and civilization will rise or fall, depending on how well librarians do their jobs.
+ - Once a man gets a reputation as a liar, he might as well be struck dumb, for people do not listen to the wind.
+ - The best thing about space travel is that it made it possible to go elsewhere.
+ - Taxes are not levied for the benefit of the taxed.
+ - In this complex world, the scientific method, and the consequences of the scientific method are central to everything the human race is doing and to wherever we are going.
+ - Sense is never common.
+ - Your enemy is never a villain in his own eyes.
+ - When a place gets crowded enough to require ID’s, social collapse is not far away. It is time to go elsewhere. The best thing about space travel is that it made it possible to go elsewhere.
+ - Hate always sells well, but for repeat trade and the long pull happiness is sounder merchandise.
+ - I have never been able to see how a thirty-year old moron can vote more wisely than a fifteen-year old genius...
+ - Thinking doesn’t pay. Just makes you discontented with what you see around you.
+ - The best things in history are accomplished by people who get tired of being shoved around.
+ - When I don’t understand, I have an unbearable itch to know why.
+ - A fake fortuneteller can be tolerated. But an authentic soothsayer should be shot on sight. Cassandra did not get half the kicking around she deserved.
+ - Widows are far better than brides. They don’t tell, they won’t yell, they don’t swell, they rarely smell, and they’re grateful as hell.
+ - Autobiography is usually honest but it is never truthful.
+ - Take care of the cojones and the frijoles will take care of themselves. Try to have getaway money – but don’t be fanatic about it.
+ - A zygote is a gamete’s way of producing more gametes. This may be the purpose of the universe.
+ - Have you ever noticed how much they look like orchids? lovely!
+ - It may be better to be a live jackal than a dead lion, but it is better still to be a live lion. And usually easier.
+ - Ayn Rand is a bloody socialist compared to me.
+ - Darling, a true lady takes off her dignity with her clothes and does her whorish best. At other times you can be as modest and dignified as your persona requires.
+ - Beware of altruism. It is based on self-deception, the root of all evil.
+ - Democracy’s worst fault is that its leaders are likely to reflect the faults and virtues of their constituents.
+ - Only a sadistic scoundrel-or a fool-tells the bald truth on social occasions.
+ - Under what circumstances is it moral for a group to do that which is not moral for a member of that group to do alone?
+ - Being a mother is an attitude, not a biological relation.
+ - Never frighten a little man. He’ll kill you.
+ - It was better to live with disappointment and frustration than to live without hope.
+ - The police of a state should never be stronger or better armed than the citizenry. An armed citizenry, willing to fight, is the foundation of civil freedom. That’s a personal evaluation, of course.
+ - Your enemy is never a villain in his own eyes. Keep this in mind; it may offer a way to make him your friend. If not, you can kill him without hate – and quickly.
+ - Premenstrual Syndrome: Just before their periods women behave the way men do all the time.
+ - You can go wrong by being too skeptical as readily as by being too trusting.
+ - A friend who offers help without asking for explanations is a treasure beyond price.
+ - I know why we laugh. We laugh because it hurts, and it’s the only thing to make it stop hurting.
+ - No intelligent man has any respect for an unjust law.
+ - As it says in Bible, God fights on side of heaviest artillery.
+ - Please don’t invent a debt that does not exist, or next you will be trying to feel gratitude – and that is the treacherous first step toward complete moral degradation.
+ - A woman is not property, and husbands who think otherwise are living in a dreamworld.
+ - A well regulated Militia, being necessary to the security of a free State, the right of the people to keep and bear arms, shall not be infringed. – Second Amendment to the Constitution An armed society is a polite society.
+ - If you pray hard enough, water will run uphill. How hard? Why, hard enough to make water run uphill, of course!
+ - A zest for living must include a willingness to die.
+ - A committee is a life form with six or more legs and no brain.
+ - All normal human beings have soi-disant mixed-up glands. The race is divided into two parts: those who know this and those who do not.
+ - The most expensive thing in the world is a second-best military establishment, good but not good enough to win.
+ - Most ‘scientists’ are bottle washers and button sorters.
+ - Customs tell a man who he is, where he belongs, what he must do. Better illogical customs than none; men cannot live together without them.
+ - A critic is a man who creates nothing and thereby feels qualified to judge the work of creative men. There is logic in this; he is unbiased, he hates all creative people equally.
+ - That old saw about the early bird just proves that the worm should have stayed in bed.
+ - Some people insist that ‘mediocre’ is better than ‘best.’ They delight in clipping wings because they themselves can’t fly. They despise brains because they have none.
+ - The early worm deserves the bird.
+ - Magic is not science, it is a collection of ways to do things ways that work but often we don’t know why.
+ - If a grasshopper tries to fight a lawnmower, one may admire his courage but not his judgement.
+ - There was one field in which man was unsurpassed; he showed unlimited ingenuity in devising bigger and more efficient ways to kill off, enslave, harass, and in all ways make an unbearable nuisance of himself to himself.
+ - Formal courtesy between husband and wife is even more important than it is between strangers.
+ - When railroading time comes you can railroad – but not before.
+ - Take big bites. Anything worth doing is worth overdoing.
+ - Anything free costs twice as much in the long run or turns out worthless.
+ - Reason is poor propaganda when opposed by the yammering, unceasing lies of shrewd and evil and self-serving men.
+ - Nobody has ever seen an electron. Nor a thought. You can’t see a thought, you can’t measure, weigh, nor taste it- but thoughts are the most real things in the Galaxy.
+ - Pessimist by policy, optimist by temperament- it is possible to be both. How? By never taking an unnecessary chance and by minimizing the risks you can’t avoid. This permits you to play out the game untroubled by the certainty of the outcome.
+ - Does history record any case in which the majority was right?
+ - Marriage is a psychological condition, not a civil contract and a license. Once a marriage is dead, it is dead, and it begins to stink faster than a dead fish.
+ - But goodness alone is never enough. A hard, cold wisdom is required for goodness to accomplish good. Goodness without wisdom always accomplishes evil.
+ - If a country can’t save itself through the volunteer service of its own free people, then I say : Let the damned thing go down the drain!
+ - The killer looked up as the bullet hit him. He looked as if he were puzzled by some strange occurence, being too freshly dead to be aware of it.
+ - If it can’t be expressed in figures, it is not science; it is opinion. It has long been known that one horse can run faster than another – but which one? Differences are crucial.
+ - Wisdom includes not getting angry unnecessarily. The Law ignores trifles and the wise man does, too.
+ - Patriotism is not sentimental nonsense. Nor something dreamed up by demagogues. Patriotism is as necessary a part of man’s evolutionary equipment as are his eyes, as useful to the race as eyes are to the individual.
+ - No woman ever ages beyond eighteen in her heart.
+ - People who are busy and happy don’t write diaries; they are too busy living.
+ - A girl’s name ending in ‘a’ – that always suggests a ‘C’ cup.
+ - A slave cannot be freed, save he do it himself. Nor can you enslave a free man; the very most you can do is kill him!
+ - Men rarely if ever dream up a god superior to themselves. Most gods have the manners and morals of a spoiled child.
+ - In a mature society, ‘civil servant’ is semantically equal to ‘civil master.’
+ - Every general prohibition creates its bootleggers.
+ - Peace is an extension of war by political means. Plenty of elbow-room is pleasanter – and much safer.
+ - Delusions are often functional. A mother’s opinions about her children’s beauty, intelligence, goodness, et cetera ad nauseam, keep her from drowning them at birth.
+ - Men are more sentimental than women. It blurs their thinking.
+ - Anything which is physically possible can always be made financially possible; money is a bugaboo of small minds.
+ - Violence never settles anything should be debated by the ghosts of Hitler and Stalin, with the city fathers of Carthage as referees.
+ - Ability is a wonderful thing, but its value is greatly enhanced by dependability. Ability implies repeatability and accountability.
+ - If Satan should ever replace God he would find it necessary to assume the attributes of Divinity.
+ - Once a month, some women act like men act all the time.
+ - Stinky says women should be obscene but not heard.
+ - What a wonderful world it is that has girls in it!
+ - Nursing does not diminish the beauty of a woman’s breasts; it enhances their charm by making them look lived in and happy.
+ - Pain is the basic mechanism built into us by millions of years of evolution which safeguards us by warning when something threatens our survival.
+ - An animal so poor in spirit that he won’t even fight on his own behalf is already an evolutionary dead end; the best he can do for his breed is to crawl off and die, and not pass on his defective genes.
+ - If I had a Boy Scout I could make a fire by rubbing his hind legs together.
+ - Money is the sincerest of all flattery. Women love to be flattered. So do men.
+ - Sex without love is merely healthy exercise.
+ - I’m always suspicious of disinterested interest.
+ - I took up writing because I needed money. And I continued to write because it’s safer than stealing and easier than working.
+ - I don’t trust a man who talks about ethics when he is picking my pocket. But if he is acting in his own self-interest and says so, I have usually been able to work out some way to do business with him.
+ - Democracy can survive anything except Democrats.
+ - Budget the luxuries first.
+ - Take sides! Always take sides! You will sometimes be wrong – but the man who refuses to take sides must always be wrong.
+ - The shamans are forever yacking about their snake oil miracles. I prefer the real McCoy, a pregnant woman.
+ - Must be yearning deep in human heart to stop other people from doing as they please.
+ - Come Judgment Day, we may find that Mumbo Jumbo the God of the Congo was the Big Boss all along.
+ - Civilians are like beans; you buy ’em as needed for any job which merely requires skill and savvy. But you can’t buy fighting spirit.
+ - If an elderly respected expert in a given field tells you that something can be done he is almost certainly right. If an elderly respected expert in a given field tells you that something is impossible, he is almost certainly wrong.
+ - Sin is cruelty and injustice, all else is peccadillo. Oh, a sense of sin comes from violating the customs of your tribe. But breaking custom is not sin even when it feels so; sin is wronging another person.
+ - Contemplation must bring forth right action in order to permit further growth.
+ - Dad claims that library science is the foundation of all sciences just as math is the key – and we will survive or founder, depending on how well the librarians do their jobs. Librarians didn’t look glamorous to me but maybe Dad had hit on a not very obvious truth.
+ - My vocal cords lived their own life, wild and free.
+ - Once upon a time there was a Martian named Valentine Michael Smith.
+ - Paymasters come in only two sizes: one sort shows you where the book says that you can’t have what you’ve got coming to you; the second sort digs through the book until he finds a paragraph that lets you have what you need even if you don’t rate it.
+ - He’s an honest politician – he stays bought.
+ - Geniuses and supergeniuses always make their own rules about sex as on everything else; they do not accept the monkey customs of their lessers.
+ - Seems to be a deep instinct in human beings for making everything compulsory that isn’t forbidden.
+ - Writing is not necessarily something to be ashamed of, but do it in private and wash your hands afterwards.
+ - Anyone who can worship a trinity and insist that his religion is a monotheism can believe anything.
+ - Money is a powerful aphrodisiac but flowers work almost as well.
+ - When you’re rich, you don’t have friends; you just have endless acquaintances.
+ - The basic of all morality is duty, a concept with the same relation to group that self-interest has to individual.
+ - Sin is cruelty and injustice, all else is peccadillo.
+ - Everybody lies about sex.
+ - Love is what still goes on when you’re not horny.
+ - I’m not trying to frighten you, but only a fool makes predictions based on ignorance; I am not that sort of fool.
+ - I do know that the slickest way to lie is to tell the right amount of truth – then shut up.
+ - Son, the phrase is self-contradictory; “sense” is never “common”.
+ - It is a truism that almost any sect, cult, or religion will legislate its creed into law if it acquires the political power to do so.
+ - Decency is not news. It is buried in the obituaries, but it is a force stronger than crime.
+ - A prude is a person who thinks that his own rules of propriety are natural laws.
+ - And suddenly I knew I was people and could not stop laughing.
+ - There is no safety this side of the grave.
+ - Straining at gnats and swallowing camels is a required course in all law schools.
+ - Revolution is an art that I pursue rather than a goal I expect to achieve. Nor is this a source of dismay; a lost cause can be as spiritually satisfying as a victory.
+ - I was there to see beautiful naked women. So was everybody else. It’s a common failing.
+ - Any priest or shaman must be presumed guilty until proved innocent.
+ - To be matter-of-fact about the world is to blunder into fantasy – and dull fantasy at that, as the real world is strange and wonderful.
+ - Gratitude: An imaginary emotion that rewards an imaginary behavior, altruism. Both imaginaries are false faces for selfishness, which is a real and honest emotion.
+ - All men are created unequal.
+ - Selfishness is the bedrock on which all moral behavior starts and it can be immoral only when it conflicts with a higher moral imperative.
+ - Logic is a feeble reed, friend. “Logic” proved that airplanes can’t fly and that H-bombs won’t work and that stones don’t fall out of the sky. Logic is a way of saying that anything which didn’t happen yesterday won’t happen tomorrow.
+ - The saddest thing about ephemerals was that their little lives rarely held time enough for love.
+ - If you wanted to teach a baby a lesson, would you cut its head off?
+ - A society that gets rid of all its troublemakers goes downhill.
+ - The more you love, the more you can love – and the more intensely you love.
+ - The Ten Commandments are for lame brains. The first five are solely for the benefit of the priests and the powers that be; the second five are half truths, neither complete nor adequate.
+ - Sex, whatever else it is, is an athletic skill. The more you practice, the more you can, the more you want to, the more you enjoy it, the less it tires you.
+ - If you do not believe that a man will commit murder for one can of tomatoes, then you have never been hungry.
+ - Humans hardly ever learn from the experience of others. They learn – when they do, which isn’t often – on their own, the hard way.
+ - Random chance was not a sufficient explanation of the Universe – in fact, random chance was not sufficient to explain random chance; the pot could not hold itself.
+ - By cultivating the beautiful we scatter the seeds of heavenly flowers, as by doing good we cultivate those that belong to humanity.
+ - But I contend that the disgusting behavior of many of their alleged ‘holy men’ relieves us of any intellectual obligation to take the stuff seriously. No amount of sanctimonious rationalization can make such behavior anything but pathological.
+ - Small change can often be found under seat cushions.
+ - There are only five things really worth drawing; four of them are pretty girls and the fifth is cats.
+ - One could write a history of science in reverse by assembling the solemn pronouncements of highest authority about what could not be done and could never happen.
+ - It’s better to copulate than not.
+ - Gratitude is a euphemism for resentment.
+ - Some things, the more you understand the more you loathe them.
+ - Analogy is even slipperier than logic.
+ - All human behavior, all human motivations, all man’s hopes and fears, were heavily colored and largely controlled by mankind’s tragic and oddly beautiful pattern of reproduction.
+ - God split himself into a myriad parts that he might have friends. This may not be true, but it sounds good, and is no sillier than any other theology.
+ - Of all the strange ‘crimes’ that human beings have legislated out of nothing, ‘blasphemy’ is the most amazing – with ‘obscenity’ and ‘indecent exposure’ fighting it out for second and third place.
+ - If you’ve got the truth you can demonstrate it. Talking doesn’t prove it.
+ - Hit it! You have to hit it harder than that. Electrons are timid little things but notional; you have to let them know who’s boss.
+ - Democracy is a poor system of government at best; the only thing that can honestly be said in its favor is that it is eight times as good as any other method the human race has ever tried.
+ - High Frontier places a bullet-proof vest on our bare chest. High Frontier is as non-aggressive as a bullet-proof vest. There is no way to kill anyone with High Frontier – all that High Frontier can do is to keep others from killing us.
+ - Remember though, your best weapon is between your ears and under your scalp -provided it’s loaded.
+ - Faith strikes me as intellectual laziness, but I don’t argue with it especially as I am rarely in a position to prove that it is mistaken. Negative proof is usually impossible.
+ - Any group is weaker than a man alone unless they are perfectly trained to work together.
+ - Do this. Don’t do that. Stay back in line. Where’s tax receipt? Fill out form. Let’s see license. Submit six copies. Exit only. No left turn. No right turn. Queue up and pay fine. Take back and get stamped. Drop dead – but first get permit.
+ - He’s as weird as snake’s suspenders but sweet as a stolen kiss, too.
+ - The purpose of war is to support your government’s decisions by force.
+ - In Wilson’s scale of evaluations breakfast rated just after life itself and ahead of the chance of immortality.
+ - We came here for a small, informal meeting. We find you’ve turned it into a circus. Well, if you’re going to have a circus, you’ve got to have elephants.
+ - Oh, you have to charge ’em, Jubal. The marks won’t pay attention if it’s free.
+ - The power to tax, once conceded, has no limits; it continues until it destroys.
+ - I don’t know Who is cranking; I’m pleased He doesn’t stop.
+ - You got the impression that he never needed to sleep – just ten-thousand-mile checkups and dust him off occasionally.
+ - The 3-legged stool of understanding is held up by history, languages, and mathematics. Equipped with those three you can learn anything you want to learn. But if you lack any one of them you are just another ignorant peasant with dung on your boots.
+ - It takes two to create a heaven, but hell can be accomplished by one.
+ - By the data to date, there is only one animal in the Galaxy dangerous to man – man himself. So he must supply his own indispensable competition. He has no enemy to help him.
+ - Every law that was ever written opened up a new way to graft.
+ - Figure out for yourself what you want to be really good at, know that you’ll never really satisfy yourself that you’ve made it, and accept that that’s okay.
+ - If you happen to be one of the fretful minority who can do creative work, never force an idea; you’ll abort it if you do. Be patient and you’ll give birth to it when the time is ripe. Learn to wait.
+ - The brown monkey’s instinct to kill is correct; such men are dangerous to all monkey customs.
+ - The first principle of freedom is the right to go to hell in your own handbasket.
+ - I think the major problem in growing up is to become sophisticated without becoming cynical.
+ - It’s a man’s business to be what he is, and to be it in style.
+ - My old man says when it’s time to be counted, the important thing is to be man enough to stand up.
+ - All my enemies are self-appointed.
+ - Money problems can always be solved by a man not frightened by them.
+ - Women will forgive anything. Otherwise, the race would have died out long ago.
+ - Aside from a cold appreciation of my own genius I felt that I was a modest man.
+ - In a society in which it is a moral offense to be different from your neighbor your only escape is to never let them find out.
+ - Talking with a Martian is something like talking with an echo. You don’t get any argument but you don’t get results either.
+ - It seems to me that any law that is not enforced and can’t be enforced weakens all other laws.
+ - A brute kills for pleasure. A fool kills from hate.
+ - The greatest productive force is human selfishness.
+ - Drop dead-but first get permit.
+ - Butterflies are self propelled flowers.
+ - Beauty is not diminished by being shared.
+ - Remember this: once the human race is established on more than one planet and especially, in more than one solar system, there is no way now imaginable to kill off the human race.
+ - Neither individuals nor corporations have any right to come into court and ask that the clock of history be stopped, or turned back.
+ - We learned not to waste ammo even on warriors except in self-protection.
+ - I don’t see how an article of clothing can be indecent. A person, yes.
+ - If we blow ourselves up we will do it by misapplication of science; if we manage to keep from blowing ourselves up, it will be through intelligent application of science.
+ - Don’t explain computers to laymen. Simpler to explain sex to a virgin.
+ - Belief gets in the way of learning.
+ - You have attributed conditions to villainy that simply result from stupidity.
+ - Age is not an accomplishment, and youth is not a sin.
+ - Logic is a feeble reed, friend.
+ - A little more money won’t do you any good – because daughters can use up ten percent more than a man can make in any normal occupation, regardless of the amount.
+ - Like every living thing its prime characteristic is a blind, unreasoned instinct to survive.
+ - Damnit! Nationalism should stop at the stratosphere!
+ - Animals can be driven crazy by placing too many in too small a pen. Homo sapiens is the only animal that voluntarily does this to himself.
+ - Working because you want to is the best sort of play.
+ - A boy who gets a C- in ‘Appreciation of Television’ can’t be all bad.
+ - My old man claimed that the more complicated the law the more opportunity for scoundrels.
+ - How can you argue with a woman who won’t?
+ - Since survival is the sine qua non, I now define the “moral behavior” as “behavior that tends toward survival”.
+ - Who is more real? Homer or Ulysses? Shakespeare or Hamlet? Burroughs or Tarzan?
+ - With eternity to draw on there could be no reason for hurrying – ‘hurry’ was not a concept in Martian.
+ - Self awareness is NOT just a bunch of amino acids bumping together.
+ - In a dilemma, it is helpful to change any variable, then reexamine the problem.
+ - Most neuroses and some psychoses can be traced to the unnecessary and unhealthy habit of daily wallowing in the troubles and sins of five billion strangers.
+ - There were many, many times thereafter that Don regretted having enlisted – but so has every man who ever volunteered for military service.
+ - In handling a stinging insect, move very slowly.
+ - Limiting the freedom of news ‘just a little bit’ is in the same category with the classic example ’a little bit pregnant.
+ - Men are not potatoes!
+ - It is impossible for a man to love his wife whole heartedly without loving all women somewhat. I suppose that the converse must be true of women.
+ - The extremely tiny fraction who think regularly, accurately, creatively, and without self-delusion – in the long run, these are the only people who count.
+ - Most women are damn fools and children. But they’ve got more range than we’ve got. The brave ones are braver, the good ones are better – and the vile ones are viler, for that matter.
+ - No statement should be believed because it is made by an authority.
+ - Stupidity is the only natural capital offense.
+ - Abstract knowledge is always useful, sooner or later.
+ - There is no conclusive evidence of life after death, but there is no evidence of any sort against it. Soon enough you will know, so why fret about it?
+ - Being sorry won’t get you into heaven. Get happy, son. Get that old spring into your step and stay on your toes.
+ - Morals – all correct moral laws – derive from the instinct to survive. Moral behavior is survival behavior above the individual level.
+ - If men were the automatons that behaviorists claim they are, the behaviorist psychologists could not have invented the amazing nonsense called ‘behaviorist psychology.’
+ - Unarmed hand-to-hand fighting does not change through the ages; only the name changes, and it has only one rule: do it first, do it fast, do it dirtiest.
+ - Never force an idea; you’ll abort it if you do.
+ - The only thing privacy laws accomplish is making the bugs smaller.
+ - Never trust machinery more complicated than a knife and fork.
+ - I have never been impressed by the formal schools of ethics.
+ - I never do anything I don’t want to do. Nor does anyone, but in my case I am always aware of it.
+ - Money is truthful. If a man speaks of honor, make him pay cash.
+ - History is never surprising after it happens.
+ - People usually believe anything that they are told early and often.
+ - The mind’s ability to rationalize it’s own shortcomings is unlimited; I am no exception.
+ - Was there ever a time when the majority was right?
+ - Of all the creatures on this planet none is more dangerous than a human being.
+ - It’s an indulgence to sit in a room and discuss your beliefs as if they were a juicy piece of gossip.
+ - An armed man need not fight.
+ - I did the only really brave thing I have ever done in my life: I inched forward.
+ - Never worry about theory as long as the machinery does what it’s supposed to do.
+ - I’ve never understood how God could expect His creatures to pick the one true religion by faith-it strikes me as a sloppy way to run a universe.
+ - Boats and ships are female because they are beautiful, lovable, expensive and unpredictable.
+ - There will always be survivors.
+ - I counted to ten slowly, using binary notation.
+ - Television leaves no external scars.
+ - Live and learn, or you don’t live long.
+ - Nor would anybody suspect. If was one thing all people took for granted, was conviction that if you feed honest figures into a computer, honest figures come out. Never doubted it myself till I met a computer with a sense of humor.
+ - Government! Three fourths parasitic and the other fourth Stupid fumbling.
+ - You were probably educated in the conventional economic theories of your period which were magnificent and most ingenious, but – if you will pardon my saying so – all wrong.
+ - In terms of morals there is no such thing as ‘state.’ Just men. Individuals. Each responsible for his own acts.
+ - The way to find justice is to deal fairly with other people and not worry about how they deal with you.
+ - A monarch’s neck should always have a noose around it – it keeps him upright.
+ - Are you trying to tell all of us we have a bad signal-to-noise ratio?
+ - His was not a small mind bothered by logic and consistency.
+ - Humoring them costs nothing and adds to happiness in a world in which happiness is always in short supply.
+ - The more you love, the more you can love – and the more intensely you love. Nor is there any limit on how many you can love. If a person had time enough, he could love all of that majority who are decent and just.
+ - What we think of as ‘Physical beauty’ is almost certainly a tag for a complex of useful survival characteristics. Smartness intelligence among them.
+ - History does not record anywhere or at any time a religion that has any rational basis.
+ - But, if there ever was a time in history when “peace” meant that there was no fighting going on, I have been unable to find out about it.
+ - The ordinary bloke will not voluntarily pay for “art” that leaves him unmoved – if he does pay for it, the money has to be conned out of him, by taxes and such.
+ - Anything free is worth what you pay for it.
+ - Many older physicians had gone to their graves calling Pasteur a liar, a fool, or worse – and without examining evidence which their “common sense” told them was impossible.
+ - On the steps of the Federal Building we ran into Carmencita Ibanez, a classmate of ours and one of the nice things about being a member of a race with two sexes.
+ - I think perhaps of all the things a police state can do to its citizens, distorting history is possibly the most pernicious.
+ - A man who marries at my age isn’t taking a wife, he’s indenturing a nurse.
+ - Must be a yearning deep in human heart to stop other people from doing as they please. Rules, laws – always for other fellow. A murky part of us, something we had before we came down out of trees, and failed to shuck when we stood up.
+ - Make money, lose money – who cares? The idea is to enjoy it.
+ - I was no fool; I was aware that when another man is too anxious to force money on one, it is time to examine the cards, for there is almost certainly something illegal, or dangerous, or both, involved in the matter.
+ - To get anywhere, or even to live a long time, a man has to guess, and guess right, over and over again, without enough data for a logical answer.
+ - You have to give an editor something to change, or he gets fretful. After he pees in it, he likes the flavor better, so he buys it.
+ - I believe in my neighbors. I know their faults and I know that their virtues far outweigh their faults.
+ - Get a shot off fast. This upsets him long enough to let you make your second shot perfect.
+ - Certain types of loudmouthism should be a capital offense among decent people.
+ - You’re in bad shape when your emotions force you into acts which you know are foolish.
+ - The marks won’t listen if it’s free.
+ - From my point of view, a great deal of openly expressed piety is insufferable conceit.
+ - The nice thing about citing god as an authority is that you can prove anything you set out to prove.
+ - Churches thrive on martyrdom and persecution.
+ - Nothing uses up alcohol faster than political argument.
+ - Another ingredient in a happy marriage: Budget the luxuries first!
+ - Correct morality can only be derived from what man is – not from what do-gooders and well-meaning aunt Nellies would like him to be.
+ - I scrolled on down to the obituaries. I usually read the obituaries first as there is always the happy chance that one of them will make my day.
+ - Man can be chained, but he cannot be domesticated.
+ - There is no way that writers can be tamed and rendered civilized. Or even cured.
+ - Under our system every voter and officeholder is a man who has demonstrated through voluntary and difficult service that he places the welfare of the group ahead of personal advantage.
+ - The hardest part of gaining any new idea is sweeping out the false idea occupying that niche.
+ - His older self had taught his younger self a language which the older self knew because the younger self, after being taught, grew up to be the older self and was, therefore, capable of teaching.
+ - I am not going to talk about religious beliefs, but about matters so obvious that it has gone out of style to mention them.
+ - The trouble with conspiracies is that they rot internally.
+ - If I don’t start having service I’m going to swap you all for a dog and shoot the dog.
+ - A family reunion is an effective form of birth control.
+ - I wanted the feeling of romance and the sense of wonder I had known as a kid. I wanted the world to be what they had promised me it was going to be – instead of the tawdry, lousy fouled-up mess it is.
+ - An invention is something that was “impossible” up to then that’s why governments grant patents.
+ - The less respect an older person deserves the more certain he is to demand it from anyone younger.
+ - Never crowd youngsters about their private affairs – sex especially.
+ - The worst that can possibly have happened to him is death and that we are all in for – if not this morning, then in days, or weeks, or years at most.
+ - There are things which cannot be taught in ten easy lessons, nor popularized for the masses; they take years of skull sweat.
+ - Women talk when they want to. Or don’t.
+ - English is capable of defining sentiments that the human nervous system is quite incapable of experiencing.
+ - There ought not to be anything in the whole universe that man can’t poke his nose into-that’s the way we’re built and I assume that there’s some reason for that.
+ - There is solemn satisfaction in doing the best you can for eight billion people. Perhaps their lives have no cosmic significance, but they have feelings. They can hurt.
+ - I have spent too much of my life opening doors for cats – I once calculated that, since the dawn of civilization, nine hundred and seventy-eight man-centuries have been used up that way. I could show you figures.
+ - From the strictest humanitarian viewpoint, any attempt to stop the processes by which over crowded cities purge themselves is not a kindness.
+ - A community where everyone is a ruthless murderer, with handy access to death-dealing devices, is a very polite community.
+ - Responsibility cannot be shared.
+ - The intelligent fights only when he must and never for sport.
+ - It would take centuries and he must grow and grow and grow, but he was in no hurry – he grokked that Eternity and the ever-beautifully-changing Now were identical.
+ - Spacemen die if they stay in one place.
+ - In past history popularly elected governments have been no better and sometimes far worse than overt tyrannies.
+ - I believe in the honest craft of workmen.
+ - Christ was crucified for preaching without a police permit.
+
+500 quotes

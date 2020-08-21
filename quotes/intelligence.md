@@ -1,0 +1,42 @@
+ - The ability to observe without evaluating is the highest form of intelligence. ~~Jiddu Krishnamurti
+ - Intelligence is what you use when you don’t know what to do. ~~Jean Piaget
+ - Great minds think for themselves. ~~Immanuel Kant
+ - The greatest intelligence is precisely the one that suffers the most from its own limitations. ~~André Gide
+ - Looks fade. Brains don’t. ~~Eunice Kennedy Shriver
+ - A mind too active is no mind at all. ~~Theodore Roethke
+ - The highest that we can attain to is not Knowledge, but Sympathy with Intelligence. ~~Henry David Thoreau
+ - The profound thinker always suspects that he is superficial. ~~Benjamin Disraeli
+ - The aim of argument, or of discussion, should not be victory, but progress. ~~Joseph Joubert
+ - Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words. ~~Johann Wolfgang von Goethe
+ - Even when the experts all agree, they may well be mistaken. ~~Bertrand Russell
+ - The color of truth is gray. ~~André Gide
+ - Of course not. After all, I may be wrong. ~~Bertrand Russell
+ - Ignorance never settles a question. ~~Benjamin Disraeli
+ - Every true genius is bound to be naive. ~~Friedrich Schiller
+ - Intelligence is really a kind of taste: taste in ideas. ~~Susan Sontag
+ - Information is not knowledge. ~~Albert Einstein
+ - We have now sunk to a depth at which restatement of the obvious is the first duty of intelligent men. ~~George Orwell
+ - It is better to have a fair intellect that is well used than a powerful one that is idle. ~~Bryant McGill
+ - If more politicians knew poetry, and more poets knew politics, I am convinced the world would be a little better place in which to live. ~~John F. Kennedy
+ - The sage has one advantage: he is immortal. If this is not his century, many others will be. ~~Baltasar Gracián
+ - In school, you are given the lesson first. On the street, you’re given the mistake first and then it’s up to you to find the lesson, if you ever find it. ~~Robert T. Kiyosaki
+ - One definition of man is an intelligence served by organs. ~~Ralph Waldo Emerson
+ - For every studen with a spark of brilliance, there are about ten with ignition trouble. ~~Milton Berle
+ - A little learning is a dangerous thing. ~~Alexander Pope
+ - Science has not yet taught us if madness is or is not the sublimity of the intelligence. ~~Edgar Allan Poe
+ - There’s a heart beneath the boobs and a brain beneath the wig. ~~Dolly Parton
+ - A woman uses her intelligence to find reasons to support her intuition. ~~Gilbert K. Chesterton
+ - I have never seen the slightest scientific proof of the religious theories of heaven and hell, of future life for individuals, or of a personal God. ~~Thomas A. Edison
+ - The best buy by way of management is brains-at any price. ~~Malcolm S. Forbes
+ - I’ve always felt that a person’s intelligence is directly reflected by the number of conflicting points of view he can entertain simultaneously on the same topic. ~~Abigail Adams
+ - There is no such thing as Intelligence; one has intelligence of this or that. One must have intelligence only for what one is doing. ~~Edgar Degas
+ - I am sometimes shocked by the blasphemies of those who think themselves pious. ~~Bertrand Russell
+ - He that in the ordinary affairs of life would admit of nothing but direct plain demonstration would be sure of nothing in this world but of perishing quickly. ~~John Locke
+ - Genius, like humanity, rusts for want of use. ~~William Hazlitt
+ - I watched Titanic when I got back home from the hospital, and cried. I knew that my IQ had been damaged. ~~Stephen King
+ - My darkness has been filled with the light of intelligence, and behold, the outer day-lit world was stumbling and groping in social blindness. ~~Helen Keller
+ - Intelligence in the service of poor instinct is really dangerous. ~~Gloria Steinem
+ - The temptation shared by all forms of intelligence: cynicism. ~~Albert Camus
+ - How much intelligence does it take to sneak up on a leaf? ~~Larry Niven
+
+40 quotes

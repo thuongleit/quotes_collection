@@ -1,0 +1,59 @@
+ - A man of personality can formulate ideals, but only a man of character can achieve them.
+ - The principle of equity first came into evidence in Roman jurisprudence and was derived by analogy from the physical meaning of the word.
+ - Progress is measured by the degree of differentiation within a society.
+ - Love works miracles in stillness.
+ - Great changes in the destiny of mankind can be effected only in the minds of little children.
+ - Art is an indecent exposure of the consciousness.
+ - The sensitive artist knows that a bitter wind is blowing.
+ - The most general law in nature is equity-the principle of balance and symmetry which guides the growth of forms along the lines of the greatest structural efficiency.
+ - Simplicity is not a goal, but one arrives at simplicity in spite of oneself, as one approaches the real meaning of things.
+ - Art is always the index of social vitality, the moving finger that records the destiny of a civilization. A wise statesman should keep an anxious eye on this graph, for it is more significant than a decline in exports or a fall in the value of a nation’s currency.
+ - Only a people serving an apprenticeship to nature can be trusted with machines. Only such people will so contrive and control those machines that their products are an enhancement of biological needs, and not a denial of them.
+ - Perhaps it is this theory of all work and no play that has made the Marxist such a very dull boy.
+ - I can imagine no society which does not embody some method of arbitration.
+ - Works of art must persist as objects of contemplation.
+ - The slave may be happy, but happiness is not enough.
+ - It is already clear, after twenty years of socialism in Russia, that if you do not provide your society with a new religion, it will gradually revert to the old one.
+ - Art is pattern informed by sensibility.
+ - Art in its widest sense is the extension of the personality: a host of artificial limbs.
+ - The modern artist, by nature and destiny, is always an individualist.
+ - The modern work of art, as I have said, is a symbol.
+ - If we persist in our restless desire to know everything about the universe and ourselves, then we must not be afraid of what the artist brings back from his voyage of discovery.
+ - It was Nietzsche who first made us conscious of the significance of the individual as a term in the evolutionary process-in that part of the evolutionary process which has still to take place.
+ - Progress is measured by richness and intensity of experience – by a wider and deeper apprehension of the significance and scope of human existence.
+ - I am not going to claim that modern anarchism has any direct relation to Roman jurisprudence; but I do claim that it has its basis in the laws of nature rather than in the state of nature.
+ - The depths modern art has been exploring are mysterious depths, full of strange fish...
+ - Man is everywhere still in chains.
+ - There are a few people, but a diminishing number, who still believe that Marxism, as an economic system, off era a coherent alternative to capitalism, and socialism has, indeed, triumphed in one country.
+ - Spontaneity is not enough – or, to be more exact, spontaneity is not possible until there is an unconscious coordination of form, space and vision.
+ - Creeds and castes, and all forms of intellectual and emotional grouping, belong to the past.
+ - My own early experiences in war led me to suspect the value of discipline, even in that sphere where it is so often regarded as the first essential for success.
+ - That is why I believe that art is so much more significant than either economics or philosophy. It is the direct measure of man’s spiritual vision.
+ - These groups within a society can he distinguished according as to whether, like an army or an orchestra, they function as a single body; or whether they are united merely to defend their common interests and otherwise function as separate individuals.
+ - The farther a society progresses, the more clearly the individual becomes the antithesis of the group.
+ - Freud has shown one thing very clearly: that we only forget our infancy by burying it in the unconscious; and that the problems of this difficult period find their solution under a disguised form in adult life.
+ - The assumption is that the right kind of society is an organic being not merely analogous to an organic being, but actually a living structure with appetites and digestions, instincts and passions, intelligence and reason.
+ - The characteristic political attitude of today is not one of positive belief, but of despair.
+ - The sense of historical continuity, and a feeling for philosophical rectitude cannot, however, be compromised.
+ - The only sin is ugliness, and if we believed this with all our being, all other activities of the human spirit could be left to take care of themselves.
+ - Morality, as has often been pointed out, is antecedent to religion-it even exists in a rudimentary form among animals.
+ - The fundamental purpose of the artist is the same as that of a scientist: to state a fact.
+ - If modern art has produced symbols that are unfamiliar, that was only to be expected.
+ - The worth of a civilization or a culture is not valued in the terms of its material wealth or military power, but by the quality and achievements of its representative individuals – its philosophers, its poets and its artists.
+ - If the individual is a unit in a corporate mass, his life is not merely brutish and short, but dull and mechanical.
+ - But the further step, by means of which a civilization is given its quality or culture, is only attained by a process of cellular division, in the course of which the individual is differentiated, made distinct from and independent of the parent group.
+ - You might think that it would he the natural desire of every man to develop as an independent personality, but this does not seem to be true.
+ - Revolt, it will be said, implies violence; but this is an outmoded, an incompetent conception of revolt. The most effective form of revolt in this violent world we live in is non-violence.
+ - I have not the slightest doubt that this form of individuation represents a higher stage in the evolution of mankind.
+ - To realize that new world we must prefer the values of freedom and equality above all other values – above personal wealth, technical power and nationalism.
+ - It does not seem that the contradiction which exists between the aristocratic function of art and the democratic structure of modern society can ever be resolved.
+ - We may be sure that out of the ruins of our capitalist civilization a new religion will emerge, just as Christianity emerged from the ruins of the Roman civilization.
+ - I call religion a natural authority, but it has usually been conceived as a supernatural authority.
+ - I know of no better name than Anarchism.
+ - What I do deny is that you can build any enduring society without some such mystical ethos.
+ - Nobody seriously believes in the social philosophies of the immediate past.
+ - The point I am making is that in the more primitive forms of society the individual is merely a unit; in more developed forms of society he is an independent personality.
+ - These are the sensations and feelings that are gradually blunted by education, staled by custom, rejected in favor of social conformity.
+ - In the evolution of mankind there has always been a certain degree of social coherence.
+
+57 quotes

@@ -1,0 +1,28 @@
+ - Good programmers know what’s beautiful and bad ones don’t.
+ - There are great science books that were conceived as books. Feynman’s famous introductory lectures in physics, which have a beginning and an end, which are written with style.
+ - I think the print media have failed to make the most of their opportunity. They may all disappear because they are approaching things in the wrong way.
+ - Really good ideas are always good beyond what you anticipated originally.
+ - The “paperless office” is a bad idea because paper is one of the most useful and valuable media ever invented. “On paper” is a good place for information you want to use; a bad place for information you want to store.
+ - The future was and remains the quintessential American art form. Other nations sit back and let their futures happen; we construct ours. We can let the future happen, or take the trouble to imagine it. We can imagine it dark or bright-and in the long run, that’s how it will be.
+ - Object-oriented programming as it emerged in Simula 67 allows software structure to be based on real-world structures, and gives programmers a powerful way to simplify the design and construction of complex programs.
+ - Computers make people stupid.
+ - For years, computer scientists were treating operating systems design as sort of an open-reserch issue, when the field’s direction had been decided by commercial operations. Computer science has become completely cut off from reality.
+ - The book is a form in which some of the greatest masterpieces that mankind has ever achieved are expressed;.
+ - The book is a unit and is such a brilliant ergonomic unit.
+ - Beauty is the ultimate defense against complexity.
+ - We still have books because they are so brilliantly suited to the way human beings absorb information and at their best, they are among the most beautiful things we have.
+ - Similarly for marking exercises, quantitative exercises, maybe not so much in mathematics, but certainly problem sets in physics, chemistry, and engineering and things like that where answers and methods are clear cut, absolutely. I would like to see that done online.
+ - One: Make Congress and the White House obey the same Obamacare rules you do. Two: Obama let business off for a year; we want workers to be let off for a year too. That’s the GOP plan. What part don’t you like?
+ - At the same time, on the networks, there are thousands of groups that are building lifestreams, or lifestreaming for themselves in their own way. We’d love to see this activity.
+ - In principle the first thing on the stream would be my birth certificate, a little electronic version of that, my parents would put my school records, health records, whatever of their child onto the stream. And the stream continues to flow forward through time.
+ - If this is the information age, what are we so well-informed about?
+ - There are certain subjects which seem to me can be taught very effectively online, although they aren’t.
+ - Software unification. So that I no longer care what computing device I pick up, whether it’s a laptop or desktop, whether it’s one I own or one in a public place, whether it has a small screen or a large screen.
+ - Abolishing the book is like abolishing the symphony, or sonata form, or the sonnet, or the wall painting.
+ - We can’t share the earth with pure evil anymore than we can share the earth with smallpox.
+ - I think the universities as we know them will be dead in a future years. I’d like to see them replaced by something better, instead of something worse, and it’s not clear which way it will go.
+ - I would love to see writing taught online because at university like Yale, there are not enough teachers who are able to teach writing well, or in some cases, there are none.
+ - Beauty is more important in computing than anywhere else in technology because software is so complicated. Beauty is the ultimate defense against complexity.
+ - The first step is always to succeed in becoming surprised – to notice that there is something funny going on.
+
+26 quotes

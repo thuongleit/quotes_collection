@@ -1,0 +1,181 @@
+ - The most complicated skill is to be simple.
+ - Why poetry, you ask? Because of life, I answer.
+ - God is busy and has no time for you.
+ - My feelings are too loud for words and too shy for the world.
+ - Fly without wings; Dream with open eyes; See in darkness.
+ - When all is lost, there is still a memory.
+ - Devil and God – two sides of the same face.
+ - I recreate myself; that is my only power.
+ - Wherever I go, I run into myself.
+ - In the essence of truth lies deceit.
+ - Every man needs his Siren To check his courage and strength When he hears her song In his travels through the unknown.
+ - Based on the law of probability Everything is possible because The sheer existence of possibility Confirms the existence Of impossibility.
+ - I can see myself before myself – A being through dark scenery.
+ - Oblivion cures the old wounds.
+ - Dreams are our only geography – our native land.
+ - Everybody talks, but there is no conversation.
+ - We will go far away, to nowhere, to conquer, to fertilize until we become tired. Then we will stop and there will be our home.
+ - There is another alphabet, whispering from every leaf, singing from every river, shimmering from every sky.
+ - A breeze, a forgotten summer, a smile, all can fit into a storefront window.
+ - When the star dies, Its eye closes; tired of watching, It flies back to its first bright dream.
+ - Through everything I have passed but nowhere I have been.
+ - Senses empower limitations, senses expand vision within borders, senses promote understanding through pleasure.
+ - You not only are hunted by others, you unknowingly hunt yourself.
+ - Knighthood lies above eternity; it doesn’t live off fame, but rather deeds.
+ - A big desire is not enough to meet the expectations of lost dreams.
+ - I visited many places, Some of them quite Exotic and far away, But I always returned to myself.
+ - Creating means living.
+ - Life eats life to live.
+ - For a moment at least, be a smile on someone else’s face.
+ - To keep the air fresh among words is the secret of verbal cleanliness.
+ - Be aware of the high notes, of the blissful faces and their soft messages, and listen for the silent message of a highly decorated gift.
+ - I wanted to write the most beautiful poem but that is impossible; the world has written its own.
+ - If an ancient man saw planes two thousand years ago He would’ve thought they were birds Or angels from another world Or messengers from other planets.
+ - Hope without love is hopeless.
+ - To leave out beautiful sunsets is the secret of good taste.
+ - There are no winners in real games.
+ - From whichever side I start, I think I am in an old place where others have been before me.
+ - It is beautiful to talk about beautiful things and even more beautiful to silently gaze at them.
+ - Love is almost never simple.
+ - We love the imperfect shapes in nature and in the works of art, look for an intentional error as a sign of the golden key and sincerity found in true mastery.
+ - When magic through nerves and reason passes, Imagination, force, and passion will thunder. The portrait of the world is changed.
+ - Either you will be you or you will not be at all.
+ - I am the shore and the ocean, awaiting myself on both sides.
+ - Infinity is the end. End without infinity is but a new beginning.
+ - Trying too hard to be too good, even when trying to be bad, is too good for the bad, too bad for the good.
+ - One hand I extend into myself, the other toward others.
+ - Nothing is made, nothing disappears. The same changes, at the same places, never stopping.
+ - Those who hate rain hate life.
+ - Arrival in the world is really a departure and that, which we call departure, is only a return.
+ - Too often, feelings arrive too soon, waiting for thoughts that often come too late.
+ - To hide feelings when you are near crying is the secret of dignity.
+ - Do not look too far for you will see nothing.
+ - Even great men bow before the Sun; it melts hubris into humility.
+ - Some people complain there are too many people on earth, Some people complain about secret societies, Some people accuse others of not being able to wake up early. Almost all people complain about something.
+ - Eyesight for an eagle is what thought is to a man.
+ - To go against the grain is the secret of bravery.
+ - How many unuttered words died in the heads of those for whom a word was too expensive.
+ - Life is only a flicker of melted ice.
+ - Deliver thunder, God If you choose not to talk.
+ - In an endless silence even screams sound silent.
+ - Color is the overpowering of black; white – the final victory over black.
+ - You are hurrying to the sweet place, To the nonsense chasing your spirit And in the nonsense you look for answers.
+ - Sound unbound by nature becomes bounded by art.
+ - When within yourself you find the road, the right road will open.
+ - Whatever others may say, they say it to deceive and comfort themselves, not help you.
+ - Get close to grass and you’ll see a star.
+ - A hidden spark of the dream sleeps In the forest and waits In the celestial spheres of the brain.
+ - Tell me something only you know and make a new friend.
+ - It is easy to see the glow but hard to recognize the awakening of silence.
+ - In every sound, the hidden silence sleeps.
+ - Words rich in meaning can be cheap in sound effects.
+ - And this that you call solitude is in fact a big crowd.
+ - Eternity is a glorious word, but eternity is ice.
+ - No reason for a feverish rush For we will all arrive in the same place At the right time. Justice will be served. There will be no better or worse, No big and small, no rewards, no punishment, No guilt, no judges, no hierarchies; Only silent equality.
+ - Heavenly bodies are nests of invisible birds.
+ - The deeper thought is, the taller it becomes.
+ - There is a moonlight note in the Moonlight Sonata; there is a thunder note in an angry sky.
+ - To dream on occasion is not dreaming, To love on occasion is not love.
+ - They blossomed, they did not talk about blossoming.
+ - To accomplish the perfect perfection, a little imperfection helps.
+ - The world is a navy in an empty ocean.
+ - When following God, Zero we never find.
+ - If you are only what you are, You at least have a chance Not to outsmart, But be on a par with yourself And that is worth trying.
+ - What does infinity mean to you? Are you not infinity and yourself?
+ - Will the day tell its secret Before it disappears, Becomes timeless night.
+ - From one bell all the bells toll.
+ - If emptiness is empty, how can something be borne or awaken from it?
+ - Either all lights are turned off or one inner light is missing.
+ - I travel, always arriving in the same place.
+ - How alive is thought, invisible, yet without thought there is no sight.
+ - I fly through memory to find a newborn love.
+ - Strangers are endearing because you don’t know them yet.
+ - The farther away, the closer the home becomes.
+ - Through words to the meaning of thoughts with no words.
+ - Digressions are part of harmony, deviations too.
+ - Every star was once darker than the night, before it awoke.
+ - It is vain futility to analyze the algebra of time.
+ - History will be erased in the universal purgatory.
+ - We forget old stories, but those stories remain the same.
+ - In trying to be perfect, He perfected the art of anonymity, Became imperceptible And arrived nowhere from nowhere.
+ - A smiling lie is a whirlwind, easy to enter, but hard to escape.
+ - A word only writes Its night and rides Its dream.
+ - The world is always open, Waiting to be discovered.
+ - When the long bygone Lee Po wanted to say something, he could do it with only a few words.
+ - I imagined I was God for a millisecond And became speechless for a long time.
+ - He tries to find the exit from himself but there is no door.
+ - Accidents are not accidents but precise arrivals at the wrong right time.
+ - God is a cloud from which rain fell.
+ - Since there is no real silence, Silence will contain all the sounds, All the words, all the languages, All knowledge, all memory.
+ - Two forces create eternity – a fairy tale and a dream from the fairy tale.
+ - Is it possible to write a poem or are these words just screams of outlaws exiled to the desert?
+ - I enjoy it when the world smiles; the more smiles, the warmer I am.
+ - Our desire to say more grows bigger and what to say about it, except that saying is not always about saying, growing is not always about growing.
+ - He will understand when it is too late that it is easier to love.
+ - Nothing is part of everything.
+ - In a myriad of ways you tell one truth.
+ - A word into the silence thrown always finds its echo somewhere where silence opens hidden lexicons.
+ - Even if you are alone you wage war with yourself.
+ - Courage is more important than to be deceived by shallow victory waiting for a delayed defeat.
+ - What you gain here, you lose on the other side.
+ - Through a forest of challenges, thought moves and squirms, resisting beguilements; if it endures, it emerges pure.
+ - From what you didn’t say, lies that you did say.
+ - You are not what you are; You are darkness Looking for light within.
+ - Possible is more a matter of attitude, A matter of decision, to choose Among the impossible possibilities, When one sound opportunity Becomes a possible solution.
+ - In the biggest and the smallest I sleep but at the same place I stay.
+ - Beyond all vanities, fights, and desires, omnipotent silence lies.
+ - Disease often comes with a smiling face.
+ - If what we think of ourselves were true, the planet would overflow with geniuses.
+ - Statesmen are grocers, ambitious clowns.
+ - We hear only our own voices, still echoes returning to our emptiness.
+ - Perfection seems sterile; it is final, no mystery in it; it’s a product of an assembly line.
+ - There is nobody to wake up eternal seekers.
+ - Serious affairs and history are carefully laid snares for the uninformed.
+ - Everything that looks too perfect is too perfect to be perfect.
+ - In greatness, life and death merge.
+ - Mathematics doesn’t care about those beyond the numbers.
+ - The same word we love and hate, leaves in different directions, taking different paths.
+ - The world is God’s salvation.
+ - You mark and celebrate errors, transforming failures into successes.
+ - There are many secrets; don’t try to resolve them all.
+ - Dream by making and make by dreaming.
+ - While gazing at myself from yourself, I was beautiful.
+ - When I want to be reminded of stupidity, especially my own, I turn on the TV.
+ - Nothing reminds us of an awakening more than rain.
+ - The night is still waiting.
+ - All dust is the same dust. Temporarily separated To go peacefully And enjoy the eternal nap.
+ - Without space, there is no time.
+ - For a game, you don’t need a teacher.
+ - If you are good, they say you are weak.
+ - Nobility is not only in forgiveness.
+ - Darkness does not age; nothing is always nothing.
+ - To not say all that can be said is the secret of discipline and economy.
+ - Creators of history always play with our impotence and our ignorance.
+ - Don’t pay attention to those who offer too much.
+ - There is no competition of sounds between a nightingale and a violin.
+ - All those big words produce disgust today.
+ - To understand possible means to understand impossible.
+ - Long ago an uncalled rain fell and a called-upon God stayed equally distant.
+ - Art is apotheosis; often, the complaint of beauty.
+ - Every thought about death takes a moment of life away.
+ - To come to nothing through something is the way to outside from both sides.
+ - It is not possible to express the most precious insights, To see all that craves to be seen, To visit even the closest neighbors in the universe, To learn all that needs to be learned, To live without dying, And I am sad about it. But I lived And I am happy about that.
+ - Before the first before and after the last after, there is night waiting.
+ - Entering a cell, penetrating deep as a flying saucer to find a new galaxy would be an honorable task for a new scientist interested more in the inner state of the soul than in outer space.
+ - Every scent is the sun’s scent.
+ - There can be no forced inspiration.
+ - To sense the peace of extinguished passion Happiness in not knowing the ultimate knowledge.
+ - With your goal you make the one.
+ - The world cannot be translated; It can only be dreamed of and touched.
+ - He thought others were small; that was his greatness.
+ - Pose your questions to people and you will get countless useless answers.
+ - You don’t know anything but I know even less.
+ - We grow from our dreams.
+ - Teaching others, he corrected himself.
+ - Death swallows death.
+ - Long ago we conquered our passions looking at ourselves in the mirror of eternity.
+ - All people are enslaved by something.
+ - We measure everything by ourselves with almost a necessary conceit.
+ - Omnipotence and omniscience are the end of power and knowledge.
+
+179 quotes

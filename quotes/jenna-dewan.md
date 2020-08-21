@@ -1,0 +1,23 @@
+ - If you consciously send negative energy toward someone, then what you send is exactly what you will attract upon yourself in your own life.
+ - Your surroundings may change but your essence and your personality pretty much stay the same.
+ - I’ve been trying really hard to be more domesticated. It’s not in my nature to clean and cook, and so I’ve been really good about it.
+ - I feel everything more deeply. Every action I take, I think of her first. That’s a big change for me. That – and no sleep!
+ - Music videos are notoriously long, not fun, grueling. You are known there as a dancer and it’s kind of sad because dancers, in a lot of ways, are under-appreciated and kind of under-respected when it come to that so they don’t necessarily treat you in a nice way when you do a music video.
+ - I have such a girl-crush on Reese Witherspoon. I would love to do a comedy with her.
+ - Old school Janet Jackson is always good. I usually go old school, it’s very rare that I pick a song from nowadays.
+ - I’m from Texas and actually went to a regular high school, but every day after school I’d run to dance class and practice a lot and then go back the next day and stuff like that.
+ - I was very personable and outgoing and was friends with most everybody in my class but I was a diehard dancer so I was constantly at dance classes and working toward my passion of dance.
+ - I’m open to whatever the universe wants to bring me.
+ - There’s a reason women are pregnant for nine months; by the end, you’re ready to have this baby.
+ - I’m a huge karaoke fan. Oh my God. I’m one of those girls who don’t give the mic away. It’s a problem. I’m a closeted pop star.
+ - I love to act. I want to be doing this forever, and I love to learn from people who I think are better.
+ - In high school I was always thinking, ‘Should I be doing more? What else should I be doing?’ Now I know it will all come to me. I just have to trust my path, so that’s very different.
+ - Most actors and actresses are consumed by careers and getting ahead.
+ - I really didn’t know how people were going to react to ‘Magic Mike’ because there hasn’t been a movie like it.
+ - I thought my body was going to change so quickly with pregnancy that I’d freak out. But it was really gradual.
+ - I always like Madonna; any Madonna song is good for me.
+ - I really like to act, and I really like to perform. I enjoy producing as well.
+ - I definitely believe in ghosts.
+ - I love the creative process, of getting to create your own show or your own movie, whatever it is you want to do, and have the resources to try and make that happen.
+
+21 quotes

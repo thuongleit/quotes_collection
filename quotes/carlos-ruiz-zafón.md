@@ -1,0 +1,210 @@
+ - Fools talk, cowards are silent, wise men listen.
+ - It’s a story of love, of hatred, and of the dreams that live in the shadow of the wind.
+ - There are no second chances in life, except to feel remorse.
+ - Never trust anyone, Daniel, especially the people you admire. Those are the ones who will make you suffer the worst blows.
+ - There’s no such thing as dead languages, only dormant minds.
+ - A story is a letter that the author writes to himself, to tell himself things that he would be unable to discover otherwise.
+ - Poetry is written with tears, fiction with blood, and history with invisible ink.
+ - Books are mirrors: you only see in them what you already have inside you.
+ - Deep down we’ve never been who we think we once were, and we only remember what never happened.
+ - So long as we are being remembered, we remain alive.
+ - The nurse knew that those who really love, love in silence, with deeds and not with words.
+ - Don’t be afraid of being scared. To be afraid is a sign of common sense. Only complete idiots are not afraid of anything.
+ - Every book, every volume you see here, has a soul. The soul of the person who wrote it and of those who read it and lived and dreamed with it. Every time a book changes hands, every time someone runs his eyes down its pages, its spirit grows and strengthens.
+ - The moment you stop to think about whether you love someone, you’ve already stopped loving that person forever.
+ - The Cemetery of Forgotten Books is like the greatest, most fantastic library you could ever imagine. Its a labyrinth of books with tunnels, bridges, arches, secret sections – and its hidden inside an old palace in the old city of Barcelona.
+ - There are two things that I cannot live without: music and books. Caffeine isn’t dignified enough to qualify.
+ - Presents are made for the pleasure of who gives them, not the merits of who receives them.
+ - Quien quiere de verdad quiere en silencio, con hechos, nunca con palabras.
+ - People tend to complicate their own lives, as if living weren’t already complicated enough.
+ - Memories are worse than bullets.
+ - Over time, loneliness gets inside you and doesn’t go away.
+ - It’s up to you how you waste your time and money. I’m staying here to read: life’s too short.
+ - Normal people bring children into the world; we novelists bring books. We are condemned to put our whole lives into them, even though they hardly ever thank us for it. We are condemned to die in their pages and sometimes even to let our books be the ones who, in the end, will take our lives.
+ - The greatest multiplex in the universe is inside your mind, and the only ticket you need is a good, well-written novel.
+ - Time goes faster the more hollow it is. Lives with no meaning go straight past you, like trains that don’t stop at your station.
+ - Barcelona is a very old city in which you can feel the weight of history; it is haunted by history. You cannot walk around it without perceiving it.
+ - People with a meagre soul always try to make others feel small too.
+ - I don’t suppose you have many friends. Neither do I. I don’t trust people who say they have a lot of friends. It’s a sure sign that they don’t really know anyone.
+ - A Gentleman’s agreement cannot be broken without breaking the person who has entered into it.
+ - Remember me, even if it’s only in a corner and secretly. Don’t let me go.
+ - A secret’s worth depends on the people from whom it must be kept.
+ - Do you know the best thing about broken hearts? They can only really break once the rest is just scratches.
+ - For some reason, I never felt the need to have kids. My wife feels the same. We don’t feel a void. I don’t think they would give my life meaning. I do think of the books as my children, though. Whatever is inside of me, I put into my books.
+ - I leafed through the pages, inhaling the enchanted scent of promise that comes with all new books, and stopped to read the start of a sentence that caught my eye.
+ - Delving into the past had unveiled a cruel lesson – that in the book of life it is perhaps best not to turn back pages; it was a path on which, whatever direction we took, we’d never be able to choose our own destiny.
+ - There was no more good or evil in this world than we imagine there to be, either out of greed or out of innocence. Or sometimes madness.
+ - One loves truly only once in a lifetime, Julian, even if one isn’t aware of it.
+ - Everything is a tale, Martin. What we believe, what we know, what we remember, even what we dream. Everything is a story, a narrative, a sequence of events with characters communicating an emotional content. We only accept as true what can be narrated.
+ - My childhood was surrounded by books and writing. From a very early age I was fascinated by storytelling, by the printed word, by language, by ideas. So I would seek them out.
+ - Destiny is usually just around the corner. Like a thief, a hooker, or a lottery vendor: its three most common personifications. But what destiny does not do is home visits. You have to go for it.
+ - Army, Marriage, the Church, and Baking: the Four Horseman of the Apocalypse. Fermin Romero de Torres – The Shadow of the Wind.
+ - I swim against the tide because I like to annoy.
+ - I was raised among books, making invisible friends in pages that seemed cast from dust and whose smell I carry on my hands to this day.
+ - Every labyrinth has its minotaur.
+ - Julian once wrote that coincidences are the scars of fate. There are no coincidences, Daniel. We are puppets of our subconscious desires.
+ - I’ve always thought that we are what we remember, and the less we remember, the less we are.
+ - It’s hard work, writing, you know. Honestly, a fight every day against your own limitations. You have to squeeze books out of your brain, you’re constantly trying to solve challenges. I think most writers enjoy the feeling of having written something, rather than the process of writing it.
+ - While you’re working, you don’t have to look life in the eye.
+ - The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich.
+ - Few things leave a deeper mark on the reader, than the first book that finds its way to his heart.
+ - Sometimes we think people are like lottery tickets, that they’re there to make our most absurd dreams come true.
+ - None of us are what we once were.
+ - I stepped into the bookshop and breathed in that perfume of paper and magic that strangely no one had ever thought of bottling.
+ - Once you lost all hope, time began to go faster and the senseless days deadened your soul.
+ - Thunder and lightning, it’s like the end of the world.
+ - We are puppets of our subconscious desires.
+ - We exist as long as somebody remembers us.
+ - I could tell you it’s the heart, but what is really killing him is loneliness. Memories are worse than bullets.
+ - That book taught me that by reading, I could live more intensely. It could give me back the sight I had lost. For that reason alone, a book that didn’t matter to anyone changed my life.
+ - If you really want to possess a woman, you must think like her, and the first thing to do is win over her soul. The rest, that sweet, soft wrapping that steals away your senses and your virtue, is a bonus.
+ - She was seventeen, her entire life shining on her lips.
+ - Literature, at least good literature, is science tempered with the blood of art. Like architecture or music.
+ - We think we understand a song’s lyrics but what makes us believe in them, or not, is the music.
+ - When everyone is determined to present someone as a monster, there are two possibilities: either he’s a saint or they themselves are not telling the whole story.
+ - You women listen more to your heart and less to all the nonsense. That’s why you live longer.
+ - The only way you can truly get to know an author is through the trail of ink he leaves behind him. The person you think you see is only an empty character: truth is always hidden in fiction.
+ - This cures everything except stupidity, which is an epidemic on the rise.
+ - Bea says that the art of reading is slowly dying, that it’s an intimate ritual, that a book is a mirror that offers us only what we already carry inside us, that when we read, we do it with all our heart and mind, and great readers are becoming more scarce by the day.
+ - As it unfolded, the structure of the story began to remind me of one of those Russian dolls that contain innumerable ever-smaller dolls within. Step by step the narrative split into a thousand stories, as if it had entered a gallery of mirrors, its identity fragmented into endless reflections.
+ - I’ve always thought that anyone who needs to join a herd so badly must be a bit of a sheep himself.
+ - Most of us have the good or bad fortune of seeing our lives fall apart so slowly we barely notice.
+ - I always felt that I was a writer, that was what I had to do.
+ - I quarreled with every word, every phrase and expression, every image and letter as if they were the last I was ever going to write. I wrote and rewrote every line as if my life depended on it, and then rewrote it again.
+ - His soul is in his stories. I once asked him who inspired him to create his characters, and his answer was no one. That all his characters were himself.
+ - It’s the student who makes the teacher, not the other way around.
+ - You know who your true friends are when things go wrong for you, but the opposite is also true. When things go well, the people who really love you are happy.
+ - Waiting is the rust of the soul.
+ - Envy is the religion of the mediocre.
+ - In small towns, news travels at the speed of boredom.
+ - I knew when I was writing The Angel’s Game that a lot of people would be upset that I didn’t write Shadow Of The Wind 2. That’s okay, that’s part of the game. You do what you have to do. If they like it, great. If they don’t, too bad. What are you going to do?
+ - The words with which a child’s heart is poisoned, whether through malice or through ignorance, remain branded in his memory, and sooner or later they burn his soul.
+ - Our world will not die as the result of the bomb, as the papers say, it will die of laughter, of banality, or making a joke of everything, and a lousy joke at that.
+ - There are two things in life you cannot choose. The first is your enemies; the second your family. Sometimes the difference between them is hard to see, but in the end time will show you that the cards you have been dealt could always have been worse.
+ - People talk too much. Humans aren’t descended from monkeys. They come from parrots.
+ - But in good time you’ll see that sometimes what matters isn’t what one gives but what one gives up.
+ - I still remember the day my father took me to the Cemetery of Forgotten Books for the first time.
+ - Man is a moral animal abandoned in an amoral universe and condemned to a finite existence with no other prupose than to perpetuate the natural cycle of the species.
+ - A good friend once told me that the problems are like cockroaches. If drawn to light, they’ll get scared.
+ - I wandered off, walking through streets that seemed emptier than ever, thinking that if I didn’t stop, if I kept on walking, I wouldn’t notice that the world I thought I knew was no longer there.
+ - Whoever said that childhood is the happiest time of your life is a liar, or a fool.
+ - Perhaps for that very reason, I adored her all the more, because of the eternal human stupidity of pursuing those who hurt us the most.
+ - In Los Angeles you get the sense sometimes that there’s a mysterious patrol at night: when the streets are empty and everyone’s asleep, they go erasing the past. It’s like a bad Ray Bradbury story.
+ - Nobody knows much about women, not even Freud, not even women themselves. But it’s like electricity: you don’t need to know how it works to get a shock on the fingers.
+ - Silence makes idiots seem wise even for a minute.
+ - Never trust he who trusts everyone.
+ - Childhood devotions make unfaithful and fickle lovers.
+ - In this world the only opinion that holds court is prejudice.
+ - Every work of art is aggressive, Isabella. And every artist’s life is a small war or a large one, beginning with oneself and one’s limitations. To achieve anything you must first have ambition and then talent, knowledge, and finally the opportunity.
+ - The wider the author’s arsenal of tools and the better technically equipped the storyteller is, the better the tale will be.
+ - A man must have vices, expensive ones if possible. Otherwise when he reaches old age he will have nothing to be redeemed from.
+ - To truly hate is an art one learns with time.
+ - It is impossible to survive in a prolonged state of reality.
+ - There are few reasons for telling the truth, but for lying the number is infinite.
+ - We all give up great expectations along the way.
+ - Paris is the only city in the world where starving to death is still considered an art.
+ - Coincidences are the scars of fate.
+ - Death does that: it makes everyone feel sentimental. When we stand in front of a coffin, we all see only what is good or what we want to see.
+ - Resentment slowly poisoned my blood and I laughed at myself and my absurd hopes.
+ - One of the pitfalls of childhood is that one doesn’t have to understand something to feel it. By the time the mind is able to comprehend what has happened, the wounds of the heart are already too deep.
+ - He would have liked to know that somebody wanted to keep him alive, that someone remembered him. He used to say that we exist as long as somebody remembers us.
+ - Human nature provides the lyrics, and we novelists just compose the music.
+ - Sometimes I think that Darwin made a mistake and that in fact man is descended from the pig, because eight out of every ten members of the human race are swine, and as crooked as a hog’s tail.
+ - Madmen always think it’s the others who are mad.
+ - People only disappear when they have somewhere to go.
+ - Old age is the lubricant of belief. When death knocks at the door, skepticism flies out the window. A serious cardiovascular fright and a person will even believe in Little Red Riding Hood.
+ - The rain was still crashing down, angrily machine-gunning the large windows; it poured through the gutters up in the tower and funneled along the flat roof, sounding like footsteps on the ceiling.
+ - Everything can be forgiven in this world, save telling the truth.
+ - One mustn’t dream of one’s future; one must earn it.
+ - And here I was thinking you were a bit slow, what with so much asking and not knowing anything.
+ - It’s curious how easy it is to tell a piece of paper what you don’t dare say to someone’s face.
+ - People might not agree with me, but I think a woman should have a feminine shape, something you can get your hands on. You, on the other hand, look like you might be partial to the skinny type, a point of view I fully respect, don’t misunderstand me.
+ - God gives us life, but the world’s landlord is the devil...
+ - Never trust girls who let themselves be touched right away. But even less those who need a priest for approval.
+ - Nothing is fair. The most one can hope is for things to be logical. Justice is a rare illness in a world that is otherwise a picture of health.
+ - Julian spoke with the clear, unequivocal lucidity of madmen who have escaped the hypocrisy of having to abide by a reality that makes no sense.
+ - When ‘The Shadow of the Wind’ became a success I had already been a working writer, I’d been through the ups and downs, I’d seen how it worked.
+ - Nothing important is learned; it is simply remembered.
+ - You’re as white as a nun’s buttock. Are you all right?
+ - Books hold no passports. There’s only one true literary tradition: the human.
+ - I’m not talking to anyone, I’m delivering a monologue. It’s the inebriated man’s prerogative.
+ - Keep your dreams, you never know when you might need them.
+ - One can convert only a sinner, never a saint.
+ - Are you not tempted to create a story for which men and women would live and die, for which they would be capable of killing and allowing them to be killed, of sacrificing and condemning themselves, of handling over their souls?
+ - One never forgets faces one wholeheartedly detests.
+ - In the shop we buy and sell them, but in truth books have no owner. Every book you see here has been somebody’s best friend.
+ - We had yet to learn that the Devil created youth so that we could make our mistakes, and that God established maturity and old age so that we could pay for them...
+ - Nobody had noticed, nobody had paid attention, but, as usual, the essential part of the matter had been settled before the story had begun, and by then it was too late.
+ - Whether we realise it or not, most of us define ourselves by opposing rather than by favouring something or someone. To put it another way, it is easier to react than to act.
+ - If you think you’re the only person for whom life is painful, you’re wrong. And if you don’t mind letting yourself die like a dog, at least have the decency to remember that there are those of us who do care – although, to tell the truth, I don’t see why?
+ - Don Basilio was a forbidding-looking man with a bushy mustache who did not suffer fools and who subscribed to the theory that the liberal use of adverbs and adjectives was the mark of a pervert or someone with a vitamin deficiency.
+ - You end up becoming someone you see in the eyes of those you love.
+ - Those were the words she wanted to hear and she finally surrendered to the temptation of believing them.
+ - A good liar knows that the most efficient lie is always a truth that has had a key piece removed from it.
+ - I think you judge yourself too severely, a quality that always distinguishes people of true worth.
+ - Everything in life in nonsense. it’s just a question of persepctive.
+ - I hoped my absence made them happy or at least made them forget that they weren’t happy and never will be.
+ - It’s only worth staying in bed if you’re young and in good company.
+ - It seems that in the advanced stages of stupidity, a lack of ideas is compensated for by an excess of ideologies.
+ - I had never known the pleasure of reading, of exploring the recesses of the soul, of letting myself be carried away by imagination, beauty, and the mystery of fiction and language. For me all those things were born with that novel.
+ - Men are like chestnuts they sell in the street: they’re all hot and they all smell good when you buy them, but when you take them out of the paper cone you realise that most of them are rotten inside.
+ - Human beings believe just as they breathe – in order to survive.
+ - In my schoolboy reveries, we were always two fugitives riding on the spine of a book, eager to escape into worlds of fiction and secondhand dreams.
+ - My wife and I were never happy here. Spain can be narrow-minded, and provincial. In LA you don’t have to justify yourself. I think I will leave here again soon and move back there.
+ - I’m interested in everything. I don’t see why Borges can’t work along with Neil Gaiman, or Stephen King can’t be mixed with Balzac. It’s just storytelling; it’s different ways of using codes and images and words and sounds.
+ - The Cemetery of Forgotten Books is a metaphor, not just for books but for ideas, for language, for knowledge, for beauty, for all the things that make us human, for collecting memory.
+ - The truth is what hurts.
+ - One is never wholly conscious of the greed hidden in one’s heart until one hears the sweet sound of silver.
+ - As I walked, I ran my fingers along the spines of hundreds of books. I let myself be imbued with the smell, with the light that filtered through the cracks or from the glass lanterns embedded in the wooden structure, floating among mirrors and shadows.
+ - A modern-day Dickens with a popular voice and a genius for storytelling in any genre, Stephen King has written many wonderful books.
+ - The air seemed poisoned with fear and hatred. People eyed on another suspiciously, and the streets smelled of a silence that knotted your stomach.
+ - Few things are more deceptive than memories.
+ - There are people you remember and people you dream of.
+ - Sometimes feeling and thinking are one and the same.
+ - We are willing to believe anything other than the truth.
+ - I can’t die yet, doctor. Not yet. I have things to do. Afterwords I’ll have a whole lifetime in which to die.
+ - I decided that my existence would be one of books and silence.
+ - It was a well-known fact that the richness of buttery foods led to the moral ruin and confusion of the intellect.
+ - Where he had failed, I would triumph. Where he had lost his way, I would find the path out of the labyrinth.
+ - Time has taught me not to lose hope, yet not to trust too much in hope either.
+ - Some like to believe it’s the book that chooses the person.
+ - You young people never say anything. And us old folks don’t know how to stop talking.
+ - I don’t care what happens in 100 years. I won’t be around.
+ - Does the madman know he is mad? Or are the madmen those who insist o. Convincing him of his unreason in order to safeguard their own idea of reality?
+ - We spend a good part of our lives dreaming, especially when we’re awake.
+ - Why is it that all wars are won by bankers?
+ - If people thought a quarter of what they speak, this world would be heaven.
+ - It might have been that notion, or just chance, or its more flamboyant relative, destiny.
+ - With women, the best part is the discovery. There’s nothing like the first time, nothing. You don’t know what life is until you undress a woman for the first time. A button at a time, like peeling a hot sweet potato on a winter’s night.
+ - Wine turns the wise man into a fool and the fool into a wise man.
+ - I’ve always said that idleness dulls the spirit. We have to keep the brain busy, or at least the hands if we don’t have a brain.
+ - Maturity is simply the process of discovering that everything you believed in when you were young is false and that all the things you refused to believe in turn out to be true.
+ - I turned you into a stranger in order to forget you and now I’m the stranger.
+ - Time curses all, I thought, except the truth.
+ - I like to believe that storytelling transcends age limitations.
+ - The world’s very small when you don’t have anywhere to go.
+ - Blaming TV as an abstract entity is nonsensical. It’s our hand on the remote. There’s a world out there outside the tube.
+ - Life had taught her that we all require big and small lies in order to survive, just as much as we need air. She used to say that if during one single day, from dawn to dusk, we could see the naked reality of the world, and of ourselves, we would either take our own lives or lose our minds.
+ - Every book has a soul, the soul of the person who wrote it and the soul of those who read it and dream about it.
+ - I discovered that seventeen-year-old girls have such huge verbal energy that their brain drives them to expend it every twenty seconds. On the third day I decided I had to find her a boyfriend – if possible, a deaf one.
+ - Money is like any other virus: once it has rotted the soul of the person who houses it, it sets off in search of new blood.
+ - You don’t win a game by hitting the ball out of the court.
+ - Disarmed, I realized how easily you can lose all animosity toward someone you’ve deemed your enemy as soon as that person stops behaving as such.
+ - I tried to swallow his nonsense without choking.
+ - That’s what happens when people reach old age; nobody remembers they’ve been bastards too.
+ - There are times and places where not to be anyone is more honourable than to be someone.
+ - Whenever it poured like this, Max felt as if time was pausing. It was like a cease-fire during which you could stop whatever you were doing and just stand by a window for hours, watching the performance, an endless curtain of tears falling from heaven.
+ - If only everything hurt as little as a blow to the face.
+ - How many lost souls do You need, Lord, to satisfy Your hunger? the hatter asked. God, in His infinite silence, looked at him without blinking.
+ - I was aware of the risks I was taking, but I did’nt care.
+ - Sometimes, in difficult circumstances, one can confuse compassion with love.
+ - I prefer you like this, when you’re in a foul mood, because you tell the truth.
+ - The most despicable humans are the ones who always feel virtuous and look down on the rest of the world.
+ - In those days I learned that nothing is more frightening than a hero who lives to tell his story, to tell what all those who fell at his side will never be able to tell.
+ - In principle I’m an atheist, although in fact I have a lot of faith.
+ - Los Angeles is one of those places where somebodies become nobodies and nobodies become somebody.
+ - I was always fascinated by the fact that you could take paper and ink and create worlds, images, characters. It seemed like magic.
+ - They had parted as boys, and now life presented one of them with a fugitive and the other with a dying man. Both wondered whether this was due to the cards they’d been dealt or to the way they had played them.
+ - Truth is, only the useless get to the top in this country.
+
+208 quotes

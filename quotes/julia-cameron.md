@@ -1,0 +1,211 @@
+ - Do not call procrastination laziness. Call it fear.
+ - Water seeks its own level and water rises collectively.
+ - Treating myself like a precious object will make me strong.
+ - Creativity is God’s gift to us. Using our creativity is our gift back to God.
+ - Sometimes, in order to go forward, You must first go back.
+ - The creator made us creative. Our creativity is our gift from God. Our use of it is our gift to God. Accepting this bargain is the beginning of true self-acceptance.
+ - Progress, not perfection, is what we should be asking of ourselves.
+ - Art opens the closets, airs out the cellars and attics. It brings healing.
+ - If you work on your creativity, you deepen your spirituality. And if you work on your spirituality, you deepen your creativity.
+ - Creativity occurs in the moment, and in the moment we are timeless.
+ - When we clear the physical clutter from our lives, we literally make way for inspiration and ‘good, orderly direction’ to enter.
+ - All too often, it is audacity and not talent that moves an artist to center stage.
+ - Serious art is born from serious play.
+ - It’s impossible to get better and look good at the same time.
+ - There will be many times when we won’t look good-to ourselves or anyone else. We need to stop demanding that we do. It is impossible to get better and look good at the same time.
+ - As you move toward a dream, the dream moves toward you.
+ - There is a connection between self-nurturing and self-respect.
+ - Did you write today? Then you’re a writer today.
+ - Workaholism is a block, not a building block.
+ - When we do what we really love, money will come, the door will open. We feel useful and work as a game that.
+ - Writing-and this is the big secret-wants to be written. Writing loves a writer the way God loves a true devotee. Writing will fill your heart if you let it. It will fill your pages and help to fill your life.
+ - Workaholism is an addiction, and like all addictions, it blocks creative energy.
+ - When we stop playing God, God can play through us.
+ - Being in the mood to write, like being in the mood to make love, is a luxury that isn’t necessary in a long-term relationship. Just as the first caress can lead to a change of heart, the first sentence, however tentative and awkward, can lead to a desire to go just a little further.
+ - Enthusiasm is not an emotional state. It is a spiritual commitment, a loving surrender to our creative process. Enthusiasm – from the Greek, filled with God – is an ongoing energy supply tapped into the flow of life itself.
+ - Accept the fact that you’re an artist and stop second-guessing yourself. Just do it.
+ - Creativity is always a leap of faith. You’re faced with a blank page, blank easel, or an empty stage.
+ - What we focus on, we empower and enlarge. Good multiplies when focused upon. Negativity multiplies when focused upon. The choice is ours: Which do we want more of?
+ - Nothing dies harder than a bad idea.
+ - Next to Morning Pages and Artist Dates, the most potent tool for contacting inner guidance and creativity is walking.
+ - Once we are willing to accept that anything worth doing might even be worth doing badly, our options widen.
+ - At it’s essence, art is an alchemical process. Alchemy is a process of transformation.
+ - The essential element in nurturing our creativity lies in nurturing ourselves.
+ - An artist paints, dances, draws, writes, designs, or acts at the expanding edge of consciousness. We press into the unknown rather than the known. This makes life lovely and lively.
+ - We must attend to what our inner guidance is nudging us toward.
+ - The Artist’s Way is a spiritual journey, a pilrimage home to the self.
+ - The reward for attention is always healing.
+ - We are ourselves creations. We are meant to continue creativity by being creative ourselves. This is the God-force extending itself through us. Creativity is God’s gift to us. Using creativity is our gift back to God.
+ - We are meant to midwife dreams for one another. Success occurs in clusters.
+ - Writing is medicine. It is an appropriate antidote to injury. It is an appropriate companion for any difficult change.
+ - Writing just for the hell of it is heaven.
+ - Any little bit of experimenting in self-nurturance is very frightening for most of us.
+ - The heart of creativity is an experience of the mystical union; the heart of the mystical union is an experience of creativity.
+ - All change can be expansive in potential. The choice is ours.
+ - No matter what your age or your life path, whether making art is your career or your hobby or your dream, it is not too late or too egotistical or too selfish or too silly to work on your creativity.
+ - Many of us believe that ‘real artists’ do not experience self-doubt. In truth, artists are people who have learned to live with doubt and do the work anyway.
+ - Just as blood is a fact of your physical body and nothing you invented, creativity is a fact of your spiritual body and nothing you must invent.
+ - Love is the greatest medicine. I ask to be healing medicine for others. I ask my heart to expand its boundaries and to love others as they wish to be loved. I ask my heart to expand its boundaries and open to my being loved as I wish to be loved.
+ - Often it is tenacity, not talent, that rules the day.
+ - Creativity flourishes when we have a sense of safety and self-acceptance.
+ - In order to have a real relationship with our creativity, we must take the time and care to cultivate it.
+ - Creativity is not and never has been sensible.
+ - Do what intrigues you, explore what interests you; think mystery, not mastery.
+ - Writing is a combination of being alert to your outer surroundings and alive to your inner reality...
+ - Artists are visionaries. We routinely practice a form of faith, seeing clearly and moving toward a creative goal that shimmers in the distance – often visible to us, but invisible to those around us.
+ - As artists, we must learn to be self-nourishing. We must become alert enough to consciously replenish our creative resources as we draw on them.
+ - I think of making love and making art as being very parallel. Even the most amateur attempt can be thrilling.
+ - The need to be a great artist makes it hard to be an artist. The need to produce a great work of art makes it hard to produce any art at all.
+ - Doing work points the way to new and better work to be done.
+ - We are the ORIGIN of our art, its homeland. Viewed this way, ORIGINALITY is the process of remaining true to ourselves.
+ - As you explore your inner world, your outer world will come more sharply into focus. As you face your imagined barriers, you will encounter real ones, as well.
+ - When we walk, the two halves of our brains converse.
+ - When you feel yourself to be in critical condition, you must treat yourself as gently as you would a sick friend.
+ - The beginner’s humility and openness lead to exploration. Exploration leads to accomplishment. All of it begins at the beginning, with the first small and scary step.
+ - Love is not love if it compelled by reason and driven by logic – love exists in spite of those things, not because of them. It is a emotion which needs no fuel to fire it or oxygen to feed it; if you have to look for the why, then stop looking; it was never there at all.
+ - Your mood doesn’t really matter. Some of the best creative work gets done on the days when you feel that everything you’re doing is just plain junk.
+ - Judging your early artistic efforts is artist abuse.
+ - Answered prayers are scary. They imply responsibility. You asked for it. Now that you’ve got it, what are you going to do? Why else the cautionary phrase Watch out for what you pray for; you might just get it?
+ - I learned to just show up at the page and write down what I heard. Writing became more like eavesdropping and less like inventing a nuclear bomb.
+ - It is the inner commitment to be true to ourselves and follow our dreams that triggers the support of the universe.
+ - The voice of our original self is often muffled, overwhelmed, even strangled, by the voices of other people’s expectations.
+ - I bless the wisdom of my loving heart. Love is a form of listening. I listen with a loving heart. I listen to the love within my heart and I hear the love in the hearts of others.
+ - If we lean into what we love instead of soldiering toward what we ‘should,’ our pace quickens, our energy rises, optimism sets in. What we love is nutritious for us.
+ - Leap, and the net appears.
+ - The opposite of Prosperity is not poverty. It is anxiety.
+ - Art is the imagination at play in the field of time. Let yourself play.
+ - You are on the look out for experience, strength, and hope. You want to hear from the horse’s mouth exactly how disappointments have been survived. It helps to know that the greats have had hard times too and that your own hard times merely make you part of the club.
+ - People frequently believe the creative life is grounded in fantasy. The more difficult truth is that creativity is grounded in reality, in the particular, the focused, the well observed or specifically imagined.
+ - It takes constant vigilance not to slip into negativity or simple apathy. It takes courage to believe over any given period of time that we are getting better and not sliding into decline.
+ - Nothing dies harder than a bad idea. And few ideas are worse than the ones we have about art.
+ - You are your own Promised Land, your own new frontier.
+ - Technology teaches passivity. Absorbed in our devices – at any age – we are absorbed in someone elses perspective.
+ - The doing of something productive regardless of the outcome is an act of faith. The doing of a small something when a large something is too much for us is perhaps especially an act of faith. Faith means going forward by whatever means we can.
+ - It is all too easy as an artist to allow the shape of our career to be dictated to us by others. We can so easily wait to be chosen. Such passivity invites despair. To remain healthy and vital, artists must stay proactive in their own behalf.
+ - The growth of one blesses all. I am commited to grow in love. All that I touch, I leave in love. I move through this world consciously and creatively.
+ - By being willing to be a bad artist, you have a chance to be an artist, and perhaps, over time, a very good one.
+ - When we put the pen to paper, we articulate things in our life that we may have felt vague about. Before you write about something, somebody says, ‘How do you feel?’ and you say, ‘Oh, I feel okay.’ Then you write about it, and you discover you don’t feel okay.
+ - All of us are far richer than we imagine. None of us possesses a life devoid of magic.
+ - When you are feeling too dull and too domesticated get on a horse, sit tall in the saddle, and for a moment live in a world that feels like risk and adventure.
+ - When we open ourselves to exploring our creativity, we open ourselves to God: good, orderly direction.
+ - In times of pain, when the future is too terrifying to contemplate and the past too painful to remember, I have learned to pay attention to right now. The precise moment I was in was always the only safe place for me.
+ - There is not one pink flower, or even fifty pink flowers, but hundreds. Snowflakes, of course, are the ultimate exercise in sheer creative glee. No two alike. This creator looks suspiciously like someone who just might send us support for our creative ventures.
+ - Art is born in attention.
+ - Don’t try to ‘fix’ the child’s boredom – rather, let the child find his or her inner resources.
+ - If you want to write a novel, it’s the Divine mind wanting to express.
+ - In our human lives, we are often impatient, ill-tempered, inappropriate. We find it difficult to treat our intimates with the love we really hold for them. Despite this, they bear with us because of the larger, higher level of family that they honor even in our outbursts. This is their commitment.
+ - When we are on our right path, we have a surefootedness.
+ - Creativity is a fact of your spiritual body.
+ - We don’t often talk about the fact that writing is all about rhythm. When you get too up in your head, you can lose a lot of your writing. Sometimes what a writer really needs to do is go dancing.
+ - Writing is like breathing, it’s possible to learn to do it well, but the point is to do it no matter what.
+ - It is my experience both as an artist and as a teacher that when we move out on faith into the act of creation, the universe is able to advance. It is a little like opening the gate at the top of a field irrigation system. Once we remove the blocks, the flow moves in.
+ - I have learned, as a rule of thumb, never to ask whether you can do something. Say, instead, that you are doing it. Then fasten your seat belt. The most remarkable things follow.
+ - We go into parenting, and we discover that we don’t have the answers. We are at a loss.
+ - We are not accustomed to thinking that God’s will for us and our own inner dreams can coincide.
+ - Because if you’re trying to write and you have unlimited time, you can procrastinate an unlimited account, but if you have limited time, you rush to the page trying to get something down in the little bit of fragment of time that you have, and you may write a great deal that way.
+ - If you think of the universe as a vast electrical sea in which you are immersed and from which you are formed, opening to your creativity changes you from something bobbing in that sea to a more fully functioning, more conscious, more cooperative part of that ecosystem.
+ - You need to create pathways in your consciousness through which the creative forces operate.
+ - I am what I am again: a writer. I have metabolized the injury into art.
+ - What we really want to do is what we are really meant to do.
+ - There is a treadmill quality to workaholism.
+ - Most artists, ashamed of their need for encouragement, try to carry their work to term like a secret pregnancy.
+ - What payoff are you getting for remaining stuck at this point in your expansion?
+ - I believe that I am very lucky to have close friends who are faithful. From my friends, I have learned the importance of perseverance.
+ - Life is what we make of it. Whether we conceive of an inner god force or an other, outer God, doesn’t matter. Relying on that force does.
+ - Take a small step in the direction of a dream and watch the synchronous doors flying open.
+ - When we write about our lives we respond to them. As we respond to them we are rendered more fluid, more centered, more agile on our own behalf. We are tendered conscious.
+ - Creativity is the life force that Dylan Thomas called ’the force that through the green fuse drives the flower.
+ - If you are too busy to develop your talents, you are too busy.
+ - Money cannot fill an empty soul.
+ - It is important to remember that at first blush, going sane feels just like going crazy.
+ - Anger is meant to be acted upon. It is not meant to be acted out.
+ - Our modern ideas of ‘functioning’ through things are really quite inhuman. We have this idea that no matter what is going on we still have to color between the lines, act normal.
+ - We talk about self-expression but need to pause and remember that self-expression requires a self to express...
+ - Our internal artist is always our creative child.
+ - You are either losing your mind – or gaining your soul.
+ - When writing becomes too dominant, it gets leached of its own power. We spend more and more time writing, and we have less and less to write about.
+ - The grace to be a beginner is always the best prayer for an artist.
+ - We should write, above all, because we are writers, whether we call ourselves that or not.
+ - Some people find it easier to picture the stream of inspiration as being like radio waves of all sorts being broadcast at all times. With practice, we learn to hear the desired frequency on request. We tune in to the frequency we want.
+ - Pivotal to a happy writing life is a practice of daily personal writing.
+ - We undertake certain spiritual exercises to achieve alignment with the creative energy of the universe.
+ - Each of us has an inner dream that we can unfold if we will just have the courage to admit what it is, and the faith to trust our own admission. The admitting is often very difficult.
+ - I plant the seeds of love in my heart. I plant the seeds of love in the hearts of others.
+ - Creativity makes life useful to us. It also makes us useful to life.
+ - A sketch book freezes time. It is an instantaneous form of meditation focusing us on the worth of every passing moment.
+ - Selecting a challenge and meeting it creates a sense of self-empowerment that becomes the ground for further successful challenges.
+ - Wherever you are is always the right place. There is never a need to fix anything, to hitch up the bootstraps of the soul and start at some higher place. Start right where you are.
+ - Art is a spiritual practice. We may not, and need not, do it perfectly.
+ - Our moods and insights are transitory. This current is a flow of grace moving us to our right livelihood, companions, destiny.
+ - Faith is almost the bottom line of creativity; it requires a leap of faith any time we undertake a creative endeavor, whether this is going to the easel, or the page, or onto the stage.
+ - Setting skepticism aside, even briefly, can make for very interesting explorations. It is not necessary that we change any of our beliefs. It is necessary that we examine them.
+ - Exercise often moves us straight from stagnation to inspiration, from problem to solution, from self-pity to self-respect.
+ - In dance, in composition, in sculpture, the experience is the same: we are more the conduit than the creator of what we express.
+ - Doubt comes to the door in darkness, pretending to be alone and in need of your compassionate ear. But if you let him in, he’ll bring his friends.
+ - It hurts like hell when the world won’t invest in you. But it’s excruciating, almost more than you can bear, when you don’t believe and invest in yourself.
+ - Become willing to see the hand of God and accept it as a friend’s offer to help you with what you are doing.
+ - We all have time to write. We have time to write the minute we are willing to write badly, to chase a dead end, to scribble a few words, to write for the hell of it instead of for the perfect and polished result.
+ - I am a gate for God to accomplish great things. Through me and with me, new Life enters the world.
+ - As an experienced artist, I carry my work like a secret pregnancy. I am always aware of inner life and the need to protect it.
+ - What would a nontoxic god think of your creative goals? Might such a god really exist?
+ - Adversity is a misperception as all works toward the good.
+ - We waste a lot of time and a lot of talent trying to write for the common reader, whom we will never meet. Instead we should be writing for our ideal reader.
+ - Pray to catch the bus, then run as fast as you can.
+ - So much of an artist’s career hinges on the sense that we are going somewhere, that we are not just trapped by the four walls of wherever we are. For creative sanity, I must believe that if I just do the next right thing, a path will unfold for me.
+ - All of us contain a divine, expressive spark, a creative candle intended to light our path and that of our fellows.
+ - I believe that the dark night of the soul is a common spiritual experience. I believe, too, that the answer is continued seeking and perseverance. It helps to know that others have endured a loss of faith.
+ - We always do the best we can by the light we have to see by.
+ - Apologies are the art of spiritual housekeeping. They help to put and keep our lives in order.
+ - Mystery is at the heart of creativity. That, and surprise.
+ - Creativity is God’s will for us and should be practiced like any other spiritual practice -a day at a time.
+ - In order to thrive as artists we need to be available to the universal flow. When we put a stopper on our capacity for joy by anorectically declining the small gifts of life, we turn aside the larger gifts as well.
+ - I am due at the page.
+ - As a writer, I find holidays often disturbing, not liberating, in their disruption of tempo, their open-ended time.
+ - When we survey our lives, seeking to fulfil our creativity, we often see we had a dream that went glimmering because we believed, and those around us believed, that the dream was beyond our reach.
+ - It is the use of creativity which heals the creative wound.
+ - When I went in, my editor said, ‘I hope you don’t think you’re a writer.’ And I said, ‘I hope you don’t think I’m a journalist.’ And, uh, turned out we were both right.
+ - We tend to think being hard on ourselves will make us strong. But it is cherishing ourselves that gives us strength.
+ - If we are forever yearning for more time, we are forever discounting what is offered.
+ - When it was suggested that I write a memoir I said, ‘I’m not old enough. I’m not distinguished enough.’ But I went home and sat down to write, and the material for the book just came flooding into my hands.
+ - When I ask for help with my creativity, I get it.
+ - My heart holds the world in tender awe.
+ - To write is to right things. A path will emerge.
+ - Writing responds well to some gentle scheduling. A day job not only promotes solvency, it promotes creativity as well.
+ - A career must be husbanded. Care must be taken. Everyday must bring some small bit of progress. How would an artist with any self-worth act? Act that way.
+ - We will experience the life we have the faith to experience.
+ - Agendas tend to drain the life out of relationships.
+ - Creativity is the natural order of life. Life is energy: pure creative energy.
+ - Expect the universe to support your dream. It will.
+ - We don’t always know what makes us happy. We know, instead, what we think SHOULD. We are baffled and confused when our attempts at happiness fail...
+ - Making art has taught me that the tiniest smidgen of progress is something to be cherished.
+ - Just as a good rain clears the air, a good writing day clears the psyche.
+ - I started writing morning pages just to keep my hand in, you know, just because I was a writer and I didn’t know what else to do but write. And then one day as I was writing, a character came sort of strolling in and I realized, Oh my God, I don’t have to be just a screenwriter. I can write novels.
+ - I believe that when we ask to be led, we are led, and there’s nothing too small or esoteric for spiritual help.
+ - I am breathing in and out. Realizing this, I began to notice that each moment was not without its beauty.
+ - A working artist is a playing artist.
+ - In a sense, as we are creative beings, our lives become our work of art.
+ - You are asked to keep a ledger – a small notebook will do – of money in and money out. Counting brings clarity, and clarity is one of the first and finest fruits of prosperity.
+ - We have this idea that we need to be in the mood to write. We don’t.
+ - My will for you is not harsh or unpleasant. It is gentle and perfectly tailored to your unique needs. Do not fear my direction. I am your heart’s happiest guide.
+ - When we let God be God and work through us, we experience both a sense of serenity and excitement.
+ - Writing is a spiritual practice in that people that have no spiritual path can undertake it and, as they write, they begin to wake up to a larger connection. After a while, people tend to find that there is some muse that they are connecting to.
+ - Anger is meant to be acted on. It is not meant to be acted out. Anger points the direction. We are meant to use anger as fuel to take the actions we need to move where our anger points us. With a little thought, we can usually translate the message that our anger is sending us.
+ - Our tears prepare the ground for our future growth.
+ - In creativity, as in running, you have to start where you are.
+ - By listening to the creator within, we are led to our right path.
+ - Choice by choice, moment by moment, I build the necklace of my day, stringing together the choices that form artful living.
+ - Try approving of yourself just as you are, and spoiling yourself rotten with small kid’s pleasures.
+ - Art is one of the few careers without a mandatory retirement age.
+ - Taking the time to write in our lives gives us the time of our lives. As we describe our environments, we begin to savor them. Even the most rushed and pell-mell life begins to take on the patina of being cherished.
+ - Making art is a rite of initiation. People change their souls.
+ - Creativity requires faith. Faith requires that we relinquish control.
+ - Creativity is our true nature; blocks are an unnatural thwarting of a process at once as normal and as miraculous as the blossoming of a flower at the end of a slender green stem.
+ - As we open our creative channel to the creator, many gentle but powerful changes are to be expected.
+ - No matter how sophisticated our lives may be we need to think of ourselves as creative children.
+ - For today, all you need is the grace to begin beginning.
+ - Making art is an act of faith.
+ - When I listen to love, I am listening to my true nature. When I express love, I am expressing my true nature.
+ - Soul is not about function; it’s about beauty, form, and memory.
+ - There is no such thing as being done with an artistic life. Frustrations and rewards exist at all levels on the path.
+
+209 quotes

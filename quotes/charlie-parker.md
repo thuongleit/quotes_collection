@@ -1,0 +1,22 @@
+ - If you don’t live it, it won’t come out your horn.
+ - Man, there’s no boundary line to art!
+ - Don’t be afraid, just play the music.
+ - I don’t care who likes it or buys it. Because if you use that criterion, Mozart would never have written Don Giovanni, Charlie Parker would have never played anything but swing music.
+ - You’ve got to learn your instrument. Then, you practice, practice, practice. And then, when you finally get up there on the bandstand, forget all that and just wail.
+ - Music is your own experience, your own thoughts, your wisdom. If you don’t live it, it won’t come out of your horn. They teach you there’s a boundary line to music. But, man, there’s no boundary line to art.
+ - Music is your own experience, your own thoughts, your wisdom.
+ - Don’t play the saxophone. Let it play you.
+ - I look at melody as rhythm.
+ - I kept thinking there’s bound to be something else? I could hear it sometimes, but I couldn’t play it.
+ - Once I could play what I heard inside me, that’s when I was born.
+ - I realized by using the high notes of the chords as a melodic line, and by the right harmonic progression, I could play what I heard inside me. That’s when I was born.
+ - When I first heard music, I thought it should be very clean, very precise. Something that people could understand, something that was beautiful.
+ - I can play all I know in eight bars.
+ - Learn the changes, then forget them.
+ - It’s just music. It’s playing clean and looking for the pretty notes.
+ - I’m very glad to have met you. I like your playing very much.
+ - It’s just music. It’s trying to play clean and looking for the pretty notes. The beat in a bop band is with the music, against it, behind it. It pushes it. It helps it. Help is the big thing. It has no continuity of beat, no steady chug-chug. Jazz has, and that’s why bop is more flexible.
+ - Bop is no love-child of jazz.
+ - You’ve got to learn your instrument.
+
+20 quotes

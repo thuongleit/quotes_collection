@@ -1,0 +1,21 @@
+ - Not my will, but Yours be done.
+ - The most beautiful women I’ve ever observed are those that have exchanged a self-focused life for a Christ-focused one. They are confident, but not in themselves. Instead of self-confidence, they radiate with Christ-confidence.
+ - A true leader must have enough backbone to stand alone – even when the crowd wants to take the easy road home. A true leader cannot be dependent on companionship for his or her security, but must learn to trust in God alone.
+ - The goal in any God-centered relationship should be to continually point the other person towards Christ, not continually draw attention towards you.
+ - Only when self moves out of the way can His spectacular glory come cascading through your life. When Jesus is in His rightful place, all insecurity will fade away and His lasting loveliness will become the mark of your life.
+ - Find a woman who cares about nothing but loving, serving, honoring, and glorifying Jesus Christ, and you will see who truly is the ‘fairest of them all.’
+ - Obediance, when it flows out of genuine love for Jesus Christ, is never wasted and never regretted.
+ - She was far too busy living out a passionate romance with Jesus Christ to be pining after an earthly prince.
+ - The first step to finding a God-written love story is handing the pen to the true Author of romance.
+ - The gospel is not outward rituals and sacrifices, it is a living sacrifice. It is to have the laws of God written in our heart. It is to have a soft, listening, responding heart to God.
+ - There is no safer place for your hopes and dreams than in the loving hands of your faithful Father.
+ - God gives His best to those who leave the choice to Him.
+ - I can’t help but wonder why we, as Christ professing young women so easily submit our minds and emotions to an industry that openly mocks the purity and righteousness of our Heavenly Prince.
+ - God’s sacred intent for you and for me is nothing short of absolute abandonment to Jesus, entire separation from the pollution of the world, and ardent worship of our King with every breath we take.
+ - The spectacular sparkle of set-apart femininity is found through absolute abandonment to the Author of all true beauty.
+ - God cannot honor anything, no matter its degree of sincerity, if it is contrary to His Word.
+ - When Christ becomes our focal point, we become everything we are meant to be-a servant to the glory of the King of all kings.
+ - It has been said by many great Christians that prayer is our secret weapon. If we desire to be free from every enemy stronghold over our lives and fully fortified to live the superhuman existences God intended us to live, then we must learn how to pray.
+ - Christianity has confused catching mice with the real work of the Kingdom, which is more like hunting lions.
+
+19 quotes

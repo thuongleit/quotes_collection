@@ -1,0 +1,67 @@
+ - What the hell am I doing with my life?
+ - Moisture is the essence of wetness, and wetness is the essence of beauty.
+ - Success doesn’t necessarily mean happiness.
+ - I’m pretty sure there’s a lot more to life than being really, really, ridiculously good looking. And I plan on finding out what that is.
+ - I love New York. I was sad, depressed and incredibly moved by our fellow countrymen and what they’ve done. I wanted to give people a chance to see something funny, have a distraction.
+ - I think this whole celebrity world is weird anyway. Weird and funny and kind of pathetic and yet so right for parody.
+ - God was showing off when he made you.
+ - Words can only hurt you if you try to read them. Don’t play their game!
+ - I’d love to travel more. I really look forward to traveling with my kids. I’m just waiting for them to want to travel with me.
+ - I have not been an easygoing guy. I think it’s called bipolar manic depression. I’ve got a rich history of that in my family.
+ - I love history. I’m very interested by it and I think it’s great to have a movie that brings it alive in a way. It’s sort of that romanticized version of it.
+ - I have a lot of nervous energy. Work is my best way of channelling that into something productive unless I want to wind up assaulting the postman or gardener.
+ - I’m just not a naturally cheery person. I’m naturally moody. I know that from people who spend a lot of time with me. People who spend a lot of time with me may not wish to spend a lot more time with me.
+ - I don’t need a compass to tell me which way the wind shines !
+ - When we were visiting New York City, I took my kids to the same playground where I went growing up. It was fun to feel that connection of having gone there as a kid and being there as a parent.
+ - I don’t think know if anything’s going to translate anywhere. You’re making a movie, you hope it’s going to be funny, you can’t think about how it’s going to go over.
+ - I’m not an expert on the Malaysian sense of humor.
+ - My parents used to throw great New Year’s Eve parties. They invited such an eclectic mix of showbiz people. All those cool people were always hanging out at our apartment.
+ - Nobody makes me bleed my own blood. Nobody!
+ - I’ve been to Japan but I’ve never been to China, I’d love to go to China. I don’t know, I like to go to places that are remote. So, I think I’d like to do that more. And just sort of also explore not having a structured work life someday, to have more free time to sort of see what happens.
+ - I don’t think it’s ever easy to be funny. I find it easy to amuse myself with a certain sort of cynical dark humor that tends toward the meaner side, like my character in Happy Gilmore. Those kinds of characters come easily to me.
+ - If you look at my eyes when I’m dancing, you’ll see that glazed look.
+ - Oh, you can milk just about anything with nipples.
+ - I studied Tom Cruise running in all the Mission Impossibles. I think he’s one of the best screen runners.
+ - I think people will be curious to see what I can do as a dramatic actor.
+ - I wanted to be funny for people who didn’t care about fashion at all, to just to kind of exist as a silly character.
+ - There’s an old saying in Hollywood: It’s not the length of your film, it’s how you use it.
+ - The cliches are that it’s the most generic Starsky and Hutch plot you can find.
+ - As a kid I had dreams about being successful, thinking it would be cool. Then, when I was in my 20s, I really thought I had it much more figured out than I do now.
+ - There’s always an element of fear that you need to work a lot until people get sick and tired of you or finally figure out that you’re a fraud after all!
+ - I was a bad student. I liked archaeology actually, I was interested in maybe becoming an archaeologist but I was such a bad student and had such bad grades that I wasn’t going to get into any really good college so I fell back on acting.
+ - I don’t devalue comedy as compared to drama. Not one bit.
+ - Jim Carrey, a comic genius, has a harder time overcoming the public’s desire for him to be funny simply because he’s so good at it.
+ - I don’t play hockey at all. I’m not comfortable on skates.
+ - It’s weird that people expect me to be funny. I find it a real burden when I’m expected to be humorous on talk shows.
+ - I’ve had a very good career and I’m grateful that the public has had some level of acceptance and appreciation of my work.
+ - I don’t even want to think of myself as an actor because it’s such an insecure place to go.
+ - I’m very interested in the early American history, the time when the country came together.
+ - It was a mixed blessing to have famous parents. It was tough to go to auditions and be bad, since I couldn’t be anonymous.
+ - Sometimes I wondered whether I hadn’t let my career get confined to one direction, but lately I’ve decided to accept the fact that I have this opportunity to be successful doing comedies.
+ - My own parents were touchy-feely.
+ - I actually started working on Madagascar before my daughter was born.
+ - It’s great to work with the people who make you laugh and who are funnier than I am.
+ - I don’t know what that weid fantasy is that makes people go, “Oh, you must have had a great childhood.”
+ - Zoolander was more of my own sensibility.
+ - I think you never want to have to go into the scene having to improvise; you want to make sure its working on the page. But I do like to have the ability to try stuff just in the moment, to give it some sort of spontaneity.
+ - You’re freaked out that you’re going to be having a child, and once you’re looking after your daughter, it’s the most beautiful thing in the world.
+ - I enjoy the work I do in comedies. It’s a valid test of your creative abilities.
+ - It’s what I wanted to do with my life. Not necessarily just direct Jim Carrey movies, but to direct and act and write and create and along the way discover what it is that I’m about.
+ - I don’t think the public is dying to see me necessarily be funny all the time.
+ - Whatever talent I had, I’m sure it helped that my parents were in the business and that I grew up around actors, comedians and directors.
+ - You have to stay in character in between takes.
+ - Stiller was able to reach speeds of around 35 miles per hour, no small task for someone who had never longboarded before.
+ - Paul is Starsky, and I met him before shooting. He was very kind and encouraged us to go with what we wanted to do. It was very sweet to see them back with the car after 25 years.
+ - Maybe forced retirement isn’t necessary after all.
+ - I know that I’m better as an actor when I’m working with a good actor. I think anytime you’re working with a better actor, it makes you a better actor.
+ - I would like to do more dramas when I find a good role that will allow me to politely upset people’s expectations of me as a comic actor.
+ - Very quickly after meeting Dustin, the whole image I had of him was shattered.
+ - Fashion is so over the top.
+ - I’m always willing to endure humiliation on behalf of my characters.
+ - I don’t have a burning desire to be taken seriously as an actor. I don’t have a master plan in that way.
+ - I think most politicians could take a dodgeball in the face.
+ - When you have kids you want to be able to go to movies and take the family too, and actually all enjoy it together. I don’t think there are that many great, live action family movies that everybody can enjoy.
+ - I grew up wanting to make movies, and along the way I suddenly found that I had a career doing comedy.
+ - The failure of The Cable Guy impacted my career. I had to start writing and acting again.
+
+65 quotes

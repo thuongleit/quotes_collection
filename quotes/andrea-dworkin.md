@@ -1,0 +1,83 @@
+ - Remember: Resist do not comply.
+ - I’m a radical feminist, not the fun kind.
+ - Sexism is the foundation on which all tyranny is built. Every social form of hierarchy and abuse is modeled on male-over-female domination.
+ - I want to see a man beaten to a bloody pulp with a high-heel shoved in his mouth, like an apple in the mouth of a pig.
+ - Men who want to support women in our struggle for freedom and justice should understand that it is not terrifically important to us that they learn to cry; it is important to us that they stop the crimes of violence against us.
+ - Under patriarchy, every woman’s son is her potential betrayer and also the inevitable rapist or exploiter of another woman.
+ - Feminism requires precisely what patriarchy destroys in women: unimpeachable bravery in confronting male power.
+ - Women’s fashion is a euphemism for fashion created by men for women.
+ - Feminism is hated because women are hated. Anti-feminism is a direct expression of misogyny; it is the political defense of women hating.
+ - We have a double standard, which is to say, a man can show how much he cares by being violent-see, he’s jealous, he cares-a woman shows how much she cares by how much she’s willing to be hurt; by how much she will take; how much she will endure; how suicidal she’s prepared to be.
+ - Pornography is the essential sexuality of male power: of hate, of ownership, of hierarchy; of sadism, of dominance.
+ - Women have been taught that, for us, the earth is flat, and that if we venture out, we will fall off the edge. Some of us have ventured out nevertheless, and so far we have not fallen off. It is my faith, my feminist faith, that we will not.
+ - Men characterize pornography as something mental because their minds, their thoughts, their dreams, their fantasies, are more real to them than women’s bodies or lives; in fact, men have used their social power to characterize a $10-billion-a-year trade in women as fantasy.
+ - Wild intelligence abhors any narrow world; and the world of women must stay narrow, or the woman is an outlaw. No woman could be Nietzsche or Rimbaud without ending up in a whorehouse or lobotomized.
+ - Could women’s liberation ever be a revolutionary movement, not rhetorically but on the ground?
+ - Men have constructed female sexuality and in so doing have annihilated the chance for sexual intelligence in women. Sexual intelligence cannot live in the shallow, predestined sexuality men have counterfeiteed for women.
+ - There is no place on earth, no day or night, no hour or minute, when one is not a Jew or a woman.
+ - By the time we are women, fear is as familiar to us as air; it is our element. We live in it, we inhale it, we exhale it, and most of the time we do not even notice it.
+ - Only when manhood is dead – and it will perish when ravaged femininity no longer sustains it – only then will we know what it is to be free.
+ - Families make possible the super-exploitation of women by training them to look upon their work outside the home as peripheral to their ‘true’ role.
+ - It is a tragedy beyond the power of language to convey when what has been imposed on women by force becomes a standard of freedom for women: and all the women say it is so.
+ - The common erotic project of destroying women makes it possible for men to unite into a brotherhood; this project is the only firm and trustworthy groundwork for cooperation among males and all male bonding is based on it.
+ - Surely the freedom of women must mean more to us than the freedom of pimps.
+ - If pornography releases sexual tension, why don’t we send recipe books to the starving?
+ - Women, for centuries not having access to pornography and now unable to bear looking at the muck on the supermarket shelves, are astonished. Women do not believe that men believe what pornography says about women. But they do. From the worst to the best of them, they do.
+ - While gossip among women is universally ridiculed as low and trivial, gossip among men, especially if it is about women, is called theory, or idea, or fact.
+ - We must refuse to submit to those institutions which are by definition sexist – marriage, the nuclear family, religions built on the myth of feminine evil.
+ - Heterosexual intercourse is the pure, formalized expression of contempt for women’s bodies.
+ - I never met a man who wasn’t stupider than me.
+ - Violation is a synonym for intercourse.
+ - Touch is the meaning of being human.
+ - Can women make use of men’s vulnerability not to marry but instead to destroy male power?
+ - The genius of any slave system is found in the dynamics which isolate slaves from each other, obscure the reality of a common condition, and make united rebellion against the oppressor inconceivable.
+ - You think intercourse is a private act; it’s not, it’s a social act. Men are sexually predatory in life; and women are sexually manipulative. When two individuals come together and leave their gender outside the bedroom door, then they make love.
+ - In my own life, I don’t have intercourse. That is my choice.
+ - Male dominance in society always means that out of public sight, in the private, ahistorical world of men with women, men are sexually dominating women.
+ - Truth is harder to bear than ignorance, and so ignorance is valued more – also because the status quo depends on it; but love depends on self-knowledge and self-knowledge depends on being able to bear the truth.
+ - Biological Superiority: The World’s Most Dangerous and Deadly Idea.
+ - If you want a definition of what a coward is, it’s needing to push a whole class of people down so that you can walk on top of them.
+ - When two individuals come together and leave their gender outside the bedroom door, then they make love.
+ - I have to ask you to resist, not comply, to destroy the power men have over women, to refuse to accept it, to abhor it, and to do whatever is necessary despite its cost to you to change it.
+ - The fact that we are all trained to be mothers from infancy on means that we are all trained to devote our lives to men, whether they are our sons or not; that we are all trained to force other women to exemplify the lack of qualities which characterizes the cultural construct of femininity.
+ - Childbearing is glorified in part because women die from it.
+ - The utopian male concept which is the premise of male pornography is this – since manhood is established and confirmed over and against the brutalized bodies of women, men need not aggress against each other; in other words, women absorb male aggression so that men are safe from it.
+ - Institutionalised in sports, the military, acculturated sexuality, the history and mythology of heroism, violence is taught to boys until they becomes its advocates.
+ - The traditional flowers of courtship are the traditional flowers of the grave, delivered to the victim before the kill. The cadaver is dressed up and made up and laid down and ritually violated and consecrated to an eternity of being used.
+ - Pornography incarnates male supremacy. It is the DNA of male dominance. Every rule of sexual abuse, every nuance of sexual sadism, every highway and byway of sexual exploitation, is encoded in it.
+ - One of the differences between marriage and prostitution is that in marriage you only have to make a deal with one man.
+ - I also had nightmares. Somehow all the feelings I didn’t feel when each thing had actually happened to me I did feel when I slept.
+ - I dream that love without tyranny is possible.
+ - No woman needs intercourse; few women escape it.
+ - How can anyone love someone who is less than a full person, unless love itself is domination per se?
+ - The creative mind is intelligence in action in the world.
+ - Feminist art is not some tiny creek running off the great river of real art. It is not some crack in an otherwise flawless stone. It is, quite spectacularly, art which is not based on the subjugation of one half of the species.
+ - There is nothing as dangerous as an unembodied principle: no matter what blood flows, the principle comes first. The First Amendment absolutists operate precisely on unembodied principle...
+ - On the Left, on the Right, in the Middle; Authors, statesmen, thieves; so-called humanists and self-declared fascists; the adventurous and the contemplative, in every realm of male expression and action, violence is experienced and articulated as love and freedom.
+ - Erotica is simply high-class pornography; better produced, better conceived, better executed, better packaged, designed for a better class of consumer.
+ - The man takes a body that is not his, claims it, sows his so-called seed, reaps a harvest – he colonizes a female body, robs it of its natural resources, controls it.
+ - Freedom is not an abstaction, nor is a little of it enough. A little more is not enough either. Having less, being less, empoverished in freedom and rights, women then invariably have less self-respect: less self-respect than any human being needs to live a brave and honest life.
+ - The tragedy is that women so committed to survival cannot recognize that they are committing suicide.
+ - Men know everything – all of them – all the time – no matter how stupid or inexperienced or arrogant or ignorant they are.
+ - One of the reasons that women are kept in a state of economic degradation- because that’s what it is for most women- is because that is the best way to keep women sexually available.
+ - Male supremacy is fused into the language, so that every sentence both heralds and affirms it.
+ - Men are distinguished from women by their commitment to do violence rather than to be victimized by it.
+ - Undernourished, intelligence becomes like the bloated belly of a starving child: swollen, filled with nothing the body can use.
+ - For a mother the project of raising a boy is the most fulfilling project she can hope for.
+ - Men have defined the parameters of every subject. All feminist arguments, however radical in intent or consequence, are with or against assertions or premises implicit in the male system, which is made credible or authentic by the power of men to name.
+ - Feminism exists so that no woman ever has to face her abuser in isolation, alone.
+ - The essence of oppression is that one is defined from the outside by those who define themselves as superior by criteria of their own choice.
+ - The universal religion – contempt for women.
+ - Being a Jew, one learns to believe in the reality of cruelty and one learns to recognize indifference to human suffering as a fact.
+ - The annihilation of a woman’s personality, individuality, will, character, is prerequisite to male sexuality.
+ - No phallic hero, no matter what he does to himself or to another to prove his courage, ever matches the solitary, existential courage of the woman who gives birth.
+ - Money speaks, but it speaks with a male voice.
+ - I have been asked, politely and not so politely, why I am myself. This is an accounting any woman will be called on to give if she asserts her will.
+ - Genocide begins, however improbably, in the conviction that classes of biological distinction indisputably sanction social and political discrimination.
+ - One needs either equality or political and economic superiority.
+ - All personal, psychological, social, and institutionalized domination on this earth can be traced back to its source: the phallic identities of men.
+ - The cultural institutions which embody and enforce those interlocked aberrations-for instance, law, art, religion, nation-states, the family, tribe, or commune based on father-right-these institutions are real and they must be destroyed.
+ - Men use the night to erase us.
+ - We as women know that there are no disembodied processes; that all history originates in human flesh; that all oppression is inflicted by the body of one against the body of another; that all social change is built on the bone and muscle, and out of the flesh and blood, of human creators.
+
+81 quotes

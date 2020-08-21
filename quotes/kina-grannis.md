@@ -1,0 +1,21 @@
+ - In finding love, I think it’s important to be patient. In being in a relationship, I think it’s important to be honest, to communicate, to respect and trust, and to strive to give more than you take.
+ - If I try to write a song, I will completely fail to write a song. But if I’m just holding my guitar and I just start humming, then I’ll have a song in an hour.
+ - Making a video is one of the most exciting things for artists and fans. It’s like a payoff.
+ - I want to encourage people to make healthy life choices, whether it’s training for a half-marathon, or eating more vegetables.
+ - Not only am I putting music out there, I’m giving part of myself away.
+ - Since I don’t feel like I belong solely to any one of them I find that it makes me even more interested and open to other cultures as well. It’s also fun looking ethnically ambiguous because no one can quite put a finger on what I am and it’s very entertaining to me!
+ - I’m kind of feeling like I don’t mind being open with the random details of my life, like I’m at a coffee shop or my toe hurts or something, but obviously other more personal areas of life where I will just never really go there.
+ - The first video I ever made, announcing ‘Crash the Super Bowl,’ I did about fifty takes and I wanted to die. It was awful.
+ - If you’re looking to make a basic living selling and playing your music, the Internet is all you really need.
+ - I think a lot of singer-songwriters get compared to each other, but I’d like to think that what I’m doing is special and specific to me.
+ - I started teaching myself guitar because I loved singing so much. Then one day kind of out of the blue I found I was writing a song. It just happened organically.
+ - I get to travel around the world and meet all of these amazing people, and they’re singing my songs! And to me, that’s crazy.
+ - Ever since I was really really little, I was just singing all the time. Like one of my favorite games when I was little would be to just have one of my sisters pick a title, and I would impromptu create that song.
+ - The potential success that could come with signing with a major label didn’t quite outweigh how important it was for me to make my music the way I knew it needed to be made.
+ - I’m really into good nutrition and keeping healthy! That said, I’m also addicted to candy – It’s my biggest weakness.
+ - My two sisters and I sang all the time. Whenever we cleaned the kitchen, we sang in three-part harmony.
+ - I went into college undeclared. I had no idea what I wanted to do, but I knew that music was obviously this central big important thing in my life that I was gonna keep doing.
+ - I don’t have any rock star demeanor to me. I just can’t pull that off.
+ - My dream artists to collaborate with are probably Cee Lo Green and Imogen Heap. They’re completely out of my genre but they’re both musical geniuses.
+
+19 quotes

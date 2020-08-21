@@ -1,0 +1,39 @@
+ - The speed is something dangerous but very exciting.
+ - Riding a race bike is an art – a thing that you do because you feel something inside.
+ - Our sport is dangerous. We risk the life out there, so we need to stay calm and focused and leave all the rest out.
+ - Maybe the bike is more dangerous, but the passion for the car for me is second to the bike.
+ - I try to have a different relationship with the bike. I don’t give it a name, but I always speak with it. I don’t know if the other riders do the same. This is not only a piece of metal – there is a soul. The bike talks back too. But not with a voice, with the components.
+ - The tragic incident of Luis Salom reminds us that our sport, our passion, is dangerous. We know it but, in a way, we don’t think about it.
+ - You look at Moto3, the races are very exciting. Moto2 is fantastic, and then MotoGP is boring.
+ - It is dangerous and unbelievably fast and entirely different from the kind of track I am used to racing on.
+ - I’m Valentino Rossi. And I want to be a person, not an icon.
+ - I like physical exercise. I actually like sports in general. I really like snowboarding and playing soccer, too.
+ - How do Ferrari know what I’m doing next year when I don’t know what I’m doing next week?
+ - Once the races begin it’s more difficult and there is never that much time for testing.
+ - I am able to ride the bike and think clearly about strategy and tyres. I also have positive thinking. I am very constructively critical.
+ - I have won on Honda and Yamaha so maybe it is interesting to win with a third team, Ducati, who are Italian.
+ - I feel 100% a Yamaha rider in my heart. I had a long career and raced with several factory bikes, but the highlight of my career is undoubtedly with Yamaha.
+ - I’m lucky because I don’t feel too much pressure – it’s only in the last hour before the race, and even then it’s good, positive pressure.
+ - I don’t like being famous – it is like a prison. And driving for Ferrari would make it far worse.
+ - Barcelona is a special track. I have always loved the layout of the circuit, but also the atmosphere and the fans are special. It has always been good fun.
+ - To win the Championship in the first year will be hard. We need time to become competitive and win races.
+ - To be a great motorbike racer, the most important thing is passion for the bike.
+ - Also, when I started racing he knew a lot of people and it was more easy for me to find the first bike, so I have a good chance for sure.
+ - However I am looking forward to the two new Grands Prixs both Shanghai and Laguna Seca are fantastic tracks and it will be good to race at them.
+ - I would have probably stolen cars – it would have given me the same adrenaline rush as racing.
+ - You try to do a technical feature: in front of me I had a strong rider who brakes hard and it’s difficult to pass.
+ - I’m done with F1 unfortunately. I’m too old, the train has passed.
+ - Giving yourself threads doesn’t mean you don’t believe in yourself in my opinion.
+ - It’s a big, big advantage because understanding what changes we might make takes time and it takes time to work out settings and to understand everything about the new machine.
+ - I race to win. If I am on the bike or in a car it will always be the same.
+ - In my opinion we are at the limit now, and 17 races is really too much. With all the testing that we do now, it means we’re always on the bike and it’s quite difficult.
+ - Maybe if Graziano make another work or another sport I wouldn’t have had this passion to be a rider.
+ - I’m very happy because I won a lot. I’ve won races and lived in a world that just gave me joy, so I remember it very positively.
+ - We have the 2004 M1 here for reference, which is useful. It worked well here last year; we won the race and always did fast lap times so it will be interesting to compare it to the new bike and it will help us to understand which parts have improved.
+ - The work that we do during the winter is very important; we have a new bike and it’s important to develop it during this time, and we start with this test.
+ - Fortunately during my career I have won more or less everything, so I need to enjoy it to have the right motivation.
+ - In 2002 the Yamaha was at more or less the same level as the Honda, better in some ways, worse in others. But in the winter of last year between 2002 and 2003, Honda made a big step forward and it seemed as if Yamaha couldn’t quite match that improvement.
+ - If I test the car for a year I can be quite competitive the next season.
+ - But I could also start F1 or rallying. I love rallying much more.
+
+37 quotes

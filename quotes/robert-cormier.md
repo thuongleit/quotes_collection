@@ -1,0 +1,39 @@
+ - I have lived a thousand lives lost within the pages of a book.
+ - Do I dare disturb the universe? Yes, I do, I do. I think. Jerry suddenly understood the poster – the solitary man on the beach standing upright and alone and unafraid, poised at the moment of making himself heard and known in the world, the universe.
+ - There are moments that stop the heart, that catch the breath, that halt the beat of blood in your veins, and you are suspended in time, held between life and death, and you wait for something to bring you back again.
+ - It’s amazing that the heart makes no noise when it cracks.
+ - People throw the word love around like confetti when they actually mean affection.
+ - Cities fell. Earth opened. Planets tilted. Stars plummeted. And the awful silence.
+ - I’m weary of the battle. But a tired fighter can still be a fighter.
+ - My dream was to be known as a writer and to be able to produce at least one book that would be read by people. That dream came true with the publication of my first novel – and all the rest has been a sweet bonus.
+ - Everybody sins, Francis. The terrible thing is that we love our sins. We love the thing that makes us evil.
+ - The beautiful part of writing is that you don’t have to get it right the first time, unlike, say, a brain surgeon.
+ - You bring up your children to be self-reliant and independent and they double-cross you and become self-reliant and independent.
+ - And he did see – that life was rotten, that there were no heroes, really, and that you couldn’t trust anybody, not even yourself.
+ - Family life was wonderful. The streets were bleak. The playgrounds were bleak. But home was always warm. My mother and father had a great relationship. I always felt ‘safe’ there.
+ - He was swept with a sadness, a sadness deep and penetrating, leaving him desolate like someone washed up on a beach, a lone survivor in a world full of strangers.
+ - Don’t miss the bus, boy. You’re missing a lot of things in the world, better not miss that bus.
+ - They don’t actually want you to do your own thing, not unless it’s their thing too.
+ - The possibility that hope comes out of hopelessness and that the opposite of things carry the seeds of birth – love out of hate, good out of evil. Didn’t flowers grow out of dirt?
+ - He was intrigued by the power of words, not the literary words that filled the books in the library but the sharp, staccato words that went into the writing of news stories. Words that went for the jugular. Active verbs that danced and raced on the page.
+ - Why did the wise guys always accuse other people of being wise guys?
+ - It doesn’t matter how big the body, it’s what you do with it.
+ - That’s what Archie did – built a house nobody could anticipate a need for, except himself, a house that was invisible to everyone else.
+ - There are no taboos. Every topic is open, however shocking. It is the way that the topics are handled that’s important, and that applies whether it is a 15-year-old who is reading your book or someone who is 55.
+ - I take real people and put them in extraordinary situations.
+ - You seldom get a censorship attempt from a 14-year-old boy. It’s the adults who get upset.
+ - It would be nice to avoid the world, to leave it and all its threats and unhappiness. Not to die or anything like that, but to find a place of solitude and solace.
+ - A writer must take risks, defy the odds, be a bit obsessed and a little mad.
+ - I had my bully, and it was excruciating. Not only the bully, but the intimidation I felt.
+ - I simply write with an intelligent reader in mind. I don’t think about how old they are.
+ - Archie became absolutely still, afraid that the rapid beating of his heart might betray his sudden knowledge, the proof of what he’d always suspected, not only of Brother Leon but most grownups, most adults: they were vulnerable, running scared, open to invasion.
+ - It came to me that hell would not be fire and smoke after all but arctic, everything white and frigid. Hell would be not anger but indifference.
+ - A new sickness invaded Jerry, the sickness of knowing what he had become, another animal, another beast, another violent person in a violent world, inflicting damage, not disturbing the universe but damaging it.
+ - He hated to think of his own life stretching ahead of him that way, a long succession of days and nights that were fine – not good, not bad, not great, not lousy, not exciting, not anything.
+ - I can’t remember a time when I wasn’t trying to get something down on paper.
+ - You could reason with someone who was halfway educated and appeal to his intelligence, but I felt helpless in the face of utter stupidity.
+ - A terrific sadness swept over Jerry. As if somebody had died. The way he felt standing in the cemetry that day they buried his mother. And nothing you could do about it.
+ - I have always had a sense that we are all pretty much alone in life, particularly in adolescence.
+ - I’ve had aunts and uncles who not only haven’t read my books but could hardly believe that I was a writer.
+
+37 quotes

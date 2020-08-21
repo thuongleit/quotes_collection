@@ -1,0 +1,23 @@
+ - True faith is not a leap into the dark; it’s a leap into the light.
+ - Do not try to make the Bible relevant. Its relevance is axiomatic. Do not defend God’s word, but testify to it. Trust to the Word. It is a ship loaded to the very limits of its capacity. -Dietrich Bonhoeffer.
+ - With the tools of democracy, democracy was murdered and lawlessness made “legal.” Raw power ruled, and its only real goal was to destroy all other powers besides itself.
+ - The ‘success’ of the sermon is utterly dependent on the God who breaks through and ‘grasps’ us, or we cannot be ’grasped.
+ - Being a Christian is less about cautiously avoiding sin than about courageously and actively doing God’s will.
+ - Ideas have far-reaching consequences, and one must be ever so careful about what one allows to lodge in one’s brain.
+ - Atheism tells him what he isn’t, and like all of us he yearns to know what he is.
+ - Bonhoeffer knew that twisting the Truth to sell it more effectively was inexcusable. For Bonhoeffer the challenge was to present the Truth as purely as possible without attempting to help it along or dress it up.
+ - If God is God, he is the God of reality and facts and science and history.
+ - Glory, glory, said the Bee, Hallelujah, said the Flea. Praise the Lord, remarked the Wren. At springtime all is born-again.
+ - It’s so easy to become a grumbler, someone who condemns and carps at everything on principle and sees an ulterior motive behind it.
+ - The worlds of folklore and religion were so mingled in early twentieth venture German culture that even families who didn’t go to church were often deeply Christian.
+ - Belief in God is an act of faith. But so is believing our existence is simply the result of chance.
+ - Jesus was and is the enemy of dead religion.
+ - There was only one reality, and Christ was Lord over all of it, or none.
+ - Bonhoeffer thought of death as the last station on the road to freedom.
+ - We’ve gone all the way from foolishly accepting authority to foolishly rejecting all authority.
+ - Today, Wilberforce University welcomes many of America’s poorest and most underserved populations and transforms their educational dreams into realities.
+ - He did not hope that God heard his prayers; he knew it.
+ - It was not apathy or passiveness. For him, prayer was a display of the strongest possible activity.
+ - Religion is the most fragile of all freedoms. And that’s because it is the most threatening to those in power.
+
+21 quotes

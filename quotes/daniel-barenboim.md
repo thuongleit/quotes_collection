@@ -1,0 +1,33 @@
+ - In the beginning, there was silence. And out of the silence came the sound. The sound is not here.
+ - Music has the capacity to create a greater reality.
+ - European anti-Semitism goes much further back than to the partition of Palestine and the establishment of Israel in 1948. It even goes further back than the Holocaust.
+ - When playing music, it is possible to achieve a unique sense of peace.
+ - The Steinway piano is such an incomparable instrument. Due to its virtues, I am able to express all my musical feelings.
+ - Today, conducting is a question of ego: a lot of people believe they are actually playing the music.
+ - Music means different things to different people and sometimes even different things to the same person at different moments of his life.
+ - I hope that my new status will be an example of Israeli-Palestinian co-existence, I believe that the destinies of the Israeli people and the Palestinian people are inextricably linked.
+ - Every great work of art has two faces, one towards its own time and one towards future, towards eternity.
+ - And in English you have this wonderful difference between listening and hearing, and that you can hear without listening, and you can listen and not hear.
+ - There are many types of silence. There is a silence before the note, there is a silence at the end and there is a silence in the middle.
+ - I can’t stand being in Chicago anymore and hearing the Brahms Violin Concerto in the elevator. Because that shows me that when they come to the concert hall they listen to it in the same way.
+ - To have real knowledge, one must understand the essence of things and not only their manifestations.
+ - An hour of violin lessons in Berlin is an hour where you get the child interested in music. An hour in a violin lesson in Palestine is an hour away from violence, is an hour away from fundamentalism.
+ - Jewish intellectuals contributed a great deal to insure that Europe became a continent of humanism, and it is with these humanist ideals that Europe must now intervene in the Middle East conflict.
+ - Germany will never be a real, free thinking and free feeling friend of Israel, because it will always fall under this shadow.
+ - I have the greatest respect for the survivors of the Holocaust. We can’t even imagine what these people went through.
+ - The Germans are prisoners of their past.
+ - The tempo is the suitcase. If the suitcase is too small, everything is completely wrinkled. If the tempo is too fast, everything becomes so scrambled you can’t understand it.
+ - I’m sure that there are many Israelis who dream of waking up one day to find the Palestinians gone. And there are many Palestinians who dream of going to bed at night and waking up the next morning to find the Israelis gone.
+ - If a man dreams about sleeping with Marilyn Monroe, he’s certainly entitled to that. But when he wakes up, he has to acknowledge that he is married to someone else.
+ - There are probably many people in Israel who believe that Wagner, who died in 1883, lived in Berlin in 1942 and was friends with Hitler.
+ - I don’t believe that the entire world is constantly anti-Semitic.
+ - Now the first step has to be taken, the step towards democracy. This step is full of risks, and requires trust on all sides. We don’t know where it will lead. But if we just stand still, we will have no chance of escaping the violence.
+ - Wagner exploited all forms of expression at a composer’s disposal – harmony, dynamics, orchestration – to the extreme. His music is highly emotional, and at the same time Wagner has extraordinary control over the effect he achieves.
+ - Not only has the eyes taken over, but we have anaesthetised the ears through all the muzak that we hear all the time.
+ - Sound is often talked about in a very subjective way, as if it had a colour. This is a bright sound, this is a dark sound. I don’t believe in that because I think that is much too subjective.
+ - The ear plays the role of the guide in the museum in the concert I’m taking now. We don’t have an oral guide, we have to provide it ourselves. One reason why active listening is absolutely essential.
+ - An Israeli who thinks that his government is doing everything right wouldn’t join the Divan Orchestra in the first place.
+ - US presidents can make all the commitments and declarations they want until they are blue in the face, in the Muslim world they will always be perceived as partisan.
+ - Israel’s strategy cannot be to constantly confront the Palestinians with the history of the Holocaust, but instead to show them that Israel is a reality.
+
+31 quotes

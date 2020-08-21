@@ -1,0 +1,44 @@
+ - But still try, for who knows what is possible?
+ - Work, finish, publish.
+ - The book of nature which we have to read is written by the finger of God.
+ - Nothing is too wonderful to be true, if it be consistent with the laws of nature.
+ - The important thing is to know how to take all things quietly.
+ - I shall be with Christ, and that is enough.
+ - The five essential entrepreneurial skills for success are concentration, discrimination, organization, innovation and communication.
+ - There’s nothing quite as frightening as someone who knows they are right.
+ - A man who is certain he is right is almost sure to be wrong.
+ - Nature is our kindest friend and best critic in experimental science if we only allow her intimations to fall unbiased on our minds.
+ - I have far more confidence in the one man who works mentally and bodily at a matter than in the six who merely talk about it.
+ - It is on record that when a young aspirant asked Faraday the secret of his success as a scientific investigator, he replied, ‘The secret is comprised in three words- Work, Finish, Publish.’
+ - Since peace is alone in the gift of God; and since it is He who gives it, why should we be afraid? His unspeakable gift in His beloved Son is the ground of no doubtful hope.
+ - Speculations? I have none. I am resting on certainties.
+ - I am no poet, but if you think for yourselves, as I proceed, the facts will form a poem in your minds.
+ - But I must confess I am jealous of the term atom; for though it is very easy to talk of atoms, it is very difficult to form a clear idea of their nature, especially when compounded bodies are under consideration.
+ - Water is to me, I confess, a phenomenon which continually awakens new feelings of wonder as often as I view it.
+ - I happen to have discovered a direct relation between magnetism and light, also electricity and light, and the field it opens is so large and I think rich.
+ - Nothing is ever too good to be true.
+ - I am busy just now again on Electro-Magnetism and think I have got hold of a good thing but can’t say; it may be a weed instead of a fish that after all my labour I may at last pull up.
+ - Chemistry is necessarily an experimental science: its conclusions are drawn from data, and its principles supported by evidence from facts.
+ - It may be a weed instead of a fish that, after all my labour, I at last pull up.
+ - It is the great beauty of our science, chemistry, that advancement in it, whether in a degree great or small, instead of exhausting the subjects of research, opens the doors to further and more abundant knowledge, overflowing with beauty and utility.
+ - A centre of excellence is, by definition, a place where second class people may perform first class work.
+ - Lectures which really teach will never be popular; lectures which are popular will never really teach.
+ - The world little knows how many of the thoughts and theories which have passed through the mind of a scientific investigator, have been crushed in silence and secrecy by his own severe criticism and adverse examination!
+ - There is no more open door by which you can enter into the study of natural philosophy than by considering the physical phenomena of a candle.
+ - Magnetic lines of force convey a far better and purer idea than the phrase magnetic current or magnetic flood: it avoids the assumption of a current or of two currents and also of fluids or a fluid, yet conveys a full and useful pictorial idea to the mind.
+ - It is right that we should stand by and act on our principles; but not right to hold them in obstinate blindness, or retain them when proved to be erroneous.
+ - I can at any moment convert my time into money, but I do not require more of the latter than is sufficient for necessary purposes.
+ - Physicist is both to my mouth and ears so awkward that I think I shall never use it. The equivalent of three separate sounds of “I” in one word is too much.
+ - I could trust a fact and always cross-question an assertion.
+ - I will simply express my strong belief, that that point of self-education which consists in teaching the mind to resist its desires and inclinations, until they are proved to be right, is the most important of all, not only in things of natural philosophy, but in every department of dally life.
+ - The Bible, and it alone, with nothing added to it nor taken away from it by man, is the sole and sufficient guide for each individual, at all times and in all circumstances.
+ - Who would not have been laughed at if he had said in 1800 that metals could be extracted from their ores by electricity or that portraits could be drawn by chemistry.
+ - Why will people go astray when they have this blessed Book to guide them?
+ - When I came to know Mrs. Marcet personally; how often I cast my thoughts backward, delighting to connect the past and the present; how often, when sending a paper to her as a thank you offering, I thought of my first instructress.
+ - I propose to distinguish these bodies by calling those anions which go to the anode of the decomposing body; and those passing to the cathode, cations; and when I have occasion to speak of these together, I shall call them ions.
+ - I cannot conceive curved lines of force without the conditions of a physical existence in that intermediate space.
+ - In place of practising wholesome self-abnegation, we ever make the wish the father to the thought: we receive as friendly that which agrees with, we resist with dislike that which opposes us; whereas the very reverse is required by every dictate of common sense.
+ - As when on some secluded branch in forest far and wide sits perched an owl, who, full of self-conceit and self-created wisdom, explains, comments, condemns, ordains and order things not understood, yet full of importance still holds forth to stocks and stones around – so sits and scribbles Mike.
+ - The lecturer should give the audience full reason to believe that all his powers have been exerted for their pleasure and instruction.
+
+42 quotes

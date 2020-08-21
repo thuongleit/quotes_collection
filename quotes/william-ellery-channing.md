@@ -1,0 +1,100 @@
+ - Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+ - May your life preach more loudly than your lips.
+ - Life is a fragment, a moment between two eternities.
+ - It is chiefly through books that we enjoy the intercourse with superior minds...
+ - The great hope of society is in individual character.
+ - It is not the quantity but the quality of knowledge which determines the mind’s dignity.
+ - Love is the life of the soul. It is the harmony of the universe.
+ - Great minds are to make others great. Their superiority is to be used, not to break the multitude to intellectual vassalage, not to establish over them a spiritual tyranny, but to rouse them from lethargy, and to aid them to judge for themselves.
+ - Fix your eyes on perfection and you make almost everything speed towards it.
+ - Books are true levelers. They give to all, who will faithfully use them, the society, the spiritual presence, of the best and greatest of our race.
+ - Every human being is intended to have a character of his own; to be what no others are, and to do what no other can do.
+ - The only freedom worth possessing is that which gives enlargement to a people’s energy, intellect, and virtues.
+ - He who is false to the present duty breaks a thread in the loom, and you will see the effect when the weaving of a life-time is unraveled.
+ - Be true to your own highest convictions.
+ - The hills are reared, the seas are scooped in vain If learning’s altar vanish from the plain.
+ - All virtue lies in individual action, in inward energy, in self determination. There is no moral worth in being swept away by a crowd even toward the best objective.
+ - Whatever you may suffer, speak the truth. Be worthy of the entire confidence of your associates. Consider what is right as to what must be done. It is not necessary that you should keep your property, or even your life, but it is necessary that you should hold fast your integrity.
+ - My highway is unfeatured air, My consorts are the sleepless stars, And men my giant arms upbear My arms unstained and free from scars.
+ - To extinguish the free will is to strike the conscience with death, for both have but one and the same life.
+ - Great effort from great motives is the best definition of a happy life.
+ - I am a living member of the great family of all souls; and I cannot improve or suffer myself, without diffusing good or evil around me through an ever-enlarging sphere. I belong to this family. I am bound to it by vital bonds.
+ - We smile at the ignorance of the savage who cuts down the tree in order to reach its fruit; but the same blunder is made by every person who is over eager and impatient in the pursuit of pleasure.
+ - I call that mind free which protects itself against the usurpations of society, and which does not cower to human opinion: Which refuses to be the slave or tool of the many or of the few, and guards its empire over itself as nobler than the empire of the world.
+ - No power in society, no hardship in your condition can depress you, keep you down, in knowledge, power, virtue, influence, but by your own consent.
+ - I laugh, for hope hath a happy place with me; If my boat sinks, ’tis to another sea.
+ - True love is the parent of humility...
+ - I am a living member of the great family of all souls.
+ - Precept is instruction written in the sand; the tide flows over it and the record is gone; example is graven on the rock, and the lesson is not soon lost.
+ - War will never yield but to the principles of universal justice and love, and these have no sure root but in the religion of Jesus Christ.
+ - Faith is love taking the form of aspiration.
+ - The chief evil of war is more evil. War is the concentration of all human crimes. Here is its distinguishing, accursed brand. Under its standard gather violence, malignity, rage, fraud, perfidy, rapacity, and lust. If it only slew man, it would do little. It turns man into a beast of prey.
+ - No one should part with their individuality and become that of another.
+ - Every man is a volume if you know how to read him.
+ - The home is the chief school of human virtues.
+ - Labor is discovered to be the grand conqueror, enriching and building up nations more surely than the proudest battles.
+ - The miracles of Christ were studiously performed in the most unostentatious way. He seemed anxious to veil His majesty under the love with which they were wrought.
+ - Home – the nursery of the Infinite.
+ - God deliver us all from prejudice and unkindness, and fill us with the love of truth and virtue.
+ - Other blessings may be taken away, but if we have acquired a good friend by goodness, we have a blessing which improves in value when others fail.
+ - Our affections are our life. We live by them; they supply our warmth.
+ - Most joyful let the Poet be, it is through him that all men see.
+ - A clear thought, a pure affection, a resolute act of a virtuous will, have a dignity of quite another kind, and far higher than accumulations of brick and granite and plaster and stucco, however cunningly put together.
+ - It is chiefly through books that we enjoy intercourse with superior minds. In the best books, great men talk to us, give us their most precious thoughts, and pour their souls into ours.
+ - How easy to be amiable in the midst of happiness and success.
+ - All noble enthusiasms pass through a feverish stage, and grow wiser and more serene.
+ - It feeds and grows on the blood which it sheds. The passions, from which it springs, gain strength and fury from indulgence.
+ - The best books for a man are not always those which the wise recommend, but often those which meet the peculiar wants, the natural thirst of his mind, and therefore awaken interest and rivet thought.
+ - Progress, the growth of power, is the end and boon of liberty; and, without this, a people may have the name, but want the substance and spirit of freedom.
+ - An earnest purpose finds time, or makes it. It seizes on spare moments, and turns fragments to golden account.
+ - God is another name for human intelligence raised above all error and imperfection, and extended to all possible truth.
+ - We must not waste life in devising means. It is better to plan less and do more.
+ - The spirit of liberty is not merely, as multitudes imagine, a jealousy of our own particular rights, but a respect for the rights of others, and an unwillingness that any man, whether high or low, should be wronged and trampled under foot.
+ - I call that mind free which jealously guards its intellectual rights and powers, which calls no man master, which does not content itself with a passive or hereditary faith, which opens itself to light whencesoever it may come, which receives new truth as an angel from Heaven.
+ - There is but a very minute portion of the creation which we can turn into food and clothes, or gratification for the body; but the whole creation may be used to minister to the sense of beauty.
+ - No punishment is so terrible as prosperous guilt.
+ - Nothing which has entered into our experience is ever lost.
+ - The world is to be carried forward by truth, which at first offends, which wins its way by degrees, which the many hate and would rejoice to crush.
+ - Let every man, if possible, gather some good books under his roof.
+ - Life has a higher end, than to be amused.
+ - Influence is to be measured, not by the extent of surface it covers, but by its kind.
+ - God be thanked for books; they are the voices of the distant and the dead, and make us heirs of the spiritual life of past ages.
+ - Men are never very wise and select in the exercise of a new power.
+ - Natural amiableness is too often seen in company with sloth, with uselessness, with the vanity of fashionable life.
+ - We honor revelation too highly to make it the antagonist of reason, or to believe that it calls us to renounce our highest powers.
+ - Religion is faith in an infinite Creator, who delights in and enjoins that rectitude which conscience commands us to seek. This conviction gives a Divine sanction to duty.
+ - In general, we do well to let an opponent’s motives alone. We are seldom just to them. Our own motives on such occasions are often worse than those we assail.
+ - Another powerful principle of our nature, which is the spring of war, is the passion for superiority, for triumph, for power. The human mind is aspiring, impatient of inferiority, and eager for preeminence and control.
+ - A man might pass for insane who should see things as they are.
+ - All that we do outwardly is but the expression and completion of our inward thought. To work effectively, we must think clearly; to act nobly, we must think nobly.
+ - But the ground of a man’s culture lies in his nature, not in his calling. His powers are to be unfolded on account of their inherent dignity, not their outward direction. He is to be educated, because he is a man, not because he is to make shoes, nail, or pins.
+ - O God, animate us to cheerfulness! May we have a joyful sense of our blessings, learn to look on the bright circumstances of our lot, and maintain a perpetual contentedness.
+ - Knowledge is essential to freedom.
+ - The reveries of youth, in which so much energy is wasted, are the yearnings of a Spirit made for what it has not found but must forever seek as an Ideal.
+ - The office of government is not to confer happiness, but to give men the opportunity to work out happiness for themselves.
+ - Of all the discoveries which men need to make, the most important, at the present moment, is that of the self-forming power treasured up in themselves. They little suspect its extent, as little as the savage apprehends the energy which the mind is created to exert on the material world.
+ - In the long run, truth is aided by nothing so much as by opposition.
+ - One good anecdote is worth a volume of biography.
+ - The worst tyrants are those which establish themselves in our own breasts.
+ - War is to be ranked among the most dreadful calamities which fall on a guilty world; and, what deserves consideration, it tends to multiply and perpetuate itself without end. It feeds and grows on the blood which it sheds. The passions, from which it springs, gain strength and fury from indulgence.
+ - Do anything rather than give yourself to reverie.
+ - We never know a greater character unless there is in ourselves something congenial to it.
+ - Undoubtedly a man is to labor to better his condition, but first to better himself.
+ - Grandeur of character lies wholly in force of soul, that is, in the force of thought, moral principle, and love, and this may be found in the humblest condition of life.
+ - To give a generous hope to a man of his own nature, is to enrich him immeasurably.
+ - What a sublime doctrine it is, that goodness cherished now is eternal life already entered on!
+ - Every mind was made for growth, for knowledge, and its nature is sinned against when it is doomed to ignorance.
+ - A man may quarrel with himself alone; that is, by controverting his better instincts and knowledge when brought face to face with temptation.
+ - A man in earnest finds means or, if he cannot find, creates them.
+ - One of the tremendous evils of the world, is the monstrous accumulation of power in a few hands.
+ - Perhaps in our presence, the most heroic deed on earth is done in some silent spirit, the loftiest purpose cherished, the most generous sacrifice made, and we do not suspect it. I believe this greatness to be most common among the multitude, whose names are never heard.
+ - The mind, in proportion as it is cut off from free communication with nature, with revelation, with God, with itself, loses its life, just as the body droops when debarred from the air and the cheering light from heaven.
+ - Let us aspire towards this living confidence, that it is the will of God to unfold and exalt without end the spirit that entrusts itself to Him in well-doing as to a faithful Creator.
+ - Real greatness has nothing to do with a man’s sphere. It does not lie in the magnitude of his outward agency, in the extent of the effects which he produces. The greatest men may do comparatively little.
+ - Mistakes and errors are the discipline through which we advance.
+ - It has often been observed, that those who have the most time at their disposal profit by it the least. A single hour a day, steadily given to the study of some interesting subject, brings unexpected accumulations of knowledge.
+ - It is far more important to me to preserve an unblemished conscience than to compass any object however great.
+ - Every human being has a work to carry on within, duties to perform abroad, influence to exert, which are peculiarly his, and which no conscience but his own can teach.
+ - The fewer the voices on the side of truth, the more distinct and strong must be your own.
+
+98 quotes

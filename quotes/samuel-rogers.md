@@ -1,0 +1,30 @@
+ - Sweet Memory! wafted by thy gentle gale, Oft up the stream of Time I turn my sail.
+ - Every day a little life, a blank to be inscribed with gentle thoughts.
+ - When a new book is published, read an old one.
+ - By many a temple half as old as Time.
+ - The soul of music slumbers in the shell Till waked and kindled by the master’s spell; And feeling hearts, touch them but rightly, pour A thousand melodies unheard before!
+ - That very law which moulds a tear And bids it trickle from its source,- That law preserves the earth a sphere, And guides the planets in their course.
+ - To know her was to love her.
+ - A guardian angel o’er his life presiding, Doubling his pleasures, and his cares dividing.
+ - Think nothing done while aught remains to do.
+ - It doesn’t much signify whom one marries, for one is sure to find next morning that it was someone else.
+ - To vanish in the chinks that Time has made.
+ - Vast and deep the mountain shadows grew.
+ - And the Sabbath bell, That over wood and wild and mountain dell Wanders so far, chasing all thoughts unholy With sounds most musical, most melancholy.
+ - I am in Rome! Oft as the morning ray Visits these eyes, waking at once I cry, Whence this excess of joy? What has befallen me? And from within a thrilling voice replies, Thou art in Rome! A thousand busy thoughts Rush on my mind, a thousand images; And I spring up as girt to run a race!
+ - Twilight’s soft dews steal o’er the village-green, With magic tints to harmonize the scene. Stilled is the hum that through the hamlet broke When round the ruins of their ancient oak The peasants flocked to hear the minstrel play, And games and carols closed the busy day.
+ - Example is a motive of very prevailing force on the actions of men.
+ - Gentle to others, to himself severe.
+ - Long on the wave reflected lustres of play.
+ - When with care we have raised an imaginary treasure of happiness, we find at last that the materials of the structure are frail and perishing, and the foundation itself is laid in the sand.
+ - Ward has no heart, they say, but I deny it: He has a heart, and gets his speeches by it.
+ - A man who attempts to read all the new productions must do as the flea does, – skip.
+ - Those that he loved so long and sees no more, Loved and still loves,-not dead, but gone before,- He gathers round him.
+ - The good are better made by ill, As odours crushed are sweeter still.
+ - Paris strikes the vulgar part of us infinitely the most, but to a thinking mind London is incomparably the most delightful subject for contemplation.
+ - I lived to write, and wrote to live.
+ - Women have the understanding of the heart, which is better than that of the head.
+ - Fireside happiness, to hours of ease Blest with that charm, the certainty to please.
+ - Then never less alone than when alone.
+
+28 quotes

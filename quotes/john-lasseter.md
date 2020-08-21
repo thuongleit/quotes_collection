@@ -1,0 +1,66 @@
+ - Quality is the best business plan.
+ - The art challenges the technology, and the technology inspires the art.
+ - If you can think about it, you can create it.
+ - I realized that people make cartoons for a living. It had never dawned on me that you could do this as a career.
+ - I’ve got Disney blood running through my veins.
+ - Your voice is worthwhile. Have faith in it.
+ - This is what I always tell my filmmakers-you have to do tons of research, because you don’t know where the inspiration is going come from.
+ - It’s so important to create in your own voice, to hold onto what makes you unique, and have faith in your vision.
+ - The spirit of Route 66 is in the details: every scratch on a fender, every curl of paint on a weathered billboard, every blade of grass growing up through a cracked street.
+ - You cannot base a whole movie on just the imagery alone. It has to be the story and the characters.
+ - Computers don’t create computer animation any more than a pencil creates pencil animation. What creates computer animation is the artist.
+ - People who get into animation tend to be kids. We don’t have to grow up. But also, animators are great observers, and there’s this childlike wonder and interest in the world, the observation of little things that happen in life.
+ - What’s fun about the story development at Pixar is it’s a journey. You don’t just write a script and then that’s the movie you make. It’s just constant evolution and being open to that and that collaboration with the voice actors and with the artists and animators at Pixar.
+ - Humor is the easiest to achieve; the ‘heart’ is always the toughest, because you can’t tell people to feel a certain way.
+ - You can achieve all the things you want to do, but it’s much better to do it with loved ones around you; family and friends, people that you care about that can help you on the way and can celebrate you, and you can enjoy the journey.
+ - We make the kind of movies we like to watch. I love to laugh. I love to be amazed by how beautiful it is. But I also love to be moved to tears. There’s lots of heart in our films.
+ - The hardest thing to get is true emotion. I always believe you need to earn that with the audience. You can’t just tell them ok, be sad now. Humor, you can add. Even to the last minute you can be adding little bits of humor. But the true earned emotion is something that you really have to craft.
+ - A good part of my leadership skills is crafted from learning from experiences early in my career that were not positive experiences.
+ - Every single Pixar film, at one time or another, has been the worst movie ever put on film. But we know. We trust our process. We don’t get scared and say, ‘Oh, no, this film isn’t working.’
+ - I love movies that make me cry, because they’re tapping into a real emotion in me, and I always think afterwards: how did they do that?
+ - You need others. Too often people think that being unique means being isolated, and being a great artist means coming up with genius ideas out of nowhere. Nothing could be farther from the truth.
+ - I believe in research you cannot do enough research; believability comes out of what’s real.
+ - I have this saying. Quality is the best business plan. I believe so strongly in that.
+ - The more we all help each other, the more we all benefit. So go out there. Help others.
+ - Every animator is really an actor performing in slow motion, living the character a drawing at a time.
+ - I worry about kids today not having time to build a tree house or ride a bike or go fishing. I worry that life is getting faster and faster.
+ - I believe in the nobility of entertaining people and I take great, great pride that people are willing to give me two or three hours of their busy lives.
+ - Toys are put on this Earth to be played with by a child.
+ - People have a real love of looking at small worlds – something inside them is innately attracted to that ‘miniature’ realm.
+ - In computer animation, every detail has to be thought out, designed, modeled, shaded, placed and lit. The more you add, the more computer memory you need.
+ - I think that the entertainment industry and the entertainment press tends to focus on opening weekend box office as a measure of the success of a film and I think the true success is out there in people’s homes and how much they absolutely love these characters.
+ - I love the villains who are really hyper-smart. When at the end of the movie you find out what they were about, and it makes absolutely perfect sense from their point of view.
+ - Soon I learned that the worse the puns and jokes, the funnier they could be, if you knew how to deliver them.
+ - When you make these films, they become like your children. But at a certain point, they don’t belong to you anymore; they belong to the world.
+ - Disney Infinity gives you the ability to be creative in a way that nobody’s ever seen before.
+ - Sunday, for me, is all about being home with the family with no plans.
+ - There is such amazing talent at Disney. My job is 100% creative, and I am very excited to creatively lead them.
+ - A gem of a short film has a sense of pure joy in animation that is different from anything you see in a feature film.
+ - I do what I do because of Walt Disney – his films and his theme park and his characters and his joy in entertaining.
+ - To take full advantage of computer animation, you have to pay as much attention to the believable as you do the unbelievable.
+ - You make a movie to entertain audiences. That’s why you make a movie. The product sales is because people love the characters, and to me, that is a testament to how our movie has become so ingrained in family’s homes all around the world and that’s why I make movies.
+ - Animation is the one type of movie that really does play for the entire audience. Our challenge is to make stories that connect for kids and adults.
+ - In dire economic times, movies are relatively inexpensive entertainment for the whole family.
+ - Pixar films are not realistic. They are believable for the worlds we are creating.
+ - Animation is the only thing I ever wanted to do in my whole life. I have no desire for live-action or anything else.
+ - Slice open one of my veins and cartoons will pour out; open another vein and you’ll get a flood of motor oil.
+ - To me, I would much rather be part of a healthy industry than being the only player in a dead industry. There are so many great artists out there. And the goal is to make great movies, you know? So to be successful, quality is the best business plan as I always say.
+ - Walt Disney had always tried to get more dimension in his animation and when I saw these tapes, I thought, This is it! This is what Walt was waiting for! But when I looked around, nobody at the studio at the time was even halfway interested in it.
+ - I’m the biggest fan of animation. I love the history of animation, I know it well.
+ - My father pulled into Pearl Harbor four days after the bombing, and he said, everything was still burning. He said they never told the public how bad it was. It was really bad.
+ - My mother was a high school arts teacher, so I was always surrounded by the arts.
+ - When I look at the success I have, it’s because of my creative thinking skills.
+ - Every young person gets so excited about new software packages and new technology.
+ - Sure, they were simple desk lamps with only a minimal amount of movement, but you could immediately tell that Luxo Jr. was a baby, and that the big one was his mother. In that short little film, computer animation went from a novelty to a serious tool for filmmaking.
+ - One of the big technical advances that’s really great looking is the water.
+ - I always felt a little bit like a little kid that’s never grown up in the world of adults.
+ - Every technology that comes into filmmaking is first a gimmick. Think about sound with ‘The Jazz Singer’ or the first colour or surround sound – it takes a while for filmmakers to understand how to use it.
+ - One of the things about animation is it’s so expensive to do the animation, that you can’t produce coverage. You only have one chance to make every shot.
+ - Directing is one of my favourite things to do because I love telling stories and I love working with the individual artists and it’s something that I really missed.
+ - Never in the history of cinema has a medium entertained an audience. It’s what you do with the medium.
+ - One of the fun things about play is making up stories...
+ - I always loved the idea of a spy movie and part of it came from my personal love of spy movies. It started when I was growing up as a little kid in the 60s.
+ - There’s never a wrong idea. You just keep throwing stuff out and inevitably there are elements of different things that inspire a character or environment.
+ - At Pixar, after every movie we have postmortum meetings where we discuss what worked and what didn’t work.
+
+64 quotes

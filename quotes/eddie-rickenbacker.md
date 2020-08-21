@@ -1,0 +1,26 @@
+ - I can give you a six-word formula for success: “Think things through – then follow through.”
+ - Courage is about doing what you’re afraid to do.
+ - Aviation is proof that given, the will, we have the capacity to achieve the impossible.
+ - Courage is doing what you are afraid to do. There can be no courage unless you are scared.
+ - The experienced fighting pilot does not take unnecessary risks. His business is to shoot down enemy planes, not to get shot down.
+ - Think positively and masterfully, with confidence and faith, and life become more secure, more fraught with action, richer in experience and achievement.
+ - When I look up and see the sun shining on the patch of white clouds up in the blue, I begin to think how it would feel to be up somewhere above it winging swiftly through the clean air, watching the earth below.
+ - Flying saucers are real. Too many good men have seen them, that don’t have hallucinations.
+ - Fighting in the air is not sport. It is scientific murder.
+ - Let the moment come when nothing is left but life, and you will find that you do not hesitate over the fate of material possessions.
+ - In this business, you find the enemy, then go after and destroy him. Everything else is rubbish!
+ - I’ve cheated the Grim Reaper more times than anyone I know, and I’ll fight like a wildcat until they nail the lid of my pine box down on me.
+ - Flying is one of the safest jobs in the Army as long as you don’t drop out. If you do drop out, you are a dead man, and dropping out means, usually, that you have made a mistake or let go of your grip.
+ - There is a peculiar gratification in receiving congratulations from one’s squadron for a victory in the air. It is worth more to a pilot than the applause of the whole outside world.
+ - If a thing is old, it is a sign that it was fit to live. The guarantee of continuity is quality.
+ - The sensation of dying is sweet, sensuous, placid. It is the easiest thing in the world to die. The hardest is to live.
+ - I can see that aerial warfare is actually scientific murder.
+ - Within the next few decades, autos will have folding wings that can be spread when on a straight stretch of road so that the machine can take to the air.
+ - I am not such an egotist as to believe that God has spared me because I am I. I believe there is work for me to do and that I am spared to do it, just as you are.
+ - The four cornerstones of character on which the structure of this nation was built are: Initiative, Imagination, Individuality and Independence.
+ - I pay those guys to fly, so let them fly. I’ll be damned if I’ll pay them to just sit there.
+ - The smallest amount of vanity is fatal in aeroplane fighting. Selfdistrust rather is the quality to which many a pilot owes his protracted existence.
+ - I would rather have a million friends than a million dollars.
+ - The better I shoot, the less I have to maneuver.
+
+24 quotes

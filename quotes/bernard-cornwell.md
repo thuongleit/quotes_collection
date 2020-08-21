@@ -1,0 +1,28 @@
+ - You won’t regret the men you never killed, but you will regret the women you passed up.
+ - There are seasons of our lives when nothing seems to be happening, when no smoke betrays a burned town or homestead and few tears are shed for the newly dead. I have learned not to trust those times, because if the world is at peace then it means someone is planning war.
+ - We all suffer from dreams.
+ - We make children and wealth and amass land and build halls and assemble armies and give great feasts, but only one thing survives us. Reputation.
+ - Of course some days are easier than others, but my worst day is better than being in most humdrum occupations.
+ - The existence of tricks does not imply the absence of magic.
+ - Every day is ordinary, until it isn’t.
+ - Latin! The language of God! Or perhaps He speaks Hebrew? I suppose that’s more likely and it will make things rather awkward in heaven, won’t it? Will we all have to learn Hebrew?
+ - Looking back, of course, it was irresponsible, mad, forlorn, idiotic, but if you don’t take chances then you’ll never have a winning hand, and I’ve no regrets.
+ - So far it’s 43 books in 25 years.
+ - The bards sing of love, they celebrate slaughter, they extol kings and flatter queens, but were I a poet I would write in praise of friendship.
+ - What I mean by that is that the point of life, as I see it, is not to write books or scale mountains or sail oceans, but to achieve happiness, and preferably an unselfish happiness.
+ - You know what circumcision is, Private?
+ - Writing is a solitary occupation.
+ - Book tours and research provide a lot of travel – too much, I sometimes think, but we do take vacations.
+ - Because there could not be peace, not while two tribes shared one land. One tribe must win. Even the nailed god cannot change that truth. And I was a warrior, and in a world at war the warrior must be cruel.
+ - And yes, there’s a simplicity to writing books because you’re not a member of a team, so you make all the decisions yourself instead of deferring to a committee.
+ - Only a fool wants war, but once a war starts then it cannot be fought half-heartedly. It cannot even be fought with regret, but must be waged with a savage joy in defeating the enemy, and it is that savage joy that inspires our bards to write their greatest songs about love and war.
+ - Then you start another book and suddenly the galley proofs of the last one come in and you have to wrench your attention away from what you’re writing and try to remember what you were thinking when you wrote the previous one.
+ - I’m fortunate that the books sell, but even more fortunate to live in Chatham, to be very happily married and to have, on the whole, a fairly clear conscience.
+ - I’ll happily mentor anyone who wants mentoring, and most of that goes on by internet rather than face to face.
+ - I know nothing about producing TV drama and any involvement on my part is liable to prove an obstacle to the producers, so I prefer to be a cheerleader and let them get on with it.
+ - Research is a lifelong occupation so it’s hard to factor it in, but I reckon most books take 5 months from start to finish.
+ - A man does not see where he treads in battle, for he is watching the enemy...
+ - Television is a young person’s medium.
+ - Madness ends sometimes. The Gods decree it, not man.
+
+26 quotes

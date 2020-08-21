@@ -1,0 +1,31 @@
+ - If fascism ever came to the United States, it would be wrapped in an American flag.
+ - Every man a king, but no one wears a crown.
+ - The time has come for all good men to rise above principle.
+ - Every man a king – that’s my slogan.
+ - God, don’t let me die. I have so much left to do.
+ - I’m for the poor man – all poor men, black and white, they all gotta have a chance. They gotta have a home, a job, and a decent education for their children. ‘Every man a king’ – that’s my slogan.
+ - The only difference I ever found between the Democratic leadership and the Republican leadership is that one of them is skinning you from the ankle up and the other, from the ear down.
+ - You are giving a little man a biscuit to eat, and you put a barrel of flour more taxes on top of his head to carry.
+ - NRA – Nuts Running America.
+ - The Bible’s the greatest book ever written. But I sure don’t need anybody I can buy for six bits and a chew of tobacco to explain it to me.
+ - I don’t know much about Hitler. Except that last thing, about the Jews. There has never been a country that put its heel down on the Jews that ever lived afterwards.
+ - All I care is what the boys at the forks of the creek think of me.
+ - A man is not a dictator when he is given a commission from the people and carries it out.
+ - Sure we’ll have fascism in America, but it’ll come disguised as 100 percent Americanism.
+ - Treat them just the same as anybody else, give them an opportunity to make a living, and to get an education.
+ - I’m a dyed-in-the-wool party man. I don’t know just what party I am in right now, but I am for the party.
+ - I’d rather violate every one of the damn conventions and see my bills passed, than sit back in my office, all nice and proper, and watch ’em die.
+ - Hard work is damn near as overrated as monogamy.
+ - I can frighten or buy ninety-nine out of every one hundred men.
+ - In a political fight, when you’ve got nothing in favour of your side, start a row in the opposition camp.
+ - For the present you can just call me the Kingfish.
+ - Those of you who come in with me now will receive a big piece of the pie. Those of you who delay, and commit yourselves later, will receive a smaller piece of pie. Those of you who don’t come in at all will receive – Good Government!
+ - You will find that you cannot do without politicians. They are a necessary evil in this day and time. You may not like getting money from one source and spending it for another. But the thing for the school people to do is that if the politicians are going to steal, make them steal for the schools.
+ - I would never rob your cradles to feed the dogs of war.
+ - It ain’t enough to get the breaks. You gotta know how to use ’em.
+ - They kept on hollering, and I simply had to put my foot down. I said, ‘I’m the governor and I say the ignorant in this state have to learn, blacks as well as whites.’ And they learned.
+ - Strictures, reproaches, and intemperate speeches from the Senator of Louisiana are really the wailings of an apostle of despair; he has lost control of himself, he is trying to play billiards with elliptical billiard balls and a spiral cue.
+ - One of these days the people of Louisiana are going to get good government – and they aren’t going to like it.
+ - I do not want the voice of the people shut out.
+
+29 quotes

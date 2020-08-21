@@ -1,0 +1,52 @@
+ - Without music, life would be a mistake. ~~Friedrich Nietzsche
+ - Where words fail, music speaks. ~~Hans Christian Andersen
+ - One good thing about music, when it hits you, you feel no pain. ~~Bob Marley
+ - A painter paints pictures on canvas. But musicians paint their pictures on silence. ~~Leopold Stokowski
+ - Music is a safe kind of high. ~~Jimi Hendrix
+ - Music is to the soul what words are to the mind. ~~Modest Mouse
+ - Music in the soul can be heard by the universe. ~~Lao Tzu
+ - Music is the strongest form of magic. ~~Marilyn Manson
+ - People haven’t always been there for me but music always has. ~~Taylor Swift
+ - Music expresses that which cannot be put into words and that which cannot remain silent. ~~Victor Hugo
+ - Music gives a soul to the universe, wings to the mind, flight to the imagination and life to everything. ~~Plato
+ - The music is not in the notes, but in the silence between. ~~Wolfgang Amadeus Mozart
+ - The only truth is music. ~~Jack Kerouac
+ - Music is my religion. ~~Jimi Hendrix
+ - Music touches us emotionally, where words alone can't. ~~Johnny Depp
+ - Without music, life would be a blank to me. ~~Jane Austen
+ - To be creative means to be in love with life. You can be creative only if you love life enough that you want to enhance its beauty, you want to bring a little more music to it, a little more poetry to it, a little more dance to it. ~~Osho
+ - Where words leave off, music begins. ~~Heinrich Heine
+ - Some people have lives; some people have music. ~~John Green
+ - And those who were seen dancing were thought to be insane by those who could not hear the music. ~~Friedrich Nietzsche
+ - Music produces a kind of pleasure which human nature cannot do without. ~~Confucius
+ - We are the music makers, and we are the dreamers of dreams. ~~Roald Dahl
+ - Music is the universal language of mankind. ~~Henry Wadsworth Longfellow
+ - Music is a total constant. That’s why we have such a strong visceral connection to it, you know? Because a song can take you back instantly to a moment, or a place, or even a person. No matter what else has changed in your or the world, that one song says the same, just like that moment. ~~Sarah Dessen
+ - If I were not a physicist, I would probably be a musician. I often think in music. I live my daydreams in music. I see my life in terms of music. ~~Albert Einstein
+ - Music acts like a magic key, to which the most tightly closed heart opens. ~~Maria von Trapp
+ - Music melts all the separate parts of our bodies together. ~~Anaïs Nin
+ - Music is the wine that fills the cup of silence. ~~Robert Fripp
+ - Music is an outburst of the soul. ~~Frederick Delius
+ - Music is the shorthand of emotion. ~~Leo Tolstoy
+ - The only proof he needed for the existence of God was music. ~~Kurt Vonnegut
+ - Music is the great uniter. An incredible force. Something that people who differ on everything and anything else can have in common. ~~Sarah Dessen
+ - Music expresses that which cannot be said and on which it is impossible to be silent. ~~Victor Hugo
+ - Music doesn't lie. If there is something to be changed in this world, then it can only happen through music.  ~~Jimi Hendrix
+ - Talking about music is like dancing about architecture. ~~Steve Martin
+ - Music is everybody’s business. It’s only the publishers who think people own it. ~~John Lennon
+ - Sentimental music has this great way of taking you back somewhere at the same time that it takes you forward, so you feel nostagic and hopeful all at the same time. ~~Nick Hornby
+ - Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. ~~Maya Angelou
+ - To stop the flow of music would be like the stopping of time itself, incredible and inconceivable. ~~Aaron Copland
+ - Without music to decorate it, time is just a bunch of boring production deadlines or dates by which bills must be paid. ~~Frank Zappa
+ - Music is the medicine of the mind. ~~John Logan
+ - The true beauty of music is that it connects people. ~~Roy Ayers
+ - Music is an addiction. ~~Miles Davis
+ - Music has healing power. It has the ability to take people out of themselves for a few hours. ~~Elton John
+ - Music is enough for a lifetime, but a lifetime is not enough for music. ~~Sergei Rachmaninoff
+ - I like beautiful melodies telling me terrible things. ~~Tom Waits
+ - Music begins where the possibilities of language end. ~~Jean Sibelius
+ - Music is the mediator between the spiritual and the sensual life. ~~Ludwig van Beethoven
+ - Music is moonlight in the gloomy night of life. ~~Jean Paul
+ - All good music resembles something. Good music stirs by its mysterious resemblance to the objects and feelings which motivated it. ~~Jean Cocteau
+
+50 quotes

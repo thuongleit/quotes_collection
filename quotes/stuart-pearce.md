@@ -1,0 +1,29 @@
+ - I will do whatever it takes to win a football match.
+ - I can see the carrot at the end of the tunnel.
+ - There is a set of rules and a code of conduct that I believe that you should adhere to in life.
+ - If my results are not good I will lose my job.
+ - Football’s in my blood – and eventually I want to be the one making decisions.
+ - I think management is about just that – managing people via man-to-man skills.
+ - Suddenly, I win the derby and people are talking about England again. It is absolutely pathetic.
+ - I’m thinking of taking a window cleaner’s job to fill the spare hour in the evening.
+ - Make no mistake, you would prefer to work for someone who is going to put their arm around you at times and lift you.
+ - The way I was brought up by my parents and guided through my football life by the influences of various managers means that in some ways I am black and white.
+ - I enjoy making the decisions.
+ - It would be absolute folly to rule myself out of any job.
+ - I have seen the film The Alamo and right now I feel like I’ve got Davy Crockett behind me. Sometimes I feel like I could put my head in a bucket of water.
+ - In a utopia you want to win matches by several goals and by playing a wonderful brand of football. But that’s utopia.
+ - I am doing the job with the mentality that I am going to be here a long time and I hope that I am.
+ - But to me the bottom line is the more education you can give yourself, and the more preparation you can do, the less chance of failing.
+ - I don’t want to portray myself as a hardman in management or anything like that.
+ - I am one of those people who quite enjoys responsibility.
+ - Glenn is going to bring a couple of sumo costumes down so we might have a dust-up in the technical area, that should make good TV.
+ - I have made it totally clear to the players that my door will always be open.
+ - I just get the impression that everyone is willing me to succeed.
+ - His return gives England another key to its bow.
+ - If we go out there and do our best every game, then I will take my chances that the results will be more good than bad.
+ - We are in a results business, so Stuart Pearce being a jolly old boy won’t keep me in a job.
+ - I may be able to put a good book tape on in the car on the way home and I will have a smile on my face.
+ - I am nothing without the players.
+ - I do appreciate that the most important thing as manager is to get good results.
+
+27 quotes

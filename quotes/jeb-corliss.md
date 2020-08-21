@@ -1,0 +1,6 @@
+ - The reality is, that no matter what you do in this life, it’s coming to an end. Once you accept there’s nothing that you can do about your own mortality, then you’re now free. You have no control, so stop pretending you do. And just get on with living your life. Stop living in fear.
+ - My time on this world is limited, but the things I can do with that time are not.
+ - You can’t let the fear of something completely and absolutely inevitable...
+ - If you want to do amazing things with your life...
+
+4 quotes

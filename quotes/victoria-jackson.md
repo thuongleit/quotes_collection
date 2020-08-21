@@ -1,0 +1,30 @@
+ - Because I hate fake people and I always think I’m never fake.
+ - So finally I came up with a thing that felt really pure, and I’m Christian, so when I hear about death I have a lot of hope because I believe in Jesus and life after death, and John 3:16.
+ - The bottom line of Hollywood is money.
+ - Sometimes I like to vent.
+ - Now, I don’t mind making fun of those preachers who steal money from people, they kind of deserve it.
+ - I thought it was a really good contrast to have a really sweet, sincere, church girl sitting next to the church lady who seemed kind of, you know, over the top.
+ - Are Christians too stupid that we can’t write a script, we can’t film a movie OR we don’t know how to act?
+ - But if you believe in Christ and that your main goal with your life is supposed to be to honor Him and do His will, then you don’t have as much pressure as someone who bases all their happiness on whether they’re a movie star.
+ - Religion is man’s attempt to bind himself back to a relationship with God.
+ - Maybe entertainment is not supposed to be reality.
+ - It doesn’t make your life stop being fun to be a Christian.
+ - I watch Glenn Beck and he’s taught me well. Progressive is the new word for Communist.
+ - There’s a communist living in the White House!
+ - I’ve had a lot of struggles and I would be in a lot of trouble, I think, if I wasn’t a Christian.
+ - I got a gymnastics scholarship to college, fell in love with my true love of my whole life – who I’m married to now – and he was a virgin too. It was very romantic.
+ - I remember going to church about four times a week. I liked it a lot.
+ - Maybe if I could ever be a successful comedian then I could be an example that Christians can also have fun.
+ - I think the reason they cast me as the good girls is because they couldn’t find any in Hollywood.
+ - I always wanted to be on a sitcom.
+ - When you go on an audition it’s very frightening.
+ - I always dreamed of being Maria in The Sound of Music.
+ - That’s pretty much why I went into show business because I wanted to have a guitar and sing unaccompanied, that was like my fantasy of the perfect life.
+ - I’ve never been in the music industry, only acting.
+ - I don’t feel any part of religion. I think the Bible is God’s gift of salvation that He gave me because I trusted in Him when I was six year-old. It was a gift and I didn’t earn it.
+ - I wasn’t really qualified to be on Saturday Night Live – I’m not like an impressionist or anything.
+ - I stayed a virgin until I was 23. I didn’t do drugs or drink or smoke.
+ - I cried when I heard Johnny Carson died.
+ - Maybe I’ll learn how, but the only thing I can do is turn down parts that would hurt my conscience.
+
+28 quotes

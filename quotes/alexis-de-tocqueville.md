@@ -1,0 +1,219 @@
+ - America is great because she is good. If America ceases to be good, America will cease to be great.
+ - We need a new political science for a new world.
+ - It is easier for the world to accept a simple lie than a complex truth.
+ - Nothing is more wonderful than the art of being free, but nothing is harder to learn how to use than freedom.
+ - When the past no longer illuminates the future, the spirit walks in darkness.
+ - The American Republic will endure until the day Congress discovers that it can bribe the public with the public’s money.
+ - Despotism often presents itself as the repairer of all the ills suffered, the support of just rights, defender of the oppressed, and founder of order.
+ - Military discipline is merely a perfection of social servitude.
+ - Socialism is a new form of slavery.
+ - Americans are so enamored of equality, they would rather be equal in slavery than unequal in freedom.
+ - Every central government worships uniformity: uniformity relieves it from inquiry into an infinity of details.
+ - The greatness of America lies not in being more enlightened than any other nation, but rather in her ability to repair her faults.
+ - Not until I went into the churches of America and heard her pulpits flame with righteousness did I understand the secret of her genius and power. America is great because America is good, and if America ever ceases to be good, America will cease to be great.
+ - There is no country in the world where the Christian religion retains a greater influence over the souls of men than in America.
+ - America is a land of wonders, in which everything is in constant motion and every change seems an improvement. No natural boundary seems to be set to the efforts of man; and in his eyes what is not yet done is only what he has not attempted to do. – from Democracy in America.
+ - The tie of language is perhaps the strongest and the most durable that can unite mankind.
+ - A man’s admiration for absolute government is proportionate to the contempt he feels for those around him.
+ - The best laws cannot make a constitution work in spite of morals; morals can turn the worst laws to advantage.
+ - A state of equality is perhaps less elevated, but it is more just; and its justice constitutes its greatness and beauty.
+ - No men are less addicted to reverie than the citizens of a democracy.
+ - What is most important for democracy is not that great fortunes should not exist, but that great fortunes should not remain in the same hands. In that way there are rich men, but they do not form a class.
+ - Countries, therefore, when lawmaking falls exclusively to the lot of the poor cannot hope for much economy in public expenditure; expenses will always be considerable, either because taxes cannot touch those who vote for them or because they are assessed in a way to prevent that.
+ - But one also finds in the human heart a depraved taste for equality, which impels the weak to want to bring the strong down to their level, and which reduces men to preferring equality in servitude to inequality in freedom.
+ - Remember that life is neither pain nor pleasure; it is serious business, to be entered upon with courage and in a spirit of self-sacrifice.
+ - The most dangerous moment for a bad government is when it begins to reform.
+ - America is a land of wonders, in which everything is in constant motion and every change seems an improvement.
+ - Chance does nothing that has not been prepared beforehand.
+ - The happy and powerful do not go into exile, and there are no surer guarantees of equality among men than poverty and misfortune.
+ - What is not yet done is only what we have not yet attempted to do.
+ - Trade is the natural enemy of all violent passions because it loves moderation, delights in compromise an is most careful to avoid anger.
+ - Society was cut in two: those who had nothing united in common envy; those who had anything united in common terror.
+ - In politics shared hatreds are almost always the basis of friendships.
+ - I know without needing to hear the voice of the Creator that the stars trace out in space the orbits which His hand has drawn.
+ - A long war almost always places nations in this sad alternative: that their defeat delivers them to destruction and their triumph to despotism.
+ - There is one universal law that has been formed, or at least adoptedby the majority of mankind. That law is justice. Justice forms the cornerstone of each nation’s law.
+ - Consider any individual at any period of his life, and you will always find him preoccupied with fresh plans to increase his comfort.
+ - Democracy does not create strong ties between people. But it does make living together easier.
+ - It is from the midst of this putrid sewer that the greatest river of human industry springs up and carries fertility to the whole world. From this foul drain pure gold flows forth.
+ - No stigma attaches to the love of money in America, and provided it does not exceed the bounds imposed by public order, it is held in honor. The American will describe as noble and estimable ambition that our medieval ancestors would have called base cupidity.
+ - Freedom sees in religion the companion of its struggles and its triumphs, the cradle of its infancy, the divine source of its rights. It considers religion as the safeguard of mores; and mores as the guarantee of laws and the pledge of its duration.
+ - At the head of any new undertaking where in France you would find the government, or in England some great lord, in the United States you are sure to find an association.
+ - The more alike men are, the weaker each feels in the face of all.
+ - When none but the wealthy had watches, they were almost all very good ones; few are now made which are worth much, but everybody has one in his pocket.
+ - Can it be believed that the democracy which overthrew the feudal system and vanquished kings will retreat before tradesmen and capitalists?
+ - It must not be forgotten that it is especially dangerous to enslave men in the minor details of life. For my part, I should be inclined to think freedom less necessary in the great things than in the little ones, if it were possible to be secure of the one without the other.
+ - The whole life of an American is passed like a game of chance, a revolutionary crisis, or a battle.
+ - When an American asks for the cooperation of his fellow citizens, it is seldom refused; and I have often seen it afforded spontaneously and with great good will.
+ - Better use has been made of association and this powerful instrument of action has been applied for more varied aims in America than anywhere else in the world.
+ - The evil which one suffers patiently as inevitable seems insupportable as soon as he conceives the idea of escaping from it.
+ - I have only one passion, the love of liberty and human dignity.
+ - You need not value it yourself if you do not wish to; but you ought to allow it to us who do value it.
+ - This so-called tolerance, which, in my opinion, is nothing but a huge indifference.
+ - One of the distinguishing characteristics of a democratic period is the taste that all men have for easy success and present enjoyment. This occurs in the pursuits of the intellect as well as in others.
+ - There are many men of principle in both parties in America, but there is no party of principle.
+ - The position of the Americans is quite exceptional, and it may be believed that no democratic people will ever be placed in a similar one.
+ - Town meetings are to liberty what primary schools are to science; they bring it within the people’s reach...
+ - Society is endangered not by the great profligacy of a few, but by the laxity of morals amongst all.
+ - As the past has ceased to throw its light upon the future, the mind of man wanders in obscurity.
+ - History is a gallery of pictures in which there are few originals and many copies.
+ - The principle of equality does not destroy the imagination, but lowers its flight to the level of the earth.
+ - There is hardly a congressman prepared to go home until he has at least one speech printed and sent to his constituents, and he won’t let anybody interrupt his harangue until he has made all his useful suggestions about the 24 states of the Union, and especially the district he represents.
+ - The world belongs to those with the most energy.
+ - I avow that I do not hold that complete and instantaneous love for the freedom of the press that one accords to things whose nature is unqualifiedly good. I love it out of consideration for the evils it prevents much more than for the good it does.
+ - The aspect of American society is animated, because men and things are always changing; but it is monotonous, because all the changes are alike.
+ - The most perilous moment for a bad government is when it seeks to mend its ways. Only consummate statecraft can enable a king to save his throne when, after a long spell of oppression, he sets out to improve the lot of his subjects.
+ - Despotism can do without faith but freedom cannot.
+ - Nothing is more annoying in the ordinary intercourse of life than this irritable patriotism of the Americans. A foreigner will gladly agree to praise much in their country, but he would like to be allowed to criticize something, and that he is absolutely refused.
+ - By obliging men to turn their attention to other affairs than their own, it rubs off that private selfishness which is the rust of society.
+ - It is far more important to resist apathy than anarchy or despotism, for apathy can give rise, almost indifferently, to either one.
+ - Not only does democracy make every man forget his ancestors, but also clouds their view of their descendants and isolates them from their contemporaries. Each man is for ever thrown back on himself alone, and there is danger that he may be shut up in the solitude of his own heart.
+ - I know of no country in which there is so little independence of mind and real freedom of discussion as in America.
+ - It is an axiom of political science in the United States that the sole means of neutralizing the effects of newspapers is to multiply their number.
+ - I do not know if the people of the United States would vote for superior men if they ran for office, but there can be no doubt that such men do not run.
+ - As one digs deeper into the national character of the Americans, one sees that they have sought the value of everything in this world only in the answer to this single question: how much money will it bring in?
+ - The progress of democracy seems irresistible, because it is the most uniform, the most ancient and the most permanent tendency which is to be found in history.
+ - The more government takes the place of associations, the more will individuals lose the idea of forming associations and need the government to come to their help. That is a vicious circle of cause and effect.
+ - The prejudice of the race appears stronger in the States that have abolished slaves than in the States where slavery still exists. White carpenters, white bricklayers, and white painters will not work side by side with the blacks in the North but do it in almost every Southern State...
+ - The Americans make associations to give entertainment, to found seminaries, to build inns, to construct churches, to diffuse books, to send missionaries to the antipodes; in this manner, they found hospitals, prisons and schools.
+ - To commit violent and unjust acts, it is not enough for a government to have the will or even the power; the habits, ideas and passions of the time must lend themselves to their committal.
+ - In the principle of equality I very clearly discern two tendencies; one leading the mind of every man to untried thoughts, the other prohibiting him from thinking at all.
+ - The surface of American society is covered with a layer of democratic paint, but from time to time one can see the old aristocratic colours breaking through.
+ - The last thing a political party gives up is its vocabulary.
+ - General ideas are no proof of the strength, but rather of the insufficiency of the human intellect.
+ - In America, conscription is unknown; men are enlisted for payment. Compulsory recruitment is so alien to the ideas and so foreign to the customs of the people of the United States that I doubt whether they would ever dare to introduce it into their law.
+ - Lawyers belong to the people by birth and interest, and to the aristocracy by habit and taste; they may be looked upon as the connecting link of the two great classes of society.
+ - Democratic nations care but little for what has been, but they are haunted by visions of what will be.
+ - Those that despise people will never get the best out of others and themselves.
+ - So many of my thoughts and feelings are shared by the English that England has turned into a second native land of the mind for me.
+ - There are at the present time two great nations in the world allude to the Russians and the Americans All other nations seem to have nearly reached their national limits, and have only to maintain their power; these alone are proceeding along a path to which no limit can be perceived.
+ - Men cannot abandon their religious faith without a kind of aberration of intellect and a sort of violent distortion of their true nature; they are invincibly brought back to more pious sentiments. Unbelief is an accident, and faith is the only permanent state of mankind.
+ - It’s not an endlessly expanding list of rights – the “right” to education, the “right” to health care, the “right” to food and housing. That’s not freedom, that’s dependency. Those aren’t rights, those are the rations of slavery – hay and a barn for human cattle.
+ - The French constitute the most brilliant and the most dangerous nation in Europe and the best qualified in turn to become an object of admiration, hatred, pity or terror but never indifference.
+ - Amongst democratic nations, each new generation is a new people.
+ - Nothing seems at first sight less important than the outward form of human actions, yet there is nothing upon which men set more store: they grow used to everything except to living in a society which has not their own manners.
+ - In America, more than anywhere else in the world, care has been taken constantly to trace clearly distinct spheres of action for the two sexes, and both are required to keep in step, but along paths that are never the same.
+ - European Christianity has allowed itself to be intimately united with the powers of this world. Now that these powers are falling, it is as if it were buried under their ruins.
+ - The nations of our time cannot prevent the conditions of men from becoming equal, but it depends upon themselves whether the principle of equality is to lead them to servitude or freedom, to knowledge or barbarism, to prosperity or wretchedness.
+ - No protracted war can fail to endanger the freedom of a democratic country.
+ - Useful undertakings which require sustained attention and vigorous precision in order to succeed often end up by being abandoned, for, in America, as elsewhere, the people move forward by sudden impulses and short-lived efforts.
+ - If an American was condemned to confine his activity to his own affairs, he would be robbed of one half of his existence.
+ - A newspaper is an adviser who does not require to be sought, but who comes of his own accord, and talks to you briefly every day of the common wealth, without distracting you from your private affairs.
+ - America is a country where they have freedom of speech but everyone says the same thing.
+ - The only authors whom I acknowledge as American are the journalists. They, indeed, are not great writers, but they speak the language of their countrymen, and make themselves heard by them.
+ - A great democratic revolution is taking place in our midst.
+ - When the people rule, they must be rendered happy, or they will overturn the state.
+ - I am unaware of his plans but I shall never stop believing in them because I cannot fathom them and I prefer to mistrust my own intellectual capacities than his justice.
+ - If ever America undergoes great revolutions, they will be brought about by the presence of the black race on the soil of the United States – that is to say, they will owe their origin not to the equality but to the inequality of conditions.
+ - It is easy to see that, even in the freedom of early youth, an American girl never quite loses control of herself; she enjoys all permitted pleasures without losing her head about any of them, and her reason never lets the reins go, though it may often seem to let them flap.
+ - Nations are less disposed to make revolutions in proportion as personal property is augmented and distributed among them, and as the number of those possessing it is increased.
+ - If there ever are great revolutions there, they will be caused by the presence of the blacks upon American soil.
+ - No state of society or laws can render men so much alike but that education, fortune, and tastes will interpose some differences between them; and though different men may sometimes find it their interest to combine for the same purposes, they will never make it their pleasure.
+ - When the reality of power has been surrendered, it’s playing a dangerous game to seek to retain the appearance of it; the external aspect of vigor can sometimes support a debilitated body, but most often it manages to deal it the final blow.
+ - The power of the periodical press is second only to that of the people.
+ - The more I view the independence of the press in its principal effects, the more I convince myself that among the moderns the independence of the press is the capital and so to speak the constitutive element of freedom.
+ - I am far from denying that newspapers in democratic countries lead citizens to do very ill-considered things in common; but without newspapers there would be hardly any common action at all. So they mend many more ills than they cause.
+ - The Indian knew how to live without wants, to suffer without complaint, and to die singing.
+ - The last thing abandoned by a party is its phraseology, because among political parties, as elsewhere, the vulgar make the language, and the vulgar abandon more easily the ideas that have been instilled into it than the words that it has learnt.
+ - Life is to be entered upon with courage.
+ - Men will not receive the truth from their enemies, and it is seldom offered to them by their friends...
+ - The last thing abandoned by a party is its phraseology.
+ - In America one of the first things done in a new State is to make the post go there; in the forests of Michigan there is no cabin so isolated, no valley so wild, but that letters and newspapers arrive at least once a week.
+ - It profits me but little, after all, that a vigilant authority always protects the tranquility of my pleasures and constantly averts all dangers from my path, without my care or concern, if this same authority is the absolute master of my liberty and my life...
+ - In democratic countries, however opulent a man is supposed to be, he is almost always discontented with his fortune, because he finds that he is less rich than his father was, and he fears that his sons will be less rich than himself.
+ - Generally speaking, only simple conceptions can grip the mind of a nation. An idea that is clear and precise even though false will always have greater power in the world than an idea that is true but complex.
+ - There is no philosopher in the world so great but he believes a million things on the faith of other people and accepts a great many more truths than he demonstrates.
+ - Furthermore, when citizens are all almost equal, it becomes difficult for them to defend their independence against the aggressions of power.
+ - To get the inestimable good that freedom of the press assures one must know how to submit to the inevitable evil it gives rise to.
+ - You may be sure that if you succeed in bringing your audience into the presence of something that affects them, they will not care by what road you brought them there; and they will never reproach you for having excited their emotions in spite of dramatic rules.
+ - Men are not corrupted by the exercise of power or debased by the habit of obedience, but by the exercise of a power which they believe to be illegal and by obedience to a rule which they consider to be usurped and oppressive.
+ - The genius of democracies is seen not only in the great number of new words introduced but even more in the new ideas they express.
+ - The debates of that great assembly are frequently vague and perplexed, seeming to be dragged rather than to march, to the intended goal. Something of this sort must, I think, always happen in public democratic assemblies.
+ - Nothing is so dangerous as that of violence employed by well-meaning people for beneficial objects.
+ - It is the dissimilarities and inequalities among men which give rise to the notion of honor; as such differences become less, it grows feeble; and when they disappear, it will vanish too.
+ - Nations, as well as man, almost always betray the most prominent features of their future destiny in their earliest years.
+ - It must not be forgotten that it is especially dangerous to enslave men in the minor details of life.
+ - Despotism may govern without faith, but liberty cannot. How is it possible that society should escape destruction if the moral tie is not strengthened in proportion as the political tie is relaxed? And what can be done with a people who are their own masters if they are not submissive to the Deity?
+ - What is understood by republican government in the United States is the slow and quiet action of society upon itself.
+ - The man who asks of freedom anything other than itself is born to be a slave.
+ - Men living in democratic times have many passions, but most of their passions either end in the love of riches, or proceed from it.
+ - In the United States, the majority undertakes to supply a multitude of ready-made opinions for the use of individuals, who are thus relieved from the necessity of forming opinions of their own.
+ - A man who raises himself by degrees to wealth and power, contracts, in the course of this protracted labor, habits of prudence and restraint which he cannot afterwards shake off. A man cannot gradually enlarge his mind as he does his house.
+ - When, after having examined in detail the organization of the Supreme Court, one comes to consider in sum the prerogatives that have been given it, one discovers without difficulty that a more immense judicial power has never been constituted in any people.
+ - Among a democratic people, where there is no hereditary wealth, every man works to earn a living, or is born of parents who have worked. The notion of labor is therefore presented to the mind, on every side, as the necessary, natural, and honest condition.
+ - In democratic centuries, on the contrary, when the duties of each individual toward the species are much clearer, devotion toward one man becomes rarer: the bond of human affections is extended and loosened.
+ - In the United States, if a political character attacks a sect, this may not prevent even the partisans of that very sect, from supporting him; but if he attacks all the sects together, every one abandons him and he remains alone.
+ - I cannot help fearing that men may reach a point where they look on every new theory as a danger, every innovation as a toilsome trouble, every social advance as a first step toward revolution, and that they may absolutely refuse to move at all.
+ - With much care and skill power has been broken into fragments in the American township, so that the maximum possible number of people have some concern with public affairs.
+ - But what most astonishes me in the United States, is not so much the marvelous grandeur of some undertakings, as the innumerable multitude of small ones.
+ - Religion, which never intervenes directly in the government of American society, should therefore be considered as the first of their political institutions.
+ - In democratic countries as well as elsewhere most of the branches of productive industry are carried on at a small cost by men little removed by their wealth or education above the level of those whom they employ.
+ - In countries where associations are free, secret societies are unknown. In America there are factions, but no conspiracies.
+ - What chiefly diverts the men of democracies from lofty ambition is not the scantiness of their fortunes, but the vehemence of the exertions they daily make to improve them.
+ - Liberty cannot be established without morality, nor morality without faith.
+ - Democratic institutions generally give men a lofty notion of their country and themselves.
+ - Among the droves of men with political ambitions in the United States, I found very few with that virile candor, that manly independence of thought, that often distinguished Americans in earlier times and that is invariably the preeminent trait of great characters wherever it exists.
+ - The will of the nation is one of those phrases most widely abused by schemers and tyrants of all ages.
+ - When fortune has been abolished, when every profession is open to everyone, an ambitious man may think it is easy to launch himself on a great career and feel that he has been called to no common destiny. But this is a delusion which experience quickly corrects.
+ - The French want no-one to be their superior. The English want inferiors. The Frenchman constantly raises his eyes above him with anxiety. The Englishman lowers his beneath him with satisfaction.
+ - There is no country in the world in which everything can be provided for by the laws, or in which political institutions can prove a substitute for common sense and public morality.
+ - There are two things which a democratic people will always find very difficult – to begin a war and to end it.
+ - The taste for well-being is the prominent and indelible feature of democratic times.
+ - The man who submits to violence is debased by his compliance; but when he submits to that right of authority which he acknowledges in a fellow creature, he rises in some measure above the person who give the command.
+ - I see no clear reason why the doctrine of self-interest properly understood should turn men away from religious beliefs.
+ - The best laws cannot make a constitution work in spite of morals; morals can turn the worst laws to advantage. That is a commonplace truth, but one to which my studies are always bringing me back. It is the central point in my conception. I see it at the end of all my reflections.
+ - I have seen Americans making great and sincere sacrifices for the key common good and a hundred times I have noticed that, when needs be, they almost always gave each other faithful support.
+ - Those who prize freedom only for the material benefits it offers have never kept it for long.
+ - To remain silent is the most useful service that a mediocre speaker can render to the public good.
+ - When I refuse to obey an unjust law, I do not contest the right of the majority to command, but I simply appeal from the sovereignty of the people to the sovereignty of mankind.
+ - Two things in America are astonishing: the changeableness of most human behavior and the strange stability of certain principles. Men are constantly on the move, but the spirit of humanity seems almost unmoved.
+ - The health of a democratic society may be measured by the quality of functions performed by private citizens.
+ - Among the laws controlling human societies there is one more precise and clearer, it seems to me, than all the others. If men are to remain civilized or to become civilized, the art of association must develop and improve among them at the same speed as equality of conditions spreads.
+ - All those who seek to destroy the liberties of a democratic nation ought to know that war is the surest and shortest means to accomplish it.
+ - The Americans combine the notions of religion and liberty so intimately in their minds, that it is impossible to make them conceive of one without the other.
+ - Any measure that establishes legal charity on a permanent basis and gives it an administrative form thereby creates an idle and lazy class, living at the expense of the industrial and working class.
+ - We succeed in enterprises which demand the positive qualities we possess, but we excel in those which can also make use of our defects.
+ - One of the most ordinary weaknesses of the human intellect is to seek to reconcile contrary principles, and to purchase peace at the expense of logic.
+ - I must say that I have seen Americans make great and real sacrifices to the public welfare; and have noticed a hundred instances in which they hardly ever failed to lend faithful support to one another.
+ - How could a society escape destruction if, when political ties are relaxed, moral ties are not tightened, and what can be done with a people master of itself if it not subject to God?
+ - The regime which is destroyed by a revolution is almost always an improvement on its immediate predecessor, and experience teaches that the most critical moment for bad governments is the one which witnesses their first steps toward reform.
+ - I know of no other country where love of money has such a grip on men’s hearts or where stronger scorn is expressed for the theory of permanent equality of property.
+ - Democracy and socialism have nothing in common but one word, equality. But notice the difference: while democracy seeks equality in liberty, socialism seeks equality in restraint and servitude.
+ - When a large number of organs of the press come to advance along the same track, their influence becomes almost irresistible in the long term, and public opinion, struck always from the same side, ends by yielding under their blows.
+ - In democracies, nothing is more great or more brilliant than commerce: it attracts the attention of the public, and fills the imagination of the multitude; all energetic passions are directed towards it.
+ - History, it is easily perceived, is a picture-gallery containing a host of copies and very few originals.
+ - Of all the countries of the world America is the one where the movement of thought and human industry is the most continuous and swift.
+ - In the United States, there is no end which human will despairs of attaining through the combined power of individuals united in a society.
+ - The people reign over the American political world as God rules over the universe. It is the cause and the end of all things; everything rises out of it and is absorbed back into it.
+ - Nobody is going to occupy a place higher than I.
+ - If men are to remain civilized or to become so, the art of associating together must grow and improve in the same ratio in which the equality of conditions is increased.
+ - However energetically society in general may strive to make all the citizens equal and alike, the personal pride of each individual will always make him try to escape from the common level, and he will form some inequality somewhere to his own profit.
+ - America is great because she is good.
+ - Comfort becomes a goal when distinctions of rank are abolished and privileges destroyed.
+ - The most durable monument of human labor is that which recalls the wretchedness and nothingness of man.
+ - In America the majority raises formidable barriers around the liberty of opinion; within these barriers an author may write what he pleases, but woe to him if he goes beyond them.
+ - I do not find fault with equality for drawing men into the pursuit of forbidden pleasures, but for absorbing them entirely in the search for the pleasures that are permitted.
+ - A democratic government is the only one in which those who vote for a tax can escape the obligation to pay it.
+ - I should have loved freedom, I believe, at all times, but in the time in which we live I am ready to worship it.
+ - In a revolution, as in a novel, the most difficult part to invent is the end.
+ - Men seldom take the opinion of their equal, or of a man like themselves, upon trust.
+ - The legislator is like the navigator of a ship on the high seas. He can steer the vessel on which he sails, but he cannot alter its construction, raise the wind, or stop the waves from swelling beneath his feet.
+ - Nature secretly avenges herself for the constraint imposed upon her by the laws of man.
+ - Those which we call necessary institutions are simply no more than institutions to which we have become accustomed.
+ - Physical strength therefore is one of the first conditions of happiness and even of the existence of nations.
+ - An American cannot converse, but he can discuss, and his talk falls into a dissertation. He speaks to you as if he was addressing a meeting; and if he should chance to become warm in the discussion, he will say ‘Gentlemen’ to the person with whom he is conversing.
+ - There is hardly a pioneer’s hut which does not contain a few odd volumes of Shakespeare. I remember reading the feudal drama of Henry V for the first time in a log cabin.
+ - I cannot believe that a republic could subsist if the influence of the lawyers in public business did not increase in proportion to the power of the people.
+ - I studied the Koran a great deal. I came away from that study with the conviction there have been few religions in the world as deadly to men as that of Muhammad.
+ - In no other country in the world is the love of property keener or more alert than in the United States, and nowhere else does the majority display less inclination toward doctrines which in any way threaten the way property is owned.
+ - Though it is very important for man as an individual that his religion should be true, that is not the case for society. Society has nothing to fear or hope from another life; what is most important for it is not that all citizens profess the true religion but that they should profess religion.
+ - There is hardly a political question in the United States which does not sooner or later turn into a judicial one.
+ - I have always noticed in politics how often men are ruined by having too good a memory.
+ - Grant me thirty years of equal division of inheritances and a free press, and I will provide you with a republic.
+ - All revolutions more or less threaten the tenure of property: but most of those who live in democratic countries are possessed of property – not only are they possessed of property but they live in the condition of men who set the greatest store upon their property.
+ - The main business of religions is to purify, control, and restrain that excessive and exclusive taste for well-being which men acquire in times of equality.
+ - Of all nations, those submit to civilization with the most difficulty which habitually live by the chase.
+ - Laws are always unstable unless they are founded on the manners of a nation; and manners are the only durable and resisting power in a people.
+ - He was as great as a man can be without morality.
+
+217 quotes

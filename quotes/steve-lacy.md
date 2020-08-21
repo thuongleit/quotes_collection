@@ -1,0 +1,39 @@
+ - Saxophone is one thing, and music is another.
+ - Before the work comes to you, you have to invent work.
+ - Bamboo is not a weed, it’s a flowering plant. Bamboo is a magnificent plant.
+ - Jazz is like wine. When it is new it’s only for the experts, but when it gets older everybody wants it.
+ - Nobody was playing the soprano saxophone and certainly nobody was trying to do anything with it. So I was all alone. I didn’t know that at first.
+ - I heard Sidney Bechet play a Duke Ellington piece and fell in love with the soprano saxophone.
+ - The saxophone is a very interesting machine, but I’m more interested in music.
+ - If you have music you want to play that no one asks you to play, you have to go out and find where you can play it. It’s called do or die.
+ - I still love the whole history of Jazz. The old things sound better than ever.
+ - The potential for the saxophone is unlimited.
+ - If you listen to Louis Armstrong from 1929, you will never hear anything better than that really, and you will never hear anything more free than that.
+ - You can work on the saxophone alone, but ultimately you must perform with others.
+ - I’ve performed solo for 20 years now, but I don’t do much of it, because if you only play alone, you go crazy and out of tune and play foolish music.
+ - If you’re trying to invent something new, you’re going to reach a lot of discouraging points, and most people give up.
+ - There is an awful lot of what I call recreational jazz going on, where people go out and learn a particular language or style and become real sharks on somebody else’s language.
+ - Kenny G, I have to be grateful to him for proving that the instrument can be played all different kinds of ways.
+ - What I learned with Cecil Taylor was strategy and survival and how to resist temptations and resist getting discouraged.
+ - Play difficult and interesting things. If you play boring things, you risk losing your appetite. Saxophone can be tedious with too much of the same.
+ - Whoever has an original thing to say, it is sort of a threat to the status quo.
+ - It’s very important to go through periods where you sound just rotten and you know it, and you have to persevere or give up.
+ - In composition you have all the time you want to decide what to say in 15 seconds, in improvisation you have 15 seconds.
+ - I think it is in collaboration that the nature of art is revealed.
+ - When I found the music of Monk I finally found music that fit that horn. Every one of his tunes fit it perfectly.
+ - Circumstances can be very important. Find the right people to work with.
+ - Jazz is people’s music, a collectivity.
+ - I started in New Orleans music and played all through the history of jazz.
+ - Risk is at the heart of jazz. Every note we play is a risk.
+ - Register is very important. Music sounds best in a certain register.
+ - When I came up, it was all about originality and collective research. There is an awful lot of imitation going on now.
+ - To me, there is spirit in a reed. It’s a living thing, a weed, really, and it does contain spirit of a sort. It’s really an ancient vibration.
+ - The more original something is, the more of a threat it seems until the people catch up with it. That happened with Thelonious Monk. It happened with anybody who is really original.
+ - You must have the music to justify an instrument’s extensive use.
+ - I’ve been working on the soprano saxophone for 40 years, and the possibilities are astounding. It’s up to you, the only limit is the imagination.
+ - Make the drummer sound good.
+ - I wanted to be a pianist but it just wasn’t my thing. I guess I wanted to stand up rather than sit down.
+ - It starts with a single sound. If there’s something in that sound, then it’s worth continuing.
+ - The soprano has all those other instruments in it. It’s got the soprano song voice, flute, violin, clarinet, and tenor elements and can even approach the baritone in intensity.
+
+37 quotes

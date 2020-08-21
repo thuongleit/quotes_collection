@@ -1,0 +1,34 @@
+ - It is written in the Jewish law book, the Talmud, that only the Jew is human, that Gentiles are only animals.
+ - The Jew is a devil in human form. It is fitting that he be exterminated root and branch.
+ - My life’s mission is to unmask the Jews.
+ - The descendants of European immigrants do not govern the United States of America today. The foreign and domestic policies of the country are made by the Jews and their lackeys.
+ - The Jew always lives from the blood of other peoples, he needs such murders and such sacrifices. The victory will be only entirely and finally achieved when the whole world is free of Jews.
+ - Germans must fight Jews, that organized body of world criminals against whom Christ, the greatest anti-Semite of all time, had fought.
+ - A people that does not protect its racial purity will perish!
+ - The black shadow cares for itself, not for you.
+ - To this day, I do not believe that five million were killed. I consider it technically impossible that could have happened. I do not believe it. I have not received proof of that up until now.
+ - Christ was a Jew, and God, he is supposed to have made the universe. That’s a little far-fetched because if God made the world, who made God?
+ - There was reference made to a book written in Greek by a former Rabbi who had been converted to Christianity. There was reference to a publication of a high clergyman of Milan. Not even did Jews raise objections to that book.
+ - This is our mission at home, to approach these future decisions without hesitation, to do our duty and to remain strong. We know the enemy, we have called him by name for the last twenty years: he is the World Jew. And we know that the Jew must die.
+ - He who knows the truth and does not speak it is a miserable coward.
+ - Who are the moneylenders? They are those who were driven out of the Temple by Christ Himself 2000 years ago. They are those who never work but live on fraud.
+ - Seeking fortunes in America led to Germany losing people, and the American continent received many people whose contributions are particularly clear in the agricultural and technical fields.
+ - There must be a punitive expedition against the Jews in Russia, a punitive expedition which will expect: death sentence and execution. Then the world will see the end of the Jews is also the end of Bolshevism.
+ - In Soviet-Russia the Jew is forging the tool with which he wants to enslave Europe.
+ - Social Democracy preached against capitalism for half a century. After the November revolution the Reds had the opportunity to direct capitalism into the proper paths: but nothing happened!
+ - As long as these blood brothers are our leaders, and as long as your party officials are Jewish lackeys, you will be no threat to the big money men.
+ - It is a trial within a nation but a trial of victors against the vanquished. Even before the trials started, the victors who are our judges were quite convinced that we were guilty and that we should all pay the price.
+ - The Jews are a race and not a religion. My goal was not to persecute the Jews but to enlighten Gentiles to put them on guard.
+ - When someone succeeded in quickly making a lot of money in America, people said he had made his fortune.
+ - The family ties between hundreds of thousands of German families and their American relatives led many to think that America would never join a second war against Germany.
+ - I remember reports that the American and English newspapers were very happy about the fact that so many were killed in Dresden. There are many instances of barbarity and cruelty on the part of the Allies which I could tell you.
+ - When the Jews speak of humanity, they mean only the totality of Jews.
+ - Ritual murder is referred to in court files which are located in Rome. There are pictures in it which show that in 23 cases, the Church itself has dealt with the question.
+ - The diplomatic representatives of the United States of America to other nations are almost entirely Jews.
+ - It’s perfectly understandable and proper for one to be anti-Semite, but to exterminate women and children is so extraordinary, it’s hard to believe. No defendant here wanted that.
+ - But it is a fact that within Jewry there exists a sect which engaged in these murders.
+ - It was the same in World War I, when Woodrow Wilson, also a tool of the Jews, maneuvered it into the war.
+ - One has to be foolish or irredeemably stupid to believe that anything good can come to Europe from the land of presumed opportunity.
+ - Do you not know that the God of the Old Testament orders the Jews to consume and enslave the peoples of the earth?
+
+32 quotes

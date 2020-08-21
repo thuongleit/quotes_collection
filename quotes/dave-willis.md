@@ -1,0 +1,27 @@
+ - Be an encourager. The world has plenty of critics already.
+ - Don’t use social media to impress people; use it to impact people.
+ - Show respect to people who don’t deserve it. Not as a reflection of their character, but of yours.
+ - If God answered all of your prayers, would the world look different or just your life?
+ - Pray when you feel like worrying. Give thanks when you feel like complaining. Keep going when you feel like quitting.
+ - There are no perfect parents, and there are no perfect children, but there are plenty of perfect moments along the way.
+ - A perfect marriage is just two imperfect people who refuse to give up on each other.
+ - Every day is beautiful when you’re holding hands with your best friend.
+ - Fight less, cuddle more. Demand less, serve more. Text less, talk more. Criticize less, compliment more. Stress less, laugh more. worry less, pray more. With each new day, find new ways to love each other even more.
+ - A strong marriage requires two people who choose to love each other even on those days when they struggle to like each other.
+ - Always strive to give your spouse the very best of yourself; not what’s leftover after you have given your best to everyone else.
+ - Your character should always be stronger than your circumstances.
+ - Never be too busy for the people you love. Never allow pursuits or possessions to become bigger priorities than your relationships. Love is what gives meaning to life.
+ - Real love is when you are completely committed to someone even when they are being completely unlovable.
+ - Thoughtfulness is like a glue that hold a married couple together. Be creative and consistent in finding thoughtful ways to show your spouse that you love them and they are always on your mind.
+ - In every disagreement in your marriage, remember that there is not a winner and a loser. You are partners in everything, so you will either win together or lose together. Always work together to find a solution.
+ - A strong marriage requires loving your spouse even in those moments when they aren’t being lovable; it means believing in them even when they struggle to believe in themselves.
+ - Couples who make it aren’t the ones who never had a reason to get divorced; they are simply the ones who decided early on that their commitment to each other was always going to be bigger than their differences and their flaws.
+ - Husbands, love your wives well! Your children are noticing how you treat her. You are teaching your sons how they should treat women, and you are teaching your daughters what they should expect from men.
+ - My kids are fanatical about ‘Scooby-Doo,’ and I think that the creators of ‘Scooby-Doo’ somehow tripped across some kind of magical hypnotic formula that lures children. It’s far more fascinating to them than anything else on the air.
+ - I’m not a big reggae dude. I have maybe two other reggae albums.
+ - I think I’m long past the days where I would go to the store and drop a couple hundred bucks on CDs, so my playlist is gonna be pretty long in the tooth.
+ - I hooked up everybody in Sidney, including one guy who was blind.
+ - As Hollywood knows, I’m full of ideas.
+ - The funny thing is that I had never actually watched TV.
+
+25 quotes

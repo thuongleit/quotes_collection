@@ -1,0 +1,502 @@
+ - I never saw a wild thing sorry for itself. A small bird will drop frozen dead from a bough without ever having felt sorry for itself.
+ - The essential American soul is hard, isolate, stoic, and a killer. It has never yet melted.
+ - Water is H2O, hydrogen two parts, oxygen one, but there is also a third thing, that makes it water and nobody knows what that is.
+ - I never saw a wild thing sorry for itself.
+ - We’ve got to live, no matter how many skies have fallen.
+ - Ethics and equity and the principles of justice do not change with the calendar.
+ - Those that go searching for love only make manifest their own lovelessness, and the loveless never find love, only the loving find love, and they never have to seek for it.
+ - Men fight for liberty and win it with hard knocks. Their children, brought up easy, let it slip away again, poor fools. And their grandchildren are once more slaves.
+ - But better die than live mechanically a life that is a repetition of repetitions.
+ - I want to live my life so that my nights are not full of regrets.
+ - That she bear children is not a woman’s significance. But that she bear herself, that is her supreme and risky fate.
+ - What the eye doesn’t see and the mind doesn’t know, doesn’t exist.
+ - Sex is just another form of talk, where you act the words instead of saying them.
+ - There is no smooth road into the future: but we go round, or scramble over the obstacles.
+ - Let yourself fall in love. If you have not done so already, you are wasting your life.
+ - Whatever life may be, and whatever horror men have made of it, the world is a lovely place, a magic place, something to marvel over. The world is an amazing place.
+ - She was always waiting, it seemed to be her forte.
+ - The great home of the soul is the open road.
+ - The only true aristocracy is that of consciousness.
+ - Are you willing to be sponged out, erased, cancelled, made nothing? Are you willing to be made nothing? Dipped into oblivion? If not, you will never really change.
+ - Never trust the artist. Trust the tale. The proper function of the critic is to save the tale from the artist who created it.
+ - Nobody knows you. You don’t know yourself. And I, who am half in love with you, What am I in love with? My own imaginings?
+ - The sense of wonder, that is our sixth sense.
+ - Sacred love is selfless, seeking not its own. The lover serves his beloved and seeks perfect communion of oneness with her.
+ - The fairest thing in nature, a flower, still has its roots in earth and manure.
+ - Love is the flower of life, and blossoms unexpectedly and without law, and must be plucked where it is found, and enjoyed for the brief hour of its duration.
+ - A woman unsatisfied must have luxuries. But a woman who loves a man would sleep on a board.
+ - Men are not free when they’re doing just what they like. Men are only free when they’re doing what the deepest self likes. And there is getting down to the deepest self! It takes some diving.
+ - Life is ours to be spent, not to be saved.
+ - A snake came to my water trough On a hot, hot day, and I in pajamas for the heat, To drink there.
+ - Tragedy is like strong acid – it dissolves away all but the very gold of truth.
+ - For man, as for flower and beast and bird, the supreme triumph is to be most vividly, most perfectly alive.
+ - Beware of absolutes. There are many gods.
+ - Nothing but love has made the dog lose his wild freedom, to become the servant of man.
+ - It’s not art for art’s sake, it’s art for my sake.
+ - Things men have made with wakened hands, and put soft life into are awake through years with transferred touch, and go on glowing for long years. And for this reason, some old things are lovely warm still with the life of forgotten men who made them.
+ - It is no good casting out devils. They belong to us, we must accept them and be at peace with them.
+ - Be sure your sins will find you out, especially if you’re married and her name’s Bertha.
+ - Softly, in the dusk, a woman is singing to me; Taking me back down the vista of years, till I see A child sitting under the piano, in the boom of the tingling strings And pressing the small, poised feet of a mother who smiles as she sings.
+ - Only the desert has a fascination – to ride alone – in the sun in the forever unpossessed country – away from man. That is a great temptation.
+ - When I read Shakespeare I am struck with wonder that such trivial people should muse and thunder in such lovely language.
+ - Don’t you find it a beautiful clean thought, a world empty of people, just uninterrupted grass, and a hare sitting up?
+ - The real tragedy of England, as I see it, is the tragedy of ugliness. The country is so lovely: the man-made England is so vile.
+ - For my part, I prefer my heart to be broken. It is so lovely, dawn-kaleidoscopic within the crack.
+ - While we live, let us live.
+ - If I were the moon, I know where I would fall down.
+ - Be a good animal, true to your animal instincts.
+ - Ours is essentially a tragic age, so we refuse to take it tragically.
+ - The unhappiness of a wife with a good husband is much more devastating than the unhappiness of a wife with a bad husband.
+ - The Sphinx-riddle. Solve it, or be torn to bits, is the decree.
+ - A little morphine in all the air. It would be wonderfully refreshing for everyone.
+ - My God, these folks don’t know how to love – that’s why they love so easily.
+ - Instead of chopping yourself down to fit the world, chop the world down to fit yourself.
+ - Perhaps only people who are capable of real togetherness have that look of being alone in the universe. The others have a certain stickiness, they stick to the mass.
+ - Sanity means the wholeness of the consciousness. And our society is only part conscious, like an idiot.
+ - And if tonight my soul may find her peace in sleep, and sink in good oblivion, and in the morning wake like a new-opened flower then I have been dipped again in God, and new-created.
+ - I do esteem individual liberty above everything. What is a nation for, but to secure the maximum liberty to every individual?
+ - Only the flow matters; live and let live, love and let love. There is no point in love.
+ - You love me so much, you want to put me in your pocket. And I should die there smothered.
+ - What is pornography to one man is the laughter of genius to another.
+ - Do come back and draw the ferrets, they are the most lovely noble darlings in the world.
+ - Be still when you have nothing to say; when genuine passion moves you, say what you’ve got to say, and say it hot.
+ - There’s always the hyena of morality at the garden gate, and the real wolf at the end of the street.
+ - Vitally, the human race is dying. It is like a great uprooted tree, with its roots in the air. We must plant ourselves again in the universe.
+ - I love Italian opera – it’s so reckless. Damn Wagner, and his bellowings at Fate and death. Damn Debussy, and his averted face. I like the Italians who run all on impulse, and don’t care about their immortal souls, and don’t worry about the ultimate.
+ - How I hate the attitude of ordinary people to life. How I loathe ordinariness! How from my soul I abhor nice simple people, with their eternal price list. It makes my blood boil.
+ - I will wait and watch till the day of David at last shall be finished, and wisdom no more fox-faced, and the blood gets back its flame.
+ - You live by what you thrill to, and there’s the end of it.
+ - The journey of love has been rather a lacerating, if well-worth-it, journey.
+ - Eat and carouse with Bacchus, or munch dry bread with Jesus, but don’t sit down without one of the gods.
+ - You don’t learn algebra with your blessed soul. Can’t you look at it with your clear simple wits?
+ - When love turns into dust, money becomes the substitution.
+ - One sheds one’s sicknesses in books – repeats and presents again one’s emotions, to be master of them.
+ - Beauty is an experience, nothing else. It is not a fixed pattern or an arrangement of features. It is something felt, a glow or a communicated sense of fineness.
+ - Not that the Red Indian will ever possess the broad lands of America. At least I presume not. But his ghost will.
+ - The living moment is everything.
+ - The feelings I don’t have I don’t have. The feelings I don’t have, I won’t say I have. The felings you say you have, you don’t have. The feelings you would like us both to have, we neither of us have.
+ - One must learn to love, and go through a good deal of suffering to get to it, and the journey is always towards the other soul.
+ - Recklessness is almost a man’s revenge on his woman. He feels he is not valued so he will risk destroying himself to deprive her altogether.
+ - Obscenity only comes in when the mind despises and fears the body, and the body hates and resists the mind.
+ - The profoundest of all sensualities is the sense of truth and the next deepest sensual experience is the sense of justice.
+ - My great religion is a belief in the blood, the flesh, as being wiser than the intellect. We can go wrong in our minds. But what our blood feels and believes and says, is always true. The intellect is only a bit and a bridle.
+ - The Moon! Artemis! the great goddess of the splendid past of men! Are you going to tell me she is a dead lump?
+ - Ours is an excessively conscious age. We know so much, we feel so little.
+ - I shall always be a priest of love.
+ - The human soul needs actual beauty more than bread.
+ - Where sanity is there God is.
+ - Men and women aren’t really dogs: they only look like it and behave like it. Somewhere inside there is a great chagrin and a gnawing discontent.
+ - The nature of the infant is not just a new permutation-and-combination of elements contained in the natures of the parents. There is in the nature of the infant that which is utterly unknown in the natures of the parents.
+ - Now the only decent way to get something done is to get it done by somebody who quite likes doing it.
+ - Tragedy looks to me like man in love with his own defeat. Which is only a sloppy way of being in love with yourself.
+ - The goal is to know how not-to-know.
+ - Now go away then, and leave me alone. I don’t want any more of your meretricious persiflage.
+ - Try to find your deepest issue in every confusion, and abide by that.
+ - I’d be ashamed to see a woman walking around with my name-label on her, address and railway station, like a wardrobe trunk.
+ - Any novel of importance has a purpose. If only the “purpose” be large enough, and not at outs with the passional inspiration.
+ - It’s better to be born lucky than rich. If you’re rich, you may lose your money, but if you’re born lucky, you will always have more money.
+ - A circle swoop, and a quick parabola under the bridge arches Where light pushes through; A sudden turning upon itself of a thing in the air. A dip to the water.
+ - I think New Mexico was the greatest experience from the outside world that I have ever had.
+ - The Christian fear of the pagan outlook has damaged the whole consciousness of man.
+ - In every living thing there is the desire for love.
+ - Man has little needs and deeper needs. We have fallen into the mistake of living from our little needs till we have almost lost our deeper needs in a sort of madness.
+ - Marriage is the clue to human life, but there is no marriage apart from the wheeling sun and the nodding earth, from the strayingof the planets and the magnificence of the fixed stars.
+ - Tragedy ought really to be a great kick at misery.
+ - Oh the innocent girl in her maiden teens knows perfectly well what everything means.
+ - Now in November nearer comes the sun down the abandoned heaven.
+ - There are vast realms of consciousness still undreamed of -vast ranges of experience, like humming of unseen harps, we know nothing of, within us.
+ - You’ll never succeed in idealizing hard work. Before you can dig mother earth you’ve got to take off your ideal jacket. The harder a man works, at brute labor, the thinner becomes his idealism, the darker his mind.
+ - Never trust the teller, trust the tale.
+ - A woman has to live her life, or live to repent not having lived it.
+ - The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.
+ - Love is the hastening gravitation of spirit towards spirit, and body towards body, in the joy of creation.
+ - She had borne so long this cruelty of belonging to him and not being claimed by him.
+ - If you try to nail anything down, in the novel, either it kills the novel, or the novel gets up and walks away with the nail.
+ - Life and love are life and love, a bunch of violets is a bunch of violets, and to drag in the idea of a point is to ruin everything. Live and let live, love and let love, flower and fade, and follow the natural curve, which flows on, pointless.
+ - Do not allow to slip away from you freedoms the people who came before you won with such hard knocks.
+ - How sure I feel, how warm and strong and happy For the future! How sure the future is within me; I am like a seed with a perfect flower enclosed...
+ - Pornography is the attempt to insult sex, to do dirt on it.
+ - Who knows the power that Saturn has over us, or Venus? But it is a vital power, rippling exquisitely through us all the time.
+ - If only we could live two lives: the first in which to make one’s mistakes, and the second in which to profit by them.
+ - Sex and beauty are inseparable, like life and consciousness. And the intelligence which goes with sex and beauty, and arises out of sex and beauty, is intuition.
+ - Sleep is still most perfect, in spite of hygienists, when it is shared with a beloved. The warmth, the security and peace of soul, the utter comfort from the touch of the other, knits the sleep, so that it takes the body and soul completely in its healing.
+ - I never knew how soothing trees are-many trees and patches of open sunlight, and tree presences; it is almost like having another being.
+ - Not I, not I, but the wind that blows through me! A fine wind is blowing the new direction of Time.
+ - Loud peace propaganda makes war seem imminent.
+ - Consciousness is an end in itself. We torture ourselves getting somewhere, and when we get there it is nowhere, for there is nowhere to get to.
+ - Morality which is based on ideas, or on an ideal, is an unmitigated evil.
+ - Mankind has got to get back to the rhythm of the cosmos.
+ - How to begin to educate a child. First rule: leave him alone. Second rule: leave him alone. Third rule: leave him alone. That is the whole beginning.
+ - You feel free in Australia. There is great relief in the atmosphere – a relief from tension, from pressure, an absence of control of will or form. The Skies open above you and the areas open around you.
+ - The map appears to us more real than the land.
+ - Go deeper than love, for the soul has greater depths, love is like the grass, but the heart is deep wild rock molten, yet dense and permanent.
+ - The cruelest thing a man can do to a woman is to portray her as perfection.
+ - Sentimentalism is the working off on yourself of feelings you haven’t really got.
+ - Never was an age more sentimental, more devoid of real feeling, more exaggerated in false feeling, than our own.
+ - There’s nothing wrong with sexual feelings in themselves, so long as they are straightforward and not sneaking or sly. The right sort of sex stimulus is invaluable to human daily life. Without it the world grows grey.
+ - When I wish I was rich, then I know I am ill.
+ - If only I am keen and hard like the sheer tip of a wedge Driven by invisible blows, The rock will split, we shall come at the wonder, we shall find the Hesperides.
+ - The living self has one purpose only: to come into its own fullness of being, as a tree comes into full blossom, or a bird into spring beauty, or a tiger into lustre.
+ - There is nothing to save, now all is lost, but a tiny core of stillness in the heart like the eye of a violet.
+ - Men are freest when they are most unconscious of freedom. The shout is a rattling of chains, always was.
+ - Persephone herself is but a voice or a darkness invisible enfolded in the deeper dark of the arms Plutonic, and pierced with the passion of dense gloom, among the splendor of torches of darkness, shedding darkness on the lost bride and her groom.
+ - The Spanish wine, my God, it is foul, catpiss is champagne compared, this is the sulphurous urination of some aged horse.
+ - The great virtue in life is real courage that knows how to face facts and live beyond them.
+ - Now it is autumn and the falling fruit and the long journey towards oblivion. The apples falling like great drops of dew to bruise themselves an exit from themselves.
+ - The novel is the one bright book of life. Books are not life. They are only tremulations on the ether. But the novel as a tremulation can make the whole man alive tremble.
+ - If we sip the wine, we find dreams coming upon us out of the imminent night.
+ - The pyramids of Egypt will not last a moment compared to the daisy.
+ - It’s hard to ravish a tin of sardines.
+ - I am part of the sun as my eye is of me. That I am part of the earth my feet know perfectly, and my blood is part of the sea.
+ - They say the sea is cold, but the sea contains the hottest blood of all, and the wildest, the most urgent.
+ - Sleep is a hint of lovely oblivion.
+ - Literary criticism can be no more than a reasoned account of the feeling produced upon the critic by the book he is criticising.
+ - The world of men is dreaming, it has gone mad in its sleep, and a snake is strangling it, but it can’t wake up.
+ - This is the very worst wickedness, that we refuse to acknowledge the passionate evil that is in us. This makes us secret and rotten.
+ - There is a sixth sense, the natural religious sense, the sense of wonder.
+ - Sometimes life takes hold of one, carries the body along, accomplishes one’s history, and yet is not real, but leaves oneself as it were slurred over.
+ - The great pagan world of which Egypt and Greece were the last living termsonce had a vast and perhaps perfect science of itsown, a science in terms of life. In our era this science crumbled into magic and charlatanry. But even wisdom crumbles.
+ - The Italians are not passionate: passion has deep reserves. They are easily moved, and often affectionate, but they rarely have any abiding passion of any sort.
+ - And in this passion for understanding her soul lay close to his; she had him all to herself. But he must be made abstract first.
+ - Sex is the root of which intuition is the foliage and beauty is the flower.
+ - In the dust where we have buried the silent races and their abominations we have buried so much of the delicate magic of life.
+ - There is no such thing as liberty. You only change one sort of domination for another. All we can do is to choose our master.
+ - The flood subsides, and the body, like a worn sea-shell emerges strange and lovely.
+ - Be careful, then, and be gentle about death. For it is hard to die, it is difficult to go through the door, even when it opens.
+ - Thought is a man in his wholeness, wholly attending.
+ - Reach me a gentian, give me a torch! let me guide myself with the blue, forked torch of this flower.
+ - Censors are dead men set up to judge between life and death. For no live, sunny man would be a censor, he’d just laugh.
+ - The business of art is to reveal the relation between man and his environment.
+ - And can a man his own quietus make with a bare bodkin?
+ - Sing then the core of dark and absolute oblivion where the soul at last is lost in utter peace.
+ - Money poisons you when you’ve got it, and starves you when you haven’t.
+ - You must always be a-waggle with LOVE.
+ - No absolute is going to make the lion lie down with the lamb: unless the lamb is inside.
+ - The world is wonderful and beautiful and good beyond one’s wildest imagination. Never, never, never could one conceive what love is, beforehand, never. Life can be great-quite god-like. It can be so. God be thanked I have proved it.
+ - For us to go to Italy and to penetrate into Italy is like a most fascinating act of self-discovery.
+ - Reason is a supple nymph, and slippery as a fish by nature. She had as leave give her kiss to an absurdity any day, as to syllogistic truth. The absurdity may turn out truer.
+ - For God’s sake, all of you, say spiteful things about me, then I shall know I mean something to you. Don’t say surgaries, or I’m done.
+ - Nobody can have the soul of me. My mother has had, and nobody can have it again. Nobody can come into my very self again, and breathe me like an atmosphere.
+ - If a novel reveals true and vivid relationships, it is a moral work, no matter what the relationships consist in. If the novelisthonours the relationship in itself, it will be a great novel.
+ - When I hear modern people complain of being lonely then I know what has happened. They have lost the cosmos.
+ - Since obscenity is the truth of our passion today, it is the only stuff of art – or almost the only stuff.
+ - We have buried so much of the delicate magic of life.
+ - I should feel the air move against me, and feel the things I touched, instead of having only to look at them. I’m sure life is all wrong because it has become much too visual – we can neither hear nor feel nor understand, we can only see. I’m sure that is entirely wrong.
+ - Sleep is still most perfect, in spite of hygienists, when it is shared with a beloved.
+ - Oh, for the wonder that bubbles into my soul.
+ - Far back, far back in our dark soul the horse prances.
+ - The novel is the highest form of human expression so far attained. Why? Because it is so incapable of the absolute.
+ - In my very own self, I am part of my family.
+ - The true unconscious is the well-head, the fountain of real motivity. The sex of which Adam and Eve became conscious derived fromthe very God who bade them be not conscious of it.
+ - Love is never a fulfillment. Life is never a thing of continuous bliss. There is no paradise. Fight and laugh and feel bitter and feel bliss: and fight again. Fight, fight. That is life.
+ - Creatures that hang themselves up like an old rag, to sleep; And disgustingly upside down. Hanging upside down like rows of disgusting old rags And grinning in their sleep. Bats!
+ - Towns oftener swamp one than carry one out onto the big ocean of life.
+ - When all comes to all, the most precious element in life is wonder. Love is a great emotion, and power is power. But both love and power are based on wonder.
+ - And yet – and yet – one’s kite will rise on the wind as far as ever one has string to let it go. It tugs and tugs and will go, and one is glad the further it goes, even if everybody else is nasty about it.
+ - There is no evolving, only unfolding. The lily is in the bit of dust which is its beginning, lily and nothing but lily: and the lily in blossom is a ne plus ultra: there is no evolving beyond.
+ - The autumn always gets me badly, as it breaks into colours. I want to go south, where there is no autumn, where the cold doesn’t crouch over one like a snow-leopard waiting to pounce.
+ - Money is our madness, our vast collective madness.
+ - When I went to the scientific doctor I realised what a lust there was in him to wreak his so-called science on me and reduce me to the level of a thing. So I said: Good-morning! and left him.
+ - Don’t talk to me any more about poetry for months – unless it is other men’s work. I really love verse, even rubbish. But I’m fearfully busy at a novel, and brush all the gossamer of verse off my face.
+ - I can never decide whether my dreams are the result of my thoughts, or my thoughts the result of my dreams.
+ - The past. The Golden Age of the past. What a nostalgia we all feel for it. Yet we don’t want it when we get it. Try the South Seas.
+ - I prefer unlucky things. Luck is vulgar. Who wants what luck would bring? I don’t.
+ - There are three cures for ennui: sleep, drink and travel.
+ - Ursula and Gudrun Brangwen sat one morning in the window-bay of their father’s house in Beldover, working and talking.
+ - Why does the thin grey strand Floating up from the forgotten Cigarette between my fingers, Why does it trouble me?
+ - For to desire is better than to possess, the finality of the end was dreaded as deeply as it was desired.
+ - If a woman hasn’t got a tiny streak of harlot in her, she’s a dry stick as a rule.
+ - All hopes of eternity and all gain from the past he would have given to have her there, to be wrapped warm with him in one blanket, and sleep, only sleep. It seemed the sleep with the woman in his arms was the only necessity.
+ - The only justice is to follow the sincere intuition of the soul, angry or gentle. Anger is just, and pity is just, but judgement is never just.
+ - Men and women should stay apart, till their hearts grow gentle towards one another again.
+ - The east is not for me – the sensuous spiritual voluptuousness, the curious sensitiveness of the naked people, their black, bottomless, hopeless eyes.
+ - Build then the ship of death, for you must take the longest journey, to oblivion.
+ - To the Puritan all things are impure, as somebody says.
+ - I believe the nearest I’ve come to perfect love was with a young coal-miner when I was about 16.
+ - We don’t exist unless we are deeply and sensually in touch with that which can be touched but not known.
+ - You can have your cake and eat it. But my God, it will go rotten inside you.
+ - We are so conceited and so unproud.
+ - And what’s romance? Usually, a nice little tale where you have everything As You Like It, where rain never wets your jacket and gnats never bite your nose and it’s always daisy-time.
+ - Whatever God there is is slowly eliminating the guts and alimentary system from the human being, to evolve a higher, more spiritual being.
+ - Every profound new movement makes a great swing also backwards to some older, half-forgotten way of consciousness.
+ - I have a very great fear of love. It is so personal. Let each bird fly with its own wings, and each fish swim its own course. – Morning brings more than love. And I want to be true to the morning.
+ - The world is a raving idiot, and no man can kill it: though I’ll do my best. But you’re right. We must rescue ourselves as best we can.
+ - But the act, called the sexual act, is not for the depositing of seed. It is for leaping off into the unknown, as from a cliff’s edge, like Sappho into the sea.
+ - Europe’s the mayonnaise, but America supplies the good old lobster.
+ - The deadly Hydra now is the hydra of Equality. Liberty, Equality and Fraternity is the three-fanged serpent.
+ - To penetrate into Italy is like a most fascinating act of self-discovery-back, back down the old ways of time. Strange and wonderful chords awake in us, and vibrate again after many hundreds of years of complete forgetfulness.
+ - He who gets nearer the sun is leader, the aristocrat of aristocrats, or he who, like Dostoevsky, gets nearest the moon of our non-being.
+ - Gods die with men who have conceived them. But the god-stuff roars eternally, like the sea, with too vast a sound to be heard.
+ - What one does in one’s art, that is the breath of one’s being. What one does in one’s life, that is a bagatelle for the outsiders to fuss about.
+ - Sight is the least sensual of all the senses. And we strain ourselves to see, see, see – everything, everything through the eye, inone mode of objective curiosity.
+ - I am turned into a dream. I feel nothing, or I don’t know what I feel. Yet it seems to me I am happy.
+ - For God’s sake, let us be men not monkeys minding machines or sitting with our tails curled while the machine amuses us, the radio or film or gramophone. Monkeys with a bland grin on our faces.
+ - And all the time she felt the reflection of his hopelessness in her. She couldn’t quite, quite love in hoplessness. And he, being hopeless, couldn’t ever love at all.
+ - Isn’t it god’s own image? tramping his thirty miles a day after partridges, or a little rubber ball? wouldn’t you like to be like that, well off, and quite the thing?
+ - Why is a door-knob deader than anything else?
+ - Don’t be sucked in by the su-superior, don’t swallow the culture bait, don’t drink, don’t drink and get beerier and beerier, do learn to discriminate.
+ - Happiness was a term of hypocrisy used to bluff other people.
+ - Patience! Patience! The world is a vast and ghastly intricacy of mechanism, and one has to be very wary, not to get mangled by it.
+ - The tragedy is when you’ve got sex in the head instead of down where it belongs.
+ - That is almost the whole of Russian literature: the phenomenal coruscations of the souls of quite commonplace people.
+ - It is a fine thing to establish one’s own religion in one’s heart, not to be dependent on tradition and second-hand ideals. Life will seem to you, later, not a lesser, but a greater thing.
+ - You’ve got to know yourself so you can at last be yourself.
+ - We are dying, we are dying, piecemeal our bodies are dying and our strength leaves us, and our soul cowers naked in the dark rain over the flood, cowering in the last branches of the tree of our life.
+ - Evil, what is evil? There is only one evil, to deny life As Rome denied Etruria And mechanical America Montezuma still.
+ - And whoever forces himself to love anybody begets a murderer in his own body.
+ - What is the knocking? What is the knocking at the door in the night? It is somebody who wants to do us harm. No, no, it is the three strange angels. Admit them, admit them.
+ - Give up bearing children and bear hope and love and devotion to those already born.
+ - The Brangwens had lived for generations on the Marsh Farm, in the meadows where the Erewash twisted sluggishly through alder trees, separating Derbyshire from Nottinghamshire.
+ - Life is a travelling to the edge of knowledge, then a leap taken.
+ - A young man is afraid of his demon and puts his hand over the demon’s mouth sometimes and speaks for him. And the things the young man says are very rarely poetry.
+ - All vital truth contains the memory of all that for which it is not true.
+ - The love between man and woman is the greatest and most complete passion the world will ever see, because it is dual, because it is of two opposing kinds.
+ - A museum is not a first-hand contact: it is an illustrated lecture. And what one wants is the actual vital touch.
+ - The acrid scents of autumn, Reminiscent of slinking beasts, make me fear.
+ - I hold that the parentheses are by far the most important parts of a non-business letter.
+ - Never set a child afloat on the flat sea of life with only one sail to catch the wind.
+ - That is your trick, your bit of filthy magic: invisibility, and the anaesthetic power to deaden my attention in your direction.
+ - Every true artist is the salvation of every other. Only artists produce for each other a world that is fit to live in.
+ - Love’s a dog in a manger.
+ - Our civilisation cannot afford to let the censor-moron loose. The censor-moron does not really hate anything but the living and growing human consciousness.
+ - The novel is the highest example of subtle interrelatedness that man has discovered.
+ - If it doesn’t absorb you, if it isn’t any fun, don’t do it.
+ - No form of love is wrong, so long as it is love, and you yourself honour what you are doing. Love has an extraordinary variety of forms! And that is all that there is in life, it seems to me.
+ - Myth is an attempt to narrate a whole human experience, of which the purpose is too deep, going too deep in the blood and soul, for mental explanation or description.
+ - The nice clean intimacy which we now so admire between the sexes is sterilizing. It makes neuters. Later on, no deep, magical sex-life is possible.
+ - What a frail, easily hurt, rather pathetic thing a human body is, naked; somehow a little unfinished, incomplete!
+ - The day of the absolute is over, and we’re in for the strange gods once more.
+ - I do esteem individual liberty above everything.
+ - Sex is really only touch, the closest of all touch. And it’s touch we’re afraid of.
+ - Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!
+ - The modern pantheist not only sees the god in everything, he takes photographs of it.
+ - I like to write when I feel spiteful; it’s like having a good sneeze.
+ - Naught is possessed, neither gold, nor land nor love, nor life, nor peace, nor even sorrow nor death, nor yet salvation. Say of nothing: It is mine. Say only: It is with me.
+ - The grim frost is at hand, when apples will fall thick, almost thunderous, on the hardened earth.
+ - Death is the only pure, beautiful conclusion of a great passion.
+ - California is a queer place in a way, it has turned its back on the world, and looks into the void Pacific. It is absolutely selfish, very empty, but not false, and at least, not full of false effort.
+ - The elephant, the huge old beast, is slow to mate.
+ - It is so much more difficult to live with one’s body than with one’s soul. One’s body is so much more exacting: what it won’t have it won’t have, and nothing can make bitter into sweet.
+ - Only youth has a taste of immortality.
+ - A man was like a child with his appetites. A woman had to yield him what he wanted, or like a child he would probably turn nasty and flounce away and spoil what was a very pleasant connection.
+ - It grew late. Through the open door, stealthily, came the scent of madonna lilies, almost as if it were prowling abroad.
+ - The only reality was nothingness, and over it a hypocrisy of words.
+ - To every man who struggles with his own soul in mystery, a book that is a book flowers once, and seeds, and is gone.
+ - The trees down the boulevard stand naked in thought, Their abundant summery wordage silenced, caught In the grim undertow; naked the trees confront Implacable winter’s long, cross-questioning brunt.
+ - An artist is only an ordinary man with a greater potentiality.
+ - How beastly the bourgeois is especially the male of the species.
+ - One should stick by one’s soul, and by nothing else. In one’s soul, one knows the truth from the untruth, and life from death. And if one betrays one’s own soul-knowledge one is the worst of traitors.
+ - Poe tried alcohol, and any drug he could lay his hands on. He also tried any human being he could lay his hands on.
+ - What you intuitively desire, that is possible to you.
+ - I think societal instinct much deeper than sex instinct – and societal repression much more devastating.
+ - America exhausts the springs of one’s soul – I suppose that’s what it exists for. It lives to see all real spontaneity expire. But anyhow it doesn’t grind on an old nerve as Europe seems to.
+ - No creature is fully itself till it is, like the dandelion, opened in the bloom of pure relationship to the sun, the entire living cosmos.
+ - When one jumps over the edge, one is bound to land somewhere.
+ - I think I am much too valuable a creature to offer myself to a German bullet gratis and for fun.
+ - Good God, what does it matter? If life is a tragedy, or a farce, or a disaster, or anything else, what do I care! Let life be what it likes. Give me a drink, that’s what I want just now.
+ - And this is the final meaning of work: the extension of human consciousness. The lesser meaning of work is the achieving of self-preservation.
+ - I am in love – and, my God, it is the greatest thing that can happen to a man. I tell you, find a woman you can fall in love with. Do it. Let yourself fall in love. If you have not done so already, you are wasting your life.
+ - And that is how we are. By strength of will we cut off our inner intuitive knowledge from admitted consciousness. This causes a state of dread, or apprehension, which makes the blow ten times worse when it does fall.
+ - She knew that the horse, born to serve nobly, had waited in vain for someone noble to serve. His spirit knew that nobility had gone out of men.
+ - The war is dreadful. It is the business of the artist to follow it home to the heart of the individual fighters – not to talk in armies and nations and numbers – but to track it home.
+ - We do all like to get things inside a barb-wire corral. Especially our fellow-men. We love to round them up inside the barb-wire enclosure of FREEDOM, and make ’em work. Work, you free jewel, WORK! shouts the liberator, cracking his whip.
+ - Every man has a mob self and an individual self, in varying proportions.
+ - The trains roared by like projectiles level on the darkness, fuming and burning, making the valley clang with their passage. They were gone, and the lights of the towns and villages glittered in silence.
+ - Men! The only animal in the world to fear.
+ - America does to me what I knew it would do: it just bumps me. The people charge at you like trucks coming down on you – no awareness. But one tries to dodge aside in time. Bump! bump! go the trucks. And that is human contact.
+ - Why, why are people all balls of bitter dust? Because they won’t fall off the tree when they’re ripe. They hang on to their old positions when the position is overpast, till they become infested with little worms and dry-rot.
+ - What’s that as flies without wings, your ladyship? Time! Time!
+ - The upshot was, my paintings must burn that English artists might finally learn.
+ - A man must keep his earnestness nimble, to escape ridicule.
+ - When along the pavement, Palpitating flames of life, People flicker around me, I forget my bereavement, The gap in the great constellation, The place where a star used to be.
+ - Sex and a cocktail: they both lasted about as long, had the same effect, and amounted to about the same thing.
+ - Oh build your ship of death. Oh build it! For you will need it. For the voyage of oblivion awaits you.
+ - I’d wipe the machines off the face of the earth again, and end the industrial epoch absolutely, like a black mistake.
+ - Their whole life depends on spending money, and now they’ve got none to spend. That’s our civilization and our education: bring up the masses to depend entirely on spending money, and then the money gives out.
+ - In the end, for congenial sympathy, for poetry, for work, for original feeling and expression, for perfect companionship with one’s friends – give me the country.
+ - I never know when I sit down, just what I am going to write. I make no plan; it just comes, and I don’t know where it comes from.
+ - One man isn’t any better than another, not because they are equal, but because they are intrinsically other, that there is no termof comparison.
+ - Necessary, forever necessary, to burn out false shames and smelt the heaviest ore of the body into purity.
+ - We have lost the art of living, and in the most important science of all, the science of daily life, the science of behavior, we are complete ignoramuses. We have psychology instead.
+ - The more scholastically educated a man is generally, the more he is an emotional boor.
+ - He reflected on the decay of mankind-the decline of the human race into folly and weakness and rottenness. ‘Be a good animal, true to your animal instinct’ was his motto.
+ - The mind has no existence by itself; it is only the glitter of the sun on the surface of the waters.
+ - Nothing is as bad as a marriage that’s a hopeless failure.
+ - God how I hate new countries: They are older than the old, more sophisticated, much more conceited, only young in a certain puerile vanity more like senility than anything.
+ - My wife has a beastly habit of comparing poetry – all literature in fact – to the droppings of the goats among the rocks – mere excreta that fertilises the ground it falls on.
+ - In America the cohesion was a matter of choice and will. But in Europe it was organic.
+ - I always feel as if I stood naked for the fire of Almighty God to go through me – and it’s rather an awful feeling. One has to be so terribly religious to be an artist.
+ - You can’t insure against the future, except by really believing in the best bit of you, and in the power beyond it.
+ - The human consciousness is really homogeneous. There is no complete forgetting, even in death.
+ - Men live in glad obedience to the masters they believe in, or they live in a frictional opposition to the master they wish to undermine.
+ - You’re spending your life without renewing it. You’ve got to be amused, properly healthily amused. You’re spending your vitality without making any. Can’t go on you know. Depression! Avoid depression!
+ - How ravished one could be without ever being touched. Ravished by dead words become obscene and dead ideas become obsessions.
+ - Homer was wrong in saying, “Would that strife might pass away from among gods and men!” He did not see that he was praying for the destruction of the universe.
+ - Hate’s a growing thing like anything else. It’s the inevitable outcome of forcing ideas onto life, of forcing one’s deepest instincts; our deepest feelings we force according to certain ideas.
+ - I love trying things and discovering how I hate them.
+ - I cannot cure myself of that most woeful of youth’s follies – thinking that those who care about us will care for the things that mean much to us.
+ - Man is a thought-adventurer.
+ - Whatever men you take, keep the idea of man intact: let your soul wait whether your body does or not.
+ - Only this shimmeriness is the real living. The shape is a dead crust. The shimmer is inside really.
+ - I like Australia less and less. The hateful newness, the democratic conceit, every man a little pope of perfection.
+ - I am convinced that the air we normally breathe is a kind of water, and men and women are a species of fish.
+ - When love enters, the whole spiritual constitution of a man changes, is filled with the Holy Ghost, and almost his form is altered.
+ - Brave people add up to an aristocracy. The democracy of thou-shalt-not is bound to be a collection of weak men.
+ - But the effort, the effort! And as the marrow is eaten out of a man’s bones and the soul out of his belly, contending with the strange rapacity of savage life, the lower stage of creation, he cannot make the effort any more.
+ - I can’t bear art that you can walk round and admire. A book should be either a bandit or a rebel or a man in the crowd.
+ - She let him come further, his lips came and surging, surging, soft, oh soft, yet on, like the powerful surge of water, irresistible, till with a little blind cry, she broke away.
+ - The true artist doesn’t substitute immorality for morality. On the contrary, he always substitutes a finer morality for a grosser one.
+ - Logic might be unanswerable because it was so absolutely wrong.
+ - Away with all ideals. Let each individual act spontaneously from the forever incalculable prompting of the creative wellhead within him. There is no universal law.
+ - The peasants of Sicily, who have kept their own wheat and make their own natural brown bread, ah, it is amazing how fresh and sweet and clean their loaf seems, so perfumed, as home-made bread used all to be before the war.
+ - O pity the dead that are dead, but cannot make the journey, still they moan and beat against the silvery adamant walls of life’s exclusive city.
+ - The human being is a most curious creature. He thinks he has got one soul, and he has got dozens.
+ - It’s bad taste to be wise all the time, like being at a perpetual funeral.
+ - Literature is a toil and a snare, a curse that bites deep.
+ - When passion is dead, or absent, then the magnificent throb of beauty is incomprehensible and even a little despicable.
+ - Primarily I am a passionately religious man, and my novels must be written from the depth of my religious experience.
+ - It always seemed to me that men wore their beards, like they wear their neckties, for show.
+ - If you don’t like it, alter it, and if you can’t alter it, put up with it.
+ - Imitate the magnificent trees that speak no word of their rapture, but only breathe largely the luminous breeze.
+ - Every civilization when it loses its inner vision and its cleaner energy, falls into a new sort of sordidness, more vast and more stupendous than the old savage sort. An Augean stable of metallic filth.
+ - The one woman who never gives herself is your free woman, who is always giving herself.
+ - Democracy and equality try to denythe mystic recognition of difference and innate priority, the joy of obedience and the sacred responsibility of authority.
+ - I should think the American admiration of five-minute tourists has done more to kill the sacredness of old European beauty and aspiration than multitudes of bombs would have done.
+ - For, of course, being a girl, one’s whole dignity and meaning in life consisted in the achievement of an absolute, a perfect, a pure and noble freedom. What else did a girl’s life mean?
+ - Any inhibition must be wrong, since inevitably in the end it causes neurosis and insanity.
+ - That’s just what a woman is. She thinks she knows what’s good for a man, and she’s going to see he gets it; and no matter if he’s starving, he may sit and whistle for what he needs, while she’s got him, and is giving him what’s good for him.
+ - The horse, the horse! The symbol of surging potency and power of movement, of action.
+ - I got the blues thinking of the future, so I left off and made some marmalade. It’s amazing how it cheers one up to shred orange and scrub the floor.
+ - People always make war when they say they love peace.
+ - The difference between people isn’t in their class, but in themselves. Only from the middle classes one gets ideas, and from the common people – life itself, warmth. You feel their hates and loves.
+ - Whatever a human being makes and makes live, it lives because of the life he puts into it.
+ - If I take my whole, passionate, spiritual and physical love to the woman who in return loves me, that is how I serve God. And my hymn and my game of joy is my work.
+ - An artist is only an ordinary man with a greater potentiality – same stuff, same make up, only more force. And the strong driving force usually finds his weak spot, and he goes cranked, or goes under.
+ - I can only see death and more death, till we are black and swollen with death.
+ - Another head – and a black alpaca jacket and a serviette this time – to tell us coffee is ready. Not before it is time, too.
+ - When science starts to be interpretive it is more unscientific even than mysticism.
+ - All this Americanising and mechanising has been for the purpose of overthrowing the past. And now look at America, tangled in her own barbed wire, and mastered by her own machines.
+ - Pure morality is only an instinctive adjustment which the soul makes.
+ - The old ideals are dead as nails – nothing there. It seems to me there remains only this perfect union with a woman – sort of ultimate marriage – and there isn’t anything else.
+ - I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.
+ - Rippling, rippling, rippling, like a flapping overlapping of soft flames, soft as feathers, running to points of brilliance, exquisite, exquisite and melting her all molten inside.
+ - You don’t want to love – your eternal and abnormal craving is to be loved. You aren’t positive, you’re negative. You absorb, absorb, as if you must fill yourself up with love, because you’ve got a shortage somewhere.
+ - I am only half there when I am ill, and so there is only half a man to suffer. To suffer in one’s whole self is so great a violation, that it is not to be endured.
+ - Truth does not lie beyond humanity, but is one of the products of the human mind and feeling.
+ - If you cut a thing up, of course it will smell. Hence, nothing raises such an infernal stink at last, as human psychology.
+ - The only history is a mere question of one’s struggle inside oneself. But that is the joy of it. One need neither discover Americas nor conquer nations, and yet one has as great a work as Columbus or Alexander, to do.
+ - All that we know is nothing, we are merely crammed wastepaper baskets, unless we are in touch with that which laughs at all our knowing.
+ - Life is beautiful, as long as it consumes you. When it is rushing through you, destroying you, life is gorgeous, glorious. It’s when you burn a slow fire and save fuel, that life’s not worth having.
+ - The American grips himself, at the very sources of his consciousness, in a grip of care: and then, to so much of the rest of life, is indifferent. Whereas, the European hasn’t got so much care in him, so he cares much more for life and living.
+ - Now man cannot live without some vision of himself. But still less can he live with a vision that is not true to his inner experience and inner feeling.
+ - Europe is, perhaps, the least worn-out of the continents, because it is the most lived in. A place that is lived in lives.
+ - The whole point about the true unconscious is that it is all the time moving forward, beyond the range of its own fixed laws or habits. It is no good trying to superimpose an ideal nature upon the unconscious.
+ - She herself had never been able to be altogether herself: it had been denied her.
+ - One can no longer live with people: it is too hideous and nauseating. Owners and owned, they are like the two sides of a ghastly disease.
+ - In every great novel, who is the hero all the time? Not any of the characters, but some unnamed and nameless flame behind them all.
+ - One realm we have never conquered: the pure present.
+ - I wonder which was more frightened among old tribes – those bursting out of their darkness of woods upon all the space of light, or those from the open tiptoeing into the forests.
+ - If you believe in your own sex, and won’t have it done dirt to: they’ll down you. It’s the one insane taboo left: sex as a naturaland vital thing.
+ - One could laugh at the world better if it didn’t mix tender kindliness with its brutality.
+ - The great mass of humanity should never learn to read or write.
+ - The soul is a very perfect judge of her own motions, if your mind doesn’t dictate to her.
+ - So slowly the hot elephant hearts grow full of desire, and the great beasts mate in secret at last, hiding their fire.
+ - The English people on the whole are surely the nicest people in the world, and everybody makes everything so easy for everyone else, that there is almost nothing to resist at all.
+ - That which one cannot experience in daily life is not true for oneself.
+ - The refined punishments of the spiritual mode are usually much more indecent and dangerous than a good smack.
+ - We are dying, we are dying, we are all of us dying and nothing will stay the death-flood rising within us and soon it will rise on the world, on the outside world.
+ - You don’t want to be an animal, you want to observe your own animal functions, so as to get a mental thrill out of them. It is allpurely secondary – and more decadent than the most hide-bound intellectualism.
+ - When we really want to go for something better, we shall smash the old. Until then, any sort of proposal, or making proposals, is no more than a tiresome game for self-important people.
+ - Morality in the novel is the trembling instability of the balance. When the novelist puts his thumb in the scale, to pull down the balance to his own predilection, that is immorality.
+ - I would rather sit still in a state of peace on a stone than ride in the motor-car of a multi-millionaire and feel the peacelessness of the multi-millionaire poisoning me.
+ - When man has nothing but his will to assert – even his good-will – it is always bullying. Bolshevism is one sort of bullying, capitalism another: and liberty is a change of chains.
+ - You will not easily get a man to believe that his carnal love for the woman he has made his wife is as high a love as that he feltfor his mother or sister.
+ - The proper study of mankind is man in his relation to his deity.
+ - I can’t do with mountains at close quarters – they are always in the way, and they are so stupid, never moving and never doing anything but obtrude themselves.
+ - If a woman’s got nothing but her fair fame to feed on, why, it’s thin tack, and a donkey would die of it!
+ - I want us to be together without bothering about ourselves- to be really together because we ARE together, as if it were a phenomenon, not a thing we have to maintain by our own effort.
+ - The mind can assert anything and pretend it has proved it. My beliefs I test on my body, on my intuitional consciousness, and when I get a response there, then I accept.
+ - The great living experience for every man is his adventure into the woman. The man embraces in the woman all that is not himself, and from that one resultant, from that embrace, comes every new action.
+ - The picture must all come out of the artist’s inside. It is the image that lives in the consciousness, alive like a vision, but unknown.
+ - Yea, Paris is a festive ton – a festive Ton for all! Skate o’er on joy – Thin crust of gilded, polished joy! What matters it if Hell’s beneath?
+ - Men are free when they belong to a living, organic, believing community, active in fulfilling some unfulfilled, perhaps unrealized purpose.
+ - Only at his maximum does an individual surpass all his derivative elements, and become purely himself. And most people never get there. In his own pure individuality a man surpasses his father and mother, and is utterly unknown to them.
+ - A man will part with anything so long as he’s drunk, and you’re drunk with him.
+ - The world is wonderful and beautiful and good beyond one’s wildest imagination.
+ - It is not woman who claims the highest in man. It is a man’s own religious soul that drives him on beyond women, to his supreme activity. For his highest, man is responsible to God alone.
+ - My soul is my great asset and my great misfortune.
+ - I believe that a man is converted when first he hears the low, vast murmur of life, of human life, troubling his hitherto unconscious self.
+ - Only in a novel are all things given full play.
+ - For how can a man stand, unless he have something sure under his feet. Can a man tread the unstable water all his life, and call that standing? Better give in and drown at once.
+ - One should be religious in everything, have God, whatever God might be, present in everything.
+ - I believe that the highest virtue is to be happy, living in the greatest truth, not submitting to the falsehood of these personaltimes.
+ - An illusion which is a real experience is worth having.
+ - A man has no religion who has not slowly and painfully gathered one together, adding to it, shaping it; and one’s religion is never complete and final, it seems, but must always be undergoing modification.
+ - A book lives as long as it is unfathomed.
+ - God is only a great imaginative experience.
+ - They say geniuses mostly have great mothers. They mostly have sad fates.
+ - I’ll do my life work, sticking up for the love between man and woman.
+ - Sleep seems to hammer out for me the logical conclusions of my vague days, and offer them to me as dreams.
+ - How can any man be free without a soul of his own, that he believes in and won’t sell at any price?
+ - The East is marvellously interesting for tracing our steps back. But for going forward, it is nothing. All it can hope for is to be fertilised by Europe, so that it can start on a new phase.
+ - The only principle I can see in this life, is that one must forfeit the less for the greater.
+ - One never can know the whys and the wherefores of one’s passional changes.
+ - The true self is not aware that it is a self. A bird, as it sings, sings itself. But not according to a picture. It has no idea of itself.
+ - No man is a man unless to his woman he is a pioneer.
+ - The nearer a conception comes towards finality, the nearer does the dynamic relation, out of which this concept has arisen, draw to a close. To know is to lose.
+ - It is only when men lose their contact with this eternal life-flame, and become merely personal, things in themselves, instead ofthings kindled in the flame, that the fight between man and woman begins.
+ - Money is the seal and stamp of success.
+ - We have to hate our immediate predecessors to get free of their authority.
+ - Don’t be on the side of the angels, it’s too lowering.
+ - I shall be glad when you have strangled the invincible respectability that dogs your steps.
+ - They lived freely among the students, they argued with the men over philosophical, sociological and artistic matters, they were just as good as the men themselves: only better, since they were women.
+ - The history of our era is the nauseating and repulsive history of the crucifixion of the procreative body for the glorification ofthe spirit.
+ - Nothing that comes from the deep, passional soul is bad, or can be bad.
+ - That’s it! When you come to know men, that’s how they are: too sensitive in the wrong place.
+ - Whether I get on in the world is a question; but I certainly don’t get on very well with the world.
+ - Once you abstract from this, once you generalize and postulate Universals, you have departed from the creative reality, and entered the realm of static fixity, mechanism, materialism.
+ - They were evidently small men, all wind and quibbles, flinging out their chuffy grain to us with far less interest than a farm-wife feels as she scatters corn to her fowls.
+ - There is only one thing that a man really wants to do, all his life; and that is, to find his way to his God, his Morning Star, salute his fellow man, and enjoy the woman who has come the long way with him.
+ - Humanity is less, far less than the individual, because the individual may sometimes be capable of truth, and humanity is a tree of lies.
+ - Psychoanalysis is out, under a therapeutic disguise, to do away entirely with the moral faculty in man.
+ - I cannot get any sense of an enemy – only of a disaster.
+ - Comes over one an absolute necessity to move. And what is more, to move in some particular direction. A double necessity then: to get on the move, and to know whither.
+ - One’s action ought to come out of an achieved stillness: not to be a mere rushing on.
+ - The mind is “ashamed” of the blood. And the blood is destroyed by the mind, actually. Hence palefaces.
+ - He felt he had lost it for good, he knew what it was to have been in communication with her, and to be cast off again. In misery, his heart like a heavy stone, he went about unliving.
+ - I am in love and, my God, it is the greatest thing that can happen to a man.
+ - A woman needn’t be dragged down by her functions.
+ - One doesn’t know, till one is a bit at odds with the world, how much one’s friends who believe in one rather generously, mean to one.
+ - So long as you don’t feel life’s paltry and a miserable business, the rest doesn’t matter, happiness or unhappiness.
+ - Without secrecy there would be no pornography. But secrecy and modesty are two utterly different things.
+ - Beauty is a mystery. You can neither eat it nor make flannel out of it.
+ - God doesn’t know things. He is things.
+ - They wanted genuine intimacy, but they could not get even normally near to anyone, because they scorned to take the first steps, they scorned the triviality which forms common human intercourse.
+ - Why doesn’t the past decently bury itself, instead of sitting waiting to be admired by the present?
+ - I want the wonder back again, or I shall die.
+ - Unless one decorates one’s house for oneself alone, best leave it bare, for other people are walleyed.
+ - He knew that conscience was chiefly fear of society or fear of oneself.
+ - Design in art, is a recognition of the relation between various things, various elements in the creative flux. You can’t invent a design. You recognize it, in the fourth dimension. That is, with your blood and your bones, as well as with your eyes.
+ - As we all know, too much of any divine thing is destruction.
+ - The more I see of democracy the more I dislike it. It just brings everything down to the mere vulgar level of wages and prices, electric light and water closets, and nothing else.
+ - One should feel inside oneself for right and wrong, and should have the patience to gradually realise one’s God.
+ - The only rule is, do what you really, impulsively, wish to do. But always act on your own responsibility, sincerely. And have the courage of your own strong emotion.
+ - And woman is the same as horses: two wills act in opposition inside her. With one will she wants to subject herself utterly. With the other she wants to bolt, and pitch her rider to perdition.
+ - At the back of my life’s horizon, where the dreamings of past lives crowd.
+ - One might talk about the sanity of the atom the sanity of space the sanity of the electron the sanity of water- For it is all alive and has something comparable to that which we call sanity in ourselves. The only oneness is the oneness of sanity.
+ - But then peace, peace! I am so mistrustful of it: so much afraid that it means a sort of weakness and giving in.
+ - Can you understand how cruelly I feel the lack of friends who will believe in me a bit?
+ - So as long as you can forget your body you are happy and the moment you begin to be aware of your body, you are wretched. So if civilization is any good, it has to help us forget our bodies, and then time passes happily without our knowing it. Help us get rid of our bodies altogether.
+ - The purest lesson our era has taught is that man, at his highest, is an individual, single, isolate, alone, in direct soul-communication with the unknown God, which prompts within him.
+ - How beautiful maleness is, if it finds its right expression.
+ - It is our business to go as we are impelled.
+ - We must know, if only in order to learn not to know. The supreme lesson of human consciousness is to learn how not to know. That is, how not to interfere.
+ - But I like the feel of men on things, while they’re alive. There’s a feel of men about trucks, because they’ve been handled with men’s hands, all of them.
+ - Mystic equality lies in abstraction, not in having or in doing, which are processes. In function and process, one man, one part, must of necessity be subordinate to another. It is a condition of being.
+ - Freedom is a very great reality, but it means above all things, freedom from lies.
+ - In America the chief accusation seems to be one of “Eroticism.” This is odd, rather puzzling to my mind. Which Eros? Eros of the jaunty “amours,” or Eros of the sacred mysteries? And if the latter, why accuse, why not respect, even venerate?
+ - Men always do leave off really thinking, when the last bit of wild animal dies in them.
+ - The near touch of death may be a release into life; if only it will break the egoistic will, and release that other flow.
+ - The tiny fish enjoy themselves in the sea.
+
+500 quotes

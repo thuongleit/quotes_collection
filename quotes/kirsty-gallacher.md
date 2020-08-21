@@ -1,0 +1,29 @@
+ - My idea of a good night has always been having a lovely meal and a proper conversation.
+ - I don’t waste money on smart, expensive clothes.
+ - Sailing is a completely new sport for me and I wasn’t sure what to expect but I’ve definitely got the bug.
+ - As a working mum, it’s really hard to find time in the day to just relax and take a break. I am constantly on the go.
+ - I’m not a feminist at all.
+ - I am not a fan of Facebook or Twitter. They both allow too much information to be available and they make privacy a thing of the past.
+ - I’m a very private person.
+ - I wanted to be a fashion journalist and went to the London College of Fashion to do a journalism and promotion course.
+ - I think I think I am Superwoman sometimes but I am not.
+ - I love spring flowers: daffodils and hyacinths are the ultimate flower for me. They are the essence of spring.
+ - Being a mother is quite tiring. There’s not much time to do anything. You just rush around and it’s hard work.
+ - I love animals and feel very strongly that people should not be allowed to buy a pet if they are not able to look after it.
+ - I have always enjoyed drawing and painting but I don’t always find the time to do much these days.
+ - Being busy with work, and as a mum, I’m a big fan of online shopping.
+ - Elizabeth I was my favourite monarch though, what an inspiration, she did great things for women.
+ - I come from a sports family and my husband is a rugby player.
+ - I don’t find offensive that I’m being labelled a babe by blokes. I’m absolutely flattered.
+ - I’m a bit of a Luddite and I hate the internet.
+ - I’ve got a really sweet tooth and sometimes I just have to have some chocolate.
+ - I also try to eat as much raw food and clean food as possible.
+ - I hate alarms. If they go off I get really tetchy. I hate them. They just get me going, I’m hyper at the best of times, but they drive me mad.
+ - I was very sporty at school, and sport was probably the thing I was best at, but my real passion was for fashion.
+ - It is still my dream to own a little flower shop.
+ - I grew up Windlesham in Surrey, which is a beautiful and quaint village.
+ - The idea that so many kids eat rubbish and sit on computers all day long appals me and getting them into sport is a major way of getting them off computers and leading healthier lives.
+ - I was quite creative at school, and was also interested in fashion, but I was shy – I’m still not the loudest of people, believe it or not.
+ - I am the girliest girl.
+
+27 quotes

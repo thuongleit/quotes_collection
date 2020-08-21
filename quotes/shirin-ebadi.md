@@ -1,0 +1,61 @@
+ - It’s not just about hope and ideas. It’s about action.
+ - If you can’t eliminate injustice, at least tell everyone about it.
+ - The idea of cultural relativism is nothing but an excuse to violate human rights.
+ - Human rights is a universal standard. It is a component of every religion and every civilization.
+ - People are fundamentally good. But conditions deteriorate them.
+ - Lawyers have a dangerous job in Iran.
+ - Democracy is not an incident that happens overnight, nor a gift that America can give to the world. It is a culture which needs peace to evolve.
+ - I am the voice of the people in Iran whose voices are silent and whose demands cannot be heard by the rest of the world.
+ - My hopes for Iran’s future lies with women first and foremost. Iran’s feminist movement is very strong. This movement has no leader or head quarters. Its place is the home of every Iranian who believes in equal rights. This is currently the strongest women’s movement in the Middle East.
+ - There is no “true Islam,” just different interpretations.
+ - When a person is humiliated, when his rights are being violated, and he does not have the proper education, naturally he gravitates toward terrorism.
+ - Because of our youthful population, we suffer from unemployment in Iran. We need more universities and more job opportunities for the young.
+ - The people are fed up with corruption and embezzlement. They object to censorship. The first thing that the people of Iran want is free elections.
+ - Any person who pursues human rights in Iran must live with fear from birth to death, but I have learned to overcome my fear.
+ - We demand a non-violent world where human security is the basis of our common global security. People have the right to live in a world where the basic needs of all peoples are addressed. No more military attacks. No more war.
+ - Everyone’s condition is different, and the way that each person lives his or her life is different.
+ - Women are the victims of this patriarchal culture, but they are also its carriers. Let us keep in mind that every oppressive man was raised in the confines of his mother’s home.
+ - Certainly, the fight against terrorism is a legitimate fight. And certainly whoever commits terrorism should be brought to justice.
+ - Islam is not an excuse for thwarting democracy.
+ - When there is enough oxygen in the air for everyone, no one is going to take to violence in order to access it. But if there were not enough of it for everyone then people would result to violence in order to get it. Therefore we have to improve the conditions to have better human beings.
+ - The condition of women in Islamic societies as a whole is also far from desirable. However, we should acknowledge that there are differences. In certain countries, the conditions are much better and in others much worse.
+ - It is totally unacceptable for a government to interfere in the internal affairs of another government and send aid, money, and weapons, to the people who are against a certain regime in another country.
+ - While living in exile I have become the loudspeaker for the people of Iran.
+ - Contrary to what certain governments say, human rights are universal. Arbitrary detention, torture and discrimination hurt the human dignity of anybody, whatever his or her country of origin, religion, descent, or any other ground.
+ - I hope the example of Saddam Hussein will give a lesson to leaders of other countries where human rights are not respected.
+ - The most important problem in Iran is that the courts have lost their independence, and they are under the influence of the Ministry of Intelligence and their people. This is why we witness a number of journalists and human rights activists, my colleagues, and a number of feminists, in prison.
+ - Unfortunately, violence begets violence. And this is how the war on terrorism seems to be going at this juncture. A lot of people are losing their lives. Many children are losing their parents. Too many houses are being destroyed. And, unfortunately, the arms industry seems to flourish.
+ - Human rights is the fruit of various civilizations.
+ - We must not enable anyone to impose his personal view regarding religion on others by force, oppression, or pressure.
+ - Those who don’t understand any language other than the language of force and violence don’t respect human dignity. They seek violence because they will be irrelevant without it. We should not go their way.
+ - Usually, in any revolution people are focused on who wants to have the most power. But the most important thing is the laws that are written during that time.
+ - Sadly the job security of lawyers has been ruined, so they are less willing to defend political defendants.
+ - The international community can’t trust such a government. If the government of Iran wants the international community to believe in what it says, it should try to bring true, pure democracy into the country. The political solution to the energy issue or the nuclear case is democracy in Iran.
+ - Over 60 percent of the university students in Iran are female. The women in Iran are better educated than men.
+ - The role of Iran has been very destructive. As an Iranian, I apologize to the civilian people of Syria who have been killed as a result of the useless intervention of Iran in Syria.
+ - My aim is to show that those governments that violate the rights of people by invoking the name of Islam have been misusing Islam.
+ - No government can make me wear a veil, no government can force me not to wear it either.
+ - How can you defy fear? Fear is a human instinct, just like hunger. Whether you like it or not, you become hungry. Similarly with fear. But I have learned to train myself to live with this fear.
+ - Sixty-three percent of our university students are female. But you still see violations of women’s rights in Iran. A Muslim man can have up to four wives. He can divorce his wife without offering any reason, while it is quite difficult for a woman to get a divorce.
+ - The government of Iran claims that every two years there are elections. But none of them are free.
+ - I have never agreed with President Bush’s argument regarding the axis of evil. Unfortunately, fundamentalists in Iran have used this as an excuse to brand us as allies of Mr. Bush.
+ - Whenever women protest and ask for their rights, they are silenced with the argument that the laws are justified under Islam. It is an unfounded argument. It is not Islam at fault, but rather the patriarchal culture that uses its own interpretations to justify whatever it wants.
+ - Every time I am fearful I think to myself, the reason they do this is to discourage me from doing what I do. Hence, if I discontinue my work I will have succumbed to my fears.
+ - I have said many times that I wish there was no oil in the Middle East, and more water. People would have been much happier than they are.
+ - What is important is that one utilizes one’s intellect and not to be 100 percent sure about one’s convictions. One should always leave room for doubt.
+ - Terrorism is based on two major pillars: One is injustice, and the other is a certainty of attitude, the notion that their version of the story is the correct one.
+ - Europe clearly is the only place where people can speak up critically, and this is a unique cultural value.
+ - When we criticize in Iran the actions of the government, the fundamentalists say that we and the Bush Administration are in the same camp. The funny thing is that human rights activists and Mr. Bush can never be situated in the same group.
+ - I have never been convinced throughout my life that one needs to be imitating others. I even tell my daughters not to look at me as a model.
+ - The Iranian government intends to use the nuclear program for peaceful purposes, but must convince international public opinion of that.
+ - We shouldn’t just consider the desire of government to do what it wants to do. We should always consider the resistance of people. The culture of Iranian people doesn’t let the government drag people into deep trouble or backlash. Maybe government wants it, but the culture doesn’t let it go on.
+ - When you vote, vote for those who are not warmongers, and vote for those who respect human rights. When you see a president who doesn’t respect human rights, don’t vote for that person.
+ - North Americans do not understand that you do not throw down human rights like bombs on the Iraqis.
+ - No American soldier should be allowed to set foot on Iranian soil, regardless of the criticism we have of the Iranian government.
+ - Democracy doesn’t recognize east or west; democracy is simply people’s will. Therefore, I do not acknowledge that there are various models of democracy; there is just democracy itself.
+ - I have never had a governmental position, and I will never accept such a position.
+ - When more and more people want something, it becomes easier to achieve that goal.
+ - I maintain that nothing useful and lasting can emerge from violence.
+ - Lawyers should not be charged with the same crimes as their clients. Trials related to political charges are not in accordance with human rights.
+
+59 quotes

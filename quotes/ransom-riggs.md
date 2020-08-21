@@ -1,0 +1,35 @@
+ - I used to dream about escaping my ordinary life, but my life was never ordinary. I had simply failed to notice how extraordinary it was.
+ - We cling to our fairy tales until the price for believing in them becomes too high.
+ - Strange, I thought, how you can be living your dreams and your nightmares at the very same time.
+ - Sometimes you just need to go through a door.
+ - I’d been born in the wrong century, and I felt cheated.
+ - Sometimes it’s better not to look back.
+ - When someone won’t let you in, eventually you stop knocking.
+ - Laughing doesn’t make bad things worse any more than crying makes them better. It doesn’t mean you don’t care, or that you’ve forgotten. It just means you’re human.
+ - But these weren’t the kind of monsters that had tentacles and rotting skin, the kind a seven-year-old might be able to wrap his mind around-they were monsters with human faces, in crisp uniforms, marching in lockstep, so banal you don’t recognize them for what they are until it’s too late.
+ - I liked this idea: that peculiarness wasn’t a deficiency, but an abundance; that it wasn’t we who lacked something normals had, but they who lacked peculiarness. That we were more, not less.
+ - Some truths are expressed best in the form of myth.
+ - We were like astronauts floating through a starless universe.
+ - How many times have I told you? Polite persons do not take supper in the nude.
+ - I didn’t know what to call it, what was happening between us, but I liked it. It felt silly and fragile and good.
+ - It’s easy to say you don’t care about money when you have plenty of it.
+ - What I believe when it comes to big things in life, there are no accidents. Everything happens for a reason. You are here for a reason – and it’s not to fail and die.
+ - Do you ever find yourself climbing into an open grave during a bombing raid and wish you’d just stayed in bed?
+ - I had just come to accept that my life would be ordinary when extraordinary things began to happen.
+ - If I’d kept my heart better armored, where would I be now?
+ - I was here for a reason. There was something I was meant not simply to be, but to do- and it wasn’t to run or hide or give up the minute things seemed terrifying and impossible.
+ - I did love her, of course, but mostly because loving your mom is mandatory, not because she was someone I think I’d like very much if I met her walking down the street.
+ - Their memory was something tangible and heavy, and I would carry it with me.
+ - There was a girl who could fly, a boy who had bees living inside him, a brother and sister who could lift boulders over their heads.
+ - I had just come to accept that my life would be ordinary when extraordinary things began to happen. The first of these came as a terrible shock and, like anything that changes you forever, split my life into halves: Before and After.
+ - So one day my mother sat me down and explained that I couldn’t become an explorer because everything in the world had already been discovered. I’d been born in the wrong century, and I felt cheated.
+ - Every snapshot collector has obsessions. Some only collect photos of cars. Others like World War II, or babies, or old-timey girls in old-timey swimsuits. I happen to collect the weird stuff: photos that make the hair on the back of your neck stand up a little. The uncanny.
+ - If I never went home, what exactly would I be missing? I pictured my cold cavernous house, my friendless town full of bad memories, the utterly unremarkable life that had been mapped out for me. It had never once occurred to me, I realized, to refuse it.
+ - I have an unusual hobby: I collect pictures of people I don’t know. It started when I was a kid growing up in South Florida, the land of junk stores, garage sales, and flea markets, as a kind of coping mechanism.
+ - I grew up feeling like a weirdo like many kids do. But I was lucky to find my own home for peculiar children. I went to a school for the gifted in Florida, and it was full of kids who – we were all strange together. And that was a real blessing.
+ - I’m no expert on girls, but when one tries to pinch you four times, I’m pretty sure that’s flirting.
+ - Our debt was too great and the words thank you too small.
+ - Maybe it was better, now and then, to wonder.
+ - I never remember nice dreams; only the bad ones stick.
+
+33 quotes

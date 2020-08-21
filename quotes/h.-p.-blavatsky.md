@@ -1,0 +1,52 @@
+ - There is no religion higher than Truth.
+ - It is Satan who is the God of our planet and the only God.
+ - And now it stands proven that Satan, or the Red Fiery Dragon, the ‘Lord of Phosphorus,’ and Lucifer, or ‘Light-Bearer,’ is in us: it is our Mind.
+ - Theosophy, on earth, is like the white ray of the spectrum, and each religion only one of the seven colours.
+ - Civilization may progress, human nature will remain the same throughout all ages.
+ - Theosophy is who Theosophy does, not thinks, not studies, not feels but does.
+ - Endurance is the free companion of Sorrow, and Patience her master.
+ - The mind is the slayer of the real, let the disciples slay the slayer.
+ - Patience leads to power; but eagerness in greed leads to loss.
+ - Matter is spirit at its lowest level. Spirit is matter at its highest level.
+ - Be humble, if thou would’st attain to wisdom. Be humbler still, when wisdom thou hast mastered.
+ - Hast thou attuned thyself to the suffering of humanity, O candidate for light?
+ - The more thou dost advance, the more thy feet pitfalls will meet. The Path that leadeth on is lighted by one fire – the light of daring burning in the heart. The more one dares, the more he shall obtain. The more he fears, the more that light shall pale.
+ - Is the scraping off of a barnacle the destruction of a ship?
+ - Strength your Soul against the stalk of the Ego, make it worth of the name of Diamond Soul.
+ - Knowledge increases in proportion to its use; that is, the more we teach the more we learn.
+ - The Universe is the periodical manifestation of this unknown Absolute Essence.
+ - The discoveries of modern science do not disagree with the oldest traditions which claim an incredible antiquity for our race.
+ - I have pledged my word to help people on to truth while living and – will keep my word. Let them abuse and revile me. Let some call me a medium, and a Spiritualist, and others an imposter. The day will come when posterity will learn to know me better.
+ - The man might have become a Power, but he preferred to remain an Ass.
+ - Ridicule is the deadliest weapon of the age...
+ - That cruelest of tyrants – public opinion.
+ - The Secret Doctrine is the common property of the countless millions of men born under various climates, in times with which History refuses to deal, and to which esoteric teachings assign dates incompatible with the theories of Geology and Anthropology.
+ - Everything lives and perishes through magnetism; one thing affects another one, even at great distances, and its “congenitals” may be influenced to health and disease by the power of this sympathy, at any time, and notwithstanding the intervening space.
+ - We must prepare and study truth under every aspect, endeavoring to ignore nothing, if we do not wish to fall into the abyss of the unknown when the hour shall strike.
+ - Reflect upon the defects of your character: thoroughly realize their evils and the transient pleasures they give you, and firmly will that you shall try your best not to yield to them the next time.
+ - All things that ever were, that are, or that will be, having; their record upon the astral light, or tablet of the unseen universe, the initiated adept, by using the vision of his own spirit, can know all that has been known or can be known.
+ - The human mind can hardly remain entirely free from bias, and decisive opinions are often formed before a thorough examination of a subject from all its aspects has been made.
+ - The Occultists, however, know that the traditions of Esoteric Philosophy must be the right ones, simply because they are the most logical, and reconcile every difficulty.
+ - Dogmas are the toys that amuse and can satisfy but unreasoning children. They are the offspring of human speculation and prejudiced fancy.
+ - The idea of passing one’s whole life in moral idleness, and having one’s hardest work and duty done by another-whether God or man-is most revolting to us, as it is most degrading to human dignity.
+ - Dogma? Faith? These are the right and left pillars of every soul-crushing theology. Theosophists have no dogmas, exact no blind faith.
+ - Spiritualism is but a baby now, an unwelcome stranger, whom public opinion, like an unnatural foster mother, tries to crush out of existence.
+ - Theosophy blesses the world; Theology is its curse.
+ - Public Opinion, this invisible, intangible, omnipresent, despotic tyrant; this thousand-headed Hydra – the more dangerous for being composed of individual mediocrities...
+ - Time is only an illusion produced by the succession of our states of consciousness as we travel through eternal duration, and it does not exist where no consciousness exists in which the illusion can be produced; but “lies asleep.”
+ - The more thou dost advance, the more thy feet pitfalls will meet.
+ - It is on the acceptance or rejection of the theory of the Unity of all in Nature, in its ultimate Essence, that mainly rests the belief or unbelief in the existence around us of other conscious beings besides the Spirits of the Dead.
+ - If coming events are said to cast their shadows before, past events cannot fall to leave their impress behind them.
+ - Who is the great man? He who is strongest in patience. He who patiently endures injury, and maintains a blameless life – he is a man indeed!
+ - Everything that is, was, and will be, eternally IS, even the countless forms, which are finite and perishable only in their objective, not in their ideal Form.
+ - The wheel of the Good Law moves swiftly on. It grinds by night and day. The worthless husks it drives from out the golden grain, the refuse from the flour. The hand of fate guides the wheel; the revolutions mark the beatings of the heart of manifestation.
+ - But the first differentiation of its reflection in the manifested World is purely Spiritual, and the Beings generated in it are not endowed with a consciousness that has any relation to the one we conceive of.
+ - From Architecture down to the Zodiac, every science worthy of the name was imported by the Greeks.
+ - If thou would’st have that stream of hard-earn’d knowledge, of Wisdom heaven-born, remain sweet running waters, thou should’st not leave it to become a stagnant pond.
+ - Becoming is the mode of activity of the uncreate deity.
+ - How long shall we Spiritualists be turned over like so many scapegoats to the unbelievers, by cheating mediums and speculating prophets?
+ - But – drive out prejudice with a pitch-fork it will ever return.
+ - It is, then, by those shadows of the hoary Past and their fantastic silhouettes on the external screen of every religion and philosophy, that we can, by checking them as we go along, and comparing them, trace out finally the body that produced them.
+ - We see that every external motion, act, gesture, whether voluntary or mechanical, organic or mental, is produced and preceded by internal feeling or emotion, will or volition, and thought or mind.
+
+50 quotes

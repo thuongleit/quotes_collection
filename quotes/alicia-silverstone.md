@@ -1,0 +1,47 @@
+ - Being vegan helped me realize I can say and do what I believe is right. That’s powerful.
+ - I can’t think of anything better in the world to be but a vegan.
+ - Nothing’s changed my life more. I feel better about myself as a person, being conscious and responsible for my actions and I lost weight and my skin cleared up and I got bright eyes and I just became stronger and healthier and happier. Can’t think of anything better in the world to be but be vegan.
+ - Everything I think and everything I do is wrong.
+ - Creative collaboration is awesome.
+ - Yoga makes me feel really sexy.
+ - Clothes make me dizzy.
+ - I don’t feel like a dream girl, but I think it’s really nice. I guess a part of me wishes I got that sort of attention in my real life. Because in my real life, I’m this weird, dorky girl who just hangs out with her dog.
+ - I don’t have time for friends.
+ - I was a foodie and I continue to be a foodie.
+ - There was a point when I was so sick of this physical perfection thing that I thought it would be good for all young girls to eat burgers and sweets as a rebellion but I don’t think that anymore because it’s not healthy.
+ - I think that the film Clueless was very deep. I think it was deep in the way that it was very light. I think lightness has to come from a very deep place if it’s true lightness.
+ - I think I can deceive people. I’m like, the nice, sweet girl when you meet me. And I don’t have any bad intentions. But I’m a bad girl too.
+ - As human beings we’re so cynical, so uncompassionate.
+ - I don’t just want to be the girl boys get excited about, I have no desire for people to see me in a sexy way. I won’t do nudity ever.
+ - I don’t want to be known as the Aerosmith chick, but it’s fun to put on the boots and makeup and act like a tough girl.
+ - Like when I’m in the bathroom looking at my toilet paper, I’m like ‘Wow! That’s toilet paper?’ I don’t know if we appreciate how much we have.
+ - I’m always looking for inspiration.
+ - I’m reachable for people, I’m not out of their league. I’m just a normal girl.
+ - People think, ‘Wow, you’re an actress, so people must be really nice to you and kiss your ass.’ NOBODY kisses my ass.
+ - It’s important to see what we can do to make a difference, but it’s more important to me to do it every single day.
+ - I love cooking and one of my favourite things to do with my husband is open up the refrigerator.
+ - My life has become about trying to find effective ways to be as responsible with the choices I make – in food, clothing and everything else. I don’t want to be responsible for the harm of any creature, person or animal.
+ - When I was 18 years old I went to Shakespeare Company, the school, and I wrote a poem about my leaves – I felt like a tree that had no leaves. That is the life at 18.
+ - I’d die if I was Madonna. I’d die. God, what a horrible way to live. And Michael Jackson! To be so famous and to feel so isolated. I feel so bad for them. I don’t know how it feels, and I hope it never happens to me.
+ - I think any time anybody says something nasty about you, it’s hard to deal with it.
+ - I don’t take any of the medications I took when I was younger: antibiotics, antacids, aspirin, asthma inhalers, ulcer medication, allergy shots.
+ - I don’t have any understanding of a human being who doesn’t respect the beauty of life and that goes for all creatures that have thoughts, feelings and needs.
+ - My biggest dream in the world is for everyone to become vegetarian, so there won’t be any more suffering.
+ - I’m very uncomfortable with my body, and I’m not interested in people seeing it on screen.
+ - I’ve gained so much confidence as a woman from figuring out that I don’t want to be destructive. I don’t want to stomp through the world and be number one. I just want to tread really lightly and not destroy anything. Hopefully, I can try to mend some things. That’s my goal.
+ - Being vegan just gives you such great karma.
+ - When I was 8 years old, my brother was making the noises of the animals I was eating, so I decided to go vegetarian. Then I would give up because I was 8.
+ - I knew that I wanted to be a film actress and I never watched TV. I was always too busy.
+ - When you’re offered things, it makes it so much easier to be indecisive. And it’s silly because you can pass on some really amazing things.
+ - I swear it’s so easy. You don’t have to have a diet mentality at all if you eat healthily, plant-based food.
+ - I didn’t want to get married – I thought it was like a cult! It seemed so conservative and unnatural.
+ - I did it for political, moral reasons, thinking that I was making this great sacrifice, but it was absolutely necessary; I was not going to contribute to the violence in the world anymore.
+ - Animals are being exploited in such an unbelievable way; it’s not acceptable.
+ - I came from a generation of actors for whom TV was taboo.
+ - All the things I’ve loved the most in life were my biggest risks.
+ - I never count calories, but I eat so well.
+ - It’s so simple to create a delicious holiday meal without animal cruelty. I promise no one will miss the turkey!
+ - I truly loved doing the videos, but it has been hard hearing all the time that you’re just the Aerosmith chick.
+ - I think people want love in their lives.
+
+45 quotes

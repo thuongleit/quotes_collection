@@ -1,0 +1,52 @@
+ - I go crazy trying to energize people, ’cause that’s what I am. I’m a battery. If you’re down, you can plug into me and get charged up.
+ - I don’t think in the past. I don’t think in the future. You grasp the moment.
+ - I want to stand out. After my career is over, I want people to say, ‘He was different.’ It’s not to be outrageous. I just want people to know that when I played ball, I was having fun.
+ - With the game on the line. I want the ball in my hands.
+ - I literally and truly don’t care how many points I score. I get far more satisfaction out of doing the other things that make us winners.
+ - I’m not satisfied. I’m still enjoying this. I still feel like I’m in the best part of my career and I can play at a high level. This is what I love to do: playing football and winning games.
+ - My thing is to be ready to pitch every five days and give my team a chance to win.
+ - I don’t like the feeling of losing.
+ - I think big-that’s what my mother taught me. If you think small and accomplish it, what does it mean? Who cares? To me the sky’s the limit, and I’m going to try and get there.
+ - My main focus off the court is to be humble. My mom always told me to be a presentable young man. I’m not going to pretend to be something that I’m not and act a certain way for people. I plan on being myself. I like having a good time, but I still carry myself in an orderly fashion.
+ - We don’t mind working hard to be successful. We don’t mind working to be at our best.
+ - I don’t play basketball for the money. I don’t play it for the crowd. When I didn’t have a friend, when I was lonely, I always knew I could grab that orange pill and go hoop. I could go and dunk on somebody. If things weren’t going right, I could make a basket and feel better.
+ - I’m old school. I’m locked into my own little circle. If you cross the line, you’re going to get bit. They’ll always know where I’m coming from and once we hit the floor, there’s no doubt.
+ - I go through life with a smile because I know things can be worse than they are.
+ - It’s rare to have a best friend who is also your brother and also an NFL football player, and he knows exactly what I’m talking about.
+ - When I came to Ole Miss, everyone expected me to bring the program back to its glory days. I didn’t want to put that kind of pressure on myself.
+ - One thing I’ve learned about the NBA is that you can have one good year, but you’ve always got to be progressing and working and making yourself better.
+ - I leave my heart on the court every night. I earn my keep.
+ - I’m no Bob Gibson. I can tell you that.
+ - Coaches have the worst hours in the world. They go home maybe twice a week. They’re sleeping in their office. They’re watching film. It’s a brutal, brutal job and that’s why I respect them so much.
+ - Strike one is a big, big pitch-you can do a lot after you get strike one, no matter how you get it.
+ - Opportunities are running out, and this is the do-or-die situation when the ball is in your hands, and you can either help your team to victory or not. And so I want to be in those situations. I think about them, and almost look forward to them.
+ - I’ve been a leader practically my whole life. I don’t know what it is to follow.
+ - It’s all about having fun. Play hard and fair, don’t hurt anybody. Feel good about what you’re doing and how you’re doing it.
+ - Be committed to whatever you’re doing. That’s something I’ve taken to heart and tried to do with whatever activities I take up.
+ - I’ll always have a kid in me.
+ - In New York, they like winners. They don’t like second place.
+ - Money isn’t always going to make it happen. It’s important to be around people that have the right kind of attitude, being happy about what you’re doing.
+ - We just have to go after our game plan.
+ - If you think individual, that’s how you’re going to come off. I’ve always given ‘team’ a chance.
+ - My goal is to get outs as soon as I can. Strikeouts aren’t that big a deal to me.
+ - The pitch count situatio-it doesn’t matter if you throw 120 or 80, whatever. It’s the quality of pitches that you throw.
+ - My idea is, I shine, you shine. If I’m doing well and you’re with me, you do well.
+ - My approach never changes from start to start.
+ - You know your goals and what you need to do to get better-just eliminate the bad plays.
+ - No, we believed in ourselves all year. That’s the position you want to be in.
+ - My cutter has been key for me, and my curveball. I’ve been able to spot them where I want to spot them.
+ - I’ve always tried to be the person who says things no one else wants to say. I’ve always kept it in house, as opposed to going to the papers.
+ - I think the guys that are successful might be a little more relaxed and able to deal with the distractions.
+ - I just want my sign and I want to throw it. I think it keeps everybody on their toes.
+ - I’ll bring what I bring to the tale, but it’s good to know you have two guys with the experience and know-how in big games.
+ - I try to be a smart quarterback. I’m not the fastest or the best athlete, but if I can know what the defense is doing and stick to my job and what needs to be done I can make the plays needed to move the ball and score.
+ - I’m going to go out and be the best quarterback I can be and get the most out of my potential.
+ - Hey, hitting is hard-if you make good pitches that aren’t elevated in the zone, you’re going to have success.
+ - I’ve always been a player and a person who wanted to be the best at whatever he did.
+ - Chicago was big for me as far as developing as a person and as a basketball player.
+ - I’ve gotten to watch a lot of football games. Growing up, watching sports, watching people compete, whether it’s my brothers or teammates. I grew up observing and taking it all in. It’s kind of my attitude.
+ - You can’t join a team and give up on it because you lose a few games or things aren’t going well.
+ - I’m just trying to take what the defense gives me.
+ - As a quarterback, you try to manage the game. It’s not just throwing the ball. You have to manage the running game and getting out of bad situations and there are a lot of things to it. That’s what I’m trying to do.
+
+50 quotes

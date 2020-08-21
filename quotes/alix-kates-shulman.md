@@ -1,0 +1,23 @@
+ - Sexism goes so deep that at first it’s hard to see; you think it’s just reality.
+ - Everything is connected. There is no such thing as an island, especially in our world, global village, the whole thing. Pollution from way across the ocean circulates in the air.
+ - There is a lot of gender segregation. You still have many poor women who work in women-only jobs. In the family, in most cases, only women have the double job of working outside the home and taking care of the family.
+ - One important part of historical recording is to get people of another generation to understand the feelings, the passion that went into social transformation. That’s why oral history is so valuable.
+ - There is still nothing like equality for women in jobs, in family. There’s just an awareness that inequality is not acceptable.
+ - When I became a feminist, when the movement started in the late sixties, I started writing because I had something urgent to say. My first novel, Memoirs of an Ex-Prom Queen, is the product of that urgency.
+ - When you witness the end of a life up close day by day, you begin to understand time and mortality in profound ways. You see time’s relativity, death’s necessity.
+ - People often say to me now, “Your work changed my life.” I’m sure that’s an exaggeration, but they say it had a big effect on them and enabled them to change. I’m not sure I believe that a book will cause someone to change.
+ - Fiction is ideally suited to re-creating the important emotional aspects of history.
+ - Being alone for a woman is probably much more scary than for a man. I’m all for getting over our fears by facing them head-on.
+ - As I experienced life on the island, without electricity, plumbing or telephone, I thought it was important to show that people can live as I did without dying or falling apart. I wanted people to understand that we don’t need everything that our culture tells us we have to have to be satisfied.
+ - Many people spend the ends of their lives alone, and probably a lot of years in the middle of their lives, and I’m glad I had the opportunity to experience the rewards of solitude.
+ - It’s always difficult to write honestly of one’s deepest feelings, particularly without the protective veil of fiction. But the more difficult, the more rewarding if one succeeds. Rewarding not only to the work but to one’s peace of mind.
+ - My mirror image always had to be interpreted. And for that I sought my reflection in someone else’s eyes.
+ - Usually, ordinary histories don’t get the emotional feel of a period. That’s what a novel can do.
+ - In my books, my idea is always to explore social context and social forces.
+ - Our society has very much limited our choices, even regarding the food we think acceptable.
+ - Solitude offers a lot that being coupled or being in a group does not. It helps us learn what we are capable of.
+ - For many decades my relations with my parents constituted unfinished business. I had dealt with them through sheer avoidance and guilt.
+ - Within walking distance of any spot on Earth there’s probably more than enough mystery to investigate in a lifetime.
+ - The world is abundant with food for us, and with everything we need, if only we just open our eyes. There’s so much food that gets thrown out or never harvested.
+
+21 quotes

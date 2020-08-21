@@ -1,0 +1,286 @@
+ - Joy does not simply happen to us. We have to choose joy and keep choosing it every day.
+ - Hospitality is not to change people, but to offer them space where change can take place.
+ - Community is where humility and glory touch.
+ - Spiritual identity means we are not what we do or what people say about us. And we are not what we have. We are the beloved daughters and sons of God.
+ - Community means that people come together around the table, not just to feed their bodies, but to feed their minds and their relationships.
+ - The discipline of gratitude is the explicit effort to acknowledge that all I am and have is given to me as a gift of love, a gift to be celebrated with joy.
+ - In true love the smallest distance is too great, and the greatest distance can be bridged.
+ - It is precisely in times of spiritual dryness that we must hold on to our spiritual discipline so that we can grow into new intimacy with God.
+ - Prayer is first of all listening to God. It’s openness. God is always speaking; he’s always doing something.
+ - What makes us human is not our mind but our heart, not our ability to think but our ability to love.
+ - A waiting person is a patient person. The word patience means the willingness to stay where we are and live the situation out to the full in the belief that something hidden there will manifest itself to us.
+ - Solitude is the furnace of transformation. Without solitude we remain victims of our society and continue to be entangled in the illusions of the false self.
+ - Active waiting means present fully to the moment, in the conviction that something is happening where you are and that you want to be present to it.
+ - Our life is full of brokenness – broken relationships, broken promises, broken expectations. How can we live with that brokenness without becoming bitter and resentful except by returning again and again to God’s faithful presence in our lives.
+ - Jesus invites us to abide in his love. That means to dwell with all that I am in him. It is an invitation to a total belonging, to full intimacy, to an unlimited being-with. The light of the Spirit reveals to us that love conquers all fear.
+ - Self-rejection is the greatest enemy of the spiritual life because it contradicts the sacred voice that calls us the Beloved.
+ - Christian community is the place where we keep the flame of hope alive among us and take it seriously so that it can grow and become stronger in us.
+ - God, help me to see others not as enemies or as ungodly but rather as thirsty people. And give me the courage and compassion to offer your Living Water, which alone quenches deep thirst.
+ - I am the prodigal son every time I search for unconditional love where it cannot be found.
+ - Prayer is not a pious decoration of life but the breath of human existence.
+ - We are called to be fruitful – not successful, not productive, not accomplished. Success comes from strength, stress, and human effort. Fruitfulness comes from vulnerability and the admission of our own weakness.
+ - Distance never separates two hearts that really care, for our memories span the miles and in seconds we are there. But whenever I start feeling sad because I miss you I remind myself how lucky I am to have someone so special to miss.
+ - True Hospitality is welcoming the stranger on her own terms. This kind of hospitality can only be offered by those who’ve found the center of their lives in their own hearts.
+ - Community is first of all a quality of the heart. It grows from the spiritual knowledge that we are alive not for ourselves but for one another.
+ - You don’t think your way into a new kind of living. You live your way into a new kind of thinking.
+ - Spiritual maturity is not knowing what to do with your whole life, but just knowing what to do next.
+ - The farther the outward journey takes you, the deeper the inward journey must be.
+ - It is God’s passionate pursuit of us that calls us to prayer.
+ - When we learn to move through suffering, rather than avoid it, then we greet it differently. We become willing to let it teach us. We even begin to see how God can use it for some larger end.
+ - Who am I? Where have I come from? Where am I going?-are not questions with an answer but questions that open us up to new questions which lead us deeper into the unshakeable mystery of existence.
+ - Solitude is the place of purification and transformation, the place of the great struggle and the great encounter.
+ - When we give generously, with an abundance mentality, what we give away will multiply.
+ - In a world so torn apart by rivalry, anger, and hatred, we have the privileged vocation to be living signs of a love that can bridge all divisions and heal all wounds.
+ - Pay attention to the people God puts in your path if you want to discern what God is up to in your life.
+ - To live a spiritual life we must first find the courage to enter into the desert of loneliness and to change it by gentle and persistent efforts into a garden of solitude.
+ - Somewhere we know that without silence words lose their meaning, that without listening speaking no longer heals, that without distance closeness cannot cure.
+ - Be surprised by joy, be surprised by the little flower that shows its beauty in the midst of a barren desert, and be surprised by the immense healing power that keeps bursting forth like springs of fresh water from the depth of our pain.
+ - The greatest trap in our life is not success, popularity or power, but self-rejection.
+ - Prayer is the center of the Christian life. It is the only necessary thing. It is living with God in the here and now.
+ - Hope means to keep living amid desperation and to keep humming in the darkness.
+ - Listening is a form of spiritual hospitality by which you invite strangers to become friends, to get to know their inner selves more fully, and even to dare to be silent with you.
+ - Waiting time is not wasting time. Waiting patiently in expectation is the foundation of the spiritual life.
+ - Peacemaking is a full-time vocation that includes each member of God’s people.
+ - When we are crushed like grapes, we cannot think of the wine we will become.
+ - God doesn’t give us just enough. God gives us more than enough: more bread and fish than we can eat, more love than we dared to ask for.
+ - Those who keep speaking about the sun while walking under a cloudy sky are messengers of hope, the true saints of our day.
+ - Those we most love cause us not only great joy but also great pain. LOVE is stronger than fear, life stronger than death, hope stronger than despair. We have to trust that the risk of loving is always worth taking.
+ - For Jesus, there are no countries to be conquered, no ideologies to be imposed, no people to be dominated. There are only children, women and men to be loved.
+ - To the degree that we embrace the truth that our identity is not rooted in our success, power, or popularity, but in God’s infinite love, to that degree can we let go of our need to judge.
+ - In our own woundedness, we can become sources of life for others.
+ - Christmas is believing that the salvation of the world is God’s work, and not mine.
+ - Compassion can never coexist with judgement because judgement creates the distance, the distinction, which prevents us from really being with the other.
+ - Fundraising is a very rich and beautiful activity. It is a confident, joyful and hope-filled expression of ministry. In ministering to each other, each from the riches that he or she possesses, we work together for the full coming of God’s Kingdom.
+ - Real greatness is often hidden, humble, simple, and unobtrusive. It is not easy to trust ourselves and our actions without public affirmation. We must have strong self-confidence combined with deep humility.
+ - Compassion means full immersion in the condition of being human.
+ - The spiritual life does not remove us from the world but leads us deeper into it.
+ - God’s Kingdom is a place of abundance where every generous act overflows its original bounds and becomes part of the unbounded grace of God at work in the world.
+ - Learning to weep, learning to keep vigil, learning to wait for the dawn. Perhaps this is what it means to be human.
+ - If you meet God in solitude, you discover the God you meet is the God who embraces all people.
+ - Becoming the beloved is pulling the truth revealed to me from above down into the ordinariness of what I am, in fact, thinking of, talking about and doing from hour to hour.
+ - That’s the temptation of the devil: “Turn stones into bread! Be relevant!”
+ - Today I personally believe that while Jesus came to open the door to God’s house, all human beings can walk through that door, whether they know about Jesus or not. Today I see it as my call to help every person claim his or her own way to God.
+ - Friends share our pain and touch our wounds with a gentle and tender hand.
+ - Christian life is not a life divided between times for action and times for contemplation. No. Real social action is a way of contemplation, and real contemplation is the core of social action.
+ - The Lord is coming, always coming. When you have ears to hear and eyes to see, you will recognize him at any moment of your life. Life is Advent; life is recognizing the coming of the Lord.
+ - It is by chance that we met, by choice that we became friends.
+ - In a strange way the spiritual life isn’t “useful” or “successful.” But it is meant to be fruitful. And fruitfulness comes out of brokenness.
+ - In solitude we become aware that our worth is not the same as our usefulness.
+ - The only feelings that do not heal are the ones you hide.
+ - We have to trust that our stories deserve to be told. We may discover that the better we tell our stories the better we will want to live them.
+ - I often wonder if my knowledge about God has not become my greatest stumbling block to my knowledge of God.
+ - Keep a space where God can let something totally new take place.
+ - Dear God, I am so afraid to open my clenched fists! Who will I be when I have nothing left to hold on to? Who will I be when I stand before you with empty hands? Please help me to gradually open my hands and to discover that I am not what I own, but what you want to give me.
+ - Joy is hidden in sorrow and sorrow in joy. If we try to avoid sorrow at all costs, we may never taste joy, and if we are suspicious of ecstasy, agony can never reach us either. Joy and sorrow are the parents of our spiritual growth.
+ - Hope is willing to leave unanswered questions unanswered and unknown futures unknown. Hope makes you see God’s guiding hand not only in the gentle and pleasant moments but also in the shadows of disappointment and darkness.
+ - Waiting is a period of learning. The longer we wait, the more we hear about him for whom we are waiting.
+ - Dare to love and to be a real friend. The love you give and receive is a reality that will lead you closer and closer to God as well as those whom God has given you to love.
+ - To receive spiritual direction is to recognize that God does not solve our problems or answer all our questions, but leads us closer to the mystery of our existence where all questions cease.
+ - We are all healers who can reach out and offer health, and we are all patients in constant need of help.
+ - To learn patience is not to rebel against every hardship.
+ - One of the main tasks of theology is to find words that do not divide but unite, that do not create conflict but unity, that do not hurt but heal.
+ - Life is just a little opportunity for you during a few years to say to God: ‘I love you, too.’
+ - There are as many ways to pray as there are moments in life.
+ - The best of community does give one a deep sense of belonging and well-being; and in that sense community takes away loneliness.
+ - As ministers our greatest temptation is toward too many words. They weaken our faith and make us lukewarm. But silence is a sacred discipline, a guard of the Holy Spirit.
+ - One of the tragedies of our life is that we keep forgetting who we are.
+ - Where true inner freedom is, there is God. And where God is, there we want to be.
+ - Forgiveness changes the way we remember.
+ - As we read spiritually about spiritual things, we open our hearts to God’s voice. Sometimes we must be willing to put down the book we are reading and just listen to what God is saying to us through our words.
+ - I feel strongly that the God we meet in solitude is always the God who calls us to community.
+ - Every time I take a step in the direction of generosity, I know I am moving from fear to love.
+ - From the moment we claim the truth of being the beloved, we are faced with the call to become who we are.
+ - Our brokenness has no other beauty but the beauty that comes from the compassion that surrounds it.
+ - Resentment and gratitude cannot coexist, since resentment blocks the perception and experience of life as a gift. My resentment tells me that I don’t receive what I deserve. It always manifests itself in envy.
+ - I am deeply convince that the necessity of prayer, and to pray unceasingly, is not as much based on our desire for God as on God’s desire for us. It is God’s passionate pursuit of us that calls us to prayer.
+ - Lifting our cup means sharing our life so we can celebrate it. When we truly believe we are called to lay down our lives for our friends, we must dare to take the risk to let others know what we are living.
+ - When we break bread and give it to each other, fear vanishes and God becomes very close.
+ - When we become aware that we do not have to escape our pains, but that we can mobilize them into a common search for life, those very pains are transformed from expressions of despair into signs of hope.
+ - The mystery of ministry is that we have been chosen to make our own limited and very conditional love the gateway for the unlimited and unconditional love of God.
+ - As long as we continue to live as if we are what we do, what we have, and what other people think about us, we will remain filled with judgments, opinions, evaluations, and condemnations. We will remain addicted to putting people and things in their “right” place.
+ - Peace is first of all the art of being.
+ - The great illusion of leadership is to think that man can be led out of the desert by someone who has never been there.
+ - To be baptized means to make the passage with the people of Israel and with Jesus from slavery to freedom and from death to new life. It is a commitment to a life in and through Jesus.
+ - The spiritual life is a reaching out to our innermost self, to our fellow human and to our God.
+ - This brief lifetime is my opportunity to receive love, deepen love, grow in love, and give love.
+ - Once you are in communion with God, you have the eyes to see and the ears to hear other people in whom God has also found a dwelling place.
+ - If fear is the great enemy of intimacy, love is its true friend.
+ - A life without a lonely place, that is, without a quiet center, becomes destructive.
+ - You are the heir to the Kingdom. Prosperity is your birth right and you hold the key to more abundance in every area of your life then you can possibly imagine.
+ - Our greatest fulfillment lies in giving ourselves to others.
+ - Much violence is based on the illusion that life is a property to be defended and not to be shared.
+ - Who can take away suffering without entering it?
+ - If you are not able to be silent, you will not be able to speak well.
+ - Somewhere we know that without silence, words lose their meaning.
+ - Compassion requires us to be weak with the weak, vulnerable with the vulnerable, and powerless with the powerless. Compassion means full immersion in the condition of being human.
+ - The spiritual life is not a life before, after, or beyond our everyday existence. No, the spiritual life can only be real when it is lived in the midst of the pains and joys of the here and now.
+ - We cannot make it rain but we can see to it that the rain falls on prepared soil.
+ - One way to express the spiritual crisis of our time is to say that most of us have an address but cannot be found there.
+ - Our efforts to disconnect ourselves from our own suffering end up disconnecting our suffering from God’s suffering for us. The way out of our loss and hurt is in and through.
+ - Do not hesitate to love and to love deeply.
+ - Is my growing old making me any closer to Christ? Am I only getting older or am I getting more godly?
+ - Joy and laughter are the gifts of living in the presence of God and trusting that tomorrow is not worth worrying about.
+ - Solitude is the furnace of transformation.
+ - God is a God of the present. God is always in the moment, be that moment hard or easy, joyful and painful.
+ - Friendship has always belonged to the core of my spiritual journey.
+ - Intimacy is not a happy medium. It is a way of being in which the tension between distance and closeness is dissolved and a new horizon appears. Intimacy is beyond fear.
+ - I have an increasing sense that the most important crisis of our time is spiritual and that we need places where people can grow stronger in the spirit and be able to integrate the emotional struggles in their spiritual journeys.
+ - When we honestly ask ourselves which person in our lives means the most to us, we often find that it is those who, instead of giving advice, solutions, or cures, have chosen rather to share our pain and touch our wounds with a warm and tender hand.
+ - The friend who cares makes it clear that whatever happens in the external world, being present to each other is what really matters. In fact, it matters more than pain, illness, or even death.
+ - It is not easy to enter into the silence and reach beyond the many boisterous and demanding voices of our world and to discover there the small intimate voice saying: ‘You are my Belived Child, on you my favor rests.’
+ - Friendship and love are impossible without a mutual vulnerability.
+ - Most Christian leadership is exercised by people who do not know how to develop healthy, intimate relationships and have opted for power and control instead. Many Christian empire-builders have been people unable to give and receive love.
+ - It’s an incredible mystery of God’s love that the more you know how deeply you are loved, the more you will see how deeply your sisters and your brothers in the human family are loved.
+ - When you recognize the festive and the still moments as moments of prayer, then you gradually realize that to pray is to live.
+ - Joy is based on the spiritual knowledge that, while the world in which we live is shrouded in darkness, God has overcome the world.
+ - The deepest satisfaction of writing is precisely that it opens up new spaces within us of which we were not aware before we started to write. To write is to embark on a journey whose final destination we do not know.
+ - Life is not entertainment. Life is not distraction.
+ - This sounds very simple and maybe even trite, but very few people know that they are loved without condition or limits.
+ - Patience asks us to live the moment to the fullest, to be completely present to the moment, to taste the here and now, to be where we are.
+ - By prayer, community is created as well as expressed.
+ - Which questions guide our lives? Which questions do we make our own? Which questions deserve our undivided and full personal commitment? Finding the right questions is crucial to finding the answers.
+ - Joy is the experience of knowing that you are unconditionally loved.
+ - The spiritual life is a life beyond moods. It is a life in which we choose joy and do not allow ourselves to become victims of passing feelings of happiness or depression.
+ - Every time you reject yourself, you idealize others.
+ - One of the most satisfying aspects of writing is that it can open in us deep wells of hidden treasures that are beautiful for us as well as for others to see.
+ - So I am praying while not knowing how to pray. I am resting while feeling restless, at peace while tempted, safe while still anxious, surrounded by a cloud of light while still in darkness, in love while still doubting.
+ - Forgiveness is the name of love practiced among people who love poorly. The hard truth is that all people love poorly. We need to forgive and be forgiven every day, every hour increasingly. That is the great work of love among the fellowship of the weak that is the human family.
+ - Aging does not need to be hidden or denied, but can be understood, affirmed and experienced as a process of growth by which the mystery of life is slowly revealed to us.
+ - No one person can fulfill all your needs. But the community can truly hold you. The community can let you experience the fact that, beyond your anguish, there are human hands that hold you and show you God’s faithful love.
+ - Joy is the experience of knowing that you are unconditionally loved and that nothing-sicknes s, failure, emotional distress, oppression, war, or even death – can take that love away.
+ - We need to remind each other that the cup of sorrow is also the cup of joy, that precisely what causes us sadness can become the fertile ground for gladness.
+ - Our lives are unique stones in the mosaic of human existence – priceless and irreplaceable.
+ - The soul of the artist cannot remain hidden.
+ - When we keep claiming the light, we will find ourselves becoming more and more radiant.
+ - In the face of the oppressed I recognize my own face, and in the hands of the oppressor I recognize my own hands. Their flesh is my flesh, their blood is my blood, their pain is my pain, their smile is my smile.
+ - The church is not an institution forcing us to follow rules but a community inviting us to still our hunger and thirst at its table.
+ - Living a spiritual life requires a change of heart, a conversion. Such a conversion may be marked by a sudden inner change, or it can take place through a long, quiet process of transformation. But it always involves an inner experience of oneness.
+ - Once we deeply trust that we ourselves are precious in God’s eyes, we are able to recognize the preciousness of others and their unique places in God’s heart.
+ - A prayerful life is not a life in which we say many prayers, but a life in which nothing, absolutely nothing, is done, said, or understood independently of him who is the origin and purpose of our existence.
+ - Good families always ritualize the table. You can say, “This is a Christmas meal; this is a birthday meal.”
+ - We are not the healers, we are not the reconcilers, we are not the givers of life. We are sinful, broken, vulnerable people who need as much care as anyone we care for.
+ - The leaders of the future will be those who dare to claim their irrelevance in the contemporary world as a divine vocation...
+ - The real ‘work’ of prayer is to become silent and listen to the voice that says good things about me.
+ - Trust that the treasure we look for is hidden in the ground on which we stand.
+ - The joy that compassion brings is one of the best-kept secrets of humanity. It is a secret known only to a very few people, a secret that has to be rediscovered over and over again.
+ - The difference between rich and poor is not that the rich sin is more than the poor, that the rich find it easier to call sin a virtue.
+ - Our society is so fragmented, our family lives so sundered by physical and emotional distance, our friendships so sporadic, our intimacies so ‘in-between’ things and often so utilitarian, that there are few places where we can feel truly safe.
+ - That is our vocation: to convert the enemy into a guest and to create the free and fearless space where brotherhood and sisterhood can be formed and fully experienced.
+ - Jesus didn’t say, ‘Blessed are those who care for the poor.’ He said, ‘Blessed are we where we are poor, where we are broken.’ It is there that God loves us deeply and pulls us into deeper communion with himself.
+ - The pain that comes from deep love makes your love more fruitful. It is like a plow that breaks the ground to allow the seed to take root.
+ - Your heart is greater than your wounds.
+ - What once seemed such a curse has become a blessing. All the agony that threatened to destroy my life now seems like the fertile ground for greater trust, stronger hope, and deeper love.
+ - In solitude we become aware that we were together before we came together and that life is not a creation of our will but rather an obedient response to the reality of our being united.
+ - We need to be angels for each other, to give each other strength and consolation. Because only when we fully realize that the cup of life is not only a cup of sorrow but also a cup of joy will we be able to drink it.
+ - I’ve had a tremendous problem with depression in my life. I’d rather not talk about it, because it’s over. But depression is real.
+ - To be a Christian who is willing to travel with Christ on his downward road requires being willing to detach oneself constantly from any need to be relevant, and to trust ever more deeply the Word of God.
+ - While my friend always spoke about the sun, I kept speaking about the clouds, until one day I realized that it was the sun that allowed me to see the clouds.
+ - Each individual human being can claim the Spirit of Jesus as the guiding spirit of his or her life. In that Spirit we can speak and act freely and confidently with the knowledge that the same Spirit that inspired Jesus is inspiring us.
+ - People with handicaps teach me that being is more important than doing, the heart is more important than the mind, and caring together is better than caring alone.
+ - In their poverty, the mentally handicapped reveal God to us and hold us close to the gospel.
+ - Solitude is an essential element for the spiritual health of a child. If we only stimulate our children – keep them busy with endless stories with no space to be alone – that’s not good.
+ - Community is the fruit of our capacity to make the interests of others more important than our own.
+ - He who thinks that he is finished is finished. How true. Those who think that they have arrived, have lost their way. Those who think they have reached their goal, have missed it. Those who think they are saints, are demons.
+ - By giving words to these intimate experiences I can make my life available to others.
+ - In solitude we realize that nothing human is alien to us.
+ - Solitude is the place where we can connect with profound bonds that are deeper than the emergency bonds of fear and anger.
+ - The world is waiting for new saints, ecstatic men and women who are so deeply rooted in the love of God that they are free to imagine a new international order.
+ - When you have loved deeply, that love can grow even stronger after the death of the person you love. That is the core message of Jesus.
+ - I am learning that the best cure for hypocrisy is community. Hypocrisy is not so much the result of not living what I preach but much more of not confessing my inability to fully live up to my own words.
+ - Ministers are powerless people who have nothing to boast of except their weaknesses. But when the Lord whom they serve fills them with His blessing they will move mountains and change the hearts of people wherever they go.
+ - Every time there are losses, there are choices to be made. You choose to live your losses as passages to anger, blame, hatred, depression and resentment, or you choose to let these losses be passages to something new, something wider, and deeper.
+ - Everything changes radically from the moment you know yourself as being sent into this world.
+ - The tragedy of our lives is that, while we suffer from the wounds afflicted on us by those who love us, we cannot avoid wounding those we want to love.
+ - The question is not: How many people take you seriously? How much are you going to accomplish? Can you show some results? but: Are you in love with Jesus?
+ - The evangelical movement has become just a bit victimized by a success-oriented culture, wanting the church – like the corporation – to be successful.
+ - The journey from teaching about love to allowing myself to be loved proved much longer than I realised.
+ - When we have sold our identity to the judges of this world, we are bound to become restless, because of a growing need for affirmation and praise.
+ - Ministry is the least important thing. You cannot not minister if you are in communion with God and live in community.
+ - Hiddenness is the place of purification. In hiddenness we find our true selves.
+ - Fear is the great enemy of intimacy. Fear makes us run away from each other or cling to each other but does not create true intimacy.
+ - To live in the present, we must deeply believe that what is most important is in the here and now.
+ - Silence is a very concrete, practical, and useful discipline in all our ministerial tasks. It can be seen as a portable cell taken with us from the solitary place into the midst of our ministry. Silence is solitude practiced in action.
+ - Yes, it’s a competitive world, but where is your heart?
+ - Let’s not be afraid to look at everything that has brought us to where we are now and trust that we will soon see in it the guiding hand of a loving God.
+ - Asking people for money is giving them the opportunity to put their resources at the disposal of the Kingdom.
+ - The resistance to praying is like the resistance of tightly clenched fists. This image shows a tension, a desire to cling tightly to yourself, a greediness which betrays fear.
+ - Our glory is hidden in our pain, if we allow God to bring the gift of himself in our experience of it.
+ - You are a Christian only so long as you constantly pose critical questions to the society you live in, so long as you stay unsatisfied with the status quo, and keep saying that a new world is yet to come.
+ - To give someone a blessing is the most significant affirmation we can offer.
+ - Too many of us are lonely ministers practicing a lonely ministry.
+ - Our first responsibility in the midst of violence is to prevent it from destroying us.
+ - Life is not a possession to be defended, but a gift to be shared.
+ - The more we touch the intimate love of God which creates, sustains, and guides us, the more we recognize the multitude of fruits that come forth from that love.
+ - It is very hard to stay in touch with our true identity because those who want our money, our time, and our energy profit more from our insecurity and fears than from our inner freedom.
+ - Discipline in the spiritual life is the concentrated effort to create the space and time where God can become our master and where we can respond freely to God’s guidance.
+ - The fruits of your labors may be reaped two generations from now. Trust, even when you don’t see the results.
+ - In our production-oriented society, being busy, having an occupation, has become one of the main ways, if not the main way, of identifying ourselves. Without an occupation, not just our economic security but our very identity is endangered.
+ - Community always calls us back to solitude, and solitude always calls us to community. Community and solitude, both, are essential elements of ministry and witnessing.
+ - The mystery of one man is too immense and too profound to be explained by another man.
+ - When we have nothing to cling to as our own and cease thinking of ourselves as people who must defend privileges, we can open ourselves freely to others with the faithful expectation that our strength will manifest itself in our shared weakness.
+ - The crisis of our prayer life is that our minds may be filled with ideas of God while our hearts remain far from him.
+ - I still believe that the university is a place where people can develop their minds and learn skills, but also they can develop their personalities and their spiritual life.
+ - Ministry means the ongoing attempt to put one’s own search for God, with all the moments of pain and joy, despair and hope, at the disposal of those who want to join this search but do not know how.
+ - Our tendency is to run from the painful realities or try to change them as soon as possible. But cure without care makes us into rulers, controllers, manipulators.
+ - I can choose to grateful when I am criticized, even when my heart still responds in bitterness. I can choose to speak about goodness and beauty, even when my inner eye still looks for someone to accuse or something to call ugly.
+ - The world is evil only when you become its slave.
+ - Prayer is the breath of your life which gives you the freedom to go and stay where you wish and to find the many signs which point out the way to a new land.
+ - I always try to turn my personal struggles into something helpful for others.
+ - There is nothing so important in the family as the sacred quality of the meal.
+ - Solitude does not pull us away from our fellow human beings but instead makes real fellowship possible.
+ - Often we come home from a sharing session with a feeling that something precious has been taken away from us or that holy ground has been trodden upon.
+ - As peacemakers, we must resist all the powers of war and destruction and proclaim that peace is the divine gift offered to all who affirm life. Resistance means saying ‘No’ to all the forces of death, wherever they may be.
+ - When I could no longer cling to my normal supports I discovered that true support and real safety lie far beyond the structures of our world.
+ - If I were to let my life be taken over by what is urgent, I might very well never get around to what is essential.
+ - We have to keep asking ourselves: ‘What does it all mean? What is God trying to tell us? How are we called to live in the midst of all this?’ Without such questions our lives become numb and flat.
+ - The people who most affected me were the ones who got right in there with me, who cried with me, but who also had a certain authority, who dared to say what needed saying.
+ - Let’s dare to enter into an intimate relationship with God without fear, trusting that we will receive love and always more love.
+ - God wants you to live for others and to live that presence well.
+ - I want my work to create space where people can meet God, rather than give them something they can “apply” to their daily life.
+ - Reading with children is an enormous gift to them. It’s a great honor to invite children to read with adults.
+ - When we approach fundraising in a spirit of gratitude, our confidence in our mission does not depend on how the person we are with responds to our request! We are free to remain secure in God’s love with our hearts set joyfully on the kingdom.
+ - The real enemies of our life are the ‘oughts’ and the ‘ifs.’ They pull us backward into the unalterable past and forward into the unpredictable future. But real life takes place in the here and now.
+ - The great teachers are always those who can live the tension. They are not criticizing everybody, they’re not complaining. They give young people a vision.
+ - Prayer is not what is done by us, but rather what is done by the Holy Spirit in us.
+ - We must ask ourselves how many times others would benefit more from our silence than from our words.
+ - In 1970 I felt so lonely that I could not give; now I feel so joyful that giving seems easy. I hope that the day will come when the memory of my present joy will give me the strength to keep giving even when loneliness gnaws at my heart.
+ - To be a minister means above all to become powerless, or in more precise terms, to speak with our powerlessness to the condition of powerlessness which is so keenly felt but so seldom expressed by the people of our age.
+ - Although I am a committed Catholic priest, and nowhere hide that fact, my focus is very much a spiritual journey.
+ - As long as we relate to the trees, the rivers, the mountains, the fields and the oceans as properties which we can manipulate according to our real or fabricated needs, nature remains opaque, and does not reveal to us its true being.
+ - The art of living is to enjoy what we can see and not complain about what remains in the dark.
+ - Prayer is the most concrete way to make our home in God.
+ - I am very grateful that I am in touch with so many different church groups. I am always very moved by the fact that so many people – practically over the spectrum of the Christian world – are responding to my writing.
+ - Solitude, community, and ministry are certainly not just for celibates! Celibates also have a hard time keeping up.
+ - Be sure that you make a difference in the world.
+ - It is freeing to become aware that we do not have to be victims of our past and can learn new ways of responding. Forgiveness is love practiced among people who love poorly. It sets us free without wanting anything in return.
+ - Obviously a child can never conceive solitude if his parents aren’t living it somewhere themselves. I don’t mean that to be alone you have to get down on your knees for an hour in a yoga posture.
+ - Ministry is a very confronting service. It does not allow people to live with illusions of immortality and wholeness. It keeps reminding others that they are mortal and broken, but also that with the recognition of this condition, liberation starts.
+ - Television is obviously an enormous intruder. Quite often people say they have no time, but in fact they waste a lot of time on things that are not healthy.
+ - People who pray stand receptive before the world. They no longer grab but caress, they no longer bite but kiss, they no longer examine but admire.
+ - Precisely where I feel my poverty is where I discover God’s blessing.
+ - I was forced to enter the basement of my soul and look directly at what was hidden there, and to choose, in the face of it all, not death but life.
+ - It is not that the university as such is against spiritual formation. It is just that often the university does not know how to integrate spiritual formation within its academic disciplines.
+ - Your life is not going to be easy, and it should not be easy. It ought to be hard. It ought to be radical; it ought to be restless; it ought to lead you to places you’d rather not go.
+ - In God’s eyes the most significant is often the most hidden.
+ - As we are involved in unceasing thinking, so we are called to unceasing prayer.
+ - Writing is not just a job. It helps me to pray. It’s a way of being.
+ - People who read your ideas tend to think that your writings reflect your life.
+ - As long as we have our stories there is hope.
+ - The real question is: how can I live so that my death will be fruitful for others?
+ - A happy life is a life for others.
+ - The man who can articulate the movements of his inner life need no longer be a victim of himself, but is able slowly and consistently to remove the obstacles that prevent the spirit from entering.
+ - Prayer is the beginning and the end, the source and the fruit, the core and the content, the basis and the goal of all peacemaking.
+ - Life is a gift to be grateful for and not a property to cling to.
+ - What is forgotten cannot be healed, and that which cannot be healed easily becomes the cause of greater evil.
+ - For me the university has always been an ideal context for spiritual formation. I always felt that if you want to offer spiritual formation at the university, you can.
+ - The university has become a place that prepares you for the fights in the world.
+ - I have always felt that if I am very personal and connected with what I myself am living, my writing will transcend ecclesial boundaries.
+ - The beginning and the end of all Christian leadership is to give your life for others.
+ - I really believe that what we finally want is to know God, as God has come to be known through Jesus. Knowledge is knowledge of the heart – the Spirit – I would say. It is the Spirit in us who reveals God.
+ - Our inclination is to show our Lord only what we feel comfortable with. But the more we dare to reveal our whole trembling self to him, the more we will be able to sense that his love, which is perfect love, casts out all our fears.
+ - If you want to know anything about community, you have to realize that the contemplative side is essential. Community without retreating and quiet time never survives.
+ - Emit gratitude as though it was done.
+ - Theological formation is the gradual and often painful discovery of God’s incomprehensibility. You can be competent in many things, but you cannot be competent in God.
+ - I trust in you, Lord, but keep helping me in my moments of distrust and doubt.
+
+284 quotes

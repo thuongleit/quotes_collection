@@ -1,0 +1,59 @@
+ - Being in good physical shape is the best way to combat depression. You just have endorphins running around your body. It is the best anti-depressive that there is.
+ - My favorite way to blow off steam is to sing obnoxiously loud in the shower.
+ - Leslie, I typed your symptoms into the thing up here and it says you could have network connectivity problems.
+ - Just be comfortable with who you are.
+ - I just feel like, if I drink, I want to drink a case of beer and not two beers. Two beers doesn’t do anything for me.
+ - If you wait for things to be perfect you’ll just miss out on life.
+ - You can’t help but change when you have a kid, and for me it was just a sense of I didn’t feel like anything was missing in my life and it wasn’t. It all came at just the right time, and now if I am absent from my son, I do feel like something is missing.
+ - I have a pet lizard named Puff, five goldfish – named Pinky, Brain, Jowels, Pearl and Sandy, an oscar fish named Chef, two pacus, an albino African frog named Whitey, a bonsai tree, four Venus flytraps, a fruit fly farm and sea monkeys.
+ - People have told me I look like Gordon Lightfoot.
+ - I surprised myself with my ability to run. It’s kind of like tippy toe running. I would not be able to outrun Indominus Rex, but with enough practice I might be able to make it 40 or 50 feet before I was killed.
+ - You can pour melted ice cream on regular ice cream. It’s like a sauce!
+ - You get to a point where you have to start planning, when you cross that line where you have enough value to get someone’s movie made if you attach yourself to it, you have to be very thoughtful and have to plan. When you’re starting out, you’re willing to do anything.
+ - I always thought when I was doing more melodramatic stuff like Everwood that the directors were constantly reeling me in and stopping me from being funny. I’ve always tried to find a funny angle on things, and 99 percent of the time, it just doesn’t work.
+ - The big challenge for me was just trying to ignore the embarrassment of being an actor. It’s a pretty embarrassing thing to do. You’ve got people pointing cameras at you and hundreds of people watching you, as you’re trying to be great. And often, almost every time, you’re not.
+ - America is at war. Go eat a donut.
+ - I’ve eaten weird things through the course of my life. I’ve eaten wild game, I’ve eaten possum – possum’s no good.
+ - I loved to always get naked. I was very free, so I thought, I may as well get paid.
+ - I’ve done all kinds of cool things as an actor – I’ve jumped out of helicopters and done some daring stunts and played baseball in a professional stadium, but none of it means anything compared to being somebody’s daddy.
+ - Film is cool because it’s an hour and a half to two hours. It’s a great ride. It’s typically three acts – beginning, middle and end. It’s going on an adventure and by the end it’s all cleaned up.
+ - To go to the Oscars for ‘Moneyball’ – that was pretty amazing.
+ - I’m still fighting really hard to get any role I get. If it’s comedy, I go for the laughs. And if it’s drama, I try to tell the truth, and try to play the real stakes of whatever scenario the character’s in.
+ - I went from 220 pounds that I cut down for ‘Moneyball’ to almost 270-280 pounds for ‘Ten Year.’
+ - I lose my cell phone so much that I switch it every month or so, but Sony Ericsson is usually what I use.
+ - Nick Offerman is my hero. He just cracks me up. He’s so funny, but he’s a true actor, too – he’s bringing so much when he’s onscreen.
+ - There’s nothing funnier than a giant, grown man rollerblading.
+ - I’m sure I can’t relate to what females go through in Hollywood, but I do know what it feels like to eat emotionally. To be sad and make yourself happy with food, and then be almost immediately sad again, and then ashamed. Then, you try to hide those feelings with more food.
+ - We cannot judge of the fact, but the law upon the fact.
+ - I know that me personally I’m different than anyone else, just like our mothers all tell us we’re all very special and unique and we are, and I think if an actor can stick to trying to make the character resemble something from their own spirit it will automatically be unique.
+ - I have a lot of plants and fish and a pet lizard and Venus flytraps. I have a whole ecosystem in my room, like a running waterfall and different lights and sensors set on digital timers.
+ - With moviemaking, you can be halfway around the world for six months. So there are amazing benefits to doing TV, and with the platform change and the way it is, I would never ever rule out doing TV.
+ - Just be yourself and forget all of the stuff you read in ‘GQ’ magazine.
+ - As long as I keep getting cast, I don’t care if it’s typecast.
+ - I’m happy to try any genre, from drama to comedy and anything in between. Although, to be fair, for most of my career, I’ve been at the mercy of what people are willing to put me in.
+ - Both ‘OC’ and ‘Everwood,’ there were people on set where you learned to stay away from them on a bad day.
+ - It’s really nice to have someone who’s intelligent and articulate to talk to about what you’re doing, because it’s a big part of who we are.
+ - Perfect sandwich? Two slices of white bread, mustard, mayo and a platinum American Express card.
+ - Television is such an evolving medium.
+ - I love ‘Capote.’ Huge fan of Philip Seymour Hoffman; if he’s not my all-time favorite actor he’s definitely in my top five. I just love him so much.
+ - I would definitely not rule out doing television in the future because I think it’s a great medium for telling stories. And it can also be practically very nice for a family man to have 9 months out of the year where you’re in the city, where you’re close to your home.
+ - I’d love to work with Steve Martin. I’d love to work with Bill Murray, Dan Aykroyd.
+ - Some people fast, some people go on a cruise or visit a day spa. I get out in the woods with a rifle or a bow. That’s my release.
+ - I have some weird habits. For instance, I love beets. Show me a salad bar and I will clean them out of their beets.
+ - If one day someone came up to me and was like, ‘Look, you’re never going to act again,’ I don’t know what I would do.
+ - As an actor it’s always easier to shave or cut your hair for a role, but it’s hard to put fake hair on or grow hair for a role.
+ - I would definitely not rule out doing television, because I think it’s a great medium for telling stories.
+ - I don’t have any delusions. I don’t think I would make it through Navy SEAL training.
+ - When you look at pictures of me, the longer my hair is, the longer my facial hair is, that’s just the longer I haven’t gotten a job.
+ - You can’t have a laugh track that sort of tells the audience when to laugh and, you know, it’s difficult to find those moments.
+ - I’ve always been a little soft. I like to eat.
+ - To go to the Oscars for Moneyball – that was pretty amazing. And to be able to go work with Kathryn Bigelow – that’s going to be pretty sweet. Hopefully I don’t have to go back to being a waiter. That’s still my main goal.
+ - Celebrity is intoxicating.
+ - Actors come up and just blatantly hit on my wife in front of me and don’t even look at me.
+ - I married way out of my pay grade. I have no idea how that happened.
+ - What’s so great about TV is that you can get an opportunity to tell really rich stories, over the course of so many hours. It’s like a novel of this type of medium.
+ - The challenge is not finding the attitude, but it’s really just being open and willing to go for it and try different things, and having a director that you can trust. The attitude is not something that I intended or created.
+ - A good corroborating chain, if they fail in the last link, the whole will fall to the ground.
+ - I don’t even know how I ended up with the woman that I’m with!
+
+57 quotes

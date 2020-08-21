@@ -1,0 +1,21 @@
+ - All good work requires self-revelation.
+ - Good style, to me, is unseen style.
+ - Don’t let the difficulty of actually achieving a shot make you think that the shot is good.
+ - There are no minor decisions in movie making. Each decision will either contribute to a good piece of work or bring the whole movie crashing down around my head many months later.
+ - In drama, the characters should determine the story. In melodrama, the story determines the characters.
+ - For any director with a little lucidity, masterpieces are films that come to you by accident.
+ - There’s no such thing as a small part. There are just small actors.
+ - Work is my norm. I have mad energy, insane energy, a kind of stamina in terms of work that’s a little crazy.
+ - I only said ‘Titanic’ is unwatchable because one can not watch it.
+ - There’s a powerful magic about being a writer that I still marvel at.
+ - It’s art. It’s commerce. It’s heartbreaking and it’s fun. It’s a great way to live.
+ - There are no personal revelations other than feelings arising from the work itself.
+ - Over-length is one of the things that most often results in the destruction of the movie in the cutting room.
+ - All great work is preparing yourself for the accident to happen.
+ - If I don’t have a script I adore, I do one I like. If I don’t have one I like, I do one that has an actor I like or that presents some technical challenge.
+ - The varying physical characteristics of the actors may also necessitate changes. Sean Connery is six feet four. Dustin Hoffman isn’t.
+ - While the goal of all movies is to entertain, the kind of film in which I believe goes one step further. It compels the spectator to examine one facet or another of his own conscience. It stimulates thought and sets the mental juices flowing.
+ - The nature of the work is to prepare for a good accident .
+ - Everything becomes creative if the person doing the job is.
+
+19 quotes

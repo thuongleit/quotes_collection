@@ -1,0 +1,28 @@
+ - You haven’t lived until you died in New York.
+ - There is no such thing in anyone’s life as an unimportant day.
+ - I’m tired of hearing it said that democracy doesn’t work. Of course it doesn’t work. We are supposed to work it.
+ - Many of us spend half of our time wishing for things we could have if we didn’t spend half our time wishing.
+ - Nothing risque, nothing gained.
+ - All the things I really like to do are either immoral, illegal or fattening.
+ - A hick town is one where there is no place to go where you shouldn’t go.
+ - There’s nothing wrong with Oscar Levant – nothing a miracle won’t cure.
+ - One listens to one’s lawyer prattle on as long as one can stand it and then signs where indicated.
+ - Today just might be the best day to start seriously thinking about quitting smoking...
+ - She was like a sinking ship firing on the rescuers.
+ - The scenery in the play was beautiful, but the actors got in front of it.
+ - To all things clergic I am allergic.
+ - Babies in silk hats playing with dynamite.
+ - It comes from the likes of you! Take what you can get! Grab the chances as they come along! Act in hallways! Sing in doorways! Dance in cellars!
+ - The two oldest professions in the world – ruined by amateurs.
+ - The English have an extraordinary ability for flying into a great calm.
+ - His huff arrived and he departed in it.
+ - Los Angeles is seven suburbs in search of a city.
+ - Reading Proust is like bathing in someone else’s dirty water.
+ - A broker is a man who runs your fortune into a shoestring.
+ - Germany was the cause of Hitler as much as Chicago is responsible for the Chicago Tribune.
+ - Mrs. Patrick Cambell is an aged British battleship sinking rapidly and firing every available gun on her rescuers.
+ - I count it a high honor to belong to a profession in which the good men write every paragraph, every sentence, every line, as lovingly as any Addison or Steele, and do so in full regard that by tomorrow it will have been burned, or used, if at all, to line a shelf.
+ - It was Mrs. Campbell, for instance, who, on a celebrated occasion, threw her companion into a flurry by describing her recent marriage as “the deep, deep peace of the double-bed after the hurly-burly of the chaise-longue.”
+ - At 83, George Bernard Shaw’s mind was perhaps not quite as good as it used to be, but it was still better than anyone else’s.
+
+26 quotes

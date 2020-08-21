@@ -1,0 +1,80 @@
+ - Always deliver more than expected.
+ - Small groups of people can have a really huge impact.
+ - Always work hard on something uncomfortably exciting.
+ - You never lose a dream, it just incubates as a hobby.
+ - It’s very hard to fail completely, if you aim high enough.
+ - Especially in technology, we need revolutionary change, not incremental change.
+ - You can be serious without a suit.
+ - If you’re changing the world, you’re working on important things. You’re excited to get up in the morning.
+ - Anything you can imagine probably is doable, you just have to imagine it and work on it.
+ - You treat people with respect, they tend to return the favor to the company.
+ - If we were motivated by money, we would have sold the company a long time ago and ended up on a beach.
+ - We have always believed that it’s possible to make money without being evil.
+ - Optimism is important. You have to be a little silly about the goals you are going to set. There is a phrase I learned in college called, ‘having a healthy disregard for the impossible.’ That is a really good phrase. You should try to do things that most people would not do.
+ - Basically, our goal is to organize the world’s information and to make it universally accessible and useful.
+ - We should be building great things that don’t exist.
+ - Don’t be evil- apparently people like it better than “Be good”.
+ - Google will fulfill its mission only when its search engine is AI-complete. You guys know what that means? That’s artificial intelligence.
+ - Technology should do the hard work, so you can get on and live your life. We’re only at one percent of what’s possible, and we’re moving slow relative to the opportunity we have.
+ - You’re probably on the right track if you feel like a sidewalk worm during a rainstorm.
+ - There are basically no companies that have good slow decisions. There are only companies that have good fast decisions.
+ - We chose it because we deal with huge amounts of data. Besides, it sounds really cool.
+ - For me, privacy and security are really important. We think about it in terms of both: You can’t have privacy without security.
+ - Almost everyone who has had an idea that’s somewhat revolutionary or wildly successful was first told they’re insane.
+ - My job as a leader is to make sure everybody in the company has great opportunities, and that they feel they’re having a meaningful impact and are contributing to the good of society. As a world, we’re doing a better job of that. My goal is for Google to lead, not follow that.
+ - If we are not trusted, we have no business.
+ - Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future.
+ - Find the leverage in the world so you can be truly lazy.
+ - You need to get one thing done well, or else you don’t have permission to do anything else.
+ - You don’t need to have a 100-person company to develop that idea.
+ - Many leaders of big organizations, I think, don’t believe that change is possible. But if you look at history, things do change, and if your business is static, you’re likely to have issues.
+ - The ultimate search engine would basically understand everything in the world, and it would always give you the right thing. And we’re a long, long ways from that.
+ - Our mission is to organize the world’s information. Clearly, the more information we have when we do a search, the better it’s going to work.
+ - Every story I read about Google is about us vs some other company, or something else, and I really don’t find that interesting. We should be building great things that don’t exist. Being negative is not how we make progress.
+ - I remember turning in my first assignment in elementary school using the computer and the teachers were kind of confused that I had printed it.
+ - You know what it’s like to wake up in the middle of the night with a vivid dream? And you know that if you don’t have a pencil and pad by the bed, it will be completely gone by the next morning. Sometimes it’s important to wake up and stop dreaming. When a really great dream shows up, grab it.
+ - Computing is kind of a mess. Your computer doesn’t know where you are. It doesn’t know what you’re doing. It doesn’t know what you know.
+ - The moments that we have with friends and family, the chances that we have to make a big difference in the world or even to make a small difference to the ones we love, all those wonderful chances that life gives us, life also takes away. It can happen fast and a whole lot sooner than you think.
+ - You have to combine both things: invention and innovation focus, plus the company that can commercialize things and get them to people.
+ - You may think using Google’s great, but I still think it’s terrible.
+ - You can try to control people, or you can try to have a system that represents reality. I find that knowing what’s really happening is more important than trying to control people.
+ - You’re going to have some very amazing capabilities in the economy. When we have computers that can do more and more jobs, it’s going to change how we think about work. There’s no way around that. You can’t wish it away.
+ - Most of us carry at least one device, all the time, every day. In fact many of us would feel naked without our smartphone. It’s hardly surprising mobile search queries – and mobile commerce – are growing dramatically across the world.
+ - The Star Trek computer doesn’t seem that interesting. They ask it random questions, it thinks for a while. I think we can do better than that.
+ - How exciting is it to come to work if the best you can do is trounce some other company that does roughly the same thing?
+ - If you look at the people who have high impact, they have pretty general knowledge. They don’t have a really narrowly focused education.
+ - People are starving in the world, not because we don’t have enough food, but because we’re not organized. And computers are part of that.
+ - One of our big goals in search is to make search that really understands exactly what you want, understands everything in the world. As computer scientists, we call that artificial intelligence.
+ - If your access to health care involves your leaving work and driving somewhere and parking and waiting for a long time, that’s not going to promote healthiness.
+ - Serving our end users is at the heart of what we do and remains our number one priority.
+ - I feel like my job as CEO is always to be pushing people ahead.
+ - Excellence matters, and technology advances so fast that the potential for improvement is tremendous. So, since becoming CEO again, I’ve pushed hard to increase our velocity, improve our execution, and focus on the big bets that will make a difference in the world.
+ - We believe strongly that in the long term, we will be better served – as shareholders and in all other ways – by a company that does good things for the world even if we forgo some short term gains. This is an important aspect of our culture and is broadly shared within the company.
+ - If your business is static, you’re likely to have issues.
+ - I like going to Burning Man, for example. An environment where people can try new things. I think as technologists we should have some safe places where we can try out new things and figure out the effect on society. What’s the effect on people, without having to deploy it to the whole world.
+ - As we transition from one screen to multiscreens, Google has enormous opportunities to innovate and drive ever higher monetization. Just like Search in 2000.
+ - It really matters whether people are working on generating clean energy or improving transportation or making the Internet work better and all those things. And small groups of people can have a really huge impact.
+ - You need to invent things and you need to get them to people. You need to commercialize those inventions. Obviously, the best way we’ve come up with doing that is through companies.
+ - As a precaution, we’re making machines extremely heavy with very tiny legs.
+ - The Web is a vast collection of completely uncontrolled heterogeneous documents.
+ - Technology should do the hard work so people can do the things that make them the happiest in life.
+ - I have always believed that technology should do the hard work – discovery, organization, communication – so users can do what makes them happiest: living and loving, not messing with annoying computers! That means making our products work together seamlessly.
+ - For a lot of companies, it’s useful for them to feel like they have an obvious competitor and to rally around that. I personally believe it’s better to shoot higher. You don’t want to be looking at your competitors. You want to be looking at what’s possible and how to make the world better.
+ - We are excited about Internet access in general. With better access to the Internet, people do more searches.
+ - We understand the need to balance our short- and longer-term needs because our revenue is the engine that funds all our innovation. But over time, our emerging high-usage products will likely generate significant new revenue streams for Google as well as for our partners, just as search does today.
+ - I have over 2 million followers now on Google Plus.
+ - We have a mantra: don’t be evil, which is to do the best things we know how for our users, for our customers, for everyone. So I think if we were known for that, it would be a wonderful thing.
+ - We really care about our brand. We really want it to stand for high quality. We want people to be excited about it, for it to be fun.
+ - If you can run the company a bit more collaboratively, you get a better result, because you have more bandwidth and checking and balancing going on.
+ - Part of our brand is that we’re pretty understated in what we do. If you look at other technology companies, they might preannounce things, and it will be a couple years before they really happen, and they don’t happen in the way they said they would.
+ - We don’t have as many managers as we should, but we would rather have too few than too many.
+ - Over time, it’s becoming more and more understood by people that we’re acting in their interests. And that’s a very, very powerful thing for our brand.
+ - The “Be good” concept also comes up when we design our products. We want them to have positive social effects.
+ - The amazing thing is that we’re part of people’s daily lives, like brushing their teeth. It’s just something they do throughout the day while working, buying things, deciding what to do after work and much more. Google has been accepted as part of people’s lives.
+ - We try to, when you come to Google, fulfill that need that you have as quickly as possible.
+ - If you ask an economist what’s driven economic growth, it’s been major advances in things that mattered – the mechanization of farming, mass manufacturing, things like that. The problem is, our society is not organized around doing that.
+ - I have a simple algorithm, which is, wherever you see paid researchers instead of grad students, that’s not where you want to be doing research.
+ - It is a tremendous responsibility for us to have all the eyes focused on what we do and give people exactly what they need when they ask for it.
+ - Big companies have always needed and cooperated in areas where it made sense.
+
+78 quotes

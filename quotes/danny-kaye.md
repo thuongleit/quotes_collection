@@ -1,0 +1,24 @@
+ - To travel is to take a journey into yourself.
+ - Life is a blank canvas, and you need to throw all the paint on it you can.
+ - The pellet with the poison’s in the vessel with the pestle; the chalice from the palace has the brew that is true!
+ - The greatest natural resource that any country can have is its children.
+ - Children are the same the world over. They may have a different culture, but an ache or a laugh is universal.
+ - An unemployed jester is nobody’s fool.
+ - Thumbelina what’s the difference if you’re very small? When your heart is full of love you’re nine feet tall!
+ - Housewives spend more money than their husbands make, so that other people think their husbands earn more money than they really do.
+ - Draw a circle, not a heart, around the one you love because a heart can break but a circle goes on forever.
+ - I can’t say what Danny Kaye is like in private life. There are too many of them.
+ - I’m just an entertainer. All I want to be is funny. I never aspired to play Hamlet.
+ - When what’s left of you gets around to what’s left to be gotten, what’s left to be gotten won’t be worth getting whatever it is you’ve got left.
+ - I feel that the most rewarding thing I have ever done in my life is to be associated with UNICEF.
+ - I became an entertainer not because I wanted to but because I was meant to.
+ - I wasn’t born a fool. It took work to get this way.
+ - I believe deeply that children are more powerful than oil, more beautiful than rivers, more precious than any other natural resource a country can have. I feel that the most rewarding thing I have ever done in my life is to be associated with UNICEF.
+ - I am a wife-made man.
+ - After all is said and done, its usually the wife who has said it and the husband who has done it.
+ - Some woman are more interested in what they look like than what they are. If they more interested in what they are, they would look better.
+ - When I stopped making films, they were getting on to the more realistic films and the explicit films and all. They were depicting life as it is, and some of it was unpleasant. I gradually moved away from that.
+ - You bet I arrived overnight. Over a few hundred nights in the Catskills, in vaudeville, in clubs and on Broadway.
+ - The secret of staying fresh in a show is to remember that the audience you’re playing for that night has never seen it before.
+
+22 quotes

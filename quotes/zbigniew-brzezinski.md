@@ -1,0 +1,75 @@
+ - Shortly, the public will be unable to reason or think for themselves. They’ll only be able to parrot the information they’ve been given on the previous night’s news.
+ - The Technetronic era involves the gradual appearance of a more CONTROLLED society. Such a society would be dominated by ELITE, unrestrained by traditional values.
+ - Hegemony is as old as mankind.
+ - In early times, it was easier to control a million people than to kill a million. Today, it is infinitely easier to to kill a million people than to control a million.
+ - What is most important to the history of the world? The Taliban or the collapse of the Soviet empire? Some stirred-up Moslems or the liberation of Central Europe and the end of the cold war?
+ - Ukraine, a new and important space on the Eurasian chessboard, is a geopolitical pivot because its very existence as an independent country helps to transform Russia. Without Ukraine, Russia ceases to be a Eurasian empire.
+ - People, governments and economies of all nations must serve the needs of multinational banks and corporations.
+ - Because you can’t intervene everywhere, you don’t conclude you can’t intervene anywhere.
+ - No matter how deeply disturbing the thought of using the environment to manipulate behavior for national advantages to some, the technology permitting such use will very probably develop within the next few decades.
+ - One has to define very clearly what one’s objectives are, determine in advance how much one is prepared to pay to achieve that objective and then act accordingly.
+ - Persisting social crisis, the emergence of a charismatic personality, and the exploitation of mass media to obtain public confidence would be the steppingstones in the piecemeal transformation of the United States into a highly controlled society.
+ - America is now the only global superpower, and Eurasia is the globe’s central arena. Hence, what happens to the distribution of power on the Eurasian continent will be of decisive importance to America’s global primacy and to America’s historical legacy.
+ - We should be therefore supporting a larger Europe, and in so doing we should strive to expand the zone of peace and prosperity in the world which is the necessary foundation for a stable international system in which our leadership could be fruitfully exercised.
+ - I was confident about America and the idea that in America people can become American without masking their ethnic identity.
+ - To resolve conflicts, excessive ambitions and one’s own fears and aspirationis must be sacrificed.
+ - The scope of America’s global hegemony is admittedly great, but its depth is shallow, limited by both domestic and external restraints.
+ - History is much more the product of chaos than of conspiracy.
+ - One has to understand what the enemy is all about: the enemy’s history, the enemy’s culture, the enemy’s aspirations. If you understand these well, you can perhaps move towards peace.
+ - It follows that America’s primary interest is to help ensure that no single power comes to control this geopolitical space and that the global community has unhindered financial and economic access to it.
+ - We cannot have that relationship if we only dictate or threaten and condemn those who disagree.
+ - As in all things, it is terribly important to have a sense of priorities in what you do. And to make certain that priorities do not clash.
+ - The most immediate task is to make certain that no state or combination of states gains the capacity to expel the United States from Eurasia or even to diminish significantly its decisive arbitration role.
+ - A great deal of world politics is a fundamental struggle, but it is also a struggle that has to be waged intelligently.
+ - There is an element of delusional obsession in the French political elite’s preoccupation with the notion that France is still a global power.
+ - In the technotronic society the trend would seem to be towards the aggregation of the individual support of millions of uncoordinated citizens, easily within the reach of magnetic and attractive personalities exploiting the latest communications techniques to manipulate emotions and control reason.
+ - This regionalization is in keeping with the Tri-Lateral Plan which calls for a gradual convergence of East and West, ultimately leading toward the goal of one world government. National sovereignty is no longer a viable concept.
+ - Israel’s international position is very badly damaged. A country which started off as a symbol of recovery of a people who were greatly persecuted now looks like a country that is persecuting people. And that’s very bad.
+ - The attitude of the American public toward the external projection of American power has been much more ambivalent. The public supported America’s engagement in World War II largely because of the shock effect of the Japanese attack on Pearl Harbor.
+ - Russia’s only real geostrategic option – the option that would give Russia a realistic international role and also maximize the opportunity of transforming and socially modernizing itself – is Europe.
+ - The language of the internet is English, and an overwhelming proportion of the global computer chatter also originates from America, influencing the content of global conversation.
+ - The mistakes of the Iraq war are not only tactical and strategic, but historical. It is essentially a war of colonialism, attempted in the post-colonial age.
+ - Soon it will be possible to assert almost continuous surveillance over every citizen and maintain up-to-date complete files containing even the most personal information about the citizen...
+ - In fact, an Islamic revival – already abetted from the outside not only by Iran but also by Saudi Arabia – is likely to become the mobilizing impulse for the increasingly pervasive new nationalisms, determined to oppose any reintegration under Russian – and hence infidel – control.
+ - Look at Islam in a rational manner and without demagoguery or emotion. It is the leading religion of the world with 1.5 billion followers.
+ - The legitimacy of the leadership depends on what that country thinks of its leaders.
+ - Though Stalinism may have been a needless tragedy for both the Russian people and communism as an ideal, there is the intellectually tantalizing possibility that for the world at large it was, as we shall see, a blessing in disguise.
+ - The United States can certainly defeat North Vietnam, but the United States cannot defeat a guerrilla war which is being raged from a sanctuary through a pattern of penetration, intervention, evasion, which is very difficult for a technologically advanced country like the United States to combat.
+ - However, if Moscow regains control over Ukraine, with its 52 million people and major resources as well as access to the Black Sea, Russia automatically again regains the wherewithal to become a powerful imperial state, spanning Europe and Asia.
+ - War on terrorism defines the central preoccupation of the United States in the world today, and it does reflect in my view a rather narrow and extremist vision of foreign policy of the world’s first superpower, of a great democracy, with genuinely idealistic traditions.
+ - Sovereignty is a word that is used often but it has really no specific meaning. Sovereignty today is nominal. Any number of countries that are sovereign are sovereign only nominally and relatively.
+ - In Iraq we must succeed. Failure is not an option.
+ - We have a large public that is very ignorant about public affairs and very susceptible to simplistic slogans by candidates who appear out of nowhere, have no track record, but mouth appealing slogans.
+ - Foreign policy should not be justified through making oneself feel good, but through results that have tangible consequences.
+ - I don’t feel I was “born American,” but my homeland was denied to me after the end of World War II and I craved something I could identify with.
+ - I never exploited my father’s role in helping Jews avoid the concentration camps.
+ - It is conceivable that at some point a truly united and powerful European Union could become a global political rival to the United States.
+ - Iraq may have been a preview of that, but it’s still redeemable if we get out fast. In a war with Iran, we’ll get dragged down for 20 or 30 years. The world will condemn us. We will lose our position in the world.
+ - Lets cooperate and challenge the administration to cooperate with us because within the administration there are also moderates and people who are not fully comfortable with the tendencies that have prevailed in recent times.
+ - There is an element of paranoia in this inclination to view any serious attempt at a compromised peace as somehow directed against Israel.
+ - Nonsense! It is said that the West had a global policy in regard to Islam. That is stupid. There isn’t a global Islam.
+ - Like so many empires before it, the Soviet Union eventually imploded and fragmented, falling victim not so much to a direct military defeat as to disintegration accelerated by economic and social strains.
+ - Not to mention the fact that of course terrorists hate freedom. I think they do hate. But believe me, I don’t think they sit there abstractly hating freedom.
+ - We didn’t push the Russians to intervene, but we knowingly increased the probability that they would.
+ - The dynamic character of China’s nonstatist economic transformation, including its social openness to the rest of the world, is not mutually compatible in the long run with a relatively closed and bureaucratically rigid Communist dictatorship.
+ - American power worldwide is at its historic zenith.
+ - The Israelis have a lot of influence with Congress, and in some cases they are able to buy influence.
+ - We have actually experienced in recent months a dramatic demonstration of an unprecedented intelligence failure, perhaps the most significant intelligence failure in the history of the United States.
+ - In the long run, global politics are bound to become increasingly uncongenial to the concentration of hegemonic power in the hands of a single state. Hence, America is not only the first, as well as the only, truly global superpower, but it is also likely to be the very last.
+ - I have no patience for those in the American Jewish community who just go around slandering people as anti-Semites without realizing that what they’re doing is really trivializing anti-Semitism.
+ - The first and most important is to emphasize the enduring nature of the alliance relationship particularly with Europe which does share our values and interests even if it disagrees with us on specific policies.
+ - Moreover, as America becomes an increasingly multi-cultural society, it may find it more difficult to fashion a consensus on foreign policy issues, except in the circumstance of a truly massive and widely perceived direct external threat.
+ - Let’s face it: The Jewish community is the most active political community in American society.
+ - The Ukrainian opposition should adopt democratic unity as its main principle, and it also must have one leader.
+ - But if Russia is to be part of this larger zone of peace it cannot bring into it its imperial baggage. It cannot bring into it a policy of genocide against the Chechens, and cannot kill journalists, and it cannot repress the mass media.
+ - Henceforth, the United States may have to determine how to cope with regional coalitions that seek to push America out of Eurasia, thereby threatening America’s status as a global power.
+ - The Israelis are becoming increasingly like the white supremacist South Africans, viewing the Palestinians as a lower form of life, not hesitating to kill a great many of them and justifying this on the grounds that they are being the objects of terrorism, which is true.
+ - With the more endowed nations constrained by their own higher technological capacity for self-destruction as well as by self interest, war may have become a luxury that only the poor peoples of this world can afford.
+ - According to the official version of history, CIA aid to the Mujahadeen began during 1980, that is to say, after the Soviet army invaded Afghanistan, 24 Dec 1979.
+ - Palestinian terrorism has to be rejected and condemned, yes. But it should not be translated defacto into a policy of support for a really increasingly brutal repression, colonial settlements and a new wall.
+ - I think the US has the right to have its own national security policy. I think most Americans would agree with that. And therefore clarity on this issue is important and especially if we commit ourselves, explicitly and bindingly, to Israel’s security.
+ - The key point to bear in mind is that Russia cannot be in Europe without Ukraine also being in Europe, whereas Ukraine can be in Europe without Russia being in Europe.
+ - When it comes to Jewish sensitivity, I don’t find the proposition compelling that non-Jews have no right to comment. We all have the right to comment about each other. And I object when people say that these comments are motivated by anti-Semitism.
+ - An arc of crisis stretches along the shores of the Indian Ocean, with fragile social and political structures in a region of vital importance to us threatened with fragmentation. The resulting political chaos could well be filled by elements hostile to our values and sympathetic to our adversaries.
+
+73 quotes

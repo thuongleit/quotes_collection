@@ -1,0 +1,42 @@
+ - I’m not alone, but I am lonely without you. ~~Mary Martin
+ - Today is Valentine’s Day – or, as men like to call it, Extortion Day! ~~Jay Leno
+ - We’re all a little weird. And life is a little weird. And when we find someone whose weirdness is compatible with ours, we join up with them and fall into mutually satisfying weirdness – and call it love – true love. ~~Robert Fulghum
+ - I know of only one duty, and that is to love. ~~Albert Camus
+ - For you see, each day I love you more. Today more than yesterday and less than tomorrow. ~~Rosemonde Gerard
+ - Love is the magician that pulls man out of his own hat. ~~Ben Hecht
+ - Love is being stupid together. ~~Paul Valéry
+ - Kisses are a better fate than wisdom. ~~E.E. Cummings
+ - If you have only one smile in you give it to the people you love. ~~Maya Angelou
+ - The Eskimos had fifty-two names for snow because it was important to them: there ought to be as many for love. ~~Margaret Atwood
+ - One day you will ask me which is more important – my life or yours? I will say mine and you will walk away not knowing that you are my life. ~~Khalil Gibran
+ - Only that day dawns to which we are awake. ~~Henry David Thoreau
+ - Love seeks one thing only: the good of the one loved. It leaves all the other secondary effects to take care of themselves. Love, therefore, is its own reward. ~~Thomas Merton
+ - The arms of love encompass you with your present, your past, your future, the arms of love gather you together. ~~Antoine de Saint-Exupéry
+ - Take away love and our earth is a tomb. ~~Robert Browning
+ - Love is a smoke made with the fume of sighs. ~~William Shakespeare
+ - Love unlocks doors and opens windows that weren’t even there before. ~~Mignon McLaughlin
+ - Love is an irresistible desire to be irresistibly desired. ~~Robert Frost
+ - Romance is thinking about your significant other, when you are supposed to be thinking about something else. ~~Nicholas Sparks
+ - Love and a cough cannot be hid. ~~George Herbert
+ - Love is the silent saying and saying of a single name. ~~Mignon McLaughlin
+ - Love recognizes no barriers. It jumps hurdles, leaps fences, penetrates walls to arrive at its destination full of hope. ~~Maya Angelou
+ - I love thee to the depth and breadth and height my soul can reach. ~~Elizabeth Barrett Browning
+ - Love is the poetry of the senses. ~~Honoré de Balzac
+ - True love stories never have endings. ~~Richard Bach
+ - Now a soft kiss – Aye, by that kiss, I vow an endless bliss. ~~John Keats
+ - A friendship that like love is warm; A love like friendship, steady. ~~Thomas Moore
+ - I am weird, you are weird. Everyone in this world is weird. One day two people come together in mutual weirdness and fall in love. ~~Dr. Seuss
+ - The hours I spend with you I look upon as sort of a perfumed garden, a dim twilight, and a fountain singing to it. You and you alone make me feel that I am alive. Other men it is said have seen angels, but I have seen thee and thou art enough. ~~George Edward Moore
+ - Sympathy constitutes friendship; but in love there is a sort of antipathy, or opposing passion. Each strives to be the other, and both together make up one whole. ~~Samuel Taylor Coleridge
+ - Happy Valentines Day to those who have found love, in whatever shape or form, and to those who are still hunting, don’t give up. If you feel bad, send yourself a card. You must be worth it. ~~Jeanette Winterson
+ - What the world really needs is more love and less paper work. ~~Pearl Bailey
+ - As soon go kindle fire with snow, as seek to quench the fire of love with words. ~~William Shakespeare
+ - Love is not love that alters when it alteration finds. ~~William Shakespeare
+ - Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another. ~~Thomas Merton
+ - Love is a game that two can play and both win. ~~Eva Gabor
+ - When I have learned to love God better than my earthly dearest, I shall love my earthly dearest better than I do now. ~~C. S. Lewis
+ - How can a woman be expected to be happy with a man who insists on treating her as if she were a perfectly normal human being. ~~Oscar Wilde
+ - We don’t believe in rheumatism and true love until after the first attack. ~~Marie von Ebner-Eschenbach
+ - Love is metaphysical gravity. ~~R. Buckminster Fuller
+
+40 quotes

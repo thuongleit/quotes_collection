@@ -1,0 +1,31 @@
+ - Believe it and it will happen.
+ - If you’re not the one cooking, stay out of the way and compliment the chef.
+ - This is who I am. I’m not perfect. I don’t want to try to be perfect.
+ - I have the best memories as a kid eating ice cream. It was a family tradition that I had with my father. It was nice.
+ - My hobbies and leisure activities include cars and golf.
+ - The team that is the most focused and executes the best is the team that wins. That’s usually the team that can handle the pressure of the situation.
+ - German women love American men. That’s why a lot of American servicemen go to Germany – and never come back.
+ - Memorizing a playbook is like memorizing a script. When they change the script at the last minute it’s like changing a play in a game.
+ - Tim Lewis is great, he’s a great coordinator.
+ - That’s one of the great things about Thanksgiving: Football’s on!
+ - Few people know that I grew up in Germany and that my family still lives there.
+ - The fact that we’re in the playoffs doesn’t mean anything to us, to be honest with you. Hopefully, we can accomplish our goal of going into the playoffs on a winning note.
+ - When I finish playing football, I would like to work with kids and sleep!
+ - We’re sympathetic, but once you step on the field, football’s football.
+ - My craziest ambition is to take John Madden’s job and salary.
+ - Well, I’ve been a fan of videogames all my life.
+ - As the game gets bigger, it get bigger for the players.
+ - So I’d rather have a defense that’s successful where everyone’s comfortable in their positions.
+ - I always have a lot of personal goals, but primarily my main goal each year is to obviously win a Super Bowl.
+ - I started playing Madden back in 1993 because that was the first year I actually made it into the game and that was a big thrill. When you’re in Madden, you’ve made it, baby.
+ - I definitely believe in marriage.
+ - My goal had been to win a championship, work toward the Hall of Fame, have my jersey retired by the team and I’d go in as a lifelong New York Giant, but I’m now resigned to the fact that this won’t happen.
+ - I think this can be a championship team. But we do have to take it one game at a time. You can’t look at the end of the road before you get the next foot in.
+ - All camps are hard, that’s what they’re intended to be. They make you focus when you’re tired, when you don’t feel like doing things, and to see how long you can retain and pay attention.
+ - Camp is always all business.
+ - My ultimate goal is for that next generation coming up, who didn’t see me play, go, ‘Oh, he used to play football?’
+ - When it comes to the camera, I can do my thing. But I’m bashful.
+ - With the players Madden is definitely king and that’s probably why it’s been one of the top selling games all these years and will probably continue to be.
+ - At the same time, it makes me feel like I have to prove myself to the new guys coming in as well as prove myself to the coaching staff, which is a good bit of motivation for me.
+
+29 quotes

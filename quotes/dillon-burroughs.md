@@ -1,0 +1,64 @@
+ - Live today the way you want to be remembered tomorrow.
+ - God is never late and rarely early. He is always exactly right on time – His time.
+ - When we realize the shortness of life, we begin to see the importance of making every moment count.
+ - Don’t settle for helping those who will help you in return or doing a good deed for others to see. Help others without expecting anything back. Even if nobody else cares, God will notice.
+ - We are not saved by good deeds; we are saved for good deeds. Jesus transforms us to transform others.
+ - The church is not a campus but a community. Pastors are not CEOs; they are shepherds.
+ - Our problems may tower over us, but God towers over our problems.
+ - We don’t earn God’s love; we receive it. We don’t work for His approval; He approves us.
+ - You may not be able to measure God’s love, but you can certainly experience it.
+ - To delight in the law of the Lord is to find our source of joy outside of ourselves.
+ - Our God is known for His compassion for the needy; let us be known for it as well.
+ - The true test of faith is how we treat those who can do nothing for us in return.
+ - God’s strength makes us strong; His comfort comforts us. With Him, we no longer run; we rest.
+ - We may not have the ability to change all of the world’s wrongs, but we can make a difference where we are.
+ - Trust is tough. Once trust has been broken by multiple people on multiple occasions, believing in anyone or anything becomes increasingly difficult. Much of the skepticism of our world can be traced back to broken trust.
+ - The problem with comparison is that you always feel either better than someone else or worthless compared to someone else.
+ - Let us live not only to serve God ourselves; let us live to help our children and their children live for God.
+ - How you live today has the potential to impact all eternity.
+ - Each of us has our own specific vocation, a sacred journey prepared by the Creator of the universe.
+ - Sometimes you are the answer to your own prayer.
+ - God is calling you to change the world one life at a time and one small step at a time. Begin today where you are.
+ - Safety comes in our nearness to God, not in our distance from our enemies.
+ - God saves us because He loves us. It has nothing to do with our goodness or nobility, our achievements or agility. Our salvation depends completely upon our Savior.
+ - Jesus came to give us life. We don’t have to hang on a cross like he did. For him, it was a sacrifice. For us, it is a gift.
+ - There is no secret formula – only a life committed to a close walk with God.
+ - In sharing how God is changing our lives, we find the lives of others changed as well.
+ - The Bible’s message is that you matter to God. Our response is that God should matter to us.
+ - Accountability only works if you want it to.
+ - Christianity is anything but safe. Jesus made clear that trouble and persecution stood in the future for His followers.
+ - Many overlook the fact that Jesus was homeless. He did not only teach the poor; He lived among them.
+ - The Lord watches over us every moment of every day. He is there – and He cares – about every step and every breath.
+ - The actions you take today not only impact you; they influence generations. Every matter matters for eternity.
+ - Believers may come from different cultures, countries, or customs, but we serve one God who unites us all.
+ - Even if God never did another good thing in our lives, we could spend the rest of this life praising Him for what He has already done.
+ - We often forget that calling for peace is the most courageous act we can take. It’s easy to call for revenge, to claim injustice, and to launch an attack. It’s much more difficult to forgive, to call for peace, to lay down weapons.
+ - We must not simply desire God; we must live in total dependence.
+ - Let us not take what we eat for granted; let us view our meals as an opportunity to give our Lord praise.
+ - If we are to be blessed, we must pursue the Giver of blessings.
+ - Righteousness and generosity are inseparable. The person whose heart longs for God also longs to give to others.
+ - Much of life appears mundane at the time. Yet in God’s providence every moment includes significant details arranged by His divine hand.
+ - God’s love for others does not stop at the border; neither should ours.
+ - Let us not see today’s troubles as a reason to give up; let us see them as an opportunity for God to deliver.
+ - Our deeds will not cause God to love us more; our sins will not cause God to love us less.
+ - True compassion sees each person as a brother or sister and acts accordingly.
+ - The emphasis in Scripture is not the amount we give, but the attitude with which we give.
+ - The response to stress is not less time in God’s Word, but more.
+ - No worldly pursuit compares to the joy of experiencing the change of one soul from death to life.
+ - God has done more than I could ask or even imagine on more occasions than I could ever recount. His ways are higher than my ways. My ideas simply cannot compete with his.
+ - Our response to temptation reveals the substance of our faith.
+ - God’s road for us may not be one that appears successful from our human vantage point, yet serves as part of his divine plan to fulfill his purposes in our lives.
+ - Change the world today. Start with the next person you meet.
+ - The solution to our human frailty is not to try harder, but to turn Godward.
+ - We may not understand why certain things occur in our lives, but we understand who to run to when they do.
+ - The applause of the audience is short-lived. When calls resound for an encore, we are called to direct our attention to our Master.
+ - What if every church in America had a ministry to stand against modern slavery?
+ - The poor are not a problem but rather an opportunity to show unconditional love.
+ - The end of the rope stops in the palm of God.
+ - Be willing to be unliked and ridiculed in order to speak the words of the One who matters most.
+ - Whether we live in poverty or prosperity, we can still live generously.
+ - When others doubt the power of Jesus, be the one who asks Him to perform the impossible. He often will.
+ - Atheism is not a matter of the mind; it is a matter of the heart.
+ - When we ask God to transform those who oppose us, we are also asking God to transform us.
+
+62 quotes

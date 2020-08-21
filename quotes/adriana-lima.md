@@ -1,0 +1,40 @@
+ - Don’t try to be what you’re not. If you’re nervous, be nervous. If you’re shy, be shy. It’s cute.
+ - I won’t cry for you, my mascara’s too expensive.
+ - I don’t like fights. I don’t like aggressive people.
+ - I wouldn’t say it’s competitive. I think everyone has their time. Gisele is having her time, and Shirley had her time, and maybe I will have my time.
+ - I believe love just happens once. You can be mistaken, you can think you are in love, but after a while you discover that youre really not. Real love is different.
+ - If you’re comfortable in your own skin, you will feel beautiful – and look beautiful to others, too.
+ - A man needs to be polite, not just to me but to everyone. I watch that. How does he treat the waiter? How does he treat the coat-check girl? How does he treat the driver?
+ - I just think they’re really insecure about themselves sometimes. I know all the girls, but we all work a lot and don’t have time to hang out together. They’re all really nice; I’ve never had a problem with any model.
+ - I like jealous men. I love jealousy. I do.
+ - Be sure what you want and be sure about yourself. Fashion is not just beauty, it’s about good attitude. You have to believe in yourself and be strong.
+ - Here in the big city people spend their time thinking about work and about money; they don’t give some value to friendships and it can be depressing.
+ - Brazilian women are taught to take care of themselves. They start their beauty routine at a young age, which is the key to aging beautifully.
+ - I think everyone is a little egocentric, but when I help someone I lose 0.01% of my ego.
+ - I’m a teenager, but I’m independent – I have my own apartment, I have my own life. And I think I have learned more than any of those teenagers have in school. I learned to be responsible, leaving my family and coming here alone.
+ - If I am not moving I get bored very easily.
+ - Fashion is about good energy. It’s about feelings. That’s what I have to give the people, good energy and good feelings.
+ - I missed out on everything. Sometimes on the street I see teenagers hanging out and going to the movies, going to concerts, and I get so jealous.
+ - I eat a balanced diet. The secret is to watch your portions, but I also work out a lot. Working out a lot isn’t necessary, but I am very active, and my body can endure intense workouts.
+ - When I get older, I don’t think I’ll like to have wrinkles, or a big jelly belly. I cannot have it.
+ - In Brazil, there isn’t just one beauty ideal. There’s a lot of emphasis on a woman’s natural beauty – but of course, Brazilian women love expressing their beauty through makeup.
+ - If one day I have a daughter and my daughter wants to be a model, I would never let her!
+ - Every work has the bad side, and people will be mean to you, and when you’re young, you don’t know how to defend yourself.
+ - Younger guys are just too jealous.
+ - I love cakes. Chocolate and coconut cakes. I love that combination!
+ - It’s wrong for a guy to have no personality, no heart. Because I don’t care about style or money.
+ - Modeling is a tough job, your co-workers are your rivals, it really puts a damper on your perspective of other girls.
+ - I’ve never been to the gym. I do nothing.
+ - I love going to work out now. It gets out aggression and my trainer really shakes it up so I don’t get bored.
+ - I used to be very shy. When I first started, I had to go to a casting, and I had to go in a bikini. I thought I was too skinny. But I went in and got the job! And that’s how I started.
+ - I like to go to the movies or read.
+ - I would like just one time to be on the cover of Italian Vogue.
+ - My favorite designer is Christian Lacroix, not just because his clothes are amazing and I love them, but because he’s so nice. When I did his fashion show, he was the first one to arrive there and he helped everyone.
+ - I didn’t know anything about fashion. I couldn’t believe it when I got here. I don’t know how I’m sitting here right now speaking English.
+ - You don’t have to have an attitude if you’re famous.
+ - I was in a fashion show and I had on a strapless top. When I got to the end the top was down.
+ - I was so embarrassed about mispronouncing words. I just knew how to smile.
+ - If you look around Brazil you see pregnant women everywhere. Here you don’t see that as much. There the only thing they do is babies, babies, babies! Especially the poor families.
+ - Be sure what you want and be sure about yourself.
+
+38 quotes

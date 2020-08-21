@@ -1,0 +1,45 @@
+ - Architecture is my work, and Ive spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.
+ - Life is more important than architecture.
+ - There is no reason to design buildings that are more basic and rectilinear, because with concrete you can cover almost any space.
+ - It is not the right angle that attracts me, nor the straight line, hard and inflexible, created by man. What attracts me is the free and sensual curve – the curve that I find in the mountains of my country, in the sinuous course of its rivers, in the body of the beloved woman.
+ - For me beauty is valued more than anything – the beauty that is manifest in a curved line or in an act of creativity.
+ - Surprise is key in all art.
+ - What attracts me are free and sensual curves. The curves we find in mountains, in the waves of the sea, in the body of the woman we love.
+ - Camus says in ‘The Stranger’ that reason is the enemy of imagination. Sometimes you have to put reason aside and make something beautiful.
+ - The architect’s role is to fight for a better world, where he can produce an architecture that serves everyone and not just a group of privileged people.
+ - My work is not about ‘form follows function,’ but ‘form follows beauty’ or, even better, ‘form follows feminine.’
+ - The artistic capability of reinforced concrete is so fantastic – that is the way to go.
+ - We have to have dreams, even if they never come true.
+ - Architecture is invention.
+ - Today, architecture is invention. It isn’t enough to just be rational – It must also be beautiful.
+ - My architecture is easy to understand. And enjoy. I hope it also is hard to forget.
+ - When students leave college, they are like children who know nothing about the problems of life, and don’t have a political stance.
+ - We need to feel that life is important; we need that fantasy so we can live a little better.
+ - Architecture was my way of expressing my ideals: to be simple, to create a world equal to everyone, to look at people with optimism, that everyone has a gift. I don’t want anything but general happiness. Why is that bad?
+ - It was the drawing that led me to architecture, the search for light and astonishing forms.
+ - My ambition has always been to reduce a building’s support to a minimum. The more we diminish supporting structures, the more audacious and important the architecture is. That has been my life’s work.
+ - I pick up my pen. It flows. A building appears. There it is. There is nothing more to say.
+ - When you have a large space to conquer, the curve is the natural solution.
+ - It is not with architecture that one can disseminate any political ideology.
+ - Curves are the essence of my work because they are the essence of Brazil, pure and simple.
+ - The challenge of a cathedral is very good for architectural inventiveness.
+ - Right angles don’t attract me. Nor straight, hard and inflexible lines created by man.
+ - I am a Brazilian before I am an architect. I cannot separate the two.
+ - Architecture does not change anything. It’s always on the side of the wealthy. The important thing is to believe that it can make life better.
+ - A church is something very beautiful. It is nice when people feel happy in it. But I am not a religious man. Look at us, and then at the infinity of space. We are rather small insignificant creatures, wouldn’t you say?
+ - Architecture will always express the technical and social progress of the country in which it is carried out. If we wish to give it the human content that it lacks, we must participate in the political struggle.
+ - Here, then, is what I wanted to tell you of my architecture. I created it with courage and idealism, but also with an awareness of the fact that what is important is life, friends, and attempting to make this unjust world a better place in which to live.
+ - When I was very little my mother said I used to draw in the air with my fingers. I needed a pencil. Once I could hold one, I have drawn every day since.
+ - I search for surprise in my architecture. A work of art should cause the emotion of newness.
+ - Sometimes I lose a whole morning waiting on journalists and other people who look for me. But I always find some time for reading, talking to my friends and feeling what is happening in this world.
+ - Humanity needs dreams to be able to survive the miseries of daily existence, even if only for an instant.
+ - I was attracted by the curve – the liberated, sensual curve suggested by the possibilities of new technology yet so often recalled in venerable old baroque churches.
+ - I have always accepted and respected all other schools of architecture, from the chill and elemental structures of Mies van der Rohe to the imagination and delirium of Gaudi. I must design what pleases me in a way that is naturally linked to my roots and the country of my origin.
+ - I like talking to priests, to Catholics. Everyone has their beliefs.
+ - I think of myself as no more than 60. What I could do at 60, I can still do now.
+ - The rule is the worst thing. You just want to break it.
+ - Of course, I have given my engineers some headaches over the years, but they go with me. I have always wanted my buildings to be as light as possible, to touch the ground gently, to swoop and soar, and to surprise.
+ - Turning 102 is crap, and there is nothing to commemorate.
+ - I had some good opportunities. I was lucky to have had the chance to do things differently. Architecture is about surprise.
+
+43 quotes

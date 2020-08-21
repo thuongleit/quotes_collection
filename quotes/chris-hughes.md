@@ -1,0 +1,34 @@
+ - I was trying to figure out how to use the skills I had developed in the world of social change.
+ - Use your own experiences and pain points to identify an opportunity. Be arrogant thinking you can do it better than others.
+ - You need to be surrounded by good advisers, but you also need to trust your instinct.
+ - My real big Internet claim to fame is the fact that I was first to jailbreak the iPhone.
+ - I believe that the demand for long-form quality journalism is strong and I think that despite all of the changes in technology over the past few years, people still want in-depth, rigorous reporting.
+ - As a child I wanted to become an architect.
+ - I went to boarding school Southern, religious, and straight, and I left boarding school not being at all religious and not being straight.
+ - People are doing amazing things right now on the Web.
+ - Many of us get our news from social networks, blogs, and daily aggregators.
+ - Buzz is not what I am looking for.
+ - I don’t really know what ‘community’ means. And I never use that word.
+ - Five to 10 years from now, if not sooner, the vast majority of ‘The New Republic’ readers are likely to be reading it on a tablet.
+ - I fundamentally believe that people have a genuine desire to be positively engaged in the world around them.
+ - The more connected that individual is to an issue they care about, the higher probability there is they will stay involved over a longer period of time.
+ - I think Twitter is great.
+ - By 2007, we were finally living in a culture where people get what networks are and what technology can do to connect people.
+ - I didn’t know anything about Silicon Valley.
+ - Profit per se is not my motive.
+ - People are not good at expressing their frustration. The best way to listen to the customer is through metrics.
+ - What’s really interesting is the introduction of the tablet – not just the iPad, but the Nook and the Kindle. While they aren’t going to solve all of our problems, I do think they make it easier for people to pause, linger, read and really process very important ideas.
+ - I am a person who feels compelled and then gets immersed.
+ - I’m the kind of person that needs to think things through. But when I know what I want to do, I really know.
+ - Mostly what I’m focused on is finding people who are younger who haven’t built companies before but have a good idea.
+ - I exercise most days.
+ - Anybody can be ambitious.
+ - I think there’s an important difference between the newspaper and a magazine. I view the role of the magazine as providing the deeper reporting and the thoughtful analysis to help you make sense of why that news is important.
+ - It takes time for people to get to know a cause or an organization.
+ - Maybe it is because of Facebook or something else, but I have been interested in journalism for a long time.
+ - Ads shouldn’t be in people’s way.
+ - I look up to a lot of people, but outside of my parents, I’ve never really had a mentor.
+ - I knew I wanted to do something at the nexus of what I call global development and technology.
+ - I was on significant financial aid, an only child, with parents who didn’t have much living in North Carolina.
+
+32 quotes

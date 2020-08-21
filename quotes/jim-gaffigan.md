@@ -1,0 +1,262 @@
+ - The real question is should we trust people who don’t like cheese?
+ - Kale is a superfood and it’s special power is tasting bad.
+ - My new years resolution? I will be less laz...
+ - Ever eat so much you feel sick? Isn’t that the best?
+ - When our bed is made, it’s covered in 40 pillows-like we’re stockpiling ammo for the global pillow fight.
+ - I’m not a foodie; I’m an eatie. I don’t have anything against foodies. I just don’t have the time or the interest to do that much research.
+ - I’m definitely hesitant wearing shorts during the summer. Like for a pale person, you know, summer – everyone in the world is so excited for summer, but pale people, we’re just like, oh no.
+ - I was looking at a bottle of water; they have nutritional facts printed on the side. You know, I’m no chemist, but I have a rough idea what’s in water.
+ - I like to think of bread as really bland cake.
+ - Once you identify yourself as believing something, you open yourself to ridicule.
+ - The Pearly Gates. Am I the only one who finds it odd that Heaven has gates? What kind of neighborhood is Heaven in?
+ - I’ve never eaten a Hot Pocket and then afterwards been, “I’m glad I ate that.” I’m always like, “I’m gonna die! I paid for that? Did I eat it or rub it on my face? My back hurts.”
+ - I only dated one Asian girl, but she was very Asian. She was a panda.
+ - Whenever you correct someone’s grammar just remember that nobody likes you.
+ - Bacon bits are like the fairy dust of the food community.
+ - I’m bald, blind and pale. I’m like a gigantic recessive gene.
+ - Lean Pockets, I don’t even wanna know what’s in those. I wonder what the directions are on a box of Lean Pockets: ‘Remove from box, place directly in toilet.’ Flush Pocket!
+ - I try to only eat animals that are vegan. I’m probably the opposite of a vegan.
+ - You think Jesus ever tried to talk God out of some of that stuff? ‘Instead of that whole crucifixion, how about we do a big fundraiser!’
+ - Bacon’s the best. Even the frying of bacon sounds like applause.
+ - Other people’s children’s birthday parties are the most joyful events you will ever resent having to attend.
+ - How’d we come up with the robe? Was some guy just like, ‘Hey, I’ve got an idea! Why don’t we make a coat out of a towel? You can have a little belt that goes around. You could dunk the belt in the toilet! Have a toilet belt.’
+ - Smiling babies should actually be categorized by the pharmaceutical industry as a powerful antidepressant.
+ - My children have made me a better man, which is – in the end, that’s probably more important than two more comedy specials or being in better shape.
+ - All I want to do is be a good dad, but I’m pretty bad at it.
+ - Ironically, to my children, bedtime is a punishment that violates their basic rights as human beings.
+ - Don’t you expect a rainbow coming out of the tub of bacon strips at the end of the buffet line?
+ - I would say my return to my faith is – it’s a very personal thing.
+ - I’ve been outed as a Christian.
+ - You wanna know how good bacon is? To improve other food, they wrap it in bacon.
+ - Meredith Baxter Birney gets beaten by a rod, in the Lifetime Original, Rod.
+ - Gyms are always packed. The only machine available is the one that simulates the gynecological exam. You know, the Sharon Stone machine.
+ - Babies, they learn how to walk and they are already trying to run away. You can’t reach the doorknob, you only know us, think it through.
+ - What exactly are the ingredients of Ranch dressing? Mayo and disappointment?
+ - You ever look for the remote control, but you can’t find it, so you just decide, “Ah, guess I’m not watching TV. I’m not gonna take two steps and turn it on myself. I’ll go to the gym if I’m going to work out.”
+ - How dumb do I think the Americans are? I bet you we could sell those idiots water.
+ - I can’t believe we got grades in gym class. I’ve never used anything I learned in there. “All right, I’m standing in front of a room full of strangers. Based on what I learned in gym class, I will throw a red ball at a fat guy.”
+ - The only advantage to wearing glasses is that you can do that dramatic removal.
+ - My wife’s gotten really lazy, or as she calls it, ‘pregnant.’
+ - Pie can’t compete with cake. Put candles in a cake, it’s a birthday cake. Put candles in a pie, and somebody’s drunk in the kitchen.
+ - Every now and then I’ll read a book, I’ll be so proud of myself, I’ll try and squeeze it into conversation. People will be like, “Hey Jim, how ya do-” “I read a book! Two hundred and fifty pages!” “That’s great, what was it about?” “No idea! Took me three years!”
+ - Do you ever leave a message for somebody and the answering machine cuts you off, and you have to decide whether you should not call back, or call back and appear like a stalker? “Hi. It’s me again. I forgot to tell you that I’m going to kill you. Because I’m the freak who keeps calling and calling.”
+ - Lifetime is television for women. Yet for some reason, there’s always a woman getting beaten on that channel. “In a Lifetime original, Meredith Baxter-Berney gets beaten with a rod. In a Lifetime original, Rod.”
+ - You ever get a postcard, you get so excited you don’t even read it! “Hey I got a – who cares.”
+ - It took me a long time to understand not to get caught up in other people’s expectations. It really comes down to creative fulfillment. It took me a while to realize I don’t want to just be on a show to be on a show.
+ - I like bowling. It’s just one of those things where I can do so many jokes about it because I do know bowling. Somebody once said, “The whitest things in the world are Jim Gaffigan and bowling.”
+ - I saw this college team bowling championship. Each team had their own coach. What kind of strategy advice is a bowling coach giving? “You know what? This time Timmy, I want you to knock down all the pins.” “You sure?” “Trust me. Just do it son!”
+ - You ever read a book that changed your life? Me neither.
+ - Isn’t it strange – when you’re single, all you see is couples, and when you’re part of a couple, all you see are hookers.
+ - I’m not saying that McDonald’s gift certificates caused the obesity epidemic, but in retrospect, the timing is kind of suspicious.
+ - I’m kind of like a guy who’s missing a little bit of the guy gene. Like, I love steak, but the notion of golfing is the last thing I would want to do. I love women, but I’m also a mama’s boy, and some of my best friends are women. So I’m kinda half guy’s guy.
+ - There is the vegetarian Hot Pocket for those of us who don’t want to eat meat, but would still like diarrhea.
+ - Raising kids may be a thankless job with ridiculous hours, but at least the pay sucks.
+ - What kind of life are you leading where you consider ketchup fancy? “Well, we ain’t rich folk, but on special occasions, I’ll break out the ketchup. Grandma’s birthday, make her feel special”
+ - You can’t tell me the success of Kevin Bacon isn’t somehow tied to his name. You’re not going out to see a Kevin Hot-Dog movie.
+ - It’s strange how interesting your dreams are, but when someone tries to tell you their dream you’re just like “WHATEVER! Why don’t you send me an e-mail so I can delete it?”
+ - Imagine you’re drowning, and someone hands you a baby.
+ - We’re never satisfied when it comes to food. ‘You know what’d be good on this burger? A ham sandwich. Instead of a bun, let’s use two donuts. That way we can have it for breakfast. Look out McGriddle. Here comes the donut-ham-hamburger!’
+ - Weight Watchers says nothing tastes better than thin feels. I can think of a thousand things that taste better than thin feels.
+ - One of the benefits of eating salad is that you can eat tons of it and never be satisfied.
+ - Besides hot pockets keeps introducing new products every 10 minutes so I always have new stuff on the topic.
+ - It’s not as if ten years ago, we were like, ‘I wish I could take low quality photos of my dessert.’
+ - After you eat a Hot Pocket, Everything will taste like rubber for a month!
+ - I am originally from Indiana. I know what most of you are thinking: Indiana – mafia.
+ - I’ve been doing stand-up for so long, I think 19 years, that I love topics I can also expand on. Once I identify a topic like, say, seafood, which is a big one right now, it’s like there are different kinds of tangents I can go on to build a larger chunk.
+ - As a dad, you are the Vice President of the executive branch of parenting. It doesn’t matter what your personality is like, you will always be Al Gore to your wife’s Bill Clinton. She feels the pain and you are the annoying nerd telling them to turn off the lights.
+ - I love how New York is so multicultural. I wish I was ethnic, I’m nothing. Because if you’re Hispanic and you get angry, people are like, ‘He’s got a Latin temper!’ If you’re a white guy and you get angry, people are like, ‘That guy’s a jerk.’
+ - I watch a lot of TV, I drink a lot of coffee, but you know what’s really addictive? Heroin.
+ - The DC Improv food is amazingly edible for a comedy club.
+ - I liked the idea that my character was not gonna be the typical dumb guy that I play, typically. I also loved the fact that it was dealing with kind of adult-extended adolescence, which I think is always interesting – a bunch of people that don’t wanna grow up.
+ - As an actor, you deal with so much rejection and humiliation. When the good things come around, you tend not to trust your instincts.
+ - Steakhouses sort of have this old-school nature to them; they’re like museums full of good food. It’s fun hearing the waiter share his expertise on the different cuts of beef and how they’re going to cut up your baked potato.
+ - What was the idea behind Hot Pockets? Was there a marketing meeting somewhere, ‘Hey I got an idea: How about we take a Pop-Tart and fill it with really nasty meat? You could cook it in a sleeve thing, and you could dunk it in the toilet.’
+ - Some people that work for Hot Pockets came to my Denver Paramount Theater show. They brought these hot pocket boxes the size of suit cases for me to sign. I wrote “these are WMD’s” on the boxes. The HP people seem to have a good sense of humor about all of it.
+ - Have you seen the bologna that has the olives in it? Who’s that for? ‘I like my bologna like a martini. With an olive.’ ‘I’ll have the bologna sandwich – dirty.’
+ - The appetizer is just an excuse for an extra meal. Let’s see, I will start with the eighty buffalo wings.
+ - I guess the reasons against having more children always seem uninspiring and superficial. What exactly am I missing out on? Money? A few more hours of sleep? A more peaceful meal? More hair? These are nothing compared to what I get from these five monsters who rule my life.
+ - I don’t know if I’m the husky guy, but I’m the sexy guy who’s a good kisser .
+ - The Thanksgiving tradition is, we gorge. Hey, what about at Thanksgiving we simply consume a considerable measure? However we do that consistently! Goodness. Imagine a scenario where we consume a ton with individuals who pester the heck out of us.
+ - I grew up in Sheepshead Bay.
+ - The idea of having a large family, I definitely had a romantic notion of it.
+ - I went to a Catholic University and there’s something about being a Catholic-American. You know, St. Patrick’s Day is, I’m Irish-Catholic. There’s alcoholism in my family. It’s like I’ve got to be Catholic, right?
+ - It really never came up, but I think that in present-day America, they’re – you know, and I touched on it in the initial clip – is that we are in the middle of this culture war.
+ - I think growing up in Indiana prepares anyone for a life in comedy. I do feel like there is a certain kind of self-effacing cynicism among all Hoosiers.
+ - You ever talk about a movie with someone that read the book? They’re always so condescending. ‘Ah, the book was much better than the movie.’ Oh really? What I enjoyed about the movie: no reading.
+ - I realized, in removing or rewriting these jokes, that often the jokes weren’t done or that I was using, for me, the curse words as kind of a crutch. So then I just started writing.
+ - They always give you three ketchup packets. When you go back up and ask for more, the guy handing them out always treats you like you’re taking from his personal stash. “Looks like my kids aren’t having ketchup tonight.”
+ - Thanksgiving. It’s like we didn’t even try to come up with a tradition. The tradition is, we overeat. ‘Hey, how about at Thanksgiving we just eat a lot?’ ‘But we do that every day!’ ‘Oh. What if we eat a lot with people that annoy the hell out of us?’
+ - You ever buy a book and not read it? You feel almost guilty having it up on a bookshelf. People are like, “Hey, how’s that book?” “I haven’t read it.” “Oh, did you just buy it?” “I’ve had it since high school.” “Well, can I borrow it?” “No.”
+ - If you’re a guy over 30 by yourself in the hotel pool, you automatically look like a murderer who’s just relaxing after he strangled a family. “Yeah-that dad was a tough one to kill.”
+ - No one goes into standup to make money. The frustration and rejection are just too much.
+ - It’s good to be back in New York. I have lived here ten years. I’m originally from Indiana. I know what most of you are thinking: Indiana: Mafia. But the fact of the matter is where I grew up there was something very similar to the Mafia: 4-H.
+ - Stand-up is an amazing art form, I think, because it’s all about you having complete control of the situation, but absolutely none.
+ - I love stand-up comedians. I really do.
+ - I didn’t choose to be the guy who talks about the mundane – it’s just who I am and it’s what kind of works for me.
+ - It doesn’t matter if you’re religious or not. Does anything make you feel more uncomfortable than some stranger going, I’d like to talk to you about Jesus?
+ - If only opening a Vitamin Water could be classified as working out.
+ - The reason I say I’m a horrible person is I don’t want myself to be presented as somebody who’s a great Catholic.
+ - I was raised in a family where my father was the first one to go to college.
+ - When I started stand-up – and this is in the ’90s – there was definitely people hadn’t watched decades of Comedy Central, where people are really much more educated on stand-up comedy.
+ - I grew up 45 minutes outside of Chicago.
+ - We wrote about having five kids and bringing them to church. A journalist at The Washington Post wrote this article where the headline was “The New Catholic Evangelism Of Jim Gaffigan.” And it was a bit terrifying.
+ - My whole comic persona is that of a guy who explores the id: I romanticize gluttony, I romanticize laziness, and people identify with that.
+ - I’d really like to promote my increasing consumption of bacon.
+ - My comedy is romanticized laziness.
+ - Comedians rarely have writers, and if you do it’s usually a sign of laziness.
+ - I think I grew up with the idea that God was a punishing being, constructed around rules.
+ - Comedians kind of write what comes to them. You can give yourself little assignments, but it’s what inspires you.
+ - I’d been acting and doing stand-up in New York about eight years, getting rejected, and I finally got the opportunity to do stand-up on Letterman, which holds even more importance for me. With comedians, that’s definitely the pinnacle, but being from Indiana, it was a big to-do.
+ - For a comedian to kind of catch onto something right as something’s catching on in our culture, a lot of it is luck, and you hope the joke is funny.
+ - We tend to outdo ourselves.
+ - I don’t want to get involved in the culture war. Religion’s iffy.
+ - There’s a certain balance between finding an opportunity to do what you really enjoy and getting caught up in the flattery of people wanting you to do things.
+ - But in Indiana it’s not like New York where everyone’s like, ‘We’re from New York and we’re the best’ or ‘We’re from Texas and we like things big’ it’s more like ‘We’re from Indiana and we’re gonna move.’
+ - Wouldn’t it have been weird to go to high school with the Pope? You know, somebody did, someone’s sitting at home, watching TV in Poland, they see the Pope, they think, “That guy was a jerk! He was so mean to me and now he’s Pope? I got a swirly from the Pope!”
+ - Bacon is like the opposite of medicine. It’s like, “Take that, Lipitor.”
+ - Actually, the reason I look like this is because my father was from Sweden and my mother was Elton John.
+ - I was always told that Hoosier came from when settlers in the state, when a stranger came on their property they’d say, “Who’s there? Who’s there?” So people that were from Indiana were the people that said “Who’s there?” But what do I know? I don’t read or interact with people outside the Internet.
+ - It’s amazing how email has changed our lives. You ever get a handwritten letter in the mail today? ‘What the? Has someone been kidnapped?’
+ - A lot of people are like, “You’re doing commercials?” And I honestly feel like those Sierra Mist commercials are better than a lot of sitcoms I get offered. It’s hard work, and I’m paid a lot of money, and I do it because I love the soda.
+ - I was able to make the jump to theaters without having a TV show. My passion for getting a TV show just plummeted. It was like I had already achieved what I wanted to achieve.
+ - It’s a balancing act of you feel horrible that you’re away but there is something about the road that is rather liberating.
+ - A lot of the teachings really kind of keep me grounded.
+ - There’s something that’s really fun about the challenge of making the mundane funny, too, I think.
+ - Comics write to their point of view. If you’re an exceedingly irreverent comedian, you’ve got to see where that point of view fits or produces the most funny.
+ - I worked on ‘USA Today’ as a topic for while. I tried to do something on hand chairs, chairs that look like hands. I really tried. But some topics are not truly universal.
+ - There’s something about being a parent that has, I think, made me a better comedian.
+ - I’ve been doing theaters like the Warner for about a year and we’ve found the earlier you get the tickets on sale the better idea you get on how many shows we will be doing.
+ - I love sleep. I need sleep. We all do, of course. There are those people that don’t need sleep. I think they’re called ’successful.
+ - Yeah, I am a character actor.
+ - Most single guys I know think fatherhood is terrifying.
+ - My favorite vegetable is the marshmallow.
+ - Don’t take this the wrong way but I care more and I’m a better online friend than you. I also spend way to much time online.
+ - There are a lot of good looking men on this planet. It seems like once a week someone will tell me, “I know someone who looks like you” and I don’t know what say to them except, “Tell them hi.”
+ - I always want my standup act to appeal to everybody in the room, and when I started standup, and I would see people talk about their kids and their wife, and I’d always cringe a little bit, like, ‘I can’t get a date, I don’t know what you’re talking about.’
+ - I usually don’t have a burger, a brat, and a steak but it is 4th of July. And I need the energy if I’m gonna start blowin crap up. It’s what the founding fathers would want.
+ - The hardest part of the day is all the stuff after I open my eyes in the morning.
+ - I think when my mother died, it was such a – you know, a shock to the logic that I had been raised with.
+ - Deep frying a Twinkie makes it healthy, right?
+ - The idea of being a practicing Catholic, it’s – for me, it’s like – I need a lot of practice, you know what I mean?
+ - It’s so obvious The Weather Channel is pro hurricane. Fair and balanced my ass.
+ - I don’t know what’s more exhausting about parenting: the getting up early, or acting like you know what you’re doing.
+ - That’s why when I send a postcard I quiz people. “Hey, did you get that postcard?” “Yeah, yeah yeah.” “Well what’d I say?” “Uh, you were havin-” “I was in jail”
+ - Babies should be classified as an antidepressant. It’s pretty hard to be in a bad mood around a 5-month-old baby.
+ - I like that in my audiences, there’s a lesbian couple sitting next to a Mormon family.
+ - I do want everyone to feel comfortable. That’s why I’d like to talk to you about Jesus.
+ - I spend way too much time on Facebook and MySpace to feel too uncomfortable at this. I like to think of the Internet as an effective way to waste time and time.
+ - I would say some of the food I talk about that I really enjoy, like cake and bacon, I eat a lot less than I portray in my act. But that stuff that I dislike, it’s pretty sincere.
+ - Faith is something that’s – it’s hard to articulate. It’s – there’s – it’s not based on logic.
+ - I never have free time, I don’t know about you. You ever go to the cash machine, there’s two people in line in front of you and you get kinda flustered, you’re like “Forget it! I’m not standing here for 40 seconds. I got things to do, okay?”
+ - I grew up in a Catholic family in the Midwest. And I knew people of different faiths and people that were atheists and people that were agnostic.
+ - Holidays are also an opportunity for kids to unlearn every good habit they’ve learned during the rest of the year. They don’t go to school. They get to stay up past their bedtime. They get candy and presents for doing nothing. Childhood utopia.
+ - That’s my private business. Besides, the perception is that people that believe in God are stupid.
+ - I just want to be known as funny.
+ - I don’t want people to think I believe in God.
+ - I’m a guy who comes from a small town in the Midwest. It’s not in my nature to say the most explicit things in public.
+ - There has been this belief among the Catholic community – and this – I’m no expert, this is my opinion – that cafeteria Catholics are wrong.
+ - There are some people who know who I am but there are a lot of people that have no idea who I am – which is not to say that that’s a bad thing.
+ - Oh. What if we eat a lot with people that annoy the hell out of us?
+ - I realize I look very hip hop but I’m really more emo with a definite Brazilian flavor.
+ - I am a guy who talks about bacon and escalators.
+ - I left the Midwest thinking I didn’t fit in. But when I got to New York, I realized how truly Midwestern I was.
+ - People get burned out in big families, you can even see it in the naming of children. Like the first kid, “You were named after Grandma.” The seventh kid, “You were named after a sandwich I had. Now get your brother, Reuben.”
+ - The entertainment business is such a strange, crazy perception business that you’re either given way too much respect, like people saying, “You should be the head of the sitcom!” Or you’re given no respect, where they’re like, “You should audition to be the garbage man that lives four houses down.”
+ - My wife and I, we work together. And we wrote this book, “Dad Is Fat.” And in the book, I was encouraged constantly by my editor to be more personal and talk about more personal experiences.
+ - I think when I started doing stand-up, that’s when I really tried to question everything in my belief system which is – I think a pretty important part of being a comedian is really questioning things.
+ - I would make sweet love to Don Rickles.
+ - I don’t have any delusions. I’m not a novelist – I’m a comedian who writes. I love doing the stand-up and the touring and the albums and all that, but it’s pretty amazing to go into a library and see your book there.
+ - I’m an eccentric, silly, observational guy, but I’m not gonna frighten off social conservatives.
+ - I am a guy who talks about bacon and escalators. Stand-up comedy is very much a conversation. It’s very personal, stylistically.
+ - I’d have to say Sunset Salsa. Nothing against Honey Lime, but it’s for losers.
+ - Most of my material is, it doesn’t necessarily involve a lot of editing. So even the show with the World Meeting of Families in Philadelphia, I don’t have to worry about some of the material being inappropriate.
+ - Why do you have to be out of town to write a postcard? I want a to write a postcard to my neighbor: “I still live near you!” The guy sees me go into my apartment, flips the card over, it’s just a picture of me holding a rifle.
+ - I am somebody who – my path to my faith is very kind of individual, and I don’t want to be lumped into the category of those Westboro Baptists.
+ - I never went to church when I was in college, either.
+ - The whole idea of celebrity is flattering – it helps you get into restaurants and stuff – but once you obtain some creative fulfillment, which you do on a nightly basis as a comedian, it’s hard to give that up just to be the wacky neighbor on a show.
+ - I’m much more interested in making people laugh than getting applause breaks.
+ - Anyone know if the shuttles to Hell will have Wifi? Asking for a friend.
+ - I got married. My wife changed her name. I know some women have a problem with that. But I wanted her to have my old girlfriend’s name. So call me old-fashioned, but this fella does what the Bible tells.
+ - I’m closer to Bob Newhart than Rodney Dangerfield.
+ - People need to write articles and they need to have angles in them and I’m grateful when people are doing articles, but I always say there’s not a great mystery to stand-up comedy.
+ - Television’s very much a writer’s medium, as it probably should be, but if you’re not the writer, then as the performer, you defer to that. It’s just kind of how it’s constructed. Is there some leeway? Yeah. But I also don’t want to come across as a jerk.
+ - Failing and laughing at your own shortcomings are the hallmarks of a sane parent.
+ - You can never find the right bowling ball. This one’s too heavy. This one’s good but its pink!
+ - Well my chocolate is so good I could sell it in an obnoxious prism shape.
+ - In Indiana, I wasn’t anything special. But in New York, I’ve gone out with girls with purple hair who go out with me because I’m exotic!
+ - I don’t want to pick a team. I want to make people laugh and hopefully bring some – be humorous about the human experience, you know, whether they’re people of any stripes of life.
+ - I know that Colbert could quote Thomas Aquinas and all this, but I’m somebody who, because it’s a necessity for me on a personal basis. I need it because I’m a lunatic.
+ - You could say that to the pope. I want to talk to you about Jesus. He’d be like, easy, freak.
+ - I would say that now I’m somebody who goes to church.
+ - How did we get to the point where we’re paying for bottled water? That must have been some weird marketing meeting over in France. Some French guy’s sitting there, like, “How dumb do I think the Americans are? I bet you we could sell those idiots water.”
+ - I don’t know, I find that honestly, the stand-up thing in some ways is a little bit of a cliche to carry around, because people don’t consider stand-ups really actors.
+ - I spent most of my adult life essentially agnostic or an atheist.
+ - I smoke crack. I get all my dancers together and we do a prayer.
+ - I should clarify that anyone that goes onstage and makes strangers laugh is insane. So I am insane.
+ - As I go on in standup, I keep being described as cleaner and cleaner as I do each hour, they’re like, ‘It’s unbelievable how clean,’ ‘He’s the cleanest person in the world.’ And then I’ll do shows and people will be like, ‘You’re supposed to be so clean, but you’re talking about cancer.’
+ - I’m there to make people laugh. I’m not trying to come across as sexy.
+ - My faith kind of keeps me in touch with the idea that I’m not in control of things.
+ - Hey, people who travel with their bed pillow. You look insane.
+ - I kinda expected to turn the bottle and see a recipe. “So that’s how you make ice cubes. Apparently you just freeze this stuff. Oh, but you need a tray. That’s how they trick you into it.”
+ - I lived across from a Catholic church for 15 years that I never went into. And then I got married to my wife and – you know, and now we’re going in there every other day baptizing a kid.
+ - I’ve always wanted to be an actor. I’ve never planned on the acting and the stand-up feeding each other; they’ve always been separate desires.
+ - Cancer is always funny.
+ - I believe that comedians do what they do, and then they get credit or criticism for doing it. There’s nothing planned about this.
+ - I don’t want to be a TV star for the sake of being on TV. I want to have a TV show that’s based around my comedy.
+ - My wife always asks me why I don’t make the bed. And I respond with the same reason why I don’t tie my shoes after I take them off.
+ - Oh great, socks. You know I’m dying for your sins right? Yeah, but thanks for the socks! They’ll go great with my sandals. What am I, German?
+ - I initially signed up for Twitter just to do jokes I wasn’t going to do in my stand-up routine.
+ - You know, I want to teach, but I don’t want to read?
+ - I was watching the Animal Planet. Did you know that the male seahorse has the baby? Why don’t they just call that one the female?
+ - It’s like in most parts of America, where there was industry and there is no longer; there is cynicism mixed with sarcasm and some optimism. That’s how my background influenced my comedy.
+ - I always had this romantic notion of living in New York. I just felt like, everyone could be different and weird and whatever they are in New York.
+ - I do Sierra Mist commercials not because they pay me a lot of money or because it only takes a couple of days. I do it because I have a respect for all sodas and I like to communicate that. Some people say soda, some people say pop, where I’m from in Indiana they called it breakfast.
+ - Comedy is a very lucrative business now, but when everyone first went into it, it didn’t make sense from a financial standpoint.
+ - If someone picks up one thing you’ve written, you want them to go, ‘Wow, this is pretty good.’
+ - Don’t you think it’s strange how many referees work at Footlocker?
+ - Playing frisbee with a five year old is amazingly similar to chasing after a frisbee.
+ - I’m a comedian, which is the opposite of a lifestyle that equips you to be a parent.
+ - When people look and decide they have nothing in common with me – I’m 43, balding, blond, whatever – there’s something absolutely invigorating about winning them over. Even if it’s eight people from Sweden who don’t understand what I’m talking about.
+ - I’m a big eater. I mean, a lot of my stand-up is about food, and you write about what you know, and that’s the only thing I know. I don’t know anything else.
+ - It’s kind of hard to articulate, but, like, this notion of mercy, forgiveness, was very appealing for me. It was very profound. And it had a deep impact, and I think it still does.
+ - Cookies at both of them. The cookies are probably better at Letterman though.
+ - I think I have a lot of voices in my head and I guess my inner critic is a female.
+ - I don’t think comedians make an active decision to be a certain “persona.” Comedians write the way they’re going to write.
+ - That’s not to say that I’m a well-informed Catholic. I’m still in idiot.
+ - Whenever I’m out of town for at least a week, I feel like I should write a postcard or something, but you can be a genius, you try and write a postcard you come across like a moron anyway: ‘This city’s got big buildings. I like food. Bye.’
+ - I do just want to do jokes. I don’t want to be a divisive figure.
+ - Who was the first person to walk into a harbor and say, “Whatever that horrible smell is I want to eat it”
+ - Manhattan’s probably one of the bluest parts in the country, and Indiana’s definitely one of the redder states. I have sympathy for both sides.
+ - My faith is very personal. It’s not something that I want to project on other people.
+ - In stand up, you get an awareness of how you come across, but in acting there is almost a hyper-awareness on how you might be physically perceived.
+ - You’re on stage and because stand-up comedy is one of the few meritocracies in the entertainment industry, there’s some kind of – at least for me, there’s some kind of idea of control.
+ - Babies and toddlers are mostly what I’ve been exposed to at this point. I’m hoping parenting just gets much easier after this. It does, right?
+ - The question is the primary form of communication for little kids.
+ - I do have some Catholic stuff that is done from the perspective of an ignorant Catholic. But other than that, topic-wise, there’s nothing really filthy.
+ - You didn’t question – kind of like, you would go to college. You would wear a tie to work. You would, you know, you would work for 40 years. And then you would play golf for three years, and then you would die. That was how I was raised.
+ - What’s amazing about doing movies, compared to television, there’s an ending you can see. There’s an enthusiasm to it.
+ - I was the youngest of the six kids, and to make my older siblings laugh, that was very important. I did a great impression of our dad that made them all laugh, so that gave me a lot of power within the family.
+ - Twitter allowed me to talk about parenting in short snippets and find out what I really wanted to say about it, which is that I’m a dad who had no idea what he’s doing.
+ - I think stand-up comedy is this – it’s this kind of indulgence and narcissism.
+ - If camping is so great, why are the bugs always trying to get in your house?
+ - Some of my fear and anxieties surrounding faith, I think, provides some good comedy for my act.
+ - I had some jokes that were dirty. And some of it is when I started making appearances on Conan and Letterman back in the late ’90s, I think. You had to remove the curse words, or you couldn’t do some of the more explicit jokes.
+ - I would say I’m – in the show, I’m a cultural Catholic, which is what I was.
+ - I always imagine that if I met Dr. Seuss, he would be very similar to Crispin Glover.
+ - Even when you hear about a comedian getting married, among comedians, we’re always kind of like, what are they doing?
+ - If I was on an airplane, the people in coach would know who I am. But no one in first class would know.
+ - There are people that are vegetarians that love bacon.
+ - When I’m in touch with the idea that there is a higher power and that there is, you know, other factors at work, it – it kind of quells my narcissism.
+ - There is this false perception that comedians can never be serious. It’s like from like the era of court jesters.
+ - My goal in life is to be as happy as a studio audience.
+ - It is amazing how much more amazing sleep is in the morning. You wake up and you’re like, “I stayed up to do what?! Watch Growing Pains? What was I thinking!?” But at night you’re like, “La La La La La, Hey! Growing Pains, awesome! And I’ve seen this episode. That Kirk Cameron’s always in trouble.”
+ - I wish, in some ways, I was the type of comedian who could do something blistering and topical, but I’m the guy who gets stuck in the revolving door and thinks I should write about that.
+ - For stand-up comedians that go onstage and get to write and perform and direct, and do all these things, the allure of a television show is still there but if it doesn’t offer a level of creative fulfillment, it’s oddly unappealing.
+ - I need the concept of mercy for me to have some semblance of self-admiration. So in real life, I’m probably somebody who is more devout.
+ - For me, stand-up comedy is a conversation between me and the audience. I have to keep them listening. When I’m making jokes about cake for twenty minutes, I have to make sure my audience is interested and following where I’m going.
+ - I was the youngest of six kids, so yeah, feeding myself was important, but it’s not like I was obsessed with food growing up.
+ - Comedians kind of write what comes to them. You can give yourself little assignments, but it’s what inspires you. So I feel like with food, it is a passion of mine. It’s where my sensibility rests. I love topics that are universal, and I love stuff that doesn’t alienate people.
+ - Whatever a writer gets paid for his book, it’s never enough. I think that’s true. It’s hard work. But in the end, you wrote a book. It’s something real and tangible that sits on a shelf forever.
+ - I personally have no interest in being a star or a celebrity. I want my stand-up comedy and how I think as a comedian to be recognized and successful.
+
+260 quotes

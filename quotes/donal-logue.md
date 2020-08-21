@@ -1,0 +1,48 @@
+ - The easiest and most accessible emotion is rage.
+ - I am in Ghost Rider but I’m not sure when it’s coming out.
+ - I’ve played some good villains, in the last few years. I’m good where I’m at. But it is fun playing villains, for sure.
+ - Fair or not, it always sucks when everyone wanders back from Sundance talking about how bad the movies were.
+ - I’m a professional hanger outer. I’m a super liability, too. I joke around and I’m like a hyper-active child.
+ - Follow your deepest dream, the one you had as a kid but stay focused.
+ - I remember working on movies like Gettysburg and feeling that Jeff Daniels was kind of a mentor.
+ - The desert feels Irish in a way – lonely and barren. If someone said, ‘Think of a happy place for you,’ I’d say a glacial plane near the South Pole, the wind howling, nobody in sight, a shack with a pot-belly stove and some tea.
+ - This sounds so bogus, but I would love to, at some point when my kids are in college, is just go do a whole season at the Oregon Shakespeare Festival, and do a year of plays. Most actors miss the days of live theater.
+ - I have 52 first cousins. My mom and dad were the only two to move to North America, so I’ve got deep family there, but I’m a California kid.
+ - San Diego was fantastic. I think there’s something about San Diego that is quite different than Los Angeles.
+ - I love not feeling this hydraulic pressure that you have to create this comic moment within every scene. You can just play it as it is.
+ - I wanna be the villain. Villains have fun.
+ - Then I did The Tao of Steve and that was at Sundance in 2000 where it did really well.
+ - You can judge a country by the way it treats its prisoners, and you can always judge a show by the way it treats people coming on to do these guest shots.
+ - To be honest, when you’re young and you watch The Deer Hunter for the first time, that’s when you’re like, “That’s what I want to do.”
+ - One thing that’s interesting is that whenever something starts, like the school year when you were a kid, it feels like such a significantly huge time in your life and how much life has changed. What’s surprising is how quickly it’s going by.
+ - There’s a certain kind of existential freedom that comes to people who realize that all the things that they hold onto and that they think define them, once they’re gone, there’s this new freedom to determine the way you’re going to live your life.
+ - Once a film is made and it exists, someone somewhere is going to watch it and that is kind of the magic of it all.
+ - I honestly feel like we never had a bad episode by TV standards. Every week I felt there were so many strong components of the show, especially the writing.
+ - I just personally feel like the best writing for actors exists in cable television.
+ - My mom, she’s from Ireland, coached tennis in Nigeria when she was a missionary and turned me on to it when I was young.
+ - I feel quite blessed that I can actually balance between the two worlds, because a lot of really talented actors I know end up getting set in a certain category and no one will ever buy that they can exist outside that category, even though you know full well that they can.
+ - It’s so nerve-wracking to go out into a stadium, feeling a billion eyes upon you when you mess up your touches. That’s an overwhelming environment.
+ - A college football star, by his senior year, is used to running out there with 110,000 people going nuts. They feel comfortable in that environment. To me, a set feels like that. The one thing that I do know is that, as long as I’m prepared, I know this environment and this world.
+ - I’m a huge fan of Michael Hirst, and I’m a huge fan of historical drama.
+ - I felt like Life was a great show. It was really well-written.
+ - I like that kind of stuff. I like doing speeches. I’ve been lucky because I’ve had a lot of characters, over the years, who will have three or four page speeches.
+ - I did pilots here and there but mostly I was doing little bits in movies.
+ - We own our movie and are now close to breaking even, even without finishing domestic DVD deals.
+ - I’ve been lucky enough to go back and forth.
+ - As the season progresses, it’s like the doors open up to all the different worlds that were teased about in the pilot.
+ - Young actors are pretty fantastic. I can’t even imagine doing stuff like that when I was a kid.
+ - It didn’t get into Sundance although I showed a rough cut which is a mistake to all filmmakers out there.
+ - No, I’m not a comic book guy. I’m pretty fascinated with the subculture though and I do think that the world of comic books is such a natural transition into film.
+ - I think in a weird way that the entertainment industry is strangely more brutally honest than any other.
+ - My characters are always utterly sympathetic to me.
+ - I’d have to say my favorite thing about working on the show, and something that might be intriguing to other people, is that it’s just such an amazingly welcoming environment to work in.
+ - I’m a huge fan of things like The Wire and The Shield.
+ - I have to say that it was a thrilling ride to be on ‘Terriers.’ It was this odd circumstance where it was really loved by the people it was loved by, but it didn’t do well. In fairness to FX, they were just so generous in keeping it on the air the whole year.
+ - Every once in awhile, when you can see shades of the person’s real interior life, I think that’s interesting.
+ - Well Bill Martin and Mike Schiff were the creators and they knew we had to do a family show. Everybody came at it from the angle of having been a kid and a teenager.
+ - There was something about that form of comedy that’s just difficult. It never really felt like you could just fully commit to all the colors that you carry with you.
+ - It’s nice to be in a world where you’re not going to exhaust storylines with potential villains.
+ - It’s always surprised me that the most successful and really amazing shows are also the happiest environments, and very welcoming.
+ - I did a pilot for HBO, called One Percent, that they didn’t end up picking up, but it was a pretty intense and dramatic piece.
+
+46 quotes

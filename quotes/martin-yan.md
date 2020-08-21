@@ -1,0 +1,39 @@
+ - When you enjoy what you do, work becomes play.
+ - I live a very low-key life.
+ - I enjoy the quiet life.
+ - People who don’t travel cannot have a global view, all they see is what’s in front of them. Those people cannot accept new things because all they know is where they live.
+ - Soy sauce is really a multi-purpose seasoning.
+ - If I could only have one type of food with me, I would bring soy sauce. The reason being that if I have soy sauce, I can flavor a lot of things.
+ - I don’t like to waste anything. Any food left over from the night before is always eaten the next day.
+ - When you have a good stock, you can make a good soup.
+ - I’ve never considered myself a celebrity or even part of the entertainment business. I’m a cooking teacher.
+ - I think a lot of times it’s not money that’s the primary motivation factor; it’s the passion for your job and the professional and personal satisfaction that you get out of doing what you do that motivates you.
+ - A lot of people don’t enjoy their job, they may even hate it, but I am lucky enough to be able to make a living through my passion.
+ - Happiness is within. It has nothing to do with how much applause you get or how many people praise you. Happiness comes when you believe that you have done something truly meaningful.
+ - I normally don’t eat junk food.
+ - Some people never contribute anything positive to society, they may even drain our resources, but most of us try to do something better, to give back.
+ - I remember when I was in college, I used to watch Julia Child’s cooking show during dinner and joke with my roommates about becoming a TV chef.
+ - Chinese culture has a lot of virtues that are tremendously valuable to not only us as Asian-Americans, but also the world in general.
+ - Why is America such a great country. It is because we stand united.
+ - You can do almost anything with soup stock, it’s like a strong foundation. When you have the right foundation, everything tastes good.
+ - Because normally with Western cuisine, you’ll serve vegetables separate from the meat, so kids will eat the meat and never touch the vegetables.
+ - I can represent my culture while helping not only the Chinese-American community, but also the community at large.
+ - I am just a normal professional with a great job and a great life.
+ - In general I love to eat anything. I enjoy anything that is well prepared, a good spaghetti, lasagna, taco, steak, sushi, refried beans.
+ - I also have a lot of preserved foods, things that will keep for a long time like dried fish, seaweed or lotus seed.
+ - The only thing that counts is if you know how to prepare your ingredients. Even if with the best and freshest ingredients in the world, if your dish is tasteless or burnt, it’s ruined.
+ - Just like if you were brought up on a farm, you would most likely carry on your father’s business as a farmer; I was brought up in the kitchen and ended up becoming a chef.
+ - As long as the food is well prepared and not overdone, I think it tastes good. It doesn’t matter if it’s Chinese, Japanese, anything.
+ - So when I do Chinese cooking, I mix everything together, then the kids have to eat their vegetables. They won’t have the patience to pick them out.
+ - When I retire or pass away, I will be able to look back and say that this has been an exciting life. That’s all that matters.
+ - First of all, I can’t really claim to be a great chef.
+ - The problem with a lot of Chinese is that they put up divisions between Taiwanese, Hong Kong natives, mainlanders. We are never united. I really hope that the Chinese can be more united.
+ - Well, you know, if you get into the profession because you think you can make a lot of money, you can never become successful.
+ - You don’t have to show people how successful you are.
+ - I have a lot of cooking tools. In fact I have a whole drawer full of knives. Cooking tools, especially cutlery, are my toys.
+ - Anyone that has come to America past the age of eighteen will be able to understand when I say that you can never shake your accent.
+ - The hoopla, the applause, the praises have never excited me.
+ - I think being famous is more of a hindrance, a constraint, than just letting yourself be free.
+ - At thirteen, when I arrived in Hong Kong after leaving China, I made a living by working in a restaurant.
+
+37 quotes

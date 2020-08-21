@@ -1,0 +1,89 @@
+ - Whatever you hear at the barber shop, stays at the barber shop.
+ - They say if you don’t have your health you ain’t got nothing, but the truth is you ain’t got nothing if you don’t have no one to worry about your health.
+ - If you mess something up, remember who got you there. Don’t be pointing fingers, even if finger-pointing is called for. Only one you got to blame is your own self.
+ - Suffering is a good teacher. It keeps you in its grip until you’ve learned your lesson.
+ - Sometimes when you lose you win, son. Failure is just life’s way of preparing you for success.
+ - You can’t change what happened. Just like you can’t change the future by worrying about it. You just have to keep moving.
+ - My comedy comes from pain. I can’t stand to see someone hurting.
+ - Okay, first rule of this carpool. No breaking wind in my car. The only gas that Bernie Mac want to be smelling is unleaded.
+ - I can act. I’ve been acting for a long time, but like anything else, don’t nobody owe you nothing. You’ve go to pay your dues. You go from A to Z; you don’t go from M to Z.
+ - My daughter was a beautiful child.
+ - It took me a long time to get to where I’m at, in my career and as a man. I was going through my trials and tribulations in life, and it gave me the strength to tackle things that have come my way.
+ - Bernie Mac don’t sugarcoat.
+ - Whatever success I’ve had, I always like to top it.
+ - Making people laugh is what I’ve been doing since I was like four or five years old. I still have a lust, I still have a passion. I don’t care about how I look, I’m dedicated to the laughs.
+ - I’m funny. I’m a comedian. I’m not a clown.
+ - I’ve always been a reserved cat. When I play sports, there’s people used to get mad at me because I didn’t hang out and things like that. I’ve never been that kind of person. Nothing has changed in that regard. I’ve never been posse, and all that. I’m a quiet storm.
+ - When it comes to raising children, I believe in give and take. I give orders and they take ’em.
+ - I don’t have no story. Everybody wants this Hollywood story, but the world don’t owe you nothing, man. It’s what you owe the world.
+ - I don’t care about how I look; I’m dedicated to the laughs. You know, I used to be a clown, so – my name was Smoothie the Clown. All the training I had, all my training is geared toward making people laugh, and I didn’t care about being cool.
+ - I was born October 5, 1957, on the South Side of Chicago, in the Woodlawn area, a neighborhood that hasn’t changed much in forty-five years. Our house was on 66th and Blackstone, but the city tore it down when the rats took over.
+ - I don’t need to pat myself on the back until my arm breaks. I don’t need any of that.
+ - I hate to compare anything, especially while I’m promoting. I feel that’s another disrespect, but ‘Ocean’s 13’ is the best movie I’ve ever done in my life. No question.
+ - That’s the whole key to anything: Don’t be afraid to fail. And is not afraid to fail.
+ - I don’t ever watch myself. By watching, you try to perfect yourself, become a robot.
+ - I wasn’t disciplined at all. As good of an athlete as I was, I was not disciplined. Had I had the drive that I have in comedy, and acting, and writing, that’s why I knew it just wasn’t right for me.
+ - I want to have fun. Life ain’t no dress rehearsal. I want to have fun. I’m a comedian; I ain’t no politician. So everything I do is with humor, with love.
+ - I became the storyteller of South Side Chicago. I used an old Kiwi liquid shoe polish as a microphone. I’d go around the house interviewing everybody, telling stupid jokes, doing voices. I mimicked Sidney Poitier, Sammy Davis Jr., people on ‘Laugh-In,’ Flip Wilson.
+ - I can’t build myself by beating somebody down.
+ - If I can tell someone a story that makes them bend over and laugh, that’s bigger than anything else.
+ - Jerry Weintraub, the producer, might be a pain in the ass, but he really knows how to treat his actors.
+ - I want to do something that people can really say, ‘Hey, man, that was good, I’m proud of you, I’m proud of that.’ ‘Pride’ and ‘Transformers’ and things like that.
+ - I’m not a star, I hate that word, and I’m an entertainer. Stars fall, you know, I’m an entertainer. I want to be known as an entertainer.
+ - My family are police officers, detectives. My brother Mitch is FBI. Mitch is like that – a stern enforcer.
+ - It was rough being dark. I got heat from my own people more than anyone else. I remember going to my mom and saying, ‘Why am I so black?’ And she said, ‘Because I’m black. You just gotta always work harder than the average bear.’
+ - My grandmother always told me how you start is how you finish.
+ - Only way you can you get upset is when you expecting something.
+ - I love my daughter, but there’s a certain feeling, a certain emotion when you got a granddaughter, you know?
+ - I hate to let people down. I was like that in sports and I was like that in comedy. I was like that at work. When I worked General Motors and stuff like that, when I say something, I mean it.
+ - Every time you see a black romance, it’s over-the-top. There always has to be extreme hostility between the sexes. He has to cheat. She has to show him how independently strong she is, not just as a woman but as a black woman.
+ - I want to speak directly to the audience, to say, ‘I’m like you – I’m frustrated, I’m not an expert, I don’t have a manual on parenting, I make mistakes, I’m selfish too.’
+ - I’m an ordinary guy with an extraordinary job.
+ - Shut up before I drop yo ass off at Koreatown. Now hold on, America, don’t start writing no letters. I’m just kidding. But am I lying?
+ - Fear is not one of my attributes.
+ - I’m so black, I leave fingerprints on coal.
+ - I’ve never been no superficial cat.
+ - I always wanted to scuba dive. I used to scuba dive undercover like black Aquaman.
+ - You have to meet all of the challenges, big and small. Because how you start is how you finish.
+ - Black audiences are hard. They always think they’re better than you. So you got to come with a little extra to satisfy them.
+ - It’s a pleasure to work with someone who is just as strong as you are.
+ - I took my sports experience to my life on stage. That’s why I’m so disciplined. Playing sports, I was always underestimated. I was never picked first to do anything. This always helped me. It taught me how to push myself.
+ - When I get a chance to play golf or go on a boat with good people, take the boat out and put some lobsters on the grill, get the ice-cold beer and the cigars – that’s heaven here on earth.
+ - I’m not ashamed to tell the truth about what happened in my family. I think that’s what makes my comedy different.
+ - I’ve been in training for stardom.
+ - As I got older, I got into all kinds of things in the streets – but for some reason, I never got caught up with the gangs growing up. Everybody dug me, man. I never had problems.
+ - Bernie Mac just says what you think but are afraid to say.
+ - Hugs aren’t like pieces of pie. Plenty of hugs to go around.
+ - When I go onstage, I want to relieve your mind, your pressures.
+ - Stand-up is what I am; stand-up is what made me.
+ - I love who I am. I love what I’ve become.
+ - Comedy has been so good to me.
+ - I think a lot of TV insults the audience.
+ - I came up in the community center. I used to be physical director of the South Central Community Center in Chicago on 83rd. It’s still there. It used to be around there when I was a kid.
+ - I want to play a villain – I can’t wait to play a villain.
+ - My girlfriend Rhonda, who’s now my wife, I graduated from high school, she got pregnant. My grandfather said, ‘You’ve got to do the right thing.’
+ - Why I was so intrigued with Red Skelton was because he was able to make you cry and laugh and the same time. That was power.
+ - I was good at keeping my mother from crying.
+ - When I hit my 20s, I struggled to make it. I got married at 19, and my daughter, Je’Niece, was born a year later. I worked blue collar jobs during the day and comedy clubs at night, and I was earning about $25 a year doing stand-up.
+ - I want people to say at the end of my day, you know, like I used to say about Sidney Poitier and James Cagney and Joan Crawford and Red Skelton and those guys and Bill Cosby. They did quality and substance. You always remember them.
+ - I was a street performer for two years.
+ - I have so much respect for what’s funny.
+ - You can’t be a doctor if you don’t know the entire parts of the body.
+ - I get facials. I get a manicure and pedicure every week. I get my hair cut, and I oil myself down from head to toe. I got that from my brother. I was so impressed with how high maintenance he was. When he left the room, you could still smell him for an hour.
+ - I’ve introduced myself with comedy, and once you’ve introduced yourself as something, that’s where people keep you. That’s where people like to hold you.
+ - I ain’t running for office. I ain’t running for nothing.
+ - I came from a place where there wasn’t a lot of joy.
+ - You know, every time it comes, every time that light comes on or every time that camera comes on, every time that microphone comes on, the Mac Man seek and destroy.
+ - You’re never going to see me playing a buffoon.
+ - I’m very much disciplined because I’m more mature. When I was young I just wanted to live, I could jump, I could run, I was quick and I was relentless.
+ - I have Glocks, .45s, Berettas, Remingtons. I like the marksmanship and the discipline that it takes to be a gun owner. I like the machinery. Being able to take it out and clean it is even more fascinating than having the gun.
+ - The success of my comedy has been not being afraid to touch on subject matters or issues that everyone else is politically scared of.
+ - My humor had changed from foolishness to making sense.
+ - The two sides of Bernie – that’s a quiet weapon that I have.
+ - I know doing movies is where I need to be. That’s where my audience wants to see me.
+ - When you’re offstage, that’s the footprint. That’s the man God’s gonna judge.
+ - I’m an entertainer and I really enjoy entertaining. I think if you’re going to really be what you say you are, you have to really live it, work it, practice it, and think it.
+ - The one thing about comedy, making it become a part of you, the audience loves it, because you become part of them.
+ - I’m not afraid to fail. Sometimes when you lose, you win. Sometimes when you win, you lose.
+
+87 quotes

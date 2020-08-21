@@ -1,0 +1,227 @@
+ - Do the right thing because it is right.
+ - Rules for Happiness: something to do, someone to love, something to hope for.
+ - Science is organized knowledge. Wisdom is organized life.
+ - Two things awe me most, the starry sky above me and the moral law within me.
+ - If the truth shall kill them, let them die.
+ - Live your life as though your every act were to become a universal law.
+ - You only know me as you see me, not as I actually am.
+ - Morality is not the doctrine of how we may make ourselves happy, but how we may make ourselves worthy of happiness.
+ - The wise man can change his mind; the stubborn one, never.
+ - Always treat people as ends in themselves, never as means to an end.
+ - The death of dogma is the birth of morality.
+ - We can judge the heart of a man by his treatment of animals.
+ - Dare to think!
+ - Beneficence is a duty.
+ - Patience is the strength of the weak, impatience is the weakness of the strong.
+ - There is nothing higher than reason.
+ - Thoughts without content are empty, intuitions without concepts are blind.
+ - Experience without theory is blind, but theory without experience is mere intellectual play.
+ - But a lie is a lie, and in itself intrinsically evil, whether it be told with good or bad intents.
+ - Whereas the beautiful is limited, the sublime is limitless, so that the mind in the presence of the sublime, attempting to imagine what it cannot, has pain in the failure but pleasure in contemplating the immensity of the attempt.
+ - Space and time are the framework within which the mind is constrained to construct its experience of reality.
+ - All perception is colored by emotion.
+ - Enlightenment is man’s emergence from his self-incurred immaturity.
+ - Nature, when left to universal laws, tends to produce regularity out of chaos.
+ - In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so.
+ - Reason can never prove the existence of God.
+ - Great minds think for themselves.
+ - A single line in the Bible has consoled me more than all the books I ever read besides.
+ - Three things tell a man: his eyes, his friends and his favorite quotes.
+ - The human heart refuses to believe in a universe without a purpose.
+ - An action is essentially good if the motive of the agent be good, regardless of the consequences.
+ - Two things fill the mind with ever new and increasing admiration and awe, the oftener and more steadily we reflect on them: the starry heavens above and the moral law within.
+ - If justice perishes, human life on Earth has lost its meaning.
+ - The only thing that is good without qualification is a good will.
+ - Perpetual Peace is only found in the graveyard.
+ - Give a man everything he wants and at that moment everything is not everything.
+ - The business of philosophy is not to give rules, but to analyze the private judgments of common reason.
+ - Do what is right, though the world may perish.
+ - Man’s duty is to improve himself; to cultivate his mind; and, when he finds himself going astray, to bring the moral law to bear upon himself.
+ - It is never too late to become reasonable and wise.
+ - If we knew that god exists, such knowledge would make morality impossible. For, if we acted morally from fear or fright, or confident of a reward, then this would not be moral. It would be enlightened selfishness.
+ - Act so that the maxim of your act could be made the principle of a universal law.
+ - Ingratitude is the essence of vileness.
+ - Act in such a way that you treat humanity, whether in your own person or in the person of any other, never merely as a means to an end, but always at the same time as an end.
+ - There can be no doubt that all our knowledge begins with experience.
+ - If man makes himself a worm he must not complain when he is trodden on.
+ - For peace to reign on Earth, humans must evolve into new beings who have learned to see the whole first.
+ - I had therefore to remove knowledge, in order to make room for belief.
+ - Art is purposiveness without purpose.
+ - Out of the crooked timber of humanity, no straight thing was ever made.
+ - With men, the state of nature is not a state of peace, but war.
+ - Philosophy stands in need of a science which shall determine the possibility, principles, and extent of human knowledge à priori.
+ - The greatest human quest is to know what one must do in order to become a human being.
+ - Act only according to that maxim whereby you can at the same time will that it should become a universal law.
+ - Beauty presents an indeterminate concept of Understanding, the sublime an indeterminate concept of Reason.
+ - Imagination is a powerful agent for creating, as it were, a second nature out of the material supplied to it by actual nature.
+ - What can I know? What ought I to do? What can I hope?
+ - Freedom is that faculty that enlarges the usefulness of all other faculties.
+ - The sum total of all possible knowledge of God is not possible for a human being, not even through a true revelation. But it is one of the worthiest inquiries to see how far our reason can go in the knowledge of God.
+ - Only the descent into the hell of self-knowledge can pave the way to godliness.
+ - Feminine traits are called weaknesses. People joke about them; fools ridicule them; but reasonable persons see very well that those traits are just the tools for the management of men, and for the use of men for female designs.
+ - Ours is an age of criticism, to which everything must be subjected.
+ - Animals... are there merely as a means to an end. That end is man.
+ - Humanity is at its greatest perfection in the race of the whites.
+ - God, freedom, and immortality are untenable in the light of pure reason.
+ - Heaven has given human beings three things to balance the odds of life: hope, sleep, and laughter.
+ - Act that your principle of action might safely be made a law for the whole world.
+ - All our knowledge falls with the bounds of experience.
+ - Procrastination is hardly more evil than grasping impatience.
+ - One is not rich by what one owns, but more by what one is able to do without with dignity.
+ - A categorical imperative would be one which represented an action as objectively necessary in itself, without reference to any other purpose.
+ - Time is not an empirical concept. For neither co-existence nor succession would be perceived by us, if the representation of time did not exist as a foundation a priori.
+ - Freedom is the alone unoriginated birthright of man, and belongs to him by force of his humanity; and is independence on the will and co-action of every other in so far as this consists with every other person’s freedom.
+ - Aristotle can be regarded as the father of logic. But his logic is too scholastic, full of subtleties, and fundamentally has not been of much value to the human understanding. It is a dialectic and an organon for the art of disputation.
+ - The nice thing about living in a small town is that when you don’t know what you’re doing, someone else does.
+ - Always recognize that human individuals are ends, and do not use them as means to your end.
+ - Without man and his potential for moral progress, the whole of reality would be a mere wilderness, a thing in vain, and have no final purpose.
+ - Give me matter, and I will construct a world out of it!
+ - Maximum individuality within maximum community.
+ - Better the whole people perish than that injustice be done.
+ - Have patience awhile; slanders are not long-lived. Truth is the child of time; erelong she shall appear to vindicate thee.
+ - After death the soul possesses self-consciousness, otherwise, it would be the subject of spiritual death, which has already been disproved. With this self-consciousness necessarily remains personality and the consciousness of personal identity.
+ - In every department of physical science there is only so much science, properly so-called, as there is mathematics.
+ - The science of mathematics presents the most brilliant example of how pure reason may successfully enlarge its domain without the aid of experience.
+ - Two things fill the mind with ever new and increasing admiration and awe...
+ - Suicide is not abominable because God prohibits it; God prohibits it because it is abominable.
+ - Human reason is by nature architectonic.
+ - Thoughts without content are empty, intuitions without concepts are blind... The understanding can intuit nothing, the senses can think nothing. Only through their union can knowledge arise.
+ - A society that is not willing to demand a life of somebody who has taken somebody else’s life is simply immoral.
+ - Two things strike me dumb: the infinite starry heavens, and the sense of right and wrong in man.
+ - Our intellect does not draw its laws from nature, but it imposes its laws upon nature.
+ - Sincerity is the indispensable ground of all conscientiousness, and by consequence of all heartfelt religion.
+ - Man desired concord; but nature knows better what is good for his species; she desires discord. Man wants to live easy and content; but nature compels him to leave ease... and throw himself into roils and labors.
+ - All natural capacities of a creature are destined to evolve completely to their natural end.
+ - We ourselves introduce that order and regularity in the appearance which we entitle “nature”. We could never find them in appearances had we not ourselves, by the nature of our own mind, originally set them there.
+ - Arrogance is, as it were, a solicitation on the part of one seeking honor for followers, whom he thinks he is entitled to treat with contempt.
+ - God put a secret art into the forces of Nature so as to enable it to fashion itself out of chaos into a perfect world system.
+ - Life is the faculty of spontaneous activity, the awareness that we have powers.
+ - We assume a common sense as the necessary condition of the universal communicability of our knowledge, which is presupposed in every logic and every principle of knowledge that is not one of skepticism.
+ - It is through education that all the good in the world arises.
+ - Art does not want the representation of a beautiful thing, but the representation of something beautiful.
+ - In the natural state no concept of God can arise, and the false one which one makes for himself is harmful. Hence the theory of natural religion can be true only where there is no science; therefore it cannot bind all men together.
+ - Among all nations, through the darkest polytheism glimmer some faint sparks of monotheism.
+ - Reason should investigate its own parameters before declaring its omniscience.
+ - Freedom in the practical sense is the independence of the power of choice from necessitation by impulses of sensibility.
+ - Aus so krummen Holze, als woraus der Mensch gemacht ist, kann nichts ganz Gerades gezimmert werden. Out of the crooked timber of humanity, no straight thing can ever be made.
+ - Fallacious and misleading arguments are most easily detected if set out in correct syllogistic form.
+ - So act that anything you do may become universal law.
+ - Look closely. The beautiful may be small.
+ - Act so as to use humanity, yourself and others, always as an end and never as a means to an end.
+ - All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+ - An action, to have moral worth, must be done from duty.
+ - Happiness is not an ideal of reason, but of imagination.
+ - Everything in nature acts in conformity with law.
+ - Man must be disciplined, for he is by nature raw and wild.
+ - When a thoughtful human being has overcome incentives to vice and is aware of having done his bitter duty, he finds himself in a state that could be called happiness, a state of contentment and peace of mind in which virtue is its own reward.
+ - Maturity is having the courage to use one’s own intelligence.
+ - The hand is the visible part of the brain.
+ - The existence of the Bible, as a book for the people, is the greatest benefit which the human race has ever experienced. Every attempt to belittle it is a crime against humanity.
+ - Human freedom is realised in the adoption of humanity as an end in itself, for the one thing that no-one can be compelled to do by another is to adopt a particular end. – ’Metaphysical Principles of Virtue.
+ - Nothing is divine but what is agreeable to reason.
+ - From such crooked wood as that which man is made of, nothing straight can be fashioned.
+ - Beneficence is a duty; and he who frequently practices it, and sees his benevolent intentions realized comes, at length, really to love him to whom he has done good.
+ - The ideal of the supreme being is nothing but a regulative principle of reason which directs us to look upon all connection in the world as if it originated from an all-sufficient necessary cause.
+ - It is not God’s will merely that we should be happy, but that we should make ourselves happy.
+ - Nature does nothing in vain, and in the use of means to her goals she is not prodigal.
+ - Nature even in chaos cannot proceed otherwise than regularly and according to order.
+ - A lie is the abandonment and, as it were, the annihilation of the dignity by man.
+ - Laws always lose in energy what the government gains in extent.
+ - Human beings are never to be treated as a means but always as ends.
+ - The means employed by Nature to bring about the development of all the capacities of men is their antagonism in society, so far as this is, in the end, the cause of a lawful order among men.
+ - An organized product of nature is that in which all the parts are mutually ends and means.
+ - Genius is the ability to independently arrive at and understand concepts that would normally have to be taught by another person.
+ - The question is not so much whether there is life on Mars as whether it will continue to be possible to live on Earth.
+ - Every man is to be respected as an absolute end in himself; and it is a crime against the dignity that belongs to him as a human being, to use him as a mere means for some external purpose.
+ - Happiness, though an indefinite concept, is the goal of all rational beings.
+ - The light dove, cleaving the air in her free flight, and feeling its resistance, might imagine that its flight would be still easier in empty space.
+ - The yellow Indians do have a meagre talent. The Negroes are far below them, and at the lowest point are a part of the American people.
+ - The existence of the Bible is the greatest blessing which humanity ever experienced.
+ - Apart from moral conduct, all that man thinks himself able to do in order to become acceptable to God is mere superstition and religious folly.
+ - Physicians think they do a lot for a patient when they give his disease a name.
+ - The greatest problem for the human species, the solution of which nature compels him to seek, is that of attaining a civil society which can administer justice universally.
+ - It is by his activities and not by enjoyment that man feels he is alive. In idleness we not only feel that life is fleeting, but we also feel lifeless.
+ - It is often necessary to make a decision on the basis of knowledge sufficient for action but insufficient to satisfy the intellect.
+ - One who makes himself a worm cannot complain afterwards if people step on him.
+ - The ultimate destiny of the human race is the greatest moral perfection, provided that it is achieved through human freedom, whereby alone man is capable of the greatest happiness.
+ - All appearances are real and negatio; sophistical: All reality must be sensation.
+ - When I could have used a wife, I could not support one; and when I could support one, I no longer needed any.
+ - I am an investigator by inclination. I feel a great thirst for knowledge.
+ - It is difficult for the isolated individual to work himself out of the immaturity which has become almost natural for him.
+ - Duty is the necessity to act out of reverence for the law.
+ - Philosophical knowledge is the knowledge gained by reason from concepts ; mathematical knowledge is the knowledge gained by reason from the construction of concepts.
+ - All false art, all vain wisdom, lasts its time but finally destroys itself, and its highest culture is also the epoch of its decay.
+ - Each according to his own way of seeing things, seek one goal, that is gratification.
+ - Seek not the favor of the multitude; it is seldom got by honest and lawful means. But seek the testimony of few; and number not voices, but weigh them.
+ - Riches ennoble a man’s circumstances, but not himself.
+ - In the mere concept of one thing it cannot be found any character of its existence.
+ - The desire of a man for a woman is not directed at her because she is a human being, but because she is a woman. That she is a human being is of no concern to him.
+ - I have no knowledge of myself as I am, but merely as I appear to myself.
+ - I freely admit that the remembrance of David Hume was the very thing that many years ago first interrupted my dogmatic slumber and gave a completely different direction to my researches in the field of speculative philosophy.
+ - What are the aims which are at the same time duties? They are perfecting of ourselves, the happiness of others.
+ - We find that the more a cultivated reason devotes itself to the aim of enjoying life and happiness, the further does man get away from true contentment.
+ - The wish to talk to God is absurd. We cannot talk to one we cannot comprehend – and we cannot comprehend God; we can only believe in Him.
+ - The busier we are, the more acutely we feel that we live, the more conscious we are of life.
+ - If education is to develop human nature so that it may attain the object of its being, it must involve the exercise of judgment.
+ - Even philosophers will praise war as ennobling mankind, forgetting the Greek who said: ‘War is bad in that it begets more evil than it kills.’
+ - The bad thing of war is, that it makes more evil people than it can take away.
+ - But only he who, himself enlightened, is not afraid of shadows.
+ - Metaphysics is a dark ocean without shores or lighthouse, strewn with many a philosophic wreck.
+ - How then is perfection to be sought? Wherein lies our hope? In education, and in nothing else.
+ - Melancholy characterizes those with a superb sense of the sublime.
+ - By a lie, a man... annihilates his dignity as a man.
+ - Innocence is indeed a glorious thing; but, unfortunately, it does not keep very well and is easily led astray.
+ - All trades, arts, and handiworks have gained by division of labor... Where the different kinds of work are not distinguished and divided, where everyone is a jack-of-all-trades, there manufactures remain still in the greatest barbarism.
+ - The enjoyment of power inevitably corrupts the judgment of reason, and perverts its liberty.
+ - Freedom is independence of the compulsory will of another, and in so far as it tends to exist with the freedom of all according to a universal law, it is the one sole original inborn right belonging to every man in virtue of his humanity.
+ - The possession of power inevitably spoils the free use of reason.
+ - The infinitude of creation is great enough to make a world, or a Milky Way of worlds, look in comparison with it what a flower or an insect does in comparison with the Earth.
+ - Prudence reproaches; conscience accuses.
+ - Religion is the recognition of all our duties as divine commands.
+ - Honesty is better than any policy.
+ - All the interests of my reason, speculative as well as practical, combine in the three following questions: 1. What can I know? 2. What ought I to do? 3. What may I hope?
+ - Religion is too important a matter to its devotees to be a subject of ridicule. If they indulge in absurdities, they are to be pitied rather than ridiculed.
+ - There is no virtue in penance and fasting which waste the body; they are only fanatical and monkish.
+ - There is a limit where the intellect fails and breaks down, and this limit is where the questions concerning God and freewill and immortality arise.
+ - Intuition and concepts constitute... the elements of all our knowledge, so that neither concepts without an intuition in some way corresponding to them, nor intuition without concepts, can yield knowledge.
+ - Even a man’s exact imitation of the song of the nightingale displeases us when we discover that it is a mimicry, and not the nightingale.
+ - Every human being should always be treated as an end and never as a mere instrument.
+ - A man who has tasted with profound enjoyment the pleasure of agreeable society will eat with a greater appetite than he who rode horseback for two hours. An amusing lecture is as useful for health as the exercise of the body.
+ - Most men use their knowledge only under guidance from others because they lack the courage to think independently using their own reasoning abilities. It takes intellectual daring to discover the truth.
+ - Man relates to material things through direct insight rather than reason.
+ - For how is it possible, says that acute man, that when a concept is given me, I can go beyond it and connect with it another which is not contained in it, in such a manner as if that latter necessarily belonged to the former?
+ - But although all our knowledge begins with experience, it does not follow that it arises from experience.
+ - No state at war with another state should engage in hostilities of such a kind as to render mutual confidence impossible when peace will have been made.
+ - It is presumed that there exists a great unity in nature, in respect of the adequacy of a single cause to account for many different kinds of consequences.
+ - The inscrutable wisdom through which we exist is not less worthy of veneration in respect to what it denies us than in respect to what it has granted.
+ - The more we come in contact with animals and observe their behaviour, the more we love them, for we see how great is their care of the young.
+ - If we could see ourselves... as we really are, we should see ourselves in a world of spiritual natures, our community which neither began at birth nor will end with the death of the body.
+ - Thinking in pictures precedes thinking in words.
+ - The function of the true state is to impose the minimum restrictions and safeguard the maximum liberties of the people, and it never regards the person as a thing.
+ - It is not necessary that whilst I live I live happily; but it is necessary that so long as I live I should live honourably.
+ - In all judgements by which we describe anything as beautiful, we allow no one to be of another opinion.
+ - At some future day it will be proved, I cannot say when and where, that the human soul is, while in earth life, already in an uninterrupted communication with those living in another world.
+ - He who has made great moral progress ceases to pray.
+ - The instruction of children should aim gradually to combine knowing and doing. Among all sciences mathematics seems to be the only one of a kind to satisfy this aim most completely.
+ - It is therefore correct to say that the senses do not err – not because they always judge rightly, but because they do not judge at all.
+ - Ich solle niemals anders verfahren, als so, dass ich auch wollen k o« nne, meine Maxime solle ein allgemeines Gesetz werden. I ought never to act except in such a way that I can also will that my maxim should become a universal law.
+ - That Logic has advanced in this sure course, even from the earliest times, is apparent from the fact that, since Aristotle, it has been unable to advance a step, and thus to all appearance has reached its completion.
+ - Is it reasonable to assume a purposiveness in all the parts of nature and to deny it to the whole?
+ - Why were a few, or a single one, made at all, if only to exist in order to be made eternally miserable, which is infinitely worse than non-existence?
+ - The only objects of practical reason are therefore those of good and evil. For by the former is meant an object necessarily desired according to a principle of reason; by the latter one necessarily shunned, also according to a principle of reason.
+ - Thrift is care and scruple in the spending of one’s means. It is not a virtue and it requires neither skill nor talent.
+ - Upon the solution of this problem, or upon sufficient proof of the impossibility of synthetical knowledge a priori, depends the existence or downfall of metaphysics.
+ - Psychologists have hitherto failed to realize that imagination is a necessary ingredient of perception itself.
+ - We can never, even by the strictest examination, get completely behind the secret springs of action.
+ - Act in such a way that you will be worthy of being happy.
+ - If I am to constrain you by any law, it must be one by which I am also bound.
+ - A philosophical attempt to work out a universal history according to a natural plan directed to achieving the civic union of the human race must be regarded as possible and, indeed, as contributing to this end of Nature.
+ - Man’s greatest concern is to know how he shall properly fill his place in the universe and correctly understand what he must be in order to be a man.
+ - All thought must, directly or indirectly, by way of certain characters, relate ultimately to intuitions, and therefore, with us, to sensibility, because in no other way can an object be given to us.
+ - The universal and lasting establishment of peace constitutes not merely a part, but the whole final purpose and end of the science of right as viewed within the limits of reason.
+ - I assert that, in any particular natural science, one encounters genuine scientific substance only to the extent that mathematics is present.
+ - It is precisely in knowing its limits that philosophy consists.
+ - If a man is often the subject of conversation he soon becomes the subject of criticism.
+ - Standing armies shall in time be totally abolished.
+
+225 quotes

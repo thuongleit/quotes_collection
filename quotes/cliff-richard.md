@@ -1,0 +1,42 @@
+ - We need to pray and read the Bible every day, and regardless of whatever else happens to you, that tends to keep you close to Him, because you are constantly in touch through His Word.
+ - How is there going to be Peace when there is no Justice?
+ - The more we depend on God the more dependable we find He is.
+ - But Jesus changes your attitude towards yourself and towards other people.
+ - If I’m going to represent God I have to do it the best I can.
+ - The only advice I would give Christians entering the world of arts: give yourself a period of time, maybe three or four years. If you haven’t made it in your chosen art form, dump it.
+ - But Portugal has a peaceful feel about it. I sit on the terrace overlooking the vineyard there and I feel cut off from the world. You need that sort of thing.
+ - The more I read my Bible the more I veered away from the Jehovah’s Witnesses.
+ - I owe Elvis my career, and the entire music business owes him it’s lifeline.
+ - When you use music to worship you are not attempting to entertain.
+ - I’ve got two places I like to be. Portugal is one.
+ - I think that if you are going to be successful as a Christian in the arts, you have to be successful in your Christian life.
+ - I’m very grateful because my fans are very loyal.
+ - When I became a Christian my confidence grew.
+ - I don’t mean that if you’re a Christian, walking close to God, you will immediately gain celebrity. you may fail as an artist, because you may not have what the public want at that time, and you have to be prepared for that.
+ - The thrill of hearing your own voice recorded is still there, I still love it, going into the studio and thinking how can I sing this song and between the producers and the musicians you find a way of doing it.
+ - What other people think of me is becoming less and less important; what they think of Jesus because of me is critical.
+ - Financial support is one thing, but I always think what becomes really sacrificial is your time.
+ - It don’t spit or swear or sleep around. I’ve always maintained I’m the most radical rock’n’roll singer Britain has ever seen.
+ - If you can play guitar and sing, you can probably get a gig down the road playing at a restaurant, but don’t throw your life away chasing something that is so elusive it will only lead you to regret and may turn you bitter.
+ - When I use music on stage, the prime directive is to entertain the public, so it is different.
+ - Celebrities meet a lot of people and we just can’t maintain them all in our fuddled brains.
+ - There is no better news, than the fact that Jesus can actually turn a life upside down and save it.
+ - So I will go as far as I can into rock and roll carrying my Christian banner.
+ - I realised that God has placed Christians everywhere, to support each other, to support the needy in those areas, and that is the thing that I find is a great plus.
+ - It’s important to put all I have into my career.
+ - I can say I have become far more open about what I believe.
+ - Of course, when I started my career, like anyone else who was 16 at the time, we were besotted by the rock-n-roll scene from America, and all I was interested in was having a career of my own.
+ - I have tried to have a regular daily intake from my Bible, regardless of how late it is.
+ - Someone recommended that I read the Bible, and it was then I discovered that I knew nothing about it.
+ - It is important to have a circle of Christians friends, which I do have.
+ - Our industry is full of all sorts of eccentricities and one of them is owning property.
+ - It’s the business I’m in, I can’t say that signing things is the favourite part of my career but you know that it has to be done and that there is no pain involved.
+ - There’s loads of things you can do to make things easy for your throat, you can drink a bit of lemon and hot water couple of spoons of honey, you can gargle with port, I’ve done it a couple of times myself – but don’t swallow it!
+ - But if you have a solid walk with the Lord, then you wont fear that failure.
+ - But, of course, one relies on the everyday people who just simply like your music, for whom you may not be a hobby but they enjoy being in your presence at a concert.
+ - I involve myself in an organisation called Tear Fund.
+ - If you have got the public in the palm of your hand, you can be sure that is where they want to be.
+ - When you’re out there with thousands of people it’s probably better to have a bigger show to look at, and it turned out really well and they videoed it for me.
+ - I have a group of people, about 40, in a local church in Surrey in England, who pray for me regularly.
+
+40 quotes

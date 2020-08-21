@@ -1,0 +1,58 @@
+ - There is always strength in numbers. The more individuals or organizations that you can rally to your cause, the better.
+ - There is always strength in numbers.
+ - Human trafficking is a human tragedy. It’s an outrage against any decent people.
+ - The problem with smear campaigns is that too often they work.
+ - Let’s not pretend that all of a sudden, this is some new system.
+ - John Kerry’s biography was central to his campaign.
+ - You really have one bite at the apple.
+ - The failure to invest in our public transportation and public life, I think, is a scandal and a shame, and it should be a national embarrassment.
+ - He who speaks the truth must keep one foot in the stirrup.
+ - There’s no question that there’s been a breach in the trust between urban – especially urban community, African-American and minority communities and the police in major American cities.
+ - The Sheldon Adelsons, the Koch brothers, the George Soroses, what we want to try to do is force them into the parties, not so that Kasich or whoever is going to straight to them and trying to kiss up to special interests, but so the parties have the power and they can direct the money.
+ - The corporations who invest in lobbyists, it pays in terms of tax loopholes, tax subsidies, all the rest. It pays. Clearly, the money has a big effect.
+ - Iraq is in a civil war. There is no road in that country that is safe.
+ - Health care, it’s going to be political. It’s going to be, let’s say, the confluence of the politics and the messy implementation.
+ - The economy of the United States gross domestic product doubled from 1996 to 2015, doubled, more than, $8.8 trillion to $17.1 trillion. And the median household income went down.
+ - The advantage that hospitals have over other institutions is that hospitals are community-based. You can’t outsource your work; you can’t move your emergency department to Pakistan.
+ - Barack Obama knows that America cannot be strong abroad unless we are strong at home. People the world over have always been more impressed by the power of our example than the example of our power.
+ - If I were John Bolton, I’d take great consolation in the words of my principal supporter on the committee, who gave a ringing endorsement, which was, There is no evidence that he has broken any laws.
+ - I am struck the whole litany of people, especially of that era, who were involved in some scandal or another. Some of it was sexual. Some of it was more financial. And it was just all concentrated in a lot of people all at once.
+ - I’m a little nervous about public funding. It’s better than what we got now.
+ - The way to solve all the money in politics is not to pretend we can get money out of politics. That will never happen. We have to channel it in ways where we can see it and hold it accountable. And I think the parties are the best vehicle for that.
+ - Character is destiny and character is important to American campaigns.
+ - Everybody who served in John Kerry’s boat under his command, save one, has stood with him.
+ - Benjamin Netanyahu is no Winston Churchill. Whatever else he, is he’s not a Winston Churchill. He basically violated the great rule, which is it’s better to mislead the people and to lose an election than to mislead the people and win an election.
+ - I think Guantanamo, has been synonymous with the staining of American values and American legal tradition.
+ - The Democrats are standing on one side, and the Republicans are playing games on the other. Both sides are playing games.
+ - George W. Bush in 2000 went to private financing for the nomination, but he accepted public funding in the general. And, quite frankly, so did – it was broken in 2008, when Barack Obama decided he wasn’t going to do that.
+ - We have weakened the parties and strengthened all the special interests.
+ - As long as Republicans won’t – won’t raise taxes and as long as Democrats won’t in any way make entitlements based on need, rather than just across the board, I really think that we’re doomed to this deadlock.
+ - At a time when the public is sour on politicians, have no use for them, Bill Clinton has risen to a different level. Bill Clinton is endlessly interesting.
+ - When the size of the group supporting your cause reaches a critical mass, any legislator or elected official has to pay attention.
+ - If an abduction is reported, it is dealt with in the same way as a kidnap.
+ - George Bush says what John Kerry did was noble. Yet he sees him being savaged by his own supporters.
+ - Ronald Reagan four times accepted the limits in contributions of what he could take, what he could spend, and the public funding for the general elections. So I just think the idea that it didn’t work, and didn’t work – it did work. It worked brilliantly.
+ - In the 2004 presidential election, we saw a wonderful example of citizens making contributions. In fact, individual giving to both the Kerry and Bush campaigns was the highest in our nation’s history.
+ - Now Republicans are a more interventionist party than they have been at any time since George W. Bush left office.
+ - When you run for president of the United States, everybody does the same thing in the campaign-they talk about veterans, how much they admire them, how grateful they are.
+ - Since the election, since the formation of a government, the death in Iraq has increased. The United States stands by, helpless to do anything about it. That’s the reality, not George Bush’s revisionist history!
+ - I have my disagreements with President Obama, but President Obama has run an amazingly scandal-free administration, not only he himself, but the people around him. He’s chosen people who have been pretty scandal-free.
+ - They’re still a subject beholden to special interests, but at least they have a national constituency. At least they have to think about national majorities.
+ - There is no tougher job in America than being a cop on the beat in a major city in this country, big and brawling.
+ - Let’s give the president some due.
+ - From 1976, Judy to 1996, we had six presidential elections. And it was run under the Campaign Finance Reform Act of 1974. In all six of them, every candidate agreed to limits of what he could collect in contributions and what he could spend in seeking a nomination. And they all abided by it.
+ - I think any advocate who is effective has fully acquainted himself or herself with the legislator they are going to meet. Know what committees they are on, what issues they are interested in, all in an effort to build a bridge for communicating with them.
+ - Politics, they all – talked to the insiders.
+ - Washington is a city of money. It’s a flood of money.
+ - John McCain has become the de facto running mate of George W. Bush.
+ - As Bill Clinton said so eloquently at the convention, during Vietnam there was a chance to serve; there was a chance not to serve.
+ - The studies that show the reason Washington real estate is booming and there are so many lobbyists in town, it does pay.
+ - Politics is a contact sport – a question of accepting an elbow or two.
+ - You’ve got people who didn’t serve with John Kerry saying they did serve with John Kerry in the boat. With George Bush, we can’t find anybody who did serve with him.
+ - The Republicans, they are in the danger of rooting for the country to fail. They look bad that way, I mean, and I want to say to them, cheer up, Republicans. Eventually, things will get worse.
+ - There is nothing more basic to our democracy than the right to participate in electing our political leaders.
+ - Sometimes, you just let the country have its way, and you don’t try to determine the shape of the country. You sort of modestly step back and let the country figure out what it believes.
+ - Every measurement of where you have more public confidence in creating jobs, American prosperity, controlling crime, health care, providing education, all of these standards, Bill Clinton has considerably high marks. The sole exception is on protecting taxes, which is initially his attack.
+ - John McCain was victimized in the South Carolina primary.
+
+56 quotes

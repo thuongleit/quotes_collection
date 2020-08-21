@@ -1,0 +1,100 @@
+ - I’m still a mod, I’ll always be a mod, you can bury me a mod.
+ - I don’t feel old or young, I just am.
+ - I’m always looking forward to what I’m doing now, and what’s ahead.
+ - You have to keep challenging yourself. I’ve always tried to do that, and I’m not saying I’ve always been successful. Maybe I’ve rewritten the same song; it’s inevitable, but I’ve always been mindful of taking the writing somewhere else. You can’t stick in your little comfort zone.
+ - You can listen to music at any moment in the day or night. Which is great, but I think it kind of devalues it as well.
+ - When I lived in a little flat in Pimlico in 1981, I’d write in the hallway. As you walked in, there was a tiny little recess type thing, hardly a hallway, really, and I’d sit there writing songs with my guitar.
+ - People say that if you’re still angry at 52, you’re not an angry young man, just a grumpy old git.
+ - I’m so lucky, I’m just really grateful for what I’ve got around me – children and my wife and everything else.
+ - You can’t live a lie. You have to follow your heart.
+ - There’s more to distract people, isn’t there? When I was a kid there was music and football and clothes. And that was kind of it, really. Those three things defined you as a person.
+ - I never get too many problems. You can never please everyone anyway, obviously. And some people take the easy route and just play the greatest hits, and their audience is happy to hear that as well, and that’s fine, but it wouldn’t please me. But it doesn’t trouble me.
+ - I think you have to satisfy yourself first and foremost.
+ - The Jam were a good band, however I feel that the Style Council were better. A lot of people I know will disagree with me. Some things we did with The Style Council were misinterpreted or over their heads.
+ - Life is a drink and you get drunk when you’re young.
+ - I could say that ‘Exile On Main Street’ was my favourite or whatever, but I’m more about the songs and the artists and the sound that they bring.
+ - No man should have cowboys boots in his wardrobe. That’s fair enough, isn’t it? Unless you’re a cowboy, of course.
+ - I don’t like to get pigeonholed. I don’t like it when people think they have you sewn up.
+ - I think politicians are so far out of step with what people really want.
+ - Everyone gets frustrated and aggressive, and I’d sooner take my aggression out on a guitar than on a person.
+ - There’s such a wealth of great music, clothes or whatever. There is so much great stuff out there, that why would you not still be interested if you’ve grown up in that kind of culture?
+ - People say you make your best work when in despair, but I think happiness is a good place to write from.
+ - I saw an interview with Keith Richards. He said, ‘How else could a kid in Dartford suddenly connect with and understand what Muddy Waters is singing?’ There’s a cultural difference, but there’s just something in that music that subconsciously or internally you just understand; it just makes sense.
+ - I wear jeans and a T-shirt sometimes. I just like clothes – since the first time I can remember, like age ten or eleven; I was just obsessed with music and clothes. Just like a lot of people in England from my generation.
+ - Sometimes you’re ahead of the game and sometimes people don’t get it and that’s just one of those things you have to accept and carry on.
+ - I look for that stimulation constantly. I’m looking for inspiration and stimulation. Not bored with what we’ve done.
+ - If you gave me a fresh carnation, I would only crush its tender petals...
+ - I don’t really wanna talk about politics, I’m not clever enough.
+ - I could write songs about politics, but I’m conscious of not writing songs that sound the same as the ones I wrote 30 years ago.
+ - I’m fine with being thought of as a guitar player, and if I can get any recognition or respect for doing that, that’s a pretty good thing for me.
+ - I don’t like the royal family, I don’t like the establishment, I don’t like the civil service.
+ - When I’m dead, I wanna leave a body of work, like authors or great painters do.
+ - I’m not big on rap, to be honest. I just don’t get it. It’s angry people shouting. I like a song, melodies, people singing.
+ - I have to do what I’m doing at the time. That’s the most important thing. You might lose some people along the way, and you might gain other people on the way, that’s just the way it is. But nevertheless, if you’re driven by something, there is no argument about it; that’s what you have to do.
+ - I think anybody goes through a crisis of confidence from time to time. You have to kind of doubt yourself, sometimes. It’s the way forward.
+ - Even somebody like The Black Keys or Royal Blood, they all have this original roots base to what they do.
+ - I love soul music, that’s my real love in life and in whatever shape or form it is.
+ - I had a total belief in The Style Council. I meant every word and felt every action.
+ - The whole nostalgia thing, and just sticking with what you always liked and what you know and not taking a chance on something or expanding. I think especially after a certain age.
+ - I think people are just really disappointed, disappointed with Blair as well, who’s just like Bush’s lapdog. I think everyone’s just disillusioned with politics in our country, and it must be the same in your country.
+ - I’m very, very open to experimenting with different people and trying to find different methods of writing and making music.
+ - It’s always good to play New York. The Apollo is a great gig. I loved that.
+ - Pop music was supposed to be a flash in the pan, but here we are 50 years later and it means something to us, and it always will do. It’s incredibly important.
+ - There’s this British elegance that we, at times, have really missed in the States. We’ve always been more of a sportswear culture.
+ - The way that house music has become so white and so sanitized over the decades and the fact it’s still going on, well I think it’s sad really, but at the time I really loved it. I loved all the black house music that was coming out of Chicago and New Jersey, which I just thought was really soulful.
+ - There’s always something in most world folk musics that always seems connected; whether it’s a bagpipe or a tambura, there’s always some sort of drone instrument, and there’s always percussion.
+ - I only put an album out every two or three years.
+ - I think the biggest influence for me is when I hear a great piece of music, whatever the style, I’m kind of inspired by that greatness and I’m inspired to try and obtain something that comes close to that greatness.
+ - When I listen to a record, or when I’m making a record, I listen to everything. I listen to the drums, the bass, the voice, the arrangement. I listen to the whole piece as an ensemble.
+ - If you’re in music, you’re in music, and if you’re in music you just want to keep making records and playing. That’s what it’s about, isn’t it? At least, that’s what I always thought it was about, anyway.
+ - It’s important to know all those things, but part of our jobs is to move people along and to make people excited to buy music or buy clothes, and give them enjoyment, I think, too.
+ - The Zombies were really unique – they had elements of jazz and classical music in their songs and songwriting. They had a very, very different sound compared to a lot of their contemporaries at the time.
+ - In all honesty, I don’t know what one song can change.
+ - When you look at so much of what we all love, there’s either soul-based to it, or it’s the blues. It’s really the beginnings of any kind of music. It really is; it all starts there. Because after that, it’s music of the moment.
+ - In my old age, my mind gets more open, and I listen to so many different types of music and I guess that all reflects in my work.
+ - I’ve always liked my clothes, even before I could properly afford them. Clothes for me were never a cloak, a cover. They were how I chose to express myself.
+ - It’s just something internal that says, ‘I’ve got to do this now. This is what I’m doing now.’
+ - I was always taught as a kid that if there’s anything you want in life, you’ve got to work towards it. I guess that sort of stayed with me, really.
+ - The first thing I bought that was really stylish was in 1969 when I was eleven. I saved up for a black, grey and white tie-dye grandad vest. It was too big – they weren’t catering for kids my age – and hung off me, but I loved it.
+ - The Beatles changed the world. They certainly changed my world, and many, many other individuals as well.
+ - I still love playing music. It was all I ever wanted to do, and I got the chance to do it.
+ - When I got into the Beatles, I must have only been about six or seven but old enough to take notice. We used to have an old radiogram which, for readers of a certain age, was like a big cabinet thing with a record player inside it.
+ - I think part of what we do is there is a bit of dandy influence, always, or a little sprinkle of it. Not literal Savile Row dandy, but there’s a bit of sartorial dandiness in everything that we do – every collection that we do.
+ - There are so many artists who get to my age that get comfortable and just stick in a groove, and I really don’t want to do that.
+ - Our campaigns have always been based on what we consider music icons that transcend generations and they’re not of the moment – they continue to evolve.
+ - I suppose it’s nice to have some surprise in life and to surprise yourself in life and see what else you can do.
+ - The whole thing with eastern music and instruments, I love all that stuff.
+ - I wanted to make a record that sounded like a continous piece.
+ - I want to hear as much music as I possibly can before I leave this mortal coil but it’s impossible to hear it all because there’s so much of it.
+ - I’d like to think I’ve left something in the world. Without in any way trying to be morbid, but life is very short, and I’d like to think I’d leave some body of work that would inspire other musicians long after I’ve gone.
+ - So much is filtered by pop music today, because the music industry is driven by single, single, single, single, the next single, not the nurturing of artists and that kind of thing.
+ - I still want to do what I want to do, but we also have to think about some sense of protecting the business that’s out there as well.
+ - I just pretty much love from 1966 to 1972, that’s my time. I think everything that needs to be said was said within that time. That’s just a subjective thing, as well.
+ - Why not go down the pub? A guy once came up to me at a gig and asked me if I had MySpace. I said, ‘This is my space, and you’re invading it.’
+ - I’ve not had Botox, no.
+ - The ’40s were quite austere and super glamorous.
+ - Going to college was never an option. I was passionate about music, but how much talent I actually had was another matter.
+ - You do your runway show, and it’s all over the Internet before I see anything on there.
+ - If you’re making music, you must want to turn other people on to it, whether you’re number one in the charts or number 60.
+ - It can get boring. Not the playing the songs necessarily, or doing the clothes. You know, you need stimulus.
+ - I try to have an open ear, but at the end, it would never change direction to where I think I should go. Because if I listened to everybody else, they’re thinking about what’s right now or what was the last thing – they’re not thinking about what’s next.
+ - I don’t think about what I can’t do or what I shouldn’t be doing. I just think there are endless possibilities musically, really.
+ - I get labelled as just being about one thing, but there’s lots of layers to what I do.
+ - If we get through for two minutes only it will be a start!
+ - Coming from a little suburban town, I wasn’t a hip city kid. I was quite the opposite, really. Songs like ‘Saturday’s Kids’ rang a bell for kids all over the country. That song was about the kids I grew up with.
+ - It is nice to make a record and people like it, and it’s encouraging.
+ - I think the world is really small today, and fashion, from that end of it, it’s instantaneous everywhere.
+ - I play out my role, I’ve even been out walking -They tell me that it helps, but I know when I’m beaten...
+ - It’s a global fashion thing; because of the Internet it has gotten really small. It’s cluttered, but it’s gotten small.
+ - I suppose I was much more serious-minded in the ’70s and ’80s.
+ - My own personal theory is that all popular music, in whatever form it is, to me, it all comes from Africa. Whether it’s filtered through America or whatever – African-American. But I still think there’s something in that roots music that’s very, very African, and I think that’s what unites people.
+ - If you’re into a certain band, you’re into the way they dress.
+ - There are areas of music that I’ve never been to before, so that’s always nice thing to have in life. That there are other areas you haven’t been to. You haven’t covered all the ground, and there’s plenty more uncharted territory to cover as well.
+ - There have been records I’ve been really, really pleased with that haven’t connected with people. But I felt good about them.
+ - Being a musician is a noble profession.
+ - Nothing wrong with pop!
+ - I’m definitely obsessed about artists and the type of music and the playing and the tone and all that kind of thing – I’m not obsessed about what the best Beatles album is. I just think if The Beatles are great, they’re great.
+ - I really enjoy playing America. I like the audiences there. It’s the home of a lot of music I grew up with.
+ - In the early-’60s, when you look at that period of time – up to the mod time – when everybody was wearing skinnier suits and skinny lapels and skinny ties – that came out of the States, and that was quite cool.
+
+98 quotes

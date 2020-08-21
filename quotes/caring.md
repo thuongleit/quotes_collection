@@ -1,0 +1,42 @@
+ - The simple act of caring is heroic. ~~Edward Albert
+ - One person caring about another represents life’s greatest value. ~~Jim Rohn
+ - The trees which are pruned, watered and nurtured by caring hands bear the greatest fruits; it is the same with people. ~~Bryant McGill
+ - To be successful is to be helpful, caring and constructive, to make everything and everyone you touch a little bit better. ~~Norman Vincent Peale
+ - I am always comforted by realizing that there are still so many helpers – so many caring people in this world. ~~Fred Rogers
+ - Change comes from listening, learning, caring and conversation. ~~Gwen Ifill
+ - Caring is the essence of nursing. ~~Jean Watson
+ - A smile is the light in your window that tells others that there is a caring, sharing person inside. ~~Denis Waitley
+ - Civility is the art and act of caring for others. ~~Deborah King
+ - When you’re 20 you care what everyone thinks, when you’re 40 you stop caring what everyone thinks, when you’re 60 you realize no one was ever thinking about you in the first place. You have enemies? Good. That means you’ve stood up for something, sometime in your life. ~~Winston Churchill
+ - Living is the art of loving. Loving is the art of caring. Caring is the art of sharing. Sharing is the art of living. If you want to lift yourself up, lift up someone else. ~~Booker T. Washington
+ - The loving parts of your personality have no trouble loving. That is all they do. You experience the loving parts of as gratitude, appreciation, caring, patience, contentment and awe of life. ~~Gary Zukav
+ - The ultimate lesson all of us have to learn is unconditional love, which includes not only others but ourselves as well. ~~Elisabeth Kübler-Ross
+ - I’m not suspicious, I’m just careful. ~~Morton Feldman
+ - Most people, it seems like they’ve only got one part of the equation down. Caring for themselves, or caring for someone else. And I’v learned how important it is to have both. ~~Deb Caletti
+ - I don’t know, I don’t care, and it doesn’t make any difference. ~~Jack Kerouac
+ - I have come to believe that caring for myself is not self-indulgent. Caring for myself is an act of survival. ~~Audre Lorde
+ - Caring for myself is not self-indulgence, it is self-preservation, and that is an act of political warfare. ~~Audre Lorde
+ - Leave your existence to existence, stop caring for yourself so much and let the universe care for you; it is the best mother. ~~Mooji
+ - Volunteers are the only human beings on the face of the earth who reflect this nation’s compassion, unselfish caring, patience, and just plain love for one another. ~~Erma Bombeck
+ - Love isn’t a perfect state of caring. ~~Fred Rogers
+ - Beauty is how you feel inside, and it reflects in your eyes. It is not something physical. ~~Sophia Loren
+ - The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years. ~~Audrey Hepburn
+ - Teamwork is the foundation of success. The three universal questions that an individual asks of his coach, player, employee, employer are: Can I trust you? Are you committed to excellence? And, do you care about me? ~~Lou Holtz
+ - The beginning of knowledge is the discovery of something we do not understand. ~~Frank Herbert
+ - In order to improve the mind, we ought less to learn, than to contemplate. ~~René Descartes
+ - The cloud of caring for nothing, which overshadowed him with such a fatal darkness, was very rarely pierced by the light within him. ~~Charles Dickens
+ - When the world becomes standard, I will start caring about standards. ~~Rasmus Lerdorf
+ - It’s incredibly liberating to spend an hour talking to someone and not caring about what you sound like. It’s about understanding myself. Sometimes I’ll speak to my therapist for an hour a day. It’s become part of my routine. ~~Shakira
+ - God is mighty. God is caring. God is worthy of praise. God is loving. God is able. God is in control. Nothing takes God by surprise. Some sweet reminders to soak in before falling asleep tonight. ~~Lysa TerKeurst
+ - If you don’t have the support and love and caring and concern that you get from a family, you don’t have much at all. ~~Morrie Schwartz
+ - Theres a very fine line between not listening and not caring. I like to think I walk that line everyday of my life. ~~Burnie Burns
+ - I think we must cling to the hope that we can see in the great heroism, the bravery of the firemen and policemen, and the outpouring of caring and concern that has come pouring in from around the world. ~~Jane Goodall
+ - I worry that business leaders are more interested in material gain than they are in having the patience to build up a strong organization, and a strong organization starts with caring for their people. ~~John Wooden
+ - My daughter is a good, caring, compassionate person. To me that’s the true meaning of success, even though the marriages didn’t work out. My success with my daughter is all that matters. ~~Charlene Tilton
+ - Caring about what you are doing is considered either unimportant or taken for granted. ~~Robert M. Pirsig
+ - Dude, what matters is if you’re happy. What matters is your future. What matters is that we get out of here in one piece. What matters is finding the truth of our own lives, not caring about what other people think is the truth of us. ~~A.S. King
+ - Lost time is never found again. ~~Benjamin Franklin
+ - When men speak ill of thee, live so that nobody will believe them. ~~Plato
+ - Your mind will answer most questions if you learn to relax and wait for the answer. ~~William S. Burroughs
+
+40 quotes

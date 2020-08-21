@@ -1,0 +1,49 @@
+ - The Peace Corps represents some, if not all, of the best virtues in this society. It stands for everything that America has ever stood for. It stands for everything we believe in and hope to achieve in the world.
+ - Peace requires the simple but powerful recognition that what we have in common as human beings is more important and crucial than what divides us.
+ - Just to travel is rather boring, but to travel with a purpose is educational and exciting.
+ - What can change the world today is the same thing that has changed it in the past-an idea and the service of dedicated, committed individuals to that idea.
+ - Shatter the glass. In our society that is so self-absorbed, begin to look less at yourself and more at each other. Learn more about the face of your neighbor and less about your own.
+ - My parents had always preached the virtues of hard work. But hard work is one thing; economic struggle is another.
+ - Racists are irrational and illogical in their attempts to justify their prejudices.
+ - The Peace Corps would give thousands of young Americans a chance to see at first hand the conditions in remote areas of the world.
+ - But as a philosopher said, one day after mastering the winds, the waves, the tides and gravity, after all the scientific and technological achievements, we shall harness for God the energies of love. And then, for the second time in the history of the world, man will have discovered fire.
+ - Serve, serve, serve. Because in the end, it will be the servants who save us all.
+ - A line has to be drawn somewhere between what is essential and what is peripheral.
+ - The most important thing that I know about living is love. Nothing surpasses the benefits received by a human being who makes compassion and love the objective of his or her life. For it is only by compassion and love that anyone fulfills successfully their own life’s journey. Nothing equals love.
+ - It’s the most rewarding thing to be a civil servant.
+ - We must treat the disease of racism. This means we must understand the disease.
+ - It is well to be prepared for life as it is, but it is better to be prepared to make life better than it is.
+ - The Peace Corps is guilty of enthusiasm and a crusading spirit. But we’re not apologetic about it.
+ - I want to warn anyone who sees the Peace Corps as an alternative to the draft that life may well be easier at Fort Dix or at apost in Germany than it will be with us.
+ - As far as I was concerned, the Depression was an ill wind that blew some good. If it hadn’t occurred, my parents would have given me my college education. As it was, I had to scrabble for it.
+ - It is not what you get out of life that counts. It’s what you give and what is given from the heart.
+ - Respect for another man’s opinion is worthy. It is the realization that any opinion is valuable, for it is the sign of a rational being.
+ - The roots of racism lie deep in man’s nature, wounded and bruised by original sin.
+ - The only genuine elite is the elite of those men and women who gave their lives to justice and charity.
+ - Any idealist who tries to join the Peace Corps must realize he is not going to change the world overnight.
+ - The natural idealism of youth is an idealism, alas, for which we do not always provide as many outlets as we should.
+ - Working in an underdeveloped land for two or three years, the volunteer will often find that his work is routine and full of frustration.
+ - If education does not create a need for the best in life, then we are stuck in an undemocratic, rigid caste society.
+ - I don’t think the Gallup Poll technique is going to be very helpful in determining the goals of our educational system.
+ - In the Peace Corps, the volunteer must be a fully developed, mature person. He must not join to run abroad or escape problems.
+ - If a young person has any idealism at all, it’s strongest about the time he finishes college.
+ - Christian virtues unite men. Racism separates them.
+ - Does politics have to be injected into everything?
+ - Jews have suffered persecution from misguided Christians who tortured the Jews for their part in killing Christ. These Christians forgot that Christ died because of the sins of all men.
+ - It is precisely our job as Catholics to speak the truth as plainly and precisely as we can.
+ - Being accused of enthusiasm is something I’ll never live down.
+ - One of the things Mr. Kennedy taught me was that in laying out a new project, you shouldn’t try to cope with every little problem.
+ - Do we talk about the dignity of work? Do we give our students any reason for believing it is worthwhile to sacrifice for their work because such sacrifices improve the psychological and mental health of the person who makes them?
+ - Racism cannot be cured solely by attacking some of the results it produces, like discrimination in housing or in education.
+ - I believe strongly in the Constitutional principle of separating church and state. Our founders were right in fearing that religious freedom would be threatened in the long run by a departure from governmental neutrality in spiritual matters.
+ - I don’t have to run the Peace Corps. I could live without seeing my picture in the newspapers and without being interviewed.
+ - He who knows all things and believes nothing is damned.
+ - My parents were second cousins. That is enough to explain all of my peculiarities.
+ - When Roosevelt came along, I approved of his program, generally. I figured an economic system should work for people, not vice versa.
+ - I can remember at college, living on 30-cent meals.
+ - I do not think that the educational program of our schools should be determined by what the community thinks it needs.
+ - I never ride just to ride. I ride to catch a fox. I play baseball to make the team.
+ - Do the job first. Worry about the clearance later.
+ - Joe Kennedy isn’t in the habit of having incompetents around. I wouldn’t have lasted three months if I didn’t have some ability.
+
+47 quotes

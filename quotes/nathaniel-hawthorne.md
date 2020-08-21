@@ -1,0 +1,223 @@
+ - Easy reading is damn hard writing.
+ - Words – so innocent and powerless as they are, as standing in a dictionary, how potent for good and evil they become in the hands of one who knows how to combine them.
+ - No man for any considerable period can wear one face to himself and another to the multitude, without finally getting bewildered as to which may be the true.
+ - She had not known the weight until she felt the freedom.
+ - Happiness is a butterfly, which when pursued, is always just beyond your grasp, but which, if you will sit down quietly, may alight upon you.
+ - Families are always rising and falling in America.
+ - Every individual has a place to fill in the world and is important in some respect whether he chooses to be so or not.
+ - Happiness is like a butterfly – the more you chase, the more subtle, but if you stop moving and quietly wait for it to land on you.
+ - Generosity is the flower of justice.
+ - Love, whether newly born, or aroused from a deathlike slumber, must always create sunshine, filling the heart so full of radiance, this it overflows upon the outward world.
+ - The thing you set your mind on is the thing you ultimately become.
+ - Writing can come naturally to some. Still, when it comes to good writing, this is true: Easy reading is damn hard writing.
+ - Time flies over us, but leaves its shadow behind.
+ - A woman’s chastity consists, like an onion, of a series of coats.
+ - We dream in our waking moments, and walk in our sleep.
+ - Accuracy is the twin brother of honesty; inaccuracy, of dishonesty.
+ - What we call real estate – the solid ground to build a house on – is the broad foundation on which nearly all the guilt of this world rests.
+ - Life is made up of marble and mud.
+ - Cupid in these latter times has probably laid aside his bow and arrow, and uses fire-arms – a pistol – perhaps a revolver.
+ - It is to the credit of human nature that, except where its selfishness is brought into play, it loves more readily than it hates.
+ - We go all wrong by too strenuous a resolution to go right.
+ - Death was too definite an object to be wished for or avoided.
+ - To do nothing is the way to be nothing.
+ - Romance and poetry, ivy, lichens and wallflowers need ruin to make them grow.
+ - Masculine observers, if the birth-mark did not heighten their admiration, contented themselves with wishing it away, that the world might possess one living specimen of ideal loveliness, without the semblance of a flaw.
+ - There is no season when such pleasant and sunny spots may be lighted on, and produce so pleasant an effect on the feelings as now in October.
+ - In the depths of every heart there is a tomb and a dungeon, though the lights, the music, and the revelry above may cause us to forget their existence...
+ - Methinks it is a token of healthy and gentle characteristics, when women of high thoughts and accomplishments love to sew; especially as they are never more at home with their own hearts than while so occupied.
+ - Trusting no man as his friend, he could not recognize his enemy when the latter actually appeared.
+ - I wish I had the gift of making rhymes, for methinks there is poetry in my head and heart since I have been in love with you.
+ - Now are ye undeceived. Evil is the nature of mankind. Evil must be your only happiness. Welcome again, my children, to the communion of your race.
+ - I have laughed, in bitterness and agony of heart, at the contrast between what I seem and what I am!
+ - What we need for our happiness is often close at hand, if we knew but how to seek for it.
+ - Sleeping or waking, we hear not the airy footsteps of the strange things that almost happen.
+ - No, my little Pearl! Thou must gather thine own sunshine. I have none to give thee.
+ - A pure hand needs no glove to cover it.
+ - My heart was a habitation large enough for many guests, but lonely and chill, and without a household fire. I longed to kindle one! It seemed not so wild a dream.
+ - What other dungeon is so dark as one’s own heart! What jailer so inexorable as one’s self!
+ - The greatest obstacle to being heroic is the doubt whether one may going to prove one’s self a fool.
+ - Mountains are earth’s undecaying monuments.
+ - I want nothing to do with politicians. Their hearts wither away, and die out of their bodies. Their consciences are turned to india-rubber, or to some substance as black as that, and which will stretch as much.
+ - This dull river has a deep religion of its own; so, let us trust, has the dullest human soul, though, perhaps, unconsciously.
+ - Happiness is like a butterfly...
+ - Language,-human language,-after all is but little better than the croak and cackle of fowls, and other utterances of brute nature,-sometimes not so adequate.
+ - It loves more readily than it hates.
+ - But, all this while, I was giving myself very unnecessary alarm. Providence had mediated better things for me than I could possibly imagine for myself.
+ - Let the attempt be made, at whatever risk.
+ - Bees are sometimes drowned in the honey which they collectso some writers are lost in their collected learning.
+ - There is evil in every human heart, which may remain latent, perhaps, through the whole of life; but circumstances may rouse it to activity.
+ - There is something truer and more real, than what we can see with the eyes, and touch with the finger.
+ - She could no longer borrow from the future to ease her present grief.
+ - There is an alchemy of quiet malice by which women can concoct a subtle poison from ordinary trifles.
+ - Let the black flower blossom as it may!
+ - Sunlight is like the breath of life to the pomp of autumn.
+ - Truth often finds its way to the mind close muffled in robes of sleep, and then speaks with uncompromising directness of matters in regard to which we practise an unconscious self-deception during our waking moments.
+ - I heard a neigh. Oh, such a brisk and melodious neigh it was. My very heart leapt with the sound.
+ - A writer of story books! What kind of business in life-what mode of glorifying God, or being serviceable to mankind in his day and generation-may that be? Why, the degenerate fellow might as well have been a fiddler!
+ - The world surely has not another place like Oxford; it is a despair to see such a place and ever to leave it, for it would take a lifetime and more than one to comprehend and enjoy it satisfactorily.
+ - The fiend in his own shape is less hideous than when he rages in the breast of men.
+ - The trees reflected in the river – they are unconscious of a spiritual world so near to them. So are we.
+ - Oh, for the years I have not lived, but only dreamed of living.
+ - It is a little remarkable, that – though disinclined to talk overmuch of myself and my affairs at the fireside, and to my personal friends – an autobiographical impulse should twice in my life have taken possession of me, in addressing the public.
+ - In youth men are apt to write more wisely than they really know or feel; and the remainder of life may be not idly spent in realizing and convincing themselves of the wisdom which they uttered long ago.
+ - We sometimes congratulate ourselves at the moment of waking from a troubled dream; it may be so the moment after death.
+ - She wanted – what some people want throughout life – a grief that should deeply touch her, and thus humanize and make her capable of sympathy.
+ - She poured out the liquid music of her voice to quench the thirst of his spirit.
+ - If the truth were to be known, everyone would be wearing a scarlet letter of one form or another.
+ - Earth has one angel less and heaven one more, since yesterday.
+ - If a man, sitting all alone, cannot dream strange things, and make them look like truth, he need never try to write romances.
+ - The moment when a man’s head drops off is seldom or never, I am inclined to think, precisely the most agreeable of his life.
+ - Our Creator would never have made such lovely days, and have given us the deep hearts to enjoy them, above and beyond all thought, unless we were meant to be immortal.
+ - Unquestionably we do stand by our national flag as stoutly as any people in the world; and I myself have felt the heart-throb at sight of it, as sensibly as other men.
+ - New England is quite as large a lump of earth as my heart can really take in.
+ - Every crime destroys more Edens than our own.
+ - As the moral gloom of the world overpowers all systematic gaiety, even so was their home of wild mirth made desolate amid the sad forest.
+ - Just as there comes a warm sunbeam into every cottage window, so comes a lovebeam of God’s care and pity for every separate need.
+ - Though we speak nonsense, God will pick out the meaning of it.
+ - The inward pleasure of imparting pleasure – that is the choicest of all.
+ - Let men tremble to win the hand of woman, unless they win along with it the utmost passion of her heart!
+ - When an uninstructed multitude attempts to see with its eyes, it is exceedingly apt to be deceived.
+ - All brave men love; for he only is brave who has affections to fight for, whether in the daily battle of life, or in physical contests.
+ - Death should take me while I am in the mood.
+ - What is there so ponderous in evil, that a thumb’s bigness of it should outweigh the mass of things not evil, which were heaped into the other scale!
+ - The marble keeps merely a cold and sad memory of a man who would else be forgotten. No man who needs a monument ever ought to have one.
+ - A hero cannot be a hero unless in a heroic world.
+ - The world owes all its onward impulses to men ill at ease. The happy man inevitably confines himself within ancient limits.
+ - But this had been a sin of passion, not of principle, nor even purpose.
+ - There is no such thing in man’s nature as a settled and full resolve either for good or evil, except at the very moment of execution.
+ - Pleasant is a rainy winter’s day, within doors! The best study for such a day, or the best amusement, – call it which you will, – is a book of travels, describing scenes the most unlike that sombre one.
+ - When a writer calls his work a Romance, it need hardly be observed that he wishes to claim a certain latitude, both as to its fashion and material, which he would not have felt himself entitled to assume had he professed to be writing a Novel.
+ - Life, within doors, has few pleasanter prospects than a neatly-arranged and well-provisioned breakfast-table.
+ - Death is so genuine a fact that it excludes falsehoods, or betrays its emptiness; it is a touchstone that proves the gold, and dishonors the baser metal.
+ - Be true! Be true! Be true! Show freely to the world, if not your worst, yet some trait whereby the worst may be inferred!
+ - When the Artist rises high enough to achieve the Beautiful, the symbol by which he makes it perceptible to mortal senses becomes of little value in his eyes, while his spirit possesses itself in the enjoyment of the reality.
+ - Religion and art spring from the same root and are close kin. Economics and art are strangers.
+ - A bodily disease which we look upon as whole and entire within itself, may after all, be but a symptom of some ailment in the spiritual part.
+ - To the untrue man, the whole universe is false- it is impalpable- it shrinks to nothing within his grasp. And he himself is in so far as he shows himself in a false light, becomes a shadow, or, indeed, ceases to exist.
+ - Labor is the curse of the world, and nobody can meddle with it without becoming proportionately brutalized.
+ - But she named the infant “Pearl,” as being of great price-purchased with all she had-her mother’s only treasure!
+ - It is remarkable, that persons who speculate the most boldly often conform with the most perfect quietude to the external regulations of society. The thoughts alone suffice them, without investing itself in the flesh and blood of action.
+ - The only sensible ends of literature are, first, the pleasurable toil of writing; second, the gratification of one’s family and friends; and lastly, the solid cash.
+ - Eager souls, mystics and revolutionaries, may propose to refashion the world in accordance with their dreams; but evil remains, and so long as it lurks in the secret places of the heart, utopia is only the shadow of a dream.
+ - When scattered clouds are resting on the bosoms of hills, it seems as if one might climb into the heavenly region, earth being so intermixed with sky, and gradually transformed into it.
+ - And there I sat, long long ago, waiting for the world to know me.
+ - Man is a wretch without woman; but woman is a monster-and thank Heaven, an almost impossible and hitherto imaginary monster – without man, as her acknowledged principal!
+ - I cannot endure to waste anything as precious as autumn sunshine by staying in the house. So I spend almost all the daylight hours in the open air.
+ - A man’s bewilderment is the measure of his wisdom.
+ - The divine chemistry works in the subsoil.
+ - Depending upon one another’s hearts, ye had still hoped that virtue were not all a dream. Now are ye undeceived. Evil is the nature of mankind.
+ - A singular fact, that, when man is a brute, he is the most sensual and loathsome of all brutes.
+ - Insincerity in a man’s own heart must make all his enjoyments, all that concerns him, unreal; so that his whole life must seem like a merely dramatic representation.
+ - Death possesses a good deal, of real estate, namely, the graveyard in every town.
+ - I find nothing so singular to life as that everything appears to lose its substance the instant one actually grapples with it.
+ - If human love hath power to penetrate the veil – and hath it not? – then there are yet living here a few who have the blessedness of knowing that an angel loves them.
+ - It is my opinion that a man’s soul may be buried and perish under a dung-heap, or in a furrow field, just as well as under a pile of money.
+ - It contributes greatly towards a man’s moral and intellectual health, to be brought into habits of companionship with individuals unlike himself, who care little for his pursuits, and whose sphere and abilities he must go out of himself to appreciate.
+ - Faith is a grand cathedral, with divinely pictured windows – standing without, you can see no glory, nor can imagine any, but standing within every ray of light reveals a harmony of unspeakable splendors.
+ - Articulate words are a harsh clamor and dissonance. When man arrives at his highest perfection, he will again be dumb.
+ - You can get assent to almost any proposition so long as you are not going to do anything about it.
+ - Honesty and wisdom are such a delightful pastime, at another person’s expense!
+ - Selfishness is one of the qualities apt to inspire love.
+ - The Christian faith is a grand cathedral with divinely pictured windows.
+ - The love of science to rival the love of woman, in its depth and absorbing energy.
+ - Is it a fact-or have I dreamt it-that, by means of electricity, the world of matter has become a great nerve, vibrating thousands of miles in a breathless point of time?
+ - Let us acknowledge it wiser, if not more sagacious to follow out one’s day-dream to its natural consummation, although if the vision has been worth the having, it is certain never to be consummated otherwise than by a failure.
+ - Yesterday I visited the British Museum; an exceedingly tiresome affair. It quite crushes a person to see so much at once; and I wandered from hall to hall with a weary and heavy heart. The present is burdened too much with the past.
+ - There is something more awful in happiness than in sorrow – the latter being earthly and finite, the former composed of the substance and texture of eternity, so that spirits still embodied may well tremble at it.
+ - Nobody will use other people’s experience, nor have any of his own till it is too late to use it.
+ - Echo is the voice of a reflection in a mirror.
+ - All merely graceful attributes are usually the most evanescent.
+ - In this republican country, amid the fluctuating waves of our social life, somebody is always at the drowning-point.
+ - A grave, wherever found, preaches a short and pithy sermon to the soul.
+ - Genius, indeed, melts many ages into one, and thus effects something permanent, yet still with a similarity of office to that of the more ephemeral writer. A work of genius is but the newspaper of a century, or perchance of a hundred centuries.
+ - Dream strange things and make them look like truth.
+ - What a happy and holy fashion it is that those who love one another should rest on the same pillow.
+ - We sometimes congratulate ourselves...
+ - A stale article, if you dip it in a good, warm, sunny smile, will go off better than a fresh one that you’ve scowled upon.
+ - Wherever there is a heart and an intellect, the diseases of the physical frame are tinged with the peculiarities of these.
+ - Caresses, expressions of one sort or another, are necessary to the life of the affections as leaves are to the life of a tree. If they are wholly restrained, love will die at the roots.
+ - The traveller knows not who may be concealed by the innumerable trunks and the thick boughs overhead; so that with lonely footsteps he may yet be passing through an unseen multitude.
+ - Most people are so constituted that they can only be virtuous in a certain routine; an irregular course of life demoralizes them.
+ - What is the voice of song when the world lacks the ear of taste?
+ - Our most intimate friend is not he to whom we show the worst, but the best of our nature.
+ - The present is burdened too much with the past. We have not time, in our earthly existence, to appreciate what is warm with life, and immediately around us.
+ - Cannot you conceive that another man may wish well to the world and struggle for its good on some other plan than precisely that which you have laid down?
+ - My wife is – in the strictest sense – my sole companion, and I need no other. There is no vacancy in my mind any more than in my heart.
+ - Do anything, save to lie down and die!
+ - Nobody, I think, ought to read poetry, or look at pictures or statues, who cannot find a great deal more in them than the poet or artist has actually expressed. Their highest merit is suggestiveness.
+ - Sunlight is painting.
+ - Nervous and excitable persons need to talk a great deal, by way of letting off their steam.
+ - How is it possible to sayan unkind or irreverential word of Rome? The city of all time, and of all the world!
+ - This world owes all its forward impulses to people ill at ease.
+ - My fortune somewhat resembled that of a person who should entertain an idea of committing suicide, and, altogether beyond his hopes, meet with the good hap to be murdered.
+ - This above all: be true, be true, be true.
+ - A few feathery flakes are scattered widely through the air, and hover downward with uncertain flight, now almost alighting on the earth, now whirled again aloft into remote regions of the atmosphere.
+ - Would Time but await the close of our favorite follies, we should all be young men, all of us, and until Doom’s Day.
+ - The world, that grey-bearded and wrinkled profligate, decrepit, without being venerable.
+ - The ideas of people in general are not raised higher than the roofs of the houses. All their interests extend over the earth’s surface in a layer of that thickness. The meeting-house steeple reaches out of their sphere.
+ - Nobody has any conscience about adding to the improbabilities of a marvelous tale.
+ - The love of posterity is the consequence of the necessity of death. If a man were sure of living forever here, he would not care about his offspring.
+ - We men of study, whose heads are in our books, have need to be straightly looked after! We dream in our waking moments, and walk in our sleep.
+ - If we would know what heaven is before we come thither, let us retire into the depths of our own spirits, and we shall find it there among holy thoughts and feelings.
+ - It is because the spirit is inestimable, that the lifeless body is so little valued.
+ - Every young sculptor seems to think that he must give the world some specimen of indecorous womanhood, and call it Eve, Venus, a Nymph, or any name that may apologize for a lack of decent clothing.
+ - I have come to see the nonsense of trying to describe fine scenery.
+ - Salt is white and pure – there is something holy in salt.
+ - It was one of those moments – which sometimes occur only at the interval of years – when a man’s moral aspect is faithfully revealed to his mind’s eye. Not improbably, he had never before viewed himself as he did now.
+ - We do ourselves wrong, and too meanly estimate the holiness above us, when we deem that any act or enjoyment good in itself, is not good to do religiously.
+ - Moonlight is sculpture.
+ - Technologies of easy travel give us wings; they annihilate the toil and dust of pilgrimage; they spiritualize travel! Transition being so facile, what can be any man’s inducement to tarry in one spot?
+ - In our nature, however, there is a provision, alike marvelous and merciful, that the sufferer should never know the intensity of what he endures by its present torture, but chiefly by the pang that rankles after it.
+ - If cities were built by the sound of music, then some edifices would appear to be constructed by grave, solemn tones, – others to have danced forth to light fantastic airs.
+ - Women are safer in perilous situations and emergencies than men, and might be still more so if they trusted themselves more confidingly to the chivalry of manhood.
+ - I love my mother, but there has been, ever since my boyhood, a sort of coldness of intercourse between us, such as is apt to come between people of strong feelings.
+ - An unhappy gentleman, resolving to wed nothing short of perfection, keeps his heart and hand till both get so old and withered that no tolerable woman will accept them.
+ - Man’s own youth is the world’s youth; at least he feels as if it were, and imagines that the earth’s granite substance is something not yet hardened, and which he can mould into whatever shape he likes.
+ - Or-but this more rarely happened-she would be convulsed with a rage of grief, and sob out her love for her mother, in broken words, and seem intent on proving that she had a heart, by breaking it.
+ - There is no greater bugbear than a strong willed relative in the circle of his own connections.
+ - The heart of true womanhood knows where its own sphere is, and never seeks to stray beyond it!
+ - The greatest possible mint of style is to make the words absolutely disappear into the thought.
+ - Strength is incomprehensible by weakness, and, therefore, the more terrible.
+ - Life figures itself to me as a festal or funereal procession.
+ - Mankind are earthen jugs with spirits in them.
+ - When individuals approach one another with deep purposes on both sides they seldom come at once to the matter which they have most at heart. They dread the electric shock of a too sudden contact with it.
+ - Men of cold passions have quick eyes.
+ - Come, therefore, and let us fling mud at them!
+ - The book, if you would see anything in it, requires to be read in the clear, brown, twilight atmosphere in which it was written; if opened in the sunshine, it is apt to look exceedingly like a volume of blank pages.
+ - One picture in ten thousand, perhaps, ought to live in the applause of mankind, from generation to generation until the colors fade and blacken out of sight or the canvas rot entirely away.
+ - Who can tell where happiness may come, or where, though an expected guest, it may never show its face?
+ - Many writers lay very great stress upon some definite moral purpose, at which they profess to aim their works.
+ - It is not good for man to cherish a solitary ambition. Unless there be those around him, by whose example he may regulate himself, his thoughts, desires, and hopes will become extravagant, and he the semblance, perhaps the reality, of a madman.
+ - A human spirit may find no insufficiency of food fit for it, even in the Custom House.
+ - There is great incongruity in this idea of monuments, since those to whom they are usually dedicated need no such recognition to embalm their memory; and any man who does, is not worthy of one.
+ - The greatest obstacle to being heroic is the doubt whether one may not be going to prove one’s self a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed.
+ - Such has often been my apathy, when objects long sought, and earnestly desired, were placed within my reach.
+ - I do detest all offices – all, at least, that are held on a political tenure.
+ - What would a man do, if he were compelled to live always in the sultry heat of society, and could never bathe himself in cool solitude?
+ - Not yet hardened, many young die good.
+ - The evening before my departure for Blithedale, I was returning to my bachelor-apartments, after attending the wonderful exhibition of the Veiled Lady, when an elderly-man of rather shabby appearance met me in an obscure part of the street.
+ - Keep the imagination sane – that is one of the truest conditions of communion with heaven.
+ - What, in the name of common-sense, had I to do with any better society than I had always lived in?
+ - No fountain so small but that Heaven may be imaged in its bosom.
+ - Thus we see, too, in the world that some persons assimilate only what is ugly and evil from the same moral circumstances which supply good and beautiful results – the fragrance of celestial flowers – to the daily life of others.
+ - Ugliness without tact is horrible.
+ - A man – poet, prophet, or whatever be may be – readily persuades himself of his right to all the worship that is voluntarily tendered.
+ - Those with whom we can apparently become well acquainted in a few moments are generally the most difficult to rightly know and to understand.
+ - We must not always talk in the market-place of what happens to us in the forest.
+ - The calmer thought is not always the right thought, just as the distant view is not always the truest view.
+ - It is very singular how the fact of a man’s death often seems to give people a truer idea of his character, whether for good or evil, than they have ever possessed while he was living and acting among them.
+ - The best of us being unfit to die, what an unexpressible absurdity to put the worst to death.
+ - Some maladies are rich and precious and only to be acquired by the right of inheritance or purchased with gold.
+ - To be left alone in the wide world with scarcely a friend, – this makes the sadness which, striking its pang into the minds of the young and the affectionate, teaches them too soon to watch and interpret the spirit-signs of their own hearts.
+ - The present is burthened too much with the past.
+ - There are many things in this world that a child must not ask about.
+ - We are as happy as people can be, without making themselves ridiculous, and might be even happier; but, as a matter of taste, we choose to stop short at this point.
+ - As a general rule, Providence seldom vouchsafes to mortals any more than just that degree of encouragement which suffices to keep them at a reasonably full exertion of their powers.
+ - A vast deal of human sympathy runs along the electric line of needlework, stretching from the throne to the wicker chair of the humble seamstress.
+ - London is like the grave in one respect – any man can make himself at home there; and whenever a man finds himself homeless elsewhere, he had better either die or go to London.
+ - He whose genius appears deepest and truest excels his fellows in nothing save the knack of expression; he throws out occasionally a lucky hint at truths of which every human soul is profoundly though unutterably conscious.
+ - What a sweet reverence is that when a young man deems his mistress a little more than mortal and almost chides himself for longing to bring her close to his heart.
+ - No summer ever came back, and no two summers ever were alike. Times change, and people change; and if our hearts do not change as readily, so much the worse for us.
+
+221 quotes

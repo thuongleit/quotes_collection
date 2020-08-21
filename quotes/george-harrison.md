@@ -1,0 +1,171 @@
+ - If you don’t know where you’re going, any road’ll take you there.
+ - It’s all in the mind.
+ - Give me love, give me peace on earth, give me light, give me life.
+ - Life goes on within you and without you.
+ - All things must pass, all things must pass away.
+ - With every mistake, we must surely be learning.
+ - Hare Krishna, Peace and Love.
+ - Try to realize it’s all within yourself no one else can make you change, and to see you’re only very small and life flows on within you and without you.
+ - My life belongs the Lord Krishna now. I’m just the servant of Krishna. I’ve never been so humble in all my life, and I feel great!
+ - I believe what it says in the scriptures and in the Bhagavad Gita: ‘Never was there a time when you did not exist, and there never will be a time when you cease to exist.’
+ - You go on being reincarnated until you reach the actual Truth. Heaven and Hell are just a state of mind. We are all here to become Christ-like. The actual world is an illusion.
+ - It’s being here now that’s important. There’s no past and there’s no future. Time is a very misleading thing. All there is ever, is the now. We can gain experience from the past, but we can’t relive it; and we can hope for the future, but we don’t know if there is one.
+ - All the world is birthday cake, so take a piece, but not too much.
+ - Beware of sadness It can hit you It can hurt you Make you sore and what is more That is not what you are here for.
+ - Give me love Give me love Give me peace on earth Give me light Give me life Keep me free from birth Give me hope Help me cope, with this heavy load Trying to, touch and reach you with, heart and soul.
+ - We have the same qualities as God, just like a drop of the ocean has the same qualities as the whole ocean. Everybody’s looking for something and we are it. We don’t have to look anywhere – it’s right there within ourselves.
+ - With our love, we could save the world.
+ - My sweet Lord, hallelujah. My, my Lord, hallelujah. My, my Lord, hare krishna.
+ - Some things take so long But how do I explain When not too many people Can see we’re all the same And because of all their tears Your eyes can’t hope to see The beauty that surrounds them Now, isn’t it a pity.
+ - When you’ve seen beyond yourself, then you may find, peace of mind is waiting there.
+ - I’m only myself when I have a guitar in my hands.
+ - All religions are branches of one big tree. It doesn’t matter what you call Him just as long as you call.
+ - All I got to be is be happy.
+ - In the end, this world will go under because of the stupidity of people.
+ - Make love, take love, but you should give love. And try to live love.
+ - The world is a very serious and, at times, very sad place – but at other times it is all such a joke.
+ - Now the darkness only stays at night time In the morning it will fade away Daylight is good at arriving at the right time No it’s not always going to be this grey.
+ - Why live in the darkness all your life? Why, if you are unhappy, if you are having a miserable time, why not just look at it? Why are you in the darkness? Look for the light. The light is within.
+ - Sunrise doesn’t last all morning, a cloudburst doesn’t last all day, seems my love is up and has left you with no warning. It’s not always going to be this grey. All things must pass, all things must pass away.
+ - We are not these bodies, just souls having a bodily experience.
+ - Without going out of my door, I can know all things on earth. Without looking out of my window I could know the ways of heaven. The farther one travels, The less one knows, the less one really knows.
+ - The only thing we really have to work at in this life is how to manifest love.
+ - We were talking about the space between us all and the people who hide themselves behind a wall of illusion. Never glimpse the truth – then it’s far too late when they pass away.
+ - Yesterday, today was tomorrow. And tomorrow, today will be yesterday.
+ - My life belongs to me, my love belongs to those who can see it.
+ - I remember thinking I just want more. This isn’t it. Fame is not the goal. Money is not the goal. To be able to know how to get peace of mind, how to be happy, is something you don’t just stumble across. You’ve got to search for it.
+ - I fell in love, not with anything or anybody in particular but with everything.
+ - Everything else can wait, but the search for God cannot wait.
+ - I don’t know how you were diverted You were perverted too. I don’t know how you were inverted No one alerted you.
+ - Everyone has choice when to and not to raise their voices: It’s you who decides.
+ - I’m really quite simple. I don’t want to be in the business full time because I’m a gardener. I plant flowers and watch them grow. I don’t go out to clubs and partying. I stay at home and watch the river flow.
+ - You can be standing right in front of the truth and not necessarily see it, and people only get it when they’re ready to get it.
+ - It is better to be an outspoken atheist than a hypocrite.
+ - All religions are branches of one big tree.
+ - And the time will come when you see we’re all one, and life flows on within you and without you.
+ - Scan not a friend with a microscopic glass, you know his faults, now let the foibles pass.
+ - It’s being here now that’s important. There’s no past and there’s no future. All there is ever, is the now.
+ - It’s easier to criticize somebody else, than to see yourself.
+ - The Beatles will go on and on.
+ - I’m a dark horse, running on a dark race course.
+ - I’ve been the same all along. I talk when I feel like it and I shut up when I don’t feel like talking.
+ - I still practice Transcendental Meditation and I think it’s great. Marharishi only ever did good for us, and although I have not been with him physically, I never left him.
+ - Been stuck in airports, terrorized; sent to meetings, hypnotized; overexposed, commercialized. Handle me with care.
+ - The Beatles exist apart from my Self. I am not really Beatle George. Beatle George is like a suit or shirt that I once wore on occasion and until the end of my life people may see that shirt and mistake it for me.
+ - The world is ready for a mystic revolution, a discovery of the God in each of us.
+ - As long as you hate, there will be people to hate.
+ - You’re asking me will my love grow. I don’t know, I don’t know. You stick around now it may show. I don’t know, I don’t know.
+ - I’ve got my mind set on you. But it’s gonna take money, a whole lot of spending money, it’s gonna take plenty of money.
+ - If you drive a car, I’ll tax the street; if you try to sit, I’ll tax your seat; if you get too cold, I’ll tax the heat; if you take a walk, I’ll tax your feet.
+ - Everyone should have themselves regularly overwhelmed by Nature.
+ - Show me that I m everywhere and get me home for tea.
+ - Rap music is just computerised crap. I listen to Top of the Pops and after three songs I feel like killing someone.
+ - I don’t want to be a film star. I don’t even want to be a pop star. I just want to live in peace.
+ - Ultimately the love can become so big that we can love the whole of creation instead of ‘I love this but I don’t like that.’
+ - Gossip is the Devil’s radio.
+ - If you drop out you put yourself further away from the goal of life than if you were to keep working.
+ - America has everything, why should they want us.
+ - My son looks more like George Harrison than I do.
+ - The more I go inside, the more there is to see.
+ - I’ll play what you want or I won’t play at all.
+ - Through all ages, great saints have remained as living proof that this non-temporary, permanent state of God consciousness can be revived in all living souls.
+ - The nicest thing is to open the newspapers and not to find yourself in them.
+ - Life is like a rain drop on a lotus leaf. Everybody realises that you’re either very lucky person or you’re not.
+ - Death is just where your suit falls off and now you’re in your other suit. You can’t see it on this level, but it’s all right. Don’t worry.
+ - I keep stacks of Autobiography of a Yogi around the house, and I give it out constantly to people. When people need ‘regrooving,’ I say read this, because it cuts to the heart of every religion.
+ - Since our problems have been our own creation, they also can be overcome.
+ - Hippies are so phoney and fake.
+ - I’d rather be a musician than a rockstar.
+ - The smile on your face is sometimes out of place, don’t mind no frowns, cheer down.
+ - It doesn’t really matter what chords I play, what words I say or time of day it is, as it’s only a Northern Song.
+ - Some got rabies, some got fleas, some got incurable diseases from this cockamamie business.
+ - Oh yeah, gossip. I heard you on the secret wireless. You know the devil’s radio child.
+ - I’m a tidy sort of bloke. I don’t like chaos. I kept records in the record rack, tea in the tea caddy, and pot in the pot box.
+ - Let me tell you how it will be. There’s one for you, nineteen for me. Cause I’m the taxman.
+ - You can actually see God, and Hear Him, play with Him. It might sound crazy, but He is actually there.
+ - There’s a fire that burns away the lies, manifesting in the spiritual eye.
+ - I’ll give up this sort of touring madness certainly, but music-everything is based on music. No, I’ll never stop my music.
+ - I didn’t notice him coming, but he didn’t seem to be looking for an autograph signature.
+ - You don’t need a passport and you don’t need no visas, you don’t need to designate or emigrate before you can see Jesus.
+ - Consciousness and meditation are methods where you can actually obtain GOD perception.
+ - Although Christ, in my mind is an absolute Yogi, I think many Christian teachers today are misrepresenting Christ.
+ - It’s easier to tell a lie, than to tell the truth. It’s easier to kill a fly, than it is to turn it loose.
+ - I consider myself perfectly normal, and I don’t know of any part of my life that would be so unusual as to interest the idly curious.
+ - No truth could ever fear me.
+ - If everyone who had a gun just shot themselves, there wouldn’t be a problem.
+ - For the forest to be green, each tree must be green.
+ - The microscopes that magnified the tears, studied warts and all. Still life flows on.
+ - The saddest thing was actually getting fed up with one another. It’s like growing up in a family. When you get to a certain age, you want to go off and get your own girl and your own car, split up a bit.
+ - After all we did for Britain, selling that corduroy and making it swing, all we got was a bit of tin on a piece of leather.
+ - I don’t believe in telling all to the public, but I feel a certain gratitude to them for having provided me with a fine material base that enables me to do pretty much what I want, possibly, for the rest of my life.
+ - You’ve got as many lives as you like, and more, even ones you don’t want.
+ - I don’t wear small shoes, or tight pants that squash your balls.
+ - Brainless writers gossip nonsense to others heads as dense as they is.
+ - We laughed a lot. That’s one thing we forgot about for a few years – laughing. When we went through all the lawsuits, it looked as if everything was bleak, but when I think back to before that, I remember we used to laugh all the time.
+ - I can see the Beatles sticking together forever, really. We’ve been together a long time.
+ - They used us as an excuse to go mad and then blamed it on us. Gandhi says create and preserve the image of your choice. The image of my choice is not Beatle George – those who want that can go and see Wings. Why live in the past? Be here now.
+ - I hope somebody does this to all my crap demos when I’m dead, making them into hit songs.
+ - I believe love – and its feminine, though not necessarily female, counterpart, romance, is a private thing. It’s something I’m not willing to share with the public.
+ - A mind that wants to wander around a corner is an un-wise mind. Now, is, be here now.
+ - Barney Kessel is definitely the best guitar player in this world, or any other world.
+ - The Beatles saved the world from boredom.
+ - The world used us as an excuse to go mad.
+ - Now it may seem so far from where we all are It’s something we can’t neglect It’s something I can’t neglect Now won’t you give some bread to get the starving fed.
+ - No-one knows what I do in my private, spare time, so I don’t see why anyone would assume I’m celibate or somehow turning into a Garboesque character.
+ - I don’t feel the need for unusual or glamorous foods like caviar, and I tend more towards ordinary, satisfying food.
+ - And so my music, it doesn’t matter if I did it 20 years ago or if I did it tomorrow. It doesn’t go with trends. My trousers don’t get wider and tighter every six months. My music just stays what it is, and that’s the way I like it.
+ - Food is less important to me because I’ve learned to control my appetite to a great extent, simply by having my mind elsewhere. I find when I’m busy meditating on other aspects of my life I go without eating and I don’t miss it.
+ - Everything is Dinky Doo.
+ - I’d like to think that all the old Beatle fans have grown up and they’ve got married and they’ve all got kids and they’re all more responsible, but they still have a space in their hearts for us.
+ - I used to think that having many material things would increase one’s stock of happiness. I found that to be completely untrue. The trappings don’t make the man at all.
+ - I do believe in growing old gracefully, and when the time comes that I would look silly performing on stage, I’ll be prepared to give it up without regrets.
+ - Your own space, man, it’s so important. That’s why we were doomed because we didn’t have any. It is like monkeys in a zoo. They die. You know, everything needs to be left alone.
+ - If I had half a chance, I’d put acid in the Government’s tea.
+ - We were the Spice Boys.
+ - I was quite responsible for stirring things up. I conspired to get Ringo in for good; I talked to Paul and John until they came round to the idea.
+ - Didn’t want to be a star, wanted just to play guitar in this cockamamie business.
+ - Long time ago when we were fab, back when income tax was all we had.
+ - I’m not in the habit of having my photo snapped on some pretty young thing’s arm. I avoid pictures because they serve no purpose, except to point out each new line, which is very meaningless.
+ - Love, come and get it, it’s free.
+ - What’s often in your heart is the hardest to reach.
+ - It’s in the films and songs and all your magazines. It’s everywhere that you may go, the devil’s radio.
+ - If there’s a God, I want to see Him. It’s pointless to believe in something without proof.
+ - The Past is gone and the future might not even be, the only thing we ever experience is the now, I try to enjoy the minute.
+ - I’m grateful to myself and those closest to me me for having given me that non-material base that means I’m a happy man, one who doesn’t have to compete or engineer projects he doesn’t have his heart in.
+ - Here are some funny songs, there are some songs that we didn’t even remember. I heard this song that Ringo is singing, I still don’t know the title of it, but it is got the most amazing lyrics and it’s a quite a good production. And quite a good tun.
+ - If wed known we were going to be The Beatles wed have tried harder.
+ - Music should be used for the perception of God, not jitterbugging.
+ - I was so young when I was born.
+ - What do you think of the criticism that you’re not very good?
+ - As far as I’m concerned, there won’t be a Beatles reunion as long as John Lennon remains dead.
+ - It’s wonderful to look back and think you were part of a force that shaped modern music and influenced the public in so many ways. However, that’s all in the past.
+ - Dylan is so brilliant. To me, he makes William Shakespeare look like Billy Joel.
+ - Krishna is God, the source of all that exists, the cause of all that is, was, or ever will be.
+ - Dear one, near me, truth assessed, reborn worldwise, mind at rest. True heart sow you, God has blessed, your soul whispers, love confessed.
+ - Having played with other musicians, I don’t even think The Beatles were that good.
+ - There’s a bottomless heart hooked into all of you and it’s wondering how much you care.
+ - The people gave their money and they gave their screams, but the Beatles gave their nervous systems, which is a much more difficult thing to give.
+ - The first time I took LSD, it just blew everything away. I had such an incredible feeling of well-being.
+ - I have suffered for this book; now it’s your turn.
+ - Home life is best for me. But I do enjoy the company of good friends whether from long ago or newer friends who only know me as George, not the ex-Beatle.
+ - Throughout much of our lives, our association with the temporary has risen. This transitory body, a sack of bones and flesh, is considered erroneously as our true body and we have accepted this temporary condition as conclusive.
+ - Without looking out of my window I could know the ways of heaven.
+ - Anyway, there is one thing I have learned and that is not to dress uncomfortably, in styles which hurt: winklepicker shoes that cripple your feet and tight pants that squash your balls. Indian clothes are better.
+ - The biggest break in my career was getting into the Beatles in 1962. The second biggest break since then is getting out of them.
+ - If a car comes past me in a traffic jam with a boom box going, I jump out of my skin. Those big booming basses. I’m just more sensitive to noise these days.
+ - I don’t want to be like you. I look for the pure of heart, and the ones that have made a start.
+ - The thing that pleases me the most about it is that young people like it. It’s given kids from 6 to 16 an alternate view of music to what’s been available for the past 20 years.
+ - I wanted to be successful, not famous.
+ - The action that I’ve started, sometime I’ll have to face. My influence in motion, rebounding back through space.
+ - I’ve always wanted to lead an ordered, relatively conventional and private life.
+ - While everybody else was going mad, we were actually the sanest people in the whole thing.
+ - So it’s really a process of actually having a realization of God, which all becomes clear with the expanded state of consciousness that develops when you chant.
+ - This song ain’t black or white and as far as I know it don’t infringe on anyone’s copyright.
+ - It is an outrage that people can take other people’s lives when they obviously haven’t got their own lives in order.
+ - Just take the music, the goodness, because it’s the very best, and it’s the part I give most willingly.
+ - Even if it’s being a Beatle for the rest of my life, it’s still only a temporary thing.
+ - I’ve heard that while the show was on there were no reported crimes, or very few. When The Beatles were on Ed Sullivan, even the criminals had a rest for ten minutes.
+ - If your dog should be dead, I’m gonna love you instead.
+ - As a Beatle, my everyday life belonged to the public in one way or another. We were always appearing for the public in the early days, or we were planning for them, producing for them, interviewing for their sake, etc.
+
+169 quotes

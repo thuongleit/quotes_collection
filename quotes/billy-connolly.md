@@ -1,0 +1,111 @@
+ - There’s no such thing as bad weather – only the wrong clothes.
+ - I hate all those weathermen, too, who tell you that rain is bad weather. There’s no such thing as bad weather, just the wrong clothing, so get yourself a sexy raincoat and live a little.
+ - Don’t die until you’re dead.
+ - Don’t vote, it only encourages them.
+ - I decided to stop drinking while it was still my idea.
+ - If you give people a chance, they shine.
+ - There are two seasons in Scotland: June and Winter.
+ - Why are there no windows in the toilets on aeroplanes? To protect you from the most dedicated perverts on the planet, hanging off the wing to get a peep?
+ - Don’t tell me how to do my job. I don’t come to your workplace and tell you how to sweep up.
+ - Life is supposed to be fun. It’s not a job or occupation. We’re here only once and we should have a bit of a laugh.
+ - Never trust anybody with only one book.
+ - Where do you go when you die? The same place you were before you were born; nowhere! It’s over!
+ - Politically correct is the language of cowardice.
+ - I love fishing. It’s transcendental meditation with a punchline.
+ - When people say “it’s always the last place you look”. Of course it is. Why would you keep looking after you’ve found it?
+ - The desire to be a politician should bar you for life from ever being one.
+ - A lot of people are too easily offended. Religious people, for instance. They’ve been offending other people for centuries.
+ - The great thing about Glasgow is that if there’s a nuclear attack it’ll look exactly the same afterwards.
+ - It’s my mind, and I reserve the right to change it as often as I like.
+ - A well-balanced person has a drink in each hand.
+ - Scottish-Americans tell you that if you want to identify tartans, it’s easy – you simply look under the kilt, and if it’s a quarter-pounder, you know it’s a McDonald’s.
+ - Who discovered we could get milk from cows, and what did he THINK he was doing at the time?
+ - I don’t believe in angels and I have trouble with the whole God thing. I don’t want to say I don’t believe in God, but I don’t think I do. But I believe in people who do.
+ - Wisdom isn’t an old guy on top of a mountain in a loin cloth. It isn’t an answer. It’s a question.
+ - I love Los Angeles. It reinvents itself every two days.
+ - My definition of an intellectual is someone who can listen to the William Tell Overture without thinking of the Lone Ranger.
+ - I’ve always liked it here. Part of me is Irish. My family comes from the west coast, so whenever I come to Ireland I get a wee tingling in my heart that I’m where I belong.
+ - If I had a hammer, there’d be no more folksingers.
+ - If you want to lose a bit of weight, don’t eat anything out of a bucket.
+ - I’ve always wanted to go to Switzerland to see what the army does with those wee red knives.
+ - In Mexico, everything on the menu is the same dish. The only difference is the way it’s folded.
+ - Killing a guy and stealing his wife and child isn’t too nice a thing to do.
+ - If you haven’t heard a good rumour by 11:00am, start one.
+ - Marriage is a wonderful invention: then again, so is a bicycle repair kit.
+ - I think age is terribly overrated. You’re okay as long as you don’t grow up. By all means grow old, but don’t mature. Remain childlike, retain wonder, the ability to be flabbergasted by something.
+ - Don’t buy one of those baby intercoms. Babies pretend to be dead. They’re bastards, and they do it on purpose.
+ - Once you become successful, people know where you live, the type of house you live in, the kind of car you drive, the clothes you wear, and so it would be patronising to go and talk like a welder. Welding’s a mystery to me now. You can’t go back, your life changes every day.
+ - A woman’s mind is as complex as the contents of her handbag; even when you get to the bottom of it, there is ALWAYS something at the bottom to surprise you!
+ - I am totally, absolutely romantic. When I broke up with a girl I would listen to the most heart-breaking music and make it worse. That’s what girls do. I think I am a girl really.
+ - I have been made redundant before and it is a terrible blow; redundant is a rotten word because it makes you think you are useless.
+ - A mate of mine has just told me he’s shagging his girlfriend and her twin, I said how can you tell them apart, he said “her brothers got a moustache!”
+ - I can’t believe in Christianity, but I think Jesus was a wonderful teacher.
+ - Tread gently on anyone who looks at you sideways.
+ - The more you know the less the better.
+ - I’m actually pale blue: it takes me a week of sunbathing to turn white.
+ - Heckling is an act of cowardice. If you want to speak, get up in front of the microphone and speak, don’t sit in the dark hiding. It’s easy to hide and shout and waste people’s time.
+ - I started to draw desert islands. They were just rough, shapes in the middle of the page. Then I began drawing shapes within those shapes and I was amazed how quickly the islands got better. It took off from there.
+ - I became a welder. I was actually becoming an Engineer and I joined the wrong queue. And so I became a welder, without knowing what a welder was.
+ - I’ve always been fascinated by the difference between the jokes you can tell your friends but you can’t tell to an audience. There’s a fine line you have to tread because you don’t know who is out there in the auditorium. A lot of people are too easily offended.
+ - I’m a citizen of the world. I like it that way. The world’s a wonderful. I just think that some people are pretty badly represented. But when you speak to the people themselves they’re delightful. They all want so little.
+ - Scotland has the only football team in the world that does a lap of disgrace.
+ - The only time I would like to see was the 20s and 30s in America because I love the music and the style and the optimism, I wanted to see New York being built. I wanted to see all that, you know.
+ - Behind the proscenium arch, you can’t always hear what people in the audience are saying.
+ - I’d always been scared of people with tertiary education and high intellects in case they found me wanting. I thought they viewed me as just a welder who knew a few jokes.
+ - Never run with scissors or other pointy objects.
+ - When I was 12, we went from Glasgow to Aberdeen on a school trip. It was called fresh air fortnight.
+ - The world needs more Edwin Morgans, people who can take the language and swing it round their heads and don’t care what you think.
+ - When you involved in an accident and someone asks “are you alright?” Yes fine thanks, I’ll just pick up my limbs and be off.
+ - Avoid people who say they know the answer. Keep the company of people who are trying to understand the question.
+ - As soon as I got successful, the Scottish press started picking on me. It’s something they reserve just for me.
+ - I spent the whole time battering people I liked and singing with my arm round people I loathed.
+ - So, have you heard about the oyster who went to a disco and pulled a mussel?
+ - I once travelled to Adelaide on Emu Airways. I was 5,000 ft up in the air when someone pointed out to me that emus can’t fly.
+ - I like Dali and Magritte. I also like the Scottish artist John Byrne, another surrealist.
+ - It seems to me that Islam and Christianity and Judaism all have the same god, and he’s telling them all different things.
+ - The strangest thing is at tea breaks, or coffee breaks or lunch, you forget you’re a zombie. And you’re talking about politics to somebody at the table and you forget that you have a bullet hole in your forehead.
+ - Learn to feel sorry for music because, although it is the international language, it has no swear words.
+ - On George W Bush: That man sits at that desk in the White House with the button that can end the world. My father’s younger than him and we don’t give him the controls for the television.
+ - Now the country is in a terrible state and you’ve blamed it on a number of things – unemployment rate, the value of the pound, and all that. It’s actually because the national anthem is boring.
+ - Fame is being asked to sign your autograph on the back of a cigarette packet.
+ - I loved Japan. I used to read a lot about it when I was a child. And I always wanted to go. And it was delightful. I absolutely loved it. What a smashing place.
+ - Try to catch a trout and experience the glorious feeling of letting it go and seeing it swimming away.
+ - Without arts programmes there’s only reality TV, and reality TV needs the arts to show it what reality is.
+ - If Jesus was a Jew, how come he has a Mexican first name?
+ - I used to have Mad Cow’s disease, but I’m alright Nooooooooow.
+ - Honestly some folk will take offence at anything, I met a bloke with no legs this morning while at the bus stop, all I asked was “How are you getting on?”
+ - I was brought up a Catholic, for that you get an A level in guilt.
+ - Nothing means anything here. When they pull down an outstanding building, no one objects. Oh, maybe there’s a wee protest from some collectors or something who take a picture of it before it vanishes.
+ - I set out to be a cross between Lenny Bruce and Robert the Bruce – my main thrust was the body and its functions and malfunctions – the absurdity of the thing.
+ - I hate those earnest TV documentaries that are the world according to people with glasses who know better than you.
+ - My parents used to take me to the pet department and tell me it was a zoo.
+ - If you don’t know how to meditate at least try to spend some time every day just sitting.
+ - I don’t understand art-speak. My pictures are big doodles. I’m amazed what people come up with when they look at them. There’s one of a figure with two heads that somebody thought must be a comment on the state of matrimony. None of it is a comment on anything.
+ - When you’re eating something and someone asks ‘Is that nice?’ No it’s really revolting – I always eat stuff I hate.
+ - People die all the time. It’s just that you’re not around.
+ - I think my securities far outweigh my insecurities. I am not nearly as afraid of myself and my imagination as I used to be.
+ - Ally MacLeod thinks that tactics are a new kind of mint.
+ - Don’t work out, work in.
+ - I don’t have wild dogs chasing people with scripts away from my door. I get my share. I’ve done okay. But I usually do independent stuff because that’s mostly what I’m offered.
+ - Whenever I wear something expensive it looks stolen.
+ - I just believe in the movie. I don’t care what the book was like. I don’t care what the previous film was like or other films were like. I care only about the script I’ve got.
+ - Paddy was in the delivery room when the midwife handed him a black baby. “Is this yours?” she asked “probably” said Paddy “she burns everything else”
+ - I don’t aim to offend.
+ - Try to live in a place you like.
+ - Save the Trees? Trees are the main cause of Forest Fires!
+ - What always staggers me is that when people blow their noses, they always look into their hankies to see what came out. What do they expect to find?
+ - I set out to be a cross between Lenny Bruce and Robert the Bruce.
+ - I loathe hecklers. I haven’t got a good syllable to say. When you come out of the club circuit and into the concert hall, they should be gone. There’s an element of manners that should tell you that the ticket is dear and it’s a different venue.
+ - I’m not going to throw away the hand of friendship to suit 100 Trotskyites in Glasgow.
+ - People who announce they are going to the toilet. Thanks that’s an image I really didn’t need.
+ - I’m one of the school of people who don’t do research of the reality of the thing or the unreality of the thing. In all the movies I’ve done, I’ve never done any research.
+ - I still do my comedy and my performance stuff and my acting so it’s not all-consuming. But I do find myself drawing more and more these days.
+ - I always look skint. When I buy a Big Issue, people take it out of my hand and give me a pound.
+ - Why do they call it an asteroid when it’s outside the hemisphere, but call it a haemorrhoid when it’s on the outside of your ass?
+ - Did your mother never tell you not to drink on an empty head?
+ - There’s nothing better than a fight, especially when you’re watching it from a safe place. You can yell encouragement! Hit him with the left, he’s a big Jessie!
+ - For me, it’s about the desire to win. My audience becomes a crowd of wild animals and I have to be the lion-tamer or be eaten.
+ - Sometimes there’s a tackiness about Route 66 that out-tacks any tackiness I’ve ever seen anywhere else. And the Meramec Caverns are the pinnacle of that tack.
+ - I don’t believe in angels, no. But I do have a wee parking angel. It’s on my dashboard and you wind it up. The wings flap and it’s supposed to give you a parking space. It’s worked so far.
+
+109 quotes

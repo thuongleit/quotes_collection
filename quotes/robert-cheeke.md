@@ -1,0 +1,96 @@
+ - There is always someone out there working harder than you, and you may be standing next to him or her in your next competition.
+ - Your health and well being should be your number one priority, nothing else is more important.
+ - We all have 1,440 minutes each day to accomplish everything on our schedule. We are accountable for prioritizing the decisions we make with our time.
+ - Surround yourself with positive, energetic, successful people and learn from them.
+ - Pay close attention to detail in whatever it is you are doing. Be specific and expect quality from your performance.
+ - Always work harder than other people are willing to work. Sweat more, endure more pain, and then reap the rewards of success and achievement.
+ - There is no “I” in “Team,” but there is an “E” for “Everyone.” A team achieves more when everyone contributes.
+ - I challenge myself everyday to be the most positive and enthusiastic person I know.
+ - The words: never, can’t, quit, and fail, are not in my vocabulary.
+ - Dare to be different. Successful people always stand out.
+ - A vegan diet is one of the best things you can do for your health and the well being of our planet.
+ - Remember all the people in your life who helped guide you on your road to success. Thank them sincerely and often.
+ - When intention is supported by effort, success follows.
+ - When working out, play your favorite music loudly for an extra boost of energy.
+ - Don’t be intimidated by people who try to belittle your ambitions. Most of the time they are just jealous of your success or determination to reach the highest peaks of the mountains, and reign over them.
+ - The people who wake up and jump out of bed with energy and enthusiasm are the people who will be smiling all day, go out of their way to help you, and call you by name.
+ - People tell me I’m a perfectionist. They tell me I’m too extreme and that I work too hard. I tell them, that is all I know how to do. I was taught to give my best effort in everything I do and demand perfection and raise the standard of excellence to a whole new level.
+ - There is a Tony the Tiger inside of all of us just waiting to be unleashed.
+ - When you have a childhood dream that still burns and tugs at your heart when you’re an adult, you owe it to yourself to pursue and achieve this dream.
+ - My brother is my best friend and nothing is stronger than family.
+ - When I workout early in the morning, the rest of the day feels so much better.
+ - Let the gym be a sanctuary for you to be at peace. Let it calm you and ground you and allow you to appreciate everything around you. Let it also be a place for you to unload and explode with intensity through your training.
+ - Sometimes small setbacks are just blessings in disguise. They enhance your determination and whole-hearted dedication to achieving your goals.
+ - Learn to see the big picture. Often times we get tunnel vision and lose sight of the big picture and what we’re really trying to accomplish.
+ - We were all born to “be somebody,” look deep inside your heart to find out who and what you are supposed to be.
+ - Don’t be afraid to show emotion. Get excited, get angry, get motivated, laugh, cry, yell, and vent. You will feel so much better after a great release.
+ - When backed up against a wall, dig deep, demand excellence, stand tall, and be strong.
+ - You really can give a 110% effort towards something that you are truly passionate about.
+ - Believe in yourself and others will believe in you.
+ - When you succeed be proud of yourself and know that not everyone gets to experience the thrill of success on a consistent basis.
+ - Take risks that could result in Greatness! Wayne Gretsky said, “You miss 100% of the shots you never take.”
+ - Dream big with no limitations.
+ - When I accomplish a challenging goal it is one of the most powerful and wonderful feelings in the world.
+ - Despite what we may think, we are all talented in our own unique way.
+ - The questions to ask are what is moral, what is ethical, what is in line with your belief system, and what seems to make the most sense and cause the least amount of harm? Eat the foods that are in line with your sincere answers.
+ - We all need to have heroes, people to admire and look up to. To find a hero, first look to your parents or older brother or sister. Then look to the people who share the same morals and values that you have, and have accomplished the goals that you strive to achieve.
+ - Be open to other people’s opinions, ideas, and try new things. One of the best ways to learn is to feed off other people’s experiences.
+ - Every day look in the mirror and flex your muscles. Smile and enjoy the sight of a beautiful fit body. If you don’t like what you see, find a photo of how you want your body to look and paste it to the corner of your mirror. Be willing to work hard for what you have the potential to become.
+ - Imagine yourself at your funeral. Ask yourself what you want your family and friends to say about you. How will you be remembered and what impact will you have had on other people’s lives? How did you make the world a better place?
+ - For some people hope is all they have. Encourage them and don’t take their hope away, for they will be left with nothing.
+ - Most people use excuses to cover up mistakes, but it takes less time to do something right the first time.
+ - Celebrate each accomplishment on your way to reaching your goal. Each challenge conquered whether large or small is a positive step to greatness.
+ - Go out of your way to make an outstanding first impression.
+ - Search for inspiring quotes and put them on the walls of your bedroom. Read them before you go to bed and the first thing when you wake up in the morning.
+ - Attend your children’s athletic events. There’s nothing better than watching your child succeed while absolutely loving the opportunity to play in front of you.
+ - As a vegan body-builder I want to show others that it is possible to gain significant muscle and strength on a vegan diet and I want to inspire others to follow this lifestyle. I love being vegan and knowing that I am having a positive impact on our society.
+ - Don’t just reach for the stars. Grab a hold of one, grasp it tightly, and pull it into your heart and soul.
+ - Bodybuilding is not just a sport; it’s a way of life. If every aspect of your life is not focused on making the sacrifices necessary to build your best physique, you will ultimately fail and never reach your full potential.
+ - Nobody knows you better than you do.
+ - The people who put limits on your abilities, goals, or dreams, may not be the people you want to associate yourself with.
+ - Before starting a fitness program or diet, know why you’re doing it. Have specific goals with deadlines and visualize the end result each night before going to bed.
+ - The song How do you like me now? By Toby Keith will be my personal theme song when I attend my first high school reunion.
+ - In a time when many people are looking to cut calories, reduce food intake, cut food costs, and lower their bodyweight, bodybuilders are looking to pour it on.
+ - The most important job you will ever have is your commitment to a promise you made to someone.
+ - The vegan lifestyle is a compassionate way to live that supports life, supports fairness and equality, and promotes freedom.
+ - Make it a goal to be somebody’s hero.
+ - Your friends may influence your decisions even more than your parents will.
+ - We need more people like Bill Phillips in the world. People who live each day with a passion to help other people. The kind of person who will motivate you beyond what you thought was possible and the kind of person who will celebrate your success with you.
+ - I am a Body-for-LIFE Challenge 2000 Winner. “Winners finish and finishers win.”
+ - On your birthday thank your parents and celebrate with them. They are the reason you are here and it is their day too.
+ - Do nice things for people who may be less fortunate than you.
+ - Take time to compliment people every day. Do it sincerely and with no desire to gain anything but a smile in return.
+ - Mapping out your own future in the form of images, phrases, and inspirational words that you are able to see every day will help reinforce your desires to attain what you set out to achieve.
+ - When lifting weights, nothing feels better than achieving a high point on the bench press with no help from your spotter.
+ - When I tell people that I’m vegan, the first question asked is, ‘How do you get enough protein?’ This immediately tells me that they are uneducated and know little or nothing about nutrition.
+ - Keep records of your fitness progress throughout your training. Chart all of the food you eat, the exercises you complete, and even the amount of sleep you get each night. Refer back to your records to see where things went right or went wrong.
+ - Nobody had a bigger heart or passion to win than America’s Greatest Running Legend, Steve Prefontaine “Pre.” Watch the movies Prefontaine, Without Limits, or Fire on the Track to see what I’m talking about.
+ - If in a tense or nervous situation, take a moment to center and ground yourself and make a thoughtful decision. Remember that nothing is as important as it first seems.
+ - Look in the mirror and stare at your eyes and say, “I can and will be successful.”
+ - Be willing to give people a second chance. You’d be surprised how well people respond to another opportunity to succeed.
+ - After a grueling leg workout nothing feels better than a slow, deep massage on your quads.
+ - But all the vitamins, amino acids, protein etc. needed to get stronger can be found in abundance in plant foods. Anything that is a fruit, nut, grain or seed is vegan and there are thousands of those.
+ - Someone could have an outstanding comprehension of a bodybuilding diet and a background in nutrition but not have the work ethic and desire to put it into practice. That person won’t be as successful as the person who understands some basics and puts them into action regularly.
+ - Some of us are fortunate enough to have known what we wanted to be since the day we were born.
+ - If you want it to be, your heart can be your biggest and most powerful muscle in your body.
+ - Everyday I attempt to consume 4,000 Calories and 200 grams of protein. I don’t always reach that mark but when I go to bed at night I know that I did the best I could given my schedule and the circumstances that day.
+ - Vegan bodybuilding is about fueling your body with a vast array of natural, healthy foods, combined with resistance weight training and exercise, providing your body with the appropriate tools to build your physique and achieve your fitness goals.
+ - When someone compliments me on my physique, positive attitude, or enthusiasm, I walk on air the rest of the day.
+ - Potential counts for a lot; but heart, desire, and will can take a dream from potential to possible.
+ - When going for a run, I pick fresh air, openness, and scenery of the outdoors over a treadmill every time.
+ - Most people are afraid to follow their dreams. The thought of failure is too much for them to handle so they never even try to achieve them.
+ - Be someone’s best friend and be there when he or she needs you.
+ - Most of us have the tools we need, we’re just not sure how to use them.
+ - Whether you know it or not, you are a role model for somebody. Watch what you say and know that you’re responsible for your actions.
+ - It is worth it to give up all that you now are to be all that you could become.
+ - I’d rather have a picture-perfect body than a million dollars in my pocket.
+ - Why bother lifting weights if you aren’t following a sound nutritional regimen? Sure, it may be fun, but are you really accomplishing anything?
+ - The ability to make and keep promises is the key aspect to trust in a relationship.
+ - Every year I want to experience something that makes me say, “this is the best day of my life.”
+ - I believe that true success in bodybuilding nutrition comes from some variety in diet. It allows for more creativity, enables a bodybuilder to enjoy diversity, and causes less stress emotionally and mentally compared to a very basic diet for which a bodybuilder will lose enthusiasm for over time.
+ - At least once a month, do something for someone who will never know who did them the friendly favor.
+ - When it comes down to it, it really is the little things that count most.
+ - Laugh a lot. Laughter will make even the dreariest situations a whole lot more enjoyable.
+ - The people who are scared of going on a diet are the people who could benefit the most from one.
+
+94 quotes

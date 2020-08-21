@@ -1,0 +1,105 @@
+ - Love is still a simple act of faith, and a faithful heart is always worth the wait.
+ - September morn Do you remember how we danced that night away Two lovers playing scenes from some romantic play September morning still can make me feel this way.
+ - Love on the rocks, ain’t no surprise. Pour me a drink and I’ll tell you some lies.
+ - Being lost is worth the being found.
+ - When love is unkind, it is not love anymore.
+ - Hands, touching hands, reaching out, touching me, touching you.
+ - The man in between waits between the two, not hearing the lie and not seeing the true. Unknowing what is and denying what seems, and there he will sleep, the man in between.
+ - The art of love is who you share it with.
+ - He aint heavy, he’s my brother.
+ - The truth always stays the same.
+ - Don’t need to say please to no man for a happy tune.
+ - Fencing made me feel for the first time like a winner.
+ - Acting is a specific discipline. Just because you can sing doesn’t mean you have the sensitivities of being an actor.
+ - Money talks but it can’t sing and dance and it don’t walk.
+ - Money talks, but it don’t sing and dance, and it don’t walk. And long as I can have you here with me, I’d much rather be, forever in blue jeans.
+ - I don’t feel I have to write deep and meaningful songs; they can be light and meaningless. It has to do with the place I am in my life, a really good place.
+ - When I am not writing, I’m dying.
+ - You’re alive, you might as well be glad.
+ - I’m lucky. Hard work is the key, but luck plays a part.
+ - I thought love was more or less a giving thing. Seems the more I gave, the less I got.
+ - Then come and as we lay, beside this sleepy glade, there I will sing to you my Longfellow serenade.
+ - Free, only want to be free, we huddle close, hang on to a dream...
+ - Of all the songs that I’ve written since I was 15 or 16, every song is different every song is special, it happens in a different way and I like that.
+ - Drop your shrink and stop your drinkin’, crunchy granola’s neat.
+ - Crackling Rosie make me smile. God, if it lasts for an hour that’s alright, to set the world right. Find us a dream that don’t ask no questions.
+ - Shilo, when I was young, I used to call you name.
+ - I’m trying to find the truth in myself. To play somebody else doesn’t interest me. It’s not the focus of my life. I can get through most scenes and do the acting part of it, and at best, I’m going to be mediocre.
+ - Shame, it comes in every size, touches many lives, knocks on many doors.
+ - Some are born who never need them, Others still who never read them, signs.
+ - Melinda was mine ’til the time that I found her holding Jim, loving him.
+ - All my songs are based on melody, which is retrieved from my Jewish heritage. Melody will always exist no matter what the rhythmic changes there are.
+ - If it can affect me, if it has meaning to me, if I feel I can do it well, I will do it and record it and thats why I recorded these songs.
+ - I get good vibes from people. There is a thread of DNA that runs from the days that I was a young teenager to these days. It feels good to go back there.
+ - When you’re on a merry-go-round, you miss a lot of the scenery.
+ - I am, I said to no one there and no one heard at all, not even a chair.
+ - Worse than bad reviews is to be ignored.
+ - I’m throwing myself back in because I like being married. I don’t want to end this whole fabulous journey alone. I want someone by my side who I love and who loves me. I’ve finally found somebody who’s up to the task of being my wife, because I’m very high maintenance.
+ - Songs are life in 80 words or less.
+ - I definitely don’t feel like I’m 71. I feel like I did when I was – between 30 and 40. The body ages. The mind doesn’t.
+ - Nothing is sadder than love left unheard.
+ - Each acoustic guitar has its own character and personality. On a particular day, I might pick one up and start noodling around, looking for some emotional content in the chords.
+ - My peers accept me and respect me, and that’s enough.
+ - Pride is the chief cause in the decline in the number of husbands and wives.
+ - My voice is unadorned. I don’t try for perfection. I try to be honest and truthful and soulful with the voice I have. If I make mistakes in notes, or there are cracks in notes, I don’t fix them. That’s the way it is.
+ - While the sun God will may your day, sing as a song in search of a voice that is silent, and the one God will make for your way.
+ - Home’s the most excellent place of all.
+ - I was always interested in science, and pre-med was arespectable thing to do while I ursued my songwriting.
+ - I am, I cried. I am, I said. And I am lost.
+ - It’s very difficult for me to say ‘I love you’ but to sing ‘I love you’ for me is easier.
+ - Over the years, you grow up, you mature and you see things in a different way, and it’s reflected in the writing.
+ - Touch a man who can’t walk up right, and that lame man, he’s gonna fly.
+ - Maybe tonight, maybe tonight by the fire all alone you and I. Nothing around but the sound of heart and your sighs.
+ - I got worries by the ton, getting cancer’s only one. Over taxed and alimonied, tired of eating fried baloney.
+ - Songwriting is different from music, although I don’t deny now that it would be nice to have a little more background in music theory.
+ - I think that if I have one hope, 1 ambition, 1 aspiration for the next 4 or 5 years it would be that I can improve as a writer and just be able to say more of what I want to say throught the music.
+ - I was always trying to win the world, but somewhere I lost you.
+ - I have a lot of confidence, but little Self-Esteem. This has given me a tremendous creative spark because it forced me to keep proving myself.
+ - Love never doubts or suffers or cries. Love shows no fear, love tells no lies.
+ - I fell in love with folk music at Surprise Lake Camp. It was the songs of Woody Guthrie and the Weavers.
+ - I’ve spent my whole life trying to find out who I am, so I could express that through the music.
+ - I like having a woman. I like having someone to come home to, to make all of the hard work feel worth it. I need someone with me. And I want someone.
+ - You like to think that it’s something you created, but secretly you know that you had some kind of help, or somebody gave this to you.
+ - I communicate with fans on Twitter. I enjoy the ability to impulsively write something and ship it out to the fans and fellow tweeters out there.
+ - You have to go out there and give a piece of yourself – your life, your soul. And you better give the audience everything you can – physically, emotionally, musically. Then maybe they’ll accept you and give you a standing ovation at the end.
+ - The music is key. It has the power to transport you. I go from being a slightly insecure, shy kind of a person offstage, to this super-confident, motivated, entity onstage.
+ - I think I need to be married. Having a wife and family makes some sense out of all that I do, because I can’t make any sense out of 20,000 adoring fans watching me for two hours.
+ - I thank the Lord for the night time.
+ - Chelsea Morning is a great Joni Mitchell song and I guess I’m partial to her lyrics because they show me a slightly different perspective on life.
+ - When I need my wife or when I need companionship or someone to talk to, I need it, like, now. So my wife will have to give up whatever she’s doing at that moment to tend to my needs. And in the same way, I would tend to hers. That’s not such an easy thing to do.
+ - As a songwriter there’s nothing more exciting than the unknown, the new and different.
+ - I guess I haven’t gotten over being lost, a wandering gypsy.
+ - She got the way to move me, Cherry, she got the way to groove me.
+ - The main objective in any song, the songs that I write, has always been that it reflect the way I feel, that it touch me when I’m finished with it, that it moves me, that it can take me along with it and involve me in what its saying.
+ - I still need practice in enjoying the fruits of success.
+ - As I said before, stones to me is meant things that hurt people, things that cause pain and thats what this song is about.
+ - Brooklyn is not the easiest place to grow up in, although I wouldn’t change that experience for anything.
+ - You can’t plan to write a great song. It just happens to you. It drops in your lap. It’s the same thing with a woman.
+ - I may have a little bit of a talent for music, but I’ve learnt to tap into my own self when I write. When I put the drill bit inside my heart, sometimes I come up with something light and frothy, sometimes with something deep and painful, but it’s great to connect with the audience.
+ - I came back to performing with a different attitude about performing and myself. I wasn’t expecting perfection any more, just hoping for an occasional inspiration.
+ - I followed all life’s pleasures wherever they would lead, but someone I can treasure is all I really need.
+ - The lyrics aren’t simple, either. They’re extremely difficult because I’m trying to say complicated things in as few words as possible.
+ - When I first started, I worked with three chords in every bar, but I found that tied me down – I’m not a chord-change writer, I’m a songwriter.
+ - Song Sung Blue took a lot of compressing and refining, and it has one of my favorite lyrics.
+ - There’s a mystery to writing, and you don’t really know where most of it comes from.
+ - I’ve always thought of music as something which gives the words their flight and their wings and the music often comes first, although sometimes I’ll have a concept, a title idea, a lyric idea that I want to write and the lyric will come first.
+ - Well, I loved singing in the chorus, and there was some connection for me between gospel and choral music.
+ - I think probably Australians have just a little more taste than most people.
+ - I’ve always accepted some kind of deity, especially as a songwriter.
+ - I don’t pamper my voice. It’s part of my body. If my body is rested and healthy, my voice is rested and healthy.
+ - Whatever success I’ve had so far has been assimilated into my body and mind.
+ - I had always held everything in before.
+ - I’m not really comfortable in any one spot.
+ - It’s much harder to play myself. If I ever do a movie again, it’ll be a singing serial killer.
+ - Songwritng is what I do.
+ - Songs are so all-encompassing; they’re the joys and sorrows and pacing of life.
+ - I had always sung in my dad’s shop. I worked there after school, and I’d be singing along with the top-40 records of the day.
+ - I do have a large audience overseas, and I want to continue to be an international artist.
+ - Performing is the easiest part of what I do, and songwriting is the hardest.
+ - I don’t like all of the music to be serious and deadly.
+ - I’ve found for the last couple of years that the things that I can become most deeply involved with are songs that reflect my real feelings about things and so that what I’ve been writing about.
+ - Because my musical training has been limited, I’ve never been restricted by what technical musicians might call a song.
+ - I suppose that being moved to write a song is more applicable to me, I have to be moved, I have to have a reason to write a particular song.
+ - Very often the music comes first.
+
+103 quotes

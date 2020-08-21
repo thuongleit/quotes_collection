@@ -1,0 +1,66 @@
+ - I’ve learned it’s important not to limit yourself. You can do whatever you really love to do, no matter what it is.
+ - For now, I’m just going to keep doing the work and hope I don’t get fired. If people want to put me up on their walls, I’ll love it.
+ - To watch a master work at anything is a privilege.
+ - The theme for me is love and the lack of it. We all want that and we don’t know how to get it, and everything we do is some kind of attempt to capture it for ourselves.
+ - I feel there is something nice about not talking. Like you can say more by actually saying less.
+ - Sometimes I think that the one thing I love most about being an adult is the right to buy candy whenever and wherever I want.
+ - I don’t think anyone can teach you how to be a man but a woman. You only learn by learning what they need.
+ - You know how sometimes department stores have these things where, if you win, you get 10 minutes to go in and take anything you want from the store? That’s basically what I’m doing. I’m running in and just trying to grab as many characters as possible before they pull the plug on me.
+ - I don’t know, I just got a feeling about her. You know when a song comes on and you just gotta dance?
+ - I love being Canadian. I think growing up in Canada gives you a world perspective that I certainly enjoy.
+ - All my characters are me. I’m not a good enough actor to become a character. I hear about actors who become the role and I think ‘I wonder what that feels like.’ Because for me, they’re all me.
+ - I went through puberty in a theme park. I’m grateful. That place was a landscape to me. I had adventures every day.
+ - I grew up in a family of strong women and I owe any capacity I have to understand women to my mother and big sister. They taught me to respect women in a way where I’ve always felt a strong emotional connection to women, which has also helped me in the way I approach my work as an actor.
+ - Women aren’t interested in being sexy any more and men are. All the guys have objectified themselves and sexualised themselves into being just matinee idols.
+ - I grew up Mormon. I wasn’t really Mormon, my parents were.
+ - Cars can have a hypnotic effect. You can get in a car and get out and not really remember the trip.
+ - Acting isn’t that hard, really. I mean, I think that people make a big deal about it, but you just kind of try to say your lines naturally.
+ - I just have my own taste, and I just try and stick with that. I’m just trying to play as many characters as I can for as long as I have an opportunity to.
+ - I don’t think you can discriminate against budgets, you know? I’m an actor, I guess, so I’m just trying to play as many characters as I can. If there’s a character I think I can play, and they’re going to let me do it, I’ll do it whether it’s $10 or $1 million or more.
+ - If I eat a huge meal and I can get the girl to rub my belly, I think that’s about as romantic as I can think of.
+ - The problem with Hollywood is that nobody works. They have meals. They go to Pilates. But it’s not enough. So they do drugs. If everybody had a pile of rocks in their backyard and spent every day moving them from one side of the yard to the other, it would be a much happier place.
+ - I like all kinds of movies, I love movies; and I always wanted to try and make one.
+ - On his character Dean in Blue Valentine: It’s sad, because he just doesn’t have any ambition outside of loving his wife and his daughter, which should be enough but doesn’t seem to be enough in this case.
+ - Hollywood usually doesn’t have strong woman in films like that, and it’s stupid, so for the most part they’re usually being directed and written by men.
+ - It was more important to me to understand what its like to be this Jewish kid who felt he was so different at such a young age. I feel the story is about a kid who came to hate through love, so I felt I had to learn why he loved this thing so much that he also apparently hated it.
+ - I always wanted to entertain. When I was six, a scrawny, scrawny kid, Id get in my red speedo and do muscle moves. I actually thought I was muscular. I didnt know everyone was laughing at me.
+ - As a kid I decided that a Canadian accent doesn’t sound tough. I thought guys should sound like Marlon Brando. So now I have a phony accent that I can’t shake, so it’s not phony anymore.
+ - I’m Canadian so American politics are not really in my wheelhouse.
+ - I’m Canadian. I think that’s it. When you’re a Canadian, you’re always watching America from the outside, from afar.
+ - Women are mad at me. A girl came up to me on the street and she almost smacked me. Like, ‘How could you? How could you let a girl like that go?’ I feel like I want to give people hugs, they seem so sad. Rachel and I should be the ones getting hugs! Instead, we’re consoling everybody else.
+ - If the character is true, the movie will fall into place. Or at least that’s what you hope.
+ - I am pretty sick with myself! It seemed a pretty good idea at the time. Around the time I turned 30, I started to feel very creative, more creative than I had been before which is good and I like that.
+ - It’s not good just to have life experience of film-making and that’s all. It’s hard to play a real person when you’ve been in jets and town cars for three years.
+ - I think about death a lot, like I think we all do. I don’t think of suicide as an option, but as fun. It’s an interesting idea that you can control how you go. It’s this thing that’s looming, and you can control it.
+ - Talking about muscles. They’re like pets basically. They’re not worth it. You have to feed them all the time and take care of them, and if you don’t, they just go away. They run away.
+ - You know us crazy kids. We’ll do anything crazy to our hair.
+ - I loved growing up in Canada. It’s a great place to grow up, because – well, at least where I grew up – it’s very multicultural. There’s also good health care and a good education system.
+ - If I have any particular appeal to women, maybe it’s because I listen more than other guys do and appreciate how they think and feel about things.
+ - I don’t like to be entertaining. I don’t like the feeling of being entertaining. If there was a musical or a comedy that was not just for entertainment but was rooted in something I could relate to on a real level, then I think I would do it.
+ - I think it’s more interesting to see people who don’t feel appropriately. I relate to that, because sometimes I don’t feel anything at all for things I’m supposed to, and other times I feel too much. It’s not always like it is in the movies.
+ - Freedom is such a gift.
+ - You can’t make a movie for everybody. You can’t go into it trying to alienate people, but you have to assume that you’re going to.
+ - I’m waiting to get old – I think old guys with tattoos look good.
+ - A lot of people when they make movies, the actors act like it’s their journey and that everyone is on the set to facilitate their journey and the whole thing is set up that way – they ask if you want anything.
+ - I’m attracted to films that have strong female characters because there are strong female characters in my life.
+ - I try not to discriminate against genres.
+ - I think that you can sort of have your own personal journey and you know, you can just kind of apply that to whatever characters you’re playing.
+ - I tried to find something real in essentially something thats science fiction or something-for me, anyways-not having an experience like this.
+ - I like working with actresses, and I like women a lot, not for obvious reasons, but just in that that theres so much about what they bring to the scene that keeps it so interesting. Their instincts are so different, and they never explain them to you.
+ - The thing that’s so exciting when you’re making a film is that it can be anything and there are no limitations on it.
+ - I know there are only so many characters I’ll be able to play.
+ - I turned 30 and everyone told me I would feel different and I didn’t. So I thought I’d move to New York.
+ - I sometimes forget to have breakfast in the morning, but when I actually buy a box of cereal, I will probably eat it not only for breakfast but also as a snack later on.
+ - I think we’re very complicated and we’re capable of all kinds of things, and movies don’t reflect that.
+ - I just sort of take it from a character perspective, and I don’t know if he was necessarily spiritual, but I do think he had hope. He was a character that was comfortable having hope in his life, and hope is faith.
+ - In some way, the relationship between a director and an actor is personal.
+ - I don’t even think of myself as particularly good looking, and not at all a typical kind of Hollywood leading man sort of actor.
+ - I think we just knew that we had a movie when Rachel walked in the room.
+ - In New York, you’re forced to deal with life; it’s there in front of you on a daily basis.
+ - I try to play characters who are different from myself, so I feel like this character is someone who is really different. I actually think that if I did what he did in this movie, I would get a restraining order put against me.
+ - If you’re making a movie about the effects of time, you kind of have to engage time as the main character.
+ - I feel it’s important to show that one thing that you do doesn’t define you as a human being. It doesn’t mean there aren’t ramifications or you shouldn’t pay for that but, its not who you are.
+ - I started reading all these men’s magazines, trying to follow all the tips: what you’re supposed to wear, what you’re supposed to have, things you’re supposed to say, and all the exercises you’re supposed to do.
+ - I feel like everything has happened naturally.
+
+64 quotes

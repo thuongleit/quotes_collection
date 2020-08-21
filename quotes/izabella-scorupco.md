@@ -1,0 +1,30 @@
+ - The most simple things can bring the most happiness.
+ - Sexual underwear is tacky.
+ - You’re not really supposed to like ABBA in Sweden. It’s nerdy.
+ - When I do something I give everything, so it has to be something that I really want to go for.
+ - I can’t imagine having cosmetic surgery because I have my values and little family who makes me feel incredibly accepted but you never know.
+ - I was the good Bond girl, but I wanted to have the dresses and the high heels. I wanted the funky, sexy name.
+ - I’ve never been the sexy or the cute girl.
+ - I’m so lucky to be in a situation that I can always have my daughter with me.
+ - They remember me as this shy girl sitting under the table. But they obviously didn’t know what was going on in my head.
+ - If you compare my character to the others, they were sexy with designer clothes. I had the nerdy outfit.
+ - After filming I like to go home and lie down with my daughter and have a glass of wine so I don’t really socialize with the other actors.
+ - I was very athletic when I was younger and I am a very competitive person, so I never give up.
+ - I never work out. I think it is boring, so I run.
+ - I’d like to be a weak, boring housewife. Because then it would involve more acting. It would be challenging to do something like that.
+ - Well my biggest dream is to be in a romantic comedy.
+ - We were in a relationship for eight years, and we maybe saw each other, total, for a year.
+ - I’ve always been comfortable with my sexual desires and what I like.
+ - I’ve never seen one Star Trek in my whole life.
+ - I have a child and I’m a parent first of all.
+ - I think it’s very much a men’s thing to be able to have that fantasy to kill the beast.
+ - Reign of Fire is something I know how to do, because I’ve played tough so much.
+ - Most of my friends wonder why I get these roles that are so masculine and tough. I think it’s my Polish temperament that comes up.
+ - I had a flight trainer who is one of the biggest and most famous helicopter pilots the world.
+ - Yes I never go to the gym otherwise because I think it’s a waste of time and the most boring thing on earth.
+ - I was born in Poland I came to Sweden when I was eight and always wanted to act and suddenly ended up in a Bond movie which was for me at that time absolutely enormous.
+ - It was never really my choice to be an action heroine.
+ - I may be boring, but it would be to wake up by my dog and then my daughter.
+ - Really. I’d love to be spoiled on by others.
+
+28 quotes

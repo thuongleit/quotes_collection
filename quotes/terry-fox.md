@@ -1,0 +1,24 @@
+ - Dreams are made possible if you try.
+ - It took cancer to realize that being self-centered is not the way to live. The answer is to try and help others.
+ - I want to try the impossible to show that it can be done.
+ - If you’ve given a dollar, you are part of the Marathon of Hope .
+ - I want to set an example that will never be forgotten.
+ - I just wish people would realize that anything’s possible if you try; dreams are made possible if you try.
+ - Even if I don’t finish, we need others to continue. It’s got to keep going.
+ - I know that you can do the impossible.
+ - I remember promising myself that should I live I would prove myself deserving of life.
+ - I’m not a dreamer, and I’m not saying this will initiate any kind of definitive answer or cure to cancer, but I believe in miracles. I have to.
+ - Everybody seems to have given up hope of trying. I haven’t. It isn’t easy and it isn’t supposed to be, but I’m accomplishing something. How many people give up a lot to do something good. I’m sure we would have found a cure for cancer 20 years ago if we had really tried.
+ - Some people can’t figure out what I’m doing. It’s not a walk-hop, it’s not a trot, it’s running, or as close as I can get to running, and it’s harder than doing it on two legs. It makes me mad when people call this a walk. If I was walking it wouldn’t be anything.
+ - When I started this run, I said that if we all gave one dollar, we’d have $22 million for cancer research, and I don’t care man, there’s no reason that isn’t possible. No reason!
+ - I’m not doing the run to become rich or famous.
+ - I do what I do for the people who believe in me, not for the jerks who don’t.
+ - How many people ever get a chance to do something that they really believe in?
+ - I bet some of you feel sorry for me. Well don’t. Having an artificial leg has its advantages. I’ve broken my right knee many times and it doesn’t hurt a bit.
+ - Our privacy is starting to be invaded and we can’t get anything done. I’m happy with the fundraising but upset we don’t have time to talk and meet with people.
+ - It almost hurts me to walk down a road and have people grab my hand and ask for my autograph and not sit and talk. When I’m finished I’m not going to be on the front page, but I’m going to be just as happy without the publicity.
+ - It’s one thing to run across Canada, but now, people are really going to know what cancer is.
+ - It snowed all day long, fortunately it didn’t stay on the road. It was very, very cold today. Fortunately, the wind was at my back. The terrain was rolly but not big hills. The first miles were like usual tough, but I felt quite good from there till the end of 10 miles.
+ - Even though I’m not running anymore, we still have to try to find a cure for cancer. Other people should go ahead and try to do their own thing now.
+
+22 quotes

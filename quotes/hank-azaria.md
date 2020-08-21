@@ -1,0 +1,52 @@
+ - There’s no experience like on-the-job training.
+ - I did a lot of theater in college, and I knew that not many people make it, but I just figured, ‘Well, I really want to try acting while I’m young, and I don’t ever want to look back and say that I never gave it a try.’ I fully figured I’d be back in grad school – probably for psychology.
+ - Literally, I see my writing as transcription – a transcription of what I see, hear, think, live.
+ - I was hedging my bets by the time I got to college. I was interested in drama and journalism and psychology.
+ - I’m very happy I get to keep working – it’s an insanely fortunate thing.
+ - I joke that my niche in Hollywood has been naked foreigners.
+ - I’ve been divorced and I had to get back out there be single again and do some of that in the genuinely miserable state where you really do wonder what the hell is going on. And you feel like trying to have casual conversation with someone you don’t know on the surface of the moon or something.
+ - I wore a thong and a bra and a wig. Those things hurt. I mean, thongs? Like, they dig in. It takes a tough man to be a woman.
+ - Being funny with a funny voice is more my comfort zone, a broader character that I try to humanize, a kind of silly or wacky persona that I try to fill in.
+ - Once someone is in your family orbit, there’s a mutual responsibility, and whatever happens to them happens to you.
+ - In my cranky old age, I actually prefer recording alone now, on ‘The Simpsons,’ for example, because I find that the director can just focus on what I’m doing and I can do a lot of variations. A lot of times, when I record with a group, I’ll stay after class for another hour or two.
+ - Godzilla’s a monster for the ’90s. He’s been working out.
+ - It’s not really difficult to go from one voice into the next. It’s like asking you to sing a line of Happy Birthday and then Goodnight Irene – assuming you know the words to both those songs.
+ - Historically, there would always be people among the general population who had family members, friends, cousins who’d done time or who’d been in prison.
+ - Politics is topical – it’s what’s happening now, and we can either respond in the present or avoid it.
+ - Women are, in general, less shallow visually. If their man gains 10, 20 pounds, they don’t care as much. But I’ve been with women over the years when my weight fluctuated, and they’re definitely more interested physically when I am in really great shape.
+ - I’ve been doing silly voices since I was a child.
+ - That’s a true actor’s nightmare: “Improvise in British sign language. Go.”
+ - I’ve done literally 100, 150 different characters.
+ - I love acting, but I want to explore other things.
+ - I would love to do Broadway again.
+ - When you become deeply involved with someone, their problems become yours, and vice versa. It’s family.
+ - You never know who’s going to kill you until you meet them.
+ - Even trying it as an actor, I never thought I’d actually make it.
+ - Association bring you into the larger world of other people and things. Not having that is a kind of prison, a prison of such a limited consciousness, of such a limited frame of reference and association.
+ - I ask for a lot of advice from different fathers – all kinds of dads.
+ - It’s always impressive when talented comedians are easy laughers or generous with their laughs.
+ - I guess for me the greatest injustice is to see people robbed of that interiority and process of association.
+ - You can’t be funny for funny’s sake. You try to get as outrageous situation as you can but it always has to be believable and based in real character motivations and what people would really do.
+ - I’ve always been a fan of plain writing. I hate metaphor-laden, heavily larded, lyrical writing.
+ - I’ve met a lot of rock stars when they come to The Simpsons, and almost every one of them I get really freaked out.
+ - It’s not really difficult to go from one voice into the next.
+ - I was a huge fan of comedy and movies and TV growing up, and I was able to memorize and mimic a lot of things, not realizing that that meant I probably wanted to be an actor. I just really, really amused myself and my friends with memorizing entire George Carlin or Steve Martin albums.
+ - You know those award shows. The cliche is that it’s an honor just to be nominated, but that happens to be true. Whoever wins it in the end, I don’t know, sometimes it feels arbitrary. Sometimes it feels like it’s deserving.
+ - I put a tremendous amount of pressure on myself. I felt like I shouldn’t have to audition for anything and all that. And that energy did not serve me at all.
+ - I had kind of sworn off network TV a while ago.
+ - Just watching Jack Lemmon made me want to get into this business.
+ - I bartended for a catering company for two or three years.
+ - When you do well in a movie that’s seen as really great, you’re revitalized for six weeks.
+ - I guess I’m used to seeing actors, but rock musicians still hold a special magic for me.
+ - As an actress, you’re living something through the duration of the play and its geography. I’ve always seen writing the same way. It’s like somehow I’m moving through the terrain of the book as a performer.
+ - When you’re on a series that’s been cancelled, there’s a little bit of a stink on you.
+ - A self-help book can’t really address a problem unless it’s individualized. It’s not going to talk about a globalized problem.
+ - You have to always physicalize, when you do animation recording. Otherwise, you won’t get the performance right.
+ - The craft Emmys are kind of the kids table at Thanksgiving. You’re not really invited to the big dance. It’s still really, really exciting, and the statue still counts.
+ - I don’t really remember much about the ’60s at all. You know, 1970 is the first year I remember pretty well.
+ - Women are, in general, less shallow visually. If their man gains 10, 20 pounds, they don’t care as much.
+ - Guys will definitely settle for women who get the joke. But a woman who can make you laugh? It’s not high on a guy’s must list. Perhaps it should be.
+ - I’ve done literally 100, 150 different characters. Some of them have only appeared for a line or three. But the point is, every sound I can make has been harvested.
+ - I tend to not watch things that are current. And then if everybody swears it’s amazing then I’ll like watch the whole series in a weekend.
+
+50 quotes

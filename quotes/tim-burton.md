@@ -1,0 +1,79 @@
+ - Good morning starshine the earth says hello...
+ - Don’t worry about how you ‘should’ draw it. Just draw it the way you see it.
+ - Drawing is exercise for a restless imagination.
+ - I’m a happy-go-lucky manic-depressive. It does get very deep and dark for me, and it gets scary at times when I feel I can’t pull out of it. But I don’t consider myself negative-negative. I’m positive-negative.
+ - If youve ever had that feeling of loneliness, of being an outsider, it never quite leaves you. You can be happy or successful or whatever, but that thing still stays within you.
+ - I’ve always been misrepresented. You know, I could dress in a clown costume and laugh with the happy people but they’d still say I’m a dark personality.
+ - Visions are worth fighting for. Why spend your life making someone else’s dreams?
+ - Live people ignore the strange and unusual. I myself, am strange and unusual.
+ - Movies are like an expensive form of therapy for me.
+ - One person’s craziness is another person’s reality.
+ - I think a lot of kids feel alone and slightly isolated and in their own world.
+ - Anybody with artistic ambitions is always trying to reconnect with the way they saw things as a child.
+ - For me, fantasy has always been a means of exploring reality: it explores the fact that your internal life, your dreams and the weird images and the things that come to you are things that are actually important tools for dealing with real issues.
+ - There’s something quite exciting when you have a history with somebody and you see them do new and different things.
+ - It’s good as an artist to always remember to see things in a new, weird way.
+ - The good thing about animation is that you can affect it. If something is not working, then you just fix it.
+ - Maybe it’s just in America, but it seems that if you’re passionate about something, it freaks people out. You’re considered bizarre or eccentric. To me, it just means you know who you are.
+ - You don’t know whether chimps are going to kill you or kiss you. They’re very open on some levels and much more evil in a certain way.
+ - I always wonder why some people see things as weird and some people don’t.
+ - I am not a dark person and I don’t consider myself dark.
+ - I don’t really dream, I space out during the day – that’s one of my problems wonder off when someone’s talking to me. I can’t remember any dreams in my life. There’s so much strange in real life that it often seems like a dream.
+ - I’m gonna go live in a cave, just completely live in my interior world.
+ - I’ve always been more comfortable making my decisions from the subconscious level, or more emotionally, because I find it is more truthful to me; Intellectually, I don’t think like that because I get uncomfortable.
+ - I did some sports. It was a bit frustrating. I wasn’t the greatest sports person.
+ - But she knows she has a curse on her, a curse she cannot win. For if someone gets too close to her, the pins stick further in.
+ - Son, are you happy? I don’t mean to pry, but do you dream of Heaven? Have you ever wanted to die?
+ - Stick Boy liked Match Girl, He liked her a lot. He liked her cute figure, he thought she was hot. But could a flame ever burn for a match and a stick? It did quite literally; he burned up quick.
+ - And I Jack, the Pumpkin King, have grown so tired of the same old thing...
+ - It’s hard to find logic in things sometimes. That’s why I can’t analyze things too much, because it often doesn’t make much sense.
+ - He can’t fly around tall buildings, or outrun a speeding train, the only talent he seems to have is leaving a nasty stain!
+ - Everything in this room is edible. Even I’m edible. But, that would be called canibalism. It is looked down upon in most societies.
+ - A lot of things you see as a child remain with you you spend a lot of your life trying to recapture the experience.
+ - We all know interspecies romance is weird.
+ - My parents suffered from that ideal of a perfect nuclear family. They found that a difficult pressure, I think.
+ - Most people say about graveyards: “Oh, it’s just a bunch of dead people. It’s creepy.” But for me, there’s an energy to it that it not creepy, or dark. It has a positive sense to it.
+ - I always liked strange characters.
+ - My name is Jimmy, but my friends just call me the hideous penguin boy.
+ - Unwisely, Santa offered a teddy bear to James, unaware he had been mauled by a grizzly earlier this year.
+ - I am not a big technology person. I don’t go on the Internet really much at all. Drawing is like a zen thing; it’s private, which in this day and age is harder to come by.
+ - It’s very nice to have someone that you can have a completely abstract conversation with and leave the room, feel like everything’s fine, and then realize that if you pick it apart, you have absolutely no idea what either of you said.
+ - The great thing about visual horror films is there’s real potential for strong, beautiful imagery. It’s the one genre that really lends itself to creating strong images. And I’ve always loved that idea of windmills – your mind aimlessly spinning.
+ - I was never interested in what everybody else was interested in. I was very interiorized. I always felt kind of sad.
+ - Some people get therapy, some people get to make movies.
+ - It’s great when you know somebody and they keep surprising you.
+ - I’ve found that the people who play villains are the nicest people in the world and people who play heroes are jerks.
+ - When it comes to art and science, people don’t like a lot of either. Instead of being open to it, they’re closed off about it.
+ - Half the fun is plan to plan.
+ - Certain things leave you in your life and certain things stay with you. And that’s why we’re all interested in movies- those ones that make you feel, you still think about. Because it gave you such an emotional response, it’s actually part of your emotional make-up, in a way.
+ - It’s always an interesting challenge to see if you can create a character that’s got emotion.
+ - It’s really nice to work with people who understand and really love the artistry of building sets, it’s great.
+ - They took a baseball bat and whacked open his head. Mummy Boy fell to the ground; he finally was dead. Inside of his head were no candy or prizes, just a few stray beetles of various sizes.
+ - Minister: Welcome, brother! Do you reject Satan and all his works? Bunny Breckinridge: Sure.
+ - I never really got nightmares from movies. In fact, I recall my father saying when I was three years old that I would be scared, but I never was.
+ - I don’t look at my films or my old drawings much, so that was an interesting way to kind of reconnect with myself a bit.
+ - People told me I couldn’t kill Nicholson, so I cast him in two roles and killed him off twice.
+ - Technology is technology and then art form and people’s creativity is another thing. Anything that helps an artist do anything – great! Technology for technology sake doesn’t mean much to me anyway.
+ - Anybody who knows me knows I would never read a comic book. And I certainly would never read anything written by Kevin Smith.
+ - I’m going to put that on my gravestone. “He created such a category of unwanted pop culture – – Famous for directing unwanted cultural references”
+ - One of the things that we were trying to do with this show was the complexities of relationships and love. There is both passion and longing and a bittersweet quality to it that is a part of life.
+ - When I was growing up, Dr. Seuss was really my favorite. There was something about the lyrical nature and the simplicity of his work that really hit me.
+ - I’m not a big fan of spiders, rats, especially if they’re like – I got up one morning on a holiday recently, and there was a centipede in the bed that big. I wasn’t very happy about that.
+ - It’s like getting into film – I didn’t say early on, ‘I’m going to become a filmmaker,’ ‘I’m going to show my work at MoMA.’ When you start to think those things, you’re in trouble.
+ - I don’t know what it was, maybe the movie theaters in my immediate surrounding neighbourhood in Burbank, but I never saw what would be considered A movies.
+ - The problem with film is you never know when you’re going to be able to make a film so you can’t have people waiting around for you. Sometimes it’s fun to work with the same people and work with new people and mix it up.
+ - I always treated the science thing and the art thing as quite similar thematically.
+ - I don’t have a dog, because I travel too much. I don’t want to just leave it abandoned.
+ - I remember early in my career with Disney, which was a very strange time in the company – there were a couple of executives who were very supportive of me and kind of let me do my own thing.
+ - I think of Ray Harryhausen’s work – I knew his name before I knew any actor or director’s names. His films had an impact on me very early on, probably even more than Disney. I think that’s what made me interested in animation: His work.
+ - I wouldn’t know a good script if it bit me in the face.
+ - I always felt that Hollywood has a way of making you feel outside.
+ - Jack Nicholson is a textbook actor who’s very intuitive. He is absolutely brilliant at going as far as you can go, always pushing to the edge, but still making it seem real.
+ - I had never really done something that was more of a horror film, and its funny, because those are the kind of movies that I like probably more than any other genre. The script had images in it that I liked.
+ - One of the things I loved about the musical was that you listened to the soundtrack and it told you the story.
+ - My kid is a product of the fast computer lifestyle.
+ - First of all, you make a movie that you want to see and then you just hope for the best.
+ - If I had a choice about going to a meeting at a studio or changing a nappy, I’d choose the nappy.
+ - The Boy with Nails in His Eyes put up his aluminum tree. It looked pretty strange because he couldn’t really see.
+
+77 quotes

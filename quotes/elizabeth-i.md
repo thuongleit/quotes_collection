@@ -1,0 +1,110 @@
+ - Grief never ends, but it changes. It is a passage, not a place to stay. Grief is not a sign of weakness nor a lack of faith: it is the price of love.
+ - I observe and remain silent.
+ - Men fight wars. Women win them.
+ - A good face is the best letter of recommendation.
+ - God forgive you, but I never can.
+ - This is the Lord’s doing, and it is marvelous in our eyes.
+ - A clear and innocent conscience fears nothing.
+ - I would not open windows into men’s souls.
+ - If I follow the inclination of my nature, it is this: beggar-woman and single, far rather than queen and married.
+ - One man with a head on his shoulders is worth a dozen without.
+ - All my possessions for a moment of time.
+ - I would rather go to any extreme than suffer anything that is unworthy of my reputation, or of that of my crown.
+ - My mortal foe can no ways wish me a greater harm than England’s hate; neither should death be less welcome unto me than such a mishap betide me.
+ - Do not tell secrets to those whose faith and silence you have not already tested.
+ - Had I been crested, not cloven, my Lords, you had not treated me thus.
+ - Fear not, we are of the nature of the lion, and cannot descend to the destruction of mice and such small beasts.
+ - There is only one Christ, Jesus, one faith. All else is a dispute over trifles.
+ - I know I have the body of a weak and feeble woman, but I have the heart and stomach of a king, and of a king of England too.
+ - I would rather be a beggar and single than a queen and married.
+ - The stone often recoils on the head of the thrower.
+ - Eyes of youth have sharp sight but commonly not so deep as those of elder age.
+ - The daughter of debate That still discord doth sow.
+ - The past cannot be cured.
+ - I have the heart of a man, not a woman, and I am not afraid of anything.
+ - I have already joined myself in marriage to a husband, namely the kingdom of England.
+ - Although I may not be a lioness, I am a lion’s cub, and inherit many of his qualities; and as long as the King of France treats me gently he will find me as gentle and tractable as he can desire; but if he be rough, I shall take the trouble to be just as troublesome and offensive to him as I can.
+ - Let tyrants fear, I have always so behaved myself that, under God, I have placed my chiefest strength and safeguard in the loyal hearts and good-will of my subjects.
+ - My care is like my shadow in the sun, Follows me flying, flies when I pursue it, Stands and lies by me, doth what I have done.
+ - Chastity is the ermine of woman’s soul.
+ - Those who appear the most sanctified are the worst.
+ - There is an Italian proverb which saith, From my enemy let me defend myself; but from a pretensed friend Lord deliver me.
+ - There is no marvel in a woman learning to speak, but there would be in teaching her to hold her tongue.
+ - Must! Is must a word to be addressed to princes? Little man, little man! Thy father, if he had been alive, durst not have used that word.
+ - Brass shines as fair to the ignorant as gold to the goldsmiths.
+ - A fool too late bewares when all the peril is past.
+ - There is nothing about which I am more anxious than my country, and for its sake I am willing to die ten deaths, if that be possible.
+ - For, what is a family without a steward, a ship without a pilot, a flock without a shepherd, a body without a head, the same, I think, is a kingdom without the health and safety of a good monarch.
+ - The doubt of future foes exiles my present joy.
+ - No foteball player be used or suffered within the City of London and the liberties thereof upon pain of imprisonment.
+ - I don’t keep a dog and bark myself.
+ - The name of a successor is like the tolling of my own death-bell!
+ - The true sin against the Holy Ghost is ingratitude.
+ - The use of sea and air is common to all; neither can a title to the ocean belong to any people or private persons, forasmuch as neither nature nor public use and custom permit any possession therof.
+ - It is monstrous that the feet should direct the head.
+ - I do not so much rejoice that God hath made me to be a Queen, as to be a Queen over so thankful a people.
+ - As for me, I see no such great cause why I should either be fond to live or fear to die. I have had good experience of this world, and I know what it is to be a subject and what to be a sovereign. Good neighbours I have had, and I have met with bad: and in trust I have found treason.
+ - I do not want a husband who honours me as a queen, if he does not love me as a woman.
+ - Princes have big ears which hear far and near.
+ - When we hang on to resentments, we poison ourselves. As compulsive overeaters, we cannot afford resentment, since it exacerbates our disease.
+ - A meal of bread, cheese and beer constitutes the perfect food.
+ - Young heads take example of the ancient.
+ - I regret the unhappiness of princes who are slaves to forms and fettered by caution.
+ - Anger makes dull men witty, but it keeps them poor.
+ - I pluck up the good lissome herbs of sentences by pruning, eat them by reading, digest them by musing, and lay them up at length in the high seat of memory.
+ - There is small disproportion betwixt a fool who useth not wit because he hath it not and him that useth it not when it should avail him.
+ - To be a king and wear a crown is a thing more glorious to them that see it than it is pleasant to them that bear it.
+ - There is nothing in the world I hold in greater horror than to see a body moving against its head: and I shall be very careful notto ally myself with such a monster.
+ - Words are leaves, the substance consists of deeds, which are the true fruits of a good tree.
+ - The sea, as well as the air, is a free and common thing to all; and a particular nation cannot pretend to have the right to the exclusion of all others, without violating the rights of nature and public usage.
+ - If there were two princes in Christendom who had good will and courage, it would be very easy to reconcile the religious difficulties; there is only one Jesus Christ and one faith, and all the rest is a dispute over trifles.
+ - If our web be framed with rotten handles, when our loom is well nigh done, our work is new to begin. God send the weaver true prentices again, and let them be denizens.
+ - If thy heart fails thee, climb not at all.
+ - Kings were wont to honour philosophers, but if I had such I would honour them as angels that should have such piety in them that they would not seek where they are the second to be the first, and where the third to be the second and so forth.
+ - God has given such brave soldiers to this Crown that, if they do not frighten our neighbours, at least they prevent us from being frightened by them.
+ - My seat has been the seat of kings, and I will have no rascal to succeed me.
+ - I pray to God that I shall not live one hour after I have thought of using deception.
+ - A strength to harm is perilous in the hand of an ambitious head.
+ - O Fortune, how thy restless, wavering state has fraught with cares my troubled wit!
+ - It has been always held for a special principle in friendship that prosperity provideth but adversity proveth friends...
+ - I shall lend credit to nothing against my people which parents would not believe against their own children.
+ - Though God hath raised me high, yet this I count the glory of my crown: That I have reigned with your loves.
+ - I will have but one mistress and no master.
+ - I would gladly chastise those who represent things as different from what they are. Those who steal property or make counterfeit money are punished, and those ought to be still more severely dealt with who steal away or falsify the good name of a prince.
+ - Let the good service of well-deservers be never rewarded with loss. Let their thanks be such as may encourage more strivers for the like.
+ - I am more afraid of making a fault in my Latin than of the Kings of Spain, France, Scotland, the whole House of Guise, and all of their confederates.
+ - Hang Irish harpers wherever found.
+ - I thank God I am endued with such qualities that if I were turned out of the Realm in my petticoat I were able to live in any place in Christendom.
+ - If I should say the sweetest speech with the eloquentest tongue that ever was in man, I were not able to express that restless care which I have ever bent to govern for the greatest wealth.
+ - He that will forget God, will also forget his benefactors.
+ - Monarchs ought to put to death the authors and instigators of war, as their sworn enemies and as dangers to their states.
+ - Where minds differ and opinions swerve there is scant a friend in that company.
+ - Where might is mixed with wit, there is too good an accord in a government.
+ - I cannot find it in me to fear a man who took ten years a learning of his alphabet.
+ - They best pass over the world who trip over it quickly; for it is but a bog. If we stop, we sink.
+ - Mr. Doctor, that loose gown becomes you so well I wonder your notions should be so narrow.
+ - Affection! Affection is false.
+ - I will never be by violence constrained to do anything.
+ - If we still advise we shall never do.
+ - Be always faithful to me, as I always desire to keep you in peace; and if there have been wiser kings, none has ever loved you more than I have.
+ - Much suspected by me, Nothing proved can be.
+ - Prosperity provideth, but adversity proveth friends.
+ - I have never been able to be so allured by the prospect of advantages or so terrified by misfortunes, swayed by honours or fettered by affection, nay not even so smitten by the fear of death, as to enter upon marriage.
+ - Although my royal rank causes me to doubt whether my kingdom is not more sought after than myself, yet I understand that you havefound other graces in me.
+ - There is one thing higher than Royalty: and that is religion, which causes us to leave the world, and seek God.
+ - It is good to jest, but not to make a trade of jesting.
+ - The end crowneth the work.
+ - Though I am not imperial, and though Elizabeth may not deserve it, the Queen of England will easily deserve to have an emperor’s son to marry.
+ - I am no lover of pompous title, but only desire that my name may be recorded in a line or two, which shall briefly express my name, my virginity, the years of my reign, the reformation of religion under it, and my preservation of peace.
+ - Be of good cheer, for you will never want, for the bullet was meant for me, though it hit you.
+ - He who placed me in this seat will keep me here.
+ - I will be as good unto ye as ever a Queen was unto her people. No will in me can lack, neither do I trust shall there lack any power. And persuade yourselves that for the safety and quietness of you all I will not spare if need be to spend my blood.
+ - I have seen many a man turn his gold into smoke, but you are the first who has turned smoke into gold.
+ - The word must is not to be used to princes.
+ - I do not choose that my grave should be dug while I am still alive.
+ - Life is for living and working at. If you find anything or anybody a bore, the fault is in yourself.
+ - It is hard to find beauty in the art of self expression.
+ - I find that I sent wolves not shepherds to govern Ireland, for they have left me nothing but ashes and carcasses to reign over!
+ - Ye may have a greater prince, but ye shall never have a more loving prince.
+
+108 quotes

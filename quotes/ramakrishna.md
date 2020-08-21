@@ -1,0 +1,144 @@
+ - Knowledge leads to unity, but ignorance to diversity.
+ - All religions are true. God can be reached by different religions. Many rivers flow by many ways but they fall into the sea. They all are one.
+ - The tree laden with fruits always bends low. If you wish to be great, be lowly and meek.
+ - Man suffers through lack of faith in God.
+ - When you meditate, go into the solitude of a forest, or a quiet corner, and enter into the chamber of your heart. And always keep your power of discrimination awake.
+ - All troubles come to an end when the ego dies.
+ - As long as I live, so long do I learn.
+ - The fabled musk deer searches the world over for the source of the scent which comes from itself.
+ - When the flower blooms, the bees come uninvited.
+ - If you want to go east, don’t go west.
+ - To work without attachment is to work without the expectation of reward...
+ - If you meditate on your ideal, you will acquire its nature. If you think of God day and night, you will acquire the nature of God.
+ - Whoever wants God intensely, finds Him. Go and verify it in your own life.
+ - Why does God allow evil in the world? To thicken the plot.
+ - So many religions, so many paths to reach the one and the same goal.
+ - At a certain stage in the path of devotion, the devotee finds satisfaction in God with form, and at another stage, in God without it.
+ - The breeze of grace is always blowing; set your sail to catch that breeze.
+ - It is the mind that makes one wise or ignorant, bound or emancipated.
+ - If a man prays to Thee with a yearning heart, he can reach Thee, through Thy grace, by any path.
+ - Different creeds are but different paths to reach the same God.
+ - God is in all men, but all men are not in God; that is why we suffer.
+ - The winds of grace are always blowing, but you have to raise the sail.
+ - The grace of God is a wind which is always blowing.
+ - It is on account of the ego that one is not able to see God. In front of the door of God’s mansion lies the stump of ego. One cannot enter the mansion without jumping over the stump.
+ - Through selfless work, love of God grows in heart.
+ - If you spent one-tenth of the time you devoted to distractions like chasing women or making money to spiritual practice, you would be enlightened in a few years.
+ - Spirituality automatically leads to humility. When a flower develops into a fruit, the petals drop off on its own. When one becomes spiritual, the ego vanishes gradually on its own. A tree laden with fruits always bends low. Humility is a sign of greatness.
+ - Brahman is beyond mind and speech, beyond concentration and meditation, beyond the knower, the known and knowledge, beyond even the conception of the real and unreal. In short, It is beyond all relativity.
+ - Forgiveness is the true nature of the ascetic.
+ - Make your meditation a continuous state of mind. A great worship is going on all the time, so nothing should be neglected or excluded from your constant meditative awareness.
+ - Imagine a limitless expanse of water: above and below, before and behind, right and left, everywhere there is water. In that water is placed a jar filled with water. There is water inside the jar and water outside, but the jar is still there. The ‘I’ is the jar.
+ - Pray to Him anyway you like, He can even hear the footfall of an ant.
+ - It is not lust alone that one should be afraid of in the life of the world. There is also anger. Anger arises when obstacles are placed in the way of desire.
+ - The ego is like the root of a banyan tree, you think you have removed it all then one fine morning you see a sprout flourishing again.
+ - The sun can give heat and light to the whole world, but he cannot do so when the clouds shut out his rays. Similarly as long as egotism veils the heart, God cannot shine upon it.
+ - If a white cloth is stained even with a small spot, the stain appears very ugly indeed. So the smallest fault of a holy man becomes painfully prominent.
+ - The world is impermanent. One should constantly remember death.
+ - When the divine vision is attained, all appear equal; and there remains no distinction of good and bad, or of high and low.
+ - If you feel proud, let it be in the thought that you are the servant of God, the son of God. Great men have the nature of a child. They are always a child before Him; so they are free from pride. All their strength is of God and not their own. It belongs to Him and comes from Him.
+ - When one has love for God, one doesn’t feel any physical attraction to wife, children, relatives and friends. One retains only compassion for them.
+ - One cannot attain divine knowledge till one gets rid of pride. Water does not stay on the top of a mound; but into low land it flows in torrents from all sides.
+ - The world is indeed a mixture of truth and make-believe. Discard the make-believe and take the truth.
+ - We laugh at the efforts of the musk deer to find the source of the scent which comes from itself and despair at our efforts to find the peace which is our essence.
+ - A boat may stay in water, but water should not stay in boat. A spiritual aspirant may live in the world, but the world should not live within him.
+ - The waves belong to the Ganges, not the Ganges to the waves. A man cannot realize God unless he gets rid of all such egotistic ideas as “I am such an important man” or “I am so and so”. Level the mound of “I” to the ground by dissolving it with tears of devotion.
+ - The way of love is as true as the way of knowledge. All paths ultimately lead to the same Truth. But as long as God keeps the feeling of ego in us, it is easier to follow the path of love.
+ - As a piece of rope, when burnt, retains its form, but cannot serve to bind, so is the ego which is burnt by the fire of supreme Knowledge.
+ - Great men have the nature of a child.
+ - If you must be mad, be it not for the things of the world. Be mad with the love of God.
+ - You see many stars in the sky at night, but not when the sun rises. Can you therefore say that there are no stars in the heavens during the day? Because you cannot find God in the days of your ignorance, say not that there is no God.
+ - Man needs a guru. But a man must have faith in the guru’s words. He succeeds in spiritual life by looking on his guru as God Himself.
+ - One cannot be spiritual as long as one has shame, hatred, or fear.
+ - Only two kinds of people can attain self-knowledge: those who are not encumbered at all with learning, that is to say, whose minds are not over-crowded with thoughts borrowed from others; and those who, after studying all the scriptures and sciences, have come to realise that they know nothing.
+ - It is true that God is even in the tiger, but we must not go and face the animal. So it is true that God dwells even in the most wicked, but it is not meet that we should associate with the wicked.
+ - When the fruit appears the blossom drops off. Love of God is the fruit, and rituals are the blossom.
+ - As the shell, the pith and the kernel of the fruit are all produced form one parent seed of the tree, so from the one Lord is produced the whole of creation, animate and inanimate, spiritual and material.
+ - Meditate upon the Knowledge and Bliss Eternal, and you will also have bliss. The Bliss indeed is eternal, only it is covered and obscured by ignorance. The less your attachment is towards the senses, the more will be your love towards God .
+ - Do yourself what you wish others to do.
+ - A man is truly free, even here in this embodied state, if he knows that God is the true agent and he by himself is powerless to do anything.
+ - God can be realized through all paths. All religions are true. The important thing is to reach the roof. You can reach it by stone stairs or by wooden stairs or by bamboo steps or by a rope. You can also climb up by a bamboo pole.
+ - Bondage and Liberation are of the mind alone.
+ - Dislodging a green nut from it’s shell is almost impossible, but let it dry and the lightest tap will do it.
+ - To work without attachment is to work without the expectation of reward or fear of any punishment in this world or the next. Work so done is a means to the end, and God is the end.
+ - The compassion that you see in the kindhearted is God’s compassion. He has given it to them to protect the helpless.
+ - You should not feel that your path is the only right path and that other paths are wrong. You mustn’t bear malice toward others.
+ - The fool who repeats again and again: “I am bound, I am bound,” remains in bondage. He who repeats day and night: “I am a sinner, I am a sinner,” becomes a sinner indeed.
+ - Many people think they cannot have knowledge or understanding of God without reading books. But hearing is better than reading, and seeing is better than hearing. Hearing about Benares is different from reading about it; but seeing Benares is different from either hearing or reading.
+ - Sugar and sand may be mixed together, but the ant rejects the sand and goes off with the sugar grain; so pious men lift the good from the bad.
+ - Do not be small minded. Do not pray for gourds and pumpkins from God, when you should be asking for pure love and pure knowledge to dawn within every heart.
+ - The young bamboo can be easily bent, but the full grown bamboo breaks when it is bent with force. It is easy to bend the young heart towards God, but the untrained heart of the old escapes the hold whenever it is so drawn.
+ - An ocean of bliss may rain down from the heavens, but if you hold up only a thimble, that is all you receive.
+ - God had created the world in play.
+ - The vanities of all others may gradually die out, but the vanity of a saint regarding his sainthood is hard indeed to wear away.
+ - Men are like pillow-cases. The colour of one may be red, that of another blue, and that of the third black; but all contain the same cotton within. So it is with man; one is beautiful, another is ugly, a third holy, and a fourth wicked; but the Divine Being dwells in them all.
+ - The magnetic needle always points to the north, and hence it is that sailing vessel does not lose her direction. So long as the heart of man is directed towards God, he cannot be lost in the ocean of worldliness.
+ - Pray to God that your attachment to such transitory things as wealth, name, and creature comforts may become less and less every day.
+ - Who is whose Guru? God alone is the guide and Guru of the universe.
+ - Many good sayings are to be found in holy books, but merely reading them will not make one religious.
+ - As for myself, I look upon all women as my Mother. This is a very pure attitude of mind. There is no risk or danger in it. To look upon a woman as one’s sister is also not bad. But the other attitudes are very difficult and dangerous. It is almost impossible to keep to the purity of the ideal.
+ - Those who wish to attain God and progress in religious devotion, should particularly guard themselves against the snares of lust and wealth. Otherwise they can never attain perfection.
+ - Live like a mud-fish: its skin is bright and shiny even though it lives in mud.
+ - With sincerity and earnestness one can realize God through all religions.
+ - Sunlight is one and the same wherever it falls; but only a bright surface like that of water, or of a mirror reflects it fully. So is the light Divine. It falls equally and impartially on all hearts, but the pure and pious hearts of holy men receive and reflect that light well.
+ - One cannot completely get rid of the six passions: lust, anger, greed, and the like. Therefore one should direct them to God. If you must have desire and greed, then you should desire love of God and be greedy to attain Him.
+ - The truth is that you cannot attain God if you have even a trace of desire. Subtle is the way of dharma. If you are trying to thread a needle, you will not succeed if the thread has even a slight fiber sticking out.
+ - So long as one does not become simple like a child, one does not get divine illumination. Forget all the worldly knowledge that thou hast acquired and become as a child, and then will thou get the divine wisdom.
+ - Respect is heaven, respect is liberation.
+ - The ordinary man says in his ignorance, “My religion is the sole religion, my religion is the best.” But when his heart is illuminated by the true knowledge, he knows that beyond all the battles of sects and of sectaries presides the one, indivisible, eternal and omnipresent Benediction.
+ - Honour both spirit and form, the sentiment within as well as the symbol without.
+ - Disease is the tax which the soul pays for the body, as the tenant pays house-rent for the use of the house.
+ - The physicians of one class feel the patients and go away, merely prescribing medicine. As they leave the room they simply ask the patient to take the medicine. They are the poorest class of physicians.
+ - The world is not impermanent if one lives there after knowing God.
+ - As for me, I consider myself as a speck of the dust of the devotee’s feet.
+ - All will surely realize God. All will be liberated. It may be that some get their meal in the morning, some at noon, and some in the evening; but none will go without food. All, without any exception, will certainly know their real Self.
+ - As a toy fruit or a toy elephant reminds one of the real fruit and the living animal, so do the images that are worshipped remind one of the God who is formless and eternal.
+ - God cannot be realizxd if there is the slightest trace of pride.
+ - If you desire to be pure, have firm faith, and slowly go on with your devotional practices without wasting your energy in useless scriptural discussions and arguments. Your little brain will otherwise be muddled.
+ - One man may read the Bhagavata by the light of a lamp, and another may commit a forgery by that very light; but the lamp is unaffected. The sun sheds its light on the wicked as well as on the virtuous.
+ - With sincerity and earnestness one can realize God through all religions. The Vaishnavas will realize God, and so will the Saktas, the Vedantists, and the Brahmos. The Mussalmans and Christians will realize Him too. All will certainly realize God if they are earnest and sincere.
+ - Too much study of the scriptures does more harm than good. The important thing is to know the essence of the scriptures. After that, what is the need of books? One should learn the essence and then dive deep in order to realize God.
+ - Unless one always speaks the truth, one cannot find God Who is the soul of truth.
+ - Those whose spiritual awareness has been awakened never make a false move. They don’t have to avoid evil. They are so replete with love that whatever they do is a good action. They are fully conscious that they are not the doer of their actions, but only servants of God.
+ - Right discrimination is of two kinds analytical and synthetical. The first leads one from the phenomena to the Absolute Brahman, while by the second one knows how the Absolute Brahman appears as the universe.
+ - If you keep your heart immersed always in the ocean of divine love, your heart is sure to remain ever full to overflowing with the waters of divine love.
+ - It is very pleasant to scratch an itching ring-worm, but the sensation one gets afterwards is very painful and intolerable. In the same way the pleasures of this world are very attractive in the beginning, but their consequences are terrible to contemplate and hard to endure.
+ - Who may be called a paramahamsa? He who, like a swan, can take the milk from a mixture of milk and water, leaving aside the water. He who, like an ant, can take the sugar from a mixture of sugar and sand, leaving aside the sand.
+ - God is everywhere but He is most manifest in man. So serve man as God. That is as good as worshipping God.
+ - How long do small girls play with their dolls? As long as they are not married and do not live with their husbands. After marriage they put the dolls away in a box. What further need is there of worshipping the image after the vision of God?
+ - Bondage is of the mind; freedom too is of the mind. If you say ‘I am a free soul. I am a son of God who can bind me’ free you shall be.
+ - More are the names of God and infinite are the forms through which He may be approached. In whatever name and form you worship Him, through them you will realise Him.
+ - One should not think, ‘My religion alone is the right path and other religions are false.’ God can be realized by means of all paths. It is enough to have sincere yearning for God. Infinite are the paths and infinite are the opinions.
+ - He is born in vain, who having attained the human birth, so difficult to get, does not attempt to realize God in this very life.
+ - If you first fortify yourself with the true knowledge of the Universal Self, and then live in the midst of wealth and worldliness, surely they will in no way affect you.
+ - One day, it was suddenly revealed to me that everything is pure spirit.
+ - It is easy to talk on religion, but difficult to practice it.
+ - That knowledge which purifies the mind and heart alone is true Knowledge, all else is only a negation of Knowledge.
+ - Common men talk bagfuls of religion but do not practise even a grain of it. The wise man speaks a little, even though his whole life is religion expressed in action.
+ - The waves belong to the water. Does the water belong to the waves?
+ - It’s enough to have faith in one aspect of God. But never get into your head that your faith alone is true and every other is false.
+ - Longing is like the rosy dawn. After the dawn out comes the sun. Longing is followed by the vision of God.
+ - God in the form of the saint, God in the form of the sinner, God in the form of the righteous, God in the form of the unrighteous.
+ - I have no disciple. I am the servant of the servant of Rama .
+ - As the snake is separate from its slough, even so is the Spirit separate from the body.
+ - Once a person has faith, he has achieved everything.
+ - If diving once does not bring you pearls, you need not therefore conclude that the sea is without them.
+ - The Man who works for others, without any selfish motive, really does good to himself.
+ - Try to cultivate love of God. You are born as a human being only to attain divine love.
+ - The winds of grace blow all the time. All we need to do is set our sails.
+ - Infinite are the paths and infinite the opinions.
+ - As a boy holding to a post or a pillar whirls about it with headlong speed without any fear or falling, so perform your worldly duties, fixing your hold firmly upon God, and you will be free from danger.
+ - You speak of doing good to the world. Is the world such a small thing? And who are you, pray, to do good to the world? First realise God, see Him by means of spiritual discipline. If He imparts power you can do good to others; otherwise not.
+ - Through selfless work, love of God grows in the heart. Then through his grace one realize him in course of time. God can be seen. One can talk to him as I am talking to you.
+ - You should love everyone because God dwells in all beings.
+ - Work, apart from devotion or love of God, is helpless and cannot stand alone.
+ - Have love for everyone, no one is other than you.
+ - Finish the few duties you have at hand, and then you will have peace.
+ - Travel in all the four quarters of the earth, yet you will find nothing anywhere. Whatever there is, is only here.
+ - Unalloyed love of God is the essential thing. All else is unreal.
+ - Live in the world like a waterfowl. The water clings to the bird, but the bird shakes it off. Live in the world like a mudfish. The fish lives in the mud, but its skin is always bright and shiny.
+ - If there are errors in other religions, that is none of our business. God, to whom the world belongs, takes care of that.
+ - What is the use of merely listening to lectures? The real thing is practice.
+ - One must be very particular about telling the truth. Through truth one can realize God.
+
+142 quotes

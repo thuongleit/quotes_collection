@@ -1,0 +1,53 @@
+ - Not only is the universe stranger than we imagine, it is stranger than we can imagine. 
+ - Something unknown is doing we don’t know what-that is what our theory amounts to.
+ - A hundred thousand million Stars make one Galaxy; A hundred thousand million Galaxies make one Universe. The figures may not be very trustworthy, but I think they give a correct impression.
+ - If an army of monkeys were strumming on typewriters, they might write all the books in the British Museum.
+ - In Einstein’s theory of relativity the observer is a man who sets out in quest of truth armed with a measuring-rod. In quantum theory he sets out with a sieve.
+ - The pursuit of truth in science transcends national boundaries. It takes us beyond hatred and anger and fear. It is the best of us.
+ - Science is one thing, wisdom is another. Science is an edged tool, with which men play like children, and cut their own fingers.
+ - An ocean traveler has even more vividly the impression that the ocean is made of waves than that it is made of water.
+ - The word reality frightens me.
+ - I believe there are 15, 747, 724, 136, 275, 002, 577, 605, 653, 961, 181, 555, 468, 044, 717, 914, 527, 116, 709, 366, 231, 425, 076, 185, 631, 031, 296 protons in the universe and the same number of electrons.
+ - I ask you to look both ways. For the road to a knowledge of the stars leads through the atom; and important knowledge of the atom has been reached through the stars.
+ - There is no space without aether, and no aether which does not occupy space.
+ - Schrodinger’s wave-mechanics is not a physical theory but a dodge-and a very good dodge too.
+ - It is reasonable to hope that in the not too distant future we shall be competent to understand so simple a thing as a star.
+ - Don’t believe the results of experiments until they’re confirmed by theory.
+ - So far as physics is concerned, time’s arrow is a property of entropy alone.
+ - The idea of a universal mind or Logos would be, I think, a fairly plausible inference from the present state of scientific theory.
+ - Human life is proverbially uncertain; few things are more certain than the solvency of a life-insurance company.
+ - Life would be stunted and narrow if we could feel no significance in the world around us beyond that which can be weighed and measured with the tools of the physicist or described by the metrical symbols of the mathematician.
+ - In any attempt to bridge the domains of experience belonging to the spiritual and physical sides of nature, time occupies the key position.
+ - The physical world is entirely abstract and without actuality apart from its linkage to consciousness.
+ - Time is the supreme Law of nature.
+ - It is impossible to trap modern physics into predicting anything with perfect determinism because it deals with probabilities from the outset.
+ - Proof is an idol before which the mathematician tortures himself.
+ - We often think that when we have completed our study of one we know all about two, because ‘two’ is ‘one and one.’ We forget that we still have to make a study of ‘and.’
+ - Falling in love is one of the activities forbidden that tiresome person, the consistently reasonable man.
+ - For the truth of the conclusions of physical science, observation is the supreme Court of Appeal.
+ - When an investigator has developed a formula which gives a complete representation of the phenomena within a certain range, he may be prone to satisfaction. Would it not be wiser if he should say ‘Foiled again! I can find out no more about Nature along this line.’
+ - Whatever else there may be in our nature, responsibility toward truth is one of its attributes.
+ - Every body continues in its state of rest or uniform motion in a straight line, except insofar as it doesn’t.
+ - It is also a good rule not to put overmuch confidence in the observational results that are put forward until they are confirmed by theory.
+ - It is a primitive form of thought that things exist or do not exist.
+ - We are bits of stellar matter that got cold by accident, bits of a star gone wrong.
+ - Electrical force is defined as something which causes motion of electrical charge; an electrical charge is something which exerts electric force.
+ - If your theory is found to be against the second law of thermodynamics I give you no hope; there is nothing for it but to collapse in deepest humiliation.
+ - You cannot disturb the tiniest petal of a flower without the troubling of a distant star.
+ - Oh leave the Wise our measures to collate. One thing at least is certain, light has weight. One thing is certain and the rest debate. Light rays, when near the Sun, do not go straight.
+ - Who will observe the observers?
+ - What is possible in the Cavendish Laboratory may not be too difficult in the sun.
+ - I don’t believe any experiment until it is confirmed by theory. I find this is a witty inversion of “conventional” wisdom.
+ - Never accept a fact until it has been verified by theory.
+ - The quest of the absolute leads into the four-dimensional world.
+ - We have found that where science has progressed the farthest, the mind has but regained from nature that which the mind put into nature.
+ - The mathematics is not there till we put it there.
+ - Shuffling is the only thing which Nature cannot undo.
+ - Events do not happen; they are just there, and we come across them.
+ - Whether in the intellectual pursuits of science or in the mystical pursuits of the spirit, the light beckons ahead, and the purpose surging in our nature responds.
+ - There was a time when we wanted to be told what an electron is. The question was never answered. No familiar conceptions can be woven around the electron; it belongs to the waiting list.
+ - Our ultimate analysis of space leads us not to a “here” and a “there,” but to an extension such as that which relates “here” and “there.” To put the conclusion rather crudely-space is not a lot of points close together; it is a lot of distances interlocked.
+ - What we makes of the world must be largely dependent on the sense-organs that we happen to possess. How the world must have changed since the man came to rely on his eyes rather than his nose.
+ - The helium which we handle must have been put together at some time and some place. We do not argue with the critic who urges that the stars are not hot enough for this process; we tell him to go and find a hotter place.
+
+51 quotes

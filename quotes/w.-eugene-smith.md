@@ -1,0 +1,29 @@
+ - I think photojournalism is documentary photography with a purpose.
+ - What use having a great depth of field, if there is not an adequate depth of feeling?
+ - The journalistic photographer can have no other than a personal approach; and it is impossible for him to be completely objective. Honest – yes. Objective – no.
+ - I’ve never made any picture, good or bad, without paying for it in emotional turmoil.
+ - With considerable soul searching, that to the utmost of my ability, I have let truth be the prejudice.
+ - Available light is any damn light that is available!
+ - I didn’t write the rules. Why would I follow them?
+ - I try to take what voice I have and I give it to those who don’t have one at all.
+ - Never have I found the limits of the photographic potential. Every horizon, upon being reached, reveals another beckoning in the distance. Always, I am on the threshold.
+ - The purpose of all art is to cause a deep and emotion, also one that is entertaining or pleasing. Out of the depth and entertainment comes value.
+ - The world just does not fit conveniently into the format of a 35mm camera.
+ - An artist must be ruthlessly selfish.
+ - Photography is a small voice, at best, but sometimes one photograph, or a group of them, can lure our sense of awareness.
+ - I would that my photographs might be, not the coverage of a news event, but an indictment of war.
+ - Passion is in all great searches and is necessary to all creative endeavors.
+ - Negatives are the notebooks, the jottings, the false starts, the whims, the poor drafts, and the good draft but never the completed version of the work The print and a proper one is the only completed photograph, whether it is specifically shaded for reproduction, or for a museum wall.
+ - Hardening of the categories causes art disease.
+ - My pictures are complex and so am I.
+ - The first word I would remove from the folklore of journalism is the word objective.
+ - You can’t photograph if you’re not in love.
+ - If I can get them to think, get them to feel, get them to see, then I’ve done about all that I can as a teacher.
+ - I can’t stand these damn shows on museum walls with neat little frames, where you look at the images as if they were pieces of art. I want them to be pieces of life!
+ - Many claim I am a photographer of tragedy. In the greater sense I am not, for though I often photograph where the tragic emotion is present, the result is almost invariably affirmative.
+ - My photographs at best hold only a small length, but through them I would suggest and criticize and illuminate and try to give compassionate understanding.
+ - Most photographers seem to operate with a pane of glass between themselves and their subjects. They just can’t get inside and know the subject.
+ - I am constantly torn between the attitude of the conscientious journalist who is a recorder and interpreter of the facts and of the creative artist who often is necessarily at poetic odds with the literal facts.
+ - In music I still prefer the minor key, and in printing I like the light coming from the dark. I like pictures that surmount the darkness, and many of my photographs are that way. It is the way I see photographically. For practical reasons, I think it looks better in print too.
+
+27 quotes

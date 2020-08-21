@@ -1,0 +1,29 @@
+ - Forgiveness frees the forgiver.
+ - Never forget the power of silence, that massively disconcerting pause which goes on and on and may last induce an opponent to babble and backtrack nervously.
+ - Music is the way our memories sing to us across time.
+ - People travel because it teaches them things they could learn no other way.
+ - A rattlesnake loose in the living room tends to end all discussion of animal rights.
+ - Everywhere you hang your hat is home. Home is the bright cave under the hat.
+ - As American productivity, once the exuberant engine of national wealth, has dipped to an embarrassingly uncompetitive low, Americans have shaken their heads: the country’s old work ethic is dead.
+ - Leaders make things possible. Exceptional leaders make them inevitable.
+ - For now, we assume that self-evolving robots will learn to mimic human traits, including, eventually, humor. And so, I can’t wait to hear the first joke that one robot tells to another robot.
+ - Handwriting is civilization’s casual encephalogram.
+ - Abstinence is a window of clarity through which one can better find one’s work and one’s mate.
+ - The busybodies have begun to infect American society with a nasty intolerance – a zeal to police the private lives of others and hammer them into standard forms – A Nation of Finger Pointers.
+ - Would it be anything like a literary disaster if Gore Vidal were to fall silent? Easy. No. In fact, there is something to be said for the idea.
+ - Africa has a genious for extremes, for the beginning and the end. It seems simultaneously connected to some memory of Eden and to some foretaste of apocalypse. Nowhere is day more vivid or night darker. Nowhere are forests more luxuriant. Nowhere is there a continent more miserable.
+ - Vatican II was a force that seized the mind of the Roman Catholic Church and carried it across centuries from the 13th to the 20th.
+ - Not to forgive is to be imprisoned by the past, by old grievances that do not permit life to proceed with new business.
+ - The kiss is a wordless articulation of desire whose object lies in the future, and somewhat to the south.
+ - Never try to wear a hat that has more character than you do.
+ - As they marched, the crowds lining the route broke into applause, a sweet and deeply felt spontaneous pattering that was a sort of communal embrace. Welcome home.
+ - The television anchorman Dan Rather turns up in rag-top native drag in Afghanistan, the surrogate of our culture with his camera crew, intrepid as Sir Richard Burton sneaking into Mecca.
+ - A day cannot live in infamy without the nourishment of rage. Let’s have rage.
+ - The real 1960s began on the afternoon of November 22, 1963. It came to seem that Kennedy’s murder opened some malign trap door in American culture, and the wild bats flapped out.
+ - Human ingenuity has given centuries to the goal of ensuring that the human body might move around at an even 68 degrees all year.
+ - One can live with the thought of one’s own death. It is the thought of the death of the words and books that is terrifying for that is the deeper extinction.
+ - The Church became both more accessible and less imposing. It threw itself open to risk.
+ - Religious hatreds tend to be merciless and absolute.
+ - The Clinton’s secret is that they live in a morally discontinuous universe-events do not have consequences, and what happened 15 minutes ago has no connection to what happens now. Beware of power when it masters the secret of popular amnesia.
+
+27 quotes

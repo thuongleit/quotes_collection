@@ -1,0 +1,139 @@
+ - If you risk nothing, you gain nothing.
+ - Being brave isn’t the absence of fear. Being brave is having that fear but finding a way through it.
+ - Survival can be summed up in three words – never give up. That’s the heart of it really. Just keep trying.
+ - I’ve seen extreme bravery from the least likely of people. Life is about the moments when it’s all gone wrong. That’s when we define ourselves.
+ - Without risk, there can be no growth.
+ - Life is an adventure that is best lived boldly.
+ - The difference between ordinary and extra-ordinary is so often just simply that little word – extra.
+ - Life doesn’t reward the naturally clever or strong but those who can learn to fight and work hard and never quit.
+ - Both faith and fear may sail into your harbor, but only allow faith to drop anchor.
+ - The greatest journeys all start with a single step.
+ - Once a job it has begun, do not stop until it’s done. Whether it is big or small, do it well or not all.
+ - When you find yourself thinking about someone or something in the same old negative way, just stop yourself. Think. Check. Change. Refresh. Job done. Smile. Move on. Do this enough times and you will change. For the better; for the stronger.
+ - There’s no magic to running far or climbing Everest. Endurance is mental strength. It’s all about heart.
+ - The rules of survival never change, whether you’re in a desert or in an arena.
+ - You only get one chance at life and you have to grab it boldly.
+ - Don’t be scared to dream big, and don’t be afraid to be close to people. And never give up! It’s the tenacious not the talented that win.
+ - Sometimes an ember is all we need.
+ - Live a wild, generous full, exciting life – blessing those around you and seeing the good in all.
+ - And if you give your heart to a goal, it will repay you. It’s the law of the universe.
+ - My Christian faith is my backbone.
+ - Look, sometimes, no matter how hard you try, sometimes you need a bit of luck.
+ - Never depend on those luck moments – they are gifts – but instead always build your own back-up plan.
+ - A man’s pride can be his downfall, and he needs to learn when to turn to others for support and guidance.
+ - Alpha was the best thing I ever did. It helped answer some huge questions and to find a simple empowering faith in my life.
+ - Our fate is determined by how far we are prepared to push ourselves to stay alive – the decisions we make to survive. We must do whatever it takes to endure and make it through alive.
+ - How you speak about others speaks loudest about yourself.
+ - Our achievements are generally limited only by the beliefs we impose on ourselves.
+ - Why is it that the finish line always tends to appear just after the point at which we most want to give up? is it the universe’s way of reserving the best for those who can give the most? What I do know, from nature, is that the dawn only appears after the darkest hour.
+ - Make a little time to be quiet by yourself every day and just be.
+ - In the British Special Air Service, combat fitness is all about running.
+ - The lesson is, the rewards in life don’t always go to the biggest, or the bravest, or the smartest. The rewards go to the dogged; and when your going though hell, to the person who just keeps going.
+ - And Jesus, the heart of the Christian faith is the wildest, most radical guy you’d ever come across.
+ - Nothing inspires people more than reckless acts of courage.
+ - The truth is, I need 10 lifetimes to scratch the surface of the things I’d love to do.
+ - Faith is personal if it’s to be real.
+ - Christianity is not about religion. It’s about faith, about being held, about being forgiven. It’s about finding joy and finding home.
+ - I learnt another valuable lesson that night: listen to the quiet voice inside. Intuition is the noise of the mind.
+ - Weather can kill you so fast. The first priority of survival is getting protection from the extreme weather.
+ - A wise man knows; learn from others, never get complacent and know where the classic old dangers come from.
+ - Adventure should be 80 percent ‘I think this is manageable,’ but it’s good to have that last 20 percent where you’re right outside your comfort zone. Still safe, but outside your comfort zone.
+ - Well, wolves will pretty rarely hunt. You’re vulnerable if you’re on your own or injured. But for lone wolves, get up high, show them that you’re not injured, face ’em off, be authoritarian with it, and look ’em in the eye.
+ - My work is all about adventure and teamwork in some of the most inhospitable jungles, mountains and deserts on the planet. If you aren’t able to look after yourself and each other, then people die.
+ - Our dreams are just wishes, if we never follow them through with action. And in life, you have got to be able to light your own fire.
+ - The only difference between ‘try’ and ‘triumph’ is varying degrees of ‘umph’
+ - You can’t become a decent horseman until you fall off and get up again, a good number of times. There’s life in a nutshell.
+ - There is little faith involved in setting out on a journey where the destination is certain and every step in between has been mapped in detail. Bravery, trust, is about leaving camp in the dark, when we do not know the route ahead and cannot be certain we will ever return.
+ - As for my diet, I try to eat lean, clean and healthy – nothing too surprising. And I avoid too much meat or dairy because they slow you down.
+ - I find skydiving really hard. I broke my back while skydiving when I was in the military, and for 18 months all my nightmares were about falling.
+ - Dreams, though, are cheap, and the real task comes when you start putting in place the steps needed to make those dreams a reality.
+ - Always keep the big picture in mind- you are greatly loved by Jesus and your job is to love Him and others in return. The rest is detail.
+ - I look back and understand the world a bit better and know how competitive it is .
+ - Above all, I feel a quiet pride that for the rest of my days I can look at myself in the mirror and know that once upon a time I was good enough. Good enough to call myself a member of the SAS. Some things don’t have a price tag.
+ - What I’ve learned over the years is that the path less traveled always makes for a more interesting journey. If you simply do what everyone else is doing, how can you ever expect to excel and create something wonderful and unique in your life?
+ - I’ve fallen down crevasses, been bitten by snakes, been knocked unconscious, had various limbs broken and once, a heavy camera came plunging down which very nearly decapitated me.
+ - I love making healthy lean foods delicious – that’s an art!
+ - I was christened Edward. My sister gave me the name Bear when I was a week old and it has stuck.
+ - Eating any of these things, goat testicles or what have you, isn’t going to be nice, but you get into that zone, you become focussed and you do what you need to do. It’s all about one thing: coming home in one piece.
+ - Exercise helps my back. If I don’t exercise, that’s when it starts to hurt. The pain is a good motivator to run and exercise.
+ - Nobody else is stupid enough to get themselves into the straits that I get into.
+ - Nobody wants to end up super rich and famous – but divorced. I’m always clear on that and try to stay on the right side of the line.
+ - Unless you have shelter, fire is going to be very hard and if you have fire, but no water, you’re going to die. They’re all super important.
+ - Life’s full of lots of dream-stealers always telling you you need to do something more sensible. I think it doesn’t matter what your dream is, just fight the dream-stealers and hold onto it.
+ - What Scouting says to people is: Every child has a right to have an adventure. Life is about grabbing opportunities.
+ - Are you the sort of person who can turn around when you have nothing left, and find that little bit extra inside you to keep going, or do you sag and wilt with exhaustion? It is a mental game, and it is hard to tell how people will react until they are squeezed.
+ - Is your ego small enough, and your backbone strong enough, to raise others up high on your shoulders?
+ - All worthwhile journeys have big obstacles. It’s the way of the world. The rewards go to those who can push through those trying moments and still manage to keep a smile on their face.
+ - The hardest thing about my job isn’t the snake bites or the crocodiles, it’s being away from my children. I have a really religious satellite phone call every day back to the boys, wherever we are, whatever time zone, to say goodnight.
+ - Time and experience have taught me that fame and money very rarely go to the worthy, by the way – hence we shouldn’t ever be too impressed by either of those impostors. Value folk for who they are, how they live and what they give – that’s a much better benchmark.
+ - Survival requires us to leave our prejudices at home. It’s about doing whatever it takes – and ultimately those with the biggest heart will win.
+ - The extremes of jungles, mountains, and deserts are inherently dangerous places.
+ - My faith isn’t very churchy, it’s a pretty personal, intimate thing and has been a huge source of strength in moments of life and death.
+ - I train five days a week hard – but it is short and sharp – 30 to 40 minutes of functional and pretty dynamic body-strength circuits, then I do a good yoga session on the sixth day, then I rest.
+ - I am not fearless. I get scared plenty. But I have also learned how to channel that emotion to sharpen me.
+ - There is no feeling like coming home after danger.
+ - I don’t like expeditions where it is a total lottery whether you live or die. You have to keep those sort of good luck cards for rare occasions!
+ - The appeal of the wild for me is its unpredictability. You have to develop an awareness, react fast, be resourceful and come up with a plan and act on it.
+ - You can’t live someone else’s expectations in life. It’s a recipe for disaster.
+ - The SAS Reserve tends to be made up of former paratroopers and commandos who still want a challenge, but it is open to civilians.
+ - I think fire is so critical in the wild. You can cook with it, you can make tools, you can deter a predator, you can dry your clothes and you get that element of morale that matters so much when you’re stuck in the middle of nowhere.
+ - It breaks my heart that my father never knew my children. He should have been around for another 25 years.
+ - Survival is not about being fearless. It’s about making a decision, getting on and doing it, because I want to see my kids again, or whatever the reason might be.
+ - I think viewers quite like it when I’m suffering or eating or drinking something horrible or really up against it in some quicksand or whatever.
+ - To me, adventure has always been to me the connections and bounds you create with people when you’re there. And you can have that anywhere.
+ - The special forces gave me the self-confidence to do some extraordinary things in my life. Climbing Everest then cemented my belief in myself.
+ - My favorite moments? Where it’s all going swimmingly, the sun’s out and I’ve got a fire going and a nice snake on the barbecue.
+ - I do see a lot of the hard end of ecology, and my feeling is that we live on a super-exciting planet but a super-fragile one.
+ - Life has taught me to be very cautious of a man with a dream, especially a man who has teetered on the edge of life. It gives a fire and recklessness inside that is hard to quantify.
+ - I had many opportunities to get behind products in the past, and I was always careful to evaluate all of them. I will not put my name to shoddy items.
+ - I have held healthy respects of bears along with assorted crocodiles, snakes and lots of other animals. You know, bears are dangerous, you have to be super careful.
+ - I’ve had so many injuries in my life that it’s ridiculous.
+ - I’m probably going to be the scruffiest Chief Scout you’ve ever had and my health and safety policy is non-existent.
+ - I hang out all the time with kids and young scouts and I never meet kids who don’t want adventure.
+ - I said ‘no’ to the ‘Born Survivor’ producer three times because I’ve never aspired to be a TV man.
+ - Textbook survival tells you to stay put. Stop. Wait for rescue. Don’t take any risks. But there’d been a whole host of survival shows like that and I didn’t really want to do that.
+ - I’ve eaten sheep’s eyes, the still hot meat from a zebra killed by a lion, and maggots which give you 70 calories to the ounce.
+ - One killer exercise that’s really great is pull-ups with your legs out level. That’s my favourite. It’s such functional core strength, and that’s why I can climb up trees and down vines.
+ - I think it’s fun running with dogs. They’re always so fit and fast.
+ - I was super skeptical about doing TV. I said no three times, part of which was confidence because I didn’t really understand that world. I know how to climb mountains and do all that, but I wasn’t a TV person.
+ - I love home cooking, and I’m not a great one for fast food.
+ - I didn’t want to do eight seasons of How To Build A Fire. The intention was to make something fun and dynamic and about self rescue, not about whittling.
+ - I love Ray Mears. He’s brilliant. He’s so rude about me in the press, it’s outrageous!
+ - When I’m in ‘Man vs. Wild’ mode, it’s not pleasure. Every sensor is firing and I’m on reserve power all the time and I’m digging deep – and that’s the magic of it as well, and that’s raw and it’s great.
+ - The rewards of the wild and the rewards of the survivor go to those who can dig deep, and, ultimately, to the guy who can stay alive.
+ - As a young boy, scouting gave me a confidence and camaraderie that is hard to find in modern life.
+ - That feeling when you’re so cold you’d give anything to be warm – I’ve had it before, literally huddled around a candle flame on an ice sheet.
+ - A friend once asked me what qualities were needed for SAS. I would say to be self-motivated and resilient; to be calm, yet have the ability to smile when it is grim; to be unflappable, be able to react fast and to have an ‘improvise, adapt and overcome’ mentality.
+ - To get ready to climb Everest, I did a lot of hill running with a daypack on and a lot of underwater swimming. I would swim a couple of lengths underwater and then a couple above. It gets your body going with limited oxygen.
+ - Some of the greatest survivors have been women. Look at the courage so many women have shown after surviving earthquakes in the rubble for days on end.
+ - I’m terrified of walking into a room full of people. Sitting down at a dinner table with 15 strangers brings me out in a sweat.
+ - As a society, we’ve become terrified of failure, but you can’t grow without risking it.
+ - Change the way you use your time, and you change your life.
+ - I always wanted to be Robin Hood or John the Baptist when I was growing up.
+ - Accidents on big mountains happen when people’s ambitions cloud their good judgment. Good climbing is about climbing with heart and with instinct, not ambition and pride.
+ - It’s unresolved conflict in my life that I have a lovely family and a risky job.
+ - For me, my training is a key part of my work as so often my life has depended on being able to move fast and haul myself up and out of something fast!
+ - You’re not human if you don’t feel fear. But I’ve learnt to treat fear as an emotion that sharpens me. It’s there to give me that edge for what I have to do.
+ - People ask me, “How do I succeed?” Whatever it is they do, I say, “Go and find 20 ways of messing it up. By 21, you’ll be getting there.” Life is an adventure, go back with cuts, scars and bruises.
+ - I come from a line of self-motivated, determined folk – not grand, not high society, but no-nonsense, family-minded go-getters.
+ - I miss him still today: his long, whiskery eyebrows, his huge hands and hugs, his warmth, his prayers, his stories, but above all his shining example of how to live and how to die.
+ - I always had a really natural faith as a kid. Where I knew God existed and it felt very free and pretty wild and natural, and it wasn’t religious.
+ - Textbook survival says stay still, don’t take any chances, wait for rescue. That’s a boring TV show. My thing was always, “Listen, shoelace, dead squirrel and no other way down this rock face. You can do this!”
+ - Americans are cool; if you show just a chink of vulnerability, they respond so much. They’ll pat you on the arm and say, ‘Hey kid, you’re all right.’ Brits will respond but they are much more cynical.
+ - My faith is an important part of my life and over the years I’ve learnt that it takes a proud man to say he doesn’t need anything. It has been a quiet strength and a backbone through a lot of difficult times.
+ - All my life the only thing I’ve been good at has been climbing and throwing myself off big things.
+ - My best life lessons and education didn’t come from a classroom – they’ve come from the wild. How you act in the big moments, the ones that challenge you, scare you, tempt you, and force you to make the right decisions, is what defines you.
+ - When I’m filming, survival requires movement. You need your energy, and you’ve got to eat the bad stuff, and survival food is rarely pretty, but you kind of do it. I get in that zone, and I eat the nasty stuff, but I’m not like that when I’m back home.
+ - I loved climbing because of the freedom, and having time and space. I remember coming off Everest for the last time, thinking of Dad and wishing that he could have seen what I saw. He would have loved it.
+ - I was always brought up to have a cup of tea at halfway up a rock face.
+ - The line between life or death is determined by what we are willing to do.
+ - Success almost always follows great attitude. The two attract each other!
+ - I try and eat really healthy when I’m home, but I certainly don’t eat worms and snakes.
+ - But the wild is unpredictable, stuff does happen, and it’s always when you’re least expecting it.
+ - Many great people over the centuries have depended on their faith- it is a sign of great strength to need Jesus in your life.
+ - I’ve never really had a TV career. I’ve been a soldier and a climber.
+ - I never wanted to do TV. I just did what I was trained to do through the Special Forces, and I’ve been doing that from a very young age.
+ - You don’t need to go to the ends of the earth, you don’t need to climb Everest to have a great adventure, it’s invariably on our doorstep.
+ - One thing I know for sure: it is only by doing what we fear that we can ever truly learn to be brave.
+
+137 quotes

@@ -1,0 +1,40 @@
+ - Me, I walk along and feel quietly defensive, a recluse in the Land of We. That’s quite the loaded word, ’we.
+ - Fall in love with a dog, and in many ways you enter a new orbit, a universe that features not just new colors but new rituals, new rules, a new way of experiencing attachment.
+ - Solitude is a breeding ground for idiosyncrasy, and I relish that about it, the way it liberates whim.
+ - Consumerism thrives on emotional voids.
+ - All dogs can be guide dogs of a sort, leading us to places we didn’t even know we needed or wanted to go.
+ - When you quit drinking you stop waiting.
+ - Dogs have such short life spans, it’s like a concentrated version of a human life. When they get older, they become much more like our mothers. They wait for us, watch out for us, are completely fascinated by everything we do.
+ - Before you get a dog, you can’t quite imagine what living with one might be like; afterward, you can’t imagine living any other way.
+ - I am shy by nature, a person who’s always found something burdensome about human interaction and who probably always will, at least to some degree.
+ - Was he smart enough? Introspective enough? Was it just enough to love him, or should I attach myself to someone who seemed farther ahead of me, someone smarter and more ambitious than me, who’d be sure to carry me along into the version of adulthood I thought I should be striving for?
+ - Passivity is corrosive to the soul; it feeds on feelings of integrity and pride, and it can be as tempting as a drug.
+ - By definition, memoir demands a certain degree of introspection and self-disclosure: In order to fully engage a reader, the narrator has to make herself known, has to allow her own self-awareness to inform the events she describes.
+ - Why do I find the fantasy – husband, family, kids – exhausting instead of alluring? Is there something wrong with me? Do I have a life?
+ - Dogs are fantasies that don’t disappoint.
+ - Alcoholism is the disease of more.
+ - I’m still prone to periods of isolation, still more fearful of the world out there and more averse to pleasure and risk than I’d like to be; I still direct more energy toward controlling and minimizing appetites than toward indulging them.
+ - To a drinker the sensation is real and pure and akin to something spiritual: you seek; in the bottle, you find.
+ - Academic achievement was something I’d always sought as a form of reward. Good grades pleased my parents, good grades pleased my teachers; you got them in order to sew up approval.
+ - When you love somebody, or something, its amazing how willing you are to overlook the flaws.
+ - The real struggle is about you: you, a person who has to learn to live in the real world, to inhabit her own skin, to know her own heart, to stop waiting for life to begin.
+ - Happy and alone, you say? Reclusive and merry? How oxymoronic! Pas possible! Alas, the concept is lost on so many.
+ - Our culture thrives on black-and-white narratives, clearly defined emotions, easy endings, and so, this thrust into complexity exhausts.
+ - Mastery over the body – its impulses, its needs, its size – is paramount; to lose control is to risk beauty, and to risk beauty is to risk desirability, and to risk desirability is to risk entitlement to sexuality and love and self-esteem.
+ - Cottage cheese is one of our culture’s most visible symbols of self-denial; marketed honestly, it would appear in dairy cases with warning labels: this substance is self-punitive; ingest with caution.
+ - The hard things in life, the things you really learn from, happen with a clear mind.
+ - What is this drive to be thinner, prettier, better dressed, other? Who exactly is this other and what does she look like beyond the jacket she’s wearing or the food she’s not eating? What might we be doing, thinking, feeling about if we didn’t think about body image, ever?
+ - I’m 38 and I’m single, and I’m having my most intense and gratifying relationship with a dog. But we all learn about love in different ways, and this way happens to be mine.
+ - Smooth and ordered on the outside; roiling and chaotic and desperately secretive underneath, but not noticeably so, never noticeably so.
+ - A lot of people, quite frankly, think intense attachments to animals are weird and suspect, the domain of people who can’t quite handle attachments to humans.
+ - I’ve always been drawn to solitude, felt a kind of luxurious relief in its self-generated pace and rhythms.
+ - I don’t think that the world would be a better place if everyone owned a dog, and I don’t think that all relationships between dogs and their owners are good, healthy, or enriching.
+ - It happened this way: I fell in love and then, because the love was ruining everything I cared about, I had to fall out.
+ - The key, I suppose, has less to do with insight than with willingness, the former being relatively useless without the latter.
+ - When I drank, the part that felt dangerous and needy grew bright and strong and real. The part that coveted love kicked into gear. The yes grew louder than the no.
+ - Before you open the lunch menu or order that cheeseburger or consider eating the cake with the frosting intact, haul out the psychic calculator and start tinkering with the budget.
+ - My recipe for bliss on a Friday night consists of a ‘New York Times’ crossword puzzle and a new episode of ‘Homicide;’ Saturdays and Sundays are oriented around walks in the woods with the dog, human companion in tow some of the time but not always.
+ - Desires collide; the wish to eat bumping up against the wish to be thin, the desire to indulge conflicting with the injunction to restrain. Small wonder food makes a woman nervous.
+ - For years, I ate the same foods every day, in exactly the same manner, at exactly the same times.
+
+38 quotes

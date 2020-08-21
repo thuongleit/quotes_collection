@@ -1,0 +1,21 @@
+ - Deception by an omission of the truth is as bad as a lie.
+ - Two quilters who have just met will be strangers only until their mutual passion for quilting is revealed. Then they can talk for hours like the best of friends.
+ - Ignorant people, whispering cruel rumors, her mother whispered. Pay them no mind.
+ - Anna, falling in love with you was like coming home to a place I didn’t realize I’d been missing all my life. You’re the only person I’ve ever known who accepts me for who I am, right in this moment, faults and all, and isn’t waiting for me to become someone else.
+ - Who said you had to fill his shoes? Wear your own shoes. They’re bound to fit better. Walk your own path your own way and you’ll be more likely to get to where you need to be.
+ - Anyone who works on a quilt, who devotes her time, energy, creativity, and passion to that art, learns to value the work of her hands. And as any quilter will tell you, a quilter’s quilting friends are some of the dearest, most generous, and most supportive people she knows.
+ - Mary Lincoln provided Elizabeth Keckley with opportunities for social and economic advancement she probably had never imagined during her years as a slave, while Elizabeth offered Mary the loyal, steadfast friendship she craved but had always found so elusive.
+ - Elizabeth Keckley was a woman of remarkable strength, courage, perseverance, and dignity. She was exceptionally talented, but also very diligent and ambitious, and together those qualities enabled her to deliver herself from slavery and become a successful businesswoman.
+ - When I was working on my first novel, ‘The Quilter’s Apprentice,’ I knew I wanted to write about friendship, especially women’s friendship and how women use friendship to sustain themselves and nurture each other.
+ - People who assume my books are only about quilts obviously haven’t read them! I’ve always known that my books are about quilters – in other words, people – rather than quilts or quilting.
+ - Kate Forsyth’s Bitter Greens is an enthralling concoction of history and magic, an absorbing, richly detailed, and heart-wrenching reimagining of a timeless fairytale.
+ - I wanted to write about women and their work, and about valuing the work we, as women, choose to do. Too many women I knew disparaged their work. Many working mothers thought they ought to be home with their children instead, so they carried around too much guilt to enjoy much job satisfaction.
+ - In my contemporary stories, I write about today’s quilters, inventive techniques they use, and how technology has influenced their art. Novels set in the past let me have fun researching patterns that were popular and fabrics and tools available to quilters through history.
+ - Sometimes the most ordinary things are the ones we learn to miss the most.
+ - For as long as I can remember, I’ve always been interested in issues of social justice, political freedom, and civil rights.
+ - Marvelously entertaining, Gabrielle Donnellys The Little Women Letters evokes the spirit of Louisa May Alcotts Little Women with warmth and affection. I thoroughly enjoyed every word of this wonderful book.
+ - Over the years, I’ve traveled to many places for inspiration and research, including Pennsylvania, Ohio, South Carolina, California, and Hawaii.
+ - One can never had too many librarian friends.
+ - I’ve always wanted to be a writer. Ever since I learned to read, I’ve wanted to share stories with others the way my favorite writers shared their stories with me.
+
+19 quotes

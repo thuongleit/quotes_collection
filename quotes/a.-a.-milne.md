@@ -1,0 +1,159 @@
+ - Promise me you’ll always remember: You’re braver than you believe, and stronger than you seem, and smarter than you think.
+ - Rivers know this: there is no hurry. We shall get there some day.
+ - How lucky I am to have something that makes saying goodbye so hard.
+ - People say nothing is impossible, but I do nothing every day.
+ - If there ever comes a day when we can’t be together, keep me in your heart. I’ll stay there forever.
+ - A little Consideration, a little Thought for Others, makes all the difference.
+ - Sometimes I sits and thinks, and sometimes I just sits...
+ - I’m not lost for I know where I am. But however, where I am may be lost.
+ - Some people care too much. I think it’s called love.
+ - If you live to be a hundred, I want to live to be a hundred minus one day so I never have to live without you.
+ - Don’t underestimate the value of Doing Nothing, of just going along, listening to all the things you can’t hear, and not bothering.
+ - The things that make me different are the things that make me.
+ - Sometimes,? said Pooh, ’the smallest things take up the most room in your heart.
+ - Organizing is what you do before you do something, so that when you do it, it is not all mixed up.
+ - When you do the things that you can do, you will find a way.
+ - Supposing a tree fell down, Pooh, when we were underneath it?? ‘Supposing it didn’t,’ said Pooh after careful thought. Piglet was comforted by this.
+ - Gone out. Backson. Busy backson.
+ - Any day spent with you is my favorite day. So today is my new favorite day.
+ - Brains first and then Hard Work.
+ - I knew when I met you an adventure was going to happen.
+ - I was walking along looking for somebody, and then suddenly I wasn’t anymore.
+ - You can’t stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes.
+ - Some people talk to animals. Not many listen though. That’s the problem.
+ - A bear, however hard he tries, grows tubby without exercise.
+ - Tut, Tut, looks like rain.
+ - Don’t underestimate the value of Doing Nothing.
+ - You will be better advised to watch what we do instead of what we say.
+ - A Fly can’t bird, but a bird can fly.
+ - In the quiet hours when we are alone and there is nobody to tell us what fine fellows we are, we come sometimes upon a moment in which we wonder, not how much money we are earning, nor how famous we have become, but what good we are doing.
+ - We’ll be friends until forever, just you wait and see.
+ - Piglet noticed that even though he had a Very Small Heart, it could hold a rather large amount of Gratitude.
+ - Nobody can be uncheered with a balloon.
+ - Promise you won’t forget me, ever. Not even when I’m a hundred.
+ - So perhaps the best thing to do is to stop writing Introductions and get on with the book.
+ - When you see someone putting on his Big Boots, you can be pretty sure that an Adventure is going to happen.
+ - Weeds are flowers too, once you get to know them.
+ - If one is to be called a liar, one may as well make an effort to deserve the name.
+ - If ever there is a tomorrow when we’re not together there is something you must always remember...
+ - Sometimes, if you stand on the bottom rail of a bridge and lean over to watch the river slipping slowly away beneath you, you will suddenly know everything there is to be known.
+ - And by and by Christopher Robin came to the end of things, and he was silent, and he sat there, looking out over the world, just wishing it wouldn’t stop.
+ - You never can tell with bees.
+ - The third-rate mind is only happy when it is thinking with the majority. The second-rate mind is only happy when it is thinking with the minority. The first-rate mind is only happy when it is thinking.
+ - Never forget me, because if I thought you would, I’d never leave.
+ - Then would you read a Sustaining Book, such as would help and comfort a Wedged Bear in Great Tightness.
+ - We can’t all and some of us don’t. That’s all there is to it.
+ - Eeyore, the old grey donkey, stood by the side of the stream and looked at himself in the water. “Pathetic,” he said. “That’s what it is. Pathetic.”
+ - I used to believe in forever, but forever’s too good to be true.
+ - No doubt Jack the Ripper excused himself on the grounds that it was human nature.
+ - A quotation is a handy thing to have about, saving one the trouble of thinking for oneself, always a laborious business.
+ - If the person you are talking to doesn’t appear to be listening, be patient. It may simply be that he has a small piece of fluff in his ear.
+ - But now I am six. And I’m clever as clever. And now I think I’ll stay six now forever and ever.
+ - Always watch where you are going. Otherwise, you may step on a piece of the Forest that was left out by mistake.
+ - Of beer, an enthusiast has said that it could never be bad, but that some brands might be better than others.
+ - I have a house where I go, When there’s too many people, I have a house where I go Where no one can be; I have a house where I go, Where nobody ever says “no” Where no one says anything – so There is no one but me.
+ - Did you ever stop to think, and forget to start again?
+ - How sweet to be a Cloud. Floating in the Blue!
+ - A day without a friend is like a pot without a single drop of honey left inside.
+ - We’ll be Friends Forever, won’t we, Pooh?? asked Piglet. Even longer,? Pooh answered.
+ - Let’s begin by taking a smallish nap or two.
+ - Once upon a time there were three little foxes Who didn’t wear stockings, and they didn’t wear sockses, But they all had handkerchiefs to blow their noses, And they kept their handkerchiefs in cardboard boxes.
+ - Something feels funny. I must be thinking too hard.
+ - It is hard to be brave, when you’re only a Very Small Animal.
+ - Think it over, think it under.
+ - A pipe in the mouth makes it clear that there has been no mistake-you are undoubtedly a man.
+ - When late morning rolls around and you’re feeling a bit out of sorts, don’t worry; you’re probably just a little eleven o’clockish.
+ - Bouncy trouncy flouncy pouncy fun fun fun fun fun. The most wonderful thing about tiggers is I’m the only one!
+ - Come, come, come. Without a monster or two it’s not a quest, merely a gaggle of friends wandering about.
+ - There’s the South Pole, said Christopher Robin, and I expect there’s an East Pole and a West Pole, though people don’t like talking about them.
+ - When you are pretty sure that an Adventure is going to happen, brush the honey off your nose and spruce yourself up as best you can, so as to look Ready for Anything.
+ - Before beginning a Hunt, it is wise to ask someone what you are looking for before you begin looking for it.
+ - You can’t help respecting anybody who can spell TUESDAY, even if he doesn’t spell it right; but spelling isn’t everything. There are days when spelling Tuesday simply doesn’t count.
+ - Owl hasn’t exactly got Brain, but he Knows Things.
+ - Time for a little something.
+ - If a statement is untrue, it is not the more respectable because it has been said in Latin.
+ - Forever isn’t long at all, Christopher, as long as I’m with you.
+ - One of the advantages of being disorderly is that one is constantly making exciting discoveries.
+ - I did know once, only I’ve sort of forgotten.
+ - My spelling is Wobbly. It’s good spelling but it Wobbles, and the letters get in the wrong places.
+ - The Old Testament is responsible for more atheism, agnosticism, disbelief – call it what you will – than any book ever written; it has emptied more churches than all the counterattractions of cinema, motor bicycle and golf course.
+ - And the only reason for making honey is so as I can eat it.
+ - There was once an old sailor my grandfather knew, Who had so many things which he wanted to do That, whenever he thought it was time to begin, He couldn’t because of the state he was in.
+ - I do like a little bit of butter to my bread.
+ - Wherever they go, and whatever happens to them on the way, in that enchanted place on the top of the forest, a little boy and his Bear will always be playing.
+ - For one person who dreams of making fifty thousand pounds, a hundred people dream of being left fifty thousand pounds.
+ - A Proper Tea is much nicer than a Very Nearly Tea, which is one you forget about afterwards.
+ - James gave the huffle of a snail in danger. And nobody heard him at all.
+ - It was a drowsy summer afternoon, and the Forest was full of gentle sounds, which all seemed to be saying to Pooh, ‘Don’t listen to Rabbit, listen to me.’ So he got in a comfortable position for not listening to Rabbit.
+ - I’ll give you three guesses, Rabbit. Digging holes in the ground? Wrong. Leaping from branch to branch of a young oak tree? Wrong. Waiting for somebody to help me out of the river? Right. Give Rabbit time, and he’ll always get the answer.
+ - One does not argue about The Wind in the Willows.
+ - To her- Hand in hand we come Christopher Robin and I To lay this book in your lap. Say you’re surprised? Say you like it? Say it’s just what you wanted? Because it’s yours- because we love you.
+ - Food is a subject of conversation more spiritually refreshing even than the weather, for the number of possible remarks about the weather is limited, whereas of food you can talk on and on and on.
+ - The spring has sprung, the grass is rizz. I wonder where them birdies is?
+ - I just wanted to be sure of you.
+ - If you want to make a song more hummy, add a few tiddely poms.
+ - TTFN Ta Ta For Now!
+ - I have been Foolish and Deluded, and I am a Bear of No Brain at All.
+ - But Piglet is so small that he slips into a pocket, where it is very comfortable to feel him when you are not quite sure whether twice seven is twelve or twenty-two.
+ - When having a smackerel of something with a friend, don’t eat so much that you get stuck in the doorway trying to get out.
+ - Good judgment comes from experience, and experience – well, that comes from poor judgment.
+ - It looks like a bothering sort of day.
+ - What distinguishes Cambridge from Oxford, broadly speaking, is that nobody who has been to Cambridge feels impelled to write about it.
+ - How long does getting thin take?
+ - That’s what Tiggers do best!
+ - There are some people who begin the Zoo at the beginning, called WAYIN, and walk as quickly as they can past every cage until they get to the one called WAYOUT, but the nicest people go straight to the animal they love the most, and stay there.
+ - And that, said John, is that.
+ - What I like doing best is Nothing.
+ - I found a little beetle, so that beetle was his name.
+ - The more he looked inside the more Piglet wasn’t there.
+ - It’s so much more friendly with two.
+ - His dress told her nothing, but his face told her things which she was glad to know.
+ - This writing business. Pencils and what-not. Over-rated, if you ask me. Silly stuff. Nothing in it.
+ - Dig a little deeper. Think of something that we’ve never thought of before.
+ - Mind over matter, will make the Pooh unfatter.
+ - Just because an animal is large, it doesn’t mean he doesn’t want kindness; however big Tigger seems to be, remember that he wants as much kindness as Roo.
+ - I suppose that every one of us hopes secretly for immortality; to leave, I mean, a name behind him which will live forever in this world, whatever he may be doing, himself, in the next.
+ - To the uneducated, an A is just three sticks.
+ - They’re funny things, Accidents. You never have them till you’re having them.
+ - The average man finds life very uninteresting as it is. And I think the reason why is that he is always waiting for something to happen to him instead of setting to work to make things happen.
+ - If there’s a buzzing-noise, somebody’s making a buzzing-noise, and the only reason for making a buzzing-noise that I know of is because you’re a bee.
+ - Bores can be divided into two classes; those who have their own particular subject, and those who do not need a subject.
+ - For I am a bear of very little brain, and long words bother me.
+ - Ideas may drift into other minds, but they do not drift my way. I have to go and fetch them. I know no work manual or mental to equal the appalling heart-breaking anguish of fetching an idea from nowhere.
+ - I suppose that by this time they had finished their dressing. Roger Scurvilegs tells us nothing on such important matters; no doubt from modesty. “Next morning they rose,” he says, and disappoints us of a picture of Udo brushing his hair.
+ - What I say is that, if a fellow really likes potatoes, he must be a pretty decent sort of fellow.
+ - What ever fortune brings, don’t be afraid of doing things.
+ - When carrying a jar of honey to give to a friend for his birthday, don’t stop and eat it along the way.
+ - It is impossible to win gracefully at chess. No man has yet said “Mate!” in a voice which failed to sound to his opponent bitter, boastful and malicious.
+ - Nowhere can I think so happily as in a train.
+ - It is a terrible thing for an author to have a lot of people running about his book without any invitation from him at all.
+ - Walking with her man, Lost in a dream.
+ - It’s not much of a tail, but I’m sort of attached to it.
+ - Sing Ho for the Life of a Bear.
+ - Tell the innocent visitor from another world that two people were killed at Serajevo, and that the best that Europe could do about it was to kill eleven million more.
+ - Pay attention to where you are going because without meaning you might get nowhere.
+ - He thought how sad it was to be an Animal who had never had a bunch of violets picked for him.
+ - When stuck in the river, it is best to dive and swim to the bank yourself before someone drops a large stone on your chest in an attempt to hoosh you there.
+ - On Tuesday, when it hails and snows, The feeling on me grows and grows That hardly anybody knows If those are these or these are those.
+ - I suppose this is the reason why diaries are so rarely kept nowadays- that nothing ever happens to anybody.
+ - Tiggers don’t like honey.
+ - Be sure to put the knocker fairly low on your door in case a very small friend drops by.
+ - It’s always useful to know where a friend-and-relation is, whether you want him or whether you don’t.
+ - It gets you nowhere if the other person’s tail is only just in sight for the second half of the conversation.
+ - I do remember, and then when I try to remember, I forget.
+ - And really, it wasn’t much good having anything exciting like floods, if you couldn’t share them with somebody.
+ - When I was young, we always had mornings like this.
+ - Almost anyone can be an author; the business is to collect money and fame from this state of being.
+ - Why does a silly bird go on saying “chiff-chaff” all day long? Is it happiness or hiccups?
+ - Pooh looked at his two paws. He knew that one of them was the right, and he knew that when you had decided which one of them was the right, then the other one was the left, but he never could remember how to begin.
+ - Drinking your milk and talking at the same time may result in your having to be patted on the back and dried for quite a long time afterwords.
+ - Chess has this in common with making poetry; that the desire for it comes upon the amateur in gusts.
+ - Golf is so popular simply because it is the best game in the world at which to be bad.
+ - He respects owl, because you can’t help respecting anybody who can spell TUESDAY, even if he doesn’t spell it right.
+ - When you are a Bear of Very Little Brain, and you Think of Things, you find sometimes that a Thing which seemed very Thingish inside you is quite different when it gets out into the open and has other people looking at it.
+ - To seem natural rather than to be natural.
+ - A pekingeese is not a pet dog; he is an undersized lion.
+ - If possible, try to find a way to come downstairs that doesn’t involve going bump, bump, bump, on the back of your head.
+ - No sensible author wants anything but praise.
+
+157 quotes

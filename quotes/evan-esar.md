@@ -1,0 +1,198 @@
+ - Anger is the feeling that makes your mouth work faster than your mind.
+ - A dollar saved is a dollar earned but seldom vice versa.
+ - Character is what you have left when you’ve lost everything you can lose.
+ - In a democracy, you believe it or not; in a dictatorship, you believe it or else.
+ - Laugh and the world laughs with you; cry – and the world laughs harder.
+ - All work and no pay makes a housewife.
+ - The word impossible is peculiar because if you examine it closely, you’ll find that most of it is possible.
+ - The disadvantage of becoming wise is that you realize how foolish you’ve been.
+ - A bureaucrat is an official who is clothed with power and whom it doesn’t fit.
+ - A vacation is like love – anticipated with pleasure, experienced with discomfort, and remembered with nostalgia.
+ - The only time a lazy man ever succeeds is when he tries to do nothing.
+ - Some men take good care of a car; others treat it like one of the family.
+ - A word to the wise is – unnecessary.
+ - Definition of Statistics: The science of producing unreliable facts from reliable figures.
+ - Family: A social unit where the father is concerned with parking space, the children with outer space, and the mother with closet space.
+ - The man who has a girl in every port is not a sailor but a wholesaler.
+ - Hindsight is good, foresight is better; but second sight is best of all.
+ - The mint makes it first, it is up to you to make it last.
+ - The car was invented as a convenient place to sit out traffic jams.
+ - Everything comes to him who waits – if he waits till it comes.
+ - Children grow out of childhood, but parents never grow out of parenthood.
+ - If you want to be different nowadays, just act normal.
+ - If you don’t like to make excuses or apologies, stop making promises.
+ - There are two kinds of leaders: those who are interested in the flock, and those who are interested in the fleece.
+ - A dictator’s chief problem is keeping the stomachs of his subjects full while keeping their heads empty.
+ - Some men are so eager for success that they are even willing to work for it.
+ - Life is a game played on us while we are playing other games.
+ - The man who doctors himself with the aid of medical books, runs the risk of dying of a typographical error.
+ - The best way to make a long story short is to stop listening.
+ - Bureaucracy is more people doing less things, and taking more time to do them worse.
+ - This may be the age of automation, but love is still being made by hand.
+ - A lecturer often makes you feel dumb at one end and numb at the other.
+ - Divorce has become so easy nowadays that women have stopped crying at weddings.
+ - Ego: The only thing that can keep growing without nourishment.
+ - A man is known by the company he keeps, but a woman is known by the company she keeps waiting.
+ - Public speaking is the art of diluting a two-minute idea with a two-hour vocabulary.
+ - Think twice before you speak, and then you may be able to say something more insulting than if you spoke right out at once.
+ - A hamburger by any other name costs twice as much.
+ - The only place where you can find equality is in the cemetery.
+ - Life is a battle of wits, and many people have to fight it unarmed.
+ - There would be no population explosion if people who are trying to keep the wolf from the door wouldn’t let the stork fly in through the window.
+ - Housework is what a woman does that nobody notices unless she hasn’t done it.
+ - Many a man works himself to death by burying himself in his work.
+ - An expert is someone who takes something you already know and makes it sound confusing.
+ - Las Vegas is a resort whose two chief sources of income are seven and eleven.
+ - A bright eye indicates curiosity; a black eye, too much.
+ - Some taxpayers close their eyes, some stop their ears, some shut their mouths, but all pay through the nose.
+ - Egocentric: A person who has his I’s too close together.
+ - The most uncommon form of intelligence is common sense.
+ - The only medicine that needs no prescription, has no unpleasant taste, and costs no money is laughter.
+ - Charm is to a woman what perfume is to a flower.
+ - A wedding is the formality a man has to go through before going to work for a new boss.
+ - Hope is tomorrow’s veneer over today’s disappointment.
+ - Adolescence begins when children stop asking questions-because they know all the answers.
+ - In elections, the undecided vote is usually the deciding factor.
+ - Only one man has the right to boast, and that’s the man who never does.
+ - Don’t be a hog: the only time a hog helps the community is when he dies.
+ - Divorce is the key that opens the strongbox where the bonds of matrimony are kept under wedlock.
+ - It takes hundreds of nuts to hold a car together, but it takes only one of them to scatter it all over the highway.
+ - Walking isn’t a lost art: one must, by some means, get to the garage.
+ - Hard work never hurt anyone who hired someone else to do it.
+ - Egotist: 1. A person who is his own best friend. 2. An I specialist. 3. A man whose opinions all change, except the one he has of himself.
+ - Age brings wisdom to some men, and to others chess.
+ - Nothing ages your car as much as the sight of your neighbor’s new one.
+ - Many a woman would get a divorce if she could do it without making her husband happy.
+ - A special skill, like speaking several languages, or keeping your mouth shut in one.
+ - Diets show to what great lengths women will go so as not to go to great widths.
+ - All men are created equal and endowed by their Creator with a mighty urge to become otherwise.
+ - A bacteriologist is a man whose conversation always start with the germ of an idea.
+ - Every bride and groom would do well to remember that in wedding, the we comes before the I.
+ - A creature that never cries over spilt milk: a cat.
+ - You can’t judge the ability of a doctor by the amount of praise the undertakers give him.
+ - Do a little more every day than you are expected to do, and soon you will be expected to do more.
+ - The trouble with the world is that laziness is seldom curable and never fatal.
+ - Compare what you want with what you have, and you’ll be unhappy; compare what you deserve with what you have, and you’ll be happy.
+ - Canada’s climate is nine months winter and three months late in the fall.
+ - Definition of a Statistician: A man who believes figures don’t lie, but admits than under analysis some of them won’t stand up either.
+ - A signature always reveals a man’s character – and sometimes even his name.
+ - The cat: an animal that’s so unpredictable, you can never tell in advance how it will ignore you the next time.
+ - The survival of the fittest is going to make some man very lonesome some day.
+ - A batch of credit cards fattens a wallet before it thins it.
+ - Communism is a form of government under which every citizen at election time enjoys the privilege of voting Yes.
+ - A credit card is a convenient device that saves you the trouble of counting your change.
+ - Many a wedding takes place when a man can’t afford to go steady with a girl any longer.
+ - Many a man who goes to Las Vegas to get away from it all soon finds that Las Vegas gets it all away from him.
+ - A smart mother suggests that her child bring an apple to his teacher; a smarter mother suggests that he bring a couple of aspirins.
+ - Conscience gets a lot of credit that really belongs to cowardice.
+ - All things come to him who waits, but they are mostly leftovers from those who didn’t wait.
+ - There’s only one kind of common sense but a thousand varieties of stupidity.
+ - The saddest thing in life is to marry a woman who looks like a cook – and isn’t.
+ - Admiration: Our feeling of delight that another person resembles us.
+ - A cynic sees little to admire in the world, while the world sees even less to admire in him.
+ - Corrupt officials are usually close-mouthed and open-handed.
+ - The first requisite for a good cup of coffee in the morning is to get your wife out of bed.
+ - Many people will laugh at the drop of a hat, especially if the man is still in it.
+ - Next time a man tells you talk is cheap, ask him if he knows how much a session of Congress costs.
+ - The only way to cure an egotist from bragging is by surgery – amputation at the neck.
+ - America believes in education: the average professor earns more money in a year than a professional athlete earns in a whole week.
+ - Times change: it was once the custom to take a bath weekly and religion daily.
+ - It’s not the loss of life that makes the death bitter – it’s the obituaries.
+ - You can tell a man’s taste in literature by his judgment in knowing what not to read.
+ - After wisdom comes wit.
+ - A home in the country is what a city man hopes to buy and a farmer hopes to sell.
+ - Many a girl who can’t dance well makes up for it during intermission.
+ - Formerly when a man worked ten hours a day, it was called economic slavery; nowadays it is called moonlighting.
+ - Congress would give the people what they wanted if the people knew what they wanted, and if Congress could give it to them.
+ - Common sense is usually lack of imagination, and imagination is usually lack of common sense.
+ - The modern dance is no dance in the first place, and when you’ve finally learned it, it’s not modern any more.
+ - Under dictatorship, the people in prison are always superior to the people who put them there.
+ - A man doesn’t have vacation problems: his boss tells him when to take them, and his wife tells him where.
+ - The most popular form of altruism is giving to others the advice you cannot use yourself.
+ - A lazy man’s wife is generally the power behind the drone.
+ - The little boy who goes to the store and forgets what his mother sent him for, will probably grow up to be a congressman.
+ - If you want to be successful, you must either have a chance or take one.
+ - The computer saves man a lot of guesswork, but so does the bikini.
+ - An actor is a man with an infinite capacity for taking praise.
+ - An epigram is the marriage of wit and wisdom; a wisecrack, their divorce.
+ - The difference between two men is usually a woman.
+ - Most new books are forgotten within a year, especially by those who borrow them.
+ - Washington is the place where nobody believes a rumor until it has been officially denied.
+ - The three chief causes of divorce are men, women, and marriage.
+ - Many an actor does the stage more ham than good.
+ - A girl never cares who casts the first stone at her – as long as it’s a diamond.
+ - A husband may forget where he went on his honeymoon, but he never forgets why.
+ - Man is the control experiment of heredity and environment; and since his heredity controls him, he tries to control his environment.
+ - A good loser is all right, but it isn’t so much fun to beat him.
+ - The girl with a future avoids a man with a past.
+ - There’s nothing as short as short-term debt.
+ - Women diet to retain their girlish figures or their boyish husbands.
+ - There’s only one thing worse than to live without working, and that is to work without living.
+ - Egocentricity: The vanity that makes you wonder what people are thinking about you when they are really wondering what you are thinking about them.
+ - We can’t do much about the length of our lives, but we can do plenty about it’s width and depth.
+ - The trouble with dieting is that a pound of will power takes off only an ounce of weight.
+ - There is nothing more dignified than a corpse.
+ - The state of the Union largely depends on the state of the unions.
+ - Experience is a great teacher, and sometimes a pretty teacher is a great experience.
+ - An instrument that sometimes expresses thought, sometimes obscures thought, but most often replaces thought.
+ - Conscience is what makes a boy tell his mother before his sister does.
+ - The man who avoids debt doesn’t have to worry about avoiding his creditors.
+ - To a teenager, it cannot be true love if her family approves of him.
+ - Communism is a form of society where the less people have to eat, the more they have to swallow.
+ - Good teachers cost a lot; but, poor teachers cost a lot more.
+ - The lecturer who is full of his subject is usually very slow in emptying himself.
+ - The chief ability of an executive should be his ability to recognize ability.
+ - Statistics: The only science that enables different experts using the same figures to draw different conclusions.
+ - Reactionary: One who wants the rules enforced so nobody can take his pile away from him the way he got it from others.
+ - When you make your mark in the world, watch out for the envious with erasers.
+ - A man picks a wife about the same way an apple picks a farmer.
+ - You can always make a loan at a bank if you can show sufficient evidence that you don’t need it.
+ - If you can’t bear to have your face stepped on, don’t try to climb the ladder of success.
+ - The Lord takes care of his own, but church trustees still put lightning rods on the steeple.
+ - The best time to give advice to your children is while they’re still young enough to believe you know what you’re talking about.
+ - Somebody is always doing something that somebody else said couldn’t be done.
+ - Adam and Eve were the first of all unions to defy management.
+ - A husband is like a fire. He goes out when unattended.
+ - Some members of Congress ought to have their mouths taped instead of their speeches.
+ - The lazy man claims he is too heavy for light work and too light for heavy work.
+ - The quizzical expression of the monkey at the zoo comes from his wondering whether he is his brother’s keeper, or his keeper’s brother.
+ - It takes far more courage to violate a custom than a law.
+ - With a braggart, it’s no sooner done than said.
+ - Nowadays it’s not who wears the pants in the family, but who carries the credit cards.
+ - The diamond is the hardest stone – to get.
+ - After paying for the wedding, about the only thing a father has left to give away is the bride.
+ - In Congress the majority governs, but the minority rules.
+ - When laziness attacks a woman, it always avoids her tongue.
+ - All men are born equal, but some of them outgrow it.
+ - The honeymoon is the only period when a woman isn’t trying to reform her husband.
+ - A compromise is a settlement by which each side gets what neither side wanted.
+ - The difference between us and other people is that their money looks bigger and their troubles smaller.
+ - Many a husband lives to regret the extravagant fee he bestowed upon the minister who sentenced him.
+ - Eloquence is the art of saying as little as possible but making it sound as much as possible.
+ - Worry makes people thin, except when they worry about being fat.
+ - A woman is always ready to describe another woman as charming, but only if the other woman is not charming.
+ - The best way to spoil a good story is by sticking to the facts.
+ - A corporation has all the powers and privileges of an individual: all it lacks is a conscience.
+ - Some people blow their top, but all people blow their bottom.
+ - The only thing more certain than the hatred of enemies is the envy of friends.
+ - It’s surprising how much wisdom every man possesses – if not for his own affairs, then for the affairs of others.
+ - Some women get divorces on the grounds of incompatibility; others, on just the first two syllables.
+ - The reason why men who mind their own business succeed is that they have so little competition.
+ - About the only time Congress conforms to the will of the people is when it decides to adjourn.
+ - Don’t tear your hair out over a woman; it’ll be harder to attract the next one if you’re bald.
+ - If it required some effort to go from today to tomorrow, some people would always remain in yesterday.
+ - Some people would never get any exercise at all if they didn’t have to walk to their cars.
+ - If you want to know how little your dignity is worth, take it to the pawnbroker.
+ - The secret of successful writing lies in striking the right keys on the typewriter.
+ - Divorce is the price people play for playing with matches.
+ - Conceit is a disease That the doctors got no cure They’ve done a lot of research on it But what it is, they’re still not sure.
+ - There is a lot of difference between the man who is not able and his brother who is notable.
+ - A bore finds it easy to start talking, and even easier to get others to stop listening.
+ - Some couples divorce because of a misunderstandin g; others, because they understand each other too well.
+ - You can always tell the golfer who’s winning: he’s the one who keeps telling his opponent that it’s only a game.
+ - Sometimes the unexpected happens when you don’t expect a person to come up to expectations.
+ - The only thing worse than being on the wrong side of an argument is to be on the right side with no one listening.
+ - Play: Work that you enjoy doing for nothing.
+ - Lecturers should remember that the capacity of the mind to absorb is limited to what the seat can endure.
+
+196 quotes

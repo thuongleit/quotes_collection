@@ -1,0 +1,23 @@
+ - My writing arises out of erotic impulse toward an other: it is an act of love. And I want terribly to be loved in return, as a sign that I have loved well enough.
+ - A line, once crossed, can never be uncrossed.
+ - To view your life as blessed does not require you to deny your pain. It simply demands a more complicated vision, one in which a condition or event is not either good or bad but is, rather, both good and bad, not sequentially, but simultaneously.
+ - I will write myself into well-being.
+ - The fact is that ours is the only minority you can join involuntarily, without warning, at any time. And if you live long enough, as you’re increasingly likely to do, you may well join it.
+ - Atlas Shrugged and The Fountainhead, doubtless two of the most exquisitely adolescent of fictions.
+ - God is no White Knight who charges into the world to pluck us like distressed damsels from the jaws of dragons, or diseases. God chooses to become present to and through us. It is up to us to rescue one another.
+ - One of the blessings that comes with parental territory is that children tug you into experiences you’re pretty sure you’d never otherwise contemplate.
+ - Who one believes God to be is most accurately revealed not in any credo but in the way one speaks to God when no one else is listening.
+ - If the very thought of taking off all your clothes in the middle of the Washington Mall during a school holiday makes you blush, you haven’t even begun to dream what it feels like to publish a book.
+ - From the moment of birth, at every level, human beings who are more alike than different become polarized into two absolutely exclusive classes with very different and ill-distributed symbolic powers.
+ - Poor and afflicted and oppressed people have faces, and we are required to look squarely into them. We can’t love what we won’t experience.
+ - This kind of split makes me crazy, this territorializing of the holy. Here God may dwell. Here God may not dwell. It contradicts everything in my experience, which says: God dwells where I dwell. Period.
+ - That’s the trouble with honorable mentions: they let everyone know you applied and didn’t win.
+ - Do others, I wondered, “see things as I do? I do not think so, for if they did they would not still be alive.” And, life-threatening though my vision seemed, I would not repudiate it: “Sometimes I think I shall die from being different even as I cling to the difference fiercely.”
+ - Weddings in our society seem designed to reduce the bride and groom to precisely the condition of those who, because they ‘lack sufficient use of reason,’ are ‘incapable of contracting marriage,’ according to canon law.
+ - You don’t have to want death in order to prepare for it.
+ - God enters the world through those of us who are willing to let God participate fully in our lives.
+ - Writing is not, alas, like riding a bicycle: it does not get easier with practice.
+ - If only we could have them back as babies today, now that we have some idea what to do with them.
+ - In a society that prates about, but seldom practices, communication, the craving to be listened to, heard, understood – which originates with the first terrified wail, the circling arms, the breast, the consolatory murmur – is hard to assuage.
+
+21 quotes

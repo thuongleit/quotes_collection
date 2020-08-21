@@ -1,0 +1,37 @@
+ - A flower doesn’t love you or hate you, it just exists.
+ - I still think of Heaven as a liberal-arts school.
+ - My whole life I’ve been a seeker, searching for something.
+ - My impulse is to create an aesthetic that’s about a humanistic approach to a world and trying to create compassion for all the characters.
+ - There’s a victory in letting go of your expectations.
+ - As a director or writer, you have to be so controlling.
+ - To me, I definitely stand in the corner of wanting to give voice to the bullied, and not the bully.
+ - People who write books – they live in their own world as they’re writing. But people who are doing shows or big movies – not only are you writing this world that you’re living in, but you’re also simultaneously running a circus, and you can kind of start losing your mind like that.
+ - I started out writing when I was young; stuff about exposing the truth about how people are not what they appear, about how they are much more dysfunctional than they seem. Pulling back the curtain – that felt smart. But as I got older, exposing how frail people can be seems less and less deep.
+ - I find as a viewer, when I go to see comedies, the strain to be funny throughout the whole thing. I start to lose my sense of reality, and it ends up feeling like an empty experience; there’s funny stuff in it but I’ve lost the emotional connection to the characters because it’s just so bananas.
+ - I used to have a road-rage issue.
+ - I’m not really a director or producer for hire. There’s lots of big gigs out there, but I’m not looking to do that. Usually, when I’m directing or producing, I’ve written it myself. I’m not really trying to get on some big horse that’s running through town. I just make my own stuff.
+ - I can be really annoying, but I also feel like I’m a nice person.
+ - As you get older, you realize just figuring out how to be nice to the people in your personal sphere is almost more challenging than trying to change the bigger culture.
+ - I grew up in a religious family, and we weren’t allowed to listen to rock music.
+ - I feel like so much of my life is about a conversation I’m having with myself. I do interact with other people, but often I’m more interested in what I’m learning in the relationship I have with myself.
+ - I actually think it’s helped me as a writer to have to act. It’s only when you actually start putting yourself out that you appreciate the anxiety that comes with having to try to sell a line, or with trying to own a character.
+ - For me, writing is a solitary thing and a personal thing. And it’s weird, because when you make something that requires money and collaborators, you have to talk about them. I don’t enjoy that part of it. I still want to keep it to myself.
+ - There are life lessons that can be derived from reality television.
+ - I think there are certain ways that people are always themselves, but I do think people change.
+ - I don’t even give my scripts to friends because I just feel it’s, like, I don’t need one more set of opinions.
+ - I think living in our culture right now, there’s a universal experience where we feel like we become what we do. Sometimes that’s rewarding and sometimes that creates an existential crisis.
+ - I don’t feel the breath of a thousand people over my shoulder.
+ - You want to work with people who you like and have an easy rapport with.
+ - People don’t go to see things in the theater for the same reasons that I do. And movies are about mass audiences. And so moviegoers are going for a different kind of drug than for a certain kind of literary quality.
+ - You feel a little weird, as a writer of scripted television for many years, to say you’re a fan of reality TV. You feel like a traitor. But I am a total fan.
+ - From my experience, meditating can bring up the most stressful thoughts.
+ - I feel like I know how to write plot.
+ - I believe, in general, that even people that are self-pitying, you can feel for them.
+ - Sometimes when you write something on the page, it can seem very funny, but when you act it out – and this happens to me a lot, actually – the melancholy of the situation becomes more front and center.
+ - I do idiosyncratic dramedies.
+ - To me, this is from a Buddhist perspective or whatever, sometimes people who are working out their political beliefs, they can rage against the man, and yet at the same time can be oblivious to their own way of stepping on the foot of the person right next to them.
+ - I have had moments where I’ve had mental-health issues and I’ve felt like yoga and meditating and reading these Buddhist self-help books actually really help.
+ - As an actor, it’s better to just be more loose and give yourself over. That’s always fun. It’s fun to just let go and be somebody else.
+ - I guess I’m trying to write stuff that I, as a viewer, would connect to.
+
+35 quotes

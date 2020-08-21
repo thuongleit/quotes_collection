@@ -1,0 +1,48 @@
+ - The minute you settle for less than you deserve, you get even less than you settled for.
+ - Afghanistan is more than the ‘graveyard of empires.’ It’s the mother of vicious circles.
+ - Just because digital technology makes connecting possible doesn’t mean you’re actually reaching people.
+ - Perpetual optimism is annoying. It is a sign that you are not paying attention.
+ - The sounds of silence are a dim recollection now, like mystery, privacy and paying attention to one thing – or one person – at a time.
+ - Women are affected by lunar tides only once a month; men have raging hormones every day.
+ - Digital platforms are worthless without content. They’re shiny sacks with bells and whistles, but without content, they’re empty sacks. It is not about pixels versus print. It is not about how you’re reading. It is about what you’re reading.
+ - We are riveted by the soap operas of public lives. We admire the famous most for what makes them infamous: it reassures us that they are not better and no happier than all the people with their noses pressed hard against the glass.
+ - Everybody is continuously connected to everybody else on Twitter, on Facebook, on Instagram, on Reddit, e-mailing, texting, faster and faster, with the flood of information jeopardizing meaning. Everybody’s talking at once in a hypnotic, hyper din: the cocktail party from hell.
+ - Military guys are rarely as smart as they think they are, and they’ve never gotten over the fact that civilians run the military.
+ - Are women necessary? Not with Ava around.
+ - I don’t understand men. I don’t even understand what I don’t understand about men.
+ - Wooing the press is an exercise roughly akin to picnicking with a tiger. You might enjoy the meal, but the tiger always eats last.
+ - It takes a lot of adrenaline and fear to make me actually write.
+ - The Mormons even baptized Anne Frank. It took Ernest Michel, then chairman of the American Gathering of Jewish Holocaust Survivors, three years to get Mormons to agree to stop proxy-baptizing Holocaust victims.
+ - It is men’s worst fear, personally and professionally, that women will pin the sin on them.
+ - Celebrity is the religion of our time.
+ - Zingers should glow with intelligence as well as drip with contempt.
+ - Women have become so obsessed with not withering, they’ve forgotten that there are infinite ways to be beautiful.
+ - Celebrity distorts democracy by giving the rich, beautiful, and famous more authority than they deserve.
+ - The Obamas, especially Michelle, have radiated the sense that Americans do not appreciate what they sacrifice by living in a gilded cage. They’ve forgotten Rule No. 1 of politics: No one sheds tears for anyone lucky enough to live at the White House.
+ - When you’re young, and even at times when you’re older, it’s hard to fathom this: What needs to be nurtured is the stuff that’s different, that sets you apart from the pack, rather than the stuff that helps you blend in.
+ - Don’t write anything down, but save everything that anyone else writes down.
+ - And as far as doing God’s work, I think the bankers who took government money and then gave out obscene bonuses are the same self-interested sorts Jesus threw out of the temple.
+ - When I need to work up my nerve to write a tough column, I try to think of myself as Emma Peel in a black leather catsuit.
+ - I find having a column a very difficult form of journalism. I’m not a natural like Tom Friedman and Anna Quindlen.
+ - For two centuries, the South has feared a takeover by blacks or the feds. In Obama, they have both.
+ - It is an astonishing thing that historians will look back and puzzle over, that in the 21st century, American women were such hunted creatures. Even as Republicans try to wrestle women into chastity belts, the Vatican is trying to muzzle American nuns.
+ - President Bush was once asked which Presidential speech he admired most. He replied that it was the one Teddy Roosevelt had in his pocket that had helped cushion the blow of a would-be assassin’s bullet.
+ - Good and evil are not like the Redskins and the Cowboys.
+ - Even when conservatives have all the marbles, they still act as if they’re under siege. Now that they are under siege, it is no time for them to act as if they’re losing their marbles.
+ - If you’re famous enough, the rules don’t apply.
+ - Americans want to be protected, but not at the cost of vitiating the values that make us Americans.
+ - The idea of American exceptionalism doesn’t extend to Americans being exceptional.
+ - A friendship between reporter and source lasts only until it is profitable for one to betray the other.
+ - I strained to remember where I was or even what I was wearing, touching my green corduroy jeans and staring at the exposed-brick wall. As my paranoia deepened, I became convinced that I had died and no one was telling me.
+ - As a woman, I know that if I write about another woman, it will be perceived as a catfight.
+ - Personally, I’ve decided to stop evolving.
+ - If wit is the most sophisticated form of humor, pranks are the most juvenile.
+ - Washington is a place where people have always been suspect of style and overt sexuality. Too much preening signals that you’re not up late studying cap-and-trade agreements.
+ - Journalism, spooked by rumors of its own obsolescence, has stopped believing in itself. Groans of doom alternate with panicked happy talk.
+ - The insane have achieved political respectability while the sane act too good for it all. The irrational celebrate while the rational act bored and above-it-all.
+ - Reagan didn’t socialize with the press. He spent his evenings with Nancy, watching TV with dinner trays. But he knew that to transcend, you can’t condescend.
+ - My eating habits were so bad for many years that I didn’t actually know the intricacies of making a salad.
+ - As blue chips turn into penny stocks, Wall Street seems less like a symbol of America’s macho capitalism and more like that famous Jane Austen character Mrs. Bennet, a flibbertigibbet always anxious about getting richer and her ‘poor nerves.’
+ - The Clintons want to do big worthy things, but they also want to squeeze money from rich people wherever they live on planet Earth, insatiably gobbling up cash for politics and charity and themselves from the same incestuous swirl.
+
+46 quotes

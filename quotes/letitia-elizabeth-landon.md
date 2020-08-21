@@ -1,0 +1,114 @@
+ - Business before pleasure...
+ - Travel is as much a passion as ambition or love.
+ - Curiosity and courtesy are very often at variance.
+ - The lover and the physician are each popular from the same cause – we talk to them of nothing but ourselves...
+ - Anticipation is a bad sleeping draught.
+ - In our road through life we may happen to meet with a man casting a stone reverentially to enlarge the cairn of another which stone he has carried in his bosom to sling against that very other’s head.
+ - We love music for the buried hopes, the garnered memories, the tender feelings it can summon at a touch.
+ - What is life? A gulf of troubled waters, where the soul, like a vexed bark, is tossed upon the waves of pain and pleasure by the wavering breath of passions.
+ - Strange the affection which clings to inanimate objects – objects which cannot even know our love! But it is not return that constitutes the strength of an attachment.
+ - How beautiful, how buoyant, and glad is morning!
+ - Hard are life’s early steps; and but that youth is buoyant, confident, and strong in hope, men would behold its threshold, and despair.
+ - The heart’s hushed secret in the soft dark eye.
+ - How disappointment tracks the steps of hope.
+ - Nothing but love can answer to love; no affection, no kindness, no care, can supply its place: it is its own sweet want.
+ - Society is like a large piece of frozen water; and skating well is the great art of social life.
+ - All sweeping assertions are erroneous.
+ - We are rarely wrong when we act from impulse.
+ - I hate the word ‘ought’ – it always implies something dull, cold, and commonplace. The ‘ought nots’ of life are its pleasantest things.
+ - To be rude is as good as being clever.
+ - Eyes that droop like summer flowers.
+ - My tears are buried in my heart, like cave-locked fountains sleeping.
+ - How often, in this cold and bitter world, is the warm heart thrown back upon itself! Cold, careless, are we of another’s grief; we wrap ourselves in sullen selfishness.
+ - The past is perpetual youth to the heart.
+ - I will look on the stars and look on thee, and read the page of thy destiny.
+ - Music is the language of some other state, born of memory. For what can wake the soul’s strong instinct of some other world like music?
+ - The old proverb, applied to fire and water, may with equal truth be applied to the imagination – it is a good servant, but a bad master.
+ - Memory has many conveniences, and, among others, that of foreseeing things as they have afterwards happened.
+ - A woman’s fame is the tomb of her happiness.
+ - Experience teaches, it is true; but she never teaches in time.
+ - I think hearts are very much like glasses. If they do not break with the first ring, they usually last a considerable time.
+ - Delicious tears! The heart’s own dew.
+ - My heart is its own grave!
+ - We are ourselves the stumbling-blocks in the way of our happiness. Place a common individual – by common, I mean with the common share of stupidity, custom, and discontent – place him in the garden of Eden, and he would not find it out unless he were told, and when told, he would not believe it.
+ - The fearless make their own way...
+ - And this is woman’s fate: all her affections are called into life by winning flatteries, and then thrown back upon themselves to perish; and her heart, her trusting heart, filled with weak tenderness, is left to bleed or break!
+ - In marriage, as in chemistry, opposites have often an attraction.
+ - I have no parting sigh to give, so take my parting smile.
+ - Occupation is one great source of enjoyment. No man, properly occupied, was ever miserable...
+ - An apt quotation is like a lamp which flings its light over the whole sentence.
+ - The very effort to forget teaches us to remember.
+ - No thoroughly occupied man was ever yet very miserable.
+ - Toil is the portion of day, as sleep is that of night; but if there be one hour of the twenty-four which has the life of day without its labor, and the rest of night without its slumber, it is the lovely and languid hour of twilight.
+ - Suicide and antipathy to fires in a bedroom seem to be among the national characteristics. Perhaps the same moral cause may originate both.
+ - When does the mind put forth its powers? when are the stores of memory unlocked? when does wit ‘flash from fluent lips?’ – when but after a good dinner? Who will deny its influence on the affections? Half our friends are born of turbots and truffles.
+ - Hopes and regrets are the sweetest links of existence.
+ - Nothing is so fortunate for mankind as its diversity of opinion...
+ - Confidence is its own security.
+ - There is no wretchedness like self-reproach.
+ - Whatever people in general do not understand, they are al ways prepared to dislike; the incomprehensible is always the obnoxious.
+ - Repentance is a one-faced Janus, ever looking to the past.
+ - Few save the poor feel for the poor.
+ - Truly, a little love-making is a very pleasant thing...
+ - Ignorance, far more than idleness, is the mother of all the vices; and how recent has been the admission, that knowledge should be the portion of all? The destinies of the future lie in judicious education; an education that must be universal, to be beneficial.
+ - It is said that ridicule is the test of truth: it is never applied, but when we wish to deceive ourselves...
+ - Habit is a second nature, and what was at first pleasure, is next necessity.
+ - Social life is filled with doubts and vain aspirings; solitude, when the imagination is dethroned, is turned to weariness and ennui.
+ - There is no denying that there are ‘royal roads’ through existence for the upper classes; for them, at least, the highways are macadamized, swept, and watered.
+ - I have a respect for family pride. If it be a prejudice, it is a prejudice in its most picturesque shape. But I hold it is connected with some of the noblest feelings in our nature.
+ - All profound truths startle you in the first announcement.
+ - Childhood, whose very happiness is love.
+ - The stars are so far, far away!
+ - Restraint is the golden rule of enjoyment.
+ - I cannot see why a taste for the country should be held so very indispensable a requisite for excellence; but really people talk of it as if it were a virtue, and as if an opposite opinion was, to say the least of it, very immoral.
+ - If there be any one habit which more than another is the dry rot of all that is high and generous in youth, it is the habit of ridicule.
+ - Affection exaggerates its own offenses...
+ - Consistency is a human word, but it certainly expresses nothing human.
+ - We are ourselves our happiness.
+ - A sealed book, at whose contents we tremble.
+ - Curiosity is its own suicide...
+ - One of the greatest of all mental pleasures is to have our thoughts often divined: ever entered into with sympathy.
+ - To this hour, the great science and duty of politics is lowered by the petty leaven of small and personal advantage...
+ - It is amazing how much a thought expands and refines by being put into speech: I should think it could hardly know itself.
+ - Politeness, however, acts the lady’s maid to our thoughts; and they are washed, dressed, curled, rouged, and perfumed, before they are presented to the public...
+ - The truth is, we never make for others the allowance we make for ourselves; and we should deny even our own words, could we hear them spoken by another.
+ - A friend is never alarmed for us in the right place.
+ - Surprises are like misfortunes or herrings – they rarely come single.
+ - The rich know not how hard it is to be of needful rest and needful food debarred.
+ - We might have been – these are but common words, and yet they make the sum of life’s bewailing.
+ - Assuredly, meeting after absence, is one of – ah, no! – it is life’s most delicious feeling.
+ - Strange mystery of our nature, that those in whom genius develops itself in imagination, thus taking its most ethereal form, should yet be the most dependent on the opinions of others!
+ - Youth is a season that has no repose.
+ - Thou know’st how fearless is my trust in thee.
+ - Ah, tell me not that memory sheds gladness o’er the past, what is recalled by faded flowers, save that they did not last?
+ - Fame is bought by happiness.
+ - Sneering springs out of the wish to deny; and wretched must that state of mind be that wishes to take refuge in doubt.
+ - How very satisfactory those discussions must be, where each party retains their own opinion!
+ - Alas! we give our own coloring to the actions of others.
+ - Are we not like the actor of old times, who wore his mask so long his face took its likeness?
+ - It is curious how inseparable eating and kindness are with some people.
+ - Jealousy ought to be tragic, to save it from being ridiculous.
+ - Praise is sometimes a good thing for the diffident and the despondent. It teaches them properly to rely on the kindness of others.
+ - All beginnings are very troublesome things...
+ - Were it not better to forget than to remember and regret?
+ - A woman only can understand a woman...
+ - Oh, only those whose souls have felt this one idolatry can tell how precious is the slightest thing affection gives and hallows.
+ - Hope is love’s happiness, but not its life.
+ - That which is always within our reach, is always the last thing we take; and the chances are, that what we can do every day, we never do at all.
+ - Enthusiasm is the divine particle in our composition: with it we are great, generous, and true; without it, we are little, false, and mean.
+ - I do love violets; they tell the history of woman’s love.
+ - Of all false assertions that ever went into the world under the banner of a great name and the mail armor of a well-turned phrase, Locke’s comparison of the mind to a blank sheet of paper appears to me among the most untrue.
+ - There are words to paint the misery of love, but none to paint its happiness...
+ - Knowledge is much like dust – it sticks to one, one does not know how.
+ - There is a large stock on hand; but somehow or other, nobody’s experience ever suits us but our own.
+ - The truth is, we like to talk over our disasters, because they are ours; and others like to listen, because they are not theirs.
+ - Farewell’s a bitter word to say.
+ - Good taste is his religion, his morality, his standard, and his test.
+ - Shopping, true feminine felicity!
+ - We need to suffer, that we may learn to pity.
+ - Perhaps, from an innate desire of justification, sorrow always exaggerates itself. Memory is quite one of Job’s friends; and the past is ever ready to throw its added darkness on the present.
+ - I do not think that life has a suspense more sickening than that of expecting a letter which does not come.
+ - In sad truth, half our forebodings of our neighbors are but our own wishes, which we are ashamed to utter in any other form.
+ - It is strange what society will endure from its idols.
+
+112 quotes

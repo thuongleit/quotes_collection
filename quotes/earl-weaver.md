@@ -1,0 +1,33 @@
+ - Leadership can be defined in one word – honesty. You must be honest with the players and honest with yourself.
+ - Do the dull things right so the extraordinary things will not be required too often.
+ - Momentum? Momentum is the next day’s starting pitcher.
+ - If you know how to cheat, start now.
+ - Optimism is the cheerful frame of mind that enables a teakettle to sing, though in hot water up to its nose.
+ - I’d rather you walk with the bases loaded.
+ - No one’s gonna give a damn in July if you lost a game in March.
+ - Every time I fail to smoke a cigarette between innings, the opposition will score.
+ - In baseball, you can’t kill the clock. You’ve got to give the other man his chance. That’s why this is the greatest game.
+ - I became an optimist when I discovered that I wasn’t going to win any more games by being anything else.
+ - The key to winning baseball games is pitching, fundamentals, and three run homers.
+ - A manager should stay as far away as possible from his players. I don’t know if I said ten words to Frank Robinson while he played for me.
+ - Don’t worry, the fans don’t start booing until July.
+ - The guy who says, ‘I love the challenge of managing,’ is one step from being out of a job. I don’t welcome any challenge. I’d rather have nine guys named Robinson.
+ - This ain’t a football game, we do this every day.
+ - The key step for an infielder is the first one, but before the ball is hit.
+ - The job of arguing with the umpire belongs to the manager, because it won’t hurt the team if he gets thrown out of the game.
+ - I think the National League has better biorhythms in July.
+ - A manager’s job is simple. For one hundred sixty-two games you try not to screw up all that smart stuff your organization did last December.
+ - Coaches are an integral part of any manager’s team, especially if they are good pinochle players.
+ - You win pennants in the off season when you build your teams with trades and free agents.
+ - Economics played a role. Raleighs have gone from six fifty to nine dollars a carton, but there’s a three-quarter cent coupon on the back. You can get all kinds of things with them, blenders, everything. I saved up enough one time and got Al Bumbry.
+ - Some have said that I can accept inadequacies in my players but not in umpires. That completely misses the point. I can’t tolerate anyone’s mistake.
+ - Bad ballplayers make good managers, not the other way around. All I can do is help them be as good as they are.
+ - I think there should be bad blood between all clubs.
+ - I never got many questions about my managing. I tried to get twenty-five guys who didn’t ask questions.
+ - We’re so bad right now that for us back-to-back home runs means one today and another one tomorrow.
+ - On my tombstone just write, ‘The sorest loser that ever lived.’
+ - I don’t think, in all the years I managed them, I ever spoke more than thirty words to Frank and Brooks Robinson.
+ - My best game plan is to sit on the bench and call out specific instructions like ‘C’mon Boog,’ ‘Get a hold of one, Frank,’ or ‘Let’s go, Brooks.’
+ - The only thing that matters is what happens on the little hump out in the middle of the field.
+
+31 quotes

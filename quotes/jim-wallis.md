@@ -1,0 +1,40 @@
+ - We can find common ground only by moving to higher ground.
+ - Hope is believing in spite of the evidence, and then watching the evidence change.
+ - Our calling is not only to pull people out of the river, but to go upstream to find out what or who is pushing them in.
+ - Healthcare should be a human right and not a commodity for sale.
+ - The Christian doctrine is one that is both about individual spirituality and a parallel commitment to social justice.
+ - The kingdom of God, which Jesus came to inaugurate, is meant to create an alternate reality in this world, and ultimately to transform the kingdoms of this world.
+ - Faith reminds us that change is always possible.
+ - Sometimes it takes a natural disaster to reveal a social disaster.
+ - Hope unbelieved is always considered nonsense. But hope believed is history in the process of being changed.
+ - If you are asking the wrong question, it doesn’t matter how good the answer is, you aren’t going to get where you want to go.
+ - The world will not change until we do.
+ - But when we place God on our side of things, that we are now ridding the world of evil – that’s very dangerous, that one nation has this role to rid the world of evil. What about the evil we have committed, that we are complicit in?
+ - Spirituality becomes a commodity to be bought and sold. So spirituality has to be disciplined by social justice.
+ - Our choice is between cynicism and hope.
+ - The great thing about social movements is everybody gets to be a part of them.
+ - Last year, Americans spent $450 billion on Christmas. Clean water for the whole world, including every poor person on the planet would cost about $20 billion. Let’s just call that what it is: A material blasphemy of the Christmas season.
+ - The best response to bad religion is better religion, not secularism.
+ - A billion dollars every week for Iraq, $87 billion for Iraq. We can’t get $5 billion for childcare over five years in welfare reform.
+ - The people who have more money and goods than any people in the history of the world spend most of their time worrying about not having enough.
+ - Once you open that door to a values conversation, it’s going to undercut a right-wing economic agenda, which values wealth over work and favors the rich over the poor, or resorts to war as the first resort and not the last.
+ - I don’t think we should discriminate against an organization or congregation because they’re religious, if they’re doing good work. But government can’t subsidize proselytizing or worship or religious activity. It can’t.
+ - The failure of political leaders to help uplift the poor will be judged a moral failure.
+ - This year – today – I am repenting of my dependence on fossil fuels.
+ - Two of the greatest hungers in our world today are the hunger for spirituality and the hunger for social change. The connection between the two is the one the world is waiting for, especially the new generation. And the first hunger will empower the second.
+ - Trade is now clearly designed to favor the wealthiest and most powerful corporations at the expense of the rest of us. The three wealthiest people on earth now control more assets than the combined incomes of 600 million people in the world’s 48 poorest countries.
+ - If the president is going to use so much language of theology and the Bible, then let’s use that language for a serious discussion about the war in Iraq. And that was never done.
+ - To dig our heels in and say no to a present madness is a good thing, but to walk a new path and say yes is a better thing.
+ - What is my calling? What am I supposed to do? I think running for office, public office, can be a divine calling. I mean, Ive wrestled with that very question myself.
+ - You can’t be evangelical and associate yourself with Jesus and what he says about the poor and just have no other domestic concerns than tax cuts for wealthy people.
+ - I met the president when he was president-elect at a meeting in Austin. He spoke of his faith. He spoke of his desire for a compassionate conservatism, for a faith-based initiative that would do something for poor people.
+ - I think it’s a good thing for a president or political leaders to want to put their values or their faith into action. Desmond Tutu did that in South Africa. Martin Luther King Jr. did that here. This is a good thing.
+ - We have got some mountains to move. Three billion people – half of God’s children – are living on less than $2 a day.
+ - I’m often asked what I think about the faith of the President George W. Bush. I think it is sincere. I think it’s very real. I think it’s deeply held.
+ - It’s hope as a decision that makes change possible.
+ - So when the only domestic social policy is tax cuts that mostly benefit the wealthiest Americans, we say, ‘Where is faith being put into action here?’
+ - Martin Luther King Jr. really understood the role of the churches when he said, ‘The church is not meant to be the master of the state.’ We don’t sort of take power and grab the levers of government and impose our agenda down people’s throats.
+ - I believe in the separation of church and state, absolutely. But I don’t believe in the separation of public life from our values, our basic values, and for many of us, our religious values.
+ - But when one believes that you’ve been appointed by God for a particular mission in history, you have to be very careful about that, how you speak about that. Where is the self-reflection in that? Where is the humility in that?
+
+38 quotes

@@ -1,0 +1,122 @@
+ - The journey is what brings us happiness not the destination.
+ - There are no ordinary moments.
+ - So trust the process of your life unfolding, and know with certainty, through the peaks and valleys of your journey, that your soul rests safe and secure in the arms of God.
+ - You don’t have to control your thoughts; you just have to stop letting them control you.
+ - Life comes at us in waves. We can’t predict or control those waves, but we can learn to surf.
+ - The time is now, the place is here. Stay in the present. You can do nothing to change the past, and the future will never come exactly as you plan or hope for.
+ - A warrior does not give up what he loves, he finds the love in what he does.
+ - As a peaceful warrior, I would choose when, where and how I would behave. With that commitment, I began to live the life of a warrior.
+ - Live with a peaceful heart; cultivate a warrior’s spirit.
+ - Be happy now, without reason – or you never will be at all.
+ - Bad people don’t go to hell, they are already there.
+ - To rid yourself of old patterns, focus all your energy not on struggling with the old, but on building the new.
+ - The only laws are paradox, humor and change.
+ - Choice means giving up something you want for something else you want more.
+ - The secret of change consists in concentrating one’s energy to create the new, and not to fight against the old.
+ - There are times to let things happen, and times to make things happen. Now is that time. You will either make things happen, watch what happens, or wonder what happened.
+ - If you don’t get what you want, you suffer; if you get what you don’t want, you suffer; even when you get exactly what you want, you still suffer because you can’t hold on to it forever.
+ - There is no path to Happiness. Happiness is the path. There is no path to Love. Love is the path. There is no path to Peace. Peace is the path.
+ - Avoid fragmentation: Find your focus and seek simplicity. Purposeful living calls for elegant efficiency and economy of effort-expanding the minimum time and energy necessary to achieve desired goals.
+ - The warrior is Here, Now.
+ - Find the heart of it. Make the complex simple, and you can achieve mastery.
+ - When we feel stuck, going nowhere-even starting to slip backward-we may actually be backing up to get a running start.
+ - Before you can see the Light, you have to deal with the darkness.
+ - Aim not to win or succeed, but for excellence in the moment.
+ - It’s better to make a mistake with the full force of your being than to timidly avoid mistakes with a trembling spirit. Responsibility means recognizing both pleasure and price, action and consequence, then making a choice.
+ - Everything you’ll ever need to know is within you; the secrets of the universe are imprinted on the cells of your body.
+ - Willpower is the key to success. Successful people strive no matter what they feel by applying their will to overcome apathy, doubt or fear.
+ - We discover our character through decisions under pressure.
+ - Faith is the courage to live your life as if everything that happens does so for your highest good and learning. Like it or not.
+ - When in haste, rest in the present. Take a deep breath and come back to here and now.
+ - Peaceful warriors have the patience to wait until the mud settles and the water clears. They remain unmoving until the right time, so the right action arises by itself. They do not seek fulfillment, but wait with open arms to welcome all things.
+ - Everything you need to know is within you. Listen. Feel. Trust the body’s wisdom.
+ - Faith means living with uncertainty – feeling your way through life, letting your heart guide you like a lantern in the dark.
+ - This moment deserves your full attention, for it will not pass your way again.
+ - The warrior acts, the fool reacts.
+ - Choice means saying no to one thing so you can say yes to another.
+ - Act happy, feel happy, be happy, without a reason in the world. Then you can love, and do what you will.
+ - Life is a series of moments. The quality of attention and action that we bring to each moment determines the quality of our lives.
+ - When you begin your transcendental training, focusing your best efforts, without attachment to outcomes, you will understand the peaceful warrior’s way.
+ - The hours of your life are the most valuable currency you will ever have. How will you spend them?
+ - Better never begin; once begun, better finish.
+ - Life is not a private affair. A story and its lessons are only made useful if shared.
+ - When you release your expectations that the world should fulfill you, your disappointments vanish.
+ - The quality of your moments produces the quality of your life. So, as thoughts come and go and the waves of mind rush on, Carpe punctum-Seize this moment. It deserves your full attention, for it will not pass your way again.
+ - Wisdom is the use of knowledge.
+ - Anybody can be happy when things are going well, and I’ve learned that. But when things aren’t going well it draws out the inner warrior in us to radiate that and bring whatever happiness we can to the situation.
+ - Life is not suffering; it’s just that you will suffer it, rather than enjoy it, until you let go of your mind’s attachments and just go for the ride freely, no matter what happens.
+ - I had lost my mind and fallen into my heart.
+ - Freedom from mental distraction equals power. Body mind masters eventually come to the realization that this and every moment, on or off the field, is the moment of truth.
+ - You have to lose your mind in order to regain your senses.
+ - As you manage your money, you manage your life.
+ - Enlightenment is not an attainment; it is a realization. And when you wake up, everything changes and nothing changes. If a blind man realizes that he can see, has the world changed?
+ - Like this gas tank, you are overflowing with preconceptions, full of useless knowledge. You hold many facts and opinions, yet know little of yourself. Before you can learn, you’ll have to first empty your tank.
+ - Your fears are not walls, but hurdles. Courage is not the absence of fear, but the conquering of it.
+ - It may be true that the unexamined life is not worth living-but neither is the unlived life worth examining.
+ - The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time.
+ - A jet plane cannot mow the lawn, but it can fly to distant destinations. Don’t worry so much about what you can’t do; just do what you can as only you can do it.
+ - Ships are safe in harbor, but that’s not what ships are for. So set sail on the stormy sea of love. You’re going to get soaked at times, but at least you’ll know you’re alive.
+ - Simplicity has power. Founding our life on constructive, positive behavior is the simplest, most direct, and powerful approach I’ve ever found-simple, but not easy.
+ - Faith is our direct link to universal wisdom, reminding us that we know more than we have heard or read or studied that we have only to look, listen, and trust the love and wisdom of the Universal Spirit working through us all.
+ - If you want a kinder world, then behave with kindness; if you want a peaceful world, make peace within.
+ - In life, stress happens when you resist what arises.
+ - A little bit of something beats a lot of nothing. Break the largest of difficult tasks into the smallest of steps and it can be done.
+ - Unless someone truly has the power to say no, they never truly have the power to say yes.
+ - While some of us act without thinking, too many of us think without acting.
+ - Energy follows thought; we move toward, but not beyond, what we can imagine. What we assume, expect, or believe creates and colors our experience. By expanding our deepest beliefs about what is possible, we change our experience of life.
+ - You can change your life with a simple shift of attention. But to make that simple shift, you have to find your heart. It’s the only way. Accept yourself, then transcend yourself.
+ - If babies held the same tendency toward self-criticism as adults, they might never learn to walk or talk. Can you imagine infants stomping, ‘Aarggh! Screwed up again!’ Fortunately, babies are free of self-criticism. They just keep practicing.
+ - Personal and collective awakening are one and the same – when a raindrop joins the sea, the sea also merges with the raindrop.
+ - Looking back we see with great clarity, and what once appeared as difficulties now reveal themselves as blessings.
+ - If we lose touch with our heart’s wisdom, then no method avails; if we love, then nothing else is necessary.
+ - If you face just one opponent, and you doubt yourself, you’re out-numbered.
+ - Consciousness is not in the body; the body is in consciousness. And you are that consciousness.
+ - Don’t be like the preacher who thought about praying while making love with his life and thought about love while praying.
+ - Our sense of self-worth is the single most important determinant of the health, abundance, and joy we allow into our lives.
+ - May you find grace as you surrender to life. May you find happiness, as you stop seeking it. May you come to trust these laws and inherit the wisdom of the Earth. May you reconnect with the heart of nature and feel the blessings of Spirit.
+ - Freedom from mental distraction equals power.
+ - The light will disturb us when we’re comfortable, and comfort us when we’re disturbed. We turn to spirit for help when our foundations are shaking only to find out that it is spirit who is shaking them!
+ - Sports and sex and movies are not inherently bad – But for you they’re addictions, not enjoyments. You use them to distract you from what you know you should do. Break free!
+ - Your body is malleable; you can sculpt it over time with daily habits of diet and exercise. The law of accommodation reminds us that the body may change slowly, but it will change.
+ - No need to feel brave or confident; just behave that way.
+ - To be authentic literally means to be your own author.
+ - If we agree on everything, only one of us is necessary.
+ - Faith does not rely on knowing anything with certainty. It requires only the courage to accept that whatever happens is for the highest good.
+ - When running up a hill, it is all right to give up as many times as you wish-as long as your feet keep on moving.
+ - Just handle what is in front of you now and the future will take care of itself. Otherwise, you’ll spend most of your life wondering which foot you’ll use to step off the curb when you’re still only halfway to the corner.
+ - Words mean little unless you realize the truth of it yourself. And when you do, you’ll be free at last.
+ - Process transforms any journey into a series of small steps, taken one by one, to reach any goal. Process transcends time, teaches patience, rests on a solid foundation of careful preparation, and embodies trust in our unfolding potential.
+ - Autumn leaves shower like gold, like rainbows, as the winds of change begin to blow, signaling the later days of autumn.
+ - Embrace the higher truth that everything comes to pass exactly as it should. Find peace and wisdom by accepting what is.
+ - The birth of the mind is the death of the senses.
+ - Responsibility is a grace you give yourself not an obligation.
+ - While you fear missing a meal, you aren’t fully aware of the meals you do eat.
+ - As poet-philosopher Rabindranath Tagore reminds us, “We cannot cross the sea merely by staring at the water.” Simplicity has power. And living on purpose comes to this: Just do it. How much simpler can we get?
+ - Money is neither my god nor my devil. It is a form of energy that tends to make us more of who we already are, whether it’s greedy or loving.
+ - Conscious evolution begins as we take responsibility for clearing our own obstructions.
+ - Sometimes sorrow, sometimes joy. But beneath it all remember the innate perfection of your life unfolding. That is the secret of unreasonable happiness.
+ - Allow rather than resist what arises in the present moment-inside or out. Let it be interesting rather than good or bad.
+ - To see where something leads, it’s best to wait until you’ve reached the end.
+ - This planet is a divine school, and daily life a classroom. Our choice of teachers depends on what we need to learn.
+ - Although motivation comes and goes, you can always rely on your will.
+ - We are here to live moment by moment, and each moment brings a task, a challenge, a goal. It’s good to have big goals, but we need to connect the dots between where we are and where we are going, one day, one moment at a time.
+ - Managing your money does not depend upon becoming wealthy or declaring vows of poverty. Rather, it is about creating stability and sufficiency – a balanced flow of monetary energy through your life.
+ - When we align our lives with spiritual laws, challenges remain, but we can approach them with arms open wide, ready to dance.
+ - Thoughts naturally arise. The point of meditation is not to banish thoughts but to make peace with them by realizing their lack of substance.
+ - Every athletic career, no matter how modest or lofty, is a journey.
+ - You get no more and no less than what you believe you deserve.
+ - Stay present. You’ll always have time to worry later on if you want to.
+ - Babe Ruth was the home-run king of his time, but also the strikeout king.
+ - In the real world, those of us who are most productive, successful, and satisfied focus not on fixing feelings or manipulating thoughts, but on what needs to be done-and then doing it-no matter what thoughts or feelings arise.
+ - Every choice eventually leads to wisdom.
+ - You’re a prisoner of your own illusions – about yourself and about the world.
+ - When we know deep down that we’re acting with integrity despite impulses to do otherwise, we feel gates of higher energy and inspiration open inside of us.
+ - Do you have the courage for it? Do you have the love? If you have enough of one, you will develop the other.
+ - Your fears are not walls, but hurdles.
+ - When you become fully responisble for your life, you can become fully human; once you become human, you may discover what it mens to be a warrior.
+ - Meditation is a valuable exercise, but eventually you have to open up your eyes and look around.
+ - Faith is the recognition that Spirit works in, as and through each and all of us – through every person and every circumstance.
+ - Carry your groceries, garden, and do other activities that keep you moving. You will add more years to your life and more life to your years.
+ - Action is stronger than subjectivity. No matter what you feel or think, you can still act.
+
+120 quotes

@@ -1,0 +1,39 @@
+ - If you can’t outsmart people, outwork them.
+ - There are only two seasons – winter and Baseball.
+ - Baseball is almost the only orderly thing in a very unorderly world. If you get three strikes, even the best lawyer in the world can’t get you off.
+ - Tradition is the albatross around the neck of progress.
+ - I try not to break the rules, but merely to test their elasticity.
+ - I don’t want the natural athlete – I want a guy who’ll go after the hard ones.
+ - Baseball is the only thing beside the paper clip that hasn’t changed.
+ - Suffering is overrated. It doesn’t teach you anything.
+ - How can you be a sage if you’re pretty? You can’t get your wizard papers without wrinkles.
+ - I try not to kid myself. You know, I don’t mind romancing someone else, but to fool yourself is pretty devastating and dangerous.
+ - The true harbinger of spring is not crocuses or swallows returning to Capistrano, but the sound of the bat on the ball.
+ - Three strikes, you’re out. I don’t care if you hire Edward Bennett Williams to defend you; three strikes, you’re still out. Baseball is an island of stability in an unstable world.
+ - I don’t mind the high price of stardom. I just don’t like the high price of mediocrity.
+ - The most beautiful thing in the world is a ballpark filled with people.
+ - I’m for the dreamers. The only really important things in history have been started by the dreamers. They never know what can’t be done.
+ - Hating the Yankees isn’t part of my act. It is one of those exquisite times when life and art are in perfect conjunction.
+ - If there is any justice in this world, to be a White Sox fan frees a man from any other form of penance.
+ - The season starts too early and finishes too late and there are too many games in between.
+ - I do not think that winning is the most important thing. I think winning is the only thing.
+ - This is a game to be savored, not gulped. There’s time to discuss everything between pitches or between innings.
+ - When the Supreme Court says baseball isn’t run like a business, everybody jumps up and down with joy. When I say the same thing, everybody throws pointy objects at me.
+ - What can I do, I asked myself, that is so spectacular that no one will be able to say he had seen it before? The answer was perfectly obvious. I would send a midget up to bat.
+ - Next to the confrontation between two highly honed batteries of lawyers, jungle warfare is a stately minuet.
+ - An island of surety in a changing world.
+ - I was in the game for love. After all, where else can an old-timer with one leg, who can’t hear or see, live like a king while doing the only thing I wanted to do?
+ - Baseball is a boy’s game that makes grown men cry.
+ - I have discovered in 20 years of moving around a ballpark, that the knowledge of the game is usually in inverse proportion to the price of the seats.
+ - Though it is a team game by definition, it is actually a series of loosely connected individual efforts.
+ - It never ceases to amaze me how many of baseball’s wounds are self-inflicted.
+ - Suffering is overated.
+ - When there is no room for individualism in ballparks, then there will be no room for individualism in life.
+ - The Falstaff people, romantics all, went for it. They were so anxious to find out what I was going to do that they could hardly bear to wait out the two weeks. I was rather anxious to find out what I was going to do, too.
+ - I believe in God, but I’m not too clear on the other details.
+ - People identify with the swashbuckling individuals, not polite little men who field their position well. Sir Galahad had a big following – but I’ll bet Lancelot had more.
+ - Baseball is the only game left for people. To play basketball, you have to be 7 feet 6 inches. To play football, you have to be the same width.
+ - Every baseball crowd, like every theatre audience, has its own distinctive attitude and atmosphere.
+ - Look, we play the Star Spangled Banner before every game. You want us to pay income taxes, too?
+
+37 quotes

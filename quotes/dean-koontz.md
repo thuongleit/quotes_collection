@@ -1,0 +1,376 @@
+ - Stay low, stay quiet, keep it simple, don’t expect too much, enjoy what you have.
+ - In the end, it’s all about perseverance.
+ - In this world only the paranoid survive.
+ - Intuition is seeing with the soul.
+ - When tempest tossed, embrace chaos.
+ - Ignorance isn’t bliss, but sometimes ignorance makes it possible for us to sleep at night.
+ - Change isn’t easy. Changing the way you live means changing the way you think, means changing what you believe about life. That’s hard.
+ - I’m alive but I have no life. I’m alive but also dead. I’m dead and alive.
+ - Where there is cake, there is hope. And there is always cake.
+ - Some people think only intellect counts: knowing how to solve problems, knowing how to get by, knowing how to identify an advantage and seize it. But the functions of intellect are insufficient without courage, love, friendship, compassion, and empathy.
+ - No one can tell you what your heart should feel.
+ - I am my own worst enemy. This, more than any other trait, proves my fundamental humanity.
+ - When we don’t allow ourselves to hope, we don’t allow ourselves to have purpose. Without purpose, without meaning, life is dark. We’ve no light within, and we’re just living to die.
+ - She was fascinated with words. To her, words were things of beauty, each like a magical powder or potion that could be combined with other words to create powerful spells.
+ - No one’s life should be rooted in fear. We are born for wonder, for joy, for hope, for love, to marvel at the mystery of existence, to be ravished by the beauty of the world, to seek truth and meaning, to acquire wisdom, and by our treatment of others to brighten the corner where we are.
+ - Cowards shrink from toil and peril, Vulgar souls attempt and fail; Men of mettle, nothing daunted, Persevere till they prevail.
+ - Holy men tell us life is a mystery. They embrace that concept happily. But some mysteries bite and bark and come to get you in the dark.
+ - In the real world as in dreams nothing is quite what it seems. -The Book of Counted Sorrows.
+ - Humanity was drawn to turmoil and self-destruction as inevitably as the earth was drawn to complete its annual revolution of the sun.
+ - In a book, even the real bastards can’t hurt you. And you can never loose a friend you make in a book. When you get to a sad part, no one’s there to see you cry. Or wonder why you don’t cry when you should.
+ - The world howls for social justice, but when it comes to social responsibility, you sometimes cant even hear crickets chirping.
+ - Dogs are one of those things that make you happy and make you wonder.
+ - In this uncertain space between birth and death, especially here at the end of the world in Moonlight Bay, we need hope as surely as we need food and water, love and friendship.
+ - In self-defense and in defense of the innocent, cowardice is the only sin.
+ - I am basically a pretty good autodidact. I can teach myself things.
+ - The world is full of broken people. Splints, casts, miracle drugs, and time can’t mend fractured hearts, wounded hearts, wounded minds, torn spirits.
+ - One man’s idea of perfect order is another man’s chaos.
+ - Carpe Deim, Carpe Noctem.
+ - Books are packaged dreams.
+ - Perseverance is impossible if we don’t permit ourselves to hope.
+ - On the Road that I have taken, one day walking I awaken, amazed to see where I’ve come, where I’m going, where I’m from.
+ - Life without meaning cannot be borne. We find a mission to which we’re sworn -or answer the call of Death’s dark horn. Without a gleaning of purpose in life, we have no vision, we live in strife, -or let blood fall on a suicide knife.
+ - One door away from heaven And the key is ours to lose. One door away from heaven But oh, the entry dues.
+ - Hope is the destination that we seek. Love is the road that leads to hope. Courage is the motor that drives us. We travel out of darkness into faith.
+ - Guilt is a tireless horse. Grief ages into sorrow, and sorrow is an enduring rider.
+ - Sometimes there is no darker place than our thoughts, the moonless midnight of the mind.
+ - Life, Stormy says, is not about how fast you run or even with what degree of grace. It’s about perseverance, about staying on your feet and slogging forward no matter what.
+ - We are all the walking wounded in a world that is a war zone. Everything we love will be taken from us, everything, last of all life itself. Yet everywhere I look, I find great beauty in this battlefield, and grace and the promise of joy.
+ - Modesty is related to diffidence, diffidence is related to shyness, Shyness is a synonym for timidity, timidity is a characteristic of the meek, the meek do not inherit the Earth, they serve those who are self confident and self assertive.
+ - Writing a novel is like making love, but it’s also like having a tooth pulled. Pleasure and pain. Sometimes it’s like making love while having a tooth pulled.
+ - Anger is a violent emotion, vindictive, and as dangerous to he who is driven by it as to anyone on whom it is turned.
+ - It will all be better in the end and if it is not better then it must not be the end yet.
+ - We are not born to wait. We are born to do.
+ - Maybe the devil in human beings isn’t the reflection of the devil, perhaps the devil is only a reflection of the savagery and brutality of our kind. Maybe what we’ve done is create the devil in our own image.
+ - Pain can be endured and defeated only if it is embraced. Denied or feared, it grows.
+ - Life is a train ride, and at the many stations along the route, people important to us debark, never to get aboard again, until by the end of the journey, we sit in a passenger car where most of the seats are empty.
+ - The whisper of the dusk is night shedding its husk.
+ - Being alone can be good. It’s easy to find peace alone. But sometimes, being alone is a king of death.
+ - Time doesn’t, as advertised, heal all wounds. Although the wrenching immediacy of grief eventually passed, the settled sorrow that replaced it might in its own way be even more intense.
+ - Every eye sees its own special vision; every ear hears a most different song. In each man’s troubled heart, an incision would reveal a unique, shameful wrong.
+ - Please, don’t torture me with cliches. If you’re going to try to intimidate me, have the courtesy to go away for a while, acquire a better education, improve your vocabulary, and come back with some fresh metaphors.
+ - One of the greatest sorrows of human existence is that some people aren’t happy merely to be alive but find their happiness only in the misery of others.
+ - He is different, and there will be many people you love who will be unhappy with you. You don’t want them to feel you’ve dishonored them. Yes, I know how it is. But life is short. A chance for great happiness doesn’t come along all that often.
+ - Never leave a friend behind. Friends are all we have to get us through this life – and they are the only things from this world that we could hope to see in the next.
+ - There’s evil in the world, all right. Being aware of it makes you a realist, not a paranoid.
+ - Evil is no faceless stranger, living in a distant neighborhood. Evil has a wholesome, hometown face, with merry eyes and an open smile. Evil walks among us, wearing a mask which looks like all our faces.
+ - Only the human spirit can act with volition and consciously change itself; it is the only thing in all creation that is not entirely at the mercy of forces outside itself.
+ - A scar is not always a flaw. Sometimes a scar may be redemption inscribed in the flesh, a memorial to something endured, to something lost.
+ - Humanity is a parade of fools, and I am at the front of it, twirling a baton.
+ - The opportunity to love a dog and to treat it with kindness is an opportunity for a lost and selfish heart to be redeemed. They are powerless and innocent, and it is how we treat the humblest among us that surely determines the fate of our souls.
+ - We are not strangers to ourselves, we only try to be.
+ - Faced with the challenge of an endless universe, Man will be forced to mature further, just as the Neanderthal-faced with an entire planet-had no choice but to grow away from the tradition of savagery.
+ - The most identifying trait of humanity is our abilty to be inhumane to one another.
+ - Atlas isn’t carrying the world on his shoulders, no giant muscular hulk with a sense of responsibility; the world is balanced on a pyramid of clowns, and they are always tooting horns and wobbling and goosing each other.
+ - Out of sight above the house, the mirror moon reflected the sun of a day not yet dawned, shining the pale light of tomorrow on the yard and on the paper birches.
+ - Like children, dogs want discipline and are most secure when they have rules to live by. The happiest dogs are those with gentle masters who quietly but firmly demand respect.
+ - Grief is a healthy emotion, and it’s healthy to embrace it. By accepting loss, we clarify our values and the meaning of our lives.
+ - Books had shown me, however, that all people everywhere wanted their lives to have purpose and meaning. This longing was universal.
+ - I see dead people. But, then by God, I do something about it!
+ - A long walk and grooming with a well-mannered dog is a Zen experience that leaves you refreshed and in a creative frame of mind.
+ - If you write with passion in your own style, you will make a place for yourself.
+ - Darkness dwells within even the best of us. In the worst of us, darkness not only dwells but reins.
+ - The functions of intellect are insufficient without courage, love, friendship, compassion and empathy.
+ - I think the world is full of evil people. I think in some ways we’re in more danger now than before.
+ - Home is the first refuge from – and last defense against – the disappointments and the terrors of life.
+ - Those who wish to punish the current and future generations for the inequities of a generation long gone, and who equate justice with revenge, are the most dangerous people in the world.
+ - A plot without action is like pasta without garlic, like Dolly Parton without cleavage, and like a writer without his similes.
+ - The destruction that barbarians leave behind has a grim fascination, doesn’t it? We’re reminded how thin is the veneer of civilization.
+ - You have to stop worrying about looking foolish, ’cause fear of being humiliated really limits you.
+ - The mockery of friends is affectionate, and inoculates against foolishness.
+ - What has been is no more. Change has come.
+ - I’ve always operated with a great deal of self-doubt. Every time I start a new book it’s like, well, this one will destroy the career and I have to overcome that feeling especially in the first hundred pages of the book.
+ - Civilization rests on the fact that most people do the right thing most of the time.
+ - The process, not the final achievement, is what it’s all about.
+ - Loss is the hardest thing, I said. But it’s also the teacher that’s the most difficult to ignore.
+ - Fate cannot be sidestepped or outrun.
+ - From time to time, I do consider that I might be mad. Like any self-respecting lunatic, however, I am always quick to dismiss any doubts about my sanity.
+ - Don’t tell me what’s necessary, you presumptupus pup. What’s necessary is whatever I wish to do, regardless of how unnecessary it might be.
+ - I don’t write a quick draft and then revise; instead, I work slowly page by page, revising and polishing.
+ - There are no explanations for human evil. Only excuses.
+ - Some lives, conducted with grace, are beautiful arcs bridging this world to eternity.
+ - If dogs talked, one of them would be president by now. Everybody likes dogs.
+ - I would not cry. I do not cry. How bitter do you risk becoming by swallowing too many tears?
+ - I was looking forward to having a halo. It would make such a convenient reading lamp.
+ - His blue eyes were seas where sorrow sailed.
+ - When we hope, we usually hope for the wrong thing.
+ - Your mind always does worse things than people can show in a movie.
+ - There’s lots of law these days, but not much justice.
+ - If one’s friends do not openly laugh at him, they are not in fact his friends.
+ - Every book has some real life in it. I was never pursued by an evil twin clone, but everything else in MR. MURDER was pretty much out of my own life.
+ - What looks tragic might be comic on second consideration, and what is comic might bring tears in time.
+ - I know it’s hard being a single mother baby, he said, but we’re talking fundamentals here. Homemade cookies are one of the best parts of christmas. It’s an absolute fundamental.
+ - Creating a family in this turbulent world is an act of faith, a wager that against all odds there will be a future, that love can last, that the heart can triumph against all adversities and even against the grinding wheel of time.
+ - We have a responsibility to stand watch over one another, we are watchers, all of us, watchers, guarding against the darkness.
+ - Not funny ha ha, funny weird.
+ - Petting, scratching, and cuddling a dog could be as soothing to the mind and heart as deep meditation and almost as good for the soul as prayer.
+ - Behind every closed door might wait a thief of minds and a collector of souls.
+ - They said there was no rest for the wicked. In fact, there was rest neither for the virtuous nor the wicked, nor for guys like Billy, who were uncommitted regarding the whole idea of virtue versus wickedness and who were just trying to do their jobs.
+ - None of us can ever save himself; we are the instruments of one another’s salvation, and only by the hope that we give to others do we lift ourselves out of the darkness into light.
+ - Only time conquers time and its burdens.
+ - When social forces press for the rejection of age-old Truth, then those who reject it will seek meaning in their own truth. These truths will rarely be Truth at all; they will be only collections of personal preferences and prejudices.
+ - Lies hurt people; imagination makes life more fun.
+ - You can’t always win arguments as a writer, but you have to just go ahead and say, well, I’m doing it that way anyway.
+ - We can approach belief from an intellectual path, but in the end, God must be taken on faith. Proofs are for things of this world, things in time and of time, not beyond time.
+ - Each book is a mind alive, a life revealed, a world awaiting exploration, but living people are all those things, as well – and more, because their stories haven’t yet been completely told.
+ - Evil was coming. I wondered whose face it would be wearing.
+ - While I like people, I do also like being alone in a room and seeing what you can do with a particular theme or subject.
+ - The recognition of pain and fear in others give rise in us to pity, and in our pity is our humanity, our redemption.
+ - A man begins dying at the moment of his birth. Most People live in denial of Death’s patient courtship until, late in life and deep in sickness, they become aware of him sitting bedside.
+ - Human cruelty and treachery surpassed all understanding. There were no answers. Only excuses.
+ - Even in the darkest moments, light exists if you have the faith to see it. Fear is a poison produced by the mind, and courage is the antidote stored always in the soul. In misfortune lies the seed of future triumph.
+ - Even in the darkest moments, light exists if you have faith to see it.
+ - How passionately we love everything that cannot last: the dazzling crystallory of winter, the spring in bloom, the fragile flight of butterflies, crimson sunsets, a kiss, and life.
+ - Once you have had a wonderful dog, a life without one, is a life diminished.
+ - Writing isn’t a source of pain. It’s psychic chemotherapy. It reduces your psychological tumors and relieves your pain.
+ - Wealth is power, and power is the only thing about which contemporary culture cares.
+ - I fell in love with her for her sense of humour. If she ever lost her sense of humour, I would have to dump her. Then I’d kill myself because I couldn’t live without her.
+ - Every life is complicated, every mind a kingdom of unmapped mysteries.
+ - My life has a mysterious purpose that I don’t understand, and day by day, conflict by conflict, I learn by going where I have to go.
+ - Too much mystery is merely an annoyance. Too much adventure is exhausting. And a little terror goes a long way.
+ - Loyal companions are an unequaled grace, stanching fear before it bleeds you numb, a reliable antidote for creeping despair.
+ - Home was not a perfect place. But it was the only home they had and they could hope to make it better.
+ - When a liar became too skilled at deception, he could lose the ability to discern truth, and could himself be more easily deceived.
+ - Doubt is poison. It leads to a loss of faith in yourself, and in all that’s good and true.
+ - Being polite is not only the right way to respond to people but also the easiest. Life is so filled with unavoidable conflict that I see no reason to promote more confrontations.
+ - Like all of us in this storm between birth and death, I can wreak no great changes on the world, only small changes for the better, I hope, in the lives of those I love.
+ - Sometimes it seemed that the human heart, this side of Eden, feared life more than death, light more than darkness, freedom more than surrender.
+ - Although the constant shadow of certain death looms over everyday, the pleasures and joys of life can be so fine and affecting that the heart is nearly stilled in astonishment.
+ - It is music that speaks to the deepest reaches of your soul, and you are lifted higher, ever higher, by the adagio, in my opinion more so even than in any of the masses that Beethoven composed.
+ - I work on one page, revising and polishing until I can’t make it better, then move on to the next. Some pages might get 20 or more drafts before I move on.
+ - But victimhood was seductive, a release from responsibility and caring. Fear would be transmuted into weary resignation; failure would no longer generate guilt but, instead, would spawn a comforting self-pity.
+ - I’m small, I’m young – and I’m so different. You’ve always respected that difference, and you’ve always trusted it. Trust me now. There’s a reason I am the way I am, and there’s a reason I was born to you. There’s always a reason. We belong together.
+ - Nothing is worse than being alone on the evening of the day when one’s cow has exploded.
+ - No degree of prosperity can be sufficient to eliminate all misfortune, and sloth is impervious to opportunity.
+ - One of the greatest gifts we receive from dogs is the tenderness they evoke in us.
+ - As long as I have laughter, I am not without hope.
+ - A fine line separates the weary recluse from the fearful hermit. Finer still is the line between hermit and bitter misanthrope.
+ - Pain is a gift. Humanity, without pain, would know neither fear nor pity.
+ - The primitive in each of us climbs closer to the surface during the night, for the moon sings to it, and the cold void between the stars speaks its language. To that savage self, evil can look lovely in too little light.
+ - No one can grant you happiness. Happiness is a choice we all have the power to make.
+ - Every expression of desired friendship has potential bite. Every smile reveals the teeth.
+ - The snow did not even whisper its way to earth, but seemed to salt the night with silence.
+ - The things we worry about the most are never the things that bite us. The sharpest teeth always take their nip of us when we are looking the other way.
+ - When new hopes fail, old hopes return in the endless cycle of desperation.
+ - Life had not taught me to distrust ministers, but it had taught me to trust no one more than dogs.
+ - But the more people we love and the more deeply we love them, the more vulnerable we are to loss and grief and loneliness.
+ - We may lack riches, but the greatest fortune is what lies in our hearts.
+ - I believe in the possibility of miracles but, more to the point, I believe in our need for them.
+ - In our age, self-indulgence and self-destruction, rather than self-sacrifice, are the foundations for new heroic myths.
+ - There’s sometimes a weird benefit to having an alcoholic, violent father. He really motivated me in that I never wanted to be anything like him.
+ - The rain wasn’t the usual glittering silver, but dark and dirty, as if nature were a scrubwoman wringing out a filthy mop.
+ - Death lies dormant in each of us and will bloom in time.
+ - Blizzards, floods, volcanos, hurricanes, earthquakes: They fascinate because they nakedly reveal that Mother Nature, afflicted with bipolar disorder, is as likely to snuff us as she is to succor us.
+ - Each reader needs to bring his or her own mind and heart to the text.
+ - I’ve a long list of things I don’t know how I’ve done, but I’ve done them. In the end, it’s always about perseverance.
+ - Evil men often easy to mislead, because they have spent so long deceiving that they no longer recognise the truth and mistake deseption for it.
+ - The sane understand that human beings are incapable of sustaining conspiracies on a grand scale, because some of our most defining qualities as a species are inattention to detail, a tendency to panic, and an inability to keep our mouths shut.
+ - Fear is a poison produced by the mind, and courage is the antidote stored always ready in the soul.
+ - I can love October in September. September doesn’t care.
+ - Every talent is unearned, however, and with it comes a solemn obligation to use it as fully and as wisely as possible.
+ - You can con God and get away with it, Granny said, if you do so with charm and wit. If you live your life with imagination and verve, God will play along just to see what outrageously entertaining thing you’ll do next.
+ - The hard rain nailed the night to the city.
+ - If wishes were filet mignon, we’d always eat well at dinner.
+ - To many people, free will is a license to rebel not against what is unjust or hard in life but against what is best for them and true.
+ - I like to deal with EVERY aspect of our condition, and that means terror and humor in equal mix. Some books have more room for humor than others.
+ - In my books, I never portray violence as a reasonable solution to a problem. If the lead characters in the story are driven to it, it’s at the extreme end of their experience.
+ - A fanatic is a nut who has something to believe in.
+ - The truth was stranger than the official fiction.
+ - Human beings can always be relied upon to exert, with vigor, their God-given right to be stupid.
+ - That’s all that matters, really: that we can make each other feel better.
+ - I come down on the side of free will but I have sympathy for those who believe in fate because there is something about life which we feel we have no control over.
+ - We need to laugh at the irrationality of evil, for in doing so we deny evil’s power over us, diminish its influence in the world, and tarnish the allure it has for some people.
+ - We are not, however, a species that can choose the baggage with which we must travel. In spite of our best intentions, we always find that we have brought along a suitcase or two of darkness and despair.
+ - The true nature of the world was weirder than any bizarre fabric that anyone might weave from the warp and weft of imagination’s loom.
+ - Vladimir Nabokov said the two great evils of the 20th century were Marx and Freud. He was absolutely correct.
+ - Always, beneath every apparent chaos, order waits to be revealed.
+ - Rub-a-dub-dub. Cerebrum in a tub.
+ - I love my editor, but that would be the definition of hell to me to live with someone and have them go page by page through my manuscript. That I want to avoid at all costs.
+ - In misfortune lies the seed of future triumph.
+ - I’ve not seen in my lifetime any politician who is a heroic figure. The manipulation that all politicians use on one level or another is so transparent.
+ - He said, if you allow yourself to be enchanted by the beauty to be seen in even ordinary things, then all things proved to be extraordinary.
+ - In a world that daily disconnects further from truth, more and more people accept the virtual in place of the real, and all things virtual are also malleable.
+ - Maybe I’m needy, neurotic, paranoid. Under the circumstances, of course, if I weren’t needy, neurotic, and paranoid, I’d obviously be psychotic.
+ - I don’t mean to imply that I’m afraid of Death. I’m just not ready to go out on a date with him.
+ - Without faith to act as a governor, the human mind is a runaway worry generator, a dynamo of negative expectations.
+ - If your work is deathwork, one weapon is not enough, just as a plumber would not answer an urgent service call with a single wrench.
+ - Every human being has appetites difficult to control but far fewer have humility, gentleness, and an awareness of their weaknesses.
+ - All I asked was that I be spared surprises, although, in this world of six billion souls, all acting with free will and too many with audacity, surprises are inevitable, too few of them are the kind that make you smile and that lift your heart.
+ - Human beings are such knotted, desperate pieces of work-it’s a rare thing to know one completely, to the core, and still love him.
+ - Life’s mysterious, strange, and full of wonders – and only a fool withdraws from it willingly and lets it pass him by.
+ - In this age, lies were the universal lubricant of the culture. A love of Truth and commitment to it were seldom rewarded and were often punished.
+ - I have to admit that when I watch a movie in which there is no moral context for the violence – I find that offensive. I think that’s potentially damaging to society.
+ - No, if there’s any ultimate redemption, it would be because I passed though your life without scarring you, and did not diminish who you are.
+ - I just became fascinated with how complex and unlikely the universe is and life is and Catholicism gives me an answer to that.
+ - All human lives are so profoundly and intricately entwined-those dead, those living, those generations yet to come-that the fate of all is the fate of each, and the hope of humanity rests in every heart and in every pair of hands.
+ - I need those nukes, the chief said. I need them, I need them right now. I don’t want to be an enabler, sir. I’d rather get you into a twelve step program to help you break this addiction.
+ - To a predator, fear indicates weakness.
+ - Sorrow is not a raven perched persistently above a chamber door. Sorrow is a thing with teeth, and while in time it retreats, it comes back at the whisper of it’s name.
+ - Despair is good. Despair can be the nadir of one life and the starting point of an ascent into another, better one.
+ - The brain acknowledged the approach of death while the heart stubbornly insisted upon immortality.
+ - I have a sofa on which I never nap, big windows with an ocean view that I rarely see because I keep the pleated shades down at all times while working. I know I’m a potential slacker, so I don’t tempt myself.
+ - We are buried when we’re born. The world is a place of graves occupied and graves potential. Life is what happens while we wait for our appointment with the mortician.
+ - She might have been born this way, without an empathy gene and other essentials. In that case, she would interpret any kindness as weakness. Among predatory beasts, any display of weakness is an invitation to attack.
+ - Recognizing the structure of your psychology doesn’t mean that you can easily rebuild it.
+ - She lived for others, her heart tuned to their anguish and their needs.
+ - The broom wasn’t as comforting as a flamethrower would have been, but it was better than a mop and certainly more threatening than a feather duster.
+ - What will happen will happen. There is time for miracles until there is no more time, but time has no end.
+ - In each little life, we can see great truth and beauty, and in each little life we glimpse the way of all things in the universe. If we alow ourselves to be enchanted by the beauty of the ordinary, we begin to see that all things extraordinary.
+ - Thanks to the circus between my ears, I can seize upon the smallest disquieting observation and from it extrapolate a terror of cataclysmic proportions.
+ - When life hands us a beutiful bouquet of flowers we stare at it in cautious expectation of a bee.
+ - The biggest advice is being true to what you want to do. Don’t worry if other people understand it or don’t understand it. If what you’re doing has merit, it will find its way.
+ - Alliteration seems to offend people.
+ - I’ve since discovered that many human beings need no supernatural mentoring to commit acts of savagery; some people are devils in their own right, their telltale horns having grown inward to facilitate their disguise.
+ - Without trust, there can be no tranquil resting of the mind.
+ - Loneliness comes in two basic varieties. When it results from a desire for solitude, loneliness is a door we close against the world. When the world instead rejects us, loneliness is an open door, unused.
+ - We are an arrogant species, full of terrible potential, but we also have a great capacity for love, friendship, generosity, kindness, faith, hope, and joy.
+ - Inaction counted as a choice.
+ - I believe that I was a dog in a past life. That’s the only thing that would explain why I like to snack on Purina Dog Chow.
+ - My wife is my first audience. She’s a tough lady, so I can’t say that I ever scare her. Except, of course, when she sees me the way I look before breakfast.
+ - I build a book the way coral reefs are built: millions of little calcareous skeletons piling up one atop another, though in my case the skeletons are drafts.
+ - Maybe when all was said and done, the imagination was the most powerful of all weapons. It was the imagination of the human race that had allowed it to dream of a life beyond cold caves and of a possible future in the stars.
+ - Funny, how one good cookie could calm the mind and even elevate a troubled soul.
+ - She’d been acutely aware that terror, betrayal, and cruelty had a human face, but she had not sufficiently appreciated that courage, kindness, and love had a human face as well.
+ - Reality isn’t what it used to be.
+ - People who go to work every day, make sacrifices to raise families, and get through life without hurting other people if they can help it-those are the real heros.
+ - The world needed a little Evil, so Good had something to compare itself to, but you couldn’t let it think it had the right-of-way on the road and an invitation to dinner.
+ - Night has patterns that can be read less by the living than by the dead.
+ - If we were always conscious of the fact that people precious to us are frighteningly mortal, hanging not even by a thread, but by a wisp of gossamer, perhaps we would be kinder to them and more grateful for the love and friendship they give to us.
+ - We live in God’s amusement park.
+ - Whiskers of the cat, Webbed toes on my swimming dog; God is in the details.
+ - What most people find important, you do not. This is Wisdom. To what you believe is important, you are ready to give your mind, heart, and soul. This is Grace.
+ - Somebody asked me about the current choice we’re being given in the presidential election. I said, Well, it’s like two of the scariest movies I can imagine.
+ - I have been reading Stephen King since CARRIE and hope to read him for many years to come.
+ - Pain can be endured and defeated only if it is embraced. Denied or feared, it grows in perception if not in reality. The best response to terror is righteous anger, confidence in ultimate justice, a refusal to be intimidated.
+ - Life packed a clever one-two punch: cruelty and absurdity.
+ - Although I’ve said a million times that I’m not a horror writer, I do like horror.
+ - We’re out of cocktail olives, it’s a tragedy of historic proportions, but we’re coping because we’re Americans.
+ - Being paid well for something you love to do – it’s a grace.
+ - The world is a very complex and interesting place and that is what I really want my fiction to say: wake up to how amazing the world is.
+ - Most people tend to think the best of those who are blessed with beauty; we have difficulty imagining that physical perfection can conceal twisted emotions or a damaged mind.
+ - What year these events transpired is of no consequence. Where they occured is not important. The time is always, and the place is everywhere.
+ - Sometimes waiting is the hardest thing.
+ - I think the world is an interesting place and I don’t think anybody has the firm and final answer to what it is but I kind of assume there’s a purpose.
+ - If we were capable of thinking of everything, we would still be living in Eden, rent-free with all-you-can-eat buffets and infinitely better daytime TV programming.
+ - Most universities are no longer temples of knowledge, but of power, and true moderns worship there.
+ - Are you prepared for the first wound?
+ - The dead are merely the countrymen of my future.
+ - If something in your writing gives support to people in their lives, that’s more than just entertainment-w hich is what we writers all struggle to do, to touch people.
+ - Because people see violence on the movie screen, they’re not going to go out and hold up a liquor store and kill somebody. It really doesn’t correlate.
+ - If you have to pay the bills, and you write something you’re not proud of, use a pen-name for that.
+ - You won’t find the truth of life in morbidity, only in hope.
+ - He once told me that an August evening was “as hot as three toads in a Cuisinart,” a comparison that left me blinking two days later.
+ - The hatred of truth is the taproot of violence.
+ - Besides, I can’t get to where I want to go by conscious or unconscious suicide. I’ve got my strange little life to lead. Leading it the best I can – that’s how I buy the ticket to where I want to be.
+ - In a crunch a man’s reputation never counts for as much as it ought to.
+ - In the wind, the trees, like agitated lions preparing to roar, shook their great green manes.
+ - Only once in a generation does anything as fresh as a vomiting detective come along.
+ - Not an insult sweetie. That was a thirteen word kiss.
+ - Nothing gives us courage more readily than the desire to avoid looking like a damn fool.
+ - A good dog is one of the best things of all to be.
+ - When a knot gets to tight, you can always cut the rope.
+ - Fear is a hammer, and when the people are beaten finally to the conviction that their existence hangs by a frayed thread, they will be led where they need to go.
+ - Hope, however, isn’t all that’s needed to achieve change. Hope is a hand extended, but two hands are required to be pulled out of this deep hole. The second hand was faith...
+ - In spite of where we were, how we had gotten here and why we had come, I felt that at this moment of our lives, this place was exactly where we belonged. We were not drifting but rising, rising toward something right and of significance.
+ - Some days I’m lucky to squeeze out a page of copy that pleases me, but I get as many as six or seven pages on a very good day; the average is probably three pages.
+ - Best thing that can happen to a man is a good woman.
+ - I survive by finding the sweet spot between reason and unreason, between the rational and irrational.
+ - Nearly everything that was fun, of course, was also a little dangerous: riding roller coasters, skydiving, gambling, sex.
+ - I try not to spend too much time on partisan politics. Life’s too short for that. I don’t really believe that there have been many human problems solved by politics.
+ - I am twenty years old. To a world-wise adult, I am little more than a child. To any child, however, I am old enough to be distrusted, to be excluded forever from the magical community of the short and beardless.
+ - As much as I’ve produced it looks to people like I must have written quickly, but it isn’t that – because I put in in a sixty- or seventy-hour week.
+ - Sometimes many publishers prefer that you write the same book every time, but I have a low boredom threshold so that isn’t going to happen.
+ - I fall down on the side of free will, simply because if you look at where I came from, and what I was able to do in my life, what was able to happen.
+ - Dare we linger, dare we skate? Dare we laugh or celebrate, knowing we may strain the ice? Preserve the ice at any price?
+ - I don’t find slashing and blood flying everywhere to be scary. I just find it repulsive.
+ - Not all or even most suffering is at the hands of fate; it befalls us at our invitation.
+ - These days, people spent too much time striving to understand their feelings – and then ended up with none that were genuine.
+ - One of the underlying things I like to do in books, is just say, stop and look at this for a moment. Not that you’ve got to believe that Jesus was real, or not to believe in God, but the belief that it isn’t just happenstance.
+ - This world, which has the potential to be Eden, is instead the hell before Hell. In our arrogance, we have made it so.
+ - Or maybe they were just doing it for fun. A lark. Their religion is tolerant of extreme forms of recreation. Boys will be boys, after all, and sociopathic boys will be sociopathic.
+ - I’ve got a long list of books I wish I’d never written-and I’ve kept them all out of print for the past 20 years.
+ - A short-order cook, just off work, makes easy tracking for lions and worse.
+ - For some, the past is a chain, each day a link, raveling backward to one ringbolt or another, in one dark place or another, and tomorrow is a slave to yesterday.
+ - What doesn’t quicken dies. That’s an indisputable truth of life.
+ - When I’m working on a novel, I work 70-hour weeks.
+ - Houses are not haunted. We are haunted, and regardless of the architecture with which we surround ourselves, our ghosts stay with us until we ourselves are ghosts.
+ - I do give books as gifts sometimes, when people would rather have one than a new Ferrari.
+ - Books were this wonderful escape for me because I could open a book and disappear into it, and that was the only way out of that house when I was a kid.
+ - There is nothing fatherly about time and what it does to us, either.
+ - Shakespeare again. Once you let him into your head, he takes up tenancy and will not leave.
+ - One of the things I like enormously about Bob Weinstein is that that he’s the only studio head I have ever known who will change his mind and say he was wrong.
+ - I have avoided becoming stale by putting a little water on the plate, lying on the plate, and having myself refreshed in a toaster oven for 23 minutes once every month.
+ - The only reason I would write a sequel is if I were struck by an idea that I felt to be equal to the original. Too many sequels diminish the original.
+ - Imagine that you are more than nothing. Evil made you, but you are no more evil than a child unborn. If you want, if you seek, if you hope, who is to say that your hope might not be answered?
+ - We are coming out of a century that was taught that one way of looking at the world, that one form of behavior, is as valid as another. The idea of true evil has been blown away.
+ - The less depth a belief system has, the greater the fervency with which its adherents embrace it. The most vociferous, the most fanatical are those whose cobbled faith is founded on the shakiest grounds.
+ - It’s only life. We all get through it.
+ - There’s never any humongous next draft. I know a writer who every time he finished a novel – you would know his name very well – but his editor would come and live with him for a month. And they would go through the manuscript together.
+ - Of course, I don’t know everything. Considering the infinite amount of knowledge that one could acquire in a virtually innumerable array of intellectual disciplines, it’s probably more accurate to say that I don’t know anything.
+ - I never discuss a novel while I’m writing it, for fear that talking about it will diminish my desire to write it.
+ - When I am battered and oppressed by the world that humanity has made – which is difference from the world that is was given – my primary defense, my consolation, is the absurdity of that world.
+ - A politician’s goal is always to manipulate public debate. I think there are some politicians with higher goals. But all of them get corrupted by power.
+ - Your sense of responsibility to others can never be excessive.
+ - I’ve had good publishers and bad publishers, and you’ve got to learn when the advice is sensible and when it’s not.
+ - Of all the things we can feel with our minds and bodies, severe pain is the purest, for it drives everything else from our awareness and focuses us as perfectly as we can ever be focused.
+ - I can do what I need to do. I can get where I want to go, no matter how hard it is.
+ - Literary fiction, as a strict genre, is all but dead. Meanwhile, most genres flourish.
+ - If I drive myself to the brink of my ability, then I don’t get stale or bored.
+ - I think it’s perfectly just to refuse service to anyone based on behavior, but not based on race or religion.
+ - I always thought happiness was a choice and I always chose things that made me happy, and books were one of those.
+ - I never have lunch because it makes me foggy-headed.
+ - Books showed me that there were other ways to live a life.
+ - I always enjoyed the kids, but I didn’t enjoy the bureaucracy of the educational system.
+ - What really holds their marriage together are mutual respect of an awesome depth, a shared sense of humor, faith that they were brought together by a force greater than themselves, and a love so unwavering and pure that it is sacred.
+ - What we do as a society is seek simple answers.
+ - Not all popular novelists are good, but all good novelists are, sooner or later, popular.
+ - There are days when it seems to me that in literature the most convincing depiction of the world in which we live is to be found in the phantasmagorical kingdom through which Lewis Carroll took Alice on a tour.
+ - I imagined a life that turned out to be pretty much exactly like the one I’ve had. That fascinates me endlessly. I wake up many mornings, and it almost wouldn’t surprise me if I woke up from it and it was all a dream.
+ - It was one of those rare times when remembering the dead was more inmportant than tending to the needs of the living.
+ - If you want to publish two books a year under your own name and your publisher doesn’t, maybe you need a different publisher.
+ - I think it’s the people who have no doubt that every word they put down is gold that probably don’t write very well.
+ - Even if God exists, does He know that you do?
+ - Experts must read the patterns and judge their usefulness as evidence. Under any of numerous pressures, an expert may wish to misread a pattern or even to alter it. Americans had a touching trust in “experts”.
+ - The desire to write well can never be fulfilled without hard work.
+ - My life would be constrained by the horror and fierce rage that my appearance inspired, but I would know peace as well as fear, tenderness as well as brutality, and even love in a time of cruelty.
+ - There’s still a fascination with somebody who can write at book length, no matter what the book is.
+ - Death came, Death went, but Commerce flowed Eternal.
+ - Any drunk who has tried to put his car where a lamppost stands is a self-educated physicist.
+ - The hands of every clock are shears, trimming us away scrap by scrap, and every time piece with a digital readout blinks us towards implosion.
+ - Loving the ideal more than the reality is the cause of all the misery the human species creates for itself.
+ - The only thing I know for sure is how much I do not know.
+ - When I’m in the middle of a book it can go up from there. When you’re putting in those hours, the real world kind of fades and the world you’re creating becomes almost more real to you than the outside world.
+ - The heart is an artist that paints over what profoundly disturbs it, leaving on the canvas a less dark, less sharp version of the truth.
+ - I have learned a great deal from novels. Some of it is even true.
+ - Britney: You in a fight? Odd: No, It’s an employment-related fork wound.
+ - What does worry accomplish except to breed more worry?
+ - I receive about 10,000 letters a year from readers, and in the first year after a book is published, perhaps 5,000 letters will deal specifically with that piece of work.
+ - Then what are you? An electronic Hannibal Lector? You can’t eat my liver with fava beans through a modem, you know.
+ - I’m no more a wonder than anyone. And that’s what makes the world magical. Every baby’s a seed of wonder – that gets watered or it doesn’t.
+ - Never, never try to scope the market.
+ - When it came to formal classes, I was a slacker. But I’ve always been a diligent autodidact and can teach myself virtually any subject if I have a serious interest in it.
+ - What popped up more than that was the realization that I made as an adult that the world is this incredibly complex, layered, and mysterious place and if you stop and think about it the human cell is literally more complex than a fleet of 747s.
+ - Every writer has his own voice. Other than that I’m always trying to do change-ups and publishers haven’t always been happy about that.
+ - I admit to having an imagination feverish enough to melt good judgment.
+ - People couldn’t bear to go on living if they faced every cold truth about themselves.
+ - She says what holds their marriage together is that she feels too damn sorry for him to ask for a divorce.
+ - A great deal of phenomenal experience has fostered in me a flexibility of the mind and imagination that some might call madness.
+ - Although charismatic, James Dean is no Harrison Ford. In the majority of his movies, sooner or later he got the crap beaten out of him.
+ - And the funny thing was if you made the best of it, if you smiled through every storm, the bad things were never as terrible as you expected them to be, and the good things were better than anything you could have wished for yourself.
+ - In my personal life, I’m a comic novel. But then, so are we all, because we’re human beings.
+ - We never had books in the house. Not any book in our house. Not a Bible, not anything. So, I would go the library from a very young age and get the books out.
+ - Readers will stay with an author, no matter what the variations in style and genre, as long as they get that sense of story, of character, of empathetic involvement.
+ - I can’t go on to page two until I can get page one as perfect as I can make it. That might mean I will rewrite and rewrite page one 20, 30, 50, 100 times.
+ - Tommy told Sal about the strange white-cloth figure with black stitches that he had found on the front porch. “Sounds like Pillsbury Doughboy gone punk,” Sal said.
+ - If someone wrote it and it had a peculiar twist, I’ve read it.
+ - Southerners have many fine qualities, charm and civility among them, and a sense of the tragic...
+ - Few human beings give of themselves to another as a dog gives of itself.
+ - While life could be evaded, death could not.
+ - Given my heritage and the ordeal of my childhood, I sometimes wonder why I myself am not insane. Maybe I am.
+ - I enjoy the hell out of writing but don’t like what follows: promotion and publicity, which I always strive to keep to a minimum, sometimes to my publisher’s dismay.
+ - I am no theologian. I would not be surprised, however, if Heaven proved to be a cozy kitchen, where delicious treats appeared in the oven and in the refrigerator whenever you wanted them, and where the cupboards were full of good books.
+ - At the core of every ordered system, whether a family or a factory, is chaos. But in the whirl of every chaos lies a strange order, waiting to be found.
+ - Unreason is an essential medicine as long as you do not overdose.
+ - I really believe that everyone has a talent, ability, or skill that he can mine to support himself and to succeed in life.
+
+374 quotes

@@ -1,0 +1,362 @@
+ - Plans are useless, but planning is essential.
+ - What counts is not necessarily the size of the dog in the fight – it’s the size of the fight in the dog.
+ - You do not lead by hitting people over the head – that’s assault, not leadership.
+ - In preparing for battle I have always found that plans are useless, but planning is indispensable.
+ - Never waste a minute thinking about people you don’t like.
+ - The supreme quality for leadership is integrity.
+ - If you want total security, go to prison. There you’re fed, clothed, given medical care and so on. The only thing lacking... is freedom.
+ - Accomplishment will prove to be a journey, not a destination.
+ - Neither a wise man nor a brave man lies down on the tracks of history to wait for the train of the future to run over him.
+ - Most things which are urgent are not important, and most things which are important are not urgent.
+ - No battle was ever won according to plan, but no battle was ever won without one.
+ - Always try to associate yourself with and learn as much as you can from those who know more than you do, who do better than you, who see more clearly than you.
+ - Every battle is going to surprise you. No plan ever survives contact with the enemy.
+ - Pessimism never won any battle.
+ - Leadership is the art of getting someone else to do something you want done because he wants to do it.
+ - By mutual respect, understanding and with good will we can find acceptable solutions to any problems which exist or may arise between us.
+ - The middle of the road is all of the usable surface. The extremes, right and left, are in the gutters.
+ - For every obstacle there is a solution. Persistence is the key. The greatest mistake is giving up!
+ - If a political party does not have its foundation in the determination to advance a cause that is right and that is moral, then it is not a political party; it is merely a conspiracy to seize power.
+ - Art is a universal language and through it each nation makes its own unique contribution to the culture of mankind.
+ - The supreme quality for leadership is unquestionably integrity. Without it, no real success is possible, no matter whether it is on a section gang, a football field, in an army, or in an office.
+ - Every gun that is made, every warship launched, every rocket fired, signifies in the final sense a theft from those who hunger and are not fed, those who are cold and are not clothed.
+ - Unless we progress, we regress.
+ - You will not find it difficult to prove that battles, campaigns, and even wars have been won or lost primarily because of logistics.
+ - Leadership consists of nothing but taking responsibility for everything that goes wrong and giving your subordinates credit for everything that goes well.
+ - A sense of humor is part of the art of leadership, of getting along with people, of getting things done.
+ - The qualities of a great man are vision, integrity, courage, understanding, the power of articulation, and profundity of character.
+ - Every leader should have enough humility to accept, publicly, the responsibility for the mistakes of the subordinates he has himself selected and, likewise, to give them credit, publicly, for their triumphs.
+ - The only way to win World War III is to prevent it.
+ - Before a battle, planning is everything. Once the fighting has begun, it’s worthless.
+ - There’s no tragedy in life like the death of a child. Things never get back to the way they were.
+ - History does not long entrust the care of freedom to the weak or the timid.
+ - The only things worth counting on are people you can count on.
+ - God, I hate the Germans...
+ - The history of free men is never really written by chance but by choice; their choice!
+ - If a problem cannot be solved, enlarge it.
+ - The search for a scapegoat is the easiest of all hunting expeditions.
+ - Take your job seriously, but not yourself.
+ - Here in America we are descended in blood and in spirit from revolutionists and rebels – men and women who dare to dissent from accepted doctrine. As their heirs, may we never confuse honest dissent with disloyal subversion.
+ - Soldiers, Sailors and Airmen of the Allied Expeditionary Force! You are about to embark upon the Great Crusade, toward which we have striven these many months. The eyes of the world are upon you.
+ - The sergeant is the Army.
+ - The final battle against intolerance is to be fought – not in the chambers of any legislature – but in the hearts of men.
+ - The spirit of man is more important than mere physical strength, and the spiritual fiber of a nation than its wealth.
+ - Farming looks mighty easy when your plow is a pencil and you’re a thousand miles from the corn field.
+ - Pull the string, and it will follow wherever you wish. Push it, and it will go nowhere at all.
+ - A people that values its privileges above its principles soon loses both.
+ - United in this determination and with unshakable faith in the cause for which we fight, we will, with God’s help, go forward to our greatest victory.
+ - Nothing is easy in war. Mistakes are always paid for in casualties and troops are quick to sense any blunder made by their commanders.
+ - No man is worth your tears, but once you find one that is, he won’t make you cry.
+ - We will accept nothing less than full Victory!
+ - It is better to have one person working with you than three people working for you.
+ - Extremes to the right and to the left of any political dispute are always wrong.
+ - The one quality that can be developed by studious reflection and practice is the leadership of men.
+ - Beware the military-industrial complex.
+ - I’ll tell you what leadership is. It’s persuasion and conciliation, and education, and patience.
+ - Firmness in support of fundamentals, with flexibility in tactics and methods, is the key to any hope of progress in negotiation.
+ - The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it’s usually lousy.
+ - If our founding fathers were alive today, they’d roll over in their graves.
+ - There are three stages of life: youth, maturity, and ‘My, you’re looking good!’
+ - If I didn’t have air supremacy, I wouldn’t be here.
+ - When you are in any contest, you should work as if there were – to the very last minute – a chance to lose it. This is battle, this is politics, this is anything.
+ - Freedom has its life in the hearts, the actions, the spirit of men and so it must be daily earned and refreshed – else like a flower cut from its life-giving roots, it will wither and die.
+ - Morale is the greatest single factor in successful wars.
+ - Against the dark background of the atomic bomb, the United States does not wish merely to present strength, but also the desire and the hope for peace.
+ - Freedom from fear and injustice and oppression will be ours only in the measure that men who value such freedom are ready to sustain its possession – to defend it against every thrust from within or without.
+ - Science seems ready to confer upon us, as its final gift, the power to erase human life from this planet.
+ - Peace and justice are two sides of the same coin.
+ - May we never confuse honest dissent with disloyal subversion.
+ - Change based on principle is progress. Constant change without principle becomes chaos.
+ - Before all else, we seek, upon our common labor as a nation, the blessings of Almighty God.
+ - Laughter can relieve tension, soothe the pain of disappointment, and strengthen the spirit for the formidable tasks that always lie ahead.
+ - Preventive war was an invention of Hitler. I would not even listen to anyone seriously that came and talked about such a thing.
+ - I hate war as only a soldier who has lived it can, only as one who has seen its brutality, its futility, its stupidity.
+ - Any man who wants to be president is either an egomaniac or crazy.
+ - Preparing for battle, plans were essential. But once the battle was joined, plans were useless.
+ - We succeed only as we identify in life, or in war, or in anything else, a single overriding objective, and make all other considerations bend to that one objective.
+ - Well, it’s hard for a mere man to believe that woman doesn’t have equal rights.
+ - The eyes of the world are upon you. The hopes and prayers of liberty-loving people everywhere march with you.
+ - America is best described by one word, freedom.
+ - The opportunist thinks of me and today. The statesman thinks of us and tomorrow.
+ - Disorganization can scarcely fail to result in efficiency.
+ - Without a doubt, psychological warfare has proven its right to a place of dignity in our military arsenal.
+ - Public opinion wins wars.
+ - For a just and lasting peace, here is my solemn pledge to you: by dedication and patience we will continue, as long as I remain your President, to work for this simple – this single – this exclusive goal.
+ - A constitutional amendment for congressional term limits could never achieve the blessing of Congress; it could be initiated only by the states.
+ - In order to be a leader a man must have followers. And to have followers, a man must have their confidence.
+ - To be true to one’s own freedom is, in essence, to honor and respect the freedom of all others.
+ - Your task will not be an easy one. Your enemy is well-trained, well-equipped and battle-hardened. He will fight savagely.
+ - Teachers need our active support and encouragement. They are doing one of the most necessary and exacting jobs in the land. They are developing our most precious national resource: our children, our future citizens.
+ - This operation is not being planned with any alternatives. This operation is planned as a victory, and that’s the way it’s going to be. We’re going down there, and we’re throwing everything we have into it, and we’re going to make it a success.
+ - There is nothing wrong with America that faith, love of freedom, intelligence, and energy of her citizens cannot cure.
+ - Among these treasures of our land is water-fast becoming our most valuable, most prized, most critical resource. A blessing where properly used-but it can bring devastation and ruin when left uncontrolled.
+ - I despise all adjectives that try to describe people as liberal or conservative, rightist or leftist, as long as they stay in the useful part of the road.
+ - I never saw a pessimistic general win a battle.
+ - Peace signifies more than the stilling of guns, easing the sorrow of war. More than escape from death, it is a way of life. More than a haven for the weary, it is a hope for the brave.
+ - The eyes of the world are upon you...
+ - The more baseball the better. It is a healthful sport and develops team play and initiative, plus an independent attitude.
+ - Politics is a profession; a serious, complicated and, in its true sense, a noble one.
+ - Mob rule can not be allowed to override the decisions of our courts.
+ - War is a grim, cruel business, a business justified only as a means of sustaining the forces of good against those of evil.
+ - Only an alert and knowledgeable citizenry can complel the proper meshing of the huge industrial and military machinery of defense with our peaceful methods and goals, so that security and liberty may prosper together.
+ - The essence of war is fire, famine, and pestilence. They contribute to its outbreak; they are among its weapons; they become its consequences.
+ - In all those things which deal with people, be liberal, be human. In all those things which deal with the people’s money or their economy or their form of government, be conservative.
+ - I would rather try to persuade a man to go along, because once I have persuaded him, he will stick. If I scare him, he will stay just as long as he is scared, and then he is gone.
+ - In the final choice a soldier’s pack is not so heavy as a prisoner’s chains.
+ - Never be more scared of the enemy than you think he is of you.
+ - America’s leadership and prestige depend, not merely upon our unmatched material progress, riches and military strength, but on how we use our power in the interests of world peace and human betterment.
+ - This desk of mine is one at which a man may die, but from which he cannot resign.
+ - We know something of the cost of that war. We were in it from December seventh, ’41, till August of ’45. Ever since that time, we have been waging peace. It has had its ups and downs just as the war did.
+ - The clearest way to show what the rule of law means to us in everyday life is to recall what has happened when there is no rule of law.
+ - There is no glory in battle worth the blood it costs.
+ - The speed, accuracy and devastating power of American Artillery won confidence and admiration from the troops it supported and inspired fear and respect in their enemy.
+ - You have a row of dominoes set up; you knock over the first one, and what will happen to the last one is that it will go over very quickly.
+ - When you appeal to force, there’s one thing you must never do – lose.
+ - Don’t join the book burners. Do not think you are going to conceal thoughts by concealing evidence that they ever existed.
+ - No treaty or international agreement can contravene the Constitution.
+ - Should any political party attempt to abolish social security, unemployment insurance, and eliminate labor laws and farm programs, you would not hear of that party again in our political history.
+ - This world in arms is not spending money alone. It is spending the sweat of its laborers, the genius of its scientists, the hopes of its children.
+ - We do not keep security establishments merely to defend property or territory or rights abroad or at sea. We keep the security forces to defend a way of life.
+ - This is what I found out about religion: It gives you courage to make the decisions you must make in a crisis, and then the confidence to leave the result to a higher Power. Only by trust in God can a man carrying responsibility find repose.
+ - Only strength can cooperate. Weakness can only beg.
+ - The winning of war – the effectiveness in such things – is in the heart, in the determination, in the faith. It is in our beliefs in our country, in our God, everything that goes to make up America.
+ - It is well for us to pause, to acknowledge our debt to those who paid so large a share of freedom’s price.
+ - Dollars and guns are no substitutes for brains and will power.
+ - I like to believe that people in the long run are going to do more to promote peace than our governments. Indeed, I think that people want peace so much that one of these days governments had better get out of the way and let them have it.
+ - We are going to have peace even if we have to fight for it.
+ - No easy problems ever come to the President of the United States. If they are easy to solve, someone else has solved them.
+ - In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.
+ - The free world must not prove itself worthy of its own past.
+ - It is only common sense to recognize that the great bulk of Americans, whether Republican or Democrat, face many common problems and agree on a number of basic objectives.
+ - Every step we take towards making the State our Caretaker of our lives, by that much we move toward making the State our Master.
+ - The world must learn to work together, or finally it will not work at all.
+ - You can’t have this kind of war. There just aren’t enough bulldozers to scrape the bodies off the streets.
+ - I have full confidence in your courage and devotion to duty and skill in battle. We will accept nothing less than full Victory! Good luck! And let us beseech the blessing of Almighty God upon this great and noble undertaking.
+ - We the people, elect leaders not to rule but to serve.
+ - We are so proud of our guarantees of freedom in thought and speech and worship, that, unconsciously, we are guilty of one of the greatest errors that ignorance can make – we assume our standard of values is shared by all other humans in the world.
+ - When you put on a uniform, there are certain inhibitions that you accept.
+ - That was not the biggest battle that ever was, but for me it always typified one thing; the dash, the ingenuity, the readiness at the first opportunity that characterizes the American soldier.
+ - Compromise is like the middle of the road; always safer to walk on than the edges.
+ - Never let yourself be persuaded that any one Great Man, any one leader, is necessary to the salvation of America. When America consists of one leader and 158 million followers, it will no longer be America.
+ - Never question another man’s motive. His wisdom, yes, but not his motives.
+ - Organizations cannot make a genius out of an incompetent. On the other hand, disorganization can scarcely fail to result in efficiency.
+ - Some people wanted champagne and caviar when they should have had beer and hot dogs.
+ - Only Americans can hurt America.
+ - These are not bad people. All they are concerned about is to see that their sweet little girls are not required to sit in school alongside some big overgrown Negroes.
+ - The hand of the aggressor is stayed by strength-and strength alone.
+ - In the highest sense the Bible is to us the unique repository of eternal spiritual truths.
+ - Only our individual faith in freedom can keep us free.
+ - May the light of freedom, coming to all darkened lands, flame brightly – until at last the darkness is no more.
+ - No people on earth can be held, as a people, to be an enemy, for all humanity shares the common hunger for peace and fellowship and justice.
+ - My ambition in the Army was to make everybody I worked for regretful when I was ordered to other duty.
+ - In opposing Communism, we are defeating ourselves if we use methods that do not conform to the American sense of justice.
+ - I call upon those who love freedom to stand with us now. Together we shall achieve victory.
+ - I don’t think the United States needs superpatriots. We need patriotism, honestly practiced by all of us, and we don’t need these people that are more patriotic than you or anyone else.
+ - Only a fool would try to deprive working men and working women of their right to join the union of their choice.
+ - There is no victory at bargain basement prices.
+ - Our government makes no sense unless it is founded on a deeply held religious belief – and I don’t care what it is.
+ - Why don’t you lay the footpaths where the students want to walk?
+ - When pressure mounts and strain increases everyone begins to show the weaknesses in his makeup. It is up to the Commander to conceal his: above all to conceal doubt, fear, and distrust.
+ - Whatever America hopes to bring to pass in the world must first come to pass in the heart of America.
+ - First, separate ground, sea and air warfare is gone forever. This lesson we learned in World War II. I lived that lesson in Europe. Others lived it in the Pacific. Millions of American veterans learned it well.
+ - Oh, that lovely title, ex-president.
+ - Politics ought to be the part-time profession of every citizen who would protect the rights and privileges of free people and who would preserve what is good and fruitful in our national heritage.
+ - Not making the baseball team at West Point was one of the greatest disappointments of my life, maybe my greatest.
+ - Under the clouds of war, it is humanity hanging on a cross of iron.
+ - Our real problem, then, is not our strength today; it is rather the vital necessity of action today to ensure our strength tomorrow.
+ - The peace we seek and need means much more than mere absence of war. It means the acceptance of law, and the fostering of justice, in all the world.
+ - Sweet praise is like perfume. It is fine if you don’t swallow it.
+ - If a man’s associates find him guilty of being phony, if they find that he lacks forthright integrity, he will fail. His teachings and actions must square with each other. The first great need, therefore, is integrity and high purpose.
+ - I’m going to pass a law that no one can ask me my golf score.
+ - When people speak to you about a preventive war, you tell them to go and fight it. After my experience, I have come to hate war.
+ - We view our Nation’s strength and security as a trust, upon which rests the hope of free men everywhere.
+ - The world moves, and ideas that were once good are not always good.
+ - We will bankrupt ourselves in the vain search for absolute security.
+ - One small ball in the air. I wouldn’t believe that at this moment you have to fear the intelligence aspects of this.
+ - An intellectual is a man who takes more words than necessary to tell more than he knows.
+ - In the service, when a man gives you his word, his word is binding. In politics, you never know.
+ - The people of Israel, like those of the United States, are imbued with a religious faith and a sense of moral values.
+ - The unity of all who dwell in freedom is their only sure defense.
+ - The Japanese were ready to surrender, and it wasn’t necessary to hit them with that awful thing.
+ - War is mankind’s most tragic and stupid folly; to seek or advise its deliberate provocation is a black crime against all men.
+ - Knowledge-full, unfettered knowledge of its own heritage, of freedom’s enemies, of the whole world of men and ideas-this knowledge is a free people’s surest strength.
+ - I am inclined by nature to be optimistic about the capacity of a person to rise higher than he or she has thought possible once interest and ambition are aroused.
+ - As men and women of character and of faith in the soundness of democratic methods, we must work like dogs to justify that faith.
+ - From behind the Iron Curtain, there are signs that tyranny is in trouble and reminders that its structure is as brittle as its surface is hard.
+ - Legislation to apply the principle of equal pay for equal work without discrimination because of sex is a matter of simple justice.
+ - The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion.
+ - Innovations and discoveries have created new industries giving more and more Americans better jobs and adding greatly to the prosperity and well being of all.
+ - When shallow critics denounce the profit motive inherent in our system of private enterprise, they ignore the fact that it is an economic support of every human right we possess and without it, all rights would disappear.
+ - The proudest thing I can claim is that I am from Abilene.
+ - Ankles are nearly always neat and good-looking, but knees are nearly always not.
+ - Though force can protect in emergency, only justice, fairness, consideration and cooperation can finally lead men to the dawn of eternal peace.
+ - The true purpose of education is to prepare young men and women for effective citizenship in a free form of government.
+ - I believe we must be strong militarily, but beyond a certain point military strength can become a national weakness.
+ - Do not needlessly endanger your lives until I give you the signal.
+ - The free world knows, out of the bitter wisdom of experience, that vigilance and sacrifice are the price of liberty.
+ - Through unity of action we can be a veritable colossus in support of peace. No one can defeat us unless we first defeat ourselves. Every one of us must be guided by this truth.
+ - Never lose your temper, except intentionally.
+ - Now, the education of our children is of national concern, and if they are not educated properly, it is a national calamity.
+ - Hope spurs humans everywhere to work harder to endure more now that the future may be better.
+ - We must be strong at home if we are going to be strong abroad. We understand that. So we want to be strong at home in our morale or in our spirit, we want to be strong intellectually, in our education, in our economy and, where necessary, militarily.
+ - From this day forward, the millions of our school children will daily proclaim in every city and town, every village and rural schoolhouse, the dedication of our Nation and our people to the Almighty.
+ - I shall make that trip. I shall go to Korea.
+ - Fortunately for us and our world, young people are not easily discouraged. The hopes of the world rest on the fresh outlook of young people.
+ - We have never stopped sin by passing laws; and in the same way, we are not going to take a great moral ideal and achieve it merely by law.
+ - Since the advent of nuclear weapons, it seems clear that there is no longer any alternative to peace, if there is to be a happy and well world.
+ - I have no use for those- regardless of their political party- who hold some foolish dream of spinning the clock back to days when unorganized labor was a huddled, almost helpless mass.
+ - First, separate ground, sea and air warfare is gone forever. If ever again we should be involved in war, we will fight it in all elements, with all services, as one single concentrated effort.
+ - But all history has taught us the grim lesson that no nation has ever been successful in avoiding the terrors of war by refusing to defend its rights – by attempting to placate aggression.
+ - We are not saints. We know we make mistakes, but at least our heart is with the right cause.
+ - Yet, in holding scientific research and discovery in respect, as we should, we must also be alert to the equal and opposite danger that public policy could itself become the captive of a scientific-technological elite.
+ - No one should ever sit in this office over 70 years old, and that I know.
+ - Guns and tanks and planes are nothing unless there is a solid spirit, a solid heart, and great productiveness behind it.
+ - You will enter the continent of Europe and, in conjunction with the other United Nations, undertake operations aimed at the heart of Germany and the destruction of her armed forces.
+ - No amphibious attack in history has approached this one in size. Along miles of coastline there were hundreds of vessels and small boats afloat and ant-like files of advancing troops ashore.
+ - I know only one method of operation: to be as honest with others as I am with myself.
+ - The world must know what happened, and never forget.
+ - In this way we shall constantly strengthen those spiritual weapons which forever will be our country’s most powerful resource in peace and war.
+ - We face a hostile ideology global in scope, atheistic in character, ruthless in purpose and insidious in method.
+ - I say when you get into a war, you should win as quick as you can, because your losses become a function of the duration of the war. I believe when you get in a war, get everything you need and win it.
+ - I’m for each and against none.
+ - How has retirement affected my golf game? A lot more people beat me now.
+ - Remember that it is not by a tyrant’s words, but only by his deeds that we can know him.
+ - Character in many ways is everything in leadership. It is made up of many things, but I would say character is really integrity.
+ - You know, this is what I’ve always thought a college should look like.
+ - The building of such a peace is a bold and solemn purpose. To proclaim it is easy. To serve it will be hard. And to attain it, we must be aware of its full meaning – and ready to pay its full price.
+ - We have won an armistice on a single battlefield, not peace in our world. We may not now relax our guard nor cease our quest.
+ - Some politician some years ago said that bad officials are elected by good voters who do not vote.
+ - Any time we deny any citizen the full exercise of his constitutional rights, we are weakening our own claim to them.
+ - Ideas more than once have prevailed against naked power. Guns and aircraft alone do not make a state powerful. Unless force is backed up by the will of the great body of people it loses its meaning.
+ - I believe it is a tradition in baseball that when a pitcher has a no-hitter going, no one reminds him of it.
+ - Our economy is the result of millions of decisions we all make every day about producing, earning, saving, investing, and spending.
+ - We merely want to live in peace with all the world...
+ - I believe that without free enterprise there can be no democracy.
+ - The problem in defense is how far you can go without destroying from within what you are trying to defend from without.
+ - My constant prayer, these days, as I start my backswing is, ‘Oh, please let me swing slowly.’ The trouble is that sometimes I wonder whether I swing at all; whether I am not strictly a chopper.
+ - The most terrible job in warfare is to be a second lieutenant leading a platoon when you are on the battlefield.
+ - In this hope, among the things we teach to the young are such truths as the transcendent value of the individual and the dignity of all people, the futility and stupidity of war, its destructiveness of life and its degradation of human values.
+ - We seek peace, knowing that peace is the climate of freedom.
+ - Kinship among nations is not determined in such measurements as proximity of size and age. Rather we should turn to those inner things – call them what you will – I mean those intangibles that are the real treasures free men possess.
+ - We need an adequate defense, but every arms dollar we spend above adequacy has a long-term weakening effect upon the nation and its security.
+ - We are tired of aristocratic explanations in Harvard words.
+ - To blend, without coercion, the individual good and the common good is the essence of citizenship in a free country.
+ - Never send a battalion to take a hill if a regiment is available.
+ - As it is an ancient truth that freedom cannot be legislated into existence, so it is no less obvious that freedom cannot be censored into existence.
+ - Life is certainly only worthwhile as it represents struggle for worthy causes. There is no struggle in perfect security. I am quite certain that the human being could not continue to exist if he or she had perfect security.
+ - Well, when you come down to it, I don’t see that a reporter could do much to a president, do you?
+ - You, of Canada, are building a magnificent record of achievement. My country rejoices in it.
+ - It is far more important to be able to hit the target than it is to haggle over who makes a weapon or who pulls a trigger.
+ - We have the disgrace of racial discrimination, or we have prejudice against people because of their religion. We have not had the courage to uproot these things, although we know they are wrong.
+ - Don’t join the book burners!
+ - Now this brings me to my main topic – our military strength – more specifically, how to stay strong against threat from outside, without undermining the economic health that supports our security.
+ - The supreme belief of our society is the dignity and freedom of the individual. To the respect of that dignity, to the defense of that freedom, all effort is pledged.
+ - We want democracy to survive for all generations to come, not to become the insolvent phantom of tomorrow.
+ - I get weary of the European habit of taking our money, resenting any slight hint as to what they should do, and then assuming, in addition, full right to criticize us as bitterly as they may desire.
+ - Our pleasures were simple – they included survival.
+ - We cannot risk living all our lives under emergency measures.
+ - No man can always be right. So the struggle is to do one’s best, to keep the brain and conscience clear, never be swayed by unworthy motives or inconsequential reasons, but to strive to unearth the basic factors involved, then do one’s duty.
+ - There can be no peace without law.
+ - I despise people who go to the gutter on either the right or the left and hurl rocks at those in the center.
+ - Through knowledge and understanding we will drive from the temple of freedom all who seek to establish over us thought control – whether they be agents of a foreign power or demagogues thirsty for personal power and public notice.
+ - And the next thing is that every war is going to astonish you in the way it occurred, and in the way it is carried out.
+ - Our best protection against bigger government in Washington is better government in the states.
+ - I have one yardstick by which I test every major problem – and that yardstick is: Is it good for America?
+ - A nation’s hope of lasting peace cannot be firmly based upon any race in armaments but rather upon just relations and honest understanding with all other nations.
+ - Arms alone can give the world no permanent peace, no confident security. Arms are solely for defense – to protect from violent assault what we already have. They are only a costly insurance. They cannot add to human progress.
+ - Work should be for all of us a word as honorable and appealing as patriotism.
+ - I’m saving that rocker for the day when I feel as old as I really am.
+ - An atheist is a man who watches a Notre Dame – Southern Methodist University game and doesn’t care who wins.
+ - If progress is to be steady we must have long term guides extending far ahead.
+ - Politics should be the part-time profession of every citizen.
+ - There is no such thing as human superiority.
+ - A voter without a ballot is like a soldier without a bullet.
+ - Our forces saved the remnants of the Jewish people of Europe for a new life and a new hope in the reborn land of Israel. Along with all men of good will, I salute the young state and wish it well.
+ - Patronage is almost a wicked word. By itself it could well-nigh defeat democracy.
+ - Only by trusting in God can a man carrying responsibility find repose.
+ - Humility must always be the portion of any man who receives acclaim earned in the blood of his followers and the sacrifices of his friends.
+ - I do not believe that any political campaign justifies the declaration of a moratorium on ordinary common sense.
+ - The one weapon every man, soldier, sailor, or airman should be able to use effectively is the rifle.
+ - Speeches are for the younger men who are going places. And I’m not going anyplace except six feet under the floor of that little chapel adjoining the museum and library at Abilene.
+ - Disarmament, with mutual honor and confidence, is a continuing imperative.
+ - Censorship, in my opinion, is a stupid and shallow way of approaching the solution to any problem.
+ - Unless each day can be looked back upon by an individual as one in which he has had some fun, some joy, some real satisfaction, that day is a loss.
+ - We look upon this shaken earth, and we declare our firm and fixed purpose-the building of a peace with justice in a world where moral law prevails.
+ - There is one thing about being President – nobody can tell you when to sit down.
+ - Of course Overlord did not fail. How could it? With some many fine young men and women from all corners of the earth all determined to do their best to free a world gone half mad.
+ - I thought it completely absurd to mention my name in the same breath as the presidency.
+ - You realise Group Captain that this might be the most important weather forecast in history?
+ - If any blame or fault attaches to the attempt, it is mine alone.
+ - As quickly as you start spending federal money in large amounts, it looks like free money.
+ - Few women, I fear, have had such reason as I have to think the long sad years of youth were worth living for the sake of middle age.
+ - If the United Nations once admits that international disputes can be settled by using force, then we will have destroyed the foundation of the organization and our best hope of establishing a world order.
+ - Like all successful politicians I married above myself.
+ - So long as we govern our nation by the letter and spirit of the Bill of Rights, we can be sure that our nation will grow in strength and wisdom and freedom.
+ - The peace we seek, founded upon decent trust and cooperation among nations, can be fortified not by weapons of war but by wheat and cotton, by milk and wool, by meat and timber, and by rice. These are words that translate into every language.
+ - Despite the present, temporary interests that Israel has in common with France and Britain, you ought not to forget that the strength of Israel and her future are bound up with the United States.
+ - The only answer to a regime that wages total cold war is to wage total peace.
+ - There can be no true disarmament without peace, and there can be no real peace without very material disarmament.
+ - The past sharpens perspective, warns against pitfalls, and helps to point the way.
+ - Things are more like they are now than they ever were before.
+ - Help the Cubans to the utmost counseling his successor while handing over the reins. We cannot let Castro’s government go on.
+ - Freedom bestows on us the priceless gift of opportunity – if we neglect our opportunities we shall certainly lose our freedom.
+ - As nuclear and other technological achievements continue to mount, the normal life span will continue to climb. The hourly productivity of the worker will increase.
+ - The president cannot escape from his office.
+ - We have heard much of the phrase, peace and friendship. This phrase, in expressing the aspiration of America, is not complete. We should say instead, peace and friendship, in freedom. This, I think, is America’s real message to the rest of the world.
+ - The necessary and wise subordination of the military to civil power must be sustained.
+ - The next time you see one of those squirrels go near my putting green, take a gun and shoot it.
+ - Together we must learn how to compose differences, not with arms, but with intellect and decent purpose.
+ - We reject any idea that one race of people is in any way better than another.
+ - I firmly believe that the future of civilization is absolutely dependent upon finding some way of resolving international differences without resorting to war.
+ - The day will come when the people will make so insistent their demand that there be peace in the world that the Governments will get out of the way and let them have peace.
+ - Things have never been more like the way they are today in history.
+ - The world could be fixed of its problems if every child understood the necessity of their existence.
+ - Our American heritage is threatened as much by our own indifference as it is by the most unscrupulous office or by the most powerful foreign threat. The future of this republic is in the hands of the American voter.
+ - I believe that for the past twenty years there has been a creeping socialism spreading in the United States.
+ - The purpose is clear. It is safety with solvency. The country is entitled to both.
+ - Un-American activity cannot be prevented or routed out by employing un-American methods; to preserve freedom we must use the tools that freedom provides.
+ - Every gathering of Americans-whether a few on the porch of a crossroads store or massed thousands in a great stadium-is the possessor of a potentially immeasurable influence on the future.
+ - Some years ago I became president of Columbia University and learned within 24 hours to be ready to speak at the drop of a hat, and I learned something more, the trustees were expected to be ready to speak at the passing of the hat.
+ - I have said time and again there is no place on this earth to which I would not travel, there is no chore I would not undertake if I had any faintest hope that, by so doing, I would promote the general cause of world peace.
+ - I deplore the need or the use of troops anywhere to get American citizens to obey the orders of constituted courts.
+ - For all that we cherish and justly desire – for ourselves or for our children – the securing of peace is the first requisite.
+ - Memory should be the starting point of the present.
+ - There are a number of things wrong with Washington. One of them is that everyone is too far from home.
+ - The people of the world genuinely want peace. Some day the leaders of the world are going to have to give in and give, it to them.
+ - I feel impelled to speak today in a language that in a sense is new-one which I, who have spent so much of my life in the military profession, would have preferred never to use. That new language is the language of atomic warfare.
+ - Having established as our goals a lasting world peace with justice and the security of freedom on this earth, we must be prepared to make whatever sacrifices are demanded as we pursue this path to its end.
+ - How far have we come in man’s long pilgrimage from darkness toward light? Are we nearing the light-a day of freedom and of peace for all mankind? Or are the shadows of another night closing in upon us?
+ - The seeker is never so popular as the sought. People want what they can’t get.
+ - Any nations right to a form of government and economic system of its own choosing is inalienable. Any nations attempt to dictate to other nations their form of government is indefensible.
+ - People in the long run are going to do more to promote peace than governments.
+ - There is no person in this room whose basic rights are not involved in any successful defiance to the carrying out of court orders.
+ - American working men are principals in the three-member team of capital, management, labor. Never have they regarded themselves as a servile class that could attain freedom only through destruction of the industrial economy.
+ - May we, in our dealings with all the peoples of the earth, ever speak the truth and serve justice.
+ - Military power serves the cause of security by making prohibitive the cost of any aggressive attack. It serves the cause of peace by holding up a shield behind which the patient constructive work of peace can go on.
+ - Kinship among nations is not determined in such measurements as proximity of size and age.
+ - Leadership is the ability to decide what is to be done and then get others to do it.
+ - No one should be appointed to political office if he is a seeker after it.
+ - If people get together, so eventually will nations.
+ - Any survey of the free world’s defense structure cannot fail to impart a feeling of regret that so much of our effort and resources must be devoted to armaments.
+ - In most communities it is illegal to cry ‘fire’ in a crowded assembly. Should it not be considered serious international misconduct to manufacture a general war scare in an effort to achieve local political aims?
+ - I assure you that it is our desire and intention to keep the doors of consultation always and fully open. There must never be a final word between friends.
+ - In this war, which was total in every sense of the word, we have seen many great changes in military science. It seems to me that not the least of these was the development of psychological warfare as a specific and effective weapon.
+ - There must be justice, sensed and shared by all peoples, for, without justice the world can know only a tense and unstable truce.
+ - There is – in world affairs – a steady course to be followed between an assertion of strength that is truculent and a confession of helplessness that is cowardly.
+ - It is still a fact that our common frontier grows stronger every year, defended only by friendship.
+ - Unlike presidential administrations, problems rarely have terminal dates.
+ - The potential for the disastrous rise of misplaced power exists and will persist.
+ - The world no longer has a choice between force and law; if civilization is to survive, it must choose the rule of law.
+ - I can think of nothing more boring for the American people than to have to sit in their living rooms for a whole half hour looking at my face on their television screens.
+ - The gravity of the time is such that every new avenue of peace, no matter how dimly discernible, should be explored.
+ - I have found out in later years that we were very poor, but the glory of America is that we didn’t know it then.
+ - Statesmanship is developed in the hard knocks of general experience, private and public.
+ - One of the things that I noticed in war was how difficult it was for our soldiers, at first, to realize that there are no rules to war. Our men were raised in sports, where a referee runs a football game, or an umpire a baseball game, and so forth.
+ - I come from the very heart of America.
+ - All generalizations are inaccurate, including this one.
+ - War is a contest, and you finally get to a point where you are talking merely about race suicide, and nothing else.
+ - The righteousness of men should be treated with the same respect that one would accord to a rattlesnake. Things are more like they are now than they ever were before.
+ - Peace is more the product of our day-to-day living than of a spectacular program, intermittently executed.
+ - As our heart summons our strength, our wisdom must direct it.
+
+360 quotes

@@ -1,0 +1,31 @@
+ - Newspapers are the world’s mirrors.
+ - We can all be heroes in our virtues, in our homes, in our lives.
+ - Twilight is like death; the dark portal of night comes upon us, to open again in the glorious morning of immortality.
+ - Better an ugly face than an ugly mind.
+ - Literature is the garden of wisdom.
+ - The press should be the voice of the people, not of party.
+ - The rustling of the leaves is like a low hymn to nature.
+ - To the lazy man the world appears bereft of all blessings; if poor, he has no friends; if rich, he has no ambition; he aims at nothing, and generally hits his mark.
+ - In winter we behold the charms of solemn majesty and naked grandeur.
+ - The lazy man aims at nothing, and generally hits it.
+ - There is no heart without remorse, no life without some misfortune, no one but what is something stained with sin.
+ - True loyalty consists not in bowing the knee to earthly greatness, or in heroic deeds to “gild the kingly knave, or garnish out the fool,” but in noble, generous acts of honest purpose, where truth, honor, and virtue, and a nation’s welfare, are dearer than life.
+ - Angels worship God with purity and love; men, with fear and trembling.
+ - Dexterity is one of the chief weapons of diplomacy; governments rely more upon the supremacy of this instrument, when in the hands of a skillful diplomatist, than in the soundness or justice of their claims.
+ - Among all the accomplishments of life none are so important as refinement; it is not, like beauty, a gift of Nature, and can only be acquired by cultivation and practice.
+ - The mind paints before the brush.
+ - A knowledge of general literature is one of the evidences of an enlightened mind; and to give an apt quotation at a fitting time, proves that the mind is stored with sentential lore that can always be used to great advantage by its possessor.
+ - Regrets over the past should chasten the future.
+ - Books are the beehives of thought; laconics, the honey taken from them.
+ - A defeat to a brave man is only a victory deferred.
+ - An inherent sense of man makes him long for an eternal paradise.
+ - Some few have a natural talent for office-bolding; very many for office-seeking.
+ - Our own actions are the accidents of fortune that we sometimes place to the credit of luck or misfortune.
+ - Style in painting is the same as in writing,-a power over materials, whether words or colors.
+ - It is a sure sign of a mind not balanced as it ought to be, when it is insensible to the pleasures of the domestic hearth, and to the little joys and endearments of a family.
+ - Let us lend cheerfully, for the time is pretty sure to come when we will wish to borrow.
+ - Our leisure is the time the Devil seizes upon to make us work for him; and the only way we can avoid conscription into his ranks is to keep all our leisure moments profitably employed.
+ - Maxims are often quoted by those who stand in more need of their application.
+ - The greater part of our misfortunes are brought on by neglecting the chances that yesterday gave us.
+
+29 quotes

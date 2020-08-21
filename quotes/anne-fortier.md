@@ -1,0 +1,25 @@
+ - Only weak men want women to be weak.
+ - You owe me nothing, but I want everything.
+ - Everything we say is a story. But nothing we say is just a story.
+ - When the old men fight, the young people die.
+ - I wish I had the power to flip my reality upside down like an hourglass, and that life wasn’t a finite affair, but rather a perpetually recurring passage through a hole in time.
+ - You were right and I was wrong. When life hurts more than death, it is not worth living.
+ - Great love, you believe, carries the seeds of great sorrow.
+ - Don’t underestimate the power of events that happened a long time ago. That is the tragic flaw of modern man.
+ - While at Oxford in 1999, I met Jonathan Fortier, who is a Montreal-born Canadian. Despite the challenges of a transatlantic relationship, we remained keen on each other and eventually married in 2002.
+ - Verona is a very beautiful city, but Siena just never ceases to fascinate me.
+ - I did not know my soul until I saw it’s reflection in your eyes.
+ - Perhaps. But the firstborn of hope is tragedy.
+ - By the time we left college, I had become my own image: a dandelion in the flower bed of society. Kinda cute, but still a weed.
+ - Think about it. He drinks poison. What kind of man drinks poison? She is the one who stabs herself with his dagger. The manly way.
+ - A novel is, hopefully, the starting point of a conversation, one in which the author engages readers and asks that they see things from a different point of view than they might otherwise.
+ - We are all cups, and our destiny is poured according to measures we cannot understand, cannot influence.
+ - After the dress rehearsal that afternoon, someone had misplaced the vial of poison, and for lack of better, Romeo would have to commit suicide by eating Tic Tacs.
+ - Great love, you believe, carries the seeds of great sorrow. Well, perhaps you are right. Perhaps the wise spurn one to remain safe from the other, but I should rather choose to have my eyes burnt in their sockets than to have been born without.
+ - For as long as I could remember, he had never worn a single piece of clothing that could be considered casual. Khaki shorts and golf shirts, to Umberto, were the garments of men who have no virtues left, not even shame.
+ - I absolutely believe the past had its share of warrior women who fought like men. Whether some of these were the actual Amazons from Greek myth is another matter.
+ - In many ways, a degree in the history of ideas is the ideal training for an aspiring writer.
+ - Janice used to say that instinct was reason in a hurry; I was not so sure about the reason part.
+ - I think Shakespeare is everybody’s treasure.
+
+23 quotes

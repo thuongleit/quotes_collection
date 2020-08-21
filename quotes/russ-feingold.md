@@ -1,0 +1,52 @@
+ - I’m proud to be a Democrat.
+ - There is nothing more American than peaceful protest.
+ - It’s not enough to be in the majority, you have to stand for something.
+ - Americans want to defeat terrorism and they want the basic character of this country to survive and prosper. They want both security and liberty, and unless we give them both – and we can if we try – we have failed.
+ - It’s time to refocus our global fight against terrorism. We must move away from the Iraq-centric policies that are draining our resources and focus on Al Qaeda and its affiliates who are reportedly operating in some 60 to 80 countries around the world.
+ - Opening up the Arctic National Wildlife Refuge to oil drilling is bad public policy that has no place in the budget process,. The Budget Committee needs to leave drilling in the Arctic Refuge behind and focus on crafting this year’s budget package.
+ - Speech doesn’t corrupt. Money corrupts, and money isn’t speech.
+ - Why should we believe people who constantly try to push these trade agreements and won’t even admit when one has gone wrong? It makes working people feel like the process is rigged. The reason is, it is rigged.
+ - Tea Party people know that I stood against the Wall Street scam from Day One, that I voted against TARP, that I voted against repealing Glass-Steagall Act that kept these guys under some control.
+ - We should not use special budget procedures to jam through legislation to drill in the Arctic Refuge. This topic is too important to the public to address it in such a back-door manner. We should be having a full, open discussion of the issue during an energy debate.
+ - I’ve done what I’ve always wanted to do. But as one Senator said, just because you’re doing what you’ve always wanted to do, it doesn’t mean you have to do it forever. And it’s very taxing in terms of the travel, the running around.
+ - It’s just really tragic after all the horrors of the last 1,000 years we can’t leave behind something as primitive as government-sponsored execution.
+ - I will also continue to strongly oppose any reauthorization of the Patriot Act that does not protect the rights and freedoms of law-abiding Americans with no connection to terrorism.
+ - Resisting overreaching by the federal government is appropriate and, yes, even patriotic.
+ - I’m young, and I’m fortunate to be in good health, although I do get tired. Sometimes my wife refers to me as Mr. Excitement because of the number of naps it takes to keep this going.
+ - Cuts to Medicare, Medicaid and Social Security benefits are unacceptable, and they shouldn’t be put on the table by Democrats for any reason.
+ - If a senator or congressman notices 25 phone calls, on any issue, on any given day, it is noted.
+ - Occupy Wall Street is a real movement.
+ - It is crucial that civil liberties in this country be preserved otherwise the terrorists will win the battle against American values without firing another shot.
+ - Children are not being assaulted by images that appear on a computer screen. Any Internet user knows it is quite difficult to stumble across pornography.
+ - I believe that Bruce Springsteen is terrific, but I don’t think he’s God. That’s the only real disagreement between me and my wife. Music is really fun, and it is something that my wife and I like to share.
+ - The Tea Party ended up being a shill for corporate America.
+ - Congress has lost its way if we don’t hold this President accountable for his actions.
+ - That’s what I like about you, senator, you’re kicking it old-school.
+ - The President’s pre-1776 mentality is hurting America and fracturing the foundation on which our country has stood for 230 years. The President can’t just bypass two branches of government, and obey only those laws he wants to obey.
+ - Health care for all Americans is the most pressing domestic issue today. It’s far past time for the President and Congress to deliver health care to everyone.
+ - In my opinion, we need to again consider the possibility of public funding of congressional elections, following the very successful experience with clean money systems in Maine and Arizona.
+ - The conservative version of American exceptionalism has become a password of sorts for candidates who want to prove their credentials to a right-wing America.
+ - Money in politics is a huge issue.
+ - Unfair trade agreements, passed by both Republicans and Democrats, have sent millions of jobs to other countries. We need to stop this hemorrhaging and find ways for American workers to compete in the new market.
+ - Health care is still the number-one issue out there. Someone who seizes it, I think, will do very well in an election. Let’s face it: Clinton’s two big issues were the middle class tax cut, which he dropped, wisely, at the time to help reduce the deficit, and health care. That’s what he ran on.
+ - Instead of taking a very high-paying type of law job or something that I might be able to do, I have been a legislator. That’s what I do. I think it’s an honorable profession – if you’re honest and have integrity and work hard.
+ - What is the harm of doing the right thing? What is the harm of doing our job as legislators and making sure we do not stick the entire bankruptcy community with these provisions that do not make any sense?
+ - I rise to oppose the Central American Free Trade Agreement, known as CAFTA, the latest expression of the disastrous trade policies of this administration which are, unfortunately, a continuation of the disastrous trade policies of previous administrations.
+ - We need to get rid of the Federal Elections Commission. It’s a joke. It doesn’t enforce the law.
+ - The administration has a disturbing pattern of behavior when it comes to budgeting not only for the ongoing operations in Iraq and Afghanistan but also for military requirements not directly related to these conflicts.
+ - It is not patriotic to decide to destroy a new president who was duly elected by an overwhelming margin. It is un-patriotic to resolve to destroy that presidency.
+ - It is not only all right but necessary to stand up to George Bush.
+ - We must let this town square, which has added a significant dimension to our political process, continue to flourish.
+ - It will make the Tea Party look like a tea party.
+ - The notion of American exceptionalism is effective in part because there is little on the face of it that is offensive.
+ - I believe in local control of education.
+ - Jews know the Palestinians. And they know they’re not really different. And they know they are from the same background. And they know if they coordinated that they could be an economic success and a real basis for a rebirth in the Middle East.
+ - I do think there would be a receptivity to somebody who campaigned in a straightforward, cohesive way, supporting an increase in the minimum wage, being for universal health care for all Americans, and opposing trade agreements like NAFTA.
+ - The president and others say that if we leave, it will just be chaos in Iraq. Well, right now when you come to Iraq, you can’t even drive from the airport to the Green Zone.
+ - Its the reality of a situation like this that when you have a large troop presence that it has the tendency to fuel the insurgency, because they can make the incorrect and unfair claim that somehow the United States is here to occupy this country, which of course is not true.
+ - I find that students are very strong on my issues, stronger than anyone: anti-death penalty, anti-racial profiling, campaign finance reform, questioning the anti-terrorism bill.
+ - The Wisconsin senator gets up and says out loud what half of the country is thinking and talks about every day. This President broke the law and lied about it; he trashed the Constitution and hides himself in the flag.
+ - If a trip is worth taking, members of Congress should be prepared to justify paying for it out of their office accounts.
+ - There’s a tendency on the part of Americans, all of us, to say, ‘Hey, the Cold War is over, the Soviet Union is gone, we don’t have to worry about these guys again.’ We always have to be worried about them, we always have to be concerned about them, and we have to be well-informed.
+
+50 quotes

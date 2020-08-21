@@ -1,0 +1,39 @@
+ - When the going gets tough, the tough get a librarian.
+ - When we don’t have the words chocolate can speak volumes.
+ - Almost. It’s a big word for me. I feel it everywhere. Almost home. Almost happy. Almost changed. Almost, but not quite. Not yet. Soon, maybe. I’m hoping hard for that.
+ - The choices we make can have lasting consequences.
+ - Words are such powerful things. We can rip somebody apart with them, we can write words down that can forever hurt another person. We can use them to tell stories and lies. We can misquote them and change what other people said to make ourselves look good...
+ - Sometimes you’ve got to shout the truth and wake people up.
+ - When you have something so important, something that you’ll stay awake for, something you know that you were designed to do, well, it’s worth getting a few dark circles, don’t you think?
+ - You don’t understand how much light you have until the lights go out.
+ - New places always help us look at life differently.
+ - My grandma always said that God made libraries so that people didn’t have any excuse to be stupid.
+ - I’ll tell you something about tough times. They just about kill you, but if you decide to keep working at them, you’ll find your way through.
+ - Like my grandmother always said, ’you never know the blessings that come from suffering.
+ - People are so cheap. Everyone wants quality, no one wants to pay for it. Here’s the suburban dream – to hire great workers who are such meek morons that they don’t have the guts to ask for a living wage.
+ - I hope you’ll have the kind of life where what you stand for is so important that it makes some people outright hostile. You won’t know how strong your beliefs really are until you have to defend them.
+ - My father always told me that in this world we are going to make a truckload of mistakes, but the best mistake we can ever make is to err on the side of mercy.
+ - A heart will say amazing things if it’s given half a chance.
+ - Sometimes the best thing that can happen to a person is to have a puppy lick your face.
+ - Everyone needs fudge, Hildy. It’s how God helps us cope.
+ - Some things go too deep for words.
+ - And we learned that you don’t have to be famous or rich or physically healthy to be a leader. You just have to try to be a true person. We learned that helping other people brings out the good in everybody.
+ - The problem with the heart is how it can have so many opposite feelings coursing through it all at the same time. It’s really an inconsistent thing- appreciating something one minute and hating it the next.
+ - You’ve got to love yourself with all your short comings, and you’ve got to love the world no matter how bad it gets.
+ - If you worry about every little thing you’re going to have one thoroughly miserable life.
+ - The sad heart needs work to do.
+ - Teenagers are like bees at night, I think. We don’t like waking up and we don’t always get with the program immediately, but once we figure out our mission, we’ll see it through.
+ - Infatuation cannot be sustained indefinitely, my friend. Love that embraces the entire person is a monumental gift that takes time to grow.
+ - It takes a great cook to pull life truth from poultry.
+ - Mountains draw you to a deeper place in yourself.
+ - You cannot measure the loss of a human life. It’s all the things a person was, all their dreams, all the people who loved them, all they hoped to be and could give back to the world.
+ - When you can carry five full dinner platters on your left arm, you should be able to vote, even if you’re not eighteen.
+ - It was probably easier in the old days when the bad guys rode into town wearing black capes or whatever bad guys wore and the milk cows were ownded by honest people. Right off the bat, you’d know who you were dealing with. Now everybody dresses alike.
+ - Staring down hard truth takes guts.
+ - Have you ever noticed that it takes a textbook dozens of pages to say what normal people can cover fast? Example: What was the full impact of World War II? Clear-cut teenage answer: we won.
+ - If you can’t find an answer at the mall or the library, what does that say about the world?
+ - Sometimes just getting up in the morning and standing at the gate can bring the gate down.
+ - You don’t know which way a thing will come at you, but you need to welcome it with your whole heart which ever way it arrives.
+ - Librarians understand about power – they know how to find anything.
+
+37 quotes

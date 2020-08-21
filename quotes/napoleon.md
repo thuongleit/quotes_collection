@@ -1,0 +1,502 @@
+ - Courage isn’t having the strength to go on - it is going on when you don’t have strength.
+ - History is written by the winners.
+ - If you want a thing done well, do it yourself.
+ - Never interrupt your enemy when he is making a mistake.
+ - Victory belongs to the most persevering.
+ - The world suffers a lot. Not because the violence of bad people, but because of the silence of the good people.
+ - Take time to deliberate, but when the time for action comes, stop thinking and go in.
+ - A leader is a dealer in hope.
+ - History is a set of lies agreed upon.
+ - The best cure for the body is a quiet mind.
+ - There is a joy in danger.
+ - Nothing is more difficult, and therefore more precious, than to be able to decide.
+ - Show me a family of readers, and I will show you the people who move the world.
+ - Great men are meteors designed to burn so that earth may be lighted.
+ - A woman laughing is a woman conquered.
+ - The best way to keep one's word is not to give it.
+ - Impossible is a word to be found only in the dictionary of fools.
+ - Until you spread your wings, you’ll have no idea how far you can fly.
+ - Courage is like love, it must have hope for nourishment.
+ - Music is what tell us that the human race is greater than we realize.
+ - If you build an army of 100 lions and their leader is a dog, in any fight, the lions will die like a dog. But if you build an army of 100 dogs and their leader is a lion, all dogs will fight as a lion.
+ - The amateurs discuss tactics: the professionals discuss logistics.
+ - Four hostile newspapers are more to be feared than a thousand bayonets.
+ - A picture is worth a thousand words.
+ - Give me an educated mother, I shall promise you the birth of a civilized, educated nation.
+ - I see only my objective – the obstacles must give way.
+ - There are but two powers in the world, the sword and the mind. In the long run the sword is always beaten by the mind.
+ - Give Me a Turkish Army. I will Conquer world.
+ - Men are Moved by two levers only: fear and self interest.
+ - We are either kings or pawns of men.
+ - He who fears being conquered is sure of defeat.
+ - Religion is excellent stuff for keeping common people quiet. Religion is what keeps the poor from murdering the rich.
+ - Let her sleep, for when she wakes, she will shake the world.
+ - The only conquests that are permanent and leave no regrets are our conquests over ourselves.
+ - Every hour of lost time is a chance of future misfortune.
+ - You don’t reason with intellectuals. You shoot them.
+ - You can not lead a battle if you think you look silly on a horse.
+ - Death is nothing, but to live defeated and inglorious is to die daily.
+ - The truest wisdom is a resolute determination.
+ - Imagination governs the world.
+ - The word impossible is not in my dictionary.
+ - When you set out to take Vienna, take Vienna.
+ - Never ascribe to malice that which can adequately be explained by incompetence.
+ - I start out by believing the worst.
+ - If I had to choose a religion, the sun as the universal giver of life would be my god.
+ - I may lose a battle but I will never lose a minute.
+ - An army marches on its stomach.
+ - The battlefield is a scene of constant chaos. The winner will be the one who controls that chaos, both his own and the enemies.
+ - Ten people who speak make more noise than ten thousand who are silent.
+ - Ability is nothing without opportunity.
+ - In politics, stupidity is not a handicap.
+ - A man will fight harder for his interests than for his rights. Men are moved by only two mechanisms: fear and self-interest. Victory belongs to the most persevering.
+ - It is the cause, not the death, that makes the martyr.
+ - One must change one’s tactics every ten years if one wishes to maintain one’s superiority.
+ - Impossible is the word found only in a fool’s dictionary. Wise people create opportunities for themselves and make everything possible...
+ - Remember, gentlemen, what a Roman emperor said: The corpse of an enemy always smells sweet.
+ - I saw the crown of France laying on the ground, so I picked it up with my sword.
+ - As for me, to love you alone, to make you happy, to do nothing which would contradict your wishes, this is my destiny and the meaning of my life.
+ - If the Earth were a single state, Istanbul would be its capital.
+ - The only victories which leave no regret are those which are gained over ignorance.
+ - A great people may be killed, but they cannot be intimidated.
+ - Give me enough medals and I’ll win you any war.
+ - Courage cannot be counterfeited. It is one virtue that escapes hypocrisy.
+ - A starving army is actually worse than none.
+ - Never interfere with an enemy in the process of destroying himself.
+ - Strong coffee, much strong coffee, is what awakens me. Coffee gives me warmth, waking, an unusual force and a pain that is not without very great pleasure.
+ - Diplomacy is the police in grand costume.
+ - The only victory over love is flight.
+ - In war, men are nothing, one man is everything.
+ - It’s the unconquerable soul of man, and not the nature of the weapon he uses, that ensures victory.
+ - Champagne! In victory, one deserves it; in defeat one needs it.
+ - I know he’s a good general, but is he lucky?
+ - The laws of circumstance are abolished by new circumstances.
+ - You must not fear death, my lads; defy him, and you drive him into the enemy’s ranks.
+ - The first quality of a soldier is constancy in enduring fatigue and hardship. Courage is only the second. Poverty privation and want are the school of the good soldier.
+ - The best generals are those who have served in the artillery.
+ - Never awake me when you have good news to announce, because with good news nothing presses; but when you have bad news, arouse me immediately, for then there is not an instant to be lost.
+ - I have come to realise that men are not born to be free.
+ - The Jews are the master robbers of the modern age.
+ - Men will risk their lives, even die for ribbons.
+ - It is an approved maxim in war, never to do what the enemy wishes you to do, for this reason alone, that he desires it.
+ - You cannot stop me; I spend thirty thousand men a month.
+ - A great reputation is a great noise, the more there is of it, and the further does it swell. Land, monuments, Nations, all fall, but the noise remains, and will reach to other generations.
+ - After me, the Revolution – or, rather the ideas which formed it – will resume their course. It will be like a book from which the marker is removed, and one starts to read again at the page where one left off.
+ - The worse the man the better the soldier. If soldiers be not corrupt they ought to be made so.
+ - Prussia was hatched from a cannon-ball.
+ - I have never loved anyone for love’s sake except, perhaps, Josephine – a little.
+ - Where the Government is weak, military sway prevails.
+ - I have so often been mistaken that I no longer blush for it.
+ - Between a battle lost and a battle won, the distance is immense and there stand empires.
+ - There is only one step from the sublime to the ridiculous.
+ - If I had not been defeated in Acre against Jezzar Pasha of Turk. I would conquer all of the East.
+ - In war, the general alone can judge of certain arrangements. It depends on him alone to conquer difficulties by his own superior talents and resolution.
+ - We must laugh at man to avoid crying for him.
+ - Of all the peoples of Europe, Spaniards disgust me the least.
+ - I tell you Wellington is a bad general, the English are bad soldiers; we will settle this matter by lunch time.
+ - That man made me miss my destiny.
+ - My enemies make appointments at my tomb.
+ - From the heights of these pyramids, forty centuries look down on us.
+ - Envy is a declaration of inferiority.
+ - Cossacks are the best light troops among all that exist. If I had them in my army, I would go through all the world with them.
+ - A journalist is a grumbler, a censurer, a giver of advice, a regent of sovereigns, a tutor of nations. Four hostile newspapers are more to be feared than a thousand bayonets.
+ - The reason most people fail instead of succeed is they trade what they want most for what they want at the moment.
+ - There shall be no Alps.
+ - The leader’s role is to define reality, then give hope.
+ - Alexander, Charlemagne and myself all tried to found an empire on force and we failed. Jesus Christ is building an empire on love, and today there are millions of people who would gladly die for His sake.
+ - In war it is not men, but the man who counts.
+ - There is only one thing in this world, and that is to keep acquiring money and more money, power and more power. All the rest is meaningless.
+ - The first virtue in a soldier is endurance of fatigue; courage is only the second virtue.
+ - War is ninety percent information.
+ - The only way to lead people is to show them a future: a leader is a dealer in hope.
+ - One might as well try to charge through a wall.
+ - Give me enough ribbons to place on the tunics of my soldiers and I can conquer the world.
+ - Put your iron hand in a velvet glove.
+ - The secret of war lies in the communications.
+ - It requires more courage to suffer than to die.
+ - Great ambition is the passion of a great character.
+ - I made all my generals out of mud.
+ - Space we can recover; time never.
+ - We walk faster when we walk alone.
+ - Insubordination may only be the evidence of a strong mind.
+ - Glory is fleeting, but obscurity is forever.
+ - A soldier will fight long and hard for a bit of colored ribbon.
+ - A true man hates no one.
+ - The greatest danger occurs at the moment of victory.
+ - If you wish to be a success in the world, promise everything, deliver nothing.
+ - Great battles are won with artillery.
+ - Men of genius are meteors destined to burn themselves out in lighting up their age.
+ - In war, the moral is to the physical as three is to one.
+ - There are so many laws that no one is safe from hanging.
+ - I would rather have a general who was lucky than one who was good.
+ - Nature intended women to be our slaves. They are our property.
+ - The stupid speak of the past, the wise of the present, and fools of the future.
+ - Men are ruled by toys.
+ - Circumstances-what are circumstances? I make circumstances.
+ - Better to have a known enemy than a forced ally.
+ - The strong man is the one who is able to intercept at will the communication between the senses and the mind.
+ - My downfall raises me to infinite heights.
+ - You must not fight too often with one enemy, or you will teach him all your art of war.
+ - Chess is too difficult to be a game and not serious enough to be a science or an art.
+ - An empty throne always tempts me.
+ - Strategy is the art of making use of time and space. I am less concerned about the later than the former. Space we can recover, lost time never.
+ - I have only one counsel for you – be master.
+ - Impatience is a great obstacle to success; he who treats everything with brusqueness gathers nothing, or only immature fruit which will never ripen.
+ - A man will fight harder for his interests than for his rights.
+ - A revolution is an idea which has found its bayonets.
+ - The torment of precautions often exceeds the dangers to be avoided. It is sometimes better to abandon one’s self to destiny.
+ - The sovereignty of the people is inalienable.
+ - Audacity succeeds as often as it fails; in life it has an even chance.
+ - Strangers are just friends waiting to happen. To become a good man, one must have faithful friends, or outright enemies.
+ - Man will believe anything, as long as it’s not in the bible.
+ - Artillery is more essential to cavalry than to infantry, because cavalry has no fire for its defence, but depends on the sabre.
+ - It is not necessary to bury the truth. It is sufficient merely to delay it until nobody cares.
+ - Go Sir, gallop and don’t forget that the world was made in six days. You can ask me for anything but not time.
+ - There is no such thing as an accident, only a failure to recognise the hand of fate.
+ - I base my calculation on the expectation that luck will be against me.
+ - Adversity is the midwife of genius.
+ - You become strong by defying defeat and by turning loss into gain and failure to success.
+ - A man becomes the creature of his uniform.
+ - Laws which are consistent in theory often prove chaotic in practice.
+ - Cavalry is useful before, during, and after the battle.
+ - Equality should be the chief basis of the education of youth.
+ - I have made all the calculations; fate will do the rest.
+ - If you know a country’s geography, you can understand and predict its foreign policy.
+ - The hand that gives is among the hand that takes. Money has no fatherland, financiers are without patriotism and without decency, their sole object is gain.
+ - Soldiers generally win battles; generals get credit for them.
+ - Why and how are words so important that they cannot be too often used.
+ - Anarchy is the stepping stone to absolute power.
+ - A society without religion is like a vessel without compass.
+ - The best medicine against the grapes of wrath is a whiff of grapeshot.
+ - Good intelligence is nine-tenths of any battle.
+ - To live, is to suffer; and the honest man is always fighting to be master of his own mind.
+ - Women are nothing but machines for producing children.
+ - True heroism consists in rising superior to misfortune.
+ - An urgent missive sent to Josephine Home in three days. Don’t wash.
+ - In our time no one has the conception of what is great. It is up to me to show them.
+ - From the sublime to the ridiculous there is but one step.
+ - The advance and perfecting of mathematics are closely joined to the prosperity of the nation.
+ - Do you know what amazes me more than anything else? The impotence of force to organize anything.
+ - Power is my mistress. I have worked too hard at her conquest to allow anyone to take her away from me.
+ - No one but myself can be blamed for my fall. I have been my own greatest enemy-the cause of my own disastrous fate.
+ - Oh well, no matter what happens, there’s always death.
+ - Peoples of Egypt, you will be told that I have come to destroy your religion. Do not believe it! Reply that I have come to restore your rights!
+ - Good infantry is without doubt the sinews of an army; but if it has to fight a long time against very superior artillery, it will become demoralized and will be destroyed.
+ - In the eyes of empire builders men are not men but instruments.
+ - Patriotism is a word which represents a noble idea.
+ - The art of choosing men is not nearly so difficult as the art of enabling those chosen to attain their full worth.
+ - Independence, like honor, is a rocky island, without a beach.
+ - Nothing is lost as long as courage remains.
+ - If you want to get on in this world make many promises, but don’t keep them.
+ - Over-preparation is the foe of inspiration.
+ - I wish I could take a raincheck on June 18.1815.
+ - An army of lions commanded by a deer will never be an army of lions.
+ - There are two levers for moving men – interest and fear.
+ - The French complain of everything, and always.
+ - A leader has the right to be beaten, but never the right to be surprised.
+ - When firmness is sufficient, rashness is unnecessary.
+ - Greatness be nothing unless it be lasting.
+ - Secrets travel fast in Paris.
+ - Liberty and equality are magical words.
+ - Reconnaissance memoranda should always be written in the simplest style and be purely descriptive. They should never stray from their objective by introducing extraneous ideas.
+ - My business is to succeed, and I’m good at it. I create my Iliad by my actions, create it day by day.
+ - I am the successor, not of Louis XVI, but of Charlemagne.
+ - To write history one must be more than a man, since the author who holds the pen of this great justiciary must be free from all preoccupation of interest or vanity.
+ - The most terrible of all my battles was the one before Moscow. The French showed themselves to be worthy of victory, but the Russians showed themselves worthy of being invincible.
+ - War is the business of barbarians.
+ - Un croquis vaut mieux qu.
+ - I love a brave soldier who has undergone the baptism of fire.
+ - It is with artillery that war is made.
+ - Reprisals are but a sad resource.
+ - To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.
+ - Power is what they like – it is the greatest of all aphrodisiacs.
+ - Governments keep their promises only when they are forced, or when it is to their advantage to do so.
+ - A true master of politics is able to calculate, down to the smallest fraction, the advantages to which he may put his very faults.
+ - What a beautiful fix we are in now; peace has been declared.
+ - The process of quitting smoking doesn’t end with the last cigarette. It’s not quitting itself, the real key is staying quit.
+ - Among those who dislike oppression are many who like to oppress.
+ - Friendship is but a name. I love no one.
+ - I do not amuse myself by thinking of dead people.
+ - The first method is that of a schemer and leads only to mediocre results; the other method is the path of genius and changes the face of the world.
+ - A book in which there were no lies would be a curiosity.
+ - What is the government? Nothing, unless supported by opinion.
+ - To negotiate is not to do as one likes.
+ - France needs nothing so much to promote her regeneration as good mothers.
+ - I am a monarch of God’s creation, and you reptiles of the earth dare not oppose me. I render an account of my government to none save God and Jesus Christ.
+ - I want the whole of Europe to have one currency; it will make trading much easier.
+ - I have fought sixty battles, and I have learnt nothing which I did not know at the beginning.
+ - Unity of command is essential to the economy of time. Warfare in the field was like a siege: by directing all one’s force to a single point a breach might be made, and the equilibrium of opposition destroyed.
+ - In war, as in prostitution, amateurs are often better than professionals.
+ - The reason I beat the Austrians is, they did not known the value of five minutes.
+ - Who saves his country violates no law.
+ - Until then, mio dolce amor, a thousand kisses; but give me none in return, for they set my blood on fire.
+ - Nothing makes the future look so rosy as to contemplate it through a glass of Chambertin.
+ - No amount of money will induce someone to lay down their life, but they will gladly do so for a bit of yellow ribbon.
+ - A man like me troubles himself little about a million men.
+ - I have seen only yoU, I have admired only yoU, I desire only You.
+ - You can do anything with bayonets except sit on them.
+ - The World is not ruined by the wickedness of the wicked, but by the weakness of the good.
+ - The Bible is no mere book, but a Living Creature, with a power that conquers all that oppose it.
+ - Europe is a molehill. All great empires and revolutions have been on the Orient; six hundred millions live there.
+ - The future destiny of a child is always the work of the mother.
+ - To understand the man you have to know what was happening in the world when he was twenty.
+ - The poor man commands respect; the beggar must always excite anger.
+ - An army’s effectiveness depends on its size, training, experience, and morale, and morale is worth more than any of the other factors combined.
+ - This accession of territory affirms forever the power of the United States, and I have given England a maritime rival who sooner or later will humble her pride.
+ - If I always appear prepared, it is because before entering an undertaking, I have meditated long and have foreseen what might occur. It is not genius which reveals to me suddenly and secretly what I should do in circumstances unexpected by others; it is thought and preparation.
+ - Our hour is marked, and no one can claim a moment of life beyond what fate has predestined.
+ - Tis a principle of war that when you can use the lightning, ’tis better than cannon.
+ - It is cowardly to commit suicide. The English often kill themselves. It is a malady caused by the humid climate.
+ - They wanted me to be a Washington.
+ - Public morals are natural complement of all laws they are by themselves an entire code.
+ - Every private in the French army carries a Field Marshall wand in his knapsack.
+ - All the scholastic scaffolding falls, as a ruined edifice, before a single word: faith.
+ - I haven’t known 6 days of happiness in my life.
+ - Conquest has made me what I am, only conquest can maintain me.
+ - The bullet that will kill me is not yet cast.
+ - You would make a ship sail against the winds and currents by lighting a bonfire under her decks? I have no time for such nonsense.
+ - I know men; and I tell you that Jesus Christ is not a man. Superficial minds see a resemblance between Christ and the founders of empires, and the gods of other religions. That resemblance does not exist. There is between Christianity and whatever other religions the distance of infinity...
+ - One bad general is worth two good ones.
+ - True heroism consists in being superior to the ills of life, in whatever shape they may challenge us to combat.
+ - A beautiful woman like eyes, and a good heart; One is a beautiful thing, and other treasures.
+ - The greatest ornament of an illustrious life is modesty and humility, which go a great way in the character even of the most exalted princes.
+ - The art of being sometimes audacious and sometimes very prudent is the secret of success.
+ - Neglect of duty does not cease, by repetition, to be neglect of duty.
+ - The object of war is victory, the object of victory is conquest, and the object of conquest is occupation.
+ - War must be made as intense and awful as possible in order to make it short, and thus to diminish its horrors.
+ - I am sometimes a fox and sometimes a lion. The whole secret of government lies in knowing when to be the one or the other.
+ - Lies circle the earth while Truth is still trying to put on its shoes.
+ - Friends must always be treated as if one day they might be enemies.
+ - I believe love to be hurtful to society, and to the individual happiness of men. I believe, in short, that love does more harm than good.
+ - Without cavalry, battles are without result.
+ - Soldiers! Here is the battle you have so long desired! Henceforth victory depends on you; we have need of it.
+ - Treason is a matter of dates.
+ - Machiavelli is right: one always must live with one’s friends with the idea that they may turn into one’s enemies. He should have said, with everyone.
+ - Public opinion is a mysterious and invisible power, to which everything must yield. There is nothing more fickle, more vague, or more powerful; yet capricious as it is, it is nevertheless much more often true, reasonable, and just, than we imagine.
+ - Whatever misanthropists may say, ingrates and the perverse are exceptions in the human species.
+ - Conscription is the vitality of a nation, the purification of its morality, and the real foundations of all its habits.
+ - The only one who is wiser than anyone is everyone.
+ - The Mohammedan religion is the finest of all.
+ - It is often in the audacity, in the steadfastness, of the general that the safety and the conservation of his men is found.
+ - The fool has one great advantage over a man of sense; he is always satisfied with himself.
+ - A people that is able to say everything, becomes able to do everything. The crowd which follows me with admiration, would run with the same eagerness were I marching to the Guillotine.
+ - Water, air, and cleanness are the chief articles in my pharmacy.
+ - It is cowardice to commit suicide.
+ - Alexander, Caesar, Charlemagne, and I have founded empires. But on what did we rest the creations of our genius? Upon force. Jesus Christ founded his empire upon love; and at this hour millions of men would die for him.
+ - Democracy, if it is reasonable, limits itself to giving everyone an equal opportunity to compete and to obtain.
+ - The fate of a battle is the result of a moment, of a thought: the hostile forces advance with various combinations, they attack each other and fight for a certain time; the critical moment arrives, a mental flash decides, and the least reserve accomplishes the object.
+ - I can no longer obey; I have tasted command, and I cannot give it up.
+ - In Russia there are no roads – only areas.
+ - Battles are lost or won in 15 minutes.
+ - Ordinary men died, men of iron were taken prisoner: I only brought back with me men of bronze.
+ - I shall be an Attila to Venice.
+ - God is on the side of the heaviest cannon.
+ - Destiny urges me to a goal of which I am ignorant. Until that goal is attained I am invulnerable, unassailable. When Destiny has accomplished her purpose in me, a fly may suffice to destroy me.
+ - Die young, and I shall accept your death-but not if you have lived without glory, without being useful to your country, without leaving a trace of your existence: for that is not to have lived at all.
+ - The herd seek out the great, not for their sake but for their influence; and the great welcome them out of vanity or need.
+ - I make my battle plans from the spirit of my sleeping soldiers.
+ - War is cruel to the people, and terrible to the conquered.
+ - A Constitution should be short and obscure.
+ - When I want any, good head work done; I always choose a man, if possible with a long nose.
+ - Nothing is more arrogant than the weakness which feels itself supported by power.
+ - Good and decent people must be protected and persuaded by gentle means, but the rabble must be led by terror.
+ - There are only two forces that unite men – fear and interest. All great revolutions originate in fear, for the play of interests does not lead to accomplishment.
+ - To be believed make the truth unbelievable.
+ - The barbarous custom of having men beaten who are suspected of having important secrets to reveal must be abolished. It has always been recognized that this way of interrogating men, by putting them to torture, produces nothing worthwhile.
+ - For the stability of the Government, the people should have a considerable voice in the elections.
+ - I hope before long to press you in my arms and shall shower on you a million burning kisses as under the Equator.
+ - I would rather suffer with coffee than be senseless.
+ - I am conquered less by fortune than by the egotism and ingratitude of my companions in arms.
+ - When small men attempt great enterprises, they always end by reducing them to the level of their mediocrity.
+ - Public instruction should be the first object of government.
+ - If I were an Englishman, I should esteem the man who advised a war with China to be the greatest living enemy of my country. You would be beaten in the end, and perhaps a revolution in India would follow.
+ - Soldiers, forty centuries are looking down upon you from these pyramids.
+ - Rascality has limits; stupidity has not.
+ - Here, Gentlemen, a dog teaches us a lesson in humanity.
+ - We must serve the people worthily, and not occupy ourselves in trying to please them. The best way, to gain their affections is to do them good.
+ - Love is the idler’s occupation, the warrior’s relaxation, and the sovereign’s ruination.
+ - My star was fading, I felt the reins slipping out of my grasp, and could do nothing to stop it.
+ - The art of war is to gain time when your strength is inferior.
+ - To extraordinary circumstance we must apply extraordinary remedies.
+ - If I were to give liberty to the press, my power could not last three days.
+ - Character is victory organized.
+ - Put a rogue in the limelight and he will act like an honest man.
+ - An Emperor confides in national soldiers, not in mercenaries.
+ - I do not believe it is in our nature to love impartially. We deceive ourselves when we think we can love two beings, even our own children, equally. There is always a dominant affection.
+ - In a conquered country benevolence is not humanitarianism. It is a general political axiom that a conqueror must not inspire a good opinion of his benevolence until he has demonstrated that he can be severe with malefactors.
+ - Throw off your worries when you throw off your clothes at night.
+ - Men grow old quickly on the battlefield.
+ - Moses has revealed the existence of God to his nation. Jesus Christ to the Roman world, Muhammad to the old continent...
+ - Mankind’s worst enemy is fear of work.
+ - Surely in a matter of this kind we should endeavor to do something, that we may say that we have not lived in vain, that we may leave some impress of ourselves on the sands of time.
+ - America is a fortunate country. She grows by the follies of our European nations.
+ - A revolution can be neither made nor stopped. The only thing that can be done is for one of several of its children to give it a direction by dint of victories.
+ - I engage and after that I see what to do.
+ - In war, three-quarters turns on personal character and relations; the balance of manpower and materials counts only for the remaining quarter.
+ - Bloodletting is among the ingredients of political medicine.
+ - How many things apparently impossible have nevertheless been performed by resolute men who had no alternative but death.
+ - The infectiousness of crime is like that of the plague.
+ - The heart may be broken, and the soul remain unshaken.
+ - Immortality is the best recollection one leaves.
+ - The people to fear are not those who disagree with you, but those who disagree with you and are too cowardly to let you know.
+ - Wine is inspiring and adds greatly to the joy of living.
+ - More glorious to merit a sceptre than to possess one.
+ - The policies of all powers are inherent in their geography.
+ - In order to govern, the question is not to follow out a more or less valid theory but to build with whatever materials are at hand. The inevitable must be accepted and turned to advantage.
+ - The bayonet has always been the weapon of the brave and the chief tool of victory.
+ - The fate of a Nation may sometimes depend upon the position of a fortress.
+ - Music, of all the liberal arts, has the greatest influence over the passions, and it is that to which the legislator ought to give the greatest encouragement.
+ - Posterity will talk of Washington as the founder of a great empire, when my name shall be lost in the vortex of revolution.
+ - In a great nation, the majority are incapable of judging wisely of things.
+ - Europe thus divided into nationalities freely formed and free internally, peace between States would have become easier: the United States of Europe would become a possibility.
+ - All the women in the world would not make me lose an hour.
+ - An aristocracy is the true support of a monarchy.
+ - God has given me the will and the force to overcome all obstacles.
+ - What my enemies call a general peace is my destruction. What I call peace is merely the disarmament of my enemies. Am I not more moderate than they?
+ - Charges of cavalry are equally useful at the beginning, the middle and the end of a battle. They should be made always, if possible, on the flanks of the infantry, especially when the latter is engaged in front.
+ - What is a throne? – a bit of wood gilded and covered in velvet. I am the state- I alone am here the representative of the people. Even if I had done wrong you should not have reproached me in public – people wash their dirty linen at home. France has more need of me than I of France.
+ - Remember that a man, a true man, never hates. His rages and his bad moods never last beyond the present moment-like electric shocks.
+ - Religions are all founded on miracles – on things we cannot understand, such as the Trinity. Jesus calls himself the Son of God, and yet is descended from David. I prefer the religion of Mahomet – it is less ridiculous than ours.
+ - In war, as in love, we must come into contact before we triumph.
+ - Democracy may become frenzied, but it has feelings and can be moved. As for aristocracy, it is always cold and never forgives.
+ - From first to last, Jesus is the same; always the same – majestic and simple, infinitely severe and infinitely gentle.
+ - The Concordat is not the victory of any one party but the consolidation of all.
+ - Which is heavier: a soldier’s pack or a slave’s chains?
+ - There is no place in a fanatic’s head where reason can enter.
+ - Doctors will have more lives to answer for in the next world than even we generals.
+ - A man is not dependent upon his fellow creature, when he does not fear death.
+ - Never lose sight of this maxim, that you should establish your cantonments at the most distant and best protected point from the enemy, especially where a surprise is possible. By this means you will have time to unite all your forces before he can attack you.
+ - Men are more easily governed through their vices than through their virtues.
+ - England would be better off without Canada; it keeps her in a prepared state for war at a great expense and constant irritation.
+ - The logical end to defensive warfare is surrender.
+ - When soldiers have been baptized in the fire of a battle-field, they have all one rank in my eyes.
+ - A throne is only a bench covered with velvet.
+ - Love is the occupation of the idle man, the amusement of a busy one, and the shipwreck of a sovereign.
+ - It would be a joke if the conduct of the victor had to be justified to the vanquished.
+ - I am the signet which marks the page where the revolution has been stopped; but when I die it will turn the page and resume its course.
+ - Ability is of little account without opportunity. I have very rarely met with two o’clock in the morning courage: I mean instantaneous courage.
+ - Riches do not consist in the possession of treasures, but in the use made of them.
+ - All great events hang by a single thread. The clever man takes advantage of everything, neglects nothing that may give him some added opportunity; the less clever man, by neglecting one thing, sometimes misses everything.
+ - An order that can be misunderstood, will be misunderstood.
+ - Even when I am gone, I shall remain in people’s minds the star of their rights, my name will be the war cry of their efforts, the motto of their hopes.
+ - Man loves the marvelous. It has an irresistible charm for him. He is always ready to leave that with which he is familiar to pursue vain inventions. He lends himself to his own deception.
+ - Kiss the feet of Popes provided their hands are tied.
+ - A faithful friend is the true image of the Deity.
+ - It is an ambassador’s duty to stand up for his nation’s foreign policy in any era and under any government whatsoever. Ambassadors are, in the full meaning of the term, titled spies.
+ - The superior man is never in anyone’s way.
+ - Morality has nothing to do with such a man as I am.
+ - A well-composed song strikes the mind and softens the feelings, and produces a greater effect than a moral work, which convinces our reason, but does not warm our feelings, nor effect the slightest alteration in our habits.
+ - France is invaded; I am leaving to take command of my troops, and, with God’s help and their valor, I hope soon to drive the enemy beyond the frontier.
+ - Collective crimes incriminate no one.
+ - The art of land warfare is an art of genius, of inspiration. On the sea nothing is genius or inspiration; everything is positive or empiric.
+ - In these days the invention of printing, and the diffusion of knowledge, render historical calumnies a little less dangerous: truth will always prevail in the long run, but how slow its progress!
+ - International incidents must not be allowed to shape foreign policy, foreign policy must shape the incidents.
+ - What I have done up to this is nothing. I am only at the beginning of the course I must run. Do you imagine that I triumph in Italy in order to aggrandise the pack of lawyers who form the Directory, and men like Carnot and Barras? What an idea!
+ - When your enemy is doing something wrong, do not interrupt him.
+ - I am a soldier and accustomed to risking my life every day. I am full of the fire of youth; I cannot act with the restraint of an accomplished diplomat.
+ - An army must have but one line of operations. This must be maintained with care and abandoned only for major reasons.
+ - Those who have changed the universe have never done it by changing officials, but always by inspiring the people.
+ - In war, as in politics, no evil – even if it is permissible under the rules – is excusable unless it is absolutely necessary. Everything beyond that is a crime.
+ - He who is unmoved by tears has no heart.
+ - Rashness succeeds often, still more often fails.
+ - All generals, officers, and soldiers who capitulate in battle to save their own lives should be decimated.
+ - I love power. But it is as an artist that I love it. I love it as a musician loves his violin, to draw out its sounds and chords and harmonies.
+ - To have good soldiers, a nation must always be at war.
+ - Force is the law of animals, men are ruled by conviction.
+ - In war the simplest manoeuvres are the best.
+ - Man, not men, is the most important consideration.
+ - What is the future? What is the past? What are we? What is the magic fluid that surrounds us and conceals the things we most need to know? We live and die in the midst of marvels.
+ - Whatever shall we do in that remote spot? Well, we will write our memoirs. Work is the scythe of time.
+ - In revolution there are only two sorts of men, those who cause them and those who profit by them.
+ - A general must be a charlatan.
+ - Medicine is a collection of uncertain prescriptions, the results of which, taken collectively, are more fatal than useful to mankind.
+ - Against attempts on my life, I trust in my luck, my good genius, and my guards.
+ - Treaties are observed as long as they are in harmony with interests.
+ - Being in the Tuileries is not everything: what matters is to stay here.
+ - Half of the people in the world are below average.
+ - We frustrate many designs against us by pretending not to see them.
+ - When a government is dependent upon bankers for money, they and not the leaders of the government control the situation.
+ - The allies we gain by victory will turn against us upon the bare whisper of our defeat.
+ - A portion of the multitude must ever be coerced.
+ - The great proof of madness is the disproportion of one’s designs to one’s means.
+ - Forethought we may have, undoubtedly, but not foresight.
+ - The more I study the world, the more I am convinced of the inability of brute force to create anything durable.
+ - Soldiers! Forty centuries behold you!
+ - It is exceptional and difficult to find in one man all the qualities necessary for a great general.
+ - Variety made the Revolution. Liberty was just a pretext.
+ - I have destroyed the enemy merely by marches.
+ - Nothing is so important in war as an undivided command.
+ - Public opinion is the thermometer a monarch should constantly consult.
+ - History is the version of past events that people have decided to agree upon.
+ - In time of revolution, with perseverance and courage, a soldier should think nothing impossible.
+ - It’s not the size of the army but the power within the army.
+ - There are two kinds of fidelity, that of dogs and that of cats; you, gentleman, have the fidelity of cats who never leave the house.
+ - God! How men of letters are stupid.
+ - The purely defensive is doomed to defeat.
+ - A people which is able to say everything becomes able to do everything.
+ - In war as in love, to bring matters to a close, you must get close together.
+ - It is the success which makes great men.
+ - A man made for public life and authority never takes account of personalities; he only takes account of things, of their weight and their conseqences.
+ - A man cannot become an atheist merely by wishing it.
+ - I marvel that whereas the ambitious dreams of my self, Caesar, and Alexander should have vanished into thin air, a Judean peasant-Jesus-s hould be able to stretch His hands across the centuries and control the destinies of men and nations.
+ - Sire, I am my own Rudolph of Hapsburg.
+ - Hereditary succession to the magistracy is absurd, as it tends to make a property of it; it is incompatible with the sovereignty of the people.
+ - The keys of a fortress are always well worth the retirement of the garrison when it is resolved to yield only on those conditions. On this principle it is always wiser to grant an honorable capitulation to a garrison which has made a vigorous resistance than to risk an assault.
+ - The most constant, the most powerful, and the most generous of all my enemies.
+ - True character stands the test of emergencies. Do not be mistaken, it is weakness from which the awakening is rude.
+ - Take a dose of medicine once, and in all probability you will be obliged to take an additional hundred afterwards.
+ - Unavailable wars are always just.
+ - People take England on trust, and repeat that Shakespeare is the greatest of all authors. I have read him: there is nothing that compares Racine or Corneille: his plays are unreadable, pitiful.
+ - Man is entitled by birthright to a share of the earth’s produce sufficient to fill the needs of his existence.
+ - It’s the people who are in the wrong who get angry.
+ - Clearly, the pleasures wines afford are transitory – but so are those of the ballet, or of a musical performance. Wine is inspiring and adds greatly to the joy of living.
+ - You write to me that it’s impossible. The word is not French.
+ - Those who are free from common prejudices acquire others.
+ - History paints the human heart.
+ - The extent of your consciousness is limited only by your ability to love and to embrace with your love the space around you, and all it contains.
+ - France has more need of me than I have need of France.
+ - In politics nothing is immutable. Events carry within them an invincible power. The unwise destroy themselves in resistance. The skillful accept events, take strong hold of them and direct them.
+ - Passionate people invariably deny their anger, and cowards often boast their ignorance of fear.
+ - The first quality of the commander-in-chief is a cool head to receive a correct impression of things. He should not allow himself to be confused by either good or bad news.
+ - To a father who loves his children victor has no charms. When the heart speaks, glory itself is an illusion.
+ - We are born, we live, we die among supernatural.
+ - The strong are good, only the weak are wicked.
+ - Fashion condemns us to many follies, the greatest is to make oneself its slave.
+ - My dominion ends where that of conscience begins.
+ - A man who has no consideration for the needs of his men ought never to be given command.
+ - Every beggar shall be arrested. But to arrest a beggar merely in order to put him in jail would be barbarous and absurd. He should be arrested for the sole purpose of teaching him how to earn a living by his work.
+ - Lack is more in means, than in principles.
+ - One must learn to forgive and not to hold a hostile, bitter attitude of mind, which offends those about us and prevents us from enjoying ourselves. One must recognize human shortcomings and adjust himself to them rather than to be constantly finding fault with them.
+ - War justifies everything.
+ - The purpose of religion is to keep the poor from killing the rich.
+ - All men of genius, and all those who have gained rank in the republic of letters, are brothers, whatever may be the land of their nativity.
+ - Wherever flowers cannot be reared, there man cannot live.
+ - Ambition never is in a greater hurry that I; it merely keeps pace with circumstances and with my general way of thinking.
+ - Brave deeds are the monuments of brave men.
+ - God has decreed that there be sick and poor in this world, but in the next it will be the other way around.
+ - Wisdom and policy dictate that we must do as destiny demands and keep peace with the irresistible march of events.
+ - There are certain things in war of which the commander alone comprehends the importance. Nothing but his superior firmness and ability can subdue and surmount all difficulties.
+ - All Italians are plunderers.
+ - It should not be believed that a march of three or four days in the wrong direction can be corrected by a countermarch. As a rule, this is to make two mistakes instead of one.
+ - The affairs of war, like the destiny of battles, as well as empires, hang upon a spiders thread.
+ - We often get in quicker by the back door than by the front.
+ - I hope the time is not far off when I shall be able to unite all the wise and educated men of all the countries and establish a uniform regime based on the principles of the Quran which alone are true and which alone can lead men to happiness.
+ - Great men grow tired of contentedness.
+ - We should always go before our enemies with confidence, otherwise our apparent uneasiness inspires them with greater boldness.
+ - The heart of a statesman should be in his head.
+ - It is a mistake, too, to say that the face is the mirror of the soul. The truth is, men are very hard to know, and yet, not to be deceived, we must judge them by their present actions, but for the present only.
+ - A general-in-chief should ask himself several times in the day, What if the enemy were to appear now in my front, or on my right, or my left?
+ - When people cease to complain, they cease to think.
+ - The inevitable end of multiple chiefs is that they fade and disappear for lack of unity.
+ - We live and die in the midst of marvels.
+ - Passions change, politics are immutable.
+ - A man is known by his conduct to his wife, to his family, and to those under him.
+ - Flatterers and men of learning do not accord well with each other.
+ - The Allied Powers having proclaimed that the Emperor Napoleon is the sole obstacle to the re-establishment of peace in Europe, he, faithful to his oath, declares that he is ready to descend from the throne, to quit France, and even to relinquish life, for the good of his country.
+ - Those who failed to oppose me, who readily agreed with me and accepted all my views, were those who did me the most injury.
+ - The transition from the defensive to the offensive is one of the most delicate operations in war.
+ - He who knows how to flatter also knows how to slander.
+ - A King should sacrifice the best affections of his heart for the good of his country; no sacrifice should be above his determination.
+ - A legislator must know how to take advantage of even the defects of those he wants to govern. The art consists in making others work rather than in wearing oneself out.
+
+500 quotes

@@ -1,0 +1,26 @@
+ - Life will teach you, but you have to live long enough to get those lessons.
+ - There’s a shortage of perfect breasts in this world. It would be a pity to damage yours.
+ - When I work, I live in a fantasy world. It’s great. I get to play different characters who inspire me.
+ - I do not envy the headache you will have when you awake. In the meantime, dream of large women.
+ - Im something of a history buff. Its deliberate that a lot of my films have been period pieces.
+ - We are men of action. Lies do not become us.
+ - I’ll explain and I’ll use small words so that you’ll be sure to understand, you warthog faced buffoon.
+ - I take away something from every role. I’m still learning and that’s what life is about.
+ - I like historical pieces. History was my favorite subject in school, it was the only subject I excelled in. I love the idea of history and the idea that we may have the opportunity to learn from our past mistakes.
+ - It’s true in life, as in the movies, that the greatest highs are often followed by the lowest lows.
+ - The visceral experience of seeing a movie in three dimensions, coming at you in the theater, is obviously here to stay, because it is a unique experience. I think that kind of format is only appropriate for some genres, but I’m all for it.
+ - I think that two-dimensional film will always be here to stay because it always has its place, but 3D does too.
+ - I consider myself a student, both in my work and my life, and I’m constantly learning and I’m constantly grateful for that.
+ - I think that’s all you can hope for as an actor when you read a script; that after the first thirty pages it has some meaning to it.
+ - Truly, you have a dizzying intellect.
+ - If you get into the area of judging the character you’re playing you’re getting into a sticky area.
+ - The experience you have making the movie is all you have; when the movie’s finished, that’s for other people. But while you’re doing it, that’s your time on the planet, so you want it to be good.
+ - I think as an actor you’re lucky to have any film take on a life of its own long after it’s left the theater.
+ - Any actor should be grateful if he’s remembered for one movie in their lifetime.
+ - I like to have a good experience. That’s all you have.
+ - I feel like if a film is well-written, then the character’s arc is complete. There really is very little room to expand on that afterwards.
+ - I’ve been doing some writing, which I find very cathartic and fun.
+ - I take away something from every role.
+ - I used to sit in school and dream about getting into films.
+
+24 quotes

@@ -1,0 +1,164 @@
+ - If you can’t do it, don’t do it.
+ - Every step starts with a step.
+ - A problem solved is a problem caused.
+ - Being honest with you, it’s not the ‘great’ wall of China. It’s an all right wall. It’s the ‘All Right Wall of China.’
+ - People who live in a glass house have to answer the door.
+ - I’d rather live in a cave with a view of a palace than live in a palace with a view of a cave.
+ - Pigeons: They’ve got wings, but they walk a lot...
+ - If you live in a glass house, don’t be chucking stuff about.
+ - If you’re worrying about the wrinkles on your bollocks I’d say your life’s pretty good.
+ - Does the brain control you or are you controlling the brain? I don’t know if I’m in charge of mine.
+ - What I mean is, I don’t know what I mean...
+ - Neil Armstrong, that spaceman, he went to the moon but he ain’t been back. It can’t have been that good.
+ - I saw a bee have a heart attack...
+ - You never get an angry man suddenly breaking into a whistle.
+ - A slug is always on its own. It’s a lonely insect.
+ - Knowledge is almost annoying...
+ - Whether it’s a potato or a nut, it’s a foodage!
+ - I don’t know why small chocolates are called fun-sized; I mean, if I called a midget fun-sized, they’d kick off.
+ - We all just want to sit on our ass.
+ - Happiness is like a cake: have too much of it and you get sick of it.
+ - I could eat a knob at night.
+ - When i was younger i remember once i went to bed and i was so happy that i laughed myself to sleep...
+ - We’re gonna get weaker. That’s already happened. They used to say, you know, an apple a day keeps the doctor away. Now they’re saying eat five fruits. That’s evidence. You can’t argue with that.
+ - It’s weird how me and that insect are miles apart in terms of lifestyle, yet we both like a biscuit.
+ - Treat the world like a head.
+ - Stop looking at the walls, look out the window.
+ - There is no need for ants to have the ability to fly.
+ - I never buy a piece of art. I don’t see the point in buying something because I know my eyes will get bored of it eventually.
+ - You can only talk rubbish if you’re aware of knowledge.
+ - My brain’s just full of passwords.
+ - Cat food. It stinks a bit, but if you don’t put up with the smell, the little kitten will die.
+ - If you are living the dream, how do you know if you are asleep or awake?
+ - I know who I am. Bloody hell, I’m getting enough bills for Karl Pilkington so I hope I am him, ’cos if I’m not, I have no idea who I’m paying for.
+ - People say having kids is life changing, well that doesn’t necessarily mean a good thing, does it? I could take one of my legs off. That would change my life.
+ - Apparently you’re not allowed to lick a toad’s back.
+ - Why didn’t evolution make a giraffe good at carpentry so it could build a ladder?
+ - People moan about drugs being tested on animals. I sort of think it depends innit. If the drug’s aspirin and the monkey’s got a headache, is it right?
+ - How would I know which one I was?
+ - They say it all started out with a big bang. But, what I wonder is, was it a big bang or did it just seem big because there wasn’t anything else drown it out at the time?
+ - By 78 you’ve done everything you’re going to do. If you haven’t bungee-jumped by the time you’re 78 you’re not going to do it.
+ - If you sit in a bath of pineapple chunks, it can kill you. That’s well documented.
+ - If you don’t have a plan, you can end up doing some interesting things.
+ - We are always making more and more stuff in the world. You know; big buildings, big planes, big boats and that. Will we ever get to a point where all this is too heavy for the world to handle?
+ - At what point is a wasp ever going to have a chat with a spider?
+ - Fishing: I don’t really like it. I don’t really like the expression on the fish’s face.
+ - I really can’t believe what a state the Pyramids are in. I thought they had flat rendered sides, but when you get up close, you see how they are just giant boulders balanced on top of each other, like a massive game of Jenga that has got out of hand.
+ - If you’re not happy looking a knob in the face, there’s something wrong.
+ - Your dreams should never be better than your real life.
+ - I’m just sayin’, I don’t like fun.
+ - Now sometimes I don’t know if I feel well. Because I’ve been in my body for years.
+ - Avocados, it’s a food that ain’t worth injuring yourself for. If it’s a hassle to get into, leave it to the experts.
+ - I’ve never won many awards, I didn’t get certificates for swimming or anything.
+ - Stay green, stay in the woods, and stay safe.
+ - There’s fish in here that I’ve read about that are so see-through that they’re invisible. So I don’t even think they know they exist.
+ - If Dracula can’t see his reflection, how come his parting’s always neat?
+ - They do it in Thai restaurants in London. You ask for a drink, and it comes in a glass with loads of seaweed and pebbles in it like a scene from Finding Nemo.
+ - Heaven? Floating about with everyone you ever knew for eternity? Me family does me ’ed in after one day at xmas, I’d rather be mush.
+ - I’m really happy. I just don’t choose to show it.
+ - I always have a problem liking things I’m told I should like.
+ - I was still using my eyes even though I had them shut.
+ - We came from the sea originally, now we’re going back in it. Don’t go in it, unless you’re in a boat.
+ - I’d say the best is when I was in Africa, I saw a hippo in a house. Someone had a pet hippo. And they’re meant to be one of the most dangerous animals on the planet, and they had one that was sort of just wandering in and out of their house, just sort of roaming about.
+ - I think it’s clever how Rome have kept a load of old stuff. There’s no overheads, yet people are going over there to see it.
+ - You don’t get anything done by planning.
+ - So you’re sayin that it’s easy to send somat up to space, but you don’t believe there’s a little banana machine?
+ - If you’d have told me five years ago that I’d have done all this – two books, some television and everything – I’d panic, I’d be scared.
+ - I found that being with happy positive people annoys me.
+ - That’s the problem with having a bald head. It exaggerates the shape.
+ - I came face-to-face with a gorilla which was quite good, but it was a 10-hour trek in bad weather, up hills, covered in mud, with mosquitoes everywhere and when we got there the gorilla’s just sat there doing nowt.
+ - Chinese people age overnight.
+ - I don’t watch much telly, the telly hardly goes on, but the things I do watch are sort of nature programs, and something about the oceans and the amount of weird fish that’s in there.
+ - What’s that plate that’s above a saucer but below a plate?
+ - Yesterday, I did some painting then went out to buy an onion and came home and watched ‘University Challenge.’ The onion was probably the highlight.
+ - I just sort of go along and say what I think -and that’s all you can do in life, really.
+ - The Tudors, I don’t even know if I had a family back then.
+ - Who’d have thought the Frisbee would have caught on?
+ - The Web is the new book though, innit?
+ - Sometimes you can know too much. A lot of brainy people like Stephen Fry are quite depressive.
+ - I don’t think I’d be a very good parent. I’d be too honest.
+ - If an animal is named after what it eats, how interesting is it?
+ - And we’ve got a toaster and everything. So there is no reason for the wedding.
+ - I’ve learnt that, even though I’ve travelled about, I haven’t changed that much.
+ - I don’t think I’ve ever felt this lost, even in Wales.
+ - What happens if someone else has my eyes, and they start looking at stuff I don’t like? I don’t like the idea of that.
+ - If you go away with, you know, a girlfriend, wife, whatever, you have an argument on holiday because you’re not used to spending that much time with people.
+ - We’ll all die out eventually. Humans will be gone. And all I’m saying is, when people worry about polar bears disappearing or whatever, it’s like, ‘Well that’s life, things will come and go, we’ll find new species.’
+ - I’m not invited to any exciting parties and my life hasn’t really changed.
+ - I was impressed by the Taj Mahal. A good bit of work, well looked after, worth paying money to see.
+ - I’ve heard that fact, that is you eat more than six bananas it will kill you. I saw a bowl with seven bananas in it and I thought, that’s dangerous.
+ - With identical twins, you always get a little snidey one.
+ - Me in a one-man tent crouching over carrier bag. It’s not just the lowest point of the trip. It’s the lowest point ever. In 38 years.
+ - If you had five photos of anuses, I could not point mine out.
+ - Where you are is what you eat. When I’m in London I’ll have beans on toast for lunch. On holiday – what? Tapas? Go on then I’ll have a bit. You eat whatevers in that area.
+ - The poorer people and criminals of Mexico who are not very religious but not quite atheists, either, worship Saint Death.
+ - I don’t understand why people take pictures of mimes. Everyone looks like a mime in a picture.
+ - It’s no good operating on eyes if your eyes are asleep.
+ - It’s not a joke: I really do like being at home.
+ - All fame is is having people you don’t know coming up to you and saying, ‘Hello.’ I’m always polite and people are always nice, but it’s weird.
+ - It’s easier to have a go at something again when you failed at it as you’ve got nowt to lose.
+ - The other day I was thinking – because I get a lot of headaches – I was wondering whether the head should be where it is. Because, at the end of the day, it’s probably the heaviest part of your body, right? And yet it’s at the top as opposed to, I don’t, dangling at the bottom somewhere.
+ - Comedy’s really subjective, you know.
+ - I sometimes wonder how we’re short of cod. There’s gonna be a load deep down that are hiding. But it’s a good reason to put the price up, and it means a load of people will have haddock. They should tell people they’re running out of all sorts. Make ’em panic a bit.
+ - I think people would live a bit longer if they didn’t know how old they were. Age puts restrictions on things.
+ - This is the problem with over-crowded inner-city schools there aren’t enough parts for everyone in the nativity story.
+ - I’m a bit rubbish at knowing when something is good. But if it goes out and I can say, “I wasn’t as bad as I thought I would be”, then I’ll be happy. Until then, I’ll be thinking, “I shouldn’t be here!”
+ - It’s interesting to see that people had so much clutter even thousands of years ago. The only way to get rid of it all was to bury it, and then some archaeologist went and dug it all up.
+ - There was always something. It’s like with this one, there’s always something that’s mad that I look back on it and go, that’s pretty amazing to say that I’ve done that or been there.
+ - The Chichen Itza is just a pyramid with four sides, with stairs on each side leading to some kind of bungalow on the top.
+ - If you don’t sleep you get run down. Sloths never get a flu, cos its good innit thats when your body’s replemishing.
+ - Making the ‘An Idiot Abroad’ series, I was really dreading going to India; I thought I’d hate it. It was a nightmare, and I was really ill – just like everyone says.
+ - People always tell me I’m going to regret not having kids. But what if I have one and then I regret having it? Has anyone thought of that option?
+ - I know when I was a kid I ate a beetle. I ate a beetle because I thought it was licorice.
+ - The Elephant Man would never have gotten up and gone, ‘Oh, God. Look at me hair today.’
+ - Be the ugly one, look at the nice one.
+ - The reason I did the book about holidays is that you’re a different person on holiday. You’re sleeping somewhere unfamiliar, knocking about with people you’ve never met and for 10 days you’re someone else. You’re out of your comfortable zone.
+ - I don’t really like surprises. Not big ones anyway. Just having a pack of Revels holds enough of a surprise for me.
+ - The great pyramid is overrated. It’s a bad design. The lounge is going to be huge, but the bedroom is going to be tiny.
+ - I find that if you just talk, your mouth comes up with stuff.
+ - As long as you’re remembering baby Jesus, does it matter when you’re remembering him. That’s what I’m saying about Christmas, I might not be in the mood for it December 25th.
+ - I’ve got loads of nieces and nephews.
+ - There’s a lot of idiots in the world, so live with it.
+ - It is hard eating a little kangaroo knob.
+ - I always have a problem liking things that I’m told I should like. This has been the problem with most of the Wonders I have seen so far. The fact that this one is called the ‘Great’ Wall of China annoys me. I’ll decide if it’s great or not. It might end up being the ‘All Right Wall of China’ to me.
+ - Parrots have gone a bit quiet since pirates have gone.
+ - If Camels are the ship of the dessert, this one is the Titanic.
+ - From someone whose dad buys him a spade for Christmas, I thought you’d be grateful!
+ - When you’ve been on a programme called ‘An Idiot Abroad’ job offers aren’t exactly flying in.
+ - A dog has got human eyes.
+ - Me mum used to always have the radio on – even now she has it on in every room. Me girlfriend sort of blames that reason for me not doing that well at school – constant noise, really.
+ - You don’t have to do it straight away, but just do it before it gets really bad.
+ - I am into nature and seeing whales. I went whale-watching, and I was really looking forward to that, but when you see it on TV and you see other programs do it, you’re seeing close-ups of these massive creatures, and the music that’s added gives you a certain feeling.
+ - Everyone is living for everyone else now. They’re doing stuff so they can tell other people about it. I don’t get all that social media stuff, I’ve always got other things I want to do – odd jobs around the house. No one wants to hear about that.
+ - I don’t want to go about offending people, that’s not my plan.
+ - I don’t know what the future is, but you just do it whilst it’s there, don’t you?
+ - To me, a cat is an easy pet, they don’t need any spoiling or looking after.
+ - I don’t know any Londoners ’cos I’m from Manchester.
+ - The only reason you don’t go on holiday, is ’cause you have to spend money.
+ - I’m not a proper traveler. I don’t like to be challenged or have too much of a change and prefer a week away just to relax.
+ - It’s not easy keeping a diary. You have to be pretty committed.
+ - Could the world fall?
+ - A single vision is more perfect than a committee vision because with everyone having their say, it becomes compromised.
+ - You know, when you’re a producer, you’re a bit of a lackey. You’re just making cups of tea and making sure they’ve got newspaper, stuff like that.
+ - I mean, I don’t really go out at night in terms of noisy, busy places; I prefer more of a quiet corner somewhere.
+ - We’ve invented most of the stuff that we need and now we’re just messing about.
+ - But I’m not an idiot. At the end of the day, I’ve learned a lot.
+ - She gave me the jabs and said I was covered for every worst-case scenario, including being bitten by a dirty chimp. I told her this is why we have over-population problems. Why are idiots who annoy dirty chimps being protected?
+ - The problem I have with all this religion stuff is that I can’t relate to it. I think most people got into ’cos it gave them something to do on a Sunday, but since all the shops are now open it isn’t required as much.
+ - Why is it alright to be going around, going mental with a gun, shooting all the monkeys and killing them? Because one day we’re going to run out.
+ - I’m more open to give things a go, but what I’m not good at yet is holding back. If something is daft or rubbish, I just go, I can’t be doing it.
+ - People eat duck and you think, well, we’ve got loads of chickens, leave the ducks alone!
+ - We’re just a weed in the universe.
+ - Normally you can’t hear you’re own voice because you’re talking over it.
+ - Classes teaching you how to breathe. I’m 32, I think I’ve got the hang of it.
+ - People say if bees die out, the world would end, apparently. Now, I don’t know if that’s true, if that’s some bee enthusiast who managed to write a good document, and people believe this.
+ - I’ve never thought about it before, but I suppose bad people might need someone to pray to, too.
+ - There is someone for everyone, i’nt there. That’s always my thing. And it’s reassuring I think.
+ - Blind people can stay up longer than someone with eyes.
+ - For me, a good holiday is about value for money rather than things to see.
+ - I’m not that lazy, but I don’t need that much money. I lead a fairly simple life.
+ - It’s like there’s some unwritten rule that if you’re mates, you can say what you want to each other, and you don’t really get that annoyed about it.
+ - It’s 2006, why are they still using the index finger?
+ - I’ve never understood the ‘things to do before you die’ idea. If I was ill, I’d be in no mood to have a swim with a dolphin.
+
+162 quotes

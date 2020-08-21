@@ -1,0 +1,39 @@
+ - Full circle. A new terror born in death, a new superstition entering the unassailable fortress of forever. I am legend.
+ - That which you believe becomes your world.
+ - How long did it take for a past to die?
+ - After a while, though, even the deepest sorrow faltered, even the most penetrating despair lost its scalpel edge.
+ - Heaven would never be heaven without you.
+ - Let this hell be our heaven.
+ - In a world of monotonous horror there could be no salvation in wild dreaming.
+ - No longer will you be a weird Robinson Crusoe, imprisoned on an island of night surrounded by oceans of death.
+ - How quickly one accepts the incredible if only one sees it enough.
+ - He stood there for a moment looking around the silent room, shaking his head slowly. All these books, he thought, the residue of a planet’s intellect, the scrapings of futile minds, the leftovers, the potpourri of artifacts that had no power to save men from perishing.
+ - When you sleep, your dream world is as real to you as life, isn’t it?
+ - Let the jagged edge of sobriety be now dulled.
+ - Normalcy was a majority concept, the standard of many and not the standard of just one man.
+ - It is my conviction that basic Reality is not all that perplexing. What seems difficult to assimilate are the manifold details of Reality, not its fundamental elements.
+ - Really now, search your soul, lovie-is the vampire so bad? All he does is drink blood.
+ - All of us have a path to follow and the path begins on earth.
+ - Memory was such a worthless thing, really. Nothing it dealt with was attainable. It was concerned with phantom acts and feelings, with all that was uncapturable except in thought. It was without satisfaction.
+ - A man could get used to anything if he had to.
+ - There we will, I pray, remain and learn and grow until the time when we will rise together to the ultimate heights, changing in appearance but never in devotion, sharing the transcendent glory of our love through all eternity.
+ - Now when I die, I shall only be dead.
+ - What would a Mohammedan vampire do if faced with a cross?
+ - To me there is nothing that goes against nature. If it seems incomprehensible, its only because we havent been able to understand it yet.
+ - Everyone has something to hide. And if they couldn’t hide it the world would be in a lot worse mess than it is.
+ - Our world is in profound danger. Mankind must establish a set of positive values with which to secure its own survival.
+ - The vampire was real. It was only that his true story had never been told.
+ - What condemnation could possibly be more harsh than one’s own, when self-pretense is no longer possible?
+ - Failures plagued me. Things I had omitted or ignored, neglected. What I should have given and hadn’t. I felt the biting pang of every unfulfillment.
+ - I could never write about strange kingdoms. I could never do Harry Potter or anything like that. Even when I did science-fiction, I didnt write about foreign planets and distant futures. I certainly never did fantasies about trolls living under bridges.
+ - I hope people are reading my work in the future. I hope I have done more than frightened a couple of generations. I hope I’ve inspired a few people one way or another.
+ - I felt puny and absurd, a ludicrous midget. Easy enough to talk of soul and spirit and essential worth, but not when you’re three feet tall.
+ - In a typical desperation for quick answers, easily understood, people had turned to primitive worship as the solution. With less than success. Not only had they died as quickly as the rest of the people, but they had died with terror in their hearts, with a mortal dread flowing in their very veins.
+ - I hate it when something I’ve had published “inspires” some nut to imitate what I’ve written, or some teacher gets fired for having her students read one of my stories or novels.
+ - But it was hard to keep his hands still. He could almost feel them twitching emphatically with his strong desire to reach out and stroke the dog’s head. He had such a terrible yearning to love something again, and the dog was such a beautiful ugly dog.
+ - That’s what was wrong with drinking too much. You became immune to drunken delights. There was no solace in liquor. Before you got happy, you collapsed.
+ - And, before science had caught up with the legend, the legend had swallowed science and everything.
+ - As her analyst had told her: the deeper buried the distress, the further into the body it went. The digestive system was about as far as it could go to hide.
+ - I had to write about realistic circumstances. Thats the way my brain works. And I think that gave me a sort of place in the field.
+
+37 quotes

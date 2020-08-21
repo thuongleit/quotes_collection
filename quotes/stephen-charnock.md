@@ -1,0 +1,39 @@
+ - When we believe that we should be satisfied rather than God glorified in our worship, then we put God below ourselves as though He had been made for us rather than that we had been made for Him.
+ - Our ignorance of God is too great, because our estimations of God are too little.
+ - God knows all that is done in the most secret caverns of the heart. No place is deprived of his presence.
+ - Since nothing but God is eternal, nothing but God is worth the loving.
+ - Power is God’s hand or arm, omniscience is God’s eye, mercy is God’s delight, eternity is God’s duration, but holiness is God’s beauty!
+ - Without the heart it is no worship. It is a stage play. It is an acting of a part without being that person, really. It is playing the hypocrite.
+ - Pride is self contending with God for preeminence.
+ - Self is the great antichrist and anti-God in the world, that sets up itself above all else.
+ - We often learn more of God under the rod that strikes us than under the staff that comforts us.
+ - How worthy it is to remember former benefits when we come to beg for new.
+ - It is less injury to Him to deny His being, than to deny the purity of it; the one makes Him no God, the other a deformed, unlovely, and a detestable God. He that saith God is not holy speaks much worse that he that saith there is no God at all.
+ - All the prayers in the Scripture you will find to be reasoning with God, not a multitude of words heaped together.
+ - We may be truly said to worship God, though we lack perfection; but we cannot be said to worship Him if we lack sincerity.
+ - Had it been published by a voice from heaven, that twelve poor men, taken out of boats and creeks, without any help of learning, should conquer the world to the cross, it might have been thought an illusion against all reason of men; yet we know it was undertaken and accomplished by them.
+ - Let us not satisfy ourselves with a knowledge of God in the mass; a glance upon a picture never directs you to the discerning the worth and art of it.
+ - Assurance is the fruit that grows out of the root of faith.
+ - It is the black work of an ungodly man or an atheist, that God is not in all his thoughts. What comfort can be had in the being of God without thinking of him with reverence and delight? A God forgotten is as good as no God to us.
+ - A man may be theologically knowing and spiritually ignorant.
+ - God doth not govern the world only by his will as an absolute monarch, but by his wisdom and goodness as a tender father. It is not his greatest pleasure to show his sovereign power, or his inconceivable wisdom, but his immense goodness, to which he makes the other attributes subservient.
+ - Accustom yourself to serious meditation every morning. Fresh airing our souls in heaven will engender in us a purer spirit and nobler thoughts. A morning seasoning will secure us for all the day.
+ - What a curious workmanship is that of the eye, which is in the body, as the sun in the world; set in the head as in a watch-tower, having the softest nerves for receiving the greater multitude of spirits necessary for the act of vision!
+ - No man is an unbeliever, but because he will be so; and every man is not an unbeliever, because the grace of God conquers some, changes their wills, and binds them to Christ.
+ - Regeneration is a spiritual change; conversion is a spiritual motion.
+ - Without the heart it’s not worship, it’s a stage play.
+ - In natures, we see God, as it were, like the sun in a picture; in the law, as the sun in a cloud; in Christ we see Him in His beams; He being ’the brightness of His glory, and the exact image of His person.
+ - This little member can behold the earth, and in a moment view things as high as heaven.
+ - Unbelief was the first sin, and pride was the first-born of it.
+ - God often lays the sum of His amazing providences in very dismal afflictions; as the limner first puts on the dusky colors, on which he intends to draw the portraiture of some illustrious beauty.
+ - Adoption gives us the privilege of sons, regeneration the nature of sons.
+ - Paul was so much taken with Christ, that nothing sweeter than Jesus could drop from his lips and pen.
+ - Works make not the heart good, but a good heart makes the works good.
+ - Since therefore all things are ordered in subserviency to the good of man, they are so ordered by Him that made both man and them.
+ - A proud faith is as much a contradiction as a humble devil.
+ - How comfortable it is to have One, day and night, before the throne to control the charge of our enemy, and the despondencies of our souls.
+ - Sin endeavors to subject the blessed God to the humor and lust of every person in the world.
+ - All worship is shot wrong that is not directed to, and conducted by, the thoughts of the power of God, whose assistance we need.
+ - The little time that remains between this moment and our death, should quicken our diligence to inherit the endless and unchangeable eternity of God.
+
+37 quotes

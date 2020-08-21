@@ -1,0 +1,96 @@
+ - I learned long ago to focus on things you can control and don’t even pay attention to things you don’t.
+ - Take a chance. Take a risk. Find that passion and rekindle it. Fall in love all over again. It’s really worth it.
+ - I enjoy storytelling. I like to write it, I like to direct it, I like to act in it, I like to produce it. I like to be around storytellers. That’s what excites me.
+ - I think it’s not a question of why, more a question of why not.
+ - I don’t have spare time.
+ - If you’re a person who complains about everything all the time, then you’re just the boy who cried ‘wolf.’ But if you do it on occasion and about the right reasons, then people listen.
+ - Love is not as important as good health. You cannot be in love if you’re not healthy. You can’t appreciate it.
+ - What’s great about comedy, obviously, is that you set up a situation that people assume one thing and then you break the assumption. That’s basically the backbone to comedy. You set up a situation, let people make an assumption, and then you break the assumption.
+ - That’s the reason you want to become a star as an actor, to be able to have more control of your destiny.
+ - The imagination is part of the arsenal that actors draw from.
+ - It’s mind-altering when you slip into someone else’s shoes. That’s psychedelic, man.
+ - My dear friend Aaron Paul, I love you so much.
+ - There’s boldness in being assertive; there’s strength and confidence.
+ - I want to be able to experience everything. I want to experience being a husband, experience being a father, experience, maybe, hopefully, someday being a grandfather, and all those things. I want that experience. When I die, I want to be exhausted.
+ - You get addicted to emotions. Our endorphins kick in and it’s like a high. On the low end you might love roller coasters. On the high end you might be a bank robber or something.
+ - I think naturally, if you’re an actor, there’s a high level of assertiveness that you need to have to survive this business. There’s boldness in being assertive, and there’s strength and confidence.
+ - I have some anger issues.
+ - It doesn’t matter if you’re good. If you’re just good, you won’t succeed. If you have patience and persistence and talent and that’s it, you will not have a successful career as an actor. The elusive thing you need is luck.
+ - I’ve done more crap than I care to remember. I really have. ‘Airwolf.’ ‘Murder, She Wrote.’ ‘Amazon Women on the Moon.’ But you learn from all these bad shows. What you don’t want to do and what you don’t want to be involved with.
+ - I’m just a big boy, I’m still just playing cowboys and Indians and astronaut and baseball player and all that stuff that I used to play as a kid.
+ - Ever since I stopped worrying about finances, I’ve made more money than I ever thought I’d make in my life.
+ - My passion is becoming involved in good work, whether that means as an actor or writer or director or producer or all – that is not as important to me.
+ - I think if you believe in past lives, I must have been an extremely deprived being. I must have been mistreated, beaten, and forced into indentured servitude because this life has just been phenomenal.
+ - I’m not crazy about being out of control, and I get emotional when things are unclean. When things are out of order. When things are messy. Because I lived in a mess as a child.
+ - Mixing humor and politics is something that works.
+ - If something is well-written, it has a chance to be good and if it’s not well-written, it will not be good. It could even become popular, but it won’t be good.
+ - What used to frustrate me going into an audition was that some inexperienced, lesser casting people would think that actors are acting only when they’re speaking.
+ - When everyone has high expectation for you, it can attack your insecurities.
+ - If you like vanilla, you’re not going to like ‘Breaking Bad’ – you need to like a specific flavor that is unusual, that is different, that takes risks.
+ - Every experience feeds an actor, and I’ve learned that depression is all around us.
+ - I’m a big fan of ‘Mad Men.’
+ - There’s so many things that can go wrong in the execution of a project like a television show or a movie, so many little elements, any number of things, all the way to marketing – like they could market it poorly and nobody finds it and down it goes.
+ - It used to be that people would watch TV shows because they knew the characters would stay the same. Whether it’s Archie Bunker or it’s Thomas Magnum you watch it because it’s like, ‘I’m comfortable, this is the same guy.’
+ - Luck is a component that a lot of people in the arts sometimes fail to recognise: that you can have talent, perseverance, patience, but without luck you will not have a successful career.
+ - To me, character in a person is judged by the decisions that are made under pressure.
+ - There’s this notion that in order to draw attention and to be considered for roles I want to be considered for, you need a certain amount of notoriety.
+ - When you play a non-fiction character it is more responsibility than when you are playing a fiction character because that person lived, and you do want to pay respect to that.
+ - With craziness, you can’t predict it. There’s very little defense you can have on craziness.
+ - It’s in our nature to be intrigued. We’re putting the bread crumb not in your mouth but close to your mouth. You reach a little bit, and that’s why it works.
+ - Actors are inherently self-centered.
+ - I’m telling you, until I shaved my head, I never realized how much heat is lost through the top of the head. I walk out in winter and it feels like I have an ice pack on my head. Unbelievable.
+ - My personal feeling, if I can interject a political note, is that I don’t think it is right that basic health care is a privilege. It shouldn’t be. It should be a right of all human beings. And certainly in the richest country in the world.
+ - It’s funny, I do try to maintain health. I started doing Bikram yoga which is that hothouse yoga, the 105 degrees yoga for 90 minutes. It’s great, you purge out all the sweat and you’re drinking water.
+ - Viewers can determine what they want to watch and what they don’t want to watch.
+ - If you have a level of expectation in your life that you have to be a quote-unquote star, whatever that means, you might be setting yourself up for failure.
+ - I don’t really relax. When I sleep, I relax.
+ - Money has never been my primary goal.
+ - I enjoy doing comedy for the fact that you go to work and you laugh. That’s a good combination.
+ - Every time you start a project, you’re hopeful that the critics receive it warmly.
+ - Love between two adults is always conditional. You can fall out of love because you are able to fall in love.
+ - When you’re an actor in grade school, high school, college, whatever, you start to realize what you’re really good at, what you’re kinda good at, what you’re okay at, and you start to compartmentalize. But if you know yourself and what you’re capable of, it’s just a matter of opportunity.
+ - Actors, writers, directors – that triumvirate of creativity – we have to rely and trust each other to be able to get to the final product.
+ - When actors first come up, you’re auditioning for everything – you’re trying to sniff it out like a pig with a truffle and you would do anything!
+ - We’ve been trained since kindergarten: Be nice, be kind, share, put on a smile. So we’re conditioned to squash our natural selfish instincts, and that’s the right thing for society.
+ - Pot always just made me sleepy.
+ - When I was a kid there were a very select few channels – programmes had to have more of a large appeal and they just didn’t offer very much. Now you have a situation where the television world has expanded and there’s hundreds of channels.
+ - It’s like a dance, to choreograph a fight is like a dance. It’s very specific. You have to carefully plan it out. Because if someone gets hurt, then we didn’t do our job, someone screwed up. The fight choreographers and the actors involved, we messed up somewhere.
+ - I have a bad habit of inserting my ideas into shots and things. I don’t know, I don’t hold back on suggesting things, but I don’t have any connection to what actually happens, so I’ll make a suggestion on something and then just let it go.
+ - Gay and lesbian couples should have the right to experience the joys of marriage and family.
+ - If you have a screaming angry director, everyone else will be panicked as well.
+ - I can tell you for sure: people who are at their peak right now will not sustain that. You can’t. It’s against the law of nature.
+ - In order to be an actor you really have to be one of those types of people who are risk-takers and have what is considered an actor’s arrogance, which is not to say an arrogance in your personal life. But you have to be the type of person who wants the ball with seconds left in the game.
+ - I’m pretty handy! I do a lot of things around the house, and I actually enjoy it.
+ - I have a lovely family who supports me and it’s great.
+ - I intend to do more directing TV.
+ - There are far more talented people doing voice work than I.
+ - As a director you come in and tell the actors how good they are.
+ - I think, and I mean this sincerely, I was raised humbly. We were a lower middle income family and a household that was scrimping by at times. We were watching the dollar, stretching the dollar, and coupons. It was all those things.
+ - What’s interesting is a man with no facial hair is less intimidating than a man with facial hair, and a man who is bald is more intimidating than a man with hair.
+ - I look like everyone.
+ - Given the right set of circumstances any one of us could become dangerous – so why not show that in our programmes?
+ - People would love to be rich, but they’re looking for the easy way. Who wouldn’t want to win the lottery? Just to score.
+ - Part of an actor’s job is to draw up a back story.
+ - I’ve got a whole mantel just waiting for those awards to come, a whole big mantel. There’s just so much available space. I’ve got the light fixtures hanging from the ceiling, all ready to shine on them. I dust it off every day.
+ - Something’s happened in our society which I don’t think is beneficial, and that’s that you see the public being fed box-office news. Newscasts now, every local station – I’ve been traveling around the country a lot, and you see the local news, and they give box-office reports.
+ - I love acting because it’s empowering. It empowers me.
+ - Any performer would love to have the opportunity to be able to express themselves in many different areas. If you feel confident in those areas, you would hope to have the opportunity to do them, whether it’s drama, comedy, musical, or whatever your interests are.
+ - This self-congratulatory notion Americans have that their country is Number One is borne of ignorance and bad manners.
+ - What’s great about well-written material is, if you can shock with justifiable actions, that’s the best.
+ - My goal has always been to be a working actor.
+ - At my age, I don’t think anyone is untouched by cancer.
+ - The only thing that we as actors really can control is to be able to say ‘yes’ or ‘no’ to the material.
+ - Bad for the sake of bad is boring to me and not believable.
+ - It’s up to the actor to make sure they don’t get typecast.
+ - Hollywood has known this for quite a while: Cable is the place to go because they truly have a supportive network and they want to do things that cannot be seen on broadcast. That stimulates the writer-producer. Cable is king.
+ - The TV business is like the produce section of the market. Today everything is fresh and glistening and firm. And tomorrow, when they find a bruise on you, they toss you out.
+ - Any kind of civil rights oppression is wrong.
+ - I admit, I do a lot of projects, but it’s because I’m in a position now where I’m reading a lot more scripts and plays and things, and I’m really listening to offers and trying to think what I want to do at any given time.
+ - I have talked to stunt drivers all my life, 32 years of talking to stunt drivers. There’s a craziness to them.
+ - I think the best-written films or television series have a measure of the opposite of what they are.
+ - Being a day player, period, is one of the hardest things you can do as an actor.
+ - Actors basically are the type of person that with three seconds left, we want the ball. Give us the shot to make it or miss it. We’ll take the lumps if we miss it, but we want the chance to get the glory.
+ - You need to tell the truth to the audience, or they will throw a brick through the TV. They’ll turn you off.
+ - I appreciate my role as an actor much more after I direct because it’s just easier.
+
+94 quotes

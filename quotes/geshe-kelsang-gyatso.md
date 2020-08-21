@@ -1,0 +1,62 @@
+ - Without inner peace, outer peace is impossible.
+ - Patience is a mind that is able to accept fully and happily, whatever occurs. It is much more than just gritting our teeth and putting up with things. Being patient means to welcome wholeheartedly whatever arises, having given up the idea that things should be other than what they are.
+ - All the happiness there is in the world arises from wishing others to be happy.
+ - We all wish for world peace, but world peace will never be achieved unless we first establish peace within our own minds.
+ - When the turbulence of distracting thoughts subside and our mind becomes still, a deep happiness and contentment naturally arises from within.
+ - Love is the real nuclear bomb that destroys all our enemies, because when we love all living beings, we have no enemies.
+ - If we transform our ordinary mind into love and compassion we will naturally act in a positive way.
+ - Without improving our mind there is no way to solve our human problems.
+ - There is no situation so bad that it cannot be accepted patiently, with an open, accommodating, and peaceful heart.
+ - In reality, our mind is the creator of all the things we experience.
+ - When we learn to accept difficult circumstances patiently, the real problem disappears.
+ - Only by creating peace within our own mind and helping others to do the same can we hope to achieve peace in this world.
+ - One of the most common ways of not acknowledging our faults is to blame others.
+ - We are all interconnected in a web of kindness from which it is impossible to separate ourself.
+ - We need to keep a constant watch over our mind and learn to distinguish between the beneficial and harmful thoughts that are arising moment by moment. Those who are able to do this are truly wise.
+ - Learning to cherish others is the best solution to our daily problems, and it is the source of all our future happiness and good fortune.
+ - Developing compassion and wisdom and helping those in need is the true meaning of life.
+ - The more we control our mind, the more our inner peace increases and the happier we become.
+ - The solution to all the problems of daily life is to cherish others.
+ - Happiness and suffering are states of mind, and so their main causes cannot be found outside the mind.
+ - Since inner peace is the source of all happiness, we can see how important meditation is.
+ - Pure happiness can only be attained through developing our mind.
+ - I have not met one living being that has not been the mother of all the rest.
+ - Enlightenment is the inner light of wisdom that is permanently free from all mistaken appearance, and whose function is to bestow mental peace upon each and every living being every day.
+ - Patience is a strength, not a weakness; and if by practicing patience we stop retaliating to harm and criticism, people will gradually come to understand that our real nature is very special.
+ - All objects whether pleasant, unpleasant or neutral, are mere appearances to the mind just like things experienced in a dream.
+ - When we understand clearly that inner peace is the real source of happiness, and how, through spiritual practice, we can experience progressively deeper levels of inner peace, we will develop tremendous enthusiasm to practice.
+ - There is no greater method for experiencing peace of mind and happiness than to understand and meditate on Emptiness.
+ - Whenever we strive to make progress in our meditations, contemplations and so forth we are practicing effort.
+ - Practicing Dharma is the supreme method for improving the quality of our human life.
+ - Whenever we see anyone in a high or low position, male or female, they differ only in appearance, dress, behavior, and status. In essence they are all equal – they all experience problems in their lives.
+ - Our mental attitude transforms a situation into either a problem or an opportunity.
+ - The cause of happiness and the solution to our problems do not lie in knowledge of material things. Happiness and suffering are states of mind, and so their main causes cannot be found outside the mind. If we want to be truly happy and free from suffering, we must learn how to control our mind.
+ - Right now we have obtained a human rebirth and have the opportunity to attain enlightenment through Dharma practice, so if we waste this precious opportunity in meaningless activities there is no greater loss and no greater foolishness.
+ - The moment we let go of our obsessive concern for our own welfare, our mind naturally relaxes and becomes lighter.
+ - When we look at external things, we can usually distinguish those that are useful and valuable from those that are not. We must learn to look at our mind in the same way.
+ - By meditating on affectionate love and wishing love for just one moment we accumulate greater merit than we would by giving food three times every day to all those who are hungry in the world.
+ - Happiness is a state of mind, so the real source of happiness must lie within the mind, not in external conditions.
+ - If everyone practiced cherishing others, many of the major problems of the world would be solved in a few years.
+ - Today we can see many different forms of Buddhism, such as Zen and Theravada Buddhism. All these different aspects are practices of Buddha’s teachings, and all are equally precious; they are just different presentations.
+ - Buddha’s teachings are scientific methods to solve the problems of all living beings permanently.
+ - Painful things do not come to us from outside, but arise from within our own mind. Circumstances or other people have no power to make us feel bad; the most they can do is trigger the potentials for painful feelings that already exist within our own mind.
+ - Faith is like pure eyes that enable us to see a pure and perfect world beyond the suffering world of samsara.
+ - We do not need to become unhappy just because things don’t go our way.
+ - Whenever anyone, Buddhist or not, sees a Temple or an image of Buddha they receive blessings.
+ - It is through our anger and hatred that we transform people into enemies.
+ - If everyone sincerely practices the path of compassion and wisdom, all their problems will be solved. I guarantee this.
+ - The path to enlightenment is really very simple – all we need to do is stop cherishing ourself and learn to cherish others. All other spiritual realisations will naturally follow from this.
+ - When a fully qualified Mahayana disciple relies completely upon a fully qualified Mahayana Spiritual Guide the attainment of enlightenment is easy.
+ - Everything we now enjoy has been provided through the kindness of other beings, past or present.
+ - Our mind is like a field, and performing actions is like sowing seeds in that field.
+ - The more we want certain situations, the more we find ourself stuck in situations we do not want.
+ - Whenever we practise meditation, whether or not our meditation is clear, we are performing a virtuous mental action that is a cause of our future happiness and peace of mind.
+ - A Temple is one of the best ways of benefiting other living beings – it is the best form of public service.
+ - Listening is a lamp that dispels the darkness of ignorance.
+ - Compassion is a Shepherd, Always tending his herd.
+ - We should realize that our deadliest enemies are anger and other delusions. Since these delusions are deeply ingrained mental habits, working to overcome them is not always easy.
+ - We need modern ideas, but we also need ancient wisdom. If we deny ancient wisdom we are making a big mistake.
+ - Love is the great protector, protecting us from anger and jealousy.
+ - We should understand that our problems do not exist outside of ourself, but are part of our mind that experiences unpleasant feelings.
+
+60 quotes

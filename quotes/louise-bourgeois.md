@@ -1,0 +1,49 @@
+ - I have been to hell and back, and let me tell you, it was wonderful.
+ - I am not what I am, I am what I do with my hands...
+ - Artists are born not made. There’s nothing you can do for them.
+ - I came from a family of repairers. The spider is a repairer. If you bash into the web of a spider, she doesn’t get mad. She weaves and repairs it.
+ - Horizontality is a desire to give up, to sleep. Verticality is an attempt to escape. Hanging and floating are states of ambivalence.
+ - Art is a way of recognizing oneself...
+ - Art is a guarantee of sanity.
+ - Tell your own story, and you will be interesting.
+ - It is not so much where my motivation comes from but rather how it manages to survive.
+ - I found in rules of mathematics a peace and a trust that I could not place in human beings. This sublimation was total and remained total.
+ - To be an artist, you need to exist in a world of silence.
+ - In my sculpture, it’s not an image I am seeking, it’s not an idea. My goal is to re-live a past emotion. My art is an exorcism, and beauty is something I never talk about.
+ - It is not a torment to be an artist. It is a privilege.
+ - When I was growing up, all the women in my house were using needles. I’ve always had a fascination with the needle, the magic power of the needle. The needle is used to repair damage. It’s a claim to forgiveness. It is never aggressive, it’s not a pin.
+ - I like Francis Bacon best, because Francis Bacon has terrific problems, and he knows that he is not going to solve them, but he knows also that he can escape from day to day and stay alive, and he does that because his work gives him a kick.
+ - A work of art doesn’t have to be explained. If you do not have any feeling about this, I cannot explain it to you. If this doesn’t touch you, I have failed.
+ - You must put the essence of what you want to say into a painting. The rest is arbitrary. Chosen with discernment, but chosen, and choice involves elimination.
+ - What modern art means is that you have to keep finding new ways to express yourself, to express the problems, that there are no settled ways, no fixed approach. This is a painful situation, and modern art is about this painful situation of having no absolutely definite way of expressing yourself.
+ - I was a runaway girl from France who married an American and moved to New York City. Im not sure I would have continued as an artist had I remained in Paris because of the family setup.
+ - To express your emotions, you have to be very loose and receptive. The unconscious will come to you if you have that gift that artists have. I only know if Im inspired by the results.
+ - Art is restoration: the idea is to repair the damages that are inflicted in life, to make something that is fragmented – which is what fear and anxiety do to a person – into something whole.
+ - My childhood has never lost its magic, it has never lost its mystery, and it has never lost its drama.
+ - An artist can show things that other people are terrified of expressing.
+ - My knives are like a tongue – I love, I do not love, I hate. If you don’t love me, I am ready to attack. I am a double-edged knife.
+ - Art is manipulation without intervention.
+ - Don’t get the green disease of envy. Don’t be fooled by success and money. Don’t let anything come between you and your work.
+ - The subject of pain is the business I am in – to give meaning and shape to frustration and suffering. The existence of pain cannot be denied. I propose no remedies or excuses.
+ - I always had the fear of being separated and abandoned. The sewing is my attempt to keep things together and make things whole.
+ - The feminists took me as a role model, as a mother. It bothers me. I am not interested in being a mother. I am still a girl trying to understand myself.
+ - For me, sculpture is the body. My body is my sculpture.
+ - Every day you have to abandon your past or accept it and then, if you cannot accept it, you become a sculptor.
+ - Sometimes it is necessary to make a confrontation-and I like that.
+ - My mother was a restorer, she repaired broken things. I don’t do that. I destroy things. I cannot go the straight line. I must destroy, rebuild, destroy again. My rhythm is not the same. My mother moved in a straight line: I go from one extreme to the other.
+ - One must accept the fact that others don’t see what you do.
+ - My life has been regulated by insomnia.
+ - Once I was beset by anxiety but I pushed the fear away by studying the sky, determining when the moon would come out and where the sun would appear in the morning.
+ - Look at it this way – a totem pole is just a decorated tree. My work is a confessional.
+ - I have drawn my whole life. My parents were in the tapestry restoration business, and as a young girl, I would draw in the missing parts of the tapestry that needed to be re-woven. My ability to draw made me indispensable to my parents.
+ - My work disturbs people and nobody wants to be disturbed. They are not fully aware of the effect my work has on them, but they know it is disturbing.
+ - I was raised a Catholic. But I am not religious. In my work, I am interested in real flesh and blood.
+ - I do not need the musing of the philosophers to tell me what I am doing. It would be more interesting to let me know why I am doing it.
+ - Everyone should have the right to marry. To make a commitment to love someone forever is a beautiful thing.
+ - I work like a bee and feel that I accomplish little.
+ - Everywhere in the modern world there is neglect, the need to be recognized, which is not satisfied. Art is a way of recognizing oneself, which is why it will always be modern.
+ - My art is a form of restoration in terms of my feelings to myself and to others.
+ - I have kept a diary as long as I can remember, and drawings are really another kind of diary.
+ - It is a great privilege to be able to work with, and I suppose work off, my feelings through sculpture.
+
+47 quotes

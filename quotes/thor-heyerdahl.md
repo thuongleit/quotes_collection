@@ -1,0 +1,26 @@
+ - Borders? I have never seen one. But I have heard they exist in the minds of some people.
+ - Progress is man’s ability to complicate simplicity.
+ - For every minute, the future is becoming the past.
+ - A civilized nation can have no enemies, and one cannot draw a line across a map, a line that doesn’t even exist in nature and say that the ugly enemy lives on the one side, and good friends live on the other.
+ - We are not talking about esthetics. We are talking about life: survival of Man. We must train young people to get another vision of Nature. We call it ‘wilderness,’ and we think it is progress to get further and further away from it. How crazy! Where would we have been if Nature had not built us up?
+ - In my experience, it is rarer to find a really happy person in a circle of millionaires than among vagabonds.
+ - I don’t believe in war as a solution to any kind of conflict, nor do I believe in heroism on the battlefield because I have never seen any.
+ - I have never been able to grasp the meaning of time. I don’t believe it exists. I’ve felt this again and again, when alone and out in nature. On such occasions, time does not exist. Nor does the future exist.
+ - Those who have experienced the most, have suffered so much that they have ceased to hate. Hate is more for those with a slightly guilty conscience, and who by chewing on old hate in times of peace wish to demonstrate how great they were during the war.
+ - Once in a while you find yourself in an odd situation. You get into it by degrees and in the most natural way but, when you are right in the midst of it, you are suddenly astonished and ask yourself how in the world it all came about.
+ - In fighting nature, man can win every battle except the last. If he should win that too, he will perish, like an embryo cutting its own umbilical cord.
+ - But if we begin thinking about the world being over 100 million years old, then it’s absolutely by chance that you and I are sitting here alive today, while all the others are dead or have never been born.
+ - We must wake up to the insane reality of our time. We are all irresponsible, unless we demand from the responsible decision makers that modern armaments must no longer be made available to people whose former battle axes and swords our ancestors condemned.
+ - I was in uniform for four years, and I know that heroism doesn’t occur from taking orders, but rather from people who through their own willpower and strength are willing to sacrifice their lives for an idea.
+ - In a city a man may feel second to none. But alone in the immensity of the universe, among all the creatures that preceded man and built up the human species, even a most fervent atheist will wonder if Darwin found the visible road but not the invisible mechanism.
+ - I also believe that when one dies, one may wake up to the reality that proves that time does not exist.
+ - It is progress when weapons are improved to kill more people at a longer range.
+ - Man invents the most inhuman armaments to assault others so like himself that uniforms are needed to distinguish between friend and foe.
+ - Circumstances cause us to act the way we do. We should always bear this in mind before judging the actions of others. I realized this from the start during World War II.
+ - We have always been taught that navigation is the result of civilization, but modern archeology has demonstrated very clearly that this is not so.
+ - It is also rarer to find happiness in a man surrounded by the miracles of technology than among people living in the desert of the jungle and who by the standards set by our society would be considered destitute and out of touch.
+ - It is progress when a centuries-old oak is cut down to give space for a road sign.
+ - Surrounded by military airplanes and warships from the world’s most civilized and developed nations, we have been denied permission by friendly governments, for reasons of security, to land anywhere, but in the tiny, and still neutral, Republic of Djibouti.
+ - Civilization grew in the beginning from the minute that we had communication – particularly communication by sea that enabled people to get inspiration and ideas from each other and to exchange basic raw materials.
+
+24 quotes

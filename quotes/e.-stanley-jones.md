@@ -1,0 +1,94 @@
+ - Whatever we focus on determines what we become.
+ - To talk with God, no breath is lost. Talk on! To walk with God, no strength is lost. Walk on! To wait on God, no time is lost. Wait on!
+ - In the prayer time, the battle of the spiritual life is lost or won.
+ - If you don’t make up your mind, your unmade mind will unmake you.
+ - Your capacity to say “No” determines your capacity to say “Yes” to greater things.
+ - Prayer is aligning ourselves with the purposes of God.
+ - God doesn’t have any grandchildren.
+ - Faith is not merely you holding on to God- it is God holding on to you.
+ - Our intentions may be very good, but, because the intelligence is limited, the action may turn out to be a mistake – a mistake, but not necessarily a sin, for sin comes out of a wrong intention.
+ - If you don’t surrender to God, don’t think you don’t surrender. Everybody surrenders – to something.
+ - The moral laws of the Universe are deeply embedded in the constitution of things. We do not break them – we break ourselves upon them.
+ - I have surrendered to God; therefore I surrender to nothing else.
+ - Abundant living means abundant giving.
+ - The conscious mind determines the actions, the unconscious mind determines the reactions; and the reactions are just as important as the actions.
+ - The one supreme business of life is to find God’s plan for your life and live it.
+ - To implant fear in the minds of children is a crime. If parents try to rule the child by fear, then fear rules the child.
+ - If you don’t surrender to Christ, you surrender to chaos.
+ - Nothing is ever really yours until you share it.
+ - Grace is free, but when once you take it, you are bound forever to the Giver and bound to catch the spirit of the Giver.
+ - When we say we begin with God, we begin with our idea of God, and our idea of God is not God. Instead, we ought to begin with God’s idea of God, and God’s idea of God is Christ.
+ - The purpose of religion is not so much to get us into heaven, or to keep us out of hell, but to put a little bit of heaven into us, and take the hell out of us. This has always been the greatest responsibility of religion.
+ - When I met Christ, I felt that I had swallowed sunshine.
+ - An individual gospel without a social gospel is a soul without a body and a social gospel without an individual gospel is a body without a soul. One is a ghost, the other a corpse.
+ - When prayer fades out, power fades out. We are as spiritual as we are prayerful; no more, no less.
+ - If you find something that gets hold of you in the Word, pass it on to somebody that very day.
+ - Suppose you should fail. Is that so terrible? Not to have tried is a worse failure.
+ - Christianity not only saves you from sin, but from cynicism.
+ - We grow small trying to be great.
+ - When man listens, God speaks; when man obeys, God acts; when man prays, God empowers.
+ - When Satan attacks you, command him in the Name of Jesus to bend his neck. On the back of it you’ll find there’s a nail scarred foot print!
+ - In the pure, strong hours of the morning, when the soul of the day is at its best, lean upon the window sill of God and look into his face, and get the orders for the day. Then go out into the day with the sense of a hand upon your shoulder and not a chip.
+ - The God I find in Christ is a God who overcomes evil with good, hate by love, and the world by a cross.
+ - Jesus will meet me today in the person of someone in need-I must not miss him.
+ - Prayer means that the total you is praying. Your whole being reaches out to God, and God reaches down to you.
+ - Worry and anxiety are sand in the machinery of life; faith is the oil.
+ - The universe does not make sense without God.
+ - There are two ways to be rich – one in the abundance of your possessions and the other in the fewness of your wants.
+ - Character is supreme in life, hence Jesus stood supreme in the supreme thing – so supreme that, when we think of the ideal, we do not add virtue to virtue, but think of Jesus Christ, so that the standard of human life is no longer a code but a character.
+ - No person is free until he or she is free at the center. When we let go there, we are free indeed. When the self is renounced, then one stands utterly disillusioned, apart, asking for nothing. If anything comes to us, it is all sheer gain. Then life becomes one constant surprise.
+ - Earth’s blackest day and earth’s brightest day are only three days apart.
+ - The BIBLE redirects my will, cleanses my emotions, enlightens my mind, and quickens my total being.
+ - To pass from estrangement from God to be a son of God is the basic fact of conversion. That altered relationship with God gives you an altered relationship with yourself, with your brother man, with nature, with the universe.
+ - The love of God invades me, the peace of God pervades me, the will of God persuades me, and I am wholly His.
+ - Prayer is commission. Out of the quietness with God, power is generated that turns the spiritual machinery of the world. When you pray, you begin to feel the sense of being sent, that the divine compulsion is upon you.
+ - Spiritual power comes out of inward fellowship with God and abandonment to his purposes.
+ - When we can sing in the face of death, we can sing in the face of anything.
+ - At the cross God wrapped his heart in flesh and blood and let it be nailed to the cross for our redemption.
+ - Everybody who belongs to Christ belongs to everybody who belongs to Christ.
+ - The Indian is making an amazing discovery, namely that Christianity and Jesus are not the same – that they may have Jesus without the system that has been built up around Him in the West.
+ - We must be willing to be guided of God, not merely now and then, but as a life proposition.
+ - Prayer is commitment. We don’t merely co-operate with God with certain things held back within. We, the total person, co-operate. This means that co-operation equals committment.
+ - God, to redeem us at the deepest portion of our nature – the urge to love and be loved – must reveal His nature in an incredible and impossible way. He must reveal it at a cross.
+ - Grace makes you gracious. The Giver makes you give.
+ - I never said the way of Christ is easy. Are you prepared to let go of everything He would not approve?
+ - When the Church listens to the Holy Spirit, it becomes fruitful. New movements are born.
+ - Continuing a Lenten series on prayer: Prayer is co-operation with God. It is the purest exercise of the faculties God has given us – an exercise that links these faculties with the Maker to work out the intentions He had in mind in their creation.
+ - A nail-pierced hand holds the sceptre of the universe, and my knees bend before him.
+ - Very often when I haven’t faith in my faith, I have to have faith in His faith. He makes me believe in myself and my possibilities, when I simply can’t. I have to rise to His faith in me.
+ - Grace binds you with far stronger cords than the cords of duty or obligation can bind you. Grace is free, but when once you take it, you are bound forever to the Giver and bound to catch the spirit of the Giver. Like produces like. Grace makes you gracious, the Giver makes you give.
+ - Whatever our creed, we stand with admiration before the sublime character of Jesus.
+ - Our actions are the results of our intentions and our intelligence.
+ - You don’t grow old. You get old by not growing.
+ - A road that perhaps more than any other leads to self atrophy is undedicated money.
+ - If the Holy Spirit can take over the subconscious with our consent and cooperation, then we have almighty Power working at the basis of our lives, then we can do anything we ought to do, go anywhere we ought to go, and be anything we ought to be.
+ - Everything that happens to me can help me along in my Christian life.
+ - A reduced Christ is the same as a rejected Christ.
+ - The only thing you believe in is the thing you believe in enough to practice. Your creed is your deed.
+ - If we know how to pray, we know how to live.
+ - Where sin has abounded in me, Grace now much more abounds in me. I live by that ‘much more.’
+ - In conversion you are not attached primarily to an order, nor to an institution, nor a movement, nor a set of beliefs, nor a code of action – you are attached primarily to a Person, and secondarily to these other things.
+ - A Rattlesnake, if Cornered will become so angry it will bite itself. That is exactly what the harboring of hate and resentment against others is – a biting of oneself. We think we are harming others in holding these spites and hates, but the deeper harm is to ourselves.
+ - We must continue to pursue the thought that we do not merely belong to the Kingdom – the Kingdom belongs to us.
+ - When we talk about what we believe we divide. When we talk about who we believe in we unite.
+ - We find, sooner or later, that in prayer we either abandon ourselves or we abandon prayer.
+ - An hour spent in the presence of God brings the purest joy known to man.
+ - We are personalities in the making, limited, and grappling with things too high for us. Obviously we, at very best, will make many mistakes, but these mistakes need not be sins.
+ - You cease to move into yourself, away from others. You give up your antagonism. You begin to move toward others in love. God moved toward you in gracious, outgoing love, and you move toward others in that same outgoing love.
+ - To live by worry is to live against reality.
+ - Be victorious in the home, and you are victorious everywhere.
+ - Life is supplied with a basic adequacy.
+ - Your powers are dead or dedicated. If they are dedicated, they are alive with God and tingle with surprising power. If they are saved up, taken care of for their own ends, they are dead.
+ - When you pray, you begin to feel the sense of being sent.
+ - When the Christian doesn’t find joy on account of his happenings, he can always find joy in spite of them.
+ - I have only to be true to the highest I know-success of failure is in the hand of God.
+ - Victorious living does not mean freedom from temptation, nor does it mean freedom from mistakes.
+ - In the ordinary church, it is suppressed by respectability, by a desire to appear better than we really are.
+ - Some have said that the power of a Redeemer would depend upon two things: first, upon the richness of the self that was given; and second, upon the depths of the giving. Friend and foe alike are agreed on the question of the character of Jesus Christ.
+ - The action carries a sense of incompleteness and frustration, but not of guilt. Victorious living does not mean perfect living in the sense of living without flaw, but it does mean adequate living, and that can be consistent with many mistakes.
+ - Be so preoccupied with good will that you haven’t room for ill will.
+ - When the depths are upheld by the Holy Spirit, then the reaction is Christian.
+ - Christ is everywhere and He is in me. What more do I want, except more of Him?
+ - Being born in a Christian home does not make you a Christian.
+
+92 quotes

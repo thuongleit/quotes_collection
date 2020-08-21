@@ -1,0 +1,47 @@
+ - You are so naive, it physically aggrieves me.
+ - Fate has a way of getting what she wants, no matter how we try to avoid it.
+ - Let’s put the fun back in funeral!
+ - I got nothing. Even the spies I’m spying on who are spying on other spies got nothing.
+ - I take no actions that I wouldn’t publicly recount. If you can’t speak your deeds, then don’t do them.
+ - When he watched her sleeping, he often thought, My heart lies vulnerable outside my chest.
+ - I will fight any battle for you, crush any adversity. Because you are mine, beautiful girl. I love you so madly that the past before you feels sane...
+ - I do so wish my breasts would stop staring at your eyes.
+ - I have an idea. Let’s take off our clothes and fool around on the settee. If I trip and fall and land smack-dab on your cock, then it won’t be your fault.
+ - Fuckhead: The name’s MariKETA. Go to hell, The WITCH, doing a creepy spell somewhere right now.
+ - Hate Scars. I’m physically flawless-why can’t everyone be? Everywhere Lothaire went, people stopped and stared. Of course, then they usually ran. Lothair Enemy of Old.
+ - I’d wear his corsage to an orgy, any day!
+ - Take care, lest you lose a male who’ll desire only you – and gain a male who’ll desire only others.
+ - Mari began to suspect that this reflection was going to prove to be like that little computer paperclip assistant – at first it helps, but after a while you just want the paperclip to die.
+ - The bottom line is, insults only hurt when they come from someone I respect.
+ - He’s like six hundred years younger than you are. I refuse to be the moral compass of our cell! Most weekends I have an intoxispell bong attached to my mouth like a respirator. I love scatological humor, and I list ‘pranks involving nuclear waste’ and ‘making demons eat things’ as my hobbies.
+ - I desired you before, but I never loved you until this life.
+ - Eves, on the scale from wholesome to whoresome, you’re practically Amish.
+ - There was French kissing, and then there was Cajun French kissing. Spicier, harder, wilder.
+ - Regin slapped her knees. “Oh, my gods, look at him running like his life depended on catching us.” She slid open the door. “Is this straight outta Platoon, or what? Willem!” she cried, holding out one hand. “Run, Willem!” Then she choked on her laughter.
+ - My mom could be really fierce. A regular Frau Badass.
+ - Gods, I love it when you talk mathy to me.
+ - Ah, but she was a pastel wearer. She was forever dead to Sabine.
+ - My looks had gone from well-kempt cheerleader to apocalyptic disasterpiece.
+ - God give me anything but a good man’s pity.
+ - Puck laughed, and it wasn’t like that weird high-pitched giggle she’d heard out of children before, the one that begged the question: why would one possibly tickle a child just to elicit that noise?
+ - Those who betray me only do so once.
+ - It’ll only hurt for a second. Promise...
+ - Well maybe we need to Cesar Millan their asses and show them who’s boss. Tsst, tsst!
+ - Rydstrom: “To get it right this time.”
+ - Matthew, exactly how psychic are you? So psychic that other psychics should be called Mattics.
+ - He jerked back. “What is this? Be like you were with me the other times! When you melted for me.” “That was before I fully understood what a nasty piece of work you are.” “Because of a few shifter beheadings? Come on, Lizvetta, it’s not as if I went around cock-slapping gnomes.” Her jaw dropped.
+ - Yo, Dekko, who do I gotta blow around here to get a shower?
+ - He gave her an indulgent look. “I’ll forgive these rash words for now.” She sputtered, “Forgive? Let’s talk about who should be forgiving who.“”Whom,” he corrected.“Shut up! I’m in the right here. Remember all those things you did to me?”
+ - At fifty times the distance, you dispatched that ko-bold with three arrows to the neck. I’ve earned a trio to the chest. Seems you slapped him while you’re tickling me. You doona want to kill me, which is a good sign. Maybe this is your way of flirting?
+ - I’m not interested in a life that doesn’t have you in it.
+ - And speaking of females, if I call you by one’s name while my fangs are plunged deep in your neck, just run with it.
+ - Oh my gods, when do you not sport wood? There are bathrooms in the back, so go burp the worm or whatever. – Regin.
+ - I often help others discover the outer limits of their hatred. It’s a talent of mine.
+ - It figures – it’s always either the butler or the resurrected mate.
+ - Those swords are mine! Touch them and I’ll use ’em to slice off your nut sack! For a coin purse!
+ - It felt bizarre to be ignored in general, much less by an embodiment of Aidan – who used to stare at her so hard that he’d run into trees.
+ - This was full when I left. Demon, did you eat some of my toothpaste?
+ - Two things that can never be contained? Velociraptors and zombies.
+ - When I get free, I believe I’ll show you your spine. I’ll hand it to you so casually, politely even, as if expecting you to remark upon it.
+
+45 quotes

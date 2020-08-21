@@ -1,0 +1,63 @@
+ - I spent a week there one afternoon.
+ - All my life’s a circle; Sunrise and sundown; Moon rolls thru the nighttime; Till the daybreak comes around.
+ - We all have the potential to move the world, and the world is ready to be moved.
+ - If you try to look But you don’t touch Then you won’t touch But you’ll never feel And if you don’t feel You’ll never cry And if you don’t cry Then you’ll never heal.
+ - Be involved with the people with the live hearts, the live eyes, who are committed to something.
+ - When you’re going nowhere, anywhere’s a better place to be.
+ - I guess it’s a sequel to our story From the journey ‘tween heaven and hell With half the time thinking of what might have been and half thinkin’ just as well. I guess only time will tell.
+ - Hello my Country I once came to tell everyone your story Your passion was my poetry And your past my most potent glory Your promise was my prayer Your hypocrisy my nightmare And your problems fill my present Are we both going somewhere?
+ - And the wind will whip your tousled hair, The sun, the rain, the sweet despair, Great tales of love and strife. And somewhere on your path to glory You will write your story of a life.
+ - No straight lines make up my life; And all my roads have bends; There’s no clear-cut beginnings; And so far no dead-ends.
+ - Oh, he was the sun burning bright and brittle And she was the moon shining back his light a little He was a shooting star She was softer and more slowly He could not make things possible But, she could make them holy.
+ - I found you a thousand times; I guess you done the same; But then we lose each other; It’s like a children’s game; As I find you here again; A thought runs through my mind; Our love is like a circle; Let’s go ’round one more time.
+ - When in doubt, do something.
+ - To know is to care, to care is to act, to act is to make a difference.
+ - Strum your guitar sing it kid Just write about your feelings not the things you never did Inexperience, it once had cursed me But your youth is no handicap it’s what makes you thirsty.
+ - But you can travel on for ten thousand miles, and still stay where you are.
+ - She sings the songs without words Songs that sailors, and blind men, and beggars have heard She knows more of love than the poets can say And her eyes are for something that won’t go away.
+ - And I know you’re frightened By my laughter But you’re not afraid To hold my pain You see I’m never sure Just what you’re after, Babe But it seems you only love me When it rains. How come you only love me when it rains?
+ - You know I need a dream Like I need my breath We need to take the life Before we get the death You know I need your love Like I need the light Yes I need the chance Can it be tonight?
+ - We’ve more important studies than your fantasies and fears You know that rock’s been perched up there for a hundred thousand years.
+ - There’s a vacancy, won’t you come to me And fill my empty spaces I’m a motel man in a promised land That’s filled with empty faces So won’t you bring your sorrows bring your dreams, It’s a place for you to be There’s no more tomorrow or that’s how it seems Won’t you come to me? I’ve got a vacancy.
+ - Oh God they got you gun shy You know your skin’s as cold as ice Your eyes are double filtered babe You’re so afraid to be nice There’s no way you’re ready To let your defenses down Though I won’t come on heavy There is a lesson that I’ve found.
+ - Flowers are red, and green leaves are green. There’s no need to see flowers any other way than the way they always have been seen.
+ - And the look on her face as she opened the door Was like an old joke told by a friend. It’d taken ten more years but she’d found her smile And I watched the corners start to bend.
+ - You see, she was gonna be an actress and I was gonna learn to fly. She took off to find the footlights, and I took off for the sky. And here, she’s acting happy, inside her handsome home. And me, I’m flying in my taxi, taking tips, and getting stoned. I go flying so high, when I’m stoned.
+ - Our lives are to be used and thus to be lived as fully as possible, and truly it seems that we are never so alive as when we concern ourselves with other people.
+ - I’d rather make a mistake than do nothing.
+ - Good dreams don’t come cheap You’ve got to pay for them.
+ - You see, dream-lover of a lady, what shakes me to the core Is the thought as you caress me, you’ve done this all before I think about the future with me out and others in Will I, too, have disappeared like I’ve never ever been?
+ - Remember when the music Came from wooden boxes strung with silver wire And as we sang the words, it would set our minds on fire, For we believed in things, and so we’d sing.
+ - Why did the little girls grow crippled While the little boys grow strong The boys allowed to come of age The girls just came along The girls were told sing harmonies The boys could all sing songs That’s why little girls grew crippled While little boys grew strong.
+ - I believe that success brings responsibility. It also does not bring immunity to the consequences of our quickening march towards oblivion. The bottom line is that all of us should be invovled in our own futures to create a world that our children will want to live in.
+ - If a man tried to take his time on earth and prove before he died, what one man’s life could be worth, well I wonder what would happen to this world?
+ - She was married for seven years to a concrete castle king. She said she wanted to learn to play the guitar and to hear her children sing. So I’d show up about once a week in my faded tight-legged jeans with a backlog full of hobo stories and dilapidated dreams.
+ - Reality is only just a word.
+ - I’ve got nothing against selling out, but just let me do it for something that matters. Not so I can be Number One With a Bullet, as it were, but so I can leave this world feeling like I made a difference.
+ - I come fresh from the street, fast on my feet, kind a lean and lazy; not much meat on my bones, and a whole lot alone, and more than a little bit crazy. The old six string was all I had to keep my belly still, and for each full hour lesson I gave I got a crisp ten dollar bill.
+ - But high up on the mountain When the wind is hitting it If you’re watching very closely The rock slips a little bit...
+ - It’s better sometimes when we don’t get to touch our dreams.
+ - What is needed is a marriage of two impulses, a coupling of the urge to do something positive with the willingness to constantly re-evaluate how effectively our actions lead to our goal – that of ending world hunger...
+ - I finally like myself, at last I like myself.
+ - The reason I fight for the arts as well as against hunger is because the arts are the qualitative way, are the effective way, are the traditional way we learn to make value decisions about who and what we are.
+ - The reason nobody else in my business has any impact is because they’re all comatose.
+ - Short stories that’s all it’s ever been Don’t you worry ’bout the ending Babe, before we begin I have seen the sun That’s behind the rain I have felt the joy That’s behind the pain.
+ - And if our future Lies on the final line Are we brave enough To see the signals and the signs?
+ - What I’d really like, Dad, is to borrow the car keys.
+ - And while blood’s the only language that your deaf old ears can hear And still you will not answer with that message coming clear Does it mean there’s no more ripples in your tired old glory stream And the buzzards own the carcass of your dream?
+ - And we would play together, like fine musicians should, And it would sound like music, and the music would sound good. But in real life I’m stuck with that same old formula, me and my monophonic symphony, six string orchestra.
+ - And all the trips you know you missed And all the lips you never kissed Cut through you like a knife. And now you see stretched out before thee Just another story of a life.
+ - It’s got to be the going, not the getting there, that’s good.
+ - If we can muster up that degree of commitment and get away from the uniquely American perception that if something can’t be done immediately it isn’t worth doing, then I think the Hunger Movement, this small but growing minority of us, can have a truly significant impact.
+ - The very day I purchased it, I christened my guitar as my monophonic symphony, six string orchestra.
+ - All of us should be involved in our own futures to create a world that our children will want to live in.
+ - Oh all the times I’ve listened, and all the times I’ve heard All the melodies I’m missing, and all the magic words, And all those potent voices, and the choices we had then, How I’d love to find we had that kind of choice again.
+ - You see, I have no real complaints of how you’ve left your past behind I guess what gets me worried is you’ve erased him from your mind.
+ - Why were the little girls all frightened To be just what they are The boys were told to ask themselves How high how far The girls were told to reach the shelves While the boys were reaching stars That’s why little girls were frightened To be just what they are.
+ - The major thing I’m afraid of is being 65 and saying, ‘Gee, I wish I had done this and that, and that.’ I want to face old age knowing I’ve tried all I wanted to try.
+ - He was dancing to some music No one else had ever heard He’d speak in unknown languages She would translate every word And then when the world was laughing At his castles in the sky She’d hold him in her body Till he once again could fly.
+ - I want the fact that I existed to mean something.
+ - I never really drove a cab, but I do have a hack license in case of emergencies – like no money.
+ - I’m in the Dance Band on the Titanic Singing “Nearer my God to thee” and the icebergs on the starboard bow Won’t you dance with me?
+
+61 quotes

@@ -1,0 +1,96 @@
+ - Nothing makes a woman more beautiful than the belief that she is beautiful.
+ - Beauty is how you feel inside, and it reflects in your eyes. It is not something physical.
+ - Many people think they want things, but they don’t really have the strength, the discipline. They are weak. I believe that you get what you want if you want it badly enough.
+ - You do not become a star, you are born a star. A star is born with that indefinable extra something.
+ - There is a fountain of youth: it is your mind, your talents, the creativity you bring to your life and the lives of people you love. When you learn to tap this source, you will truly have defeated age.
+ - If you haven’t cried, your eyes can’t be beautiful.
+ - I’d much rather eat pasta and drink wine than be a size 0.
+ - Getting ahead in a difficult profession requires avid faith in yourself. That is why some people with mediocre talent, but with great inner drive, go so much further than people with vastly superior talent.
+ - I believe that rewards in life are deserved. Every reward is the fruit of discipline, of dedication and of sacrifices. And of stubbornness.
+ - Everything you see I owe to spaghetti.
+ - You have to enjoy life. Always be surrounded by people that you like, people who have a nice conversation. There are so many positive things to think about.
+ - Isn’t it wonderful to be alive? You know, you can forget all about it. Then suddenly you remember, and think of all the things you can do. Here I am. I can walk around. I can talk. I can see things and remember things. I am alive. How wonderful!
+ - I have never judged myself by other people’s standards. I have always expected a great deal of myself, and if I fail, I fail myself.
+ - Good food is a celebration of life.
+ - Once I put myself into a thing, I do my utmost, my very, very best.
+ - A dog is faithful, a woman never.
+ - Being beautiful can never hurt, but you have to have more. You have to sparkle, you have to be fun, you have to make your brain work if you have one.
+ - Transformation is something I cannot explain – too much analysis might destroy it.
+ - Cooking is an act of love, a gift, a way of sharing with others the little secrets – ‘piccoli segreti’ – that are simmering on the burners.
+ - I can’t bear being seen naked. I’m not exactly a tiny woman. When Sophia Loren is naked, this is a lot of nakedness.
+ - Any woman can look her best if she feels good in her skin. It’s not a question of clothes or makeup. It’s how she sparkles.
+ - I still don’t know what I want to do when I grow up.
+ - My philosophy is that it’s better to explore life and make mistakes than to play it safe and not to explore at all.
+ - I know how to say ‘no’ in twelve languages. That’s enough for a woman.
+ - There is no greater love potion than regular coffee, brewed his own. When a man tries it, he was not going anywhere.
+ - When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.
+ - The facts of life are that a child who has seen war cannot be compared with a child who doesn’t know what war is except from television.
+ - It’s a mistake to think that once you’re done with school you need never learn anything new.
+ - Be honest about what you can get. To make a sacrifice and to get what you want you need to be very certain. In other words: always think about your objective, have a clear goal and commit to it from the heart.
+ - I’m not Italian, I am Neapolitan! It’s another thing!
+ - The two big advantages I had at birth were to have been born wise and to have been born in poverty.
+ - I firmly believe we can make our own miracles if we believe strongly enough in ourselves and our mission on earth.
+ - I am against all war.
+ - After all these years, I am still involved in the process of self-discovery. It’s better to explore life and make mistakes than to play it safe. Mistakes are part of the dues one pays for a full life.
+ - Success, I would find out, is interior. It has to do with self-fulfillment and the joy of living.
+ - I was born wise. Street-wise, people-wise, self-wise. This wisdom was my birthright.
+ - My mother taught me to walk proud and tall ‘as if the world was mine.’
+ - The first woman was created from the rib of a man. She was not made from his head to top him, nor from his feet to be trampled on by him, but out of his side to be equal to him.
+ - The most indespensible ingredient of all good home cooking: love for those you are cooking for.
+ - The fantasy of a man is the best weapon of a woman.
+ - Mistakes are the price of an interesting life.
+ - Mistakes are a part of the dues one pays for a full life.
+ - A woman’s dress should be like a barbed-wire fence: serving its purpose without obstructing the view.
+ - Beauty is how you feel inside...
+ - I am lucky. I had a very beautiful mother.
+ - I’ve never tried to block out the memories of the past, even though some are painful. I don’t understand people who hide from their past. Everything you live through helps to make you the person you are now.
+ - I do not know if I really am a big star. And in fact that is not the most important thing for me. What counts in life is to bring about more of your own dreams. In such a way that your life becomes like a fairy tale. This is what has happened to me, it is just like that.
+ - The right hairstyle can make a plain woman beautiful and a beautiful woman unforgettable.
+ - I hated my father all my life but in his final days I forgave him for all the suffering he caused us. As you grow older, marry, and have children of you own, you learn and forget. I do not forget easily, but I do forgive.
+ - I exist only because inside of me and above all else I am only and above all a Neapolitan. Naples exists inside of me, and always will. Fortunately for me there is this treasure that I have inside of me and, when I need it, then I pull it out.
+ - Physical exercise makes you more graceful. After some gymnasitics you walk as if the whole street is yours.
+ - I was so skinny, they gave me the nickname stechetto – the stick. I was tall, thin, ugly and dark like an Arab girl. I looked strange. All eyes. No flesh on my bones.
+ - If you are a professional actor who has pride in his work, then the judgment of your peers should be important to you. I treasure each and every award I have ever received – and my Oscar is in a place of honor.
+ - At the dressing table, every woman has a chance to be an artist, and art, as Aristotle said, ‘completes what nature left unfinished.’
+ - Without my mother’s ambition, her drive, I doubt that on my own I would have pushed myself out of Pozzuoli and into the frightening world that was faraway Rome.
+ - If you can learn to use your mind as well as your powder puff, you will become more truly beautiful.
+ - I can cook, I can breathe, I can live!
+ - When I was a child, fear was common to my life – fear of having nothing to eat, fear of the other children taunting me at school because I was illegitimate, and particularly fear of the big bombers appearing overhead and dropping their lethal bursts from the sky.
+ - Where youthful beauty is unconscious, mature beauty is knowing and sophisticated.
+ - You must all, somewhere deep in your hearts, believe that you have a special beauty that is like no other and that is so valuable that you must not abandon it. Indeed, you must learn to cherish it.
+ - Learn to use your brains as deftly as your powder box, and then maybe you have a powder box and do not need...
+ - I was not interested in what I could bring to myself by being an actress, but in what I could bring out of myself.
+ - Luck assists fortune, you need to catch the moment. Otherwise the opportunity fades.
+ - True love comes along after adolescence, when we have learned not to cry for nothing.
+ - A mother always thinks twice: for herself and for the child.
+ - I think the quality of sexiness comes from within.
+ - Jealousy is a miserable feeling. It means you aspire to something that you cannot have. Even in love, it is better to leave, better not to waste time.
+ - I think the quality of sexiness comes from within. It is something that is in you or it isn’t and it really doesn’t have much to do with breasts or thighs or the pout of your lips.
+ - You cannot say, because I am from Naples so I like the mixture of drama and comedy all together.
+ - As far as beauty is concerned, in order to be confident we must accept that the way we look and feel is our own responsibility.
+ - There’s no pleasure in working if you don’t do the things you want to do.
+ - Spaghetti can be eaten most successfully if you inhale it like a vacuum cleaner.
+ - I’m a giraffe. I even walk like a giraffe with a long neck and legs. It’s a pretty dumb animal, mind you.
+ - Getting ahead in a difficult profession requires avid faith in yourself...
+ - The eyes of a woman who never cried can not be beautiful.
+ - Almost starve, but I don’t starve because I eat very much.
+ - Hate is unfulfilled love.
+ - Everything you live through helps to make you the person you are now.
+ - I eat a lot of salad, a little meat, and some fruit – that’s all. But I like sweets.
+ - The girl who swears no one has ever made love to her has a right to swear.
+ - Believe me, it is actions that count.
+ - Style must be adapted to the woman and not vice versa. The same can be said of clothes.
+ - The Fountain of Youth is in your mind.
+ - Beauty is no handicap if you don’t think about it.
+ - No press conference announcing a last film. I’d just steal away. Best way because, if by chance after two or three years something interesting comes up, I would not – like Sinatra – have to say: ‘Well, I’ve thought it over and decided to come back.’
+ - I still like me, inside and out. Not in a vain way – I just feel good in my skin.
+ - I always try to have a vacation.
+ - I’m a very shy person and I never tried to do theater.
+ - It’s necessary to have an energy that carries you forward. You need the will to live, to have a great curiosity. To look for the best in life, to find new interests.
+ - Ignorance has its virtues; without it there’d be mighty little conversation.
+ - It is very important for an actor or actress to look around at everything and everyone and never forget about real life.
+ - Show business is what I do, not what I am.
+ - I’m an actress. It’s my passion.
+ - Sex appeal is fifty percent what you’ve got and fifty percent what people think you’ve got.
+
+94 quotes

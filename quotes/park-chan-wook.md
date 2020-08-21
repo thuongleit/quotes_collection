@@ -1,0 +1,38 @@
+ - The point of revenge is not in the completion but in the process.
+ - Whenever I visit a city, I like to see what classical music concerts are on offer.
+ - I became a film director, but I wasn’t successful with my first couple of films, so I had to turn to becoming a film critic to make a living.
+ - In our lives, we have good things and bad things, happiness and pain.
+ - I have always meticulously storyboarded my films from beginning to end.
+ - I’m not the kind of director who aims to send a message out.
+ - Certainly, it includes that. I want the story to be interpreted in as many ways as possible, and of course, the bad blood aspect of it included. For instance, perhaps this is a story not about the hereditary nature of evil, but rather you could interpret it from a different perspective, too.
+ - If I want to relax and not do anything, I don’t want to leave home.
+ - If your work requires you to travel, you will understand that there’s no vacation destination like home.
+ - If you would ask me what my ideal process is, I would say, long pre-production, long production and long post-production.
+ - I hate jeans for no reason.
+ - I do like musical films more than big Hollywood films, especially those by Jacques Demi and Vincent Minelli.
+ - I am sure I am one of 2,000 film directors in the world that Tarantino admires.
+ - Becoming a vampire means completely changing your identity.
+ - I’d like to do a really masculine film.
+ - A film set is a workplace for me; it’s my office, and nobody really wants to be in a stressful work environment.
+ - I believe there are more films that involve love and forgiveness than violence, but they often seem fake and are almost embarrassing to watch.
+ - Living without hate for people is almost impossible. There is nothing wrong with fantasizing about revenge. You can have that feeling. You just shouldn’t act in it.
+ - You could say that evil is contagious in that we have this mesmerizing mentor in Uncle Charlie who comes into your life. Every person has a seed of evil inside them, and when you come across such a mesmerizing mentor, he is able to successfully turn it into a flower of evil.
+ - I believe ‘love’ is very nice to hear, but it’s used so much that it’s come to a point where it’s almost meaningless.
+ - In my opinion, all relationships between people have some sort of violence, and it is central.
+ - As I grow older I spend more time with my wife, and gradually my interest in the woman’s world is growing.
+ - The audience seems hazy to me, shrouded in a veil through which I can’t see.
+ - Ever since I arrived in America to promote “Stoker,” I haven’t had time to go and see it in a theater. The fact that I had to shoot twice as fast as I’m used to in Korea was the most challenging thing about my Hollywood experience.
+ - I’ve read all of Sarah Waters’s novels which have been translated into Korean.
+ - A priest encounters temptation every day, and some of that desire is very natural.
+ - I’d love to do a sci-fi movie, a western, or an espionage thriller. But I’m not going to limit myself. If a good script comes along, I’m not going to discount it because it doesn’t fit into one of these genres.
+ - I am not going to do a film based on a bad scenario just to make a big Hollywood film or work with Hollywood stars.
+ - There’s a humble beauty about listening to period instruments that I like.
+ - I grew up in a very Catholic family. Up until puberty, I would go to a Catholic church every week.
+ - I don’t really believe in the auteur theory.
+ - Certain subjects may no longer be taboo in cinema. But there are ways to treat them that still create shock.
+ - Actors are professionals who deal with people’s emotions and their thoughts.
+ - I guess I probably make violent films partly because I can’t express my anger in my real life very well.
+ - I don’t usually watch a lot of TV, but ‘Mad Men’ changed my perspective. I admire Matthew Weiner who came up with the idea and wrote such a great TV series, and the broadcasting company for being bold enough to air such a series.
+ - When I was growing up, we were taught in school that North Koreans, and especially the North Korean leadership, were all devils.
+
+36 quotes

@@ -1,0 +1,27 @@
+ - For me, the strength of photography lies in its ability to evoke humanity. If war is an attempt to negate humanity, then photography can be perceived as the opposite of war.
+ - I don’t believe there’s any such thing as objective reality. It’s only reality as we experience it.
+ - I have been a witness, and these pictures are my testimony. The events I have recorded should not be forgotten and must not be repeated.
+ - I used to call myself a war photographer. Now I consider myself as an antiwar photographer.
+ - When the truth is spoken, it doesn’t need to be adorned. It just needs to be simply stated, and often it only needs to be said once.
+ - You are never freer than in that moment when you decide to expose yourself to sniper fire.
+ - Photojournalists know the horrors of war can only be exposed at close range. Kodak Film.
+ - I became a photographer in order to be a war photographer, and a photographer involved in what I thought were critical social issues. From the very beginning this was my goal.
+ - Photography can be perceived as the opposite of war.
+ - If you make an honest picture of war, it will be an antiwar photograph.
+ - If there is something occurring that is so bad that it could be considered a crime against humanity, it has to be transmitted with anguish, with pain, and create an impact in people – upset them, shake them up, wake them out of their everyday routine.
+ - If I can upset people, if I can ruin their day, then I have done my job.
+ - If you want to connect with people who are in distress and great grief and scared, you need to do it in a certain way. I move kind of slow. I talk kind of slow. I let them know that I respect them.
+ - If Im feeling outraged, grief, disbelief, frustration, sympathy, that gets channeled through me and into my pictures and hopefully transmitted to the viewer.
+ - I try to use whatever I know about photography to be of service to the people I’m photographing.
+ - I want to record history through the destiny of individuals who often belong to the least wealthy classes. I do not want to show war in general, nor history with a capital H, but rather the tragedy of a single man, of a family.
+ - Unfortunately, the world continues, history continues to produce tragedies. And it is very important that they be documented in a humane way, in a compelling way.
+ - Do we really need another picture of Paris Hilton or Naomi Campbell?
+ - It is very hard to say where you’re going until you get there. That kind of thing is based very much on instinct. As a photographer, one of the most important lessons I have learnt is that you have to learn to listen to and trust your own instinct. It has helped to guide me – this far at least.
+ - None of the editors I’ve worked with have ever asked me to pull my punches. They’ve never asked me to give them anything other than my own interpretation of events.
+ - Starvation and disease are the original weapons of mass destruction. When you burn fields and kill animals, people are left vulnerable.
+ - I’m half deaf. I have nerve damage and a constant ringing in both of my ears, and there are certain times and conditions when I can hardly hear at all.
+ - I began after college, about 1972. I began to teach myself photography. I went to work for a local newspaper for four years as a kind of basic training.
+ - Is it possible to put an end to a form of human behavior which has existed throughout history by means of photography? The proportions of that notion seem ridiculously out of balance. Yet, that very idea has motivated me.
+ - There is a job to be doneto record the truth. I want to wake people up!
+
+25 quotes

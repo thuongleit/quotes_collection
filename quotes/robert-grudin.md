@@ -1,0 +1,34 @@
+ - We struggle with, agonize over and bluster heroically about the great questions of life when the answers to most of these lie hidden in our attitude toward the thousand minor details of each day.
+ - We pamper the present like a spoiled child, obeying its superficial demands but ignoring its real needs.
+ - True teachers not only impart knowledge and method but awaken the love of learning by their own reflected love.
+ - In the landscape of time, there are few locations less comfortable than that of one who waits for some person or event to arrive at some unknown moment in the future.
+ - Fast drivers can see no further than slow drivers, but they must look further down the road to time their reactions safely. Similarly, people with great projects afoot habitually look further and more clearly into the future than people who are mired in day-to-day concerns.
+ - At pains to define liberty, that most resolute of indefinables, our minds fall back on spatial images; on birds, sailboats, and mountains; the untethered balloon, the blue sky, the nude figure.
+ - The future is like the daytime moon, a diffident but faithful companion, so elegant as to be almost invisible, an inconspicuous marvel.
+ - No psychological message is so open to question as that which tells us that we have nothing left to do or to give.
+ - All great experience has a guarded entrance and a windowless facade.
+ - Such self-transformation is the most difficult and dangerous challenge to the imagination, and it is the most rewarding. Meeting it is only possible for the person whose mind is open to contradictions and well-practiced in free conjecture.
+ - The reason so many promises are not kept is the same as the reason they are made in the first place.
+ - Great drama, like the energy implicit in every atom, is eternally around and within us, but liberated only by coincidence, ceremony, creativity, periods reaching completion, pressures reaching the bursting point, and the simple but painful cultivation of awareness.
+ - Creativity is dangerous. We cannot open ourselves to new insights without endangering the security of our prior assumptions. We cannot propose new ideas without risking disapproval and rejection.
+ - The recalling of beautiful things, whether they are your own experiences or the acheivements of others, is a creative act. Simple ideas can be restated by rote; but profound ideas must be recreated by will and imagination.
+ - You may cure yourself of a depression by forcing yourself to perform, in rapid order and with excruciating concentration, half a dozen or so unpleasant chores, especially if they have long been postponed. This is a kind of homeopathic purgative, a treatment of like with like.
+ - Happiness may well consist primarily of an attitude toward time.
+ - The mind which can totally and inanely forget its work and obligations is often also the mind which can, at the proper time, give them the fullest attention.
+ - Because it is a radical act of freedom, creative achievement is a heroic process that requires, in all its permutations, specific strengths of character.
+ - The happy individual is able to renew daily and with full consciousness all the basic expressions of human identity: work, love, communication, play, and rest.
+ - Excellence of mind itself, rightly conceived, is expertise in beauty; creativity is wise love.
+ - The fundamental motive of true teaching is the love that seeks and studies and performs.
+ - Like students of art who walk around a great statue, seeing parts and aspects of it from each position, but never the whole, we must walk mentally around time, using a variety of approaches, a pandemonium of metaphor.
+ - The extent to which we live from day to day, from week to week, intent on details and oblivious to larger presences, is a gauge of our impoverishment in time.
+ - Individuals we consider happy commonly seem complete in the present and we see them constantly in their wholeness: attentive, cheerful, open rather than closed to events, integral in the moment rather than distended across time by regret or anxiety.
+ - We are wistful about the golden days of the past and dream of a distant future unclouded by necessity. But I suspect that if our inner souls were asked what in life they really missed, the answer would be primal danger and stress.
+ - Truth is rhythmical: if it implies stasis, it is platitude. Truth is syncopated: if it supplies all the terms, there is one term too many. Truth is barbed: if it comforts, it lies. Truth is an armed dancer.
+ - Every home should have a room, or at least a nook with two chairs, where it is a sin punishable by immediate expulsion to speak of money, business, politics or the state of one’s teeth.
+ - The goal of discoverers is not to outdistance their peers, but to transcend themselves.
+ - We commonly think of freedom as the ability to define alternatives and choose between them. The creative mind exceeds this liberty in being able to redefine itself and reality at large, generating whole new sets of alternatives.
+ - Written truth is four-dimensional. If we consult it at the wrong time, or read it at the wrong place, it is as empty and shapeless as a dress on a hook.
+ - Those who labor for bread or money alone are condemned to their reward.
+ - Plans made swiftly and intuitively are likely to have flaws. Plans made carefully and comprehensively are sure to.
+
+32 quotes

@@ -1,0 +1,22 @@
+ - Opulence is the law of the universe, an abundant supply for every need if nothing is put in the way of its coming.
+ - Never affirm or repeat about your health what you do not wish to be true.
+ - Love is everything. It is the key to life, and its influences are those that move the world.
+ - Meet hatred with hatred and you degrade yourself. Meet hatred with love and you not only elevate yourself but also the person who bears you hatred.
+ - Individuals carry their success or failure with them. It does not depend on outside conditions.
+ - The life that goes out in love to all life is the life that is full, and rich, and continually expanding in beauty and in power.
+ - A mind always hopeful, confident, courageous, and determined on its set purpose, and keeping itself to that purpose, attracts to itself out of the elements things and powers favourable to that purpose.
+ - Have you ever fully realized that life is, after all, merely a series of habits, and that it lies entirely within one’s own power to determine just what that series shall be?
+ - Rowing against the tide is hard and uncertain. To go with the tide and thus take advantage of the workings of the great natural force is safe and easy.
+ - It is the ignorant person who seeks his or her own ends at the expense of the greater whole. It is the ignorant person, therefore, who is the selfish person. The truly wise person is never selfish.
+ - Find your centre and live in it.
+ - Religion in its true sense is the most joyous thing the human soul can know, and when the real religion is realized, we will find it to be an agent of peace, of joy, and of happiness, and never an agent of gloomy, long-faced sadness.
+ - The moment we fully and vitally realise who and what we are, we then begin to build our own World even as God builds his.
+ - The optimist is right. The pessimist is right. Point of view is the determining factor in the life of each.
+ - Within yourself lies the cause of whatever enters into your life. To come into full ralization of your own awakened interior powers is to be able to condition your life in exact accord with what you would have it.
+ - A miracle is nothing more or less than this. Anyone who has come into a knowledge of his true identity, of his oneness with the all-pervading wisdom and power, this makes it possible for laws higher than the ordinary mind knows of to be revealed to him.
+ - Every thought you entertain is a force that goes out, and every thought comes back laden with its kind.
+ - The only limitations man has are the ones he sets for himself.
+ - He alone fails who gives up and lies down.
+ - There are many who are living far below their possibilities because they are continually handing over their individualities to others. Do you want to be a power in the world? Then be yourself.
+
+20 quotes

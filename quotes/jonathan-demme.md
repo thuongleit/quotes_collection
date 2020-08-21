@@ -1,0 +1,32 @@
+ - I’m guided by my enthusiasm.
+ - When you’re working on a script, every word that’s on the page, somebody has to read it. Make every word count in your stories.
+ - Nothing beats a live performance. Nothing.
+ - I love doing fiction. I love doing performance films and I love doing documentaries that don’t have music. I love to shoot and I love to shoot things I’m enthusiastic about.
+ - I only work with actors who take full responsibility for their characters.
+ - Extraordinary people are the Green Berets and the Navy Seals and the Olympic athletes – these are the ones who can face these extraordinary physical challenges and be triumphant.
+ - It’s a funny thing with documentary films – you want them to feel as entertaining and as gripping as a fictional film. With a fictional film you want it to feel as realistic as a documentary film.
+ - Music films are great, but they can never compete with a live performance. Live music is what it is. It’s the whole point. You experience it in the moment.
+ - As a kid, a little kid, I loved going to the movies, and now I love making movies.
+ - I’m of Neil Young’s generation. Neil Young’s songs have spoken to what it’s like to be at least a white male of his generation over the years. Endlessly, he’s sung about the stuff that I really care about. He’s put into words the feelings that hit you at different transitional moments in life.
+ - I’ve never had a good game plan. At a certain point, making independent films became more and more appealing to me because I like freshness and originality.
+ - When Silence of the Lambs did well commercially it was more than anything. My partner Ed Saxon and I were just so relieved that finally we had made a movie that had made some money!
+ - Maybe that’s where the new art comes in – to somehow have your eye on the marketplace and harness your art to come up with something you can be proud of creatively.
+ - I was a sort of rock journalist – whatever that is – in London in the late ’60s.
+ - Every film deserves its own unique look.
+ - I remember the Neil Young brand hitting me very hard immediately. He wasn’t an acquired taste. I loved him immediately.
+ - I love the idea of documentaries. I love seeing documentaries, and I love making them. Documentaries are incredibly easy to shoot. The ease with which you can hear something’s going on, somebody’s going to be somewhere: That sounds so interesting. Pick up your camera and go.
+ - If you’re doing a music film, you’ve got to be singing about something. Or, you have to be singing in a vocabulary that has tremendous appeal or else people are not going to want to sit there for eighty or ninety minutes hearing this stuff.
+ - It’s such a rich experience when you enter into a subject from a documentary point of view. It’s hard for fiction to compete with that.
+ - If you’re doing a music film, you’ve got to be singing about something.
+ - I didn’t go to film school so my learning was done out in public and showed up on the screen.
+ - I like finding a great shot and then just staying with it for a long time, not trying to pump things up with some kind of artificial energy by cutting.
+ - I don’t think it’s sacrilegious to remake any movie, including a good or even great movie.
+ - I felt from time to time that shooting live music is the most purely cinematic thing you can do. Ideally, the cinema is becoming one with the music. There is little artifice involved. There’s no acting. I love it.
+ - I had very strong feelings, so the chance to make a film that deals in an imaginative way with stuff you care tremendously about is a real high. It’s a really amazing thing to be able to do.
+ - As much as I love acoustic Neil Young – and I do deeply – I may be more passionate about the electric. Luckily it’s not a contest, and we never have to make that choice. But Neil Young on an electric guitar – I feel like I’ve never seen or heard anything like it.
+ - Everything I’ve made – it doesn’t mean they’ve all been good – but everything I’ve made so far, big or little, fiction or documentary, has been something that I’ve been really enthusiastic about.
+ - I also feel that the only thing more gratifying than working with someone who you’ve worked well with is working with someone new and coming up with something great.
+ - A trilogy is a pretty abstract notion. You can apply it to almost any three things.
+ - I don’t think of Storefront Hitchcock or Stop Making Sense as documentaries, I think of them more as performance films.
+
+30 quotes

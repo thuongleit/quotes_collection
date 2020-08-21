@@ -1,0 +1,100 @@
+ - I find beauty in melancholy.
+ - There is no better designer than nature.
+ - You’ve got to know the rules to break them. That’s what I’m here for, to demolish the rules but to keep the tradition.
+ - I want people to be afraid of the women I dress.
+ - It is important to look at death because it is a part of life. It is a sad thing, melancholy but romantic at the same time. It is the end of a cycle – everything has to end. The cycle of life is positive because it gives room for new things.
+ - You can only go forward by making mistakes.
+ - The world needs fantasy, not reality. We have enough reality today.
+ - I’m the pink sheep in the family.
+ - I am a melancholy type of person.
+ - There comes a time in your life when you focus solely on what you believe is right, regardless of what everybody else is doing.
+ - There is no way back for me now, I’m going to take you on journeys you’ve never dreamed possible.
+ - You can only go forward by making mistakes. I’m twenty-seven, not fifty-seven. I’m not Givenchy, I’m Alexander McQueen.
+ - I think there is beauty in everything. What ‘normal’ people would perceive as ugly, I can usually see something of beauty in it.
+ - I find beauty in the grotesque, like most artists.
+ - It’s almost like putting armor on a woman. It’s a very psychological way of dressing.
+ - It’s the ugly things I notice more, because other people tend to ignore the ugly things.
+ - Fashion should be a form of escapism, and not a form of imprisonment.
+ - People find my things sometimes aggressive. But I don’t see it as aggressive. I see it as romantic, dealing with a dark side of personality.
+ - I oscillate between life and death, happiness and sadness, good and evil.
+ - Fashion is self confident and fearless.
+ - Sting’s my ideal man, because he’s a real man.
+ - Give me time and I’ll give you a revolution.
+ - It needs to connect with the earth. Things that are processed and reprocessed lose their substance.
+ - I am married to work.
+ - I want to empower women.
+ - I never look at other people’s work. My mind has to be completely focused on my own illusions.
+ - There has to be a balance between your mental satisfaction and the financial needs of your company.
+ - I feel more Scottish than Norman.
+ - I don’t want to be too proud, but I have a good personal style.
+ - The explosion of museum exhibitions is only a mirror image of what has happened to fashion itself this millennium. With the force of technology, instant images and global participation, fashion has developed from being a passion for a few to a fascination – and an entertainment – for everybody.
+ - There are only a handful of designers that influence other designers, and I have to keep one step ahead of the game.
+ - Really, what I’m aiming for is world domination!
+ - There is a hidden agenda in the fragility of romance.
+ - I came to terms with not fitting in a long time ago. I never really fitted in. I don’t want to fit in. And now people are buying into that.
+ - There’s blood beneath every layer of skin.
+ - Women should look like women. A piece of cardboard has no sexuality.
+ - I’m not big on women looking naive.
+ - For a long time I was looking for my perfect equilibrium, my mojo. And now I think I’m getting there: I’ve found my customer, my silhouette, my cut.
+ - Rap music’s been around for too long now to be inspirational. The words are, but the music isn’t.
+ - Birds in flight fascinate me. I admire eagles and falcons. I’m inspired by a feather but also its color, its graphics, its weightlessness and its engineering. It’s so elaborate. In fact I try and transpose the beauty of a bird to women.
+ - I used flowers because they die. My mood was darkly romantic at the time.
+ - You’ve got to know the rules to break them.
+ - Of course I make mistakes. I’m human. If I didn’t make mistakes, I’d never learn. You can only go forward by making mistakes.
+ - When I’m dead and gone, people will know that the twenty-first century was started by Alexander McQueen.
+ - I spent a long time learning how to construct clothes, which is important to do before you can deconstruct them.
+ - If you ask any lady they want to be taller, they want to be slimmer, you know, and they want a waist. I’m not here to make people look like a sack of potatoes.
+ - I don’t want to do a cocktail party. I’d rather people left my shows and vomited.
+ - For people who know McQueen, there is always an underlying message. It’s usually only the intellectual ones who understand what’s going on in what I do.
+ - I believe in that one-on-one sell. I don’t really believe in flooding the market with loads of goods that don’t mean much, and you lose your identity.
+ - These beautiful models were walking around in the room, and then suddenly this woman who wouldn’t be considered beautiful was revealed. It was about trying to trap something that wasn’t conventionally beautiful to show that beauty comes from within.
+ - People don’t want to see clothes, they want to see something that fuels the imagination.
+ - As a designer, you’ve always got to push yourself forward; you’ve always got to keep up with the trends or make your own trends. That’s what I do.
+ - I’m prepared to forget about money if it affects my creativity because, remember, I started off with nothing. And I can do that again.
+ - There’s beauty in anger, and anger for me is a passion.
+ - I hate it when people romanticize Scotland.
+ - I work with people I admire and respect. It’s never because of who they are.
+ - The turnover of fashion is just so quick and so throwaway, and I think that is a big part of the problem. There is no longevity.
+ - British fashion is self confident and fearless. It refuses to bow to commerce, thus generating a constant flow of new ideas whilst drawing in British heritage.
+ - I was never a big networker, but I was a spin doctor, all those shock shows, that’s how I got my first backers. But fashion’s a scary industry to be in, especially if you’ve not grown up with it.
+ - You can hide so much behind theatrics, and I don’t need to do that any more.
+ - I think there is beauty in everything.
+ - There is something sinister, something quite biographical about what I do – but that part is for me. It’s my personal business. I think there is a lot of romance, melancholy. There’s a sadness to it, but there’s romance in sadness. I suppose I am a very melancholy person.
+ - I like things to be modern and still have a bit of tradition.
+ - I was three years old when I started drawing. I did it all my life.
+ - Now I design what I want to wear, and it works that way.
+ - It’s a new era in fashion – there are no rules. It’s all about the individual and personal style, wearing high-end, low-end, classic labels, and up-and-coming designers all together.
+ - If you’re an open book, there’s no allure.
+ - Fame should be left to the film stars.
+ - I come from a different era and I design clothes for our era. I think of people I want to dress when I design.
+ - I’m mad in the front of my mind, but business-minded in the back.
+ - Menswear is about subtlety. It’s about good style and good taste.
+ - I’ve had good times; I’ve had bad times.
+ - It’s not my vision when I cover a woman’s face with a chador. I got the idea from a ‘National Geographic’ photo. I’m just showing their plight in the world.
+ - I’m about what goes through people’s minds. The stuff that people don’t want to admit or face up to. The shows are about what’s buried in people’s psyches.
+ - I think I should be a president. President of the United States.
+ - I think the idea of mixing luxury and mass-market fashion is very modern, very now – no one wears head-to-toe designer anymore.
+ - For me, what I do is an artistic expression which is channeled through me. Fashion is just the medium.
+ - The police need to come down to street level.
+ - I’m interested in designing for posterity.
+ - I’m 40 now, but I want this to be a company that lives way beyond me, and I believe that customers are more important to making that happen than press. When I’m dead, hopefully this house will still be going. On a spaceship. Hopping up and down above earth.
+ - I think sometimes I might scare the editors, because they might feel they’re getting old and they’re not understanding it. The problem lies on their side of the fence, not mine. I come from a different era and I design clothes for our era.
+ - When a woman gets dressed up to go out at night, she wants to give 50% away, and hold the rest back. If you’re an open book, there’s no allure.
+ - I can design a collection in a day and I always do, cause I’ve always got a load of Italians on my back, moaning that it’s late.
+ - Some couture collections have everything including the kitchen sink! Everything gets thrown on to make it look expensive.
+ - It’s good to know where you come from. It makes you what you are today. It’s DNA, it’s in your blood.
+ - You find a lot of ideas from my shows in adverts now. I find it a compliment.
+ - If you’re lucky enough to use something you see in a dream, it is purely original. It’s not in the world – it’s in your head. I think that is amazing.
+ - I like the concept of dressing people. I used to not care whether people bought the clothes or not, but I kind of like it now. I wouldn’t label that commercialism; it’s more like I do this work because I want people to wear it.
+ - My relationships with producers or photographers – these are relationships that took years.
+ - Style is not about the clothes, it’s about the individual.
+ - You can get insular with fashion.
+ - I just want to be a wallflower. Nondescript. Just not anything. I don’t want to see me.
+ - Some couture collections have everything including the kitchen sink! Everything gets thrown on to make it look expensive. I find it grotesque when clothes hit you in the face and there’s no room for fault. But I don’t expect to turn things around all by myself. I’m not a saint.
+ - I can’t get sucked into that celebrity thing, because I think it’s just crass.
+ - When you see a woman wearing McQueen, there’s a certain hardness to the clothes that makes her look powerful. It kind of fends people off.
+ - I like the idea of infiltrating an area that is not really exposed to me or my work.
+ - I always wanted to be a designer. I read books on fashion from the age of 12.
+ - Youth culture now really looks back and embraces the past, but keeps it contemporary but not sticking to one particular style.
+
+98 quotes

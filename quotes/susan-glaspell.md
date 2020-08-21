@@ -1,0 +1,32 @@
+ - There is good and there is bad in every human heart, and it is the struggle of life to conquer the bad with the good.
+ - To cease to love – that is defeat.
+ - The facts of another’s life do not illumine. Only when we know the heart can we know that life. Only the feeling that made the days can light them.
+ - Resentment opens no door and breeds no courage.
+ - It is through suppression that hells are formed in us.
+ - Those who never sail stormy waters are the quickest and harshest judges of bad seamanship.
+ - Not having children makes less work-but it makes a quiet house.
+ - What men have thought about life in the past is less important than what you feel about it to-day.
+ - A clock is a little machine that shuts us out from the wonder of time.
+ - For nothing is so hard to hear as that which is half known, and evaded. One never denies so hotly as in denying to one’s self what one fears is true, and one never resents so bitterly as in resenting that which one cannot say one has the right to resent.
+ - We all go through the same things – it’s all just a different kind of the same thing.
+ - They made small effort to cover their raw souls with the mantle of commonplace words.
+ - Be the most you can be, so life will be more because you were.
+ - Im an American. Weve translated democracy and brotherhood and equality into enterprise and opportunity and success – and thats getting Americanised.
+ - Seems nothing draws men together like killing other men.
+ - What is a clock? Something agreed upon and arbitrarily imposed upon us. Standard time. Not true time. Symbolizing the whole standardization of our lives.
+ - There’s one form of immortality I like to think about. It’s that all those who from the very first have given anything to the world are living in the world to-day.
+ - The only man who knows just what he thinks at the present moment is the man who hasn’t done any new thinking in the past ten years.
+ - Strength diminishes when it seems we are spending it in vain.
+ - I can’t think of any sorrow in the world that a hot bath wouldn’t help, just a little bit.
+ - Hurts of childhood live on; in one form or other they are there to the end.
+ - As I grow older, I think friendship between women is a thing to cherish.
+ - I go about in the world – free, busy, happy. Among people, I have no time to think of myself.
+ - What we seek we do not find – that would be too trim and tidy for so reckless and opulent a thing as life. It is something else we find.
+ - Some days are happy days – of themselves, as if for their own sakes. They seem to be enjoying themselves, regardless of what use may be made of them.
+ - Even though you’ve given up a past it hasn’t given you up. It comes uninvited – and sometimes half welcome.
+ - I am glad I worked on a newspaper because it made me know I had to write whether I felt like it or not.
+ - Chicago is many things to many people, and to me, it is a place where you can write.
+ - That’s the worst of a war – you have to go on hearing about it so long.
+ - Defeat furnishes good material to the poets and the artists, but none of us care to have the glory of the conquered apply to us.
+
+30 quotes

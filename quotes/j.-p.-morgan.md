@@ -1,0 +1,33 @@
+ - Gold is money. Everything else is credit.
+ - Money equals business which equals power, all of which come from character and trust.
+ - When you expect things to happen – strangely enough – they do happen.
+ - A man always has two reasons for doing anything: a good reason and the real reason.
+ - Anyone can be a millionaire, but to become a billionaire you need an astrologer.
+ - I made a fortune getting out too soon.
+ - Decide that you are not going to stay where you are.
+ - If you have to ask how much it costs, you can’t afford it.
+ - You can’t pick cherries with your back to the tree.
+ - Millionaires don’t have astrologers, billionaires do.
+ - Let every lion do his duty.
+ - When asked what the stock market will do: It will fluctuate.
+ - A man always has two reasons for doing anything: a good reason and the real reason. Let us be like the man of the frontier and always reveal with utmost honesty our real reasons for all that we do.
+ - You can’t unscramble eggs.
+ - Money is gold, and nothing else.
+ - The key to living a moral life is this: Do nothing in private that you would be ashamed to discuss openly with your mother.
+ - The wise man bridges the gap by laying out the path by means of which he can get from where he is to where he wants to go.
+ - No sir. The first thing is character.
+ - I’ll do business with anyone, but I’ll only go sailing with gentlemen.
+ - Well, I don’t know as I want a lawyer to tell me what I cannot do. I hire him to tell how to do what I want to do.
+ - I’m not in Wall Street for my health.
+ - Anyone who has to ask about the annual upkeep of a yacht can’t afford one.
+ - Anybody has a right to evade taxes if he can get away with it. No citizen has a moral obligation to assist in maintaining his government.
+ - I do not remember in my whole life I ever willfully misrepresented anything to anybody at any time. I have never knowingly had connection with a fraudulent scheme.
+ - You are affluent when you buy what you want, do what you wish and don’t give a thought to what it costs.
+ - Any man who is a bear on the future of this country will go broke.
+ - No problem can be solved until it is reduced to some simple form. The changing of a vague difficulty into a specific, concrete form is a very essential element in thinking.
+ - Gold is Money. That’s it.
+ - If that’s all he can get, and he takes it, I should say it’s enough.
+ - Giving debt relief to people that really need it, that’s what foreclosure is.
+ - Congress should know how to levy taxes, and if it doesn’t know how to collect them, then a man is a fool to pay the taxes.
+
+31 quotes

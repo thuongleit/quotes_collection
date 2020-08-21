@@ -1,0 +1,29 @@
+ - I’m going to help the committee regardless of any position I have. I will volunteer to be a summer intern.
+ - If a president can change some laws, can he change ALL laws? Can he change election laws? Can he change discrimination laws? Are there any laws, under your theory, that he actually HAS to enforce?
+ - She was fabulously wrong when she said it the first time, and stunningly arrogant in her refusal to express any regret for lying to our fellow citizens.
+ - Facts are neither Republican nor Democrat.
+ - It always matters whether or not you can trust your government.
+ - What is our recourse, Mr. Speaker? What is our remedy?
+ - If you can turn off certain categories of law, do you not also have the power to turn off all categories of law?
+ - These last few years we’ve seen an unacceptable abuse of power, having a president whose priority is expanding his own power.
+ - The president already has a Nobel Prize for peace. I think he’s shooting for one in fiction.
+ - My daughter took Latin for three years; she still cant speak it.
+ - No law can give Congress a backbone if it refuses to stand off as the coequal branch the Constitution made it.
+ - What do we do with a president who can basically change what Congress passed by attaching a letter saying I don’t agree with this part or that part?
+ - I would love the chance to ask follow-up questions of Susan Rice because David Gregory apparently did not avail himself of that opportunity. Greta, I just listened to the clip – I get tougher questions in the Bojangles drive-through than he asked her.
+ - When you go into public service, you understand you’re trading something. You want to feel good about what you do, but you’re not going to make what people in private sector make.
+ - You know, in the oath that brand-new citizens take, it contains six different references to ‘the law.’ If it’s good enough for us to ask brand-new citizens to affirm their devotion to the law, is it too much to ask that the president do the same?
+ - There’s a reason that students don’t grade their own papers. There’s a reason defendants don’t sentence themselves. And there’s the reason the State Department doesn’t get to investigate itself, determine whether or not it made errors in Benghazi. That is Congress’s job.
+ - While people are free to draw different conclusions from the facts, there should be no debate over whether the American public is entitled to have all of the facts.
+ - I’m unelectable in the District of Columbia.
+ - The notion that the First Amendment has no limitations whatsoever is balderdash.
+ - I can tell you this. It is not going to be evenly constituted and when she was Speaker Pelosi, she certainly showed no interests in having an equal number of Republicans and Democrats.
+ - The same Constitution that allows her the right, if she wants to, to sit there and say nothing, allows these groups the right to petition their government for redress.
+ - I don’t like bonuses for public services employees who do great jobs, like prosecutors or judges.
+ - Members of Congress are incredibly blessed and fortune to have the jobs that we have. Nobody makes us run. Every two years we offer for public office, and if you don’t want to do it then don’t run. But the notion that you can make $174,000 in this country and be underpaid is laughable.
+ - Your memo is trumping a Congressional statute. You don’t have the discretion on whether to follow the law or not.
+ - I taught the Constitution for ten years, I believe in the Constitution.
+ - There’s no way we can get to the bottom of Benghazi without David Petraeus.
+ - I don’t have an issue with whether – from a legal standpoint, with whether or not government can impose the ultimate punishment on people. We do it in capital cases. Police officers shoot fleeing felons.
+
+27 quotes

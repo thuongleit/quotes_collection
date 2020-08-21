@@ -1,0 +1,440 @@
+ - Quality is never an accident. It is always the result of intelligent effort.
+ - The best thing in life aren’t things.
+ - When love and skill work together, expect a masterpiece.
+ - Work first, and then rest.
+ - Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.
+ - The highest reward for a person’s toil is not what they get for it, but what they become by it.
+ - What we think or what we know or what we believe is in the end of little consequence. The only thing of consequence is what we do.
+ - Skill is the unified force of experience, intellect and passion in their operation.
+ - Living without an aim, is like sailing without a compass.
+ - No individual rain drop ever considers itself responsible for the flood.
+ - A little thought and a little kindness are often worth more than a great deal of money.
+ - There is hardly anything in the world that some man cannot make a little worse and sell a little cheaper, and the people who consider price only are this man’s lawful prey.
+ - It is better to lose your pride with someone you love rather than to lose that someone you love with your useless pride.
+ - Kind hearts are the garden, kind thoughts are the roots, kind words are the blossoms, kind deeds are the fruit.
+ - It’s unwise to pay too much, but it’s worse to pay too little.
+ - A book worth reading is worth buying.
+ - Endurance is nobler than strength, and patience than beauty.
+ - Labour without joy is base. Labour without sorrow is base. Sorrow without labour is base. Joy without labour is base.
+ - Dream lofty dreams, and as you dream, so shall you become.
+ - When we build, let us think that we build forever. Let it not be for present delight nor for our use alone. Let it be such work as our descendants will look upon with praise and thanksgiving in their hearts.
+ - No nation can last which has made a mob of itself, however generous at heart.
+ - All great and beautiful work has come of first gazing without shrinking into the darkness.
+ - The purest and most thoughtful minds are those which love colour the most.
+ - When a man is wrapped up in himself, he makes a pretty small package.
+ - There is no wealth but life.
+ - I know well that happiness is in little things.
+ - Every noble life leaves its fibre interwoven forever in the work of the world.
+ - There is no music in a “rest” that I know of, but there’s the making of music in it. And people are always missing that part of the life melody.
+ - Hundreds of people can talk for one who can think.
+ - The common practice of keeping up appearances with society is a mere selfish struggle of the vain with the vain.
+ - Let every dawn be to you as the beginning of life, and every setting sun be to you as its close.
+ - Every duty we omit obscures some truth we should have known.
+ - Drawing is a means of obtaining and communicating knowledge.
+ - The power of association is stronger than the power of beauty; therefore, the power of association is the power of beauty.
+ - One can’t be angry when one looks at a penguin.
+ - Architecture is the art which so disposes and adorns the edifices raised by man, that the sight of them may contribute to his mental health, power, and pleasure.
+ - Mighty of heart, mighty of mind, magnanimous-to be this is indeed to be great in life.
+ - All art is but dirtying the paper delicately.
+ - We require from buildings two kinds of goodness: first, the doing their practical duty well: then that they be graceful and pleasing in doing it.
+ - You may either win your peace or buy it: win it, by resistance to evil; buy it, by compromise with evil.
+ - I believe the first test of a truly great man is in his humility.
+ - Art is not a study of positive reality, it is the seeking for ideal truth.
+ - God gives us always strength enough, and sense enough, for everything He wants us to do.
+ - It is far more difficult to be simple than to be complicated.
+ - In general, pride is at the bottom of all great mistakes.
+ - You should read books like you take medicine, by advice, and not by advertisement.
+ - Blue color is everlastingly appointed by the deity to be a source of delight.
+ - Genius is only a superior power of seeing.
+ - Mountains are the beginning and the end of all natural scenery.
+ - Death is not a journey into an unknown land; it is a voyage home. We are going, not to a strange country, but to our fathers house.
+ - Life without industry is guilt. Industry without Art is Brutality.
+ - Government and cooperation are in all things the laws of life. Anarchy and competition, the laws of death.
+ - Give a little love to a child, and you get a great deal back.
+ - Every increased possession loads us with a new weariness.
+ - Great nations write their autobiographies in three manuscripts – the book of their deeds, the book of their words and the book of their art.
+ - The truth of Nature is a part of the truth of God; to him who does not search it out, darkness; to him who does, infinity.
+ - The actual flower is the plant’s highest fulfilment, and are not here exclusively for herbaria, county floras and plant geography: they are here first of all for delight.
+ - When God shuts a door, He opens a window.
+ - Architecture is the work of nations.
+ - We were not sent into this world to do anything into which we cannot put our hearts.
+ - Not only is there but one way of doing things rightly, but there is only one way of seeing them, and that is, seeing the whole of them.
+ - All you have really to do is to keep your back as straight as you can; and not think about what is upon it. The real and essential meaning of “virtue” is that straightness of back.
+ - If you want to work for the kingdom of God, and to bring it, and enter into it, there is just one condition to be first accepted. You must enter into it as children, or not at all.
+ - The sculptor does not work for the anatomist, but for the common observer of life and nature.
+ - The distinguishing sign of slavery is to have a price, and to be bought for it.
+ - The distinctive character of a child is to always live in the tangible present.
+ - The question is not what man can scorn, or disparage, or find fault with, but what he can love, and value, and appreciate.
+ - I would rather teach drawing that my pupils may learn to love nature, than teach the looking at nature that they may learn to draw.
+ - The first test of a truly great man is his humility. By humility I don’t mean doubt of his powers or hesitation in speaking his opinion, but merely an understanding of the relationship of what he can say and what he can do.
+ - The finer the nature, the more flaws it will show through the clearness of it; and it is a law of this universe that the best things shall be seldomest seen in their best form.
+ - The spirit needs several sorts of food of which knowledge is only one.
+ - You will find that the mere resolve not to be useless, and the honest desire to help other people, will, in the quickest and delicatest ways, improve yourself.
+ - Modern travelling is not travelling at all; it is merely being sent to a place, and very little different from becoming a parcel.
+ - Education is the leading of human souls to what is best, and making what is best out of them.
+ - To be able to ask a question clearly is two-thirds of the way to getting it answered.
+ - Walk while ye have the light, lest darkness come upon you.
+ - The measure of any great civilization is its cities and a measure of a city’s greatness is to be found in the quality of its public spaces, its parks and squares.
+ - The essence of lying is in deception, not in words.
+ - Imperfection is in some sort essential to all that we know of life. It is the sign of life in a mortal body, that is to say, of a state of progress and change. Nothing that lives is, or can be rigidly perfect; part of it is decaying, part nascent.
+ - Do not think of your faults, still less of other’s faults; look for what is good and strong, and try to imitate it. Your faults will drop off, like dead leaves, when their time comes.
+ - Ship of the line is the most honourable thing that man, as a gregarious animal, has ever produced.
+ - Flowers seem intended for the solace of ordinary humanity.
+ - The path of a good woman is indeed strewn with flowers; but they rise behind her steps, not before them.
+ - When we build, let us think that we build forever.
+ - In all things that live there are certain irregularities, and deficiencies which are not only signs of life, but sources of beauty. No human face is exactly the same in its lines on each side, no leaf perfect in its lobes, no branch in its symmetry.
+ - Of all God’s gifts to the sighted man, color is holiest, the most divine, the most solemn.
+ - Life being very short, and the quiet hours of it few, we ought to waste none of them in reading valueless books.
+ - He only is advancing in life whose heart is getting softer, whose blood warmer, whose brain quicker, whose spirit is entering into living peace. And the men who have this life in them are the true lords or kings of the earth they, and they only.
+ - To banish imperfection is to destroy expression, to check exertion, to paralyze vitality.
+ - All of one’s life is music, if one touches the notes rightly, and in time.
+ - The man who accepts the laissez-faire doctrine would allow his garden to grow wild so that roses might fight it out with the weeds and the fittest might survive.
+ - Fine art is that in which the hand, the head, and the heart of man go together.
+ - Not without design does God write the music of our lives.
+ - God will put up with a great many things in the human heart, but there is one thing that He will not put up with in it – a second place. He who offers God a second place, offers Him no place.
+ - No person who is not a great sculptor or painter can be an architect. If he is not a sculptor or painter, he can only be a builder.
+ - We have much studied and much perfected, of late, the great civilized invention of the division of labour; only we give it a false name. It is not, truly speaking, the labour that is divided; but the men.
+ - God alone can finish.
+ - He thinks by infection, catching an opinion like a cold.
+ - An infinitude of tenderness is the chief gift and inheritance of all truly great men.
+ - Do not think it wasted time to submit yourself to any influence that will bring upon you any noble feeling.
+ - In order that people may be happy in their work, these three things are needed: They must be fit for it. They must not do too much of it. And they must have a sense of success in it.
+ - Spiritual power begins by directing animal power to other than egoistic ends.
+ - Beauty deprived of its proper foils and adjuncts ceases to be enjoyed as beauty, just as light deprived of all shadows ceases to be enjoyed as light.
+ - No human being, however great, or powerful, was ever so free as a fish.
+ - He who offers God a second place offers Him no place.
+ - Of all the affected, sapless, soulless, beginningless, endless, topless, bottomless, topsiturviest, scrannel- pipiest, tongs and boniest doggerel of sounds I ever endured the deadliest of, that eternityof nothing wasthe deadliest.
+ - Without mountains the air could not be purified, nor the flowing of the rivers sustained.
+ - Fit yourself for the best society, and then, never enter it.
+ - Imaginary evils soon become real one by indulging our reflections on them.
+ - Repose demands for its expression the implied capability of its opposite, – energy.
+ - Without the perfect sympathy with the animals around them, no gentleman’s education, no Christian education, could be of any possible use.
+ - Levi’s station in life was the receipt of custom; and Peter’s, the shore of Galilee; and Paul’s, the antechambers of the High- Priest, which “station in life” each had to leave, with brief notice.
+ - They are good furniture pictures, unworthy of praise, and undeserving of blame.
+ - The constant duty of every man to his fellows is to ascertain his own powers and special gifts, and to strengthen them for the help of others.
+ - Science lives only in quiet places, and with odd people, mostly poor.
+ - You can only possess beauty through understanding it.
+ - If you do not wish for His kingdom do not pray for it. But if you do you must do more than pray for it, you must work for it.
+ - The anger of a person who is strong, can always bide its time.
+ - The Bible is the one Book to which any thoughtful man may go with any honest question of life or destiny and find the answer of God by honest searching.
+ - The first condition of education is being able to put someone to wholesome and meaningful work.
+ - Greatness is the aggregation of minuteness; nor can its sublimity be felt truthfully by any mind unaccustomed to the affectionate watching of what is least.
+ - All other passions do occasional good; but when pride puts in its word everything goes wrong.
+ - No peace was ever won from fate by subterfuge or argument; no peace is ever in store for any of us, but that which we shall win by victory over shame or sin – victory over the sin that oppresses, as well as over that which corrupts.
+ - The force of the guinea you have in your pocket depends wholly on the default of a guinea in your neighbour’s pocket. If he did not want it, it would be of no use to you.
+ - Whenever you see want or misery or degradation in this world about you, then be sure either industry has been wanting, or industry has been in error.
+ - Though you may have known clever men who were indolent, you never knew a great man who was so; and when I hear a young man spoken of as giving promise of great genius, the first question I ask about him always is, Does he work?
+ - To yield reverence to another, to hold ourselves and our lives at his disposal, is not slavery; often, it is the noblest state in which a man can live in this world.
+ - This is the true nature of home – it is the place of Peace; the shelter, not only from all injury, but from all terror, doubt, and division.
+ - Nature is painting for us, day after day, pictures of infinite beauty.
+ - A man is one whose body has been trained to be the ready servant of his mind; whose passions are trained to be the servants of his will; who enjoys the beautiful, loves truth, hates wrong, loves to do good, and respects others as himself.
+ - No one can do me any good by loving me; I have more love than I need or could do any good with; but people do me good by making me love them – which isn’t easy.
+ - Remember that the most beautiful things in the world are the most useless; peacocks and lilies for instance.
+ - Better the rudest work that tells a story or records a fact, than the richest without meaning.
+ - Nothing can be beautiful which is not true.
+ - As in the instances of alchemy, astrology, witchcraft, and other such popular creeds, political economy, has a plausible idea at the root of it.
+ - Life is a magic vase filled to the brim, so made that you cannot dip from it nor draw from it; but it overflows into the hand that drops treasures into it. Drop in malice and it overflows hate; drop in charity and it overflows love.
+ - If some people really see angels where others see only empty space, let them paint the angels: only let not anybody else think they can paint an angel too, on any calculated principles of the angelic.
+ - Give me some mud off a city crossing, some ochre out of a gravel pit and a little whitening and some coal dust and I will paint you a luminous picture if you give me time to gradate my mud and subdue my dust.
+ - No one can explain how the notes of a Mozart melody, or the folds of a piece of Titian’s drapery, produce their essential effects. If you do not feel it, no one can by reasoning make you feel it.
+ - It is written on the arched sky; it looks out from every star. It is the poetry of Nature; it is that which uplifts the spirit within us.
+ - He who has truth at his heart need never fear the want of persuasion on his tongue.
+ - The work of science is to substitute facts for appearances, and demonstrations for impressions.
+ - Pleasure comes through toil, and not by self indulgence and indolence. When one gets to love work, his life is a happy one.
+ - Curiosity is a gift, a capacity of pleasure in knowing, which if you destroy, you make yourself cold and dull.
+ - Shadows are in reality, when the sun is shining, the most conspicuous thing in a landscape, next to the highest lights.
+ - That admiration of the ‘neat but not gaudy,’ which is commonly reported to have influenced the devil when he painted his tail pea green.
+ - Ornamentation is the principal part of architecture, considered as a subject of fine art.
+ - Beethoven always sounds to me like the upsetting of a bag of nails, with here and there an also dropped hammer.
+ - Come, ye cold winds, at January’s call, On whistling wings, and with white flakes bestrew The earth.
+ - If you want knowledge, you must toil for it; if food, you must toil for it; and if pleasure, you must toil for it: toil is the law.
+ - To make your children capable of honesty is the beginning of education.
+ - A man is born an artist as a hippopotamus is born a hippopotamus; and you can no more make yourself one than you can make yourself a giraffe.
+ - See! This our fathers did for us.
+ - What is poetry? The suggestion, by the imagination, of noble grounds for the noble emotions.
+ - It is a good and safe rule to sojourn in every place as if you meant to spend your life there, never omitting an opportunity of doing a kindness, or speaking a true word, or making a friend.
+ - I will not kill or hurt any living creature needlessly, nor destroy any beautiful thing, but will strive to save and comfort all gentle life, and guard and perfect all natural beauty upon the earth.
+ - The great cry that rises from all our manufacturing cities, louder than the furnace blast, is all in very deed for this – that we manufacture everything there except men.
+ - Anything which elevates the mind is sublime. Greatness of matter, space, power, virtue or beauty, are all sublime.
+ - Books are divided into two classes, the books of the hour and the books of all time.
+ - That country is the richest which nourishes the greatest number of noble and happy human beings.
+ - He who is not actively kind is cruel!
+ - No one can become rich by the efforts of only their toil, but only by the discovery of some method of taxing the labor of others.
+ - To watch the corn grow, or the blossoms set; to draw hard breath over the plough or spade; to read, to think, to love, to pray are the things that make men happy.
+ - The last act crowns the play.
+ - The noble grotesque involves the true appreciation of beauty.
+ - In one point of view, Gothic is not only the best, but the only rational architecture, as being that which can fit itself most easily to all services, vulgar or noble.
+ - A little group of wise hearts is better than a wilderness full of fools.
+ - No lying knight or lying priest ever prospered in any age, but especially not in the dark ones. Men prospered then only in following an openly declared purpose, and preaching candidly beloved and trusted creeds.
+ - There is a working class – strong and happy – among both rich and poor: there is an idle class – weak, wicked, and miserable – among both rich and poor.
+ - Much of the character of everyman may be read in his house.
+ - Expression, sentiment, truth to nature, are essential: but all those are not enough. I never care to look at a picture again, if it be ill composed; and if well composed I can hardly leave off looking at it.
+ - However good you may be you have faults; however dull you may be you can find out what some of them are, and however slight they may be you had better make some – not too painful, but patient efforts to get rid of them.
+ - There was always more in the world than men could see, walked they ever so slowly; they will see it no better for going fast. The really precious things are thought and sight, not pace.
+ - They are the weakest-minded and the hardest-hearted men that most love change.
+ - Our duty is to preserve what the past has had to say for itself, and to say for ourselves what shall be true for the future.
+ - Trust thou thy Love: if she be proud, is she not sweet? Trust thou thy love: if she be mute, is she not pure? Lay thou thy soul full in her hands, low at her feet- Fail, Sun and Breath!-yet, for thy peace, she shall endure.
+ - I used to lie down on the grass and draw the blades as they grew – until every square foot of meadow, or mossy bank, became a possession to me.
+ - Value is the life-giving power of anything; cost, the quantity of labour required to produce it; its price, the quantity of labourwhich its possessor will take in exchange for it.
+ - The history of humanity is not the history of its wars, but the history of its households.
+ - All that is good in art is the expression of one soul talking to another, and is precious according to the greatness of the soul that utters it.
+ - The sky is the part of creation in which nature has done for the sake of pleasing man.
+ - A forest of all manner of trees is poor, if not disagreeable, in effect; a mass of one species of tree is sublime.
+ - God intends no man to live in this world without working, but it seems to me no less evident that He intends every man to be happy in his work.
+ - Man’s only true happiness is to live in hope of something to be won by him. Reverence something to be worshipped by him, and love something to be cherished by him, forever.
+ - Failure is less attributable to either insufficiency of means or impatience of labours than to a confused understanding of the thing actually to be done.
+ - Work first and then rest. Work first, and then gaze, but do not use golden ploughshares, nor bind ledgers in enamel.
+ - Conceit may puff a man up, but never prop him up.
+ - It is far more difficult to be simple than to be complicated; far more difficult to sacrifice skill and easy execution in the proper place, than to expand both indiscriminately.
+ - That which seems to be wealth may in verity be only the gilded index of far reaching ruin.
+ - Sculpture is not the mere cutting of the form of anything in stone; it is the cutting of the effect of it. Very often the true form, in the marble, would not be in the least like itself.
+ - I do not believe that any peacock envies another peacock his tail, because every peacock is persuaded that his own tail is the finest in the world. The consequence of this is that peacocks are peaceable birds.
+ - You will never love art well until you love what she mirrors better.
+ - Science has to do with facts, art with phenomena. To science, phenomena are of use only as they lead to facts; and to art, facts are of use only as they lead to phenomena.
+ - There is nothing that this age, from whatever standpoint we survey it, needs more, physically, intellectually, and morally, than thorough ventilation.
+ - Engraving then, is, in brief terms, the Art of Scratch.
+ - Contrast increases the splendor of beauty, but it disturbs its influence; it adds to its attractiveness, but diminishes its power.
+ - There is no solemnity so deep, to a right-thinking creature, as that of dawn.
+ - No art can be noble which is incapable of expressing thought, and no art is capable of expressing thought which does not change.
+ - There is rough work to be done, and rough men must do it; there is gentle work to be done, and gentlemen must do it.
+ - No person who is well bred, kind and modest is ever offensively plain; all real deformity means want for manners or of heart.
+ - If we pretend to have reached either perfection or satisfaction, we have degraded ourselves and our work. God’s work only may express that, but ours may never have that sentence written upon it, Behold it was very good.
+ - All men who have sense and feeling are being continually helped; they are taught by every person they meet, and enriched by everything that falls in their way. The greatest, is he who has been oftenest aided. Originality is the observing eye.
+ - Taste is the only morality. Tell me what you like and I’ll tell you what you are.
+ - There are many religions, but there is only one morality.
+ - Nobody cares much at heart about Titian, only there is a strange undercurrent of everlasting murmur about his name, which means the deep consent of all great men that he is greater than they.
+ - Punishment is the last and the least effective instrument in the hands of the legislator for the prevention of crime.
+ - It seems a fantastic paradox, but it is nevertheless a most important truth, that no architecture can be truly noble which is not imperfect.
+ - The true grotesque being the expression of the repose or play of a serious mind, there is a false grotesque opposed to it, which is the result of the full exertion of a frivolous one.
+ - There is material enough in a single flower for the ornament of a score of cathedrals.
+ - You may assuredly find perfect peace, if you are resolved to do that which your Lord has plainly required – and content that He should indeed require no more of you – than to do justice, to love mercy, and to walk humbly with Him.
+ - The strength and power of a country depends absolutely on the quantity of good men and women in it.
+ - Your art is to be the praise of something that you love. It may only be the praise of a shell or a stone.
+ - Imperfection is in some sort essential to all that we know in life.
+ - Say all you have to say in the fewest possible words, or your reader will be sure to skip them; and in the plainest possible words or he will certainly misunderstand them.
+ - The art which we may call generally art of the wayside, as opposed to that which is the business of men’s lives, is, in the best sense of the word, Grotesque.
+ - Cheerfulness is as natural to the heart of a man in strong health as color to his cheek; and wherever there is habitual gloom there must be either bad air, unwholesome food, improperly severe labor, or erring habits of life.
+ - Sky is the part of creation in which Nature has done more for the sake of pleasing man, more for the sole and evident purpose of talking to him and teaching him, than in any other of her works, and it is just the part in which we least attend to her.
+ - It is his restraint that is honorable to a person, not their liberty.
+ - Let us reform our schools, and we shall find little reform needed in our prisons.
+ - We may live without her, and worship without her, but we cannot remember without her. How cold is all history, how lifeless all imagery, compared to that which the living nation writes, and the uncorrupted marble bears!
+ - No small misery is caused by overworked and unhappy people, in the dark views which they necessarily take up themselves, and force upon others, of work itself.
+ - Men are more evanescent than pictures, yet one sorrows for lost friends, and pictures are my friends. I have none others. I am never long enough with men to attach myself to them; and whatever feelings of attachment I have are to material things.
+ - When you pay too much, you lose a little money – that is all. When you pay too little, you sometimes lose everything, because the thing you bought is incapable of doing the thing it was bought to do.
+ - There are no such things as Flowers there are only gladdened Leaves.
+ - But whether thus submissively or not, at least be sure that you go to the author to get at his meaning, not to find yours.
+ - Wherever men are noble, they love bright colour; and wherever they can live healthily, bright colour is given them – in sky, sea, flowers, and living creatures.
+ - No architecture is so haughty as that which is simple.
+ - The beginning and almost the end of all good law is that everyone shall work for their bread and receive good bread for their work.
+ - The infinity of God is not mysterious, it is only unfathomable; not concealed, but incomprehensible; it is a clear infinity, the darkness of the pure unsearchable sea.
+ - All great art is the expression of man’s delight in God’s work, not his own.
+ - Surely our clergy need not be surprised at the daily increasing distrust in the public mind of the efficacy of prayer.
+ - The time is probably near when a new system of architectural laws will be developed, adapted entirely to metallic construction.
+ - All really great pictures exhibit the general habits of nature, manifested in some peculiar, rare, and beautiful way.
+ - Labor rids us of three great evils; tediousness, vice, and poverty.
+ - Science studies the relations of things to each other: but art studies only their relations to man.
+ - A nation which lives a pastoral and innocent life never decorates the shepherd’s staff or the plough-handle; but races who live by depredation and slaughter nearly always bestow exquisite ornaments on the quiver, the helmet, and the spear.
+ - People cannot live by lending money to one another.
+ - To speak and act truth with constancy and precision is nearly as difficult, and perhaps as meretorious, as to speak it under intimidation or penalty.
+ - All traveling becomes dull in exact proportion to its rapidity.
+ - All things are literally better, lovelier, and more beloved for the imperfections which have been divinely appointed, that the law of human life may be effort, and the law of human judgment, mercy.
+ - What is the cheapest to you now is likely to be the dearest to you in the end.
+ - There is large difference between indolent impatience of labor and intellectual impatience of delay, large difference between leaving things unfinished because we have more to do or because we are satisfied with what we have done.
+ - Obey something, and you will have a chance to learn what is best to obey. But if you begin by obeying nothing, you will end by obeying the devil and all his invited friends.
+ - A great thing can only be done by a great person; and they do it without effort.
+ - No day is without its innocent hope.
+ - To cultivate sympathy you must be among living creatures, and thinking about them; and to cultivate admiration, you must be among beautiful things and looking at them.
+ - Commerce is the agency by which the power of choice is obtained.
+ - You may sell your work, but not your soul.
+ - The virtue of the imagination is its reaching, by intuition and intensity, a more essential truth than is seen at the surface of things.
+ - Great art is precisely that which never was, nor will be taught, it is preeminently and finally the expression of the spirits of great men.
+ - Disorder in a drawing-room is vulgar; in an antiquary’s study, not; the black battle-stain on a soldier’s face is not vulgar, but the dirty face of a housemaid is.
+ - If only the Geologists would let me alone, I could do very well, but those dreadful Hammers! I hear the clink of them at the end of every cadence of the Bible verses.
+ - Civilization is the making of civil persons.
+ - Borrowers are nearly always ill-spenders, and it is with lent money that all evil is mainly done and all unjust war protracted.
+ - I fear uniformity. You cannot manufacture great men any more than you can manufacture gold.
+ - You cannot have good architecture merely by asking people’s advice on occasion. All good architecture is the expression of national life and character; and it is produced by a prevalent and eager national taste, or desire for beauty.
+ - There is in every animal’s eye a dim image and gleam of humanity, a flash of strange light through which their life looks out and up to our great mystery of command over them, and claims the fellowship of the creature if not of the soul.
+ - Morality does not depend on religion.
+ - A thing is worth what it can do for you, not what you choose to pay for it.
+ - Variety is a positive requisite even in the character of our food.
+ - Whatever merit there is in anything that I have written is simply due to the fact that when I was a child my mother daily read me a part of the Bible and daily made me learn a part of it by heart.
+ - Whenever I did anything wrong, stupid or hard-hearted, and I have done many things that were all three, my mother always said “it is because you were too much indulged.”
+ - It is not the church we want, but the sacrifice; not the emotion of admiration, but the act of adoration; not the gift, but the giving.
+ - Milton saw not, and Beethoven heard not, but the sense of beauty was upon them, and they fain must speak.
+ - Every great person is always being helped by everybody; for their gift is to get good out of all things and all persons.
+ - The greatest efforts of the race have always been traceable to the love of praise, as the greatest catastrophes to the love of pleasure.
+ - The only absolutely and unapproachably heroic element in the soldier’s work seems to be-that he is paid little for it-and regularly.
+ - All true opinions are living, and show their life by being capable of nourishment; therefore of change. But their change is that of a tree not of a cloud.
+ - It is excellent discipline for an author to feel that he must say all that he has to say in the fewest possible words, or his readers is sure to skip them.
+ - Of all the pulpits from which human voice is ever sent forth, there is none from which it reaches so far as from the grave.
+ - The child who desires education will be bettered by it; the child who dislikes it disgraced.
+ - How false is the conception, how frantic the pursuit, of that treacherous phantom which men call Liberty.
+ - Race is precisely of as much consequence in man as it is in any animal.
+ - Cursing is invoking the assistance of a spirit to help you inflict suffering. Swearing on the other hand, is invoking, only the witness of a spirit to an statement you wish to make.
+ - Every hue throughout your work is altered by every touch you add in other places.
+ - Whether for life or death, do your own work well.
+ - I do not believe that ever any building was truly great, unless it had mighty masses, vigorous and deep, of shadow mingled with its surface.
+ - Men have commonly more pleasure in the criticism which hurts than in that which is innocuous, and are more tolerant of the severity which breaks hearts and ruins fortunes than of that which falls impotently on the grave.
+ - On the whole, it is patience which makes the final difference between those who succeed or fail in all things. All the greatest people have it in an infinite degree, and among the less, the patient weak ones always conquer the impatient strong.
+ - The higher a man stands, the more the word vulgar becomes unintelligible to him.
+ - Greatness is not a teachable nor gainable thing, but the expression of the mind of a God-made great man.
+ - Childhood often holds a truth with its feeble finger, which the grasp of manhood cannot retain, – which it is the pride of utmost age to recover.
+ - One of the worst diseases to which the human creature is liable is its disease of thinking.
+ - The highest thoughts are those which are least dependent on language, and the dignity of any composition and praise to which it is entitled are in exact proportion to its dependency of language or expression.
+ - I believe that the sight is a more important thing than the drawing...
+ - Success by the laws of competition signifies a victory over others by obtaining the direction and profits of their work. This is the real source of all great riches.
+ - Nature is always mysterious and secret in her use of means; and art is always likest her when it is most inexplicable.
+ - The Divine mind is as visible in its full energy of operation on every lowly bank and mouldering stone as in the lifting of the pillars of heaven, and settling the foundation of the earth.
+ - I have seen, and heard, much of Cockney impudence before now; but never expected to hear a coxcomb ask two hundred guineas for flinging a pot of paint in the public’s face.
+ - I am far more provoked at being thought foolish by foolish people, than pleased at being thought sensible by sensible people; and the average proportion of the numbers of each is not to my advantage.
+ - You may chisel a boy into shape, as you would a rock, or hammer him into it, if he be of a better kind, as you would a piece of bronze. But you cannot hammer a girl into anything. She grows as a flower does.
+ - Absolute and entire ugliness is rare.
+ - Our purity of taste is best tested by its universality, for if we can only admire this thing or that, we maybe use that our cause for liking is of a finite and false nature.
+ - What right have you to take the word wealth, which originally meant well-being, and degrade and narrow it by confining it to certain sorts of material objects measured by money.
+ - Science is the knowledge of constant things, not merely of passing events, and is properly less the knowledge of general laws than of existing facts.
+ - Men were not intended to work with the accuracy of tools, to be precise and perfect in all their actions.
+ - Many thoughts are so dependent upon the language in which they are clothed that they would lose half their beauty if otherwise expressed.
+ - If a great thing can be done, it can be done easily, but this ease is like the of ease of a tree blossoming after long years of gathering strength.
+ - Painting with all its technicalities, difficulties, and peculiar ends, is nothing but a noble and expressive language, invaluable as the vehicle of thought, but by itself nothing.
+ - Nearly all the evils in the Church have arisen from bishops desiring power more than light. They want authority, not outlook.
+ - There is no law of history any more than of a kaleidoscope.
+ - Men cannot not live by exchanging articles, but producing them. They live by work not trade.
+ - Everything that you can see in the world around you presents itself to your eyes only as an arrangement of patches of different colors.
+ - Hope- the recognition, by true foresight, of better things to be reached here after.
+ - English artists are usually entirely ruined by residence in Italy.
+ - True taste is forever growing, learning, reading, worshipping, laying its hand upon its mouth because it is astonished, casting its shoes from off its feet because it finds all ground holy.
+ - The first duty of a state is to see that every child born therein shall be well housed, clothed, fed and educated till it attains years of discretion.
+ - In the range of inorganic nature. I doubt if any object can be found more perfectly beautiful than a fresh, deep snowdrift, seen under warm light.
+ - Doing is the great thing, for if people resolutely do what is right, they come in time to like doing it.
+ - Architecture concerns itself only with those characters of an edifice which are above and beyond its common use.
+ - You cannot get anything out of nature or from God by gambling; only out of your neighbor.
+ - No good work whatever can be perfect, and the demand for perfection is always a sign of a misunderstanding of the ends of art.
+ - There is never vulgarity in a whole truth, however commonplace. It may be unimportant or painful. It cannot be vulgar. Vulgarity is only in concealment of truth, or in affectation.
+ - A splendour of miscellaneous spirits.
+ - Music when healthy, is the teacher of perfect order, and when depraved, the teacher of perfect disorder.
+ - It takes a great deal of living to get a little deal of learning.
+ - In painting as in eloquence, the greater your strength, the quieter your manner.
+ - There is a satisfactory and available power in every one to learn drawing if he wishes, just as nearly all persons have the power of learning French, Latin or arithmetic, in a decent and useful degree.
+ - It is not possible to find a landscape, which if painted precisely as it is, will not make an impressive picture. No one knows, till he has tried, what strange beauty and subtle composition is prepared to his hand by Nature.
+ - Freedom is only granted us that obedience may be more perfect.
+ - There is no harm in anybody thinking that Christ is in bread. The harm is in the expectation of His presence in gunpowder.
+ - The true work of a critic is not to make his hearer believe him, but agree with him.
+ - Men don’t and can’t live by exchanging articles, but by producing them. They don’t live by trade, but by work. Give up that foolish and vain title of Trades Unions; and take that of laborers Unions.
+ - I believe the right question to ask, respecting all ornament, is simply this; was it done with enjoyment, was the carver happy while he was about it?
+ - The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.
+ - The relative majesty of buildings depends more on the weight and vigour of their masses than any other tribute of their design.
+ - It is better to be nobly remembered than nobly born.
+ - Whereas it has long been known and declared that the poor have no right to the property of the rich, I wish it also to be known and declared that the rich have no right to the property of the poor.
+ - The only way to understand the difficult parts of the Bible is first to read and obey the easy ones.
+ - Absolute ugliness is admitted as rarely as perfect beauty; but degrees of it more or less distinct are associated with whatever has the nature of death and sin, just as beauty is associated with what has the nature of virtue and of life.
+ - The beauty of the animal form is in exact proportion to the amount of moral and intellectual virtue expressed by it.
+ - If the design of the building be originally bad, the only virtue it can ever possess will be signs of antiquity.
+ - An architect should live as little in cities as a painter. Send him to our hills, and let him study there what nature understands by a buttress, and what by a dome.
+ - He is the greatest artist who has embodied, in the sum of his works, the greatest number of the greatest ideas.
+ - There is nothing so small but that we may honor God by asking His guidance of it, or insult Him by taking it into our own hands.
+ - What do we, as a nation, care about books? How much do you think we spend altogether on our libraries, public or private, as compared with what we spend on our horses?
+ - If you can draw the stone rightly, everything within reach of art is also within yours.
+ - Science deals exclusively with things as they are in themselves.
+ - Modern education has devoted itself to the teaching of impudence, and then we complain that we can no longer control our mobs.
+ - The imagination is never governed, it is always the ruling and divine power.
+ - The object of true education is to make people not merely do the right things, but enjoy them.
+ - Butforme, theAlps and their peoplewerealikebeautiful in their snow, and their humanity; and I wanted, neither for them nor myself, sight of any thrones in heaven but the rocks, or of any spirits in heaven but the clouds.
+ - There is no process of amalgamation by which opinions, wrong individually, can become right merely by their multitude.
+ - It is in this power of saying everything, and yet saying nothing too plainly, that the perfection of art consists.
+ - Know thyself, for through thyself only thou canst know God.
+ - It is a matter of the simplest demonstration, that no man can be really appreciated but by his equal or superior.
+ - Whether we force the man’s property from him by pinching his stomach, or pinching his fingers, makes some difference anatomically; morally, none whatsoever.
+ - Order and system are nobler things than power.
+ - In old times men used their powers of painting to show the objects of faith, in later times they use the objects of faith to show their powers of painting.
+ - An artist should be well read in the best books, and thoroughly high bred, both in heart and bearing. In a word, he should be fit for the best society, and should keef out of it.
+ - When the whole world turns clown, and paints itself red with its own hearts blood instead of vermilion, it is something else than comic.
+ - If the thing is impossible, you need not trouble yourselves about it; if possible, try for it.
+ - Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.
+ - Unless we perform divine service with every willing act of our life, we never perform it at all.
+ - You might sooner get lightning out of incense smoke than true action or passion out of your modern English religion.
+ - At every moment of our lives we should be trying to find out, not in what we differ with other people, but in what we agree with them.
+ - In every person who comes near you look for what is good and strong.
+ - As long as there are cold and nakedness in the land around you, so long can there be no question at all but that splendor of dress is a crime.
+ - The plea of ignorance will never take away our responsibilities.
+ - Society has sacrificed its virtues to the Goddess of Getting Along.
+ - Nothing can be true which is either complete or vacant; every touch is false which does not suggest more than it represents, and every space is false which represents nothing.
+ - The step between practical and theoretic science, is the step between the miner and the geologist, the apocathecary and the chemist.
+ - To follow art for the sake of being a great man, and therefore to cast about continually for some means of achieving position or attracting admiration, is the surest way of ending in total extinction.
+ - How long most people would look at the best book before they would give the price of a large turbot for it?
+ - Perfect taste is the faculty of receiving the greatest possible pleasure from those material sources which are attractive to oar moral nature in its purity and perfection.
+ - One who does not know when to die, does not know how to live.
+ - All violent feelings have the same effect. They produce in us a falseness in all our impressions of external things, which I would generally characterize as the pathetic fallacy.
+ - To give alms is nothing unless you give thought also.
+ - It is advisable that a person know at least three things, where they are, where they are going, and what they had best do under the circumstances.
+ - Your labor only may be sold, your soul must not.
+ - That man is always happy who is in the presence of something which he cannot know to the full, which he is always going on to know.
+ - He who can take no interest in what is small will take false interest in what is great.
+ - No divine terror will ever be found in the work of the man who wastes a colossal strength in elaborating toys; for the first lesson that terror is sent to teach us is, the value of the human soul, and the shortness of mortal time.
+ - Greater completion marks the progress of art, absolute completion usually its decline.
+ - No amount of pay ever made a good soldier, a good teacher, a good artist, or a good workman.
+ - He that would be angry and sin not, must not be angry with anything but sin.
+ - Better a child should be ignorant of a thousand truths than have consecrated in its heart a single lie.
+ - The first duty of government is to see that people have food, fuel, and clothes. The second, that they have means of moral and intellectual education.
+ - We may, without offending any laws of good taste, require of an architect, as we do of a novelist, that he should be not only correct, but entertaining.
+ - In order that a man may be happy, it is necessary that he should not only be capable of his work, but a good judge of his work.
+ - I cannot but think it an evil sign of a people when their houses are built to last for one generation only.
+ - It is perhaps the principal admirableness of the Gothic schools of architecture, that they receive the results of the labour of inferior minds; and out of fragments full of imperfectionraise up a stately and unaccusable whole.
+ - The scholar is early acquainted with every department of the impossible.
+ - Natural abilities can almost compensate for the want of every kind of cultivation, but no cultivation of the mind can make up for the want of natural abilities.
+ - Bread of flour is good; but there is bread, sweet as honey, if we would eat it, in a good book.
+ - I am almost sick and giddy with the quantity of things in my head, all tempting and wanting to be worked out.
+ - See that your children be taught, not only the labors of the earth, but the loveliness of it.
+ - To know anything well involves a profound sensation of ignorance.
+ - Human work must be done honourably and thoroughly, because we are now Men; whether we ever expect to be angels, or were ever slugs, being practically no matter.
+ - The best work never was and never will be done for money.
+ - Never has interest in art been so high, and never has quality been so low.
+ - People are always expecting to get peace in heaven: but you know whatever peace they get there will be ready-made. Whatever making of peace they can be blest for, must be on the earth here.
+ - Other men used their effete faiths and mean faculties with a high moral purpose. The Venetian gave the most earnest faith, and the lordliest faculty, to gild the shadows of an antechamber, or heighten the splendours of a holiday.
+ - When men are rightly occupied, their amusement grows out of their work.
+ - Large fortunes are all founded either on the occupation of land, or lending or the taxation of labor.
+ - He who has learned what is commonly considered the whole art of painting, that is, the art of representing any natural object faithfully, has as yet only learned the language by which his thoughts are to be expressed.
+ - One of the prevailing sources of misery and crime is in the generally accepted assumption, that because things have been wrong a long time, it is impossible they will ever be right.
+ - An unimaginative person can neither be reverent nor kind.
+ - In great countries, children are always trying to remain children, and the parents want to make them into adults. In vile countries, the children are always wanting to be adults and the parents want to keep them children.
+ - Production does not consist in things laboriously made, but in things serviceably consumable; and the question for the nation is not how much labour it employs, but how much life it produces.
+ - The art of nations is to be accumulative, just as science and history are; the work of living men not superseding, but building itself upon the work of the past.
+ - I’ve seen the Rhine with younger wave, O’er every obstacle to rave. I see the Rhine in his native wild Is still a mighty mountain child.
+ - The secret of language is the secret of sympathy, and its full charm is possible only to the gentle.
+ - Multitudes think they like to do evil; yet no man ever really enjoyed doing evil since God made the world.
+ - Always stand by form against force.
+ - The power of painter or poet to describe what he calls an ideal thing depends upon its being to him not an ideal but a real thing. No man ever did or ever will work well but either from actual sight or sight of faith.
+ - It is only by labour that thought can be made healthy, and only by thought that labour can be made happy, and the two cannot be separated with impunity.
+ - That which is required in order to the attainment of accurate conclusions respecting the essence of the Beautiful is nothing morethan earnest, loving, and unselfish attention to our impressions of it.
+ - The wisest men are wise to the full in death.
+ - There are no laws by which we can write Iliads.
+ - There is no action so slight or so mean but it may be done to a great purpose, and ennobled thereby.
+ - Once thoroughly our own knowledge ceases to give us pleasure.
+ - There is nothing so great or so goodly in creation, but that it is a mean symbol of the gospel of Christ, and of the things He has prepared for them that love Him.
+ - It is not how much one makes but to what purpose one spends.
+ - The proof of a thing’s being right is that it has power over the heart; that it excites us, wins us, or helps us.
+ - Nothing is ever done beautifully which is done in rivalship: or nobly, which is done in pride.
+ - It is among children, and as children only, that you will find your healing and true wisdom for your teaching.
+ - Depend upon it, the first universal characteristic of all great art is Tenderness, as the second is Truth.
+ - No picture can be good which deceives by its imitation, for the very reason that nothing can be beautiful which is not true.
+ - Of human work none but what is bad can be perfect in its own bad way.
+ - In the utmost solitudes of nature, the existence of hell seems to me as legibly declared by a thousand spiritual utterances as that of heaven.
+ - Some slaves are scoured to their work by whips, others by their restlessness and ambition.
+ - It does not matter what the whip is; it is none the less a whip, because you have cut thongs for it out of your own souls.
+ - All great song, from the first day when human lips contrived syllables, has been sincere song.
+ - Why is one man richer than another? Because he is more industrious, more persevering and more sagacious.
+ - You do not see with the lens of the eye. You seen through that, and by means of that, but you see with the soul of the eye.
+ - If there be any one principle more widely than another confessed by every utterance, or more sternly than another imprinted on every atom of the visible creation, that principle is not liberty, but law.
+ - I have not written in vain if I have heretofore done anything towards diminishing the reputation of the Renaissance landscape painting.
+ - No good is ever done to society by the pictorial representation of its diseases.
+ - You were made for enjoyment, and the world was filled with things which you will enjoy, unless you are too proud to be pleased with them, or too grasping to care for what you can not turn to other account than mere delight.
+ - The man who says to one, go, and he goeth, and to another, come, and he cometh, has, in most cases, more sense of restraint and difficulty than the man who obeys him.
+ - Wise laws and just restraints are to a noble nation not chains, but chains of mail, – strength and defense, though something of an incumbrance.
+ - All that we call ideal in Greek or any other art, because to us it is false and visionary, was, to the makers of it, true and existent.
+ - It is far better to give work that is above a person, than to educate the person to be above their work.
+ - God never imposes a duty without giving time to do it.
+ - No one can ask honestly or hopefully to be delivered from temptation unless he has himself honestly and firmly determined to do the best he can to keep out of it.
+ - And besides; the problem of land, at its worst, is a bye one; distribute the earth as you will, the principal question remains inexorable, Who is to dig it? Which of us, in brief word, is to do the hard and dirty work for the rest, and for what pay?
+ - Of all the things that oppress me, this sense of the evil working of nature herself -my disgust at her barbarity -clumsiness -darkness -bitter mockery of herself -is the most desolating.
+
+438 quotes

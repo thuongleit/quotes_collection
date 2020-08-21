@@ -1,0 +1,38 @@
+ - Advent is patience it’s how God has made us a people of promise, in a world of impatience.
+ - Church growth strategies are the death gurgle of a church that has lost its way.
+ - Our hope in life beyond death is a hope made possible, not by some general sentimental belief in life after death, but by our participation in the life of Christ.
+ - Gentleness is given to those who have learned that God will not have his kingdom triumph through the violence of the world, for such a triumph came through the meekness of a cross.
+ - Only the one true God can take the risk of ruling by relying on the power of humility and love.
+ - The basis for the ethics of the Sermon on the Mount is not what works, but rather who God is.
+ - It’s hard to remember that Jesus did not come to make us safe, but rather to make us disciples, citizens of God’s new age, a kingdom of surprise.
+ - Christianity is not a set of beliefs or doctrines one believes in order to be a Christian, but rather Christianity is to have one’s body shaped, one’s habits determined, in such a way that the worship of God is unavoidable.
+ - I have come to think that the challenge confronting Christians is not that we do not believe what we say, though that can be a problem, but that what we say we believe does not seem to make any difference for either the church or the world.
+ - We don’t fall in love and then get married; instead we get married and then learn what love requires.
+ - The courageous have fears that cowards never know.
+ - If I were a person who was non-American, I would think humanitarian intervention is just another name for United States imperialism.
+ - Whenever a people are bound together in loyalty to a story that includes something as strange as the Sermon on the Mount, we are put at odds with the world.
+ - The church is constituted as a new people who have been gathered from the nations to remind the world that we are in fact one people. Gathering, therefore, is an eschatological act as it is the foretaste of the unity of the communion of the saints.
+ - In the Crusades, getting the Holy Land back was the goal, and any means could be used to achieve it. World War II was a crusade. The firebombing of Tokyo by Doolittle and the carpet bombing in Germany, especially by the British, showed that.
+ - From the perspective of the one committing suicide, his or her act can be one of the most perverse forms of moral manipulation, as it abandons those left behind to their shame, guilt, and grief. Suicide is something like a metaphysical “I gotcha!” It is often an attempt to kill or wound others.
+ - The church doesn’t have a social strategy, the church is a social strategy.
+ - To be poor does not mean you lack the means to extend charity to another. You may lack money or food, but you have the gift of friendship to overwhelm the loneliness that grips the lives of so many.
+ - The movement that Jesus begins is constituted by people who believe that they have all the time in the world, made possible by God’s patience, to challenge the world’s impatient violence by cross and resurrection.
+ - Saints cannot exist without a community, as they require, like all of us, nurturance by a people who, while often unfaithful, preserve the habits necessary to learn the story of God.
+ - My father was a better bricklayer than I am a theologian. I am still in too much of a hurry. But if the work I have done in theology is of any use, it is because of what I learned on the job, that is, you can lay only one brick at a time.
+ - Never think that you need to protect God. Because anytime you think you need to protect God, you can be sure that you are worshipping an idol.
+ - Saints cannot exist without a community.
+ - The lives of the saints are the hermeneutical key to Scripture.
+ - No powers determine our lives more completely than those we think we have under our control. I.
+ - To come to terms with our beginning requires a truthful story to acquire the skills to live in gratitude rather than resentment for the gift of life.
+ - From my perspective, ‘postmodernism’ merely names an interesting set of developments in the social order that is based on the presumption that God does not matter.
+ - Christians know that Christianity is simply extended training in dying early. That is what we have always been about.
+ - I fear that much of the Christianity that surrounds us assumes our task is to save appearances by protecting God from Job-like anguish. But if God is the God of Jesus Christ, then God does not need our protection. What God demands is not protection, but truth.
+ - I am a Congregationalist with Catholic sensibilities. Which probably explains how I ended up in a Episcopal church.
+ - I have assumed my clear commitment to a Trinitarian orthodoxy was sufficient evidence that I have not intentionally ignored the role of the Holy Spirit. It may be true, however, that my work has been so Christ-centred, I may have given the impression that the Holy Spirit is an afterthought.
+ - We complain of the increased tempo of our lives, but our frenetic lives are just reflection of the economic system that we have created.
+ - Civil religion is the attempt to empower religion, not for the good of religion, but for the creation of the citizen.
+ - Consider the problem of taking showers with Christians. They are, after all, constantly going on about the business of witnessing in the hopes of making converts to their God and church. Would you want to shower with such people? You never know when they might try to baptize you.
+ - I am often criticized, or at least questions are raised, about what appears to be the absence of the Holy Spirit in my work.
+ - I confess I take perverse delight as a theologian in the controversies surrounding postmodernism.
+
+36 quotes

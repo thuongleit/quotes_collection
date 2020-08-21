@@ -1,0 +1,34 @@
+ - If you don’t control your emotions, your emotions will control your acts, and that’s not good.
+ - I like a calm life where nobody bothers me.
+ - Fishing is a hard job. Fishing at night. Rain. Day, night. You have to be wise and smart. And quick.
+ - Don’t worry about what the people say; be yourself, say what you want to say WITH respect.
+ - I have nothing to ask for, thanks to God. Everything I have, God has given me.
+ - God is good for everybody. The sun shines on good people and bad people, and it rains on both, too. God doesn’t choose rain only for bad people.
+ - I don’t wait for people to give me respect. I always give them respect.
+ - I want to give my respect, glory and time to the Bible – to the word of God – just as I want to give my respect and time to my work.
+ - My father was strict and always taught me, no matter who it is, everybody is an uncle. To me, everybody was someone I respect like family. I grew up with that.
+ - I don’t just think regular season. I think playoffs. World Series. That’s how I think.
+ - I demand my kids be respectful, responsible and grateful. And they have to love the Lord with all their hearts.
+ - I miss everything that makes up Panama. I don’t have a preference. I love my country.
+ - I’m telling you, God loves a lot of people.
+ - I get over bad games right away. Sometimes I’ve let it go even before I’ve left the mound. That quick. Why? Because it’s over. What can you do about it? Nothing. The only thing you can do is fight if you’re still in the game. After that you can do nothing.
+ - I’m human – all I do is try to do my job. When I don’t do it, the way it happened today, it’s out of my control. He put the ball in play and it happened to find a hole. I wish I could take it back, but I can’t. You move on.
+ - I think the good Lord is a Yankee.
+ - I’m a simple guy, you know? If I do something, it’s not going to be, ‘Look at this, look at that.’ It just happens.
+ - I’m not used to seeing the ball go wherever she wants. As a pitcher, I like to be – I don’t want to say perfect, but I want to know what the ball is going to do.
+ - You’re just trying to throw the best pitch you can and make sure you hit your spots. I don’t have to force nobody.
+ - I see the hitter when he’s moved in the box, like when he’s moved closer to the plate or changed his stance. I see when the batter has moved his feet, and then I make my own adjustment.
+ - I don’t feel invincible because I’m human.
+ - You can’t second-guess baseballyou can’t second-guess yourself.
+ - I know what kind of pitcher Whitey was, and I know what kind of person Whitey is. It makes me feel proud to be a Yankee. We’re keeping this in the family.
+ - Ever since I was a little kid, I was competitive.
+ - That’s the game of baseball – amazing things happen.
+ - If I have to win one game, I’d have a hard time taking anybody over Dustin Pedroia as my second baseman.
+ - I am not a father who wants to give his kids everything. They have to earn it.
+ - I don’t want to pitch forever.
+ - I always take time for somebody who wants to talk to me.
+ - There’s a lot of things more than baseball that I want to do.
+ - I don’t think any professional accepts defeat.
+ - Because I have a little bit more, that means I’m better than you? No. Unacceptable.
+
+32 quotes

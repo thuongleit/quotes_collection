@@ -1,0 +1,24 @@
+ - The definition of investment is the deferring ofpresent consumption for future consumption. So, you dohave to be willing to defer. And there are a couple of tricks that you can use to save money. One of them is simply to pay yourself first.
+ - Investment success accrues not so much to the brilliant as to the disciplined.
+ - The purpose of investing is not to simply optimise returns and make yourself rich. The purpose is not to die poor.
+ - The key aspect of an index fund is that many of them, not all of them, but many of them are extremely cheap.
+ - Bluntly put, there’s no chance that your doctor, dentist, or attorney is a high-school dropout. Your stockbroker, however, just might be.
+ - If your broker or investment advisor is not familiar with the concept of standard deviation of returns, get a new one.
+ - There are two kinds of investors, be thay large or small: those who don’t know where the market is headed, and those who don’t know that they don’t know.
+ - When it comes to fund managers and market strategists, this year’s hero usually turns into next year’s zero.
+ - Do the math. Expect catastrophes. Whatever happens, stay the course.
+ - The reason that ‘guru’ is such a popular word is because ‘charlatan’ is so hard to spell.
+ - The essence of effective portfolio construction is the use of a large number of poorly correlated assets.
+ - You have to understand what market history looks like. What market history tells you is that the very, very best investments are made when things look the worst.
+ - The deeper one delves, the worse things look for actively managed funds.
+ - Mutual fund manager performance does not persist and the return of stock picking is zero.
+ - It’s bad enough that you have to take market risk. Only a fool takes on the additional risk of doing yet more damage by failing to diversify properly with his or her nest egg. Avoid the problem-buy a well-run index fund and own the whole market.
+ - A fast food job, for most people, should be an entry level position. If you see no path for advancement beyond that, it’s time to take a real fast look at your human capital and learn a skill that will make you more money.
+ - The typical fund company services 401k plan participants in the same way that Baby Face Nelson serviced banks.
+ - Wall Street is littered with the bones of those who knew just what to do, but could not bring themselves to do it.
+ - You have to ask yourself, what are the things that matter to you most in your life? If you have to have a latte every day that’snice to have right now, but if you take that latte every day right now, you may wind up eating cat food when you are 70. And you have to decide which is worse.
+ - 99% of fund managers demonstrate no evidence of skill whatsoever.
+ - All the things that make us human make us terrible investors and you have to understand what they are and how to avoid them.
+ - For the taxable investor, indexing means never having to say you’re sorry.
+
+22 quotes

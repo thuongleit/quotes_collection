@@ -1,0 +1,215 @@
+ - When a person tells you that you hurt them, you don’t get to decide that you didn’t.
+ - The only time you look in your neighbor’s bowl is to make sure that they have enough. You don’t look in your neighbor’s bowl to see if you have as much as them.
+ - ‘I’m bored’ is a useless thing to say. I mean, you live in a great, big, vast world that you’ve seen none percent of. Even the inside of your own mind is endless; it goes on forever, inwardly, do you understand? The fact that you’re alive is amazing, so you don’t get to say ‘I’m bored.’
+ - You’ll be fine. You’re 25. Feeling unsure and lost is part of your path. Don’t avoid it. See what those feelings are showing you and use it. Take a breath. You’ll be okay. Even if you don’t feel okay all the time.
+ - Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. Leave the dude alone and he’ll figure it out.
+ - I don’t stop eating when I’m full. The meal isn’t over when I’m full. It’s over when I hate myself.
+ - What happens after you die? Lot’s of things happen after you die – they just don’t involve you.
+ - Everything is amazing and nobody is happy.
+ - Everything that’s difficult you should be able to laugh about.
+ - I have a lot of beliefs and I live by none of them.
+ - When you write from your gut and let the stuff stay flawed and don't let anybody tell you to make it better, it can end up looking like nothing else.
+ - If you can survive disappointment, nothing can beat you.
+ - Misery is wasted on the miserable.
+ - People say, ‘My phone sucks.’ No, it doesn’t! The shittiest cellphone in the world is a miracle. Your life sucks. Around the phone.
+ - Here’s how my brain works: It’s stupidity, followed by self-hatred, and then further analysis.
+ - I’ve learned from experience that if you work harder at it, and apply more energy and time to it, and more consistency, you get a better result. It comes from the work.
+ - If you do something and people think you’re stupid, just go for crazy. You get more respect that way because nobody likes stupid people.
+ - It’s a positive thing to talk about terrible things and make people laugh about them.
+ - I just love learning. I think learning is how you live. The verb of my life is learning.
+ - I like pressure. Pressure doesn’t make me crack. It’s enabling. I eat pressure, and there might be times when I get a bad feeling in my gut that this might be too much, but you feel pressure when you’re not doing something, you know?
+ - The part that’s difficult is being single, at 41, after 10 years of marriage and two kids. That’s like having a bunch of money in a currency of a country that doesn’t exist anymore.
+ - Life is full of horrible mistakes.
+ - When you have bacon in your mouth, it doesn’t matter who’s president.
+ - If you think everything you’ve done is great, you’re probably dumb.
+ - You know what, it’s not your life, it’s life. Life is bigger than you, if you can imagine that. Life isn’t something that you possess, it’s something that you take part in and witness.
+ - Sadness is poetic. You’re lucky to live sad moments. When you let yourself be sad, your body has antibodies. It has happiness that comes rushing in to meet the sadness.
+ - Out of the people that ever were, almost all of them are dead. There are way more dead people, and you’re all gonna die and then you’re gonna be dead for way longer than you’re alive. Like that’s mostly what you’re ever gonna be. You’re just dead people that didn’t die yet.
+ - I don’t know if you’ve ever had just five dollars in the bank, but I’ve found that if that’s all you have, you can’t get it out.
+ - You know the only thing happier than a three-legged dog? A four-legged dog.
+ - Human kindness has no reward. You should give to others in every way you see. expect absolutely nothing from anyone. It should be your goal to love every human you encounter. All human suffering that you’re aware of and continues without your effort to stop it becomes your crime.
+ - I don’t think women are better than men, I think men are a lot worse than women.
+ - Expensive quality work doesn’t cost more – it pays.
+ - You’re a tourist in sexual perversion. I’m a prisoner there.
+ - If you have something to say, here’s what you do: You write it down on a piece of paper, you go out in the lobby, and then you go home and you kill yourself.
+ - The greatest thing about having a child is putting yourself second in your own life. It’s a massive gift to be able to say you’re not the most important person to yourself.
+ - Kids are like buckets of disease that live in your house.
+ - Some things I think are very conservative, or very liberal. I think when someone falls into one category for everything, I’m very suspicious. It doesn’t make sense to me that you’d have the same solution to every issue.
+ - I find that when people laugh really hard, it’s usually because they’re connecting and identifying in a way that they hadn’t considered. That’s my payoff.
+ - I would rather be with my kids than anybody else.
+ - I have a crazy amount of different jobs, so the way I manage that is to not do more than one at a time. It’s like old computers that had small memory chips, they would do something called swapping, where they would fill the memory with one task, do it and get it out.
+ - I’ve been having a lot of trouble sleeping as we all should. I dunno. You don’t live that long. It doesn’t matter.
+ - I don’t think it makes any sense to try to get anyone to not talk.
+ - I wish I could know everything ever, like that would be my wish – that’s what I hope heaven is, that they tell you who shot JFK and all that stuff.
+ - Being popular with an audience is a very rickety ladder to be on.
+ - I know I’m getting old because there will be times when I’m not even doing anything and I’ll think, ‘I need to go wipe my ass right now.’
+ - You could drive a rental car until you don’t want it. Just get out of it while it’s moving and just walk away. No, I don’t feel like being in that car any longer. Just call Hertz. Hi, your car is drifting into the intersection of 28th and Broadway, if you’re interested. It’s now your problem.
+ - I found out that I’m a pretty bad father. I make a lot of mistakes and I don’t know what I’m doing. But my kids love me. Go figure.
+ - I’ve started to kind of hate people, and it’s not because I have anything against them. It’s just, I enjoy it. It’s recreation.
+ - One thing I learned from drinking is that if you ever go Christmas caroling, you should go with a group of people. And also go in mid-December.
+ - Life isn’t something you possess. It’s something you take part in, and you witness.
+ - It’s kind of awkward to eat alone in a restaurant because everybody’s looking at me.
+ - Why can’t we have racism that’s ignorant but nice? You could have stereotypes that are positive about race. You could say, “Those Chinese people, they can fly!” “You know about the Puerto Ricans? They’re made of candy!”
+ - When I see two guys kissing, I’m like, how come I can’t kiss one of those guys? They look like they’re having a good time.
+ - You have to do a show as honestly as you can. But you also can’t afford skepticism, because it’s preparing for failure, which is useless.
+ - I’d like to name my kid a whole phrase. You know, something like Ladies and Gentlemen. That’ll be a cool name for a kid. This is my son, Ladies and Gentlemen! Then, when he gets out of hand, I get to go, Ladies and Gentlemen, please!
+ - I think you have to try and fail, because failure gets you closer to what you’re good at.
+ - To me, comedies are usually the least funny movies. Movies that are actually a comedy are usually not all that funny. To me Goodfellas and Raging Bull are two of the funniest movies I ever saw.
+ - There’s been a lot of simple vilification of right-wing people. It’s really easy to say, ‘Well, you’re Christian, you’re anti-this and that, and I hate you.’ But to me, it’s more interesting to say, ‘What is this person like and how do they really think?’
+ - To me, art supplies are always okay to buy.
+ - I grew up in a generation that had exponential technological advances.
+ - Sorry – Americans only buy things that come from suffering. They just enjoy it more when they know someone’s getting hurt.
+ - Credibility lasts about two cycles of bad material, and then you’ll probably never get it back. If you let people down, that’s really hard to come back from – harder than climbing from nothing to something, even.
+ - All these words we use, anybody can be a genius now. It used to be you had to have a thought no one ever had before or you had to invent a number. Now, it’s like, Hey, I’ve got a cup in case we need another cup. Dude, you’re a genius!
+ - You have to be aware of who you’re talking to in an audience.
+ - I like being full, every day, with stuff that I have to do.
+ - I’ve met a lot of people who’ve lost their jobs and they still have a sense of humor.
+ - I have a lot of beliefs, and I live by none of them – that’s just the way I am they make me feel good about who I am.
+ - If the whole country had to have the same conversation that was safe for everybody, it would be a pretty awful place to live. There wouldn’t be a conversation.
+ - It’s just a big excuse to say awful things.
+ - I don’t have a gun, but if I did, I would shoot a baby deer in the mouth and feel nothing.
+ - I love being married. It’s great. But I hate arguing. I hate fighting. You know what I do now? When we get in an argument, I just take her side against me. It’s just easier; it goes quicker. She’s like, “What’s wrong with you?” And I’m like, “I know! Damn it! Argh!”
+ - I don’t have a brother in real life.
+ - I don’t like waking up. I feel like staying in bed usually, but I can’t because I’ve got two kids standing next to my bed, just eager to live another day.
+ - Some people think it’s demeaning to victims if you ever say anything out-loud about sexual abuse of children. I don’t know if that’s true.
+ - If you’re older, you’re smarter. I just believe that. If you’re in an argument with someone older than you, you should listen to ’em. Even if they’re wrong, their wrongness is rooted in more information than you have.
+ - You would never do stand-up without an audience. I mean, no one would even consider it. It’s like they’re the instrument you’re playing.
+ - When I am in a hotel, and I turn off the lights and the TV, I just freak out. I turn the TV back on and don’t get any sleep.
+ - Well, when I was younger, I lied all the time, because once you understand the power of lying, it’s really like magic because you transform reality for people.
+ - I’m not sure why I’m so often disgusting on stage. I don’t always know where it comes from.
+ - I thought about going to NYU film school – that was this ideal to me. But I didn’t make any kind of grades in high school.
+ - I don’t care about the weight. You know, I’m lucky; I’m one of those people – I can eat donuts, whatever, and I just get fat.
+ - Black people have slavery. And white people have our own thing-stuff we went though that hurt us that we have to cope with. Like when they took our slaves away. That was really hard for us. So it’s pretty even.
+ - You can’t cancel my stand-up tours. It’s impossible. There’s too many separate bosses. There is no ‘bosses.’
+ - I am really tired of looking at my hips. I’m seriously really tired of standing naked in the mirror and staring at my hips for hours and hours while muttering, “You hips. You hips need to get it together.”
+ - Gay men have to go through something to own their – who they are. They get beat up. They get ostracized. Whatever they go through, if they survive it, they come out very confident people.
+ - Well, I think likability is an overused word. I don’t watch people ’cause I like them; I watch them because they’re compelling. Sympathetic is a little different. Likable just thins you out. Working to make a character likable is what kills most TV shows.
+ - Perception is created and twisted so quickly.
+ - The last jobs I had were fixing cars and covering football games for a local access TV station. As in driving the mobile van to the field, setting up 3 cameras, teaching depressed grownups and interns how to use them and directing the game from the van and then wanting to kill myself.
+ - When two kids are being completely berserk, and they’re naked and throwing food around, sometimes I just let it go because I can see a future where they’re going to be dressed, and they’re going to be at school. So I kind of let stuff go sometimes.
+ - I was a nerd growing up, and I’m a little antisocial and awkward.
+ - I do love standup. I love comedians. They’re my community. Also, because I know so many of them, I know the value of them. I know what they can do.
+ - Look at all the minorities around here! I’m the only majority.
+ - When your kid is being selfish or greedy and you want to help them not be that way, you have to find a way to articulate it and inspire them.
+ - A household name is like ketchup. Everybody wants ketchup. Ketchup doesn’t hurt anybody.
+ - America’s a family. We all yell at each other. It all works out.
+ - Stand-up is probably the most solo performance in art.
+ - I like all ladies of all different ages.
+ - I have Twitter so I can tell people what I want them to buy and they give me money.
+ - A lot of TV is put together by teams, by writing staffs and several different directors. It’s a great, very smart way to make television. It’s worked for however long TV’s been around.
+ - It’s easier to cancel a show if it’s expensive.
+ - When I take my kids out for dinner or lunch, people smile at us.
+ - You know, the people who do indie film and decide who gets those little budgets? They’re mean, man. They’re cold and very cool-oriented.
+ - What we’ve done with our modern food supply is absolute insanity. It’s not even real any more. You used to be able to give a kid an apple and they would love it. Kids can’t even taste apples any more. Apples taste like paper to kids now.
+ - There’s a huge amount of work that goes into placating a network in regular television. It’s literally 70% or 80% of your workload, is showing them the material, getting their notes and presenting it to them and making sure they weigh in. It’s a huge amount of work.
+ - My kids and I figured out that there’s a third kind of person, and I don’t know what you call them, but it’s somebody who sees that the glass is always full because it’s half full with water and half full with nothing, so that’s the third kind of person. I don’t know what it is.
+ - You know what our number one threat is? Heart disease.
+ - The only road to good shows is bad ones. Just go start having a bad time, and if you don’t give up, you will get better.
+ - Whenever I’ve encountered a Christian saying, ‘Why don’t you stop talking like that so I can hear you?’ I think, ‘Well you’re the one putting the earmuffs on, but I wish you could hear me because I like you.’
+ - When I was first divorced, I started dating younger women, and it was really exciting. But after a while I was like, ‘This is just dumb.’
+ - I look around, pretty much 100% of the people driving are texting. And they’re killing, everybody’s murdering each other with their cars. But people are willing to risk taking a life and ruining their own because they don’t want to be alone for a second because it’s so hard.
+ - Bill has three goldfish. He buys two more. How many dogs live in London?
+ - Comedians and Feminists are natural enemies. Because stereotypically speaking, feminists can’t take a joke and comedians can’t take criticism.
+ - A lot of the struggle I had with movies is I really loved moments and tones and feelings in a scene, and I loved creating those, but I never really had great stories to string them together.
+ - You can’t direct without a good crew.
+ - My kids are really easy. I often worry that they’re too easy to deal with. They’re really nice people.
+ - If I’m not on tour, I can run down to the comedy club and do a little stand-up. If you’re an actor, you can’t go – I guess there’s forms of it.
+ - You ever go to shop for tuna, and it says “dolphin safe”, and you look at it and kind of go, “Yeah, but”-like somehow you think it’s not going to be as good? Like, “I want to do the right thing-but it’s probably kind of bland without the dolphin.”
+ - All talking is good, negative and positive. Stabbing is bad; talking is good.
+ - I spend enough time onscreen looking hangdog and depressed.
+ - I grew up watching all these crazy movies, European movies and stuff, and I guess that I always laughed at things that were a little more offbeat.
+ - I never viewed money as being ‘my money’ I always saw it as ‘the money.’ It’s a resource. If it pools up around me then it needs to be flushed back out into the system.
+ - There’s two kinds of press that you get when you put out a TV show: The reviews, and the people that just decide what the reviews say.
+ - Anytime you see a bit where some stranger does something to me, it’s me.
+ - I get mad like anybody else does, but being able to laugh about getting mad is very healthy, and my kids know that.
+ - If you had a jetpack you’d be like I have the shittiest jetpack. Who’s your service provider on your jetpack? Did they make the new one? I hate this thing.
+ - I remember the day I saw my hair was thinning. I don’t remember caring much. I don’t care. It’s just hair. It never bothered me much. I was pretty young, too. And it happened and is happening very slowly. I have a feeling dead people get really mad when we complain about losing hair.
+ - Very few American parents give a crap about how they raise their kids. They put minimal effort into it. Who told you it’s a good idea to buy a developing mind a video game?
+ - Plenty of crazy people in New York. There are so many crazy people here, I think it’s like one out of every one person is completely out of their mind.
+ - Friends should always tell you the truth. But please don’t.
+ - If you’re a woman and a guy’s ever said anything romantic to you, he just left off the second part that would have made you sick if you could have heard it.
+ - There’s no such thing as a cheap laugh.
+ - Most people are dead. Hitler. Ray Charles. Some other guys. But mostly those two.
+ - When I read things like the foundations of capitalism are shattering, I’m like, maybe we need that. Maybe we need some time where we’re walking around with a donkey with pots clanging on the sides.
+ - I wish I could keep a journal. I have a lot of journals with one page half written in. I sometimes will write myself a quick email on my Blackberry when I think of something.
+ - The thing is, comedy’s gone in a weird direction. People are really into ironic comedy and fakeness and cleverness.
+ - I’m enjoying the work while I get it right now.
+ - I love comedians. They’re my community.
+ - My bank is the worst. They are screwing me. You know what they did to me? They’re charging me money for not having enough money. Apparently, when you’re broke, that costs money.
+ - The only road to doing good shows, is doing bad shows.
+ - Spend time with your kids and have your own ideas about what they need. It won’t take away your manhood; it will give it to you.
+ - To me, it’s very exhilarating when somebody else does a great thing, and it’s not me.
+ - Everything that people say is testable.
+ - If I owned a network, I would never let a guy just put people on without telling me who they are.
+ - To me the goal of comedy is to just laugh, which is a really high hearted thing, visceral connection and reaction.
+ - I’m not motivated to entertain people through Twitter, so just by having Twitter and not saying anything, I make people mad.
+ - I’ve always benefited from knowing machines well, because it’s freedom, it gives you freedom, I always knew that.
+ - I think I’m past any window where I’m suddenly going to become surprisingly ripped so that people go, ‘Oh, my God, what happened to you?’
+ - For my scale, how I grew up and live my life, I’m making plenty of money.
+ - My kids used to love math. Now it makes them cry. Thanks standardized testing and common core!
+ - We have white people problems in America. You know what that is? That’s when your life is amazing, so you just make stuff up to get worried about.
+ - When my kids were younger, I used to avoid them. I used to sit on the toilet ’til my legs fell asleep. You want to know why your father spends so long in the toilet? Because he’s not sure he wants to be a father.
+ - Breaking records is not something you expect to be doing. That’s like a sports thing, it’s not usually a comedy and writing thing.
+ - Some entertainers don’t pay attention to what’s going on around them.
+ - Television for a child creates such a high bar of stimulus that nothing else competes. A beautiful day is absolute crap to a kid who watches tv.
+ - How do women still go out guys, when you consider that there is no greater threat to women than men? We’re the number one threat to women! Globally, and historically one cause of injury and mayhem to women. You know what our number one threat is? Heart disease.
+ - Talking is always positive. That’s why I talk too much.
+ - I don’t feel those limits when I’m on stage. For some reason, audiences let me get away with things. Remember, it’s all comedy. Words. Thoughts. All thoughts are safe and worth exploring.
+ - I’ve tried to do away with lying in my life in the last few years, but it’s hard.
+ - Performing comedy, you develop a rhythm of ideas and laughs. I live for it.
+ - When you’re a father in a marriage, you sort of become the mother’s assistant. And you sort of get a list from her every day and you run down the list and it feels very much like a chore.
+ - The only pitch I have to movie people is the same as this one: Just give me $8 million. I’m not telling you what it’s about and I’m not telling you who’s in it.
+ - I know what it’s like to have a bunch of material that’s working that you don’t care about. You want to die.
+ - I’m not raising the children-I’m raising the grown-ups that they’re going to be.
+ - I do have very deep, fond memories of my family in Mexico City, but I also remember feeling funny for not speaking English – I was basically an immigrant. But I picked up the language fast and soon I knew that I wanted to be a writer.
+ - Apple embodies a lot of what have been defined as feminine traits: an emphasis on intuitive design, intellect, a strong sense of creativity, and that striving to always make the greatest version of something.
+ - I always tell my kids to cut a sandwich in half right when you get it, and the first thought you should have is somebody else. You only ever need half a burger.
+ - I’ve always loved boxing. It’s something I’ve always been extremely excited about.
+ - It’s more fun to experience things when you don’t know what’s going to happen.
+ - I think one reason TV has always done well is because there is something comforting where you kind of know what you’re going to be taken through.
+ - Either I’ll never get rich from the show but remain intensely proud of the work and stand behind every second of it, or it catches on and I’ll make my money down the road.
+ - In 27 years doing this, I’ve seen a handful of truly great, masterful standup sets. One was Tig Notaro last night at Largo.
+ - I’m not a political comedian. That’s just not what I do.
+ - Comedy isn’t polite and it isn’t correct and it isn’t accurate, even. It’s just a mess. So that’s the way that I approach it.
+ - I’m close to my audience. I think I have more tools in my box than other guys who might try it. Also, I know how to do this stuff. I know how to write and shoot and edit. I’m technically adept and that helped with the website. You need a big skill set.
+ - If I do something for my kids, I get a medal, because most fathers don’t.
+ - There’s nothing that beats proving you’re funny by making a funny thing, and right now there are huge outlets for that, with You Tube and all the other stuff online.
+ - Most people are dead. Did you know that? It’s true, out of all the people that ever were, almost all of them are dead.
+ - I love stand-up more than anything, and I’m so happy to have found a way to use it in the show.
+ - Technically, I’ve learned that having good legs and wind is good for being on stage. You have to be in shape and have endurance.
+ - People get successful and they start saying, ‘Well of course I am! I was chosen! I’m special!’ No, you’re not.
+ - There’s no real preparing at home for stand-up. You just go and you just do it.
+ - Young people don’t even consider that it’s a good idea to be out on the fringe, which is where good ideas come from.
+ - The Jackass movies are honestly some of the best movies I’ve ever seen. I laugh so hard at them. Those guys are geniuses. If they had grown up with a different group of people, they could’ve been performance artists at Bard College, and people would be writing papers about them.
+ - When people are getting richer and richer but they’re not actually producing anything, it can’t end well.
+ - My show is sort of a short-film anthology, and I’m able to tell little stories that don’t necessarily carry a whole episode in terms of narrative. I like the audience not being sure what they’re getting. I think it’s more fun to watch something when you’re discovering it as you go along.
+ - I’ve had, what, two years? Probably five good years. Before that I had twenty years of uncertainty and suffering and ego destruction and poverty. All those things. That’ll always outweigh the good times.
+ - I do actually use a boxing trainer when I train for stand-up.
+ - Fathers have skills that they never use at home. You run a landscaping business and you can’t dress and feed a four-year-old? Take it on!
+ - Cars and cameras are the two things I let myself be materialistic about. I don’t care about other stuff.
+ - Most Americans have so much crap, that you could lose most of it and still have way more stuff than the average Canadian.
+ - People don’t talk to me on airplanes.
+ - Everybody is different. Some comedy is more musical like Steven Wright. His is a pillar of comedy to me. He invented a whole form and all his jokes are poems. So it’s different. I wanted to do it like George Carlin. Now I do it like me.
+ - I’ve always got the road. Stand-up makes you so autonomous and self-sufficient that it really helps with that part of show business.
+ - When I got divorced, I thought ‘Well, there goes my act.’
+ - I was an awkward kid.
+ - I don’t like comedy. I like funny things. I don’t like comedy. Like, comedy movies are just, ‘Oh Jesus.’
+ - A very painful part of being a parent is having really negative feelings about your children when you love them so much.
+ - When you’re young as a comic, you don’t have a lot of leverage.
+ - I do feel a lot of times like I’m out of my league with my kids in terms of what my responsibility is.
+ - Sometimes I try to take a nap before shows. That clears my head.
+ - I watch a lot of sports. But when I’m not working, I’m with my daughters every chance I get.
+ - The problem is, the more famous you get, the more people see you who didn’t choose to.
+ - I don’t have a room full of writers pitching ideas. It’s just me out of my head.
+ - You have to be able to do a bunch of things at once, and not think about things you’re not doing while you’re doing other things. You have to be disciplined about not trying to do everything, all at the same time. It’s hard and fun.
+ - It’s hard to know where your thoughts come from, especially when you have a thirst for material because you need it professionally.
+ - You can do eight things. We got it down to eight for you.
+ - There’s no way you ask Sean Penn a question and then, you’re gonna be HUGE !
+ - The ability to just sit there. That’s being a person.
+ - I’ve had soccer moms come up and tell me they can relate when I say that I want to throw my baby in the trash.
+ - I could never sit down and write jokes.
+ - My uncles were all funny. My dad wasn’t funny, but my uncles were all funny. Now I go back and I like him better than them, they were manipulative funny.
+ - I killed my Facebook page years ago because time clicking around is just dead time. Your brain isn’t resting and it isn’t doing. I think people have to get their heads around this thing. All this unmitigated input is hurting folks.
+ - You don’t look down at your feet. A lot of comedians want to look down at their feet, but you break contact with the audience.
+
+213 quotes

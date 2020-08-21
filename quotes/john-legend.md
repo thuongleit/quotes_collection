@@ -1,0 +1,116 @@
+ - My head’s under water but I’m breathing fine.
+ - The best way to fight poverty is to empower people through access to quality education.
+ - The future started yesterday, and we’re already late.
+ - I keep learning, listening, growing and experimenting.
+ - Love your curves and all your edges All your perfect imperfections.
+ - A just society is not one built on fear or repression or vengeance or exclusion, but one built on love. Love for our families. Love for our neighbors. Love for the least among us. Love for those who look different or worship differently. Love for those we don’t even know.
+ - Soul is about authenticity. Soul is about finding the things in your life that are real and pure.
+ - The biggest weapon is to stay peaceful.
+ - We’re just ordinary people. We don’t know which way to go.
+ - All men should be feminists. If men cared about women’s rights, the world would be a better place.
+ - The best training is to play by ear: trial by fire.
+ - I feel like my job is to make impact, spread love, tell great stories, inspire people, that’s what I am going to do.
+ - I used to work for a management consulting company, so I dressed differently – business casual, probably a lot of things from Banana Republic. My wardrobe now is definitely more expensive, but I always dress for the occasion.
+ - We all must follow a different path to let our light shine, and that’s what makes us so unpredictable and unique.
+ - I’m pretty adventurous with food, so I’m not afraid to try anything.
+ - My family is very musical, I was surrounded by it. And from four years old I was the one that asked my mother could I take piano lessons.
+ - Sometimes there’s that perfect moment when the crowd, the music, the energy of the room come together in a way that brings me to tears.
+ - I just want it to be timeless and timely at the same time.
+ - You learn so much from taking chances, whether they work out or not. Either way, you can grow from the experience and become stronger and smarter.
+ - It’s really about making the best music you can make. It’s really about working hard.
+ - The fun part about collaborating is that you naturally just bounce off each other’s energy and learn off each other.
+ - Sometimes I start just on the piano with a melody or musical idea that kind of leads me to certain lyrics.
+ - Music business is not for everyone. But if you have it in you, you have that passion, if you have that energy in you that you really want to make something creative and make something that’s going to impact the world, then go for it, do it and don’t let anybody tell you no.
+ - I thought it would be funny to take a photo in the White House bathroom, I take pictures everywhere I go, but I don’t think I can top that one.
+ - I wrote the song “Show Me” as a prayer to God asking simple, honest questions about life and death and why there is so much suffering in the world. As I grew with the song I realized I shouldn’t limit these questions solely to God; I should ask those questions of others and of myself.
+ - Some people, you know, should just go to college and do what they do and have a great job and not worry about trying to be famous as a singer. It’s not for everyone.
+ - It’s an artist’s duty to reflect the times in which we live.
+ - I like cool jackets – a nice fall or winter coat. You can get a lot of use out of it, and you’ll wear it frequently, so it can really set the tone of your uniform for the season.
+ - You see all these things that make you feel desperate or sad, but you realize changes can be made, and it doesn’t take a lot of money on our part to make a change in people’s lives.
+ - I was a busy kid in high school – a little bit of an overachiever, I guess. Prom king was kind of silly, but the rest of the stuff was important to me.
+ - Experience is a great teacher.
+ - I’ve written good love songs when I have been in love and I’ve written good love songs when I haven’t.
+ - I listen to all those kinds of music, from classic soul to hip-hop to Brazilian music to, you know, jazz to indie to alternative. So whatever. I listen to all if it. Classic rock and classic pop, all of that.
+ - I don’t like going to football games. I like watching them on television. When you go to a game, it’s hard to focus. There’s so much going on, and it’s cold. I’d rather sit and watch it and get replays and commentary.
+ - I do believe that part of us ending racism is us seeing each other’s humanity and learning to love each other, even if we look different or worship differently or live differently.
+ - In terms of the technology I use the most, it’s probably a tie between my Blackberry and my MacBook Pro laptop. That’s how I communicate with the rest of the world and how I handle all the business I have to handle.
+ - As a young black boy, it made me proud to see black leaders that did something amazing and made the world change.
+ - I’ve always followed politics, and I think politics is everybody’s business because we’re electing someone who’s going to be making important decisions that will affect all of our lives.
+ - If a relationship is going to work, it will require compromise and, even then, it is not always going to end the way you want it to.
+ - Witnessing the extreme poverty in remote parts of Affrica can make you feel sad and powerless until you realize how little it takes to change these people’s lives fundamentally in sustainable ways.
+ - People tell me all the time that my songs help them express things to loved ones that they may not be able to say themselves.
+ - The weirdest thing about Hillary Clinton’s email ‘scandal’ is finding out some of our senators still don’t use email.
+ - You can always find a stray negative comment on the Internet. It’s like everybody loves to put negative comments on the Internet under the cloak of anonymity.
+ - London is a good fashion city. They’re a little more daring. There’s the element of the aristocracy, which is always interesting.
+ - There are more black men incarcerated today than there were slaves in 1850.
+ - I know when things feel a little, like, intrusive and when they don’t. I don’t have a lot to hide. But I do sometimes think, don’t share everything.
+ - If a few people decide not to buy my album it’s really not going to change my life that much.
+ - I’m craving more soul, I’m craving more truth, I’m craving more socially – just people that are aware of what’s going on in the world.
+ - The main focus for me is not trying to find duet partners. It’s about just making great songs. I want most of my album to be in my voice, because it’s my point of view.
+ - J. Ivy is a brilliant man with an incredible voice and a way with words. I’ve known him for over a decade and owe my stage name to him believing in me back then before I even had a record deal. I’m excited for him to share his truth with the world.
+ - I’m trying to be me and embrace all the parts of me that have grown up, listened to more music and soaked up more influences.
+ - Sometimes I just think people are haters. And if they’re haters, you can listen to what they have to say but you have to take it with a grain of salt.
+ - I always saw myself as a singer-songwriter, a solo-artist, that’s why working with other artists was never satisfying for me.
+ - I feel like spirituality definitely comes through in my music, but I don’t make any specific efforts to make it that way.
+ - The issue I focus on the most is extreme poverty. I think it’s kind of out of sight out of mind. I wish there would be more stories about that to connect people to what’s happening. To personalize it, to make it real to people, to inspire them to action.
+ - For me, no matter how much money you want to make off of singing, no matter what kind of fame you want to make, achieve, the most important thing to me is making music that you’re proud of, making music that comes from you, comes from an authentic place in you.
+ - There’s a lot of hurry up and wait. But it gives you time to write a song.
+ - No matter how big or successful and famous you become, if you do that, that’s the most fulfilling thing, is making music that you love and that you’re proud of.
+ - I gravitate toward people that are a little more outrageous than I am. And we complement each other well.
+ - We should care about what is going on in the world.
+ - John legend is a nickname that somebody started calling me a while ago and part of it is ’cos I sound like an old man when I sing.
+ - I’m honestly not a great gift giver. I could give better – my girlfriends have always complained about that.
+ - Every artist wants some sort of feedback, because you make this music and you hope people love it and you want to hear if they love it and what they love about it, what their favorite song is, what they think the next single should be. I like to hear those things.
+ - My first big break came with Lauryn Hill on a track called Everything is Everything, I played piano on that track way back in 1998.
+ - I was in an a cappella group in school, so it particularly helped me keep my piano chops up.
+ - For me I’m actually doing what I normally do when I do my solo thing and the other thing is actually more new to me.
+ - I want to move people.
+ - Music, to me, if it’s good, it’s good. That’s all that matters.
+ - My line is probably a little more conservative than some of my compatriots in the business. But again, I think it’s all – like, it just – it comes down to me knowing who I am and knowing how I want to be seen in the world, how I want to discuss things.
+ - I like songs that have like a little bit of quirkiness to them. What I like to do with songs, is kind of throw a little curveball in the lyrics or in the arrangement, to kind of give it a little twist to it.
+ - My mother, I want her to like my music, but she’s not exactly my target audience. So I care more about the fans in general, just making sure they enjoy what I do.
+ - The struggle for freedom and justice is now.
+ - Now that I’m coming out with my own record people can see I’m a solo artist.
+ - In my neighborhood in Springfield, Ohio, there were a lot of young kids. We all played tackle football after school, but I knew very early on that I was not an athlete.
+ - I don’t think I’m craving any more fame. But success and being recognized for making great work all around the world, I think it’s a great thing.
+ - I have a great band, with very talented players, and we give everything we have every night.
+ - I don’t love the idea of three superstars coming together to form a dream team, I’d rather teams are built more organically, just as a fan it’s more interesting to see.
+ - I care more about the fans in general, just making sure they enjoy what I do. And then also I kind of had this kind of ideal of the kind of music I want to make and what I’m aiming for kind of creatively and just the quality of the music that I’m trying to make. And I have that in my head.
+ - To me, as a musician, there aren’t any boundaries genre-wise as far as what can you listen to to inspire you.
+ - I’m used to getting sexy sometimes in the lyrics.
+ - As a nation – and as a world – we need more truth.
+ - I hear melodies and hooks all day. I’ve always been that way, since I was a kid.
+ - I think people relate to the music because I have a sense of empathy, and I think I have a good understanding about relationships, and I talk about them in a real, honest way.
+ - I don’t feel like that many musicians are competitive with each other.
+ - Well, I like songs that have like a little bit of quirkiness to them.
+ - I never went through a period where I didn’t want to play music. I’ve always loved it and it’s always been a huge part of my life.
+ - I was always the front man for what I was doing from when I was 6.
+ - Marvin Gaye was one of the coolest. I look to him as a style icon and as an artist.
+ - There’s so much music out there, and so many different styles that I’ve been influenced by, so each album reflects some of that knowledge or influence that I’ve had.
+ - Musicians are in-season all the time.
+ - I always felt that rap didn’t cause crime; it just reflected it.
+ - That’s the evergreen nature of a great song. They can be resurrected. They can be covered. They can find new relevance due to changing circumstances in history.
+ - I do speak to kids a lot. I am very clear with them that not all of them should aspire to be me and not all of them should be aspire to be LeBron.
+ - Artists in general never stay in the same place, we keep growing. It’s still you, you still have that core that you always had, but you work with new people and hear new things.
+ - I was the front man of the choir and then when I was 12 and I was the leadsinger of my highschool groups.
+ - I only want to be associated with music that is high quality. That’s my main criteria.
+ - When we see people that are impoverished and people who are dealt an unfair hand, then if we have the power to help them, we should try to do that.
+ - At the end of the day, there’s only a few major stars in the music business, and then there’s all these people that are aspiring to be that.
+ - I used read about Dr. King a lot as a kid. Independently, from being assigned it or being told by my parents or anything, I was just really excited about him. So I just started reading about him very young and was inspired by his legacy and looked to him as a role model.
+ - Critics like to describe and categorize things, and categories often have a way of limiting people.
+ - Happy that New York passed marriage equality tonight. A victory for human rights. Progress.
+ - I think writers are prone to hyperbole sometimes.
+ - I believed in myself and I am a firm believer you have to think the things you want and visualize.
+ - When I write, I don’t really focus on duets or anything like that, or whether I’m going to feature this or that rapper. I just focus on just making a great song and figure out the rest later.
+ - There’s a certain confidence that comes with being sure about the way the world works.
+ - I just want my music to measure up to. Part of it’s just thinking about my place in history and how this music is going to be perceived, if it’s listened to 30, 40 years from now.
+ - I played classical as a kid.
+ - But in my mind I’ve always been a solo artist- I’ve just been working with a lot of great people like Kanye and Alicia Keys and Jay-Z.
+ - In the 1970s, for all the Stevie Wonders, I’m sure there were five artists that were making forgettable music.
+ - Why wouldn’t I help? What good reason do I have as a human being with power and a sense of empathy and morality, why wouldn’t I do something?
+ - Well, I was always a bit of a political junkie. Even as a kid I would read biographies of presidents and of civil rights leaders like Martin Luther King and Frederick Douglass and Booker T. Washington.
+ - I don’t get to listen to music for fun very often; a lot of what I’m hearing is for work and isn’t released yet.
+ - I think the most important thing is that I’m making music that the people enjoy. So the fans, the people that are out there listening to music and consuming music, I want them to enjoy it and love it. And so that’s more important to me than Grammys.
+ - Music business is hard. It’s very difficult. And it’s not for everyone. Even if you can sing or even if you can write a song, it takes a lot of determination, it takes some kind of thick skin.
+
+114 quotes

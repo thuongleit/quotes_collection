@@ -1,0 +1,26 @@
+ - Startups Are Hard. So Work More, Cry Less, And Quit All The Whining.
+ - Best startups generally come from somebody needing to scratch an itch.
+ - I believe the term “blog” means more than an online journal. I believe a blog is a conversation. People go to blogs to read AND write, not just consume.
+ - Most people have an aversion to risk, my college economics professor told me. Which means they have to be rewarded to take on that risk. The higher the risk, the higher the possible payout has to be for people to jump.
+ - I always try to find the truth in a situation. That unvarnished, pure nugget of truth at the core of every issue that I write about.
+ - Everyone wants the rich to pay more in taxes.
+ - Customer research produces bland products. We’re producing a piece of art.
+ - Write good content about stuff that you love. Readers will find you.
+ - A business model that hasn’t been tried before is always interesting, even if it’s likely to fail.
+ - We live in a world where you’re not being eaten by a lion when you fail, you just have to get another job.
+ - Just pick a political story at random and read the comments. There is no logic or reason on either side – only hypocrisy and hate.
+ - Most of the money I make now comes from investments from CrunchFund. And the vast majority of that is what’s called carried interest.
+ - America is an unsolvable problem: a nation divided and deeply in hate with itself. If it was a startup, wed understand how unfixable the situation is; most of us would leave for a fresh start, and the company would fall apart. America is MySpace.
+ - Journalists hold themselves apart, and above, the common person. They have rules designed to ensure their objectivity and impartiality.
+ - Our government is just way too interested in mucking around in Silicon Valley by creating and enforcing rules based on little or no understanding of the consequences.
+ - Im nearly certain that Google accessed my Gmail account after I broke a major story about Google.
+ - Women in my world are respected as much as men.
+ - The payouts for starting a business are just terrible when you account for risk. A tiny minority of entrepreneurs ever get rich. And the majority of entrepreneurs would probably make far more money, and have more stable personal relationships, if they just worked for someone else.
+ - The problem isn’t that Silicon Valley is keeping women down or not doing enough to encourage female entrepreneurs. The opposite is true. No, the problem is that not enough women want to become entrepreneurs.
+ - There are lots of things that I will probably never experience in this life. Military combat. Being dictator of a small central American country. Dunking a basketball. Being a famous rock star. Or walking on Mars. But one thing I have been, and will always be, is an entrepreneur.
+ - I live a fairly simple life, and that didnt change much after I sold TechCrunch in 2010. I didnt buy a new house or even a new car. The one thing I did splurge on was a boat. Nothing too fancy or large.
+ - One thing I know from personal experience, judges hate it when parties talk publicly about their cases. There are a lot of things about our criminal legal system that need to be changed, and this is just one of them. Prosecutors know how to play the press. Most defendants don’t.
+ - The main thing to know about me is that I’m a champion of entrepreneurs and the startups they build. They are my rock stars. If in doubt, I side with them, and that’s clear from my writing.
+ - Friendships and marriage are far more potent than financial conflicts.
+
+24 quotes

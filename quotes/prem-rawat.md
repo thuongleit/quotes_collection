@@ -1,0 +1,31 @@
+ - Practice peace, change your world.
+ - It is not the world that needs peace, it is people. When people in the world are at peace within, the world will be at peace.
+ - Peace begins in the heart of all human beings.
+ - What you are looking for is within you.
+ - Happiness is your own treasure because it lies within you.
+ - Every moment has a momentous gift for you.
+ - You find freedom inside – nowhere else. In the heart of every being is that one space which is free, which is filled with Peace, and which is full of Love.
+ - We think a wise person is someone who solves problems. Truth is, a wise person is someone who avoids problems.
+ - That peace which is within us, we must experience it. And if we are searching for peace outside we will never find the peace within.
+ - Awaken and rejoice. Awaken and be alive. Awaken to the possibility of being fulfilled.
+ - Peace is not a luxury. It’s not an option. It is fundamental to the existence and well-being of a human being to have peace in their life.
+ - When I was born, God existed. But I never knew Him. I just never knew Him until Guru Maharaj Ji came into my life, till Guru Maharaj Ji came in my way, and showed me and revealed me that secret. And the day he did that, there it was, I knew God.
+ - Happiness cannot help but dance around you when you are fulfilled.
+ - We are all individuals. I can’t eat for you and you can’t eat for me. I can’t sleep for you and you can sleep for me. We are absolutely all individuals. When our purpose is fulfilled, it feels beautiful. That is, to me, the feeling of fulfillment.
+ - Is there something inside of you that is favoring peace? Because if there is, then congratulations: you are a human being. You have just reached, and felt, your most fundamental want.
+ - There is something so beautiful inside you that if you knew it, you would fall in love with it. It is irresistible. You can truly experience that.
+ - This peace is not the absence of anything. Real peace is the presence of something beautiful. Both peace and the thirst for it have been in the heart of every human being in every century and every civilization.
+ - The world doesn’t want you to know. They want you to believe. But there is a big difference between believing and knowing. Should you believe in yourself or should you know yourself?
+ - People think God is a man. People think God has got ears, nose, teeth and he rises daily in the morning, brushes his teeth and washes his mouth. And he is an old man and he has a beard. All these things people think. But no, God is energy. God is perfect and pure energy.
+ - The chances are you’ve never seen the other side of me. You’ve seen the event side of me when I’m on stage. But there is another side of me. If you evoke that side, you won’t like it. It’s a nasty side. You don’t want to see that side. You’re not missing anything by not seeing it.
+ - Life is a tide; float on it. Go down with it and go up with it, but be detached. Then it is not difficult.
+ - It’s okay to ask questions, but get the answers. So, where are the answers? Since the questions came from within you, guess where the answers are? Within you.
+ - The greatest problem all around the world today, whether in America, Japan, China Russia, India or anywhere else in the world, is that people are not in peace. People want peace.
+ - Every human being has to find their own peace. Peace is within you and me. When you and I can experience who we really are, what life is, and what we are doing here, that’s the day peace will begin in this world.
+ - To the mind, God is a perfect criminal. He has done such a perfect crime by creating this world that mind cannot trace how He did it. That is why the mind always freaks out about God.
+ - Throw away those little pieces of paper. Get yourself a big, beautiful canvas. Bring from this nature the most beautiful colors. Find the serene scene within. Find the joy in each corner of your life. Sit still and feel what is within you. Sit still and paint like you have never painted before.
+ - This life that has been given to us as a gift, as such a precious gift. To really try to understand it, really try to recognize it, is the greatest meditation. Through the media of this Knowledge we can tap into our inner sources that are so beautiful.
+ - I declare that I will establish peace in this world.
+ - I suggest you take a look at yourself. Not the concepts, not the ideas, not the goods, not the bads. But a timeless purity of existence. A witness to the beauty that is.
+
+29 quotes

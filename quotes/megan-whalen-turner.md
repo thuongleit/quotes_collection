@@ -1,0 +1,76 @@
+ - Sometimes, if you want to change a man’s mind, you have to change the mind of the man next to him first.
+ - But there are other words for privacy and independence. They are isolation and loneliness.
+ - Dying would have been so much easier.
+ - It was a race between the tortoise and the hare, but the tortoise had just enough head start, and he had the magus to drag him along.
+ - A thief never makes a noise by accident.
+ - I’m dying of boredom. Or maybe just dying.
+ - I wonder if people always choose what will make them unhappy.
+ - The younger one looked to be completely useless.
+ - Safety is an illusion, Costis. A Thief might fall at any time, and eventually the day must come when the god will let him. Whether I am on a rafter three stories up or on a staircase three steps up, I am in my god’s hands. He will keep me safe, or he will not, here or on the stairs.
+ - He could tell her he loved her. He ached to shout it out loud for the gods and everyone to hear. Little good it would do. Better to trust in the moon’s promises than in the word of the Thief of Eddis. He was famous in three countries for his lies.
+ - All my life they had made choices for me, and I had resented it. Now the choice was mine, and once it was made, I would have no right to blame anyone else for the consequences. Loss of that privilege, to blame others, unexpectedly stung.
+ - And the Earth had no name. The gods know themselves and have no need of names. It is man who names all things, even gods.
+ - As a ten-year-old boy, the Thief of Eddis could stop a grown man in his tracks with a single look. Where had that look gone?
+ - The Magus must had eyes like a thief because he told Pol to stop and dismount to walk alongside me, one hand resting just above my knee ready to shake me if I fell asleep. He shook hard and resorted to pinching periodically.
+ - If I am the pawn of the gods, it is because they know me so well, not because they make my mind up for me.
+ - I know that if you don’t look for an alternative, Sophos, you certainly won’t find one.
+ - The room was quiet, the others flicking glances at me. I ignored them. After years in Sounis’s palaces being eyed with disgust by my uncle and my own father and courtier after courtier, I assure you I am unrivaled at pretending not to notice other people’s glances.
+ - In the afternoon, the king and queen sat to hear the business of their kingdom. At least, the queen sat to hear the business; Costis was still not sure what the king was doing.
+ - I’ll stop shouting. I won’t sit down. I might need to throw more inkpots.
+ - I hate horses. I know people who think that they are noble, graceful animals, but regardless of what a horse looks like from a distance, never forget that it’s as likely to step on your foot as look at you.
+ - I think a good book is a good book forever. I don’t think they get less good because times change.
+ - If I couldn’t be Eddis, I would be Attolia. If they needed to see my uncle in me, then I would show him to them. And I would take Attolia’s advice because if I identified my enemy and destroyed him, Sounis would be safe.
+ - Let the gods into your life and you rapidly lose faith in the natural laws.
+ - What he brought out was a wooden gag they put in someone’s mouth before doing something drastic, like cutting off a leg.
+ - I love stupid plans.
+ - If we truly trust no one, we cannot survive.
+ - The Thieves of Eddis don’t have breaking points. We have flash points instead, like gunpowder.
+ - Coming from light into the dark, he was looking ahead of him, not down at me. My lunge, as I came to my feet, took him in the chest as I drove the sword upward with the strength of my legs. Even rusted, the sword slid through him, and I found, for the first time, how easy it is to kill a man.
+ - Sophos turned red, and I wondered about the circulation of his blood; maybe his body kept an extra supply of it in his head, ready for blushing.
+ - You are treasure beyond any price.
+ - The Lord of Rags and Tatters.
+ - Discretion prevented me from saying that I thought she was a fiend from the underworld and that mountain lions couldn’t force me to enter her service.
+ - A little danger adds spice to life.
+ - It made Costis wonder for the first time just how much the stoic man really wants to hide when he unsuccessfully pretends not to be in pain.
+ - All I wanted to do was lie in the dry grass with my feet in a ditch forever. I could be a convenient sort of milemarker, I thought. Get to the thief and you know you’re halfway to Methana.
+ - No friend had I made there, but I wasn’t with this group to make friends, and besides, he sneered too much. I’ve found that people who sneer are almost always sneering at me.
+ - Who knows but that you will get up to find that the world has inverted itself yet again?
+ - Anyone who can steal the king’s seal ring can manage the locks on his record room.
+ - He whines, he complains, he ducks out of the most obvious responsibility. He is vain, petty and maddening, but he doesn’t ever quit.
+ - She was the stone-faced queen, then and ever after. She had needed the mask to rule, and she had been glad to have it. She wondered if Eugenides was glad of his.
+ - His forehead was covered by wrinkles brought on by a lot of sun and too much frowning.
+ - I grieved, but a part of me felt a lightening of a burden that I had carried all my life: that I could never be worthy of them, that I would always disappoint or fail them. As an unknown slave in the fields of the baron, I knew the worst was over. I had failed them. At least I could not do so again.
+ - He didn’t marry you to become king. He became king because he wanted to marry you.
+ - I am a master of foolhardy plans.
+ - That one,“-he nodded toward the closed door-” will rule more than just Attolia before he is done. He is an Annux, a king of kings.
+ - He lies to himself. If Eugenides talked in his sleep, he’d lie then, too.
+ - She pulled the bedclothes up as far as they would go and suppressed a perverse wish to have her old nurse come to chase away the darkness, perverse because she didn’t know if she wanted the shadows to be empty or not.
+ - Today, she had yielded the sovereignty of her country to Eugenides, who had given up everything he had ever hoped for, to be her King.
+ - The queen had passed him, so close he’d felt the stir of air, and he guessed that if she had turned her head, only a little, and met his eyes, he might have died right there.
+ - Staring at the wall opposite him he presented the queen with a view of his ear and awaited her orders.
+ - We are not philosophers, we are sovereigns. The rules that govern our behavior are not the rules for other men, and our honor, I think, is a different thing entirely, difficult for anyone but the historians and the gods to judge.
+ - These people make my family look easy to get along with.
+ - I am very good at groveling.
+ - I thought that being king meant I didn’t have to kill people myself. I see know that was another misconception.
+ - The queen was settling on the edge of the bed, ungainly with hesitation and at the same time exquisite in her grace, like a heron landing in a treetop.
+ - He couldn’t offend the gods with a pointed stick.
+ - It isn’t an easy thing to give your loyalty to someone you don’t know, especially when that person chooses to reveal nothing of himself.
+ - All of my own impulses to balance and move seemed to conflict with those of the guards, and I was jerked and jostled down the portico, just as graceful as a sick cat.
+ - I have a whole guard room full of brawny veterans who’d enjoy a chance to drag two Eddisians out of here, particularly if you kicked a lot and they could kick you back.
+ - I sometimes believe his lies are the truth, but I have never mistaken his truth for a lie.
+ - As soon as the guards where gone, I lay down on my stone bench and dumped the king and his threats out of my head without ceremony. They were too unpleasant to worry over anyway.
+ - What kind of man refers to himself as safely dead?
+ - Who am I, that you should love me?
+ - Costis followed, telling himself that it wasn’t true that he and the king and even the stone under their feet were nothing but tissue, transparently thin, and that for a moment, the only real thing in the universe had been there on the parapet with the king.
+ - Being six feet off the ground does give one a sense of superiority.
+ - Muse of poetry, come to his aid, I thought. Could the man produce one more metaphor of husbandry? He seemed to be trying. “Green wood,” I suggested, but even he sensed that there was something unfortunate about a metaphor for a king in which you dry out your royalty before you set fire to it.
+ - What a strange world it is, where prisoners are left their weapons and the written word is a mortal danger.
+ - The prison keeper choose an inopportune time to look around the doorway into the cell. He and the king locked gazes, and the king’s eyes narrowed while the prison keeper’s widened.
+ - On the bed, Eugenides stirred restlessly. “Upset at the sight of blood?” he said. “Not my wife, Ornon.” “Your blood,” the ambassador pointed out. Eugenides glanced at the hook on his arm and conceded the point. “Yes,” he said. He seemed lost in memory. The room was quiet.
+ - Finally I went and found my hat and skewered it on my head with a four-inch hat pin. I wore the hat because I knew my mother never visited without one. The pin I thought would be a comfort in case of emergency.
+ - I would very much like to strangle someone. Why don’t you go away until I decide it isn’t you?
+ - Rae Carson’s heroine is a perfect blend of the ordinary and the extraordinary. I loved her.
+ - I didn’t really care much about anything, so I guess I felt fine.
+ - No man can choose to serve only himself when he has something to offer his state. No one can put his own wishes above the needs of so many.
+
+74 quotes

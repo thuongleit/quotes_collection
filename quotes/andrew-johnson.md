@@ -1,0 +1,32 @@
+ - When I die, I desire no better winding sheet than the Stars and Stripes, and no softer pillow than the Constitution of my country.
+ - Washington, DC is 12 square miles bordered by reality.
+ - If you always support the correct principles then you will never get the wrong results!
+ - It’s a damn poor mind that can only think of one way to spell a word.
+ - The goal to strive for is a poor government but a rich people.
+ - For myself, I care not whether treason be committed North or South; he that is guilty of treason is entitled to a traitor’s fate!
+ - There are no good laws but such as repeal other laws.
+ - I realized, there are people out there who can beat me, want to beat me. And unless I continue to innovate and evolve, I am going to learn a painful lesson from someone who has.
+ - I hold it the duty of the executive to insist upon frugality in the expenditure, and a sparing economy is itself a great national source.
+ - If blacks were given the right to vote, that would place every splay-footed, bandy-shanked, hump-backed, thick-lipped, flat-nosed, woolly-headed, ebon-colored in the country upon an equality with the poor white man.
+ - Honest conviction is my courage; the Constitution is my guide.
+ - I never thought I would be impeached.
+ - Slavery exists. It is black in the South, and white in the North.
+ - Let them impeach and be damned.
+ - The life of a republic lies certainly in the energy, virtue, and intelligence of its citizens.
+ - The enactment of the Homestead Act would create the strongest tie between the citizen and the Government-he would with cheerfulness contribute his proportionable part of the taxes to defray the expenses of the political system under which he lived.
+ - Notwithstanding a mendacious press; notwithstanding a subsidized gang of hirelings who have not ceased to traduce me, I have discharged all my official duties and fulfilled my pledges. And I say here tonight that if my predecessor had lived, the vials of wrath would have poured out upon him.
+ - My right side is paralyzed. I need no doctor. I can overcome my own troubles.
+ - I have reached the summit of my ambition.
+ - Duties have been mine; consequences are God’s.
+ - If the rabble were lopped off at one end and the aristocrat at the other, all would be well with the country.
+ - I am sworn to uphold the Constitution as Andy Johnson understands it and interprets it.
+ - It is our sacred duty to transmit unimpaired to our posterity the blessings of liberty which were bequeathed to us by the founders of the Republic.
+ - Outside of the Constitution we have no legal authority more than private citizens, and within it we have only so much as that instrument gives us. This broad principle limits all our functions and applies to all subjects.
+ - Whenever you hear a man prating about the Constitution, spot him as a traitor.
+ - Legislation can neither be wise nor just which seeks the welfare of a single interest at the expense and to the injury of many and varied interests.
+ - Tyranny and despotism can be exercised by many, more rigourously, more vigourously, and more severely, than by one.
+ - I tell our sisters in the South that so far as Tennessee is concerned she will not be dragged into a Southern or any other confederacy until she has had time to consider; and then she will go when she believes it to be her interest, and not before.
+ - If I am shot at, I want no man to be in the way of the bullet.
+ - Who, then, will govern? The answer must be, Man – for we have no angels in the shape of men, as yet, who are willing to take charge of our political affairs.
+
+30 quotes

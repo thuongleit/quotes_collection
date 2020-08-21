@@ -1,0 +1,502 @@
+ - Procrastination makes easy things hard, hard things harder.
+ - Reading gives us someplace to go when we have to stay where we are.
+ - Every day begins with an act of courage and hope: getting out of bed.
+ - Regret for wasted time is more wasted time.
+ - Why not – is a slogan for an interesting life.
+ - The time I kill is killing me.
+ - Clothes make a statement. Costumes tell a story.
+ - Self-pity makes people callous.
+ - Nobody knows the trouble I’ve seen: even less, the trouble I’ve successfully avoided.
+ - Art begins in imitation and ends in innovation.
+ - My ambition in life: to become successful enough to resume my career as a neurasthenic.
+ - The tragic hero prefers death to prudence. The comedian prefers playing tricks to winning. Only the villain really plays to win.
+ - Every time I change the way I explain myself to myself, I have to rearrange the story of my life.
+ - My strengths make me contemptuous. My weaknesses make me charitable.
+ - While we are reading, we are all Don Quixote.
+ - King Kong, Count Dracula, and the Phantom of the Opera are just looking for love, like the rest of us.
+ - Inequality is a fact. Equality is a value.
+ - The philosophy of hedonism means little to lovers of pleasure. They have no inclination to read philosophy, or to write it.
+ - Heroes are born to be troublemakers.
+ - Symbolism erects a facade of respectability to hide the indecency of dreams.
+ - Logic teaches rules for presentation, not thinking.
+ - The closeups of pornography make human genitals look like undiscovered prehistoric animals.
+ - Always clamping down on excitement is not self-control but fear.
+ - The more learned a writer, the more digression beckons him.
+ - Every farewell combines loss and new freedom.
+ - The self-righteous rule out the possibility that they are what has gone wrong.
+ - Methodology is applied ideology.
+ - Melancholy is as seductive as Ecstasy.
+ - The world needs an enema.
+ - Self-congratulation pleases only the speaker.
+ - An event is not over until everyone is tired of talking about it.
+ - Without a little negligence, life would be intolerable.
+ - The novelty we want is always close to the familiar.
+ - If you call failures experiments, you can put them in your resume and claim them as achievements.
+ - Our civilization is shifting from science and technology to rhetoric and litigation.
+ - Every path to a new understanding begins in confusion...
+ - Lies and promises are necessary but not sufficient.
+ - Lack of reciprocity ruins friendships, but makes love affairs exciting for a time.
+ - Duty is whatever opposes inclination.
+ - The villain may be good looking, but his smile is never quite right.
+ - Either offer me something I really like, or stop trying to tempt me.
+ - Change often makes accepted customs into crimes.
+ - Sentimentality is the respect the cold-hearted pay to feeling.
+ - The narcissist enjoys being looked at and not looking back.
+ - Wisdom remembers. Happiness forgets.
+ - Nostalgia paints a smile on the stony face of the past.
+ - Cure for an obsession: get another one.
+ - The routines of tourism are even more monotonous than those of daily life.
+ - Alone, I am satisfied with myself. With others, I am beset by troubling comparisons.
+ - Fortuna smiles and frowns according to a timetable surprising even to herself.
+ - A blocked path also offers guidance.
+ - The lonely become either thoughtful or empty.
+ - In the labyrinth of a difficult text, we find unmarked forks in the path, detours, blind alleys, loops that deliver us back to our point of entry, and finally the monster who whispers an unintelligible truth in our ears.
+ - Position yourself well enough, and circumstances will do the rest.
+ - Laughter scares off lust.
+ - Who would not give up wit for power and beauty?
+ - The critical spirit never knows when to stop meddling.
+ - Self-hatred and self-love are equally self-centered.
+ - With age, comfort becomes more seductive than beauty.
+ - There are different rules for reading, for thinking, and for talking. Writing blends all three of them.
+ - I tried self-sacrifice a couple of times in my youth.
+ - Life just keeps unfolding, ignoring our praise or blame.
+ - Mistrust makes life difficult. Trust makes it risky.
+ - The shades of respectability begin to close about the greying head.
+ - I am open-minded on all questions I care nothing about.
+ - As every cockroach knows, thriving on poisons is the secret of success.
+ - Self-deception is nature; hypocrisy is art.
+ - Promiscuity is like never reading past the first page. Monogamy is like reading the same book over and over.
+ - If success is a habit, it is a hard one to acquire.
+ - The wisdom of age: don’t stop walking.
+ - An insult angers me. Being ignored crushes me.
+ - Never try to leap from a standstill.
+ - Hatred of the mother is familiar, but the mother’s hatred still comes as a surprise.
+ - Elegance thrives on exclusion.
+ - Youth demands more than ordinary life. Age clings to it.
+ - Money: power at its most liquid.
+ - Consciousness is our only reprieve from Time.
+ - Every declaration of love contains an unstated list of exceptions and demands.
+ - The Simple Life is not a simple life.
+ - If you corner me, you are going to hear some unwelcome truths.
+ - Conscience is the moralized form of self-absorption.
+ - Age: I go slower as time goes faster.
+ - Journalism never admits that nothing much is happening.
+ - Indifference creates an artificial peace.
+ - Literary tradition is full of lies about poverty-the jolly beggar, the poor but happy milkmaid, the wholesome diet of porridge, etc.
+ - Money comes to life as it is spent.
+ - Studying the past may suggest new ways of going wrong.
+ - Self-blame usually has an undertone of self-congratulation.
+ - Austerity causes constipation; excess, diarrhea.
+ - We are more tied to our faults than to our virtues.
+ - Your flattery is as full of contempt as your insults were.
+ - Leisure unmasks our weaknesses.
+ - Spontaneity comes after skill, not before.
+ - If you should ever acknowledge my existence, I plan to snub you.
+ - Fluency avoids hard thoughts.
+ - The Enlightenment needs more shadow; the Romantic Movement less.
+ - Let’s have some good, old-fashioned literature, with a virgin and a moral.
+ - In the museums, everything is in quotation marks.
+ - What is Providence for you may be Nemesis for me.
+ - Self-sacrifice usually contains an unspoken demand for payment.
+ - Don’t tell me it’s raining when you’re peeing on me!
+ - The powerless worship Luck and Fate.
+ - Fruitless striving breeds less despair than inaction.
+ - The beloved is the ultimate fetish.
+ - Dutch painting: daily life is enough.
+ - No dignity without distance.
+ - Most of us live in a world that has ceased to exist.
+ - Fastidious taste makes enjoyment a struggle.
+ - Reason is sight. Instinct is touch. Intuition is smell.
+ - Travelers never think that they are the foreigners.
+ - Old age likes indecency. It’s a sign of life.
+ - Vanity well fed is benevolent. Vanity hungry is spiteful.
+ - Like other secret lovers, many speak mockingly about popular culture to conceal their passion for it.
+ - Moo may represent an idea, but only the cow knows.
+ - Suspense combines curiosity with fear and pulls them up a rising slope.
+ - Every seeming equality conceals a hierarchy.
+ - When Medusa looks in the mirror, she sees the Lady of Sorrows.
+ - A modest demeanor arouses thoughts of seduction.
+ - Now that I see you understand me so well, I will avoid you.
+ - Those who refuse to play second fiddle may wind up playing no fiddle at all.
+ - Human society sustains itself by transforming nature into garbage.
+ - An illicit love affair seems sweetly old-fashioned in the age of one night stands and orgies.
+ - As night falls, every joy glows brighter.
+ - Vacations prove that a life of pleasure is overrated.
+ - Mild brown eyes beckon me to the past, but memory provides no clue.
+ - Mars and Venus are at it again. This time, Hephaestus is standing by with a private detective, a photographer, and a lawyer.
+ - A skyscraper is a boast in glass and steel.
+ - My mind is led astray by every faint rustle.
+ - An ardent lover often makes a cold friend.
+ - Ideology has shaped the very sofa on which I sit.
+ - Poor but happy is not a phrase invented by a poor person.
+ - If “there is no harm in asking,” why guilt and fear when we do so?
+ - If suffering brought wisdom, the dentist’s office would be full of luminous ideas.
+ - In the theater of confusion, knowing the location of the exits is what counts.
+ - Change is upsetting. Repetition is tedious. Three cheers for variation!
+ - Beggars beg to get money, not to reproach the passerby.
+ - Narcissus weeps to find that his Image does not return his love.
+ - Facts do not give advice.
+ - I love you is the inscription on Pandora’s box.
+ - Living alone is good for privacy, bad for full-scale cooking and moving heavy furniture.
+ - Blackmail is one of the great pastimes of family life.
+ - Saying “I feel guilty” is a mere form of words. Saying “I feel ashamed” is not.
+ - The doctrine of the immortality of the soul has more threat than comfort.
+ - A budget takes the fun out of money.
+ - Alone, lonely people talk to themselves. In company, they often continue.
+ - I am skeptical in principle, gullible in practice.
+ - Reason cannot break out of its own loop.
+ - In the game of love, the losers are more celebrated than the winners.
+ - Astrology: do we make a hullabaloo among the stars, or do they make a hullabaloo down here?
+ - To be sexy, nudes need a little underwear.
+ - Children must be protected not because they are innocent but because they are powerless.
+ - Innocence is thought charming because it offers delightful possibilities for exploitation.
+ - Plato’s Symposium shows that flirtation and philosophy can further one another.
+ - I dream of vague shapes that hint of my heart’s desire.
+ - Radical historians now the tell the story of Thanksgiving from the point of view of the turkey.
+ - When appearance and reality coincide, philosophy and literary criticism find themselves with nothing to say.
+ - The mind scolds the heart, which makes excuses and goes its own way.
+ - The exhibitionist loves to flirt with shame.
+ - With every physical pain, my moral fibre unravels a little.
+ - Withhold admiration from a narcissist and be disliked. Give it and be treated with indifference.
+ - Nudity is the costume of lovers and corpses.
+ - Like love, destruction can be ecstatic.
+ - A dirty mind is a rich inner resource.
+ - Nature knows no difference between weeds and flowers.
+ - I change my opinions often, but not my way of thinking.
+ - Sexual attraction pairs people, but does not match them.
+ - Only the most lucid can see their love as comedy.
+ - Altruism is for those who cannot endure their desires.
+ - Everyone makes sexy sounds; relatively few, sexy sights.
+ - Intelligence in isolation turns to aimless marauding.
+ - I like the old wisdom – puns, riddles, spells, proverbs.
+ - Arrogance frowns; pride smiles.
+ - Prudence suspects that happiness is a bait set by risk.
+ - Office politics are bloody-minded, but weak on content.
+ - All anger feels like righteous anger; sorrow does not care whether it is righteous or not.
+ - Rhyme and meter force gaps in meaning so the muse can enter.
+ - Young girls giggle with nervous delight at the erections they inspire.
+ - The self-righteous feel no need to be charming, and thus double their offensiveness.
+ - Telescopes and binoculars endanger the ever-distant sublime.
+ - Alcohol postpones anxiety, then multiplies it.
+ - The nudes of art are not so distant from pornography as prudish pedants pretend.
+ - Complainers detest each other.
+ - Writing an upbeat aphorism is a temptation, but decorum forbids.
+ - The harp is an insipid instrument – no good for dancing, feasting, or marching, only for sitting primly in a parlor or on a cloud.
+ - Pleasure usually comes when called, but not happiness.
+ - I do not regret the folly of my youth, but the timidity.
+ - As a comforter, philosophy cannot compete with a good dinner.
+ - Women encourage men to be childish, then scold them.
+ - An adolescent is both an impulsive child and a self-starting adult.
+ - Self-satisfaction and self-pity are both condemned. What are people permitted to feel about themselves?
+ - The laughter of the aphorism is sometimes triumphant, but seldom carefree.
+ - In the street, the gaze of desire is furtive or menacing.
+ - Pain narrows consciousness; pleasure blurs it.
+ - Glamour looks eloquent but seldom talks.
+ - For many, immaturity is an ideal, not a defect.
+ - Intelligence complicates. Wisdom simplifies.
+ - Silence kills scandal.
+ - Shameless: Punish me for my desire if you will. It burns still.
+ - Only the broken-hearted know the truth about love.
+ - Complainers change their complaints, but they never reduce the amount of time spent in complaining.
+ - Winning means outlasting everyone else.
+ - The telephone gives us the happiness of being together yet safely apart.
+ - Modernism: the books are as hard to understand as life itself.
+ - Beauty and virtue: the most kissable ass in the world is no guarantee of good intentions.
+ - Vanity is easily duped. Ambition, not.
+ - The gods are watching, but idly, yawning.
+ - Understanding replaces imaginary fears with real ones.
+ - What I eat turns into my body. What I read turns into my mind.
+ - Only death rescues us from dying.
+ - Dreams are distorted representations of desire. So are dream- analyses.
+ - To avoid eye contact, kiss.
+ - In middle age, going naked contributes little to public enjoyment.
+ - Victimization has its privileges, and I want some.
+ - Secrets die when kept or revealed. They live by being faintly and uncertainly repeated.
+ - I can neither return your love nor dismiss it.
+ - The haiku lets meaning float; the aphorism pins it down.
+ - Sulking is silent because speaking would reveal its folly.
+ - A frog in love would not be enchanted to learn that her beloved had turned into Prince Charming.
+ - Bad faith makes the most of every ambiguity.
+ - Reclusive? The inner city will secure your privacy better than any desert cave.
+ - Irony regards every simple truth as a challenge.
+ - We understand through resemblance.
+ - Beware of wallflowers. They expect to have everything done for them.
+ - Living alone makes it harder to find someone to blame.
+ - Fantasy mirrors desire. Imagination reshapes it.
+ - Unconditional love is a lofty ideal, but unconditional hate is a fact well documented by history.
+ - The Lady: a fluty voice, sensible shoes, a melancholy sense of living by rules few still remember.
+ - The lyric deals with love and sorrow, the aphorism with contradiction and deceit.
+ - Proverbial wisdom counsels against risk and change. But sitting ducks fare worst of all.
+ - Sexual boredom is ousting sexual deviance as the problem.
+ - What lies behind appearance is usually another appearance.
+ - Grandiosity lessens as work proceeds.
+ - No chaos, no creation. Evidence: the kitchen at mealtime.
+ - Lonely people console themselves with self-absorption or curiosity.
+ - The beginning of self-knowledge: recognizing that your motives are the same as other people’s.
+ - Every literary critic believes he will outwit history and have the last word.
+ - The familiar changes as we cling to it.
+ - Sacred or not, sacrifice is an ugly business.
+ - With decrepitude, longevity has overshot the mark.
+ - My father liked to moralize, and so do I. But he was in earnest, while I am embarrassed and pretend that I am merely being witty.
+ - The muse is blind as Cupid and skittish as Diana.
+ - As desire recedes, the world becomes clear, pale, and empty.
+ - Attacking a belief can be the first step toward embracing it.
+ - Wisdom is dead. Long live information.
+ - Tolerance is a placid contempt.
+ - Addicts turn their pleasures into vengeful Gods.
+ - To appear well dressed, be skinny and tall.
+ - Sometimes the only way to become grounded is to hit bottom.
+ - Ultimately, blind faith is the only kind.
+ - I feel disappointed, but I don’t remember just what I expected.
+ - Fear of trying causes paralysis. Trying causes only trembling and sweating.
+ - Once wealth and beauty are gone, there is always rural life.
+ - The children of childish parents age quickly.
+ - Nostalgia keeps dissolving the ironic narratives in which I have contained my past.
+ - The same old thing – even if it’s champagne – is still the same old thing.
+ - Jargon: any technical language we do not understand.
+ - The right time to die is never exactly now.
+ - An imprudent enemy is less dangerous than an imprudent friend.
+ - Acknowledge your limitations or they will tyrannize over you.
+ - Denial of one appetite sharpens the others.
+ - Commitments, not feelings, hold life together.
+ - I love money, but will money ever love me in return?
+ - The limitations of pleasure cannot be overcome by more pleasure.
+ - Preserving tradition has become a nice hobby, like stamp collecting.
+ - Reading about ethics is about as likely to improve one’s behavior as reading about sports is to make one into an athlete.
+ - Prudence does not save us, but shows us pictures of our destroyers.
+ - People who abhor solitude may abhor company almost as much.
+ - In the city, nudity means something; in the wild, it just exists.
+ - The Olympian gods cannot have grand passions because they cannot die.
+ - The only peace is being out of earshot.
+ - Some live in a state of passionate indecision.
+ - Good manners protect the privileged, but leave the unprivileged more vulnerable.
+ - Never ask a bore a question.
+ - Life is the risk we cannot refuse.
+ - Disappointment proves that expectations were mistaken.
+ - Writers mean more than they say and say more than they mean.
+ - Beauty compels us; reason merely cajoles.
+ - Literature may be false, but it is not trivial.
+ - I was once in love with books. Now they go their way and I go mine.
+ - Passion cooks. Reason cleans.
+ - Children would die of terror if they knew the folly and ignorance of their caretakers.
+ - I am the center of the world, but the control panel seems to be somewhere else.
+ - To succeed, find the right rut and stay with it.
+ - Once I find the right maxim to apply, I feel that I have done all that can be expected of me.
+ - Ideas about life organize perception; names of emotions organize sensations; rules of syntax organize thought. But pain comes on its own.
+ - When a modest man praises himself, people listen.
+ - The desire to perform impedes conversation.
+ - At the dinner table, if you can’t think of anything to say, sit quietly. Don’t throw rolls, or chew on your napkin.
+ - The man of sensibility is too busy talking about his feelings to have time for good deeds.
+ - Lying just for the fun of it is either art or pathology.
+ - Idleness makes people feeble and peevish. Work makes them stalwart and prone to anger.
+ - The worship of Mammon may be vulgar or immoral, but it persists while other religions falter and disappear.
+ - Yearning wants mostly to perpetuate itself.
+ - The neuroses parody the virtues.
+ - Suspicion is the beginning of wisdom, and of madness.
+ - Consensus is usually made possible by vague language and shallow commitments.
+ - After rejection – misery, then thoughts of revenge, and finally, oh well, another try elsewhere.
+ - The limits of prudence: one cannot jump out of a burning building gradually.
+ - Self-pity dries up our sympathy for others.
+ - Dancing and running shake up the chemistry of happiness.
+ - Helplessness is a mighty power.
+ - Many have attempted unnatural acts, but Nature has always shown the way.
+ - I have learned to keep to myself how exceptional I am.
+ - Young men preen. Old men scheme.
+ - The body has a mind of its own.
+ - In a strange city, I connect through food and fantasy.
+ - Many attempt to harvest what was never planted.
+ - At sixty, I know little more about wisdom than I did at thirty, but I know a great deal more about folly.
+ - Documents create a paper reality we call proof.
+ - Beautiful people are forgiven more often than the rest.
+ - Never lie in writing.
+ - Lust and greed are more gullible than innocence.
+ - A quick smile is more seductive than a slinky dress.
+ - Everyone fears and courts his own demon.
+ - Deconstruction glorifies the critic, humiliates the author, and makes the reader wonder why he bothered.
+ - Mathematics: silent harmonies. Music: sounding numbers.
+ - A goldfish is reason enough for living, if someone needs a reason.
+ - You are as happy as you think you are, but not necessarily as miserable as you imagine.
+ - Death promises nothing – not even oblivion.
+ - Pain pays no attention to moans or excuses.
+ - Generosity knows how to count, but refrains.
+ - Cruelty is softened by fear, not pity.
+ - The nature of language may determine what most people say, but I always speak my own meaning.
+ - Dieting is our last tie with asceticism.
+ - To make advice agreeable, try paradox or rhyme.
+ - If I can’t serve as a role model, let me serve as a warning.
+ - Faith no doubt moves mountains, but not necessarily to where we want them.
+ - Observe decorum, and it will open a path to morality.
+ - The more knowledge, the clearer what the doubts are.
+ - Even in rapture, part of the mind watches.
+ - Clothes make the body both mysterious and historical.
+ - Ideologies can survive hostility, but not indifference.
+ - In ethics, prudence is not an important virtue, but in the world it is almost everything.
+ - Pedagogical romances leave the mentor disgruntled, the pupil confused.
+ - As I criss-cross the city hurrying, I feel always the unchanging cold beneath the pavement.
+ - Arrogance rides triumphantly through the gates, barely glancing at the old woman about to cut the rope and spring shut the trap.
+ - The passions are the same in every conflict, large or small.
+ - Every parent can imagine the joys of child abuse.
+ - Simplicity is a strict taskmaster.
+ - Reading more than life teaches us to recognize ethos and pathos.
+ - The sentimental want to be thrilled by everything.
+ - A quiet well-behaved boy is likely to be both frightened and ambitious.
+ - All the powers of imagination combine in hypochondria.
+ - Many gloat over their own troubles.
+ - Too timid to talk back, I shot my adversary.
+ - Hope likes justification, but can do without.
+ - Self-inflicted misery smirks under its crown of thorns.
+ - Knowledge and power in the city; peace and decency in the country.
+ - The suburbs: signs of life, but no proofs.
+ - Think carefully before asking for justice. Mercy might be safer.
+ - Power makes gods. Virtue makes martyrs.
+ - Under attack, sentiments harden into dogma.
+ - Good manners can render even virtue tolerable.
+ - Disobedient parents are a great trouble to their children.
+ - I trust you because I need you.
+ - In an aphorism, aptness counts for more than truth.
+ - Unemployment diminishes people. Leisure enlarges them.
+ - We worship the aesthetic, but we do not have faith in it.
+ - Once discover comfort, and there is no turning back.
+ - Loneliness is more likely to lead to fussy housekeeping than to grand views of the Universe.
+ - Suffering teaches us only that we suffer. Joy shows us which way to go.
+ - Victorian sorrow: the stars are winking in the sky, but not for us.
+ - Undecidability is a useful category even in dealing with restaurant menus.
+ - Keep your lies short and simple.
+ - A sense of righteousness is even more dangerous than a violent temper.
+ - Between repetition and forgetting, it is a marvel that a new thought ever struggles into existence.
+ - Psychology keeps trying to vindicate human nature. History keeps undermining the effort.
+ - Dirty old men, ignoring society, continue to follow nature.
+ - Flattery and insults raise the same question: What do you want?
+ - I have forgiven you. Nevertheless, begone!
+ - Sometimes I discover I have changed my mind because I have forgotten what I used to think.
+ - Only those in comfortable circumstances think love is the most important thing.
+ - My mother’s mild-eyed sadness looks at me from the eyes of those I love.
+ - Pornography does not inspire violence, but you can break a leg trying to imitate it.
+ - Deconstruction: peering suspiciously at the text, I wait for it to make a slip and betray itself.
+ - In love, we worry more about the meaning of silences than the meaning of words.
+ - Mind and body obstruct one another’s pleasures.
+ - I answered my father’s demands for sympathy with silence.
+ - Jargon is part ceremonial robe, part false beard.
+ - Self-analysis always cheats.
+ - Only the strong and the hopeful are able to revolt.
+ - Enjoy the insult as you deliver it, before you learn its cost.
+ - I am forbidden sugar, fat, and alcohol. So hooray, I guess, for oatmeal, lemon juice, and chicken soup.
+ - Swindlers are notoriously gullible.
+ - Growth provides novel experiences for youth; decay the same, alas, for age.
+ - True wit has a grave intention.
+ - Age must give way to youth, no doubt. But not yet, not yet.
+ - Finding a thought for an aphorism is not hard. Putting a kink in its tail is the hard part.
+ - The realist lies for advantage. The fantasist lies to give his dreams a flavor of reality.
+ - My regimen is lust and avarice for exercise, gluttony and sloth for relaxation.
+ - Rule of art: let half-blind purpose lead you.
+ - Good parties create a temporary youthfulness.
+ - A sentimental aphorism is even more a surprise than a hard- boiled sonnet.
+ - A beautiful woman peers out her window, as full of envy as the harridan who peers up at her from the street.
+ - The magic of procedure: do this after that and thus before so; then your wish will be granted.
+ - Drunks conjure an endless drama from their bottles.
+ - Beggars market their incapacity.
+ - Great talkers do not stop for breath, and never look at the clock.
+ - Modern pictures banish depiction for interfering with the workings of paint.
+ - Antagonistic cooperation is the principle of all markets and many marriages.
+ - Many count on their disadvantages to cover for them.
+ - A Museum of fetishes would give special attention to the history of underwear.
+ - Language cannot say everything, fortunately.
+ - The lion cares less about being king of the beasts than about finding his dinner.
+ - Outside literature, high-flown sentiments are merely exasperating.
+ - Healthy vanity sweeps through life. Sickly vanity lies in bed.
+ - The New Right: kiss the bankers and spank the babies.
+ - Lies save trouble now, but may return in thunder and lightning.
+ - Sleepy-head is no longer aroused by tragic imaginings.
+ - Bravery despite defeat is praiseworthy. Victory despite cowardice is beyond praise.
+ - Self-absorption intensifies isolation, but permits it to go unnoticed.
+ - Living too long exacts a painful price.
+ - Tales of adultery are much improved by period costumes.
+ - Envy grieves. Jealousy rages.
+ - The depressed fall back exhausted from every undertaking.
+ - The bathroom scale knows nothing of extenuating circumstances.
+ - Envy awakens at the sound of a distant laugh.
+ - Self-conscious? Try a wig, a corset, a veil, a beard. Or cultivate shamelessness.
+ - Laughing at our friends, we avenge the disappointment they have caused.
+ - The sewing machine joins what the scissors have cut asunder, plus whatever else comes in its path.
+ - Cheerfulness is a policy; happiness is a talent.
+ - I am invigorated by work, wasted by pleasure.
+ - The greater the privilege, the more hidden the arrogance. The Emperor of China need not exist.
+ - Explanations comfort us by giving the impression that there is an order in things.
+ - Somehow the body keeps life going despite the ravaging negations of the mind.
+ - Pride sings and dances; humility sighs.
+ - A theology whose god is a metaphor is wasting its time.
+ - If you have no power, talk about your influence. If you have power, talk about the constraints that hem you in.
+ - Aphorisms may equivocate, but they must not wobble.
+ - Sweet smiles soften judgment. Sweet haunches unseat it.
+ - After an argument, silence may mean acceptance or the continuation of resistance by other means.
+ - Life is struggle and sleep.
+ - A work of art is an echo chamber which repeats what people say about it.
+ - I like what I do for a living. I also like NOT doing it – perhaps even more.
+ - Confess to the misdeeds you cannot hide.
+ - Sign at the orgy: BODIES ONLY.
+ - Frivolous sorrow is folly. Frivolous enjoyment is not.
+ - As I review my life, I feel I must have missed the point, either then or now.
+ - When you feel protective toward your parents, you have become an adult.
+ - People may show jealousy, but hide their envy.
+ - True self is the part of us that does not change when circumstances do.
+ - Death is just around the corner. If only it would stay there.
+ - Modern literature seduces with insults, riddles, and inside stories.
+ - Manly men and womanly women are still here but feeling nervous.
+ - To avoid taking responsibility, I become unresponsive but hang on until the other person leaves me.
+ - Hypocrisy is the outside of cynicism.
+ - Charity does not like arithmetic; selfishness worships it.
+ - Being enthusiastic settles nothing.
+ - Warning: fortune cookies don’t care what happens to you.
+ - Our vices are attempts to combine self-medication and enjoyment.
+ - Writing about an idea frees me of it. Thinking about it is a circle of repetitions.
+ - Taste refers to the past, imagination to the future.
+ - Rereading, we find a new book.
+ - My intentions go one way, my desires another. Thus I feel both self-indulgent and deprived.
+ - I gulp down my pleasures, chew over my miseries.
+ - Theory can leave questions unanswered, but practice has to come up with something.
+ - The Muses inspire art and pretend not to notice when Mammon buys it.
+ - I know God exits, but I don’t know where.
+ - Boredom is the only sure cure for neurosis.
+ - Old photograph: amid the set poses of her family, a young girl smiles and raises her hand a little.
+ - Retirement requires the invention of a new hedonism, not a return to the hedonism of youth.
+ - A quiet fool can go undiscovered for a long time.
+ - As a dream comes true, it falls flat.
+ - Self-realization is a comedown from salvation, but still gives us something to hope for.
+ - Self-righteous victims invite extra nails.
+ - Complainers rule out happiness, mentioning it only as something lost.
+ - The little suckings and smackings of the perversions are the sounds of joyous infancy.
+ - Emblem: the carapace of the great crowned snail is painted with all the flags of the United Nations.
+ - An academic dialect is perfected when its terms are hard to understand and refer only to one another.
+ - Every life has a love story, even though the beloved may be imaginary, or a cat.
+ - After I have said what is required by my vanity and my morality, I may find a moment for Truth.
+ - Even in writing an annual report, the unconscious plays a role.
+ - When love ends, the beloved is no longer standing on a pedestal, but in a hole.
+ - Curiosity makes loneliness.
+ - Pornography and cooking shows have created two new spectator sports.
+ - Wit saves us from being swallowed whole by life.
+ - Virtue sometimes pretends. Vice is always sincere.
+ - Young poets bewail the passing of love; old poets, the passing of time. There is surprisingly little difference.
+ - When a man bores a woman, she complains. When a woman bores a man, he ignores her.
+ - The wretchedness of failure is the great attraction of success.
+ - The parade was here, but it disappeared around a corner.
+ - I may forget my dignity, but you may not.
+ - The idealist regards facts as provisional.
+ - Drunks do not have friends, but accomplices.
+ - Many pains are imaginary, but all joys are real.
+ - Moderation shifts when extremes do.
+ - Supermarkets depict abundance; boutiques exclusiveness; roadside stands authenticity.
+ - To Jane Austen, every fool is a treasure trove.
+ - Few friendships could survive the moodiness of love affairs.
+ - Kindness eases everything almost as much as money does.
+ - Folly always knows the answer.
+ - History takes place between the Fall and the Apocalypse, with a narrow escape route called Salvation.
+ - Men and women would be even more unhappy if they really understood one another.
+ - We make some changes. But mostly changes make us.
+ - Full of troubles, the mind is still the only Garden of Delight.
+ - Children consider disliking their parents natural, but if the dislike is returned, they are outraged.
+ - Sometimes “Yes” is rhetoric enough.
+ - Civilization creates discontents; barbarism creates quick endings.
+ - Without the blessing of cowardice, the world would long since have been torn to bits.
+ - Boredom makes me sleepy or restless.
+
+500 quotes

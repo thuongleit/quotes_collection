@@ -1,0 +1,37 @@
+ - Nothing is so strong as gentleness. Nothing is so gentle as real strength.
+ - The hinge of history is on the door of a Bethlehem stable.
+ - Our love for God is tested by the question of whether we seek Him or His gifts.
+ - The larger the island of knowledge, the longer the shoreline of wonder.
+ - The test of courage comes when we are in the minority. The test of tolerance comes when we are in the majority.
+ - True humility is intelligent self-respect which keeps us from thinking too highly or too meanly of ourselves. It makes us mindful of the nobility God meant us to have. Yet it makes us modest by reminding us how far we have come short of what we can be.
+ - All our science and philosophy form only an island of knowledge surrounded by an ocean of mystery. The larger the island grows, the longer the shoreline where the known meets the unknown.
+ - In overcoming prejudice, working together is even more effective than talking together.
+ - Love is the outreach of self toward completion.
+ - What makes greatness is starting something that lives after you.
+ - Be careful that victories do not carry the seed of future defeats.
+ - Our growth depends not on how many experiences we devour, but on how many we digest.
+ - In being realistic we do not always have to be pessimistic. Christ never blinked his eyes at bad things. But he never became so obsessed with human evil that he lost faith in man.
+ - When the dictators and the opportunists are gone, the cross will still stand before us and something in us will say, That is the real thing.
+ - Let us not bankrupt our today’s by paying interest on the regrets of yesterday and borrowing in advance the troubles of tomorrow.
+ - Whatever the right hand findeth to do, the left hand carries a watch on its wrist to show how long it takes to do it.
+ - A service of worship is primarily a service to God. When we realize this and act upon it, we make it a service to men.
+ - Hoist the sails of your own spirit to catch the winds of God.
+ - When the congregation becomes the norm by which sermons are measured, a minister has put a mortgage on his soul.
+ - The roads of life are strewn with the wreckage of run-down, half-finished loves.
+ - The roots of responsibility run out to the ends of the earth and we can no more isolate our consciences from world issues than we can fence off our oyster beds from the tides of the ocean.
+ - The test of our religion is whether it fits us to meet emergencies. A man has no more character than he can command in a time of crisis.
+ - A true lover always feels in debt to the one he loves.
+ - Advertising enriches life by quickening the imagination, arousing interest and enlarging the taste.
+ - Good habits, which bring our lower passions and appetites under automatic control, leave our natures free to explore the larger experiences of life. Too many of us divide and dissipate our energies in debating actions which should be taken for granted.
+ - Balance the bad news of life with the good news of Christ.
+ - True liberty consists not merely in being free from something, but also in being free for something.
+ - As long as we can keep our international relations in the realm of conference rather than open conflict, we are giving truth more time to vindicate itself. And what we ourselves need is more faith in the power of truth.
+ - Our ground of hope is that God does not weary of mankind.
+ - In all living there is a certain narrowness of application which leads to breadth and power. We have to concent on a thing in order to master it. Then we must be broad enough not to be narrowed by our specialties.
+ - We seem to want mass production, but we must remember that men are individuals not to be satisfactorily dealt with in masses, and the making of men is more important than the production of things.
+ - The forgiveness of the world can only be accomplished by the judgment of the world.
+ - The hope of free people in a frightened world is the values which people put ahead of inventions when their backs are to the wall. These values are beauty, truth, goodness and having a faith, all of which are bombproof.
+ - We cannot hoard life as we can money. When a person tries to be a miser of his health, he usually makes himself miserable. Mental talents, if buried and not used, tend to deteriorate. Whoever would save his memory by not using it will lose it.
+ - When we count on chance in lieu of law and labor, we weaken our healthy attitudes toward work, our fellow men and our God.
+
+35 quotes

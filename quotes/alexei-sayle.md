@@ -1,0 +1,41 @@
+ - But as in all cults, what’s central to the Communist Party is the belief system and the elimination of nuance. From there you’re very slowly led down the road to fanaticism and mass murder.
+ - This is the band Radical Posture, and my name is Alexei Yuri Gagarin Siege of Stalingrad Glorious Five-Year Plan Sputnik Pravda Moscow Dynamo Back Four Balowski. Me Dad was a bit of a Communist, know what I mean?
+ - People are more violently opposed to fur than leather because it’s safer to harass rich women than motorcycle gangs.
+ - Honestly, sometimes I get really fed up of my subconscious – it’s like it’s got a mind of its own.
+ - If I won the lottery I’d start a charity that helped little family hardware stores, cobblers and fruit shops open in city centres.
+ - Even a blind dog can find a bone every so often.
+ - Yuri Gagarin, the first man in space, may have had his charms, but he really couldn’t be considered hip.
+ - I like the south of Spain, notably for the Moorish influence and the weather.
+ - You can’t do comedy with a beard.
+ - I suppose the common idea of me is that I’m going to be someone who’s hyper and cracking jokes all the time, but people who meet me are soon disabused of that notion.
+ - I have a lot of nice Italian winter clothes that make me look like a sophisticated Lebanese professor, so my friend Robert and I go around pretending to be experts in Arabic politics. It doesn’t work in the summer though. I don’t have the right clothes.
+ - However, my problems with my memory are further complicated by the fact that while I don’t have any recollection of things I have actually done, I have very vivid recollections of loads of things that I haven’t done.
+ - I don’t think I’d ever get thin, but I don’t see why I should necessarily think that I couldn’t You can’t live your life for your routines.
+ - A lot of those comics can’t hold down relationships and they’ve got no other life apart from performing. They sleep in their Jags and a lot of them can’t even talk. All they can do is tell gags.
+ - First off, I have to mention what is undoubtedly the greatest phenomenon of the modern era: All You Can Eat Buffets.
+ - Now, as a comic, if you’re vaguely amusing you can go straight into TV, then you play the O2 and then everyone’s sick of you.
+ - People used to think I was just a shouty comic but I was doing stuff about Sartre.
+ - There’s a part of me that still hates everything, and my natural view default setting is still very cynical and dark.
+ - I wanted to write about how people’s beliefs shift.
+ - I always thought communism was crap, really.
+ - If sitcoms were easy to write, there’d be a lot of good ones, and there aren’t.
+ - I’m sure a psychologist would see something highly significant in how absent-minded I am. I mean I’d forget my head if it wasn’t attached to my neck by muscles, ligaments and my esophagus.
+ - I feel sorry for many politicians we expect them to be completely consistent and moralised when we’re not.
+ - Most of my friends are women – I quite fancied being a woman in a way.
+ - Everyone I used to work with is still alive and can afford expensive lawyers.
+ - People aren’t universally heroic.
+ - I liked 35 and in both my novels that is the age of the lead characters. I tried making them my age but they just seemed to keep moaning about stuff.
+ - Most of the Communists I knew were nice people.
+ - For me, the showbiz memoir is uninteresting – you want to tell people something they don’t know about.
+ - I think that my ideas of the world are that it’s random and cruel but kind of quite comical really, and therefore the humour, in a sense, springs from that.
+ - I’ve been going to Granada for many years and 12 years ago bought a house a few miles outside the city.
+ - If someone starts agreeing with me, I don’t like it. Out of pique, I become something else.
+ - I don’t think people were that interested in what I was doing for the most of the 1990s.
+ - It always seemed to be a constant that my parents were political.
+ - I did six series for the BBC and that was enough. I’ve been writing for ten years, which is more challenging artistically.
+ - The optimum frequency with which comedians should do a series is every year. I do one every three years. My audience is literally dying off.
+ - I exist as an annexe of the BBC. I’m down the road a bit from the main building, in a little hut.
+ - As a comic, you try something and if it works you go with it and grind it to death.
+ - It seems easier to make a career out of comedy now than it was in the 1980s.
+
+39 quotes

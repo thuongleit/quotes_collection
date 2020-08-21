@@ -1,0 +1,30 @@
+ - Power, today, comes from sharing information, not withholding it.
+ - The currency of real networking is not greed but generosity.
+ - I’ll sum up the key to success in one word: generosity.
+ - Poverty, I realized, wasn’t only a lack of financial resources; it was isolation from the kind of people that could help you make more of yourself.
+ - Ultimately, everyone has to ask himself or herself how they’re going to fail. We all do, you know, so let’s get that out of the way. The choice isn’t between success and failure; it’s between choosing risk and striving for greatness, or risking nothing and being certain of mediocrity.
+ - Business is a human enterprise, driven and determined by people.
+ - Human ambitions are like Japanese carp; they grow proportional to the size of their environment. Our achievements grow according to the size of our dreams and the degree to which we are in touch with our mission.
+ - You have to envision yourself winning to win.
+ - In life, it’s between choosing risk and striving for greatness, or risking nothing and being certain of mediocrity.
+ - When we are truly passionate about something we are contagious.
+ - Bottom Line: It’s better to give before you receive. And never keep score. If your interactions are ruled by generosity, your rewards will follow suit.
+ - Our careers aren’t paths so much as landscapes that are navigated. We’re free agents, entrepreneurs, intrapreneurs – each with our own unique brand.
+ - People who instinctively establish a strong network of relationships have always created great businesses.
+ - In business, we often say that your best customers are the customers you have now. In other words, your most successful sales leads come from the selling you’ve already done.
+ - People do business with people they know and like.
+ - Life is less a quest than a quilt. We find meaning, love, and prosperity through the process of stitching together our bold attempts to help others find their own way in their lives. The relationships we weave become an exquisite and endless pattern.
+ - Success in any field, but especially in business is about working with people, not against them.
+ - Match your goals with the people who can make them happen and start building the relationships.
+ - We have a tendency to romanticize independence. Most business literature still views autonomy as a virtue, as though communication, teamwork, and cooperation were lesser values.
+ - When you help someone through a health issue, positively impact someone’s personal wealth, or take a sincere interest in their children, you engender life-bonding loyalty.
+ - The idea isn’t to find yourself another environment for tomorrow, but to be constantly creating the environment and community you want for yourself, no matter what may occur.
+ - Start finding future clients before you have anything to sell them. Get to know these people as friends, not potential customers.
+ - You won’t build relationships unless you let your guard down.
+ - I believe that every conversation you have is an invitation to risk revealing the real you.
+ - I’ve come to believe that connecting is one of the most important business – and life – skill sets you’ll ever learn. Why? Because, flat out, people do business with people they know and like. Careers – in every imaginable field – work the same.
+ - Life is about work. Work is about life. And both are about people.
+ - At every stage of my career, I sought out the most influential people around me and asked for their help and guidance.
+ - You can’t get there alone. In fact, you can’t get very far at all.
+
+28 quotes

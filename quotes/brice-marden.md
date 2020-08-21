@@ -1,0 +1,28 @@
+ - Western artists stand as humans looking at nature; Asian artists try to be in nature. You become one with nature rather than painting a portrait of it. That’s a big shift.
+ - The possibilities of thought training are infinite, its consequences eternal, and yet few take the pains to direct their thinking into channels that will do them good, but instead leave all to chance.
+ - I love the healthy exchange of information.
+ - I think abstraction is a very rich area. And it is upsetting that people seem to have some fear of it. I’m constantly making these statements about how you should just look at it and react to it on your own; just relax and let go.
+ - I smoke pot when I work. I take a couple of tokes before I start. It just loosens you up.
+ - A painting, you know, it’s all dirty material. But it’s about transformation. Taking that earth, that heavy earthen kind of thing, turning it into air and light.
+ - A work of art is a renewable source of energy.
+ - I’m very much involved with Asian art and its theory and practice, mainly Chinese because that was quite sophisticated. I tend to look at that more than I look the Western.
+ - Western art has a certain relationship to nature.
+ - I respect all artists, just some more than the others. Because it’s something that really needs to be done.
+ - These days people believe they can go into art and make a living. We didn’t have that. The abstract expressionists were older, by the time they even got a show. Now people come right out of school and sell.
+ - I consider myself lucky to have had wonderful teachers. They expose you to a lot and basically teach you how to paint. I think of my career as a series of lucky incidents.
+ - I remember getting out of grad school and coming to New York and not wanting to get a teaching job because I wanted to work on my own, to develop my own ideas. There isn’t that time now. Artists are exhibiting while they are still in grad school. There isn’t that safety cushion.
+ - When you’re not smoking anymore, you don’t have to carry around a pack of cigarettes, a lighter – all this paraphernalia. So you’re liberated in a certain sense. It’s the same with drinking.
+ - You can’t say I’m going to become a painter in the same way you say I’m going to become a dentist. Or maybe you can nowadays. But it’s an endeavor.
+ - Being an artist is very independent thinking, although there’s always going to be a lot of doubt.
+ - I’m an abstract painter not just for myself, but because I really believe in abstraction.
+ - Holding together a kind of tension. When you see a painting that’s really good that’s what it’s doing.
+ - I love the idea of hitchhiking into the city. It was bizarre.
+ - Painters are amongst the priests – worker priests of the cult of man – searching to understand but never know.
+ - I’ve always worn a hat when I work. I think it also comes from a picture of Rothko I saw with a painter’s hat on.
+ - Abstraction has always been around, since the drawings in the caves. It exists in all cultures all over the world. I thought for a while that it was going to be the major movement. But people always drift back to realism. I guess there is a certain security in that.
+ - I don’t remember any dream. All I remember is waking up and feeling that there had been a change while I was sleeping.
+ - Every time I open the paper, there’s some symphony orchestra collapsing somewhere in the United States. What the hell is going on? And then you find out that the board members try to run these things as businesses.
+ - When you’re using a long brush, you have your arm at full length. Basically, it exaggerates the movement of your body. But I always start far away and end up really close.
+ - In this kind of super-capitalistic society, everything is turned into money. And one of the great things about art is it isn’t worth anything. It’s absolutely free. It’s going to get made no matter what.
+
+26 quotes

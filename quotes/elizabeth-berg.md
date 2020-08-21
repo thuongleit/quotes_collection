@@ -1,0 +1,63 @@
+ - Nothing tastes as good as being thin feels.
+ - There is incredible value in being of service to others.
+ - There is love in holding and there is love in letting go.
+ - You are born into your family and your family is born into you. No returns. No exchanges.
+ - I like to listen to sad music when I’m sad. It seems honest. It makes me cry, and sometimes a good cry is the only thing that can make you feel better.
+ - Remember me in your dreams, as I will you.
+ - Never be afraid of doing the thing you know in your heart is right, even if others don’t agree.
+ - Don’t let your habits become handcuffs.
+ - Now, on this road trip, my mind seemed to uncrinkle, to breathe, to present to itself a cure for a disease it had not, until now, known it had.
+ - Anything we have, we are only borrowing. Anything. Any time.
+ - People say you should give until it hurts. I say you should give until it stops hurting. Know what I mean?
+ - I will come back as a little breeze. You will feel me on your face, and you will know that I am still listening. So you can still talk to me.
+ - Do you think that people ever really do believe they will die, that the world will just go along as always without them? I wonder if we aren’t all a little surprised at the moment of crossover, if we don’t look back over our shoulders saying, Now hold on.
+ - Just one look and then I knew that all I longed for long ago was you.
+ - I believe that the souls of women flatten and anchor themselves in times of adversity, lay in for the stay. I’ve heard that when elephants are attacked they often run, not away, but toward each other. Perhaps it is because they are a matriarchal society.
+ - Outside, the rain sometimes comes down so hard, we have to talk louder, and it feels like a miracle that the roof holds. It makes for a coziness and a gratefulness, too, that you have the choice to not be out in it. You can sit at the table and look out the window and not have to feel what you see.
+ - This is one rule about mixing boys and girls: that a date always comes first.
+ - Sometimes serendipity is just intention unmasked.
+ - No one wants to mother more vigilantly than a woman who is childless and wishes she wasn’t.
+ - Sometimes I try to remember things my mother told me about the awful way he was raised. But why does he have to keep on going? Why would you take something bad out of your mouth and hand it to another, saying, Here, eat this?
+ - One thing I have always been is too short. It’s adorable when you’re in junior high. After that, it’s a pain in the ass for the rest of your life.
+ - You must never check for a person’s pulse using your thumb, or you’ll feel your own heartbeat. Actually, I plan on doing that if I’m the one who’s here when Ruth dies. I plan on giving her my heartbeat before I let her go.
+ - My mind was in my heart, anchored like a bright kite in a safe place.
+ - But in spite of my great desire for intimacy, I’ve always been a loner. Perhaps when the longing for connection is as strong as it is in me, when the desire is for something so deep and true, one knows better than to try. One sees that this is not the place for that.
+ - I felt myself trapped in line for a ride I was not nearly ready for, looking back but moving forward in the only direction I could go.
+ - It seems like people are all the time making themselves themselves, but they don’t really know it. You can only have true vision when you look behind. A person can slide so fast into being something they never really intended. I wonder if you can truly resurrect your own self.
+ - I believe that the souls of women flatten and anchor themselves in times of adversity, lay in for the stay.
+ - It is never about how good your voice is; it is only about feeling the urge to sing, and then having the courage to do it with the voice you are given.
+ - The seasons tell us, everything in organic life tells us, that there is no holding on; still, we try to do just that. Sometimes, though, we learn the kind of wisdom that celebrates the open hand.
+ - There is incredible value in being of service to others. I think if many of the people in therapy offices were dragged out to put their finger in a dike, take up their place in a working line, they would be relieved of terrible burdens.
+ - It feels like some part of me that was curled down and waiting in the dark has risen, and now stands stretching and strong in the sunshine. I knew it.
+ - It is such a terrifying thing to see a man cry.
+ - I turn off the radio, listen to the quiet. Which has its own, rich sound. Which I knew, but had forgotten. And it is good to remember.
+ - If I were to draw on a paper what gym does for me, I would make one dot and then I would erase it.
+ - I hate banana bread. It’s too suspicious-looking. I always thought the cooked banana looked like insect legs.
+ - You don’t get everything all at once. You wait.
+ - It will happen when you’re not looking for it. Love likes to take you by surprise.
+ - Reading Claire Cooks novel is like eating some exotic dish about which you say, Wow, this is great! Whats in it? The ingredients here are: intelligence, humor, poignancy, revelation and, perhaps best of all, true originality. Ready to Fall seems to me to be ready to soar.
+ - I thought of the priest who’d told me that many religions hold that it is easier to be closely connected to people we love after death than before.
+ - I cried until my eyes swelled shut, and then I slept, a black, dreamless sleep from which I awoke amazingly refreshed, at least until I remembered.
+ - Sometimes you know before you know.
+ - Ruth has friends like other people have wardrobes. I mean that there’s someone for every occasion.
+ - Abstracts are real and time is a lie, it cannot be measured when one moment can expand to hold everything.
+ - I would make an anonymous call and say, this is someone who cares, do you know what kind of children you have?
+ - The truth is, aging can be your realest opportunity to decide how best to live – and the best incentive for getting you to do just that.
+ - The truth is, we usually only show our unhappiness to another woman. I suppose this is one of our problems. And yet it is also one of our strengths.
+ - He wore a white shirt with the sleeves rolled up to the good place, and a heart-shaped leaf lay trapped in the hollow if his throat as though it were planned, though of course it was so perfect it couldn’t have been planned.
+ - You feel the call. That’s the important thing. Now answer it as fully as you can. Take the risk to let all that is in you, out. Escape into the open.
+ - As a writer, you should have a sticky soul; the act of continually taking things in should be as much a part of you as your hair color.
+ - I don’t think men try to make women be like them, but I think women try to make men be like them, a lot.
+ - I have wanted you to see out of my eyes so many times.
+ - There are some things you never say good-bye to.
+ - We are assumed to be rather hopeless – swallowed up by incorrect notions, divorced from the original genius with which we are born, lost within days of living this distracting life.
+ - I hoped we never had to realize all the opportunities we missed in this life.
+ - How important things had become, now that they were gone! I felt a sudden panic that I would soon forget everything.
+ - As far as I’m concerned, the most important thing you need when inventing characters is empathy.
+ - But it seemed to me that this was the way we all lived: full to the brim with gratitude and joy one day, wrecked on the rocks the next. Finding the balance between the two was the art and the salvation.
+ - I think one of the reasons we have children is to believe everything all over again. And I’m not talking Santa, here, either.
+ - I hadn’t realized how much I’d been needing to meet someone I might be able to say everything to.
+ - Make time for prayer and reflection; try to understand your value as a man on earth but see, too, your proper place in the scheme of things. It may sound funny to say this, but I have come to see that we are all far more important and less important than we think.
+ - My inside self and my outside self used to match. A compass needle pointed true north. Now the needle spins around and around indicating the sad direction of nowhere.
+
+61 quotes

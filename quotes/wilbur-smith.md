@@ -1,0 +1,42 @@
+ - I know it’s politically incorrect but I enjoy things like the kick boxing and cock fighting.
+ - Failure makes success so much sweeter, and allows you to thumb your nose at the crowds.
+ - They do say that socialism is the ideal philosophy-just as long as you have capitalists to pay for it.
+ - Cape Town’s beaches are superb and while the water on the Atlantic side is damn cold, it’s very pleasant on the other side. Bring your golf clubs if you play – Cape Town has some fabulous golf courses.
+ - I grew up in Rhodesia on my father’s ranch and every year he used to take us on safari in some remote area of the wilderness.
+ - I think one of the most poignant things is unrequited love and loneliness.
+ - It’s a strange paradox that a man gifted with too many talents can fritter them all away without developing a single one to its full.
+ - I love the sea as much as I love the veldt of Africa.
+ - Let it simply be said that we know more about the details of the hours immediately before and the actual death of Jesus, in and near Jerusalem, than we know about the death of any other one man in all the ancient world.
+ - Sometimes it is best for men not to attempt to interfere with destiny. Our prayers can be answered in ways which we do not expect and do not welcome.
+ - When I vacate this sack of old bones I won’t care what you do with it. Bury or burn it but don’t make much fuss.
+ - I don’t want children. Why should I let some strange little monster into my life to destroy what to me is a perfect set-up?
+ - At the age of 12 I won the school prize for Best English Essay. The prize was a copy of Somerset Maugham’s ‘Introduction To Modern English And American Literature.’ To this day I keep it on the shelf between my collection of Forester’s works and the little urn that contains my mother’s ashes.
+ - I go on a hunting safari at least once a year to Botswana, which is fantastic because we have a huge area of wilderness entirely to ourselves. My island covers roughly 55 acres, which again I have to myself, with nearly half a kilometre of private beach with my own jetties and boats.
+ - Litigation only makes lawyers fat.
+ - I read all of Rider Haggard’s books. For me he had the romance of Africa with a little bit of mysticism. I’m delighted to be looked on as his heir and be categorised as an adventure novelist because that’s exactly what I am.
+ - I write my books in my head, and not in a specific study with a view. The view is from my inner eyes.
+ - I shot my first lion at the age of 14 when a pride threatened my father’s livestock while he was away on holiday.
+ - Despite the fact that I spend a lot of time in London, Switzerland and New York, Africa is the place I know and love best, and my heart will always lie here.
+ - It’s probably true that everyone has a book in them, although it may not be a very good one.
+ - A cynic had defined aid as simply the system by which poor white people in rich countries gave money to rich black people in poor countries to put into Swiss bank accounts.
+ - Herbert, my father, was born in Britain but went out to Africa in his teens to join his father and built up an 18,000-acre ranch in what was then Northern Rhodesia, providing work for the locals. He was my hero when I was a boy.
+ - History is a river that never ends. Today is history, and I am here at the fountainhead.
+ - Write for yourself, not for a perceived audience. If you do, you’ll mostly fall flat on your face, because it’s impossible to judge what people want. And you have to read. That’s how you learn what is good writing and what is bad. Then the main thing is application. It’s hard work.
+ - I’m not a prophet I can only use historical reality to come to a view of the future, and my view is that Africa will return to being African and not European. The advent of colonialism was foreign to the country itself, but it will return to what it was before the Europeans arrived.
+ - I read a lot of biographies and books with an African background.
+ - I want to be seen as a good storyteller. I’m a manipulator as well.
+ - I put my soul into every book I write.
+ - Usually halfway through a book I have a serious depression, so I go on safari on my ranch in South Africa, or fishing off my island in the Seychelles. When I come back and re-read it, I think: ‘What was all that about, Smith? It’s fine, just get on with it.’
+ - People don’t really know themselves until they’re 30. Like most people nowadays, I went to university, got a degree and wandered for a bit. I trained to be a chartered accountant, which I didn’t much enjoy, and it was only slowly that the idea of becoming a creative writer gelled.
+ - The really disturbing thing about Somalia is that in a country where there are few economic opportunities, pirates are perceived as glamorous and are held in awe by young boys who aspire to their lifestyle.
+ - There’s nothing so aphrodisiacal for a woman as money and success.
+ - My family wasn’t terribly affluent and looked upon money very carefully as something that had to be saved, not spent. My father built the ducting that took air into the copper mines and made about 6 d a yard in the Thirties, which was good money back then.
+ - I have never had too much trouble for creative ideas to spring up in my mind.
+ - You don’t turn out as many books as I did then by sitting around, being cozy with the family.
+ - My first novel was rejected by some of the most eminent publishers in the world. Starting again was a real wrench.
+ - Authors can only soft sell the environment. Create a wonderful story around the environment involving the characters that leaves a lasting impression on the reader’s mind.
+ - Every time one of my books sells a million copies in paperback, Pan Macmillan gives me a gold statuette of Pan. I have about 20 of them.
+ - All my characters have got a big slice of me in them. A big piece of me, because it’s my dialogue and this is the way I think and talk.
+ - What I like about writing is the sense of godlike power it gives you.
+
+40 quotes

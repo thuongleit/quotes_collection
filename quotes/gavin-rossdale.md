@@ -1,0 +1,36 @@
+ - If you just keep your head down and just try and do your thing, sometimes magic happens.
+ - Being real is what is important.
+ - A happy wife is a happy life.
+ - Playing live, you can’t survive, certainly not in England. We used to work daytime jobs and play gigs at night. It was very exhausting.
+ - I can make no apologies for following my heart.
+ - Who doesn’t love Game of Thrones? Sons of Anarchy is funny and thug-ish. I love Shameless. I just sit with my hat tipped, waiting for something to happen, more than going out after the shows.
+ - I love what I’m doing most of the time, but it’s hard work. People only see your albums in the charts. They see us at award shows and after-show parties. They don’t know about your doubts, the hard work that goes in.
+ - Any reaction is better than none.
+ - I have always been fascinated by dark and mysterious stuff. I guess I have a pretty dark and gloomy side. Writing songs saves me from going completely gonzo.
+ - Well, I’m English, so it’s intimidating to step anywhere. I used to be painfully shy. I wouldn’t say that I’m painfully shy anymore. But if I have the option of sitting on the edge of a circle, I will.
+ - I’m not a workaholic, but I was a bit manic, I have to confess.
+ - Wherever you look there are inspirations, books, literature, paintings, landscapes, everything. Just living is an inspiration.
+ - I always wrote about things that were important to me. I think our past success showed that it was also important for a lot of others.
+ - The day before I left to fly in New York, I went in the ocean and was just lying on my black looking up at the sky, which was that Hawaii blue. Just that moment was worth the entire thing. The ocean is everything. It can heal you.
+ - The only people who benefit from lawsuits are lawyers. I think we made a couple of them rich.
+ - There’s nothing worse than someone coming up to me and going Oh God, I really love your hair.
+ - I love playing live, I don’t like studios all that much. I need the reaction of the audience.
+ - Women are part of the reason for washing and keeping clean, aren’t they?
+ - It’s so natural you just fall into it and you find your way. It’s terrifying and exciting, and brilliant.
+ - I am really addicted to music.
+ - For the sound we produce, everybody is equally important. Each of us has a very different personality and that is what keeps Bush alive.
+ - I’d love a drug that was good for you, I was thinking about ecstacy with Vitamin B.
+ - Bob Dylan has a way with words that simply blows me away. When he forgets his lyrics he just makes up new ones on the spot, that is what I called talented!
+ - As an artist, you’re pretty sheltered backstage. You often don’t know what’s going on out there.
+ - I don’t know any musician who got to the top without hard work. Take whoever you want. They all work bloody hard, harder than you think.
+ - But it is really, really fun to just change it up some and to absolutely be a very small spoke on a big wheel, and to just be a part of that and contribute to something that people can enjoy.
+ - I don’t see myself as the boss. I sing and write the songs, and it would feel strange if somebody else wrote the lyrics I sang.
+ - It’s pretty hard to make out what’s going to be a commercial success and what’s not.
+ - In a band that works out well, everybody has a certain role to fulfill.
+ - Those times when I play on stage in front of lots of people, it’s such an unusual and borderline unhealthy process, even though I love it and I really do it with humility. I don’t have serfs getting me grapes after, or things like that.
+ - I love seeing the fans of the music that I make.
+ - I’m just thrilled and kind of honored that I still get the chance to do what I love, because that really is the definition of success.
+ - I always work hard to have a very close connection to the fans.
+ - I quite like Low, the band from Minnesota. They’re absolutely mesmerizing. I get much the same feeling from anything that Will Oldham does.
+
+34 quotes

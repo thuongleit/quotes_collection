@@ -1,0 +1,58 @@
+ - Don’t mourn, Organise.
+ - And he paddled away in his douche canoe.
+ - To be honest, I think cell phones were invented by the devil.
+ - You know someone for a while and then one day a hole opens underneath them, and they fall out of your world.
+ - The difference between childhood and adulthood, Vic had come to believe, was the difference between imagination and resignation. You traded one for the other and lost your way.
+ - If you didn’t have me to rake you over the coals now and then, there wouldn’t be any fire in your life at all.
+ - Work and pray, live on hay, youll get pie in the sky when you die.
+ - Taking a thing apart is always faster than putting something together. This is true of everything except marriage.
+ - You think you know someone. But mostly you just know what you want to know.
+ - But God fears women even more that He fears the devil- and is right to. She, with her power to bring life into the world, was truly made in the image of the Creator, not man.
+ - Maybe all the schemes of the devil were nothing compared to what man could think up.
+ - She’d thought love had something to do with happiness, but it turned out they were not even vaguely related. Love was closer to a need, no different from the need to eat, to breathe.
+ - Terror is the desire to save your own ass, but horror is rooted in sympathy.
+ - She breathed deeply of the scent of decaying fiction, disintegrating history, and forgotten verse, and she observed for the first time that a room full of books smelled like dessert: a sweet snack made of figs, vanilla, glue, and cleverness.
+ - She just knew that even when you had nothing, you still had love.
+ - Her sanity was a fragile thing, a butterfly cupped in her hands, that she carried with her everywhere, afraid of what would happen if she let it go-or got careless and crushed it.
+ - There’s only room for one hero in this story-and everyone knows the devil doesn’t get to be the good guy.
+ - The blood of a redheaded woman is three degrees cooler than the blood of a normal woman. This has been established by medical studies.
+ - I will die like a true-blue rebel. Don’t waste any time in mourning – organize.
+ - Aren’t you going to tell me I’m not so bad? she asked. Mmm-no. I was thinking how every man loves a hot girl with a history of making mistakes. Because it’s always possible she’ll make one with you.
+ - What a blessed if painful thing, this business of being alive.
+ - I will be waiting by candlelight in our tree house of the mind.
+ - Were talking about an attitude. Delayed gratification is there, planning, be able to give up something now to get something later.
+ - Who knows what may lie around the next corner? There may be a window somewhere ahead. It may look out on a field of sunflowers.
+ - All the world is made of music. We are all strings on a lyre. We resonate. We sing together.
+ - If the workers took a notion they could stop all speeding trains; every ship upon the ocean they can tie with mighty chains.
+ - Fantasy was always only a reality waiting to be switched on.
+ - I mean, when the world comes for your children, with the knives out, it’s your job to stand in the way.
+ - The soul is an irrational, indivisible equation that perfectly expresses one thing: you. The soul would be no good to the devil if it could be destroyed. And it is not lost when placed in Satan’s care, as is so often said. He always know exactly how to put his finger on it.
+ - The language of sin was universal, the original Esperanto.
+ - You loved me as hard as you knew how. I’d give anything to go back and love you better...
+ - He understood that the ghost existed first and foremost within his own head. That maybe ghosts always haunted minds, not places. If he wanted to take a shot at it, he’d have to turn the barrel against his own temple.
+ - Don’t ever have children, Tyler, unless you’re ready to be afraid everyday for the rest of your life.
+ - Gold don’t come off. What’s good stays good no matter how much of a beating it takes.
+ - Well. That’s helpful. We’ll put an APB out on the Gingerbread Man. I’m not hopeful it’ll do us much good, though. Word on the street is you can’t catch him.
+ - The best way to get even with anyone is to put them in the rearview mirror on your way to something better.
+ - Was there any human urge more pitiful-or more intense- than wanting another chance at something?
+ - Some things you didn’t give away, no matter how much you owed.
+ - I want you to remember what was good in me, not what was most awful. The people you love should be allowed to keep their worst to themselves.
+ - I remind myself that no one day of writing matters all that much. A story is built somewhat like a stalactite – one little drip of mud and grit at a time.
+ - I hope if there is another world, we will not be judged too harshly for the things we did wrong here – that we will at least be forgiven for the mistakes we made out of love.
+ - She liked things that had been written by people who had lived short, ugly, and tragic lives. Or, who at least, were English.
+ - Already, though, she understood the difference between being a child and being an adult. The difference is when someone says he can keep the bad things away, a child believes him.
+ - Innocence ain’t all it’s cracked up to be, you know. Innocent little kids rip the wings off flies, because they don’t know any better. That’s innocence.
+ - I am; I was. I want to be.
+ - Love requires Context.
+ - I have nothing to say for myself, only that I have always tried to make this earth a little bit better.
+ - Pick a sin we can both live with, is what I ask.
+ - Don’t believe everything you hear today.
+ - Sooner or later a black car came for everyone.
+ - I’ll take the shooting. I’m used to that. I’ve been shot a few times in the past, and I guess I can stand it, again.
+ - When you think about it, most of the good ideas came along to make sin a whole lot easier.
+ - It was like wondering how evil had come into the world or what happens to a person after he dies: an interesting philosophical exercise, but also curiously pointless, since evil and death happened, regardless of the why and the how and what-it-meant.
+ - That was one thing you found out when you were stoned, or wasted, or feverish: that the world was always turning and that only a healthy mind could block out the sickening whirl of it.
+ - You can’t let facts get in the way of the truth.
+ - It bewildered Ig, the idea that a person could not be interested in music. It was like not being interested in happiness.
+
+56 quotes

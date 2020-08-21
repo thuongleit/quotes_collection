@@ -1,0 +1,154 @@
+ - I seek strength, not to be greater than other, but to fight my greatest enemy, the doubts within myself.
+ - I just found you – I don’t want to leave you so soon.
+ - But sometimes you gotta do stuff you don’t want to do.
+ - Ignorance breeds fear and hatred.
+ - Gender preference does not define you. Your spirit defines you.
+ - Remember, darkness does not always equate to evil, just as light does not always bring good.
+ - Sometimes the people closest to you betray you, and your home isn’t a place you can be happy anymore.
+ - See with your soul and not your eyes because to dance with the beasts you must penetrate their disguise.
+ - Get thee behind me, Satan!
+ - If its got tires or testicles it’s going to give you trouble.
+ - True love wasn’t found in good hair or the right clothes, make-up or shoes. True love was found in the soul – as was wisdom and compassion.
+ - It’s not just a sunset; it’s a moonrise too.
+ - Battle scars from the war of good versus evil have a unique beauty all their own.
+ - Within chaos lies opportunity.
+ - There’s you. There’s me. We love each other, and we have since we were kids, so we should be together. The end.
+ - A sense of belonging is not physical. We cant find it by changing where we live or what we do. We have to carry it within us.
+ - I’m always going to keep your heart safe, even if mine has to stop beating for that to happen.
+ - What dark secrets do you keep hidden from the world? Where would you go if no one could find you? What would you do if no one could see you?
+ - A window within the soul to see Light and Magick I send with thee Be strong, be brave, make the right choice Though Darkness shouts with a terrible voice Know that I am watching from above And that always, always, the answer is love!
+ - People who are filled with hate don’t know how to handle love.
+ - Evil will win if good people do nothing.
+ - The world going insane and evil letting slip the birds of war is no excuse for sloppy vocabulary.
+ - As with all my children, you must find your own path, and through that discovery, you will decide what each earth child must ultimately decide-whether she chooses chaos or love.
+ - Because you are the superhero fledgling. I’m just your more attractive sidekick. Oh, and the herd of nerds are your dorky minions.
+ - Life isn’t a book. There’s no guarantee of a happy ending.
+ - Nefertiti, the most beautiful calico in the world, chose me as her own six short years ago.
+ - I’m a monster, not a moron.
+ - Easy. Peasy.
+ - Friendship can only be addition to, not a substitute for true love.
+ - Don’t you think baby corns are scary? There’s just something wrong about their midget bodies.
+ - You’ll see. She can be nice sometimes.
+ - Give me strength, not to be better than my enemies, but to defeat my greatest enemy, the doubts within myself. Give me strength for a straight back and clear eyes, so when life fades, as the setting sun, my spirit may come to you without shame.
+ - If you have good friends, no matter how much life is sucking, they can make you laugh.
+ - Then, with an enormous rush of meadow-filled wind, the green candle went out, and my best friend died.
+ - Your as slow as a fat kid on crutches.
+ - Grandma Redbird: Honey, you have to move past this. Zoey: How Grandma? Grandma Redbird: By living the life she’d be proud of you for living.
+ - I’m not stupid, stupid. Leave this whole thing in my extremely capable and well-manicured hands. I’ll call you later with an update. Bye!
+ - Last time I saw you, I said that it hurt too much to love you. But I was wrong about that. The truth is it hurts too much not to love you.
+ - True love is not a potion one person can swallow and another refuse to drink. It happens only when the souls of two join together to form one.
+ - Eyes watching always Shadows in shadows they wait A black feather falls First accepted, loved Then betrayed-spit in the face Vengeance sweet like dots.
+ - You and I are bound. We will be each other’s salvation, or each other’s doom.
+ - But she loves me. Me. Just the way I am.
+ - I’m from a family of teachers. My father would drown me in the bathtub if my daughter didn’t graduate from college. I don’t care who she is or what she does. Just get the diploma.
+ - Time to grow up. Time to stop bawling. Time to do SOMETHING. And that means, if I’m not sleeping, my nerd-herd isn’t sleeping either-sun or no sun.
+ - Sweet weeping baby Jesus he has a six-pack to beat all six-packs!
+ - Lies don’t fix things. They don’t even make things easier, at least not in the long run. Best to tell the truth and then clean up an honest mess.
+ - Kayla Robinson, if you don’t shut up I’ll fly down there and suck every last bit of blood from your stupid cheating cow body!
+ - I always thought you had you a bad case of head-up-your-ass-itis. -Kramisha.
+ - How can you expect me to believe that?“”whether you believe it or not does not change the nature of truth.
+ - I think real forgiveness is a gift someone has to earn, and I don’t even have to worry about Kalona asking for my forgiveness unless he’s worthy of even considering it, and I just don’t see that happening.
+ - But we’re going to smile and pretend we’re fine with the dorky birthmas gifts because people do not get that they can’t mush a birthday into christmas.
+ - And when you love someone you don’t always see them realistically.
+ - I’ll find you again. Even if it takes a hundred of those years.
+ - Neferet, you’re nuttier than squirrel turds.
+ - If cats understood technology and had opposable thumbs, they’d rule the world.
+ - I felt like I was hobbling, like one oof the old crones from Act I of Macbeth – God knows my hair felt scraggy enough that I must have looked the part.
+ - Shadows in shadows He watches through dreams Wings black as Africa Body strong as stone Done waiting The ravens call.
+ - Beautiful, see the cloud, the cloud appear. Beautiful, see the rain, the rain draw near...
+ - Value them; they are pearls of great price.
+ - When day begins to break I count my blessings, good and bad, Being wakeful for your sake, Remembering the covenant we’ve always had, What eagle look your face still shows, While up from my heart’s root So great a sweetness flows I shake from head to foot.
+ - Uh, Darius, I’m thinking that we really need to change clothes before we make a grand entrance in the middle of the cafeteria, or even my dorm. I mean, you’re more than a little bloody, and i’m wearing what looks like a green trashbag. We’re not exactly inconspicuous.
+ - It’s a little hard not to worry when my best friend keeps on dying.
+ - Oh, please, if its ass is feathered and waterproof, its a duck. Hello, pictures with little word balloons makes it a comic book. They’re dorky comic books for nerdy antisocial, nonbathing people. End of discussion.
+ - There were worse things than dying, and those worse things happened to the people you left behind.
+ - Warrior, when you pledge yourself to the service of a High Priestess, the goal is not to frighten her to death but to protect your lady from death.
+ - Darkness got you like Shelob gor Frodo, only worse.
+ - Yes, I’m married, but I’m not a corpse.
+ - People today, vampyres and humans alike, believe the earth is just a dead thing that they live on-that it is somehow wrong or evil or barbaric to listen to the voices of the souls of the world, and so the heart and the nobility of an entire way of life dried up and withered away...
+ - Zoey: Wait! Don’t go yet. I have so many questions. Nyx: Life will reveal to you the choices you must make to answer them.
+ - I believe there is little you cannot do once you set your mind to it.
+ - Since Stark had come back from the Otherworld, he’d been too weak and out of it to do much more than eat, sleep, and play computer games with Seoras, which was actually a super weird sight, it was like high school meets Braveheart meets Call of Duty.
+ - Hades was the personification of dark and dangerous – a living, breathing Batman.
+ - If I can’t have my own mate and my own children, then I can at least have my own kingdom.
+ - It was like I was inside a fishbowl in the middle of a typhoon, and everyone else was on the outside cluelessly enjoying lovely weather.
+ - Fear and Bigotry are bred fom isolation and ignorance. -Shekinah.
+ - My cat is not insane, she’s just a really good actress.
+ - They done Wrong Like ink from a busted pen Thrown away ’cause of someone else Used up But he come back Dressed in night Fine as a king With his queen The wrong Made right So right.
+ - I stifled a sigh and ignored the Imprinted Drunk Vision Girl.
+ - Ancient mirror Macick mirror Shades of gray Hidden Forbidden Within, away Part the mist Macick kissed Call the fey Reveal the past The spell is cast I save the day!
+ - Surrender is a powerful force.
+ - I don’t think the amount of belief you have is what’s important. I think it’s what you have belief in that matters.
+ - I’v planted my seeds for my upcoming events. but right now, Im just waiting for them to bloom.
+ - Arrayed in a new body another mother may someday give birth so that with stronger limbs and brighter mind the old soul shall take the road to earth again.
+ - No problem, I’ll get a penguin to show us.
+ - Im not letting my best freind die. been there done that. i got that freakin tshirt.
+ - We are all affected by our pasts, but it is within our power not to let what we have done to dictate what we will do.
+ - Blood Leads to Humanity, Spirit Leads to Night, and Earth Completes.
+ - Light always underestimates the viciousness of Darkness.
+ - Here’s the bottom line; writers write. Sometimes words flow easily. Sometimes it’s like sloughing through mud. Either way a professional writer keeps writing.
+ - So I was beginning my new life as a anomaly, which figured about as much as it sucked.
+ - Pain was good. If I hurt, it meant I wasn’t dead.
+ - You need to check out his body using your super Spidey Otherworld senses.
+ - Bat, pigeon, ravens – I don’t care about distinctions right now. Any fluttery, flappy thing is not cool with me.
+ - If you’re too scared to put your dreams, thoughts, desires, fantasies on paper and share them with the world, then being an author isn’t the right career for you.
+ - Then your heart is a black, shriveled thing, because you absoluteky betray me.
+ - Ah hell.
+ - She comes back Through blood by blood She returns Cut deep now Like me Humanity saves her Will she save me?
+ - We all have bad things inside us, and we all choose either to give in to those bad things or to fight them.
+ - If I shot an arrow and thought about an ass, would it surprise you if it hit Erik?
+ - Just when I thought my day couldnt get any worse, I saw the dead guy next to my locker.
+ - Yeah, fucknuts, its you. You’re me. To get into this place, You’re gonna have to kill me. Which is not gonna happen ’cause I’m not so cool with dying. What is gonna happen is that i’m gonna kick your ass and kill you dead.
+ - Yeah, I know you. I made you up. This is my dream. You’re a mixture of Zac Efron and Johnny Depp.
+ - What once bound him Will make him flee Place of power-joining of five Night Spirit Blood Humanity Earth Joined not to conquer, Instead to overcome Night leads to Spirit Blood binds Humanity And Earth completes.
+ - The guy I’d felt such an immediate and deep connection to I’d thought that just maybe there really were such things as soul mates, and had considered, at least for a few brief moments, that he might be mine.
+ - I spent centuries I your arms. This time our joining will be controlled by me, and you will revel in the pleasure I can bring you. Throw off the shackles of your distant goddess and come to me. Be my love, truly, in body as well as soul and I will give you the world!
+ - The dividing line forms-fashioned from: Dragon’s tears Missed years Overcome fears The fire and ice paradox Seen with True Sight Darkness does not always equate to evil Light does not always bring good.
+ - That’s how Darkness works. It turns love into something bad.
+ - We stand separate from the world because of our gifts. Never forget that, because you may be sure the world never will.
+ - Plus, according to my mother, memories change like people do, especially if there’s enough alcohol involved-Aphrodite.
+ - This time the fluttery feeling in my stomach was more intense. It made the inside of my thighs tingle and my breathing deepen.
+ - No, Kramisha, he’s not black. He’s a killer bird with evil for his Daddy.
+ - Well, he was wearing those really bad pants ant that awful shirt. Clearly he did need some things explained to him bya teenager, but i didn’t think it was the right time to mention his unforunate and obvious fashion impairment.
+ - He’s not the brightest crayola in the pack.
+ - And kissing him is like sucking on alcohol-soaked feet.
+ - There’s power in the truth, just like there’s power in making the right choice.
+ - Actually, since I’m gay I think I should count for two guys instead of just one. I mean, in me you get the male point of view and you don’t have to worry about me wanting to touch your boobies.
+ - I’ve found that the way a person feels about cats-and the way they feel about him or her in return-is usually an excellent gauge by which to measure a person’s character.
+ - Mercy is stronger than your sword.
+ - He was chugging brown pop from a can Jack had handed him while he stuffed nacho cheese Doritos in his face. I was glad to see he looked lots better, almost completely like himself, which proves Doritos and brown pop really are health foods.
+ - There is a deep power in words that speak the truth.
+ - He has a spirit-a soul- and therfore a choice. I will belive that Aurox will chose Light, even if Darkness resides within him. None of us is entirely good. Or evil.
+ - Loving him didn’t fix anything. Loving him didn’t change anything. Loving him simply made everything else bearable.
+ - I closed my eyes and rested my head against his chest, wishing sincerely that Rhiannon would get hit by a bus.
+ - Also pay attention if a tree or whatnot says something about two bulls.
+ - You can’t win integrity and honor from games. You can only earn them from living a life dedicated to those ideals.
+ - Choose battles that you can win without losing your heart and your soul.
+ - Aphrodite makes us understand why women have drowned their babies.
+ - What if the beauty around us is meant as a reminder for the many gifts we have been given and our need to give thanks to them?
+ - And then something truly bizarre happened. I could feel his touch through our eyes. I couldn’t look away from him. The girl in front of him seemed to disappear, and all there was in the hallway was him and the sweet, beautiful smell of his blood.
+ - No matter what else, we have love. Always love.
+ - I stared at myself in the mirror. Okay, just ugh. I had to get some sleep tonight – the bags under my eyes had bags.
+ - I’ve married a friggin horse. And he bites.
+ - Who knew hitting my head and passing out would be so much fun?
+ - I still didn’t look at him. I was afraid if I did that, I would turn around, run back to him, and hurl myself into his arms.
+ - I prefer my water in wine form.
+ - Kim’s gripe with humans was nothing new. She, like the rest of the Guardians, put her life on the line every time she faced demons and was entitles to her own opinion. Sometimes I wish she would tall in love with a human. That would shut her up.
+ - Night can’t cloak your scarlet dream. Accept Desire’s call.
+ - If I died, would it get me out of my geometry test tomorrow? One could only hope.
+ - And, as Stevie Rae would have said, Kalona was as wrong as manboobs.
+ - She’s easy to lead around, a shiny present here, a pretty compliment there, and you have true love and a popped cherry sacrificed to the god of deception and hormones. Young girls are so ridiculous – so predictably easy.
+ - At the last parent visitation night I’d sorta accidentally watched a majorly nightmarish scene between Aphrodite and her parents. Her dad’s the mayor of Tulsa. Her mom might be Satan.
+ - You know how it is with cats: They don’t really have owners, they have staff.
+ - Water, we go to you dirty and rise from you clean.
+ - Something must be wrong with me to stop a good girl-on-girl fight.
+ - Nuns freak me out.
+ - A big, studly football jock like me? I got plenty of blood to spare. For you, I have anything to spare.
+ - You know that prejudice isn’t logical, which is why it is so hard to overcome.
+ - When you make mistakes, whether they are from this life or another, learn from them- then they become opportunities.
+ - Often secret desires as well as abilities surface in our dreams.
+ - I don’t need a guarantee if I have you.
+ - Like pleasure, beauty should be savored and enjoyed.
+ - I’ve loved you for as long as I can remember, and I’m going to love you for the rest of my life.
+
+152 quotes

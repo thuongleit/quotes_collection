@@ -1,0 +1,25 @@
+ - I use discipline and focus as my greatest weapons.
+ - It’s not a defeat nor an obstacle that is going to get in the way of our dream, my dream continues, the journey continues.
+ - The Samurai always has to rise and move on, because new challenges will come.
+ - If you have a dream in your life, go ahead it’s possible, go ahead.
+ - My philosophy is the same as a Samurai: To hit without getting hit.
+ - I’m just a regular guy that had a dream and ran for it.
+ - There’s always pressure but I change that pressure into motivation.
+ - I was thinking Im going to die but I’m not going to tap.
+ - If you don’t give up, eventually you will break the cycle and you will overcome any obstacle.
+ - The main thing Karate offers to me is a philosophy of life. The philosophy of Karate is respect and discipline. You give 100% of whatever you do, in every activity.
+ - Positivity helps produce better results.
+ - Before a fight I empty my mind. Every fighter is able to lose. It is not a big thing. You have to accept what comes and remain calm.
+ - To be happy is very important to do a great performance because you have to be comfortable; your mind has to be clear.
+ - Meditation plays a big role in my life. Meditation fortifies my spirit, improves my focus, my desire. When I fight I try to empty my mind. It’s called Mushin. When I don’t see anything around me, I only see that moment. Nothing else matters. that was how I was taught to live.
+ - I never fear my opponent, for me he only represents a new challenge to conquer.
+ - I try to clear my mind of everything, I try to think of nothing. I just let my body act, the body can take control and do what it’s trained to do.
+ - The good point is when you combine excitement and calm together.
+ - If you gave up, you’ve already lost. If you keep going, you get to a new level.
+ - Every time you achieve a dream, you must set another one. Because that will strengthen your path. Or you will become dead, because if you have no dreams, you have no life.
+ - You can have talent and strength, but the most important is determination.
+ - I believe a lot in what I do and in my work. I believe in me.
+ - You have to walk and believe that you can find the light.
+ - This is one of the toughest divisions and I’m going to be champion.
+
+23 quotes

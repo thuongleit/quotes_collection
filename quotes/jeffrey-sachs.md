@@ -1,0 +1,45 @@
+ - At the most basic level, the key to ending extreme poverty is to enable the poorest of the poor to get their foot on the ladder of development.
+ - Extreme poverty is the best breeding ground on earth for disease, political instability, and terrorism.
+ - Let the future say of our generation that we sent forth mighty currents of hope and that we worked together to heal the world.
+ - History is written by the rich, and so the poor get blamed for everything.
+ - Without restoring an ethos of social responsibility, there can be no meaningful and sustained economic recovery.
+ - The essence of Africa’s crisis is fundamentally its extreme poverty and therefore its inability to mobilize out of its own resources even the barest of minimum resources to address any of the public health crises that Africa faces.
+ - I think the IMF helped to detonate the Indonesian crisis.
+ - The defining challenge of the 21st century will be to face the reality that humanity shares a common fate on a crowded planet.
+ - My concern is not that there are too many sweatshops, but that there are too few.
+ - We need to defend the interests of those whom we’ve never met and never will.
+ - Globalization was a deep trend pushed by technology and right ideas, as much as anything else.
+ - Our challenge, our generation’s unique challenge, is learning to live peacefully and sustainably in an extraordinarily crowded world. Our planet is crowded to an unprecendented degree. It is bursting at the seams. It’s bursting at the seams in human terms, in economic terms, and in ecological terms.
+ - The Russian drama began at the end of 1991, when the Soviet Union mercifully ended. Russia and 14 other new countries emerged from the ruins of the Soviet Union. Every one of those 15 new states faced a profound historical, economic, financial, social and political challenge.
+ - The longer you wait, the less fun. If you wait until the bitter end, the whole economy can be destroyed.
+ - The great leaders of the second world war alliance, Franklin Roosevelt and Winston Churchill, understood the twin sides of destruction and salvation. Their war aims were not only to defeat fascism, but to create a world of shared prosperity.
+ - The runs started in Thailand after the IMF intervened in such a dramatic way. Then the IMF came to Indonesia.
+ - Unfortunately, the real focus in this country has not been on the rest of the world. It’s been on our own issues and our own problems. Fair enough. But it means that our simple hopes that everything will just work out abroad aren’t really coming to pass.
+ - The truth of good economic doctoring is to know the general principles, and to really know the specifics. To understand the context, and also, to understand that an economy may need some tender loving care, not just the so-called hard truths, if it’s going to get by.
+ - Deep down, if we really accept that their lives – African lives – are equal to ours, we would all be doing more to put the fire out. Its an uncomfortable truth.
+ - Despite a decade of criticism and budget cuts, the specialised UN agencies have far more expertise and hands-on experience than any other organisations in the world.
+ - Roosevelt talked not only about Freedom from Fear, but also Freedom from Want.
+ - It’s not so unusual to run out of someone else’s currency.
+ - The essence of Africa’s crises is fundamentally it’s extreme poverty.
+ - The idea that the UN system could provide real leadership on the great development challenges will strain credulity in some quarters.
+ - There is no economic imperative that will condemn us to deplete our vital resource base, but neither is there an invisible hand that will prevent us from doing so.
+ - I believe myself that there’s a great deal more interest and engagement among Americans than our politicians recognize.
+ - The basic idea was that if a country would put its economy as an integrated piece of the world system, that it would benefit from that with economic growth. I concur with that basic view.
+ - This is our greatest challenge: learning to live in a crowded and interconnected world that is creating unprecedented pressures on human society and on the physical environment.
+ - My colleagues and I took a stand in our work several years ago that we would not look for the magic bullet, because there is none. These are just basic problems requiring basic work. Nothing magic about it.
+ - Soil mapping is one of the pillars to the challenge of sustainable development.
+ - Everybody needs to understand that policies are going to change to make it unprofitable if you wreck the planet, those companies that continue exploring and developing fossil fuel resources for which there is no safe use are going to pay a very heavy cost for that.
+ - We had a booming stock market in 1929 and then went into the world’s greatest depression. We have a booming stock market in 1999. Will the bubble somehow burst, and then we enter depression? Well, some things are not different.
+ - Russia has gone through eight years of continuing economic pain.
+ - Devaluations are never easy.
+ - We’ve taken the view that if the rest of the world would democratize and create market economies, that would spread the benefits of prosperity around the world, and that it would enhance our own prosperity, and our own stability and security, as well.
+ - If you have a lot of short-term debt, it means that all of that money can be demanded in a very short period of time. Technically, short-term debt means money that’s coming due within a year. Typically, it means money that’s coming due within 30 to 90 days.
+ - We were proposing, in a sense, that the rest of the world be made safe for American ideas, as they adopted intellectual property rights that gave patent protection to our very innovative economy.
+ - It’s the American leadership that has not played the role it should be playing and that leaders in other countries have been playing.
+ - White House and State Department foreign-policy experts are overwhelmingly directed towards military and diplomatic issues, not development issues.
+ - America’s government is not even aware of the gap between its commitments and action, because almost nobody in authority understands the actions that would be needed to meet the commitments.
+ - In Asia, a lot of successful economies that had been living on their own saving, decided to open up their financial markets to international capital in the early 1990s. So here were countries doing quite well, but they decided to borrow a bit more and do even better.
+ - The idea that UN commitments should be followed by action is indeed a radical one, especially for the United States, where wilful neglect of its own commitments is the rule.
+ - In my view, there is an urgent need to communicate with the public and help to explain where there is consensus, and where are there doubts about the issues of sustainable development.
+
+43 quotes

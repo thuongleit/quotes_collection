@@ -1,0 +1,53 @@
+ - There is no substitute for a clear vision and a decisive direction.
+ - Every donation received is a potential negative ad. Vetting money is just as important as raising it.
+ - The Darwinian adaptive trait of our time is the ability to figure out when we are being lied to on television.
+ - It is from the center that leaders must lead.
+ - The financial interdependence of the world’s banks is like the interlocking alliances that predated World War I.
+ - In fighting scandal, the key is not to overreact.
+ - Often GOP political strategy seems like the human wave theory of the Chinese military translated to politics. Where Beijing uses masses of soldiers to overwhelm their adversaries, the GOP uses huge campaign budgets as a substitute for strategy, thought or issues.
+ - We will shortly become like Germany, France, the United Kingdom, or Sweden – a socialist democracy in which the government dominates the economy, determines private-sector priorities and offers a vastly expanded range of services to many more people at much higher taxes.
+ - Spontaneous combustion of grassroots politics is the future.
+ - Leadership is a dynamic tension between where a politician thinks his country must go and where his voters want it to go.
+ - If you’re going to be a sexual predator, be a Democrat.
+ - Growth demands investment, and investment demands stability. So the more Obama stirs the pot with his proposals and potential changes, the more he retards exactly the investment he needs to get the economy moving again.
+ - I didn’t do what they said I did. I may have done enough so that I don’t know if I can prove my innocence.
+ - Rebut the negative, and the opposing campaign has not merely lost a skirmish, it has suffered almost irreparable damage. An effective rebuttal makes it hard for the campaign whose ad is destroyed to be believed about anything ever again.
+ - I probably had 150 meetings with Trent Lott. He has said exactly as many racist things to me as Bill Clinton has, which is to say zero.
+ - The most basic decision a modern politician must make is whether to be aggressive or conciliatory.
+ - The stronger Hillary is, the weaker she is. The more she seems like a likely presidential winner, the more difficult the senate race becomes in New York. It’s perfect.
+ - Obama has had two raging successes in his term: He has slashed unemployment by persuading millions to give up hope and leave the labor force; and He has cut illegal immigration by casting the United States into a permanent job shortage. Some achievements!
+ - The greater informational levels of the voters, their decreasing inhibitions in expressing disagreement, and their greater preference for Jeffersonian direct involvement, all make the need for a ‘permanent campaign’ to sell a president’s policies all the more crucial.
+ - The last man to try to run for president advocating a tax increase was Walter Mondale. He lost 49 states in 1984, and the “I’ll raise your taxes” reputation haunted him all the way to Minnesota last year, where he lost his 50th state in the Senate election.
+ - Now a great debate has been born. The thesis is Democratic Socialism. The antithesis is free-market capitalism. The Obama Democrats have posed the challenge. It is now up to the Republicans to pick it up and fight along these lines.
+ - The White House will run itself while the president is away. That’s why he has to be sure not to be away too much.
+ - Spin is overrated. It is strategy, not spin, that wins elections.
+ - No true patriot could be for Ron Paul.
+ - Take whatever position you want, but do take a position, because once you do, ample money awaits you on either side.
+ - I love Karl Rove. He elected Bush.
+ - The Democratic Party opposes tax cuts but it cannot say so publicly. Thus, it is forced to support the idea of lowering the tax burden but using class warfare rhetoric to dispute the allocation of the relief.
+ - Much of the DOE green energy lending program is a scam. It is a slush fund of pork for paying back campaign contributors.
+ - Truth is that which cannot be proved false.
+ - There is literally no such thing as an idea that cannot be expressed well and articulately to today’s voters in thirty seconds.
+ - The key to controlling your own political party, so that it does not eat you alive, is to realize that while Democratic and Republican leaders differ sharply, their voters do not.
+ - You cannot cover the 50 million new people Obama seeks to cover without more doctors and nurses. But the administration and even the Blue Dogs in the House have proposed nothing to add to the supply of medical services even as they plan vastly to increase the demand by covering new people.
+ - Bill and Hillary Clinton have one central idea in their uncluttered, ambitious minds: Hillary in 2008. Let Bush get re-elected, use the ’04 primaries and general election to clean out the underbrush of competing Democratic candidates, and proceed unimpeded to the ’08 nomination.
+ - The typical presidential staff resents the vice-president even more than they do the first lady.
+ - The opposing party rarely causes so much angst as does one’s own.
+ - The Iraq War marked the beginning of the end of network news coverage. Viewers saw the juxtaposition of the embedded correspondents reporting the war as it was actually unfolding and the jaundiced, biased, negative coverage of these same events in the network newsrooms.
+ - President Obama’s recommended reduction in the tax deduction for charitable giving reflects his fundamental belief that only the government can or should help the poor. He wants to keep the impoverished directly dependent on the government – and the Democratic Party – for their daily bread.
+ - The key to running a campaign on the cheap is to avoid spending money on anything other than projecting a message.
+ - Anybody who thinks that getting a communication from a voter in your district is spam – that guy is pork. Roast pork unless he changes his point of view.
+ - Today, a politician does not just need public support to win elections; he needs it to govern.
+ - A politician can do what he thinks is right, he just has to be sophisticated in how he goes about it. Those who seek a president who ‘will disregard the polls and just lead,’ ask for the political equivalent of ‘The Charge of the Light Brigade.’
+ - Democrats are not about to nominate anyone who backs the tax cut, and Americans are not going to elect anyone who favors a tax increase.
+ - As Bob Dole found out, you can’t keep a positive image while being your party’s mouthpiece in Congress. That’s why no legislative leader since James Madison has ever been elected president.
+ - Washington is a mean town where human sacrifice has been raised to an art form.
+ - Presidents generally do what they are good at in their first four years, then spend their second term responding to the agendas imposed upon them by events.
+ - I think that really, when we look at this whole process, we can come to the conclusion that there is no such thing as a moderate Democrat, that fundamentally all Democrats are Democrats.
+ - Obama’s perverse view of fairness threatens to create reverse incentives, militating against growth, jobs, expansion and upward mobility.
+ - In the real world, banks hang onto their money for fear of making bad loans, no matter how many bailouts or stimulus packages Washington passes.
+ - Despite romantic fantasies about caring candidates who learn of America in donut shops, most politicians rely on media to teach them what concerns the average person.
+ - The problem: Democrats have to drop their stupid class-warfare rhetoric. With 74 million Americans owning stock in one form or another, anything which helps them can’t be derided as a sop to the rich.
+ - Barack Obama has fatally undermined our currency, our solvency, our financial stability, and – ultimately – our economy all to spend money that has had no economic effect!
+
+51 quotes

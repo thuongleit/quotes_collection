@@ -1,0 +1,62 @@
+ - Disappointment is just the action of your brain readjusting itself to reality after discovering things are not the way you thought they were.
+ - Compassion is the ability to see what needs doing right now and the willingness to do it right now.
+ - The real goal of Zen is to find a way of life that’s easy and undramatic. Strong attachments lead to upset and drama.
+ - You can always improve your situation. But you do so by facing it, not by running away.
+ - Zen practice is about not getting high on anything and in so doing getting high on absolutely everything. We then find that everything we encounter – bliss or nonbliss – possesses a tremendous depth and beauty that we usually miss.
+ - You can’t live in paradise – but you are living right here. Make this your paradise or make this your hell. The choice is entirely yours. Really.
+ - The state of ambiguity – that messy, greasy, mixed-up, confused, and awful situation you’re living through right now – is enlightenment itself.
+ - Morality is a personal matter.
+ - Suffering occurs when your ideas about how things ought to be don’t match how they really are.
+ - Reality’s all you’ve got. But here’s the real secret, the real miracle: it’s enough.
+ - Faith keeps you going, but doubt keeps you from going off the deep end.
+ - You won’t understand life and death until you’re ready to set aside any hope of understanding life and death and just live your life until you die.
+ - Zazen isn’t about blissing out or going into an alpha brain-wave trance. It’s about facing who and what you really are, in every single goddamn moment. And you aren’t bliss, I’ll tell you that right now. You’re a mess. We all are.
+ - You can’t function in society if you don’t involve yourself in the fictions society accepts about time. But you do so with the understanding that you’re playing a game.
+ - A lot of seriously insane people have managed to acquire huge followings based on the idea that their insanity is a kind of enlightenment. An obvious example would be Charles Manson or Shoko Asahara who is the person responsible for the Sarin gas attack on the Tokyo subway.
+ - At times, Zen does get into some Buddhist Cosmology. Nishijima Roshi, my main teacher would talk about that and almost every time immediately say that it was only one way of looking at it. Whenever addressing realms of Heaven or Hell, he’d also address that it was just a psychological state.
+ - So I’m skeptical and cynical about the whole thing and it’s only if something seems to be genuine that I would pursue it. That’s why I’ve stuck with Zen for so long and not gone on to some other path with it.
+ - No matter what we predict for our futures, we’re always wrong anyway. The only sensible thing to do is to live this life as it is right now. Leave what happens after you die till after you die.
+ - Consider this: 1. Would you ride in a car whose driver was on the consciousness-expanding “entheogenic” drug LSD? And here’s a bonus question: 2. Why does an “expanded consciousness” include the inability to operate a motor vehicle?
+ - If a tree falls in the forest and it hits a mime, would he make a noise?
+ - When I first started watching Godzilla, I was a kid and a big dinosaur freak and was like, “Oh my gosh, there’s a big dinosaur.” So I immediately got into Godzilla. What I like about it are some of the things people often think are negative aspects.
+ - How many Zen masters does it take to screw in a light bulb? The plum tree in the garden!
+ - I think the understanding of oneness and interconnectivity of the whole Universe is something we have innately, something we’re born with. We are however very skillful at ignoring and pretending we don’t have or know it.
+ - As for enlightenment, that’s just for people who can’t face reality.
+ - I mean, I can do that all day long. I can tell you the Vulcan’s are not actually devoid of emotion. That they work hard to suppress their emotions. And of course, there actually are no real Vulcan’s, though I know the ins and outs of them as fictional characters.
+ - Buddha might be the one thing that could settle Godzilla down. He might say, “Listen Godzilla, you don’t have to do all this. Just chill out a little bit and everything will be fine”.
+ - In the Japanese movie’s they’re throwing everything they have at him, every missile, but he keeps coming, he can’t be stopped and that represents death. There’s nothing you can do to stop it, to keep yourself from dying. You can try every trick in the book and it still won’t prevent it.
+ - I thought that deserved a book and feel like the door needs to be open so people can say, “Ok, here we go, let’s deal with this” because we’re not dealing with it. I’m waiting for somebody to write another book but it hasn’t happened yet, though I guess mine’s only been out for a year and a half.
+ - So with science, it’s original idea was to ignore the spiritual or nebulous side of reality and to strictly work on concrete things. Say there’s a brick which we cut it in half and then see there’s two half’s of a brick. If we keep cutting we can then see there’s particles and so on and so forth.
+ - If you want to believe in reincarnation, you have to believe that this life, what you’re living through right now, is the afterlife. You’re missing out on the afterlife you looked forward to in your last existence by worrying about your next life. This is what happens after you die. Take a look.
+ - Real morality is based on a single criterion: right action, appropriate action, in the present moment and present situation.
+ - It’s crazy to me how concerned people get with what it looks like and what you can do there. People may as well be talking about JRR Tolkien or Star Trek or something.
+ - But people do the same thing with the Bible. They memorize all the fictional characters, the parameters and the rules of the game and think it’s important, but I can’t get excited about that myself.
+ - So that’s Godzilla, he’s ultimately going to get you regardless of what you do. Maybe the people who made the American Godzilla film were scared of that. They didn’t want him to represent that, to represent something we couldn’t deal with because, “We’re American’s, we can deal with anything”.
+ - Just know that your expectations are only thoughts in your head, and keep on doing what you do.
+ - The thinking brain influences the body’s responses and it makes a neat little loop.
+ - The problem is the way we let our desires stand in the way of our enjoyment of what we already have.
+ - I remember writing the post but not what I said specifically, so I’ll either repeat myself or say something completely different and baffle everybody.
+ - It may look like we’re doing nothing when we sit zazen. But actually we are exposing ourselves to ourselves.
+ - Your role is to do and say the things that need to be done and said from your unique perspective.
+ - Truly compassionate action arises spontaneously without thought and is carried out in real action with no anticipation of reward and, indeed, no concept of a doer of that action.
+ - Do what you do as well as you possibly can. That’s Buddhist morality.
+ - So I was first exposed to this guy Tim McCarthy, and he’s talking about Zen, but deeper than that he was a genuine person. I thought maybe he’s someone I can trust and follow this thing he’s talking about all the time.
+ - The thing with the question of oneness or non-oneness is that you can literally discuss it forever. You can go into the philosophy section of any library and you’ll see people have been discussing it forever and will continue to do so.
+ - Buddhism is all about finding your own way, not imitating the ways of others or even the ways of Buddha himself.
+ - People will come and give you sandwiches every six hours but you’re really of no use. A lot of people get excited about guys like that but I can’t get too excited about it because I think he’s sorta useless. He’s just sitting there in India under a blanket looking beautiful, so what.
+ - Everything you have, whether it’s money or stuff, is an obligation. It is as much your duty to care for and nurture any object you own as it would be if that object were your child. All possessions come with responsibilities. More possessions equals greater responsibility.
+ - It’s interesting to see what’s going on with physics these days because they’re starting to come out with stuff that sounds remarkably like Buddhism and even more specifically like the ancient Hindu Vedas. Physics isn’t necessarily saying the exact same thing but I think eventually it will merge.
+ - The fact is that there is a contradiction going on but our brains don’t like contradiction. So when Moe hits Curly on the head with a sledgehammer and Curly says, “ow” and Moe says, “Serves you right Numbskull”, you can say that’s because they’re separate beings, and that’s true.
+ - The trick to not thinking is not adding energy to the equation in an effort to forcibly stop thinking from happening. It’s more a matter of subtracting energy from the equation in order not to barf the thoughts up and start chewing them over again.
+ - The truth comes when you can see that your self-image is just a convenient reference point and nothing more, and that you as you had imagined yourself do not exist.
+ - I used to worry when I was a teenager, even into my twenties, after I’d heard something about schizophrenia and how people just suddenly become schizophrenic that I was insane.
+ - I was very attracted to the way that Zen did not go into the imagination land. And now I’ve forgotten what your first question was and how we were going to tie this together.
+ - For a very long time science and philosophy were considered part of the same continuum and it was only within the last few hundred years they’ve been considered different areas of inquiry, and now we’re starting to go back to the idea that maybe they aren’t two separate realms of inquiry.
+ - As you’re implying, there’s a new technology that can look even deeper into that brick and we can start getting into a level where it breaks down so that the brick isn’t even there, but obviously it is because Moe can hit Curly on the head with it. It’s quite bizarre and all relative.
+ - It’s sort of another innovation, probably a good innovation, of Western culture to separate the ideas between science and philosophy, but it’s important to remember they weren’t always separate realms of inquiry.
+ - What attracted me to Zen was my first teacher, Tim McCarthy. He was extremely genuine. It wasn’t even really a Zen thing, that sort of came along later.
+ - People imagine enlightenment will make them incredibly powerful. And it does. It makes you the most powerful being in all the universe- but usually no one else notices.
+ - So what I liked about Zen was that it never goes off into the realm of imagination land, or if it does occasionally, the good teachers will openly address it specifically as only imagination. Both of my teachers were very good at that.
+ - I really thought Reagan was going to push the button and blow us all up. It was scary. So when they did the 1998 American Godzilla film, Hollywood didn’t understand what Godzilla was.
+
+60 quotes

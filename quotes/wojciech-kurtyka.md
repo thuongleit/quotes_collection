@@ -1,0 +1,21 @@
+ - Enslavement to your own weakness – be it an addiction to alcohol, or to a woman or to fame – it’s degrading, and it means losing your dignity and your freedom.
+ - I like to describe Himalayan climbing as a kind of art of suffering. Just pushing, pushing yourself to your limits.
+ - Beauty is the door to another world...
+ - I don’t like egocentricity, which is something that I have arduously battled in myself my entire life.
+ - The mountains are exceptional places for, as the natural environment is concerned, they are the concentration of the wildest possible variety of all natural phenomena and forms. They are somehow a concentration of the truth of nature or even I’d say its essence.
+ - The most significant dimension of freedom is the freedom from one’s own ego – in other words, from the feeling that I am the center of everything.
+ - Every type of evil we’ve got in us is the result of that one true illness of the human mind – that is, of being self-centered.
+ - Classic mountaineering grows out of a traditional romantic imagination. Its heart is the feeling, its path is blood, sweat and tears, and its restriction is God.
+ - Great effort, fear and suffering sweet all the worthless chaff out of us.
+ - The man coming back from the hard mountain trip is a wiser being, calmer and radiating inside. I’d say momentary liberated.
+ - Naturally, the top does not automatically make us better. Like the samurai frequented ordinary cutthroat, so sometimes extreme mountaineer can be self-centered, mythomaniac or crook to each yourself and the environment.
+ - I just have a dream mountain under the eyelids, this is my breath, my life.
+ - Difficult struggle in mountaineering is our rise above himself, is the voice of freedom.
+ - If there is such a thing as spiritual materialism, it is displayed in the urge to possess the mountains rather than to unravel and accept their mysteries.
+ - Stupidity is falling pray to your own illusions.
+ - Isn’t a person who can live on nothing much stronger? I try to nurture that transformation in myself.
+ - In this way the climber faces his second deadly threat. The first is naturally the risk of killing the. Second is immersed in the deceitfulness of mental and believing that you are worth as much as the public image.
+ - Other extremely alluring traits in people are simplicity and naturalness. Simplicity and naturalness are never painfully obvious qualities, and yet which I come across them in a person, I get this sense of a firm foundation and of a direct access to truth.
+ - I see one single suitable role for my life’s work: for it to be a gift to others.
+
+19 quotes

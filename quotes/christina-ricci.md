@@ -1,0 +1,110 @@
+ - I guess I’m a workaholic!
+ - This is my costume. I’m a homicidal maniac. They look just like everyone else.
+ - My dream role would probably be a psycho killer, because the whole thing I love about movies is that you get to do things you could never do in real life, and that would be my way of vicariously experiencing being a psycho killer. Also, it’s incredibly romantic.
+ - Any obsession is dangerous.
+ - Real tears are not those that fall from the eyes and cover the face, but those that fall from the heart and cover the soul.
+ - I’m so glad I’m not 20 years old anymore. I was in a hurricane. I’m a lot calmer now. I don’t cause destruction for myself and others everywhere I go.
+ - I think reincarnation is possible. Hopefully, we all get recycled.
+ - Remember who you are. It’s really okay to be who you are.
+ - I like the way my own feet smell. I love to smell my sneakers when I take them off.
+ - I’m not perfect-looking and I don’t say the right things, I’m a little different, nothing really special, but I guess I come across as a little more real to people and that comes through on the screen. I know I look young, but with the right make-up I can look older. I definitely feel older.
+ - It’s Aslan, the lion from The Lion, The Witch And The Wardrobe. It’s a symbol of my hellish childhood. I struggled through my oppressive teenage years and when I turned 18 I escaped. Like Aslan I was finally free.
+ - You have to excuse me because I AM a teenager, so I’m allowed to sound illiterate and make stupid comments like ‘I’m not into hard-core feminism.’
+ - Now my body is really womanly – a little too much so. It’s someting I can fall back on. When I don’t know what else to do, I stick my chest out.
+ - I stand up for other people, I’m very protective of people around me. If I feel like somebody is getting a bad rap or being unfairly picked on, I will stand up for them, absolutely.
+ - For years, I hated myself. I covered the mirrors in my house. I literally couldn’t have a mirror in my room.
+ - I always think that I’ve embarrassed myself.
+ - Every night I fell asleep to a different Beatles album. So I’m very familiar with the Beatles; Ringo was my favorite Beatle until I grew up and then changed. I made the switch over to George Harrison just in time to regain my cool.
+ - I’m a TV addict, and I personally really enjoy reality TV.
+ - People feel like they have to live up to being perfect or have a perfect life or be perfectly happy, and it just makes them more unhappy.
+ - I went through a normal kind of late teens, early 20s drinking, but it was a choice I made, because I didn’t think it was very good for my life.
+ - I don’t know who Peter Lorre is. Pathetic right? It shows you how completely gross and uncultured my generation is.
+ - I think I’m better at playing difficult than I am at being normal. And to me that’s something I’m working on now. I’m not really that difficult or complex a person, so it’s interesting to me that it’s just so much harder for me to play an everygirl.
+ - I want a Mini-Cooper because it’s fuel efficient, emissions efficient and all that stuff. It’s small and better for the environment. I think that will be my next car.
+ - My sister discovered the Beatles when she was about 11 and I’m four years younger. So we had nothing but Beatles paraphernalia. Every night I fell asleep to a different Beatles album.
+ - Naturally, my body language changes given whatever environment I’m in.
+ - I certainly hope I’m not still answering child-star questions by the time I reach menopause.
+ - I come from one of these hideous backgrounds where being sincere is like – ugh, you might as well kill yourself.
+ - I’m trying to just go with the flow and learn from the people around me.
+ - I feel like some of the best talent is on TV right now, with the writing, acting and great directors. I’ve also been looking for the consistency of work that TV provides for you. And, I always thought it would be really interesting to live with a character for months, if not years.
+ - I think I am naturally attracted to things that are a little bit out of this world.
+ - I went through an awkward adolescence and had braces.
+ - I get so nervous. I happen to be socially awkward and shy. I spent a lot of my time as an adult not going places.
+ - I mean, I don’t like anyone who likes themselves too much.
+ - I take Wellbutrin because I’m afraid to go into stores. I’m afraid people are going to yell at me.
+ - If I know I have everything prepared for when I get killed by a stalker, then I can go to sleep.
+ - I’m an actor who hates dialogue and the present day and reality.
+ - I’m incredibly naive.
+ - My brother always teases me about my forehead: ‘I could eat off it!’
+ - I mean, I sing. But I don’t think I’m a good enough singer to do any kind of musical.
+ - Well, I think most people understand that there’s a big difference between who you are and who, you know, you play.
+ - It’s so normal for a teenager to dress in black – and be real unhappy and stay in your room and say sarcastic things. How could something so normal be considered morbid?
+ - Doing films as an actor, you spend maybe 40 percent of the year doing your chosen profession. If you are on a successful TV show, you spend 80 percent of your year doing the thing you love.
+ - I like to do things sort of intuitively, I think.
+ - To be honest, I don’t usually do very much research, especially if I’m working with a director who also wrote the screenplay. They’ve usually done a tonne of research. And they’ll tell you about it from their perspective which is better than doing your own research...
+ - I just want to be married, or just engaged. Basically, I just want a ring. And the tax break.
+ - We live in a thinly veiled misogynistic society.
+ - Well, it’s difficult to fall in love with a character when you just read the pilot. You don’t really know who the character is.
+ - You always fear when you’re making a movie that has a moral to the story that people are going to reject the idea of being taught a lesson.
+ - I love the solitude of being on a plane and finally getting to read an entire book and being left alone.
+ - I would love to fly privately, but unfortunately, I don’t. I don’t summer anywhere either.
+ - When you’re doing something where you really like the material, it doesn’t matter what medium it’s in.
+ - I don’t think I’m an outsider at all.
+ - I’m getting older now, so I should think about a family, but certainly not tomorrow.
+ - I think the main reason a lot of child stars don’t make it is that it’s hard to see someone as cute and then all of a sudden see them as having more depth.
+ - I am a Christian. I haven’t really talked about that before. It is something very private. But I do pray and my beliefs are very important to me.
+ - There are a lot of theories about Shakespeare.
+ - When I was a little girl – well, like, a teenager – I wanted to be Sam Jackson. I always wanted to be men.
+ - I think I’ve had a fairly meandering career. Because I did start so young, I think that I’ve always chosen my parts based on what’s interesting to me and what I think would be challenging or fun, or someone I’ve always wanted to work with or a place I’ve always wanted to work in or a topic.
+ - We might all be so afraid to be who we are, but in the end, it’s really you’re individual, unique qualities that make you attractive to people.
+ - I didn’t use to think anything was worth keeping private. Now I do.
+ - I tend to fight for something that I believe in.
+ - I think people are learning to actually aspire to be objectified.
+ - I think people who suffer from depression, unless it’s post-traumatic, are probably going to struggle with it for their whole life.
+ - I’ve never been to a race car race before.
+ - I don’t think I like characters who are afraid and ashamed of who they are.
+ - I really liked it. It was awesome – my first tabloid story. If you’re going to have a tabloid story written about you, it might as well be with Johnny Depp.
+ - If I hadn’t gone into acting, I would have been one of those weird runaways on Hollywood Boulevard. No, it’d be uglier. I’d probably be dead.
+ - Unless it’s a specific accent, or something about physicality you have to change, I am generally not such a conscious actor.
+ - I don’t really need a lot of help from a director.
+ - I once ate McDonald’s three times in one day.
+ - When I’m acting in a film that I’m not producing, I stay to myself.
+ - I’ve been looking to do TV for a while. I’ve always done guest starring stuff. I’ve done a couple of multi-episode arcs, and I’ve always loved the experience.
+ - Most people don’t walk around knowing what other people think about them, and I don’t think it’s healthy to know what faceless strangers who you’ll never meet say about you.
+ - A director should cast a person who fits into their script.
+ - I think the thing that I always try to do – because it piques my interest – is to play really different parts all the time.
+ - I think that the best career that someone can have is one that’s reflective of their personal tastes.
+ - As a teenager, my favourite rejection was, ‘She looks too healthy,’ which of course translates as, ‘She needs to lose weight.’
+ - I was really bored and unhappy in school, and I used to act out and do horrible things.
+ - I think that I need to work on being comfortable at being normal, everyday-ish on camera. Unlike a lot of actors, I think that’s the thing that I’m not so comfortable with.
+ - We have so much pride in welcoming these passengers onto the plane, and they have so much pride in travel. It’s something that I definitely always remember, when I’m playing a scene on the plane, just to imbue everything with that sense of excitement.
+ - It’s fun to be sarcastic, but now I’m able to express myself in a way that’s much more sincere.
+ - I can’t think of anything that I turned down that became big and successful.
+ - My roommate and my boyfriend, they both know I am compulsive and controlling.
+ - I’m really open to everything.
+ - You won’t see me in a better mood than 4:00 in the morning on my way to work.
+ - To play someone who is who they are because of the happiness and contentedness that they’ve known in their life is interesting because of sort of how banal it is.
+ - I think it’s really great to be able to stick with a character for a long period of time. It’s not like you have one shot, and that’s it.
+ - This life that I’ve led has been really well suited for me.
+ - I feel like some of the best talent is on TV right now, with the writing, acting and great directors.
+ - I don’t come from money.
+ - If anyone ever saw me dance, they’d have trouble taking me seriously.
+ - I could easily exist on less money, but I like the way I live now.
+ - I hate the things they preach. They found a gimmick that sells. The fact that they’re making money off all these teenage kids who actually believe in their message is disgusting.
+ - I’m one of those people who loves to fly.
+ - As a kid, I was told to talk as much as possible.
+ - Everything, I think, about acting is based on imagination.
+ - Well, I think I’ve had a fairly meandering career.
+ - The movies I made early on may not have been great, but they were all commercially successful.
+ - I think I’ve always been interested in playing people who are judged very harshly.
+ - The more that I can work in different mediums, the more I can grow, and learn from different actors and different types of actors and directors and different styles of acting and build a tool box.
+ - I knew I would never be cast as the pretty girl.
+ - I loved the idea of doing something that has this misconception about what stewardesses were. And, I also love the idea that these girls were navigating a blatantly misogynistic society, with the girdle checks and make-up checks.
+ - Recently, I’ve really responded to books that bring the magic of childhood back to us as adults.
+ - As long as we can tell stories about our ability to survive, the more we will hope, not self-destruct.
+ - I won’t swim in a pool by myself, because I think that somehow a little magic door is going to open up and let a shark out.
+ - People are giving me more respect.
+ - What you feel is important may not be what the director feels is important.
+ - I find the less attention I pay to food, the healthier I am.
+
+108 quotes

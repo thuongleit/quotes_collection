@@ -1,0 +1,146 @@
+ - Cycling can be lonely, but in a good way.
+ - I never listen to the radio unless I rent a car.
+ - People will remember you better if you always wear the same outfit...
+ - Body odor is the window to the soul.
+ - Sometimes it’s a form of love just to talk to somebody that you have nothing in common with and still be fascinated by their presence.
+ - As everything becomes digitized, there’s the idea that things that can’t be digitized become more valuable.
+ - This ain’t no party, this ain’t no disco, this ain’t no fooling around.
+ - Facts are simple and facts are straight. Facts are lazy and facts are late. Facts all come with points of view. Facts don’t do what I want them to. Facts just twist the truth around. Facts are living turned inside out.
+ - PowerPoint may not be of any use for you in a presentation, but it may liberate you in another way, an artistic way. Who knows.
+ - When everything is worth money, then money is worth nothing.
+ - I wave to the double-decker buses from my bike, but the passengers never wave back. Why? Am I not an attraction?
+ - Physical contact is a human necessity.
+ - Things fall apart, it’s scientific.
+ - To shake your rump is to be environmentally aware.
+ - Deep down, I know I have this intuition or instinct that a lot of creative people have, that their demons are also what make them create.
+ - Everything’s intentional. It’s just filling in the dots.
+ - With music, you often don’t have to translate it. It just affects you, and you don’t know why.
+ - Singing is a trick to get people to listen to music for longer than they would ordinarily.
+ - When things get so absurd and so stupid and so ridiculous that you just can’t bear it, you cannot help but turn everything into a joke.
+ - I always think the everyday is more relevant than anything too grand because we all have to deal with it.
+ - Yeah, I like to keep myself interested – I’ll kind of throw myself into some area that I don’t completely know or understand, that I’m not adept at, so I’m forced to swim in order to stay afloat. There’s a good feeling that comes from that.
+ - When you fall in love, you feel like a missing piece of a puzzle that’s been found.
+ - The more you know, the more you know you don’t know and the more you know that you don’t know.
+ - As I define it, rock and roll is dead. The attitude isn’t dead, but the music is no longer vital. It doesn’t have the same meaning. The attitude, though, is still very much alive – and it still informs other kinds of music.
+ - Rich people will travel great distances to look at poor people...
+ - Crime is a job. Sex is a job. Growing up is a job. School is a job. Going to parties is a job. Religion is a job. Being creative is a job.
+ - I am an immigrant with a Green Card and, therefore, I am not eligible to vote in a federal election.
+ - It’s like 60 Minutes on acid.
+ - On a bike, being just slightly above pedestrian and car eye level, one gets a perfect view of the goings-on in one’s own town.
+ - The true face of smoking is disease, death and horror – not the glamour and sophistication the pushers in the tobacco industry try to portray.
+ - It’s not always been a happy marriage. I guess I wanted a quick fix.
+ - By the time Talking Heads were starting, my feeling was to throw out everything and start from scratch onstage; strip it down to as close to zero as you can get and then you can make it yours.
+ - I like a good story and I also like staring at the sea – do I have to choose between the two?
+ - A little touch of chaos and danger makes a city sexy.
+ - Real sadness is such an all-encompassing intense thing that it takes you out of your humdrum existence. If you can still function, you want to show it while it’s peaking. So when people tell you to cheer up, it’s not always the best thing.
+ - We are like the birds. We adapt. We sing.
+ - I try never to wear my own clothes, I pretend I’m someone else.
+ - Punk was defined by an attitude rather than a musical style.
+ - People use irony as a defense mechanism.
+ - Often I don’t know what the song means until it’s finished. Sometimes months later. I don’t think that’s bad. It implies that I don’t know what I’m doing but-I think if you’re able to follow your instincts, then that’s knowing what you’re doing.
+ - There’s an old joke that you know you’re in heaven if the cooks are Italian and the engineering is German. If it’s the other way around you’re in hell.
+ - Architecture theory is very interesting.
+ - I wanted to be a secret agent and an astronaut, preferably at the same time.
+ - The arts don’t exist in isolation.
+ - Why not invest in the future of music, instead of building fortresses to preserve its past?
+ - To some extent I happily don’t know what I’m doing. I feel that it’s an artist’s responsibility to trust that.
+ - I’d like to be known for more than being the guy in the big suit.
+ - Software constraints are only confining if you use them for what they’re intended to be used for.
+ - As music becomes less of a thing – a cylinder, a cassette, a disc – and more ephemeral, perhaps we will begin to assign an increasing value to live performances again.
+ - I couldn’t take pictures of green rolling hills.
+ - I found music to be the therapy of choice.
+ - Creative work is more accurately a machine that digs down and finds stuff, emotional stuff that will someday be raw material that can be used to produce more stuff, stuff like itself – clay to be available for future use.
+ - We live in ugly times.
+ - People are renovating places and opening ambitious new venues. That’s one thing that music does. It gets people out of their houses, and gets them hanging out together.
+ - My favorite time of day is to get up and eat leftovers from dinner, especially spicy food.
+ - I’ve never had writer’s block.
+ - The assumption is that your personal life has to be a mess to create, but how much chaos can you allow in before it takes over?
+ - I’m just an advertisement for a version of myself.
+ - A bike is the world’s most used form of transportation.
+ - I subscribe to the myth that an artist’s creativity comes from torment. Once that’s fixed, what do you draw on?
+ - I couldn’t talk to people face to face, so I got on stage and started screaming and squealing and twitching.
+ - My personal feeling is that human beings have this incredible capacity for denial.
+ - People will do odd things if you give them money...
+ - All you needed was a couple of instruments and a few chords and you could be on an indie label.
+ - For years we have been taught not to like things. Finally somebody said it was OK to like things. This was a great relief. It was getting hard to go around not liking everything.
+ - I still feel like if I can get a song to work with, say, a basic beat, a rhythm, some chord changes, and a melody, a vocal melody – if it works with that, then I feel it’s written and there’s something there.
+ - I love getting out of my comfort zone.
+ - There are plenty of people who are, I think, completely racist who love hip-hop.
+ - Analysis is like a lobotomy. Who wants to have all their edges shaved off?
+ - So there’s no guarantee if you like the music you will empathize with the culture and the people who made it. It doesn’t necessarily happen. I think it can, but it doesn’t necessarily happen. Which is kind of a shame.
+ - I’m not suggesting people abandon musical instruments and start playing their cars and apartments, but I do think the reign of music as a commodity made only by professionals might be winding down.
+ - There’s still a feeling that uncensored emotions make a good song. They don’t. Pure emotion is just somebody screaming at you, or crying. It doesn’t communicate anything.
+ - I find rebellion packaged by a major corporation a little hard to take seriously.
+ - If anything, a lot of electronic music is music that no one listens to at home, hardly. It’s really only to be heard when everyone’s out enjoying it.
+ - There’s a great temptation to clean everything up and make everything more perfect. You have to know when to stop and stop doing it, or you might end up with something that sounds metronomic.
+ - Well, Marx is having a comeback. I hear him mentioned a lot in terms of the global financial situation and the general sense of injustice out there. A lot of economic experts in America refer to him without actually using the M word, but he’s around.
+ - My take is that the kind of complexity which says we can always generate complexity from simple interactions following for example rules.
+ - Obviously, you go through a lot of emotional turmoil in a divorce.
+ - That’s the thing about pictures: they seduce you.
+ - There’s a pervasive feeling that when somebody sings a song and records a song on a record, that it’s their true feeling.
+ - I didn’t have any agenda or plan when I started writing stuff.
+ - We don’t make music, it makes us.
+ - Another Elvis will not come along. He got wasted, but it’s alright.
+ - The making of music is profoundly affected by the market.
+ - I don’t think people are going to switch over to bikes because it’s good for them or because it’s politically correct. They’re going to do it because it gets them from A to B faster.
+ - It didn’t even occur to me that I’m the last person in the world who should play salsa or Brazilian music.
+ - Yeah, it’s pretty hard not to be completely cynical these days.
+ - One of the benefits of playing to small audiences in small clubs for a few years is that you’re allowed to fail.
+ - I’m not all about money, but, like most musicians, I am about survival.
+ - The Heads were the only band on that scene that had a groove.
+ - The wage for most musicians is a modest amount, and that includes me some of the time.
+ - I’m afraid that everything will get homogenized and be the same.
+ - I think sometimes – not always – I write songs that are accessible.
+ - There’s more good music being made now than ever before.
+ - People hear about stuff from their friends or a magazine or a newspaper.
+ - With pop music, the format dictates the form to a big degree. Just think of the pop single. It has endured as a form even in the download age because bands conform to a strict format, and work, often very productively, within the parameters.
+ - I’ve noticed a lot of younger artists have less fear of doing different sorts of things, whether it’s various types of music, or gallery artists moving between video and sculpture and drawing.
+ - I’ve rarely seen video screens used well in a music concert.
+ - I’ve noticed that when I am selling a lot of records, certain things become easier. I’m not talking about getting a table in a restaurant.
+ - London’s tempo is 122.86 beats per minute.
+ - Sometimes I write stuff that strangely predicts what’s going to happen in my life.
+ - I’m concerned that my technical skills have advanced to the point where I can get closer to what I’m aiming for, which is not such a good thing.
+ - When we started, a lot of bands sounded really different from one another.
+ - I knew I wanted to have a doll of myself on the cover. I thought, I wanna see myself as a Ken doll.
+ - I’m very much into making lists and breaking things apart into categories.
+ - Cycling is a joy and faster than many other modes of transport, depending on the time of day. It clears the head.
+ - Always be skeptical about simplicity.
+ - A lot of that worked itself out in the recording.
+ - The two biggest self-deceptions of all are that life has a ’meaning’and each of us is unique.
+ - Sometimes the European and North American public like some things to be exotic and kept at arm’s length. They don’t want sometimes to know that foreign artists are doing something that’s at least as relevant as what’s being done here.
+ - Real beauty knocks you a little bit off kilter.
+ - I don’t care how impossible it seems.
+ - I came to New York to be a fine artist – that was my ambition.
+ - I don’t like begging money from producers.
+ - It’s not music you would use to get a girl into bed. If anything, you’re going to frighten her off.
+ - Television sounded really different than the Ramones sounded really different than us sounded really different than Blondie sounded really different than the Sex Pistols.
+ - Some things, I feel like no, I never could have the depth of experience of their own music and culture – but sometimes if I’m collaborating with somebody, they’re interested in me bringing my own stuff into their thing, and sometimes that works.
+ - I have something to say about the difference between American and European cities, but I forgot what it was. I have it written down at home somewhere.
+ - Yeah, anybody can go in with two turntables and a microphone or a home studio sampler and a little cassette deck or whatever and make records in their bedrooms.
+ - You create a community with music, not just at concerts but by talking about it with your friends.
+ - Suburban houses and tin sheds are often the objects of ridicule.
+ - It seems almost backwards to me that my music seems the more emotional outlet, and the art stuff seems more about ideas.
+ - Having unlimited choices can paralyze you creatively.
+ - When everything is visible and appears to be dumb, that’s when the details take on larger meanings.
+ - I like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.
+ - Science’s job is to map our ignorance.
+ - I’m afraid that reason will triumph and that the world will become a place where anyone who doesn’t fit that will become unnecessary.
+ - From what I’ve heard, Paris did a little bit more prep work as far as making bike lanes and all of that stuff. They really did it properly, which New York is getting to little by little.
+ - I resent the implication that I’m less of a musician and a worse person for not appreciating certain works.
+ - I’m no Lance Armstrong, but I do use a bike to get from place to place in Manhattan, a little bit of Brooklyn.
+ - The voting booth joint is a great leveler; the whole neighborhood – rich, poor, old, young, decrepit and spunky – they all turn out in one day.
+ - I have trouble imagining what I could do that’s beyond the practicality of what I can do.
+ - I try to devote my afternoons to making music in my home studio, but it’s a lot more fun hanging out with musicians and friends, and trying subtly to influence a band than making your own stuff.
+ - You can know or not know how a car runs and still enjoy riding in a car.
+ - Schools are for training people how to listen to other people.
+ - I read the NY Times but I don’t trust all of it.
+ - Most of our lives aren’t that exciting, but the drama is still going on in the small details.
+ - The imminent demise of the large record companies as gatekeepers of the world’s popular music is a good thing, for the most part.
+ - Artists are notoriously snooty and suspicious of anything coming from the business community.
+ - Is giving in to the photographer’s presumably natural impulse to compose and light well sometimes okay and not okay other times?
+ - I don’t think I have grand visions that I will never achieve.
+ - Life tends to be an accumulation of a lot of mundane decisions, which often gets ignored.
+ - I’ve been in beautiful landscapes where one is tempted to whip out a camera and take a picture. I’ve learned to resist that.
+ - Ninety percent of all music is always crap, and when too many people decide they’re going to have guitar bands, then ninety percent of them are going to be crap. It’s just a given law.
+
+144 quotes

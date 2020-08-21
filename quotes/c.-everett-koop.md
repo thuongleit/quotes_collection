@@ -1,0 +1,33 @@
+ - Health care is vital to all of us some of the time, but public health is vital to all of us all of the time.
+ - Drugs don’t work in patients who don’t take them.
+ - Life affords no greater responsibility, no greater privilege, than the raising of the next generation.
+ - Your choice of diet can influence your long term health prospects more than any other action you might take.
+ - The right of smokers to smoke ends where their behavior affects the health and well-being of others.
+ - There are all kinds of things you can do to marry literacy with health.
+ - By the year 2025, 500 million people will die of smoking. Now, that’s a Vietnam War every day for 27 years. That’s the Titanic sinking every 27 minutes for 27 years.
+ - You can’t talk of the dangers of snake poisoning and not mention snakes.
+ - Cigarette smoking is clearly identified as the chief, preventable cause of death in our society.
+ - There are many stressed single parents who may be working two jobs in order to keep the family together.
+ - The best prescription is knowledge.
+ - I can’t remember a time when I didn’t want to be a doctor. The doctors I knew as a very young child must have helped to plant the desire in me, when I was as young as five or six. One homeopathic physician, Dr. Justice Gage Wright, was a great model.
+ - At a time when we are pleading with foreign governments to stop the export of cocaine, it is the height of hypocrisy for the United States to export tobacco.
+ - The baby’s life is never willfully destroyed because the mother’s life is in danger.
+ - Risks I think are the thing that make life important and everything that you and I do is risk vs. benefit. Is there a risk to sending your kid out? Absolutely. Is there a benefit? It exceeds the risk.
+ - If you want to say how can we step into childhood and make it better for them, I would start at the activity level. I’d like to say let your kids go out and play.
+ - When a child shows up for school, and is not physically and mentally ready to learn, he or she never catches up.
+ - A thousand people will stop smoking today. Their funerals will be held sometime in the next three or four days.
+ - There have been some good studies done in California with Hispanic parents where in the course of a year, they have changed their entire nutritional intake for the better. The kid becomes, in a sense, the bridge between the educational process and the home.
+ - All of the western world raises its children uncircumcised and it seems logical that, with the extent of health knowledge in those countries, such a practice must be safe.
+ - The health care industry can play a great role in this by being aware of the fact that these children form perhaps the most neglected group of people in the country, largely because it is hard to find them.
+ - I might be better able to help parents of dying children, but for quite a while I felt less able, too emotionally involved. And from that time on, I could rarely discuss the death of a child without tears welling up into my eyes.
+ - Make your kids go out and play. Kids ought to grow up the way you and I grew up and we grew up fifty years apart or maybe more. But we did the same things. Now who’s out playing in the afternoon? Nobody.
+ - The target audience goes back to conception. That means pre-natal care, safe delivery, post-natal screening, and the ordinary stuff you do in pediatrics.
+ - My experience with the Junior League, when I worked in Philadelphia for four years in reference to children’s things, is that whenever they were asked they responded. They always responded with sincerity, and they did a good job.
+ - If you have a kid who goes to kindergarten and doesn’t know what a circle is, doesn’t know what red and green are, and doesn’t know what right and left are, by the time he learns those things, the rest of the class is far ahead of him.
+ - I’d like to say let your kids go out and play. Then I’d say you’re not going to do that are you? Make your kids go out and play.
+ - The Carnegie Foundation is well aware of the fact that their reports frequently find their way to dusty archives in academic institutions, but occasionally people pick up a segment of a report and act upon it.
+ - The thing that reinforces my belief about that is having worked the last four years with the Safe Kids Campaign on a national basis. I am so amazed at what these little kids do in keeping their parents alerted to what they are there for.
+ - Polls that have been taken by kindergarten, first- and second-grade teachers indicate that 30 percent of the kids have been deprived in some way so that they are physically unable to keep up with the class.
+ - The Carnegie Foundation for the Advancement of Teaching has been in existence for most of this century.
+
+31 quotes

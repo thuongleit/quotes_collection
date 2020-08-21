@@ -1,0 +1,53 @@
+ - Only when the last tree has died and the last river has been poisoned and the last fish has been caught will we realise that we can not eat money.
+ - We do not inherit the earth from our ancestors; we borrow it from our children.
+ - There is no death, only a change of worlds.
+ - Earth does not belong to us; we belong to earth. Take only memories, leave nothing but footprints.
+ - Take nothing but memories, leave nothing but footprints!
+ - Man belongs to the Earth, Earth does not belong to man.
+ - The earth does not belong to man, man belongs to the earth. All things are connected like the blood that unites us all. Man did not weave the web of life, he is merely a strand in it. Whatever he does to the web, he does to himself.
+ - When the Earth is sick, the animals will begin to disappear, when that happens, The Warriors of the Rainbow will come to save them.
+ - Humankind has not woven the web of life. We are but one thread within it. Whatever we do to the web, we do to ourselves. All things are bound together. All things connect.
+ - There is no such place as away.
+ - Humans merely share the Earth. We can only protect the land, not own it.
+ - If all the beasts were gone, men would die from a great loneliness of spirit, for whatever happens to the beasts also happens to the man. All things are connected. Whatever befalls the Earth befalls the sons of the Earth.
+ - We are part of the earth and it is part of us. The perfumes flowers are our sisters; the deer, the horse, the great eagle: these are our brothers. All things are connected like the blood which unites one’s family.
+ - What is man without the beasts? If all the beasts were gone, men would die from great loneliness of spirit.
+ - This We Know. All Things Are Connected.
+ - All things are connected. Whatever befalls the Earth, befalls the children of the Earth.
+ - We are all children of the Great Spirit, we all belong to Mother Earth. Our planet is in great trouble and if we keep carrying old grudges and do not work together, we will all die.
+ - Every part of the earth is sacred to my people.
+ - Contaminate your bed and you will one night suffocate in your own waste.
+ - We are a part of the earth and it is part of us.
+ - This we know, the earth does not belong to man; man belongs to earth. This we know. All things are connected like the blood which unites one family. So hold in your mind the memory on the land as it is when you take it. And, with all your strength, with all your mind, and with all your heart...
+ - The earth is our mother. Whatever befalls the earth befalls the sons of earth. If men spit upon the ground, they spit upon themselves.
+ - To us, the ashes of our ancestors are sacred and their resting place is hallowed ground.
+ - What is there to life if a man cannot hear the lonely cry of the whippoorwill or the arguments of the frogs around the pool at night?
+ - We do not own the freshness of the air or the sparkle of the water. How can you buy them from us?
+ - All creation is one. What we do to one, we do to the entire web of life.
+ - How can you buy or sell the sky, the warmth of the land? The idea is strange to us. If we do not own the freshness of the air and the sparkle of the water, how can you buy them? Every part of the earth is sacred to my people.
+ - Our God, the Great Spirit, seems also to have forsaken us. Your God makes your people wax stronger every day. Soon they will fill all the land.
+ - There is no quiet place in the white man’s cities. No place to hear the unfurling of leaves in spring, or the rustle of an insect’s wings. But perhaps it is because I am a savage and do not understand. The clatter only seems to insult the ears.
+ - Let him be just and deal kindly with my people, for the dead are not powerless. Dead, did I say? There is no death, only change of worlds.
+ - Your God is not our God! Your God loves your people and hates mine! He folds his strong protecting arms lovingly about the paleface and leads him by the hand as a father leads an infant son.
+ - Your religion was written on tablets of stone, ours on our hearts. 8. We are part of the earth and the earth is part of us.
+ - We know that the white man does not understand our ways. One portion of land is the same to him as the next, for he is a stranger who comes in the night and takes from the land whatever he needs. The earth is not his brother, but his enemy, and when he has conquered it, he moves on.
+ - All things are bound together. All things connect.
+ - Our religion is the traditions of our ancestors – the dreams of our old men, given them in solemn hours of the night by the Great Spirit; and the visions of our sachems, and is written in the hearts of our people.
+ - My words are like the stars that never change.
+ - I will not dwell on, nor mourn over, our untimely decay, nor reproach my paleface brothers with hastening it, as we too may have been somewhat to blame.
+ - The water’s murmur is the voice of my father’s father.
+ - The white man’s God cannot love our people or He would protect them. They seem to be orphans who can look nowhere for help. How then can we be brothers?
+ - All things are connected, like the blood that runs in your family “The water’s murmur is the voice of my father’s father.” 1854 The rivers are our brothers. They quench our thirst. They carry our canoes and feed our children. You must give to the rivers the kindness you would give to any brother.
+ - Tribe follows tribe, nations follow nations like the tides of the sea. It is the order of nature, and regret is useless.
+ - The whites, too, shall pass – perhaps sooner than other tribes. Continue to contaminate your own bed, and you might suffocate in your own waste.
+ - The white man’s dead forget the country of their birth when they go to walk among the stars. Our dead never forget this beautiful Earth, for it is the mother of the red man. We are part of the Earth and it is part of us.
+ - The air is precious to the red man, for all things share the same breath-the beast, the tree, the man, they all share the same breath. The white man does not seem to notice the air he breathes. Like a man dying for many days, he is numb to the stench.
+ - The Indian prefers the soft sound of the wind darting over the face of the pond, the smell of the wind itself cleansed by a midday rain, or scented with pinon pine. The air is precious to the red man, for all things are the same breath – the animals, the trees, the man.
+ - Whatever Seattle says, the great chief at Washington can rely upon with as much certainty as he can upon the return of the sun or the seasons.
+ - To harm the earth is to heap contempt on its creator.
+ - When the green hills are covered with talking wires and the wolves no longer sing, what good will the money you paid for our land be then.
+ - All things are connected like the blood which unites one family.
+ - Like a man who has been dying for many days, a man in your city is numb to the stench.
+ - How can your God become our God and renew our prosperity and awaken in us dreams of returning greatness?
+
+51 quotes

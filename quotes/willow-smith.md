@@ -1,0 +1,35 @@
+ - Breathing is meditation; life is a meditation. You have to breathe in order to live, so breathing is how you get in touch with the sacred space of your heart.
+ - If you don’t like me, if you like me; both are equally cool. I send love and positive energy to all those people in their lives. I hope they find where they’re meant to be.
+ - Don’t let haters get me off my grind. Keep my head up, I know I’ll be fine. Keep fighting until I get there. When I’m down and I feel like giving up I whip my hair back and forth.
+ - If I know what’s true in my heart and my soul, then what people say can’t shape that.
+ - I’m not really sick of people whipping their hair. It doesn’t really get old. They’re fans and I love them! It’s just a fun game to play.
+ - Don’t be afraid to be yourself and don’t let anybody tell you that that’s wrong. Because the best thing is you.
+ - I mean, time for me, I can make it go slow or fast, however I please. That’s how I know it doesn’t exist.
+ - I never really get to go to school because I am always on tour or with my father. There is a tutor most of the time, but usually I am working so I never get to do the lessons. The worst thing about maths is all the kids are ahead of me because they go to school.
+ - I get my flow from Daddy, my singing ability from Mommy, the camera stuff from both. That’s just what happens when you hang out with the Smiths.
+ - I want to embrace my full self, as natural as I can be.
+ - If you don’t work hard, then you aren’t going to have the success that you want. But if you work hard and dig in, then you are going to have the success that you want.
+ - When I first got into the entertainment industry, I would always watch Rihanna and all those people, so I was like, ‘Ooh, I have to be this.’ So my mom was like, ‘Just be yourself.’
+ - If I had to change one thing about my life, it would probably be, I wouldn’t be famous. Because when you’re famous it’s so hard.
+ - Comparing yourself to somebody else is like comparing yourself to a bird.
+ - I like to go to places with my high-fashion things where there are a lot of cameras. So I can just go there and be like, ‘Yep, yep, I’m looking so sick.’ But in my regular life, I put on clothes that I can climb trees in.
+ - I like to eat cheese out of a bowl everyday.
+ - Me and Jaden just figured out that our voices sound like chocolate together. As good as chocolate tastes, it sounds that good.
+ - Whipping your hair means not being afraid to be yourself.
+ - Caring less what everybody else thinks, but also caring less and less about what your own mind thinks, because what your own mind thinks, sometimes, is the thing that makes you sad.
+ - I like eating pepperoni. I heat it up in the microwave and then I let it roast and then I eat it with cheese.
+ - I wear anything I feel like. If I want to put on a pair of Converse with a pencil stuck through them, I will.
+ - If you’re not really having fun then there’s no point of really trying.
+ - There’re no novels that I like to read so I write my own novels, and then I read them again, and it’s the best thing.
+ - Famous-ness is awesomeness but some parts of famous-ness can be hard.
+ - I went to school for one year. It was the best experience but the worst experience. The best experience because I was, like, ‘Oh, now I know why kids are so depressed.’ But it was the worst experience because I was depressed.
+ - I have the motto that says, ‘Whatever you see in your closet that you like, pick it and wear it.’ It’s not just your closet, but just your life. Whatever catches your eye. Pick it.
+ - And then you think about what you think, which is very dangerous.
+ - Wow, I did so much for young black girls and girls around the world.
+ - I like the way Billy Idol sings. Mommy turned me on to him.
+ - My style kinda comes from the music I listen to.
+ - As good as chocolate tastes, it sounds that good.
+ - That’s what art is, shocking people. Sometimes shocking yourself.
+ - I can never tell what I’m gonna wear. I kind of just put on whatever feels right. Sometimes that’s Converse and a T-shirt, sometimes it’s Givenchy heels and leather pants.
+
+33 quotes

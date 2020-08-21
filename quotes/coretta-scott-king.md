@@ -1,0 +1,48 @@
+ - The greatness of a community is most accurately measured by the compassionate actions of its members.
+ - Women, if the soul of the nation is to be saved, I believe that you must become its soul.
+ - It doesn’t matter how strong your opinions are. If you don’t use your power for positive change, you are, indeed, part of the problem.
+ - Struggle is a never ending process. Freedom is never really won, you earn it and win it in every generation.
+ - Hate is too great a burden to bear. It injures the hater more than it injures the hated.
+ - Women, in general, are not part of the corruption of the past, so they can give a new kind of leadership, a new image for mankind.
+ - Behind every good man, there’s a good woman reminding you I knew you when you didn’t have nothing.
+ - I’m more determined than ever that my husband’s dream will become a reality.
+ - How many men must die before we can really have a free and true and peaceful society? How long will it take?
+ - The greatest violence is seeing a child go to bed hungry.
+ - If American women would increase their voting turnout by ten percent, I think we would see an end to all of the budget cuts in programs benefiting women and children.
+ - When Good Friday comes, these are the moments in life when we feel there’s no hope. But then, Easter comes.
+ - I am convinced that the women of the world, united without any regard for national or racial dimensions, can become a most powerful force for international peace and brotherhood.
+ - Hate is too great a burden to bear...
+ - Freedom and justice cannot be parceled out in pieces to suit political convenience. I don’t believe you can stand for freedom for one group of people and deny it to others.
+ - Justice is never advanced in the taking of human life.
+ - Love is such a powerful force. It’s there for everyone to embrace-that kind of unconditional love for all of humankind. That is the kind of love that impels people to go into the community and try to change conditions for others, to take risks for what they believe in.
+ - When you are willing to make sacrifices for a great cause, you will never be alone.
+ - As an African American child growing up in the segregated South, I was told, one way or another, almost every day of my life, that I wasn’t as good as a white child.
+ - If a man had nothing that was worth dying for, then he was not fit to live.
+ - Without Coretta Scott King, there would not have been a Martin Luther King, Jr. in the way that we know him.
+ - Violence diminishes our humanity.
+ - An evil deed is not redeemed by an evil deed in retaliation.
+ - Segregation was wrong when it was forced by white people, and I believe it is still wrong when it is requested by black people.
+ - I’m fulfilled in what I do. I never thought that a lot of money or fine clothes – the finer things of life – would make you happy. My concept of happiness is to be filled in a spiritual sense.
+ - Mama and Daddy King represent the best in manhood and womanhood, the best in a marriage, the kind of people we are trying to become.
+ - When the heart is right, the mind and the body will follow.
+ - The process of nonviolence is one that takes time and those of us who’ve suffered, who’ve been persecuted over the years, would like to see things change, you know, overnight.
+ - We must eliminate the gulf of mistrust and ignorance that keeps us from learning from each other.
+ - There is a spirit and a need and a man at the beginning of every great human advance. Every one of these must be right for that particular moment of history, or nothing happens.
+ - I think if people really read Martin Luther King, Jr., then they would begin to understand what he really represented. The philosophy that he developed, of course, he was greatly influenced by Gandhi and Jesus Christ.
+ - Homophobia is like racism and anti-Semitism and other forms of bigotry in that it seeks to dehumanize a large group of people, to deny their humanity, their dignity and personhood.
+ - You cannot believe in peace at home and not believe in international peace. A war with Iraq will increase anti-American sentiment, create more terrorists, and drain as much as 200 billion taxpayer dollars, which should be invested in human development here in America.
+ - It’s going to take an act of Congress to deal with poverty and hunger, not only in this country, but throughout the world. We have the resources but we don’t have the will.
+ - Money is necessary – both to support a family and to advance causes one believes in.
+ - When aroused the American conscience is a powerful force for reform.
+ - I believe all Americans who believe in freedom, tolerance and human rights have a responsibility to oppose bigotry and prejudice based on sexual orientation.
+ - Nelson Mandela sat in a South African prison for 27 years. He was nonviolent. He negotiated his way out of jail. His honor and suffering of 27 years in a South African prison is really ultimately what brought about the freedom of South Africa. That is nonviolence.
+ - Nonviolence is a method that transforms, first of all, the individual once you understand it and embrace it. It begins with you and, if you can, about transforming individuals so that they love unconditionally.
+ - If sexual relations between consenting adults are not part of the right to privacy guaranteed by the Constitution, then American democracy is in trouble.
+ - If you give your life to a cause in which you believe, and if it is right and just, and if your life comes to an end as a result of this, then your life could not have been spent in a more redemptive way. I think that is what my husband has done.
+ - Because Dr. King was human and not divine – although we think he was divine, he was just a man, an extraordinary man, but a man – and he would get depressed from time to time and disappointed about all kinds of things relative to the movement.
+ - The more visible signs of protest are gone, but I think there is a realization that the tactics of the late sixties are not sufficient to meet the challenges of the seventies.
+ - To really know someone is to have loved and hated him in turn.
+ - This was really what I was supposed to be doing, and it was a great blessing to have discovered this, and to be doing what was God’s will for your life.
+ - All we seek is an America where every person is given the chance to productively contribute to his country and where he can receive a fair and equitable share of the wealth that production creates.
+
+46 quotes

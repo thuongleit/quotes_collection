@@ -1,0 +1,502 @@
+ - The only thing constant in life is change.
+ - To eat is a necessity, but to eat intelligently is an art.
+ - Absence diminishes mediocre passions and increases great ones, as the wind extinguishes candles and fans fires.
+ - Hope is the last thing that dies in man.
+ - To listen closely and reply well is the highest perfection we are able to attain in the art of conversation.
+ - Mediocre minds usually dismiss anything which reaches beyond their own understanding.
+ - True love is like ghosts, which everybody talks about and few have seen.
+ - No persons are more frequently wrong, than those who will not admit they are wrong.
+ - We promise according to our hopes and perform according to our fears.
+ - You are never so easily fooled as when trying to fool someone else.
+ - It is easier to be wise for others than for ourselves.
+ - We should not be upset that others hide the truth from us, when we hide it so often from ourselves.
+ - The only security is courage.
+ - As we grow older we grow both more foolish and wiser at the same time.
+ - If we are incapable of finding peace in ourselves, it is pointless to search elsewhere.
+ - We are so accustomed to disguise ourselves to others, that in the end, we become disguised to ourselves.
+ - Nothing is rarer than real goodness.
+ - We rarely think people have good sense unless they agree with us.
+ - We are never so generous as when giving advice.
+ - Nothing is so contagious as example.
+ - There are some people who would never have fallen in love if they had not heard there was such a thing.
+ - Our minds are lazier than our bodies.
+ - Most of our faults are more pardonable than the means we use to conceal them.
+ - The strongest symptom of wisdom in man is his being sensible of his own follies.
+ - We think very few people sensible, except those who are of our opinion.
+ - The duration of our passions is no more dependent on ourselves than the duration of our lives.
+ - It is no tragedy to do ungrateful people favors, but it is unbearable to be indebted to a scoundrel.
+ - Self-interest makes some people blind, and others sharp-sighted.
+ - We forgive so long as we love.
+ - Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.
+ - The sure way to be cheated is to think one’s self more cunning than others.
+ - One cannot answer for his courage when he has never been in danger.
+ - There are bad people who would be less dangerous if they were quite devoid of goodness.
+ - Strength and weakness of mind are misnomers; they are really nothing but the good or bad health of our bodily organs.
+ - The more we love, the nearer we are to hate.
+ - We are very far from always knowing our own wishes.
+ - A well-trained mind has less difficulty in submitting to than in guiding an ill-trained mind.
+ - How can we expect another to keep our secret if we have been unable to keep it ourselves?
+ - Man only blames himself in order that he may be praised.
+ - Why can we remember the tiniest detail that has happened to us, and not remember how many times we have told it to the same person.
+ - The greatest of all gifts is the power to estimate things at their true worth.
+ - Weak people cannot be sincere.
+ - None deserve praise for being good who have not the spirit to be bad: goodness, for the most part, is nothing but indolence or weakness of will.
+ - Sometimes in life situations develop that only the half-crazy can get out of.
+ - Whatever ignominy or disgrace we have incurred, it is almost always in our power to reestablish our reputation.
+ - There is only one kind of love, but there are a thousand imitations.
+ - Most men, like plants, possess hidden qualities which chance discovers.
+ - Hatred is stronger than friendship.
+ - Nature seems at each man’s birth to have marked out the bounds of his virtues and vices, and to have determined how good or how wicked that man shall be capable of being.
+ - We never desire strongly, what we desire rationally.
+ - The old begin to complain of the conduct of the young when they themselves are no longer able to set a bad example.
+ - Women find it far more difficult to overcome their inclination to coquetry than to overcome their love.
+ - It requires greater virtues to support good fortune than bad.
+ - The best way to rise in society is to use all possible means of persuading people that one has already risen in society.
+ - Some weak people are so sensible of their weakness as to be able to make a good use of it.
+ - Perfect Valor is to do, without a witness, all that we could do before the whole world.
+ - When we disclaim praise, it is only showing our desire to be praised a second time.
+ - Humility is the worst form of conceit.
+ - A fashionable woman is always in love – with herself.
+ - How deceitful hope may be, yet she carries us on pleasantly to the end of life.
+ - Narrow minds think nothing right that is above their own capacity.
+ - Sincerity is an openness of heart; we find it in very few people; what we usually see is only an artful dissimulation to win the confidence of others.
+ - Death and the sun are not to be looked at steadily.
+ - The passions are the only orators that always persuade: they are, as it were, a natural art, the rules of which are infallible; and the simplest man with passion is more persuasive than the most eloquent without it.
+ - Weakness of character is the only defect which cannot be amended.
+ - Coquetry is the essential characteristic, and the prevalent humor of women; but they do not all practice it, because the coquetry of some is restrained by fear or by reason.
+ - To achieve greatness one should live as if they will never die.
+ - True eloquence consists in saying all that should be said, and that only.
+ - There are a great many simpletons who know themselves to be so, and who make a very cunning use of their own simplicity.
+ - The principal point of cleverness is to know how to value things just as they deserve.
+ - Luxury and excessive refinement are sure forerunners of the decadence of states, because when all individuals seek their own interests they neglect the public weal.
+ - As one grows older, one becomes wiser and more foolish.
+ - A woman is faithful to her first lover for a long time – unless she happens to take a second.
+ - Misers mistake gold for their good; whereas ’tis only a means of attaining it.
+ - Moderation is represented as a virtue in order to restrain the ambition of great men, and to console those of a meaner condition in their lesser merit and fortune.
+ - He who lives without folly isn’t so wise as he thinks.
+ - What makes lovers never tire of one another is that they talk always about themselves.
+ - We may say of agreeableness, as distinct from beauty, that it is a symmetry whose rules are unknown.
+ - It is a common fault never to be satisfied with our fortune, nor dissatisfied with our understanding.
+ - Jealousy lives upon doubts. It becomes madness or ceases entirely as soon as we pass from doubt to certainty.
+ - Familiarity is a suspension of almost all the laws of civility, which libertinism has introduced into society under the notion of ease.
+ - Those who have the most cunning affect all their lives to condemn cunning; that they may make use of it on some great occasion, and to some great end.
+ - It is the habit of mediocre minds to condemn all that is beyond their grasp.
+ - A man convinced of his own merit will accept misfortune as an honor, for thus can he persuade others, as well as himself, that he is a worthy target for the arrows of fate.
+ - All the passions are nothing else than different degrees of heat and cold of the blood.
+ - One forgives to the degree that one loves.
+ - Love, all agreeable as it is, charms more by the fashion in which it displays itself, than by its own true merit.
+ - All our qualities, whether good or bad, are unstable and ambiguous, and almost all are at the mery of chance.
+ - Sometimes we think we dislike flattery, but it is only the way it is done that we dislike.
+ - The grace of novelty and the length of habit, though so very opposite to one another, yet agree in this, that they both alike keepus from discovering the faults of our friends.
+ - If we did not have pride, we would not complain of it in others.
+ - Passions often produce their contraries: avarice sometimes leads to prodigality, and prodigality to avarice; we are often obstinate through weakness and daring through timidity.
+ - Jealousy is always born with love, but does not die with it. In jealousy there is more of self-love than of love to another.
+ - We only confess our little faults to persuade people that we have no big ones.
+ - Pride, which inspires us with so much envy, is sometimes of use toward the moderating of it too.
+ - Moderation cannot have the credit of combatiug and subduing ambition, they are never found together. Moderation is the languor and indolence of the soul, as ambition is its activity and ardor.
+ - We are never so happy, nor so unhappy, as we suppose ourselves to be.
+ - The accent of one’s birthplace remains in the mind and in the heart as in one’s speech.
+ - Renewed friendships require more care than those that have never been broken.
+ - He that fancies such a sufficiency in himself that he can live without all the world is greatly mistaken; but he that imagines himself so necessary that other people cannot live without him is a great deal more mistaken.
+ - A man’s happiness or unhappiness depends as much on his temperament as on his destiny.
+ - Before we passionately desire a thing, we should examine the happiness of its possessor.
+ - The first lover is kept a long while, when no offer is made of a second.
+ - One thing which makes us find so few people who appear reasonable and agreeable in conversation is, that there is scarcely any one who does not think more of what he is about to say than of answering precisely what is said to him.
+ - Plenty of people want to be pious, but no one yearns to be humble.
+ - To know how to hide one’s ability is great skill.
+ - In the intercourse of life, we please more by our faults than by our good qualities.
+ - Gratitude is like the good faith of traders: it maintains commerce, and we often pay, not because it is just to discharge our debts, but that we may more readily find people to trust us.
+ - Things often offer themselves to our mind in a more finished form in the very first thought, than we might have made them by muchart and study.
+ - There are very few people who are not ashamed of having been in love when they no longer love each other.
+ - Sometimes we lose friends for whose loss our regret is greater than our grief, and others for whom our grief is greater than our regret.
+ - We are inconsolable at being deceived by our enemies and being betrayed by our friends, yet we are often content in be being treated like that by our own selves.
+ - Marriage is the only war in which you sleep with the enemy.
+ - We are more interested in making others believe we are happy than in trying to be happy ourselves.
+ - In the misfortunes of our best friends we always find something not altogether displeasing to us.
+ - Old men delight in giving good advice as a consolation for the fact that they can no longer set bad examples.
+ - It is a wearisome disease to preserve health by too strict a regimen.
+ - Avarice often produces opposite results: there are an infinite number of persons who sacrifice their property to doubtful and distant expectations; others mistake great future advantages for small present interests.
+ - To establish ourselves in the world, we have to do all we can to appear established. To succeed in the world, we do everything we can to appear successful.
+ - If we took as much pains to be what we ought, as we do to deceive others by disguising what we are; we might appear as we are, without being at the trouble of any disguise.
+ - A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.
+ - Old people love to give good advice; it compensates them for their inability to set a bad example.
+ - Youth is a perpetual intoxication; it is a fever of the mind.
+ - Happiness is in the taste, and not in the things themselves; we are happy from possessing what we like, not from possessing what others like.
+ - When love becomes labored we welcome an act of infidelity towards ourselves to free us from fidelity.
+ - True bravery is shown by performing without witness what one might be capable of doing before all the world.
+ - Humility is often only feigned submission which people use to render others submissive. It is a subterfuge of pride which lowers itself in order to rise.
+ - Self-love is more cunning than the most cunning man in the world.
+ - There is no disguise which can hide love for long where it exists, or simulate it where it does not.
+ - Passion makes idiots of the cleverest men, and makes the biggest idiots clever.
+ - We often boast that we are never bored; but yet we are so conceited that we do not perceive how often we bore others.
+ - There are people who in spite of their merit disgust us and others who please us in spite of their faults.
+ - For envy, like lightning, generally strikes at the top Or any point which sticks out from the ordinary level. LUCRETIUS, De Rerum Natura Our envy always outlives the felicity of its object.
+ - The world is full of pots jeering at kettles.
+ - The great interests of man: air and light, the joy of having a body, the voluptuousness of looking.
+ - True friendship destroys envy, and true love destroys coquetterie.
+ - What we take for virtue is often but an assemblage of various ambitions and activities that chance, or our own astuteness, have arranged in a certain manner; and it is not always out of courage or purity that men are brave, and women chaste.
+ - Nothing is so contagious as example; and we never do any great good or evil which does not produce its like.
+ - In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
+ - A work can become modern only if it is first postmodern. Postmodernism thus understood is not modernism at its end but in the nascent state, and this state is constant.
+ - Minds of moderate caliber ordinarily condemn everthing which is beyond their range.
+ - Hypocrisy is the homage vice pays to virtue.
+ - To safeguard one’s health at the cost of too strict a diet is a tiresome illness, indeed.
+ - Humility is often merely feigned submissiveness assumed in order to subject others, an artifice of pride which stoops to conquer, and although pride has a thousand ways of transforming itself it is never so well disguised and able to take people in as when masquerading as humility.
+ - Taste may change, but inclination never.
+ - We have more ability than will power, and it is often an excuse to ourselves that we imagine that things are impossible.
+ - Our own distrust gives a fair pretence for the knavery of other people.
+ - True bravery means doing alone that which one could do if all the world were by.
+ - Our envy always lasts longer than the happiness of those we envy.
+ - There is such a thing as a general revolution which changes the taste of men as it changes the fortunes of the world.
+ - Nothing is so contagious as example; never was there any considerable good or ill done that does not produce its like. We imitate good actions through emulation, and had ones through a malignity in our nature, which shame conceals, and example sets at liberty.
+ - Extreme boredom provides its own antidote.
+ - We often pay our debts not because it is only fair that we should, but to make future loans easier.
+ - Decency is the least of all laws, but yet it is the law which is most strictly observed.
+ - Esteem never makes ingrates.
+ - The heart is forever making the head its fool.
+ - Selfishness is the grand moving principle of nine-tenths of our actions.
+ - However evil men may be they dare not be openly hostile to virtue, and so when they want to attack it they pretend to find it spurious, or impute crimes to it.
+ - The intention of cheating no one lays us open to being cheated ourselves.
+ - What seems to be generosity is often no more than disguised ambition, which overlooks a small interest in order to secure a great one.
+ - Self-love is the love of a man’s own self, and of everything else for his own sake. It makes people idolaters to themselves, and tyrants to all the world besides.
+ - Cunning and treachery proceed from want of capacity.
+ - What makes false reckoning, as regards gratitude, is that the pride of the giver and the receiver cannot agree as to the value of the benefit.
+ - Humility is often only a feigned submissiveness by which men hope to bring other people to submit to them; it is a more calculated sort of pride.
+ - Jealousy is nothing more than a fear of abandonment.
+ - The world more often rewards the appearances of merit than merit itself.
+ - People that are conceited of their own merit take pride in being unfortunate, that themselves and others may think them considerable enough to be the envy and the mark of fortune.
+ - Flattery is a counterfeit money which, but for vanity, would have no circulation.
+ - The secret of pleasing in conversation is not to explain too much everything; to say them half and leave a little for divination is a mark of the good opinion we have of others, and nothing flatters their self-love more.
+ - Love of glory, fear of shame, greed for fortune, the desire to make life agreeable and comfortable, and the wish to depreciate others – all of these are often the causes of the bravery that is spoken so highly of by men.
+ - Honest people will respect us for our merit: the public, for our luck.
+ - Loyalty is in most people only a ruse used by self-interest to attract confidence.
+ - Moderation is an ostentatious proof of our strength of character...
+ - People always complain about their memories, never about their minds.
+ - Our probity is not less at the mercy of fortune than our property.
+ - The wind which snuffs the candle fans the fire.
+ - The clemency of Princes is often but policy to win the affections of the people.
+ - Prudence and love are inconsistent; in proportion as the last increases, the other decreases.
+ - We make promises to the extent that we hope-and keep them to the extent that we fear.
+ - There is many a virtuous woman weary of her trade.
+ - Flattery is a base coin which is current only through our vanity.
+ - Envy is destroyed by true friendship, as coquetry by true love.
+ - The blindness of men is the most dangerous effect of their pride; it seems to nourish and augment it; it deprives them of knowledge of remedies which can solace their miseries and can cure their faults.
+ - Gratitude is a lively sense of benefits to come.
+ - Nature creates ability; luck provides it with opportunity.
+ - People are more slanderous from vanity than from malice.
+ - Vices are ingredients of virtues just as poisons are ingredients of remedies. Prudence mixes and tempers them and uses them effectively against life’s ills.
+ - To know oneself is not necessarily to improve oneself.
+ - In the presence of some people we inevitably depart From ourselves: we are inaccurate, we say things we do not feel, And talk nonsense. When we get home we are conscious that we Have made fools of ourselves. Never go near these people.
+ - It is a mistake to imagine, that the violent passions only, such as ambition and love, can triumph over the rest. Idleness, languid as it is, often masters them all; she influences all our designs and actions, and insensibly consumes and destroys both passions and virtues.
+ - There is a kind of love, the excess of which forbids jealousy.
+ - A good woman is a hidden treasure; who discovers her will do well not to boast about it.
+ - The reason why so few people are agreeable in conversation is that each is thinking more about what he intends to say than others are saying.
+ - For most men the love of justice is only the fear of suffering injustice.
+ - It is impossible to love a second time what we have really ceased to love.
+ - Happiness does not consist in things themselves but in the relish we have of them; and a man has attained it when he enjoys what he loves and desires himself, and not what other people think lovely and desirable.
+ - Truth does less good in the world than its appearances do harm.
+ - Gracefulness is to the body what understanding is to the mind.
+ - Self-love is the greatest of all flatterers.
+ - Men are inconsolable concerning the treachery of their friends or the deceptions of their enemies; and yet they are often very highly satisfied to be both deceived and betrayed by their own selves.
+ - Even the most disinterested love is, after all, but a kind of bargain, in which self-love always proposes to be the gainer one wayor another.
+ - That which occasions so many mistakes in the computations of men, when they expect return for favors, is that the giver’s pride and the receiver’s cannot agree upon the value of the kindness done.
+ - We are eager to believe that others are flawed because we are eager to believe in what we wish for.
+ - Reconciliation with our enemies is simply a desire to better our condition, a weariness of war, or the fear of some unlucky thing from occurring.
+ - The constancy of the wise is only the art of keeping disquietude to one’s self.
+ - We endeavor to make a virtue of the faults we are unwilling to correct.
+ - Philosophy easily triumphs over past and future ills; but present ills triumph over philosophy.
+ - Women know not the whole of their coquetry.
+ - Our good qualities expose us more to hatred and persecution than all the ill we do.
+ - We are nearer loving those who hate us than those who love us more than we wish.
+ - Sometimes there are accidents in our lives the skillful extrication from which demands a little folly.
+ - The generality of friends puts us out of conceit with friendship; just as the generality of religious people puts us out of conceit with religion.
+ - He who refuses praise the first time that it is offered does so because he would hear it a second time.
+ - Few things are needed to make a wise man happy; nothing can make a fool content; that is why most men are miserable.
+ - We arrive at the various stages of life quite as novices.
+ - The reason we bitterly hate those who deceive us is because they think they are cleverer than we are.
+ - As long as we love, we can forgive.
+ - Perseverance is neither praiseworthy nor blameworthy; for it seems to be only the enduring of certain inclinations and opinions which men neither give themselves nor take away from themselves.
+ - People’s personalities, like buildings, have various facades, some pleasant to view, some not.
+ - Only strong natures can really be sweet ones; those that seem sweet are in general only weak, and may easily turn sour.
+ - Every one speaks well of his own heart, but no one dares speak well of his own mind.
+ - We are much harder on people who betray us in small ways than on people who betray others in great ones.
+ - A man seldom finds people unthankful, as long as he remains in a condition of benefiting them further.
+ - There are very few things impossible in themselves; and we do not want means to conquer difficulties so much as application and resolution in the use of means.
+ - There are fine things that are more brilliant when they are unfinished than when finished too much.
+ - The greatest fault of a penetrating wit is to go beyond the mark.
+ - We do not lack strength so much as the will to use it; and very often our imagining that things are impossible is nothing but an excuse of our own contriving, to reconcile ourselves to our own idleness.
+ - The love of new acquaintance comes not so much from being weary of what we had before, or from any satisfaction there is in change, as from the distaste we feel in being too little admired by those that know us too well, and the hope of being more admired by those that know us less.
+ - Our distrust justifies the deceit of others.
+ - Happy people rarely correct their faults; they consider themselves vindicated, since fortune endorses their evil ways.
+ - We are always bored by the very people by whom it is vital not to be bored.
+ - It is harder to hide the feelings we have than to feign the ones we do not have.
+ - What keeps us from abandoning ourselves entirely to one vice, often, is the fact that we have several.
+ - There are a great many men valued in society who have nothing to recommend them but serviceable vices.
+ - Avarice misapprehends itself almost always. There is no passion which more often will miss its aim, nor upon which the present has so much influence to the prejudice of the future.
+ - In order to succeed in the world people do their upmost to appear successful.
+ - It is pointless for a woman to be young unless pretty, or to be pretty unless young.
+ - We may say of agreeableness, as distinct from beauty, that it consists in a symmetry of which we know not the rules, and a secret conformity of the features to each other, as also to the air and complexion of the person.
+ - One honor won is a surety for more.
+ - Silence is the safest course for any man to adopt who distrust himself.
+ - Sometimes we meet a fool with wit, never one with discretion.
+ - Most men expose themselves in battle enough to save their honor, few wish to do so more than sufficiently, or than is necessary to make the design for which they expose themselves succeed.
+ - Self-love increases or diminishes for us the good qualities of our friends, in proportion to the satisfaction we feel with them; and we judge of their merit by the manner in which they act towards us.
+ - Virtues lose themselves in self-interest, as rivers in the sea.
+ - Consolation for unhappiness can often be found in a certain satisfaction we get from looking unhappy.
+ - The only thing that should surprise us is that there are still some things that can surprise us.
+ - The pleasure of love is in loving.
+ - Perfect behavior is born of complete indifference.
+ - Usually we praise only to be praised.
+ - It is as easy to unknowingly deceive yourself as it is to deceive others.
+ - It is as common for tastes to change as it is uncommon for traits of character.
+ - We seldom find people ungrateful so long as it is thought we can serve them.
+ - Spiritual health is no more stable than bodily; and though we may seem unaffected by the passions we are just as liable to be carried away by them as to fall ill when in good health.
+ - As we grow older, we increase in folly – and in wisdom.
+ - To understand matters rightly we should understand their details; and as that knowledge is almost infinite, our knowledge is always superficial and imperfect.
+ - We forget our faults easily when they are known to ourselves alone.
+ - We torment ourselves rather to make it appear that we are happy than to become so.
+ - Those only are despicable who fear to be despised.
+ - The force we use on ourselves, to prevent ourselves from loving, is often more cruel than the severest treatment at the hands of one loved.
+ - We do not praise others, ordinarily, but in order to be praised ourselves.
+ - Lovers, when they are no longer in love, find it very hard to break up.
+ - Moderation is a fear of falling into that envy and contempt which those who grow giddy with their good fortune quite justly draw upon themselves. It is a vain boasting of the greatness of our mind.
+ - The man that thinks he loves his mistress for her own sake is mightily mistaken.
+ - What is called generosity is usually only the vanity of giving; we enjoy the vanity more than the thing given.
+ - Envy is more irreconcilable than hatred.
+ - Ordinary men commonly condemn what is beyond them.
+ - Passion very often makes the wisest men fools, and very often too inspires the greatest fools with wit.
+ - Pride does not wish to owe and vanity does not wish to pay.
+ - In the human heart one generation of passions follows another; from the ashes of one springs the spark of the next.
+ - A man of understanding finds less difficulty in submitting to a wrong-headed fellow, than in attempting to set him right.
+ - The vivacity that augments with years is not far from folly.
+ - Some men are so full of themselves that when they fall in love, they amuse themselves rather with their own passion than with theperson they love.
+ - If it were not for poetry, few men would ever fall in love.
+ - There are various sorts of curiosity; one is from interest, which makes us desire to know that which may be useful to us; and the other, from pride which comes from the wish to know what others are ignorant of.
+ - Too great haste to repay an obligation is a kind of ingratitude.
+ - In every walk of life each man puts on a personality and outward appearance so as to look what he wants to be thought; in fact you might say that society is entirely made up of assumed personalities.
+ - What men call friendship is no more than a partnership, a mutual care of interests, an exchange of favors – in a word, it is a sort of traffic, in which self-love ever proposes to be the gainer.
+ - Interest blinds some people, and enlightens others.
+ - Fortune makes our virtues and vices visible, just as light does the objects of sight.
+ - It’s the height of folly to want to be the only wise one.
+ - Humility is often a false front we employ to gain power over others.
+ - The height of cleverness is to be able to conceal it.
+ - It is as easy to deceive one’s self without perceiving it, as it is difficult to deceive others without their finding out.
+ - Eloquence resides as much in the tone of voice, in the eyes, and in the expression of the face, as in the choice of words.
+ - We would rather speak ill of ourselves than not talk about ourselves at all.
+ - The only good copies are those which make us see the absurdity of bad originals.
+ - How can we be answerable for what we shall want in the future, since we have no clear idea of what we want now?
+ - There are few occasions when we should make a bad bargain by giving up the good on condition that no ill was said of us.
+ - The trust that we put in ourselves makes us feel trust in others.
+ - Moral severity in women is only a dress or paint which they use to set off their beauty.
+ - Virtue would not make such advances if there were not a little vanity to keep it company.
+ - The most brilliant fortunes are often not worth the littleness required to gain them.
+ - One may outwit another, but not all the others.
+ - In love, the quickest is always the best cure.
+ - It is sometimes a point of as much cleverness to know to make good use of advice from others as to be able give good advice to oneself.
+ - Good advice is something a man gives when he is too old to set a bad example.
+ - As it is the characteristic of great wits to say much in few words, so small wits seem to have the gift of speaking much and saying nothing.
+ - We are better pleased to see those on whom we confer benefits than those from whom we receive them.
+ - The most violent passions sometimes leave us at rest, but vanity agitates us constantly.
+ - In infants, levity is a prettiness; in men a shameful defect; but in old age, a monstrous folly.
+ - Love has its name borrowed by a great number of dealings and affairs that are attributed to it – in which it has no greater part than the Doge in what is done at Venice.
+ - A man’s worth has its season, like fruit.
+ - To establish yourself in the world a person must do all they can to appear already established.
+ - The constancy of sages is nothing but the art of locking up their agitation in their hearts.
+ - Great names abase, instead of elevating, those who do not know how to bear them.
+ - The dullness of certain people is sometimes a sufficient security against the attack of an artful man.
+ - For the credit of virtue we must admit that the greatest misfortunes of men are those into which they fall through their crimes.
+ - When we enlarge upon the affection our friends have for us, this is very often not so much out of a sense of gratitude as from a desire to persuade people of our own great worth, that can deserve so much kindness.
+ - Generally speaking, we would make a good bargain by renouncing all the good that people say of us, upon condition they would say no ill.
+ - Unfaithfulness ought to extinguish love, and we should not be jealous when there is reason to be. Only those who give no grounds for jealousy are worthy of it.
+ - The judgments our enemies make about us come nearer to the truth than those we make about ourselves.
+ - We say little, when vanity does not make us speak.
+ - There are few things we should keenly desire if we really knew what we wanted.
+ - Happiness is in the taste, and not in the things.
+ - To praise princes for virtues they do not possess is to insult them without fear of consequences.
+ - It may be said that the vices await us in the journey of life like hosts with whom we must successively lodge; and I doubt whether experience would make us avoid them if we were to travel the same road a second time.
+ - If one judges love according to the greatest part of the effects it produces, it would appear to resemble rather hatred than kindness.
+ - Quarrels would not last long if the fault was only on one side.
+ - There are heroes in evil as well as in good.
+ - We should often feel ashamed of our best actions if the world could see all the motives which produced them.
+ - Nothing prevents one from appearing natural as the desire to appear natural.
+ - The art of using moderate abilities to advantage often brings greater results than actual brilliance.
+ - What we take for virtue is often nothing but an assemblage of different actions, and of different interests, that fortune or our industry knows how to arrange.
+ - We are much mistaken if we think that men are always brave from a principle of valor, or women chaste from a principle of modesty.
+ - No one thinks fortune so blind as those she has been least kind to.
+ - Funeral pomp is more for the vanity of the living than for the honor of the dead.
+ - Conceit causes more conversation than wit.
+ - Some people are like popular songs that you only sing for a short time.
+ - The violence we do to ourselves in order to remain faithful to the one we love is hardly better than an act of infidelity.
+ - Hope, deceitful as it is, carries us through life agreeably enough.
+ - We love much better those who endeavor to imitate us, than those who strive to equal us. For imitation is a sign of esteem, but competition of envy.
+ - Few things are impossible in themselves: application to make them succeed fails us more often than the means.
+ - Indolence, languid as it is, often masters both passions and virtues.
+ - Bravery in simple soldiers is a dangerous trade, to which they have bound themselves to get their livelihood.
+ - Some good qualities are like the senses: Those who are entirely deprived of them can have no notion of them.
+ - Our hopes, often though they deceive us, lead us pleasantly along the path of life.
+ - When a man is in love, he doubts, very often, what he most firmly believes.
+ - Silence is the safest policy if you are unsure of yourself.
+ - Humility is the altar upon which God wishes that we should offer Him His sacrifices.
+ - There are certain people fated to be fools; they not only commit follies by choice, but are even constrained to do so by fortune.
+ - There are several remedies which will cure love, but there are no infallible ones.
+ - Some accidents there are in life that a little folly is necessary to help us out of.
+ - We are more often treacherous through weakness than through calculation.
+ - Not all those who know their minds know their hearts as well.
+ - Some beautiful things are more dazzling when they are still imperfect than when they have been too perfectly crafted.
+ - The violence done us by others is often less painful than that which we do to ourselves.
+ - It is more often from pride than from ignorance that we are so obstinately opposed to current opinions; we find the first places taken, and we do not want to be the last.
+ - Those that have had great passions esteem themselves for the rest of their lives fortunate and unfortunate in being cured of them.
+ - We often do shallow good in order to accomplish evil with impunity.
+ - Eloquence: saying the proper thing and stopping.
+ - Nothing should lessen our satisfaction with ourselves as much as when we notice that we disapprove of something at one time that we approve of at another time.
+ - Sobriety is love of health, or inability to eat much.
+ - The prospect of being pleased tomorrow will never console me for the boredom of today.
+ - High fortune makes both our virtues and vices stand out as objects that are brought clearly to view by the light.
+ - The intellect of the generality of women serves more to fortify their folly than their reason.
+ - Considering how little the beginning or the ceasing to love is in our own power, it is foolish and unreasonable for the lover or his mistress to complain of one another’s inconstancy.
+ - The breeding we give young people is ordinarily but an additional self-love, by which we make them have a better opinion of themselves.
+ - None but great men are capable of having great flaws.
+ - Many people despise wealth, but few know how to give it away.
+ - The name and pretense of virtue is as serviceable to self-interest as are real vices.
+ - It seems that nature, which has so wisely disposed our bodily organs with a view to our happiness, has also bestowed on us pride, to spare us the pain of being aware of our imperfections.
+ - We acknowledge our faults in order to repair by our sincerity the damage they have done us in the eyes of others.
+ - We feel good and ill only in proportion to our self-love.
+ - The better part of one’s life consists of his friendships. ABRAHAM LINCOLN, letter to Joseph Gillespie, July 13, 1849 Friendship is insipid to those who have experienced love.
+ - It is given to few persons to keep this secret well. Those who lay down rules too often break them, and the safest we are able to give is to listen much, to speak little, and to say nothing that that will ever give ground or regret.
+ - Female gossips are generally actuated by active ignorance.
+ - When a man must force himself to be faithful in his love, this is hardly better than unfaithfulness.
+ - Before we set our hearts too much upon anything, let us examine how happy they are, who already possess it.
+ - The desire of appearing clever often prevents our becoming so.
+ - However great the advantages given us by nature, it is not she alone, but fortune with her, which makes heroes.
+ - Time’s chariot-wheels make their carriage-road in the fairest face.
+ - It is far better to be deceived than undeceived by those whom we tenderly love.
+ - If we resist our passions, it is more due to their weakness than our strength.
+ - Men would not live in society long if they were not each others dupes.
+ - The generality of men have, like plants, latent properties, which chance brings to light.
+ - Nothing is more ridiculous in old people that were once good-looking, than to forget that they are not so still.
+ - That man, we may be sure, is a person of true worth, whom those who envy him most are yet forced to praise.
+ - Chance corrects us of many faults that reason would not know how to correct.
+ - We seldom praise anyone in good earnest, except such as admire us.
+ - There is great skill in knowing how to conceal one’s skill.
+ - Our actions are like the terminations of verses, which we rhyme as we please.
+ - We speak little if not egged on by vanity.
+ - In love deceit nearly always goes further than mistrust.
+ - The man whom no one pleases is much more unhappy than the man who pleases no one.
+ - All the passions make us commit faults; love makes us commit the most ridiculous ones.
+ - Self-interest speaks all manner of tongues and plays all manner of parts, even that of disinterestedness.
+ - The ambitious deceive themselves in proposing an end to their ambition; that end, when attained, becomes a means.
+ - We judge so superficially of things, that common words and actions spoke and done in an agreeable manner, with some knowledge of what passes in the world, often succeed beyond the greatest ability.
+ - Fancy sets the value on the gifts of fortune.
+ - Preserving health by too severe a rule is a worrisome malady.
+ - We always get bored with those whom we bore.
+ - In the human heart new passions are forever being born; the overthrow of one almost always means the rise of another.
+ - We should not judge a man’s merits by his great qualities, but by the use he makes of them.
+ - A woman often thinks she regrets the lover, when she only regrets the love.
+ - Men give away nothing so liberally as their advice.
+ - We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years.
+ - The moderation of people in prosperity is the effect of a smooth and composed temper, owing to the calm of their good fortune.
+ - Timidity is a fault for which it is dangerous to reprove persons whom we wish to correct of it.
+ - Philosophy finds it an easy matter to vanquish past and future evils, but the present are commonly too hard for it.
+ - It is more difficult for a man to be faithful to his mistress when he is favored than when he is ill treated by her.
+ - Penetration has an air of divination; it pleases our vanity more than any other quality of the mind.
+ - The less you trust others, the less you will be deceived.
+ - The distempers of the soul have their relapses, as many and as dangerous as those of the body; and what we take for a perfect cureis generally either an abatement of the same disease or the changing of that for another.
+ - Men never desire anything very eagerly which they desire only by the dictates of reason.
+ - A man’s wits are better employed in bearing up under the misfortunes that lie upon him at present than in foreseeing those that may come upon him hereafter.
+ - All men are equally proud. The only difference is that not all take the same methods of showing it.
+ - It is easier for a man to be thought fit for an employment that he has not, than for one he stands already possessed of, and is exercising.
+ - What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received; it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love.
+ - Never give anyone the advice to buy or sell shares, because the most benevolent price of advice can turn out badly.
+ - If we did not flatter ourselves, the flattery of others could never harm us.
+ - It is with an old love as it is with old age a man lives to all the miseries, but is dead to all the pleasures.
+ - Jealousy is bred in doubts. When those doubts change into certainties, then the passion either ceases or turns absolute madness.
+ - Jealousy is in some measure just and reasonable, since it merely aims at keeping something that belongs to us or we think belongsto us, whereas envy is a frenzy that cannot bear anything that belongs to others.
+ - It is easier to know men in general, than men in particular.
+ - We are easily comforted for the misfortunes of our friends, when those misfortunes give us an occasion of expressing our affection and solicitude.
+ - Our enemies come nearer the truth in the opinions they form of us than we do in our opinion of ourselves.
+ - It is not always from valor or from chastity that men are brave, and women chaste.
+ - He is a truly virtuous man who wishes always to be open to the observation of honest men.
+ - We should gain more by letting the world see what we are than by trying to seem what we are not.
+ - Sometimes, occasions occur in life which demand you to be a little foolish in order to skillfully extricate yourself.
+ - It is much better to learn to deal with the ills we have now than to speculate on those that may befall us.
+ - The common foible of women who have been handsome is to forget that they are no longer so.
+ - We should only affect compassion, and carefully avoid having any.
+ - Those who are themselves incapable of great crimes are ever backward to suspect others.
+ - There are few people who are more often in the wrong than those who cannot endure to be so.
+ - Solemnity is a device of the body to hide the faults of the mind.
+ - It is worth nothing to be young without being beautiful, nor to be beautiful without being young.
+ - The simplest man with passion will be more persuasive than the most eloquent without.
+ - A gentleman may love like a lunatic, but not like a beast.
+ - We can be more clever than one, but not more clever than all.
+ - The health of the soul is as precarious as that of the body; for when we seem secure from passions, we are no less in danger of their infection than we are of falling ill when we appear to be well.
+ - To think to be wise alone is a very great folly.
+ - The reason why most women have so little sense of friendship is that this is but a cold and flat passion to those that have felt that of love.
+ - Praise is a more ingenious, concealed, and subtle kind of flattery, that satisfies both the giver and the receiver, though by verydifferent ways. The one accepts it as a reward due to his merit; the other gives it that he may be looked upon as a just and discerning person.
+ - The most ingenious men continually pretend to condemn tricking – but this is often done that they may use it more conveniently themselves, when some great occasion or interest offers itself to them.
+ - A readiness to believe ill of others, before we have duly examined it, is the effect of laziness and pride. We are eager to find aculprit, and loath to give ourselves the trouble of examining the crime.
+ - A man is ridiculous less through the characteristics he has than through those he affects to have.
+ - One kind of happiness is to know exactly at what point to be miserable.
+ - The fame of great men ought to be judged always by their big, fancy names.
+ - In love we often doubt what we most believe.
+ - Being a blockhead is sometimes the best security against being cheated by a man of wit.
+ - There is a kind of elevation which does not depend on fortune; it is a certain air which distinguishes us, and seems to destine us for great things; it is a price which we imperceptibly set upon ourselves.
+ - Hope is the last thing that dies in man; and though it be exceedingly deceitful, yet it is of this good use to us, that while we are traveling through life it conducts us in an easier and more pleasant way to our journey’s end.
+ - It is easier to appear worthy of a position one does not hold, than of the office which one fills.
+ - A certain harmony should be kept between actions and ideas if we want to fully develop the effects they can produce.
+ - Whatever good things people say of us, they tell us nothing new.
+ - There are crimes which become innocent and even glorious through their splendor, number and excess.
+ - If there be a love pure and free from the admixture of our other passions, it is that which lies hidden in the bottom of our heart, and which we know not ourselves.
+ - The qualities we have, make us so ridiculous as those which we affect.
+ - Wisdom is the mind what health is to the body.
+ - There are few good women who do not tire of their role.
+ - Most people judge men by their success or their good fortune.
+ - Only the great can afford to have great defects.
+ - Tastes in young people are changed by natural impetuosity, and in the aged are preserved by habit.
+ - We should scarcely desire things ardently if we were perfectly acquainted with what we desire.
+ - The man who leaves a woman best pleased with herself is the one whom she will soonest wish to see.
+ - We take less pains to be happy, than to appear so.
+ - We should not be much concerned about faults we have the courage to own.
+ - Of all the violent passions, the one that becomes a woman best is love.
+ - Sometimes a fool has talent, but never judgment.
+ - Beautiful coquettes are quacks of love.
+ - There is no praise we have not lavished upon prudence; and yet she cannot assure to us the most trifling event.
+ - Wit sometimes enables us to act rudely with impunity.
+ - What we take for high-mindedness is very often no other than ambition well disguised, that scorns means interests, only to pursuegreater.
+ - A weak mind is the only defect out of our power to mend.
+ - We frequently are troublesome to others, when we think it impossible for us ever to be so.
+ - It is not always for virtue’s sake that women are virtuous.
+ - Preserving the serious health condition is usually painful.
+ - The desire of talking of ourselves, and showing those faults we do not mind having seen, makes up a good part of our sincerity.
+ - The one thing people are the most liberal with, is their advice.
+ - There is no better proof of a man’s being truly good than his desiring to be constantly under the observation of good men.
+ - Jealousy springs more from love of self than from love of another.
+ - That good disposition which boasts of being most tender is often stifled by the least urging of self-interest.
+ - Women’s virtue is frequently nothing but a regard to their own quiet and a tenderness for their reputation.
+ - Gallantry of mind consists in saying flattering things in an agreeable manner.
+ - Pity is often a reflection of our own evils in the ills of others. It is a delicate foresight of the troubles into which we may fall.
+ - We should manage our fortune as we do our health – enjoy it when good, be patient when it is bad, and never apply violent remedies except in an extreme necessity.
+ - Organize one’s values in the order of their worth.
+ - There are no circumstances, however unfortunate, that clever people do not extract some advantage from.
+ - Perfect courage and utter cowardice are two extremes which rarely occur.
+ - Affected simplicity is an elegant imposture.
+ - There are women who never had an intrigue; but there are scarce any who never had but one.
+ - The passions possess a certain injustice and self interest which makes it dangerous to follow them, and in reality we should distrust them even when they appear most trustworthy.
+ - The praise we give to new comers into the world arises from the envy we bear to those who are established.
+ - None but the contemptible are apprehensive of contempt.
+ - If we never flattered ourselves we should have but scant pleasure.
+ - Even women are perfect at the outset.
+ - Jealousy is not love, but self-love.
+ - Idleness and constancy fix the mind to what it finds easy and agreeable. This habit always confines and cramps up our knowledge; and no one has ever taken the trouble to stretch and carry his understanding as far as it could go.
+ - The heart of man ever finds a constant succession of passions, so that the destroying and pulling down of one proves generally tobe nothing else but the production and the setting up of another.
+ - The health of the soul is something we can be no more sure of than that of the body; and though a man may seem far from the passions, yet he is in as much danger of falling into them as one in a perfect state of health of having a fit of sickness.
+ - Nothing ought in reason to mortify our self-satisfaction more that the considering that we condemn at one time what we highly approve and commend at another.
+ - We often in our misfortunes take that for constancy and patience which is only dejection of mind; we suffer without daring to holdup our heads, just as cowards let themselves be knocked on the head because they have not courage to strike back.
+ - Happiness does not consist in things themselves but in the relish we have of them...
+ - Love, like fire, cannot subsist without constant impulse; it ceases to live from the moment it ceases to hope or to fear.
+ - Our aversion to lying is commonly a secret ambition to make what we say considerable, and have every word received with a religious respect.
+ - It takes nearly as much ability to know how to profit by good advice as to know how to act for one’s self.
+ - Thinkers think and doers do. But until the thinkers do and the doers think, progress will be just another word in the already overburdened vocabulary by sense.
+ - The temperament that produces a talent for little things is the opposite of that required for great ones.
+ - The height of ability in the least able consists in knowing how to submit to the good leadership of others.
+
+500 quotes

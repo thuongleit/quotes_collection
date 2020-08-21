@@ -1,0 +1,25 @@
+ - Until the contract is signed, nothing is real.
+ - Whether I’m doing music or I’m walking down the street or I’m in a record store buying a record or I walk into a comic store and I’m buying comics or having a drink with my friends, it’s the same me.
+ - To some people heavy metal is Motorhead and to others it’s Judas Priest.
+ - I just told you I wasn’t a Satanist.
+ - In Japan, they have TV sets in cars right now, where you can punch up traffic routes, weather, everything! You can get Internet access already in cars in Japan, so within the next 2 to 3 years it’s gonna be so crazy!
+ - The Democratic party has gone so far to the left that people just can’t relate to it anymore and the Republican party is trying to go totally to the right.
+ - Well, I’ve been on stage my whole life. Also, when you’re doing music videos, a lot of people don’t understand. They think you just go up there, do the song, and they film the video. You do it like a jillion times before that though. Same thing in the studio.
+ - I’m just saying that at least for the foreseeable future there won’t be any more touring.
+ - We’re doing Circle of Snakes, we open up with Skin Carver and we are throwing in Skull Forest later on.
+ - I wish the Libertarian Party would get more play in the media but they don’t.
+ - Blessing is a curse, seduction and thirst, feeds the hunger that burns inside.
+ - My idea of covers is that you should never cover a song and do it exactly like the artist because everyone’s always going to compare it to the way the original artists did it, and they’re just going to go, ‘Oh I like the original better.’
+ - If you’re working with a producer like Rick Rubin or whatever, you sing each line probably 30 different ways. Each time they’re like, “Can you try it this way, can you try it that way?” That’s each line in the song, for each song.
+ - My view on Democrats is that they’re fascists disguised as liberals, or liberal moderates. You’re not allowed to say anything they don’t agree with. You’re not allowed to do anything.
+ - I know they are going to be doing a box set in Europe of Danzig 5 and 6 and some other stuff.
+ - I think the Democratic Party has picked a lot of the wrong candidates, the kind that Middle America, or people who are more down the middle and more rational, can’t side with. I think that’s been the problem.
+ - But the Danzig unreleased stuff will be either a single or a double CD.
+ - But when you get to a song, not only do you have to do a vocal melody, you have to write words and not be redundant and make some semblance of a story.
+ - You know I take music seriously, right? So I expect journalists to take being a journalist seriously.
+ - So writing a song is much harder than doing a classical piece for me, because in a classical piece, I can just let the mood dictate what’s going to happen.
+ - But unfortunately, I have to say, one out of every 100 interviews I do, I get a real journalist.
+ - Of course, I started really being a comics fan with the underground stuff in the ’70s.
+ - Wars have always started over religion.
+
+23 quotes

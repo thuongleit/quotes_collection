@@ -1,0 +1,31 @@
+ - Family is always first.
+ - Just speak yourself into existence. Whatever you want, speak it. You can see it.
+ - Don’t worry about my life, worry about why you’re worried about my life!
+ - If you want to be in the automotive business, you go to Detroit, and you figure it out. If you want to be in entertainment, go to where it’s at. Go to Hollywood, go to New York.
+ - Having children obviously changes your priorities, but when you start to see life through these innocent eyes and seeing everything for the first time, you appreciate the small things.
+ - I just work – however people feel about it, I mean, at the end of the day, if I’m waiting for accolades, I could be waiting all my life, but I don’t need that stuff to validate me. I just do what makes me happy.
+ - It’s blasphemous, don’t get distracted by these lottery tickets and statues It’s just fake gold and plastic We crying for votes but how many of us is on the board Better yet, when’s the last time you showed up and supported the NAACP Awards?
+ - I am always the first to say that fame and entertainment is one of the best and easiest occupations to ever have, but one must know how to navigate through the matrix or you may find yourself in a very dark hole.
+ - We’re gonna do it like George Foreman. We’re gonna name all of our kids Mariah no matter if they’re boys or girls. Mariah No. 1, Boy Mariah, Man Mariah, Tall Mariah. It’s gonna be a house full of people named Mariah.
+ - Oh yeah, the preacher’s kid has to be the baddest one. If everyone is smoking weed, we’ve got to smoke crack. If you’re throwing rocks, we’ve got to throw bigger rocks.
+ - Saturday morning, you knew what was cool by what was on ‘Soul Train.’
+ - You have to be vigorous. That’s the only way you are going to get it because everybody has dreams and everybody has goals, but the only people who achieve them are the ones that go after it and don’t take no for an answer.
+ - I always try to be optimistic, but not to the point where I’m getting on people’s nerves.
+ - A lot of the girls my age were impressed by silly stuff like money and fame. I wanted to be able to have intellectual and spiritual conversations with someone who was on the same page as me.
+ - You can’t love music without loving the Beatles.
+ - I always say that candy is the perfect studio food – it keeps your energy going.
+ - Trying to save a hater is like trying to teach astrophysics to a wino!
+ - The beautiful thing about acting is that you can just dive into the character, strip yourself of everything, and just get in there and perfect your craft.
+ - To be compared to Will Smith is probably one of the coolest things because that’s who I came up admiring.
+ - I’d love to do a film with Mariah. But it would have to be a comedy. She’s the funniest woman in the world, she just cracks me up all the time.
+ - I’m definitely light-spirited, but I just felt like my music had to have a little more depth.
+ - When you don’t have those types of things, fashion and all that stuff, it helps you find yourself because you don’t have those things to rely on.
+ - Art is supposed to spark conversation and make people think.
+ - I’m a musician. I play instruments. I dabble in the hip-hop field. That doesn’t take vocal ability necessarily.
+ - In the hip-hop community, it’s about how real are you, or how strong can you be, and really my music just reflects me. If you can accept me, then you can accept my music.
+ - I am a hopeless romantic, and so is my wife.
+ - I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.
+ - It’s fun having songs about parties and gigolos, but I really wanted to use my music as a form of art. Art is supposed to spark conversation and make people think, and I wanted to do that with this song.
+ - Real men change diapers!
+
+29 quotes

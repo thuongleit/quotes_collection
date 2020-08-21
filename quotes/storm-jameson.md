@@ -1,0 +1,66 @@
+ - The only way to live is to accept each minute as an unrepeatable miracle, which is exactly what it is: a miracle and unrepeatable.
+ - There is only one world; the world pressing against you at this minute. There is only one minute in which you are alive; this minute here and now. The only way to live is by accepting each minute as an unrepeatable miracle.
+ - Lord, if there is a heartache Vienna cannot cure I hope never to feel it. I came home cured of everything except Vienna.
+ - I am never happier than when I am alone in a foreign city; it is as if I had become invisible.
+ - Happiness comes of the capacity to feel deeply, to enjoy simply, to think freely, to risk life, to be needed.
+ - The older I grow the more sharply I mistrust words. So few of them have any meaning left. It is impossible to write one sentence in which every word has the bareness and hardness of bones, the reality of the skeleton.
+ - Language is memory and metaphor.
+ - For what I have received may the Lord make me truly thankful. And more truly for what I have not received.
+ - Sadistic literature is not only inhumane. It is anti-human.
+ - The hunger of the spirit for eternity – as fierce as a starving man’s for bread – is much less a craving to go on living than a craving for redemption. Oh, and a protest against absurdity.
+ - There is only one world the world pressing against you this minute.
+ - Failures to love are irremediable and irredeemable.
+ - Great advertising is the expression of deep emotional sincerity.
+ - Writers sometimes talk as though they were the only friends of civilization. This is their conceit. But they have special powers to serve – or to corrupt – civilization, and are obliged to use them.
+ - Hope is a talent like any other.
+ - Very rare, the intelligence of the heart. The intelligence of the whimsical brain is less rare, less attaching, sometimes tedious.
+ - Speaking the truth, once you have started it, is too exhilarating to draw back.
+ - Mere human beings cant afford to be fanatical about anything. Not even about justice or loyalty. The fanatic for justice ends by murdering a million helpless people to clear a space for his law-courts. If we are to survive on this planet, there must be compromises.
+ - One of the uncovenanted benefits of living for a long time is that, having so many more dead than living friends, death can appear as a step backwards into the joyous past...
+ - An animal is not cruel; it lives wholly in the instant leap on its prey, in the present taste of marrow or blood. Cruelty begins with the memory, and the pleasures of the memory are impure; they draw their strength along levels where no sun has reached.
+ - All pornography is to a degree sadistic – inevitably.
+ - Surprise will be my last emotion, not fear.
+ - She did not so much cook as assassinate food.
+ - Could anything be absurder than a man? The animal who knows everything about himself – except why he was born and the meaning of his unique existence.
+ - Nothing lasts. Not even a great sorrow.
+ - The least stupid question a man asks in his lifetime is not: Is there a God and is He a god or a devil? But: Brother, why are you killing me?
+ - If you think with enough energy about a hoped-for event, it will in the end happen. Not because you willed it. Because it was all the time in your nature.
+ - To reject censorship after studying the risks involved is very well. To reject it ex cathedra, in the tones of Calvin pronouncing a dogma, eyes and mind closed to the possible consequences, the even marginally possible, is to make things too comfortable for oneself.
+ - Think of all the really successful men and women you know. Do you know a single one who didn’t learn very young the trick of calling attention to himself in the right quarters?
+ - The critic’s hankering to be law-giver rather than servant of literature is irrepressible.
+ - A joke is a joke or the image of a truth...
+ - If the novel is dying, I see no chance that dismembering it will revive it.
+ - War, for any cause, is inexcusable. There is nothing which excuses us for the beastly ingenuity of our wars. Only fools, only the diseased, think that we are served by killing the strong young men with machines.
+ - The strangest thing about life is not its frightful cruelty, but that it can be gentle.
+ - My mind is not suited to go much into company.
+ - Critics have been amusing themselves for a long time by auscultating fiction for signs of heart failure.
+ - Perhaps this is in the end what most marriages are – gentleness, memory, and habit.
+ - There is a stage in any misery when the victim begins to find a deep satisfaction in it.
+ - A nation has honor precisely as it has fleas – on this or that body. The statesman who talks of honor – unless he means something else, quite different – is a rogue...
+ - Only one person in a thousand knows the trick of really living in the present.
+ - A politician is forced to make a habit of noble phrases and optimistic lies. In the end they infect himself.
+ - Language is one of the thin walls humanity has built up over centuries against its own bestial and destructive impulses...
+ - Pornography is essentially reductive, an exercise in the nothing-but mode, a depersonalizing of the human beings involved, a showing-up of human lust as nothing but an affair of the genitals.
+ - The gesture with which one generation guards the next is the movement, and the only time we see it clearly, of life itself.
+ - A minor symptom of wars is the cancerous growth of committees.
+ - The past is able to close round certain moments, as if they were seeds, and deliver them again fresh and living in the present.
+ - Nationalism will keep its venom until we succeed in creating an image of the nations of the whole world as so many provinces.
+ - The impossible talked of is less impossible from the moment words are laid to it.
+ - In France, even heresy rapidly hardens into dogma.
+ - The writer – more especially the novelist – who has not, at one moment or another, considered his publisher unworthy of him, has still to be conceived.
+ - Any marriage worth the name is no better than a series of beginnings – many of them abortive.
+ - From so much of this seriously-intended pornography there rises, even when it is lewdly or boisterously comic, the acrid smell, unmistakable, of self-dislike.
+ - No one asks public men to be strictly moral, but they must seem to be well-behaved.
+ - Is it really beyond our wits to devise some form of censorship which would trap only the crudely sadistic?
+ - If we are to survive on this planet, there must be compromises.
+ - Novelists who treat violence and cruelty as something to be exploited for their effect, or to enjoy the pleasure of an evacuation, are carriers of a singularly unpleasant disease.
+ - You can’t argue with a raging want. You can, but it is useless.
+ - The young are so much more vulnerable than the old – the stuff is still warm and malleable, it takes impressions.
+ - In Europe, war is a disease which has been in the family for generations: no one is surprised when it makes another leap. Even the patient only attends to it with part of his mind.
+ - No form of art repeats or imitates successfully all that can be said by another; the writer conveys his experience of life along a channel of communication closed to painter, mathematician, musician, film-maker.
+ - There is as much vanity in self-scourgings as in self-justification.
+ - Not literature alone, but society itself is wormed and rotten when language ceases to be respected not merely by advertisers and politicians, but by persons of learning and authority.
+ - I do not think about absent persons as often or with such intense longing as I think of places. They lie one below the other in my mind...
+ - Writing was a chimney for my blazing ambitions.
+
+64 quotes

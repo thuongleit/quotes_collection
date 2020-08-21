@@ -1,0 +1,67 @@
+ - I don’t control life, but I can control how i react to it.
+ - Music is therapy. Music moves people. It connects people in ways that no other medium can. It pulls heart strings. It acts as medicine.
+ - One man’s trash that’s another man’s come up.
+ - Expectations are resentments waiting to happen.
+ - If I can be an example of getting sober, then I can be an example for starting over.
+ - I write to the beat and let life play the guitar strings.
+ - Whatever God you believe in, we come from the same one.
+ - A life lived for art, is never a life wasted.
+ - We sell our dreams and our potential to escape through that buzz.
+ - We become so numb to what we’re saying.
+ - I find that when I put my spiritual life first, the rest of my life is easy. When I put my career first, that’s when I have problems.
+ - We are what we wear, we wear what we are.
+ - Strip away the fear, underneath it’s all the same love.
+ - Just because you miss someone doesn’t mean you need them back in your life. Missing is just a part of moving on.
+ - God loves all his children, somehow we’ve forgotten, but we paraphrase a book written thirty-five hundred years ago.
+ - A world so hateful some would rather die than be who they are.
+ - And weed’s not a drug – that’s denial.
+ - Michael Jordan was a cultural icon that everybody on the playground wanted to be. The Bulls dynasty was a huge part of my childhood and it was the peak of my basketball interest as a kid.
+ - The moment is now and we cant get it back from the grave.
+ - I’d always thought that if I could get sober and stay sober, I would be able to have a career making music. My drug and alcohol addiction was the one thing holding me back. I had finally gotten the tools to stay sober, and it was just a matter of writing the songs.
+ - Vote Love means vote equality. It means vote change. It means vote whats right for humanity.
+ - My relationship with God is as strong as the time and energy I put into connecting with God.
+ - I can write for weeks or months sometimes and edit it down to a song. I feel like it’s a piece of music that will hopefully stand the test of time and hopefully capture a moment in history if I’m doing it correctly and honestly.
+ - When I write, I don’t have any expectation of what kind of song it will become or who it might reach.
+ - I want to make music that I like; not something that I have to make because I think it’s going to sell.
+ - I’m as honest as I can be.
+ - I don’t write a great song every day. I don’t write a great song every couple weeks. It comes in such random times.
+ - The skyline is etched in my veins. You can never put that out, no matter how hard it rains.
+ - It’s been so long since I’ve really truly felt what it’s like to live life without substances to help. Massive struggle that’s natural to one’s health, but with addiction in my blood I play the cards I was dealt.
+ - You can only watch injustice go on for so long until you’re compelled to say something. To speak out against it.
+ - Hip-hop was started as a very egocentric, testosterone, machismo-driven art form. The way that people are trying to take away that masculinity that is a such an intrinsical part of hip-hop music.
+ - For me, being transparent about every aspect of my life is what makes my music relatable and how I’m able to be an individual amongst the mass amounts of other artists.
+ - Live tonight, cuz you can’t take it with ya.
+ - I learned from my teachers but became through my music.
+ - You need to get outside of your comfort zone to write songs that are interesting, songs that are compelling, songs that are different from what other people are writing.
+ - I shop at thrift shops probably five times a week.
+ - Gay rights are human rights, there is no separation.
+ - I wanted to get clean. I knew that my highest potential, the place that I was most spiritual, the place that I was the most rich in terms of my life, and my livelihood, and my art and my creativity, was when I was sober.
+ - Us as rappers underestimate the power and effects that we have on these kids.
+ - Drug culture is extremely prevalent and probably most people know somebody whose life has been affected by drugs, if it’s not their own or in their own family, they have friends. It’s a never-ending process.
+ - I put myself in the place of the listener when editing my writing. The last thing that I want to do is be preached at and told who to be or what to think when listening to an artist. However, I do want to be inspired. There’s a fine line.
+ - The one thing I will never do is buy a shirt because of its name, especially when it’s $600 for that shirt. To me, that’s ridiculous. It’s just a shirt; it’s not worth the money.
+ - I played baseball up until my freshman year of high school. That was my main sport. I played third base.
+ - It’s just way more fun making art, growing, grinding for a fan base, and traveling the world with a friend.
+ - Sampling is kind of prehistoric, given the technology and the textures you can create.
+ - This moon man right here stands for a lot more. This is the most important record out of all of them. Gay rights are human rights, there is no separation.
+ - I definitely use ‘smiling while rapping’ as a tool in the booth. I want to have fun while recording.
+ - Bullying is a national epidemic.
+ - I’m not more or less conscious than any other rapper out there.
+ - I think what’s wrong with the fashion world, particularly men’s fashion, is the lack of creativity behind it.
+ - I just want to give the people 100% of myself as an artist.
+ - Thrift shopping is really just an extension of me being that same kid and going into a place that’s completely unconventional that has really endless possibilities in terms of outfits that you can put together and really just expressing yourself.
+ - I think that there will always be artists out there who think they need to sign a major label deal in order to be successful. And that machine is what is going to work for them – there’s tons of examples of pop stars who need that machine.
+ - Consciousness rap – a term that I don’t think exactly exists but gets thrown around a lot – is not exactly popular.
+ - I buy whatever I see, but I tend to not spend money just to spend it.
+ - I’m a very conceptual writer.
+ - You have major labels that are willing to take unconventional approaches because the old model is crumbling in front of us.
+ - I think that civil rights issues take a lot of time to develop.
+ - If I’m using drugs and alcohol, it means that I’ve given up on my fullest potential.
+ - I was always the type of person, and still am the type of person, that I cannot be creative and use substances. So from a very early age I knew that if I wanted to make music, successfully, in any capacity, I was going to have to get sober.
+ - The fame and the money and all that stuff that comes along with it is all great, but that’s not the sole purpose of why I make music.
+ - I like to be as diverse as possible. I think the humorous side and the serious side are both elements of my personality. It’s what makes me who I am and if I was to neglect either one of those sides and just focus on one of them, it wouldn’t be the full spectrum of my personality.
+ - Reading a piece of poetry with no beat in front of 20 people is way more challenging than rocking for 10,000 people.
+ - I think music should be experienced by people all ages.
+ - My partner has to have good sized bones.
+
+65 quotes

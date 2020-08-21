@@ -1,0 +1,42 @@
+ - Thought is the wind, knowledge the sail, and mankind the vessel.
+ - The greatest truths are the simplest, and so are the greatest men.
+ - Some people carry their hearts in their heads; very many carry their heads in their hearts. The difficulty is to keep them apart, yet both actively working together.
+ - To Adam Paradise was home. To the good among his descendants home is paradise.
+ - Few persons have courage enough to appear as good as they really are.
+ - Man is a mixed being, made up of a spiritual soul and of a fleshly body; the angels are pure spirits, herein nearer to God, only that they are created and finite in all respects, free from decay, free from the power of death, whereas God is infinite and uncreated.
+ - Crimes sometimes shock us too much; vices almost always too little.
+ - Reading is to the mind what exercise is to the body. It is wholesome and bracing for the mind to have its faculties kept of the stretch.
+ - Happy the boy whose mother is tired of talking nonsense to him before he is old enough to know the sense of it.
+ - The intellect of the wise is like glass; it admits the light of heaven and reflects it.
+ - A Christian is God Almighty’s gentleman.
+ - Never put much confidence in such as put no confidence in others. A man prone to suspect evil is mostly looking in his neighbor for what he sees in himself. As to the pure all things are pure, even so to the impure all things are impure.
+ - Nothing good bursts forth all at once. The lightning may dart out of a black cloud; but the day sends his bright heralds before him, to prepare the world for his coming.
+ - Every Irishman, the saying goes, has a potato in his head.
+ - Better far off to leave half the ruins and nine-tenths of the churches unseen and to see well the rest; to see them not once, but again and often again; to watch them, to learn them, to live with them, to love them, till they have become a part of life and life’s recollections.
+ - Pity is like eating mustard without beef.
+ - Nothing is farther than earth from heaven; nothing is nearer than heaven to earth.
+ - Love, it has been said, flows downward. The love of parents for their children has always been far more powerful than that of children for their parents; and who among the sons of men ever loved God with a thousandth part of the love which God has manifested to us?
+ - Truth, when witty, is the wittiest of all things.
+ - What hypocrites we seem to be whenever we talk of ourselves! Our words sound so humble, while our hearts are so proud.
+ - Many are ambitious of saying grand things, that is, of being grandiloquent.
+ - It is with flowers as with moral qualities; the bright are sometimes poisonous; but, I believe, never the sweet.
+ - A man prone to suspect evil is mostly looking in his neighbor for what he sees in himself.
+ - Never put much confidence in such as put no confidence in others.
+ - Friendship closes its eye rather than see the moon eclipsed; while malice denies that it is ever at the full.
+ - The ancients dreaded death: the Christian can only fear dying.
+ - A statesman, we are told, should follow public opinion. Doubtless, as a coachman follows his horses; having firm hold on the reins and guiding them.
+ - Examples would indeed be excellent things were not people so modest that none will set, and so vain that none will follow them.
+ - Since the generality of persons act from impulse, much more than from principle, men are neither so good nor so bad as we are apt to think them.
+ - The power of faith will often shine forth the most when the character is naturally weak.
+ - What a person praises is perhaps a surer standard, even than what he condemns, of his own character, information and abilities.
+ - Man without religion is the creature of circumstances.
+ - The question is not whether a doctrine is beautiful but whether it is true. When we wish to go to a place, we do not ask whether the road leads through a pretty country, but whether it is the right road.
+ - Only when the voice of duty is silent, or when it has already spoken, may we allowably think of the consequences of a particular action.
+ - The virtue of paganism was strength; the virtue of Christianity is obedience.
+ - Friendship is love without its flowers or veil.
+ - A mother should give her children a superabundance of enthusiasm; that after they have lost all they are sure to lose on mixing with the world, enough may still remain to prompt fated support them through great actions.
+ - It is a proof of our natural bias to evil, that gain is slower and harder than loss in all things good; but in all things bad getting is quicker and easier than getting rid of.
+ - It is well for us that we are born babies in intellect. Could we understand half what mothers say and do to their infants, we should be filled with a conceit of our own importance, which would render us insupportable through life.
+ - There is no being eloquent for atheism. In that exhausted receiver the mind cannot use its wings, – the clearest proof that it is out of its element.
+
+40 quotes

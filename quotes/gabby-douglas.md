@@ -1,0 +1,46 @@
+ - Never quit. Never give up.
+ - Hard days are the best because that’s when champions are made.
+ - The hard work definitely paid off and hard work always does.
+ - If we set our minds, we can achieve anything.
+ - Don’t be afraid to speak up for yourself. Keep fighting for your dreams!
+ - Let all that I am praise the LORD; may I never forget the good things he does for me.
+ - Don’t be shy. Go for it and ask your crush out.
+ - If you push through the hard days you can get through anything.
+ - Never give up and always keep fighting, because though times may be tough, the sacrifices do pay off, so just keep pushing towards your dream and just love it at the same time and enjoy it.
+ - My message is to never quit, never give up. When you have a little trouble here and there, just keep fighting. In the end, it will pay off.
+ - Sacrifices are not in vain. At the end, everything will pay off.
+ - I accomplished something big and that’s a memory I will never forget.
+ - You know, God has a plan for me, and I’m going to follow in his footsteps and just rejoice and be happy.
+ - I’ve learned how to stay humble. I don’t want to get in over my head because when you do that it takes you off your game.
+ - Believe, don’t fear, believe.
+ - I want to do all roles. The skys the limit.
+ - It’s kind of a win-win situation. The glory goes up to Him and the blessings fall down on me.
+ - I wanted to tell my story and where I came from and my background, because it was not easy.
+ - You just have to be yourself and go full with confidence and be courageous!
+ - The most important thing is to believe in yourself and know that you can do it.
+ - I would love to be a role model.
+ - I kind of do think of myself as a superhero and just flying high, and doing these crazy flips.
+ - I just want to inspire all those people who gave up and said ‘I quit,’ Never give up!
+ - Gold medals are made out of sweat, blood and tears and effort in the gym every day.
+ - Always be courageous and strong, and don’t fear.
+ - My mom says I’m a fighter, a fierce competitor, and I think I am, too.
+ - I just want to continue with gymnastics because I’m still young and fresh. I think can get some more titles under my belt.
+ - I wear makeup pretty much every day. For training, I usually do a lighter base, a lighter blush and I used the mascara and a little bit of the lip gloss.
+ - For me going down in history being the first black American to win the gold, I think more colored people are going to start coming to the gymnastics world and say ‘okay, anything is possible. If Gabby did it, then I can do it too.’
+ - Everyone was telling me you have this great potential and you can be on top. I didn’t believe that, but everyone was just telling me to believe in myself. I did and I’m kind of up on top and it’s amazing.
+ - It’s definitely important to have your mom and family there to back you up and cheering from the stands.
+ - I had to face a lot coming through this journey, a lot of sacrifices, difficulties, challenges, and injuries.
+ - I googled ‘Gabby Douglas,’ and all these things popped up like ‘Gabby Douglas makes history!’ And ‘She’s the champion!’
+ - You need your mom and dad to protect you. It means they love you so much. It was awesome she was backing me up and defending me.
+ - The one snack I really love is YoCrunch yogurt. It’s like an apple pie in a cup! You have your apples on the bottom, your yogurt in the middle, and piecrust crumbs on top.
+ - Nothing is going to change. I’m going to wear my hair like this during beam and bar finals. You might as well stop talking about it.
+ - It’s very tough for me to focus. I’m like: ‘Look, something shiny! No, focus. Oh, there goes a butterfly!’
+ - Sometimes I like to watch videos of myself and see how confident I was.
+ - My mom used to tell me when I was little, ‘When it rains, it’s God’s manifestation – a big day’s waiting to happen.’
+ - I’m not gonna lie, I love Usain Bolt and Serena Williams. What I love about Serena is that she just gets on the floor and she dominates. She handles her business very well, I respect that.
+ - I’ve been on a tweeting mission.
+ - I like squirrels. Theyre so adventurous.
+ - I used to have this lucky rock and I used to always have to rub it three times before I competed.
+ - I think I would go for a Michael Phelps kind of guy.
+
+44 quotes

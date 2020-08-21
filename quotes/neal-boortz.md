@@ -1,0 +1,60 @@
+ - Luck is opportunity met by preparation – and to be prepared or unprepared is a personal choice.
+ - Those who would rule with an iron fist always fear the free expression of opinions by those they would suppress.
+ - No freedom is secure if your property rights are not secure.
+ - Yeah, I’m insensitive. So is life. DEAL with it.
+ - Our current tax code is one that was designed by and for the benefit of politicians and lobbyists. It punishes achievement and rewards laziness. It punishes the voting blocks unimportant to politicians, and rewards voting blocks who keep them in office.
+ - Racism is a belief in the inherent superiority of one race over another.
+ - Greed: A word commonly used by liberals, low achievers, anti-capitalists and society’s losers to denigrate, shame and discredit those who have acquired superior job skills and decision-making capabilities and who, through the application of those, a job.
+ - No wonder politicians love government schools. Where do you think the dumb masses come from that can be so easily led and manipulated?
+ - There are people in Congress who aren’t very bright. In fact, some of them are just plain brain-dead.
+ - Lynch mobs are democracies.
+ - One of the most crucial but hardest things to do as part of turning your life around is to get rid of all the negative people around you and replace them with people who encourage you instead.
+ - Why is it when times get rough only the people have to look for ways to cut back? Why is this always just absolutely impossible for government?
+ - If it is wrong for you to take money from someone else who earned it, to take their money by force for your own needs, then it is certainly just as wrong for you to demand that the government step forward and do this dirty work for you.
+ - If you walk through life in a fighting pose with your fists balled up and ready to strike, someone, someday, somewhere, is going to want to test your mettle.
+ - If you support the war on drugs in its present form, then you’re only paying lip-service to the defense of freedom, and you don’t really grasp the concept of the sovereign individual human being.
+ - You have to ask yourself, ‘Who owns me? Do I own myself or am I just another piece of government property?’
+ - Religion is all-too-often a refuge for scoundrels.
+ - How many Catholic schools do you think teach the students to question the authority of the Pope? Do you believe Christian schools teach students to question or challenge the authority of Jesus Christ? Do military schools teach the cadets to challenge the authority.
+ - Screaming racism is the last refuge of leftist intellectuals who’ve completely lost their mojo.
+ - What sort of a brain-dead idiot does it take to actually believe that gun laws will prevent criminals from obtaining and carrying guns?
+ - The principal villain in rising health care costs is the government. Not pharmaceutical companies, not doctors, but government.
+ - Absolutely no bedwetting liberals or race warlords were harmed or mistreated in the creation of this web page – though the temptation was certainly very tough to resist.
+ - THE most widespread form of child abuse in the United States is parents sending children to the government to be educated.
+ - Ladies and Gentlemen, Hillary Clinton is a crook.
+ - Government does not do ANYthing as well as the private sector does, and that includes educating your children.
+ - Politicians don’t like empowered individuals.
+ - The main purpose of Social Security is to redistribute wealth, to make an increasingly large number of Americans dependent on government for their basic needs in their retirement years.
+ - There is nothing quite so depressing as waking up to face a day when you know that you are going to have to deal with a government office or bureaucrat.
+ - I was your quintessential nerd in high school.
+ - Big-government liberals don’t like people with a sense of independence because independent people don’t need big government.
+ - Where do politicians come from? Why, they come from Uranus!
+ - I don’t believe in atheists.
+ - If there were any people safe to criticize, they’d be politicians and child molesters, doncha think?
+ - The federal government should be less important in our lives, not more.
+ - If the Liberal Left can create the common perception that success and failure are simple matters of ‘fortune’ or ‘luck,’ then it is easy to promote and justify their various income redistribution schemes.
+ - Many unions have contracts with employers that are based on a multiple of the prevailing minimum wage. If the minimum wage goes up, union salaries go up by a similar percentage.
+ - If government were a plant, it would be kudzu.
+ - I’m an entertainer. Not a journalist or spokesman for anybody. Truth is, a lot of my listeners absolutely hate what I have to say.
+ - I would SERIOUSLY consider moving to Texas if it would secede from the union and re-form as The Republic of Texas. It has that power.
+ - Politicians learned hundreds of years ago that people who had little material wealth were incredibly jealous of those who had more than they did. This deep-seated envy was ripe for exploitation – and the exploitation has been running rampant for generations.
+ - The single most prevalent form of child abuse in this country is the act of sending a child to a government school. We worry incessantly about the separation of church and state. We would do well to devote half as much attention to the separation of government and education.
+ - Government schools will teach children that government is wonderful.
+ - Is there anything more dangerous to the cause of liberty than a politician fixated on re-election?
+ - The principal purpose of the Democratic Party is to use the force of government to take property away from the people who earn it and give it to people who do not.
+ - Usually, I take a hike for a while after submitting a column to Townhall. Too much of my insensitivity can cause emotional problems among proggies, and I am, after all, a compassionate man.
+ - I can’t think of anything that would do more toward putting us back on the road to liberty and personal responsibility than for the average American, and for the news media, to come to the understanding that we are not a democracy, nor were we supposed to be.
+ - The House of Representatives was not designed to sit idly by and rubberstamp every piece of legislation sent their way by the Senate, especially legislation passed on a straight party line vote under the spurious policy of reconciliation.
+ - The situation in this country is like a dog with worms. You bring the dog to the vet to be dewormed, but the vet is Dr. Obama, and he says you can’t get the dog dewormed because the worms have a vote. And that’s the problem, folks: the worms have a vote.
+ - If I’m tapping anything, it’s the frustration of people who have something to say at work or home or in some social setting and just can’t do it. I do it for them. I don’t take prisoners.
+ - The majority of Americans get their news and information about what is going on with their government from entities that are licensed by and subject to punishment at the hands of that very government.
+ - Whenever somebody has an idea for a business and experiences quite a bit of success, you can naturally expect the government to step in and screw it up.
+ - Isn’t it somewhat remarkable that we can go back a a few hundred years and find no shortage of quotations from our founding fathers warning us against the dangers of democracy, yet today teachers and politicians use the word as if it were an offering of gold.
+ - Most Americans don’t know enough about basic economics to fill out one fortune cookie.
+ - Politicians are frightened to death of people who actually believe in liberty.
+ - There is no company – no corporation on earth that engages in accounting fraud to the extent the Imperial Federal Government of the United Sates does. Not many congressmen are willing to come forward with the details.
+ - Tax cuts are temporary, tax increases are permanent.
+ - The Tea Partiers don’t want all regulations eliminated. They just want laws that can be understood and regulations that aren’t going to destroy businesses, or leave deserving veterans without a source for a mortgage loan.
+ - American citizens were targeted and nothing is going to be done about it.
+
+58 quotes

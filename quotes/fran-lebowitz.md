@@ -1,0 +1,295 @@
+ - Think before you speak. Read before you think.
+ - Great people talk about ideas, average people talk about things, and small people talk about wine.
+ - You’re only as good as your last haircut.
+ - I’m very lazy, I hate to work.
+ - Donald Trump is not my fault. You can blame certain things on me, but not Donald Trump.
+ - When Toni Morrison said ‘write the book you want to read,’ she didn’t mean everybody.
+ - There is no such thing as inner peace. There is only nervousness and death.
+ - In the Soviet Union, capitalism triumphed over communism. In this country, capitalism triumphed over democracy.
+ - If people don’t hold grudges, it means they just don’t care what people do.
+ - No one earns $100 million. You steal $100 million.
+ - Smoking is, if not my life, then at least my hobby. I love to smoke. Smoking is fun. Smoking is cool. Smoking is, as far as I am concerned, the entire point of being an adult.
+ - I place a high moral value on the way people behave. I find it repellent to have a lot, and to behave with anything other than courtesy in the old sense of the word – politeness of the heart, a gentleness of the spirit.
+ - In real life, I assure you, there is no such thing as algebra.
+ - The opposite of talking isn’t listening. The opposite of talking is waiting.
+ - Being poor is like being a child. Being rich is like being an adult: you get to do whatever you want. Everyone is nice when they have to be; rich people are nice when they feel like it.
+ - I hate money. It is boring and it is arithmetic. The two things I hate the most.
+ - A woman’s quest in life should be to find the perfect apartment. And I have found the perfect apartment. The perfect apartment is the first floor of the Metropolitan Museum. With a sofa.
+ - Life is something that happens when you can’t get to sleep.
+ - I do not believe in God. I believe in cashmere.
+ - I never wanted to have any extra money, if it meant having to have any extra work.
+ - China is not a great idea: capitalism and a dictator. It’s like the two worst possible things you could imagine together. It’s a very bad idea.
+ - As a teenager you are at the last stage in your life when you will be happy to hear that the phone is for you.
+ - Food is an important part of a balanced diet.
+ - Humility is no substitute for a good personality.
+ - I think one manifestation of integrity is holding a grudge. Saying no is a little different. Holding a grudge is the modern equivalent of having standards.
+ - Never allow your child to call you by your first name. He hasn’t known you long enough.
+ - If you read a lot, nothing is as great as you’ve imagined. Venice is – Venice is better.
+ - If you can stay in love for more than two years, you’re on something.
+ - New Yorkers, we’ve seen Donald Trump for, like, 30 years; we know who he is. So he wasn’t a surprise to me.
+ - The first people who died of AIDS were artists. They were the most interesting people.
+ - Success didn’t spoil me, I’ve always been insufferable.
+ - I’m a horrible girlfriend. I always was. I’m great at the beginning, because I can be very romantic.
+ - Randomness scares people. Religion is a way to explain randomness.
+ - There’s too much democracy in the culture, not enough in the society.
+ - When it comes to sports I am not particularly interested. Generally speaking, I look upon them as dangerous and tiring activities performed by people with whom I share nothing except the right to trial by jury.
+ - Marriage entitles women to the protection of a strong man who will steady the stepladder while they paint the kitchen ceiling.
+ - Your life story would not make a good book. Don’t even try.
+ - Being offended is a natural consequence of leaving the house.
+ - It would also have been helpful to have gone to a Catholic grammar school. The only people who know grammar are those people who went to Catholic grammar school. Those nuns beat it into them.
+ - Los Angeles is a large city-like area surrounding the Beverly Hills Hotel.
+ - If thine enemy offend thee, give his child a drum.
+ - I’m like the laziest person who ever lived. It’s amazing to me I even sit up.
+ - Large, naked, raw carrots are acceptable as food only to those who live in hutches eagerly awaiting Easter.
+ - Do not have your child’s hair cut by a real hairdresser in a real hairdressing salon. He is, at this point, far too short to be exposed to contempt.
+ - Contrary to popular opinion, the hustle is not a new dance step – it is an old business procedure.
+ - No one’s supposed to be the president. This is not England. And it’s not just the Bush family, all families designate each child as having some particular trait.
+ - By the time everyone catches up with you, you’re bored.
+ - When someone asks, ‘Why do you think he’s not calling me?’ there’s always one answer – ‘He’s not interested.’ There’s not ever any other answer.
+ - If people don’t want to listen to you, what makes you think they want to hear from your sweater?
+ - A salad is not a meal, it is a style.
+ - A dog who thinks he is a man’s best friend is a dog who obviously has never met a tax lawyer.
+ - Sleep is death without the responsibility.
+ - I have a double policy, which would also solve immigration: I would stand at the border of New York City and I would say, “You can come here to live, but you can’t come here to visit.”
+ - The French probably invented the very notion of discretion. It’s not that they feel that what you don’t know won’t hurt you; they feel that what you don’t know won’t hurt them. To the French lying is simply talking.
+ - There’s no such thing as advice to the lovelorn. If they took advice, they wouldn’t be lovelorn.
+ - Your responsibility as a parent is never great as the case is with the mother.
+ - Spilling your guts is just exactly as charming as it sounds.
+ - Polite conversation is rarely either.
+ - My favorite way to wake up is to have a certain French movie star whisper to me softly at two-thirty in the afternoon that if I want to get to Sweden in time to pick up my Nobel Prize for Literature, I had better ring for breakfast. This occurs rather less often than one might wish.
+ - When I was young, I liked romance. But to me, romance is the opposite of domestic life. I just don’t want anyone in the apartment, not for longer than a few hours.
+ - When you leave New York, you are astonished at how clean the rest of the world is. Clean is not enough.
+ - Girls who put out are tramps. Girls who don’t are ladies. This is, however, a rather archaic usage of the word. Should one of you boys happen upon a girl who doesn’t put out, do not jump to the conclusion that you have found a lady. What you have probably found is a Lesbian.
+ - Cheese that is required by law to append the word food to its title does not go well with red wine or fruit.
+ - Children are rarely in the position to lend one a truly interesting sum of money. There are, however, exceptions, and such children are an excellent addition to any party.
+ - Communists all seem to wear small caps, a look I consider better suited to tubes of toothpaste than to people.
+ - If you feel the urge to write, just lie down and read a book: it will pass.
+ - When I fly, I’m never afraid the plane is going to crash. But there have often been times when I was afraid it wouldn’t crash. I was just afraid it was going to circle O’Hare for the rest of my life.
+ - In Rome people spend most of their time having lunch. And they do it very well – Rome is unquestionably the lunch capital of the world.
+ - My desire to curtail undue freedom of speech extends only to such public areas as restaurants, airports, streets, hotel lobbies, parks, and department stores. Verbal exchanges between consenting adults in private are as of little interest to me as they probably are to them.
+ - That I am totally devoid of sympathy for, or interest in, the world of groups is directly attributable to the fact that my two greatest needs and desires – smoking cigarettes and plotting revenge – are basically solitary pursuits.
+ - A great many people in Los Angeles are on special diets that restrict their intake of synthetic foods. The reason for this appears to be a widely held belief that organically grown fruits and vegetables make the cocaine work faster.
+ - I’m sure that being sober all these years accounts for my ill humor.
+ - When I was young, boys didn’t type.
+ - There are too many books. The books are terrible. And this is because you have been taught to have self-esteem.
+ - Children do not really need money. After all, they don’t have to pay rent or send mailgrams.
+ - I drove a cab. But all the girls I knew when I was young who had to work – there were rich girls – but the ones who had to work were waitresses. Because you could always get shifts in a restaurant.
+ - I drank my lifetime supply of alcohol and I took my lifetime supply of drugs between the ages of 15 and 19.
+ - Bread that must be sliced with an axe is bread that is too nourishing.
+ - The most common error made in matters of appearance is the belief that one should disdain the superficial and let the true beauty of one’s soul shine through. If there are places on your body where this is a possibility, you are not attractive – you are leaking.
+ - Raisins are a thing that lasts, they come in small boxes, and you always feel like eating raisins, even at six in the morning. A raisin is always an appropriate snack.
+ - Original thought is like original sin: both happened before you were born to people you could not have possibly met.
+ - That which we call civilization is merely the accumulated debris of a chilling number of bad nights.
+ - Vegetables are interesting but lack a sense of purpose when unaccompanied by a good cut of meat.
+ - Designer clothes worn by children are like snowsuits worn by adults. Few can carry it off successfully.
+ - I’m such a slow writer I have no need for anything as fast as a word processor. I don’t need anything so snappy. I write so slowly that I could write in my own blood without hurting myself.
+ - Knowingness is sexy. The opposite of sexy is naivete.
+ - Generally speaking, it is inhumane to detain a fleeting insight.
+ - Rome is a very loony city in every respect. One needs but spend an hour or two there to realize that Fellini makes documentaries.
+ - All style is personal – that’s what distinguishes it from fashion.
+ - Take away a man’s actual sense of manhood – which is conventionally based on the ability to work, to earn money, to be self-sufficient, to provide for children – and you’ve got to give them something else. And they did.
+ - If, while watching the sun set on a used-car lot in Los Angeles, you are struck by the parallels between this image and the inevitable fate of humanity, do not, under any circumstances, write it down.
+ - Magazines all too frequently lead to books and should be regarded by the prudent as the heavy petting of literature.
+ - Civilised adults do not take apple juice with dinner.
+ - It’s much easier to write a solemn book than a funny book. It’s harder to make people laugh than it is to make them cry. People are always on the verge of tears.
+ - Do not, on a rainy day, ask your child what he feels like doing, because I assure you that what he feels like doing, you won’t feel like watching.
+ - Because I was young, I had this long hair, and people used to try to tip me with joints.
+ - The best fame is a writer’s fame. It’s enough to get a table at a good restaurant, but not enough to get you interrupted when you eat.
+ - The great thing about New Jersey is that it’s close to New York.
+ - The Word Lady: Most Often Used to Describe Someone You Wouldn’t Want to Talk to for Even Five Minutes.
+ - My favorite animal is steak.
+ - There are two modes of transport in Los Angeles: car and ambulance. Visitors who wish to remain inconspicuous are advised to choose the latter.
+ - I hate academic mysteries. As soon as I come across the word ‘don’ and it’s not someone’s first name, I close the book.
+ - If your sexual fantasies were truly of interest to others, they would no longer be fantasies.
+ - Forcing people into a situation where they’re supposed to adore each other is probably bad. But letting people get on and off the 6 train without stabbing each other, that’s good.
+ - The telephone is a good way to talk to people without having to offer them a drink.
+ - I’ve done the calculation and your chances of winning the lottery are identical whether you play or not.
+ - London: A place you go to get bronchitis.
+ - Generally speaking, the poorer person summers where he winters.
+ - I don’t care if New York avoided bankruptcy by substituting tourism for the garment business.
+ - I must take issue with the term ‘a mere child,’ for it has been my invariable experience that the company of a mere child is infinitely preferable to that of a mere adult.
+ - In fact, we live in a culture where intelligence, exceptional or not, is reviled.
+ - What’s the point of being young if you’re not going to make new things, I wonder?
+ - It is not true that there is dignity in all work. Some jobs are definitely better than others.
+ - New York City is filled with the same kind of people I left New Jersey to get away from.
+ - Ask your child what he wants for dinner only if he’s buying.
+ - There’s nothing like being old to be sure of everything.
+ - Should you be a teenager blessed with uncommon good looks, document this state of affairs by the taking of photographs. It is the only way anyone will ever believe you in years to come.
+ - Without these tourists, New York would be fantastic. I don’t want them to come. Stay home!
+ - Middle class was defined by having certain values and only a certain amount of money. But this new middle class seems to have absolutely no values and an unlimited amount of money.
+ - Any child who cannot do long division by himself does not deserve to smoke.
+ - I’ve always been old at heart.
+ - I never took hallucinogenic drugs because I never wanted my consciousness expanded one unnecessary iota.
+ - To put it rather bluntly, I am not the type who wants to go back to the land; I am the type who wants to go back to the hotel.
+ - I always make a big effort to make a distinction between what is actually worse or what is just worse about not being 21. Of course, it’s much worse not to be 21. This is a given. But there are things that are worse.
+ - All of television’s appalling, but this is hardly a new statement.
+ - I’ve never seen the Kardashians; I’m not sure who they are. But I know a lot about them because it’s impossible not to.
+ - My dream writing room would be the Imperial Library in Vienna.
+ - In conversation you can use timing, a look, an inflection. But on the page all you have is commas, dashes, the amount of syllables in a word. When I write, I read everything out loud to get the right rhythm.
+ - How do you know if your child is a writer? Your obstetrician holds his stethoscope to your abdomen and only hears excuses.
+ - While it is undeniably true that people love a surprise, it is equally true that they are seldom pleased to suddenly and without warning happen upon a series of prunes in what they took to be a normal loin of pork.
+ - Perhaps the least cheering statement ever made on the subject of art is that life imitates it.
+ - Tolerance is really a better thing than understanding. Because it doesn’t agitate against human nature.
+ - Perhaps one of the more noteworthy trends of our time is the occupation of buildings accompanied by the taking of hostages. The perpetrators of these deeds are generally motivated by political grievance, social injustice, and the deeply felt desire to see how they look on TV.
+ - Smoking is, as far as I’m concerned, the entire point of being an adult.
+ - Any artist who has that quality of timelessness has that quality because they tell the truth.
+ - There were a zillion bad jobs. That doesn’t exist any more. I mean, I could wake up one afternoon with zero money and know that by the end of the day, I would have money.
+ - You don’t have to lay an egg to know if it tastes good.
+ - I love sleep because it is both pleasant and safe to use.
+ - A hobby is, of course, an abomination, as are all consuming interests and passions that do not lead directly to large, personal gain.
+ - Albert Einstein didn’t care where he lived. Albert Einstein was a genius. Albert Einstein wasn’t getting lost in the master bedroom, he was lost in thought.
+ - Violet will be a good color for hair at just about the same time that brunette becomes a good color for flowers.
+ - Inhabitants of underdeveloped nations and victims of natural disasters are the only people who have ever been happy to see soybeans.
+ - There is nothing more mine than my writing, nothing I’m more proprietary about.
+ - I write a sentence a thousand times, changing it all the time to look at it in different ways.
+ - All the time I’m not writing I feel like a criminal. It’s horrible to feel felonious every second of the day. It’s much more relaxing to actually write.
+ - I hate all jobs. I’ve never had a job I liked.
+ - When you reach a certain age, suddenly there are lots of people younger than you, which is really startling.
+ - The downfall of most diets is that they restrict your intake of food.
+ - It’s very disheartening to encounter a fearful twenty-one year old. They haven’t earned the right to be that afraid. It’s not like we’re living in war-torn Bosnia or something.
+ - There are certain relationships I think I’m great at: I’m the world’s greatest daughter. I’m a great relative. I believe I’m a great friend.
+ - Life was certainly more entertaining when people were indulging their vices as opposed to going to meetings to indulge in a new vice: discussing their innermost thoughts in public.
+ - Communism requires of its adherents that they arise early and participate in a strenuous round of calisthenics. To someone who wishes that cigarettes came already lit the thought of such exertion at an hour when decent people are just nodding off is thoroughly abhorrent.
+ - Things that people will say to me, mostly, is that you shouldn’t have all these books. It’s too expensive.
+ - Notoriously insensitive to subtle shifts in mood, children will persist in discussing the color of a recently sighted cement-mixer long after one’s own interest in the topic has waned.
+ - When I started publishing, I got offers to write for big magazines. But I would always say, “Well, it’s not that I don’t want to write for these big magazines, but you can’t edit it.”
+ - People who are well-known, famous people, I think, make very poor characters for fiction. They make good characters for gossip columns. But not for fiction.
+ - Why not have your first baby at sixty, when your husband is already dead and your career is over? Then you can really devote yourself to it.
+ - You can be nasty when you are young, but you really have to be older to achieve bitterness.
+ - Never judge a cover by its book.
+ - Scientists – the crowd that for dash and style make the general public look like the Bloomsbury set.
+ - I believe that at birth everyone gets the capacity for a certain amount of drugs and alcohol, everyone the same, you can do it all between 15 and 19 like I did, or you can stretch it out over 70 years.
+ - The truth is that most families have no smart ones and no pretty ones. Most families are a bunch of unattractive dopes. And it turns out that the Bush family, like most families, has no smart ones. I was not surprised to see this.
+ - Will power is not telling anybody you quit smoking.
+ - Special-interest publications should realize that if they are attracting enough advertising and readers to make a profit, the interest is not so special.
+ - I am a New Yorker. I like New York. And I like cities. And it’s not my desire to make New York more suburban. I would personally just like to vet each person.
+ - I don’t like the kind of country living where you have to help. I like country living where there is help.
+ - New York was always more expensive than the other places, even when it was going bankrupt. In other words, in 1971, New York was expensive for someone with no money. For anyone.
+ - Children ask better questions than adults. “May I have a cookie?” “Why is the sky blue?” and “What does a cow say?” are far more likely to elicit a cheerful response than “Where’s your manuscript?” “Why haven’t you called?” and “Who’s your lawyer?”
+ - You sit or stand in the subway, and you look around – I do, because I don’t have a phone so I’m not playing a game – and you see people.
+ - I don’t like to read nonfiction. To me, fact is something I can look up.
+ - Screenwriting is not an artform, it is a punishment from God.
+ - Being a woman is of special interest only to aspiring male transsexuals. To actual women, it is simply a good excuse not to play football.
+ - I prefer dead writers because you don’t run into them at parties.
+ - Commercials and sometimes other guests – it’s the down side of TV. Other people – it’s the downside of life in general.
+ - Cold soup is a very tricky thing and it is a rare hostess who can carry it off. More often than not the dinner guest is left with the impression that had he only come a little earlier he could have gotten it while it was still hot.
+ - Most writers write too much. I have the exact opposite problem. I feel I could write almost anything in a paragraph. I have a natural ability to condense, and so I often think, “Are you kidding me? Five thousand words? How am I gonna make 5,000 words out of that?”
+ - Telling someone he looks healthy isn’t a compliment – it’s a second opinion.
+ - Instead of writing it wrong six times and then writing it right, I think it wrong six times and then write it right the seventh time.
+ - Local television shows do not, in general, supply make-up artists. The exception to this is Los Angeles, an unusually generous city in this regard, since they also provide this service for radio appearances.
+ - I have the exact opposite problem of every writer I’ve ever met: Every writer I’ve ever met writes things that are too long, and they have to edit them down.
+ - The conversational overachiever is someone whose grasp exceeds his reach. This is possible but not attractive.
+ - The thing you love right away, don’t do it, because that’s the very thing that’s going to be your addiction for the rest of your life.
+ - When I was a kid, the people of my generation didn’t want to be writers, they wanted to be rock stars. Rock and roll was not just entertainment, it was the center of people’s lives. When I was young, it was exciting and interesting.
+ - Women who insist upon having the same options as men would do well to consider the option of being the strong, silent type.
+ - Breakfast cereals that come in the same colors as polyester leisure suits make oversleeping a virtue.
+ - I could not possibly be in a relationship now for more than six days. When I was younger, I might have said six months, although I think the longest relationship I was ever in was three years.
+ - The first step in having any successful war is getting people to fight it.
+ - Twenty-four-hour room service generally refers to the length of time that it takes for the club sandwich to arrive. This is indeeddisheartening, particularly when you’ve ordered scrambled eggs.
+ - People always say “pop culture.” As if we have some high culture to distinguish it from.
+ - Having been unpopular in high school is not just cause for book publications.
+ - I never would start writing before midnight and I would finish at, like, seven in the morning.
+ - Smoking is the great romance of my lifetime. If I could find someone I wanted forty-five times a day, perhaps I could stop.
+ - Not writing is probably the most exhausting profession I’ve ever encountered. It takes it out of you. It’s very psychically wearing not to write – I mean if you’re supposed to be writing.
+ - American women think that clothes fit them if they can fit into them. But that’s not at all what fit means.
+ - Television turned out to be exactly as bad as the most irritating and pedantic intellectuals of the ’50s said it was going to be.
+ - Even when freshly washed and relieved of all obvious confections, children tend to be sticky.
+ - Ever since I was a little child, I refused to see movies of books that I loved. Because you already know what Heidi looks like and she doesn’t look like Shirley Temple.
+ - It is imperative when flying coach that you restrain any tendency toward the vividly imaginative. For although it may momentarily appear to be the case, it is not at all likely that the cabin is entirely inhabited by crying babies smoking inexpensive domestic cigars.
+ - When I’m supposed to be writing I clean my apartment, take my clothes to the laundry, get organized, make lists, do the dishes. I would never do a dish unless I had to write.
+ - New York’s not exactly antiseptic. It could be clean and less dangerous, and not horrible, not under a tidal wave of tourists.
+ - Scientists are rarely to be counted among the fun people. Awkward at parties, shy with strangers, deficient in irony – they have had no choice but to turn their attention to the close study of everyday objects.
+ - The Italians are the most civilized people. And they’re very warm. Basically, they’re Jews with great architecture.
+ - Citizen’s Band radio renders one accessible to a wide variety of people from all walks of life. It should not be forgotten that all walks of life include conceptual artists, dry cleaners, and living poets.
+ - Whenever someone accuses someone of being a racist – which is rare, you have to admit, considering how much racism there is – there is an incredible outrage. I realized that we live in an environment that it seems to be worse to call someone a racist than to be one.
+ - I stopped taking drugs when I was 19, and who wants to drive a cab around New York with drugs in their car?
+ - Now the culture is made of old things, it’s a collage. Art made out of art is not art. You’re supposed to make art out of life.
+ - In New York we have zillions of different kinds of people, many of them hate each other, but violence based on that hatred is really uncommon here.
+ - If there had been a job of being a reader, I would have taken that, because I love to read and I don’t love to write. That would be blissful.
+ - I write so slowly, I could write with my own blood and not hurt myself.
+ - To me the outdoors is what you must pass through in order to get from your apartment into a taxicab.
+ - When I was very little, say five or six, I became aware of the fact that people wrote books. Before that, I thought that God wrote books. I thought a book was a manifestation of nature, like a tree.
+ - There are some short essays that are very grave, and most contemporary novels are lighter than air.
+ - It’s very important when making a friend to check and see if they have a private plane. People think a good personality trait in a friend is kindness or a sense of humor. No, in a friend a good personality trait is a Gulfstream.
+ - Writing pornography is deadly, nothing duller. I mean a toll-taker has a more exciting life than a pornographer.
+ - If food did not exist it would be well-nigh impossible to get certain types off the phone, as one would be unable to say, ‘Look, I’ve got to run but let’s have dinner sometime soon.’
+ - Children are the most desirable opponents at scrabble as they are both easy to beat and fun to cheat.
+ - Even when America is not working that well, it still works better than other places. F.
+ - I’ve never had the experience of being edited and never will.
+ - I’m not a nervous person. I’m not afraid to be on TV. I’m only afraid when I write. When I’m at my desk I feel like most people would feel if they went on TV.
+ - Educational television should be absolutely forbidden. It can only lead to unreasonable disappointment when your child discovers that the letters of the alphabet do not leap up out of books and dance around with royal-blue chickens.
+ - The main symptom of falling in love is that you lose your intellectual prowess.
+ - This idea that people have to love and understand each other is absurd. It’s not human nature.
+ - Luckily when you drive a cab there are two things: You don’t have a boss in the cab with you, and you are not facing the people that you are making money from.
+ - Not writing is probably the most exhausting profession I’ve ever encountered.
+ - Once you go outside your natural audience, there are tons of people that don’t like you.
+ - Radio news is bearable. This is due to the fact that while the news is being broadcast, the disk jockey is not allowed to talk.
+ - Do not elicit your child’s political opinions. He doesn’t know any more than you do.
+ - I think humor is warmer, and wit is colder. Wit is judgment, whereas humor invites some sort of response.
+ - I’m not a Communist. I’m an American. I’m a capitalist. I mean, I’m not a very good capitalist, myself. I’m not very good at it, but it’s not that I’m not for capitalism. But people who believe in things like corporate citizenship, it’s idiotic. I mean, it shows you’re an idiot.
+ - Very few people possess true artistic ability. It is therefore both unseemly and unproductive to irritate the situation by making an effort. If you have a burning, restless urge to write or paint, simply eat something sweet and the feeling will pass.
+ - Never relinquish clothing to a hotel valet without first specifically telling him that you want it back.
+ - I doubt there’s ever been a true thing said on Fox. Maybe the weather report, maybe not.
+ - The good thing about being in someone else’s apartment is it’s so much easier to leave than it is to get someone out.
+ - If there were, say, only 10 percent of the hotels that exist now, there would be all these apartments for people who live in New York, as opposed to people visiting New York. And then all this junk in the theater, we would no longer need the kind of stuff that tourists like.
+ - For the movie review columns, I always knew exactly what I was going to write about – the movies.
+ - Whenever I am doing anything else, which is most of the time, even if it is not something like robbing a bank, I feel felonious. Writing is what I’m supposed to be doing.
+ - I hate writing. I will do anything to avoid it. The only way I could write less was if I was dead.
+ - All God’s children are not beautiful. Most of God’s children are, in fact, barely presentable.
+ - What I can’t be is monogamous. That tends to upset people. I just don’t like domestic life.
+ - If people had gavels, there would be no wars. If every person in the world had a gavel and could bang it and get everyone’s attention right away and make their displeasure known, I believe the level of actual violence in the world would just disappear to practically nothing.
+ - I have friends, some of whom are spectacularly good writers, who really want someone to edit them. I don’t register that impulse. It’s like the impulse for wanting a dog.
+ - I hate, simply, to work. I just hate to work, period. I am profoundly slothful. Practically inert.
+ - A community is a butcher and a doctor, a minister, a town troublemaker. A “community” is not a bunch of people united by some grievance. That’s just self-righteousness – incredibly dangerous and antidemocratic.
+ - Writers get exactly the right amount of fame: just enough to get a good table in a restaurant but not enough so that people are constantly interrupting you while you’re eating dinner.
+ - I never met anyone who didn’t have a very smart child. What happens to these children, you wonder, when they reach adulthood?
+ - If you are truly serious abut preparing your child for the future, don’t teach him to subtract teach him to deduct.
+ - Life is so absurd now that it is almost impossible to be a satirist in this era.
+ - Democracy is an interesting, even laudable, notion and there is no question but that when compared to Communism, which is too dull, or Fascism, which is too exciting, it emerges as the most palatable form of government.
+ - It’s very important who the president of the United States is. America is a great idea, so that’s why it’s a great country.
+ - Abandon the search for Truth; settle for a good fantasy.
+ - What starts love is your ability to stupefy and blind yourself to the point of being able to fall in love. What stops it is waking up.
+ - Nature is by and large to be found out of doors, a location where, it cannot be argued, there are never enough comfortable chairs.
+ - If you are of the opinion that the contemplation of suicide is sufficient evidence of a poetic nature, do not forget that actions speak louder than words.
+ - People elect the President for reasons that have nothing to do with his ability to be president.
+ - I walk a lot in New York, not for the exercise but to get from place to place, and because it’s the way of having the least contact with human beings.
+ - I woke up at five o’clock in the morning with the whole first paragraph in my head. Now, this just shows what a slothful person I am: I tried to go back to sleep.
+ - Contrary to what many of you may imagine, a career in letters is not without its drawbacks – chief among them the unpleasant fact that one is frequently called upon to sit down and write.
+ - You should make it hard on yourself to write so you’re easier to read.
+ - Andy Warhol made fame more famous.
+ - I have a hard time writing. Most writers have a hard time writing. I have a harder time than most because I’m lazier than most. I don’t want to brag, but I’m the laziest person I have ever known.
+ - No one I knew talked about money. It’s not an area of interest.
+ - The second I learned to read in first grade, when I was 5, I preferred it to life. And I still do.
+ - Romantic love is mental illness. But it’s a pleasurable one.
+ - To me, O’Hara is the real Fitzgerald.
+ - I’d like to decide who comes here. I’d like to be the admissions director of New York.
+ - White grapes are very attractive but when it comes to dessert people generally like cake with icing.
+ - If you are a dog and your owner suggests that you wear a sweater suggest that he wear a tail.
+ - Presently it appears that people are mainly concerned with being well rested. Those capable of uninterrupted sleep are much admired. Unconsciousness is in great demand. This is the day of the milligram.
+ - If you’re going to America, bring your own food.
+ - I think writing for me has always been a matter of fear. Writing is fear and not writing is fear. I am afraid of writing and then I’m afraid of not writing.
+ - If I lived in another country, like a country that was, say, an enemy of the United States, I would be more amused than I am.
+ - Do not approach with anything even resembling assurance a restaurant that moves.
+ - Romantic love is mental illness. But it’s a pleasurable one. It’s a drug. It distorts reality, and that’s the point of it. It would be impossible to fall in love with someone that you really saw.
+ - You can’t go around hoping that most people have sterling moral characters. The most you can hope for is that people will pretend that they do.
+ - Did it ever occur to anyone that if you put nice libraries in public schools you wouldn’t have to put them in prisons?
+ - I just write when fear overtakes me.
+ - Frenchman: Germans with good food.
+ - I, unfortunately, take the subway a lot. It’s not my preference, but it is my lot in life.
+ - Calling a taxi in Texas is like calling a rabbi in Iraq.
+ - I always liked people who are older. Of course, every year it gets harder to find them.
+ - I used to love to write. As a child I used to write all the time. I loved to write up until the second I got my first professional writing job. It turns out it’s not that I hate to write. I hate, simply, to work.
+ - I am alternately very gregarious – very sociable – and then very solitary.
+ - I never had a typewriter. I never had any machines.
+ - Nothing succeeds like address.
+ - To lose yourself in a book is the desire of the bookworm. I mean to be taken. That is my desire.
+ - I love being in love. I don’t think anything compares with it, though I consider it very disruptive.
+ - Everything in Japan is hidden. Real life has an unlisted phone number.
+ - People have been cooking and eating for thousands of years, so if you are the very first to have thought of adding fresh lime juice to scalloped potatoes try to understand that there must be a reason for this.
+ - Writing is so hard. Why would you be a writer if you weren’t really good at it? If you could be anything else, why would you be a writer?
+ - I just can’t smile at people for money.
+ - No animal should ever jump up on the dining-room furniture unless absolutely certain that he can hold his own in the conversation.
+ - If you want to get ahead in this world get a lawyer – not a book.
+ - Think before you speak. Read before you think. This will give you something to think about that you didn’t make up yourself – a wise move at any age, but most especially at seventeen, when you are in the greatest danger of coming to annoying conclusions.
+
+293 quotes

@@ -1,0 +1,79 @@
+ - It’s always sunny above the clouds. Always. Every day on earth – every day I have ever had – was secretly sunny, after all.
+ - Self-harm – the world will come at you with knives anyway. You do not need to beat them to it.
+ - The world is difficult and we are all breakable. So just be kind.
+ - When you say you’re not a feminist, if feminism hadn’t existed, and you didn’t live in a feminist world, you wouldn’t be saying that, because you’d be too busy scrubbing out the toilets in back while cooking up your husband’s tea and dying in childbirth at the age of 34.
+ - A library in the middle of a community is a cross between an emergency exit, a life raft and a festival.
+ - It’s really best not to tell people when you feel bad. Growing up is about keeping secrets, and pretending everything is fine.
+ - If you eat enough books, you start pooping out words.
+ - But as the years went on, I realised that what I really want to be, all told, is a human. Just a productive, honest, courteously treated human.
+ - You think it doesn’t really matter if you screw up this time around because you can just sort it all out in paradise.
+ - Why on earth have I, because I’m a woman, got to be nice to everyone?
+ - Always remember that, nine times out of ten, you probably aren’t having a full-on nervous breakdown – you just need a cup of tea and a biscuit. You’d be amazed how easily and repeatedly you can confuse the two. Get a big biscuit tin.
+ - Never feel this bad again. Never come back to this place, where only a knife will do. Live a gentle and kind life. Don’t do things that make you want to hurt yourself.
+ - I don’t regret not going to college. Students learn up to the age of 21, then stop. I’ll always be learning – the things that really matter in life. How to sign on, how to get free food, how to be streetwise.
+ - Life divides into amazing enjoyable times and appalling experiences that will make future amazing anecdotes.
+ - I told my girls, ‘Look at Rihanna: She’s one of the biggest pop stars in the world. She’s really famous, really powerful, really rich. Yet in every single video she can only wear panties. Poor Rhianna! We’ll know when she is properly powerful and successful when we see her in a lovely cardigan.’
+ - The kind of classic pose of a female model is to look kind of sexy and a bit annoyed.
+ - The problem with battling yourself is that even if you win, you lose.
+ - We must recall the most important of humanity guidelines: Be polite. Being polite is possibly the greatest daily contribution everyone can make to life on Earth.
+ - I am in love, and he’s the one. Obviously I thought the one before him was the one and the one before that was the one, too. Frankly, I’m so much into the idea of being in love that anyone out of about 3 million could be the one. But no, this one now is definitely the one, the very one.
+ - I am not good at small talk. I will hide in a cupboard to avoid chitty-chat.
+ - You wanted to become a doctor to help people and feel better at the end of your job, I think, watching them, as the nurse takes my hand. But I don’t think you do feel better at the end of the day. You look like humans have constantly disappointed you.
+ - It was the Spice Girls who messed it all up. And obviously, the appropriating of the phrase “girl power”, which at that point overrode any notion of feminism, and which was a phrase that meant absolutely nothing apart from being friends with your girlfriends.
+ - A male feminist is one of the most glorious end-products of evolution.
+ - If you’re not a confident person, pretend to be one.
+ - All the things that are taboo are the things that are not normal, and all the things that are not normal are the things that are exclusively about physically being a woman.
+ - You can always tell when a woman is with the wrong man, because she has so much to say about the fact that nothing’s happening.
+ - My core belief is that if you’re complaining about something for more than three minutes, two minutes ago you should have done something about it.
+ - Feminism has had exactly the same problem that “political correctness” has had: people keep using the phrase without really knowing what it means.
+ - I feel in my bones that Lady Gaga is a true strident feminist and good for my soul – but how do I square this with the fact that she’s constantly walking around in her bra and pants, even at, like, airports and stuff, where even nudists wear a fleece and linen drawstring trousers?
+ - I never wanted to be famous. It was amusing at first, but now I hate it. I just wanted to be respected by people I respect. And I wanted to be rich. It’s best to get rich, then you can do what you want.
+ - I can’t think of anything I hate more than a former punk – they are the most self-righteous people in the world.
+ - I have read more about Oprah Winfrey’s ass than I have about the rise of China as an economic superpower. I fear this is no exaggeration. Perhaps China is rising as an economic superpower because its women aren’t spending all their time reading about Oprah Winfrey’s ass.
+ - I like a little bit of revolution. I think it’s a very good hobby for a young woman. Better than squash.
+ - I wish I could give up smoking, but it does taste so delicious.
+ - I’m so glad I spent 10 years being sad and lonely.
+ - Feminism means something – legislation, cultural change – but ‘Girl Power’ meant nothing more than being friends with your friends.
+ - Let’s all go and be feminists in the pub.
+ - When you talk to a young teenage girl, they’re just full of self-loathing. The reason they feel self-loathing is they don’t feel normal. It is a world that has not been built for them. It’s been built for men, and that’s why they feel bad.
+ - When you live in a small house with five younger siblings, it’s actually far more sensible- and much quicker- to cry alone.
+ - It’s the silliness – the profligacy, and the silliness – that’s so dizzying: a seven-year-old will run downstairs, kiss you hard, and then run back upstairs again, all in less than 30 seconds. It’s as urgent an item on their daily agenda as eating or singing. It’s like being mugged by Cupid.
+ - I just want Tina Fey to be my best friend. And Lena Dunham. And Oprah, too.
+ - I say this in the spirit of feminist encouragement, but I think I’m pretty hot. I’ve got all the facial features, facing the right way, at the right end, and you can always paint over the bad bits with makeup.
+ - Benedict Cumberbatch is very beautiful.
+ - If you do it properly, life is art, really.
+ - All art is someone trying to tell you something.
+ - I read something once that when you’re online, your inhibitions are lowered to the state where you’ve had three drinks. Once you basically know that the entire internet is slightly drunk, it all makes a lot more sense, and you deport yourself accordingly.
+ - I am pathetically law-abiding.
+ - I wrote my first book at eight, all of four pages. At 10, I did a 40-page story. At 12, I wrote two stage plays.
+ - I love puffins. They are small, round gothic birds, and their babies are called pufflings.
+ - I’ve got more friends than I’ve ever had in my life at the age of 39 – although given that I didn’t have any friends until the age of 27, it doesn’t say much – because I found the internet.
+ - And every book, you find, has its own social group – friends of its own it wants to introduce you to, like a party in the library that need never, ever end.
+ - If you can find a frock you look nice in and can run up three flights of stairs, you’re not fat.
+ - As a former ballerina, I can’t put down Maggie Shipstead’s new book, Astonish Me.
+ - I wish I could learn that just three drinks is enough, but I have not learned that.
+ - Nowadays, to be frank, every week is a good week for freakshow television. we might start asking, Why are there so many freaks? And why do they all want to be on television?
+ - In the end, I want to spend my 60s writing bonkbusters like Jilly Cooper.
+ - You don’t need to be legendary all the time. You can just be legendary for 10 minutes a day.
+ - What is feminism? Simply the belief that women should be as free as men, however nuts, dim, deluded, badly dressed, fat, receding, lazy and smug they might be. Are you a feminist? Hahaha. Of course you are.
+ - A ‘sign of weakness’ for a male celebrity is being found to be unfaithful, or unkind to an employee, or having crashed their car while stoned out of their tiny minds. A ‘sign of weakness’ for a woman, on the other hand, can be a single, unflattering picture.
+ - Any action a woman engages in from a spirit of joy, and within a similarly safe and joyous environment, falls within the city-walls of feminism. A girl has a right to dance how she wants, when her favourite record comes on.
+ - I could have written a misery memoir and instead I tried to make it funny. I never complained.
+ - I hate that tabloid idea of anybody who is famous having to forfeit their privacy.
+ - A majority of women’s magazines feature women who do amazing things, but then the article focuses on how she ruined it with her shoes.
+ - Flyaway, problem hair is the enemy of feminism, and was probably invented by the Man to crush Susan Sontag.
+ - There are some women out there who are just going to look better with a mustache: that’s statistics.
+ - I don’t campaign for the end of the aristocracy or the upper classes; I don’t really want to destroy anything at all. I just want more plurality.
+ - Whenever I see a taboo, I just think that’s something we need to drag screaming out into the light and discuss. Because taboos are where our fears live, and taboos are the things that keep us tiny. Particularly for women.
+ - As far as I’m concerned, you’re a feminist by default if you’re born in the Western world right now.
+ - For me, and I suspect a lot of socially awkward people, dealing with people face-to-face seems really traumatic. Particularly if you have massive sweating issues, and particularly if on top of that you have quite smelly sweat that smells like onion soup.
+ - I’ve generally got low levels of embarrassment.
+ - Heaven. The biggest waste of our time we ever invented, outside jigsaws.
+ - Watching ‘Girls’ has just given me renewed courage.
+ - Once you’ve got a big feminist and political justification for talking about how you went round to Benedict Cumberbatch’s house and did period all over his sofa, then there’s no reason not to tell that anecdote in the middle of a dinner party.
+ - I know people go on about Twitter, but it is amazing. It’s whatever you want it to be, and all the women got in there before the boys.
+ - You should write, write, write every day, and learn to edit and pare it right back so you’re proud of every sentence, and each one is either being useful or beautiful, but hopefully both.
+ - I loved Riot Grrl. Not only was it a punk rock revolution, but it meant you could get dressed for a night out for less than two pounds!
+ - If you read all your history books, there are no women in them.
+
+77 quotes

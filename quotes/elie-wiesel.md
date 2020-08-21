@@ -1,0 +1,60 @@
+ - Peace is our gift to each other.
+ - What hurts the victim most is not the cruelty of the oppressor, but the silence of the bystander.
+ - No human being is illegal.
+ - The opposite of love is not hate, it's indifference. The opposite of art is not ugliness, it's indifference. The opposite of faith is not heresy, it's indifference. And the opposite of life is not death, it's indifference.
+ - One person of integrity can make a difference.
+ - To forget a Holocaust is to kill twice.
+ - Think higher, feel deeper.
+ - To remain silent and indifferent is the greatest sin of all.
+ - There may be times when we are powerless to prevent injustice, but there must never be a time when we fail to protest.
+ - Take sides. Neutrality helps the oppressor, never the victim.
+ - Even in darkness it is possible to create light.
+ - In the face of suffering, one has no right to turn away, not to see.
+ - Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
+ - I have not lost faith in God. I have moments of anger and protest. Sometimes I’ve been closer to him for that reason.
+ - I swore never to be silent whenever and wherever human beings endure suffering and humiliation.
+ - No human race is superior; no religious faith is inferior. All collective judgments are wrong. Only racists make them.
+ - Just as man cannot live without dreams, he cannot live without hope. If dreams reflect the past, hope summons the future.
+ - Silence encourages the tormentor, never the tormented.
+ - The opposite of life is not death, it’s indifference.
+ - I came to the conclusion that I am free to choose my own suffering. But I am not free to consent to someone else’s suffering.
+ - Write only if you cannot live without writing. Write only what you alone can write.
+ - Whoever survives a test, whatever it may be, must tell the story. That is his duty.
+ - Human suffering anywhere concerns men and women everywhere.
+ - We must not see any person as an abstraction. Instead, we must see in every person a universe with its own secrets, with its own treasures, with its own sources of anguish, and with some measure of triumph.
+ - Ultimately, the only power to which man should aspire is that which he exercises over himself.
+ - Because I remember, I despair. Because I remember, I have the duty to reject despair.
+ - I pray to the God within me that He will give me the strength to ask Him the right questions.
+ - Because of indifference, one dies before one actually dies.
+ - Emphasis must be put on learning: there is no substitute to education. It can be briefly formulated in a few words: always, whatever you do in life, think higher and feel deeper.
+ - If the only prayer you say throughout your life is “Thank You,” then that will be enough.
+ - Just as despair can come to one only from other human beings, hope, too, can be given to one only by other human beings.
+ - When adults wage war, children perish.
+ - Every single human being is a unique human being. And, therefore, it’s so criminal to do something to that human being, because he or she represents humanity.
+ - God is God because he remembers.
+ - Human beings should be held accountable. Leave God alone. He has enough problems.
+ - Some stories are true that never happened.
+ - Wherever men and women are persecuted because of their race, religion, or political views, that place must – at that moment – become the center of the universe.
+ - One more stab to the heart, one more reason to hate. One less reason to live.
+ - Indifference is the sign of sickness, a sickness of the soul more contagious than any other.
+ - Life is really fascinated only by death. It vibrates only when it comes in contact with death.
+ - Mankind needs peace more than ever, for our entire planet, threatened by nuclear war, is in danger of total destruction. A destruction only man can provoke, only man can prevent.
+ - In the beginning there was faith – which is childish; trust – which is vain; and illusion – which is dangerous.
+ - I shall always remember that smile. From what world did it come from?
+ - I don’t want my past to become anyone else’s future.
+ - There are victories of the soul and spirit. Sometimes, even if you lose, you win.
+ - No one may speak for the dead, no one may interpret their mutilated dreams and visions.
+ - I feel that books, just like people, have a destiny. Some invite sorrow, others joy, some both.
+ - Love makes everything complicated.
+ - Music does not replace words, it gives tone to the words.
+ - Our obligation is to give meaning to life and in doing so to overcome the passive, indifferent life.
+ - Only the guilty are guilty. Their children are not.
+ - Which is worse? Killing with hate or killing without hate?
+ - I write to understand as much as to be understood.
+ - For in the end, it is all about memory, its sources and its magnitude, and, of course, its consequences.
+ - Bread, soup – these were my whole life. I was a body. Perhaps less than that even: a starved stomach. The stomach alone was aware of the passage of time.
+ - Did I write it so as not to go mad or, on the contrary, to go mad in order to understand the nature of madness?
+ - What is man? Ally of God or simply his toy? His triumph or his fall?
+ - Most people think that shadows follow, precede or surround beings or objects. The truth is that they also surround words, ideas, desires, deeds, impulses and memories.
+
+58 quotes

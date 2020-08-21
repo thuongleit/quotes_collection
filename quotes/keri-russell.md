@@ -1,0 +1,43 @@
+ - Sometimes it’s the smallest decisions that can change your life forever.
+ - Maybe I’m old, but to me, ‘going out’ means going out to dinner. It’s about the conversation: someone recognizing your intellect, the charm of flirting, and really speaking to somebody.
+ - Dear Baby, I hope someday somebody wants to hold you for 20 minutes straight and that’s all they do. They don’t pull away. They don’t look at your face. They don’t try to kiss you. All they do is wrap you up in their arms and hold on tight, without an ounce of selfishness to it.
+ - Yeah, I like being on my own. I do. I tend to be a loner, so I’m okay. I’m not okay when I have to be around everyone all the time.
+ - I know not every mom is a secret KGB spy, but every mom has this whole other life. Every dad and every person has this whole other life.
+ - Who knows? Maybe years from now I’ll be on a ranch in Colorado with 10 kids. The whole point of life is to experience a little bit of everything, and I think it’s better when there are a few surprises thrown in.
+ - I am literally the worst person at keeping secrets. I’d be the worst spy of all time.
+ - People – not just in their teenage years – hold on to this fantasy of love when they’re not ready to have a real relationship.
+ - Growing up, I would say Wonder Woman and Nancy Drew were definite role models for me. Historically, I know Amelia Earhart stands out for me.
+ - Everyone should dance more. Everyone should walk more.
+ - The kind of hero worship you have, when a parent is lost early and you don’t know all their faults and misgivings, is a very strong influence.
+ - Sometimes you don’t want the truth. Sometimes you’re like, “Oh just tell me the good answer. I don’t want the truth.”
+ - I’m naturally thin, so I don’t have to work too hard at it. I love food, but I also love to work out. I think it makes everything work better.
+ - Naps are the key to relieving stress. When you are working on two hours of sleep, the fact that cheese comes on something when you ordered it with no cheese is enough to send you crying under the covers for an hour.
+ - People expect all women to react the same to pregnancy. But anyone who’s been around pregnant women knows that it’s not all cutesy and sweet. You spaz out and you’re angry and you have tantrums.
+ - I wish I had an invisible plane to take me home to Brooklyn, and I wouldn’t have to ride the subway.
+ - I don’t have time for any special skin routines. Many a night I go to bed with the gloppy mascara and all.
+ - I love doing laundry! It’s so satisfying. I love the way it smells. I love doing the sheets.
+ - There’s no shortage of female role models. They’re everywhere – in history, in literature, in the news. Just look around.
+ - I like getting to be in the adult world a little bit and then getting to be in the mom world and cook dinners. And, for me, that balance is what makes it nice.
+ - Acting is a strange profession, and, yes, sometimes I struggle with its worth, its value in the world.
+ - When I was on the ‘Mickey Mouse Club,’ there was Britney Spears, Justin Timberlake and Ryan Gosling and Christine Aguilera. But they were 12 and I was 17, so there was a bit of an age difference.
+ - I don’t think I ate a green vegetable until I was 30. I didn’t grow up with a mom who enforced that at all.
+ - I think love is a great catalyst for many characters to further the story or their own growth.
+ - Dance has helped me with everything. It was a great foundation for discipline, hard work and, unfortunately, the ever-elusive idea of perfection. It lends itself easily to fight choreography, because that’s what it really is. Choreography. And knowing how to move with someone.
+ - I personally adore origin stories – they’re so intriguing, learning what shaped and formed a character.
+ - Dance is definitely what I love doing much more than anything else.
+ - I was a huge fan of ‘Arrested Development,’ and there’s just something it tickles in me and it’s bright and it’s hilarious.
+ - I feel better in my mind when I work out. It makes everything better.
+ - Voiceover work definitely requires it’s own specific muscle. And because you’re not seeing what you’re recording, and all these things are going on, you really have to use your imagination and stay focused and kind of be able to tap your head and rub your belly at the same time.
+ - I think the good stories are those where the character decides to break away and do something different.
+ - I stayed really physical during my pregnancy. I stuck to my normal pre-pregnancy workout, minus the stomach exercises and twisting. I really felt it helped my whole well-being.
+ - It’s sad when girls think they don’t have anything going on except being pretty.
+ - Anything that opens you up emotionally is going to impact your acting. Parenthood, becoming a mom, certainly does that.
+ - Acting happened to me. If I had pursued it, I think it would have been like someone going to a bar, desperately looking for love and not finding anyone.
+ - I think people like to be thrilled and excited. And a scary movie is a safe way to do that because you’re not actually doing it. It’s entertainment. You know that you’re in the confines of this two-hour space of safety in the movie house.
+ - Personally, I’m a real wimp with scary movies. I get so scared.
+ - I would splurge on a great pair of high heels, because you can wear them to something fancy, but regular clothes? I’d rather go on a trip than spend $10,000 on clothes, and fly first class as a treat.
+ - We all have some version of a fantasy that’s easy to escape to, and we all want a real relationship where there’s a common give-and-take and you’re seen for who you are, and appreciated for that.
+ - Eating a cookie never feels strange. I am a big believer in food in general.
+ - When you are 16 you are supposed to be doing cool things, like sneaking alcohol, not living in Disney World and doing skits about mice.
+
+41 quotes

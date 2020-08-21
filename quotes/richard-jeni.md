@@ -1,0 +1,40 @@
+ - In life your dreams may not come true, but sooner or later one of your nightmares will.
+ - Live each day as if it were the last day of your life because, so far, it is.
+ - Never fry bacon when you’re naked.
+ - Religious war at its simplest is killing each other over who has the best imaginary friend.
+ - Animals are happier than humans because they’re like furry little existentialists, all living in the moment. Their collective motto: live fast, die young, and leave a good-looking pelt.
+ - A bunch of bong-smoking, America-bashing, flag-burning, yoga-posing, incense-burning, dolphin-saving, salmon-eating hypocrites. These are the sensitive, liberal people who are always yelling about people’s freedom of speech and expression, unless you happen to say something that pisses them off.
+ - Spiritual is the word people use when they mean they want to be covered whey they die but they’re not getting up early on a Sunday.
+ - I always look for a woman who has a tattoo. I see a woman with a tattoo, and I’m thinking, okay, here’s a gal who’s capable of making a decision she’ll regret in the future.
+ - I’m catholic in the same way, that if a cow was born in a tree, it’s a bird!
+ - It is a sad fact that 50 percent of marriages in this country end in divorce. But hey, the other half end in death. You could be one of the lucky ones!
+ - Sports are an acceptable way for men to show emotion. A guy who won’t hug his kid will slip a guy a tongue in a sports bar when his team wins.
+ - Seventy-five percent of all Americans believe that angels are real. Which is amazing when you consider that forty percent of all Americans think DNA evidence is unreliable.
+ - If carrots are good for my eyes, how come I see so many dead rabbits on the highway?
+ - Fifty per cent of all marriages end in divorce. But look at the bright side: the other 50 per cent end in death.
+ - We spend the second half of our life making up for the first half.
+ - I think that’s how Chicago got started. A bunch of people in New York said, ‘Gee, I’m enjoying the crime and the poverty, but it just isn’t cold enough. Let’s go west.’
+ - That’s why you have to like a guy like Charles Manson. Say what you will about Manson – he’s one of the only people with the decency to look like a dangerous maniac the first time you meet him.
+ - There is no romance without some lying. That’s what romance is – a little bit of Vaseline on the camera lens of life.
+ - In New York, the principal leisure activity is internal bleeding.
+ - If you’re going to war over religion, now you’re just getting into a fight over who has the better imaginary friend.
+ - If you ever thought you were ugly, Los Angeles is the place to come and find out you were right.
+ - When one guy sees an invisible man he’s a nut case; ten people see him it’s a cult; ten million people see him it’s a respected religion.
+ - The way I see life, it’s like we’re all flying on the Hindenburg, why fight over the window seats?
+ - America: Twenty million illegal aliens can’t be wrong!
+ - I was brought up Catholic. My mom brought us to mass every Sunday – short for ‘massive head trauma’ that you get from your mother punching you in your little nine-year-old head every minute because you can’t sit still for anything that’s boring.
+ - The only difference between the women I’ve dated and Charles Manson is that Manson has the decency to look like a nut case when you first meet him.
+ - You should never die for your beliefs, because what if you’re wrong?
+ - Today, I bought a pastrami sandwich: $13.75. Walked back out in the street – genuine Rolex watch: six bucks.
+ - In any relationship there are certain doors that should never be opened. The bathroom door, for example.
+ - Imagine my surprise when it turned out the main thing that I was qualified for was to get another degree and teach Political Science to other people, who would, in turn, teach it to other people! This wasn’t higher education, this was Amway with a football team!
+ - Choosing to have a child you can’t take care of is like farting in an elevator. Sure you got it out, but not it’s everyone else’s problem.
+ - You know what the average person is? Average.
+ - Success is like toilet paper, it only seems important when you don’t have it.
+ - Success is made up of courage, brains, and luck. Since the first two are a function of the third, it’s pretty much all luck.
+ - Brooklyn is the only place where a guy can open up a candy store sell no candy and gross over eight million dollars a year.
+ - We would need less gun control if we had better birth control.
+ - Nobody is really qualified to be the president. Basically it’s an acting job. You have to act like you’re the president. And every four years the country holds a big casting call.
+ - Lobsters one of the only animals that have to put up with being alive in the restaurant. If you go to a steakhouse, folks – no cow tank.
+
+38 quotes

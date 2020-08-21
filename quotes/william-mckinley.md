@@ -1,0 +1,35 @@
+ - In the time of darkest defeat, victory may be nearest.
+ - That’s all a man can hope for during his lifetime – to set an example – and when he is dead, to be an inspiration for history.
+ - I do not prize the word cheap. It is not a word of inspiration. It is the badge of poverty, the signal of distress. Cheap merchandise means cheap men and cheap men mean a cheap country.
+ - I am a tariff man, standing on a tariff platform.
+ - Our past has gone into history.
+ - Half-heartedness never won a battle.
+ - The American flag has not been planted on foreign soil to acquire more territory but for humanity’s sake.
+ - The path of progress is seldom smooth. New things are often found hard to do. Our fathers found them so. We find them so. But are we not made better for the effort and scarifice?
+ - The army of Grant and the army of Lee are together. They are one now in faith, in hope, in fraternity, in purpose, and in an invincible patriotism. And, therefore, the country is in no danger. In justice strong, in peace secure, and in devotion to the flag all one.
+ - The free man cannot be long an ignorant man.
+ - The more profoundly we study this wonderful Book, and the more closely we observe its divine precepts, the better citizens we will become and the higher will be our destiny as a nation.
+ - The liberty to make our laws does not give us the freedom nor the license to break our laws!
+ - Let us ever remember that our interest is in concord, not in conflict; and that our real eminence rests in the victories of peace, not those of war.
+ - We need Hawaii just as much and a good deal more than we did California. It is Manifest Destiny.
+ - War should never be entered upon until every agency of peace has failed.
+ - Our differences are policies; our agreements, principles.
+ - We go to war only to make peace. We never went to war with any other design. We carry the national conscience wherever we go.
+ - Our earnest prayer is that God will graciously vouchsafe prosperity, happiness, and peace to all our neighbors, and like blessings to all the peoples and powers of the earth.
+ - Cuba ought to be free and independent, and the government should be turned over to the Cuban people.
+ - Expositions are the timekeepers of progress.
+ - By the blessings of heaven I mean to live and die, please God, in the faith of my mother.
+ - The best way for the Government to maintain its credit is to pay as it goes-not by resorting to loans, but by keeping out of debt-through an adequate income secured by a system of taxation, external or internal, or both.
+ - I have never been in doubt since I was old enough to think intelligently that I would someday be made President.
+ - The mission of the United States is one of benevolent assimilation.
+ - Strong hearts and helpful hands are needed, and, fortunately, we have them in every part of our beloved country.
+ - Without competition we would be clinging to the clumsy antiquated processes of farming and manufacture and the methods of business of long ago, and the twentieth would be no further advanced than the eighteenth century.
+ - Illiteracy must be banished from the land if we shall attain that high destiny as the foremost of the enlightened nations of the world which, under Providence, we ought to achieve.
+ - The American people, intrenched in freedom at home, take their love for it with them wherever they go...
+ - We cannot gamble with anything so sacred as money.
+ - The people of this country want an industrial policy that is for America and Americans.
+ - Honesty, capacity, and industry are nowhere more indispensable than in public employment.
+ - I am for America because America is for the common people.
+ - Our faith teaches that there is no safer reliance than upon the God of our fathers who has so singularly favored the American people in every national trial and who will not forsake us so long as we obey His commandments and walk humbly in His footsteps.
+
+33 quotes

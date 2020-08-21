@@ -1,0 +1,52 @@
+ - The past explains how I got here, but the future is up to me -and I love to live life at full throttle.
+ - Self-help books are for the birds. Self-help groups are where it’s at.
+ - Follow sound business trends, not fashion trends.
+ - I was Versace’s muse, I was Valentino’s muse, I was Alaia’s muse, Lancetti’s muse, Calvin Klein’s, Halston’s. I could go on and on.
+ - If you think I’m over-the-top, I am.
+ - This alpha dog is not going to take it lying down next time.
+ - Hey, I fool the camera. I’m a liar, a magician.
+ - I wish I’d gotten sober at a younger age.
+ - I grew up in an abusive home and was told on a daily basis by my father that I would never amount to anything and that I looked like a boy.
+ - Reinvention is the key to surviving this fashion industry. Madonna is the perfect example of reinvention. She has taken something that is so little and turned herself into a legend by simply never staying the same.
+ - I’m addicted to cosmetic surgery!
+ - And I will never, ever respond to anybody – man, woman, vegetable, or mineral – who tells me to keep my mouth shut.
+ - I got a book deal without even turning in one shred of a writing sample.
+ - I’m a former bulimic myself and it’s a horrible, horrible addiction.
+ - Beauty opened all the doors; it got me things I didn’t even know I wanted, and things I certainly didn’t deserve.
+ - In my day, I, being the first supermodel, I hawked everything.
+ - I was lusted after walking down the streets of New York.
+ - I started Botox the first year it came out. I was the first one in line, and I have had Botox every six months since then.
+ - I have a very vivid imagination.
+ - I can wrap my legs around my neck.
+ - I find the light and work it, work it, work it.
+ - I’m not a good person to have as an enemy; say nice things about me.
+ - I grew up studying ballet; I grew up honing my craft.
+ - But you see, that’s the gilded prison of fashion. We’re riding in private jets, and meantime I was so incredibly, painfully sad and lonely.
+ - I have to wake up and drink chamomile tea to slow down.
+ - Mothers don’t let your daughters grow up to be models unless you’re present.
+ - But as a young model, I never felt as beautiful as I looked.
+ - As the saying goes, I want to be the best-looking corpse there is.
+ - Back in the day I was doing runway, editorial, advertising, spokesmodeling, and public appearances. Those are five different categories.
+ - I’m able to move like no one else you’ve ever seen in front of a camera.
+ - I’m aiming to become the white Oprah.
+ - I’ve been the queen of dysfunction and made every mistake one can make.
+ - What’s my motto when it comes to money? Don’t put so much emphasis on it!
+ - Everyone steals from something or someone.
+ - Phil Spector is probably a better date than Roman Polanski.
+ - Every six months I fly to Dallas to get botox and I also get collagen injections.
+ - I can only speak from my own personal experience, being behind the camera and in front of it, but every magazine cover you see is completely airbrushed.
+ - I hike and make sure everything I eat is organic.
+ - I was hot and I knew it and it went to my head.
+ - Photo shoots for underage girls are like letting an ant walk around with honey.
+ - I had to fight like hell to convince people I was beautiful in my own Polish half-breed way.
+ - I have to make sure I exercise and that the ingredients that go into my body are completely organic.
+ - I borrow bits from everyone.
+ - People identify with me – everyone does – African American women, Caucasian women, they all identify with me because I’m ethnic.
+ - My first job was for a blue jean company as a sitting model. I posed for 15 minutes and made $50. It was 1976.
+ - The industry has died as far as modeling has gone, and I’ll tell you why. Magazines are featuring the Halle Berrys and Sarah Jessica Parkers, all the actresses. Makeup companies are featuring all the celebrities. All the models have died.
+ - I became a cover girl and an editorial model, and then I became a runway model.
+ - The idea of the extreme makeover is disturbing.
+ - Celebrity is hawking make-up, cars, everything; it’s shifted.
+ - Money is like hormones. It’s just how you feel on any given day.
+
+50 quotes

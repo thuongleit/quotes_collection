@@ -1,0 +1,51 @@
+ - I do not try to dance better than anyone else. I only try to to dance better than myself.
+ - Fundamentals are the building blocks of fun.
+ - When a body moves, it’s the most revealing thing. Dance for me a minute, and I’ll tell you who you are.
+ - Be. Good. To yourself, to other people, to everything you do. It’s a norm of life by which people should try to live. Don’t waste time. Be interesting and interested.
+ - No one is born a dancer. You have to want it more than anything.
+ - Dance is an ephemeral, a fleeting art. To describe this momentum, every movement on stage, in words is virtually impossible.
+ - Perfection is a theory. You cannot be a perfect human being, perfect artist. You cannot be a perfect husband, you cannot be a perfect father probably and probably I am not. But go through your daily routine with hope you will be a little better in all respects, and do something meaningful.
+ - I adored my mother, and I will always have extraordinary memories about her and remember her, and she opened the doors for me to appreciate arts.
+ - I like the most provocative and most surprising partnerships on stage. Intensity and surprise.
+ - Just sit and open your eyes and open your heart. It’s dance theater.
+ - He is a male butterfly without the wings – the same kind of grace of a very young horse, so angular.
+ - What do dancers think of Fred Astaire? It’s no secret. We hate him. He gives us a complex because he’s too perfect. His perfection is an absurdity. It’s too hard to face.
+ - People of art should never get married and have children, because it’s a selfish experience.
+ - To walk across the street is a risk.
+ - You cannot dance physically certain things. But look at tango dancers or flamenco or Japanese classical theater. You can, if you’re smart enough and you collaborate with the right choreographers, you could really dance your age.
+ - People dance at any age.
+ - What brought me to the theater, no matter you’re a Jew or a Russian or Armenian or Latvian, are suddenly illuminated by stage light and one beautiful image of dance.
+ - It doesn’t matter how high you lift your leg. The technique is about transparency, simplicity, making an earnest attempt.
+ - I think I got disappointed over the years about New York, about the States. You know, sometimes you go and visit Europe and see good old socialism in its good part! You see public concern about art, and young people’s participation and young faces in the audience.
+ - When I’m alone, I work sometimes with music, sometimes without and sometimes just listening to NPR.
+ - What people will do to get away from boredom!
+ - You don’t measure life by receiving awards.
+ - I am teaching more. That is what I do best.
+ - Divinity of art, it’s such a mystery. How to convince people that no matter how much money you can spend on education and art education especially, that it implants, it directs a young person for the rest of their lives, and always in the most humane and positive and dignified manner.
+ - Nobody else in the world has a form like the Native American musical, and Americans should be very proud.
+ - Nothing is ever too expensive if it furthers the repertoire and artistic standards of a dance company.
+ - Dance is one of the most revealing art forms.
+ - If your only dance experience is the Nutcracker, it will be a shock; hopefully shocking in a good way.
+ - I cannot belong to a nonprofit organization because when you receive grants, you have to make such great compromises with your artistic plans.
+ - Creative Artists Agency put together a project of extraordinary mediocrity and colossal stupidity. Otherwise, it was great.
+ - We’re trying to stretch our muscles creatively. It gives us so much more freedom.
+ - A theater is such a revealing form of art, such a transparent and good actors, they’re such powerful individuals. I always kind of dreamt that one day I will open my mouth on stage.
+ - The problem is not making up the steps but deciding which ones to keep.
+ - I – you know, I’m not an actor.
+ - I always had a kind of strange relationship with New York City, with total love affair in the beginning then retreat during the kind of conservatives of politics and real estate and business came, and then I am again kind of fighting for the justice to the city, to open the city for the artists.
+ - I go a lot to see young people downtown in little theaters. It’s great. If you start somebody’s career, it’s so exciting.
+ - When I see people on the street, I look at how they walk. It’s like a signature, a fingerprint.
+ - Acting is not my language at all.
+ - It’s what’s left in life, to work with interesting people.
+ - I was never like, “collect, collect,” like people who go to auctions. I never spent a serious amount of time because I don’t have any time!
+ - You can be totally involved, you could admire just the shape of or you could be totally emotionally mushed up into the dance.
+ - I want to see people dance, and I would like to guess what kind of people they are. I don’t want to know the recipe for their pasta.
+ - No dancer can watch Fred Astaire and not know that we all should have been in another business.
+ - Working is living to me.
+ - There comes a moment in a young artist’s life when he knows he has to bring something to the stage from within himself. He has to put in something in order to be able to take something.
+ - It’s weird when you see pieces of choreography that were done for you 15 or 20 years ago and now they are being done by another dance company.
+ - I gave away a lot of works for benefits and then people would also give me back.
+ - To achieve some depth in your field requires a lot of sacrifices.
+ - I am not trying to do material which I cannot do full out.
+
+49 quotes

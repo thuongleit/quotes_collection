@@ -1,0 +1,30 @@
+ - The happiness even of the naturalist depends in some measure upon his ignorance, which still leaves him new worlds of this kind to conquer. He may have reached the very Z of knowledge in the books, but he still feels half ignorant until he has confirmed each bright particular with his eyes.
+ - There is nothing in which the birds differ more from man than the way in which they can build and yet leave a landscape as it was before.
+ - Were I a philosopher, I should write a philosophy of toys, showing that nothing else in life need to be taken seriously, and that Christmas Day in the company of children is one of the few occasions on which men become entirely alive.
+ - In order to see birds it is necessary to become a part of the silence.
+ - The belief in the possibility of a short decisive war appears to be one of the most ancient and dangerous of human illusions.
+ - When people complain of the decay of manners they have in mind not the impudent abbreviations of the crowd, but the decline in bowing and scraping and in speaking of one’s employer as “the master.” What the rich mean by the good manners of the poor is usually not civility, but servility.
+ - A cat is only technically an animal, being divine.
+ - The mirror that Strindberg held up to Nature was a cracked one. It was cracked in a double sense – it was crazy. It gave back broken images of a world which it made look like the chaos of a lunatic dream.
+ - Dostoevsky’s visible world was a world of sensationalism. He may in the last analysis be a great mystic or a great psychologist; but he almost always reveals his genius on a stage crowded with people who behave like the men and women one reads about in the police news.
+ - It is the custom when praising a Russian writer to do so at the expense of all other Russian writers.
+ - It is almost impossible to remember how tragic a place the world is when one is playing golf.
+ - The days on which one has been the most inquisitive are among the days on which one has been happiest.
+ - No man is uninteresting when his hat is blown off and he has to scuttle after it down the street.
+ - We cannot get happiness by striving after it, and yet with an effort we can impart it.
+ - Mr. Shaw came for a short time recently to be regarded less as an author than as an incident in the European War. In the opinion of many people it seemed as if the Allies were fighting against a combination composed of Germany, Austria-Hungary, Turkey, and Mr. Shaw.
+ - There are two sorts of curiosity – the momentary and the permanent. The momentary is concerned with the odd appearance on the surface of things. The permanent is attracted by the amazing and consecutive life that flows on beneath the surface of things.
+ - We forget that Socrates was famed for wisdom not because he was omniscient but because he realized at the age of seventy that he still knew nothing.
+ - Most human beings are quite likable if you don’t see too much of them.
+ - There are travelers who fear to own delicate hands more than to meet a lion, and soldiers who would rather lose a limb than gain a beautiful nose by artificial methods.
+ - Mystery lies over the sea. Every ship is bound for Thule.
+ - With Wordsworth, indeed, the light of revelation did not fall upon human beings so unbrokenly as upon the face of the earth. He knew the birds of the countryside better than the old men, and the flowers far better than the children.
+ - A boy in love is not mainly a calf but a poet.
+ - The art of writing history is the art of emphasizing the significant facts at the expense of the insignificant. And it is the same in every field of knowledge. Knowledge is power only if a man knows what facts not to bother about.
+ - It may be that all games are silly. But then, so are humans.
+ - The lovers of beauty must unite in a league, and carry out some great propagandist work through the country. They must demand the extermination of the bulldog and the dismantling of the cheap villa, both of which are responsible for a deal of our contentment amid ugliness.
+ - Chekhov will seek out the key situation in the life of a cabman or a charwoman, and make them glow for a brief moment in the tender light of his sympathy.
+ - This is woman’s great benevolence, that she will become a martyr for beauty, so that the world may have pleasure.
+ - W. B. Yeats has created, if not a new world, a new star. He is not a reporter of life as it is, to the extent that Shakespeare or Browning is. One is not quite certain that his kingdom is of the green earth. He is like a man who has seen the earth not directly but in a crystal.
+
+28 quotes

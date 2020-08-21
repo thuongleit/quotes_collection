@@ -1,0 +1,32 @@
+ - The time when there is no one there to feel sorry for you or to cheer for you is when a player is made.
+ - I don’t try to change myself to impress anybody. I’m just who I am.
+ - I’m still learning. Hopefully I can keep getting better, and not stop where I am now.
+ - I’m surrounded by nothing but great people. I’ve been blessed with that, so really, I’ve got no choice but to be an all-around good person.
+ - I enjoy jokes, smiling, and making people smile. I may be a little different, but that’s OK, who wants to be normal anyway?
+ - I’m just going to play whatever game is in front of me.
+ - They say I have no emotions, but I’m excited even if you can’t see it.
+ - I’m not going anywhere. You can print that wherever you want to. I’m here and I’m a Spur for life.
+ - I’ve never gotten too high or too low. It only messes you up.
+ - When I’m away from basketball, I’m the biggest kid. I do a good job of keeping myself sane. But on the other hand, I’m more of a solitary guy, glad to be left alone.
+ - It always feels good to win, it’s always tough to lose.
+ - I just hope to make a difference.
+ - When our assists lead to baskets, that’s us playing our best, and we begin knocking down shots.
+ - We are unselfish and we trust each other.
+ - Our motto is just to play the whole 48 minutes. We are here to play it from start to finish. Things will go up and down. We will make runs and they will make runs. But we just keep playing.
+ - I have the loving support of my girlfriend who still attends Wake Forest and is nearing graduation. She helps me cope with the everyday rigors of being an NBA player.
+ - When you have to stop and think about things is when they go wrong.
+ - You’ve got to stay ready, especially around here. That’s what we preach, you’ll get your opportunity whether it comes at the beginning or in the middle or in the end whenever it may be. When your time comes, you need to be ready to go because you’re going to earn your minutes.
+ - I don’t usually set personal goals.
+ - I’m attacking the basket more. Because I’m more comfortable on the line, that’s an area I want to get to.
+ - I am who I am because of the people who I grew up with and where I’m from.
+ - Standing on the court and holding up that trophy – it’s so great you want to keep doing it over and over again.
+ - I’m not better when I force shots. I’m going to take them as they come. They are really sagging in there, trying to take me out of the game. It’s my job to find guys. I want to be aggressive and take my shots, but I can’t force them.
+ - If we win, I’m happy. The rest of it is just stuff.
+ - In all seriousness, it really should be difficult for me to be too strange. After all, a great family raised me.
+ - I know I’m the guy others will lean on.
+ - At this point, if I were to psychoanalyze myself, I’d have to say I am a clown, cleverly disguised as a regular person.
+ - I’m going to try to fit in where I can and play the way I can.
+ - I’m not serious most of the time.
+ - I would have loved to play against Bill Russell. He was such a force.
+
+30 quotes

@@ -1,0 +1,31 @@
+ - I love music, and I love singing.
+ - Sexuality is a topic that has huge shifts in -society. Attitudes toward different sexualities change, but the actual sexuality of a human being is something that’s consistent, and it’s consistently interesting, and so people write about it.
+ - I would like to work with whoever would like to have me.
+ - I think escapism is very important, certainly in my life. I love nothing more than escaping into the world of a film or a novel. To be involved in creating that for other people is a privilege.
+ - I am comfortable playing the fool, I think.
+ - My dad is a doctor, a professor of psychiatry, and my mum is a psychotherapist.
+ - I only remember the end of my dreams, like waking up at a steering wheel, or falling.
+ - We live in a youth-obsessed, aesthetically obsessed culture. That is no more evident than in the film industry.
+ - I’m not really an animal person.
+ - I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff.
+ - I think if actors don’t think of themselves as funny in real life they think they can’t do comedy.
+ - I want to take advantage of any popularity I have.
+ - When you’re doing a film, people are always telling you exactly what to do. Literally, your own decisions are taken away from you.
+ - I’m probably a little too uninhibited.
+ - I can’t run. I start getting twinges. If I were filmed running, it would be awful.
+ - Half my fan mail comes from Japan.
+ - I’d rather be shot than be seen falling out of some trendy club.
+ - I swim a lot. I swim most days.
+ - Most actors are drawn towards historical tellings because it’s one of the most simple forms of storytelling.
+ - I don’t really see the point in making a film unless you can think of a good reason to do it.
+ - Never agree to say or do anything that isn’t you.
+ - I actually went to university.
+ - When I was at school, I was in choirs more than anything else, from a very young age, about 9 years old. And then I started taking drum lessons.
+ - Maybe Oliver Stone doesn’t lend himself well to remakes or sequels, because he does them so well the first time.
+ - I want to play characters that are interesting to watch.
+ - I didn’t have any pets growing up.
+ - I have done lots of music projects in my life and some of them I am more proud of than others.
+ - I’m not that kind of Bob Dylan, tortured creative.
+ - I don’t really know who I am as an actor: the best thing would be to experiment with it for the next 30 years and never really find out.
+
+29 quotes

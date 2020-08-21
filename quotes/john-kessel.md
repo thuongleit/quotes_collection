@@ -1,0 +1,53 @@
+ - Study hard, practice hard, play ferociously.
+ - Never back down, never fear anyone, for the best opponents will help you to play your best.
+ - Being left-handed has its advantages in volleyball. Few people know enough about your spike and serve to give you advice.
+ - Use volleyball quotes to motivate your teammates to play hard.
+ - Play your heart out each game, so you can look your teammates in the eyes and ask, without saying it, ‘I played full out, did you?’
+ - You cannot turn your winning attitude on when you think you ‘need it.’ You must work on it every day, every practice, every match – win or lose. Focus on playing to win, not playing to lose, for there is a season of difference between the two.
+ - Focus on winning the contest with yourself.
+ - Less effort in this game makes more results.
+ - Don’t ask yourself what you did wrong; ask yourself what you did right.
+ - Trying simply provides an excuse for not doing.
+ - Good players win volleyball games for you, not tall players.
+ - It is ok to err, but it is not ok to stop playing; it is ok to lose, but it is not ok to give up.
+ - Shared victory is a double victory, shared defeat is half-defeat.
+ - Make your mistakes with confidence. It is the only way you are going to learn anything. Never be afraid to do a skill, no matter how simple or hard it may seem someone has done it, and so can you, With enough committed practice and confidence.
+ - Work hard – beat out half the team. Be committed, play fair as a team player – Beat out another quarter of the team. The last quarter is your desire and beliefs, and where you are playing.
+ - No jockey ever won a race by carrying the horse across the finish line; no coach ever won a volleyball match by touching the ball during play.
+ - If there is something a coach might wish to see changed in a player or team, the first place to check and see if it could not be done better is in yourself.
+ - The meaning of volleyball, is to give meaning to volleyball, as the meaning of coaching is to give meaning to coaching.
+ - An advantage to volleyball is that you have a scoreboard to tell how you have done as a team. The thing is, in life there is no scoreboard, at least not one that you can see.
+ - Coaching is something that takes place only when learning does. No matter what you are doing in your practices, if your players are not learning something significant, you’re really not coaching. If a player fails in a game, the coach may have failed in practice.
+ - The pessimistic coach complains about the play. The optimistic coach expects it to change. The realistic coach adjusts what he can control.
+ - In volleyball there are many reasons for errors but not a single excuse.
+ - Nothing makes a player more productive than the last minute.
+ - The wise coach takes all the heat when his players lose, and gives them all the credit when they win.
+ - Think positive, real volleyball happens too fast to think any other way.
+ - Coaches need to have the ability of tact – to teach the team to rub out mistakes rather than to rub them in.
+ - Perform the best you can for when you find that you perform your best, there is still so much more in volleyball to do better, harder, faster, and smarter. It is just like when you go for a long journey. You go as far as you can see, and when you get there, you can see farther.
+ - There are three choices in life and sport – either you do it, you don’t do it or you think about it. Most humans think about it. We will do it.
+ - Most of us are referees at heart; we like to call throws and errors on someone else.
+ - Ethics is for people with full bellies.
+ - A coach must sometimes see players with his heart, and hear them with his eyes.
+ - If you are serious about volleyball, the only months to stop playing are those without a vowel.
+ - There is nothing less important in life than the score after one game of a two out of three game match.
+ - Never mishandle hope or self-confidence – those are elements of life, not just a game.
+ - I am here to give my players the little push they need, just like they needed long ago, when first learning the art of the swing. All you needed then was a little push, and quickly you were pumping away, flying higher and higher, without any more help from the ‘coach.’
+ - There are two basic situations in volleyball – either you got the ball or you don’t.
+ - Kids on a team are like flowers in a bouquet, there is always one that wants to face a different way than the arranger desires.
+ - There is no such thing as ‘staying in shape;’ you either work to get better, or you allow yourself to get worse.
+ - Profit by your own mistakes and profit by the mistakes of others. The referees were calling ball handling violations like they were getting commissions.
+ - Most volleyball players are made in the winter, spring and summer, for come fall, everyone practices equal time.
+ - False teammates are like our shadows. They keep close to us when we are all walking in the sunshine, but they are gone the instant we just go into the shade, let alone the darkness.
+ - The kind of player who has turned his game around, he used to be lousy and lazy and now he is lazy and lousy.
+ - Players need you to care, especially when they do not deserve it.
+ - Coaches must be flexible, for then they won’t get bent out of shape.
+ - The sport of volleyball will never give you something that you can’t handle; whether you do handle it is another question.
+ - You must allow your players to become the athletes they can be. Don’t make them into anything just to become the kind of winners fans, friends and others think they must be.
+ - You can be harsh on your players and still coach, but it is easier when you are kind to them.
+ - Alter strategies and tactics, but never your principles.
+ - Too many players are so afraid to do anything that they seldom venture to do anything.
+ - The substitute that thinks his place below him, will certainly be below his place.
+ - Too many coaches have too big a mouth and not big enough ears.
+
+51 quotes

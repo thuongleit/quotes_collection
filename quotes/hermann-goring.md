@@ -1,0 +1,38 @@
+ - Whenever I hear the word culture, I reach for my revolver.
+ - We will go down in history either as the world’s greatest statesmen or its worst villains.
+ - I will decide who is a Jew!
+ - No enemy bomber can reach the Ruhr. If one reaches the Ruhr, my name is not Goering. You may call me Meyer.
+ - Shoot first and inquire afterwards, and if you make mistakes, I will protect you.
+ - Der Sieger wird immer der Richter und der Besiegte stets der Angeklagte sein. The victor will always be the judge, and the vanquished the accused.
+ - The only one who really knows about the Reichstag is I, because I set it on fire!
+ - I live the life of the last Renaissance man.
+ - All it is the leaders of a country who determine policy, and it is always a...
+ - I think that women are wonderful but I’ve never met one yet who didn’t show more feeling than logic.
+ - The Americans are good about making fancy cars and refrigerators, but that doesn’t mean they are any good at making aircraft. They are bluffing. They are excellent at bluffing.
+ - If people say that here and there someone has been taken away and maltreated, I can only reply: You can’t make an omelette without breaking eggs.
+ - The Americans cannot build aeroplanes. They are very good at refrigerators and razor blades.
+ - Every bullet fired from the barrel of a police pistol was my bullet. If you call that murder, then I am the murderer.
+ - I am what I have always been: the last Renaissance man, if I may be allowed to say so.
+ - Guns will make us powerful; butter will only make us fat.
+ - Of course people don’t want war. Why should a poor slob on a farm want to risk his life in a war when the best thing he can get out of it is to come back to his farm in one piece?
+ - I have to laugh when the English claim they are such a wonderful nation. Everyone knows that Englishmen are really Germans, that the English kings were German, and that in Russia the emperors were either of German origin or received their education in Germany.
+ - Education is dangerous – Every educated person is a future enemy.
+ - The Jew must clearly understand one thing at once, he must get out!
+ - Our movement took a grip on cowardly Marxism and from it extracted the meaning of socialism. It also took from the cowardly middle-class parties their nationalism. Throwing both into the cauldron of our way of life there emerged, as clear as a crystal, the synthesis – German National Socialism.
+ - After the United States gobbled up California and half of Mexico, and we were stripped down to nothing, territorial expansion suddenly becomes a crime. It’s been going on for centuries, and it will still go on.
+ - It wasn’t that I amassed it with aims of selling it and becoming a rich man. My personality demanded that I be surrounded by the best examples of the world’s art.
+ - I joined the party because I was a revolutionary, not because of any ideological nonsense.
+ - After a certain period of time, when I had acquired more insight into the Fuehrer’s personality, I gave him my hand and said: “I unite my fate with yours for better or for worse: I dedicate myself to you in good times and in bad, even unto death.” I really meant it-and still do.
+ - Why, of course, the people don’t want war.
+ - Above all, I shall see to it that the enemy will not be able to drop any bombs.
+ - I considered the attacks on London useless, and I told the Fuhrer again and again that inasmuch as I knew the English people as well as I did my own people, I could never force them to their knees by attacking London. We might be able to subdue the Dutch people by such measures but not the British.
+ - If I didn’t have a sense of humor, how could I stand this trial now?
+ - It’s east to start a war in any country.
+ - In Berlin Jews controlled almost one hundred percent of the theaters and cinemas before the rise to power.
+ - There is hardly any politically minded man who acknowledges and agrees with every point of the program of a political party.
+ - What do I care about danger? I’ve sent soldiers and airmen to death against the enemy – why should I be afraid?
+ - It is silly to appeal to people’s moral sense.
+ - I know two types of law because I know two types of men, those who are with us and those who are against us.
+ - My measures will not be crippled by any bureaucracy. Here I don’t have to worry about Justice; my mission is only to destroy and to exterminate; nothing more.
+
+36 quotes

@@ -1,0 +1,26 @@
+ - For all things come from earth, and all things end by becoming earth.
+ - Ethiopians imagine their gods as black and snub-nosed; Thracians blue-eyed and red-haired. But if horses or lions had hands, or could draw and fashion works as men do, horses would draw the gods shaped like horses and lions like lions, making the gods resemble themselves.
+ - Truly the gods have not from the beginning revealed all things to mortals, but by long seeking, mortals discover what is better.
+ - God is one, greatest of gods and men, not like mortals in body or thought.
+ - If horses had Gods, they would look like horses.
+ - It takes a wise man to recognize a wise man.
+ - Homer and Hesiod attributed to the gods all things which are disreputable and worthy of blame when done by men; and they told of them many lawless deeds, stealing, adultery, and deception of each other.
+ - Even if a man should chance to speak the most complete truth, yet he himself does not know it; all things are wrapped in appearances.
+ - All men begin their learning with Homer.
+ - If cows and horses had hands and could draw, cows would draw gods that look like cows and horses would draw gods that look like horses.
+ - The Ethiopians say that their gods are snub-nosed and black the Thracians that theirs have light blue eyes and red hair.
+ - If God had not made brown honey, men would think figs much sweeter than they do.
+ - In the beginning the gods did not at all reveal all things clearly to mortals, but by searching men in the course of time find them out better.
+ - All things that come into being and grow are earth and water.
+ - If oxen and horses and lions could draw and paint, they would delineate the gods in their own image.
+ - This upper limit, of earth at our feet is visible and touches the air, but below it reaches to infinity.
+ - No man knows distinctly anything, and no man ever will.
+ - The sun comes into being each day from little pieces of fire that are collected.
+ - For we are all sprung from earth and water.
+ - Pure truth no man has seen, nor ever shall know.
+ - No human being will ever know the truth, for even if they happen to say it by chance, they would not even know they had done so.
+ - If cattle and horses, or lions, had hands...
+ - Men always makes gods in their own image.
+ - It isn’t right to judge strength as better than good wisdom.
+
+24 quotes

@@ -1,0 +1,57 @@
+ - College was a blast. My three years of college were the best years of my life.
+ - Baseball is a game of failure. There are plenty of opportunities to be down, or to feel sorry for yourself, or to be upset at somebody or upset at yourself.
+ - If you are searching for your purpose in life then you’re never going to be satisfied. This life will never satisfy you. You’ll never be happy and you’ll never be content. The only really contentment or true happiness is with Christ.
+ - I really expect a lot of myself.
+ - We can’t be perfect all the time and that’s okay. In the heat of the battle, in the heat of the moment, you might say things or do things that aren’t right, but at the same time, Christ forgives us. Christ will always forgive you.
+ - My dad and all my family were into baseball. His brothers, my mom’s brothers, my mom’s father. Baseball was just always a part of our family.
+ - Every time I pray, I ask for forgiveness. I’m a sinner. I sin every single day. But I do know that God loves me. I do know that God forgives me. It helps me in my every day life because there’s nothing anyone can do to me that I can’t forgive them for.
+ - My greatest memories as a kid were playing sports with my dad and watching sports with my dad.
+ - I love Tumi because of the lifetime guarantee. And their luggage is just so solid. Looks good. Versatile. My carry-on bag is Tumi. My hanging bag is Tumi. My big suitcase is Tumi. All black. Love it.
+ - You can never pat yourself on the back during the season. Then you get complacent, stop working and let yourself slide.
+ - The American Museum of Natural History is my son’s absolute favorite place in the world! So we really, really, really love New York.
+ - I enjoy spending time with my family. And when my family’s not around, when I’m on the road, a lot of sleep. I get my rest. I understand how important my job is and how important rest is to that job. I’m pretty boring.
+ - Education is very important to me, as is helping children.
+ - I was always a neat kid. I never wanted my hands dirty. I wasn’t a dirty kid. A lot of kids like to run around. If I was rolling around the dirt, I went home and took a shower. That’s just the way I was. I’m not sure. I might have been born with it.
+ - New York City is the capital for Baseball, not just for the pros, but also for the kids throughout the city, as well. No matter who you root for, the Borough Cup is going to make every kid and community that participates a winner.
+ - It’s just about being in the zone, in any sport, be it football, basketball or baseball.
+ - I’m half-Italian and my name is Portuguese. Michael Young is half-Mexican. There are players from the United States that have heritage elsewhere and it’s a great thing to have a world cup to celebrate the whole world. It shows the world that baseball is important and how great the game is.
+ - God has forgiven everything that I’ve ever done. If someone does something to hurt my family or me, I can always forgive them. It keeps hate and anger out of my heart.
+ - My closet is in perfect order at home. All my dress shirts, all my casual shirts. All my suits, they’re color coordinated. All my ties are color coordinated.
+ - I have a relationship with Christ. It allows me to handle situations better. It allows me to treat people better and it allows me to have a better mental attitude towards baseball.
+ - Being from Baltimore, I’m a crab cake snob, and I’m very particular on where I eat my crab cakes.
+ - I don’t play to prove people right or wrong. I just want to win.
+ - Home runs come in bunches. You can go two weeks without one or hit four in a week. Sometimes, you just feel that stroke for a week or two weeks straight.
+ - My goal was to go to college and come out the best player.
+ - I’m not one of those crazy collectors – I don’t have a hundred watches. Only five or six. But I do like to wear a nice watch, especially if we’re on the road and I’m wearing a nice suit.
+ - I have sensitive skin, so I don’t use regular razors. The Yankees make us stay cleanly shaven!
+ - Christ doesn’t keep score. It’s not about what you do here. It’s about the person you are. It’s about your faith. That’s one thing that I’d like for young kids or anybody to know.
+ - Switch-hitting is one of the greatest things in the world and one of the worst things in the world.
+ - I went to college for a reason, and that was to skip the minor leagues. I spent a year in the minors and got my at-bats in, and then I felt like I was ready for the big leagues.
+ - I usually don’t look at at-bats where I get out. I look at my hits. I look at good swings I put on balls. Because of that good swing or good at-bat, I can see what I need to continue to work on and recreate.
+ - I have a lot of watches that need to be kept wound, so if I take two of them on a trip, there’s always one sitting around. And if it sits around for a day, then it’ll stop working. And then you have to reset the time and date, which is annoying.
+ - I didn’t realize how much I loved the game until I couldn’t play it.
+ - Baseball can be a game of peaks and valleys. Mentally, I want to stay away from the ups and downs and just maintain a level approach.
+ - I have confidence that whatever I set in my mind will happen. Everything I strived for I reached.
+ - I love first base. I want to get better.
+ - My biggest thing is I need to see a lot of pitches, which I did today. That’s good. The more pitches you see, the better your timing is going to be. But it’s going to be impossible to see enough pitches. No matter how many pitches you see, it’s still going to be March 6.
+ - You can never completely get it – being a Christian – but I think I really got it when my first son was born in 2006. I just realized the love that God has for all of us. It was seeing my son born and knowing the unconditional love that I have for him.
+ - It’s not a fun process. There is no need for the team and a player to be on opposing sides a week or two before spring training. It’s good to be on the same page.
+ - The Red Sox didn’t handle negotiations with any kind of respect for me and my family, and the Rangers were the total opposite.
+ - I love being a Yankee, and it’s hard not to. It’s a special place to play.
+ - I’ve been very fortunate to play for four great organizations, but New York really takes the cake. Wearing the pinstripes is something that’s very special to me, and it’s the greatest organization in sports history.
+ - There’s no question that I love playing in Texas. I love the fans. I love everything about Texas.
+ - It’s an honor to be playing with these four players and to be a part of their fifth World Series title and my first.
+ - I always lift weights very heavy and spend a lot of time in the weight room.
+ - I expected to be in the big leagues soon. I didn’t know exactly how soon, but I wanted to be here soon, and I wanted to make a difference soon.
+ - I’ve always felt that I need to be somebody in the middle of the lineup that’s going to drive in runs and come up with big hits.
+ - I want to be the player who hits home runs, drives in runs.
+ - I would tell everyone to go to college, no matter what. It gives you time to grow up.
+ - The only dream I’ve ever had is to become a major league baseball player.
+ - If I can be a good person and help a few non-believers or even help people that are believers but need a little help along the way, I think that’s a job that I take very seriously.
+ - I have no problem with the arbitration process.
+ - My first postseason home run was a walk-off in the Division Series. That was just a special moment in my career.
+ - To be able to play baseball for those nine innings in front of a major league crowd is a special privilege.
+ - I have three beautiful children and a World Series ring. That’s all I need.
+ - There are always things to improve on. I want to improve on my defense, and you can never be a perfect hitter. I want to focus on just playing more and being able to improve on all parts of my game.
+
+55 quotes

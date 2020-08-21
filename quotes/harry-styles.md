@@ -1,0 +1,64 @@
+ - A dream is only a dream until you decide to make it real.
+ - We have a choice: to live or to exist.
+ - A gentleman doesn't kiss and tell.
+ - A real girl isn't perfect. A perfect girl isn't real.
+ - Age is just a number, maturity is a choice.
+ - I don't think you can define love.
+ - You have to take me for me. I am who I am.
+ - Tall girls are hot. Short girls are cute.
+ - Don’t choose the one who is beautiful to the world. But rather, choose the one who makes your world beautiful. -Harry Styles.
+ - It only takes a second for you to call a girl fat and she will starve herself for the rest of her life. Think before you act.
+ - Never make eye contact with anyone while eating a banana.
+ - If you’re going to get in trouble for hitting someone, might as well hit them hard.
+ - The difference between doing something and not doing something is doing something.
+ - Whatever it takes its fine.
+ - I want a girl who respects herself. It means her standards are high and if I fit them then id be honored. If she’s easy then what does that say about me?
+ - Simple, yet effective!
+ - I like girls who have two eyes.
+ - People often ask me why don’t you have a girlfriend. Then I smile and say: I have thousands some just haven’t met me yet.
+ - Remember like where you’ve come from. Know who you are.
+ - I can take critism, but if it’s like ‘I don’t like you’ then I want to know why people don’t like me. Why do you hate me? What have I done?
+ - Written in these walls are the stories that I can’t explain.
+ - I’m tired of going to an empty bedroom every night. I wish I had a girl I could cuddle with.
+ - I can make your girlfriend scream louder than you ever could just by pressing her follow button.
+ - I won’t give up till we surrender!
+ - I hate the word famous because it has no substance.
+ - I think you have to be cool to be a good flirt, and I don’t think I’m very cool.
+ - A short skirt and lots of makeup won’t impress me.
+ - You’re always going to write and draw inspiration from things that you’re feeling, things that you’ve felt. It’s kind of impossible not to unless you’re writing a song and there’s an exact scenario that you’re trying to write a song for.
+ - I’m still waiting for that passionate kiss in the rain.
+ - Eating toast in the shower is the ultimate multitask.
+ - I feel like I’ve woken up with suddenly more facial hair and a deeper voice.
+ - I like girls, but I prefer having a girlfriend. I like having someone I can spoil.
+ - I can see how you could get dragged into the bad stuff, but I’ve got good friends around me, good family. I think I’ve got my head screwed on.
+ - You’re never going to get used to walking into a room and have people screaming at you. There’s a lot of things that come with the life you could get lost in. But you have to let it be what it is. I’ve learnt not to take everything too seriously.
+ - I do miss having someone to spoil, somebody that you can just sit with for a bit.
+ - I find ambition really attractive too – if someone’s good at something they love doing. I want someone who is driven.
+ - I just woke up and found a large butterfly on me. When did that happen?
+ - I quit shoelaces a long time ago...
+ - Will somebody hold me?
+ - I’ve got a really good family; I’ve got great friends around me.
+ - The first time I had sex, I was scared I got the girl pregnant. And that was despite the fact we were safe. Luckily, we were fine. I would never risk not wearing a condom, it’s too much of a risk. If you’re not ready for a child, then don’t risk it.
+ - Bisexual? Me? I don’t think so. I’m pretty sure I’m not.
+ - I’m an 18-year-old boy, and I’m having fun. I’m just not having as much fun as people make out.
+ - I think when you’re writing songs, it’s impossible to not draw on personal experiences, whether it be traveling or girls, or anything.
+ - Ages ago, my girlfriend had this little park near her house, with a bridge running over a stream and I set up all these candles on the bridge. But when I called her and told her she said it was too dark and she wasn’t coming out.
+ - A good since of humor and someone who is loyal and cute-I like cute girls.
+ - I’ve got four nipples. I think I must have been a twin, but the one other went away and left its nipples behind.
+ - I’d like to take care of someone but at the same time I like girls who are independent.
+ - I’m quite old-fashioned. I like going out to dinner. You have the chance to talk to somebody and get to know them better.
+ - I heard some stuff recently from Julian Casablancas, and his solo stuff is amazing. If I could write with anyone, it would be him.
+ - I meditate and pray before going onstage – it helps me focus.
+ - I wouldn’t say I’m girl-crazy, because that makes me sound like a bit of a womanizer. That isn’t really me. But I am quite flirty – maybe too flirty. I’m an 18-year-old boy, and I like to have fun!
+ - I don’t want to be viewed as a womaniser or whatever. I don’t like going crazy crazy, I like having fun but it’s nice to wake up in your own bed, isn’t it?
+ - Truth is, I don’t mind getting a black eye or broken arm for a girl as long as she’s there to kiss it after.
+ - I like things that involve skill and I love anything that’s a bit of a challenge.
+ - If I wasn’t in the band I reckon I’d be a virgin.
+ - My favorite party trick is to wear nothing but a gold thong in the house.
+ - Quite a lot of the girls I get photographed with are just friends and then, according to the papers, I have, like, 7,000 girlfriends.
+ - Australian schools have cool uniforms. I wish I had to wear a woven straw hat for maths.
+ - A lot of the time, the way it’s portrayed is that I only see women in a sexual way. But I grew up with just my mum and sister, so I respect women a lot.
+ - And you still have to sqeeze into your jeans, but you’re perfect to me...
+ - I’m a huge E! fan. Every hotel room, I watch it all the time. ‘E! News’ is fantastic.
+
+62 quotes

@@ -1,0 +1,21 @@
+ - I care nothing for all the political parties in the world except as they stand for justice.
+ - God made a woman equal to a man, but He did not make a woman equal to a woman and a man. We usually try to do the work of a man and of a woman too; then we break down...
+ - The millennium will not come as soon as women vote, but it will not come until they do vote.
+ - Around me I saw women overworked and underpaid, doing men’s work at half men’s wages, not because their work was inferior, but because they were women.
+ - Nothing bigger can come to a human being than to love a great cause more than life itself.
+ - A gentleman opposed to their enfranchisement once said to me, women have never produced anything of any value to the world. I told him the chief product of the women had been the men, and left it to him to decide whether the product was of any value.
+ - But we are learning from the teaching and example of Jesus that life itself is a religion, that nothing is more sacred than a human being, that the end of all right institutions, whether the home or the church or an educational establishment, or a government, is the development of the human soul.
+ - I have everything in the world that is necessary to happiness – good faith, good friends, and all the work I can possibly do.
+ - Fond as we are of our loved ones, there comes at times during their absence an unexplained peace.
+ - The idealists dream and the dream is told, and the practical men listen and ponder and bring back the truth and apply it to human life, and progress and growth and higher human ideals come into being and so the world moves ever on.
+ - Any woman who does not live for unselfish service is a useless cumberer of the earth.
+ - It is better to be true to what you believe, though that be wrong, than to be false to what you believe, even if that belief is correct.
+ - It is useless to talk virtue to a starving girl.
+ - I wake up every morning with a great desire to live joyfully.
+ - On every side, and at every hour of the day, we came up against the relentless limitations of pioneer life.
+ - Think of submitting our measure to the advice of politicians! I would as soon submit the subject of the equality of a goose to a fox.
+ - When I hear that there are 5,000,000 working women in this country, I always take occasion to say that there are 18,000,000 but only 5,000,000 receive their wages.
+ - I would rather be known as an advocate of equal suffrage than to speak every night on the best-paying platforms in the United States and ignore it.
+ - If the women of the United States, with their free schools and all their enlarged liberties, are not superior to women brought upunder monarchical forms of government, then there is no good in liberty.
+
+19 quotes

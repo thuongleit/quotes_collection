@@ -1,0 +1,75 @@
+ - She’s mine. She always has been, she always will be.
+ - Broken people give broken love. And we are all a little broken. You just have to forgive and sew up the wounds love delivers, and move on.
+ - Please don’t forget me, because the possibility of that hurts more than anything else.
+ - I had now officially secured my front row seat on the train to Hell. Choo choo.
+ - How many times can a heart be broken before it is beyond mend?
+ - I think that after the first time you give your heart away, you never get it back. The rest of your life is just you pretending that you still have a heart.
+ - I was waiting for you – for years. I didn’t live. I just waited for you to come back.
+ - You belong with me. Do you believe me?
+ - Bad things happen because we live in a world with evil.
+ - You have to be willing to be happy. Despite the mess of your life-just accept what’s happened, throw away your ideals, and create a new map of happiness to follow.
+ - I was sitting in a white room hating myself, until you breathed life back into me. You loved me so much that I started to love myself.
+ - You can only give your heart away once, after that, everything else will chase your first love.
+ - Maybe our souls touched underneath that tree. Maybe I decided to love her. Maybe love wasn’t our choice. But when I looked at that woman, I saw myself differently.
+ - Life does not accommodate you, it shatters you. Love is mean, but it’s good. It keeps us alive.
+ - Lies, it sounds demented to want a woman’s lies. But, Olivia loves you with her lies. She lies about how she’s feeling, how she’s hurting, how she wants you when she tells you she doesn’t. She lies to protect you and herself.
+ - When they’re together, it’s like putting a hurricane and a tornado in the same room – you can feel the tension. I didn’t believe in the cliche of soul mates until I saw them together.
+ - Women hold all the power. They should use it like a whip, not offer it up like a sacrifice.
+ - Olivia, I once told you that I would love again, and that you would hurt forever. Do you remember? It was a lie. I knew it was a lie, even as I said it. I’ve never loved anyone after you. I never will.
+ - She has the kind of love that can stain your soul, make you beg not to have one, just to escape the spell she’s put you under. I’ve tried to break myself of her over and over, but it’s pointless. I’ve got more of her in my veins than blood.
+ - When life kicks me, I kick it back.
+ - I love you too, Olivia. More than I could ever love another soul. There hasn’t been a single hour in seven years that I haven’t thought of you.
+ - Look, when you get your memory back and can divulge all your secrets from the past, we’ll have a sleepover and I’ll tell you everything; but, as far as I’m concerned, until that day arrives, we both have amnesia.
+ - Life balances itself on a precarious ledge, we can stay safe up high or propel off the edge.
+ - Human eyes are the sign language of the brain. If you watch them carefully, you can see the truth played out, raw and unguarded.
+ - I have finally accepted that there are consequences to every action. I earned them and they are rightfully mine. There is no time to make bad decisions. Every step is precious. The definition of living is mine.
+ - I fell in love underneath a tree.
+ - Love is illogical. You fall into it like a manhole. Then you’re just stuck. You die in love more than you live in love.
+ - He was my crack. I could never get enough, and when I had him I was already thinking about when I could have him next.
+ - You’re my hiding place. I go to you when I’m messed up.
+ - Handsome, fictional men were so much easier to stomach than real life ones who smelled of Christmas and looked like a Calvin Klein model.
+ - I was a relationship retard. I kicked, shoved, and punched people out of my life, so they never had a chance to hurt me.
+ - There is more to loving someone than just making yourself happy. You have to want him to be happier than you are.
+ - I take my first step and then my second, and right before the door closes, I look once more over my shoulder. Caleb is still under the tree, he winks at me, and I smile.
+ - I struck my match, she poured out her gasoline. We burn now. All the time.
+ - My name is Leah, and I will do anything to keep my husband.
+ - We make love every single day – no matter what. She is the only woman I’ve seen that gets more beautiful with age. She is the only woman I see.
+ - You die in love more than you live in love.
+ - We are all going to die, but I’m going to die first. In the very last second of my life, I will think of you. Senna.
+ - You breathed life back into me. It was instinct for me to be there with you. I didn’t want to save you, I just didn’t know how to leave you.
+ - That was the absolute worst thing about love; no matter how hard you tried, you could never forget the person who had your heart.
+ - Olivia. I’ve lost her three times. The first was to impatience. The second was to a lie so dense we couldn’t work our way through it, and the third time – this time – I’ve lost her to Noah.
+ - You couldn’t get rid of the past. You couldn’t ignore it, or bury it, or throw it over the balcony. You just had to learn to live beside it. It had to peacefully co exist with your present. If I could figure out how to do that, I could be okay.
+ - I make you vulnerable because you love me. That’s the price you pay for love, baby girl.
+ - We are all so broken. Pick up a person, shake them around and you’ll hear the rattling of their broken pieces. Pieces our fathers broke, or our mothers, or our friends, strangers, or our loves.
+ - It’s the worst form of torture a person can imagine-the wait to die.
+ - Your marriage won’t last. Tell Noah the truth; be fair. When you do, come find me, and I’ll give you that baby.
+ - Life always keeps moving, even if it has to drag you along, kicking and screaming.
+ - Love is a Godgiven tool, she tells me. It screws things back in place that were loose, and it cleans out all the broken pieces that you don’t need anymore.
+ - The kiss. The kiss. The kiss. It was chocolate cake and fizzy passion and goose bumps. No one had ever kissed me like that.
+ - How could you forget someone you loved even if I did rip his heart to shreds?
+ - I know, I know, I know that I am the match and she is the gasoline and without each other we are just two objects void of reaction.
+ - She burned hot enough to keep everyone away. It was a good trick, except I played with fire.
+ - We are lovers, fear and I. She calls to me, and I let her in.
+ - I like pain. I like when it lingers. It reminds a person of what they’ve lived through.
+ - She’s not the enemy. She’s just a dirty fighter.
+ - Maybe lifting someone else’s weight makes yours a little more bearable.
+ - He kissed me with color, with drumbeat, and a surgeon’s precision. He kissed me with who he was, the sum of his life – and it was all encompassing. I wondered what I kissed him with since I was only broken parts.
+ - Now that I’ve been thoroughly mind f – ked, I need a cigarette...
+ - You never quite stop loving someone when you’re in that deep.
+ - You’ll be surprised what someone is able to handle given no other choice.
+ - Redhead marrying, amnesia getting, bastard!
+ - You must not let hatred destroy you. You will lose your soul.
+ - That’s why writers write – to say things loudly with ink. To give feet to thoughts; to make quiet, still feelings loudly heard.
+ - I didn’t eat pork either. Except bacon, of course. Everyone eats bacon.
+ - Olivia is a piece of art. You have to know how to interpret her, how to see the beauty under the harsh lines of her personality.
+ - A man is only as good as what he loves most, right?
+ - I have done a number of things to keep this man. I have lied and cheated. I have been sexy and meek, fierce and vulnerable. I have been everything but myself.
+ - Caleb had been my imperfection, with his slightly Americanized British accent, and the way he could play any sport and quote any philosopher. He was such a mix of class and jock, romance and jerk, it made me crazy.
+ - I’ve been all three. And now I’m undecided.
+ - For once, I understood the Caleb mania. He was like a jalapeno, bright and smooth, but dangerously hot. A small part of me wanted to bit him.
+ - Leah has red hair, but Olivia has a red personality. And as far as I’m concerned, red belongs to the love of my life.
+ - The sum of all the things we shouldn’t have done in our lives is enough to kill us with the weight.
+ - One is a choice, and one is not.
+
+73 quotes

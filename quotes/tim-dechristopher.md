@@ -1,0 +1,21 @@
+ - The reality is not that I lack respect for the law; it’s that I have greater respect for justice.
+ - Civil disobedience is an act of love.
+ - If we want to change that status quo, we might have to work outside of those rules because the legal pathways available to us have been structured precisely to make sure we don’t make any substantial change.
+ - It’s really hard to change the world when your first priority is making sure that the little world around yourself doesn’t change.
+ - Until our leaders take seriously their responsibility to pass on a healthy and just world to the next generation, I will continue this fight.
+ - Respond to stressful times by turning towards each other, rather than away from each other.
+ - What one person can do is to plant the seeds of love and outrage in the hearts of a movement. And if those hearts are fertile ground, those seeds of love and outrage will grow into a revolution.
+ - Our security doesn’t come from turning away from the hard stuff; it comes from the knowledge that we can handle it.
+ - I don’t read the Bible as the literal word of God; I don’t view Jesus as a God. I’ve rejected both those statements. I view Jesus as a model for how we should live, and by that definition I do consider myself a Christian.
+ - Alienation is perhaps the most effective tool of control in America, and every reminder of our real connectedness weakens that tool.
+ - My values are primarily motivated by love for other people. I value the non-human world in large part because it’s so vital to human beings. Even my appreciation for wilderness grows out of an understanding of how important wilderness can be for people.
+ - I would never go to jail to protect animals or plants or wilderness. For me, it’s about the people.
+ - That’s why there is such alienation, depression, and despair in our society – because the means we’re employing doesn’t lead to the ends we desire, no matter how hard we work, nor how much “stuff” we accumulate.
+ - We think we have no power when in fact we have more than enough power.
+ - I don’t think a worship of nature is necessary to mount a really strong defense of the environment.
+ - Religious communities have historically been designed to counteract the forces of alienation. That’s why so many successful social movements have relied upon the strength of spiritual communities and a large base of their organizing has been through them.
+ - We need actions that are really coming from people’s souls.
+ - Part of the reason I embrace nonviolence is that it’s the most effective thing we can do. It’s a more advanced tactic than violence. If people who engage in violence want to escalate their tactics, they would escalate to nonviolence.
+ - Dealing with our negative emotions is a crucial preparatory step to taking effective action. You have to grapple with the hard stuff, with the hard realities of the world. This builds your confidence that you can handle those intense situations when they arise.
+
+19 quotes

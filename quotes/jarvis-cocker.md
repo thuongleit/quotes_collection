@@ -1,0 +1,75 @@
+ - Its OK to grow up, just as long as you don’t grow old. Face it you are young.
+ - It’s weird: The leader of the Conservative Party in England is two years younger than me, and I still don’t really feel like a responsible adult.
+ - Being chronically shy I needed to create a persona for myself and be involved with a band where I could be ruler of my own kingdom. Then Pulp became hugely popular and I lost control of it, which is when it all went wrong.
+ - I don’t really care what someone’s background is; creativity can come from any background.
+ - Everybody’s a bit screwed up, you know. You can take it as symptoms of a disorder, or you can take it as personality. Me, I’d rather think it as parts of personality.
+ - The good thing about people really is their iffy-ness and dodginess, isnt it?
+ - The working class has been turned into a consuming class – a situation has been created where people value their worth by what they can afford.
+ - The main thing I don’t like about myself is an absurd level of self-consciousness that makes any sort of social encounter an ordeal for me.
+ - Unless you’re living on the street and surviving on a diet of discarded turkey drumsticks, there’s no point in being gloomy. We’ve spent too long trying to cheer ourselves up by spending money on brightly coloured things we don’t really need. We’ve stopped using our imaginations.
+ - I like bossy girls. I don’t like girls who just do whatever they think you want them to do, and follow you around trying to please you all the time.
+ - There are some quite funny things about getting famous and stuff, but I think there comes a point where you have to think to yourself, “Well, am I doing this because I want to go to a party and meet Britney Spears? Or am I doing it because I want to create something that excites me?”
+ - If you’re in a band or think of yourself as a slightly creative person, you can get quite self-indulgent, so sometimes it’s nice to have those people who bring you down to earth, but in a pleasant way.
+ - I travel backwards and forwards quite a lot. I live very near to the train station. I’m kind of playing at being an expatriate, I suppose.
+ - I recently spent quite a bit of time in Sheffield, England, which is where I’m from. I wouldn’t move back there, but it’s funny when you spend a bit of time in the place where you were brought up. You kind of realize how that place has had quite a big effect on you or made you a certain way.
+ - Money isn’t important, but you have to have enough, so you don’t have to think about it. Thinking about money is a drag.
+ - I am passionate about keeping the human dimension in things. You have to keep the rough edges and the inconsistencies, that’s what makes it interesting. I’ve always striven to be as sloppy as possible.
+ - I love the Internet, but it’s hard not to get lost in it. It’s not like a book where you start and get to the end. It’s like we’ve found a way to encapsulate all of human knowledge within one thing only to learn that you can’t do that. It’s an overabundance of information.
+ - I think life is more interesting when everybody’s jumbled up together. When people separate out into cliques and things, it’s okay, but it’s a bit limiting. You can always learn things from other people. This is my theory.
+ - I know that some filmmakers strive for a kind of naturalistic approach, but you’re never going to capture something that’s really natural – just the simple fact that you choose to put a frame around something means that you’ve already chosen one particular thing to put more attention on.
+ - I’m a sluggish character; I’m a bit slow. For some reason I find it hard to work quickly.
+ - Pulp existed for 12 years before we got famous. Now, you could say that was just lack of imagination, but it’s some kind of quality isn’t it? Tenacity. You could also say it was sloth.
+ - Hawkwind are one of those bands that people introduce you to because you don’t see them on the covers of magazines. I’d heard ‘Silver Machine’ but Russell Senior, who was in Pulp, got me into them. They had a song called ‘Master Of The Universe’ and we nicked the title in 1985 for one of our songs.
+ - The things in my songs are the edited highlights of my life. I don’t go seeking out strange sexual experiences every day of the week.
+ - In no way am I supporting or suggesting that a Conservative government is a good thing, far from it.
+ - The best thing you can give someone is the freedom to make their own mind up – and then, if it’s not working out 5 years later, you can give your opinion.
+ - People who make good music aren’t necessarily nice people.
+ - As a shy kid growing up in Sheffield, I fantasized about how it would be great to be famous so I wouldn’t actually have to talk to people and feel awkward. And of course, as we all know from fairy stories, when you achieve that ambition, you find out you don’t want it.
+ - I’m sure Sting’s a lovely guy. It’s just that nobody wants to be seen as that holier-than-thou thing. That over-earnestness is a bit of a problem with people in bands and celebrities or whatever.
+ - I always thought that I might retire from any form of sexuality by the age of 40 and just become a dignified older person.
+ - I used to look at older people who bothered to still attend nightclubs and couldn’t help but wonder why. Didn’t they realize how foolish they looked? Of course, now that I’m one of those people myself, I have decided that such rules don’t apply to me.
+ - The thing with Disney songs is they’re very manipulative, very sentimental, but they do get you, you know – there’s a kind of sadness to them and that kind of music doesn’t really exist any more.
+ - I appreciate people who try and use language in an interesting way.
+ - I’d never really wanted to have a really ‘private’ life before. But when somebody starts delving into it and printing details through the tabloids for shagging people you shouldn’t have shagged, then that probably made me shy away a bit more from giving too much away.
+ - Tabloids invoke freedom of speech, but they’re not interested in that, they’re just interested in who’s shagging whom, who’s got drunk. And if you take that pretend, faux moral standpoint, you end up with people in public life being completely boring. Like they’ve had their genitals removed.
+ - Anyone who thinks they’re sexy needs their head checked.
+ - I think basically becoming famous has taken the place of going to Heaven in modern society, hasn’t it? That’s the place where your dreams will come true. It’s an act of faith now; they think that’s going to sort things out.
+ - I think the credit crunch is a brilliant thing. We should all stop moaning and start celebrating. When times are tough, it’s an opportunity to start looking at life in a different way.
+ - I am proud, and more than a little excited, to be asked to work with Faber in an editorial capacity. It is my dearest hope that we will produce some fantastic books together.
+ - One of the problems of our modern world is that there’s a lot of things to work through, but, at some point, everybody should take a pause from that and make something, so that it’s not just all one-way traffic.
+ - We live in an age where people are kind of a bit obsessed with celebrity and stuff. You can’t help but be curious about it.
+ - Culture shouldn’t be a pacifying thing. It shouldn’t be something that you just passively accept. I think it should be something that, in some ways, is quite disruptive – makes you think and question things, and actually sparks debate.
+ - There isn’t much I find interesting to write about in middle-class life.
+ - Noise is an easy thing to hide behind. If you make a lot of noise and shout behind that, nobody can tell what you’re singing.
+ - I’d been thinking I’d have to learn how to play really well, but obviously the message of punk was that you just learn three chords in a week and you’re away.
+ - In some ways, I always thought you’re better off behaving like a rock star when you’re a normal person. Because if you do it as a rock star, you’ll end up in the papers and your life will be made a misery.
+ - I do write songs with a political dimension to them sometimes, but I’m always slightly appalled by it when I do.
+ - You get to a certain age and you just want to prove that you can still rock – that you’ve still got it.
+ - We’ve always been a bit out of touch with reality.
+ - For TV you also get those pre-interviews when researchers ask you what you’re going to say. The pre-interview drives me insane. If they’ve already decided the outcome, why don’t I just hand in an essay? Maybe if we talk we’ll find something out. I’d rather just have an awkward pause.
+ - It’s funny how you can intensely investigate one very particular thing, and then it can lead you to other things through links and stuff like that. It’s like you’re going on this selective, very precise detour. But then it is strange because with it being so quick, there must be a difference.
+ - I’m always nervous when I perform anyway.
+ - Every woman I’ve had a relationship with has found this maddening; the fact that I will talk about anything on the stage, and reveal all this stuff, and yet when I’m at home, I clam up and won’t discuss anything intimate or personal.
+ - Well, once you’ve resigned yourself to the fact that you are the more mature pop performer and you’re past the age you ever thought you would do it, you might as well do it as long as you can. As long as I can still lift a microphone, then I’ll do it, you know.
+ - I guess I’m fairly insistent and maybe consistent. If I decide I’ll do something, I generally will.
+ - But I’ve got ideas. I keep my little notebook, I’ve always got that with me. Hopefully there’s more stuff than nonsense in there.
+ - You can do anything when you’re famous. That’s why famous people are so dumb.
+ - It’s good that I managed to hoodwink so many people. I am actually not that nice a person.
+ - What people have to make sure of is that they’re not replicating something that already exists. You really have to ask yourself: “Is there a point in me doing this? Has this already been said before? Is this moving things along or is this just adding to the giant pile of junk that’s already there?”
+ - Part of why I started a band was due to feelings of shyness and social ineptitude. I saw it as some way of being able to interact with people from a safe distance.
+ - I would like to believe in an afterlife; it makes things more palatable. But I’m not banking on it.
+ - I’m always amazed by people who blog all the time and tweet all the time, and still get things done. I don’t know how they do it.
+ - A Conservative government is necessary. There is no credible alternative.
+ - In a song you can kind of stage-manage everything so that it puts you in a good light. And once a song is recorded, it always performs well.
+ - I’m not a religious person but I do like the idea of Sunday as a day set apart from the rest of the week. It’s nice to have a period of reflection and have time to think about things.
+ - I got a pair of red, synthetic satin women’s pants through the post the other day with a phone number on. That was quite strange. I haven’t tried the phone number. In times of stress I may.
+ - For me, the great thing about music is that anybody can do it.
+ - If you wanted to be a creative person and you are confronted with the sum product of mankind’s creativity up to this moment in history, Internet is pretty daunting, like, “Where can I fit my voice in amongst all that?”
+ - The most entertaining songs don’t always come from a nice place. In songs where I think I’m being really sensitive, they seem quite boring actually. I’ve found that the songs that come out of nastier, more misanthropic places are better.
+ - I always feel like there are specific things about Houston. There’s one museum in particular in Houston. So many of the things that I’m interested in now I can sort of trace back to that museum, which introduced me to them.
+ - Don’t think that the things around you don’t count, because they do.
+ - I speak onstage to try to establish some method of communication. The songs are supposed to be a way of communicating. But speech and drinks and sometimes chocolates are also a way of communicating.
+ - If you get involved in music expecting to make a living out of it, then you’ve picked the wrong thing to do. That shouldn’t really be in your mind.
+ - I believe that humans adapt to circumstance. The Internet is quite an unprecedented circumstance, so it’s going to take people a while to get their heads around it.
+
+73 quotes

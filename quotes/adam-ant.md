@@ -1,0 +1,39 @@
+ - Bipolar disorder, manic depression, depression, black dog, whatever you want to call it, is inherent in our society. It’s a product of stress and in my case over-work.
+ - To me, style is consistency.
+ - An 18th century brain, in a 21st century head.
+ - It makes me sad, sad inside, to see a warrior without his pride.
+ - Achievement results from work realizing ambition.
+ - The touring was crazy, it was a lot of work. But I enjoyed it.
+ - I’m a punk rocker. I don’t do Christian.
+ - When you work as hard as you can and as much as you can to make your first album, and you don’t make any money, then you change things.
+ - I feel very grateful to be alive and well enough to make music.
+ - Bad things happen sometimes.
+ - There is always room at the top, don’t let them tell you there is not.
+ - I’ve learned to really just say no. If I don’t want to do something, I won’t do it. There’s nothing that can make me do anything.
+ - Prison’s a walk in the park compared with being sectioned, mate, it really is.
+ - I have suffered from depression for most of my life. It is an illness.
+ - I watched Picasso visit the Planet of the Apes, as the masters rot on walls and the angels eat the grapes.
+ - When they saw you kneeling, crying words you mean. Opening their eyeballs, eyeballs, pretending that your Al Green, Al Green.
+ - The brain isn’t like the heart. They learned how to transplant a heart. The brain is more complex.
+ - I am quite an early riser – I usually get up between 5.30 and 6am and take the dogs out.
+ - People tend to keep their distance.
+ - I’ve never really been nervous about any concerts. I enjoy it so much. All that matters is getting the songs played well, trying to get them to sound as close to the record live, which isn’t easy, because my music is quite complicated to play.
+ - I could be religious, if they sang the hymns to disco.
+ - I want to do a make-up line for men.
+ - Antidepressants are very good, but it’s a clinical cosh, really. Sometimes you have to be knocked out, just to stop; when you’re in that state all you want to do is just sleep, and rest your body and your brain.
+ - I became a man. Before that I was a little boy.
+ - I just became a vegetable for three months. I couldn’t talk to people. I was very ill and that was part of the reason I left college.
+ - I didn’t lose my virginity until I was 18 The first time was a nightmare. Who shows you how to use a condom?
+ - Mile high club, it’s got its ups and downs.
+ - If you make a mistake, you should enjoy it.
+ - I like being infamous. I think it is safe being a cult.
+ - I always like to tell a story.
+ - I think what’s going on with gorillas is pretty bad. The fact is that you can buy gorilla meat in London any day you want it.
+ - Men look like pandas when they try and put make-up on.
+ - When I was sectioned for six months, that was one of the worst experiences of my life, not being able to go out and have freedom. Having experienced it, it’s almost inexplicably awful.
+ - I have loved eight women in my life. I remember every woman’s face.
+ - It’s good to play 100 per cent live – no tricks, no samples, no messing about.
+ - I loved being in a band.
+ - I just think, certainly for live music it should look as good as it sounds.
+
+37 quotes

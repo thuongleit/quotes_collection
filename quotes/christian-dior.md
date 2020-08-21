@@ -1,0 +1,51 @@
+ - A woman’s perfume tells more about her than her handwriting.
+ - Make me a fragrance that smells like love.
+ - After women, flowers are the most lovely thing God has given the world.
+ - Real woman should be capricious.
+ - My dream? To make women happier and more beautiful.
+ - Deep in every heart slumbers a dream and the couturier knows it: every woman is a princess.
+ - Without proper foundations, there can be no fashion.
+ - Individuality will always be one of the conditions of real elegance.
+ - Simplicity, good taste and grooming are the three fundamentals of good dressing and these do not cost money.
+ - Real elegance is everywhere, especially in the things that don’t show.
+ - Perfume is the indispensable complement to the personality of women, the finishing touch on a dress.
+ - There is no such thing as an ugly woman – there are only the ones who do not know how to make themselves attractive.
+ - Black and white might be sufficient. But why deprive yourself of color.
+ - In a machine age, dressmaking is one of the last refuges of the human, the personal, the inimitable.
+ - Everything I know, see or hear, every part of my life is transformed into dresses. They are my daydreams, but they have passed from dreamland into the world of everyday items to wear.
+ - Black is the most slimming of all Colors. It is the most flattering. You can wear black at any Time. You can wear it at any age. You can wear it for almost any occasion. I could write a book about black.
+ - Midnight blue is the only color that can ever compete with black.
+ - Elegance must be the right combination of distinction, naturalness, care and simplicity. Outside this, believe me, there is no elegance. Only pretension.
+ - By being natural and sincere, one often can create revolutions without having sought them.
+ - A dress is a piece of ephemeral architecture, designed to enhance the proportions of the female body.
+ - Long after one has forgotten what a woman wore, the memory of her perfume lingers.
+ - Perfume is a mark of female identity and the final touch of her style.
+ - The detail is as important as the essential is. When it is inadequate, it destroys the whole outfit.
+ - Women, with their sure instincts, realized that my intention was to make them not just more beautiful but also happier.
+ - Zest is the secret of all beauty. There is no beauty that is attractive without zest.
+ - You can never take too much care over the choice of your shoes. Too many women think that they are unimportant, but the real proof of an elegant woman is what is on her feet.
+ - On vacation, you can wear all the colorful and casual clothing that you like, but you must always be elegant.
+ - Every bite you eat stays in mouth for two minutes, for two hours in stomach and for two month on hips.
+ - Bright reds – scarlet, pillar-box red, crimson or cherry – are very cheerful and youthful. There is certainly a red for everyone.
+ - The tones of gray, pale turquoise and pink will prevail.
+ - No elegant woman follows fashion slavishly.
+ - Deep in every heart slumbers a dream.
+ - If you have hooked legs, wear big decolte.
+ - No fashion is ever a success unless it is used as a form of seduction.
+ - You can never take too much care over the choice of your shoes.
+ - My dream is to save them from nature.
+ - You can wear black in any moment of the day, no matter your age. You can wear black with almost any occasion. A black dress is essential for every woman.
+ - I create so that each and every woman is the most beautiful.
+ - Women are most fascinating between the ages of 35 and 40 after they have won a few races and know how to pace themselves. Since few women ever pass 40, maximum fascination can continue indefinitely.
+ - You can never really go wrong if you take nature as an example.
+ - It is not money that makes you well dressed: it is understanding.
+ - Finally, everything that has been part of my life, whether I wanted it to or not, has expressed itself in my dresses.
+ - There is certainly a red for everyone.
+ - The real proof of an elegant woman is what is on her feet.
+ - Of the women in my childhood, I retain above all the memory of their perfumes, perfumes that lingered – filling the lift with fragrance long after they had gone.
+ - The less you can afford for your frocks, the more care you must take with your accessories.
+ - I wanted to be considered a good craftsman. I wanted my dresses to be constructed like buildings, molded to the curves of the female form, stylizing its shape.
+ - The rich live the same all over the world.
+ - It is unforgiveable to do what one doesn’t love especially if one succeeds.
+
+49 quotes

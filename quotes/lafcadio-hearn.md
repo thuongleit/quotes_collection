@@ -1,0 +1,46 @@
+ - All good work is done the way ants do things: Little by little.
+ - To ancient Chinese fancy, the Milky Way was a luminous river, – the River of Heaven, – the Silver Stream.
+ - There are two methods for the literary study of any book – the first being the study of its thought and emotion; the second only that of its workmanship. A student of literature should study some of the Bible from both points of view.
+ - For this reason, to study English literature without some general knowledge of the relation of the Bible to that literature would be to leave one’s literary education very incomplete.
+ - Any idealism is a proper subject for art.
+ - The highest duty of the man is not to his father, but to his wife; and for the sake of that woman he abandons all other earthly ties, should any of these happen to interfere with that relation.
+ - How sweet Japanese woman is! All the possibilities of the race for goodness seem to be concentrated in her.
+ - It has been wisely observed by the greatest of modern thinkers that mankind has progressed more rapidly in every other respect than in morality.
+ - But what is after all the happiness of mere power? There is a greater happiness possible than to be lord of heaven and earth; that is the happiness of being truly loved.
+ - Perhaps there is an idea among Japanese students that one general difference between Japanese and Western poetry is that the former cultivates short forms and the latter longer ones, gut this is only in part true.
+ - One thing is always wrong-always: to cause suffering in others for the purpose of gratifying one’s own pleasures; that is everlastingly wrong.
+ - No man can possibly know what life means, what the world means, until he has a child and loves it. And then the whole universe changes and nothing will ever again seem exactly as it seemed before.
+ - Woo the muse of the odd.
+ - The Shadow-maker shapes forever.
+ - There is one type of ideal woman very seldom described in poetry – the old maid, the woman whom sorrow or misfortune prevents from fulfilling her natural destiny.
+ - Japanese affection is not uttered in words; it scarcely appears even in the tone of voice; it is chiefly shown in acts of exquisite courtesy and kindness.
+ - It is no exaggeration to say that the English Bible is, next to Shakespeare, the greatest work in English literature, and that it will have much more influence than even Shakespeare upon the written and spoken language of the English race.
+ - A great many things which in times of lesser knowledge we imagined to be superstitious or useless, prove today on examination to have been of immense value to mankind.
+ - There was very little suicide among the men of the North, because every man considered it his duty to get killed, not to kill himself; and to kill himself would have seemed cowardly, as implying fear of being killed by others.
+ - In order to comprehend the beauty of a Japanese garden, it is necessary to understand – or at least to learn to understand – the beauty of stone.
+ - Literary success of any enduring kind is made by refusing to do what publishers want, by refusing to write what the public wants, by refusing to accept any popular standard, by refusing to write anything to order.
+ - But every great scripture, whether Hebrew, Indian, Persian, or Chinese, apart from its religious value will be found to have some rare and special beauty of its own; and in this respect the original Bible stands very high as a monument of sublime poetry and of artistic prose.
+ - The great principle of Western society is that competition rules here as it rules in everything else. The best man – that is to say, the strongest and cleverest – is likely to get the best woman, in the sense of the most beautiful person.
+ - French novels generally treat of the relations of women to the world and to lovers, after marriage; consequently there is a great deal in French novels about adultery, about improper relations between the sexes, about many things which the English public would not allow.
+ - Contemporary literature in the West has shown some signs of ethical change.
+ - The subject of Finnish poetry ought to have a special interest for the Japanese student, if only for the reason that Finnish poetry comes more closely in many respects to Japanese poetry than any other form of Western poetry.
+ - A proof of really great art is that it is generally true – it seldom falls into the misapprehensions to which minor art is liable.
+ - At last, in 1611, was made, under the auspices of King James, the famous King James version; and this is the great literary monument of the English language.
+ - Some persons have ventured to say that it is only since Englishmen ceased to believe in the Bible that they began to discover how beautiful it was.
+ - I often imagine that the longer he studies English literature the more the Japanese student must be astonished at the extraordinary predominance given to the passion of love both in fiction and in poetry.
+ - In the world of reality the more beautiful a work of art, the longer, we may be sure, was the time required to make it, and the greater the number of different minds which assisted in its development.
+ - Is woman a religion? Well, perhaps you will have the chance of judging for yourselves if you go to America. There you will find men treating women with just the same respect formerly accorded only to religious dignitaries or to great nobles.
+ - The time of illusion, then, is the beautiful moment of passion; it represents the artistic zone in which the poet or romance writer ought to be free to do the very best that he can.
+ - Of course, the simple explanation of the fact is that marriage is the most important act of man’s life in Europe or America, and that everything depends upon it.
+ - The more you wish to be, the wiser you are; while the wish to have is apt to be foolish in proportion to its largeness.
+ - The proverbial philosophy of a people helps us to understand more about them than any other kind of literature.
+ - It is true that short forms of poetry have been cultivated in the Far East more than in modern Europe; but in all European literature short forms of poetry are to be found – indeed quite as short as anything in Japanese.
+ - As a result, the highly civilized man can endure incomparably more than the savage, whether of moral or physical strain. Being better able to control himself under all circumstances, he has a great advantage over the savage.
+ - But the history of the changes produced by a universal idea is not a history of changes in the individual, but of changes brought about by the successive efforts of millions of individuals in the course of many generations.
+ - Accordingly the Northern races of Europe found their inspiration in the Bible; and the enthusiasm for it has not yet quite faded away.
+ - One of the great defects of English books printed in the last century is the want of an index.
+ - Broad tolerance in the matter of beliefs is necessarily a part of the new ethics.
+ - The Western poet and writer of romance has exactly the same kind of difficulty in comprehending Eastern subjects as you have in comprehending Western subjects.
+ - But I confess that “my mind to me a kingdom is” – not! Rather it is a fantastical republic, daily troubled by more revolutions than ever occurred in South America...
+
+44 quotes

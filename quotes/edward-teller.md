@@ -1,0 +1,42 @@
+ - When you get to the end of all the light you know and it’s time to step into the darkness of the unknown, faith is knowing that one of two things shall happen: either you will be given something solid to stand on, or you will be taught how to fly.
+ - The science of today is the technology of tomorrow.
+ - Today’s science is tomorrow’s technology.
+ - Physics is, hopefully, simple. Physicists are not.
+ - The extinction of the human race will come from its inability to EMOTIONALLY comprehend the exponential function.
+ - Science attempts to find logic and simplicity in nature. Mathematics attempts to establish order and simplicity in human thought.
+ - Physics without mathematics is meaningless.
+ - Life improves slowly and goes wrong fast, and only catastrophe is clearly visible.
+ - One may say that predictions are dangerous particularly for the future. If the danger involved in a prediction is not incurred, no consequence follows and the uncertainty principle is not violated.
+ - The best weapon of a dictatorship is secrecy; the best weapon of a democracy is openness.
+ - No endeavor that is worthwhile is simple in prospect; if it is right, it will be simple in retrospect.
+ - Two paradoxes are better than one they may even suggest a solution.
+ - Secrecy, once accepted, becomes an addiction.
+ - There’s no system foolproof enough to defeat a sufficiently great fool.
+ - A state-of-the-art calculation requires 100 hours of CPU time on the state-of-the-art computer, independent of the decade.
+ - The main purpose of science is simplicity and as we understand more things, everything is becoming simpler.
+ - There is no case where ignorance should be preferred to knowledge – especially if the knowledge is terrible.
+ - Had we not pursued the hydrogen bomb, there is a very real threat that we would now all be speaking Russian. I have no regrets.
+ - I believe in good. It is an ephemeral and elusive quality. It is the center of my beliefs, but it cannot be strengthened by talking about it.
+ - When you’re certain you cannot be fooled, you become easy to fool.
+ - If anyone wants a hole in the ground, nuclear explosives can make big holes.
+ - I believe in evil. It is the property of all those who are certain of truth. Despair and fanaticism are only differing manifestations of evil.
+ - I claim that relativity and the rest of modern physics is not complicated. It can be explained very simply. It is only unusual or, put another way, it is contrary to common sense.
+ - I hate doubt, yet I am certain that doubt is the only way to approach anything worth believing in.
+ - I believe in excellence. It is a basic need of every human soul. All of us can be excellent, because, fortunately, we are exceedingly diverse in our ambitions and talents.
+ - If there ever was a misnomer, it is “exact science.” Science has always been full of mistakes. The present day is no exception. And our mistakes are good mistakes; they require a genius to correct. Of course, we do not see our own mistakes.
+ - I think that intellectuals who end up in hell will have to read page proofs and check indexes there.
+ - No, I’m the infamous Edward Teller.
+ - Could we have avoided the tragedy of Hiroshima? Could we have started the atomic age with clean hands? No one knows. No one can find out.
+ - Secrecy in science does not work. Withholding information does more damage to us than to our competitors.
+ - Society’s emissions of carbon dioxide may or may not turn out to have something significant to do with global warming-the jury is still out.
+ - In our educational institutions applied science may almost be described as a “no-man’s land.”
+ - I tried to contribute to the defeat of the Soviets. If I contributed 1%, it is 1% of something enormous.
+ - My experience has been in a short 77 years that in the end when you fight for a desperate cause and have good reasons to fight, you usually win.
+ - I am guilty of the great crime of optimism.
+ - A fact is a simple statement that everyone believes. It is innocent, unless found guilty. A hypothesis is a novel suggestion that no one wants to believe. It is guilty, until found effective.
+ - The eyes of childhood are magnifying lenses.
+ - We must learn to live with contradictions, because they lead to deeper and more effective understanding.
+ - When Columbus took off, the purpose was to improve trade relations with China. That problem has not been solved to this very day, but just look at the by-products.
+ - There is a time for scientists and movie stars and those who have flown the atlantic to restrain their opinions lest they be taken more seriously than they should be.
+
+40 quotes

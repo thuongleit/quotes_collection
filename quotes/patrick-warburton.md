@@ -1,0 +1,22 @@
+ - The greatest risk is really to take no risk at all. You’ve got to go out there, jump off the cliff, and take chances.
+ - I do believe that we have the opportunity to continue – I repeat myself over and over again with this – to redefine and reinvent ourselves and as long as we do that, then I think we’ve got some pretty good odds in our favor, because we’re not always presenting the same thing.
+ - Let an audience be able to find it themselves without spoonfeeding it.
+ - My only job as an actor is to try and understand the character and, to the best of my ability, bring this character to life.
+ - I thought he was an interesting central figure, central character, one who is definitely not your typical central character figure in a film, who’s easy to like. He’s not easy to like. It forces you to involve yourself with what’s going on.
+ - I’ll work with Jerry Seinfeld any day of the week. Get a nice little paycheck there, but you do it for free. It’s just good to be associated with that man. He’s a great guy.
+ - I have a family to support. And I’m not always going to be doing exactly what I want to do.
+ - You don’t make a fortune doing cartoons. It’s a lot of fun, it keeps you busy, and it’s better than a kick in the pants, absolutely. But doing voiceover work doesn’t make you rich. It just doesn’t.
+ - I believe I’m doing the right thing in trying to step away from that and to take chances and work on little independent films and do stuff like that wild dance scene.
+ - So, deadpan I think just means not acknowledging for one second that you think that this is funny and clever.
+ - Tick is a cartoon character, I don’t know if you’re familiar with him. This is the third step in his evolution. Comic book to cartoon to, now, live-action.
+ - I love westerns. I’ve always wanted to do a western.
+ - I always wanted to do a Disney movie.
+ - You never know what’s going to happen with television these days.
+ - Apparently I work for free, look at some of the independent films I’ve done.
+ - I’ve actually become much, much dumber through being married and having these children. I find that I’m not half as sharp that I once was. I can’t even help them with their 4th and 5th grade vocabulary and math work at this point.
+ - All I try to do is as earnestly and as acutely as I can, conceive a character and try to portray this character just honestly. If the humor is within the absurdity and the awfulness of situations, then let it be seen that way.
+ - There’s not a fortune to be made doing voiceover work unless you’re one of the main voices on The Simpsons. See, there’s The Simpsons, and then there’s everything else.
+ - I don’t know if I ever really considered making a connection with the audience.
+ - I have heard nothing from my friends at The Family Guy. Yeah, I heard that they got picked up again and all that good stuff, but I haven’t heard anything yet. But, you know, I’m very elusive and hard to contact.
+
+20 quotes

@@ -1,0 +1,82 @@
+ - Develop your own compass, and trust it. Take risks, dare to fail, remember the first person through the wall always gets hurt.
+ - Stupid people surround themselves with smart people. Smart people surround themselves with smart people who disagree with them.
+ - Never argue with a drunk or a fool.
+ - You’re going to fall down, but the world doesn’t care how many times you fall down, as long as it’s one fewer than the numbers of times you get back up.
+ - Good writers borrow from other writers. Great writers steal from them outright.
+ - Don’t ever forget that you’re a citizen of this world, and there are things you can do to lift the human spirit, things that are easy, things that are free, things that you can do every day. Civility, respect, kindness, character.
+ - You can only write, ‘Somebody wants something, something else is in their way of getting it.’
+ - Decisions are made by those who show up.
+ - Toby Zeigler: There’s literally no one in the world I don’t hate right now.
+ - Music is what mathematics does on a Saturday night.
+ - Tell me what you think and then tell me what the really smart person in the room who disagrees with you thinks.
+ - With a television series, there’s a hard deadline, and so you have to write even when you’re not writing well.
+ - It wouldn’t kill you to watch a film or pick up a newspaper once in a while.
+ - There’s that process of writing it – then you come out of your room into the sunlight, and you now have to complete the circuit and make the connection finally with the audience.
+ - Elite is not a bad word, it’s an aspirational one.
+ - She’s a person; the doctor pronounces her dead, not the news.
+ - Rule of storytelling: When a character is shoved against a wall, shove them against a wall harder.
+ - A hero would die for his country, but he’d much rather live for it.
+ - I think it’s up to writers to write stuff that is compelling enough that people want to watch.
+ - I love writing. I’m not particularly comfortable in the actual world – I’m much more comfortable on the page. So if I could have a life where I could just slip the pages under the door and somebody would slip me a meal back, then that would be perfect for me.
+ - We live in a world that has walls and those walls need to be guarded by men with guns.
+ - I don’t believe there are two sides to every argument. I think the facts are the center. And watching the news abandon the facts in favor of ‘fairness’ is what’s troubling to me.
+ - Josh: So, Toby, it’s election night. What do you say about a country that goes out of its way to protect even those citizens that try to destroy it? Toby: God bless America.
+ - Decisions are made by those who show up. Don’t ever forget that you’re a citizen of this world.
+ - It seems to me that more and more we’ve come to expect less and less from each other, and I think that should change.
+ - Socializing on the internet is to socializing what reality TV is to reality.
+ - Perhaps something like Facebook couldn’t have been invented by somebody who goes out five nights a week and has a ton of friends and makes friends really easily.
+ - A friend is somebody who says the same things to your face that they would say if you’re not in the room.
+ - Roxy Sorkin, your father just won the Academy Award. I’m going to have to insist on some respect from your guinea pig.
+ - It’s a combination of life being unpredictable, and you being super dumb.
+ - Honestly, I don’t try to guess at what most people want. I don’t think I’d guess right, and I just think that that’s not a good recipe for storytelling. I try to write what I like, what I think my friends would like.
+ - There are no Asian movie stars.
+ - And a wheat thin the size of Lake Tahoe.
+ - My resting pulse as a writer is writing idealistically and romantically; aspirationally. My taste lies in quixotic heroes.
+ - Certainly, last year we did an episode about the census and sampling versus a direct statistic. You just said the word ‘census,’ and people fall asleep.
+ - It’s populated by people who, by and large, have terrific communication skills. Every day is an extraordinary day. For me, it was just a great area for storytelling.
+ - People who don’t know anything tend to make up fake rules, the real rules being considerably more difficult to learn.
+ - President Bartlet: There’s a delegation of cardiologists having their pictures taken in the Blue Room. You wouldn’t think you could find a group of people more arrogant than the fifteen of us, but there they are, right upstairs in the Blue Room.
+ - When I feel that something I’m writing is going well, everything in my life is good and the things in my life that aren’t good are completely manageable. If it’s not going well, Miss America could be standing there in a swimsuit handing me a nobel price and I wouldn’t be happy about it.
+ - I consider plot a necessary intrusion on what I really want to do, which is write snappy dialogue. But when I’m writing, the way the words sound is as important to me as what they mean.
+ - There’s a great tradition in storytelling that’s thousands of years old, telling stories about kings and their palaces, and that’s really what I wanted to do.
+ - I’m a playwright. All I care about is the play being good.
+ - Any time you get two people in a room who disagree about anything, the time of day, there is a scene to be written. That’s what I look for.
+ - I don’t think I write differently when I’m writing a screenplay, as opposed to a stage play or a teleplay. Maybe if I were in a film class and there was time to think about it, we could point out differences.
+ - Writing anything, it sorta starts the way you’d build a castle at the beach. You’re just taking your hands and you’re mounting up sand.
+ - Only criminals and adulterers should have to hide who they are.
+ - Well, I must tell you I write the scripts very close to the bone. So I’m writing episode seven now and couldn’t tell you what happens in episode eight.
+ - The real problem with all drugs is that they work. Fantastically. They’re great, right up until the moment they kill you.
+ - Writers are opposite of athletes, they get better with age.
+ - I’m not interested in the difference between good and bad, I’m interested in the differences between good and great.
+ - As a dramatist, you’re looking for points of friction...
+ - But HBO is less interested in how many people are watching than in how much the people who are watching are liking the show. They didn’t set up their business model to make writers happy. It’s just a nice unintended consequence.
+ - Humans know when it’s not a good story. Unless you do this for a living, you may not know exactly why you don’t like a story, but you can’t fool an audience ever. They know when you have it and they know when you don’t.
+ - What’s interesting, is that I’ve found that the more accomplished a director is, the more secure they are in giving direction that sounds incredibly unsophisticated.
+ - If you feel that strongly about something, you have an obligation to try and change my mind.
+ - I grew up in the theatre. It’s where I got my start. Writing a television drama with theatrical dialogue about the theatre is beyond perfection.
+ - When I write something, I want the best director to direct it. And that’s not going to be me.
+ - A news organization has a much different responsibility. I might not be telling you the whole story. I might not be telling you a story in a manner that is properly sophisticated.
+ - It’s important to remember that, first and foremost, if not only, this is entertainment. ‘The West Wing’ isn’t meant to be good for you.
+ - Conflict, when used as a device, makes for good television and bad journalism.
+ - I’ve never met anyone who has said, “My goal is to make America mediocre.” That’s a kind of hard-right conservative fallacy.
+ - I have a lot of respect for people who are great at ad-libbing, and for writers and directors who are able to create a scene in which that works.
+ - When I was a kid, I wanted to be an actor. I was acting in all the school plays. I went to school for acting. I was really sure that that’s what I wanted to do.
+ - The thing I know how to do most is write a play. I came up loving plays and learning about plays and writing plays. I actually feel like an outsider when I’m writing movies and television.
+ - As an audience member, I like the sound of something that’s been written – I like it to sound written. And then, of course, you can’t do it without the musicians who can play it.
+ - I want to convey that I’m crazy about the Kardashians – but I’m not sure which is which.
+ - It’s nice that HBO is in business with the audience and not with the advertisers. There’s a difference.
+ - The stuff that I write doesn’t work very well as background music. You have to watch it from beginning to end and pay attention as if you were watching a play.
+ - Film doesn’t have to worry. Movies are awesome. There’s no war going on, theaters aren’t going to lose.
+ - That’s a very real feeling – that I don’t have a story to tell. I’m not a pure storyteller. I have a tough time with story.
+ - I’ll get cast occasionally as sort of the jerk version of myself, and I have fun doing that. But it’s really better for everyone if I stay behind the camera.
+ - This is a time for serious people, Bob, and your fifteen minutes are up.
+ - If you can socialize from the privacy of your desk at night in a dark room, you can be a smoother, cooler, funnier, sexy, more everything person than you actually are in real life.
+ - The downside to series television is that the schedule is ferocious. It constantly feels like you have a midterm due that you haven’t started yet.
+ - The guy who wins the Oscar for Best Actor has a much higher bar to clear than the woman who wins best actress.
+ - If I get an idea for a series that I really like, I’m sure I won’t be able to resist coming back and doing it.
+ - I would love for people to think that I am as quick, clever, smart and heroic as the characters that I write, but those characters are characters.
+ - You know, one of the things I like about this world, or at least I like about the way we’re presenting this world, is these issues are terribly complicated – not nearly as black and white as we’re led to believe.
+ - I think that if I couldn’t write, I would be unemployable.
+ - There are television critics, movie critics, and theater critics too who I like and who I follow and I get genuinely bummed when they don’t like something that I’ve written because I usually agree with them.
+
+80 quotes

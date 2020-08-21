@@ -1,0 +1,55 @@
+ - Grief is the price we pay for love.
+ - When life seems hard, the courageous do not lie down and accept defeat; instead, they are all the more determined to struggle for a better future.
+ - It’s all to do with the training: you can do a lot if you’re properly trained.
+ - Good memories are our second chance at happiness.
+ - It has turned out to be an annus horribilis.
+ - My husband has quite simply been my strength and stay all these years, and I owe him a debt greater than he would ever claim.
+ - You got blood on your face, you big disgrace, waving your banner all over the place.
+ - The world is not the most pleasant place. Eventually your parents leave you and nobody is going to go out of their way to protect you unconditionally. You need to learn to stand up for yourself and what you believe and sometimes, pardon my language, kick some ass.
+ - Cowards falter, but danger is often overcome by those who nobly dare.
+ - For Christians, as for all people of faith, reflection, meditation and prayer help us to renew ourselves in God’s love, as we strive daily to become better people. The Christmas message shows us that this love is for everyone. There is no one beyond its reach.
+ - To all those who have suffered as a consequence of our troubled past I extend my sincere thoughts and deep sympathy. With the benefit of historical hindsight we can all see things which we would wish had been done differently or not at all.
+ - Like all the best families, we have our share of eccentricities, of impetuous and wayward youngsters and of family disagreements.
+ - This thing called love, it cries like a baby in a cradle all night. It swings, it jives, it shakes all over like a jelly fish. I kinda like it.
+ - For me, heaven is likely to be a bit of a come-down.
+ - It has been women who have breathed gentleness and care into the hard progress of humankind.
+ - The British Constitution has always been puzzling and always will be.
+ - There are long periods when life seems a small, dull round, a petty business with no point, and then suddenly we are caught up in some great event which gives us a glimpse of the solid and durable foundations of our existence.
+ - For many, Christmas is also a time for coming together. But for others, service will come first.
+ - It is as queen of Canada that I am here. Queen of Canada and all Canadians, not just one or two ancestral strains.
+ - Family does not necessarily mean blood relatives but often a description of a community, organisation or nation.
+ - The lessons from the peace process are clear; whatever life throws at us, our individual responses will be all the stronger for working together and sharing the load.
+ - I declare before you all that my whole life, whether it be long or short, shall be devoted to your service and the service of our great imperial family to which we all belong.
+ - We all need to get the balance right between action and reflection. With so many distractions, it is easy to forget to pause and take stock.
+ - Let us not take ourselves too seriously. None of us has a monopoly on wisdom.
+ - To what greater inspiration and counsel can we turn than to the imperishable truth to be found in this treasure house, the Bible?
+ - It has perhaps always been the case that the waging of peace is the hardest form of leadership of all.
+ - We lost the American colonies because we lacked the statesmanship to know the right time and the manner of yielding what is impossible to keep.
+ - I myself prefer my New Zealand eggs for breakfast.
+ - Work is the rent you pay for the room you occupy on earth.
+ - True patriotism doesn’t exclude an understanding of the patriotism of others.
+ - I should like to be a horse.
+ - It is easy enough to define what the Commonwealth is not. Indeed this is quite a popular pastime.
+ - I have behind me not only the splendid traditions and the annals of more than a thousand years but the living strength and majesty of the Commonwealth and Empire; of societies old and new; of lands and races different in history and origins but all, by God’s Will, united in spirit and in aim.
+ - The upward course of a nation’s history is due in the long run to the soundness of heart of its average men and women.
+ - Therefore I am sure that this, my Coronation, is not the symbol of a power and a splendor that are gone but a declaration of our hopes for the future, and for the years I may, by God’s Grace and Mercy, be given to reign and serve you as your Queen.
+ - At Christmas, I am always struck by how the spirit of togetherness lies also at the heart of the Christmas story. A young mother and a dutiful father with their baby were joined by poor shepherds and visitors from afar. They came with their gifts to worship the Christ child.
+ - I know of no single formula for success. But over the years I have observed that some attributes of leadership are universal and are often about finding ways of encouraging people to combine their efforts, their talents, their insights, their enthusiasm and their inspiration to work together.
+ - Football’s a difficult business and aren’t they prima donnas. But it’s a wonderful game.
+ - Families, friends and communities often find a source of courage rising up from within. Indeed, sadly, it seems that it is tragedy that often draws out the most and the best from the human spirit.
+ - I cannot lead you into battle. I do not give you laws or administer justice but I can do something else – I can give my heart and my devotion to these old islands and to all the peoples of our brotherhood of nations.
+ - 1992 is not a year I shall look back on with undiluted pleasure. In the words of one of my more sympathetic correspondents, it hasturned out to be an Annus Horribilis.
+ - I have been aware all the time that my peoples, spread far and wide throughout every continent and ocean in the world, were united to support me in the task to which I have now been dedicated with such solemnity.
+ - I have to be seen to be believed.
+ - We have all felt those emotions in these last few days. So what I say to you now, as your queen and as a grandmother, I say from my heart.
+ - What were once only hopes for the future have now come to pass...
+ - In remembering the appalling suffering of war on both sides, we recognise how precious is the peace we have built in Europe since 1945.
+ - I believe that there is a great fear in our generation of being labeled as priggish.
+ - These wretched babies don’t come until they are ready.
+ - They are not royal. They just happen to have me as their aunt.
+ - I hope that tomorrow we can all, wherever we are, join in expressing our grief at Diana’s loss, and gratitude for her all-too-short life. It is a chance to show to the whole world the British nation united in grief and respect.
+ - The events that I have attended to mark my Diamond Jubilee have been a humbling experience. It has touched me deeply to see so many thousands of families, neighbors and friends celebrating together in such a happy atmosphere.
+ - This new power, which has proved itself to be such a terrifying weapon of destruction, is harnessed for the first time for the common good of our community.
+ - Madam President, speaking here in Dublin Castle it is impossible to ignore the weight of history, as it was yesterday when you and I laid wreaths at the Garden of Remembrance.
+
+53 quotes

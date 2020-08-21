@@ -1,0 +1,62 @@
+ - Always live your life with your biography in mind.
+ - Just when you think you’ve hit rock bottom, you realize you’re standing on another trapdoor.
+ - Within every elaborate lie, a kernel of truth.
+ - When you grow up – and from the look of things, you have awhile – but you learn things never go back to normal simply because everyone’s sorry. Sorry is ridiculous.
+ - Show me what a man hates and I’ll show you what he is.
+ - Some people are as fragile as butterflies and sensitive and it’s your responsibility not to destroy them. Just because you can.
+ - May you walk a lighted path. May you fight for truth – your truth, not someone else’s – and may you understand, above all things, that you are the most important concept, theory, and philosophy I have ever known.
+ - I’m not afraid of total failure. In the end, we’re all just food for worms, so what are we so worried about?
+ - It’s not fair. It’s not. But then, that’s the game. It makes life great. The fact that it ends when we don’t want it to. The ending gives it meaning.
+ - But when you flee someone, no matter how far you roam, that person will follow you as doggedly as the stars.
+ - For every man there exists bait he cannot resist swallowing.
+ - Betrayal isn’t ridiculous. It’s the reason empires fall.
+ - I hate how the people who really get you are the ones you can never hold on to for very long. And the ones who don’t understand you at all stick around.
+ - Happiness is a hound dog in the sun. We aren’t on Earth to be happy, but to experience incredible things. – Hannah Schneider.
+ - Life was a freight train barreling toward just one stop, our loved ones streaking past our windows in blurs of color and light. There was no holding on to any of it, and no slowing it down.
+ - Freak the ferocious out.
+ - People don’t realize how easy life is to change. You just get on the bus.
+ - Not returning phone calls is the severest form of torture in the civilized world.
+ - Sovereign. Deadly. Perfect.
+ - We’re living longer, we social network alone with our screens, and our depth of feeling gets shallower. Soon it’ll be nothing but a tide pool, then a thimble of water, then a micro drop.
+ - Mortal fear is as crucial a thing to our lives as love. It cuts to the core of our being and shows us what we are. Will you step back and cover your eyes? Or will you have the strength to walk to the precipice and look out?
+ - In college I studied ’60s and ’70s radicalism, student activism, forms of political violence, groups like the Weathermen, the Black Panthers, the Symbionese Liberation Army, the New Left.
+ - If I scribbled a few words on a cocktail napkin and showed it to my family, they’d proclaim it astonishing and more culturally relevant than the Bible.
+ - I was aware now, as ever, that between all people there were First Times You See Them and Last Times you See Them.
+ - There was quantum mechanics, string theory, and then there was the most mind-bending frontier of the natural world, women.
+ - Justice wields an erratic sword, grants mercy to fortunate few. Yet if man doesn’t fight for her, ’tis chaos he’s left to.
+ - He said you couldn’t pretend the terrible things in life didn’t happen. You can’t clean it up. You keep all the refuse and the scars. It’s how you learn. And try to make improvements.
+ - Making love to Aurelia was like rummaging through a card catalog in a deserted library, searching for one very obscure, little-read entry on Hungarian poetry.
+ - Like that lightning that comes out of the blue when there’s not even a storm going on, just a crazy crack in the sky. With something like that right in front of you, you can’t help but feel there’s new possibilities out there.
+ - It’s easy to be yourself in the dark.
+ - It’s got to be some kind of cult. Anyone offers you Kool-Aid or a hot shower, say no.
+ - You journalists bulldoze life’s mysteries, ignorant of what you’re so ruthlessly turning up.
+ - People had an illogical, self-serving rationale when it came to interpreting the behavior of others.
+ - Sadly, American teenagers are to a weightless vacuum as seat cushions are to polyurethane foam -.
+ - It’s what we chase but never find. It is the mystery of our lives, the understanding that even when we have everything we want it is one day to leave us. It’s the something unseen, the lurking devastation, the darkness that gives our lives dimension.
+ - I haven’t always been a writer and I suppose I tiptoed around the idea of writing full time, because it’s so isolating.
+ - It was as if Hannah had sprung a leak and her character, usually so meticulous and contained, was spilling all over the place.
+ - What you tend to find in the personal lives of brilliant men is devastation akin to a nuclear bomb going off.
+ - It’s funny how the night that changes your life forever starts out like all the others.
+ - Good bands you can kind of lose, then come back and realize they’re still good.
+ - Sometimes it takes more courage not to let yourself see. Sometimes knowledge is damaging – not enlightenment but enleadenment.
+ - When I’m creating characters, I definitely think of theme songs. Writing for me is very visual, so I sometimes think of it in terms of a movie with a soundtrack, and try to transfer that to words.
+ - What, really, was the difference between something hounding you and something leading you somewhere?
+ - I was aware too how strange adults were, how theirs lives were vaster than they wanted anyone to realize, that they actually stretched on and on like deserts, dry and desolate, with an unpredictable, shifting sea of dunes.
+ - Look at Picasso. O’Neill. Tennessee Williams. Capote. Were these shiny happy people spreading sunshine? No. Only the greatest of personal demons can force you to do powerful work.
+ - It was never the act itself but our own understanding of it that defeated us, over and over again.
+ - Some people, every now and then, simply had to have One Too Many, go drifty voiced and slouch mouthed, swimming willfully around in their own sadness as if it were hot springs.
+ - Most people ended up, after only a couple of months, so far away from where they’d intended to go, stuck in some barbed underbrush of a quagmire when they’d meant to head straight to the ocean.
+ - Juliet and Romeo be damned, you can’t be in love until you’ve flossed your teeth next to the person at least three hundred times...
+ - It’s a common feeling for people to feel intermittent antipathy toward individuals they’re familiar with.
+ - I believe writers need to be chameleons, or like Meryl Streep, who can play all sorts of characters. A good writer should be able to cross gender lines and people of all social classes. So for me, writing from a male point of view would be a great challenge, that I would look forward to taking on.
+ - Because every one of us has our box, a dark chamber stowing the thing that lanced our heart. It contains what you do everything for, strive for, wound everything around you.
+ - Such things as anguish, woe, affliction, guilt, feelings of awfulness, and utter wretchedness, the bread and butter of Days of Yore and Russians, sadly have very little staying power in these lickety-split Modern Times.
+ - His characters are ravaged, beaten. They walk through infernos and emerged charred doves.
+ - To be next to her was to have everything.
+ - Certainly one of the surprising truths of having a book published is realizing that your book is as open to interpretation as an abstract painting. People bring their own beliefs and attitudes to your work, which is thrilling and surprising at the same time.
+ - As much as some people would like to believe, for their own peace of mind, that the appearance of evil in this world had a clean cause, the truth was never that simple.
+ - God, the boring relative everyone ignores – no one calls, no one writes – until they need a serious favor.
+ - Occasionally when I’m procrastinating writing, I’ll while away the hours on iTunes. You can just keep going forever and find these bands you’d never normally hear of.
+ - Funnily enough, it is the subject one dreads talking about at length one ends up talking about at length, often without the slightest provocation.
+
+60 quotes

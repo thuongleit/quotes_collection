@@ -1,0 +1,97 @@
+ - It’s calm under the waves in the blue of my oblivion.
+ - Now I feel like whatever I do, no one can hurt me. I cannot be violated, I cannot be humiliated, I cannot be disregarded, I cannot be disrespected.
+ - When you feel things deeply and you think about things a lot and you think about how you feel, you learn a lot about yourself.
+ - Don’t waste your crazy!
+ - When you’re surrounded by all these people, it can be lonelier than when you’re by yourself. You can be in a huge crowd, but if you don’t feel like you can trust anyone or talk to anybody, you feel like you’re really alone.
+ - I spend a lot of time trying to not do anything bad to anyone, but you can’t live your life and not hurt people.
+ - How can I ask anyone to love me when all I do is beg to be left alone?
+ - Hunger hurts, but starving works, when it costs too much to love.
+ - I let the beast in too soon I don’t know how to live without his hand on my throat. I fight him always and still. Oh, darling it’s so sweet. You think you know how crazy, how crazy I am.
+ - I just want to feel everything.
+ - I took off my glasses while you were yelling at me once more than once so as not to see you see me react. Should’ve put ’em, should’ve put ’em on again so I could see you see me sincerely yelling back.
+ - I don’t want to give advice to a 19-year-old, because I want a 19-year-old to make mistakes and learn from them. Make mistakes, make mistakes, make mistakes. Just make sure they’re your mistakes.
+ - Dreams can be deceiving, like faces are to hearts.
+ - You fondle my trigger, then you blame my gun.
+ - You can live your whole life in your brain and not experience what’s around you. You go crazy that way. That’s why I have to watch myself when I get isolated for too long.
+ - If I respect myself and believe in what I’m doing, no one can touch me.
+ - I caved in to what people wanted me to do. I thought that they weren’t going to like me if I didn’t.
+ - I’m not turned on, so put away that meat you’re selling.
+ - Everything that happens to me, I experience it really intensely. I feel it very deeply.
+ - Divas are not made, they are born.
+ - I would really like to go back to school. I would love it now.
+ - The quick success was a bit strange to get used to.
+ - My heart went cold and only hollow rhythms resounded from within, but then he rose, brilliant as the moon in full and sank in the burrows of my keep, and all my armor, falling down, in a pile at my feet.
+ - Be kind to me, or treat me mean I’ll make the most of it, I’m an extraordinary machine.
+ - How can you go wrong with two people in love? If a good boy loves a good girl, good. If a good boy loves another good boy, good. And if a good girl loves the goodness in good boys and good girls, then all you have is more goodness, and goodness has nothing to do with sexual orientation.
+ - I’ve gone through stages where I hate my body so much that I won’t even wear shorts and a bra in my house because if I pass a mirror, that’s the end of my day.
+ - I lie in an early bed thinking late thoughts, waiting for the black to replace my blue. I do not struggle in your web because it was my aim to get caught. But daddy long legs I feel that I’m finally growing weary of waiting to be consumed by you.
+ - What will an angel say that the devil wants to know?
+ - It’s a sad, sad world when a girl will break a boy, just because she can.
+ - I have never been So insulted in all my life I could swallow the seas To wash down all this pride First you run like a fool Just to be at my side And now you run like a fool But you just run to hide.
+ - I’m not lazy, but I don’t have that spur on my ass that most people have, like, “Oh, god. I have to get something out or else my career will be over!” I don’t really care if my career is over.
+ - Though dreams can be deceiving; like faces are to hearts, they serve for sweet relieving, when fantasy and reality lie too far apart.
+ - Everybody acts like I’m nuts. I’m not nuts I just want to feel it all.
+ - Heaven help me for the way I am, save me from these evil deeds before I get them done.
+ - Home is where my habits have a habitat.
+ - I don’t mind making a fool of myself. I felt like people would be accepting of that because, to me, that seems like an interesting way to do a show. I’ve always thought that it’s interesting to watch people work things out on stage.
+ - I’ve been a bad, bad girl – I’ve been careless with a delicate man.
+ - I wouldn’t know what to do with another chance if you gave it to me.
+ - I’m a tulip in a cup. I stand no chance of growing up.
+ - The early cars already are drawing deep breaths past my door. And last night’s phrases sick with lack of basis are still writhing on my floor.
+ - I like the idea of the idler wheel – it just sits in between things, but it makes such a big difference in the way that the machine is working. That concept has always been something that has interested me, but I didn’t really know why.
+ - My mind goes to tragedy first.
+ - You know, I’ve always thought that it would be really funny if somebody made a romantic comedy where absolutely everything went well from beginning to end.
+ - If you want to see me cry, just come to a photo shoot.
+ - It pisses me off to think we’re conditioned to push away bad feelings and think anything that’s uncomfortable is to be avoided. When things are really bad nowadays, I recognize the value in it because it’s me filling my quota- it’s going to make my joy more intense later.
+ - My derring-do allows me to dance the rigadoon around you but by the time I’m close to you I lose my desideratum.
+ - I keep living this day like the next will never come.
+ - I’m not a functional person because I don’t go on lunch dates with friends. I hear about people having dinner parties but I never do that. I’m not really human.
+ - My whole life, people have been saying, Why are you so angry?
+ - Everybody sees me as this sullen and insecure little thing. Those are just the sides of me that I feel necessary to show because no one else seems to be showing them.
+ - Nobody is strong enough to not be influenced.
+ - Five years from now I’m probably going to look back on the things I’m doing and cringe.
+ - I realized I was trying to be friends with somebody who I used to be with but who I didn’t get along with. I’m really big on that. I need to be friends with everyone that I’ve ever had a relationship with.
+ - Come on. I got drunk when I was like 5.
+ - I didn’t want to be precious about things. Of course, the idea is to make great music, but if you have great musicians up there, it gives me some leeway to play around a little bit.
+ - I want to be able to do whatever I feel like doing and not worry about anything. Even when I was a kid, the only contemporary artist I listened to was Cyndi Lauper.
+ - I know what my job is: I write the songs, I sing them, I play them on the piano.
+ - I want to be like the patron saint of reality.
+ - No matter how well prepared you are in life, you’re gonna fall down a hole, and if you can fix the frayed ends of things, then you’re better off.
+ - We are like a wishing well And a bolt of electricity.
+ - Never is a promise, and you can’t afford to lie.
+ - Love is a hell you cannot bear.
+ - My scars were reflecting the mist in your headlights I looked like a neon zebra, shaking rain off her stripes.
+ - How can you go wrong with two people in love? Goodness has nothing to do with sexual orientation. Love is love, and there will never be too much.
+ - You’re all I need and maybe some faith would do me good.
+ - As a person who performs on stage, it’s good to be emotionally open. If you mess with someone when they are in that state, it’s like you’re messing with an animal when it’s eating.
+ - If I have one success in my relationship history, it’s with the people who listen to my music. I think that they’ll be there with me forever, and I’ll be there with them forever. And I’m totally satisfied with that.
+ - I can bake. I made myself some nice French fries once. But otherwise I just eat out. Lots of salad bars.
+ - Most of the time you need something to fight against. If something is bothering me, then the only way to get past it is to work through it.
+ - Just tolerate my little fist tugging on your forest chest.
+ - I’m not used to not having enough time to live with the songs. Usually, if I write something, I live with it for a little while.
+ - Love is love, and there will never be too much.
+ - No, I’ve never wanted kids. But I do read about parenting a lot.
+ - I have never bought myself a computer or a phone, but guys in my life have bought them for me, for whatever reason. So now I have them.
+ - I think that, y’know, they seem to really love music, which means they’ll stick with it. I think that Hanson could be really good in a few years, actually!
+ - The only reason that it takes me seven years to do stuff is because I just don’t really have a plan.
+ - In a strange way, I’m way more comfortable onstage than anywhere else.
+ - I dare anybody to look at me and say I’m anorexic. I’m so totally not.
+ - The age thing really bugs me. Do people have more of a right to not like what I say because I’m 19?
+ - Put a little love here in my void.
+ - I still don’t know what Episcopalian means.
+ - I’m here because of what I write. Obviously, I must know something.
+ - I also just accept that I might never want to write a song again.
+ - I used to love to make things – you couldn’t drag me away for dinner because I was always writing a story or something.
+ - I never went to concerts when I was a kid, so I never knew if what I was doing onstage was right.
+ - I was never somebody who grew up going, ‘I really want to be a singer in a band,’ and I never had any ambition toward anything, really.
+ - Let me know the way, before there’s hell to pay.
+ - I got a lot of problems, but I’m really good at intuiting what I need to do to be happy with whatever I create. I know when to stop myself, I know when to start, I know when to leave something alone. I guess I just kind of indulge that completely, and so I just take my time.
+ - Do they think I’m on drugs? That I have a life-threatening illness? That I’m anorexic? Emotionally, it doesn’t get easier to hear those criticisms – but it gets easier to be resolute about my reaction to it.
+ - Everything that happens with me gets made out to be a fiasco, but I have every right to do everything I’ve ever done. I stand by everything I’ve ever said, apologies included.
+ - Categories are gibberish to me. I understand – it helps people organize their thoughts. But you can’t go too far with it.
+ - If I were to imagine myself as an idler wheel inside some big mix of gears, then I would be connected to everything. It’s not like there’s just me and then nothing.
+ - I don’t know if anybody wants to mix their politics with their entertainment.
+ - There were songs I would write about breaking up with somebody before I broke up with them, months and months before I broke up with them.
+ - The worst pain in the world is shame.
+
+95 quotes

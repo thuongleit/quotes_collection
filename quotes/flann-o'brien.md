@@ -1,0 +1,24 @@
+ - Another day gone and no jokes.
+ - Waiting for the German verb is surely the ultimate thrill.
+ - I saw that my witticism was unperceived and quietly replaced it in the treasury of my mind.
+ - Descartes spent far too much time in bed subject to the persistent hallucination that he was thinking. You are not free from a similar disorder.
+ - Hell goes round and round. In shape it is circular, and by nature it is interminable, repetitive, and nearly unbearable.
+ - The dusk was performing its customary intransitive operation of “gathering”.
+ - Questions are like the knocks of beggarmen, and should not be minded.
+ - What you think is the point is not the point at all but only the beginning of the sharpness.
+ - Why should anyone steal a watch when he could steal a bicycle?
+ - Strange enlightenments are vouchsafed to those who seek the higher places.
+ - A wise old owl once lived in a wood, the more he heard the less he said, the less he said the more he heard, let’s emulate that wise old bird.
+ - He went home one evening and drank three cups of tea with three lumps of sugar in each cup, cut his jugular with a razor three times and scrawled with a dying hand on a picture of his wife goodbye, goodbye, goodbye.
+ - I mean to say, whether a yarn is tall or small I like to hear it well told. I like to meet a man that can take in hand to tell a story and not make a balls of it while he’s at it. I like to know where I am, do you know. Everything has a beginning and an end.
+ - Could Henry Ford produce the Book of Kells? Certainly not. He would quarrel initially with the advisability of such a project and then prove it was impossible.
+ - The majority of the members of the Irish parliament are professional politicians, in the sense that otherwise they would not be given jobs minding mice at crossroads.
+ - Moderation, we find, is an extremely difficult thing to get in this country.
+ - A woman doesn’t care if she hasn’t a stomach, provided she looks as if she hasn’t.
+ - I am completely half afraid to think.
+ - It is clear enough that you are making some distinction in what you said, that there is some nicety of terminology in your words. I can’t quite follow you.
+ - Past humanity is not only implicit in each new man born but is contained in him. Humanity is an ever-widening spiral and life is the beam that plays briefly on each succeeding ring. All humanity from its beginning to its end is already present but the beam has not yet played beyond you.
+ - The only result my father got for his money was the certainty that his son had laid faultlessly the foundation of a system of heavy drinking and could be always relied upon to make a break of at least twenty-five even with a bad cue.
+ - I suppose we all have our recollections of our earlier holidays, all bristling with horror.
+
+22 quotes

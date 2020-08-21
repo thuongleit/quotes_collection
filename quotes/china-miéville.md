@@ -1,0 +1,72 @@
+ - My Google-fu is strong.
+ - A trap is only a trap if you don’t know about it. If you know about it, it’s a challenge.
+ - Scars are not injuries, Tanner Sack. A scar is a healing. After injury, a scar is what makes you whole.
+ - Loads of children read books about dinosaurs, underwater monsters, dragons, witches, aliens, and robots. Essentially, the people who read SF, fantasy and horror haven’t grown out of enjoying the strange and weird.
+ - Any moment called NOW is always full of possibles.
+ - So long as it fated, fate didn’t care what it fated.
+ - I’m a science fiction and fantasy geek.
+ - Perhaps the window is not a sun but an asterisk, interrupting the grammar of the sky, with me sitting below it like a footnote.
+ - If you’re brave enough to try, you might be able to catch a train from UnLondon to Parisn’t, or No York, or Helsunki, or Lost Angeles, or Sans Francisco, or Hong Gone, or Romeless.
+ - The dead are way more organized than the living.
+ - I couldn’t tell if I was perspicacious or paranoid.
+ - The summer stretched out the daylight as if on a rack. Each moment was drawn out until its anatomy collapsed. Time broke down. The day progressed in an endless sequence of dead moments.
+ - I have danced with the spider. I have cut a caper with the dancing mad god.
+ - Fantasy and science fiction can be literal as well as allegorical and there’s nothing wrong with enjoying a monster like a giant squid for what it is, as well as searching for metaphor.
+ - Anything for gold and experience.
+ - The problem with most genre fantasy is that it’s not nearly fantastic enough. It’s escapist, but it can’t escape.
+ - London is an endless skirmish between angles and emptiness.
+ - I differ with myself then agree, like the rock that was broken and cemented together. I change my opinion.
+ - Books are always obviously having conversations with other books, and some times they’re amiable and sometimes not.
+ - The best way to write a novel is to do it behind your own back.
+ - I’d never understood the injunction not to regret anything, couldn’t see how that wasn’t cowardice...
+ - A sickly little smile grew and died on his mouth like a fungus.
+ - What I always try to do in all my books is to make the stories such that if you don’t agree with me politically or you’re not interested in the thematics, the story will still keep you turning the pages.
+ - For every action, there’s an infinity of outcomes. Countless trillions are possible, many milliards are likely, millions might be considered probable, several occur as possibilities to us as observers – and one comes true.
+ - Scars are memory. Like sutures. They stitch the past to me.
+ - In time, in time they tell me, I’ll not feel so bad. I don’t want time to heal me. There’s a reason I’m like this. I want time to set me ugly and knotted with loss of you, marking me. I won’t smooth you away. I can’t say goodbye.
+ - Is it more childish and foolish to insist that there is a conspiracy or that there is not?
+ - Word spread because word will spread. Stories and secrets fight, stories win, shed new secrets, which new stories fight, and on.
+ - A sense of wrongness, of fraught unease, as if long nails scraped the surface of the moon, raising the hackles of the soul.
+ - Everything has changed. I cannot be used anymore. Those days are over. I know too much. What I do now, I do for me.
+ - A lot of geeks are pale, bespectacled, wear dark clothing and don’t get out much – the stereotype exists because it is very often true. I could pass for a non-geek but it would be inaccurate.
+ - Dismissing fantasy writing because some of it is bad is exactly like saying I’m not reading Jane Eyre because it is a romance and I know romance is crap.
+ - The reason that I like SF and fantasy and horror is that to me it’s the pulp wing of surrealism. That’s the aesthetic of undermining and creative alienation that I really go for.
+ - I’m a very friendly socialist.
+ - In the deepest places, where physical norms collapse under the crushing water, bodies still fall softly through the dark, days after their vessels have capsized. They decay on their long journey down. Nothing will hit the black sand at the bottom of the world but algae-covered bones.
+ - Ever since I was two, I’ve loved octopuses, monsters, abandoned buildings.
+ - There’s plenty of stuff that I don’t feel dissident about: I really like tea, I don’t have any problem with that. I like lots of paintings.
+ - I think science fiction is very bad at prediction.
+ - Part of the appeal of the fantastic is taking ridiculous ideas very seriously and pretending they’re not absurd.
+ - It had not been a long journey, but the memory of it filled her like an infection. She had felt tethered by time to the city behind her, so that the minutes stretched out taut as she moved away, and slowed the farther she got, dragging out her little voyage.
+ - It felt like being a child again, though it was not. Being a child is like nothing. It’s only being. Later, when we think about it, we make it into youth.
+ - Fantastic fiction covers fantasy, horror and science fiction – and it doesn’t get the attention it deserves from the literati.
+ - I’ll never be a minimalist. The fact that the prose is more tightly controlled doesn’t for a minute mean that it’s minimalist. I very much like arcane words and baroque sentence structure.
+ - I’ll tell you, I’ve never particularly been a ‘Trek’ person. I feel about ‘Trek’ the way one feels about known, vaguely liked, but rather distant members of one’s family.
+ - We should have just killed him, that’s a lesson, don’t get creative with revenge.
+ - I always felt sorry for the sidekick as a kid. They never got their due and it left a very bad taste in the mouth – they are defined by a subordinate relationship to someone else. I always felt like a bit of sidekick when I was a kid and it didn’t feel fair.
+ - Socialism and SF are the two most fundamental influences in my life.
+ - A city like London was always going to be a paradox, the best of it so very riddled with the opposite, so Swiss-cheesed with moral holes.
+ - But I do think it’s important to remember that writers do not have a monopoly of wisdom on their books. They can be wrong about their own books, they can often learn about their own books.
+ - Remember the movements that don’t look like moving.
+ - Geeks run the world. Condoleezza Rice is a geek, Bill Gates is clearly a geek, many of the big filmmakers and writers are geeks, lots of military people are geeks. Anyone who has heard Donald Rumsfeld talk about military hardware knows they are in the presence of a geek.
+ - Personally I don’t like it when writers become excessively proscriptive about the way that people read their books.
+ - My sustenance is information. My interventions are hidden. I increase as I learn. I compute, so I am.
+ - I remember vividly what it’s like to read as a 10-year-old – that passionate inhabiting of a book.
+ - In the field of fantastic fiction, the question of world-building is not uncontroversial. But I grew up with ‘Dungeons and Dragons,’ so that whole world-building thing is very close to my heart.
+ - In every book I write, I try to name-check the most prominent influences, or the most prominent conscious influences.
+ - My job is not to try to give readers what they want but to try to make readers want what I give.
+ - You can’t see the future, there’s no such thing. It’s all bets. You’ll never get the same answer from two seers. But that doesn’t mean either of them’s wrong.
+ - A scholar can never let mere wrongness get in the way of the theory.
+ - I love it when people want to interpret my books.
+ - Every book I write, the first thing I have to do is get into the voice, and the voice varies from book to book – that’s part of what’s interesting to me.
+ - I don’t like allegory.
+ - I like the idea of trying to write a book in every genre.
+ - There are only so many ways to experience pain. There are an almost limitless number of ways to inflict it, but the pain itself, initially vividly distinct in all its specifications, becomes, inevitably, just pain.
+ - While yes we can both agree the sudden recovery of this footage smells not a little, and that we appear to be bits of tinfoil-on-string to some malevolent government kitten, yes yes yes but, Borlu, however they’ve come by this evidence, this is the correct decision.
+ - One of the things that I love so much about fantasy and science fiction is that the weirdness that it creates is always at its best completely its own end and also metaphorically and symbolically laden.
+ - I think the role of science fiction is not at all to prophesy. I think it is to tell interesting, vivid, strange stories that at their best are dreamlike intense versions and visions of today.
+ - I’d never been to a science-fiction convention until I became a professional writer.
+ - I think there’s something quite interesting about the almost tragic quality of a lot of overwrought prose, because it has a much more self-conscious awareness of its own failure to touch the real.
+ - I do, however, feel reasonably strongly the sense that the job of a piece of argumentative scholarly non-fiction is not the same as the job of a piece of fiction.
+
+70 quotes

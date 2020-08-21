@@ -1,0 +1,51 @@
+ - One of the most important leadership lessons is realizing you’re not the most important or the most intelligent person in the room at all times.
+ - Find something you love, because if you love what you do, you’ll never spend a day at work.
+ - You have to live life to its full chorizo.
+ - Once you become an elaborate and well-developed culture, anything from Rome or the Etruscans, for that matter, the food starts to become a representation of what the culture is. When the food can transcend being just fuel, that’s when you start to see these different permutations.
+ - Recipes are just descriptions of one person’s take on one moment in time. They’re not rules.
+ - The tradition of Italian cooking is that of the matriarch. This is the cooking of grandma. She didn’t waste time thinking too much about the celery. She got the best celery she could and then she dealt with it.
+ - Larousse Gastronomique is a veritable dictionary of cooking terms for the French kitchen. If a chef were allowed only one book, this would have to be it.
+ - The Hamptons are usually filled with what I had hoped to leave behind in New York City.
+ - Chefs don’t actually say ‘That’s a spicy meat-a-ball,’ except to indicate that there’s a bomb threat in the restaurant without alarming the customers. Terrorism is the spiciest meatball there is.
+ - What will always remain is love, passion and family time.
+ - In case you’re wondering why Guy Fieri is here, he won a contest.
+ - To eat the boiled head of a pig sliced like salami is very strange. It may seem cutting edge, but it’s actually a lot older than any of the other traditional salami.
+ - It’s fascinating to travel around Italy and realize just how many different ways they make spaghetti.
+ - Although the skills aren’t hard to learn, finding the happiness and finding the satisfaction and finding fulfillment in continuously serving somebody else something good to eat, is what makes a really good restaurant.
+ - Food is “everyday”-it has to be, or we would not survive for long. But food is never just something to eat. It is something to find or hunt or cultivate first of all.
+ - I come from an Italian family. One of the greatest and most profound expressions we would ever use in conversations or arguments was a slamming door. The slamming door was our punctuation mark.
+ - My wife Susi and my kids quite simply are the most fun of all my friends.
+ - Finishing food is about the tiny touches. In the last seconds you can change everything.
+ - When we opened Babbo, we were an indie band. Now we’re kinda Apple. We have 19 restaurants and 2,800 employees, we are no longer perceived as the indie band although we think of ourselves as the indie band, and we operate our restaurants as individual indie bands.
+ - You have to be generous if you want to spend your time making someone else dinner. Even if you’re charging, you’re still giving.
+ - There’s a pretty equitable distribution in the restaurant industry of how money gets paid, except for in the kitchen. The kitchen is the lowest-paid group of people.
+ - When I was a child, our whole family cooked. All my cousins cooked. All my aunts and uncles cooked. It was part of our heritage.
+ - The difference between ‘Molto Italiano’ and ‘The Babbo Cookbook’ is that the ingredient lists in ‘Molto’ are about half or even a third the size. In ‘Babbo,’ they are very long, they are very real. That’s exactly how we make them in the restaurant.
+ - I am happiest when I am with my wife, Susi, and our two boys exploring and loving something for the first time.
+ - There’s a battle between what the cook thinks is high art and what the customer just wants to eat.
+ - Protein has been intensely over-represented on the plate. Now, the garden should be the main drag for main courses.
+ - In growing up in Seattle, I don’t know a single family that didn’t barbecue or cook on the weekends and make its own kind of simple, pared-down, what I call Pacific Northwest cooking.
+ - The Gulf Coast has the potential to create a culinary raw ingredient paradise that smart cooks can capitalize on.
+ - When you cut that eggplant up and you roast it in the oven and you make the tomato sauce and you put it on top, your soul is in that food, and there’s something about that that can never be made by a company that has three million employees.
+ - The very common error of young or unconfident cooks is to keep putting more of their own personal ideology into a plate until there’s so much noise that you really can’t even hear a tune. You can say more in an empty space than you can in a crowded one.
+ - Just because you eat doesn’t mean you eat smart. It’s hard to beat a $1.99 wing pack of three at a fast-food restaurant – it’s so cheap – but that wing pack isn’t feeding anyone, it’s just pushing hunger back an hour.
+ - I really want to be a rock star.
+ - As far away as you can get from the process of mechanisms and machinery, the more likely your food’s going to taste good. And that – that is probably the largest thing I can hand to anybody is let your hands touch it. Let them make it.
+ - I can teach a chimp how to make linguini and clams. I can’t teach a chimp to dream about it and think about how great it is.
+ - I was at a party, and some squiggly looking dude with a bow tie came up and said, ‘How’d you like to be on TV?’ Turns out he was the programming guy at the Food Network. They had me come into the office, and I did a ‘Ready, Set, Cook’ with Emeril Lagasse, I believe.
+ - If you’re going to buy pasta, you should buy dry pasta. If you’re going to make it you can make the real thing, but you shouldn’t buy fresh pasta.
+ - Reading is a key feature in the life of every single successful person I have ever met.
+ - I think in times of bizarre strangeness, what you can and should do is spend time with your family eating lunch or dinner. And if you can do that, you will restore us to the peace.
+ - My last meal? The food would be much less significant than the company.
+ - There are two activities in life in which we can lovingly and carefully put something inside of someone we love. Cooking is the one we can do three times a day for the rest of our lives, without pills. In both activities, practice makes perfect.
+ - I would challenge any American cook, regardless of what they’ve learned from their mom, to operate a restaurant and not have spent any real time in Italy.
+ - My kids and I make pasta three days a week now. It’s not even so much about the eating of it; they just like the process. Benno is the stuffer, and Leo is the catcher. They’ve got their jobs down.
+ - Indianapolis versus Denver would not be a great one gastronomically.
+ - The Italians were eating with forks when the French were still eating each other.
+ - There are pockets of great food in Spain, but there are also pockets of very mediocre food in Spain, and the same in Morocco and the same in Croatia and the same in Germany and the same in Austria.
+ - Look at cookbooks with your kids and ask them what sounds good.
+ - Food is much better off the hand than the fork.
+ - Jimmy Fallon and I play regularly at the Bayonne Golf Club in Jersey. He’s eighteen holes of fun. Any time we play he has moments of brilliance, but also moments of utter catastrophe.
+ - Day-old bread? Sadly, in America a lot of day-old bread just becomes nasty. Italian day-old bread, not having any preservatives in it, just becomes harder and it doesn’t taste old. What I would warn people about is getting bread that’s loaded with other things in it, because it starts to taste old.
+
+49 quotes

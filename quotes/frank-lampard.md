@@ -1,0 +1,73 @@
+ - Before my mother died, she told me not to leave Chelsea.
+ - Goals never come easy. No one gives you goals.
+ - I am a man who likes to play consistently; I always play better when I’m on a run of games.
+ - I think as far as kids go, you just have to work hard. Work on your skills, keep focused.
+ - I’m happy here, and why change when you love the club and the club’s in a really good position right now.
+ - I can’t stress the importance of working hard enough, work on all aspects of your game. If you does that and you have the ability, you’ll come through.
+ - If you’re going to be a man that reads the papers and takes everything as gospel truth, that’s a sign of who you are, that isn’t a sign of the reality.
+ - Everyone’s got unfinished business with Barcelona. They’re the greatest team in the world.
+ - To be honest, I was Mum’s boy. Always was, always will be.
+ - I never relax on the year before. Every year I want to get more out of myself so I use it as a driving force, rather than a pressure thing.
+ - I’m a very private person, and you have a lot of people looking into your personal life, away from football. That’s the one thing that I don’t like, but I always remember how lucky we are that we’re playing football.
+ - I don’t know if we’d have been as dominant as we were last season. The new things, the new ideas the manager brought in everyone took them on board so well. He is special.
+ - If players are performing for you, their age shouldn’t really matter, especially because the older players can bring their experience to the table.
+ - The advantage does lie with us because we’re at home and if we can’t motivate ourselves for this match then we can’t motivate ourselves for any match. I think the crowd will be up for it as well.
+ - Reading and writing is so important, and it’s something I am really keen to promote. It’s something that can be a bit lost these days with so much else going on.
+ - Reading with my children is incredibly important to me and a wonderful way to spend time together as a family, exploring magical worlds through books and stories.
+ - I didn’t want to be the rebel who was bottom of the class, so I worked hard. They wanted me to stay on for A-Levels, but football came calling – that was my real love.
+ - There is such a belief in the squad that we could really do something.
+ - When I was at school, I wanted to be a lawyer.
+ - When I came to Chelsea from West Ham there were certain parts of my game I felt I needed to improve and I like to think now that I have shown dramatic improvement.
+ - I think about all my successes and failures, and sometimes the failures stick in your head as much as the wins. But you do move on.
+ - I always dedicate my goals to my mum. I lost her a couple of years ago. She was my biggest supporter and is always with me.
+ - A lot of things happened when I left there, and to be fair they treated me really bad, and now I have to play against them so I don’t have any feelings for them at all.
+ - I was always pretty good at school, but a lot of it was memorising, maybe cheating off your mates, stuff that gets you through.
+ - I don’t want to be a passenger sitting on the bench not doing much, even in my older years.
+ - I’m really happy here. I think anyone who knows me well, and the fans too I hope, they know that I love the area, and the bond that I’ve had with the fans has been fantastic.
+ - I think I work harder on the pitch, I cover more ground and my passing is more accurate.
+ - For present buying, I go to Harrods because there are great personal shoppers, who point me in the right direction.
+ - If I lose the ball, I lose it trying to do the right thing. That’s the way it is.
+ - Barcelona are my favourite team in Spain, let’s put it that way.
+ - Even with the quality of players that we have, they’re an extremely hard side to break down and once they get on top of you, you find it difficult to stem the flow of attacks.
+ - Every season will have its dips and hard moments, and the challenge then is to make sure you don’t get too down in those moments and make sure you come back fighting.
+ - But what club wouldn’t welcome the chance to strengthen their side, what club would turn down the resources Chelsea have?
+ - I like to go to America. That’s where I go for most of my holidays.
+ - Training’s completely different now. It used to be a lot of running and work without the ball. Now it’s all with the ball, which any player loves.
+ - I have never seen a player as driven and determined as me, quietly determined; that’s why I always want to do the best.
+ - Footballers do get a hard time, and there is a lot of generalization going on. When you get to meet players and know them as lads, it’s always a bit different.
+ - The title is still on the cards until it’s off the cards.
+ - I have a lot of good football talk with cabbies, but when you want to get somewhere in a hurry, it can be distracting. I always know they’re going to want to talk football if ‘Talksport’ is on the radio.
+ - I’m not the kind of player to see out my time and sit with my bum on the bench too much. I want to be involved. That’s my character.
+ - I’m not silly. I understand that, with age and at different parts of your career, you have different challenges.
+ - There’s so many kids out there and it’s such a cut-throat world. I’ve seen a lot of my mates, you know, who are better players than me at a certain age, and they’re not in football now.
+ - In a way, I’ve thrived on the competition, perhaps it has made a better player because of it.
+ - I am certainly not the most talented player in the world; there’s many a more talented player than me.
+ - That’s the statement of the culture of England and Britain that someone would try to con a personal statement out of you to then be broadcast everywhere for everyone to debate.
+ - I read Michael Caine’s biography. It was about him growing up.
+ - Of course it is going to be difficult for any player to get in the Chelsea side no matter who they are.
+ - But to be fair, Arsenal are a quality side. They’re not where they are by chance – they are not top of the league and unbeaten because they are a bad team.
+ - Remember every team wants to beat Chelsea, probably even more than Manchester United or Arsenal because they believe we have an unfair advantage.
+ - I fancy our chances at the European Championships.
+ - When you look at the caliber of players in the England squad and their ability, why should we go into the tournament fearing anyone?
+ - You remember the finals you lose as much as the ones you win.
+ - I’m like everyone else: I want to play every game, but it’s not possible.
+ - If I could have been anyone in the world, it would have been Ronaldinho. He’s fantastic, I love watching him.
+ - Obviously, it has taken time to work with the players around me and with so many new faces coming in the summer, in a way it’s been more difficult.
+ - Being faster would probably make me better at football.
+ - I think every player enjoys praise and I have to work extremely hard on the training ground to bring my game together.
+ - I come from a football family which has really helped.
+ - Nobody expects a footballer to have any kind of an IQ, which is a bit of an unfair stereotype.
+ - I loved reading Roald Dahl when I was young but I had forgotten a lot about the books. I read the ‘BFG’ on the iPad the other day and it was so interesting to see his descriptions of clothes and places.
+ - Of course, there will be few people who are sympathetic but you don’t become a great team overnight, no matter how much money you have at your disposal.
+ - My dad shaped the footballing side of me, and Mum shaped me as a person. I’ve always been very close to her – we’ve only ever had one argument, and that was over something stupid when I was 13.
+ - Henry is a great man, I really like him. He is a great professional and I think he will be a great captain for them. He’s been the outstanding player in the Premiership for the last three or four years.
+ - I’ve enjoyed every minute of travelling and playing for my country. What an honour that is.
+ - If I ever have a son, I would call him Frankie, and it’s a family name – it’s my dad and my dad’s dad, so you know, it sticks. I won’t forget it.
+ - I admit I was somewhat concerned when we started to sign so many players – naturally you are going to worry about whether you can retain your place in the side.
+ - Having grown up watching Barcelona, Elen gets a bit annoyed watching me if I don’t do flicks and tricks like Ronaldinho. I have to explain you can’t do that all the time in a game!
+ - As far as I see it you just can’t give Messi space in the dangerous areas – we have to close him down, get tight and give him as little room as we can because if you don’t, he can destroy you.
+ - I think it was in Moscow last year and I got changed for training the day before we played Moscow, but the fact is they actually wanted to do John’s, me and John were next to each other and they did mine by mistake. John had done them I think. So yeah it is true.
+ - In international football, you need pace and you need your players up top to create things out of nothing and run at people.
+ - When you take a lot of stick you want to ram it down people’s throats.
+
+71 quotes

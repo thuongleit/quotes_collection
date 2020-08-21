@@ -1,0 +1,48 @@
+ - You don’t know what mental telepathy exists from the human to the animal.
+ - When you love someone, you treat them well.
+ - I have a strong Lutheran background, and my parents instilled in me strong morals.
+ - I had to be extremely strong to fight off Mr Hitchcock. He was so insistent and obsessive, but I was an extremely strong young woman, and there was no way he was going to get the better of me.
+ - Birds I am fine with – spiders are an entirely different matter.
+ - I was studying my ‘Bold and Beautiful’ script the other day, lying in a hammock, when one of my Siberian tigers walked up and grabbed it out of my hand – she wanted to play. See – teeth marks!
+ - You don’t see sick animals in the wild. You don’t see lame animals in the wild, and its all because of the predator: the lion, the tiger, the leopard, all the cats.
+ - My light shines when things get really tough.
+ - Being the object of Alfred Hitchcock’s obsession was horrific, but while he ruined my career, he could never ruin my life.
+ - As far as I know, Vera Miles had a terrible time with Hitchcock, and she wanted to get out of the contract. He didn’t let her. She did ‘Psycho,’ and I believe, if you look at ‘Psycho,’ there isn’t one close up of Vera, not one. After that, she would never even speak about him to anyone.
+ - I can look at myself in the mirror, and I can be proud.
+ - To be the object of someone’s obsession is horrible.
+ - I’m regarded as the patron saint of manicurists.
+ - We had a lion that was living in somebody’s basement outside of Branson, Missouri.
+ - If people could be as honest as animals, what a different world it would be.
+ - I didn’t think any amount of money was worth something that would take away what you believed in or what you stood for. I didn’t want to do something my parents and daughter couldn’t be proud of.
+ - I really like birds. Everyone always wants me to say that I can’t stand to go near them, just like they want Janet Leigh to confess that she can’t bear to take a shower. Well, I’m sorry to disappoint you.
+ - Self-belief? My parents gave it to me.
+ - You can have a million dollar, 20 million dollar budget or 60 million dollar budget, and if you don’t have a good script, it doesn’t mean a thing.
+ - I really need to work. People think that I’m no longer interested in acting and only interested in work-ing with the animals. Obviously I have given that impression, but it is not how I feel. I think I’m a good actor. I think I look OK. I don’t understand why I’m not working all the time.
+ - I don’t know if you have ever been the object of someone’s obsession – but if it’s not of your desire, it is horrible. It is really awful.
+ - I kind of look at my modeling career and the Hitchcock years as stepping stones to what I’m doing now.
+ - Honest to God, all my life I have had such a fear of spiders. In fact, I use to have a reoccurring dream about one. Very clearly, it was black with a red head. It would sit up in the corner of the bedroom and when it started getting closer, I would wake up in a panic.
+ - Because of ‘The Birds’ and ‘Marnie’ I was, as the expression goes, hot in Hollywood and producers and directors wanted to hire me.
+ - It does take a little work to be a vegetarian but it’s so worth it, oh it’s so worth it!
+ - Hitchcock had a very strange mind.
+ - I kinda go for the Jane Eyre type of film. I am fascinated by classics.
+ - I shouldn’t be married.
+ - Everything that I’ve done in my life was to lead me to my work with the animals.
+ - I had to have help getting up these stairs because I’ve been tackled by so many lions and tigers. Really. I’m like an old football player.
+ - Federal legislation is urgently needed to stop this insanity of wild animals in captivity.
+ - It is up to the public to stop attending these theatrical, and aquatic shows, and circuses with wild animals. The rhetoric about how the animals are happy and well cared for are lies. Don’t be swayed by them. The money behind these shows is huge; there is nothing good about them.
+ - He was such a fabulous drama coach. What better person to have than Alfred Hitchcock? His work as a director was impeccable. I learned so much.
+ - There were so many people who wanted me for their films.
+ - So I think it is common knowledge that Hitchcock had fantasies or whatever you want to call them about his leading ladies.
+ - I know so many people who are eaten up by regret. It manifests itself in so many ways. They either become mentally a bit off, or they get very fat, or they are just horribly depressed.
+ - Ive always had a fascination for animals. I loved watching them, and even then I thought of them as beings rather than pets. I call it a birth affect!
+ - Hitchcock had a charm about him. He was very funny at times. He was incredibly brilliant in his field of suspense.
+ - I could really use a corporate sponsor. People think that because you’re in the movies, you’re rich. I have allocated all my resources to Shambala so the animals will always be safe.
+ - In most states, it’s more difficult to get a license for your dog than it is to buy a big cat. Right now, there are more tigers in the state of Texas than in all of India.
+ - It has become my mission to stop the insanity of wild cats as pets.
+ - I use every single thing that Alfred Hitchcock taught me in my acting career I am very grateful for the education he gave me in making motion pictures.
+ - I’ve had a love of animals from birth. I love getting to know other species. We should all be aware that there is not one thing we can give a wild animal in captivity that they need.
+ - I was at the end of the studio system so when I walked into movies, I had a magnificent suite in which I had a living room and a kitchen and a complete makeup room. I had everything just for me. With the independents, you’re kind of roughing it, literally.
+ - So I do have to work, you know, and I find as many movies and TV shows that I can, because otherwise I wouldn’t have an income.
+ - It’s going to be very interesting to see somebody playing me.
+
+46 quotes

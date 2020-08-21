@@ -1,0 +1,124 @@
+ - Even after all this time, the sun never says to the earth, ‘you owe me.’ Look what happens with a love like that! It lights up the whole sky.
+ - I wish I could show you when you are lonely or in darkness the astonishing light of your own being.
+ - Your heart and my heart are very, very old friends.
+ - You yourself are your own obstacle, rise above yourself.
+ - Stay close to anything that makes you glad you are alive.
+ - Ever since happiness heard your name, it has been running through the streets trying to find you.
+ - This place where you are right now, God circled on a map for you.
+ - Don’t surrender your loneliness so quickly. Let it cut you more deep. Let it ferment and season you as few humans and even divine ingredients can. Something missing in my heart tonight has made my eyes so soft, my voice so tender, my need for God absolutely clear.
+ - Run my dear, from anything that may not strengthen your precious budding wings. Run like hell my dear, from anyone likely to put a sharp knife into the sacred, tender vision of your beautiful heart.
+ - Fear is the cheapest room in the house. I would like to see you living in better conditions.
+ - For I have learned that every heart will get What it prays for Most.
+ - An awake heart is like a sky that pours light.
+ - Learn to recognize the counterfeit coins that may buy you just a moment of pleasure, But then drag you for days like a broken man behind a farting camel.
+ - Start seeing everything as God, But keep it a secret.
+ - I am in love with every church And mosque And temple And any kind of shrine Because I know it is there That people say the different names Of the One God.
+ - Listen; this world is the lunatic’s sphere, Don’t always agree it’s real, Even with my feet upon it And the postman knowing my door My address is somewhere else.
+ - I once asked a bird, how is it that you fly in this gravity of darkness? She responded, ‘love lifts me.’
+ - When all your desires are distilled; You will cast just two votes: To love more, And be happy.
+ - Now that all your worry has proved such an unlucrative business. Why not find a better job.
+ - Join me in the pure atmosphere of gratitude for life.
+ - Your love Should never be offered to the mouth of a Stranger, Only to someone Who has the valor and daring To cut pieces of their soul off with a knife Then weave them into a blanket To protect you.
+ - The small man builds cages for everyone he knows While the sage, who has to duck his head when the moon is low, Keeps dropping keys all night long For the beautiful rowdy prisoners.
+ - And the sun and the moon sometimes argue over who will tuck me in at night. If you think I am having more fun than anyone on this planet, you are absolutely correct.
+ - Come Dance with Me, come dance.
+ - Light will someday split you open.
+ - The sun will stand as your best man And whistle When you have found the courage To marry forgiveness When you have found the courage to marry Love.
+ - Fear is the cheapest room in the house.
+ - I caught the happy virus last night When I was out singing beneath the stars. It is remarkably contagious – So kiss me.
+ - Pulling out the chair beneath your mind And watching you fall upon God What else is there for Hafiz to do that is any fun in this world!
+ - Everyone Is God speaking. Why not be polite and Listen to Him?
+ - The Earth would die If the sun stopped kissing her.
+ - How did the rose ever open its heart and give to this world all of its beauty? It felt the encouragement of Light against its being; otherwise we all remain too frightened.
+ - Your separation from God is the hardest work you will ever do.
+ - The heart is a thousand stringed instrument that can only be tuned with love.
+ - Laugh because that is the purest sound.
+ - My dear, Is it true that your mind is sometimes like a battering Ram Running all through the city, Shouting so madly inside and out About the ten thousand things That do not matter?
+ - When no one is looking, I swallow deserts and clouds and chew on mountains knowing they are sweet bones! When no one is looking and I want to kiss God, I just lift my own hand to my mouth.
+ - I am happy even before I have a reason.
+ - I should not make any promises right now, But I know if you Pray Somewhere in this world – Something good will happen.
+ - Love sometimes wants to do us a great favor: hold us upside down and shake all the nonsense out.
+ - What is this precious love and laughter budding in our hearts? It is the glorious sound of a soul waking up!
+ - What do sad people have in common? It seems they have all built a shrine to the past and often go there and do a strange wail and worship. What is the beginning of Happiness? It is to stop being so religious like that.
+ - I know you have a hundred complex cases against God in court, but never mind, let’s just get out of this mess.
+ - Oh, you who are trying to learn the marvel of Love through the copy book of reason, I’m very much afraid that you will never really see the point.
+ - Carry your heart through this world like a life-giving sun.
+ - I Have Learned so much from God That I can no longer call myself A Christian, a Hindu, a Muslim, A Buddhist, a Jew.
+ - One regret dear world, that I am determined not to have when I am lying on my deathbed is that I did not kiss you enough.
+ - I am a hole in a flute that the Christ’s breath moves through. Listen to this music.
+ - Now is the time to know that all that you do is sacred.
+ - It is written on the gate of heaven: Nothing in existence is more powerful than destiny. And destiny brought you here, to this page, which is part of your ticket-as all things are-to return to God.
+ - There is A madman inside of you Who is always running for office.
+ - Plant a Seed so your Heart will Grow.
+ - Sing because this is a food our starving world needs. Laugh because that is the purest sound.
+ - The tide of my love Has risen so high let me flood over You.
+ - The great religions are the ships, Poets the life boats. Every sane person I know has jumped overboard.
+ - We have come into this exquisite world to experience ever and ever more deeply our divine courage, freedom and light!
+ - I rarely let the word NO escape from my mouth, because it is so plain to my soul that God has shouted, Yes! Yes! Yes! To every luminous movement in existence.
+ - When you can make others laugh with jokes that belittle no one and your words always unite, Hafiz will vote for you to be God.
+ - How seamless seemed love and then came trouble!
+ - Grieve not; though the journey of life be bitter, and the end unseen, there is no road which does not lead to an end.
+ - The world is like an eye, a beard, a spot of beauty and eyebrow, Where each thing is neatly in place.
+ - For a day, just for one day, talk about that which disturbs no one and bring some peace into those beautiful eyes.
+ - I long for You so much I follow barefoot Your frozen tracks That are high in the mountains That I know are years old. I long for You so much I have even begun to travel Where I have never been before.
+ - Now is the time to understand That all your ideas of right and wrong Were just a child’s training wheelsTo be laid aside When you finally live With veracity And love.
+ - Whatis the root of all these words? One thing: Love. But a love so deep and sweet it needed to express itself with scents, sounds, colors that never before existed.
+ - The moon asked me to meet her in a field tonight. I think she has amorous ideas.
+ - There are different wells within your heart. Some fill with each good rain, Others are far too deep for that.
+ - God and I have built an immense fire together. We keep each other happy and warm.
+ - Not loving is a letting go. Listen, The terrain around here Is Far too Dangerous For That.
+ - Think of suffering as being washed.
+ - We have not come here to take prisoners But to surrender ever more deeply To freedom and joy.
+ - Be content with what thou hast received, and smooth thy frowning forehead, for the door of choice is not open either to thee or me.
+ - I have no use for divine patience – My lips are now burning and everywhere. I am running from every corner of this earth and sky Wanting to kiss you.
+ - How Do I Listen to others? As if everyone were my Master Speaking to me His Cherished Last Words.
+ - Let’s get loose with Compassion. Let’s drown in the delicious ambience of Love.
+ - Let tenderness pour from your eyes, the way sun gazes warmly on earth.
+ - If, like the prophet Noah, you have patience in the distress of the flood, Calamity turns aside, and the desire of a thousand years comes forth.
+ - Come, for the House of Hope is built on sand: bring wine, for the fabric of life is as weak as the wind.
+ - This is the kind of Friend You are – Without making me realize My soul’s anguished history, You slip into my house at night, And while I am sleeping, You silently carry off All my suffering and sordid past In Your beautiful Hands.
+ - People say that the soul, on hearing the song of creation, entered the body, but in reality the soul itself was the song.
+ - Why not become the one Who lives with a full moon in each eye That is always saying, With that sweet moon Language What every other eye in this world Is dying to Hear?
+ - Hair disheveled, smiling lips, sweating and tipsy, garment torn, singing a love song, glass in hand, picking a quarrel, chanting a spell, yesterday at midnight she came and sat by my bed.
+ - A poet is someone who can pour light into a cup, then raise it to nourish your beautiful parched, holy mouth.
+ - Words have no language which can utter the secrets of love; and beyond the limits of expression is the expounding of desire.
+ - Grieve not because thou understand-not life’s mystery; behind the veil is concealed many a delight.
+ - Greatness is always built on this foundation: the ability to appear, speak and act, as the most common man.
+ - On the neck of a young man sparkles no gem so gracious as enterprise.
+ - True art awakens the Extraordinary Ovation.
+ - We don’t need sugar, flour or rice or anything else. We just want to see our dear ones.
+ - Time is a factory where everyone slaves away earning enough love to break their own chains.
+ - On the holy boughs of the Celestial Tree High up in the heavenly fields, Beyond terrestrial desire My soul-bird a warm nest has built.
+ - Run my dear, From anything That may not strengthen Your precious budding wings.
+ - Every desire of your body is holy; Every desire of your body is Holy.
+ - The earth has disappeared beneath my feet, It fled from all my ecstasy. Now like a singing air creature I feel the rose keep opening.
+ - The lips of the one I love are my perpetual pleasure...
+ - Thou learnest no secret until thou knowest friendship, since to the unsound no heavenly knowledge enters.
+ - Only a Perfect One who is always laughing at the word two can make you know of Love.
+ - Woe to the dupe that yields to Fate!
+ - Speak but little, and that little only when thy own purposes require it. Heaven has given thee two ears but only one tongue, which means: listen to two things, but be not the first to propose one.
+ - How seek the way which leadeth to our wishes? By renouncing our wishes. The crown of excellence is renunciation.
+ - You have actually waltzed with tremendous style, my sweet, O my sweet, crushed angel.
+ - Only heart to heart can speak the bliss of mystic knowers.
+ - What we speak becomes the house we live in.
+ - We are People who need to love, because Love is the soul’s life, Love is simply creation’s greatest joy.
+ - Remember for just one minute of the day, it would be best to try looking upon yourself more as God does, for She knows your true royal nature.
+ - The world is a bride of surpassing beauty-but remember that this maiden is never bound to anyone.
+ - Poetry reveals that there is no empty space.
+ - All your wounds from craving love Exist because of heroic deeds.
+ - All these words are just a front. What I would really like to do is chain you to my body, then sing for days and days and days.
+ - I do not feel like writing verses; but as I light my perfume burner with myrrh and jasmine incense, they suddenly burgeon from my heart, like flowers in a garden.
+ - Love is simply creation’s greatest joy.
+ - This sky where we live is no place to lose your wings so love, love, love.
+ - Happiness is right in front of you.
+ - Your life within God’s arms, Your dance within God’s arms, Is already Perfect!
+ - There is no pleasure without a tincture of bitterness.
+ - The Truth has shared so much of Itself with me That I can no longer call myself A man, a woman, an angel, Or even pure Soul.
+ - Dear Ones, Beware of the tiny gods frightened men Create To bring anesthetic relief to their sad days.
+ - There is an ambush everywhere from the army of accidents; therefore the rider of life runs with loosened reins.
+ - In time of trouble avert not thy face from hope, for the soft marrow abideth in the hard bone.
+ - If at last thou attain the desire of thy life, Cast the world aside, yea, abandon it!
+ - Everyone, whether he is self-denying or self-indulgent, is seeking after the Beloved. Every place may be the shrine of love, whether it be mosque or synagogue.
+ - The reason why worry kills more people than work is that more people worry than work.- Robert Frost Now that all your worry has proved such an unattractive business – why not find a better job?
+
+122 quotes

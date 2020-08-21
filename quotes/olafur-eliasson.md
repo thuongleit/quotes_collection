@@ -1,0 +1,22 @@
+ - I think an artist has the potential to investigate both form and content within one activity, to show that there can be coherence between form and values in our society, as in thinking about a city and building one.
+ - For the sake of sanity, the brain and the eyes keep things simple. But take away the sense of sight and suddenly things are not so simple.
+ - I can use the camera to make a place or landscape; the camera to a greater extent projects rather than takes in or reproduces. The camera, or, rather, the eye, produces the impression of the place: I as a photographer am not passively taking in; I am active as a subject generating the object.
+ - My goal is to formulate a new color theory based on the full spectrum of visible light.
+ - If I have the choice of traveling to Russia, India or New Zealand alone for a week for preliminary discussions or to spend that week with my family, I routinely choose my family.
+ - By bringing Little Sun to Tate Modern and the London Olympics, I hope to realise an art project for those who typically have no access to global events of this scale.
+ - I want to expose and evaluate the fact that the seeing and sensing process is a system that should not be taken for granted as natural – it’s a cultivated means of reality production that, as a system, can be negotiated and changed.
+ - Having an experience is taking part in the world. Taking part in the world is really about sharing responsibility.
+ - Every city is always changing, on its own trajectory.
+ - I was interested in how we engage the world. How do we use our skin as our eyes? If you read a cityscape or a landscape with just your mind, and not your body, it becomes like a picture or representation, not something you really engage with.
+ - I don’t think you need to be so result-oriented when you’re trying to define the success of an art work. I think we can allow some unpredictability.
+ - Artists are valuable to public discussion: They show the correlation between doing and thinking.
+ - In the past Berlin was much more radical and extreme and now it’s becoming much more of a conventional European city.
+ - Photographs have a relevance for things that cannot be said.
+ - I do not think making art alone makes it any better than making it with a team of people.
+ - I myself have already spent a third of my life in Germany, first in Cologne and then, since 1994, in Berlin.
+ - It would be wrong to say that the city of Berlin is not regulated. What I think is more interesting is to what extent a city creates a sort of safe haven for its users, so that people feel confident that the city works on their behalf.
+ - I am not opposed to the art market. I have lots of friends who are collectors. But the whole idea of the art market is complex. Sadly we have a situation where auction houses and secondary market dealers are creating a lot of confusion and unnecessary pollution.
+ - I don’t know a single collector or museum director who says: ‘Oh, he’s on a list, so I think I’ll buy something of his.’ The people who buy my art put a little more thought into it than that.
+ - I see the artist as a participant, a co-producer of reality.
+
+20 quotes

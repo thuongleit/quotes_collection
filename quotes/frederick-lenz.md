@@ -1,0 +1,502 @@
+ - Forgiveness is the best revenge.
+ - This is what Krishna says in the Bhagavad-Gita – Karma Yoga. If you can’t avoid action, you might as well act.
+ - The Winter Solstice is the time of ending and beginning, a powerful time – a time to contemplate your immortality. A time to forgive, to be forgiven, and to make a fresh start. A time to awaken.
+ - Chaos theory simply suggests that what appears to most people as chaos is not really chaotic, but a series of different types of orders with which the human mind has not yet become familiar.
+ - People who are humble don’t talk too much; they listen.
+ - I design genetic algorithms, neural network and artificial intelligence systems.
+ - In Tantric Buddhism, we believe that Samsara is Nirvana. That is to say that everything in the universe is part of us. And we also are part of everything in the universe.
+ - In sanskrit they say: “Tat twam asi” – thou art that. You are God. The bubble of your awareness bursts and you’re flooded with immortality.
+ - Computer science is fascinating. As you study computer science, you will find that you develop your mind. It is literally like doing Buddhist exercises all day long.
+ - Yoga makes you free. It makes you happy. It gets you out of the traps that create human misery. It makes you vibrate faster.
+ - There is nothing that you shouldn’t do. Everything can be used as a tool for liberation.
+ - People use ideas of non-duality as an escape from reality. It is very easy to say there is no winning and losing and justify the fact that you didn’t do a very good job.
+ - Sri Krishna says whatever role we have in life, we have to play it to the hilt. We have to take it all the way. We have to assume responsibility for our role. To run away from it causes misery.
+ - Artificial Intelligence is creating a mind, hopefully as pure a mind as possible, for a computer.
+ - Everything you do in meditation is amplified. If you meditate for five minutes with your complete mind focused on happiness, that is like focusing on happiness for several hours as you are walking around.
+ - Jnana yoga is practical.
+ - Beyond mind, beyond time, beyond space there is immortal awareness.
+ - Balance is to choose happiness, to feel that the purpose of life is to love, not necessarily to be loved, to be happy, to be conscious, to be aware, to be fulfilled.
+ - The essence of Taoism is really expressed by these few words. Taoism is the way of the child, the way of the fool, the way of someone who doesn’t need to be noticed.
+ - The main reason people fail is they become attached to others who hold them back. Letting go of others and going forward may seem like a lonely and impossible task, but I assure you it is not.
+ - You must have tremendous power of focus to direct your life and not allow all these variant forces, different vibrations, to enter you.
+ - In Zen the emphasis is on meditation and developing your body, mind and spirit to find inner peace, strength, clarity and enlightenment.
+ - How do we find a way out? By realizing that there’s no place to go, that there’s no way out, that there’s no way in. All that exists is the Self.
+ - No one cares about you. No one cares. You will die and be forgotten.
+ - The best battle is the battle that is never fought. The best war is the war that is won without a battle.
+ - After enlightenment your body changes tremendously; its very molecular structure changes just because the kundalini is always streaming through you.
+ - If you’re a sniveler, a whiner, a complainer, you will never be happy. We all have that side. Get a little stoical and just take the pain.
+ - The quieter you can make your mind, the more you’ve invoked your will.
+ - Reincarnation is a dance. It is a movement of life to the rhythm of the universe. Spirit and matter join together as one dancing partner. They dance and it goes on forever.
+ - Nothing lasts forever – except forever. That’s the good news. It’s a good thing that nothing lasts forever because things would get terribly boring.
+ - None of this is real. All of this is an illusion and your acceptance of that fact is the beginning of the pathway to self-knowledge.
+ - We’re at the end of the cycle. You’ve all known it since childhood. In the Hindu division of the ages, this is the Kali Yuga, the dark age. At the end of a cycle, Vishnu takes incarnation as a person. Vishnu is that aspect of God that preserves and protects life. When Vishnu leaves, Shiva comes.
+ - Everything is perception. A hallucination is a perception of a certain reality. It is a perception of a certain state of mind.
+ - Everything is a state of mind. Astral travel is the ability to wander through different states of mind and develop psychic perceptions.
+ - You’re looking through the kaleidoscope of God and seeing God’s face in so many ways, as friends, as strangers, passersby, country roads, jammed freeways, the cancer ward, the maternity ward – all the faces of God surround you at all times.
+ - Nirvikalpa samadhi or sahaja samadhi is all the way up. You get above the cloud line to the land of eternal snows and it’s ecstasy beyond ecstasy.
+ - In dream yoga we use the etheric double and go beyond the confines of the physical, it’s very ecstatic.
+ - The ghetto is not where you live. The ghetto is inside your mind. And anyone who tells you that you can’t get out of the ghettos of your own mind has no idea what they’re talking about.
+ - Good karma leads to rebirth also. The desire for higher states of mind is a desire. When you are fixated on higher states of mind, you don’t become enlightened.
+ - Think of your mind as a muscle. The more you use it, the stronger it will become.
+ - Nonphysical beings are drawn to enlightened beings. Some come to aid them in there work; some come to interfere. Some just come to watch. Enlightenment is rare in this world.
+ - Zen is discipline – the discipline of living life, the discipline of taking a breath, the discipline of not knowing and not trying to know.
+ - The avoidance of that which causes you pain does not produce enlightenment. It produces avoidance. Religion is the avoidance of pain and suffering.
+ - Enlightenment simply means that you’ve run out of questions, and that the answers don’t matter anymore.
+ - A teacher can show you the ways. But no one can do it for you. You have to take what you learn from them and go out and live it. You have to change your life.
+ - All disease and aging occurs as the subtle physical body breaks down.
+ - There is no future and there is no past, there never has been, there never will be. You just think there is. It’s not life that moves; it’s awareness.
+ - Love is the strongest force in the universe.
+ - If meditate on the third eye and have headaches it means you are trying to pull in too much power from the occult chakra. The danger is obsession.
+ - There are some teachers who just perform miracles. They can manifest things from the other world into this world. They have siddha powers. They are not necessarily enlightened.
+ - In the chakras, it’s the heart chakra, anahata, the central chakra, three above and three below, which symbolizes happiness and love, psychic oneness, spiritual understanding.
+ - The relationship between the student and teacher is ultimately important. In higher spirituality we don’t study a subject as much as a person.
+ - Our past affects us, our present affects us, and even our future can affect us. We live in the relative world of time and space.
+ - Your whole life is inside your mind. Your mind is the prism that refracts the entire universe. Everything around you and within you comes from your mind.
+ - Whatever you focus on, you become. That is the key line, you know. Meditation is the bow and concentration is the arrow.
+ - Bodhidharma who brought Zen from India to the Orient, taught a very pure Zen – in that it was pure Zen. He wanted to show that the way still existed and wanted to get back to its essence.
+ - We don’t live forever. We have a limited energy. You have to determine those things that you direct your energy towards, otherwise you get yourself in too many places and nothing succeeds.
+ - Zen is a very quick path. Zen is the path of meditation. The word Zen means emptiness or fullness, meditation. Meditation is the quickest path to enlightenment.
+ - Taoism has no rules. It’s a suggestion for preceiving life in its wholeness, without unnessary categorization, yet enjoying the beauty of categorization.
+ - When you change your state of mind, your whole life changes, nothing remains the same. Nothing looks the same, because you have changed.
+ - A balanced person will get depressed, discouraged, frustrated and angry sometimes, but doesn’t direct it towards anybody else. If they do, they quickly realize they made a mistake.
+ - Learn to control your emotions. Be able to glide through them. By practicing concentration exercises and meditation, you will find that when strong emotions strike, you will gain the ability to not be swayed by them.
+ - Look at how beautiful life is, and just keep looking until you see it. You don’t see what is in front of you because you’re so distracted by your thoughts.
+ - One day you will arrive at a station on the train of existence that you’ve always known has been there. You’ll find there will be no train in sight, with no sense of arrival. There is only a perpetual arrival, a timeless condition of infinite awareness.
+ - Jnana yoga is a very demanding practice. It’s necessary for you to become conscious of the fact that you’re not human.
+ - If you are mindful in your work, if you put your best effort into it, then something comes back to you.
+ - Nirvikalpa Samadhi means you are sitting in meditation and you go beyond the planes of light to nirvana. Then you come back and here you are “back in the saddle again”.
+ - Freedom is within oneself. But to get beyond the thoughts and desires requires power.
+ - The best form of meditation is the sitting meditation. But work is next. Work is a great way to meditate.
+ - I don’t have the luxury of time to be unhappy. I have too much to do. I have too much do accomplish. Who has the time to be unhappy?
+ - The trick in life is to find out where you belong. Once you find out where you belong, you will be happy there.
+ - The unlimited mind, the diamond mind of the Buddha, is your mind, if you can get in touch with it. Stop thinking so much and tap into that psychic part of your being.
+ - Be the exceptional being who separates themselves from the herd and the fate of the herd.
+ - Enlightenment is a timeless void. It’s an emptiness that’s filled with the most excellent light.
+ - Hold a positive thought of an enlightened person in your mind. When that thought touches their aura, it comes back quickly with a positive lift. You will go up.
+ - None of this matters a bit. Yet, of course, it matters at that moment. So we try to be mindful of the moment; but it’s fleeting.
+ - The magic of life, of course, is not something that can be explained. Structures can only take us to the point where they begin or end. Beyond structures is the white light.
+ - We have to push ourselves to stillness – to the natural state.
+ - The sign that the kundalini is releasing is not the development of miraculous powers, but that your mind is becoming quieter.
+ - There is a whole crazy world around you. You can’t control it, so don’t even try. Because the more you try to control your environment, the more it controls you.
+ - Nirvana is a word that means enlightenment, being beyond the illusion of birth and death, the illusion of pain, the illusion of love, the illusion of time and life.
+ - Dharma is another name for existence. It is existence in its purest form.
+ - Personality is a manifestation of ego. Ego is the central sense of separateness that a person has from the rest of the universe. Personality is the form that that separateness take.
+ - If you are interested in Taoism, I would suggest that you read the Way of Life by Lao Tsu, the founder of Taoism. I personally prefer the Witter Brynner translation.
+ - Consider the way you speak and your use of language; it’s a reflection of your warrior spirit.
+ - Prana is an element of energy. Energy is a manifestation of a certain principle which in Indian cosmology they call shakti, or spiritual power. Don’t worry about the words too much.
+ - The practice of mindfulness is monitoring your mind all day and all night. It’s enjoyable to just remove things that make you unhappy from your mind, to clarify your emotions.
+ - The body is a very low level machine language. The language of the soul, of the mind, is much more evolved.
+ - Enlightenment is not a finite state. It’s not something that you just do and it’s done. It goes on forever.
+ - People are taught to fear god. They are taught to fear everything. It has become such a natural state that no one questions it.
+ - No self-effort in the direction of enlightenment is ever wasted. Even if you don’t become fully enlightened in a given lifetime, you will be much happier and more aware.
+ - To have the detached eye of the occultist, to look outward, to not be so self-reflective and to learn to step through the various viewpoints of consciousness – that we call occultism – leads to freedom.
+ - Time is not a movement in space. Space is a movement in time.
+ - Without purity it’s impossible to realize God.
+ - Becoming enlightened is not special, but it’s unusual.
+ - I have often discussed the Four Noble Truths and the Eightfold Path in talks I have given about meditation. But, since I also teach Hindu, Buddhist, and Taoist mediation, I have a very eclectic approach to the subject.
+ - Taoism is the way of water. The most frequent element or symbol refered to in Lao Tzu’s wrtings is the symbol of water.
+ - One day you wake up and you decide you want to be different. You want a different life. You are tired of your old life. This is the truth. You will a change.
+ - Most people abuse power. They use power to dominate others. They use power to destroy others. Ultimately when you do this, you lose it.
+ - Celibacy doesn’t make you enlightened, otherwise every nun or priest in Buddhism or Christianity would be enlightened. People who don’t date and can’t get any action would be enlightened.
+ - Focus on one point and hold your attention there. The mind will waiver, you’ll think a million thoughts, but each time you do, bring your mind back to the point of concentration, seeing it visually.
+ - The kundalini rises and the kundalini is hot, it’s a hot energy. Sometimes you feel it cascading up your spine, and it’s kind of searing or it’s tingling, it almost feels sexual.
+ - Zen is Tantric Buddhism, Vajrayana is tantric Buddhism – these are various forms of it. Tantric Buddhism simply means cutting to the chase.
+ - It’s a long journey and along the journey you’ll get tired. But if, when you’re very, very tired and you’re about to give up and you think:.
+ - Sisterhood is powerful. Woman can support each other as women, in their pursuit for enlightenment or anything else, without fear. But as long as she’s still in the commodities exchange market, buying and selling, she must fear the competition.
+ - If you respect your teacher, you do better. Respect is only good because it will help you. Real liberated people, what can you do for them? They’ve got everything. They are everything. They don’t need to be worshipped or adored.
+ - At the end of your life you will probably end up in an old-age home, or in a back room in one of your children’s houses, left only with a handful of fading memories and a body racked with great pain and suffering.
+ - In Old Zen, the Zen Master would do literally anything to break down the concept of what the study was. He would present conflicting codes all the time, just to shake this fixation people had on how to attain liberation.
+ - Shakespeare said: “There’s a special providence in the fall of a sparrow.” Everything happens perfectly.
+ - Selfless giving is the art of living.
+ - Self-realization: No ego, no desires, no weight problems, no tax forms, no death to die, no life to live.
+ - The path of love is its own reward. Your love itself, that is what completes you.
+ - I am here at Lake Tahoe and there is magic at 6,000 feet.
+ - You’re a refraction of the one light. You’re a waveform of light. You’re a fractal, a pattern that continuously changes.
+ - There is only black light between the stars. It may seem that it’s darkness, but it’s really black light. There is no such thing as darkness. Darkness is a human concept. There’s only black light between the stars.
+ - The nagual gives you the unknown; it gives you reality; it leads you to the totality of yourself.
+ - Life draws us in different directions, sometimes simultaneously. When you follow the direction that life draws you in, if you stay in a very powerful state of mind, then you’ll see eternity.
+ - I live in the constant newness of aspiration. Whatever I think, I ignore. Whatever I feel, I don’t trust. Yet I listen to my thoughts and follow my feelings.
+ - Beyond this world there are myriad worlds, thousands of inter-dimensional planes with different types of beings going through other cycles of existence. Beyond all beings is something that is eternal.
+ - Each of the small enlightenments that a Zen practitioner has, which are known in Zen as “Satori experiences,” provides deeper insights into the nature of existence and helps a person prepare for complete enlightenment.
+ - The ego is not harmonious with happiness and spiritual development. In the process of spiritual transformation we refine it. In the fire of love we melt the ego down.
+ - I’m always waiting for you, hoping that you’ll be really interested, that you’ll try completely. In every life I wait for you. I’ve always been waiting and I always will.
+ - Get your emotions under control and your life under control. Work really hard and don’t make a big deal out of yourself. Have humility. Believe in yourself. Don’t get a fanatical fixation on a teacher.
+ - The stillness of God is perfect. Nothing has to be added to it. Nothing can be taken away.
+ - You could sit around and feel sorry for yourself or you can go out and do things for others.
+ - Sit down, keep your back straight, relax and have an object on which to concentrate; you might use a candle flame, a brightly colored rock, a yantra, which is a geometrical designed specifically for the practice of concentration.
+ - Selfless-giving burns away the layers of the onion. Purity and humility keep meditation and selfless-giving clear. Love radiates through the entire practice because we do all of it only for love.
+ - People think they can tame the earth. How absurd! The vanity of human wishes is endless. It is more fun to dance with life.
+ - Sri Krishna’s message is the message of anyone who comes from far away. His message is the same as Buddha, Lao Tsu, Bodhidharma, Milarepa, Padmasambhava.
+ - The Zen master walks in his garden, alone. There is no traffic there. There is no shopping there. There are only the flowers.
+ - To become wise, meditate on the third eye, between the eyebrows and a little bit above. Focus on that spot, the Agni chakra.
+ - Death is not the end of who we are. It is only a brief pause in the endless cycle of our lives. Each of us is a spirit that cannot die.
+ - What we focus on we become. If you are just focusing on unhappy things, you will become unhappy. If you focus on happy states of mind, then it will grow in you.
+ - Sometimes it is hard to see in life. If the fog rolls in we can’t see anything. Most people get caught up in life that they forget the purpose of life is to be happy.
+ - Self-honesty is not putting yourself down or feeling sorry for yourself. Self-honesty is looking at things as they are and then being compelled to make changes.
+ - Enlightenment is to be outside the circle, the circle of death and rebirth. There is a circle inside you. If you meditate and focus on your third eye, you will see a circle of light.
+ - Everything we see is an illusion. Even our perceptions of truth are illusory, illusory in the sense they’re not complete.
+ - Advanced Teachers always forgive. It is inevitable that anyone who seek knowledge and power will make many mistakes.
+ - In tantra, samsara is viewed as the same thing as nirvana. Eating a hamburger is meditation.
+ - Life is forever. Death is only a temporary abridgment. It is just a state of transition where you will move from one world into another. You will move from the physical to the causal, from matter into pure energy.
+ - The power chakra is the navel center. The center of balance is the heart chakra; it’s the center of our being. The third eye is the center of wisdom, the Agni chakra.
+ - Sometimes, as we practice jnana yoga, we feel that life has no meaning, no purpose. We feel that there is no reason to try, that life is empty. This is another illusion.
+ - You can focus on Jesus or Buddha or Krishna, Ramakrishna, Lao Tsu, Yukteswar, Yogananda, Vivekananda, any of the great spiritual teachers who have lived, or on a living teacher, and draw light from them.
+ - There is the flash in the pan, the sudden success. But continued success is dependent upon tremendous attention to detail.
+ - It is in Zen practice that you gain power, balance and wisdom. The battles that you fight are within your own mind. That is where the real victories and defeats are.
+ - As a former English professor, I can assure you that grammar is the qualitative interpolation of language. Adjectives, pronouns, predicates, past pluperfect indicative – ridiculous. It has qualities, shadings, differentiations, rhythmic structures of symbolic meaning.
+ - Be aware of the dark side of others that seek to interfere with our evolution. Keep distant and closed to such beings, recognizing that they are part of the universal process too, but not a part that we need to be open to at this time.
+ - I am a Teacher. I am the keeper of mysteries. You seek knowledge and power, Truth, Light, and happiness. I am happy to aid you in your search.
+ - Love is the only antidote for the insanity of this world. And the funny thing about love is that when someone loves you, it doesn’t necessarily make you feel better; but when you love someone else, it does.
+ - Samadhi is an experience of such depth, such joy, such indifference and such love, that nothing else is really like it or worthwhile in comparison, yet it gives shape, color and meaning to everything.
+ - Symbiosis is a much higher reflection of intelligent life.
+ - You must control your anger and jealousy and possessive nature or, as you become more powerful and your will increases in strength, you will injure others.
+ - Everything starts within your own mind. The physical choices you make, drain your power or give you power. If your power is low, then you stay in lower levels of mind and you don’t see opportunities.
+ - The important thing to remember is to follow the path of light. As the fictional character Yoda, from Star Wars, correctly pointed out, once you start down the dark path to power, it’s very difficult to leave that path.
+ - Both light and dark are eternity. Human beings assign relative values to colors, but beyond the relative, there just is – what in Zen we call “suchness”.
+ - Enlightenment comes through the feminine side of the being.
+ - Selfless giving does not imply superiority. Selfless giving is about love.
+ - Nature soothes us. Nature heals us, and something more, the woods are a place of power. Any woods that are still surviving on this planet, those are powerful areas to have kept themselves free from the encroachment of the industrial societies of our earth.
+ - There is the experience of enlightenment, to be very aware of what lies beyond the boundaries of cognitive perception, reflection and self-awareness as seen by the personality.
+ - Loneliness is a feeling that is created by our ego. The ego feels separate from the rest of creation. The answer to overcoming those feelings is ecstasy.
+ - The human mind generates an auric field that covers up naturalness, innate divinity of life. That auric field is a field of doubt.
+ - I am very interested in the enlightenment of women. Very few teachers of advanced self discovery work with women, and if they do it’s usually in a very second handed way. They treat women as second class citizens.
+ - Life is an endless matrix of existence. And as you experience it in that pure form, that’s what we call enlightenment.
+ - You find yourself in this world, you find yourself out of this world and there’s no one to find the Self. There’s no Self to find.
+ - We have a body, but we also have a subtle body, a body of energy that looks like our physical body. The subtle physical body is made up of energy, of light that vibrates at a very high rate so the human physical eyes can’t see it.
+ - Everything that you see before you with your physical eyes is an illusion. In other words, you are not seeing correctly. Life is made up of light. But if you are only looking through the senses, it seems solid and physical.
+ - In both Surfing the Himalayas and Snowboarding to Nirvana, I have tried to transmit as best I could the spirit of humor, and the sense of humor of the monks I have encountered.
+ - The strong conquer the weak. The weak serve the strong and hope to become strong so they can conquer others who are weaker.
+ - Qualityless simply means there is no way to discuss it. There is no way to pin it down. It could be anything at any given moment since infinity is not bound even by itself, nor the words that human beings choose to try and talk around it.
+ - Zen is meditation, the actual experience of life directly, immediately with no buffers.
+ - A Zen master is someone whose life is one with enlightenment and self-discovery. They can never be separated from that. They’ve been essentially mastered by Zen.
+ - The eye of God is inside us. It’s looking through us and it sees whatever we look at. Sometimes I think we could give God better things to look at, don’t you?
+ - A critical part of Tantric Buddhism is a process of turning of the activities and experiences in your daily life into meditation.
+ - There are worlds beyond anything you can imagine; there are joys beyond anything you have experienced. There are ecstasies that are undreamed of, I assure you.
+ - Never settle for that which is easy and comfortable or the necessity of seeking that which is difficult and uncomfortable.
+ - You don’t love perfectly without first loving imperfectly.
+ - Tantra is the perception of the oneness and the perfection of all things. Not just the perception of light, but the perception of darkness, seeing God in both beauty and horror.
+ - If the chi is being wasted by useless activities, emotions and associations that drain us, then we don’t have enough power when it comes time to perform.
+ - A lot of people have this live or die attitude with mediation. It has to be all or nothing. I don’t think it should be. It’s a study that you follow for the rest of your life.
+ - Spiritual balance is how you deal with opposition, outside of yourself and within.
+ - Nirvikalpa Samadhi means that you’ve gone off the board; you’ve gone off the map. There is no way to describe it. You have attained liberation and are no longer bound by the cycle of existence. You just are, and yet you’re not, at the same time.
+ - The greatest miracle is the miracle of wakefulness, to awaken from the dream of life and to see infinity everywhere, even in the finite, in the simple doings of life.
+ - The human mind and the entire life process is chaotic. Chaos is not something that lacks order; chaos has varieties of order within it.
+ - How do you develop your psychic abilities? Well, to begin with, naturally, you have to want to and believe that it is possible.
+ - Focus on beauty all day long. Realize how incredibly beautiful your life is. How incredibly beautiful it is to feel, to look around, to be, to experience all this wonder.
+ - In the Bhagavad-Gita, a dialogue ensues in the middle of a battlefield, symbolizing the battlefield of life which we are fighting through our illusions.
+ - Samsara is the world appearance, the cycle of rebirth, the physically manifest universes and states of mind that you perceive through the medium of ego.
+ - The tantric path involves taking the mind and directing it beyond the senses.
+ - People think that if you are enlightened you are not in touch with the pulse of the physical. Au contraire! The higher you go, the deeper you become, and the more conscious you are of the physical and the sensorial.
+ - If your parents were strong in one way and weak in another, you will be strong in the same way and weak in the same way. Even though you detest the weakness in them, you will find that you will do exactly the same things because they imprinted you.
+ - Don’t listen to voices. If you hear voices talking to you, forget it. Disregard the information, even if it is right occasionally. You are dealing with non-physical forces that are trying to influence you.
+ - The crown chakra is located several inches above the head, but it is not connected. The crown chakra, also known as the thousand-petal lotus of light, references the planes of light, of enlightenment.
+ - Don’t follow the crowd. The crowd doesn’t get there. They just run round and around in a crazy race. It never ends.
+ - Thinking that the next person, the next relationship, the next experience will free you – these are foolish thoughts of people who are bound again and again to birth, death and rebrith for thousands and thousands of incarnations.
+ - Selfless giving is love in action. Initially you will feel that you should help in a certain way, with a certain result. Do your best, but don’t be concerned with results; do it for the infinite.
+ - Simply by performing good actions and thinking good thoughts you will not attain enlightenment. It takes something more.
+ - The kundalini runs through you. It runs through the ida and the pingala, the two nerve channels in the subtle body; but there’s a central channel, the shushumna, which is blocked. When it runs through that, then you can use the mystical kundalini.
+ - We examine everything in existence and we come to see that everything is transitory and temporal, that which is left over is God, is eternity, is the Self.
+ - If you sit with an enlightened teacher and silent your mind as they go into nirvana, suchness, the pure power of their aura will bring you on a journey into the world of perfection.
+ - Ego is impurity. Be selfless. Consecrate and dedicate your life to perfection.
+ - Taoism is the gentle way. The path of least resistence.
+ - Everyone experiences desire. Desire is not bad. There is no good or bad from the point of view of karma. There is only structured reaction.
+ - I recommend computer science to people who practice meditation. The mental structures that are used in computer science are very similar exercises done in Buddhist monasteries.
+ - Trivial Pursuit means that you’ve got nothing going on in your life. Trivial Pursuit is more than a board game. It is the way most people live. Their lives are trivial pursuits.
+ - The Tibetan Buddhist realization is that mind does not have any particular qualities or attributes of its own. It’s clear – clear light.
+ - Humility doesn’t mean hiding in the corner and pretending you are not strong. Humility means to be what you are.
+ - Tantra is for a person who has reached a point in their spiritual evolution where everything looks the same.
+ - The network of enlightenment is a very wide network. It’s not relegated to a simple type of being. It’s not the network of the goody-goods.
+ - The person who did all of these things has gone away, vanished without a trace in the ecstasy of existence.
+ - The causal dimensions, the planes of light, are happiness. They are all different and are all endless. They border the shores of nirvana, which is beyond discussion – a condition of perfection that cannot be expressed.
+ - I am Western and I see no need or reason to change that. The Western lifestyle has many things to offer, as do the Eastern methods of self discovery. I think blending the two is very desirable.
+ - The world you experience, every day and night of your life, is transient. They only last for the blink of an eye, and then they dissolve back into that unknowable and formless eternity.
+ - All happiness is inside your own mind. Chances are, you have not discovered that. Meditation is about experiencing the happiness inside your mind.
+ - The other side is beyond knowing. You cannot know what you experience on the other side, here. Wisdom is beyond the grasp of the conscious mind.
+ - Inspire people very selectively with sincerity and with respect. You want to increase your energy? Then want, inside your heart, to inspire others. It will lift you tremendously.
+ - You need to accept the fact that you will often do exactly the opposite of what you think is right. You need to accept that you’re going to do that and still love yourself.
+ - The throat chakra is the center that is aesthetic. It gives an appreciation of beauty.
+ - By fully focusing your mind on your chakras, stilling your thoughts, and increasing your kundalini flow, you can rise above your body consciousness and unite your mind with the clear light of nirvana.
+ - In high school I was drawn to the study of literature, poetry Shakespeare, contemporary fiction, drama, you name it – I read it.
+ - Sit in front of an object of concentration with the eyes open. Focus on a candle flame, or a yantra, a little dot, something small. Just look at it. Focus on it until there is nothing else in your mind. This develops willpower.
+ - You’re an emanation of enlightenment. Enlightenment, which is the universe, has created the hallucination that is you in a form that shifts.
+ - Thought is the ultimate tonal. Each thought is like a dike that blocks out the nagual.
+ - Learn from the purity of nature.
+ - If a person sets out to practice meditation in this lifetime and they have a little bit of spiritual evolution behind them and they’re quite dedicated, it really is not at all an impossible task to enter into salvakalpa samadhi in this particular lifetime.
+ - When you are following dharma, you will be happy, at peace, still inside. There will be a sense of purpose to your life. Difficulties will not seem unconquerable.
+ - Focus your awareness on the heart chakra. As you do, you will feel your consciousness shifting. You may feel different perceptions of energy in different parts of your body.
+ - Lao Tsu says the way of life is ancient, timeless. It is existence which he calls the Tao – a mysterious source, beyond understanding, and all of us are a reflection, if not that source of life ourselves.
+ - If the teacher is truly enlightened, energy and light is always coming forth from them. To be in their physical presence is a great boon, not of the teacher but of that light which passes through them.
+ - A long time ago a very powerful race of Indians lived here. They were from another cycle; their being was of another composition. They are still here, even now, you can see them on the mountain rims.
+ - You could use a flower, a candle flame, anything you want that’s suggestive of beauty and eternality.
+ - Societies on this planet are based upon fear, not upon love. The strong dominate the weak.
+ - As we grow up, we are exposed to hate and greed and anger and jealousy and peanut brittle and all kinds of things, our subtly body erodes.
+ - There is no final stage in nirvana. Nirvana is beyond definition. It is not quantifiable.
+ - Karmic progression implies that we are kind of alliterating steps to life. There’s alliteration, a kind of rhythmic structure. Once we’re in time and space, the variable structures are somewhat limited.
+ - You can stay in the safe, secure oblivion and pain of ignorance, not knowing, and just die. You’ll just die, like everyone else, and shuffle into another incarnation that won’t be very different.
+ - What is self? Self is the mind viewing itself. That’s all. The mind stops viewing itself and turns towards infinity. There is no self, there’s only infinity.
+ - There is mental conditioning in your mind put in there during this life by your parents, teachers, the society. You’ve been told what is and what is not, what is right and what is wrong. This has to be pushed aside.
+ - Yantras are specific designs that have a great deal of power in them, as do mantras, which are words of power. Yantras are designs of power that tap into other levels of attention. They remind us of things in other worlds.
+ - Tantric Zen is for the individual who is in love with both the finite and the infinite, who gets a kick out of this weird transitory world and at the same time, wants to step beyond it.
+ - To think that God is compassionate is a terrible mistake. To think that God is wrathful is equally stupid. God isn’t emotional. You are. To superimpose your emotions on infinity is typically human.
+ - In the old days, Zen was not really practiced so much in a monastery. The Zen Master usually lived up on a top of the mountain or the hill or in the forest or sometimes in the village.
+ - In the end we just realize there’s no end. It just goes on forever, in countlessly new forms. That’s what’s wonderful about the universe there’s no escape from living. Death doesn’t even end it.
+ - You can judge a civilization by its level of agreement with the green world. When people respect nature, it’s a sign of a healthy situation. When they denigrate nature, it’s a sign of an unhealthy civilization that will soon perish.
+ - In that undifferentiated reality of the Self there is eternal bliss. All the phantoms of existence fade away.
+ - If you seek to change your life and attain enlightenment, you must deal with these questions. If there is no truth in this, then ignore these silly words.
+ - Meditation is the pathway to enlightenment. Move the ego aside and be still, open, clear, bright and fully conscious.
+ - Samadhi is the highest octave spiritual light. Not the best, but the highest octave.
+ - Once in while a teacher may make a recommendation, it is usually after going through the basic Socratic method of trying to get people to figure it out themselves. A good teacher challenges your mind, your intellect, and your spirit.
+ - Tantric Zen leads to illumination and fun right here and now, which is why I like it.
+ - Zen is the path that focuses the most upon meditation. It is almost exclusively a path of meditation.
+ - Emotional control is essential for attaining higher levels of mind. The thing that the teacher looks for in a student is the degree of self-control, not coldness that someone has.
+ - Meditation is the art of life. Meditation is not simply a practice. It is an experience, awareness, and a way of perceiving life.
+ - Zen is the way of splitting the self again and again, untilt there is nothing left.
+ - Enlightenment has nothing to do with physical knowledge. It is the experience of existence. Existence is infinite. There are countless universes and creations taking place simultaneously.
+ - Happiness has to do with how quickly you vibrate. Meditation is a process of speeding up the vibration.
+ - You have to become a master or mistress of your mind.
+ - Chaos is not disorder. Chaos is the totality of existence. You could call it God. You could use the term, the Tao. I like chaos. It means more to us in English. Chaos is all things, wild and wonderful, connected perfectly by the life force.
+ - To meditate, you need to feel, and feeling is a lost art. You need to feel the stillness of existence and also the sound of existence. You need to feel that which lies beyond your awareness field, and that which is within it.
+ - You must first realize that you are in a dream. Then you must realize that your current dream is a nightmare.
+ - Spiritual balance is to be straight with yourself.
+ - Once you have mastered the ten thousand states of mind, it’s paranirvana, the absorption into the stillness forever.
+ - The logical and extralogical exercises you do in meditation are very similar to advanced systems analysis and programming.
+ - Samadhi is the actual awareness of what you really are.
+ - Meditation is the pathway to enlightenment, and I would encourage you to follow that pathway as far as you can, into ecstasy.
+ - Let’s say you dissolve and become infinite light. There is this sense of being light even though the mind is not thinking it, one feels it, which indicates that one is still there – at least half of one.
+ - Mind only comes into apparent existence through the action of perception. Mind appears to exist because it perceives.
+ - When you meditate properly you are able to take your mind and merge it with the cosmos. Essentially, this causes your IQ to increase.
+ - In the Zen of sports and athletics, we seek to bring discipline and control into our physical movements, but at the same time to eliminate the self that gets in the way of perfect play.
+ - All of us have an aura, a body of energy linked to different planes of awareness. Some have the ability to access more planes of awareness then others because of past lives, because of practice in this life.
+ - There is a still center of the universe. Within that still center are all things, all achievements, all loses, everything and nothing exist there.
+ - Don’t think of us as separate beings. Imagine that we are one body and it’s been split into millions. When we sit in the mediation hall – that is unity.
+ - When you sit and meditate and begin to experience expanded states of mind, you will be afraid. The light makes most people very, very afraid. The only way to overcome the fear is walking down into the light.
+ - Stop trying to be different. Just do what you are good at, and work really hard. You have to work hard to be chaos.
+ - All the concepts, all knowings, all truths, all religous systems, all beliefs, fall away in the white light of eternity.
+ - Trying to use the power of yoga to improve your life, this is a terrible mistake. Because all you are doing is binding yourself more. You’re putting more of your attention into the transient world.
+ - Imagine wave after wave of joy passing through your whole body. As each wave passes through your body, feel that all worries, tensions, anxieties and problems are being washed away.
+ - The dreams of eternity are the states of mind. When we wake up from the dreams there’s only enlightenment. There could never be anything else.
+ - I was drawn to the arts because I sensed that I was by nature Bohemian, and yet very conservative.
+ - If we are in a high enough state of consciousness we see that life is only a passing dream.
+ - The continuity of perception is an individualized being, when that continuity is lost, the being no longer exists as they have been.
+ - Dharma is the Truth that all of existence is. It does not disagree with anything. It is the perception of existence in its purest formlessness.
+ - If we put five people together, are there really five people? I don’t think so, not in the world of magic. In the worlds of magic, there is only one being, reflecting itself in countless forms.
+ - Power will take us beyond the gravity field of the imprint.
+ - Learn not to judge your meditation. Just meditate, do your best, set a minimum period of time and meditate.
+ - Mindfulness means that as we go through the day we learn to gain control of our mind, our emotions. We learn to conserve energy in a variety of simple and complicated ways that we learned in Buddhist practice.
+ - When you do something half-heartedly, you don’t get much of a result. When you do it fully, you get a great result.
+ - When you love someone, you shouldn’t feel that they should love in return. You have to give people freedom.
+ - People who want to go to power places all of the time and want to be around powerful people, they don’t last long in the study.
+ - The Grand Canyon is living evidence of the power of water over a period of time. The power may not manifest immediately. Water can be very powerful, like a tidal wave.
+ - It’s funny, people who have a lot of sexual energy think of themselves as being not spiritual. They are probably more spiritually inclined. All that sexual energy is kundalini.
+ - Go out into the world, do your best all day, try to think higher thoughts, try to be kind and compassionate, but don’t let people take advantage of you.
+ - With the use of psychedelics, it was all based around the Tibetan Book of the Dead, using them to experience enlightenment.
+ - Some people are like psychic sponges, they drain power form others constantly. They lower your awareness because they are at a lower level. If you spend too much time with them, you get pulled down.
+ - Taoism shows us how to deal with life and death by realizing everything here is transitory but its substance is eternal:.
+ - I am humility, nothing more and nothing less. I am one blade of grass in a sea of grass. I am one wave in an endless ocean of waves. I am one glowing star in a galaxy of stars.
+ - What is a woman? A woman is chaos. Chaos is the naturally perfect state of all things.
+ - Sring is the mantra of beauty. Traditionally it is connected with Lakshmi, the Indian goddess of beauty. Chant “Sring” slowly, elongating each sound. As you do, you will see the consciousness of beauty of everywhere.
+ - People always say, ‘A good man is hard to find.’ You’ve never heard that about women, have you?
+ - We live in a world of careers. Work, as Sri Krishna points out in the Bhagavad Gita, is a necessary path for everyone attaining enlightenment. It is something that we all do. Some people work very hard at not working.
+ - You are caught in an empty house, in a box, in a place that is not happy. You are trapped inside you and wherever you go, there you are.
+ - We are made up of nothing. There is no self. We are whatever we decide we are.
+ - Astrologically, at that age, you experience a Saturn return. It is considered an auspicious time to “reboot” your life. It’s a chance to have a clean start and move forward into something very exciting.
+ - Why do people want to drain your energy? So they can journey to other worlds after death, where pleasures are a thousandfold. It is a fast game. Human beings are powerful and skillful.
+ - In the Upanishads they talk about the path of the sun and the path of the moon. The path of the moon is rebirth. The path of the sun leads to self-knowledge, from which there is no return.
+ - Look at the big picture of the wheel of life. Above it, there is a Buddha. He is pointing, not towards the wheel, but away from it. He is indicating that there is something else – nirvana.
+ - You draw the mystical kundalini from the earth. Earth is an element. Fire, air, earth, water, and ether – the mystical kundalini comes through them all.
+ - What is important in self-discovery is the person who keeps going, who has a smile, who is kind to others, who works hard at everything, and who keeps their mind on their own business and not everybody else’s.
+ - Life isn’t complicated. The reason it appears complicated to you is because you are in a very distorted state of mind. That’s the basic premise of Buddhism – that you’re in a very distorted state of mind.
+ - Keep the deepest feelings of your heart to yourself. They tend to stay more pure if you do. There is a wisdom to that.
+ - Happiness comes from self-knowledge. Self-knowledge means that you have understood your mind. Your mind is the whole universe.
+ - I am a certified PADI Divemaster and a technical scuba diver. That is to say, I am involved with decompression diving where we dive to depths of 300 plus feet. But I was also recently certified for the Atlantis rebreather, where we dive to shallower depths ranging from about 60-130 feet.
+ - Tantra is spiritual, not religious. It deals with the spirit. Religion is just an applied body of doctrines that’s believed or not believed by one or more individuals. Spirituality is the science of metaphysics.
+ - In the classical spiritual definition, a soul mate is someone that you have reincarnated with many times. You find each other in many lifetimes.
+ - Souls have different journeys. The best thing to know is, not what everybody else does, but what you do. Self-discovery essentially is finding your own dharma, your own rhythm.
+ - What you focus on you become. So always focus on that which is highest, brightest, happiest and most noble of all things, enlightenment.
+ - It is always possible to get into a higher state of mind. The way you get into a higher state of mind is by generating good karma.
+ - Pure and simple, balance is happiness.
+ - The mind is like a lake. It reflects eternity when it’s very still. If ripples appear, lots of them, then the reflection is not clear. We lose the clarity of the perfect reflection.
+ - God then made the first woman, not directly out of his own substance, but from Adam’s rib. Her purpose was to serve man.
+ - If suddenly you get depressed, it doesn’t have to throw you. You can push those emotions aside. You can cultivate happy emotions or become emotionless when you need to be very sensitive.
+ - Stop worrying about tomorrow. Stop thinking about yesterday. Mindfulness is to be here now, in the moment. Focus on this moment.
+ - People love misery, they love to feel sorry for themselves, and they definitely don’t want to be enlightened. That’s the first thing they tell you at boot camp in the higher worlds.
+ - Some people just chase the glittery stuff and they have no substance to their life whatsoever. Actually all they really want is power. But they pretend they’re interested in enlightenment.
+ - The night before Atlantis sank beneath the waves forever, the members of the MysterySchool set sail from their doomed continent in twelve boats, headed for twelve different points on the globe.
+ - No matter how many times you have failed you must keep going forward. Only when you have become humble will you begin to grasp the meaning of life.
+ - People will try to block you. Some will do it just for pure hostility. But most others are just afraid of themselves.
+ - Whenever you find yourself becoming angry or jealous, try to see good quality in the person. You will suddenly be thinking a higher thought and that will elevate you.
+ - Different schools of Zen have evolved, principally the Rinzai and Soto orders. A whole hierarchy has developed for the teaching and practice of Zen. Zen has become, to a certain degree, institutionalized.
+ - The thousand petal lotus of light, the crown center, really does not become operative until one is on the verge of enlightenment itself. Then you really don’t have to meditate on it. The thousand petals gradually light up.
+ - All things are spiritual. It doesn’t matter what you do or who you are or what kind of blue jeans you wear, or whether you wear an ochre robe or whether you’re sober or asleep or dreaming. It’s all the same.
+ - On the path of love we don’t feel we necessarily have control. In the yoga of love we feel it’s only God who does everything. We can’t breathe one breath without God.
+ - Tantric Zen is for someone who is really broad-minded. It is Bodhidharma’s Zen, your Zen, my Zen. Which doesn’t mean I have a problem with Japanese Zen. Most Japanese Zen is minding your p’s and q’s.
+ - Stop being jealous, I mean, to be jealous is to suggest that God doesn’t know what she is doing. This is ridiculous! She does everything perfectly.
+ - Power, people are obsessed with it. You can take a nice person and turn them into a slob, into an insane being, craving power, destroying anything that stands in their way.
+ - Discrimination means keeping the negative and unhappy thoughts away and allowing the pretty thoughts to come inside you.
+ - Perception defines everything.
+ - Only the ego can fear, experience hate, lust and jealousy. Humility experiences none of these things – it merges into the transcendental awareness of perfection.
+ - Aum is the most powerful of all mantras. It is good to chant Aum seven or more times before and after each meditation. Chanting “Aum” puts you in harmony with the vibration of Eternity. “Aum” opens the gateway to the infinite highway of light.
+ - Your life may be draining away. Every day you may be getting older instead of younger, more frustrated instead of happier. Your job, your relationships may not be evolving – then your power is dwindling.
+ - The mind is infinite. It is not relegated to the brain or to thought or to emotion. It is made up of an endless series of realities that stretch on into infinity.
+ - When we lack etiquette, we trash things. We trash each other. We trash the environment. We lose sight of the value of things. We suffer alienation when our spirit is disconnected from our physical awareness.
+ - Life is learning how to deal with traffic. It requires patience, a good sense of timing, and sometimes not giving in to the traffic but reshaping your life.
+ - Energy is gained by giving energy. When we give energy, we gain energy. This is different than having someone manipulate you and take your energy.
+ - Fame does not make you happy. It just makes you look in the mirror a lot, worrying about how you look today for your audience.
+ - Personal power changes or shapes consciousness, and that is kundalini. Kundalini exists within us. Some people have more of it, some dimensions have more of it.
+ - The abuse of power manifests with phony spiritual teachers and phony gurus who tell you how to run your life and what to wear and what to eat, all that sort of stuff. They abuse. People don’t realize that, listen to them and ruin their lives.
+ - The toxic residue of humanity – you have to guard yourself, guard that sensitivity even more heavily because otherwise you can pick up so many pollutants that you’ll become more toxic.
+ - Life is a game in which happiness is the goal.
+ - I think that the world ended a long time ago and no one realizes it. We’re in a dream somewhere in a vortex of energy that just hasn’t realized its nonexistence yet.
+ - Never think too much of yourself. Realize you are only an instrument of eternity. Do not get stuck in that terrible trap. You can lose everything.
+ - Karma is not a cop-out. The esoteric meaning of karma is that you are who you are, because of what you have done and who you have been.
+ - Life has no meaning. It doesn’t need a meaning. A meaning is an arbitrary thought formulation that we affix to it because we are in the mood. Life is its own raison d’etre.
+ - Life is eternal and it’s worth living. What we do in this life is not futile. Death is not the end. Our practice in this life will assist us in our next life.
+ - Let someone else take your place in line, Let someone else be first. Let someone else achieve realization before you.
+ - If you just develop your psychic ability and don’t learn psychic self-defense, you become more sensitive, open, and vulnerable.
+ - A person without much power is easily influenced by others, whether they are physical or non-physical beings. Their life is easily ruined. They are blown around like a leaf in the wind.
+ - There are special places on our planet, places of power, healing and renewal, places where the mind-body connection is enhanced and that enable us to get back in touch with our deepest innermost feelings.
+ - The body comes and goes. This life, my friend, will come and go. It is a fleeting moment, an impulse in an eternal reality.
+ - Don’t worry about your future lives, past lives. Button up your shirt! Stand up straight! Go out and do something. Go out and have some fun. Be alive, change, dissolve, explode!
+ - Happiness is a state of mind. The key to happiness is being able to disconnect your life from your perceptions. If you saw things as they really were, you would be happy automatically.
+ - The process is learning to turn your back on everything and everyone and face that immensity. And only after you’ve done that can you then turn around and face the world again with new, clear eyes.
+ - Put a smile on your face. Don’t sit in the waiting room of life. Go do something, happily.
+ - The shortest distance between two points is your mind. It’s not a straight line.
+ - If your nature is infinite awareness trapped in a body, suddenly there’s a lack of happiness, a lack of freedom. No matter what you get you’ll never be happy, because these are all trinkets.
+ - The Eightfold Path is ordering the island of the tonal completely.
+ - Take chaotic mathematics, for instance. The universe is chaos. But chaos is whimping out. There is no chaos. There are just different levels of order in the universe.
+ - Ecstasy should not be viewed as an unusual experience, but rather a natural experience – feeling all of the living matrix of existence around us.
+ - Dharma is a sanskrit word. It simply means that which is right, that which is correct, that which is the divine law.
+ - Pass the popcorn, please. Life is a film, theatre, a theatre of the soul. We play different roles on different stages. At death, we walk offstage. At birth, we walk onstage.
+ - The time we waste never comes again. The opportunities we miss never come again. The loves we lose never come again. Indeed, in this world of constant change we are fortunate that these things never come again.
+ - Love is perhaps the strongest force in the universe. When you meditate with love, what you do is you feel love. Love is like a bird, you get on its back and you ride it up very high above the thought level.
+ - The best thing that you can do to deal with these high speed times is to slow down, inwardly, to take a little more time for meditation, a little more time to enjoy your morning cup of coffee or tea, and to look around at the people in your life with a little more love.
+ - In one particular chapter in Ulysses, James Joyce imitates every major writing style that’s been used by English and American writers over the last 700 years – starting with Beowulf and Chaucer and working his way up through the Renaissance, the Victorian era and on into the 20th century.
+ - Jesus Christ was a simple man walked around, did a few miracles, said a few things and died. It was enough for him to say what he felt and glow with the light of eternity.
+ - There is no evil, there’s no bad; there’s no good. These are human ideas. There’s no creator, there’s no creation; there’s no God, there’s no nirvana, there’s no perfection. These are ideas.
+ - Do something nice for somebody. Do something nice for God. Do something nice for the earth – and don’t expect anything in return or you will suffer.
+ - Enlightenment doesn’t mean you stop being a student. Being a student is a state of mind. Enlightenment simply means that you are everything and everywhere. It doesn’t preclude being a student.
+ - When someone compliments you, listen, but don’t believe it. Praise or blame are immaterial. You know what you are.
+ - Sometimes in life, we have to go backward a certain distance in order to go forwards. If we have conflicts within ourselves that we have not resolved, then we will find ourselves living inside of these conflicts, not in the realms of light.
+ - It’s like looking at the sun, that’s how infinity is. You can’t look at it for too long or you dissolve. The bands of your attention break. But if you look at it in specific ways, you can become something or someone much more conscious.
+ - Spend time alone in areas of low population density, where you can feel the stillness. Go out into the desert or up into the mountains or to the ocean where there aren’t too many people.
+ - We hide in relationships. We hide in material possessions. We hide in ambitions, secret desires, hates, frustrations, jealousy, self-ptiy, in our insecurity – and more than anything our vanity and our egotism.
+ - The high-priests and priestesses of Atlantis had discovered many of the deepest secrets of the universe. They had come to understand all about reincarnation, karma, and the innermost workings of the Enlightenment Cycle.
+ - Take a deep breath and exhale slowly. Mentally picture all tiredness, tension, and fatigue leaving you. Visualize that a wave of golden light is entering you at the top of your head and passing throughout your entire body.
+ - If you thrive on the city energy it is necessary to leave the city frequently and to walk in parks, to get away from people. You are more sensitive than you realize. Find a spot that makes you happy.
+ - Purity is innocence, the innocence of lack of self. Desire is innocent unless it’s connected with self.
+ - Slow down. Enjoy life. It’s tough to slow down if your mind is going a million miles a second. It’s tough to slow down if you think what these people do here matters.
+ - During the time of Atlantis, members of the Mystery Schools discovered and developed specific concentration exercises that they found would radically increase and sharpen their innate psychic abilities.
+ - Advance yourself by advancing others. Do not judge others. Be of service to them, but realize that you are not necessarily the instrument of perfecting and immortalizing others.
+ - The Divide is like two rivers merging, at the point of merging there is a great deal of activity. The sunset, it’s neither dark nor light, and the sunrises are the moments of transition.
+ - Who do you think of first in the morning? Good manipulators do it in the dream plane. The morning practice of meditation increases the aura to ward of negative energy. Meditate before bed if you are being attacked psychically.
+ - The yoga of selfless giving is easy for anyone to practice. The key is detachment. The spirit is unattachment to results.
+ - Enlightenment is the culmination of self-knowledge, pure unadulterated knowledge. Not knowledge you can get from reading a book, it comes from perfecting your awareness, your mind.
+ - In order to understand God, you have to learn to listen. You’re thoughts talk very loudly all the time. But God is very, very, very quiet. God doesn’t speak through words or thoughts. God doesn’t speak. God is silent.
+ - Everybody deals with stress differently. Some people drink, some people use drugs, some people watch TV. I have always found that extreme athletics chills me out and leaves me in a very centered place.
+ - There is a popular conception about karma, and that is that as you sow, so shall you reap. That’s only true if you’re a farmer.
+ - Don Juan, in the teacings of Carlos Castaneda, makes the same point. You have to fool people into seeking knowlege. People will not do it of their own volition.
+ - Self-hate doesn’t create enlightenment. It just causes you to not enjoy the current moment.
+ - Buddhism is not just going to temple, being at a ceremony and dressing up. That is the church of Buddhism. Esoteric Buddhism is to move beyond this world.
+ - A perfect life is to observe – to realize that you have no control over the events in your life, that there are no events in your life, that there is no life.
+ - This is a world that defines everything backwards, a world in which good is called bad, brightness is called darkness, up is called down, enlightenment is called abnormal behavior and abnormal behavior is applauded as reason.
+ - Happiness only comes when you let go of who you think you are. If you think you’re wealthy and powerful and noble and truthful or horrible and demonic, whatever it may be, it’s all a waste of time. Take it from the Zen Master. He knows.
+ - We see a lot of people who decide to go out and teach meditation. They become so wrapped up in it that they stop progressing themselves and they really don’t have that much more to teach.
+ - Take short walks in the park down a happy trail.
+ - Power doesn’t make you happy. Actually, power without knowledge and balance is problematic. Power is something that will automatically follow when you have knowledge. The two are really the same, in a certain sense.
+ - If someone is in the same state of mind and doesn’t seek to block your success, you have a friend. Such friends are rare, and if you find such a friend, value them.
+ - As you focus your attention on the heart center, you will begin to feel your thoughts slowing down. You’ll begin to feel your mind becoming calm and quiet. They won’t bother you.
+ - Kring is the mantra of power. “Kring” should only be repeated when you are in deep meditation.
+ - Your ego interferes, your sense of self. When you let go of the mind, the Frisbee will take its own path.
+ - You are a fluid metaphor for existence. You are your own death and your own rebirth. Here is forever. It never changes. We bring perpetual oblivion until we change the world.
+ - The world is empty – all of the people and places, the earth, the seas, mountains, deserts, forests and cities, and the beings that inhabit them, are unchangeable.
+ - There’s a place where everything comes together and where it’s all the same. That state of mind, in which all things are the same, is the state of mind of Tantric Zen.
+ - At the end of the dream, on the other side of the rainbow, there’s only light.
+ - If you are happier than you have ever been, then your power is increasing. But is it a fast a rate of climb as you would like?
+ - Some astral dimensions are bright and filled with ecstasy. Advanced cosmic beings live in them. But there are also very dark astral dimensions, often inhabited by beings that are filled with hate and despair.
+ - Eventually light prevails, you just have to be patient. So practice Buddhism, learn to be enlightened, put a smile on your face, go find a great teacher, meditate, and stay funny.
+ - Life is endless reality. There is reality after reality, spinning on endlessly into the cosmos, billions and billions of manifest universes. Underlying all of this is the unmanifest, the absolute reality.
+ - Old Zen was very funny; there was a great deal of humor and happiness. Zen today seems much drier. While there’s a certain amount of humor, it seems to lack that total intensity because humor is one of the primary tools for liberation.
+ - Never make a move until you find yourself making it, because it might be too soon. It’s always better to wait. Whenever you’re not sure, wait, and in time you’ll find yourself doing it. To act before then would be a mistake.
+ - For most people the prohibitions are a good thing. But If you are able to maintain very powerful states of mind, then you’ll find yourself in everything you see.
+ - Will is guided by wisdom. Wisdom comes from introspection, looking inside yourself, probing, studying the wisdom of the teachers, the masters and bringing that into your mind.
+ - Human beings have illusions. The enlightened don’t have illusions. They see things as they are, and in that seeing, they see ecstasy and joy. They see the play of life.
+ - Being a siddha master is indeed a great accomplishment, but it is not the same as being enlightened. People confuse siddha masters, who have the power to perform miracles, with enlightened masters who can enter into samadhi.
+ - Love teaches us how to penetrate the inner worlds, to clean the glass of existence and see reality in its perfect essence.
+ - If you can’t feel grateful, if you’re discouraged or depressed, then think of the fact that things could be a lot worse than they are.
+ - There is no best teacher. Life itself is the teacher. There is no best method. All that matters is that it works.
+ - In your thoughts, you need to be selective. Thoughts are powerful vehicles of attention. Only think positive thoughts about yourself and your endeavors, and think well of the endeavors of others.
+ - The path of Zen is not easy. It’s wonderful. It’s beautiful beyond compare. You will experience more ecstasy and beauty than most people will in a thousand lifetimes.
+ - In the advanced practice, the relationship between the Zen master and the student becomes very terse. The Zen master will expect things of the student because the student is in graduate school.
+ - Humility is my best friend, I’ve always valued it above all other spiritual qualities.
+ - If you are psychic you will become much more aware of the beauty of life. If you are psychic, when you look at a rose, you will see and feel the essence of the rose.
+ - In writing Snowboarding to Nirvana I have intentionally written an inspirational spiritual adventure story, which will hopefully provide people with metaphysical techniques, spiritual knowledge, hope and a brighter view of life.
+ - Love is light in the inner worlds; it is energy, a luminescent energy that is the basis of all creation. Love is the only thing in this world that is worthwhile because it is the only thing in this world that is eternal.
+ - Nature soothes us. Nature heals us, and something more, the woods are a place of power.
+ - Love is something that we don’t control. We have to be ourselves. You can be sexual, nonsexual, asexual, bisexual, or trisexual and it really doesn’t have a lot to do with enlightenment.
+ - There is no loneliness when you meditate, you feel eternity. How could you ever be lonely? You just feel God’s love for you and that sustains you. It’s totally clear; it’s part of every aspect of your being.
+ - To just burn out, to give up just because things don’t go your way, to assume that there is no God, no infinite light – I think that’s pretty petty, personally.
+ - Move the kundalini from the solar plexus region into the heart center, which purifies it and connects the two halves of you being. Bring the kundalini down again from the heart center to the navel center.
+ - People don’t really want to know the truth. The truth is that you are all dead in the future, everything that you do has no point, and all of the achievements of the human race are meaningless.
+ - You stand on the edge of eternity, with a vista that is so incredible, so powerful, so perfect that it’s overwhelming. You are so overwhelmed – you no longer exist.
+ - It’s up to you to avail yourself to knowledge. Knowledge doesn’t need you. The idea of a compassionate God was formulated, obviously, by someone who didn’t want to do any work.
+ - Love is visceral and real. Love is physical. It embraces all things. Love doesn’t space you out or take you out of this world.
+ - In the high mountains and desert beings can affect you. Most aren’t malicious, but some will lure you to your death.
+ - Inwardly the sun also has an energy field, it has an aura, so does the earth, so does the moon, and so do all the planets. We’re affected by those auras. It’s not something that you really want to reason out.
+ - Your mind is made up of light. We call it the dharmakaya, the clear light of reality. The transcendental eternal light is everywhere. It’s the light of god or whatever you want to call it.
+ - In the realm of the higher astral, it’s just fun. We’re on the honeymoon and we love each other so much that we can’t keep our hands off each other and everything is wonderful. It doesn’t last; it’s a honeymoon.
+ - Phony gurus make themselves objects of adoration and worship. Real spiritual teachers aren’t interested in adoration and worship. They like respect only because they realize respect will help the student.
+ - Karma is engendered by states of mind. If you are in a happy state of mind, that will engender one kind of karma. If you are in an unhappy state of mind, that will engender another kind of karma.
+ - We see an enlightened teacher to gain a sense of humor, to learn balance and proportion and of course to learn wisdom.
+ - Love is not reasonable. If we could assign it to the reasonable world, it would not be useful.
+ - When you meditate, you are shifting your state of mind to a higher vibratory level that will give you a much more expansive view.
+ - We can only conceive of changing the self-reflection in response to our concept of self-reflection, which is predicated on our concept of self, which is a self-reflection.
+ - When I speak of tantric yoga, I’m speaking of a type of yoga that is best practiced by persons who live in society. It’s a yoga for the last yuga.
+ - Things don’t make you unhappy. People don’t make you unhappy. You make yourself unhappy. Because you are in the cycle. You’re stuck. You’re stuck in time.
+ - Self discovery doesn’t not seek to bring you answers about your personal life or philosophically comfort you about life and death. What it does is bring you into reality as perception itself.
+ - Gain control of the emotions. Be the helmsperson and not blown around by the winds of emotion. While there will be winds, you can navigate them or even use them to expedite your journey.
+ - If you think that material success will bring you happiness, relationships, people, places, things, fame, fortune, you definitely should not practice tantra.
+ - You’re bound by the frame. You’ve become so engrossed in the movie of your life that you have forgotten that you’re sitting there watching.
+ - Rise above the limited conditions of pleasure and pain, success and failure, happiness and sorrow, that all the countless unenlightened beings in creation are slaves to.
+ - Why do everything perfectly? Isn’t perfection just an illusion? Tell me if it’s an illusion if they don’t fix your car perfectly next time you bring it in.
+ - Buddhism teaches us not to want things, not to avoid things, not to be upset by the loss. In the I Ching, there’s a hexagram that says, “Be like the sun at midday”. View all things as being equal.
+ - There are countless dimensions filled with beings of other orders. Now this may sound peculiar to some people, but it was only several hundred years ago that we invented something called the microscope. Since then worlds whose existence we did not suspect have become commonplace.
+ - Tragedy is the violation of love.
+ - There is a vortex of energy at the bottom of Walden Pond. That’s where the inter-dimensional opening is. As people swim in Old Walden Pond, it soothes them, it renews them. It’s a little bit like the pool in Cocoon – I suppose, any power spot is.
+ - Everyone is psychic. Being psychic is not a particular talent. Everybody has a left foot. Some people may just walk with that foot, some people may drag it, and some may learn to dance with it.
+ - When you find yourself dwelling on something negative, consciously use your willpower to remove your mind from that which is negative. Move your mind into the flow of something positive.
+ - When you are enlightened, your physical body will still feel pain if you get hurt, but you will not be overwhelmed even by extreme physical pain, because your mind is filled with light, love and understanding.
+ - Any individual is capable of realizing the truth at any time. No tradition is necessary, no chain, no lineage. Once you have realized the truth, once you have become consciousness itself, then you go beyond all such distinctions.
+ - We need to preserve these sacred locations for ourselves, for the species of plants and animals that coexist in harmony there, and for the future generations of humankind that will need to be refreshed, renewed and healed by them.
+ - Lack of judgement doesn’t mean that you don’t see what is or is not. It simply means that you realize that everyone is constantly changing – everyone is made up of conscioussness.
+ - Reincarnation is simply changing awareness. What you are reincarnating into are different states of mind. The whole show is on the inside.
+ - It seems to me that there’s a terrible misunderstanding between us. It seems to me that I love you a great deal, my friends.
+ - What makes a difference is when we take our mind and put it into the scriptures, when we read the Buddhist Canon, the Pali Canon, when we read the Tibetan books, when we read anything inspiring – somebody else’s journey into the world of enlightenment.
+ - The dreams of existence of that we call time, space, matter, subject, object, yin, yang – everything flows forth from this tai chi.
+ - Karma is the sum total of who you are, everything you’ve been. The mind state you are in is karmic. Meaning, it’s related by a causal chain of existences, of moments, of particles of timelessness.
+ - Willpower determines success in business, interpersonal relationships, health, whatever it is. All the activities in your life, success and failure in them, are dependent upon your ability to manifest will.
+ - The chakra is a doorway. These are doorways that lead you into other dimensions. But you have to focus on them to the exclusion of everything else.
+ - Use power wisely. If you search your heart, I think you will.
+ - You perceive yourself as being solid and physical, limited to a body. You are made up of light, endless mind. The way you see life is a limited state of mind.
+ - Miracles have a purpose. Miracles help people believe in enlightenment. The real miracle is the transformation of consciousness from limitation and pain to enlightenment and ecstasy.
+ - As you gain more discipline over your body, you will find that a corollary discipline will develop in the mind because the two really go together.
+ - Power has destroyed many people – not really. Power doesn’t destroy anyone. People apply it poorly and it can ruin their lives. Power is like fire. Fire is neither good nor bad. It’s how you use it.
+ - People want power but not wisdom. Power without wisdom is a very dangerous thing. Better to have wisdom first.
+ - If you go to a higher place of power, you can gain power there and you might even encounter some beings of knowledge and light that might aid you in some way.
+ - You can be alone too in the city streets, among the crowds. We are all alone.
+ - There is an all powerful force or energy that creates all and draws all back into it. This is God. It is beyond intelligence, beyond analysis.
+ - In Buddhist practice a great deal of time is spent practicing mandala meditation. You learn to visualize and hold simultaneous concepts in the mind during meditation.
+ - Beyond the astral dimensions are the causal dimensions. They are not spatial or time oriented. They are planes of light, and they make up the outer limits of nirvana.
+ - Our thoughts will swim around and talk to us while we’re sitting there, make fun of us, ignore us. But if you pay attention, if you don’t look in the direction of your thoughts, you meditate.
+ - Women have been dependent upon men for their survival, for the survival of their children.
+ - If you are a successful person and you let a lot of people in and around your life, they can drain your power. It won’t go to them, but it will leave you.
+ - Your very success is what’s going to destroy you. The survival mechanism that you’ve developed is the very thing which will cause the downfall of your subtle physical body.
+ - The members of the Atlantean Mystery School were the earliest human explorers of the frontiers of inner space. Through their meditative journeys and explorations, they discovered many secret astral passageways that led to an infinite variety of other worlds and dimensions.
+ - Water is the symbol of pure consciousness.
+ - Most disease is psychic occult attack.
+ - Karma means that through your thoughts and feelings and actions, you are generating a state of mind. That state of mind has a view. That view will cause things to happen to you or not happen to you.
+ - Just to exist, just to be, to take a breath, to feel that, whether its pleasure or pain, loss or gain, just your experience in life is unique to you. No one sees life like you do.
+ - Practice smiling for five minutes. Stop trying to meditate. Just smile. Let your smile get bigger and bigger. Oh, you’re unhappy, you’re miserable, nothing is working in life, it doesn’t matter. Smile anyway.
+ - Truth occurs in unusual places. Sometimes it’s in the frozen food section of the supermarket, sometimes it appears while you are waiting for your car to be fixed, sometimes you see it while in bed with someone you love, sometimes you find it while you’re meditating on a lone mountain.
+ - You could go outside today and have a glum face, or you could put a smile on your face and go out into the world, even though you don’t feel like it – that’s selfless giving!
+
+500 quotes

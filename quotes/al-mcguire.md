@@ -1,0 +1,52 @@
+ - Keep it simple, when you get too complex you forget the obvious.
+ - The only mystery in life is why the kamikaze pilots wore helmets.
+ - That’s it. Curtains. Off to the races. Treetops. Seashells and balloons.
+ - There’s no one who’s dropped on top of the mountain. You’ve got to work your way to the top.
+ - The world is run by C students.
+ - I let ballplayers yell back at me because I wasn’t trying to prove I’m boss. I know I’m boss.
+ - If the waitress has dirty ankles, the chili is good.
+ - Winning is overrated. The only time it is really important is in surgery and war.
+ - Live every day as if it were Saturday night.
+ - Our guys took Shop and Advanced Shop. Shop is when you make a chair. Advanced Shop is when you paint it.
+ - I don’t think any decent human being enjoys recruiting.
+ - The next time I will cry is when I die. My life has been that beautiful.
+ - Life is what you allow yourself not to see.
+ - When a guy takes off his coat, he’s not going to fight. When a guy takes off his wristwatch, watch out!
+ - Every obnoxious fan has a wife at home that dominates him.
+ - A team should be an extension of a coach’s personality. My teams are arrogant and obnoxious.
+ - Winning is only important in war and surgery.
+ - God didn’t miss any of us.
+ - Make your life exciting. Do what you have to do as long as you don’t hurt people.
+ - I want my team to have my personality: surly, obnoxious, and arrogant.
+ - My rule was I wouldn’t recruit a kid if he had grass in front of his house. That’s not my world. My world has a cracked sidewalk.
+ - I come from New York where, if you fall down, someone will pick you up by your wallet.
+ - They call me eccentric. They used to call me nuts. I haven’t changed. The only difference between being eccentric and being nuts is the number of security boxes you own.
+ - We rush for the stars as we crawl toward our graves.
+ - On how to make the game more exciting – Eliminate the referees, raise the basket four feet, double the size of the basketball, limit the height of the players to 5 feet 9 inches, bring back the centre jump, allow taxi drivers in for free and allow the players to carry guns.
+ - All love affairs end. Eventually the girl is gonna put curlers in her hair.
+ - I’m an Einstein of the streets and an Oxford scholar of common sense.
+ - Dean Meminger was quicker than 11:15 Mass at a seaside resort.
+ - The nicest thing about coaching is that one day you feel like you can play handball against a curb, and on other days you feel like you can fly to the moon.
+ - Don’t be just another guy going down the street and going nowhere.
+ - Help one kid at a time. He’ll maybe go back and help a few more.
+ - I had my moment on the stage. The trick in life is to know when to leave.
+ - Live in the moment that you are in.
+ - Can’t win without talent, you know.
+ - I think everyone should go to college and get a degree and then spend six months as a bartender and six months as a cabdriver. Then they would really be educated.
+ - If winning weren’t important nobody would keep score.
+ - I don’t know why people question the academic training of an athlete. Fifty percent of the doctors in this country graduated in the bottom half of their classes.
+ - When I’m losing, they call me nuts. When I’m winning, they call me eccentric.
+ - I don’t discuss basketball. I dictate basketball. I’m not interested in philosophy classes.
+ - It’s a profession in which, the longer you stay, the closer you are to being fired.
+ - If a player leaves Marquette and doesn’t have some of my blood in him, then I don’t think I’ve done a good job.
+ - It’s so ridiculous to see a golfer with a one foot putt and everybody is saying “Shhh” and not moving a muscle. Then we allow nineteen year-old kids to face a game-deciding free throw with seventeen thousand people yelling.
+ - You measure a player from the head up.
+ - You better have great practices.
+ - I don’t believe in looking past anybody – I wouldn’t look past the Little Sisters of the Poor after they stayed up all night.
+ - I just can’t recruit where there’s grass around. You gotta have a concrete lawn before I feel comfortable enough to go in and talk to you parents.
+ - If you’re straight with your players, they’ll be straight with you.
+ - Butch, you come from DeWitt Clinton. There are five thousand brothers in that school. You’re the best there. You’ve been all-city two years in a row. How bad can you be? You come with me and we’ll make nice music.
+ - I’m not saying that they were Einsteins; they were marginal students. But every ballplayer whoever touched me has moved up his station in life. And the players moved up my station.
+ - The people who know basketball, their elevators don’t go to the top.
+
+50 quotes

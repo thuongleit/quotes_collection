@@ -1,0 +1,143 @@
+ - Fun is like life insurance; the older you get, the more it costs.
+ - The fellow that owns his own home is always just coming out of a hardware store.
+ - The safe way to double your money is to fold it over once and put it in your pocket.
+ - There is no failure except in no longer trying. There is no defeat except from within, no really insurmountable barrier save our own inherent weakness of purpose.
+ - Some folks can look so busy doing nothing that they seem indispensable.
+ - The less a statesman amounts to, the more he loves the flag.
+ - Lots of folks confuse bad management with destiny.
+ - A sadder but wiser man is a thousand times more agreeable to meet than the feller that never makes a mistake.
+ - The hardest thing is to take less when you can get more.
+ - Boys will be boys, and so will a lot of middle-aged men.
+ - If you haven’t seen your wife smile at a traffic cop, you haven’t seen her smile her prettiest.
+ - The longer it takes you to select a cantaloupe, the worse it is!
+ - Washing your car and polishing it all up is a never failing sign of rain.
+ - Men are not punished for their sins, but by them.
+ - Honesty pays, but it doesn’t seem to pay enough to suit some people.
+ - No one can feel as helpless as the owner of a sick goldfish.
+ - There’s no secret about success. Did you ever know a successful man who didn’t tell you about it?
+ - It’s the good loser who finally loses out.
+ - Next to a circus there ain’t nothing that packs up and tears out faster than the Christmas spirit.
+ - A good listener is usually thinking about something else.
+ - Classical music is the kind we keep thinking will turn into a tune.
+ - If some people didn’t tell you, you’d never know they’d been away on a vacation.
+ - Of all the home remedies, a good wife is best.
+ - Everything comes to him who waits, except a loaned book.
+ - When you consider what a chance women have to poison their husbands, it’s a wonder there isn’t more of it done.
+ - The election is not very far off when a candidate can recognize you across the street.
+ - Being an optimist after you’ve got everything you want doesn’t count.
+ - Litigation: A form of hell whereby money is transferred from the pockets of the proletariat to that of lawyers.
+ - Nothing’s as mean as giving a little child something useful for Christmas.
+ - There is plenty of peace in any home where the family doesn’t make the mistake of trying to get together.
+ - Don’t knock the weather; nine-tenths of the people couldn’t start a conversation if it didn’t change once in a while.
+ - A friend that ain’t in need is a friend indeed.
+ - We would all like to vote for the best man but he is never a candidate.
+ - Many a family tree needs trimming.
+ - The reason the way of the transgressor is hard is because it’s so crowded.
+ - All the world loves a good loser.
+ - Nobody can be as agreeable as an uninvited guest.
+ - Most parents don’t worry about a daughter until she fails to show up for breakfast.
+ - You won’t skid if you stay in a rut.
+ - I’m sorry to inform you that your 50 year warranty has expired on your back, knees, and memory. Luckily your lifetime warranty on your heart is still in effect. Of course, that becomes void and expires when you do.
+ - The rich man and his daughter are soon parted.
+ - It isn’t enough for you to love money – it’s also necessary that money should love you.
+ - Nobody ever forgets where he buried the hatchet.
+ - Where ignorance is bliss it’s foolish to borrow your neighbor’s newspaper.
+ - A loafer always has the correct time.
+ - Nothing dispels enthusiasm like a small admission fee.
+ - No matter how much strong black coffee we drink, almost any after- dinner speech will counteract it.
+ - Flattery won’t hurt you if you don’t swallow it.
+ - There’s another advantage to being poor – a doctor will cure you faster.
+ - Some people are so sensitive that they feel snubbed if an epidemic overlooks them.
+ - Only one fellow in ten thousand understands the currency question, and we meet him every day.
+ - Experience is a dear teacher but he delivers the goods.
+ - The fellow that agrees with everything you say is either a fool or he is getting ready to skin you.
+ - Of all the unbearable nuisances, the ignoramus that has traveled is the worst.
+ - My idea of walking into the jaws of death is marrying some woman who has lost three husbands.
+ - When some folks agree with my opinions I begin to suspect I’m wrong.
+ - Don’t say yes until I’ve finished talking. – Attributed to many Hollywood executives Lots of folks confuse bad management with destiny.
+ - If capital and labor ever do get together it’s good night for the rest of us.
+ - The world gets better every day – then worse again in the evening.
+ - We can tell that a good name is better than riches by those who prefer the riches.
+ - Bees are not as busy as we think they are. They jest can’t buzz any slower.
+ - Peace has its victories no less than war, but it doesn’t have as many monuments to unveil.
+ - A grouch escapes so many little annoyances that it almost pays to be one.
+ - Lack of pep is often mistaken for patience.
+ - Intelligent people are always on the unpopular side of anything.
+ - Whoever takes just plain ginger ale soon gets drowned out of the conversation.
+ - Some folks pay a compliment like they went down in their pocket for it.
+ - Fashion: a barricade behind which men hide their nothingness.
+ - I haven’t heard of anybody who wants to stop living on account of the cost.
+ - One of the commonest ailments of the present day is the premature formation of opinion.
+ - The hardest thing is writing a recommendation for someone we know.
+ - I never saw an athletic girl that thought she was strong enough to do indoor work.
+ - There’s many a slip twixt the blueprints and a new house.
+ - Nobody ever grew despondent looking for trouble.
+ - It ain’t a bad plan to keep still occasionally even when you know what you’re talking about.
+ - Nothing is as irritating as the fellow who chats pleasantly while he’s overcharging you.
+ - The worst waste of breath, next to playing a saxophone, is advising a son.
+ - Executive: a man who makes quick decisions and is sometimes right.
+ - Another bad thing about “prosperity” is that you can’t jingle any money without being under suspicion.
+ - Plain spoken people get most of the recognition because folks are afraid of them.
+ - Very often the quiet fellow has said all he knows.
+ - A bad cold wouldn’t be so annoying if it weren’t for the advice of our friends.
+ - It is pretty hard to tell what does bring happiness; poverty and wealth have both failed.
+ - About the only thing we have left that actually discriminates in favor of the plain people is the stork.
+ - Live so that you can at least get the benefit of the doubt.
+ - Folks that blurt out just what they think wouldn’t be so bad if they thought.
+ - We like little children, because they tear out as soon as they get what they want.
+ - There are two ways to handle a woman, and nobody knows either of them.
+ - None but the brave can live with the fair.
+ - Nobody works as hard for his money as the man who marries it.
+ - Don’t a fellow feel good after he gets out of a store where he nearly bought something.
+ - If at first you do succeed don’t take any more chances.
+ - One of the commonest mistakes is thinking your worries are over when your children get married.
+ - As to those who hoard gold and silver and spend it not in God’s path, give them, then, the tidings of a painful agony: on a day when these things shall be heated in hell-fire, and their foreheads, and their sides, and their backs shall be branded therewith.
+ - The worst feature of a new baby is its mother’s singing.
+ - There is nothing so aggravating as a fresh boy who is too old to ignore and too young to kick.
+ - It is no disgrace to be poor, but it might as well be.
+ - Gossip is vice enjoyed vicariously – the sweet, subtle satisfaction without the risk.
+ - Politics makes strange post-masters.
+ - The fellow that calls you ‘brother’ usually wants something that doesn’t belong to him.
+ - Universal peace sounds ridiculous to the head of an average family.
+ - I will say this for adversity: people seem to be able to stand it, and that is more than I can say for prosperity.
+ - In order to live off a garden, you practically have to live in it.
+ - Now and then an innocent man is sent to the legislature.
+ - It seems that nothing ever gets to going good till there’s a few resignations.
+ - When some fellers decide to retire nobody knows the difference.
+ - We’re all self-made men, but not very many of us have stayed on the job.
+ - The man who says “I may be wrong, but – ” does not believe there can be any such possibility.
+ - A sympathizer is a fellow that’s for you as long as it doesn’t cost anything.
+ - Some fellows get credit for being conservative when they are only stupid.
+ - One of the simple but genuine pleasures in life is getting up in the morning and hurrying to a mousetrap you set the night before.
+ - It’s going to be fun to watch and see how long the meek can keep the earth once they inherit it.
+ - Kindness goes a long ways lots of times when it ought to stay at home.
+ - Never tell the box-office man that you can’t hear well or he will sell you a seat where can can’t see either.
+ - After a fellow gets famous it doesn’t take long for someone to bob up that used to sit by him in school.
+ - Women seem to be all right on bargains till it comes to picking out a husband.
+ - Lots of fellows think a home is only good to borrow money on.
+ - Every once in a while someone without a single bad habit gets caught.
+ - If there’s anything a public servant hates to do it’s something for the public.
+ - If there’s any literary ability in a feller, getting fired out of a good government job will bring it out.
+ - It used to be that a fellow went on the police force when everything else failed, but today he goes in the advertising game.
+ - The only time some fellows are seen with their wives is after they’re indicted.
+ - There isn’t much to be seen in a little town, but what you hear makes up for it.
+ - Who remembers when we used to rest on Sunday instead of Monday?
+ - In spite of all our speeding it’s still the style to be late.
+ - I don’t know of anything better than a woman if you want to spend money where it will show.
+ - I don’t look for much to come out of government ownership as long as we have Democrats and Republicans.
+ - Getting talked about is one of the penalties.
+ - If the government was as afraid of disturbing the consumer as it is of disturbing business, this would be some democracy.
+ - Making a long stay short is a great aid to popularity.
+ - Look out for the people who allow you to do all the talking.
+ - Nobody kicks on being interrupted if it’s by applause.
+ - No woman can be handsome by the force of features alone, any more that she can be witty by only the help of speech.
+ - The only way to entertain some folks is to listen to them.
+ - Getting talked about is one of the penalties for being pretty, while being above suspicion is about the only compensation for being homely.
+ - An optimist is a fellow who believes what’s going to be will be postponed.
+ - A never-failing way to get rid of a fellow is to tell him something for his own good.
+ - It’s what a fellow thinks he knows that hurts him.
+ - A lot of Thanksgiving days have been ruined by not carving the turkey in the kitchen.
+ - Every father expects his boy to do the things he wouldn’t do when he was young.
+ - Some folks seem to have descended from the chimpanzee much later than others.
+
+141 quotes

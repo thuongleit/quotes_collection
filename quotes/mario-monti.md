@@ -1,0 +1,26 @@
+ - I hope that my government can help change Italian mentality.
+ - I believe that in Europe, we have a collective leadership.
+ - My aspiration is not to be loved. It is that my government be respected and credible.
+ - Europe has to avoid old prejudices and new ones. That means north versus south, rich versus poor.
+ - The two greatest priorities for my government are tackling tax evasion and corruption.
+ - The Italian economy has been held back for decades.
+ - It is rather unusual for Italy to be at the forefront of pro-market initiatives.
+ - Not all Greeks are ready to do whatever is necessary to stay in the euro.
+ - A lot of the American press at the time was saying ‘just watch what happens when Bertelsmann tries to buy EMI, that will be a moment of truth that will show the Commission’s true colors.’ Well, that deal never happened either.
+ - Reference to the territory and total disregard for the nationality of the companies is of course the best guarantee that competition assessment remain just that and doesn’t get affected by trade or other considerations.
+ - I have the most profound respect for the Department of Justice and the FTC. We in Europe are a younger and I would say junior institution to the historical antitrust experience of the US.
+ - As to the question of elected or not elected, each member of the European Commission has been appointed jointly by the governments of the 15 member states, and undergone individual scrutiny and a vote of confidence from the European Parliament.
+ - Italy needed structural reforms to become more competitive.
+ - I believe that reforms will not really take hold if they do not gradually come into the culture of the people.
+ - I am certain that most Germans have instinctive liking for Italy, just as Italians admire Germans for their many qualities.
+ - If governments let themselves be fully bound by the decisions of their parliaments without protecting their own freedom to act, a breakup of Europe would be a more probable outcome than deeper integration.
+ - Italy even in the future will not need aid from the European Financial Stability Fund.
+ - In the area of macroeconomic policies, I think we’ll see more centralization, like in the budgetary sphere.
+ - I know that speaking with parties, which I do, but not very often, is seen by many as a contamination.
+ - If Spain goes under, Italy will come under even more scrutiny.
+ - Growth in any individual European country has to be the result of policies for growth pursued in that country consistent with budgetary discipline.
+ - There was in Italy a hidden demand for a boring government which would try to tell the truth in non-political jargon.
+ - It is very unusual for a country to ask guys who are not politicians to come and run the country.
+ - If the euro becomes a factor promoting Europe’s drifting apart, then the foundation of the European project is destroyed.
+
+24 quotes

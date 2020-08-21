@@ -1,0 +1,39 @@
+ - When nothing is sure, everything is possible.
+ - A man’s greatest fear from a woman is that she will laugh at him; a woman’s fear is that a man will kill her.
+ - Nothing succeeds, they say, like success. And certainly nothing fails like failure.
+ - Our desire to conform is greater than our respect for objective facts.
+ - Family life itself, that safest, most traditional, most approved of female choices, is not a sanctuary: It is, perpetually, a dangerous place.
+ - You have to be careful what you imagine, because the act of imagining is the act of encouraging yourself to be a certain kind of person.
+ - World War II put feminism on hold for a long time; the men went away to fight, a lot of women in those years got jobs both in teaching and in factories – at all social levels – which they enjoyed very much. A lot of them were quite happy during the war.
+ - The human mind can bear plenty of reality but not too much intermittent gloom.
+ - London, how could one ever be tired of it?
+ - Scenery can be a violent stimulant.
+ - Perhaps the rare and simple pleasure of being seen for what one is compensates for the misery of being it.
+ - Novels, since the birth of the genre, have been full of rejected, seduced, and abandoned maidens, whose proper fate is to die...
+ - If I knew what the meanings of my books were, I wouldn’t have bothered to write them.
+ - Why can’t people be both flexible and efficient?
+ - There are some people who cannot get onto a train without imagining that they are about to voyage into the significant unknown; as though the notion of movement were inseparably connected with the notion of discovery, as though each displacement of the body were a displacement of the soul.
+ - Because if one has an image, however dim and romantic, of a journey’s end, one may, in the end, surely reach it, after no matter how many detours and deceptions and abandonings of hope. And hope could never have been entirely abandoned, even in the worst days.
+ - How unjust life is, to make physical charm so immediately apparent or absent, when one can get away with vices untold for ever.
+ - England’s not a bad country? It’s just a mean, cold, ugly, divided, tired, clapped-out, post-imperial, post- industrial slag-heap covered in polystyrene hamburger cartons. 286.
+ - I used to be a reasonably careless and adventurous person before I had children; now I am morbidly obsessed by seat-belts and constantly afraid that low-flying aircraft will drop on my children’s school.
+ - The women are always vixens or monsters. They can’t just be normal people in the book.
+ - The middle years, caught between children and parents, free of neither: the past stretches back too densely, it is too thickly populated, the future has not yet thinned out.
+ - And there isn’t any way that one can get rid of the guilt of having a nice body by saying that one can serve society with it, because that would end up with oneself as what? There simply doesn’t seem to be any moral place for flesh.
+ - On one thing professionals and amateurs agree: mothers can’t win.
+ - I’d rather be at the end of a dying tradition, which I admire, than at the beginning of a tradition which I deplore.
+ - Poverty, therefore, was comparative. One measured it by a sliding scale. One was always poor, in terms of those who were richer.
+ - How extraordinary people are, that they get themselves into such situations where they go on doing what they dislike doing, and have no need or obligation to do, simply because it seems to be expected.
+ - What foolsmiddle-classgirls are to expect other people to respect the same gods as themselves and E M Forster.
+ - I’ve always thought that very few people grow old as admirably as academics. At least books never let them down.
+ - There are some writers who wrote too much. There are others who wrote enough. There are yet others who wrote nothing like enough to satisfy their admirers, and Jane Austen is certainly one of these.
+ - Lord knows what incommunicable small terrors infants go through, unknown to all.
+ - Some of what we read in classical literature is not relative to our condition, but then many women novelists and poets have turned it upside down and told the stories from the other point of view.
+ - There would be more genuine rejoicing at the discovery of a complete new novel by Jane Austen than any other literary discovery, short of a new major play by Shakespeare.
+ - Sometimes it seems the only accomplishment my education ever bestowed on me was the ability to think in quotations.
+ - Nothing fails like failure.
+ - I actually remember feeling delight, at two o’clock in the morning, when the baby woke for his feed, because I so longed to have another look at him.
+ - Men and women can never be close. They can hardly speak to one another in the same language. But are compelled, forever, to try, and therefore even in defeat there is no peace.
+ - I have switched on this modern laptop machine. And I have told myself that I must resist the temptation to start playing solitaire upon it.
+
+37 quotes

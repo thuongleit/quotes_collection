@@ -1,0 +1,32 @@
+ - You’re not disabled by the disabilities you have, you are able by the abilities you have.
+ - If the legs did provide such an advantage that some of the people are claiming they did, then there would be a lot more amputees using the exact same prosthetic legs I have, running the exact same times I have – and that’s not the case.
+ - You don’t call the witness a liar, not while he is in the witness box.
+ - I have a strong sense that I have to educate people about disability.
+ - It’s impossible to make everyone happy. Some will choose to see the negative. None is perfect but find a way of loving them perfectly!
+ - Thank you to everyone that has made me the athlete I am! God, family and friends, my competitors and supporters! You have all had a hand!
+ - My parents didn’t give me any scope to feel sorry for myself. They were just like ’go play with your brother, go climb a tree, go fall off your motorbike, do whatever you want. Don’t come crying to us when you get scratched. You’ve got prosthetic legs – that’s very nice.
+ - I’d like to show people that if you put the hard work in and you believe in yourself, then you can do whatever you want to.
+ - When you’re competing, you don’t have the choice of what the weather will be like. It really doesn’t affect me. I ran one of my fastest times in the New York Diamond League meeting last year. It was raining pretty hard then.
+ - Out of the tens of thousands of prosthetic legs they’ve made, there’s never been any 400-meter athletes run under 50 seconds. So, if this was such a technologically advanced prosthetic leg, then how come not everyone’s qualifying, or coming close to the qualification time, then?
+ - These have always been my legs. I train harder than other guys, eat better, sleep better and wake up thinking about athletics. I think that’s probably why I’m a bit of an exception.
+ - Everyone has setbacks. I’m no different. I happen to have no legs. That’s pretty much the fact.
+ - I don’t see myself as disabled. There’s nothing I can’t do that able-bodied athletes can do.
+ - I think every athlete that’s just out here for the Olympics just does something to inspire those around them and inspire each other.
+ - Rio in four years; I’ve got more inspiration in the last two, three weeks. I’m sure I’m going to get more in the Paralympics in the next coming weeks, so by the end of this season, I’m going to take a month off, and then the next four years is going to be good.
+ - Being disabled doesn’t mean you have a disadvantage.
+ - I am also hugely excited to then be competing to defend my three Paralympic titles at the Paralympic Games. I believe we will see some amazing times posted and I am very much looking forward to what will be an incredible Olympics and Paralympics in London.
+ - I can have my goals, and I can have my dreams. My goal is to make the finals and improve my position. I want to run all decent races. I don’t want to look back and say I ran a terrible race.
+ - I grew up not really thinking I had a disability. I grew up thinking I had different shoes.
+ - The more I accomplish, the more pressure I put on myself.
+ - I have run two Olympic ‘A’ standard times over the past 12 months and with the time I ran at the African Championships last week I know my speed and fitness are constantly improving so that I will peak in time for the Olympics.
+ - I don’t want to be competing in a sport where I feel that I’m here not on my talent and my hard work but because of a piece of equipment.
+ - To have been selected to represent Team South Africa at the London 2012 Olympic Games in the individual 400m and the 4x400m relay is a real honor and I am so pleased that years of hard work, determination and sacrifice have all come together.
+ - Putting on my legs is like putting on my shoes. I understand that’s how some people might think differently, but I hope that in London, their perceptions open up.
+ - I want to wake up every day and feel that I’m training harder than my competitors, that I’m dieting harder, that I’m recovering better. That’s what gives me confidence when I’m lining up on the blocks. I’ve never gone out to prove people wrong. I just want to be the best that I can possibly be.
+ - I still find it strange, I suppose, when I say to someone, ‘Can you just pass me my leg?’ But I don’t ever think about my disability.
+ - There is a big difference between being good and being great.
+ - I wasn’t happy with my performance at the World Championships in Daegu. I had an unbelievable race in the heats, but misjudged the semi and finished last.
+ - I made the mistakes not because I’m tired.
+ - I’ve been followed home late at night. I’ve been shot at on the highway.
+
+30 quotes

@@ -1,0 +1,23 @@
+ - Greatness is not measured by what a man or woman accomplishes, but by the opposition he or she has overcome to reach his goals.
+ - Without community service, we would not have a strong quality of life. It’s important to the person who serves as well as the recipient. It’s the way in which we ourselves grow and develop.
+ - We had people of all backgrounds coming together – all races, all creeds, all colors, all status in life. And coming together there was a kind of quiet dignity and a kind of sense of caring and a feeling of joint responsibility.
+ - I want to be remembered as one who tried.
+ - We have to improve life, not just for those who have the most skills and those who know how to manipulate the system. But also for and with those who often have so much to give but never get the opportunity.
+ - If the time is not ripe, we have to ripen the time.
+ - We have to realize we are building a movement.
+ - Without Community Service we wouldnot have a strong quality of Life.
+ - I think of my life as a unity of circles. Some are concentric, others overlap, but they all connect in some way. Sometimes the connections don’t happen for years. But when they do, I marvel. As in a shimmering kaleidoscope, familiar patterns keep unfolding.
+ - Civil rights are civil rights. There are no persons who are not entitled to their civil rights. We have to recognize that we have a long way to go, but we have to go that way together.
+ - No one will do for you what you need to do for yourself. We cannot afford to be separate. We have to see that all of us are in the same boat.
+ - There is no contradiction between effective law enforcement and respect for civil and human rights.
+ - Progress comes from caring more about what needs to be done than about who gets the credit.
+ - I am the product of many whose lives have touched mine, from the famous, distinguished, and powerful to the little known and the poor.
+ - We’ve got to work to save our children and do it with full respect for the fact that if we do not, no one else is going to do it.
+ - When you’re a black woman, you seldom get to do what you just want to do; you always do what you have to do.
+ - The Black family of the future will foster our liberation, enhance our self-esteem, and shape our ideas and goals.
+ - My mother helped me understand how not to show off what I knew, but how to use it so that others might benefit.
+ - We have to see that all of us are in the same boat.
+ - The black woman had had to struggle against being a person of great strength.
+ - We are not a problem people, we are people with problems.
+
+21 quotes

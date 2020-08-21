@@ -1,0 +1,111 @@
+ - God doesn’t call the equipped, son. God equips the called. And you have been called.
+ - Some things you can never leave behind. They don’t belong to the past. They belong to you.
+ - But we fall only that we might rise, Alfred. All of us fall; all of us, as you say, screw up. Falling is not important. It is how we get up after the fall that’s important.
+ - It’s almost dawn. You can feel it coming. The world holds its breath, because there’s really no guarantee that the sun will rise. That there was a yesterday doesn’t mean there will be a tomorrow.
+ - To hold on, you have to find something you’re willing to die for.
+ - We’d stared into the face of Death, and Death blinked first. You’d think that would make us feel brave and invincible. It didn’t.
+ - You know how sometimes you tell yourself that you have a choice, but really you don’t have a choice? Just because there are alternatives doesn’t mean they apply to you.
+ - How do you rid the Earth of humans? Rid the humans of their humanity.
+ - It’s hard to plan for what comes next when what comes next is not something you planned for.
+ - Our enemy is fear. Blinding, reason-killing fear. Fear consumes the truth and poisons all the evidence, leading us to false assumptions and irrational conclusions.
+ - The world is a clock winding down.
+ - Soon I will fall asleep and I will wake from this terrible dream. The endless night will fall, and I will rise. I long for that night. I do not fear it. I have had my fill of fear. I have stared too long into the abyss, and now the abyss stares back at me.
+ - I’m not encouraged by the silence. I can think of no benign reason for it. I’m afraid we may expect something closer to Christopher Columbus’s arrival in the Americas than a scene from Close Encounters, and we all know how that turned out for the Native Americans.
+ - What boy my age didn’t dream of fleeing the well-tended lawn and lamp-lit street for the untamed wilderness, where grand adventure awaited on the other side of the horizon, where the stars burned undimmed in the velvet sky above his head and the virgin ground lay untrodden beneath his feet?
+ - When you look death in the eye and death blinks first, nothing seems impossible.
+ - I don’t care what the stars say about how small we are. One, even the smallest, weakest, most insignificant one, matters.
+ - Sometimes in my tent, late at night, I think I can hear the stars scraping against the sky.
+ - Maybe the last human being on Earth won’t die of starvation or exposure or as a meal of wild animals. Maybe the last one to die will be killed by the last one alive.
+ - We’re here, and then we’re gone, and it’s not about the time we’re here, but what we do with the time.
+ - I thought I knew what loneliness was before he found me, but I had no clue. You don’t know what real loneliness is until you’ve known the opposite.
+ - Yes, my dear child, monsters are real. I happen to have one hanging in my basement.
+ - There’s an old saying about truth setting you free. Don’t buy it. Sometimes the truth slams the cell door shut and throws a thousand bolts.
+ - Even the most sensitive person can get used to even the most insensitive thing. Cruelty isn’t a personality trait. Cruelty is a habit.
+ - When I cry – when I let myself cry – that’s who I cry for. I don’t cry for myself. I cry for the Cassie that’s gone. And I wonder what that Cassie would think of me. The Cassie who kills.
+ - Self-pity is egotism undiluted, after all – self-centeredness in its purest form.
+ - Because we will die, but at least we will die unbroken.
+ - Why did they come billions of miles just to stare at us? It’s rude.
+ - I will teach you to love death. I will empty you of grief and guilt and self-pity and fill you up with hate and cunning and the spirit of vengeance. I will make my final stand here, Benjamin Thomas Parish.
+ - You can’t force yourself to trust. So you put all your doubts in a little box and bury it deep and then try to forget where you buried it.
+ - Some things you don’t have to promise. You just do.
+ - Memories can bring comfort to the old and infirm, but memories can also be implacable foes, a malicious army of temporal ghosts forever pillaging the long-sought-after peace of our twilight years.
+ - It’s like a cockroach working up a plan to defeat the shoe on its way down to crush it.
+ - You never know when the truth will come home. You can’t choose the time. The time chooses you.
+ - What doesn’t kill us sharpens us. Hardens us. Schools us. You’re beating plowshares into swords, Vosch. You are remaking us. We are the clay, and you are Michelangelo. And we will be your masterpiece.
+ - The cold stars spun to the ancient rhythm, the august march of an everlasting symphony. They are old, the stars, and their memory is long.
+ - And in more than half the pictures, she isn’t looking at the camera; she’s looking at him. Not the way I would look at Ben Parish, all squishy around the eyes. She looks at Evan fiercely, like, This here? It’s mine.
+ - Prayers and promises. The one his sister made to him. The unspoken one I made to my sister. Prayers are promises, too, and these are the days of broken promises.
+ - Human beings are remarkably resilient. When you think about it, our species has been teetering upon the edge of the existential cliff since Hiroshima. In short, we endure.
+ - It wasn’t aliens that first made us gear up for war; it was our fellow humans.
+ - So often the monsters that crowd our minds are nothing more than the strange and thoroughly alien progeny of our own fearful fantasies.
+ - I don’t move. I wait behind my log, terrified. Over the past ten minutes, it’s become such a dear friend, I consider naming it: Howard, my pet log.
+ - She hated him and loved him, longed for him and loathed him, and cursed herself for feeling anything at all.
+ - Maybe you reach a certain point in evolution where boredom is the greatest threat to your survival. Maybe this isn’t a planetary takeover at all, but a game. Like a kid pulling wings off flies.
+ - I start to unbutton his shirt. “Got to get these clothes off,” I mutter. “You don’t know how long I’ve waited to hear you say that.” Smile. Lopsided. Sexy.
+ - That’s what you do when the curtain is falling – you give the line that the audience wants to hear.
+ - There’s a hero in every heart waiting for the dragon to come out.
+ - Because promises matter. They matter now more than ever.
+ - Climb onto my shoulders. I will not let you fall.
+ - And if humanity is the last war, then I am the battlefield.
+ - You can only call someone crazy if there’s someone else who’s normal. Like good and evil. If everything was good, then nothing would be good.
+ - Is this how humanity waves good-bye? Hell no.
+ - He asks me what happened to my leg. I told him I was shot by a shark. He doesn’t react. Doesn’t seem confused or amused or anything. Like getting shot by a shark is a perfectly natural thing in the aftermath of the arrival.
+ - The monstrous act by definition demands a monster.
+ - There are times when fear is not our enemy. There are times when fear is our truest, sometimes only, friend.
+ - In every creepy movie ever made, the barn is the prime nesting ground for the things you don’t know you’re looking for and always regret finding.
+ - In case you’re an alien and you’re reading this: BITE ME.
+ - Poets never die, I thought. They just fail in the end.
+ - We are the hunters – and we are also the bait.
+ - If the world breaks a million and one promises, can you trust the million and second?
+ - I do not mean to mock or ridicule your life’s work, for in one way at least it mimics my own: We have dedicated our lives to the pursuit of phantoms. The difference is the nature of those phantoms. Mine exist between other men’s ears; yours live solely between your own.
+ - And red is not the color of apples or roses or the dresses that pretty girls wear in the summertime. That is not the color of red at all.
+ - Perhaps that is our doom, our human curse, to never really know one another.
+ - Great sci-fi has never shied from tackling the Big Questions, though really great sci-fi never forgets to entertain us along the way. Shock and awe applies to art, as well.
+ - You’re mortal, and only a mortal can afford to be romantic. When we conquered death, we murdered love.
+ - There are things that are too terrible to remember, and there are things that are almost too wonderful to recall.
+ - I was woefully ignorant in the social graces. I was being raised, after all, by Pellinore Warthrop.
+ - He spreads his fingers over my heart, like he’s holding it, like it belongs to him, the hard-fought-for territory he’s won fair and square.
+ - It isn’t that the lies are too beautiful to resist. It’s that the truth is too hideous to face.
+ - A child has little defense against the sight of a parent laid low. Parents, like the earth beneath our feet and the sun above our heads, are immutable objects, eternal and reliable. If one should fall, who might vouch the sun itself won’t fall, burning, into the sea?
+ - Nothing makes us love something more than the loss of it.
+ - His heart, the war. Her face, the battlefield.
+ - But monsters, I now know, come in all shapes and sizes, and only their appetite for human flesh defines them.
+ - There was, like, this black hole where the world used to be, and we were both falling toward it. What could we hold on to?
+ - If I had faced it then, I wouldn’t be facing it now, but sooner or later you have to choose between running and facing the thing you thought you could not face.
+ - Tampons. I’m constantly worrying about my stash and if I’ll be able to find more.
+ - My first favourite book was Are You My Mother? A picture book about a lost bird. After that my favourites changed almost yearly. I loved everything by Roald Dahl, but my favourite was probably Charlie and the Chocolate Factory. A librarian gave me a first edition of that book, which I treasure.
+ - I have a very low tolerance for boredom and often think I would have missed out on books entirely if Id grown up in the Internet and video game age. Now I enjoy books for people of all ages, including children.
+ - Do you know how to tell who the enemy is, Cassie?
+ - How oft do they rescue or ruin us, through whimsy or design or a combination of both, the adults to whom we entrust our care!
+ - I stare at her. I’ve always known that it’s impossible to argue with Belinda, not because she’s particularly good at it, but because she’s so bad at it- that there is no common ground to work from. She simply sees the world she wants to see it and no amount of logic can change her mind.
+ - Adolphus is not at his desk. That means he is somewhere in the Monstrumarium, has gone home for the day, or is dead.
+ - I am the one, Not Running, Not Staying, But FACING.
+ - A miscalculation is not negligence, nor prudence a crime. I am a scientist. I base my action or inaction upon probability and evidence. There is a reason we call science a discipline! Inferior minds bolt or build pyres to roast the witches in their midst!
+ - Then the door flew open and Mr. Faulks told us to head over to the gym. I thought that was really smart. Get all of us in one place so the aliens didn’t have to waste a lot of ammunition.
+ - A man lies upon the floor, spreads his arms, and transforms himself into a ship of a thousand sails.
+ - Perhaps God waits for us to be empty, so he may fill us with himself.
+ - Still, you tend to believe what you always believed, think what you always thought, expect what you always expected.
+ - Sarcasm doesn’t appear to work on him. If that’s true, I’m in trouble: It’s my normal mode of communication.
+ - Cruelty isn’t a personality trait. Cruelty is a habit.
+ - It isn’t up to me to break his heart; that’s time’s job.
+ - Could there be irony crueler than this? How, upon his rescue, the truth had brought him here, to a house for the mad, for only a madman believes what every child knows to be true: There are monsters that lie in wait under our beds.
+ - Just because a man is a homicidal maniac doesn’t make him wrong.
+ - And then Evan Walker kisses me.
+ - The harder survival becomes, the more you want to pull together. And the more you want to pull together, the harder survival becomes.
+ - Then I strip the pants away from each leg, like peeling a banana. That’s it, the perfect metaphor: peeling a banana.
+ - The doctor frowned upon drinking and often expressed wonderment at men who willingly made imbeciles of themselves.
+ - To hell with monsters and to hell with men. There is no difference to me.
+ - A word of advice, Will Henry. When a person of the female gender says she wants to show you something, run the other way. The odds are it is not something you wish to see.
+ - I would kill for a cheeseburger. Honestly. If I stumbled across someone eating a cheeseburger, I would kill them for it.
+ - But hope is no less realistic than despair. It is still our choice whether to live in light or lie down in darkness.
+ - I was a slave to something he believed to be silly and superstitious: the idea that all life was worth defending and that nothing justified surrender to the forces of destruction.
+ - He barely knew I existed. I knew some of the same people he knew, but I was a girl in the background, several degrees of seperation removed.
+ - Dr. Warthrop chopped off my finger with a butcher knife.
+ - I didn’t show up here to give your life purpose now that your life’s over. That’s up to you to figure out.
+ - Oh, Will Henry. After all we have been through, how could I send you away now, at our most critical hour? You are indispensable to me.
+ - Time for the world to end.
+ - You are the nest. You are the hatchling. You are the chrysalis. You are the progeny. You are the rot that falls from stars. You may not understand what I mean. You will.
+ - We are the clay, and you are Michelangelo. And we will be your masterpiece.
+ - There are those who labor in the darkness, that the rest of us might live in the light.
+
+109 quotes

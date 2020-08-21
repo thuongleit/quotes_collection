@@ -1,0 +1,502 @@
+ - The two most important days in your life are the day you are born and the day you find out why.
+ - The secret to getting ahead is getting started.
+ - Never argue with stupid people, they will drag you down to their level and then beat you with experience.
+ - Worrying is like paying a debt you don't owe.
+ - The man who does not read has no advantage over the man who cannot read.
+ - Everyone is a moon, and has a dark side which he never shows to anybody.
+ - If you tell the truth, you don’t have to remember anything.
+ - Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.
+ - Never allow someone to be your priority while allowing yourself to be their option.
+ - Whenever you find yourself on the side of the majority, it is time to pause and reflect.
+ - Kindness is a language which the deaf can hear and the blind can see.
+ - Reality can be beaten with enough imagination.
+ - The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.
+ - Sanity and happiness are an impossible combination.
+ - Write what you know.
+ - Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.
+ - If voting made any difference they wouldn’t let us do it.
+ - Go to heaven for the climate and hell for the company.
+ - To get the full value of joy you must have someone to divide it with.
+ - Never tell the truth to people who are not worthy of it.
+ - If you don't read the newspaper, you're uninformed. If you read the newspaper, you're mis-informed.
+ - I have never let my schooling interfere with my education.
+ - Don’t go around saying the world owes you a living. The world owes you nothing. It was here first.
+ - Travel is fatal to prejudice, bigotry, and narrow-mindedness, and many of our people need it sorely on these accounts. Broad, wholesome, charitable views of men and things cannot be acquired by vegetating in one little corner of the earth all one’s lifetime.
+ - Books are for people who wish they were somewhere else.
+ - I do not fear death. I had been dead for billions and billions of years before I was born, and had not suffered the slightest inconvenience from it.
+ - You can't depend on your eyes when your imagination is out of focus.
+ - Good friends, good books, and a sleepy conscience: this is the ideal life.
+ - A lie can travel half way around the world while the truth is putting on its shoes.
+ - Name the greatest of all inventors. Accident.
+ - A clear conscience is the sure sign of a bad memory.
+ - It is better to deserve honors and not have them than to have them and not deserve them.
+ - Education: the path from cocky ignorance to miserable uncertainty.
+ - I've lived through some terrible things in my life, some of which actually happened.
+ - When you fish for love, bait with your heart, not your brain.
+ - God created war so that Americans would learn geography.
+ - A banker is a fellow who lends you his umbrella when the sun is shining, but wants it back the minute it begins to rain.
+ - Write without pay until somebody offers to pay.
+ - Loyalty to country always. Loyalty to government, when it deserves it.
+ - I have found out that there ain't no surer way to find out whether you like people or hate them than to travel with them.
+ - Life is short, break the rules, forgive quickly, kiss slowly, love truly, laugh uncontrollably, and never regret anything that made you smile.
+ - Get your facts first, and then you can distort them as much as you please.
+ - Continuous improvement is better than delayed perfection.
+ - Explore. Dream. Discover.
+ - In a good bookroom you feel in some mysterious way that you are absorbing the wisdom contained in all the books through your skin, without even opening them.
+ - Be careful about reading health books. You may die of a misprint.
+ - Clothes make the man. Naked people have little or no influence on society.
+ - If it’s your job to eat a frog, it’s best to do it first thing in the morning. And If it’s your job to eat two frogs, it’s best to eat the biggest one first.
+ - But who prays for Satan? Who, in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most?
+ - Education consists mainly of what we have unlearned.
+ - Courage is resistance to fear, mastery of fear, not absence of fear.
+ - When I was a boy of 14, my father was so ignorant I could hardly stand to have the old man around. But when I got to be 21, I was astonished at how much the old man had learned in seven years.
+ - The secret of getting ahead is getting started. The secret of getting started is breaking your complex overwhelming tasks into small manageable tasks, and starting on the first one.
+ - Giving up smoking is the easiest thing in the world. I know because I've done it thousands of times.
+ - It’s better to keep your mouth shut and appear stupid than open it and remove all doubt.
+ - Age is an issue of mind over matter. If you don’t mind, it doesn’t matter.
+ - In the first place God made idiots. This was for practice. Then he made school boards.
+ - It’s easier to fool people than to convince them that they have been fooled.
+ - Travel is fatal to prejudice, bigotry, and narrow-mindedness.
+ - The best way to cheer yourself up is to try to cheer somebody else up.
+ - It ain’t what you don’t know that gets you into trouble. It’s what you know for sure that just ain’t so.
+ - Just because you’re taught that something’s right and everyone believes it’s right, it don’t make it right.
+ - The trouble is not in dying for a friend, but in finding a friend worth dying for.
+ - History doesn’t repeat itself, but it does rhyme.
+ - All you need in this life is ignorance and confidence; then success is sure.
+ - Forgiveness is the fragrance that the violet sheds on the heel that has crushed it.
+ - They did not know it was impossible so they did it.
+ - Never put off till tomorrow what may be done day after tomorrow just as well.
+ - Do the right thing. It will gratify some people and astonish the rest.
+ - The difference between the right word and the almost right word is the difference between lightning and a lightning bug.
+ - The human race has one really effective weapon, and that is laughter.
+ - The lack of money is the root of all evil.
+ - A man’s character may be learned from the adjectives which he habitually uses in conversation.
+ - Any emotion, if it is sincere, is involuntary.
+ - Let us live so that when we come to die even the undertaker will be sorry.
+ - Of all the animals, man is the only one that is cruel. He is the only one that inflicts pain for the pleasure of doing it.
+ - When angry, count four. When very angry, swear.
+ - There is nothing so annoying as having two people talking when you’re busy interrupting.
+ - Wrinkles should merely indicate where smiles have been.
+ - Life would be infinitely happier if we could only be born at the age of eighty and gradually approach eighteen.
+ - In the beginning of a change the patriot is a scarce man, and brave, and hated and scorned. When his cause succeeds, the timid join him, for then it costs nothing to be a patriot.
+ - A gentleman is someone who knows how to play the banjo and doesn’t.
+ - Humor is mankind’s greatest blessing.
+ - Nature knows no indecencies; man invents them.
+ - I am an old man and have known a great many troubles, but most of them have never happened.
+ - There was never yet an uninteresting life. Such a thing is an impossibility. Inside of the dullest exterior there is a drama, a comedy, and a tragedy.
+ - Life does not consist mainly, or even largely, of facts or happenings. It consist mainly of the storm of thoughts that is forever flowing through one’s head.
+ - A successful book is not made of what is in it, but what is left out of it.
+ - Facts are stubborn things, but statistics are pliable.
+ - The man who is a pessimist before 48 knows too much; if he is an optimist after it he knows too little.
+ - Suppose you were an idiot, and suppose you were a member of Congress; but I repeat myself.
+ - It’s easy to make friends, but hard to get rid of them.
+ - It usually takes me two or three days to prepare an impromptu speech.
+ - Be respectful to your superiors, if you have any.
+ - My books are water; those of the great geniuses is wine. Everybody drinks water.
+ - If animals could speak, the dog would be a blundering outspoken fellow; but the cat would have the rare grace of never saying a word too much.
+ - Part of the secret of success in life is to eat what you like and let the food fight it out inside.
+ - Human beings can be awful cruel to one another.
+ - I did not attend his funeral, but I sent a nice letter saying I approved of it.
+ - When I am king they shall not have bread and shelter only, but also teachings out of books, for a full belly is little worth where the mind is starved.
+ - Success is a journey, not a destination. It requires constant effort, vigilance and reevaluation.
+ - Don’t dream your life, but live your dream.
+ - Good decisions come from experience. Experience comes from making bad decisions.
+ - The truth hurts, but silence kills.
+ - Of all God’s creatures, there is only one that cannot be made slave of the leash. That one is the cat. If man could be crossed with the cat it would improve the man, but it would deteriorate the cat.
+ - Life is short, break the rules.
+ - When I was younger, I could remember anything, whether it had happened or not; but my faculties are decaying now and soon I shall be so I cannot remember any but the things that never happened. It is sad to go to pieces like this but we all have to do it.
+ - Politicians and diapers must be changed often, and for the same reason.
+ - Synergy – the bonus that is achieved when things work together harmoniously.
+ - I must have a prodigious amount of mind; it takes me as much as a week, sometimes, to make it up!
+ - Courage is not the lack of fear. It is acting in spite of it.
+ - A person that started in to carry a cat home by the tail was gitting knowledge that was always going to be useful to him, and warn’t ever going to grow dim or doubtful.
+ - Buy land, they’re not making it anymore.
+ - Data is like garbage. You’d better know what you are going to do with it before you collect it.
+ - Figures don’t lie, but liars figure.
+ - He who asks is a fool for five minutes, but he who does not ask remains a fool forever.
+ - I didn’t have time to write a short letter, so I wrote a long one instead.
+ - Out of all the things I have lost, I miss my mind the most.
+ - Don’t wrestle with pigs. You both get dirty and the pig likes it.
+ - Do the thing you fear most and the death of fear is certain.
+ - Give every day the chance to become the most beautiful day of your life.
+ - I have spent most of my life worrying about things that have never happened.
+ - Eat a live frog first thing in the morning and nothing worse will happen to you the rest of the day.
+ - Go to bed early, get up early-this is wise.
+ - India is, the cradle of the human race, the birthplace of human speech, the mother of history, the grandmother of legend, and the great grand mother of tradition. our most valuable and most instructive materials in the history of man are treasured up in India only.
+ - Denial ain’t just a river in Egypt.
+ - A good lawyer knows the law; a clever one takes the judge to lunch.
+ - Never argue with a fool, onlookers may not be able to tell the difference.
+ - Good judgement is the result of experience and experience the result of bad judgement.
+ - One must travel, to learn.
+ - No amount of evidence will ever persuade an idiot.
+ - Behind every successful man, there is a woman – And behind every unsuccessful man, there are two.
+ - Many a small thing has been made large by the right kind of advertising.
+ - The world doesn’t owe you anything. It was here first.
+ - The secret of making progress is to get started.
+ - Whiskey is for drinking; water is for fighting over.
+ - Do not complain about growing old. It is a privilege denied to many.
+ - Never miss an opportunity to shut up.
+ - If I had more time, I would have written less.
+ - Truth is stranger than fiction, but it is because Fiction is obliged to stick to possibilities; Truth isn’t.
+ - To someone with a hammer, everything looks like a nail.
+ - When the end of the world comes, I want to be in Kentucky, because everything there happens 20 years after it happens anywhere else.
+ - A habit cannot be tossed out the window; it must be coaxed down the stairs a step at a time.
+ - An open mind leaves a chance for someone to drop a worthwhile thought in it.
+ - Don’t part with your illusions. When they are gone you may still exist, but you have ceased to live.
+ - Do something everyday that you don’t want to do; this is the golden rule for acquiring the habit of doing your duty without pain.
+ - Writing is easy. All you have to do is cross out the wrong words.
+ - To succeed in life, you need two things: ignorance and confidence.
+ - There are lies, damned lies and statistics.
+ - Most men die at 27, we just bury them at 72.
+ - She was not quite what you would call refined. She was not quite what you would call unrefined. She was the kind of person that keeps a parrot.
+ - When we remember we are all mad, the mysteries disappear and life stands explained.
+ - You meet people who forget you. You forget people you meet. But sometimes you meet those people you can’t forget. Those are your ’friends.
+ - To stand still is to fall behind.
+ - There is no such thing as a new idea. We simply take a lot of old ideas and put them into a sort of mental kaleidoscope.
+ - A tax is a fine for doing well, a fine is a tax for doing wrong.
+ - If you have nothing to say, say nothing.
+ - The worst loneliness is to not be comfortable with yourself.
+ - In the Spring, I have counted 136 different kinds of weather inside of 24 hours.
+ - The reports of my death are greatly exaggerated.
+ - Too much of anything is bad, but too much good whiskey is barely enough.
+ - How far we travel in life matters far less than those we meet along the way.
+ - I’m in favor of progress; it’s change I don’t like.
+ - Nothing so needs reforming as other people’s habits. Fanatics will never learn that, though it be written in letters of gold across the sky. It is the prohibition that makes anything precious.
+ - It’s better to be an optimist who is sometimes wrong than a pessimist who is always right.
+ - Man is the only animal that blushes. Or needs to.
+ - The inability to forget is far more devastating than the inability to remember.
+ - Never let formal education get in the way of your learning.
+ - It’s no wonder that truth is stranger than fiction. Fiction has to make sense.
+ - There is no God, no universe, no human race, no earthly life, no heaven, no hell. It is all a dream, a grotesque and foolish dream. Nothing exists but you. And you are but a thought -a vagrant thought, a useless thought, a homeless thought, wandering forlorn among the empty eternities!
+ - Focus more on your desire than on your doubt, and the dream will take care of itself.
+ - Good exercise for the heart: reach out and help your neighbor.
+ - Sacred cows make the best hamburger.
+ - Make your vacation your vocation.
+ - There is nothing training cannot do. Nothing is above its reach. It can turn bad morals to good; it can destroy bad principles and recreate good ones; it can lift men to angelship.
+ - Censorship is telling a man he can’t have a steak just because a baby can’t chew it.
+ - Make your vocation your vacation. That is the secret to success.
+ - Warm summer sun, shine kindly here. Warm southern wind, blow softly here. Green sod above, lie light, lie light. Good night, dear Heart, Good night, good night.
+ - A half-truth is the most cowardly of lies.
+ - Quitting smoking is easy, I’ve done it hundreds of times.
+ - Heaven goes by favor. If it went by merit, you would stay out and your dog would go in.
+ - If you want love and abundance in your life, give it away.
+ - The secret of success is making your vocation your vacation.
+ - I was born with Halley’s Comet and I expect to die upon its return.
+ - Some people get an education without going to college. The rest get it after they get out.
+ - The only way to keep your health is to eat what you don’t want, drink what you don’t like, and do what you’d rather not.
+ - If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man.
+ - There are only two types of speakers in the world. 1. The nervous and 2. Liars.
+ - The Mississippi River will always have its own way; no engineering skill can persuade it to do otherwise...
+ - Religion was invented when the first con man met the first fool.
+ - Some of the worst things in my life never even happened.
+ - For the majority of us, the past is a regret, the future an experiment.
+ - The dog is a gentleman; I hope to go to his heaven not man’s.
+ - It’s spring fever. That is what the name of it is. And when you’ve got it, you want – oh, you don’t quite know what it is you do want, but it just fairly makes your heart ache, you want it so!
+ - I’m glad I did it, partly because it was worth it, but mostly because I shall never have to do it again.
+ - There is no security in life, only opportunity.
+ - Don’t wake up a woman in love. Let her dream, so that she does not weep when she returns to her bitter reality.
+ - No man’s life, liberty, or property are safe while the legislature is in session.
+ - If everyone was satisfied with himself, there would be no heroes.
+ - You can’t break a bad habit by throwing it out the window. You’ve got to walk it slowly down the stairs.
+ - It takes your enemy and your friend, working together, to hurt you to the heart: the one to slander you and the other to get the news to you.
+ - I can live for two months on a good compliment.
+ - All right, then, I’ll go to hell.
+ - I can teach anybody how to get what they want out of life. The problem is that I can’t find anybody who can tell me what they want.
+ - A man cannot be comfortable without his own approval.
+ - You can’t reason someone out of something that they weren’t reasoned into in the first place.
+ - Seasickness: at first you are so sick you are afraid you will die, and then you are so sick you are afraid you won’t die.
+ - Make your mark in New York and you are a made man.
+ - Don’t wait the time is never just right.
+ - Anyone who can only think of one way to spell a word obviously lacks imagination.
+ - We regret the things we don’t do more than the things we do.
+ - When everyone is looking for gold, it’s a good time to be in the pick and shovel business.
+ - The art of prophecy is very difficult, especially with respect to the future.
+ - Supposing is good, but finding out is better.
+ - Some people give their problems swimming lessons instead of drowning them.
+ - The first half of my life I went to school, the second half of my life I got an education.
+ - It ain’t those parts of the Bible that I can’t understand that bother me, it is the parts that I do understand.
+ - The right word may be effective, but no word was ever as effective as a rightly timed pause.
+ - I don’t like to commit myself about heaven and hell – you see, I have friends in both places.
+ - I was seldom able to see an opportunity until it had ceased to be one.
+ - Sometimes I wonder whether the world is being run by smart people who are putting us on or by imbeciles who really mean it.
+ - The secret to success: find out where people are going and get there first.
+ - Against the assault of laughter, nothing can stand.
+ - I notice that you use plain, simple language, short words and brief sentences. That is the way to write English – it is the modern way and the best way. Stick to it; don’t let fluff and flowers and verbosity creep in.
+ - Nothing exists but you. And you are but a thought.
+ - There is nothing to be learned from the second kick of a mule.
+ - If you want to change the future, you must change what you’re doing in the present.
+ - I don’t give a damn for a man that can only spell a word one way.
+ - If God had meant for us to be naked, we’d have been born that way.
+ - Our lives, our liberty, and our property are never in greater danger than when Congress is in session.
+ - Annihilation has no terrors for me, because I have already tried it before I was born – a hundred million years – and I have suffered more in an hour, in this life, than I remember to have suffered in the whole hundred million years put together.
+ - Everything has its limit – iron ore cannot be educated into gold.
+ - The secret source of humor is not joy but sorrow.
+ - The physician who knows only medicine, knows not even medicine.
+ - Familiarity breeds contempt. How accurate that is. The reason we hold truth in such respect is because we have so little opportunity to get familiar with it.
+ - One of the brightest gems in the New England weather is the dazzling uncertainty of it.
+ - The best cure for Christianity is reading the Bible.
+ - A journalist is a reporter out of a job.
+ - Great things can happen when you don’t care who gets the credit.
+ - The very ink with which history is written is merely fluid prejudice.
+ - A German joke is no laughing matter.
+ - I am an anti-imperialist. I am opposed to having the eagle put its talons on any other land.
+ - A home without a cat – and a well-fed, well-petted and properly revered cat – may be a perfect home, perhaps, but how can it prove title?
+ - Let us be thankful for the fools. But for them the rest of us could not succeed.
+ - When people do not respect us we are sharply offended; yet deep down in his private heart no man much respects himself.
+ - Thunder is good, thunder is impressive; but it is lightning that does the work.
+ - Never put off until tomorrow what you can avoid altogether. A clean desk is a sign of a cluttered desk drawer. All you need in this life is ignorance and confidence, and then success is sure.
+ - Always obey your parents – when they are present.
+ - Life is short. Forgive quickly, kiss slowly and love truly.
+ - Never have a battle of wits with an unarmed person.
+ - The trouble with the world is not that people know too little; it’s that they know so many things that just aren’t so.
+ - Don’t go to sleep, so many people die there.
+ - The future interests me – I’m going to spend the rest of my life there.
+ - Teaching is like trying to hold 35 corks underwater at once.
+ - The more I learn about people, the more I like my dog.
+ - When the world is made to be idiot-proof, the world will become overpopulated with idiots.
+ - Don’t part with your illusions. When they are gone you may still exist, but you have ceased to live. To live a fulfilled life, we need to keep creating the “what is next”, of our lives. Without dreams and goals there is no living, only merely existing, and that is not why we are here.
+ - It is noble to teach oneself; it is still nobler to teach others.
+ - There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
+ - The Book of Mormon is chloroform in print.
+ - Work and play are words used to describe the same thing under differing conditions.
+ - The easy confidence with which I know another man’s religion is folly teaches me to suspect that my own is also.
+ - There is nothing in the world like a persuasive speech to fuddle the mental apparatus and upset the convictions and debauch the emotions of an audience not practiced in the tricks and delusions of oratory.
+ - I smoke in moderation. Only one cigar at a time.
+ - It’s lovely to live on a raft. We had the sky up there, all speckled with stars, and we used to lay on our backs and look up at them, and discuss about whether they was made or only just happened.
+ - Irreverence is the champion of liberty and its only sure defense.
+ - To one in sympathy with nature, each season, in its turn, seems the loveliest.
+ - The weakest of all weak things is a virtue that has not been tested in the fire.
+ - Better a broken promise than none at all.
+ - We are all alike, on the inside.
+ - Do something everyday that you don’t want to do.
+ - It is easier to stay out than get out.
+ - The radical of one century is the conservative of the next. The radical invents the views. When he has worn them out, the conservative adopt.
+ - My father was a Saint Bernard, my mother was a Collie, but I am a Presbyterian.
+ - Forgiveness is the smell that lavender gives out when you tread on it.
+ - We are all ignorant; just about different things.
+ - I would like to live in Manchester, England. The transition between Manchester and death would be unnoticeable.
+ - Nothing spoils a good story like the arrival of an eyewitness.
+ - My mother had a slender, small body, but a large heart-a heart so large that everybody’s joys found welcome in it, and hospitable accommodation.
+ - France has neither winter, nor summer, nor morals. France is miserable because it is filled with Frenchmen, and Frenchmen are miserable because they live in France.
+ - Don’t use a five-dollar word when a fifty-cent word will do.
+ - Wherefore being all of one mind, we do highly resolve that government of the grafted by the grafter for the grafter shall not perish from the earth.
+ - It is a worthy thing to fight for one’s freedom; it is another sight finer to fight for another man’s.
+ - Action speaks louder than words but not nearly as often.
+ - Shut the door not that it lets in the cold but that it lets out the coziness.
+ - On with the dance, let the joy be unconfined.
+ - Obscurity and a competence – that is the life that is best worth living.
+ - A clean desk is a sign of a cluttered desk drawer.
+ - Children are natural mimics who act like their parents despite every effort to teach them good manners.
+ - I admire the serene assurance of those who have religious faith. It is wonderful to observe the calm confidence of a Christian with four aces.
+ - The universal brotherhood of man is our most precious possession.
+ - While the rest of the species is descended from apes, redheads are descended from cats.
+ - Do your duty today and repent tomorrow.
+ - One must travel, to learn. Every day, now, old Scriptural phrases that never possessed any significance for me before, take to themselves a meaning.
+ - Why is it that we rejoice at a birth and grieve at a funeral? It is because we are not the person involved.
+ - God’s great cosmic joke on the human race was requiring that men and women live together in marriage.
+ - Never tell a lie-except for practice.
+ - Now and then we had a hope that if we lived and were good, God would permit us to be pirates.
+ - A man is accepted into a church for what he believes and he is turned out for what he knows.
+ - Remember this, take this to heart, live by it, die for it if necessary: that our patriotism is medieval, outworn, obsolete; that the modern patriotism, the true patriotism, the only rational patriotism, is loyalty to the Nation ALL the time, loyalty to the Government when it deserves it.
+ - A man is never more truthful than when he acknowledges himself a liar.
+ - Independence-is loyalty to one’s best self and principles, and this is often disloyalty to the general idols and fetishes.
+ - Optimist: Person who travels on nothing from nowhere to happiness.
+ - It’s good sportsmanship to not pick up lost golf balls while they are still rolling.
+ - Prediction is difficult- particularly when it involves the future.
+ - My father was an amazing man. The older I got, the smarter he got.
+ - Love seems the swiftest, but it is the slowest of all growths. No man or woman really knows what perfect love is until they have been married a quarter of a century.
+ - Never knew before what eternity was made for. It is to give some of us a chance to learn German.
+ - Human nature is the same everywhere; it deifies success, it has nothing but scorn for defeat.
+ - A friend is someone who stays in when the rest of the world has gone out.
+ - December is the toughest month of the year. Others are July, January, September, April, November, May, March, June, October, August, and February.
+ - Let us make a special effort to stop communicating with each other, so we can have some conversation.
+ - Man is the only animal that is cruel. It kills just for the sake of it.
+ - And what is a man without energy? Nothing – nothing at all.
+ - Fame is a vapor, popularity an accident; the only earthly certainty is oblivion.
+ - When in doubt tell the truth. It will confound your enemies and astound your friends.
+ - I like criticism, but it must be my way.
+ - Life should begin with age and it’s privileges and accumulations, and end with youth and it’s capacity to splendidly enjoy such advantages.
+ - We should be careful to get out of an experience only the wisdom that is in it and stop there lest we be like the cat that sits down on a hot stove lid. She will never sit down on a hot stove lid again and that is well but also she will never sit down on a cold one anymore.
+ - A classic is something that everybody wants to have read and nobody wants to read.
+ - I like a good story well told. That is the reason I am sometimes forced to tell them myself.
+ - Whatever you say, say it with conviction.
+ - On with dance, let joy be unconfined, is my motto; whether there’s any dance to dance or any joy to unconfined.
+ - A person with a new idea is a crank until the idea succeeds.
+ - I never write “metropolis” for seven cents when I can write “city” and get paid the same.
+ - If you don’t know how to pronounce a word, say it loudly. Do not compound mispronunciation with inaudibility.
+ - So far as I am able to judge, nothing has been left undone, either by man or nature, to make India the most extraordinary country that the sun visits on his rounds. Nothing seems to have been forgotten, nothing overlooked.
+ - My land, the power of training! Of influence! Of education! It can bring a body up to believe anything.
+ - Education: that which reveals to the wise, and conceals from the stupid, the vast limits of their knowledge.
+ - Unused talents gives you no advantage over someone who has no talent at all.
+ - Let us consider that we are all partially insane. It will explain us to each other; it will unriddle many riddles; it will make clear and simple many things which are involved in haunting and harassing difficulties and obscurities now.
+ - Apparently there is nothing that cannot happen today.
+ - It is curious that physical courage should be so common in the world and moral courage so rare.
+ - Ignorant people think it is the noise which fighting cats make that is so aggravating, but it ain’t so; it is the sickening grammar that they use.
+ - A pilot must have a memory developed to absolute perfection. But there are two higher qualities which he also must have. He must have good and quick judgment and decision, and a cool, calm courage that no peril can shake.
+ - Work is a necessary evil to be avoided.
+ - Tell the truth or trump-but get the trick.
+ - Explaining humor is a lot like dissecting a frog, you learn a lot in the process, but in the end you kill it.
+ - The trouble ain’t that there is too many fools, but that the lightning ain’t distributed right.
+ - Words are only painted fire; a look is the fire itself.
+ - Drawing on my fine command of language, I said nothing.
+ - Politicians, old buildings, and prostitutes become respectable with age.
+ - Geological time is not money.
+ - Most people can’t bear to sit in church for an hour on Sundays. How are they supposed to live somewhere very similar to it for eternity?
+ - There are three things men can do with women: love them, suffer them, or turn them into literature.
+ - I thoroughly disapprove of duels. If a man should challenge me, I would take him kindly and forgivingly by the hand and lead him to a quiet place and kill him.
+ - Thousands of geniuses live and die undiscovered – either by themselves or by others.
+ - To be busy is man’s only happiness.
+ - Tough times teach trust.
+ - Civilization largely consists in hiding human nature. When the barbarian learns to hide it we account him enlightened.
+ - We are called the nation of inventors. And we are. We could still claim that title and wear its loftiest honors if we had stopped with the first thing we ever invented, which was human liberty.
+ - Too bad that youth is wasted on the young.
+ - A pessimist is a well-informed optimist.
+ - In the small town of Hannibal, Missouri, when I was a boy, everybody was poor, but didn’t know it; and everybody was comfortable and did know it.
+ - The English are mentioned in the Bible; Blessed are the meek, for they shall inherit the earth.
+ - He had the calm confidence of a Christian with four aces.
+ - The nation is divided, half patriots and half traitors, and no man can tell which from which.
+ - We are always more anxious to be distinguished for a talent which we do not possess, than to be praised for the fifteen which we do possess.
+ - Humor is the good natured side of a truth.
+ - A circle is a round straight line with a hole in the middle.
+ - Give a man a reputation as an early riser and he can sleep ’til noon.
+ - Temper is what gets most of us into trouble. Pride is what keeps us there.
+ - He is useless on top of the ground; he ought to be under it, inspiring the cabbages.
+ - It was a place of sin, loose women, whiskey and gambling. It was no place for a good Presbyterian, and I did not long remain one.
+ - Be good and you will be lonesome.
+ - Names are not always what they seem. The common Welsh name Bzjxxllwcp is pronounced Jackson.
+ - There are 869 different forms of lying, but only one of them has been squarely forbidden. Thou shalt not bear false witness against thy neighbor.
+ - But death was sweet, death was gentle, death was kind; death healed the bruised spirit and the broken heart, and gave them rest and forgetfulness; death was man’s best friend; when man could endure life no longer, death came and set him free.
+ - It usually takes more than three weeks to prepare a good impromptu speech. Overnight success is a fallacy. It is preceded by a great deal of preparation. Ask any successful person how they came to this point in their lives, and they will have a story to tell.
+ - He liked to like people, therefore people liked him.
+ - Courage is resistance to fear, mastery of fear-not absence of fear. Except a creature be part coward it is not a compliment to say it is brave; it is merely a loose application of the word. Consider the flea! – incomparably the bravest of all the creatures of God, if ignorance of fear were courage.
+ - The ancients stole all our ideas from us.
+ - The Impartial Friend: Death, the only immortal who treats us all alike, whose pity and whose peace and whose refuge are for all – the soiled and the pure, the rich and the poor, the loved and the unloved.
+ - The citizen who sees his society’s democratic clothes being worn out and does not cry it out, is not a patriot, but a traitor.
+ - There ain’t no way to find out why a snorer can’t hear himself snore.
+ - A sound heart is a surer guide than an ill-trained conscience.
+ - I wonder how much it would take to buy a soap bubble, if there were only one in the world.
+ - The only certainties in life are death and taxes.
+ - I am only human, although I regret it.
+ - Let us consider that we are all insane. It will explain us to each other. It will unriddle many riddles.
+ - If horses knew their strength we should not ride anymore.
+ - I wonder if God created man because He was disappointed with the monkey.
+ - If it is a Miracle, any sort of evidence will answer, but if it is a Fact, proof is necessary.
+ - Not until you become a stranger to yourself will you be able to make acquaintance with the Friend.
+ - You don’t know about me, without you have read a book by the name of ‘The Adventures of Tom Sawyer,’ but that ain’t no matter. That book was made by a Mr. Mark Twain, and he told the truth, mainly.
+ - In Boston they ask, how much does he know? In New York, how much is he worth? In Philadelphia, who were his parents?
+ - The average woman would rather have beauty than brains, because the average man can see better than he can think.
+ - What is the chief end of man?-to get rich. In what way?-dishonestly if we can; honestly if we must.
+ - I was young and foolish then; now I am old and foolisher.
+ - The offspring of riches: Pride, vanity, ostentation, arrogance, tyranny.
+ - The finest clothing made is a person’s own skin, but, of course, society demands something more than this.
+ - Familiarity breeds contempt – and children.
+ - If there is a God, he is a malign thug.
+ - Never be haughty to the humble, never be humble to the haughty.
+ - Children and fools always speak the truth.
+ - Humor is the great thing, the saving thing after all. The minute it crops up, all our hardnesses yield, all our irritations, and resentments flit away, and a sunny spirit takes their place.
+ - You want to be very careful about lying; otherwise you are nearly sure to get caught.
+ - Never pick a fight with people who buy ink by the barrel.
+ - Architects cannot teach nature anything.
+ - When I want to read something nice, I sit down and write it myself.
+ - But old fools is the biggest fools there is.
+ - The most successful people are those who do all year long what they would otherwise do on their summer vacation.
+ - I was educated once – it took me years to get over it.
+ - Take your mind out every now and then and dance on it. It is getting all caked up.
+ - Oh Death where is thy sting! It has none. But life has.
+ - Diligence is a good thing, but taking things easy is much more restful.
+ - To us, our house was not unsentient matter – it had a heart, and a soul, and eyes to see us with; and approvals and solicitudes and deep sympathies; it was of us, and we were in its confidence, and lived in its grace and in the peace of its benediction.
+ - Homely truth is unpalatable.
+ - Thanksgiving day. Let us all give humble, hearty, and sincere thanks now, but the turkeys.
+ - Cold! If the thermometer had been an inch longer we’d all have frozen to death!
+ - If work were so pleasant, the rich would keep it for themselves.
+ - To be good is noble; but to show others how to be good is nobler and no trouble.
+ - Pessimism is only the name that men of weak nerve give to wisdom.
+ - There is no other life; life itself is only a vision and a dream for nothing exists but space and you. If there was an all-powerful God, he would have made all good, and no bad.
+ - Never refuse to do a kindness unless the act would work great injury to yourself, and never refuse to take a drink – under any circumstances.
+ - Life is but a dream, a grotesque and foolish dream.
+ - The law of work seems unfair, but nothing can change it; the more enjoyment you get out of your work, the more money you will make.
+ - It is hopeless for the occasional visitor to try to keep up with Chicago-she outgrows his prophecies faster than he can make them. She is always a novelty; for she is never the Chicago you saw when you passed through the last time.
+ - Be careless in your dress if you will, but keep a tidy soul.
+ - Switzerland would me a mighty big place if it were ironed flat.
+ - America cannot have an empire abroad and a Republic at home.
+ - No God and no religion can survive ridicule. No political church, no nobility, no royalty or other fraud, can face ridicule in a fair field, and live.
+ - A thing long expected takes the form of the unexpected when at last it comes.
+ - I couldn’t bear to think about it; and yet, somehow, I couldn’t think about nothing else.
+ - Talent without work is useless, thank God.
+ - An adventure is something that while it’s happening you wish it wasn’t.
+ - To believe yourself brave is to be brave; it is the one only essential thing.
+ - An American has not seen the United States until he has seen Mardi-Gras in New Orleans.
+ - Both marriage and death ought to be welcome: the one promises happiness, doubtless the other assures it.
+ - No church property is taxed and so the infidel and the atheist and the man without religion are taxed to make up the deficit.
+ - I once sent a dozen of my friends a telegram saying ‘flee at once – all is discovered.’ They all left town immediately.
+ - Honesty: The best of all the lost arts.
+ - When one has tasted watermelons, one knows what angels eat. It was not a Southern watermelon that Eve took; we know it because she repented.
+ - There are two times in a man’s life when he should not speculate: when he can’t afford it, and when he can.
+ - Distance lends enchantment to the view.
+ - Lord save us all from a hope tree that has lost the faculty of putting out blossoms.
+ - By law of periodical repetition, everything which has happened once must happen again and again – and not capriciously, but at regular periods, and each thing in its own period, not another’s and each obeying its own law.
+ - A few fly bites cannot stop a spirited horse.
+ - Only a government that is rich and safe can afford to be a democracy, for democracy is the most expensive and nefarious kind of government ever heard of on earth.
+ - Just the omission of Jane Austen’s books alone would make a fairly good library out of a library that hadn’t a book in it.
+ - Public opinion is held in reverence. It settles everything. Some think it is the voice of God.
+ - The gentle reader will never, never know what a consummate ass he can become until he goes abroad.
+ - If the Christians of America could be persuaded to vote God and a clean ticket, it would bring about a moral revolution that would be incalculably beneficent. It would save the country.
+ - We often feel sad in the presence of music without words; and often more than that in the presence of music without music.
+ - Wheresoever she was, there was Eden.
+ - Knowledge becomes wisdom only after it has been put to good use.
+ - You believe in a book that has talking animals, wizards, witches, demons, sticks turning into snakes, burning bushes, food falling from the sky, people walking on water, and all sorts of magical, absurd and primitive stories, and you say that we are the ones that need help?
+ - At noon I observed a bevy of nude young native women bathing in the sea, and I went and sat down on there clothes to keep them from being stolen.
+ - But I reckon I got to light out for the Territory ahead of therest, because Aunt Sally she’s going to adopt me and sivilize me, and I can’t stand it. I been there before.
+ - We had an abundance of mangoes, papaias and bananas here, but the pride of the islands, the most delicious fruit known to men, cherimoya, was not in season. It has a soft pulp, like a pawpaw, and is eaten with a spoon.
+ - The true charm of pedestrians does not lie in the walking, or in the scenery, but in the talking.
+ - Memories which someday will become all beautiful when the last annoyance that encumbers them shall have faded out of our minds.
+ - Man is the only religious animal. In the Holy task of smoothing his brother’s path to the happiness of heaven, he has turned the globe into a graveyard.
+ - If you don’t like the weather in New England now, just wait a few minutes.
+ - The southerner talks music.
+ - It shames the average man to be valued below his own estimate of his worth.
+ - Where a blood relation sobs, an intimate friend should choke up, a distant acquaintance should sigh, a stranger should merely fumble sympathetically with his handkerchief.
+ - Such is professional jealousy; a scientist will never show any kindness for a theory which he did not start himself.
+ - God has put something noble and good into every heart His hand created.
+ - Change is the handmaiden Nature requires to do her miracles with.
+ - All emotion is involuntary when genuine.
+ - The more you explain it, the more I don’t understand it.
+ - How charmed I am when I overhear a German word which I understand!
+ - We may not pay Satan reverence, for that would be indiscreet, but we can at least respect his talents.
+ - But the elastic heart of youth cannot be compressed into one constrained shape long at a time.
+ - An inglorious peace is better than a dishonorable war.
+ - Use the right word, not its second cousin.
+ - High and fine literature is wine, and mine is only water; but everybody likes water.
+ - It is not best that we should all think alike; it is a difference of opinion that makes horse races.
+ - The cat, having sat upon a hot stove lid, will not sit upon a hot stove lid again. Nor upon a cold stove lid.
+ - I have no race prejudices, and I think I have no color prejudices or caste prejudices nor creed prejudices. Indeed I know it. I can stand any society. All that I care to know is that a man is a human being-that is enough for me; he can’t be any worse.
+ - Most people are bothered by those passages of Scripture they do not understand, but the passages that bother me are those I do understand.
+ - Cauliflower is nothing but cabbage with a college education.
+ - The smallest minds and the selfishest souls and the cowardliest hearts that God makes.
+ - You can’t reason with your heart; it has its own laws, and thumps about things which the intellect scorns.
+ - If I can capture truth in its simplest form, beauty will follow like a sledgehammer.
+ - Nothing that grieves us can be called little: by the eternal laws of proportion a child’s loss of a doll and a king’s loss of a crown are events of the same size.
+ - It is by the goodness of god that in our country we have those 3 unspeakably precious things: freedom of speech, freedom of conscience, and the prudence never to practice either of them.
+ - Good fathers not only tell us how to live, they show us.
+ - Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven.
+ - If I cannot smoke in heaven, then I shall not go.
+ - The soul and substance of what customarily ranks as patriotism is moral cowardice – and always has been.
+ - The most difficult We do not deal in facts when we are contemplating ourselves.
+ - Modesty died when clothes were born.
+ - A human being has a natural desire to have more of a good thing than he needs.
+ - The calamity that comes is never the one we had prepared ourselves for.
+ - To be, or not to be; that is the bare bodkin That makes calamity of so long life;.
+ - Laughter is the greatest weapon we have and we, as humans, use it the least.
+ - What is human life? The first third a good time; the rest remembering about it.
+ - Etiquette requires us to admire the human race.
+ - Tell me about a person’s family, friends, and community, and I’ll tell you what his opinions are.
+ - It is best to read the weather forecast before praying for rain.
+ - I wish Europe would let Russia annihilate Turkey a little – not much, but enough to make it difficult to find the place again without a divining-rod or a diving-bell.
+ - It’s not the good that die young, it’s the lucky.
+ - Good breeding consists in concealing how much we think of ourselves and how little we think of the other person.
+ - The public is the only critic whose opinion is worth anything at all.
+ - Patriot: the person who can holler the loudest without knowing what he is hollering about.
+ - Under certain circumstances, profanity provides a relief denied even to prayer.
+ - A reputable lawyer will advise you to keep out of the law, make the best of a foolish bargain, and not get caught again.
+ - Optimist: day dreamer more elegantly spelled.
+
+500 quotes

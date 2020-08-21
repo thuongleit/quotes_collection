@@ -1,0 +1,24 @@
+ - Anything goes and nothing matters.
+ - I like to call it ‘the national automobile slum.’ You can call it suburban sprawl. I think it’s appropriate to call it the greatest misallocation of resources in the history of the world.
+ - The living arrangements American now think of as normal are bankrupting us economically, socially, ecologically and spiritually.
+ - Motion is a great tranquilizer.
+ - When a society is stressed, when it comes up against things that are hard to understand, you get a lot of delusional thinking.
+ - A land full of places that are not worth caring about may soon be a nation and a way of life that is not worth defending.
+ - The immersive ugliness of our everyday environments in America is entropy made visible.
+ - The twentieth century was about getting around. The twenty-first century will be about staying in a place worth staying in.
+ - On top of the insult of destroying the geographic places we call home, the chain stores also destroyed people’s place in the order of daily life, including the duties, responsibilities, obligations, and ceremonies that prompt citizens to care for each other.
+ - Americans are suffering so much from being in unrewarding environments that it has made us very cynical. I think that American suburbia has become a powerful generator of anxiety and depression.
+ - If the Internet exists at all in the future, it will be on a much-reduced scale from what we enjoy today, and all the activities of everyday life are not going to reside on it.
+ - Suburbia is the insidious cartoon of the country house in a cartoon of the country.
+ - My beef with the alt-fuel people is not the renewable or alt-fuel ideas themselves. Sooner or later, there’s no question we’re going to have to rely on them. For me, it’s an issue of scale.
+ - The two elements of the suburban pattern that cause the greatest problems are the extreme separation of uses and the vast distances between things.
+ - No amount or combination of alternative fuels is going to allow us to continue running what we’re running, the way we’re running it.
+ - I don’t like talking about ‘solutions.’ I prefer talking about intelligent responses.
+ - Americans threw away their communities in order to save a few dollars on hair dryers and plastic food storage tubs, never stopping to reflect on what they were destroying.
+ - Despite the obvious damage now visible in the entropic desolation of every American home town, Wal-Mart managed to install itself in the pantheon of American Dream icons, along with apple pie, motherhood, and Coca Cola.
+ - Suburbia is not going to run on biodiesel. The easy-motoring tourist industry is not going to run on biodiesel, wind power and solar fuel.
+ - Ridicule is the unfortunate destiny of the ridiculous.
+ - America does not want change, except from the cash register at Wal-Mart.
+ - It pays to remember that societies get what they deserve, not what they expect.
+
+22 quotes

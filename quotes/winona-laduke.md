@@ -1,0 +1,24 @@
+ - Someone needs to explain to me why wanting clean drinking water makes you an activist, and why proposing to destroy water with chemical warfare doesn’t make a corporation a terrorist.
+ - If we build a society based on honoring the earth, we build a society which is sustainable, and has the capacity to support all life forms.
+ - I’m not a patriot to a flag, I’m a patriot to a land.
+ - We are a part of everything that is beneath us, above us, and around us. Our past is our present, our present is our future, and our future is seven generations past and present.
+ - Power is not brute force and money; power is in your spirit. Power is in your soul. It is what your ancestors, your old people gave you. Power is in the earth; it is in your relationship to the earth.
+ - What our Seventh Generation will have is a consequence of our actions today.
+ - Ojibwe prophecy speaks of a time during the seventh fire when our people will have a choice between two paths. The first path is well worn and scorched. The second path is new and green. It is our choice as communities and as individuals how we will proceed.
+ - I find that I have more allies on the left than on the right, and that is because the left is, by and large, filled with people who are challenging the present paradigm and power structure. I’m interested in totally transforming the structure that exists now, because it is not sustainable.
+ - What we all need to do is find the wellspring that keeps us going, that gives us the strength and patience to keep up this struggle for a long time.
+ - Mother Earth needs us to keep our covenant. We will do this in courts, we will do this on our radio station, and we will commit to our descendants to work hard to protect this land and water for them. Whether you have feet, wings, fins, or roots, we are all in it together.
+ - I would like to see as many people patriotic to a land as I have seen patriotic to a flag.
+ - The aboriginal peoples of Australia illustrate the conflict between technology and the natural world succinctly, by asking, ‘What will you do when the clever men destroy your water?’ That, in truth, is what the world is coming to.
+ - It is essential to collectively struggle to recover our status as Daughters of the Earth. In that is our strength, and the security, not in the predator, but in the security of our Mother, for our future generations. In that we can insure our security as the Mothers of our Nations.
+ - The difference between a white man and an Indian is this- A white man wants to leave money to his children. An Indian wants to leave forests.
+ - There is no social-change fairy. There is only change made by the hands of individuals.
+ - Native people – about two-thirds of the uranium in the United States is on indigenous lands. On a worldwide scale, about 70 percent of the uranium is either in Aboriginal lands in Australia or up in the Subarctic of Canada, where native people are still fighting uranium mining.
+ - I see a lot of damage to Mother Earth. I see water being taken from creeks where water belongs to animals, not to oil companies.
+ - In the time of the sacred sites and the crashing of ecosystems and worlds, it may be worth not making a commodity out of all that is revered.
+ - The essence of the problem is about consumption, recognizing that a society that consumes one-third of the world’s resources is unsustainable. This level of consumption requires constant intervention into other people’s lands. That’s what’s going on.
+ - Native communities are focal points for the excrement of industrial society.
+ - Our forests are not for toilet paper. They are worth more standing than cut. That deserves to be defended, not only by native peoples but also by environmentalists.
+ - In the end, there is no absence of irony: the integrity of what is sacred to Native Americans will be determined by the government that has been responsible for doing everything in its power to destroy Native American cultures.
+
+22 quotes

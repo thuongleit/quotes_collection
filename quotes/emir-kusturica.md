@@ -1,0 +1,21 @@
+ - I never wanted an independent Bosnia. I wanted Yugoslavia. That is my country.
+ - My father was an atheist and he always described himself as a Serb. OK, maybe we were Muslim for 250 years, but we were orthodox before that and deep down we were always Serbs, religion cannot change that. We only became Muslims to survive the Turks.
+ - You know, in each segment of ex-Yugoslavia, multi-ethnic life is lost, except I think we somehow still have this in Serbia.
+ - Yugoslavia was a kind of superpower. Great movies. Beautiful novels. Great rock-and-roll. We became a superpower in basketball. The problem is that people needed to identify more strongly with it after Tito and his awful, tricky way of leading the country.
+ - Making movies is a dangerous job. Because you are always the one who stands at the center of the universe when making movies.
+ - The most difficult part of making movies is to keep making them. Maybe, you could make the biggest hit in the world, but then the big problem is what to do next and how to maintain devoted to a certain instinct that I have about films.
+ - Just because I believe in the identity and integrity of my country doesn’t make a xenophobe or a nationalist.
+ - I am finished with cities. I spent four years in New York, ten in Paris, and I was in Belgrade for a while. To me now they are just airports.
+ - I’m fed up with democracy. In a democracy, people vote for the mayors. I wanted to build a city where I will choose the citizens.
+ - In Serbia a lot of people hate me because they want to westernize, not understanding that the western world is bipolar, with very good things and very bad things.
+ - What you have now is a Hollywood that is pure poison. Hollywood was a central place in the history of art in the 20th century: it was human idealism preserved. And then, like any great place, it collapsed, and it collapsed into the most awful machinery in the world.
+ - My purpose is to make a movie to make you warm. To give you some heat. Now, this rational world has become a place where only what is cool is good. Do you cut the movie on the basis of the beat of modernity or the basis of the beat of your own heart?
+ - I am a living illustration of Bosnian mixing and converting. My grandparents lived in eastern Herzegovina. Very poor. The Turks came and brought Islam. There were three brothers in the family. One was Orthodox Christian. The other two took Islam to survive.
+ - Every time I’m shooting a movie I want to kill myself. Because I don’t see the light in the end of the tunnel.
+ - I’ve been around some very famous people, but no one has the effect Maradona has; people tremble in his presence.
+ - I put my ideas into practice. That may be the reason people hate me.
+ - I was a big fighter when I was younger. In bars I was ready to explode and fight.
+ - I will not cut my film because, because, because, because of the Wonderful Wizard of Oz.
+ - I’ve reached the 50th year of my life, and now every question related with life also includes thinking about death. When I leave, I want to leave to my offspring a clear idea about identity.
+
+19 quotes

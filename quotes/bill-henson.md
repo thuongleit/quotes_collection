@@ -1,0 +1,21 @@
+ - It just struck me that one of the things about photography that made it such a compelling medium to deal with is that it is perhaps the most contradictory of mediums.
+ - Meaning coming from feeling, feeling coming from within, you absorb a massive amount of information, it goes through your whole body, a little bit of it floats up to your head where there is deliberation. You are conditioned by the way your whole body is responding to what is going on.
+ - When you go to a great concert something that happens is there is a deep sense of communality and connectedness one to another – as though we are all looking to eachother and saying yeah, we get it, we’re all on one page.
+ - In every form of art, you really want the experience of the images to transcend the medium, for the medium to disappear into the greater experience of viewing the work. So that you forget you are looking at a painting, or a photograph.
+ - You spend your whole life trapped inside your body. Everything you know about the world comes to you through your body.
+ - Most of life is grey, with a little tiny bit of black and white. We’re always subject to what I call the compression industry, which is an attempt to compress a million shades of grey with a little bit of black and white to just a hundred, or to ten, or to one!
+ - No medium is more limited than any other. It’s what a person does with it. We could talk about the differences between music and literature and photography, sure, but it really comes down to what a person does.
+ - What happens with experiences that really move us deeply, that really effect us? They make the world new again. What it does is it heightens our sense of mortality.
+ - I was always amazed at how beautiful the light was. At different times of the day the landscape becomes a different place. Dawn and dusk, it’s a different place.
+ - As a boy I was obsessed with Egypt and Egyptology. I’m convinced it’s not that uncommon. A lot of 10 or 12 year old boys become obsessed with Egypt. It’s a bit like young girls and horses...
+ - You pick up a camera because something has been revealed to you in the landscape or in the human-scape. And you have no choice because it’s a gift. And it’s like, oh right, I better start doing this!
+ - Adolescence is interesting. I mean, all of life is interesting and all of life is transitionary. But I think there is an exponential growth physically, intellectually, emotionally and there is so much potential.
+ - Most of life is grey, with a little tiny bit of black and white.
+ - There are no inherent limitations to the medium. There are just differences.
+ - There’s something about the processional nature of the architecture, of the rooms connecting rooms. It’s just breathtaking.
+ - When you shoot on film, you don’t know whether you’ve got it or not until you get the film processed, and so it changes the relationship we have with the subject whether it’s a landscape or a person in a so-called controlled environment in a chair in a studio in front of you.
+ - It was the dreamscape of the suburbs that interested me.
+ - I could be standing in the supermarket, and there is a person standing down the aisle, who is reading the back of a cornflakes box but everything about them is going “It’s me! I’m the one you want! I am the necessary subject. This is it!”
+ - The world is a colony of the US. The twentieth century was the US’s century.
+
+19 quotes

@@ -1,0 +1,43 @@
+ - If you are neutral in situations of injustice, you have chosen the side of the oppressor.
+ - My father always used to say, “Don’t raise your voice. Improve your argument.”
+ - If you are neutral in situations of injustice, you have chosen the side of the oppressor. If an elephant has its foot on the tail of a mouse and you say that you are neutral, the mouse will not appreciate your neutrality.
+ - Hope is being able to see that there is light despite all of the darkness.
+ - Do your little bit of good where you are; its those little bits of good put together that overwhelm the world.
+ - If you want peace, you don’t talk to your friends. You talk to your enemies.
+ - Bringing people together is what i call ‘ubuntu,’ which means ‘I am because we are.’ Far too often people think of themselves as just individuals, separated from one another, whereas you are connected and what you do affects the whole world. When you do well, it spreads out; it is for the whole of humanity.
+ - God’s love is too great to be confined to any one side of a conflict or to any one religion.
+ - Forgiveness says you are given another chance to make a new beginning.
+ - God’s dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion.
+ - The fundamental law of human beings is interdependence. A person is a person through other persons.
+ - You don’t choose your family. They are God’s gift to you, as you are to them.
+ - Without memory, there is no healing. Without forgiveness, there is no future.
+ - There is no justice in killing in the name of justice.
+ - Exclusion is never the way forward on our shared paths to freedom and justice.
+ - We are each made for goodness, love and compassion. Our lives are transformed as much as the world is when we live with these truths.
+ - Give young people a greater voice. They are the future and they are much wiser than we give them credit for.
+ - The world’s forests are a shared stolen treasure that we must put back for our children’s future.
+ - Forgiveness does not mean condoning what has been done. Forgiving means abandoning your right to pay back the perpetrator in his own coin.
+ - True peace must be anchored in justice and an unwavering commitment to universal rights for all humans, regardless of ethnicity, religion, gender, national origin or any other identity attribute.
+ - Your ordinary acts of love and hope point to the extraordinary promise that every human life is of inestimable value.
+ - Inclusive, good-quality education is a foundation for dynamic and equitable societies.
+ - Children learn about the nature of the world from their family. They learn about power and about justice, about peace and about compassion within the family. Whether we oppress or liberate our children in our relationships with them will determine whether they grow up to oppress and be oppressed or to liberate and be liberated.
+ - If you recall the happiest moments in your life, they are all from when you were doing something for somebody else.
+ - To be neutral in a situation of injustice is to have chosen sides already. It is to support the status quo.
+ - The pressure to succeed has a lot to do with why people overstep the line. It is a peculiar weakness of western culture where we have made a fetish of success.
+ - Twenty-five years ago people could be excused for not knowing much, or doing much, about climate change. Today we have no excuse. No more can it be dismissed as science fiction; we are already feeling the effects.
+ - Language is very powerful. Language does not just describe reality. Language creates the reality it describes.
+ - It means a great deal to those who are oppressed to know that they are not alone. And never let anyone tell you that what you are doing is insignificant.
+ - To treat anyone as if they were less than human, less than a brother or a sister, no matter what they have done, is to contravene the very laws of our humanity.
+ - My father always used to say, “Don’t raise your voice. Improve your argument.” Good sense does not always lie with the loudest shouters, nor can we say that a large, unruly crowd is always the best arbiter of what is right.
+ - I have absolutely no objection to performance and success as long as they don’t become false idols and threaten to rule our lives.
+ - When we see others as the enemy, we risk becoming what we hate. When we oppress others, we end up oppressing ourselves. All of our humanity is dependent upon recognizing the humanity in others.
+ - Differences are not intended to separate, to alienate. We are different precisely in order to realize our need of one another.
+ - It makes no sense to invest in fossil fuel companies that undermine our future.
+ - Be nice to the whites, they need you to rediscover their humanity.
+ - We may be surprised at the people we find in heaven. God has a soft spot for sinners. His standards are quite low.
+ - When the missionaries came to Africa they had the Bible and we had the land. They said “Let us pray.” We closed our eyes. When we opened them we had the Bible and they had the land.
+ - The world is awful but also the world is beautiful. Human beings are awful, but ultimately human beings are tremendous.
+ - Dear Child of God, I am sorry to say that suffering is not optional.
+ - Like when you sit in front of a fire in winter – you are just there in front of the fire. You don’t have to be smart or anything. The fire warms you.
+
+41 quotes

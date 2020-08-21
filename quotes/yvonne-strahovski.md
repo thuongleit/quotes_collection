@@ -1,0 +1,24 @@
+ - I’ve always been a very outdoors sort of girl. I’m more a tomboy than a girly girl.
+ - Marriage is a very complicated machine. When it breaks down, you can’t fix it with one screw.
+ - I guess I am a bit of a traditionalist.
+ - I’m pretty gross. When I talk I can be gross and crude.
+ - It’s good to kind of go up and down with the love thing.
+ - I know that one of the distinguishing things was I looked like I could hold a gun, even though I’d never held one before and I’m physically able to do the martial arts and all that stuff.
+ - I think a man is a man, and a man has a hairy chest, so let that be!
+ - I loved, loved, loved the fight that I got to do with Matthew Bomer, who plays Bryce, when we did the fight scene that was back to back in the Buy More.
+ - I’ve been very physical my whole life. I went out hiking and camping for days in the Australian forest, and when I trained at drama school for three years, we did a whole lot on stage – fighting techniques. And I was a dancer from 5 to 18, so I have a memory for choreography.
+ - I don’t want to be the funny girl or the serious girl. I would hope to touch on all different genres and all different types of characters, which I think I’ve been lucky enough to do, so far.
+ - Most of the film directors expect their actors to want to work fast.
+ - I was a tomboy and didn’t pay too much attention to my clothes.
+ - I loved school, I loved putting on my uniform and doing homework every day. I was one of those good students that the teachers liked. I guess that’s got to be a pretty nerdy, geeky part of me.
+ - I have a strong dance background. I danced from age five until 18, and that helps a lot. Doing a fight routine is like doing a dance routine.
+ - I don’t know if this classifies as a video game, but I have a terrible obsession with Angry Birds.
+ - My favorite thing about being an actor is that I get to be so many different people in one lifetime. You sort of get to be all of these different characters.
+ - I feel lucky that I got to work with some of the big legends in town.
+ - I’ve been lucky enough to get a taste of the feature film world, the TV world and Broadway, as well, and see what everything is like. For me, it’s very much about the character and how different it is from something I’ve done earlier.
+ - I love watching a good, freaky horror movie. I love it. It’s one of my favorite things to do, to go and see at the cinema. Just to tune out and be freaked out.
+ - I’m scared of karaoke. I think if I did have a go to karaoke song, it would be ‘Whatta Man’ by Salt-n-Pepa.
+ - Whether it is television or film, the character on the page has to speak to me.
+ - I would love to explore film seeing as I have prominently been on television. It would be nice to change it up and focus on film a little bit.
+
+22 quotes

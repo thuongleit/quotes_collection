@@ -1,0 +1,39 @@
+ - Murder begins where self-defense ends.
+ - Revolution is like Saturn, it devours its own children.
+ - Man is an abyss, and I turn giddy when I look down into it.
+ - Whoever finishes a revolution only halfway, digs his own grave.
+ - Peace to the shacks! War on the palaces!
+ - And for tired eyes every light is too bright, and for tired lips every breath too heavy, and for tired ears every word too much.
+ - That is a long word: forever!
+ - Only one thing abides: an infinite beauty that passes from form to form, eternally changed and revealed afresh.
+ - Love is a peculiar thing.
+ - Death is the most blessed dream.
+ - I’ll know how to die with courage; that is easier than living.
+ - The stars are scattered all over the sky like shimmering tears, there must be great pain in the eye from which they trickled.
+ - Dying people often become childish.
+ - One must love humanity in order to reach out into the unique essence of each individual: no one can be too low or too ugly.
+ - The life of the wealthy is one long Sunday.
+ - Revolution calls my name. I will soon dwell in nothingness, and my name will be in the Pantheon of history.
+ - Do you know, Valerio, that even the least among all humans is so great that life is far too short to love him?
+ - The world is chaos. Nothingness is the yet-to-be-born god of the world.
+ - The power of the people and the power of reason are one.
+ - Revolution is like the daughters of Pelias: it cuts humanity to pieces in order to rejuvenate it.
+ - A good man with a good conscience doesn’t walk so fast.
+ - The breath of an aristocrat is the death rattle of freedom.
+ - The statue of Freedom has not been cast yet, the furnace is hot, we can all still burn our fingers.
+ - The revolutionary government is the despotism of liberty against tyranny.
+ - You women could make someone fall in love even with a lie.
+ - How many women does one need to sing the scale of love all the way up and down?
+ - We are always on stage, even when we are stabbed in earnest at the end.
+ - The state is therefore everyone; the rules within the state are laws which safeguard the welfare of all and which must originate from the welfare of all.
+ - The weapon of the Republic is terror, and virtue is its strength.
+ - Government must be a transparent garment which tightly clings to the people’s body.
+ - Supreme power rests in the will of all or of the majority.
+ - The strides of humanity are slow, they can only be counted in centuries.
+ - The sin is in our thoughts.
+ - Germany is now a field of cadavers, soon she will be a paradise.
+ - People like us are unhappy in this world and in the next, I guess if we made it to heaven, wed have to help make it thunder.
+ - The revolution must end and the republic must begin. In our constitution, right must take the place of duty, welfare that of virtue, and self-defense that of punishment. Everyone must be able to prevail and to live according to one’s own nature.
+ - We have not made the Revolution, the Revolution has made us.
+
+37 quotes

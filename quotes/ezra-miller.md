@@ -1,0 +1,40 @@
+ - I’ve fallen prey to my fair share of moments of the phobias of others and the way that that can become an attack.
+ - I am very much in love with no one in particular.
+ - When you birth a child, it’s like a bloody giving of self to the creation of a life.
+ - I was a weird animal in high school, doing no work and getting straight A’s.
+ - Everybody feels like an outcast because the world is so large and every fingerprint is so vastly different from one another, and yet we have these standards and beliefs, and dogmatic systems of judgment and ranking, in almost all the societies of the world.
+ - I think everybody’s crazy, and if I’m the one being a little direct about it, that’s fine by me.
+ - I’m super-popular, so I had to pretend to be a loser, which was super-hard.
+ - I feel that all revolutionary causes should start with addressing misogyny.
+ - I’m from the dirty depths of New Jersey.
+ - I feel like a sickness and dystrophy is growing in people, like people are getting sicker, something about our society, something about our psychological structures. We’re not whole.
+ - Friends that I value most are people who would essentially use physical violence against me at a time when I seem to be teetering on the edge.
+ - Family is this very deep, complex thing that for most people becomes everything. It informs your entire life.
+ - My personal opinion is that truth, like honesty and non-harmfulness, often are at odds with one another.
+ - I shop only at thrift stores and vintage stores. In New York, I like a place called Star Struck, and a place called The Family Jewels.
+ - I think a lot of people are projecting their own troubles and fears concerning sexuality onto those around them, and it does result in the perpetuation of a lot of hateful notions. As long as I can remember, I’ve felt really horrified watching those dynamics play out.
+ - I don’t feel like there’s any need to hide the fact that I smoke pot. It’s a harmless herbal substance that increases sensory appreciation.
+ - Acting and making art is just something I love to do, and I love to tell stories that feel important, honest and necessary. It’s not about me. It’s about being part of something.
+ - I was a cocky kid, and I felt like I was an adult at, like, 9. I think that’s because my parents always treated me as an adult.
+ - Life is a grand party.
+ - There’s no true value placed in learning, if the point of you learning something is to simply know it for a test, to get a grade, to go to the good school.
+ - Getting lost in human perception is a very scary idea.
+ - I’m super down with being irresponsible. I’m just trying to make sure my lack of responsibility no longer hurts people.
+ - Getting socially outcast can be the best and most informative thing that can ever happen to you because you have to learn who you are separate from the pack.
+ - Doing things like playing music, something that’s so natural and basic to human function, running around in nature, eating delicious food. These things are intrinsic in basic, primordial to human beings, so that’s sort of a way to return to a blank canvas, allowing my true personality to return.
+ - For a long time I felt like I was fighting my age, like I was constantly trying to prove to people that I was a savvy peer, and I felt them viewing me as a kid. I was a cocky kid, and I felt like I was an adult at, like, 9, you know? I think that’s because my parents always treated me as an adult.
+ - I don’t need my sexuality celebrated, and I certainly don’t need it to be criticized. I didn’t necessarily want it to be observed, but here we are.
+ - I always thought it would be really, really cool to play Edgar Allan Poe, because when I was a kid, he was one of the authors who really blew my mind open to all sorts of weird dark and twisted places.
+ - New Jersey was actually a very cold place. There was such an intense concentration of wealth, and such a low concentration of any actual human happiness. A lot of people seem to be similar to the kid in school, which is doing a lot of things with no direct consequence to their joy, or their lives.
+ - I have a lot of really wonderful friends who are of very different sexes and genders.
+ - If one took a role with the intention of, “I’ll show them what I can do!,” then it’s not going to be good because the ego is going to just block everything.
+ - My goal beyond being an actor, is just being an open channel.
+ - The No. 1 thing the people I have spent time with in my life have done for fun is playing music.
+ - I always was very interested in intellect and the massive world of knowledge out there, but in terms of being a kid who wanted to be treated as an equal, school is not the place.
+ - I guess the big thing is that I don’t buy anything first-hand. It’s a personal policy I have for all sorts of reasons. If you research to the textile industry yourself, you’ll know why. I came to it personally.
+ - Sometimes it’ll happen to people, that their self will stop coming through. And people will just cease to understand them.
+ - I think I enjoy playing human beings no matter the substance of their character.
+ - I’d like to make as much art as I possibly can before I die, so I’m working on a few things.
+ - The most important thing is actually raising up children with a true and lasting burning sense of curiosity. I don’t even know how they do it. Good parents are a marvel.
+
+38 quotes

@@ -1,0 +1,31 @@
+ - At night, when the sky is full of stars and the sea is still you get the wonderful sensation that you are floating in space.
+ - The only time a woman really succeeds in changing a man is when he is a baby.
+ - Not even analysis, by itself, can transform you. You must still do the changing yourself.
+ - The times that I have done something that I didn’t respond to emotionally right away, it’s generally not worked out too well.
+ - I’ve been terrified of the water, and yet it seems I’m forced to go into in on every movie that I make.
+ - I couldn’t even go to the bathroom alone. My mother or a social worker always went with me.
+ - Stardom is only a by-product of acting. I don’t think being a movie star is a good enough reason for existing.
+ - The constant attention is what is so difficult.
+ - I didn’t know who the hell I was. I was whoever they wanted me to be.
+ - We all wanted to copy Vivien Leigh.
+ - My mother used to tell me, No matter what they ask you, always say yes. You can learn later.
+ - I thought it was a wonderful line – right on the cutting room floor.
+ - Sometimes when I visit my sister and her two children, I wonder if she missed a lot by getting married. Right now, nothing could be further from my mind than getting married.
+ - For the first time I feel an inner emotional security. There is reality and dependability. My life revolves around Richard and the baby.
+ - I’m just going to have to grow old, because I’m too terrified to have anything done.
+ - A lot changed when I had Natasha. I’m a survivor.
+ - When I get married it will be for keeps.
+ - Almost every girl falls in love with the wrong man, I suppose it’s part of growing up.
+ - Today’s films are so technological that an actor becomes starved for roles that deal with human relationships.
+ - I’m not very bright about money. I’m not domestic either. If I don’t learn how to cook, maybe I won’t have to.
+ - I never saw film stars at home. We had no maid, no cook, no swimming pool.
+ - If I didn’t believe in what I’m doing, I’d rather go to work in a dime store.
+ - There are certain stars who are not actors. I don’t want to be that type.
+ - I didn’t like children. I didn’t think of myself as a child. I didn’t like any of the things other children were interested in.
+ - I saw my parents as gods whose every wish must be obeyed or I would suffer the penalty of anguish and guilt.
+ - I was so young, and making movies, going to the studio every morning at dawn was magic.
+ - I never knew motherhood could be so truly gratifying until I had Natasha.
+ - From ages 10 to 12 or so, I barely remember anything.
+ - Warren and I are friends, but working with him had been difficult.
+
+29 quotes

@@ -1,0 +1,25 @@
+ - Hard work has made it easy. That is my secret. That is why I win.
+ - Jump off the beam, flip off the bars follows your dreams, and reach for the stars.
+ - I don’t run away from a challenge because I am afraid. Instead, I run toward it because the only way to escape fear is to trample it beneath your feet.
+ - Work hard for your goals and live in the moment.
+ - When you fall, leap to your feet and try again.
+ - The only way to escape fear is to trample it beneath your feet.
+ - My parents were very loving, but disciplinarians.
+ - If I work on a certain move constantly, then finally, it doesn’t seem risky to me. The idea is that the move stays dangerous and it looks dangerous to my foes, but it is not to me. Hard work has made it easy.
+ - I believe that you should gravitate to people who are doing productive and positive things with their lives.
+ - I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.
+ - It was good to be a kid because I did not realise all the things that came with the success. Going to the Games, I was asked what I expected to do.
+ - My marriage to my husband, Bart Conner in 1996 is my proudest personal moment.
+ - Romanians have a saying, ‘Not every dog has a bagel on its tail.’ It means that not all streets are paved with gold. When I began my career, I just wanted to do cartwheels.
+ - I know how to smile, I know how to laugh, I know how to play. But I know how to do these things only after I have fulfilled my mission.
+ - You should also appreciate the goodness around you, and surround yourself with positive people.
+ - Of course, most people remember that I received the first perfect 10 in Olympic gymnastics competition.
+ - Of course, I grew up in Communist Romania, but I am happy to say that now our country is democratic, and prospering, since the revolution in 1989.
+ - One of the most difficult times in my life was when I escaped from Romania in November of 1989.
+ - As an Olympic champion gymnast, I have always stayed involved in my sport.
+ - I have had a few turning points, the first day I entered a gymnastics school at age 6.
+ - I ended up in the US for a month or so, before moving to Montreal with some Romanian friends.
+ - I hoped to win a medal and hoped it would be gold. I knew I was good but didn’t know I would be the one to score something that had never been done before.
+ - We are not coaching on a daily basis because we often travel with our charity and commercial interests.
+
+23 quotes

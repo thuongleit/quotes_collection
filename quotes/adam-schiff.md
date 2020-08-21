@@ -1,0 +1,42 @@
+ - Americans are blessed with great plenty; we are a generous people and we have a moral obligation to assist those who are suffering from poverty, disease, war and famine.
+ - In fact, the converse is true: At a time when the United States has been called on for a level of moral leadership, vision and inspiration not seen since World War II, we cannot afford to dissemble about crimes against humanity.
+ - The legacy of the Armenian Genocide is woven into the fabric of America.
+ - We will not let terrorists change our way of life; we will not live in fear; and we will not undermine the civil liberties that characterize our Democracy.
+ - The U. S. trade deficit with China shows that while we value the potential of their market, they value the reality of our market. It is in this area that we should use our leverage.
+ - Terrific. Now to win a larceny trial all we have to do is prove how the universe ends.
+ - Euphemisms, vague terminology or calls for discussions with Turkey to get at the truth are just some of the dodges Congress and the administration have used to avoid Turkish discomfort with its Ottoman past.
+ - If giving points to some students to achieve greater diversity is a quota system in violation of the Constitution, how can the awarding of points to the children of a less diverse alumni be upheld?
+ - Gene Autry was a pioneering star in the early days of music, radio, film, television and rodeo performances. I am proud to posthumously honor such an inspiring role model.
+ - I think Barack Obama has the overall right strategy and he’s been right to resist bringing in massive numbers of American troops. The Iraqis would love to have Americans die for Iraq and the Syrians would love to have Americans die for Syria.
+ - While our country has made great strides in breaking down the barriers which for so long denied equal opportunity to all Americans, we are not yet the beautiful symphony of brotherhood of Dr. King’s dream.
+ - I’m just concerned that as long as this caliphate exists, it provides this magnet for radicalization, and we’re likely to see more attacks like we have seen in San Bernardino, Chattanooga and elsewhere, and that’s the concern I have over pace.
+ - I’m concerned the clock is ticking, and the danger to the American people is still very present.
+ - Unquestionably, the world is better off without Saddam.
+ - The war in Iraq has been extremely divisive here at home, and has also divided the world community.
+ - Good thing you’re not writing the press release.
+ - It’s a huge gap in security, it’s a huge problem we’ve had with our immigration system for many years.
+ - That bomb that took down that Russian airliner may have been the size of a soda can. And that bomb killed more people than all the Paris attackers combined. So this is still a grave threat.
+ - So let us call genocide, genocide. Let us not minimize the deliberate murder of 1.5 million people. Let us have a moral victory that can shine as a light to all nations.
+ - Notwithstanding these setbacks, the dream of a beautiful American orchestra goes on, and I share Dr. King’s faith that each year we move inexorably closer to a magnificent opening night.
+ - But it is equally incontrovertible that if our intelligence gathering process is seriously flawed, we had better find out and find out fast if we are to avoid another Sept. 11.
+ - An America that inspires hope in its ideals must complement an America that inspires awe in its strength.
+ - A tremendous number of people come to the country legally, but overstay their visas. And there has to be a far stronger mechanism for being able to track down people, have overstayed their visas, to have a responsibility for who they’re coming to visit or stay with.
+ - Winning the war on terrorism will also require a level of moral clarity that can provide a vision for struggling people and nations everywhere.
+ - We must either reduce the number of our engagements or increase the number of our troops.
+ - Too much under the thumb of the Iranians.
+ - Unless action is taken soon – unless we can display the same vision of that earlier period – we will lose the treasure of California’s open space and environmental beauty.
+ - Each year on the anniversary of Martin Luther King Jr.’s birth, America has the opportunity to reflect on our nation’s progress towards the realization of his dream.
+ - America has a critical role to play as the most powerful member of the world community.
+ - And when they have done their job, America must look after and honor its veterans.
+ - We should be worried about protecting the homeland. I think that policy is changing, should change and will change.
+ - But even race-neutral policies and recruitment efforts designed to achieve greater diversity are, in the end, not race neutral.
+ - Some argue that recognition of the genocide has become even more problematic now, when the world is at war with terrorism and the United States cannot afford to offend the sensibility of our Turkish ally.
+ - The new century has brought on its own terrible dangers, which although not reaching the apocalyptic potential of the Cold War, still have the capacity to shake our world.
+ - The Gulf states are happy for us to fight and die. That’s good for everybody, but the Americans fighting and dying.
+ - If someone is brought in for an interview, for example, and is asked about their views on things, but has posted things that are completely contrary to the interview, frankly I have much more faith in what they posted than what they say during the course of an interview.
+ - I would need to see changes in the Iraq governance. Otherwise I don’t think strikes are going to have any impact and could be very well counterproductive.
+ - At the very top state institutions, like UCLA, Berkeley and the University of Texas, however, the trend of downward minority enrollment remains persistent and discouraging.
+ - It is now conventional wisdom that Americans do not care why we went to war in Iraq, that it is enough that the world is better off without Saddam Hussein.
+ - And in this community, as in all others, the Golden Rule still applies – we must be act toward other nations as we would have them act towards America.
+
+40 quotes

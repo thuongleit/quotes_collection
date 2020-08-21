@@ -1,0 +1,59 @@
+ - You must love and care for yourself, because that’s when the best comes out.
+ - Sometimes you have to let everything go – purge yourself. If you are unhappy with anything – whatever is bringing you down – get rid of it. Because you will find that when you are free, your true creativity, your true self comes out.
+ - What’s love got to do with it?
+ - I believe that if you’ll just stand up and go, life will open up for you.
+ - I believe in prayer and in strong belief.
+ - The older you get, the more you realize it’s not what happens, but how you deal with it.
+ - You take everything I’ve made the last 16 years. I’ll take my freedom.
+ - I’m self-made. I always wanted to make myself a better person, because I was not educated. But that was my dream – to have class.
+ - I didn’t have anybody, really, no foundation in life, so I had to make my own way. Always, from the start. I had to go out in the world and become strong, to discover my mission in life.
+ - I never said Well, I don’t have this and I don’t have that. I said, I don’t have this yet, but I’m going to get it.
+ - I don’t want to be dragging myself on stage, year in year out, until someone else tells me it is time to go. There are certain birthdays that make you revalue your life.
+ - I don’t have a problem with being black in a white country or being with my people.
+ - What is love but a second-hand emotion?
+ - You asked me if I ever stood up for anything. Yeah, I stood up for my life.
+ - I’m your private dancer, a dancer for money, I’ll do what you want me to do.
+ - I will never give in to old age until I become old. And I’m not old yet!
+ - It’s every man for himself, every woman, every child. A new breed ferocious and wild.
+ - I regret not having had more time with my kids when they were growing up.
+ - I am a practicing Buddhist. I have been for 25 years.
+ - They’re still in good shape, but I’m not flashing them anymore. I’m an old lady. I leave all the flesh to the kids.
+ - I never close a door on any other religion. Most of the time, some part of it makes sense to me. I don’t believe everyone has to chant just because I chant. I believe all religion is about touching something inside of yourself.
+ - As a child my grandmother used to tell us stories about the dead and the mystical.
+ - My career always took me away from home, I was always away from home and I just wanted to be at home.
+ - I heard stories from my mother’s mother who was an American Indian. She was spiritual, although she did not go to church, but she had the hum. She used to tell me stories of the rivers.
+ - I don’t like to dwell on the past.
+ - For me the goddess is the female of God, She is powerful if different.
+ - I’m perfectly fine now if I never went on stage again.
+ - As long as I have people’s attention, I can’t stop. You can’t put the public on hold, because they might not be there when you get back. I have a pathological fear of stopping.
+ - After I moved with my mother to St. Louis, my older sister and I went to see Ike Turner, who was the hottest then. His music charged me. I was never attracted to him, but I wanted to sing with his band.
+ - I need that on stage. I need a burst of life. That’s entertainment for me.
+ - Physical strength in a woman – thats what I am.
+ - Delhi came as a shock. There were so many people, and oh, the traffic.
+ - Greatest hits is easy because one has nothing to do – except that we both, Roger and I, felt that new songs should be there because I’ve been away for awhile.
+ - I am attracted to myths.
+ - I want to tell people how to live spiritually. After you’ve bought all your houses and your clothes, you want something bigger.
+ - Movies are movies: they take you back in time, and how it still is for some.
+ - I’m pleased with my life, with the journey.
+ - I didn’t worry about it because I kind of felt I left a good message and memory with the people in terms of my work, and I always felt with a good record, I could always come back.
+ - You wouldn’t believe that I still have the bikers with the caps to the side at my door, ringing the doorbell.
+ - I was a victim; I don’t dwell on it.
+ - On the third day in India, I realized people were not suffering as much as I thought.
+ - First of all, I’m happy that I’m healthy.
+ - My parents separated when I was younger.
+ - I was always attracted to science fiction movies.
+ - In the USA there is no female equivalent to god.
+ - I’m not wise, but the beginning of wisdom is there; it’s like relaxing into – and an acceptance of – things.
+ - There comes a point where it is just undignified to be a rock ‘n’ roll star.
+ - In Tennessee where I grew up, there were animals, farms, wagons, mules.
+ - Sometimes we need help from a god.
+ - You take your problems to a god, but what you really need is for the god to take you to the inside of you.
+ - I want to breathe in the Spiritual.
+ - I want to know what the difference between the essence of a man and woman is.
+ - I grew up in the south, poor – on rock, dirt roads.
+ - But I believe we have a higher level of mentality within us, but we have to use the power in the right way.
+ - I don’t want to act just to be on the screen doing anything and looking any kind of way.
+ - I never had that thing about being black. If the whole world was like that, maybe there would be more harmony and love.
+ - I’ve never bothered about my color.
+
+57 quotes

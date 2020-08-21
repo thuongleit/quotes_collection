@@ -1,0 +1,30 @@
+ - Forests precede civilizations and deserts follow them.
+ - The most disastrous times have produced the greatest minds. The purest metal comes of the most ardent furnace; the most brilliant lightning come of the darkest clouds.
+ - Every man carries within himself a world made up of all that he has seen and loved; and it is to this world that he returns, incessantly, though he may pass through and seem to inhabit a world quite foreign to it.
+ - Talent is nothing but long impatience.
+ - A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which.
+ - The heart feels, the head compares.
+ - Love decreases when it ceases to increase.
+ - There is no religion without mysteries. God Himself is the great secret of Nature .
+ - An original writer is not one who imitates nobody, but one whom nobody can imitate.
+ - Justice is the bread of the nation; it is always hungry for it.
+ - Forests were the first temples of the Divinity, and it is in the forests that men have grasped the first idea of architecture.
+ - I am Bourbon as a matter of honour, royalist according to reason and conviction, and republican by taste and character .
+ - The cat lives alone, has no need of society, obeys only when she pleases, pretends to sleep that she may see more clearly, and scratches everything on which she can lay her paw.
+ - As soon as a true thought has entered our mind, it gives a light which makes us see a crowd of other objects which we have never perceived before.
+ - There is nothing beautiful or sweet or great in life that is not mysterious.
+ - The original writer is not he who refrains from imitating others, but he who can be imitated by none.
+ - Let us not disdain glory too much; nothing is finer, except virtue. The height of happiness would be to unite both in this life.
+ - Alexander created cities everywhere he passed: I have left dreams everywhere I have trailed my life.
+ - Every institution goes through three stages utility, privilege, and abuse.
+ - One is not superior merely because one sees the world as odious.
+ - My downfall made a great noise: those who appeared most satisfied criticized the manner of it.
+ - Something you consider bad may bring out your child’s talents; something you consider good may stifle them.
+ - Music is the child of prayer, the companion of religion.
+ - Religion assures us that our afflictions shall have an end; she comforts us, she dries our tears, she promises us another life. On the contrary, in the abominable worship of atheism, human woes are the incense, death is the priest, a coffin the altar, and annihilation the Deity.
+ - One does not learn how to die by killing others.
+ - Perfect works are rare, because they must be produced at the happy moment when taste and genius unite; and this rare conjuncture, like that of certain planets, appears to occur only after the revolution of several cycles, and only lasts for an instant.
+ - We must not always try to plumb the depths of the human heart; the truths it contains are among those that are best seen in half-light or in perspective.
+ - Achilles exists only through Homer. Take away the art of writing from this world, and you will probably take away its glory .
+
+28 quotes

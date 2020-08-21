@@ -1,0 +1,25 @@
+ - You have to work hard for what you want to achieve and you have to set goals and dreams and really go for them.
+ - If you are not afraid of the voices inside you, you will not fear the critics outside you. Besides, those voices are merely guardians and demons protecting the real treasure, the first thoughts of the mind.
+ - Have you murdered anyone in the last day, week, month, year, decade? Probably not. Then don’t worry about it. Give yourself a break. You’re probably a really fine person.
+ - A hug is the perfect gift, one size fits all, everyone likes them and no-one cares if it is given back.
+ - You have your opinion, I have mine, and it takes all kinds of nuts and dips to make a party, right?
+ - Don’t all morals go out the window if they’re hot enough?
+ - There are moments when I think, Everyone is evil!
+ - I love all history because it’s storytelling. But, I will always have a special place in my heart for the Tudor dynasty.
+ - You learn so much from competition you gain confidence every time you have to step up and perform.
+ - There is freedom in being a writer and writing. It is fulfilling your function. I used to think freedom meant doing whatever you want. It means knowing who you are, what you are supposed to be doing on this earth, and then simply doing it.
+ - This is why it is good to remember: if you want to get high, don’t drink whiskey; read Shakespeare, Tennyson, Keats, Neruda, Hopkins, Millay, Whitman, aloud and let your body sing.
+ - Had a filling done yesterday with no freezing, natural materials, essentials oils, and homeopathic remedies. We absolutely must push for more holistic biological dentistry...
+ - We may love men and we may live with men, but some of them have said stupendously inaccurate things about us, our bodies, and our psyches.
+ - The Longs event was the first LPGA event that I played in 8 years ago.
+ - In a sense, evolution adheres to the classic twelve-step program: it takes things one day at a time. It does not strive for perfection; it does not strive at all. There is no progress, no plans, no scala natura, or scale of nature, that ranks organisms from lowly to superior, primitive to advanced.
+ - As far as my journal, I want to share tour life with my fans.
+ - My first calendar was a combination of photos taken from different shoots including golf and casual.
+ - I used to butcher my Barbies. I would draw hearts on their cheeks. I would give them haircuts and I would keep going because it would be uneven and they would be left bald.
+ - Pebble Beach. It is tough and the lay out is amazing.
+ - I love to be in front of big galleries.
+ - To me, the beauty of a quilt or a dress lies within the stitches and the thought of the person who made them. When you spend time making something with your two hands, you impart love in a way that buying never can.
+ - Our minds hurtled outward in all directions. We became absurdly creative, Homo artifactus, intolerant of bare cave walls and naked clay pots.
+ - It’s fun to come back to the town where I went to school and see all the new Wildcat players.
+
+23 quotes

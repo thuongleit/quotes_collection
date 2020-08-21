@@ -1,0 +1,46 @@
+ - Witches don’t look like anything. Witches are. Witches do.
+ - Imagine a world without shadows. You cannot touch a shadow, but a world without them is a hard world, and flat.
+ - I don’t like my shoes,? said Rose. ‘I’m wearing my shoes and you don’t see me complain.’ ‘You only hear a person complain,’ said Rose. ‘Not see.’ How has Rose lived for seventeen years and no one has killed her, not once?
+ - I like rain and mist. I’ve never understood why people exclaim over bright skies and bushels of glaring sunshine.
+ - Meaning. If you’re going to die, you want to find meaning in life. You want to connect the dots.
+ - Yes, I’m shallow, I don’t mind admitting it. Perhaps I should admit that there’s no end to the depths of my shallowness.
+ - I don’t mean to be ungrateful but if someone’s out there answering prayers, mine’s not at the top of the list.
+ - I don’t know what it is, but I ache for it each day. It’s as though I have eyes, but there are colors I cannot see. As though I have ears, but there’s a range of notes I cannot hear.
+ - That’s where proper stories begin, don’t they, when the handsome stranger arrives and everything goes wrong?
+ - There are no preconditions for jealousy. You don’t have to be right, you don’t have to be reasonable. Take Othello. He was neither right nor reasonable, and Desdemona ended up dead. I wouldn’t mind Leanne ending up dead. I wouldn’t mind exploding her into fireworks of peacock and pearl.
+ - Secrets press inside a person. They press the way water presses at a dam. The secrets and the water, they both want to get out.
+ - How can something as fragile as a word build the whole world?
+ - It’s the picnic principle. Things taste better outdoors. And if it’s a forbidden thing, so much the better.
+ - If you say a word, it leaps out and becomes the truth. I love you. I believe it. I believe I am loveable. How can something as fragile as a word build a whole world?
+ - But witchy magic doesn’t listen to please and pretty please, and anyway, I didn’t really care. I only pretended to care because not caring makes me a monster.
+ - Let’s hope she’s like the others, who look only at the surface. Let’s hope she’d never think that a girl with black-velvet eyes and cut-glass cheekbones could be a witch.
+ - Death had no lips, but it was smiling.
+ - Despite her cough, Rose was in unusually good spirits. That was irritating. If I’m to trade my life for Rose’s, I’d appreciate her exhibiting a touch of melancholy. Also acceptable would be despair.
+ - Life and stories are alike in one way: They are full of hollows. The king and queen have no children: They have a child hollow. The girl has a wicked stepmother: She has a mother hollow. In a story, a baby comes along to fill the child hollow. But in life, the hollows continue empty.
+ - A poem doesn’t come out and tell you what it has to say. It circles back on itself, eating its own tail and making you guess what it means.
+ - People think me a sort of Florence Nightingale, but I have no heroic qualities. I simply don’t feel very much.
+ - Poor Petey. I’d like to say I could almost feel a tender spot for poor Petey, but the truth is I’d rather feel at the tender spot on his head and give it a poke.
+ - It’s strange how a person can have a distinct distaste for herself, but still she clutches on to life.
+ - I might be a wicked girl who’d think nothing of eating a baby for breakfast, but I’d never allow myself to get expelled. It’s far too public.
+ - My own mask stayed just where it ought. I’ve had lots of practice.
+ - The beach has a language of its own, with its undulating ribbons of silt, the imponderable hieroglyphs of bird tracks. The receding waves catch on innumerable holes in the sand. Bubbles form and fade. A new language, with a new alphabet...
+ - Even a witch wants sympathy.
+ - Father’s silence is not merely the absence of sound. It’s a creature with a life of its own. It chokes you. It pinches you small as a grain of rice. It twists in your gut like a worm. Silence clawed at my throat. It left a taste of burnt matches.
+ - Thoughts are strange creatures. They lead you from one thing to another. Sometimes you don’t know how you got from one to the next.
+ - He’s harmless, poor thing. That’s what everyone said. It was true, but who cares? Lots of people are harmless, but that doesn’t mean I have to like them.
+ - It wasn’t quite a question. It was more of an invitation to tell him whatever I chose. Eldric game me a choice, and it was this that made me want to tell him everything.
+ - He scooped up my arm, swung me round. “Let go, Cecil,” I said. “I’ve a strange dislike of being forced.” “But Briony,” he said, “I’m so full of good spirits. I could walk to London, I think!” Why didn’t he?
+ - A girl can have the face of an angel but have a horrid sort of heart.
+ - I’m not really the sacrificing type.
+ - It’s one thing to keep secrets. It’s quite another to lie.
+ - Now that’s true poetic irony. I rush into battle to defend the fair name of Rose Larkin, and what does she do but fetch Robert to stop me.
+ - It’s one thing if a person learns you’re a witch. It’s quite another if he learns you’re a murderer. I almost forget I’m a witch now that I know I’m a murderer – murderess, actually. Murderess sounds so much worse.
+ - I still can’t understand how Cecil and my old tutor, Fitz, got along so well, when we often called Fitz ‘the Genius’ and avoided calling Cecil anything at all, so as not to be rude.
+ - Actually, it would be assumed that the young lady had no such impulses at all, but I’ll tell you something: Chocolate melts on my tongue too.
+ - I’ve confessed to everything and I’s liked to be hanged. Now, if you please.
+ - I explained we lost the porch to the flood. Father hasn’t gotten around to rebuilding it, although he’s quite a good carpenter. He says if Jesus was a carpenter, its good enough for a clergyman. But I don’t remember that Jesus let his house fall down.
+ - I hated myself, but I also loved myself in a hateful way.
+ - Eavesdropping is such a regular-person activity.
+ - Should I ever again sink into illness, I’m sure I’ll remember Eldric. I’ll remember he cared for me. I’ll remember that someone had at least taken the time to touch my face.
+
+44 quotes

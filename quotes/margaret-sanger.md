@@ -1,0 +1,56 @@
+ - The basic freedom of the world is woman’s freedom.
+ - More children from the fit, less from the unfit – that is the chief aim of birth control.
+ - Blacks, soldiers, and Jews are a menace to the race.
+ - Life has taught me one supreme lesson. This is that we must – if we are really to live at all, if we are to enjoy the life more abundant promised by the Sages of Wisdom – we must put our convictions into action. My remuneration has been that I have been privileged to act out my faith.
+ - When motherhood becomes the fruit of a deep yearning, not the result of ignorance or accident, its children will become the foundation of a new race.
+ - No woman can call herself free until she can choose consciously whether she will or will not be a mother.
+ - I think the greatest sin in the world is bringing children into the world.
+ - Birth control is the first important step woman must take toward the goal of her freedom. It is the first step she must take to be man’s equal. It is the first step they must both take toward human emancipation.
+ - Woman must not accept; she must challenge. She must not be awed by that which has been built up around her; she must reverence that woman in her which struggles for expression.
+ - As I look back upon my life, I see that every part of it was a preparation for the next. The most trivial of incidents fits into the larger pattern like a mosaic in a preconceived design.
+ - The most merciful thing a large family can do to one of its infant members is to kill it.
+ - The undeniably feeble-minded should, indeed, not only be discouraged but prevented from propagating their kind.
+ - The real hope of the world lies in putting as painstaking thought into the business of mating as we do into other big businesses.
+ - Apply a stern and rigid policy of sterilization and segregation to that grade of population whose progeny is already tainted, or whose inheritance is such that objectionable traits may be transmitted to offspring.
+ - Colored people are like human weeds and are to be exterminated.
+ - No woman can call herself free who does not control her own body.
+ - Very early in my childhood I associated poverty, toil, unemployment, drunkenness, cruelty, quarreling, fighting, debts, jail with large families.
+ - Women of the working class, especially wage workers, should not have more than two children at most. The average working man can support no more and and the average working woman can take care of no more in decent fashion.
+ - Birth control must lead ultimately to a cleaner race.
+ - A free race cannot be born of slave mothers.
+ - Enthusiasm is a divine possession.
+ - War, famine, poverty and oppression of the workers will continue while woman makes life cheap. They will cease only when she limits her reproductivity and human life is no longer a thing to be wasted.
+ - The first right of every child is to be wanted, to be desired, to be planned for with an intensity of love that gives it its title to being.
+ - She goes through the vale of death alone, each time a babe is born. As it is the right neither of man nor the state to coerce her into this ordeal, so it is her right to decide whether she will endure it.
+ - Against the State, against the Church, against the silence of the medical profession, against the whole machinery of dead institutions of the past, the woman of today arises.
+ - No woman shall have the legal right to bear a child without a permit for parenthood.
+ - I wanted each woman to be a rebellious Vashti, not an Esther.
+ - The campaign for birth control is not merely of eugenic value, but is practically identical with the final aims of eugenics.
+ - As a cause becomes more and more successful, the ideas of the people engaged in it are bound to change...
+ - Eugenics is the most adequate and thorough avenue to the solution of racial, political and social problems.
+ - Some lives drift here and there like reeds in a stream, depending on changing currents for their activity. Others are like swimmers knowing the depth of the water. Each stroke helps them onward to a definite objective.
+ - Birth control appeals to the advanced radical because it is calculated to undermine the authority of the Christian churches. I look forward to seeing humanity free someday of the tryanny of Christianity no less than Capitalism.
+ - I accepted an invitation to talk to the women’s branch of the Ku Klux Klan.
+ - Woman must have her freedom, the fundamental freedom of choosing whether or not she will be a mother and how many children she will have. Regardless of what man’s attitude may be, that problem is hers – and before it can be his, it is hers alone.
+ - Knowledge of birth control is essentially moral. Its general, though prudent, practice must lead to a higher individuality and ultimately to a cleaner race.
+ - No more children should be born when the parents, though healthy themselves, find that their children are physically or mentally defective.
+ - On the contrary, the most urgent problem today is how to limit and discourage the over-fertility of the mentally and physically defective.
+ - Like the advocates of Birth Control, the eugenists, for instance, are seeking to assist the race toward the elimination of the unfit. Both are seeking a single end but they lay emphasis upon different methods.
+ - Woman must not accept; she must challenge.
+ - I cannot refrain from saying that women must come to recognize there is some function of womanhood other than being a child-bearing machine.
+ - Possibly drastic and Spartan methods may be forced upon American society if it continues complacently to encourage the chance and chaotic breeding that has resulted from our stupid, cruel sentimentalism.
+ - Birth control itself, often denounced as a violation of natural law, is nothing more or less than the facilitation of the process of weeding out the unfit, of preventing the birth of defectives or of those who will become defectives.
+ - She made people accept that women had the right to control their own destinies.
+ - The submission of her body without love or desire is degrading to the woman’s finer sensibility, all the marriage certificates on earth to the contrary notwithstanding.
+ - Women must have economic and social equality with men.
+ - No despot ever flung forth his legions to die in foreign conquest, no privilege-ruled nation ever erupted across its borders, to lock in death embrace with another, but behind them loomed the driving power of a population too large for its boundaries and its natural resources.
+ - Speaking of Margaret Sanger, Grandson Alexander Sanger, head of Planned Parenthood of New York City, said: She made people accept that women had the right to control their own destinies.
+ - If we are really to live at all we must put our convictions into action.
+ - The most serious charge that can be brought against modern benevolence is that it encourages the perpetuation of defectives, delinquents and dependents. These are the most dangerous elements in the world community, the most devastating curse on human progress and expression.
+ - We are paying for and even submitting to the dictates of an ever increasing, unceasingly spawning class of human beings who never should have been born at all-that the wealth of individuals and of state is being diverted from the development and the progress of human expression and civilization.
+ - Couples should be required to submit applications to have a child...
+ - We gather perfect fruit from perfect trees.
+ - Never be ashamed of passion. If you are strongly sexed, you are richly endowed.
+ - Diplomats make it their business to conceal the facts.
+
+54 quotes

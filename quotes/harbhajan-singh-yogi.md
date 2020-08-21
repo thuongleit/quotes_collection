@@ -1,0 +1,242 @@
+ - If you are willing to look at another person’s behavior toward you as a reflection of the state of their relationship with themselves rather than a statement about your value as a person. then you will, over a period of time, cease to react at all.
+ - Be so happy that when others look at you, they become happy too.
+ - Travel light, live light, spread the light, be the light.
+ - If you want to learn a thing, read that. If you want to know a thing, write that; if you want to master a thing, teach that.
+ - Happiness is your birthright. Live it!
+ - Cultivate the attitude of gratitude. The attitude of gratitude is when you are grateful for every breath of life.
+ - The moment you value yourself, the whole world values you.
+ - Elevate. Each day, live to elevate yourself, each day elevate one person. Make elevation your religion and you shall reach infinity.
+ - Keep up and you will be kept up.
+ - Life is a flow of love, only your participation is requested.
+ - Self-reliance conquers any difficulty.
+ - The process of self-healing is the privilege of every being. Self-healing is not a miracle, nor is self-healing a dramatization of the personality as though you could do something superior. Self-healing is a genuine process of the relationship between the physical and the infinite power of the soul.
+ - Gratitude is the open door to abundance.
+ - When ego is lost, limit is lost. You become infinite, kind, beautiful.
+ - Wisdom, character, and consciousness conquer everything.
+ - To conquer the unknown you must trust.
+ - Let your heart speak to others hearts.
+ - Love is the ultimate state of human being where compassion prevails and kindness rules.
+ - The idea is to just stop. Just wait. Don’t react. Therein lies the whole universe. Just don’t react.
+ - Your greatest strength is love. Your greatest weakness is fear.
+ - Our limited mind is our enemy and our unlimited mind is our best friend. When you become a slave of the mind, it will limit you. When you use it, it will bring you the whole universe.
+ - Working by heart means using your feelings and emotions to lead you to your spiritual sense of existence.
+ - When you do not consciously relate to your body, your mind does not relate consciously to you.
+ - Your value is nothing if you cannot honor your word. If you do not mean what you say, you are the most mean person on the Earth.
+ - Where there’s love there’s no limit; where there’s a limit, there’s no love.
+ - By honoring your words you are honored in this world.
+ - When you understand who and what you are, your radiance projects into the universal radiance and everything around you becomes creative and full of opportunity.
+ - Your mind is your servant, your body is your vehicle and your soul is your residence.
+ - Life is a lie if truth is not found. Truth is just an idea if it is not lived. It is living that matters.
+ - Your mind, emotions and body are instruments and the way you align and tune them determines how well you play life.
+ - Challenge doesn’t come to small people. Challenge comes to great people.
+ - When the prayer becomes the vibration of the mind and self, then we can create a miracle.
+ - People who love each other don’t bargain. Love has no such thing as business. Love has no conditions, because love does not obey time and space.
+ - There are three values: Feel good, be good and do good.
+ - Consult your spirit, your soul on everything.
+ - Where there is Dharma there is no karma. So we have to lean on Dharmic values and we have to build a Dharmic family, we have to relate to that family and we have to relate to it deeply.
+ - Without realizing who you are, happiness cannot come to you.
+ - In the Age of Aquarius, the depression and stress on mankind will tear up people who do not have the technical knowledge of self.
+ - Life is simple. Life is not complicated. Life is only one thing: Identify yourself.
+ - The greatest progress in life is when you know your limitations, and then you have the courage to drop them.
+ - We are here to start an era, to start an Age, to celebrate the transition from the Piscean Age into the Aquarian Age. We are here to celebrate that. We are the pioneers. We are the pioneers of the Dharma. Let’s bow our heads in prayer and let us open our hearts.
+ - Appreciation is an art and a lifestyle and a source of happiness and fulfillment. It’s called gratitude-an attitude of gratitude.
+ - If you are happy, happiness will come to you because happiness wants to go where happiness is.
+ - Meditation is nothing but taking a mental shower.
+ - The strength behind communication is in its quality, not in its quantity. Your talk should be that of quality, not of quantity. You should use small sentences which say a lot. Or you should say a lot in small sentences.
+ - Love without trust does not exist. Love is a strength of trust. Trust is the test of love. When you love, you trust each other. When you don’t, you don’t. Don’t camouflage the word “love” and not trust each other.
+ - If your presence doesn’t work, neither will your word.
+ - If your mind can go along with you it is a blessing. If your mind obeys you, it is a super-blessing.
+ - What is the purpose of life? To elevate all, big or small.
+ - To be blessed is to live in gratitude, so that God can fulfill you forever.
+ - The first principle of self-love is that you are not for sale.
+ - The Age of Aquarius is the age of excellence in which personal purity shall absolutely matter.
+ - Danger is when you are split three ways: Your soul goes one way, your mind goes another way and your body goes yet another way.
+ - Life is a lie if you do not find the eternal truth.
+ - Communication is a science as well as an art. What does speaking precisely mean? You are consciously communicating with another person at that person’s frequency, not yours.
+ - As a healer, the first thing to tell every patient is to breathe deeply. Shallow breathing means no endurance, no patience.
+ - Creation is ready to serve you, if you just be you.
+ - Sometimes people do go wrong. There is no judgment needed. Wrong will take a short time or a long time to make the individual aware that something is wrong, and that is the beginning of that person’s awakening.
+ - If you do not love yourself to the depth of totality, you will never love love as a reality.
+ - Friendship means only one thing: you don’t create fences around you, but try to remove fences from the life of another person.
+ - It takes the same energy to complain as it does to compliment. When there is a short circuit, there is a complaint, and when the energy is flowing, there is a compliment.
+ - The path which we believe in is the path of love; it has all the goodness of God in it-calmness and kindness.
+ - When you experience your origin as a reality, you are happy. Be constant under all circumstances and relate to one thing – you are a part of Infinity and always lean on that power – then you’ll never be unhappy.
+ - 3HO is a family of healthy, happy, and holy people. Do you understand the word “family”? If, under all longitudes and latitudes, we keep our nucleus together, that is a family.
+ - The attitude of gratitude is the highest way of living, and is the biggest truth, the highest truth. You cannot live with applied consciousness until you understand that you have to be grateful for what you have. If you are grateful for what you have, then Mother Nature will give you more.
+ - The fundamental law of truth is that it penetrates through all darkness.
+ - Divinity is the elementary personality of a human being. When he can stand before corruption and win, that is an undivided personality. It is called divinity.
+ - Communication always has a purpose. Before speaking, the first law is: you must know why you are talking. You must know what you are communicating for. What do you want?
+ - What is meditation? When you empty yourself and let the universe come in you.
+ - Kundalini Yoga will dawn on you the secret of how to be Healthy, Happy and Holy.
+ - The purpose of life is to be beautiful, to be bountiful, to be blissful, to be graceful and grateful. What a wonderful English word-grateful. If one is great and full, one is God. And whenever smallness faces you, you should be great, and full-full of that greatness.
+ - The mind is given to you, you are not given to the mind.
+ - All you have to do is send a message or somehow establish communication between the mind and body of the sick person. The mind should be in peace, so that the body can do the job. That’s all the cure is. The body cures itself. Medicine allows it to get into that space where healing can take place.
+ - Speak not through the positive mind or the negative mind, but from the neutral mind.
+ - Teacher is not a great popular person. They teach what they know and make people better than them. Teacher must create a student better than him or her. Otherwise that person is not a teacher but a preacher. There are tons and thousands of preachers.
+ - We meditate so that our minds can be sharp and alert. We chant mantras so that your souls may be ignited like candles. We walk in the light of this beauty.
+ - If you just feel happy for what you have, have an attitude of gratitude, and be grateful, then it will come true, you will be great and you will be full.
+ - Truth is everlasting.
+ - Everything should be considered as a gift of God. When anything wrong comes to you and you think it is a gift, it won’t stay with you. Do you know that? Try it sometime.
+ - Love without trust is a river without water.
+ - The art of healing, the art of ecstasy, the art of God-consciousness has millions of names in mystic terms. It has to do with rhythm and reality. When the body is in rhythm, there is ease. When the body, or any part of the body goes out of rhythm, there is dis-ease.
+ - You don’t have to explain yourself. Let your weakness be yours. Let your strength be everybody’s. You understand the principle?
+ - The three salient features of love are: Where there is love, there is no question. Where there is love, there is no pain. Where there is love, there is nothing impossible.
+ - Let somebody prove friendship which time and space cannot jolt, and then accept the love. Don’t accept the love first and then find the friendship; it will never come. You have lost the game.
+ - I love you but you didn’t bring me flowers. Your love is hanging on flowers! You are seasonal, conditional, demanding and bargaining. Love is not a bargain. Love is not a business. It cannot be bought and sold. It has no condition. When you put a condition on love, it evaporates.
+ - In the beginning was the Word. It doesn’t say in the beginning was God. In the beginning was the Word because in the very beginning of every moment of time and space your word counts. Your whole destiny is written in the Word.
+ - You are very powerful, provided you know how powerful you are.
+ - Compassion is for the very strong. Compassion does not come to the weak. People who are unkind, bullies, use rude language, are not strong people. They are very weak people.
+ - Fantasy and anger totally destroy the human body. Tolerance is the greatest human asset.
+ - If you feel just one thing in your life-that life is nothing but the gift of God-you are divine and the most courageous person. Try it! Try it as a thought. The moment you feel that life is a gift, you’ll become prosperous.
+ - Remember: the Word is God and God is the Word. You are what your words are.
+ - There are three things you cannot hide: smell of the garlic, fragrance of the flower and the wisdom of the teacher.
+ - We must be guided by faith. If we are guided by fear we lock ourselves and our expansion.
+ - Getting up for sadhana in the morning is a totally selfish act – for personal strength, for personal intuition, for personal sharpness, for personal discipline, and overall for absolute personal prosperity.
+ - Work does not kill you, food does. God does not kill you, food does. Food is your first and last enemy. If you take in more than you can handle, it takes all of your energy to digest it.
+ - Know that the most neurotic, most ugly situation is simply testing you. It is testing capacity, beyond his control, your flexibility, your adjustment and your character.
+ - If your words do not have a smile, if you do not talk heart to heart, and you decide everything with your head, it is better to keep a dog as a friend rather than you.
+ - Whether you are a medical doctor or a chiropractor or another type of healer, life has a challenge that you have to be egoless. You have to just become, without self, a healer at that moment, for that purpose.
+ - Love means total interest; love means total creativity; love means total input. Who has that for you? Who has given you values? Who has given you character? Who has told you, “Stand for righteousness and I’ll stand behind you”?
+ - If you appreciate your life, if you appreciate your job, if you appreciate yourself, if you appreciate your surroundings-poor or rich, whatever they are-you are divine.
+ - Make an attitude to be in gratitude, you will find the whole Universe will come to you.
+ - A failure is only a step on the way to your success.
+ - Our purity lies in our originality. Our intuition lies in our innocence.
+ - Prosperity is the opposite of greedy.
+ - When you meet an ungrateful person, be great. The moment you become great, you will become fulfilled. There is no other secret. Nothing else will give you fulfillment.
+ - Hope is not a prediction of the future, it’s a declaration of what is possible.
+ - Find friends and not lovers; you will win the game of life.
+ - Every happening is a lesson, a message.
+ - What you feel, what you desire and what you want is not what you are. You are a consciousness. Speak consciously and speak what your consciousness allows you to speak.
+ - You have to bounce in life with joy. Your strength lies in your smiles and your songs.
+ - When you are far away from reality, your fantasy won’t work.
+ - You communicate for a better tommorow, not to spoil today.
+ - What is greatness? Greatness is when you have found out that you are not great, but everything else is.
+ - To be calm is the highest achievement of the best of what you have.
+ - There are two ways to change things: Either you are forced to change or you have the intuition to change.
+ - A family is not built just by marrying a woman and producing children. Family is built with a timeless sacrifice which must represent purity, unity, standard of ethics, righteousness, grace, dignity, divinity and principles.
+ - Bless be the ones who serve others. They are the ones who find heaven on earth.
+ - Peace has its price: your head and heart; less than that is war.
+ - The only way a relationship between you and God can be established is if you become grateful and build up a standard of gratitude. Only then will fulfillment come in life. Only then can you be happy in life. Only then will you be fulfilled in life. Because in God we trust and in God we dwell.
+ - Love fundamentally is the most powerful ecstasy of consciousness, and even if a person goes blind, there is no question when you are in love.
+ - Your job is to control yourself. Your job is to discipline yourself. Your job is to deal with everything in life with affection, love and kindness.
+ - You think that when you love somebody you have to totally follow him or her. No, that’s not love. When you love somebody, you have to be totally truthful with that person.
+ - Do not get attached to that which is given, be attached to the Giver.
+ - You have to understand the process of healing in the Age of Aquarius. What will give the healing is the flow of your soul energy.
+ - Why is meditation essential? By meditating we take our garbage out.
+ - The question is, “Are you spiritual or are you not?” The truth is you are. The reality is you don’t believe it.
+ - If you only know one kriya, then share that. Just be humble, teach it. Every student is a teacher.
+ - Many things you are already practicing; but you practice them under fear. But if you practice them under love they become Divine.
+ - Every individual has the potential to be original.
+ - You want to know about a good man? Man is the one who can carry the home and the family and have the strength to keep that weight going; woman is that which can nurture and nurse and be herself and can keep her radiance and have the strength of that.
+ - An attitude of gratitude brings great things.
+ - This 3HO shall be the most important legacy on this planet for the Age of Aquarius. Sooner or later people will experience a tremendous amount of emptiness which always brings a void. A void brings unhappiness. Then people will want to find a place where they can be healthy, happy, and holy.
+ - A spiritual person is vast, like an ocean – but very mighty, very powerful.
+ - Life is a flow of love.
+ - Conscious communication is called Turiya-when you are totally effective, totally understood and totally truthful.
+ - Mostly your love is passionate force. But when this passionate force turns itself to be a compassionate force under the guidance of compassionate intelligence, that is where one becomes brahm giani. One knows all, one sees all, one says all.
+ - If you cannot bless yourself, then nobody can bless you.
+ - Through meditation, you can calm the mind and develop what is important to you.
+ - You have to understand the purpose of life. The purpose of life is to do something which will live forever.
+ - Before you touch anybody you have to make sure that you are as pure as possible. If you don’t purify yourself of all the inner duality, negativity can prevail through the flow of the psyche.
+ - Two people may have one sensitivity, one action, one reaction and one feeling; it doesn’t matter how much time and distance they have between themselves-that is the state of ultimate love.
+ - There is nothing outside of us. It’s all in us.
+ - Time and space cannot play any part between two loving hearts.
+ - Your truth should be so pure that if lifts a person’s soul to the heights.
+ - The purpose is to be in gratitude forever. Live with applied consciousness, prosperity will break through the walls, flood you with it. You do prayer when you are in difficulty. Pray when you are not in difficulty! That is the attitude of gratitude.
+ - Don’t count your wrongs, count your blessings and you shall not fail. Any human who calls himself a creature of God and does not count, many times during the day, the blessings but only counts what he doesn’t have is insulting to God and to himself; he is a living non-reality.
+ - Improve with each breath. Every negative vibration returns 10 fold.
+ - Never say things to friends which you don’t want to hear from enemies.
+ - This path belongs to those who are not cold, whose hearts have not become stone, and whose heads have not become so swollen that they can’t hear the voice of the soul. This path will belong to those who, with all their strengths and weaknesses, will still serve others.
+ - Ingrown anger is like an ingrown hair. The pain it creates in life is unbearable.
+ - Above all there’s a love which is real, the ultimate love. We merge not only physically, but mentally and spiritually, in arc-line, aura and subtle body. We amalgamate with each other. That is real love.
+ - As long as you don’t compliment yourself, your environments and your job, you will always be miserable. Complaints bring misery, compliments brings strength.
+ - You are not a soul, you are not a mind, you are not a body. You are the controller of all three.
+ - Never utter a word if it is not from your navel point and it doesn’t confirm your regal, highest self.
+ - Your communication should not be for you. Your communication should be a service vehicle to reach the other person. Talking is for the other person. Listening is for you.
+ - You are remembered for your goodness.
+ - I do not believe in miracles, I rely on them.
+ - When you are blessing the sick, you beg of the Almighty, but actually you are not begging for anything, because from inside your being, energy is pouring into the other person. It is from a state of compassion, of compassionate meditation, that the healing activity of God, within the being, flows.
+ - When the heart gets into prayer, every beat of the heart creates a miracle.
+ - Your words should be so strong that they affect every your intuition so that you can recognize what is real and heart.
+ - I did not come to collect students, but to train teachers.
+ - In all darkness, there is a light and in all light there is a darkness.
+ - Physical love must end up as a creative love. And creative love must end up as a divine love. And divine love must end up as a unison love. And unison love must become God Itself. These are the known stages of love.
+ - Regardless of what we understand or do not understand, we are what we speak. That’s how we are known.
+ - Sometimes you have tons of money, and still you are miserable, you are not satisfied. The bow of gratitude and arrow of mercy will give you everything. Gratitude will turn your attitude into mercy, mercy will bring you dharma, and dharma will give you solid prosperity.
+ - The fact is, if a person has not experienced the love of his or her soul, within one’s self, there is no chance that that person can go out and love, even though it is a faculty of love that you most powerfully need.
+ - Fools live in fear, a wise man lives in strength.
+ - A cozy home is not just a sixty-five thousand dollar house bought from Bank of America. A cozy home is a total consciousness of the two individuals within the framework of the home, and in relationship to the entire surrounding of this planet and beyond this planet. God lives in cozy homes.
+ - Don’t solve your problems, dissolve your problems – so that they should not recur again.
+ - When you don’t go within, you go without.
+ - If you want to progress in your life and grow, act not to react.
+ - If the entire divinity and domain of God sits in the heart of a person, and his longing becomes timeless, then man can develop the capacity to love.
+ - Any woman on this planet who values herself as a woman is great. She is a giver of life. And when you are a giver of life, what more is there?
+ - Take new values : Leave behind a legend to be followed by those who follow you. Be a yogi – don’t be an ordinary person.
+ - Just remember, the language of gesture is more effective than the spoken word. Body language is very powerful. Bring the balance within you and project that balance.
+ - Love is nothing but giving, tolerating and sacrificing.
+ - From when you are young, through middle age, you must grow to the point that you glow, so that your light lets people feel the blessings, the virtues, and the happiness.
+ - Body is not all. Mind is not all. Spirit is not all. All three make the sense.
+ - You don’t have to learn to be wise. If you just flow you can be successful. Mother Nature will carry you.
+ - Do you know what love is? Love is an absolute power of self-totality. Love is not what you think love is. Love is a strength. Love is a goodness, like Godliness. There is no limit to it. There is no shortage in it. There is no bargaining in it.
+ - The greatest investment and greatest fair deal and enterprise is family, cozy homes. A cozy home is based on cozy people. Cozy people are not brought and imported, they are made from the time of birth to the time of infinity.
+ - Without meditation, and without a relationship to your mind, you fail to use the power of the mind. You fail to rely on your self. You complicate your approach. You do not use the beautiful designs given to you by birthright in this body, that link the effectiveness of body, mind, soul and you.
+ - This Universe is made by God by one universal rule: everybody has a standard of birth, growth, and death, except man. God is extremely forgiving, but if you do not acknowledge what you have, in gratitude, you will never have more, and if you care to get it, something will be lost.
+ - Any act in the name of God returns 10 fold.
+ - You can never hide from your truth. If you do, you will always be lost.
+ - You cannot live by feelings and emotions; you have to live by your intuition and consciousness.
+ - Your heart works for you, but do you work for your heart?
+ - Share your strengths, not your weaknesses.
+ - You know how to drive a car, but you do not know how to drive your life!
+ - Where there is love, there is no question. Where there is a question, there is no love. Then it becomes a business. So love is the totality of the self. My dear folks, if you cannot find yourself, you can never find anybody you want to find.
+ - You owe it to yourself to be yourself.
+ - Every disability is imagined. Every achievement is an experience.
+ - Sometimes bringing out your inner best is the secret of success.
+ - What is a cozy home? Where you enter and you feel the radiance of your divine self.
+ - If your breath is very deep in the lungs, it will give you a good red blood. Good red blood, with the oxygen, is quite sufficiently empowered to take away impurities. When the lungs start clearing the blood, then the liver, spleen, and kidneys have much less work to do.
+ - If you can rhythmically slow down your breath to four breaths a minute, you can indirectly control your mind and slow it down from its obnoxious behavior.
+ - No one who is angry or shallow can repeat what they’ve said. The moment you ask a person to repeat, you have won the battle. You have put them on guard. So don’t reply angrily and don’t take any offense, just say politely, “Yes, I understand, but could you please repeat it?” With that, you have won.
+ - Be the alter not the alternative.
+ - If you can’t see God in All, you can’t see God at all.
+ - Never curse yourself by limiting your students.
+ - Who’s your soul’s mate? Consciousness. Soul is your conscious mate. Guru keeps you conscious.
+ - Develop your Intuition so that the changes in the years to come may be convenient for you.
+ - Passion is like waves; it comes and goes. Compassion is the constant flow.
+ - It is not that it is religious or it is not religious, it is called attitude of gratitude, it is called thanking God for giving you elbows and knees, giving you ribs and the glandular system, giving you head and skull and brain.
+ - Fake it, you will make it. But you have to believe it.
+ - The moment you understand that there is an essence of purity in you, you will realize reality. The moment you realize reality you will have royalty, and then you don’t have to say or do a thing. When your presence will work then you will emit wisdom.
+ - The greatest art is to sit, and wait, and let it come.
+ - Why don’t you make your whole body into a string and play the music of the vibratory electromagnetic self, which is your creativity, and project to the heart of another person?
+ - The art of happiness is to serve all, and all shall serve you.
+ - Meditation is not what you do in the morning, that’s practice. Meditation is the daily result of that practice.
+ - As you train your mind, shockingly it brings you prosperity as well as the faculty to maintain it.
+ - Love is not enough; intelligence is not enough; powerful strength is not enough. You may put everything on one side of the scale, but if you are missing gratitude, you shall lose.
+ - Love knows no pain, no sacrifice is too much for it; it is an absolute one-pointed state of mind toward the well-being of the other person who is called lover or beloved.
+ - Whenever you remember me, now or hereafter, one word you must remember: God only lives in cozy homes. Man without a cozy home is a man without God. And coziness is the relationship between you and your purity, your piety and your principles to which you have agreed.
+ - Complaints bring misery; compliments brings strength.
+ - If you make your body very strong, really strong, it can fight off anything.
+ - The pair of opposites do not effect a yogi – neither praise nor insult.
+ - Prayer without heart is a waste to time.
+ - If love could be purchased, everybody would have paid a thousand dollars a pound for it. You know it doesn’t work that way.
+ - There is no such thing as an accident. It is all part of a master plan. Play your role as gracefully as you can and relax.
+ - The greatest education man has to learn is the science of self.
+ - This small little thing, which was started to give people a way of life, with love and dedication, shall prevail in the coming change of the Age.
+ - Love is a process in which ego is lost and infinity is experienced.
+ - When you are calm, quiet and sensitive then you can expand. But when you are irritated, phobic, fearful, insensitive, and neurotic, you can’t achieve anything.
+ - If you cannot put the ego on the side you cannot succeed in love, period. Therefore love must defeat it.
+ - There is only one thing you should know. Conquer yourself.
+ - If we take judging ourselves and others out of our life, we will mostly be living in paradise.
+ - If you give your word, let the entire Universe fall before you, but let your word stand.
+ - The fact is that there is nothing more beautiful, more worthy or more conscious than you.
+ - If you give your Self a chance, your Self will give you all the chances.
+ - When we love there are no barriers, no desires, no needs, no wants.
+ - The unit of every country is the family and the strength of the country is based on the smiles of the children and songs of the adults.
+ - You do not understand your job. You are not running an election, you are not winning wealth. You are being taken care of. But you cannot pocket anything. Whatever comes to you: “Unto Thee, unto Thee, Oh Lord, unto Thee.”
+ - It’s very difficult for people, because when you purify yourself with love you have to merge. Anything in the world is easier to merge than two egos.
+ - You can never get rid of fear, you can only drop it.
+ - Your strength is how calmly, quietly and peacefully you face life.
+ - The best medicine that a person can have is the knowledge and experience that he can swim through every tide and change of the time. If you have the mental competency to deal with every situation that arises, then you are very happy, very healthy and a very well-balanced person.
+ - What you say should not just be truth now, but should be a proven truth tomorrow.
+ - The first law of social communication is whenever you meet anyone, exalt him or her.
+ - What is the power of life? With all the ungraceful dirt, nonsense, you remain graceful.
+
+240 quotes

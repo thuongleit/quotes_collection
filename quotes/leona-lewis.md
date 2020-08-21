@@ -1,0 +1,99 @@
+ - Thought I couldn’t live without you It’s gonna hurt when it heals too Even though I really love you I’m gonna smile cause I deserve to Quickly I’m learning to love again All I know is I’mma be ok.
+ - Obviously, a long-distance relationship is hard. But, like anything worth having, you make it work.
+ - People will always show their true selves in the end.
+ - I think it’s always important to be vigilant of what you’re doing and aware of your surroundings.
+ - I love nature and enjoy learning new skills.
+ - I don’t mind letting people in a little bit, but I have learned from the past not to talk too much about my relationships and to keep things as private as possible.
+ - Working with other artists and sharing your passions is great.
+ - My dad is such a good man. You know how when you are a child you think your dad is invincible? Well, I still think that – he is so wise and everything I do I ask my dad’s advice about first.
+ - My mum is my best friend.
+ - I’m very sensitive and I’m quite a soft person, and I cry a lot when things upset me.
+ - Since there’s no more you and me. It’s time I let you go so I Can Be Free.
+ - I suffer from arachnophobia. I don’t mind the tiny spiders so much, it’s the ones with their legs covered in thick hair.
+ - My parents have always done what they’ve loved, and they’ve had many different careers.
+ - I’m totally against animal cruelty. I don’t have clothes, shoes or bags made from any animal products.
+ - Don’t care about all the pain in front of me, cause I’m just trying to be happy.
+ - I really love getting hot stone massages. They really help me relax and it’s so soothing for your muscles.
+ - It takes bravery to end a relationship.
+ - I’d date someone younger or older age doesn’t matter to me. Or looks, really – it’s all about maturity.
+ - I love horseback riding. I still do it.
+ - I’m a positive person, and I try to look at the good side of everything.
+ - Love is a very powerful emotion and when a break-up is unexpected, it’s very hard to get over.
+ - Animal testing is needless, especially in cosmetics.
+ - I may not be loud but that doesn’t mean I’m not strong within myself. My mum and dad instilled in me to stand up for what I believe in – and I do.
+ - People don’t really know me at all.
+ - I have my best ideas when I am alone.
+ - I call myself a vegetarian with vegan tendencies.
+ - People have been kind enough to compare me to Celine Dion, Mariah Carey and Whitney Houston. I think it’s amazing that they even put my name in the same sentence.
+ - To win the X Factor would mean the world to me and my family. I’d buy mum and dad a house and then I think I would buy myself a car and have a little shopping trip.
+ - Diamonds are supposed to be a girl’s best friend but it’s impossible to know for sure where they have come from so I find it is safer just to avoid them altogether.
+ - I’m not a loud, extravagant person; I’m never going to be that and, to be honest, I don’t want to be like that. I don’t show off or boast, and it’s pointless to think I’m going to be any different.
+ - I’ll never go against my morals.
+ - I am vegetarian, so I don’t have clothes, shoes or bags made from leather or suede or any animal products. Shoes are hard to find. These are fake Uggs. And I’ve got a pair of vintage boots, which are PVC.
+ - My friends are the ones I’ve had since primary school. They’re really cool and such a good bunch of people. They came to every one of my gigs before all of this happened, you know; they were there in the smoky pubs, wherever.
+ - I’ve still kind of maintained a low profile but people still kind of recognize you and will come up to you, and that’s taken a bit of getting used to.
+ - I am definitely an individual.
+ - David Bowie is such a big influence to me. Everything about him as a person is intriguing to me.
+ - Every performer wants to sing live. That’s what I live for.
+ - I try not to diet because it never really works for me, if I tell myself I can’t eat something then I tend to want to eat everything in sight.
+ - For me, love is happiness and inspiration.
+ - In my life, I’ve dealt with tragedy.
+ - My private life is the most precious thing to me.
+ - I’m trying to stay as healthy as possible but there’s no pressure to be really skinny. No. That’s just a bit wrong.
+ - Oh my gosh! I can’t tell you the number of times people have put autotune on my voice, and I’m like, ‘Please take it off!’ You don’t even sound human; it makes you sound like a robot!
+ - I like someone who can take the reins, who knows what they want and is strong with me.
+ - I’m a vegetarian. I don’t eat animals, so I won’t wear them.
+ - I’d love to be on ‘Glee.’ I’d love to play a rebel. Be a real biker chick in leather and covered in tattoos.
+ - I’d always been quite quiet growing up, and singing was a way of having a voice.
+ - I feel like I’ve lived quite a sheltered life, like my mom and dad were quite protective of me.
+ - I was the only one at stage school who wasn’t white.
+ - I don’t get involved in record label politics.
+ - I definitely keep myself secret.
+ - Kids need somewhere to go, so they’re not bored on the street.
+ - I think when people see that you are shy, or even just calm, collected and reserved, they think you can be pushed around, made to do everything they want – but that’s definitely not true of me. The people closest to me know that’s not the case. They know I’m not a pushover.
+ - I was at a really low point, thinking of going to university and doing a course because the music thing just wasn’t happening for me. But I went on the show and...
+ - Unless the radio is on, I am usually listening to stuff that is very different to what I do.
+ - Fear and pain and suffering is not OK for any being to feel intentionally at the hands of us.
+ - Usually when I see someone famous, for some reason, I think I know them.
+ - There are so many songs I’ve recorded, only to hear other people singing them. It happens all the time.
+ - I am, and always will be, proud to be a Hackney girl.
+ - I love a beautiful gown on stage, and luckily I’ve been fortunate to wear some amazing dresses.
+ - I hate the thought of animals being killed just for our pleasure.
+ - I love Thandie Newton. I love her fashion sense as she is just really classic.
+ - I’m very strong creatively, in my music.
+ - I usually dream of melodies. When I wake up I have them in my head. I usually come up with things in the middle of the night because that’s when my mind is the quietest. I always have my tape recorder, pen and pad by my bed just in case.
+ - I do love a bit of fashion. I grew up around a lot of it as my mum and dad had clothing stores so my mum was always designing a lot, and I definitely had that as an influence.
+ - I don’t think I have the right to give someone advice when I don’t know them.
+ - At the end of the day, you should take every opportunity that comes your way.
+ - A lot of people can have a lot of different influences, everyone can be compared in some way to someone whether they are from 60 years ago or more recent.
+ - I would love to sing opera.
+ - I’m not annoying in relationships! I’m great!
+ - I could hang with horses all day.
+ - I trust every single person around me, and if I feel even a whiff of uncertainty I won’t have that person around me.
+ - Sometimes I think I want to get ‘hair and make up’ every day, but that’s just not possible.
+ - I’m glad I was never in a band.
+ - I’m quite curvy and I just try and exercise whenever I can. I don’t do anything hardcore as I’m just not that dedicated.
+ - I never dress to shock.
+ - I believe I could have had a career in the music industry without ‘X Factor,’ but it was an amazing platform that propelled me to where I am now.
+ - I don’t have many famous friends, really, except Simon Cowell.
+ - I don’t like going out where it’s really, really crowded.
+ - It takes me a while to come out of myself and get to know people.
+ - A part of me feels like I was an animal in my past life that wasn’t treated very nicely.
+ - Would ask me, what do you want to be when you’re older? and I’d be like, a singer, and they’d be like, what do you really want to be? and I’d be like, oh, I really want to be a singer.
+ - When I was really little I would sit in the back of my dad’s car when he’d be playing old-school music. He’d turn down the music and turn around and I’d be singing and know all of the words but I didn’t even know how to talk. From then on I’ve always wanted to be a singer.
+ - Overall, I’m quite good with how I spend my cashola.
+ - I love music but, of course, I’d choose love over that.
+ - I want all of my songs to do well whether I’ve written them or not.
+ - I don’t really read the tabloids, and you never know if what’s being printed is true or not.
+ - I’ve always been conscious of my weight.
+ - I think it’s really hard being in a boy band. There’s a lot of dynamics.
+ - I am a whole lot of trouble.
+ - People write music, and the music is out there for people to interpret it how they want to.
+ - I get road rage. I can’t drive because I cuss people out.
+ - If I can inspire people by showing that following a dream by working hard and being determined is possible, it’s amazing.
+ - The part of London where I grew up has the highest crime rates in the country.
+ - I’d love to do a film like ‘Chicago.’ Something musical because I’ve obviously come from that background.
+ - I’m really not that confident!
+ - I would like to be a positive force for young girls.
+
+97 quotes

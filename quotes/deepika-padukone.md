@@ -1,0 +1,40 @@
+ - I am the universe. Infinite in every direction. This is my choice.
+ - The fruit of your own hard work is the sweetest.
+ - When you look at a person, any person, everyone has a story. Everyone has gone through something that has changed their life. Anxiety, depression and panic attacks are not signs of weakness. They are signs of trying to remain strong for way too long.
+ - My choices are like my fingerprints, they make me unique.
+ - Realize that you are not alone, that we are in this together and most importantly that there is hope.
+ - I feel ups and downs are a part of one’s career, and this totally depends on how you take it. You can either be knocked down by the negative things, or you can take it in a positive way and learn from it.
+ - I have always believed that chemistry can’t be created between two people. You either have it or you don’t. The script can only enhance it.
+ - Every film teaches you something; every experience on every film set with every co-star teaches you something. You learn something new. I think the challenge is to keep working harder and doing better.
+ - I am very scared to invest emotionally in a relationship.
+ - It is a common perception that actors don’t get along.
+ - I have always been focused on my job. No profession allows you the luxury of being half-focused. If you’re not into it, you’re not there. And the film industry is all the more harsh in these cases, perhaps because it’s a business of the limelight.
+ - I have a lot of friends, but my biggest fear is loneliness. I miss my family in Mumbai, and my biggest nightmare every day is to go back home alone.
+ - I always think before I speak. I’m not the sort who will just say anything that comes to my mind. I’m a very emotional and sensitive person. But I’m also very strong and know my mind well.
+ - I guess I learnt to appreciate old Hindi-movie music from my dad and somewhere down the line picked up jazz as well.
+ - I was born in Copenhagen, and when I was a year old, we moved to Bangalore. I was always a shy person and was happy with just a few friends and that came from my own social awkwardness. I did not know how to make conversations.
+ - My parents never raised their hand or fired me. Their way of disciplining me was to tell me what is right or wrong.
+ - I am a big foodie, so much so that I eat in every half an hour. This is the secret of my glowing skin.
+ - Comedy is the most difficult. Comic timing is something which you either have it in you, or you don’t. You have to have a good sense of humour to be able to understand it. A split second can make you lose the punch.
+ - I talk to my parents everyday and every move that I make, every endorsement that I do, every film that I do and my everyday activities are all discussed with them.
+ - Im a shy person. I contradict my own profession, because Im an introvert in a very glamorous world.
+ - Correct me if I am wrong, but I personally feel that the Indian body type is not cut out to be size zero. I am not size zero and I don’t believe in that either.
+ - At some level, I feel it is nice to know that a film of yours is doing well at the box office and has also got great reviews. That feels like success.
+ - I’ve grown up watching Shah Rukh Khan and never really imagined that one day I will get to play the lead opposite him.
+ - I am methodical to the point of being obsessive-compulsive. And I have always been good at multi-tasking.
+ - It’s good to be on the edge, but I have never followed my mind. I have always followed my heart. And it has yielded the right results.
+ - To me, the mind and body are one. I’m very transparent, in a way, and people can very easily make out what mood I’m in.
+ - I wish to be appreciated not only as a film star but also for the person I am. If I manage to bring a smile on people’s faces, then I think I’ll be successful.
+ - Katrina Kaif is doing very well for herself and I’d like to wish her a very Happy Birthday.
+ - Relationships or not, I believe that people don’t need to know about my life beyond a certain point.
+ - There is a strong side to me, that is of a homemaker. I look forward to spending time at home in the evenings, cooking a meal, chatting with my parents and inviting friends over.
+ - I am not very comfortable about dancing at weddings and New Year parties. Maybe it’s because of the way I have been brought up; I wouldn’t want my family to feel that cringe moment. Dance is an art for me.
+ - I can walk into a room with all my contemporaries and I will be very comfortable.
+ - While I believe that when you are in the glamour industry, you have to look your best, I also believe being skinny is not ‘hot and happening.’
+ - I don’t think you need any kind of backing here in the industry. I think what you achieve in your life is the result of your own talent and hard work.
+ - If two actors have an equal creative give and take between them, it translates beautifully on the screen.
+ - I was getting to perform with an actor with whom I had never interacted before.
+ - I still live as normal a life as anybody else. I have two homes to run. I have my staff to take care of. I work, pay bills and attend society meetings like everybody else.
+ - I don’t like differentiating between art and commercial cinema.
+
+38 quotes

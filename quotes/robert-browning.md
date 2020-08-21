@@ -1,0 +1,270 @@
+ - Ah, but a man’s reach should exceed his grasp, Or what’s a heaven for?
+ - I give the fight up: let there be an end, a privacy, an obscure nook for me. I want to be forgotten even by God.
+ - God is in his Heaven, all’s right with the world.
+ - Ignorance is not innocence but sin.
+ - Love is the energy of life.
+ - A minute of success pays for years of failure.
+ - My sun sets to rise again.
+ - Take away love and our earth is a tomb.
+ - What Youth deemed crystal, Age finds out was dew.
+ - Success in marriage is more than finding the right person: it is being the right person.
+ - To do good things in the world, first you must know who you are and what gives meaning to your life.
+ - I hold that a man should strive to the uttermost for his life’s set prize.
+ - Best be yourself, imperial, plain, and true.
+ - You call for faith: I show you doubt, to prove that faith exists. The more of doubt, the stronger faith, I say, If faith o’ercomes doubt.
+ - Good to forgive, Best to forget.
+ - I was made and meant to look for you and wait for you and become yours forever.
+ - If thou tastest a crust of bread, thou tastest all the stars and all the heavens.
+ - What so wild as words are?
+ - I walked a mile with Pleasure; She chattered all the way. But left me none the wiser For all she had to say. I walked a mile with Sorrow And ne’er a word said she; But oh, the things I learned from her When Sorrow walked with me!
+ - Shun death, is my advice.
+ - God is the perfect poet, Who in his person acts his own creations.
+ - Truth never hurt the teller.
+ - I think, am sure, a brother’s love exceeds All the world’s loves in its unworldliness.
+ - Life is an empty dream.
+ - God! Thou art love! I build my faith on that.
+ - Open my heart, and you will see Graved inside of it ‘Italy.’
+ - Who knows but the world may end tonight.
+ - Things are where things are, and, as fate has willed, So shall they be fulfilled.
+ - Truth is within ourselves. There is an inmost center in us all, where the truth abides in fullness.
+ - Better have failed in the high aim, as I, Than vulgarly in the low aim succeed As, God be thanked! I do not.
+ - But what if I fail of my purpose here? It is but to keep the nerves at strain, to dry one’s eyes and laugh at a fall, and baffled, get up and begin again.
+ - Must in death your daylight finish? My sun sets to rise again.
+ - The great mind knows the power of gentleness.
+ - Pippa’s Song The year’s at the spring The day’s at the morn Morning’s at seven, The Hill side’s dew-pearled The lark’s on the wing The snail’s on the thorn God’s in his heaven- All’s right with the world.
+ - Good strong thick stupefying incense-smoke!
+ - All service ranks the same with God,- With God, whose puppets, best and worst, Are we: there is no last nor first.
+ - I am grown peaceful as old age tonight.
+ - My business is not to remake myself, but to make the absolute best of what God made.
+ - It was roses, roses, all the way, With myrtle mixed in my path like mad.
+ - Fail I alone, in words and deeds? Why, all men strive and who succeeds?
+ - On the earth the broken arcs; in the heaven a perfect round.
+ - Where the heart lies, let the brain lie also.
+ - The aim, if reached or not, makes great the life: Try to be Shakespeare, leave the rest to fate!
+ - Autumn wins you best by this its mute appeal to sympathy for its decay.
+ - What a thing friendship is – World without end.
+ - Then welcome each rebuff That turns earth’s smoothness rough, Each sting that bids nor sit nor stand, but go! Be our joys three-parts pain! Strive, and hold cheap the strain; Learn, nor account the pang; dare, never grudge the throe!
+ - Wander at will, Day after day, – Wander away, Wandering still – Soul that canst soar! Body may slumber: Body shall cumber Soul-flight no more.
+ - Youth means love, Vows can’t change nature, priests are only men.
+ - If you get simple beauty and naught else, you get about the best thing God invents.
+ - Finds progress, man’s distinctive mark alone, Not God’s, and not the beast’s; God is, they are, Man partly is, and wholly hopes to be.
+ - Stung by the splendour of a sudden thought.
+ - Night conceals a world but reveals a universe.
+ - Brightest truth, purest trust in the universe, all were for me, in the kiss of one girl.
+ - That’s the wise thrush; he sings each song twice over, lest you should think he never could recapture the first fine careless rapture!
+ - No thought which ever stirred A human breast should be untold.
+ - Who knows most, doubts most.
+ - Men are not angels, neither are they brutes.
+ - Again the Cousin’s whistle! Go, my Love.
+ - All poetry is putting the infinite within the finite.
+ - All good things Are ours, nor soul helps flesh more, now, than flesh helps soul!
+ - Our interest’s on the dangerous edge of things. The honest thief, the tender murderer, the superstitious atheist.
+ - Kiss me as if you made believe You were not sure this eve, How my face, your flower, had pursed It’s petals up...
+ - Just for a handful of silver he left us, Just for a riband to stick in his coat.
+ - God be thanked, the meanest of his creatures Boasts two soul-sides, one to face the world with, One to show a woman when he loves her.
+ - Escape me? Never, beloved! While I am I, and you are you.
+ - You never know what life means till you die; even throughout life, tis death that makes life live.
+ - What’s the earth With all its art, verse, music, worth – Compared with love, found, gained, and kept?
+ - A whole I planned, Youth shows but half; trust God: See all, nor be afraid!
+ - Motherhood: All love begins and ends there.
+ - How good is man’s life, the mere living! How fit to employ all the heart and the soul and the senses forever in joy!
+ - Measure your mind’s height by the shade it casts.
+ - Go in thy native innocence, rely On what thou hast of virtue, summon all, For God towards thee hath done his part, do thine.
+ - Aspire, break bounds. Endeavor to be good, and better still, best.
+ - We find great things are made of little things, And little things go lessening till at last Comes God behind them.
+ - So munch on, crunch on, take your nuncheon, Breakfast, supper, dinner, luncheon!
+ - One who never turned his back but marched breast forward, never doubted clouds would break, Never dreamed, though right were worsted, wrong would triumph, Held we fall to rise, are baffled to fight better, sleep to wake.
+ - Generations pass while some tree stands, and old families last not three oaks.
+ - Of what I call God, And fools call Nature.
+ - Such ever was love’s way: to rise, it stoops.
+ - When is man strong until he feels alone? Colombe’s Birthday.
+ - All we have gained then by our unbelief Is a life of doubt diversified by faith, For one of faith diversified by doubt: We called the chess-board white-we call it black.
+ - Are there not, dear Michael, Two points in the adventure of the diver,- One, when a beggar he prepares to plunge; One, when a prince he rises with his pearl? Festus, I plunge.
+ - Love, hope, fear, faith – these make humanity; These are its sign and note and character.
+ - When the liquor’s out, why clink the cannikin?
+ - The world and life’s too big to pass for a dream.
+ - Art remains the one way possible of speaking truth.
+ - Dear, dead women, with such hair, too – what’s become of all the gold Used to hang and brush their bosoms?
+ - I want to know a butcher paints, A baker rhymes for his pursuit, Candlestick-maker much acquaints His soul with song, or, haply mute, Blows out his brains upon the flute.
+ - A pretty woman’s worth some pains to see, Nor is she spoiled, I take it, if a crown Completes the forehead pale and tresses pure.
+ - Our aspirations are our responsibilities.
+ - Stand still, true poet that you are! I know you; let me try and draw you. Some night you’ll fail us: when afar You rise, remember one man saw you, Knew you, and named a star!
+ - Oh, the little more, and how much it is! And the little less, and what worlds away.
+ - What joy is better than news of friends?
+ - For the preacher’s merit or demerit, It were to be wished that the flaws were fewer In the earthen vessel, holding treasure, But the main thing is, does it hold good measure Heaven soon sets right all other matters!
+ - Each life unfulfilled, you see; It hangs still, patchy and scrappy: We have not sighed deep, laughed free, Starved, feasted, despaired, – been happy.
+ - Let’s contend no more, Love, Strive nor weep: All be as before Love, – Only sleep.
+ - God is seen God In the star, in the stone, in the flesh, in the soul and the clod.
+ - I judge people by what they might be, – not are, nor will be.
+ - What a name! Was it love or praise? Speech half-asleep or song half-awake? I must learn Spanish, one of these days, Only for that slow sweet name’s sake.
+ - Rejoice that man is hurled, From change to change unceasingly, His soul’s wings never furled!
+ - Would you have your songs endure? Build on the human heart.
+ - I count life just a stuff To try the soul’s strength on.
+ - Never brag, never bluster, never blush.
+ - Imperfection means perfection hid.
+ - Desire joy and thank God for it. Renounce it, if need be, for other’s sake. That’s joy beyond joy.
+ - O lyric Love, half angel and half bird. And all a wonder and a wild desire.
+ - Boot, saddle, to horse, and away!
+ - I have lived, And seen God’s hand thro a life time, And all was for the best.
+ - Genius has somewhat of the infantine; but of the childish not a touch or taint.
+ - That we devote ourselves to God, is seen In living just as though no God there were.
+ - What’s a man’s age? He must hurry more, that’s all; Cram in a day, what his youth took a year to hold.
+ - Hand Grasps at hand, eye lights eye in good friendship, And great hearts expand And grow one in the sense of this world’s life.
+ - The sad rhyme of the men who proudly clung To their first fault, and withered in their pride.
+ - Praise is deeper than the lips.
+ - Man partly is and wholly hopes to be.
+ - Never the time and the place And the loved one all together.
+ - If all the world is a stage and life is just a play upon it, get me two seats in the stalls.
+ - Who hears music, feels his solitude Peopled at once.
+ - Tis Man’s to explore up and down, inch by inch, with the taper his reason.
+ - Women hate a debt as men a gift.
+ - Oh, to be in England now that April’s there.
+ - He guides me and the bird. In His good time!
+ - Sorrow, the heart must bear, Sits in the home of each, conspicuous there. Many a circumstance, at least, Touches the very breast. For those Whom any sent away, – he knows: And in the live man’s stead, Armor and ashes reach The house of each.
+ - It’s wiser being good than bad; It’s safer being meek than fierce: It’s fitter being sane than mad.
+ - Earth being so good, would heaven seem best?
+ - The candid incline to surmise of late that the Christian faith proves false.
+ - Progress is The law of life: man is not Man as yet.
+ - No work begun shall ever pause for death.
+ - Go practice if you please with men and women: leave a child alone for Christ’s particular love’s sake!
+ - From the sprinkled isles, Lily on lily, that o’erlace the sea.
+ - Is your love for the Lord sufficient to give all your time and talents to his work?
+ - Might she have loved me? just as well She might have hated, who can tell!
+ - Shakespeare was of us, Milton was of us, Burns, Shelley, were with us. They watch from their graves!
+ - Unless you can love, as the angels may, With the breadth of heaven betwixt you; Unless you can dream that his faith is fast, Through behoving and unbeloving; Unless you can die when the dream is past- Oh, never call it loving!
+ - Why stay on the earth except to grow.
+ - White shall not neutralize the black, nor good compensate bad in man, absolve him so; life’s business being just the terrible choice.
+ - Who knows most, doubts most; entertaining hope means recognizing fear.
+ - The moment eternal – just that and no more – When ecstasy’s utmost we clutch at the core While cheeks burn, arms open, eyes shut, and lips meet!
+ - In this world, who can do a thing, will not; And who would do it, cannot, I perceive: Yet the will’s somewhat – somewhat, too, the power – And thus we half-men struggle.
+ - How very hard it is to be a Christian!
+ - What’s come to perfection perishes. Things learned on earth we shall practice in heaven; Works done least rapidly Art most cherishes.
+ - Graved inside of it, “Italy”.
+ - My care is for myself; Myself am whole and sole reality.
+ - One may do whatever one likes. In art, the only thing is, to make sure that one does like it.
+ - Smiling the boy fell dead.
+ - Only I discern Infinite passion, and the pain Of finite hearts that yearn.
+ - A face to lose youth for, to occupy age With the dream of, meet death with.
+ - Let friend trust friends, and love demand love’s like.
+ - Any nose may ravage with impunity a rose.
+ - Inscribe all human effort with one word, artistry’s haunting curse, the Incomplete!
+ - This could but have happened once,- And we missed it, lost it forever.
+ - Most progress is most failure.
+ - The peerless cup afloat Of the lake-lily is an urn some nymph Swims bearing high above her head.
+ - There shall never be one lost good! What was, shall live as before; The evil is null, is nought, is silence implying sound; What was good shall be good, with for evil so much good more; On the earth the broken arcs; in the heaven, a perfect round.
+ - He who did well in war just earns the right, To begin doing well in peace.
+ - There are those who believe something, and therefore will tolerate nothing; and on the other hand, those who tolerate everything, because they believe nothing.
+ - Earth changes, but thy soul and God stand sure.
+ - The past is gained, secure, and on record.
+ - Over my head his arm he flung, Against the world.
+ - Once more on my adventure brave and new.
+ - Faultless to a fault.
+ - Make us happy and you make us good.
+ - All poetry is difficult to read – The sense of it anyhow.
+ - Death was past, life not come: so he waited.
+ - We mortals cross the ocean of this world Each in his average cabin of a life; The bests not big, the worst yields elbowroom.
+ - How good is life, the mere living!
+ - The devil, that old stager, who leads downward, perhaps, but fiddles all the way!
+ - If two lives join, there is oft a scar. They are one and one, with a shadowy third; One near one is too far.
+ - Pleasure must succeed to pleasure, else past pleasure turns to pain.
+ - I show you doubt, to prove that faith exists.
+ - O world, as God has made it! All is beauty.
+ - In heaven I yearn for knowledge, account all else inanity; On earth I confess an itch for the praise of fools – that’s vanity.
+ - I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.
+ - Tis looking downward makes one dizzy.
+ - But God has a few of us to whom he whispers in the ear; The rest may reason and welcome; ’tis we musicians know.
+ - When I love most, love is disguised. In hate; and when hate is surprised, in love, then I hate most.
+ - Mid the sharp, short emerald wheat, scarce risen three fingers well, The wild tulip at the end of its tube, blows out its great red bell, Like a thin clear bubble of blood, for the children to pick and sell.
+ - T’was a thief said the last kind word to Christ. Christ took the kindness and forgave the theft.
+ - The sea heaves up, hangs loaded o’er the land, Breaks there, and buries its tumultuous strength.
+ - Man seeks his own good at the whole world’s cost.
+ - The great beacon light God sets in all, the conscience of each bosom.
+ - Say not “a small event!” Why “small”? Costs it more pain that this ye call A “great event” should come to pass From that? Untwine me from the mass Of deeds which make up life, one deed Power shall fall short in or exceed!
+ - What I aspired to be and was not, comforts me.
+ - There’s a new tribunal now higher than God’s -The educated man’s!
+ - The curious crime, the fine Felicity and flower of wickedness.
+ - One wise man’s verdict outweighs all the fools’.
+ - Into the street the piper stepped, Smiling first a little smile As if he knew what magic slept In his quiet pipe the while. And the piper advanced And the children followed.
+ - A lion may die of an ass’s kick.
+ - Still more labyrinthine buds the rose.
+ - God’s justice, tardy though it prove perchance, Rests never on the track until it reach Delinquency.
+ - Strike when thou wilt, the hour of rest, but let my last days be my best.
+ - Oh never star Was lost here but it rose afar.
+ - What of soul was left, I wonder, when the kissing had to stop?
+ - To me at least was never evening yet, but seemed far beautifuller than its day.
+ - No! let me taste the whole of it, fare like my peers, The heroes of old, Bear the brunt, in a minute pay glad life’s arrears Of pain, darkness and cold.
+ - Sing, riding ’s a joy! For me I ride.
+ - Every one soon or late comes round by Rome.
+ - So free we seem, so fettered we are!
+ - God is the perfect poet.
+ - All’s love, yet all’s law.
+ - At last awake from life, that insane dream we take for waking now.
+ - There are three ways of learning golf: by study, which is the most wearisome; by imitation, which is the most fallacious; and by experience, which is the most bitter.
+ - Where the apple reddens never pry – lest we lose our Edens, Eve and I.
+ - But there are times when patience proves at fault.
+ - I know a mount, the gracious Sun perceives First when he visits, last, too, when he leaves The world; and, vainly favored, it repays The day-long glory of his steadfast gaze By no change of its large calm front of snow.
+ - As is your sort of mind, So is your sort of search: You will find what you desire.
+ - When pain ends, gain ends too.
+ - I know what I want and what I might gain, and yet, how profitless to know.
+ - O woman-country! wooed not wed, Loved all the more by earth’s male-lands, Laid to their hearts instead.
+ - Of power does Man possess no particle: Of knowledge-just so much as show that still It ends in ignorance on every side...
+ - A people is but the attempt of many To rise to the completer life of one; And those who live as models for the mass Are singly of more value than they all.
+ - Mothers, wives and maids, These be the tools with which priests manage men.
+ - Lost, lost! one moment knelled the woe of years.
+ - Be sure that God Ne’er dooms to waste the strength he deigns impart.
+ - And inasmuch as feeling, the East’s gift, Is quick and transient,- comes, and lo! is gone, While Northern thought is slow and durable.
+ - Heart, fear nothing, for, heart, thou shalt find her- Next time, herself!-not the trouble behind her.
+ - All June I bound the rose in sheaves, Now, rose by rose, I strip the leaves.
+ - But facts are facts and flinch not.
+ - There is no truer truth obtainable by Man than comes of music.
+ - In God’s good time, Which does not always fall on Saturday When the world looks for wages.
+ - Poetry, like love, is something we never truly say goodbye to.
+ - Day! Faster and more fast. O’er night’s brim, day boils at last.
+ - A man in armor is his armor’s slave.
+ - Time’swheelsrunsbackor stops: Potterand clayendure.
+ - Though Rome’s gross yoke Drops off, no more to be endured, Her teaching is not so obscured By errors and perversities, That no truth shines athwart the lies.
+ - They are perfect; how else?-they shall never change: We are faulty; why not?-we have time in store.
+ - And gain is gain, however small.
+ - Thou art my single day, God lends to leaven What were all earth else, with a feel of heaven.
+ - Other heights in other lives, God willing.
+ - Why comes temptation but for man to meet And master and make crouch beneath his foot, And so be pedestaled in triumph?
+ - The body sprang At once to the height, and stayed; but the soul,-no!
+ - Look not down but up!
+ - All service is the same with God.
+ - As if true pride Were not also humble!
+ - The trouble that most of us find with the modern matched sets of clubs is that they don’t really seem to know any more about the game than the old ones did.
+ - Talent should minister to genius.
+ - And I have written three books on the soul, Proving absurd all written hitherto, And putting us to ignorance again.
+ - Can we love but on condition that the thing we love must die?
+ - Believeth with the life, the pain shall stop.
+ - Sappho survives, because we sing her songs; And Eschylus, because we read his plays!
+ - Earth is crammed with heavens.
+ - Death: the grand perhaps.
+ - Needs there groan a world in anguish just to teach us sympathy?
+ - Truth that peeps Over the glass’s edge when dinner’s done.
+ - Since there my past life lies, why alter it?
+ - The heavens and earth stay as they were; my heart Beats as it beat: the truth remains the truth.
+ - Lose who may-I still can say, Those who win heaven, blest are they!
+ - The best way to excape his ire Is, not to seem too happy.
+ - Truth is truth howe’er it strike.
+ - Thought is the soul of act.
+ - Twere too absurd to slight For the hereafter the todays delight!
+ - In the first is the last, in thy will is my power to believe.
+ - Lofty designs must close in like effects.
+ - In the morning of the world, When earth was nigher heaven than now.
+ - That great brow And the spirit-small hand propping it.
+ - The lie was dead And damned, and truth stood up instead.
+ - But little do or can the best of us: That little is achieved through Liberty.
+ - Fair or foul the lot apportioned life on earth, we bear alike.
+ - Silence ’tis awe decrees.
+ - You should not take a fellow eight years old and make him swear to never kiss the girls.
+ - What? Was man made a wheel-work to wind up, And be discharged, and straight wound up anew? No! grown, his growth lasts; taught, he ne’er forgets: May learn a thousand things, not twice the same.
+ - It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.
+ - I do what many dream of, all their lives.
+ - Was there nought better than to enjoy? No feat which, done, would make time break, And let us pent-up creatures through Into eternity, our due? No forcing earth teach heaven’s employ?
+ - Be sure they sleep not whom God needs.
+ - For I say this is death and the sole death,- When a man’s loss comes to him from his gain, Darkness from light, from knowledge ignorance, And lack of love from love made manifest.
+ - The only fault’s with time; All men become good creatures: but so slow!
+ - There is nothing so unpardonable as to consent to a senseless, aimless, purposeless life.
+
+268 quotes

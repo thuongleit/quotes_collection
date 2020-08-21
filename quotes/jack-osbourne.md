@@ -1,0 +1,22 @@
+ - I’m an ass-kicking fat kid.
+ - I’d have to say that Muay Thai is something special. It’s really demanding and it’s becoming popular all around the world.
+ - As long as I know my head’s in the right place, my feet are on the ground, I think I’ll be fine.
+ - You cant take good health for granted.
+ - I had my group of friends, you know, like my real group of friends, and then I had, like, party friends.
+ - I’d read things, like people criticizing me. But no one likes to read stuff about that, and probably the main thing that was getting to me was me mum’s illness.
+ - Well, all I can say is, it’s a day-by-day program, and so I’m very worried about relapsing, but I don’t know. I don’t want to use. I don’t want to go back to that place because nothing good came of it. It was super dark; it’s not nice.
+ - It’s been real weird. It wasn’t how I expected my life to turn out. Especially, mainly pertaining to the show. It never crossed my mind that one day I’m gonna be big and famous and have my own TV show, you know?
+ - There’s people outside our house; you get followed by photographers; you can’t go out and have a cup of coffee with a friend without someone coming up to you.
+ - Kelly, there are people in Somalia who would die for a banana.
+ - Just know this, if that day does come where I do win this mirrorball, know that I didn’t just win it for me, but I won it for all of us with MS.
+ - I’m totally grateful for the fans my family has and I have; they gave me a lot of support when I was in treatment. But it was just odd, you know? It’s stressful. Just the whole fact of being someone in the public eye.
+ - Diet is a big thing. I am a firm believer in you are what you eat. I juice a lot, I try and stick to a Paleo Diet. At its core, I look at MS as inflammation, so I try and eliminate foods that cause inflammation: dairy, gluten, grains.
+ - I took a bottle of pills. I’d been in Europe and I had a lot of absinthe and I was just drinking and drinking, trying to, you know, just shut my body down.
+ - For a while I was suicidal and I tried to kill myself. I think I should have died about four times.
+ - I’m real clear, you know? There’s no fogginess.
+ - I don’t want to come off like the jealous brother who wasn’t getting the attention, but it was like no one was really into me anyway. I wasn’t really a priority.
+ - I’m going to get you a broken alarm clock so you’ll get up in the morning.
+ - I have a tendency to really stuff things. I don’t really express, you know? Like, express certain feelings and stuff.
+ - Where I felt comfortable was being the one that everyone liked to party with. And it was kind of the way I could fit in.
+
+20 quotes

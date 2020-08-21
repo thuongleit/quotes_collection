@@ -1,0 +1,26 @@
+ - Play by the rules, but be ferocious.
+ - Make history or be a part of it.
+ - Dream audaciously. Have the courage to fail forward. Act with urgency.
+ - Dare to take chances, lest you leave your talent buried in the ground.
+ - It’s alright to be Goliath but always act like David.
+ - The trouble in America is not that we are making too many mistakes, but that we are making too few.
+ - Nike is a marketing-oriented company, and the product is our most important marketing tool.
+ - Perception can be changed.
+ - It is possible to tell a customer “no”, and have the customer thank you for doing it.
+ - There is an immutable conflict at work in life and in business, a constant battle between peace and chaos. Neither can be mastered, but both can be influenced. How you go about that is the key to success.
+ - A brand is something that has a clear-cut identity among consumers, which a company creates by sending out a clear, consistent message over a period of years until it achieves a critical mass of marketing.
+ - I’m Phil Knight, and I don’t believe in advertising.
+ - I don’t consider myself enigmatic, but I don’t spend a lot of time thinking about my public persona.
+ - Michael Jordan and Tiger Woods are really part of a very big advertising program, and the fact that they make so much money is because the markets have dictated that they get that money, and the fact that they endorse our products allows us to sell more products and create more jobs.
+ - You can’t explain much in 60 seconds, but when you show Michael Jordan, you don’t have to. It’s that simple.
+ - My job is to listen to ideas, maybe cook up a few of my own, and make decisions based on what’s good for the shareholders and for the company.
+ - We used to think that everything started in the lab. Now we realize that everything spins off the consumer.
+ - We wanted Nike to be the world’s best sports and fitness company. Once you say that, you have a focus. You don’t end up making wing tips or sponsoring the next Rolling Stones world tour.
+ - I still get real nervous when I go in front of more than two people.
+ - It doesn’t matter how many people you offend, as long as you’re getting your message to your consumers. I say to those people who do not want to offend anybody: You are going to have a very, very difficult time having meaningful advertising.
+ - I truly believe the American consumer doesn’t want to buy products made under abusive conditions.
+ - Sports is like rock ‘n’ roll. Both are dominant cultural forces, both speak an international language, and both are all about emotions.
+ - Meeting sports athletes that are the best in the world is a thrill to this day.
+ - Up until the time I was 14 years old, I was sure that I was going to be a big-league baseball player. But that dream came to a rude awakening when I got cut from my high school baseball team.
+
+24 quotes

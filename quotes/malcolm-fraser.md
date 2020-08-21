@@ -1,0 +1,22 @@
+ - Life wasn’t meant to be easy.
+ - Last year the National Sorry Day Committee consulted with stolen generations people in every State and Territory, and concluded that programmes set up in response to the Bringing Them Home Report are reaching only a small fraction of those they are intended to help.
+ - There are no quick fixes to Indigenous poverty and social disaster.
+ - Reconciliation requires changes of heart and spirit, as well as social and economic change. It requires symbolic as well as practical action.
+ - We are seeing healing among the stolen generations, and initiatives which are enabling Indigenous people to make their distinctive contribution to our national life.
+ - Over 120 Aboriginal communities run their own health services – some have been doing so for 30 years. They struggle with difficult medical problems. They also try to deal with counselling, stolen generations issues, family relationships, violence, suicide prevention.
+ - Solutions will not be found while Indigenous people are treated as victims for whom someone else must find solutions.
+ - Yet there are thousands of Indigenous people searching for family members.
+ - We are lagging far behind comparable countries in overcoming the disadvantages Indigenous people face.
+ - The great task of statesmanship is to apply past lessons to new situations, to draw correct analogies to understand and act upon present forces, to recognise the need for change...
+ - Sorry Day falls on the eve of Reconciliation Week, giving us the chance to ask whether we are making progress in the wider challenge of reconciling Indigenous and other Australians.
+ - People die because they find living too painful.
+ - Genocide involves the attempt to achieve the disappearance of a group by whatever means. It does not have to be violent, it could be a combination of policies that would lead to a certain group dying out.
+ - Health economists have estimated that an injection of $250 million per year in Indigenous clinical care, and $50 million in preventative care, is required to provide services at the same level as for any other group with the health conditions of Indigenous Australians.
+ - I think the climate is too important to say we are going to wait until all our economic woes are over before we act effectively.
+ - I want to catch Mr Whitlam with his pants down.
+ - In the last twelve years, we have come some distance towards reconciliation and the breaking down of disadvantage. Let us take encouragement from what has been achieved and set our minds and hearts to end the remaining roadblocks.
+ - Even Australians who take a very, very hard line about asylum seekers – and unfortunately there are more than I would like to think – are probably a bit uncomfortable with the kind of treatment that has been meted out to children in detention by the Australian Government, in their name.
+ - Maoris now own over half the commercial fishing industry in New Zealand.
+ - Three years ago the Government announced the creation of Reconciliation Place, and said that it would include a memorial to those removed from their families. However, they refused to include any of those who were removed in the design of their own memorial.
+
+20 quotes

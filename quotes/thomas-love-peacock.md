@@ -1,0 +1,24 @@
+ - The waste of plenty is the resource of scarcity.
+ - I never failed to convince an audience that the best thing they could do was to go away.
+ - Not drunk is he who from the floor – Can rise alone and still drink more; But drunk is They, who prostrate lies, Without the power to drink or rise.
+ - Clouds on clouds, in volumes driven, curtain round the vault of heaven.
+ - But though first love’s impassioned blindness Has passed away in colder light, I still have thought of you with kindness, And shall do, till our last goodnight. The ever-rolling silent hours Will bring a time we shall not know, When our young days of gathering flowers Will be an hundred years ago.
+ - My thoughts by night are often filled With visions false as fair: For in the past alone, I build My castles in the air.
+ - He kept at true good humor’s mark The social flow of pleasure’s tide: He never made a brow look dark, Nor caused a tear, but when he died.
+ - I like the immaterial world. I like to live among thoughts and images of the past and the possible, and even of the impossible, now and then.
+ - Laughter is pleasant, but the exertion at my age is too much for me.
+ - The mountain sheep are sweeter, But the valley sheep are fatter. We therefore deemed it meeter To carry off the latter.
+ - Marriage may often be a stormy lake, but celibacy is almost always a muddy horsepond.
+ - They have poisoned the Thames and killed the fish in the river. A little further development of the same wisdom and science will complete the poisoning of the air, and kill the dwellers on the banks. I almost think it is the destiny of science to exterminate the human race.
+ - The highest wisdom and the highest genius have been invariably accompanied with cheerfulness. We have sufficient proofs on record that Shakespeare and Socrates were the most festive companions.
+ - How troublesome is day! It calls us from our sleep away; It bids us from our pleasant dreams awake, And sends us forth to keep or break Our promises to pay. How troublesome is day!
+ - When Scythrop grew up, he was sent, as usual, to a public school, where a little learning was painfully beaten into him, and from thence to the university, where it was carefully taken out of him.
+ - A book that furnishes no quotations is no book – it is a plaything.
+ - Tea, late dinners and the French Revolution. I cannot exactly see the connection of ideas.
+ - The critic does his utmost to blight genius in his infancy.
+ - Sir, I have quarrelled with my wife; and a man who has quarrelled with his wife is absolved from all duty to his country.
+ - I almost think it is the ultimate destiny of science to exterminate the human race.
+ - Names are changed more readily than doctrines, and doctrines more readily than ceremonies.
+ - Nothing can be more obvious than that all animals were created solely and exclusively for the use of man.
+
+22 quotes

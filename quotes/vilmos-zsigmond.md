@@ -1,0 +1,59 @@
+ - You can’t just stick with what you know, you have to evolve.
+ - Mexican cinematographers Gabriel Figueroa and Emilio Fernandez were students of both Sergei Eisenstein and Toland. Their exteriors and lighting were gorgeous. And the films Ingmar Bergman did with Sven Nykvist were exceptional.
+ - As the cinematographer is usually more visual than the director is and full cooperation is really the answer and to make a great film, you need a good director and you need a good cinematographer.
+ - In Slumdog Millionaire when you are immersed in the point of view of children in the slum and the bustle of the city, the handheld camerawork is amazing. A handheld camera is perfect for establishing point-of-view and for instilling the feeling that you are there.
+ - When I do a still picture, I’m doing it all by myself with no help. I’m designing everything. I am my own art director. I’m doing everything. I’m directing, editing, whatever.
+ - If you use hand-held techniques just to make the film stylish I think it’s wrong.
+ - I shot a lot of commercials and sometimes I enjoy the commercial shooting and sometimes I really hate it, but in thirty seconds or one minute, you can make some remarkable work shooting in one or two or three days.
+ - Technology has a great deal to do with it. The Panaflex camera was a big breakthrough when it came along; it changed everything, because now you could shoot from the perspective of a person riding in the backseat of a car.
+ - I’m always looking in the lighting to tell the story in a different way than it actually looks in real life because it’s, for me, more contrast sometimes has to mean it’s softer than normal.
+ - The best way to know when there’s good lighting is when you don’t notice it.
+ - Each story has a different approach for me and I try to work with lighting that will tell you visually the story better than if it was shot in available light.
+ - I always try to tell the story the best possible way. I create the mood for each scene in a way that the audience feels that they are right there with me and they feel actually in the mood that was right for the scene.
+ - You make a film for a million dollars and then it costs $10 million to sell it. That’s the problem at the moment with independent filmmaking: You can make it cheap and then there’s no money to market it.
+ - I like to say that lighting is about taking the light away. I often like to use the shadows more than the light.
+ - I don’t think there is any advantage to digital unless it’s in a case like Slumdog Millionaire, where you have to get a shot and a big bulky film camera is out of the question.
+ - There is something missing in a lot of digital filmmaking, something I call “poetic reality.” That’s something you see played out in film noir, where the technique establishes the mood.
+ - There are, of course, many, many, many good cinematographers and unfortunately they don’t work as much as many of those people who do those crazy, stupid movies.
+ - For me, movies should be visual. If you want dialogue, you should read a book.
+ - Telling the story with only a few shots, I love that style. It makes you feel like you’re part of the action, part of the story. It reminds me of the theater, where one act is basically like one long shot. It almost makes you forget that you’re seeing a movie.
+ - I love the Dutch impressionists – Vermeer, Rembrandt. What they were able to do with light was astonishing. As for photographers, I think mostly of the Hungarians: Robert Capa, Laszlo Moholy-Nagy, Jozsef Pesci. In fact, I have one of his photographs hanging in my house.
+ - I should mention Vittorio Storaro, who was Bernardo Bertolucci’s cinematographer. You watch those films and they are exceptional.
+ - There are many, many different kinds of movies and directors and styles. I don’t mind that a movie looks like a movie.
+ - I like to work with talented people, I must say that. That’s my weakness. I really like to work with good directors. That doesn’t mean I don’t like to work with starting up young directors, that’s fun also.
+ - Even in manipulating the images, I would like to do my dailies in a digital way because you can do so many things in that stage that I cannot do in real photography.
+ - I don’t like to be in front of the camera – my place is behind the camera.
+ - In a period piece, particularly a fantasy, the lighting is your own choice, the lenses are your own choice. It’s really a great thing for a cinematographer to do. Everything is open for you. You can even be more creative and you can use more shadows than usual.
+ - Sometimes the shots serve as homages to other movies and other directors, like Hitchcock.
+ - I hope that film is going to stay as an artform and that people won’t forget that there are good movies also to be made.
+ - I think too many film students in America are losing the artistry and not learning lighting the right way.
+ - I like the film camera better because the film is still one hundred times better than any digital image at the moment. So, there are certain movies that you can’t really do digitally.
+ - If you do not bother to take the time to compose and to light properly, then you end up with something almost less than reality. You end up without the soul, the heart, the art of the moment.
+ - What I would suggest to the young people is to not forget this and don’t try to get assimilated into today’s Hollywood style of movies because I don’t think it’s going to last long.
+ - Spielberg was very young and starting up when we did Sugarland Express and I loved that, but the main thing was that I really loved his talent.
+ - I had never met Woody Allen before Melinda and Melinda. My agent knew the producer of the movie and he suggested that we would work well together and then we did. We had a great time on that film.
+ - I really like to work with people who know a lot, but they also give me space so I can add something to the movie.
+ - Some movies are what I would call murky. Just because it’s murky doesn’t make it artistic. It makes it hard to see.
+ - When you are shooting a movie, you have to collaborate with many, many, many people. First of all, the director with all his own ideas and I can only just help him with that. I cannot change his idea.
+ - I look at a picture like Scarecrow and think, ‘Jesus, how could they have let us make that?’ I mean, if you used technology that old nowadays, it would look like old Hollywood.
+ - These days that wouldn’t happen – waiting for the light to be exactly right. Because it takes time and time is money. And with these big productions with expensive actors, you just don’t have the time to get every shot exactly right.
+ - I’m always looking for directors who are very strong, they have great ideas, but on the other hand, that need help. It means they rely mostly on my eyes.
+ - With television, it’s difficult to do some things. You have to shoot so many minutes a day, so you always have to be prepared or you won’t be able to complete the number of pages that you have scheduled for that day.
+ - I love Woody Allen. He’s very clever, always thinking, and he’s great with actors. He lets actors do what they want to do and occasionally he’ll give them a specific kind of direction.
+ - When we came to America, the movies here needed a “new wave.” European films looked totally different than American movies, which were these lush, glossy pictures with this elaborate production design.
+ - I think that the audience should not be able to tell if it is real or not real – it should be an enhanced version of reality, or an artistic view of reality, that captures not only what is physically there, but what is not visible – the mood.
+ - When I was in Hungary in December I was looking at student films and I could not tell which ones were shot on film and which ones were shot digitally. I think that is because the filmmakers in Europe go to four years of film school and learn the techniques.
+ - There is something more to “reality” than just the tangible. There is also mood, and you cannot skip that.
+ - I love to make movies about young people – young scientists that are inventing things and all the writing they did was very funny and very true.
+ - I think that film is still an artform and it doesn’t really matter if you’re using a digital camera or a film camera.
+ - You always like to be the collaborator. I don’t want to take over the movie, because if I want to do that, I should really become a director because then you have the control of everything, basically. I’m very happy to just be the visual part of it, doing the visual part of the movie.
+ - I am actually retired – yes, I am retired. But I like to work. So I’m retired until someone calls me up to work.
+ - Kubrick was one of those directors who actually did practically everything in his movies. He actually directed, photographed, wrote, lit, edited – everything. A few people can be like that.
+ - I don’t know the American photographers as well, but I admit I love Ansel Adams. His landscapes are so crisp.
+ - When I first came to America there still was Look Magazine and LIFE Magazine, and the photography in those magazines was amazing to look at. They had the best portraits, and their news photography.
+ - I think film is about images. Cinema needs good images. I think that if you don’t have good images, it’s not going to be a good film. I think all films should be really visual.
+ - I’m not really satisfied with the technology today. Using film was so much easier than the digital technology of today. But digital is still at the beginning of what it can be and they’ll be fixing all those problems.
+ - There are a lot of directors out there that don’t like to deal with actors, I think. Many of them have said something like, in the future they will actually manipulate the actors on their computers. But don’t believe all this.
+ - I am not against digital at all.
+
+57 quotes

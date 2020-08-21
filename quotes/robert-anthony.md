@@ -1,0 +1,71 @@
+ - You can only have two things in life, reasons and results. Reasons don’t count.
+ - There are no victims, only volunteers.
+ - When you blame others, you give up your power to change.
+ - The biggest risk in life is not risking.
+ - The best way to escape your problem is to solve it.
+ - The opposite of bravery is not cowardice but conformity.
+ - You should enjoy the present moment because this is all you have. Create for tomorrow, but live in and for today.
+ - Waiting is a trap. There will always be reasons to wait. The truth is, there are only two things in life, reasons and results, and reasons simply don’t count.
+ - Hoping and Wishing are excuses for not Doing.
+ - We fear the things we want the most.
+ - Don’t get locked up into the ultimate goal. Just concentrate on the next step.
+ - If you don’t do the choosing, life will choose for you, and it may not be the choice you want.
+ - Never be afraid to expose a weakness in yourself. Exposing a weakness is the beginning of strength.
+ - Most people would rather be certain they’re miserable, than risk being happy.
+ - There’s a very fine line between anxiety and excitement. If you don’t let anxiety stop you, you can nudge it over the line.
+ - A person who knows who they are is not threatened by the beliefs of others.
+ - Money cannot make you happy, but it can get rid of many of the things that make you unhappy.
+ - Goals don’t start in our brain; they start in our heart.
+ - Desire is transformed into drive when a dream creates a passion for action.
+ - The degree to which you will awaken is in direct proportion to the amount of truth you are willing to accept about yourself.
+ - Moving fast is not the same as going somewhere.
+ - Excuses are your lack of faith in your own power.
+ - The problem with worry is that we attract the very thing we are trying to avoid. We live a self-fulfilling prophecy. Life keeps its agreement with us through our beliefs, because whatever we think about, we bring about. Life is like a mirror. It reflects back whatever image we present to it.
+ - We cannot change past events, no matter how painful, but we can always intend how we ‘feel’ about them and heal ourselves.
+ - Overcoming fear and worry can be accomplished by living a day at a time or even a moment at a time. Your worries will be cut down to.
+ - Fear is a destructive emotion that can deal a fatal blow to any attempt on your part to build total self-confidence. If you allow your fears to run your life, it will be impossible to create the life you truly desire.
+ - Low self-confidence is simply a problem of Awareness. Once you are aware of the Truth about yourself, you will be able to understand why you are the way you are and, most importantly, learn to love and accept yourself.
+ - Nothing outside of ourselves will ever make us happy, because happiness is an inside-out experience.
+ - Our consciousness, our ideas, our frame of reference and our belief system determine whether we go to the river of life with a teaspoon, a cup, a bucket or a barrel.
+ - If you don’t start, it is certain you won’t arrive.
+ - The one who loves least controls the relationship.
+ - When your ship comes in, make sure you are willing to unload it.
+ - If we think it takes a lot of effort and hard work to get what we want, then our life is going to be about struggle.
+ - Are you always trying to get somewhere other than where you are so that you can finally be happy? The truth is that all unhappiness is caused by denial of the present.
+ - The present moment is that one point where everything comes together.
+ - You can change anything about yourself quite quickly. All you have to do is give up the belief system that says that it takes a long time to change.
+ - We insist that society should conform to our own subjective illusion of reality.
+ - Using affirmations on a daily basis is one of the easiest things we can do to change our lives.
+ - You were placed on this earth to create, not to compete.
+ - If you are not learning, no one will ever let you down.
+ - The more successful you are, the more mistakes you will make. People who don’t do anything, don’t make mistakes.
+ - Go after what you want, but enjoy the trip.
+ - When you understand how the mind-brain functions together, you know that faith, which is believing before seeing, is the natural process of creation.
+ - You will never let yourself have more money than you think you deserve.
+ - Do something whatever you do, it will be better than sitting and hoping things will improve.
+ - If you want to know what your true beliefs are- take a look at your actions.
+ - Knowing is higher than believing. Knowing means that there is NO doubt.
+ - Belief is the cornerstone of all the great achievements since the beginning of time.
+ - If you let other people do it for you, they will do it to you.
+ - Affirmation literally means to validate or confirm. So when we think a thought over and over again, we are validating or confirming it as the truth.
+ - It’s more work to create poverty, disease and disharmony than it is to create health, harmony and abundance, because perfect health, harmony and abundance are the natural order of things.
+ - We will always be attracted to the situation or person that we need, in any given moment, in order to learn whatever lesson that we need to learn. The most important thing is to learn the lesson quickly, let go, and then move on.
+ - Whether your beliefs are true or totally insane, if you accept them, then that’s what your life will be about.
+ - You will draw to yourself that which you most persistently think about.
+ - When we think the universe moves. When we think we actually cause things to happen.
+ - The thing you resist is the thing you need to hear the most.
+ - Each one of us has the ability to play the game of life with balance, harmony and joy, but we need to know the rules and the principles.
+ - You will learn and grow according to the nature and consequences of your actions.
+ - If your goal has no inherent reward, you do not have a goal.
+ - Pronounce your limitations vigorously enough and they’re yours.
+ - Everything you experience in your life is invited, attracted and created by you.
+ - We can only receive what our minds are capable of accepting.
+ - The understanding of fear cures fear.
+ - Wishing is a goal without energy behind it.
+ - You are walking, talking evidence of your beliefs.
+ - Worry comes from the belief you are powerless.
+ - All our experiences have led us to believe certain things about ourselves. Whether these beliefs are true or not really doesn’t matter because if we accept them as true, then they are true for us.
+ - Motivation describes your attitude when you would rather do one thing more than another at a particular time.
+ - Face your worry and see it as an illusion. It cannot exist unless you give it power and give it life.
+
+69 quotes

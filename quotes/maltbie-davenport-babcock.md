@@ -1,0 +1,36 @@
+ - This is my Father’s world: O let me ne’er forget That though the wrong Seems oft so strong, God is the Ruler yet.
+ - Be strong! We are not here to play, to dream, to drift; We have hard work to do and loads to lift; Shun not the struggle-face it; ’tis God’s gift.
+ - Good habits are not made on birthdays, nor Christian character at the new year. The workshop of character is everyday life. The uneventful and commonplace hour is where the battle is lost or won.
+ - Better to lose count while naming your blessings than to lose your blessings to counting your troubles.
+ - Life is what we are alive to.
+ - Don’t let the good things of life rob you of the best things!
+ - Opportunities do not come with their values stamped upon them.
+ - With time and patience, the mulberry leaf becomes satin.
+ - Our prayers must mean something to us if they are to mean anything to God.
+ - Be strong! It matters not how deep entrenched the wrong, how hard the battle goes, the day how long, faint not, fight on! Tomorrow comes the song.
+ - Salvation is not putting a man into heaven but putting heaven into a man.
+ - Pay little attention to discouragement as possible. Plough ahead as a steamer does, rough or smooth – rain or shine. To carry your cargo and make your port is the point.
+ - The workshop of character is everyday life.
+ - Life is what we are alive to. It is not length, but breadth. To be alive only to appetite, pleasure, pride, money-making, and not to goodness and kindness, purity and love, history, poetry, music, flowers, stars, God and eternal hopes, it is to be all but dead.
+ - Loyalty to God is alone fundamental. Feelings, words, deeds, must be beads strung on the string of duty.
+ - God be thanked for that good and perfect gift, the gift unspeakable: His life, His love, His very self in Jesus Christ.
+ - Present suffering is not enjoyable, but life would be worth little without it. The difference between iron and steel is fire, but steel is worth all it costs.
+ - Business is religion, and religion is business. The man who does not make a business of his religion has a religious life of no force, and the man who does not make a religion of his business has a business life of no character.
+ - If we show the Lord’s death at Communion, we must show the Lord’s life in the world. If it is a Eucharist on Sunday, it must prove on Monday that it was also a Sacrament.
+ - If you can help anybody even a little, be glad; up the steps of usefulness and kindness, God will lead you on to happiness and friendship.
+ - Your love has a broken wing if it cannot fly across the sea.
+ - If you can help anybody even a little, be glad.
+ - May death be no more than the bell that sounds when school is over, and going home, may I find that I had laid up my treasure in the right place.
+ - The kindness of Christmas is the kindness of Christ. To know that God so loved us as to give us His Son for our dearest Brother, has brought human affection to its highest tide on the day of that Brother’s birth. If God so loved us, how can we help loving one another?
+ - Success is generally due to holding on, and failure to letting go.
+ - I agree with you that the communion with the invisible saints must be more of a dream than a reality. But we have a right to dream dreams, if they are not contradicted by the evident laws of God’s word, or God’s world.
+ - One of the commonest mistakes and one of the costliest is thinking that success is due to some genius, some magic – something or other which we do not possess. Success is generally due to holding on, and failure to letting go.
+ - You are not responsible for the disposition you are born with, but you are responsible for the one you die with.
+ - A day dawns, quite like other days; in it, a single hour comes, quite like other hours; but in that day and in that hour the chance of a lifetime faces us.
+ - The Christian life that is joyless is a discredit to God and a disgrace to itself.
+ - We should care, not so much about being recognized, as about being worth recognition.
+ - To have failed is to have striven, to have striven is to have grown.
+ - Remember to think of your departed mother always as living, just away in another room of our Father’s house.
+ - Jesus does not want us to say, dead, for, He said, all live unto Him, though they seem dead to us.
+
+34 quotes

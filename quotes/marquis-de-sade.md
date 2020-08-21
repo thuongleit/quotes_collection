@@ -1,0 +1,115 @@
+ - We monsters are necessary to nature also.
+ - Sex should be a perfect balance of pain and pleasure. Without that symmetry, sex becomes a routine rather than an indulgence.
+ - Sex without pain is like food without taste.
+ - Your body is the church where Nature asks to be reverenced.
+ - Love Is Stronger Than Pride.
+ - It is always by way of pain one arrives at pleasure.
+ - I don’t know what the heart is, not I: I only use the word to denote the mind’s frailties.
+ - I’ve been to Hell. You’ve only read about it.
+ - Are your convictions so fragile that mine cannot stand in opposition to them? Is your God so illusory that the presence of my Devil reveals his insufficiency?
+ - If it is the dirty element that gives pleasure to the act of lust, then the dirtier it is, the more pleasurable it is bound to be.
+ - Either kill me or take me as I am, because I’ll be damned if I ever change.
+ - Destruction, hence, like creation, is one of Nature’s mandates.
+ - All universal moral principles are idle fancies.
+ - One must do violence to the object of one’s desire; when it surrenders, the pleasure is greater.
+ - Lycurgus, Numa, Moses, Jesus Christ, Mohammed, all these great rogues, all these great thought-tyrants, knew how to associate the divinities they fabricated with their own boundless ambition.
+ - Don’t have children: they deform women’s bodies and turn into an enemy 20 years later.
+ - In order to know virtue, we must first acquaint ourselves with vice.
+ - And if I were a naughty little boy, the idea is to spank me into good behavior?
+ - Why do you complain of your fate when you could so easily change it?
+ - In an age that is utterly corrupt, the best policy is to do as others do.
+ - Happiness is ideal, it is the work of the imagination.
+ - Sex is as important as eating or drinking and we ought to allow the one appetite to be satisfied with as little restraint or false modesty as the other.
+ - Happiness lies only in that which excites, and the only thing that excites is crime.
+ - Social order at the expense of liberty is hardly a bargain.
+ - Certain souls seem hard because they are capable of strong feelings, and they sometimes go to rather extreme lengths; their apparent unconcern and cruelty are but ways, known only to themselves, of feeling more strongly than others.
+ - I want to be the victim of his errors.
+ - Is it not a strange blindness on our part to teach publicly the techniques of warfare and to reward with medals those who prove to be the most adroit killers?
+ - I’ve already told you: the only way to a woman’s heart is along the path of torment. I know none other as sure.
+ - Crime is the soul of lust. What would pleasure be if it were not accompanied by crime? It is not the object of debauchery that excites us, rather the idea of evil.
+ - Crime is to the passions what nervous fluid is to life: it sustains them, it supplies their strength.
+ - Cruelty, very far from being a vice, is the first sentiment Nature injects in us all.
+ - True happiness lies in the senses, and virtue gratifies none of them.
+ - God strung up his own son like a side of veal. I shudder to think what he would do to me.
+ - No lover, if he be of good faith, and sincere, will deny he would prefer to see his mistress dead than unfaithful.
+ - To judge from the notions expounded by theologians, one must conclude that God created most men simply with a view to crowding hell.
+ - The primary and most beautiful of Nature’s qualities is motion, which agitates her at all times, but this motion is simply a perpetual consequence of crimes, she conserves it by means of crimes only.
+ - My passions, concentrated on a single point, resemble the rays of a sun assembled by a magnifying glass: they immediately set fire to whatever object they find in their way.
+ - The impossibility of outraging nature is the greatest anguish man can know.
+ - Variety, multiplicity are the two most powerful vehicles of lust.
+ - We are no guiltier in following the primative impulses that govern us than is the Nile for her floods or the sea for her waves.
+ - Are not laws dangerous which inhibit the passions? Compare the centuries of anarchy with those of the strongest legalism in any country you like and you will see that it is only when the laws are silent that the greatest actions appear.
+ - The ultimate triumph of philosophy would be to cast light upon the mysterious ways in which Providence moves to achieve the designs it has for man.
+ - I am about to put foward some major ideas; they will be heard and pondered. If not all of them please, surely a few will; in some sort, then, I shall have contributed to the progress of our age, and shall be content.
+ - Nature, who for the perfect maintenance of the laws of her general equilibrium, has sometimes need of vices and sometimes of virtues, inspires now this impulse, now that one, in accordance with what she requires.
+ - Happiness lies neither in vice nor in virtue; but in the manner we appreciate the one and the other, and the choice we make pursuant to our individual organization.
+ - Sexual pleasure is, I agree, a passion to which all others are subordinate but in which they all unite.
+ - My manner of thinking, so you say, cannot be approved. Do you suppose I care? A poor fool indeed is he who adopts a manner of thinking for others!
+ - I have supported my deviations with reasons; I did not stop at mere doubt; I have vanquished, I have uprooted, I have destroyed everything in my heart that might have interfered with my pleasure.
+ - Are wars anything but the means whereby a nation is nourished, whereby it is strengthened, whereby it is buttressed?
+ - The most fortunate of persons is he who has the most means to satisfy his vagaries.
+ - Any enjoyment is weakened when shared.
+ - What you call disorder is nothing else than one of the laws of the order you comprehend not and which you have erroneously named disorder because its effects, though good for Nature, run counter to your convenience or jar your opinions.
+ - There are thorns everywhere, but along the path of vice, roses bloom above them.
+ - Certain souls may seem harsh to others, but it is just a way, beknownst only to them, of caring and feeling more deeply.
+ - Conspiracy! Intrigue! A rapidly thickening plot! Add some bestiality and a lecherous priest and I’d say you have the beginnings of a beautiful novel.
+ - The idea of God is the sole wrong for which I cannot forgive mankind.
+ - Lust’s passion will be served; it demands, it militates, it tyrannizes.
+ - Dread not infanticide; the crime is imaginary: we are always mistress of what we carry in our womb, and we do no more harm in destroying this kind of matter than in evacuating another, by medicines, when we feel the need.
+ - There is no God, Nature sufficeth unto herself; in no wise hath she need of an author.
+ - It is certainly no crime to depict the bizarre ideas that nature inspires.
+ - Conversation, like certain portions of the anatomy, always runs more smoothly when lubricated.
+ - One is never so dangerous when one has no shame, than when one has grown too old to blush.
+ - The primary and most beautiful of nature’s qualities is motion.
+ - Here am I: at one stroke incestuous, adulteress, sodomite, and all that in a girl who only lost her maidenhead today! What progress, my friends with what rapidity I advance along the thorny road of vice!
+ - The completest submissiveness is your lot, and that is all;.
+ - Truth titillates the imagination far less than fiction.
+ - The man who alters his way of thinking to suit others is a fool.
+ - The pleasure of the senses is always regulated in accordance with the imagination. Man can aspire to felicity only by serving all the whims of his imagination.
+ - Never lose sight of the fact that all human felicity lies in man’s imagination, and that he cannot think to attain it unless he heeds all his caprices. The most fortunate of persons is he who has the most means to satisfy his vagaries.
+ - Can we become other than what we are?
+ - No kind of sensation is keener and more active than that of pain its impressions are unmistakable.
+ - Beauty belongs to the sphere of the simple, the ordinary, whilst ugliness is something extraordinary, and there is no question but that every ardent imagination prefers in lubricity, the extraordinary to the commonplace.
+ - It is not my mode of thought that has caused my misfortunes, but the mode of thought of others.
+ - How delicious to corrupt, to stifle all semblances of virtue and religion in that young heart!
+ - The majority of pop stars are complete idiots in every respect.
+ - One weeps not save when one is afraid, and that is why kings are tyrants.
+ - Prejudice is the sole author of infamies: how many acts are so qualified by an opinion forged out of naught but prejudice!
+ - The degradation which characterizes the state into which you plunge him by punishing him pleases, amuses, and delights him. Deep down he enjoys having gone so far as to deserve being treated in such a way.
+ - For mortal men there is but one hell, and that is the folly and wickedness and spite of his fellows; but once his life is over, there’s an end to it: his annihilation is final and entire, of him nothing survives.
+ - Now I beg of you to tell me whether I must love a human being simply because he exists or resembles me and whether for those reasons alone I must suddenly prefer him to myself?
+ - They declaim against the passions without bothering to think that it is from their flame philosophy lights its torch.
+ - Happiness is an abstraction, it is a product of the imagination, it is a way of being moved, which depends entirely on our way of seeing and feeling.
+ - Nature has endowed each of us with a capacity for kindly feelings: let us not squander them on others.
+ - Fear not lest precautions and protective contrivances diminish your pleasure: mystery only adds thereto.
+ - What we are doing here is only the image of what we would like to do.
+ - Do not breed. Nothing gives less pleasure than childbearing. Pregnancies are damaging to health, spoil the figure, wither the charms, and it’s the cloud of uncertainty forever hanging over these events that darkens a husband’s mood.
+ - It is only by enlarging the scope of one’s tastes and one’s fantasies, by sacrificing everything to pleasure, that the unfortunate individual called Man, thrown despite himself into this sad world, can succeed in gathering a few roses among life’s thorns.
+ - Religions are the cradles of despotism.
+ - It requires only two things to win credit for a miracle: a mountebank and a number of silly women.
+ - The reasoning man who scorns the prejudices of simpletons necessarily becomes the enemy of simpletons; he must expect as much, and laugh at the inevitable.
+ - Man’s natural character is to imitate; that of the sensitive man is to resemble as closely as possible the person whom he loves. It is only by imitating the vices of others that I have earned my misfortunes.
+ - All, all is theft, all is unceasing and rigorous competition in nature; the desire to make off with the substance of others is the foremost – the most legitimate – passion nature has bred into us and, without doubt, the most agreeable one.
+ - The more defects a man may have, the older he is, the less lovable, the more resounding his success.
+ - There is no more lively sensation than that of pain; its impressions are certain and dependable, they never deceive as may those of the pleasure women perpetually feign and almost never experience.
+ - What is more immoral than war?
+ - Miserable creatures, thrown for a moment on the surface of this little pile of mud, is it decreed that one half of the flock should be the persecutor of the other? Is it for you, mankind, to pronounce on what is good and what is evil?
+ - She had already allowed her delectable lover to pluck that flower which, so different from the rose to which it is nevertheless sometimes compared, has not the same faculty of being reborn each spring.
+ - The horror of wedlock, the most appalling, the most loathsome of all the bonds humankind has devised for its own discomfort and degradation.
+ - I assumed that everything must yield to me, that the entire universe had to flatter my whims, and that I had the right to satisfy them at will.
+ - Anything beyond the limits and grasp of the human mind is either illusion or futility; and because your god having to be one or the other of the two, in the first instance I should be mad to believe in him, and in the second a fool.
+ - Humane sentiments are baseless, mad, and improper; they are incredibly feeble; never do they withstand the gainsaying passions, never do they resist bare necessity.
+ - Is it not of the imagination that the sharpest pleasures arise?
+ - Nature has not got two voices, you know, one of them condemning all day what the other commands.
+ - Were he supreme, were he mighty, were he just, were he good, this God you tell me about, would it be through enigmas and buffooneries he would wish to teach me to serve and know him?
+ - Nothing we can do outrages Nature directly. Our acts of destruction give her new vigour and feed her energy, but none of our wreckings can weaken her power.
+ - Sensual excess drives out pity in man.
+ - Let not your zeal to share your principles entice you beyond your borders.
+ - There is a kind of pleasure which comes from sacrilege or the profanation of the objects offered us for worship.
+ - Lust is to the other passions what the nervous fluid is to life; it supports them all, lends strength to them all ambition, cruelty, avarice, revenge, are all founded on lust.
+ - Between understanding and faith immediate connections must subsist.
+ - So long as the laws remain such as they are today, employ some discretion: loud opinion forces us to do so; but in privacy and silence let us compensate ourselves for that cruel chastity we are obliged to display in public.
+ - It is not the opinions or the vices of private individuals that are harmful to the State, but rather the behavior of public figures.
+ - You are afraid of the people unrestrained-how ridiculous!
+
+113 quotes

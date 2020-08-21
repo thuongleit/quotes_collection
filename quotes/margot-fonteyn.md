@@ -1,0 +1,22 @@
+ - Great artists are people who find the way to be themselves in their art. Any sort of pretension induces mediocrity in art and life alike.
+ - Take your work seriously, but never yourself.
+ - I explained it when I danced it.
+ - The one important thing I have learned over the years is the difference between taking one’s work seriously and taking one’s self seriously. The first is imperative and the second is disastrous.
+ - Life forms illogical patterns. It is haphazard and full of beauties which I try to catch as they fly by, for who knows whether any of them will ever return?
+ - Traveling carries with it the curse of being at home everywhere and yet nowhere, for wherever one is some part of oneself remains on another continent.
+ - The world of dance is a charmed place. Some people like to inhabit it, others to behold it; either way it is rewarding.
+ - Dancers are both athletes and artists.
+ - Genius is another word for magic, and the whole point of magic is that it is inexplicable.
+ - Ballet is more than a profession – it is a way of life.
+ - Genius is another word for magic.
+ - I have never wanted to live to be old, so old I’d run out of friends or money.
+ - Dancing was something to be taken very seriously when engaged in and otherwise put out of mind.
+ - I’ve found the perfect partner.
+ - The world of dance is a natural world from which civilization has divorced many of us by making it appear remote – something reserved for the few who have a special talent.
+ - Minor things can become moments of great revelation when encountered for the first time.
+ - The essential thing about mothers is that one needs to know that they are there, particularly at that age when, paradoxically, one is trying so hard to break away from parental influence.
+ - Life offstage has sometimes been a wilderness of unpredictables in an unchoreographed world.
+ - I think perhaps I’ve learned to be myself. I have a theory that all artists who would be important – painters and writers – must learn to be themselves. It takes a very long time.
+ - There is no way anything of value can be done without some framework. It might well be that the framework is discarded or the rules opposed; that is not important. What is essential is that they exist so that one knows when one is in opposition to them.
+
+20 quotes

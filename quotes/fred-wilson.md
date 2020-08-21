@@ -1,0 +1,55 @@
+ - A person who is quietly confident makes the best leader.
+ - To see things differently requires you to be wired a little differently.
+ - If you want to create something great and do it faster than the competition, you need to be action oriented.
+ - I think ‘crazy’ is a compliment. I think you make money with people who are crazy.
+ - Not only do you have to put yourself in harms way in service of your country, you have to leave your families at home. It is a great sacrifice.
+ - People already love to play casual games. But when you take a casual game and stick it inside a social network, it becomes way more exciting.
+ - When I see people laughing at ideas and companies we have backed, I smile. It means we are going to make a lot of money on that investment.
+ - I don’t like to talk about myself. I like to talk about stuff that’s happening, stuff that’s going to happen, and the people who are going to make it happen.
+ - Given New York City’s cultural diversity, it has always attracted creative people.
+ - The companies that do the best job on managing a user’s privacy will be the companies that ultimately are the most successful.
+ - Early in a startup, product decisions should be hunch driven. Later on, product decisions should be data driven.
+ - There is a difference between hiring a CEO and turning over control of the business.
+ - If you have an idea that you can’t get out of your head, do a startup. Otherwise join a startup.
+ - I’m really interested in the intersection between reputation, identity, and knowledge.
+ - The fact is that the amount of money startups raise in their seed and Series A rounds is inversely correlated with success.
+ - Not acknowledging that beauty is complex-that’s the problem. I enjoy making it complex for people, because that’s my world.
+ - Investing in management means building communication systems, business processes, feedback, and routines that let you scale the business and team as efficiently as possible.
+ - Being an entrepreneur is hard. Having supportive and caring investors helps.
+ - Marketing is for companies who have sucky products.
+ - When my dad was in Vietnam, we lost a parent for a year. Thank God we didn’t lose a parent for good.
+ - Many artists stick to making and hire a manager to focus on their business. Artists that build websites and mobile apps can do that, too.
+ - It’s not easy for an entrepreneur to find the time to blog. But for those who do it, it is a great tool to communicate with the various stakeholders in their business and build a reputation for thought leadership.
+ - Profiles aren’t journalism.
+ - Venture capitalists are professional money managers. We are provided capital to invest as long as we can return it to our investors with a strong return in a reasonable amount of time. A strong return is three times cash on cash. A reasonable amount of time is ten years max.
+ - I would like to reiterate that I don’t want any profiles of me. I am not newsworthy.
+ - Markets come and go. Good business don’t.
+ - If you have a native monetization system where the atomic unit of content is the ad unit, that scales down all the way to a small screen experience. That’s why Twitter is performing so well on mobile.
+ - All markets have boom and bust cycles, and I think venture capital market has even more exaggerated boom and bust cycles.
+ - Equity capital is expensive. Every time you do a raise, you dilute.
+ - The entire world is now a rival to Silicon Valley. No country, state, region, nor city has a lock on innovation in technology anymore.
+ - Board meetings should not be for the benefit of the board. They should be for the benefit of the CEO and the senior team.
+ - There are so many startups out there raising money. I don’t think this is a bad thing. It’s a good thing. Entrepreneurship is in vogue. Innovators are innovating. Makers are making.
+ - I believe Android will be stronger in the developing world than it is in the developed world.
+ - Don’t try to solve the entire problem on day one.
+ - Ideas that most people derided as ridiculous have produced the best outcomes. Don’t do the obvious thing.
+ - If you want to unleash more creativity in your company, you need to allow for a little contamination. It is the sand in the oyster that creates the pearl.
+ - I’m a free speech bigot. I don’t like censorship; I just don’t think it’s a good thing.
+ - It’s upsetting to me that you have to be a millionaire to invest in your friend’s start-up.
+ - Facebook is not an unstoppable juggernaut. There are a lot of other things people can do on the web.
+ - Most adults I know start their Internet session at Google, and most kids I know start their Internet session at either Facebook or MySpace.
+ - The Internet is a computing platform built on top of core technology. Applied technology is what gets built on top of that: It’s Web services.
+ - Blog-based businesses have lower cost structures and are more ‘authentic,’ and as a result are drawing larger shares of ad budgets.
+ - Startups are rapidly changing systems. If you use an annual review cycle, you aren’t getting feedback at the same pace that you need to adapt and change the business.
+ - Foursquare’s adoption of a game dynamic when it launched is a particularly clever implementation of a social hook.
+ - Money is information, like bits.
+ - I use beauty as a way of helping people to receive difficult or upsetting ideas. The topical issues are merely a vehicle for making one aware of one’s own perceptual shift-which is the real thrill.
+ - I believe the mobile OS market will play out very similarly to Windows and Macintosh, with Android in the role of Windows. And so if you want to be in front of the largest number of users, you need to be on Android.
+ - I get everything that satisfies my soul from bringing together objects that are in the world, manipulating them, working with spatial arrangements, and having things presented in the way I want to see them.
+ - The more entrepreneurs in the world that are getting their ideas financed, the more great companies there are going to be that we can all invest in.
+ - Skyping with your spouse works well enough, but apparently it is hard to get the kids to hang out on Skype for long.
+ - Games are the most social of all things on the web.
+ - Certainly anything that is news or opinion needs to be free on the Web, because the Web is this very fluid medium that is very much driven by links and the flow of visitors through a discussion via links.
+ - Building product is not about having a large team to manage. It is about having a small team with the right people on it.
+
+53 quotes

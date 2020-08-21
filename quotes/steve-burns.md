@@ -1,0 +1,23 @@
+ - The majority of short term trading results are just random. In the long term the money ends up with those that can trade and manage risk.
+ - Much of our trading comes down to a battle between our patience and our impulses.
+ - The best traders I know are also the most humble people I know, coincidence? Or has the market taught them some very valuable lessons?
+ - The best traders are simply slaves to the market’s price action.
+ - The ones who make it, are the ones who manage risk.
+ - Acting on a blue screen is awful.
+ - Please don’t make me sound like a crazy hermit, but I don’t like crowds or noise.
+ - I’m a micro-celebrity, about as small a celebrity as you can be.
+ - I’m not supposed to talk about the snail. The snail is, well, congratulations to whoever noticed it. It’s supposed to be a thing where you gotta look for it in every episode, and it’s there three times in every episode.
+ - Eat as much as you like-just don’t swallow it.
+ - When I was a kid, my mom used to run the vacuum cleaner, and the noise would bother me so much that I would run into the woods to calm down. I feel like that vacuum cleaner has been on since I moved to New York City.
+ - Music is my life – acting’s just a hobby.
+ - I just don’t think it’s true that people can’t do something else after they’ve done something that seems so permanent.
+ - I’m officially near-famous. If you’ve got four year old kids and you’ve got cable, then you’ve got no choice but to know who I am. But if you’re one of my peers – a 26-year old guy who lives in Manhattan – you have no idea who I am. I’m only famous if you’re four.
+ - If we want parents to be discerning about what children are watching then we need to put stuff in there for them to watch, too.
+ - When I was 14 I would pick up my brother’s bass guitar, and I would just pound on it, having no idea how to play it.
+ - Well, my aspirations certainly were not to be in a pre-school show. I mean, it’s certainly nothing that I considered; it’s nothing I ever thought anyone would ever let me do.
+ - My fantasy for children’s television is that it’s not really children’s television, it’s everybody’s television.
+ - The idea of the show is that it’s active and that children will become involved and watch the show, but also participate in the show. And I didn’t know if that would work.
+ - And I think that if I were a for real celebrity that was recognizable everywhere, I’d just crawl under a rock and you know, have someone run over the rock with a car, or something.
+ - We go through, I think, six different drafts of each script. And then my shooting it is roughly, you know, fifteen percent of the total work that gets done on a show. Then it’s all post-production animation after that.
+
+21 quotes

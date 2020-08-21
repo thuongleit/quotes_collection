@@ -1,0 +1,35 @@
+ - It’s not what you take when you leave this world behind you. It’s what you leave behind you when you go.
+ - There’s a darkness that everyone must face, it wants to take what’s good and fair and lay it all to waste. And that darkness covers everything in sight, until it meets a single point of light.
+ - To me, country music tells a story about, and deals with, the way people live their lives and what they do.
+ - I’m happy riding horses and getting out shooting my gun, things like that.
+ - My dad wanted me to play when I was a kid, so I learned to play the guitar. I pursued a career in music because I love it so much and I enjoy what it does to those who hear it.
+ - We are soldiers of the cross, we’ve been found to reach the lost.
+ - In the God of all creation, we put our faith and trust. And give our lives to you, cause you gave your life for us.
+ - When Mama prayed, lives were changed. Not much more than five foot tall, but mountains big and small crumbled all away.
+ - There’s a constant contradiction between what feels good and what feels right. But you live with decisions that you make in your life.
+ - A dimly lit tavern, a willing young woman, are some of the reasons I cheat.
+ - I just couldn’t stand school. If I went, I’d skip after the first class. I didn’t like to be told I had to study and had to do homework. There’s a fact that you have to want to learn.
+ - You almost felt sorry for the devil cause heaven knows he didn’t have a prayer, when Mama prayed.
+ - For me, having come to study and understand some of the Bible and finally getting saved made a huge difference in me, because my wife was a big influence on that. I saw in her, when I first met her, a persons soul at peace with everything and everybody around her.
+ - I’ve been singing since I was 8 years old and working in clubs since I was 14. I’ve been working full time since I was 16.
+ - I don’t know whether schooling would have helped me get farther along in music at this time. I doubt it would have.
+ - Your heroes will help you find good in yourself.
+ - I’ve learned the importance of loving what you do. I have also learned more patience due to the nature of the music business.
+ - Maybe we could learn a little lesson, maybe this all shine a little light, cause there’s no healthy way to mess with the line between wrong and right.
+ - You continue to evolve with each album that goes by and, as an artist, you continue to expand with every recording project.
+ - I love finding songs, going through them, tearing them apart, and seeing if I can find anything wrong with them.
+ - I never thought of having platinum albums and winning awards. I just wanted to write songs and sing when I started out in the music business.
+ - Honey, I don’t care, I ain’t in love with your hair, and if it all fell out I’d love you anyway.
+ - I feel like a stone you have picked up and thrown to the hard rock bottom of your heart.
+ - The peak of a career can only last so long. You go up and you try to maintain it. But, it can only last so long and then you’re going to go down.
+ - In too deep to see the diamond, down too dark to see the gold. Now he won’t let go of the shovel, and he cannot dig out of the hole.
+ - America is not divided, our enemies they will be stopped. Cause we the people are united, and still one nation under God.
+ - Armies gather in the East for the war that’s soon to come. Death will march with the mark of the beast, so seek the light and walk with the Son.
+ - The teacher left her wisdom, in the minds of lots of children, and did her best to give them all a better start.
+ - I know the author of my every breath, oh that’s Jesus.
+ - I wish at times I had finished school just to say I had.
+ - History will tell the story, America will always stand.
+ - You know, I think you have to sound right singing whatever it is that you sing.
+ - They took your commandments off the schoolhouse walls, they say it’s a crime to pray.
+
+33 quotes

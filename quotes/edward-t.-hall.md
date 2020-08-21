@@ -1,0 +1,28 @@
+ - The essence of cross-cultural communication has more to do with releasing responses than with sending messages. It is more important to release the right response than to send the right message.
+ - Culture is not made up but something that evolves which is human.
+ - The best reason for exposing oneself to foreign ways is to generate a sense of vitality and awareness – an interest in life which can come only when one lives through the shock of contrast and difference.
+ - The information is in the people, not in your head.
+ - By their very nature bureaucracies have no conscience, no memory, and no mind.
+ - Culture hides more than it reveals and strangely enough what it hides, it hides most effectively from it’s own participants. Years of study have convinced me that the real job is not to understand foreign culture but to understand our own.
+ - Each culture has its own characteristic manner of locomotion, sitting, standing, reclining, and gesturing.
+ - Each organism, no matter how simple or complex, has around it a sacred bubble of space, a bit of mobile territoriality which only a few other organisms are allowed to penetrate and then only for short periods of time.
+ - We should never denigrate any other culture but rather help people to understand the relationship between their own culture and the dominant culture. When you understand another culture or language, it does not mean that you have to lose your own culture.
+ - It is never possible to understand completely any other human being; and no individual will ever really understand himself – the complexity is too great and there is not the time to constantly take things apart and examine them.
+ - Viewing movies in very slow motion, looking for synchrony, one realizes that what we know as dance is really a slowed-down, stylized version of what human beings do whenever they interact.
+ - One of the most effective ways to learn about oneself is by taking seriously the cultures of others. It forces you to pay attention to those details of life which differentiate them from you.
+ - Shakespeare reveals human nature brilliantly: he shines a light on our instinctive desire to dominate each other.
+ - Because we have put ourselves in our own zoo, we find it difficult to break out.
+ - Behind every piece of paper lies a human situation.
+ - The reason man does not experience his true cultural self is that until he experiences another self as valid he has little basis for validating his own self.
+ - I may be able to spot arrowheads on the desert but a refrigerator is a jungle in which I am easily lost.
+ - Now, you can’t tell me, we have the only God in the whole world. You can’t tell me that nobody else has God.
+ - Two points that are very important points to remember and ask: Is it real and does it work?
+ - We are only peripherally tied to the lives of others. It takes a long long time for us to become deeply involved with others, and for some this never happens.
+ - Theatre is about people, not buildings. Incalculable damage has been done to the expert talent a company needs – from wardrobe to lighting technicians.
+ - The future for us is the foreseeable future. The South Asian, however, feels that it is perfectly realistic to think of a ‘long time’ in terms of thousands of years.
+ - The drive to learn is as strong as the sexual drive. It begins earlier and lasts longer.
+ - Age affects how people experience time.
+ - I have found the study of organisms to be a truly exciting experience, always interesting and sometimes humbling.
+ - Man is used to the fact that there are languages which he does not at first understand and which must be learned, but because art is primarily visual he expects that he should get the message immediately and is apt to be affronted if he doesn’t.
+
+26 quotes

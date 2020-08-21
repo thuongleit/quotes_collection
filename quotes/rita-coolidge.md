@@ -1,0 +1,21 @@
+ - I’m not stopping. My dream has come true, and I’m staying.
+ - I’ve always loved jazz.
+ - Too often, the opportunity knocks, but by the time you push back the chain, push back the bolt, unhook the two locks and shut off the burglar alarm, it’s too late.
+ - I choose things by how they resonate in my heart.
+ - Jazz radio is not very friendly to pop singers who decide to make a jazz record. But a lot of people have been. A lot of the people I’ve talked to like the record.
+ - I recorded my first jazz record in the ’70s.
+ - I’ve got my whole life. There’s a lifetime of experience, a lifetime of experiencing the road and the music and different players. It makes me a richer human being. I have a greater source of information to tap into, a wealth of life.
+ - I was kind of known as a ballad singer. People would send ballads. Some of them would go over my shoulder and float off the top of my head, and I just didn’t feel anything. Then I would hear a song that would absolutely shake me.
+ - My grandmother passed at 104. She sang and wrote songs until she passed.
+ - There was a subtlety about Peggy Lee. It was powerful. There was a valuable use of space. Everything was not cluttered. Her voice was out front and was the key instrument.
+ - I don’t think I was considered to be a cabaret singer because I didn’t have patter that was written.
+ - You know, I’m pretty much an open book.
+ - I think the challenges for me was to go into the studio with these incredible jazz players and come up to their level of excellence. That’s always a challenge.
+ - I say what’s in my heart, and I do it in my concerts.
+ - It seems that jazz is more cerebral and more mathematical in a sense.
+ - I’ve always wanted to record a jazz record. I did one in the ’70s with Barbara Carroll. It’s been a journey.
+ - I think you have to have a jazz pedigree to be on jazz radio.
+ - I wanted to make a jazz record. I didn’t want it to be a standards record.
+ - Possibly, I should have been a jazz singer from the beginning.
+
+19 quotes

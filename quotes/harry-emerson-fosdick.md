@@ -1,0 +1,80 @@
+ - No life ever grows great until it is focused, dedicated, disciplined.
+ - Hating people is like burning down your own house to get rid of a rat.
+ - Don’t simply retire from something; have something to retire to.
+ - The tragedy of war is that it uses man’s best to do man’s worst.
+ - No man is the whole of himself; his friends are the rest of him.
+ - Money is a miraculous thing. It is your personal energy reduced to a portable form and endowed with power you yourself do not possess. It can go where you cannot go; speak languages you cannot speak; lift burdens you cannot touch with your fingers; save lives with which you cannot deal directly.
+ - In the foothills of the Himalayas, one hears the prayer: “Oh Lord, we know not what is good for us. You know what it is. For it we pray.”
+ - One must have the adventurous daring to accept oneself as a bundle of possibilities and undertake the most interesting game in the world – making the most of one’s best.
+ - All intelligent faith in God has behind it a background of humble agnosticism.
+ - Hold a picture of yourself long and steadily enough in your mind’s eye and you will be drawn toward it. Picture yourself vividly as winning and that alone will contribute immeasurably to success. Great living starts with a picture, held in your imagination, of what you would like to do or be.
+ - No horse gets anywhere until he is harnessed. No stream or gas drives anything until it is confined. No Niagara is ever turned into light and power until it is tunneled. No life ever grows great until it is focused, dedicated, disciplined.
+ - Liberty is always dangerous, but it is the safest thing we have.
+ - No one can get inner peace by pouncing on it.
+ - He who chooses the beginning of the road chooses the place it leads to.
+ - I hate war for its consequences, for the lies it lives on and propagates, for the undying hatreds it arouses...
+ - Opinions may be mistaken; love never is.
+ - He who cannot rest, cannot work; he who cannot let go, cannot hold on; he who cannot find footing, cannot go forward.
+ - The man who says it can’t be done is generally interrupted by someone doing it.
+ - He who knows no hardships will know no hardihood. He who faces no calamity will need no courage. Mysterious though it is, the characteristics in human nature which we love best grow in a soil with a strong mixture of troubles.
+ - He is a poor patriot whose patriotism does not enable him to understand how all men everywhere feel about their altars and their hearthstones, their flag and their fatherland.
+ - Great living starts with a picture, held in your imagination, of what you would like to do or be.
+ - Every failure can be considered as a tragedy or a chance to learn something. The latter is healthier.
+ - No character is ultimately tested until it has suffered.
+ - Happiness is not mostly pleasure, it is mostly victory.
+ - No one can get inner peace by pouncing on it. – Harry Emerson FosdickNo one can get inner peace by pouncing on it.
+ - We cannot restore integrity and morality to our society until each of us-singly and individually-takes responsibility for our actions.
+ - Life consists not simply in what heredity and environment do to us, but in what we make out of what they do to us.
+ - Every great scientist becomes a great scientist because of the inner self-abnegation with which he stands before truth, saying: “Not my will, but thine, be done.” What, then, does a man mean by saying, Science displaces religion, when in this deep sense science itself springs from religion?
+ - No man need stay the way he is.
+ - Friends are necessary to a happy life. When friendship deserts us, we are as helpless as a ship left by the tide high upon the shore. When friendship returns to us, it’s as though the tide came back, giving us buoyancy and freedom.
+ - Always take a job that is too big for you.
+ - The steady discipline of intimate friendship with Jesus results in men becoming like Him.
+ - No virtue is more universally accepted as a test of good character than trustworthiness .
+ - A person wrapped up in himself makes a small package.
+ - Falsehood is never better than truth, theft better than honesty, treachery better than loyalty, cowardice better than courage.
+ - I would rather live in a world where my life is surrounded by mystery than live in a world so small that my mind could comprehend it.
+ - I renounce war for its consequences, for the lies it lives on and propagates, for the undying hatred it arouses, for the dictatorships it puts in place of democracy, for the starvation that stalks after it. I renounce war, and never again, directly or indirectly, will I sanction or support another.
+ - We cannot all be great, but we can always attach ourselves to something that is great.
+ - Peace is an awareness of reserves from beyond ourselves, so that our power is not so much in us as through us. Peace is the gift, not of volitional struggle, but of spiritual hospitality.
+ - Bitterness imprisons life; love releases it.
+ - Nothing in human life, least of all in religion, is ever right until it is beautiful.
+ - It is not marriage that fails; it is people that fail. All that marriage does is to show people up.
+ - It is cynicism and fear that freeze life; it is faith that thaws it out, releases it, sets it free.
+ - Every human life involves an unfathomable mystery, for man is the riddle of the universe, and the riddle of man in his endowment with personal capacities.
+ - Self-pity gets you nowhere. But insight to see that something can be done with the second-bests and adventurous daring to try might be a handle to take hold of.
+ - Life asks not merely what you can do; it asks how much can you endure and not be spoiled.
+ - Of all mad faiths maddest is the faith that we can get rid of faith.
+ - Prayer opens our lives for God so his will can be done in and through us, because in true prayer we habitually put ourselves into the attitude of willingness to do whatever God wills.
+ - The fact that astronomies change while the stars abide is a true analogy of every realm of human life and thought, religion not least of all. No existent theology can be a final formulation of spiritual truth.
+ - Religion is not a burden, not a weight, it is wings.
+ - The stars are not so strange as the mind that studies them, analyzes their light, and measures their distance.
+ - Preaching is personal counseling on a group basis.
+ - One never finds life worth living. One always has to make it work living.
+ - Life is like a library owned by the author. In it are a few books which he wrote himself, but most of them were written for him.
+ - Democracy is not simply a political system; it is a moral movement and it springs from adventurous faith in human possibilities.
+ - All altruism springs from putting yourself in the other person’s place.
+ - The finest quality of our characters do not come from trying but from the mysterious and yet most effective capacity to be inspired.
+ - Whatever you laugh at in others, laughs at yourself.
+ - Nothing in this world is more inspiring than a soul up against crippling circumstances who carries it off with courage and faith and undefeated character-nothing! See Light From Many Lamps, edited by L. E. Watson, article by H. E. Fosdick, pp. 93-94 re: a serious cripple who succeeded.
+ - Every year the inventions of science weave more inextricably the web that binds man to man, group to group, nation to nation.
+ - The first question to be answered by any individual or any social group, facing a hazardous situation, is whether the crisis is to be met as a challenge to strength or as an occasion for despair.
+ - Atheism is a theoretical formulation of the discouraged life...
+ - God has put within our lives meanings and possibilities that quite outrun the limits of mortality.
+ - One of the strange phenomena of the last century is the spectacle of religion dropping the appeal of fear while other human interests have picked it up.
+ - To keep the Golden Rule we must put ourselves in other people’s places, but to do that consists in and depends upon picturing ourselves in their places.
+ - Bitterness imprisons life; love releases it. Bitterness paralyzes life; love empowers it. Bitterness sours life; love sweetens it. Bitterness sickens life; love heals it. Bitterness blinds life; love anoints its eyes.
+ - What a testing of character adversity is.
+ - He is a poor son whose sonship does not make him desire to serve all men’s mothers.
+ - Our power is not so much in us as through us.
+ - Religion is something that only secondarily can be taught. It must must primarily be taught.
+ - The all but unanimous judgment seems to be that we, the democracies, are just as responsible for the rise of the dictators as the dictatorships themselves, and perhaps more so.
+ - No one can be wrong with man and right with God.
+ - Christians are supposed not merely to endure change, nor even to profit by it, but to cause it.
+ - The process has now run full circle: Preaching originates in personal counseling; preaching is personal counseling on a group basis; personal counseling originates in preaching. Personal counseling imparts to the preacher a practical familiarity with human nature which he would not otherwise obtain.
+ - Picture yourself vividly as winning, and that alone will contribute immeasurably to success.
+ - It is magnificent to grow old, if one keeps young.
+ - A good sermon is an engineering operation by which a chasm is bridged so that the spiritual goods on one side-the ‘unsearchable riches of Christ’ – are actually transported into personal lives upon the other.
+ - One could almost phrase the motto of our modern civilization thus: Science is my shepherd; I shall not want.
+
+78 quotes

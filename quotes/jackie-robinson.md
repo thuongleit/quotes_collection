@@ -1,0 +1,29 @@
+ - A life is not important except in the impact it has on other lives.
+ - I am not concerned with being liked or disliked. I am concerned with being respected.
+ - Life is not a spectator sport.
+ - This ain’t fun. But you watch me, I’ll get it done.
+ - Life is not a spectator sport. If you’re going to spend your whole life in the grandstand just watching what goes on, in my opinion you’re wasting your life.
+ - I never cared about acceptance as much as I cared about respect.
+ - The way I figured it, I was even with baseball and baseball with me. The game had done much for me, and I had done much for it.
+ - The most luxurious possession, the richest treasure anybody has, is his personal dignity.
+ - If I had to choose between baseball’s Hall of Fame and first class citizenship for all of my people. I would say first-class citizenship.
+ - At the beginning of the World Series of 1947, I experienced a completely new emotion when the National Anthem was played. This time, I thought, it is being played for me, as much as for anyone else.
+ - The right of every American to first-class citizenship is the most important issue of our time.
+ - There’s not an American in this country free until every one of us is free.
+ - Baseball is like a poker game. Nobody wants to quit when he’s losing; nobody wants you to quit when you’re ahead.
+ - It kills me to lose. If I’m a troublemaker, and I don’t think that my temper makes me one, then it’s because I can’t stand losing. That’s the way I am about winning, all I ever wanted to do was finish first.
+ - I don’t like needing anyone for anything.
+ - Relationships may change throughout the gift of time, memories stay the same forever in my mind.
+ - Above anything else, I hate to lose.
+ - I don’t think it matters what I believe, only what I do.
+ - The many of us who attain what we may and forget those who help us along the line we’ve got to remember that there are so many others to pull along the way. The farther they go, the further we all go.
+ - Baseball, like some other sports, poses as a sacred institution dedicated to the public good, but it is actually a big, selfish business with a ruthlessness that many big businesses would never think of displaying.
+ - I guess you’d call me an independent, since I’ve never identified myself with one party or another in politics. I always decide my vote by taking as careful a look as I can at the actual candidates and issues themselves, no matter what the party label.
+ - I ought to break this trophy into 32 pieces.
+ - Pop flies, in a sense, are just a diversion for a second baseman. Grounders are his stock trade.
+ - It’s not easy to be a martyr in the field of race relations.
+ - How you played in yesterday’s game is all that counts.
+ - You’re going to be a great player, kid.
+ - If Jesus ever had PMS, he totally would have sinned.
+
+27 quotes

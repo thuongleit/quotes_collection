@@ -1,0 +1,78 @@
+ - Anything which is troubling you, anything which is irritating you, THAT is your teacher.
+ - If you are still following your likes and dislikes, you have not even begun to practise Dhamma.
+ - If you let go a little you will have a little happiness. If you let go a lot you will have a lot of happiness. If you let go completely you will be free.
+ - But when I know that the glass is already broken, every minute with it is precious.
+ - Letting go a little brings a little peace. Letting go a lot brings a lot of peace. Letting go completely brings complete peace.
+ - When sitting in meditation, say, “That’s not my business!” with every thought that comes by.
+ - If it isn’t good, let it die. If it doesn’t die, make it good.
+ - The heart is just the heart; thoughts and feelings are just thoughts and feelings. Let things be just as they are.
+ - Happiness and suffering do not depend on being poor or rich, they depend on having the right or wrong understanding in our mind.
+ - Do not try to become anything. Do not make yourself into anything. Do not be a meditator. Do not become enlightened. When you sit, let it be. What you walk, let it be. Grasp at nothing. Resist nothing.
+ - When the heart truly understands, it lets go of everything.
+ - If it shouldn’t happen, it wouldn’t happen.
+ - To give up doing evil is more important than making merit.
+ - Where does peace arise? Peace arises whenever we let something go.
+ - The forest is peaceful, why aren’t you? You hold on to things causing your confusion. Let nature teach you. Hear the bird’s song then let go. If you know nature, you’ll know truth. If you know truth, you’ll know nature.
+ - Why are we born? We are born so that we will not have to be born again.
+ - When we see beyond self, we no longer cling to happiness. And when we stop clinging, we can begin to be happy.
+ - Do not be a bodhisattva, do not be an arahant, do not be anything at all. If you are a bodhisattva, you will suffer, if you are an arahant, you will suffer, if you are anything at all, you will suffer.
+ - Don’t be attached to visions or lights in meditation, don’t rise or fall with them. What’s so great about brightness? My flashlight has it. It can’t help us rid ourselves of our suffering.
+ - Dharma is in your mind, not in the forest. Don’t believe others, just listen to your mind. You don’t have to go anywhere else. Wisdom is in yourself, just like a sweet ripe mango is already in a young green one.
+ - If you want a chicken to be a duck, and a duck to be a chicken, you will suffer.
+ - The Dhamma is revealing itself in every moment, but only when the mind is quiet can we understand what it is saying, for the Dhamma teaches without words.
+ - Do everything with a mind that lets go. Do not expect praise or reward.
+ - You are your own teacher. Looking for teachers can’t solve your own doubts. Investigate yourself to find the truth – inside, not outside. Knowing yourself is most important.
+ - There are two kinds of suffering. There is the suffering you run away from, which follows you everywhere. And there is the suffering you face directly, and so become free.
+ - Only one book is worth reading: the heart.
+ - We practice to learn how to let go, not how to increase our holding on to things. Enlightenment appears when you stop wanting anything.
+ - If you see certainty in that which is uncertain, you are bound to suffer.
+ - The serene and peaceful mind is the true epitome of human achievement.
+ - When one does not understand death, life can be very confusing.
+ - All religions are like different cars all moving in the same direction. People who don’t see it have no light in their hearts.
+ - I am like a tree in a forest. Birds come to the tree, they sit on its branches and eat its fruits. To the birds, the fruit may be sweet or sour or whatever. The birds say sweet or they say sour, but from the tree’s point of view, this is just the chattering of birds.
+ - Once you understand non-self, then the burden of life is gone. You’ll be at peace with the world. When we see beyond self, we no longer cling to happiness and we can truly be happy. Learn to let go without struggle, simply let go, to be just as you are – no holding on, no attachment, free.
+ - To practice Dhamma means to observe and examine oneself.
+ - Proper effort is not the effort to make something particular happen. It is the effort to be aware and awake each moment, the effort to overcome laziness and merit, the effort to make each activity of our day meditation.
+ - You should think about your own death 3 times per day at the very least.
+ - Peace is within oneself to be found in the same place as agitation and suffering. It is not found in a forest or on a hilltop, nor is it given by a teacher. Where you experience suffering, you can also find freedom from suffering. Trying to run away from suffering is actually to run toward it.
+ - Just know what is happening in your mind – not happy or sad about it, not attached. If you suffer see it, know it, and be empty. It’s like a letter – you have to open it before you can know what’s in it.
+ - Read yourself, not books. Truth isn’t outside, that’s only memory, not wisdom. Memory without wisdom is like an empty thermos bottle – if you don’t fill it, it’s useless.
+ - Mental activity is like a deadly poisonous cobra. If we don’t interfere with a cobra, how poisonous it may be, it simply goes its own away.
+ - Know and watch your heart. It’s pure but emotions come to colour it. So let your mind be like a tightly woven net to catch emotions and feelings that come, and investigate them before you react.
+ - Wisdom is in yourself, just like a sweet ripe mango is already in a young green one.
+ - If we see suffering then we don’t have suffering.
+ - Time is our present breath.
+ - At some point your heart will tell itself what to do.
+ - Learn to see that it is not things that bother us, that we go out to bother them. See the world as a mirror. It is all a reflection of the mind. When you know this, you can grow in every moment, and every experience reveals truth and brings understanding.
+ - A madman and an arahant both smile, but the arahant knows why while the madman doesn’t.
+ - We don’t meditate to see heaven, but to end suffering.
+ - The heart of the path is quite easy. There’s no need to explain anything at length. Let go of love and hate and let things be. That’s all that I do in my own practice.
+ - To define Buddhism without a lot of words and phrases, we can simply say, ‘Don’t cling or hold on to anything. Harmonize with actuality, with things as they are.’
+ - If you haven’t cried deeply a number of times, your meditation hasn’t really begun.
+ - The mind of one who practises doesn’t run away anywhere, it stays right there. Good, evil, happiness and unhappiness, right and wrong arise, and he knows them all. The meditator simply knows them, they don’t enter his mind. That is, he has no clinging. He is simply the experiencer.
+ - The Dharma Path is to keep walking forward. But the true Dharma has no going forward, no going backward, and no standing still.
+ - We protect virtue so that virtue will protect us.
+ - With even a little intuitive wisdom we will be able to see clearly the ways of the world. We will come to understand that everything in the world is our teacher.
+ - If you let go completely you will have complete peace.
+ - Some people are afraid of generosity. They feel they will be taken advantage of or oppressed. In cultivating generosity, we are only oppressing our greed and attachment. This allows our true nature to come out and become lighter and freer.
+ - Do not be in a hurry or try to push your practice. If you become peaceful, then accept it,; if you don’t become peaceful, then accept that also. This is the nature of the mind. We must find our own practice and persevere.
+ - There are people who are born and die and never once are aware of their breath going in and out of their body. That’s how far away they live from themselves.
+ - Look at your own mind. The one who carries things thinks he’s got things, but the one who looks on sees only the heaviness. Throw away things, lose them, and find lightness.
+ - When we conquer ourselves, then everything will be conquered: oneself, others, and all the sense objects as well, coming in by way of the eyes, ears, nose, tongue and body – it will all get conquered like this.
+ - If we want to really see the Buddha, we should observe his virtuous qualities. Whatever he taught, we should practise it. Only bowing to him is not enough. We need to renounce, give up, stop, so that we may see the Buddha.
+ - The mind is intrinsically tranquil. Out of this tranquility, anxiety and confusion are born. If one sees and knows this confusion, then the mind is tranquil once more.
+ - These days people don’t search for the Truth. People study simply in order to find knowledge necessary to make a living, raise families and look after themselves, that’s all. To them, being smart is more important than being wise!
+ - Looking for peace is like looking for a turtle with a mustache: You won’t be able to find it. But when your heart is ready, peace will come looking for you.
+ - People go through life blindly, ignoring death like revellers at a party feasting on fine foods. They ignore that later they will have to go to the toilet, so they do not bother to find out where there is one. When nature finally calls, they have no idea where to go and are in a mess.
+ - If you listen to the Dhamma teachings but don’t practice you’re like a ladle in a soup pot. The ladle is in the soup pot every day, but it doesn’t know the taste of the soup. You must reflect and meditate.
+ - Mindfulness is life. Whenever we don’t have mindfulness, when we are heedless, it’s as if we are dead.
+ - The Dhamma has to be found by looking into your own heart and seeing that which is true and that which is not, that which is balanced and that which is not balanced.
+ - Meditation is like a single log of wood. Insight and investigation are one end of the log; calm and concentration are the other end. If you lift up the whole log, both sides come up at once. Which is concentration and which is insight? Just this mind.
+ - The one who recognizes the uncertainty of phenomena is the Dharma within you.
+ - You should know both the universal and the personal, the realm of forms and the freedom to not cling to them. The forms of the world have their place, but in another way, there is nothing there. To be free, we need to respect both of these truths.
+ - Know and watch your heart. It’s pure but emotions come to colour it.
+ - Of course there are dozens of meditation techniques, but it all comes down to this – just let it all be. Step over here where it is cool, out of the battle. Why not give it a try?
+ - If you haven’t wept deeply, you haven’t begun to meditate.
+ - The heart is the only book worth reading.
+
+76 quotes

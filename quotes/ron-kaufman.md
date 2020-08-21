@@ -1,0 +1,129 @@
+ - Exceeding expectations is where satisfaction ends and loyalty begins.
+ - Meeting expectations is good. Exceeding expectations is better.
+ - Don’t just talk about it, do it.
+ - Challenge your own status quo – before someone else does.
+ - Giving great service requires the right people and the right service tools.
+ - First be effective and then be efficient.
+ - Service is taking action to create value for someone else.
+ - Employees are the key to your success with customers. Treat them well!
+ - Even a tiny step is one step closer to where you are going.
+ - When a customer asks what no one else has ever asked, pay close attention.
+ - Only a well-oiled machine runs smoothly.
+ - Be confident enough to encourage confidence in others.
+ - Selfless acts are a source of profound meaning for your self and your life.
+ - The most valuable person is the one who cherishes the value in others.
+ - Always aim for 100 percent and you’ll always know where to improve.
+ - You can’t stop change. Don’t let it stop you.
+ - Convince people and you win their minds. Inspire people and you win their hearts.
+ - Acting after being asked is compliance. Acting without being asked is kindness.
+ - Be the exception to the rule. It’s the surest way to become exceptional.
+ - The only way to go further than you’ve been is to take an extra step.
+ - Enthusiastic service providers create enthusiastic customers.
+ - Preparation clears a pathway for success.
+ - Listen to customers and you will hear them. Look carefully at customers and you will see them. Do both and you will understand them.
+ - Never rest on past success. Create something better.
+ - Your promise means more than the words you use to give it.
+ - Vision with action makes a powerful reality.
+ - Developing great employees attracts great customers.
+ - The starting point is always now. The end is up to you.
+ - Quality is more than a promise, it’s genuine performance.
+ - There are two ways to improve your service, and yourself: maximize your strengths and minimize your weaknesses.
+ - The first step to delighting your customers is being there when they need you.
+ - What you did in the past is how you got to today. What you do today is how you will get to the future.
+ - Crossing barriers can be as simple as a smile.
+ - Industry jargon may not be a language your customer understands.
+ - Always trust people and they may let you down. Always distrust people and you have let them down.
+ - Words not kept break more than a promise.
+ - Service skills are the foundation for your success.
+ - Stay in one place too long and the tide can overwhelm you. Ride the tide, surf the waves, stay on top of the changes.
+ - Quality is a choice. Choose to make it better.
+ - Intelligence is useful. Energy is valuable. Integrity is essential.
+ - Constant acts of goodness are worth far more than rare acts of greatness.
+ - Say it with words. Show it with action.
+ - Making an honest mistake is acceptable. Failing to fix it is not.
+ - Be the mirror in which people admire their true potential.
+ - Silent customers can be deadly. Encourage them to complain.
+ - When something needs to be improved, take your medicine – fix it.
+ - Make your upper limit, no limit.
+ - Procrastination is the beginning of poor performance.
+ - Without commitment, no price will be low enough. With commitment, no price will be too high.
+ - Sometimes we become so expert in our own domain, we forget that customers may be less familiar.
+ - A scattered effort is a poor effort.
+ - Compromise in your arguments, not in your expectations.
+ - Always be kind in your heart, spirit and mind.
+ - Give your customers what they want today, and help them see tomorrow.
+ - Promise too much and you’ll have plenty of room to fail. Promise little and you’ll have plenty of room to excel.
+ - Instead of just asking ‘How did I do?’ ask ‘How can I do more?’
+ - Greatness is not how you feel, it’s how you make others feel.
+ - A: Set the pace and rule the race. Seek new ways to differentiate, new ways to surprise and delight your customers.
+ - Do what’s right and you’ll never go wrong.
+ - Service is the ultimate edge. Keep it sharp.
+ - There’s no such thing as the very best. If you’re doing your best, it’s only because you haven’t yet found a way to do better.
+ - Money has a fixed value. People can have unlimited value.
+ - If it’s not impossible, you may as well try. If it is impossible, at least you’ll find out why.
+ - Life is not a solitary activity. Live well by living for others.
+ - Customers pay a price, but they remember the value.
+ - The shelter of excuses has a leaky roof.
+ - You can’t find what doesn’t exist, but you can create it.
+ - You are as important as you make others feel.
+ - Are people being the least you expect of them, or the best they expect themselves to be?
+ - If your customers are demanding, be thankful.
+ - How much good can you do today? How much love can you give? How much care and kind attention?
+ - What does your product really mean to the people who buy it?
+ - Focus not on who you are, but on what you can do for others.
+ - To see like a customer, be like a customer.
+ - Every service problem is as an opportunity to show you care.
+ - What matters more? What you said you’d do, what you hoped to do, or what you did?
+ - Let your imagination soar. What you can do for customers is more than you see today.
+ - Double-check your voice mail message. Listen to your on-hold words and music. Write welcoming scripts for your telephone team. Pay attention to the music in your office and lobby areas. Make sure what your customers hear sounds good.
+ - Things that are obvious don’t need to be talked about. Things that are missing, do.
+ - Passion isn’t always available. The committed get things done even without it.
+ - Unlimited efforts can produce unlimited results.
+ - Make your service systems so strong that everyone looks like a genius.
+ - Everything ordinary has the potential to be extraordinary.
+ - Occasionally problems will occur. When it happens to your customers, fix the problem fast. Make it your speed and generosity that gets remembered, not the problem.
+ - If you were a customer, would you come back to buy your products or services?
+ - What’s possible today isn’t bound by what was possible yesterday, and is never a measure of what’s possible tomorrow.
+ - Enjoy your work so that others may enjoy the results.
+ - Don’t let high-speed completely replace high-touch. Your customers may appreciate both.
+ - Are you doing only what you must or doing all you can?
+ - You are the person who determines what you do. That’s a big responsibility. Make the most of it.
+ - If they’re going to remember the problem, make sure they remember it fondly.
+ - Good customers want good quality service. Great customers want it even more.
+ - Reaching out takes nothing more than a smile.
+ - A great leader makes what is visible in their mind, visible to all.
+ - Your approval gives others the confidence to serve, to learn, to try.
+ - The bottom line is a by-product of taking care of your main product – your customers.
+ - When only a little can be done, doing it becomes the greatest you can do.
+ - If you only give back what you get from other people, you’re not giving as much as you can.
+ - You do more for yourself when you forget yourself.
+ - Testimonials describe what has been, and are a promise of what is to come.
+ - Don’t let doing enough be good enough.
+ - Q: When you are already in the lead, how do you to stay ahead?
+ - Ask your loyal customers for positive comments about your products and your service. Then post these testimonials where other customers and prospects can enjoy them.
+ - The right measure is not how many customers you’ve got, but how closely you hold them.
+ - If you haven’t given them your trust, you haven’t given them enough.
+ - What you want to be defines what you become.
+ - Could you achieve the possible without trying? Could you achieve the impossible if you refuse to stop trying?
+ - You cannot change what has already happened. You can always change the way you respond.
+ - If you turn your back on a customer, you turn your back on success.
+ - When the customer makes contact, he does not want a quote. He wants a commitment.
+ - If you want to be the best, find the best in others.
+ - Let today’s strong performance be your starting point for tomorrow.
+ - Are you moving forward, or just moving?
+ - Tend your own garden: savor the blossoms, trim the weeds.
+ - In a service situation, each delay can mean many unsatisfied customers, each one telling many more.
+ - If you wait until you have to change, you may have waited too long.
+ - Create a compelling service vision. When people want to, they will.
+ - Preparation is good, but customers need results.
+ - The cutting edge of service is always being honed and polished.
+ - The true measure of what you put in, is what’s received on the other end.
+ - Always do what you can do instead of worrying about what you can’t.
+ - If you want to stay in business, satisfy customers. If you want to excel in business, delight customers.
+ - Your profits reflect the success of your customers.
+ - It’s fine to wait for an appropriate time, but it’s inappropriate to wait forever.
+ - How can you learn more? By admiring what you’ve done right? Or by studying what you’ve done wrong?
+ - If you want to interest people, make them think. If you want to inspire people, make them feel.
+ - Plans turn promises into results and dreams into realities.
+
+127 quotes

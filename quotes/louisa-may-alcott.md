@@ -1,0 +1,230 @@
+ - I am not afraid of storms for I am learning how to sail my ship.
+ - Housekeeping ain’t no joke.
+ - I like adventures, and I’m going to find some.
+ - Good books, like good friends, are few and chosen; the more select, the more enjoyable.
+ - The power of finding beauty in the humblest things makes home happy and life lovely.
+ - Be comforted, dear soul! There is always light behind the clouds.
+ - Nothing is impossible to a determined woman.
+ - Far away there in the sunshine are my highest aspirations. I may not reach them, but I can look up and see their beauty, believe in them, and try to follow where they lead.
+ - Preserve your memories, keep them well, what you forget you can never retell.
+ - We all have our own life to pursue, our own kind of dream to be weaving, and we all have the power to make wishes come true, as long as we keep believing.
+ - Keep good company, read good books, love good things and cultivate soul and body as faithfully as you can.
+ - Some books are so familiar that reading them is like being home again.
+ - He who believes is strong; he who doubts is weak. Strong convictions precede great actions.
+ - It takes two flints to make a fire.
+ - I hate ordinary people!
+ - Power is a dangerous thing. Be careful that you don’t abuse it or let it make a tyrant of you.
+ - A faithful friend is a strong defense; And he that hath found him hath found a treasure.
+ - Liberty is a better husband than love to many of us.
+ - Cast your bread upon the waters, and after many days it will come back buttered.
+ - I think we are all hopelessly flawed.
+ - I’ve got the key to my castle in the air, but whether I can unlock the door remains to be seen.
+ - A holiday isn’t a holiday, without plenty of freedom and fun.
+ - Love Jo all your days, if you choose, but don’t let it spoil you, for it’s wicked to throw away so many good gifts because you can’t have the one you want.
+ - She is too fond of books, and it has turned her brain.
+ - Let my name stand among those who are willing to bear ridicule and reproach for the truth’s sake, and so earn some right to rejoice when the victory is won.
+ - Go on with your work as usual, for work is a blessed solace.
+ - Love is the only thing that we can carry with us when we go, and it makes the end so easy.
+ - The humblest tasks get beautified if loving hands do them.
+ - Be worthy love, and love will come.
+ - Happy is the son whose faith in his mother remains unchallenged.
+ - I don’t pretend to be wise, but I am observing, and I see a great deal more than you’d imagine. I’m interested in other people’s experiences and inconsistencies, and, though I can’t explain, I remember and use them for my own benefit.
+ - You are the gull, Jo, strong and wild, fond of the storm and the wind, flying far out to sea, and happy all alone.
+ - I’d rather take coffee than compliments just now.
+ - November is the most disagreeable month in the whole year.
+ - Human minds are more full of mysteries than any written book and more changeable than the cloud shapes in the air.
+ - Right Jo better be happy old maids than unhappy wives or unmaidenly girls running about to find husbands.
+ - Painful as it may be, a significant emotional event can be the catalyst for choosing a direction that serves us – and those around us – more effectively. Look for the learning.
+ - I could have been a great many things.
+ - Don’t mind me. I’m as happy as a cricket here.
+ - I don’t like favors; they oppress and make me fell like a slave. I’d rather do everything for myself, and be perfectly independent.
+ - There are many Beths in the world, shy and quiet, sitting in corners till needed, and living for others so cheerfully that no one sees the sacrifices till the little cricket on the hearth stops chirping, and the sweet, sunshiny presence vanishes, leaving silence and shadow behind.
+ - I ask not for any crown But that which all may win; Nor try to conquer any world Except the one within.
+ - You have a good many little gifts and virtues, but there is no need of parading them, for conceit spoils the finest genius. There is not much danger that real talent or goodness will be overlooked long, and the great charm of all power is modesty.
+ - Back to him she would never go, but in her lonely life still lived the sweet memory of that happy time when she believed in him and he was all in all to her.
+ - And the good fairy said, I won’t leave you money or pretty dresses but I will leave you the spirit to seek your fortune from your own efforts.
+ - I was thinking what a curious thing love is; only a sentiment, and yet it has power to make fools of men and slaves of women.
+ - No woman should give her happiness into the keeping of a man without fixed principles...
+ - Energy is more attractive than beauty in a man.
+ - It’s amazing how lovely common things become, if one only knows how to look at them.
+ - Love is a great beautifier.
+ - Have regular hours for work and play; make each day both useful and pleasant, and prove that you understand the worth of time by employing it well. Then youth will bring few regrets, and life will become a beautiful success.
+ - Simple, genuine goodness is the best capital to found the business of this life upon. It lasts when fame and money fail, and is the only riches we can take out of this world with us.
+ - Woman work a great many miracles.
+ - Dear me! how happy and good we’d be, if we had no worries!
+ - Love is a flower that grows in any soil, works its sweet miracles undaunted by autumn frost or winter snow, blooming fair and fragrant all the year, and blessing those who give and those who receive.
+ - Work is always my salvation and I will celebrate it.
+ - I shall keep my book on the table here, and read a little every morning as soon as I wake, for I know it will do me good, and help me through the day.
+ - Help one another is part of the religion of our sisterhood.
+ - My only answer is, if my grave stood open on one side and you upon the other I’d go into my grave before I would take one step to meet you.
+ - I am angry nearly every day of my life, but I have learned not to show it; and I still try to hope not to feel it, though it may take me another forty years to do it.
+ - Let us be elegant or die! – Amy.
+ - Watch and pray, dear, never get tired of trying, and never think it is impossible to conquer your fault.
+ - You are like a chestnut burr, prickly outside, but silky-soft within, and a sweet kernel, if one can only get at it. Love will make you show your heart some day, and then the rough burr will fall off.
+ - Far away there in the sunshine are my highest aspirations.
+ - But the spirit of Eve is strong in all her daughters.
+ - Don’t shut yourself up in a band box because you are a woman, but understand what is going on, and educate yourself to take part in the world’s work, for it all affects you and yours.
+ - I’d rather see you poor men’s wives, if you were happy, beloved, contented, than queen’s on thrones, without self-respect and peace.
+ - Christmas won’t be Christmas without any presents.
+ - A little kingdom I possess, where thoughts and feelings dwell; And very hard the task I find of governing it well.
+ - I never wanted to go away, and the hard part now is the leaving you all. I’m not afraid, but it seems as if I should be homesick for you even in heaven.
+ - A quick temper, sharp tongue, and restless spirit were always getting her into scrapes, and her life was a series of ups and downs, which were both comic and pathetic.
+ - The rooms were very still while the pages were softly turned and the winter sunshine crept in to touch the bright heads and serious faces with a Christmas greeting.
+ - Simple, sincere people seldom speak much of their piety; it shows itself in acts rather than words, and has more influence than homilies or protestations.
+ - Salt is like good-humor, and nearly every thing is better for a pinch of it.
+ - Beth ceased to fear him from that moment, and sat there talking to him as cozily as if she had known him all her life, for love casts out fear, and gratitude can conquer pride.
+ - A real gentleman is as polite to a little girl as to a woman.
+ - A child her wayward pencil drew On margins of her book; Garlands of flower, dancing elves, Bud, butterfly, and brook, Lessons undone, and plum forgot, Seeking with hand and heart The teacher whom she learned to love Before she knew t’was Art.
+ - Money is the root of all evil, and yet it is such a useful root that we cannot get on without it any more than we can without potatoes.
+ - Conceit spoils the finest genius.
+ - Youth, health and freedom were meant to be enjoyed and I want to try every pleasure before I am too old to enjoy them.
+ - Oh, Jo, how could you? Your one beauty.
+ - Love scenes, if genuine, are indescribable; for to those who have enacted them the most elaborate description seems tame, and to those who have not, the simplest picture seems overdone.
+ - And when they went away, leaving comfort behind, I think there were not in all the city four merrier people than the hungry little girls who gave away their breakfasts and contented themselves with bread and milk on Christmas morning.
+ - When I had the youth I had no money, now I have the money I have no time, and when I get the time, if I ever do, I shall have no health to enjoy life.
+ - Madam de Stael pronounced architecture to be frozen music; so is statuary crystalized spirituality.
+ - It takes so little to make a child happy, that it is a pity in a world full of sunshine and pleasant things, that there should be any wistful faces, empty hands, or lonely little hearts.
+ - I may be strong-minded, but no one can say I’m out of my sphere now, for woman’s special mission is supposed to be drying tears and bearing burdens.
+ - Good, old-fashioned ways keep hearts sweet, heads sane, hands busy.
+ - Wouldn’t it be fun if all the castles in the air which we make could come true and we could live in them?
+ - But buds will be roses, and kittens, cats – more’s the pity.
+ - Every house needs a grandmother in it.
+ - I’ll try to be what Father loves to call me, a ‘little woman,’ and not be rough and wild but do my duty here instead of wanting to be somewhere else.
+ - People want to be amused, not preached at, you know. Morals don’t sell nowadays.
+ - I will make a battering-ram of my head and make my way through this rough and tumble world.
+ - I like to help women help themselves, as that is, in my opinion, the best way to settle the woman question. Whatever we can do and do well we have a right to, and I don’t think any one will deny us.
+ - People cannot be molded like clay.
+ - Prosperity suits some people, and they blossom best in a glow of sunshine; others need the shade, and are the sweeter for a touch of frost.
+ - Do the things you know, and you shall learn the truth you need to know.
+ - I put in my list all the busy, useful independent spinsters I know, for liberty is a better husband than love to many of us.
+ - Father asked us what was God’s noblest work. Anna said men, but I said babies. Men are often bad, but babies never are.
+ - The mere possession of a gun is, in itself, an urge to kill, not only by design, but by accident, by madness, by fright, by bravado.
+ - My book came out; and people began to think that topsy-turvy Louisa would amount to something after all.
+ - The duty we owe ourselves is greater than that we owe others.
+ - We can’t any of us do all we would like, but we can do our best for every case that comes to us, and that helps amazingly.
+ - I never knew how much like heaven this world could be, when two people love and live for one another!
+ - Wild roses are fairest, and nature a better gardener than art.
+ - Go out more, keep cheerful as well as busy, for you are the sunshine-maker of the family, and if you get dismal there is no fair weather.
+ - He was the first, the only love her life, and in a nature like hers such passions take deep root and die-hard.
+ - At twenty-five, girls begin to talk about being old maids, but secretly resolve that they never will. At thirty, they say nothing about it, but quietly accept the fact.
+ - I want to be great, or nothing. I won’t be a commonplace dauber, so I don’t intend to try any more.
+ - Women have been called queens for a long time, but the kingdom given them isn’t worth ruling.
+ - Now I’m beginning to live a little and feel less like a sick oyster at low tide.
+ - Meg’s high-heeled slippers were dreadfully tight, and hurt her, though she would not own it; and Jo’s nineteen hair-pins all seemed stuck straight into her head, which was not exactly comfortable; but, dear me, let us be elegant or die.
+ - Well, if I can’t be happy, I can be useful, perhaps.
+ - The young people were playing that still more absorbing game in which hearts are always trumps.
+ - John Brooke is acting dreadfully, and Meg likes it!
+ - The scar will remain, but it is better for a man to lose both arms than his soul; and these hard years, instead of being lost, may be made the most precious of your lives, if they teach you to rule yourselves.
+ - The fear of being an old maid made young girls rush into matrimony with a recklessness that astonishes.
+ - You have grown abominably lazy, and you like gossip, and waste time on frivolous things, you are contented to be petted and admired by silly people, instead of being loved and respected by wise ones.
+ - Resolved to take fate by the throat and shake a living out of her.
+ - Dan clung to her in speechless gratitude, feeling the blessedness of mother love, – that divine gift which comforts, purifies, and strengthens all who seek it.
+ - The small hopes and plans and pleasures of children should be tenderly respected by grown-up people, and never rudely thwarted or ridiculed.
+ - I had a pleasant time with my mind, for it was happy.
+ - No love or pity, pardon or excuse should soften the sharp pang of reparation for the guilty man.
+ - Mine first – mine last – mine even in the grave!
+ - Mothers can forgive anything!
+ - The patience and the humility of the face she loved so well was a better lesson to Jo than the wisest lecture, the sharpest reproof.
+ - It was forunate that tea was at hand, to produce a lull and provide refreshment...
+ - Books are always good company if you have the right sort.
+ - It takes three or four women to get each man into, through, and out of the world.
+ - Don’t cry so bitterly, but remember this day, and resolve with all your soul that you will never know another like it.
+ - Now and then, in this workaday world, things do happen in the delightful storybook fashion, and what a comfort that is.
+ - Fame is a pearl many dive for and only a few bring up. Even when they do, it is not perfect, and they sigh for more, and lose better things in struggling for them.
+ - Rule yourself. Love your neighbor. Do the duty that lies nearest you.
+ - Oh dear, life is pretty tough sometimes, isn’t it?
+ - Cheerfulness can change misfortune into love and friends.
+ - Your father, Jo. He never loses patience, never doubts or complains, but always hopes, and works and waits so cheerfully that one is ashamed to do otherwise before him.
+ - The moment Aunt March took her nap, or was busy with company, Jo hurried to this quiet place, and curling herself up in the easy chair, devoured poetry, romance, history, travels, and pictures like a regular bookworm.
+ - If we are all alive ten years hence, let’s meet, and see how many of us have got our wishes, or how much nearer we are then than now.
+ - Fame is a very good thing to have in the house, but cash is more convenient.
+ - She preferred imaginary heroes to real ones, because when tired of them, the former could be shut up in the tin kitchen till called for, and the latter were less manageable.
+ - Dolls are safe companions.
+ - I’m afraid I couldn’t like him without a spice of human naughtiness.
+ - Young men often laugh at the sensible girls whom they secretly respect, and affect to admire the silly ones whom they secretly despise, because earnestness, intelligence, and womanly dignity are not the fashion.
+ - Our actions are in our own hands, but the consequences of them are not. Remember that, my dear, and think twice before you do anything.
+ - I’ve neither beauty, money, nor rank, yet every foolish boy mistakes my frank interest for something warmer, and makes me miserable. It is my misfortune. Think of me what you will, but beware of me in time, for against my will I may do you harm.
+ - I think she is growing up, and so begins to dream dreams, and have hopes and fears and fidgets, without knowing why or being able to explain them.
+ - They were enjoying the happy hour that seldom comes but once in any life, the magical moment which bestows youth on the old, beauty on the plain, wealth on the poor, and gives human hearts a foretaste of heaven.
+ - But please hug and kiss me, everyone, and don’t mind my dress, I want a great many crumples of this sort put into it today.
+ - The female population exceeds the male, you know, especially in New England, which accounts for the high state of culture we are in, perhaps.
+ - I’m perfectly miserable; but if you consider me presentable, I die happy.
+ - Girls could do most things as well as boys, and some things better.
+ - I’m tired of praise; and love is very sweet, when it is simple and sincere like this.
+ - I love my liberty too well to be in a hurry to give it up for any mortal man.
+ - We’ll all grow up Meg, no pretending we won’t.
+ - Young people think they never can change, but they do in the most wonderful manner, and very few die of broken hearts.
+ - Love and Loyalty If ever men and women are their simplest, sincerest selves, it is when suffering softens the one, and sympathy strengthens the other.
+ - To me, love isn’t all. I must look up, not down, trust and honor with my whole heart, and find strenght and integrity to lean on.
+ - Laurie felt just then that his heart was entirely broken and the world a howling wilderness.
+ - Many argue; not many converse.
+ - Have your fun, my dear; but if you must earn your bread, try to make it sweet with cheerfulness, not bitter with the daily regret that it isn’t cake.
+ - So she doesn’t call desertion, poverty, and hard work troubles? She’s a brave little girl, and I shall be proud to know her.
+ - I only mean to say that I have a feeling that it never was intended I should live long. I’m not like the rest of you.
+ - I’ve learned to check the hasty words that rise to my lips, and when I feel that they mean to break out against my will, I just go away for a minute, and give myself a little shake for being so weak and wicked.
+ - Is it not meningitis?
+ - There was a good deal of laughing and kissing and explaining, in the simple, loving fashion which makes these home-festivals so pleasant at the time, so sweet to remember long afterward, and then all fell to work.
+ - I can’t get over my disappointment in not being a boy.
+ - Men are always ready to die for us, but not to make our lives worth having. Cheap sentiment and bad logic.
+ - I make so many beginnings there never will be an end.
+ - Elegance has a bad effect on my constitution.
+ - Persuasive influences are better than any amount of moralizing.
+ - It’s a great comfort to have an artistic sister.
+ - People don’t have fortunes left them in that style nowadays; men have to work and women to marry for money. It’s a dreadfully unjust world.
+ - Ridicule is often harder to bear than self-denial.
+ - The dirt is picturesque, so I don’t mind.
+ - But, Polly, a principle that can’t bear being laughed at, frowned on, and cold-shouldered, isn’t worthy of the name.
+ - Fathers and mothers are too absorbed in business and housekeeping to study their children, and cherish that sweet and natural confidence which is a child’s surest safeguard, and a parent’s subtlest power.
+ - Dear me! If only men and women would trust, understand and help as my children do, what a capital place ’the world would be!
+ - I asked for bread, and I got a stone in the shape of a pedestal.
+ - So she enjoyed herself heartily, and found, what isn’t always the case, that her granted wish was all she had hoped.
+ - Rome took all the vanity out of me; for after seeing the wonders there, I felt too insignificant to live, and gave up all my foolish hopes in despair.
+ - Where’s the use of looking nice, when no one sees me but those cross midgets, and no one cares whether I’m pretty or not?
+ - Life is like college; may I graduate and earn some honors.
+ - It takes very little fire to make a great deal of smoke nowadays, and notoriety is not real glory.
+ - A kiss for a blow is always best, though it’s not very easy to give it sometimes.
+ - You may try your experiment for a week and see how you like it. I think by Saturday night you will find that all play and no work is as bad as all work and no play.
+ - If I didn’t care about doing right and didn’t feel uncomfortable doing wrong, I should get on capitally.
+ - Liberty must not be abused.
+ - Mac looked up with the oddest of all his odd expressions.
+ - He was poor, yet always appeared to be giving something away; a stranger, yet everyone was his friend; no longer young, but as happy-hearted as a boy; plain and peculiar, yet his face looked beautiful to many.
+ - I do like men who come out frankly and own that they are not gods.
+ - All is fish that comes to the literary net. Goethe puts his joys and sorrows into poems, I turn my adventures into bread and butter.
+ - Life is my university, and I hope to graduate from it with some distinction.
+ - Money is a needful and precious thing.
+ - Where the heart is the mind works best.
+ - We don’t choose our talents; but we needn’t hide them in a napkin because they are not just what we want.
+ - Everybody has their days of misfortune.
+ - What do girls do who haven’t any mothers to help them through their troubles?
+ - Many wise and true sermons are preached us everyday by unconscious ministers in street, school, office, or home; even a fair table may become a pulpit, if it can offer the good and helpful words which are never out of season.
+ - Love is apt to make lunatics of even men and saints.
+ - To most the end comes as naturally and simply as sleep.
+ - For the wise old man was universally beloved, and ministered so beautifully to his flock that many of them thanked him all their lives for the help given to both hearts and souls.
+ - It’s lovely to see people so happy.
+ - I don’t think it’s fair for some girls to have plenty of pretty things, and other girls nothing at all.
+ - Girls are so queer you never know what they mean. They say No when they mean Yes, and drive a man out of his wits for the fun of it.
+ - She fell into the moody, miserable state of mind which often comes when strong wills have to yield to the inevitable.
+ - Now we are expected to be as wise as men who have had generations of all the help there is, and we scarcely anything.
+ - She had a womanly instinct that clothes possess an influence more powerful over many than the worth of character or the magic of manners.
+ - It takes people a long time to learn the difference between talent and genius, especially ambitious young men and women.
+ - Souls and bodies should go on together.
+ - I believe that it is as much a right and duty for women to do something with their lives as for men and we are not going to be satisfied with such frivolous parts as you give us.
+ - Mothers can forgive anything! Tell me all, and be sure that I will never let you go, though the whole world should turn from you.
+ - Rivalry adds so much to the charms of one’s conquests.
+ - Every few weeks she would shut herself up in her room, put on her scribbling suit, and fall into a vortex, as she expressed it, writing away at her novel with all her heart and soul, for till that was finished she could find no peace.
+ - Now and then genius carries all before it, but not often. We have to climb slowly, with many slips and falls.
+ - Jo’s eyes sparkled, for it’s always pleasant to be believed in; and a friend’s praise is always sweeter than a dozen newspaper puffs.
+ - A time will come when you will find that in gaining a brief joy you have lost your peace forever.
+ - One of the sweet things about pain and sorrow is that they show us how well we are loved, how much kindness there is in the world, and how easily we can make others happy in the same way when they need help and sympathy.
+ - O vanity, mislead no more!
+ - Prove that you understand the worth of time by employing it well.
+ - I did fail, say what you will, for Jo wouldn’t love me.
+ - I for one don’t want to be ranked among idiots, felons, and minors any longer, for I am none of them.
+ - All the worse for the undeniable talent which hides the evil so subtly and makes the danger so delightful.
+ - Sympathy is a sweet thing.
+ - Men are often bad, but babies never are.
+ - That is a good book it seems to me, which is opened with expectation and closed with profit.
+ - Remember that frost comes latest to those that bloom the highest.
+ - My father taught in the wise way which unfolds what lies in the child.
+
+228 quotes

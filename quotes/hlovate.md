@@ -1,0 +1,21 @@
+ - Never assume. Ask.
+ - You’ll never reach perfection because there’s always room for improvement. Yet get along the way to perfection, you’ll learn to get better.
+ - To live is learn, and to learn is to live. Live. Learn.
+ - Ingatlah sahabat, impian adalah titik gerak langkah kita, kesungguhan dan keyakinanmu bakal menentukan titik akhirnya.
+ - The man that decided to change on the 12th hours died at the 11th.
+ - Changing for good ain’t a crime.
+ - To hate others is ugly. To hate yourself is uglier.
+ - Selagi hidup bersama masa, maka selagi itu juga yang hidup itu dewasa bersama usia.
+ - Complex question can only be solved by patience.
+ - We’re on the same boat but in different cabin.
+ - Hidup hanya ada erti pada yang bahagia.
+ - Everybody know death is inevitably coming, but it never fails to catch everybody by surprise everytime one is going.
+ - Changes in life, taking the turning point. Everyone passes numerous paths along the road of life. There’s a dilemma when it comes to choosing.
+ - My books are my staple diet. As serious as insulin doses for those who are diabetics!
+ - As truth be told, homecoming never gets old.
+ - There’re times when strangers are like family, and family are like strangers.
+ - Happiness is a nothingness without completeness.
+ - Either get together or scatter.
+ - Losing never come easy. First off, preserved the memories.
+
+19 quotes

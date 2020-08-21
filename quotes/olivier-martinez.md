@@ -1,0 +1,41 @@
+ - Love is based on imagination.
+ - Who knows what happens tomorrow? We’ll find it tomorrow.
+ - I want just to be happy and peaceful. And that’s not always the case when you’re married.
+ - I always say I was born too late in the world, too old.
+ - I quit after a bad car accident. The thing about boxing is that you can be a star for five or six years, but when you go back to the old life, it’s tough.
+ - It’s a matter of time; you adapt to the different culture and different way of life. Human beings are adaptable.
+ - Everybody has some talents – we all have an art side and some talent – but you have some areas where you are better than others. My area is acting, I guess. I hope.
+ - If you want to be happy, live discreetly. Does that make sense in English?
+ - But what I really like are old Hollywood movies. Very often I watch AMC.
+ - I like Paris. My problem is I don’t like Parisians.
+ - When you’re a foreigner, at the beginning you are far away from the culture. Then, little by little, you start to interact with people, have friends, have a life, and then you feel more comfortable.
+ - And what’s more I’ve got no need for anyone to tell me how to do it. I am not interested. You act how you want to and leave me alone to do my own thing.
+ - Before, I was so stupid. But, you know, when you have friends who died on the street, you say, okay, let’s calm down. It’s not the kind of energy I want to have in life. I want to go slower, and longer.
+ - It’s not only imagination, it’s the distortion of the vision. You suddenly think, This person is idealistic, this person is strong, this person has dreams, when you know better most of the time. You put what you want to see on people.
+ - If you compare me to an actor, I’m probably one of the best boxers in the profession. But if you compare me as a boxer, I’m probably one of the best actors.
+ - I don’t have goals in life.
+ - When I was a kid, I was watching the movies my parents wanted to watch. I came from a working class family, not specifically educated, so we were watching popular movies. My dad liked cowboy movies, so we were watching cowboy movies. Some of them were amazing. It’s a genre of movie I like very much.
+ - I was born and raised in a suburb of Paris by a working-class family.
+ - It’s like all the signs were telling me that I shouldn’t be a boxer, so I quit.
+ - But when you work with the director and the real person who is playing opposite you, it changes everything. You are almost in a working session. I was very comfortable, and that’s maybe what helped me to get the part.
+ - And I think it is the genius of actors to be able to escape whatever people are expecting of them. Otherwise you become like a factory worker.
+ - Brave is good – especially when you are a soldier.
+ - Imagination creates some big monsters.
+ - It’s nice to have some distance with your family. As long as you’re closer to them by love.
+ - I have an accent, I’m limited, I have to play foreign parts – I would love to play American parts but I can’t because I have an accent. You are more limited as a foreigner in every area.
+ - I don’t feel restricted by the language: I feel more free.
+ - I’ll always be a foreigner.
+ - My father was champion of North Africa and he beat the European champ. He was very good, a professional for 12 years. We’re from a big family of boxers. My father has seven brothers.
+ - I like Brad Pitt; I just have nothing to do with him.
+ - Also, I have found that I really like to work in English. It’s very strange because it’s exactly the opposite of what I thought it would be like.
+ - I really believe great actors, even with disease and age, can be great.
+ - I wanted to become a champ – I was surrounded by champs in my family and in my neighborhood – and because of this stupid accident, I lost my opportunity.
+ - I played a scene at the end of my first year, and that’s how I was discovered.
+ - People sometimes recognize me here, but they are very nice.
+ - I don’t want to dig in the truth all of the time. Let me dream.
+ - I’m not a movie star like other actors in the way that I need to walk with a bodyguard.
+ - The first time Adrian saw me was on tape. But you should know that this never works – never in the history of movies has someone been cast from a video.
+ - I see my friends, my family, my cousins work all day long for very little money, and if I have this problem of not being able to wall on the streets, it’s not a big deal.
+ - I never analyze why I was with one woman instead of another.
+
+39 quotes

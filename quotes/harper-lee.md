@@ -1,0 +1,128 @@
+ - You never really understand a person until you consider things from his point of view – until you climb inside of his skin and walk around in it.
+ - It's better to be silent than to be a fool.
+ - Remember it's a sin to kill a mockingbird.
+ - The book to read is not the one that thinks for you but the one which makes you think.
+ - People generally see what they look for, and hear what they listen for.
+ - Things are never as bad as they seem.
+ - Courage is when you know you're licked before you begin, but you begin anyway and you see it through no matter what.
+ - The one thing that doesn't abide by majority rule is a person's conscience.
+ - Until I feared I would lose it, I never loved to read. One does not love breathing.
+ - People in their right minds never take pride in their talents.
+ - Things are always better in the morning.
+ - Shoot all the blue jays you want, if you can hit ’em, but remember it’s a sin to kill a mockingbird.
+ - Any writer worth his salt writes to please himself. It's a self-exploratory operation that is endless. An exorcism of not necessarily his demon, but of his divine discontent.
+ - As a reader I loathe introductions. Introductions inhibit pleasure, they kill the joy of anticipation, they frustrate curiosity.
+ - Atticus told me to delete the adjectives and I’d have the facts.
+ - You just hold your head high and keep those fists down. No matter what anybody says to you, don’t you let ‘em get your goat. Try fightin’ with your head for a change. -Atticus Finch.
+ - We're paying the highest tribute you can pay a man. We trust him to do right. It's that simple.
+ - Simply because we were licked a hundred years before we started is no reason for us not to try to win.
+ - It’s never an insult to be called what somebody thinks is a bad name. It just shows you how poor that person is, it doesn’t hurt you.
+ - Sometimes the Bible in the hands of one man is worse than a whiskey bottle in the hands of another.
+ - I’m still old-fashioned. I love dusty old books and libraries.
+ - You rarely win, but sometimes you do.
+ - You see they could never, never understand that I live like I do because that’s the way I want to live.
+ - There’s no substitute for the love of language, for the beauty of an English sentence. There’s no substitute for struggling, if a struggle is needed, to make an English sentence as beautiful as it should be.
+ - Writing is something you’ll never learn in any university or at any school. It’s something that is within you, and if it isn’t there, nothing can put it there.
+ - It’s not time to worry yet.
+ - When you’re at the top, there’s only one way to go.
+ - I do my best to love everybody.
+ - Best way to clear the air is to have it all out in the open.
+ - I think there’s just one kind of folks. Folks.
+ - As you grow older, you’ll see white men cheat black men every day of your life, but let me tell you something and don’t you forget it – whenever a white man does that to a black man, no matter who he is, how rich he is, or how fine a family he comes from, he is trash.
+ - Everybody’s gotta learn, nobody’s born knowing.
+ - It was times like these when I thought my father, who hated guns and had never been to any wars, was the bravest man who ever lived.
+ - Prejudice, a dirty word, and faith, a clean one, have something in common: they both begin where reason ends.
+ - Mockingbirds don’t do one thing but make music for us to enjoy. They don’t eat up people’s gardens, don’t nest in corncribs, they don’t do one thing but sing their hearts out for us. That’s why it’s a sin to kill a mockingbird.
+ - Pass the damn ham, please.
+ - Writing is a process of self-discipline you must learn before you can call yourself a writer. There are people who write, but I think they’re quite different from people who must write.
+ - It’s not necessary to tell all you know.
+ - Writing is simply something you must do. It’s rather like virtue in that it is its own reward.
+ - Finders were keepers unless title was proven.
+ - A man can condemn his enemies, but it’s wiser to know them.
+ - Are you proud of yourself tonight that you have insulted a total stranger whose circumstances you know nothing about?
+ - Atticus said naming people after Confederate generals made slow steady drinkers.
+ - Boo was our neighbor. He gave us two soap dolls, a broken watch and chain, a pair of good-luck pennies, and our lives.
+ - Cecil Jacobs is a big wet hen!
+ - Sometimes it’s better to bend the law a little in special cases.
+ - With him, life was routine; without him, life was unbearable.
+ - I know now what he was trying to do, but Atticus was only a man. It takes a woman to do that kind of work.
+ - There’s a lot of ugly things in this world, son. I wish I could keep ’em all away from you. That’s never possible.
+ - Any writer worth his salt writes to please himself.
+ - When a child asks you something, answer him, for goodness sake. But don’t make a production of it. Children are children, but they can spot an evasion faster than adults, and evasion simply muddles ’em.
+ - Characters make their own plot. The dimensions of the characters determine the action of the novel.
+ - I was born good but had grown progressively worse every year. Scout.
+ - Where are your pants, son?
+ - Let the dead bury the dead.
+ - You can’t really get to know a person until you get in their shoes and walk around in them.
+ - They’ve done it before and they’ll do it again and when they do it – seems that only the children weep. Good night.
+ - When stalking one’s prey, it is best to take one’s time. Say nothing, and as sure as eggs he will become curious and emerge.
+ - The things that happen to people we never really know. What happens in houses behind closed doors, what secrets -.
+ - In Maycomb, if one went for a walk with no definite purpose in mind, it was correct to believe one’s mind incapable of definite purpose.
+ - Summer, and he watches his children’s heart break. Autumn again and Boo’s children needed him. Atticus was right. One time he said you never really know a man until you stand in his shoes and walk around in them. Just standing on the Radley porch was enough.
+ - Jen and I were accustomed to our father’s last-will-and-testament diction, and were at times free to interrupt Atticus for a translation when it was beyond our understanding.
+ - Dill if you don’t hush I’ll knock you bowlegged.
+ - She knew full well the enormity of her offense, but because her desires were stronger than the code she was breaking, she persisted in breaking it.
+ - This time we aren’t fighting the Yankees, we’re fighting our friends. But remember this, no matter how bitter things get, they’re still our friends and this is still our home.
+ - I say guilt, gentlemen, because it was guilt that motivated her. She has committed no crime, she has merely broken a rigid and time-honored code of our society.
+ - Ladies in bunches always filled me with vague apprehension and a firm desire to be elsewhere.
+ - I do much of my creative thinking while golfing. If people know you’re working at home they think nothing of walking in for a cup of coffee, but wouldn’t dream of interrupting on the golf course.
+ - No, everybody’s gotta learn, nobody’s born knowin’. That Walter’s as smart as he can be, he just gets held back sometimes because he has to stay out and help his daddy. Nothin’s wrong with him. Naw, Jem, I think there’s just one kind of folks. Folks.
+ - That boy is your company. And if he wants to eat up that tablecloth, you let him, you hear?
+ - I wanted you to see what real courage is, instead of getting the idea that courage is a man with a gun in his hand.
+ - I was not so sure, but Jem told me I was being a girl, that girls always imagined things, that’s why other people hated them so, and if I started behaving like one I could just go off and find some to play with.
+ - I try to give’em a reason, you see. It helps folks if they can latch onto a reason.
+ - It’s quite a thing, if you’ve never been in or known a small southern town. The people are not particularly sophisticated, naturally. They’re not worldly wise in any way. But they tell you a story whenever they see you.
+ - They’re ugly, but those are the facts of life.
+ - I’m little but I’m old.
+ - Nothin’s real scary except in books.
+ - Now that I was compelled to think about it, reading was something that just came to me, as learning to fasten the seat of my union suit without looking around, or achieving two bows from a snarl of shoelaces.
+ - As I made my way home, I thought Jem and I would get grown but there wasn’t much else for us to learn, except possibly algebra.
+ - The one place where a man ought to get a square deal is in a courtroom, be he any color of the rainbow, but people have a way of carrying their resentments right into a jury box.
+ - When he was nearly thirteen, my brother Jem got his arm badly broken at the elbow.
+ - When a man spends his relief checks on green whiskey his children have a way of crying from hunger pains.
+ - Atticus had said it was the polite thing to talk to people about what they were interested in, not about what you were interested in.
+ - Serving on a jury forces a man to make up his mind and declare himself about something. Men don’t like to do that. Sometimes it’s unpleasant.
+ - Cry about the simple hell people give other people- without even thinking. Cry about the hell white people give colored folks, without even stopping to think that they’re people too.
+ - I’m no idealist to believe firmly in the integrity of our courts and in the jury system – that is no ideal to me, it is a living, working reality.
+ - Never, never, never on cross-examination ask a witness a question you don’t already know the answer to, was a tenet I absorbed with my baby food. Do it, and you’ll often get an answer you don’t want.
+ - I came to the conclusion that people were just peculiar, I withdrew from them, and never thought about them until I was forced to.
+ - There’s just some kind of men you have to shoot before you can say hidy to ’em. Even then, they ain’t worth the bullet it takes to shoot ’em.
+ - Talking to Francis gave me the sensation of settling slowly to the bottom of the ocean.
+ - Nothing is more deadly than a deserted, waiting street.
+ - I don’t want to hear any words like that while I’m here. Scout, you’ll get in trouble if you go around saying things like that. You want to grow up to be a lady, don’t you?? I said not particularly.
+ - That proves something- that a gang of wild animals can be stopped, simply because they’re still human.
+ - There is one way in this country in which all men are created equal – there is one human institution that makes a pauper the equal of a Rockefeller, the stupid man the equal of an Einstein, and the ignorant man the equal of any college president. That institution, gentlemen, is the court.
+ - Miss Jean Louise, stand up. Your father’s passin’.
+ - Ladies bathed before noon, after their three o’clock naps, and by nightfall were like soft teacakes with frostings of sweat and sweet talcum.
+ - Why reasonable people go stark raving mad when anything involving a Negro comes up, is something I don’t pretend to understand.
+ - Don’t you study about other folks’s business till you take care of your own.
+ - Bad language is a stage all children go through, and it dies with time when they learn they’re not attracting attention with it.
+ - I have said what I wanted to say and I will not say it again.
+ - Some negroes lie, some are immoral, some negro men are not be trusted around women – black and white. But this is a truth that applies to the human race and to no particular race of men.
+ - There are some men in this world who are born to do our unpleasant jobs for us. Your father’s one of them.
+ - A mob’s always made up of people, no matter what. Mr. Cunningham was part of a mob last night, but he was still a man. Every mob in every little Southern town is always made up of people you know – doesn’t say much for them, does it?
+ - She’s an old lady and she’s ill. You just hold your head high and be a gentleman. Whatever she says to you, it’s your job not to let her make you mad.
+ - She was born in the Objective case.
+ - Mutual defiance made them alike.
+ - I don’t hafta take his sass.
+ - Before Jem looks at anyone else he looks at me, and I’ve tried to live so I can look squarely back at him.
+ - He turned out the light and went into Jem’s room. He would be there all night, and he would be there when Jem waked up in the morning.
+ - Being Southerners, it was a source of shame to some members of the family that we had no recorded ancestors on either side of the Battle of Hastings.
+ - I didn’t know how you were going to do it, but from now on I’ll never worry about what’ll become of you, son, you’ll always have an idea.
+ - We’re so rarely called on to be Christians, but when we are, we’ve got men like Atticus to go for us.
+ - Folks don’t like to have somebody around knowing more than they do.
+ - We said good-bye, and Dill went inside the house. He evidently remembered he was engaged to me, for he ran back out and kissed me swiftly in front of Jem. “Yawl write, hear?” he bawled after us.
+ - You can pet him, Mr. Arthur. He’s asleep...
+ - She seemed glad to see me when I appeared in the kitchen, and by watching her I began to think there was some skill involved in being a girl.
+ - Weeping for Anna Karenina and being terrified by Hannibal Lecter, entering the heart of darkness with Mistah Kurtz, having Holden Caulfield ring you up – some things should happen on soft pages, not cold metal.
+ - One must lie under certain circumstances and at all times when one can’t do anything about them.
+ - You’ve really got to start hitting the books because it’s no joke out here.
+ - My objectives are very limited. I want to do the best I can with the talent God gave me. I hope to goodness that every novel I do gets better and better, not worse and worse.
+ - My book had a universal theme. It’s not a “racial” novel. It portrays an aspect of civilization, not necessarily Southern civilization.
+ - Ladies pick funny things to be proud of.
+ - Southern lawyers don’t read novels much.
+ - Again, as I had often met it in my own church, I was confronted with the Impurity of Women doctrine that seemed to preoccupy all clergymen.
+ - Miss Caroline seemed unaware that the ragged, denim-shirted and floursack-skirted first grade, most of whom had chopped cotton and fed hogs from the time they were able to walk, were immune to imaginative literature.
+ - My father is one of the few men I’ve known who has genuine humility, and it lends him a natural dignity. He has absolutely no ego drive, and so he is one of the most beloved men in this part of the state.
+
+126 quotes

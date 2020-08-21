@@ -1,0 +1,48 @@
+ - Hate generalizes; love specifies. Or: The movements of hatred are toward generalization; love’s movements are toward specification.
+ - An indigenous feminism has been present in every culture in the world and in every period of history since the suppression of women began.
+ - Knowledge is power. Information is power. The secreting or hoarding of knowledge or information may be an act of tyranny camouflaged as humility.
+ - Sisterhood is powerful.
+ - Friendship is mutual blackmail elevated to the level of love.
+ - No matter how expected, death is always the ultimate surprise.
+ - Women are a colonized people.
+ - The Confucian concept and Chinese ideograms for ‘woman’ and for ‘slave’ are the same.
+ - Any single path truly taken leads to all the others. What matters is choosing a starting place – where to stand and begin spinning outward. Even then, you will find that outward and inward become the same direction. The center of the wheel is everywhere.
+ - There’s something contagious about demanding freedom.
+ - Clarity of language is the first casualty of authoritarianism.
+ - Ordinary is a word that has no meaning.
+ - When table utensils were invented in the 1100s, the Catholic Church condemned them as obscene and heretical, claiming, ‘God gave us fingers with which to eat.’ And we’re supposed to get politically discouraged? Oh please. We’re being opposed by people who denounced the fork.
+ - The women’s movement is a non-hierarchical one. It does things collectively and experimentally.
+ - Your life is the one place you have to spend yourself fully – wild – generous, drastic in an unrationed profligacy of self...
+ - Listen – life is really going on, right now, around us. Do you see it? Sometimes I lose it but if I sit still and listen, it comes back, and then I think, How funny, this is what being alive is.
+ - Children, together with women, constitute 90 percent of all refugee populations on the planet as well as the vast majority of those living in absolute poverty: the ‘feminization of poverty’ means that children are poor, too, since most parenting is done by mothers.
+ - Carry yourself as one who will change the world, because you will.
+ - What would we do without irony? Check out your own daily reliance on it, the foul-weather friend who’s there for you when nothing else is.
+ - I feel that ‘man-hating’ is an honourable and viable political act, that the oppressed have a right to class-hatred against the class that is oppressing them.
+ - Metaphor is the energy charge that leaps between images, revealing their connections.
+ - Sexism is not the fault of women – kill your fathers, not your mothers.
+ - For a poet, making poems is a way of viewing the world, being in the world, breathing.
+ - The “Otherizing” of women is the oldest oppression known to our species, and it’s the model, the template, for all other oppressions.
+ - Silence is the first thing within the power of the enslaved to shatter. From that shattering, everything else spills forth.
+ - White males are the most responsible for the destruction of human life and environment on the planet today.
+ - Where else could one find such a perfect combination of American values – racism, militarism, capitalism – all packaged in one ‘ideal’ symbol, a woman.
+ - Women are not inherently passive or peaceful. We’re not inherently anything but human.
+ - If I had to characterize one quality as the genius of feminist thought, culture, and action, it would be the connectivity.
+ - The egg cackles and lays the chicken.
+ - Feminism is for all women and girls, not a privileged few or one ethnicity, religion, age, sexual preference, ability, region or hemisphere.
+ - Legitimate revolution must be led by, made by those who have been most oppressed: black, brown, yellow, red, and white women-with men relating to that the best they can.
+ - The present always masquerades as a beginning; maybe we couldn’t endure it if we realized at the time that it was a peak, or even an ending.
+ - When solutions are offered us by the people who originally brought us the problem, we do well to be suspicious.
+ - The subtlest and most vicious aspect of women’s oppression is that we have been conditioned to believe we are not oppressed, blinded so as not to see our own condition.
+ - I am an artist and a political being as well.
+ - In the long run, Women’s Liberation will of course free men-but in the short run it’s going to COST men a lot of privilege, which no one gives up willingly or easily.
+ - We can’t destroy the inequities between men and women until we destroy marriage.
+ - Crisis can be an addiction as powerful as any other...
+ - Don’t accept rides from strange men, and remember that all men are strange.
+ - We are the women men warned us about.
+ - I still gasp at the revealing lingo for weapons: erector launchers, thrust ratios; my teeth grind reflexively when Dubya sputters Eye-Rack and Eye-Ran have ’nookyular capabacity.
+ - All art is the tension, expressed between the uncontainable and its one perfect inevitable form.
+ - Oppression is something that one group of people commits against another group specifically because of a threatening characteristic shared by the latter group.
+ - Let’s put one lie to rest for all time: the lie that men are oppressed, too, by sexism-the lie that there can be such a thing as men’s liberation groups.
+ - Politics becomes a part of your life once you realize it has been all along.
+
+46 quotes

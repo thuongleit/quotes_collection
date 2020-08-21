@@ -1,0 +1,47 @@
+ - A woman has got to love a bad man once or twice in her life, to be thankful for a good one.
+ - It seems to me that the earth may be borrowed but not bought. It may be used but not owned. We are tenants, not possessors, lovers and not masters.
+ - Fear is the most easily taught of all lessons, and the fight against terror, real or imagined, is perhaps the history of man’s mind.
+ - Words began fights and words ended them.
+ - It is not that death comes, but that life leaves.
+ - It seemed a strange thing to him, when earth was earth and rain was rain, that scrawny pines should grow in the scrub, while by every branch and lake and river there grew magnolias. Dogs were the same everywhere, and oxen and mules and horses. But trees were different in different places.
+ - A woman never forgets the men she could have had; a man, the women he couldn’t.
+ - Magic birds were dancing in the mystic marsh. The grass swayed with them, and the shallow waters, and the earth fluttered under them. The earth was dancing with the cranes, and the low sun, and the wind and sky.
+ - Madness is only a variety of mental nonconformity and we are all individualists here.
+ - Ants in the house seem to be, not intruders, but the owners.
+ - We cannot live without the Earth or apart from it, and something is shrivelled in a man’s heart when he turns away from it and concerns himself only with the affairs of men.
+ - I do not understand how anyone can live without some small place of enchantment to turn to.
+ - Now he understood. This was death. Death was a silence that gave back no answer.
+ - He who tries to forget a woman, never loved her.
+ - Somewhere beyond the sink-hole, past the magnolia, under the live oaks, a boy and a yearling ran side by side, and were gone forever.
+ - Here in Florida the seasons move in and out like nuns in soft clothing, making no rustle in their passing.
+ - A dead tree, falling, made less havoc than a live one. It seemed as though a live tree went down fighting, like an animal.
+ - It is not death that kills us, but life. We are done to death by life.
+ - No, I most certainly do not think advertising people are wonderful. I think they are horrible, and the worst menace to mankind, next to war; perhaps ahead of war. They stand for the material viewpoint, for the importance of possessions, of desire, of envy, of greed. And war comes from these things.
+ - Food imaginatively and lovingly prepared, and eaten in good company, warms the being with something more than the mere intake of calories. I cannot conceive of cooking for friends or family, under reasonable conditions, as being a chore.
+ - I had done battle with a great fear and the victory was mine.
+ - Sift each of us through the great sieve of circumstance and you have a residue, great or small as the case may be, that is the man or the woman.
+ - A man’ll seem like a person to a woman, year in, year out. She’ll put up and she’ll put up. Then one day he’ll do something maybe no worse than what he’s been a-doing all his life. She’ll look at him. And without no warning he’ll look like a varmint.
+ - But to make the intangible tangible, to pick the emotion out of the air and make it true for others, is both the blessing and the curse of the writer, for the thing between book covers is never as beautiful as the thing he imagined.
+ - The individual man is transitory, but the pulse of life and of growth goes on after he is gone, buried under a wreath of magnolia leaves.
+ - Cross Creek belongs to the wind and the rain, to the sun and the seasons, to the cosmic secrecy of seed, and beyond all, to time.
+ - Sorrow was like the wind. It came in gusts.
+ - It is impossible to be among the woods animals on their own ground without a feeling of expanding one’s own world, as when any foreign country is visited.
+ - Writing is agony for me. I work at it eight hours every day, hoping to get six pages, but I am satisfied with three.
+ - You can’t change a man, no-ways. By the time his mummy turns him loose and he takes up with some innocent woman and marries her, he’s what he is.
+ - I have found that each of my books has developed out of something I have written in a previous book. Some thought evidently unfinished.
+ - Life is strong stuff, some of us can bear more of it than others.
+ - She lives a sophisticate’s life among worldly people. At the slightest excuse she steps out of civilization, naked and relieved, as I should step out of a soiled chemise.
+ - No man should have proprietary rights over land who does not use that land wisely and lovingly.
+ - They were all too tightly bound together, men and women, creatures wild and tame, flowers, fruits and leaves, to ask that any one be spared. As long as the whole continued, the earth could go about its business.
+ - Lives are only one with living. How dare we, in our egos, claim catastrophe in the rise and fall of the individual entity? There is only Life, and we are beads strung on its strong and endless thread.
+ - Two elements enter into successful and happy gatherings at table. The food, whether simple or elaborate, must be carefully prepared; willingly prepared; imaginatively prepared. And the guests – friends, family or strangers – must be conscious of their welcome.
+ - Readers themselves, I think, contribute to a book. They add their own imaginations, and it is as though the writer only gave them something to work on, and they did the rest.
+ - Personal publicity is apt to be dangerous to any writer’s integrity; for the moment he begins to fancy himself as quite a person, a taint creeps into his work.
+ - The test of beauty is whether it can survive close knowledge.
+ - Living was no longer the grief behind him, but the anxiety ahead.
+ - The best fish in the world are of course those one catches oneself.
+ - Garlic, like perfume, must be used with discretion and on the proper occasions.
+ - It’s very important to be just to other people. It takes years and years of living to learn that injustice against oneself is always unimportant.
+ - Information can be passed from one to another, like a silver dollar. There’s absolutely no wisdom except what you learn for yourself.
+
+45 quotes

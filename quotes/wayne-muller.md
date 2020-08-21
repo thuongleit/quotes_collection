@@ -1,0 +1,28 @@
+ - If we do not allow for a rhythm of rest in our overly busy lives, illness becomes our Sabbath – our pneumonia, our cancer, our heart attack, our accidents create Sabbath for us.
+ - Even in the middle of a hurricane, the bottom of the sea is calm. As the storm rages and the winds howl, the deep waters sway in gentle rhythm, a light movement of fish and plant life. Below there is no storm.
+ - All life has emptiness at its core; it is the quiet hollow reed through which the wind of God blows and makes the music that is our life.
+ - The last place we tend to look for healing is within ourselves.
+ - Our lives are made of these moments. Simple words and actions, taken together, weave a single day, and our days become our life. Every gesture is a seed, and the seed determines the harvest.
+ - Like a path through the forest, Sabbath creates a marker for ourselves so, if we are lost, we can find our way back to our center.
+ - In the soil of the quick fix is the seed of a new problem, because our quiet wisdom is unavailable.
+ - Because we do not rest, we lose our way.
+ - What we love and what captures our curiosity draws us forward into some place of great destiny.
+ - Just because we are working hard does not mean we are making anything happen.
+ - Gratitude invites a sense of sufficiency.
+ - The heart of most spiritual practices is simply this: Remember who you are. Remember what you love. Remember what is sacred. Remember what is true. Remember that you will die and that this day is a gift. Remember how you wish to live.
+ - When we come close to those things that break us down, we touch those things that also break us open. And in that breaking open, we uncover our true nature.
+ - The more spacious and larger our fundamental nature, the more bearable the pains in living.
+ - True kindness is rooted in a deep sense of abundance, out of which flows a sense that even as I give, it is being given back to me.
+ - We become what we love. Whatever you are giving your time and attention to, day after day, is the kind of person you will eventually become.
+ - What if the healing of the world utterly depends on the ten-thousand invisible kindnesses we offer simply and quietly throughout the pilgrimage of each human life?
+ - Meditation helps me feel the shape, the texture of my inner life. Here, in the quiet, I can begin to taste what Buddhists would call my true nature, what Jews call the still, small voice, what Christians call the holy spirit.
+ - What we choose to love is very important for what we love leads our eyes, ears, and hearts on a pilgrimage that shapes the texture of our lives.
+ - Be not afraid. A kind life, a life of spirit, is fundamentally a life of courage-the courage simply to bring what you have, to bring who you are.
+ - For thousands of years we have gathered in circle – around fires, around bodies, around altars – because we can’t do this alone.
+ - When we do what we love, again and again, our life comes to hold the fragrance of that thing.
+ - Even when our intentions are noble and our efforts sincere, even when we dedicate our lives to the service of others, the corrosive pressure of frantic over-activity can nonetheless cause suffering in ourselves and others. A “successful” life can become a violent enterprise.
+ - Can it then be that what we call the ‘self’ is fluid and elastic? It evolves, strikes a different balance with every new breath.
+ - With every breath, the possibility of a new aspect of self arises.
+ - To pray is no small thing. It is nothing less than a sacred pilgrimage into the heart of the whole world.
+
+26 quotes

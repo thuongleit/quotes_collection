@@ -1,0 +1,42 @@
+ - Growth and comfort do not coexist. ~~Ginni Rometty
+ - Personal growth is not a matter of learning new information but of unlearning old limits. ~~Alan Cohen
+ - Dedicate yourself to continuous personal improvement you are your most precious resource. ~~Brian Tracy
+ - Out of your vulnerabilities will come your strength. ~~Sigmund Freud
+ - Becoming is better than being. ~~Carol S. Dweck
+ - Success is a continuing thing. It is growth and development. It is achieving one thing and using that as a stepping stone to achieve something else. ~~John C. Maxwell
+ - You don’t need to change the world; you need to change yourself. ~~Miguel Ruiz
+ - Growth can be painful, change can be painful but nothing is as painful as staying stuck somewhere you don’t belong Anxiety does not empty tomorrow of its sorrow it only empties today of it strengths. ~~Charles H. Spurgeon
+ - This is hard. This is fun. ~~Carol S. Dweck
+ - Your life will become better by making other lives better. ~~Will Smith
+ - Change is inevitable but personal growth is a choice. ~~Bob Proctor
+ - Growth is often a painful process. ~~Elbert Hubbard
+ - I learned to always take on things I’d never done before. Growth and comfort do not coexist. ~~Ginni Rometty
+ - If you make it a habit not to blame others, you will feel the growth of the ability to love in your soul, and you will see the growth of goodness in your life. ~~Leo Tolstoy
+ - A self-willed man has no other aim than his own growth. ~~Bruce Lee
+ - The challenges we face in life are always lessons that serve our soul’s growth. ~~Marianne Williamson
+ - What you are to be, you are now becoming. ~~Carl R. Rogers
+ - The greatest potential for growth and self-realisation exists in the second half of life. ~~C.G. Jung
+ - The cost of stability is often diminished opportunities for growth. ~~Sheryl Sandberg
+ - Example is leadership. ~~Albert Schweitzer
+ - Transitions are almost always signs of growth, but they can bring feelings of loss. To get somewhere new, we may have to leave somewhere else behind. ~~Fred Rogers
+ - There is no growth without change, no change without fear or loss and no loss without pain. ~~Rick Warren
+ - In a growth mindset, challenges are exciting rather than threatening. So rather than thinking, oh, I’m going to reveal my weaknesses, you say, wow, here’s a chance to grow. ~~Carol S. Dweck
+ - Don’t push growth; remove the factors limiting growth. ~~Peter Senge
+ - Your curiosity is your growth point. Always. ~~Danielle LaPorte
+ - I know change can be painful. But from change comes growth. ~~Jon Stewart
+ - Why resist change when it’s the main source of your growth? ~~Robin S. Sharma
+ - Do things for people not because of who they are or what they do in return, but because of who you are. ~~Harold S. Kushner
+ - If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. ~~Les Brown
+ - Life does not always give you what you want, but if you look closely you will see that it gives what you need for growth. ~~Leon Brown
+ - Are you a thermometer or a thermostat? A thermometer only reflects the temperature of its environment, adjusting to the situation. But a thermostat initiates action to change the temperature in its environment. ~~Nido R. Qubein
+ - We would rather be ruined than changed. We would rather die in our dread than climb the cross of the moment and let our illusions die. ~~W.H. Auden
+ - Every mind needs friendly contact with other minds, for food of expansion and growth. ~~Napoleon Hill
+ - Growth is never by mere chance; it is the result of forces working together. ~~James Cash Penney
+ - Man’s duty is to improve himself; to cultivate his mind; and, when he finds himself going astray, to bring the moral law to bear upon himself. ~~Immanuel Kant
+ - Commitment to love – to growth, to authentic power is an everyday application of your will. ~~Gary Zukav
+ - In the old economy, it was all about having the answers. But in today’s dynamic, lean economy, it’s more about asking the right questions. A More Beautiful Question is about figuring out how to ask, and answer, the questions that can lead to new opportunities and growth. ~~Eric Ries
+ - Seeds of faith are always within us; sometimes it takes a crisis to nourish and encourage their growth. ~~Susan L. Taylor
+ - Big doors swing on little hinges. ~~W. Clement Stone
+ - Grown up, and that is a terribly hard thing to do. It is much easier to skip it and go from one childhood to another. ~~F. Scott Fitzgerald
+
+40 quotes

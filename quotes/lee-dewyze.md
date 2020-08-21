@@ -1,0 +1,28 @@
+ - Bagel in the morning is the ultimate breakfast for me; they’re just good.
+ - I like blue a lot, and greens. Earthy blues and greens.
+ - I overthink a lot of things.
+ - I’m not here to change the music world, but I’m definitely here to show what I can do and express myself through my music.
+ - Melodies are important. I always kind of pride myself on my melodies.
+ - I’m not interested in just putting out one hit.
+ - If youve ever lived in Chicago, anyone who has, they know what a winter in Chicago is like. To be going through a tough time here in the winter would be just be all the more worse.
+ - Doing charity work is always cool. It’s always a good thing.
+ - When you go through life, when you go through different things, you take risks, you question yourself. I think everybody does, at some point in their life, question themselves.
+ - My music comes from my emotion, always.
+ - Some people take pictures; I write songs.
+ - Food in Chicago is the best.
+ - I know what it’s like to be shoveling to pay bills. I know what it’s like to not have a job.
+ - I think I can connect with an audience because I know what it’s like to be on the other side of it and I really remember all of that.
+ - I don’t like to have really any expectations for myself.
+ - I have goals that I want to reach, but you can never plan what’s going to happen next.
+ - There are so many good venues in Chicago.
+ - I have a pretty wide range of musical tastes.
+ - I love knowing that people are connecting to my lyrics, my music and me.
+ - I’m the first one to admit, I’m a pretty unorthodox guitar player.
+ - This is America – you’re allowed to say and do what you want and what you say and do defines who you are as a person.
+ - Writing on the road is a passion of mine.
+ - I’d love to work with Sufjan Stevens. He so gets it. He’s amazing.
+ - I’m not the guy that thinks I’m a perfect singer.
+ - I know who I am as an artist. I’ve always known who I am as an artist.
+ - I will always appreciate ‘American Idol,’ and I never forget about where I come from.
+
+26 quotes

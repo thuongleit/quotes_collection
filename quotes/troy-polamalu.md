@@ -1,0 +1,66 @@
+ - Any time you can squeeze out the opportunity to get better, you should.
+ - I became a millionaire overnight by signing a piece of paper. I made more money in that one second than my entire family did in their lifetime.
+ - There are times I am happy. There are times I am sad. But I always try to separate emotion from the need to reach for something stronger, deeper. And then no matter the emotion, I can reach for a stability that helps me accomplish what is the goal.
+ - Probably the label ‘Jesus freak’ is fine with me. Because I know who I am.
+ - I have read the Bible many times. But after fasting, and being baptized Orthodox, it’s like reading a whole new Bible. You see the depth behind the words so much more clearly.
+ - God has control over everything, and obviously, everything to everyone is god-given.
+ - I have developed a Samoan mentality. You have to be a gentleman everywhere but on the field.
+ - Whenever I do the sign of the cross, it always brings comfort in situations when you are faced with adversity and stress.
+ - I take pride in my life-my wife, my family. I try my best not to have football define the person that I am.
+ - I’ve never thought about the end of my career. I’ve had this growing motto in my life to live day to day – and when you live day to day, it’s hard to talk years.
+ - People call me crazy and a madman. Even ‘Tasmanian Devil.’ I’d rather be called the ‘Tasmanian Angel.’
+ - I love Hawaii. I really enjoy surfing in Oahu, and Waianae is such a great area. And Maui – I like Maui a lot, too.
+ - As a football player, you just deal with injuries. It’s all part of the football game. I’ve dealt with injuries as much as everybody else. People have dealt with worse injuries than I’ve dealt with. It’s all part of the game, all part of getting that tackle.
+ - Injury in general teaches you to appreciate every moment. I’ve had my share of injuries throughout my career. It’s humbling. It gives you perspective. No matter how many times I’ve been hurt, I’ve learned from that injury and come back even more humble.
+ - I always try to sacrifice my body for the team.
+ - I’ve never really been aware of what is said about me, whether it’s positive or negative. I ignore it. I’ve always had the mind-set: ‘No one can challenge me better than myself.’
+ - Playing professional sports, it’s important to eat healthy and take care of your body. In the offseason, rest is really important to me.
+ - I don’t think I have a split personality. I believe the same person I am on the field is the same person I am at home – passionate about everything I do, whether it’s reading a Bible or just hanging out with my wife.
+ - All of my Polynesian counterparts in the NFL with roots in American Samoa understand how the values embedded in our South Pacific culture – community, hard work, perseverance, respect – contribute directly to our success.
+ - There are very few sports where you can find that tranquility. Some people find that in golf, but when you’re in the water it’s such a difference from the golf course or the basketball court. That’s what makes surfing unique over any other sport.
+ - In Pennsylvania, I love the Nemacolin Woodlands Resort in Farmington. It’s a scenic area. We also enjoy visiting the Laurel Highlands in Western Pennsylvania. The mountains are really something to be seen, and it’s a great area to be outside.
+ - My hair has become part of my identity; it’s almost an appendage to me.
+ - I’ve never been a fan of individual awards because football is such a team sport. There’s so many things that goes into making plays. It’s about teammates trusting one another and working together.
+ - I don’t feel that I need a tattoo to represent myself as a Samoan or a Christian.
+ - The greatest joy I get is setting up plays for somebody else. I take a lot of pride in helping other people make plays.
+ - I love the atmosphere football brings; I love being around my teammates; I love the struggle in football. I love the fact that it is a part of my life. I don’t look at it as any more important or less important as any other part of my life.
+ - Throughout history, every great warrior-the Greeks, the Samurais, the American Indians, the Mongolians, you name it-had long hair and would dress it before battle.
+ - Material things aren’t important to me.
+ - In football, you’re taught to react by being aggressive, taught to react with violence. If you can’t separate that on the field and off the field, you’re going to be in a lot of trouble in your life.
+ - A demon, in a way, is a test of your faith. Because if you’re doing God’s work, there’s no reason for any demon to do anything to you.
+ - I don’t look at football as a violent, barbaric sport. It’s a very spiritual sport, especially for someone facing the challenges during a game: the fear of failure, the fear of getting too big an ego, of making a mistake and everybody criticizing you.
+ - If you don’t eat right as an athlete, you’ll get tired and won’t be as sharp. It’s simple to drink sodas and sports drinks, but water is the most essential drink to put in your body.
+ - The barefoot component of my training is about strengthening the toes.
+ - I really enjoy surfing a lot. It’s an awesome sport. With surfing there are no mind games versus Peyton Manning, or versus anyone else. It’s not me trying to throw a certain shot put further – or to put a ball in a hoop, it’s just me against mother nature.
+ - It’s the perfect environment for prayer. Chanting in Greek is like a beautiful opera, but way better.
+ - We’re a road team. We’re the Pittsburgh Steelers. We have fans everywhere.
+ - I love to create this green juice shake made from kale, spinach, cucumber and wheatgrass. The nutrients in the juice help me recover after a tough workout. The Kale Banana Smoothie at LYFE Kitchen is very similar to my recipe and is fantastic.
+ - When I’m done playing football, I just might be the couch potato dad.
+ - Anybody who’s away from what’s normal is just kind of pushed aside as, ‘Oh, he’s crazy.’ But in reality, this world is crazy. It’s just chaos everywhere. It’s really hard to be part of this world, because it’s very possessed. And very egocentric.
+ - America needs football. It’s a real blue-collar sport; it’s played with a blue-collar mentality, a mentality that’s the backbone of this country.
+ - I am a National Football League player of American Samoan heritage. Because of my status as a professional athlete, I have been blessed to play a role in educating players and fans about the culture and history of America’s southernmost territory.
+ - I’ve always been fascinated by the military, the discipline they have and the sacrifices they make to defend the country. It’s something I’ve always been interested in.
+ - Football is pretty much played 16 times a year, where training is kind of a year-round thing.
+ - I’ve always been a very self-aware person.
+ - There’s so much that I like about Pittsburgh, actually. The cultural district and museums are wonderful, and I encourage everyone to check them out. And the food is excellent, too!
+ - Some days I’m just flipping through the iPod trying to get pumped, some days I don’t want to listen to anything and just focus. From game to game from day to day, whatever people do to motivate themselves, they do. I do all kinds of things.
+ - I work barefooted on balance plates. I do explosive squats on balance surfaces that your body has to use muscles it’s not used to. It’s all kinds of exercises that your body isn’t really used to, and it tricks your body into getting stronger every time.
+ - Three English bulldogs count for one kid.
+ - The greatest thing for me football-wise is that it’s a test of will.
+ - It’s important for me to have strong hair in case someone pulls it and tries to rip it all out.
+ - My wife is Greek. I was a non-denomination Christian before we got married.
+ - I know where I’m supposed to be at the time of the snap. Now, where the play dictates I’m going to go is a different story.
+ - I think it’s important to cross train. Surfing is a good cross training sport for your shoulders. I don’t think I know of any other football player who does it, who can go and paddle out past the sets.
+ - Being compared to the greatest-ever safety is pretty ridiculous. I continue to work toward that, but I’m not there and I know that.
+ - I do have a trophy room-it’s in my attic, in boxes.
+ - I knew that I had it tough compared to children around me. But I felt like I needed it. I think I had the wisdom as a child to know that it would help me later on.
+ - The Coca-Cola Mean Joe Greene ad is one of the most famous commercials of all time, so I was blown away when they asked me to be in this new spot.
+ - I try to take what’s given to me and then mold it to be a better football player.
+ - Our sport is not made for anybody to be able to play it, especially at the NFL level, so there’s obviously some risk that we all take knowingly.
+ - On the field is a place where you can just let it loose and react to everything with violence.
+ - Some of us might not understand why LeBron James is the way he is, but fortunately he found his great craft in life.
+ - A big hit is all part of the game. If you want to make a lot of big hits, you forget about the one you just made and move onto the next one.
+ - When I let my hair down, I just let it down. It’s more comfortable in my helmet.
+ - When I cook, it’s something nobody else would enjoy.
+
+64 quotes

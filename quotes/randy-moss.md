@@ -1,0 +1,42 @@
+ - When you’re rich, you don’t write checks. Straight cash, homey.
+ - I always forgive, but I never forget.
+ - Nobody controls me but my mama and God.
+ - It’s not my fault that people don’t know me. I’m going to speak my mind, no matter what the consequences are.
+ - I Play When I Want to Play.
+ - Excluding nobody, I’m the best player in the National Football League.
+ - I smoke a blunt once every blue moon. But hey, the moon looks kinda blue tonight...
+ - You can’t stop me in bump. And you definitely can’t stop me playing off. You just try to contain me and stop me from getting a lot of catches.
+ - I don’t know how many more times I’ll be in New England again. But I leave coach Belichick and those guys with a salute: ‘I love you guys. I miss you. I’m out.’
+ - Everybody knows I got a temper. It’s not a temper temper-not an off-the-field temper. It’s a competitive temper, wanting to do good. But as far as being a guy who disrupts a lot of things, who doesn’t want to listen? Nah, man. That’s false. That’s false because I’m excelling.
+ - I’ve always just loved to play football, even if it was street football, like razzle-dazzle.
+ - I am a little older and understand the nature of the business – the older you get the more your skills supposedly diminish, but I think I am getting wiser in how to use my physical skills. That’s the frustrating part when you put so much heart and desire into things and feel like you are not wanted.
+ - The one thing I did learn at Florida State, I learned to talk trash, believe that.
+ - I love the game so much. I’ve been penalized. I’ve been fined. I have some regrets in my career. But for those four hours on Sunday, you can be free and just let it all go. Retiring had nothing to do with football; it had to do with my family.
+ - The New England Patriots have always been a special organization and I’ve always watched from afar.
+ - To all my critics, you get paid to be negative.
+ - In a way, I am what they say I am. I am a hard-ass. I’m hard to get along with. Most of the time I’m moody. All that’s true. I got no problem with people saying that.
+ - My concentration and focus level tends to go down sometimes when I’m in a bad mood.
+ - He hasn’t shown me anything but how he carries himself as a professional man, husband, father and athlete. Tom Brady is a pro’s pro. I love the man and everything he’s accomplished.
+ - I’m a country boy who hasn’t really been exposed to city living, and it throws me.
+ - Ain’t nothing but 10 grand. What’s 10 grand to me?
+ - I’m one of the most competitive guys in the NFL. Believe me, nobody wants it more than me.
+ - If you’re asking me where my heart and where I’m happy is, I love playing with Tom Brady. I love being coached by Bill Belichick.
+ - I’m still overwhelmed and, at the same time, kind of star struck that I am part of this New England Patriots organization.
+ - I like to keep my surroundings low-key. I don’t need much around me. I’m easy don’t need a lot of racket.
+ - I’m from West Virginia. If you didn’t know what was happening in NASCAR, you were on the outside. NASCAR is a big league sport, but it’s still also country and redneck.
+ - I’m just enjoying the ride. I’m just contributing what I can.
+ - I can’t really have any friends. It’s sad, really. It’s lonely. But that’s how I am.
+ - I’m starting to realize I can’t practice a certain way during the week and expect to play another way on Sunday.
+ - I had to get some things right in my personal life. And once I got my family on the same page, to understand who I am and what I do for a living, I asked my oldest daughter, ‘What do you think about Daddy coming back?’ And she said, ‘I didn’t think you were done. I want you to win the Super Bowl.’
+ - What I have done in my nine year career was just a glimpse of what I can do.
+ - The Moss of old is back!
+ - I’m a guy here to play football. I’m not here for photos or newspapers or TV shows or trophies or awards. I’m not into all that.
+ - I don’t want records. I want a Super Bowl ring.
+ - If it’s early in the game and the team’s not doing well, I get frustrated when I don’t get the ball, because I think I can spark the team and get the crowd into it.
+ - Well, I’ve learned a lot from Bill Belichick. I’ve said time and time again, before I got to New England, I thought I knew a lot about football. But I think he taught me a lot from A to Z. I still carry it to this day.
+ - I don’t care about my image. I’m already paid. I’ve already got my money, so why worry about my image?
+ - When I got drafted by Minnesota, and I think I said this a couple weeks ago, I think I felt obligated to bring a Super Bowl to Minnesota.
+ - I try to have fun with the fans, try to have fun.
+ - I want to keep winning-the hell with the record.
+
+40 quotes

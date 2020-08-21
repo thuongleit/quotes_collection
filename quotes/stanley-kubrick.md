@@ -1,0 +1,98 @@
+ - Everything has already been done. every story has been told every scene has been shot. it’s our job to do it one better.
+ - All work and no play makes Jack a dull boy.
+ - If it can be written, or thought, it can be filmed.
+ - Be suspicious of people who have, or crave, power. Never, ever go near power. Don’t become friends with anyone who has real power. It’s dangerous.
+ - However vast the darkness, we must supply our own light.
+ - The first really important book I read about filmmaking was The Film Technique by Pudovkin. This was some time before I had ever touched a movie camera and it opened my eyes to cutting and montage.
+ - The test of a work of art is, in the end, our affection for it, not our ability to explain why it is good.
+ - The truth of a thing is in the feel of it, not in the think of it.
+ - Never say no to an idea – you never know how that idea will ignite another idea.
+ - The very meaninglessness of life forces man to create his own meaning.
+ - The most terrifying fact about the universe not that it is hostile but that it is indifferent.
+ - Either you care, or you don’t. There’s no in-between. And if you care, then go all of the way.
+ - I do not always know what I want, but I do know what I don’t want.
+ - I love editing. I think I like it more than any other phase of film making. If I wanted to be frivolous, I might say that everything that precedes editing is merely a way of producing film to edit.
+ - Bad films gave me the courage to try making a movie.
+ - The essence of dramatic form is to let an idea come over people without it being plainly stated. When you say something directly, it’s simply not as potent as it is when you allow people to discover it for themselves.
+ - I used and abused drugs and alcohol. When I stopped doing that it became a lot clearer that life goes from inside to giving as opposed to taking and destroying.
+ - Perhaps it sounds ridiculous, but the best thing that young filmmakers should do is to get hold of a camera and some film and make a movie of any kind at all.
+ - The most terrifying fact about the universe is not that it is hostile but that it is indifferent, but if we can come to terms with this indifference, then our existence as a species can have genuine meaning. However vast the darkness, we must supply our own light.
+ - I’ve never been certain whether the moral of the Icarus story should only be, as is generally accepted, ‘don’t try to fly too high,’ or whether it might also be thought of as ’forget the wax and feathers, and do a better job on the wings.
+ - The whole idea of god is absurd. If anything, ‘2001’ shows that what some people call ‘god’ is simply an acceptable term for their ignorance. What they don’t understand, they call ‘god’ -Stanley Kubrick, interview, 1963.
+ - How could we possibly appreciate the Mona Lisa if Leonardo had written at the bottom of the canvas: ‘The lady is smiling because she is hiding a secret from her lover.’ This would shackle the viewer to reality, and I don’t want this to happen to 2001.
+ - I’m just an old man and I smell bad, remember?
+ - All my life I’ve always spoiled the things that meant the most to me.
+ - The feel of the experience is the important thing, not the ability to verbalize or analyze it.
+ - I think the big mistake in schools is trying to teach children anything, and by using fear as the basic motivation. Fear of getting failing grades, fear of not staying with your class, etc. Interest can produce learning on a scale compared to fear as a nuclear explosion to a firecracker.
+ - You know, I often thought that the gangster and the artist are the same in the eyes of the masses. They’re admired and hero-worshipped but there is always present underlying desire to see them destroyed at the peak of their glory.
+ - Private Joker is silly and he’s ignorant but he’s got guts and guts is enough.
+ - The great nations have always acted like gangsters, and the small nations like prostitutes.
+ - I’m not afraid of dying tomorrow, only of being killed.
+ - Like the man said, can happiness buy money?
+ - A film is – or should be – more like music than like fiction. It should be a progression of moods and feelings. The theme, what’s behind the emotion, the meaning, all that comes later.
+ - There are few things more fundamentally encouraging and stimulating than seeing someone else die.
+ - I’m a slave to my imagination in terms of making narrative films.
+ - I’m happy – at times – making films. I’m certainly unhappy not making films.
+ - I don’t like doing interviews. There is always the problem of being misquoted or, what’s even worse, of being quoted exactly.
+ - I’ve never achieved spectacular success with a film. My reputation has grown slowly. I suppose you could say that I’m a successful filmmaker-in that a number of people speak well of me. But none of my films have received unanimously positive reviews, and none have done blockbuster business.
+ - The best education in film is to make one.
+ - The director’s job is to know what emotional statement he wants a character to convey in his scene or his line, and to exercise taste and judgment in helping the actor give his best possible performance.
+ - Regret isn’t going to get me anywhere. It’s like being obsessed with something. It doesn’t bring you anywhere.
+ - You have not yet learned that in this life you have to be like everyone else: the perfect mediocrity – no better, no worse. Individuality is a monster and it must be strangled in its cradle to make our friends feel comfortable.
+ - In his essay on the uncanny, Das Unheimliche, Freud said that the uncanny is the only feeling which is more powerfully experienced in art than in life. If the horror genre required any justification, I should think this alone would serve as its credentials.
+ - The destruction of this planet would have no significance on a cosmic scale.
+ - I haven’t had one sexual thought since the court martial.
+ - Sanitised violence in movies has been accepted for years. What seems to upset everybody now is the showing of the consequences of violence.
+ - Have you ever had a single moment’s thought about my responsibilities?
+ - It’s a mistake to confuse pity with love.
+ - There’s something in the human personality which resents things that are clear, and conversely, something which is attracted to puzzles, enigmas, and allegories.
+ - Chess teaches you to control the initial excitement you feel when you see something that looks good and it trains you to think objectively when you’re in trouble.
+ - God has a hard-on for a Marine because we kill everything we see. He plays His game, we play ours.
+ - It’s impossible to tell you what I’m going to do except to say that I expect to make the best movie ever made.
+ - I’m not saying we wouldn’t get our hair mussed, Mr. President, but I do say not more than ten to twenty million dead depending upon the breaks.
+ - If you can talk brilliantly about a problem, it can create the consoling illusion that it has been mastered.
+ - Nothing is as dangerous as a sure thing.
+ - I never learned anything at all in school and didn’t read a book for pleasure until I was 19 years old.
+ - I’ve got a peculiar weakness for criminals and artists. Neither takes life as it is. Any tragic story has to be in conflict with things as they are.
+ - My period as a young teenager when you really listen to music so you can get understand a little bit more about what the music is was, say, 1965 to 1968. I was just lucky to be in those times.
+ - Gee, I wish we had one of them doomsday machines things.
+ - Don’t get obsessed with not liking a movie.
+ - The hardest thing in making a movie is to keep in the front of your consciousness your original response to the material. Because that’s going to be the thing that will make the movie. And the loss of that will break the movie.
+ - A filmmaker has almost the same freedom as a novelist has when he buys himself some paper.
+ - You’re constantly changing man. But the film’s not changing. The film stays the same. That’s the beautiful aspect of it.
+ - Shooting a movie is the worst milieu for creative work ever devised by man.
+ - One man writes a novel. One man writes a symphony. It is essential that one man make a film.
+ - Don’t do anything. Just tolerate me and let me suffer, knowing how you feel.
+ - A satirist is someone who has a very skeptical view of human nature, but who still has the optimism to make some sort of a joke out of it. However brutal that joke might be.
+ - The dead know only one thing, it is better to be alive.
+ - You’re an idealist, and I pity you as I would the village idiot.
+ - Art consists of reshaping life but it does not create life, nor cause life.
+ - You sit at the board and suddenly your heart leaps. Your hand trembles to pick up the piece and move it. But what chess teaches you is that you must sit there calmly and think about whether it’s really a good idea and whether there are other, better ideas.
+ - Anybody who runs is a VC. Anybody who stands still is a well-disciplined VC.
+ - You either care or you don’t.
+ - You either connect or you don’t connect. It’s not the end of the world. It’s a movie.
+ - Anyone who has ever been privileged to direct a film also knows that, although it can be like trying to write ‘War and Peace’ in a bumper car in an amusement park, when you finally get it right, there are not many joys in life that can equal the feeling.
+ - One does not have to make Frank Capra movies to like people.
+ - No philosophy based on an incorrect view of the nature of man is likely to produce social good.
+ - I didn’t want murder. It’s all gone wrong.
+ - The screen is a magic medium...
+ - Everybody has their black moments.
+ - If Gary Cooper and Henry Fonda had a baby, it would be Matthew Modine.
+ - Take a stress pill and think things over – HAL in 2001.
+ - The lasting and ultimately most important reputation of a film is not based on reviews, but on what, if anything, people say about it over the years, and on how much affection for it they have.
+ - I, uh, don’t think it’s quite fair to condemn a whole program because of a single slip-up, sir.
+ - Here’s to five miserable months on the wagon and the irreparable harm that it’s caused me.
+ - The screen is a magic medium. It has such power that it can retain interest as it conveys emotions and moods that no other art form can hope to tackle.
+ - I’ve never laid a cane on the back of a lord before, but if you force me to I shall speedily become used to the practice.
+ - A film needs more than you can give it in a lifetime.
+ - Critical opinion on my films has always been salvaged by what I would call subsequent critical opinion.
+ - Suppose by chance you do get picked up. What have you done? You shot a horse; that isn’t first degree murder; in fact, it isn’t even murder; in fact, I don’t know what it is.
+ - What do you take me for? A fourteen karat sucker?
+ - My reputation has grown slowly.
+ - If you can talk brilliantly about a problem.
+ - How does anybody ever think of anything?
+ - Any time you take a chance you better be sure the rewards are worth the risk because they can put you away just as fast for a ten dollar heist as they can for a million dollar job.
+ - It’s crazy how you can get yourself in a mess sometimes and not even be able to think about it with any sense and yet not be able to think about anything else.
+ - A film is – or should be – more like music than like fiction.
+
+96 quotes

@@ -1,0 +1,78 @@
+ - If you have the words, there’s always a chance that you’ll find the way.
+ - Walk on air against your better judgement.
+ - Hope is not optimism, which expects things to turn out well, but something rooted in the conviction that there is good worth working for.
+ - History says, Don’t hope On this side of the grave, But then, once in a lifetime The longed-for tidal wave Of justice can rise up, And hope and history rhyme.
+ - Anyone with gumption and a sharp mind will take the measure of two things: what’s said and what’s done.
+ - The way we are living, timorous or bold, will have been our life.
+ - Poetry is language in orbit.
+ - Even if the hopes you started out with are dashed, hope has to be maintained.
+ - Strange, it is a huge nothing that we fear.
+ - All I know is a door into the dark.
+ - So hope for a great sea-change On the far side of revenge. Believe that further shore Is reachable from here. Believe in miracles And cures and healing wells.
+ - The next move is always the test.
+ - The aim of poetry and the poet is finally to be of service, to ply the effort of the individual into the larger work of the community as a whole.
+ - The gift of writing is to be self-forgetful.
+ - The end of art is peace.
+ - If poetry and the arts do anything, they can fortify your inner life, your inwardness.
+ - I shall gain glory or die.
+ - I credit poetry for making this space-walk possible.
+ - I drink to keep body and soul apart.
+ - Behaviour that’s admired is the path to power among people everywhere.
+ - Even if the last move did not succeed, the inner command says move again.
+ - I have always thought of poems as stepping stones in one’s own sense of oneself.
+ - Wherever that man went, he went gratefully.
+ - I have begun to think of life as a series of ripples widening out from an original center.
+ - It is difficult at times to repress the thought that history is about as instructive as an abattoir.
+ - If self is a location, so is love: Bearings taken, markings, cardinal points, Options, obstinacies, dug heels, and distance, Here and there and now and then, a stance.
+ - I might enjoy being an albatross, being able to glide for days and daydream for hundreds of miles along the thermals. And then being able to hang like an affliction round some people’s necks.
+ - Hope for a great sea-change timid to rebuke and too petty to forgive.
+ - If self is a location, so is love.
+ - Write whatever you like!
+ - Memory has always been fundamental for me. In fact, remembering what I had forgotten is the way most of the poems get started.
+ - The bogholes might be Atlantic seepage. The wet centre is bottomless.
+ - Suspect too much sweet talk but never close your mind.
+ - The dotted line my father’s ashplant made On Sandymount Strand Is something else the tide won’t wash away.
+ - It is always better to avenge dear ones than to indulge in mourning. For every one of us, living in this world means waiting for our end. Let whoever can win glory before death. When a warrior is gone, that will be his best and only bulwark.
+ - You had to come back to learn how to lose yourself, to be pilot and stray-witch, Hansel and Gretel in one.
+ - In off the moors, down through the mist beams, god-cursed Grendel came greedily loping.
+ - Sink every impulse like a bolt. Secure The bastion of sensation. Do not waver Into language. Do not waver in it.
+ - Don’t be surprised if I demur, for, be advised my passport’s green.
+ - My body was braille for the creeping influences.
+ - The Ireland I now inhabit is one that these Irish contemporaries have helped to imagine.
+ - Poetry is always slightly mysterious, and you wonder what is your relationship to it.
+ - I’ve always associated the moment of writing with a moment of lift, of joy, of unexpected reward.
+ - I can’t think of a case where poems changed the world, but what they do is they change people’s understanding of what’s going on in the world.
+ - Desmond O’Grady is one of the senior figures in Irish Literary life, exemplary in the way he has committed himself over the decades to the vocation of poetry and has lived selflessly for the art.
+ - Poetry cannot afford to lose its fundamentally self-delighting inventiveness, its joy in being a process of language as well as a representation of things in the world.
+ - To begin with, I wanted that truth to life to possess a concrete reliability, and rejoiced most when the poem seemed most direct, an upfront representation of the world it stood in for or stood up for or stood its ground against.
+ - Whether it be a matter of personal relations within a marriage or political initiatives within a peace process, there is no sure-fire do-it-yourself kit.
+ - In fact, in lyric poetry, truthfulness becomes recognizable as a ring of truth within the medium itself.
+ - When I first encountered the name of the city of Stockholm, I little thought that I would ever visit it, never mind end up being welcomed to it as a guest of the Swedish Academy and the Nobel Foundation.
+ - The main thing is to write for the joy of it. Cultivate a work-lust that imagines its haven like your hands at night dreaming the sun in the sunspot of a breast. You are fasted now, light-headed, dangerous. Take off from here.
+ - Smile As you find a rhythm Working you, slow mile by mile, Into your proper haunt.
+ - The completely solitary self: that’s where poetry comes from, and it gets isolated by crisis, and those crises are often very intimate also.
+ - My point is there’s a hidden Scotland in anyone who speaks the Northern Ireland speech. It’s a terrific complicating factor, not just in Northern Ireland, but Ireland generally.
+ - Without needing to be theoretically instructed, consciousness quickly realizes that it is the site of variously contending discourses.
+ - God is a foreman with certain definite views Who orders life in shifts of work and leisure.
+ - I am not a playwright. A playwright would take Antigone and hit it a few clouts and knock it out of shape and restructure it. My versioning was strictly verbal.
+ - The fact of the matter is that the most unexpected and miraculous thing in my life was the arrival in it of poetry itself – as a vocation and an elevation almost.
+ - It has as much to do with the energy released by linguistic fission and fusion, with the buoyancy generated by cadence and tone and rhyme and stanza, as it has to do with the poem’s concerns or the poet’s truthfulness.
+ - I suppose I’m saying that defiance is actually part of the lyric job.
+ - Once off the bush The fruit fermented, the sweet flesh would turn sour. I always felt like crying. It wasn’t fair That all the lovely canfuls smelt of rot. Each year I hoped they’d keep, knew they would not. -Blackberry picking.
+ - I always believed that whatever had to be written would somehow get itself written.
+ - A public expectation, it has to be said, not of poetry as such but of political positions variously approvable by mutually disapproving groups.
+ - At home in Ireland, there’s a habit of avoidance, an ironical attitude towards the authority figure.
+ - As writers and readers, as sinners and citizens, our realism and our aesthetic sense make us wary of crediting the positive note.
+ - Im a firm believer in learning by heart.
+ - Loyalism, or Unionism, or Protestantism, or whatever you want to call it, in Northern Ireland – it operates not as a class system, but a caste system.
+ - I’ve nothing against the Queen personally: I had lunch at the Palace once upon a time.
+ - Then as the years went on and my listening became more deliberate, I would climb up on an arm of our big sofa to get my ear closer to the wireless speaker.
+ - The external reality and inner dynamic of happenings in Northern Ireland between 1968 and 1974 were symptomatic of change, violent change admittedly, but change nevertheless, and for the minority living there, change had been long overdue.
+ - But even so, none of the news of these world-spasms entered me as terror.
+ - But that citizen’s perception was also at one with the truth in recognizing that the very brutality of the means by which the IRA were pursuing change was destructive of the trust upon which new possibilities would have to be based.
+ - The thing about writing is that if you have the impulse, you will find the time.
+ - Yet there are times when a deeper need enters, when we want the poem to be not only pleasurably right but compellingly wise, not only a surprising variation played upon the world, but a re-tuning of the world itself.
+ - There is risk and truth to yourselves and the world before you.
+ - Nowadays, what an award gives is a sense of solidarity with the poetry guild, as it were: sustenance coming from the assent of your peers on the judging panel.
+
+76 quotes

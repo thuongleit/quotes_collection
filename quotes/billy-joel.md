@@ -1,0 +1,229 @@
+ - If you are not doing what you love, you are wasting your time.
+ - Only the good die young.
+ - Honesty is such a lonely word. Everyone is so untrue...
+ - I’m in a New York state of mind.
+ - I’d rather laugh with the sinners than cry with the saints.
+ - Call me a joker, call me a fool, right at this moment I’m totally cool.
+ - They say that these are not the best of times, but they’re the only times I’ve ever known.
+ - She can kill with her smile, she can wound with her eyes.
+ - It’s OK if you mess up. You should give yourself a break.
+ - I don’t care what consequence it brings, I have been a fool for lesser things.
+ - You’ve got your passion. You’ve got your pride. But don’t you know that only fools are satisfied? Dream on, but don’t imagine they’ll all come true.
+ - We didn’t start the fire It was always burning Since the world’s been turning We didn’t start the fire No we didn’t light it But we tried to fight it.
+ - So I would choose to be with you, That’s if the choice were mine to make, But you can make decisions too, And you can have this heart to break.
+ - Working too hard can give you a heart-attack.
+ - I really wish I was less of a thinking man and more of a fool not afraid of rejection.
+ - Musicians want to be the loud voice for so many quiet hearts.
+ - It’s alright, you can afford to lose a day or two.
+ - Some love is just a lie of the heart, the cold remains of what began with a passionate heart.
+ - I don’t want clever conversation, I never want to work that hard, I just want someone I can talk to, I want you just the way you are.
+ - We’re only human, we’re supposed to make mistakes.
+ - We all end in the ocean. We all start in the streams. We’re all carried along, by the river of dreams.
+ - I once believed in causes, too. Had my pointless point of view. Life went on no matter who was wrong or right.
+ - I don’t want some pretty face to tell me pretty lies, all I want is someone to believe.
+ - This is our moment, here at the cross-roads of time. Time is relentless and as the past dissappears, we’re on the verge of all things new.
+ - More than art, more than literature, music is universally accessible.
+ - There’s an old man sitting next to me, making love to his tonic and gin.
+ - Don’t wait for answers, just take your chances. Don’t ask me why.
+ - People in music lie, but they don’t expect you to believe them. People in television actually expect you to believe the lies.
+ - I’ve crashed my car three times.
+ - Slow down you’re doing fine You can’t be everything you want to be Before your time Although it’s so romantic on the borderline tonight Too bad but it’s the life you lead You’re so ahead of yourself That you forfeit what you need Though you can see when you’re wrong.
+ - Say goodbye to the oldies, but goodies, because the good old days weren’t always good and tomorrow ain’t as bad as it seems.
+ - I would not leave you in your times of trouble. We never could have come this far. I took the good times, I’ll take the bad times, I’ll take you just the way you are.
+ - You can’t go the distance with too much resistance.
+ - Sweetness flows from your appearance and your beauty makes me fall more in love with you. Anytime I feel low, I think about the good times you have given me and everything seems good again.
+ - Take risks. Take chances. Don’t be afraid. You gotta go into life brave.
+ - In every heart there is a room, A sanctuary safe and strong, To heal the wounds from lovers past, Until a new one comes along.
+ - Where have you been hanging out lately honey? You can’t dress trashy ’til you spend a lot of money.
+ - I’m carrying the weight of all the useless junk and modern man accumulates.
+ - I think music in itself is healing. It’s an explosive expression of humanity. It’s something we are all touched by. No matter what culture we’re from, everyone loves music.
+ - In a way, we are magicians. We are alchemists, sorcerers and wizards. We are a very strange bunch. But there is great fun in being a wizard.
+ - You can pay Uncle Sam with all your overtime, is that all you get for your money?
+ - You may be wrong, but you may be right.
+ - You should never argue with a crazy mind, you ought to know my now.
+ - I am, as I’ve said, merely competent. But in an age of incompetence, that makes me extraordinary.
+ - So before we end and then begin, we’ll drink a toast to how it’s been. A few more hours to be complete, a few more nights on satin sheets. A few more times that I can say, that I’ve loved these days.
+ - There will be miracles After the last war is won Science and poetry rule in the new world to come Prophets and angels Gave us the power to see What an amazing future there will be.
+ - I have to thank my mother for paying for the piano lessons for all those years.
+ - No matter what culture we’re from, everyone loves music.
+ - They are sharing a drink called loneliness.
+ - Drank a lot of take home pay.
+ - Maybe this won’t last very long but you feel so right and I could be wrong. Maybe I’ve been hoping too hard. I’ve gone this far and it’s more than I hope for.
+ - She’s the quiet type who’s into heavy metal.
+ - As long as there are memories, yesterday remains. As long as there is hope, tomorrow awaits. As long as there is friendship, today is beautiful.
+ - I’ve played all kinds of places, laid all kinds of girls.
+ - In hell there’s a big hotel where the bar just closed and the windows never opened. No phone so you can’t call home, and the TV works, but the clicker is broken.
+ - My friends and I are crazy. That’s the only thing that keeps us sane!
+ - It should be easy for a man who’s strong to say he’s sorry or admit when he’s wrong.
+ - This is the time to remember cause it will not last forever. These are the days to hold onto cause we won’t although we’ll want to.
+ - You’re having a hard time and lately you don’t feel so good; You’re getting a bad reputation in your neighborhood. It’s alright, it’s alright; Sometimes that’s what it takes. You’re only human, you’re allowed to make your share of mistakes.
+ - Lawrence of Arabia, British Beatlemania.
+ - If I ever reach heaven I expect to find three wonders there: first, to meet some I had not thought to see there; second, to miss some I had expected to see there; and third, the greatest wonder of all, to find myself there.
+ - Oh, she takes care of herself. She can wait if she wants. She’s ahead of her time. Oh, and she never gives out. And she never gives in. She just changes her mind.
+ - If I traveled all my life And I never get to stop and settle down Long as I have you by my side There’s a roof above and good walls all around You’re my castle, you’re my cabin and my instant pleasure dome I need you in my house ’cause you’re my home.
+ - Call you up in the middle of the night. It’s awful hard trying to make love long distance, but I really need stimulation.
+ - So many faces in and out of my life Some will last Some will be just now and then. Life is a series of hellos and goodbyes I’m afraid it’s time for goodbye again. Say goodbye to Hollywood Say goodbye my baby Say goodbye to Hollywood Say goodbye my baby.
+ - Hot funk, cold punk, even if it’s old junk, it’s still rock and roll to me.
+ - Forced to recognize our inhumanity, our reason coexists with our insanity. And though we choose between reality and madness, it’s either sadness or euphoria.
+ - Sergeant O’Leary is walking the beat, at night he becomes a bar tender.
+ - I am no longer afraid of becoming lost, because the journey back always reveals something new, and that is ultimately good for the artist.
+ - I took a fresh pack of Luckies, a mint called Sen-Sen, my old man’s Trojans.
+ - All she wanted was sax.
+ - You can speak your mind But not on my time.
+ - The piano sounds like a carnival and the microphone smells like a beer. And they sit at the bar and put bread in my jar and say, man, what are you doing here?
+ - She’s got a smile that heals me.
+ - Videos destroyed the vitality of rock and roll. Before that, music said, “Listen to me.” Now it says, “Look at me.”
+ - Some folks like to get away Take a holiday from the neighborhood. Hop a flight to Miami Beach Or to Hollywood But I’m talking a Greyhound On the Hudson River Line. I’m in a New York state of mind.
+ - Like a boxer in a title fight, you have to walk in that ring alone.
+ - You may never understand How the stranger is inspired For he is not always evil, And he is not always wrong.
+ - I would say the songs that have different lyrics. I always write the music first, and there’s a couple of songs on this box set that have different lyrics from what ended up on the final recording.
+ - Rock and roll cola wars, I can’t take it any more.
+ - I’ve learned to dance with a hand in my pants.
+ - Do what you love, and you’ll always love what you do.
+ - Ain’t no rainbows shining on me, shades of gray are the colors I see.
+ - Some people stay away from the door for the chance of it opening up.
+ - She’ll carelessly cut you and laugh while you’re bleeding.
+ - I sold my house to Jerry Seinfeld.
+ - I may be an antique like the Stones, but antiques are valuable.
+ - I’m not sure about life after this; god knows I’m not a spiritual man.
+ - We passed the hash pipe and played our Doors tapes.
+ - I watched the mighty skyline fall.
+ - I’ve passed the age of consciousness and righteous rage. I found that just surviving was a noble fight.
+ - I can’t remember faces, don’t remember names, but after awhile and a thousand miles it all becomes the same.
+ - The whole world loves American movies, blue jeans, jazz and rock and roll. It is probably a better way to get to know our country than by what politicians or airline commercials represent.
+ - Streetlife serenaders Have no obligations Hold no grand illusions Need no stimulation.
+ - The biggest regret? This may be one of those years I have no regrets.
+ - They’re sharing a drink they call lonliness, but it’s better than drinking alone.
+ - Remember how I found you there alone in your electric chair, I told you dirty jokes until you smiled.
+ - They say there’s a heaven for those who wait, some say it’s better I say it ain’t.
+ - There are people who have lost every trace of human kindness.
+ - Give us this day our daily discount merchandise.
+ - I believe there is a time for meditation in cathedrals of our own.
+ - I always wrote the music first, and the music gave me the mood and the lyrics were pretty much put in to give you a map, where that mood came from and where it’s going. But my first love was really the music itself, and I guess I’ve gone back to that.
+ - Streetlife serenader never sang on stages, needs no orchestration, melody comes easy, need no vast arrangement to do their harmonizing.
+ - There’s always a place for the angry young man with his fist in the air and his head in the sand. He’s never been able to learn from mistakes, he can’t understand why his heart always breaks.
+ - Why don’t the Beatles get back together? Why don’t nobody sing of romance?
+ - I am the entertainer and I know just where I stand Another serenader and another long haired band Today I am your champion, I may have won your hearts, But I know the game, you’ll forget my name, And I won’t be here in another year If I don’t stay on the charts.
+ - I don’t belong in limos or private jets or on stage with people cheering me but that’s what’s kept me grounded because I know it’s not right.
+ - I am the entertainer, I’ve come to do my show You’ve heard my latest record, it’s been on the radio It took me years to write it, they were the best years of my life It was a beautiful song but it ran too long If you’re gonna have a hit you gotta make it fit So they cut it down to 3:05.
+ - I’ve lived long enough to have learned, the closer you get to the fire, the more you get burned.
+ - Most people are satisfied with the junk food being sold as music.
+ - Out of respect for the things that I was never destined to do, I have learned that my strengths are a result of my weaknesses, my success is due to my failures, and my style is directly related to my limitations.
+ - It was so easy living day by day Out of touch with the rhythm and blues But now I need a little give and take The New York Times, The Daily News.
+ - You’ve got yoga, I’ve got beer. You got overpriced, I got weird.
+ - Davey Crocket, Peter Pan, Elvis Presley, Disneyland.
+ - I was drawn to boxing because I got beat up as a kid. I was the kid with the piano books in a New York neighbourhood.
+ - As human beings, we need to know that we are not alone, that we are not crazy or completely out of our minds, that there are other people out there who feel as we do, live as we do, love as we do, who are like us.
+ - Hey Lord, would ya look out for her tonight, and make sure that all her dreams are sweet? Said now, would ya guide her on the roads, and make them softer for her feet? Hey Lord, would ya look out for her tonight, and make sure that she’s gonna be alright, until she’s home and here with me.
+ - We’re on the verge of all things new.
+ - I’m a cosmopolitan sophisticate of culture and intelligence. The culmination of technology and civilized experience.
+ - Every child had a pretty good shot, to get at least as far as their old man got. But something happened on the way to that place. They threw an American flag in our face.
+ - I don’t know why I go to extremes.
+ - The graduations hang on the wall, but they never really helped us at all.
+ - Let me go on sleeping and I will lose myself in palaces of sand, and all the fantasies that I’ve been keeping will make the empty hours easier to stand.
+ - You get paid like a really good call girl. Walking offstage is like the walk of shame.
+ - My daughter sent me on a mission to get as many autographs as possible.
+ - I am the entertainer, the idol of my age I make all kinds of money when I go on the stage You see me in the papers, I’ve been in the magazines But if I go cold, I won’t get sold I get put in the back in the discount rack Like another can of beans.
+ - You want to give people a reason to hate my guts more? I’m making more money.
+ - I’ve written a bunch of stuff that no one’s ever heard, and I don’t know if they ever will. I’m just doing it for my own edification.
+ - There will be other words some other day; that is the story of my life.
+ - I’m single but interviewing.
+ - There’s a deep-seated paranoia that Americans have about not being Americans or something.
+ - I always wanted to try to be a teacher even before I was in the music business. I liked history, and good teachers made an impact on me.
+ - Like family, we are tied to each other. This is what all good musicians understand.
+ - I keep telling people: Don’t make me the poster boy for AA because I don’t know a lot about sobriety, but I do know a lot about drinking.
+ - You’ll learn more from your accidents than anything that you could ever learn at school.
+ - The joy of life is made up of obscure and seemingly mundane victories that give us our own small satisfactions.
+ - A typical day in the life of a heavy metal musician consists of a round of golf and an AA meeting.
+ - Some people find it’s easier to hate.
+ - You can linger too long in your dreams...
+ - Honesty is the best part of any art form. If you don’t have that, you’re kidding yourself and your listener.
+ - It’s really hard to make a living as a musician. It’s almost impossible.
+ - I never stopped writing music, I just stopped writing songs. I’ve been writing music continually ever since the last album of original tunes, “River Of Dreams” in ’93.
+ - We are living in a time when American popular music is finally being recognized as one of our most successful exports. The demand is huge.
+ - Twyla Tharp put it together from the material I wrote and recorded over my whole career. I thought it was pretty good, but how objective could I be?
+ - I look in the mirror and think, ‘I don’t look like a rock star.’ I talked about this with Bono and we looked at each other and decided we look like a pair of bricklayers.
+ - If you tell kids they can’t have something, that’s what they want.
+ - No end to sorrow, caused by the same endless fears. Why can’t we learn from all we’ve been through after two thousand years?
+ - If you’re a very unfulfilled person you might have a tendency to turn to crime.
+ - Don’t make music for some vast, unseen audience or market or ratings share or even for something as tangible as money. Though it’s crucial to make a living, that shouldn’t be your inspiration. Do it for yourself.
+ - I have long admired Steinway pianos for their qualities of tone, clarity, pitch consistency, touch responsiveness, and superior craftsmanship.
+ - My songs are like my kids.
+ - Those who have expressed doubts and misgivings about their ability to live this kind of life shouldn’t try, because being a musician is not something you chose to be, it is something you are.
+ - I see the winos talking to themselves and I can understand.
+ - What will it take for you to believe in me, the way that I believe in you?
+ - I did write a letter to the archdiocese who’d banned the song, Only the Good Die Young, asking them to ban my next record.
+ - Give a moment or two to the angry young man with his foot in his mouth and his heart in his hand.
+ - I always hated my hair, so now it’s going away.
+ - We all have a face that we hide away forever, and we take them out and show ourselves when everyone has gone.
+ - You look so polished from your hair down to your toes, but still your finger’s gonna pick your nose.
+ - In an age of incompetence, I’ve been able to last in this crazy business. I actually know how to play my ax and write a song. That’s my job.
+ - I’m writing for the sake of writing music. Whether it gets heard or not isn’t an issue for me. It keeps my own juices going and my mind active.
+ - There ain’t much future for a man who works the sea, there ain’t no island left for islanders like me.
+ - When I was 19, I made my first good week’s pay as a club musician. It was enough money for me to quit my job at the factory and still pay the rent and buy some food. I freaked.
+ - I can’t think of one person I’ve ever met who didn’t like some type of music.
+ - I definitely prefer being a lover than a fighter.
+ - I believe that all important matters have to be settled here, not in the clouds somewhere after we kick off.
+ - People always think I was just playing in a piano bar, but I only did that for about six months. The rest of the time I was playing in bands.
+ - Well we’re waiting here in Allentown For the Pennsylvania we never found For the promises our teachers gave If we worked hard If we behaved So the graduations hang on the wall But they never really helped us at all No they never taught us what was real.
+ - I hope it does not take the rest of my life until I find what it is I’ve been looking for.
+ - You’re not the only one who’s made mistakes, but they’re the only things that you can truly call your own.
+ - I’m kind of putting my toe back in the water and seeing how it feels. We’re going to be doing stuff we haven’t done for years and years and years. So I’m looking forward to seeing how this stuff flies.
+ - Artist – musicians, painters, writers, poets, always seem to have had the most accurate perception of what is really going on around them, not the official version or the popular perception of contemporary life.
+ - Your mother told you all that I could give you was a reputation.
+ - I’m not the kind of guy who wants to be on a pedestal.
+ - Musicians now find themselves in the unlikely position of being legitimate. At least the IRS thinks so.
+ - I see the children with their boredom and their vacant stares.
+ - When I look at great works of art or listen to inspired music, I sense intimate portraits of the specific times in which they were created.
+ - I won’t be righteous again. I’m not sure anymore.
+ - When I was a young musician, the only option available to pursue secondary education in music was to attend a classical conservatory.
+ - I could walk away from anyone I ever knew, but I can’t walk away from you.
+ - Have you listened to the radio lately? Have you heard the canned, frozen and processed product being dished up to the world as American popular music today?
+ - It’s a little intimidating to walk into a studio and know that you’re going to sing a duet with Barbra Streisand.
+ - Move to California – my first impression of the Wild West.
+ - Life is a series of hellos and goodbyes; I’m afraid it’s time for goodbye again.
+ - Rock and roll just used to be for kicks, now a days it’s politics.
+ - Hope you don’t think this is Billy Joel unplugged. I’m a piano player. I’m already unplugged.
+ - Don’t be afraid to try again everyone goes south every now and then.
+ - What if she figures out you’re not very smart?
+ - Even when I stop performing or stop making records I won’t stop being creative. Songwriting is a good outlet.
+ - I’m a statistic in a system that a civil servant dominates.
+ - If you search for truthfulness, you might as well be blind.
+ - You only beat me if you get me to hate.
+ - If you could only hear what I dream.
+ - I’m a piano player. I never thought of myself as a singer, at all. I was always trying to sound like somebody else. I don’t like my own voice, I like Ray Charles, Robert Plant, I like Joe Cocker, Rod Stewart, people that have an edge in their voice.
+ - I have been both praised and criticized. The criticism stung, but the praise sometimes bothered me even more. To have received such praise and honors has always been puzzling to me.
+ - I’m sure you have some cosmic rationale, but here you are with your faith and your Peter Pan advice.
+ - I compare songwriting to childbirth. How many kids can you have before your uterus explodes?
+ - Following a code of silence, you’re never gonna lose the anger.
+ - And you know that when the truth is told that you can get what you want or you can just get old.
+ - I never said I wasn’t going to play any more. I don’t know where that came from.
+ - If I need a cause for celebration, Or a comfort I can use to ease my mind, I rely on my imagination, And I dream of an imaginary time.
+ - I’m writing new music all the time. I’m just not writing pop stuff. It’s not my goal.
+ - They say that no one’s gonna play this on the radio. They said the melancholy blues were dead and gone. But only songs like these played in minor keys, keep those memories holding on.
+ - Why do musicians give so much time to charitable causes? The most humanitarian cause that we can give our time to is the creation and performance of music itself.
+ - If you said good-bye to me tonight, There would still be music left to write.
+ - You can walk away from your mistakes You can turn your back on what you do Just a little smile is all it takes And you can have your cake and eat it too. Loneliness will get to you somehow But ev’rybody loves you now.
+ - I consider myself to be an inept pianist, a bad singer, and a merely competent songwriter. What I do, in my opinion, is by no means extraordinary.
+ - I think historically America has been pretty tolerant. It seems when there’s a mass influx from one place, that’s when it becomes problematic for Americans.
+ - I’m probably writing music now for the same reason as I started writing songs when I was 14 – to meet women.
+ - Why should I worry, why should I care? And even when I cross that line, I got street savoire faire.
+ - I look at some of the songs I wrote years ago and I can’t believe I wrote such crap.
+ - Historically, musicians know what it is like to be outside the norm – walking the high wire without a safety net. Our experience is not so different from those who march to the beat of different drummers.
+ - I’ve reached the age where competence is a turn-on.
+ - People pay a lot of money to go see shows now, they don’t wanna know about your technical problems, or if you’re not feeling good, they don’t wanna know we have a glitch. It’s their night, you better do something to earn that money.
+ - Advice is cheap; you can take it from me.
+ - We might be laughing a bit too loud, but that never hurt no one.
+ - I’ve come to realize that life is not a musical comedy, it’s a Greek tragedy.
+ - I always thought of myself as the piano player in the band. That, I suppose, I’m confident about, and I guess my songwriting developed as I went along and I got a certain amount of confidence in that. The songs are like my kids, I’m proud of all of them for one reason or another.
+ - And so my child and I came to this place to meet him eye to eye and face to face. He made my daughter laugh, then we embraced. We never knew what friends we had, until we came to Leningrad.
+ - We drown our doubts in dry champagne and soothe our souls with fine cocaine. I don’t know why I even care, we get so high and get nowhere.
+ - She can kill with a smile. She can wound with her eyes. She can ruin your faith with her casual lies. And she only reveals what she wants you to see. She hides like a child, but she’s always a woman to me.
+ - Critics have said I write without spontaneity, in cold blood. I don’t. I write in hot blood.
+ - You’ve given me the best of you, but now I need the rest of you.
+ - Though you can see when you’re wrong, you know you can’t always see when you’re right.
+ - I tell the audience every night, “I hope you didn’t pay more than face value on that ticket, because we ain’t worth more than that, and you ain’t gonna get any more than that.”
+ - For whatever reason, not all people are born with the particular gift of being able to express ourselves through music. And, believe me, it is a gift.
+ - Some of the stuff I’m writing is almost like hymns, some of my first singing and choral experiences were in church, the Church of Christ in Hicksville.
+
+227 quotes

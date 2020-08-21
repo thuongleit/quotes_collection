@@ -1,0 +1,45 @@
+ - The best revenge is democracy.
+ - What is not recorded is not remembered.
+ - I know death comes. I’ve seen too much death, young death.
+ - Democracy is the best revenge.
+ - The government I led gave ordinary people peace, security, dignity, and opportunity to progress.
+ - The best hijab is in the eyes of the beholder.
+ - Freedom is not an end. Freedom is a beginning.
+ - Every dictator uses religion as a prop to keep himself in power.
+ - To make peace, one must be an uncompromising leader. To make peace, one must also embody compromise.
+ - Democracy needs support, and the best support for democracy comes from other democracies.
+ - No, I am not pregnant. I am fat. And, as the Prime Minister, its my right to be fat if I want to.
+ - Whatever my aims and agendas were, I never asked for power.
+ - Political dictatorship and social hopelessness create the desperation that fuels religious extremism.
+ - Oppression does not know the meaning of provincial boundaries. Aren’t our energies better spent fighting the common enemy instead of each other?
+ - America’s greatest contribution to the world is its concept of democracy, its concept of freedom, freedom of action, freedom of speech, and freedom of thought.
+ - Military hardliners called me a ‘security threat’ for promoting peace in South Asia and for supporting a broad-based government in Afghanistan.
+ - The people who resent me do so because I’m a woman, I’m young, and I’m a Bhutto. Well, the simple answer is, it doesn’t matter that I’m a woman, it doesn’t matter that I’m young, and it’s a matter of pride that I’m a Bhutto.
+ - The next decade cannot be a decade of confrontation and contention. It cannot be east vs. West. It cannot be men vs. women. It cannot be Islam vs. Christianity. That is what the enemies of dialogue want.
+ - Purusing peace means rising above one’s own wants, needs, and emotions.
+ - Ultimately, leadership is about the strength of one’s convictions, the ability to endure the punches, and the energy to promote an idea. And I have found that those who do achieve peace never acquiesce to obstacles, especially those constructed of bigotry, intolerance, and inflexible tradition.
+ - I believe that democracies do not go to war; that’s the lesson of history, and I think that a democratic Pakistan is the world community’s best guarantee of stability in Asia.
+ - Right now, they feel they have lost their voice, and their miseries have increased since my departure.
+ - Like all children I had taken my father for granted. Now that I had lost him, I felt an emptiness that could never be filled. But I did not let myself cry, believing as a Muslim that tears pull a spirit earthward and won’t let it be free.
+ - I’m not into smoke-filled rooms. I don’t have the time for byzantine political intrigues.
+ - It would be so nice to have the luxury just to laze. So nice not to have to always get up and get dressed for some occasion. Always having to move from here to there, where everything is scheduled and even having lunch with my kids on their Easter break has to be slotted in. Maybe one day...
+ - Military dictatorship is born from the power of the gun, and so it undermines the concept of the rule of law and gives birth to a culture of might, a culture of weapons, violence and intolerance.
+ - And also I was brought up to believe that human beings are good, which is why it shocks me to the core when I see human beings behaving badly.
+ - What is important is that a political party articulates the mood of a generation.
+ - All through the years of the Soviet empire, its Politburo held ‘elections.’ Of course, calling something an election and actually having it be an election are different things.
+ - It is one thing being able to contest an election and to give the people hope that I can be the next prime minister. It is a totally different situation where the people of Pakistan are told that the results are already taken and the leader of your choice is banned.
+ - Democracy needs support and the best support for democracy comes from other democracies. Democratic nations should come together in an association designed to help each other and promote what is a universal value – democracy.
+ - My father was the Prime Minister of Pakistan. My grandfather had been in politics, too; however, my own inclination was for a job other than politics. I wanted to be a diplomat, perhaps do some journalism – certainly not politics.
+ - All our problems, all our disputes, all our disagreements can be resolved quickly to mutual satisfaction if we address the question.
+ - The next few months are critical to Pakistan’s future direction as a democratic state committed to promoting peace, fighting terrorism and working for social justice.
+ - We learned at an early age that it was men’s interpretation of our religion that restricted women’s opportunities, not our religion itself. Islam in fact had been quite progressive toward women from its inception...
+ - Pakistans future viability, stability and security lie in empowering its people and building political institutions. My goal is to prove that the fundamental battle for the hearts and minds of a generation can be accomplished only under democracy.
+ - I found that a whole series of people opposed me simply on the grounds that I was a woman. The clerics took to the mosque saying that Pakistan had thrown itself outside the Muslim world and the Muslim umar by voting for a woman, that a woman had usurped a man’s place in the Islamic society.
+ - The United Nations charter gives every nation the right to self defence, therefore when the American embassies were bombed it was a matter of time before the Americans responded by going for what they suspected were the causes of the attack.
+ - While living in America when I attended Harvard in the early 1970s, I saw for myself the awesome, almost miraculous, power of a people to change policy through democratic means.
+ - The political parties have unanimously rejected the one-man constitutional changes.
+ - Given the right to a free ballot, the people would support my return.
+ - I find that whenever I am in power, or my father was in power, somehow good things happen. The economy picks up, we have good rains, water comes, people have crops. I think the reason this happens is that we want to give love and we receive love.
+ - I seek to lead a democratic Pakistan which is free from the yoke of military dictatorship and that will cease to be a haven, the very petri dish of international terrorism.
+
+43 quotes

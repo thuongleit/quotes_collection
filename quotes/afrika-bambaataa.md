@@ -1,0 +1,27 @@
+ - I don’t care if it’s rap, metal, whatever. You still should play Beatles records mixed with Limp Bizkit mixed with Foghat mixed with Creedence Clearwater Revival, stuff like that.
+ - Hip-hop went through different stages, from the beginning in the streets of the Bronx, to the whole Tri-State area and then to the rest of the United States and the rest of the world.
+ - Well hip hop is basically the whole culture of the movement. There’s the rap which is a form of hip hop culture. It could be breakdancing, freestyle dancing or whatever type of dancing that’s happening now in the Black, Hispanic and White community.
+ - The only thing I want is to awaken all humans on the planet that we are living on Mother Earth.
+ - A lot of times, when people say hip-hop, they don’t know what they’re talking about. They just think of the rappers. When you talk about hip-hop, you’re talking about the whole culture and movement. You have to take the whole culture for what it is.
+ - You treat people with greatness and greatness will come back to you.
+ - How you act, walk, look and talk is all part of Hip Hop culture. And the music is colorless. Hip Hop music is made from Black, brown, yellow, red and white.
+ - I’d like to see people pay attention to the science of hip hop. The knowledge part, the political side of what hip hop could do, or where hip hop is gonna go. I always say it’s gonna become universal as we become a galactic union.
+ - Don’t get caught up on ‘I’m brown, black, white, red, blue, whatever.’ You gotta ask, what were you called before 1492? All these names we’re using now are just an illusion made to keep us fighting each other.
+ - It ain’t no joke when you lose your vinyl.
+ - Hip-hop has been hijacked by a Luciferian conspiracy. People have used hip-hop in a lot of ways that cause a lot of mind problems. They use the word wrongfully. They use it to mean a part instead of a whole.
+ - When you talk about rap you have to understand that rap is part of the Hip-Hop culture.
+ - I am one of the founders of Hip-Hop along with my brothers Kool DJ Herc and Grandmaster Flash.
+ - Say planet rock, it’s a sure shot.
+ - I’m fanatical about movies: African, European, Viking, Roman. I got into witchcraft and magic from watching ‘Bewitched’ and ‘The Wizard of Oz,’ which shows in some of my outfits. I dress to reflect the whole spectrum of the universe.
+ - You want to buy cars and houses and castles, all of that’s on you and how America has systematized your mind to be into materialism. Hip-hop ain’t got nothing to do with that. I’m glad that anybody making money has picked themselves up – I just want them to give some of it back to the community.
+ - If you see something is going wrong within politics and the world today, then some Hip Hop artist is gonna come along and get straight with it. If they think that there’s a lot of racism going on then there’s another Hip Hop artist who’s gonna come out and speak their mind.
+ - I’m as old as the moon and the stars, and as young as the trees and the lakes. My style comes from looking at what came before me, and from visiting a lot of places.
+ - They’re keeping friction going between people from the East and the West. One thing we all got in common is your color, which is Black and Latino, which is our family.
+ - Cut Chemist and DJ Shadow are going to blow your funky mind!
+ - Since the pharmaceuticals don’t make any money and they control the doctors. If the doctors don’t make any money then all hell breaks loose. In communities like LA and New York they are using a lot of the youth for a test sight.
+ - I knew that as a DJ from 1970 on up that I would eventually come with this sound. I brought out all these other break beats that you hear so much on a lot of these records.
+ - Well, a lot of people within government and big business are nervous of Hip Hop and Hip Hop artists, because they speak their minds. They talk about what they see and what they feel and what they know. They reflect what’s around them.
+ - You have to look at the fact that Hip Hop is under attack. It’s not just Hip Hop but Black people, Latino people and all people are under attack for different things.
+ - I like Akon, I like some of Lil Wayne when he uses that funky voice. Anything progressive.
+
+25 quotes

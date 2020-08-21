@@ -1,0 +1,34 @@
+ - The only thing that saves us from bureaucracy is its inefficiency.
+ - An efficient bureaucracy is the greatest threat to liberty.
+ - Remember that the worst accidents occur in the middle of the road.
+ - Saying we should keep the two-party system simply because it is working is like saying the Titanic voyage was a success because a few people survived on life rafts.
+ - I can still smell the tear gas in the Hilton Hotel.
+ - Let us pick up again these lost strands and weave them again into the fabric of America, sort out the music from the sounds and again respond to the trumpet and the steady drum.
+ - War is indefensible on every grounds, military and economic and diplomatic and also on moral.
+ - Whatever is morally necessary must be made politically possible.
+ - As long as the differences and diversities of mankind exist, democracy must allow for compromise, for accommodation, and for the recognition of differences.
+ - Being in politics is like being a football coach. You have to be smart enough to understand the game, and dumb enough to think it’s important.
+ - You know when I first thought I might have a chance? When I realized that you could go into any bar in the country and insult Lyndon Johnson and nobody would punch you in the nose.
+ - The mortician interviewing the corpses.
+ - Nixon is the kind of guy who, if you were drowning twenty feet from shore, would throw you a fifteen-foot rope.
+ - The function of liberal Republicans is to shoot the wounded after battle.
+ - Never say anything in a national campaign that anyone might remember.
+ - One thing about a pig, he thinks he’s warm if his nose is warm. I saw a bunch of pigs one time that had frozen together in a rosette, each one’s nose tucked under the rump of the one in front. We have a lot of pigs in politics.
+ - The Senate is the last primitive society in the world. We still worship the elders of the tribe and honor the territorial imperative.
+ - We do not need presidents who are bigger than the country, but rather ones who speak for it and support it.
+ - Vote against anything introduced with a “re” in it, especially reforms, reorganizations, and recodifications. This usually means going back to something that failed once and is likely to do so again.
+ - Have you ever tried to split sawdust?
+ - We don’t declare war any more; we declare national defense.
+ - In politics one may remain aloof and become irrelevant or get involved and get corrupted.
+ - No man could be equipped for the presidency if he has never been tempted by one of the seven cardinal sins.
+ - The polls show that 10 percent of the public are ready to vote for me even though they don’t know I’m running. We hope that figure won’t drop when they learn I’m in the race.
+ - There is a long-standing tradition in America of scoffing at poets, especially if they show any interest in politics.
+ - I would not want to put him in charge of snake control in Ireland.
+ - Anything said three times in Washington becomes a fact.
+ - This is, I say, the time for all good men not to go to the aid of their party, but to come to the aid of their country.
+ - A newspaper may somewhat arrogantly assert that it prints “all the news that’s fit to print.” But no newspaper yet has been moved to declare at the end of each edition, “That’s the way it is,” as Walter Cronkite does.
+ - It is dangerous for a national candidate to say things that people might remember.
+ - I’m kind of an accidental instrument, really, through which I hope that the judgment and the will of this nation can be expressed.
+ - If you’re in the penaut business you learn to think small.
+
+32 quotes

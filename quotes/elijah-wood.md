@@ -1,0 +1,50 @@
+ - Dream the impossible because dreams do come true.
+ - I think new experiences are extremely important. I think it’s really important to constantly challenge yourself. Comfort is not a good thing. It’s good to take yourself out of your comfort zone and to look for new challenges.
+ - I think being different, going against the grain of society is the greatest thing in the world.
+ - I’ve always had a sense of groundedness as a person. I think that’s helped me. My mother sort of beat into me the notion of humility, and I think my focus has always been on the right things or the things that I’m passionate about, which is just simply the work.
+ - Our bad memories and our bad experiences are what make us who we are and what make us grow and allow us to learn, if we choose to see the lessons in those experiences.
+ - Those moments of solitude and exhibiting a mental breakdown, and how you do that physically and without it being too obvious, but being relatively settled but relatively intense. There are some intense moments in there that sort of pepper his breakdown.
+ - There’s a real purity in New Zealand that doesn’t exist in the states. It’s actually not an easy thing to find in our world anymore. It’s a unique place because it is so far away from the rest of the world. There is a sense of isolation and also being protected.
+ - I’m not a star!!! A star is nothing but a ball of gas!!!
+ - On a superficial level, I like girls with dark hair – I’m a sucker for that.
+ - I’m kind of insane when it comes to music, a little obsessed.
+ - I definitely felt the pressure I wanted to live up to all of the expectations.
+ - I definitely don’t look my age. So I actively look for roles that will help people change their perception of me.
+ - In the absence of love, there is nothing worth fighting for.
+ - I love romantic comedies. I love romantic movies. I’m kind of a sucker for them, and, sort of end up crying at the end of them all, like a child.
+ - When I work, I disappear into work, which I like to do, and sometimes I don’t really have a choice. It’s not a conscious thing. It’s just total devotion to what I’m doing.
+ - Quite simply it is love. It is the unconditional love that says, regardless of what you do or where you go, I will always be there for you.
+ - The guy is a stud with women just following him around wherever he goes. But he is the last one who’ll ask anyone to do anything for him. He’d rather just go do it himself.
+ - My God! Middle Earth does exist!
+ - I’ll play a character who is getting married to a woman to avoid the draft. Ultimately they fall in love with each other, but at first it’s only out of practicality.
+ - We all deal with a certain amount of stress, on a day-to-day basis. I probably smoke too many cigarettes, which isn’t a very good thing. I don’t have any extraordinary coping mechanism. I certainly don’t talk to a dog.
+ - When you have an animal in your home, a relationship forms very quickly, where that animal ceases to be an animal to you. It feels like a member of your family.
+ - A solid base for any comedy is just honesty and truth, and it coming from a real place. As surreal as this show gets and is, ultimately, we’re dealing with a character that most can’t see the way that I can see it.
+ - So much time is wasted on trying to be better than others.
+ - I just can’t imagine that people would stand for it. People are wanting to potentially elect someone who will get our troops out, so at this stage, if the draft was reinstated, I just think that people would have none of it.
+ - Hello! I’m Elijah Wood, and i’m a looser!
+ - The worst kind of lying I’ve ever done is keeping things from people.
+ - I think horror comedies tend to skew more comedy than horror, for the most part.
+ - I never wanted to be in a band because I love music too much to mess it up.
+ - If you cut off your arm instead of going ‘spurt, spurt, spurt’ wouldn’t it, like, go nuts? Or would it go with the beat of your heart?
+ - It’s always nice when you get a chance to actually work with the other actor. It just brings the scene to life, in a way that’s not as easy to replicate on your own.
+ - I just got called Nigel...
+ - It was kind of unique and great to have two films coming out within a week. It certainly was a different experience for me.
+ - You’ve got major artists releasing albums on their own and eschewing the major system. I think that breeds excitement and creativity.
+ - My philosophy has always been to try to put myself into roles and films that are different. That intensified after ‘Lord of the Rings’ because it was so massive, but it’s something I’ve always believed in, wanting to change people’s perceptions and challenge myself as an actor.
+ - I think as a music listener you have your rock and roll dreams. I personally wouldn’t want to apply that necessarily, mainly because I love music too much to mess it up.
+ - The predominant difference between television and film is the pace to which you work, but the development of the character or the process for playing the character isn’t necessarily different.
+ - I actually got a crush on Anne Heche when I worked with her on Huckleberry Finn. It didn’t work out.
+ - I suppose I’ve been working for a long time, so I’ve seen all kinds of filmmaking. I can fit into anything, and it doesn’t feel that weird or that fascinating.
+ - Geeks are the coolest people.
+ - The prospect of being able to work on a Kaufman film with him directing was just too good to be true.
+ - As an actor, it’s a relatively passive job unless you’re generating your own content or writing your own content. So to a certain degree you’re at the mercy of what is available, what you’re reading, what you become passionate about, and ultimately, what people want to hire you for.
+ - I don’t know that I necessarily feel more comfortable in the context of smaller films, but I tend to feel more comfortable more often than not with the material of smaller films,.
+ - I’m always looking for something very different from anything I’ve done. I’m attracted to a great script, and not necessarily a great character.
+ - So, as much as it is about this continuing war, the reinstated draft, and their individual views, it’s really sort of a deeply human tale, and a character study as well.
+ - I’m just always looking for something that I’ve never done, or something that feels unique and special. A lot of it is gut and what you emotionally connect with, and that can be a variety of different things.
+ - The other main difference between film and television is that you have the opportunity to flush out a character, over a longer period of time. Whereas with a film, you’re confined to two or three hours, or whatever it may be.
+ - I watched the Lost series in the US and it’s great.
+ - Sometimes my interest in working on a film is not always dictated specifically by the character. Sometimes it’s simply about wanting to be a part of a vision that I love, or a script that I love. I find exciting and gratifying.
+
+48 quotes

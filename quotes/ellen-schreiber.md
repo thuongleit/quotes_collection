@@ -1,0 +1,24 @@
+ - This club is for members only. But once you join, membership lasts for an eternity.
+ - That’s what my mother doesn’t understand about my lipstick and dark clothes. I don’t wear tattoos to freak her out; I wear them because I have to. It’s me.
+ - I hope you enjoyed your visit. You never know. You may want to join forever.
+ - He looked so lost, so soulful, so lonely. I wanted him to kiss me now. I wanted to let him know I was his for all eternity.
+ - I want a relationship I can finally sink my teeth into.
+ - Call school, tell them I’m lovesick.
+ - My handsome Knight of Night came over to me and kissed me softly on the cheek.
+ - Raven?? Yes?? What do you believe in?? I believe in – finding out!
+ - Then how about one kiss?? he said with a sexy grin. ‘Something to remember me by?’ ‘I’ll give you something to remember me by,’ I said. The back of my head.? I pushed past him and escaped through the door to freedom.
+ - If anyone was going to fall prey to a handsome vampire, it was going to be me.
+ - Commitment. That’s what it’s all about. Taking that convenant together. Bonding yourselves for all eternity. Isn’t that what we are all looking for? Maybe Alexander wasn’t ready to do that with me, but it’s obvious he isn’t ready to do that with you, either.
+ - Some people spend all their lives searching for their soul mates.
+ - Trevor was as menacing as he was gorgeous. If he were a vampire, he’d be the dark kind, the kind that sneaks up on innocent girls and bites without a thought.
+ - I always let the characters guide the stories. They really let me know what they want to say and what action they want to happen.
+ - Is this the life you really want? Or is it just the fantasy of it?
+ - Trevor possessed many of the qualities of a vampire without actually being one. He constantly preyed on me, was deeply charismatic, and tried to suck the life out of me.
+ - Go in and get us a shrunken head!
+ - I think I might have to place you under arrest for trespassing. But I always go easy on pretty girls who confess.
+ - Black is a girl’s best friend.
+ - I’d witnessed for the first time in my vampire- obsessed existence an actual vampire bite. The only problem was that it wasn’t my neck being bitten.
+ - Raven: So Alexander, now we know what we do all day. What do you do? Alexander: I spend it thinking about you.
+ - Just because he has black fingernails doesn’t mean he’s a monster-that’s how you’ve defended yourself for years.
+
+22 quotes

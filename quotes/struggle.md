@@ -1,0 +1,42 @@
+ - Take up an idea, devote yourself to it, struggle on in patience, and the sun will rise for you. ~~Swami Vivekananda
+ - Yesterday is gone. Tomorrow has not yet come. We have only today. Let us begin. ~~Mother Teresa
+ - Where there is no struggle, there is absolutely no progress. ~~Eric Thomas
+ - When you struggle with a problem, that’s when you understand it. ~~Elon Musk
+ - The greatest things in life all require commitment, sacrifice, some struggle and hardship. It’s not easy. But absolutely worth it. ~~Robin S. Sharma
+ - Struggle is nature’s way of strengthening it. ~~John Locke
+ - The greater the struggle the more glorious the triumph. ~~Nick Vujicic
+ - If you’re absent during my struggle, don’t expect to be present during my success. ~~Will Smith
+ - My life is a struggle. ~~Voltaire
+ - Let us fight for a new world, a decent world! ~~Charlie Chaplin
+ - Education comes from within; you get it by struggle and effort and thought. ~~Napoleon Hill
+ - You are imperfect, you are wired for struggle, but you are worthy of love and belonging. ~~Brené Brown
+ - No one knows my Struggle, they only see the Trouble. Not knowing it’s hard to carry on when, No one loves you. ~~Tupac Shakur
+ - God hears and He sees, and you are not alone in your struggles. Remain firm and stable, for God has your deliverance planned. ~~Joyce Meyer
+ - Love isn’t a state of perfect caring. It is an active noun like struggle. To love someone is to strive to accept that person exactly the way he or she is, right here and now. ~~Fred Rogers
+ - There is a constant struggle between good an evil in the world. It is up to good people to choose the right side. ~~Nelson Mandela
+ - The struggle of life is one of our greatest blessings. It makes us patient, sensitive, and Godlike. It teaches us that although the world is full of suffering, it is also full of the overcoming of it. ~~Helen Keller
+ - Vulnerability is the core of shame and fear and our struggle for worthiness, but it appears that it’s also the birthplace of joy, of creativity, of belonging, of love. ~~Brené Brown
+ - Always turn to God in the midst of your struggle and view people who offended you as an instruments of divine sovereignty. ~~John C. Maxwell
+ - The angel is free because of his knowledge, the beast because of his ignorance. Between the two remains the son of man to struggle. ~~Rumi
+ - There is nothing in a caterpillar that tells you it’s going to be a butterfly. ~~R. Buckminster Fuller
+ - In the struggle for survival, the fittest win out at the expense of their rivals because they succeed in adapting themselves best to their environment. ~~Charles Darwin
+ - The struggle itself towards the heights is enough to fill a man’s heart. One must imagine Sisyphus happy. ~~Albert Camus
+ - Hope is a function of struggle. ~~Brené Brown
+ - At times some may think that no one cares – but someone always cares! Your Heavenly Father will not leave you to struggle alone, but stands ever ready to help. ~~Thomas S. Monson
+ - Strength is the product of struggle, you must do what others don’t to achieve what others won’t. ~~Henry Rollins
+ - I started my life with a single absolute: that the world was mine to shape in the image of my highest values and never to be given up to a lesser standard, no matter how long or hard the struggle. ~~Ayn Rand
+ - The old world is dying, and the new world struggles to be born; now is the time of monsters. ~~Antonio Gramsci
+ - In the struggle for justice, the only reward is the opportunity to be in the struggle. You can’t expect that you’re going to have it tomorrow. You just have to keep working on it. ~~Frederick Douglass
+ - A constant struggle, a ceaseless battle to bring success from inhospitable surroundings, is the price of all great achievements. ~~Orison Swett Marden
+ - A further sign of health is that we don’t become undone by fear and trembling, but we take it as a message that it’s time to stop struggling and look directly at what’s threatening us. ~~Pema Chödrön
+ - A journey is a person in itself; no two are alike. And all plans, safeguards, policies and coercion are fruitless. We find after years of struggle that we do not take a trip; a trip takes us. ~~John Steinbeck
+ - Strength and growth come only through continuous effort and struggle. ~~Napoleon Hill
+ - The search for Nirvana, like the search for Utopia or the end of history or the classless society, is ultimately a futile and dangerous one. It involves, if it does not necessitate, the sleep of reason. There is no escape from anxiety and struggle. ~~Christopher Hitchens
+ - The way to chastity is not to struggle directly with incontinent thoughts but to avert the thoughts by some imployment, or by reading, or meditating on other things. ~~Isaac Newton
+ - But it was alright, everything was alright, the struggle was finished. He had won the victory over himself. He loved Big Brother. ~~George Orwell
+ - In order to change an existing paradigm you do not struggle to try and change the problematic model. You create a new model and make the old one obsolete. ~~R. Buckminster Fuller
+ - Spare me the political events and power struggles, as the whole earth is my homeland and all men are my fellow countrymen. ~~Khalil Gibran
+ - There is an angel within the monkey struggling to get free, and this is what the historical crisis is all about. ~~Terence McKenna
+ - Ever feel like God is a million miles away? The truth is, he’s not. Whatever struggle you’re going through, you can rest assured you’re not alone. You have God in your corner. ~~Rick Warren
+
+40 quotes

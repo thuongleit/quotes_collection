@@ -1,0 +1,32 @@
+ - The easiest way to get laid by a girl, or get rid of her, is to write a song about her.
+ - Don’t waste the time. Time is the final currency, man. Not money, not power – it’s time.
+ - All wars would end immediately if the various chiefs of state dropped a little LSD.
+ - Neil Young played Helpless, and by the time he finished, we were asking him if we could join his band.
+ - CSNY is a little like putting seven pounds of stuff in a three pound bag.
+ - I don’t like greed, I don’t like ignorance. I really don’t like anger. But I love love.
+ - I don’t think being angry is useful or healthy, and usually when I get angry, my brain just goes right out the window. Boom, as soon as the adrenaline hits, instant stupid. Just add water and mix.
+ - There has never been a communism that worked. They were all dictatorships or oligarchies, every single one.
+ - The movie I’ve seen the most times, boy, that’s a tough one. It would have to be a toss-up between Apocalypse Now and the first Star Wars. I think the first Star Wars.
+ - I think music is a lifting force, I think love is the lifting force in the human condition. I think you see someone loving on their child, and it moves you, and you can’t help it.
+ - Sailing became one of the mainstreams of my life. I suppose my father was an influence. I remember seeing a photo of him at home sailing a big boat to Bermuda in his 20s. I still have it.
+ - I do like to smoke pot. I think it’s good.
+ - Jimi Hendrix could play better than our best guys and he did it while he was dancing while being completely outrageous.
+ - The people who run record companies now wouldn’t know a song if it flew up their nose and died. They haven’t a clue, and they don’t care. You tell them that, and they go, Yeah? So, your point is?
+ - I produced her first album, and I was breaking up with her at the time. That was not comfortable. Falling in love with Joni Mitchell is a bit like falling into a cement mixer!
+ - I want to go to Africa and find a really great hotel with good food right above a water hole where I can sit, have breakfast, and just watch the elephants play in the water.
+ - Describing Woodstock as the “big bang,” I think that’s a great way to describe it, because the important thing about it wasn’t how many people were there or that it was a lot of truly wonderful music that got played.
+ - I want to look at myself the way I do on purpose, because if you aggrandize and try to look at yourself the way a fan does or the way a reviewer does or the way – God bless them, they all got a right to, everybody’s got a right to an opinion about it.
+ - My songs emerge from my life, or wherever they do, unbidden and unplanned and completely on a schedule of their own.
+ - Now record companies are run by lawyers and accountants. The shift from the one to the other was definitely related to when the takes started to get big.
+ - I can’t legislate a song into being; it just will not happen for me.
+ - I write very sporadically. I write sometimes three things in a week and then nothing for a year. I make a space for it but I don’t push it. They just come and they come.
+ - There are a lot of people who look great but can’t sing.
+ - I think ideas are still the most powerful things on the planet, and music is a great way to transmit them.
+ - I am having so much fun performing, I feel almost guilty. I think, my God, I hope no one comes and busts me for this.
+ - When did I decide to go into business? Well, it wasn’t a business, when I decided. It was simply a need to sing.
+ - My father being in the movie business, I thought being an actor would be great. But when I started singing to people in coffeehouses, you know, singing folk music and then, later, singing songs that I started to write myself, I felt more than an affinity for it.
+ - While I was an addict, I didn’t write anything. I didn’t have the attention span or the will.
+ - The stupid thing I incorrectly believed for a long time is that I believed for a long time that some politicians could sometimes tell the truth.
+ - Sometimes the entire thing comes out in one burst. Sometimes you hack away at a thing for years before you get something that satisfies you.
+
+30 quotes

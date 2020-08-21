@@ -1,0 +1,39 @@
+ - The arrogance of race prejudice is an arrogance which defies what is scientifically known of human races.
+ - The crucial differences which distinguish human societies and human beings are not biological. They are cultural.
+ - Man is not committed in detail by his biological constitution to any particular variety of behavior.
+ - War is, we have been forced to admit, even in the face of its huge place in our civilization, an asocial trait.
+ - What really binds men together is their culture, the ideas and the standards they have in common.
+ - We do not see the lens through which we look.
+ - The Japanese are, to the highest degree, both aggressive and unaggressive, both militaristic and aesthetic, both insolent and polite, rigid and adaptable, submissive and resentful of being pushed around, loyal and treacherous, brave and timid, conservative and hospitable to new ways.
+ - Racism is the dogma that one ethnic group is condemned by nature to congenital inferiority and another group is destined to congenital superiority.
+ - No one culture has ever developed all human potentialities; it has always selected certain capacities, mental and emotional and moral, and stifled others. Each culture is a system of values which may well complement the values in another.
+ - I long to speak out the intense inspiration that comes to me from the lives of strong women.
+ - We grow in time to trust the future for our answers.
+ - The life history of the individual is first and foremost an accommodation to the patterns and standards traditionally handed down in his community.
+ - Western civilization, because of fortuitous historical circumstances, has spread itself more widely than any other local group that has so far been known.
+ - Faith is the virtue of the storm, just as happiness is the virtue of sunshine.
+ - In a day of footloose movements of people and of mixed marriages in the ancestry of the most desirable elements of the community we preach unabashed the gospel of the pure race.
+ - A man’s indebtedness is not virtue; his repayment is. Virtue begins when he dedicates himself actively to the job of gratitude.
+ - Success and failure in our own national economy will hang upon the degree to which we are able to work with races and nations whose social order and whose behavior and attitudes are strange to us.
+ - I gambled on having the strength to live two lives, one for myself and one for the world.
+ - The adequate study of culture, our own and those on the opposite side of the globe, can press on to fulfillment only as we learn today from the humanities as well as from the scientists.
+ - If we justify war, it is because all peoples always justify the traits of which they find themselves possessed, not because war will bear an objective examination of its merits.
+ - In a world that holds books and babies and canyon trails, why should one condemn oneself to live day-in, day-out with people one does not like, and sell oneself to chaperone and correct them?
+ - I have always used the world of make-believe with a certain desperation.
+ - The happiest excitement in life is to be convinced that one is fighting for all one is worth on behalf of some clearly seen and deeply felt good, and against some greatly scorned evil.
+ - We must accept all the implications of our human inheritance, one of the most important of which is the small scope of biologically transmitted behavior, and the enormous role of the cultural process of the transmission of tradition.
+ - The peoples of the earth are one family.
+ - I haven’t strength of mind not to need a career.
+ - Our faith in the present dies out long before our faith in the future.
+ - Culture is not a biologically transmitted complex.
+ - Traditional Anglo-Saxon intolerance is a local and temporal culture trait like any other.
+ - Culture, with its processes and functions, is a subject upon which we need all the enlightenment we can achieve, and there is no direction in which we can seek with greater reward than in the facts of pre-literate societies.
+ - In world history, those who have helped to build the same culture are not necessarily of one race, and those of the same race have not all participated in one culture.
+ - War is an old, old plant on this earth, and a natural history of it would have to tell us under what soil conditions it grows, where it plays havoc, and how it is eliminated.
+ - It is my necessary breath of life to understand and expression is the only justification of life that I can feel without prodding.
+ - Our national experience in Americanizing millions of Europeans whose chief wish was to become Americans has been a heady wine which has made us believe, as perhaps no nation before us has ever believed, that, given the slimmest chance, all peoples will pattern themselves upon our model.
+ - It is strange how long we rebel against a platitude until suddenly in a different lingo it looms up again as the only verity.
+ - As a matter of history great developments in art have often been remarkably separate from religious motivation and use.
+ - The trouble is not that we are never happy-it is that happiness is so episodical.
+
+37 quotes

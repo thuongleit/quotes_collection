@@ -1,0 +1,21 @@
+ - I’m not taking power. I’m catalyzing systemic change.
+ - We live in an interconnected world, and you cannot prevent people from leaving. What you need to do is to create opportunities. At the same time, people are also coming back.
+ - The job of an elected president is to overcome the past and change the playing field.
+ - We will not let the price of peace be greater than the price of war, we will firmly safeguard the achievements of the past 13 years under former President Karzai.
+ - There’s no place for mob justice in Afghanistan.
+ - Do not ever threaten an Afghan with violence. We will rise as one and we will face every threat the way we have taken on thousands of previous armies and conquerors.
+ - Peace is a national issue, not only government’s responsibility.
+ - The most significant thing is public participation. That assures the Afghan public that our promises are not empty.
+ - Deadlines concentrate the mind. But deadlines should not be dogmas.
+ - People are easily shocked when their routine is disrupted and their ease of travel is restricted. We are dealing with a complete new face of terrorism – killing for the sake of killing.
+ - We could form a government of national unity fighting corruption. The ordinary Afghan is sick and tired of it, because it’s she or he that pays the price.
+ - Salaries are a huge area of corruption.
+ - The national unity government is a necessity in this country and I am happy to serve it. We have negotiated for months to create a government, but Belgium also went for a year without one.
+ - When windows shatter through a bomb, we will repair it next week because we are Afghans. That’s the spirit.
+ - The youth are hurt. Our majority are youth, under 30. They have no hope. They don’t get jobs.
+ - We are organized by territories, whereas terrorists are organized into networks. States are very slow and terrorists are extremely fast. Intelligence sharing needs to expand beyond the regional and become global and not country-focused. We need to acquire speed and agility.
+ - The commitment to civil liberty is going to be reasserted strongly. But the concept of liberty is under attack, and our definition of insecurity, security and threats will change fundamentally. The depth of the attack on liberty will be felt painfully.
+ - There won’t be some overnight miracle cure. But the measures I take will be sustainable. Our goal is to cease food imports within four years. This will create a minimum of 2 million jobs in agriculture.
+ - It’s fair to say average Americans think that the average Afghan doesn’t want American troops in their country.
+
+19 quotes

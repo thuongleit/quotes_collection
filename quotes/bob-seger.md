@@ -1,0 +1,78 @@
+ - Mediocrity’s easy, the good things take time, the great need commitment.
+ - I’m older now but still running against the wind.
+ - Here I am, on the road again. There I am, up on the stage. Here I go, playing star again. There I go, turn the page.
+ - Up with the sun. Gone with the wind.
+ - Wish I didn’t know now what I didn’t know then.
+ - She had been born with a face that would let her get away, he saw that face and he lost all control.
+ - The years rolled slowly past and I found myself alone. Surrounded by strangers I thought were my friends, I found myself further and further from my home.
+ - I think I’m going to Katmandu, that’s really, really where I’m going to.
+ - Beautiful loser, where you gonna fall? When you realize, you just can’t have it all.
+ - Some people say love is a losing game, you start with fire and you lose the flame. The ashes smolder, but the warmth’s soon gone, you end up cold and lonely on your own.
+ - Call me a relic, call me what you will, say I’m old fashion, say I’m over the hill. Today’s music ain’t got the same soul, I like that old time rock and roll.
+ - It’s a rite of passage for the everyman, to a higher ground.
+ - Deep in my soul, I’ve been so lonely, all of my hopes fading away. I’ve longed for love, like everyone else does, I know I’ll keep searching after today.
+ - That’s a good way to live, go against the wind.
+ - He wants his home and security, he wants to live like a sailor at sea.
+ - Most of the time, I’m here in Michigan and I’m taking out the garbage every Monday.
+ - I’m not a number. Dammit, I’m a man.
+ - It’s the age of reason for the anarchist.
+ - With only one thing in common, they got the fire down below.
+ - You’re not going to hear me do a rap song, you’re not going to hear me do a jazz song. We have to be true to our roots, do what we do, and try to do it a little better each time.
+ - I sailboat raced, I love to go out on my motorcycle alone, but I also love my family dearly. I love that aspect of my life as well.
+ - Sometimes you can hear them talk, other times you can’t. All the same old cliches, is that a woman or a man?
+ - Like a rock, standing arrow straight. Like a rock, charging from the gate.
+ - And you pretend it doesn’t bother you, When you just want to explode...
+ - My walk had purpose, my steps were quick and light, and I held firmly to what I felt was right.
+ - Well all of Chuck’s children are out there playing his licks, get into your kicks. Come back baby, rock and roll never forgets.
+ - Set yourself the bolder course. Keep your heart an open shrine.
+ - And just about the time I feel like screaming and finding me a wall to punch right through, I look up and I just can’t help smiling, it’s you.
+ - I guess I lost my way, there were so many roads. I was living to run, and running to live, never worried about paying or even how much I owed.
+ - Alfred Hitchcock, Isaac Newton, Elvis Presley, Captain Bligh, they’re heroic or pathetic depending on which book you buy.
+ - Later in the evening when you lie awake in bed with the echoes from the amplifiers ringing in your head.
+ - Unlike a lot of people, I don’t need the affirmation or anything.
+ - Dreams die hard and we watch them erode, but we cannot be denied the fire inside.
+ - I used her and she used me, but neither one cared, we were getting our share.
+ - One victim lives in tragedy, another victim stops to stare, and still another walks on by pretending not to see.
+ - Moving eight miles a minute for months at a time.
+ - I was a runner, a failed quarterback, third-string quarterback, but in track I was a 2-miler.
+ - She gave me a false address, took off with my American Express, sunspot baby, sure had me way out guessed.
+ - To a brighter light, to a promised land, you can feel the power, of the master’s hand.
+ - Those are the memories that made me a wealthy soul.
+ - I’m just trying to keep things simple, and just be a little more offhand and not get so deep into things. Enjoy what you got right now, because who knows what’s going to happen tomorrow.
+ - Tell them we’ll be dancing, dancing ’til we drop, it’s time to get down and do the Horizontal Bop.
+ - Take a lesson from the trees, watch the way they bend with each breeze, little victories.
+ - You can’t get a good crew and a good sound system, and a good light system if you do a small tour. If you want the best, those guys want a commitment of about 4 to 6 months. And I’d want the best people and the best stuff.
+ - I really like the thing I did with Martina McBride. I had that song sitting around for a long time.
+ - I wish I had a nickel for every time I fell and blamed someone else. I’d give a ton of money to the ones I’ve hurt.
+ - I write probably 80 percent of my stuff over the winter.
+ - I’d rather make music than tour.
+ - Radio is so fragmented, it’s unbelievable.
+ - I just start playing music and eventually I sing something, a line of a verse or a B section or a line of a chorus, and the line that I end up singing is related to the music I’m playing, if that makes any sense. And I go from there.
+ - My management tells me, Don’t be optimistic, because it’s the young people’s world now. They want to hear what they want to hear, and you’re a classic rocker. I don’t know if you’re gonna get the play.
+ - I always loved music. You know, my parents said I started singing when I was 4, in the car.
+ - It took me a long time to learn how to write a good song.
+ - Yeah, I’m just blessed to have this very strong thing, my vocals. I’m very healthy in that regard.
+ - I write a lot of songs people don’t hear. I really just enjoy the process. I finish ’em all. I don’t think there’s a whole lot of difference between the bad ones and the good ones.
+ - I’m really glad I didn’t have kids earlier, because I probably would have ignored them. I was so into my career. I could just go and play a ton of shows, night after night after night. I can’t do that anymore.
+ - I work my back ’til it’s racked with pain, the boss can’t even recall my name.
+ - I drive a Mustang. A 2005 five-speed GT convertible.
+ - There was this long lovely dancer in a little club downtown, love to watch her do her stuff.
+ - I can only get my drummer in the winter; he plays with Grand Funk all summer.
+ - It was 22 years of work in a row, right up until 1987. Twenty-two years in a row-either on tour, writing an album, or recording an album. It wasn’t until 1987 that I was able to take a breath.
+ - I love working with different musicians in the studio, that’s a real joy working with someone for the first time.
+ - If I want to work, I can. If I want to play golf, or ride my motorcycle, I can. But the rest of it is family. Sometimes you’re not really needed by your family, but you’re there. And my kids like to know I’m there.
+ - They do respect her but, they love to watch her strut.
+ - The two hours onstage is great. But I can only play a show and then take a night off. I have to sing for two hours, and then I’ve gotta rest it for a night. So it’s the other 46 hours that are just boring as heck.
+ - Make a destination of the greater truth.
+ - She never looks at the ring.
+ - Every now and then you’ll nail one that’s really, really special. And that’s what you live for.
+ - When I try to write I try to write something different every time. That’s the challenge.
+ - When you have kids, you start thinking about their future and you forget about yours.
+ - I want to be sure I can deliver what people expect to hear. I just don’t know if I can physically do it. Or if I should.
+ - I’ve never been unhappy with Capitol. Not really. They’ve been really good by me.
+ - I had the opportunity to be around my kids a lot. I guess I could have kept working, but I had them when I was 47. You only get to see all this stuff once. I just chose to work at home and watch them.
+ - I like people to just bring it to the table and feel the moment. And that’s why I’ve never done a session where I don’t sing live.
+ - You go to LA, or you go to New York, and it’s really fun to go there. But they’re not grounded. Everybody is just competing all the time for the limelight. It’s too much entertainment industry. There are too many choices. And it’s distracting to me.
+ - Even in junior high, I always knew I had a talent for music and I knew I could make money that way.
+
+76 quotes

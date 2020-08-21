@@ -1,0 +1,61 @@
+ - Truly powerful people don’t explain why they want respect. They simply don’t engage someone who doesn’t give it to them.
+ - Live by your own rules Move to your rhythm, instead of dancing to the beat of someone else’s drum Decide how you want to be treated Choose what you will or will not tolerate Leave if you don’t get what you want.
+ - Be an independent thinker at all times, and ignore anyone who attempts to define you in a limiting way.
+ - The most attractive quality of all is dignity.
+ - Don’t believe what anyone tells you about yourself.
+ - Whenever you are too worried about someone else’s approval, that person loses respect for you.
+ - Men don’t respond to words. What they respond to is “no contact”.
+ - Once you start laughing, you start healing.
+ - Men control the world, but women control the men.
+ - Relationship Principle 10 You can tell how much someone respects you by how much he respects your opinion. If he doesn’t respect your opinion, he won’t respect you.
+ - You always want what you can’t have.
+ - When a man likes you, he will be interested in finding out what you like. If he makes you happy, he feels more secure. Everything men do is intended to impress women.
+ - Standing up for yourself doesn’t always involve verbal confrontation. Sometimes it’s about not wasting energy on people who are negative.
+ - If you allow your rhythm to be interrupted, you’ll create a void. Then to replace what you give up, you’ll start to expect and need more from your partner.
+ - Men are intrigued by anything they do not completly control.
+ - If you can’t convince ’em, confuse ’em.
+ - Success in love isn’t about looks, it’s about attitude.
+ - Relationship Principle 11 It is better to be disliked for being who you are than to be loved for who you are not.
+ - When you are happy, you are sexy.
+ - Because of his hormones, he only has three emotions: crabby, hungry, horny.
+ - Anytime a woman competes with another woman she demeans herself.
+ - Women tend to love men in their presence, while men tend to love women in their absence.
+ - When you meet someone who is truly great, he makes you believe you can be great, too. This is the kind of relationship you want, and it’s the only kind of relationship worth having.
+ - A dreamgirl, on the other hand, won’t kill herself to impress anyone.
+ - For a woman the objective is often a committed relationship also known as the destination. For a men roadtrip on the way to the destination is often the more fun.
+ - Don’t ever let anyone shake your faith in yourself, because that’s really all that you have.
+ - Relationship Principle 3 He doesn’t marry a woman who is perfect. He marries the woman who is interesting.
+ - The more independent you are of him, the more interested he will be.
+ - Relationship Principle 6 Men see how you dress, and then make assumptions about your relationship potential.
+ - He must feel that you choose to be with him, not that you need to be with him.
+ - With a woman he’s crazy about, he’ll put in all the overtime in the world. He’ll be doing things for you, he’ll be considerate, he’ll want to please you, he’ll try to cheer you up if you are down, and he will enjoy every moment because you are the person he values most.
+ - When a man sees you are happy with him but you can be just as happy having nothing to do with him, that’s when he won’t want to leave your side. When you are happy, you are sexy.
+ - Anything a person chases in life runs away.
+ - Agree with everything, explain nothing, then do what is best for you.
+ - Relationship Principle 1 In romance, there’s nothing more attractive to a man than a woman who has dignity and pride in who she is.
+ - And remember, it’s always her fault. That’s your story and you’re sticking to it.
+ - Many people lack the basic equipment to be in a relationship and there’s nothing you can do to change it. You can’t take a skunk and dip it in perfume and hope it becomes a puppy. Eventually, the perfume will wear off and you’ll still have a skunk on your hands.
+ - It is your attitude about yourself that a man will adopt.
+ - If someone else doesn’t like your confidence, that’s their problem. Why? You always come before they do, that’s why.
+ - When a man takes a woman for granted, he still looks for reassurance that she is still right there.
+ - The nice girl makes the mistake of being available all the time.
+ - Until he gives you a reason not to trust him, behave as though you trust him.
+ - Expressing yourself when he takes for granted doesn’t work.
+ - Intelligent women make the mistake of assuming that if they hold a higher degree, they can hold their own in a political debate, and they have a good understanding of mid-caps.
+ - Most women are starving to receive something from a man that they need to give to themselves.
+ - When a woman acts as though she’s capable of everything, she gets stuck doing everything.
+ - As soon as a manhas his guard up. he will not fall in love or get attached the only way he’ll get attached is if you lower his guard first.
+ - Whether it’s your taste in clothing, your needs in a relationship, or what you do for a living – don’t let anyone else be at the controls. Define yourself.
+ - Relationship Principle 9 Every guy knows he can find a girl who is simply satisfied with satisfying him. They are much more turned on by a woman who cares about her own pleasure as well.
+ - A beautiful woman can make herself look ugly in the eyes of a man if she is very insecure.
+ - Everybody has fallen down or been disappointed in love. Where you truly shine is when you get back up. Use it as a learning experience and believe in all of the possibilities.
+ - If she has six good points and you have one semigood little point, place all of the emphasis on your one semigood little point.
+ - It isn’t about looks; gorgeous women get dumped every day.
+ - If a man isn’t being nice when you’re out, all you have to do is remain polite and then go home early.
+ - You can get away with saying much more with humor than you can with a straight face.
+ - It’s that a bit of irreverence is necessary to have any self-esteem at all. Not irreverence for people, but rather, for what other people think.
+ - If she is clearly right, find fault with her that has nothing to do with the incident, and use that.
+ - When you live life with him or without him, that is when he will accept and value you for who you are.
+ - There’s nothing more prized to a man than something he had to wait for, work for, or strugle a little bit to get.
+
+59 quotes

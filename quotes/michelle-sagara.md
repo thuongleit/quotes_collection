@@ -1,0 +1,23 @@
+ - Success and failure are two edges of the same blade, two sides of the same coin. To fear one is to forever deny the possibility of the other.
+ - Kaylin is not known for her punctuality. She is known, in fact, for her lack – even by those outside of the Hawklord’s command.
+ - Truth, like beauty, is in the eyes of the beholder.
+ - Not all of our heartless plans work as we intend; nor do all of our good intentions. We are where we are, and we can rarely predict where we will go, no matter how firm our beliefs.
+ - The look he gave her made her turn away for a moment. Sometimes you couldn’t look too closely at another person’s pain.
+ - Hope is often bitter, but it drives us, and we cling.
+ - If hearts really could sink, Kaylin’s was busily rearranging her internal organs.
+ - Stop judging your life only by the failures.
+ - Lies were something you told other people to make things easier, somehow – hopefully, for them, but often more selfishly for yourself.
+ - What humans do when they’re desperate is just an expression of fear. What they do when they feel safe is a better indication of whether or not you can trust them.
+ - I hate being the only mortal in a gathering full of Immortals who think killing each other cleverly is the height of good manners.
+ - History is not our guide, it is not our friend. It is a passing stranger, one which shadows legend, sprinkling it with the seeds of truth.
+ - Maybe home is something we have to make, and remake, over and over.
+ - The truth was only another mask, even if it was the best fit, the closest to skin and all that lay beneath.
+ - If life were fair, we would never have suffered what we suffered at all; having suffered it and survived, we’re still reacting to things that don’t exist anymore.
+ - The gods where like the weather; sometimes good, sometimes bad, and either way, always beyond her.
+ - Sanabalis never seemed to eat, and he deflected most of her questions about Dragon cuisine. Then again, he deflected most of her questions about Dragons, period. Which was annoying because he was one, and could in theory be authorative.
+ - Trying is fine. Failing is inevitable. Don’t let it devour you.
+ - We all fail. But none of us fail all the time.
+ - There is not a man born among us who dreams – at first – of service, although in the end, many are bent that way.
+ - Generally, I like to appear smart. I don’t admit being stupid when there’s any hope I’m not.
+
+21 quotes

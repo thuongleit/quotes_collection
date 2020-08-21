@@ -1,0 +1,69 @@
+ - Geography is destiny.
+ - Wasn’t that the definition of home? Not where you are from, but where you are wanted.
+ - I’m a great believer in geography being destiny.
+ - Make something beautiful of your life.
+ - Be careful! Travel expands the mind and loosens the bowels.
+ - God will judge us, Mr. Harris, by – by what we did to relieve the suffering of our fellow human beings. I don’t think God cares what doctrine we embrace.
+ - We have the sense that medical students come to medicine with a great capacity to understand the suffering of patients. And then by the end of the third year they completely lose that ability, partly because we teach them the specialized language of medicine.
+ - Students undergo a conversion in the third year of medical school – not pre-clinical to clinical, but pre-cynical to cynical.
+ - A rich man’s faults are covered with money, but a surgeon’s faults are covered with earth.
+ - Not only our actions, but also our omissions, become our destiny.
+ - Certainly when I got to medical school, I had role models of the kind of physicians I wanted to be. I had an uncle who, looking back, was probably not the most-educated physician around, but he carried it off so well.
+ - Life, too, is like that. You live it forward, but understand it backward. It is only when you stop and look to the rear that you see the corpse caught under your wheel.
+ - The crookedness of the serpent is still straight enough to slide through the snake hole.
+ - In an emergency, what treatment is given by ear? Words of Comfort.
+ - Yesterday misspent can’t be recall’d Vanity makes beauty contemptible Wisdom is more valuable than riches.
+ - When I wake to the gift of yet another sunrise my first thought is to rouse him and say, I owe you the sight of morning.
+ - Literature is a beautiful way of keeping the imagination alive, of visiting worlds you would never have time to in your day-to-day life. It keeps you abreast of a wider spectrum of human activities.
+ - The flip side of suicide is that it leaves a lingering question in the minds of the people who survived. Its like a cancer thats metastasized. The suicide is the cancer and the metastasis is all these people saying, Why? Why? Why?
+ - I was taking care of people my age who were dying. The constant feeling, hearing from them, was that life is transient and can end very quickly, so don’t postpone your dreams.
+ - We know the average American physician interrupts their patient in 14 seconds.
+ - Don’t Let Him Know is a rich, evocative and brilliantly told tale of family, of loyalties, and of love that must stay secret. Sandip Roy has broken new ground in this tale of the modern Indian family. A lovely read.
+ - No blade can puncture the human heart like the well-chosen words of a spiteful son.
+ - Though I am fascinated by knowledge, I am even more fascinated by wisdom.
+ - Rituals, anthropologists will tell us, are about transformation. The rituals we use for marriage, baptism or inaugurating a president are as elaborate as they are because we associate the ritual with a major life passage, the crossing of a critical threshold, or in other words, with transformation.
+ - There are moments as a teacher when I’m conscious that I’m trotting out the same exact phrase my professor used with me years ago. It’s an eerie feeling, as if my old mentor is not just in the room, but in my shoes, using me as his mouthpiece.
+ - The bottom line: health care reform is about the patient, not about the physician.
+ - We’re losing a ritual. We’re losing a ritual that I believe is transformative, transcendent, and is at the heart of the patient-physician relationship.
+ - I believe in black holes. I believe that as the universe empties into nothingness, past and future will smack together in the last swirl around the drain.
+ - That’s the funny thing about America – the blessed thing. As many people as there are to hold you back, there are angels whose humanity makes up for all the others. I’ve had my share of angels.
+ - She died chasing greatness and never saw it each time it was in her hand, so she kept seeking it elsewhere, but never understood the work required to get it or to keep it.
+ - We come unbidden into this life, and if we are lucky we find a purpose beyond starvation, misery, and early death which, lest we forget, is the common lot.
+ - The world turns on our every action, and our every omission, whether we know it or not.
+ - I think we learn from medicine everywhere that it is, at its heart, a human endeavor, requiring good science but also a limitless curiosity and interest in your fellow human being, and that the physician-patient relationship is key; all else follows from it.
+ - I love to read poetry but I haven’t written anything that I’m willing to show anybody.
+ - If ‘ecstasy’ meant the sudden intrusion of the sacred into the ordinary, then it had just happened to me.
+ - I joke, but I only half joke, that if you come to one of our hospitals missing a limb, no one will believe you till they get a CAT scan, MRI, or orthopedic consult.
+ - Your job is to preserve yourself, not to descend into their hole. It’s a relief when you arrive at this place, the point of absurdity, because then you are free, you owe them nothing.
+ - The most important innovation in medicine to come in the next 10 years: the power of the human hand.
+ - He had so many ways of climbing into the tree house in his head, escaping the madness below, and pulling the ladder up behind him...
+ - We are all fixing what is broken. It is the task of a lifetime. We’ll leave much unfinished for the next generation.
+ - In America, we have always taken it as an article of faith that we ‘battle’ cancer; we attack it with knives, we poison it with chemotherapy or we blast it with radiation. If we are fortunate, we ‘beat’ the cancer. If not, we are posthumously praised for having ‘succumbed after a long battle.’
+ - In writing, as in medicine, there are no short cuts. You need stamina.
+ - You live it forward, but understand it backward.
+ - To be around someone whose self-confidence is more than what our first glance led us to expect is seductive.
+ - What treatment in an emergency is administered by ear?
+ - No matter what ailed you, you went to see the barber surgeon who wound up cupping you, bleeding you, purging you. And, oh yes, if you wanted, he would give you a haircut and pull your tooth while he was at it.
+ - I always wondered if the good people who send us bibles really think that hookworm and hunger are healed by scripture? Our patients are illiterate.
+ - When a man is a mystery to himself you can hardly call him mysterious.
+ - When you win, you often lose, that’s just a fact. There’s no currency to straighten a warped spirit, or open a closed heart, a selfish heart...
+ - I was angry with myself because I still loved her, or at least I loved that dream of our togetherness. My feelings were unreasonable, irrational, and I couldn’t change them. That hurt.
+ - She felt the familiar calmness of an emergency, but she understood the falseness of that feeling, now that it was her life at stake.
+ - Pray tell us, what’s your favorite number?
+ - My VIP patients often regret so many things on their deathbeds. They regret the bitterness they’ll leave in people’s hearts. They realize the no money, no church service, no eulogy, no funeral procession no matter how elaborate, can remove the legacy of a mean spirit.
+ - There is a point when grief exceeds the human capacity to emote, and as a result one is strangely composed-.
+ - What did it say when a man had fewer clothes than books?
+ - He was teaching me how to die, just as he’d taught me how to live.
+ - It was all I had, all I’ve ever had, the only currency, the only proof that I was alive. Memory.
+ - Life for the Italians was what it was, no more and no less, an interlude between meals.
+ - What we need in medical schools is not to teach empathy, as much as to preserve it – the process of learning huge volumes of information about disease, of learning a specialized language, can ironically make one lose sight of the patient one came to serve; empathy can be replaced by cynicism.
+ - Ignorance was just as dynamic as knowledge, and it grew in the same proportion.
+ - I think America is really in denial about the degree to which residents, particularly foreign medical graduates, man the county hospitals of this country, and but for their services, I’m not sure how exactly we could manage.
+ - By visiting patients in their home, by helping them come to terms with their illness, I could heal when I could not cure.
+ - The only way to know where you are is by where you have just been.
+ - Patients know in a heartbeat if they’re getting a clumsy exam.
+ - I still find the best way to understand a hospitalized patient is not by staring at the computer screen but by going to see the patient; it’s only at the bedside that I can figure out what is important.
+ - My sense is that the wonderful technology that we have to visualize the inside of the body often leaves physicians feeling that the exam is a waste of time and so they may shortchange the ritual.
+ - Being the first born gives you great patience.
+
+67 quotes

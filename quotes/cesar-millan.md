@@ -1,0 +1,86 @@
+ - Repetition creates the master.
+ - Calm assertive energy is the energy you project to show your dog you are the Pack Leader. Assertive does not mean angry or aggressive. Calm-assertive means always compassionate, but quietly in control.
+ - Change takes effort. And the reality is, most people don’t want to put in effort to better their life.
+ - I’m open for possibilities. I’m open for choices. I always welcome new ideas. I’m always eager to learn. I’m never going to close my mind from learning.
+ - You don’t always get the dog you want, but you get the dog that you need.
+ - I rehabilitate dogs, I train people.
+ - Mother Nature’s ruthless to the weak, but isn’t arbitrary cruel or negative. Mother Nature saves aggression for extreme situations, and instead uses consistent leadership – to help keep things running smoothly. Mother nature doesn’t rule by fear and anger, but by calm strength and assertiveness.
+ - I believe in integrity. Dogs have it. Humans are sometimes lacking it.
+ - Birth, life, death is a cycle. And they’re all beautiful, you celebrate all of them. Animals do grieve, but they move on. That’s the lesson behind animals.
+ - Humans are the only animals who will follow unstable pack leaders.
+ - People say I train dogs, but in many ways I train people.
+ - When a dog is balanced, you are going to enjoy a true friend.
+ - The thing about discipline is that people misunderstand the word discipline. People think discipline in the dog world is punishment. Discipline is how you achieve what you want to achieve in life. You have to be very focused, very disciplined, very consistent, very diligent. All of those things.
+ - I am a Mexican that has been lucky enough to travel the world, speaking English, but with a heart that speaks a universal language.
+ - To me dogs are not the students, not the ones that need training. To me a dog is a teacher of life, who teaches us the principles of the most important moral values; honesty, integrity, loyalty, trust, respect and love.
+ - Many dogs grow up without rules or boundaries. They need exercise, discipline and affection in that order.
+ - Dogs in America get more affection than women in most Third World countries.
+ - Wolves are disciplined not only when they hunt but also when they travel, when they play, and when they eat. Nature doesn’t view discipline as a negative thing. Discipline is DNA. Discipline is survival.
+ - It’s important to note that aggression isn’t the problem. It’s the outcome of a problem.
+ - The dog is a reflection of your energy, of your behavior. You have to ask, ‘What am I doing?’ That’s the right question to ask.
+ - Children are becoming disobedient why, because of the lack of rules boundaries and limitations.
+ - The more you think you have to use physical force to control life, the less you control life.
+ - Americans are very big about loving the dog first, so when you tell them you have to set rules and limitations, a lot of people believe it’s going to hurt their feelings. They’re actually looking for you to be the pack leader.
+ - Dogs don’t rationalize. They don’t hold anything against a person. They don’t see the outside of a human but the inside of a human.
+ - I have always been honest with my fans, which means being open about any struggles I have had along the way.
+ - I would love for the world to have a dog psychology center everywhere.
+ - There are two schools. The school where you go and open a book, and then there’s the school of life. When you learn hands-on, often you don’t understand why you do what you do and what’s the word for that action.
+ - The dog can only become what’s in your bubble. The dog is imitating the energy that is in your bubble. You are the source, the feast of energy. If you feel anxious, the dog becomes anxious with you. If you become nervous, the dog wakes up nervous with you.
+ - Humans will always tell you the story. Dogs can only tell you the truth. Trust your instincts and listen your dog.
+ - My dogs have been my most loyal friends and constant companions.
+ - My kids are around pit bulls every day. In the ’70s they blamed Dobermans, in the ’80s they blamed German Shepherds, in the ’90s they blamed the Rottweiler. Now they blame the Pit Bull.
+ - Discipline isn’t about showing a dog who’s boss; it’s about taking responsibility for a living creature you have brought into your world.
+ - No dog is too much for me to handle. I rehabilitate dogs, I train people. I am the dog whisperer.
+ - Think about a dog’s ability to forgive. This to me is love.
+ - Often we blame the breed, but in my opinion, it’s not the breed, it’s the owner. The owner has to be the pack leader and provide exercise, discipline, then affection. If you do that, you’ll have a sweet, loving, and balanced dog – no matter what breed!
+ - Through the years I’ve learned to gain the trust of humans. I’m really good at gaining the trust of animals and I have developed the same ability with humans. I don’t make people feel wrong, I just make people aware. I have learned to make people laugh.
+ - On walks, make sure that your dog is not in front of you, pulling you down the street. Instead, keep your dog to your side or behind you. This will also demonstrate to your dog that you are the alpha figure.
+ - When you’re poor, you have nothing to lose and be afraid of. Holding onto the dream and having nothing to lose is what helped me succeed.
+ - Homeless people’s dogs are more knowledgeable than dogs in Beverly Hills. Why? Because they explore, they move forward, they go through the ups and downs in life. A dog in a wealthy environment, there is no downs except what he lives.
+ - When looking to adopt a new dog, the most important thing to consider is always the energy of the dog and how the dog will fit in with your lifestyle and your family.
+ - You cannot “love” a dog out of her bad behavior, just as you can’t “love” a criminal into stopping his crimes.
+ - I wish my kid would act like my dog sometimes. My dog listens to me and does what I tell him to do.
+ - I’m naturally a loud person. It can be a bit overpowering.
+ - Dogs help you to appreciate the world around you. They smell the ground so intensely. They look at the trees as though they are seeing them for the first time. It helps us to remember the wonders that we take for granted.
+ - Bill Gates can’t control a high-level-energy dog, because his energy is very low, very calm. Very intellectual. A dog doesn’t see that as leadership.
+ - Dogs experience the world as it is, without judgement. When we learn to do the same, we make the world a better place.
+ - It becomes very obvious, by reading a dog, how stable or unstable his human companion is. Our dogs are our mirrors.
+ - Always walk out the door ahead of your dog when leaving the house. This will show your dog who is in the leadership role.
+ - I was blessed to grow up on a farm, and when you’re a farm boy, exercise is part of your lifestyle. Like it or not, that environment makes you work out. On the farm, nature is your gym. You walk and run and swim and have to do a lot of work with animals too.
+ - Huskies get in trouble. Huskies are well-known to be escape artists. Why? Because they were bred to go long-distance. They’re not bred to be in the backyard and just look beautiful because they have blue eyes.
+ - It’s an up and down thing, the human goals, because the human is always an explorer, an adventurist.
+ - It’s not the breed that makes a good companion. All dogs are great companions.
+ - You can also hurt a dog if it’s insecure, if a dog is nervous and then you try to pet him, you can make him more nervous. It’s not just the aggressive dogs that you can get hurt. It’s also the dogs that you can actually hurt. It works both ways.
+ - Dog’s owners don’t call me. It’s their neighbors or family members. We call them the whistleblowers, but it’s more like the pack. It’s making sure that one pack member gets in line. Before it was the owners, now it’s the community.
+ - The pack is very important for a dog. Once you give him the right pack and the right energy, you look at him.
+ - Dogs and other animals we bring into our homes serve as one of our most important links to Mother Nature. We may not think about it consciously, but they are our lifelines to a part of ourselves that we are at the brink of losing altogether.
+ - With a dog, people are not disciplined. They think that by spoiling a dog the dog is going to love them more. But the dog misbehaves more because they give affection at the wrong time.
+ - Puppies and kids naturally go together, but it’s up to the adults to teach them how to do it the right way.
+ - Owners lavish love on their pets, which is why so many go from non-aggressive pups to being out of control when they’re older. People just don’t realise their dog must respect them as leader of the pack.
+ - People who live in the now; those people make things happen.
+ - America focuses on being very intelligent because that’s how you make more money.
+ - Women can learn a lot about a guy because women, for the most part, want a guy to care about their feelings, to be a guy that is responsible. Women want to attract you, but they want you to know more how they feel. When a guy has a great relationship with a dog, it really says a lot about him.
+ - When I go and work with people, I never say, ‘Your dog is changed for the rest of its life.’ It’s like a diet. You’ve got to maintain a discipline and ritual in your life to keep a certain figure.
+ - A dog is a vehicle, you know; a dog is a window to Mother Nature, and that’s the closest species we have.
+ - Anything that can create balance in dogs is great. If veterinarians can give you the solution and give you why this is causing the behavior, of course. Anything that is good for an animal, let’s do it.
+ - If you give only 80 percent leadership, your dog will give you 80 percent following. And the other 20 percent of the time he will run the show. If you give your dog any opportunity for him to lead you, he will take it.
+ - The reality is, if you have a high-level-energy dog, it’s not going to be happy with a one-hour walk. Those types of dogs are going to require more than one hour of physical challenge in the outside world.
+ - I am not brutal or cruel to animals. My mission has always been to save dogs – especially troubled and abandoned dogs. I’ve dedicated my life to this.
+ - When you have a certain fitness projection, it’s going to give you an advantage. Having strength, stamina and speed is important because I’m working with dogs who can kill me.
+ - Aggression is not a breed thing. Its a state of mind, and it comes from how the human is with the dog. There are four levels of energy, regardless of the breed: low, medium, high, very high. The idea is to get a dog in your same level or lower than you.
+ - I believe a calm dog is a happy, obedient dog that won’t get into trouble.
+ - But just because a person goes to Harvard doesn’t mean he’s balanced when he graduates, and just because a dog knows how to obey doesn’t mean he’s balanced, either.
+ - Give your dog something to do before you share food, water, toys or affection. This way the dog earns his treat. For example, have him or her perform the “sit” or “down” command.
+ - Dogs do know how comfortable you are with yourself, how happy you are, how fearful you are, and what is missing inside of you.
+ - We’re already saying it’s not the dog, but you need to adopt this lifestyle which is exercise, discipline, and affection.
+ - In America, dogs are viewed by their names first, breed second. And dogs live behind walls. It’s an unnatural point of view.
+ - I believe it’s our loss of connection with our instinctual side that prevents us from being effective pack leaders for our dogs. Perhaps it’s also why we also seem to be failing at being positive guardians of our planet.
+ - Dog parks can be a fantastic way to socialize your dog, but it’s important for owners to understand that a dog park isn’t exercise and isn’t a substitute for walk. A visit to the dog park is fun – play time.
+ - When I was old enough, I was 21 years of age, I decided to come to America. I did it illegally, so I jumped the border. I didn’t speak any English.
+ - Everybody wants a solution on how to help their dogs, but we can’t really see the problem until we reconnect ourselves to our instinctual self.
+ - I think my life has everything, you know; it has comedy, has drama, has action.
+ - I have never met a dog I couldn’t help; however, I have met humans who weren’t willing to change.
+ - Any time you’re working in the world of taming animals, you’re going to get hurt. But it’s a rush that we get.
+ - Just being with dogs, I learned their ways and began to appreciate things from their point of view.
+
+84 quotes

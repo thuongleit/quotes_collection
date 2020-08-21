@@ -1,0 +1,70 @@
+ - The key to success is to raise your own energy; when you do, people will naturally be attracted to you. And when they show up, bill ’em!
+ - Seriousness is a disease of the ego.
+ - You are here to experience life, not to escape from it.
+ - You have a divine right to abundance, and if you are anything less than a millionaire, you haven’t had your fair share.
+ - Life was never meant to be a struggle, just a gentle progression from one point to another, much like walking through a valley on a sunny day.
+ - Preserve your energy – do not waste it on mediocre activity.
+ - Watch nature, because it is your greatest teacher. It moves and flows and moves on again. There is an incredible beauty out there in the mountains, in the forests, to teach you it’s silence, it’s beauty, it’s humility. Stay aligned to that.
+ - Life is so simple, really. Think through what people want, watch what others fail to give them, and provide it. Then bill’em.
+ - Each moment of our life, we either invoke or destroy our dreams. We call upon it to become a fact, or we cancel our previous instructions.
+ - You’re the only one who can decide what’s best for you.
+ - The function of abundance is not to possess things but to use them and gather experiences.
+ - The secret to success is to subjugate your ego and serve others.
+ - You can’t get a pay raise when you’re angry. People will react to the negative energy and will resist you.
+ - Knowledge is power. The more knowledge, expertise, and connections you have, the easier it is for you to make a profit at the game of your choice.
+ - To win a moral victory at the expense of your sanity is dumb.
+ - An affirmation is almost like a mantra. It does not really matter if what you are affirming is not totally true as yet. By repeating an affirmation over and over again, it becomes embedded in the subconscious mind, and eventually it becomes your reality.
+ - Pride that you express to others is ego. Pride that you express silently to yourself is real pride.
+ - There is no amount of money in the world that will make you comfortable if you are not comfortable with yourself.
+ - Balance and good fortune can only come to a person who is balanced and feels fortunate.
+ - There is nothing more marvelous than doing something you love to do and getting paid for it. It ceases to become work, money, and effort; and it becomes fun, your expression of the joy of life.
+ - All mankind’s inner feelings eventually manifest themselves as an outer reality.
+ - It takes a constant effort of mind to avoid the abundance that life offers naturally.
+ - Remember, it’s Ok to get what you want from life.
+ - In the end it all comes down to enthusiasm. Your creativity is basically your expression of God-force.
+ - You have a divine right to choose whom you will play with and under what circumstances. By eliminating any energy drag, the positive good things in your life will resonate faster and faster.
+ - Never be afraid to let people go if they’re not right; often that’s the only way you can make room for the right person.
+ - The ego needs recognition. The spirit does not need to thank itself.
+ - I firmly believe the world will sort itself out in the end. Believe it with me. At least none of us will be around to be proven wrong.
+ - It’s not just the emotional, intellectual, and physical gaps between you and money. The real gap is always between what you think you want and what you actually want, deep down.
+ - The Ascension is actually the birth of the Inner You expressed as the spiritual individualism of the inner particle state.
+ - In a time of crisis we all have the potential to morph up to a new level and do things we never thought possible.
+ - The rich get richer. Not only because they have surpluses with which to invest, but because of the overriding emotional release they experience from having wealth.
+ - Spirituality is invisible. Never forget that. If you can see it, if it’s dressed in funny robes, if it’s up there to be looked at, if it’s making a big performance of itself, it is not spirituality. It is ego.
+ - It is pointless to get your knickers in a twist if a certain person fails to react the way you want. It is best to avoid people and situations that you know drive you crazy. Remember to vote with your feet. If a situation is untenable or unchangeable, walk away.
+ - Money is just a symbol we use to facilitate te gathering of memories and experiences.
+ - Do things the ego does not like to do.
+ - Your needs will be met once you can find a way of projecting energy and fulfilling someone else’s need.
+ - Learning to charge properly is a vital key to abundance. Affirm that you will never devalue yourself by charging less than what you feel you are worth.
+ - Be different – without concern for what others think.
+ - It is important that the female develops a reality that honors and nurtures her femininity and has an identity and creativity of her own. It is equally important that the male in the relationship endorses that creativity.
+ - Discovering what you really want saves you endless confusion and wasted energy.
+ - If you don’t concentrate on counting the money, people soon realize that money is not the focus of your consciousness, so they give you everything other than money: kudos, acclaim, praise, etc., etc. And sooner or later you’ll be in trouble.
+ - Bravery is not the absence of fear. Bravery is the ability to operate effectively even while totally terrified.
+ - Generate so much loving energy that people want to just come and hang out with you. And when they show up, bill them!
+ - People are the custodians of the world’s wealth; if you want them to hand some over to you, you have to be nice to people!
+ - Remember that you are a teacher, you are helping people, making them feel safer, taking them from fear to love, from ignorance to knowledge.
+ - Our world is very dishonest, and our leaders encourage dishonesty by setting bad examples – by lying, being corrupt, and using political sleight of hand to sustain power.
+ - If you don’t change, reality in the end forces that change upon you.
+ - The Universe doesn’t know the difference between a dime and a million. If you refuse the dime, the Universe thinks you don’t want money, so you collapse your chances.
+ - Lean toward love at all times, cut people slack, forgive and forget, and be kind, very kind; the more you do that, the less fear you will have. People will raise up to support you. Refuse to be scared in this lifetime.
+ - The point to remember about selling things is that, as well as creating atmosphere and excitement around your products, you’ve got to know what you’re selling.
+ - There is a spiritual godliness that drifts naturally through the affairs of man, but it is visible only if actions are undertaken and performed with that godliness in mind.
+ - In bad times, the rich usually get richer.
+ - If you don’t have any money, it is still a simple process to create in your feelings an acknowledgement that what you do have is abundance and the world is, in fact an abundant place to be.
+ - Man is basically an individual molecule of the God-Force.
+ - Lovely place, shame about the people!
+ - Sometimes, we just don’t know enough about what we are trying to achieve.
+ - What you put out is what you get back, and the reason so many are so short of money is that they put little or nothing out.
+ - One thing is fact. The events of your life are created by you, and those events come to you through your feelings.
+ - Things you believe are baggage in your life.
+ - It doesn’t work to have loads of money if your inner spiritual life is a desert, if you have no freedom beyond chasing more and more cash. Quality of life is as vital as heaps of money.
+ - You can only begin where you find yourself.
+ - Poverty is restriction and as such, it is the greatest injustice you can perpetrate upon yourself.
+ - The person who said money is the root of all evil just flat out didn’t have any.
+ - One day we’ll have a system that includes the rights of the people to make money and keep it, rather than a system where you can vote for the fox or the wolf, but there’s no little box that endorses the chickens. Our time will come, you can be sure of that.
+ - It is better that you live in a one-room garret with a leaky roof, than live in a large house, the mortgage payments of which are causing your colon to turn cancerous!
+ - Refuse to be scared in this lifetime.
+ - My philosophy is TRUTH unto me. Through expressing my individuality I become free.
+
+68 quotes

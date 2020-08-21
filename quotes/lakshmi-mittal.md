@@ -1,0 +1,32 @@
+ - Always think outside the box and embrace opportunities that appear, wherever they might be.
+ - Hard work certainly goes a long way. These days a lot of people work hard, so you have to make sure you work even harder and really dedicate yourself to what you are doing and setting out to achieve.
+ - Its not always you get to hit the iron when it is hot. I believe in hitting it so hard, that it gets hot.
+ - At the end of the day you have to keep emotions away.
+ - It is a high for me. It is my biggest and most satisfying deal.
+ - This is a learning in the business life that first of all you need to have commitment, dedication and passion for what you are doing.
+ - We are not in the business of iron ore. Whatever captive iron ore sources we have, we use it to make steel.
+ - The torch relay is an excellent embodiment of all that the Olympic Games have come to symbolise – a celebration of the human spirit. Personally to me, it represents striving to be the best in whatever we do, never giving up despite the odds, and a commitment to health and fitness.
+ - Everyone experiences tough times, it is a measure of your determination and dedication how you deal with them and how you can come through them.
+ - In the past twenty years, we have lived through several cycles and we have always managed to buy under good terms and conditions at the right time. This has enabled us to build a solid group that is now the world number one.
+ - I came from a Hindi medium school the principal felt that I would not fit into an English medium college. Though I was top in my class in school, and I got admission in other colleges, but I really wanted to study in St. Xavier’s.
+ - When people can see which direction the leaders are going in it becomes easier to motivate them.
+ - There will be no job cuts arising out of this merger in Europe – this is in the interest of jobs in Europe.
+ - This is not about creating a giant. It’s about creating the sustainability of the steel industry.
+ - I understand that this has taken a lot of politicians by surprise. But we believe that this is an important and right step for the steel industry.
+ - We do not believe in oversupplying the market. When you are a large company, you can afford to do it. When you are a small player, your flexibility gets reduced.
+ - When I think about parallels between myself and an Olympian, I believe that success in the world of business is underpinned by very similar principles of perseverance and hard work.
+ - We have no intention of shutting down plants. We have always said there will be no redundancies or lay-offs as a result of this merger.
+ - I am sure all politicians will be convinced of the merits of this deal.
+ - It’s difficult for them to do a deal at these levels.
+ - It’s true that I run a multi-national group but I have no interests in India. So please tell me, what should my identity be?
+ - A strong player, which has the sufficient critical mass, can withhold pressure better and create a more stable environment that benefits shareholders as well as employees.
+ - We are pleased with the very positive reception our offer has received, and are confident that progress is being made towards establishing the regulatory framework for the offer.
+ - If I go to a match it doesn’t mean I want to buy the stadium or the club.
+ - Production cutbacks have remained in place in the third quarter and this has helped to further reduce inventory levels worldwide.
+ - The danger, though – and there have been signs of this recently – is that Europe begins to demonstrate a return to more nationalist sentiment. To my mind, that would be a great mistake.
+ - We have experienced highly challenging global market conditions in the past quarter with significant steel price decline in all regions.
+ - I have confidence that the government of Luxembourg will not make any decision that frustrates this transaction.
+ - It is true that we are interested in scale but there are very sound reasons for this.
+ - I am very confident that we will be able to convince all the stakeholders – the shareholders, the governments and the employees, that this is in their best interests.
+
+30 quotes

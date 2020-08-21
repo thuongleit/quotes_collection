@@ -1,0 +1,44 @@
+ - Imagination should be used, not to escape reality but to create it.
+ - The average man is a conformist, accepting miseries and disasters with the stoicism of a cow standing in the rain.
+ - Criminals interest me, because they’re driven by the same desires as we are, but they take these disastrous shortcuts and end up in a real mess.
+ - I’ve always believed that a writer has got to remain an outsider. If I was offered anything like the Nobel Prize for Literature, I’d find it an extremely difficult conflict because I’d be basically disinclined to accept.
+ - When I open my eyes in the morning, I am not confronted by a world, but by a million possible worlds.
+ - I’m basically a writer of ideas, and the English aren’t interested in ideas. The English, I’m afraid, are totally brainless.
+ - The mystical impulse in men is somehow a desire to possess the universe. In women, it’s a desire to be possessed.
+ - When we pull back and get, for a moment, the ‘bird’s eye’ view of life, it reveals meanings that are ungraspable by the narrow focus of our usual worm’s eye view.
+ - I was aggressively nonpolitical. I believed that people who make a fuss about politics do so because their heads are too empty to think about more important things. So I felt nothing but impatient contempt for Osborne’s Jimmy Porter and the rest of the heroes of social protest.
+ - The worst crimes are not committed by evil degenerates, but by decent and intelligent people taking ‘pragmatic’ decisions.
+ - Life itself is an exile. The way home is not the way back.
+ - I’ve always believed that a writer has got to remain an outsider.
+ - The self-surmounter can never put up with the man who has ceased to be dissatisfied with himself.
+ - Phenomenology is not a philosophy ; it is a philosophical method, a tool. It is like an adjustable spanner that can be used for dismantling a refrigerator or a car, or used for hammering in nails, or even for knocking somebody out.
+ - Man is the only animal who is prone to insanity.
+ - As a young man I was scornful about the supernatural but as I have got older, the sharp line that divided the credible from the incredible has tended to blur; I am aware that the whole world is slightly incredible.
+ - The exploration of oneself is usually also an exploration of the world at large, of other writers, a process of comparison with oneself with others, discoveries of kinships, gradual illumination of one’s own potentialities.
+ - Christianity was an epidemic rather than a religion. It appealed to fear, hysteria and ignorance. It spread across the Western world, not because it was true, but because humans are gullible and superstitious.
+ - But Zarathustra made it clear in which direction the answer lay; it is towards the artist-psychologist, the intuitional thinker. There are very few such men in the world’s literature; the great artists are not thinkers, the great thinkers are seldom artists.
+ - If you can train your senses to perceive the movement of the minute hand of a clock, what is to stop you for training them to ‘slow down’ when you look at a tree or a puddle?
+ - Faculty X is a sense of reality of other places and other times, and it is the possession of it – fragmentary and uncertain though it is – that distinguishes man from all other animals.
+ - It is far easier to write an angry letter than to go and say angry things to another person – because as soon as we look in one another’s faces we can see the other point of view.
+ - Too much success gets you resting on your laurels and creates a kind of quicksand that you can’t get out of.
+ - Sexual activity is driven by the same aims and motives as reading poetry or listening to music: to escape the limitations imposed by the need for particularity in the consciousness.
+ - A symphony is a stage play with the parts written for instruments instead of for actors.
+ - Turning on the light is easy if you know where the switch is.
+ - In the mid nineteenth century, the typical murderer was a drunken illiterate; a hundred years later the typical murderer regards himself as a thinking man.
+ - Man is brilliant at solving problems; but solving them only makes him the victim of his own childishness and laziness. It is this recognition that has made almost every major philosopher in history a pessimist.
+ - It was Rousseau who was largely responsible for the problem by giving currency to the idea that freedom can exist without responsibility and discipline.
+ - If I’d stayed on in London and carried on going to literary parties, it would have wrecked me as a writer.
+ - The complex develops out of the simple.
+ - The real issue is not whether two and two make four or whether two and two make five, but whether life advances by men who love words or by men who love living.
+ - Could it be that sexual perversion and romanticism sprang from the same longing for distant horizons?
+ - Being very famous is not the fun it sounds. It merely means you’re being chased by a lot of people and you lose your privacy.
+ - The sheer volume of evidence for survival after death is so immense that to ignore it is like standing at the foot of Mount Everest and insisting that you cannot see the mountain.
+ - The “passion for incredulity” can produce as much self-deception as the uncritical will to believe.
+ - Simple perception then is a fallacy. Besides the conscious prejudices that we are aware of imposing on the world, there are a thousand subconscious prejudices that we assume to be actuality.
+ - Our language has become a tired and inefficient thing in the hands of journalists and writers who have nothing to say.
+ - The Americans have always been more open to my ideas. In fact, I could earn a living in America just by lecturing. One of my brightest audiences, incidentally, were the prisoners in a Philadelphia gaol – brighter than my students at university.
+ - The visionary disciplines himself to see the world always as if he had only just seen it for the first time.
+ - If you asked me what is the basis of all my work, it’s the feeling there’s something basically wrong with human beings.
+ - I had never doubted my own abilities, but I was quite prepared to believe that “the world” would decline to recognize them.
+
+42 quotes

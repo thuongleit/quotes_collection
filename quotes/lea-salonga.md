@@ -1,0 +1,24 @@
+ - Don’t expect a pat on the back for merely doing your job, but know that you’ll get one for doing it exceptionally well.
+ - I want every Filipino woman empowered with information regarding all options available to her regarding family planning.
+ - I was 17 when I auditioned for ‘Miss Saigon.’ I really grew up doing that show. I pretty much knew, almost a year into ‘Miss Saigon,’ that I was going to be a performer, that I was going to be singing and acting.
+ - I think I will always be performing; I don’t think I can take that away. Because I really just enjoy it. I like getting up to sing; I like the challenge of learning new material and singing it in front of an audience.
+ - It’s in your DNA to be a Filipino; how can you just turn your back on it?
+ - My singing technique is really strong and I have to thank my teachers for really instilling a sense of discipline about how to sing properly and how to maintain your voice in a run.
+ - The nice thing about doing a pop opera is that, because the convention is set from the beginning that this is an opera and everything is sung, there is never that feeling of “Why is this person bursting out into song?” because the whole thing is sung.
+ - There are a lot of actors who wish there was a next play, a next musical. As an actor, I guess that’s all I can wish for – the next role, the next opportunity.
+ - I don’t think I would’ve been performing this long if I didn’t love it sincerely to the degree that I do. It’s not enough to like it. Dilettantes like things. Professionals love things and I consider myself a professional.
+ - I can’t be an ingenue forever, and I wouldn’t want to be.
+ - The thing about World War II is that everyone knows about the concentration camps in Europe – in Nazi Germany and Poland and Auschwitz and the other camps – but, no one really talks about the camps that were here in the United States.
+ - In the modern operas that ‘Miss Saigon’ and ‘Les Miz’ are, nobody breaks out into song from conventional book dialogue. Everything is sung from beginning to end, including the recitative.
+ - I feel like if I am physically and emotionally able to be at the theater, I will be there. I don’t like not being there – I don’t like playing hooky. I am just one of those people who feels really, really guilty if I am not there – maybe it’s part of being Catholic.
+ - I seem to have a soft spot in my heart for Australia and Australian actors. After having worked with one in ‘Cinderella’ and a multitude of them in ‘Cats,’ I’ve wanted the opportunity to actually perform ‘down under.’
+ - I just refuse to date actors. I’ve done that, and I don’t want to do that anymore. It’s just the stress of traveling and being away from each other so much.
+ - All the Disney Princess films are iconic and beautiful, so to have been a part of all that was really a wonderful part of my life. Its all fabulous, too, that I have a daughter that appreciates the whole Princess thing.
+ - I think that if an audience is truly appreciative of a performance, they will show it. Sometimes though, there are little differences, and there are audiences that are very reserved even though they are enjoying the show.
+ - I believe that everyone has the fundamental right to head to city hall with the person they love and get married. Period.
+ - I’d love to do just straight theatre. I’d love to do film and television, too.
+ - I would love to do some straight drama. A lot of times it’s not up to the actor, it’s up to the producer. It’s up to the powers that be.
+ - I pride myself in the fact that in the six months tour of Cinderella, I didn’t take one show off.
+ - The thing about Sondheim is that it does get very cerebral. You do need a faculty with words and a love for the lyrics to not just pull it off, but to have an appreciation for it.
+
+22 quotes

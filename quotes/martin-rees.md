@@ -1,0 +1,43 @@
+ - Absence of evidence is not evidence of absence.
+ - All the atoms we are made of are forged from hydrogen in stars that died and exploded before our solar system formed. So if you are romantic, you can say we are literally stardust. If you are less romantic, you can say we’re the nuclear waste from fuel that makes stars shine.
+ - The universe is still a place of mystery and wonder.
+ - The carbon dioxide concentration in the atmosphere is measured. It’s uncontroversial. It’s going up. We know that has a tendency to warm the atmosphere and we should be worried about that.
+ - In the beginning there were only probabilities. The universe could only come into existence if someone observed it. It does not matter that the observers turned up several billion years later. The universe exists because we are aware of it.
+ - To ensure continuing prosperity in the global economy, nothing is more important than the development and application of knowledge and skills.
+ - I’m a technological optimist in that I do believe that technology will provide solutions that will allow the world in 2050 to support 9 billion people at an acceptable standard of living. But I’m a political pessimist in that I am concerned about whether the science will be appropriately applied.
+ - Collective human actions are transforming, even ravaging, the biosphere – perhaps irreversibly – through global warming and loss of biodiversity.
+ - The ‘clean energy’ challenge deserves a commitment akin to the Manhattan project or the Apollo moon landing.
+ - I’m not myself religious but have no wish to insult or denigrate those who are.
+ - Nuclear weapons can be dismantled, but they cannot be uninvented.
+ - Crucial to science education is hands-on involvement: showing, not just telling; real experiments and field trips and not just virtual reality.
+ - We need to broaden our sympathies both in space and time – and perceive ourselves as part of a long heritage, and stewards for an immense future.
+ - Science isn’t just for scientists – it’s not just a training for careers.
+ - One of the computer models for a four degree temperature rise would give rise to a 10 degree temperature rise in Africa. And bear in mind also that in the depth of an ice age the mean temperature drop compared to the present was five degrees.
+ - Scientists surely have a special responsibility. It is their ideas that form the basis of new technology. They should not be indifferent to the fruits of their ideas. They should forgo experiments that are risky or unethical.
+ - I recall a lecture by John Glenn, the first American to go into orbit. When asked what went through his mind while he was crouched in the rocket nose-cone, awaiting blast-off, he replied, “I was thinking that the rocket has 20,000 components, and each was made by the lowest bidder.”
+ - Campaigning against religion can be socially counter-productive. If teachers take the uncompromising line that God and Darwinism are irreconcilable, many young people raised in a faith-based culture will stick with their religion and be lost to science.
+ - The politics is far harder than the science. And even if we accept the science we have a big issue of how to deal with it.
+ - Devastation could arise insidiously, rather than suddenly, through unsustainable pressure on energy supplies, food, water and other natural resources. Indeed, these pressures are the prime ‘threats without enemies’ that confront us.
+ - In this century, not only has science changed the world faster than ever, but in new and different ways. Targeted drugs, genetic modification, artificial intelligence, perhaps even implants into our brains – may change human beings themselves.
+ - The extreme sophistication of modern technology – wonderful though its benefits are – is, ironically, an impediment to engaging young people with basics: with learning how things work.
+ - It will not be humans who watch the sun’s demise, six billion years from now. Any creatures that then exist will be as different from us as we are from bacteria or amoebae.
+ - Cosmology does, I think, affect the way that we perceive humanity’s role in nature. One thing we’ve learnt from astronomy is that the future lying ahead is more prolonged than the past. Even our sun is less than halfway through its life.
+ - All space projects push the frontiers of technology and are drivers of innovation.
+ - Experiments that crash atoms together could start a chain reaction that erodes everything on Earth.
+ - The important point there is that when people talk about a mean temperature rise of say two, three or four degrees that’s a sort of global average which really is a signature of large scale change in climatic patterns.
+ - I think a few hundred years from now we’ll start having the ‘posthuman’ era of different species.
+ - I think all countries need to aim to cut the CO2 emissions per person, taking account of externalities like imports and exports.
+ - In the case of climate change, the threat is long-term and diffuse and requires broad international action for the benefit of people decades in the future. And in politics, the urgent always trumps the important, and that is what makes it a very difficult and challenging issue.
+ - I hope that by 2050 the entire solar system will have been explored and mapped by flotillas of tiny robotic craft.
+ - In our interconnected world, novel technology could empower just one fanatic, or some weirdo with a mindset of those who now design computer viruses, to trigger some kind of disaster. Indeed, catastrophe could arise simply from technical misadventure – error rather than terror.
+ - Some claim that computers will, by 2050, achieve human capabilities. Of course, in some respects they already have.
+ - It’s better to read first rate science fiction than second rate science-it’s a lot more fun, and no more likely to be wrong.
+ - Science is a part of culture. Indeed, it is the only truly global culture because protons and proteins are the same all over the world, and it’s the one culture we can all share.
+ - I’m not a specialist in the science but I have followed it fairly closely and it seems to me that there is among the experts a clear consensus that potential climate change is something to worry about.
+ - Indeed, our everyday world presents intellectual challenges just as daunting as those of the cosmos and the quantum, and that is where 99 per cent of scientists focus their efforts. Even the smallest insect, with its intricate structure, is far more complex than either an atom or a star.
+ - I suspect there could be life and intelligence out there in forms that we can’t conceive. And there could, of course, be forms of intelligence beyond human capacity-beyond as much as we are beyond a chimpanzee.
+ - I would support peaceful co-existence between religion and science because they concern different domains. Anyone who takes theology seriously knows that it’s not a matter of using it to explain things that scientists are mystified by.
+ - There may be organic life out there, or maybe machines created by long-dead civilizations, but any signals, even if they are difficult to decode, would tell us that the concepts of logic and physics are not limited to the hardware in human skulls, and will transform our view of the universe.
+ - God invented space so that not everything had to happen in Princeton.
+
+41 quotes

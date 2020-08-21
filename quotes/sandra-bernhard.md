@@ -1,0 +1,111 @@
+ - I love National Geographic. Just when you think you’ve seen the last lost native tribe, National Geographic will find a new one.
+ - Not everybody is cookie-cutter. You just can’t be. There are too many variables in life.
+ - I don’t believe in karma.
+ - Lots of people think that bisexual means cowardly lesbian.
+ - I’m sure that Jesus was an incredible person.
+ - When you’re constantly looking for things from other people, you’re not looking within yourself.
+ - I believe in people living their lives and having privacy.
+ - Love is the only shocking act left on the face of the earth.
+ - People feel like if they don’t have a voice or a name or the spotlight, then they’re invisible. But if you can’t wake up in your world, in your life, with your family and your friends, and enjoy it, then forget it. All bets are off, because that’s all anybody is guaranteed.
+ - It’s nobody’s business how you do something.
+ - My father was a proctologist and my mother was an abstract artist, so that’s how I view the world.
+ - Growing up in the ’60s and the ’70s, things certainly seemed more simplistic and easier to digest.
+ - I’m a sexual person. A lot of different people turn me on and have over the years, and I’ve always wanted to make it very clear that this was not coming from some sort of antimale point of view.
+ - I am still comfortable with my body, because I’m like, What’s not to be comfortable with? I mean, it’s just my nature.
+ - I love performing. I love being a provocateur. I love putting myself in situations that are uncomfortable and that I have to get out of.
+ - Personally, I’m waiting for caller IQ.
+ - Onstage, I’m still wearing my fabulous, sheer dresses because I’m not that big.
+ - I think there are always different times in your life when you go, “Oh, god. I wish I were traditionally pretty. My life would be so much easier.” But then you get through that, and you go, “Well, I’m not.”
+ - If I’ve learned anything in my 30s, it’s about holding back a little bit.
+ - A remembrance can mean nothing to the one remembered; it can only remind the ones left behind how little they did while you were still alive.
+ - Purim, one of my favorite holidays. It’s like the original drag queen’s holiday. It’s when all the Jewish men go for it and feel no guilt for a change.
+ - In the late ’60s and ’70s, when feminism was on the up sweep, there was an awareness of things that we’re losing again.
+ - Gay pride’s beautiful. If somebody needs to be expressing that, then it’s a positive thing.
+ - I knew I wanted to be a performer and do comedy at 5 years old. My dad’s wife, Marlene Rosenbaum, was boiling water and she goes, “What do you want to be when you grow up?” I said, “A comedian.” And she laughed and laughed because she thought that was the cutest, funniest thing...
+ - Maybe I’d be in a different place in my career if I’d had that 10-year plan, a lot of people went at it with this voracity that I never had. My only voracity was to have fun and to be in the mix.
+ - It’s depressing sitting at a comedy club all night, waiting to get on to do your five or ten minutes of material.
+ - Random things make me laugh.
+ - I definitely want to be with somebody who doesn’t feel lost or in my shadow.
+ - Unfortunately, most college kids these days aren’t coming from any place-they seem to ask the same kind of questions over and over again.
+ - I’m somebody who can absorb a lot.
+ - The most important, overriding arc of my career has been that I would never be self-deprecating.
+ - It’s up to couples, to individuals, to have a trust between each other.
+ - I’ve always loved being at the eye of the storm creatively with people that I find exciting and glamorous. So sometimes I got sidetracked in my career and maybe I would have done more TV or film.
+ - I don’t like surgery. I don’t like elective surgery, I don’t like surgery that you have to have.
+ - I was looking for something within Judaism that had a spiritual nature and not just a religious nature. So my trainer at the time was the one who took me to the Kabbalah center on my 40th birthday. I was like, “Oh, this is so cool.” I was just ready for it. I was ready for something different.
+ - When you’re collaborating with somebody who’s got a lot of stuff they haven’t worked out yet, you’re working out their vision as well.
+ - New York has always been a sense of eclectic kind of freedom and expression on a lot of different levels.
+ - I think bravery is when you’re willing to really put yourself on the line and maybe lose out, financially – and be able to say exactly what motivates you and what inspires you and what you find completely unacceptable in humanity and in culture.
+ - I tend to go against the grain because when I start to see that everybody’s trying to shock, I try not to. I just do stuff that’s subtler, more emotional, and I think that shocks people.
+ - I’m not saying I’m some high priestess. I do things, I’m sure, that are damaging, but it’s certainly not on purpose.
+ - I think people are a little bit intimidated by me. You know, I’m not exactly a wilting flower, so I think they’re a little bit scared of me sometimes.
+ - When people pay to see you live, they connect with you on a much deeper level than people who just buy your records.
+ - I get happier every day. I have a sense of accomplishment every day of my life.
+ - How far can we go? How much can we absorb and still have some peace of mind?
+ - I try to avoid people’s eyes because I don’t like to get that intimate with just anybody. i don’t need the responsibility.
+ - You can’t just try to be a performer. It’s in your DNA. I really believe that it’s either what you are or it’s not at all.
+ - There’s this whole sense of judgment and who’s right and who’s wrong and who’s moral and who’s going to be punished.
+ - I’m very much a humanist. I’m very much pro-choice. I’m very much politically correct.
+ - I’ve always allowed myself to go on journeys creatively and emotionally, and never put, like, limits on myself.
+ - I like the energy of live performance.
+ - I was really going through a transition in my life. I was tired of feeling victimized by my career.
+ - Of course, everybody’s family is dysfunctional – we’ve accepted that. What are we supposed to do? Hate our parents for the rest of our lives?
+ - You reach a certain point in your 30s when you say things in a much safer way.
+ - Anything that has cynicism to it and that’s jaded is smutty.
+ - I’ll take on somebody if they’re offending the entire culture, not just offending me.
+ - I’m very much an optimist. I don’t think I could do my work if I didn’t believe there was some kind of hope for humanity.
+ - There will come a day when Anne Heche will be straight again.
+ - I’m studying Kabbalah, which is really the essence of Jewish spirituality.
+ - Hip doesn’t really come into play anymore as far as I can tell.
+ - It’s usually a spiritual thing that’s preventing somebody from having happiness.
+ - When you’re watching the news, how many days in a row can you watch that and feel good about yourself and the world?
+ - My family wasn’t the Brady Bunch. They were the Broody Bunch.
+ - I don’t want someone coming in and passing judgment on my life.
+ - I don’t think somebody can just, like, wave a magic wand and make you a star.
+ - I think I’ve drawn from some of the most feminine women, like Jackie Kennedy. I am totally devastated that she’s gone. She had it all.
+ - Things are so scary and intimidating with AIDS and the right wing that people are looking for somebody to just give them safe harbors.
+ - I really, really love Hilary Clinton. I think she’s very cool. She’s out there and she’s involved.
+ - I would never wanna do a show that’s strictly maudlin and invaded my personal life and my home. I would never do that.
+ - If you come home to a household of chaos and anger and fear, you’re not going to feel protected from the world.
+ - Morality is standing by your friends, standing by people when it’s not popular. It’s sacrificing things on a big international stage, and sometimes it’s sacrificing your basic comforts.
+ - Gayness is a non-issue.
+ - Everybody has their own way of tapping into their realness.
+ - I really have a problem with any kind of drug, I always have.
+ - I really thought I wanted to be a musical-comedy star, but I lived in Phoenix and didn’t want to go all the way to New York and be that far away from home. So I thought maybe I’d be a rock ‘n’ roll singer or an opera singer.
+ - Madonnas got one big choice. Take a couple of years off and become a human being.
+ - Be who you are and I’ll be who I am. I refuse to take sides, because everybody has their story.
+ - The real terrorist threats are George W. Bush and his band of brown-shirted thugs.
+ - From the time I was a kid, I’d never joined groups. I hated high school groups. I hung out with hippies, musical people. I hung out with whomever I found compelling and interesting and smart. And I continued to do that throughout my life.
+ - I would be dishonorable in a relationship because I wasn’t getting what I wanted from that person.
+ - I am always hoping to do another CD. This atmosphere has been difficult.
+ - I’m the only actress in Hollywood who didn’t pay to have these lips.
+ - There are few performers who would have had the audacity to even bring up the fact that they had been poorly reviewed.
+ - That disturbs people when they know they didn’t have the guts or integrity to stick to their dreams.
+ - You have to take the basics of feminism and the kind of outline of it and do what you do with it. You have to make things work for your own life.
+ - If you want to dig, if you want to pry, do it on your time, but I’m going to be a woman of dignity.
+ - People want to be famous, they want to be loved, they want to be accepted. They want to push aside their past and the things that have been embarrassing to them.
+ - At no time do I come from a cynical point of view. I’m coming from a concerned point of view.
+ - I hate to judge everybody across the board.
+ - I think so much of what informs us as performers is what we had to endure as kids growing up. I was the youngest in my family. I always got a lot of attention.
+ - They want families to come to New York and go to the theater, so the theater is all geared toward family entertainment. It’s money, you know.
+ - I didn’t belong when I was in high school. Now people are trying to buy lips.
+ - I don’t consider myself a comic but a performer. A comic tells bad jokes.
+ - I feel like you’ve gotta be able to get up every night in front of a live audience. Whether it’s 10 people or 50 people or a hundred people, whether you’re in a rock band or doing the comedy circuit.
+ - For most of my relationships, I would have liaisons, and I would feel guilty.
+ - There are so few women in general who aren’t completely threatened and confused by other women’s success. It’s very disappointing.
+ - Once you’re heterosexual and comfortable with that, you don’t need to take out an announcement every day.
+ - As a kid, I loved being loved, and still do. Who doesn’t love being loved?
+ - The live show is different from the album. It’s different every night depending on where I am and how many months have gone by since I last performed.
+ - You don’t need to be famous to live a life as an artist.
+ - When you have a knowledge of history, it’s very soothing. When there’s continuity in your life, it’s soothing.
+ - I always have kind of underneath feeling of peace of mind that I get from just the basic tenants of spirituality.
+ - On one side you have book burners, Congressional wives and Pat Robertson. On the other side, you have vulgar comedians, foul-mouthed rap groups and Dennis Hopper – all your choices should be so easy.
+ - The fumes are killing us, and we wonder why things are going haywire.
+ - I’ve always gotten myself overly involved in supporting other women who’ve not always been as supportive in return.
+ - I don’t like going back and listening to myself. It makes me uncomfortable, and I know I can never emulate what I did that night, so why listen to it?
+ - I’ve always been opposed to groups. I can’t believe the doctrine of group is going to work for every single person within the group.
+ - I think Bush is amateurish and self-serving, and frankly, it’s disgusting.
+ - When I was really little, I was skinny and people laughed at me for being skinny, so, we all pay our dues for the bodies we’re in one way or another. But thank god I haven’t needed to alter it to feel good about myself.
+ - I can’t tell you 100 percent what makes a relationship work. But I can see something good coming and I can see something bad coming.
+
+109 quotes

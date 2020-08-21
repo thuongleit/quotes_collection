@@ -1,0 +1,22 @@
+ - I like that kind of frantic schedule. It makes me feel like I have a purpose.
+ - You’ve got to be smart enough to write and stupid enough to not think about all the things that might go wrong.
+ - I love being the age I am, because if there’s enough pain or grief, I have enough experience now to realize that there’s joy coming around the corner.
+ - I’d to do more stuff with less sarcasm.
+ - I think I really see myself doing TV more than ever.
+ - Id just love to have an audience and its the most fun in the world to get a new script every week and have the audience come in, and work with those actors.
+ - Especially when you play a character for so many years, the character ends up reflecting a lot of who you are and I think I’ve changed a lot since then, but that represented a lot of who I was as a teenager.
+ - I pretty much only write by default, because I want to make certain projects so instead of trying to wait and find them, I create them, but I’m not really a writer.
+ - It may be hard on some fathers not to have a son, but it is much harder on a boy not to have a father.
+ - Fast pitch softball is just as dangerous as baseball. The ball is bigger so you can see it better, but the size also makes for a bigger space to move out of its way.
+ - Yeah, I started when I was 6 years old. My brother and sister would get all of these presents at Christmas time from the cast and crew of their show and I was jealous. So I decided that I had to become an actor.
+ - I am ashamed to admit I watch a lot of reality shows like The Osbournes and The Bachelor.
+ - The best thing about being an actress is getting good concert tickets.
+ - I’m super shy, especially at parties.
+ - I do like to hang out in the corner and keep my eye on the party, or be outside in a smaller group.
+ - My twin in the show is Molly Stanton who is so sweet and great and she is totally different from me.
+ - But I just wonder what it would be like to be able to go places without people recognizing me.
+ - I like going to New York. I like the galleries and the theatre and the restaurants and bars and music. I think that city is more alive than Los Angeles.
+ - You know what you are best at, and writing is just not my thing, but I like it.
+ - A good place to start initially would be school plays.
+
+20 quotes

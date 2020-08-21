@@ -1,0 +1,27 @@
+ - Architecture is a discipline that takes time and patience. If one spends enough years writing complex novels one might be able, someday, to construct a respectable haiku.
+ - Architecture is a social activity that has to do with some sort of communication or places of interaction, and that to change the environment is to change behaviour.
+ - You might say that when you step inside, you’re entering a honorific space, but that’s something totally different than experiencing it. And in architecture the experience comes first. That has the deepest effect on us.
+ - We only exist in terms of how we think we exist. Meaning every cultural development is fabricated and can be fabricated.
+ - It’s too simplistic to advance the notion of the autonomy of art as a reason for turning away from the public. You can have autonomy and simultaneously have connections with the social and political world.
+ - I’ve been such an outsider my whole life.
+ - Scientific reality is the modern human condition, and you can see that in the symbolic nature of my work.
+ - The multiplicity of ideas is what Im interested in.
+ - The aesthetic of architecture has to be rooted in a broader idea about human activities like walking, relaxing and communicating. Architecture thinks about how these activities can be given added value.
+ - So we can’t go backwards, we can only go where the evolutionary trajectory is taking us and attune our ideas about ourselves and our existence to that course.
+ - So I am totally aware that when I defend the autonomy of art I’m going counter to my own development. It’s more an instinctive reaction, meant to protect the private aspect of the work, the part I am most interested in and which nowadays is at risk in our culture.
+ - I’m interested in conflict and confrontation.
+ - Our idea of nature is increasingly being determined by scientific developments. And they have become decisive for our image of reality.
+ - So at a time in which the media give the public everything it wants and desires, maybe art should adopt a much more aggressive attitude towards the public. I myself am very much inclined to take this position.
+ - Look around at day-to-day life for ideas, and it finds its way into your work.
+ - Art in progress. MAK has occupied a unique and valuable space as international host for discourse between the arts and architecture.
+ - For me the meaning of my work is much more fluid.
+ - I’m often called an old-fashioned modernist. But the modernists had the absurd idea that architecture could heal the world. That’s impossible. And today nobody expects architects to have these grand visions any more.
+ - The huge problem in our society is the enormous ignorance of the ideas that underlie modern art.
+ - Architecture is involved with the world, but at the same time it has a certain autonomy. This autonomy cannot be explained in terms of traditional logic because the most interesting parts of the work are non-verbal. They operate within the terms of the work, like any art.
+ - Descriptions of my work depress me. They make me feel pinned down.
+ - Large-scale public projects require the agreement of large numbers of people.
+ - My buildings don’t speak in words but by means of their own spaciousness.
+ - You can’t make anything authentic by asking people what they want because they don’t know what they want. That’s what they’re looking at you for.
+ - I’ve learned that in order to achieve what I wanted, it made more sense to negotiate than to defend the autonomy of my work by pounding my fist on the table.
+
+25 quotes

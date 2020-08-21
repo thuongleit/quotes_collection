@@ -1,0 +1,44 @@
+ - I practice stoic philosophy. As a human being, you may have emotions, but these don’t need to affect your soul. The two are not one.
+ - Time is infinite, but we are not infinite in it.
+ - If I think about it too much, I can’t get dressed.
+ - I don’t approach fashion; fashion approaches me!
+ - I think life is about having the mixture of the curiosity of an older person and the imagination of a child.
+ - Everyone wants to get behind the red rope, but actually: be yourself, don’t believe what you see, don’t believe all this marketing.
+ - Life is full of banana skins. You slip, you carry on.
+ - I never read gossip press. I just read books. And I never switch on the TV anymore.
+ - I spend a lot of time upside down. It increases the blood flow to the brain, so it really helps your creativity.
+ - A marriage is a solemn affair. The tempest of emotions and the myriad of arrangements are giddying, and when one is faced with these, clothing seems to be the last of one’s priorities.
+ - We need better things, not more. We should not pollute the world with meaningless, unused things when we can make and support things of rare and precious beauty.
+ - I can’t understand it when people are closed-minded. I mean, boy, have I made mistakes and been very wrong. I can’t tell you the amounts of times I’ve been let down, but I still try to see the best in people.
+ - Fragrance takes you on a journey of time. You can walk down the street and pass someone and get taken back 20 years. It’s very Proustian that way.
+ - In fashion, there are so many gangs, if you identify too much with one, you get caught – I would lose my freedom.
+ - I’ve been really upset sometimes when I’ve been misquoted. And it’s the one thing they use in big print. Or it’s taken out of context. Thoughts are fluid and words are sticky. That’s the thing.
+ - Part of being a conscious human being, is having an intention. And if you put an intention into whatever you do, it’s definitely going to be more satisfying in the end.
+ - Everyone thought I was going to fall down on my shoes and I kept saying, ‘Well if I do I’ll just get up!’
+ - Memories are like mercury. Every time you sort of try to get near them, they slip out of your hand like a bar of soap.
+ - I really don’t understand the idea of a celebrity stylist. Is it a real job? I know there’s unemployment, but frankly the railways need to be fixed, too.
+ - People always assume I don’t need to work for money, but my divorce settlement was not as much as it’s always reported to be.
+ - I don’t like to look at myself in the mirror, which is why my eye makeup is always crooked.
+ - Sunglasses are great, but I always feel a bit pretentious wearing sunglasses. I mean, I do love to wear them.
+ - I hate the idea of making any of my children into a mini-me. That would be terrible.
+ - There hasn’t been anything real since grunge. That was the last movement led by music or an art form.
+ - I know sometimes I can come off like a lonely spinster in a tower. That’s not me at all.
+ - I think the world’s just gone completely mad, with everyone wearing the same things, even celebrities.
+ - Fantasy appeals to me and can be very much reflected in my dress – but then, each day is different. Not every day is a magical day.
+ - I don’t tell anybody else what to wear. I would never dream of it.
+ - If you go into a relationship when you’re 16, you’ve got no baggage.
+ - I play piano and I sing. But I do that for fun. I mean, I do everything for fun.
+ - If I eat, I can’t work. I’ll eat when I’m dead.
+ - Holding a note is a very difficult thing – you have to use your whole body to achieve a perfect pitch.
+ - I’d quite like to have one place where I stay put. And I don’t like living in cities all the time. In order to have ideas, you have to have some peace and quiet.
+ - I don’t dress for effect, and I think that it never works out when someone does.
+ - Fashion is not just about trends. It’s about political history. You can trace it from the ancient Romans to probably until the ’80s, and you can see defining moments that were due either to revolutions or changes in politics.
+ - I don’t regard clothing as disposable, which is probably why I have so much of it!
+ - But things don’t necessarily have to be that expensive to be good. As long as they are expensive enough to last.
+ - I think it’s beautiful to be able to cover yourself in metal. I love the color and the way it reflects. But it is also a protection.
+ - When I think my hair needs a bit of help, I just glue another bit onto my head.
+ - I don’t do event dressing, because every day is an event.
+ - I just am who I am. And then when people label me eccentric or different, Im kind of astonished because I think, This is completely normal. This is just how I am, its how Ive always been.
+ - Human beings all mimic each other.
+
+42 quotes

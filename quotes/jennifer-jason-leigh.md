@@ -1,0 +1,24 @@
+ - I don’t need a reason to kill myself-I need a reason not to.
+ - It’s very exciting to work with people who inspire you.
+ - I just don’t want to talk about my personal life. I feel like it’s mine, I’m not trying to promote it. It’s nice to have things that are your own, that you value enough that you don’t have to use to sell a movie.
+ - I’m a typical middle child. I’m the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody’s happy. It’s hard to change your nature, even with years and years of therapy.
+ - I like to investigate all different kinds of people, I guess, and find out what makes them who they are, and try to be honest in the portrayal, and truthful, and find out how to understand that person, how to communicate that person’s experience.
+ - I love Polaroids and I have a Polaroid camera collection from the ’50s.
+ - Writing, producing and directing, I must say, is incredibly satisfying and gratifying.
+ - People equate success with youth. And if you haven’t had a certain amount of success by a certain time in your life, it’s never going to happen. There’s a fear about that. So people start lying about their age really young. I’ve never done that because I think it’s so insignificant.
+ - I hate parties. I don’t like big crowded things.
+ - I don’t really watch my moves all that often; I mean, really, I don’t.
+ - You know, you really do choose your existence in a way.
+ - I love being in therapy. It’s just constantly fulfilling for me.
+ - I used to hang out by the food table at parties because you don’t have to talk to anybody. If you do then you can talk about the food.
+ - Acting for kids is like playing house, you know? But growing up in Hollywood, it just made it seem possible.
+ - I loved acting as a kid because I was kind of shy, so it brought me out of myself.
+ - When I find a role I want to play, I just go after it.
+ - I’d love to have children, and I think marriage is great, I really do.
+ - One of the reasons that I do a lot of different kinds of pictures is because I learn a lot when I’m doing them.
+ - I like a movie that the audience actively has to participate in, and not just casually observe. Whatever my part in it, just as an audience member, I find that exciting.
+ - I worked with great, brilliant directors. I’ve been so lucky. It’s terrible to compare anyone, because you can’t. But I can just tell you that this experience was just a truly magnificent experience for everyone involved.
+ - I don’t want to play the same person twice, that’s not why I wanted to act.
+ - I’ve always done roles that really appealed to me on a gut level and which I found inspiring.
+
+22 quotes

@@ -1,0 +1,96 @@
+ - Work hard and follow your dreams, but never forget where you came from.
+ - Confidence is key. Sometimes, you need to look like you’re confident even when you’re not.
+ - My mum and I do cardio kickboxing classes together.
+ - I want to go to Morocco really bad.
+ - Being cool is being your own self, not doing something that someone else is telling you to do.
+ - My style is boho chic. I love that time period – the patterns, the prints, the people, the music, the vibe.
+ - I love finding things that scare me and doing them. That’s how you grow.
+ - When you get to sing with someone you care about, it’s magical.
+ - I just love expanding my horizons and growing as an artist. The only way you get to do that is by doing something that scares you or takes you out of your comfort zone.
+ - It’s important, too, for people to see that it only takes one person to have faith in you, to care about you, to make you feel changed. We should all help each other out and give love to everyone as much as possible.
+ - I guess I’m one of those girls who can be too honest about things for my own good, but I expect it back. I expect people to be honest and blunt with me, too.
+ - Do not just look at your boyfriend as just a boyfriend. Look at him as a friend, too.
+ - You have to love yourself before you can love anyone. I think that’s very, very important, no matter how old you are or what you’re doing. You have to be able to love yourself because that’s when things fall into place.
+ - Exercise is amazing, from the inside out. I feel so alive and have more energy.
+ - I’ve had many nicknames over the years: V, Nessa, Nessy Poo, Nessy Bear and Van. Only my parents call me Van, though, and I hate it. I get embarrassed.
+ - I like egg white omelets with veggies, or oatmeal with almonds and fruit.
+ - I’m not good with catty girls. I’m too laid-back.
+ - I don’t like being stagnant. I want to continue to grow and just be better at what I do, and the only way to do that is to keep stepping outside of your comfort zone.
+ - Lipgloss is my calling!
+ - I want to be strong and empowered. I want to shock everybody.
+ - I had a gypsy upbringing, so I moved around all over the place and can’t remember a street I grew up on.
+ - I may have had a crush on Zac, but we are like brother and sister, so nothing would ever happen.
+ - If people don’t like me for whatever I do, for being me, then that’s too bad. I don’t want to change to be something that I’m not for other people to like me.
+ - I’ve always wanted to play Maria in West Side Story. My idol is Natalie Wood, and I love the movie, so I think a modern-day twist on it would be really neat.
+ - The Lion King always makes me cry, especially when Simba’s father gets trampled.
+ - I’m not the same girl I was five years ago. Hopefully, with the choices I’m making people will start to see that I’m not just little Gabriella.
+ - I really do try to watch everything I say. Because one little tiny slip, and it’s like the world is coming to an end!
+ - I’m really an outdoorsy girl. People think I can’t go anywhere without getting all primped up, but I love to go camping, and I’m totally fine with not doing my hair or makeup, not taking a shower and just hiking.
+ - I had my first real kiss at Magic Mountain on a park bench. Not the most romantic thing ever.
+ - People are always going to say stuff about you and there are always going to be crazy rumours out there, but as long as you know the truth, you’re fine.
+ - I love and really respect strong women. I’m obsessed with Scarlett Johansson and Drew Barrymore and Penelope Cruz. They are just really incredibly strong-willed, intelligent females in the industry.
+ - I love being in the studio and singing on stage and performing. It’s so much fun. I love every second of it – and I love the way you get to show who you are. I love the way fans are really passionate around the world, so I adore performing and hearing people sing along in different countries.
+ - I get to go to all these beautiful places, so it’s nice being able to take pictures of it.
+ - If you have your eye set on somebody, don’t beat around the bush.
+ - I love funky styles. Not preppy or rock, just funky!
+ - Good boys are nice – don’t go for the bad ones!
+ - So many people try to grow up too fast, and it’s not fun! You should stay a kid as long as possible!
+ - The second I met Zac, I thought he was a really cool guy. It’s hard not to have chemistry with someone who is so attractive.
+ - I hope by the time I’m 30 to have a husband and maybe a baby.
+ - You have to be able to love yourself because that’s when things fall into place.
+ - I took piano lessons when I was younger and I’ve been trying to learn how to play the guitar recently. I’d really like to learn how to play the drums. They’re a lot of fun and they require a lot of focus.
+ - It’s important to have people around who love themselves, are true to themselves, who have their own hobbies and their world doesn’t revolve around Hollywood. I can always go to my family with any doubts or questions I may have.
+ - I have a toy poodle, Shadow. She’s a little whippersnapper! And I love little monkeys.
+ - Once I turned 13, I was the guy magnet.
+ - I think it’s really healing to see movies that are based on true stories. It builds so much more compassion and empathy.
+ - This is going to sound really funny. I have a poster of Zac Efron on my wall! I think every girl has a poster of him in their room so, why not join the club!
+ - Dancing was a big part of my life, but I would never consider myself a dancer. I adore singing, and music has always been a huge part of my life, but I also enjoy acting.
+ - I think I’d make a pretty good girlfriend.
+ - I always wanted to do dramas. Ever since I was young, I wanted to be in a role where I could play a prostitute or a drug addict, because it’s nice to be able to portray someone who is so far from you, which I love.
+ - I am human like everyone else. I am aware that there are people who look up to me. When mistakes are made, they aren’t intentional, and I constantly push myself to be a better person.
+ - I like friends who are honest and loyal. They also shouldn’t be afraid to be a kid. I like having fun.
+ - I love children. They’re so much fun and I would have a blast spoiling them.
+ - I was so unhealthy. I used to go to ‘Cold Stone Creamery,’ get a tub of Butterfinger ice cream, and eat it all before bedtime. And my fingers were permanently stained orange from Cheetos.
+ - I love what I do and I am surrounded by some incredible people.
+ - I don’t go long without eating. I never starve myself: I grab a healthy snack.
+ - I want to let my fans get to know a little about me. I’m very thankful for everything they’ve done for me so, of course, I’m going to let them into my world a bit. But I really am a very private person, and I love kepping my life to myself – that’s how I’ve always been.
+ - If you have paparazzi, you know you’ve gotten somewhere.
+ - I feel like a lot of people think of Hollywood as being fake, but it’s only perceived that way because it takes 10 people to make someone look the way that they do. In reality, they’re there because they are doing what they’re passionate about.
+ - I love Cameron Diaz, and I love Drew Barrymore.
+ - My passion is doing movies, and as long as I keep doing that, I’ll be happy. I want to do movies, fun roles and dramatic ones. I love all of it.
+ - A good amount of the guys wanted to date me. Even older guys looking at me. It took some getting used to.
+ - I feel completely safe in my house but all my friends are scared for me. And of course I can tell my parents panic a little. The best thing about living alone is being able to have my friends come over whenever.
+ - Right now, I do not like kids at all. I mean, I love my fans and everything, but when you have kids following you around all day, it’s like, ‘Ugh, kids!’ Maybe that will change when I get older.
+ - I feel like I’ve been fortunate enough that I’ve gotten to meet and work with some really passionate people.
+ - When you’re putting good stuff into your body, you feel so much better.
+ - Touring is tough. You’re almost in a haze because you don’t really know where you are half the time: You’re in a hotel room one moment, and the next thing you know, you’re onstage performing for 60,000 people, then you’re back on an airplane. It’s very hectic and I couldn’t do it without my family.
+ - I feel like women have an easier time separating from their characters than men do.
+ - I relate to all of my songs and I’m inspired by everything going on around me. Music comes from all different aspects of my life.
+ - You have to do things for yourself, not for anybody else.
+ - I like someone who’s not afraid to be a kid!
+ - Guys act strange around me. I swear I don’t know why!
+ - My advice to kids is give it your all! Give it 110% and don’t give up!
+ - I do always have a wall up. But I feel by doing it, I keep myself safe.
+ - The sweetest thing a guy said is that I look pretty with or without makeup.
+ - Movies and acting are so much fun. I love playing different characters and doing different genres. It’s all still very interesting to me.
+ - I did ask Matt Damon for his autograph – and I got a picture, too!
+ - I have three closets in my bedroom.
+ - I’d like to win an Oscar.
+ - I just lip gloss! It doesn’t matter if it’s $2 or $30.
+ - I want to try doing sportier things, kite surfing and paddle surfing – I think it would give me that extra confidence.
+ - The only thing you can do through all the scrutiny and just in life in general is be true to yourself.
+ - Just recently Ive learned to be okay with myself without wearing makeup. I think it was a special someone telling me that I didnt need it. I started taking care of my skin and realized I didnt need as much as I thought I did.
+ - When I was younger, I used to be super, super shy. I still find myself being scared of things.
+ - We all have the same needs. So it’s immoral to make snap judgments about people.
+ - I’m not very experienced with boys or the whole dating thingy.
+ - I love acting, but I don’t know if I’ll ever get used to it.
+ - I try to live my life, do what I want, and just let everything else follow along.
+ - I’ve always had problems with guys!
+ - I love doing theater. That’s where my home is.
+ - You can’t be a kid in show business. You will not survive.
+ - I try not to read the blogs or what people say about me. Because that’s what brings everybody down – no matter what you do, you’re always going to have haters.
+ - You’ll always have to fight for what you want. Definitely crossing over and being able to tackle these grittier parts was a challenge, but I feel like I’ve done it! It’s a whole new chapter.
+ - I feel like acting is something I’ve been working towards longer. And it would be great to win a Grammy, of course, but for some reason, an Oscar speaks more to me.
+ - I’m becoming more adventurous.
+
+94 quotes

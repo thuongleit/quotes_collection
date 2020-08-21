@@ -1,0 +1,76 @@
+ - Let the others have beauty. I’ve got the charisma.
+ - There are certain models who might not be considered beautiful. I think personality is more important than looks.
+ - Makeup can help you capture a moment.
+ - You discover yourself through the research of your work.
+ - Enthusiasm is something so positive.
+ - What a women reads makes her more attractive and more elegant than what she wears.
+ - I love black lingerie and white shoes, and I love knives.
+ - I believe in the Yves Saint Laurent woman who either has her hands in the pockets of her pantsuit or is holding her lover’s hand. She doesn’t need a bag.
+ - Always wear high heels. Yes, they give you power. you move differently, sit differently and even speak differently.
+ - Either you are a good Virgo or a crazy Virgo! The good Virgo side of me is educating and raising the children – being there for them.
+ - When in doubt, wear a suit.
+ - I’m always anxious when it comes to my kids. This always makes me feel very vulnerable. Sometimes you think you aren’t a good mama, you always feel a bit guilty when you’re a mom. You want to be everywhere.
+ - When you love fashion, there is no weekend. Everything just blends together.
+ - Ballet is good, because it makes you stand up tall.
+ - I think that life has brought a lot to fashion, and fashion brings plenty to life. I took my children on photo shoots, at the same time, I borrowed my father’s sweater for a photo shoot and, then, I am inspired by a Russian princess because of my Russian roots. Everything is all mixed in together.
+ - Fashion is a completely international business.
+ - I don’t have problems with my weight, I don’t change weight but I think when you’re gaining in age your position has to be beautiful.
+ - Coco Chanel was always doing things with ballet, so it is a tradition clashing fashion and ballet.
+ - I am not mean at all, I am not tough at all.
+ - Do what you are not supposed to do, like wear white shoes all year round.
+ - I get an award for being the best dressed, but at the end of the day I’m not Daphne Guinness. I don’t like people to look at me for my dress. The letter is more important than the envelope. But if you feel good in your envelope, then you will feel better about yourself.
+ - I am like a lemon. I’m pressed for more juice. When I have fun, there’s still juice. I am not dried up.
+ - I have good legs, so I prefer my skirt lengths and my high heels. It’s like my uniform.
+ - If I could choose something besides fashion, I would love to be a ballerina.
+ - Monsier Saint Laurent was pathologically shy, and he made the Saint Laurent woman in his own image. Like her, I am shy. And to protect myself, I adopted something of an androgynous look, just as his women did.
+ - It’s funny, everything is so much easier when you do it yourself.
+ - Fashion’s about extravagance, and everyone needs a bit of that.
+ - The fashion industry certainly has its obscene sides. The cost of a coat can be obscene. So can the cost of a photo shoot if you’re working with a really good photographer.
+ - I am very obsessed with ballet now because it is a very difficult sport and a beautiful one because it is not about money. It’s not like playing football or tennis – dance has no sponsors, it’s just for the beauty. Maybe it is the only last pure sport.
+ - At the start, I had no idea to go into fashion, because I thought people would think I was stupid. I don’t worry about those things anymore.
+ - Yves Saint Laurent liked women to put their hands in their pockets, or to hold cigarettes, and act a bit like boys. It was to give an impression of composure, some self-assurance, and to counter the feminine appearance.
+ - Once you start being a muse, you cannot stop being a muse.
+ - I do go very fast. I think if I don’t go fast it’s going to be boring. That’s what photographers need to do.
+ - I think that when you’re taking pictures with my principles, you can try anything. Dare to do a lot of things – dare with sexuality, dare to break taboos as long as it remains photogenic. As long as I find an elegance and beauty in it, I am not afraid to tackle anything.
+ - Fashion is not about clothes, it is about a look.
+ - It’s very difficult to know when you’re crossing the boundary. I hate the word boundary because I never think about it when taking a picture. Very often it doesn’t mean anything because it depends on who’s looking at the picture more than the content of the picture itself.
+ - I am not a good professional of fashion. I am not an expert about how clothes are constructed or the history of fashion. I never start with fashion. I always think of the girl and her personality – because all that matters to me when you look at a page is, “Do you want to be that girl?”
+ - I think, in many ways, certain people sought me out maybe because they liked my body language or they liked the way I wore a slit skirt, the way I cross my legs or carry my purse. It’s quite inspiring to play the seduction card.
+ - Fashion has a political role insofar as following it can give you the impression to belonging to a certain social group or a private club.
+ - Even though jeans suit me, I never wear jeans.
+ - Like this. The wristbands you get at nightclubs next to all the bracelets? It’s always the details that give me the ideas. It’s fun to play with fashion because it is a fantasy. Each morning you dress to become a different woman. Fashion helps.
+ - Fashion shows used to be more crazy. Now they’ve become a bit too serious.
+ - What I hope I would do is something new, but I still love print. I love to touch paper. I’m not sure if I will ever do a magazine again, but I have plenty of ideas on the subject.
+ - Imitation always stinks. When I take photos, I don’t go back. I don’t look at the past. I’m always original.
+ - There is always a bit of seduction to it when one person is clothed and the other is naked, which can be a little weird. Everybody should be naked. In that case, it would be easier. Let’s do a huge naked photo shoot!
+ - People always say, ‘You look like Iggy Pop,’
+ - I hate people who over intellectualize. It bores me deeply.
+ - In fashion, it’s always better to be an interesting person than a beautiful one. Character is much more fascinating than pure good looks.
+ - A magazine is not just one person. And a fashion shoot is the same!
+ - Anna Wintour is the most powerful woman in the global fashion industry, the first lady of fashion. She’s a politician; I’m a stylist. They are two very different jobs.
+ - There are people who give you the confidence that you’re lacking and once you have confidence, you’re free and finally you can let out what’s inside of you.
+ - A lot of rumours on the Internet are wrong and horrible.
+ - Beauty can be quite boring, especially if you’re talking about beauty that doesn’t last. And what lasts is exactly the thing that maybe wasn’t pretty at first. It comes over time to be beautiful or interesting or exciting.
+ - You’re not on your own. You’re doing things with other people. This is very important for me.
+ - Fashion is very tough, and we shouldn’t forget that before designers were money-makers, they were artists.
+ - I think the first picture taken is often the best one.
+ - When you have the baby, there is no BlackBerry, no computer; you just have the baby on your stomach, and your heart is beating the same time as the baby’s. It’s very nice.
+ - Fashion is supposed to be light and not try too hard.
+ - When you have confidence, when you feel loved by people, you can tell them the truth. It’s important that I can say the photo isn’t beautiful or the photo shoot sucks.
+ - Today there is too much retouching, and I don’t like it, except on me.
+ - In photo shoots, I rely on instinct. Which is not to say I don’t bring ideas to a project or consider it beforehand.
+ - You can’t learn how to be elegant; you can only learn how to avoid mistakes. The rest is instinct. Elegance is about the way you cross your legs, not the label or the newest clothes from the latest collection.
+ - I love the free spirit in London.
+ - I think that something needs to be weird in order to have real beauty.
+ - In a way, I envy the freedom artists have. Artists can push themselves beyond their limits, in pursuit of their ideas and their vision, even if they are inhabited by demons that can also play tricks on them.
+ - Dancing is the last sport with no sponsor.
+ - Clothing is always a tool that helps me take a picture. But it’s never about the clothing.
+ - When everything is good, maybe I think it’s the time to do something else.
+ - Each morning, you dress to become a different woman. Fashion helps.
+ - I don’t say “oh, I’m a grandmother; I can’t wear this anymore.” Everything I can’t wear I’ve already given to my daughter.
+ - I think you are born chic. You cannot be chic. It is something you cannot learn.
+ - Bleaching eyebrows makes me crazy.
+ - I think I have character, and that is what people like in me.
+ - Maybe people have no idea how much work is behind a picture. It can seem very effortless but there is a lot of work. It’s exactly like doing ballet. It’s hours and hours but when you go onstage it’s just the pleasure of dancing.
+
+74 quotes

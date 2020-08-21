@@ -1,0 +1,33 @@
+ - We make time for what we truly value. We build habits and routines around the things that really matter to us. This is an important principle to understand as we seek to build our lives around the gospel. Do you want a cross centered life? A cross centered life is made up of cross centered days.
+ - Unless you see yourself standing there with the shrieking crowd, full of hostility and hatred for the holy and innocent Lamb of God, you don’t really understand the nature and depth of your sin or the necessity of the cross.
+ - Never be content with your current grasp of the gospel. The gospel is the life-permeating, world-altering, universe-changing truth. It has more facets than a diamond. It’s depths man will never exhaust.
+ - Before we can begin to see the cross as something done FOR us, leading us to faith and worship, we have to see it as something done BY us, leading us to repentance. Only the man or woman who is prepared to own his share in the guilt of the cross may claim his share in its grace.
+ - In order for romance to deepen, you must touch the heart and mind of your wife before you touch her body.
+ - It was humanly impossible for the disciples to free themselves from their selfish pursuit of self-exaltation, just as it’s impossible for us to free ourselves from the very same sins.
+ - It’s not ‘those who help themselves’ whom God helps; it’s those who humble themselves.
+ - Sunday is the best day of the week because we celebrate the risen Christ of the cross in the local church, the dearest place on earth.
+ - A cross centered life is made up of cross centered days.
+ - We don’t accidentally drift into holiness; rather we mature gradually and purposefully, one choice at a time.
+ - What joy the gospel gives me! I can approach the throne of God with confidence-not because I’ve done a good job at my spiritual duties, but because I’m clothed in the righteousness of Jesus Christ.
+ - Modesty is humility expressed in dress.
+ - Humility is honestly assessing ourselves in light of God’s holiness and our sinfulness.
+ - We cannot free ourselves from pride and selfish ambition; a divine rescue is absolutely necessary.
+ - If you crossed Matthew Henry’s path, you would quickly realize that here was someone taking thankful notice of all God was doing for him, and doing so in an attractively joyful way that was infectious.
+ - Today, the greatest challenge facing American evangelicals is not persecution from the world, but seduction by the world.
+ - Effective teaching involves explaining to our children what they’re already observing in our lives by example.
+ - Individuals motivated by self-interest, self-indulgence, and a false sense of self-sufficiency pursue selfish ambition for the purpose of self-glorification.
+ - The biblical purpose of every conversation you have, in every personal interaction, is that they person who hears you will receive grace.
+ - But the very act of pausing in a busy day to pray is an act of weakening pride in my life, acknowledging that I am a dependent creature. I am not self sufficient.
+ - Pride is when sinful human beings aspire to the status and position of God and refuse to acknowledge their dependence upon Him.
+ - Encourage others each and every day-nothing’s more important than our words.
+ - All gifts from God are intended to direct our attention to God and create fresh affection for God.
+ - So make it your aim and lifelong habit, when you see someone who’s serving, to be reminded of the sacrifice of the Savior, for apart from His sacrifice there is no serving.
+ - Read, but not to remember everything. Read because that 1% that you remember has the potential to change your life.
+ - No matter the severity of suffering we experience in this life, it will always be less that what we have deserved for our sins.
+ - Only those who are truly aware of their sin can truly cherish grace.
+ - To grow in your passion for what Jesus has done, increase your understanding of what He has done.
+ - Never be content with your current grasp of the gospel.
+ - The weakest believer and the strongest saint are alike equally justified. Justification admits no degrees. A man is either wholly justified or wholly condemned in the sight of God.
+ - Reminding ourselves of the gospel is the most important daily habit we can establish.
+
+31 quotes

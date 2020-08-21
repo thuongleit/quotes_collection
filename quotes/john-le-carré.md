@@ -1,0 +1,112 @@
+ - A desk is a dangerous place from which to view the world.
+ - There’s one thing worse than change and that’s the status quo.
+ - I am still making order out of chaos by reinvention.
+ - Do you know what love is? I’ll tell you: it is whatever you can still betray.
+ - Coming home from very lonely places, all of us go a little mad: whether from great personal success, or just an all-night drive, we are the sole survivors of a world no one else has ever seen.
+ - Multi-billion-dollar multinational corporations view the exploitation of the world’s sick and dying as a sacred duty to their shareholders.
+ - A good man knows when to sacrifice himself, a bad man survives but loses his soul.
+ - By repetition, each lie becomes an irreversible fact upon which other lies are constructed.
+ - To possess another language is to possess another soul.
+ - It’s death, that’s what I’m suffering from. The systematic encroachment of the big D.
+ - People are very secretive – secret even from themselves.
+ - Blackmail is more effective than bribery.
+ - Home’s where you go when you run out of homes.
+ - When the world is destroyed, it will be destroyed not by its madmen but by the sanity of its experts and the superior ignorance of its bureaucrats.
+ - The more identities a man has, the more they express the person they conceal.
+ - Jesus Christ only had twelve, you know, and one of them was a double.
+ - The only reward for love is the experience of loving.
+ - When a problem threatens to engulf you, there’s nothing like irrelevant detail to keep your head above water.
+ - A dead man is the worst enemy alive, I thought. You can’t alter his power over you. You can’t alter what you love or owe. And it’s too late to ask him for his absolution. He has beaten you all ways.
+ - I taught principally German language and literature at Eton. But any master with private pupils must be prepared to teach anything they ask for. That can be as diverse as the early paintings of Salvador Dali or how bumblebees manage to fly.
+ - It’s the oldest question of all, George. Who can spy on the spies?
+ - All men are born free: just not for long.
+ - You have no idea how humiliating it was, as a boy, to suddenly have all your clothes, your toys, snatched by the bailiff. I mean we were a middle-class family, it’s not as if it was happening up and down the street. It made me ashamed, I felt dirty.
+ - Let’s all pretend to be someone else, and then perhaps we’ll find out who we are.
+ - No problem exists in isolation, one must first reduce it to its basic components, then tackle each component in turn.
+ - I happen to write by hand. I don’t even type.
+ - Elections are a Western jerk-off.
+ - Without a pen in my hand I can’t think.
+ - Treason is very much a matter of habit, Smiley decided.
+ - I don’t think it is given to any of us to be impertinent to great religions with impunity.
+ - A committee is an animal with four back legs.
+ - What do you think spies are: priests, saints and martyrs? They’re a squalid procession of vain fools, traitors too, yes; pansies, sadists and drunkards, people who play cowboys and Indians to brighten their rotten lives.
+ - I used to think it was clever to confuse comedy with tragedy. Now I wish I could distinguish them.
+ - If you see the world as gloomily as I see it, the only thing to do is laugh or shoot yourself.
+ - When you’re my age, you have the feeling sometimes that you’re seeing the show come round again.
+ - I don’t know whether it’s age or maturity, but I certainly find myself committed more and more to the looser forms of Western democracy at any price.
+ - Cheats, liars and criminals may resist every blandishment while respectable gentlemen have been moved to appalling treasons by watery cabbage in a departmental canteen.
+ - There is a terrible alienation in the ordinary man between what he is being told and what he secretly believes.
+ - After all, if you make your enemy look like a fool, you lose the justification for engaging him.
+ - A good writer can watch a cat pad across the street and know what it is to be pounced upon by a Bengal tiger.
+ - God is in his Heaven and the first night was a wow.
+ - The pharmaceutical corporations are engaged in the systematic corruption of the medical profession, country by country.
+ - A lot of people see doubt as legitimate philosophical posture. They think of themselves in the middle, whereas of course really, they’re nowhere.
+ - I mean, you can’t be less ruthless than the opposition simply because your government’s policy is benevolent, can you now?
+ - I once heard someone say morality was method. Do you hold with that? I suppose you wouldn’t. You would say that morality was vested in the aim, I expect. Difficult to know what one’s aims are, that’s the trouble, specially if you’re British.
+ - In every operation there is an above the line and a below the line. Above the line is what you do by the book. Below the line is how you do the job.
+ - All power corrupts but some must govern.
+ - Agents of disruption, subversion, sabotage and disinformation tunnelers and smugglers, listeners and forgers, trainers and recruiters and talent spotters and couriers and watchers and seducers, assassins and balloonists, lip readers and disguise artists.
+ - A good writer is an expert on nothing except himself. And on that subject, if he is wise, he holds his tongue.
+ - Never trade a secret, you’ll always get the short end of the bargain.
+ - I think bankers will always get away with whatever they can get away with.
+ - The monsters of our childhood do not fade away, neither are they ever wholly monstrous.
+ - There will be no war, but in the pursuit of principle no stone will be left standing.
+ - Sometimes we have to do a thing in order to find out the reason for it. Sometimes our actions are questions, not answers.
+ - I’ve never been able to write a book without one very strong character in my rucksack.
+ - There are moments which are made up of too much stuff for them to be lived at the time they occur.
+ - I’ve got more than one string to my bow, and I thought I’d give this one a twang.
+ - History keeps her secrets longer than most of us. But she has one secret that I will reveal to you tonight in the greatest confidence. Sometimes there are no winners at all. And sometimes nobody needs to lose.
+ - Unfortunately it is the weak who destroy the strong.
+ - America has entered one of its periods of historical madness, but this is the worst I can remember: worse than McCarthyism, worse than the Bay of Pigs and in the long term potentially more disastrous than the Vietnam War.
+ - In itself, the practice of deception is not particularly exacting; it is a matter of experience, of professional expertise, it is a facility most of us can acquire.
+ - The fact that you can only do a little is no excuse for doing nothing.
+ - Give a man a car of his own and he leaves humility and common sense behind him in the garage.
+ - I don’t think that there are very many good writers who don’t live without a sense of tension. If they haven’t got one immediately available to them, then they usually manage to manufacture it in their private lives.
+ - It’s a principle of mine to come into the story as late as possible, and to tell it as fast as you can.
+ - For all the flailing and huffing and puffing, there is a kind of fatality about the process of war-making and the excuses we find for it, the consolation of belligerence in politics.
+ - Life was to be a search, or nothing! But it was the fear that it was nothing that drove me forward. Every encounter was an encounter with myself.
+ - I made a series of wrong decisions about moderately recent books, and I’ve sold the rights to studios for ridiculous amounts of money and the films have never been made. That’s the saddest thing of all, because they’re locked up and no one else can make them.
+ - To possess another language, Charlemagne tells us, is to possess another soul. German is such a language. Once you have it in your head, you can go there anytime, you can close the door, you have a refuge.
+ - For decades to come the spy world will continue to be the collective couch where the subconscious of each nation is confessed.
+ - I move my lips when I read – I’m painfully slow – so I like really good English.
+ - I was the British spy who had come out of the woodwork and told it how it really was, and anything I said to the contrary only enforced the myth. And since I was writing for a public hooked on Bond and desperate for the antidote, the myth stuck.
+ - It’s easy to forget what intelligence consists of: luck and speculation. Here and there a windfall, here and there a scoop.
+ - For better or worse, I’ve been involved in the description of political conflict.
+ - It was a charming fantasy of romantics that the spies would stop spying, that political conflict would end and politicians would tell the truth. Unfortunately that has not been the case.
+ - There was nothing dishonourable in not being blown about by every little modern wind. Better to have worth, to entrench, to be an oak of one’s own generation.
+ - Gerald Westerby, he told himself. You were present at your birth. You were present at your several marriages and at some of your divorces, and you will certainly be present at your funeral. High time, in our considered view, that you were present at certain other crucial moments in your history.
+ - Let’s die of it before we’re too old.
+ - Remember Graham Green’s dictum that childhood is the bank balance of the writer? I think that all writers feel alienated. Most of us go back to an alienated childhood in some way or another. I know that I do.
+ - The Cold War was over long before it was officially declared dead.
+ - I think I’m in the same mood as ever, but in some ways more mature. I guess you could say that, at 65, when you’ve seen the world shape up as I have, there are only two things you can do: laugh or kill yourself.
+ - Smiley was soaked to the skin and God as a punishment had removed all taxis from the face of London.
+ - The trouble is, when professional spies go out of their way to make a definitive statement about one of their own, the public tends to believe the opposite: which puts us all back where we started.
+ - I had two experiences of criminality: one was my conman father, the other was teaching at Eton.
+ - As our Governments spin, lie and lose their credibility, the electorate simply shrugs and looks the other way.
+ - I’ve always had difficulties with female characters.
+ - I’m really a library man, or second-hand book man.
+ - Thank heaven, though, one of the few mistakes I haven’t made is to talk about the unwritten book.
+ - If there is one eternal truth of politics, it is that there are always a dozen good reasons for doing nothing.
+ - Love means having something to betray.
+ - Every writer knows he is spurious; every fiction writer would rather be credible than authentic.
+ - I can’t think of anybody worse to live with.
+ - He has the gift of quiet.
+ - Those who are not with Mr. Bush are against him. Worse, they are with the enemy. Which is odd, because I’m dead against Bush, but I would love to see Saddam’s downfall – just not on Bush’s terms and not by his methods. And not under the banner of such outrageous hypocrisy.
+ - Completing a book, it’s a little like having a baby.
+ - Everyone who is not happy must be shot.
+ - What else has a journalist to do these days, after all, but report life’s miseries?
+ - It struck him as a bit unfair that, at the age of eight, he should have manifested the same sense of solitude that haunted him at forty-three.
+ - Power expands through the distribution of secrecy.
+ - Why did I desert Labour? Total bloody disillusionment. The party was a corpse. It had no ideology, it became detached, old, spineless and needed to go.
+ - The one thing you can bet is that spying is never over. Spying is like the wiring in this building: It’s just a question of who takes it over and switches on the lights. It will go on and on and on.
+ - Yet it’s not for want of future that I’m here, he thought. It’s for want of a present.
+ - There is no such thing as a secure writer: every novel is an impossible mountain.
+ - The good pupils are often brilliant, and they keep you on your toes and take you to the limits of your knowledge. The worst pupils provide a unique insight into the criminal mind.
+ - On one hand we go like hell for every terror cell we can find, we penetrate it, we destroy it. On the other hand, there is a much bigger need for a political solution.
+ - It is also the pardonable vanity of lonely people everywhere to assume that they have no counterparts.
+ - You can’t make war against terror. Terror is a technique of battle. It’s a tactic that has been employed since time immemorial. You can conduct clandestine action against terrorists, and that must be done.
+ - There are some subjects that can only be tackled in fiction.
+ - There is a big difference between fighting the cold war and fighting radical Islam. The rules have changed and we haven’t.
+ - The cat sat on the mat is not a story. The cat sat on the other cat’s mat is a story.
+
+110 quotes

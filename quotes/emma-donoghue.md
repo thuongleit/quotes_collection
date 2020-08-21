@@ -1,0 +1,83 @@
+ - Scared is what you’re feeling. Brave is what you’re doing.
+ - Everyone’s got a different story.
+ - You cannot predict literary success; the only way you can possibly aim for it is to do your thing and do it well.
+ - I look back one more time. It’s like a crater, a hole where something happened.
+ - It’s painful to consider anything but writing.
+ - When I was a little kid I thought like a little kid, but now I’m five I know everything.
+ - The world is always changing brightness and hotness and soundness, I never know how it’s going to be the next minute.
+ - Ma’s still nodding. “You’re the one who matters, though. Just you.” I shake my head till it’s wobbling because there’s no just me.
+ - People don’t always want to be with people. It gets tiring.
+ - Maybe I’m a human, but I’m a me-and-Ma as well.
+ - I think about Old Nick carrying me into the truck, I’m dizzy like I’m going to fall down. “Scared is what you’re feeling,” says Ma, “but brave is what you’re doing.” “Huh?” “Scaredybrave.” “Scave.” Word sandwiches always make her laugh but I wasn’t being funny.
+ - There’s not a thing wrong with you, you’re right the whole way through.
+ - I guess the feminism in “Room” springs to mind most.
+ - With my first book, I was hired to write a draft of the script. I was so young and less confident. They put me through seven or eight drafts and it was just getting worse and worse, and then the film was never made.
+ - Vitamins are medicine for not getting sick and going back to Heaven yet.
+ - People are locked up in all sorts of ways.
+ - I think sometimes the way to preserve the magic of a book is to throw it away – meaning, not to cling to the way a book does its magic, but to find a cinematic equivalent.
+ - I got in the habit of giving away a book as soon as I’ve finished it because I lived in a housing co-op at Cambridge and had no space to keep books.
+ - I think it would be a shame for any writer to let their publishers in any way corral them into a single genre.
+ - You know who you belong to Jack? – Yeah. Yourself. – He’s wrong, actually, I belong to Ma. p. 261 Room by E Donoghue.
+ - Everybody’s damaged by something.
+ - Before I had kids, I thought you should never lie to a kid. But now I’ve had them, I realize you almost lie to them by definition, because if you’re trying to summarize something for your 1-year-old, you put it in very simple terms. You only gradually complicate the explanation as they get older.
+ - I must say, in the case of “Room,” both the book and the film, I don’t think being a lesbian author held me back at all.
+ - If you have written something that the film people want, like a book, it does give you a way in.
+ - Kissing a witch is a perilous business. Everybody knows it’s ten times as dangerous as letting her touch your hand, or cut your hair, or steal your shoes. What simpler way is there than a kiss to give power a way into your heart?
+ - Writing stories is my way of scratching that itch: my escape from the claustrophobia of individuality. It lets me, at least for a while, live more than one life, walk more than one path. Reading, of course, can do the same.
+ - Change for your own sake, if you must, not for what you imagine another will ask of you.
+ - And as the years flowed by, some villagers told travelers of a beast and a beauty who lived in the castle and could be seen walking on the battlements, and others told of two beauties, and others, of two beasts.
+ - Stories are a different kind of true.
+ - Me and Ma have a deal, we’re going to try everything one time so we know what we like.
+ - I’m named after Jane Austen’s Emma, and I’ve always been able to relate to her. She’s strong, confident but quite tactless.
+ - Sometimes you must shed your skin to save it.
+ - I tend to be so lost in the work that I don’t notice the weather. My partner will come home and say, ‘Beautiful day, wasn’t it?’ and I’ll say, ‘Was it?’ as I won’t have noticed the real world at all.
+ - The great thing about a short story is that it doesn’t have to trawl through someone’s whole life; it can come in glancingly from the side.
+ - I remember manners, that’s when people are scared to make other persons mad.
+ - People move around so much in the world, things get lost.
+ - I think ultimately the film ‘Room’ is a kind of hymn to motherhood and to the everyday heroism of parents who find their smiles in terrible times.
+ - If I was made of cake I’d eat myself before somebody else could.
+ - We used to call it her Cinderella complex, because often when she had agreed to go out in the evening she would be seized by panic and announce that she had nothing to wear.
+ - What writing ROOM taught me was that I know exactly how to be the perfect mother, but I’m not willing to do it for more than ten minutes at a time.
+ - It’s all real in Outside, everything there is, because I saw an airplane in the blue between the clouds. Ma and me can’t go there because we don’t know the secret code, but it’s real all the same. Before I didn’t know to be mad that we can’t open Door, my head was too small to have Outside in it.
+ - I’m finding that success is way more time-consuming than failure ever was.
+ - I was not exploiting any real individual’s story in writing ROOM, of course I was aware that my novel, by commenting on such situations, would run the risk of falling into those traps of voyeurism, sensationalism and sentimentality.
+ - I’ve been in a long and happy relationship for 22 years and it’s never inspired me to write anything. It’s too good – nothing to say. Problems, conflict, that’s what makes for good stories.
+ - I think I know what it’s like to have a family that the outside world sees as peculiar or lacking.
+ - For all that being a parent is normal statistically, it’s not normal psychologically. It produces some of the most extreme emotions you’ll ever have.
+ - You’re meant to have an unhappy childhood to be a writer, but there’s a lot to be said for a very happy one that just lets you get on with it.
+ - Any parent knows how to be the ideal parent.
+ - When I tell her what I’m thinking and she tells me what she’s thinking, our each ideas jumping into the other’s head, like coulouring blue crayon on top of yellow that makes green.
+ - I am clumsy, a late and nervous driver, and despise all sports except a little gentle dancing or yoga.
+ - Once I spent a whole day there, a blade of grass in each hand to anchor me to the warm earth. I watched the sun rise, pass over my head and set. Ladybirds mated on my knuckle; a shrew nibbled a hole in my stocking while I tried not to laugh. Such a day was worth any punishment.
+ - Sometimes when persons say definitely it sounds actually less true.
+ - With a time-based medium like theater or film, you can’t have the audience getting restless in their seats. They’re stuck there on their bums; you have to pay enormous attention to pace and you can’t lose your way.
+ - When people write to me with stories, they are never ones that work for me. There’s something mysterious about which ones catch you.
+ - I’m very keen. Adaptations of other people’s work, too. I got fascinated by the adaptation process, so I think that’d be a really interesting task. I would happily write original screenplays as well. I think it’s become one of my favorite genres.
+ - The way to my heart is through Belgian milk chocolate.
+ - I’m a huge planner, more and more so as the years go by.
+ - For all the books in his possession, he still failed to read the stories written plain as day in the faces of the people around him.
+ - The paradox of publicity is that even as we do it, we know it’s killing off the chance of another reader happening across our book in the ideal state of innocence.
+ - Some writers can produce marvelous plots without planning it out, but I can’t. In particular I need to know the structure of a novel: what’s going to happen in each chapter and each scene.
+ - The sound of the pages turning was the sound of magic. The dry liquid feel of paper under fingertips was what magic felt like.
+ - I’ve always been religiously inclined, but it doesn’t come up in most of my books.
+ - Identity politics are wearisome; you don’t want to go on speaking for any one group as a writer.
+ - When I was four I thought everything in TV was just TV, then I was five and Ma unlied about lots of it being pictures of real and Outside being totally real. Now I’m in Outside but it turns out lots of it isn’t real at all.
+ - Books are the air I breathe, so I don’t notice the seasons.
+ - Writing is nearly always a matter of finding whatever your brain needs to trick it into being creative, and in my case, a tiny little bit of fact just seems to work.
+ - I hate desks; they make me feel like a child doing homework.
+ - I read a lot of social history. If I’m in an art gallery and a picture intrigues me, I immediately write down the title and I google it. I do a lot of googling and looking out for good stories. I can almost smell them sometimes.
+ - Writers should be applauded for their ability to make things up.
+ - There may be certain genres that men dominate, but fiction not so much. The question of prizes is tricky because there are so many prizes.
+ - In the publishing world, most editors are probably women. So I don’t see the publishing world as a male-dominated one, especially within fiction.
+ - A memoir is always the most authentic telling of a situation, but a novel gets to different places.
+ - She leaped into space, high, higher than she’d ever been in her life. She came down with a clean snap, and the crowd scattered like birds from the swing of her feet.
+ - I’m really not one of these procrastinators who cleans the house in order to put off writing, but life gets in the way.
+ - What’s crucial about being an executive producer is that you stay in the loop, information-wise. They have to share all their major decisions with you.
+ - I think there are few films out there that take motherhood seriously.
+ - There are some tales not for telling, whether because they are too long, too precious, too laughable, too painful, too easy to need telling or too hard to explain. After all, after years and travels my secrets are all I have left to chew on in the night.
+ - Nowadays, ‘invisibility’ was supposed to be the big problem, but the way I saw it was, all that mattered was to be visible to yourself.
+ - I’ve certainly seen stats that if you have a woman director or a woman screenwriter, the number of female characters goes way up.
+ - I think I read Susan Brownmiller’s classic book called “Femininity” when I was about 16. So yeah, it’s been part of my mindset since a very early age. To me, what’s crucial is to tell women’s stories but also to tell them in a way that is fearless.
+ - I read three books a week.
+
+81 quotes

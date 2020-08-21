@@ -1,0 +1,34 @@
+ - What we do on some great occasion will probably depend on what we already are; and what we are will be the result of previous years of self-discipline.
+ - Nothing is really lost by a life of sacrifice; everything is lost by failure to obey God’s call.
+ - We cannot think that God frightens us with threatenings which He really does not mean to carry out, without doing Himself obvious dishonour.
+ - The resurrection asserts a truth which is by no means always written legibly for all men on the face of nature. It tells us that the spiritual is higher than the material; that in this universe spirit counts for more than matter.
+ - It is only Jesus Christ who has thrown light on life and immortality through the gospel; and because He has done so, and has enabled us by His atoning death and intercession to make the most of this discovery, His gospel is, for all who will, a power of God unto salvation.
+ - Useful knowledge, practical kindness, and beneficent laws – these are not the Gospel; but, like philosophy, they are, or may be, its handmaids. They may make its task smooth and grateful; they may associate themselves with its victories, or they may prepare its way.
+ - The truth is I suppose that a tour lays in a great stock of thought and spirits for the future; the fatigue and drawbacks of actual travelling are forgotten and a bright residuum remains.
+ - Look to the end; and resolve to make the service of Christ the first object in what remains of life, without indifference to the opinion of your fellow men, but also without fear of it.
+ - But wherever we labour, the rule and the profession of the Apostle must be ours; and whatever be our personal mistakes and failures, God grant that our consciences may never accuse us of being ashamed of the Gospel of Christ.
+ - Augustine of Hippo used to say that, but for God’s grace, he should have been capable of committing any crime; and it is when we feel this sincerely, that we are most likely to be really improving, and best able to give assistance to others without moral loss to ourselves.
+ - Truth has her sterner responsibilities sooner or later in store for those who have known anything about her.
+ - The life of man is made up of action and endurance; the life is fruitful in the ratio in which it is laid out in noble action or in patient perseverance.
+ - Certainly, envy is no monopoly of the poor; it makes itself felt in all sections of society; it haunts the court, the library, the barrack-room, even the sanctuary; it is provoked in some unhappy souls by the near neighbourhood of any superior rank or excellence whatever.
+ - No light privilege is it to have a hand in building up the moral life of these new communities; no common honour surely to help to lay side by side with the foundations of their free political institutions the broad and deep foundations of the Church of God.
+ - The Church of the Apostles was a Church of the poor; of silver and gold it had none.
+ - If a religious principle is worth anything, it applies to a million of human beings as truly as to one; and the difficulty of insisting on its wider application does not furnish any proof that it ought not to be so applied.
+ - The real difficulty with thousands in the present day is not that Christianity has been found wanting, but that it has never been seriously tried.
+ - No Legislature can really destroy a religious conviction, except by exterminating its holders. It is historically too late to do that, and we shall live to see the drowned Egyptians on the seashore even yet.
+ - How do I know that there is a God? In the same way that I know, on looking at the sand, when a man or beast has crossed the desert – by His footprints in the world around me.
+ - Prayer is the act by which man, detaching himself from the embarrassments of sense and nature, ascends to the true level of his destiny.
+ - Practically speaking, there are for each one of us two supreme realities – God and the soul. The heavens and the earth will pass away. But the soul will still remain, face to face with God.
+ - Liberalism itself, is, on all matters connected with Church and Education, only a kind of corporate and “respectable” ungodliness.
+ - As all true virtue, wherever found, is a ray of the life of the All-Holy; so all solid knowledge, all really accurate thought, descends from the Eternal Reason, and ought, when we apprehend it, to guide us upwards to Him.
+ - Again and again the Church of Christ has been all but engulfed, as men might have deemed, in the billows; again and again the storm has been calmed by the Master, Who had seemed for awhile to sleep.
+ - The history of the Church of Christ from the days of the Apostles has been a history of spiritual movements.
+ - If man looks within himself he must perceive two things: a law of right, and that which it condemns.
+ - A few years hence and he will be beneath the sod; but those cliffs will stand, as now, facing the ocean, incessantly lashed by its waves, yet unshaken, immovable; and other eyes will gaze on them for their brief day of life, and then they, too, will close.
+ - The great laws of the moral world do not vary, however different, under different dispensations, may be the authoritative enunciation of truth, or the means of propagating and defending it.
+ - Let us think today of the prospect of sharing in a sublime and blessed existence such as is portrayed in the text of the Apocalypse before us, and let us ask ourselves whether it should or should not make any difference in our present state of being.
+ - We may rightly shrink from saying that any given individual is certainly so unfaithful to light and grace as to incur the eternal loss of God, we do know that many are so. God knows who they are.
+ - As a man passes into middle life, or beyond it, autumn, it has been said, whispers more to his soul than any other season of the natural year. It is not difficult to see why this should be.
+ - A deliberate rejection of duty prescribed by already recognized truth cannot but destroy, or at least impair most seriously the clearness of our mental vision.
+
+32 quotes

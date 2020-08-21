@@ -1,0 +1,84 @@
+ - My aim in life is not to judge.
+ - People’s opinions don’t interfere with me.
+ - Life is given to you like a flat piece of land and everything has to be done. I hope that when I’m finished, my piece of land will be a beautiful garden.
+ - As long as you don’t make waves, ripples, life seems easy. But that’s condemning yourself to impotence and death before you are dead.
+ - One thing you have to give up is attaching importance to what people see in you.
+ - The cliche is that life is a mountain. You go up, reach the top and then go down.
+ - I have no doubt who I am.
+ - To give the best of yourself, to be ready to please is OK for a while. But people expect certain things from you, and you have to go beyond that and say, no.
+ - I can’t belong to groups. I’ve tried. I behave normally, but people don’t look at me normally.
+ - It’s a fantastic thing to take the risk of getting so close to your desire, expressing your obsession so absolutely.
+ - Nostalgia is when you want things to stay the same. I know so many people staying in the same place.
+ - When you live under the power of terror and segregation, you can’t ever start a work of art.
+ - For me it’s not possible to forget, and I don’t understand people who, when the love is ended, can bury the other person in hatred or oblivion. For me, a man I have loved becomes a kind of brother.
+ - It’s just as idiotic to say there is no life after death as it is to say there is one.
+ - You don’t have to be a wreck. You don’t have to be sick. One’s aim in life should be to die in good health. Just like a candle that burns out.
+ - In making dinner for a friend, don’t forget the love.
+ - My analyst refused to hear my dreams. This was years ago.
+ - Why should we stop living because some people try to kill what is left of energy in ourselves?
+ - Acting for me was the gospel, the love of the spoken word.
+ - What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don’t think my mother had that opportunity to change.
+ - All those vitamins aren’t to keep death at bay, they’re to keep deterioration at bay.
+ - If you’re extremely, painfully frightened of age, it shows.
+ - You should not separate your life from what you do.
+ - The life you had is nothing. It is the life you have that is important.
+ - I don’t like going where I’ve already been. Life is a myriad of territories to discover. I don’t want to waste time with what I already know.
+ - Every night I go over what I did in the day, in ethical or moral terms. Have I treated people properly? Did I tell the truth?
+ - Aging gracefully is supposed to mean trying not to hide time passing and just looking a wreck. Don’t worry girls, look like a wreck, that’s the way it goes.
+ - I think more and more people want to live alone. You can be a couple without being in each other’s pockets. I don’t see why you have to share the same bathroom.
+ - It’s like climbing a staircase. I’m on the top of the staircase, I look behind me and I see the steps. That’s where I was.
+ - I don’t feel guilt. Whatever I wish to do, I do.
+ - I work more now because at this time of my life I am not disturbed from my aim by outside pressures such as family, passionate relationships, dealing with ‘who am I?’ – those complications when one is searching for one’s self.
+ - Life is an accomplishment and each moment has a meaning and you must use it.
+ - To go out with the setting sun on an empty beach is to truly embrace your solitude.
+ - When Tony was madly in love with me, his relationship with Vanessa Redgrave was ending.
+ - To me age is a number, just a number. Who cares?
+ - Life has to flow. But if you start worrying about it, you block time.
+ - If you want to live your life through to the end, you have to live dangerously.
+ - To give and receive love, you have to be in touch with pain, you have to be capable of provoking it and feeling it.
+ - I have always had the urge to open forbidden doors: with a curiosity and an obstinacy that verge on masochism.
+ - Death is an absolute mystery. We are all vulnerable to it, it’s what makes life interesting and suspenseful.
+ - Many people associate stage fright with a fear of looking ridiculous, making a bad impression. For me, it’s like a kind of fever.
+ - Although for some people cinema means something superficial and glamorous, it is something else. I think it is the mirror of the world.
+ - I can be intimidating, but not within the confines of a film shoot.
+ - In these days people take up with each other and drop each other too easily. Pleasure is practiced like a sport, and the easy game of love leads to the dissolution of the feeling of love.
+ - I’ve never worried about age.
+ - I need, absolutely, to be alone.
+ - Success is like a liberation or the first phrase of a love story.
+ - You suffer when you give birth, it doesn’t matter, it’s nature. They tell you, oh, those hormone pills, they’re terrible, you’ll get cancer. But when it comes to Viagra for men, they don’t speak about cancer.
+ - It’s dangerous to assert oneself.
+ - How can you say something’s important if you don’t first withdraw and feel how rich you’ve become? That way you can become really generous. Otherwise, what do you give?
+ - I gradually work myself into a frenzy as the shoot approaches, while we’re choosing the costumes or working with the make-up artist. I’m not so much interested in my character as the film itself.
+ - I know there were things emanating from me. I was not aware of what attracted all these directors to me.
+ - Sometimes the directors were afraid of what they brought out of me.
+ - Women will not talk about football unless one of them is in love with a football player, and then suddenly you discover that they know everything that is to be known about it.
+ - If you get trapped in the idea that what is most important is what image of yourself you’re giving to the world, you’re on a dangerous path.
+ - I don’t think success is harmful, as so many people say. Rather, I believe it indispensable to talent, if for nothing else than to increase the talent.
+ - During rehearsals I am confronted by things very mysterious. I have terrific fights with inner demons, and it’s more painful than it ever was.
+ - Some children I have met are very beautiful. Some children are imbeciles, vulgar, terrible.
+ - I am subject to very powerful lows. When you have highs, you have terrible lows. When you pinpoint that you are responsible for everything that happens to you, it is very frightening.
+ - I’m always amazed when young women who are having babies want their husbands to watch the babies come out. I would never allow anything like that.
+ - Some people are addicts. If they don’t act, they don’t exist.
+ - As soon as an actress is past 40, they call her a grande dame. As long as I’m here in good health, I’m stable.
+ - Making films is no longer a way of acting, it is a way of life.
+ - I am a woman with absolutely no sense of nostalgia.
+ - Age protects love not, but love protects up to a certain degree before age.
+ - All fiction becomes autobiographical when the author has true talent.
+ - You’re responsible for yourself as an actress, you know that your personal growth goes through that alchemy, and you give as much importance to your life as you do to your acting.
+ - Knowing how to die is knowing how to live. What is death anyway? It’s the outcome of life.
+ - As long as one asserts oneself and is true to oneself.
+ - Usually when a woman is 60, it’s over.
+ - My face has changed with the years and has enough history in it to give audiences something to work with.
+ - Being an actress is to be in tune with the fantasies of a man. What woman never dreamt of that?
+ - Some gods may cross your path, but why should gods be beautiful? They could also be frightening.
+ - Characters who are on screen from start to finish are not necessarily the ones who have the greatest impact.
+ - We have so many words for states of mind, and so few words for the states of the body.
+ - When I’m acting, I’m two beings. There’s the one monitoring the distance between myself and the camera, making sure I hit my marks, and there is the one driven by this inner fire, this delicious fear.
+ - To give a character life in a short space of time, it helps if you arrive on screen with a past.
+ - As a matter of principle, I always come to a film like a blank slate, I don’t learn my lines in advance. With this approach, I feel clean.
+ - I’ve been related to everything. Even the production; I knew how much it cost, I knew where the money went. It didn’t last long, because hierarchy came back again.
+ - I don’t like the idea of separating life and work. That notion seems dated and a bit alien to me.
+ - It’s this subconscious part of me that knows just how far to go, and suddenly, everything bursts into flames.
+ - Acting isn’t a profession, it’s a way of living...
+
+82 quotes

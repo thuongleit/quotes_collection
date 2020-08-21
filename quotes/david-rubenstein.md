@@ -1,0 +1,25 @@
+ - Persist – don’t take no for an answer. If you’re happy to sit at your desk and not take any risk, you’ll be sitting at your desk for the next 20 years.
+ - The world is a complicated place, and there’s a lot of division between people. The performing arts tend to unify people in a way nothing else does.
+ - I really hope that the philanthropy movement is seen not just as wealthy people giving money away but wealthy people giving away their time, their energy and their ideas.
+ - I’m blessed by the fact I only need five hours of sleep on a daily basis. I do tend to regard Saturday and Sunday as work days.
+ - People used to think that private equity was basically just a compensation scheme, but it is much more about making companies more efficient.
+ - It’s clear to me when you do private equity well, you’re making companies more efficient and helping them grow and become more profitable. That success means our investors – such as public pension funds – benefit, which contributes to the economic wealth of society.
+ - Sometimes the best decisions in life are on the spur of the moment. So I generally try to do what I think is right. And sometimes I make mistakes.
+ - As the baby boomers like me are retiring and getting ready to retire, they will spend whatever it takes – and theyre the wealthiest generation in our country – to make themselves live an enjoyable life in their retirement years.
+ - I think it’s a little unfair for people to say you’re not paying your fair share of taxes. I’m paying what I’m supposed to pay. Change the law, and I’ll pay what I’m supposed to pay.
+ - I regard food as fuel. I am not a brunch person.
+ - My work life is intense. But I love what I do.
+ - You can only do three things with your money. You can spend it. You can invest it. Or you can give it away. And if you invest it, you’re really just getting more money to give away or buy something. How many things can you buy? So I don’t really think there’s a lot of choices.
+ - Anybody who gives away money is mostly looking at things where they think they can make a difference. I’m trying to help people who helped me, educational institutions that helped me with scholarships, or organizations that were very useful to me in growing up.
+ - I don’t really try to get involved politically by giving money to politicians or by saying I’m a Democrat or Republican. Right now, I just view myself as an American.
+ - My father worked in a post office and never made probably more than $8,000 a year as an employee of the post office, so when people can rise up from very modest circumstances and do well economically, I think that’s a good thing about America, and we should encourage that kind of activity.
+ - I give away about 50 percent of my income, so my, you know, desire to give back to the country is pretty strong and I intend to give away a lot more. I’ve signed the giving pledge with Warren Buffett and Bill Gates, and I intend to give away the bulk of my money.
+ - Moneymaking was never anything to me. I was happy never making money; I just was happy doing things I liked. But I fell into the money thing. I now don’t feel guilty about it, but I am determined to give away the bulk of it and enjoy doing it.
+ - When I worked in the White House for President Carter, we tried to do comprehensive tax reform and we made some progress, and other presidents have as well.
+ - I am involved in a lot of nonprofits. And when I reached the ripe old age of 60, I wanted to provide leadership to some I had been involved in.
+ - Do not always say no. If satisfied with the seat in place and not reckless, the next 20 years you will still sit there alone.
+ - For me, few things are more compelling than watching a great opera.
+ - I’m on a lot of nonprofit boards, but if I didn’t enjoy it I wouldn’t do it. I haven’t yet done anything that’s transformational in philanthropy. But I hope at some point to target two or three causes or organizations and really make transformational gifts.
+ - Obama had reached out to the business community, they just haven’t liked all of his decisions and some of his rhetoric. But generally, I think the administration is quite open and accessible.
+
+23 quotes

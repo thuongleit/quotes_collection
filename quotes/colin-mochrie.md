@@ -1,0 +1,44 @@
+ - NASA sends probe to Uranus, people everywhere giggle.
+ - Wives live longer than husbands because they’re not married to women.
+ - It all started with a badly timed bald joke!
+ - You don’t sweat much for a fat girl!
+ - I’m handsome, no ands, buts or ifs.
+ - After a disappointing summer, Humpty Dumpty has a great fall.
+ - The Hills are alive with the sound of CRAP!
+ - For as long as I can remember I’ve had memories.
+ - Hi, well soon return you to the dyslexic production of Bitty Bitty Chang Chang...
+ - We all have a dinosaur deep within us just trying to get out.
+ - Rudolf the Red-Nosed Reindeer, dead at 53. Over Barcelona today, the famed reindeer was hit by a flock of seagulls and a 747. Eyewitnesses report, that the reindeer in Spain was hit mainly by the plane.
+ - This just in: Beverly Hills 90210, Cleveland Browns 3.
+ - We’ll be back to our nature documentary, ‘Baggy the Anorexic Elephant’ in just a second.
+ - Give me liberty! Or a bran muffin!
+ - When you kill someone by chopping off their head, rolling ’em up in a carpet and burning it, you’d better make sure they’re dead!
+ - I believe it was Shakespeare who said, ‘All the world’s a stage, and you are CRAP!’
+ - Ladies and gentlemen of the jury. It’s not like the sheep was underage.
+ - Our top story tonight: Famous TV dolphin flipper was arrested today on prostitution ring charges. He allegedly was seen transporting two 16 year olds across state line for immoral porpoises.
+ - What kind of FBI agent are you?
+ - My mother on her death bed told me, ‘Where the hell did that kangaroo come from!?’ – it just popped out of nowhere and punched her in the head and caused a cerebral hemorrhage, so I thought I’d move to a country where there were no kangaroos!
+ - The people who influenced me most were the people who said I would never make it. They gave me a thirst for revenge.
+ - I am such a pessimist that every project has surpassed what I envisioned.
+ - There’s many times this year I’ve sat back and thought, I’m making a living from making things up. It’s the only skill I have so I’ve been really lucky.
+ - What if hamsters fought in the American Revolution?
+ - Nine out of ten Americans believe that out of ten people, one person will always disagree with the other nine!
+ - Please call your second witness, and then call your mother, she worries.
+ - Every song a hit, every hit a smack!
+ - I was a bookworm. Every week I’d go to the library and get seven books. Remember libraries? I wonder if people still go. And I learned about everything from the library. I came from a Scottish family. Old school.
+ - If Sting retires, would he have to change his name to Stung?
+ - You know, if I don’t make it when I go out there in that weather balloon into that thunder storm. I want, you to take your ear and give it to my wife.
+ - I have so many evil plans, I’m just trying to find the one which would be best right now!
+ - Hey, come on, I’ve seen younger faces on money. Money.
+ - Let me play a man in a scene.
+ - Well, it seems all the fish in the rivers are dying. Could this be an act of cod?
+ - I’m a traveling practical joker. That’s my line of work.
+ - Onstage I do all the stuff I’d never do in real life, like lashing out at people who make me mad or freaking out in a long bank lineup. Performing allows me to fulfill all the sicko fantasies I’ve ever had.
+ - Why are there so many trees in the jungle?
+ - My most important professional accomplishment to date is the ability to keep working with absolutely no skills whatsoever.
+ - And if that isnt the truth, it would be a lie.
+ - But you know, we have more hits than you can possibly think about. One of my personal favorite artists is the wonderful artist named Cher. And although I love much of her late stuff, her early stuff was the stuff that I really, really loved.
+ - I think the challenge is going out in front of a paying audience with absolutely nothing and trying to entertain them for two hours. Thankfully, I only think about that right before we go on, and then once we’re out there, everything’s fine.
+ - To be a dramatic writer takes hard work, talent, and discipline. And that’s why I just make up crap.
+
+42 quotes

@@ -1,0 +1,25 @@
+ - The truth is, you don’t need the Lord to do anything for you. He’s already done His part. You’ve already got it, whatever “it” is.
+ - Prayer is not trying to twist God’s arm to make Him do something. Prayer is receiving by faith what He has already done!
+ - If you never bump into the devil, it’s because you’re going in the same direction.
+ - Life is not a dress rehearsal – wake up every day excited to live out your purpose.
+ - The devil isn’t a true lion; he just walks around roaring like one trying to intimidate the Body of Christ. But the truth is, he’s had his teeth pulled, and all he can do now is gum you.
+ - True joy is independence of circumstances – Choose to rejoice!
+ - If you want to give the devil a message, write it on the bottom of your shoes.
+ - Most people do not let the Word of God get in the way of what they believe.
+ - God’s anointing is not based on your performance, but if you don’t open the Word, you’re stupid, because that’s where the words of life are.
+ - As believers, you don’t need to pray for a new heart, you need to pray for a new head.
+ - God uses us in spite of who we are, not because of it.
+ - Blessings are better than miracles. If you live your life from one miracle to the next, you will live from crisis to crisis. It’s better to be blessed with good health than to always need divine healing. God’s will is for us to walk in blessing.
+ - Mercy is not giving someone what they deserve. Grace is giving someone what they don’t deserve. Extend God’s wisdom in your relationships.
+ - If God can get money through you, He’ll get it to you!
+ - We have been deceived into believing prayer is all about persuading God to release His power. We no longer need to beg or plead; we need to exercise the authority He has given us and receive His blessings.
+ - If you’d just center your thoughts and affections upon the Lord, you’d be better off accidentally than you’ve ever been on purpose!
+ - Leaders flourish in times of crisis.
+ - It is really appropriate to call Jesus the word because God spoke him into existence through dozens probably a hundred different people over a four thousand year period of time. The Holy Spirit took these words and impregnated Mary.
+ - Being normal is grossly over-rated.
+ - Do you think God would heal an adulterer? Well I believe if God would save an adulterer, then He would heal one.
+ - And when and Eve submitted unto Satan they are the ones that empowered Satan. In a sense Man made Satan. God created Lucifer but Man made Satan.
+ - If criticism could kill you, I’d be dead.
+ - Grace doesn’t cause people to live in sin; it frees them from the paralyzing effects of guilt and condemnation so that they can live holier accidentally now than they ever did on purpose before.
+
+23 quotes

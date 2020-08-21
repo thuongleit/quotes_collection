@@ -1,0 +1,37 @@
+ - There’s moments where I want to break down and cry, but not give up.
+ - When you see someone you love with somebody else, your heart kind of falls to the ground.
+ - Love is an energy, love is a mystery, love is meant to be true. Love is a part of me, love is the heart of me, love is the best thing we do.
+ - Some promises are better left unsaid.
+ - I don’t get bothered by people saying what they say. I’m a happy person and I’m happy with my looks. I’m not an insecure person. I believe if somebody chooses plastic surgery it should be for themselves, not for anyone else.
+ - I can only be myself, I’m sorry that’s hell for you.
+ - I have amazing people around me. I couldn’t be in a better place. I’m grateful for my life and where I’m at. I never thought I could be in the position that I’m in.
+ - I’m going out to let my real talent show, not to just stand there and dance around. Personally, I’d never lip-synch. It’s just not me.
+ - I like to do chill things on dates. I think it would be fun to go to the zoo. I know it’s really weird and random, but I love animals. It’d be like a day of doing silly things, while enjoying nature.
+ - Everyone is made differently and that’s what makes us beautiful and unique. I want girls to look in the mirror and feel confident.
+ - I’ve never looked at myself and thought ‘Oh yeah, I’m sexy.’ I’ve felt sexy and confident, but I don’t look at myself that way.
+ - No matter what people say, your fans are the ones that come to watch the movie or come to your shows and that’s the most important thing.
+ - As a teenager and even still now being 21, it’s always love questions – it’s always so confusing.
+ - I shake my booty all the time! It’s the best workout!
+ - Does the weight of consequence drag you down until it pulls you under?
+ - There’s gonna be a time when I’m way curvier, and that’ll be sexy too. What defines sexy is not someone’s weight. Personally I like curves. I wanna look good for me. I wanna feel good.
+ - Being a mom’s so empowering and incredible. I’m one of those people who believes that life brings things to you at a certain time for a certain reason, and if you just go with it, that’s where the best moments come from.
+ - I’ve always been a rocker. Like ever since I was really young. I had a crush on the Green Day guys. That’s always been what I was like and been my interest.
+ - I think you get noticed a lot more as a brunette, but I don’t know. People approach me, I think, but maybe it’s because of the reality show.
+ - I took some me time. I think that’s a really important thing to do for yourself, especially in this business. And now I feel like I’m in a really good, positive place in my life.
+ - I believe if somebody chooses plastic surgery it should be for themselves, not for anyone else.
+ - Sunday is my favorite day of the week! Hangin with the lil man and dancing to yo gabba gabba thanks andy sandburg for the sweet moves!
+ - Every song is something that I’ve been through or an emotion I’ve felt – like falling in love or heartbreak.
+ - Once when I was 16 I had my car taken away from me for being past curfew. Oh, and I said a bad word once, and I actually did get my mouth washed out with soap.
+ - I think that’s the thing. I don’t want to date a celebrity. I want to date a normal person. So I’m looking for a normal person.
+ - I feel very confident with the way I look. But I felt just as confident the way I looked before. I’ve always been confident with who I am.
+ - Everybody’s looking for a good time. Don’t you know a good time doesn’t hurt?
+ - I have the greatest husband. The baby is my main focus right now. We’re both so excited. I mean, this is definitely the happiest moment in my life.
+ - If I have pizza or Taco Bell one day, I’ll have home-cooked meals the next. I try to listen to what my body craves.
+ - I never worry about looking cool in front of a guy. I have never been a self-conscious girl. Goofing around is part of being comfortable with yourself. I’ve always been good at meeting new people. I just say, ‘Hi, how you doing?’ and soon we’ll end up laughing about something.
+ - I’m an artist, and I go in the studio and make my music. And then I’ll give it to my dad and he does what he does. And he does, you know, the press, and figuring out shows and whatnot. When it comes to my artistic freedom, he doesn’t, like, step on my toes or anything.
+ - Maybe I was just lucky, but I had the best pregnancy, and I loved giving birth. It was just the most amazing thing, so surreal but so real.
+ - My weight and my pant size are the absolute last thing I’m concerned about. People who talk and judge pregnant women’s weight need to get a life!
+ - Being pregnant was the healthiest I’ve ever been in my life. Except for the cupcakes.
+ - I have those songs as well. It depends on what I’m going through in my life but I’m a huge fan of Bjork. Sometimes I get so emotional because she’s so amazing.
+
+35 quotes

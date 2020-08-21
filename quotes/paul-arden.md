@@ -1,0 +1,40 @@
+ - It’s not how good you are it’s how good you want to be.
+ - Do not seek praise. Seek criticism.
+ - You will become whoever you want to be.
+ - If you always make the right decision, the safe decision, the one most people make, you will be the same as everyone else.
+ - How you perceive yourself is how others will see you.
+ - Your vision of where or who you want to be is the greatest asset you have. Without having a goal it’s difficult to score.
+ - It’s better to regret what you have done than what you haven’t.
+ - Without having a goal it’s difficult to score.
+ - The more strikingly visual your presentation is, the more people will remember it. And more importantly, they will remember you.
+ - Nearly all rich and powerful people are not notably talented, educated, charming or good-looking. They become rich and powerful by wanting to be rich and powerful.
+ - If you can’t solve a problem, it’s because you’re playing by the rules.
+ - The world is what YOU think of it, so think of it DIFFERENTLY and your life will change.
+ - Great people have great egos; maybe that’s what makes them great.
+ - Don’t look for the next opportunity, the one you have in hand is the opportunity.
+ - Don’t give a speech. Put on a show.
+ - Instead of waiting for perfection, run with what you’ve got, and fix it as you go.
+ - When it can’t be done, do it. If you don’t do it, it doesn’t exist.
+ - Don’t be afraid of silly ideas.
+ - Most people are reasonable. That’s why they only do reasonably well.
+ - Have you noticed that the cleverest people at school are often not the ones who succeed in life?
+ - The perosn who doesn’t make mistakes is unlikely to make anything.
+ - Do not covet your ideas.
+ - Life’s all about ‘me’ anyway.
+ - Be your own worst critic. When things go wrong it’s tempting to shift the blame. Don’t. Accept responsibility. People will appreciate it, and you will find out what you’re capable of.
+ - Everybody wants to be good, but not many are prepared to make the sacrifices it takes to be great. To many people, being nice in order to be liked is more important. There’s equal merit in that, but you must not confuse being good with being liked.
+ - Everybody wants to be good, but not many are prepared to make the sacrifices it takes to be great.
+ - Even a bad idea executed is better than a good idea undone.
+ - Be unfashionable. Take risks.
+ - The problem with hoarding is you end up living off your reserves. Eventually you will become stale. If you give away everything you have, you are left with nothing. This forces you to look, to be aware, to replenish. Somehow the more you give away the more comes back to you.
+ - Start taking bad decisions and it will take you to a place where others only dream of being.
+ - Even when we want to be timid and play it safe, we should pause for a moment to imagine what we might be missing.
+ - I watch TV more than I used to, and the commercials don’t impress me. The standard of execution is very high, but the standard of ideas is appalling.
+ - Everything we do we choose. So what is there to regret? You are the person you chose to be.
+ - There are rules in advertising, and those rules are self-imposed by the client companies because they don’t want their products to be seen as dishonest.
+ - Religion is a light bulb, created by man to help him to see in the dark.
+ - Risks are a measure of people. People who won’t take them are trying to preserve what they have. People who do take them often end up having more.
+ - Do not put cleverness in front of the communication.
+ - It’s never the next brief, it’s ALWAYS THIS brief .
+
+38 quotes

@@ -1,0 +1,21 @@
+ - You have to remember that the hard days are what make you stronger. The bad days make you realize what a good day is. If you never had any bad days, you would never have that sense of accomplishment!
+ - You have to give 110% all the time. 100% isn’t good enough anymore.
+ - Gymnastics is my whole life, and I dream of going to the Olympics and being a world champ.
+ - I really like the retro look. My regular clothing, I like to always keep it classy and I like to kind of be more dressed up more of the time. I’m not really someone you see in sweatpants a lot.
+ - Tumbling has always been my favorite.
+ - My school friends are really understanding and still want to hang out with me. Ever since I was in sixth grade, I was at the gym every day to work out while my friends were getting their nails done or going to the mall. I used to feel left out, but I don’t anymore.
+ - I’m focused now, definitely. I absolutely need to show everyone that I’m powerful and strong and can be graceful and artistic, too.
+ - I was two years old when my mom put me in mommy and me classes. I always had a lot of energy so it was the perfect fit!
+ - When I first turned elite in gymnastics, when I was 14, that’s when I really became more inspired than ever. I just always kept that in the back of my mind, and always thought about making the 2012 team.
+ - I was always really inspired by watching the older girls competing, just seeing other Olympians do great things, and I just really wanted to be a part of that whole experience. And to be able to represent USA was always a goal of mine.
+ - I was so happy to go to prom so I could have a mental break because I’ve been working so hard. It felt so good to feel normal for once, and then the next day, I was in the gym again.
+ - I feel like I’m really blessed and lucky that I have a very good social life outside of the gym, and I have a really amazing family. My parents are so supportive. I have a younger brother and two younger sisters, and they’re really awesome. So I feel like I get the best of both worlds.
+ - I’ve never been cocky. Even right now I don’t like to talk about the Olympics.
+ - The majority of the things that I do, I’m actually afraid to do, but you just have to have a positive attitude and block out any fears that you have.
+ - There’s nothing better than going out there and seeing USA on your leotard.
+ - I think imperfection is beauty. Instead of being insecure about my muscles, I’ve learned to love them. I don’t even think of it as a flaw anymore because it’s made me into the athlete that I am.
+ - When I’m older, I want to have my own workout clothes line, like leggings and cute jackets in bright and fun colors.
+ - I like Princess Kate. I think her style is really great. She’s really, really classy and always really sophisticated.
+ - If I had tried the Olympics any younger, I wouldn’t have been as prepared as I am right now. But there are definitely a ton of juniors out there, all around the world and in the USA, that if there was no age limit, they could definitely make the Olympic team.
+
+19 quotes

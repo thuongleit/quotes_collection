@@ -1,0 +1,30 @@
+ - When I set a goal, I work hard to achieve it.
+ - I’m strong, I’m tough, I still wear my eyeliner.
+ - I still believe I’m the best player. That’s what keeps me going.
+ - Manu Ginobili is just a baller dude.
+ - To feel the presence of the Lord is an amazing thing.
+ - My success has surpassed my childhood dreams.
+ - I’ve grown so much since 1996. I think that was the turning point of when I started to go to church every Sunday and not just because you’re supposed to. But because you enjoy going and listening to the Word and being excited about it.
+ - For me, being tall was very positive because I thought my mom was the most beautiful person ever.
+ - Boys have a tendency to jump around a lot more than girls. Boys have that desire to want to dunk way more than girls do. It just never seemed like something we could truly fathom and do.
+ - Well, the first quality of being a good leader is you have to be able to follow. See, a good leader cant just be the leader all the time, I have to be able to follow.
+ - I’m probably taller than 90% of the men I meet.
+ - Most people compliment me on maintaining my femininity while I’m on the court. People like the fact that I model. My fans or little girls always say they want to play sports, but also want to be a model like me and I think that’s great.
+ - Right now I’m 185, which is really good for me yet very hard for me to maintain. My weight seems high for the average woman, but I’ve got big bones and I’m maintaining muscle.
+ - I played on an all-boys team in the 8th grade, but they wouldnt throw me the ball even though I was on their team. One day I stole the ball from my own teammate and I made a basket. From that point on, everyone yelled Give the ball to the girl! I was the only girl on the whole league!
+ - I have ‘the first’ attached to my name in a whole lot of different aspects when it comes to the sport of basketball.
+ - Dunking is something guys care more about than girls, There’s something about jumping that seems to fascinate guys. Girls are more, like, ‘As long as the ball goes in, who cares how you got it there?’
+ - The one thing I learned about myself going back and watching tapes of all the losses that we’ve had is that I’m physically capable of doing this and dominating the game, but the mental part was not there. I don’t know if it comes with age, but I had to learn to be mentally tough.
+ - I encourage girls to play sports and play hard.
+ - I don’t think I would have been able to stick with it and been proud of who I am and be feminine out on the court. I think I would have folded to the peer pressure if I didn’t have my mom to encourage me to be me and be proud of how tall I am.
+ - I’m a better and more educated person because of basketball.
+ - When I watch kids play basketball, they don’t know how to think the game. They know what it should look like, but they don’t know why.
+ - There’s a lot of women in the WNBA. There’s a lot of women who could be here. To be voted by the fans says a lot – that people are aware of what’s going on. I’m really thankful. I think they just really appreciate my talent so I’m definitely grateful.
+ - If, by the way I play, I can be a role model or encourage someone else, that would be great.
+ - I tend not to get too emotional about things.
+ - I like playing against guys because of their athleticism and understanding of the game.
+ - I’ve never proclaimed myself to be a shooter. But I am definitely a scorer.
+ - I don’t really consider myself a celebrity. I consider myself more of a role model.
+ - Everyone talks about age, but it’s not about age. It’s about work ethic. Winning never gets old.
+
+28 quotes

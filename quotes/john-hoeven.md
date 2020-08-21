@@ -1,0 +1,24 @@
+ - Caring for our seniors is perhaps the greatest responsibility we have. Those who walked before us have given so much and made possible the life we all enjoy.
+ - Nowadays, business is all about productivity – and our folks produce.
+ - On Earth Day, we celebrate all the gifts the world and nature make available to us. We recognize our complete dependence on its bounty. And we acknowledge the need for good stewardship to preserve its fruits for future generations.
+ - We can reach our potential, but to do so, we must reach within ourselves. We must summon the strength, the will, and the faith to move forward – to be bold – to invest in our future.
+ - From the world wars of Europe to the jungles of the Far East, from the deserts of the Middle East to the African continent, and even here in our own hemisphere, our veterans have made the world a better place and America the great country we are today.
+ - It’s a combination of targeting higher paying jobs in these growth areas and fostering closer cooperation with higher education; a rising tide that lifts all boats.
+ - The key to revenue growth is tax reform that closes loopholes and that is pro-growth. Then with a growing economy, that’s where your revenue growth comes in, not from higher taxes.
+ - The fact is, America needs energy and new energy infrastructure, and the Keystone XL pipeline will help us achieve that with good stewardship.
+ - Pipelines are by far the safest way to transport petroleum. They are safer than tankers, safer than trucks, safer than rail.
+ - Delayed energy projects and regulatory hurdles to domestic oil production not only cost the United States economy billions of dollars and millions of jobs, but they also stand in the way of an elusive goal: true American energy security.
+ - The reality is that nearly 80 percent of the world’s purchasing power lies outside the United States, and if we don’t tap those markets, others will.
+ - If you take a look at Medicare, there are things we could do, not just tort reform but truly reform the whole reimbursement system which will help in terms of reducing costs and creating the right kind of incentives for savings.
+ - One of the key things that we did at Bank of North Dakota that I worked to try to do with our state economic development is make sure we are customer-service oriented.
+ - If we’re going to create the best business climate to create higher paying jobs and retain our young people, we’re going to have to build a workforce prepared for the opportunities of the future.
+ - You don’t get an economy growing by raising taxes.
+ - The Keystone XL project has built strong safety measures into its design with the newest technology. Additionally, 80 percent of the new Canadian oil sands are being developed ‘in situ,’ meaning, it has a similar carbon footprint and emissions as conventional oil wells.
+ - Education is critical not only to each one of us individually, but also to build the economic vitality of our state.
+ - Businesses must invest in products and people in order to create new wealth.
+ - Democrats with a good understanding of the need for strong energy policy in our country, especially in these difficult economic times, recognized the importance of the Keystone XL pipeline.
+ - Our Keystone legislation received strong bipartisan support in the Senate. Although it didn’t receive the 60 votes necessary for passage, 56 senators – a majority – voted in favor of the bill. Despite President Obama’s actively lobbying against the bill, we still won the support of 11 Democrats.
+ - President Roosevelt’s leadership put the world on notice that the United States of America – with the freest, most dynamic economy the world had ever seen – was open for business.
+ - Our single greatest challenge is the ability to move power to markets outside North Dakota.
+
+22 quotes

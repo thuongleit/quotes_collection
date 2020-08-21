@@ -1,0 +1,50 @@
+ - Being sexy is something inside, and not everybody has it.
+ - Most people can be made to look beautiful – someone can do your hair nice and put some make-up on – but being sexy is something inside and not everybody has it. I don’t think I ever really had it, a lot of it is to do with confidence.
+ - I’ve never dreamed of becoming a model. As a child I was bullied and insulted as ugly.
+ - People found me ugly and weird looking. All those years of that whole insecurity thing just makes you feel horrible then really slowly you start to think if they can make me look nice in the picture then it’s not that bad.
+ - What should all men know about women? That we are always right and you should just agree.
+ - Men don’t like me. I haven’t been on a date for six months. I’ve just started a club with a girlfriend called the We Hate Men But We Can’t Be Gay Club.
+ - In school I was always the funny-looking, tall, skinny kid that got made fun of because of my weird teeth.
+ - I find it quite hard for me to pull off. It’s so nice to have a tan and look healthy and glowing. I’d quite like to look like Karen Elson – she looks good pale. I feel like I look a bit washed out.
+ - Marriage takes work – it doesn’t just happen.
+ - I’m terrible in high heels. I’m so bad.
+ - It’s not like I’m sitting at home coming up with some secret beauty plan. I try to eat fruit and be healthy. If I’m feeling a bit sickly, I usually get a good spray tan.
+ - People were like, “Oh maybe we can change your teeth” and I thought that was going a bit far. You have to be really strong in this job and realise that you are your own boss and if someone tells you to do something, you don’t have to do it. I really like my teeth.
+ - I think of dieting, then I eat pizza.
+ - When I was the first time for a job in New York, I saw Natalia Vodianova on an oversized billboard in Times Square on a Calvin Klein billboard.
+ - It’s quite nice to have a bit more color on the lips during wintertime. And it’s festive, isn’t it?
+ - I work out sort of moderately.
+ - I think people like it when you have a bit of personality.
+ - I listen to all of my Dutch happy-hardcore songs from my raving techno days when I was about 14. It’s the most horrible music ever. I think it’s some kind of muscle memory that brings me back to when I was 14. It makes me bounce around the gym quite happily.
+ - I did a really fun orange nail polish with my friend Deborah Lippmann. All of her nail polishes are named after songs so we called this one “Lara’s Theme” which is really cute. It’s a bright orange which is really good for summer or cheering yourself up in winter.
+ - I love to get a massage but I’m quite a baby with it. I don’t like them too hard or anyone walking on me or anything. When it’s good, it’s the best thing ever. When it’s bad, it’s an hour of absolute agony.
+ - I’m happy people look at me as a role model.
+ - Occasionally I like to have facials but I do think they rub too much stuff on your face. I don’t really like having my hair and makeup done because it’s a work thing.
+ - When planning your wedding you make so many decisions: ‘Do I want this fork or that fork?’ But in the end people aren’t going to remember what napkin holder you choose.
+ - I try to eat fruit and be healthy.
+ - Going to rehab was the best decision I ever made.
+ - Every time I wake up I have this huge dreadlock in the back, and I don’t know why. It’s not like I sleep like a maniac or anything. It gets knots out really easy, and it’s handy.
+ - My mom didn’t use face cream, like, nothing at all. She’s got great skin and looks very youthful.
+ - I did easy yoga and I found it a bit boring. I’m now doing a more difficult one now and I’m enjoying it a bit more. I occasionally still work out with my trainer Tracy Anderson.
+ - You don’t really realize why you get attracted to certain people, and I do think scent has more to do with it than we realize.
+ - People still tell me I’m fat, but when I look in the mirror, that’s not what I see.
+ - I find hair things really hard because I can’t do my own hair. The only thing I use for my hair is a Tangle Teezer. It’s the best thing ever for everyone that has long hair.
+ - If I had to model clothes in a time period other than the 21st century, I think I’d like to model way back when they just wore skin loincloths. That would be best suited for me – better than corsets. I’m quite claustrophobic.
+ - I don’t even sing in the shower.
+ - I’m a woman, and every woman wants to be skinnier – unfortunately.
+ - I don’t really like the whole pancake look.
+ - I can have an androgynous quality.
+ - If I could have the discipline to be super-skinny, I would be.
+ - My favorite would have to be concealer, which I don’t think anyone can live without these days. I use the CK One concealer as well as their One color face makeup. It’s brilliant. It’s super natural, and it makes it look like you don’t have any makeup on.
+ - In London, I really like going to the Mandarin Oriental. They can even do my feet without tickling me.
+ - When it’s colder, your skin needs more attention.
+ - I think men look best when they’re dressed in something that makes them feel comfortable.
+ - I started modeling when I was 13 or 14, I think.
+ - I’d like to be a bit less pale because I feel like I look sort of ill sometimes.
+ - You can definitely aid the message that you want to send to people by what scent you’re wearing.
+ - I did quite a bit of running before, but it’s getting really cold so I joined a gym. I do a bit of swimming and I’m starting to do yoga again.
+ - I have a dream: that in my job, everything goes a bit faster. Five minutes hair, make-up five minutes, ten minutes and ready for a good picture. That would make life much easier.
+ - If I could have the discipline to be super-skinny, I would be. I think of dieting, then I eat pizza. I’m a woman, and every woman wants to be skinnier – unfortunately.
+ - When I’m 80 years old, I don’t know what I want to be remembered for.
+
+48 quotes

@@ -1,0 +1,25 @@
+ - Architecture is definitely a political act.
+ - I am not a finisher, I am a starter. And I am always thinking, what is the next project.
+ - The problem with digital architecture is that an algorithm can produce endless variations, so an architect has many choices.
+ - The best clients in the world are the people who cause you to struggle.
+ - I don’t believe that classical architecture is enough to engage people anymore. They say: ‘So what else is new?’
+ - I am immersed in architecture all day, working in my office or teaching.
+ - Endings are like, I always say, like a women’s pregnancy. When she has a child, she is happy to have the child, but there is a thing called postpartum depression, that is that she is no longer carrying the baby.
+ - Architects design houses. I live in a home.
+ - I am very different as a parent to new kids. My work changed from being rooted in the sky to being rooted in the earth.
+ - The more centralized the power, the less compromises need to be made in architecture.
+ - The architecture we remember is that which never consoles or comforts us.
+ - I don’t design houses with the nuclear family idea because I don’t believe in it as a concept.
+ - You cannot live with guilt.
+ - I would never live in anything I design. Life and art are different. My life is very precious to me – my art is precious to me. I love designing things for other people, but I don’t like designing things for myself.
+ - I truly believe that the great heroes that create the history of architecture are people who take risks and write to tell about it.
+ - The world is too full of information.
+ - Stop making me feel good. If you are anti-Semitic, fine. If you don’t like me personally, fine. But deal with me as an individual, not as a Jew.
+ - If you want to show a picture, just show it – don’t spend too much time arranging it.
+ - I don’t know how to use appliances. I mean, I use the coffee maker. But that’s it.
+ - Clearly the anti-Semitism in Germany in the 1930s went overboard and it was clearly a terrible moment in history.
+ - When looking at Germans, I have never felt a sense that they are guilty. I have encountered anti-Semitism in the United States as well.
+ - I’m a Larry David fan, right? And it seems to me that Jewish history from the Talmud on has been a self-deprecating, self-critical kind of humor.
+ - My wife has her stuff and her taste, and I have my stuff and my taste.
+
+23 quotes

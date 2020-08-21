@@ -1,0 +1,40 @@
+ - A lack of knowledge creates fear. Seeking knowledge creates courage.
+ - I am healthy and happy.
+ - If it wasn’t meant to be, it would have never been.
+ - I want to live my life naked, with all my little naked kids naked in the garden.
+ - I like a man who looks like a bad boy but knows how to treat a woman like a queen.
+ - I get skinnier if I’m very busy.
+ - Being confident in your own skin is very sexy. I think when you have fun and are yourself that is sexy too.
+ - Whenever you feel down, you can check on Twitter and feel better about yourself, because it’s only people who like you.
+ - Most women find a man with good manners sexy.
+ - I’d have to say the Seychelles, because I adore being in tropical places. However, Paris and Milan are also special to me. Every city has something special that attracts me.
+ - Good genetics are a start, but I have to go to the gym, look after my skin, and drink lots of water. It’s my job to take care of myself and my body. Happiness plays a big part in your appearance too.
+ - The best V-Day gift I’ve ever received was a personalized photo collage.
+ - At school I got teased because I was so thin and awkward-looking. But the girls on TV looked similar to me. I would say to my mum, ‘The girls at school are teasing me, but I look like those girls on TV.’
+ - I was a ballet dancer growing up and that’s what I was convinced I would be.
+ - I’d like to one day be featured on a list of inspirational people who have made a difference in the world, whether it be helping underprivileged people or putting an end to the poaching of wildlife in Africa.
+ - I’m usually bikini-ready all year round.
+ - Being one of the angels is one of the few jobs that can totally change someone’s life. For example, clients and designers who would have never given you a second look, now sit up and take notice.
+ - No one knows anything about the fashion industry in Brazil. They don’t care what you do. They just want the beach and the sun and the fun. I feel the freest and the happiest there.
+ - When I think of a bombshell, I immediately think of Bridget Bardot. She’s a woman who is so secure and just oozes sexy. Whether you are super feminine or more into that boyish style, you just own your look.
+ - I feel if I’m healthy and happy, I look good. With a good mixture of fitness and healthy food I always feel great!
+ - Brazil, I’m totally obsessed. I’ve been going since I was 17, and the first time I went, I fell in love with it.
+ - If I’m on holiday, I’m active on the beach, I play tennis, I run, I swim a lot. It’s just about making the workouts fun, I think, and then it doesn’t really feel that bad.
+ - I don’t know if it is obvious, but I am extremely shy.
+ - It’s been amazing how this crazy career has been created. I feel that it’s been given to me. I wouldn’t be anywhere without Victoria’s Secret.
+ - My ideal Valentine’s Day is spending it with someone you are in love with and for that someone to make you feel loved and appreciated.
+ - Victoria’s Secret is like a big family.
+ - I grew up in a farm in South Africa and I was scouted there and they sent me to Europe. It’s kind of been blessed, since then it happened all so fast.
+ - Your body is a machine. Learn the right way to take care of it.
+ - I’d love to be a pop star – at heart.
+ - I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.
+ - I was very skinny, braces; so I never thought I would be a model.
+ - Some people explore who they think they might be. Then some people explore who they already are and empower it.
+ - Women are complicated. We all know that.
+ - A relationship is like another job, you know, you have to work at it all the time.
+ - I have always been very comfortable in little clothing; its part of my job.
+ - I grew up on a dairy and beef farm.
+ - I try to train as much as I can, as much as my schedule allows it.
+ - Of course you can’t feel sexy and beautiful every day. But we try our best.
+
+38 quotes

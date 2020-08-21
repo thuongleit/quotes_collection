@@ -1,0 +1,37 @@
+ - If you work for a living, why do you kill yourself working?
+ - When you have to shoot, shoot, don’t talk.
+ - The richest man is the one with the most powerful friends.
+ - I’ve learned that life is very tricky business: Each person needs to find what they want to do in life and not be dissuaded when people question them.
+ - I’ve worked with wonderful actors like Marlon Brando and Henry Fonda.
+ - I don’t act to live. I live to act.
+ - In the book, I tell the story of seeing old movies when I was young and acting out scenes at home. Now I get scripts, and I act them out.
+ - My first Western was called The Magnificent Seven.
+ - Even if I don’t want to slow down, I’m slowing down.
+ - I met my wife and, for the next ten years, we did no films at all. She did the first movie and then I did several after. My first movie was written by Tennessee Williams and directed by Kazan and was called Baby Doll.
+ - The big secret in acting is listening to people.
+ - But Clint I love, because Clint was my mentor. I knew nothing about making an Italian movie.
+ - John Huston was a superb master. He knew how to make good films. I did three things with him. One is called Independence. It plays in Philadelphia, for free. It’s been playing there for 25 years.
+ - But I went to the University of Texas in the 30s, and while there I learned to ride. Mostly polo ponies.
+ - Well, I was getting a lot of money then, and I wasn’t getting any Hollywood films, so I just did those. I’d always do a play in between. Whenever I ran low on funds, I’d always rush off to do a movie somewhere.
+ - From the age of four or five. I went to see a lot of Westerns then. But it was silent movies and I loved everything that happened then.
+ - I’d come out of the army after five years as a medic. I was a medical administrator and we ran hospitals, and I was a Captain in the army at the end, in 1945.
+ - One thing changes every evening: It’s the audience, and I’m working my magic. I’m always learning from it.
+ - My wife says that stage acting is like being on a tightrope with no net, and being in the movies, there is a net – because you stop and go over it again. It’s very technical and mechanical. On stage you’re on your own.
+ - I never dreamed I would do Westerns.
+ - All of these stories bounced around in my mind for a long time.
+ - And I did Batman, too. I did Mr. Freeze. I get more mail for him than anything I’ve ever done.
+ - I always end up being the evil one, and I wouldn’t hurt a fly.
+ - Fifty million dollars is not to be sneezed at. Of course, I never catch cold.
+ - And that movie was underrated – Nuts – because it deals with a terrible subject, but It’s very well done.
+ - Well, I go to the theater today, and its curtain – there is no curtain in this play; the lights go down and go up – and we start. And I live this character for two hours. There are only two of us in the play. And It’s a complete experience.
+ - What do I need a movie for? The stage is on a higher level in every way, and a more satisfying medium. Movies, by comparison, are like calendar art next to great paintings. You can’t really do very much in movies or in television, but the stage is such an anarchistic medium.
+ - What is it in my makeup that makes me grab any offer and fly around the world? Will I ever be satisfied? Can’t I ever just rest?
+ - Everyone thinks acting is easy. It’s far from easy, but it’s the most gratifying thing I do.
+ - I’ve never lost my appetite for acting; it’s innovative and challenging.
+ - So I wanted to show what I did with the money. So I got red silk shirts, beautiful hats, wonderful saddles, a great horse, and two gold teeth. So that was the way I did it.
+ - I love to tell stories and this is my way of getting them down on paper.
+ - I always wanted to tell stories and act.
+ - Having the critics praise you is like having the hangman say you’ve got a pretty neck.
+ - Well, I’ve maybe gotten 200 requests for interviews about Marilyn, and I just decided I’m gonna do my own.
+
+35 quotes

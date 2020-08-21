@@ -1,0 +1,97 @@
+ - I do take enormous interest in what’s going on. I try to see whatever I can, whenever I can.
+ - I enjoy looking like a tart and thinking like a politician.
+ - We just kind of lost our way. But we were looking to be free. One day we’ll float. Take life as it comes.
+ - Shame is the shadow of love.
+ - Well, I’m quite a self-deprecating person.
+ - The craft, the writing of a song, is about creating a story, a life story, a world within three minutes, but that’s the frame, if you like, the picture frame. That fascinates me.
+ - You know, two people can say exactly the same words, saying the same story, and it would mean something entirely different.
+ - I come from an art-school background, and I still feel that in my music, it’s about exploration and challenging myself, about putting myself in a place that’s frightening because I haven’t been there before.
+ - Ive always been very visceral in that I feel things very deeply.
+ - When a poem might become a song, then certain parts are repeated and might become a refrain or a chorus, so they change in that way. But it’s more the nature of the words and what they’re saying that determines whether it’s a poem or a song.
+ - First off, I think nudity is taken differently in America, though they did make a fuss in England, too.
+ - But huge photographs of dead bodies are slightly different. I couldn’t find much humor there.
+ - Making me into a role model is placing too much importance on what I see as a work in progress.
+ - Fly with me, touch the face of the true God. And then cry with joy at the depth of my love.
+ - I tried to use words that were dealing with the emotional quality that any human being could recognize in the way that they felt about their country. It’s to do with the world we live in. That world is a brutal one and full of war. It’s also full of many wonderful things and love and hope.
+ - People have a tendency to see country life through rose-colored glasses.
+ - I did photography, painting, and drawing, but I prefer sculpture. I like it because it’s very physical.
+ - I’m finding my way, and I make mistakes.
+ - The way I make music is unique to myself and the way I have lived my life – no one else would tell that story in the same way that I do.
+ - My town was even smaller. Only six hundred people. We didn’t have a grocery store.
+ - There’s so much you can do with laying words on a bed of music. You can completely change their meaning with the type of music or the way they’re sung.
+ - Some people, like Leonard Cohen, write one album every 10 years, and labor over a song for five years at a time.
+ - Yeah, I mean I am somebody that makes an effort to go and see a lot of exhibitions, painting, drawing, sculpture.
+ - I feel like the actual, the most beautiful thing about a song is that it is something that goes out there in the universe and people use it in the way that they need it in their lives.
+ - People have this idea of me being some kind of monster, and that’s the complete opposite of who I am.
+ - I think a lot of people have an idealistic view – if you grow up in the country, there can’t possibly be anything wrong with you.
+ - It varies, I don’t think there is any one set way of writing songs or coming up with ideas, it comes in so many ways you know.
+ - Well, I don’t really concern myself too much with what other people make of my work.
+ - Obviously, the emotions I want to convey through music are streamed through the way I interpret life.
+ - I really don’t pay too much attention; I don’t go out of my way to read any interviews.
+ - I don’t hold onto anything, because it’s a waste of energy to do so, really. There’s nothing that I can do about the way people want to write about me. I just try and concentrate on my work and do that as well as I can.
+ - My mom is a sculptress.
+ - You know if I see a work that really I am very affected by and inspired by then it makes me want to try things with my work that maybe I hadn’t considered trying before and I think that is the biggest complement that you can pay somebody.
+ - Everything from a lifetime’s worth of collecting things. You know as we go through life, and something stays and ends up on your shelf and lives there until you die? Just those little things.
+ - There is a thread connecting you no matter how far away you are from someone and you know I have two or three relationships in my life that are like that.
+ - I think blues music is music of the soul. Of course, there are other forms. You could call some classical music blues music in that way.
+ - Being a recording artist and having thousands of people listening to your music and singing your songs, and paying for it? It feels great!
+ - I make tiny wooden people with bits of hair. Puppets and things like that.
+ - In the same way, I write some of my more difficult pieces when I’m at very happy stages in my life.
+ - It’s so much in me to want to keep experimenting all the time. It’s just inherent.
+ - I decide immediately if I like a person and if I do, then I’m myself, and if I don’t, then I give nothing.
+ - I grab an instrument to make my body a song, but I’m not a player as such, maybe a little more on guitar, but certainly not piano.
+ - It’s so interesting to me how songs take on a shape and body of their own and grow.
+ - And all of these writers offer me a greater understanding of what it is to be alive, and that is such an incredible thing art can do for other people. It made me want to try and get close to this strange, mysterious thing that people can do with words.
+ - If you come at the record feeling really happy and optimistic, it can be incredibly beautiful and uplifting, and if you come at it in a bleak moment, it can feel like a very dark place to share. It’s all down to the listener.
+ - I didn’t know folk music growing up, no. It’s something I’ve come to study, really, because I think there’s so much to learn from traditional music in the sense of the way music began as a way of communication, the traveling storyteller, the bard, the minstrels.
+ - There is nothing more boring than doing singing exercises.
+ - I think of myself as a songwriter, a weaver of story and imagination in a way that a novelist might write a book.
+ - Before I record for real, I know pretty much exactly how I want them to feel.
+ - I am someone that follows the news and reads newspapers yet what do you believe and what don’t you.
+ - There’s a level of discipline I use as a writer, designed to get better at what I’m doing, that requires quite a lot of study and quite a lot of hard work as well.
+ - Ideas for songs can come from something as simple as a photograph and letting my imagination run wild on an old photograph that I found, or to a film that I have seen or to just most of the time, just daily walking through life and keeping your eyes open.
+ - Love for money is my sin, any man calls, I’ll let him in.
+ - I find it hard myself to feel justified to sing in a very politically direct way about war or social conditions because I feel so ignorant of a lot of it.
+ - As I grew older, I actually was prepared to go into fine arts school and do a degree. That was what I was actually settled upon when I was offered a record deal.
+ - What we are fed through the media I do not accept, unless you see it with your own eyes you cant trust anything.
+ - I’ve always felt that I’m affected by the world, by the way we treat each other, by the way different countries treat each other. I’ve always been very affected by politics, society, but I never got to a place as a writer where I felt like I could begin to deal with such things and do it well.
+ - I’m always trying to swim to new ground.
+ - With songs I almost see the images, see the action, and then all I have to do is describe it. It’s almost like watching a scene from a film, and that’s what I go about trying to catch in a song.
+ - I’m not an autobiographical writer, but I am a writer who deals with human emotion on all levels.
+ - I don’t loathe interviews, I’m just one of those people who makes music because I find it difficult to talk.
+ - I would listen most particularly to the countries whose language I didn’t understand, didn’t know what they were singing. But being a singer myself, I could understand because of the emotion.
+ - I just love having no clothes on outside, and the only time to do that is when the sun’s shining. It’s a wonderful sensation to not have any clothes on.
+ - I’ve been so used to being supported by musicians, and I don’t class myself as a particularly adept musician on instruments. I think I’m a songwriter.
+ - I do write a lot of prose. It’s not disciplined enough yet that it’s actually become stories, or short stories. The idea of writing a novel seems impossible.
+ - I’d want to read the stories that I’d written, I’d want to show the drawings that I made. That was just purely natural. So I knew I wanted to go into the arts in some way and that I’d want to show that work in some way.
+ - I’m not a writer where I feel particularly blessed by great inspiration every day. I don’t. I have to work really hard at it to try and say the things I’m concerned with.
+ - But even when I do give interviews, I always come across as such a completely different person. It seems like there’s no controlling it anyway.
+ - I think that’s always very valuable: to keep the mind open to receiving all sorts of information, which can then be used in my work, but also just as a human being.
+ - I have learnt through doing interviews throughout my life that the way that somebody can write about something can change entirely how it was meant, or what actually happened.
+ - My father is actually a quarry man – he deals in stone. He also at one point had a lot of sheep, he owned a sheep farm, but primarily the family business was in stone.
+ - I’ve always felt profoundly about what’s going on in the world on a daily basis. What I hadn’t felt was that I was at a point in my writing career where I could write about these things in songs and do it well.
+ - I’m always writing, the past 10 years. A lot has changed, in that it’s something I do every day.
+ - I long ago learned that you can’t expect people to interpret the songs in the way they had meant for you, as the writer.
+ - I get to a point when I’ve collected together enough words that seem like they want to be songs rather than poems, or sometimes not.
+ - I’m doing quite a lot of painting on stones – little funny fish and animals.
+ - I studied art just short of the level where you can earn a degree.
+ - The devil wanders into my soul.
+ - I feel like it’s very important that I’m doing what I’m doing, and I want to keep honoring that and try and do it as honestly as I can.
+ - I work on words, mostly, toward them being poetry or short stories, and then some of those become songs.
+ - Maybe you’re a singer or not, but what taps into the soul leads to the heart, and that’s really what I came away with, with the starting point for the record being that I could speak as a human being and feel things very deeply.
+ - I would never feel confident enough to express my views and opinions as the right ones because I just don’t think that’s possible. There are so many sides to everything that nobody is right or wrong.
+ - People want to build musicians into mythical beings.
+ - I’ve so much left to explore, it’s enormously exciting to me. It’s a passion. I just try and get better at what I do, and I study it very hard, like it is my life degree.
+ - I try to see as much dance, theatre and films as I can because all of it feeds me in a way that I need feeding for what I do.
+ - When I write – I always write on my own – I demo those songs on a four-track.
+ - I think that most art is asking a question or is looking for something, looking for answers and that is what life seems to be about for most people.
+ - I see men come and go, but there’ll be one who’ll collect my soul.
+ - Maybe I’m just purely lucky. If I’ve come up against obstacles I’ve always found another way around it.
+ - I think I’m a maker of songs, and songs are like films or a picture: You put them over there, and they have nothing to do with you.
+ - When I was young, I had idols that I thought were wonderful. I wanted to be just like them.
+ - I think Ive got a pretty good sense of humor.
+ - I firmly disbelieve that one has to be a tortured soul to write good music.
+ - You shouldn’t separate the piece from the way it’s intended. I always feel like words shouldn’t be unraveled from the music. They’re all linked so much together.
+ - To think of myself as a role model is extremely flattering, but I could never accept that, because Im just learning like everybody else.
+
+95 quotes

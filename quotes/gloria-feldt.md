@@ -1,0 +1,39 @@
+ - Knowing your history can give you the tools to shape your future.
+ - Don’t follow your dream – lead it!
+ - Unlimit yourself: Stand in power, walk with intention.
+ - Be intentional about your life and what you want to accomplish, but understand there’s no choice you make that you can’t change.
+ - This is women’s moment to shift the tectonic plates of power on both the personal life and the leadership levels.
+ - Moments don’t last unless we do something with them.
+ - Power unused is power useless.
+ - Your vision, ideas and plans have the power to shape the future, but not if you keep them to yourself.
+ - The path to big, systemic change is collective action. That takes Sister Courage.
+ - Your personal choices matter. And you have the power. Use it.
+ - Share your stories of your worst moments as well as your best. Let your sisters know their problems are not unique and they are not alone.
+ - Power-over is amoral. Power-to is responsibility.
+ - What’s your vision of what you think should happen? How can you make it happen? Go stand in your power and walk with intention to make it so.
+ - Say the first word. Set the tone for the conversation. Be poised, prepared, and ready to say the first word in any debate or meeting.
+ - Embrace controversy. It gives you a platform. It is a teacher, a clarifier, and your friend, especially if you are trying to make change.
+ - I truly believe that a woman who knows herself, and who thus knows her true value, can never be frightened into being co-opted.
+ - Nobody loves you better because you have used yourself up for them.
+ - When women are economically empowered, the power balance changes in all areas of life.
+ - Get ticked and get going.
+ - The more we practice risking to leap, the more proficient we become, the more our fears melt away, and we grow ever stronger in the doing.
+ - Whatever aspect of life you apply it to, making change takes courage.
+ - Embrace controversy. It gives you a platform. It nudges you to clarity.
+ - I say, carpe the chaos, for in chaos is opportunity.
+ - Women are in the midst of an unfinished revolution.
+ - Women are well on the road to equality but we haven’t arrived yet.
+ - With each door one women walks through it is incumbent to bring another woman through it with her.
+ - The most effective medium is yourself and the power you communicate by your intention and your story.
+ - What ticks you off enough to get involved in efforts to better the lot of women? What motivates you to action?
+ - There are no excuses this time. Now it’s up to women to step up and lead ourselves and our sisters through the threshold.
+ - A movement has to move. Constantly.
+ - The definition of promiscuity? One more partner than you’ve ever had.
+ - Intention implies assuming you can and have every right to achieve your ambition and that you are powerful enough to make it happen.
+ - Use what you’ve got. What you need is usually there if you can see it and if you have the courage to use it.
+ - Every other group helps its own members. Women should, too. Be sisters.
+ - Today’s challenge for women: to value ourselves and demand that others do, too.
+ - We grow our courage muscles like we grow our physical muscles, by using them.
+ - Women must commit to use our power-to on our own behalf so we can translate it into the power to help others and ourselves.
+
+37 quotes

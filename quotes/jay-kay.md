@@ -1,0 +1,32 @@
+ - Your private life is your private life and you keep it to yourself. You get more respect that way.
+ - I am a bit old-school.
+ - When I listen to Radio 1 and hear five different tracks in a row using old disco samples, well that’s plagiarism, that’s taking other people’s music.
+ - Well, I’m British. I’m proud to be British and I love this country. I’m going nowhere.
+ - Now, I’m the most impatient person that ever walked the planet. However: for the best, you always wait.
+ - I learn fast and I take note of what I’ve been told.
+ - I like girls who like the countryside, put on walking boots and can bend with the wind a bit. If you’re going to live with me, you need to be able to embrace the countryside and wet dogs.
+ - I don’t watch myself on TV, I don’t read the news clippings about me, so when people come up and say, ‘What about that story last week?’ I go, ‘I didn’t even know there was.’
+ - In my mind, there’s a time and a place for putting your foot down.
+ - I wanted to use a totally different part of my brain. It’s quite scary at times. I went for learning to fly because it was most difficult of all. The insurance man just sat there and licked his lips when I told him.
+ - I can find every jacket under the sun that I like. But I cannot find trousers cut the way I want them. They’re all really tight at the bottom. Nobody does a boot cut on a trouser leg. It drives me crazy.
+ - How is the economy supposed to recover when people can’t afford to fill the tank?
+ - The ability to last more than six minutes – isn’t that what all men want?
+ - I didn’t get my first car until I was 22. It was a BMW 1602 and now I’ve got it back I’m waiting to restore it.
+ - I love being able to go on local flights when the weather is right. I’ve popped to the Isle of Wight, Cornwall and been mountain flying in Wales. When I got my licence I was over the moon, it was one of the greatest days of my life – it took two years to get!
+ - I have to thank my mum for kicking me out at 16 and making me stand on my own two feet – that’s how I got here.
+ - I may be the prat in the hat, that’s cool, but I drive an Aston Martin DB5.
+ - I’m 41 now and the right knee has got a bit of a twinge in it. I get about the stage a little less now.
+ - From 16 to 21 when I was self sufficient and working in factories. I packed batteries, boxes, and make-up with heroin addicts. I have to thank my mum for kicking me out at 16 and making me stand on my own two feet.
+ - The mid-life crisis is just those times when you’re not so into the things you were when you were younger.
+ - Every now and again I need to get away from everything. I’m quite a hidey-hole kind of a guy.
+ - I think it is easy for people to build up an image of what I’m about. I consider myself quite a nice chappy really. I’m decent to people, I stay in and listen to Radio 4.
+ - Getting an award on Top Gear is better than getting a Grammy.
+ - I think these days a lot of the younger generation feels that the world owes them something. But you’ve got to get off your backside and you’ve got to do all the crap stuff, too.
+ - I’m not gonna give the British Government the joy of keeping taxing me. They don’t tax art. And all my cars are just a collection of art.
+ - I am quite fussy about clothes.
+ - I’m very used to stages and dressing rooms. And dare I say it, much as I like being at home, I love the buzz of a new hotel room.
+ - I consider myself very lucky indeed to have had the career I have. I listen to the radio now and you can’t tell artists apart.
+ - I can do the equivalent of 150 miles per hour and not get stopped. I could quite happily pursue people down the motorway in my helicopter.
+ - My place in Scotland is in the middle of nowhere, so you’ve just got a keyboard, guitar, a little drum machine and you know if you can work stuff out like that, if you can hammer out songs that sound good just with those three things and a voice, you’re on your way.
+
+30 quotes

@@ -1,0 +1,104 @@
+ - Just because today is a terrible day doesn’t mean tomorrow might not be the best day of your entire life. You just have to wake up and get there.
+ - Always bet on yourself, no matter what the odds are. It means more to be in the race than watching the victory lap from the stands.
+ - You are what you love, not who loves you.
+ - Everyone you idolize wakes up scared to be themselves sometimes.
+ - Somewhere I just want to find someone that’s going to love me forever no matter what; I want someone to show the inside of my head to. That thought keeps me going.
+ - And there are people that will stand in your corner and convince you to stand up for another round no matter what.
+ - The hardest thing about depression is that it is addictive. It begins to feel uncomfortable not to be depressed. You feel guilty for feeling happy.
+ - I’m an insomniac, my mind works the night shift.
+ - We are dreamers. We worship love, we hope against hope and toss practicality out the window.
+ - The Worst part of acting like a jerk isn’t when you’re doing it. Its when you realize you were.
+ - We’re just like a movie based on a book – almost, but not quite as good.
+ - I’ll be your number one with a bullet.
+ - If you aren’t just a little depressed, then you aren’t paying very much attention to what’s going on in the world.
+ - Emo is over, you can all go home now.
+ - Look: I download music illegally, if I really want it. But I always then buy the record – I support art.
+ - I’m attracted to creative people and train wrecks, and there’s no shortage of that in Los Angeles.
+ - You’re gonna meet tons of different people throughout your life, and it’s totally worth it to stick your neck out a little bit if you like someone. Even when you get shot down, it seems really devastating, but it’s not in the long run.
+ - The only good thing about times of adversity is that you realize who your real friends and fans are – and the rest go away – which in my mind is an OK thing.
+ - There she is, lying in front of me, smoking a cigarette, thinking of something or someone else. And that’s how she is stuck in my mind forever. We are two explorers in the dark. Mapless and hopeless. Alone together.
+ - I wonder if killing yourself is the only thing you can control in your entire life, and that’s why it’s a sin. Because you’re beating God at his own game.
+ - Don’t wear eyeliner with too much facial hair. It looks strange.
+ - I wanted to find a cave and hang out there for the rest of my life and be a cave painter and eat dirt.
+ - The silence is the worst part of any fight, because it’s made up of all the things we wish we could say, if only we had the guts.
+ - Being surrounded by six Brendons is so not fun.
+ - I’m a bit of a tease. I’d make out with a lot of people but not go beyond that.
+ - And I could write it better than you ever felt it.
+ - Long live the car crash hearts Cry on the couch all the poets come to life Fix me in 45.
+ - When I said that I make out with dudes, there was a slight sense of sexual rebellion in that. And I probably even made it a bigger deal than it was.
+ - They finally pushed me out, It’s cool though cos I hae a dog.
+ - I don’t have an issue finding guys attractive.
+ - There’s nothing worse than watching an old wrinkly guy going, ‘Hey, baby.’ You’re like, ‘Dude, that’s lame.’ It’s cool to fall in love and grow old with someone.
+ - I’m a little bit of a makeout king. I don’t discriminate too much.
+ - I think hair is just, like, the most important thing about you.
+ - Theres a lot to be said for bands who fight to be relevant. But CONVINCING people you’re relevant? Thats like telling people its not raining when they’re soaking wet.
+ - I think Kurt Cobain and Nirvana represent this giant wave that came crashing in and turned music on its head again, and there’s definitely something to be said for that.
+ - I’ve always believed in God. I’m just not so sure he believes in me.
+ - Sometimes when it looks like I’m deep in thought I’m just trying not to have a conversation with people.
+ - He sharpened his flaws and disappointments into daggers.
+ - I think we live a culture that’s obsessed with people, you know, ‘Celebrities are just like us!’ Everything I do except my job is critically analyzed online.
+ - I’m not just taking trips down memory lane; I’m broken down on it.
+ - He felt like the last bullet in a gun meant for revenge, sealed with a kiss.
+ - Freud suggests that in order to love someone else, one must love themselves; it’s a classic “needs before other needs” argument. Unfortunately, no one really loves themselves. And, if they do, they need to get to know themselves better. Unfortunately, no one is really happy.
+ - I wish I had never taken naked pictures of myself on a phone to send to a girl. It’s the worst thing ever.
+ - Our brains may lie to us, but our hearts never do.
+ - We are symbolic. We are driving to the edge of the city and talking in vague-yet-resolute certainties about our dreams and our futures. We are leaving certain things in the medicine cabinet. We are falling in love.
+ - With marriage and fatherhood, I’ve finally found two fixed points in my life. They’ve taught me patience. They’ve also taught me that I don’t need to feel guilty about being happy. My emotional seasons are less extreme.
+ - I’m Michael Jackson-obsessed. All I watch is ‘Moonwalker’ – it’s my favorite movie of all time.
+ - I’m not as well read as I was when I was younger – I just devoured books.
+ - I’m not a real big fan of penises. Like my own, whenever I look at it, I just don’t find anything attractive about it. I can’t believe girls are into it. It blows my mind a little bit.
+ - Sometimes its good to come back when you least expect to.
+ - I think that the first part of the art is making the art, but when art really becomes art is when it belongs to somebody else.
+ - I think everyone should go crazy at least once in their life. I don’t think you’ve truly lived until you’ve thought about killing yourself.
+ - It was the single best sexual encounter I’ve ever had. We were in the Soho Grand Hotel, and there was a mirror, and I was like, ‘Oh my God, you’re banging the girl of your dreams and you’re watching it right now.’
+ - Soccer presented no challenge to me. Playing felt like breathing: I always had a magical connection to the ball. But it didn’t feel like an adventure. Music was more of a challenge and, in the end, felt more interesting.
+ - It wasn’t me! Look at how little I am. I’m a little guy.
+ - When I was in high school, my thing was to get as close as humanly possible to a girl and just make her have to kiss me! You do the hug that’s too close, where your mouth is close to hers and you kinda feel it out a little bit.
+ - In the past, my brain would never stop. Now I’m a father; the world no longer revolves around me. When I’m with Bronx, he’s got my complete attention. He’s the only thing that occupies my thoughts.
+ - I’m in the process of convincing my parents to sell me their house so I can just live in my childhood bedroom forever. I figure it might make me age slower.
+ - The hardest part of watching someone watching me is making it appear that I’m not watching.
+ - Underwear. It’s like a god damned leash. It also constantly reminds me of how funny I look naked.
+ - I was totally into cartoon babes when I was a little dude. Cheetara from the ‘Thundercats,’ then Jessica Rabbit, and finally I moved onto a real-life human being and was into Punky Brewster, and then Christina Applegate on ‘Married with Children.’
+ - This is how your heart gets snagged, like a balloon on a barbed-wire fence, this is where pieces of you get torn away.
+ - She pulls me toward her, tells me, “You’re sweet, you know that?” I crack a smile. Life will not tear us apart this time. Our hearts will see to it.
+ - I think it’s important to look at the world as a bigger place than just the bubble that we live in. It’s so easy to get caught up in things of a trivial nature.
+ - He hugged her tight, mixing their tears to be bottled and fermented, so they could be drunk on each other when this was all over.
+ - It’s semi-frustrating when your name actually becomes a synonym for douchebag.
+ - I’ll be honest: I was a super-late bloomer, and I was kind of a prude.
+ - He felt homesick for places he had never been. He missed hearts he had never loved.
+ - What would rock and roll be without ambition, craziness, danger, and fun?
+ - First he threw out all of his records, trashed his heart and then he went to sleep.
+ - My body is a metronome, keeping time for the universe...
+ - I had aspirations to do different things with my life. I wanted to play soccer. I wanted to be a lawyer. Serendipity.
+ - I was a superlate bloomer, and I was kind of a prude. I always wanted to be able to keep the number of people I’ve had sex with very low, because I never wanted to have to tell my future wife, “Oh, yeah, I was with 30 people.”
+ - Let’s just make it through tonight, worry about the rest later.
+ - It’s bizarre to have both a super-connected and disconnected world. Like, you can use Twitter in the most narcissistic way. Do people really need to know that I’m drinking a latte right now? It’s so indulgent.
+ - You can live with me in this house I’ve built out of writers blocks.
+ - It’s cool to fall in love and grow old with someone.
+ - Here’s the thing about hair; I think most people think that I have Lego hair, like I can just take it on and off in one piece, and that’s not quite the case – although pretty close.
+ - Fall Out Boy never pretended that we were anything but pop-rock.
+ - I love writing, but I have that E. E. Cummings idea that as long as you stay inside the rules of your own world, it doesn’t matter what it is.
+ - My wife can look at me in a certain way and I can tell by her eyes how she’s feeling about me or when I should stop talking about something. It’s kind of the way twins have their own thing.
+ - For the most part, I hang out in my back yard with my dog, but there’s no paparazzi trying to check that out.
+ - When I heard ‘Dookie’ by Green Day for the first time, it unlocked something in me, like, it’s totally okay that I’m a little bit weird because these guys are a little bit weird. It made me want to pick up an instrument and do that.
+ - There was a fence and there was this other van- So I go, ‘Fence or van? Cause I’m crashing into one of them,’ and I said ‘Fence,’ so I hit the fence and bounced into the van.
+ - My wife and I have created our own language. We can be at a table with six other people and have an argument without anyone knowing. It doesn’t even have to be out loud. It’s bizarre.
+ - You should be able to grab people with ideas.
+ - I think people who just know me from my band think I don’t like pop music. The truth is I love pop music.
+ - I like individual scents on a girl, so you always recognize her and you keep her separate from other people in your head. I really love Egyptian musk. I’ve even gone to the mall and sprayed perfumes and just smelled them. I’m creepy. So creepy.
+ - Love exists in powder. Love exists in pills. We are all addicts.
+ - If anyone saw Fall Out Boy’s first 400 shows, we were the worst band of all time.
+ - Boys in bands are more difficult to deal with than one-year-old babies. I’ve been one of them, and I am one of them, but it is the truth.
+ - The stars crossed and The Boy wished he could have hung himself on them.
+ - I don’t get on stage and give a social diatribe. I am a performer and an entertainer.
+ - It takes knowledge to know something. It takes guts to do what you know.
+ - I remember my first kisses with a lot of people, and they’re rad experiences. And you don’t have to really take it to that next level because that’s what keeps it exciting.
+ - I’ve been an Obama supporter since he announced he was campaigning. I was aware of him as a senator, but I wasn’t as engaged as I probably should’ve been.
+ - Everyone has learned how to monetize music except the music industry.
+ - As a kid, I always went to therapists; the first time was when my parents were separated on my sixth birthday, then on and off since then.
+ - Fear owns me because I let it. Because I obsess over it, name it, raise it, and nurture it to become perfect. It is one of the few things in my life that I can control.
+ - I’m not into bands for the sake of being into bands. I’ve grown past that. There was a time in my life when I was that guy.
+ - But you couldn’t touch this kid right now, bullets would have dodged him.
+ - Ultimately, people do want to buy merch and tickets to support their favorite bands, but they don’t want to feel like it’s the only thing going on.
+
+102 quotes

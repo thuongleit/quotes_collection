@@ -1,0 +1,24 @@
+ - I’ve always welcomed war, but when the last battle ends, what life is left for a warrior?
+ - Love wasn’t forged by circumstance or changed by sorrow. It simply was. Fierce and free as the wolf within me.
+ - It’s been a pleasure, she-wolf.
+ - You do realize you just mixed Disney metaphors, right? Disney metaphors. Wow, Calla, now I’m just sad for you.
+ - No human could withstand a Guardian’s warning glare.
+ - He no longer needed me to be his protector, but he still wanted me.
+ - My skin came alive under his fingers, every touch an electric crackle through my veins.
+ - Staring at the wreckage of the life we could have had, I knew it wasn’t about love or Shay or the Searchers now. It was about sacrifice and redemption, loss that could have new meaning.
+ - We could run away. I’d stay with you.
+ - All I wanted was to take a hot bath, to go to sleep, and to not wake up. EVER.
+ - He leaned toward me, murmuring, “I think one-on-one sounds better, don’t you?” His teeth gently caught my earlobe. All my muscles turned to liquid. I dropped the stirring rod and grabbed the edge of the table so I wouldn’t collapse.
+ - You’re a freak for not being terrified of me.
+ - I closed my eyes and leaned back into his body; his fingers kneaded my hips, caressed my stomach. God, it felt good.
+ - Ren watched us as he leaned casually against the table, holding a pair of scissors. I’d never seen a classroom tool look so dangerous.
+ - Why couldn’t I have puppy love? I only seem to have “I can’t decide if I want to rip your throat out or kiss you” love. Ugh.
+ - Just because you’re a warrior doesn’t mean you can’t be enticing.
+ - That is exactly why you can’t have me yet, Ren. I’m not going to share.
+ - It’s just that this outfit is much easier to deal with than that chastity contraption you had on the last time we were kissing.
+ - He was brilliant sunlight that drove away winter’s chill.
+ - The relationship of a girl and her favorite novel can be complex indeed.
+ - This is only about love.
+ - Ansel, I’m not the sun, stop orbiting and get in here.
+
+22 quotes

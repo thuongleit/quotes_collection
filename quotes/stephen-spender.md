@@ -1,0 +1,48 @@
+ - Eye, gazelle, delicate wanderer, Drinker of horizon’s fluid line; Ear that suspends on a chord The spirit drinking timelessness; Touch, love, all senses...
+ - History is the ship carrying living memories to the future.
+ - I think continually of those who were truly great.
+ - Sometimes when I am writing, I am aware of a rhythm, a dance, a fury, which is as yet empty of words.
+ - All the posters on the walls All the leaflets in the streets Are mutilated, destroyed or run in rain, Their words blotted out with tears, Skins peeling from their bodies In the victorious hurricane.
+ - When a child, my dreams rode on your wishes, I was your son, high on your horse, My mind a top whipped by the lashes Of your rhetoric, windy of course.
+ - My single pair of eyes Contain the universe they see; Their mirrored multiplicity Is packed into a hollow body Where I reflect the many, in my one.
+ - To break out of the chaos of my darkness Into a lucid day is all my will. My words like eyes in night, stare to reach A centre for their light: and my acts thrown To distant places by impatient violence Yet lock together to mould a path of stone Out of my darkness into a lucid day.
+ - Never allow gradually the traffic to smother with noise and fog the flowering of the spirit.
+ - Whatever happens, I shall never be alone, I shall always have a fare, an affair, or a revolution.
+ - I think of those who were truly great. The names of those who in their lives fought for life, Who wore at their hearts the fire’s center.
+ - The greatest poets are those with memories so great that they extend beyond their strongest experiences to their minutest observations of people and things far outside their own self-centeredness.
+ - Never being, but always at the edge of Being.
+ - Deep in the winter plain, two armies Dig their machinery, to destroy each other. Men freeze and hunger. No one is given leave On either side, except the dead, and wounded.
+ - Religion stands, the Church blocking the sun.
+ - Paul Valery speaks of the ‘une ligne donnee’ of a poem. One line is given to the poet by God or by nature, the rest he has to discover for himself.
+ - Bright clasp of her whole hand around my finger My daughter as we walk together now. All my life I’ll feel a ring invisibly Circle this bone with shining When she is grown.
+ - What we call the freedom of the individual is not just the luxury of one intellectual to write what he likes to write but his being a voice which can speak for those who are silent.
+ - There is a certain justice in criticism. The critic is like a midwife – a tyrannical midwife.
+ - I’m struggling at the end to get out of the valley of hectoring youth, journalistic middle age, imposture, moneymaking, public relations, bad writing, mental confusion.
+ - The iron arc of the avoiding journey Curves back upon my weakness at the end; Whether the faint light spark against my face Or in the dark my sight hide from my sight, Centre and circumference are both my weakness.
+ - The greatest of all human delusions is that there is a tangible goal, and not just direction towards an ideal aim. The idea that a goal can be attained perpetually frustrates human beings, who are disappointed at never getting there, never being able to stop.
+ - Great poetry is always written by somebody straining to go beyond what he can do.
+ - One of my great surprises when I was in America was about twenty-five years ago in Harvard, hearing Randall Jarrell deliver a bitter attack on the way poets were neglected. Yet there were about two thousand people present, and he was being paid five hundred dollars for delivering this attack.
+ - When you read and understand a poem, comprehending its rich and formal meanings, then you master chaos a little.
+ - Of course, the entire effort is to put myself Outside the ordinary range Of what are called statistics. A hundred are killed In the outer suburbs. Well, well, I carry on.
+ - One type of concentration is immediate and complete, as it was with Mozart. The other is plodding and only completed in stages, as with Beethoven. Thus genius works in different ways to achieve its ends.
+ - Death to the killers, bringing light to life.
+ - No one Shall hunger: Man shall spend equally. Our goal which we compel: Man shall be man.
+ - All one can do is to achieve nakedness, to be what one is with all one’s faculties and perceptions, strengthened by all the skill which one can acquire. And then to stand before the judgement of time.
+ - Involved in my own entrails and a crust Turning a pitted surface towards a space, I am a world that watches through a sky And is persuaded by mirrors To regard its being as an external shell, One of a universe of stars and faces.
+ - Cult: simply an extension of the idea that everyone’s supreme aim in life is self- fulfillment and happiness and that one is entitled to wreck marriage, children and certainly one’s health and sanity in pursuit of this.
+ - Paint here no draped despairs, no saddening clouds Where the soul rests, proclaims eternity. But let the wrong cry out as raw as wounds This Time forgets and never heals, far less transcends.
+ - You drive the landscape like a herd of clouds Moving against your horizontal tower Of steadfast speed. All England lies beneath you like a woman With limbs ravished By one glance carrying all these eyes.
+ - Poetry cannot take sides except with life.
+ - Since we are what we are, what shall we be But what we are? We are, we have Six feet and seventy years, to see The light, and then resign it for the grave .
+ - All that you can imagine you already know.
+ - What the eye delights in, no longer dictates My greed to enjoy: boys, grass, the fenced-off deer. It leaves those figures that distantly play On the horizon’s rim: they sign their peace, in games.
+ - My words like eyes that flinch from light, refuse And shut upon obscurity; my acts Cast to their opposites by impatient violence Break up the sequent path; they fly On a circumference to avoid the centre.
+ - If Rilke cut himself shaving, he would bleed poetry.
+ - Although Poets are vain and ambitious, their vanity and ambition are of the purest kind attainable in this world. They are ambitious to be accepted for what they altimately are as revealed in their poetry.
+ - So i learned both to accept myself and to aim beyond myself.
+ - The only true hope for civilization-the conviction of the individual that his inner life can affect outward events and that, whether or not he does so he is responsible for them.
+ - There is a certain justice in criticism.
+ - History has tongues Has angels has guns has saved has praised Today proclaims Achievements of her exiles long returned Now no more rootless, for whom her printed page Glazes their bruised waste years in one Balancing present sky.
+ - Memory exercised in a particular way is a natural gift of poetic genius. The poet above all else, is a person who never forgets certain sense impressions which he has experienced and which he can relive again as though with all their original freshness.
+
+46 quotes

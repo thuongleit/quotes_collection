@@ -1,0 +1,178 @@
+ - Always remember, your focus determines your reality.
+ - Fear is the path to the dark side. Fear leads to anger. Anger leads to hate. Hate leads to suffering.
+ - May the Force be with you.
+ - No! Try not. Do, or do not. There is no try.
+ - Train yourself to let go of the things you fear to lose.
+ - Rejoice for those around you who transform into the Force. Mourn them, do not. Miss them, do not. Attachment leads to jealousy. The shadow of greed, that is. Train yourself to let go of everything you fear to lose.
+ - So this is how liberty dies. With thunderous applause.
+ - We are all living in cages with the door wide open.
+ - You must let go of your past and embrace your future and figure out what path you’re going to go down.
+ - Luminous beings are we, not this crude matter.
+ - Time is more important to me than money.
+ - You simply have to put one foot in front of the other and keep going. Put blinders on and plow right ahead.
+ - Never tell me the odds!
+ - Everybody has talent, it’s just a matter of moving around until you’ve discovered what it is.
+ - The sciences are the ‘how,’ and the humanities are the ‘why’ – why are we here, why do we believe in the things we believe in. I don’t think you can have the ‘how’ without the ‘why.’
+ - You can’t do it unless you can imagine it.
+ - Education is the single most important job of the human race.
+ - In my experience, there’s no such thing as luck.
+ - Someday you’re going to have to learn to separate what seems to be important from what really is important.
+ - It’s hard work making movies. It’s like being a doctor: you work long hours, very hard hours, and it’s emotional, tense work. If you don’t really love it, then it ain’t worth it.
+ - Teachers are the most important individuals in our society – nothing is as powerful as the human touch in education.
+ - They were at the wrong place at the wrong time naturally they became heroes.
+ - The secret is not to give up hope. It’s very hard not to because if you’re really doing something worthwhile I think you will be pushed to the brink of hopelessness before you come through the other side.
+ - The ability to speak does not make you intelligent.
+ - You really have to focus on what you’re doing and just plow ahead no matter what hurdles are thrown in front of you.
+ - Success is when you try to achieve your inward vision externally and have it come off the way you see it. Then YOU feel successful about it; that’s how success is measured.
+ - Sometimes you must let go of your pride and do what is asked of us. Anakin Skywalker, Episode 2: Attack of the Clones.
+ - The sound and music are 50% of the entertainment in a movie.
+ - You have to find something that you love enough to be able to take risks.
+ - Working hard is very important. You’re not going to get anywhere without working extremely hard.
+ - Mos Eisley spaceport. You will never find a more wretched hive of scum and villainy. We must be cautious.
+ - Once you start down the dark path, forever will it dominate your destiny, consume you it will...
+ - You have the most important job of anyone today. Our kids need you to advocate for their futures.
+ - It’s okay to lose; just don’t lose the lesson.
+ - Most organisms either adapt and become part of the system, or get wiped out. The only thing we have to adapt to the system with is our brain. If we don’t use it, and we don’t adapt fast enough, we won’t survive.
+ - If you want to be successful in a particular field of endeavor, I think perseverance is one of the key qualities.
+ - Any society begins by realizing that together, by helping each other, you can survive better than if you fight each other and compete with each other.
+ - All democracies turn into dictatorships – but not by coup. The people give their democracy to a dictator, whether it’s Julius Caesar or Napoleon or Adolf Hitler. Ultimately, the general population goes along with the idea...
+ - Real love is on the inside. It’s somebody you have a common ground with, you share the same values, you share the same interests, you share the same humor, you share all those things that are things that will last you the rest of your life.
+ - If America is the pursuit of happiness, the best way to pursue happiness is to help other people.
+ - If the boy and girl walk off into the sunset hand-in-hand in the last scene, it adds 10 million to the box office.
+ - The one way the world hasn’t changed: teaching is still the most important job.
+ - Don’t avoid the cliches – they are cliches because they work!
+ - The best way to truly understand narrative art is to experience it.
+ - A talent is a combination of something you love a great deal and something you can lose yourself in – something that you can start at 9 o’clock, look up from your work and it’s 10 o’clock at night.
+ - From kindergarten to college, certain teachers engaged my curiosity and motivated me to learn. While I was not the best student, their efforts left a lasting impact.
+ - You don’t see the struggle part of a person’s life. You only see the success they have.
+ - All art is dependent on technology because it’s a human endeavour, so even when you’re using charcoal on a wall or designed the proscenium arch, that’s technology .
+ - I live a reasonably simple life, off the beaten track.
+ - Good luck has its storms.
+ - The story being told in ‘Star Wars’ is a classic one. Every few hundred years, the story is retold...
+ - Learning to make films is very easy. Learning what to make films about is very hard.
+ - Part of the reason my friends and I became successful is that we were always helping each other.
+ - I’ve always tried to be aware of what I say in my films, because all of us who make motion pictures are teachers – teachers with very loud voices.
+ - We were always dreaming of how it was going to be.
+ - My first six years in the business were hopeless. There are a lot of times when you sit and you say “Why am I doing this? I’ll never make it. It’s just not going to happen. I should go out and get a real job, and try to survive.”
+ - For ‘Star Wars’ I had to develop a whole new idea about special effects to give it the kind of kinetic energy I was looking for. I did it with motion-control photography.
+ - I haven’t met anybody who hasn’t been able to describe years and years and years of very, very difficult struggle through the whole process of achieving anything whatsoever. And there’s no way to sort of get around that.
+ - You have to have a thick enough skin to cope with the criticism. I’m very self-critical and I have a lot of friends that I trust who are film directors and writers and people in my profession.
+ - Part of the issue of achievement is to be able to set realistic goals, but that’s one of the hardest things to do because you don’t always know exactly where you’re going, and you shouldn’t.
+ - I put all of my resources into pushing the evolution in an industry that is notoriously backwards and I enjoy pushing that envelope,.
+ - People who alter or destroy works of art and our cultural heritage for profit or as an exercise of power are barbarians.
+ - I like to say that films are never finished, they’re only abandoned.
+ - Young people don’t have a fantasy life anymore, not the way we did. All they’ve got is Kojak and Dirty Harry. There’s all these kids running around wanting to be killer cops.
+ - Sound is 50 percent of the movie going experience, and I’ve always believed audiences are moved and excited by what they hear in my movies at least as much as by what they see.
+ - Han Solo: Wonderful girl. Either I’m going to kill her or I’m beginning to like her.
+ - You try to get yourself into a situation where you only have to answer to yourself, where you can ask advice of people and work with your peers and mentors and things to try to do the best job that you can possibly do.
+ - Whenever you’re making a movie, especially when you’re writing, you always have self-doubts.
+ - Digital technology allows us a much larger scope to tell stories that were pretty much the grounds of the literary media.
+ - I’m aware that dialogue isn’t my strength. I use it as a device. I don’t particularly like dialogue which is part of the problem.
+ - On the Internet, all those same guys that are complaining I made a change are completely changing the movie. I’m saying: ‘Fine. But my movie, with my name on it, that says I did it, needs to be the way I want it.’
+ - I’m extremely grateful that I discovered my passion. I love movies. I love to watch them, I love to make them.
+ - The secret to film is that it’s an illusion.
+ - Emotionally involving the audience is easy. Anybody can do it blindfolded: get a little kitten and have some guy wring its neck.
+ - Success is a very difficult thing. It’s much more difficult than one might think.
+ - Making a film is like putting out a fire with sieve. There are so many elements, and it gets so complicated.
+ - A lot of people like to do certain things, but they’re not that good at it. Keep going through the things that you like to do, until you find something that you actually seem to be extremely good at. It can be anything.
+ - That had always been my purpose: to get people back in touch with what makes us so valuable as a human race.
+ - Star Wars is a saga of Good vs. Evil, divided into nine parts.
+ - If I had time and a hammer, I’d track down every bootleg copy and smash it.
+ - If you look at ‘Blade Runner,’ it’s been cut sixteen ways from Sunday, and there are all kinds of different versions of it.
+ - He took me from not being able to write a word in terms of writing screenplays to being the king of wooden dialogue.
+ - Ultimately the Force is the larger mystery of the universe. And to trust your feelings is your way into that.
+ - I’m moving away from the business, from the company, from all this kind of stuff.
+ - All the religions are true, they just see a different part of the elephant.
+ - I grew up in the era, ‘Don’t trust anybody over 30.’ And, you know, I still feel that. Don’t trust me.
+ - For the third trilogy, I don’t know if I will still be alive when it comes the time to make them.
+ - But having a really good understanding of history, literature, psychology, sciences – is very, very important to actually being able to make movies.
+ - I grew up in San Francisco. And so I’m informed in a certain kind of way about, you know, believing in democracy and believing in America. And I’m a very ardent patriot.
+ - I made lots of movies while in school while everybody else was running around saying, “Oh, I wish I could make a movie. I wish they’d give me some film.”
+ - Suddenly everything came together in one place. All my likes, everything I actually seemed to have talent for was right there. I said, “Hey, this is it. I can do this really well. I really love to do it.”
+ - Most artists, most painters, even composers would want to come back and redo their work. They’ve got a new perspective on it, they’ve got more resources, they have better technology, and they can fix or finish the things that were never done.
+ - My life is making movies. I like storytelling, and I’ve got a lot of stories that are stored up in my head that I hope to get out before my time is up.
+ - Luke: Boy, it’s lucky you have these compartments. Han: I use them for smuggling. I never thought I’d be smuggling myself in them. This is ridiculous.
+ - Storytelling is about two things; it’s about character and plot.
+ - Oh, my. I’d forgotten how much I hate space travel.
+ - Although I write screenplays, I don’t think I’m a very good writer.
+ - I loved photography and everybody said it was a crazy thing to do because in those days nobody made it into the film business. I mean, unless you were related to somebody there was no way in.
+ - In 3-D filmmaking, I can take images and manipulate them infinitely, as opposed to taking still photographs and laying them one after the other. I move things in all directions. It’s such a liberating experience.
+ - There wasn’t anything in my life that was going to stop me from making movies.
+ - You can’t put a title card at the head of the movie and say, “Well, we really had a bad problem. You know, the actor got sick and it rained this day and we had a hurricane.”
+ - Film is not an easy occupation. There’s a lot of occupations that are difficult and film is one of them.
+ - If this were a fantasy world, there would be ten of me and we would each be doing what we wanted to do.
+ - If you can tune into the fantasy life of an 11-year-old girl, you can make a fortune in this business.
+ - Today it is an amazing, if unexpected, legacy of Star Wars that so many gifted writers are contributing new stories to the Saga.
+ - I wanted to make abstract films that are emotional, and I still do.
+ - I like making movies. I like the process. I like trying out new ideas, and if they don’t work, they don’t work. That’s the reason I generated the money in the first place, to be able to try things. That’s where I spend my money.
+ - Football games are on TV, and it doesn’t affect stadium attendance at all. It’s the same with movies. People who really love movies and like to go out on a Saturday night will go to the movie theater.
+ - When you get a small group of fans who hate something, it becomes compounded by the internet. The press picks up the internet like it’s a source. They don’t realise it is just one person typing out their opinion.
+ - I am a giant proponent of giant screens. But I accept the fact that most of my movies are going to be seen on phones.
+ - The technology keeps moving forward, which makes it easier for the artists to tell their stories and paint the pictures they want.
+ - As a group, we are stronger than we are as individuals. We start to think we want everything for ourselves and we don’t want to help anybody else. We want to succeed, but we don’t want anybody else to succeed, because we want to be the winner.
+ - I like Star Wars, it’s fun and I enjoy doing it. But it’s definitely not my life. I’m a bigger movie fan than I am Star Wars fan. I like making movies.
+ - I regret not the things I have done, only those I have yet to do.
+ - It’s now time for me to pass Star Wars on to a new generation of filmmakers. I’ve always believed that Star Wars could live beyond me, and I thought it was important to set up the transition during my lifetime.
+ - The underlying issues, the psychological motives, in all my movies have been the same, he said. Personal responsibility and friendship, the importance of a compassionate life as opposed to a passionate life.
+ - A film is sort of binary – it either works or it doesn’t work. It has nothing to do with how good a job you do. If you bring it up to an adequate level where the audience goes with the movie, then it works, that is all.
+ - Obviously, people have a lot of different dreams of where America should be, and where it should fit into things. Obviously, very few of them are compatible, and very few of them are very compatible with the laws of nature.
+ - Even in high school I was very interested in history – why people do the things they do. As a kid I spent a lot of time trying to relate the past to the present.
+ - I want to live where I want to live, and I will make films because I love to make films.
+ - The older you get, the less seriously you take criticism. I’ve gotten to a point now where I ignore it completely. It’s just not relevant to me anymore.
+ - I think that Lethal Weapon-style dialogue is overused, it’s a necessary aspect of high action films where you have to have the smart retort. You have to say “I’ll be back baby” and stuff. It’s not my style.
+ - A special effect is a tool, a means of telling a story. A special effect without a story is a pretty boring thing.
+ - The script is what you’ve dreamed up-this is what it should be. The film is what you end up with.
+ - Film is a very tight little box. If you don’t fit in that box, you’re gone. Television, there’s more room to move around.
+ - Our system of education is locked in a time capsule. You want to say to the people in charge, ‘You’re not using today’s tools! Wake up!’
+ - I’ve had much more down in my life than I’ve had up. And much more struggle. First of all, when I went into the film school everybody said, “What are you doing? This is a complete dead-end for a career.”
+ - I am simply trying to struggle through life; trying to do God’s bidding.
+ - Art is the retelling of certain themes in a new light, making them accessible to the public of the moment.
+ - Being in Washington is more fictional than being in Hollywood.
+ - The first movies, they just put up a camera and had a train come into a train station, and everybody was amazed. That was sort of all technology.
+ - My success wasn’t based on how I could push down everybody that was around me. My success was based on how much I could push everybody up.
+ - None of the films I’ve done was designed for a mass audience, except for ‘Indiana Jones.’ Nobody in their right mind thought ‘American Graffiti’ or ‘Star Wars’ would work.
+ - Everyone seems to think that digital technology devoids the medium of content, but that is not true at all. If anything, it broadens the content.
+ - I’m here, and every day now is an extra day. I’ve been given an extra day so I’ve got to make the most of it.
+ - I’d be the first person to say I can’t write dialogue. My dialogue is very utilitarian and is designed to move things forward. I’m not Shakespeare. It’s not designed to be poetic.
+ - I thought Star Wars was too wacky for the general public.
+ - Whatever has happened in my quest for innovation has been part of my quest for immaculate reality.
+ - I’m very proud of all the movies I made. I am very happy with everything I’ve done. I like to watch my movies. Some of them work. Some of them don’t. Some of them people like, most of them they don’t.
+ - Although I write screenplays, I don’t think I’m a very good writer. I’m very interested in studying cultures and social issues, but as an academic I don’t think I would have been too successful.
+ - I am more of a visual person than a verbal person. For me, I think, the excitement is the fact that I found a way of telling the story as I want to tell it, in a medium that I could master.
+ - If I make a movie that has a whole bunch of music in it, I get to listen to the music all day long, and I don’t have to say, ‘Well, I gotta go back to work and I gotta stop listening to the music.’ I get to listen to music and go to work.
+ - You need peers; you need people who are at the same level you are. You never know in life when you’re going to need help, and you never know who you’re going to need it from.
+ - I like racing. I love the speed and I’m a very kinetic person in terms of filmmaking. I love the movement of film more than anything else.
+ - When my films don’t work it’s usually because I tried some very experimental idea. I tried new ideas and they just didn’t work, as opposed to trying to do something conventional and having it be so conventional nobody wanted to see it.
+ - It was the money from ‘Star Wars’ and ‘Jaws’ that allowed the theaters to build their multiplexes, which allowed an opening up of screens.
+ - One thing about ‘Star Wars’ that I’m really proud of is that it expands the imagination. That’s why I like the ‘Star Wars’ toys.
+ - I think as you grow up, you realize you have obligations just in your life – being a citizen, being part of humanity – to help other people, to help your country, to help the world.
+ - These Are Not The Droids You Are Looking For.
+ - I’ve always just followed my own course, whatever I found the most interesting to me at the moment. I’ve never had a real plan of, “I want to get from here to there, and I’ve got to do this.”
+ - There wasn’t much as a kid that inspired me in what I did as an adult, but I was always very interested in what motivates people, and in telling stories and building things.
+ - People look at technology as sometimes an end to things, and it isn’t an end in certain cases. In the movie business, the act of creating in the art form of movies, the craft of movies is completely technical, and that’s all it is.
+ - The ideals and principles for which Dr King fought have never been forgotten and are as relevant today as they were 40 years ago.
+ - There wasn’t much as a kid that inspired me in what I did as an adult.
+ - When you are a beginning film maker you are desperate to survive. The most important thing in the end is survival and being able to get to your next picture.
+ - I thought it was too wacky for the general public. On his original opinion of his movie’s chances for success, 1997.
+ - One of the most telling things about film school is you’ve got a lot of students wandering around saying, “Oh, I wish I could make a movie. I wish I could make a move.”
+ - I would like to see our society mature, and become more rational and more knowledge-based, less emotion-based.
+ - There is no why. We are. Life is beyond reason.
+ - I was never interested in being powerful or famous. But once I got to film school and learned about movies, I just fell in love with it. I didn’t care what kind of movies I made.
+ - Over time I began to realize that the level of cinema criticism in the last part of XX century in the United States was pretty low. The institution itself is not what it’s supposed to be, and I realized that I didn’t need to take that seriously.
+ - I must admit I suffered a bit when I first came to England. But then I realised that there was nothing to be intimidated by, everybody had two legs.
+ - From the outset, I conceived Star Wars as a series of six films, or two trilogies.
+ - To be renewed is everything. What more could one ask for than to have one’s youth back again?
+ - Changes are not unusual – I mean, most movies, when they release them, they make changes. But somehow, when I make the slightest change, everybody thinks it’s the end of the world.
+ - After you’ve done the first feature, then you have heck of a difficult time getting your second film off the ground. They look at your first film and they say, “Oh well, we don’t want you anymore.”
+ - I’m not in a contest. I make movies. I’m not a racehorse...
+ - No film ever ends up exactly as you would like it to, but with minor exceptions, THX came out pretty much as I had visualized it, thanks to some excellent assistance – and a whole lot of luck.
+ - I am very concerned about our national heritage, and I am very concerned that the films that I watched when I was young and the films that I watched throughout my life are preserved, so that my children can see them.
+ - I was always extremely curious about why people did the things they do.
+ - After a lot of struggling and sort of reflection I realized that the time you have to give is now, regardless of how old you are.
+ - In my films, all the great things are put together. It’s not like one kind of ice cream but rather a very big Sundae.
+ - You may make something you don’t think is very important during your lifetime and it’ll last for a thousand years.
+ - The easiest job you’ll ever get is to try to make your first film. That’s the easy one to get, is the first film because nobody knows whether you can make a film or not.
+ - It’s not a matter of how well can you make a movie. It’s how well can you make it under the circumstance, because there’s always circumstances. You cannot use that as an excuse.
+ - We seemed to be drifting as a society – losing touch with the basic concepts of right and wrong.
+
+176 quotes

@@ -1,0 +1,83 @@
+ - All of our technology is completely unnecessary to a happy life.
+ - The art of living is the art of bringing dreams and reality together.
+ - Faffing is good. It is an important part of life. Faffing is when we disconnect from the matrix and idle for a while, like a car. Our body and spirit know deep down that human beings were not made for constant toil so subconsciously creates space through the mechanism of faffing.
+ - Pain will never leave us. Instead of putting energy into destroying pain, we need to put energy into creating pleasure.
+ - In the West, we have become addicted to work. Americans now work the longest hours in the world. And the result is not health, wealth and wisdom, but rather a lot of anxiety, a lot of ill health and a lot of debt.
+ - We have become so obsessed by numbers and by bottom lines that beauty and truth has been knocked aside.
+ - Punk was a protest against work and against boredom. It was a sign of life, a rant, a scream, a rejection of bourgeois morals. But have things improved since then? Arguably, they’ve got worse.
+ - In both word and deed, one of the greatest idlers of all time was John Lennon. In his songs we see repeated defences of simply lying around doing nothing.
+ - Beauty, pleasure, freedom and plenty of sleep: these are the hallmarks of a successful idler’s break. Travel should not be hard work.
+ - Doing something you enjoy at times of your own choosing and making a living from it: now tell me, is that work?
+ - When the going gets tough, the tough take a nap.
+ - The way to stop feeling guilty is to read stuff – I’m not saying my book, but works by Bertrand Russell or Oscar Wilde, people who weren’t losers but who didn’t believe in the work ethic, and argued this thing about guilt or wrote philosophy about idleness.
+ - Labour-saving devices just make us try to cram more pointless activities into each day, rather than doing the important thing, which is to enjoy our life.
+ - Being lazy does not mean that you do not create. In fact, lying around doing nothing is an important, nay crucial, part of the creative process. It is meaningless bustle that actually gets in the way of productivity. All we are really saying is, give peace a chance.
+ - Faffing is completely harmless, whereas its opposite – dynamic, purposeful activity – is often very harmful. Faffers do not tend to kill people or make them work 12-hour days or sell them shoddy merchandise or lend them vast sums of money that they cannot pay back.
+ - Guilt is also a way for us to express to others that we are a person of good conscience.
+ - Computers tend to separate us from each other – Mum’s on the laptop, Dad’s on the iPad, teenagers are on Facebook, toddlers are on the DS, and so on.
+ - There’s nothing new about anti-work philosophy. History is dotted with individuals and groups who decided that laziness was next to godliness and work was a waste of time.
+ - Meetings, clearly, can take place anywhere, and wouldn’t it be nice to see your coworkers lounging on the grass with their shoes off?
+ - To me there is no more depressing sight than a five-year-old staring at a screen, unsmiling, mouse in hand. Besides whatever dreadful things this prolonged exposure to screens is doing to their brains, computer games tend to be solitary affairs, and produce little laughter.
+ - I count it as a certainty that in paradise, everyone naps.
+ - Life is becoming no more than staring at the screen.
+ - Truly, the bench is a boon to idlers. Whoever first came up with the idea is a genius: free public resting places where you can take time out from the bustle and brouhaha of the city, and simply sit and watch and reflect.
+ - Our dreams take us into other worlds, alternative realities that help us make sense of day-to-day realities.
+ - In a world where you are constantly asked to be ‘committed,’ it is liberating to give yourself the license to be a dilettante. Commit to nothing. Try everything.
+ - Laziness works. And the simple way to incorporate its health benefits into your life is simply to take a nap.
+ - As the son of a feminist mother, I grew up with the idea that work was a sort of salvation for women as it would give them freedom from the domestic grind. Now it seems work is a form of slavery, undertaken out of apparent compulsion rather than choice.
+ - Benjamin Franklin and the whole idea of a new attitude to money: “Time is money.” He invented that idea. Before that, time wasn’t money in the same way; in the medieval age it was regarded as sinful for money to be the object of your life.
+ - I seethe at the humiliation of airport security checks.
+ - A conclusion I’ve come to at the Idler is that it starts with retreating from work but it’s really about making work into something that isn’t drudgery and slavery, and then work and life can become one thing.
+ - My hope is that flexible working and varying shift patterns will give workers a taste for idling and that they will gradually demand greater reductions in the length of the working week.
+ - One aspect of fast London life I have never understood, for example, is the custom of the gym. Why do people go to gyms?
+ - We bore ourselves in order to earn money that we’ll later spend on trying to de-bore ourselves.
+ - When walking, you see things that you miss in a motor car or on the train. You give your mind space to ponder.
+ - I think it’s good to look at how people lived before, and then take the best bits of that culture and try to mix it in with your own.
+ - Life has been reduced to a series of long periods of boredom in the office punctuated by high-octane “experiences” which you can rack up on your list of things to do before you die. That’s not really living: that is slavery with the occasional circus thrown in.
+ - The reason laziness is rarely pushed as a lifestyle option is down to one simple reason: money. There are fortunes to be made out of active lifestyles. Gyms charge fees. But no one is going to make money out of sleep. It is free.
+ - Sensible people advise against drinking on an empty stomach, but to my mind it is the best sort of drinking.
+ - I’ve given up email. Well, almost. At the weekend I set up one of those auto-reply messages, informing my correspondents that I would no longer be checking my emails, and that instead they might like to call or write, as we used to in the olden days.
+ - All poets are idlers, even if all idlers are not poets.
+ - Alongside my ‘no email’ policy, I resolve to make better use of the wonderful Royal Mail, and send letters and postcards to people. There is a huge pleasure in writing a letter, putting it in an envelope and sticking the stamp on it. And huge pleasure in receiving real letters, too.
+ - I could happily lean on a gate all the livelong day, chatting to passers-by about the wind and the rain. I do a lot of gate-leaning while I am supposed to be gardening; instead of hoeing, I lean on the gate, stare at the vegetable beds and ponder.
+ - Embrace the faff. Stare out of the window. Bend paperclips. Stand in the middle of the room trying to remember what you came downstairs for. Pace. Drum your fingertips. Move papers around. Hum. Look at the garden.
+ - I would like to propose slow cycling. Commute by bike. At a stroke, you remove the need for and absurd cost of public transport. Cycling is almost completely free. There is no longer any need for the gym as you get fit by cycling. And you can go at your own pace.
+ - Beauty feeds us. Anarchy is beauty. We are against the grey people. We want to decorate, like those fantastic Indian lorries which are covered with flowers. Beauty must conquer the lust for order; order is ugliness.
+ - Faffing, of course, does not fit the programme. We are supposed to be busy, productive citizens.
+ - Life is about recapturing lost freedoms...
+ - The world’s richest half billion people – that’s about seven per cent of the global population – are responsible for fifty per cent of the world’s emissions.
+ - Long weekends at festivals, short weeks at home, all summer long: now that is surely preferable to the immense cost and headache of the nuclear family holiday in the sun?
+ - The best thing that can happen to anybody is to be sacked or made redundant because often that’s when you think, “I don’t want to become one of the living dead. I haven’t got anything to lose, now I can start to follow my own dreams.”
+ - We have to wonder whether digital technology, rather than making it easier to communicate, is actually doing the opposite. We now sit alone at a keyboard, firing off zeros and ones into the ether. Offices are silent.
+ - Idleness for me is not a giving up on life but a spirited grabbing hold of it.
+ - The terrible thing about the Internet and Amazon is that they take the magic and happy chaos out of book shopping. The Internet might give you what you want, but it won’t give you what you need.
+ - What is required as we travel towards full unemployment is not new legislation but a gradual change of mental attitude, a shift in values. As our taste for idling grows, we will refuse to work for old-fashioned bosses who demand a five-day, 40-hour, nine-to-five type week, or worse.
+ - What I’ve found in working less is you start to get a bit more involved in the more real politics, which is local politics that affect what’s going on in your own community.
+ - Often, the things that a lot of work has gone into have been incredibly bad because they’re over-worked.
+ - My idea of childcare at festivals is to sit at a trestle table with an ale while the kids run around and make up their own games.
+ - Although I played a lot of computer games in my 20s, now I have children of my own, I hate them with a passion.
+ - I don’t put much faith in the political system because it’s a question of how are you going to run capitalism, not how are we going to develop a different system to capitalism.
+ - These days we seem more bound to our bosses than ever before. We even identify our own selves with the jobs we do: ‘What do you do?’ is the first question we ask each other at parties, as if a job title could express a fundamental truth about our personality.
+ - I’ve never understood activity holidays since we seem to have far too much activity in our daily lives as it is. Find a culture where loafing is the order of the day and where they don’t understand our need to be constantly doing things. Find somewhere you can have a hammock holiday.
+ - The siesta provides a delightful detour from the working day and it also has a practical value as far as productivity is concerned. Winston Churchill had a good long siesta every day during the Second World War, and he said it was the thing that enabled him to cope with the pressure.
+ - Idleness allows you to turn a situation from boredom to pleasure.
+ - Paradoxically, to be truly idle, you also have to be efficient.
+ - Working is bad enough in the winter, but in the summer it can become completely intolerable. Stuck in airless offices, every fibre of our being seems to cry out for freedom. We’re reminded of being stuck in double maths while the birds sing outside.
+ - The idea of a government is to create an ordered, willing work force where there’s no trouble. I think idlers are generally seen as potentially dangerous because they’re asking questions.
+ - When you go for a walk, take seeds with you, poppies, rainbow chard, rocket. Plant them among the weeds in patches of wasteland. See what happens.
+ - What seems extraordinary is that the richest countries in the world, in terms of economic output, are the ones where we work hardest. You would have thought that the end of all this innovation, technological advancement, and financial wizardry should be to create less work, not more of it.
+ - I suddenly realised, hey, I’m not a lazy idiot, I’m an idler! It’s something to aspire to, it’s part of the creative process! That’s fantastic!
+ - Am I the only person in the world who is shocked and amazed at the ongoing flattery of uebergeek Mark Zuckerberg?
+ - Being good to people is the only insurance policy you need.
+ - Deleting 200 spams a day is a drag. And I was checking my email constantly, rather than getting on with my real work, which is reading and writing. Email was becoming a distraction, a burden rather than a liberation.
+ - Travelling fills me with dread.
+ - We have an idea that if something we’re doing isn’t actually earning money, or spending it, then it’s completely worthless. But if you start to work less, you can actually start to give more to society, but on a local level.
+ - It will soon be difficult to put up a shelf without a degree in shelf putting up.
+ - In this age of getting what you want and getting it now, the simple pleasure of browsing is often forgotten.
+ - Surely, anyway, a working day of eight or nine hours which is not split by a nap is simply too much for a human being to take, day in, day out, and particularly so in hot weather.
+ - Writing a book is a brilliant thing because once you’ve finished it, you’ve done it, and there’s the potential for it to go on earning you a living without you doing any more work on it. It’s absolutely ideal for an idler.
+ - If you look at the literature of the 19th century, you get things like Kafka and Dostoevsky, who basically write about feeling bored and alienated. That’s because we lost contact with the important things in life like work that you enjoy, or the garden, nature, your family and friends.
+ - Management gurus in general are, I think, best avoided. All too often they reduce your working life to a list of rules to be followed. Targets are aimed at. Goals kicked at. You then break the rules or forget them and, hey presto, you start beating yourself up.
+ - Part of this individualism is you feel this pressure that you alone have to conquer the world, and if you don’t work all the hours God gives then you start feeling really guilty. If you can stop feeling guilty, then I think it’s easier to start doing what you want to do.
+
+81 quotes

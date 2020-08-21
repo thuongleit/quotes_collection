@@ -1,0 +1,42 @@
+ - When we work, we work. When we pray, God works. ~~James Hudson Taylor
+ - In the midst of your battles, never forget that God loves you and He has a plan for you. ~~Joyce Meyer
+ - Your life as a Christian should make non believers question their disbelief in God. ~~Dietrich Bonhoeffer
+ - If I walk with the world, I can’t walk with God. ~~D.L. Moody
+ - Moses spent forty years thinking he was somebody; forty years learning he was nobody; and forty years discovering what God can do with a nobody. ~~D.L. Moody
+ - Trust God for the impossible-miracles are His department. Our job is to do our best, letting the Lord do the rest. ~~David Jeremiah
+ - You were made by God and for God, and until you understand that, life will never make sense. ~~Rick Warren
+ - Out of 100 men, one will read the Bible, the other 99 will read the Christian. ~~D.L. Moody
+ - Trust the past to the mercy of God, the present to His love, and the future to His providence. ~~Saint Augustine
+ - He must increase, but I must decrease. ~~John the Baptist
+ - Preach the Gospel at all times and when necessary use words. ~~Francis of Assisi
+ - A little faith will bring your soul to heaven; a great faith will bring heaven to your soul. ~~Charles H. Spurgeon
+ - Every Christian is either a missionary or an imposter. ~~Charles H. Spurgeon
+ - God loves each of us as if there were only one of us. ~~Saint Augustine
+ - Without God, we cannot. Without us, God will not. ~~Saint Augustine
+ - The greatest miracle that God can do today is to take an unholy man out of an unholy world, and make that man holy and put him back into that unholy world and keep him holy in it. ~~Leonard Ravenhill
+ - He wants all or nothing. The thought of a person calling himself a ‘Christian’ without being a devoted follower of Christ is absurd. ~~Francis Chan
+ - No healthy Christian ever chooses suffering; he chooses God’s will, as Jesus did, whether it means suffering or not. ~~Oswald Chambers
+ - Does being born into a Christian family make one a Christian? No! God has no grandchildren. ~~Corrie ten Boom
+ - The early Church was married to poverty, prisons and persecutions. Today, the church is married to prosperity, personality, and popularity. ~~Leonard Ravenhill
+ - Do all the good you can, by all the means you can, in all the ways you can, in all the places you can, at all the times you can, to all the people you can, as long as ever you can. ~~John Wesley
+ - Is prayer your steering wheel or your spare tire? ~~Corrie ten Boom
+ - God is most glorified in us when we are most satisfied in Him. ~~John Piper
+ - Give up your good ‘Christian’ life and follow Jesus. ~~Garrison Keillor
+ - Just because you go to church doesn’t mean you’re a Christian. I can go sit in the garage all day and it doesn’t make me a car. ~~Joyce Meyer
+ - Faith goes up the stairs that love has built and looks out the windows which hope has opened. ~~Charles H. Spurgeon
+ - In order for the light to shine so brightly, the darkness must be present. ~~Francis Bacon
+ - If you’re going to be a Christian, you’re going to change. You’re going to lose some old friends, not because you want to, but because you need to. ~~Johnny Cash
+ - We never grow closer to God when we just live life. It takes deliberate pursuit and attentiveness. ~~Francis Chan
+ - Tears shed for self are tears of weakness, but tears shed for others are a sign of strength. ~~Billy Graham
+ - In faith there is enough light for those who want to believe and enough shadows to blind those who don’t. ~~Blaise Pascal
+ - If Jesus had preached the same message that ministers preach today, He would never have been crucified. ~~Leonard Ravenhill
+ - The highest form of worship is the worship of unselfish Christian service. The greatest form of praise is the sound of consecrated feet seeking out the lost and helpless. ~~Billy Graham
+ - If you spend your whole life waiting for the storm, you’ll never enjoy the sunshine. ~~Morris L. West
+ - We must be global Christians with a global vision because our God is a global God. ~~John R.W. Stott
+ - The Christian life is not a constant high. I have my moments of deep discouragement. I have to go to God in prayer with tears in my eyes, and say, ‘O God, forgive me,’ or ‘Help me.’ ~~Billy Graham
+ - It represents a Bible verse I wear on my shoe. Philippians 4:13. It says ‘I can do all things through Christ who strengthens me.’ It’s also my mantra, how I get up for games and why I play the way I do. ~~Stephen Curry
+ - We must remember we are stewards of what God has provided for us, not owners. ~~Joyce Meyer
+ - Before becoming a Muslim, a Hindu, a Sikh or a Christian, let’s become a Human first. ~~Guru Nanak
+ - Christianity is a lifestyle. And being a Christian is more than a label. ~~Joyce Meyer
+
+40 quotes

@@ -1,0 +1,114 @@
+ - Your best teacher is your last mistake.
+ - The function of leadership is to produce more leaders, not more followers.
+ - The job of a leader today is not to create followers. It’s to create more leaders.
+ - A leader has the vision and conviction that a dream can be achieved. He inspires the power and energy to get it done.
+ - Moral courage is the highest expression of humanity...
+ - If you always vote for the lesser of two evils, you will always have evil, and you will always have less.
+ - There’s no better policy in a society then pursuing a health and safety of its people.
+ - Annual drug deaths: tobacco: 395,000, alcohol: 125,000, ‘legal’ drugs: 38,000, illegal drug overdoses: 5,200, marijuana: 0. Considering government subsidies of tobacco, just what is our government protecting us from in the drug war?
+ - The use of solar energy has not been opened up because the oil industry does not own the sun.
+ - Looking at virtual reality through computer screens, video game screens, and above all television screens is a denial of personality development. It’s a denial of socialization, of expansion of vocabulary, of interaction with real human beings.
+ - Power has to be insecure to be responsive.
+ - If you’re not turned on by politics, politics will turn on you.
+ - The only difference between the Republican and Democratic parties is the velocities with which their knees hit the floor when corporations knock on their door. That’s the only difference.
+ - Power concedes nothing without a demand. The struggle for justice must never be adjourned. The forces of injustice do not take vacations.
+ - Secrecy destroys accountability.
+ - Information is the currency of democracy. It’s denial must always be suspect.
+ - If you choose the lesser of two evils, you are still choosing evil.
+ - We are practicing what we preach so that we may preach what we practice.
+ - A society that has more justice is a society that needs less charity.
+ - Let it not be said by a future, forlorn generation that we wasted and lost our great potential because our despair was so deep we didn’t even try, or because each of us thought someone else was worrying about our problems.
+ - We must strive to become good ancestors.
+ - There can be no daily democracy without daily citizenship.
+ - The civil justice system is a backup system when the criminal justice system fails.
+ - I once said to my father, when I was a boy, ‘Dad we need a third political party.’ He said to me, ‘I’ll settle for a second.’
+ - Families are incubators for citizen activists.
+ - Today the large organization is lord and master, and most of its employees have been desensitized much as were the medieval peasants who never knew they were serfs.
+ - The essence of globalization is a subordination of human rights, of labor rights, consumer, environmental rights, democracy rights, to the imperatives of global trade and investment.
+ - The only true aging is the erosion of one’s ideals.
+ - Nothing can stop the power of an informed citizenry when it is empowered, organized, and motivated.
+ - Capitalism will always survive, because socialism will be there to save it.
+ - Is there a number or mark planned for the hand or forehead in a new cashless society? YES, and I have seen the machines that are now ready to put it into operation.
+ - National security is the fig leaf against freedom of information.
+ - She was the light of our lives, our anchor, compass and vision.
+ - The clinical definition of “fascism” is when private concentrated economic power takes government away from the people, turns government into a guarantor, a subsidizer, a covering of corporate power.
+ - If God hadn’t meant for us to eat sugar, he wouldn’t have invented dentists.
+ - The lesser of two evils, or the least of the worst, is not good enough for the American people anymore.
+ - This welfare for wealthy companies wastes taxpayer dollars, harms the environment, and makes a mockery of the recent reductions in federal social spending programs.
+ - For over half a century the automobile has brought death, injury, and the most inestimable sorrow and deprivation to millions of people.
+ - To top it off, for those of you who are interested in the economics, it costs more to pursue a capital case toward execution than it does to have full life imprisonment without parole.
+ - You should not allow yourself the luxuries of discouragement of despair. Bounce back immediately, and welcome the adversity because it produces harder thinking and harder drive to get to the objective.
+ - There is not enough self-consciousness about what a family can be, about what it can inherit from forbearers, and what new traditions it can start as a contributor to the community.
+ - The Democratic and Republican parties, two apparently distinct political entities feeding at the same corporate trough.
+ - Family values stand up to injustice and power outside the household.
+ - For almost seventy years the life insurance industry has been a smug sacred cow feeding the public a steady line of sacred bull.
+ - General Motors could buy Delaware if DuPont were willing to sell it.
+ - Addiction should never be treated as a crime. It has to be treated as a health problem. We do not send alcoholics to jail in this country. Over 500,000 people are in our jails who are nonviolent drug users.
+ - Obviously, the answer to oil spills is to paper-train the tankers.
+ - People are stunned to hear that one company has data files on 185 million Americans.
+ - The world is shaped by different people with certain personalities that come out of different upbringings.
+ - Ronald Reagan is the most ignorant president since Warren Harding.
+ - I think George W. Bush’s personality was overwhelmingly shaped in negative ways by his upbringing.
+ - A wasteful defense is a weak defense.
+ - Competition, free enterprise, and an open market were never meant to be symbolic fig leaves for corporate socialism and monopolistic capitalism.
+ - No presidential candidate should visit Las Vegas without condemning organized gambling.
+ - Democrats have become very good at electing very bad Republicans.
+ - The nation is faced with one of the most corporate-orientated anti-consumer Congresses in our history.
+ - The corporations are worried about their reputational damage and a lot of the social media inflicts that, but it’s hard to measure it.
+ - The shortcomings of America’s political leaders do not stop at our borders.
+ - Young wives are the leading asset of corporate power. They want the suburbs, a house, a settled life, and respectability. They want society to see that they have exchanged themselves for something of value.
+ - End perverse incentives that reward Wall Street speculators.
+ - Our founders did not oust George III in order for us to crown Richard I.
+ - The accountability of government has gone to the point where the very use of the law is the instrument of illegality.
+ - We have an underdeveloped democracy and overdeveloped plutocracy.
+ - The various Social Security privatization schemes, full and partial, would cost both the ‘social’ – that is the public, cooperative, societal – element of the program and ‘security’ – the rock-solid income guarantee afforded by the system. It should be rejected.
+ - When do corporations begin to lose their credibility? They fought Social Security, Medicare, auto safety. They fought every social justice movement in this country.
+ - The concept of individual with a conscience is one whose highest allegiance is to his fellow man.
+ - This country has far more problems than it deserves and far more solutions than it applies.
+ - The ‘democracy gap’ in our politics and elections spells a deep sense of powerlessness by people who drop out, do not vote, or listlessly vote for the ‘least worst’ every four years and then wonder why after every cycle the ‘least worst’ gets worse.
+ - If, during the Second World War, the United States had retooled its factories for manufacturing bicycles instead of munitions, we’d be one of the healthiest, least oil-dependent, and most environmentally-sound constituents in the Nazi empire today.
+ - People are interested in family traditions, and I think a lot of families can benefit from some of the ways that my parents dealt with the challenges of raising four kids.
+ - Things have gotten so bad in this country, you look back at Richard Nixon with nostalgia.
+ - The corporations don’t like open courts of law, trials by jury. They want to privatize by pushing people into compulsory arbitration where they win most of the time and the whole process is pretty secret.
+ - Sanctions against polluters are feeble and out of date, and are rarely invoked.
+ - President Reagan was elected on the promise of getting government off the backs of the people and now he demands that government wrap itself around the waists of the people.
+ - The corporate lobby in Washington is basically designed to stifle all legislative activity on behalf of consumers.
+ - I don’t like too much by-standing, on-looking, and spectator-behavior in people’s lives.
+ - Members of Congress are like the voters in one respect – they want to go with the winners.
+ - I have a consistent rule: The American people should know as much about the Pentagon as the Soviet Union and China do, as much about General Motors as Ford does, and as much about City Bank as Chase Manhattan does.
+ - The whole story of human history is: The blasphemy of today is the commonplace of tomorrow.
+ - If you know what’s going on and know how society can be improved and happiness advanced, you tend to focus on how to get things done that will help health, safety, opportunity, justice, accountability of powerful institutions to the people they are supposed to serve.
+ - I don’t think meals have any business being deductible. I’m for separation of calories and corporations.
+ - John D. Rockefeller wanted to dominate oil, but Microsoft wants it all, you name it: cable, media, banking, car dealerships.
+ - A citizenship of wholesale delegation and abdication to public and private power systems, such as prevails now, makes such periodic checks as elections little more than rituals.
+ - Up against the corporate government, voters find themselves asked to choose between look-alike candidates from two parties vying to see who takes the marching orders from their campaign paymasters and their future employers. The money of vested interest nullifies genuine voter choice and trust.
+ - I enjoy my work so much that I have to be pulled away from my work into leisure.
+ - The networks are not some chicken-coop manufacturing lobby whose calls nobody returns.
+ - It is fascinating to watch legislators turn away from their usual corporate grips when they hear the growing thunder of the people.
+ - The central challenge for any company, regardless of its size, is to keep doing a better job for its customers.
+ - The liberal intelligentsia has allowed its party to become a captive of corporate interests.
+ - The progress of history is to take the impossible and turn it into the possible.
+ - Arbitration is private. It doesn’t have the tools to dig into the corporate files. It’s usually controlled by arbitrators who want repeat business from corporations not from the injured person.
+ - We don’t measure whether an economy is developing. We just measure whether companies are selling more, whether inventories are up or down, not whether the health, safety and economic well-being of people are being advanced.
+ - Every time I see something terrible, it’s like I see it at age 19. I keep a freshness that way.
+ - The history of successful cases, some of which are in this museum, illustrates that often the regulators and legislatures don’t wake up until some plaintiff gets a lawyers and digs out the cover-ups and the incriminating information about a safety defect in an automobile or another product.
+ - When people ask, ‘Why should the rich pay a larger percent of their income than middle-income people?’ My answer is not an answer most people get: It’s because their power developed from laws that enriched them.
+ - The corporations have become our government. They’re not just influential. Department by department, you name it, they put their people in high government positions, they have 10,000 PACs and 35,000 lobbyists, so there’s no more opening to be heard.
+ - The reason that democracies always defeat dictatorships is because they’re open to debate. We should never allow Washington to say, ‘Shut up, get in line and wave the flag.’
+ - It was an injured worker finding a lawyer on a contingent fee in a little town in Texas that blew the top off one of the greatest industrial disasters in American history.
+ - The flow from knowledge to action draws upon the complete person with his or her catalyst and synergistic potential.
+ - Washington DC is corporate-occupied territory.
+ - As a public interest lawyer, your fund of injustice will never be empty.
+ - The food industry, its trade associations, and research foundations, is well financed and highly organized to pressure the FDA.
+ - There are some people in this world who would never plant a seed because it doesn’t produce fruit the first season.
+ - I think Hillary Clinton is a militarist. She is a political coward. The interesting thing about Hilary Clinton, like Bill Clinton dodging the draft, he never touched the Pentagon – she is in the same position.
+ - Let’s not just look at it as taking votes away from Gore. Our support comes from a lot of people.
+ - If it is unpatriotic to tear down the flag, which is a symbol of the country, why isn’t it more unpatriotic to desecrate the country itself-to pollute, despoil and ravage the air, land and sea.
+ - The Israeli puppeteer travels to Washington and meets with the puppet in the White House. He then goes down Pennsylvania Avenue and meets with the puppets in Congress. The Israeli leader then ‘brings back millions of dollars’ in aid to Israel.
+ - Nothing short of a federal investigation can begin to disclose the abuses which have woven a fine web of mutually implicating relationships between businessmen and government officials.
+ - Everything will be solar in 30 years.
+ - You just can’t get anything done. You can’t get hearings, you can’t get legislation, you can’t get responses by the regulatory agencies – you can’t get anything done. I’m a realist. I don’t work harder and harder to get less and less.
+ - George W. Bush is very vulnerable but not if you campaign the way the major candidates – except for Dean and Kucinich – are campaigning.
+ - Word of mouth is the most effective means of communication.
+
+112 quotes

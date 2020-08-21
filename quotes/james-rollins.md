@@ -1,0 +1,30 @@
+ - Festina lente. Make haste slowly.
+ - Always respect Mother Nature. Especially when she weighs 400 pounds and is guarding her baby.
+ - Often life asks much of you, and you either honor life by answering with all your heart, or you cower your way into your grave.
+ - It ain’t always rocket science, sometimes a door is just a door.
+ - Books are keys that open many doors – James Rollins.
+ - The strong were always eating the weak.
+ - The hope for our nation and our world lies within our ability to innovate and move forward technologically.
+ - I was all set to blow some crap up.
+ - Throughout history, knowledge rises and falls, ebbs and flows. What once was known is forgotten again, lost in time, sometimes for centuries, only to be rediscovered ages later.
+ - A war is coming, a battle that will stretch from the prehistoric forests of the ancient past to the cutting-edge research labs of today, all to reveal a true mystery buried deep within our DNA, a mystery that will leave readers changed forever .
+ - The truth is often one’s best shield.
+ - The turning point was when I hit my 30th birthday. I thought, if really want to write, it’s time to start. I picked up the book How to Write a Novel in 90 Days. The author said to just write three pages a day, and I figured, I can do this. I never got past Page 3 of that book.
+ - Andy Harp’s RETRIBUTION is a stunner: a blow to the gut and shot of adrenaline. Here is a novel written with authentic authority and bears shocking relevance to the dangers of today. It reminds me of Tom Clancy at his finest. Put this novel on your must-read list-anything by Harp is now on mine.
+ - I don’t actually have a one wellspring of inspiration. Though I’m most often inspired while reading – both fiction and nonfiction.
+ - When someone is always looking over their shoulder, they’re more likely to trip.
+ - When mankind pushes, natures sometimes pushes back.
+ - Biblical references about knowledge and good and evil often get tangled up.
+ - I read anything I could get my hands on: science fiction, fantasy, horror, thrillers. I even became hooked on the Bantam reprints of the old pulp novels from thirties and forties: Doc Savage, The Shadow, The Avenger.
+ - I subscribe to National Geographic, Scientific American, Discover, and a slew of other magazines. And it is while reading articles for pleasure and interest that an interesting What if? will pop into my head.
+ - Often-times it’s madness, not genius that moves the world forward. Who else but the mad would reach so far, stretching for the impossible and, in so doing, prove the impossible possible!
+ - With two books a year, I don’t have time for writer’s block.
+ - Whenever I start a novel, I’m always looking for two things: a bit of science that makes me go ‘what if?’ and a piece of history that ends in a question mark.
+ - Guns, grendels, or nuclear bombs; take your pick.
+ - They wanted them to look like the Gods. God doesn’t look like this.
+ - I’m pretty disciplined to keep the momentum of a story going by writing everyday, even if it’s only a couple paragraphs or a page or two.
+ - I think the worst and most insidious procrastination for me is research. I will be looking for some bit of fact or figure to include in the novel, and before I know, I’ve wasted an entire morning delving into that subject matter without a word written.
+ - Generally, if you preface an interview request with, ‘I’m an author writing a book,’ for some reason, that seems to open a lot of doors.
+ - Fiction writing was in my blood from a very young age, but I never considered writing as a real career. I thought you had to have some literary pedigree to be a successful author, the son of Hemingway or Fitzgerald.
+
+28 quotes

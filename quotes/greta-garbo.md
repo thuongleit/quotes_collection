@@ -1,0 +1,47 @@
+ - There are some who want to get married and others who don’t. I have never had an impulse to go to the altar. I am a difficult person to lead.
+ - I only said, ‘I want to be left alone.’
+ - I never said, ‘I want to be alone.’ I only said, ‘I want to be let alone!’ There is all the difference.
+ - Perhaps it’s better if I live in your heart, where the world can’t see me. If I’m dead, there will be no stain on our love.
+ - Every one of us lives this life just once, if we are honest, to live once is enough.
+ - I wish I were supernaturally strong so I could put right everything that is wrong.
+ - It’s midnight. One half of Paris is making love to the other half.
+ - I like the sea: we understand one another. It is always yearning, sighing for something it cannot have; and so am I.
+ - There are many things in your heart you can never tell to another person. They are you, your private joys and sorrows, and you can never tell them. You cheapen yourself, the inside of yourself, when you tell them.
+ - Anyone who has a continuous smile on his face conceals a toughness that is almost frightening.
+ - I cannot see myself as a wife. Ugly word.
+ - I don’t like to talk to people, because I can’t express myself satisfactorily. I don’t say the things I mean.
+ - I always wanted to do my best. I got nothing free – I had to work hard.
+ - You don’t have to be married to have a good friend as your partner for life.
+ - Life would be so wonderful if we only knew what to do with it.
+ - Is there anything better than to be longing for something, when you know it is within reach?
+ - I have made enough faces.
+ - I’m tired and nervous and I’m in America. Here you don’t know that you live.
+ - I’m afraid of NOTHING except being bored!
+ - The story of my life is about back entrances, side doors, secret elevators and other ways of getting in and out of places so that people won’t bother me.
+ - Gimme a visky with a ginger ale on the side – and don’t be stinchy, beby.
+ - I don’t like writers. They’re dangerous people.
+ - How can one change one’s entire life and build a new one on one moment of love? And yet, that’s what you make me want to close my eyes and do.
+ - It is bitter to think of one’s best years disappearing in this unpolished country.
+ - There is no one who would have me – I can’t cook.
+ - I live like a monk: with one toothbrush, one cake of soap, and a pot of cream.
+ - I’m not always sincere. One can’t be in this world, you know.
+ - All alike, you men. You only want the satisfaction of being through with us first, that’s all. So far I’ve had the good fortune of beating you to it. So I am heartless.
+ - I’m a completely worthless woman and no man should risk his life for me.
+ - The mystery surrounding Garbo was as thick as a London fog.
+ - I always look well when I’m near death.
+ - I’ve always wanted two lives – one for the movies, one for myself.
+ - Mr. Hitler was big on me. He kept writing and inviting me to come to Germany, and if the war hadn’t started when it did, I would have gone and I would have taken a gun out of my purse and shot him, because I am the only person who would not have been searched.
+ - If you’re going to die on screen, you’ve got to be strong and in good health.
+ - I smoke all the time, one after the other.
+ - It could be so beautiful here if the Americans themselves had not made it so ugly with their big buildings, their millions of cars, and noise...
+ - There seems to be a law that governs all our actions so I never make plans.
+ - If you are blessed, you are blessed, whether you are married or single.
+ - I don’t want to be a silly temptress. I cannot see any sense in getting dressed up and doing nothing but tempting men in pictures.
+ - Except physically, we know little more about Garbo than we know about Shakespeare.
+ - I was always sad as a child, for as long as I can think back. I hated crowds of people, and used to sit in a corner by myself, just thinking.
+ - My talents fall within definite limitations. I am not as versatile an actress as some think.
+ - Being a movie star, and this applies to all of them, means being looked at from every possible direction. You are never left at peace, you’re just fair game.
+ - When one has not long to live, why shouldn’t one have fancies?
+ - I never met a man I could marry.
+
+45 quotes

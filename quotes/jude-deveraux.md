@@ -1,0 +1,23 @@
+ - My soul will find yours.
+ - Time has no meaning, Love will endure...
+ - I like you angry better than weepy.
+ - I’m rather hoping to find the Evil Queen. I think she’d be much more fun.
+ - I think I’d want to have an affair with a Montgomery but marry a Taggert.
+ - I’m an American and I want instant gratification.
+ - On his face was an expression of absolute love. Melting, soul-touching, raw, unbridled love, the kind of person dies for, sacrifices and suffers for. It was the kind of love that a person would wait two hundred years to see fulfilled. It was True Love in its purest form.
+ - It’s an odd thing about love. When someone you love cries, your heart melts. But when someone you don’t love cries, you look at them and think, Why are you telling ‘me’ this?
+ - What I do know is that I can’t hurt a ghost. I wish I could fall in love with Ann Stuart. I wish I could wed her and bed her and have children with her. I wish I could fill that huge house with little spirit children who would live forever and never die.
+ - Love can make even nice people do awful things.
+ - My university degree is in art and, yes, I do a lot of drawing for all my books. I have a big drafting table set up in a spare bedroom and I cover it with maps and house plans and sketches that I use in the books. Also, I truly love architecture, so that plays a big part in all my books.
+ - To be able to see the flaws in your own work is a gift.
+ - There are no new stories. It all depends on how you handle them. In romances the characters are going to fall in love with each other; you know that when you see the syrupy cover. It’s how get there that’s the fun.
+ - I don’t like to read books where I feel as though I’ve stepped into the middle of things and don’t know what’s going on. I like to see characters I’ve met before, but I don’t want to feel left out because I haven’t read other books in the series.
+ - We women aren’t good at hints. We like solid declarations of love and forever.
+ - I’ve come to realize that life is what you make it.
+ - There are some things that are as ancient as time, and knowing when a man desires you is one of those.
+ - What self-respecting male wanted a job being photographed?
+ - It was flattering to have someone listen so intently to something that was so personal.
+ - I have many things I want out of life, but I’m practical. I know that I must wait to get what I want.
+ - Everyone wanted his relatives to be proud of him, didn’t he?
+
+21 quotes

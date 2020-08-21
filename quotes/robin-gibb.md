@@ -1,0 +1,39 @@
+ - I love food, I love eating.
+ - I don’t take things for granted, because everything feels more fragile. It’s made me wonder about mortality and how long you’ve got somebody in the world. I’m more fearful than I used to be.
+ - The Bee Gees were always heavily influenced by black music. As a songwriter, it’s never been difficult to pick up on the changing styles of music out there, and soul has always been my favourite genre.
+ - I love stuff like Mozart.
+ - How do you explain the bond between man and wife? Well, for one thing, it’s private. What people do in their own marriage is their own business.
+ - I’m very proud of being a Bee Gee and am always aware that I’ll be identified as a Bee Gee.
+ - I visit English country churchyards where historical figures are buried.
+ - I sometimes wonder if the tragedies my family has suffered are a kind of karmic price for all the fame and fortune the Bee Gees have had.
+ - Losing people makes you realize you’ve got to grab life – not put things off.
+ - An artist is an artist because he is not happy with the world, so he creates his own existence.
+ - As the plane got closer to Miami, I had this terrible feeling he was dying. Maybe he was telling me that he was going. I felt anger, panic, despair and helplessness.
+ - My work means everything to me.
+ - I’ve always been naturally thin.
+ - I don’t like lifts and will walk up 20 flights of stairs if I have to. Crowded rooms make me uncomfortable, too, although I can sing to a stadium full of thousands of people no bother.
+ - Everyone’s looking to the urban scene for inspiration now.
+ - I’ll never get used to living without Mo, but the painful things that surround what happened to him aren’t so painful any more-not so raw or so new.
+ - If the heart stops for more than two minutes, you have massive brain death. There are only two minutes between our conscious world and zero. That’s how fragile our consciousness is.
+ - Music is being treated as one big karaoke machine.
+ - I’ve always been thin. If you go back to when we first started I’ve always been skinny.
+ - If some people can imagine that a person they love is alive in another world, why can’t I imagine Maurice is alive in this one An artist is a person who uses art to run away from reality. It’s not wrong-it’s survival. There’s nothing wrong with me creating a world in which Maurice is alive.
+ - Music became an obsession, and eventually we felt more comfortable with each other then we did with anyone else. The three of us were like one person.
+ - It’s hard for me to put on weight.
+ - I’m not a party person or someone who likes to sit and drink in clubs all night, and never really have been. I have a good time through work.
+ - We said we’d fly the flag without him and carry on. I didn’t give him a kiss because I still hadn’t accepted what was happening. I was hoping that some miracle was going to happen. Of course, it didn’t. I wish I had kissed him now.
+ - I don’t have too much faith in destiny, or an afterlife. This is it.
+ - I find it very, very hard. He was part of the fabric of my life. We were kids together, and teenagers. We spent the whole of our lives with each other because of our music.
+ - My whole life has been a bit like a Nintendo game.
+ - My idea of a good time is creating something and reading a good book.
+ - Lots of people aren’t comfortable with silences. They feel they’ve got to fill the dead air.
+ - We’ve been in each other’s pockets our entire lives.
+ - I haven’t really met anyone else who has influenced me, but you never know, it could happen next year or next month. I just like to go with the spur of the moment.
+ - It just felt like the right time to focus on solo material.
+ - I don’t know what ‘home’ or ‘abroad’ is any more.
+ - I don’t like rock opera with back beats.
+ - I don’t like fruit but I’m vegetarian, so eat a lot of veggies.
+ - I’m really happy that I got to work with such fresh talent. In a day when record companies are not particularly good at encouraging young, talented songwriters to come forward and get exposure, I think it’s important to give tomorrow’s songwriters the opportunity.
+ - If even a small portion of the praise that is bestowed on Michael Jackson now in death was given to him last year, in life, he might well still be with us.
+
+37 quotes

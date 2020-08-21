@@ -1,0 +1,56 @@
+ - All things are difficult before they are easy. ~~Thomas Fuller
+ - Life is 10% what happens to you and 90% how you react to it. ~~Charles R. Swindoll
+ - The past has no power over the present moment. ~~Eckhart Tolle
+ - Either you run the day or the day runs you. ~~Jim Rohn
+ - You cannot have a positive life and a negative mind. ~~Joyce Meyer
+ - If opportunity doesn’t knock, build a door. ~~Milton Berle
+ - We are all here for some special reason. Stop being a prisoner of your past. Become the architect of your future. ~~Robin S. Sharma
+ - Always turn a negative situation into a positive situation. ~~Michael Jordan
+ - The best revenge is massive success. ~~Frank Sinatra
+ - If we’re growing, we’re always going to be out of our comfort zone. ~~John C. Maxwell
+ - There are always flowers for those who want to see them. ~~Henri Matisse
+ - The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will. ~~Vince Lombardi
+ - If you realized how powerful your thoughts are, you would never think a negative thought. ~~Peace Pilgrim
+ - Hope is a waking dream. ~~Aristotle
+ - Even if you are on the right track, you’ll get run over if you just sit there. ~~Will Rogers
+ - Many of life’s failures are people who did not realize how close they were to success when they gave up. ~~Thomas A. Edison
+ - Nurture your mind with great thoughts, for you will never go any higher than you think. ~~Benjamin Disraeli
+ - I am the greatest, I said that even before I knew I was. ~~Muhammad Ali
+ - The only way of finding the limits of the possible is by going beyond them into the impossible. ~~Arthur C. Clarke
+ - It is said that the darkest hour of the night comes just before the dawn. ~~Thomas Fuller
+ - The positive thinker sees the invisible, feels the intangible , and achieves the impossible. ~~Winston Churchill
+ - Keep your face to the sun and you will never see the shadows. ~~Helen Keller
+ - With everything that has happened to you, you can either feel sorry for yourself or treat what has happened as a gift. Everything is either an opportunity to grow or an obstacle to keep you from growing. You get to choose. ~~Wayne W. Dyer
+ - I have not failed. I’ve just found 10,000 ways that won’t work. ~~Thomas A. Edison
+ - When you want something, all the universe conspires in helping you to achieve it. ~~Paulo Coelho
+ - An attitude of positive expectation is the mark of the superior personality. ~~Brian Tracy
+ - It does not matter how slowly you go as long as you do not stop. ~~Confucius
+ - Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner. ~~Arnold Schwarzenegger
+ - There are two ways of spreading light: to be the candle or the mirror that reflects it. ~~Edith Wharton
+ - Victory is sweetest when you’ve known defeat. ~~Malcolm S. Forbes
+ - Be not afraid of life. Believe that life is worth living, and your belief will help create the fact. ~~William James
+ - That which does not kill us makes us stronger. ~~Friedrich Nietzsche
+ - The foolish man seeks happiness in the distance; the wise grows it under his feet. ~~James Oppenheim
+ - Turn your wounds into wisdom. ~~Oprah Winfrey
+ - Once you replace negative thoughts with positive ones, you’ll start having positive results. ~~Willie Nelson
+ - We must embrace pain and burn it as fuel for our journey. ~~Kenji Miyazawa
+ - We can complain because rose bushes have thorns, or rejoice because thorn bushes have roses. ~~Abraham Lincoln
+ - There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative. ~~W. Clement Stone
+ - The greatness of a man is not in how much wealth he acquires, but in his integrity and his ability to affect those around him positively. ~~Bob Marley
+ - The way I see it, if you want the rainbow, you gotta put up with the rain. ~~Dolly Parton
+ - Write it on your heart that every day is the best day in the year. ~~Ralph Waldo Emerson
+ - Eighty percent of success is showing up. ~~Woody Allen
+ - I have found that if you love life, life will love you back. ~~Arthur Rubinstein
+ - I may not have gone where I intended to go, but I think I have ended up where I needed to be. ~~Douglas Adams
+ - The best way out is always through. ~~Robert Frost
+ - Positive anything is better than negative nothing. ~~Elbert Hubbard
+ - I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. ~~Og Mandino
+ - Every strike brings me closer to the next home run. ~~Babe Ruth
+ - Perpetual optimism is a force multiplier. ~~Colin Powell
+ - You must not allow yourself to dwell for a single moment on any kind of negative thought. ~~Emmet Fox
+ - There are two ways of exerting one’s strength: one is pushing down, the other is pulling up. ~~Booker T. Washington
+ - Adopting the right attitude can convert a negative stress into a positive one. ~~Hans Selye
+ - Positive thinking will let you do everything better than negative thinking will. ~~Zig Ziglar
+ - Happiness equals reality minus expectations. ~~Tom Magliozzi
+
+54 quotes

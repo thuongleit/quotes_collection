@@ -1,0 +1,23 @@
+ - All calculations based on experience elsewhere, fail in New Mexico.
+ - A man is never so on trial as in the moment of excessive good fortune.
+ - Pure wisdom always directs itself towards God; the purest wisdom is knowledge of God.
+ - While craving justice for ourselves, it is never wise to be unjust to others.
+ - When people are lonely they stoop to any companionship.
+ - Repentance must be something more than mere remorse for sins: it comprehends a change of nature befitting heaven.
+ - The happiness of love is in action; its test is what one is willing to do for others.
+ - This soldiering thing sadly deadens that very good thing, humanity.
+ - As a rule, there is no surer way to the dislike of men than to behave well where they have behaved badly.
+ - Pride is never so loud as when in chains.
+ - The smallest bird cannot light upon the greatest tree without sending a shock to its most distant fiber.
+ - Would you hurt a woman worst, aim at her affections.
+ - The monuments of the nations are all protests against nothingness after death; so are statues and inscriptions; so is history.
+ - A man thirty years old, I said to myself, should have his field of life all ploughed, and his planting well done; for after that it is summer time.
+ - To begin a reform, go not into the places of the great and rich; go rather to those whose cups of happiness are empty – to the poor and humble.
+ - The architect had not stopped to bother about columns and porticos, proportions or interiors, or any limitation upon the epic he sought to materialize; he had simply made a servant of Nature – art can go no further.
+ - What children we are, even the wisest! When God walks the earth, his steps are often centuries apart.
+ - Sympathy is in great degree a result of the mood we are in at the moment; anger forbids the emotion. On the other hand, it is easiest taken on when we are in a state of most absolute self-satisfaction.
+ - It is never wise to slip the bands of discipline.
+ - Youth is but the painted shell within which, continually growing, lives that wondrous thing the spirit of a man, biding its moment of apparition, earlier in some than in others.
+ - As a rule, he fights well who has wrongs to redress; but vastly better fights he who, with wrongs as a spur, has also steadily before him a glorious result in prospect – a result in which he can discern balm for wounds, compensation for valor, remembrance and gratitude in the event of death.
+
+21 quotes

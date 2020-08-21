@@ -1,0 +1,115 @@
+ - CEOs are hired for their intellect and business expertise – and fired for a lack of emotional intelligence.
+ - IQ and technical skills are important, but Emotional Intelligence is the Sine Qua Non of Leadership.
+ - Empathy and social skills are social intelligence, the interpersonal part of emotional intelligence. That’s why they look alike.
+ - Positive work environments outperform negative work environments.
+ - When we focus on others, our world expands.
+ - Happy, calm children learn best.
+ - Gifted leadership occurs when heart and head – feeling and thought – meet. These are the two winds that allow a leader to soar.
+ - Emotional self-control – delaying gratification and stifling impulsiveness- underlies accomplishment of every sort.
+ - The best leaders don’t know just one style of leadership – they’re skilled at several, and have the flexibility to switch between styles as the circumstances dictate.
+ - Emotional self-awareness is the building block of the next fundamental emotional intelligence: being able to shake off a bad mood.
+ - As much as 80% of adult “success” comes from EQ.
+ - In a very real sense we have two minds, one that thinks and one that feels.
+ - True compassion means not only feeling another’s pain but also being moved to help relieve it.
+ - In a high-IQ job pool, soft skills like discipline, drive and empathy mark those who emerge as outstanding.
+ - Emotions are contagious. We’ve all known it experientially. You know after you have a really fun coffee with a friend, you feel good. When you have a rude clerk in a store, you walk away feeling bad.
+ - We learn best with focused attention. As we focus on what we’re learning, the brain maps that information on what we already know making new neural connections.
+ - One way to boost our will power and focus is to manage our distractions instead of letting them manage us.
+ - One aspect of a successful relationship is not just how compatible you are, but how you deal with your incompatibility.
+ - Research shows that for jobs of all kinds, emotional intelligence is twice as important an ingredient of outstanding performance as cognitive ability and technical skill combined.
+ - People learn what they want to learn. If learning is forced on us, even if we master it temporarily, it is soon forgotten.
+ - The emotional brain responds to an event more quickly than the thinking brain.
+ - Leaders with empathy do more than sympathize with people around them: they use their knowledge to improve their companies in subtle, but important ways.
+ - The basic premise that children must learn about emotions is that all feelings are okay to have; however, only some reactions are okay.
+ - For better or worse, intelligence can come to nothing when emotions hold sway.
+ - Attention is a little-noticed and underrated mental asset.
+ - Simple inattention kills empathy, let alone compassion. So the first step in compassion is to notice the other’s need. It all begins with the simple act of attention.
+ - The more time you put into practicing, then, the greater the payoff.
+ - Emotional intelligence begins to develop in the earliest years. All the small exchanges children have with their parents, teachers, and with each other carry emotional messages.
+ - If your emotional abilities aren’t in hand, if you don’t have self-awareness, if you are not able to manage your distressing emotions, if you can’t have empathy and have effective relationships, then no matter how smart you are, you are not going to get very far.
+ - Life without passion would be a dull wasteland of neutrality, cut off and isolated from the richness of life itself.
+ - When the eyes of a woman that a man finds attractive look directly at him, his brain secretes the pleasure-inducing chemical dopamine – but not when she looks elsewhere.
+ - Directing attention toward where it needs to go is a primal task of leadership.
+ - I don’t think focus is in itself ever a bad thing. But focus of the wrong kind, or managed poorly, can be.
+ - The amygdala in the emotional center sees and hears everything that occurs to us instantaneously and is the trigger point for the fight or flight response.
+ - Great leaders, the research shows, are made as they gradually acquire, in the course of their lives and careers, the competencies that make them so effective. The competencies can be learned by any leader, at any point.
+ - Scheduling down time as part of your routine is hard but worth it, personally, even professionally.
+ - What really matters for success, character, happiness and life long achievements is a definite set of emotional skills – your EQ – not just purely cognitive abilities that are measured by conventional IQ tests.
+ - Overloading attention shrinks mental control. Life immersed in digital distractions creates a near constant cognitive overload. And that overload wears out self-control.
+ - Mindful meditation has been discovered to foster the ability to inhibit those very quick emotional impulses.
+ - Simply paying attention allows us to build an emotional connection. Lacking attention, empathy hasn’t a chance.
+ - Doggedness depends on emotional traits – enthusiasm and persistence in the face of setbacks – above all else.
+ - The near cousin of optimism is hope: knowing the steps needed to get to a goal and having the energy to pursue those steps. It is a primal motivating force, and its absence is paralyzing.
+ - For the High Achievers, Studying Gave Them The Pleasing, Absorbing Challenge of Flow Percent of the Hours They Spent as It.
+ - Remember, empathy need not lead to sympathetically giving in to the other side’s demands – knowing how someone feels does not mean agreeing with them.
+ - If you do a practice and train your attention to hover in the present, then you will build the internal capacity to do that as needed – at will and voluntarily.
+ - We need to re-create boundaries. When you carry a digital gadget that creates a virtual link to the office, you need to create a virtual boundary that didn’t exist before.
+ - Our passions, when well exercised, have wisdom; they guide our thinking, our values, our survival.
+ - Smart phones and social media expand our universe. We can connect with others or collect information easier and faster than ever.
+ - Like secondhand smoke, the leakage of emotions can make a bystander an innocent casualty of someone else’s toxic state.
+ - Whenever we feel stressed out, that’s a signal that our brain is pumping out stress hormones. If sustained over months and years, those hormones can ruin our health and make us a nervous wreck.
+ - Threats to our standing in the eyes of others are remarkably potent biologically, almost as powerful as those to our very survival.
+ - The other thing is that if you rely solely on medication to manage depression or anxiety, for example, you have done nothing to train the mind, so that when you come off the medication, you are just as vulnerable to a relapse as though you had never taken the medication.
+ - Compassion begins with attention.
+ - When I went on to write my next book, Working With Emotional Intelligence, I wanted to make a business case that the best performers were those people strong in these skills.
+ - The book is a dialogue between The Dalai Lama and a group of scientists about how we can better handle our destructive emotions and how to overcome them.
+ - One of the leading theories of why electroconvulsive therapy is effective for most severe depressions is that it causes a loss of short-term memory – patients feel better because they can’t remember why they were sad.
+ - Whoever has the mind to fight has broken his connection with the universe. If you try to dominate people you are already defeated. We study how to resolve conflict, not how to start it.
+ - In the new workplace, with its emphasis on flexibility, teams and a strong customer orientation, this crucial set of emotional competencies is becoming increasingly essential for excellence in every job in every part of the world.
+ - Daydreaming incubates creative discovery.
+ - The social brain is in its natural habitat when we’re talking with someone face-to-face in real time.
+ - Brain studies of mental workouts in which you sustain a single, chosen focus show that the more you detach from what’s distracting you and refocus on what you should be paying attention to, the stronger this brain circuitry becomes.
+ - Empathy represents the foundation skill for all the social competencies important for work.
+ - The people we get along with, trust, feel simpatico with, are the strongest links in our networks.
+ - Our emotional mind will harness the rational mind to its purposes, for our feelings and reactions – rationalizations – justifying them in terms of the present moment, without realizing the influence of our emotional memory.
+ - Empathic, emotionally intelligent work environments have a good track record of increasing creativity, improving problem solving and raising productivity.
+ - Motivation aside, if people get better at these life skills, everyone benefits: The brain doesn’t distinguish between being a more empathic manager and a more empathic father.
+ - But once you are in that field, emotional intelligence emerges as a much stronger predictor of who will be most successful, because it is how we handle ourselves in our relationships that determines how well we do once we are in a given job.
+ - Green is a process, not a status. We need to think of ‘green’ as a verb, not an adjective.
+ - Daydreaming defeats practice; those of us who browse TV while working out will never reach the top ranks. Paying full attention seems to boost the mind’s processing speed, strengthen synaptic connections, and expand or create neural networks for what we are practicing.
+ - A leader tuned out of his internal world will be rudderless; one blind to the world of others will be clueless; those indifferent to the larger systems within which they operate will be blindsided.
+ - Women, on average, tend to be more aware of their emotions, show more empathy, and are more adept interpersonally. Men on the other hand, are more self-confident and optimistic, adapt more easily, and handle stress better.
+ - Our genetic heritage endows each of us with a series of emotional set-points that determines our temperament. But the brain circuitry involved is extraordinarily malleable; temperament is not destiny.
+ - Fear, in evolution, has a special prominence: perhaps more than any other emotion it is crucial for survival.
+ - At last, psychology gets serious about glee, fun, and happiness. Martin Seligman has given us a gift-a practical map for the perennial quest for a flourishing life.
+ - People tend to become more emotionally intelligent as they age and mature.
+ - Teachers need to be comfortable talking about feelings. This is part of teaching emotional literacy – a set of skills we can all develop, including the ability to read, understand, and respond appropriately to one’s own emotions and the emotions of others.
+ - Once shoppers become empowered, we will facilitate industries thinking in completely new terms; for example, making products that are totally biodegradable.
+ - There is perhaps no psychological skill more fundamental than resisting impulse.
+ - Evolutionary theory holds that our ability to sense when we should be suspicious has been every bit as essential for human survival as our capacity for trust and cooperation.
+ - Empathetic people are superb at recognizing and meeting the needs of clients, customers, or subordinates. They seem approachable, wanting to hear what people have to say. They listen carefully, picking up on what people are truly concerned about, and respond on the mark.
+ - The more socially intelligent you are, the happier and more robust and more enjoyable your relationships will be.
+ - Societies can be sunk by the weight of buried ugliness.
+ - The emotional brain is highly attuned to symbolic meanings and to the mode Freud called the ‘primary process’ – the messages of metaphor, story, myth, the arts.
+ - We should spend less time ranking children and more time helping them to identify their natural competencies and gifts, and cultivate those.
+ - Making choices that improve things for all of us on the planet is an act of compassion, a simple act we can do any time we go shopping.
+ - Companies in the East put a lot more emphasis on human relationships, while those from the West focus on the product, the bottom line. Westerners appear to have more of a need for achievement, while in the East there’s more need for affiliation.
+ - Some children naturally have more cognitive control than others, and in all kids this essential skill is being compromised by the usual suspects: smartphones, TV, etc. But there are many ways that adults can help kids learn better cognitive control.
+ - Risk taking and the drive to pursue innovative ideas are the fuel that stokes the entrepreneurial spirit.
+ - While there I began to study the Asian religions as theories of mind.
+ - Teachers need to be comfortable talking about feelings.
+ - Well, any effort to maximize your potential and ability is a good thing.
+ - I would say that IQ is the strongest predictor of which field you can get into and hold a job in, whether you can be an accountant, lawyer or nurse, for example.
+ - When the darkness is seen as a necessary prelude to the creative light, one is less likely to ascribe frustration to personal inadequacy or label it as bad.
+ - Feelings are self-justifying, with a set of perceptions and “proofs” all their own.
+ - The human brain is by no means fully formed at birth. It continues to shape itself through life, with the most intense growth occurring during childhood.
+ - It is difficult to spread the contagion of excitement without having a sense of purpose and direction.
+ - However, I began meditating at about that time and have continued on and off over the years.
+ - Western business people often don’t get the importance of establishing human relationships.
+ - If you are doing mindfulness meditation, you are doing it with your ability to attend to the moment.
+ - Every morning, I go off to a small studio behind my house to write. I try to ignore all email and phone calls until lunchtime. Then I launch into the sometimes frantic busy-ness of a tightly scheduled day.
+ - We’re exposed and carry in our bodies multiple chemicals, and we have to understand how they interact. Both how they individually interact and the thousands of effects they can produce when they interact with the receptors that run our bodies.
+ - Want a happier, more content life? I highly recommend the down-to-earth methods you’ll find in ‘Mindfulness.’ Professor Mark Williams and Dr Danny Penman have teamed up to give us scientifically grounded techniques we can apply in the midst of our everyday challenges and catastrophes.
+ - Buying phosphate-free soap allows you to say, ‘My detergent doesn’t have the harsh chemicals others do.’ The question is, how are you washing with it? The very worst thing for the Earth about detergent is that we heat water to use it.
+ - Who does not recall school at least in part as endless dreary hours of boredom punctuated by moments of high anxiety?
+ - The industrial processes in use today were developed at a time when no one had to consider what the environmental impact was. Who cared? But making ecological concerns matter to a company’s bottom line will help it do the research and development that will reinvent everything we buy.
+ - But there has also been a notable increase in recent years of these applications by a much wider slice of psychotherapists – far greater interest than ever before.
+ - I think the smartest thing for people to do to manage very distressing emotions is to take a medication if it helps, but don’t do only that. You also need to train your mind.
+ - What seems to set apart those at the very top of competitive pursuits from others of roughly equal ability is the degree to which, beginning early in life, they can pursue an arduous practice routine for years and years.
+ - People who are optimistic see a failure as due to something that can be changed so that they can succeed next time around, while pessimists take the blame for the failure, ascribing it to some characteristic they are helpless to change.
+ - When it comes to exploring the mind in the framework of cognitive neuroscience, the maximal yield of data comes from integrating what a person experiences – the first person – with what the measurements show – the third person.
+ - My hope was that organizations would start including this range of skills in their training programs – in other words, offer an adult education in social and emotional intelligence.
+ - But the rational mind usually doesn’t decide what emotions we “should” have !
+ - Reducing the economic gap may be impossible without also addressing the gap in empathy.
+
+113 quotes

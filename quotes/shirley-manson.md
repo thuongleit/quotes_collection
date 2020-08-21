@@ -1,0 +1,76 @@
+ - I say embrace the total geek in yourself and just enjoy it. Life is too short to be cool.
+ - I am not a sexy woman, I’m not beautiful, I’m not a sex kitten, I don’t flirt with people, yet I’ve been tagged more of sex symbol than women who truly are and I that’s solely because I don’t reveal too much: people are curious.
+ - I love pop music. Who doesn’t?
+ - Somehow or another, my mother taught me to push through my fear, always. Feel the fear and do it anyway.
+ - I’m afraid of happy people. They’re chemically unbalanced.
+ - My solo album is dead and buried. We had the funeral. It was sad and I cried a lot but it made such a beautiful corpse that we had an open casket.
+ - The truth is, I’ve always been wracked with self-loathing and terrible, paralysing depression.
+ - I like the feeling that I’m giving young women self-confidence. It sounds so cliched, but it can be very moving.
+ - The sensation of never feeling good enough or pretty enough will always be there. It’s a constant dialogue, and you just learn to be more powerful than that other voice. When you hear it come up, you shut it down.
+ - I couldn’t feel good about myself hanging out in Armani clothes when my girlfriend can’t even pay her heating bill. I’d feel foul and I’d be embarrassed.
+ - Possibly because I grew up not feeling very confident about my own physical appearance, I developed internal devices so that I could integrate into society.
+ - If Jennifer Lopez could write songs like Fiona Apple’s, she wouldn’t have to spend so many hours at the gym.
+ - I wouldn’t say that cutting was pleasurable, but there is a sense of euphoria that follows cutting yourself. The quick pinch of pain and the sight of blood snaps you back to the surface and you start to appreciate being alive.
+ - I am a contradictory mess but I see it as my prerogative to change my mood like the weather.
+ - I’m 45 years old. I used to be a club girl, but that’s not my world anymore. That doesn’t mean I can’t make music that excites. I think it’s inspiring to see an artist you grew up with take another crack.
+ - You know, it doesn’t matter how beautiful you are, if you don’t have anything interesting to say, then you’re still boring.
+ - I am greedy, and most importantly, game for what’s next.
+ - People don’t associate red hair, pale skin, and freckles with beauty.
+ - I feel privileged, to be honest.
+ - It’s unhealthy for people to never express any kind of negativity or doubt. To have balance, you need to address that side of your thoughts as well as the positive. Otherwise, you tend toward crazy.
+ - I don’t find any kind of tension very productive, I find it destructive, actually.
+ - One day I realized that it didn’t matter whether people loved me or not.
+ - I just want to live my life a little freely and not adhere to any schedule – just make music and have fun.
+ - I have a temper on me that could hold back tides.
+ - A lot of celebrities just want money, fame, power, fancy cars, houses all over the world and have people BOW DOWN to them. To me, that’s frightful behaviour.
+ - I was a redhead and a middle child; both can make you feel excluded. It’s like fighting to be included, in the swim of things. After a while you start to develop a bit of a victim mentality, which isn’t great for a happy life.
+ - At the end of the day, though, the band members have to be strong. It’s down to the individuals in the unit. Listen to me, I’m talking like I’m in the army and this is my squadron.
+ - Humans all want to beat the clock but nobody ever does.
+ - You have to watch all sides of your advancement, you have to make sure people’s bodies and minds are healthy and their morale is cool before you can really go out and play great music.
+ - I refuse to step inside the ring and fight like a gladiator against my own. I’m not playing that game. Any woman who has survived a year or more of making music has my undying respect.
+ - Mozart was a punk, which people seem to forget. He was a naughty, naughty boy.
+ - I want to hear from the creature who isn’t blessed with unbelievable good looks and incredible genes. I want to hear from the geek girl, the forgotten girl, the invisible girl and the miserable girl.
+ - I want to hang out in Edinburgh with my friends and eat fish and chips wrapped in newspaper.
+ - In terms of fitting in, you know, I don’t have a lot of armor up. I’m a raw nerve and it’s really uncomfortable for a lot of people.
+ - I’ve got no timetable. I’m sort of sick of timetables, to be honest.
+ - I have women who offer to sleep with me all the time. But not men. They’re all talk and nay action – as we’d say in Scotland.
+ - It’s everywhere, constant criticism of women’s appearance in magazines and online. It’s not easy to navigate.
+ - I want to hear an alternative viewpoint, and I don’t want girls to be defanged and declawed and pretty and mute.
+ - It’s definitely an intrinsic part of my makeup that makes me want to see black when everyone else is seeing white.
+ - Pop music seems to be the way radio programming has chosen to support female artists. They have chosen not to support a more provocative voice from women, which I find disappointing.
+ - It is YOU who is so busy disrespecting artistry. You disrespect your own remarkable talents and more importantly you disrespect the talent, hard work, and tenacity of all artists when you go so rudely and savagely after such an accomplished and humble artist like BECK.
+ - I think young artists are always inspiring because they are coming at worlds from a different point of view.
+ - I plan on doing as much in my life as I possibly can.
+ - I am laughably aggressive, and the rest of the band is very laid back, so we mix well.
+ - I have a lot of very close girlfriends and sisters – I’m from an all female family. My father often quips that even the cat was neutered!
+ - Starbucks is my main fix and it’s usually you people working in there – sometimes they’re actually shaking. It just makes me feel horrendous because I’ve been in that situation.
+ - Until we command the exact same salary as every male counterpart, I feel a political desire to stand by other women. If we don’t stand together, that equality will never be fully realized, and that bothers me.
+ - Being a musician makes you very – musicians in general tend to be quite sensitive, I think, to the environment around them, which helps when you are trying to interact with others on screen, to be aware, to be sensitive, and to try to understand what’s going on in the scene.
+ - Obviously, from the experience you get from making videos, you understand where the camera is and how some of the actual technicalities work and so on and so forth.
+ - I think women in pop have been declawed and defanged, and they’re just meant to look pretty and sing pretty.
+ - We should never listen to our feelings. They lead us astray.
+ - It’s really difficult to navigate attention and stardom and celebrity status and still try to maintain yourself and hold onto your intelligence and integrity. It’s really challenging.
+ - What makes a woman stylish is what she has to say and how she chooses to live her life.
+ - No, I like being a role model because I know how much comfort my musical idols brought me.
+ - I would say I’m pretty well at ease with my sexuality, but I’m an individual before I am a female.
+ - I think it’s a great thing to have failed in life and then pulled yourself up by the boot straps and actually done something, because then you appreciate it more.
+ - A lot of people these days are not music lovers – they just want to be famous which is a very different thing to what I grew up believing in.
+ - I mean, I tend to do my own thing, and that usually crosses purposes with everyone around me.
+ - I’m 41, I’m a woman not a kid. I have no interest in making silly pop music.
+ - That’s a difficult question, because to consider yourself a rebel is sort of ridiculous.
+ - If you have any opinions at all or if you’re even remotely verbal then they’re going to call you fiery.
+ - Here’s the tragedy of the modern record business: It’s radio. If you’re not on radio, nobody really is going to hear you or see you or care about you.
+ - A lot of my friends are artists or musicians or single parent families and I’m totally aware of how difficult it is for them to make ends meet.
+ - You don’t really hear a female perspective on the radio, because so many of the songs are being written by men.
+ - I feel the same way I did when I was in school. I’m having the same insecurities.
+ - We’re living in a time when people are struggling to appear perfect.
+ - I’m fairly in control and I don’t like to flirt particularly. I mean, obviously if I meet someone who I think is hot, of course I’ll want to flirt with him, But in general I don’t use it in day-to-day life.
+ - I wanted to put out a solo record because I was stuck on a major label and sick of it.
+ - Everybody’s trying to be the biggest, because if you’re not the biggest, you don’t survive.
+ - It is so hard for musicians when they step into acting is they’re not coming in as a blank slate, they’re coming in with a real set idea of who they are, where they’re coming from, what their politics are, what their tastes are.
+ - I’ve got a lot of stamina and I enjoy people, so having lots of people around doesn’t freak me out.
+ - Being a singer, being a performer, you have tricks, somehow, to calm yourself when things feel a little overwhelming. I don’t do breathing exercises, per se, but I definitely have to have a sort of internal word with myself before things got completely out of hand and I fainted on the floor.
+ - When somebody asks me a question, I try to be as straightforward about it as possible. I try not to overthink what I’m going to say in an interview.
+ - I’ve always been an outsider. I am an outsider in Garbage. I’m the odd one out by default.
+
+74 quotes

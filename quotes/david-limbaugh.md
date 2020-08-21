@@ -1,0 +1,47 @@
+ - In consigning Elian back to slavery without a hearing, this administration is setting back the cause of freedom – in this country and in Cuba.
+ - Pacifism in the face of war is not only irresponsible – it is immoral. Refusing to meet force with force in the name of peace will beget not peace, but further death and destruction, the very violence the pacifists seek to avoid.
+ - Never in our history have we been headed at such breakneck speed toward our own financial, political and cultural destruction. One can only pray that before it’s too late, enough Democrats will come to their senses and help get this freight train under control.
+ - Karl Marx predicted the eventual withering away of the state and the ‘dictatorship of the proletariat,’ when the people would rule, which was sheer fantasy because it was sheer fantasy because it was based on grossly erroneous assumptions about human nature, as history would repeatedly demonstrate.
+ - The government is a heartbeat away from nationalizing health care based on deliberate misinformation about the nation’s uninsured and despite the 100 percent failure rate of such fantastic reforms elsewhere on the globe.
+ - Call me an alarmist, but we are witnessing the beginning of the most frightening period of government tyranny in our nation’s history.
+ - The Founding Fathers and our fathers are rolling over in their graves as this great country voluntarily abandons its dreams of equal opportunity, achievement and prosperity and sows the seeds of its own destruction.
+ - Socialism destroys the incentive to produce, dampens the human spsirit and results, ultimately, in less for everyone.
+ - Half-truths can be as deceptive as outright lies.
+ - For liberals, supposedly good intentions always trump results.
+ - Aren’t you tired of these career politicians on the left side of the aisle moralizing about the greed of the ‘wealthy’ when these same politicians habitually buy votes with borrowed dollars? Who are they to lecture those who actually produce and contribute to the economy?
+ - Democrats have always wanted to grow government with revenues from our society’s producers. They aren’t sincere about reducing the deficit, because they will not abandon their addiction to spending other people’s money.
+ - I am neither accusing President Obama of having committed high crimes and misdemeanors nor advocating his impeachment.
+ - Some of the reasons John McCain lost in 2008 were his lackluster campaign, his refusal to showcase Obama’s extreme liberalism and, thus, his failure to demonstrate why he would make a better president than Obama.
+ - Analysts may be correct that the presidential election won’t primarily turn on entitlements reform, but by choosing Paul Ryan as his running mate, Mitt Romney can, contrary to conventional wisdom, make it a winning issue and lay the foundation for a reform mandate when he wins.
+ - A president who believed that America’s greatness is recoverable and expandable – a chief executive determined to lead us back to national restoration – would reject the crippling notions of national impotency that Obama has embraced.
+ - When the coercive power of government is used to equalize incomes, it guarantees less prosperity across the board and spreads the misery, which is one of the many reasons Marxism and socialism have failed everywhere they’ve tried.
+ - Despite his profound incompetence on many levels, Obama has been an adept propagandist who has blamed capitalism for problems caused and magnified by socialist remedies to justify further socialist solutions. He’s now doing the same thing all over again as his new socialist solutions are failing.
+ - It’s truly hard to understand how liberal politicians, activists and journalists so consistently escape accountability for stoking the flames of racial disharmony while purporting to dampen them and for dividing our society along racial, gender, and economic lines while claiming to unite us.
+ - President Obama has admitted that Medicare is on an unsustainable course and that no amount of tax increases can fix it.
+ - Obama is a human wrecking ball single-handedly destroying our economy and bankrupting the nation.
+ - The political left, which holds itself as progressive, rational and fact-based, is becoming an enemy of academic inquiry, and a practitioner of thought control on a wide variety of issues. Increasingly, from the left’s perspective, there is just one acceptable viewpoint.
+ - Instead of using this space to pretend the newly released CIA ‘torture’ report confirms that the United States is the most evil nation in the history of the universe, I’m going to address Jonathan Gruber’s confirmation that he believes we’re all stupid.
+ - Obama’s personality traits, coupled with his extreme-leftist agenda, make him particularly dangerous to the American ideal and to the preservation of our founding principles, as well as to the liberty and prosperity they guarantee.
+ - The unmistakable lesson is that such is the myopic zealotry of environmentalists like Obama that they would implement policies virtually guaranteed to harm our economy significantly, even when they offer no promise of appreciable environmental benefits.
+ - If Republican legislators succumb to their political addiction to compromise for the sake of getting something passed, no matter how odious, they’ll be laying out the red carpet of inevitability for socialized care. Once government gets its foot in the door, more government control is unavoidable.
+ - Obama hasn’t been divisive just because his policies are so unpopular, though that’s a large part of it.
+ - We are living in a time when the very integrity of the Constitution is being threatened daily, from federal bailouts to federal assumption of control over private business.
+ - Americans oppose Obamacare because they understand that it is inconsistent with our liberties and our idea of limited government and that it will destroy the best health care system in the world.
+ - Obama ran on a platform of unmitigated optimism – a promise to usher in a brighter day for America. But there could hardly be a greater contrast between his pledge and his performance in office, between his commitment to the nation and his current abandonment of all hope.
+ - Obama is ratcheting up his class warfare to levels that would make Marxists blush.
+ - According to Gallup, Obama has already lost support among Jewish voters, down from 78 percent to 68 percent. If Romney shows that he is genuinely committed to Israel and that Obama is not, he’ll make further inroads.
+ - Obama and his Democrats need to be placed on the defensive. They are the primary drivers of this spending; they are the obstructers of entitlement reform and the national debt continues to burn while they fiddle.
+ - Obama liberals, in their incalculable arrogance, believe they are smart enough to defy everything we know about human nature, economics and history by insisting on separating financial efforts from rewards and pretending this can bring prosperity.
+ - Liberals insist they believe as strongly in the American dream as the rest of us, but routinely demonize those who succeed in attaining it. They loudly profess their allegiance to capitalism, but resent the inequitable money results it produces.
+ - Any concerns that Romney will adopt McCain’s milquetoast campaign model are quickly diminishing.
+ - Republicans are already on seriously thin ice, having presided over an era of unprecedented spending and consistently failing to articulate conservative principles on a wide variety of issues. But what Obama has in store will make President Bush appear, in retrospect, like a libertarian.
+ - Though there are many differences between Barack Obama and Jimmy Carter, they are strikingly similar in their poor economic records and even more so in their shared pessimism and bearishness on America.
+ - This is all disgraceful and underscores how imperative it is that Obamacare be fully repealed and that the newly elected GOP Congress get a backbone and stand up to this cadre of scofflaws.
+ - One might reasonably wonder whether any amount of failed results would cause liberals to reevaluate the wisdom – and even fairness – of their proposals.
+ - It must be easy to be a liberal. When your policies don’t work, you just change the goal posts and say we haven’t done enough – and then demand more.
+ - Mitt Romney has outdone himself in choosing Rep. Paul Ryan as his running mate.
+ - If you understand liberals at all, you know that they’ll never agree to market-based solutions for ideological reasons and because an expanding dependency class is their most essential power source.
+ - Obama’s position on marriage is brazenly cynical.
+ - We have to have structural entitlement reform, major spending cuts and not tax increase-retardants on economic growth to reverse our current course toward national bankruptcy, but Obama steadfastly remains on the wrong side of all these solutions.
+
+45 quotes

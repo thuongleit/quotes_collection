@@ -1,0 +1,42 @@
+ - Libraries are the thin red line between civilization and barbarism. ~~Neil Gaiman
+ - Civilization is in a race between education and catastrophe. Let us learn the truth and spread it as far and wide as our circumstances allow. For the truth is the greatest weapon we have. ~~H. G. Wells
+ - A civilization is born Stoic and dies Epicurean. ~~Will Durant
+ - There is no time for despair, no place for self-pity, no need for silence, no room for fear. We speak, we write, we do language. That is how civilizations heal. ~~Toni Morrison
+ - Reject the basic assumptions of civilization, especially the importance of material possessions. ~~Chuck Palahniuk
+ - Space, the final frontier. These are the voyages of the starship Enterprise. Its five-year mission: to explore strange new worlds, to seek out new life and new civilizations, to boldly go where no man has gone before. ~~Gene Roddenberry
+ - If you chase two rabbits, you will lose them both. ~~Leonard Nimoy
+ - Civilization is like a thin layer of ice upon a deep ocean of chaos and darkness. ~~Werner Herzog
+ - A civilization is not destroyed by wicked people; it is not necessary that people be wicked but only that they be spineless. ~~James Baldwin
+ - Civilization impairs physical fitness. ~~Joseph Pilates
+ - Our ability to reach unity in diversity will be the beauty and the test of our civilization. ~~Mahatma Gandhi
+ - In the twenty-first century, the robot will take the place which slave labor occupied in ancient civilization. ~~Nikola Tesla
+ - Early Charlie Munger is a horrible career model for the young because not enough was delivered to civilization in return for what was wrested from capitalism. And other similar career models are even worse. ~~Charlie Munger
+ - If you are not prepared to use force to defend civilization, then be prepared to accept barbarism. ~~Thomas Sowell
+ - Economics must not be relegated to classrooms and statistical offices and must not be left to esoteric circles. It is the philosophy of human life and action and concerns everybody and everything. It is the pith of civilization and of man’s human existence. ~~Ludwig von Mises
+ - A civilization is as great as its dreams, and its dreams are dreamt by artists. ~~L. Ron Hubbard
+ - Each new generation born is in effect an invasion of civilization by little barbarians, who must be civilized before it is too late. ~~Thomas Sowell
+ - The internet, our greatest tool of emancipation, has been transformed into the most dangerous facilitator of totalitarianism we have ever seen. The internet is a threat to human civilization. ~~Julian Assange
+ - Civilizations die from suicide, not by murder. ~~Arnold J. Toynbee
+ - I am become death, the destroyer of worlds. ~~J. Robert Oppenheimer
+ - Competition is the law of the jungle, but cooperation is the law of civilization. ~~Peter Kropotkin
+ - We have before us the glorious opportunity to inject a new dimension of love into the veins of our civilization. ~~Martin Luther King Jr.
+ - The first requisite of civilization is that of justice. ~~Sigmund Freud
+ - Civilization is the process of setting man free from men. ~~Ayn Rand
+ - Accommodation to change, the thoughtful pursuit of alternative futures are keys to the survival of civilization and perhaps of the human species. ~~Carl Sagan
+ - In the long run, the aggressive civilizations destroy themselves, almost always. It’s their nature. They can’t help it. ~~Carl Sagan
+ - What do I consider a teacher should be? One who breathes life into knowledge so that it takes new form in progress and civilization. ~~Helen Keller
+ - We can either build a Star Trek future, in which our civilization rises to new heights, or descend into a Mad Max world. It is up to us. ~~Vivek Wadhwa
+ - Where there are humans, You’ll find flies, And Buddhas. ~~Kobayashi Issa
+ - Love is the spirit of life unto the adorned body of mankind, the establisher of true civilization in this mortal world, and the shedder of imperishable glory upon every high-aiming race and nation. ~~Abdu'l-Bahá
+ - Style is about the choices you make to create the aspects of civilization that you wish to uphold. ~~David Bowie
+ - If the Earth gets hit by an asteroid, it’s game over. It’s control-alt-delete for civilization. ~~Bill Nye
+ - The foundation of any and every civilization, including our own, is private ownership of the means of production. Whoever wishes to criticize modern civilization, therefore, begins with private property. ~~Ludwig von Mises
+ - Civilization begins with distillation. ~~William Faulkner
+ - Civilization is always in danger when those who have never learned to obey are given the right to command. ~~Fulton J. Sheen
+ - No matter what we call it, poison is still poison, death is still death, and industrial civilization is still causing the greatest mass extinction in the history of the planet. ~~Derrick Jensen
+ - To serve Armenia is to serve civilization. ~~William Ewart Gladstone
+ - I think that if a person doesn’t feel cynical then they’re out of phase with the 20th century. Being cynical is the only way to deal with modern civilization – you can’t just swallow it whole. ~~Frank Zappa
+ - Learning and literature have a way of outlasting the civilization that made them. ~~Dorothy L. Sayers
+ - All civilizations become either spacefaring or extinct. ~~Carl Sagan
+
+40 quotes

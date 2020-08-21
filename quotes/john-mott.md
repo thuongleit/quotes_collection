@@ -1,0 +1,21 @@
+ - Every other consideration and plan and emphasis is secondary to that of wielding the forces of prayer.
+ - It is easy to magnify human personality and agencies. Prayer recognizes that God is the source of life and light and energy.
+ - The history of missions is a history of prayer. Everything vital to the success of the world’s evangelization hinges on prayer.
+ - No other generation but ours can evangelize the present generation.
+ - From the day of Pentecost until the present time, it has been necessary to be of one accord in prayer before the Spirit of God will work with mighty converting power.
+ - We fail to prevail with unconverted men because of our more fundamental failure to prevail with God in prayer.
+ - There is an irresistible demand to strengthen the leadership of the constructive forces of the world at the present momentous time. This is true because of stupendous, almost unbelievable changes which have taken place in recent years on every continent.
+ - The GREATEST HINDRANCES to the evangelization of the world are those within the Church.
+ - Prayer alone will overcome the gigantic difficulties which confront the workers in every field.
+ - In order to have real prayer and action to change things, we must have conviction as to the need of prayer and action. In order to have conviction as to the need of prayer and action, we must have knowledge.
+ - Evangelism without social work is deficient; social work without evangelism is impotent.
+ - Prayer is the greatest force that we can wield. It is the greatest talent which God has granted us. He has given it to every Christian.
+ - The world asks, How much does he give? Christ asks why does he give?
+ - The Church has not yet touched the fringe of the possibilities of intercessory prayer. Her largest victories will be witnessed when individual Christians everywhere come to recognize their priesthood unto God and day by day give themselves unto prayer.
+ - It is possible for the most obscure person in a church, with a heart right toward God, to exercise as much power for the evangelization of the world, as it is for those who stand in the most prominent positions.
+ - If added power attends the united prayer of two or three, what mighty triumphs there will be when hundreds of thousands of consistent members of the Church are with one accord day by day making intercession for the extension of Christ’s Kingdom.
+ - Such highly qualitative leadership is demanded especially in the realm of the fostering of right international relations. Here the demand is simply irresistible.
+ - As the President has indicated, my life has been a life of travel – for 60 years constantly moving over the wide world on journeys which first and last have taken me to 83 countries, and, what is more significant, to most of them again and again.
+ - You ask me, How much time? I do not know. I know it means time enough to forget time.
+
+19 quotes

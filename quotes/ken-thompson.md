@@ -1,0 +1,35 @@
+ - One of my most productive days was throwing away 1,000 lines of code.
+ - When in doubt, use brute force.
+ - You can’t trust code that you did not totally create yourself.
+ - I think the major good idea in Unix was its clean and simple interface: open, close, read, and write.
+ - If you want to go somewhere, goto is the best way to get there.
+ - That brings me to Dennis Ritchie. Our collaboration has been a thing of beauty.
+ - It’s always good to take an orthogonal view of something. It develops ideas.
+ - We have persistent objects, they’re called files.
+ - Just think, IBM and DEC in the same room, and we did it.
+ - The average gardener probably knows little about what is going on in his or her garden.
+ - I wanted to separate data from programs, because data and instructions are very different.
+ - A well installed microcode bug will be almost impossible to detect.
+ - The X server has to be the biggest program I’ve ever seen that doesn’t do anything for you.
+ - The steady state of disks is full.
+ - FORTRAN was the language of choice for the same reason that three-legged races are popular.
+ - SCCS, the source motel! Programs check in and never check out!
+ - One is that the perfect garden can be created overnight, which it can’t.
+ - I am a very bottom-up thinker.
+ - I also enjoy writing my regular column for Organic Gardening magazine, so I may do more of that sort of thing in the future, if anybody wants it!
+ - There’s a lot of power in executing data – generating data and executing data.
+ - I wanted to have virtual memory, at least as it’s coupled with file systems.
+ - No amount of source-level verification or scrutiny will protect you from using untrusted code.
+ - I view Linux as something that’s not Microsoft-a backlash against Microsoft, no more and no less.
+ - In fact, we started off with two or three different shells and the shell had life of its own.
+ - It is only the inadequacy of the criminal code that saves the hackers from very serious prosecution.
+ - In college, before video games, we would amuse ourselves by posing programming exercises.
+ - I have to keep up with the scientific literature as part of my job, but increasingly I found myself reading things that weren’t really relevant to my academic work, but were relevant to gardening.
+ - On the one hand, the press, television, and movies make heroes of vandals by calling them whiz kids.
+ - For most of that time, I’ve also been a keen gardener, but for many years I failed to make the connection between gardening and science.
+ - I wanted to avoid, special IO for terminals.
+ - I don’t think there are many people up in research who have strong ideas about things that they haven’t really had experience with.
+ - I still have a full-time day job, which is why it took me five years to write An Ear to the Ground, and why I won’t have another book finished by next week.
+ - I also have an idea for a book on biodiversity, and why and how we should be conserving it.
+
+33 quotes

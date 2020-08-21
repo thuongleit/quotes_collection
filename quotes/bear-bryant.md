@@ -1,0 +1,133 @@
+ - Expect the unexpected.
+ - Don’t talk too much or too soon.
+ - When you make a mistake, there are only three things you should ever do about it: 1. Admit it. 2. Learn from it, and 3. Don’t repeat it.
+ - It’s not the will to win that matters-everyone has that. It’s the will to prepare to win that matters.
+ - Don’t tolerate lazy people. They are losers.
+ - Show class, have pride, and display character. If you do, winning takes care of itself.
+ - There’s a lot of blood, sweat, and guts between dreams and success.
+ - Have a plan. Follow the plan, and you’ll be surprised how successful you can be. Most people don’t have a plan. That’s why it’s easy to beat most folks.
+ - I’m no miracle man. I guarantee nothing but hard work.
+ - If you believe in yourself and have dedication and pride – and never quit, you’ll be a winner. The price of victory is high but so are the rewards.
+ - Little things make the difference. Everyone is well prepared in the big things, but only the winners perfect the little things.
+ - Be aware of “yes” men. Generally, they are losers. Surround yourself with winners. Never forget – people win.
+ - Don’t worry about making friends; don’t worry about making enemies. Worry about winning, because if you win, your enemies can’t hurt you, and if you lose, your friends can’t stand you.
+ - Offense sells tickets, but defense wins championships.
+ - The price of victory is high, but so are the rewards.
+ - I ain’t never been nothin but a winner.
+ - In order to have a winner, the team must have a feeling of unity; every player must put the team first ahead of personal glory.
+ - In a crisis, don’t hide behind anything or anybody. They’re going to find you anyway.
+ - The first time you quit, it’s hard. The second time, it gets easier. The third time, you don’t even have to think about it.
+ - I make my practices real hard because if a player is a quitter, I want him to quit in practice, not in a game.
+ - You win games with your strengths, not your weaknesses.
+ - If you want to walk the heavenly streets of gold, you gotta know the password, “Roll, Tide, Roll!”
+ - You never know how a horse will pull until you hook him to a heavy load.
+ - People who are in it for their own good are individualists. They don’t share the same heartbeat that makes a team so great. A great unit, whether it be football or any organization, shares the same heartbeat.
+ - Set goals – high goals for you and your organization. When your organization has a goal to shoot for, you create teamwork, people working for a common good.
+ - If anything goes bad, I did it. If anything goes semi-good, we did it. If anything goes real good, then you did it. That’s all it takes to get people to win football games for you.
+ - Football changes and so do people.
+ - No coach has ever won a game by what he knows; it’s what his players know that counts.
+ - It’s awfully important to win with humility. It’s also important to lose. I hate to lose worse than anyone, but if you never lose you won’t know how to act. If you lose with humility, then you can come back.
+ - It’s kind of hard to rally around a math class.
+ - Hell, no! A tie is like kissing your sister!
+ - Get the winners into the game.
+ - If a man is a quitter, I’d rather find out in practice than in a game. I ask for all a player has so I’ll know later what I can expect.
+ - Most coaches study the films when they lose. I study them when we win -to see if I can figure out what I did right.
+ - Never quit. It is the easiest cop-out in the world. Set a goal and don’t quit until you attain it. When you do attain it, set another goal, and don’t quit until you reach it. Never quit.
+ - You must learn how to hold a team together. You must lift some men up, calm others down, until finally they’ve got one heartbeat. Then you’ve got yourself a team.
+ - Losing doesn’t make me want to quit. It makes me want to fight that much harder.
+ - A good, quick, small team can beat a big, slow team any time.
+ - A champion pays an extra price to be better than anyone else.
+ - Sure, I’d love to beat Notre Dame, don’t get me wrong. But nothing matters more than beating that cow college on the other side of the state!
+ - One man doesn’t make a team. It takes eleven.
+ - Here’s a twenty, bury two.
+ - I’ve made so many mistakes that if I don’t make the same mistakes over, we’re going to come pretty close to winning.
+ - But it’s still a coach’s game. Make no mistake. You start at the top. If you don’t have a good one at the top, you don’t have a cut dog’s chance. If you do, the rest falls into place. You have to have good assistants, and a lot of things, but first you have to have the chairman of the board.
+ - Don’t overwork your squad. If you’re going to make a mistake, under-work them.
+ - I’ll never give up on a player regardless of his ability as long as he never gives up on himself. In time he will develop.
+ - I’ll put you through hell, but at the end of it all we’ll be champions.
+ - Winning isn’t imperative, but getting tougher in the fourth quarter is.
+ - I’d like for people to remember me as a winner, because I ain’t never been nothin but a winner.
+ - I tell young players who want to be coaches, who think they can put up with all the headaches and heartaches, can you live without it? If you can live without it, don’t get in it.
+ - There is no sin in not liking to play; it’s a mistake for a boy to be there if he doesn’t want to.
+ - The biggest mistake coaches make is taking borderline cases and trying to save them. I’m not talking about grades now, I’m talking about character. I want to know before a boy enrolls about his home life, and what his parents want him to be.
+ - Don’t talk too much. Don’t pop off. Don’t talk after the game until you cool off.
+ - Recruiting is the one thing I hate. I won’t do it unless my coaches tell me I’ve just got to. The whole process is kind of undignified for me and the young man.
+ - At Alabama, our players don’t win Heisman Trophies. Our teams win National Championships.
+ - I’m known as a recruiter. Well you’ve got to have chicken to make chicken salad.
+ - Being inside Tiger Stadium is like being on the inside of a drum.
+ - First there are those who are winners, and know they are winners. Then there are the losers who know they are losers. Then there are those who are not winners, but don’t know it. They’re the ones for me. They never quit trying. They’re the soul of our game.
+ - When you play defense you have to storm the fort or play cover – you can’t do both.
+ - I think I’m telling the truth. I sat by Ray Perkins at the Hall of Fame dinner in New York, and at that time he didn’t know he was our coach and I didn’t either.
+ - If they don’t have a winning attitude, I don’t want them.
+ - Georgia Tech beat us and Mississippi Southern tied us last year, and Texas beat us after we had the game won. We only played about five games the way we were capable of playing and lost one of those.
+ - They say I teach brutal football, but the only thing brutal about football is losing.
+ - In life, you’ll have your back up against the wall many times. You might as well get used to it.
+ - I don’t care how much talent a team has – if the boys don’t think tough, practice tough, and live tough, how they play tough on Saturday.
+ - When I was a young coach I used to say, “Treat everybody alike.” That’s bull. Treat everybody fairly.
+ - You’re still going to win with preparation and dedication and plain old desire. If you don’t have genuine desire, you won’t be dedicated enough to prepare properly.
+ - If you are going to be a successful duck hunter, you must go where the ducks are.
+ - The fun never goes out, but it changes with the years, with winning and losing.
+ - I plan on staying at Alabama for the rest of my career. I guarantee that I’ll be here for you through it all, regardless of what happens.
+ - I think the most important thing of all for any team is a winning attitude. The coaches must have it. The players must have it. The student body must have it. If you have dedicated players who believe in themselves, you don’t need a lot of talent.
+ - I didn’t care if we ever quit practicing. I loved it. The only other guy I ever knew who loved it as much was Jerry Duncan. He would beg to practice even when he was hurt. I’ve actually seen him cry because the trainer told him he couldn’t scrimmage.
+ - The idea of molding men means a lot to me.
+ - There’s no use fussing on a boy who doesn’t have any ability.
+ - If wanting to win is a fault, as some of my critics seem to insist, then I plead guilty. I like to win. I know no other way. It’s in my blood.
+ - Sacrifice. Work. Self-discipline. I teach these things, and my boys don’t forget them when they leave.
+ - I ain’t never had much fun. I ain’t never been two inches away from a football. Here guys go fishing on the day of the game, hunting, golfing, and all I want to do is be alone, studying how not to lose.
+ - The faint old man shall lean his silver head To feel thee; thou shalt kiss the child asleep, And dry the moistened curls that overspread His temples, while his breathing grows more deep.
+ - Every time a player goes out there, at least 20 people have some amount of influence on him. His mother has more influence than anyone. I know because I played, and I loved my mama.
+ - Don’t give up. Reach down inside of you and you’ll find something left.
+ - I’m not much of a golfer, I don’t have any friends and all I like to do is go home and be alone, and not worry about ways not to lose.
+ - I’ve had many a player tell me all through high school and right up until signing day that they were coming to Alabama, then they signed with somebody else.
+ - You have to be willing to out-condition your opponents.
+ - Football games are generally won by the boys with the greatest desire.
+ - You have to learn what makes this or that Sammy run. For one it’s a pat on the back, for another it’s eating him out, for still another it’s a fatherly talk, or something else. You’re a fool if you think as I did as a young coach, that you can treat them all alike.
+ - If it is worth playing, it is worth paying the price to win.
+ - If you don’t have discipline, you can’t have a successful program.
+ - I’m no innovator. If anything I’m a stealer, or borrower. I’ve stolen or borrowed from more people than you can shake a stick at.
+ - I hope to get out before they start football next year.
+ - Never be too proud to get down on your knees and pray.
+ - We can’t have two standards, one set for the dedicated young men who want to do something ambitious and one set for those who don’t.
+ - I don’t have any ideas; my coaches have them. I just pass the ideas on and referee the arguments.
+ - I’m no genius, but I’m a damn good football coach.
+ - Everybody’s got pretty good players now, more players than there’ve ever been. If you play poorly, you’re going to get beat.
+ - I’m happy with the coach we have. I think any one of the ones I asked them to consider would’ve been good.
+ - Baton Rouge happens to be the worst place in the world for a visiting team. It’s like being inside a drum.
+ - In my lifetime, I may have put too much emphasis on winning, because here I am an old man and the only fun I’ve had is winning, and that’s ridiculous.
+ - I want to make sure I don’t interfere with the success of that team next year. I don’t see any way I could go to practice like most of ’em do, and not hurt the team. I’d go nuts if I tried doing that.
+ - A few minutes ago, I had a hard time getting through the lobby because of all the people. After today, that won’t be happening.
+ - Motivating people- the ingredient that separates winners from losers.
+ - There is a big difference in wanting to and willing to.
+ - If you whoop and holler all the time, the players just get used to it.
+ - My approach to the game has been the same at all the places I’ve been. Vanilla. The sure way. That means, first of all, to win physically. If you got eleven on a field, and they beat the other eleven physically, they’ll win. They will start forcing mistakes. They’ll win in the fourth quarter.
+ - I ain’t won but one. My team won the rest in spite of me.
+ - I always want my players to show class, knock’em down, pat on the back, and run back to the huddle.
+ - I told them my system was based on the “ant plan,” that I’d gotten the idea watching a colony of ants in Africa during the war. A whole bunch of ants working toward a common goal.
+ - I can remember loving to recruit. I knew I was going to do my best. But traveling and recruiting doesn’t appeal to me any more. It’s not as much fun as it used to be.
+ - When you win, there’s glory enough for everybody. When you lose, there’s glory for none.
+ - The summer day is closed, the sun is set: Well they have done their office, those bright hours, The latest of whose train goes softly out In the red west.
+ - The Lord expects you to do some things for yourself.
+ - You try to make your team do something they’re not capable of and you get murdered.
+ - I can reach a kid who doesn’t have any ability as long as he doesn’t know it.
+ - If you don’t learn anything but self discipline, then athletics is worthwhile.
+ - You take those little rascals, talk to them good, pat them on the back, let them think they are good, and they will go out and beat the biguns.
+ - Scout yourself. Have a buddy who coaches scout you.
+ - All I know is, I don’t want to stop coaching, and I don’t want to stop winning, so we’re gonna break the record unless I die.
+ - Don’t ever give up on ability. Don’t give up on a player who has it.
+ - Back 12 years ago, when Dr. Mathews was president here, we had a plan that when I got ready to quit, we’d bring a certain guy in and he’d take over that day and I’d leave. But as time wore on, I realized that wouldn’t have been good at all.
+ - Lee Roy was the best college linebacker – bar none. He would have made every tackle on every play if they had stayed in bounds.
+ - Nearly every coach I’ve talked with tells me that the attention you get from media and other people is the thing you miss most. I don’t know if that’s right.
+ - I know what it takes to win. If I can sell them on what it takes to win, then we are not going to lose too many football games.
+ - That’s all it takes to get people to win football games for you.
+ - I didn’t have a thing to do with picking a coach, and didn’t want to. But I didn’t think they’d pick one I didn’t like.
+ - I don’t hire anybody not brighter than I am. If they’re not brighter than I am, I don’t need them.
+ - If there is one thing that has helped me as a coach, it’s my ability to recognize winners, or good people who can become winners by paying the price.
+ - It’s nice to have the opportunity to play for so much money, but it’s nicer to win it.
+ - Recognize winners. They come in all forms.
+ - If I miss coaching that much, I could go to some little school where they didn’t recruit, where all the kids wanted to go. I believe I could find somewhere to coach.
+ - It’s been years since I’ve had a real input in the game anyway. For this game, I’ve just tried to keep all the other stuff away from the players and coaches.
+ - There’s no substitute for guts.
+ - Don’t give up at half time. Concentrate on winning the second half.
+
+131 quotes

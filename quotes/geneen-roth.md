@@ -1,0 +1,78 @@
+ - You are not a mistake. You are not a problem to be solved. Treat yourself with outrageous kindness beginning today.
+ - Treat yourself as if you already are enough. Walk as if you are enough. Eat as if you are enough. See, look, listen as if you are enough. Because it’s true.
+ - The process is the goal.
+ - You already have everything you need to be content. Your real work is to do whatever it takes to realize that.
+ - Your body is the piece of the Universe youve been given.
+ - How you eat is how you live. How you do anything is how you do everything.
+ - The way you eat is inseparable from your core beliefs about being alive. Your relationship with food is an exact mirror of your feelings about love, fear, anger, meaning and transformation.
+ - The way we do anything is the way we do everything. The way we eat is the way we live.
+ - All any feeling wants is to be welcomed with tenderness. It wants room to unfold. It wants to relax and tell its story. It wants to dissolve like a thousand writhing snakes that with a flick of kindness become harmless strands of rope.
+ - If you want to eat when you’re not hungry, you’re hungry for something else.
+ - Imagine not being frightened by any feeling. Imagine knowing that nothing will destroy you. That you are beyond any feeling, and state. Bigger than. Vaster than. That there is no reason to use drugs because anything a drug could do would pale in comparison to knowing who you are.
+ - If you think your job is to fix what is broken, you keep finding more broken places to mend.
+ - People come and go, pain comes and goes. But so does joy. And if our hearts are closed because we don’t want to suffer, they won’t be open enough to recognize the joy as it flies by.
+ - Change happens when you understand what you want to change so deeply that there is no reason to do anything but act in your own best interest.
+ - Awareness is learning to keep yourself company. And then learn to be more compassionate company, as if you were somebody you are fond of and wish to encourage.
+ - Imagine treating yourself with the kindness that you show people you love.
+ - Real change happens bit by bit. It takes great effort to become effortless at anything. There are no quick fixes.
+ - No matter how developed you are in any other area of your life, no matter what you say you believe, no matter how sophisticated or enlightened you think you are, how you eat tells all.
+ - If you pay attention to when you are hungry, what your body wants, what you are eating, when you’ve had enough, you end the obsession because obsession and awareness cannot coexist.
+ - Come back to yourself. Return to the voice of your body. Trust that much.
+ - I tell my retreat students that they need to remember two things: to eat what they want when they’re hungry and to feel what they feel when they’re not.
+ - It’s the nature of hearts to break. It’s in their job description. When a heart is doing what it’s supposed to be doing, it holds nothing back. And sometimes it gets broken.
+ - Awareness is learning to keep yourself company.
+ - The purpose of healing is to live while you are alive instead of dying while you are alive. Healing is about being broken and whole at the same time.
+ - No act of love is ever wasted.
+ - Take time to thank your body.
+ - Just because we live in an insane culture doesn’t mean we have to be insane too.
+ - Healing is about being awake. Being broken and whole at the same time.
+ - Weight loss does not make people happy. Or peaceful. Being thin does not address the emptiness that has no shape or weight or name. Even a wildly successful diet is a colossal failure because inside the new body is the same sinking heart.
+ - You can’t be stuck if you’re not trying to get anywhere. Which, to me, means that when you stop fighting with the way things are, magic happens. You relax, open, and any action you take comes from alignment with what’s true.
+ - When you believe in yourself more than you believe in food, you will stop using food as if it were your only chance at not falling apart. When the shape of your body no longer matches the shape of your beliefs, the weight disappears. And yes, it really is that simple.
+ - What you pay attention to grows. Pay attention to your loveliness, your magnificent self. Begin now.
+ - Compulsive eating is only the symptom; believing that you are not worth your own love is the problem. Go for the love. You will never be sorry.
+ - Ask yourself if you are in this for the long run-if it’s only your weight you want to change or if you are willing to use your eating patterns as a portal to the inner universe. And if the answer is the latter, then there is no end to what you can learn, be, understand, become.
+ - We eat the way we live.
+ - We are using the food as a doorway to understanding the rest of our lives.
+ - You don’t need a scale to tell you whether you’re allowed to like yourself today. You are. You belong here. No matter what you weigh, you deserve joy and happiness.
+ - If you treat your feelings with as much love as you treat your dog or your cat or your child you’ll feel as if you were living in heaven.
+ - Chocolate, I am sure, is the concrete manifestation of love.
+ - Hell is wanting to be somewhere different from where you are.
+ - You can rescue yourself. No matter how you feel, no matter what you believe about your worth or your capacity to love and be loved, you can change.
+ - Its not so much that we believe what we see, but that we see what we believe.
+ - It’s never been true, not anywhere at anytime, that the value of a soul, of a human spirit, is dependent on a number on a scale.
+ - Awareness is a way you keep yourself company. When you are aware you are being compulsive, you are no longer locked in the behavior. You have a choice to stop. That choice – and therefore awareness itself – is freedom.
+ - You are not your past, not your habits, not your compulsions. When you get to know who you are, anything becomes possible.
+ - If you try to lose weight by shaming, depriving and fearing yourself, you will end up shamed, deprived, and afraid. Kindness comes first. Always.
+ - To discover what you really believe, pay attention to the way you act – and to what you do when things don’t go the way you think they should. Pay attention to what you value. Pay attention to how and on what you spend your time. Your money. And pay attention to the way you eat.
+ - Change, if it is to be long lasting, must occur on the unseen levels first.
+ - We are strong where we were broken.
+ - The problem isn’t that we have bodies; the problem is that we’re not living in them.
+ - You cannot spend your life wanting to be someone else, snipping off pieces of yourself you don’t like, and suddenly expect, upon reaching a goal, to be confident, self-accepting, rooted like an oak tree in your being.
+ - No matter what we weigh, those of us who are compulsive eaters have anorexia of the soul. We refuse to take in what sustains us. We live lives of deprivation. And when we can’t stand it any longer, we binge.
+ - Ask: is what I’m doing and thinking right now bringing me closer to myself or farther away? Opening my heart or closing it? You have a choice.
+ - If LOVE could talk to you about your relationship with food, what would it say?
+ - Meditation is a tool to shake yourself awake. A way to discover what you love. A practice to return yourself to your body when the mind medleys threaten to usurp your sanity.
+ - Meditation develops the capacity to question your mind. Without it, you are at the mercy of every thought, every desire, every wave of emotion.
+ - You are lovable, you are loving; your choices about food will reflect that, if you give yourself a chance.
+ - You can be aware of your past without being it.
+ - Awareness, not deprivation, informs what you eat. Presence, not shame, changes how you see yourself and what you rely on.
+ - The relentless attempts to be thin take you further and further away from what could actually end your suffering: getting back in touch with who you really are. Your true nature. Your essence.
+ - Most of us spend our lives protecting ourselves from losses that have already happened.
+ - When you don’t want to be where you are, you create suffering for yourself. Change happens through acceptance, kindness and relaxation – not resistance, not warfare, not fights.
+ - Freedom from obsession is not about something you do; it’s about knowing who you are. It’s about recognizing what sustains you and what exhausts you. What you love and what you think you love because you believe you can’t have it.
+ - The problem with fantasy is the greatest benefit of fantasy: it prevents us from living in the present moment.
+ - Your relationship to food, no matter how conflicted, is the doorway to freedom.
+ - Meditation is a tool to shake yourself awake.
+ - Just because we form an opinion about ourselves, or anyone else, doesn’t mean it is true.
+ - Love includes vulnerability, surrender, self-valuing, steadiness, and a willingness to face – rather than run from – the worst of ourselves.
+ - It’s not life in the present moment that is intolerable; the pain we are avoiding has already happened. We are living in reverse.
+ - If there are any cages in this marriage, it is I who have built them. And I who hold the key to their locks.
+ - The purpose of a spiritual path or religion is to provide a precise and believable way into what seems unbelievable.
+ - We eat the way we eat because we are afraid to feel what we feel.
+ - Separate the desire to be thin from the desire to be cherished.
+ - If you decided to reteach yourself your own loveliness today, what would you do? How would you speak to yourself? Can you allow yourself that much?
+ - I live between fearing doom and wishing for it.
+ - Be fully present for five minutes every day.
+
+76 quotes

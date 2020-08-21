@@ -1,0 +1,34 @@
+ - I will never fit in because I was not meant to.
+ - My dads my best mate, and he always will be.
+ - If people want me to be their role-model, it would be nice.
+ - I don’t want you to love me, If you don’t wanna love me for me.
+ - I don’t want anyone to feel sorry for me because of the fact I haven’t got any true friends! I’m fine the way I am.
+ - I don’t care about the charts; I just want to make great music that I enjoy performing on stage and I’m proud of.
+ - I’ll always stand by my Gypsy roots, and I’ll always help out one of my own.
+ - I am a singer, not a full-on rapper.
+ - I’m alright with who I am and I don’t feel that I need to be better...
+ - On that very first day, when I queued up, in the thousands, I never expected to get very far.
+ - I think if you want to make an impact, you’ve got to say what you feel and do what you feel.
+ - I try and make all my songs sound different from each other while doing it in a way that’s still me. It’s a tricky thing to do.
+ - I think it’s really important to do what you want to do because in the long-run it’s your career, you want everything to go well and you want to be happy with what you’re doing. It was really important for me to take control of my career.
+ - I believe someone should be able to dress according to the mood they’re in. It shouldn’t be forced and you shouldn’t have to follow a trend.
+ - There are lots and lots of different films that I love, and watching different characters and how different people play them.
+ - I would hope to think my fans are full of attitude, are a bit vicious, and always fight for what they want. That’s exactly what I’m going to give them.
+ - This whole ‘X Factor’ thing with people assuming I’m going to be a one-hit wonder – that won’t happen with me.
+ - I wouldn’t want to change myself for the whole world.
+ - Some people find it hard to come to terms with the fact that everyone is different.
+ - I just want my songs to be memorable, and for people to hear my songs in ten year’s time and remember the great times they had while listening to ’em.
+ - I’m able to reach a wider audience, an older audience. I can gladly say that I’m definitely not a bubblegum princess anymore.
+ - When you see the mega-stars doing really, really well, it gives you hope that you could probably do that too.
+ - I need to not be scared of not having someone there to back me up. I just need to tackle things on my own. I feel like I have the power in me to make it work.
+ - I like to YouTube a lot, and try and find unknown singers.
+ - When you sing live, you cannot expect any artist, except for the amazing Beyonce or GaGa, to get it right every time.
+ - I don’t feel like I have to be the nice girl.
+ - I think that you should just be yourself and make sure you pick a really, really good song, and make sure you’re memorable.
+ - I’m very opinionated and I have a lot of things to say. Sometimes I sound a bit like a willy.
+ - I’d probably like to get into acting – I’ve got lots of things that I could do, but at the moment it’s just music, music, music.
+ - Sometimes I just like to listen to unknown people, that can be really, really cool. I like going on blogs and stuff.
+ - In school, I was the quietest girl ever! I had a lot of trouble in school. Kids were mean to me.
+ - I like to experiment a lot, I just like to make myself look different to everyone else. Shopping at all different places from vintage to high-street, and then I just put it together myself.
+
+32 quotes

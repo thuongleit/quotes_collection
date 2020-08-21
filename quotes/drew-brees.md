@@ -1,0 +1,52 @@
+ - Anyone can see the adversity in a difficult situation, but it takes a stronger person to see the opportunity.
+ - Never let anyone in life tell you that you can’t have something that you are willing to work for.
+ - When you wake up, think about winning the day. Don’t worry about a week or a month from now – just think about one day at a time.
+ - God, I know that if you bring me to it, you will bring me through it. I know you have a plan, but quite honestly I don’t see it right now. But I know it’s there. I know I have to believe. I know I need to have faith. I have to trust you. And I do trust you. But it’s hard right now.
+ - I expect to win out there.
+ - Sometimes all you need is just for somebody to believe in you in order to be able to accomplish maybe what you never thought you could.
+ - You are either getting better or getting worse, but you are never staying the same.
+ - I expect to make big plays. And when I don’t, I’m upset about it.
+ - Under pressure, would I fold and disappear, or would I show everyone that when bad things happen, you fight?
+ - I don’t know about voodoo, but I believe in destiny.
+ - I’m a very modest person.
+ - It took me six months to redeem myself at least to have another chance to at least have her get to know me and let her know I was at least a decent guy and to give me a shot. And here we are, we’ve been married seven years.
+ - And at the time, it is funny how you can look at something and say, for example with my shoulder injury, when it first happened I said this is the worst thing that could happen to me. Why me, why now? Now I look back and say it was probably the best thing that happened to me.
+ - I needed New Orleans so badly back in 2006, just somebody to believe in me, somebody to care about me.
+ - We’ve got something special going here. We want to keep it going. You don’t have many opportunities like this, and the window of opportunity for us is now.
+ - I’m a very modest person. But I’m also extremely confident. And if you put me in the situation or in the moment, I’m gonna have some swagger, I’m gonna have some cockiness.
+ - I know I can go out there and play much better than I did yesterday. But to come out with a win is key.
+ - My No. 1 priority, and it always has been this, is keeping our team together and making sure we have the right guys in the right positions to make a run at this for a long time.
+ - You can always be a little bit better.
+ - I can’t get through the gate. The gate is narrow.
+ - There’s not anything, I don’t think, that I can do or accomplish.
+ - We always try to mix it up-three-step drop, five-step drop, seven-step drop, naked bootleg. We spread out all these kinds of things to keep the defensive pass rush unbalanced.
+ - I have a feeling that when you’re on the cover, they supe up all your abilities in the game to a pretty high level. I’m excited to see what that equates to, like if I can throw the ball 100 yards in the air or something.
+ - It might have been the hardest hit I took all day.
+ - There are a very few consistent, common threads among the most successful NFL quarterbacks. Most of them are intangibles, which you can’t measure with a physical test. You need leadership ability, competitiveness, drive, and will. You need focus, poise, and charisma.
+ - I can change a diaper in 30 seconds flat. I set the new one beneath the old one. That way, it’s just wipe and pull the flap over.
+ - When you care about a guy beyond just the field, that’s when the chemistry becomes really special.
+ - I hope our hopes and aspirations are bigger than setting records.
+ - We just believed in ourselves, and we knew that we had an entire city and maybe an enitre country behind us. What can I say? I tried to imagine what this moment would be like for a long time, and it’s better than expected.
+ - Each and every year I feel like I’ve gotten a little bit better and that’s always been my goal, was just to get a little bit better.
+ - I grew up in Texas, obviously a huge football state.
+ - The only team that believed in me was the Saints, and I feel like I owe them a great debt of gratitude. I want to give them what they saw in me-a guy who could lead this team to a championship.
+ - The Madden Curse has really taken on a life of its own. People just love talking about it, and it is what it is, but I look at it as a challenge.
+ - I know Andy Roddick’s probably tired about me talking about how many times I beat him when we were kids.
+ - I don’t believe that you can be too short as a quarterback. It’s not about height.
+ - I’m just feeling like it was meant to be. What can I say? The birth of my son, and in the first year of his life, we won a Super Bowl Championship.
+ - You look at public education system, charter schools, infrastructure, in so many ways New Orleans has come back stronger.
+ - We had a saying that the fun stops at one.
+ - It has been an interesting road, but I wouldn’t trade any of it for the world, because I feel like all of those instances in my life I felt molded me and strengthened me and made me who I am.
+ - We all understand what we signed up for, but then again, you don’t want this to be a game that puts people in wheelchairs at age 40.
+ - Four years ago, who ever thought this would have happened?
+ - I was honored to spend time with the President on an issue that is clearly important to him. I was also impressed by his wide receiver skills.
+ - Each day, you get an ounce more confidence. When we’re playing like we are, there’s no reason not to.
+ - I’m not just trying to be a good game manager. I’m trying to be great.
+ - The Super Bowl is a realistic goal.
+ - I get people stopping me on the street like twenty times a day, telling me how great it makes them feel and how it just helps them to go about their day and rebuild their lives. It means a tremendous amount.
+ - I love the Cowboys in the early 90s. That was their heyday, winning all those Super bowls. Troy Aikman was a person I looked up to.
+ - All of the products I take help me feel like I’m getting the maximum amount out of my workouts and out of my practice work. They’re a big part of preparing and recovering each week.
+ - The Madden NFL franchise holds a special place in popular culture and the cover is a coveted position for players all over the league. I’m honored to be the first cover athlete chosen by Madden NFL fans and it’s a great way to cap off an amazing year for the Saints and the city of New Orleans.
+ - It’s my job to get us in good plays, or more importantly, out of bad plays.
+
+50 quotes

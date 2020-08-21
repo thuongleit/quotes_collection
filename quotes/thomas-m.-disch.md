@@ -1,0 +1,22 @@
+ - Creativity is the ability to see relationships where none exist.
+ - Genius is an infinite capacity for pain.
+ - Gene Wolfe has produced a work of art that can satisfy adult appetites and in which even the most fantastical elements register as poetry rather than as penny-whistle whimsy.
+ - Sometimes the whole world is mud luscious and puddle wonderful.
+ - America is a nation of liars, and for that reason science fiction has a special claim to be our national literature, as the art form best adapted to telling the lies we like to hear and to pretend we believe.
+ - Let me tell you about the end of the world. It happened fifty years ago. Maybe a hundred. And since then it’s been lovely. I mean it. Nobody tries to bother you. You can relax. You know what? I like the end of the world.
+ - Science Fiction is a branch of children’s literature.
+ - Poets are regarded as handicapped writers whose work must be treated with a tender condescension, such as one accords the athletic achievements of basketball players confined to wheelchairs.
+ - Laughter is just a slowed down scream of terror.
+ - Thought is a disease of the brain. The mind defends itself against the degenerative process of creativity; it begins to jell; notions solidify into inalterable systems.
+ - Sameness is what marketers want us to want.
+ - Though opposition is a hopeless task, acquiescence would be worse.
+ - A predilection for genre fiction is symptomatic of a kind of arrested development.
+ - It considered trying to explain their error to them, but what would be the use? They would only go away with hurt feelings. You can’t always expect people, or squirrels, to be rational.
+ - Writers tend to consider distinction and originality as virtues, but they are anathema to publishers.
+ - For a lot of people, poetry tends to be dull. It’s not read much. It takes a special kind of training and a lot of practice to read poetry with pleasure. It’s like learning to like asparagus.
+ - So, without saying anything to the others, it made its way to the farthest corner of the meadow and began to toast an imaginary muffin. That was always the best way to unwind when things got to be too much for it.
+ - The distances between the stars seem brief by contrast to the distances between each of us and his fellows.
+ - Knowledge is devalued when it becomes too generally known.
+ - The gods, after all, are only human, and once their rage has been placated they are perfectly capable of acts of mercy and grace.
+
+20 quotes

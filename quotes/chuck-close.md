@@ -1,0 +1,79 @@
+ - Inspiration is for amateurs. The rest of us just show up and get to work.
+ - Inspiration is for amateurs. The rest of us just show up and get to work. If you wait around for the clouds to part and a bolt of lightening to strike you in the brain, you are not going to make an awful lot of work. All the best ideas come out of the process; they come out of the work itself.
+ - If you’re overwhelmed by the size of a problem, break it down into smaller pieces.
+ - Inspiration is for amateurs. professionals work everyday. Personally the best inspiration is a deadline.
+ - The advice I like to give young artists, or really anybody who’ll listen to me, is not to wait around for inspiration. Inspiration is for amateurs; the rest of us just show up and get to work.
+ - Never let anyone define what you are capable of by using parameters that don’t apply to you.
+ - Having a routine, knowing what to do, gives me a sense of freedom and keeps me from going crazy. It’s calming.
+ - Art saved my life in two ways. It made me feel special, because I could do things my friends couldn’t, but it also gave me a way to demonstrate to my teacher that, despite the fact that I couldn’t write a paper or do math, I was paying attention.
+ - You don’t have to reinvent the wheel every day. Today you will do what you did yesterday, and tomorrow you will do what you did today. Eventually you will get somewhere.
+ - Those who are waiting for an epiphany to strike may wait forever. The artist simply goes to work, making art, both good and not so good.
+ - I don’t believe in inspiration. Inspiration is for amateurs. Some of the time you know you’re cooking, and the rest of the time, you just do it.
+ - Inspiration is for amateurs.
+ - Get yourself in trouble. If you get yourself in trouble, you don’t have the answers. And if you don’t have the answers, your solution will more likely be personal because no one else’s solutions will seem appropriate. You’ll have to come up with your own.
+ - Ease is the enemy of the artist. When things get too easy, you’re in trouble.
+ - Every child should have a chance to feel special.
+ - A face is a road map of someone’s life. Without any need to amplify that or draw attention to it, there’s a great deal that’s communicated about who this person is and what their life experiences have been.
+ - There are so many artists that are dyslexic or learning disabled, it’s just phenomenal. There’s also an unbelievably high proportion of artists who are left-handed, and a high correlation between left-handedness and learning disabilities.
+ - I’m not by nature a terribly intuitive person; I need to build a situation in which I will behave more intuitively, and that has really changed the life of my work – I found a way to trick myself into being intuitive.
+ - In the 7th grade, I made a 20-foot long mural of the Lewis and Clark Trail while we were studying that in history because I knew I wasn’t going to be able to spit back the names and the dates and all that stuff on a test.
+ - Part of the joy of looking at art is getting in sync in some ways with the decision-making process that the artist used and the record that’s embedded in the work.
+ - Far more interesting than problem solving is problem creation.
+ - There’s something Zen-like about the way I work – it’s like raking gravel in a Zen Buddhist garden.
+ - I always thought that one of the reasons why a painter likes especially to have other painters look at his or her work is the shared experience of having pushed paint around.
+ - Losing my father at a tender age was extremely important in being able to accept what happened to me later when I became a quadriplegic.
+ - A photograph doesn’t gain weight or lose weight, or change from being happy to being sad. It’s frozen. You can use it, then recycle it.
+ - All the best ideas come out of the process; they come out of the work itself.
+ - Painting is the frozen evidence of a performance.
+ - In my art, I deconstruct and then I reconstruct, so visual perception is one of my primary interests.
+ - I’m poor white trash from the state of Washington.
+ - It doesn’t upset artists to find out that artists used lenses or mirrors or other aids, but it certainly does upset the art historians.
+ - I think I was driven to paint portraits to commit images of friends and family to memory. I have face blindness, and once a face is flattened out, I can remember it better.
+ - Painting is a lie. It’s the most magic of all media, the most transcendent. It makes space where there is no space.
+ - If it looks like art, chances are it’s somebody else’s art.
+ - Neurologically, I’m a quadriplegic, so virtually everything about my work has been driven by my learning disabilities, which are quite severe, and my lack of facial recognition, which I’m sure is what drove me to paint portraits in the first place.
+ - While photography is the easiest medium in which to be competent, it is the hardest in which to develop an idiosyncratic personal vision.
+ - The thing that interests me about photography, and why it’s different from all other media, is that it’s the only medium in which there is even the possibility of an accidental masterpiece.
+ - From my point of view, photography never got any better than it was in 1840.
+ - I think women realise that I love women, and very often women seem to love me.
+ - I absolutely hate technology, and I’m computer illiterate, and I never use any labor-saving devices although I’m not convinced that a computer is a labor-saving device.
+ - Most people are good at too many things. And when you say someone is focused, more often than not what you actually mean is they’re very narrow.
+ - Inspiration is highly overrated. If you sit around and wait for the clouds to part, it’s not liable to ever happen. More often than not, work is salvation.
+ - At the same time that I’m finding the color world I want, I’m also trying to make the imagery, you know, by the nature of the strokes themselves.
+ - Every idea occurs while you are working. If you are sitting around waiting for inspiration, you could sit there forever.
+ - You can give the same recipe to ten cooks, and some make it come alive, and some make a flat souffle. A system doesn’t guarantee anything.
+ - I build a painting by putting little marks together-some look like hot dogs, some like doughnuts.
+ - I think the problem with the arts in America is how unimportant it seems to be in our educational system.
+ - Sometimes I really want to paint somebody and I don’t get a photograph that I want to work from.
+ - All the fingerprint paintings are done without a grid.
+ - I only have so much time and energy and money, and I’m going to put it into my work.
+ - The reason I don’t like realist, photorealist, neorealist, or whatever, is that I am as interested in the artificial as I am in the real.
+ - The camera is objective. When it records a face it can’t make any hierarchical decisions about a nose being more important than a cheek. The camera is not aware of what it is looking at. It just gets it all down.
+ - I only use three primaries, so the nice thing is I can’t have favorite colors.
+ - I learned you could suffer a terrible tragedy and still be happy again.
+ - Any artist who goes to Las Vegas is an idiot as far as I am concerned. Whoever goes to Las Vegas can stay in Las Vegas.
+ - I always thought problem solving was greatly overrated – and that the most important thing was problem creation.
+ - When you come up in the art world, whatevers in the air, the issues of the moment, end up becoming part of the working method or modus operandi of how you think about doing a painting. And I came up at a time when-actually painting was dead when I came up. Sculpture sort of ruled.
+ - Like any corporation, I have the benefit of the brainpower of everyone who is working for me. It all ends up being my work, the corporate me, but everyone extends ideas and comes up with suggestions.
+ - Painting is the most magical of mediums. The transcendence is truly amazing to me every time I go to a museum and I see how somebody figured another way to rub colored dirt on a flat surface and make space where there is no space or make you think of a life experience.
+ - I think most paintings are a record of the decisions that the artist made. I just perhaps make them a little clearer than some people have.
+ - You know, the way art history is taught, often there’s nothing that tells you why the painting is great. The description of a lousy painting and the description of a great painting will very much sound the same.
+ - The first thing I do is take Polaroids of the sitter – 10 or 12 color Polaroids and eight or 10 black-and whites.
+ - I’m very learning-disabled, and I think it drove me to what I’m doing.
+ - I knew from the age of five what I wanted to do. The one thing I could do was draw. I couldn’t draw that much better than some of the other kids, but I cared more and I wanted it badly.
+ - If the bottom dropped out of the market and the artist was not going to sell anything, he or she will keep working, and the dealer will keep trying to find some way to convince somebody to buy this stuff.
+ - There are things about signing on to a process over the long term that protect you from the buffeting winds of change.
+ - I discovered about 150 dots is the minimum number of dots to make a specific recognizable person. You can make something that looks like a head, with fewer dots, but you won’t be able to give much information about who it is.
+ - I never said the camera was truth. It is, however, a more accurate and more objective way of seeing.
+ - I have a great deal of difficulty recognizing faces, especially if I haven’t – if I’ve just met somebody, it’s hopeless.
+ - I’m very interested in how we read things, especially the link between seeing two-dimensional and three-dimensional images, because of how I read.
+ - Of all the artists who emerged in the ’80s, I think perhaps Cindy Sherman is the most important.
+ - I have always attempted to create images that deliver the maximum amount of information about the subject.
+ - It’s always a pleasure to talk about someone else’s work.
+ - I did some pastels and I did other pieces in which there was just basically one color per square, and then they would get bigger and I could get 2 or 3 colors into the square, and ultimately I just started making oil paintings.
+ - I’m plagued with indecision in my life. I can’t figure out what to order in a restaurant.
+ - What difference does it make whether you’re looking at a photograph or looking at a still life in front of you? You still have to look.
+ - I love sculpture, and minimal sculpture is really my favorite stuff, but I wasn’t very good at it, and I don’t think in a three-dimensional way.
+ - Any innovation that is evident in my paintings is a direct result of something that happened in the course of making a print.
+
+77 quotes

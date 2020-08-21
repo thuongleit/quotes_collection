@@ -1,0 +1,48 @@
+ - A nation has a soul, a spiritual principle. One is in the past, the other in the present. One is the possession of a rich legacy of memories; the other is the desire to live together and to value the common heritage.
+ - The prayer of the agnostic: “O God, if there is a God, save my soul if I have a soul.”
+ - Getting its history wrong is part of being a nation.
+ - Forgetfulness, and I would even say historical error, are essential in the creation of a nation.
+ - A nation is a body of people who have done great things together.
+ - Muslims are the first victims of Islam. To liberate a Muslim from his religion is the best service that one can render him!
+ - All history is incomprehensible without Christ.
+ - Muslims are the first victims of Islam. Many times I have observed in my travels in the Orient that fanaticism comes from a small number of dangerous men who maintain the others in the practice of religion by terror. To liberate the Muslim from his religion is the best service one can render him.
+ - Blessed are the blind, for they know not enough to ask why.
+ - Jesus, in some respects, was an anarchist, for he had no idea of civil government. That government seems to him purely and simply an abuse. A great social revolution, in which rank will be overturned, in which all authority in this world will be humiliated, was his dream .
+ - Man makes holy what he believes as he makes beautiful what he loves.
+ - The epic disappeared along with the age of personal heroism; there can be no epic with artillery.
+ - Communism is in conflict with human nature.
+ - You may take great comfort from the fact that suffering inwardly for the sake of truth proves abundantly that one loves it and marks one out as being of the elect.
+ - The liberty of the individual is a necessary postulate of human progress.
+ - It is through Christianity that Judaism has really conquered the world. Christianity is the masterpiece of Judaism...
+ - Jesus was the greatest religious genius that ever lived.
+ - As soon as sacrifice becomes a duty and necessity to mankind. I see no limit to the horizon which opens before him.
+ - Human cruelty took the form of a pact with the deity. A solemn oath was made to kill everything, in which people forbade themselves any display of reason or compassion. A city or a land was devoted to destruction and it was believed an insult to God if one did not observe the abominable oath.
+ - He whom God has touched will always be a being apart: he is, whatever he may do, a stranger among men; he is marked by a sign.
+ - Good humor is a philosophic state of mind; it seems to say to nature that we take her no more seriously than she takes us.
+ - History is as much an art as a science.
+ - The ignorance of French society gives one a rough sense of the infinite.
+ - Work is the best thing to make us love life.
+ - None of the miracles with which ancient histories are filled, occurred under scientific conditions. Observation never once contradicted, teaches us that miracles occur only in periods and countries in which they are believed in and before persons disposed to believe in them.
+ - The greatest men of a nation are those it puts to death.
+ - The simplest schoolboy is now familiar with truths for which Archimedes would have sacrificed his life.
+ - True Christianity, which will last forever, comes from the gospel words of Christ not from the epistles of Paul. The writings of Paul have been a danger and a hidden rock, the causes of the principal defects of Christian theology.
+ - Our opinions become fixed at the point where we stop thinking.
+ - I can die when I wish to: that is my elixir of life.
+ - His glory Jesus Christ does not consist in beingplaced without the confines of history; a more real worship is paid to him, by showing that the whole of history is incomprehensible without him.
+ - All the great things of humanity have been accomplished in the name of absolute principles.
+ - As a rule, all heroism is due to a lack of reflection, and thus it is necessary to maintain a mass of imbeciles. If they once understand themselves the ruling men will be lost.
+ - Let us remember that sorrow alone is the creator of great things.
+ - No idea can succeed except at the expense of sacrifice; no one ever escapes without enduring strain from the struggle of life.
+ - The talent of historians lies in their creating a true ensemble out of facts which are but half true.
+ - To conceive the good, in fact, is not sufficient; it must be made to succeed among men. To accomplish this less pure paths must be followed.
+ - When people complain of life, it is almost always because they have asked impossible things of it.
+ - The man who obeys is nearly always better than the man who commands.
+ - In morals, truth is but little prized when it is a mere sentiment, and only attains its full value when realized in the world as fact.
+ - Relax yourself from one job by doing a different one.
+ - To be able to think freely, a man must be certain that no consequence will follow whatever he writes.
+ - The virtue of man is, in a word, the great proof of God.
+ - Religion is not a popular error; it is a great instinctive truth, sensed by the people, expressed by the people.
+ - To have common glories in the past, a common will in the present; to have done great things together; to wish to do greater; these are the essential conditions which make up a people.
+ - A grain of sand leads to the fall of a mountain when the moment has come for the mountain to fall.
+
+46 quotes

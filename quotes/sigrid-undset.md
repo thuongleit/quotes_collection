@@ -1,0 +1,24 @@
+ - No one and nothing can harm us, child, except what we fear and love.
+ - Feelings of longing seemed to burst from her heart; they ran in all directions, like streams of blood, seeking out paths to all the places in the wide landscape where she had lived, to all her sons roaming through the world, to all her dead lying under the earth.
+ - All my days I have longed equally to travel the right road and to take my own errant path.
+ - I hated school so intensely. It interfered with my freedom.
+ - But I didn’t realize then that the consequence of sin is that you have to trample on other people.
+ - All things that a man owns hold him far more than he holds them.
+ - It’s a good thing when you don’t dare do something if you don’t think it’s right. But it’s not good when you think something’s not right because you don’t dare do it.
+ - All fires burn out at last.
+ - I am not so foolish as to murmur, if now, since I have drunk up my wine and beer, I have to put up with skimmed milk and sour.
+ - I hated school so intensely. It interfered with my freedom. I avoided the discipline by an elaborate technique of being absent-minded during classes.
+ - I saw not till now what sin brings with it – that we must tread others underfoot.
+ - Many a man is given what is intended for another, but no man is given another’s fate.
+ - No doing without some ruing.
+ - The times when we need prayers or counsel, we are little like to be in a mood to learn, nor yet to understand.
+ - I went to work in an office and learned, among other lessons, to do things I did not care for, and to do them well. Before I left this office, two of my books had already been published.
+ - I was sent to a school because my father was already aware that his days were numbered, and he was anxious for me to acquire a good education and follow in his footsteps.
+ - One cannot escape dogmas – those who hold most firmly to dogmas today are those whose only dogma is that dogmas should be feared like the plague.
+ - The morality code that remains after the religion that produced it is rejected is like the perfume that lingers in an empty bottle.
+ - I rolled myself up into a tight ball of resistance and it was thus that I went through my school years.
+ - Easy for them to keep their youth who will never learn a lesson...
+ - In all the years when I did not know what to believe in and therefore preferred to leave all beliefs alone, whenever I came to a place where living water welled up, blessedly cold and sweet and pure, from the earth’s dark bosom, I felt that after all it must be wrong not to believe in anything.
+ - Most of my father’s life consisted of traveling to almost every part of Europe.
+
+22 quotes

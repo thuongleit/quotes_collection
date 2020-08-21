@@ -1,0 +1,21 @@
+ - If it’s achievement that you place your value in, you’re never going to achieve enough. If it’s power, you always need to wield power over others. If it’s money, you’ll never be rich enough. But if you do something and are a part of what is happening, then you’re always in it and it’s always enough.
+ - A man can certainly be a Muppet. Being a Muppet is a state of mind. It’s about finding that little part of you that’s unique, and not being embarrassed by it, but cherishing it.
+ - Fozzie Bear has so many bear puns in this script – like, ‘Trac is grizzly!’ ‘This is unbearable!’ It’s the greatest.
+ - My mother taught me to be nice to everybody. And she said something before I left home. She said, ‘I want you to always remember that the person you are in this world is a reflection of the job I did as a mother.’
+ - People have a lot less leniency for some reason for women straying from a relationship than they do for men.
+ - Part of growing up is not waiting in line at a hipster breakfast restaurant. The eggs taste the same across the street. I promise.
+ - I always have awkward relationships with the ladies for whatever reason. I don’t know and so here we are. I was able to sort of take all of those terrible, terrible, terrible dates and turn them into a money making venture.
+ - There were some super-lean years, yeah. I’m six feet four. And I entered into this period all of a sudden when I was too big to play a kid and I was too young to play an adult. Like, I couldn’t play the lawyer, but I couldn’t play the high school kid anymore.
+ - When you’re a kid, Kermit is Tom Hanks. He’s Tom Hanks for kids or Jimmy Stewart for kids. He’s truly the every man.
+ - The first time my mom found condoms in my room, she literally started crying hysterically.
+ - For some reason, I was born without a sense of embarrassment or shame.
+ - Kermit was the Everyman, the original Tom Hanks, but I have a special place in my heart for Fozzie Bear. The classic borderline hacky entertainer.
+ - One thing that I think never goes out of style is just purity. Niceness and purity. And the Muppets have never lost that. Kermit especially is just wide-eyed wonder, unblinking. And he cant blink. Which I think probably helps.
+ - I have always felt like romantic comedies are incredibly predictable. You look at the poster and you know those two are ending up together at the end of the movie.
+ - That’s the best advice I can give – when you’re trying to write a comedy, first write a drama, and then make it funny.
+ - If you can find the line between sympathetic and creepy, you have reached a very funny area.
+ - I like to be challenged acting wise and I like to do things that I’m scared of.
+ - We have reached a very cynical era of comedy. The Muppets have proven, for 40 years, that you can get laughs without ever doing it at someone else’s expense, and I think that that’s a really important thing for kids to realize.
+ - I’m better looking in person.
+
+19 quotes

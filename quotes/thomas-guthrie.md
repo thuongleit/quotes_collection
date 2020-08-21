@@ -1,0 +1,21 @@
+ - Lord, what wilt Thou have me to do?
+ - Religion is the mortar that binds society together; the granite pedestal of liberty; the strong backbone of the social system.
+ - Scatter money in a crowd, how they scramble for it; offer bread to the starving, how greedily they seize it; throw a rope to the drowning, how he eagerly grasps it! With like eagerness and earnestness may the Spirit of God help you to lay hold on Christ.
+ - Prayer flies where the eagle never flew.
+ - The work that is done in love loses half its tedium and difficulty.
+ - The more the diamond is cut the brighter it sparkles; and in what seems hard dealing, there God has no end in view but to perfect His people.
+ - If you find yourself loving any pleasure more than your prayers, any book better than the Bible, any house better than the house of the Lord, any table better than the Lord’s table, any persons better than Christ, or any indulgence better than the hope of heaven – be alarmed.
+ - As in nature, as in art, so in grace; it is rough treatment that gives souls, as well as stones, their luster.
+ - Heaven is the day of which grace is the dawn; the rich, ripe fruit of which grace is the lovely flower; the inner shrine of that most glorious temple to which grace forms the approach and outer court.
+ - Do it now. It is not safe to leave a generous feeling to the cooling influences of the world.
+ - Perhaps God does with His heavenly garden as we do with our own. He may chiefly stock it from nurseries, and select for transplanting what is yet in its young and tender age – flowers before they have bloomed and trees ere they begin to bear.
+ - The mental powers acquire their full robustness when the cheek loses its ruddy hue, and the limbs their elastic step; and pale thought sits on manly brows, and the watchman, as he walks his rounds, sees the student’s lamp burning far into the silent night.
+ - The Christian is not always praying; but within his bosom is a heaven-kindled love – fires of desire, fervent longings – which make him always ready to pray, and often engage him in prayer.
+ - More tears are shed in playhouses than in churches.
+ - The new novel is sought more eagerly, and devoured more greedily, the New Testament.
+ - It is not with a rush and a spring that we are to reach Christ’s character, and attain to perfect saintship; but step by step, foot by foot, hand over hand, we are slowly and often painfully to mount the ladder that rests on earth, and rises to heaven.
+ - The hope of immortality makes heroes of cowards.
+ - The finest flowers of genius have grown in an atmosphere where those of Nature are prone to droop, and difficult to bring to maturity.
+ - The cry of distress lays hold of our Lord’s omnipotence. It is as easy for God to supply thy greatest as thy smallest wants, even as it was within His power to form a system or an atom, to create a blazing sun as to kindle the fire-fly’s lamp.
+
+19 quotes

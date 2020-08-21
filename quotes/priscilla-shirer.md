@@ -1,0 +1,27 @@
+ - Unity does not mean sameness. It means oneness of purpose.
+ - We often don’t realize that where God puts us is the very place we need to be to receive what He wants to give us.
+ - It is time for us to breathe and build margin into our lives for God. Sabbath was intended as a gift, and it is still a gift to us today. If you are weary, worn out, and exhausted the concept of Sabbath will change your life.
+ - Everything you need God already is.
+ - Only God’s presence can change people’s lives.
+ - Fervent prayer keeps your true identity in focus.
+ - Today’s difficulties are often a result of yesterday’s disobedience.
+ - Give your hands to Him for His work, your feet to walk His path, and your ears to hear Him speak.
+ - Whatever you are holding onto in this life, hold it loosely so it won’t hurt when the Lord has to pry your fingers open to take it away.
+ - Having your spiritual radar up in constant anticipation of His presence- even in the midst of the joyful chaos and regular rhythms of your everyday living- is paramount in hearing God, because sometimes the place and manner you find Him is the least spectacular you’d expect.
+ - Contentment is the equilibrium between the enjoyment of life now and the anticipation of what is to come.
+ - In the midst of a universe that cannot exist for a second without constant motion, God transcended the order of nature. He stopped. He rested. And He prescribes the same for you and me.
+ - We can see hope in the midst of hopelessness. We can see peace in the midst of chaos. We have a hope that the world does not have. We can see clearly that all things work together for the good of them that love Him and are called according to His purpose.
+ - We serve a God who is waiting to hear from you, and He can’t wait to respond.
+ - God has gone before us so we can walk in the future He has for us.
+ - Yesterday’s partial obedience creates staggering consequences in today’s experiences.
+ - Persistent, internal inklings matched by external confirmation is often the way God directs believers into His will.
+ - They were creating a program on contemplative prayer called Be Still. They asked me to be a part of this project that was designed to help Americans see the importance of spending time before God in stillness. I knew immediately that God wanted me to be a part of the project.
+ - What might God be trying to grow in your character or cement in your relationship with Him by keeping you separated from some of the things you want but don’t yet have?
+ - Now is the time to know that God is able. To connect your current reality with God’s present ability.
+ - True success in any endeavor can only come when the Father has initiated the activity and invited our participation.
+ - Yet some of the most faithful, effective Christians I know are those who are living out their quiet calling to the few in their home, to their fledging church, or to the homeless under a bridge in their city. Nothing is meager or insignificant about that.
+ - If you feel an overwhelming urge to act spontaneously, pull in the reins.
+ - We can’t anticipate and provide for life’s trials, but the Lord can and does. The Lord wants us to thirst not after a quick fix to our problems but after the life-altering refreshment of His provision.
+ - Most of our days are filled with routine duties required for life to continue with any sort of sanity. But if we take the time look closely, we might discover that God is using these normal activities to prepare us for future tasks, each duty pointing to His blessing in our lives.
+
+25 quotes

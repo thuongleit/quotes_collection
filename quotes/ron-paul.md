@@ -1,0 +1,264 @@
+ - Truth is treason in the empire of lies.
+ - Don’t steal – the government hates competition!
+ - If you sacrifice liberty for security, you will lose both.
+ - Why is patriotism thought to be blind loyalty to the government and the politicians who run it, rather than loyalty to the principles of liberty and support for the people? Real patriotism is a willingness to challenge the government when it’s wrong.
+ - Real patriotism is a willingness to challenge the government when it’s wrong.
+ - Privacy IS freedom. Leave us alone!
+ - America was born of protest, revolution, and mistrust of government. Subservient societies neither maintain nor deserve freedom for long.
+ - Foreign aid is taking money from the poor people of a rich country and giving it to the rich people of a poor country.
+ - Let the revolution begin.
+ - Libertarians are incapable of being a racist, because racism is a collectivist idea.
+ - The true patriot is motivated by a sense of responsibility and out of self interest for himself, his family, and the future of his country to resist government abuse of power. He rejects the notion that patriotism means obedience to the state.
+ - When we give government the power to make medical decisions for us, we, in essence, accept that the state owns our bodies.
+ - The problem is that democracy is not freedom. Democracy is simply majoritarianism, which is inherently incompatible with real freedom. Our founding fathers clearly understood this.
+ - Our country’s founders cherished liberty, not democracy.
+ - The only thing we learn from history, I am afraid, is that we do not learn from history.
+ - There is only one kind of freedom and that’s individual liberty. Our lives come from our creator and our liberty comes from our creator. It has nothing to do with government granting it.
+ - Each of us should choose which course of action we must take; education, conventional political action, or even peaceful civil disobedience to bring about necessary changes, but let it not be said that we did nothing.
+ - Speak up, speak often and don’t worry about those that at this point cannot understand as they can never un-hear what we tell them.
+ - 1913 wasn’t a very good year. 1913 gave us the income tax, the 16th amendment and the IRS.
+ - Everyone who believes in freedom must work diligently for sound money, fully redeemable. Nothing else is compatible with the humanitarian goals of peace and prosperity.
+ - My message is simple – freedom works a lot better than the authoritarian style of government.
+ - By the way, when I say cut taxes, I don’t mean fiddle with the code. I mean abolish the income tax and the IRS, and replace them with nothing.
+ - Sanctions are not diplomacy. They are a precursor to war and an embarrassment to a country that pays lip service to free trade.
+ - Setting a good example is a far better way to spread ideals than through force of arms.
+ - Terror is a tactic. We can not wage “war” against a tactic.
+ - There is no such thing as a hate crime.
+ - When one gets in bed with government, one must expect the diseases it spreads.
+ - Income taxes are responsible for the transformation of the Federal government from one of limited powers into a vast leviathan whose tentacles reach into almost every aspect of American life.
+ - It is dissent from government policies which defines the true Patriot.
+ - I lean toward a flat tax. But I want to make it real flat, like ZERO.
+ - One thing is clear: The Founding Fathers never intended a nation where citizens would pay nearly half of everything they earn to the government.
+ - I’m convinced that you never have to give up liberties to be safe. I think you’re less safe when you give up your liberties.
+ - It is not democracy to send in billions of dollars to push regime change overseas. It isn’t democracy to send in the NGOs to re-write laws and the constitution in places like Ukraine. It is none of our business.
+ - Racism is simply an ugly form of collectivism, the mindset that views humans strictly as members of groups rather than individuals.
+ - With the exception of the military industrial complex, we all want a more peaceful world.
+ - If you can’t protect life, then how can you protect liberty?
+ - Liberty built civilization. It can rebuild civilization.
+ - For those who have asked, I freely confess that Jesus Christ is my personal Savior, and that I seek His guidance in all that I do.
+ - Because gold is honest money it is disliked by dishonest men.
+ - What if the American people woke up and understood that the official reasons for going to war are almost always based on lies and promoted by war propaganda in order to serve special interests?
+ - We don’t have the freedom of speech to talk about the weather. We have the first amendment so we can say some very controversial things.
+ - There’s capital controls and there’s people control. So every time you think of a fence keeping all those bad people out, think about those fences maybe being used against us, keeping us in.
+ - An idea whose time has come cannot be stopped by any army or any force.
+ - Who’s married and who isn’t married. I have my standards but I shouldn’t have to impose my standards on others. Other people have their standards and they have no right to impose their marriage standards on me.
+ - When things go badly, individuals look for scapegoats. I just do not believe that barbed-wire fences or guns on our border will solve any of our problems.
+ - The freer the market is and the more respect you have for private property, the better the environment is protected.
+ - I’m an imperfect messenger, but the message is perfect.
+ - We’re being taxed to blow up bridges in Iraq and rebuild them, while ours at home are falling down.
+ - But whether the resistance against government tyrants is non-violent or physically violent, the effort to overthrow state oppression qualifies as true patriotism.
+ - The freedom message brings us together, it doesn’t divide us.
+ - People should not be able to vote to take away the rights of others.
+ - Suicide terrorism stops when we stop intervening abroad.
+ - I’m all for raw milk. I think you should make your own choice on whether you drink raw milk or not.
+ - Stop policing the world and we can get rid of income tax.
+ - We should have a strong president. Strong enough to resist the temptation of taking power that a president shouldn’t have.
+ - Your money has never been safe in the government’s hands, and it never will be. Governments spend money; it’s just their nature.
+ - We should respect each other as rational beings by trying to achieve our goals through reason and persuasion rather than threats and coercion.
+ - Secession is a deeply American principle. This country was born through secession.
+ - Article 1 Section 8 of the Constitution says Congress has the ability to coin money and regulate the currency and doesn’t say anything about gold or silver.
+ - Let us give up our longing for welfare, our love of war, and our desire to see the government control and shape our fellow citizens. We must come to imagine liberty again, and believe that it can be a reality. We must recapture what it means to be free.
+ - Well, I don’t think we should go to the moon. I think we maybe should send some politicians up there.
+ - I want to be president mainly for what I don’t want to do: I don’t want to run your life, I don’t want to run the economy, and I don’t want to police the world.
+ - If you drink too much, you go out and you harm to somebody, you have to suffer the consequences. Same way with health matters. You don’t have the right to demand that someone else take care of you because of your habits.
+ - If two parties with two sets of bad ideas cooperate, the result is not good policy, but policy that is extremely bad. What we really need are correct economic and politcal ideas, regardless of the party that pushes them.
+ - I don’t know how to run your life. I don’t know how to run your life. I don’t have the authority to run your life. And the Constitution doesn’t permit me to run your life.
+ - You can’t have a healthy economy without sound money, which is why we’re on the verge of very serious economic problem.
+ - I’m not sure what Al Gore did for peace. I don’t think he have been high on my list for the Nobel Peace Prize.
+ - We don’t think a child of 13 should be held responsible as a man of 23. That’s true for most people, but black males age 13 who have been raised on the streets and who have joined criminal gangs are as big, strong, tough, scary and culpable as any adult and should be treated as such.
+ - You don’t quit because you happen to be behind. You want to see how you do. And who knows? Maybe somebody will stumble.
+ - What is not conservative about saying, ‘Don’t go to war unless we go to war properly with a full declaration of war and no other way?’
+ - Liberty has meaning only if we still believe in it when terrible things happen and a false government security blanket beckons.
+ - You know, freedom is a very popular idea, and young people love it, and they’re open to ideas. And they like principled answers to our problems.
+ - In the American political lexicon, ‘change’ always means more of the same: more government, more looting of Americans, more inflation, more police-state measures, more unnecessary war, and more centralization of power.
+ - What we need is a strong defense, but right now there is zero chance of an invasion by another country and right now we have more firepower than all other countries put together.
+ - Unskilled and inexperienced workers are the ones most often deprived of employment opportunities by increases in the minimum wage.
+ - The most important element of a free society, where individual rights are held in the highest esteem, is the rejection of the initiation of violence.
+ - I would like to restore your right to drink raw milk anytime you like.
+ - The sad thing is, our foreign policy WILL change eventually, as Rome’s did, when all budgetary and monetary tricks to fund it are exhausted.
+ - Libertarianism is the enemy of all racism.
+ - American voters should understand that Congress will always find a way to spend every last dollar sent to Washington.
+ - When one person can initiate war, by its definition, a republic no longer exists.
+ - September 11th does not justify ignoring the Constitution by creating broad new federal police powers. The rule of law is worthless if we ignore it whenever crises occur.
+ - Outsourcing is a reflection of a bad economic environment domestically. If you fix that, you fix outsourcing. Our primary export is paper money, and that should change if you change the monetary policy.
+ - Government spending is always a “tax” burden on the American people and is never equally or fairly distributed. The poor and low-middle income workers always suffer the most from the deceitful tax of inflation and borrowing.
+ - War is never economically beneficial except for those in position to profit from war expenditures.
+ - A failing state cannot stop a revolution whose time has come.
+ - The constant refrain that bringing our troops home would demonstrate a lack of support for them must be one of the most amazing distortions ever foisted on the American public.
+ - You don’t have freedom because you are a hyphenated American; you have freedom because you are an individual, and that should be protected.
+ - In the free society envisioned by the founders, schools are held accountable to parents, not federal bureaucrats.
+ - Everyone assumes America must play the leading role in crafting some settlement or compromise between the Israelis and the Palestinians. But Jefferson, Madison, and Washington explicitly warned against involving ourselves in foreign conflicts.
+ - Nothing good can come from the Federal Reserve. It is the biggest taxer of them all. Diluting the value of the dollar by increasing its supply is a vicious, sinister tax on the poor and middle class.
+ - As long as we live beyond our means, we are destined to live beneath our means.
+ - It is a dangerous notion that we need a government to protect us from ourselves.
+ - This much is true: you have been lied to.
+ - Capitalism should not be condemned, since we haven’t had capitalism.
+ - Close Dept. of Education, but don’t dismantle public schools.
+ - I have never met anyone who did not support our troops. Sometimes, however, we hear accusations that someone or some group does not support the men and women serving in our Armed Forces. But this is pure demagoguery, and it is intellectually dishonest.
+ - Why is it that some people, you know, think we should obey the Constitution sometimes and not other times.
+ - It would help the poor people who need jobs. Minimum wage is a mandate. We’re against mandates so why should we have it? It would be very beneficial.
+ - Remember, politicians get votes by promising everything to everyone, always at the expense of some other invisible taxpayers.
+ - I believe that Israel is one of our most important friends in the world.
+ - The Cap and Trade Bill HR 2454 was voted on last Friday. Proponents claim this bill will help the environment, but what it really does is put another nail in the economy’s coffin.
+ - The moral and constitutional obligations of our representatives in Washington are to protect our liberty, not coddle the world, precipitating no-win wars, while bringing bankruptcy and economic turmoil to our people.
+ - Once created, federal programs are nearly impossible to eliminate.
+ - We don’t need any troops abroad-they don’t help our defense.
+ - The federal government cannot maintain a budget surplus any more than an alcoholic can leave a fresh bottle of whiskey untouched in the cupboard.
+ - The only thing we should prohibit is violence.
+ - Could America exist without an income tax? The idea seems radical, yet in truth America did just fine without a federal income tax for the first 126 years of her history.
+ - The most basic principle to being a free American is the notion that we as individuals are responsible for our own lives and decisions.
+ - Mr. Speaker, I once again find myself compelled to vote against the annual budget resolution for a very simple reason: it makes government bigger.
+ - Immigrants can spread diseases for which we may have no immunity. There is also the question of crime and culture. Many immigrants come from countries with different legal structures and are not willing to behave in the way we expect American citizens to behave.
+ - During the last campaign I knew what was happening. You know, they mocked me for my foreign policy and they laughed at my monetary policy. No more. No more.
+ - I think the policy makers like the idea of being the boss. I mean people who like to boss other people around like to go into politics so they can become the boss.
+ - Both sides of the political spectrum must one day realize that limitless government intrusion in the economy, in our personal lives, and in the affairs of other nations cannot serve the best interests of America.
+ - There’s a a right to privacy for all individuals and all who have legal rights – and that includes the unborn. As an obstetrician, if I cause any harm to a fetus, I will be sued. If someone kills or harms a fetus they’re liable in a court of law.
+ - Prohibiting guns on campus made the Virginia Tech students less safe, not more.
+ - Big government flourishes under Republicans.
+ - I have my shortcomings. But the message, it has no shortcomings. The message of Liberty is what America is all about.
+ - If economy were good, there’d be no immigration problem.
+ - The Founders warned that a free society depends on a virtuous and moral people. The current crisis reflects that their concerns were justified.
+ - We get our rights from our Creator as individuals. So every individual should be treated the same way.
+ - Banning guns because of their misuse is like banning the First Amendment because one might libel or slander.
+ - Americans are tired of the games and the lies of today’s media. They want the truth. Imagine this. No censors, no barricades, no statists. We will be able to engage viewers directly on subjects that matter most to them, from finances to civil liberties to foreign policy.
+ - Governments have nothing. They can’t create anything, they never have. All they can do is steal from one group and give it to another at the destruction of the principles of freedom, and we ought to challenge that concept.
+ - Unlike Newt Gingrich and Rick Santorum, I never voted to provide taxpayer funding to Planned Parenthood.
+ - One thing is certain: those who worked and voted for less government, the very foot soldiers in the conservative revolution, have been deceived. Today, the ideal of limited government has been abandoned by the GOP, and real conservatives find their views no longer matter.
+ - It’s amazing that people don’t understand that the more the market is involved and the smaller the government, the lower the price, the better the distribution, and the higher the quality.
+ - It’s not part of our Constitution to assume that we are the world’s policemen.
+ - Only about 5 percent of blacks have sensible political opinions.
+ - There is but one special interest that we should be working for, and that would solve just about all of our problems, and that is our liberty.
+ - The cost in terms of liberties lost and the unnecessary exposure to terrorism are difficult to determine, but in time it will become apparent to all of us that foreign interventionism is of no benefit to American citizens, but is instead a threat to our liberties.
+ - What we need to do is not only live within our means, but start paying down the deficit, and offer an opportunity at least for the next generation to get out.
+ - Unfortunately, the greater the humanitarian outreach, the greater the violence required to achieve it.
+ - Let it not be said that no one cared, that no one objected once it’s realized that our liberties and wealth are in jeopardy.
+ - Having federal officials, whether judges, bureaucrats, or congressmen, impose a new definition of marriage on the people is an act of social engineering profoundly hostile to liberty.
+ - I think it’s a theory, the theory of evolution and I don’t accept it as a theory.
+ - Every country ended slavery without civil war; US could have.
+ - I wouldn’t vote against getting rid of the Jim Crow laws.
+ - America’s heart and soul is more embedded in our love of liberty, self-reliance, and tolerance than by our foreign policy, driven by powerful special interests with little regard for the Constitution.
+ - When we finally decide that drug prohibition has been no more successful than alcohol prohibition, the drug dealers will disappear.
+ - I had the privilege of practicing medicine in the early ’60s, before we had any government. It worked rather well, and there was nobody on the street suffering with no medical care.
+ - Today’s events are reminiscent of the Old Testament story of how the Israelites demanded a king over God’s objection. They believed that a king would give them peace and security. The results proved otherwise.
+ - I will always vote what I have promised, and always vote the Constitution, as well as I will not vote for one single penny that isn’t paid for, because debt is the monster, debt is what’s going to eat us up and that is why our economy is on the brink.
+ - If global warming is because of weather changes – which a lot of people believe – there’s not much we can do to change the weather pattern.
+ - Back a hundred years ago, especially around Woodrow Wilson, what happened in this country is we took freedom and we chopped it into pieces.
+ - Cliches about supporting the troops are designed to distract from failed policies, policies promoted by powerful special interests that benefit from war, anything to steer the discussion away from the real reasons the war in Iraq will not end anytime soon.
+ - I am absolutely opposed to a national ID card. This is a total contradiction of what a free society is all about. The purpose of government is to protect the secrecy and the privacy of all individuals, not the secrecy of government. We don’t need a national ID card.
+ - The Fourth Amendment is clear; we should be secure in our persons, houses, papers, and effects, and all warrants must have probable cause. Today the government operates largely in secret, while seeking to know everything about our private lives – without probable cause and without a warrant.
+ - If we are not even free anymore to decide something as basic as what we wish to eat or drink, how much freedom do we really have left?
+ - The Federal Reserve System is nothing more than legalized counterfeit.
+ - Throughout the 20th century, the Republican Party benefited from a non-interventionist foreign policy. Think of how Eisenhower came in to stop the Korean War. Think of how Nixon was elected to stop the mess in Vietnam.
+ - The Federal Reserve and Congress have systematically taught the American people to trust the government and that caution in spending is harmful to the economy.
+ - Bush humble foreign policy was hijacked into nation-building.
+ - I hope every person who reads or hears this will take the time to go back and read the Declaration of Independence. Only by recapturing the spirit of independence can we ensure our government never resembles the one from which the American States declared their separation.
+ - Even if you don’t like guns and don’t want to own them, you benefit from those who do.
+ - Justifying conscription to promote the cause of liberty is one of the most bizarre notions ever conceived by man! Forced servitude, with the risk of death and serious injury as a price to live free, makes no sense.
+ - To me, to be a conservative means to conserve the good parts of America and to conserve our Constitution.
+ - A system of capitalism presumes sound money, not fiat money manipulated by a central bank. Capitalism cherishes voluntary contracts and interest rates that are determined by savings, not credit creation by a central bank.
+ - There is no reason, in a free society, that farmers shouldn’t be allowed to raise hemp. Hemp is a good product.
+ - Because federal hate-crime laws criminalize thoughts, they are incompatible with a free society.
+ - There was a time when a willingness to criticize one’s own government when it was wrong was the very definition of patriotism.
+ - The theory of the IRS is rather repugnant to me because the assumption is made that I, the government, owns 100% of your income and I permit you to keep 5%, 10% or 20%. You’re vulnerable, you’ve sold out. The government can take 80% if they want, which they did at one time.
+ - In wartime, people willing to sacrifice liberty for security.
+ - Believe me, the intellectual revolution is going on, and that has to come first before you see the political changes. That’s where I’m very optimistic.
+ - What you are inferring is, If we were to legalise heroin tomorrow everybody would use heroin. How many people here would start using heroin? I bet nobody would. Oh yeah, I need the government to take care of me. I don’t want to use heroin, so I need these laws.
+ - No matter what politicians promise, Social Security reform will not change the fact that your money is taken from your paycheck and sent to Washington, where it will be spent.
+ - I have some help on tweeting.
+ - All initiation of force is a violation of someone else’s rights, whether initiated by an individual or the state, for the benefit of an individual or group of individuals, even if it’s supposed to be for the benefit of another individual or group of individuals.
+ - Freedom is living without government coercion. So when a politician talks about freedom for this group or that, ask yourself whether he is advocating more government action or less.
+ - I would say nobody is perfect. I don’t know all the answers. I have don’t want to run people’s lives and run the world and run the economy. So, my qualifications are a little bit different.
+ - There should essentially be no limits to the voluntary definition of marriage.
+ - Expect the rapidly expanding homeschool movement to play a significant role in the revolutionary reforms needed to rebuild a free society with constitutional protections.
+ - There’s nothing wrong with being a Conservative and coming up with a Conservative believe in foreign policy where we have a strong national defense and we don’t go to war so carelessly.
+ - In time it will become clear to everyone that support for the policies of pre-emptive war and interventionist nation-building will have much greater significance than the removal of Saddam Hussein itself.
+ - No one talks about the real ethics disaster in Washington. It’s that many members of Congress will listen to any argument against a bill except for two: that it’s not moral or that it’s not Constitutional.
+ - We must educate ourselves and others about our precious civil liberties to ensure that we never accept demands that we give up our Constitution so that the government can pretend to protect us.
+ - Is it any more moral to dilute the value of the purchasing power of the money you hold in your wallet than it is for the farmer to dilute the milk supply with water?
+ - If you’re really serious about protecting people’s incomes, you’ve got to consider how you’re going to protect the dollar. If you don’t have the dollar maintaining its value, no matter where you put the money you’re not going to have any value.
+ - Ideas are the only things that count, and politicians are, for the most part, pretty much irrelevant.
+ - We can achieve much more in peace than we can ever achieve in these needless, unconstitutional, undeclared wars.
+ - While President Obama was starting and expanding unconstitutiona l wars overseas, Bradley Manning, whose actions have caused exactly zero deaths, was shining light on the truth behind these wars.
+ - I am just absolutely convinced that the best formula for giving us peace and preserving the American way of life is freedom, limited government, and minding our own business overseas.
+ - By encouraging Americans to adopt a group mentality, the advocates of so called ‘diversity’ actually perpetuate racism. Their obsession with racial group identity is inherently racist...
+ - The role of the federal government is to protect our liberties. That means they should protect our religious liberties to do what we want; our intellectual liberty, but it also should protect our right to do to our body what we want, you know, what we take into our bodies.
+ - They’ve been taught by too many that this war was necessary when it isn’t.
+ - When you have war, whether it’s a war against drugs, war against terrorism, war overseas, the mentality of the people change and they’re more willing to sacrifice their liberties in order to be safe and secure.
+ - The ultimate goal of the anti-religious elites is to transform America into a completely secular nation, a nation that is legally and culturally biased against Christianity.
+ - Government is the enemy of conservatism and freedom.
+ - I take my marching orders from the Constitution.
+ - It would be virtually impossible to finance wars without taxing the people, and the welfare system would be limited because there wouldn’t be enough money in the bank to sustain it as it is, and that would help prices stay under control.
+ - I have a personal belief that you never have to give up liberty for security. You can still provide security without sacrificing our Bill of Rights.
+ - Just think of what Woodrow Wilson stood for: he stood for world government. He wanted an early United Nations, League of Nations. But it was the conservatives, Republicans, that stood up against him.
+ - Get rid of IRS; get rid of income tax; get rid of spending.
+ - Another term for preventive war is aggressive war – starting wars because someday somebody might do something to us. That is not part of the American tradition.
+ - The American people are sick and tired of Washington and the people who have been in charge have been passing all these bills and I’ve been voting no all of the time and vote no on these appropriation bills.
+ - If people are smokers, don’t they have to pay more? Sometimes, you get your insurance cheaper if you are a nonsmoker. So, let the markets sort this out and insurance sort it out, but not having dictates by the government saying thou, you must do this and your behavior doesn’t matter, you know?
+ - The Boston bombing provided the opportunity for the government to turn what should have been a police investigation into a military-style occupation of an American city. This unprecedented move should frighten us as much or more than the attack itself.
+ - Congress remains in total denial as our liberties are rapidly fading before our eyes. The process is propelled by unwarranted fear and ignorance as to the true meaning of liberty. It is driven by economic myths, fallacies and irrational good intentions.
+ - You know, the greatest hoax I think that has been around in many, many years if not hundreds of years has been this hoax on the environment and global warming. You notice they don’t call it global warming anymore. It’s weather control.
+ - There is nothing wrong with describing Conservatism as protecting the Constitution, protecting all things that limit government. Government is the enemy of liberty. Government should be very restrained.
+ - It’s not like I’m just trying to win and get elected. I’m trying to change the course of history.
+ - It is true that liberty is not free, nor is it easy. But tyranny – even varying degrees of it – is much more difficult, and much more expensive. The time has come to rein in the federal government, put it on a crash diet, and let the people keep their money and their liberty.
+ - It is no coincidence that the century of total war coincided with the century of central banking.
+ - We need to make sure that people can save all the money they spend on medical care by getting it back from their taxes, by reducing their tax burden.
+ - Prices are going up. Unemployment is continue to go up. And we have not had the necessary correction for the financial bubble created by our Federal Reserve system.
+ - We must remember, elections are short-term efforts. Revolutions are long-term projects.
+ - Astonishingly, American taxpayers now will be forced to finance a multi-billion dollar jobs program in Iraq. Suddenly the war is about jobs. We export our manufacturing jobs to Asia, and now we plan to export our welfare jobs to Iraq, all at the expense of the poor and the middle class here at home.
+ - I would say that I’m pretty mainstream.
+ - If somebody’s in prison for non-violence, drug usage, and never committed a hard crime, they should be pardoned and let out.
+ - If you have ever been robbed by a black teen-aged male, you know how unbelievably fleet-footed they can be.
+ - I think Israel should be treated as an independent nation and not a puppet of our state.
+ - How did we win the election in the year 2000? We talked about a humble foreign policy: No nation-building; don’t police the world. That’s conservative, it’s Republican, it’s pro-American – it follows the founding fathers. And, besides, it follows the Constitution.
+ - I believe only a free society can ever be truly secure. The goal should be to make terrorists feel threatened, not the American people.
+ - In a free society, we are supposed to know the truth. In a society where truth becomes treason, however, we are in big trouble.
+ - I never would force the Justice Department to go to California and arrest people getting medical marijuana, when that’s the law there.
+ - I believe that when we overdo our military aggressiveness, it actually weakens our national defense. I mean, we stood up to the Soviets. They had 40,000 nuclear weapons. Now we’re fretting day in and day and night about third-world countries that have no army, navy or air force.
+ - What else do we need to know about the political establishment than that it refuses to discuss the crimes that terrify Americans on grounds that doing so is racist? Why isn’t that true of complex embezzling, which is 100 percent white and Asian?
+ - Scientifically, there’s no debate over whether the fetus is alive and human.
+ - You don’t have a right to a house, you don’t have a right to a job, you don’t have a right to medical care.
+ - There’s not much you can do about the bias of the media other than try to counteract it by putting the truth out best you can, and the Internet has been a great weapon for holding the media accountable.
+ - The number one responsibility for each of us is to change ourselves with hope that others will follow.
+ - Aggression and forced redistribution of wealth has nothing to do with the teachings of the world’s great religions.
+ - When the federal government spends more each year than it collects in tax revenues, it has three choices: It can raise taxes, print money, or borrow money. While these actions may benefit politicians, all three options are bad for average Americans.
+ - As recent as the year 2000 we won elections by saying we shouldn’t be the policemen of the world, and that we should not be nation building. And its time we got those values back into this country.
+ - Once you get the government involved in agriculture you’ll have nothing but problems and expenses.
+ - Believe me, the next step is a currency crisis because there will be a rejection of the dollar, the rejection of the dollar is a big, big event, and then your personal liberties are going to be severely threatened.
+ - Young people are not raw material to be employed by the political class on behalf of whatever fashionable political, military, or social cause catches its fancy. In a free society, their lives are not the playthings of government.
+ - Without precise meanings behind words, politicians and elites can obscure reality and condition people to reflexively associate certain words with positive or negative perceptions. In other words, unpleasant facts can be hidden behind purposely meaningless language.
+ - I have this terrible habit of wanting to try to be consistent and develop a philosophy that’s coherent.
+ - Why is it is claimed that if people won’t or can’t take care of their own needs, that people in government can do it for them?
+ - We have a greater responsibility to act than those who live in ignorance. Once you become knowledgeable, you have an obligation to do something about it.
+ - We need to take away the government’s money power. The banking industry needs its welfare check ended. The dollar’s soundness depends on its being untied from the machine that can make an infinite number of copies of dollars and reduce their value to zero.
+ - If people won’t spend any money, the government has this moral obligation to do it.
+ - Deficits mean future tax increases, pure and simple. Deficit spending should be viewed as a tax on future generations, and politicians who create deficits should be exposed as tax hikers.
+ - Do they think if we destroy our freedoms for the terrorists they will no longer have a reason to attack us?
+ - I do not have much confidence in the political system and never did. My goal has always been to change people’s minds because as long as people demand more government, they will get it.
+ - I would absolutely never use the federal government to enforce the law of using marijuana.
+ - True prosperity can only come from a healthy economy and sound money. That can only be achieved in a free society.
+ - Of course I’ve already taken a very modest position on the monetary system, I do take the position that we should just end the Fed.
+ - I am absolutely convinced, you never have to give up any of your freedoms in order to be secure.
+ - If you care about your personal liberty, you’ll be cautious when you feel comfortable, blame all the illegal immigrants for everything. What you need to do is attack their benefits: no free education, no free subsidies, no citizenship, no birthright citizenship.
+ - Maybe we ought to consider a Golden Rule in foreign policy: Don’t do to other nations what we don’t want happening to us. We endlessly bomb these countries and then we wonder why they get upset with us?
+ - The Congress should not be creating money out of thin air, which is what Lincoln did when he created greenbacks. But it is a congressional responsibility to maintain gold and silver as a legal tender.
+ - It’s a mistake to think that poor people get the benefit from the welfare system. It’s a total fraud. Most welfare go to the rich of this country: the military-industrial complex, the bankers, the foreign dictators, it’s totally out of control.
+ - Legitimate use of violence can only be that which is required in self-defense.
+ - Demanding domestic security in times of war invites carelessness in preserving civil liberties and the right of privacy. Frequently the people are only too anxious for their freedoms to be sacrificed on the altar of authoritarianism thought to be necessary to remain safe and secure.
+ - Too many members of Congress believe they can solve all economic problems, cure all social ills, and bring about worldwide peace and prosperity simply by creating new federal programs.
+ - Once again, President Clinton is using American troops to deflect attention from his record of lies, distortions, obstructions of justice and abuse of power.
+ - When the goal of political action is no longer the defense of liberty, no word other than demagoguery can describe the despicable nature of politics.
+ - Have you noticed the debt is exploding? And it’s not all because of Medicare.
+ - We have to restore confidence that the marketplace can deliver services as well as it can goods.
+ - I’d like to think of myself as the flavor of the decade.
+ - I am convinced that there are more threats to American liberty within the 10 mile radius of my office on Capitol Hill than there are on the rest of the globe.
+ - Right now, nobody legalized paper money. Where did that come from.
+ - No matter how many pro-freedom politicians we elect to office, the only way to guarantee constitutional government is through an educated and activist public devoted to the ideals of liberty.
+ - Never voted to spend one penny of Social Security money.
+ - I wish I could say I was shocked at the reports the NSA is secretly spying on the private phone calls of millions of Verizon customers. However, this is a predictable result of a government that continues to erode our liberties while promising some glimmering hope of security.
+ - You wanna get rid of drug crime in this country? Fine, let’s just get rid of all the drug laws.
+ - If Iran invaded Israel, it’s up to Congress to declare war.
+ - White Castle has a unique position in the Midwest. It is a cult brand that has developed a strong, loyal following.
+ - So the time line of when we consider a fetus ‘human’ is arbitrary after conception.
+ - They ask me if I’m going to quit. I thought we were just getting started. We have a revolution to fight, a country to change.
+
+262 quotes

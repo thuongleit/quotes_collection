@@ -1,0 +1,27 @@
+ - I love Canada, always.
+ - I’m a first-generation Canadian.
+ - I love the freedom to do whatever I want with style and not be put into a box.
+ - It’s nice to have some anonymity and still be low key.
+ - I’m a drugstore beauty girl, I love going to the drugstore and buying makeup.
+ - I’m a young girl with an old soul. I wanted to fuse the two together, the past and the present.
+ - I am a bit of a hopeless romantic. I really do have a faith and a belief in love, and when I love, I love hard.
+ - Whitney Houston’s voice was the very first voice I fell in love with. She was the voice that made me want to become a singer.
+ - West Indian cultural mentality and a North American life equals the perfect balance.
+ - The true essence of fashion is being able to reinvent yourself with what you have.
+ - Toronto is a very multicultural city, a place of immigrants, like my parents.
+ - Canada had the good health-care system and educational system. It was a privilege for me to grow up there.
+ - When you’re with your family you’re with them and when you’re working you’re doing that. I definitely try to separate the time when I’m working and when I have my personal time.
+ - Bob Marley is one of the most recognized artists. He didn’t care to be defined. People wondered, ‘Is it reggae? Is it rock?’ But at the end of the day they were still playing his music and that’s what matters.
+ - I’ve admired Alicia Keys since before I got into the music industry, just everything she represents as a female artist.
+ - Before I could even hold a pen I was singing.
+ - I always feel like music should be a universal language.
+ - My dad still calls me and makes sure I’m taking my vitamins.
+ - I feel like shoes are one of those things that no matter how conservative or how outrageous you get, a good pair of shoes is going to last you a lifetime.
+ - Older audiences are hard to win over. They’re very specific in their tastes and critical of new music.
+ - I consider myself more of an international artist than I do a one-territory artist, which I think is a blessing.
+ - Once I started performing I knew that’s what I wanted to do with my life. But you have to work really hard to be a performer.
+ - I live out of my suitcase and I’m happy to do so.
+ - Canada can be tough for urban music.
+ - I rarely buy a shoe that is completely specific to a time and outfit. I generally tend to spend money on good shoes that can go with everything.
+
+25 quotes

@@ -1,0 +1,32 @@
+ - You don’t climb a mountain in leaps and bounds, but by taking it slowly.
+ - The proof of love is in the works. Where love exists, it works great things. But when it ceases to act, it ceases to exist.
+ - The Holy Bible is like a mirror before our mind’s eye. In it we see our inner face. From the Scriptures we can learn our spiritual deformities and beauties. And there too we discover the progress we are making and how far we are from perfection.
+ - We make Idols of our concepts, but Wisdom is born of wonder.
+ - The only true riches are those that make us rich in virtue. Therefore, if you want to be rich, beloved, love true riches. If you aspire to the heights of real honor, strive to reach the kingdom of Heaven. If you value rank and renown, hasten to be enrolled in the heavenly court of the Angels.
+ - The Bible is a stream of running water, where alike the elephant may swim, and the lamb walk without losing its feet.
+ - Ignorance is a dangerous and spiritual poison, which all men ought warily to shun.
+ - To do penance is to bewail the evil we have done, and to do no evil to bewail.
+ - He who is required by the necessity of his position to speak the highest things is compelled by the same necessity to exemplify the highest things.
+ - If the work of God could be comprehended by reason, it would no longer be wonderful, and faith would have no merit if reason provided proof.
+ - You cannot acquire the gift of peace if by your anger you destroy the peace of the Lord.
+ - The holy universal Church teaches that it is not possible to worship God truly except in Her and asserts that all who are outside of Her will not be saved.
+ - If we are, in fact, now occupied in good deeds, we should not attribute the strength with which we are doing them to ourselves. We must not count on ourselves, because even if we know what kind of person we are today, we do not know what we will be tomorrow.
+ - The universe is not rich enough to buy the vote of an honest man.
+ - We must observe also, that among the heathen the names of poor men are more likely to be known than of rich. Now our Lord mentions the name of the poor, but not the name of the rich, because God knows and approves the humble, but not the proud.
+ - Act in such a way that your humility may not be weakness, nor your authority be severity. Justice must be accompanied by humility, that humility may render justice lovable.
+ - Affliction strengthens the vigor of our soul, whereas happiness weakens it.
+ - The more the wicked abound, so much the more must we suffer with them in patience; for on the threshing floor few are the grains carried into the barns, but high are the piles of chaff burned with fire.
+ - Scriptura sacra mentis oculis quasi quoddam speculum opponitur, ut interna nostra facies in ipsa videatur. Holy scripture is placed before the eyes of our mind like a mirror, so that we may view our inner face therein.
+ - Now if the wearing of fine and precious robes were not a fault, word of God would never have so carefully expressed this. For no one seeks costly garments except for vainglory, that he may seem more honorable than others; for no one wishes to be clothed with such, where he cannot be seen by others.
+ - Obedience is the only virtue that plants the other virtues in the heart and preserves them after they have been planted.
+ - Whatsoever one would understand what he hears must hasten to put into practice what he has heard.
+ - Whoever wishes to hold the fortress of contemplation must first of all train in the camp of action.
+ - As long as the vice of gluttony has a hold on a man, all that he has done valiantly is forfeited by him: and as long as the belly is unrestrained, all virtue comes to naught.
+ - The bliss of the elect in heaven would not be perfect unless they were able to look across the abyss and enjoy the agonies of their brethren in eternal fire.
+ - There are in truth three states of the converted: the beginning, the middle, and the perfection. In the beginning they experience the charms of sweetness; in the middle the contests of temptation; and in the end the fullness of perfection.
+ - The greatness of contemplation can be given to none but those who love.
+ - The human mind is prone to pride even when not supported by power; how much more, then, does it exalt itself when it has that support?
+ - What do they not see, who see Him Who sees all things?
+ - And here we must narrowly watch ourselves, seeing that banquets can scarcely be celebrated blamelessly, for almost always luxury accompanies feasting; and when the body is swallowed up in the delight of refreshing itself, the heart relaxes to empty joys.
+
+30 quotes

@@ -1,0 +1,58 @@
+ - Love cannot live where there is no trust.
+ - It has always seemed strange to me that in our endless discussions about education so little stress is laid on the pleasure of becoming an educated person, the enormous interest it adds to life. To be able to be caught up into the world of thought-that is to be educated.
+ - Faith is not belief. Belief is passive. Faith is active.
+ - The power of good is shown not by triumphantly conquering evil, but by continuing to resist evil while facing certain defeat.
+ - Myths are early science, the result of men’s first trying to explain what they saw around them.
+ - Responsibility is the price every man must pay for freedom.
+ - There is no dignity like the dignity of a soul in agony.
+ - When the world is storm-driven and bad things happen, then we need to know all the strong fortresses of the spirit which men have built through the ages.
+ - When the freedom they wished for most was freedom from responsibility, then Athens ceased to be free and was never free again.
+ - To rejoice in life, to find the world beautiful and delightful to live in, was a mark of the Greek spirit which distinguished it from all that had gone before. It is a vital distinction.
+ - The mind knows only what lies near the heart.
+ - None so good that he has no faults, None so wicked that he is worth naught.
+ - Tell one your thoughts, but beware of two. All know what is known to three.
+ - Uncertainty is the prerequisite to gaining knowledge and frequently the result as well.
+ - The suffering of a soul that can suffer greatly – that and only that, is tragedy.
+ - Pain is the most individualized thing on earth. It is true that it is the great common bond as well, but that realization only comes when it is over. To suffer is to be alone. To watch another suffer is to know the barrier that shuts each of us away by himself Only individuals can suffer.
+ - The fullness of life is in the hazards of life. And, at the worst, there is that in us which can turn defeat into victory.
+ - The comedy of each age holds up a mirror to the people of that age, a mirror that is unique.
+ - To be able to be caught up into the world of thought-that is educated.
+ - When faith is supported by facts or by logic it ceases to be faith.
+ - It was a Roman who said it was sweet to die for one’s country. The Greeks never said it was sweet to die for anything. They had no vital lies.
+ - The Greek temple is the creation, par excellence, of mind and spirit in equilibrium.
+ - It is not hard work that is dreary; it is superficial work.
+ - A people’s literature is the great textbook for real knowledge of them. The writings of the day show the quality of the people as no historical reconstruction can.
+ - Reality has actually very little to do with truth; there is no necessary connection between the two.
+ - The fullness of life is in the hazards of life.
+ - Our word ‘idiot’ comes from the Greek name for the man who took no share in public matters.
+ - The temper of mind that sees tragedy in life has not for its opposite the temper that sees joy. The opposite pole to the tragic view of life is the sordid view.
+ - Great art is the expression of a solution of the conflict between the demands of the world without and that within.
+ - A tendency to exaggeration was a Roman trait.
+ - Theories that go counter to the facts of human nature are foredoomed.
+ - When we speak of beauty, we’re speaking of something we’re more or less indifferent to.
+ - The Old Testament is the record of men’s conviction that God speaks directly to men.
+ - No facts, however indubitably detected, no effort of reason, however magnificently maintained, can prove that Bach’s music is beautiful.
+ - He was there beside her, yet she was far away from him, aone with her outraged love and her ruined life.
+ - A word is no light matter. Words have with truth been called fossil poetry, each, that is, a symbol of a creative thought.
+ - Christ must be rediscovered perpetually.
+ - The heterodoxy of one generation is the orthodoxy of the next.
+ - The easy way has never in the long run commanded the allegiance of mankind.
+ - When the mind withdraws into itself and dispenses with facts it makes only chaos.
+ - We must not contradict, but instruct him that contradicts us; for a madman is not cured by another running mad also. To be able to be caught up into the world of thought – that is being educated.
+ - There is no better indication of what the people of any period are like than the plays they go to see.
+ - The fundamental facts about the Greek was that he had to use his mind. The ancient priest had said, “Thus far and no farther. We set the limits of thought.” The Greeks said, All things are to be examined and called into question. There are no limits set on thought.
+ - Mind and spirit together make up that which separates us from the rest of the animal world, that which enables a man to know the truth and that which enables him to die for the truth.
+ - Poetry and preaching do not go well together; when the preacher mounts the pulpit the poet usually goes away.
+ - The modern minds in each generation are the critics who preserve us from a petrifying world, who will not leave us to walk undisturbed in the ways of our fathers.
+ - I came to the Greeks early, and I found answers in them. Greece’s great men let all their acts turn on the immortality of the soul. We don’t really act as if we believed in the soul’s immortality and that’s why we are where we are today.
+ - They were the first Westerners. The spirit of the West, the modern spirit, is a Greek discovery; and the place of the Greeks is in the modern world.
+ - Ages of faith and of unbelief are always said to mark the course of history.
+ - None but a poet can write a tragedy. For tragedy is nothing less than pain transmuted into exaltation by the alchemy of poetry.
+ - All things are at odds when God sets a thinker loose on the planet.
+ - The Greeks were the first intellectualists. In a world where the irrational had played the chief role, they came forward as the protagonists of the mind.
+ - In theology the conservative temper tends to formalism.
+ - There are few efforts more conducive to humility than that of the translator trying to communicate an incommunicable beauty. Yet, unless we do try, something unique and never surpassed will cease to exist except in the libraries of a few inquisitive book.
+ - Convention, so often a mask for injustice...
+ - Old ideas are continually being slain by new facts. There is nothing stable in the conclusions of the mind, and it is impossible that there ever should be unless we hold that the universe is made to the measure of the human mind, an assumption for which nothing in the past gives any warrant.
+
+56 quotes

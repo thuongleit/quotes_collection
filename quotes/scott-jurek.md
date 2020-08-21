@@ -1,0 +1,23 @@
+ - Injuries are our best teachers.
+ - Sometimes you just do things!
+ - The longer and farther I ran, the more I realized that what I was often chasing was a state of mind – a place where worries that seemed monumental melted away, where the beauty and timelessness of the universe, of the present moment, came into sharp focus.
+ - Nature’s arena has a way of humbling and energizing us.
+ - We all lose sometimes. We fail to get what we want. Friends and loved ones leave. We make a decision we regret. We try our hardest and come up short. It’s not the losing that defines us. It’s how we lose. It’s what we do afterward.
+ - Train where your fitness is NOW, not where you want to be.
+ - As powerful as our legs are, as magnificent as our lungs and arms and muscles are, nothing matters more than the mind.
+ - Every single one of us possesses the strength to attempt something he isn’t sure he can accomplish.
+ - It’s a hard, simple calculus: Run until you can’t run anymore. Then run some more. Find a new source of energy and will. Then run even faster.
+ - We move forward, but we must stay in the present.
+ - Overcoming the difficulties of an ultramarathon reminds me that I can overcome the difficulties of life.
+ - What we eat is a matter of life and death.
+ - You can hurt more than you ever thought possible, then continue until you discover that hurting isn’t that big a deal.
+ - The point was living with grace, decency, and attention to the world, and breaking free of the artificial constructs in your own life.
+ - We strive toward a goal, and whether we achieve it or not is important, but it’s not what’s most important. What matters is how we move toward that goal.
+ - We can live as we were meant to live – simply, joyously, of and on the earth. We can live with all our effort and with pure happiness.
+ - Humans aren’t built to sit all day. Nor are we built for the kinds of repetitive, small movements that so much of today’s specialized work demands. Our bodies crave big, varied movements that originate at the core of our body.
+ - Sometimes the road to wellness isnt a well-marked expressway.
+ - Rational assessments too often led to rational surrenders.
+ - For me, it’s about optimizing health. It’s about lifestyle and longevity. Then you think about what vegetarian diets can do for the mass population, in terms of lower consumption of resources. When you look at the numbers, it’s pretty staggering.
+ - Only the most saintly and delusional among us welcomes all pain as challenge, perceives all loss as harsh blessing.
+
+21 quotes

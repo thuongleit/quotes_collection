@@ -1,0 +1,35 @@
+ - The only people who never fail are those who never try.
+ - To me travel is triple delight: anticipation, performance, and recollection.
+ - Democracy is not an easy form of government, because it is never final; it is a living, changing organism, with a continuous shifting and adjusting of balance between individual freedom and general order.
+ - Among famous traitors of history one might mention the weather.
+ - Believe me, nothing is so calculated to lose you audience sympathy as too many tears. Move your listeners all you can but let them do the crying.
+ - I always felt that the boiled potato, not the tudor rose, should be the national emblem.
+ - Young people want to look like peas in a pod, and there is no use trying to make them different.
+ - Wart hogs should sue for libel. It is a terrible name and they are fine fellows and devoted family men and it is rare to see one by himself; the little woman and the kiddies are usually close at hand.
+ - Intellect alone is a dry and rattling thing.
+ - When traveling abroad if you see something you yearn for if you can afford it at all, buy it. If you don’t you’ll regret it all your life.
+ - Art, we are told, is a criterion of one’s taste. How humiliating, should our taste turn out to be bad. Rather as though we were caught stark naked with a poor figure.
+ - I suppose anyone who has ever written a travel book has had the experience of being accosted by a reader with blood in his eye and a lawsuit in his voice.
+ - The very fact that we make such a to-do over golden weddings indicates our amazement at human endurance. The celebration is more in the nature of a reward for stamina.
+ - Prolonged statistics are a lethal dose, which if it does not kill will certainly dispel your audience.
+ - You can always spot a well informed man his views are the same as yours.
+ - Neither an assembly line nor a stock market nor an oil well did it, simply what came from one small skull and that one right hand.
+ - When he said we were trying to make a fool of him, I could only murmur that the Creator had beat us to it.
+ - I’ve got a heart like a college prom. Each one I dance with seems the best of all.
+ - It is usually when men are at their most religious that they behave with the least sense and the greatest cruelty.
+ - Like building a house, travel always costs more than you estimate.
+ - Between frivolity and intentional mischief there is little difference, none in the results.
+ - It occurred to me that we live in a lunatic world where the only way to maintain peace is to have an enormous war-making machine.
+ - People are subject to moods, to temptations and fears, lethargy and aberration and ignorance, and the staunchest qualities shift under the stresses and strains of daily life.
+ - The advertising agency, as it stands today, is a peculiar manifestation of American business life of the twentieth century – glossy, brash, and insecure.
+ - There are three things the prospective traveler to Russia does well to bear in mind. One: It is their country. Two: Most foreigners are profoundly relieved that this is so. Three: You don’t have to go.
+ - Keeping your coat on indoors in Russia, no matter how public the place, is far worse than keeping your hat on as the flag goes by. It is worse than going into a Catholic church in Spain with your upper arms bare. It is worse than telling a mother her baby bores you.
+ - Very few people, thank God, look like the pictures of them which are published in the papers and the weekly magazines...
+ - George Moore unexpectedly pinched my behind. I felt rather honored that my behind should have drawn the attention of the great master of English prose.
+ - We’ve surrounded the most vital and commonplace human function with a vast morass of taboos, convention, hypocrisy, and plain claptrap.
+ - Love at a distance may be poignant; it is also idealized. Contact, more than separation, is the test of attachment.
+ - Some objects and events may be photographed, others, if one is to render their true quality, should be painted or set to music, since their essence is more faithfully reproduced through imagination than by the journalistic report.
+ - America’s best buy is a telephone call to the right man.
+ - All the humiliating, tragicomic, heartbreaking things happened to me in my girlhood, and nothing makes me happier than to realize I cannot possibly relive my youth.
+
+33 quotes

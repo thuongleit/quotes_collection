@@ -1,0 +1,183 @@
+ - Doubt your doubts before you doubt your faith.
+ - Rise up and become the person you were meant to be.
+ - As we lose ourselves in the service of others, we discover our own lives and our own happiness.
+ - Our destiny is not determined by the number of times we stumble but by the number of times we rise up, dust ourselves off, and move forward.
+ - It is your reaction to adversity, not the adversity itself, that determines how your life’s story will develop.
+ - Never give up on anyone. And that includes not giving up on yourself.
+ - Being a disciple of Jesus Christ is not an effort of once a week or once a day. It is an effort of once and for all.
+ - Don’t judge me because I sin differently from you.
+ - Try and keep on trying until that which seems difficult becomes possible and that which seems only possible becomes habit and a real part of you.
+ - Sometimes we become so focused on the finish line, that we fail to find joy in the journey.
+ - The thing about the truth is that it exists outside of belief. Even if nobody believes it, that thing is still true.
+ - Now is the best time to start becoming the person we eventually want to be – not only 20 years from now but also for all eternity.
+ - Work is an antidote for anxiety, an ointment for sorrow, and a doorway to possibility.
+ - Compared to God, man is nothing; yet we are everything to God.
+ - To strengthen our relationship with God, we need some meaningful time alone with Him.
+ - Never give in, never surrender, Never allow despair to overcome your spirit.
+ - Patience is a purifying process that refines understanding, deepens happiness, focuses action, and offers hope for peace.
+ - First doubt your doubts before you doubt your faith. We must never allow doubt to hold us prisoner and keep us from the divine love, peace, and gifts that come through faith in the Lord Jesus Christ.
+ - Don’t let fear of failure discourage you. Don’t let the voice of critics paralyze you – whether that voice comes from the outside or the inside.
+ - What we love determines what we seek. What we seek determines what we think and do. What we think and do determines who we are – and who we will become.
+ - By becoming the answer to someone’s prayer, we often find the answer to our own.
+ - No one likes to fail. But we mortals do not become champions without effort and discipline or without making mistakes.
+ - No matter our circumstances, no matter our challenges or trials, there is something in each day to embrace and cherish. There is something in each day that can bring gratitude and joy if only we will see and appreciate it.
+ - You are stronger than you realize. You are more capable than you can imagine.
+ - The perfect place to begin is exactly where you are right now.
+ - In His plan there are no true endings. Only everlasting beginnings.
+ - When our wagon gets stuck in the mud, God is much more likely to assist the man who gets out to push than the man who merely raises his voice in prayer – no matter how eloquent the oration.
+ - Be strong and of good courage. You are truly royal spirit daughters of Almighty God. You are princesses, destined to become queens. Your own wondrous story has already begun. Your “once upon a time” is now.
+ - The desire to create is one of the deepest yearnings of the human soul.
+ - In family relationships love is really spelled t-i-m-e, time.
+ - The most important thing is to keep trying.
+ - Often small acts of service are all that is required to lift and bless another.
+ - You will suffer, be tempted, and make mistakes. You will learn for yourself what every heroine has learned: through overcoming challenges come growth and strength. It is your reaction to adversity, not the adversity itself, that determines how your life’s story will develop.
+ - God’s promises are not always fulfilled as quickly as or in the way we might hope; they come according to His timing and in His ways.
+ - God sent you here to prepare for a future greater than anything can imagine.
+ - God sees you not only as a mortal being on a small planet who lives for a brief season – He sees you as His child. He sees you as the being you are capable and designed to become. He wants you to know that you matter to Him.
+ - Discipleship is the pursuit of holiness and happiness. It is the path to our best and happiest self.
+ - Love is the measure of our faith, the inspiration for our obedience, and the true altitude of our discipleship.
+ - When we stumble don’t get discouraged. Get up and Keep Trying.
+ - Happiness doesn’t come from external circumstances. It comes from the inside-regardless of what is happening around us.
+ - Even when we think we cannot rise up, there is still hope. And sometimes we just need someone to look us in the eyes, take our hand, and say, ‘you can do it now!’
+ - Never stop hoping for all of the righteous desires of your heart. But don’t close your eyes and hearts to the simple and elegant beauties of each day’s ordinary moments that make up a rich, well-lived life.
+ - What you create doesn’t have to be perfect.
+ - Integrity indicates wholeness or oneness. If we have integrity, we are sincere, truthful, fair, and honest.
+ - Love should be our walk and our talk.
+ - It is often in the trial of adversity that we learn those most critical lessons that form our character and shape our destiny.
+ - What you create doesn’t have to be perfect. So what if the eggs are greasy or the toast is burned? Don’t let fear of failure discourage you.
+ - Sometimes a single phrase of testimony can set events in motion that affect someone’s life for eternity.
+ - We see baptism as the starting point in our journey of discipleship. Our daily walk with Jesus Christ leads to peace and purpose in this life and profound joy and eternal salvation in the world to come.
+ - God wants you to find your way back to Him, and the Savior is the way. God wants you to learn of His Son, Jesus Christ, and experience the profound peace and joy that come from following the path of divine discipleship.
+ - The more you trust and rely upon the Spirit, the greater your capacity to create.
+ - Heavenly Father is constantly raining blessings upon us, but it is our fear, doubt, and sin that, like an umbrella, block these blessings from reaching us.
+ - You live in a time of great challenges and opportunities. As spirit sons of heavenly parents, you are free to make the right choices. This requires hard work, self-discipline, and an optimistic outlook, which will bring joy and freedom into your life now and in the future.
+ - When the Lord commands that we must forgive all men, that includes forgiving ourselves.
+ - When it comes to hating, gossiping, ignoring, ridiculing, holding grudges, or wanting to cause harm, please apply the following: Stop it!
+ - Think of the purest, most all-consuming love you can imagine. Now multiply that love by an infinite amount-that is the measure of God’s love for you.
+ - The spirit of gratitude is always pleasant and satisfying because it carries with it a sense of helpfulness to others; it begets love and friendship, and engenders divine influence. Gratitude is said to be the memory of the heart.
+ - It is good advice to slow down a little, steady the course, and focus on the essentials when experiencing adverse conditions.
+ - You have agency, and you are free to choose. But there is actually no free agency. Agency has its price. You have to pay the consequences of your choices.
+ - Our loving Heavenly Father wants us to become more like him. God understands that we get there not in an instant, but by taking one step at a time.
+ - The more we incline our hearts and minds toward God, the more heavenly light distills upon our souls. Gradually, things that before seemed hazy, dark, and remote become clear, bright and familiar with us.
+ - The Savior can wipe away our tears of regret.
+ - Though you may feel that no one understand the depth of your despair, our savior, Jesus Christ, understands.
+ - Wherever you are, whatever your circumstances may be, you are not forgotten. No matter how dark your days may seem, no matter how insignificant you may feel, no matter how overshadowed you think you may be, your Heavenly Father has not forgotten you. In fact, He loves you with an infinite love.
+ - Let us resolve to be happy regardless of our circumstance.
+ - We can choose to be grateful, no matter what. This type of gratitude transcends whatever is happening around us. It surpasses disappointment, discouragement and despair. It blooms just as beautifully in the icy landscape of winter as it does in the pleasant warmth of summer.
+ - Salvation cannot be bought with the currency of obedience; it is purchased by the blood of the Son of God.
+ - Sometimes, of all the people in the world, the one who is the hardest to forgive-as well as perhaps the one who is most in need of our forgiveness-is the person looking back at us in the mirror.
+ - Our obedience to God’s commandments comes as a natural outgrowth of our endless love and gratitude for the goodness of God.
+ - Life has a way of testing our anchors and tempting us to drift. Nevertheless, if our anchors are correctly placed in the rock of our Redeemer, they will hold – no matter the force of the wind, the strength of the tide, or the height of the waves.
+ - Often the answer to our prayer does not come while we’re on our knees, but while we’re on our feet serving the Lord and serving those around us.
+ - Healing comes when we move away from the darkness and walk towards the light.
+ - I am optimistic about the future. Brethren, for our part, we must remain steadfast in hope, work with all our strength, and trust in God.
+ - We have a choice. We can seek for the bad in others. Or we can make peace and work to extend to others the understanding, fairness, and forgiveness we so desperately desire for ourselves. It is our choice; for whatever we seek, that we will certainly find.
+ - Christ came to save us. If we have taken a wrong course, the Atonement of Jesus Christ can give us the assurance that sin is not a point of no return. A safe return is possible if we will follow God’s plan for our salvation.
+ - We don’t discover humility by thinking less of ourselves; we discover humility by thinking less about ourselves.
+ - God wants you to find your way back to Him and the Savior is the way.
+ - The process of gathering spiritual light is the quest of a lifetime.
+ - If life and its rushed pace and many stresses have made it difficult for you to feel like rejoicing, then perhaps now is a good time to refocus on what matters most.
+ - Have faith. The Lord can magnify the words you speak and make them mighty. God doesn’t ask you to convert but rather to open your mouths.
+ - There are messages in each general conference given as a gift and a blessing from heaven specifically for our personal life situations.
+ - God offers to His children the promise of a glorious and infinite existence and has provided a way for us to progress in knowledge and glory until we receive a fulness of joy. He has promised us all that He has.
+ - We cannot and we must not allow ourselves to get distracted from our sacred duty. We cannot and we must not lose focus on the things that matter most.
+ - The things we hope for lead us to faith, while the things we hope in lead us to charity. The three qualities faith, hope, and charity working together, grounded on the truth and light of the restored gospel of Jesus Christ, lead us to abound in good works.
+ - Faith is such a principle of power. God works by power, but this power is usually exercised in response to our faith.
+ - Your Heavenly Father knows that you will make mistakes. He knows that you will stumble-perhaps many times. This saddens Him, but He loves you. He does not wish to break your spirit. On the contrary, He desires that you rise up and become the person you were designed to be.
+ - How much of life do we miss by waiting to see the rainbow before thanking God there is rain?
+ - We each have a covenant responsibility to be sensitive to the needs of others and serve as the Savior did-to reach out, bless, and uplift those around us.
+ - True love requires action. We can speak of love all day long, we can write notes or poems that proclaim it, sing songs that praise it, and preach sermons that encourage it but until we manifest that love in action, our words are nothing but sounding brass, or a tinkling cymbal.
+ - You are not invisible to your Heavenly Father. He loves you.
+ - Christ knows how to minister to others perfectly. When the Savior stretches out His hands, those He touches are uplifted and become greater, stronger, and better people as a result. If we are His hands, should we not do the same?
+ - Personal testimony of the gospel and the Church is the most important thing you can earn in this life.
+ - As we turn to our Heavenly Father and seek His wisdom regarding the things that matter most, we learn over and over again the importance of four key relationships: with our God, with our families, with our fellowman, and with ourselves.
+ - The immensity of the universe didn’t suddenly change, but our ability to see and understand this truth changed dramatically. And with that greater light, mankind was introduced to glorious vistas we had never before imagined.
+ - Heaven is filled with those who have this in common: they are forgiven and they forgive.
+ - The church is a home for all to come together, regardless of the depth or the height of our testimony. I know of no sign on the doors of our meetinghouses that says, Your testimony must be this tall to enter.
+ - The Lord doesn’t care at all if we spend our days working in marble halls or stable stalls. He knows where we are, no matter how humble our circumstances. He will use – in his own way and for his holy purposes – those who incline their hearts to Him.
+ - Christ’s gospel is the only true gospel.
+ - It isn’t until you come to a spiritual understanding of who you are that you can begin to take control of yourself. As you learn to control yourself, you will get control of your life. If you want to move the world, you first have to move yourself.
+ - We can choose to be like the Mormon pioneers, who maintained a spirit of gratitude during their slow and painful trek toward the Great Salt Lake, even singing and dancing and glorying in the goodness of God.
+ - Christ is the source of all true priesthood authority and power on earth. It is His work, in which we are privileged to assist.
+ - In the end, the number of prayers we say may contribute to our happiness, but the number of prayers we answer may be of even greater importance.
+ - Spiritual light rarely comes to those who merely sit in the darkness waiting for someone to flick the switch.
+ - If we fail to give our time with those we love, one day we will live to regret it.
+ - Even the smallest act of discipleship or the tiniest ember of belief can become a blazing bonfire of a consecrated life.
+ - The Atonement of Jesus Christ is real; it brings immortality to all and opens the door to eternal life. The gospel of Jesus Christ is again on the earth. The Church of Jesus Christ of Latter-day Saints is true and living.
+ - All you have to do is trust your Heavenly Father. Trust Him enough to follow His plan.
+ - The Church is designed to nourish the imperfect, the struggling, and the exhausted.
+ - The gospel of Jesus Christ is good news, glad tidings, and much more. It is the message of salvation as repeatedly announced by Jesus Christ and His apostles and prophets. It is my firm belief that all truth and light originating with God is embraced in the gospel of Jesus Christ.
+ - Heavenly Father’s interest in you does not depend on how rich or beautiful or healthy or smart you are. He sees you not as the world sees you; He sees who you really are. He looks on your heart. And He loves you because you are His child.
+ - Heavenly Father offers to you the greatest gift of all – eternal life – and the opportunity and infinite blessing of your own “happily ever after.”
+ - The very moment you begin to seek your Heavenly Father, in that moment, the hope of His light will begin to awaken, enliven, and ennoble your soul. The darkness may not dissipate all at once, but as surely as night always gives way to dawn, the light will come.
+ - The happiest people I know are not those who find their golden ticket; they are those who, while in pursuit of worthy goals, discover and treasure the beauty and sweetness of the everyday moments.
+ - The deepest regret of yesterday can be made right by following the Savior today.
+ - The heavens will not be filled with those who never made mistakes but with those who recognized that they were off course and who corrected their ways to get back in the light of gospel truth.
+ - God loves us deeply, perfectly, and everlastlingly.
+ - We need to accept that the commandments of God aren’t just a long list of good ideas. They aren’t ‘life hacks’ from an Internet blog, or motivational quotes from a Pinterest board. They are divine counsel, based on eternal truths.
+ - The Apostle Paul in his letter to the Romans said that those who pass judgment on others are ‘inexcusable.’ The moment we judge someone else, he explained, we condemn ourselves, for none is without sin. Refusing to forgive is a grievous sin-one the Savior warned against.
+ - Patience is not simply enduring; it is enduring well!
+ - Commandments and covenants of God are like navigational instructions from celestial heights and will lead us safely to our eternal destination. It is one of beauty and glory beyond understanding. It is worth the effort. It is worth making decisive corrections now and then staying on course.
+ - The one help we all need is given to us freely though the Atonement of Jesus Christ. Having faith in Jesus Christ and In His Atonement means relying completely on Him-trusting in His infinite power, intelligence, and love.
+ - With Christ, darkness cannot succeed. Darkness will not gain victory over the light of Christ.
+ - The divine love of God turns ordinary acts into extraordinary service.
+ - As you take the normal opportunities of your daily life and create something of beauty and helpfulness, you improve not only the world around you but also the world within you.
+ - Let us prepare for that blessed day when He will come again. Let us be as wise as those ancients who watched for His coming.
+ - Lifting where we stand is a principle of power. Most of the priesthood bearers I know understand and live by this principle. They are eager to roll up their sleeves and go to work, whatever that work might be.
+ - You are to do the choosing here and now during this exciting and wonderful time on earth. Moral agency, the freedom to choose, is certainly one of God’s greatest gifts next to life itself. We have the honorable right to choose; therefore, we need to choose the right. This is not always easy.
+ - This is our high and holy calling-to be agents of Jesus Christ, to love as He loved, to serve as He served.
+ - Each of us is under a divinely spoken obligation to reach out with pardon and mercy and to forgive one another. There is a great need for this Christlike attribute in our families, in our marriages, in our wards and stakes, in our communities, and in our nations.
+ - If we are only willing to open our hearts and minds to the spirit of Christmas, we will recognize wonderful things happening around us.
+ - Keeping the commandments is not a burden, but a joyous rehearsal for the eternity.
+ - I pray that we will not wait until we are ready to die before we truly learn to live.
+ - Hope is a leg of a 3-legged stool with Faith and Charity.
+ - Don’t get discouraged if you stumble at times. The first step to walking in righteousness is simply to try.
+ - There is something inspiring and sublime about the little forget-me-not flower. I hope it will be a symbol of the little things that make your lives joyful and sweet.
+ - Hope is a gift of the Spirit. It is a hope that through the Atonement of Jesus Christ and the power of His Resurrection, we shall be raised unto life eternal and this because of our faith in the Savior.
+ - We cannot go back in time and change the past but we can repent.
+ - It is said that any virtue when taken to an extreme can become a vice. Overscheduling our days would certainly qualify for this. There comes a point where milestones can become millstones and ambitions, albatrosses around our necks.
+ - One of the greatest sermons ever pronounced on missionary work is this simple thought attributed to Saint Francis of Assisi: ‘Preach the gospel at all times and if necessary, use words.’ Opportunities to do so are all around us. Do not miss them by waiting too long on the road to Damascus.
+ - We shouldn’t wait to be happy until we reach some future point, only to discover that happiness was already available all the time!
+ - This mortal life is our playing field. Our goal is to learn to love God and to extend that same love toward our fellowman. We are here to build, uplift, treat fairly, and encourage all of Heavenly Father’s children.
+ - If the Savior were among us today, we would find Him where He always was-ministering to the meek, the downcast, the humble, the distressed, and the poor in spirit. During this Christmas season and always, may we give to Him by loving as He loves.
+ - From the pioneers we can learn to have faith and trust God; we can learn to be compassionate to others; we can learn that work and industry not only bless us temporally but spiritually; and that happiness is available to us no matter our circumstances.
+ - Sin is the willful transgression of divine law. The Atonement of Jesus Christ is the gift of God to His children to correct and overcome the consequences of sin. The gift of the Atonement of Jesus Christ provides us at all times and at all places with the blessings of repentance and forgiveness.
+ - God’s light is real, it is available to all. It has the power to soften the sting of the deepest wound.
+ - The acorn of honest inquiry has often sprouted and matured into a great oak of understanding.
+ - If we spend our days waiting for fabulous roses we could miss the beauty and wonder of the tiny forget-me-nots that are all around us.
+ - Let us simplify our lives a little, let us make the changes necessary to focus on the simple, humble path of Christian discipleship.
+ - Enduring to the end is a process filling every minute of our life, every hour, every day, from sunrise to sunrise. It is accomplished through personal discipline following the commandments of God.
+ - God’s love is so great that He loves even the proud, the selfish, the arrogant, and the wicked.
+ - In these simple words, Lord, is it I? lies the beginning of wisdom and the pathway to personal conversion and lasting change.
+ - There is an important difference between the sorrow for sin that leads to repentance and the sorrow that leads to despair.
+ - Remember: in the end, it is the merciful who obtain mercy.
+ - We sometimes confuse sin with sinner, and we condemn too quickly and with too little compassion. We know from modern revelation that ‘the worth of souls is great in the sight of God.’ We cannot gauge the worth of another soul any more than we can measure the span of the universe.
+ - Christlike attributes come into our lives as we exercise our agenncy righteously.
+ - Let us not give up. Let us be true to our covenants. Let us never lose sight of our Advocate and Redeemer as we walk toward Him, one imperfect step after another.
+ - As sons and daughters of our Heavenly Father, we are capable of so much more. For that, good intentions are not enough. We must do. Even more important, we must become what Heavenly Father wants us to be.
+ - The things we hope for lead us to faith, while the things we hope in lead us to charity.
+ - The lessons we learn from patience will cultivate our character, lift our lives, and heighten our happiness.
+ - It might sound contrary to the wisdom of the world to suggest that one who is burdened with sorrow should give thanks to God. But those who set aside the bottle of bitterness and lift instead the goblet of gratitude can find a purifying drink of healing, peace, and understanding.
+ - As we contemplate with reverence and awe how our Savior embraces us, comforts us, and heals us, let us commit to become His hands, that others through us may feel His loving embrace.
+ - Commandments are opportunities to exercise our agency and to receive blessings.
+ - Absolute truth is not dependent upon public opinion or popularity. Now what is this truth? It is His gospel. It is the gospel of Jesus Christ.
+ - The Wright brothers committed themselves to do what no one else had ever done before. They took time to do their homework. They were humble and smart enough to appreciate and learn about the work of others who went before. And they tackled the problem line upon line, precept upon precept.
+ - God knows that some of the greatest souls who have ever lived are those who will never appear in the chronicles of history. They are the blessed, humble souls who emulate the Savior’s example and spend the days of their lives doing good.
+ - Since the world began, God has raised up prophets who speak the will of heaven to the people of their times. It is our responsibility to listen and then apply the messages the Lord provides for us.
+ - We can sometimes waste years of our lives waiting to be chosen. But that is a false premise. You are already chosen!
+ - Latter-day Saints are not asked to blindly accept everything they hear. We are encouraged to think and discover truth for ourselves. We are expected to ponder, to search, to evaluate, and thereby to come to a personal knowledge of the truth.
+ - We are important to Him not because of our resume, but because we are His children.
+ - As we patiently follow the Savior, He will bless us beyond our own capacity to become what He wants us to be.
+ - The more we devote ourselves to the pursuit of holiness and happiness, the less likely we will be on a path to regrets.
+ - Our motives and thoughts ultimately influence our actions.
+ - Darkness cannot stand before the brilliant light of the Son of the Living God.
+ - To those who have separated themselves from the Church, I say, my dear friends, there is yet a place for you here.
+ - The more we treasure the words of the prophets and apply them the better we will recognize when we are drifting off course-even if only by a matter of a few degrees.
+ - We don’t have to be perfect to experience the blessings and gifts of our Heavenly Father.
+ - Peace in this world, and eternal life in the world to come.
+ - Allow Christ’s Atonement to change and heal your heart.
+ - It is an important part of our life’s experience to develop the strength, courage, and integrity to hold fast to truth and righteousness despite the buffeting we may experience.
+ - The Gospel of transformation is from men and women of earth to men and women of eternities.
+ - No matter our distress, no matter our sorrow, no matter our mistakes, our infinitely compassionate Heavenly Father desires that we draw near to Him so that He can draw near to us.
+
+181 quotes

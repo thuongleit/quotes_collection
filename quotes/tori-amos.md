@@ -1,0 +1,287 @@
+ - Sometimes you have to do what you don’t like to get to where you want to be.
+ - I found the secret to life: I’m ok when everything is not ok.
+ - Give me life, give me pain, give me myself again.
+ - I see the dream and I see the nightmare, and I believe you can’t have the dream without the nightmare.
+ - Every place you land in life has a reason and a lesson.
+ - To heal the wound, you have to go into the dark night of the soul.
+ - I’m a hard worker. I get my hands dirty.
+ - Healing takes courage, and we all have courage, even if we have to dig a little to find it.
+ - On some of my darkest days, Lucifer’s the one who comes and gives me an ice cream.
+ - If you call me a new-age, airy-fairy, hippie-dippy airhead I will shove my crystals up your ass.
+ - You’re just an empty cage girl, if you kill the bird.
+ - Sometimes I breathe you in and I know you know.
+ - People think I’m nuts because I can sit in a room and be happy by myself.
+ - Our world is a huge mess right now, and not big enough for masses of intolerant people.
+ - I think you have to know who you are. Get to know the monster that lives in your soul, dive deep into your soul and explore it.
+ - When soulmates come and go, you’re never alone, even when you’re standing just you and your shoes, because you carry them with you.
+ - In my new life, no room for a lost boy.
+ - I guess you go too far when pianos try to be guitars.
+ - The only way out is to go so far in...
+ - I think that people who can’t believe in faeries aren’t worth knowing. I just think that alternate realities make you a good writer. If your work is any more than one dimension, you believe in faeries.
+ - Some of the most wonderful people are the ones who don’t fit into boxes.
+ - Some people are afraid of what they might find if they try to analyze themselves too much, but you have to crawl into your wounds to discover where your fears are. Once the bleeding starts, the cleansing can begin.
+ - Anybody knows, you can conjure anything by the dark of the moon.
+ - You know that saying, bad things don’t happen to good people? That’s a lie.
+ - Boys are cute, but food is cuter.
+ - These precious things, let them bleed.
+ - I’m very at home working with mythology.
+ - Get off the cross, we need the wood.
+ - I hurt myself today to see if I could feel. I hurt myself, you said to try to make him feel. So I hurt myself again to see if he’d see me. I hurt myself again and no, he never could see me.
+ - Carbon made only wants to be unmade.
+ - Though I can’t change what happened, I can choose how to react. And I don’t want to spend the rest of my life being bitter and locked up.
+ - My favorite saying is, ‘If it’s too loud, turn it up.’
+ - I’m a winter girl. I like coming out when things are desolate and everybody’s ready to slit their wrists.
+ - I usually get myself into situations that cause sparks. I mean I’m a girl that likes the storms. I love feeling alive, I love walking out in the cold in my bare feet and feeling the ice on my toes.
+ - She’s been everybody else’s girl, maybe one day she’ll be her own.
+ - Pretty is never beautiful.
+ - Nothing’s gonna stop me from floating.
+ - The word ‘confession,’ to me, means needing to be absolved. I’m not asking for forgiveness. I’m not asking people to understand. I’d like to think that I tell stories and sometimes my life weaves through it.
+ - Hair is gray and the firers are burning. So many dreams on the shelf. You say I wanted you to be proud of me. I always wanted that myself.
+ - I’m trying not to move, it’s just your ghost passing through.
+ - Never was a cornflake girl; Thought it was a good solution: hanging with the raisin girls.
+ - I am the worst influence. If you can’t handle your vices, then I am the Devil.
+ - Being in your forties – any woman who isn’t there yet, I just have to say to you: Euphoria is coming to you.
+ - We are all fairies living underneath a leaf of a lily pad.
+ - Have a seat, while I take to the sky.
+ - I wanna smash the faces of those beautiful boys, those Christian boys.
+ - Most people would rather be sheep than stand on their own with antlers on.
+ - I have so many different personalities in me and I still feel lonely.
+ - I’ve got enough guilt to start my own religion.
+ - Father Lucifer, you never looked so sane.
+ - Confucius does his crossword with a pen.
+ - You decide whether you look at your reality or live pretending these feelings don’t exist.
+ - I don’t want to give too much ink to foolish men.
+ - You have to really respect your path, or you will lose your mind.
+ - There’s room for everybody on the planet to be creative and conscious if you are your own person. If you’re trying to be like somebody else, then there is isn’t.
+ - I’m really quite happy to say that in my early 40s, I wake up feeling sexy, and I can’t say I felt that way in my late 20s.
+ - Tell me you’re crazy, maybe then I’ll understand.
+ - I think there are pieces of me you’ve never seen.
+ - Strange, i thought i knew you well, thought i had read the sky, thought i had seen a change in your eyes.
+ - Girls you’ve gotta know when it’s time to turn the page.
+ - What I want is not to want what isn’t mine.
+ - Women shouldn’t deny their dark side. Sometimes those demons are frightening and sometimes they’re beautiful. You’ll have to approach them. Drink a glass of wine with them, take them for a walk on the beach, examine yourself.
+ - Me and Charles Manson like the same ice cream.
+ - I don’t choose to analyze what I have done and I think that is the right choice, because then I won’t be spending my time creating.
+ - If you jump, you best jump far.
+ - When you stop putting yourself on the line, and you don’t touch your own heart, how do you expect to touch other people?
+ - Look, I’m standing naked before you; Don’t you want more than my sex? I can scream as loud as your last one, But I can’t claim innocence.
+ - People can travel great distances on a computer, so why can’t we travel that way emotionally?
+ - An ounce of breast milk is even more potent than the finest tequila.
+ - I’m the queen of the nerds.
+ - You don’t leave people who can’t defend themselves.
+ - I’m a musician first, a food-lover second, a dirty mouth with feet, and a girl last time I checked.
+ - Sometimes I hear my voice and it’s been here, silent all these years.
+ - Is your place in heaven worth giving up these kisses.
+ - After a while of getting jerked around, you realize what the business is really made up of.
+ - Music is always a reflection of what’s going on in the hearts and minds of the culture.
+ - I’m not somebody that gets played a lot at parties and weddings. I mean, you know, you mention my name and you get an eye roll, until, of course, you’re jumping off a bridge.
+ - I collect art books. I have hundreds and hundreds of them and they get me to start hearing things. Sometimes people look at them, but I find that visual art gets me listening, gets me hearing things.
+ - My fear is greater than my faith, but I walk the missionary way.
+ - So then I though I’d make some plans, but Fire thought she’d really rather be Water instead...
+ - It’s about realizing, painfully, you’ve kept that voice inside yourself, locked away from even yourself. And you step back and see that your jailer has changed faces. You realize you’ve become your own jailer.
+ - I’ve never felt anything that moves me as much as my piano. I’m an emotional player. I don’t really like people. I prefer my piano to people. It’s totally reliable and it’s alive. I can hear what it’s saying.
+ - I’m obsessed with crocodiles and getting eaten by one. When I hear that someone’s been eaten by a crocodile or shark, I just get all gooey. I start salivating.
+ - Her cover version of Smells Like Teen Spirit is the reason Kurt killed himself.
+ - Over the last few hours I’ve allowed myself to feel defeated, and just like she said if you allow yourself to feel the way you really feel, maybe you won’t be afraid of that feeling anymore.
+ - Cornwall is one of the most beautiful places, with great people – there’s not a great downside to it.
+ - If you really want a challenge, just deal with yourself.
+ - Many people lock a part of themselves away. It’s a bit sacred.
+ - I’ve had to keep exploring different ways of presenting the music so I don’t repeat myself.
+ - I produce the records. I don’t hand over control to some really expensive producer who then talks to the record company and then tries to bend me to their will – for commercial purposes.
+ - I’m the thing that fundamentalist Christians cringe over...
+ - Press the button, pump the water, build the pressure, push the piston, press the button. It’s the perfect job.
+ - Not everybody wants to have the same career. I think what’s difficult is when you have two people that do something very, very similar and they both, say, want the limelight. That’s very tricky.
+ - I think there’s a time as a writer when you want to see the best things in life, and you go out wherever you go with your dreams as a writer or a composer.
+ - I have built my world through Native American mythology.
+ - My ears are huge. If there’s ever a problem with a plane I’m on, they could just put me on the wing and I’ll land the sucker.
+ - Everybody told me this ‘girl on the piano’ thing was never going to work.
+ - If you can’t create physical life, you find a life force. If that’s in music, that’s in music. I started to find this deep, primitive rhythm, and I started to move to it. And I held hands with sorrow, and I danced with her, and we giggled a bit.
+ - I became a mom at 37 and having a child has been an emancipation for me.
+ - So, you can make me come, that doesn’t make you Jesus.
+ - Our generation has an incredible amount of realism, yet at the same time it loves to complain and not really change. Because, if it does change, then it won’t have anything to complain about.
+ - When they say take from my body, I think I’ll take from mine instead. Getting off, getting off while they’re all down stairs.
+ - I like involved projects. I’m driven by the idea of characters and the song-cycle form is similar to a musical.
+ - You can be self-empowered and still learning about how you think about things daily.
+ - When I got older, I chose to look at Christianity as another myth.
+ - When you don’t have people in your life pushing you, can you push yourself?
+ - When we get in a routine we can become zombie-like and shut down.
+ - Anything a wife should do, I’m terrible at. Anything a mistress should do, I’ll try.
+ - The most important thing to me as a songwriter is the breath. The most important thing I could say to somebody is, ‘Sometimes I just breathe you in.’
+ - I was two and a half when I first climbed up and sat at a piano.
+ - I can see how the young girls really get hurt when their moms are critical, or vice versa when they’re overly critical of their moms. It can be so painful.
+ - Anger is natural. It’s part of the force. You just have to learn to hang out with it.
+ - Muhammad, my friend, I’m getting very scared. Teach me how to love my brothers who don’t know the law, and what about the deal on the flying trapeze?
+ - The sun is getting dim, will I pay for who I’ve been?
+ - Sometimes you need to take a departure from what you do to something that’s slightly different in order to get inspiration.
+ - Robert Plant asked me to marry him, but I said ‘no.’ I mean, you just don’t want to marry someone you’ve wanted to do it with since you were thirteen, because, well, if he farts, I would, like, die!
+ - It’s emotional blackmail to say if you’re a good businesswoman and a musician, you’re betraying your music.
+ - Haze all clouding up in my mind in the daze of the why it could’ve never been.
+ - There are 23 bootlegs now. Robert Plant came home with a bootleg video and said ‘Tori, you’ve made it. You’re nothing until you’ve been bootlegged.’
+ - Those of you who are strong need to be there for those who have lost someone today. We have to be here for each other right now.
+ - In real life I’m bone dry and when I play I’m a mango and in sex I’m starving to be a dripping mango.
+ - I know I’m an acquired taste – I’m anchovies. And not everybody wants those hairy little things.
+ - I wanted to marry Lucifer. I feel his presence in my music.
+ - I’m not like a poker player. I’m not into bluff. My way is to look someone in the eye and tell them the way I’m intending to go. My cards are always on the table.
+ - When you’re in your 20s, there’s maybe a little room for you to not be at the top of your artistic game, if you look good on a magazine cover. When you’re not on the cover of the magazines anymore, then you realize that the work has to be great.
+ - I’ve been looking for a savior in these dirty streets, looking for a savior beneath these dirty sheets.
+ - The truth lies in between the 1st and the 40th drink.
+ - The music industry is a vicious business. It chews women up and spits them out.
+ - I know that mess spelled backwards is ssem and I felt much better armed with that information.
+ - The key things are about power and about growing up and realizing as you grow up that there are consequences for the choices you make, especially when you get seduced by power.
+ - Is there room in my heart for you to follow your heart?
+ - And my Saab is so great I’m gonna marry it.
+ - You know when people smile too much? It’s painful. I find it really painful. Happy is not very reliable. I’m trying to live like, um, with a fierce calm.
+ - The music is the magic carpet that other things take naps on.
+ - In our minds, love and lust are really separated. It’s hard to find someone that can be kind and you can trust enough to leave your kids with, and isn’t afraid to throw her man up against the wall and lick him from head to toe.
+ - Dance with the sufis, celebrate your top ten in the charts of pain.
+ - Some of the biggest advocates for feminism seem to believe that in order to feel powerful you have to make another woman subservient, and that is not what feminism is about at all.
+ - A key to keeping your husband is getting him to miss you. That keeps a marriage fresh.
+ - Women must understand that simply attacking or hating men is just another form of disempowerment. A woman has to realize that when she makes a man crawl it doesn’t give her power.
+ - I’m too young for a man, but I’m too old for a boy. So, can’t we just pretend, that I’m older than I really am, but then, only little girls pretend.
+ - I’m a tomato freak, but sometimes you have to get it in ketchup form for people to be able to open to tomatoes.
+ - If you sing to the mermaids, they come when you’re drowning.
+ - I am finding that vulnerability gives me great strength, because you’re not hiding anymore. It’s really about being a pioneer for myself, going into the places where I am not being taught. I have to teach myself.
+ - What girls do to each other is beyond description. No chinese torture comes close.
+ - My parents think I’m better under pressure.
+ - The rain is sharp today, as you shock me sane.
+ - You have to be clear what your message is and what you’re doing. I mean, Miley Cyrus is an amazing talent, and sometimes you kind of just want to say, ‘We know you’re not Hannah Montana anymore. We know that, my dear. My darling. Now, go be great.’
+ - Sometimes, I think Trent just needs a cup of hot chocolate and a blankie.
+ - There is a phenomenal amount of pressure on women in this industry: they are considered vintage by the time they hit their mid-30s.
+ - This whole Christian theology thing is that god came down to experience life through his son. Well, how’s he experiencing life if he doesn’t get laid? Give me a break. And why would he not get laid, as he created the apparatus in the first place?
+ - Do we soon forget the things we cannot see?
+ - Anyone who doesn’t belive in Faeries, isn’t worth knowing.
+ - You’re only popular with anorexia.
+ - Tori’s my legal name. My niece and nephews, they all call me Aunt Ellen, because I went by my middle name years ago, before I turned 18.
+ - I’m a grown woman. I’ve earned my experiences, my scars.
+ - I’m too wacky for most weirdos. Who am I to judge?
+ - I realized that what was most important to me was following my own path, and not the one laid down for me by others.
+ - The romantic myth of the artist says that you are the Source. I have no illusion about that. Native Americans don’t believe they are the Source. They have access to the Source. Endless access. But don’t get confused.
+ - Don’t give up. Don’t listen to these foolish critics that are so small minded they don’t get it tonight.
+ - Adolescence is that time when I think, it can be- it’s the cruelest place on Earth. It can really be heartless.
+ - Men have periods too, they just don’t bleed.
+ - People are the most fascinating mysteries I’ve ever read.
+ - I don’t know what a shrink would call me. I don’t want to know.
+ - I can’t believe that I would keep, keep you from flying And I would cry a thousand more if that’s what it takes to sail you home.
+ - To me happiness, true happiness is when you can really dance with sad.
+ - There is an energy that you carry when you’re nurturing another life where you’re protecting first – and once you know that cub is out of the way of the hunter’s gun, you can be a little more daring.
+ - Guys would sleep with a bicycle if it had the right color lip gloss on. They have no shame. They’re like bull elks in a field.
+ - It’s not as if the stories merge to a point where you think they are your life, but you do let them in the front door and the back door, and it’s okay that sometimes certain characters stay for dinner.
+ - An angel’s face is tricky to wear constantly.
+ - If you have an issue with homosexuality, then it comes to your own fear and your own darkness.
+ - Somebody will come backstage and go, ‘You saved me.’ And I will have to say, ‘Stop right there. You saved yourself.’
+ - I had a very strict upbringing with my dad and was very close to my mum, who was extremely loving.
+ - My brother was a fantastic cheerleader for my development as a musician. He was almost 10 years older than me and would really push me to develop as a songwriter.
+ - Take a different route to the coffee shop to see what you can see and hear. When we get in a routine, we can become zombie-like and shut down. It’s about discipline. You have to push yourself.
+ - Things go wrong all the time; you can’t be precious about it.
+ - I use innocence in my demeanor like a Venus flytrap...
+ - I know people sometimes have this fantasy about Cornwall. But the Cornish are so grounded.
+ - I’ve been raising up my hands drive another nail in just what God needs one more victim.
+ - I really respect anybody who stands by their truth.
+ - The pop world has really opened its doors.
+ - I don’t feel I’m as good a mum as my mum was.
+ - I have a rule that I don’t read my press, but then somebody in the crew will be reading it and of course it’s right there, so what do you think I do?
+ - I don’t mind a dirty girl. But what I find tragic is when we, as women, become not the subject of our own story but someone else’s object.
+ - You don’t know the power that you have with that tear in your hand.
+ - Even if everything else is downplayed, I’ll wear good shoes.
+ - After a while, though, you realize that a whole slew of young singer-songwriter piano players are getting compared to you. That’s when you feel the passage of time is occurring.
+ - I think you need to have people around you whose standard is high and who don’t accept anything less.
+ - If I was writing songs just for me I’d only play them in my living room, alone.
+ - God sometimes you just don’t come through, Do you need a woman to look after you?
+ - There are older men with younger women but you don’t see a lot of older women with younger men. There are some women who have been able to do it but not often.
+ - I’m a classic emerald green Sixties Jaguar that nobody can own, but my husband is allowed to drive.
+ - There is value in everybody’s gift. No matter how hard to find or strange it is.
+ - I was very close to my mother as the youngest of three. She was my playmate.
+ - Being stylish is about enjoying your life and expressing yourself and your inner light.
+ - There is a time and a place for things. Sometimes one needs to put a filter on oneself. That can be a good thing.
+ - I don’t own a computer. I have a nine-foot piano in my home to compose my messages. Why would I want a one-foot computer to do the same thing?
+ - I wanted to do something creatively, having been a beached whale for many months and nursing my daughter.
+ - To me glamour isn’t about being sparkly.
+ - If you know me so well, tell me which hand that I use.
+ - Your worst enemies are made when you ignore people. Those boys in America who shot dead classmates recently, didn’t do that because they woke up with a positive self image that morning and then felt like slaughtering their friends.
+ - He said, first let’s just unzip your religion down.
+ - Baker, baker, can you explain, if truly his heart was made of icing.
+ - Some people hide more than others, and it does intrigue me.
+ - I want to be an integrated woman.
+ - When the mothers start to shatter, then everything just comes undone.
+ - I’m a daughter of a minister and I love chasing the Dark. That which is hidden. I like licking it like ice cream.
+ - When I was little, my mom tells me, I used to say things like, ‘Mom do you hear the string section? Do you hear the string section?’ And she would look at me and say, ‘No honey, I don’t know what you’re talking about.’
+ - I would love to compose something for dance before I kick the bucket, and I’m not closed-minded about the dance, or the dance company.
+ - I have a great relationship with my mother-in-law. We’re both Leos, we understand each other.
+ - I get tired of wearing the same thing all the time too.
+ - The violence betwen women is unbelievable. Women try to make each other crawl so that their knees are bleeding.
+ - I remember driving to North Carolina when I was a little girl in a snowstorm to get down to my mom’s family in the Carolinas. There were chains on the car – it was the late sixties – and we were just singing in the car. Christmas carols.
+ - I like cosy, intimate houses.
+ - The sense of loss is such a tricky one, because we always feel like our worth is tied up into stuff that we have, not that our worth can grow with things we are willing to lose.
+ - I believe in eating. I think women especially have this fear of eating, and I think there is a whole euphoric plane you can rise to when you have a good meal. You sit down and with every bite you honestly just say thank you.
+ - Boy, you better pray that I bleed real soon.
+ - My father was a minister and so rock music was banned in our house.
+ - A guitarist or a drummer can get a cold and still play; I get a cold and sound like a wet mitten trying to sing you a love song. Charming.
+ - I’m not very social when I’m off the promo trail, because I step into wife and mother mode. It’s very reclusive.
+ - Romance is important to me, and to have a romance with your husband takes a bit of doing. The key is to make sure your partner misses you. That means you have to take yourself away.
+ - So close to touching freedom, then I hear the guards call my name.
+ - I think even in a good marriage, especially if you stay together long enough, there are going to be events that happen.
+ - At 15, I knew someone whose mother cooked macrobiotic, so I persuaded my mother to go macrobiotic with me.
+ - I guess my husband is a muse as well.
+ - I really really love Christ, but I’m not a Christian.
+ - If you’re a lame brain, then you’re a lame brain. I can’t help that.
+ - What do you plan to do with all your freedom?
+ - You’d think that in this age, especially in the 21st century – especially with all the technology and all the discoveries that we’ve made – that we would figure out how to tackle abuse.
+ - I like butter and the people who like butter.
+ - I’ve got tonnes of aboriginal and Native American art, but I’d like even more.
+ - I don’t see myself as weird, I just see myself as honest.
+ - I have never smoked and have always drunk a lot of water, but cleanse, tone and moisturise every day? No way!
+ - I gave up trying to please others and started playing for myself, and because I love music, things naturally happened then. Funny how that works.
+ - There were times that I needed to go to battle, but how I went to battle wasn’t always the best way in.
+ - There are ways to stimulate being prolific, and part of that is making pilgrimages, and being open to listening, changing up the routine.
+ - I don’t really cook. There are caterers, and my husband cooks.
+ - Well, I have a lot of food references in my work.
+ - Your apocalypse was fab.
+ - My childhood was extreme.
+ - My husband doesn’t know what my songs are about – even when they’re about him. He’s very British in that way. He doesn’t ask, and he doesn’t want to be told.
+ - A lot of songs are derivative of each other.
+ - Some people say, I’d give anything to be 30 again. Well, I really wouldn’t. I didn’t enjoy being 30.
+ - For the most part, pianos are female to me. Sometimes they’re dykes, and they’re always good fun.
+ - Right now, half the world is depressed and they need to be entertained.
+ - Being able to still make records is a privilege. I don’t take it casually.
+ - I don’t see music as working.
+ - My father was a preacher in Maryland and we had crab feasts – with corn on the cob, but no beer, being Methodist – outside on the church lawn.
+ - I’ve carved out a career for myself really as a writer.
+ - I’ve worked with many powerful men in the music industry.
+ - Parenting is not for everybody. It changes your life. Especially when they’re little.
+ - You really do kind of learn a lot about a person when you watch and listen to the songs that mean something to them.
+ - It’s fun to write your set list 20 minutes before and keep the crew very much on their toes.
+ - The way I see it, the men that I’m with, whoever they are, it’s like look, you have to accept the fact that I like ice cream, and I know it shows up on my hips but if you can’t accept that, then leave. Go away, toodles. It is non-negotiable.
+ - Sometimes those demons are frightening and sometimes they’re beautiful.
+ - People listen to music the way they want to listen to music.
+ - There’s a side to this industry that nurtures divas who can’t write. It’s a big business.
+ - People assume that all artists make for terrible business people, but I’m in complete charge of my own career.
+ - I’m a conduit for telling people’s stories. It’s a privilege.
+ - This was a time frame when dance music and clubs were having a real impact on culture, and it had an impact on me.
+ - As the sun sets, we’ve all had those nights where you question your choices and where your life is going.
+ - I think having a child can really change you if you’re open to it.
+ - I just hand shoes on the wall. They’re architecture you know.
+ - I think doing variations on a classical theme is a dangerous thing to do.
+ - I like involved projects.
+ - Musically, I always allow myself to jump off of cliffs. At least that’s what it feels like to me. Whether that’s what it actually sounds like might depend on what the listener brings to the songs.
+ - I think that the nightmares are telling me things about myself that I need to know. And I try to understand what they mean, so I can get to know something more about my soul.
+ - When interviews are good, the conversation can be amazing. Sometimes I’ve had conversations with journalists that I’ve never had with anybody else.
+ - My father was strict, but he recognised my ability and got a lot of flak from the church for supporting me.
+ - An interview will seem very sane to me, and I’ll find out that the journalist was laughing out of the side of his mouth half of the time.
+ - The fact that religion plays such a part in how people vote troubles me, troubles me as a minister’s daughter. Because I always felt that the separation of church and state was what our forefathers and foremothers really fought for.
+ - And is it right, butterfly, they like you better framed and dried?
+ - Sometimes it seems like we’re closer to our manicurists than we are our own souls. We have to find ways to get in touch with that and to listen to it and to hear it.
+ - I’m not not going to stop giving away what I feel about something.
+ - I love the classic crooners, but I got that from my mother – she worked in a record store.
+ - I’m a mother, and that’s really important. Today, the mother and the musician can sit next to each other. Even when the musician is out there in full swing, the mother doesn’t get switched off.
+ - I don’t allow challenges to trip me up.
+ - My father has a pragmatic mind. He marched with Dr. King in the ’60s, and he’s very much for women’s rights.
+ - I find that in the 21st century, there’s not a lot of compassion for what other people are going through or the walk that they have to walk.
+ - I started playing the piano when I was about two and got a scholarship to the Peabody Conservatory of Music in Baltimore when I was five. But I left when I was 11.
+ - For a song cycle to work, you have to feel these things when you hear them and you either have an emotional reaction to it or you don’t. The plotline is something that gets woven together in the back-story.
+ - I felt sidelined by the industry, by the preoccupation with finding something newer, younger.
+ - I was fascinated to think about a place where men could be the mothers and I thought of my own song-writing and I decided to have a relationship with their daughters.
+ - I’ve been known to throw watermelons, backstage, at people who are giving me news I don’t want to hear. But I never aim for the head.
+ - Life is fleeting. It is to be enjoyed.
+ - There’s a richness to the old works if you look before the 1950s. The chord progressions and the language was more complicated, especially in the jazz and classical world.
+
+285 quotes

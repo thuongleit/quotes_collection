@@ -1,0 +1,30 @@
+ - Now and then it’s good to pause in our pursuit of happiness and just be happy.
+ - How slow life is, how violent hope is.
+ - Joy came always after pain.
+ - I don’t want to work. I want to smoke.
+ - Memories are hunting horns whose sound dies on the wind.
+ - One day One day I waited for myself I said to myself Guillaume it’s time you came So I could know just who I am I who know others.
+ - When man wanted to make a machine that would walk he created the wheel, which does not resemble a leg.
+ - The plastic virtues: purity, unity, and truth, keep nature in subjection.
+ - Without artists, the order which we find in nature, and which is only an effect of art, would at once vanish.
+ - Artists are, above all, men who want to become inhuman.
+ - Without artists, the sublime idea men have of the universe would collapse with dizzying speed.
+ - In this mirror, I am enclosed a live and real as you. Imagine angels and not like the reflections.
+ - It’s raining my soul, it’s raining, but it’s raining dead eyes.
+ - Paint with whatever material you please – with pipes, postage stamps, postcards or playing cards, painted paper, or newspapers.
+ - Cubism is the art of depicting new wholes with formal elements borrowed not only from the reality of vision, but from that of conception.
+ - Color is the fruit of life.
+ - Geometry is to the plastic arts what grammar is to the art of the writer.
+ - People quickly grow accustomed to being the slaves of mystery.
+ - I love men, not for what unites them, but for what divides them, and I want to know most of all what gnaws at their hearts.
+ - I sing the joy of wandering and the pleasure of the wanderer’s death.
+ - To insist on purity is to baptize instinct, to humanize art, and to deify personality.
+ - Without poets, without artists, men would soon weary of nature’s monotony.
+ - When man resolved to imitate walking, he invented the wheel, which does not look like a leg. In doing this, he was practicing surrealism without knowing it.
+ - I hate artists who are not of their time.
+ - My, how beautiful is war! its songs, its leisure!
+ - Matisse renovates rather than innovates.
+ - Twentieth pupil of the centuries knows its stuff and bird-changed this century like Jesus climbs the sky.
+ - We cannot carry our father’s corpse with us everywhere we go.
+
+28 quotes

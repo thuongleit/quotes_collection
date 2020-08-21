@@ -1,0 +1,78 @@
+ - Any intelligent fool can make things bigger, more complex, and more violent. It takes a touch of genius – and a lot of courage to move in the opposite direction.
+ - An ounce of practice is generally worth more than a ton of theory.
+ - Development does not start with goods; it starts with people and their education, organization, and discipline. Without these three, all resources remain latent, untapped, potential.
+ - You can either read something many times in order to be assured that you got it all, or else you can define your purpose and use techniques which will assure that you have met it and gotten what you need.
+ - Modern man talks of a battle with nature, forgetting that, if he won the battle, he would find himself on the losing side.
+ - Wisdom demands a new orientation of science and technology toward the organic, the gentle, the elegant and beautiful.
+ - Our task is to look at the world, and see it whole.
+ - Infinite growth of material consumption in a finite world is an impossibility.
+ - The real problems of our planet are not economic or technical, they are philosophical. The philosophy of unbridled materialism is being challenged by events.
+ - Our intentions tend to be much more real to us than our actions, and this can lead to a great deal of misunderstanding with other people, to whom our actions tend to be much more real than our intentions.
+ - We must do what we conceive to be the right thing, and not bother our heads or burden our souls with whether we are going to be successful. Because if we don’t do the right thing, we’ll be doing the wrong thing, and we will just be part of the disease, and not a part of the cure.
+ - Our task – and the task of all education – is to understand the present world, the world in which we live and make our choices.
+ - Anything that we can destroy but are unable to make is, in a sense sacred, and all our ‘explanations’ of it do not really explain anything.
+ - The best aid to give is intellectual aid, a gift of useful knowledge. A gift of knowledge is infinitely preferable to a gift of material things.
+ - The printing press is either the greatest blessing or the greatest curse of modern times, sometimes one forgets which it is.
+ - The modern world tends to be skeptical about everything that makes demands on man’s higher faculties. But it is not at all skeptical about skepticism, which demands hardly anything.
+ - Work and leisure are complementary parts of the same living process and cannot be separated without destroying the joy of work and the bliss of leisure.
+ - Eagles come in all shapes and sizes, but you will recognize them chiefly by their attitudes.
+ - Anyone who thinks consumption can expand forever on a finite planet is either insane or an economist.
+ - True art is the intermediary between man’s ordinary nature and his higher potentialities.
+ - I have no doubt that it is possible to give a new direction to technological development, a direction that shall lead it back to the real needs of man, and that also means: to the actual size of man. Man is small, and, therefore, small is beautiful.
+ - The substance of man cannot be measured by Gross National Product.
+ - To describe an animal as a physico-chemical system of extreme complexityis no doubt perfectly correct, except that it misses out on the animalness of the animal.
+ - Any intelligent fool can invent further complications, but it takes a genius to retain, or recapture, simplicity.
+ - I’m not at all contemptuous of comforts, but they have their place and it is not first.
+ - Scientific and technological “solutions” which poison the environment or degrade the social structure and man himself are of no benefit, no matter how brilliantly conceived or how great their superficial attraction.
+ - Every increase of needs tends to increase one’s independence on outside forces over which one cannont have control and therefore increases existential fear.
+ - We think work with the brain is more worthy than work with the hands. Nobody who thinks with his hands could ever fall for this.
+ - The richer a society, the more impossible it becomes to do worthwhile things without immediate pay-off.
+ - It is amazing how much theory we can do without when work actually begins.
+ - Never let an inventor run a company. You can never get him to stop tinkering and bring something to market.
+ - The most striking about modern industry is that it requires so much and accomplishes so little. Modern industry seems to be inefficient to a degree that surpasses one’s ordinary powers of imagination. Its inefficiency therefore remains unnoticed.
+ - Economic development is something much wider and deeper than economics, let alone econometrics. Its roots lie outside the economic sphere, in education, organisation, discipline and, beyond that, in political independence and a national consciousness of self-reliance.
+ - Not mass production but production by the masses.
+ - The fundamental task is to achieve smallness within large organisation.
+ - I cannot predict the wind but I can have my sail ready.
+ - Our faith gives us knowledge of something better.
+ - Call a thing immoral or ugly, soul-destroying or a degradation to man, a peril to the peace of the world or to the well-being of future generations: as long as you have not shown it to be “uneconomic” you have not really questioned its right to exist, grow, and prosper.
+ - There can be nothing sacred in something that has a price.
+ - Man’s needs are infinite, and infinitude can be achieved only in the spiritual realm, never in the material.
+ - Why precisely do we want to change land ownership? The answer seems to me to be quite clear: to inhibit land speculation, to inhibit the private exploitation of the scarcity-value of land, to inhibit as we might say the cornering of land.
+ - Perhaps we cannot raise the winds. But each of us can put up the sail, so that when the wind comes we can catch it.
+ - The system of nature, of which man is a part, tends to be self-balancing, self-adjusting, self-cleansing. Not so with technology.
+ - An attitude to life which seeks fulfillment in the single-minded pursuit of wealth – in short, materialism – does not fit into this world, because it contains within itself no limiting principle, while the environment in which it is placed is strictly limited.
+ - The disease having been caused by allowing cleverness to displace wisdom, no amount of clever research is likely to produce a cure.
+ - If I limit myself to knowledge that I consider true beyond doubt, I minimize the risk of error but I maximize, at the same time, the risk of missing out on what may be the subtlest, most important and most rewarding things in life.
+ - Nobody really likes large-scale organizations; nobody likes to take orders from a superior who takes orders from a superior who takes orders...
+ - At present, there can be little doubt that the whole of mankind is in mortal danger, not because we are short of scientific and technological know-how, but because we tend to use it destructively, without wisdom. More education can help us only if produces more wisdom.
+ - Is there enough to go around? What is enough? Who can tell us? Certainly not the economist who pursues economic growth as the highest of all values, and therefore has no concept of enough.
+ - If greed were not the master of modern man, how could it be that the frenzy of economic activity does not abate as higher standards of living are attained, and that it is precisely the richest societies which pursue their economic advantage with the greatest ruthlessness?
+ - Study how a society uses its land, and you can come to pretty reliable conclusions as to what its future will be.
+ - It is doubly chimerical to build peace on economic foundations which, in turn, rest on the systematic cultivation of greed and envy, the very forces which drive men into conflict.
+ - Many of them had a better time than they ever had in their lives because they were discovering the new freedom – the less you need, the freer you become.
+ - I think I should not go far wrong if I asserted that the amount of genuine leisure available in a society is generally in inverse proportion to the amount of labor-saving machinery it employs.
+ - Many have no desire to be in it, because their work does not interest them, providing them with neither challenge nor satisfaction, and has no other merit in their eyes than that it leads to a pay-packet at the end of the week.
+ - I certainly never feel discouraged. I can’t myself raise the winds that might blow us or this ship into a better world. But I can at least put up the sail so that when the winds comes, I can catch it.
+ - We still have to learn how to live peacefully, not only with our fellow men but also with nature and, above all, with those Higher Powers which have made nature and have made us; for, assuredly, we have not come about by accident and certainly have not made ourselves.
+ - We still have to learn how to live peacefully, not only with our fellow men but also with nature...
+ - Everything can be seen directly except the eye through which we see.
+ - By means of trees, wildlife could be conserved, pollution decreased, and the beauty of our landscapes enhanced. This is the way, or at least one of the ways, to spiritual, moral, and cultural regeneration.
+ - It has been universally recognized, in all authentic teachings of mankind, that every being born into this world has to work, not merely to keep himself alive, but to strive towards perfection.
+ - Our ordinary mind always tries to persuade us that we are nothing but acorns and that our greatest happiness will be to become bigger, fatter, shinier acorns; but that is of interest only to pigs. Our faith gives us knowledge of something better: that we can become oak trees.
+ - The art of living is always to make a good thing out of a bad thing.
+ - The purpose of work is to give people a chance to utilize and develop their faculties; to enable them to overcome their ego-centeredness by joining others in a common task; and to bring for the goods and services needed for a becoming existence.
+ - Real life consists of the tensions produced by the incompatibility of opposites, each of which is needed.
+ - Many people love in themselves what they hate in others.
+ - A way of life that ever more rapidly depletes the power of the Earth to sustain it and piles up ever more insoluble problems for each succeeding generation can only be called violent.
+ - No one is really working for peace unless he is working primarily for the restoration of wisdom.
+ - It might be said that it is the ideal of the employer to have production without employees and the ideal of the employee is to have income without work.
+ - The heart of the matter, as I see it, is the stark fact that world poverty is primarily a problem of two million villages, and thus a problem of two thousand million villagers.
+ - Few can contemplate without a sense of exhilaration the splendid achievements of practical energy and technical skill, which, from the latter part of the seventeenth century, were transforming the face of material civilization, and of which England was the daring, if not too scrupulous, pioneer.
+ - There are three things healthy people most need to do – to be creatively productive, to render service, and to act in accordance with their moral impulses. In all three respects modern society frustrates most people most of the time.
+ - After all, for mankind as a whole there are no exports. We did not start developing by obtaining foreign exchange from Mars or the moon. Mankind is a closed society.
+ - There is no economic problem and, in a sense, there never has been.
+ - If, however, economic ambitions are good servants, they are bad masters.
+ - There is incredible generosity in the potentialities of Nature. We only have to discover how to utilize them.
+
+76 quotes

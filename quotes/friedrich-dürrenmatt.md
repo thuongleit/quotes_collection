@@ -1,0 +1,84 @@
+ - Emotions have no place in business, unless you do business with them.
+ - Humor is the mask of wisdom.
+ - So then learn to conquer your fear. This is the only art we have to master nowadays: to look at things without fear, and to fearlessly do right.
+ - He who confronts the paradoxical exposes himself to reality.
+ - Resistance at all cost is the most senseless act there is.
+ - Without tolerance, our world turns into hell.
+ - As the Americans slaughter millions of turkeys every year for the celebration of their deliverance, the Indians, who should be celebrated as saviors, have long been slaughtered. There was even a time when a white man was paid a very decent price for every Indian scalp he could produce.
+ - The evolution of humans can not only be seen as the grand total of their wars; it is also defined by the evolution of the human mind and the development of the human consciousness.
+ - It is only in love and murder that we still remain sincere.
+ - Our science has become terrible, our research dangerous, our findings deadly. We physicists have to make peace with reality. Reality is not as strong as we are. We will ruin reality.
+ - The content of physics is the concern of physicists, its effect the concern of all men.
+ - Human life is beyond comprehension.
+ - The world is bad but not without hope. It is only hopeless when you look at it from an ideal viewpoint.
+ - What concerns everyone can only be resolved by everyone.
+ - Above all, be suspicious of your fatherland. Nobody is more inclined to become a murderer than a fatherland.
+ - We are not cave dwellers anymore, we live in the age of technology. When someone needs a car, he does not need to build it. He can buy it. When someone needs a murder, he himself does not need to kill. He can order it.
+ - Only the freedom of mind can prevent the state from becoming totalitarian and from issuing totalitarian demands.
+ - The only remedy against hunger is reasonable birth control.
+ - Revolutions demand enormous sacrifices and, at the same time, create a new need to change the world again.
+ - There is also a reasonable tolerance: reason tolerates the reasonable. It is, however, almost tautological to call this ‘tolerance’ any longer, as it becomes a matter of course.
+ - A state always calls itself fatherland when it is ready for murder.
+ - The rightful claim to dissent is an existential right of the individual.
+ - Truth is always a delusion.
+ - The savages don’t have atom bombs.
+ - The difference between humans and wild animals is that humans pray before they commit murder.
+ - Pretend to be dumb, that’s the only way to reach old age.
+ - The planet on which we live is poorly organized, many areas are overpopulated, others are reserved for a few, technology’s potential is only in part realized, and most people are starving.
+ - The art of the cuisine, when fully mastered, is the one human capability of which only good things can be said.
+ - I am a man, and God is hiding from us humans. We are unable to see Him, we can only search for Him.
+ - Someone who is about to die does not mourn the dead.
+ - Every work of art depicts an aspect of reality.
+ - The worst possible turn can not be programmed. It is caused by coincidence.
+ - The problems of all of humanity can only be solved by all of humanity.
+ - News reports don’t change the world. Only facts change it, and those have already happened when we get the news.
+ - In this country, you never pull the emergency brake, even when there is an emergency. It is imperative that the trains run on schedule.
+ - To make the essence of man visible in the exposure is the highest art of photography.
+ - Everything that is necessary is also easy. You just have to accept it. And the most necessary, the most natural matter on this planet is death.
+ - What the world needs is not redemption from sin but redemption from hunger and oppression; it has no need to pin its hopes upon Heaven, it has everything to hope for from this earth.
+ - A major power can afford a military debacle only when it looks like a political victory.
+ - Today’s Communism can survive only if it abandons the myth of an infallible party, if it continues to think, and if it becomes democratic.
+ - A writer doesn’t solve problems. He allows them to emerge.
+ - In a society which is structured the wrong way, piety has no effect.
+ - We can’t afford the wrath of Heaven. We survived a deluge by the skin of our teeth, but an economic crisis would be disastrous.
+ - The freedom of each individual can only be the freedom of all.
+ - A story has been thought to its conclusion when it has taken its worst possible turn.
+ - Today’s difference between Russia and the United States is that in Russia everybody takes everybody else for a spy, and in the United States everybody takes everybody else for a criminal.
+ - That there is also freedom in captivity, only a prisoner can claim. Coming from a prison guard, this statement would be blasphemy.
+ - Religion and political expediency go beautifully hand in hand.
+ - For a person who is dying only eternity counts.
+ - It is bad luck for world history that of all people the Russians adopted Communism, because they are totally unfit for it.
+ - There is a moment when nothing can be wiped out and left behind any more, when there is only reality and reality is horrifying.
+ - One does not set fire to a world which is already lost.
+ - It is surely easier to confess a murder over a cup of coffee than in front of a jury.
+ - Whoever is content with the world, and who profits from its lack of justice, does not want to change it.
+ - It is easy to kill when you don’t see your victim.
+ - Prior to the meeting, there was a prayer. In general, in the United States there was always praying.
+ - Who sows fear, reaps weapons.
+ - To not be afraid in our world is the message that doesn’t derive from reason, but maybe from this mysterious capacity given to humans which we call – not without a little embarrassment – faith.
+ - Man is imperfect. The reality he creates is always endangered by man.
+ - Do we still have the right to be more than victims?
+ - A reasonable change of the world can not be instrumented by pure reason.
+ - Communism is a proposition to structure the world more reasonably, a proposition for changing the world. As such, we have to analyze it and, if we deem it reasonable, act upon it.
+ - There are thoughts we must not think.
+ - This inhuman world has to become more humane. But how?
+ - We do not consider patriotism desirable if it contradicts civilized behavior.
+ - Rome has betrayed itself. It knew the truth and chose violence, it knew humaneness and it chose tyranny.
+ - It is inhuman to continue a war which could easily be ended.
+ - The archetype of all humans, their ideal image, is the computer, once it has liberated itself from its creator, man. The computeris the essence of the human being. In the computer, man reaches his completion.
+ - In the United States the whites speak well of the Blacks but think bad about them, whereas the Blacks talk bad and think bad aboutthe whites. Whites fear Blacks, because they have a bad conscience, and Blacks hate whites because they need not have a bad conscience.
+ - Power is paradoxical.
+ - There are risks which are not acceptable: the destruction of humanity is one of them.
+ - Politics at all times lead to bloody wars, and not only politics, but also religions as well as social and economic systems of alltimes are spattered with blood. Invariably the big ones devoured the little ones, and the little ones the tiny ones.
+ - For people who have no critical acumen, a state is a mythical entity, for those who think critically it is a rational fiction, created by man in order to facilitate human coexistence.
+ - People like us who are on their last leg can only understand comedies.
+ - A world is in flames, and you are cracking silly jokes.
+ - When death has you by the throat, you don’t mince words.
+ - The individual protests against the world, but he doesn’t get beyond protest, he is just a single protester. When he wants to be more than that, he has to counter power with power, he has to oppose the system with another system.
+ - Before anything else, we need a new age of Enlightenment. Our present political systems must relinquish their claims on truth, justice and freedom and have to replace them with the search for truth, justice, freedom and reason.
+ - Nothing that has been thought can ever be taken back.
+ - You can’t take back an act you were able to think.
+ - World history is tragic.
+ - A story is not finished, until it took the worst turn.
+
+82 quotes

@@ -1,0 +1,25 @@
+ - If the world is to be healed through human efforts, I am convinced it will be by ordinary people, people whose love for this life is even greater than their fear.
+ - The heart that breaks open can contain the whole universe.
+ - The web of life both cradles us and calls us to weave it further.
+ - The most radical thing any of us can do at this time is to be fully present to what is happening in the world.
+ - You don’t need to do everything. Do what calls your heart; effective action comes from love. It is unstoppable, and it is enough.
+ - The central purpose of the Work that Reconnects is to help people uncover and experience their innate connections with each other and with the systemic, self-healing powers of the web of life, so that they may be enlivened and motivated to play their part in creating a sustainable civilization.
+ - The sorrow, grief, and rage you feel is a measure of your humanity and your evolutionary maturity. As your heart breaks open there will be room for the world to heal.
+ - Walk boldly through your life with an open, broken heart.
+ - The future is not out there in front of us, but inside us.
+ - Compassion literally means to feel with, to suffer with. Everyone is capable of compassion, and yet everyone tends to avoid it because it’s uncomfortable. And the avoidance produces psychic numbing – resistance to experiencing our pain for the world and other beings.
+ - We are our world knowing itself. We can relinquish our separateness. We can come home again – and participate in our world in a richer, more responsible and poignantly beautiful way than before, in our infancy.
+ - Grace happens when we act with others on behalf of our world.
+ - To be alive in this beautiful, self-organizing universe – to participate in the dance of life with senses to perceive it, lungs that breathe it, organs that draw nourishment from it – is a wonder beyond words.
+ - Gratitude is liberating. It is subversive. It helps us to realize that we are sufficient, and that realization frees us.
+ - The wave of the future is on the local level. Don’t waste your heart and mind trying to pull down what is already destroying itself. But come into where you’re almost below the radar and reorganize life. We want communities where we live and work and fight for the future.
+ - It is my experience that the world itself has a role to play in our liberation. Its very pressures, pains, and risks can wake us up -release us from the bonds of ego and guide us home to our vast true nature.
+ - We are making choices that will affect whether beings thousands of generations from now will be able to be born sound of mind and body.
+ - Confirming an intuitive sense I’ve always felt for the interconnectedness of all things, this doctrine has provided me ways to understand the intricate web of co-arising that links one being with all other beings, and to apprehend the reciprocities between thought and action, self and universe.
+ - There are the holding actions, the changing actions, and the vision of the future – what we want to see happen for the Earth. All are essential.
+ - Qualities like love and compassion are not just abstract virtues that are the property of saints and adepts. Anyone can develop these qualities in themselves by doing spiritual practices. As the Buddha said, Come and see.
+ - It is good to realize that falling apart is not such a bad thing. Indeed, it is as essential to evolutionary and psychological transformation as the cracking of outgrown shells.
+ - Action isn’t a burden to be hoisted up and lugged around on our shoulders. It is something we are. The work we have to do can be seen as a kind of coming alive. More than some moral imperative, it’s an awakening to our true nature, a releasing of our gifts.
+ - Vietnamese Zen master Thich Nhat Hanh is one of the most beloved Buddhist teachers in the West, a rare combination of mystic, poet, scholar, and activist. His luminous presence and the simple, compassionate clarity of his writings have touched countless lives.
+
+23 quotes

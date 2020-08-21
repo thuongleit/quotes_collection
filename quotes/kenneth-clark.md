@@ -1,0 +1,54 @@
+ - I believe in courtesy, the ritual by which we avoid hurting other people’s feelings by satisfying our own egos.
+ - Children who are treated as if they are uneducable almost invariably become uneducable.
+ - I believe that in spite of the recent triumphs of science, men haven’t changed much in the last two thousand years; and in consequence we must still try to learn from history. History is ourselves.
+ - No nude, however abstract, should fail to arouse in the spectator some vestige of erotic feeling, even if it be only the faintest shadow – and if it does not do so it is bad art and false morals.
+ - It is often said that Leonardo drew so well because he knew about things; it is truer to say that he knew about things because he drew so well.
+ - The nude does not simply represent the body, but relates it, by analogy, to all structures that have become part of our imaginative experience.
+ - Opera, next to Gothic architecture, is one of the strangest inventions of Western man. It could not have been foreseen by any logical process.
+ - I wonder if a single thought that has helped forward the human spirit has ever been conceived or written down in an enormous room: except, perhaps, in the reading room of the British Museum.
+ - Conventional nudes based on classical originals could bear no burden of thought or inner life without losing their formal completeness.
+ - A visual experience is vitalizing. Whereas to write great poetry, to draw continuously on one’s inner life, is not merely exhausting, it is to keep alight a consuming fire.
+ - Almost all great painters in old age arrive at the same kind of broad, simplified style, as if they wanted to summarise the whole of their experience in a few strokes and blobs of colour.
+ - All color is no color.
+ - Lives devoted to Beauty seldom end well.
+ - We can hardly imagine a state of mind in which all material objects were regarded as symbols of spirtual truths or episodes in sacred history. Yet, unless we make this effort of imagination, Medieval art is largely incomprehensible.
+ - Leonardo is the Hamlet of art history whom each of us must recreate for himself.
+ - To hurry through the rise and fall of a fine, full sentence is like defying the role of time in human life.
+ - People sometimes tell me that they prefer barbarism to civilisation. I doubt if they have given it a long enough trial. Like the people of Alexandria, they are bored by civilisation; but all the evidence suggests that the boredom of barbarism is infinitely greater.
+ - The eye instinctively looks for analogies and amplifies them, so that a face imagined in the pattern of a wallpaper may become more vivid than a photograph.
+ - A racist system inevitably destroys and damages human beings; it brutalizes and dehumanizes them, blacks and whites alike.
+ - Changes in the structure of society are not brought about solely by massive engines of doctrine. The first flash of insight which persuades human beings to change their basic assumptions is usually contained in a few phrases.
+ - We are part of a great whole. All living things are our brothers and sisters.
+ - You have no idea what portrait painters suffer from the vanity of their sitters.
+ - Few people can look at a painting longer than it takes to peel an orange and eat it.
+ - Racial prejudices are indication of a disturbed and potentially unstable society.
+ - The Cathedrals were built to the glory of God; New York was built to the glory of Mammon.
+ - The dark ghettos are social, political, educational and-above all-economic colonies. Their inhabitants are subject peoples, victims of the greed, cruelty, insensitivity, guilt, and fear of their masters.
+ - Evidently one cannot look for long at the Last Supper without ceasing to study it as a composition, and beginning to speak of it as a drama. It is the most literary of all great pictures, one of the few of which the effect may largely be conveyed – can even be enhanced – by description.
+ - Pride, like humility, is destroyed by one’s insistence that he possesses it.
+ - Energy is eternal delight; and from the earliest times human beings have tried to imprison it in some durable hieroglyphic. It is perhaps the first of all the subjects of art.
+ - One musn’t overrate the culture of what used to be called “top people” before the wars. They had charming manners, but they were as ignorant as swans.
+ - A lot of people you think you know you don’t know until you find out you don’t know then it may be too late to know.
+ - It would be unfair to say that I prefer the back of a book to its contents, but it is true that the sight of a lot of books gives me the hope that I may some day read them, which sometimes develops into the belief that I have read them.
+ - Heroes do not easily tolerate the company of other heroes.
+ - I believe in the God-given genius of certain individuals, and I value a society that makes their existence possible.
+ - This became Delacroix ’s theme: that the achievements of the spirit all that a great library contained were the result of a state of society so delicately balanced that at the least touch they would be crushed beneath an avalanche of pent-up animal forces.
+ - Ingres was one of those artists to whom the outline was something sacred and magical, and the reason is that it was the means of reconciling the major conflict in his art, the conflict between abstraction and sensibility.
+ - Over and above the political, economic, sociological, and international implications of racial prejudices, their major significance is that they place unnecessary burdens upon human beings.
+ - The various parts of the body cannot be perceived as simple units and have no clear relationship to one another. In almost every detail the body is not the shape that art has led us to believe it should be.
+ - Those who wish, in the interest of morality, to reduce Leonardo, that inexhaustible source of creative power, to a neutral or sexless agency, have a strange idea of doing service to his reputation.
+ - The great artist takes what he needs.
+ - Just as a classical dancer repeats the same movements again and again, in order to achieve a greater perfection of line and balance, so Degas repeats the same motifs – it was one of the things that gave him so much sympathy with dancers.
+ - Sweeping, confident articles on the future seem to me, intellectually, the most disreputable of all forms of public utterance.
+ - Fine colour implies a unified relationship, in which each part is subordinate to the whole, and the transitions between them are felt to be as precious and beautiful as the colours themselves. In fact, the colours themselves must be continuously modified and broken as part of the transition.
+ - In time of war all countries behave equally badly, because the power of action is handed over to stupid and obstinate men.
+ - Devotion to the facts will always give the pleasures of recognition; adherence to the rules of design, the pleasures of order and certainty.
+ - All great civilisations, in their early stages, are based on success in war.
+ - Only the bad artists of the nineteenth century were frightened by the invention of photography; the good ones all welcomed it and used it.
+ - I just don’t think the moon is going to be an adequate substitute for the fact that we haven’t addressed ourselves to clearing up the slums.
+ - The illustrator is essentially a reporter: his subjects come from the outside, lit by a flash. A subject comes to the classical artist from inside, and when he discovers confirmation of it in the outside world he feels that it has been there all the time.
+ - We can destroy ourselves by cynicism and disillusion, just as effectively as by bombs.
+ - The history of art cannot be properly understood without some reference to the history of science. In both we are studying the symbols by which man affirms his mental scheme, and these symbols, be they pictorial or mathematical, a fable or formula, will reflect the same changes.
+ - The great achievement of the Catholic Church lay in harmonizing, civilizing the deepest impulses of ordinary, ignorant people.
+
+52 quotes

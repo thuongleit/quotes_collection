@@ -1,0 +1,22 @@
+ - Go have fun and make money.
+ - You can’t learn anything new, until you are open enough to forget everything you think you know.
+ - The first rule of business is FUN.
+ - Things that make you weird as a kid will make you great tomorrow.
+ - Distraction is the most corrosive disease of the 20th century.
+ - In the particular lies the universal.
+ - We are born with magic inside of us.
+ - It’s about whittling. It’s about taking something and whittling and whittling and getting it sharp and perfect. Then you’ve got something.
+ - But the few brave ones, both companies and individuals, who risk comfort and safety for a chance at beauty or being able to move someone – they have a potential to gain so much more.
+ - Creativity is not to be rudely shoved into being.
+ - The life you want doesn’t exist. You have to make it up.
+ - If your work appeals to everyone, it moves no one.
+ - By believing your work is a ‘gift,’ it radically changes what you create. I think this is a revolutionary idea. It’s no longer about client approval or a paycheck, but aspiring to make work that has meaning and purpose in your life and for your audience.
+ - Put your weird in your work!
+ - I am everyone I have ever loved.
+ - If you don’t enjoy what you’re doing, how can you assume anyone else will.
+ - No one can stand in the way of your personal greatness.
+ - Inspiration is hogwash. My work comes directly out of my loves and hates. Muses don’t whisper in my ear, and ideas don’t flow over my body like a cool rain.
+ - When we think of our work as a gift, it radically changes what we create.
+ - We’re supposed to be the people who make culture, not decorate culture.
+
+20 quotes

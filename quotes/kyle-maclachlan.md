@@ -1,0 +1,35 @@
+ - My workout is my meditation.
+ - To quote Agent Cooper, ‘I have no idea where this will lead us, but I have a definite feeling it will be a place both wonderful and strange.’
+ - I always think of the Pacific Northwest as giant trees, and rain, and clouds and dampness, like the Native American art from that area.
+ - One of the things that I learned in television, and one of the beauties of television, is that, if you have a strong writing staff, they rely on you just as much as you rely on them. They look to me or the other actors to help inspire them to take the character in interesting directions.
+ - Helmut Lang does a lot of very military-influenced things. You have to find the designer that suits your body the best, and he works for me.
+ - I’ve done Graham Norton’s show three times now. He tackles taboos and subject matter that wouldn’t make it past the censors in the States.
+ - The film world is a crazy place to be. You sit around all day waiting for the phone to ring. Are people talking about you or aren’t they?
+ - I believe in fate. Sometimes that means an old bearded guy sitting on a cloud and pulling the strings; sometimes it means random atoms swirling through a cheerless universe; sometimes it means everything being preordained thanks to your karma credit from your previous lives.
+ - Apparently, when Twin Peaks was on the air in Spain, something like 50 percent of televisions were tuned to it.
+ - I’m pretty, for lack of a better word, happy-go-lucky. I take things very seriously, but I’m very aware of people around me. I like to be part of a group that’s working together towards something positive.
+ - Hamlet is a little daunting.
+ - The Monmouth Coffee Shop is the best place in London.
+ - I questioned everything. I didn’t see a character developed in Platoon at all. The character in Blue Velvet was much more fascinating to me.
+ - I garden a lot in LA, so fashion consists of boots, work pants and T-shirts, unless I’m going out.
+ - I always liked the Raiders of the Lost Ark. I still want to be Indiana Jones.
+ - I do hang on to things. I was so happy my father saved his army jacket. I grew up wearing that all through high school.
+ - I don’t really think of myself as quirky; I have sort of an unusual sense of humor.
+ - Actors have an unusual perspective on clothing. You’ve really got to know the impact of what you’re wearing on the character you’re playing.
+ - I’d like to do more Shakespeare. I’d like to do Iago in Othello. I look so benign. It would be interesting to see that black evil come out of my soul.
+ - I can’t get a job, I can’t get arrested.
+ - I get very caught up with things. I used to be dominated by domestic things. I had a lovely house in LA-and it became this growing, mad obsession.
+ - I can move around the floor, but I don’t know if I’d call that dancing!
+ - I don’t think the women in the TV series are really like that. It’s certainly not my personal experience of New York women.
+ - I can’t help but feel that stuff that comes to me by chance or on purpose, whatever, tends to reflect where I am as a human being.
+ - The difference with doing a play is that you are in control. In film you are in the hands of the director and the editor and the producer.
+ - For the time it takes to make the film, you are treated like a cosseted pet. Then the process is over, and you’re hung out to dry. It’s like being a mink.
+ - The nice thing about New York is that you’re finally able to wear those winter clothes that have been sitting in your closet in mothballs.
+ - As an actor, you’re always in situations that can be compromising. But you can wipe away that gray area by making a choice.
+ - I really fight for my privacy.
+ - Doing a film, or being sent scripts to look at a certain character, it’s very odd for me. I tend to take it very personally.
+ - Hollywood is not good when it comes to age.
+ - 1974 meant big cuffs, bell-bottoms, platform shoes with two-tone colors, and body-conscious shirts.
+ - I already felt disengaged with my contemporaries.
+
+33 quotes

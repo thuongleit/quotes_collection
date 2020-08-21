@@ -1,0 +1,32 @@
+ - Dance is music made visible.
+ - See the music, hear the dance.
+ - Why are you stingy with yourselves? Why are you holding back? What are you saving for – for another time? There are no other times. There is only now. Right now.
+ - What are you waiting for? What are you saving for? Now is all there is.
+ - First comes the sweat. Then comes the beauty if you’re very lucky and have said your prayers.
+ - The mirror is not you. The mirror is you looking at yourself.
+ - Choreography is simpler than you think. Just go and do, and don’t think so much about it. Just make something interesting.
+ - God creates, I do not create. I assemble and I steal everywhere to do it – from what I see, from what the dancers can do, from what others do...
+ - I don’t have a past. I have a continuous present. The past is part of the present, just as the future is. We exist in time.
+ - I don’t want people who want to dance, I want people who have to dance.
+ - I could never make a ballet by wrinkling my brow and concentrating. If you set out deliberately to make a masterpiece, how will you ever get it finished?
+ - I’ve got more energy now than when I was younger because I know exactly what I want to do.
+ - It’s like the time capsule with everything in it. Or like the seed that when you plant it, becomes the enormous tree with leaves and fruit. Everybody was in that little seed, and so everything can open. The tree of dance is like that. It just takes a long, long time to blossom.
+ - Storyless is not abstract. Two dancers on the stage are enough material for a story; for me, they are already a story in themselves.
+ - They are poets of gesture.
+ - Music must be seen, and dance must be heard.
+ - My muse must come to me on union time.
+ - I am a cloud – in trousers.
+ - Most ballet teachers in the United States are terrible. If they were in medicine, everyone would be poisoned.
+ - Your eyes is camera and your brain is a file cabinet.
+ - Ballet is important and significant – yes. But first of all, it is a pleasure.
+ - The pointes for girls, I always say, have to be like an elephant’s trunk; strong and yet flexible and soft.
+ - Dancers are instruments, like a piano the choreographer plays.
+ - The woman’s function is to fascinate men.
+ - I can always invent movement, and sometimes it can be fitted into the right place, but that is not choreography. It is the music that dictates the whole shape of the work. I do not believe in the permanence of anything in ballet save the purely classical.
+ - In my ballets, woman is first. Men are consorts. God made men to sing the praises of women. They are not equal to men: They are better.
+ - I have no literary approach – except to literature.
+ - Ballet will speak for itself. About itself.
+ - Put a man and a girl on stage and there is already a story; a man and two girls, there’s already a plot.
+ - I cannot move, I cannot even want to move, unless I hear the music first.
+
+30 quotes

@@ -1,0 +1,69 @@
+ - If you aren’t confused by quantum mechanics, you haven’t really understood it.
+ - An expert is a man who has made all the mistakes which can be made, in a narrow field.
+ - Prediction is very difficult, especially if it’s about the future.
+ - A physicist is just an atom’s way of looking at itself.
+ - If quantum mechanics hasn’t profoundly shocked you, you haven’t understood it yet.
+ - Everything we call real is made of things that cannot be regarded as real.
+ - I go into the Upanishads to ask questions.
+ - No paradox, no progress.
+ - No, no, you’re not thinking; you’re just being logical.
+ - Every great and deep difficulty bears in itself its own solution. It forces us to change our thinking in order to find it.
+ - In the great drama of existence we are audience and actors at the same time.
+ - Never express yourself more clearly than you are able to think.
+ - How wonderful that we have met with a paradox. Now we have some hope of making progress.
+ - When we measure something we are forcing an undetermined, undefined world to assume an experimental value. We are not measuring the world, we are creating it.
+ - One must always do what one really cannot.
+ - If we couldn’t laugh at ourselves, that would be the end of everything.
+ - If anybody says he can think about quantum physics without getting giddy, that only shows he has not understood the first thing about them.
+ - When it comes to atoms, language can be used only as in poetry.
+ - There are trivial truths and the great truths. The opposite of a trivial truth is plainly false. The opposite of a great truth is also true.
+ - Einstein, stop telling God what to do!
+ - We all know your idea is crazy. The question is whether it is crazy enough.
+ - Nothing exists until it is measured.
+ - Opposites are not contradictory but complementary.
+ - The opposite of every great idea is another great idea.
+ - The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.
+ - Physics is the belief that a simple and consistent description of nature is possible.
+ - Every valuable human being must be a radical and a rebel, for what he must aim at is to make things better than they are.
+ - There are some things so serious you have to laugh at them.
+ - When searching for harmony in life one must never forget that in the drama of existence we are ourselves both actors and spectators.
+ - We are all agreed that your theory is crazy. The question which divides us is whether it is crazy enough to have a chance of being correct. My own feeling is that it is not crazy enough.
+ - It is the hallmark of any deep truth that its negation is also a deep truth.
+ - Your theory is crazy, but it’s not crazy enough to be true.
+ - A person who wasn’t outraged on first hearing about quantum theory didn’t understand what had been said.
+ - What is that we human beings ultimately depend on? We depend on our words. We are suspended in language. Our task is to communicate experience and ideas to others.
+ - Accuracy and clarity of statement are mutually exclusive.
+ - Address to Albert Einstein: You are not thinking. You are merely being logical.
+ - The opposite of a fact is falsehood, but the opposite of one profound truth may very well be another profound truth.
+ - We are trapped by language to such a degree that every attempt to formulate insight is a play on words.
+ - Those who are not shocked when they first come across quantum theory cannot possibly have understood it.
+ - Every sentence I utter must be understood not as an affirmation, but as a question.
+ - The present state of atomic theory is characterized by the fact that we not only believe the existence of atoms to be proved beyond a doubt, but also we even believe that we have an intimate knowledge of the constituents of the individual atoms.
+ - The meaning of life consists in the fact that it makes no sense to say that life has no meaning.
+ - Isolated material particles are abstractions, their properties being definable and observable only through their interaction with other systems .
+ - A deep truth is a truth so deep that not only is it true but it’s exact opposite is also true.
+ - Some subjects are so serious that one can only joke about them.
+ - Sometimes the child in one behaves a certain way and the rest of oneself follows behind, slowly shaking its head.
+ - Truth and clarity are complementary.
+ - If you have a correct statement, then the opposite of a correct statement is of course an incorrect statement, a wrong statement. But when you have a deep truth, then the opposite of a deep truth may again be a deep truth.
+ - Our task is not to penetrate the essence of things, the meaning of which we do not know anyway, but rather to develop concepts which allow us to talk in a productive way about phenomena in nature.
+ - When it comes to atoms, language can be used only as in poetry. The poet, too, is not nearly so concerned with describing facts as with creating images.
+ - It is, indeed, perhaps the greatest prospect of humanistic studies to contribute through an increasing knowledge of the history of cultural development to that gradual removal of prejudices which is the common aim of all science.
+ - If you think you understand it, that only shows that you don’t know the first thing about it.
+ - In our description of nature the purpose is not to disclose the real essence of the phenomena but only to track down, so far as it is possible, relations between the manifold aspects of our experience.
+ - It is a great pity that human beings cannot find all of their satisfaction in scientific contemplativeness.
+ - It is wrong to think that the task of physics is to find out how Nature is. Physics concerns what we say about Nature.
+ - You must come to Copenhagen to work with us. We like people who can actually perform thought experiments!
+ - There is no hope for any speculation that does not look absurd at first glance.
+ - An independant reality in the ordinary physical sense can neither be ascribed to the phenomenon nor to the agencies of observation.
+ - There are two sorts of truth: trivialities, where opposites are clearly absurd, and profound truths, recognised by the fact that the opposite is also a profound truth.
+ - The measurement we get when we measure something is not a property of the thing measured.
+ - Rutherford is a man you can rely on; he comes regularly and enquires how things are going and talks about the smallest details – Rutherford is such an outstanding man and really interested in the work of all the people around him.
+ - Oh what idiots we have all been, this is just as it must be.
+ - Truth is something that we can attempt to doubt, and then perhaps, after much exertion, discover that part of the doubt is not justified.
+ - All rising curves that show unwelcome trends in human affairs will approach infinity if extended far enough, but it is we who dictate the curve and not vice versa.
+ - It is not enough to be wrong, one must also be polite.
+ - If an idea does not appear bizarre, there is no hope for it.
+ - The great extension of our experience in recent years has brought light to the insufficiency of our simple mechanical conceptions and, as a consequence, has shaken the foundation on which the customary interpretation of observation was based.
+
+67 quotes

@@ -1,0 +1,62 @@
+ - Let’s go back, back to the Beginning...
+ - The eyes are the windows to the soul.
+ - What is meant to be, will always find its way. And when your down and feeling alone, just wanna run away, trust yourself and don’t give up. You know you better than anyone else.
+ - My life is very crazy and busy, but I love it that way.
+ - And it only matters how true you are. Be true to yourself and follow your heart.
+ - Forget about the reasons why you can’t in life and start to try.
+ - I went far and now I see that the only one I needed was me.
+ - I can’t really act the way I want to act, or say what I want to say all the time. And a lot of times, I cover that up with a smile.
+ - The love you have for your child is so much greater than any challenge you’ll face as a parent, and that’s what helps you through.
+ - Guys make me feel secure and comfortable when I’m scared or need attention. They bring stability. And affection. And fun. And drama. You learn so much from a boyfriend. It’s hard to put into words, I guess.
+ - The devil comes to bring a fate you couldn’t imagine in your wildest dream.
+ - You can be edgy without showing off your boobs.
+ - No, I’m not! I’m not a tomboy! I love my makeup! That’s not true! I’m not a tomboy!
+ - I love my mom. I totally look up to her, and she just doesn’t let anybody take advantage of me. People might call that a stage mom.
+ - Mom always tells me to celebrate everyone’s uniqueness. I like the way that sounds.
+ - I think I’m happy with who I am. I don’t know if I learned that from other girls or just people in general.
+ - I love clothes. I can’t control myself. I have a huge fetish for shoes and clothes and make-up. I’m the kind of person who doesn’t like to wear things over and over again.
+ - You’re so convinced you’ll disappoint people if you show them that you’re not perfect. You don’t realize you are perfect. Your imperfections are what make you perfect. They make you you. That’s what people love. It’s what I love too.
+ - My mom taught me not to talk about money.
+ - Like going to my favorite restaurant, it can sometimes get hard. I just can’t go to the mall.
+ - When the darkness rolls in, I’ll be there through thick and thin.
+ - People are going to say what they want to say and think what they want to think, and I can’t change their minds.
+ - I also love Dido and Nelly Furtado and people who are really into their music like that. And I love Renee Zellweger.
+ - At first, when I got bad press and people would talk bad about my family or something like that, I would get really upset, but now it’s just not worth my energy.
+ - I don’t think the Disney Channel gives us enough credit for the age range Lizzie McGuire actually has. College students come up to me, grandparents, famous people. It’s really funny.
+ - My mom always says, ‘If you don’t believe in something, you’ll lose yourself completely.’
+ - If you’re not popular, then everyone is not wanting anything to do with you, or not answering the phone.
+ - I stopped going to school in the middle of fourth grade. Everyone grows up with the peer pressure, and kids being mean to each other in school. I think that’s such a horrible thing, but I never really dealt with it in a high school way.
+ - In dreams, and in love, there are no impossibilities.
+ - I’m a sucker for a catchy song, and dance music. That’s my sweet spot.
+ - Every week I read about myself in a magazine, about something that I haven’t done or some place that I’ve never been or don’t even know. It’s just gossip, rumors, egos, and politics.
+ - Weird, but sometimes I feel more like my cartoon character than I do Lizzie because she’s a little more edgy and snappy.
+ - I’d been right from the start – soulmates were for fairy tales. In real life, people were just people, and they couldn’t be trusted.
+ - It’s hard to stay true to yourself and what you want in life when there are so many distractions and so much craziness going on around you.
+ - You have this way of making me feel like I can fly.
+ - Sometimes I just wish I had a day off. I really need to clean my room.
+ - I have an older sister named Haley and she wanted to be an actress. So I wanted to be an actress. It’s really funny the way that some people don’t give kids enough credit for like really being driven, and really wanting to do things so badly.
+ - I know I can handle dramatic roles, but I don’t think I should have to play a young mother on crack to prove it.
+ - I’m not scandalous. I think it’s actually embarrassing to be in those, yet some people will do anything to be in those magazines. I’m happy with who I am, and I’m happy with the way people portray me. If it’s too normal, than that’s their opinion.
+ - People talk worse about people than they talk good about people, because a lot of people like drama.
+ - Now my music is kind of pop-rock, right? If I’m 25 and singing still, I don’t want to be singing music like that.
+ - That’s so cute! They have birdbaths in the church!
+ - I want to collaborate. I’m a big believer in collaboration.
+ - I have always been interested in the paranormal and afterlife, everything from ghosts to angels. I think that everyone has that curiosity of the great unknown.
+ - I ate a bug once. It was flying around me. I was trying to get it away. It went right in my mouth. It was so gross!
+ - This was real. And it was me. I had lived that life, and I had died that death. I was staring at the very end of me.
+ - I started taking singing classes just two years ago. It was great. I never knew I could sing but I kind of found my voice.
+ - I try not to look at my schedule for the week because I’ll get so overwhelmed. Every day, there are multiple things to be done and 10 things I don’t end up accomplishing.
+ - I pop gum. My parents get so annoyed with me. I know my dad wishes he never taught me how to do that.
+ - Well, I’m not going to be singing about lollipops because I no longer relate to lollipops.
+ - I think every actor is looking for a challenge, and to play something different, and to be a part of a project with other great actors.
+ - I’m drawing the gossip surrounding the celebrity, or the image the celebrity tries to push on us.
+ - I think people assume I’m perfect. I’m not. I make mistakes. I do things I regret. I’m stubborn.
+ - I actually didn’t want to have control of the writing on my first album. To write, you have to have time to connect with yourself. I don’t have that time right now, because I’m so busy.
+ - There definitely was a time when I was pretty obsessed with my weight, but I’m better off not stressing about my body all the time.
+ - When I’m on tour, I’m in a new city every single night, and the energy and the crowds and the kids and the screaming and them knowing every single word of my music and being onstage is such an energetic feeling with a big payoff.
+ - He always believed that people live up or down to the amount of trust you put in them.
+ - I love men who have a lot going on in their lives, like I do.
+ - I can’t go more than 72 hours without shopping, but I don’t think I’m excessive.
+ - It’s not attractive when girls get super skinny. Guys don’t like it. Gils don’t like you as much. You lose some happiness when that’s all you think about.
+
+60 quotes

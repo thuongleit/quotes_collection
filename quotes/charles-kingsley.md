@@ -1,0 +1,103 @@
+ - A blessed thing it is for any man or woman to have a friend, one human soul whom we can trust utterly, who knows the best and worst of us, and who loves us in spite of all our faults.
+ - Life is too short for mean anxieties.
+ - Friendship is like a glass ornament, once it is broken it can rarely be put back together exactly the same way.
+ - Feelings are like chemicals, the more you analyze them the worse they smell.
+ - Better is old wine than new, and old friends like-wise.
+ - All we need to make us really happy is something to be enthusiastic about.
+ - Being forced to work, and forced to do your best, will breed in you temperance and self-control, diligence and strength of will, cheerfulness and content, and a hundred virtues which the idle will never know.
+ - Do today’s duty, fight today’s temptation; do not weaken and distract yourself by looking forward to things you cannot see, and could not understand if you saw them.
+ - See the land, her Easter keeping, Rises as her Maker rose. Seeds, so long in darkness sleeping, Burst at last from winter snows. Earth with heaven above rejoices...
+ - The men whom I have seen succeed best in life always have been cheerful and hopeful men; who went about their business with a smile on their faces; and took the changes and chances of this mortal life like men; facing rough and smooth alike as it came.
+ - Beauty is God’s handwriting. Welcome it in every fair face, every fair day, every fair flower.
+ - There are two freedoms – the false, where a man is free to do what he likes; the true, where he is free to do what he ought.
+ - Because I believe in a God of absolute and unbounded love, therefore I believe in a loving anger of His which will and must devour and destroy all which is decayed, monstrous, abortive in His universe till all enemies shall be put under His feet, and God shall be all in all.
+ - Except a living man, there is nothing more wonderful than a book.
+ - Men must work, and women must weep.
+ - Some say that the age of chivalry is past, that the spirit of romance is dead. The age of chivalry is never past, so long as there is a wrong left unredressed on earth.
+ - There is a great deal of human nature in man.
+ - Pray over every truth; for though the renewed heart is not “desperately wicked,” it is quite deceitful enough to become so, if God be forgotten a moment.
+ - Stick to the old truths and the old paths, and learn their di- vineness by sick-beds and in every-day work, and do not darken your mind with intellectual puzzles, which may breed disbelief, but can never breed vital religion or practical usefulness.
+ - Take comfort, and recollect however little you and I may know, God knows; He knows Himself and you and me and all things; and His mercy is over all His works.
+ - I do not want merely to possess a faith, I want a faith that possesses me.
+ - If you want to be miserable, think about yourself, about what you want, what you like, what respect people ought to pay you and what people think of you.
+ - Whatever may be the mysteries of life and death, there is one mystery which the cross of Christ reveals to us, and that is the infinite and absolute goodness of God. Let all the rest remain a mystery so long as the mystery of the cross of Christ gives us faith for all the rest.
+ - Music is a sacred, a divine, a God-like thing, and was given to man by Christ to lift our hearts up to God, and make us feel something of the glory and beauty of God, and of all which God has made.
+ - The Water Babies “Young and Old” When all the world is young, lad, And all the trees are green; And every goose a swan, lad, And every lass a queen; Then hey for boot and horse, lad, And round the world away: Young blood must have its course, lad, And every dog his day.
+ - Do noble things, not dream them all day long: And so make Life, Death, and the vast Forever one grand, sweet song.
+ - The Invitation, To Tom Highes What we can we will be, Honest Englishmen. Do the work that’s nearest, Though it’s dull at whiles, Helping, when we meet them, Lame dogs over stiles.
+ - Gradually the sunken land begins to rise again, and falls perhaps again, and rises again after that, more and more gently each time, till as it were the panting earth, worn out with the fierce passions of her fiery youth, has sobbed herself to sleep once more, and this new world of man is made.
+ - All who have travelled through the delicious scenery of North Devon must needs know the little white town of Bideford, which slopes upwards from its broad tide-river paved with yellow sands, and many-arched old bridge, where salmon wait for Autumn floods, toward the pleasant upland on the west.
+ - If you wish to be like a little child, study what a little child could understand – nature; and do what a little child could do – love.
+ - In proportion as man gets back the spirit of manliness, which is self-sacrifice, affection, loyalty loan idea beyond himself, a God above himself, so far will he rise above circumstances, and wield them at his will.
+ - Music has been called the speech of the angels; I will go farther and call it the speech of God Himself.
+ - Wherever is love and loyalty, great purposes and lofty souls, even though in a hovel or a mine, there is fairyland.
+ - Study nature as the countenance of God.
+ - Pain is no evil, unless it conquers us.
+ - There are more ways of killing a cat than choking it with cream.
+ - It is only the great hearted who can be true friends. The mean and cowardly, Can never know what true friendship means.
+ - There will be no true freedom without virtue, no true science without religion, no true industry without the fear of God and love to your fellow citizens.
+ - Still the race of hero spirits pass the lamp from hand to hand.
+ - Every winter, When the great sun has turned his face away, The earth goes down into a vale of grief, And fasts, and weeps, and shrouds herself in sables, Leaving her wedding-garlands to decay- Then leaps in spring to his returning kisses.
+ - You must not talk about ‘ain’t and can’t’ when you speak of this great wonderful world round you, of which the wisest man knows only the very smallest corner, and is, as the great Sir Isaac Newton said, only a child picking up pebbles on the shore of a boundless ocean.
+ - For to be discontented with the divine discontent, and to be ashamed with the noble shame, is the very germ and first upgrowth of all virtue.
+ - Be good, sweet maid, and let who will be clever.
+ - Cheerfulness is full of significance: it suggests good health, a clear conscience, and a soul at peace with all human nature.
+ - Do noble things, not dream them all day long.
+ - In the four hundred and thirteenth year of the Christian era, some three hundred miles above Alexandria, the young monk Philammon was sitting on the edge of a low range of inland cliffs, crested with drifting sand.
+ - Tis the hard grey weather Breeds hard English men.
+ - Do you think that a man is renewed by God’s Spirit, when except for a few religious phrases, and a little more outside respectability, he is just the old man, the same character at heart he ever was?
+ - Have thy tools ready. God will find thee work.
+ - Three fishers went sailing away to the west, Away to the west as the sun went down; Each thought on the woman who loved him the best, And the children stood watching them out of the town.
+ - The most wonderful and the strongest things in the world, you know, are just the things which no one can see.
+ - Are gods more ruthless than mortals? Have they no mercy for youth? no love for the souls who have loved them?
+ - Do not fancy, as too many do, that thou canst praise God by singing hymns to Him in church once a week, and disobeying Him all the week long. He asks of thee works as well as words; and more, he asks of thee works first and words after.
+ - A garden, sir, wherein all rainbows and flowers were heaped together.
+ - Except a living man there is nothing more wonderful than a book! A message from the dead – from human souls we never saw, who lived, perhaps, thousands of miles away. And yet these, in those little sheets of paper, speak to us, arouse us, terrify us, comfort us, open their hearts to us as brothers.
+ - The world goes up and the world goes down, the sunshine follows the rain; and yesterday’s sneer and yesterday’s frown can never come over again.
+ - Young blood must have its course, lad, and every dog its day.
+ - Ay, marriage is the life-long miracle, The self-begetting wonder, daily fresh.
+ - The loveliest fairy in the world; and her name is Mrs Do as you would bed one by.
+ - I go at what I have to do as if there were nothing else in the world for me to do.
+ - Therefore, let us be patient, patient; and let God our Father teach His own lesson, His own way. Let us try to learn it well and quickly; but do not let us fancy that He will ring the school-bell, and send us to play before our lesson is learnt.
+ - Possession means to sit astride the world Instead of having it astride of you.
+ - All but God is changing day by day.
+ - It’s all in the day’s work, as the huntsman said when the lion ate him.
+ - Every duty which is bidden to wait returns with seven fresh duties at its back.
+ - Toil is the true knight’s pastime.
+ - For men must work and women must weep, And the sooner it’s over, the sooner to sleep.
+ - Nothing that man ever invents will absolve him from the universal necessity of being good as God is good, righteous as God is righteous, and holy as God is holy.
+ - Nothing is so infectious as example.
+ - Do what thou dost as if the earth were heaven, and thy last day the day of judgment.
+ - You are not very good if you are not better than your best friends imagine you to be.
+ - Give me something huge to fight, – and I should enjoy that – but why make me sweep the dust?
+ - Duty – the command of heaven, the eldest voice of God.
+ - I do not see why we should not be as just to an ant as to a human being.
+ - Love is sentimental measles.
+ - We ought to reverence books; to look on them as useful and mighty things. If they are good and true, whether they are about religion, politics, farming, trade, law, or medicine, they are the message of Christ, the maker of all things – the teacher of all truth.
+ - Depend upon it, a man never experiences such pleasure or grief after fourteen years as he does before, unless in some cases, in his first lovemaking, when the sensation is new to him.
+ - How long would it take a school-inspector of average activity to tumble head over heels from London toYork?
+ - It is not darkness you are going to, for God is Light. It is not lonely, for Christ is with you. It is not unknown country, for Christ is there.
+ - This is the feeling that gives a man true courage-the feeling that he has a work to do at all costs; the sense of duty.
+ - We have used the Bible as if it were a mere special constable’s handbook, an opium dose for keeping beasts of burden patient while they are overloaded.
+ - No earnest thinker is a plagiarist pure and simple. He will never borrow from others that which he has not already, more or less, thought out for himself.
+ - Look at the bow in the cloud, in the very rain itself. That is a sign that the sun, though you cannot see it, is shining still – that up above beyond the cloud is still sunlight and warmth and cloudless blue sky.
+ - The righteousness which is by faith in Christ is a loving heart and a loving life, which every man will long to lead who believes really in Jesus Christ.
+ - Nature’s deepest laws, her own true laws, are her invisible ones.
+ - What I want is, not to possess religion, but to have a religion that shall possess me.
+ - I hope that my children, at least, if not I myself, will see the day when ignorance of the primary laws and facts of science will be looked upon as a defect only second to ignorance of the primary laws of religion and morality.
+ - If thou art fighting against thy sins, so is God. On thy side is God who made all, and Christ who died for all and the Spirit who alone gives wisdom, purity, and nobleness.
+ - He was not only, I soon discovered, a water drinker, but a strict vegetarian, to which, perhaps, he owed a great deal of the almost preternatural clearness, volubility, and sensitiveness of mind.
+ - The health of a church depends not merely on the creed which it professes, not even on the wisdom and holiness of a few great ecclesiastics, but on the faith and virtue of its individual members.
+ - All the butterflies and cockyolybirds would fly past me.
+ - We shall be made truly wise if we be made content; content, too, not only with what we can understand, but content with what we do not understand-the habit of mind which theologians call, and rightly, faith in God.
+ - If I am ever obscure in my expressions, do not fancy that therefore I am deep. If I were really deep, all the world would understand, though they might not appreciate. The perfectly popular style is the perfectly scientific one. To me an obscurity is a reason for suspecting a fallacy.
+ - If you do anything above party, the true hearted ones of all parties sympathize with you.
+ - I am not aware that payment, or even favors, however gracious, bind any man’s soul and conscience in questions of highest morality and highest importance.
+ - Love can make us fiends as well as angels.
+ - He was one of those men who possess almost every gift, except the gift of the power to use them.
+ - The world is God’s world, after all.
+ - Our wanton accidents take root, and grow To vaunt themselves God’s laws.
+ - Truth, for its own sake, had never been a virtue with the Roman clergy.
+ - And what is the joy of Christ? The joy and delight which springs forever in His great heart, from feeling that He is forever doing good; from loving all, and living for all; from knowing that if not all, yet millions on millions are grateful to Him, and will be forever.
+
+101 quotes

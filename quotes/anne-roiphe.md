@@ -1,0 +1,45 @@
+ - Grief is in two parts. The first is loss. The second is the remaking of life.
+ - God is a God of Lovingkindness.
+ - A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.
+ - I feel that the world needs writers. We need to know what’s really going on.
+ - People always tell me either A. you love him. B. you hate him. My usual answer? C. All of the above.
+ - You really can’t say things that upset someone in print and expect them to be nice and leave you their money. That’s just not reasonable.
+ - If I were planning to be stranded on a desert island, I wouldn’t take Freud’s books with me, because I’ve already read them all.
+ - You have to have a certain kind of thickening of the hide. I mean, I’m not particularly worried about what other people think. If other people think that I was not the world’s most perfect mother, they are completely right.
+ - It is hard to hold on to friendships when people move away to another state or to another world.
+ - Sometimes what we call love is just a settling of old scores, or a seeking of forbidden pain, or a circuitous path to the kingdom of cruelty, or she may simply have confused lack of capital with heroism while searching for rescue without knowing from what.
+ - People always think their world is coming to an end if they’re exposed, and of course it isn’t coming to an end; it goes right on exactly the way it always was.
+ - I’ve told the same story twelve different ways, but I think that’s just part of what writers do. Once may not be enough.
+ - You need your freedom. You need to be able to do what you want to do as a journalist, as a person who’s speaking for other women as you speak for yourself, and you make a choice. You have to be tough enough to take the consequences of that choice.
+ - I know that family life in America is a minefield, an economic trap for women, a study in disappointment for both sexes.
+ - One of the things about parents and children is that there is no way that you go through this without there being mutual anger.
+ - What other people think of me is not really my major concern in life. What other people think of what I write is another matter.
+ - A person who has no secrets is a liar. We always fold ourselves away from others just enough to preserve a secret or two, something that we cannot share without destroying our inner landscape.
+ - We also have to make sure our children know the history of women. Tell them the rotten truth: It wasn’t always possible for women to become doctors or managers or insurance people. Let them be armed with a true picture of the way we want it to be.
+ - I am not a perfect friend, and it is impossible not to rebuff or be rebuffed if you move about the world.
+ - Self-pity is never useful. It tends to distort like a fun-house mirror.
+ - We have to recognize that it is a very, very painful thing for people to be exposed to their social community, to be exposed in the world, as not what they would have wanted to be seen as. This is very painful and difficult for people.
+ - Some people who think they are in unhappy marriages are just in unhappy bodies.
+ - I really consider myself a writer, and a writer who is sometimes a social critic. I’m not an ideologue, I don’t join a party. I follow along and take notes. Sometimes I throw in my two cents.
+ - Is it possible that my sons-in-law will do toilets? If we raise boys to know that diapers need to be changed and refrigerators need to be cleaned, there’s hope for the next generation.
+ - I would prefer you not to say, “That was the most terribly written piece I’ve ever read.” That would hurt me. But you don’t think I’m the best person in the world? Well, alright.
+ - When I grew up, you needed to have straight hair. It’s symbolic of needing to be like everyone else, needing to look like everyone else. And what that meant was looking like the dominant ruling class in America.
+ - Everybody is bound by some social rules. But I think that artists need some kind of freedom to explore their minds and that some of them tend to take that freedom to live a little more openly or a little more dangerously, sometimes a lot more self-destructively, than other people.
+ - You have to be a lover of books without expecting more of them than they give – a little pleasure, a little insight, a moment of escape, a deepening of your own humanity. Not much else.
+ - I think our material is our lives. That’s part of being a modern writer, and we have to use it.
+ - I think that certainly the artists of the ’40s, ’50s and ’60s were fighting a very conformist society, which didn’t give them enough space to live or create, and they were bucking all kinds of spoken and unspoken rules.
+ - Many writers do write about their families and their immediate loved ones and love experiences, either as children or as adults. And very often people get offended by it.
+ - Friendship needs both confidences and confidence in the other’s outstretched hand.
+ - You can be creative and not addictive, or addictive and not creative. Most addicted people do not produce anything of remarkable note.
+ - Reader, you forget that economics precedes religion; worship grew out of eating, not the other way around.
+ - They want to play at being mothers. So let them. Expressing tenderness in their own way will not prevent girls from enjoying a successful career in the future; indeed, the ability to nurture is as valuable a skill in the workplace as the ability to lead.
+ - We were not always 70, or rather our 70 is an accumulation of all the other ways we were. Our 5-year-old selves became our 10-year-old selves, and so on and on; and if we unpack our selves, the full album appears. Every moment is a part of the following moment, and we are all a continuum.
+ - I don’t really think it comes as a shock to every writer if somebody in their family is mad at them. Yes, it’s very upsetting. But it’s inherent in the process of trying to make sense of one’s life, which is what I think is perhaps at the bottom of writing at all.
+ - I believe that it is our human right to be parents and women. And there’s no contradiction between feminism, which means women should have all that they are entitled to, all that they can do, all the opportunities that they can take advantage of they should have.
+ - It’s true, we tend to write about the same thing over and over again because this is our trauma. If I had been in World War II, I might have been writing about D-Day over and over again.
+ - We flashed our feathers when the feathers were fit to be flashed, and now, in drearier days, many stay indoors.
+ - Decay is quiet but ghastly, explosion is dramatic and dreadful. There’s not much to choose between the two of them in reality, and most of our lives have sufficient of both.
+ - Romanticizing the act of writing or any other art is not very helpful to the artist or the art. It’s much better if one simply does.
+ - I have two writer daughters, and a psychoanalyst daughter, and a lawyer daughter, and they wish we didn’t write, I’m sure, but we write. If we were a painting family, we would paint.
+
+43 quotes

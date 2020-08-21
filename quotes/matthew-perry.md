@@ -1,0 +1,76 @@
+ - My favorite six words in recovery are: trust God, clean house, and help others.
+ - Like, my house has a nice view, because, you know, I was on ‘Friends.’
+ - There’s nothing better than a world where everybody’s just trying to make each other laugh.
+ - I really lived life to its fullest and that got me in trouble from time to time.
+ - I’m making plans to go away for a month to focus on my sobriety and to continue my life in recovery. Please enjoy making fun of me on the world wide web.
+ - There are two ways to go when you hit that crossroads in your life: There is the bad way, when you sort of give up, and then there is the really hard way, when you fight back. I went the hard way and came out of it okay. Now, I’m sitting here and doing great.
+ - The goal is to have to do the shot again because the camera guy shook a little bit as he was laughing. Without that happening, I’m not happy because there’s nothing better for me than a world that everybody’s just trying to make each other laugh.
+ - I learned a valuable lesson doing ‘Mr. Sunshine,’ which is that I didn’t want to be in charge because it’s too much. Being in charge and acting in every scene was just too difficult. It’s like eating dinner in a moving golf cart every night.
+ - I need a woman to have a quirky sense of humor. There’s a bunch of jokes I use, and if she doesn’t get them, she’s probably not for me.
+ - A lot of people think that addiction is a choice. A lot of people think it’s a matter of will. That has not been my experience. I don’t find it to have anything to do with strength.
+ - There are two sides to being pigeonholed. There’s, ‘Oh, no, I’m going to be Chandler for the rest of my life,’ but there’s also the fact that getting to play Chandler opened up doors to me. It’s now my job to find things that shake it up a little bit.
+ - The thing is, if I don’t have sobriety, I don’t have anything.
+ - As for my personal life, I’d love to start a family of my own. I think I’d make a great dad, and I think shortly I would make a great husband.
+ - So I’m reading a book on my new iPad, but can’t the iPad read it for me? Do I have to do everything?
+ - I’m a sensitive guy. If you are a woman and you’re in any kind of emotional duress and you write a song about it, I’ll buy you album.
+ - I learned to fall down early in life – I was like six – because I realized it was a way to make girls laugh.
+ - If there’s a silence in a room I’ll try to fill it as soon as humanly possible.
+ - In high school, my prom date fooled around with another guy – on prom night!
+ - In a perfect world, my tennis game gets better. I have kids and a beautiful wife and live on some hill somewhere that’s not in Los Angeles. And the script that Tom Hanks just barely turned down gets in my hands.
+ - I certainly like the rumour that I was the father of Elizabeth Hurley’s baby. It made me think I could impregnate women in a different way to everyone else. Elizabeth and I were never alone in a room together, so I must be a very powerful man indeed. Actually, I’m thinking of suing the baby!
+ - I would like you all to give me a round of applause as I have not crashed my car in over 15 months.
+ - My sense of style is an old Polo shirt, jeans and, unfortunately for the longest time, white running shoes, which was not attractive. The one thing I’ve learned about clothes is to ask a girl.
+ - I have what I like to call a ‘chinneck.’ My chin just flows rather easily into my neck.
+ - In television or a movie I bring my own ego and consequently can mess up. In the theatre I learnt very quickly to shut up and listen. Now I am able to get out of my own way.
+ - Women always think that I’m Chandler, so if I don’t joke around for half an hour they think that something’s wrong. Then I explain that I don’t have comedy writers scripting everything I’m saying at this particular dinner.
+ - I went to a high school that didn’t have many people in it. There were, like, 60 people in my senior class. There was a group of cool kids and a group of really dorky kids, and I was probably the coolest of the really dorky kids.
+ - I grew up babysitting and always enjoyed it. I love family. A couple of my closest friends have kids, and I’m their godfather, and that’s one of my greatest pleasures in life, just picking them up from school and hanging out with them.
+ - As an actor, being on autopilot is the worst thing possible.
+ - The key to sitcom success is miserable people. If you see a happy couple, it’s just gone, like when Sam and Diane got together on Cheers.
+ - If I could walk into the ‘Friends’ audition again and go or not go, I have to say it’s 50-50.
+ - I never really thought of myself as a physical comedian. But when I was a kid, I used to, you know, pretend to trip over things to make girls laugh in school and stuff like that. So I kind of learned how to fall without hurting yourself.
+ - I’m very, very jealous of guys who just go and decide to party and then can work the next day.
+ - Well, I was lucky enough to be involved in about 19 failures at an early age, so I’m realistic about the success I’m having and how quickly it can go away. What’s important is to be smart about it.
+ - I gravitate towards sort of broken characters who try to be better people.
+ - I’m just glad that the whole John Wayne persona of a man is sort of old school now, because I’d never be able to do that. If that was the going rate today, I wouldn’t be working.
+ - I’ve been accused of not really paying attention to a sentence unless my name comes up in it twice.
+ - I’d say that on ‘Friends’ my character was the guy bouncing around the room. I’m no longer that guy, necessarily, in my life. I used to be. But I’m not now.
+ - I got sober because I was worried I was going to die next year.
+ - I have never really lived with anyone in my adult years. I just read my sports ticker. And 50 Shades of Grey.
+ - I think we need to educate our doctors about addiction.
+ - I have a well-documented history of trouble with intimacy.
+ - I don’t need to be reminded that I was on ‘Friends.’ I remember – some of it, anyway.
+ - After I got my first laugh on stage, I was hooked.
+ - I know Chandler is similar to me. But if you watched my life for a week, there would be many more boring parts.
+ - I used to be a real prince charming if I went on a date with a girl. But then I’d get to where I was likely to have a stroke from the stress of keeping up my act. I’ve since learned the key to a good date is to pay attention on her.
+ - I don’t have a very ‘masculine’ taste in music. I get a lot of heat from my friends about that.
+ - I’m glad that life isn’t like a Christmas song, because if my friends and I were building a snowman and it suddenly came alive when we put a hat on it, I’d probably freak and stab it to death with an icicle.
+ - My feeling on therapy is it’s a luxury, and if you’re fortunate enough to get some smart people to talk to about life, then that’s fortunate and you should go for it.
+ - I have a huge interest in hockey because I grew up in Canada, where it’s kind of the law that you love hockey.
+ - It’s not foreign for me to be talking about my problems in circles.
+ - I used to believe in a “Ms. Right”, but now i know there is like 4 million “Ms. Rights” and it is just a matter of which one you meet first.
+ - I loved playing Chandler. I grew up playing that part.
+ - If I hadn’t had the experience of being famous, I would have searched for it my whole life. I would have just gone on and on trying to find it.
+ - I’ve been on a show before where I was on a billboard and then, after like three or four weeks, they took the billboard down and replaced it with nothing. Took my face down and put a white board up.
+ - I love the idea of ‘the one’ but I actually believe that there isn’t a Miss Right. There are 12,000 Miss Rights out there and it’s all timing.
+ - I play a guy who is 40. And I am a very good actor, because I’m 41.
+ - I would always be the kid that got in trouble in school, that’s for sure, for joking around.
+ - I was a guy who wanted to become famous. There was steam coming out of my ears, I wanted to be famous so badly. You want the attention, you want the bucks, and you want the best seat in the restaurant. I didn’t think what the repercussions would be.
+ - I used to spend a lot of time just thinking about myself, thinking that the party started when I showed up.
+ - Chandler’s the guy everybody thinks will do well with women, but he thinks too much and says the wrong thing.
+ - To be a comedian, you have to have some darkness behind it. I certainly draw on my past, and it helps.
+ - I became a big Kings fan, and then later on my hometown of Ottawa got a team, so then I was very, very torn. I just love both of those teams very much.
+ - I think if you look back at all those great comedies on television in the past, it’s all lovable losers that gathered together – ‘Taxi’ and ‘Cheers,’ ‘Seinfeld’ and ‘Friends.’
+ - It’s tough to have a movie-star persona when you’re on a show as successful as ‘Friends.’
+ - When I was younger, I used humour as a tool to avoid getting too serious with people – if there was deep emotional stuff going on, then I would crack a joke to defuse the situation.
+ - I can tell if someone is talking to me because I’m on ‘Friends’ or cause they just think I’m neat. You know I don’t think I’ve ever spent more than five or ten minutes with somebody who was ogling me because they recognized me from the show.
+ - Ninety percent of video game AI really is pretty damn bad. I think that’s actually why it’s so much fun to shoot things. Because the AI is so bad and the characters are so annoying.
+ - I am fine with the fact that some of my hair is gray. If it was all gray overnight, that would be a scary thing.
+ - Nine times out of 10, women don’t want to fix a problem, they just want to be understood. I’ll never get that.
+ - To me, writing is remembering something funny that happened, or maybe something I said seven years ago.
+ - The funniest thing is when somebody says “Look I’ve no idea who you are but my friend said you are on a show and I just wanted to introduce myself” you know that they are lying! Those people can just get out of my way.
+ - They say that women like a man who can make them laugh, and I find that if you can make a woman laugh on the first and second dates, then you’re doing well.
+ - I always have the same thing – which is the fear of not getting a laugh – that I’ve had from the time I was a kid; obsessing over, ‘This joke doesn’t quite work, we’ve got to get this right.’ I was always like that, whether I was a member of a six-person ensemble or whether I’m the center of a show.
+ - The thing that I’m most proud of in my life is that if a stranger came up to me and said, ‘I can’t stop drinking. I can’t stop drinking. Can you help me?’ I can say, ‘Yes, I can help you.’
+
+74 quotes

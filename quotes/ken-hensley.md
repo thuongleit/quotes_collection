@@ -1,0 +1,22 @@
+ - I always write lyrics first and the rhythm and the melody come from the lyrics. It always comes from the lyrics: words have rhythm and words have melody.
+ - I know why I am here and my only real focused goal is to live each day to the fullest and to try and honor God and be an encouragement to others. What the future holds is firmly in God’s hands, and I am very happy about that!
+ - It is hard to understand addiction unless you have experienced it.
+ - I have never learned to read or write music so I am not a virtuoso musician like the others you mentioned. I am completely unable to play like them because I never learned classical music, I just developed my own crazy style!
+ - The past has infinite value if one learns from it.
+ - When I left HEEP I didn’t know what I wanted! It took me a long time to adjust to life away from the band and the only thing I knew was that I didn’t want to repeat my mistakes!
+ - All of us would like for everybody to be the kind of person we want them to be.
+ - There is a great temptation with songs, melodies and lyrics to overcomplicate them but in fact, you find that the most enduring melodies are often the simplest.
+ - If you want to capitulate to what commercial needs are, you can always be commercially valuable, but I’m not interested in being that.
+ - It is always encouraging and kind when people say nice things about my work but I know that it is not me that did it then and it is not me that is doing it now. It is God living in me and for that I will always be grateful.
+ - I didn’t know that you were supposed to tune the guitar to an open chord, and I learned to play slide with a normal tuning. I think it’s a little more melodic that way and doesn’t sound so bluesy. Of course, if I could play like David Lindley or Ry Cooder, I’d be a happy man!
+ - Visible Faith is an expression of my Christian faith which must be visible to be real! I gave the name to the collection of musicians who worked with me on the record.
+ - I am, first of all, a Christian and, secondly, a person with very very serious personal opinion, so I’m motivated by many many things and, certainly, not by the need or desire to satisfy other people’s ideas of who I am.
+ - When we were making vinyl records we had a lot of time limitations for each record so songs were left off for a number of reasons. Now, with CDs, much more music can be included.
+ - It was both exciting and frustrating to work with an orchestral group.
+ - I lived in an area where there were a lot of rock musicians, and we got together regularly in our studios.
+ - I actually never knew Peter Green but I do respect his early work very much.
+ - The band projects just took natural priority. I didn’t really have a solo career, just wanted to share the music in another way and to learn more about writing, recording, etcetera.
+ - THE GODS was my first professional band and I learned a lot during that time. It was very cool playing with so many great musicians as it helped me to learn.
+ - People often forget this – a vinyl album could only contain a maximum of 20 minutes per side!
+
+20 quotes

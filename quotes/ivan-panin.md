@@ -1,0 +1,49 @@
+ - To go through life without love is to travel through the world in a carriage with closed windows.
+ - The best excuse is to have none.
+ - A half-truth does more mischief than a whole lie.
+ - Doubt is the tax man pays for the luxury of useless knowledge.
+ - History is not fable agreed upon, but truth disagreed upon.
+ - The wise man hath his thoughts in his head; the fool, on his tongue.
+ - For every beauty there is an eye somewhere to see it. For every truth there is an ear somewhere to hear it. For every love there is a heart somewhere to receive it.
+ - Life is not meant to be hard: if it is, we make it so.
+ - As the sea is beautiful not only in calm but also in storm, so is happiness found not only in peace but also in strife.
+ - It is not the roaring thunder that smites, but the silent lightning.
+ - Love has the face of a goddess, but the talons of a lion.
+ - As long as I fear my weakness, I am stronger than when I trust my strength.
+ - For misdirected love, the attainment of its object is, indeed, the best cure; but it cures as the guillotine cures headache.
+ - The furnace which melts gold, also hardens clay. Before blaming thy fate, therefore, find whether thou art gold or clay.
+ - It may be true that love is blind, but only for what is ugly: its sight is keen enough for what is beautiful.
+ - Though my sight be lost, I do not yet lose my faith: when I can no longer see, I can still believe.
+ - What we know is to what we do not know, as a grain of sand is to the beach.
+ - The small charity that comes from the heart is better than the great charity that comes from the head.
+ - How adversity doth ope the eye! A moon can be seen by day as well as by night; but, to see the stars, you must be in darkness.
+ - If silence is good for the wise, how much better is it for the foolish!
+ - Better to deserve praise without having it, than to have it without deserving it.
+ - Experience, if we only learn by it, is cheap at any price.
+ - As you do not sweeten your mouth by saying honey, so you do not grow virtuous by merely talking of virtue.
+ - Whether I shall be unfortunate depends also on others; whether I shall be unhappy depends only on myself.
+ - We are not men, but promises of men.
+ - Gossip is putting two and two together, and making it five.
+ - Love is not like the echo, which returneth only what is given; but, rather, like the pump, which returneth by the pail what it received by the pint.
+ - From the moment we expect gratitude, we forfeit it.
+ - For every beauty there is an eye somewhere to see it.
+ - As the paper though it entereth the press white, yet when it cometh forth black is eagerly sought to be perused; so do thou let thy life, though darkened by adversity, be made all the more useful to thy fellows.
+ - Of the future, man knows least; yet, about this, he worries most.
+ - If you must hate a man for the many things about which you disagree, remember that you should also love him for the many things about which you agree.
+ - However bad a man, he will have some friends: however good, he will have some enemies.
+ - Few can tell what they know without also showing what they do not know.
+ - Experience is the only good ’tis safer to borrow than to buy.
+ - Hast thou fallen? Do not groan and lament: rather be thankful for the opportunity given thee to rise once more.
+ - The danger from lightning is gone when the thunder is heard, and the worst is over when misfortune has arrived.
+ - To go into temptation to find how strong you are, is as wise as to go before a mirror, with closed eyes, to find how you look when asleep.
+ - Let not adversity oppress thee: be rather like unto the nail; the farther ’tis hammered, the firmer it holds.
+ - Our comforts come from God; our sorrows, from ourselves.
+ - Men’s eyes are in their heads; women’s, in their hearts.
+ - The best way to deceive a knave is to tell him the truth.
+ - Men are willing to admit that they are sinners, but not that they are sinning.
+ - Solve the problem of life? Live, and you solve it.
+ - The best life is that which makes the best of life.
+ - The wealthy seldom possess wealth: oftener they are possessed by it.
+ - It needs as much generosity to take as to give.
+
+47 quotes

@@ -1,0 +1,55 @@
+ - Things come apart so easily when they have been held together with lies.
+ - Two or three things I know, two or three things I know for sure, and one of them is that to go on living I have to tell stories, that stories are the one sure way I know to touch the heart and change the world.
+ - Two or three things I know for sure, and one of them is the way you can both hate and love something you are not sure you understand.
+ - I was born trash in a land where the people all believe themselves natural aristocrats.
+ - I have a terrible memory.
+ - I don’t believe that there is any true friendship without a bond of honor, and the honor in friendship is the respect you give the other that she also gives you.
+ - My heart broke all over again. I wanted my life back, my mama, but I knew I would never have that. The child I had been was gone with the child she had been. We were new people, and we didn’t know each other anymore. I shook my head desperately.
+ - Beauty, my first girlfriend said to me, is that inner quality often associated with great amounts of leisure time.
+ - Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I’ll be naked for you. It will be our covenant.
+ - Beauty is a hard thing. Beauty is a mean story. Beauty is slender girls who die young, fine-featured delicate creatures about whom men write poems. Beauty, my first girlfriend said to me, is that inner quality often associated with great amounts of leisure time. And I loved her for that.
+ - I do not write about nice people. I am not nice people.
+ - If I could have found what I needed at thirteen, I would not have lost so much of my life chasing vindication or death. Give some child, some thirteen-year old, the hope of the remade life. Tell the truth. Write the story that you were always afraid to tell. I swear to you there is magic in it.
+ - That was what gospel was meant to do – make you hate and love yourself at the same time, make you ashamed and glorified.
+ - Piece by piece, my mother is being stolen from me.
+ - I am the only one who can tell the story of my life and say what it means.
+ - I need you to do more than survive. As writers, as revolutionaries, tell the truth, your truth in your own way.
+ - When I was growing up, I always read horror books, while my sister read romance novels.
+ - Change, when it comes, cracks everything open.
+ - Women lose their lives not knowing they can do something different. Men eat themselves up believing they have to be the thing they have been made. Children go crazy. Really, even children go crazy, believing the shape of the life they must live is as small and mean and broken as they are told.
+ - The horror of class stratification, racism, and prejudice is that some people begin to believe that the security of their families and communities depends on the oppression of others, that for some to have good lives there must be others whose lives are truncated and brutal.
+ - It’s fun to tease people about where fiction and life intersect.
+ - I did things I did not understand for reasons I could not begin to explain just to be in motion, to be trying to do something, change something in a world I wanted desperately to make over but could not imagine for myself.
+ - Writing is the only way I know to demand justice from an uncaring universe.
+ - Life ain’t the movies.
+ - One of the strengths I derive from my class background is that I am accustomed to contempt.
+ - Two or three things I know for sure, and one of them is that if we are not beautiful to each other, we cannot know beauty in any form.
+ - Teenagers are free verse walking around on two legs.
+ - I did not begin with craft, I began with strong feelings and worked toward craft.
+ - I can’t write what I don’t believe in.
+ - I put on the page a third look at what I’ve seen in life – the reinvented experience of a cross-eyed working-class lesbian, addicted to violence, language and hope, who has made the decision to live, is determined to live, on the page and on the street, for me and mine.
+ - Why write stories? To join the conversation.
+ - And while it is true that I got the best woman in the world, I don’t think love saves you.
+ - I think I would have died if there hadn’t been the women’s movement. It gave me a vision that I could do something different, and it gave me an understanding that I wasn’t a monster, or sport, or a betrayer of my family.
+ - What’s the best thing you can do for your writing? Construct a boring life.
+ - I have wanted everything as a writer and a woman, but most of all a world changed utterly by my revelations.
+ - Don’t go taking that gospel stuff seriously. It’s nice to clean you out now and then, but it ain’t for real. It’s like bad whiskey. Run through you fast and leave you with pain.
+ - I think I would have died if there hadn’t been the women’s movement.
+ - Gravy is the simplest, tastiest, most memory-laden dish I know how to make: a little flour, salt and pepper, crispy bits of whatever meat anchored the meal, a couple of cups of water or milk and slow stirring to break up lumps.
+ - The only magic we have is what we make in ourselves, the muscles we build up on the inside, the sense of belief we create from nothing.
+ - The bottom line is I’m writing to save the dead. I’m writing to save the people I have lost, some of whose bodies are still walking around.
+ - I’m still very blunt: If you want to be a writer, get a day job. The fact that I have actually been able to make a living at it is astonishing.
+ - I claimed myself and remade my life.
+ - Babies change things, open doors you thought were shut, close others. Make you into something you never been.
+ - I’ll tell you the secret. When you begin with a character, you want to begin by creating a villain.
+ - If you just go get one of these little fine arts degrees or writing program degrees, it never forces you to confront your responsibility as narrator, whereas any of the social sciences make you at look the interaction between the storyteller and story.
+ - I tell my students you have an absolute right to write about people you know and love. You do. But the kicker is you have a responsibility to make the characters large enough that you will not have sinned against them.
+ - It’s important to set challenges that you’re not sure you’re equal to.
+ - People don’t do right because of the fear of God or love of him. You do right because the world doesn’t make sense if you don’t.
+ - Twenty years after we had left so fierce and proud, we were all right back where we had started, yoked to each other and the same old drama.
+ - People begin to write in order to create what they have not found and, a little bit, to give something back.
+ - Every kid I meet who’s a reader has got something like that, their fantasy world. And science fiction is the best, especially for girls because it’s the one place where you can do the forbidden.
+ - Mama learned to laugh with them, before they could laugh at her, and to do it so well no one could be sure what she really thought or felt.
+ - It ain’t that you get religion. Religion gets you and then milks you dry. Won’t let you drink a little whiskey. Won’t let you make no fat-assed girls grin and giggle. Won’t let you do a damn thing except work for what you’ll get in the hearafter. I live in the here and now.
+
+53 quotes

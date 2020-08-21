@@ -1,0 +1,30 @@
+ - If you are serious, don’t play with my heart, it makes me furious.
+ - I owe it all to Jesus.
+ - Every morning I wake up and thank God.
+ - If you want something to play with go find yourself a toy, baby, my time is too expensive and I’m not a little boy.
+ - It’s a 360-degree sound experience. Like you’re in the middle of the band. A lot of people have the technology to play the format, so why not put it out there. It sounds great.
+ - So I went in front of the judge, and I had my St. Jude prayer book in my pocket and my St. Jude medal. And I’m standing there and that judge said I was found guilty, so he sentenced me to what the law prescribed: one to 14 years.
+ - Don’t be ashamed to let your conscience be your guide.
+ - I really like listening to music in my car.
+ - If you had told me I’d be making 62 tomorrow, I’d say you were lying.
+ - Growing up my mother played Sarah Vaughan and Nat Cole in the house regularly.
+ - I’ve been in some beautiful places, but the prettiest sight is flying back to New Orleans. Being able to look down and say, ‘I know where I am now.’
+ - I feel it was just a few years ago I was running around in short pants.
+ - Sometimes I sing along in the car, if something good is playing like Marvin Gaye.
+ - When you were a kid, a day was a long time and a year was a long time.
+ - I think things happened the way they did for a reason.
+ - My voice belongs to me, from God. People will comment, “Your voice helped me through.” Maybe it’s God in me, because I don’t take credit for that.
+ - Until I went to rehab, I didn’t understand what it did.
+ - So now I have a collection of poetry by Aaron Neville and I give it to people I want to share it with. I’d like to publish it someday.
+ - At dances when I was a little kid, Art would be up there singing while I’d be dancing with some girl a foot taller than me.
+ - I was raised Catholic, but my father’s people were Methodist, so we went to both churches.
+ - The extras are a nice bonus feature, but the main incentive is the musical experience.
+ - My friends and I were wild and we liked to joy-ride.
+ - I sing around the house, in the shower.
+ - When I record something, I’ll take a drive and just listen.
+ - Me and my partners had been stealing cars for a while.
+ - I always loved Sam Cooke, because he seemed very versatile. He sang gospel, soul, blues, pop music.
+ - It’s a thanksgiving to God. It’s something I have wanted to do for a long time, but the record company wasn’t ready for it. So I did it myself.
+ - I was very surprised when I heard that I had been chosen to receive the James Cardinal Gibbons Award.
+
+28 quotes

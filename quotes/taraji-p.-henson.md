@@ -1,0 +1,37 @@
+ - At the end of the day, I stand by who I am. I’m a good person.
+ - Love is the greatest gift that God has given us. It’s free.
+ - Every human walks around with a certain kind of sadness. They may not wear it on their sleeves, but it’s there if you look deep.
+ - If I were to meet the most incredible man, and he just so happened to not make as much money as I do, I wouldn’t hold it against him.
+ - A lot of times characters are combinations of people I come across in life. I people-watch a lot.
+ - Humans have a light side and a dark side, and it’s up to us to choose which way we’re going to live our lives. Even if you start out on the dark side, it doesn’t mean you have to continue your journey that way. You always have time to turn it around.
+ - Date a woman with children only if you are ready to man up, because it’s a position that comes with responsibility.
+ - I’m constantly proving myself. I have to always prove myself. There are roles where I feel like, “That should have been a straight offer. Why am I having to call my people and fight for it?”
+ - I like to be scared. I don’t like feeling like “Oh, this is going to be a walk in the park”. If I ever get to that place, I’ll just stop acting.
+ - A woman is gentle, soft, delicate, and a man’s position is to protect her, help her up stairs, make sure she’s in the car safely first. Take good care of your woman, and the sky’s the limit!
+ - It’s up to you to be responsible for how you feel if you’re not happy. Your happiness lies in your hands. You can’t rely on a man to make you happy or complete you. That starts with you.
+ - You could be laughing one day about the same issues that you’re crying about the next day, so that’s life.
+ - Sometimes you have to say the words exactly how they are on the page, but sometimes when you improv, it only helps to get across what’s on the page, and I just love working with directors who allow that.
+ - Once you’re a mom, always a mom. It’s like riding a bike, you never forget.
+ - I love the art of acting, so I don’t care if I’m in a movie with 10 people, two people, or by myself. I just really enjoy it.
+ - On my iPad, and I’m quite a fool for this, but I use Post-It notes to cover up the camera. It’s just weird with that little eye there and sometimes it’ll be green and I know I didn’t turn it on. It’s very spooky.
+ - I’m not a selfish actor. I believe that it’s a team effort. You’re not in a scene by yourself.
+ - I don’t ever want to get boxed in, playing the same characters, over and over again. That’s why I prefer features over television.
+ - I would love to play a superhero. I wish I could be in ‘The Avengers,’ kicking butt.
+ - I’m always the cousin that can’t make it to the family functions because I’m busy.
+ - I don’t harp on the negative because if you do, then there’s no progression. There’s no forward movement. You got to always look on the bright side of things, and we are in control. Like, you have control over the choices you make.
+ - Something happens to a woman when she can’t reproduce. I’ve not had to walk that path, but I can only imagine when your organs don’t work and how that could make you feel.
+ - If I feel like I’ve reached this greatness in my career than there’s no more room for growth. I don’t think I’m ever going to get there. If I ever get complacent, it’s time for me to bow out.
+ - I don’t think a living being should suffer for the sake of fashion, period. End of story. You don’t have to kill an animal just because you want to be hot and fly. And I really stand by that.
+ - I really wish Hollywood would stop labeling movies, especially movies with predominantly black casts. Then, it makes others feel like, “Oh, well, that’s not for me.” At the end of the day, everybody understands love, loss, pain and heartbreak. That’s not a color.
+ - I’m always interested in challenging myself and pushing, and seeing how far I can go.
+ - With camera phones and, you know, iPad’s and cameras at stoplights, it’s like I just want to drive around with a bag on my head because I just feel like everyone’s watching.
+ - When I go home to visit, they never treat me like a celebrity. They still treat me like TJ. If I leave dishes in the sink, they’ll let me know.
+ - When I come home, it’s about my kid, who needs to eat, needs to do homework, and needs to get to basketball. I don’t have a lot of time to think about me.
+ - I hate when things get labeled as “black movies.” I don’t say, “Oh, this weekend, I want to see an all-white movie,” or “I want to see a black movie.” I just go to a movie because I saw the previews and I relate to it. I want to see it because the previews look interesting.
+ - Improvisation helps because you get what’s on the page and you make it a little more palatable to your tongue. And that’s the beauty of creating and being spontaneous. That’s the way I love to work.
+ - I’ve been doing a lot of drama, but I feel like comedy is my strength.
+ - I think I’m a better comedic actress than I am a dramatic actress, but everybody believes I’m this dramatic actress and I’ll take it.
+ - I like to disappear in my roles because I don’t have an assistant.
+ - I’m always talking to the writers because I find it so fascinating, how they’re able to go to these different levels with the different stories, and have all these layers to peel back.
+
+35 quotes

@@ -1,0 +1,68 @@
+ - The search is what anyone would undertake if he were not sunk in the everydayness of his own life. To become aware of the possibility of the search is to be onto something. Not to be onto something is to be in despair.
+ - In a word, the consumer of mass culture is lonely, not only lonely, but spiritually impoverished.
+ - You can get all A’s and still flunk life.
+ - Why is it that no other species but man gets bored? Under the circumstances in which a man gets bored, a dog goes to sleep.
+ - In this world goodness is destined to be defeated. But a man must go down fighting. That is the victory. To do anything less is to be less than a man.
+ - Boredom is the self being stuffed with itself.
+ - Joy and sadness come by turns.
+ - The present age is demented. It is possessed by a sense of dislocation, a loss of personal identity, an alternating sentimentality and rage which, in an individual patient, could be characterized as dementia.
+ - Fiction doesn’t tell us something we don’t know, it tells us something we know but don’t know that we know.
+ - Why is it that one can look at a lion or a planet or an owl or at someone’s finger as long as one pleases, but looking into the eyes of another person is, if prolonged past a second, a perilous affair?
+ - We love those who know the worst of us and don’t turn their face away.
+ - Losing hope is not so bad. There’s something worse: losing hope and hiding it from yourself.
+ - Suppose you ask God for a miracle and God says yes, very well. How do you live the rest of your life?
+ - Peace is only better than war when it’s not hell too. War being hell makes sense.
+ - Why did God make women so beautiful and man with such a loving heart?
+ - I couldn’t stand it. I still can’t stand it. I can’t stand the way things are. I cannot tolerate this age.
+ - I like to eat crawfish and drink beer. That’s despair?
+ - Bad books always lie. They lie most of all about the human condition.
+ - Lucky is the man who does not secretly believe that every possibility is open to him.
+ - Where there is chance of gain, there is also chance of loss. Whenever one courts great happiness, one also risks malaise.
+ - In this world, goodness is destined to be defeated.
+ - Bourbon does for me what the piece of cake did for Proust.
+ - Not to be onto something is to be in despair.
+ - Small disconnected facts, if you take note of them, have a way of becoming connected.
+ - Nothing remains but desire, and desire comes howling down Elysian Fields like a mistral.
+ - It is not a bad thing to settle for the Little Way, not the big search for the big happiness but the sad little happiness of drinks and kisses, a good little car and a warm deep thigh.
+ - It is possible, however, that the artist is both thin-skinned and prophetic and, like the canary lowered into the mine shaft to test the air, has caught a whiff of something lethal.
+ - Since grief only aggravates your loss, grieve not for what is past.
+ - Why is there such a gap between nonspeaking animals and speaking man, when there is no other such gap in nature?
+ - The fact is I am quite happy in a movie, even a bad movie. Other people, so I have read, treasure memorable moments in their lives...
+ - A repetition is the re-enactment of past experience toward the end of isolating the time segment which has lapsed in order that it, the lapsed time, can be savored of itself and without the usual adulteration of events that clog time like peanuts in brittle.
+ - For some time now the impression has been growing upon me that everyone is dead. It happens when I speak to people. In the middle of a sentence it will come over me: yes, beyond a doubt this is death. There is little to do but groan and make an excuse and slip away as quickly as one can.
+ - A good title should be like a good metaphor. It should intrigue without being too baffling or too obvious.
+ - Whenever I feel bad, I go to the library and read controversial periodicals. Though I do not know whether I am a liberal or a conservative, I am nevertheless enlivened by the hatred which one bears the other. In fact, this hatred strikes me as one of the few signs of life remaining in the world.
+ - As for hobbies, people with stimulating hobbies suffer from the most noxious of despairs since they are tranquilized in their despair.
+ - There is no pain on this earth like seeing the same woman look at another man the way she once looked at you.
+ - I have discovered that most people have no one to talk to, no one, that is, who really wants to listen. When it does at last dawn on a man that you really want to hear about his business, the look that comes over his face is something to see.
+ - Americans are the nicest, most generous, and sentimental people on earth. Yet Americans have killed more unborn children than any nation in history.
+ - Life is fits and starts, mostly fits.
+ - Before, I wandered as a diversion. Now I wander seriously and sit and read as a diversion.
+ - Consciously cultivate the ordinary.
+ - Ignorance, if recognized, is often more fruitful than the appearance of knowledge.
+ - My mother refused to let me fail. So I insisted.
+ - To become aware of the possibility of the search is to be onto something.
+ - Genius consists not in making great discoveries, but in seeing the connection between small discoveries.
+ - This Midwestern sky is the nakedest loneliest sky in America. To escape it, people live inside and underground.
+ - Free people have a serious problem with place, being in a place, using up a place, deciding which new place to rotate to. Americans ricochet around the United States like billiard balls.
+ - It is not merely the truth of science that makes it beautiful, but its simplicity.
+ - Maybe there are times when an honest hatred serves us better than love corrupted by sentimentality, meretriciousness, sententiousness, cuteness.
+ - If I had the choice of knowing the truth or searching for the truth, I’d take the search.
+ - Hatred strikes me as one of the few signs of life remaining in the world. This is another thing about the world which is upsidedown: all the friendly and likable people seem dead to me; only the haters seem alive.
+ - Nobody but a Southerner knows the wrenching rinsing sadness of the cities of the North.
+ - Being uneducated is no guarantee against being obnoxious.
+ - Children notice things first, people later.
+ - I don’t like to be described as a Southern writer. The danger is, if you’re described as a Southern writer, you might be thought of as someone who writes about a picturesque local scene like Uncle Tom’s Cabin, Gone With the Wind, something like that.
+ - You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.
+ - It makes people nervous for one to step out of one’s role.
+ - The enduring is something which must be accounted for. One cannot simply shrug it off.
+ - Classes? Categories? Was that what we had come to?
+ - A novel is what you call something that won’t sell if you call it poems or short stories.
+ - Lord, grant that my work increase knowledge and help other men. Failing that, Lord, grant that it will not lead to man’s destruction. Failing that, Lord, grant that my article in Brain be published before the destruction takes place.
+ - I had discovered that a person does not have to be this or be that or be anything, not even oneself. One is free.
+ - Have you noticed that only in time of illness or disaster or death are people real?
+ - Why has the South produced so many good writers? Because we got beat.
+ - But what physician has not had patients who don’t make any sense at all? To tell the truth, they’re our stock-in-trade. We talk and write about the ones we can make sense of.
+ - Home may be where the heart is but it’s no place to spend Wednesday afternoon.
+
+66 quotes

@@ -1,0 +1,30 @@
+ - Cows run away from the storm while the buffalo charges toward it – and gets through it quicker. Whenever I’m confronted with a tough challenge, I do not prolong the torment, I become the buffalo.
+ - The secret of our success is that we never, never give up.
+ - Whoever controls the education of our children controls the future.
+ - I learned a long time ago that I can’t control the challenges the creator sends my way, but I can control the way I think about them and deal with them.
+ - An Indian is an Indian regardless of the degree of Indian blood or which little government card they do or do not possess.
+ - Take care how you place your moccasins upon the Earth, step with care, for the faces of the future generations are looking up from the Earth waiting their turn for life.
+ - In Iroquois society, leaders are encouraged to remember seven generations in the past and consider seven generations in the future when making decisions that affect the people.
+ - Look forward. Turn what has been done into a better path.
+ - I hope many of you will be people that question why things are and why we have to do them the way we have always done them. I hope you will take some risks, exert some real leadership on issues, and if you will, dance along the edge of the roof as you continue for life.
+ - Every single person has leadership ability. Some step up and take them. Some don’t. My answer was to step up and lead.
+ - I don’t think anybody anywhere can talk about the future of their people or of an organization without talking about education. Whoever controls the education of our children controls our future.
+ - Women in leadership roles can help restore balance and wholeness to our communities.
+ - I want to be remembered as the person who helped us restore faith in ourselves.
+ - Negative thoughts were treated by Cherokee healers with the same medicines as wounds, headaches, or physical illness. It was believed that unchecked negative thoughts can permeate the being and manifest themselves in negative actions.
+ - I’ve run into more discrimination as a woman than as an Indian.
+ - Remember that I am just a woman who is living a very abundant life. Every step I take forward is on a path paved by strong Indian women before me.
+ - Friends describe me as someone who likes to sing and dance along the edge of the roof. I try to encourage young women to be willing to take risks, to stand up for the things they believe in, and to step up and accept the challenge of serving in leadership roles.
+ - I think the most important issue we have as a people is what we started, and that is to begin to trust our own thinking again and belive in ourselves enough to think that we can articulate our own vision of the future and then work to make sure that that vision becomes a reality.
+ - If you argue with a fool, someone passing by will not be able to tell who is the fool and who is not.
+ - Individually and collectively, Cherokee people possess an extraordinary ability to face down adversity and continue moving forward.
+ - Everybody is sitting around saying, ‘Well, jeez, we need somebody to solve this problem of bias.’ That somebody is us. We all have to try to figure out a better way to get along.
+ - A lot of young girls have looked to their career paths and have said they’d like to be chief. There’s been a change in the limits people see.
+ - Prior to my election, young Cherokee girls would never have thought that they might grow up and become chief.
+ - We celebrate Thanksgiving along with the rest of America, maybe in different ways and for different reasons. Despite everything that’s happened to us since we fed the Pilgrims, we still have our language, our culture, our distinct social system. Even in a nuclear age, we still have a tribal people.
+ - We must trust our own thinking. Trust where we’re going. And get the job done.
+ - America would be a better place if leaders would do more long-term thinking.
+ - My ability to survive personal crises is really a mark of the character of my people. Individually and collectively, we must react with a tenacity that allows us again and again to bounce back from adversity.
+ - People say that crisis changes people and turns ordinary people into wiser or more responsible ones.
+
+28 quotes

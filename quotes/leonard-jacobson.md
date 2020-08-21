@@ -1,0 +1,69 @@
+ - Your gift to God is honesty. God’s gift to you is truth.
+ - True power arises in knowing what you want, knowing what you don’t want, expressing it clearly and lovingly without attachment to the outcome.
+ - The underlying motivation that drives all addiction is our insistence on avoiding pain. However, the pain you are avoiding is based in the past, and has nothing to do with the present moment.
+ - When you are caught in the mind, your past defines you. When you are present, you are beyond definition.
+ - If you accept full responsibility for yourself, you will be released forever from expectation, resentment, blame and guilt.
+ - The past is gone. The future never arrives. In truth, there is no life outside of this moment!
+ - One of the great dangers on the spiritual path is that the ego becomes spiritualized. The ego loves to think of itself as spiritually evolved. It is just another way that it manages to feel important and in control. It is very difficult to free yourself from an enlightened ego.
+ - To live a present and awakened life, simply be responsive to the moment. It is very simple. If you are hungry, eat. If you are thirsty, drink. If you are lonely, call a friend for tea. If you are overwhelmed with too much company, then get away by yourself.
+ - It is far wiser to ask for a question than an answer. When you think you have all the answers, it simply means you have run out of questions.
+ - Everything that occurs in your life is part of God’s plan to wake you up.
+ - When you are fully present, you transcend duality and open into Oneness. In Presence, there is power without opposition. There is love without hate, acceptance without judgment and allowing without control.
+ - True awakening involves embracing every aspect of yourself with love and acceptance, including everything you have been denying, hiding or trying to fix. To deny these things is a judgment of them and judgment will keep you forever imprisoned within separation.
+ - The very essence of your Being is infinite, eternal silence. It is your true nature. It is the essence of all existence.
+ - The truth is known in silence. Be still and know.
+ - If you can see it, hear it, feel it, taste it, touch it, or smell it, you can be present with it. It is of the present moment, and so it brings to you the opportunity to be present with it.
+ - Do not seek the answers. Let the answers find you.
+ - Surrender the dream and the truth will be revealed.
+ - Gratitude, generosity and humility are inherent characteristics of one who is present. When you awaken, you will realize that everyone and everything has the same right to be here as you do. This includes every human Being, every tree Being, every flower Being, and every other kind of Being.
+ - You get lost because you think there is somewhere to go. If you give up believing in a goal or a destination, then you cannot get lost. In the present moment, there is no destination.
+ - Don’t diminish yourself in any way. Dare to be all that you are.
+ - Projecting into the future with hopes, dreams and desires can never fulfill you. Only the present moment can fulfill you.
+ - We are on a journey of becoming that which we already are. That is the impossible paradox of our lives.
+ - In the awakened state of Presence, aloneness becomes all-oneness.
+ - Awakening is about liberating yourself from the prison that is the world of the mind and daring to be here as all that you are.
+ - The only thing I trust is silence. And I trust silence completely.
+ - The truth is uncompromising.
+ - It is not until you awaken and become fully present that you will realize that you have not been present. It is not until you awaken that you will realize you have been asleep, dreaming that you are awake.
+ - It’s not them, it’s you. It’s not there, it’s here. It’s not then, it’s now.
+ - In the present moment, you are beyond all definition. This means that you are no longer defined by the pain and limitations of the past. You are no longer defined by your judgments, opinions or beliefs nor are you defined by the judgment, opinions or beliefs of others.
+ - When you are present, your mind is silent. Free of opinions, concepts and beliefs and free of projections from the past and anxiety about the future, it is a perfectly clear instrument of expression. And the expression comes from the center of your Being.
+ - In presence, there is no right or wrong, because there is no duality. There is no judgment.
+ - It disguises it’s thoughts as your thoughts, it’s feelings with your feelings, you think it’s you.
+ - As each of us awakens, it impacts human consciousness at a collective level. It is like dropping a tiny pebble of light into a dark pool of unconsciousness. Ripples of light!
+ - You can be sad for others but you don’t have to take on their pain.
+ - If your commitment is to being present, then there will come a time when being present becomes your natural state. The present moment becomes your home. You will have short excursions into the world of the mind, but you never go so far into the mind that you get lost there.
+ - When you are present, you are transcendent of the mind and ego and so you can witness your mind and ego. You can be conscious of your thoughts without being lost in them when they arise.
+ - If you really know how to ask the question ‘Who am I?’ you will inevitably be delivered into that state of silence and pure consciousness that is your true Being. The question ‘Who am I?’ will ultimately deliver you into the ‘I am’ of you.
+ - There is no greater power than the power of love, which arises from Presence. It overcomes all resistance.
+ - People have no clue that they’re in prison, they don’t know that there is an ego, they don’t know the distinction.
+ - What are you going to do? Are you going to keep looking backwards, full of anger, resentment and unfulfilled desire. Or are you going to be here now. Because everything is available for you in the here and now. Love, compassion, silence, bliss and Oneness.
+ - Wanting others to love you, you give away your heart. Wanting others to see you, you give away your eyes.
+ - The price of freedom is to allow freedom. Very few people are willing to pay the price.
+ - You cannot be present in an abstract way. Presence is not about disappearing into nothingness. You can only be present with something that is actually here.
+ - Awakening is not something you achieve. It is something you relax into.
+ - Only when you can accept that you are alone, will you discover that you are not alone.
+ - Everything that occurs in your life is an opportunity for awakening. There are no exceptions!
+ - If you fully awaken, you will not know yourself. Understand this, and you will understand all.
+ - When you awaken, you will see that this is Heaven on Earth, and everything in physical form is the body of God.
+ - You can live in a house, but your real home is inside you.
+ - Every moment you are present, there is a little less darkness in our world.
+ - You spend very little time in the present moment. Reality exists only in the present moment. Therefore you spend very little time in reality.
+ - If you have a powerful enlightenment experience, do not try to hold on to it, for to do so will take you out of the present moment. You will be caught in the past. You will close the door that gave rise to the experience in the first place.
+ - The only moment ever available to you is the present moment. Everything else is memory or imagination.
+ - Me, me, me! Mine, mine, mine! I’m right, I’m right, I’m right. What’s in it for me? How do I use this? How do I take advantage of it? This is the way of the ego. Own this within yourself and you will begin to release yourself from it.
+ - When you become present, your mind is silent. There is no agenda. You are not holding onto anything. You are not seeking anything. You are just here with what is, and it is enough.
+ - Everything that happens is designed to awaken us. Everything.
+ - Waking up is not serious. It is a gentle remembering and an honoring of the present moment as the truth of life.
+ - The more awake you are, the less there is of you here. At the very deepest level of Presence, you have disappeared and only God is.
+ - I cannot tell you anything that you don’t already know, but it is known in silence.
+ - In Presence, there is no outcome. It is our involvement in the outcome that keeps us imprisoned in an imagined future. In Presence, there is only now.
+ - As you awaken, the present moment becomes your home. You still play in the world of time, but you’re not identified with the story unfolding there.
+ - It is a mistake to imagine that you can awaken in any kind of permanent way. There is only NOW and so you can only be awake now. Even the idea of permanence is an illusion. The question to ask is ‘Am I awake and fully present NOW?’ That question arises and is answered in perfect silence.
+ - In the awakened state, the mind is either perfectly silent or it is a perfectly clear instrument of expression.
+ - Beyond all experience is the one who is experiencing. Beyond all change is the One who never changes.
+ - The fact that we are aware of ourselves is both our greatest curse and also our greatest blessing.
+ - When you are truly present, you illuminate everything around you.
+ - If you’re truly present in this moment, then you are a Buddha. At least for this moment!
+
+67 quotes

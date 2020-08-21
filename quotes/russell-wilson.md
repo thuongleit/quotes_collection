@@ -1,0 +1,41 @@
+ - God is good all the time. Every time.
+ - Separation comes from preparation.
+ - Always persevere, always have a great perspective, and always have great purpose in your life.
+ - There’s a king in every crowd.
+ - The only person I can change is the one in the mirror.
+ - I have high expectations of myself. I always have, always will. That will never waver. I always believe in my talent – always have.
+ - I remember my dad asking me one time, and it’s something that has always stuck with me: ‘Why not you, Russ?’ You know, why not me? Why not me in the Super Bowl? So in speaking to our football team earlier in the year, I said, ‘Why not us? Why can’t we be there?’
+ - I truly believe in positive synergy, that your positive mindset gives you a more hopeful outlook, and belief that you can do something great means you will do something great.
+ - My faith is so strong that I believe that God made me 5-11 for a reason. For all the kids that have been told, no, that they can’t do it, or all the kids that will be told no.
+ - With my dad passing away, he’s always watching me-a big smile on his face, watching every snap on the 50-yard line.
+ - Live with a purpose, play with a purpose.
+ - I’ve been through a lot in life, and had some ups and downs. It’s what’s led me to this day.
+ - My dad used to wake me up at 5:30 in the morning and hit me ground balls and tell me, ‘Don’t be afraid to excel. Don’t be afraid to be great.’
+ - For me, I’m able to use my gift to glorify God. That’s what it’s about for me.
+ - Since I was in high school, I wanted to play professional football and professional baseball, be a two-sport star.
+ - The more that we choose not to talk about domestic violence, the more we shy away from the issue, the more we lose.
+ - I had a dream that my dad passed away and that Jesus came into the room and he was basically knocking on my door, saying, ‘Hey, you need to find out more about me.’ So that Sunday morning I ended up going to church, and that’s when I got saved.
+ - I don’t think I’ve arrived. I think I’m continuing to get there, getting closer and closer to where I want to go. But I’m not there yet.
+ - My height doesn’t define my skill set. To be a great quarterback, you have to have great leadership, great attention to detail and a relentless competitive nature – and I try to bring that on a daily basis.
+ - Every day I wake up and that’s my goal, to be on a constant quest for knowledge and do something different, being unique and being uncommon.
+ - I had this urge to play the game of football because so many people said I couldn’t do it.
+ - I’m a big pasta guy, but I’ve cut it out to stay fast and lean.
+ - I thought about all the people that told me I couldn’t do it and told me I couldn’t get there.
+ - I try to do something physical every day. I don’t go heavy every day, though.
+ - When we are at the worst times of our lives, when we are battling with something, or struggles, whatever it may be, when we are at our highest point as well, when things are going really well, we want somebody to comfort us and be there for us and to say, ‘Well done.’ That’s Jesus!
+ - Being a quarterback, the way I believe is there’s always so much room to improve. Any little detail. I always cut up the film and try to watch what I can improve on, whatever little detail it is.
+ - I’ve tried to do everything possible to prepare myself and prepare our football team to be great.
+ - I took a huge risk leaving baseball, because I was predicted to play in the big leagues. I’m kind of a prototypical second baseman.
+ - We’ll do whatever it takes to score as many points as we can-and definitely one more point than the opponent.
+ - So that Sunday morning I ended up going to church and that’s when I got saved.
+ - In elementary and middle school, I threw kids against the wall. I rubbed their heads in the dirt at recess. I bit them. I even knocked teeth out.
+ - I used to beat up kids and bite kids and do stuff all the time.
+ - I believed that I could go to the Super Bowl and win multiple Super Bowls and do all of those things. I believe in that every day.
+ - I think God cares about everything he created.
+ - Every game’s a championship game. When we focus that way, get prepared that way-that this is it, you know, this is the last one, the biggest one-you get ready, you get amped up, you get that laser focus and you’re ready to play.
+ - I’m going to the Super Bowl again.
+ - I know the coaches definitely trust me and my ability to throw the football.
+ - I ended up getting drafted by the Colorado Rockies on June 8, 2010 and the next day, my dad passed away, in June 9, 2010. So I’m at the biggest high of my life on June 8th. And the next day, June 9th, he’s gone.
+ - My thing is, and I’ve always been this way – to get to know as many people as I possibly can on a personal level, so that way, when you get on the football field, you’ve got your buddy right beside you, and you’re ready to go.
+
+39 quotes

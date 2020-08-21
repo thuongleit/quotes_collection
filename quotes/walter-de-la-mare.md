@@ -1,0 +1,33 @@
+ - It was a pity thoughts always ran the easiest way, like water in old ditches.
+ - After all, what is every man? A horde of ghosts – like a Chinese nest of boxes – oaks that were acorns that were oaks. Death lies behind us, not in front – in our ancestors, back and back until...
+ - Poor tired Tim! It’s sad for him He lags the long bright morning through, Ever so tired of nothing to do.
+ - As long as I live I shall always be My Self – and no other, Just me.
+ - We wake and whisper awhile, But, the day gone by, Silence and sleep like fields Of amaranth lie.
+ - The only catalogue of this world’s goods that really counts is that which we keep in the silence of the mind.
+ - For beauty with sorrow Is a burden hard to be borne: The evening light on the foam, and the swans, there; That music, remote, forlorn.
+ - What a haunting, inescapable riddle life was.
+ - But beauty vanishes; beauty passes; However rare rare it be; And when I crumble, who will remember This lady of the West Country?
+ - Look thy last on all things lovely, Every hour.
+ - Hi! handsome hunting man Fire your little gun. Bang! Now the animal is dead and dumb and done. Nevermore to peep again, creep again, leap again, Eat or sleep or drink again. Oh, what fun!
+ - Do diddle di do, Poor Jim Jay Got stuck fast In Yesterday.
+ - Too late for fruit, too soon for flowers.
+ - So, blind to Someone I must be.
+ - Dobbin at manger pulls his hay: Gone is another summer’s day.
+ - All but blind In his chambered hole Gropes for worms The four-clawed Mole.
+ - A harvest mouse goes scampering by, With silver claws and silver eye; And moveless fish in the water gleam, By silver reeds in a silver stream.
+ - What lovely things Thy hand hath made.
+ - Once a man strays out of the common herd, he’s more likely to meet wolves in the thickets than angels.
+ - A face peered. All the grey night In chaos of vacancy shone; Nought but vast Sorrow was there The sweet cheat gone.
+ - A lost but happy dream may shed its light upon our waking hours, and the whole day may be infected with the gloom of a dreary or sorrowful one; yet of neither may we be able to recover a trace.
+ - God has mercifully ordered that the human brain works slowly; first the blow, hours afterwards the bruise.
+ - What is the world, O soldiers? It is I, I, this incessant snow, This northern sky.
+ - Now that cleverness was the fashion most people were clever – even perfect fools; and cleverness after all was often only a bore: all head and no body.
+ - As soon as they’re out of your sight, you are out of their mind.
+ - When I lie where shades of darkness Shall no more assail mine eyes.
+ - Oh, pity the poor glutton Whose troubles all begin In struggling on and on to turn What’s out into what’s in.
+ - An hour’s terror is better than a lifetime of timidity.
+ - Three jolly huntsmen, In coats of red, Rode their horses Up to bed.
+ - All day long the door of the sub-conscious remains just ajar; we slip through to the other side, and return again, as easily and secretly as a cat.
+ - Very old are the woods; And the buds that break Out of the brier’s boughs, When March winds wake, So old with their beauty are – Oh, no man knows Through what wild centuries Roves back the rose.
+
+31 quotes

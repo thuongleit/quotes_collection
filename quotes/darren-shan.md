@@ -1,0 +1,57 @@
+ - Real life’s nasty. It’s cruel. It doesn’t care about heroes and happy endings and the way things should be. In real life, bad things happen. People die. Fights are lost. Evil often wins.
+ - It is too easy to say ‘what if’ and paint a picture of a perfect world.
+ - Even in death may you triumphant.
+ - That’s what you taught me – we don’t have to accept destiny or Des Tiny. We can create our own future, all of us. We have the power to rule our lives – we just have to make the choice to use it.
+ - A world without pain, loss, betrayal, hate, death, loneliness? Impossible!
+ - Even a minute of dying is better than an eternity of nothingness.
+ - Power always impresses the young and foolish.
+ - The demons were scary, but girls – Well, girls are really terrifying.
+ - For a long time that’s all I could do, howl and scream and cry like the wild animal of the night that I’d become.
+ - Underneath me, Sam Grest – who’d been my friend and saved my life – lay perfectly still and slipped further and further into the final sleep of an unfair and horrible death.
+ - The thing about real life is, when you do something stupid, it normally costs you.
+ - But stories don’t end. They continue as long as you’re alive. You just have to get on with things. Turn the page, start a new chapter, find out what’s in store for you next, and keep your fingers crossed that it’s not too awful. Even if you know in your heart and soul that it most probably will be.
+ - I don’t like it, but my hands are tied. I just want you to know this: if I ever get the chance to betray you, I will. If the opportunity arises to pay you back, I’ll take it. You’ll never be able to trust me.
+ - Better not to start down a wrong path at all than head down it in the hope of making a detour when something better came along.
+ - But in life we don’t usually get to choose the time of our defining moments. We just have to stand and face them when they come, no matter what sort of a state we’re in.
+ - No. You know this is wrong and you want to feel better about it. You don’t want to admit your as ruthless and monstrous as the demons you claim to hate.
+ - There are a lot of black-hearted, mean-spirited bastards in the world. It’s important that we hold them to acount. But always remember that you might be the most black-hearted and mean-spirited in the lot, so hold yourself the most accountable of all.
+ - Confidence has brought them out into the light, but they seem to have forgotten – light’s no good for creatures of the night.
+ - Wars raged everywhere as men found new, inventive ways to kill even more of their race. It was like a contest, the many tribes of mankind competing to see who could commit the worst atrocities.
+ - I gulped, then stepped over the threshold into the house where I’d lived as a boy. After eighteen long years of wandering, I had finally come home.
+ - We all make basic assumptions about things in life, but sometimes those assumptions are WRONG. We must never trust in what we assume, only in what we KNOW.
+ - They forget that the vampaneze were once our brothers, that by destroying them, we destroy a part of ourselves. Most vampire never realize how pointless and savage war truly is. You were smart enough to see through the truth. Don’t ever forget it.
+ - But the universe isn’t fair. Things don’t work out neatly, pain, hardship and challenges divided equally among those best equipped to deal with them. Sometimes individuals have to be Atlases and carry the weight of the world alone. It shouldn’t happen that way, but it does.
+ - It is good to be taught humility when we are young. If we do not exeperience pain as children, we will cause pain as adults.
+ - If mankind’s destined to bite the bullet, let’s bite it and be damned.
+ - I won’t die. I won’t give those ghouls the pleasure. I’ll live and grow strong. I’ll escape, then hunt them down and make them suffer.
+ - I’d like to do something to help the worst afflicted, but I can’t. It’s not possible to save everybody. Even heroes have their all-too-human limits.
+ - The moon’s a powerful mistress. She can reach through any wall or covering and work her wicked charms.
+ - The world won’t end with a bang or a whimper. It’ll end with the death screams of a thousand demons and a defiant, carefree, savage, wolfen howl.
+ - I know who the demon thief is – it’s me!
+ - If I’d known how wrong I was – if I’d had any idea of the awful night that lay ahead – I’d have run after him and never returned to that disgusting circus of blood, that revolting circus of death.
+ - Students never appreciate their teachers while they are learning. It is only later, when they know more of the world, that they understand how indebted they are to those who instructed them. Good teachers expect no praise or love from the young. They wait for it, and in time, it comes.
+ - You do not have to be alone. The world never inflicts loneliness upon us. That is something we choose or reject by ourselves.
+ - Destiny’s what you make of it. You have to face whatever life throws at you.
+ - I mean, seriously, what lady of taste could resist a shiny green head of hair like mine?
+ - Childhood is the purest state. The pure of heart never leave it behind. Their life merely takes them on a cirtuitous route away from, and then back to it.
+ - If this were a made-up story, it would begin at night, with a storm blowing and owls hooting and rattling noises under the bed.
+ - For an hour or more he was neither human nor vampire, just a howling, hungry creature of dark delights.
+ - When it comes to impending, unavoidable extinction, ignorance is bliss.
+ - I sucked blood from one of my best friends.
+ - I’m starting to understand that fear is like cancer – you can beat it back, but if it returns, it can be worse than ever.
+ - But I don’t think Art’s an Einstein – he likes tugging ears, biting people and burping too much to be a genius.
+ - The pair smiled desperately at one another. And for the first time ever, despite the fact that everyone he knew – even the gods themselves – would condemn him for it, Jebel didn’t think of Tel Hesani as a slave, but as an equal.
+ - He says every story has at least some truth in it, even if most are made up.
+ - Destiny is a tower of cards – nudge one just an inch and everything stacked on top comes crashing down. P116.
+ - What use was money if you didn’t have the time to enjoy it?
+ - So easy to take it for granted, but this is something no normal human was made to see. The world of magic has blessed me with wonders and it’s only right to stop every now and then to appreciate it.
+ - Now sod off back to your own world, you motherless scum, and save your threats for those who care.
+ - I always knew there was power in the earth, but it must be much stronger than I imagined to resist such a relentless foe, day after day, night after night, year after year.
+ - I don’t think anyone ever remembers what they were really like as kids. Adults think they do, but they don’t. Photos and videos don’t capture the real you, or bring back to life the person you used to be. You have to return to the past to do that.
+ - One of the things is that in times of severe disorder, you can’t worry about the dead, only the living.
+ - You stole from a member of the undead.
+ - If he turned his back on humanity now, it would be forever.
+ - Of course I have nightmares-Who doesn’t?
+ - Better to die for my people in my own land than rule in another and suffer a lifetime of cowardly guilt.
+
+55 quotes

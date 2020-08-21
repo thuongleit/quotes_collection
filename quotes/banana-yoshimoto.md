@@ -1,0 +1,64 @@
+ - Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down.
+ - Truly happy memories always live on, shining. Over time, one by one, they come back to life.
+ - As I grow older, much older, I will experience many things, and I will hit rock bottom again and again. Again and again I will suffer; again and again I will get back on my feet. I will not be defeated. I won’t let my spirit be destroyed.
+ - But I have my life, I’m living it. It’s twisted, exhausting, uncertain, and full of guilt, but nonetheless, there’s something there.
+ - Over and over, we begin again.
+ - It didn’t matter whether he was nearby or far away. His image would drift up into your mind just when you least expected it, shocking you, making your chest pound. Making your heart ache.
+ - Good tea is eloquent enough, it turns out, to change a person’s mind.
+ - Things look different depending on your perspective. As I see it, fighting to bridge those gaps isn’t what really matters. The most important thing is to know them inside and out, as differences, and to understand why certain people are the way they are.
+ - If you don’t say what you’re thinking, you end up lying when you really need to speak up.
+ - Someday, without fail, everyone will disappear, scattered into the blackness of time.
+ - Everyone lives the way she knows best. What I mean by ‘their happiness’ is living a life untouched as much as possible by the knowledge that we are really, all of us, alone. That’s not a bad thing.
+ - The ritual of our daily lives permeate our very bodies.
+ - Once you’ve recognized your own limits, you’ve raised yourself to a higher level of being, since you’re closer to the real you...
+ - You know, Chihiro, darling- all it takes is one little wrong step and you end up feeling frustrated your whole life, like me.
+ - I realized that the world did not exist for my benefit. It followed that the ratio of pleasant and unpleasant things around me would not change. It wasn’t up to me. It was clear that the best thing to do was to adopt a sort of muddled cheerfulness.
+ - I saw the sky and sea and sand and the flickering flames of the bonfire through my tears. All at once, it rushed into my head with tremendous speed, and made me feel dizzy. It was beautiful. Everything that happened was shockingly beautiful, enough to make you crazy.
+ - Everything that had happened was shockingly beautiful, enough to make you crazy.
+ - I never tell my boyfriend that I’m busy when I’m not. No matter how effective they are, cheap techniques like that just don’t agree with me. So it’s always okay, it’s always all right. In my opinion the surest way to hook a man is to be as open with him as possible.
+ - On nights like this when the air is so clear, you end up saying things you ordinarily wouldn’t. Without even noticing what you’re doing, you open up your heart and just start talking to the person next to you – you talk as if you have no audience but the glittering stars, far overhead.
+ - People aren’t overcome by situations or outside forces. Defeat comes from within.
+ - The sky was incredibly far away, and beautiful enough to make a person wonder why our hearts are never so free.
+ - Even when I try to stir myself up, I just get irritated because I can’t make anything come out. And in the middle of the night I lie here thinking about all this. If I don’t get back on track somehow, I’m dead, that’s the sense I get. There isn’t a single strong emotion inside me.
+ - When was it I realized that, on this truly dark and solitary path we all walk, the only way we can light is our own? Although I was raised with love, I was always lonely. Someday, without fail, everyone will disappear, scattered into the blackness of time.
+ - What was important wasn’t the fireworks, it was that we were together this evening, together in this place, looking up into the sky at the same time.
+ - In the uncertain ebb and flow of time and emotions much of one’s life history is etched in the senses.
+ - Again and again I will suffer; again and again I will get back on my feet. I will not be defeated.
+ - No matter what, I want to continue living with the awareness that I will die. Without that, I am not alive.
+ - Why is it that everything I eat when I’m with you is so delicious?’ I laughed. ‘Could it be that you’re satisfying hunger and lust at the same time?
+ - Inching one’s way along a steep cliff in the dark: on reaching the highway, one breathes a sigh of relief. Just when one can’t take any more, one sees the moonlight. Beauty that seems to infuse itself into the heart: I know about that.
+ - I love feeling the rhythm of other people’s lives. It’s like traveling.
+ - Everything in life has some good in it. And when something awful happens, the goodness stands out even more – it’s sad, but that’s the truth.
+ - Truly great people emit a light that warms the hearts of those around them. When that light has been put out, a heavy shadow of despair descends.
+ - That’s the advantage of insomnia. People who go to be early always complain that the night is too short, but for those of us who stay up all night, it can feel as long as a lifetime. You get a lot done.
+ - I was happy. I loved the night, I loved t so much it almost hurt. In the night everything seemed possible. I wasn’t sleepy at all.
+ - No matter where you are, you’re always a bit on your own, always an outsider.
+ - Was that what it means to be an adult, to live with ugly ambiguities?
+ - Every time I look into his eyes I just want to take the ice cream or whatever I’ve got in my hand and rub it into his face. That’s how much I like him.
+ - I really believe that no matter how old people get, they tend to change in certain ways depending on how people treat them – they change their colors.
+ - Why were we so far apart, even when we were together? It was a nice loneliness, like the sensation of washing your face in cold water.
+ - The night glittered brilliantly then.
+ - There are many, many difficult times, god knows. If a person wants to stand on her own two feet, I recommend undertaking the care and feeding of something. It could be children, or it could be house plants, you know? By doing that you come to understand your own limitations. That’s where it starts.
+ - Fate is a ladder on which you cannot afford to miss a single rung. To skip out on even one step would mean you’ll never make it to the top.
+ - I felt how important the simplest things were, like feeling proud, finding something funny, stretching yourself, retreating into yourself.
+ - When things get really bad, you take comfort in the placeness of a place.
+ - Although I was raised with love, I was always lonely.
+ - Here in this ocean, in the midst of all this water, with the red flags on those distant buoys flapping in the sea breeze, I find myself unable to treat our house in Tokyo as anything but a dream.
+ - Me, when I’m utterly exhausted by it all, when my skin breaks out, on those lonely evenings when I call my friends again and again and nobody’s home, then I despise my own life – my birth, my upbringing, everything.
+ - I should have told her at the time. I could have taken a deep breath, looked away, and forced myself to say it.
+ - When someone tells you something big, it’s like you’re taking money from them, and there’s no way it will ever go back to being the way it was. You have to take responsibility for listening.
+ - It was so gorgeous it almost felt like sadness.
+ - I wonder what it felt to move to a country where you didn’t grow up. I had thought about that often since my sister got married. Do you become a character in a story native to that land, or do you, somewhere in your heart, want to return to your homeland.
+ - It was at once a miracle and the most natural thing in the world.
+ - Why is it we have so little choice? We live like the lowliest worms. Always defeated – defeated we make dinner, we eat, we sleep. Everyone we love is dying. Sill, to cease living is unacceptable.
+ - Her eyes were those of someone who’s just fallen in love, someone who sees nothing but her lover, someone who has no fear of anything. The eyes of someone who believes that every dream will come true, that reality will move if you just give it a push.
+ - This world of ours is piled high with farewells and goodbyes of so many different kinds, like the evening sky renewing itself again and again from one instant to the next-and I didn’t want to forget a single one.
+ - She was still there inside me now, just as she always was: a life put on hold, a memory I didn’t know how to handle.
+ - I spent most of my time thinking, because I didn’t have enough energy to do anything else.
+ - To the extent that I had come to understand that despair does not necessarily result in annihilation, that one can go on as usual in spite of it, I had become hardened. Was this what it means to be an adult, to live with ugly ambiguities? I didn’t like it, but it made it easier to go on.
+ - Love is the kind of thing that’s already happening by the time you notice it, that’s how it works, and no matter how old you get, that doesn’t change. Except that you can break it up into two entirely distinct types – love where there’s an end in sight and love where there isn’t.
+ - I held the feeling in my heart; the urge to discuss it died out. There was all the time in the world. In the endless repetition of other nights, other mornings, this moment, too, might become a dream.
+ - It occurred to me that if I were a ghost, this ambiance was what I’d miss most: the ordinary, day-to-day bustle of the living. Ghosts long, I’m sure, for the stupidest, most unremarkable things.
+ - Recognizing how totally ignorant you are is the only honest way to deal with people who’ve been through something traumatic.
+
+62 quotes

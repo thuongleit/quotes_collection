@@ -1,0 +1,66 @@
+ - Writing is a struggle against silence.
+ - In Latin America, even atheists are Catholics.
+ - Memory is satisfied desire.
+ - Art gives life to what history killed. Art gives voice to what history denied, silenced, or persecuted. Art brings truth to the lies of history.
+ - Don’t classify me, read me. I’m a writer, not a genre.
+ - Recognize yourself in he and she who are not like you and me.
+ - I am not interested in slice of life, what I want is a slice of the imagination.
+ - Perfect order is the forerunner of perfect horror.
+ - What’s happened at the Abu Ghraib prison in Iraq is one of the grossest violations of human rights under the Geneva Conventions that we have record of. It is simply monstrous.
+ - In the name of certainty, the greatest crimes have been committed against humanity.
+ - I need, therefore I imagine.
+ - Incredible the animal that first dreamed of another animal.
+ - Here among my books, my wife, my friends and my loves, I have plenty of reasons to keep living.
+ - Reading, writing, teaching, learning, are all activities aimed at introducing civilizations to each other.
+ - There is no creation without tradition; the ‘new’ is an inflection on a preceding form; novelty is always a variation on the past.
+ - Love can isolate us from everything around us. But in its absence, we can be filled with the fear that something comparable exists.
+ - The possibility of being as free with the camera as we are with the pen is a fantastic prospect for the creative life of the 21st century.
+ - I have two children who died before reaching 30, so who am I to complain about being alive?
+ - The Mexicans descend from the Aztecs; the Peruvians descend from the Incas; the Argentineans descend from the boats.
+ - What America does best is to understand itself. What it does worst is to understand others.
+ - Literature overtakes history, for literature gives you more than one life. It expands experience and opens new opportunities to readers.
+ - Yo no soy mexicano. Yo no soy gringo. Yo no soy chicano. No soy gringo en USA y mexicano en Mexico. Soy chicano en todas partes. No tengo que asimilarme a nada. Tengo mi propia historia.
+ - Cuba needs a dose of perestroika.
+ - The new world economic order is not an exercise in philanthropy, but in enlightened self-interest for everyone concerned.
+ - I discovered very quickly that criticism is a form of optimism, and that when you are silent about the shortcomings of your society, you’re very pessimistic about that society. And it’s only when you speak truthfully about it that you show your faith in that society.
+ - Culture consists of connections, not of separations: to specialize is to isolate.
+ - Robinson Crusoe, the first capitalist hero, is a self-made man who accepts objective reality and then fashions it to his needs through the work ethic, common sense, resilience, technology, and, if need be, racism and imperialism.
+ - The women I have loved I have desired for themselves, but also because I feared myself.
+ - If the Soviet Union can give up the Brezhnev Doctrine for the Sinatra Doctrine, the United States can give up the James Monroe Doctrine for the Marilyn Monroe Doctrine: Let’s all go to bed wearing the perfume we like best.
+ - One puts off the biography like you put off death. To write an autobiography is to etch the words on your own gravestone.
+ - I believe in books that do not go to a ready-made public. I’m looking for readers I would like to make. To win them, to create readers rather than to give something that readers are expecting. That would bore me to death.
+ - There are people whose external reality is generous because it is transparent, because you can read everything, accept everything, understand everything about them: people who carry their own sun with them.
+ - I had the good fortune of having a happy, closely knit family.
+ - I love having critics for breakfast.
+ - No government functions without the grease of corruption.
+ - I live through risk. Without risk there is no art. You should always be on the edge of a cliff about to fall down and break your neck.
+ - Religion is dogmatic. Politic is ideological. Reason must be logical, but literature has a privilege of being equivocal.
+ - The French equate intelligence with rational discourse, the Russians with intense soul-searching. For the Mexican, intelligence is inseparable from maliciousness.
+ - Contrary to the macho culture of Mexico, both my grandmothers were very brave young widows. I was always very close to these hard-working, intelligent women.
+ - Children know how to be cruel, and the cruelty of their elders is the surest residue of the malaise the young feel toward things strange, things other, things that reveal our own ignorance or insufficiency.
+ - I am a literary animal. For me, everything ends in literature.
+ - Some writers achieve great popularity and then disappear forever. The bestseller lists of the past fifty years are, with a few lively exceptions, a sombre graveyard of dead books.
+ - In literature, you know only what you imagine.
+ - The citizen takes his city for granted far too often. He forgets to marvel.
+ - I started my own magazine with drawings, commentary, news, film reviews and drawings.
+ - No, it’s not that they’re bad. It’s that they’re obliged to pretend they’re good. They’ve been brought up to deceive and be cunning, to protect themselves from our society. I don’t want to be like that.
+ - I must write the book out in my head now, before I sit down.
+ - There must be something beyond slaughter and barbarism to support the existence of mankind and we must all help search for it.
+ - One wants to tell a story, like Scheherezade, in order not to die. It’s one of the oldest urges in mankind. It’s a way of stalling death.
+ - There is no creation without tradition. No one creates from nothing.
+ - My system for staying young is to work a lot, to always have a project on the go.
+ - By its very nature, the novel indicates that we are becoming. There is no final solution. There is no last word.
+ - The language of Mexicans springs from abysmal extremes of power and impotence, domination and resentment.
+ - At 50 I find there is a long line of characters and shapes demanding words just outside my window.
+ - I like fighting. I get into rows all the time.
+ - The United States has written the white history of the United States. It now needs to write the black, Latino, Indian, Asian and Caribbean history of the United States.
+ - I use a lot of film images, analogies, and imagination.
+ - Diplomacy in a sense is the opposite of writing. You have to disperse yourself so much: the lady who comes in crying because shes had a fight with the secretary; exports and imports; students in trouble; thumbtacks for the embassy.
+ - You start by writing to live. You end by writing so as not to die.
+ - The United States condoned dictatorships in Latin America for much of the 20th century.
+ - I don’t think any good book is based on factual experience. Bad books are about things the writer already knew before he wrote them.
+ - Death is the great Maecenas, Death is the great angel of writing. You must write because you are not going to live any more.
+ - I have no literary fears.
+ - I’ve lost audiences, I’ve recovered them.
+
+64 quotes

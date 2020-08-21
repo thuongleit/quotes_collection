@@ -1,0 +1,48 @@
+ - Gratitude is riches. Complaint is poverty.
+ - I’ve never met an animal I didn’t like, and I can’t say the same thing about people.
+ - If I can do it, you can do it. Anybody can.
+ - I’m not going to go around with a long face – that’s a waste of time.
+ - I have found that when you are deeply troubled, there are things you get from the silent devoted companionship of a dog that you can get from no other source.
+ - I like joy; I want to be joyous; I want to have fun on the set; I want to wear beautiful clothes and look pretty. I want to smile and I want to make people laugh. And that’s all I want. I like it. I like being happy. I want to make others happy.
+ - I love all the shows that encourage people to love, appreciate and help animals. There are more programs about animals than ever, and that pleases me.
+ - I’m going to do as much as I can for the animal world, and I’ll never stop.
+ - I think everything in my life has led to my animal welfare work.
+ - For every dollar spent on spaying and neutering now, $17 is saved and can be used for other community projects. We work with the animals and the people who love them.
+ - If there is a heaven, I’m sure Rock Hudson is there because he was such a kind person.
+ - I had a wonderful family including my aunts, uncles and cousins but they’ve all gone to heaven.
+ - I’ve been through everything. I always said I was like those round-bottomed circus dolls – you know, those dolls you could push down and they’d come back up? I’ve always been like that. I’ve always said, No matter what happens, if I get pushed down, I’m going to come right back up.
+ - Wrinkles are hereditary. Parents get them from their children.
+ - A woman gains status when she refuses to see anything killed to be put on her back. Then she’s truly beautiful.
+ - Middle age is youth without levity, and age without decay.
+ - No matter what happens, if I get pushed down, I’m going to come right back up.
+ - Your skin, and your whole body, goes into repair mode when you sleep.
+ - I liked being married instead of the girl who’s looking for a guy.
+ - The one radio voice that I listened to above others belonged to Ella Fitzgerald. There was a quality to her voice that fascinated me, and I’d sing along with her, trying to catch the subtle ways she shaded her voice, the casual yet clean way she sang the words.
+ - I like to sing love songs.
+ - I don’t know if I want to get married again.
+ - It has been said that the body is like an automobile – it’s yours, but it isn’t you.
+ - I don’t even like parties.
+ - I just feel so fortunate and so blessed to have been able to entertain people in the theatres and on record, it’s just an amazing life that I’ve experienced.
+ - If so many people love me, how come I’m alone?
+ - Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.
+ - I have never found in a human being loyalty that is comparable to a dog’s loyalty.
+ - I couldn’t walk for almost three years. That was the greatest thing that happened. Instead of dancing, I sang.
+ - I always felt that making a living wasn’t the easiest thing in the world, and I decided I was going straight ahead and try to be as uncomplicated as possible. The important thing in life is just living and loving.
+ - You haven’t lived until you’ve lived with a cat.
+ - DAY: I have a good job, a lovely apartment, I go out with very nice men to the best places, the finest restaurants, the theater. What am I missing? RITTER: If you hove to ask, believe me, you’re missing it.
+ - Vulgarity begins when imagination succumbs to the explicit.
+ - Killing an animal to make a coat is sin. It wasn’t meant to be, and we have no right to do it.
+ - A person does not leave a good marriage for someone else.
+ - I like Michael Buble.
+ - When I see Liz Taylor with those Harry Winston boulders hanging from her neck I get nauseated. Not figuratively, but nauseated! All I can think of are how many dog shelters those diamonds could buy.
+ - If it’s true that men are such beasts, this must account for the fact that most women are animal lovers.
+ - The really frightening thing about middle age is the knowledge that you’ll grow out of it.
+ - It was the only ambition I ever had – not to be a dancer or Hollywood movie star, but to be a housewife in a good marriage.
+ - It is heartbreaking to see so many animals in distress through the Gulf Coast region. Many of them are frightened, confused, hungry, dehydrated and lost.
+ - I always feel a rise in my scalp or in the backs of my wrists when something is special, whether it be a song or a man.
+ - The happiest times in my life were the days when I was traveling with Les Brown and his band.
+ - Would you believe, I am still offered scripts and projects all the time?
+ - It’s quite an experience to have filming done in your house. When they come in, they photograph every piece of furniture and where it is so they can get them back exactly where you had them. You’d never know they’d been here.
+ - I’ve just always loved animals.
+
+46 quotes

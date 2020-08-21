@@ -1,0 +1,88 @@
+ - Have faith in God; God has faith in you.
+ - Winners are not those who never fail, but those who never quit.
+ - Attitude determines the altitude of life.
+ - Expectancy is the atmosphere for miracles.
+ - You don’t drown by falling in the water; you drown by staying there.
+ - Maturity comes not with age but with the acceptance of responsibility. You are only young once but immaturity can last a lifetime!
+ - Confidentiality is a virtue of the loyal, as loyalty is the virtue of faithfulness.
+ - Being a male is a matter of birth. Being a man is a matter of choice.
+ - Failing is not the worst thing in the world; quitting is.
+ - Boundaries are to protect life, not to limit pleasures.
+ - Knowledge is the acquiring of facts, understanding is the interpreting of facts, wisdom the application.
+ - The degree of loving is measured by the degree of giving.
+ - Greatness comes through serving. The more you serve, the greater you become.
+ - Character is more important than talent.
+ - Good is often the enemy of best.
+ - Prayer in private results in boldness in public.
+ - God never ends anything on a negative; God always ends on a positive.
+ - If you can’t take it, you won’t make it.
+ - Obedience is an act of faith; disobedience is the result of unbelief.
+ - There are dreamers and there are planners; the planners make their dreams come true.
+ - You seek the heights of manhood when you seek the depths of God.
+ - All wrong conduct is based on wrong believing.
+ - Successful people recognize crisis as a time for change – from lesser to greater, smaller to bigger.
+ - God is the Creator; Satan is the counterfeiter.
+ - A ton of prayer will never produce what an ounce of obedience will.
+ - Reading is an art form, and every man can be an artist.
+ - Your best friend and worst enemy are both in this room right now. It’s not your neighbor right or left – and it’s not God or the devil – it’s you.
+ - Your faithfulness makes you trustworthy to God.
+ - The man who seeks to please God is the man who people are pleased with. The man who seeks to please others won’t satisfy anyone.
+ - Marriage may be the closest thing to Heaven or Hell any of us will know on this earth.
+ - Accepting responsibility for the actions of others contributes to your own greatness.
+ - A man who honors God privately will show it by making good decisions publicly.
+ - The difference between men who succeed or fail is their ability to handle pressure.
+ - God authors desires in your heart, then fulfills His Will by enabling you to realize those desires.
+ - Truth cannot be defeated.
+ - Men and women have strengths that complement each other.
+ - The pattern of the prodigal is: rebellion, ruin, repentance, reconciliation, restoration.
+ - Peace is the umpire for doing the will of God.
+ - The discipline of daily devotion to God undergirds decisions.
+ - Sin is still sin – no matter how you spell it.
+ - Life is lived on levels and arrived at in stages.
+ - The yoke you wear determines the burden you bear.
+ - Men cannot make Scripture conform to their lifestyle; they must make their lifestyle conform to Scripture.
+ - There is a high cost for low living.
+ - A dream doesn’t become a goal until it is written.
+ - You can tell the nature of the man by the words he chooses.
+ - The counterfeit trinity is me, myself, and I.
+ - Illusions of grandeur are not the same as visions of greatness.
+ - All sin is a form of insanity. Satan is the most insane being of all because he still believes he can defeat God.
+ - A fast is not a hunger strike. Fasting submits to God’s commands. A hunger strike makes God submit to our demands.
+ - When the pressure comes, preferences give way while convictions hold firm.
+ - Building a godly life on the sand of scriptural illiteracy is impossible.
+ - Men are limited by the knowledge of their minds, the worth of their characters and the principles upon which they are building their lives.
+ - Knowledge of God’s Word is a bulwark against deception, temptation, accusation, even persecution.
+ - Truth is life’s most precious commodity.
+ - The more you build your life on principle and less on personality – yours or others – the straighter will be your course.
+ - Inconsistencies in men are generally testimony to their immaturity.
+ - Mediocre men work at their best; men seeking excellence strive to do better.
+ - God will finish what He authors, but He is not obligated to finish what He has not authored.
+ - Reasonable men adapt to the world around them; unreasonable men make the world adapt to them. The world is changed by unreasonable men.
+ - Conscience allows us to do two things: Pass judgment on ourselves; approve or condemn our own conduct.
+ - You are committed to what you confess.
+ - Christians are not patched-up sinners, they are new creations.
+ - What you believe about God has the greatest potential for good or harm in your life.
+ - You don’t reward reaction; you reward results.
+ - The Ten Commandments have never been replaced as the moral basis upon which society rests.
+ - What the mind cannot retain, the body will have to endure.
+ - By use you possess gain; by disuse you decline and lose.
+ - Professionals who are prayerful and productive are indispensable!
+ - Crying over what’s gone won’t find the present.
+ - There are no small churches, just small people.
+ - God will lead you into a deliverance where the means that delivers you will be those who would destroy you.
+ - You cannot compensate by sacrifice what you lose through disobedience.
+ - Men tend to feel threatened; women tend to feel guilty.
+ - Our Lord never condemned the fig tree because it brought forth so much fruit that some fell to the ground and spoiled. He only cursed it when it was barren.
+ - A woman’s uniqueness is her greatest appeal to a man – and his greatest challenge.
+ - Believing in evolution is believing in the unproved, while believing in Christ is believing in the proven.
+ - To talk to his children about God, a person needs to first talk to God with the impossible.
+ - Sin is basically a denial of God’s right of possession.
+ - It is not enough to be delivered from sin; it is enough to be delivered to righteousness.
+ - Fear attracts attack.
+ - Faith is the ticket to the feast, not the feast.
+ - You cannot be responsible for salvation until first you’ve been responsible for sin.
+ - To him who knows to prosper and does it not, to him it is sin.
+ - Being faithful in that which is another man’s qualifies us to receive our own.
+ - Trust funds can never be a substitute for a fund of trust.
+
+86 quotes

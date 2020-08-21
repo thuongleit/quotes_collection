@@ -1,0 +1,46 @@
+ - I am not responsible for actions of the imaginary version of me you have inside your head.
+ - Do what you need to do and enjoy life as it happens.
+ - Sooner or later the Narrative will come for each of us.
+ - If your flirting strategy is indistinguishable from harassment, it’s not everyone else that’s the problem.
+ - Here’s a quick rule of thumb: Don’t annoy science fiction writers. These are people who destroy entire planets before lunch. Think of what they’ll do to you.
+ - Fear sits and smiles and is predatory, immobile and silent and serene; an observer who conserves his energy and is content to wait.
+ - Fear is a scavenger who feeds on the future; on what may be and what is possible, extending down the line of our lives.
+ - I failed angst in high school. They let me graduate anyway.
+ - My marriage had its ups and downs like anyone’s, but when it came down to it, I knew it was solid. I miss that sort of security, and that sort of connection with someone.
+ - When you lose someone you love, you die too, and you wait around for your body to catch up.
+ - I can describe to you the taste of government cheese.
+ - It’s easier to miss her at a cemetery, where she’s never been anything but dead, than to miss her at all the places where she was alive.
+ - As a reader, I have a very short attention span and a low tolerance for boredom, and I find that comes in handy with my writing. If I get bored writing something, I pity the people who will then try to read it.
+ - I did two things on my seventy-fifth birthday. I visited my wife’s grave. Then I joined the army.
+ - I don’t care whether I really exist or don’t, whether I’m real or fictional. What I want right now is to be the person who decides my own fate.
+ - I’m not insane, sir. I have a finely calibrated sense of acceptable risk.
+ - I do think people of good will can have different opinions but still be coming not from a place of malice.
+ - I know a little bit about deaf culture because a friend of mine has been in the deaf culture for awhile. Over the course of 25 years, she and I have talked about many of the issues and concerns for deaf people and deaf culture.
+ - If the universe is bigger and stranger than I can imagine, it’s best to meet it with an empty bladder.
+ - Reddit is not a public utility or a public square; its a privately owned space on the Internet.
+ - I thought I saw him once, but it turned out to be a yeti.
+ - You do what you have to do to give people closure; it makes them feel better and it doesn’t cost you much to do it. I’d rather apologize for something I didn’t really care about and leave someone on Earth wishing me well.
+ - I grew up in southern California in the 80s. Yes, I am a walking cliche.
+ - When you’re a kid all you want to do is be somewhere else.
+ - There’s a difference between the fact that the universe is inherently unfair on a cosmic level, and the fact that life is unfair because people are actively making it so.
+ - Being poor is people wondering why you didn’t leave.
+ - If you want me to treat your ideas with more respect, get some better ideas.
+ - If your social consciousness seems stuck in 1975, 2014 is gonna be a rough ride.
+ - You would rather face a life without me than to have me choose a life I would not choose for myself.
+ - Christianity is a fine religion and I wish more Christians practiced it.
+ - Part of what makes us human is what we mean to other people, and what people mean to us.
+ - Guns don’t kill people. The aliens behind the triggers do.
+ - The original sin of Republicans is greed. Everyone understands greed. Everybody wants to get theirs. The original sin of Democrats is pity. Greed is more attractive, and a better motivator, than pity.
+ - Now, you may think that this is some sort of generalized hatred that I will carry for the lot of you. Let me assure you that this is not the case. Each of you will fail, but you will fail in your own unique way, and therefore I will dislike each of you on an individual basis.
+ - When you’re a teenager and you’re in love, it’s obvious to everyone but you and the person you’re in love with.
+ - The more I want a book to be done, the faster I type because I just want to get it out.
+ - I both love and am terrified by Greg Van Eekhout’s vision of Los Angeles. I already want to go back.
+ - Libertarians secretly worried that ultimately someone will figure out the whole of their political philosophy boils down to ‘get off my property.’ News flash: This is not really a big secret to the rest of us.
+ - The Scooby gang doesn’t travel because they are looking for crimes to solve. They travel because they’re one step ahead of the deprogrammers. Somehow, Fred’s got them all snookered. It probably has something to do with the Scooby Snacks.
+ - The story of how I left Huckleberry begins – as do all worthy stories – with a goat.
+ - Ultimately the first, best step in getting your work noticed is to write good work. If people don’t engage in your writing, no amount of serialization or free downloads is going to matter. You have to write something worth reading, and often it takes time to get at that level.
+ - I didn’t mind getting old when I was young. It’s the being old now that’s getting to me.
+ - I will not let my sales figures dictate what I say on the blog, because the blog is what I want to say.
+ - Don’t discount that part of who he was just because you didn’t know it. None of us are all of who we are to any one person.
+
+44 quotes

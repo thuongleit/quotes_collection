@@ -1,0 +1,46 @@
+ - Greatness begins beyond your comfort zone. ~~Robin S. Sharma
+ - Greatness is a lot of small things done well. ~~Eric Thomas
+ - The world promises you comfort, but you were not made for comfort. You were made for greatness. ~~Pope Benedict XVI
+ - Go for greatness. Anything else is a waste of time. ~~Marianne Williamson
+ - You can be anything you want to be, if only you believe with sufficient conviction and act in accordance with your faith; for whatever the mind can conceive and believe, it can achieve. ~~Napoleon Hill
+ - Greatness lives on the edge of destruction. ~~Will Smith
+ - You have something special, you have GREATNESS within you! ~~Les Brown
+ - Surround yourself with those who see greatness within you, even when you don’t see it yourself! ~~Zig Ziglar
+ - Don’t just accept whatever comes your way in life. You were born to win; you were born for greatness; you were created to be a champion in life. ~~Joel Osteen
+ - Service to others leads to greatness. ~~Jim Rohn
+ - Recycle your pain, allow your pain to reach you to greatness... ~~Eric Thomas
+ - We will be relentless in our pursuit for perfection. We won’t ever be perfect – but in the process we will achieve greatness. ~~Vince Lombardi
+ - People often ask me if I know the secret of success and if I could tell others how to make their dreams come true. My answer is, you do it by working. ~~Walt Disney
+ - For it is in giving that we receive. ~~Francis of Assisi
+ - Know that transformation sometimes begins with a fall. So never curse the fall. The ground is where humility lives. Take it. Learn it. Breathe it in. And then come back stronger, humbler and more aware of your need for Him. Come back having seen your own nothingness and His greatness. ~~Yasmin Mogahed
+ - You have something special. You have greatness in you. You have the ability to do more than you can ever begin to imagine. ~~Les Brown
+ - It is a rough road that leads to the heights of greatness. As is a tale, so is life: not how long it is, but how good it is, is what matters. ~~Seneca the Younger
+ - By constant self-discipline and self-control you can develop greatness of character. Grenville Kleiser Discipline is the bridge between goals and accomplishment. ~~Jim Rohn
+ - An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity. ~~Martin Luther King Jr.
+ - America is not a mere body of traders; it is a body of free men. Our greatness is built upon our freedom – is moral, not material. We have a great ardor for gain; but we have a deep passion for the rights of man. ~~Woodrow Wilson
+ - Be undeniably good. ~~Steve Martin
+ - The few who do are the envy of the many who only watch. ~~Jim Rohn
+ - The tempt for greatness is the biggest drug in the world. ~~Mike Tyson
+ - Without a sense of urgency, desire loses its value. ~~Jim Rohn
+ - Chase the vision, not the money. The money will end up following you. ~~Tony Hsieh
+ - Age is whatever you think it is. You are as old as you think you are. ~~Muhammad Ali
+ - For every disciplined effort there is a multiple reward. ~~Jim Rohn
+ - You cannot change your destination overnight, but you can change your direction overnight. ~~Jim Rohn
+ - Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. ~~Marcus Aurelius
+ - To hell with circumstances; I create opportunities. ~~Bruce Lee
+ - Be so good they can’t ignore you. ~~Steve Martin
+ - Giving is better than receiving because giving starts the receiving process. ~~Jim Rohn
+ - Failure is simply a few errors in judgment, repeated every day. ~~Jim Rohn
+ - When I'm old and dying, I plan to look back on my life and say, ‘Wow, that was an adventure,’ not, ‘Wow, I sure felt safe.’ ~~Tom Preston-Werner
+ - Ever since I was a child I have had this instinctive urge for expansion and growth. To me, the function and duty of a quality human being is the sincere and honest development of one’s potential. ~~Bruce Lee
+ - Greatness exists in all of us. ~~Will Smith
+ - Whatever good things we build end up building us. ~~Jim Rohn
+ - Always look at what you have left. Never look at what you have lost. ~~Robert H. Schuller
+ - The Constitution was not made to fit us like a straitjacket. In its elasticity lies its chief greatness. ~~Woodrow Wilson
+ - I just feel that my competitive drive is far greater than anyone else that I’ve met, and I think that I thrive on that. ~~Michael Jordan
+ - Whoever renders service to many puts himself in line for greatness – great wealth, great return, great satisfaction, great reputation, and great joy. ~~Jim Rohn
+ - Great men are like eagles, and build their nest on some lofty solitude. ~~Arthur Schopenhauer
+ - Affirmation without discipline is the beginning of delusion. ~~Jim Rohn
+ - The difficulties you meet will resolve themselves as you advance. Proceed, and light will dawn, and shine with increasing clearness on your path. ~~Jim Rohn
+
+44 quotes

@@ -1,0 +1,94 @@
+ - Armageddon was yesterday, today we have a serious problem.
+ - Impulsive actions led to trouble, and trouble could have unpleasant consequences.
+ - Friendship- my definition- is built on two things. Respect and trust. Both elements have to be there. And it has to be mutual. You can have respect for someone, but if you don’t have trust, the friendship will crumble.
+ - Don’t ever fight with Lisbeth Salander. Her attitude towards the rest of the world is that if someone threatens her with a gun, she’ll get a bigger gun.
+ - Nobody can avoid falling in love. They might want to deny it, but friendship is probably the most common form of love.
+ - Been there, done that, got the T-shirt.
+ - To exact revenge for yourself or your friends is not only a right, it’s an absolute duty.
+ - But if you want to win, you’re going to have to fight.
+ - There are no innocents. There are, however, different degrees of responsibility.
+ - If love is liking someone an awful lot, then I suppose I’m in love with several people.
+ - He’s pulling the load of an ox and walking on eggshells.
+ - I will write a couple of books and become a millionaire.
+ - What she had realised was that love was that moment when your heart was about to burst.
+ - It doesn’t matter how good the enemy’s weapons are. If he can’t see you, he can’t hit you. Cover, cover, cover. Make sure you’re never exposed.
+ - Don’t exaggerate. Just give your natural bitchy selves full rein.
+ - Always retain the ability to walk away, without sentimentality, from a situation that felt unmanageable. That was a basic rule of survival. Don’t lift a finger for a lost cause.
+ - Salander never forgets an injustice, and by nature she was anything but forgiving.
+ - I have been threatened occasionally. But that happens to everybody who is writing this kind of things. Threats will come without fail. It might happen to the most ‘innocent’ texts. If it gets too much we call the police.
+ - The whole organization seemed to be in free fall, indulging in a collective fantasy in which experienced colleagues refused to admit that their every movement, every decision that was made and implemented, only led them one step closer to the abyss.
+ - As the situation developed, the futility of attempting suicide in the middle of a hospital became apparent.
+ - Candy within reach and then I have to go on a diet.
+ - There was a whole army of people who seemed not to have anything better to do than to try to disrupt her life, and, if they were given the opportunity, to correct the way she had chosen to live it.
+ - Oppurtunity Makes the Thief.
+ - A journalist finds out things by asking questions of people who know.
+ - As a girl, she was a legal prey, especially if she was dressed in a worn black leather jacket and had pierced eyebrows, tattoos, and zero social status.
+ - You’re an entropic chaos factor.
+ - Martin was dafter than a syphilitic polecat – where do I get these metaphors from?
+ - Everyone has secrets. It’s just a matter of finding out what they are.
+ - I’m unhappy. I don’t want to fall in love with you. It’ll hurt far too much when it’s over.
+ - No, I don’t believe in God, but I respect the fact that you do. Everyone has to have something to believe in.
+ - She’s married. I’m more a friend and occasional lover.
+ - Salander was the woman who hated men who hate women.
+ - Her absence had felt like torture – almost a form of personal punishment. He had nobody to discuss his feelings with, and for the first time he realised with appalling clarity what a destructive hold she had over him.
+ - To Sally, who showed me the benefits of the sport of golf.
+ - Consider this a fair warning.
+ - It did no good to cry, she had learned that early on. She had also learned that every time she tried to make someone aware of something in her life, the situation just got worse. Consequently it was up to her to solve her problems by herself, using whatever methods she deemed necessary.
+ - Those pointless equations, to which no solution exists, are called absurdities.
+ - I’m not going to apologize for the way I’ve led my life.
+ - But she wished she had had the guts to go up to him and say hello. Or possibly break his legs, she wasn’t sure which.
+ - You walk around feeling like a teenager and immortal your whole life, and suddenly there isn’t much time left.
+ - Isn’t it fascinating that Nazis always manage to adopt the word freedom?
+ - I’m aware of what you’ve done for me, and I’m not ungrateful. I appreciate that you actually showed yourself to be greater than your prejudices and have given me a chance here. But I don’t want you for my lover, and you’re not my father.
+ - He felt that he had to find Salander and hold her close. She would probably bite him if he tried.
+ - I’m a fast writer, and crime novels are easy to do. It’s much harder to write a 1,000 word article, where everything has to be 100 per cent correct.
+ - Keep in mind that I’m crazy, won’t you?
+ - I’ve read crime fiction all my life. A thing that’s bothered me about crime fiction is that it’s generally about one or two people, but there’s not much about society. I want to get away from that particular pattern: a lead, a supporting role and backdrop characters.
+ - It proved once again the theory that no security system is a match for a stupid employee.
+ - Only a woman who had killed a man in battle was allowed to give up her virginity.
+ - Salander was afraid of no-one and nothing. She realized that she lacked the necessary imagination – and that was evidence enough that there was something wrong with her brain.
+ - History is reticent about women who were common soldiers, who bore arms, belonged to regiments, and took part in battles on the same terms as men, though hardly a war has been waged without women soldiers in the ranks.
+ - She saw him drenched with gasoline. She could actually feel the box of matches in her hand.
+ - Taking away a person’s control of her own life – meaning her bank account – is one of the greatest infringements a democracy can impose, especially when it applies to young people. It is an infringement even if the intent may be perceived as benign and socially valid.
+ - I have a truly marvellous demonstration of this proposition which this margin is too narrow to contain.
+ - What an excellent tool the internet is for freaks.
+ - Faste knew better than to argue with a doctor, since they were the closest things to God’s representatives here on Earth.
+ - We need to have a talk on the subject of what’s yours and what’s mine.
+ - Every year Swedish society produces a new generation of threatened women who can testify to the lack of legal rights and the lukewarm interest shown by the police and other authorities.
+ - He comes off a little like Practical Pig in The Three Little Pigs.
+ - I believe that everyone has it in them to kill another person. In desperation, or hatred, or at least to defend themselves.
+ - When this is all over I’m going to found an association called ‘The Knights of the Idiotic Table’ and its purpose will be to arrange an annual dinner where we tell stories about Lisbeth Salander. You’re all members.
+ - It did no good to cry, she had learned that early on.
+ - I am not altogether confident of my ability to put my thoughts into words: My texts are usually better after an editor has hacked away at them, and I am used to both editing and being edited. Which is to say that I am not oversensitive in such matters.
+ - Normally seven minutes of another person’s company was enough to give her a headache so she set things up to live as a recluse. She was perfectly content as long as people left her in peace. Unfortunately society was not very smart or understanding.
+ - Then I discovered that being related is no guarantee of love!
+ - Men could be as big as a house and made of granite, but they all had balls in the same place.
+ - It was completely impossible to box with her. She had only one style, which we called Terminator Mode. She would try to nail her opponent, and it didn’t matter if it was just a warm-up of friendly sparring.
+ - Mimi was massaging Salander’s back and neck. She had been kneading intently for 20 minutes while Salander mainly enjoyed herself and uttered an occasional groan of pleasure. A massage from Mimi was a fantastic experience, and she felt like a kitten who just wanted to purr and wave its paws around.
+ - It was troubling that one of the few people she trusted was a man she spent so much time avoiding.
+ - In ordinary detective novels you never see the consequences of what happens in a story in the next book. That you do in mine.
+ - When their love was not reciprocated, it could quickly turn to violent hatred.
+ - No matter how hard she tried to concentrate on something else, to pass the time and to distract her from the situation she was in, the fear came trickling out. It hovered like a cloud of gas around her, threatening to penetrate her pores and poison her.
+ - She wondered what she thought of herself, and came to the realization that she felt mostly indifference towards her entire life.
+ - Plague might be a social incompetent, but he was unquestionably a genius.
+ - His attitude had always been that if a woman clearly indicated that she did not want anything more to do with him, he would go on his way. Not respecting such a message would in his eyes, show a lack of respect for her.
+ - I don’t know if I want a steady relationship, but I’m terrified of losing you.
+ - Lie rather still because this is the first time I’ve used this equipment.
+ - Take “no” as an encouragement to redouble his efforts, so it was easier to say “yes” right away.
+ - I abhor crime novels in which the main character can behave however he or she pleases, or do things that normal people do not do, without those actions having social consequences.
+ - There were not so many physical threats that could not be countered with a decent hammer.
+ - In the evening he went to the cinema to see “The Lord of the Rings”, which he had never before had time to see. He thought that orcs, unlike human beings, were simple and uncomplicated creatures.
+ - I started to write in 2001. I wrote the books for the fun of it. It was an old idea I had had since the nineties.
+ - Men who just call to say hello generally have ulterior motives.
+ - When other people are grieving, the newspaperman turns efficient.
+ - From a purely physical standpoint she didn’t have a chance, but her attitude was that death was better than capitulation.
+ - She had put on make-up in a colour scheme that indicated she might be colourblind.
+ - Salander’s fingers emerged like something dead from beneath the earth. Had there been any human watching, he would probably have reacted like the fox. He was gone like a shot.
+ - Writing detective stories is about writing light literature, for entertainment. It isn’t primarily a question of writing propaganda or classical literature.
+ - He often wondered whether it were possible to be more possessed by desire for any other woman. The fact was that they functioned well together, and they had a connection as addictive as heroin.
+ - Cortez looked like someone newly in love, the way only twenty-four-year-olds can look.
+ - Sometimes they were together so often that it felt as though they really were a couple; sometimes weeks and months would go by before they saw each other. But even as alcoholics are drawn to the state liquor store after a stint on the wagon, they always came back to each other.
+ - Salander leaned back against the pillow and followed the conversation with a smile. She wondered why she, who had such difficulty talking about herself with people of flesh and blood, could blithely reveal her most intimate secrets to a bunch of completely unknown freaks on the Internet.
+ - The media have the ability to attract the craziest people to call in perfectly absurd tips. Every newsroom in the world gets updates from UFOlogists, graphologists, scientologists, paranoiacs, and every sort of conspiracy theorist.
+
+92 quotes

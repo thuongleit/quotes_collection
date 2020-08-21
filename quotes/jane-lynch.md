@@ -1,0 +1,43 @@
+ - You can’t make a cloudy day a sunny day, but can embrace it and decide it’s going to be a good day after all.
+ - Artists are free to push boundaries to make art. But when pushing boundaries is their only aim, the result is usually bad art.
+ - A lot of people are curious why I’m a lesbian. Ladies and gentlemen, the cast of Entourage!
+ - I try not to plan ahead. I just kind of try to think in the moment. I always believe everything will work out the way it’s supposed to.
+ - Don’t deprive yourself of the exciting journey your life can be when you relinquish the need to have goals and a blueprint.
+ - Stay fluid and roll with those changes. Life is just a big extended improvisation.
+ - You just have to decide how close you want them. Not every person in your life needs to be your best friend: some can be friends or just friendly acquaintances.
+ - That was the most offensive thing I’ve ever seen in 20 years of teaching – and that includes an elementary school production of hair.
+ - Making people laugh is a really fabulous thing because it means you’re getting deep inside somebody, into their psyche, and their ability to look at themselves.
+ - I just had to be strong enough to allow myself to be vulnerable. Great Lesson. For art and for life.
+ - Football is very masculine and, to me, a metaphor for war.
+ - When I was a kid, I wanted to be a boy. I really had gender issues. I really thought I was supposed to be a boy. I used to sneak into my dad’s room and put on a suit, drink a cocktail, and pretend to smoke a cigarette.
+ - I waved to you outside but then I realized it was just one of those inflatable parking lot gorillas.
+ - No one’s just going to hand you a career. I waited for years for someone to hand me one and it never happened.
+ - I’ve just always loved singing, and I come from a family that loves singing around the kitchen table.
+ - I know it sounds new age-y, but what I’ve truly come up with is that you really need to trust that you’re on your own path, as long as you stay true to it and you show up, which is 99% of it.
+ - My first love, in my head, believe it or not, was Ron Howard.
+ - The place you have to start to be any good at this, at acting, is with yourself. Everything is inside of you, all of it – the murderer, the great mother, the therapist, the husband. Everything is inside of us.
+ - I spent so much of my younger life drinking, and being drunk makes learning to be a grown-up kind of hard.
+ - I stopped watching television like a fiend once I got into college.
+ - I can still impress my family, yeah. In fact, I always text my family when I meet someone famous. I ran into Anna Faris and I texted my niece, and I said “Just hugged it out with Anna Faris,” and she was like, “Oh my God! OMG! OMG!” She got a big kick out of it.
+ - But now that I’ve matured, I’ve realized that – at the end of the day – what’s really important is the work, not what people think of me.
+ - Seeing your work in something animated, you realize how little you have to do with all of it. It’s always a surprise, and its always exciting to see. You never know what is going to happen when you’re in that room by yourself.
+ - Steve Carell, we’ve been nodding at each other for years now.
+ - You have the script in front of you. It doesn’t involve your body. It’s all about your voice. And its fast work. Its also very lonely work. You are by yourself. Very rarely are you in a group. You act with yourself, and someone else mumbles the lines back at you. If at all.
+ - I was not the kid that hung out at the arcade.
+ - I don’t wear particular designers. I wear whoever fits me well.
+ - I have acting technique; I have singing technique; I don’t have a writing technique to fall back on.
+ - I go to coffee shops for my outlet. Which is just not healthy at all.
+ - I was a huge ‘Friends’ fan. I had a very small part. I played a real-estate agent in the very last season.
+ - I have to admit that I was a little nervous when I showed up for my first official ‘Wreck-It Ralph’ recording session.
+ - I know that Marianne Williamson cannot be bought.
+ - It’s a world where high school students look roughly twenty-four.
+ - I’m a person who likes habit and knowing what my job is.
+ - To this day, I still would choose the angst over something easier, when I really don’t have to.
+ - I’m kind of a manic exerciser. I’ll like exercise for a week and be crazy, and then I won’t do it for six months.
+ - Along time ago I asked myself do I want to be right or do I want to be kind; I opted for kind.
+ - When I was younger, I actually wanted to be in the spotlight. To have people want me, want to have a piece of me.
+ - I’m kind of a ‘Fix-It Felix’ video girl. I like the simpler, sweeter kind of games.
+ - I do like to go to movies. I like to be in the theater. I like the event of it.
+ - I never went through a biological clock experience. I never even heard it ticking.
+
+41 quotes

@@ -1,0 +1,45 @@
+ - Pennsylvania is Philadelphia and Pittsburgh with Alabama in between.
+ - If you say three things, you don’t say anything.
+ - Don’t get mad. Don’t get even. Just get elected, then get even.
+ - Republicans want smaller government for the same reason crooks want fewer cops; it’s easier to get away with murder.
+ - I think the Democratic Party has the chronic problem of appearing to be weak, of not standing and fighting for what it believes in, not fighting for its own.
+ - Never underestimate people.
+ - Truth is relative. Truth is what you can make the voter believe is the truth. If you’re smart enough, truth is what you make the voter think it is. That’s why I’m a Democrat. I can make the Democratic voters think whatever I want them to.
+ - There’s a simple doctrine. Outside of a person’s love the most sacred thing they can give is their labor. Labor is a very precious thing you have and any time you can combined labor and love you’ve really made a match.
+ - The voter is basically dumb and lazy. The reason I became a Democratic operative instead of a Republican was because there were more Democrats that didn’t have a clue than there were Republicans.
+ - Sometimes the right thing gets done for the wrong reason and sometimes, unfortunately, the wrong thing gets done for the right reason.
+ - These are the people who don’t believe in evolution or global warming. So, why would they believe default would hurt anything?
+ - Drag a $100 bill through a trailer camp and there’s no telling what you will find.
+ - Winning an argument with your wife is like winning the war with Iraq. Once you win, you’re in even more trouble.
+ - I used to think that if there was reincarnation, I wanted to come back as the president or the pope or as a .400 baseball hitter. But now I would like to come back as the bond market. You can intimidate everybody.
+ - When you become famous, being famous becomes your profession.
+ - I didn’t just experiment with marijuana – if you know what I mean.
+ - You don’t need a guidebook to see New Orleans – just a good pair of shoes.
+ - This is not class warfare, this is generational warfare. This administration and old wealthy people have declared war on young people. That is the real war that is going on here. And that is the war we’ve got to talk about.
+ - You know there’s nothing a Hill Democrat would rather do than criticize another Democrat. It is their favorite activity. Then they can read about how honorable they are in an Op-Ed piece, how bipartisan.
+ - If you didn’t have some sense of idealism, then what is there to sustain you?
+ - The teachings of the Church line up more with the Democratic Party than the Republican Party.
+ - If you want to be angry at Gore, be angry at him for not fighting harder in Florida.
+ - Ideologies aren’t all that important. What’s important is psychology.
+ - It’s hard to think that you’re a political consultant – not many people are going to get a crack at a thing like this.
+ - I think that America will not trust a party to defend America that isn’t willing to defend itself.
+ - I think Ralph Nader is the biggest liar in American politics when he said it didn’t matter who was president.
+ - Republicans now have their own network in Fox, so guys who don’t like to answer questions, like Trent Lott, have a place to go to hit softballs.
+ - You have to have sharp elbows if you want to change something.
+ - I’ve never seen a candidate – I’ve never seen a human being – who, with the most limited briefing, can understand the dimensions, the parameters, the nuances of everything of any kind of a policy or political problem.
+ - They seem to be getting it together. How much damage will the picture of people spending four or five days on rooftops do That depends on how well it goes from here on out.
+ - Sometimes a mind is like a mouth: you just got to shut it.
+ - The only politician in America I know with a man-date is Jim McGreevey.
+ - What I’m suggesting is, stand for yourself, be for something and the hell with it. Because the hand-wringers and the editorialists and the sigh-and-pontificate crowd will be against you, whatever you do.
+ - What does he stand for?
+ - The country feels like it’s entitled to abuse this state and forget about us, and we are sick of it.
+ - All the wrong people are against it, so it must be right.
+ - The only thing I’m running for is the state line.
+ - Washington is a dirty diaper. It’s time for a change.
+ - If Hillary gave up one of her balls and gave it to Obama, he’d have two.
+ - As with mosquitoes, horseflies, and most bloodsucking parasites, Kenneth Starr was spawned in stagnant water.
+ - We should not run away from religious teachings. We should run to them.
+ - But I’d rather not predict. I’d rather affect.
+ - No one will ever accuse James Carville of taking himself seriously.
+
+43 quotes

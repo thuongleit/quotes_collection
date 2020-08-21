@@ -1,0 +1,50 @@
+ - It is a truth universally acknowledged that when one part of your life starts going okay, another falls spectacularly to pieces.
+ - I will not Drink more than fourteen alcohol units a week.
+ - It is proved by surveys that happiness does not come from love, wealth, or power but the pursuit of attainable goals.
+ - Oh God, what’s wrong with me? Why does nothing ever work out?
+ - One must not live one’s life through men but must be complete on oneself as a woman of substance.
+ - I am brave, though I am alone.
+ - Sink into morbid, cynical reflection on how much romantic heartbreak is to do with ego and miffed pride rather than actual loss.
+ - It’s rather fun writing a female spy, because she has so much more kit. Bond never carried a hair dryer or a makeup bag. And he certainly didn’t wear an uplift bra.
+ - Women today are bombarded with so many messages, like we should have Naomi Campbell’s body and Madeleine Albright’s career.
+ - Tom has a theory that homosexuals and single women in their thirties have natural bonding: both being accustomed to disappointing their parents and being treated as freaks by society.
+ - Can officially confirm that the way to a man’s heart these days is not through beauty, food, sex, or alluringness of character, but merely the ability to seem not very interested in him.
+ - I will not fall for any of the following: alcoholics, workaholics, commitment phobics, people with girlfriends or wives, misogynists, megalomanics, chauvists, emotional fuckwits or freeloaders, perverts.
+ - That is such crap. How dare you be so fraudulently flirtatious, cowardly and dysfunctional? I am not interested in emotional fuckwittage. Goodbye.
+ - I will not sulk about having no boyfriend, but develop inner poise and authority and sense of self as woman of substance, complete without boyfriend, as best way to obtain boyfriend.
+ - No one is thinking about you. They’re thinking about themselves, just like you.
+ - I will not get upset over men, but instead be poised and cool ice-queen.
+ - Don’t say ‘what,’ say ‘pardon,’ darling, and do as your mother tells you.
+ - When someone loves you it’s like having a blanket all round your heart...
+ - You’ll never get a boyfriend if you look like you wandered out of Auschwitz.
+ - Valentine’s Day purely commercial, cynical enterprise, anyway. Matter of supreme indifference to me.
+ - It is horrid to smirk.
+ - I’m no good at anything. Not men. Not social skills. Not work. Nothing.
+ - I come from Yorkshire in England where we like to eat chip sandwiches – white bread, butter, tomato ketchup and big fat french fries cooked in beef dripping.
+ - As women glide from their twenties to thirties, Shazzer argues, the balance of power subtly shifts. Even the most outrageous minxes lose their nerve, wrestling with the first twinges of existential angst: fears of dying alone and being found three weeks later half-eaten by an Alsatian.
+ - In the end there is nothing more unattractive to men than radical feminism.
+ - But if you are single the last thing you want is your best friend forming a functional relationship with somebody else.
+ - Nobody wants to be racist and I think that most people aren’t.
+ - I am a child of Cosmopolitan culture, have been traumatized by supermodels and too many quizzes and know that neither my personality nor my body is up to it if left to its own devices. I can’t take the pressure.
+ - I made my excuses and left, thinking, really, after a certain age, people are just going to do what they’re going to do and you’re either going to accept them as they are or you’re not.
+ - It struck me as pretty ridiculous to be called Mr. Darcy and to stand on your own looking snooty at a party. It’s like being called Heathcliff and insisting on spending the entire evening in the garden, shouting “Cathy” and banging your head against a tree.
+ - I realize it has become too easy to find a diet to fit in with whatever you happen to feel like eating and that diets are not there to be picked and mixed but picked and stuck to, which is exactly what I shall begin to do once I’ve eaten this chocolate croissant.
+ - I was writing an earnest novel about cruises in the Caribbean and I just started writing ‘Bridget Jones’ to get some money, to finance this earnest work, and then I chucked it out.
+ - Reminded of favorite poem by Wendy Cope which goes: At Christmas little children sing and merry bells jingle. The cold winter air makes our hands and faces tingle. And happy families go to church and cheerily they mingle, And the whole business is unbelievably dreadful if you’re single.
+ - I think that when you’re writing fiction what you’re doing is reflecting life as you see it, and putting down how you think and how other people think, and the sort of confusions that you don’t normally like to admit to.
+ - Eventually, I manage to cheer Mum up by allowing her to go through my wardrobe and criticize all my clothes...
+ - There are so many images pushed at women and so many ideas of what you’re supposed to be. I think there’s too much of this superwoman, this woman with a bottom like two billiard balls. There’s no real celebration of just being a person.
+ - Singletons should not have to explain themselves all the time but should have an accepted status – like geisha girls do.
+ - I always market research my books before I hand them in by showing them to five or six close friends who I trust to be honest with me, so they are very heavily re-written already.
+ - If we can’t have comedy books written about aspects of womanhood without going into a panic attack about it, then we haven’t got very far at being equal.
+ - It occurred to me that if Africa needed us, sometimes we needed Africa a great deal more.
+ - Dieting on New Year’s Day isn’t a good idea as you can’t eat rationally but really need to be free to consume whatever is necessary, moment by moment, in order to ease your hangover. I think it would be much more sensible if resolutions began generally on January the second.
+ - Exes should never, never go out with or marry other people but should remain celibate to the end of their days in order to provide you with a mental fallback position.
+ - My books have all generated controversy.
+ - I certainly think I’ll end up writing about America in some form. I’ve taken plenty of notes. I like America very much.
+ - Comedy tends to come out of things which are quite painful and serious.
+ - Quite quickly I grew less deranged. I had begun the process of calming down, assimilating and compromising, which is necessary to live comfortably in the world as it is, and probably is why its imbalance never changes. But underneath, my idea of life was completely altered.
+ - You see, things being good has nothing to do with how you feel outside, it is all to do with how you are inside.
+ - The whole point of diaries is that other people find them and read what you’ve put. I did once take to writing my inner thoughts on the computer at the end of other things I was writing and ended up faxing four pages of hideous stuff to my accountant so I don’t do that now.
+
+48 quotes

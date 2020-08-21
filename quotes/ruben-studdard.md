@@ -1,0 +1,41 @@
+ - If you eat good, you feel good. I would encourage every body else to do the same.
+ - I think I look good. I think I look real good.
+ - I don’t want to be a one-hit wonder.
+ - People just take your kindness for weakness sometimes, and that’s just the bottom line.
+ - I’m always happy for people when I see God blessing them the way he’s blessed me.
+ - People don’t have to like or support you. So you always have to say thank you.
+ - Some find it in their lovers eyes, who can deny the joy it brings. When you’ve found that special thing, you’re flying without wings.
+ - You have to learn that if you start making sure you feel good, everything will be okay.
+ - I’m racing against me. As long as I come across the finish, I’ll be okay.
+ - My mother always taught me, even my dad, just never let other people’s opinions of you shape your opinion of yourself. And I never have and I never will.
+ - Dairy products are not good for a singer.
+ - I have a greater goal – to empower young people through music education.
+ - I just never let anything bother me, man. I know myself really well. Nobody’s opinion of me can shake my opinion of myself.
+ - I don’t have any concerns about my weight. I’ve always been healthy. I eat right. I’m just a big dude. I’ve always been happy with the person I am. So that will never change.
+ - The only thing about my life that’s really changed is the fact that a lot of people know me now. I’m still the same person.
+ - I mean I’ve always been a big dude.
+ - But I also live to perform and I’ve been performing my whole life, whether it’s been in sports or you know in band or with my singing.
+ - I never want to try to be a spokesperson for health and wellness because I most definitely am not the most in shape person in the world.
+ - And I just pray that god gives me longevity in the music industry.
+ - I mean always had a lot of self-confidence.
+ - I’m in the process of brainstorming with my marketing team and all that stuff, trying to come up with a concept for a late-night restaurant for people in Birmingham.
+ - Because I gave myself – I left school after the second semester of my junior year to pursue a career in music. and I gave myself five years to make it and I made it in three.
+ - I’ve never had any health problems and I’m Ruben, man, all the way through.
+ - I like doing theaters. I like being up close and personal with the fans. It’s really cool.
+ - I just want to make good music that, you know, appeals to all people, man. I want to branch out and you know just have a lot of multiplatinum albums.
+ - I think the best part for me is just being able to perform for people every week.
+ - I feel like I have been totally blessed with everything that I have done.
+ - The schedule is really crazy and the fans are sometimes kind of crazy, but other than that it’s been – it’s been cool.
+ - I don’t like to be a preacher or anything, but the one thing that I’ve learned is that you truly are what you eat.
+ - We became somewhat household names really quickly, within a matter of – what? – three, four months. So it’s hard to get used to, and it’s really sometimes hard to understand.
+ - And to be able to do it, to be able to accomplish the goal you’ve always set for yourself is always a blessing.
+ - So I’ve never in my whole life really been teased about my weight.
+ - I am comfortable with anything I sing: jazz, gospel, classical. It doesn’t matter. I can do it all.
+ - You can be confident and secure and know that you do a good job at what you do. But you don’t know to be arrogant about it.
+ - You know, I played football, I was offensive tackle in college.
+ - I never knew that the things I wanted to do would come this fast, but this is the route that God took me, and so I’m excited.
+ - I’ve been blessed because there are a lot of great singers out there that didn’t make it past their first album.
+ - I feel as if I’ve been able to do so many things I never expected to do.
+ - I’m not in the best shape, but I want to prove to myself I can do something that seems insurmountable and inspire others by showing them no matter where they are in their fitness goals, they can do it, too.
+
+39 quotes

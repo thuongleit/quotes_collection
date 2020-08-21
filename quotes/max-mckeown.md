@@ -1,0 +1,24 @@
+ - All failure is failure to adapt, all success is successful adaptation.
+ - The real heart of strategy is the strategist.
+ - A great strategy meeting is a meeting of minds.
+ - Strategy is about shaping the future.
+ - Change is inevitable, progress is not.
+ - Brilliant strategy is the best route to desirable ends with available means.
+ - If you change the rules of the market, you can be more successful than your competitors.
+ - Change is not overcoming inertia as much as it is redirecting, guiding, tweaking what already is and what has already happened. We must believe that we can make choices and that those choices can alter the future.
+ - With a clever strategy, each action is self-reinforcing. Each action creates more options that are mutually beneficial. Each victory is not just for today but for tomorrow.
+ - Strategy and culture should have breakfast together.
+ - The smart strategist allows strategy to be shaped by events. Good reactions can make great strategy. Strategy involves competition of goals, and the risk is the difference between those goals and the ability of the organization to achieve them. So part of the risk is created by the strategy.
+ - Corporate strategy is usually only useful if you get people engaged with helping you to make it work.
+ - Strategy is not a solo sport, even if you’re the CEO.
+ - Doing nothing requires effort. Over time, that effort is greater than the effort necessary to improve, or move somewhere better. The trick is to redirect energy.
+ - Innovation is new stuff that is made useful.
+ - We need to move from comparative advantage to perpetual advantage...
+ - Whenever a maker and a thinker get together, really cool stuff happens.
+ - Following the rules of your industry will only get you so far.
+ - Our need for innovation has shifted power closer to the source of that power-Us. We are the future.
+ - Strategists who don’t take time to think are just planners.
+ - The task of the strategist and leadership team is to reduce uncertainty in the areas that they can directly influence in order to pursue attractively difficult objectives.
+ - What are you doing at the moment? How does that compare to your competitors? What do you want to achieve? How can you create something people want?
+
+22 quotes

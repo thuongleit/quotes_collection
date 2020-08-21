@@ -1,0 +1,46 @@
+ - Follow your heart but take your brain with you.
+ - Trust only movement. Life happens at the level of events, not of words. Trust movement.
+ - You can be healed of depression if every day you begin the first thing in the morning to consider how you will bring a real joy to someone else.
+ - My psychology belongs to everyone.
+ - Everything can always be different!
+ - Overcoming difficulties leads to courage, self-respect, and knowing yourself.
+ - There is a courage of happiness as well as a courage of sorrow.
+ - Life is just the same as learning to swim. Do not be afraid of making mistakes, for there is no other way of learning how to live!
+ - Men of genius are admired, men of wealth are envied, men of power are feared; but only men of character are trusted.
+ - It is easier to fight for one’s principles than to live up to them.
+ - Play is a child’s work and this is not a trivial pursuit.
+ - I am grateful for the idea that has used me.
+ - A lie would have no sense unless the truth were felt as dangerous.
+ - All failures – neurotics, psychotics, criminals, drunkards, problem children, suicides, perverts, and prostitutes – are failures because they are lacking in social interest.
+ - Nobody adopts antisocial behaviour unless they fear that they will fail if they remain on the social side of life.
+ - To be human means to feel inferior.
+ - The goal of the human soul is conquest, perfection, security, superiority.
+ - There is only one reason for an individual to side-step to the useless side : the fear of a defeat on the useful side.
+ - All failures are so because they lack social interest.
+ - The style of life is a unity because it has grown out of the difficulties of early life and out of the striving for a goal.
+ - Mathematics is pure language – the language of science. It is unique among languages in its ability to provide precise expression for every thought or concept that can be formulated in its terms.
+ - The only worthwhile achievements of man are those which are socially useful.
+ - The feeling of inferiority rules the mental life and can be clearly recognized in the sense of incompleteness and unfulfillment, and in the uninterrupted struggle both of individuals and humanity.
+ - More important than innate disposition, objective experience, and environment is the subjective evaluation of these. Furthermore, this evaluation stands in a certain, often strange, relation to reality.
+ - The self-bound individual always forgets that his self would be safeguarded better and automatically the more he prepares himself for the welfare of mankind, and that in this respect no limits are set for him.
+ - In the company of friends, writers can discuss their books, economists the state of the economy, lawyers their latest cases, and businessmen their latest acquisitions, but mathematicians cannot discuss their mathematics at all. And the more profound their work, the less understandable it is.
+ - If you wish to educate a child who has gone wrong, then you must, above all, keep your attention fixed on the intersection of two charmed circles.
+ - We must never neglect the patient’s own use of his symptoms.
+ - It is well known that those who do not trust themselves never trust others.
+ - In a country of such recent civilization as ours, whose almost limitless treasures of material wealth invite the risks of capital and the industry of labor, it is but natural that material interests should absorb the attention of the people to a degree elsewhere unknown.
+ - To all those who walk the path of human cooperation war must appear loathsome and inhuman.
+ - To see with the eyes of another, to hear with the ears of another, to feel with the heart of another. For the time being, this seems to me an admissible definition of what we call social feeling.
+ - It is easy to believe that life is long and one’s gifts are vast – easy at the beginning, that is. But the limits of life grow more evident; it becomes clear that great work can be done rarely, if at all.
+ - The widespread belief that Yuppies as a class would perish from Brie-cheese poisoning turned out to be over-optimistic.
+ - War is not the continuation of politics with different means, it is the greatest mass-crime perpetrated on the community of man.
+ - Each generation has its few great mathematicians, and mathematics would not even notice the absence of the others. They are useful as teachers, and their research harms no one, but it is of no importance at all. A mathematician is great or he is nothing.
+ - Every neurotic is partly in the right.
+ - To injure another person through atonement is one of the most subtle devices of the neurotic, as when, for example, he indulges in self-accusations.
+ - If I didn’t have this affliction, I would be the first. As a rule the if-clause contains an unfulfillable condition, or the patient’s own arrangement, which only he can change.
+ - What person, confined in a small room with nothing but a tea-cosy, will not eventually put the tea-cosy on their head?
+ - The mathematical life of a mathematician is short. Work rarely improves after the age of twenty-five or thirty. If little has been accomplished by then, little will ever be accomplished.
+ - Tears and complaints – the means which I have called water power – can be an extremely useful weapon for disturbing cooperation and reducing other to a condition of slavery.
+ - In this case, the neurotic resembles a human being who looks up to God, commends himself to His ways, and then religiously awaits how the Lord will guide him; he is nailed to the cross of his fiction.
+ - It is from among such individuals that all human failures spring.
+
+44 quotes

@@ -1,0 +1,42 @@
+ - Be your own hero, it’s cheaper than a movie ticket. ~~Douglas Horton
+ - In the great drama of existence we are audience and actors at the same time. ~~Niels Bohr
+ - The basic essential of a great actor is that he loves himself in acting. ~~Charlie Chaplin
+ - An actor has to burn inside with an outer ease. ~~Michael Chekhov
+ - Worship isn’t God’s show. God is the audience. God’s watching. The congregation, they are the actors in this drama. Worship is their show. And the minister is just reminding the people of their forgotten lines. ~~Soren Kierkegaard
+ - This whole creation is essentially subjective, and the dream is the theater where the dreamer is at once: scene, actor, prompter, stage manager, author, audience, and critic. ~~C.G. Jung
+ - Remember: there are no small parts, only small actors. ~~Konstantin Stanislavski
+ - I think there are advantages to different scales of filmmaking. You wouldn’t want to do just one thing. ~~Christopher Nolan
+ - I enjoy being a highly overpaid actor. ~~Roger Moore
+ - An animator is an actor with a pencil. ~~Chuck Jones
+ - Anyone can do theater, even actors. And, theater can be done everywhere, even in a theater. ~~Augusto Boal
+ - When searching for harmony in life one must never forget that in the drama of existence we are ourselves both actors and spectators. ~~Niels Bohr
+ - The world is full of actors pretending to be human. ~~J.D. Salinger
+ - The person you are is a thousand times more interesting than the best actor you could ever hope to be. ~~Konstantin Stanislavski
+ - Movies are like an expensive form of therapy for me. ~~Tim Burton
+ - We are all actors: being a citizen is not living in society, it is changing it. ~~Augusto Boal
+ - Everything I learned I learned from the movies. ~~Audrey Hepburn
+ - I became a dancer late and an actor late. ~~Mads Mikkelsen
+ - I am not born to just become an actor. ~~Salman Khan
+ - An actor entering through the door, you’ve got nothing. But if he enters through the window, you’ve got a situation. ~~Billy Wilder
+ - I became an actor so I can show you characters and never have to show you me. ~~Margot Robbie
+ - I became an actor so I didn’t have to be myself. ~~Mark Ruffalo
+ - Actors should never give interviews. ~~Daniel Day-Lewis
+ - Most actors hate watching their own films because all you can see is the glaring mistakes, your own tricks and ticks. ~~Eddie Redmayne
+ - What’s great about New York is that there are a lot of theater actors and actresses, who are trained actors, that they bring onto the show. They’re so talented, in such a weird, quirky and ominous way. And it’s great to be able to work with new faces, too. ~~Natalie Zea
+ - Being an actor lets me be a million different things. ~~Meryl Streep
+ - Secure writers don’t sell first drafts. They patiently rewrite until the script is as director-ready, as actor-ready as possible. Unfinished work invites tampering, while polished, mature work seals its integrity. ~~Robert McKee
+ - I’m an actor because I love movies, and always have loved movies. I’m a film buff. So, getting to work with those kinds of directors and getting to tell those stories is what I want to do. ~~Alden Ehrenreich
+ - My goal was just to work regularly. I didn’t ever expect to be rich or famous. I wanted to be a working character actor. ~~Harrison Ford
+ - Actors have to protect each other in a way. The idea of humiliating another actor or being humiliated myself is devastating. ~~Nicole Kidman
+ - Jim Carrey is a consummate actor and professional. He comes on set, knows his lines and knows his moves. ~~Christine Baranski
+ - Being the actors of the craft, the trade, one of the big things you do and you learn is about repeating. There is something to the repeats. I think that is part of what is healthy to young actors. Get out and learn something just through doing that, repeating. ~~Al Pacino
+ - Tom Cruise is one of the most successful actors of all time. ~~Ezra Koenig
+ - My kind of director is an actor-director who writes. ~~Orson Welles
+ - Young girls of 13 or 12 are great actors. ~~Dario Argento
+ - Music is the soundtrack to the crappy movie that is my life. ~~Chris Rock
+ - Reality is, I’m an actor and an entertainer, and I really wouldn’t know what to do with another profession. ~~Russell Crowe
+ - Filmmaking can be a fine art. ~~Terri Windling
+ - Every single Pixar film, at one time or another, has been the worst movie ever put on film. But we know. We trust our process. We don’t get scared and say, ‘Oh, no, this film isn’t working.’ ~~John Lasseter
+ - Everything changes once we identify with being the witness to the story, instead of the actor in it. ~~Ram Dass
+
+40 quotes

@@ -1,0 +1,41 @@
+ - Do it big, do it right and do it with style.
+ - If your gonna go down, go down swinging!
+ - For ballroom dancing, remember that your partners have their own distinctive styles also. Cultivate flexibility. Be able to adapt your style to that of your partner. In doing so, you are not surrendering your individuality, but blending it with that of your partner.
+ - Some people seem to think that good dancers are born, but all the good dancers I have known are taught or trained...
+ - Chance is the fool’s name for Fate.
+ - I don’t make love by kissing, I make love by dancing.
+ - Why didn’t you tell me i was in love with you?
+ - Can’t act. Can’t sing. Slightly bald. Can dance a little.
+ - I often take a brand-new suit or hat and throw it up against the wall a few times to get that stiff, square newness out of it.
+ - And that love that wrinkles your nose touches my foolish heart.
+ - If it doesn’t look easy it is that we have not tried hard enough yet.
+ - But I do nothing that I don’t like, such as “inventing” up to the arty or “down” to the corny. I happen to relish a certain type of corn. What I think is the really dangerous approach is the “let’s be artistic” attitude. I know that artistry just happens.
+ - It takes time to get a dance right, to create something memorable.
+ - I don’t like top hats, white ties, and tails.
+ - When you have a Dancing partner, there’s always gonna be a moment where the girl’s gonna cry, Ginger didn’t do that. But, most every other girl I’ve worked with have cried because they said “aah, I can’t do it” and I have to go “Yes, you can, Shut up!” and they do do it.
+ - People think I was born in top hat and tails.
+ - I am bit sending messages with my feet. All I ever wanted was not to come up empty. I did it for the dough and the old applause.
+ - Be yourself-but don’t be conspicuous.
+ - If we followed our own advice, we’d be successful.
+ - There comes a day when people begin to say: “Why doesn’t that old duffer retire?” I want to get out while they’re still saying Astaire is a hell of a dancer.
+ - I have no desire to prove anything by my work. I have never used it as an outlet or as a means of expressing myself. I just dance.
+ - Either the camera will dance, or I will.
+ - In dealing with a girl or a horse, one lets nature take its course.
+ - I’m just a hoofer with a spare set of tails.
+ - Oh, there’s no such thing as my favorite performance. I can’t sit here today and look back, and say: “Top Hat was better than Easter Parade or any of the others”. I just don’t look back, period. When I finish with a project, I say: “All right, that’s that. What’s next?”
+ - Oh, God! That boy moves in a very exceptional way. That’s the greatest dancer of the century.
+ - This search for what you want is like tracking something that doesn’t want to be tracked. It takes time to get a dance right, to create something memorable.
+ - I just told my agent to forget all other projects for me. I was waiting for Audrey Hepburn. She asked for me, and I was ready. This could be the last and only opportunity I’d have to work with the great and lovely Audrey Hepburn and I was not missing it. Period.
+ - If the dance is right, there shouldn’t be a single superfluous movement.
+ - Slippery stages were the terror of my life.
+ - Dancing is a sweat job.
+ - We attend to his later performances as a dramatic actor with respect, but watching the nondancing, nonsinging Astaire is like watching a grounded skylark.
+ - I don’t remember anybody ever pointing me out as a dancing prodigy, but I played a not bad second base.
+ - I had some ballet training but didn’t like it. It was like a game to me.
+ - It’s nice that all the composers have said that nobody interprets a lyric like Fred Astaire. But when it comes to selling records I was never worth anything particularly except as a collector’s item.
+ - I have never had anything that I can remember in the business – and that includes all the movies and the stage shows and everything – that I didn’t enjoy. I didn’t like some of the small-time vaudeville, because we weren’t going on and getting better. Aside from that, I didn’t dislike anything.
+ - When you’re experimenting you have to try so many things before you choose what you want, and you may go days getting nothing but exhaustion.
+ - The unpadded shoulders, the three-buttoned long and boxy coat, the too-short, thin pants, and the thin ties with striped buttoned shirts in dark colors-well, I suppose this may go very well with some personalities but it’s not for me. To me, all such look like TV producers. Maybe they want to.
+ - I just put my feet in the ground and move them around.
+
+39 quotes

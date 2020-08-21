@@ -1,0 +1,27 @@
+ - Miscommunication is the number one cause of all problems; communication is your bridge to other people. Without it, there’s nothing. So when it’s damaged, you have to solve all these problems it creates.
+ - The only thing that can combat fear is action. And there’s two actions. There’s fight and flight.
+ - I’ve been awkward forever. I have really low expectations for myself. When I do perform to some sort of social standard, I leave feeling really comfortable. I’m either so awkward that I look retarded or I’m so awkward that everyone else feels retarded.
+ - I don’t know why it’s difficult to admit that I miss you.
+ - At first, I was just trying to sound like DOOM and Eminem, and then I dug out my own voice, I guess.
+ - Shout out to the fathers that didn’t raise us.
+ - People think artists like 50 Cent don’t have charisma, but it’s just a different kind of charisma, a bully charisma, which is kinda frowned upon.
+ - The words that are coming out of my mouth and how I mean them, it’s so much different.
+ - Rapping is the only time I’m serious.
+ - Whatever I think the song sounds like is what I’ll name it. It’s a feeling thing; it’s not logical at all.
+ - In a world where like everyone’s so accessible now, to say something new in an article that you can’t find out about a n – – through his Twitter or like Googling him or some s – – is rare. Just like how a good song is rare.
+ - SK La’Flare’s a legend. It was me, him and Vince, and Frank would come through sometimes and s – – and he was, like, fully rapping. N – – s was on it.
+ - Everyone’s like sheep on social media; like, one person starts making noise, and everyone’s like, ‘Hey, yeah!’ and then you got a whole bunch of people making noise at you.
+ - Twitter is a real addiction, like the color of it, the process of it.
+ - Touring with the record out – shows are so much more fun now that n – – s know what I’m talking about.
+ - All rappers are princesses like me.
+ - When I got home, I was trying to figure out how to be home. Like, be home in a sense that had nothing to do with music.
+ - It just happens to be that people like to associate poetry and rap music. I think that idea is kind of corny.
+ - Ego is my career. Rap music is all ego.
+ - You get committed with what you put in songs. It made me wary of who and what I include, because that’s there forever.
+ - That sums up why it’s crazy to meet Paul McCartney because he’s the type of n – – that needs that.
+ - My beats are pretty s – – y, though. I don’t know how they work.
+ - I always try and tell dudes that are younger than me is that because of the Internet everyone can just be by themselves doing something, but the importance of a group is being able to have some sort of competition.
+ - It would be ridiculous to say I don’t want to sell records, but I trust my taste.
+ - Sometimes videos make a bad song very tight.
+
+25 quotes

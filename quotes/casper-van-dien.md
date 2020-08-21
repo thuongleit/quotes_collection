@@ -1,0 +1,31 @@
+ - I don’t drink. I don’t do drugs.
+ - No, I consider myself computer illiterate.
+ - I get beat up on every project.
+ - I bounce off four walls, 24 hours a day, seven days a week, because I only sleep those four hours a day.
+ - I do really crazy things all the time, but I can’t think of anything offhand.
+ - I, more or less, love camping out, so I dug it, but I didn’t enjoy other people’s pain.
+ - It would be Spiderman. I’d love to be Peter Parker.
+ - Green is my favorite. And it’s my favorite because it’s the color of my wife’s eyes, grass, trees, life, and money, and mother earth!
+ - Oh, I wouldn’t want to go on a date with a female celebrity. I’d rather go on a date with a real woman.
+ - I play a huge variety of roles.
+ - I guess there was some Casper guy, like, 10 generations ago who I’m named after. I’m the 11th. My son is Casper the XII.
+ - I already played James Dean in a film called Race with Destiny, but it hasn’t come out yet.
+ - As for action movies, I did Tarzan, and I’m also about to shoot Meltdown, which John Carpenter wrote.
+ - I do most of my own stunts because the stunt guys show me how.
+ - Growing up, my favorite TV show was Star Trek.
+ - I’ve always loved writing.
+ - I sail, scuba dive, play football, basketball.
+ - And I ride horses, swim, do a lot of reading, writing.
+ - I eat really healthy, and if I’m tired, I take a nap.
+ - In Tarzan I only had to worry about the bees.
+ - And I certainly intend to direct someday.
+ - The one in the movie is not real, but my Casper tattoo is real, and it is my only one.
+ - I’d like to continue to act and also produce.
+ - I eat five to seven meals a day and a couple of protein shakes.
+ - I like movies that challenge people to recognize different things.
+ - Being a working actor, you’re going to do a Spelling show. It’s hard not to.
+ - We make a lot of mistakes for women, and we’ll always do it again.
+ - I like the way that different people recognise me for the roles I done.
+ - I also watched a lot of football and sports. I haven’t had much time to watch too much TV lately.
+
+29 quotes

@@ -1,0 +1,27 @@
+ - Taxation without representation is tyranny.
+ - A man’s house is his castle.
+ - Let the consequences be what they will, I am determined to proceed.
+ - Now one of the most essential branches of English liberty, is the freedom of one’s house. A man’s house is his castle; and while he is quiet, he is as well guarded as a prince in his castle. This writ of assistance, if it should be declared legal, would totally annihilate this privilege.
+ - These manly sentiments, in private life, make good citizens; in public life, the patriot and the hero.
+ - My dear sister, I hope, when God Almighty in his righteous providence shall take me out of time into eternity, that it will be by a flash of lightning.
+ - Every man may reign secure in his petty tyranny, and spread terror and desolation around him, until the trump of the Archangel shall excite different emotions in his soul.
+ - The people’s safety is the law of God.
+ - The supreme power cannot take from any man any part of his property, without his consent in person, or by representation.
+ - One of the most essential branches of English liberty is the freedom of one’s house. A man’s house is his castle.
+ - There can be no prescription old enough to supersede the Law of Nature and the grant of God Almighty, who has given to all men a natural right to be free, and they have it ordinarily in their power to make themselves so, if they please.
+ - MAY it please your Honors: I was desired by one of the court to look into the books, and consider the question now before them concerning Writs of Assistance.
+ - An act against the Constitution is void; an act against natural equity is void.
+ - The only principles of public conduct that are worthy of a gentleman or a man are to sacrifice estate, ease, health, and applause, and even life, to the sacred calls of his country.
+ - A man is accountable to no person for his doings.
+ - Can there be any liberty where property is taken away without consent?
+ - No parts of his Majesty’s dominions can be taxed without their consent.
+ - I do not say that, when brought to the test, I shall be invincible.
+ - Every one with this writ may be a tyrant; if this commission be legal, a tyrant in a legal manner, also, may control, imprison, or murder any one within the realm.
+ - I will to my dying day oppose, with all the powers and faculties God has given me, all such instruments of slavery on the one hand and villainy on the other as this Writ of Assistance is.
+ - What must be the wealth that avarice, aided by power, cannot exhaust!
+ - Dew depends not on Parliament.
+ - Parliaments are in all cases to declare what is good for the whole; but it is not the declaration of parliament that makes it so.
+ - I pray God I may never be brought to the melancholy trial; but, if ever I should, it will then be known how far I can reduce to practice principles which I know to be founded in truth.
+ - I have accordingly considered it, and now appear not only in obedience to your order, but likewise in behalf of the inhabitants of this town, who have presented another petition, and out of regard to the liberties of the subject.
+
+25 quotes

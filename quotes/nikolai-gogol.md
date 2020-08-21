@@ -1,0 +1,49 @@
+ - I am who I am and that’s who I am.
+ - You can’t imagine how stupid the whole world has grown nowadays.
+ - The longer and more carefully we look at a funny story, the sadder it becomes.
+ - It is no use to blame the looking glass if your face is awry.
+ - Countless as the sands of sea are human passions, and not all of them are alike, and all of them, base and noble alike, are at first obedient to man and only later on become his terrible masters.
+ - What are you laughing at? You are laughing at yourself.
+ - However stupid a fools words may be, they are sometimes enough to confound an intelligent man.
+ - Goodness, how sad is our Russia!
+ - They don’t listen to me, they don’t hear me, they don’t see me.
+ - I saw that I’d get nowhere on the straight path, and that to go crookedly was straighter.
+ - But wise is the man who disdains no character, but with searching glance explores him to the root and cause of all.
+ - Everything resembles the truth, everything can happen to a man.
+ - They’re thinking of turning the peasant into an educated man. Why, first of all they should make him a good and prosperous farmer and then he’ll learn all that is necessary for him to know.
+ - Always think of what is useful and not what is beautiful. Beauty will come of its own accord.
+ - There are passions that it is not for man to choose.
+ - As you pass from the tender years of youth into harsh and embittered manhood, make sure you take with you on your journey all the human emotions! Don’t leave them on the road, for you will not pick them up afterwards!
+ - Two turtle doves will show thee Where my cold ashes lie And sadly murmuring tell thee How in tears I did die.
+ - I shall laugh my bitter laugh.
+ - Keep not money, but keep good people’s company.
+ - Perfect nonsense goes on in the world. Sometimes there is no plausibility at all.
+ - Gambling is the great leveller. All men are equal- at cards.
+ - Whatever you may say, the body depends on the soul.
+ - I am fated to journey hand in hand with my strange heroes and to survey the surging immensity of life, to survey it through the laughter that all can see and through the tears unseen and unknown by anyone.
+ - It’s the most righteous, which of course is not the same thing as the most profitable.
+ - Of course, Alexander the Great was a hero, but why smash the chairs?
+ - Steeds, steeds, what steeds! Has the whirlwind a home in your manes?
+ - We have the marvelous gift of making everything insignificant.
+ - Everywhere across whatever sorrows of which our life is woven, some radiant joy will gaily flash past.
+ - Countless as the sands of the sea are human passions.
+ - There exists a kind of laughter which is worthy to be ranked with the higher lyric emotions and is infinitely different from the twitching of a mean merrymaker.
+ - We ought to thank God for that. Yes, the man who tills the land is more worthy of respect than any.
+ - The more destruction there is everywhere, the more it shows the activity of town authorities.
+ - Man is such a wondrous being that it is never possible to count up all his merits at once. The more you study him, the more new particulars appear, and their description would be endless.
+ - What is stronger in us – passion or habit? Or are all the violent impulses, all the whirl of our desires and turbulent passions, only the consequence of our ardent age, and is it only through youth that they seem deep and shattering?
+ - For public opinion does not admit that lofty rapturous laughter is worthy to stand beside lofty lyrical emotion and that there isall the difference in the world between it and the antics of a clown at a fair.
+ - A word aptly uttered or written cannot be cut away by an axe.
+ - Also, though not over-elderly, he was not over-young.
+ - In the end dreams became his life, and his whole life thereafter took a strange turn: one might say he slept while waking and watched while asleep.
+ - I tell everyone very plainly that I take bribes, but what kind of bribes? Why, greyhound puppies. That’s a totally different matter.
+ - There are certain words which are nearer and dearer to a man than any others.
+ - Do we ever get what we really want? Do we ever achieve what our powers have ostensibly equipped us for? No: everything works by contraries.
+ - There are occasions when a woman, no matter how weak and impotent in character she may be in comparison with a man, will yet suddenly become not only harder than any man, but even harder than anything and everything in the world.
+ - Let me warn you, if you start chasing after views, you’ll be left without bread and without views.
+ - A time of famine and poverty will come and the people as a whole as well as every individual in it will suffer.
+ - The Lord grant we may all be tillers of the soil.
+ - There are people who exist in this world not like entities but like the speckles or spots on something.
+ - Countless are, as the sand in the sea, the deep desires of men, and none resembles the other, and all of them, whether shameful, or great, in the beginning are obedient, but later become terrible masters over him.
+
+47 quotes

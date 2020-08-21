@@ -1,0 +1,40 @@
+ - They say Rome wasn’t built in a day, but I wasn’t on that particular job.
+ - We had a good team on paper. Unfortunately, the game was played on grass.
+ - Don’t send me flowers when I’m dead. If you like me, send them while I’m alive.
+ - They love me for what I’m not They hate me for what I am.
+ - There are more hooligans in the House of Commons than at a football match.
+ - If God had wanted us to play football in the sky, He’d have put grass up there.
+ - I want no epitaphs of profound history and all that type of thing. I contributed. I would hope they would say that, and I would hope somebody liked me.
+ - If I had an argument with a player we would sit down for twenty minutes, talk about it and then decide I was right!
+ - It only takes a second to score a goal.
+ - The river Trent is lovely, I know because I have walked on it for 18 years.
+ - That Seaman is a handsome young man but he spends too much time looking in his mirror rather than at the ball. You can’t keep goal with hair like that.
+ - When you get to a certain age, there is no coming back.
+ - Walk on water? I know most people out there will be saying that instead of walking on it, I should have taken more of it with my drinks. They are absolutely right.
+ - On occasions I have been big-headed. I think most people are when they get in the limelight. I call myself Big Head just to remind myself not to be.
+ - When I go, God’s going to have to give up his favourite chair.
+ - We used to go to the pictures every Saturday night but we had to leave a little bit early and get home and watch Match of the Day – and my wife still complains she missed the last five minutes of every film we saw.
+ - Telling the entire world and his dog how good a manager I was. I knew I was the best but I should have said nowt and kept the pressure off ’cos they’d have worked it out for themselves.
+ - I wouldn’t say I was the best manager in the business. But I was in the top one.
+ - Acne is a bigger problem than injuries.
+ - I like my women to be feminine, not sliding into tackles and covered in mud.
+ - You don’t want roast beef and Yorkshire every night and twice on Sunday.
+ - Players lose you games, not tactics. There’s so much crap talked about tactics by people who barely know how to win at dominoes.
+ - The ugliest player I ever signed was Kenny Burns.
+ - Bill eventually became Mr Tottenham Hotspur, and produced such a dazzling team at White Hart Lane that they won the double and played the game in a way that was an object lesson to everybody.
+ - I’m dealing with my drinking problem and I have a reputation for getting things done.
+ - I can’t even spell spaghetti never mind talk Italian. How could I tell an Italian to get the ball – he might grab mine.
+ - Anybody who can do anything in Leicester but make a jumper has got to be a genius.
+ - If he’d been English or Swedish, he’d have walked the England job.
+ - Being thick isn’t an affliction if you’re a footballer, because your brains need to be in your feet. And Beckham works hard, he’s brave and he crosses a ball superbly. He treats a football like he does a wife, lovingly, with caresses.
+ - Resignations are for Prime Ministers and those caught with their trousers down, not for me.
+ - I’m sure the England selectors thought if they took me on and gave me the job, I’d want to run the show. They were shrewd, because that’s exactly what I would have done.
+ - If a chairman sacks the manager he initially appointed, he should go as well.
+ - Beckham? His wife can’t sing and his barber can’t cut hair.
+ - For all his horses, knighthoods and championships, he hasn’t got two of what I’ve got. And I don’t mean balls!
+ - If any one of my players isn’t interfering with play, they’re not getting paid.
+ - Who the hell wants fourteen pairs of shoes when they go on holiday? I haven’t had fourteen pairs in my life.
+ - I gave my players a version of the same message at ten-to-three every Saturday: ‘I would shoot my granny right now for three points this afternoon.’ They knew how important it was to give everything in the cause of victory. Every time. That’s why my granny enjoyed more lives than my cat.
+ - Saturday comes again, welcome or not, it comes again like it always does, welcome or not, wanted or not, another judgment day – The chance to be saved, the chance to be damned.
+
+38 quotes

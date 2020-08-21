@@ -1,0 +1,22 @@
+ - Lawyers can’t tell you you can’t do something. They can warn you about risks, and in extreme cases tell you that something is such a bad idea you’ll need to get someone other than them to do it but the judgment call of whether the risk is worth it is the entrepreneur’s.
+ - You get so tired of having your work die. I just wanted to make something that people would actually use.
+ - A good way to have good ideas is by being unoriginal.
+ - My favorite language for maintainability is Python. It has simple, clean syntax, object encapsulation, good library support, and optional named parameters.
+ - With BitTorrent, the cat’s out of the bag.
+ - In terms of work I’ve always had a Bad Attitude in that I won’t work anywhere which requires me to work strict hours or follow a dress code. I don’t know if that’s an Asperger’s thing or not, I think it’s just being reasonable.
+ - Despite my emphasis on technology, I do not view laws as inherently evil. My goals are political ones, even if my techniques are not. The only way to fundamentally succeed is by changing existing laws. If I rejected all help from the political arena I would inevitably fail.
+ - It’s always hard to predict what’s coming up next. My main guess is that content creators will increasingly start using BitTorrent to distribute their own work directly.
+ - The trick is to fix the problem you have, rather than the problem you want.
+ - The content people have no clue. I mean, no clue. The cost of bandwidth is going down to nothing. And the size of hard drives is getting so big, and they’re so cheap, that pretty soon you’ll have every song you own on one hard drive. The content distribution industry is going to evaporate.
+ - One thing about school – I always had this attitude that I was in school to learn, and attempted to do whatever was involved in that process, while school had this attitude that I was there to earn grades, which I couldn’t care less about. Unsurprisingly, my grades weren’t very good.
+ - The mark of a mature programmer is willingness to throw out code you spent time on when you realize it’s pointless.
+ - I’ve accomplished more working on my own than I ever did as part of a team.
+ - My father taught me Basic and rudimentary C, I learned everything else on my own, including studying computational complexity on my own. That’s more a function of my age than anything else though – back when I was in school there were hardly any programming classes.
+ - Things which any idiot could write usually have the quality of having been written by an idiot.
+ - Give and ye shall receive.
+ - I can come off as pretty arrogant, but it’s because I know I’m right.
+ - Arimaa’s a better game than I thought. It follows a fairly sound approach to making the game difficult for computers.
+ - When you’re a connoiseur you look for interesting rather than good.
+ - The next release of mainline is going to have a lot of the advanced features people want, by the way.
+
+20 quotes

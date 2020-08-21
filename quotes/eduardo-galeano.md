@@ -1,0 +1,80 @@
+ - Many small people, in small places, doing small things can change the world.
+ - History never really says goodbye. History says, see you later.
+ - Utopia lies at the horizon. When I draw nearer by two steps, it retreats two steps. If I proceed ten steps forward, it swiftly slips ten steps ahead. No matter how far I go, I can never reach it. What, then, is the purpose of utopia? It is to cause us to advance.
+ - I don’t believe in charity. I believe in solidarity. Charity is so vertical. It goes from the top to the bottom. Solidarity is horizontal. It respects the other person. I have a lot to learn from other people.
+ - We are what we do, especially what we do to change what we are.
+ - The Church says: the body is a sin. Science says: the body is a machine. Advertising says: The body is a business. The Body says: I am a fiesta.
+ - We live in a world that treats the dead better than the living. We, the living are askers of questions and givers of answers, and we have other grave defects unpardonable by a system that believes death, like money, improves people.
+ - Scientists say that human beings are made of atoms, but a little bird told me that we are also made of stories.
+ - Utopia is on the horizon. I move two steps closer; it moves two steps further away. I walk another ten steps and the horizon runs ten steps further away. As much as I may walk, I’ll never reach it. So what’s the point of utopia? The point is this: to keep walking.
+ - If the world is upside down the way it is now, wouldn’t we have to turn it over to get it to stand up straight?
+ - Charity, vertical, humiliates. Solidarity, horizontal, helps.
+ - I like Messi because he doesn’t think he is Messi.
+ - We are all mortal until the first kiss and the second glass of wine.
+ - The division of labor among nations is that some specialize in winning and others in losing.
+ - The big bankers of the world, who practise the terrorism of money, are more powerful than kings and field marshals, even more than the Pope of Rome himself. They never dirty their hands. They kill no-one: they limit themselves to applauding the show.
+ - Development develops inequality.
+ - I am not particularly interested in saving time; I prefer to enjoy it.
+ - Schools teach ignorance.
+ - In his life, a man can change wives, political parties or religions but he cannot change his favourite soccer team.
+ - Unlike solidarity, which is horizontal and takes place between equals, charity is top-down, humiliating those who receive it and never challenging the implicit power relations.
+ - Recordar: To remember; from the Latin records, to pass back through the heart.
+ - The tree of life knows that, whatever happens, the warm music spinning around it will never stop. However much death may come, however much blood may flow, the music will dance men and women as long as the air breaths them and the land plows and loves them.
+ - I remember that – you know, I didnt receive a formal education. I was educated in the Montevideo cafe, in the cafes of Montevideo. There, I received my first lessons in the art of telling stories, storytelling.
+ - No history is mute. No matter how much they own it, break it, and lie about it, human history refuses to shut its mouth. Despite deafness and ignorance, the time that was continues to tick inside the time that is.
+ - I have never killed anybody, it is true, but it is because I lacked the courage or the time, not because I lacked the desire.
+ - The human murder by poverty in Latin America is secret: every year, without making a sound, three Hiroshima bombs explode over communities that have become accustomed to suffering with clenched teeth.
+ - A unipolar world – one with only one power – makes sure that this space almost disappears. In a multipolar world this space multiplies. Therefore, there is nostalgia for a multipolar world.
+ - The human rainbow had been mutilated by machismo, racism, militarism and a lot of other isms, who have been terribly killing our greatness, our possible greatness, our possible beauty.
+ - For sailors who love the wind, memory is a good port of departure.
+ - I can’t sleep. There is a woman stuck between my eyelids. I would tell her to get out if I could. But there is a woman stuck in my throat.
+ - The more freedom is extended to business, the more prisons have to be built for those who suffer from that business.
+ - And one fine day the goddess of the wind kisses the foot of man, that mistreated, scorned foot, and from that kiss the soccer idol is born. He is born in a straw crib in a tin-roofed shack and he enters the world clinging to a ball.
+ - I don’t believe in charity. I believe in solidarity.
+ - Soccer, metaphor for war, at times turns into real war.
+ - My language is a feel-thinking language, feeling and thinking at once, that is why it is a celebration of life, and at once it is a denunciation of everything that is not allowed in life to be real life, it’s plenitude.
+ - Most of wars or military coups or invasions are done in the name of democracy against democracy.
+ - Almost all wars, perhaps all, are trade wars connected with some material interest. They are always disguised as sacred wars, made in the name of God, or civilization or progress. But all of them, or almost all of the wars, have been trade wars.
+ - There are visible and invisible dictators. The power structure of world football is monarchical. It’s the most secret kingdom in the world.
+ - The poet, distracted by politics, asks of poetry that it make itself useful like metal or flour, that it get ready to stain its face with coal dust and fight body to body.
+ - The walls are the publishers of the poor.
+ - I’m attracted to soccer’s capacity for beauty. When well played, the game is a dance with a ball.
+ - In the struggle of good against evil, it’s always the people who get killed.
+ - Indignation must always be the answer to indignity. Reality is not destiny.
+ - The purpose of torture is not getting information. It’s spreading fear.
+ - Memory. My poison, my food.
+ - A pretty move, for the love of God.
+ - The ball laughs, radiant, in the air. He brings her down, puts her to sleep, showers her with compliments, dances with her, and seeing such things never before seen his admirers pity their unborn grandchildren who will never see them.
+ - The world is a heap of people, a sea of tiny flames.
+ - The wages Haiti requires by law belong in the department of science fiction: actual wages on coffee plantations vary from $.07 to $.15 a day.
+ - I am not a historian. I am a writer obsessed with remembering, with remembering the past.
+ - Each time a new war is disclosed in the name of the fight of the good against evil, those who are killed are all poor. It’s always the same story repeating once and again and again.
+ - If the past has nothing to say to the present, history may go on sleeping undisturbed in the closet where the system keeps its old disguises.
+ - I am quite prehistoric, absolutely prehistoric.
+ - Poets and beggars, musicians and prophets, warriors and scoundrels, all creatures of that unbridled reality, we have had to ask but little of our imagination, for our crucial problem has been a lack of conventional means to render our lives believable. This, my friends, is the crux of our solitude.
+ - Chaplin and Keaton are still the best. They know that there is nothing more serious than laughter, an art demanding infinite work, and that as long as the world revolves, making others laugh is the most splendid of activities.
+ - Our effectiveness depends on our capacity to be audacious and astute, clear and appealing. I would hope that we can create a language more fearless and beautiful than that used by conformist writers to greet the twilight.
+ - I go about the world, hand outstretched, and in the stadiums I plead: ‘A pretty move, for the love of God.’ And when good soccer happens, I give thanks for the miracle and I don’t give a damn which team or country performs it.
+ - The world is becoming an immense military base, and that base is becoming a mental hospital the size of the world. Inside the nuthouse, which ones are crazy?
+ - It is highly improbable that the bureaucrat will put his life on the line. It is absolutely impossible that he’ll put his job on the line.
+ - I’m a writer obsessed with remembering, with remembering the past of America and above all that of Latin America, intimate land condemned to amnesia.
+ - Richness in the world is a result of other people’s poverty. We should begin to shorten the abyss between haves and have-nots.
+ - The world is organised by the war economy and the war culture.
+ - Writing is a marvelous adventure and very labor-intensive: those words run away and try to escape. They are very difficult to capture.
+ - Where do people earn the Per Capita Income? More than one poor starving soul would like to know. In our countries, numbers live better than people. How many people prosper in times of prosperity? How many people find their lives developed by development?
+ - Because every single one of us has something to say to the others, something that deserves to be celebrated or forgiven by others.
+ - There are those who believe destiny rests at the feet of the gods, but the truth is that it confronts the conscious of man with a burning challenge.
+ - I was a terrible history student. They taught me history as if it were a visit to a wax museum or to the land of the dead. I was over twenty before I discovered that the past was neither quiet nor mute.
+ - We Latins are known for jabbering on.
+ - This work is a torture on the rump but a joy to the heart.
+ - The fiesta of soccer, a feast for the legs that play and the eyes that watch, is much more than a big business run by overlords from Switzerland. The most popular sport in the world wants to serve the people who embrace it.
+ - Our defeat was always implicit in the victory of others; our wealth has always generated our poverty by nourishing the prosperity of others – the empires and their native overseers. In the colonial and neocolonial alchemy, gold changes into scrap metal and food into poison.
+ - I would recognise myself in each of his translations and he would feel betrayed and annoyed whenever I didn’t write something the way he would have. A part of me died with him, a part of him lives with me.
+ - Latin America is part of the world which was for many years condemned to the system of power where intimidation had more strength than the vote.
+ - In this world of ours, a world of powerful centers and subjugated outposts, there is no wealth that must not be held in some suspicion.
+ - When a book is alive, really alive, you feel it. You put it to your ear here, and you feel it breathe, sometimes laugh, sometimes cry, just like a person, a little person.
+ - So many stories, and to choose which ones to tell and how to tell them. The words, they will tap me on the shoulder and they will speak to me: Tell me! Tell me! The stories choose me.
+ - Soccer is a feast for the eyes that watch it and a joy for the body that plays it.
+ - There are some writers who feel they are elected by God. I am not. I am elected by the devil – this is clear.
+
+78 quotes

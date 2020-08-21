@@ -1,0 +1,79 @@
+ - Life isn’t a fairy tale, and happy endings are few and far between.
+ - I’m not going to become anybody I don’t want to become.
+ - I think that we, as monkeys, want to live in smaller groups. It’s very scary when we’re all – as wonderful as it is – connected.
+ - There are tiny choices that everyone can make that profoundly affect our collective water use. Like not having the tap on while brushing your teeth, not starting your shower ten minutes in advance, not doing laundry until you have a full load. In this particular issue, education really is power.
+ - I’ve definitely grown, and I think I’ve done enough stuff that people might look at me only as Veronica Mars. But honestly, I really don’t mind if they do.
+ - I’m not a woman whose self-worth comes from her dress size.
+ - If you’re in high school, just know there is a big world out there and you can be anyone you want to be.
+ - We as human beings are slightly masochistic. Everybody is ridden with insecurities and they manifest themselves in different ways, whether you’re a pleaser, you’re mean, you’re super-duper sweet and get walked on, or you’re a gossip that talks about someone else.
+ - I have a lot of responsibilities, but I don’t think I’ve grown up.
+ - I think when there’s so much information to be eaten up, and so many ways to do it, people cling to groups. I think we, as monkeys, want to live in smaller groups.
+ - I think people who struggle to define themselves might never be satisfied because there is no definition. Living with responsibility is important, but I don’t really think you have to grow up.
+ - I’m not homely enough to play the nerdy girl and not nearly pretty enough to play the pretty girl.
+ - You do better in the gym with a trainer; you don’t figure out how to cook without reading a recipe. Therapy is not something to be embarrassed about.
+ - Being a mom can be so isolating, and hanging out with other moms is very, very healthy.
+ - I’m carded for R-rated movies. And I get talked down to a lot. When I try to go rent a car or buy an airplane ticket or other stuff adults do, I get ‘Okaaaaaay, honey.’ I remember when I was 18, getting crayons in a restaurant.
+ - Your dynamic with everyone will change when you graduate high school. High school is a pit of despair. It’s a swirling tornado of insecurities and there’s really nothing good about it.
+ - I rarely wear clothes when I’m home by myself. I love making breakfast naked. But you’ve got to make sure the gardener’s not coming that day.
+ - I don’t think there’s anything immature about fighting for the underdog and fighting for people who don’t have a voice. I have an intense desire to protect people who can’t protect themselves.
+ - All guys are jerks but they get hotter with age and we learn to be more tolerant.
+ - I’m not recognized very often, and if I am, it’s a die-hard Veronica Mars fan. Which is usually flattering and an honor. I really try not to think about it.
+ - Who cares if there are lumps on my thighs? I’m guilty of having human legs made up of fat, muscle, and skin, and sometimes when you sit, they get bumpy!
+ - And I thought, there’s a sloth near. There’s a sloth here, it’s close, it’s gonna happen. And I didn’t know how to process that, because my entire life had been waiting for this moment.
+ - Every woman in her late 20s goes through a period where she just doesn’t believe love is out there anymore, but it is. And I think the minute you stop looking for it is when it comes for you.
+ - I’m not a risk taker. I don’t do plunging necklines or really short skirts. I try to stay as classy as possible and provide a little mystery.
+ - I’m more of a homebody. I’m constantly asked: ‘Why don’t we see you out?’ But that’s not what drives me. I prefer to have people over – which I do a lot, because I bought a house that’s way too big for me, and four of my friends live there.
+ - I loved Catholic school. I didn’t like being beeped at by old pervs at the gas station because I was wearing a plaid skirt, though. It’s like, do you think I’m going to stop and give you my phone number?
+ - I’m an awful driver. I’m not going to lie about it. I’m not a good driver. I tried for a long time to pretend that I was. There’s a lot of road rage and a lot of times it’s directed at something I’ve done on the road.
+ - I love nerds. Comic-Con junkies are the tastemakers of tomorrow. Isn’t that funny? The tables have turned.
+ - Part of my becoming a vegetarian was that I would look at my burger, then look at my dogs, and I wasn’t able to see a difference.
+ - For Georgina Sparks, love is always a battlefield.
+ - The only thing I consciously avoid is playing the victim. I think women are portrayed as the victim in so many things, and I really like women with strength – although I feel now I may have gone overboard by playing so many strong, sassy women.
+ - I’ve always been a serial monogamist.
+ - The funny thing is that I’m not a planner. I have no idea what I want to do in the interim of that 50 years, but I tell ya: That’s where you’ll find me in my last performance.
+ - I crave the diversity because I’m an actor and it’s more fun to play different types of characters, but I’m pretty spontaneous as well, so I don’t rule anything out.
+ - There has to be this balance of reality for a woman. I don’t want to play women who just serve a purpose for the script.
+ - We have a family calendar and it’s how everybody runs. In truth, there’s no trick to balancing it. If you look at the calendar and you’ve seen you’ve gone 10 days without a date night, you know you need to prioritize more.
+ - I can fill my cup up with real human interactions that allow me to be an actor. If I had no basis for relationships, as Kristen Bell, the human, I couldn’t be an actress.
+ - I feel like, when I arrive at the hospital, I want a glass of whiskey, I want the epidural in my back and I want to get hit in the face with a baseball bat.
+ - I just don’t ever want to play the girlfriend. You know, the supporting character in the background who just sort of comes in and goes, “Oh, shucks.” It’s just a boring character.
+ - Anyone who is gossiping is just insecure about that person they’re gossiping about.
+ - I have the mouth of a sailor.
+ - I’m very used to playing the tomboy or the sarcastic cynic. That’s my go-to. Playing the vulnerable of a real girl that’s in real womanlike situations, where it’s romanticized, I’m a little nervous about it.
+ - There are so few strong roles for women, especially young women. And Veronica is very serious but also very likable. She’s a lone wolf, and it appeals to people that she isn’t rich and doesn’t have a lot of friends. No posse. She’s just like you, like most of us.
+ - I loved Veronica right off the bat. She was so strong and I think it is so important because there are so few shows that portray women, especially young women, as being strong and being able to stand up for themselves.
+ - I’m empathetic to a fault. I really do – embarrassingly enough – tear up when someone squishes a bug in front of me.
+ - I find that the vast majority of people who are judging are just fearful or insecure.
+ - Here’s why I like geek culture: People like what they like because they like it. They’re not trying to fit into any mainstream likes or dislikes.
+ - I came out of the make-up trailer with 400 whiteheads on my face and they were like, “Kristen, come on!” I was like, “What? It’s realistic! I had whiteheads in high school,” and they were like, “No, let’s just go with regular, standard, run of the mill acne.”
+ - I did find out about the koalas and how eucalyptus makes them high and why they sleep all day. They’re little druggies.
+ - I’m a geek who loves fashion. There’s been a reinvention of the word geek. It means being passionate about anything that’s under the radar or sort of frowned upon, like Comic-Con.
+ - I’m not in the business of becoming famous. And that’s the advice I give to younger aspiring actors. Work onstage and do the little roles. In the end it’s not important to be seen. It’s important to do. There’s a lot of disappointment in this business, but my family keeps me grounded.
+ - I’ve got a lot of nervous energy and I trip a lot. I don’t have a good equilibrium. In the places where the physical comedy was necessary, it came very naturally and it was fun.
+ - I’ve always idolized Amy Poehler, because I think she’s the best of the best as far as female comedy.
+ - What was previously perceived as nerdy is now viewed as original. What I like about nerdiness, geekiness, is it doesn’t really matter what you’re into – it just means you’re not a follower.
+ - I think that if you can butter writers up enough, they might give you a little.
+ - I might not be perfect, but I feel perfect. I think that’s all that matters.
+ - It’s definitely a difficult thing to capture and I mean, I’ve seen a ton of movies where I’ve believed the couple and I’ve seen a ton of movies where I have not believed them at all. Unfortunately, as an audience member, you check out if you don’t believe them.
+ - People might look at you as super-weird, but if that’s your obsession, go for it. I do like a lot of mainstream stuff, and sometimes I also like different stuff. I tend to always root for the underdog.
+ - But it’s compounded by the fact that I love animals and feel better not eating them.
+ - I don’t want to be pigeonholed into doing just romantic comedies. But they’re fun, and especially for women, it’s nice to go to see them and enjoy that breath of fresh air.
+ - Something magical happened when I turned 25 – I looked in the mirror and was like, ‘You might not get carded for an R-rated movie anymore.’ Like I didn’t have a little stick figure anymore.
+ - I have never felt so much good female energy around me. I find that I can’t take my eyes off them. I’m 99 percent sure I will leave this movie a lesbian.
+ - I’ve got more junk in the trunk than most 5-foot-1 blonde girls, and I like it.
+ - I would absolutely identify as a New Yorker by nature. I grew up in Detroit. There was not a bone in my body that even considered staying in Detroit for the rest of my life.
+ - I’ve been very lucky in the characters I’ve chosen. Up until last year I was a nobody. I did jobs I booked because I needed to put food in my mouth.
+ - As the actor, you just have to believe in what your character is doing in order to play them.
+ - I had a lot of insecure moments in high school. It wasn’t all peachy keen. But, I don’t necessarily think that I hated high school and wanted to crawl into a hole either.
+ - I think your significant other should be way more important than your work. Personally, I love working. I don’t know that I’d say I’m a workaholic because I also love maxing and relaxing.
+ - I was never a hammy child. But I could make people laugh.
+ - I think that American audiences are more used to following one character.
+ - Choose your props wisely.
+ - I don’t think that I’m modest by any means, but I’m also not an exhibitionist.
+ - I’ll always be figuring out what parts I want to play, because I want to play all parts. I’m a very hungry actress.
+ - Romanian movies are not made the same as American movies are, only because it’s newer there. For instance, cigarettes, over there, are much more prominent, and Americans aren’t used to that.
+ - Have a colourful plate. I make a spinach salad with things like blueberries, apples and carrots.
+ - I work in a creative industry. My work isn’t terribly hard, it’s artistically explorative, so I have no complaints.
+ - Everybody just wants to be loved, and nobody feels loved enough in high school.
+
+77 quotes

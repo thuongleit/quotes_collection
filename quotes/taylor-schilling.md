@@ -1,0 +1,29 @@
+ - I’m not very cool. I have a really hard time meeting people and stuff.
+ - Be yourself. You’re okay. And it really doesn’t matter what other people think.
+ - So often, we’re expected to maintain some sort of standard – that won’t get you where you need to go.
+ - I actually like pole dancing! It gives you so much confidence. I never thought I’d do it, but now I’m really into it.
+ - I’m the girl who will show up in jeans no matter what – but the jeans can get fancier and fancier.
+ - I don’t have a connection to the fashion world at all.
+ - Life is so much easier when I allow myself to be myself and go with the flow.
+ - It takes a lot of bravery to be authentic and honest and to take that social mask off in order to connect with another human being. So much of what makes us who we are is smoothed away online. And what truly connects us is the wrinkles, not the smoothness.
+ - I try not to eat too many raw vegetables. I only have one raw meal a day. At night I eat warm, cooked foods. I like to drink lots of tea, but no coffee. Not drinking coffee has changed my game for the better.
+ - I wanted to wear a uniform when I was in high school, but I couldn’t. I was like, ‘It would be so much easier!’
+ - Well, a lot of things surprised me. There were things that I had never thought about, in my life. I never thought about how loud prison was. I’ve never thought about how your ears never really get a break from all this noise. That was actually replicated on our set pretty well.
+ - The Notebook is one of my favorite love stories.
+ - I don’t know my armpit from my elbow in Los Angeles.
+ - I don’t do detoxes or cleanses; they don’t really work for me.
+ - I don’t feel bound by my face or my body. I don’t feel like that’s the biggest gift I have to offer the world. I feel like there are more parts of me to offer than that.
+ - Honestly, all the sweets and bad stuff on set don’t really call to me because I’m working so much. I’ve trained myself to stay away from sugar.
+ - Whatever it is that I am working on is what I become obsessed with.
+ - And I never thought about how the lights don’t go out, so you never really rest, in that way. I never really thought about the intensity of being watched, all the time. Those are some things that I didn’t know about prison.
+ - I’m really into Greek yogurt, fruit and almonds. Those are my ‘go-to’ snacks.
+ - I’d love to do theater. I’ve done so many plays in my life. I still think of that as my main thing.
+ - As an actor, what I’m finding is that I really like the extremes. I think that’s really fun to play with.
+ - If it’s a good day, I get ‘The New York Times’ on my iPad, and if I have a little time in the morning, I like to look at that while I’m eating.
+ - I like to do yoga, Pilates, dance, and things like that.
+ - I try to come at fitness and nutrition from a perspective of gentleness and what will make me feel good afterwards. I try to stay out of the mindset of needing to fix myself. I do whatever seems fun to me.
+ - I started doing yoga in college, so that has just become a staple of a self-care routine for my mind and my body. My body craves it at this point, so I do it two to three times a week, sometimes more. I practice Vinyasa style yoga and sometimes mix it up.
+ - I love Ben Affleck so much. He’s an amazing director.
+ - For me as an actor, daring is to tell the truth – to be yourself, no matter how the world interacts with that.
+
+27 quotes

@@ -1,0 +1,33 @@
+ - There is no greater warrior than a mother protecting her child.
+ - There is no logic to grief.
+ - In a child’s eyes, a mother is a goddess. She can be glorious or terrible, benevolent or filled with wrath, but she commands love either way. I am convinced that this is the greatest power in the universe.
+ - Determination could easily become obsession.
+ - We can never be gods, after all – but we can become something less than human with frightening ease.
+ - There is nothing foolish about hope.
+ - There’s truth even in tainted knowledge, if one reads carefully.
+ - If the gods do decide to wipe us out, is it such a bad thing? Maybe we’ve earned a little annihilation.
+ - I am not as I once was. They have done this to me, broken me open and torn out my heart. I do not know who I am anymore. I must try to remember.
+ - It is important to appreciate beauty, even when it is evil.
+ - But love like that doesn’t just disappear, does it? No matter how powerful the hate, there is always a little love left, underneath. Yes. Horrible, isn’t it?
+ - Any woman can face the world alone, but why should we have to?
+ - So here is why I write what I do: We all have futures. We all have pasts. We all have stories. And we all, every single one of us, no matter who we are and no matter what’s been taken from us or what poison we’ve internalized or how hard we’ve had to work to expel it – – we all get to dream.
+ - The shadows of Ina-Karekh are the place where nightmares dwell, but not their source. Never forget: the shadowlands are not elsewhere. We create them. They are within.
+ - Rising from the dead? Glowing at sunrise? What did that make him, the god of cheerful mornings and macabre surprises?
+ - You are what your creators and experiences have made you, like every other being in this universe. Accept that and be done; I tire of your whining.
+ - Immortality gets very, very boring. You’d be surprised at how interesting the small mundanities of life can seem after a few millennia.
+ - This means, in a way, that true light is dependent on the presence of other lights. Take the others away and darkness results. Yet the reverse is not true: take away darkness and there is only more darkness. Darkness can exist by itself. Light cannot.
+ - Once upon a time there was a Once upon a time there was a Once upon a time there was a Stop this. It’s undignified.
+ - Fortunately, where reason failed, blind panic served well enough.
+ - But when I got angry, my nerves sought an outlet, and my mouth didn’t always guard the gates.
+ - And in that sliver of time, I felt the power around me coalesce, malice-hard and sharp as crystal. That this analogy occurred to me should have been a warning.
+ - The Cloud Roads has wildly original worldbuilding, diverse and engaging characters, and a thrilling adventure plot. It’s that rarest of fantasies: fresh and surprising, with a story that doesn’t go where ten thousand others have gone before. I can’t wait for my next chance to visit the Three Worlds!
+ - The priest’s lesson: beware the Nightlord, for his pleasure is a mortal’s doom. My grandmother’s lesson: beware love, especially with the wrong man.
+ - Loneliness is a darkness of the soul.
+ - They live forever. But many of them are even more lonely and miserable than we are. Why do you think they bother with us? We teach them life’s value.
+ - Funny thing, employment. If you keep doing it, you keep getting paid.
+ - We worship Him not because He is the best of our gods, but because He is, or was, the greatest killer among them.
+ - Love betrayed has an entirely different sound from hatred outright.
+ - You are Insignificant. One of millions, neither special nor unique. I did not ask for this ignominy, and I resent the comparison. Fine. I don’t you like you, either.
+ - But perhaps that was just the way of power: no such thing as too much.
+
+31 quotes

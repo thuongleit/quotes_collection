@@ -1,0 +1,58 @@
+ - Short people got no reason to live.
+ - You’ve got troubles, I’ve got ’em too. There isn’t anything I wouldn’t do for you. We’ll stick together to see it through cause you’ve got a friend in me.
+ - Crank up the Beach Boys, Baby.
+ - Cleveland, city of light! City of magic!
+ - I ain’t saying that I’m better than you, but maybe I am.
+ - I like science – geography, meteorology, cosmology.
+ - But if you’re doing something, show up everyday, and something good might happen – it’s not going to happen if you don’t show up.
+ - It’s funny; people get so doctrinaire about music. It should be the last thing you don’t have an open mind about.
+ - He got drunk last night, kicked Mama down the stairs. But I’m alright, so I don’t care.
+ - It takes a whole lot of medicine for me to pretend I am somebody else.
+ - And the Lord said: I burn down your cities – how blind you must be. I take from you your children, and you say how blessed are we. You all must be crazy to put your faith in me. That’s why I love mankind.
+ - They don’t respect us, so let’s surprise them, we’ll drop the big one, pulverize them.
+ - Sometimes what I’m writing is more important to me than the rest of my life. It’s more important to me that I’m writing well than anything else.
+ - I’ve written a song for Prince. I never showed it to Prince, but just to see if I could do it. At the time, when I sort of knew him, he was recording a song a day. I wondered if I could do that. So I wrote it.
+ - I like Public Enemy a great deal.
+ - The best of my songs are more than just a joke. There’s something else going on – a character, or it’s not just a plain joke.
+ - Most of my songs are about insensitivity of some kind.
+ - I’ve always had a lot of respect from the people I respected.
+ - I like the performing. And interviews, even. And the stuff that’s not sitting in a room by yourself with empty paper. But I never loved writing, to tell you the truth.
+ - If getting on the radio was a major motivation, I’d be one of the worst writers of all time. I admire people who do it, and I think it’s a nice way to work, but I try to do the best I can and write what I like. I don’t worry about it.
+ - I like to write my lyrics on clay tablets.
+ - I don’t remember ever having writer’s block. If I sit in there for four hours, I’ll usually have something.
+ - Asia’s crowded and Europe’s too old, Africa is far too hot and Canada’s too cold. And South America stole our name, let’s drop the big one.
+ - This one guy’s wife is such a pretty brown thing, that I’m liable to give her a poke or two. Whaddaya think of that?
+ - I’d like to explain why you fine young men had to be blown apart to defend this mud hole.
+ - People become who they are. Even Beethoven became Beethoven.
+ - We don’t know our ass from a hole in the ground.
+ - Stay away from drugs. They’re not worth it. I’ve tried, but there’s none of them that’s worth it.
+ - My music has a high irritation factor. I’ve always tried to say something. Eccentric lyrics about eccentric people. Often it was is joke. But I would plead guilty on the grounds that I prefer eccetricity to the bland.
+ - I’ve written about a lot of different things, but the whole idea of writing for another character is unusual for pop music. Most of the repertory is love songs, and most of mine isn’t. I don’t know if that’s a mental defect, or shyness, or what.
+ - God bless the potholes on Memory Lane.
+ - I always thought my best album was ‘Trouble in Paradise.’ I was the happiest with that one.
+ - I’ve often written about places that are totally different from anything I know. Sometimes they turn out better.
+ - If you have a kid and you try irony out on them, they don’t get it at 7, 8 years old. You can’t really hide the Internet from kids. It worries me some particularly because I’ve done Disney and Pixar stuff.
+ - I think in most cases, unless you’re writing about a character who is garrulous, you say what you’ve got to say and then get out. Those little conjunctions, those little turnaround words help you do it. That’s the way I like to write: I get rid of things rather than add them.
+ - If I were to die tomorrow, I think they’d say Newman 56, composer of the hit song, Short People. Jumped off a mountain today.
+ - Don’t forget to bring that little blonde haired girl along. You know the one, love to watch her jump up and down.
+ - I started recording because I was always complaining about the records that I was getting of my songs. At least if I did them and messed them up, I wouldn’t have anyone else to blame.
+ - I realized that, instead of moving people closer to a salvation decision, an answer can push them further away. Rather than engaging their minds or urging them to consider an alternative perspective, an answer can give them ammunition for future attacks against the gospel.
+ - But I don’t want to sing everything out of the side of my mouth, I want people to understand what I mean.
+ - I sit here in this chair, I pour myself some whiskey, and watch my troubles vanish into the air.
+ - I am half a man, holy Jesus, what a drag.
+ - Learn about the world, the way it works, any kind of science and anthropology, it’s really an interesting place we live in. Evolution is a really fantastic idea, even more than the idea of God I think.
+ - We’ll have a kid or maybe we’ll rent one. He’s got to be straight, we don’t want a bent one.
+ - If we’d had another carefree 70s, I’d have been dead. It was a little too carefree, you know? I don’t know how carefree they were for me, I think I was worried then, I can’t remember what about.
+ - I have owned and played a Steinway all my life. It’s the best Beethoven piano. The best Chopin piano. And the best Ray Charles piano. I like it, too.
+ - I like the idea of taking a true classic written by a true genius and essentially destroying it!
+ - I am not overlooking any mail. I’m looking at all of it. I even wrote back to the Viagra people.
+ - Mostly, I don’t write overtly personal stuff.
+ - I’m pretty proud of my film music in general.
+ - I think the tax cut is ridiculous but so am I.
+ - I’ve worked with a band, and it’s nice to have someone to travel around with, but I didn’t like it as well on stage.
+ - I once had dinner with Madonna and I wasn’t nervous but within about a minute I found myself talking about underwear.
+ - It’s very hard to get rich and famous at a young age and handle it well.
+ - I seen her with the milkman, riding down the street. When you’re through with my baby, milkman, send her home to me.
+ - What I’m most pleased about is that there’s no particular decline. The songs I wrote 40 years ago are no worse and no better – there’s a consistency.
+
+56 quotes

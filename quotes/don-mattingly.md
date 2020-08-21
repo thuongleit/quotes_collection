@@ -1,0 +1,21 @@
+ - What did I do to deserve this?
+ - You never know who’s watching.
+ - Honestly, at one time I thought Babe Ruth was a cartoon character. I really did, I mean, I wasn’t born until 1961, and I grew up in Indiana.
+ - Baseball’s still a game. I don’t want it to be work. I want it to be a game.
+ - I have had many occasions this year where I questioned and second-guessed my decision in a game, but it comes down to learning from mistakes and being accountable for what you did right or did wrong.
+ - I like being close to the bats.
+ - I want to be on the field. It’s a better place to talk to the guys. It’s a relaxed atmosphere. You want to make sure you know what’s going on, not just with the hitters.
+ - If you don’t second-guess yourself, then you are not trying to get better.
+ - Nobody can see into the future. Nobody knows what going to go on.
+ - I’m not afraid of criticism or what somebody may think.
+ - When I write a note, it sticks in my head differently.
+ - We all have the temptation to be backseat drivers when it comes to decisions that don’t work out the way we want.
+ - I can’t concern myself with what’s going on with the club or what the media is writing. If you pay attention to those things, that’s when you get yourself in trouble.
+ - I’ve wanted to manage a long time and I’ve been moving in that direction.
+ - I don’t know what to say other than you’re really honored another team is looking at you.
+ - I’m always writing at night – things I would change, things I would do differently. When I write a note, it sticks in my head differently.
+ - His reputation preceded him before he got here.
+ - Managers have people second-guessing them all the time.
+ - I definitely want to manage. I just don’t think it’s the time right now.
+
+19 quotes

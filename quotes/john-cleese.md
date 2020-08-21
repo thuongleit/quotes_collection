@@ -1,0 +1,148 @@
+ - Creativity is not a talent. It is a way of operating.
+ - If you want creative workers, give them enough time to play.
+ - What have the Romans ever done for us?
+ - It’s only on the brink that people find the will to change. Only at the precipice do we evolve.
+ - Laughter is the best creative medicine.
+ - My hovercraft is full of eels.
+ - When you’re being stalked by an angry mob with raspberries, the first thing to do is to release a tiger.
+ - Life is a terminal disease, and it is sexually transmitted.
+ - Your Mother was A Hamster and you Father Smelled of elder berries.
+ - I think the problem with people like this is that they are so stupid that they have no idea how stupid they are.
+ - We all die at the end, but does that nullify everything? Would most people rather say, “I wish I hadn’t been born?” Once you’re born you’ll have to die, now is that funny or sad?
+ - Nothing will stop you being creative more effectively as the fear of making a mistake.
+ - A satisfied customer. We should have him stuffed.
+ - If you are leaping a ravine, the moment of takeoff is a bad time to be considering alternative strategies.
+ - Manuel will show you to your rooms – if you’re lucky.
+ - Telling people how to be creative is easy – being creative is difficult.
+ - Laughter is a force for democracy.
+ - Oh, I could spend my life having this conversation – look – please try to understand before one of us dies.
+ - No hope for planet at all. But I will be gone before the planet is gone, so it’s your problem.
+ - I think that money spoils most things, once it becomes the primary motivating force.
+ - I’m always meeting new people, and my list of friends seems to change quite a bit.
+ - Come to me. I want to plow you like a Calgary driveway at Christmas.
+ - The sad thing about true stupidity is that you can do absolutely nothing about it.
+ - Tension is wonderful for making people laugh.
+ - Too many people confuse being serious with being solemn.
+ - When you get to my age, and I’m 66 now, you realize that the world is a madhouse and that most people are operating in fantasy anyway. So once you realise that, it doesn’t bother you much.
+ - A wonderful thing about true laughter is that it just destroys any kind of system of dividing people.
+ - How to defend yourself against a banana.
+ - Loving your neighbour as much as yourself is practically bloody impossible? You might as well have a commandment that states,‘Thou shalt fly’.
+ - I can never do better than Fawlty Towers whatever I do. Now I very much want to teach young talent some rules of the game.
+ - It’s easier to be creative if you’ve got other people to play with.
+ - He who laughs most, learns best.
+ - Why write about the past? Well, there’s more of it.
+ - Students who laugh more- learn more. Students who laugh more earn more.
+ - While you’re being creative, nothing is wrong. There’s no such thing as a mistake, and any drivel may lead to the breakthrough.
+ - If God did not intend for us to eat animals, then why did he make them out of meat?
+ - You can lead a horse to water but you can’t make him enter regional distribution codes in data field 97 to facilitate regression analysis on the back end.
+ - When we hold a World Championship for a particular sport, we invite teams from other countries to play as well.
+ - I can certainly see that you know your wine. Most of the guests who stay here wouldn’t know the difference between Bordeaux and Claret.
+ - I’m struck by how laughter connects you with people. It’s almost impossible to maintain any kind of distance or any sense of social hierarchy when you’re just howling with laughter. Laughter is a force for democracy.
+ - I can do anything I want, I’m eccentric!
+ - I get bored easily. I’ve been bored most of my life.
+ - A man will give up almost anything except his suffering.
+ - I think it takes a long time, as you get older, to realize just how crazy the world is, just how ridiculous it all is.
+ - The one thing I remember about Christmas was that my father used to take me out in a boat about ten miles offshore on Christmas Day, and I used to have to swim back. Extraordinary. It was a ritual. Mind you, that wasn’t the hard part. The difficult bit was getting out of the sack.
+ - If you really don’t know where to start or if you’re stuck, start generating random connections and allow your intuition to tell you if one might lead somewhere interesting.
+ - I’m not sure what’s going on in Britain. I don’t know what’s going on in London. Because London is no longer an English city, and that’s how they got the Olympics. I mean, they said, “We’re the most cosmopolitan city on Earth,” but it doesn’t feel English.
+ - I think it’s because in America you always get the sense that if you fail, you can just pack up your things and go somewhere else and try again. But in England, it’s so geographically small that if somebody succeeds here, it reduces your chances of succeeding.
+ - This is the extraordinary thing about creativity: If just you keep your mind resting against the subject in a friendly but persistent way, sooner or later you will get a reward from your unconscious.
+ - My mum died about three years ago at the age of 101, and just towards the end, as she began to run out of energy, she did actually stop trying to tell me what to do most of the time.
+ - When you’ve been doing comedy for forty years, you really do know most of the jokes. And even if you don’t know a specific joke, you can pretty much guess what it’s going to be.
+ - There are 3 basic differences between we British and you Americans. One, we speak English, and you don’t. Two, when we have a “World Championship”, we invite teams from other nations. Three, when you meet the British head of State, you only have to get down on one knee.
+ - That’s a lovely experience when you make an audience laugh. Then the nerves go away for a bit. And sometimes you do things then that you’ve never done before that are really funny.
+ - I was very sad to hear of the death of Ronnie Barker, who was such a warm, friendly and encouraging presence to have when I started in television. He was also a great comic actor to learn from.
+ - I was always a sports nut but I’ve lost interest now in whether one bunch of mercenaries in north London is going to beat another bunch of mercenaries from west London.
+ - When I was in school, I was beaten every 30 minutes. It never did me any harm except for some psychological mal-adjustments and blurred vision.
+ - There’s nothing good on the television; let’s burn a witch. It must have been terribly exciting to live in those times.
+ - High creativity is responding to situations without critical thought.
+ - I was a terrible dancer. I dance like an Englishman.
+ - I just think that sometimes we hang onto people or relationships long after they’ve ceased to be of any use to either of you. I’m always meeting new people, and my list of friends seems to change quite a bit.
+ - Sense of humor is so much more subjective than anyone believes.
+ - Comedy always works best when it is mean-spirited.
+ - I think that the real religion is about the understanding that if we can only still our egos for a few seconds, we might have a chance of experiencing something that is divine in nature.
+ - Creativity is not an ability that you either have or do not have. It is, for example, and this may surprise you, absolutely unrelated to IQ, provided you’re intelligent above a certain minimal level.
+ - You can’t make Christ funny. He’s self-aware, he’s too flexible within the situation. It’s rigidity, it’s when the ego takes over and the behavior becomes inappropriate that it becomes funny.
+ - Filming is like a long air journey: there’s so much hanging around and boredom that they keep giving you food.
+ - When people quote sketches to me, half the time I don’t know what they’re talking about so I have to sort of go, aha, yes, oh yep, I remember that and lie my way out of it.
+ - Although I had good hand-eye coordination, I was so tall and skinny and muscularly weak that I just was not well coordinated. But what I started to do quite early on was watch some of the great old silent comedians, like Laurel and Hardy and Chaplin, and then later on Harold Lloyd and Buster Keaton.
+ - It’s a plastic surgeon you need, not a doctor.
+ - It’s too difficult to start right from scratch and try and be funny out of the blue.
+ - What I’ve always wanted to do is be as funny as possible.
+ - I don’t understand why very, very rich people want to have even more money than they’ve already got.
+ - Always start where the energy is.
+ - Muslims, who have a completely different value system, come to the West, then they should accept that there are certain basic values in the West intrinsic to our culture. Just as I wouldn’t suggest that any Westerner walk down the streets of Saudi Arabia in a bikini.
+ - Because, as we all know, it’s easier to do trivial things that are urgent than it is to do important things that are not urgent, like thinking. And it’s also easier to do little things we know we can do than to start on big things that we’re not so sure about.
+ - The English contribution to world cuisine – the chip.
+ - Basil Fawlty was an easy character for me. For some reason, portraying a mean uptight incompetent bully comes naturally to me.
+ - I’ve always found life quite difficult to explain to people or to myself.
+ - If I can get you to laugh with me, you like me better, which makes you more open to my ideas. And if I can persuade you to laugh at the particular point I make, by laughing at it you acknowledge its truth.
+ - The thrill I got discovering Buster Keaton when I was growing up was so exciting. He was one of the greats.
+ - Other people, you know, put a latex rubber on, you know, to become sexually excited. There’s so much I don’t understand.
+ - You go in and meet the head of BBC One and get an assurance about not dumbing down. And then, of course a few months later, he’s been replaced by someone you haven’t met.
+ - I love having different cultures around, but when the parent culture kind of dissipates, you’re left thinking, ‘Well, what’s going on?’
+ - I find it rather easy to portray a businessman. Being bland, rather cruel and incompetent comes naturally to me.
+ - The most creative people have learned to tolerate the slight discomfort of indecision for much longer and so, just because they put in more pondering time, their solutions are more creative.
+ - Sci-fi has never really been my bag. But I do believe in a lot of weird things these days, such as synchronicity. Quantum physics suggests it’s possible, so why not?
+ - I have several times made a poor choice by avoiding a necessary confrontation.
+ - God was treated like this powerful, erratic, rather punitive father who has to be pacified and praised. You know, flattered.
+ - Wine is wonderful stuff. But so many people are put off by the snobbery of it.
+ - The writing is the most important bit, and performing it is just closing the circle because I’m less likely to screw it up than anyone else.
+ - What is absurd is not the teachings of the founders of religion, it’s what followers subsequently make of it.
+ - If life were fair, Dan Quayle would be making a living asking ‘Do you want fries with that?’
+ - I don’t miss London much. I find it crowded, vast and difficult to get around. Cabs are incredibly expensive.
+ - Most of the bad taste I’ve been accused of has been generic bad taste; it’s been making fun of an idea as opposed to a person.
+ - I can’t tell you how scary it can be walking onto a movie and suddenly joining this family, it’s like going to somebody else’s Christmas dinner, everyone knows everyone, and you’re there and you’re not quite sure what you’re supposed to be doing.
+ - Laughter destroys any divisions between people.
+ - I would say that I began with a very edgy, very driven personality and after a sufficient amount of therapy over many, many years, I managed to become rather relaxed and happy.
+ - For me, the great problem growing up in England was that I had a very narrow concept of what God can be, and it was damn close to an old man with a beard.
+ - I think there are so many activities going on, like mountaineering. You know, you would pay good money not to have to do that, and yet there are people racing out who want to spend their spare time clambering up rocks.
+ - The open mode is a mood in which curiosity for its own sake can operate, because we’re not under pressure to get a specific thing done properly. We can play.
+ - We need to be in the open mode when we are pondering a problem, but, once we come up with a solution, we must then switch to the closed mode to implement it.
+ - Either people walk round dressed as chickens or they listen to Beethoven.
+ - When the target audience is American teenage kids, you can have problems. My generation prized really fine acting and writing. Sometimes you have to go back to the basic principles which underpin great visual comedy.
+ - The most creative people have this childlike facility to play.
+ - The really good idea is always traceable back quite a long way, often to a not very good idea which sparked off another idea that was only slightly better, which somebody else misunderstood in such a way that they then said something which was really rather interesting.
+ - Don’t let anyone tell you what you ought to like...
+ - I think the hard thing for young comedians is that the majority of the young people in the audience out there don’t have the wide range of references.
+ - I tend to have an odd split in my mind: I tend to look at it as a writer and when the writing thing is OK and I’m happy with it, then I put on my actor’s hat.
+ - When you do comedy in front of an audience, they are the ones who tell you whether it’s funny or not and which bits are funny and which bits need to be fixed.
+ - We don’t know where we get our ideas from. What we do know is that we do not get them from our laptops.
+ - I used to desire many, many things, but now I have just one desire, and that’s to get rid of all my other desires.
+ - My compulsion to always be working has become less strong and my current business is purely down to this enormous alimony. If I wasn’t doing this I’d be making documentaries about wildlife and other subjects that interest me.
+ - You have to create boundaries of space and then you have to create boundaries of time.
+ - You don’t have to be the Dalai Lama to tell people that life’s about change.
+ - The British fans are liable to suddenly be talking to you about something that you don’t know how you got into the conversation. I think it’s something to do with the fact that they’ve been watching you for so many years sort of you telling your story.
+ - Once we’ve made a decision, we are efficient only if we go through with it decisively, undistracted by doubts about its correctness.
+ - If you want to know who your friends are, have a major failure.
+ - I learned a lot of things about literature talking to people at the publishing company. Did you know that about 90 percent of celebrity autobiographies are ghostwritten?
+ - I could take an umbrella and balance it on my chin or on my foot. And I just got interested in that kind of thing. And as I played games more and more and got stronger physically, I just became more coordinated.
+ - Michael Palin decided to give up on his considerable comedy talents to make those dreadfully tedious travel shows. Have you ever tried to watch one?
+ - England is a fairly envious little country and it’s embodied in the press. They don’t like anyone being more distinguished than they are.
+ - I find the Alexander Technique very helpful in my work. Things happen without you trying. They get to be light and relaxed. You must get an Alexander teacher to show it to you.
+ - I think we’re all born with a sense of humor. Creativity is another thing though.
+ - Give your mind as long as possible to come up with something original.
+ - In Britain, girls seem to be either bright or attractive. In America, that’s not the case. They’re both.
+ - Naturally, people’s image is of a performer, but the reality of it is the writing for me has always been the most important thing and the most rewarding thing.
+ - The Americans are just more enthusiastic and more likely to engage in hyperbole.
+ - I don’t want to have to start being unselfish again. The great thing about being on your own is you do what you damned well like.
+ - English television from the Fifties to the Nineties was the least bad in the world, and now it’s just as bad as it is anywhere.
+ - I have a tendency sometimes to get too logical with what I’m writing, just because I want it to be kind of perfect.
+ - There’s something about watching an animal that puts you in contact with where we came from and what we’re still a part of.
+ - Technology frightens me to death. It’s designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers – which is why almost no technology ever works.
+ - On movies, I like to involve the cast in the writing of the script. I like to have a rehearsal period, after which I do the last draft, which gives me a chance to incorporate anything the actors have come up with during the rehearsal period, so I’m very inclusive as a writer.
+ - I want to write a book which is the history of comedy.
+ - Filming takes a lot out of you. It really does. It’s immensely demanding, and you have to put the rest of your life in the icebox until you do your final shot.
+ - It seems astounding to me now that the video games are perhaps as important as the movie themselves. And people will spend 2 or 3 years obsessing about the video game in exactly the same way that they’d be obsessing about the movie if they were working on that.
+ - Who’s ever going to write a film in which I get the girl? Me!
+ - By watching the great, old comedians I picked up a few tricks about how to do physical comedy. And whenever I could learn something, I sort of added that to my repertoire.
+ - I think that I feel an indignation when I don’t understand something.
+ - Yes it’s her husband. She hasn’t got over it. Died thirty years ago.
+ - The main evolutionary significance of humor is that it gets us from the closed mode to the open mode quicker than anything else.
+ - The Americans are so much more positive. They are much more in love with success. In Britain, they’re a fairly envious bunch, and they love it if you fail.
+ - Some actors, I think, want to feel that they are as creative as the writer. And the answer is, frankly, they’re not.
+ - I think humor is incredibly positive, I think it is life advancing. There’s medical research to show that it improves your antibodies. It’s all about sense and perspective.
+ - But then acting is all about faking. We’re all very good at faking things that we have no competence with.
+ - Ask yourself, “When does this decision have to be taken?” and having answered it, defer the decision until then, in order to give yourself maximum pondering time.
+
+146 quotes

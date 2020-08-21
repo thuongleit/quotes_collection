@@ -1,0 +1,502 @@
+ - Every normal man must be tempted, at times, to spit on his hands, hoist the black flag, and begin slitting throats.
+ - For every complex problem there is an answer that is clear, simple, and wrong.
+ - Democracy is a pathetic belief in the collective wisdom of individual ignorance.
+ - The best client is a scared millionaire.
+ - Democracy is the theory that the common people know what they want, and deserve to get it good and hard.
+ - There comes a time in every man’s life when he’s consumed by the desire to spit on his palms, hoist the black flag and start cutting throats.
+ - For the habitual truth-teller and truth-seeker, indeed, the whole world has very little liking. He is always unpopular.
+ - You can’t do anything about the length of your life, but you can do something about its width and depth.
+ - Morality is doing what is right, no matter what you are told. Religion is doing what you are told, no matter what is right.
+ - Adultery is the application of democracy to love.
+ - The most dangerous man to any government is the man who is able to think things out for himself, without regard to the prevailing superstitions and taboos. Almost inevitably he comes to the conclusion that the government he lives under is dishonest, insane, and intolerable...
+ - Honor is simply the morality of superior men.
+ - A cynic is a man who, when he smells flowers, looks around for a coffin.
+ - On some great and glorious day the plain folks of the land will reach their heart’s desire at last, and the White House will be adorned by a downright moron.
+ - There is always an easy solution to every problem – neat, plausible, and wrong.
+ - Puritanism. The haunting fear that someone, somewhere, may be happy.
+ - Misogynist: A man who hates women as much as women hate one another.
+ - A judge is a law student who marks his own examination papers.
+ - The demagogue is one who preaches doctrines he knows to be untrue to men he knows to be idiots.
+ - No matter how happily a woman may be married, it always pleases her to discover that there is a nice man who wishes that she were not.
+ - You come into the world with nothing, and the purpose of your life is to make something out of nothing.
+ - The only really happy folk are married women and single men.
+ - The men the American people admire most extravagantly are the most daring liars; the men they detest most violently are those who try to tell them the truth.
+ - Every complex problem has a simple solution that doesn’t work.
+ - The most dangerous man to any government is the man who is able to think things out for himself.
+ - Alimony – the ransom that the happy pay to the devil.
+ - There are no dull subjects. There are only dull writers.
+ - On the one side was bigotry, ignorance, hatred, superstition, every sort of blackness that the human mind is capable of. On the other side was sense.
+ - Moral certainty is always a sign of cultural inferiority. The more uncivilized the man, the surer he is that he knows precisely what is right and what is wrong.
+ - Never argue with a man whose job depends on not being convinced.
+ - The older I grow the more I distrust the familiar doctrine that age brings wisdom.
+ - Religion is fundamentally opposed to everything I hold in veneration – courage, clear thinking, honesty, fairness, and, above all, love of the truth.
+ - A man of active and resilient mind outwears his friendships just as certainly as he outwears his love affairs, his politics and his epistemology.
+ - The longest sentence you can form with two words is: I do.
+ - When somebody says it’s not about the money, it’s about the money.
+ - I believe that it is better to tell the truth than a lie. I believe it is better to be free than to be a slave. And I believe it is better to know than to be ignorant.
+ - We are here and it is now. Further than that, all human knowledge is moonshine.
+ - I know of no human being who has a better time than an eager and energetic young reporter.
+ - The objection to a Communist always resolves itself into the fact that he is not a gentleman.
+ - Socialist: A man suffering from an overwhelming conviction to believe what is not true.
+ - Every decent man is ashamed of the government he lives under.
+ - Criticism is prejudice made plausible.
+ - Most people want security in this world, not liberty.
+ - Deep within the heart of every evangelist lies the wreck of a car salesman.
+ - Those who can’t teach – administrate. Those who can’t administrate – go into politics.
+ - The central belief of every moron is that he is the victim of a mysterious conspiracy against his common rights and true deserts.
+ - Courtroom : A place where Jesus Christ and Judas Iscariot would be equals, with the betting odds favoring Judas.
+ - The way for newspapers to meet the competition of radio and television is simply to get out better papers.
+ - The best years are the forties; after fifty a man begins to deteriorate, but in the forties he is at the maximum of his villainy.
+ - An idealist is one who, on noticing that roses smell better than a cabbage, concludes that it will also make better soup.
+ - Human progress is furthered, not by conformity, but by aberration.
+ - Conscience is the inner voice that warns us that someone might be looking.
+ - If the average man is made in God’s image, then such a man as Beethoven or Aristotle is plainly superior to God.
+ - It is hard to believe that a man is telling the truth when you know that you would lie if you were in his place.
+ - School teachers, taking them by and large, are probably the most ignorant and stupid class of men in the whole group of mental workers.
+ - Happiness is the china shop; love is the bull.
+ - Man’s objection to love is that it dies hard; woman’s, that when it is dead, it stays dead.
+ - The ideal Government of all reflective men, from Aristotle onward, is one which lets the individual alone – one which barely escapes being no government at all.
+ - Love is like war: easy to begin but very hard to stop.
+ - The final test of truth is ridicule. Very few dogmas have ever faced it and survived.
+ - Morality is the theory that every human act must be either right or wrong, and that 99 % of them are wrong.
+ - The pedant and the priest have always been the most expert of logicians – and the most diligent disseminators of nonsense and worse.
+ - Our whole practical government is grounded in mob psychology and the Boobus Americanus will follow any command that promises to make him safer.
+ - Men become civilized, not in proportion to their willingness to believe, but in their readiness to doubt.
+ - The trouble with fighting for human freedom is that one spends most of one’s time defending scoundrels. For it is against scoundrels that oppressive laws are first aimed, and oppression must be stopped at the beginning if it is to be stopped at all.
+ - Never underestimate the bad taste of the American public.
+ - The saddest life is that of a political aspirant under democracy. His failure is ignominious and his success is disgraceful.
+ - For it is mutual trust, even more than mutual interest that holds human associations together. Our friends seldom profit us but they make us feel safe. Marriage is a scheme to accomplish exactly that same end.
+ - The great secret of happiness in love is to be glad that the other fellow married her.
+ - The average man’s love of liberty is nine-tenths imaginary. It takes a special sort of man to understand and enjoy liberty and he is usually an outlaw in democratic societies.
+ - The only way for a reporter to look at a politician is down.
+ - After all is said and done, a hell lot of a lot more is said than done.
+ - The New Deal began, like the Salvation Army, by promising to save humanity. It ended, again like the Salvation Army, by running flop-houses and disturbing the peace.
+ - The martini: the only American invention as perfect as the sonnet.
+ - Dachshund: A half-a-dog high and a dog-and-a-half long.
+ - Elections are futures markets in stolen property.
+ - All the great villainies of history, from the murder of Abel onward, have been perpetrated by sober men, chiefly by Teetotalers.
+ - There are two kinds of music; German music and bad music.
+ - The aim of public education is not to spread enlightenment at all; it is simply to reduce as many individuals as possible to the same safe level, to breed a standard citizenry, to put down dissent and originality.
+ - The plain fact is that education is itself a form of propaganda – a deliberate scheme to outfit the pupil, not with the capacity to weigh ideas, but with a simple appetite for gulping ideas ready-made. The aim is to make ‘good’ citizens, which is to say, docile and uninquisitive citizens.
+ - There is, in fact, nothing about religious opinions that entitles them to any more respect than other opinions get. On the contrary, they tend to be noticeably silly.
+ - The chief difference between free capitalism and State socialism seems to be this: that under the former a man pursues his own advantage openly, frankly and honestly, whereas under the latter he does so hypocritically and under false pretenses.
+ - The older I get the more I admire and crave competence, just simple competence, in any field from adultery to zoology.
+ - Women always excel men in that sort of wisdom which comes from experience. To be a woman is in itself a terrible experience.
+ - After all, all he did was string together a lot of old, well-known quotations.
+ - Life is a dead-end street.
+ - The one permanent emotion of the inferior man is fear – fear of the unknown, the complex, the inexplicable. What he wants above everything else is safety.
+ - The State doesn’t just want you to obey, it wants to make you WANT to obey.
+ - Democracy is only a dream: it should be put in the same category as Arcadia, Santa Claus, and Heaven.
+ - Democracy is the art and science of running the circus from the monkey cage.
+ - One of the things that makes a Negro unpleasant to white folk is the fact that he suffers from their injustice. He is thus a standing rebuke to them.
+ - Haste is of the devil. Slowness is of God.
+ - A Sunday school is a prison in which children do penance for the evil conscience of their parents.
+ - Immortality is the condition of a dead man who doesn’t believe he is dead.
+ - There is only one honest impulse at the bottom of Puritanism, and that is the impulse to punish the man with a superior capacity for happiness.
+ - There are some people who read too much: The bibliobibuli.
+ - The cosmos is a gigantic flywheel making 10,000 revolutions per minute. Man is a sick fly taking a dizzy ride on it.
+ - A church is a place in which gentlemen who have never been to heaven brag about it to persons who will never get there.
+ - Democracy is grounded upon so childish a complex of fallacies that they must be protected by a rigid system of taboos, else even halfwits would argue it to pieces. Its first concern must be to penalize the free play of ideas.
+ - Man is a beautiful machine that works very badly. He is like a watch of which the most that can be said is that its cosmetic effect is good.
+ - If a politician found he had cannibals among his constituents, he would promise them missionaries for dinner.
+ - I believe in only one thing and that thing is human liberty.
+ - He who eats alone chokes alone.
+ - Without a doubt there are women who would vote intelligently. There are also men who knit socks beautifully.
+ - Remorse-Regret that one waited so long to do it.
+ - Who will argue that 98.6 Farenheit is the right temperature for man? As for me, I decline to do it. It may be that we are all actually freezing hence the pervading stupidity of mankind. At 110 or 115 degrees even archbishops might be intelligent.
+ - Skin diseases are something doctors like, the patient neither dies nor gets well.
+ - The motive of fear is the be-all and end-all of religion.
+ - Culture itself is neither education nor law-making: it is an atmosphere and a heritage.
+ - Temptation is a woman’s weapon and man’s excuse.
+ - Everyman is thoroughly happy twice in his life, just after he has met his first love, and just after he has left his last one.
+ - Communism, like any other revealed religion, is largely made up of prophecies.
+ - The worst of marriage is that it makes a woman believe that all other men are just as easy to fool.
+ - Historian: an unsuccessful novelist.
+ - Love is an emotion that is based on an opinion of women that is impossible for those who have had any experience with them.
+ - A large part of altruism, even when it is perfectly honest, is grounded upon the fact that it is uncomfortable to have unhappy people about one.
+ - There are men so philosophical that they can see humor in their own toothaches. But there has never lived a man so philosophical that he could see the toothache in his own humor.
+ - Philosophy consists very largely of one philosopher arguing that all others are jackasses. He usually proves it, and I should add that he also usually proves that he is one himself.
+ - Always remember this: If you don’t attend the funerals of your friends, they will certainly not attend yours.
+ - The worshiper is the father of the gods.
+ - Man makes love by braggadocio, and woman makes love by listening.
+ - There is no idea so stupid that you can’t find a professor who will believe it.
+ - A dull, dark, depressing day in Winter: the whole world looks like a Methodist church at Wednesday night prayer meeting.
+ - The allurement that women hold out to men is precisely the allurement that Cape Hatteras holds out to sailors; they are enormously dangerous and hence enormously fascinating.
+ - In this world of sin and sorrow there is always something to be thankful for; as for me, I rejoice that I am not a Republican.
+ - Friendship is a common belief in the same fallacies, mountebanks and hobgoblins.
+ - If, after I depart this vale, you ever remember me and have thought to please my ghost, forgive some sinner and wink your eye at some homely girl.
+ - No one hates his job so heartily as a farmer.
+ - You never push a noun against a verb without trying to blow up something.
+ - The truth that survives is simply the lie that is pleasantest to believe.
+ - Thanksgiving Day is a day devoted by persons with inflammatory rheumatism to thanking a loving Father that it is not hydrophobia.
+ - Man is a natural polygamist: he always has one woman leading him by the nose, and another hanging on to his coattails.
+ - What ails the truth is that it is mainly uncomfortable, and often dull. The human mind seeks something more amusing, and more caressing.
+ - There is always a sheet of paper. There is always a pen. There is always a way out.
+ - Love is photogenic. It needs darkness room to develop.
+ - God is a Republican, and Santa Claus is a Democrat.
+ - The smallest atom of truth represents some man’s bitter toil and agony; for every ponderable chunk of it there is a brave truth-seeker’s grave upon some lonely ash-dump and a soul roasting in hell.
+ - The urge to save humanity is almost always a false front for the urge to rule.
+ - Life is a constant oscillation between the sharp horns of dilemmas.
+ - Journalism is to politician as dog is to lamp-post.
+ - The fact is that the average man’s love of liberty is nine-tenths imaginary, exactly like his love of sense, justice and truth.
+ - People say we need religion when what they really mean is we need police.
+ - The American people, I am convinced, really detest free speech. At the slightest alarm they are ready and eager to put it down.
+ - It is the dull man who is always sure, and the sure man who is always dull.
+ - The first Rotarian was the first man to call John the Baptist Jack.
+ - In human history a moral victory is always a disaster, for it debauches and degrades both the victor and the vanquished.
+ - He slept more than any other president, whether by day or by night. Nero fiddled, but Coolidge only snored.
+ - High-toned humanitarians constantly overestimate the sufferings of those they sympathize with.
+ - The Jews fastened their religion upon the Western world, not because it was more reasonable than the religions of their contemporaries – as a matter of fact, it was vastly less reasonable than many of them – but because it was far more poetical.
+ - The theatre, when all is said and done, is not life in miniature, but life enormously magnified, life hideously exaggerated.
+ - Happiness is peace after strife, the overcoming of difficulties, the feeling of security and well-being. The only really happy folk are married women and single men.
+ - The only really respectable Protestants are the fundamentalists. Unfortunately, they are also palpable idiots.
+ - Pastor: One employed by the wicked to prove to them by his example that virtue doesn’t pay.
+ - A man always remembers his first love with special tenderness, but after that he begins to bunch them.
+ - Nothing can come out of an artist that is not in the man.
+ - There’s really no point to voting. If it made any difference, it would probably be illegal.
+ - As the arteries grow hard, the heart grows soft.
+ - The most disgusting cad in the world is the man who on the grounds of decorum and morality avoids the game of love. He is one who puts his own ease and security above the most laudable of philanthropies.
+ - Every election is a sort of advance auction sale of stolen goods.
+ - The lunatic fringe wags the underdog.
+ - Hygiene is the corruption of medicine by morality.
+ - One horse-laugh is worth ten-thousand syllogisms.
+ - A cynic is a man who, when he smells flowers, looks around for a coffin or when he sees silver he looks for the cloud it lines. A wise happy person does the exact opposite.
+ - Change is not progress.
+ - I have often argued that a poet more than thirty years old is simply an overgrown child. I begin to suspect that there may be some truth in it.
+ - The American people, taking one with another, constitute the most timorous, snivelling, poltroonish, ignominious mob of serfs and goosesteppers ever gathered under one flag in Christendom since the end of the Middle Ages.
+ - A home is not a mere transient shelter: its essence lies in the personalities of the people who live in it.
+ - Love is the triumph of imagination over intelligence.
+ - The best teacher of children, in brief, is one who is essentially childlike.
+ - The Christian always swears a bloody oath that he will never do it again. The civilized man simply resolves to be a bit more careful next time.
+ - Anyhow, the hole in the donut is at least digestible.
+ - I know some who are constantly drunk on books as other men are drunk on whiskey.
+ - Truth would quickly cease to be stranger than fiction, once we got as used to it.
+ - All men are frauds. The only difference between them is that some admit it. I myself deny it.
+ - Women in general seem to me to be appreciably more intelligent than men. A great many of them suffer in silence from the imbecilities of their husbands.
+ - In the duel of sex woman fights from a dreadnought and man from an open raft.
+ - Women hate revolutions and revolutionists. They like men who are docile, and well-regarded at the bank, and never late at meals.
+ - It is impossible to believe that the same God who permitted His own son to die a bachelor regards celibacy as an actual sin.
+ - The notion that artists flourish upon adversity and misunderstanding, that they are able to function to the utmost in an atmosphere of indifference or hostility – this notion is nine-tenths nonsense.
+ - The plain people, hereafter as in the past, will continue to make their own language, and the best that grammarians can do is to follow after it, haltingly, and not often with much insight into it.
+ - No married man is genuinely happy if he has to drink worse whisky than he used to drink when he was single.
+ - Whenever “A” attempts by law to impose his moral standards upon “B,” “A” is most likely a scoundrel.
+ - The believing mind is externally impervious to evidence. The most that can be accomplished with it is to induce it to substitute one delusion for another. It rejects all overt evidence as wicked...
+ - The war on privilege will never end. Its next great campaign will be against the privileges of the underprivileged.
+ - Every failure teaches a man something, to wit, that he will probably fail again.
+ - If x is the population of the United States and y is the degree of imbecility of the average American, then democracy is the theory that x times y is less than y.
+ - Youth, though it may lack knowledge, is certainly not devoid of intelligence; it sees through shams with sharp and terrible eyes.
+ - The idea that the sole aim of punishment is to prevent crime is obviously grounded upon the theory that crime can be prevented, which is almost as dubious as the notion that poverty can be prevented.
+ - God is the immemorial refuge of the incompetent, the helpless, and the miserable. They find not only sanctuary in his arms, but also a kind of superiority, soothing to their macerated egos; he will set them above their betters.
+ - A man always blames the woman who fools him. In the same way he blames the door he walks into in the dark.
+ - Los Angeles: nineteen suburbs in search of a metropolis.
+ - Don’t overestimate the decency of the human race.
+ - Bachelors know more about women than married men; if they didn’t they’d be married too.
+ - Have you ever watched a crab on the shore crawling backward in search of the Atlantic Ocean, and missing? That’s the way the mind of man operates.
+ - The dying man doesn’t struggle much and he isn’t much afraid. As his alkalies give out he succumbs to a blest stupidity. His mindfogs. His will power vanishes. He submits decently. He scarcely gives a damn.
+ - I give you Chicago. It is not London and Harvard. It is not Paris and buttermilk. It is American in every chitling and sparerib. It is alive from snout to tail.
+ - The first kiss is stolen by the man; the last is begged by the woman.
+ - How little it takes to make life unbearable: a pebble in the shoe, a cockroach in the spaghetti, a woman’s laugh.
+ - I believe that all government is evil, in that all government must necessarily make war on liberty, and that the democratic government is at least as bad as any of the other forms.
+ - School days, I believe, are the unhappiest in the whole span of human existence.
+ - Henry James would have been vastly improved as a novelist by a few whiffs of the Chicago stockyard.
+ - I’m ombibulous. I drink every known alcoholic drink and enjoy them all.
+ - The net effect of Clarence Darrow’s great speech yesterday seemed to be precisely the same as if he had bawled it up a rainspout in the interior of Afghanistan.
+ - Lying is not only excusable; it is not only innocent; it is, above all, necessary and unavoidable. Without the ameliorations that it offers, life would become a mere syllogism and hence too metallic to be borne.
+ - Time is a great legalizer, even in the field of morals.
+ - I hate sports the way people who like sports hate common sense.
+ - A man may be a fool and not know it, but not if he is married.
+ - There is something even more valuable to civilization than wisdom, and that is character.
+ - In the long run all battles are lost, and so are all wars.
+ - Archbishop – A Christian ecclesiastic of a rank superior to that attained by Christ.
+ - If I had my way, any man guilty of golf would be barred from any public office in the United States and the families of the breed would be shipped off to the white slave corrals of Argentina.
+ - I never lecture, not because I am shy or a bad speaker, but simply because I detest the sort of people who go to lectures and don’t want to meet them.
+ - No married woman ever trusts her husband absolutely, nor does she ever act as if she did trust him. Her utmost confidence is as wary as an American pickpocket’s confidence that the policeman on the beat will stay bought.
+ - Correct spelling, indeed, is one of the arts that are far more esteemed by schoolma’ams than by practical men, neck-deep in the heat and agony of the world.
+ - The truth, indeed, is something that mankind, for some mysterious reason, instinctively dislikes. Every man who tries to tell it is unpopular, and even when, by the sheer strength of his case, he prevails, he is put down as a scoundrel.
+ - One of the most mawkish of human delusions is the notion that friendship should be eternal, or, at all events, life-long, and that any act which puts a term to it is somehow discreditable.
+ - What ass first let loose the doctrine that the suffrage is a high boon and voting a noble privilege?
+ - The Catholic clergy seldom bother to make their arguments plausible; it is plain that they have little respect for human intelligence, and indeed little belief in its existence.
+ - A man’s women folk, whatever their outward show of respect for his merit and authority, always regard him secretly as an ass, and with something akin to pity.
+ - I think the Negro people should feel secure enough by now to face a reasonable ridicule without terror. I am unalterably opposed to all efforts to put down free speech, whatever the excuse.
+ - The only time you have a free press is when you own one.
+ - Of learned men, the clergy show the lowest development of professional ethics. Any pastor is free to cadge customers from the divines of rival sects, and to denounce the divines themselves as theological quacks.
+ - What the meaning of human life may be I don’t know: I incline to suspect that it has none.
+ - Popularity – The capacity for listening sympathetically when men boast of their wives and women complain of their husbands.
+ - We must be prepared to pay a price for freedom, for no price that is ever asked for it is half the cost of doing without it.
+ - In the United States, doing good has come to be, like patriotism, a favorite device of persons with something to sell.
+ - If there was ever a dissenter from the national optimismit was surely Edgar Allan Poe – without question the bravest and mostoriginal, if perhaps also the least orderly and judicious, of all the critics that we have produced.
+ - On one issue, at least, men and women agree. They both distrust women.
+ - The only way to success in American public life lies in flattering and kowtowing to the mob.
+ - A man full of faith is simply one who has lost the capacity for clear and realistic thought.
+ - All human progress, even in morals, has been the work of men who have doubted the current moral values, not of men who have whooped them up and tried to enforce them.
+ - A newspaper is a device for making the ignorant more ignorant and the crazy crazier.
+ - It is now quite lawful for a Catholic woman to avoid pregnancy by a resort to mathematics, though she is still forbidden to resort to physics or chemistry.
+ - To the best of my knowledge and belief, the average American newspaper, even of the so-called better sort, is not only quite as bad as Upton Sinclair says it is, but 10 times worse.
+ - No sane man objects to palpable lies about him; what he objects to is damaging facts.
+ - Bridges would not be safer if only people who knew the proper definition of a real number were allowed to design them.
+ - There is a saying in Baltimore that crabs may be prepared in fifty ways and that all of them are good.
+ - Men have a much better time of it than women. For one thing, they marry later; for another thing, they die earlier.
+ - Looking for an honest politician is like looking for an ethical burglar.
+ - Why do men delight in work? Fundamentally, I suppose, because there is a sense of relief and pleasure in getting something done – a kind of satisfaction not unlike that which a hen enjoys on laying an egg.
+ - Chopin – Two embalmers at work upon a minor poetthe scent of tuberosesAutumn rain.
+ - One horse-laugh is worth ten thousand syllogisms. It is not only more effective; it is also vastly more intelligent.
+ - I believe that all government is evil, and that trying to improve it is largely a waste of time.
+ - The great achievement of liberal Protestantism was to make God boring.
+ - Every man is his own hell.
+ - The great artists of the world are never Puritans, and seldom even ordinarily respectable.
+ - Socialism: nothing more than the theory that the slave is always more virtuous than his master.
+ - Jealousy is a keen observer, but looks for all the wrong signs.
+ - Whatever the label on the parties, or the war cries issuing from the demagogues who lead them, the practical choice is between the plutocracy on the one side and a rabble of preposterous impossibilists on the other.
+ - The trouble with Communism is the Communists, just as the trouble with Christianity is the Christians.
+ - Conscience is a mother-in-law whose visit never ends.
+ - Legend: A lie that has attained the dignity of age.
+ - All government, in its essence, is a conspiracy against the superior man: its one permanent object is to oppress him and cripple him.
+ - In any combat between a rogue and a fool the sympathy of mankind is always with the rogue.
+ - The natural tendency of every government is to grow steadily worse-that is, to grow more satisfactory to those who constitute it and less satisfactory to those who support it.
+ - Whenever a reporter is assigned to cover a Methodist conference, he comes home an atheist.
+ - A living language is like a man suffering incessantly from small hemorrhages, and what it needs above all else is constant transactions of new blood from other tongues. The day the gates go up, that day it begins to die.
+ - The ideal way to get rid of any infectious disease would be to shoot instantly every person who comes down with it.
+ - Before a man speaks it is always safe to assume that he is a fool. After he speaks, it is seldom necessary to assume it.
+ - The best teacher is not the one who knows most but the one who is most capable of reducing knowledge to that simple compound of the obvious and wonderful.
+ - The most satisfying and ecstatic faith is almost purely agnostic. It trusts absolutely without professing to know at all.
+ - Science, at bottom, is really anti-intellectual. It always distrusts pure reason, and demands the production of objective fact.
+ - Not by accident, you may be sure, do the Christian Scriptures make the father of knowledge a serpent – slimy, sneaking and abominable.
+ - The two main ideas that run through all of my writing, whether it be literary criticism or political polemic are these: I am strong in favor of liberty and I hate fraud.
+ - The liberation of the human mind has never been furthered by dunderheads.
+ - The true aim of medicine is not to make men virtuous; it is to safeguard and rescue them from the consequences of their vices. The physician does not preach repentance; he offers absolution.
+ - Free speech is too dangerous to a democracy to be permitted.
+ - A Puritan is someone who is desperately afraid that, somewhere, someone might be having a good time.
+ - Let no one mistake it for comedy, farcical though it may be in all its details. It serves notice on the country that Neanderthal man is organizing in these forlorn backwaters of the land, led by a fanatic, rid of sense and devoid of conscience.
+ - Giving every man a vote has no more made men wise and free than Christianity has made them good.
+ - A woman usually respects her father, but her view of her husband is mingled with contempt, for she is of course privy to the transparent devices by which she snared him.
+ - Taxation, for example, is eternally lively; it concerns nine-tenths of us more directly than either smallpox or golf, and has just as much drama in it; moreover, it has been mellowed and made gay by as many gaudy, preposterous theories.
+ - My guess is that well over eighty per cent. of the human race goes through life without having a single original thought...
+ - The way to deal with superstition is not to be polite to it, but to tackle it with all arms, and so rout it, cripple it, and make it forever infamous and ridiculous.
+ - Nietzsche, to the end of his days, remained a Russian pastor’s son, and hence two-thirds of a Puritan; he erected his war upon holiness, toward the end, into a sort of holy war.
+ - I believe in only one thing: liberty; but I do not believe in liberty enough to want to force it upon anyone.
+ - Say what you will about the ten commandments, you must always come back to the pleasant fact that there are only ten of them.
+ - The difference between the smartest dog and the stupidest man – say a Tennessee Holy Roller – is really very small.
+ - It doesn’t take a majority to make a rebellion; it takes only a few determined leaders and a sound cause.
+ - A tin horn politician with the manner of a rural corn doctor and the mien of a ham actor.
+ - Congress consists of one-third, more or less, scoundrels; two-thirds, more or less, idiots; and three-thirds, more or less, poltroons.
+ - The most costly of all follies is to believe passionately in the palpably not true. It is the chief occupation of mankind.
+ - No healthy man, in his secret heart, is content with his destiny. He is tortured by dreams and images as a child is tortured by the thought of a state of existence in which it would live in a candy store and have two stomachs.
+ - The scent of frying astronomers long ago ceased to ascend to Yahweh.
+ - The double standard of morality will survive in this world so long as the woman whose husband has been lured away is favoured with the sympathetic tears of other women, and a man whose wife has made off is laughed at by other men.
+ - Every man sees in his relatives, and especially in his cousins, a series of grotesque caricatures of himself.
+ - Democracy is also a form of worship. It is the worship of Jackals by Jackasses.
+ - Living with a dog is easy- like living with an idealist.
+ - I drink exactly as much as I want, and one drink more.
+ - The more a man dreams, the less he believes.
+ - The opera is to music what a bawdy house is to a cathedral.
+ - If the American people really tire of democracy and want to make a trial of Fascism, I shall be the last person to object. But if that is their mood, then they had better proceed toward their aim by changing the Constitution and not by forgetting it.
+ - A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.
+ - It is more blessed to give than receive; for example, wedding presents.
+ - Evil: That which one believes of others. It is a sin to believe evil of others, but it is seldom a mistake.
+ - Temptation is an irresistible force at work on a movable body.
+ - How do they taste? They taste like more.
+ - What is the professor’s function? To pass on to numskulls a body of so-called knowledge that is fragmentary, unimportant, and largely untrue.
+ - Religion is a conceited effort to deny the most obvious realities.
+ - No man of honor ever quite lives up to his code, any more than a moral man manages to avoid sin.
+ - The only way to reconcile science and religion is to set up something which is not science and something that is not religion.
+ - To wage a war for a purely moral reason is as absurd as to ravish a woman for a purely moral reason.
+ - The ideal state for a philosopher, indeed, is celibacy tempered by polygamy.
+ - Injustice is relatively easy to bear; what sting is justice.
+ - Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love.
+ - The Book of Revelation has all the authority, in these theological uplands, of military orders in time of war. The people turn to it for light upon all their problems, spiritual and secular.
+ - What restrains us from killing is partly fear of punishment, partly moral scruple, and partly what may be described as a sense of humor.
+ - Religion deserves no more respect than a pile of garbage.
+ - No normal man ever fell in love after thirty when the kidneys begin to disintegrate.
+ - A critic is a man who writes about things he doesn’t like.
+ - To believe that Russia has got rid of the evils of capitalism takes a special kind of mind. It is the same kind of mind that believes that a Holy Roller has got rid of sin.
+ - Goverment is actually the worst failure of civilized man. There has never been a really good one, and even those that are the most tolerable are arbitary, cruel, grasping, and unintelligent.
+ - The acting that one sees upon the stage does not show how human beings comport themselves in crises, but how actors think they ought to. It is thus, like poetry and religion, a device for gladdening the heart with what is palpably not true.
+ - Philadelphia is the most pecksniffian of American cities, and thus probably leads the world.
+ - Well, I tell you, if I have been wrong in my agnosticism, when I die I’ll walk up to God in a manly way and say, Sir, I made an honest mistake.
+ - I believe that no discovery of fact, however trivial, can be wholly useless to the race, and that no trumpeting of falsehood, however virtuous in intent, can be anything but vicious.
+ - Man weeps to think that he will die so soon; woman, that she was born so long ago.
+ - Liberty and democracy are eternal enemies, and every one knows it who has ever given any sober reflection to the matter.
+ - The only liberty an inferior man really cherishes is the liberty to quit work, stretch out in the sun, and scratch himself.
+ - Whenever A annoys or injures B on the pretense of saving or improving X, A is a scoundrel.
+ - War may make a fool of man, but it by no means degrades him; on the contrary, it tends to exalt him, and its net effects are much like those of motherhood on women.
+ - The most popular man under a democracy is not the most democratic man, but the most despotic man. The common folk delight in the exactions of such a man. They like him to boss them. Their natural gait is the goose step.
+ - To be in love is merely to be in a state of perceptual anesthesia – to mistake an ordinary young woman for a goddess.
+ - Only a jackass ever talks over his affairs with a woman, whether she be his sweetheart, wife, or sister, or mother.
+ - I never smoked a cigarette until I was nine.
+ - A society made up of individuals who were all capable of original thought would probably be unendurable.
+ - One smart reader is worth a thousand boneheads.
+ - Puccini – silver macaroni, exquisitely tangled.
+ - The cynics are right nine times out of ten.
+ - Lawyer: one who protects us against robbery by taking away the temptation.
+ - A nun, at best, is only half a woman, just as a priest is only half a man.
+ - History deals mainly with captains and kings, gods and prophets, exploiters and despoilers, not with useful men.
+ - The book of Genesis, a farrago of nonsense so wholly absurd that even Sunday-school scholars have to be threatened with Hell to make them accept it.
+ - An altruist is one who would be sincerely sorry to see his neighbor’s children devoured by wolves.
+ - Man, without a saving touch of woman in him, is too doltish, too naive and romantic, too easily deluded and lulled to sleep by his imagination to be anything above a cavalryman, a theologian or a corporation director.
+ - For it is the natural tendency of the ignorant to believe what is not true. In order to overcome that tendency it is not sufficient to exhibit the true; it is also necessary to expose and denounce the false.
+ - If ever a man is to achieve anything like dignity, it can happen only if superior men are given absolute freedom to think what they want to think and say what they want to say.
+ - The common notion that free speech prevails in the United States always makes me laugh.
+ - Kant was probably the worst writer ever heard of on earth before Karl Marx. Some of his ideas were really quite simple, but he always managed to make them seem unintelligible. I hope he is in Hell.
+ - We must be willing to pay a price for freedom.
+ - The Christian church, in its attitude toward science, shows the mind of a more or less enlightened man of the Thirteenth Century. It no longer believes that the earth is flat, but it is still convinced that prayer can cure after medicine fails.
+ - The sort of man who likes to spend his time watching a cage of monkeys chase one another, or a lion gnaw its tail, or a lizard catch flies, is precisely the sort of man whose mental weakness should be combated at the public expense, not fostered.
+ - A fool who, after plain warning, persists in dosing himself with dangerous drugs should be free to do so, for his death is a benefit to the race in general.
+ - A gentlemen is one who never strikes a woman without provocation.
+ - Politics, as hopeful men practise it in the world, consists mainly of the delusion that a change in form is a change in substance.
+ - The only good bureaucrat is one with a pistol at his head. Put it in his hand and it’s good-by to the Bill of Rights.
+ - I believe that religion, generally speaking, has been a curse to mankind.
+ - Balloonists have an unsurpassed view of the scenery, but there is always the possibility that it may collide with them.
+ - Nature abhors a moron.
+ - We have had more brilliant Presidents than Cleveland, and one or two who were considerably more profound, but we have never had one, at least since Washington, whose fundamental character was solider and more admirable.
+ - A man who is an agnostic by inheritance, so that he doesn’t remember any time that he wasn’t, has almost no hatred for the religious.
+ - Government, like any other organism, refuses to acquiesce in its own extinction. This refusal, of course, involves the resistance to any effort to diminish its powers and prerogatives.
+ - When I mount the scaffold at last these will be my farewell words to the sheriff: Say what you will against me when I am gone, but don’t forget to add, in common justice, that I was never converted to anything.
+ - No matter how much a woman loved a man, it would still give her a glow to see him commit suicide for her.
+ - The average schoolmaster is and always must be essentially an ass, for how can one imagine an intelligent man engaging in so puerile an avocation.
+ - No matter how long he lives, no man ever becomes as wise as the average woman of forty-eight.
+ - All talk of winning the people by appealing to their intelligence, of conquering them by impeccable syllogism, is so much moonshine.
+ - War is the only sport which is genuinely amusing. And it is the only sport which has any intelligible use.
+ - What makes philosophy so tedious is not the profundity of philosophers, but their lack of art; they are like physicians who soughtto cure a slight hyperacidity by prescribing a carload of burned oyster-shells.
+ - One seldom discovers a true believer that is worth knowing.
+ - Capital punishment has probably been responsible for a good deal of human progress. The overwhelming majority of those executed were of the sort whose departures for bliss eternal improved the average intelligence and decency of the race.
+ - Next to the semi-colon, quotation marks seem to be the chief butts of reformatory ardor.
+ - I am suspicious of all the things that the average people believes.
+ - They have taken the care and upbringing of children out of the hands of parents, where it belongs, and thrown it upon a gang of irresponsible and unintelligent quacks.
+ - Genius: the ability to prolong one’s childhood.
+ - We suffer most when the White House busts with ideas.
+ - Nothing is so abject and pathetic as a politician who has lost his job, save only a retired stud-horse.
+ - Why do men go to zoos?
+ - New York: A third-rate Babylon.
+ - During many a single week, I daresay, more money is spent in New York upon useless and evil things than would suffice to run the kingdom of Denmark for a year.
+ - Christian endeavor is notoriously hard on female pulchritude.
+ - The objection of the scandalmonger is not that she tells of racy doings, but that she pretends to be indignant about them.
+ - The verdict of a jury is the a priori opinion of that juror who smokes the worst cigars.
+ - Hamlet has been played by 5,000 actors, no wonder he is crazy.
+ - To the man with an ear for verbal delicacies- the man who searches painfully for the perfect word, and puts the way of saying a thing above the thing said – there is in writing the constant joy of sudden discovery, of happy accident.
+ - Theology is the effort to explain the unknowable in terms of the not worth knowing.
+ - The worst government is often the most moral. One composed of cynics is often very tolerant and humane. But when fanatics are on top there is no limit to oppression.
+ - To argue that the gaps in knowledge which confront the seeker must be filled, not by patient inquiry, but by intuition or revelation, is simply to give ignorance a gratuitous and preposterous dignity.
+ - Love is the delusion that one woman differs from another.
+ - A professional politician is a professionally dishonorable man. In order to get anywhere near high office he has to make so many compromises and submit to so many humiliations that he becomes indistinguishable from a streetwalker.
+ - Man is always looking for someone to boast to; woman is always looking for a shoulder to put her head on.
+ - I have little belief in human progress. The human race is incurably idiotic. It will never be happy.
+ - Conscience is the accumulated sediment of ancestral faint- heartedness.
+ - I know of no existing nation that deserves to live, and I know of very few individuals.
+ - The basic fact about human existence is not that it is a tragedy, but that it is a bore. It is not so much a war as an endless standing in line.
+ - Wealth – any income that is at least one hundred dollars more a year than the income of one’s wife’s sister’s husband.
+ - Imagine the Creator as a low comedian, and at once the world becomes explicable.
+ - It takes a long while for a naturally trustful person to reconcile himself to the idea that after all God will not help him.
+ - The capacity of human beings to bore one another seems to be vastly greater than that of any other animal.
+ - Suicide is a belated acquiescence in the opinion of one’s wife’s relatives.
+ - When a husband’s story is believed, he begins to suspect his wife.
+ - The function of a newspaper in a democracy is to stand as a sort of chronic opposition to the reigning quacks. The minute it begins to out-whoop them it forfeits its character and becomes ridiculous.
+ - The effort to reconcile science and religion is almost always made, not by theologians, but by scientists unable to shake off altogether the piety absorbed with their mother’s milk.
+ - No democratic delusion is more fatuous than that which holds that all men are capable of reason, and hence susceptible to conversion by evidence. If religions depended upon evidence for their prolongation, then all of them would collapse.
+ - As if paralyzed by the national fear of ideas, the democratic distrust of whatever strikes beneath the prevailing platitudes, it evades all resolute and honest dealing with what, after all, must be every healthy literature’s elementary materials.
+ - I can’t imagine a genuinely intelligent boy getting much out of college, even out of a good college, save it be a cynical habit of mind.
+ - Sin is a dangerous toy in the hands of the virtuous. It should be left to the congenitally sinful, who know when to play with it and when to let it alone.
+ - The difference between a moral man and a man of honor is that the latter regrets a discreditable act, even when it has worked and he has not been caught.
+ - Perhaps the most revolting character that the United States ever produced was the Christian Businessman.
+ - All I ask is equal freedom. When it is denied, as it always is, I take it anyhow.
+ - The common argument that crime is caused by poverty is a kind of slander on the poor.
+ - Shave a gorilla and it would be almost impossible, at twenty paces, to distinguish him from a heavyweight champion of the world. Skin a chimpanzee, and it would take an autopsy to prove he was not a theologian.
+ - The military caste did not originate as a party of patriots, but as a party of bandits.
+ - Each party steals so many articles of faith from the other, and the candidates spend so much time making each other’s speeches, that by the time election day is past there is nothing much to do save turn the sitting rascals out and let a new gang in.
+ - Capitalism under democracy has a further advantage: its enemies, even when it is attacked, are scattered and weak, and it is usually easily able to array one half of them against the other half, and thus dispose of both.
+ - Equality before the law is probably forever unattainable. It is a noble ideal, but it can never be realized, for what men value in this world is not rights but privileges.
+ - Kipling, the grandson of a Methodist preacher, reveals the tin-pot evangelist with increasing clarity as youth and its ribaldries pass away and he falls back upon his fundamentals.
+ - Liberals have many tails and chase them all.
+ - Men are the only animals that devote themselves, day in and day out, to making one another unhappy. It is an art like any other. Its virtuosi are called altruists.
+ - I am against slavery simply because I dislike slaves.
+ - The true bureaucrat is a man of really remarkable talents. He writes a kind of English that is unknown elsewhere in the world, and an almost infinite capacity for forming complicated and unworkable rules.
+ - A woman wishes to mother a man simply because she sees into his helplessness, his need of an amiable environment, his touching self-delusion.
+ - Economic independence is the foundation of the only sort of freedom worth a damn.
+ - When a new source of taxation is found it never means, in practice, that the old source is abandoned. It merely means that the politicians have two ways of milking the taxpayer where they had one before.
+ - A politician is an animal which can sit on a fence and yet keep both ears to the ground.
+ - This combat between proletariat and plutocracy is, after all, itself a civil war. Two inferiorities struggle for the privilege of polluting the world.
+ - Writing books is certainly a most unpleasant occupation. It is lonesome, unsanitary, and maddening. Many authors go crazy.
+ - The essence of self-fulfillment and autonomous culture is an unshakable egotism.
+ - Never drink if you’ve got any work to do. Never.
+ - When women kiss it always reminds one of prize fighters shaking hands.
+ - Creator: A comedian whose audience is afraid to laugh.
+ - Sometimes the idiots outvote the sensible people.
+ - The worst government is the most moral.
+ - The law is a sort of hocus-pocus science that smiles in your face while it picks your pocket.
+ - Law and its instrument, government, are necessary to the peace and safety of all of us, but all of us, unless we live the lives of mud turtles, frequently find them arrayed against us...
+ - If experience teaches us anything at all, it teaches us this: that a good politician, under democracy, is quite as unthinkable as an honest burglar.
+ - No professional politician is ever actually in favor of public economy. It is his implacable enemy, and he knows it. All professional politicians are dedicated wholeheartedly to waste and corruption. They are the enemies of every decent man.
+ - The fact that a human brain of high amperage, otherwise highly efficient, may have a hole in it is surely not a secret.
+ - Why assume so glibly that the God who presumably created the universe is still running it? It is certainly conceivable that He may have finished it and then turned it over to lesser gods to operate.
+ - Unsuccessful candidates for the Presidency should be quietly hanged as a matter of public sanitation and decorum.
+ - Government is actually the worst failure of civilized man.
+ - The only cure for contempt is counter-contempt.
+ - If we assume that man actually does resemble God, then we are forced into the impossible theory that God is a coward, an idiot and a bounder.
+ - On the one hand, we may tell the truth, regardless of consequences, and on the other hand we may mellow it and sophisticate it to make it humane and tolerable.
+ - The government consists of a gang of men exactly like you and me. They have, taking one with another, no special talent for the business of government; they have only a talent for getting and holding office.
+ - It takes no more actual sagacity to carry on the everyday hawking and haggling of the world, or to ladle out its normal doses of bad medicine and worse law, than it takes to operate a taxicab or fry a pan of fish.
+ - The great difficulty about keeping the Ten Commandments is that no man can keep them and be a gentleman.
+ - The most valuable of all human possessions, next to a superior and disdainful air, is the reputation of being well-to-do.
+ - A man is called a good fellow for doing things which, if done by a woman, would land her in a lunatic asylum.
+ - When I hear artists or authors making fun of businessmen, I think of a regiment in which the band makes fun of the cooks.
+ - Osteopath – One who argues that all human ills are caused by the pressure of hard bone upon soft tissue. The proof of his theory isto be found in the heads of those who believe it.
+ - It is impossible to think of a man of any actual force and originality, universally recognized as having those qualities, who spent his whole life appraising and describing the work of other men.
+ - Morality is nothing but a struggle for safety.
+ - No one in this world, so far as I know – and I have searched the records for years, and employed agents to help me – has ever lost money by underestimating the intelligence of the great masses of the plain people.
+ - Unquestionably, there is progress. The average American now pays out twice as much in taxes as he formerly got in wages.
+ - Whenever I write anything that sets up controversy its meaning is distorted almost instantly. Even the editorial writers of newspapers seem to be unable to understand the plainest sentence.
+ - The Old Testament, as everyone who has looked into it is aware, drips with blood; there is, indeed, no more bloody chronicle in all the literature of the world.
+ - It is almost impossible for an Anglo-Saxon to write of sex without being dirty.
+ - A good politician is quite as unthinkable as an honest burglar.
+ - It is impossible to imagine Goethe or Beethoven being good at billiards or golf.
+ - Freedom of press is limited to those who own one.
+ - A bad artist almost always tries to conceal his incompetence by whooping up a new formula.
+ - Debussy – A pretty girl with one blue eye and one brown one.
+ - The State is not force alone. It depends upon the credulity of man quite as much as upon his docility. Its aim is not merely to make him obey, but also to make him want to obey.
+ - Why writers write I do not know. As well ask why a hen lays an egg or why a cow stands patiently while an underprivileged farmer burglarizes her.
+ - It is impossible to imagine the universe run by a wise, just and omnipotent God, but it is quite easy to imagine it run by a board of gods.
+ - The critic, to interpret his artist, even to understand his artist, must be able to get into the mind of his artist; he must feel and comprehend the vast pressure of the creative passion.
+ - One yearns unspeakably for a composer who gives out his pair of honest themes, and then develops them unashamed, and then hangs a brisk coda to them, and then shuts up.
+ - The value the world sets upon motives is often grossly unjust and inaccurate.
+ - When you sympathize with a married woman you either make two enemies or gain one wife and one friend.
+ - What is too often forgotten is that nature obviously intends the botched to die, and that every interference with that benign process is full of dangers.
+ - There is nothing worse than an idle hour, with no occupation offering. People who have many such hours are simply animals waiting docilely for death. We all come to that state soon or late. It is the curse of senility.
+ - Whenever you hear a man speak of his love for his country, it is a sign that he expects to be paid for it.
+ - The chief value of money lies in the fact that one lives in a world in which it is overestimated.
+ - No one ever heard of the truth being enforced by law. When the secular is called in to sustain an idea, whether new or old, it is always a bad idea, and not infrequently it is downright idiotic.
+ - The notion that anything is gained by fixing a language in a groove is cherished only by pedants.
+ - Richard Strauss – Old Home Week in Gomorrah.
+ - Some boys go to college and eventually succeed in getting out. Others go to college and never succeed in getting out. The latter are called professors.
+ - The average man does not get pleasure out of an idea because he thinks it is true; he thinks it is true because he gets pleasure out of it.
+ - There is in writing the constant joy of sudden discovery, of happy accident.
+ - No article of faith is proof against the disintegrating effects of increasing information; one might almost describe the acquirement of knowledge as a process of disillusion.
+ - The genuine music lover may accept the carnal husk of opera to get at the kernel of actual music within, but that is no sign that he approves the carnal husk or enjoys gnawing through it.
+ - All government is, in its essence, organized exploitation, and in virtually all of its existing forms it is the implacable enemy of every industrious and well-disposed man.
+ - A poet over 30 is pathetic.
+ - A sense of humor always withers in the presence of the messianic delusion, like justice and truth in front of patriotic passion.
+ - I detest converts almost as much as I do missionaries.
+ - No politician is ever benefited by saving money; it is spending it that makes him.
+ - Great artists are modest almost as seldom as they are faithful to their wives.
+ - The formula of the argument is simple and familiar: to dispose of a problem all that is necessary is to deny that it exists.
+ - One may no more live in the world without picking up the moral prejudices of the world than one will be able to go to hell without perspiring.
+ - The chief business of the nation, as a nation, is the setting up of heroes, mainly bogus.
+ - Fame: an embalmer trembling with stage fright.
+ - America’s biggest failure is its inability to take comedy seriously.
+ - The life of man in this world is like the life of a fly in a room filled with 100 boys, each armed with a fly-swatter.
+ - The intelligent, like the unintelligent, are responsive to propaganda.
+ - Let’s not burn the universities yet. After all, the damage they do might be worse.
+ - The theory seems to be that as long as a man is a failure he is one of God’s children, but that as soon as he succeeds he is taken over by the Devil.
+ - I go on working for the same reason that a hen goes on laying eggs.
+ - The average schoolmaster is, and always must be, an ass.
+ - If I had my way, any man guilty of golf would be ineligible for any office of trust in the United States.
+ - It is not materialism that is the chief curse of the world, as pastors teach, but idealism. Men get into trouble by taking their visions and hallucinations too seriously.
+ - Citizenship in New York is now worth no more than citizenship in Arkansas, for it is open to any applicant from the marshes of Bessarabia, and, still worse, to any applicant from Arkansas.
+ - Absence is the dark-room in which lovers develop negatives.
+ - Psychotherapy is the theory that the patient will probably get well anyhow and is certainly a damn fool.
+ - There is no record in history of a happy philosopher.
+ - When we appropriate money from the public funds to pay for vaccinating a horde of negroes, we do not do it because we have any sympathy for them or because we crave their blessings, but simply because we don’t want them to be falling ill of smallpox.
+ - It is surely no mere coincidence that the land of the emancipated and enthroned woman is also the land of canned soup, of canned pork and beans, of whole meals in cans, and of everything else ready made.
+ - The cure for the evils of democracy is more democracy.
+ - Love begins like a triolet and ends like a college yell.
+ - The objection to Puritans is not that they try to make us think as they do, but that they try to make us do as they think.
+
+500 quotes

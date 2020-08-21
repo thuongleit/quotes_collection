@@ -1,0 +1,91 @@
+ - I wanted to be a journalist, I thought it was glamorous and that I’d meet beautiful women in the rain.
+ - As you get older you feel you need to pay more attention to what is around you and relish it. I’m greedy for beauty.
+ - I don’t normally watch films I’m in because I’m squeamish about that and it takes me quite a long time to recover and I have to go to work. I’m not being coy or cute, but it’s just true.
+ - Never go anywhere you have to wear brown shoes.
+ - I speed up past mirrors.
+ - Emma Watson is adorable in the extreme. She is such a lovely person.
+ - I’m not a financial expert. The Robin Hood tax seems to me a very simple and beautiful idea. I don’t see the problem.
+ - I’m not good at watching myself which I think is perfectly natural. I don’t give myself a hard time about it. I am the worst critic.
+ - I don’t even own a car.
+ - I’m not a royal family watcher.
+ - More people saw me in ‘Love Actually’ than had seen me in everything else I had ever done up to that point.
+ - You have all these plans to act, and maybe do it rather elegantly, and then they turn the rain machine on.
+ - If you are supposed to be villainous and have some sort of agenda, I like the idea of delivering that kind of character in a perfectly well-mannered way.
+ - All actors who have been around for a long time, which I have, and have been skint for long periods, which I have, find it difficult to turn down jobs. If I turn anything down my stomach turns over. I feel sick. It feels like gambling.
+ - I’m crazy about James Brown. I’m crazy about soul music. And then the blues. Rhythm and blues.
+ - Anti-Semitism and Fascism have a long, mysterious, bewildering, poisonous and vile history and it’s not exclusive to the Germans.
+ - I find it hard to relax around any man who’s got the second button on his shirt undone.
+ - I hardly even leave my own house.
+ - I love imaginative representations of a possible near-future, where you look at the technology and you think, “Well, yeah, that could really nearly be true.” I like those kinds of backgrounds.
+ - Anyone who can do the splits and come back up on the backbeat, as James Brown and Prince can, has my eternal respect. Prince, who is a genius of the highest order, can come back up while singing and playing the guitar.
+ - Standing in front of a fake mountain with fake snow falling and seven girls dressed as Santarettes will stay in my memory.
+ - I’m one of those weird people who doesn’t even own a computer.
+ - I used to think that prizes were damaging and divisive, until I got one. And now they seem sort of meaningful and real.
+ - I’m not a World War II buff. I know a little bit about it, I was taught the other side of the story in school, so it was unfamiliar to me, the idea of a German resistance, and yet it was considerable.
+ - I don’t seem to be able to learn from experience or anything useful. History doesn’t help me. Precedents don’t inform my experience.
+ - I never mind doing press; it’s never bothered me.
+ - It can’t be overstated how wonderful it is not to have to audition any more. Any actor will tell you, it’s like Christmas.
+ - You can ruin your life wanting to be an actor.
+ - With stage, you feel completely like you’re just in a bubble. I love not being able to see anything. I love coming out and I can’t see anything because the lights are so bright and it’s pitch black. That’s ideal for me, that’s when I have the best time.
+ - I’m a jacket man. And if I’m without one, I am kind of seriously disabled. I don’t know how to operate in shirt sleeves.
+ - One is that you legislate according to natural selection, the other is that you don’t. You have compassion, you try and help people. It’s a fundamental clash between two people who happen to love each other, which complicates everything.
+ - If I’m going to appear in front of people I like to look my best.
+ - You get older and you see yourself and say, ‘God, he’s old, who’s that?’
+ - You tell yourself that you’re not auditioning but of course you work like crazy, and you prepare like mad. And you think, “Well, I won’t get that job. But maybe they’ll have another job sometime, and they’ll remember that I was good.”
+ - In life, if you have an enthusiasm for what they call ‘good manners,’ sometimes people don’t quite believe you. I’ve had that once or twice before, where they assume you can’t be for real.
+ - I don’t do plays without jokes anymore. I’ve retired from those plays. I think it’s bad manners to invite people to sit in the dark for two and a half hours and not tell them the joke.
+ - I really have no interest in delivering the iambic pentameter, I just want to kill myself. I don’t mind other people doing it. I say that, but really I don’t want to watch other people doing it. I get embarrassed.
+ - From my point of view, it’s very refreshing to play a regular human being and not someone from another dimension. When I say “not act,” what I mean is just to be as natural and as normal as possible.
+ - I don’t think there’s an improvised word in the movie. I hope not because I admire writing. Improvising is kind of gambling. It’s just that you’re standing up.
+ - I have never owned a computer. I am one of those weirdos. I’ve never needed a computer. I’m lucky that I have a job where I’m not required to use one.
+ - Actors always talk about taking their work home and I always think: ‘What are you on? You just turn it off. You are at work and then you go home.’
+ - I don’t want to associate myself with any specific group of politicians.
+ - I’m probably the only person who actually remembers pirate radio.
+ - I have nothing against romanticism. I’m all for it. I’m helpless in the face of romance.
+ - I quoted David Hare one of his lines the other day to illuminate whatever point we were trying to make in the conversation, and I said ‘What play was that?’ and he said ‘It was your line, you said it about a hundred and fifty times in The Vertical Hour.’
+ - I’m not famous for my back story investigations; I’m lucky that I work with good writers and it’s usually in the script.
+ - There are only three men in the world who are licensed to wear shorts: Brad Pitt, Johnny Depp and Tom Cruise.
+ - When you have a family, or even when you’re just seeing a girl, it’s difficult to be skint.
+ - I don’t spend a lot of time with anybody.
+ - I’m not an actor who consciously accesses bits of my life, in order to play parts. Obviously, you don’t need to have been a father to play one, otherwise everyone who’s been a father would be able to act.
+ - Somebody asked me recently, ‘Have you done a lot of plays?’ I thought hang on. I used to do nothing but plays. I’ve been very fortunate that on several occasions I’ve had jobs where I didn’t want to be anywhere else in the world whatever you had to offer – however much money you’ve got.
+ - I never go on the net or the web, or whatever it’s called.
+ - I did actually sit down with a blank sheet of paper once. I think the phone rang and that was the end of my literary career.
+ - When you are in something that you’re proud of and it’s funny and it’s a good night out and all of those things, there’s nothing quite like it. The rewards are proportionate to the amount of alarm and distress it causes you.
+ - It’s probably healthier to find fame later in life.
+ - One of the reasons I like a suit is because I’ve never been that keen on my body. The shape a suit presents is always going to be better than anything I can do.
+ - My dad had a personal style which was very attractive. It was quite reserved and quite elegant, and it was infectious.
+ - I’m lucky that I get to play a wide variety of parts.
+ - If I ruled the world, every woman would have a Chanel suit in her wardrobe.
+ - I know really, really famous people who are terrified every time they walk on to a stage.
+ - If you ever see me in a social setting wearing any sort of sportswear, then you know I’m in crisis.
+ - I’ve always slightly worried the kids who play football around my house. They know I’m an actor, but felt sorry for me because they’d never seen anything I’ve done.
+ - In the street, people talk to you about all kinds of things, but by far, the most number of people talk to me about Love, Actually.
+ - I got briefly mistaken for someone who might be good in bed, which was very, very good.
+ - I guess part of the hit-man appeal is the solitude. Everybody is lured to the idea of the solitary life.
+ - One of the things that is assumed about actors is that they are extrovert, which is almost never the case, in my experience.
+ - A way of describing performances that I admire is that there is an absence of careerism. It’s a clumsy way of describing it but it sort of does it for me.
+ - When it comes to casual clothing, my enthusiasm for clothes starts to waver.
+ - Jerry Bruckheimer says that he makes films that he would want to see, and it seems that that coincides with what a lot of people want to see.
+ - Hunger is almost like something the West does. It’s almost like the direct result of the way the West performs.
+ - I have no memory, any at all, of actually performing the play, no recall in terms of the lines. I can’t tell you any line from any play I’ve ever done.
+ - The phenomenon of vampires has always appealed to me. Everyone kind of likes a vampire story because it almost could be true.
+ - When you’ve been going on about something for a while, it is always satisfying to discover that other people agree with you.
+ - There is something, yeah, I mean traditionally it’s more fun to play bad guys than it is good guys and when you’re playing a bad guy, yeah, the fun in it is to see how scary you can be, how horrible you can be. And it’s surprising what you come up with.
+ - The way the elderly are treated, and in some cases warehoused and medicated, rather than nurtured and listened to, is distressing.
+ - I have a perfectly average skewed perception of myself. We often don’t know what we’re like.
+ - I’m always happy when actors get rich, because the odds on it are so long!
+ - I like American black soul music, that was my first big enthusiasm.
+ - The job is the same – to attempt to make it sound like you’ve never said it before and as if it’s just occurred to you. And that’s the same whether you’re on camera or whether you’re on stage in a room full of people.
+ - It’s more than usually possible that I won’t do a play again. But Skylight is one of the great plays in the English language. I was lucky enough to be a part of it at one point in its life, and it’s a timely thing to deliver it again in the modern world.
+ - If you ask any actor “What single thing would make you really, really happy?” Among the top five things they’d say is not having to audition anymore.
+ - When people warned me there would be long periods out of work if I became an actor, I couldn’t keep a straight face because that was exactly what I had in mind.
+ - I think in the old days, everybody used to act really quickly because Hollywood was built by theatre people.
+ - I did pick up a guitar once, but the strings hurt my fingers so I put it down again.
+ - When a movie is called ‘searingly honest,’ it’s almost invariably grim and demonstrates how bad things can get.
+ - I generally do things I’m proud to be in and generally I’m in things people like.
+ - The degree of notoriety I have is fine and easy. There’s nothing hysterical about it.
+ - When I do a play, it’s like agreeing to be ill for a couple of months.
+ - I do think 3D has seriously improved, since I was a boy. It’s fabulous.
+
+89 quotes

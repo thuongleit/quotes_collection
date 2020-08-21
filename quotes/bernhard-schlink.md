@@ -1,0 +1,31 @@
+ - Now to escape involves not just running away, but arriving somewhere.
+ - There’s no need to talk about it, because the truth of what one says lies in what one does.
+ - The more I suffer, the more I love.
+ - The tectonic layers of our lives rest so tightly one on top of the other that we always come up against earlier events in later ones, not as matter that has been fully formed and pushed aside, but absolutely present and alive. I understand this. Nonetheless, I sometimes find it hard to bear.
+ - Is this what sadness is all about? Is it what comes over us when beautiful memories shatter in hindsight because the remembered happiness fed not just on actual circumstances but on a promise that was not kept?
+ - Desires, memories, fears, passions form labyrinths in which we lose and find and then lose ourselves again.
+ - The Odyssey is the story of motion both purposeful and purposeless, successful and futile. What else is the history of law?
+ - What is law? Is it what is on the books, or what is actually enacted and obeyed in a society? Or is law what must be enacted and obeyed, whether or not it is on the books, if things are to go right?
+ - What a sad story, I thought for so long. Not that I now think it was happy. But I think it is true, and thus the question of whether it is sad or happy has no meaning whatever.
+ - I did not know that children think the hard questions they ask are easy and thus expect easy answers to them, and that they are disappointed when they get cautious, complex answers.
+ - It wasn’t that I forgot Hanna. But at a certain point the memory of her stopped accompanying me wherever I went. She stayed behind, the way a city stays behind as a train pulls out of the station. It’s there, somewhere behind you, and you could go back and make sure of it. But why should you?
+ - When an airplane’s engines fail, it is not the end of the flight.
+ - When we open ourselves you yourself to me and I myself to you, when we submerge you into me and I into you when we vanish into me you and into you I Then am I me and you are you.
+ - But then she was not awkward, she was slow-flowing, graceful, seductive – a seductiveness that had nothing to do with breast and hips and legs, but was an invitation to forget the world in the recesses of the body.
+ - In the past, I had particularly loved her smell. She always smelled freshed, freshly washed or of freshed laundry or fresh sweat or freshly loved.
+ - The past has to be remembered, so that it’s never repeated.
+ - As an author, you can’t expect a movie to be an illustration of the book. If that’s what you hope for, you shouldn’t sell the rights.
+ - Sometimes the memory of happiness cannot stay true because it ended unhappily...
+ - I asked her about life, and it was as if she rummaged around in a dusty chest to get me the answers.
+ - As a citizen and someone who was a judge on the constitutional law court for 18 years, I feel whenever I can raise my voice with the hope of being heard I need to do it, but I wouldn’t assign a special wisdom and responsibility to writers.
+ - Philosophy has forgotten about children.
+ - She was struggling, as she always had struggled, not to show what she could do but to hide what she couldn’t do. A life made up of advances that were actually frantic retreats and victories that were concealed defeats.
+ - There’s this old saying that, if you aren’t particularly gifted in natural sciences, if you don’t want to become a teacher or pastor or doctor, and don’t know what else to do, then you become a lawyer. But I’ve never regretted it.
+ - People who commit monstrous crimes are not necessarily monsters. If they were, things would be easy. But they aren’t and it is one of the experiences of life.
+ - I can’t say I’m thankful about being German because I sometimes experience it as a huge burden. But it is an integral part of me and I wouldn’t want to escape it. I have accepted it.
+ - I certainly know German colleagues in the US who try to be Americans, try to melt into Americanism, even before they get married and become American citizens. But I’ve never tried that.
+ - It was more dangerous not to go; I was running the risk of becoming trapped in my own fantasies. So I was doing the right thing by going. She would behave normally, I would behave normally, and everything would be normal again.
+ - Bravery is good when the cause is good.
+ - So I was still guilty. And if I was not guilty because one cannot be guilty of betraying a criminal, then I was guilty of having loved a criminal.
+
+29 quotes

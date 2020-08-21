@@ -1,0 +1,50 @@
+ - A huge adrenaline rush is usually followed by a pretty low point.
+ - I simply think things through, and I look at problems. One thing I pride myself on is the ability to connect unconnected thoughts and come up with new, unique thoughts.
+ - The best way to protect your own freedom is to watch everybody else’s back. That’s the essence of community.
+ - Sometimes it’s all about the win, sometimes it’s about the skiing.
+ - It’s important for me to live my life honestly.
+ - I really am a thinker. I don’t do things rash. I know some of the things I’ve said or the way I act seem rash. But I do take ownership of it. I don’t say things I don’t mean.
+ - Once the season starts for me, there isn’t a change in my focus, just a change in my tactics and strategies.
+ - If I could wish one thing for anyone, it would be to not have to do anything his entire life-just go along and when you feel like doing something, do it.
+ - My daughter’s name is Neesyn Dacey but everyone calls her Dacey. Her mom chose Neesyn and I chose Dacey after she was born. The mother is a good friend of mine who I was seeing a while ago. We are no longer together.
+ - Some people say I make mistakes. I just say that in fact this is the secret of enjoying life. I hate monotony. Why don’t they leave me freedom of choice? People want to impose choices which aren’t necessarily mine. That’s the mistake people make.
+ - At the end of the day, you have to make sure you’re at least listening to what your head is telling you, what your heart is telling you. That’s hard to do when there are a million other people shouting as loud as they can.
+ - Obviously, you always want to win, but you want to win by skiing a race that you’re proud of and you feel like you really challenged yourself and left it all out there.
+ - I like to keep my private life private for the most part.
+ - Arousal-control has been an issue for me since the beginning of my career.
+ - You feel the Olympics and you get chills and nervous and a little scared. You go through the emotional roller coaster at what it’s like to compete at the Olympic level and you let that run through your whole body.
+ - I don’t care what other people’s judgments come down to-I care what my judgments come down to.
+ - I tried retiring a couple of times and it just didn’t really stick so, but at some point enough things conspire together and it does stick.
+ - My goal is the same as every year – to not hurt myself.
+ - I went through a period at boarding school when my coaches wanted me to switch to snowboarding because they thought I was no good at skiing. I was too skinny. I had terrible technique. They were saying I should be a snowboarder, and luckily, I resisted.
+ - I’m still having fun and as long as skiing is enjoyable, I’m going to continue to do it.
+ - My team has been very unreceptive about the fact that I consistently show them that I train slightly differently than they do, that I consistently show them that I am in better shape for ski racing than anyone else on the team.
+ - I’ve been myself my whole life.
+ - It is not that I don’t recognize the danger in ski racing, but that I don’t fear the consequences.
+ - From 1999 to 2003 was the peak of equipment in ski racing. Since then, it’s all gone in the wrong direction.
+ - There’s so many guys skiing so fast right now that you really have to be willing to take a lot of risks if you want to give yourself a chance to win. I’m prepared to do it; it’s just a matter of if I can make it work.
+ - The way I judge myself is not on how many World Cups I can win in a row.
+ - When you back off, it’s easier to do mistakes. For me it’s better to ski fast.
+ - It’s nice, being brought up with no money at all. It’s just not how I measure success, so that makes it a bunch easier.
+ - My grandfather was very into horse racing, and I found some of his old journals and got into it from there. It has a lot of parallels to skiing. It’s a fun lifestyle, being around the racetrack.
+ - One kid’s old, used-up equipment is another kid’s brand-new, awesome, awesome equipment.
+ - I had crashes when I was small and Gumby-like that would have killed me now. I would just fly off jumps and go 40 or 50 meters when I was 6 years old – break skis, smash my goggles and get a bloody nose and go crawl inside for a little while and then come back out and ski more in the afternoon.
+ - I had to think about ankle torsion, where the screws are on the ski, how that affects the forces going into the ski and how the ski bends, your leverage points. It was a challenge. I was having the greatest time, making the mistakes, crashing.
+ - Sometimes I’m disciplined, but I like to be a total slacker, too. I party hard, but I train hard.
+ - Some of them I probably would like. Some of my fans probably beat their wives or run over little kids and they just happen to watch me on TV and like the way I ski. Obviously I clearly wouldn’t like that person if I knew ’em better.
+ - If you’re unhappy with the way you played, what’s the point?
+ - Eventually I’d like to have a family. I’d like to not be limping around when I’m 50 years old.
+ - People want athletes to cater to their image of what an athlete should be, but they also want them to fail so they can feel like their screwups are all right. If I make a priority shift, I’ll make it because it’s best for me.
+ - When I was little, I spent a lot of time by myself. When other kids were in school, I was skiing and thinking about things. I was alone on the mountain.
+ - I think four Olympics is probably enough. Five Olympics is a long time, but there’s nothing wrong with that if I’m into it and I’m healthy and my priorities can fit around that.
+ - When you get old, it’s hard to tell what’s memory and what you’ve kind of created in your head as memory, you know?
+ - In some ways, that’s the story of my season – when I wasn’t making big mistakes, I was winning races and being on the podium. And when I made mistakes I was still fourth or fifth, just off the podium.
+ - It does matter that it’s the Olympics. I just did it my way. I’m not a martyr, and I’m not a do-gooder. I just want to go out and rock. And man, I rocked here.
+ - I don’t put anything in front of taking ski racing and sports seriously.
+ - But there was no question in my mind that I was gonna still go for it. I was still going for the win. I wasn’t skiing for second or third place today, and in the end I think that’s probably what got me there.
+ - Despite all the pressure and the caliber of accomplishment, I still can honestly say that it’s not all about winning.
+ - One of the really important things about the Olympics is, to enjoy yourself, you have to accept that it’s different and feed off the enthusiasm of everyone and the inspiration and hopefully that will elevate your performance.
+ - That feeling is the same whether you’re on either side of the hundredths. Obviously, it’s great to win the world championship, but if you put down that kind of skiing, it’s awesome either way.
+ - The same people who recognize I came out with no medals should recognize I could have won three.
+
+48 quotes

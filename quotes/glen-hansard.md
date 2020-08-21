@@ -1,0 +1,42 @@
+ - As a busker, one thing that does not work is self-consciousness. A busker needs to be working. A busker needs to shed all ego and get down to work. Play your songs, play them well, earn your money, and don’t get in people’s way.
+ - Our imagination just needs space. It’s all it needs, that moment where you just sort of stare into the distance where your brain gets to sort of somehow rise up.
+ - The moment of drifting into thought has been so clipped by modern technology. Our lives are filled with distraction with smartphones and all the rest. People are so locked into not being present.
+ - A song is like a saddle: you ride it for a while, and if it’s the right kind of song you can sing it for the rest of your life.
+ - And I’ve always loved playing solo.
+ - I choose to believe that there is good in people and that everything is a lesson. Our place on Earth is to go deeper, to somehow get wiser. To have spirit.
+ - If you don’t mark your successes, the day your ship comes in could be just another day at the office, and there’s no poetry in that.
+ - I guess in a way I just feel blessed to be able to make music.
+ - Keeping the pen out of your hand as much as possible is the best way to write a song, in my estimation. But the pen must come in to tighten it up.
+ - Well, everything about singing, I learned from busking. Everything I learned about songwriting, I learned from busking.
+ - I grew up wearing black arm-bands when the hunger strikers died. I went on those marches. I grew up basically a Provo, though I never obviously got into any activities. I was writing ‘IRA, Brits out’ on walls all over where I grew up, but that was a false sense of Irishness.
+ - There’s this unspoken thing that you have to wear a tux and some kind of nice dress. There are all these ethical rules, but I’m sure if you came to the Oscars in ripped jeans and a t-shirt they wouldn’t throw you out. You would just look like a fool.
+ - I think it’s very interesting, people who can’t stand people who whinge and whine. It seems almost like a class issue. Because you think about who is the most positive, who’s the most redemptive songwriter that’s ever existed in your lifetime?
+ - We saw too much beauty to be cynical, felt too much joy to be dismissive, climbed too many mountains to be quitters, kissed too many girls to be deceivers, saw too many sunrises not to be believers, broke too many strings to be pro’s and gave too much love to be concerned where it goes...
+ - I only ever really take out my guitar when I’m miserable, which isn’t necessarily a very good time to do it.
+ - I love the idea of leaving some of the original abstract thought in, because the problem is that when you pick up a pen you become a snob, your own worse critic. You edit yourself in a way that is non-creative.
+ - The muse holds no appointments. You can never call on it. I don’t understand people who get up at 9 o’clock in the morning, put on the coffee and sit down to write.
+ - I’ve realized, you know, having turned 40, that rest is just as important as work. In fact, it’s equally as important.
+ - I’ve always felt that if I ever got cynical, I would have to stop making music because I’d just be poisoning the air.
+ - Sometimes travelling really intensely for a long time is like having a continuous nervous breakdown.
+ - If you stand still in any city long enough, you see everyone pass you by. So you’re in Chicago. If you stand on the corner of Belmont and Clark, and you do that for three years, you’ll pretty much have seen everybody in Chicago pass that junction.
+ - Sadness is a very interesting idea, this idea of sadness being some kind of default setting that artists will go into. And then I started thinking about this idea of sadness and happiness, and the idea that sadness is very loud, and happiness is quiet.
+ - I’ve always loved playing solo. I guess in a way I just feel blessed to be able to make music. My favorite thing is usually whatever I’m doing right there and then.
+ - I absolutely adore the alchemy of a bit of an idea.
+ - And for some reason, when I’m sad, I do listen to Leonard Cohen, I do listen to Joni Mitchell. I do find myself going to the music that’s actually reflecting my mood, as opposed to sticking on Motown, which might actually bring my mood up.
+ - My dad was quiet, angry, shut down. So my thing is: I express everything that’s there. I want to get it all out.
+ - You know, when I was a kid waiting on the bus, I remember that was when I imagined my life. I imagined everything that I was gonna be when I grew up and I imagined all of these amazing journeys and amazing people Id meet. Of course, all of it has kind of come to fruition.
+ - You know, albums are a funny thing. They’re not like an intellectual decision. It’s a collection of your kind of musings.
+ - Relationships can be about yourself, they can be about you and your god, you and your people, you and your family. It can be about a lot of different stuff. And it is.
+ - I think inside every rock journalist, there’s somebody who wishes they had the courage to live the life that they’re not, and that they’re writing about. But at the same time, inside every songwriter, I guess there’s a wish for happiness.
+ - I won’t say I’ve closed the door on acting.
+ - Sometimes you give birth to something or you’re part of a team that gives birth to an idea, and it grows and has a whole life of its own, and you feel grateful. It’s just so humbling.
+ - I busked from the age of 13 until I was 18.
+ - There are people who can sit down and write a song about any given subject, and they can do it really, really well.
+ - I just didn’t realize, being a young person, that if you sign up to make a film, a certain portion of your soul is forever gone. From there on, you are that character to everybody you’ll ever meet again.
+ - In Irish law, busking is considered vagrancy – you can be arrested for it. It’s risky asking people for money in public. So it’s not like it’s a high-art job. And people who do it as a high-art job make very little money.
+ - I’m not an actor, and I’ll never call myself an actor. I’ve never thought of it as part of my life. I’ll always be a singer, in my eyes.
+ - What happens to us all, I think, when we pick up a pen, is that we just become snobs.
+ - Do I create conflicts for myself? Sure I do.
+ - I pick up my guitar and play. Something might come, and then the pen comes out. Then an edit, until something comes out that you’re actually satisfied with.
+
+40 quotes

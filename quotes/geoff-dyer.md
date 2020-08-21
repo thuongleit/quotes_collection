@@ -1,0 +1,21 @@
+ - The ideal is to feel at home anywhere, everywhere.
+ - Have regrets. They are fuel. On the page they flare into desire.
+ - The process of book writing for me is entirely one of trial and error.
+ - Birds in flight, claims the architect Vincenzo Volentieri, are not between places – they carry their places with them. We never wonder where they live: they are at home in the sky, in flight. Flight is their way of being in the world.
+ - I want to stress, this is the experience-growing up in a working-class family-that defined me and continues to define me. It’s the core of my being. And it explains, incidentally, a good deal about my love of America.
+ - All the best essays are epistemological journeys from ignorance or curiosity to knowledge.
+ - One’s happiness is very largely a question of state of mind rather than the world you are looking at.
+ - Life is bearable even when it’s unbearable: that is what’s so terrible, that is the unbearable thing about it.
+ - To be interested in something is to be involved in what is essentially a stressful relationship with that thing, to suffer anxiety on its behalf.
+ - These days any self-respecting exhibition of nude photos has to have pornographically explicit images to prove that they are works of art.
+ - I’m so revolted by writers taking themselves seriously that, as a kind of protest, I’ve deprioritized the role of writing in my life. I do it when I’ve not got anything better to do – and even then I often do nothing instead.
+ - What I’m really interested in, as a reader and as a writer, is the idea of the nonfiction book that is not defined by its content, by its “about”-ness. Where you read it irrespective of whether you’re interested in the subject.
+ - Each of my book arrives at a form and a style that is appropriate to the subject.
+ - I guess that as life is speeded up and our capacity for concentration is being nibbled away at by all the obvious things, that leads us actually to be more susceptible to boredom.
+ - Nine times out of 10, the most charming thing to say in any given situation will be the exact opposite of what one really feels.
+ - I always like to be in the presence of people who are good at and love their jobs, Irrespective of their jobs.
+ - I think I do have a sort of terrible propensity for boredom and for being bored, even though I am absolutely of the opinion that one shouldn’t be bored and that there is no excuse for it and that it is a personal failing.
+ - When you are lonely, writing can keep you company. It is also a form of self-compensation, a way of making up for things – as opposed to making things up – that did not quite happen.
+ - Quite often, ambition operates on a level of irritation. Not even jealousy, just irritation.
+
+19 quotes

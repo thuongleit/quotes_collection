@@ -1,0 +1,99 @@
+ - Going to church doesn’t make you a Christian any more than going to a garage makes you an automobile.
+ - If you don’t do your part, don’t blame God.
+ - If you are a stranger to prayer, you are a stranger to the greatest source of power known to human beings.
+ - An excuse is a skin of a reason stuffed with a lie.
+ - We have a God who delights in impossibilities.
+ - When the English language gets in my way, I walk over it.
+ - I believe the Bible is the word of God from cover to cover.
+ - If you have no joy in your religion, there’s a leak in your Christianity somewhere.
+ - More men fail though lack of purpose than lack of talent.
+ - The only way to keep a broken vessel full is to keep it always under the tap.
+ - The reason you don’t like the Bible, you old sinner, is because it knows all about you.
+ - The rivers of America will run with blood filled to their banks before we will submit to them taking the Bible out of our schools.
+ - The world is wrong side up. It needs to be turned upside down in order to be right side up.
+ - Hypocrites in the Church? Yes, and in the lodge and at the home. Don’t hunt through the Church for a hypocrite. Go home and look in the mirror. Hypocrites? Yes. See that you make the number one less.
+ - One reason sin flourishes is that it is treated like a cream puff instead of a rattlesnake.
+ - Temptation is the devil looking through the keyhole. Yielding is opening the door and inviting him in.
+ - I am the sworn, eternal and uncompromising enemy of the liquor traffic.
+ - The church is not a dormitory for sleepers, it is an institution for workers; it is not a rest camp, it is a front line trench.
+ - There is more power in a mother’s hand than in a king’s scepter.
+ - Some ministers say, ‘If you don’t repent you’ll die and go to a place the name of which I can’t pronounce.’ I can! You’ll go to hell!
+ - The backslider likes the preaching that wouldn’t hit the side of a house, while the real disciple is delighted when the truth brings him to his knees.
+ - I don’t believe there are devils enough in hell to pull a boy out of the arms of a godly mother.
+ - The law tells me how crooked I am. Grace comes along and straightens me out.
+ - Sinners cannot find God for the same reason that criminals cannot find a policeman: They aren’t looking!
+ - I have more respect for the devil than for some preachers I have met; the devil believes the Bible is the Word of God!
+ - And if you think that anybody is going to frighten me, you don’t know me yet.
+ - They tell me a revival is only temporary; so is a bath, but it does you good.
+ - Jesus gave his life on the cross for any who will believe. We’re not redeemed by silver or gold. Jesus paid for it with his blood.
+ - When is a revival needed? When carelessness and unconcern keep the people asleep.
+ - The Bible will always be full of things you cannot understand, as long as you will not live according to those you can understand.
+ - Give your face to God, and He will put his shine on it.
+ - There are two hundred and fifty-six names given in the Bible for the Lord Jesus Christ, and I suppose this was because He was infinitely beyond all that any one name could express.
+ - Some persons have lived manly or womanly lives, and they lack but one thing – open confession of the Lord Jesus Christ. Some men think that they must come to him in a certain way – that they must be stirred by emotion or something like that.
+ - Yank some of the groans out of your prayers and shove in some shouts.
+ - Let’s quit fiddling with religion and do something to bring the world to Christ.
+ - I believe that a long step toward public morality will have been taken when sins are called by their right names.
+ - Home is the place we love best and grumble the most.
+ - God likes a little humor, as is evidence by the fact that he made the monkeys, the parrot – and some of you people.
+ - It is not necessary to be in a big place to do big things.
+ - You can’t measure manhood with a tape line around his biceps.
+ - Wealth is not the standard of worth. Some people put cash before character.
+ - Enthusiasm is as good a thing in the Church as fire is in a cook stove.
+ - When may a revival be expected? When the wickedness of the wicked grieves and distresses the Christian.
+ - Personal liberty is not personal license.
+ - I want to preach the gospel so plainly that men can come from the factories and not have to bring along a dictionary.
+ - Riches have never yet given anybody either peace or rest.
+ - What have you given the world it never possessed before you came?
+ - It is not what you have on you, but what you have in you.
+ - It would be a godsend if the Church would suffer persecution today; she hasn’t suffered it for hundreds of years. She is growing rich and lagging behind. Going back.
+ - If you lack joy, your Christianity must be leaking somewhere.
+ - America didn’t need repeal, she needed repentance!
+ - Lord save us from off-handed, flabby-cheeked, brittle-boned, weak-kneed, thin-skinned, pliable, plastic, spineless, effeminate, ossified, three-karat Christianity.
+ - Your reputation is what people say about you. Your character is what God and your wife know about you.
+ - When the word of God says one thing and scholarship says another, scholarship can go to hell.
+ - I am an old-fashioned preacher of the old-time religion, that has warmed this cold world’s heart for two thousand years.
+ - Try praising your wife, even if it does frighten her at first.
+ - Whiskey and beer are all right in their place, but their place is in hell.
+ - Hell is the highest reward that the devil can offer you for being a servant of his.
+ - The devil says I’m out, but the Lord says I’m safe.
+ - Conversion is a complete surrender to Jesus. It’s a willingness to do what he wants you to do.
+ - Whenever a day comes when I can stand and preach God’s Word without an agony of anxiety lest the people will not accept Christ; whenever a day comes when I can see men and women coming down the aisles without joy in my heart, I’ll quit preaching.
+ - I pity anyone who can’t laugh. There must be something wrong with their religion or their lives. The devil can’t laugh.
+ - Being a king, emperor, or president is mighty small potatoes compared to being a mother.
+ - Jesus Christ was God’s revenue officer.
+ - Religion needs a baptism of horse sense.
+ - At Kansas City, Kansas, before the saloons were closed, they were getting ready to build an addition to the jail. Now the doors swing idly on the hinges and there is nobody to lock in the jails.
+ - Live so that when the final summons comes you will leave something more behind you than an epitaph on a tombstone or an obituary in a newspaper.
+ - You can’t raise the standard of women’s morals by raising their pay envelope. It lies deeper than that.
+ - I tell you that the curse of God Almighty is on the saloon.
+ - The Bible says forgive your debtors; the world says “sue them for their dough.”
+ - I believe there is no doctrine more dangerous to the Church today than to convey the impression that a revival is something peculiar in itself and cannot be judged by the same rules of causes and effect as other things.
+ - The saloon is a liar. It promises good cheer and sends sorrow.
+ - I challenge you to show me where the saloon has ever helped business, education, church, morals or anything we hold dear.
+ - There are individuals who have never done anything for Jesus Christ, and I have no doubt there are preachers as well, who have never done anything for the God Almighty.
+ - I dare not exercise personal liberty if it infringes on the liberty of others.
+ - The fellow that has no money is poor. The fellow that has nothing but money is poorer still.
+ - Trying to run a church without revivals can be done when you can run a gasoline engine on buttermilk.
+ - There is no law, divine or human, that the saloon respects.
+ - The man who votes for the saloon is pulling on the same rope with the devil, whether he knows it or not.
+ - You might as well try and dam Niagara Falls with toothpicks as to stop the reform wave sweeping our land.
+ - Some homes need a hickory switch a good deal more than they do a piano.
+ - Get somebody else for Jesus Christ and you will get a new vision of life, a new vision of what it means.
+ - If you want to drive the devil out of the world, hit him with a cradle instead of a crutch.
+ - Churches don’t need new members half so much as they need the old bunch made over.
+ - Better die an old maid, sister, than marry the wrong man.
+ - There is nothing in the world of art like the songs mother used to sing.
+ - The Democratic party of Florida has put a temperance plank in its platform and the Republican party of every state would nail that plank in their platform if they thought it would carry the election.
+ - After all is said that can be said upon the liquor traffic, its influence is degrading upon the individual, the family, politics and business, and upon everything that you touch in this old world.
+ - Unless you have made a complete surrender and are doing his will it will avail you nothing if you’ve reformed a thousand times and have your name on fifty church records.
+ - I have been, and will go on, fighting that damnable, dirty, rotten business with all the power at my command.
+ - I am a temperance Republican down to my toes.
+ - God Almighty never intended that the devil should triumph over the Church. He never intended that the saloons should walk rough-shod over Christianity.
+ - Christianity means a lot more than church membership.
+ - If there is not Hell, a good many preachers are obtaining money under false pretenses.
+ - If good preaching could save the world, it would have been done long ago.
+ - Some persons think that they have to look like a hedgehog to be pious...
+ - The trouble with many men is that they have got just enough religion to make them miserable. If there is not joy in religion, you have got a leak in your religion.
+
+97 quotes

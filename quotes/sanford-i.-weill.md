@@ -1,0 +1,34 @@
+ - Details create the big picture.
+ - Learn how to be a loser, because it’s important to be a loser to be a winner.
+ - I think life is sort of like a competition, whether it’s in sports, or it’s achieving in school, or it’s achieving good relationships with people. And competition is a little bit of what it’s all about.
+ - I think the American Dream says that anything can happen if you work hard enough at it and are persistent, and have some ability. The sky is the limit to what you can build, and what can happen to you and your family.
+ - The more we can do to create a better society, that benefits more people, the better chance we have that our society will continue to grow and prosper.
+ - I was sort of a sissy as a little kid.
+ - I think we are a product of all our experiences.
+ - I believe in treating other people with respect. My style is to speak to people, be available to them and willing to answer their questions. This also means being straightforward and honest with them.
+ - I believe in giving back very strongly.
+ - Ive been involved with Carnegie Hall for the last 13 years, and Chairman for the last six. I feel really good about what weve done growing our educational programs there, building a board that has made Carnegie Hall really a world-class institution.
+ - My parents moved back to New York from Florida when I was in the ninth grade.
+ - My mother really didn’t know a heck of a lot about business. She was a very good mother, that made sure we ate right and we had our cod liver oil, but didn’t know a heck of a lot about what I did.
+ - From the business point of view, always encouraging the people in our company to own stock in the company, and if we’re going to build something great, to have a lot of people share in the benefits of that greatness.
+ - I think Latin has some logic to it and there was a discipline.
+ - I read a lot, but I read about the areas that I’m interested in.
+ - I remember the mentoring experiences of some teachers that I had, like a second term home room teacher in public school that really was very helpful to me.
+ - And when we used to play and fight in the streets in Brooklyn and I would get hurt or something, my mother would always come out and save me. So that sort of postponed the inevitable about getting a good beating, without having somebody to come and save you.
+ - I’ve had a terrific life, from building one company to be the second largest company in the securities industry and merging that into American Express, and becoming president of that company.
+ - A lot of people at Shearson ended up making a lot of money because they had stock or stock options. Their kids were able to go to college, and it changed a lot of people’s lives.
+ - If a person is not willing to make a mistake, you’re never going to do anything right.
+ - So it’s the kind of business where you can’t wait to get up in the morning and read the papers, or listen to what’s on the news, and you know, how the world’s going to change.
+ - I would say that my parents were supportive of me.
+ - And learn that when you do make a mistake, you’ll surface that mistake so you can get it corrected, rather than trying to hide it and bury it, and it becomes a much bigger mistake, and maybe a fatal mistake.
+ - You never want to think the best things are in the past. You want to get yourself to believe that the best things are going to be in the future.
+ - And it was where I learned how to play tennis and eventually became captain of the tennis team at the school and was on the Junior Davis Cup in New York City.
+ - The whole financial industry is consolidating in the United States.
+ - One of the people that I respect the most now, a person I think has done a heck of a lot for this world as a leader, is Margaret Thatcher. She helped create a world that offers us a lot of excitement as we look to the next century.
+ - If we build something great, like we have at Travelers Group so far, a whole host of people benefit.
+ - And I thought I’d always like some form of business, I didn’t know what kind of business I’d go in.
+ - What turned me on then, and turns me on even today – and when the time comes from me to retire from management I think I’d still be interested in it – is that everything that happens in the world affects the price of securities.
+ - I wonder how many people would have thought at the end of World War II that the capitalist system would be one that was meeting the challenges and making things better for people as we approach the 21st century.
+ - I’m not as involved in every little thing as I used to be.
+
+32 quotes

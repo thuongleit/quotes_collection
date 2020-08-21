@@ -1,0 +1,39 @@
+ - If you’re climbing the ladder of life, you go rung by rung, one step at a time. Don’t look too far up, set your goals high but take one step at a time. Sometimes you don’t think you’re progressing until you step back and see how high you’ve really gone.
+ - You have to believe in yourself, otherwise you can’t do it. If you don’t believe in yourself, how do expect anyone else to? Because ultimately, you’re the one who has to do it.
+ - I love cranberry juice, but I’m not a coffee drinker – as a Mormon, I avoid caffeine.
+ - I’m like everybody else. I get tired sometimes.
+ - You’re an island no matter what you do. I think it’s very dangerous to use popularity as your identity in life. So you have to really know who you are inside, the core person, and follow what is true rather than follow what is hype.
+ - I wish I could dance like Michael Jackson. I’d love to be able to have my life exactly the way it is, but with his dance moves.
+ - I don’t have a lavish lifestyle with expensive cars.
+ - Celebrity? Oh man, I just thought it was a ride that was going to last forever and when it stopped, I didn’t know what to do.
+ - Well, unless you’ve suffered from panic attacks and social anxiety disorders, which is what I was diagnosed as having, it’s hard to explain it. But you go on stage knowing you’re actually physically going to die. You will keel over and die.
+ - Love can be so heartless when you turn out the light, a mutual surrender in the heat of the night.
+ - I got fitter when I did ‘Joseph and the Amazing Technicolor Dreamcoat.’ I wore a loincloth – that’s a lot of motivation!
+ - I never smile unless I mean it.
+ - I am fine with ‘Puppy Love.’ I hated it for a while. But I still sing it. I have a country version, a sexy version and a cheesy nightclub version. I am trying to infuse it with maturity. I will never escape that song. I will always be Mr. ‘Puppy Love.’
+ - My father instilled in me the attitude of prevailing. If there’s a challenge, go for it. If there’s a wall to break down, break it down.
+ - Knowing what I know now and what I have been through, would I do it the same? I look at the alternative – a very simple life. It would have been nice to have a simple life.
+ - You’re as good as anyone else is, if you’re good. You’re no less important than anyone else is in the grand scope of things.
+ - Sometimes people take it for granted that they had success, especially nowadays when you have instant stardom. A lot of people feel entitlement and nobody is entitled to anything.
+ - Yes, I have my standpoint, but I try to follow the life of Christ and he was very non-judgmental. It’s not my position to judge. It’s God’s position to judge.
+ - I go to bed late. My mind starts going at night – that’s when those creative juices begin flowing.
+ - A belief in God is vitally important, not just in show business, but stability in life. You know, to recognize deity is the most important thing that you can do. I mean, it comes to the Ten Commandments. They weren’t ten suggestions. They were Ten Commandments.
+ - I try to be a good guy and I fall short sometimes, but I use Christ as an example.
+ - I look at Justin Bieber and my heart breaks for him, because I know what he’s going to go through. He knows it. Everybody knows it.
+ - I tried Botox once. Never again. It made my forehead freeze.
+ - I don’t want my album coming out with a ‘G’ rating. Nobody would buy it.
+ - The world produces enough food to feed the entire population. It’s a travesty that anyone should go hungry anywhere.
+ - It’s a lot of work to keep reinventing yourself and coming up with new stuff, but that’s what it takes to be in show business.
+ - I had a rough spot about being a goody-goody Mormon, and not drinking or smoking. But I’m kind of grateful I’ve got this image now. There are no skeletons in my closet. What you see is what you get.
+ - Our father taught us such a work ethic that if there’s something worth doing, it’s worth doing well.
+ - I am not going to condemn anybody. That’s where religion gets a bad name, when people get holier than thou. We are all human. If my children make a mistake, I want them to know it is all right and they should try harder next time.
+ - I’m going to be true to what I want to do, because if I care what people think about me, I’m a puppet. Which I have been in my life. And you can’t live life that way, man!
+ - Thank goodness I had a great family growing up, a great foundation. But I will say my faith, my parents, my family, all that stuff is very, very important. And I’ll say that until the day I die.
+ - I went from an innocent child to a national television star. My career took on a life of its own.
+ - I could play it safe by recording songs that are familiar, but am I expanding myself as an artist by doing covers? It’s a catch-22. It’s called show business: The word ‘business’ is in it, and you’ve got to be a businessman. But then again, you have to be true to yourself as an artist.
+ - You know, I always wondered what it would have been like to just go to school, play football with the guys and go to the prom. Just like a ‘regular person.’
+ - Romance is alive and well in America, but the 50 percent who can’t make it work fail because of selfishness. It gets down to that. You can’t oversimplify it because every situation is so complex.
+ - I’m an entertainer. I get up on stage and I try to make people enjoy my music, and that political arena – I’m going to stay out of it, right out.
+ - Success sometimes can really bite you in the shorts.
+
+37 quotes

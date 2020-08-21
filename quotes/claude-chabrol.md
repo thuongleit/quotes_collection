@@ -1,0 +1,24 @@
+ - There is no new wave, only the sea.
+ - You have to accept the fact that sometimes you are the pigeon, and sometimes you are the statue.
+ - Films with a message just make me laugh.
+ - Stupidity is infinitely more fascinating that intelligence. Intelligence has its limits while stupidity has none.
+ - My father wanted me to be a pharmacist like himself. He had been a doctor, but he no longer believed in medicine; so he became a pharmacist, but he believed in that hardly more.
+ - I’m not wild about hand-held shots.
+ - I wanted to make a film about stupid people that was very vulgar and deeply stupid. From that moment on I can hardly be reproached for making a film that is about stupid people.
+ - I’m not pessimistic about people in general, but only about the way they live.
+ - I love mirrors. They let one pass through the surface of things.
+ - I am a Communist, certainly, but that doesn’t mean I have to make films about the wheat harvest.
+ - You make a film to distract people, to interest them, perhaps to make them think, perhaps to help them be a little less naive, a little better than they were.
+ - It’s often wrong to write for specific actors because one ends up using what is least interesting about them, their mannerisms and habits. I prefer not to write for specific people.
+ - First I went to the Sorbonne to do my licence en lettres, but I also started to study law.
+ - We live in an era where pizzas show up faster than the police.
+ - A woman is subject matter enough.
+ - To observe a profoundly stupid individual can be very enriching, and that’s why we should never feel contempt for them.
+ - I like making black and white films in natural surroundings, but I much prefer shooting a color film inside a studio where the colors are easier to control.
+ - Some colors are very difficult to render, and you must compensate to get the color you want on the screen.
+ - A woman confronting men is a proper subject, it is inexhaustible.
+ - Laying tracks gives you freedom without being too obvious.
+ - I like to have the screen full of color, twenty colors on the screen at once, fifty colors. There are no dominants despite what people have said.
+ - I remember an article, I can’t recall who by, it was after the fall of the Berlin Wall, which said that now the Wall was down, there could be no more class war. Only someone with money could ever say such a thing.
+
+22 quotes

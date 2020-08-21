@@ -1,0 +1,30 @@
+ - I don’t want to be an editor! I don’t want to direct; I’d be a horrible director. I don’t want to write – I have a ‘story by’ credit on one film I did. And I don’t want to edit at all.
+ - I don’t talk about my personal life with the press.
+ - I have a really dry sense of humor. I don’t think it’s funny when people wink at the camera. That’s more of an actor thing, just committing to whatever the thing is.
+ - I really need a therapist.
+ - The script is a blueprint for the film – there are very few bad scripts that make good movies. If you really like the character and understand the utility it serves within the movie, that’s a part of my process.
+ - I do like any kind of project that has both comedy and drama in it because in life you don’t have one day where everything is funny then the next day everything is dramatic.
+ - That’s the best thing about being an actor. If you’re in a baseball movie, you walk away knowing way more about baseball, or if you’re in a sci-fi film, you learn way more about Comic-Con, and so I loved all that.
+ - I have a rule that I won’t Google my own name.
+ - I love working with people who can teach me, because they’re masters of the same business I’m in.
+ - I do have a concern about projecting. I’ve never projected or had any reason to project before. In fact, the camera has only gotten closer to me going from TV to film.
+ - I really loved when I started doing ‘70s Show,’ though I had never acted before, so it was a great training ground being on a sitcom.
+ - It’s hard to understand the films that you’re in, because you never truly get to see them.
+ - It is strange when you’re a loser in college, which I was, to then get your own show.
+ - My dad was a businessman, and he would say, ‘Work for free at the best company. Don’t get paid a lot of money to work with the worst people.’ And that’s exactly how I see my career.
+ - The script for ‘In Good Company’ was the first one I ever showed my dad.
+ - I don’t want to be an editor – I want to be really forward about that. I would be a horrible editor.
+ - The 30-year-old male is about as far away from Valentine’s Day as you can get in the human experience.
+ - My folks still live in my childhood home, and so when I’m home with them, I usually feel the best.
+ - You can tell when someone is just trying to use you. It becomes just someone who’s hanging around. Whenever someone sucks up to me, it never goes anywhere because I’m too boring a guy.
+ - I would be a terrible director, I could never write anything. One of my great strengths is that I know all of my weaknesses.
+ - The great thing about playing a character that’s similar to the audience, or similar to you, is that you get to have the same reaction that you would actually have to whatever’s going on.
+ - I’m very social. It’s just most of my friends are not actors.
+ - Most of my freshman year at USC, I’d just been partying, and I had zero direction.
+ - The whole acting thing is a buffet. One, in terms of role choice and movie choice, I like to do lots of different things, and I think that’s the whole fun of it. But I also see it as a buffet in terms of the character.
+ - I’m not a comedian, but I love the comedians who know when to get off the stage.
+ - I certainly like working harder than a lot of my peers. The trick is embracing it.
+ - It’s kind of like, I love doing tons of different things. The only thing I hate is not being in ensembles.
+ - I feel bad for young actors who become huge stars too quickly, because you haven’t had a chance to practice your craft a lot.
+
+28 quotes

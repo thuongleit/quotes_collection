@@ -1,0 +1,44 @@
+ - I don’t care what people think or say about me, I know who I am.
+ - When I listen to music, I don’t want to hear about flowers. I like death and destruction.
+ - I don’t like painting flowers in my music. I like painting guts and pain.
+ - I don’t know the true meaning of happiness.
+ - Real friends stab you in the front.
+ - People die from typewriters falling on their heads.
+ - Some people are desperately looking for scapegoats, they just don’t want to see the truth!
+ - A lot of people don’t realize that depression is an illness. I don’t wish it on anyone, but if they would know how it feels, I swear they would think twice before they just shrug it.
+ - I’m a human being and every human being has problems.
+ - If you feel inside you are a woman, be a woman – no one can take that away from you, man. No one can make that feeling go away. If that’s what you need to do to be complete, then no one has the right to tell you you can’t do that.
+ - It’s the first time I’ve been cold for seven years. I was never cold playing rugby league.
+ - The kids out there want something they can relate to, something that’s real; most of that whiny stuff isn’t real. The cheesy pop songs just bore me to death.
+ - What I absolutely can’t do is just sit around, that drives me crazy. I go nuts! I’m far too nervous, too high strung to sit around. It’s not my thing; I can’t deal with it!
+ - When you live on the road, going home is a place to escape and just be with your family to unwind.
+ - I’ve been on Prozac for 12 years and I’m off it now. I know what it feels like to be excited and sad again. I haven’t felt like this in 12 years; I’m like a giddy little kid.
+ - I love DJing, and I love rocking out.
+ - Every day I’ve got to hear about unemployment and people starving.
+ - I think if two people love each other, they should be able to get married. That’s pretty much simple.
+ - I got problems. I freak out, go to a shrink, go through all kinds of therapy and stuff, but I’m learning how to deal with it. That’s why I’ve chosen one hour a night to get all of my aggressions out. to really tell the world the way I feel.
+ - I like reading Ball Tongue lyrics and all that stuff. And they published a book, and I wouldn’t give my lyrics, and it’s all wrong in the book, and I giggle. It’s funny.
+ - The music industry can make you feel like a prostitute.
+ - I feel like Obama’s an Illuminati puppet.
+ - Be yourself, let you come through.
+ - I want to hold a CD I didn’t burn. I hate burnt CDs.
+ - At first I was queasy; I’ll never forget the sound of the scalpel cutting a body open. But it was so cool trying to work out how these people died.
+ - I think people should be able to do what they want to do.
+ - It’s really cool to see glowsticks at the show, to see dance music culture infiltrating and becoming one with the metal community.
+ - Videos? Videos are important because millions of people watch TV and we can only tour and play so many places. But if you’ve got a video, then you’re able to air it and millions and millions of people will see it.
+ - I’m a big David Lynch fan.
+ - Sometimes I go out disguised, but people still recognize me, so I find there is no point in even trying. It would be nice to get away from it, from time to time, but the fact is, there is no place on earth where I can go unrecognized.
+ - I used to have 30 different species of tarantulas, as well as two Australian scorpions that are considered the deadliest in the world. If stung by one, a person would die in 30 minutes. But when I had kids I had to get rid of them, of course. Those were intense!
+ - I feel like I’m waving the flag for musicianship, trying to bring back bands that can play.
+ - We’re not trying to change the world; just music.
+ - I’ve been a fan of electronic music since the beginning.
+ - It seems like bands have stopped making timeless, great rock albums like they did back in the day.
+ - The fans have been really incredible everywhere we’ve been. You want to make sure you put on the best concert of your life to show them how appreciative you are.
+ - I think there was a lot competition in the rock scene.
+ - It started when I woke up, all I wanted to do is jump out of the window. I didn’t want to eat anymore, because I was afraid that I might poison myself somehow.
+ - Our fans make the band. What they give we give right back. They’re an integral part of us. They ARE us.
+ - It seems like a lot of music today is so churned out and simple.
+ - Issues deals with the issues I had, the fears I had and it isn’t a ‘nice’ album but fears and depressions are not particularly nice.
+ - The White House used to be, everybody looked up at the White House and America and everything, and now I think it’s like a house of shame.
+
+42 quotes

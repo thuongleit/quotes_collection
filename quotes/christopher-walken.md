@@ -1,0 +1,162 @@
+ - We have no way of knowing what lays ahead for us in the future. All we can do is use the information at hand to make the best decision possible.
+ - Bear suits are funny – and bears as well.
+ - I got a fever, and the only prescription is more cowbell.
+ - Well, you know what they say. A bullet always tells the truth.
+ - At its best, life is completely unpredictable.
+ - I don’t carry lucky charms, but I believe in those things.
+ - Growing up in New York is like living in a horror museum because there are so many strange people walking the streets and riding the subways. You learn to develop a tough front if you live here, just in case you get into any kind of trouble and you need to talk your way out of it.
+ - By the time I was 7, I did walk-ons, catalogue modeling, you name it. In the Queens where I grew up, you didn’t go bowling on Saturday; you went to dancing school.
+ - Death is wonderful because you can’t think about it. How are you gonna think about it?
+ - I know that whenever I think about death, I come up against a stone wall.
+ - I don’t have kids. Maybe that’s kept me young. I have a wife for almost 50 years and she looks after me a little bit like I was seven years-old.
+ - Sometimes things work out, sometimes they don’t. I never know how successful a movie is going to be – when you make a movie you’re always hoping for the best.
+ - My life is really quite conservative. I’ve been married nearly 50 years. I don’t have hobbies or children. I don’t much care to travel. I’ve never had a big social life. I really just stay home, except when I go to work.
+ - No, improvising is wonderful. But, the thing is that you cannot improvise unless you know exactly what you’re doing.
+ - I used to be prettier than I am, but I think I look better now. I was a pretty boy. Particularly in my early movies. I don’t like looking at them so much. There’s a sort of pretty thing about me.
+ - I like to go to work, and also, I don’t have any kids. I don’t have any hobbies. I don’t like to travel. So going to work is kind of it.
+ - I grew up in the ’50s, in New York City, where television was born. There were 90 live shows every week, and they used a lot of kids. There were schools just for these kids. There was a whole world that doesn’t exist anymore.
+ - I don’t like flying at the best of times. And as I get older, I like it less and less. I don’t much like driving, either. I prefer to be driven. And, when I’m in London, I don’t even like walking on the street. I can never get used to looking the right way when I cross the street.
+ - I always like to watch comics and it’s interesting that you can tell if someone’s funny in 10 seconds.
+ - I like cats a lot. I’ve always liked cats. They’re great company. When they eat, they always leave a little bit at the bottom of the bowl. A dog will polish the bowl, but a cat always leaves a little bit. It’s like an offering.
+ - I don’t play lovers. I wish I did. At least once I’d like to have a crack at one of those guys. A heartbreaker. Some people are born to it. I’m not.
+ - My father passed away a couple of years ago, but he was very old. He was almost a 100 years old. And, you know, he had a very good life. He came to America and he had a good life.
+ - I’m better off not socializing. I make a better impression if I’m not around.
+ - I grew up listening to people speaking broken English. I probably picked that up. And I probably speak English almost as a second language.
+ - Some people can do things and get away with it. Comics are famously like that. Why is it that some guys can say the most horrible things and it’s not offensive, it’s funny?
+ - When I was a kid, I worked in the circus. It was a touring circus that was owned by a man named Terrell Jacobs. It was just one big tent, and he was a lion tamer. He didn’t have any kids, but the bit was that I would dress up as his son in an identical outfit.
+ - To me, there are things you’re good at and things you’re not so good at. For some reason, I’m good at darker characters. It has to do with how you look.
+ - My own way of thinking is very conservative, very linear and not particularly imaginative, but if I look for things in different places, sometimes things happen.
+ - The thing about cooking is it’s so interesting to watch. I don’t know why, but if you go to somebody’s house and they’re making something, they usually say interesting things while they’re cooking.
+ - I became very critical of zoos and circuses and keeping animals in captivity. I wish it was against the law.
+ - I don’t need to be made to look evil. I can do that on my own.
+ - I play disturbed people a lot, but always with a bit of distance or tongue-in-cheek. Most of the villains I play are essentially harmless.
+ - As an actor you become that lighting rod between the person who made the play and the audience.
+ - My hair was famous before I was.
+ - I used to love Danish. My father used to make a Boston cream pie. You never see that anymore.
+ - I’ve been married for 46 years, and I live in a nice house, my grass is always cut, I pay my bills, and my cat loves me!
+ - You know, there’s nothing you can do about your public image. It is what it is. I just try to do things honestly. I guess honesty is what you would call subjective: if you feel good about what you’re doing, yourself, if you figure you’re doing the right thing.
+ - Even in the limo, I buckle my seatbelt. I got that seatbelt on before the car moves.
+ - People come up to me all the time in New York. Not for autographs, but to talk about movies, often in a very scientific way.
+ - They have a kind of Bob Hope and Bing Crosby thing going on.
+ - I never know when I am being funny, and the other way too. I don’t think you can think about that. I don’t think you can try to be funny. Some people are just funny.
+ - I’ve made a couple of movies in the jungle, and I don’t want to go back to the jungle.
+ - To be honest, I was never very ambitious. And I still am not.
+ - I love spaghetti. And I like to cook spaghetti. And I used to eat it every day. I weighed thirty pounds more than I do now. You can’t – you can’t do that.
+ - I’m scared of everything. I think it’s only sensible to be that way.
+ - There are people who are able to plan their career, their future, but I’ve never had any talent for that. I just do things and hope for the best. Say yes, take a chance, and sometimes it’s terrific and sometimes it’s not.
+ - No, but way before that, I’ve been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.
+ - I wasn’t a trained actor, I was trained in musical comedy theater, and when you do that, the audience is completely part of the thing. It’s like Elizabethan theater. You play the scene, and then you turn – the audience is part of it.
+ - I feel like you are this or that because other people say so. I wouldn’t know how to play a psychopath. I don’t think about it that way. You think about playing the scene but if the other people say that guy is crazy, then you are.
+ - Somebody said to me that I speak English almost like somebody for whom English is not their first language.
+ - I’d love to do a character with a wife, a nice little house, a couple of kids, a dog, maybe a bit of singing, and no guns and no killing, but nobody offers me those kind of parts.
+ - I think I’m getting a little bit of Alzheimer’s. Just a little.
+ - I don’t even like holding them. Whenever I hold a gun, I want to get it out of my hand as quick as possible.
+ - I don’t think I’d be a good director because people would ask me, you know, “What is it? What’s going on here? Where should I put the camera?” Or, “What’s my motivation?” And I would say, “Do whatever you want!”
+ - The last time I did a movie that needed a horse, I said: ‘If it moves, I’m out of here.’ The worst thing is, they know when you’re afraid and act up accordingly. I’ve had them run off on me. Horses I do not like.
+ - You hear about things happening to people – they slip in the bathtub, fall down the stairs, step off the curb in London because they think that the cars come the other way – and they die. You feel you want to die making an effort at something; you don’t want to die in some unnecessary way.
+ - I’ve made movies that I thought were okay, but then I was very good. And sometimes you’re in a movie and you think, ‘I wish more people saw that’ – because you’re good. And it just works out that the movie gets lost. But that’s show business.
+ - I think that weddings have probably been crashed since the beginning of time. Cavemen crashed them. You go to meet girls. It makes sense.
+ - I’ve never crashed a wedding. When I was a kid I, of course, used to crash parties. Crashing a wedding is difficult though because you have to have the suit, and you have to have information in case someone catches you. You have to know at least some names and something.
+ - You do something on television, and so many people see it that it follows you around. It’s interesting. I’ve done a couple of things on TV, and probably more people saw me than in all the movies I’ve made.
+ - When I was a kid, my parents gave me piano lessons and guitar lessons for a while, but I was never very good at it. I have big, sort of awkward hands. It’s hard to keep going when you don’t get any better.
+ - When you’re onstage and you know you’re bombing, that’s very, very scary. Because you know you gotta keep going – you’re bombing, but you can’t stop.
+ - I’m not sure I’d write a good cookbook, but I might make a good cooking show.
+ - Both my parents had heavy accents, and so did everybody they knew. It’s a rhythm thing – people who speak English where they have to hesitate and think of the right word. And I think it rubbed off.
+ - My favorite characters are the ones that are the most successful movies.
+ - I live sort of in the country and I like that. It’s very quiet, it’s beautiful.
+ - I’ve never made a movie I wasn’t surprised to see.
+ - Movies are terrifically optimistic enterprises.
+ - As an actor I’m rather hit and miss, I throw a lot out there, and some of it works and some of it doesn’t. But this is a nice part.
+ - Is typecasting really a problem?
+ - I don’t know why people eat so badly. I could eat pasta all the time, but it really is fattening. And I love ice cream, but I can’t do that. There was a time, until I was in my mid-forties, when I could eat a whole pizza – and really, no effect.
+ - Early on, I played one or two disturbed people, and I guess I must have been good at it, because it stuck. But, you know, I’m a regular guy. I stay home a lot, I make an effort to keep a distance from the whole social thing, the openings, the parties. I try to live in a calm way.
+ - Usually directors hire me because I’m what they are looking for. But once in a while, and it’s very rare, they will hire me and then try to make me over.
+ - My background is in musical comedy. I didn’t know I was going to be an actor. But all my points of reference have to do with musical comedy and in being kind of a showoff.
+ - Well, I was sort of a jack-of-all-trades in show business for a long time. I was a singer and a dancer and then I got a job as an actor.
+ - I’m not much of an analyzer or a psychologist.
+ - I don’t have a lot of hobbies. I don’t play golf. I don’t have any children. Things that occupy people’s time. I just try to take jobs.
+ - I remember that. I was talking to him and I said how great it would be if actors had a tail because I have animals and a tail is so expressive. On a cat you can tell everything. You can tell if they’re annoyed. You can tell whether they’re scared.
+ - I think all men when they get older, they look at the mirror and they probably see their father a little bit.
+ - I like to stand in my kitchen with the script on a counter that’s about chest high. Usually I do something else at the same time – make a chicken or slice vegetables – and all day long I just read it over and over and over.
+ - I’ve made three musical movies which is pretty good considering that not many are made but I was lucky in other ways. I came along when independent movies were starting to boom.
+ - Well, I don’t play heroes obviously. I never played the guy who gets the girl. It might be interesting to do a part where I was a father in a functional family.
+ - In the theater you rehearse for a minimum of five to six weeks. And then you get to play it. Which means you get to get better. That’s the great thing about the theater.
+ - It’s interesting – a lot of good actors are good mimes. But I’m terrible. If I tried to do an impression, nobody would know what I was doing.
+ - Yeah, well I’ve always played comedy. My background is musical comedy theatre and that’s really where my training is. As an actor, that’s my training.
+ - I think if you do something effectively whether you’re the lover or the comic or the action guy or the villain like I play; movies are very expensive to make. Chances are you’ll get asked to play that part again.
+ - When I was a kid I joined the circus. I did that. It is true. But it’s not like you think. There was a guy, he had his own circus. His name was Carol Jacobs and he owned it. It was a small thing.
+ - And I think that when I play these villains, maybe what is different is that the audience sees me play these and they know that that’s Chris and he’s having fun and he knows that and he knows that and you know that and everybody knows that.
+ - I’m a character actor. I have to find work in good movies where I can make something of my role. I’m a very lucky guy to be in that kind of position. It’s like a kid who dreams of becoming a baseball player and then he gets to play for the Yankees...
+ - I’m an angel. I kill firstborns while their mamas watch. I turn cities into salt. I even, when I feel like it, rip the souls from little girls, and from now till kingdom come, the only thing you can count on in your existence is never understanding why.
+ - If you’re an actor, a hard thing is to stick around, to stay viable. I try to do that by taking the opportunity to do something different every once in awhile.
+ - I try not to worry about things I can’t do anything about.
+ - I have made a number of movies that I have never seen. It’s not a matter of ego. It’s a matter of being disappointed. It’s really a shame. It’s just as difficult to make a movie that no one cares about as to make a hit.
+ - I think the fact that I was raised in show business, in New York City, in the ’50s, that’s affected my personality to the point that I’m a little different.
+ - There are movies that I’ve made where I thought I was going to be good, but when it was cut it together it wasn’t. And there are a lot of movies that, for one reason or another, just don’t become popular. So to me it’s always been a little bit of a roll of the dice. That’s the way it goes.
+ - I make movies that nobody will see. I’ve made movies that even I have never seen.
+ - It’s impossible for me to play a part without thinking about the audience.
+ - The best thing for me is, when I’m not working, is to be at home and to have a script or two scripts is better, and to be just walking around the house and just thinking about the lines.
+ - I think that if I had grown up and had been in show business and the movies twenty five, thirty years earlier, I think I would have made a lot more musical movies.
+ - Everybody has to be a little lucky, I think.
+ - I have always refused to do something that has offended me. I have been offered potential roles that are totally vulgar.
+ - There’s an impression that actors make a lot of choices. I just take what’s there.
+ - I don’t usually get to play fathers or grandfathers or uncles. Now that I’m older, maybe I can play people closer to myself. I’d like that.
+ - I’ve been very fortunate, because I’ve been involved in things that very often lead to obscurity. I was in some pictures that were not successful whatsoever. I think people admire persistence. People notice that I’m still there.
+ - When videotape came so a lot of movies that I do have a kind of afterlife in video. Things where movies that I do would come and go; they still come and go but you can go rent them and see them on TV.
+ - I think that a good movie creates its own world, and that world needn’t refer to anything that’s real. If it’s consistent, if it’s entertaining, if it’s interesting, it justifies its being there.
+ - I’ve made movies that we’re very successful that we’re a complete surprise, and I’ve made movies that I thought we’re going to be very successful that, you know.
+ - Also, I think there are huge reactions sometimes, which are also mysterious.
+ - I’m in a place in my life where I get offered parts that I didn’t get offered before – fathers and uncles and grandfathers and so on. And it took me a long time to get to that place, but I’m glad because it opens up new territory.
+ - I tend to play mostly villains and twisted people. Unsavory guys. I think it’s my face, the way I look.
+ - Sometimes a certain innocence is good, but not about yourself.
+ - I don’t much like being directed. I enjoy being allowed to play.
+ - It’s true in most movies I don’t use my own voice.
+ - People think that my favorite roles to do are villains, but I find comedy to be the most challenging and rewarding.
+ - Guns make me very nervous. They’re dangerous. I’m more of a pacifist than anyone could imagine.
+ - Too many young actors are strutting about and doing films without having developed some of the depth you need to bring off certain kinds of roles. I think that’s the problem with the system, where a lot of younger actors who haven’t had a chance to develop suddenly become stars.
+ - Morning is the best time to see movies.
+ - Quite often, I’ll be sent a script for a movie. And I find that I like it, so I say I’ll do it. But then they rewrite it for me. They make it quirky. Odd. I find that rather annoying. I call it Walkenising.
+ - Because if I don’t know my lines, I really don’t know what I’m doing.
+ - One of the difficult things about being an actor is to stick around.
+ - The minute I start to talk about acting, I realize that I can’t. You know, it’s an abstract thing, a little bit mysterious even if you do it for a living.
+ - Older actors, and women in particular, are getting more opportunities. It pleases me, its very good news for us. They say that people are living longer, and maybe it’s just that there’s more of us out there.
+ - I have a lot of trouble with scripts. I have a lot of trouble imagining things while I’m reading them.
+ - There probably aren’t a lot of actors my age who tap dance.
+ - If you do movies that are modestly budgeted, the way they finance them is they figure out how they can sell them.
+ - It’s what actors call a big, juicy part, when you’re a leading man. I don’t get a lot of those. I get a lot of supporting things.
+ - Emotional power is maybe the most valuable thing that an actor can have.
+ - My background is in musical comedy.
+ - I come from a show-business family, so wanting to become an actor never crossed my mind. It was just a part of my life.
+ - If you play a king, it’s better if everybody treats you like a king.
+ - You never forget how to dance. It’s just a matter of your bones working and things like that.
+ - In England, and all over Europe, and all over the world, actors act until they die. They get old, really old, and they’re still working. They just keep doing it.
+ - I became an actor by accident. I suppose I figured since I was in musical comedy from the time I was a teenager, I suppose I figured that I’d always been in that world to some extent.
+ - My father was a lesson. He had his own bakery, and it was closed one day a week, but he would go anyway. He did it because he really loved his bakery. It wasn’t a job.
+ - Acting has to do with saying it as if you meant it, so for me the words are always very important. It’s very important for me to know my lines, know them so well that I don’t have to think about them.
+ - I’m a better actor now than I ever was, I wish I could have hurried that up, but there’s no way. Anyway, I always wanted to be around for a long time. Like a European actor, I hope I live a long time and that I’m acting until I finish.
+ - I think early on I knew what I was going to do and it was based a lot on familiarity but it was also because I didn’t have a lot of skills. There was nothing I wanted t be. I didn’t want to be a doctor. I wanted to be in show business.
+ - I’ve made one or two movies that I haven’t even seen, because they were never released. I have made things that I never even saw. But I will always go see the movie I’m in.
+ - There’s something dangerous about what’s funny. Jarring and disconcerting. There is a connection between funny and scary.
+ - Also for me it was different because I play a lot of villains and in this one I play a dad and I play a good guy, basically. He’s the Secretary of the Treasury. I never had a job like that.
+ - I became an actor by accident.
+ - One thing that’s happened to me is I’ve been around a long time and I’ve played a lot of villains and so forth. I think it had to do with, well one thing is that I looked younger than I was for a long time. Now I think I’m suddenly starting to play people’s father.
+ - An audience is the most dangerous thing in the world, because they paid, and they’re looking at you. And they paid! And there’s a lot of them! And they cast a cold eye, because they paid. To be on the stage, you have to be very secure.
+ - An actor really is a kind of intermediary between an audience and the piece, whether it’s a play or movie.
+ - I certainly have never been an actor who can play the Everyman guy – or, I don’t tend to get those parts. I’ve tended to play eccentrics. I’ve played a lot of villains, of course.
+ - Onstage I have a natural chutzpa that audiences like. I’m out there.
+ - Usually in the first performances I’m completely panicked. And I pull myself together. By the time you get to the end of the play, you really start to have fun.
+ - Obviously an actor draws on his own experience.
+ - I have a friend of mine who does me on his answering machine, and when I call him, I answer. It’s pretty strange.
+ - I play a lot of, maybe a little bit, cartoonish people. I’ve been a Bond villain, and I play a lot of villains, people who want to take over something.
+ - I look for good possibilities in movies. I don’t look for perfection.
+ - I’ve been to Chicago a lot – it’s one of my favorite places. My wife is from Chicago, and I worked in the theater there a lot.
+ - When I’m on the road making a movie in another city, on my day off, I always go to the movies. I love going to the movies. You get a ticket and sit there, and it’s very interesting to be around people who aren’t personally invested in you, in any way. They’re just going to the movies.
+ - In the theater you rehearse in order to do the performance. And in the movies the rehearsal and the performance are kind of the same thing. You’re figuring it out and hopefully the camera is pointed at you when you’re doing it.
+ - It’s not necessarily how many minutes you’re on screen, it’s the material you have. It’s more important what it is you have to do than the amount of time you’re there.
+ - I’ll tell you, Quentin Tarantino really writes the most amazing dialogue.
+ - There are certain directors where you know you’re going to be good or you’re not going to be there. There are people where you kind of know that if you miss the mark then it’ll probably not be in the movie and that’s very reassuring.
+ - I think the fact that I grew up in show business had a real effect on my personality. If you were born in New York during the golden age of television, and you grew up on Broadway, that marks you.
+ - I have been in movies that I thought I wasn’t very good in.
+ - I was never a child actor. I was a child performer.
+
+160 quotes

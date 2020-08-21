@@ -1,0 +1,42 @@
+ - Dream big, stay positive, work hard, and enjoy the journey. ~~Urijah Faber
+ - Great things come from hard work and perseverance. No excuses. ~~Kobe Bryant
+ - The best preparation for tomorrow is doing your best today. ~~H. Jackson Brown Jr.
+ - Have confidence in your ability to do it right, and work hard to do the best possible job. ~~Walt Disney
+ - I work hard because I love my work. ~~Bill Gates
+ - Work harder than anybody you’ve ever seen. That’s what I believe. ~~Meek Mill
+ - Be an individual, work hard, study, get your mind straight, and trust nobody. ~~Tupac Shakur
+ - Confidence and hard work is the best medicine to kill the disease called failure. It will make you successful person. ~~Abdul Kalam
+ - If you don’t back it up with performance and hard work, talking doesn’t mean a thing. ~~Michael Jordan
+ - I work hard and fight easy. ~~Conor McGregor
+ - Believe in yourself, work hard, work smart and passionately present your best self to the world. ~~Hill Harper
+ - There is no way around the hard work. Embrace it. ~~Roger Federer
+ - Aim high, work hard, and love your family. ~~Deborah Roberts
+ - All men are created equal. Some work harder in preseason. ~~Emmitt Smith
+ - The only limit to the height of your achievements is the reach of your dreams and your willingness to work hard for them. ~~Michelle Obama
+ - If you don’t have time, the truth is, you don’t have priorities. Think harder; don’t work harder. ~~Tim Ferriss
+ - Success travels in the company of very hard work. There is no trick, no easy way. ~~John Wooden
+ - I know you’ve heard it a thousand times before. But it’s true – hard work pays off. If you want to be good, you have to practice, practice, practice. If you don’t love something, then don’t do it. ~~Ray Bradbury
+ - Work hard at work worth doing. ~~Theodore Roosevelt
+ - To succeed, work hard, never give up and above all cherish a magnificent obsession. ~~Walt Disney
+ - There is no substitute for hard work. ~~Thomas A. Edison
+ - The only thing that overcomes hard luck is hard work. ~~Harry Golden
+ - I have nothing in common with lazy people who blame others for their lack of success. Great things come from hard work and perseverance. No excuses. ~~Kobe Bryant
+ - I’ve learned over the years that when it comes to success, consistency is key. Consistent hard work that we may not like doing today, but for a payoff we’ll love tomorrow. Earn it. Enjoy it. ~~Dwayne Johnson
+ - There is no magic to achievement. It’s really about hard work, choices, and persistence. ~~Michelle Obama
+ - Too many people want the appearance of winning rather than the practices and hard work that create a true champion. ~~T.D. Jakes
+ - Hard work, dedication! ~~Floyd Mayweather, Jr.
+ - Keep exploring. Keep dreaming. Keep asking why. Don’t settle for what you already know. Never stop believing in the power of your ideas, your imagination, your hard work to change the world. ~~Barack Obama
+ - Always work hard, never give up, and fight until the end because it’s never really over until the whistle blows. ~~Alex Morgan
+ - Work hard. Someone’s always watching. ~~Donald Trump
+ - If you want to increase your success rate, double your failure rate. ~~Thomas J. Watson
+ - The price of success is hard work, dedication to the job at hand. ~~Vince Lombardi
+ - Success in business requires training and discipline and hard work. ~~David Rockefeller
+ - I have nothing to offer but blood, toil, tears and sweat. ~~Winston Churchill
+ - Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before. He is full of murderous resentment of people who are ignorant without having come by their ignorance the hard way. ~~Kurt Vonnegut
+ - A successful outcome shows what hard work, perseverance and taking advantage of your opportunities will do for you. ~~Will Rogers
+ - When you begin to think and grow rich, you will observe that riches begin with a state of mind, with definiteness of purpose, with little or no hard work. ~~Napoleon Hill
+ - Read the Bible. Work hard and honestly. And don’t complain. ~~Billy Graham
+ - What is success? I think it is a mixture of having a flair for the thing that you are doing; knowing that it is not enough, that you have got to have hard work and a certain sense of purpose. ~~Margaret Thatcher
+ - Some work hard to acquire money only to find in the end that money acquired them. ~~Lecrae
+
+40 quotes

@@ -1,0 +1,31 @@
+ - If you give me six lines written by the hand of the most honest of men, I will find something in them which will hang him.
+ - Never write a letter and never destroy one.
+ - If God forbade drinking, would He have made wine so good?
+ - Carry on any enterprise as if all future success depended on it.
+ - Reason must be the universal rule and guide; all things must be done according to reason without allowing oneself to be swayed by emotion.
+ - Deception is the knowledge of kings.
+ - Secrecy is the first essential in affairs of state.
+ - Friendship is the medicine for all misfortune; but ingratitude dries up the fountain of all goodness.
+ - A virtuous and well-disposed person, like a good metal, the more he is fired, the more he is fined; the more he is opposed, the more he is approved: wrongs may well try him, and touch him, but cannot imprint in him any false stamp.
+ - A single word has sometimes lost or won an empire...
+ - Not the least of the qualities that go into the making of a great ruler is the ability of letting others serve him.
+ - I have the consolation of leaving your kingdom in the highest degree of glory and of reputation.
+ - Give me six lines written by the most honorable person alive, and I shall find enough in them to condemn them to the gallows.
+ - Harshness towards individuals who flout the laws and commands of the state is for the public good; no greater crime against the public interest is possible than to show leniency to those who violate it.
+ - First, all means to conciliate; failing that, all means to crush.
+ - I was excellent. Everybody loved me. I love myself, and I like bums.
+ - Who will be my equal?
+ - Nothing so upholds the laws as the punishment of persons whose rank is as great as their crime.
+ - I do not sleep to let others sleep in the shade of my waking.
+ - We may employ artifice to deceive a rival, anything against our enemies.
+ - To mislead a rival, deception is permissable; one may use all means against his enemies.
+ - Had Luther and Calvin been confined before they had begun to dogmatize, the states would have been spared many troubles.
+ - War is one of the scourges with which it has pleased God to afflict men.
+ - When people are too comfortable, it is not possible to restrain them within the bounds of their duty? They may be compared to mules who, being accustomed to burdens, are spoilt by rest rather than labour.
+ - Bakers of bread rolls and pastry cooks will not buy grain before eleven o’clock in winter and noon in summer.
+ - One must believe neither the people of the palace, who ordinarily measure the power of the king by the shape of his crown, which, being round, has no end, nor those who, in the excesses of an indiscreet zeal, proclaim themselves openly as partisans of Rome.
+ - Nothing is as dangerous for the state as those who would govern kingdoms with maxims found in books.
+ - Wise judges are we of each other!
+ - Did you think I was immortal?
+
+29 quotes

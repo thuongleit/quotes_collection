@@ -1,0 +1,76 @@
+ - If every basketball player worked as hard as I did, I’d be out of a job.
+ - I’m playing; I’m here. I’m going to fight until they tell me they don’t want me anymore.
+ - I don’t care what other people say. I fight every day to be the best player I can.
+ - I love being part of a team, any team. Not just playing, but the camaraderie, the whole thing. It’s just what I get off on.
+ - People have always doubted whether I was good enough to play this game at this level. I thought I was, and I thought I could be. What other people thought was really always irrelevant to me.
+ - I believe that the measure of a person’s life is the affect they have on others.
+ - I love basketball and I’m committed to it, but if I have to lock up my spirit because of basketball, it ain’t worth it.
+ - Its crazy! I’m watching Linsanity hoping every shot goes in. Hope I never grow up.
+ - You should always want your coach to be critical. It gives you an opportunity to learn and to overcome adversity.
+ - I am a huge believer in giving back and helping out in the community and the world. Think globally, act locally I suppose. I believe that the measure of a person’s life is the affect they have on others.
+ - My ideal day would be to get a good work out in, listen to music, talk to my family and friends on the phone, read and go to a good movie.
+ - Nothing is black-and-white, except for winning and losing, and maybe that’s why people gravitate to that so much.
+ - Well, my favorite band is Radiohead. But, you know, I am pretty fascinated in general with music. I love music. It is definitely an interest.
+ - My free time at home is usually spent emailing, listening to music, reading and talking on the phone. I wish I was on the phone less, but I have been fortunate to stay in touch with so many incredible friends.
+ - It feels great to have my hard work pay off, especially when the fans made it hard for me.
+ - I know the strengths and weaknesses of my teammates. I make my passing decisions accordingly.
+ - My best move is probably my pull up jump shot.
+ - I lick my fingers because I don’t like when my hands get slick. Licking my fingers helps me keep a good grip on the ball.
+ - Leadership is possible in all different ways, and in all different areas of life. Whether it is with friends or family, I expect them to set a great example for me, and hopefully I will do the same for them. And that is all part of being a leader.
+ - You should be able to voice your opinion and respect the voice of the other side. You should be willing to educate yourself and know what it is you’re dealing with.
+ - My father was a soccer player. All my friends played basketball though, so I stuck with basketball.
+ - I am not too accusatorial or defensive by nature. I have always been kind of philosophical about it, remembering that it is just a game. People take these things too seriously.
+ - You can’t worry about things you have no control over.
+ - My agility is the CEO of the United Global Agility Corporation.
+ - We were excited to win, staying undefeated is just the icing.
+ - I learned at a young age to dribble with both hands, and that allows me to be more creative when I go against bigger and stronger opponents.
+ - The person who’s had the biggest impact on my career is Rick Celebrini, the physiotherapist.
+ - I’d love to go somewhere warm, somewhere near the beach and somewhere with a cool culture. It could be Hawaii, Cuba, South America – anywhere that has a cool culture and a beautiful climate.
+ - That’s the key to our team. We have so many weapons. You can just pick your poison.
+ - I was never supposed to play in college, let alone the NBA, so I always feel like I have something to prove. No one ever expected me to be here, so that feeling of being an underdog is ingrained in me. It’s a natural part of my consciousness.
+ - I simply want to be remembered as a great competitor and a great teammate.
+ - Having a goal in your mind helps you manifest it in some way.
+ - Play because it’s fun, and not to become a pro. If your goal is to become pro, the best way to realize that is by loving what you do.
+ - Sometimes it’s difficult maintaining my friendships, but to me, it’s well worth it.
+ - The playoffs are the playoffs. You just play who is put in front of you.
+ - We love playing together and we love adversity. You know, back-to-back, the two best teams in the East.
+ - Truth is, I’m a bit old school. For me, it would be hard to put on a Lakers jersey. That’s just the way it is.
+ - I think it’s important that people stand up for what they believe in. It’s important that people discuss things.
+ - I used to collect hockey cards. It was like Vegas at my school. You’d go to school with your box of cards, and at recess and lunchtime there were all these games we’d play.
+ - It seems like my whole life I’ve been this little Canadian kid dreaming somebody would give me a chance.
+ - The toughest opponents to defend are Iverson, Marbury and Payton. They are all very talented and can shoot at anytime from anywhere.
+ - The pick and roll is more about bodies and eyes then speed and being fast.
+ - Basketball isn’t as popular in Canada as it is in the US. Hockey is by far the most popular sport in Canada.
+ - When I think of my career, I can’t help but think of the kid with his ball, falling in love.
+ - The guys that improve every year are those that are always adding something to their game.
+ - For the most part I try to just stay focused not on my play but on our team.
+ - You know, once you have been through a certain amount of things in life, you definitely grow more comfortable with yourself.
+ - What happened in the past is just that, the past. Champion or not.
+ - I hope my kids learn to put themselves first.
+ - I have a tendency, especially when I’m playing with great players, to try and get them the ball.
+ - Anytime you play a finalist it’s going to be a challenge.
+ - Sometimes I’m very impatient. I also feel the need to please everyone, which is unnecessary and impossible.
+ - I don’t think coaches should have to wear mic’s. It is an invasion of privacy. We are trying to accomplish things, and wearing microphones may hinder development by straining the nature of relationships coaches and players have.
+ - I know what I can do and what I’m able to accomplish.
+ - We play a different style than other teams. It’s effective, but different. We run the floor, block shots and create turnovers.
+ - You have good games, you have bad games. You have good years, you have bad years. I have always been kind of philosophical about that.
+ - I am thrilled to be an Olympian, and I think that although we will be underdogs we can beat many teams and will be a surprise in Sydney.
+ - I have definitely gone through my ups and downs and faced my adversity and my nay-sayers, but managed to do all right. It is a pretty classic tale.
+ - I really don’t care about the response to my hair this is just how my hair is. I don’t take care of it, or comb it, or put anything in it, or style it or anything. When people comment on it, it is funny to me that it draws such attention. It makes me realize how insignificant that sort of thing is.
+ - I have as much fun as anybody I know.
+ - The NBA has the best point guards in the world, so it is important that I come ready to play every night.
+ - It’s important for us, if we’re going to be a good team, to be a good defensive team in the fourth quarter.
+ - My closest friends in the league are Dirk Nowitzki and Rex Chapman. Although I think Michael Finley and I will be friends forever.
+ - The crowd gives us so much energy and we are able to really feed off of it. Hitting those shots and having the crowd go crazy helps boost our confidence. We love our fans.
+ - My goal is to eliminate positions where I can’t function.
+ - My best memories are because I was on teams I love – even going back to being a kid. Not just in the NBA.
+ - I feel very comfortable going at full speed.
+ - We’ve got very few bodies right now so we were tired, but we’ve also got a lot of character and we want to win.
+ - Our centers spread the floor, shoot the three and block shots. We can play pick and pop.
+ - I have to say I’ve worked very few days of my life. I used to have to cut the lawn, and when I was in junior high school, I worked at a concession stand at a stadium.
+ - I think you can get too focused on the championship and forget how rewarding it is to be part of a team.
+ - We’ve been playing ugly. Without all of our bodies, we’ve been kicking it all over the shop, but fortunately we’ve been able to make the big buckets and rely on our defense for once.
+ - My approach has been that a player with determination and a willingness to work harder than anyone else can accomplish anything. It’s a simple formula. I’ve found it works.
+ - I know that to be a good player, you have to stay healthy, and you have to be as athletic as you can possibly be.
+
+74 quotes

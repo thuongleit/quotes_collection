@@ -1,0 +1,49 @@
+ - Boredom is a disease, too.
+ - I’d rather have my kid smoking pot than drinking.
+ - When you hit a groove, it’s not you; it’s the spirit world. The spirits whisper the ideas in your brain and prod you along. They’re the ones that are really happy.
+ - You can’t become a dictator through checks and balances.
+ - Everything that happens to me is very cosmic.
+ - If more people were stoned there would be less violence in the world.
+ - Awakening your spiritual side is really what artists do. When you hit a groove, it’s not you; it’s the spirit world.
+ - Religion is run by thought police. ‘Obey. Listen. This is what you do. Don’t ask questions. Go die for your country.’ The spirituality says, ‘Okay, you can die for your country, but know what you’re doing while you’re doing it.’
+ - I’ve always known, all my life, that I was going to be something special. I never knew what it was, but I always had that feeling. I think my mother installed it when I was a little guy.
+ - Unfortunately, the American justice system is just riddled with lies and inconsistencies.
+ - The good thing about poverty is it keeps you from getting in trouble because if you can’t afford drugs, people will stop giving them to you very quickly. So, being poor really helps – it’s the success that kills you.
+ - I’m as clean as a whistle.
+ - There’s a hierarchy in prison, and I was right at the top.
+ - I want my ashes either with some really good primo or as some fertilizer for plants.
+ - It’s like love making, the foreplay is the biggest part, the same thing as comedy. If you can frame your show in such a way that the funny jokes become funnier.
+ - To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People’s attitudes would change. It would be a better place.
+ - Well I don’t know, I might have lost my citizenship, I don’t think you can lose your citizenship though.
+ - If I don’t get paid I’m going to take a whole lot of Marshall amps home with me on the plane.
+ - Every time I get tested, I ask questions about it, and I watch how they do it.
+ - Once you’re a felon you’re a target.
+ - One night all the James Brown band was playing on stage and I look in the back and I could see Mick Jagger and Keith Richards trying to get in the club and they couldn’t get in cause it was to crowded.
+ - Marijuana is a proven medicine.
+ - The smartest billionaires I know never finished high school. I got my degree and my doctorate on the street and an advanced degree in jail.
+ - Look at all the drug busts all over the country. There must be an audience there somewhere. My feeling is that if we’re losing the war on drugs, let’s do a movie for the enemy.
+ - Okay, you can die for your country, but know what you’re doing while you’re doing it.
+ - I love to meet my fans, and after every show I usually hang out for a few hours, talking to my fans, signing autographs, and selling T-shirts.
+ - I used to joke for years that I was a black man. I adopted the black culture, the black race. I married a black woman, and I had black kids. I always considered myself a ‘brother.’
+ - Jail was probably the most exciting thing that’s ever happened to me.
+ - The Shades never recorded anything, Little Daddy and the Bachelors recorded a couple of records, ya.
+ - Comedy is the ultimate truth. Jazz is hitting the notes that that no one else would hit, and comedy is saying words that no one else would say.
+ - Musicians can travel all over the world and have an audience, because there’s no language barrier.
+ - I was about sixteen when I discovered that music could get you laid, so I got into music boy, didn’t matter what you looked like either, you could be a geeky looking guy but if you played music, whoa, you’d get the girls.
+ - When they put me in jail, that’s when they turned me into an activist. Up until the time I went to jail, I was just a comedian.
+ - I’ve been a good boy, I’ve never really been convicted of serious crime.
+ - Cigarettes, I won’t do cigarettes, nicotine will kill ya.
+ - Because the pot takes the edge off the adrenaline, and it also clears your mind of it, and then you can see things a lot clearer.
+ - Any excuse to live in New York and do art. Has to be one of the most rewarding experiences in the world.
+ - You look at Cheney, Rumsfeld, Karl Rove, and Bush – if you saw them on Halloween, they wouldn’t need a costume. You’d give them a treat and compliment them on what great-looking demons they were. They are demons. There’s no doubt about it.
+ - I’ve always been into improvisation.
+ - I was more of a weightlifter.
+ - Well, I had an after hours club in Vancouver and when any of the Motown acts would call.
+ - I converted a family-owned strip club into an improvisational acting theater.
+ - We won a contest at the teen fair in Vancouver and the first prize was a recording contract and we recorded at a radio station on the stairway, and we did a record and it got put out.
+ - Activism, to me, I don’t know if it really works. It may work for somebody else, but it does not work for me.
+ - The funny thing is, Dennis Miller got me back into comedy.
+ - There’s the exciting part about comedy – if you catch an act just before they go mainstream, that’s the best. After they hit the mainstream, everything gets watered down a little bit.
+ - Well, I started out as a musician, so when I was about 10 years old, I was already in a band.
+
+47 quotes

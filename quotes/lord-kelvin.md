@@ -1,0 +1,42 @@
+ - If you can not measure it, you can not improve it.
+ - To measure is to know.
+ - When you can measure what you are speaking about, and express it in numbers, you know something about it.
+ - Fourier is a mathematical poem.
+ - In science there is only physics; all the rest is stamp collecting.
+ - Heavier-than-air flying machines are impossible.
+ - If you study science deep enough and long enough, it will force you to believe in God.
+ - There is nothing new to be discovered in physics now. All that remains is more and more precise measurement.
+ - I often say that when you can measure what you are speaking about, and express it in numbers, you know something about it; but when you cannot measure it, when you cannot express it in numbers, your knowledge is of a meagre and unsatisfactory kind.
+ - I have no satisfaction in formulas unless I feel their numerical magnitude.
+ - When you are face to face with a difficulty, you are up against a discovery.
+ - If we can’t express what we know in the form of numbers, we really don’t know much about it.
+ - Large increases in cost with questionable increases in performance can be tolerated only in race horses and fancy women.
+ - Do not imagine that mathematics is harsh and crabbed, and repulsive to common sense. It is merely the etherealisation of common sense.
+ - Quaternions came from Hamilton after his really good work had been done, and though beautifully ingenious, have been an unmixed evil to those who have touched them in any way.
+ - Fourier’s theorem is not only one of the most beautiful results of modern analysis, but it may be said to furnish an indispensable instrument in the treatment of nearly every recondite question in modern physics.
+ - The more thoroughly I conduct scientific research, the more I believe that science excludes atheism.
+ - I believe that the more thoroughly science is studied, the further does it take us from anything comparable to atheism.
+ - Mathematics is the only true metaphysics.
+ - Science is bound, by the everlasting vow of honour, to face fearlessly every problem which can be fairly presented to it.
+ - Ether is the only substance we are confident of in dynamics. One thing we are sure of and that is the reality and substantiality of the luminferous ether.
+ - Although mechanical energy is indestructible, there is a universal tendency to its dissipation, which produces throughout the system a gradual augmentation and diffusion of heat, cessation of motion and exhaustion of the potential energy of the material Universe.
+ - The only census of the senses, so far as I am aware, that ever before made them more than five, was the Irishman’s reckoning of seven senses. I presume the Irishman’s seventh sense was common sense; and I believe that the possession of that virtue by my countrymen-I speak as an Irishman.
+ - When you cannot measure, your knowledge is meager and unsatisfactory.
+ - I can never satisfy myself until I can make a mechanical model of a thing. If I can make a mechanical model, I can understand it. As long as I cannot make a mechanical model all the way through I cannot understand.
+ - Can you measure it? Can you express it in figures? Can you make a model of it? If not, your theory is apt to be based more upon imagination than upon knowledge.
+ - The fact that mathematics does such a good job of describing the Universe is a mystery that we don’t understand. And a debt that we will probably never be able to repay.
+ - I have not had a moment’s peace or happiness in respect to electromagnetic theory since November 28, 1846. All this time I have been liable to fits of ether dipsomania, kept away at intervals only by rigorous abstention from thought on the subject.
+ - To live among friends is the primary essential of happiness.
+ - Nothing can be more fatal to progress than a too confident reliance on mathematical symbols; for the student is only too apt to take the easier course, and consider the formula not the fact as the physical reality.
+ - I have not the smallest molecule of faith in aerial navigation other than ballooning, or of the expectation of good results from any of the trials we heard of. So you will understand that I would not care to be a member of the Aeronautical Society.
+ - Questions of personal priority, however interesting they may be to the persons concerned, sink into insignificance in the prospect of any gain of deeper insight into the secrets of nature.
+ - The atheistic idea is so nonsensical that I do not see how I can put it in words.
+ - Vortices of pure energy can exist and, if my theories are right, can compose the bodily form of an intelligent species.
+ - Simplification of modes of proof is not merely an indication of advance in our knowledge of a subject, but is also the surest guarantee of readiness for farther progress.
+ - At what time does the dissipation of energy begin?
+ - There is nothing in science which teaches the origin of anything at all.
+ - You know only insofar as you can measure.
+ - There cannot be a greater mistake than that of looking superciliously upon practical applications of science. The life and soul of science is its practical application...
+ - Let nobody be afraid of true freedom of thought. Let us be free in thought and criticism; but, with freedom, we are bound to come to the conclusion that science is not antagonistic to religion, but a help to it.
+
+40 quotes

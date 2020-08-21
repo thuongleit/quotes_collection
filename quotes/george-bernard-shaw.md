@@ -1,0 +1,502 @@
+ - Life isn’t about finding yourself. Life is about creating yourself.
+ - Don’t wait for the right opportunity: create it.
+ - People who say it cannot be done should not interrupt those who are doing it.
+ - Both optimists and pessimists contribute to society. The optimist invents the aeroplane, the pessimist the parachute.
+ - Those who cannot change their minds cannot change anything.
+ - Success does not consist in never making mistakes but in never making the same one a second time.
+ - The single biggest problem in communication is the illusion that it has taken place.
+ - A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.
+ - After all, the wrong road always leads somewhere.
+ - Imagination is the beginning of creation. You imagine what you desire, you will what you imagine and at last you create what you will.
+ - The reasonable man adapts himself to the world; the unreasonable one persists to adapt the world to himself. Therefore all progress depends on the unreasonable man.
+ - We don’t stop playing because we grow old; we grow old because we stop playing.
+ - Beware of false knowledge; it is more dangerous than ignorance.
+ - War does not decide who is right but who is left.
+ - There are two tragedies in life. One is to lose your heart’s desire. The other is to gain it.
+ - A gentleman is one who puts more into the world than he takes out.
+ - Youth is wasted on the young.
+ - There is no love sincerer than the love of food.
+ - All great truths begin as blasphemies.
+ - Without art, the crudeness of reality would make the world unbearable.
+ - I often quote myself. It adds spice to my conversation.
+ - Make it a rule never to give a child a book you would not read yourself.
+ - Take care to get what you like or you will be forced to like what you get.
+ - Dancing is a perpendicular expression of a horizontal desire.
+ - To be in hell is to drift; to be in heaven is to steer.
+ - I learned long ago, never to wrestle with a pig. You get dirty, and besides, the pig likes it.
+ - English is the easiest language to speak badly.
+ - Islam is the best religion and Muslims are the worst followers.
+ - A cigarette is a pinch of tobacco rolled in paper with fire at one end and a fool at the other.
+ - A happy family is but an earlier heaven.
+ - He who can, does. He who cannot, teaches.
+ - Whisky is liquid sunshine.
+ - Life is not meant to be easy, my child; but take courage: it can be delightful.
+ - My religion? Well, my dear, I am a Millionaire. That is my religion.
+ - The people who get on in this world are the people who get up and look for the circumstances they want and if they can’t find them, make them.
+ - Patriotism is your conviction that this country is superior to all others because you were born in it.
+ - I’m not a teacher: only a fellow traveler of whom you asked the way. I pointed ahead – ahead of myself as well as you.
+ - The only time my education was interrupted was when I was in school.
+ - If you teach a man anything, he will never learn.
+ - All progress depends on the unreasonable man.
+ - A photographer is like a cod, which produces a million eggs in order that one may reach maturity.
+ - If you begin by sacrificing yourself to those you love, you will end by hating those to whom you have sacrificed yourself.
+ - Self-control is the quality that distinguishes the fittest to survive.
+ - The possibilities are numerous once we decide to act and not react.
+ - Most people do not pray; they only beg.
+ - We are made wise not by the recollection of our past, but by the responsibility for our future.
+ - The harder I work the more I live.
+ - The secret to success is to offend the greatest number of people.
+ - Any man who is not a communist at the age of twenty is a fool. Any man who is still a communist at the age of thirty is an even bigger fool.
+ - The man who has never made a mistake will never make anything else.
+ - As long as I have a want, I have a reason for living. Satisfaction is death.
+ - When a man wants to murder a tiger he calls it sport; when a tiger wants to murder him he calls it ferocity.
+ - Life is no brief candle to me. It is a sort of splendid torch which I have got a hold of for the moment, and I want to make it burn as brightly as possible before handing it on to future generations.
+ - To be a champion you must live like one.
+ - Life is too short for men to take it seriously.
+ - The power of accurate observation is commonly called cynicism by those who have not got it.
+ - The fact that a believer is happier than a skeptic is no more to the point than the fact that a drunken man is happier than a sober one.
+ - Youth is a wonderful thing. What a crime to waste it on children.
+ - My specialty is being right when other people are wrong.
+ - Marriage is an alliance entered into by a man who can’t sleep with the window shut, and a woman who can’t sleep with the window open.
+ - He knows nothing and thinks he knows everything. That points clearly to a political career.
+ - Only fools repeat the same things over and over, expecting to obtain different results.
+ - Some people look at the world and say ‘why?’ Some people look at the world and say ‘why not?’
+ - The only sensible person is my tailor. He measures me anew each time he sees me.
+ - Better never than late.
+ - England and America are two countries separated by the same language.
+ - The liar’s punishment is not in the least that he is not believed, but that he cannot believe anyone else.
+ - There is only one religion, though there are a hundred versions of it.
+ - Man’s inhumanity to man is only surpassed by his cruelty to animals.
+ - Happy is the man who can make a living by his hobby.
+ - The unconscious self is the real genius. Your breathing goes wrong the moment your conscious self meddles with it.
+ - Imitation is not just the sincerest form of flattery – it’s the sincerest form of learning.
+ - Patriotism is a pernicious, psychopathic form of idiocy.
+ - A fool’s brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education.
+ - All autobiographies are lies. I do not mean unconscious, unintentional lies: I mean deliberate lies.
+ - I want to be all used up when I die.
+ - Imagination is the beginning of creation.
+ - Hegel was right when he said that we learn from history that man can never learn anything from history.
+ - Use your health, even to the point of wearing it out. That is what it is for. Spend all you have before you die; do not outlive yourself.
+ - We have no more right to consume happiness without producing it than to consume wealth without producing it.
+ - You have learnt something. That always feels at first as if you had lost something.
+ - The great advantage of a hotel is that it is a refuge from home life.
+ - Youth, which is forgiven everything, forgives itself nothing: age, which forgives itself everything, is forgiven nothing.
+ - The function of the actor is to make the audience imagine for the moment that real things are happening to real people.
+ - Sherlock Holmes was a drug addict without a single amiable trait.
+ - I never resist temptation, because I have found that things that are bad for me do not tempt me.
+ - Tradition will accustom people to any atrocity.
+ - I don’t know if there are men on the moon, but if there are they must be using the earth as their lunatic asylum.
+ - What we want is to see the child in pursuit of knowledge, and not knowledge in pursuit of the child.
+ - If you leave the smallest corner of your head vacant for a moment, other people’s opinions will rush in from all quarters.
+ - Marriage is popular because it combines the maximum of temptation with the maximum of opportunity.
+ - The truth is the one thing that nobody will believe.
+ - I am the most spontaneous speaker in the world because every word, every gesture, and every retort has been carefully rehearsed.
+ - I never expect a soldier to think.
+ - Morality is not respectability.
+ - What a man is depends on his character; but what he does, and what we think of what he does, depends on his circumstances.
+ - The price of ability does not depend on merit but on supply and demand.
+ - If the English can survive their food, they can survive anything.
+ - All great art and literature is propaganda.
+ - One man that has a mind and knows it can always beat ten men who haven’t and don’t.
+ - Now that we have learned to fly the air like birds, swim under water like fish, we lack one thing – to learn to live on earth as human beings.
+ - Better keep yourself clean and bright; you are the window through which you must see the world.
+ - I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake.
+ - A man learns to skate by staggering about and making a fool of himself. Indeed he progresses in all things by resolutely making a fool of himself.
+ - This is the true joy in life, the being used for a purpose recognized by yourself as a mighty one.
+ - The worst sin toward our fellow creatures is not to hate them, but to be indifferent to them: that’s the essence of inhumanity.
+ - As well consult a butcher on the value of vegetarianism as a doctor on the worth of vaccination.
+ - Audacious ribald: your laughter will finish in hideous boredom before morning.
+ - Reasonable men adapt themselves to their environment; unreasonable men try to adapt their environment to themselves. Thus all progress is the result of the efforts of unreasonable men.
+ - Kings are not born: they are made by artificial hallucination.
+ - You use a glass mirror to see your face; you use works of art to see your soul.
+ - Silence is the most perfect expression of scorn.
+ - Indifference is the essence of inhumanity.
+ - I knew if I waited around long enough something like this would happen.
+ - The more I see of the moneyed classes, the more I understand the guillotine.
+ - Justice is impartiality. Only strangers are impartial.
+ - Liberty means responsibility. That is why most men dread it.
+ - Alcohol is the anesthesia by which we endure the operation of life.
+ - We must all share in the evils of the world or move to another planet.
+ - When you loved me I gave you the whole sun and stars to play with. I gave you eternity in a single moment, strength of the mountains in one clasp of your arms, and the volume of all the seas in one impulse of your soul.
+ - Get married, but never to a man who is home all day.
+ - Being a mother means that your heart is no longer yours; it wanders wherever your children do.
+ - Liberty is the breath of life to nations.
+ - Hell is paved with good intentions, not with bad ones. All men mean well.
+ - The goal of an artist is to create the definitive work that cannot be surpassed.
+ - Choose silence of all virtues, for by it you hear other men’s imperfections, and conceal your own.
+ - When I was young, I observed that nine out of ten things I did were failures. So I did ten times more work.
+ - Only in books has mankind known perfect truth, love and beauty.
+ - Education can and should do much influence social, moral and intellectual discovery by stimulating critical attitudes of thought in the young.
+ - The Indian way of life provides the vision of the natural, real way of life. We veil ourselves with unnatural masks. On the face of India are the tender expressions which carry the mark of the Creators hand.
+ - Do not do unto others as you expect they should do unto you. Their tastes may not be the same.
+ - I believe in the discipline of silence, and could talk for hours about it.
+ - Some look at things that are, and ask why. I dream of things that never were and ask why not?
+ - Science never solves a problem without creating ten more.
+ - Old men are dangerous: it doesn’t matter to them what is going to happen to the world.
+ - If a group of beings from another planet were to land on Earth – beings who considered themselves as superior to you as you feel yourself to be to other animals – would you concede them the rights over you that you assume over other animals?
+ - Life does not cease to be funny when people die any more than it ceases to be serious when people laugh.
+ - Every dream is a prophecy: every jest is an earnest in the womb of Time.
+ - Schools and schoolmasters, as we have them today, are not popular as places of education and teachers, but rather prisons and turnkeys in which children are kept to prevent them disturbing and chaperoning their parent.
+ - If you can’t appreciate what you’ve got, you’d better get what you can appreciate.
+ - I am of the opinion that my life belongs to the whole community and as long as I live, it is my privilege to do for it whatever I can.
+ - I do not want to make my stomach a graveyard of dead animals.
+ - If history repeats itself, and the unexpected always happens, how incapable must Man be of learning from experience.
+ - Forgive him, for he believes that the customs of his tribe are the laws of nature!
+ - Doing what needs to be done may not make you happy, but it will make you great.
+ - Titles distinguish the mediocre, embarrass the superior, and are disgraced by the inferior.
+ - You cannot be a hero without being a coward.
+ - If at age 20 you are not a Communist then you have no heart. If at age 30 you are not a Capitalist then you have no brains.
+ - Emotional excitement reaches men through tea, tobacco, opium, whisky, and religion.
+ - I have my own soul. My own spark of divine fire.
+ - The golden rule is that there are no golden rules.
+ - Heartbreak is life educating us.
+ - Human beings are the only animals of which I am thoroughly and cravenly afraid.
+ - Democracy means the organization of society for the benefit and at the expense of everybody indiscriminately and not for the benefit of a privileged class.
+ - Morals are a luxury of the rich.
+ - I’m an atheist and I thank God for it.
+ - Socialism is the same as Communism, only better English.
+ - First love is only a little foolishness and a lot of curiosity.
+ - My way of joking is to tell the truth.
+ - Those who admire modern civilization usually identify it with the steam engine and the electric telegraph.
+ - Compassion is the fellow-feeling of the unsound.
+ - Absolute honesty is as absurd an abstraction as an absolute temperature or an absolute value.
+ - I like to quote myself frequently and often, it makes me sound much more intelligent than I actually am.
+ - What the world calls originality is only an unaccustomed method of tickling it.
+ - The greatest evils and the worst of crimes is poverty; our first duty, a duty to which every other consideration should be sacrificed, is not to be poor.
+ - Money is the most important thing in the world. It represents health, strength, honor, generosity, and beauty as conspicuously as the want of it represents illness, weakness, disgrace, meanness, and ugliness.
+ - The only person who acts sensibly is my tailor. He takes my measure anew every time he sees me. Everyone else goes by their old measurements.
+ - I can think of no other edifice constructed by man as altruistic as a lighthouse. They were built only to serve.
+ - A true artist will let his wife starve, his children go barefoot, his mother drudge for his living at seventy, sooner than work at anything but his art.
+ - Don’t lose faith. Promise yourself that you will be a success story, and I promise you that all the forces of the universe will unite to come to your aid; you might not feel today or for a while, but the longer you wait the bigger the prize.
+ - The only way to avoid being miserable is not to have enough leisure to wonder whether you are happy or not.
+ - What is life but a series of inspired follies? The difficulty is to find them to do. Never lose a chance: it doesn’t come every day.
+ - I like a state of continual becoming, with a goal in front and not behind.
+ - The difference between a lady and a flower girl is not how she behaves, but how she’s treated.
+ - Well, sir, you never can tell. That’s a principle in life with me, sir, if you’ll excuse my having such a thing.
+ - From a very early age, I’ve had to interrupt my education to go to school.
+ - Do not try to live forever. You will not succeed.
+ - Beware of the man whose God is in the skies.
+ - The joy in life is to be used for a purpose. I want to be used up when I die.
+ - Ireland, sir, for good or evil, is like no other place under heaven, and no man can touch its sod or breathe its air without becoming better or worse.
+ - Democracy is a device that insures we shall be governed no better than we deserve.
+ - It is the mark of a truly intelligent person to be moved by statistics.
+ - All government is cruel; for nothing is so cruel as impunity.
+ - Life is a constant becoming: all stages lead to the beginning of others.
+ - When God created man and woman, he did not take a patent. That’s why any imbecile has been able to do so ever since.
+ - We learn from experience that men never learn anything from experience.
+ - Our lives are shaped not as much by our experiences as by our expectations.
+ - Science is always simple and always profound. It is only the half-truths that are dangerous.
+ - Heaven, as conventionally conceived, is a place so inane, so dull, so useless, so miserable that nobody has ever ventured to describe a whole day in heaven, though plenty of people have described a day at the seaside.
+ - No man can be a pure specialist without being in the strict sense an idiot.
+ - When a thing is funny, search it carefully for a hidden truth.
+ - The longer I live, the more I realize that I am never wrong about anything, and that all the pains I have so humbly taken to verify my notions have only wasted my time!
+ - If you cannot get rid of the family skeleton, you may as well make it dance.
+ - The sound body is the product of the sound mind.
+ - Paradoxes are the only truths.
+ - The man with a toothache thinks everyone happy whose teeth are sound. The poverty-stricken man makes the same mistake about the rich man.
+ - No diet will remove all the fat from your body because the brain is entirely fat. Without a brain, you might look good, but all you could do is run for public office.
+ - Whether you think Jesus was God or not, you must admit he was a first-rate political economist.
+ - The man who writes about himself and his own time is the only man who writes about all people and about all time.
+ - All professions are conspiracies against the laity.
+ - The way to deal with worldly people is to frighten them by repeating their scandalous whisperings aloud.
+ - He who has never hoped can never despair.
+ - In gambling the many must lose in order that the few may win.
+ - Opera is when a tenor and soprano want to make love, but are prevented from doing so by a baritone.
+ - The righteous man takes his life in his hand whenever he utters the truth.
+ - We veneer civilization by doing unkind things in a kind way.
+ - We want a few mad people now. See where the sane ones have landed us!
+ - Those who are looking for paradise on Earth should come and see Dubrovnik.
+ - I no longer desire happiness: life is nobler than that.
+ - It is the end of happiness and the beginning of peace.
+ - Love is a simple thing and a deep thing: it is an act of life and not an illusion. Art is an illusion.
+ - Like fingerprints, all marriages are different.
+ - There is no accomplishment so easy to acquire as politeness and none more profitable.
+ - The pianoforte is the most important of all musical instruments; its invention was to music what the invention of printing was to poetry.
+ - The conversion of a savage to Christianity is the conversion of Christianity to savagery.
+ - I was convinced that Ceylon is the cradle of the human race because everyone there looks an original.
+ - God is on the side of the big battalions.
+ - If any religion had a chance of ruling over England, nay Europe within the next hundred years, it could be Islam.
+ - We know there is intention and purpose in the universe, because there is intention and purpose in us.
+ - I dislike feeling at home when I am abroad.
+ - The English are not a very spiritual people, so they invented cricket to give them some idea of eternity.
+ - Trade unionism is not socialism. It is the capitalism of the proletariat.
+ - You don’t learn to hold your own in the world by standing on guard, but by attacking, and getting well hammered yourself.
+ - If Despotism failed only for want of a capable benevolent despot, what chance has Democracy, which requires a whole population of capable voters.
+ - Words are only postage stamps delivering the object for you to unwrap.
+ - Decency is indecency’s conspiracy of silence.
+ - It’s prudent to gain the whole world and lose your own soul. But don’t forget that your soul sticks to you if you stick to it; but the world has a way of slipping through your fingers.
+ - Remember that you are a human being with a soul and the divine gift of articulate speech: that your native language is the language of Shakespeare and Milton and The Bible; and don’t sit there crooning like a bilious pigeon.
+ - Stop being Jews and start being human beings.
+ - Stimulate the phagocytes.
+ - You know, Tolstoy, like myself, wasn’t taken in by superstitions like science and medicine.
+ - People are always blaming their circumstances for what they are. I don’t believe in circumstances.
+ - Custom will reconcile people to any atrocity, and fashion will drive them to acquire any custom.
+ - Reformers have the idea that change can be achieved by brute sanity.
+ - Activity is the only road to knowledge.
+ - If ‘Pygmalion’ is not good enough for your friends with its own verbal music, their talent must be altogether extraordinary.
+ - God made the world as an artist and that is why the world must learn from its artists.
+ - The frontier between hell and heaven is only the difference between two ways of looking at things.
+ - Never resist temptation: prove all things: hold fast that which is good.
+ - The real moment of success is not the moment apparent to the crowd.
+ - I have to live for others and not for myself: that’s middle-class morality.
+ - War can so easily be gilt with romance and heroism and solemn national duty and patriotism and the like by persons whose superficial literary and oratorical talent covers an abyss of Godforsaken folly.
+ - Telling the truth is the funniest joke in the world.
+ - In a hospital they throw you out into the street before you are half cured, but in a nursing home they don’t let you out till you are dead.
+ - If you say that God is good, great, blessed, wise or any such thing, the starting point is this : God is.
+ - The test of a man or woman’s breeding is how they behave in a quarrel.
+ - Hate is the revenge of a coward intimidated.
+ - The art of government is the organization of idolatry. The bureaucracy consists of functionaries; the aristocracy, of idols; the democracy, of idolaters. The populace cannot understand the bureaucracy: it can only worship the national idols.
+ - Vulgarity in a king flatters the majority of the nation.
+ - Don’t think you can frighten me by telling me that I am alone. France is alone. God is alone. And the loneliness of God is His strength.
+ - Men are wise in proportion, not to their experience, but to their capacity for experience.
+ - How you ought properly to spell ‘fish’ in English: ‘goti’ .
+ - It is impossible for an Englishman to open his mouth without making some other Englishman hate or despise him.
+ - Murder and capital punishment are not opposites that cancel one another, but similars that breed their kind. It is the deed that teaches not the name we give it.
+ - The most sincere form of love is love for food.
+ - Beware of the man who does not return your blow: he neither forgives you nor allows you to forgive yourself.
+ - That is the whole secret of successful fighting. Get your enemy at a disadvantage; and never, on any account, fight him on equal terms.
+ - I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy.
+ - The fact that we can become accustomed to anything, however disgusting at first, makes it necessary to examine carefully everything we have become accustomed to.
+ - If we have come to think that the nursery and the kitchen are the natural sphere of a woman, we have done so exactly as English children come to think that a cage is the natural sphere of a parrot: because they have never seen one anywhere else.
+ - Do you think that the things people make fools of themselves about are any less real and true than the things they behave sensibly about? They are more true: they are the only things that are true.
+ - Where there is no religion, hypocrisy becomes good taste.
+ - No question is so difficult to answer as that to which the answer is obvious.
+ - The real pleasure of one’s life is the devotion to a great objective of one’s consideration.
+ - I’ve posed nude for a photographer in the manner of Rodin’s Thinker, but I merely looked constipated.
+ - Nothing is ever accomplished by a reasonable man.
+ - The 100% American is 99% idiot.
+ - The open mind never acts: when we have done our utmost to arrive at a reasonable conclusion, we still must close our minds for the moment with a snap, and act dogmatically on our conclusions.
+ - The moment we want to believe something, we suddenly see all the arguments for it, and become blind to the arguments against it.
+ - It is a woman’s business to get married as soon as possible, and a man’s to keep unmarried as long as he can.
+ - I am justified. For I chose wisdom and the knowledge of good and evil ; and now there is no evil; and wisdom and good are one. It is enough.
+ - A married man is a man with a past, while a bachelor is a man with a future.
+ - Nothing makes a man so selfish as work.
+ - You cannot learn to skate without making yourself ridiculous – the ice of life is slippery.
+ - My reputation grows with every failure.
+ - Gardening is the only unquestionably useful job.
+ - This planet is obviously being used as an insane asylum by other planets.
+ - Effectiveness of assertion is the alpha and omega of style.
+ - Communism, being the lay form of Catholicism, and indeed meaning the same thing, has never had any lack of chaplains.
+ - Marriage is to me apostasy, profanation of the sanctuary of my soul, violation of my manhood, sale of my birthright, shameful surrender, ignominious capitulation, acceptance of defeat.
+ - God help England if she had no Scots to think for her.
+ - A mind of the caliber of mine cannot derive its nutrient from cows.
+ - Happiness and beauty are by-products. Folly is the direct pursuit of happiness and beauty.
+ - The capacity of any conqueror is more likely than not to be an illusion produced by the incapacity of his adversary.
+ - Reading made Don Quixote a gentleman, but believing what he read made him mad.
+ - It seems as though every time you learn something new you have to give up something.
+ - In the arts of peace Man is a bungler.
+ - Christianity might be a good thing if anyone ever tried it.
+ - When we want to read of the deeds that are done for love, whither do we turn? To the murder column.
+ - We know now that the soul is the body, and the body the soul. They tell us they are different because they want to persuade us that we can keep our souls if we let them make slaves of our bodies.
+ - Don’t waste time collecting other people’s autographs; rather devote it to making your own autograph worth collecting.
+ - When asked which dog wins, he reflected for a moment and replied, “The one I feed the most.”
+ - There is nothing so bad or so good that you will not find Englishmen doing it; but you will never find an Englishman in the wrong. He does everything on principle.
+ - If in the library of your house you do not have the works of the ancient Greek writers, then you live in a house with no light.
+ - There is only one person an English girl hates more than she hates her elder sister; and that is her mother.
+ - Patriotism is a word which always commemorates a robbery.
+ - Greatness is one of the sensations of littleness.
+ - A lifetime of happiness! No man alive could bear it: it would be hell on earth.
+ - The British churchgoer prefers a severe preacher because he thinks a few home truths will do his neighbors no harm.
+ - A government that robs Peter to pay Paul can always depend on the support of Paul.
+ - You can easily find people who are ten times as rich at sixty as they were at twenty but not one of them will tell you that they are ten times as happy.
+ - Everything happens to everybody sooner or later if there is time enough.
+ - We educate one another; and we cannot do this if half of us consider the other half not good enough to talk to.
+ - We are the living graves of murdered beasts, slaughtered to satisfy our appetites. How can we hope in this world to attain the peace we say we are so anxious for?
+ - Virtue consists, not in abstaining from vice, but in not desiring it.
+ - Build a system that even a fool can use, and only a fool will want to use it.
+ - It is easy – terribly easy – to shake a man’s faith in himself. To take advantage of that to break a man’s spirit is devil’s work.
+ - You have a choice of trusting the natural stability of gold, or the honesty and intelligence of members of government.
+ - The only secrets are the secrets that keep themselves.
+ - NAPOLEON: What shall we do with this soldier, Giuseppe? Everything he says is wrong. GIUSEPPE: Make him a general, Excellency, and then everything he says will be right.
+ - Seemingly unreasonable people attempt to adapt the world to themselves. Much progress, therefore, depends on such people.
+ - It is a curious sensation: the sort of pain that goes mercifully beyond our powers of feeling. When your heart is broken, your boats are burned: nothing matters any more. It is the end of happiness and the beginning of peace.
+ - The mathematician is fascinated with the marvelous beauty of the forms he constructs, and in their beauty he finds everlasting truth.
+ - If all the economists were laid end to end, they’d never reach a conclusion.
+ - My own education has been entirely controversial: that is why I know what I am writing about; and appear eccentric to dogmatically educated Old School Ties whose heads are stuffed with obsolete shibboleths.
+ - I was a freethinker before I knew how to think.
+ - Where there is no knowledge ignorance calls itself science.
+ - I never thought much of the courage of a lion tamer. Inside the cage he is at least safe from people.
+ - Marriage is the most licentious of human institutions.
+ - If you take too long in deciding what to do with your life, you’ll find you’ve done it.
+ - Hurrah for revolution and more cannon-shot! A beggar upon horseback lashes a beggar on foot. Hurrah for revolution and cannon come again! The beggars have changed places, but the lash goes on.
+ - If you leave your art, the world will beat you back to it. The world has not an ambition worth sharing, or a prize worth handling.
+ - All this struggling and striving to make the world better is a great mistake. Not that it’s wrong to try to improve the world if you know how but simply because struggling and striving are the worst possible ways to go about doing anything!
+ - No man who is occupied in doing a very difficult thing, and doing it very well, ever loses his self-respect.
+ - In literature the ambition of the novice is to acquire the literary language; the struggle of the adept is to get rid of it.
+ - When two people are under the influence of the most violent, most insane, most delusive, and most transient of passions, they are required to swear that they will remain in that excited, abnormal, and exhausting condition continuously until death do them part.
+ - The criminal law is no use to decent people.
+ - In this world there is always danger for those who are afraid of it.
+ - Happiness and Beauty are by-products.
+ - All my life affection has been showered upon me, and every forward step I have made has been taken in spite of it.
+ - Taxes are the chief business of a conqueror of the world.
+ - Remember that the progress of the world depends on your knowing better than your elders.
+ - Schools must not become the agencies through which propaganda advocated by any section of society is spread. The method of control always a crucial problem should be in harmony with the fundamental values and principles of the states and the entire e.
+ - There is nothing in religion but fiction.
+ - The savage bows down to idols of wood and stone, the civilized man to idols of flesh and blood.
+ - Reason enslaves all whose minds are not strong enough to master her.
+ - Whenever an obviously well founded statement is made in England by a person specially well acquainted with the facts, that unlucky person is instantly and frantically contradicted by all the people who obviously know nothing about it.
+ - Love is a gross exaggeration of the difference between one person and everybody else.
+ - Literature is like any other trade; you will never sell anything unless you go to the right shop.
+ - Plato long ago pointed out the importance of being governed by men with sufficient sense of responsibility and comprehension of public duties to be very reluctant to undertake the work of governing.
+ - Which painting in the National Gallery would I save if there was a fire? The one nearest the door of course.
+ - If women were as fastidious as men, morally or physically, there would be an end of the race.
+ - The best way to get your point across is to entertain.
+ - The happiness of credulity is a cheap and dangerous quality.
+ - If pity is akin to love, gratitude is akin to the other thing.
+ - What is life but a series of inspired follies...
+ - What you are to do without me I cannot imagine.
+ - Martyrdom, sir, is what these people like: it is the only way in which a man can become famous without ability.
+ - A fool-proof method for sculpting an elephant: first, get a huge block of marble; then you chip away everything that doesn’t look like an elephant.
+ - Only in the problem play is there any real drama, because drama is no mere setting up of the camera to nature: it is the presentation in parable of the conflict between Man’s will and his environment: in a word, of problem.
+ - A great social reformer.
+ - A healthy nation is as unconscious of its nationality as a healthy man of his bones. But if you break a person’s nationality it will think of nothing else but getting it set again.
+ - There is the eternal war between those who are in the world for what they can get out of it and those who are in the world to make it a better place for everybody to live in.
+ - Being hurt by someone you truly care about leaves a hole in you heart that only love can fill.
+ - My rank is the highest known in Switzerland: I’m a free citizen.
+ - The person I miss most is the one I could have been.
+ - Home is the girl’s prison and the woman’s workhouse.
+ - Revolutions have never lightened the burden of tyranny; they have only shifted it to another shoulder.
+ - In the right key one can say anything. In the wrong key, nothing: the only delicate part is the establishment of the key.
+ - Most people go to their grave with their music inside them.
+ - I feel nothing but the accursed happiness I have dreaded all my life long: the happiness that comes as life goes, the happiness of yielding and dreaming instead of resisting and doing, the sweetness of the fruit that is going rotten.
+ - The greatest thing in life is to die young – but delay it as long as possible.
+ - People exaggerate the value of things they haven’t got everybody worships truth and unselfishness because they have no experience with them.
+ - A family is a tyranny ruled over by it’s weakest member.
+ - We all go about longing for love: it is the first need of our natures, the loudest cry of our hearts.
+ - Civilization is a disease produced by the practice of building societies with rotten material.
+ - Life levels all men. Death reveals the eminent.
+ - Wicked people means people who have no love: therefore, they have no shame. They have the power to ask love because the don’t need it: they have the power to offer it because they have none to give.
+ - Music is the brandy of the damned.
+ - A man thinking or working is always alone, let him be where he will.
+ - Consistency is the enemy of enterprise, just as symmetry is the enemy of art.
+ - I appeal to the chemists to discover a humane gas that will kill instantly and painlessly. In short- a gentlemanly gas deadly by all means, but humane, not cruel.
+ - The best place to find God is in a garden. You can dig for him there.
+ - The more ignorant men are, the more convinced are they that their little parish and their little chapel is an apex to which civilization and philosophy has painfully struggled up the pyramid of time from a desert of savagery.
+ - Vitality is a woman is a blind fury of creation.
+ - I enjoy convalescence. It is the part that makes the illness worth while.
+ - I never accepted a knighthood because to me, is honour enough?
+ - No king on earth is as safe in his job as a Trade Union official. There is only one thing that can get him sacked; and that is drink. Not even that, as long as he doesn’t actually fall down.
+ - We live in an atmosphere of shame. We are ashamed of everything that is real about us; ashamed of ourselves, of our relatives, of our incomes, of our accents, of our opinions, of our experience, just as we are ashamed of our naked skins.
+ - German and Spanish are accessible to foreigners: English is not accessible even to Englishmen.
+ - Who is this Baby Ruth? And what does she do?
+ - Property is organized robbery.
+ - Power does not corrupt men; fools, however, if they get into a position of power, corrupt power.
+ - Golf is typical capitalist luncay.
+ - That is what all poets do: they talk to themselves out loud; and the world overhears them. But it’s horribly lonely not to hear someone else talk sometimes.
+ - What really flatters a man is that you think him worth flattering.
+ - Life is like a flame that is always burning itself out...
+ - People become attached to their burdens sometimes more than the burdens are attached to them.
+ - I don’t. I look my age; and I am my age. It is the other people who look older than they are. What can you expect from people who eat corpses and drink spirits?
+ - When commenting on the turmoil and disorder of the world, If the other planets are inhabited, they must be using this earth as their insane asylum.
+ - It is assumed that the woman must wait, motionless, until she is wooed. That is how the spider waits for the fly.
+ - Women upset everything. When you let them into your life, you find that the woman is driving at one thing and you’re driving at another.
+ - As to spelling the very frequent word though with six letters instead of two, it is impossible to discuss it, as it is outside the range of common sanity. In comparison such a monstrosity as phlegm for flem is merely disgusting.
+ - Newspaper : A device unable to distinguish between a bicycle accident and the collapse of civilisation.
+ - To me the sole hope of human salvation lies in teaching.
+ - I showed my appreciation of my native land in the usual Irish way: by getting out of it as soon as I possibly could.
+ - How can what an Englishman believes be hearsay? It is a contradiction in terms.
+ - A man of my spiritual intensity does not eat corpses.
+ - The English have no respect for their language, and will not teach their children to speak it.
+ - We are members one of another; so that you cannot injure or help your neighbor without injuring or helping yourself.
+ - Every fool believes what his teachers tell him, and calls his credulity science or morality as confidently as his father called it divine revelation.
+ - You can always tell an old soldier by the inside of his holsters and cartridge boxes. The young ones carry pistols and cartridges; the old ones, grub.
+ - Be like the sun and meadow, which are not in the least concerned about the coming winter.
+ - Alcohol is a very necessary article. It enables Parliament to do things at eleven at night that no sane person would do at eleven in the morning.
+ - No sooner had Jesus knocked over the dragon of superstition than Paul boldly set it on its legs again in the name of Jesus.
+ - A man without an address is a vagabond; a man with two addresses is a libertine.
+ - Nothing is worth doing unless the consequences may be serious.
+ - No man fully capable of his own language ever masters another.
+ - Anarchism is a game at which the police can beat you.
+ - Think of the fierce energy concentrated in an acorn! You bury it in the ground, and it explodes into an oak! Bury a sheep, and nothing happens but decay.
+ - I have studied him – the wonderful man – and in my opinion far from being an anti-Christ he must be called the saviour of humanity.
+ - In heaven an angel is nobody in particular.
+ - Disobedience, the rarest and most courageous of the virtues, is seldom distinguished from neglect, the laziest and commonest of the vices.
+ - Defeatism is the wretchedest of policies.
+ - The world was to Shakespeare a great stage of fools on which he was utterly bewildered. His pregnant observations of life are not coordinated into any philosophy.
+ - I’m sick of all the reasonable people: they see all the reasons for doing nothing.
+ - The most tragic thing in the world is a man of genius who is not a man of honor.
+ - Success covers a multitude of blunders.
+ - Atrocities are not less atrocities when they occur in laboratories and are called medical research.
+ - Altogether too many sheep.
+ - I can’t talk religion to a man with bodily hunger in his eyes.
+ - What God hath joined together no man shall put asunder: God will take care of that.
+ - When the world goes mad, one must accept madness as sanity; since sanity is, in the last analysis, nothing but the madness on which the whole world happens to agree.
+ - I don’t want to talk grammar. I want to talk like a lady.
+ - I believe in Michelangelo, Velasquez, and Rembrandt; in the might of design, the mystery of color, the redemption of all things by Beauty everlasting, and the message of Art that has made these hands blessed. Amen. Amen.
+ - I hate the poor and look forward eagerly to their extermination.
+ - My schooling not only failed to teach me what it professed to be teaching, but prevented me from being educated to an extent which infuriates me when I think of all I might have learned at home by myself.
+ - Man can climb to the highest summits, but he cannot dwell there long.
+ - Life is a disease; and the only difference between on man and another is the stage of the disease at which he lives.
+ - Affection between adults – if they are really adult in mind and not merely grown up children – and creatures so relatively selfish and cruel as children necessarily are without knowing it or meaning it, cannot be called natural.
+ - As you say, I am honoured and famous and rich. But as I have to do all the hard work, and suffer an increasing multitude of fools gladly, it does not feel any better than being reviled, infamous and poor, as I used to be.
+ - An election is a moral horror, as bad as a battle except for the blood; a mud bath for every soul concerned in it.
+ - Violence is the repartee of the illiterate.
+ - All evolution in thought and conduct must at first appear as heresy and misconduct.
+ - Censorship ends in logical completeness when nobody is allowed to read any books except the books that nobody reads.
+ - If you strike a child, take care that you strike it in anger, even at the risk of maiming it for life. A blow in cold blood neither can nor should be forgiven.
+ - I love little children too but I don’t cut off their heads and stick them in vases.
+ - Our first duty is not to be poor.
+ - Every man over forty is a scoundrel.
+ - Never forget that if you leave your law to judges and your religion to bishops, you will presently find yourself without either law or religion.
+ - Rich men without convictions are more dangerous in modern society than poor women without chastity.
+ - The best bought-up children are those who have seen thier parents as they are. Hypocrisy is not the first duty of a parent.
+ - I sold flowers. I didn’t sell myself. Now you’ve made a lady of me I’m not fit to sell anything else.
+ - Reminiscences make one feel so deliciously aged and sad.
+ - Let not the right side of your brain know what the left side doeth.
+ - If you eliminate smoking and gambling, you will be amazed to find that almost all an Englishman’s pleasures can be, and mostly are, shared by his dog.
+ - All dress is fancy dress, is it not, except our natural skins?
+ - Although I cannot lay an egg, I am a very good judge of omelettes.
+ - You cannot have power for good without having power for evil too. Even mother’s milk nourishes murderers as well as heroes.
+ - A love affair should always be a honeymoon. And the only way to make sure of that is to keep changing the man; for the same man can never keep it up.
+ - Wise kings wear shabby clothes, and leave the gold lace to the drum major.
+ - Principles without programs are platitudes.
+ - Morality consists of suspecting other people of not being legally married.
+ - There are no secrets better kept than the secrets everybody guesses.
+ - We must reform society before we can reform ourselves.
+ - I’m only a beer teetotaler, not a champagne teetotaler; I don’t like beer.
+ - The love of economy is the root of all virtue.
+ - Money is indeed the most important thing in the world; and all sound and successful personal and national morality should have this fact for its basis.
+ - Our political experiment of democracy, the last refuge of cheap misgovernment.
+ - You have nothing to do but mention the quantum theory, and people will take your voice for the voice of science, and belive anything.
+ - A sensitive boy’s humiliations may be very good fun for ordinary thick-skinned grown-ups; but to the boy himself theyareso acute, so ignominious, that he cannot confess themcannot but deny them passionately.
+ - A fashion is nothing but an induced epidemic.
+ - Nothing can save us from a perpetual headlong fall into a bottomless abyss but a solid footing of dogma; and we no sooner agree to that than we find that the only trustworthy dogma is that there is no dogma.
+ - The Jews generally give value. They make you pay; but they deliver the goods. In my experience the men who want something for nothing are invariably Christians.
+ - To disbelieve in marriage is easy: to love a married woman is easy; but to betray a comrade, to be disloyal to a host, to break the covenant of bread and salt, is impossible.
+ - The fickleness of the women I love is only equalled by the infernal constancy of the women who love me.
+ - When a stupid man is doing something he is ashamed of, he always declares that it is his duty.
+ - Perhaps the greatest social service that can be rendered by anybody to the country and to mankind is to bring up a family.
+ - Our necessities are few, but our wants are endless.
+ - History, sir, will tell lies as usual.
+ - No Englishman is ever fairly beaten.
+ - Freedom, my good girl, means being able to count on how other people will behave.
+ - Hell is a place where you have nothing to do but amuse yourself.
+ - Every man deserves to be judged in the context of his times.
+ - Now of all the idealist abominations that make society pestiferous I doubt if there be any so mean as that of forcing self-sacrifice on a woman under the pretense that she likes it.
+ - Take the utmost care to get well born and well brought up.
+ - The whole world is strewn with snares, traps, gins and pitfalls for the capture of men by women.
+ - Must then a Christ perish in torment in every age to save those that have no imagination.
+ - When a lion meets another with a louder roar, the first lion thinks the last a bore.
+ - You have no right to say that I am not sincere. I have found a happiness in art that real life has never given me. I am intensely in earnest about art. There is is a magic and mystery in art that you know nothing of.
+ - Oh, well, if you want original conversations, you’d better go and talk to yourself.
+ - Besides, do any of us understand what we are doing? If we did, would we ever do it?
+ - What is any respectable girl brought up to do but to catch some rich man’s fancy and get the benefit of his money by marrying him? – as if a marriage ceremony could make any difference in the right or wrong of the thing!
+ - To the person with a toothache, even if the world is tottering, there is nothing more important than a visit to a dentist.
+ - Changeable women are more endurable that monotonous ones; they are sometimes murdered but never deserted.
+ - I was a cannibal for twenty-five years. For the rest I have been a vegetarian.
+ - The philosopher is Nature’s pilot.
+ - What use are cartridges in battle? I always carry chocolate instead.
+ - Never fret for an only son, the idea of failure will never occur to him.
+ - Everything I eat has been proved by some doctor or other to be a deadly poison, and everything I don’t eat has been proved to be indispensable for life. But I go marching on.
+ - Of all human struggles there is none so treacherous and remorseless as the struggle between the artist man and the mother woman.
+ - It would positively be a relief to me to dig Shakespeare up and throw stones at him.
+ - If the wicked flourish and the fittest survive, Nature must be the god of rascals.
+ - The heart of an Irishman is nothing but his imagination.
+ - Experience is a wonderful thing. It enables you to recognize a mistake when you make it again. If all economists were laid end to end they would not reach a conclusion.
+ - The first condition of progress is the removal of censorship.
+ - A married man forms married habits and becomes dependent on marriage just as a sailor becomes dependent on the sea.
+ - Vivisection is a social evil because if it advances human knowledge, it does so at the expense of human character.
+ - The greatest of evils and the worst of crimes is poverty.
+ - A moderately honest man with a moderately faithful wife, moderate drinkers both, in a moderately healthy house: that is the true middle class unit.
+
+500 quotes

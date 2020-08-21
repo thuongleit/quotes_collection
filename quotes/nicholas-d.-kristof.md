@@ -1,0 +1,60 @@
+ - More Americans die in gun homicides and suicides in six months than have died in the last 25 years in every terrorist attack and the wars in Afghanistan and Iraq combined.
+ - The tide of history is turning women from beasts of burden and sexual playthings into full-fledged human beings.
+ - Sometimes I wish eastern Congo could suffer an earthquake or a tsunami, so that it might finally get the attention it needs. The barbaric civil war being waged here is the most lethal conflict since World War II and has claimed at least 30 times as many lives as the Haiti earthquake.
+ - It is better to inconsistently save some lives than to consistently save none.
+ - America’s education system has become less a ladder of opportunity than a structure to transmit inequity from one generation to the next.
+ - In the nineteenth century, the central moral challenge was slavery. In the twentieth century, it was the battle against totalitarianism. We believe that in this century the paramount moral challenge will be the struggle for gender equality around the world.
+ - Women aren’t the problem but the solution. The plight of girls is no more a tragedy than an opportunity.
+ - Every year 3.1 million Indian children die before the age of 5, mostly from diseases of poverty like diarrhea.
+ - If only women are talking about women’s rights, then the issue has failed from the start. If you think about the Holocaust, that wasn’t just a Jewish issue. Civil rights weren’t just a black issue.
+ - Abortion politics have distracted all sides from what is really essential: a major aid campaign to improve midwifery, prenatal care and emergency obstetric services in poor countries.
+ - Half a million women die each year around the world in pregnancy. It’s not biology that kills them so much as neglect.
+ - The greatest threat to extremism isn’t drones firing missiles, but girls reading books.
+ - It’s easy to keep issuing blame to Republicans or the president.
+ - I think it’s dangerous to be optimistic. Things could go terribly wrong virtually overnight.
+ - A little bit of attention can go a long way.
+ - Random violence is incredibly infectious.
+ - The conflict in Darfur could escalate to where we’re seeing 100,000 victims per month.
+ - Palestinian militancy has accomplished nothing but increasing the misery of the Palestinian people. If Palestinians instead turned more to huge Gandhi-style nonviolence resistance campaigns, the resulting videos would reverberate around the world and Palestine would achieve statehood and freedom.
+ - One of the things that really got to me was talking to parents who had been burned out of their villages, had family members killed, and then when men showed up at the wells to get water, they were shot.
+ - The north of the Central African Republic is now a war zone, with rival armed bands burning villages, kidnapping children, robbing travelers and killing people with impunity.
+ - I try to be careful about wording. One of the things I’ve tried to combat in my blog is the notion that journalists are arrogant and unconcerned with the readership.
+ - There could be a powerful international women’s rights movement if only philanthropists would donate as much to real women as to paintings and sculptures of women.
+ - We, as Americans, have won the lottery of life and the distinction between us and people living in Kalighat is not that we are smarter, not that we’re harder working, not that we’re more virtuous – it’s that we’re luckier.
+ - There isn’t a political price to be paid yet for doing nothing. People need to get upset with President Bush. People need to get upset with their Congressmen.
+ - Americans of faith should try as hard to save the lives of African women as the lives of unborn fetuses.
+ - Compassion isn’t a sign of weakness, but a mark of civilization.
+ - We all might ask ourselves why we tune in to these more trivial matters and tune out when it comes to Darfur.
+ - Americans have called on moderates in Muslim countries to speak out against extremists, to stand up for the tolerance they say they believe in. We should all have the guts do the same at home.
+ - You will be judged in years to come by how you responded to genocide on your watch.
+ - All of a sudden their husband’s dead and maybe a child is dead and they have absolutely nothing – and they’re heading through the desert at night.
+ - Most of the villagers were hiding in the bush, where they were dying from bad water, malaria and malnutrition.
+ - Once you’ve created a connection of empathy, rational arguments can play a supportive role.
+ - Most of us employ the Internet not to seek the best information, but rather to select information that confirms our prejudices .
+ - The fact that people will pay you to talk to people and travel to interesting places and write about what intrigues you, I am just amazed by that.
+ - Laws matter, but typically changing the law by itself accomplishes little.
+ - You don’t need to invade a place or install a new government to help bring about a positive change.
+ - Sandy was particularly destructive because it was prevented from moving back out to sea by a “blocking pattern” associated with the jet stream. There’s debate about this, but one recent study suggested that melting sea ice in the Arctic may lead to such blocking.
+ - Individual storytelling is incredibly powerful. We as journalists know intuitively what scientists of the brain are discovering through brain scans, which is that emotional stories tend to open the portals, and that once there’s a connection made, people are more open to rational arguments.
+ - The photos were taken by African Union soldiers. People in Congress saw them. I thought if people could see them, there would be public outcry. No one would be able to say, We just didn’t know what was going on there.
+ - The way you get leaders to care about issues of conscience is to apply political pressure. It’s less a question of persuading leaders directly and more trying to build a social movement that holds their feet to the fire.
+ - We tie ourselves in knots when we act as if democracy is good for the United States and Israel but not for the Arab world. For far too long, we’ve treated the Arab world as just an oil field.
+ - Rising seas create a higher baseline for future storm surges. The New York City Panel on Climate Change has projected that coastal waters may rise by two feet by 2050 and four feet by the end of the century.
+ - The news media’s silence, particularly television news, is reprehensible. If we knew as much about Darfur as we do about Michael Jackson, we might be able to stop these things from continuing.
+ - It really is quite remarkable that Darfur has become a household name. I am gratified that’s the case.
+ - If President Bush is serious about genocide, an immediate priority is to stop the cancer of Darfur from spreading further, which means working with France to shore up Chad and the Central African Republic.
+ - While Americans have heard of Darfur and think we should be doing more there, they aren’t actually angry at the president about inaction.
+ - Look, we’ll have to confront the pathologies of poverty at some point. We can deal with them cheaply at the front end, in infancy. Or we can wait and jail a troubled adolescent at the tail end. To some extent, we face a choice between investing in preschools or in prisons.
+ - There seems to be this sense among even well-meaning Americans that Africa is this black hole of murder and mutilation that can never be fixed, no matter what aid is brought in.
+ - Neither left nor right has focused adequately on maternal health.
+ - There are other issues I have felt more emotionally connected to, like China, where I lived and worked for some time. I was living there when Tiananmen Square erupted.
+ - In general, talking about human rights tends to be very persuasive for people who care about human rights.
+ - In much of the world, the most dangerous thing a woman can do is become pregnant.
+ - Isn’t it time to talk not only about weather, but also about climate?
+ - A few countries like Sri Lanka and Honduras have led the way in slashing maternal mortality.
+ - The world spends $40 billion a year on pet food.
+ - I have often tried to tell the story of a place through people there.
+ - The bulk of the emails tend to come after a column. I can get about 2,000 after a column.
+ - Just a little help, a small security force, a bit of food, can save lives.
+
+58 quotes

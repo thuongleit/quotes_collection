@@ -1,0 +1,59 @@
+ - My father said there were two kinds of people in the world: givers and takers. The takers may eat better, but the givers sleep better.
+ - Small steps can help people make big changes to achieve what they really desire. That wish isn’t going to go anywhere unless you do something about it. Every day, just do one thing. At the end of six months, you’ll be somewhere.
+ - Marriage is like a vacuum cleaner. You stick it to your ear and it sucks out all your energy and ambition.
+ - Chiropractic solved my neck and shoulder pains; it put me back on my feet. I think chiropractic is great!
+ - People don’t want to be bothered, if they’re not being pressured to change. You have to push people. You have to be the agitator that makes the pearl.
+ - Laughter is important, not only because it makes us happy, it also has actual health benefits. And that’s because laughter completely engages the body and releases the mind. It connects us to others, and that in itself has a healing effect.
+ - My mother was a strong-willed and opinionated woman – a Sicilian! – and if she didn’t like something, she’d let you know about it. So her undying support of her kids went a long way in proving to us that we were on the right path.
+ - I wish someone would have told me that, just because I’m a girl, I don’t have to get married.
+ - A society is judged by the way it cares for its most vulnerable citizens. As an American, I am ashamed that we have turned out backs on millions of our children. I want to do my part to rectify this terrible situation.
+ - A man has to be Joe McCarthy to be called ruthless. All a woman has to do is put you on hold.
+ - One of the things women are very good at, that’s networking. Women are not afraid to say, “I need.” They’re not afraid. Men won’t even ask for directions. Women will tell each other when they need something. Women will tell each other when their husband is having an affair. Men don’t do that.
+ - In that I found being able to talk to my family about my feelings, praying for strength and realizing that our lives have a deep purpose and the journey of our lives is to find out what that is and express it, was the only way I could have gotten through it.
+ - Where will I be five years from now? I delight in not knowing. That’s one of the greatest things about life its wonderful surprises.
+ - I think in my case, I had no choice but to have a good sense of humor. I grew up with my dad, Danny Thomas, and George Burns and Bob Hope and Milton Berle and Sid Caesar and all those guys were at our house all the time and telling jokes and making each other laugh.
+ - When I look back at those pictures of my mother performing – and listen to her recordings – it makes me sad to think that all of that joy she found in her work came to an end. I wish she hadn’t had to make that sacrifice, even if it was for the benefit of my father and siblings and me.
+ - Ive always been a champion of kids pursuing their dreams. But sometimes in life, extraordinary circumstances may force us to temporarily put our dreams on hold. The most important thing is to never lose sight of that dream, no matter what punches life may throw in our way.
+ - Losing my parents was probably the hardest and deepest blow from which I’ve had to recover.
+ - You know, theres endorphins in laughter, as there are endorphins in running in the park.
+ - One woman is a pest and two women is a team, but three women or more is a coalition. If you can bring a lot of people together as a coalition, you can get a lot changed.
+ - One of the things about equality is not just that you be treated equally to a man, but that you treat yourself equally to the way you treat a man.
+ - The rejection that we all take and the sadness and the aggravation and the loss of jobs and all of the things that we live through in our lives, without a sense of humor, I don’t know how people make it.
+ - It’s important to think big, but you’ve got to work small.
+ - I was an educated girl. I’d done very well in school. I had a good point average and graduated from USC as an English teacher. My dad didn’t even finish high school.
+ - If you really need to, you have to make it happen.
+ - Despite our ever-connective technology, neither Skype nor Facebook – not even a telephone call – can come close to the joy of being with loved ones in person.
+ - First you have to have a dream.
+ - The Golden Girls certainly proved that there was a large audience for a show about older women.
+ - That is the difference between St. Jude’s and all other children’s hospitals. The other hospitals are not bad at all; they’re good hospitals, but they’re just working with what they know, and St. Jude’s is working with what nobody else knows, because they’re doing research.
+ - Women should know that they don’t have to hang on to an old dream that has stopped nurturing them – that there is always time to start a new dream.
+ - As much success came to him, my father stayed true to his promise. He built the hospital to help the most helpless children with catastrophic illnesses.
+ - You can’t be happy, if you’re not free and you’re not fulfilling yourself.
+ - I find that balancing my life with my work with the kids at St. Jude, working on books, working on my career as an actor and taking time out for my husband and family help to cushion a lot of the blows.
+ - In my work, there’s a tremendous amount of rejection and waves of fertile and fallow times.
+ - A feminist is a man or woman who already knows for a fact that men and women are qual and wants society to wake up to that fact, so the world can stop operating at half-strength.
+ - We’ve been taught to believe that actions speak louder than words. But I think words speak pretty loud all of our lives; we carry these words in our head.
+ - I realize now that I was a feminist and the minute I heard the word I certainly knew it meant me, but at that time I don’t think we had the label yet. But there’s no doubt about it that I was born a feminist.
+ - Fame lost its appeal for me when I went into a public restroom and an autograph seeker handed me a pen and paper under the stall door.
+ - In the 1960s we were fighting to be recognized as equals in the marketplace, in marriage, in education and on the playing field. It was a very exciting, rebellious time.
+ - I know George Burns was a very happy man.
+ - It’s because it was at a time when women didn’t have any power. It was so unusual for a young woman in her 20s to have power that I seized the power but tried not to flaunt it.
+ - Living with these teenage boys allowed me to see how much their psyches were like their girl counterparts. They were more familiar to me than I would have thought.
+ - Never face facts; if you do, you’ll never get up in the morning.
+ - It’s so important to raise people to grow up to be who they are and not be forced to be who they’re not. What an awful thing to do to people – it’s like being in prison.
+ - If it’s one thing we learned from the first book, it’s that you don’t have to be a prizefighter, or a world-renowned architect, or a concert violinist to have been affected by the power of words.
+ - I think loss of loved ones is the hardest blow in life.
+ - I have this theory that there are two kinds of people in the world, people who stop at a traffic accident and those that just drive by. If I see a traffic accident, I am going to stop. I do notice. I don’t think that makes me a good or bad person, or anybody else better or worse.
+ - I think that there’s got to be a comic gene in some way, but it’s so much about it is how you grow up.
+ - What I’m loving about Hilary Clinton is that she has the job that’s been held mostly by men. She’s made it her job, not only to be a very tactful diplomat, but she travels the world, spotlighting what’s going on with girls and women, in every country that she goes to. That has been so unique.
+ - What the results are telling them is that the most money is spent in volume by young people. They also see young people as the consumers of tomorrow and are trying to capture their attention from their competitors.
+ - What I love about the theater is the work ethic. I grew up with it.
+ - If you want to get somewhere in six months, you’re not going to get there by wishing it.
+ - Be who you are. Otherwise, you end up committing suicide. You end up marrying people when you shouldn’t be marrying them and having terrible, secret lives.
+ - People really want to do something good. You just have to show them where it is.
+ - Today, all patients accepted for treatment at St. Jude’s are treated without regard for the family’s ability to pay. Everything beyond what is covered by insurance is taken care of, and for those without insurance, all of the medical costs are absorbed by the hospital.
+ - It’s fascinating for us women to begin looking at our lives in five-year plans. It really does help you keep on track. If that’s too hard, start with a two-year plan.
+ - So I still seized the power, but I felt that if I officially made myself the boss, in black and white, it would be too intimidating for the other producers and the other men who worked on the show. In other words, I had the power, but I gave them the title.
+ - There are those who think that the private lives of candidates are none of our business. But when those candidates ask us for our attention as they explain their plans for how they will represent us, no one should be surprised at our interest in how they represent themselves.
+
+57 quotes

@@ -1,0 +1,52 @@
+ - The past beats inside me like a second heart.
+ - I’m full of self-doubt. I doubt everything I do. Everything I do is a failure.
+ - The Booker Prize is a big, popular prize for big, popular books, and that’s the way it should be.
+ - I never went to university. I’m self-educated. I didn’t go because I was too impatient, too arrogant.
+ - Everything we do is tinged with the knowledge that this may be the last time that we will do this, and that makes what we’re doing incredibly sweet.
+ - Enormous morning, ponderous, meticulous; gray light streaking each bare branch, each single twig, along one side, making another tree, of glassy veins.
+ - A man is not much if he can’t depend on himself, and nothing if others can’t depend on him.
+ - We carry the dead with us only until we die too, and then it is we who are borne along for a little while, and then our bearers in their turn drop, and so on into the unimaginable generations.
+ - All my life I have lied. I lied to escape, I lied to be loved, I lied for placement and power; I lied to lie. It was a way of living; lies are life’s almost-anagram.
+ - For memory, we use our imagination. We take a few strands of real time and carry them with us, then like an oyster we create a pearl around them.
+ - Ian McEwan is a very good writer; the first half of Atonement alone would ensure him a lasting place in English letters.
+ - I had never liked, even feared a little, this wild reach of marsh and mud flats where everything seemed turned away from the land, looking off desperately toward the horizon as if in mute search for a sign of rescue.
+ - The secret of survival is a defective imagination.
+ - No two things the same, the equals sign a scandal.
+ - To take possession of a city of which you are not a native you must first fall in love there.
+ - I read Nietzsche when I was a teenager and then I went back to reading him when I was in my thirties, and his voice spoke directly to me. Nietzsche is such a superb literary artist.
+ - In order really to write one has to sink deep into the self and become lost there.
+ - All I wanted was to be left alone. They abhor a vacuum, other people. You find a quiet corner where you can hunker down in peace, and the next minute there they are, crowding around you in their party hats, tooting their paper whistles in your face and insisting you get up and join in the knees-up.
+ - Dogs are dim creatures, do not speak to me of their good sense – have you ever heard of a team of tomcats hauling a sled across the frozen wastes?
+ - When I finish a sentence, after much labor, it’s finished. A certain point comes at which you can’t do any more work on it because you know it will kill the sentence.
+ - Art is amoral, whether we accept this or not; it does not take sides. The finest fictions are cold at heart.
+ - I shall strip away layer after layer of grime – the toffee-colored varnish and caked soot left by a lifetime of dissembling – until I come to the very thing itself and know it for what it is. My soul. My self.
+ - How flat all sounds are at the seaside, flat and yet emphatic, like the sound of gunshots heard at a distance.
+ - The white May blossom swooned slowly into the open mouth of the grave.
+ - I don’t own a Kindle, no. I love books, they are beautiful objects.
+ - What I was afraid of was my own grief, the weight of it, the ineluctable corrosive force of it, and the stark awareness I had of being, for the first time in my life, entirely alone, a Crusoe shipwrecked and stranded in the limitless wastes of a boundless and indifferent ocean.
+ - I have this fantasy. I’m walking past a bookshop and I click my fingers and all my books go blank. So I can start again and get it right.
+ - Given the world that he created, it would be an impiety against God to believe in him.
+ - The sentence is the greatest human invention of civilization.
+ - All art at a certain level is entertainment. We go to a tragedy by Sophocles to be entertained.
+ - Fictional characters are made of words, not flesh; they do not have free will, they do not exercise volition. They are easily born, and as easily killed off.
+ - The telephone ringing gave me a dreadful start. I have never got used to this machine, the way it crouches so malevolently, ready to start clamouring for attention when you least expect it, like a mad baby.
+ - With the crime novels, its delightful to have protagonists I can revisit in book after book. Its like having a fictitious family.
+ - And indeed nothing had happened, a momentous nothing, just another of the great world’s shrugs of indifference.
+ - That’s one of the many things I hate about life, that it’s a hideously cliched business.
+ - A plot begins when somebody has something to hide.
+ - The first thought that occurred to me, that night when I heard the chairman of the jury announce my name, was, Just think how many people hate me at this moment. Naturally, I wanted to annoy those people even further by being arrogant.
+ - Happiness was different in childhood. It was so much then a matter simply of accumulation, of taking things – new experiences, new emotions – and applying them like so many polished tiles to what would someday be the marvellously finished pavilion of the self.
+ - Where I went, no one could follow. Yet someone managed to hold my hand.
+ - The world is not real for me until it has been pushed through the mesh of language.
+ - There are times, they occur with increasing frequency nowadays, when I seem to know nothing, when everything I know seems to have fallen out of my mind like a shower of rain, and I am gripped for a moment in paralysed dismay, waiting for it all to come back but with no certainty that it will.
+ - Sleep is uncanny, I have always found it so, a nightly dress-rehearsal for being dead.
+ - If I was asked to say what was the greatest invention of human beings, I would say the sentence.
+ - If they give me the bloody prize, why can’t they say nice things about me?
+ - We artists love to talk tough, but we’re just as sentimental as everyone else when it comes down to it.
+ - I don’t make a distinction between men and women. To me they are just people.
+ - Perhaps all of life is no more than a long preparation for the leaving of it.
+ - What is money, after all? Almost nothing, when one has a sufficiency of it.
+ - I live in Dublin, God knows why. There are greatly more congenial places I could have settled in – Italy, France, Manhattan – but I like the climate here, and Irish light seems to be essential for me and for my writing.
+ - I am the worst judge of my books.
+
+50 quotes

@@ -1,0 +1,28 @@
+ - When you’re not practicing, someone somewhere is. And when the two of you meet, assuming roughly equal ability, the other person will win.
+ - Becoming number one is easier than remaining number one.
+ - Leadership is not something that is done to people, like fixing your teeth. Leadership is unlocking people’s potential to become better.
+ - Sports is a metaphor for overcoming obstacles and achieving against great odds. Athletes, in times of difficulty, can be important role models.
+ - Behind all the years of practice and all the hours of glory waits that inexorable terror of living without the game.
+ - Some people say we can never achieve our special destiny, but I say, in a world of new possibilities guided by goodness, we can and we will.
+ - A lot of people want to change the world, but only a few people want to change themselves. When it comes to the issue of race in America, we have to do both.
+ - Give to another human being without the expectation of a return.
+ - The taste of defeat has a richness of experience all its own.
+ - People tell me, “I’m glad you said that.” But this is not a spectator sport. This is an activity that requires daily moral awakening as well as a commitment that leads to real change.
+ - There has never been a great athlete who died not knowing what pain is.
+ - I might lose because I wasn’t tall enough; I might lose because I wasn’t fast enough. But I wasn’t going to lose because I wasn’t ready.
+ - Leaders should be collaborative, modest, and generous.
+ - We need to get beyond the politics of the moment, the deficit of the hour, the military count of the day, the numbers that rarely shape events. Our long-term interests must be in people and in the values of democracy and individual liberty.
+ - Respect your fellow human being, treat them fairly, disagree with them honestly, enjoy their friendship, explore your thoughts about one another candidly, work together for a common goal and help one another achieve it. No destructive lies. No ridiculous fears. No debilitating anger.
+ - Basketball can serve as a kind of metaphor for ultimate cooperation. It is a sport where success, as symbolized by the championship, requires that the dictates of community prevail over selfish impulses.
+ - We realized that no one of us could be as good as all of us playing unselfishly.
+ - The point of the game is not how well the individual does, but whether the team wins. That’s the beautiful heart of the game, the blending of personalities, the mutual sacrifices for the group success.
+ - I think the political process has degenerated into name-calling and extremism, and I think that that’s unfortunate.
+ - For a long time, I operated under the Chinese proverb that there are four kinds of leaders: those who you laugh at, those who you hate, those who you love and those who you don’t even know that they’re leaders.
+ - Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, ‘Just watch!’
+ - When you make speeches you elicit expectations against which you will be held accountable.
+ - When the playing is over, one can sense that one’s youth has been spent playing a game, and now both the game and youth are gone.
+ - Trying to take money out of politics is like trying to take jumping out of basketball.
+ - How should we Democrats select the next presidential nominee? Smoke filled rooms? Brokered convention? National primary? Personally, I prefer jump shots from the top of the key.
+ - The only way to be true to our American tradition is to maintain absolute governmental neutrality regarding religious beliefs and practices.
+
+26 quotes

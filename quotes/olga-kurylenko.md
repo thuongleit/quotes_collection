@@ -1,0 +1,41 @@
+ - A Bond girl must be a strong and independent woman, but at the same time charming and sensual. Those opposite qualities combined together make her interesting. She must be strong but at the same time feminine.
+ - I love boats. I can be on a boat for days.
+ - Music evokes so many feelings in us, memories, nostalgia, things that are connected to our past.
+ - I hate jealousy, I hate possessiveness. I’m nobody’s possession.
+ - I love it when a man cooks; it’s one of those points that makes me adore a guy. I think it’s so romantic and I feel cared for when a man cooks.
+ - Being single is only sad if you have a problem with your own company. I’m content with mine.
+ - No matter how much you try to pretend and force yourself and maybe fight against love and try to forget or be oblivious to it, there’s no way to fight it. I think when it’s there, it’s there.
+ - I don’t see divorce as a failure. I see it as the end to a story. In a story, everything has an end and a beginning.
+ - When you live in a small town in the Ukraine, you definitely want to go to Paris.
+ - If a man can make me laugh and stimulate me intellectually, then I wouldn’t mind if he was 4 ft. 8 in. with a huge belly. The only thing that would put me off is bad breath – but even that can be fixed. A bad personality isn’t so easy to fix.
+ - To tell you the truth, I don’t really follow what men wear. Men’s fashion is much simpler than women’s. It doesn’t change as much.
+ - I’m a bit of a romantic. In theory!
+ - A lot of movies are made to make us dream.
+ - When you love someone, you should see beyond their image.
+ - We were born and we die. In between, I think we try to live as best we can.
+ - Every one of us, no matter how damaged or abnormal or shut down, we’re all looking for love. Every person needs love in this world, but our views on what love is vary enormously.
+ - I maybe missed money in my childhood, but I didn’t miss love, that’s for sure. My dad wasn’t there, but I can tell you not even once did I think I was missing something.
+ - Why marry? If you’re not married, you just leave each other and it’s cool. Who needs the paper? To me it means nothing.
+ - I’ve seen guys sit the whole day doing nothing, and I hate it when people are unproductive. I don’t like a guy who sits on the couch all day.
+ - Eventually there are going to be chips in brains. Imagine if you could just buy knowledge and download it into your head instead of having to learn it. Like in ‘The Matrix.’ Imagine all the years saved!
+ - To be a Bond girl you need courage, charm, determination and feistiness.
+ - In television, there’s no time. You can’t walk around and get into the mood. Nobody is going to wait for you. They’re like, “Let’s go!,” and I’m like, “Wait, I haven’t gotten in the mood!”
+ - I don’t like the mentality that comes with rich Russian men. Because they have money, they think they can buy a woman – and they do.
+ - Having people I love around me – friends and family – is great, but I don’t necessarily need a relationship.
+ - What I love about sci-fi is that every generation’s films are based on what we know at that point in time. We make movies about the future, but it’s always based on what we have. Then, as science grows and we discover new things, so do our ideas.
+ - I like men who paint or write or do something creative.
+ - I believe in miracles. At the age of 13, I was on holiday in Moscow with my mother. It was the only trip I took in my whole childhood. We stepped off a metro train and were approached by a talent scout who told me that she wanted to sign me to her modeling agency.
+ - I bring spiritual books with me while travelling. I like books about thoughts and how you see the world.
+ - With modelling, you go somewhere for 24 hours and you don’t even see the city, you don’t talk to people or see the culture.
+ - I don’t like a guy who sits on the couch all day.
+ - I did not have a father. It was my mom who chose to be alone. She felt that she would be better off by herself with me after I was born.
+ - In Paris, everybody is in black! But you know, in Ukraine everyone wears bright colours.
+ - When I was a kid, we never had a videogame in my house. But my cousin did, and each time I went to her house I was able to play ‘Tetris’ and ‘Mario.’ Those were the only two games I played as a child.
+ - I’d love to work with David Lynch. I’m such a big fan. He’s a genius.
+ - I just went to an acting agency one day and just said, ‘I would like to act. Would you take me?’ And they took me.
+ - If I hadn’t been a model, I couldn’t have become a movie actress.
+ - I know how addictive videogames are – I have friends who cant get up off the couch because theyre so hooked. They provide these different virtual worlds that you can live in.
+ - As an actor, you don’t want to play a one-dimensional character.
+ - With modelling, you provide an image that is fake; with acting you have to provide an image that’s real.
+
+39 quotes

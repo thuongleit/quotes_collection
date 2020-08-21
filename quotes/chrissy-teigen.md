@@ -1,0 +1,40 @@
+ - I regret things all the time. I’ve never regretted not saying something. I’ve only regretted saying something.
+ - One day you’re gonna ask that to the wrong girl who is really struggling and it’s gonna be hurtful to them. And I hate it.
+ - I would not like to try any high stress job. Honestly, I wouldn’t like something like a PR job. I can’t diffuse situations.
+ - I’m very neurotic about shaving. I shave first thing in the morning before a shoot, and if I have dinner that night, I have to shave again.
+ - I’m very open about the fact that I’m a big fan of day drinking. I also love cooking. I cook all day, and I have to have something in my hand while I’m doing that.
+ - Dieting is becoming easier and easier for me because I’m finding out things that I love.
+ - I will buy six pieces or so a day and just snack on them. Sometimes I wrap them up in my mini seaweed sheets.
+ - St. Tropez has a face glow that is amazing – you can put it on without makeup, and your skin just glows.
+ - I love dress shopping, and I love talking about the wedding food. That’s what makes me happy. If you tell me to do a guest list, I cry. I hate it.
+ - Bachelor parties are for the married guys.
+ - I’m not an inspirational quote kind of person.
+ - Men are very tough, very critical of me. I think they expect you to basically just be a picture. They don’t want to hear you speak.
+ - I listen to all sorts of things. I get kind of embarrassed with my iPod, because I am a top-40 type of girl; I am not the kind of person to introduce people to new music.
+ - I want my daughter to be able to go to school and see the diversity of things that her classmates are eating and appreciate that, too. So I’m really excited for her to just kind of sit in and watch me cook and be really hands on and just enjoy cooking.
+ - Volume in your hair is sexy, and it doesn’t necessarily have to be that Brigitte Bardot kind of volume – it’s just that nice texture up top that gives it some life and body to it.
+ - I love eating sushi and eating raw and clean – no pasta and bread. Low carbs is what works for me.
+ - Some people, I think, think that because I don’t take it as seriously as a lot of the girls do, that I frown upon modeling or think it’s stupid. I don’t at all. This is my life. I would be nothing without this. But I really don’t take it seriously.
+ - When we do ‘Sports Illustrated,’ it starts the night before. You do a St. Tropez tan that night, then baby oil gel, then body color.
+ - I wasn’t a model that loved food. I was someone that loved food that started modeling.
+ - I honestly just love Greek yogurt and honey, and berries, and some KIND granola or something because that’s always something that I’m down to eat. But everything else, like anything savory just has to be ordered really last minute because I never know.
+ - I’m not good at taking pictures. I can’t give a good face. I crack up.
+ - I really do love to do things that are nice and simple!
+ - My tolerance for tears is very little when you’re beautiful and crying over nothing.
+ - I would love four children because I have a very small family, so I want those big Thanksgiving dinners.
+ - I shaved away my teeth and made them into little pencil points for nice teeth, that’s kind of weird if you think about it. I was a notorious teeth-grinder, so all my front teeth became a couple millimeters shorter.
+ - I’m very moody when it comes to food. Even before pregnancy I would just get very specific with things that I wanted.
+ - I think, like, Twitter is somewhat difficult sometimes, and it can be kind of negative.
+ - I’m much nicer in person than on Twitter.
+ - I drink a ton of water. And I never go to bed too full.
+ - I always get to eat what I want because if I don’t, I go insane.
+ - That’s one thing I get neurotic about: I need my soup to be crazy hot.
+ - I don’t like the grilled onions for some reason. I like regular, crispy, stinky onions.
+ - My shoots are very much about skin, so I’m an exfoliating and moisturizing nut. I fly so much, so I take my makeup off as soon as I get on the airplane. I look at my watch every half hour and moisturize.
+ - Where is the coffee emoji where is the coffee emoji aaaah yes in the bell section of course.
+ - A lot of people are always striving for bigger and better. People are always wondering if the grass is greener and then they’ll? start hearing things or meeting other people.
+ - There is so much pressure on me to surfboard now.
+ - I am paid a good amount of money to not blink for 12 hours. It’s fun, but I don’t take it very seriously.
+ - So many models have cool boyfriends.
+
+38 quotes

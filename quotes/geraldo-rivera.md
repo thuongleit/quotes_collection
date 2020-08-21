@@ -1,0 +1,48 @@
+ - I think of myself as Special Forces, clearing the path for the infantry.
+ - The courage in journalism is sticking up for the unpopular, not the popular.
+ - I must be doing something right. I’ve been around for a long time.
+ - Never take a job where winter winds can blow up your pants.
+ - Mother Nature may be forgiving this year, or next year, but eventually she’s going to come around and whack you. You’ve got to be prepared.
+ - To see those babies with no food for three of four days, old people sitting in the hot sun, when you see these poor people, you cannot help but being compassionate or affected.
+ - Latinos are just like everybody else. There are conservatives. There are moderates. There are liberals.
+ - I speak Spanish to my children and they speak it better than me.
+ - Reject racial or religious hate. Embrace moderate Islam.
+ - When a Spanish man cries it’s not a sign of weakness.
+ - I am urging the parents of black and Latino youngsters particularly to not let their children go out wearing hoodies.
+ - I’m old, but I’m still cute and strong. And very butch.
+ - Saturday Night Live is hitting me on a regular basis again. This is my fourth decade that I’ve been lampooned on Saturday Night Live.
+ - I’d like to give divorce a good name.
+ - It’s a great pleasure having survived six generations of TV critics.
+ - If you think is was an accident, applaud.
+ - The killer bees have gone, like rats deserting the Titanic.
+ - Rich people who own mansions on the beach shouldn’t get federal subsidies. If you want to stay there, take the risk.
+ - That is entirely fitting I’m sure, but I personally can’t get over the memory of 2005. When Michael Jackson stood essentially alone and accused and convicted in the minds of many of the most perverse crime.
+ - I love cops. I think you have to walk in their shoes to understand, you know when they use violence, Michael Brown in Ferguson, a classic case.
+ - The elite media has been caught in so many lies because of false statements that its whole reputation has eroded, their circulation is down, and their profits are down.
+ - I’d work to make it hip again to spend time in our fabled and fabulous land. But with a Puerto Rican father and a Jewish mother, I would probably be better suited as mayor of New York.
+ - McKinney, Texas is the number one place to live in the country. It’s certainly the number place to live in Texas according to Forbes and all these other. Wonderfully integrated, it’s upscale.
+ - I’m tired of getting made fun of.
+ - Your performance gets you promoted. It doesn’t matter if you’re brown, back or white.
+ - I am enduring. You can disagree with me.
+ - Extol Jewish virtue, modern Zionism and the Israeli Defense Forces.
+ - This is the year of Katrina and Iraq. How the war ends is more important than how it began. However you feel about the war, you have to be compassionate and loving towards our troops.
+ - The Jewish people, for their tiny numbers, have done superbly. They don’t need me. They have Einstein. They have everybody – Maury Povich.
+ - There is no doubt in my view that Donald Trump will be the Republican nominee.
+ - There’s no way New Orleans will ever be the city it was. I think it will have half the population. They may create a sort of Disneyland at the French Quarter for tourists. The rest I don’t know.
+ - Perhaps areas of Israel where current large Palestinian populations and demographic realities exist could be exchanged for Israeli expansion into the West Bank to include most of East Jerusalem.
+ - I’m in my 10th generation of TV critic now.
+ - There are plenty of towns in America where the 4-year-old has shot his 2-year-old sister by using daddy’s gun.
+ - I like Chris Christie also. I like him a lot as a person. He didn’t do anything to help me when I thinking of running for senate in New Jersey. But I give him a little slack.
+ - The biggest stories in 2005 were the national disasters.
+ - Being a president is being a CEO, essentially.
+ - I think that the, Ted Cruz is not even a natural-born citizen, argument will resonate for at least the next few weeks.
+ - One thing about these storms, we know how disruptive things can be when we depend on the system to keep working. What would happen if the terrorists do it? Knock down the power, destroy bridges, cut the water supply?
+ - Give Hamas 90 days to pick a lane, then react.
+ - I think the hoodie is as much responsible for Trayvon Martin’s death as George Zimmerman was.
+ - I’ve made a connection with the television audience by being a proud Latino man. I am passionate for what I do, courageous in the face of peril, honest and straightforward.
+ - If I’ve done anything, I’ve brought passion to television.
+ - Jackson and I spent the day together, just me and him and his children. Little underlings came and went. The PR person came and went. It was just Michael and me and the kids. And it was very interesting.
+ - I think the Jews need me right now.
+ - With years of experience doing whatever it takes to get to the bottom of each story, I am looking forward to covering the stories in the human dimension and impart the passion and visceral reactions the audience seeks.
+
+46 quotes

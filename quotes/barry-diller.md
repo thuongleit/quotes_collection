@@ -1,0 +1,33 @@
+ - Hollywood is a community that’s so inbred, it’s a wonder the children have any teeth.
+ - Put one dumb foot in front of the other and course-correct as you go.
+ - I still believe in synergy, but I call it natural law.
+ - We’re in a world now where it’s not enough to be smart. You have to be curious.
+ - What I’ve learned over the years is that focus and singular purpose is the best approach for businesses.
+ - I’m never absolutely sure of anything, and I don’t want to be. You’re either right and you’ll pull through, or you’re not. We’re never going to be right about everything, and we’ve certainly been wrong.
+ - All forms of commerce are adversarial.
+ - The only way anyone’s going to succeed is to build the product.
+ - Facebook’s the real deal. Nobody can buy Facebook now. Everybody has taken an angle at it. But Facebook may be the place that organizes everybody’s personal information. It’s got a very good chance of being that.
+ - Now along comes the potential creative destruction brought by a different distribution methodology, the Internet.
+ - This is a world in which reasons are made up because reality is too painful.
+ - You really want to get a headache? Try to understand Internet advertising.
+ - The American public tunes in every night hoping to see two people screwing. Obviously, we can’t give them that but let’s always keep it in mind.
+ - I’ve not conducted my life in the service of smallness.
+ - Well, the Internet is this miracle. It is an absolutely extraordinary idea that you can press a send button, and you are publishing to the world.
+ - My opinion, young people go to the Internet. To the Internet distribution system right now, you put it up there and it’s accessed by the world.
+ - I don’t want to set the world up for surprises.
+ - If you have too many epiphanies, you’re on some kind of drug.
+ - I like businesses in transition, first of all. If ever there were a business in transition, it is publishing.
+ - The world is changing. Networks without a specific branding strategy will be killed. I envision a world of highly niched services and tightly run companies without room for all the overhead the established networks carry.
+ - Ticketmaster does not set prices. Live Nation does not set ticket prices. Artists set ticket prices.
+ - We want to be able to sell you anything, anywhere, any time you want it.
+ - We need an unambiguous rule – a law – that nobody will step between the publisher and the consumer, full stop.
+ - I’ve always said AOL is great opportunity for somebody.
+ - People have paid for content. They always have.
+ - No one can solve an issue where there is no economic model yet.
+ - Since I was in my early twenties, at ABC, I was always only interested in things that were not already being done.
+ - I absolutely believe the Internet is passing from its free days into a paid system. Inevitably, I promise you, it will be paid.
+ - The ability for consumers to receive broadcast over the air signal is their right.
+ - The entertainment business hasn’t had a new idea in years.
+ - I never thought I was a very good manager.
+
+31 quotes

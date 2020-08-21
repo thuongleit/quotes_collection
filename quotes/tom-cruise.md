@@ -1,0 +1,92 @@
+ - No dream is ever just a dream.
+ - In this life, it’s not what you hope for, it’s not what you deserve – it’s what you take!
+ - Perception and reality are two different things.
+ - There is Life in every breath...
+ - Nothing ends nicely, that’s why it ends.
+ - I’m passionate about learning. I’m passionate about life.
+ - Even in my dreams, I’m an idiot who knows he’s about to wake up to reality.
+ - When you have to cope with a lot of problems, you’re either going to sink or you’re going to swim.
+ - I’m an all-or-nothing kind of person, and when I become interested in something, I give it my all.
+ - I’m a good listener. I think it’s the one characteristic that’s most important. I’ve always been that way. Not that I take all the advice, but you’ve got to listen to it and have the courage to make your own decision. And just go for it.
+ - I look at the Samurai because they were the artists of their time. What I think struck me when I read Bushido is compassion. ‘If there’s no one there to help, go out and find someone to help.’ That hit me, because I try to lead my life like that.
+ - The important thing is to be relaxed in your work. Same in life. Don’t make everything too intense. Then you can let everything go and not “act”.
+ - Do I make mistakes? Yeah.
+ - I had to train myself to focus my attention. I became very visual and learned how to create mental images in order to comprehend what I read.
+ - There is no such thing as a chemical imbalance.
+ - I disagree with people who think you learn more from getting beat up than you do from winning.
+ - Talk is over-rated as a means of settling disputes.
+ - I don’t pretend to be the character I AM the character.
+ - On film Vanilla Sky: You’re going to get the full experience of what love is.
+ - I love what I do. I take great pride in what I do. And I can’t do something halfway, three-quarters, nine-tenths. If I’m going to do something, I go all the way.
+ - I always look for a challenge and something that’s different.
+ - They smell good. They look pretty. I love women. I do.
+ - I don’t hide from cameras or anything. It doesn’t bother me. I don’t seek our press for the women I’m dating, but if it finds me, it finds me.
+ - When you become successful in any type of life, there are people who are not contributing to the motion.
+ - I have cooked turkeys in my day but when Mom’s around I let her do it.
+ - My childhood was extremely lonely. I was dyslexic and lots of kids make fun of me. That experience made me tough inside, because you learn to quietly accept ridicule.
+ - Everybody dies, Sally. The thing is to die well.
+ - I want a world without war, a world without insanity. I want to see people do well. I don’t even think it’s as much as what I want for myself. It’s more what I want for the people around me. That’s what I want.
+ - I love adventure movies, I just love action adventure films. It’s pure cinema and you go in and you’re lost to it. To me, it’s that challenge – I want to give an audience that ride, that entertainment.
+ - Yes, of course. Are you really so arrogant as to believe we are alone in this universe? Millions of stars, and we’re supposed to be the only living creatures? No, there are many things out there, we just don’t know.
+ - I believe in life. I know that life comes in at your heart and it doesn’t matter if you’re an actor, a filmmaker or a gentleman on the street, it comes at you. What Scientology gives me is the tools to deal with that, to better enjoy my life and to be able to contribute more.
+ - I demand a lot of myself. I want to learn. I can’t sit back. I like a challenge, so I create a lot of challenges for myself.
+ - I’m usually nervous to meet people that I admire because what if they’re not cool or something?
+ - If someone doesn’t want to be a criminal anymore, I can give them tools that can better their life. You have no idea how many people want to know what Scientology is.
+ - I don’t care what someone believes. I don’t care what nationality they are. But if someone wants to get off drugs, I can help them. If someone wants to learn how to read, I can help them. If someone doesn’t want to be a criminal anymore, I can give them tools that can better their life.
+ - I don’t care if you print something nasty about me. If it’s true, fine. I don’t care. But just make sure it’s the truth.
+ - I feel lonely at times, but I don’t want to get into a relationship with someone if it is not right. I’m not the type of person who just does things to do them.
+ - I love kids. I was a kid myself, once.
+ - I just want to help people. I’m a helper. For instance, I myself have helped hundreds of people get off drugs. In Scientology, we have the only successful drug rehabilitation program in the world. It’s called Narconon.
+ - Where do I get my seriousness? You can’t help but grow up fast when your parents get divorced. You see your mother go to get food stamps and she’s making fifty dollars too much to get them, with four kids to support.
+ - I’ll never forget the moment I became a dad. It’s hard to describe-that level of responsibility, the desire to give such joy, the clarity: Nothing is more important than this.
+ - If I don’t talk about my religion, if I say I’m not discussing it or different humanitarian things I’m working on, they’re like, ‘He’s avoiding it.’ If I do talk about it, it becomes, ‘Oh, he’s proselytizing.’
+ - My name is Joel Goodson. I deal in human fulfillment. I grossed over eight thousand dollars in one night.
+ - I think if technology is used in a way that is not responsible, that is a bad thing. I think technology and where it is going inevitable, and there’s great benefits that can help an individual in society at large.
+ - I’ve had a very interesting life. There are ways of handling the complexities. I’m willing to take on the responsibilities as a father, as a producer, as an actor; and I enjoy that. I’ve always been changing and evolving and growing. There’s no pinnacle of power where you can sit back and relax.
+ - I’m not greedy. I just want my half.
+ - Awards are wonderful. I’ve been nominated many times and I’ve won many awards. But my journey is not towards that. If it happens it will be a blast. If it doesn’t, it’s still been a blast.
+ - I didn’t become an actor to have power, but it just happens that I have it and so I have a lot of opportunities.
+ - You know what? I’m sure drug dealers on the street, in some way, they are making money. That’s what I equate it to. Here is the thing: you have to understand, with psychiatry, there is no science behind it. And to pretend that there is a science behind it is criminal.
+ - I’ve learned to relax more. Everybody feels pressure in what they do, maybe mine is just a little different because there doesn’t seem to be enough hours in the day to accomplish what I want to.
+ - When I’m promoting a film, I’m not going to get caught up in anything else, and that includes all my personal things.
+ - I’ve never made a film that I didn’t believe in, you know? However the picture turns out, I’ve always given everything to it. That’s kind of how I approach life. I can’t help it. There’s no part-way with me on anything in any area of my life.
+ - The exciting part of acting, I don’t know how else to explain it, are those moments when you surprise yourself.
+ - I’ve always thought of the audience. I just want to entertain the audience. That’s what it’s about: what’s good for the movie, what’s best for the movie, what’s best for the audience.
+ - When you talk about emotional, chemical imbalances in people, there is no science behind that.
+ - Stanley Kubrick was brilliant at getting under the audience’s skin. He was very interested in the idea of, ‘How can I tell this with just a camera?’
+ - Every time I make a “Mission” movie or other films, people kind of look at me and go, “Well, now what? What’s next?” I think there’s always going to be another mountain. I think there’s something always in store.
+ - Here’s how I’ve lived my life: I’ve never been late to a set. I make films I believe in. I feel privileged to be able to do what I love.
+ - When I work, I work very hard. So I look to work with people who have that level of dedication. And I depend on that from everyone. From the director to my crews that I work with.
+ - I don’t care who you are, life has challenges.
+ - Stanley Kubrick was very selective when he went into a close-up. Every director has his taste in a performance, but Stanley would explore a scene to find what was most interesting for him.
+ - I’m someone who doesn’t believe in making my problems other people’s problems.
+ - I’m always around my mother and sisters. I always wanted to be a father, a husband.
+ - Every single time I start to do a picture, without fail, I feel as if I don’t know what I’m doing.
+ - As a young actor, people were trying to define who I was before I really knew that for myself. But I still remember thinking, “This is what I love doing, and I hope I’m going to be able to do it forever.”
+ - Individuals have to decide what is true and real for them.
+ - Emotions kick up. You try not to kick things up, but you go through things you can’t help.
+ - It seems to me that if there were any logic to our language, trust would be a four letter word.
+ - As an actor – like an artist – you have to ask, “Why do I choose a certain moment to play something a certain way?” It’s organic to who we are.
+ - I have respect for what other people believe. What I believe in my own life is that it’s a search for how I can do things better, whether it’s being a better man or a better father or finding ways for myself to improve.
+ - I used to go to Maple Leafs games all the time when Nic shot To Die For here in Toronto. This is a great city. I love it here.
+ - I’ve gotten very good at scheduling my life, scheduling the scene and preparing myself for knowing, saving the energy, consuming the energy, knowing when to go for it and having the available reserves to be able to do that. You have to think about that, because it’s endurance.
+ - I would live with all of my sisters if I could. We’ve always been very close, my sisters and me.
+ - Seriously, I would go in a second. I’d be the first actor in space and I’d love to do it.
+ - Whether it’s making a film or raising my children, personally I’m striving to do the right things and to learn.
+ - I’ve always had the same values. Family for me has always been important. When I shoot, everybody comes.
+ - But my friends are happy for me. The people who know me are happy. My mom is happy. My family is happy.
+ - When I first started out all the attention could be a bit unnerving, especially when people stared. Now I find the best thing is to just relax. Being recognized is just something you have to get used to.
+ - Today, people can say anything they want. Suddenly it gets in the rumor mill and then it evolves and then somehow it becomes fact and you say, What is this? You know, why don’t you ask me?
+ - I like to work with people that I like hanging out with, that I admire, that are really smart and talented, and we can problem solve together.
+ - What I find sometimes that is tricky is if actors are using too much of their own life in a picture, in a scene, they get locked into a particular way to play the scene, and it lacks an immediacy.
+ - But I think also you look at Scientology it is the fastest growing religion. It’s helped so many people.
+ - Have you ever gotten the feeling that you aren’t completely embarassed yet, but you glimpse tomorrow’s embarrassment?
+ - It’s well known I’m a Scientologist, and that has helped me to find that inner peace in my life and it’s something that has given me great stability and tools that I use.
+ - I’ve spent many birthdays on a movie set, all great days.
+ - Saddam has committed many crimes against humanity and against his own people.
+ - The thing about film-making is I give it everything, that’s why I work so hard. I always tell young actors to take charge. It’s not that hard. Sign your own cheques, be responsible.
+ - I’ve never done work for money, ever. If your choices are based on grosses and the film doesn’t do well, what does that mean? It leaves you with nothing.
+ - Making a movie is like a chess game. It’s about constantly changing patterns, adapting to new things. It’s not just black and white, as you know.
+ - If you have kids, it is the most important thing to create good times.
+
+90 quotes

@@ -1,0 +1,25 @@
+ - Multitasking is a part of my everyday life.
+ - My first priority is my children. If at any moment I put aside something that I want to do to be a better parent than that is more than okay for me.
+ - I look at you looking at me, Now I know why the best things are free, How you’ve changed my world You’ll never know, I’m different now, You’ve helped me grow.
+ - You can’t take my joy, because you didn’t give it to me.
+ - If you think you are powerless, then you are.
+ - I don’t know why I love cherries and I love pickles. I eat about two or three Claussen pickles a day. Those are just things I snack on.
+ - I find the positive in the negative all the time. Any time you give something power, it wins, and it can continuously happen, so I just let negative people know they have no place in my life. They have no place around my children.
+ - Do you know how painful it is to tell someone you love him and not hear him say it back?
+ - The best part of being a mom to me is the unconditional love. I have never felt a love as pure, a love that’s as rewarding.
+ - If God wanted us to ask questions, he would have made us men.
+ - My husband is my part of my greatest joys, so it doesn’t feel like work or like I’m balancing anything. My husband and my kids absolutely come first, so work is just something where I figure out where it will fit.
+ - God is not a luxury you can’t afford; He’s a necessity you truly cannot live without!
+ - Who? God. What? He loves you. Where? Everywhere. When? Always, forever, without ceasing. How? Totally, completely. Why? Because you are His child!
+ - The thought of writing was always pleasant, but the process was painful.
+ - In the only way that pain can be truly remembered, through a new pain.
+ - I dedicated almost 12 years to the music industry before having children.
+ - I don’t know which is more nutty. All this stuff I do outside of work, or the stuff I do all week.
+ - My image is me. I talk for myself. I didn’t become this person others wanted me to be.
+ - Every day online, people, especially young people who are not developmentally equipped to handle this, are so abused and humiliated that they can’t imagine living to the next day, and some tragically don’t. And there’s nothing virtual about that.
+ - I’m a traditional wife in every sense.
+ - I have got five minutes, some whip-its, and the key to the executive bathroom.
+ - I’ve been more conscious of my salt intake, sugar intake, making sure I’m not eating as many processed foods.
+ - You know, sometimes you have to remember the bad things so that you can learn from them.
+
+23 quotes

@@ -1,0 +1,38 @@
+ - The press was to serve the governed, not the governors.
+ - The Founding Fathers gave the free press the protection it must have to bare the secrets of government and inform the people.
+ - There can be no equal justice where the kind of trial a man gets depends on the amount of money he has.
+ - Loyalty must arise spontaneously from the hearts of people who love their country and respect their government.
+ - Words uttered under coercion are proof of loyalty to nothing but self-interest. Love of country must spring from willing hearts and free minds.
+ - The First Amendment provides the only kind of security system that can preserve a free government – one that leaves the way wide open for people to favor, discuss, advocate, or incite causes and doctrines however obnoxious and antagonistic such views may be to the rest of us.
+ - Only a free and unrestrained press can effectively expose deception in government.
+ - In my view, far from deserving condemnation for their courageous reporting, the New York Times, the Washington Post and other newspapers should be commended for serving the purpose that the Founding Fathers saw so clearly.
+ - The very reason for the First Amendment is to make the people of this country free to think, speak, write and worship as they wish, not as the Government commands.
+ - Criticism of government finds sanctuary in several portions of the 1st Amendment. It is part of the right of free speech. It embraces freedom of the press.
+ - I was brought up to believe that Scotch whisky would need a tax preference to survive in competition with Kentucky bourbon.
+ - Freedom to speak and write about public questions is as important to the life of our government as is the heart to the human body. In fact, this privilege is the heart of our government. If that heart be weakened, the result is debilitation; if it be stilled, the result is death.
+ - We believe trial judges confronted with disruptive, contumacious, stubbornly defiant defendants must be given sufficient discretion to meet the circumstances in each case.
+ - It is my belief that there are “absolutes” in our Bill of Rights, and that they were put there on purpose by men who knew what words meant and meant their prohibitions to be “absolutes.”
+ - A union of government and religion tends to destroy government and degrade religion.
+ - The very first condition of lasting happiness is that a life should be full of purpose, aiming at something outside self.
+ - The flagrant disregard in the courtroom of elementary standards of proper conduct should not and cannot be tolerated.
+ - I am for the First Amendment from the first word to the last. I believe it means what it says.
+ - When the power, prestige, and financial support of government is placed behind a particular religious belief, the indirect coercive pressure upon religious minorities to conform to the prevailing officially approved religion is plain.
+ - The Court stands against any winds that blow as havens of refuge for those who might otherwise suffer because they are helpless, weak, outnumbered, or because they are nonconforming victims of prejudice or public excitement.
+ - The United States has a system of taxation by confession.
+ - The Framers of the Constitution knew that free speech is the friend of change and revolution. But they also knew that it is always the deadliest enemy of tyranny.
+ - Freedom of speech means that you shall not do something to people either for the views they have, or the views they express, or the words they speak or write.
+ - Freedom to publish means freedom for all and not for some. Freedom to publish is guaranteed by the constitution but freedom to continue to prevent others from publishing is not.
+ - The lesson which wars and depressions have taught is that if we want peace, prosperity and happiness at home we must help to establish them abroad.
+ - No tax in any amount, large or small, can be levied to support any religious activities or institutions, whatever they may be called, or whatever form they may adopt to teach or practice religion.
+ - No higher duty, or more solemn responsibility, rests upon this Court than that of translating into living law and maintaining this constitutional shield deliberately planned and inscribed for the benefit of every human being subject to our Constitution-of whatever race, creed or persuasion.
+ - The interest of the people lies in being able to join organizations, advocate causes, and make political “mistakes” without being subjected to governmental penalties.
+ - Laws are made to protect the trusting as well as the suspicious.
+ - An unconditional right to say what one pleases about public affairs is what I consider to be the minimum guarantee of the First Amendment.
+ - That Amendment requires the state to be a neutral in its relations with groups of religious believers and nonbelievers; it does not require the state to be their adversary. State power is no more to be used so as to handicap religions than it is to favor them.
+ - It would degrade our country and our judicial system to permit our courts to be bullied, insulted and humiliated and the orderly progress thwarted and obstructed by defendants brought before them charged with crimes.
+ - Citizenship is no light trifle to be jeopardized any moment Congress decides to do so under the name of one of its general or implied grants of power.
+ - Among religions in this country which do not teach what would generally be considered a belief in the existence of God are Buddhism, Taoism, Ethical Culture, Secular Humanism and others.
+ - In revealing the workings of government that led to the Vietnam War, the newspapers nobly did precisely that which the Founders hoped and trusted they would do.
+ - No person can be punished for entertaining or professing religious beliefs or disbeliefs, for church attendance or nonattendance.
+
+36 quotes

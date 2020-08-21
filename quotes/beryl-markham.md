@@ -1,0 +1,35 @@
+ - After that, work and hope. But never hope more than you work.
+ - A life has to move or it stagnates. Even this life, I think. Every tomorrow ought not to resemble every yesterday.
+ - The way to find a needle in a haystack is to sit down.
+ - I learned what every dreaming child needs to know, that no horizon is so far you cannot get above it or beyond it.
+ - Success breeds confidence.
+ - That’s what makes death so hard – unsatisfied curiosity.
+ - I have learned that if you must leave a place that you have lived in and loved and where all your yesterdays are burried deep-leave it anyway except a slow way, leave it the fastest way you can.
+ - If a man has any greatness in him, it comes to light, not in one flamboyant hour, but in the ledger of his daily work.
+ - No human pursuit achieves dignity unless it can be called work, and when you can experience a physical loneliness for the tools of your trade, you see that the other things – the experiments, the irrelevant vocations, the vanities you used to hold – were false to you.
+ - There are as many Africas as there are books about Africa...
+ - In Africa people learn to serve each other. They live on credit balances of little favors that they give and may, one day, ask to have returned.
+ - No human pursuit achieves dignity until it can be called work.
+ - In the family of continents, Africa is the silent, the brooding sister, courted for centuries by knight-errant empires – rejecting them one by one and severally, because she is too sage and a little bored with the importunity of it all.
+ - Life had a different shape; it had new branches and some of the old branches were dead.
+ - Roots of the weed sucked first life from the genesis of earth and hold the essence of it still. Always the weed returns; the cultured plant retreats before it.
+ - A word grows to a thought – a thought to an idea – an idea to an act. The change is slow, and the Present is a sluggish traveler loafing in the path Tomorrow wants to take.
+ - Talk lives in a man’s head, but sometimes it is very lonely because in the heads of many men there is nothing to keep it company – and so talk goes out through the lips.
+ - A man can be riddled with malaria for years on end, with its chills and its fevers and its nightmares, but if one day he sees that the water from his kidneys is black, he knows he will not leave that place again, wherever he is, or wherever he hoped to be.
+ - Africa is less a wilderness than a repository of primary and fundamental values, and less a barbaric land than an unfamiliar voice.
+ - But, for a little while, this is the place for us – a good place too – a place of good omen, a place of beginning things – and of ending things I never thought would end.
+ - Passed years seem safe ones, vanquished ones, while the future lives in a cloud, formidable from a distance. The cloud clears as you enter it. I have learned this, but like everyone, I learned it late.
+ - One day the stars will be as familiar to each man as the landmarks, the curves, and the hills on the road that leads to his door, and one day that will be an airborne life.
+ - I have a trunk containing continents.
+ - If your hunch proves a good one, you were inspired; if it proves bad, you are guilty of yielding to thoughtless impulse.
+ - For all professional pilots there exists a kind of guild, without charter and without by-laws. it demands no requirements for inclusion save an understanding of the wind, the compass, the rudder, and fair fellowship.
+ - The world grows bigger as the light leaves it. There are no boundaries and no landmarks. The trees and the rocks and the anthills begin to disappear, one by one, whisked away under the magical cloak of evening.
+ - Silence is never so impenetrable as when the whisper of steel on paper strives to pierce it.
+ - You can live a lifetime and at the end of it, know more about other people than you know about yourself.
+ - There are all kinds of silences and each of them means a different thing.
+ - In view of this and other things, I demand forgiveness for being so obviously impressed with my own parents.
+ - What a child does not know and does not want to know of race and color and class, he learns soon enough as he grows to see each man flipped inexorably into some predestined groove like a penny or a sovereign in a banker’s rack.
+ - The abhorrence of loneliness is as natural as wanting to live at all.
+ - Who thinks it just to be judged by a single error?
+
+33 quotes

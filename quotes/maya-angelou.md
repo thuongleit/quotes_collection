@@ -1,0 +1,502 @@
+ - All great achievements require time.
+ - Nothing will work unless you do.
+ - People will forget what you said, people will forget what you did, but people will never forget how you made them feel.
+ - Success is liking yourself, liking what you do, and liking how you do it.
+ - Do the best you can until you know better. Then when you know better, do better.
+ - If you are always trying to be normal, you will never know how amazing you can be.
+ - Nothing can dim the light which shines from within.
+ - Talent is like electricity. We don't understand electricity. We use it.
+ - Never make someone a priority when all you are to them is an option.
+ - Live as though life was created for you.
+ - When someone shows you who they are believe them; the first time.
+ - Try to be a rainbow in someone’s cloud.
+ - You can’t use up creativity. The more you use, the more you have.
+ - There is no greater agony than bearing an untold story inside you.
+ - Ask for what you want and be prepared to get it.
+ - When you do nothing you feel overwhelmed and powerless. But when you get involved you feel the sense of hope and accomplishment that comes from knowing you are working to make things better.
+ - Success is loving life and daring to live it.
+ - You can only become truly accomplished at something you love. Don’t make money your goal. Instead pursue the things you love doing and then do them so well that people can’t take their eyes off of you.
+ - The desire to reach for the stars is ambitious. The desire to reach hearts is wise.
+ - If you don’t like something, change it. If you can’t change it, change your attitude.
+ - A friend may be waiting behind a stranger's face.
+ - My mission in life is not merely to survive, but to thrive; and to do so with some passion, some compassion, some humor, and some style.
+ - As soon as healing takes place, go out and heal somebody else.
+ - Still I’ll rise.
+ - I've learned that even when I have pains, I don't have to be one.
+ - You may encounter many defeats, but you must not be defeated. In fact, it may be necessary to encounter the defeats, so you can know who you are, what you can rise from, how you can still come out of it.
+ - Making a living is not the same thing as making a life.
+ - When you know better you do better.
+ - First best is falling in love. Second best is being in love. Least best is falling out of love. But any of it is better than never having been in love.
+ - But still, like air, I’ll rise.
+ - There is a very fine line between loving life and being greedy for it.
+ - If you find it in your heart to care for somebody else, you will have succeeded.
+ - You may not control all the events that happen to you, but you can decide not to be reduced by them.
+ - I can be changed by what happens to me, but I refuse to be reduced by it.
+ - You may shoot me with your words, you may cut me with your eyes, you may kill me with your hatefulness, but still, like air, I’ll rise!
+ - You alone are enough. You have nothing to prove to anybody.
+ - At the end of the day people won’t remember what you said or did, they will remember how you made them feel.
+ - Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness.
+ - If you’re going to live, leave a legacy. Make a mark on the world that can’t be erased.
+ - I come as one, but stand as 10,000.
+ - Be present in all things and thankful for all things.
+ - Hate, it has caused a lot of problems in the world, but has not solved one yet.
+ - I am a Woman Phenomenally. Phenomenal Woman, that’s me.
+ - When you learn, teach, when you get, give.
+ - I did then what I knew how to do. Now that I know better, I do better.
+ - One isn’t necessarily born with courage, but one is born with potential. Without courage, we cannot practice any other virtue with consistency. We can’t be kind, true, merciful, generous, or honest.
+ - We delight in the beauty of the butterfly, but rarely admit the changes it has gone through to achieve that beauty.
+ - No matter what happens, or how bad it seems today, life does go on, and it will be better tomorrow.
+ - You only are free when you realize you belong no place – you belong every place – no place at all. The price is high. The reward is great.
+ - As a nurse, we have the opportunity to heal the heart, mind, soul and body of our patients, their families and ourselves. They may not remember your name but they will never forget the way you made them feel.
+ - History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again.
+ - Every journey begins with a single step.
+ - Surviving is important. Thriving is elegant.
+ - Love recognizes no barriers. It jumps hurdles, leaps fences, penetrates walls to arrive at its destination full of hope.
+ - Hoping for the best, prepared for the worst, and unsurprised by anything in between.
+ - Life is going to give you just what you put in it. Put your whole heart in everything you do, and pray, then you can wait.
+ - Everything in the universe has a rhythm, everything dances.
+ - Courage is the most important of all the virtues because without courage, you can’t practice any other virtue consistently.
+ - It is time for parents to teach young people early on that in diversity there is beauty and there is strength.
+ - A woman’s heart should be so hidden in God that a man has to seek Him just to find her.
+ - Love life. Engage in it. Give it all you’ve got. Love it with a passion because life truly does give back, many times over, what you put into it.
+ - If I am not good to myself, how can I expect anyone else to be good to me?
+ - Most people don’t grow up. Most people age. They find parking spaces, honor their credit cards, get married, have children, and call that maturity. What that is, is aging.
+ - The ache for home lives in all of us. The safe place where we can go as we are and not be questioned.
+ - If you have only one smile in you give it to the people you love.
+ - You may write me down in history With your bitter, twisted lies. You may trod me in the very dirt, but still like dust, I’ll rise.
+ - I want to thank you, Lord, for life and all that’s in it. Thank you for the day and for the hour, and the minute.
+ - Bitterness is like cancer. It eats.
+ - In all the world, there is no heart for me like yours. In all the world, there is no love for you like mine.
+ - If you have only one smile in you, give it to the people you love. Don’t be surly at home, then go out in the street and start grinning ‘Good morning’ at total strangers.
+ - Let gratitude be the pillow upon which you kneel to say your nightly prayer. And let faith be the bridge you build to overcome evil and welcome good.
+ - I don’t trust anyone who doesn’t laugh.
+ - To those who are given much, much is expected.
+ - The need for change bulldozed a road down the center of my mind.
+ - You can’t really know where you are going until you know where you have been.
+ - I’ve learned that you shouldn’t go through life with a catcher’s mitt on both hands; you need to be able to throw something back.
+ - When we give cheerfully and accept gratefully, everyone is blessed.
+ - We all should know that diversity makes for a rich tapestry, and we must understand that all the threads of the tapestry are equal in value no matter what their color.
+ - While I know myself as a creation of God, I am also obligated to realize and remember that everyone else and everything else are also God’s creation.
+ - The problem I have with haters is that they see my glory, but they don’t know my story...
+ - I’ve learned that whenever I decide something with an open heart, I usually make the right decision.
+ - If one is lucky, a solitary fantasy can totally transform one million realities.
+ - Love is like a virus. It can happen to anybody at any time.
+ - Anything that works against you can also work for you once you understand the Principle of Reverse.
+ - My great hope is to laugh as much as I cry; to get my work done and try to love somebody and have the courage to accept the love in return.
+ - A woman who is convinced that she deserves to accept only the best challenges herself to give the best. Then she is living phenomenally.
+ - Stepping onto a brand-new path is difficult, but not more difficult than remaining in a situation, which is not nurturing to the whole woman.
+ - Don’t let the man bring you down.
+ - Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art.
+ - Some people cannot see a good thing when it is right here, right now. Others can sense a good thing coming when it is days, months, or miles away.
+ - Each person deserves a day away in which no problems are confronted, no solutions searched for.
+ - No one can take the place of a friend, no one.
+ - There is nothing so pitiful as a young cynic because he has gone from knowing nothing to believing nothing.
+ - Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.
+ - Poetry puts starch in your backbone so you can stand, so you can compose your life.
+ - Living well is an art that can be developed: a love of life and ability to take great pleasure from small offerings and assurance that the world owes you nothing and that every gift is exactly that, a gift.
+ - The main thing in one’s own private world is to try to laugh as much as you cry.
+ - We spend precious hours fearing the inevitable. It would be wise to use that time adoring our families, cherishing our friends and living our lives.
+ - Each of us, famous or infamous, is a role model for somebody, and if we aren’t, we should behave as though we are – cheerful, kind, loving, courteous. Because you can be sure someone is watching and taking deliberate and diligent notes.
+ - When someone shows you who they are, believe them the first time. People know themselves much better than you do. That’s why it’s important to stop expecting them to be something other than who they are.
+ - While one may encounter many defeats, one must not be defeated.
+ - There’s a world of difference between truth and facts. Facts can obscure truth.
+ - I believe that one can never leave home. I believe that one carries the shadows, the dreams, the fears and the dragons of home under one’s skin, at the extreme corners of one’s eyes and possibly in the gristle of the earlobe.
+ - It is this belief in a power larger than myself and other than myself which allows me to venture into the unknown and even the unknowable.
+ - Each time a woman stands up for herself, without knowing it possibly, without claiming it, she stands up for all women.
+ - This is a wonderful day, I have never seen this one before.
+ - I think a hero is any person really intent on making this a better place for all people.
+ - A Woman in harmony with her spirit is like a river flowing. She goes where she will without pretense and arrives at her destination prepared to be herself and only herself.
+ - Whining is not only graceless, but can be dangerous. It can alert a brute that a victim is in the neighborhood.
+ - We are only as blind as we want to be.
+ - Ritie, don’t worry ’cause you ain’t pretty. Plenty pretty women I seen digging ditches or worse. You smart. I swear to God, I rather you have a good mind than a cute behind.
+ - Women should be tough, tender, laugh as much as possible, and live long lives.
+ - Have enough courage to trust love one more time and always one more time.
+ - I believe most plain girls are virtuous because of the scarcity of opportunity to be otherwise.
+ - Freedom is never free.
+ - Open your eyes to the beauty around you, open your mind to the wonders of life, open your heart to those who love you, and always be true to yourself.
+ - We are more alike than unalike.
+ - I’ve got a magic charm That I keep up my sleeve, I can walk the ocean floor And never have to breathe.
+ - Hope and fear cannot occupy the same space. Invite one to stay.
+ - Stand up straight and realize who you are, that you tower over your circumstances. You are a child of God. Stand up straight.
+ - Just like moons and suns, With certainty of tides, Just like hopes springing high, Still I’ll rise.
+ - I am the dream and the hope of the slave.
+ - I would like to be known as an intelligent woman, a courageous woman, a loving woman, a woman who teaches by being.
+ - I always felt, if I can get to a library, I’ll be OK.
+ - You are the sum total of everything you’ve ever seen, heard, eaten, smelled, been told, forgot – it’s all there. Everything influences each of us, and because of that I try to make sure that my experiences are positive.
+ - Beneath the skin, beyond the differing features and into the true heart of being, fundamentally, we are more alike, my friend, than we are unalike.
+ - Love liberates; it doesn’t bind.
+ - Seek patience and passion in equal amounts. Patience alone will not build the temple. Passion alone will destroy its walls.
+ - Develop enough courage so that you can stand up for yourself and then stand up for somebody else.
+ - My wish for you is that you continue. Continue to be who and how you are, to astonish a mean world with your acts of kindness.
+ - You may encounter many defeats, but you must not be defeated. Please remember that your difficulties do not define you. They simply strengthen your ability to overcome.
+ - A wise woman wishes to be no one’s enemy; a wise woman refuses to be anyone’s victim.
+ - I have a son, who is my heart. A wonderful young man, daring and loving and strong and kind.
+ - I sustain myself with the love of family.
+ - You will face many defeats in your life, but never let yourself be defeated.
+ - When women take care of their health they become their own best friend.
+ - Strong women- precious jewels all- their humanness is evident in their accessibility. We are able to enter into the spirit of these women and rejoice in their warmth and courage.
+ - Life sometimes gives you a second chance.
+ - The horizon leans forward, offering you space to place new steps of change.
+ - At our best, we are all teachers.
+ - We can learn to see each other and see ourselves in each other and recognize that human beings are more alike than we are unalike.
+ - The real difficulty is to overcome how you think about yourself.
+ - I want to be a good human being. I’m doing my best, and I’m working at it.
+ - I’m a feminist. I’ve been a female for a long time now. It’d be stupid not to be on my own side.
+ - When we cast our bread upon the waters we can presume that someone downstream whose face we will never know will benefit from our action, as we who are downstream from another will profit from the grantor’s gift.
+ - Difficult is a far cry from impossible. The distance between these two lies hope. Hope and fear cannot occupy the same space at the same time. Invite one to stay.
+ - She comprehended the perversity of life, that in the struggle lies the joy.
+ - Listen to yourself and in that quietude you might hear the voice of God.
+ - Bringing the gifts that my ancestors gave, I am the dream and the hope of the slave. I rise. I rise. I rise.
+ - Let choice whisper in your ear and love murmur in your heart. Be ready. Here comes life.
+ - And when great souls die, after a period peace blooms, slowly and always irregularly. Spaces fill with a kind of soothing electric vibration. Our senses, restored, never to be the same, whisper to us. They existed. They existed. We can be. Be and be better. For they existed.
+ - My mother is so full of joy and life. I am her child. And that is better than being the child of anyone else in the world.
+ - You build your ‘COURAGE MUSCLE’ daily, by being courageous in little things. Just do right...
+ - Don’t bring negative to my door.
+ - A great soul serves everyone all the time. A great soul never dies. It brings us together again and again.
+ - The caged bird sings with a fearful trill, of things unknown, but longed for still, and his tune is heard on the distant hill, for the caged bird sings of freedom.
+ - If you must look back, do so forgivingly. If you will look forward, do so prayerfully. But the wisest course would be to be present in the present gratefully.
+ - You have to have courage to love somebody. Because you risk everything. Everything.
+ - People will never forget how you made them feel.
+ - Words mean more than what is set down on paper. It takes the human voice to infuse them with shades of deeper meaning.
+ - Thank you, always say thank you; it’s the greatest gift you can give someone; because thank you is what you say to God.
+ - When you know you are of worth, you don’t have to raise your voice, you don’t have to become rude, you don’t have to become vulgar; you just are. And you are like the sky is, as the air is, the same way water is wet. It doesn’t have to protest.
+ - It’s the fire in my eyes, And the flash of my teeth, The swing in my waist, And the joy in my feet. I’m a woman Phenomenally.
+ - We are all human; therefore, nothing human can be alien to us.
+ - God puts rainbows in the clouds so that each of us – in the dreariest and most dreaded moments – can see a possibility of hope.
+ - Courage allows the successful woman to fail – and to learn powerful lessons from the failure – so that in the end, she didn’t fail at all.
+ - Light and shadow are opposite sides of the same coin. We can illuminate our paths or darken our way. It is a matter of choice.
+ - When we find someone who is brave, fun, intelligent, and loving, we have to thank the universe.
+ - I know why the caged bird sings.
+ - A joyful spirit is evidence of a grateful heart.
+ - Nothing succeeds like success. Get a little success, and then just get a little more.
+ - You may not remember what a person said to you, you may not remember what a person did to you, but you will never forget how a person made you feel!
+ - I will look after you and I will look after anybody you say needs to be looked after, any way you say. I am here. I brought my whole self to you. I am your mother.
+ - I respect myself and insist upon it from everybody. And because I do it, I then respect everybody, too.
+ - I think we all have empathy. We may not have enough courage to display it.
+ - If I’m here, I’ll be trying to be a better human being, a better writer, a better friend and a better beloved.
+ - The most important thing is to DARE.
+ - Love is many things. It is varied. One thing love is not, is unsure.
+ - We need Joy as we need air. We need Love as we need water. We need each other as we need the earth we share.
+ - Everyone grows old but not everyone grows up.
+ - If we lose love and self respect for each other, this is how we finally die.
+ - Love liberates. Love – not sentimentality, not mush – but true love gives you enough courage that you can say to somebody, “Don’t do that, baby.” And the person will know you’re not preaching but teaching.
+ - Intelligence always had a pornographic influence on me.
+ - If it is true that a chain is only as strong as its weakest link, isn’t it also true a society is only as healthy as its sickest citizen and only as wealthy as its most deprived?
+ - All God’s children need traveling shoes.
+ - Having courage does not mean that we are unafraid. Having courage and showing courage mean we face our fears. We are able to say, ‘I have fallen, but I will get up.’
+ - Perhaps travel cannot prevent bigotry, but by demonstrating that all peoples cry, laugh, eat, worry, and die, it can introduce the idea that if we try and understand each other, we may even become friends.
+ - The thorn from the bush one has planted, nourished and pruned pricks more deeply and draws more blood.
+ - My hope is that we develop enough courage to develop courage. To try to have, try to learn to treat each other fairly, with generosity and kindness.
+ - If you have, give. If you learn, teach.
+ - My son is the best thing that ever happened to me. And through me – to a lot of people.
+ - At 50, I began to know who I was. It was like waking up to myself.
+ - Life is a gift, and i try to respond with grace and courtesy.
+ - We are not our brother’s keeper we are our brother and we are our sister. We must look past complexion and see community.
+ - We cannot change the past, but we can change our attitude toward it. Uproot guilt and plant forgiveness. Tear out arrogance and seed humility. Exchange love for hate – thereby, making the present comfortable and the future promising.
+ - Try to live your life in a way that you will not regret years of useless virtue and inertia and timidity.
+ - You forgive yourself for every failure because you are trying to do the right thing. God knows that and you know it. Nobody else may know it.
+ - The happy heart runs with the river, floats on the air, lifts to the music, soars with the eagle, hopes with the prayer.
+ - I work very hard, and I play very hard. I’m grateful for life. And I live it – I believe life loves the liver of it. I live it.
+ - We need much less than we think we need.
+ - Poetry is music written for the human voice.
+ - Lord keep Your arm around my shoulder and Your hand over my mouth.
+ - The area where we are the greatest is the area in which we inspire, encourage and connect with another human being.
+ - I believe that the most important single thing, beyond discipline and creativity is daring to dare.
+ - The more you know of your history, the more liberated you are.
+ - In order to win, we pay with energy and effort and discipline. If we lose, we pay in disappointment, discontent, and lack of fulfillment.
+ - I don’t trust any revolution where love is not allowed.
+ - When I look back, I am so impressed again with the life-giving power of literature. If I were a young person today, trying to gain a sense of myself in the world, I would do that again by reading, just as I did when I was young.
+ - Poetry helps my soul escape its encasement.
+ - If I could give you one thought, it would be to lift someone up. Lift a stranger up – lift her up. I would ask you, mother and father, brother and sister, lovers, mother and daughter, father and son, lift someone. The very idea of lifting someone up will lift you, as well.
+ - Forgive yourself – no one else will.
+ - How important it is for us to recognize and celebrate our heroes and she-roes!
+ - It’s true. I can do anything and do it well because God loves me. It still humbles me.
+ - The truth is, no one of us can be free until everybody is free.
+ - Spirit is an invisible force made visible in all life.
+ - If you are going down a road and don’t like what’s in front of you, and look behind you and don’t like what you see, get off the road. Create a new path!
+ - My work is to be honest. My work is to try to think clearly, then have the courage to make sure that what I say is the truth.
+ - If our children are to approve of themselves, they must see that we approve of ourselves.
+ - I have great respect for the past. If you don’t know where you’ve come from, you don’t know where you’re going. I have respect for the past, but I’m a person of the moment. I’m here, and I do my best to be completely centered at the place I’m at, then I go forward to the next place.
+ - Hope is born again in the faces of children.
+ - And I not only have the right to stand up for myself, but I have the responsibility. I can’t ask somebody else to stand up for me if I won’t stand up for myself. And once you stand up for yourself, you’d be surprised that people say, “Can I be of help?”
+ - Take a day to heal from the lies you’ve told yourself and the ones that have been told to you.
+ - Love heals. Heals and liberates. I use the word love, not meaning sentimentality, but a condition so strong that it may be that which holds the stars in their heavenly positions and that which causes the blood to flow orderly in our veins.
+ - I must undertake to love myself and to respect myself as though my very life depends upon self-love and self-respect.
+ - Only equals make friends, every other relationship is contrived and off balance.
+ - I am a woman phenomenally, phenomenal woman that is your grandmother, that is your mother, that is your sister, that is you and that is me.
+ - This is my life. it is my one time to be me. i want to experience every good thing.
+ - We all have that possibility, that potential and that promise of seeing beyond the seeming.
+ - I’ve learned that regardless of your relationship with your parents, you’ll miss them when they’re gone from your life.
+ - Being a woman is hard work.
+ - Happiness is a chance to talk to a friend, to hear good music, to have a good glass of wine. Happiness is a chance to be myself and to find people with whom I agree or who I don’t agree but I can learn something.
+ - It is sad but true that sometimes we need the tragedy to help us to see how human we are and how we are more alike than we are different.
+ - Dare to let your dreams reach beyond you.
+ - I learned a long time ago the wisest thing I can do is be on my own side, be an advocate for myself and others like me.
+ - Hope for the best, be prepared for the worse. Life is shocking, but you must never appear to be shocked. For no matter how bad it is it could be worse and no matter how good it is it could be better.
+ - You can never go home again, but the truth is you can never leave home, so it’s all right.
+ - If we are honest and fair, then we are known by that. If we are not, alas, we are known by that as well. What we want to do is do right, but you have to say it, you have to show it, and not stop.
+ - I’ve learned that every day you should reach out and touch someone. People love a warm hug, or just a friendly pat on the back.
+ - There’s racism and sexism and ageism and all sorts of idiocies. But bad news is not news. We’ve had bad news as a species for a long time. We’ve had slavery and human sacrifice and the holocaust and brutalities of such measure.
+ - I am not competing with anyone other than myself. I want to be excellent at whatever I do.
+ - My life has been long, and believing that life loves the liver of it, I have dared to try many things, sometimes trembling, but daring still.
+ - I’m grateful for being here, for being able to think, for being able to see, for being able to taste, for appreciating love – for knowing that it exists in a world so rife with vulgarity, with brutality and violence, and yet love exists. I’m grateful to know that it exists.
+ - Love is a condition so powerful; it may be that which pulls the stars in the firmament. It may be that which pushes and urges the blood in the veins. Courage: you have to have courage to love somebody because you risk everything-ever ything.
+ - You can never be great at anything unless you love it.
+ - I have found that among its other benefits, giving liberates the soul of the giver.
+ - Women should be tough, tender, laugh as much as possible, and live long lives. The struggle for equality continues unabated, and the woman warrior who is armed with wit and courage will be among the first to celebrate victory.
+ - Love liberates. It doesn’t just hold, that’s ego. Love liberates.
+ - Age is nothing; waking up is everything.
+ - I am a child of God. I always carry that with me.
+ - It’s amazing. I can do anything. And do it well. Any good thing, I can do it. That’s why I am who I am, yes, because God loves me and I’m amazed at it. I’m grateful for it.
+ - We must create a climate where people agree that human beings are more alike than unalike. The only way to do that is through education.
+ - If you’re for the right thing, you do it without thinking.
+ - Life loves to be taken by the lapel and told: ‘I’m with you kid. Let’s go.’
+ - I’m convinced of this: Good done anywhere is good done everywhere.
+ - It is a no-fail, incontrovertible reality: If you get, give. If you learn, teach. You can’t do anything with that except do it.
+ - Still, when it looked like the sun wasn’t going to shine anymore, God put a rainbow in the clouds.
+ - We may act sophisticated and worldly but I believe we feel safest when we go inside ourselves and find home, a place where we belong and maybe the only place we really do.
+ - I want all my senses engaged. Let me absorb the world’s variety and uniqueness.
+ - No one comes from the earth like grass. We come like trees. We all have roots.
+ - Nature has no mercy at all. Nature says, “I’m going to snow. If you have on a bikini and no snowshoes, that’s tough. I am going to snow anyway.”
+ - The real difficulty is to overcome how you think about yourself. If we don’t have that we never grow, we never learn, and sure as heck we should never teach.
+ - If I have a monument in this world, it is my son.
+ - My greatest blessing has been the birth of my son. My next greatest blessing has been my ability to turn people into children of mine.
+ - I encourage you to live with life. Be courageous, adventurous. Give us a tomorrow, more than we deserve.
+ - Sisterhood means if you happen to be in Burma and I happen to be in San Diego and I’m married to someone who is very jealous and you’re married to somebody who is very possessive, if you call me in the middle of the night, I have to come.
+ - We have it in us to be splendid.
+ - Each of us needs to withdraw from the cares which will not withdraw from us. We need hours of aimless wandering or spates of time sitting on park benches, observing the mysterious world of ants and the canopy of treetops.
+ - Every experience shapes your writing, being stuck in a car on a lonely bridge, or dancing at a prom, being the it girl on the beach, all of those things influence your life, they influence how you write, and the topics you choose to write about.
+ - Every person needs to take one day away. A day in which one consciously separates the past from the future.
+ - I think I know that I deserve better. And so I try for better. I’m never so put off that I would ever walk out of a place not having tried the best I could.
+ - When I forgive other people, I let them go, I free them from my ignorance. And as soon as I do, I feel lighter, brighter and better.
+ - I believe that every person is born with talent.
+ - I have heard it said that winter, too, will pass, that spring is a sign that summer is due at last. See, all we have to do is hang on.
+ - A leader sees greatness in other people. He nor she can be much of a leader if all she sees is herself.
+ - Make every effort to change things you do not like. If you cannot make a change, change the way you have been thinking. You might find a new solution.
+ - The quality of strength lined with tenderness is an unbeatable combination, as are intelligence and necessity when unblunted by formal education.
+ - A mother’s love liberates.
+ - Raising kids is like nailing Jell-O to a tree.
+ - Every day I awaken I am grateful. My intent is to be totally present in that day. And laugh as much as possible.
+ - No sun outlasts its sunset, but will rise again and bring the dawn.
+ - Alone, all alone Nobody, but nobody Can make it out here alone.
+ - Does my sexiness upset you? Does it come as a surprise That I dance like I’ve got diamonds At the meeting of my thighs?
+ - Let us live so we do not regret years of inertia and ignorance, so when we die we can say all of our energy was dedicated to the noble liberation of the human mind and spirit, beginning with my own.
+ - If we are bold, love strikes away the chains of fear from our souls.
+ - Life is a glorious banquet, a limitless and delicious buffet.
+ - It is only out of ignorance that people are cruel, because they really don’t think it will come back.
+ - My life has been one great big joke, A dance that’s walked, A song that’s spoke, I laugh so hard I almost choke, When I think about myself.
+ - Whether you are happy or whether you are sad, it is wise to remember you are really in process.
+ - Life loves the liver of it.
+ - My pride had been starched by a family who assumed unlimited authority in its own affairs.
+ - As long as you’re breathing, it’s never too late to do some good.
+ - Each of us has the power and responsibility to become a rainbow in the clouds.
+ - The woman who survives intact and happy must be at once tender and tough.
+ - Time itself is an individual gift. It is wise to cherish it carefully and give it away generously.
+ - Rainbows are people whose lives are bright, shining examples for others.
+ - The idea is to write it so that people hear it and it slides through the brain and goes straight to the heart.
+ - Elimination of illiteracy is as serious an issue to our history as the abolition of slavery.
+ - Give yourself time just to be with yourself.
+ - I am capable of what every other human is capable of. This is one of the great lessons of war and life .
+ - Its not where your dreams take you, its where you take your dreams.
+ - The human heart is so delicate and sensitive that it always needs some tangible encouragement to prevent it from faltering in its labour.
+ - Stormy or sunny days, glorious or lonely nights, I maintain an attitude of gratitude.
+ - Eating is so intimate. It’s very sensual. When you invite someone to sit at your table and you want to cook for them, you’re inviting a person into your life.
+ - My grandmother told me that every good thing I do helps some human being in the world. I believed her 50 years ago and still do.
+ - All knowledge is spendable currency, depending on the market.
+ - I will write on the pages of history what I want them to say. I will be myself. I will speak my own name.
+ - I love the song ‘I Hope You Dance’ by Lee Ann Womack. I was going to write that song, but someone beat me to it.
+ - It is important that we learn humility, which says there was someone else before me who paid for me. My responsibility is to prepare myself so that I can pay for someone else who is yet to come.
+ - I’m just someone who likes cooking and for whom sharing food is a form of expression.
+ - Laugh and dare to try to love somebody, starting with yourself. You must love yourself first, of course, and you must protect yourself so that nobody overrides you, overrules you, or steps on you. Just say, ‘Just a minute. I’m worth everything, dear.’
+ - The best comfort food will always be greens, cornbread, and fried chicken.
+ - Because of our routines we forget that life is an ongoing adventure.
+ - Faith is the evidence of the unseen.
+ - Don’t let the incidents which take place in life bring you low. And certainly don’t whine. You can be brought low, that’s OK, but don’t be reduced by them. Just say, ‘That’s life.’
+ - Education helps one case cease being intimidated by strange situations.
+ - Poetry gave me back my voice.
+ - Shakespeare must be a black girl.
+ - Each of us has that right, that possibility, to invent ourselves daily. If a person does not invent herself, she will be invented. So, to be bodacious enough to invent ourselves is wise.
+ - I’m grateful to be an American. I am grateful that we can be angry at the terrorist assault and at the same time be intelligent enough not to hold a grudge against every Arab and every Muslim.
+ - I agreed a long time ago, I would not live at any cost. If I am moved or forced away from what I think is the right thing, I will not do it.
+ - Just as hope rings through laughter, it can also shine through tears.
+ - Let the brain go to work, let it meet the heart and you will be able to forgive.
+ - I dreamt we walked together along the shore. We made satisfying small talk and laughed. This morning I found sand in my shoe and a seashell in my pocket. Was I only dreaming?
+ - When I’m writing, I write. And then it’s as if the muse is convinced that I’m serious and says, ‘Okay. Okay. I’ll come.’
+ - I’m a spring leaf trembling in anticipation.
+ - The future is plump with promise.
+ - The best candy shop a child can be left alone in, is the library.
+ - Mostly, what I have learned so far about aging, despite the creakiness of one’s bones and cragginess of one’s once-silken skin, is this: Do it. By all means, do it.
+ - Most people don’t grow up. It’s too damn difficult. What happens is most people get older.
+ - Without courage, we cannot practice any other virtue with consistency.
+ - While the rest of the world has been improving technology, Ghana has been improving the quality of man’s humanity to man.
+ - The truth is very important. No matter how negative it is, it is imperative that you learn the truth, not necessarily the facts. I mean, that, that can come, but facts can stand in front of the truth and almost obscure the truth. It is imperative that students learn the truth of our history.
+ - Having courage does not mean we are unafraid.
+ - Don’t hesitate to learn the most painful aspects of our history, understand it.
+ - In spite of everything that was done to me and my race, in spite of the adversity and the bitter moments, again we rise.
+ - That knowledge humbles me, melts my bones, closes my ears, and makes my teeth rock loosely in their gums. And it also liberates me. I am a big bird winging over high mountains, down into serene valleys. I am ripples of waves on silver seas. I’m a spring leaf trembling in anticipation.
+ - Human beings are more alike than unalike, and what is true anywhere is true everywhere, yet I encourage travel to as many destinations as possible for the sake of education as well as pleasure.
+ - Language. I loved it. And for a long time I would think of myself, of my whole body, as an ear.
+ - Take a month and show some kindness for the folks who thought that blindness was an illness that affected eyes alone.
+ - If more Africans had eaten missionaries, the continent would be in better shape.
+ - We will sometimes have defeats in life but you can have defeats without being defeated, you could fail without being a failure. When you see failure and defeats as merely part of the process to get to when.
+ - If we live long enough, we may even get over war. I imagine a time when somebody will mention the word war and everyone in the room will start to laugh. And what do you mean war?
+ - I think when we don’t know what to do it’s wise to do nothing. Sit down quietly; quiet our hearts and minds and breathe deeply.
+ - Home is that youthful region where a child is the only real living inhabitant. Parents, siblings, and neighbors are mysterious apparitions who come, go, and do strange unfathomable thing in and around the child, the region’s only enfranchised citizen.
+ - I’m convinced of this: Good done anywhere is good done everywhere. For a change, start by speaking to people rather than walking by them like they’re stones that don’t matter. As long as you’re breathing, it’s never too late to do some good.
+ - We have to confront ourselves. Do we like what we see in the mirror? And, according to our light, according to our understanding, according to our courage, we will have to say yea or nay – and rise!
+ - You’re not serious; you’re boring as hell.
+ - Look heavenward and speak the word aloud. Peace. We look at our world and speak the word aloud. Peace.
+ - Oh, the holiness of being the injured party.
+ - Love recognizes no barriers.
+ - Courage, I don’t think anybody is born with courage. I think you may be born with a flair to braggadocio, you know. That’s not courage.
+ - The truth will lead me to all.
+ - As far as I knew white women were never lonely, except in books. White men adored them, Black men desired them and Black women worked for them.
+ - Every Day you should reach out and touch someone.
+ - When the human race neglects its weaker members, when the family neglects its weakest one – it’s the first blow in a suicidal movement.
+ - Let me tell so much truth. I want to tell the truth in my work. The truth will lead me to all.
+ - If we don’t plant the right things, we will reap the wrong things. It goes without saying. And you don’t have to be, you know, a brilliant biochemist and you don’t have to have an IQ of 150. Just common sense tells you to be kind, ninny, fool. Be kind.
+ - To be human is to be challenged to be more divine. Not even to try to meet such a challenge is the biggest defeat imaginable.
+ - I think the more we know the better we are. I mean not just facts. The more we know about each other, the closer we are to learn something about our selves.
+ - All men are prepared to accomplish the incredible if their ideals are threatened.
+ - The writer has to take the most used, most familiar objects – nouns, pronouns, verbs, adverbs – ball them together and make them bounce, turn them a certain way and make people get into a romantic mood; and another way, into a bellicose mood. I’m most happy to be a writer.
+ - Children’s talent to endure stems from their ignorance of alternatives.
+ - Tell the truth and not the facts.
+ - I like to go back and read poems that I wrote fifty years ago, twenty years ago, and sometimes they surprise me – I didn’t know I knew that then. Or maybe I didn’t know it then, and I know more now.
+ - We allow our ignorance to prevail upon us and make us think we can survive alone, alone in patches, alone in groups, alone in races, even alone in genders.
+ - A bizarre sensation pervades a relationship of pretense. No truth seems true.
+ - Since time is the one immaterial object which we cannot influence neither speed up nor slow down add to nor diminish it is an imponderably valuable gift.
+ - You rose into my life like a promised sunrise, brightening my days with the light in your eyes. I’ve never been so strong. Now I’m where I belong.
+ - Listen carefully to what country people call mother wit. In those homely sayings are couched the collective wisdom of generations.
+ - Determine to live life with flair and laughter.
+ - The nice thing about HOPE is that you can give it to someone else, someone who needs it even more than you do, and you will find you have not given yours away at all.
+ - We are the victims of the world’s most comprehensive robbery. Life demands a balance. It’s all right if we do a little robbing now.
+ - All my work, my life, everything I do is about survival, not just bare, awful, plodding survival, but survival with grace and faith. While one may encounter many defeats, one must not be defeated.
+ - Do not be wedded forever to fear, yoked eternally to brutishness.
+ - In so many ways, segregation shaped me, and education liberated me.
+ - Modesty is a learned affectation. It’s no good. Humility is great, because humility says, ‘There was someone before me. I’m following in somebody’s footsteps.’
+ - A rose by any other name may smell as sweet, but a woman called by a devaluing name will only be weakened by the misnomer.
+ - The children to whom we read simple stories may or may not show gratitude, but each boon we give strengthens the pillars of the world.
+ - The honorary duty of a human being is to love.
+ - Life loves the liver of it. You must live and life will be good to you.
+ - In a world so rife with vulgarity, with brutality and violence, love exists. I’m grateful to know that it exists.
+ - It’s very important to know the neighbor next door and the people down the street and the people in another race.
+ - Here on the pulse of this new day You may have the grace to look up and out And into your sister’s eyes, Into your brother’s face, your country And say simply Very simply With hope Good morning.
+ - One must know not just how to accept a gift, but with what grace to share it.
+ - Sometimes guns really matter. Protecting those who need protection – children, women, minorities in rough parts of town, old folks living in places where cops aren’t nearby. Guns are true empowerment for the powerless.
+ - Few, if any, survive their teens. Most surrender to the vague but murderous pressure of adult conformity.
+ - Be certain that you do not die without having done something wonderful for humanity.
+ - Easy reading is damn hard writing. But if it’s right, it’s easy. It’s the other way round, too. If it’s slovenly written, then it’s hard to read. It doesn’t give the reader what the careful writer can give the reader.
+ - Step off the road. Build yourself a brand new path.
+ - Everybody is worth everything.
+ - Leaving behind nights of terror and fear, I rise. Into a daybreak that’s wondrously clear, I rise.
+ - You can’t forgive without loving. And I don’t mean sentimentality. I don’t mean mush. I mean having enough courage to stand up and say, ‘I forgive. I’m finished with it.’
+ - Achievement brings its own anticlimax.
+ - In an unfamiliar culture, it is wise to offer no innovations, no suggestions, or lessons.
+ - The most called-upon prerequisite of a friend is an accessible ear.
+ - If men are God’s gift to women, then God must really love gag gifts.
+ - Don’t get older just to get wiser. If you get older, you will be wiser, I believe that – if you dare. But get older because it’s fun!
+ - If growing up is painful for the Southern Black girl, being aware of her displacement is the rust on the razor that threatens the throat. It is an unnecessary insult.
+ - If we all hold on to the mistake, we can’t see our own glory in the mirror because we have the mistake between our faces and the mirror; we can’t see what we’re capable of being. You can ask forgiveness of others, but in the end the real forgiveness is in one’s own self.
+ - Don’t let anybody raise you. You’ve been raised.
+ - To be left alone on the tightrope of youthful unknowing is to experience the excruciating beauty of full freedom and the threat of eternal indecision.
+ - A person is the product of their dreams. So make sure to dream great dreams. And then try to live your dream.
+ - I love a Hebrew National hot dog with an ice-cold Corona – no lime. If the phone rings, I won’t answer until I’m done.
+ - Anyone of us can be a rainbow in somebody’s clouds. I want the University of Cincinnati to be a rainbow in the clouds. The University of Cincinnati is really a possibility of hope; it is a rainbow.
+ - Love is that condition in the human spirit so profound that it allows me to survive, and better than that, to thrive with passion, compassion, and style.
+ - People feel guilty. And guilt is stymieing. Guilt immobilizes. Guilt closes the air ducts and the veins, and makes people ignorant.
+ - The black kids, the poor white kids, Spanish-speaking kids, and Asian kids in the US – in the face of everything to the contrary, they still bop and bump, shout and go to school somehow. Their optimism gives me hope.
+ - I long, as does every human being, to be at home wherever I find myself.
+ - Look what you’ve already come through! Don’t deny it. Say I’m stronger than I thought I was.
+ - When I was asked to do something good, I often say yes, I’ll try, yes, I’ll do my best. And part of that is believing, if God loves me, if God made everything from leaves to seals and oak trees, then what is it I can’t do?
+ - There is a spirit in all music, the spirit has the ability to conjure up thoughts even pictures of something that happened or you wished would happen or you anticipate happening. Music has the ability to create ideas in you and me. It has the ability to encourage us to be creative.
+ - Independence is a heady draught, and if you drink it in your youth, it can have the same effect on the brain as young wine does. It does not matter that its taste is not always appealing. It is addictive and with each drink you want more.
+ - When I look back, I am so impressed again with the life-giving power of literature.
+ - I believe in living a poetic life, an art full life. Everything we do from the way we raise our children to the way we welcome our friends is part of a large canvas we are creating.
+ - In order to be profoundly dishonest, a person must have one of two qualities: either he is unscrupulously ambitious, or he is unswervingly egocentric.
+ - Everything costs and costs the earth.
+ - My people had used music to soothe slavery’s torment or to propitiate God, or to describe the sweetness of love and the distress of lovelessness, but I knew no race could sing and dance its way to freedom.
+ - When I passed forty I dropped pretense, ’cause men like women who got some sense.
+ - Money and power can liberate only if they are used to do so. They can imprison and inhibit more finally than barred windows and iron chains.
+ - Education is a process that goes on ’til death. The moment you see someone who knows she has found the one true way, and can call all the others false, then you know you’re in the company of an ignoramus.
+ - Nothing hurts more than realizing they meant everything to you, but you meant nothing to them.
+ - Everyone has at least one story, and each of us is funny if we admit it. You have to admit you’re the funniest person you’ve ever heard of.
+ - Now, after years of observation and enough courage to admit what I have observed, I try to plant peace if I do not want discord; to plant loyalty and honesty if I want to avoid betrayal and lies.
+ - Shelter Network’s programs and services are a rainbow in the clouds for homeless children and adults.
+ - It may in fact be utterly impossible to be successful without helping others to become successful.
+ - When we decide to be happy we accept the responsibility to bring happiness to someone else.
+ - Continue to plant a kiss of concern on the cheek of the sick and the aged and infirm and count that actions as natural and to be expected.
+ - Sometimes all you need in love is to make each other happy, to make each other laugh. So long as you can still do that ten years down the line then I think you’re gold. Never let the laughter slip from your relationship.
+ - In Stamps the segregation was so complete that most Black children didn’t really, absolutely know what whites looked like.
+ - If I insist on being pessimistic, there is always tomorrow. Today I am blessed.
+ - You think you may not be heard. Speak anyway.
+ - Be courageous, but not foolhardy. Walk proud as you are.
+ - Tragedy, no matter how sad, becomes boring to those not caught in its addictive caress.
+ - When a person is going through hell, and she encounters someone who went through hellish hell and survived, then she can say, ‘Mine is not so bad as all that. She came through, and so can I.’
+ - The sadness of the women’s movement is that they don’t allow the necessity of love. See, I don’t personally trust any revolution where love is not allowed.
+ - There is no place where God is not.
+ - Creativity or talent, like electricity, is something I don’t understand but something I’m able to harness and use.
+ - Love is that condition in the human spirit so profound that it empowers us to develop courage; to trust that courage and build bridges with it; to trust those bridges and cross over them so we can attempt to reach each other.
+ - Blacks concede that hurrawing, jibing, jiving, signifying, disrespecting, cursing, even outright insults might be acceptable under particular conditions, but aspersions cast against one’s family call for immediate attack.
+ - I know for sure that loves saves me and that it is here to save us all.
+ - It’s wonderful that whenever Patsy Cline’s name is mentioned, people’s voices fall and they become right sentimental. And, rightly so.
+ - One of the saddest things in the world is to see a cynical young person.
+ - I don’t think modesty is a very good virtue, if it is a virtue at all. A modest person will drop the modesty in a minute. It’s a learned affectation.
+ - I have a feeling that I make a very good friend, and I’m a good mother, and a good sister, and a good citizen. I am involved in life itself – all of it. And I have a lot of energy and a lot of nerve.
+ - It’s hard because people think they have something to lose and the truth is they have everything to gain in trying to love somebody.
+ - Once you appreciate one of your blessings, one of your senses, your sense of hearing, then you begin to respect the sense of seeing and touching and tasting, you learn to respect all the senses.
+ - When things were very bad his soul just crawled behind his heart and curled up and went to sleep.
+ - Some critics will write ‘Maya Angelou is a natural writer’ – which is right after being a natural heart surgeon.
+ - My mission in life is not merely to survive, but to thrive.
+ - Black women have not historically stood in the pulpit, but that doesn’t undermine the fact that they built the churches and maintain the pulpits.
+ - We must infuse our lives with art. Our national leaders must be informed that we want them to use our taxes to support street theatre in order to oppose street gangs. We should have a well-supported regional theatre in order to oppose regionalism and.
+ - Jealousy in romance is like salt in food. A little can enhance the savor, but too much can spoil the pleasure and, under certain circumstances, can be life-threatening.
+ - Through the centuries, we faced down death by daring to hope.
+ - I’m young as morning and fresh as dew. Everybody loves me and so do you.
+ - The Black female is assaulted in her tender years by all those common forces of nature at the same time she is caught in the tripartite crossfire of masculine prejudice, white illogical hate and Black lack of power.
+ - He was a simple man who had no inferiority complex about his lack of education, and even more amazing no superiority complex because he had succeeded despite that lack.
+ - Out of the huts of history’s shame I rise.
+ - Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
+ - The loss of young first love is so painful that it borders on the ludicrous.
+ - Timidity makes a person modest. It makes him or her say, ‘I’m not worthy of being written up in the record of deeds in heaven or on earth.’ Timidity keeps people from their good. They are afraid to say, ‘Yes, I deserve it.’
+ - I believe that quality level is determined primarily by the actual design of the product itself, not by quality control in the production process.
+ - Any book that helps a child to form a habit of reading, to make reading one of his deep and continuing needs, is good for him.
+ - Modesty is a learned affectation. And as soon as life slams the modest person against the wall, that modesty drops.
+ - I made the decision to quit show business. Give up the skintight dresses and manicured smiles. The false concern over sentimental lyrics. I would never again work to make people smile inanely and would take on the responsibility of making them think.
+ - You may encounter many defeats, but you must not be defeated. In fact, the encountering may be the very experience which creates the vitality and the power to endure.
+ - I wrote some of the worst poetry west from the Mississippi River, but I wrote. And I finally sometimes got it right.
+ - We must be warriors in the struggle against ignorance.
+ - I am convinced that words are things, and we simply don’t have the machinery to measure what they are. I believe that words are tangible things...
+ - The world had taken a deep breath and was having doubts about continuing to revolve.
+ - If you happen to fall in love with someone in another race, it’s more difficult, because you have to translate yourself.
+ - I’m grateful to intelligent people. That doesn’t mean educated. That doesn’t mean intellectual. I mean really intelligent. What black old people used to call ‘mother wit’ means intelligence that you had in your mother’s womb. That’s what you rely on. You know what’s right to do.
+ - You have to develop ways so that you can take up for yourself, and then you take up for someone else. And so sooner or later, you have enough courage to really stand up for the human race and say, ‘I’m a representative. ’
+ - People have to feel needed. Frequently, we just offer a job and ‘perks.’ We don’t always offer people a purpose. When people feel there is a purpose and that they’re needed, there’s not much else to do except let them do the work.
+ - When people see the laughing face, even if they’re jealous of it, their burden is lightened. But do it first for yourself. Laugh and dare to try to love somebody, starting with yourself.
+ - I am a very religious person, so it is the presence of God, the constant unwavering, unrelenting presence of God which continues to help me to keep a character which I am proud to show.
+ - It is imperative that young white men and women study the black American history. It is imperative that blacks and whites study the Asian American history.
+ - Our stories come from our lives and from the playwright’s pen, the mind of the actor, the roles we create, the artistry of life itself and the quest for peace.
+ - My mother said I must always be intolerant of ignorance but understanding of illiteracy.
+ - And one of my absolute favorite quotes of all-time, one that I’ve adopted as one of my greatest life mottos: Life loves to be taken by the lapel and told: “I’m with you kid. Let’s go.”
+ - Try to be all you can be to be the best human being you can be. Try to be that in your church, in your temple. Try to be that in your classroom. Do it because it is right to do.
+ - All great artists draw from the same resource: the human heart, which tells us that we are all more alike than we are unalike.
+ - My encouragement to you is to go tomorrow to the library.
+ - Glory falls around us as we sob a dirge of desolation on the Cross.
+ - And if a person is religious, I think it’s good, it helps you a bit. But if you’re not, at least you can have the sense that there is a condition inside you which looks at the stars with amazement and awe.
+ - Pretty Women Wonder Where My Secret Lies, Im Not Cute Or Built To Fit A Fashion Models Size.
+ - I keep on dying, Because I love to live.
+ - On the day of your birth, the Creator filled countless storehouses, set aside for your use and yours alone.
+ - If you’re serious, you really understand that it’s important that you laugh as much as possible and admit that you’re the funniest person you ever met. You have to laugh. Admit that you’re funny. Otherwise, you die in solemnity.
+ - The first thing I do in the morning when I awaken is say, ‘Thank you, Lord!’ I’m grateful to be alive, and I’m going to try to tell the truth as well as I know and tell it as eloquently as I can so that people can hear it.
+ - Effective action is always unjust.
+ - If you were the President of the United States or the Queen of England – you couldn’t have a person who would be more protective than my mother was for me. Which meant really that I could dare to do all sorts of things.
+ - Life offers us tickets to places which we have not knowingly asked for.
+ - When it looks like the sun isn’t going to shine any more, God puts a rainbow in the clouds. Each one of us has the possibility, the responsibility, the probability to be the rainbow in the clouds.
+ - Hope does not take away your problems. It can lift you above them.
+ - I’m a religious woman. And I feel I have responsibility. I have no modesty at all. I’m even afraid of it – it’s a learned affectation and it’s just stuck on me like decals. Now I pray for humility because that comes from inside out.
+ - Each of us has a responsibility for being alive: one responsibility to creation, of which we are a part, another to the creator a debt we repay by trying to extend our areas of comprehension.
+ - I couldn’t tell fact from fiction, Or if the dream was true My only sure prediction In this world was you. I’d touch your features inchly. Beard love and dared the cost, The sented spiel reeled me unreal And I found my senses lost.
+ - The intensity with which young people live demands that they “blank out” as often as possible.
+ - If I wanted to write, I had to be willing to develop a kind of concentration found mostly in people awaiting execution. I had to learn technique and surrender my ignorance.
+ - You dwell in whitened castles with deep and poisoned moats and cannot hear the curses which fill your children’s throats.
+
+500 quotes

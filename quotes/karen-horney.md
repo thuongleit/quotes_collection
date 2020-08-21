@@ -1,0 +1,23 @@
+ - If you want to be proud of yourself, then do things in which you can take pride.
+ - If I couldn’t be pretty, I decided I would be smart.
+ - Like all sciences and all valuations, the psychology of women has hitherto been considered only from the point of view of men.
+ - To search for truth about self is as valuable as to search for truth in other areas of life.
+ - We may feel genuinely concerned about world conditions, though such a concern should drive us into action and not into a depression.
+ - The most comprehensive formulation of therapeutic goals is the striving for wholeheartedness: to be without pretense, to be emotionally sincere, to be able to put the whole of oneself into one’s feelings, one’s work, one’s beliefs.
+ - To find a mountain path all by oneself gives a greater feeling of strength than to take a path that is shown.
+ - Rationalization may be defined as self-deception by reasoning.
+ - There is no such thing as a normal psychology that holds for all people.
+ - Fortunately analysis is not the only way to resolve inner conflicts. Life itself still remains a very effective therapist.
+ - The view that women are infantile and emotional creatures, and as such, incapable of responsibility and independence is the work of the masculine tendency to lower women’s self-respect.
+ - There is no good reason why we should not develop and change until the last day we live.
+ - Is not the tremendous strength in men of the impulse to creative work in every field precisely due to their feeling of playing a relatively small part in the creation of living beings, which constantly impels them to an overcompensation in achievement?
+ - Concern should drive us into action, not into a depression.
+ - Because it corresponds to a vital need, love is overvalued in our culture. It becomes a phantom – like success – carrying with it the illusion that it is a solution for all problems.
+ - The perfect normal person is rare in our civilization.
+ - Life as a therapist is ruthless; circumstances that are helpful to one neurotic may crush another.
+ - That many-faceted thing called love succeeds in building bridges from the loneliness on this shore to the loneliness on the other one. These bridges can be of great beauty, but they are rarely built for eternity, and frequently they cannot tolerate too heavy a burden without collapsing.
+ - The conception of what is normal varies not only with the culture but also within the same culture, in the course of time.
+ - Through the eclipse of large areas of the self, by repression and inhibition as well as by idealization and externalization, the individual loses sight of himself; he feels, if he does not actually become, like a shadow without weight and substance.
+ - There’s still such chaos in me. Still so little firmly outlined. Just like my face: a formless mass that only takes on shape through the expression of the moment. The searching for our selves is the most agonizing.
+
+21 quotes

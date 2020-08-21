@@ -1,0 +1,102 @@
+ - The heritage of the past is the seed that brings forth the harvest of the future.
+ - What is defeat? Nothing but education, nothing but the first step to something better.
+ - The condition upon which God hath given liberty to man is eternal vigilance.
+ - The first duty of society is justice.
+ - Agitation is the atmosphere of the brains.
+ - Every man meets his Waterloo at last.
+ - If you want to be an orator, first get your great cause.
+ - Eternal vigilance is the price of liberty; power is ever stealing from the many to the few.
+ - Peace, if possible, but justice at any rate.
+ - Agitation prevents rebellion, keeps the peace, and secures progress. Every step she gains is gained forever. Muskets are the weapons of animals. Agitation is the atmosphere of the brains.
+ - What gunpowder did for war the printing press has done for the mind.
+ - The hand entrusted with power becomes, either from human depravity or esprit de corps, the necessary enemy of the people.
+ - How prudently most men creep into nameless graves, while now and then one or two forget themselves into immortality.
+ - The best education in the world is that got by struggling to get a living.
+ - The best use of good laws is to teach men to trample bad laws under their feet.
+ - It is but the littleness of man that seeth no greatness in trifles.
+ - Truth is one forever absolute, but opinion is truth filtered through the moods, the blood, the disposition of the spectator.
+ - We measure genius by quality, not by quantity.
+ - Liberty knows nothing but victories. Soldiers call Bunker Hill a defeat; but liberty dates from it though Warren lay dead on the field.
+ - Revolutions never go backwards.
+ - What gunpowder did for war, the printing-press has done for the mind; and the statesman is no longer clad in the steel of special education, but every reading man is his judge.
+ - The Puritan’s idea of hell is a place where everybody has to mind his own business.
+ - Revolutions are not made: they come. A revolution is as natural a growth as an oak. It comes out of the past. Its foundations are laid far back.
+ - Physical bravery is an animal instinct; moral bravery is much higher and truer courage.
+ - Christianity is a battle, not a dream.
+ - Two kinds of men generally best succeed in political life; men of no principle, but of great talent; and men of no talent, but of one principle – that of obedience to their superiors.
+ - The heart is the best logician.
+ - One on God’s side is a majority.
+ - The labor movement means just this: It is the last noble protest of the American people against the power of incorporated wealth.
+ - Right is the eternal sun; the world cannot delay its coming.
+ - The republic which sinks to sleep, trusting to constitutions and machinery, to politicians and statesmen, for the safety of its liberties, never will have any.
+ - Debt is the fatal disease of republics, the first thing and the mightiest to undermine governments and corrupt the people.
+ - Take the whole range of imaginative literature, and we are all wholesale borrowers. In every matter that relates to invention, to use, or beauty or form, we are borrowers.
+ - Common sense does not ask an impossible chessboard, but takes the one before it and plays the game.
+ - No free people can lose their liberties while they are jealous of liberty. But the liberties of the freest people are in danger when they set up symbols of liberty as fetishes, worshipping the symbol instead of the principle it represents.
+ - Do not take the yardstick of your ignorance to measure what the ancients knew, and call everything which you do not know lies. Do not call things untrue because they are marvelous, but give them a fair consideration.
+ - To be as good as our fathers we must be better, imitation is not discipleship.
+ - Education is the only interest worthy the deep, controlling anxiety of the thoughtful man.
+ - Aristocracy is always cruel.
+ - On a single winged word hath hung the destiny of nations.
+ - Statutes are mere milestone, telling how far yesterday’s thought had traveled; and the talk of the sidewalk today is the law of the land. With us, law in nothing unless close behind it stands a warm, living public opinion.
+ - There is nothing stronger than human prejudice.
+ - To be as good as our fathers, we must be better. Imitation is not discipleship. When some one sent a cracked plate to China to have a set made, every piece in the new set had a crack in it.
+ - Insurrection of thought always precedes insurrection of arms.
+ - No class is safe unless government is so arranged that each class has in its hands the means of protecting itself. That is the idea of republics.
+ - The reformer is careless of numbers, disregards popularity, and deals only with ideas, conscience, and common sense. He feels, with Copernicus, that as God waited long for an interpreter, so he can wait for his followers.
+ - The community which does not protect its humblest and most hated member in the free utterance of his opinions, no matter how false or hateful, is only a gang of slaves. If there is anything in the universe that can’t stand discussion, let it crack.
+ - Immoral laws are doubtless void, and should not be obeyed.
+ - Governments exist to protect the rights of minorities. The loved and the rich need no protection: they have many friends and few enemies.
+ - Great political questions stir the deepest nature of one-half the nation, but they pass far above and over the heads of the other half.
+ - Example acquires tenfold authority when it speaks from the grave.
+ - Many know how to flatter, few know how to praise.
+ - I will utter what I believe today, if it should contradict all I said yesterday.
+ - My advice to a young man seeking deathless fame would be to espouse an unpopular cause and devote his life to it.
+ - Politics is but the common pulse-beat, of which revolution is the fever-spasm.
+ - Organize, and stand together. Claim something together, and at once; let the nation hear a united demand from the laboring voice, and then, when you have got that, go on after another; but get something.
+ - Sin is not taken out of man, as Eve was out of Adam, by putting him to sleep.
+ - The penny-papers of New York do more to govern this country than the White House at Washington.
+ - Health lies in labor, and there is no royal road to it but through toil.
+ - Difference of religion breeds more quarrels than difference of politics.
+ - Wants awaken intellect. To gratify them disciplines intellect. The keener the want the lustier the growth.
+ - It is only liquid currents of thought that move men and the world.
+ - Every government is always growing corrupt.
+ - Political convulsions, like geological upheavings usher in new epochs of the world’s progress.
+ - The heart beats louder and the soul hears quicker in silence and solitude.
+ - Hearts are stronger than swords.
+ - What the Puritans gave the world was not thought, but action.
+ - Let us always remember that he does not really believe his own opinion, who dares not give free scope to his opponent.
+ - The Puritan did not stop to think; he recognized God in his soul, and acted.
+ - Experience is a safe light to walk by, and he is not a rash man who expects to succeed in future from the same means which have secured it in times past.
+ - If there is anything in the universe that can’t stand discussion, let it crack.
+ - Government began in tyranny and force, began in the feudalism of the soldier and bigotry of the priest; and the ideas of justice and humanity have been fighting their way, like a thunderstorm, against the organized selfishness of human nature.
+ - You can always get the truth from an American statesman after he has turned seventy, or given up all hope of the Presidency.
+ - The press is the exclusive literature of the million; to them it is literature, church, and college.
+ - Republics exist only on tenure of being agitated.
+ - To hear some men talk of the government, you would suppose that Congress was the law of gravitation, and kept the planets in their places.
+ - War and Niagara thunder to a music of their own.
+ - Boredom, after all, is a form of criticism.
+ - It is easy to be independent when all behind you agree with you, but the difficulty comes when nine hundred and ninety-nine of your friends think you are wrong.
+ - Neither do I acknowledge the right of Plymouth to the whole rock. No, the rock underlies all America: it only crops out here.
+ - Popular opinion is oftenest, what Carlyle pronounced it to be, a lie!
+ - We live under a government of men and morning newspapers.
+ - The keener the want the lustier the growth.
+ - Revolutions are not made, they come.
+ - The man who, for party, forsakes righteousness, goes down; and the armed battalions of God march over him.
+ - Never forgive at the ballot box!
+ - The work resembles a breech delivery-one which is expressed in rhythmic lurches, stabs of phrase and vocal ornamentation designed to express agitation rather than decorative grace.
+ - Our agitation, you know, helps keep yours alive in the rank and file.
+ - Let me make the newspapers, and I care not what is preached in the pulpit or what is enacted in Congress.
+ - There is nothing stronger than human prejudice. A crazy sentimentalism, like that of Peter the Hermit, hurled half of Europe upon Asia, and changed the destinies of kingdoms.
+ - Today it is not big business that we have to fear. It is big government.
+ - God gives manhood but one clew to success, – utter and exact justice; that he guarantees shall be always expediency.
+ - Government is only a necessary evil, like other go-carts and crutches. Our need of it shows exactly how far we are still children. All governing overmuch kills the self-help and energy of the governed.
+ - What is fanaticism today is the fashionable creed tomorrow, and trite as the multiplication table a week after.
+ - Government arrogates to itself that it alone forms men. Everybody knows that government never began anything. It is the whole world that thinks and governs.
+ - Freedom to preach was first gained, dragging in its train freedom to print.
+ - The slowest of us cannot but admit that the world moves.
+ - Baron Grimm declared that, as a rule, it was easy for little minds to attain splendid positions, because they devoted all their ability to the one object.
+ - Politicians are like the bones of a horse’s foreshoulder-not a straight one in it.
+ - Law is nothing unless close behind it stands a warm, living public opinion.
+
+100 quotes

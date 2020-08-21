@@ -1,0 +1,34 @@
+ - Brother Cadfael knew better than to be in a hurry, where souls were concerned. There was plenty of elbow-room in eternity.
+ - It takes a lot to wound a man without illusions.
+ - You’ll never get to be a saint if you deny the bit of the devil in you.
+ - What are wits for unless a man uses them?
+ - Of all the reports that fly about the world, ill news is the surest of all to arrive!
+ - Life goes not in a straight line, lad, but in a circle. The first half we spend venturing as far as the world’s end from home and kin and stillness, and the latter half brings us back, by roundabout ways but surely, to that state from which we set out.
+ - Truth is a hard master, and costly to serve, but it simplifies all problems.
+ - The mountains of today are the molehills of tomorrow.
+ - The voices of cold reason were talking, as usual, to deaf ears.
+ - Despair is deadly sin, but worse, it is mortal folly.
+ - Every spring is the only spring, a perpetual astonishment.
+ - Too much trust is folly, in an imperfect world.
+ - All the things of the wild have their proper uses. Only misuse makes them evil.
+ - Bitter though it may be to many, Cadfael concluded, there is no substitute for truth, in this or any case.
+ - To have faith in Divine protection is good, but even beter if backed by the pratical assistance heaven has a right to expect from sensible mortals.
+ - Youth is no less vulnerable, by the very quality it has of making the heart ache that beholds and has lost it.
+ - Truth can be costly, but in the end it never falls short of value for the price paid.
+ - A man must be prepared to face life, as well as death, there’s no escape from either.
+ - Even a saint may take pleasure, in retrospect, in having been once desired.
+ - There is no one who cannot be hated, against whatever odds. Nor anyone who cannot be loved, against all reason.
+ - You cannot demand truth, and then select half and throw the inconvenient remainder away.
+ - Nothing is more pleasing and engaging than the sense of having conferred benefits. Not even the gratification of receiving them.
+ - Integrity expects integrity.
+ - They sell courage of a sort in the taverns. And another sort, though not for sale, a man can find in the confessional. Try the alehouses and the churches, Hugh. In either a man can be quiet and think.
+ - There is in the end no remedy but truth. It is the one course that cannot be evil.
+ - Death, after all, is the common expectation from birth. Neither heroes nor cowards can escape it.
+ - Here I begin to know that blessedness is what can be snatched out the passing day and put away to think of afterwards.
+ - Truth, like the burgeoning of a bulb under the soil, however deeply sown, will make its way to the light.
+ - I have always known that the best of the Saracens could out-Christian many of us Christians.
+ - Only people who’re positive enough to have friends have enemies. When you’re as glum and morose as he was, people just give up and go away.
+ - I go to Prague every year if I can, value my relationships there like gold, and feel myself in a sense Czech, with all their hopes and needs. They are a people I not only love, but admire.
+ - Beauty is a perilous gift...
+
+32 quotes

@@ -1,0 +1,89 @@
+ - Dear Lord. I give myself away. I’ve nothing else to give.
+ - Tis true my form is something odd But blaming me is blaming God Could I create myself anew I would not fail in pleasing you. If I could reach from pole to pole Or grasp the ocean with a span I would be measured by the soul The mind’s the standard of the man.
+ - So, when a raging fever burns, We shift from side to side by turns; And ’t is a poor relief we gain To change the place, but keep the pain.
+ - There’s no repentance in the grave.
+ - Were the whole realm of nature mine, That were a present far too small: Love so amazing, so divine Demands my soul, my life, my all.
+ - Must I be carried to the skies on flowery beds of ease, while others fought to win the prize and sailed through bloody seas?
+ - Order my footsteps by Thy Word and make my heart sincere; let sin have no dominion, Lord, but keep my conscience clear.
+ - Acquaint yourself with your own ignorance.
+ - Everyday is a birthday; every moment of it is new to us; we are born again, renewed for fresh work and endeavor.
+ - Preserve your conscience always soft and sensitive. If but one sin force its way into that tender part of the soul and dwell there, the road is paved for a thousand iniquities.
+ - He rules the world with truth and grace, and makes the nations prove, the glories of His righteousness and wonders of His love.
+ - Learning to trust is one of life’s most difficult tasks.
+ - There is a dreadful Hell, And everlasting pains; There sinners must with devils dwell In darkness, fire, and chains.
+ - Let dogs delight to bark and bite, for God hath made them so.
+ - Forbid it Lord that I should boast, save in the death of Christ, my God: All the vain things that charm me most, I sacrifice them to his blood.
+ - Flies, worms, and flowers exceed me still.
+ - To be angry about trifles is mean and childish; to rage and be furious is brutish; and to maintain perpetual wrath is akin to the practice and temper of devils; but to prevent and suppress rising resentment is wise and glorious, is manly and divine.
+ - To God the Father, God the Son, And God the Spirit, Three in One, Be honour, praise, and glory given By all on earth, and all in heaven.
+ - There’s not a plant or flower below but makes Thy glories known, And clouds arise, and tempests blow by order from Thy throne; While all that borrows life from Thee is ever in Thy care; And everywhere that we can be, Thou, God art present there.
+ - Hush! my dear, lie still and slumber, Holy angels guard thy bed! Heavenly blessing without number Gently falling on thy head.
+ - Birds in their little nests agree; And ’tis a shameful sight When children of one family Fall out, and chide, and fight.
+ - It was a saying of the ancients, “Truth lies in a well;” and to carry on this metaphor, we may justly say that logic does supply us with steps, whereby we may go down to reach the water.
+ - In books, or work, or healthful play.
+ - Nothing tends so much to enlarge the mind as traveling.
+ - Whatever brawls disturb the street, There should be peace at home.
+ - When I can read my title clear To mansions in the skies, I’ll bid farewell to every fear, And wipe my weeping eyes.
+ - For Satan always finds some mischief still for idle hands to do.
+ - Kind words toward those you daily meet, Kind words and actions right, Will make this life of ours most sweet, Turn darkness into night.
+ - There is a land of pure delight, Where saints immortal reign; Infinite day excludes the night, And pleasures banish pain.
+ - The tall, the wise, the reverend head Must lie as low as ours.
+ - It is not to be expected that we should love God supremely if we have not known him to be more desirable than all other things.
+ - Ten thousand things there are which we believe merely upon the authority or credit of those who have spoken or written them.
+ - Though reading and conversation may furnish us with many ideas of men and things, yet it is our own meditation must form our judgment.
+ - In matters of equity between man and man, our Saviour has taught us to put my neighbor in place of myself, and myself in place of my neighbor.
+ - When a false argument puts on the appearance of a true one, then it is properly called a sophism or fallacy.
+ - Reason is the glory of human nature, and one of the chief eminences whereby we are raised above our fellow-creatures, the brutes, in this lower world.
+ - No science is speedily learned by the noblest genius without tuition.
+ - In Job and the Psalms we shall find more sublime ideas, more elevated language, than in any of the heathen versifiers of Greece or Rome.
+ - Do not be deceived; happiness and enjoyment do not lie in wicked ways.
+ - Tell of His wondrous faithfulness, and sound his power abroad; sing the sweet promise of His grace, the love and truth of God.
+ - What bliss will fill the ransomed souls, when they in glory dwell, to see the sinner as he rolls, in quenchless flames of hell.
+ - But, children, you should never let Such angry passions rise; Your little hands were never made To tear each other’s eyes.
+ - To see the dull indifference, the negligent and thoughtless air that sits upon the faces of a whole assembly, while the psalm is upon their lips, might even tempt a charitable observer to suspect the fervency of their inward religion.
+ - The stars, that in their courses roll, Have much instruction given; But Thy good Word informs my soul How I may climb to Heaven.
+ - A flower, when offered in the bud, is no vain sacrifice.
+ - Poesy and oratory omit things not essential, and insert little beautiful digressions, in order to place everything in the most effective light.
+ - Earth, thou great footstool of our God, who reigns on high; thou fruitful source of all our raiment, life, and food; our house, our parent, and our nurse.
+ - Fancy and humour, early and constantly indulged in, may expect an old age overrun with follies.
+ - Disputation carries away the mind from that calm and sedate temper which is so necessary to contemplate truth.
+ - Once a day, especially in the early years of life and study, call yourselves to an account what new ideas, what new proposition or truth you have gained, what further confirmation of known truths, and what advances you have made in any part of knowledge.
+ - Logic helps us to strip off the outward disguise of things, and to behold and judge of them in their own nature.
+ - Academical disputation gives vigor and briskness to the mind thus exercised, and relieves the languor of private study and meditation.
+ - Abandon the secret chamber and the spiritual life will decay.
+ - For one drop calls another down, till we are drowned in seas of grief.
+ - Prayer is a sacred and appointed means to obtain all the blessings that we want, whether they relate to this life or the life to come.
+ - Do not spend the day in gathering flowers by the way side, lest night come upon you before you arrive at your journey’s end, and then you will not reach it.
+ - Do not hover always on the surface of things, nor take up suddenly with mere appearances; but penetrate into the depth of matters, as far as your time and circumstances allow, especially in those things which relate to your profession.
+ - No, I’ll repine at death no more, But with a cheerful gasp resign To the cold dungeon of the ground These dying, withering limbs of mine. Let worms devour my wasting flesh, And crumble all my bones to dust: – My God shall raise my frame anew, At the revival of the just.
+ - The fondness we have for self furnishes another long rank of prejudices.
+ - Talking over the things which you have read with your companions fixes them on the mind.
+ - Thoughts, like old vultures, prey upon their heart-strings.
+ - Two sentiments alone suffice for man, were he to live the age of the rocks – love, and the contemplation of the Deity.
+ - Satirists do expose their own ill nature.
+ - I love the soul that dares tread the temptations of his years beneath his youthful feet.
+ - A hermit who has been shut up in his cell in a college has contracted a sort of mould and rust upon his soul.
+ - I would not change my blest estate for all the world calls good or great.
+ - The child taught to believe any occurrence a good or evil omen, or any day of the week lucky, hath a wide inroad made upon the soundness of his understanding.
+ - Some have a violent and turgid manner of talking and thinking; they are always in extremes, and pronounce concerning everything in the superlative.
+ - As a man may be eating all day, and for want of digestion is never nourished, so these endless readers may cram themselves in vain with intellectual food.
+ - In common discourse we denominate persons and things according to the major part of their character; he is to be called a wise man who has but few follies.
+ - Vice and virtue chiefly imply the relation of our actions to men in this world; sin and holiness rather imply their relation to God and the other world.
+ - Every one of his opinions appears to himself to be written with sunbeams.
+ - The passions are the gales of life; and it is religion only that can prevent them from rising into a tempest.
+ - Acquire a government over your ideas, that they may come down when they are called, and depart when they are bidden.
+ - Instructors should not only be skilful in those sciences which they teach, but have skill in the method of teaching, and patience in the practice.
+ - And he that does one fault at first And lies to hide it, makes it two.
+ - When two or three sciences are pursued at the same time if one of them be dry, as logic, let another be more entertaining, to secure the mind from weariness.
+ - It would be of great use to us to form our deliberate judgments of persons and things in the calmest and serenest hours of life, when the passions of nature are all silent, and the mind enjoys its most perfect composure.
+ - I would not change my native landFor rich Peru with all her gold.
+ - To prevent and suppress rising resentment is wise and glorious, is manly and divine.
+ - Custom and authority are no sure evidence of truth.
+ - The very substance which last week was grazing in the field, waving in the milk pail, or growing in the garden, is now become part of the man.
+ - How glad the heathens would have been, That worship idols, wood and stone, If they the book God had seen.
+ - Maintain a constant watch at all times against a dogmatical spirit: fix not your assent to any proposition in a firm and unalterable manner, till you have some firm and unalterable ground for it, and till you have arrived at some clear and sure evidence.
+ - Study detains the mind by the perpetual occurrence of something new, which may gratefully strike the imagination.
+ - Affect not little shifts and subterfuges to avoid the force of an argument.
+ - Learn good-humor, never to oppose without just reason; abate some degree of pride and moroseness.
+
+87 quotes

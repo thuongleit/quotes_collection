@@ -1,0 +1,51 @@
+ - Information is shock resistance. Arm yourself.
+ - Democracy is not just the right to vote, it is the right to live in dignity.
+ - Politics hates a vacuum. If it isn’t filled with hope, someone will fill it with fear.
+ - The task is clear: to create a culture of caretaking in which no one and nowhere is thrown away, in which the inherent value of people and all life is foundational.
+ - We can’t leave everything to the free market. In fact, climate change is, I would argue, the greatest single free-market failure. This is what happens when you don’t regulate corporations and you allow them to treat the atmosphere as an open sewer.
+ - Hope has never trickled down, it has always sprung up.
+ - Communication is my thing.
+ - I am convinced that climate change represents a historic opportunity on an even greater scale.
+ - When Nike says, just do it, that’s a message of empowerment. Why aren’t the rest of us speaking to young people in a voice of inspiration?
+ - You actually cannot sell the idea of freedom, democracy, diversity, as if it were a brand attribute and not reality – not at the same time as you’re bombing people, you can’t.
+ - We can save ourselves, but only if we let go of the myth of dominance and mastery and learn to work with nature.
+ - The deeper message that is resonating with people is that it is possible to build. It is possible to invest in people; it is possible to invest in green infrastructure; it’s possible to change.
+ - Africa is poor because its investors and its creditors are unspeakably rich.
+ - Extreme violence has a way of preventing us from seeing the interests it serves.
+ - The anti-war movement should turn itself into a pro-democracy movement.
+ - So the need for another economic model is urgent, and if the climate justice movement can show that responding to climate change is the best chance for a more just economic system...
+ - In pragmatic terms, our challenge is less to save the earth from ourselves and more to save ourselves from an earth that, if pushed too far, has ample power to rock, burn, and shake us off completely.
+ - The powerful feed ideology to the masses like fast food while they dine on that most rarefied delicacy: impunity.
+ - There is plenty of room to make a profit in a zero-carbon economy; but the profit motive is not going to be the midwife for that great transformation.
+ - In a world where profit is consistently put before both people and the planet, climate economics has everything to do with ethics and morality.
+ - We are looking to brands for poetry and for spirituality, because we’re not getting those things from our communities or from each other.
+ - The triumph of economic globalization has inspired a wave of techno-savvy investigative activists who are as globally minded as the corporations they track.
+ - It is always easier to deny reality than to allow our worldview to be shattered, a fact that was as true of die-hard Stalinists at the height of the purges as it is of libertarian climate change deniers today.
+ - I think this has been a class war waged by the rich against the poor, and I think that they won. And I think the poor are fighting back.
+ - A term like capitalism is incredibly slippery, because there’s such a range of different kinds of market economies.
+ - The parties with the most gain never show up on the battlefield.
+ - Ads and logos are our shared global culture and language, and people are insisting on the right to use that language, to reformulate it in the way that artists and writers always do with cultural material,.
+ - If enough of us stop looking away and decide that climate change is a crisis worthy of Marshall Plan levels of response, then it will become one.
+ - It is our great collective misfortune that the scientific community made its decisive diagnosis of the climate threat at the precise moment when an elite minority was enjoying more unfettered political, cultural, and intellectual power than at any point since the 1920s.
+ - Free speech is meaningless if the commercial cacophony has risen to the point where no one can hear you.
+ - My favorite sign says, ‘I care about you.’ In a culture that trains people to avoid each other’s gaze, to say ‘Let them die,’ that is a deeply radical statement.
+ - I think there is a danger that an environmental crisis can be used in precisely the same way as the terrorist threat can be used in terms of giving up freedom.
+ - Regardless of the overall state of the economy, there is now a large enough elite made up of new multi-millionaires and billionaires for Wall Street to see the group as “superconsumers,” able to carry consumer demand all on their own.
+ - This same economic system, based on short-term growth and endless profits is also the reason for pretty much everything else that is lousy in our society, from private prisons to Fox News. What I’m arguing is that, in fact, what we’ve been told is a lie.
+ - What we have been living for three decades is frontier capitalism, with the frontier constantly shifting location from crisis to crisis, moving on as soon as the law catches up.
+ - Anybody who claims that they know where this whole thing is all going is just lying.
+ - The world now has a new kind of hero, one who listens more than speaks, who preaches in riddles not in certainties, a leader who doesn’t show his face, who says his mask is really a mirror. And in the Zapatistas, we have not one dream of a revolution, but a dreaming revolution.
+ - Our enslavement to oil has required the repression of millions of Arab people. As they shake off their bonds, so must we.
+ - Despite different cultures, middle-class youth all over the world seem to live their lives as if in a parallel universe. They get up in the morning, put on their Levi’s and Nikes, grab their caps and backpacks, and Sony personal CD players and head for school.
+ - Terrorism doesn’t just blow up buildings; it blasts every other issue off the political map. The spectre of terrorism – real and exaggerated – has become a shield of impunity, protecting governments around the world from scrutiny for their human rights abuses.
+ - Real climate solutions are ones that steer these interventions to systematically disperse and devolve power and control to the community level, whether through community-controlled renewable energy, local organic agriculture or transit systems genuinely accountable to their users.
+ - When it comes to paying contractors, the sky is the limit; when it comes to financing the basic functions of the state, the coffers are empty.
+ - The creation of today’s market society was not the result of a sequence of spontaneous events but rather of state interference and violence.
+ - But we need to be very clear: because of our decades of collective denial, no gradual, incremental options are now available to us.
+ - What haunts me is not exactly the absence of literal space so much as a deep craving for metaphorical space: release, escape, some kind of open-ended freedom.
+ - It has no denim-toned house paint. Levi makes what is essentially a commodity: blue jeans. Its ads may evoke rugged outdoorsmanship, but Levi hasn’t promoted any particular life style to sell other products.
+ - Like Russia’s gangsterism and Bush’s cronyism, contemporary Iraq is a creation of the fifty-year crusade to privatize the world. Rather than being disowned by its creators, it deserves to be seen as the purest incarnation yet of the ideology that gave it birth.
+ - Those looking for ideology in the White House should consider this: For the men who rule our world, rules are for other people.
+ - People without memory are putty.
+
+49 quotes

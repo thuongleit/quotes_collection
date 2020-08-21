@@ -1,0 +1,29 @@
+ - It took me 1057 pages to describe the hundreds of mathematical equations, algorithms and programming techniques that I invented and used.
+ - The hardships that I encountered in the past will help me succeed in the future.
+ - It is smarter to borrow from nature than to reinvent the wheels.
+ - The hardship of living in a refugee camp made me psychologically strong.
+ - The greater opportunity enabled me to make important discoveries and inventions.
+ - The Connection Machine was the most powerful supercomputer in the world. It is a complex supercomputer and it will take forever to completely describe how it works.
+ - Our lives sometimes depend on computers performing as predicted.
+ - Nigeria is a West African nation of over 100 million energetic people. It is endowed with lots of natural resources but lacks human resources.
+ - Nelson Mandela and Malcolm X came out of prison stronger.
+ - The Connection Machines owned by the United States government laboratories were made available to me because they were considered impossible to program and there was no great demand for them at that time.
+ - Because I believe that humans are computers, I conjectured that computers, like people, can have left- and right-handed versions.
+ - Scientists try to discover or unravel the mysteries of nature. Some of the problems we are trying to solve have been solved in nature.
+ - During the week that I arrived in the United States, I saw an airport, used a telephone, used a library, talked with a scientist, and was shown a computer for the first time in my life.
+ - I dropped out of high school four times between the ages of 12 to 17.
+ - The greatest grand challenge for any scientist is discovering how to prevent the spread of HIV and finding the cure or an effective vaccine for AIDS.
+ - Eighty percent of Americans with HIV do not know they are infected.
+ - When I enrolled in college at age 19, I had a total of eight years of formal classroom education. As a result, I was not comfortable with formal lectures and receiving regular homework assignments.
+ - The labs were happy that I was brave enough to attempt to program it and the $5 million computer was left entirely to my use. I was their human guinea pig.
+ - Adversities such as being homeless and going to prison has made many people stronger.
+ - My focus is not on solving nature’s deeper mysteries. It is on using nature’s deeper mysteries to solve important societal problems.
+ - The 65,536 processors were inside the Connection Machine.
+ - I preferred to study those subjects that were of interest to me.
+ - One out of every 100 American men is HIV positive. The rate of infection has reached epidemic proportions in 40 developing nations.
+ - I wanted to become a mathematician, physicist or astronomer.
+ - Because I am not formally trained in the medical sciences, I can bring in new ideas to AIDS research and the cross-fertilization of ideas from different fields could be a valuable contribution to finding the cure for AIDS.
+ - I have expertise in five different fields which helps me to easily understand the analogy between my scientific problems and those occurring in nature.
+ - Due to financial reasons, I dropped out of school after eight years of formal schooling.
+
+27 quotes

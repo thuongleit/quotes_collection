@@ -1,0 +1,60 @@
+ - I don’t like people who hide things.
+ - I just go with the flow, I follow the yellow brick road. I don’t know where it’s going to lead me, but I follow it.
+ - We’re not perfect; we all have things that people might not like to see, and I like to show my faults.
+ - If people think I’m angry, I don’t want to burst anybody’s bubble. I like sometimes for people to be afraid of me. But it’s not really anger; it’s discipline.
+ - There will always be a replacement coming along very soon – a newer version, a crazier version, a louder version. So if you haven’t got a long-term plan, then you are merely a passing phase, the latest trend, yesterday’s event.
+ - When you become such a strong personality in music, it’s hard for people to accept you as a different character.
+ - Crying is not a weakness. It’s something that should be able to work for you. It should also be a strength. I think if you can cry when you feel like crying it’s a strength. If you feel like crying and you can’t cry, that’s a weakness. That means you’re holding all that stuff inside.
+ - I go feminine, I go masculine. I am both, actually. I think the male side is a bit stronger in me, and I have to tone it down sometimes. I’m not like a normal woman, that’s for sure.
+ - I’m not a rock star, I’m a soft person.
+ - That’s what they do in Argentina. Have a little wine and talk. Then have some coffee and talk. Then, go back to the wine.
+ - I don’t collaborate. You’re born alone, you die alone, you get on stage alone.
+ - My husband used to shout at my mother, ‘What is wrong with your daughter? I’m married to a man.’
+ - Everyone has to make their own decisions. I still believe in that. You just have to be able to accept the consequences without complaining.
+ - I believe in individuality, that everybody is special, and it’s up to them to find that quality and let it live.
+ - Women and men grow up with both sexes. Our mothers and fathers mean a lot to us, so it’s just a question of finding a balance between their influences. I’ve found mine. And it tends to be more on the male side. I mean male side the way we understand it in the West.
+ - It doesn’t surprise me that people can’t see beyond my image. It’s amazing, but I can understand it. That’s what image is for. But it’s never a problem for me. It’s only a problem for them. I don’t really care. I do what I want regardless.
+ - There’re lots of musicians in my family, too. My mother sings incredibly well. I’ve got to make a record with my mother’s voice on it. She sings a lyric soprano. We do the opposite. I’m a baritone. She’s a star singer in her church. She always does her solo.
+ - When I was modelling, I spent half my life staring at thousands of perfect reflections. It got to a stage where I was losing all sense of reality – so after I quit modelling, I took all the mirrors out of my house.
+ - This is depression, it comes when your blocking. This is expression it comes when you’re rocking.
+ - Music has its own depths, and I let it take me where it takes me, even if it means stripping all my clothes off.
+ - I was the only black girl at my junior high school. I had an afro, a Jamaican accent, I looked really old.
+ - I was skinny as a rail and had high cheekbones and a very interesting face – or so I was told.
+ - Models are there to look like mannequins, not like real people. Art and illusion are supposed to be fantasy.
+ - Growing up in Jamaica, the Pentecostal church wasn’t that fiery thing you might think. It was very British, very proper. Hymns. No dancing. Very quiet. Very fundamental.
+ - I like to isolate myself when I work because I end up losing my voice by doing interviews all day.
+ - I’ve had more misrepresentations than I can handle, and people have told the wickedest lies about me. A lot of them have taken their frustrations out on me, and I don’t like that because it can wound. Not necessarily me, but those around me. Journalists can be so bad.
+ - My mother was a champion high-jumper. My three brothers are basketball players. We’ve all been very athletic.
+ - I would have rebelled against parental authority, no matter what. When I was 15, I started painting my face and making my own clothes.
+ - I’m not as impatient as I used to be. I used to hit people if I didn’t like what they were saying. Just lash out. ‘Bam – shut up! Hahahah!’ I was terrible.
+ - I never do what anyone else is doing. I could walk away from music and become a farmer or do some crochet. The worst thing in life for me is to do something I’m not happy doing.
+ - I’m too vain, one of my biggest sins, but it saved me; I can see what excess does.
+ - I always thought that feminine, softer side was just too vulnerable to put out there, because then it’s like you’re opening up a door for everybody to come in, and you don’t know who’s going to come in that door.
+ - In the Seventies and Eighties we all had our fun, and now and then we went really too far. But, ultimately, it required a certain amount of clear thinking, a lot of hard work and good make-up to be accepted as a freak.
+ - When I perform on stage I become those male bullies, those dominators from my childhood. That’s probably why it’s so scary, because they scared me.
+ - You can be a boy, a girl, whatever you want. I have a lot of man in me.
+ - I never thought I was going to be a singer. That was an accident.
+ - Now when I enter a carriage, it almost empties. But there’s always one brave enough to stay.
+ - I came from a very strict background, and didn’t hear any Jamaican music when I was growing up.
+ - I like dressing like a guy. I love it. When I was modeling I used to do pictures where I would dress up like my little brother. No makeup and I looked like a boy.
+ - It was very painful combing my hair. My grand-uncle was a Pentecostal bishop, and he was very strict: our hair couldn’t be permed or straightened. So I just cut it all off.
+ - Most performers take themselves too seriously. They forget there is a difference between the characters they play on the screen or stage and themselves, but the public doesn’t forget there is a difference. They see how silly it is if you try to be the same person all the time.
+ - I have just as much woman in me as I have man. It’s just a matter of channeling the energy into which way you use it.
+ - I am an actress first, a singer second.
+ - My dad’s family were political and he was always a theatrical creature, whereas my mum is really musical and her father was the touring pianist with Nat King Cole. My family was an explosive mixture of politics, religion and music – no wonder I turned out how I did.
+ - I’ve turned down millions of dollars to go on reality TV. It’s an absolute no-go.
+ - I like to think of myself as a positive person. Otherwise I wouldn’t have had a child.
+ - I wear my furs all the time. I wear like three different ones in a day.
+ - I don’t think ‘pop’ should mean that you had no talent.
+ - To be honest, my life is not really as way-out and myth-loaded as people like to portray it.
+ - My father would have been made a bishop much earlier than he was had it not been for me and my image.
+ - I can look at a fur and tell if it’s good or not.
+ - I didn’t think I had a voice at all, and I still think of myself as an interpreter of songs more than a singer. I thought it was too deep; people thought I was a man. I had a very strong Jamaican accent, too; the accent really messed me up for auditions.
+ - I believe in having certain releases, certain outlets. One has to indulge. If you don’t indulge, you don’t live -might as well be dead. I believe in indulging as a user and not as an abuser.
+ - You can’t expect your children to be perfect.
+ - When I started modelling, I’d raise my arms and it was all muscle and all the other models had nothing. Really, everybody thought I was a man. I don’t have to do much to have muscles. It’s just genetic.
+ - I love women, but I’ve never had a relationship with a woman.
+ - I only started getting into furs when the designers I liked started making them.
+ - Whatever; bling always has something to hide.
+
+58 quotes

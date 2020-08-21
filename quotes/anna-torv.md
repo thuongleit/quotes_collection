@@ -1,0 +1,32 @@
+ - I feel good about who I am.
+ - Some people just aren’t meant to be happy.
+ - I want somebody who’s gonna need me.
+ - In film, you can have sad endings.
+ - The secret to life is trusting yourself and loving who you are, just the way you are.
+ - I don’t feel like I’ve hit my stride. So I wonder what the moment will be when I get to be who I want to be.
+ - With science fiction there’s endless possibilities.
+ - A friend of mine says his two favorite artists are Picasso and Rembrandt. Picasso because he paints the beautiful in such an ugly fashion. And Rembrandt because he paints the ugly so beautifully.
+ - Shakespeare is all big themes, like the most amazing love, or the most scary war.
+ - Everybody’s funny if you love them.
+ - Every first episode of a season has been crafted like another pilot.
+ - I think my attitude’s different when I’m in the different places. I don’t walk around in character. I try not to walk around with the accent, but those little things change you, whether it’s your hair, your clothes, your shoes or a different silhouette. People absolutely look at you differently.
+ - I wear Blundstones for hiking. They’re like a work boot with a bit of grip, so you can wear them all day. They’re quite groovy.
+ - I love being physical, but I don’t have any desire to prove myself.
+ - Becoming a mother doesn’t always change every aspect of your personality.
+ - They say Australians get that ten-yard stare. It comes from the land and the horizon. You can see all around you for as far as you can see. So you just stare. I do it all the time.
+ - I had a fantastic mother who taught me self-confidence.
+ - Science fiction is becoming more of a diverse kind of genre.
+ - I’m a huge camper, and love hiking and mountain biking.
+ - My friends and I would get up early and take our horses through the national forest. My mom was very free. It was always Out of the house! There was no watching television on weekends.
+ - I work in an industry where everyone is flawlessly beautiful, but I just want to be healthy.
+ - I am a sucker for jackets!
+ - I’ve found in my life that the parts that you’re right for are the parts that you get. It’s really usually quite easy because you’re kind of right.
+ - I didn’t know much about video games.
+ - I’ve been estranged from my father since I was eight.
+ - The apple is perfect because of the bruise that runs through it.
+ - Yeah, I guess I’m economical. Not because I try, but because I’m really not that interested in shoes.
+ - To be really honest, I don’t love the gym.
+ - I live by the sea in Australia and the weather of course is glorious all year round.
+ - I’ve only read fiction, so I don’t know anything actual.
+
+30 quotes

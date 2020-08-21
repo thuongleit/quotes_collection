@@ -1,0 +1,39 @@
+ - To live without risk is to risk not living.
+ - True science discovers God waiting behind every door.
+ - Feeding the birds is also a form of prayer.
+ - All people and each individual man is called to come into the Church.
+ - The preaching of the faith has lost nothing of its relevance in our times. The Church has a sacred duty to proclaim it without any whittling-down, just as Christ revealed it, and no consideration of time or circumstance can lessen the strictness of this obligation.
+ - It might be said that society speaks through the clothing it wears. Through its clothing it reveals its secret aspirations and uses it, at least in part, to build or destroy its future.
+ - Above all, the state of grace is absolutely necessary at the moment of death; without it, salvation and supernatural happiness the beatific vision of God – are impossible.
+ - When she was thrown into the air by a savage bull in the amphitheatre at Carthage, her first thought and action when she fell to the ground was to rearrange her dress to cover her thigh, because she was more concerned for modesty than pain.
+ - Let nothing novel be introduced!
+ - How many girls there are who do not see any wrongdoing in following certain shameless styles like so many sheep. They certainly would blush if they could guess the impression they make and the feelings they evoke in those who see them.
+ - Nothing is lost by peace; everything may be lost by war.
+ - You lose nothing through peace. You can lose everything through war.
+ - By divine mandate the interpreter and guardian of the Scriptures, and the depository of Sacred Tradition living within her, the Church alone is the entrance to salvation: She alone, by herself, and under the protection and guidance of the Holy Spirit, is the source of truth.
+ - All men are brothered in Jesus Christ.
+ - God did not create a human family made up of segregated, dissociated, mutually independent members. No; he would have them all united by the bond of total love of Him and consequent self-dedication to assisting each other to maintain that bond intact.
+ - There always exists an absolute norm to be preserved.
+ - Mainly through sins of impurity, do the forces of darkness subjugate souls.
+ - To desire grace without recourse to the Virgin Mother is to desire to fly without wings.
+ - The most insidious of sophisms are usually repeated to justify immodesty and seem to be the same everywhere.
+ - The faith of the Church is this: That one and identical is the Word of God and the Son of Mary Who suffered on the Cross, Who is present in the Eucharist, and Who rules in Heaven.
+ - The day the Church abandons Her universal tongue will be the day before She returns to the Catecombs.
+ - Bodily pain affects man as a whole down to the deepest layers of his moral being. It forces him to face again the fundamental questions of his fate, of his attitude toward God and fellow man, of his individual and collective responsibility and of the sense of his pilgrimage on earth.
+ - The Church welcomes technological progress and receives it with love, for it is an indubitable fact that technological progress comes from God and, therefore, can and must lead to Him.
+ - The key to seeing why there should be a Eucharistic worship distinct from the Mass is that the Eucharist is Jesus Christ. No less than His contemporaries in Palestine adored and implored Him for the favors they needed, so we should praise, thank Him, and implore Him for what we need.
+ - The theory of war as an apt and proportionate means of solving international conflicts is now out of date.
+ - Bodily pain affects man as a whole down to the deepest layers of his moral being.
+ - To separate tabernacle from altar is to separate two things which by their origin and nature should remain united.
+ - That which does not correspond to the truth or to the moral norm possesses, objectively, no right either to existence or to propagation or to action.
+ - It is absolutely necessary that the Christian community be subject in all things to the Sovereign Pontiff if it wishes to be a part of the divinely-established society founded by our Redeemer.
+ - For centuries, Jews have been unjustly treated and despised. It is time they were treated with justice and humanity. God wills it and the Church wills it. St. Paul tells us that the Jews are our brothers. They should also be welcomed as friends.
+ - Below the knee, halfway down the arm, and two finger widths below the collarbone.
+ - God has no intention of setting a limit to the efforts of man to conquer space.
+ - There is no surer means of calling down God’s blessing upon the family than the daily recitation of the Rosary.
+ - Sport, rightly conceived, is an occupation carried out by the whole man.
+ - If a worker is deprived of hope to acquire some personal property, what other natural stimulus can be offered him that will inspire him to hard work, labor, saving and sobriety today, when so many nations and men have lost everything and all they have left is their capacity for work?
+ - One Galileo in two thousand years is enough.
+ - These principles have been proclaimed by God, by the Church, by the Saints, by reason, by Christian morality.
+
+37 quotes

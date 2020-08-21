@@ -1,0 +1,62 @@
+ - Life’s not breaths you take, but the moments that take your breath away.
+ - As we look into the future, it’s as far as we can see. So let’s make each tomorrow be the best that it can be.
+ - You will always be the miracle that makes my life complete. And as long as there is breath in me, I’ll make yours just as sweet.
+ - All my Ex’s live in Texas, and that’s why I hang my hat in Tennessee.
+ - She’s a devil, she’s an angel, she’s a woman, she’s a child. She’s a heartache when she leaves you, but she’ll leave you with a smile.
+ - I’m not the hero who will always save the day, don’t always wear a white hat, don’t always know the way. I may not even be the dream you wanted to come true, but I’ll always be the man in love with you.
+ - In all the world you’ll never find a love as true as mine.
+ - I’m the luckiest man alive, this is the best day of my life.
+ - I need someone like me.
+ - Do you love me, do you wanna be my friend?
+ - I ain’t rich, but Lord I’m free. Amarillo by morning, Amarillo is where I’ll be.
+ - All my ex’s live in Texas, And Texas is the place I’d dearly love to be, But all my ex’s live in Texas, Therefore I reside in Tennessee.
+ - I like people who are loyal to me, and I like to be loyal, too.
+ - From here on after let’s stay the way we are right now. And share all the love and laughter that a lifetime will allow.
+ - I remember old Elvis when he forgot to remember to forget.
+ - I like the part where you walk up on the stage and you’re up there for the show. I like that part.
+ - I’m not here for a long time. I’m here for a short time.
+ - I spend most of hunting season at the ranch. We all love to hunt whitetails, and we have a pretty good supply in South Texas. I also love to hunt elk in Arizona, mule deer in Utah, and I’ve been to Canada to hunt caribou.
+ - I was a young troubadour when I rode in on a song. And, I’ll be an old troubadour when I’m gone.
+ - My weakness for beautiful women is my most expensive vice, I still believe in matrimony, but I can’t afford another try.
+ - You can lead a heart to love, but you can’t make it fall.
+ - I’m a religious person. I honestly believe we will see each other in heaven someday.
+ - Country music is important to me, and I love it, but it’s not my whole life.
+ - I love to fish offshore for billfish, and have fished all over for them from the Bahamas, St. Thomas, Venezuela, Panama, Costa Rica, Mexico to the Texas gulf. I haven’t made it to Australia yet, but someday I’m going.
+ - I think the melody is the first time I hear in a song and if I like the melody, then I’ll pay closer attention to the lyrics.
+ - I get asked all the time, “What is a George Strait song?” I know it when I hear it. I don’t seek a specific tempo or lyric or melody. It just has to make sense. Maybe it is natural because I was given the gift to sing.
+ - On the Richter scale of love and romance, you’ve hit a twelve.
+ - I’m a country singer. I love all kinds of music, but country is where my loyalty lies. That’s just me and what I do, and I’m not going to change it.
+ - The almighty dollar and the lust for world wide fame, slowly killed tradition, and for that someone should hang.
+ - I didn’t want to be 40 or 50 years old and still playing clubs, I didn’t feel like I was making any progress, and I actually gave the band notice at one point. I began to have doubts about my abilities.
+ - Bob Wills and the Texas Playboys are simply the best band that ever was.
+ - You know, traditional country music is something that’s going to be around forever.
+ - Of all the songs I’ve recorded, ‘Amarillo By Morning’ always sticks out in my mind.
+ - I’m not out there trying to change the world. I’m just out there trying to sing country music the best way I can.
+ - I’ve always liked Frank Sinata and Big Band music.
+ - I just continue to look for different material, great material, as good as I can find, and try to go in there and do as good a job as I can do in making it a record. That’s all you can expect. That’s all that you can do.
+ - In the beginning, I wanted to be successful. I wanted to make and have hit records. And I wanted everything that went along with it.
+ - You know, legends are people like Haggard and Jones and Wills and Sinatra. Those people are legends. I’m just a young buck out here trying to keep in that same circle with the rest of ’em.
+ - I want to reach the point where people hear my name and immediately think of real country music.
+ - I’ve been blessed with the ability to sing, and that has taken me so many places I never would have gone otherwise.
+ - I’m glad He had the never while staring into space, to give this universe a time and place.
+ - I can only say thank you and thanks also to all of the great songwriters who wrote those wonderful songs that became number ones.
+ - I’m always looking for great songs, and not being much of a songwriter, I depend on great songwriters to send them to me. I go through tons of stuff, and sometimes you just find material that kind of fits and becomes something special.
+ - I’ve had great fans, and they’ve been so loyal over the years.
+ - I discovered in college that country music could be fun adding some swing to it.
+ - Even though I’ve been doing it for so long, I still feel fresh. Even when I walk out on stage, I still feel pretty much the same as I’ve always felt.
+ - I think ‘Beyond the Blue Neon’ is the best I’ve ever done.
+ - I should have checked the price tag before I gave them my last name.
+ - I think that all my albums are different enough where I don’t feel like I did this the last time.
+ - I used to do a lot of interviews in the early ’80s, when my career started, but it came to a point when I decided I didn’t want to talk anymore, and people kind of understood that and left me alone.
+ - Swing is my favorite kind of music.
+ - I don’t think my music’s as traditional as people make it out.
+ - I listen to Mark Chestnutt and think he’s a great singer – and he really does good material.
+ - I get asked sometimes ‘What’s the highlight of my career?’ because I’ve been doing it for so long, and I always have a hard time coming up with something, because so many good things have happened.
+ - I loved making Pure Country. It was a great learning experience for me, seeing another part of the entertainment industry.
+ - You’ve got to keep the stage world and your real world separated or you’re headed for trouble.
+ - Sinatra, in my opinion, is possibly the greatest male singer of all time.
+ - I always enjoy it when I walk on stage. There were some times when I was working so much in the ’80s, and I felt really burnt-out. But I’d be up there singing and not be 10,000 million miles away, you know, just opening my mouth and the words coming out.
+ - My son had toyed with the idea of writing and trying to write a little bit, so that kind of gave me the bug to write also.
+ - This is the kind of problem you want to have! Country radio has been great to me my whole career. I can’t thank those folks enough.
+
+60 quotes

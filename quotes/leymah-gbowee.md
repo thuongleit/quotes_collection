@@ -1,0 +1,26 @@
+ - When women gather, great things will happen.
+ - It’s time for women to stop being politely angry.
+ - The world is waiting to hear from you.
+ - If any changes were to be made in society it had to be by the mothers.
+ - The world is upside down, it’s going to take a lot of hands to turn it right side up.
+ - Don’t wait for a Gandhi, don’t wait for a King, don’t wait for a Mandela. You are your own Mandela, you are your own Gandhi, you are your own King.
+ - I’m a serious optimist. I come from a country where you have little to be hopeful for, and so you have to always be an optimist.
+ - You cannot say you’ve achieved equality until EVERYONE is equal and has equal opportunities!
+ - We must continue to unite in sisterhood to turn our tears into triumph. There is no time to rest until our world achieves wholeness and balance, where all men and women are considered equal and free.
+ - I don’t feel like I’ve done anything extraordinary but take my little light and shine it in darkness.
+ - The one thing I have never been afraid of is standing before important people and speaking my mind. I represent women who may never have the opportunity to go to the UN or meet with a president. I’m never afraid to speak truth to power.
+ - There is something in this world that every individual can do. God has created all of us with something unique to contribute.
+ - I always tell people, anger is like liquid. It’s fluid, it’s like water. You put it in a container and it takes the shape of that container. So many people you see in prison, unleashing war on their people, they are angry, and they take their anger and put it into a violent container.
+ - Activism is something that no one can fake. You get angry. You cry. But you never throw in your towel, because that anger is what is propelling you to further action.
+ - I’m now on a journey to fulfill the wish, in my tiny capacity, of little African girls.
+ - My courage comes from my faith. I have come to one conclusion: All that I am, all that I aspire to be, all that I was before, is by the grace of God. There are so many women in Africa, and outside Africa, who are more intelligent than I am.
+ - Leadership is standing with your people. People say you have to live to fight another day, but sometimes you have to show you are a true leader.
+ - We have lived through fear all our lives, and when you have gone through a whole lot of fear, sometimes all you can do is resist the fear, and resistance comes in the form of courage.
+ - You can tell people of the need to struggle, but when the powerless start to see that they really can make a difference, nothing can quench the fire.
+ - Women are the ones that bear the greatest burden. We are also the ones who nurture societies.
+ - Regardless of whom you pray to, during war our experiences as a community and as mothers are the same.
+ - At 17, the first time I saw a dead body, I froze. By 31 it was a natural occurrence for me, and no group of people should live like that.
+ - If you are serving justice to one person, those who have been affected should also be served some form of justice.
+ - When the guilty verdict was handed down, I walked outside and saw a rainbow encircling the sun. Everyone in Monrovia could see it. It was a hot day, 80 or 90 degrees. I don’t remember seeing any raindrops fall. I thought, this is a sign.
+
+24 quotes

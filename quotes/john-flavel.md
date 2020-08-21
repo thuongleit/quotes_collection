@@ -1,0 +1,75 @@
+ - The Providence of God is like Hebrew words-it can be read only backwards.
+ - The Scriptures teach us the best way of living, the noblest way of suffering, and the most comfortable way of dying.
+ - They that know God will be humble. They that know themselves cannot be proud.
+ - Providence is wiser than you, and you may be confident it has suited all things better to your eternal good than you could do had you been left to your own option.
+ - The carnal person fears man, not God. The strong Christian fears God, not man. The weak Christian fears man too much, and God too little.
+ - Jesus, our head, is already in heaven; and if the head be above water, the body cannot drown.
+ - The knowledge of Christ is profound and large. All other sciences are but shadows; this is a boundless, bottomless ocean. Though something of Christ be unfolded in one age, and something in another, yet eternity itself cannot full unfold him.
+ - No doctrine is more excellent, or necessary to be preached and studied, than Jesus Christ, and him crucified.
+ - One word of God can do more than ten thousand words of men to relieve a distressed soul.
+ - Observed duties maintain our credit; but secret duties maintain our life.
+ - A saving, though an immethodical knowledge of Christ, will bring us to heaven, John 17: 2, but a regular and methodical, as well as a saving knowledge of him, will bring heaven into us, Col. 2: 2, 3.
+ - The law sends us to Christ to be justified, and Christ sends us to the law to be regulated.
+ - Christ’s resurrection is the ground-work of our hope. And the new birth is our title or evidence of our interest in it.
+ - The soul of the poorest child is of equal dignity with the soul of Adam.
+ - No repentance, obedience, self-denial, prayers, tears, reformation or ordinances, without the new creation, avail any thing to the salvation of thy soul.
+ - For the infinite glorious Creator of all things, to become a creature, is a mystery exceeding all human understanding.
+ - We acknowledge no righteousness but what the obedience and satisfaction of Christ yields us. His blood, not our faith; his satisfaction, not our believing it, is the matter of our justification before God.
+ - Christ is so in love with holiness, that at the price of His blood He will buy it for us.
+ - To see a man humble under prosperity is one of the greatest rarities in the world.
+ - Let us consider and marvel that ever this great and blessed God should be so much concerned, as you have heard He is in all His providences, about such vile, despicable worms as we are! He does not need us, but is perfectly blessed and happy in Himself without us. We can add nothing to Him.
+ - Creatures, like pictures, are fairest at a certain distance, but it is not so with Christ; the nearer the soul approaches Him, and the longer it lives in the enjoyhment of Him, still the sweeter and more desirable He becomes.
+ - If time be a ring of gold, opportunity is the rich diamond that gives it both its value and glory.
+ - All the tears of a penitent sinner, should he shed as many as there have been fallen drops of rain since the creation, cannot wash away one sin. The everlasting burnings in hell cannot purify the flaming conscience from the least sin.
+ - As the blood of Christ is the fountain of all merit, so the Spirit of Christ is the fountain of all spiritual life; and until he quicken us and infuse the principle of the divine life into our souls, we can put forth no hand, or vital act of faith, to lay hold upon Jesus Christ.
+ - It is a common thing for men to benumb their own arms, and make them as dead and useless by leaning too much upon them: so it is in a moral as well as a natural way: all the prudence and pains in the world avail nothing without God. So saith the Psalmist, in Psalm cxxvii. 2.
+ - Let all Arminians know: we have as high an esteem for faith as any men in the world, but yet we will not rob Christ to clothe faith.
+ - Affliction is a pill, which, being wrapt up in patience and quiet submission, may be easily swallowed; but discontent chews the pill, and so embitters the soul.
+ - Providence is like a curious piece of tapestry made of a thousand shreds, which, single, appear useless, but put together, they represent a beautiful history to the eye.
+ - The soul of man, like the bird in the shell, is still growing or ripening in sin or grace, till at last the shell breaks by death, and the soul flies away to the piece it is prepared for, and where it must abide forever.
+ - How often has providence convinced its observers, upon a sober recollection of the events of their lives, that if the Lord had left them to their own counsels they had as often been their own tormentors, if not executioners!
+ - Guilt is to danger, what fire is to gunpowder; a man need not fear to walk among many barrels of powder, if he have no fire about him.
+ - Brethren, it is easier to declaim against a thousand sins of others, than to mortify one sin in ourselves.
+ - Christian! thou knowest thou carriest gunpowder about thee. Desire them that carry fire to keep at a distance. It is a dangerous crisis when a proud heart meets with flattering lips.
+ - Did Christ finish His work for us? Then there can be no doubt but He will also finish His work in us.
+ - My soul is of more value than ten thousand worlds.
+ - The opening of your hearts to receive the Lord Jesus Christ is not a work done by any power of your own, but the arm of the Lord is revealed therein.
+ - Whatsoever we have over-loved, idolized, and leaned upon, God has from time to time broken it, and made us to see the vanity of it; so that we find the readiest course to be rid of our comforts is to set our hearts inordinately upon them.
+ - That soul is dead to which the Spirit of Christ is not given in the work of regeneration; and all its works are dead works.
+ - He is bread to the hungry, water to the thirsty, a garment to the naked, healing to the wounded; and whatever a soul can desire is found in Him.
+ - Jesus Christ is in every way sufficient to the vast desires of the soul.
+ - The Spirit must therefore first take hold of us before we can live in Christ, and when he doth so, then we are enabled to exert that vital act of faith, whereby we receive Christ.
+ - When God gives you comforts, it is your great evil not to observe His hand in them.
+ - Whatever be the ground of one’s distress, it should drive him to, not from God.
+ - The more afflictions you have been under, the more assistance you have had for this life of holiness.
+ - Scripture knows no other way to glory, but Christ put on and applied by faith.
+ - O my soul, I am now addressing myself to the greatest work that ever a creature was employed about – I am going into the solemn presence of God about business of everlasting importance!
+ - What a mercy was it to us to have parents that prayed for us before they had us, as well as in our infancy when we could not pray for ourselves!
+ - The Lord’s supper is memorative, and so it has the nature and use of a pledge or token of love, left by a dying to a dear surviving friend.
+ - Grace makes the promise and providence the payment.
+ - The heart of a Christian, like the moon, commonly suffers an eclipse when it is at the full, and that by the interposition of the earth.
+ - As God did not at first choose you because you were high, He will not now forsake you because you are low.
+ - I think it is not very difficult to discern by the duties and converses of Christians, what frames their spirits are under. Take a Christian in a good frame, and how serious, heavenly, and profitable, will his converses and duties be! what a lovely companion is he during the continuance of it!
+ - God’s unspotted faithfulness never failed any soul that durst trust himself in its arms.
+ - He feels all our sorrows, needs, and burdens as his own. That is why it is said that the sufferings of believers are called the sufferings of Christ.
+ - A hot iron, though blunt, will pierce sooner than a cold one, though sharper.
+ - If you neglect to instruct children in the way of holiness, will the devil neglect to instruct them in the way of wickedness? No; if you will not teach them to pray, he will to curse, swear, and lie; if ground be uncultivated, weeds will spring.
+ - To keep the heart then, is carefully to preserve it from sin which disorders it; and maintain that spiritual and gracious frame, which fits it for a life of communion with God.
+ - Providence so orders the case, that faith and prayer come between our wants and supplies, and the goodness of God may be the more magnified in our eyes thereby.
+ - Oh sirs, deal with sin as sin, and speak of heaven and hell as they are, and not as if you were in jest.
+ - Look around in the world, and you may see some in every place who are objects of pity, bereaved by sad accidents of all the comforts of life, while in the meantime Providence has tenderly preserved you.
+ - Lord, here is my body; I am very grateful for it; I neglected nothing that belonged to its contents and welfare; but as for my soul, that is lost and cast away forever. I took little care and thought about it.
+ - Regeneration expresses those supernatural, divine, new qualities imparted by the Spirit to the soul, which are the principle of all holy action.
+ - Afflictions have the same use and end to our souls, that frosty weather hath upon those clothes that are laid and bleaching, they alter the hue and make them white.
+ - Where there is no want, there is usually much wantonness.
+ - Christ bounds and terminates the vast desires of the soul; He is the very Sabbath of the soul.
+ - We must not think that faith itself is the soul’s rest; it is only the means of it. We cannot find rest in any work or duty of our own, but we may find it in Christ, whom faith apprehends for justification and salvation.
+ - That which begins not with prayer, seldom winds up with comfort.
+ - We are not distinguished from brutes by our senses, but by our understanding.
+ - It is better to be as low as hell with a promise, than in Paradise without one.
+ - It is the duty of the saints, especially in times of straights, to reflect upon the performances of Providence for them in all the states and through all the stages of their lives.
+ - Christ comes with kingly power, to rescue sinners, as a prey from the mouth of the terrible one.
+ - It is the great support and solace of the saints in all the distresses that befall them here, that there is a wise Spirit sitting in all the wheels of motion, and governing the most eccentric creatures and their most pernicious designs to blessed and happy issues.
+ - When our needs are permitted to grow to an extremity, and all visible hopes fail, then to have relief given wonderfully enhances the price of such a mercy.
+
+73 quotes

@@ -1,0 +1,27 @@
+ - Sometimes you’re the windshield; sometimes you’re the bug.
+ - There’s so many different worlds, so many different suns. And we have just one world, but we live in different ones.
+ - Then came the churches, then came the schools, then came the lawyers, then came the rules.
+ - I don’t like definitions, but if there is a definition of freedom, it would be when you have control over your reality to transform it, to change it, rather than having it imposed upon you. You can’t really ask for more than.
+ - There’s so many different worlds...
+ - Each song has its own secret that’s different from another song, and each has its own life. Sometimes it has to be teased out, whereas other times it might come fast. There are no laws about songwriting or producing. It depends on what you’re doing, not just who you’re doing.
+ - I used to go to the school folk club with my songs when I was only 13 or so and say “this is a traditional folk song” and sing it with a bad Irish accent to disguise the real source.
+ - I don’t really think of Dire Straits as a sound, you know. It. just depends on the song, and the stuff we’re doing is so varied.
+ - I shoulda learned to play the guitar.
+ - My idea of heaven is a place where the Tyne meets the Delta, where folk music meets the blues.
+ - My playing is fairly straightforward, really, and everything’s pretty much standard no frills or special effects.
+ - What I always try to do is to respond to the song; I’ve always rebelled against theory.
+ - I just want to be able to play and make people feel good with what I do. When you’re thinking that way, anything can happen. And, usually, what happens is good.
+ - I love Gibsons, and Nationals, too. There’s something magical about them.
+ - When you point your finger ’cause your plan fell through You got three more fingers pointing back at you!
+ - I bad a piano long before I bad a guitar, and the practice I got just playing those three chords in a basic 12-bar blues song was very important.
+ - Well, I was born in Scotland and spent the first six years of my life there. Then I went to Newcastle-On-Tyne in northeast England, close to Scotland.
+ - While listening, to things like western swing, for instance, I’d work something out in my head, then play it on my National; not the same song, but one that captured the feeling of the original tune.
+ - There happened to be guitar classes at the college, and there was a guitar teacher there with whom I used to play. In addition, I also would go out into country schools and teach little kids basic guitar and singing a few times a week.
+ - I’m not a collector, however, and I have no desire to own 50 or 60 guitars.
+ - I even played bass for a while. Besides playing electric guitar, I’d also get asked to play some acoustic stuff. But, since I didn’t have an acoustic guitar at the time, I used to borrow one from a friend so I could play folk joints.
+ - Every guitar I own gets used and has its purpose.
+ - I’m also getting an Ovation Legend, because I like them so much.
+ - I was into playing American music, especially the blues.
+ - While I was into many different types of music, and played with many different local groups, I really didn’t have a band to call my own until Dire Straits was formed in 1977.
+
+25 quotes

@@ -1,0 +1,374 @@
+ - Let your plans be dark and impenetrable as night, and when you move, fall like a thunderbolt.
+ - You have to believe in yourself. 
+ - The supreme art of war is to subdue the enemy without fighting.
+ - Appear weak when you are strong, and strong when you are weak.
+ - Opportunities multiply as they are seized.
+ - To know your enemy, you must become your enemy.
+ - If you know the enemy and know yourself, you need not fear the result of a hundred battles. If you know yourself but not the enemy, for every victory gained you will also suffer a defeat. If you know neither the enemy nor yourself, you will succumb in every battle.
+ - Every battle is won before it is fought.
+ - In the midst of chaos, there is also opportunity.
+ - Victory comes from finding opportunities in problems.
+ - When you surround an army, leave an outlet free. Do not press a desperate foe too hard.
+ - If he sends reinforcements everywhere, he will everywhere be weak.
+ - The greatest victory is that which requires no battle.
+ - One mark of a great soldier is that he fight on his own terms or fights not at all.
+ - If you wait by the river long enough, the bodies of your enemies will float by.
+ - Treat your men as you would your own beloved sons. And they will follow you into the deepest valley.
+ - Engage people with what they expect; it is what they are able to discern and confirms their projections. It settles them into predictable patterns of response, occupying their minds while you wait for the extraordinary moment – that which they cannot anticipate.
+ - All is fair in love and war.
+ - So in war, the way is to avoid what is strong, and strike at what is weak.
+ - All warfare is based on deception. Hence, when we are able to attack, we must seem unable; when using our forces, we must appear inactive; when we are near, we must make the enemy believe we are far away; when far away, we must make him believe we are near.
+ - Know yourself and you will win all battles.
+ - Be extremely subtle even to the point of formlessness. Be extremely mysterious even to the point of soundlessness. Thereby you can be the director of the opponent s fate.
+ - Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win.
+ - Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat.
+ - Plan for what it is difficult while it is easy, do what is great while it is small.
+ - The nature of war is constant change.
+ - Even the finest sword plunged into salt water will eventually rust.
+ - The opportunity of defeating the enemy is provided by the enemy himself.
+ - Move swift as the Wind and closely-formed as the Wood. Attack like the Fire and be still as the Mountain.
+ - Victory is reserved for those who are willing to pay its price.
+ - Those who are victorious plan effectively and change decisively. They are like a great river that maintains its course but adjusts its flow.
+ - Build your opponent a golden bridge to retreat across.
+ - Supreme excellence consists of breaking the enemy’s resistance without fighting.
+ - A battle avoided cannot be lost.
+ - He who wishes to fight must first count the cost.
+ - If the mind is willing, the flesh could go on and on without many things.
+ - When the enemy is relaxed, make them toil. When full, starve them. When settled, make them move.
+ - Know thy self, know thy enemy.
+ - To win one hundred victories in one hundred battles is not the acme of skill. To subdue the enemy without fighting is the acme of skill.
+ - When strong, avoid them. If of high morale, depress them. Seem humble to fill them with conceit. If at ease, exhaust them. If united, separate them. Attack their weaknesses. Emerge to their surprise.
+ - Ponder and deliberate before you make a move.
+ - So a military force has no constant formation, water has no constant shape: the ability to gain victory by changing and adapting according to the opponent is called genius.
+ - Do not engage an enemy more powerful than you. And if it is unavoidable and you do have to engage, then make sure you engage it on your terms, not on your enemy’s terms.
+ - Great results, can be achieved with small forces.
+ - First learn to become invincible, then wait for your enemy’s moment of vulnerability.
+ - What the ancients called a clever fighter is one who not only wins, but excels in winning with ease.
+ - When one treats people with benevolence, justice, and righteoousness, and reposes confidence in them, the army will be united in mind and all will be happy to serve their leaders’.
+ - If you fight with all your might, there is a chance of life; where as death is certain if you cling to your corner.
+ - The true objective of war is peace.
+ - The art of war is of vital importance to the State. It is a matter of life and death, a road either to safety or to ruin. Hence it is a subject of inquiry which can on no account be neglected.
+ - What is of supreme importance in war is to attack the enemy’s strategy.
+ - Humble words and increased preparations are signs that the enemy is about to advance. Violent language and driving forward as if to the attack are signs that he will retreat.
+ - Move not unless you see an advantage; use not your troops unless there is something to be gained; fight not unless the position is critical.
+ - You cannot know if you will be successful or not. You can only prepare for battle and it must be done with all of your heart and with all of your consciousness. In that manner, you will have an edge.
+ - The clever combatant imposes his will on the enemy, but does not allow the enemy’s will to be imposed on him.
+ - He who is prudent and lies in wait for an enemy who is not, will be victorious.
+ - One may know how to conquer without being able to do it.
+ - To Subdue an enemy without fighting is the greatest of skills.
+ - Rely not on the likelihood of the enemy’s not coming, but on our own readiness to receive him.
+ - Therefore, just as water retains no constant shape, so in warfare there are no constant conditions.
+ - If an enemy has alliances, the problem is grave and the enemy’s position strong; if he has no alliances, the problem is minor and the enemy’s position weak.
+ - These are the six ways of courting defeat – neglect to estimate the enemy’s strength; want of authority; defective training; unjustifiable anger; nonobservance of discipline; failure to use picked men...
+ - What is essential in war is victory, not prolonged operations.
+ - Ultimate excellence lies not in winning every battle, but in defeating the enemy without ever fighting.
+ - Those whose upper and lower ranks have the same desire are victorious.
+ - Until death itself comes, no calamity need be feared.
+ - Hold out baits to entice the enemy. Feign disorder, and crush him.
+ - Against those skilled in attack, an enemy does not know where to defend; against the experts in defense, the enemy does not know where to attack.
+ - If, however, you are indulgent, but unable to make your authority felt; kind-hearted, but unable to enforce your commands; and incapable, moreover, of quelling disorder: then your soldiers must be likened to spoilt children; they are useless for any practical purpose.
+ - There is no instance of a nation benefitting from prolonged warfare.
+ - There are routes not to be followed, armies not to be attacked, citadels not to be besieged, territory not to be fought over.
+ - The skilful employer of men will employ the wise man, the brave man, the covetous man, and the stupid man.
+ - The quality of decision is like the well-timed swoop of a falcon which enables it to strike and destroy its victim.
+ - In warfare, first lay plans which will ensure victory, and then lead your army to battle; if you will not begin with stratagem but rely on brute strength alone, victory will no longer be assured.
+ - A kingdom that has once been destroyed can never come again into being; nor can the dead ever be brought back to life.
+ - Rapidity is the essence of war: take advantage of the enemy’s unreadiness, make your way by unexpected routes, and attack unguarded spots.
+ - In all fighting, the direct method may be used for joining battle, but indirect methods will be needed in order to secure victory.
+ - So the principles of warfare are: Do not depend on the enemy not coming, but depend on our readiness against him. Do not depend on the enemy not attacking, but depend on our position that cannot be attacked.
+ - So there are five ways of knowing who will win. Those who know when to fight and when not to fight are victorious. Those who discern when to use many or few troops are victorious. Those whose upper and lower ranks have the same desire are victorious.
+ - Without harmony in the State, no military expedition can be undertaken; without harmony in the army, no battle array can be formed.
+ - Too frequent rewards indicate that the general is at the end of his resources; too frequent punishments that he is in acute distress.
+ - Rouse him, and learn the principle of his activity or inactivity. Force him to reveal himself, so as to find out his vulnerable spots.
+ - Go into emptiness, strike voids, bypass what he defends hit him where he does not expect you.
+ - If we do not wish to fight, we can prevent the enemy from engaging us even though the lines of our encampment be merely traced out on the ground. All we need to do is to throw something odd and unaccountable in his way.
+ - Making no mistakes is what establishes the certainty of victory, for it means conquering an enemy that is already defeated.
+ - O divine art of subtlety and secrecy! Through you we learn to be invisible, through you inaudible and hence we can hold the enemy’s fate in our hands.
+ - A sovereign of high character and intelligence must be able to know the right man, should place the responsibility on him, and expect results.
+ - If I am able to determine the enemy’s dispositions while at the same time I conceal my own, then I can concentrate and he must divide.
+ - Those skilled in attack move as from above the nine-fold heavens. Thus they are capable both of protecting themselves and of gaining complete victory.
+ - Unless you know the mountains and the forests, the defiles and impasses, the lay of the marshes and swamps, you cannot maneuver with an armed force. Unless you use local guides, you cannot get the advantages of the land.
+ - If there is disturbance in the camp, the general’s authority is weak. If the banners and flags are shifted about, sedition is afoot. If the officers are angry, it means that the men are weary.
+ - Carefully compare the opposing army with your own, so that you may know where strength is superabundant and where it is deficient.
+ - It is a doctrine of war not to assume the enemy will not come, but rather to rely on one’s readiness to meet him; not to presume that he will not attack, but rather to make one’s self invincible.
+ - Prohibit the taking of omens, and do away with superstitious doubts. Then, until death itself comes, no calamity need be feared.
+ - Maneuvering with an army is advantageous; with an undisciplined multitude, most dangerous.
+ - The rising of birds in their flight is the sign of an ambuscade. Startled beasts indicate that a sudden attack is coming.
+ - The natural formation of the country is the soldier’s best ally; but a power of estimating the adversary, of controlling the forces of victory, and of shrewdly calculating difficulties, dangers and distances, constitutes the test of a great general.
+ - Thus, though I have heard of successful military operations that were clumsy but swift, cleverness has never been seen associated with long delays.
+ - If you are situated at a great distance from the enemy, and the strength of the two armies is equal, it is not easy to provoke a battle, and fighting will be to your disadvantage.
+ - The natural formation of the country is the soldier’s best ally.
+ - The line between disorder and order lies in logistics...
+ - The wise warrior avoids the battle.
+ - Sweat more during peace: bleed less during war.
+ - Know thy self, know thy enemy. A thousand battles, a thousand victories.
+ - And regulation entails organizational effectiveness, a chain of command, and a structure for logistical support.
+ - The whole secret lies in confusing the enemy, so that he cannot fathom our real intent.
+ - Know the enemy, know yourself; your victory will never be endangered. Know the ground, know the weather; your victory will then be total.
+ - However desperate the situation and circumstances, don’t despair. When there is everything to fear, be unafraid. When surrounded by dangers, fear none of them. When without resources, depend on resourcefulness. When surprised, take the enemy by surprise.
+ - I will be able to forecast which side will be victorious and which defeated.
+ - All warfare is based on deception. There is no place where espionage is not used. Offer the enemy bait to lure him.
+ - If words of command are not clear and distinct, if orders are not thoroughly understood, the general is to blame. But if his orders are clear, and the soldiers nevertheless disobey, then it is the fault of their officers.
+ - All war is based on deception.
+ - Ground which can be abandoned but is hard to re-occupy is called entangling.
+ - Pretend inferiority and encourage his arrogance.
+ - Thus it is that in war the victorious strategist only seeks battle after the victory has been won, whereas he who is destined to defeat first fights and afterwards looks for victory.
+ - The Art of War is self-explanatory.
+ - Kill one, terrify a thousand.
+ - It is the rule in war, if ten times the enemy’s strength, surround them; if five times, attack them; if double, be able to divide them; if equal, engage them; if fewer, be able to evade them; if weaker, be able to avoid them.
+ - Regard your soldiers as your children, and they will follow you into the deepest valleys; look upon them as your own beloved sons, and they will stand by you even unto death.
+ - When the thunderclap comes, there is no time to cover the ears.
+ - He will win whose army is animated by the same spirit throughout all its ranks.
+ - If your opponent is of choleric temper, seek to irritate him. Pretend to be weak, that he may grow arrogant.
+ - The general who wins the battle makes many calculations in his temple before the battle is fought. The general who loses makes but few calculations beforehand.
+ - In war, then, let your great object be victory, not lengthy campaigns.
+ - War is a matter of vital importance to the state; the province of life or death; the road to survival or ruin. It is mandatory that it be thoroughly studied.
+ - If fighting is sure to result in victory, then you must fight.
+ - Concentrate your energy and hoard your strength.
+ - Be subtle! be subtle! and use your spies for every kind of business.
+ - There are roads which must not be followed, armies which must not be attacked, towns which must not be besieged, positions which must not be contested, commands of the sovereign which must not be obeyed.
+ - Don’t flail against the world, use it. Flexibility is the operative principle in the art of war.
+ - In war, numbers alone confer no advantage. Do not advance relying on sheer military power.
+ - The consummate leader cultivates the moral law, and strictly adheres to method and discipline; thus it is in his power to control success.
+ - All wars are won or lost before they are ever fought.
+ - Wheels of justice grind slow but grind fine.
+ - When torrential water tosses boulders, it is because of its momentum. When the strike of a hawk breaks the body of its prey, it is because of timing.
+ - He whose ranks are united in purpose will be victorious.
+ - All men can see these tactics whereby I conquer, but what none can see is the strategy out of which victory is evolved.
+ - The military has no constant form, just as water has no constant shape – adapt as you face the enemy, without letting them know beforehand what you are going to do.
+ - All warfare is based on deception. If your enemy is superior, evade him. If angry, irritate him. If equally matched, fight and if not: split and re-evaluate.
+ - Weak leadership can wreck the soundest strategy.
+ - Thus the highest form of generalship is to balk the enemy’s plans, the next best is to prevent the junction of the enemy’s forces, the next in order is to attack the enemy’s army in the field, and the worst policy of all is to besiege walled cities.
+ - If you know yourself but not the enemy, for every victory gained you will also suffer a defeat.
+ - In desperate position, you must fight.
+ - The business of a general is to kick away the ladder behind soldiers when they have climbed up a height.
+ - Keep their friends close and their enemies closer.
+ - He will win who has military capacity and is not interfered with by the sovereign.
+ - The control of a large force is the same principle as the control of a few men: it is merely a question of dividing up their numbers.
+ - Without local guides, your enemy employs the land as a weapon against you.
+ - Energy may be likened to the bending of a crossbow; decision, to the releasing of a trigger.
+ - An army may be likened to water, for just as flowing water avoids the heights and hastens to the lowlands, so an army avoids strength and strikes weakness.
+ - Therefore I say: know the enemy and know yourself; in a hundred battles you will never be in peril. When you are ignorant of the enemy but know yourself, your chances of winning or losing are equal. If ignorant both of your enemy and of yourself, you are certain in every battle to be in peril.
+ - The best general is the one who never fights.
+ - Invincibility lies in the defense; the possibility of victory in the attack.
+ - He will win who, prepared himself, waits to take the enemy unprepared.
+ - Generally in war the best policy is to take a state intact; to ruin it is inferior to this.
+ - Rewards for good service should not be deferred a single day.
+ - If you are far from the enemy, make him believe you are near.
+ - Therefore a victorious army first wins and then seeks battle; a defeated army first battles and then seeks victory.
+ - Whoever is first in the field and awaits the coming of the enemy, will be fresh for the fight; whoever is second in the field and has to hasten to battle will arrive exhausted.
+ - Therefore, to estimate the enemy situation and to calculate distances and the degree of difficulty of the terrain so as to control victory are virtues of the superior general.
+ - A warrior who is prepared to fight must also be prepared to die.
+ - If you know neither the enemy nor yourself, you will succumb in every battle.
+ - If not in the interests of the state, do not act. If you cannot succeed, do not use troops. If you are not in danger, do not fight.
+ - Winning Strategists are certain of triumph before seeking a challenge. Losing Strategists are certain to challenge before seeking a triumph.
+ - What is of the greatest importance in war is extraordinary speed: One cannot afford to neglect opportunity.
+ - When the common soldiers are too strong and their officers too weak, the result is insubordination. When the officers are too strong and the common soldiers too weak, the result is collapse.
+ - When campaigning, be swift as the wind; in leisurely march, majestic as the forest; in raiding and plundering, like fire; in standing, firm as the mountains. As unfathomable as the clouds, move like a thunderbolt.
+ - Thus the expert in battle moves the enemy, and is not moved by him.
+ - There are not more than five primary colours, yet in combination they produce more hues than can ever been seen.
+ - Subtle and insubstantial, the expert leaves no trace; divinely mysterious, he is inaudible. Thus he is master of his enemy’s fate.
+ - When you know both yourself as well as your competition, you are never in danger. To know yourself and not others, gives you half a chance of winning. Knowing neither yourself or your competition puts you in a position to lose.
+ - Like the sun and moon, they end but to begin anew; like the four seasons, they pass away to return once more.
+ - Ponder and deliberate before you make your move. He will conquer who has learned the artifice of deviation. Such is the art of maneuvering.
+ - Pretend to be weak, so your enemy may grow arrogant.
+ - If this is long delayed, weapons are blunted and morale depressed.
+ - In making tactical dispositions, the highest pitch you can attain is to conceal them.
+ - When the leader is morally weak and his discipline not strict, when his instructions and guidance are not enlightened, when there are no consistent rules, neighboring rulers will take advantage of this.
+ - He who exercises no forethought but makes light of his opponents is sure to be captured by them.
+ - The height of strategy, is to attack your opponent’s strategy.
+ - The general that hearkens to my counsel and acts upon it, will conquer: let such a one be retained in command! The general that hearkens not to my counsel nor acts upon it, will suffer defeat: – let such a one be dismissed!
+ - He who relies solely on warlike measures shall be exterminated; he who relies solely on peaceful measures shall perish.
+ - The peak efficiency of knowledge and strategy is to make conflict unnecessary.
+ - When the enemy is at ease, be able to weary him; when well fed, to starve him; when at rest, to make him move. Appear at places to which he must hasten; move swiftly where he does not expect you.
+ - One need not destroy one’s enemy. One need only destroy his willingness to engage.
+ - He will win who knows when to fight and when not to fight.
+ - Place your army in deadly peril, and it will survive; plunge it into desperate straits, and it will come off in safety.
+ - Spies cannot be usefully employed without a certain intuitive sagacity.
+ - Convince your enemy that he will gain very little by attacking you; this will diminish his enthusiasm.
+ - A military operation involves deception. Even though you are competent, appear to be incompetent. Though effective, appear to be ineffective.
+ - The successful person has unusual skill at dealing with conflict and ensuring the best outcome for all.
+ - There is an intelligent way to eat a live frog – I just don’t know what it is.
+ - You can prevent your opponent from defeating you through defense, but you cannot defeat him without taking the offensive.
+ - The art of giving orders is not to try to rectify the minor blunders and not be swayed by petty doubts.
+ - There is no place where espionage is not possible.
+ - When you shoot a bow and arrow, you aim at the clouds, not because you expect to hit them, but so that you may reach the distant target on the ground.
+ - It is the business of a general to be serene and inscrutable, impartial and self-controlled.
+ - In all history, there is no instance of a country having benefited from prolonged warfare. Only one who knows the disastrous effects of a long war can realize the supreme importance of rapidity in bringing it to a close.
+ - Probe him and learn where his strength is abundant and where deficient.
+ - One defends when his strength is inadequate, he attacks when it is abundant.
+ - The spot where we intend to fight must not be made known; for then the enemy will have to prepare against a possible attack at several different points; and his forces being thus distributed in many directions, the numbers we shall have to face at any given point will be proportionately few.
+ - If you follow the enemy’s shifts and changes, you can always find a way to win.
+ - Attack where he is unprepared; sally forth when he does not expect you.
+ - Spies are a most important element in water, because on them depends an army’s ability to move.
+ - Be where your enemy is not.
+ - Correct your mistake as soon as you have found it.
+ - He who knows his enemy and himself well will not be defeated easily.
+ - What enables the wise sovereign and the good general to strike and conquer, and achieve things beyond the reach of ordinary men, is foreknowledge.
+ - Those who excel in war first cultivate their own humanity and and maintain their laws and institutions. By these means they make their governments invincible.
+ - When your opponent gives you an opening, be swift as a hare.
+ - Therefore the good fighter will be terrible in his onset, and prompt in his decision.
+ - In war, practice dissimulation and you will succeed.
+ - The dance of battle is always played to the same impatient rhythm. What begins in a surge of violent motion is always reduced to the perfectly still.
+ - He who wishes to fight must first count the cost. When you engage in actual fighting, if victory is long in coming, then men’s weapons will grow dull and their ardor will be dampened. If you lay siege to a town, you will exhaust your strength.
+ - Peace proposals unaccompanied by a sworn covenant indicate a plot.
+ - If a general shows confidence in his men but always insists on his orders being obeyed, the gain will be mutual.
+ - Agitate him and ascertain the pattern of his movement.
+ - The clever combatant looks to the effect of combined energy, and does not require too much from individuals. Hence his ability to pick out the right men and utilize combined energy.
+ - Use humility to make the enemy haughty. Tire them by flight. Cause division among them. When they are unprepared, attack and make your move when they do not expect it.
+ - Apparent confusion is a product of good order; apparent cowardice, of courage; apparent weakness, of strength.
+ - If quick, I survive. If not quick, I am lost. This is death.
+ - The enlightened ruler is heedful, and the good general full of caution.
+ - If ignorant both of your enemy and yourself, you are certain to be in peril.
+ - Order or disorder depends on organisation; courage or cowardice on circumstances; strength or weakness on dispositions.
+ - Victory is the main object in war.
+ - Do not swallow bait offered by the enemy. Do not interfere with an army that is returning home.
+ - Throw your soldiers into positions whence there is no escape, and they will prefer death to flight. If they will face death, there is nothing they may not achieve.
+ - If you know both yourself and your enemy, you can win a hundred battles without a single loss.
+ - Perfection in war lies in so sapping your opponents will that he surrenders without fighting.
+ - Hence the saying: The enlightened ruler lays his plans well ahead; the good general cultivates his resources.
+ - Unless you enter the tiger’s lair, you cannot get hold of the tiger’s cub’s.
+ - The King is only fond of words, and cannot translate them into deeds.
+ - When he utilizes combined energy, his fighting men become as it were like unto rolling logs or stones. For it is the nature of a log or stone to remain motionless on level ground, and to move when on a slope; if four-cornered, to come to a standstill, but if round-shaped to go rolling down.
+ - And therefore those skilled in war bring the enemy to the field of battle and are not brought there by him.
+ - Birds rising in flight is a sign that the enemy is lying in ambush; when the wild animals are startled and flee he is trying to take you unaware.
+ - It is more important to outhink your enemy, than to outfight him.
+ - If fighting is sure to result in victory, then you must fight, even though the ruler forbid it; if fighting will not result in victory, then you must not fight even at the ruler’s bidding.
+ - One who speaks deferentially but increases his preparations will advance. One who speaks belligerently and advances hastily will retreat.
+ - Invincibility depends on one’s self; the enemy’s vulnerability on him.
+ - Bestow rewards without regard to rule, issue orders without regard to previous arrangements; and you will be able to handle a whole army as though you had to do with but a single man.
+ - In conflict, straightforward actions generally lead to engagement, surprising actions generally lead to victory.
+ - In the practical art of war, the best thing of all is to take the enemy’s country whole and intact; to shatter and destroy it is not so good.
+ - A wise general makes a point of foraging of the enemy.
+ - When the soldiers stand leaning on their spears, they are faint from want of food.
+ - Weigh the situation, then move.
+ - Hence the experienced soldier, once in motion, is never bewildered; once he has broken camp, he is never at a loss.
+ - When the higher officers are angry and insubordinate, and on meeting the enemy give battle on their own account from a feeling of resentment, before the commander-in-chief can tell whether or not he is in a position to fight, the result is ruin.
+ - If those who are sent to draw water begin by drinking themselves, the army is suffering from thirst.
+ - These are six ways of courting defeat, which must be carefully noted by the general who has attained a responsible post.
+ - To maintain an army at a distance causes the people to be impoverished.
+ - The opportunity to secure ourselves against defeat lies in our own hands.
+ - It is sufficient to estimate the enemy situation correctly and to concentrate your strength to capture him. There is no more to it than this. He who lacks foresight and underestimates his enemy will surely be captured by him.
+ - Hiding order beneath the cloak of disorder is simply a question of subdivision; concealing courage under a show of timidity presupposes a fund of latent energy; masking strength with weakness is to be effected by tactical dispositions.
+ - Now a soldier’s spirit is keenest in the morning; by noonday it has begun to flag; and in the evening, his mind is only on returning to camp.
+ - Success in warfare is gained by carefully accommodating ourselves to the enemy’s purpose.
+ - With regard to ground of this nature, be before the enemy in occupying the raised and sunny spots, and carefully guard your line of supplies. Then you will be able to fight with advantage.
+ - Those who would wage war, should first eliminate all domestic enemies before proceeding to attack the external foe.
+ - It is only one who is thoroughly acquainted with the evils of war that can thoroughly understand the profitable way of carrying it on.
+ - Bestow rewards without respect to customary practice; publish orders without respect to precedent. Thus you may employ the entire army as you would one man.
+ - To plan secretly, to move surreptitiously, to foil the enemy’s intentions and balk his schemes, so that at last the day may be won without shedding a drop of blood.
+ - Quickness is the essence of the war.
+ - Secret operations are essential in war; upon them the army relies to make its every move.
+ - From a position of this sort, if the enemy is unprepared, you may sally forth and defeat him. But if the enemy is prepared for your coming, and you fail to defeat him, then, return being impossible, disaster will ensue.
+ - Fierce language and pretentious advances are signs that the enemy is about to retreat.
+ - If the enemy has occupied them before you, do not follow him, but retreat and try to entice him away.
+ - Of all those in the army close to the commander none is more intimate than the secret agent; of all rewards none more liberal than those given to secret agents; of all matters none is more confidential than those relating to secret operations.
+ - Now the reason the enlightened prince and the wise general conquer the enemy whenever they move and their achievements surpass those of ordinary men is foreknowledge.
+ - The value of time, that is of being a little ahead of your opponent, often provides greater advantage than superior numbers or greater resources.
+ - We cannot enter into alliances until we are acquainted with the designs of our neighbors. We are not fit to lead an army on the march unless we are familiar with the face of the country...
+ - In the midst of difficulties we are always ready to seize an advantage, we may extricate ourselves from misfortune.
+ - Therefore the victories of good warriors are not noted for cleverness or bravery. Therefore their victories in battle are not flukes. Their victories are not flukes because they position themselves where they will surely win, prevailing over those wh.
+ - When orders are consistently trustworthy and observed, the relationship of a commander with his troops is satisfactory.
+ - When envoys are sent with compliments in their mouths, it is a sign that the enemy wishes for a truce.
+ - Appraise war in terms of the fundamental factors. The first of these factors is moral influence.
+ - This does not mean that the enemy is to be allowed to escape. The object is to make him believe that there is a road to safety, and thus prevent his fighting with the courage of despair. After that, you may crush him.
+ - Winning isn’t enough. The acme of all skill is to defeat your enemy before taking the field.
+ - Act after having made assessments. The one who first knows the measure of far and near wins – this is the rule of armed struggle.
+ - At first, then, exhibit the coyness of a maiden, until the enemy gives you an opening; afterwards emulate the rapidity of a running hare, and it will be too late for the enemy to oppose you.
+ - Nothing is more difficult than the art of maneuver. What is difficult about maneuver is to make the devious route the most direct and to turn misfortune to advantage.
+ - Do not press an enemy at bay.
+ - No ruler should put troops into the field merely to gratify his own spleen; no general should fight a battle simply out of pique.
+ - The control of large numbers is possible, and like unto that of small numbers, if we subdivide them.
+ - Those who do not know the plans of competitors cannot prepare alliances. Those who do not know the lay of the land cannot maneuver their forces. Those who do not use local guides cannot take advantage of the ground.
+ - If we wish to fight, the enemy can be forced to an engagement even though he be sheltered behind a high rampart and a deep ditch. All we need do is attack some other place that he will be obliged to relieve.
+ - To conquer the enemy without resorting to war is the most desirable. The highest form of generalship is to conquer the enemy by strategy.
+ - O divine art of subtlety and secrecy!
+ - When a general, unable to estimate the enemy’s strength, allows an inferior force to engage a larger one, or hurls a weak detachment against a powerful one, and neglects to place picked soldiers in the front rank, the result must be rout.
+ - To perceive victory when it is known to all is not really skilful. Everyone calls victory in battle good, but it is not really good.
+ - Hostile armies may face each other for years, striving for the victory which is decided in a single day. This being so, to remain in ignorance of the enemy’s condition simply because one grudges the outlay of a hundred ounces of silver in honors and emoluments, is the height of inhumanity.
+ - And therefore only the enlightened sovereign and the worthy general who are able to use the most intelligent people as agents are certain to achieve great things.
+ - So the important thing in a military operation is victory, not persistence.
+ - The ultimate in disposing one’s troops is to be without ascertainable shape. Then the most penetrating spies cannot pry in nor can the wise lay plans against you.
+ - One who has few must prepare against the enemy; one who has many makes the enemy prepare against him.
+ - In battle, there are not more than two methods of attack – the direct and the indirect; yet these two in combination give rise to an endless series of maneuvers.
+ - Unhappy is the fate of one who tries to win his battles and succeed in his attacks without cultivating the spirit of enterprise, for the result is waste of time and general stagnation.
+ - In the tumult and uproar, the battle seems chaotic, but there is no disorder, the troops appear to be milling about in circles but cannot be defeated.
+ - When the general is weak and without authority; when his orders are not clear and distinct; when there are no fixed duties assigned to officers and men, and the ranks are formed in a slovenly haphazard manner, the result is utter disorganization.
+ - Of old the expert in battle would first make himself invincible and then wait for his enemy to expose his vulnerability.
+ - Where the army is, prices are high; when prices rise the wealth of the people is exhausted.
+ - If the enemy opens the door, you must race in.
+ - If a battle can not be won do not fight it.
+ - Who can determine where one ends and the other begins?
+ - Carefully study the well-being of your men, and do not overtax them. Concentrate your energy and hoard your strength. Keep your army continually on the move, and devise unfathomable plans.
+ - A leader leads by example not by force.
+ - When you are ignorant of the enemy but know yourself, your chances of winning or losing are equal.
+ - One who sets the entire army in motion to chase an advantage will not attain it.
+ - Who does not know the evils of war cannot appreciate its benefits.
+ - It is essential to seek out enemy agents who have come to conduct espionage against you and to bribe them to serve you. Give them instructions and care for them. Thus double agents are recruited and used.
+ - So it is that good warriors take their stance on ground where they cannot lose, and do not overlook conditions that make an opponent prone to defeat.
+ - The end and aim of spying in all its five varieties is knowledge of the enemy; and this knowledge can only be derived, in the first instance, from the converted spy. Hence it is essential that the converted spy be treated with the utmost liberality.
+ - Defeat the enemies strategy.
+ - Amid the turmoil and tumult of battle, there may be seeming disorder and yet no real disorder at all.
+ - Know the enemy and know yourself.
+ - Those skilled at making the enemy move do so by creating a situation to which he must conform; they entice him with something he is certain to take, and with lures of ostensible profit they await him in strength.
+ - Of all those in the army close to the commander, none is more intimate than the secret agent.
+ - The good fighter is able to secure himself against defeat, but cannot make certain of defeating the enemy.
+ - The expert in battle seeks his victory from strategic advantage and does not demand it from his men.
+ - Knowledge of the enemy’s dispositions can only be obtained from other men.
+ - Should the enemy forestall you in occupying a pass, do not go after him if the pass is fully garrisoned, but only if it is weakly garrisoned.
+ - It is the rule in war, if our forces are ten to the enemy’s one, to surround him; if five to one, to attack him; if twice as numerous, to divide our army into two.
+ - If you are strong, appear weak. But if you are weak, appear strong.
+ - Nothing is more difficult than the art of maneuvering for advantageous positions.
+ - If our soldiers are not overburdened with money, it is not because they have a distaste for riches; if their lives are not unduly long, it is not because they are disinclined to longevity.
+ - For them to perceive the advantage of defeating the enemy, they must also have their rewards.
+ - War is a matter of vital importance to the state.
+ - Thus the skilful general conducts his army just as though he were leading a single man, willy-nilly, by the hand.
+ - The good fighters of old first put themselves beyond the possibility of defeat, and then waited for an opportunity of defeating the enemy.
+ - Ground which can be freely traversed by both sides is called accessible.
+ - In a position of this sort, even though the enemy should offer us an attractive bait, it will be advisable not to stir forth, but rather to retreat, thus enticing the enemy in his turn; then, when part of his army has come out, we may deliver our attack with advantage.
+ - Management of many is the same as management of few. It is a matter of organization.
+ - So in war, the way is to avoid what is strong and to strike at what is weak. Water shapes its course according to the nature of the ground over which it flows; the soldier works out his victory in relation to the foe whom he is facing.
+ - If soldiers are punished before they have grown attached to you, they will not prove submissive; and, unless submissive, then will be practically useless. If, when the soldiers have become attached to you, punishments are not enforced, they will still be unless.
+ - Should one ask: ‘how do I cope with a well-ordered enemy host about to attack me?’ I reply: seize something he cherishes and he will conform to your desires.
+ - According to my assessment, even if you have many more troops than others, how can that help you to victory?
+ - It is through the dispositions of an army that its condition may be discovered. Conceal your dispositions, and your condition will remain secret, which leads to victory,; show your dispositions, and your condition will become patent, which leads to defeat.
+ - The sovereign must have full knowledge of the activities of the five sorts of agents. This knowledge must come from the double agents, and therefore it is mandatory that they be treated with the utmost liberality.
+ - As water shapes its flow in accordance with the ground, so an army manages its victory in accordance with the situation of the enemy.
+ - When the position is such that neither side will gain by making the first move, it is called temporising ground.
+ - The one who figures on victory at headquarters before even doing battle is the one who has the most strategic factors on his side.
+ - Should the enemy strengthen his van, he will weaken his rear; should he strengthen his rear, he will weaken his van; should he strengthen his left, he will weaken his right; should he strengthen his right, he will weaken his left. If he sends reinforcements everywhere, he will everywhere be weak.
+ - If their forces are substantial, prepare for them; if their forces are strong, avoid them.
+ - Confront them with annihilation, and they will then survive; plunge them into a deadly situation, and they will then live. When people fall into danger, they are then able to strive for victory.
+ - For the wise man delights in establishing his merit, the brave man likes to show his courage in action, the covetous man is quick at seizing advantages, and the stupid man has no fear of death.
+ - It is according to the shapes that I lay the plans for victory, but the multitude does not comprehend this. Although everyone can see the outward aspects, none understands the way in which I have created victory.
+ - With regard to narrow passes, if you can occupy them first, let them be strongly garrisoned and await the advent of the enemy.
+ - When I have won a victory I do not repeat my tactics but respond to circumstances in an infinite variety of ways.
+ - With regard to precipitous heights, if you are beforehand with your adversary, you should occupy the raised and sunny spots, and there wait for him to come up.
+ - When he pretends to flee, do not pursue.
+ - Now this foreknowledge cannot be elicited from spirits; it cannot be obtained inductively from experience, nor by any deductive calculation.
+ - Hence the saying: If you know the enemy and you know yourself, your victory will not stand in doubt; if you now Heaven and you know Earth, you may make your victory complete.
+ - Begin by seizing something which your opponent holds dear; then he will be amenable to your will.
+ - If your enemy is superior, evade him.
+ - Therefore the skillful leader subdues the enemy’s troops without any fighting; he captures their cities without laying siege to them; he overthrows their kingdom without lengthy operations in the field.
+ - To capture the enemy’s entire army is better than to destroy it; to take intact a regiment, a company, or a squad is better than to destroy them. For to win one hundred victories in one hundred battles is not the supreme of excellence. To subdue the enemy without fighting is the supreme excellence.
+ - Set the troops to their tasks without imparting your designs.
+ - Appear at points which the enemy must hasten to defend; march swiftly to places where you are not expected.
+ - The art of war teaches us to rely not on the likelihood of the enemy’s not coming, but on our own readiness to receive him; not on the chance of his not attacking, but rather on the fact that we have made our position unassailable.
+ - There has never been a protracted war from which a country has benefitted.
+ - In warfare, there are no constant conditions. He who can modify his tactics in relation to his opponent will succeed and win.
+ - To capture an enemies army is better than to destroy it.
+ - Without subtle ingenuity of mind, one cannot make certain of the truth of their reports.
+ - It is imperative to contest all factions for complete victory, so the army is not garrisoned and the profit can be total. This is the law of strategic siege.
+ - Attack is the secret of defense; defense is the planning of an attack.
+ - To see victory only when it is within the ken of the common herd is not the acme of excellence.
+ - He must be able to mystify his officers and men by false reports and appearances, and thus keep them in total ignorance.
+ - Fighting with a large army under your command is nowise different from fighting with a small one: it is merely a question of instituting signs and signals.
+ - If we know that the enemy is open to attack, but are unaware that our own men are not in a condition to attack, we have gone only halfway towards victory.
+ - If it is to your advantage, make a forward move; if not, stay where you are.
+ - If I wish to engage, then the enemy, for all his high ramparts and deep moat, cannot avoid engagement; I attack that which he is obliged to rescue.
+ - Factors in the art of warfare are: First, calculations; second, quantities; third, logistics; fourth, the balance of power; and fifth, the possibility of victory is based on the balance of power.
+ - The supreme excellence is not to win a hundred victories in a hundred battles. The supreme excellence is to subdue the armies of your enemies without having to fight them.
+ - Other conditions being equal, if one force is hurled against another ten times its size, the result will be the flight of the former.
+ - Being unconquerable lies with yourself; being conquerable lies with your enemy.
+
+372 quotes

@@ -1,0 +1,25 @@
+ - I think if you just look at life in a positive way, positive things will happen.
+ - Everyone has their own path and you cant judge.
+ - Everyone has their own path in life, no matter if it’s being a celebrity or a singer. Quite frankly, I didn’t move to Nashville and tell myself I wanted to be a singer because I wanted to be a celebrity or I wanted to be somebody that people admired. I wasn’t about that. I just loved music.
+ - May the simple things be amazing on the journey of your life.
+ - You hear about people your whole life, ‘So-and-so has cancer,’ and you’re like, ‘Wow, that’s too bad,’ and then most people tend to go about their day. But when someone tells you that it’s your father or it’s your family, that doesn’t tend to go away.
+ - I had always loved music. I grew up listening to classic country, Waylon Jennings, Merle Haggard. My dad loved Vern Gosdin and Keith Whitley. So I kept going to class and started getting totally into playing guitar and teaching myself these songs.
+ - I was given such a great gift. It’s a miracle that never stops amazing me and reminding me to give thanks, every day. Having a wife and daughter gives me a lot more purpose. I was much more selfish before, but now I think about what kind of role model I’ll be. I just want to be a better man.
+ - Back down a country road the girls are always hot and the beer is ice cold.
+ - The lips on my upper right bicep are my girlfriend’s lips. She has the most amazing lips, and I wanted to carry them around with me everywhere I go, considering I can’t carry her lips physically with me. So I decided to place them in a discreet location, such as the inside part of my bicep.
+ - Some people choose to go on ‘American Idol’ or another singing contest, and some people choose to beat down barrooms before anyone even knows who they are, in order to get a fan base, so when they do get a record deal, they have that to put in front of a label.
+ - Most people think in order to validate yourself as an artist, you have to write your own songs. I commend the guys that do. I’ve done it. But I also think that you can pick great songs outside that you didn’t write that can help your career.
+ - I started putting down my own pen and spending some time searching for the best songs out there possible. It doesn’t matter if I wrote them or not.
+ - But that’s the problem with playing new music sometimes before the record comes out: You have a bunch of yayhoots with opinions.
+ - As long as you’re true to you, you believe it and you make others believe it, then what you’re doing is just art. If you give everybody a blank canvas and some paint, not everybody’s picture is going to be exactly the same, but it’s still art. I just do what I do.
+ - I believe a No. 1 song starts happening when it’s believable and validating.
+ - There are things I want to do to be a better human being and a better father.
+ - I’m from Florida, so any time I get invited to come to Florida and play a show, I’m definitely always up for that.
+ - Not to be narcissistic, but I truly believe in order to make yourself better, you should see what you did before and what was good about that and what wasn’t – same way a football team plays a game and then they go back and watch film.
+ - Anytime you put your name on a ticket with nothing else attached to it, that’s the true testament to where you are in your career – how many tickets are sold.
+ - I am big into water sports and just being out on the water. That is second nature to me, being from Florida.
+ - Some artists will tell you that’s all they want to do is write their own music, and that’s great, but George Strait, Kenny Chesney, Tim McGraw, Garth Brooks, they didn’t write everything they recorded, and they’ve had major, major careers. I think it’s all about the best song.
+ - I like to take my dog on the road. He stays up front; he likes it there.
+ - There’s always going to be life experiences that find their way into my songs.
+
+23 quotes

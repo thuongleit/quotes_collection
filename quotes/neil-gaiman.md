@@ -1,0 +1,502 @@
+ - This is how you do it: you sit down at the keyboard and you put one word after another until its done. It's that easy, and that hard.
+ - Fairy tales are more than true: not because they tell us that dragons exist, but because they tell us that dragons can be beaten.
+ - Google can bring you back 100,000 answers. A librarian can bring you back the right one.
+ - You get what anybody gets - you get a lifetime.
+ - Go and make interesting mistakes, make amazing mistakes, make glorious and fantastic mistakes. Break rules. Leave the world more interesting for your being here.
+ - I hope that in this year to come, you make mistakes. Because if you are making mistakes, you're doing something.
+ - That which is dreamed can never be lost, can never be undreamed.
+ - Sometimes you wake up. Sometimes the fall kills you. And sometimes, when you fall, you fly.
+ - Stories may well be lies, but they are good lies that say true things, and which can sometimes pay the rent.
+ - Being a writer is a very peculiar sort of a job: it’s always you versus a blank sheet of paper (or a blank screen) and quite often the blank piece of paper wins.
+ - Whatever it takes to finish things, finish. You will learn more from a glorious failure than you ever will from something you never finished.
+ - I lived in books more than I lived anywhere else.
+ - If you dare nothing, then when the day is over, nothing is all you will have gained.
+ - Books make great gifts because they have whole worlds inside of them. And it's much cheaper to buy somebody a book than it is to buy them the whole world!
+ - Write your story as it needs to be written. Write it honestly, and tell it as best you can. I’m not sure that there are any other rules. Not ones that matter.
+ - Life is a disease: sexually transmitted, and invariably fatal.
+ - Have you ever been in love? Horrible isn't it? It makes you so vulnerable. It opens your chest and it opens up your heart and it means that someone can get inside you and mess you up.
+ - There are so many fragile things, after all. People break so easily, and so do dreams and hearts.
+ - The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.
+ - She was beautiful, but she was beautiful in the way a forest fire was beautiful.
+ - Being brave doesn’t mean you aren’t scared. Being brave means you are scared, really scared, badly scared, and you do the right thing anyway.
+ - A book is a dream that you hold in your hands.
+ - You’re alive. That means you have infinite potential. You can do anything, make anything, dream anything.
+ - What power would hell have if those imprisoned here would not be able to dream of heaven?
+ - Whatever it is you’re scared of doing, Do it.
+ - I hope that this year, you make mistakes. If you do, then it means you have tried, learned, lived, pushed yourself, changed you and your world, and most importantly, you’ve done something.
+ - Libraries really are the gates to the future.
+ - You have to finish things – that’s what you learn from, you learn by finishing things.
+ - Let’s start a new tomorrow, today.
+ - Tomorrow may be hell, but today was a good writing day, and on the good writing days nothing else matters.
+ - Finish what you’re writing. Whatever you have to do to finish it, finish it.
+ - Trust dreams. Trust your heart, and trust your story.
+ - And so there is magic.
+ - Libraries are our friends.
+ - Childhood memories are sometimes covered and obscured beneath the things that come later, like childhood toys forgotten at the bottom of a crammed adult closet, but they are never lost for good.
+ - May your coming year be filled with magic and dreams and good madness.
+ - One word after another. That’s the only way that novels get written and, short of elves coming in the night and turning your jumbled notes into Chapter Nine, it’s the only way to do it. So keep on keeping on. Write another word and then another.
+ - Wherever you go, you take yourself with you.
+ - You get ideas from daydreaming. You get ideas from being bored. You get ideas all the time. The only difference between writers and other people is we notice when we’re doing it.
+ - What I say is, a town isn't a town without a bookstore. It may call itself a town, but unless it's got a bookstore it knows it's not fooling a soul.
+ - Are we human because we gaze at the stars, or do we gaze at the stars because we are human.
+ - If you don’t know it’s impossible, it’s easier to do.
+ - I see libraries and librarians as frontline soldiers in the war against illiteracy and the lack of imagination.
+ - My people, we stay indoors. We have keyboards. We have darkness. It’s quiet.
+ - Perfection is like chasing the horizon. Keep moving.
+ - Stories are like spiders, with all they long legs, and stories are like spiderwebs, which man gets himself all tangled up in but which look pretty when you see them under a leaf in the morning dew, and in the elegant way that they connect to one another, each to each.
+ - Remember: when people tell you something’s wrong or doesn’t work for them, they are almost always right. When they tell you exactly what they think is wrong and how to fix it, they are almost always wrong.
+ - You’re always you, and that don’t change, and you’re always changing, and there’s nothing you can do about it.
+ - Often you will discover that the harder you work, and the more wisely you work, the luckier you get. But there is luck, and it helps.
+ - Yes. Growing up is highly overrated. Just be an author.
+ - Picking five favorite books is like picking the five body parts you’d most like not to lose.
+ - Only the phoenix rises and does not descend. And everything changes. And nothing is truly lost.
+ - You hurt. It’s okay. I hurt too. Hold my hand.
+ - Remember that, sooner or later, before it ever reaches perfection, you will have to let it go and move on and start to write the next thing. Perfection is like chasing the horizon. Keep moving.
+ - Nobody looks like what they really are on the inside. You don’t. I don’t. People are much more complicated than that. It’s true of everybody.
+ - The real problem with stories – if you keep them going long enough, they always end in death.
+ - You don’t pass or fail at being a person, dear.
+ - I think hell is something you carry around with you, not somewhere you go.
+ - The wise man knows when to keep silent. Only the fool tells all he knows.
+ - I’ve been inspired by dreams – I’ve even stolen scenes or images or characters from them.
+ - Parameters are the things you bounce off to create art.
+ - Read. Read anything. Read the things they say are good for you, and the things they claim are junk. You’ll find what you need to find. Just read.
+ - It is sometimes a mistake to climb; it is always a mistake never even to make the attempt. If you do not climb, you will not fall. This is true. But is it that bad to fail, that hard to fall?
+ - The things that really change the world, according to Chaos theory, are the tiny things. A butterfly flaps its wings in the Amazonian jungle, and subsequently a storm ravages half of Europe.
+ - You musn’t be afraid of the dark.’ ‘I’m not,’ said Shadow. ‘I’m afraid of the people in the dark.
+ - Let her tell stories and dance in the rain, somersault, tumble and run, her joys must be high as her sorrows are deep, let her grow like a weed in the sun.
+ - You don’t get explanations in real life. You just get moments that are absolutely, utterly, inexplicably odd.
+ - Librarians are the coolest people out there doing the hardest job out there on the frontlines. And every time I get to encounter or work with librarians, I’m always impressed by their sheer awesomeness.
+ - You were her way here, and it’s a dangerous thing to be a door.
+ - Stories are the things that allow us to persuade each other that we’re human.
+ - A short story is the ultimate close-up magic trick – a couple of thousand words to take you around the universe or break your heart.
+ - It has been said that civilization is twenty-four hours and two meals away from barbarism.
+ - Potentially evil. Potentially good, too, I suppose. Just this huge powerful potentiality waiting to be shaped.
+ - Life is always going to be stranger than fiction, because fiction has to be convincing, and life doesn’t.
+ - You don’t have to stay anywhere forever.
+ - I will be brave, thought Coraline. No, I am brave.
+ - Most books on witchcraft will tell you that witches work naked. This is because most books on witchcraft were written by men.
+ - Every lover is, in his heart, a madman, and, in his head, a minstrel.
+ - I still love the book-ness of books, the smell of books: I am a book fetishist – books to me are the coolest and sexiest and most wonderful things there are.
+ - Pain shared, my brother, is pain not doubled but halved. No man is an island.
+ - Libraries are the thin red line between civilization and barbarism.
+ - I walk across the dreaming sands under the pale moon: through the dreams of countries and cities, past dreams of places long gone and times beyond recall.
+ - Anyone who calls you “little lady” has already excluded you from the set of people worth listening to.
+ - Read the books you love, tell people about authors you like, and don’t worry about it.
+ - Gods die. And when they truly die they are unmourned and unremembered. Ideas are more difficult to kill than people, but they can be killed, in the end.
+ - If you want to imagine the future, imagine a boy and his dog and his friends. And a summer that never ends.
+ - Not knowing everything is all that makes it OK, sometimes...
+ - I believe we have an obligation to read for pleasure, in private and in public places. If we read for pleasure, if others see us reading, then we learn, we exercise our imaginations. We show others that reading is a good thing.
+ - You know how is it when you love someone? And the hard part, the bad part, the Jerry Springer Show part is that you never stop loving someone. There’s always a piece of them in your heart.
+ - Different people remember things differently, and you’ll not get any two people to remember anything the same, whether they were there or not.
+ - You get on with your own life. Lettie gave it to you. You just have to grow up and try and be worth it.
+ - I suspect there are two kinds of novelists. Those who have a point of view and have something to say and then write a novel in order to say that thing, and those of us who write the book in order to find out what we think about that thing.
+ - Biting’s excellent. It’s like kissing – only there is a winner.
+ - He had read books, newspapers and magazines. He knew that if you ran away you sometimes met bad people who did bad things to you; but he had also read fairy tales, so he knew that there were kind people out there, side by side with the monsters.
+ - The best way to show people true things is from a direction that they had not imagined the truth coming.
+ - He had kissed her good night that night, and she had tasted like strawberry daiquiris, and he had never wanted to kiss anyone else again.
+ - Death is the second oldest of the Endless. It’s hard not to love her. She loves you, after all.
+ - If you want to call it that. But it is a very specific sort of magic. There’s a magic you take from death. Something leaves the world, something else comes into it.
+ - I don’t know why people would want to have lunch with writers. I’ve eaten with writers. We have appalling table manners, and rarely say anything other than ‘Pass the salt’ or ‘If you’re not going to eat that, can I have it?’
+ - All fiction is a process of imagining: whatever you write, in whatever genre or medium, your task is to make things up convincingly and interestingly and new.
+ - Love me when I least deserve it, because that’s when I really need it.
+ - Short stories are tiny windows into other worlds and other minds and other dreams.
+ - To absent friends, lost loves, old gods, and the season of mists; and may each and every one of us always give the devil his due.
+ - Face your life, its pain, its pleasure, leave no path untaken.
+ - Remember your name. Do not lose hope – what you seek will be found. Trust ghosts. Trust those that you have helped to help you in their turn. Trust dreams. Trust your heart, and trust your story.
+ - It’s easy, there’s a trick to it, you do it or you die.
+ - Fiction gives us empathy: it puts us inside the minds of other people, gives us the gifts of seeing the world through their eyes. Fiction is a lie that tells us true things, over and over.
+ - Well meaning adults can easily destroy a child’s love of reading – do not discourage children from reading because you feel they’re reading the wrong thing. There is no such thing as the wrong thing to be reading and no bad fiction for kids.
+ - Stories are webs, interconnected strand to strand, and you follow each story to the center, because the center is the end. Each person is a strand of the story.
+ - Life is sometimes hard. Things go wrong, in life and in love and in business and in friendship and in health and in all other ways that life can go wrong. And when things get tough, this is what you should do. Make good art.
+ - M is for magic. All the letters are, if you put them together properly. You can make magic with them, and dreams, and, I hope, even a few surprises...
+ - It’s still National Library Week. You should be especially nice to a librarian today, or tomorrow. Sometime this week, anyway. Probably the librarians would like tea. Or chocolates. Or a reliable source of funding.
+ - Science is a way of talking about the universe in words that bind it to a common reality. Magic is a method of talking to the universe in words that it cannot ignore. The two are rarely compatible.
+ - The young woman was crying, in the way that grownups cry, keeping it inside as much as they can, and hating it when it still pushes out at the edges, making them ugly and funny-looking on the way.
+ - If there’s one thing that a study of history has taught us, it is that things can always get worse.
+ - We make choices. No one else can live our lives for us. And we must confront and accept the consequences of our actions.
+ - They could not truly look dead, because they did not ever look alive.
+ - The simplest way to make sure that we raise literate children is to teach them to read, and to show them that reading is a pleasurable activity.
+ - Every hour wounds. The last one kills.
+ - Books were safer than other people anyway.
+ - In a novel, you can always go back and make it look like you knew what you were doing all along before the thing goes out and gets published.
+ - The world always seems brighter when you’ve just made something that wasn’t there before.
+ - She says nothing at all, but simply stares upward into the dark sky and watches, with sad eyes, the slow dance of the infinite stars.
+ - I lay on the bed and lost myself in stories. I liked that. Books were safer than other people anyways.
+ - Leave no stone unturned. Deeply explore the beauty of your life.
+ - You shine like a beacon in a dark world.
+ - When things go wrong, this is what you should do. Make good art.
+ - I am selfish, private and easily bored. Will this be a problem?
+ - Not only are there no happy endings,? she told him, ’there aren’t even any endings.
+ - What do stars do? They shine.
+ - The truth is, it’s not the idea, it’s never the idea, it’s always what you do with it.
+ - An Angel who did not so much Fall as Saunter Vaguely Downwards.
+ - Remember your name. Do not lose hope – what you seek will be found.
+ - Monsters come in all shapes and sizes, Some of them are things people are scared of. Some of them are things that look like things people used to be scared of a long time ago. Sometimes monsters are things people should be scared of, but they aren’t.
+ - She was the storm, she was the lightning, she was the adult world with all its power and all its secrets and all its foolish casual cruelty.
+ - They were not my friends, after all. They were just the people I went to school with.
+ - We do what we do, because of who we are. If we did otherwise, we would not be ourselves.
+ - Don’t start anything you’re not prepared to finish.
+ - Black as night, sweet as sin.
+ - I’m going to go home. Everything is going to be normal again. Boring again. Wonderful again.
+ - Empathy is a tool for building people into groups, for allowing us to function as more than self-obsessed individuals.
+ - Short stories are tiny windows into other worlds and other minds and dreams. They are journeys you can make to the far side of the universe and still be back in time for dinner.
+ - Entropy and optimism: the twin forces that make the world go around.
+ - American Gods is about 200,000 words long, and I’m sure there are words that are simply in there ’cause I like them. I know I couldn’t justify each and every one of them.
+ - Because,? she said, ’when you’re scared but you still do it anyway, that’s brave.
+ - I went away in my head, into a book. That was where I went whenever real life was too hard or too inflexible.
+ - People who believe they’ll be happy if they go and live somewhere else, learn it doesn’t work that way. Wherever you go, you take yourself with you.
+ - Sometimes the best way to learn something is by doing it wrong and looking at what you did.
+ - Never trust the storyteller. Only trust the story.
+ - People want to forget the impossible. It makes their world safer.
+ - It is a fool’s prerogative to utter truths that no one else will speak.
+ - Fear is contagious. You can catch it.
+ - If not for Death, they’d be content to simply exist, but with Death, well, their lives will have meaning – a boundary beyond which the living cannot cross.
+ - It won’t hurt, said her other father. Coraline knew that when grown-ups told you something wouldn’t hurt it almost always did. She shook her head.
+ - I learned to write by writing.
+ - Most people can start a short story or a novel. If you’re a writer, you can finish them. Finish enough of them, and you may be good enough to be publishable.
+ - It may help to understand human affairs to be clear that most of the great triumphs and tragedies of history are caused, not by people being fundamentally good or fundamentally bad, but by people being fundamentally people.
+ - So many things to see, people to do.
+ - Break rules. Leave the world more interesting for your being here.
+ - Life and death are different sides of the same coin.
+ - In my dream, it was the tongue of what is, and anything spoken in it becomes real, because nothing said in that language can be a lie. It is the most basic building brick of everything.
+ - All your tomorrows start here.
+ - When I started out, there were a lot of things I knew I couldn’t do, and a lot of things I only found out I couldn’t do by going and doing it. And no-one was watching, and nobody cared.
+ - When you love something you just don’t want to stop talking about it.
+ - There is a proverbial saying chiefly concerned with warning against too closely calculating the numerical value of un-hatched chicks.
+ - Tools, of course, can be the subtlest of traps.
+ - The sky had never seemed so sky; the world had never seemed so world.
+ - Oh- my twitchy witchy girl I think you are so nice, I give you bowls of porridge And I give you bowls of ice Cream. I give you lots of kisses, And I give lots of hugs, But I never give you sandwiches With bugs In.
+ - You can’t trust other people. If it’s important, you have to do it yourself.
+ - I was a stranger and you took me in. -Joji G. Shoji, d. 1921.
+ - You’ve a good heart. Sometimes that’s enough to see you safe wherever you go. But mostly, it’s not.
+ - When you say words a lot they don’t mean anything. Or maybe they don’t mean anything anyway, and we just think they do.
+ - Time is fluid here’, said the Demon.
+ - Shadow had heard too many people telling each other not to repress their feelings, to let their emotions out, let the pain go. Shadow thought there was a lot to be said for bottling up emotions. If you did it long enough and deep enough, he suspected, pretty soon you wouldn’t feel anything at all.
+ - When the first living thing existed, I was there waiting. When the last living thing dies, my job will be finished. I’ll put the chairs on the tables, turn out the lights and lock the universe behind me when I leave.
+ - As we age, we become our parents; live long enough and we see faces repeat in time.
+ - I do not miss childhood, but I miss the way I took pleasure in small things, even as greater things crumbled. I could not control the world I was in, could not walk away from things or people or moments that hurt, but I took joy in the things that made me happy.
+ - All around me darkness gathers, Fading is the sun that shone, We must speak of other matters, You can be me when I’m gone Flowers gathered in the morning, Afternoon they blossom on, Still are withered in the evening, You can be me when I’m gone.
+ - People think dreams aren’t real just because they aren’t made of matter, of particles. Dreams are real. But they are made of viewpoints, of images, of memories and puns and lost hopes.
+ - So the day became one of waiting, which was, he knew, a sin: moments were to be experienced; waiting was a sin against both the time that was still to come and the moments one was currently disregarding.
+ - I very rarely want to go back and fix things, because I’m much more interested in the next thing, and in taking what I learned from the things that don’t work, and applying them to new things that may work.
+ - The price of getting what you want, is getting what once you wanted.
+ - It’s not irrelevant, those moments of connection, those places where fiction saves your life. It’s the most important thing there is.
+ - There’s not much high and low culture any more: there’s just mingling streams of art and what matters is whether it’s good art or bad art.
+ - Make your mistakes, next year and forever.
+ - A novel seemed the easiest way to get what I had had in my head into the inside of other people’s heads. Books are good that way.
+ - I believe that stories are incredibly important, possibly in ways we don’t understand, in allowing us to make sense of our lives, in allowing us to escape our lives, in giving us empathy and in creating the world that we live in.
+ - A world in which there are monsters, and ghosts, and things that want to steal your heart is a world in which there are angels, and dreams and a world in which there is hope.
+ - Make glorious, amazing mistakes. Make mistakes nobody’s ever made before. Whatever you’re scared of doing, Do it.
+ - This is a work of fiction. All the characters in it, human and otherwise, are imaginary, excepting only certain of the fairy folk, whom it might be unwise to offend by casting doubts on their existence. Or lack thereof.
+ - Talk is free but the wise man chooses when to spend his words.
+ - I would like to see anyone, prophet, king or God, convince a thousand cats to do the same thing at the same time.
+ - I wondered if that was true: if they were all really children wrapped up in adult bodies, like children’s books hidden in the middle of dull, long adult books, the kind with no pictures or conversations.
+ - It is your differences that make you glorious.
+ - Death and Famine and War and Pollution continued biking towards Tadfield. And Grievous Bodily Harm, Cruelty To Animals, Things Not Working Properly Even After You’ve Given Them A Good Thumping but secretly No Alcohol Lager, and Really Cool People travelled with them.
+ - Writing is flying in dreams. When you remember. When you can. When it works. It’s that easy.
+ - A library is a place that is a repository of information and gives every citizen equal access to it. That includes health information. And mental health information. It’s a community space. It’s a place of safety, a haven from the world.
+ - Be wise, because the world needs more wisdom. And if you cannot be wise, pretend to be someone who is wise, and then just behave like they would.
+ - Some things are too big to be seen; some emotions are too huge to be felt.
+ - If you do not value libraries then you do not value information or culture or wisdom. You are silencing the voices of the past and you are damaging the future.
+ - Hearts may break, but hearts are the toughest of muscles, able to pump for a lifetime, seventy times a minute, and scarcely falter along the way. Even dreams, the most delicate and intangible of things, can prove remarkably difficult to kill.
+ - There are lots of artists in the world. But there’s only one you. And the only person who has your point of view is you. If you decide not to make things, all you’ve done is deprive the world of all the stuff that only you could have brought to it.
+ - For me, closing libraries is the equivalent of eating your seed corn to save a little money.
+ - Small children believe themselves to be gods, or some of them do, and they can only be satisfied when the rest of the world goes along with their way of seeing things.
+ - Fiction allows us to slide into these other heads, these other places, and look out through other eyes. And then in the tale we stop before we die, or we die vicariously and unharmed, and in the world beyond the tale we turn the page or close the book, and we resume our lives.
+ - It is sometimes a mistake to climb. It is always a mistake to never make the attempt.
+ - The only advice I can give you is what you’re telling yourself. Only, maybe you’re too scared to listen.
+ - You see with your eyes. This means you can be misled by charm, by outward appearance. By webs of glamour, by surface pretences. I do not see with my eyes. I see good and I see evil. Nothing else.
+ - Dreams shape the world.
+ - I loved writing a book in which, in some ways, it’s very, very classical, and in some ways I’m breaking lots of rules about what you can do and what you can’t do.
+ - It is going to take more than just a couple of good-hearted souls to raise this child. It will take a graveyard.
+ - Writing may or may not be your salvation; it might or might not be your destiny. But that does not matter. What matters right now are the words, one after another. Find the next word. Write it down.
+ - Even if your goose habitually lays golden eggs, it will still be cooked.
+ - The squirrel has not yet found the acorn that will grow to the oak that will be cut to form the cradle of the babe that will grow to slay me.
+ - I’ll find you. Don’t worry. Just be on your own and I’ll find you.
+ - All your questions can be answered, if that is what you want. But once you learn your answers, you can never unlearn them.
+ - For love is no part of the dreamworld. Love belongs to Desire, and Desire is always cruel.
+ - But standing in that hallway, it was all coming back to me. Memories were waiting at the edges of things, beckoning to me.
+ - People kill what they fear. They burned, and drowned, and hanged those they saw as witches, the devil’s servants: the wise women and the cunning men, the unfortunate, the lost and the strange.
+ - Even the proudest spirit can be broken with love.
+ - Even nothing cannot last forever.
+ - You have to believe. Otherwise, it will never happen.
+ - Freedom of speech gives you the right to stay silent.
+ - Yes. We both have a bad feeling. Tonight we shall take our bad feelings and share them, and face them. We shall mourn. We shall drain the bitter dregs of mortality. Pain shared, my brother, is pain not doubled, but halved. No man is an island.
+ - When angels go bad they are worse than anyone else. Remember Lucifer used to be an angel.
+ - Idris: Are all people like this? The Doctor: Like what? Idris: So much bigger on the inside.
+ - Leave no path untaken.
+ - Whenever it rains you will think of her.
+ - It’s not the fish you catch, it’s the peace of mind you take home at the end of the day.
+ - I believe that life is a game, that life is a cruel joke, and that life is what happens when you’re alive and that you might as well lie back and enjoy it.
+ - He was no longer scared of what tomorrow might bring because yesterday has brought it.
+ - I believe that mankind’s destiny lies in the stars...
+ - Growing up, I took so many cues from books. They taught me most of what I knew about what people did, about how to behave. They were my teachers and my advisers.
+ - Things need not have happened to be true. Tales and adventures are the shadow truths that will endure when mere facts are dust and ashes and forgotten.
+ - The Lord of Dreams learns that one must change or die, and makes his decision.
+ - He stared up at the stars: and it seemed to him then that they were dancers, stately and graceful, performing a dance almost infinite in its complexity.
+ - The only water in the forest is the River.
+ - We do not always remember the things that do no credit to us. We justify them, cover them in bright lies or with the thick dust of forgetfulness.
+ - Tristan and Yvaine were happy together. Not forever-after, for Time, the thief, eventually takes all things into his dusty storehouse, but they were happy, as these things go, for a long while.
+ - Walk any path in Destiny’s garden, and you will be forced to choose, not once but many times.
+ - Grown-ups don’t look like grown-ups on the inside either. Outside, they’re big and thoughtless and they always know what they’re doing. Inside, they look just like they always have. Like they did when they were your age. Truth is, there aren’t any grown-ups. Not one, in the whole wide world.
+ - You are an analog girl, living in a digital world.
+ - For some folks death is release, and for others death is an abomination, a terrible thing. But in the end, I’m there for all of them.
+ - I hope the strong women out there aren’t quiet and they don’t go away, because when people attack you for speaking, the best way to drive them nuts is to smile and carry on speaking, louder, more wisely, more intensely, more articulately than ever.
+ - I believe that anyone who claims to know what’s going on will lie about the little things too.
+ - Truly, life is wasted on the living, Nobody Owens. For one of us is too foolish to live, and it is not I.
+ - In order for stories to work – for kids and for adults – they should scare. And you should triumph. There’s no point in triumphing over evil if the evil isn’t scary.
+ - Write. Finish things. Get them published. Write something else while you’re waiting for someone to publish the first thing...
+ - If you, as a parent, raise your children well, they won’t need you anymore. If you did it properly, they go away.
+ - I hope you read some fine books and kiss someone who thinks you’re wonderful.
+ - There’s none so blind as those who will not listen.
+ - How can you be happy in this world? You have a hole in your heart. You have a gateway inside you to lands beyond the world you know. They will call you, as you grow.
+ - There’s an expression, deja vu, that means that you feel like you’ve been somewhere before, that you’ve somehow already dreamed it or experienced it in your mind.
+ - The view changes from where you are standing. Words can wound, and wounds can heal. All of these things are true.
+ - I would feel infinitely more comfortable in your presence if you would agree to treat gravity as a law, rather than one of a number of suggested options.
+ - There is something about riding a unicorn, for those people who still can, which is unlike any other experience: exhilarating, and intoxicating, and fine.
+ - Words save our lives, sometimes.
+ - People take on the shapes of the songs and the stories that surround them, especially if they don’t have their own song.
+ - We owe it to each other to tell stories.
+ - The future came and went in the mildly discouraging way that futures do.
+ - Fiction is the lie that tells the truth, after all.
+ - Too much talking these days. Talk talk talk. This country would get along much better if people learned how to suffer in silence.
+ - Now you people have names. That’s because you don’t know who you are. We know who we are, so we don’t need names.
+ - One thing that I get from a lot of people with American Gods is people saying that they would love some kind of glossary with a list of all the Gods and who they are, so that they can look them up.
+ - It’s not what I’d want for at my funeral. When I die, I just want them to plant me somewhere warm. And then when the pretty women walk over my grave I would grab their ankles, like in that movie.
+ - I once read that you die because you see the Angel of Death, and you fall in love. And you fall in love so hard your soul is sucked out through your eyes, and that’s the moment of death. It’s a lovely, strange old Jewish legend.
+ - Beware of Doors.
+ - I love the auditioning process. I love working with the technical guys. I absolutely love the editing room. That was completely fascinating to me, working with an editor in crafting the thing into something you had in your head.
+ - Sometimes big things happen, and they echo. Those echoes crash across worlds. They are the ripples in the fabric of things. Often they manifest as storms. Reality is a fragile thing, after all.
+ - He wondered whether home was a thing that happened to a place after a while, or if it was something that you found in the end, if you simply walked and waited and willed it long enough.
+ - Make glorious and fantastic mistakes.
+ - I think I’ll dismember the world and then I’ll dance in the wreckage.
+ - When I was a child, adults would tell me not to make things up, warning me of what would happen if I did. As far as I can tell so far, it seems to involve lots of foreign travel and not having to get up too early in the morning.
+ - The war had begun and nobody saw it. The storm was lowering and nobody knew it.
+ - Because if you don’t stand up for the stuff you don’t like, when they come for the stuff you do like, you’ve already lost.
+ - I love making things. I love building things. I love the idea that something’s in the world that wasn’t there before.
+ - There was a hand in the darkness, and it held a knife.
+ - I have always felt that violence was the last refuge of the incompetent, and empty threats the last sanctuary of the terminally inept.
+ - You don’t get heaven or hell. Do you know the only reward you get for being Batman? You get to be Batman.
+ - I like horror, but I tend to like it as seasoning. I’d get very bored if I was told I had to write a horror novel. I’d love to write a novel with horror elements, but too much, and it doesn’t taste of anything else.
+ - We are always living in the final days. What have you got? A hundred years or much, much less until the end of your world.
+ - I know not whether you came to me or I to you. Not whether it was a dream, asleep or awake. I am lost in the darkness of a downcast heart. Dream or reality. Let it be decided tonight.
+ - Where does contagion end and art begin?
+ - Everybody going to be dead one day, just give them time.
+ - Some hats can only be worn if you’re willing to be jaunty, to set them at an angle and to walk beneath them with a spring in your stride as if you’re only a step away from dancing. They demand a lot of you.
+ - I learned to write by writing. I tended to do anything as long as it felt like an adventure, and to stop when it felt like work, which meant that life did not feel like work.
+ - There are some dogs which, when you meet them, remind you that, despite thousands of years of manmade evolution, every dog is still only two meals away from being a wolf.
+ - I have a really high tolerance level for twits. I really do.
+ - If I were only allowed to read or enjoy art or listen to music made by people whose opinions and beliefs were the same as mine, I think the world would be a pretty dismal sort of a place.
+ - It’s like one of those dreams that changes you. You keep some of the dream forever, and you know things down deep inside yourself, because it happened to you, but when you go looking for details they kind of just slip out of your head.
+ - Chicago happened slowly, like a migraine.
+ - I lost some time once. It’s always in the last place you look for it.
+ - There was nowhere they could have gone and they went there anyway.
+ - Normally, in anything I do, I’m fairly miserable. I do it, and I get grumpy because there is a huge, vast gulf, this aching disparity, between the platonic ideal of the project that was living in my head, and the small, sad, wizened, shaking, squeaking thing that I actually produce.
+ - You see, the outcome of the battle is unimportant. What matters is the chaos, and the slaughter.
+ - He had noticed that events were cowards: they didn’t occur singly, but instead they would run in packs and leap out at him all at once.
+ - I know that this is the internet, and we’re all anonymous and all that, but really. It doesn’t hurt to try to be nice.
+ - Really, he thought, if you couldn’t trust a poet to offer sensible advice, who could you trust?
+ - They were having an argument as old and comfortable as an armchair, the kind of argument that no one ever really wins or loses but which can go on forever, if both parties are willing.
+ - Real life doesn’t have to be convincing, but fiction does.
+ - Perhaps this is the ultimate freedom, eh, Dreamlord? The freedom to leave.
+ - When I was 7, my proudest possession would have been my bookshelf ’cause I had alphabetized all of the books on my bookshelf.
+ - I’m willing to make a fool out of myself in public. I’m also willing to make those mistakes that you’re going to make the first time you go out, so hopefully the next time it will be better.
+ - You can’t make me love you.
+ - For the record, I don’t expect you to believe any of this. Not really. I’m a liar by trade, after all; albeit, I like to think, an honest liar.
+ - The tongue is the most remarkable. For we use it both to taste out sweet wine and bitter poison, thus also do we utter words both sweet and sout with the same tongue.
+ - Know that diamonds and roses are as uncomfortable when they tumble from one’s lips as toads and frogs: colder, too, and sharper, and they cut.
+ - Recounting the strange is like telling one’s dreams: one can communicate the events of a dream, but not the emotional content, the way that a dream can colour one’s entire day.
+ - Bod was thrilled. He imagined a future in which he could read everything, in which all stories could be opened and discovered.
+ - The great thing about Batman and Superman, in truth, is that they are literally transcendent. They are better than most of the stories they are in.
+ - All bookshelves are magical.
+ - Information and knowledge: two currencies that have never gone out of style.
+ - Dreams are hopes, and echoes of hope.
+ - Fiction takes us to places that we would never otherwise go, and puts us behind eyes that are not our own.
+ - I really like being able to laugh at my own jokes.
+ - I enjoy writing scripts. I can find out what happens. With an outline, I feel like I’m doing an architectural diagram of something.
+ - Behind the curtain’s mystic fold The glowing future lies unrolled.
+ - Anyone who believes what a cat tells him deserves all he gets.
+ - We are small but we are many We are many we are small We were here before you rose We will be here when you fall.
+ - For some, it was easier to take the leap from the leafless tree and dance on nothing until dancing was done.
+ - After a while it sort of began to rain, which is to say that it was the kind of rain that never comes to a decision about whether it’s actually raining or not. Driving in it, you would never have been certain whether or not to turn on your wipers.
+ - Sometimes we can choose the paths we follow. Sometimes our choices are made for us. And sometimes we have no choice at all.
+ - You’re brave. You are the bravest person I know, and you are my friend. I don’t care if you are imaginary.
+ - Things bloosom in their time. They bud and bloom, blossom and fade. Everything in its time.
+ - Dahling, when God put teeth in your mouth, he ruined a perfectly good arsehole.
+ - You know I love you,? said the other mother flatly. ‘You have a very funny way of showing it,’ said Coraline.
+ - A life that is, like any other, unlike any other.
+ - There aren’t any good guys, and there aren’t any bad guys. There’s just us. People. Doing our best to get by.
+ - The world seemed to shimmer a little at the edges.
+ - I think I’ve got Fear down, but how do I take it all the way up to Terror?
+ - I can believe things that are true and things that aren’t true and I can believe things where nobody knows if they’re true or not.
+ - As sure as water’s wet and days are long and a friend will always disappoint you in the end.
+ - You mourn, for it is proper to mourn. But your grief serves you; you do not become a slave to grief. You bid the dead farewell, and you continue.
+ - Coraline shivered. She preferred her other mother to have a location: if she were nowhere, then she could be anywhere. And, after all, it is always easier to be afraid of something you cannot see.
+ - 25 And the Lord spake unto the Angel that guarded the eastern gate, saying ‘Where is the flaming sword that was given unto thee?’ 26 And the Angel said, ‘I had it here only a moment ago, I must have put it down some where, forget my own head next.’ 27 And the Lord did not ask him again.
+ - I like airplanes. I like anywhere that isn’t a proper place. I like in betweens.
+ - Words can be worrisome, poeple complex, motives and manners unclear, grant her the wisdom to choose her path right, free from unkindness and fear.
+ - Lies and half-truths fall like snow, covering the things that I remember, the things I saw. A landscape, unrecognizable after a snowfall; that is that she has made of my life.
+ - We often confuse what we wish for with what is.
+ - He was alone in the darkness once more, but the darkness became brighter and brighter until it was burning like the sun.
+ - If you are protected from dark things then you have no protection of, knowledge of, or understanding of dark things when they show up.
+ - How would you feel about life if Death was your older sister?
+ - There are so many places we have not yet seen. So many people still to meet.
+ - You attend the funeral, you bid the dead farewell. You grieve. Then you continue with your life. And at times the fact of her absence will hit you like a blow to the chest, and you will weep. But this will happen less and less as time goes on. She is dead. You are alive. So live.
+ - I’m somebody who considers happiness a journey, not a destination.
+ - If it’s true that every seven years each cell in your body dies and is replaced, then I have truly inherited my life from a dead man; and the misdeeds of those times have been forgiven, and are buried with his bones.
+ - On the first day Coraline’s family moved in, Miss Spink and Miss Forcible made a point of telling Coraline how dangerous the well was, and they warned her to be sure she kept away from it. So Coraline set off to explore for it, so that she knew where it was, to keep away from it properly.
+ - Have been unavoidably detained by the world. Expect us when you see us.
+ - First rule of magic: Don’t let anyone know your real name. Names have power.
+ - You could fire a machine gun randomly through the pages of Lord of the Rings and never hit any women.
+ - I liked myths. They weren’t adult stories and they weren’t children’s stories. They were better than that. They just were.
+ - She decides to make a list of the things that make her happy. She writes ‘plum-blossom’ at the top of a piece of paper. Then she stares at the paper, unable to think of anything else. Eventually it begins to get dark.
+ - If he didn’t care about you, you couldn’t upset him.
+ - Nobody will ever hurt her. She’ll just smile her faint vague wonderful smile and walk away.
+ - You people always hold onto old identities, old faces and masks, long after they’ve served their purpose. But you’ve got to learn to throw things away eventually.
+ - Nothing’s changed. You’ll go home. You’ll be bored. You’ll be ignored. No one will listen to you, really listen to you. You’re too clever and too quiet for them to understand. They don’t even get your name right.
+ - I fell for her like a suicide from a bridge.
+ - I watch with envious eyes and mind, the single-souled who dare not feel The wind that blows beyond the moon, who do not hear the fairy reel.
+ - I couldn’t get you to the ocean, but there was nothing stopping me bringing the ocean to you.
+ - I could be blindfolded and dropped into the deepest ocean and I would know where to find you. I could be buried a hundred miles underground and I would know where you are.
+ - I believe that anyone who says that sex is overrated just hasn’t done it properly.
+ - The future had suddenly become unknowable: anything could happen: the train of my life had jumped the rails and headed off across the fields and coming down the lane with me, then.
+ - I have heard the languages of apocalypse, and now I shall embrace the silence.
+ - Going off the grid is always good for me. It’s the way that I’ve started books and finished books and gotten myself out of deadline dooms and things.
+ - A disturbing novel about dreams and wishes, a nightmarish distaff monkey’s paw of a book that it’s impossible to forget. Lisa Tuttle remains our preeminent chronicler of family madness and desire.
+ - It is neither fair nor unfair, Nobody Owens. It simply is.
+ - Sexton: I think the whole world’s gone mad. Death: Uh-uh. It’s always like this. You probably just don’t get out enough.
+ - Goodbyes are overrated.
+ - Goodnight world. While I sleep, I hope you’ll all continue to do whatever it is you do. Unless you murder sleeping authors. Don’t do that.
+ - And there never was an apple, in Adam’s opinion, that wasn’t worth the trouble you got into for eating it.
+ - I think I would rather be a man than a god. We don’t need anyone to believe in us. We just keep going anyhow. It’s what we do.
+ - Hey, that’s life, flick it off if you can’t take a joke.
+ - Any way, death is so final, isn’t it? “Is it?” asked Richard. “Sometimes,” said the marquis de Carabas. And they went down.
+ - We have an obligation to make things beautiful. Not to leave the world uglier than we found it, not to empty the oceans, not to leave our problems for the next generation.
+ - He goes his way. We travel a spiral. The quickest way is sometimes the longest.
+ - Friday’s a free day. A woman’s day.
+ - The fallen autumn leaves were slick beneath Bod’s feet, and the mists blurred the edges of the world. Nothing was as clean-cut as he had thought it, a few minutes before.
+ - London grew into something huge and contradictory. It was a good place, and a fine city, but there is a price to be paid for all good places, and a price that all good places have to pay.
+ - You don’t have to test everything to destruction just to see if you made it right.
+ - Rain in the graveyard, and the world puddled into blurred reflections.
+ - I was kidnapped by aliens, they came down from outer space with ray guns, but I fooled them by wearing a wig and laughing in a foreign accent, and I escaped.
+ - Honestly, if you’re given the choice between Armageddon or tea, you don’t say ’what kind of tea?
+ - The end of the story of Batman is he’s dead. Because, in the end, the Batman dies. What else am I going to do? Retire and play golf? It doesn’t work that way. It can’t. I fight until I drop. And one day, I will drop.
+ - It’s always too late for sorries, but I appreciate the sentiment.
+ - So, if a city has a personality, maybe it also has a soul. Maybe it dreams.
+ - Why are we talking about this good and evil? They’re just names for sides. We know that.
+ - Here you go, she said. I don’t need it anymore. I’m very grateful. I think it may have saved my life, saved some other people’s death.
+ - The past is always knocking at the door, trying to break through into today.
+ - There were faces at the windows and words written in blood; deep in the crypt a lonely ghoul crunched on something that might once have been alive; forked lightnings slashed the ebony night; the faceless were walking; all was right with the world.
+ - Rule one of reading other people’s stories is that whenever you say ‘well that’s not convincing’ the author tells you that’s the bit that wasn’t made up. This is because real life is under no obligation to be convincing.
+ - Trees there were, old as trees can be, huge and grasping with hearts black as sin. Strange trees that some said walked in the night.
+ - Writers may be solitary but they also tend to flock together: they like being solitary together.
+ - That is the eternal folly of man. To be chasing after the sweet flesh, without realizing that it is simply a pretty cover for the bones.
+ - There’s never been a true war that wasn’t fought between two sets of people who were certain they were in the right. The really dangerous people believe they are doing whatever they are doing solely and only because it is without question the right thing to do. And that is what makes them dangerous.
+ - Writers are liars my dear, surely you know that by now?
+ - Being a writer of fiction isn’t like being a compulsive liar, honestly.
+ - The house smelled musty and damp, and a little sweet, as if it were haunted by the ghosts of long-dead cookies.
+ - Hell may have all the best composers, but heaven has all the best choreographers.
+ - I’m just going to stay here, in the darkness under the arch. I can hear you all out there, trip-trapping, trip-trapping over my bridge. Oh yes, I can hear you. But I’m not coming out.
+ - I don’t want whatever I want. Nobody does. Not really. What kind of fun would it be if I just got everything I ever wanted just like that, and it didn’t mean anything? What then?
+ - I decided that I would do my best in the future not to write books just for money. If you didn’t get the money then you didn’t have anything. If I did the work I was proud of and I didn’t get the money, at least I’d have the work.
+ - I saw the world I had walked since my birth and I understood how fragile it was, that the reality was a thin layer of icing on a great dark birthday cake writhing with grubs and nightmares and hunger.
+ - It seemed to Coraline that it was crouching, and staring down at her, as if it were not really a house but only the idea of a house – and the person who had had the idea, she was certain, was not a good person.
+ - I make art, sometimes I make true art, and sometimes it fills the empty places in my life. Some of them. Not all.
+ - Work. Home. The pub. Meeting girls. Living in the city. Life. Is that all there is?
+ - That’s sexism, that is. Going around giving people girly presents just because they’re a girl.
+ - I like reading. I prefer not reading on my computer, because that makes whatever I am reading feel like work. I do not mind reading on my iPad.
+ - It’s easier to lie to yourself when you say things out loud.
+ - If a Devil is one who dares, when others hold back, then I am happy to play the Devil in this Mystery, boy.
+ - This was the void. Not blackness, not nothingness. This was what lay beneath the thinly painted scrim of reality.
+ - Discontent is a good thing: discontented people can modify and improve their worlds, leave them better, leave them different.
+ - The only thing that kept me going was stories. Stories are hope. They take you out of yourself for a bit, and when you get dropped back in, you’re different- you’re stronger, you’ve seen more, you’ve felt more. Stories are like spiritual currency.
+ - While clothes do not, as the saying would sometimes have it, make the man, and fine feathers do not make fine birds, sometimes they can add a certain spice to a recipe.
+ - Where magic is concerned, there is always an initial decision, an initial willingness to let it enter your life. If that is not there neither is magic.
+ - A god’s relationship to the world, even a world in which he was walking, was about as emotionally connected as that of a computer gamer playing with knowledge of the overall shape of the game and armed with a complete set of cheat codes.
+ - Stories are made up by people who make them up. If they work, they get retold. There’s the magic of it.
+ - I believe that all men are just overgrown boys with deep problems communicating.
+ - That’s the trouble with living things. Don’t last very long. Kittens one day, old cats the next. And then just memories. And the memories fade and blend and smudge together.
+ - It’s an artist’s job to show people the world they live in. We hold up mirrors.
+ - We wrapped our dreams in words and patterned the words so that they would live forever, unforgettable.
+ - Something told him that something was coming to an end. Not the world, exactly. Just the summer. There would be other summers, but there would never be one like this. Ever again.
+ - I believe in absolute honesty and sensible social lies.
+ - I came to the conclusion that in comedy, everybody gets what they need, whereas in horror, everybody gets what they deserve. I decided that at the end of the day, I was going to give everybody what they needed.
+ - A story only matters, I suspect, to the extent that the people in the story change.
+ - Fear is contagious. You can catch it. Sometimes all it takes is for someone to say that they’re scared for the fear to become real. Mo was terrified, and now Nick was too.
+ - Words can wound, and wounds can heal.
+ - Media. I think I have heard of her. Isn’t she the one who killed her children?
+ - And, too ignorant to be scared, too young to be awed, Tristan Thorn traveled beyond the fields we know...
+ - He couldn’t see why people made such a fuss about people eating their silly old fruit anyway, but life would be a lot less fun if they didn’t. And there was never an apple, in Adam’s opinion, that wasn’t worth the trouble you got into for eating it.
+ - Nobody gets through life without losing a few things on the way.
+ - There are little pockets of old time in London, where things and places stay the same, like bubble in amber.
+ - I love learning. I tend to stop doing things once I get good at them, and to try something else I’m not as good at, leaving a bunch of fans going, “But he was really good at that. Why isn’t he still doing it?”
+ - To be Despair. It is a portrait. Only close your eyes and feel.
+ - The really important thing to be was yourself, just as hard as you could.
+ - There’s this thing, they have in french: L’espirit d’escalier. The spirit of the stairway. I don’t think we have a word for it in English. It means, well, the clever things to say that you only think to yourself when you’re on the way out.
+ - I started blogging a decade ago because I like blogging. Writing’s a kind of lonely thing to do, and I liked the idea of demystifying the process because I loved it as a kid and teenager and as somebody who wanted desperately to write.
+ - Do you know why I stopped being Delight, my brother? I do. There are things not in your book. There are paths outside this garden.
+ - Chicago happened slowly, like a migraine. First they were driving through countryside, then, imperceptibly, the occasional town became a low suburban sprawl, and the sprawl became the city.
+ - From meetings and partings none can ever escape. Nor from magic.
+ - As far as I’m concerned, the entire reason for becoming a writer is not having to get up in the morning.
+ - The world is always ending, and the end is always being averted, by love or foolishness or just plain old dumb luck.
+ - The imagination is a muscle. If it is not exercised, it atrophies.
+ - Chantal is having a relationship with a sentence. Just one of those things. A chance meeting that grew into something important for the both of them.
+ - Everybody who has ever read Sandman knows exactly what the Sandman looks like, which is more than anybody who has ever read The Catcher in the Rye can say about Holden Caufield.
+ - Joy and sorrow are like milk and cookies. That’s how well they go together.
+ - I don’t think you get perfect couples. At best you get two people building something, and working at it, and loving each other, and doing their best to communicate.
+ - Can’t make an omelette without killing a few people.
+ - Until that moment she had never thought she could do it. Never thought she would be brave enough or scared enough, or desperate enough to dare.
+ - Adults should not weep, I knew. They did not have mothers who would comfort them.
+ - A nice, easy place for freedom of speech to be eroded is comics, because comics are a natural target whenever an election comes up.
+ - I was not happy as a child, although from time to time I was content. I lived in books more than I lived anywhere else.
+ - She had the feeling that the door was looking at her, which she knew was silly, and knew on a deeper level was somehow true.
+ - I remembered that, and, remembering that, I remembered everything.
+ - Note for Americans and other aliens: Milton Keynes is a new city approximately halfway between London and Birmingham. It was built to be modern, efficient, healthy, and, all in all, a pleasant place to live. Many Britons find this amusing.
+ - The boy had the towering arrogance only seen in the greatest of artists and all nine-year-old boys.
+ - There were people you could hug, and then there was Silas.
+ - I felt very much like a hooker who had just been told she was a lady of the evening.
+ - You got a lifetime. No more. No less.
+ - What should I believe? thought Shadow, and the voice came back to him from somewhere deep beneath the world, in a bass rumble: Believe everything.
+ - You’re sick. Sick and evil and weird.
+ - This little piggy went to Hades This little piggy stayed home This little piggy ate raw and steaming human flesh This little piggy violated virgins And this little piggy clambered over a heap of dead bodies to get to the top.
+ - Her other mother smiled brightly and the hair on her head drifted like plants under the sea.
+ - She smiled at Coraline, as if it had been a very long time since she had smiled and she had almost, but not quite, forgotten how.
+ - It has always been the perogative of children and half-wits to point out that the emperor has no clothes. But the half-wit remains a half-wit, and the emperor remains an emperor.
+ - The biggest difference between England and America is that England has history, while America has geography.
+ - You know what killed off the dinosaurs, Whateley? We did. In one barbecue.
+ - When I was young I was a fool. So wrap me up in dreams and death.
+ - He was painfully shy, which, as is often the manner of the painfully shy, he overcompensated for by being too loud at the wrong times.
+ - Have you ever had one of those days when something just seems to be trying to tell you somebody?
+ - I mean, maybe I am crazy. I mean, maybe. But if this is all there is, then I don’t want to be sane.
+ - It’s not hard to own something. Or everything. You just have to know that it’s yours, and then be willing to let it go.
+ - I wonder if I shall ever see her again, and I realize that I scarcely care. I can feel the sheets beneath me, and the cold air on my chest. I feel fine. I feel absolutely fine. I feel nothing at all.
+ - Sometimes I think that ideas float through the atmosphere like huge squishy pumpkins, waiting for heads to drop on.
+ - I feel like I am involved in an obscure and complex version of poker in a pitch-dark room, with blank cards, for infinite stakes, with a dealer who won’t tell me the rules, and who smiles all the time.
+ - Without dreams, there could be no despair.
+ - You know, it’s weird being interviewed! Because the weird thing about being interviewed is you get asked these questions that you’ve never thought about, and you find out what you think as you answer.
+ - I wish being a beekeeper, which I am, gave you a free pass on the carbon footprint, but it doesn’t.
+ - Agnes was the worst prophet that’s ever existed. Because she was always right. That’s why the book never sold.
+ - Also, I’ve already won all the awards.
+ - People populate the darkness; with ghosts, with gods, with electrons, with tales.
+ - I think most things are pretty magical, and that it’s less a matter of belief than it is one of just stopping to notice.
+ - You must never imagine, that just because something is funny, it is not also dangerous.
+ - The names are the first things to go, after the breath has gone, and the beating of the heart. We keep our memories longer than our names.
+ - One thing I’ve learned: you can know anything, it’s all there, you just have to find it.
+ - And, selfish and scared, I wonder how much more he has to give.
+ - Eyes as black and as shiny as chips of obsidian stared back into his. They were eyes like black holes, letting nothing out, not even information.
+ - Diana used to tell me she had a travel jinx, something I only really started to believe when the plane door fell off.
+ - She found herself to be quite worried that something would jump out at her, so she began to whistle. She thought it might make it harder for things to jump out at her, if she was whistling.
+ - You can’t run away from home without destroying somebody’s world.
+ - It was a dream, and in dreams you have no choices: either there are no decisions to be made, or they were made for you long before ever the dream began.
+ - I must confess, I have always wondered what lay beyond life, my dear. Yeah, everybody wonders. And sooner or later everybody gets to find out.
+ - Daisy looked up at him with the kind of expression that Jesus might have given someone who had just explained that he was probably allergic to bread and fishes, so could He possibly do him a quick chicken salad...
+ - He felt her heart beating against his chest. The moment began to transmute, and he wondered if there was something he should do. He wondered if he should kiss her. He wondered if he wanted to kiss her, and he realized that he truly didn’t know.
+ - I watch my heart disappearing into her rosebud mouth. My Valentine’s jest somehow seems less funny.
+ - Touched by her fingers, the two surviving chocolate people copulate desperately, losing themselves in a melting frenzy of lust, spending the last of their brief borrowed lives in a spasm of raspberry cream and fear.
+ - Sometimes I wish that just solving the plot problems was enough. And then elves would go and do all the actual work moving the words around.
+ - It’s not sipping wine. It’s a mourning wine. You drain it. Like this.
+ - He shivered. His coat was thin, and it was obvious he would not get his kiss, which he found puzzling. The manly heroes of the penny dreadfuls and shilling novels never had these problems getting kissed.
+ - Peas baffled me. I could not understand why grown-ups would take things that tasted so good raw, and then put them in tins, and make them revolting.
+ - When you die, they can make you into diamonds now. It’s scientific. That’s how I want to be remembered. I want to shine.
+
+500 quotes

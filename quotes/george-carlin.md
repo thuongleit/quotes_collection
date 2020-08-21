@@ -1,0 +1,502 @@
+ - Never underestimate the power of stupid people in large groups.
+ - Never argue with an idiot. They will only bring you down to their level and beat you with experience.
+ - Think of how stupid the average person is, and realize half of them are stupider than that.
+ - Those who dance are considered insane by those who cannot hear the music.
+ - Everyone smiles in the same language.
+ - Some people have no idea what they're doing, and a lot of them are really good at it.
+ - The reason I talk to myself is because I’m the only one whose answers I accept.
+ - Most people work just hard enough not to get fired and get paid just enough money not to quit.
+ - Always do whatever’s next.
+ - Fighting for peace is like screwing for virginity.
+ - Religion is like a pair of shoes. Find one that fits for you, but don't make me wear your shoes.
+ - Scratch any cynic and you will find a disappointed idealist.
+ - Have you ever noticed that anybody driving slower than you is an idiot, and anyone going faster than you is a maniac?
+ - Here's all you have to know about men and women: women are crazy, men are stupid. And the main reason women are crazy is that men are stupid.
+ - If it's true that our species is alone in the universe, then I’d have to say the universe aimed rather low and settled for very little.
+ - If the black box flight recorder is never damaged during a plane crash, why isn't the whole airplane made out of that stuff? 
+ - It's never just a game when you're winning.
+ - The caterpillar does all the work, but the butterfly gets all the publicity.
+ - Men are from Earth, women are from Earth. Deal with it.
+ - A house is just a place to keep your stuff while you go out and get more stuff.
+ - There are nights when the wolves are silent and only the moon howls. 
+ - Tell people there’s an invisible man in the sky who created the universe, and the vast majority will believe you. Tell them the paint is wet, and they have to touch it to be sure.
+ - People who see life as anything more than pure entertainment are missing the point.
+ - That’s why they call it the American Dream, because you have to be asleep to believe it.
+ - I think it's the duty of the comedian to find out where the line is drawn and cross it deliberately. 
+ - Isn't it a bit unnerving that doctors call what they do "practice"?
+ - The main reason Santa is so jolly is because he knows where all the bad girls live.
+ - If you can’t beat them, arrange to have them beaten.
+ - If you love someone set them free. If they come back, set them on fire.
+ - Religion is just mind control.
+ - What if there were no hypothetical questions?
+ - Atheism is a non-prophet organization.
+ - In America, anyone can become president. That’s the problem.
+ - Test of Metal: Will of Iron, Nerves of Steel, Heart of Gold, Balls of Brass.
+ - If you try to fail, and succeed, which have you done?
+ - Just cause you got the monkey off your back doesn’t mean the circus has left town.
+ - People who say they don’t care what people think are usually desperate to have people think they don’t care what people think.
+ - Some people see things that are and ask, Why? Some people dream of things that never were and ask, Why not? Some people have to go to work and don’t have time for all that.
+ - I have lots of ideas. Trouble is, most of them suck.
+ - Honesty may be the best policy, but it’s important to remember that apparently, by elimination, dishonesty is the second-best policy.
+ - The planet isn’t going anywhere. We are.
+ - I don’t have a fear of heights. I do, however, have a fear of falling from heights.
+ - I have as much authority as the Pope. I just don’t have as many people who believe it.
+ - I went to a bookstore and asked the saleswoman, ‘Where’s the self-help section?’ She said if she told me, it would defeat the purpose.
+ - When you’re born into this world, you’re given a ticket to the freak show. If you’re born in America you get a front row seat.
+ - Not only do I not know what’s going on, I wouldn’t know what to do about it if I did.
+ - Give a man a fish and he will eat for a day. Teach him how to fish, and he will sit in a boat and drink beer all day.
+ - Never let the brain idle. ‘An idle mind is the devil’s workshop.’ And the devil’s name is Alzheimer’s.
+ - I do this real moron thing, and it’s called thinking. And apparently I’m not a very good American because I like to form my own opinions.
+ - The real reason that we can’t have the Ten Commandments in a courthouse: You cannot post “Thou shalt not steal,” “Thou shalt not commit adultery,” and “Thou shalt not lie” in a building full of lawyers, judges, and politicians. It creates a hostile work environment.
+ - May the forces of evil become confused on the way to your house.
+ - I’m happy to tell you there is very little in this world that I believe in.
+ - I was thinking about how people seem to read the Bible a whole lot more as they get older; then it dawned on me – they’re cramming for their final exam.
+ - They say that instead of cursing the darkness, one should light a candle. Nothing is mentioned, though, about cursing a lack of candles.
+ - Don’t sweat the petty things and don’t pet the sweaty things.
+ - Ever wonder about those people who spend $2 apiece on those little bottles of Evian water? Try spelling Evian backward.
+ - How come when it’s us, it’s an abortion, and when it’s a chicken, it’s an omelette?
+ - I had no shoes, and I felt sorry for myself until I met a man who had no feet. I took his shoes. Now I feel better.
+ - If you vote and you elect dishonest, incompetent people into office who screw everything up, you are responsible for what they have done. You caused the problem; you voted them in; you have no right to complain.
+ - There’s no present. There’s only the immediate future and the recent past.
+ - Trying to be happy by accumulating possessions is like trying to satisfy hunger by taping sandwiches all over your body.
+ - We think in language. The quality of our thoughts and ideas can only be as good as the quality of our language.
+ - Weather forecast for tonight: dark. Continued dark overnight, with widely scattered light by morning.
+ - We are a nation of sheep, and someone else owns the grass.
+ - When I ask how old your toddler is, I don’t need to hear ‘27 months.’ ‘He’s two’ will do just fine. He’s not a cheese. And I didn’t really care in the first place.
+ - The future will soon be a thing of the past.
+ - If at first you don’t succeed, redefine success.
+ - I respect animals. I have more sympathy for an injured or dead animal than I do for an injured or dead human being, because human beings participate and cooperate in their own undoing. Animals are completely innocent. There are no innocent human beings.
+ - Surround yourself with what you love.
+ - So, have a little fun. Soon enough you’ll be dead and burning in Hell with the rest of your family.
+ - I would never want to be a member of a group whose symbol was a guy nailed to two pieces of wood.
+ - I don’t have to tell you it goes without saying there are some things better left unsaid. I think that speaks for itself. The less said about it the better.
+ - Laugh often, long and loud. Laugh until you gasp for breath.
+ - When fascism comes to America, it will not be in brown and black shirts. It will not be with jack-boots. It will be Nike sneakers and Smiley shirts. Germany lost the Second World War. Fascism won it. Believe me, my friend.
+ - Life is a series of dogs.
+ - If someone with multiple personalities threatens to kill himself, is it considered a hostage situation?
+ - The status quo sucks.
+ - One tequila, two tequila, three tequila, floor.
+ - I thought about how mothers feed their babies with tiny little spoons and forks so I wondered, what do Chinese mothers use? Toothpicks?
+ - People always tell me “Have a nice day.” Well what if I don’t want to? What if I want to have a crappy day?
+ - My mother would say, ‘Why are you always playing alone?’ And I would say, ‘I’m not playin’, Ma. I’m fuckin’ serious!
+ - Catholic, which I was until I reached the age of reason.
+ - The IQ and the life expectancy of the average American recently passed each other in opposite directions.
+ - People love to admit they have bad handwriting or that they can’t do math. And they will readily admit to being awkward: ‘I’m such a klutz!’ But they will never admit to having a poor sense of humor or being a bad driver.
+ - I was a loner as a child. I had an imaginary friend – I didn’t bother with him.
+ - The Christians gave Him Sunday, the Jews gave Him Saturday, and the Muslims gave Him Friday. God has a three-day weekend.
+ - Electricity is really just organized lighting.
+ - Don’t give your money to the church. They should be giving their money to you.
+ - Why is it called tourist season if we can’t shoot at them?
+ - Let a smile be your umbrella, and you’ll end up with a face full of rain.
+ - Swimming is not a sport. Swimming is a way to keep from drowning. That’s just common sense!
+ - Frisbeetarianism is the belief that when you die, your soul goes up on the roof and gets stuck.
+ - Conservatives want live babies so they can train them to be dead soldiers.
+ - Isn’t making a smoking section in a restaurant like making a peeing section in a swimming pool?
+ - Regarding the fitness craze: America has lost its soul; now it’s trying to save its body.
+ - If everyone in the world sat quietly at the same time, closed their eyes and concentrated as hard as they could on peace and goodwill, all the killing and cruelty in the world would continue. And probably increase.
+ - And although I broke a lot of laws as a teenager, I straightened out immediately upon turning eighteen, when I realized the state had a legal right to execute me.
+ - Never forget that Hitler was a Catholic.
+ - When someone asks you, A penny for your thoughts, and you put your two cents in, what happens to the other penny?
+ - There will be a rain dance Friday night, weather permitting!
+ - If God created everything, he’s got a serious quality control problem.
+ - Life is a near-death experience.
+ - Oh Beautiful for smoggy skies, insecticided grain, For strip-mined mountain’s majesty above the asphalt plain. America, America, man sheds his waste on thee, And hides the pines with billboard signs, from sea to oily sea.
+ - There are three kinds of people: those who can count, and those who cannot.
+ - Save the trees, save the bees, save the whales, save those snails.
+ - We get what we deserve. They are our elected officials.
+ - We think in language. We think in words. Language is the landscape of thought.
+ - Some people see the glass half full. Others see it half empty. I see a glass that’s twice as big as it needs to be.
+ - The surgeon general warned today that saliva causes stomach cancer. But apparently only when swallowed in small amounts over a long period of time.
+ - There are no bad words. Bad thoughts. Bad intentions, and wooooords.
+ - I don’t get all choked up about yellow ribbons and American flags. I consider them to be symbols and I leave symbols to the symbol minded.
+ - Hard work is for people short on talent.
+ - There’s a humorous side to every situation. The challenge is to find it.
+ - Sun worship is fairly simple. There’s no mystery, no miracles, no pageantry, no one asks for money, there are no songs to learn, and we don’t have a special building where we all gather once a week to pare compare clothing.
+ - I’m a high-tech low-life. A cutting edge, state-of-the-art bi-coastal multi-tasker and I can give you a gigabyte in a nanosecond!
+ - You show me a tropical fruit and I’ll show you a cocksucker from Guatemala.
+ - Tits always look better in a pink sweater.
+ - If God is all powerful, can He make a stone so big that He Himself can’t lift it?
+ - If honesty were suddenly introduced into American life, the whole system would collapse.
+ - There are women named Faith, Hope, Joy, and Prudence. Why not Despair, Guilt, Rage, and Grief? It seems only right. ‘Tom, I’d like you to meet the girl of my dreams, Tragedy.’ These days, Trajedi.
+ - That invisible hand of Adam Smith’s seems to offer an extended middle finger to an awful lot of people.
+ - Have you ever wondered why Republicans are so interested in encouraging people to volunteer in their communities? It’s because volunteers work for no pay. Republicans have been trying to get people to work for no pay for a long time.
+ - The Baby Boomers: whiny, narcissistic, self-indulgent people with a simple philosophy: “Gimme that! It’s mine!”
+ - Let’s not have a double standard. One standard will do just fine.
+ - I used to be Irish Catholic. Now I’m an American – you know, you grow.
+ - War is rich old men protecting their property by sending middle class and lower class young men off to die. It always has been.
+ - A crumb is a great thing: If you break a crumb in half, you don’t get two half-crumbs, you get two crumbs. Doesn’t that violate some law of physics?
+ - So far, this is the oldest I’ve been.
+ - The following statement is true. The previous statement is false.
+ - Life is not measured by the breathes you take, but by the moments that take your breathe away.
+ - If you want to get rid of counterfeit money, put it in the collection plate at church.
+ - They say if you outlaw guns, only outlaws will have guns. Well, those are precisely the people who need them!
+ - If you’re looking for self-help, why would you read a book written by somebody else?
+ - Even in a fake democracy, people ought to get what they want once in a while.
+ - Just when I discovered the meaning of life, they changed it.
+ - If all the world is a stage, where is the audience sitting?
+ - The Christians are coming to get you, and they are not pleasant people.
+ - Is a vegetarian permitted to eat animal crackers?
+ - How is it possible to have a civil war?
+ - The word bipartisan usually means some larger-than-usual deception is being carried out.
+ - Mother’s milk leads to everything.
+ - Pacifism is a nice idea but it can get you killed. We’re not there yet. Evolution is slow, small pox is fast.
+ - Avoid teams at all cost. Keep your circle small. Never join a group that has a name.
+ - If you had chicken at lunch and chicken at dinner, do you ever wonder if the two chickens knew each other?
+ - Governments don’t want a population capable of critical thinking, they want obedient workers, people just smart enough to run the machines and just dumb enough to passively accept their situation.
+ - Age is a hell of a price to pay for wisdom.
+ - Property is theft. Nobody “owns” anything. When you die, it all stays here.
+ - To me, fast food is when a cheetah eats an antelope.
+ - Kilometers are shorter than miles. Save gas, take your next trip in kilometers.
+ - My first rule: I don’t believe anything the government tells me.
+ - Christians worship a dead Jew on a stick.
+ - If you live long enough, sooner or later everybody you know has cancer.
+ - The god excuse, the last refuge of a man with no answers and no argument.
+ - I have this real moron thing I do? It’s called thinking.
+ - If this is the best God can do, I’m not impressed.
+ - If you you think there is a solution, you’re part of the problem.
+ - What wine goes with Captain Crunch?
+ - What was the best thing before sliced bread?
+ - The truth is, Pavlov’s dog trained Pavlov to ring this bell just before the dog salivated.
+ - Religion is like drugs, it destroys the thinking mind.
+ - The phrase surgical strike might be more acceptable if it were common practice to perform surgery with high explosives.
+ - Scientists announced today that they have discovered a cure for apathy. However, they claim no one has shown the slightest interest in it.
+ - Soft rock music isn’t rock, and it ain’t music. It’s just soft.
+ - More people have been killed in the name of God than for any other reason.
+ - People say life begins at conception, I say life began about a billion years ago and it’s a continuous process.
+ - We are all precancerous.
+ - He is dead now, but he meant well.
+ - The only good thing ever to come out of religion was the music.
+ - Well, if crime fighters fight crime and fire fighters fight fire, what do freedom fighters fight? They never mention that part to us, do they?
+ - I also survived circumcision, a barbaric practice designed to remind you as early as possible that your genitals are not your own.
+ - Spirituality: the last refuge of a failed human. Just another way of distracting yourself from who you really are.
+ - We talk too much, love too seldom, and hate too often.
+ - How do you write zero in Roman numerals?
+ - In Hawaii they say, “aloha.” That’s a nice one, It means both “hello” and “good-bye” Which just goes to show, if you spend enough time in the sun you don’t know whether you’re coming or going.
+ - Don’t take guilt trips. Take a trip to the mall, to the next county, to a foreign country, but NOT to where the guilt is.
+ - Environmentalists changed the word jungle to rain forest, because no one would give them money to save a jungle. Same with swamps and wetlands.
+ - I never joined the Boy Scouts. I don’t trust any organization that has a handbook.
+ - Tell the people you love that you love them, at every opportunity.
+ - When it comes to God’s existence, I’m not an atheist and I’m not agnostic. I’m an acrostic. The whole thing puzzles me.
+ - If the reason for climbing Mt. Everest is that it’s hard to do, why does everyone go up the easy side?
+ - One great thing about getting old is that you can get out of all sorts of social obligations just by saying you’re too tired.
+ - We’ve learned how to make a living, but not a life. We’ve added years to life, not life to years.
+ - Do you remember Barbara Bush? I call her the silver douchebag.
+ - They mention that it’s a nonstop flight. Well, I must say I don’t care for that sort of thing. Call me old fashioned, but I insist that my flight stop. Preferably at an airport.
+ - The highly motivated people in society are the ones causing all the trouble. It’s not the lazy unmotivated folks sitting in front of a TV eating potato chips who bother anyone.
+ - Traditional American values: Genocide, aggression, conformity, emotional repression, hypocrisy, and the worship of comfort and consumer goods.
+ - The secret of success is doing something you love, doing it well and being recognized for it.
+ - If people stand in a circle long enough, they’ll eventually begin to dance.
+ - Flowers are one of the few things we buy, bring home, watch die, and we don’t ask for our money back.
+ - If a movie is described as a romantic comedy, you can usually find me next door playing pinball.
+ - Cherish your health: If it is good, preserve it. If it is unstable, improve it. If it is beyond what you can improve, get help.
+ - Baseball begins in the spring, the season of new life. Football begins in the fall, when everything’s dying.
+ - Pardon me I’ve got nothing to say.
+ - If it requires a uniform, it’s a worthless endeavor.
+ - Have you ever started a path? No one seems willing to do this. We don’t mind using existing paths, but we rarely start new ones. Do it today. Start a path. Even if it doesn’t lead anywhere.
+ - Life is tough, then you die.
+ - Irony deals with opposites; it has nothing to do with coincidence.
+ - More people write poetry than read it.
+ - Hooray for most things!
+ - Bowling is not a sport because you have to rent the shoes. When Will Jesus Bring the Pork Chops? This title offends all three major religions, and even vegetarians!
+ - Weather forecast for tonight: dark.
+ - A pear is a failed apple.
+ - One thing leads to another? Not always. Sometimes one thing leads to the same thing. Ask an addict.
+ - Religion has actually convinced people that there’s an invisible man living in the sky.
+ - There is a planet named Pluto, but we don’t have one named Goofy. Goofy would be a good name for this planet. It certainly qualifies.
+ - All the media and the politicians ever talk about is things that separate us, things that make us different from one another.
+ - A cat will blink when struck with a hammer.
+ - Sometimes a little brain damage can help.
+ - Regarding jam sessions: Jazz musicians are the only workers I can think of who are willing to put in a full shift for pay and then go somewhere else and continue to work for free.
+ - If you have selfish, ignorant citizens, you’re gonna get selfish, ignorant leaders.
+ - If a painting can be forged well enough to fool experts, why is the original so valuable?
+ - If a turtle doesn’t have a shell, is he homeless or naked?
+ - Conservatives say if you don’t give the rich more money, they will lose their incentive to invest. As for the poor, they tell us they’ve lost all incentive because we’ve given them too much money.
+ - All messages from Satan are played forward and are in standard American English.
+ - With the proper training, I could’ve been an evil genius.
+ - If a pig loses its voice, is it disgruntled?
+ - I’m 63 now. But that’s just 17 Celsius.
+ - Some people think of the glass as half full. Some people think of the glass as half empty. I think of the glass as too big.
+ - When I was young I used to read about the decline of Western civilization, and I decided it was something I would like to make a contribution to.
+ - The good lord tripped me up behind the line of scrimmage.
+ - I make fun of people who are religious, because they’re fundamentally weak.
+ - Why doesn’t Tarzan have a beard.
+ - Future historians will be able to study at the Jimmy Carter Library, the Gerald Ford Library, the Ronald Reagan Library, and the Bill Clinton Adult Bookstore.
+ - That’s the whole meaning of life, isn’t it? Trying to find a place for your stuff.
+ - It used to be cars had cool names: Dart, Hawk, Fury, Cougar, Firebird, Hornet, Mustang, Barracuda. Now we have Elantra, Altima, Acura, Lumina, Sentra, Corolla, Maxima, Tercel. Further proof that America has lost its edge.
+ - The things they don’t tell you in schools these days, geez. Have a look at your owners. The politicians are put there to give you the idea you have freedom of choice. You don’t. You have no choice; you have owners. They own you. They own everything.
+ - If the shoe fits, buy another one just like it.
+ - Movies and television don’t make you violent; all they do is channel the violence more creatively.
+ - If you ask me, we could do with a little less motivation. – The people who are causing all the trouble seem highly motivated to me. – Serial killers, stock swindlers, drug dealers, Christian Republicans.
+ - I quit school in ninth grade, even though I was good at the studies. I knew I didn’t need school for what I wanted.
+ - Can placebos cause side effects? If so, are the side effects real?
+ - Think off center.
+ - Language is a tool for concealing the truth. If we could read each other’s minds, this would be a horror show.
+ - I’m sure Hitler was great with his family.
+ - I knew a transsexual guy whose only ambition is to eat, drink, and be Mary.
+ - There are actually people who go out and re-fight these battles. You know what I say? Use real ammunition! You just might raise the intelligence level of the American gene pool!
+ - I’m in shape. Round is a shape.
+ - Praying is begging for an unseen deity to alter the laws of nature for someone admittedly unworthy.
+ - Give now. Somewhere, someone feels crappy. You can help.
+ - The writing is what gives me the joy, especially editing myself for the page, and getting something ready to show to the editors, and then to have a first draft and get it back and work to fix it, I love reworking, I love editing, love love love revision, revision, revision, revision.
+ - I recently went to a new doctor and noticed he was located in something called the Professional Building. I felt better right away.
+ - I go to bed early; my favorite dream comes on at nine.
+ - I went straight from shenanigans to crimes against humanity.
+ - The sicker you get, the harder it is to remember if you took your medicine.
+ - In the Navy, there is no wrong hole. In the Marines, there is always a hole.
+ - One time. In 1965. August, for about an hour, I was both fine AND dandy at the same time. But nobody asked me how I was.
+ - My tombstone? I’m thinking something along the lines of, ‘Geez, he was just here a minute ago.’
+ - Hey! Who stole my collection of used bandages?! And they also got away with my nude pictures of Ernest Borgnine!
+ - If a lobster didn’t look like a sci-fi monster, people would be less able to drop him alive into boiling water.
+ - If the cops didn’t see it, I didn’t do it!
+ - On Thanksgiving, you realize you’re living in a modern world. Millions of turkeys baste themselves in millions of ovens that clean themselves.
+ - Dogs lead a nice life. You never see a dog with a wristwatch.
+ - Baby boomers helped me a great deal in my career. They launched me. They were there for me to sing my song to. And I’m not saying I’m better than anyone, but I think they turned that anti-authority baby boom mentality into their own enemy. Now I identify very closely with their children.
+ - Some people try to get out of jury duty by lying. You don’t have to lie. Tell the judge the truth. Tell him you’d make a terrific juror because you can spot guilty people.
+ - Once you leave the womb, conservatives don’t care about you until you reach military age. Then you’re just what they’re looking for. Conservatives want live babies so they can raise them to be dead soldiers.
+ - I hope we’re not just human garbage drifting toward a big sewer. But I think so.
+ - Censorship that comes from the outside assumes about people an inability to make reasoned choices.
+ - Y’ever notice how you never seem to get laid on Thanksgiving? I think it’s because all the coats are on the bed.
+ - Sex always has consequences. When Hitler’s mother spread her legs that night, she effectively canceled out the spreading of fifteen to twenty million other pairs of legs.
+ - And, of course, the funniest food: “kumquats”. I don’t even bring them home anymore. I sit there laughing and they go to waste.
+ - Marry an orphan: you’ll never have to spend boring holidays with the in-laws.
+ - The safest place to be during an earthquake would be in a stationary store.
+ - If voting changed anything, it would be illegal.
+ - If drumsticks are for playing drums, you would think that breadsticks would be for playing bread, wouldn’t you? “Would you like some breadsticks?” “No, thank you, I don’t play bread. I play drums. Perhaps I’ll have a drum roll.”
+ - I kind of like it when a lot of people die, and on the other hand I always wonder how many unused frequent-flier miles they had.
+ - A flag is supposed to represent everything that a country does. It doesn’t only represent the good things. If you burn the flag, you’re burning the flag for what you perceive to be the bad things the country has done. it’s only a symbol. It’s only a piece of cloth.
+ - O. J. Simpson has already received the ultimate punishment: For the rest of his life he has to associate with golfers.
+ - Never give up on an idea simply because it is bad and doesn’t work.
+ - Golf is an arrogant, elitist game that takes up entirely too much space in this country.
+ - I don’t have hobbies; hobbies cost money. Interests are quite free.
+ - Israeli murderers are called “commandos,” Arab commandos are called “terrorists.”
+ - Twat is twat and that is that.
+ - The day after tomorrow is the third day of the rest of your life.
+ - At a formal dinner party, the person nearest death should always be seated closest to the bathroom.
+ - The Golden Gate Bridge should have a long bungee cord for people who aren’t quite ready to commit suicide but want to get in a little practice.
+ - Baseball is the only major sport that appears backwards in a mirror.
+ - Rhetoric paints with a broad brush.
+ - People get all upset about torture, but when you get right down to it, it’s really a pretty good way of finding out something a person doesn’t want you to know.
+ - Obviously, there are people who constrict themselves and build walls around themselves, whether it’s from a moral standpoint or a patriotic standpoint, or just plain old conformity, and who therefore live in those little prisons, and when things breach those walls, it’s shocking for them.
+ - We created god in our own image and likeness!
+ - Avoid people with gold teeth who want to play cards.
+ - If a parsley farmer is sued, can they garnish his wages?
+ - When he got loaded, the human cannonball knew there were not many men of his caliber.
+ - I like to control my environment, because I feel if I have my physical space in order, then I’m free to dream. So there is some compulsion involved. But the dividend I get is the freedom to be totally disorderly in my dreamworld.
+ - Would a fly without wings be called a walk?
+ - Things I wonder about the FBI’s list of the “Ten Most Wanted” criminals: When they catch a guy and he comes off the list, does number eleven automatically move up? And does he see it as a promotion? Does he call his criminal friends and say, “I made it, Bruno. I’m finally on the list”?
+ - I never eat sushi. I have trouble eating things that are merely unconscious.
+ - Somehow I enjoy watching people suffer.
+ - For a while, I thought of myself as an atheist until I realized it was a belief, too. It’s a shame everything has to have a label.
+ - When I hear a person talking about political solutions, I know I am not listening to a serious person.
+ - This country was founded by a group of slave owners who told us that all men are created equal.
+ - Why do they bother saying “raw sewage”? Do some people actually cook that stuff?
+ - One good reason to only maintain a small circle of friends is that three out of four murders are committed by people who know the victim.
+ - Why do we say something is out of whack? What is a whack?
+ - If someone loves you and they leave and don’t come back, it was never meant to be. If someone loves you and they leave and come back, set them on fire.
+ - We have multiplied our possessions, but reduced our values.
+ - McDonald’s breakfast for under a dollar is actually more expensive than that. You have to factor in the cost of bypass surgery.
+ - As you swim the river of live, do the breast stroke. It helps to clear the turds from your path.
+ - Jesus was a cross-dresser.
+ - I don’t like the phrase shock value. Surprise is essential in comedy, and if people are shocked by what I consider merely surprising, then that’s their shock. But there is no joke without surprise.
+ - The mayfly lives only one day. And sometimes it rains.
+ - Death is caused by swallowing small amounts of saliva over a long period of time.
+ - E-I-E-I-O is actually a gross misspelling of the word farm.
+ - Why do overlook and oversee mean opposite things?
+ - You have to be realistic about terrorism. Certain groups of people, certain groups, Muslim fundamentalists, Christian fundamentalists, Jewish fundamentalists, and just plain guys from Montanta, are going to continue to make life in this country very interesting for a long, long time.
+ - I’m kinda like herpes, I just keep coming back.
+ - People tell you to have a safe trip, as if you have some control over it.
+ - What hair color do they put on the driver’s licenses of bald men?
+ - In football the object is to march into enemy territory and cross his goal. In baseball the object is to go home.
+ - In high school, when I first heard of entropy, I was attracted to it immediately. They said that in nature all systems are breaking down, and I thought, What a wonderful thing; perhaps I can make some small contribution to this process, myself.
+ - If a man smiles all the time, he’s probably selling something that doesn’t work.
+ - By and large, language is a tool for concealing the truth.
+ - I find it discouraging – and a bit depressing – when I notice the unequal treatment afforded by the media to UFO believers on the one hand, and on the other, to those who believe in an invisible supreme being who inhabits the sky.
+ - The older you get, the better you realize you were.
+ - I always wanted and enjoyed sex, but I never put much importance on scoring or having an athletic sex life. I guess I define myself more by my career and my commitment to a relationship than by my ability to have a lot of chicks or achieve ten orgasms in an evening.
+ - And this should go without saying. That’s why I’m going to say it: Drinking and driving don’t mix. Do your drinking early in the morning and get it out of the way. Then go driving while the visibility is still good.
+ - As soon as someone is identified as an unsung hero, he no longer is.
+ - Leftovers make you feel good twice. First, when you put it away, you feel thrifty and intelligent: ‘I’m saving food!’ Then a month later when blue hair is growing out of the ham, and you throw it away, you feel really intelligent: ‘I’m saving my life!’
+ - Cloud nine gets all the publicity, but cloud eight actually is cheaper, less crowded, and has a better view.
+ - What do dogs do on their day off?; Can’t lie around – that’s their job!
+ - Good news for senior citizens: Death is near!
+ - So I live in Los Angeles, and it’s kind of a goofy place. They have an airport named after John Wayne. That ought to explain it. It has a charming kind of superstitious innocence.
+ - And, of course, the funniest food of all, kumquats.
+ - Life is not that complicated.
+ - People who ask “Can I ask you a question?” Didn’t really give me a choice, did ya there buddy?
+ - I never worry that all hell will break loose. My concern is that only part of hell will break loose and be much harder to detect.
+ - Where do we get our values from?
+ - Surround yourself with what you love, whether it’s family, pets, keepsakes, music, plants, hobbies, whatever.
+ - So I want to thank the Pentagon, the Soviet Union and the military-industrial complex from the bottom of my heart. Without them, I could never have become the man I am today.
+ - When someone is impatient and says, ‘I haven’t got all day,’ I always wonder, How can that be? How can you not have all day?
+ - You never see a smiling runner.
+ - I don’t like to think of laws as rules you have to follow, but more as suggestions.
+ - Children are not our future, and I can prove it with my usual, flawless logic. Children can’t be our future, because by the time the future arrives, they won’t be children anymore, so blow me!
+ - I’ve set my own rules to live by. The first one is: ‘Never believe ANYthing the government says.’
+ - Before they invented drawing boards, what did they go back to?
+ - I like Florida. Everything is in the 80s. The temperatures, the ages and the IQ’s.
+ - One of the first things they teach you in Driver’s Ed is where to put your hands on the steering wheel. They tell you put ‘em at ten o’clock and two o’ clock. Never mind that. I put mine at 9:45 and 2:17. Gives me an extra half hour to get where I’m goin’.
+ - There’s this man who lives in the sky, and he has ten things he doesn’t want you to do, and you’ll burn for a long time if you do them. But he loves you.
+ - Matt 13:57. Then Jesus told them, ‘A prophet is honored everywhere except in his own hometown and among his own family.’ The other night I ate at a real nice family restaurant. Every table had an argument going.
+ - Don’t confuse my point of view with cynicism. The real cynics are the ones who tell you that everything’s gonna be all right.
+ - What year did Jesus think it was?
+ - I hope no one asks me to show them the ropes; I have no idea where they are. Maybe I could pull some strings and find out.
+ - I believe you can joke about anything.
+ - The radio ad “Hi, I’m Jeff Healey from the Jeff Healey Band. Don’t drink and drive. I don’t”. Well, I hope you don’t drive sober either Mr. Healey. You’re blind for God’s sake!
+ - Voting is a meaningless exercise. I’m not going to waste my time with it. These parties, these politicians are given to us as a way of making us feel we have freedom of choice. But we don’t. Everything is done to you in this country.
+ - Sometimes when I’m told to use my own discretion, if no one is looking I’ll use someone else’s. But I always put it back.
+ - Germany lost the Second World War. Fascism won it. Believe me, my friend.
+ - You know an odd feeling? Sitting on the toilet eating a chocolate candy bar.
+ - Intelligence tests are biased toward the literate.
+ - I was once dancing with a woman who told me she had a yeast infection so I told her to bake me some bread.
+ - Don Ho can sign autographs 3.4 times faster than Efrem Zimbalist Jr.
+ - I’m not collegial, I don’t hang out. I’m soloist, I like my solitude, I don’t really hang around with comedians.
+ - Some national parks have long waiting lists for camping reservations. When you have to wait a year to sleep next to a tree, something is wrong.
+ - If you’ve got a cat and a leg, you’ve got a happy cat. If you’ve got a cat and two legs, you’ve got a party.
+ - I am not a complete vegetarian. I eat only animals that have died in their sleep.
+ - No one ever says, ‘It’s only a game’ when their team is winning.
+ - You can’t be the fastest gun in town forever. There comes a time when you’re not the golden boy, and you have to go off somewhere and figure yourself out.
+ - Politicians are put there to give you the idea that you have freedom of choice. You don’t.
+ - The main reason women are crazy, is that men are stupid.
+ - Everything beeps now.
+ - If all our national holidays were observed on Wednesdays, we could wind up with nine-day weekends.
+ - Have you noticed when you wear a hat for a long time it feels like it’s not there anymore? And then when you take it off it feels like it’s still there?
+ - The bloodiest, most brutal wars fought, all based on religious hatred. Which is fine with me! Any time a bunch of holy people want to go out and kill each other I’m a happy guy!
+ - No one knows what’s next, but everybody does it.
+ - Leadership camp? Isn’t that where Hitler went?
+ - Every day I break my own personal record for number of days I have been alive.
+ - I don’t believe there’s any problem in this country, no matter how tough it is, that Americans, when they roll up their sleeves, can’t completely ignore.
+ - And off we go, out onto the highway looking for a little fun. Perhaps a flatbed truck loaded with human cadavers will explode in front of a Star Trek reunion. One can only dream and hope.
+ - Personally, emotionally, I’d rather divorce myself from the world than face the heartbreak of partial success. Because partial success implies overwhelming failure.
+ - Put two things together which have never been put together before, and some schmuck will buy it.
+ - Eventually, alas, I realized the main purpose of buying cocaine is to run out of it.
+ - Heart disease has changed my eating habits, but I still cook bacon for the smell.
+ - If a word is misspelled in the dictionary, how would we ever know? If Webster wrote the first dictionary, where did he find the words? Why is ‘phonics’ not spelled the way it sounds? How come abbreviated is such a long word?
+ - Have you ever noticed that the lawyer always smiles more than the client?
+ - What does it mean to pre-board? Do you get on before you get on?
+ - If I ever lose my mind I hope some honest person will find it and take it to Lost and Found.
+ - You know what I like about the American form of government? They’ve worked things out so that you’re never far from a 7-Eleven.
+ - Number one, one, one on wonderful WINO.
+ - Griddle cakes, pancakes, hot cakes, flapjacks: why are there four names for grilled batter and only one word for love?
+ - The more syllables a euphemism has, the further divorced from reality it is.
+ - When cheese gets its picture taken, what does it say?
+ - It’s a “keep your fingers crossed” business, the entertainment business.
+ - The Human Species could have been great but instead we became satisfied with lights on our tennis shoes.
+ - President George Bush declared a National Day of Prayer for Peace. This was after he had carefully arranged and started the war.
+ - A scary dream makes your heart beat faster. Why doesn’t the part of your brain that controls your heartbeat realize that another part of your brain is making the whole thing up? Don’t these people communicate?
+ - Why are a ‘wise man’ and a ‘wiseguy’ opposites?
+ - I love and treasure individuals as I meet them, I loath and despise the groups they identify or belong to.
+ - My father? My father left when I was quite young. Well actually, he was asked to leave. He had trouble metabolizing alcohol.
+ - All patriarchal societies are either preparing for war, at war, or recovering from war.
+ - Cancer research is a growth industry.
+ - I don’t own a camera, so I travel with a police sketch artist.
+ - The keys to America: The cross, the brew, the dollar, and the gun.
+ - Next time you see someone sleeping, make believe you’re in a science fiction movie. And whisper, ‘The creature is regenerating itself.’
+ - All music is the blues. All of it.
+ - One can never know for sure what a deserted area looks like.
+ - Humor is based on surprise, and surprise is a milder way of saying shock. It’s surprise that makes the joke.
+ - Is there another word for synonym?
+ - We’re having something a little different this year for Thanksgiving. Instead of a turkey, we’re having a swan. You get more stuffing.
+ - Ah, to be a bird. To fly the skies, sing my song, and best of all occasionally peck someone’s eyes out.
+ - I can remember staring at the orphanage and feeling envy.
+ - History is not happenstance: it is conspiratorial. Carefully planned and executed by people in power.
+ - People have material needs, but you don’t need a deodorant for every different day of the week. You don’t need four hundred varieties of mustard. This is what I call too many choices. There are too many choices in America.
+ - Suppose I could shoot myself in the mouth, but what if I miss? People will laugh at me.
+ - I went through the usual stages: imp, rascal, scalawag, whippersnapper. And, of course, after that it’s just a small step to full-blown sociopath.
+ - When you visualize the recent past, do you see it as being somewhere over on the left?
+ - I’ve never seen a homeless guy with a bottle of Gatorade.
+ - I finally accepted Jesus. not as my personal savior, but as a man I intend to borrow money from.
+ - Cigarette companies market heavily to young people. They need young customers because their product kills the older ones. It is the only product that, if used as intended, kills the consumer.
+ - Interesting form of murder we come up with: Assassination. We assassinate people who’ve told us to live together in harmony and try to love one another. Apparently we are not ready to live together.
+ - Bowling is not a sport because you have to rent the shoes.
+ - What occurs as you age is an accumulation of information, data, knowledge, and what I’m going to call the matrix of the mind. There’s just a rich, textured, field of information and impressions that have been all networked by the brain.
+ - No matter what you do, no matter how hard you try, you’re screwed because it’s all fixed and rigged. There is a club and you ain’t in it.
+ - Religion is a self-conferred intellectual decision; it’s not something you get at birth and is unchangeable. You’re collusive with the religion when you accept it; you have a choice.
+ - Political discourse has been reduced to “Where’s the beef?” “Read my lips,” and “Make my day.” Where are the assassins when we really need them?
+ - I put a dollar in one of those change machines. Nothing changed.
+ - Never get on an airplane if the pilot is wearing a hat that has more than three pastel colors.
+ - In some hotels they give you a little sewing kit. You know what I do? I sew the towels together. One time I sewed a button on a lampshade. I like to leave a mark.
+ - Why do croutons come in airtight packages? It’s just stale bread to begin with.
+ - There’s some invisible guy, up in the sky, who can kill you, because he loves you.
+ - I’m always relieved when someone is delivering a eulogy and I realize I’m listening to it.
+ - No, there’s no God, but there might be some sort of an organizing intelligence, and I think to understand it is way beyond our ability. It’s certainly not a judgmental entity. It’s certainly not paternalistic and all these qualities that have been attributed to God.
+ - I hate Dr Phil. Dr Phil told me to express my feelings, so I’m expressing them.
+ - God bless the homicidal maniacs. They make life worthwhile.
+ - Before they give you a lethal injection, they swab your arm with alcohol. It’s true. Well, they don’t want you to get an infection, and you can see their point. They don’t want some guy go to hell and be sick.
+ - At 68 I’m every age I ever was. I always think of that. I’m not just 68. I’m also 55 and 21 and three. Oh especially three.
+ - Why should it be illegal to sell something that’s perfectly legal to give away?
+ - I couldn’t commit suicide if my life depended on it.
+ - I gravitated toward being a funny guy. I liked the radio comedians. I lived in the Golden Age of radio, and the Golden Age of television came along when I was still in my early teens.
+ - Anger is a handy term and words are tricky, as we know. What one man perceives as anger, another person – in my case the deliverer of material – is, “Don’t you see it, don’t you see how badly you’re doing?” It’s like shaking a child – which you’re not supposed to do.
+ - You ever notice that? Any time you see two groups of people who really hate each other, chances are good they’re wearing different kind of hats. Keep an eye on that, it might be important.
+ - Does killing time damage eternity?
+ - I think people should be allowed to do anything they want. We haven’t tried that for a while. Maybe this time it’ll work.
+ - Why do they put Braille on the drive-through bank machines?
+ - We will never be an advanced civilization as long as rain showers can delay the launching of a space rocket.
+ - I was looking in the mirror the other day and I realized I haven’t changed much since I was in my twenties. The only difference is I look a whole lot older now.
+ - In TV today, you can say I pricked my finger, but you can’t say it the other way around.
+ - Every time you use the phrase all my life it has a different meaning.
+ - Capitalism tries for a delicate balance: It attempts to work things out so that everyone gets just enough stuff to keep them from getting violent and trying to take other people’s stuff.
+ - The other night I ate at a real nice family restaurant. Every table had an argument going.
+ - I’ve never been quarantined. But the more I look around the more I think it might not be a bad idea.
+ - Christian Deodorant: “Thou Shalt Not Smell”
+ - I’ve never owned a telescope, but it’s something I’m thinking of looking into.
+ - Although the photographer and the art thief were close friends, neither had ever taken the other’s picture.
+ - When you step on the brakes your life is in your foot’s hands.
+ - Soft rock music isn’t rock, and it ain’t music. It’s just soft. Reminds me of something my third-grade teacher said to us. She said, “You show me a tropical fruit and I’ll show you a cocksucker from Guatemala.”
+ - Singing is basically a form of pleasant, controlled screaming.
+ - The symphony orchestra had played poorly, so the conductor was in a bad mood. That night he beat his wife – because the music hadn’t been beautiful enough.
+ - When you think about it, attention-deficit order makes a lot of sense. In this country there isn’t a lot worth paying attention to.
+ - The next time a prostitute solicits your business, ask for the clergyman’s rate.
+ - The straightest line between a straight distance is two points.
+ - Sudden total weight loss.
+ - In adolescence you have to separate yourself and establish your identity. So, being very independent anyway, I took charge.
+ - Part of the pleasure of being alive is the knowledge that you’re not dead yet.
+ - Some people think that words can injure the psyche or the moral fiber. And they really can’t.
+ - But then you turn 30. Oooohh, what happened there? Makes you sound like bad milk! He TURNED; we had to throw him out. There’s no fun now, you’re Just a sour-dumpling. What’s wrong? What’s changed?
+ - Dusting is a good example of the futility of trying to put things right. As soon as you dust, the fact of your next dusting has already been established.
+ - Writing is really wonderful art. A lot of this is discovery. A lot of things are lying around waiting to be discovered and that’s our job as writers is to just notice them and bring them to life.
+ - I was kind of sweet kid, according my mother, and my recollections. Thoughtful and good, but kind of alone – although I didn’t interpret it that way, as such. Children never interpret these things. They think they understand logically.
+ - Why do they lock gas station bathrooms? Are they afraid someone will clean them?
+ - A crazy person doesn’t really lose his mind. It just becomes something more entertaining.
+ - I profess no belief in God, which by definition is true, especially if we take the accepted definition of God. But to be an atheist is to also have a belief, and have a system, and I don’t know that I like that either.
+ - Religion is the worst thing that ever happened to mankind – the ironic part is that it’s presented as a good thing, and its effect is absolutely catastrophic to individuals and to societies.
+ - If churches want to play the game of politics, let them pay admission like everyone else.
+ - I think we’re part of a greater wisdom that we will ever understand; a higher order, call it what you want. Know what I call it? The Big Electron. It doesn’t punish, it doesn’t reward, it doesn’t judge at all. It just is.
+ - The child molester skipped breakfast, but said he’d grab a little something on the way to work.
+ - I don’t consider myself a cynic. I think of myself as a skeptic and a realist.
+ - There are ten thousand people in the United States in a persistent vegetative state. Just enough to start a small town. Think of them as veggie-burghers.
+ - I believe my first duty is to survive. And I’m not just talking about criminals coming into my home. I once seriously considered getting a gun to protect myself from the police. If I need a weapon to continue living, I’ll get one. And I’ll use it.
+ - You know who would make an interesting murder-suicide? Madeline Albright and Yanni.
+ - Hitler never bothered with restaurant reservations; he just dropped by. And somehow they always found him a table.
+ - I often wonder how different the world would be if Hitler had not been turned down when he applied to art school.
+ - If Helen Keller had psychic ability, would you say she had a fourth sense? What year did Jesus think it was?
+ - If you have a legal problem, guess how you determine whether or not you need a lawyer. You see a lawyer. Isn’t that weird?
+ - The whole problem with this idea of obscenity and indecency, and all of these things – bad language and whatever – it’s all caused by one basic thing, and that is: religious superstition.
+ - Granola didn’t sell very well when it was good for you. Now it has caramel, chocolate, marshmallow, saturated fat and sweeteners with a small amount of oats and grains. Sales picked up.
+ - I don’t vote. We’re led to believe we’re free through the exercise of ineffective freedoms.
+ - Shopping and buying and getting and having comprise the Great American Addiction. No one is immune. When the underclass riots in this country they don’t kill policemen and politicians, they steal merchandise. How embarrassing.
+ - Why do ‘slow down’ and ‘slow up’ mean the same thing? Why is the third hand on the watch called the second hand?
+ - As far as I’m concerned, humans have not yet come up with a belief that’s worth believing.
+ - You’re all going to die. I hate to remind you, but it is on your schedule. It probably won’t happen when you’d like; generally, it’s an inconvenience.
+ - Comedy, although it is not one of the fine arts – it’s a vulgar art, it’s one of the people’s arts, it’s the spoken word, the writing that goes into it is an art form – it’s certainly artistry.
+ - I’m a believer that things happen. Fate is what happens.
+ - Comedy is a socially acceptable form of hostility and aggression. That is what comics do, stand the world upside down.
+ - If lawyers are disbarred and clergymen defrocked, doesn’t it follow that electricians can be delighted, musicians denoted?
+ - I think it’s important to break taboos for the same reason it’s important to break laws and rules – because either you’re a slave to them, or you’re taking matters into your hands.
+ - To be intoxicated is to feel sophisticated, but not be able to say it.
+ - Running isn’t a sport because anyone can do it. Anything we can all do can’t be a sport. I can run, you can run. My mother can run, you don’t see her on the cover of Sports Illustrated do you?
+ - If two baseball players from the same hometown, on different teams, receive the same uniform number, it is not ironic. It is a coincidence. If Barry Bonds attains lifetime statistics identical to his father’s, it will not be ironic. It will be a coincidence.
+ - I enjoy watching a woman with really bad teeth and a good sense of humor struggling to use her lips and tongue to hide her teeth when she’s laughing. I just stand there and tell her joke after joke after joke.
+ - Energy experts have announced the development of a new fuel made from human brain tissue. It’s called assohol.
+ - In Rome, the emperor sat in a special part of the Colosseum called the Caesarian Section.
+ - The whole idea of the pursuit of goods and possessions has completely corrupted the human experience, along with religion, which I think limits the intellect.
+ - I’m not a person who thinks they can have it all, but I certainly feel that with a bit of effort and guile I should be able to have more than my fair share.
+ - When Thomas Edison worked late into the night on the electric light, he had to do it by gas lamp or candle. I’m sure it made the work seem that much more urgent.
+ - It’s legal for men to be floorwalkers and illegal for women to be streetwalkers.
+ - A dog has no shame. If he can do it, you can watch.
+ - A lot of times when they catch a guy who killed twenty-seven people, they say, He was a loner. Well, of course he was a loner; he killed everyone he came in contact with.
+ - How old are you? ‘I’m four and a half!’ You’re never thirty-six and a half. You’re four and a half, going on five! That’s the key.
+ - There may or may not be atheists in foxholes, but I’m certain there are none in the Ku Klux Klan.
+ - Do you think Sammy Davis ate Junior Mints?
+
+500 quotes

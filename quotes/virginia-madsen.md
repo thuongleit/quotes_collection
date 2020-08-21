@@ -1,0 +1,29 @@
+ - Do something good for yourself today. You matter.
+ - Dune was really my first Hollywood job. It was such a small part, but I opened the movie. I was about 19 years old and I had to make this speech, and I didn’t understand most of the words because they were, you know, words from Dune.
+ - It would be good if you opened your heart to the fullness of time and spirit.
+ - I really didn’t like Batgirl. I was like, “No, if I’m not gonna be Batman, I’m not gonna play.” Maybe they could write an evil female super villain who takes over Batman, and nobody knows.
+ - I am a proud mother – that’s another reason I love doing any kind of animation. When my son was growing up, if he was watching something animated and I was in it, that was way cooler to him than seeing me in a movie.
+ - If my son would only listen to my advice, he would lead a perfect life. I’ll still be saying that to him when I’m 75. I like to imagine that I have the control, but he’s a teenager, so that never really happens.
+ - I was not a comic book reader, but my son is. My son wasn’t really interested in reading books, which was hard for me because I love to read. It just didn’t come naturally to my boy. So we kind of found comic books because they were fascinating to him. They were great stories.
+ - I was always an actress, even as a little kid, and fantasy, horror, sci-fi stories are really all about playing make believe. I just never grew out of that.
+ - I like how wine continues to evolve, like if I opened a bottle of wine today it would taste different than if I’d opened it on any other day, because a bottle of wine is actually alive. And it’s constantly evolving and gaining complexity.
+ - They were made up names in Dune that I didn’t know how to pronounce, but I knew how I should sound because I was a sci-fi fan myself. I hadn’t read the book, but I knew that I was the princess of the universe. I went in and sort of made her up, and David Lynch thought it matched and cast me.
+ - Voiceover work reminds me of old-time radio. When I was little I used to sneak and stay up at night and listen to Mystery Radio Theater – I loved all those old radio plays.
+ - I’m a fan. I would have been a fan of Candyman even if I hadn’t been in that movie. I’m a huge fan of Star Trek, which is why I was in Star Trek: Voyager – because I begged them to be a part of that lore.
+ - I love when I get to play these characters that are bigger than life. There are roles in animation that I never get to do in real life – and it appeals to my ego as an actor to play the Queen of Everything. I admit it.
+ - Everything that I play as an actress is a different aspect of me.
+ - I spend a lot of time at my son’s school and I really wanted to do a movie that the kids could see. The good thing about being my age and not having to be the ingenue anymore is that I get to be a mom. I get to have kids in my movies.
+ - I always tell actors, “Don’t think of it as unemployment when you don’t have a job. You have to think of it as being in preparation for your next job.” You have to be always preparing for success.
+ - The actor side of me loves to get dressed up and I feel like Cinderella when I’m in diamonds.
+ - I have good genes. My father is Danish and my mother is Irish and Native American. They both have good skin.
+ - I want every movie to be like a big family and a great adventure.
+ - I love Keri Russell. I watched every episode of Felicity, and Waitress is my favorite film. I like her voice a lot – it didn’t surprise me that she would be doing voiceover work.
+ - To me it meant, just looking at it from a Maya point of view, it meant that Paul Miles is always moving laterally in his life. And she just wants him to take a couple of steps forward, you know?
+ - It’s almost like I get to be more theatrical when I work in voiceover.
+ - When I was growing up, the really, really cool super heroes were all male – so I wanted to be them.
+ - In animation, there’s silly things I get to do with my voice. I get to have a wider range, so my voice gets to dance more than it does on camera.
+ - Our audience is all the girls who made Britney a huge star. Those are the girls who bought the book. I didn’t read the book at first. I read the script just to see what I would think of the script and I really liked it.
+ - You know, we’re not on stage, we’re not doing a play, so we don’t have a relationship with the audience but going through that process and also just hearing how much people love the film, you feel like you do have a relationship with the audience.
+ - I have to read comic books all first, because now when you get into graphic novels, they are definitely in deep graphic.
+
+27 quotes

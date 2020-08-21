@@ -1,0 +1,24 @@
+ - We say that a sentence is factually significant to any given person, if, and only if, he knows how to verify the proposition which it purports to express.
+ - Even logical positivists are capable of love.
+ - It appears, then, that ethics, as a branch of knowledge, is nothing more than a department of psychologyand sociology.
+ - No morality can be founded on authority, even if the authority were divine.
+ - While moral rules may be propounded by authority the fact that these were so propounded would not validate them.
+ - I see philosophy as a fairly abstract activity, as concerned mainly with the analysis of criticism and concepts, and of course most usefully of scientific concepts.
+ - But if science may be said to be blind without philosophy, it is true also that philosophy is virtually empty without science.
+ - The traditional disputes of philosophers are, for the most part, as unwarranted as they are unfruitful.
+ - We shall maintain that no statement which refers to a ’reality’transcending the limits of all possible sense- experience can possibly have any literal significance.
+ - I saw a Divine Being. I’m afraid I’m going to have to revise all my various books and opinions.
+ - Why should you mind being wrong if someone can show you that you are?
+ - The only possible basis for a sound morality is mutual tolerance and respect: tolerance of one another’s customs and opinions; respect for one another’s rights and feelings; awareness of one another’s needs.
+ - Theism is so confused and the sentences in which “God” appears so incoherent and so incapable of verifiability or falsifiability that to speak of belief or unbelief, faith or unfaith, is logically impossible.
+ - No moral system can rest solely on authority.
+ - Bertrand Russell would not have wished to be called a saint of any description; but he was a great and good man.
+ - If the assertion that there is a god is nonsensical, then the atheist’s assertion that there is no god is equally nonsensical, since it is only a significant proposition that can be significantly contradicted.
+ - There never comes a point where a theory can be said to be true. The most that one can claim for any theory is that it has shared the successes of all its rivals and that it has passed at least one test which they have failed.
+ - It is possible to be a meta-physician without believing in a transcendent reality; for we shall see that many metaphysical utterances are due to the commission of logical errors, rather than to a conscious desire on the part of their authors to go beyond the limits of experience.
+ - I take it, therefore, to be a fact, that one’s existence ends with death. I think it possible to show how this fact can be emotionally acceptable.
+ - I do not believe in God. It seems to me that theists of all kinds have very largely failed to make their concept of a deity intelligible; and to the extent that they have made it intelligible, they have given us no reason to think that anything answers to it.
+ - The ground for taking ignorance to be restrictive of freedom is that it causes people to make choices which they would not have made if they had seen what the realization of their choices involved.
+ - It seems that I have spent my entire life trying to make life more rational and that it was all wasted effort.
+
+22 quotes

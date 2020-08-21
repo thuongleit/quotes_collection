@@ -1,0 +1,34 @@
+ - Smile, don’t frown. Look up don’t look down. Believe in yourself Don’t let yourself go. Just be who you are. And let your live flow.
+ - If we worried half as much what others are doing for us and spent twice as much time helping others, we would all be exponentially happier.
+ - It’s funny. No matter how hard you try, you can’t close your heart forever. And the minute you open it up, you never know what’s going to come in. But when it does, you just have to go for it! Because if you don’t, there’s not point in being here.
+ - The thing about me is, I don’t care what religion you are. If someone is attacking your religion, I will have your back, and I will defend you. I think that is the most repulsive thing a person can do, attack another person’s faith.
+ - I had the halfway house. I can’t tell how many nights I spent around my kitchen table, soothing broken hearts.
+ - People change, not necessarily in negative ways. Sometimes goals and intentions in life aren’t aligned. It’s just choices we make in life. Otherwise, why aren’t we with the person we were with in seventh grade?
+ - It’s amazing how coke encompasses everything in your life. Addicts cannot confront life because they only think of their next hit. I ruined life for my parents, my sister and all my friends.
+ - When I play ball, I play hardball.
+ - I took an acting class for 10 seconds before I played a lead in a student movie. I showed the film to an agent who said he would send me on interviews but wouldn’t sign me.
+ - My food demons are Chinese food, sugar, butter.
+ - When you are generalizing, and when your goal is to malign and to say things about an entire group – there are tens of millions of Scientologists in the world – when you decide to blanket statement that ‘Scientology is evil,’ you are my enemy.
+ - I liked animals more than people! OK, I liked certain people, but the idea of mankind’-it really irritated me!
+ - God gave us intestines for a reason. I’m not keen on surgery. It’s too extreme. All it took was one of those plastic surgery shows to see how violent it is.
+ - One time, I brought Prince to the set. He’s a friend of mine, and he asked to come. Everyone wanted to meet him, but he’s a little shy.
+ - To tell you the honest-to-God truth: without Scientology, I would be dead. So, I can personally highly recommend it.
+ - I sort of feel sorry for the next man who gets me. I may just kill him with passion. He’d better be strong and have a good heart!
+ - You’re not going to live your life unscathed.
+ - I was a Scientologist before I was an actress, and I’ve always felt people are not only content with whatever religion I have, but are always interested.
+ - When I was straight, I had the courage and energy to become an actress. I owe my career to my will to stop using.
+ - I think that probably all religions sound bizarre to the people who are not the practitioners of them.
+ - I have a hotline to the tabloids. When I get up in the morning, I call the Star, and the last thing at night, I call them. I want them to have the inside track.
+ - I have to be below 140 to really look good. I have to work my legs like crazy. Actually, do you want my real goal? My real goal’s always too low. I love the way I look at, like, 128.
+ - When you’re the spokeswoman for a weight-loss program, everything is witnessed. I weigh in once a week with a witness. I have to sign an affidavit saying I cannot have any surgeries.
+ - I am a little klutzy and self-deprecating. I fit in with the rest of the losers.
+ - I don’t smoke pot. I never liked it.
+ - You are not in business to be popular.
+ - I’d like to prove to women my age that there can still be good years ahead of us.
+ - For some reason I am one of those people who act like they were born and raised during the Depression.
+ - I was born to do sitcoms, where you get an immediate response from the audience.
+ - I’m totally inhibited. When I’m overweight I will not go out.
+ - Look for someone who has a complete life without you in it. If you have a person you don’t need for anything, that’s ideal. You’re just together because you really want to be.
+ - Through history, people look for something spiritual. The greatest scientists in the world were men of religion and faith, too.
+
+32 quotes

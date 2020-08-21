@@ -1,0 +1,40 @@
+ - Success is a decision, not a gift.
+ - If you have positive energy you will always attract positive outcomes.
+ - It is action that creates motivation.
+ - If obstacles are large, jump higher.
+ - Like everything in life, it is not what happens to you but how you respond to it that counts.
+ - Act like a champion, and then become one.
+ - Explore. Train your conscious mind and your subconscious mind to start working for you by getting those great powers to move in a new direction. Start creating your own good luck today.
+ - Share your aspirations only with those who will support you, not those who will respond with doubt or lack of interest.
+ - If you are able to focus unswervingly on your goals, then all that you desire will become yours.
+ - When you think a positive thought, you become positive.
+ - If you remain static and wait for success to come to you it will certainly not happen.
+ - Invest your energy in the things you can control.
+ - The first step is the most important. It is the most crucial and the most effective as it will initiate the direction you have chosen.
+ - For many, lack of achievement is more a consequence of fear of taking a chance and getting uncomfortable.
+ - Trust in your own beliefs or succumb to the influence of others’.
+ - Mix with positive-minded people as a means to tap into your unexploited potential.
+ - Look for solutions, instead of being difficult; be more thoughtful, instead of allowing anger to burn you out. Look at things from a different perspective, embrace change, look out for opportunities and you will feel much more in control.
+ - The thrust of continuous action is the firewood which fuels motivation.
+ - You can start to change your luck today. Begin believing that you can have what you desire and superior things will arrive.
+ - The only test is what you see when you look in a mirror.
+ - A mind filled with negative thoughts makes you feel miserable and inadequate and will lead to failure after failure no matter how hard you try to succeed.
+ - The people and successes in your life mirror your beliefs.
+ - Too often, people get stuck in a state of over-thinking, the result is that they never reach a decision.
+ - See it first in your mind, then become it.
+ - The challenge for you is to decide not what is important, but what is most important and then focus your attention on that.
+ - It is never about who is right or wrong, it is about what is best.
+ - Tell me your thinking, and I’ll tell you what your life looks like.
+ - It is true to say that the secret of a winning formula is the ability to accept that there is a vast area of unexploited potential beyond what you currently perceive to be your maximum.
+ - Athletes who are able to stay completely focused in pursuit of their dreams are the ones that are most likely to become champions.
+ - You have to create your self-belief by going to your core to find the probable reasons for the negativity in you, and then demolish them.
+ - Just identify the very first physical action you need to take, and do it.
+ - Do you want to know what one of the secrets to achieving all of your goals is? You’ve got to be committed.
+ - Every time a champion makes a decision they have a chance to learn something new, regardless of the outcome.
+ - The way forward is to stop pestering yourself for answers and let it, the creative part of your mind, come up with the solution when the time is right.
+ - If you want to continue to be the best in the world, then you have to train and compete like you are second best in the world.
+ - It is one thing to know what should be done, it is another to do it.
+ - Success is virulent. Once you get the bug then it’s in you.
+ - Success is simply never giving in to failure – either in mind or body.
+
+38 quotes

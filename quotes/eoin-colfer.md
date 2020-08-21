@@ -1,0 +1,155 @@
+ - Trust me. I’m a genius.
+ - Together we will be unstoppable.
+ - Being in command means making tough decisions. Not being in command means shutting up and doing what you’re told. – Artemis Fowl.
+ - If I win, I’m a prodigy. If I lose, then I’m crazy. That’s the way history is written.
+ - Confidence is ignorance. If you’re feeling cocky, it’s because there’s something you don’t know.
+ - Stay back, human. You don’t know what you’re dealing with.
+ - Listen to me, goblin. You’re stupid, let’s accept that and move on.
+ - A genius. A criminal mastermind. A millionaire. And he is only twelve years old.
+ - Good. Illegal is always faster.
+ - D’Arvit!
+ - Don’t try to understand me, just be grateful that you felt the warmth of Zaphod Beeblebrox’s aura on your wonderstruck face.
+ - Dreams come true all the time, just not for the dreamers.
+ - Butler could kill you a hundred different ways without use of his armoury. Though I’m sure one would be quite sufficient.
+ - I never tell anyone exactly how clever I am. They would be too scared.
+ - Chief of security : They have a tank! How did they get a tank up here?
+ - I’m the crazy girly captain, Remember?
+ - It’s like learning to ride a unicorn. You never forget.
+ - Artemis: Holly, how did you find me? Holly: Oh, I saw a huge explosion and wondered: now, who could that be?
+ - Careful, Mr. Spiro, guns are dangerous. Especially the end with the hole.
+ - A monkey glances up and sees a banana, and that’s as far as he looks. A visionary looks up and sees the moon.
+ - You guys looking for my dad? People are always, like, looking for him, and he’s never around. Daddy is so not here. And I mean that literally and spiritually.
+ - Argh? Pathetic and inarticulate. Nice combination. Your mothers must be so proud.
+ - I don’t like lollipops.
+ - How did that go?’ he asked. ‘Your first lengthy conversation with a girl your own age?’ ‘Fabulous,’ said Artemis, voice dripping with sarcasm. ‘We’re planning a June wedding.
+ - If it looks like a Dwarf, and it smells like a Dwarf, then it’s probably a Dwarf or a latrine wearing dungerees.
+ - I wear a name tag to help people find me. It saves time when you’re dealing with idiots.
+ - I am Butler. Anything I say sounds scary.
+ - They have gone. And the tunnel is about to close. So, boys, I am looking for someone to blame.
+ - Artemis ducked. Cudgeon didn’t. Guess what? Artemis was smarter.
+ - When the moment comes, will you take your chance to be a hero?
+ - Hit that back-stabber where it hurts, right in the ambition.
+ - I’m right there with you, darlin’. Unless you step on a landmine, in which case I’m way back in the Operations Room.
+ - Genius inspires resentment. A sad fact of life.
+ - And it’s amazing how much noise people ignoring each other can make.
+ - No matter what dimension you’re in, there’s a big-headed male trying to take over the world.
+ - We’re being lead by an idiot with a crayon.
+ - I’m not threatening you. I’m just informing you of police procedure. If you continue to obstruct me, I remove the obstruction, in this case you, and proceed to the next command.
+ - A metaphorical weight lifted from his allegorical chest and Artemis Fowl felt himself again.
+ - A CD. How quaint. We have these in museums.
+ - You know you’re in trouble when your own imagination starts punishing you.
+ - I have always loved ‘Stig of the Dump.’ I think reading that book made me officially realise that I was a reader.
+ - I feel like Alice falling into Wonderland. A line came to him: It would be so nice if something made sense for a change.
+ - There will be consequences for this, he thought. You can’t alter time and not be affected. But whatever the consequences are, I will bear them, because the alternative is too terrible. -Artemis Fowl, The Lost Colony.
+ - Trust me. I haven’t been wrong yet.
+ - What’s that supposed to mean? A wolf’s head on a stick. Big wolf barbecue tonight? Bring your own wolf?
+ - Scientists are the enemies of tradition, and tradition own all the prisons. – Victor Vigny.
+ - Friendship isn’t a science mudboy. Just do what you think is right.
+ - Boo-hoo. Help me, I’m a girl. What kind of modern woman are you? A smart one.
+ - A cloak of invisibility? This is a highly sensitive piece of field equipment. What does he think? Some warlock pulled it out of his armpit?
+ - She forces me to endure this ridiculous therapy, when the so-called counselors are little better than misguided do-gooders with degrees. -Artemis Fowl.
+ - I’m on my feet, pacing around the room, punching a fist into my palm, which I stop doing when I realise how drama queen it feels.
+ - It took teams of LEP warlocks to slow down time for a few hours; the magic required to open a door to the tunnel was stupendous. It would be easier to shoot down the moon. Opal tapped this into her notepad. Reminder. Shoot down the moon? Viable?
+ - Sounded like girls. Mixed feelings on that score. He didn’t despise them with the same passion he used to. In fact, Benny suspected that there would come a time in the not-too-distant future when he might develop a mysterious interest in them.
+ - Ah, my princess. Noble steed. How does the morning find you both?
+ - I often meet frustrated young writers who say they’ve only got so far and just can’t finish a book. Even if you don’t happen to use what you’ve worked on that day, it has taught you something and you’ll be amazed when you might come back to it and use it again.
+ - I don’t suppose you would consider peaceful surrender?
+ - People are afraid of you, Arty. Girls are terrified of you. You’re a fifteen-year-old in a bespoke suit, and nobody died.
+ - Everyone says that I have no sense of humor, then I construct a perfectly sound pun around a well-known psychological condition, and it is ignored.
+ - Shut up, Julius! I mean, quiet a moment, Commander.
+ - Artemis turned and stared at his friend with the blue eyes. Holly was staring back, and she was smiling. “I remember,” she said aloud. “You saved me.” Artemis smiled back. “It never happened,” he said.
+ - If Koboi defeats and presumably murders us both then you can consider the debt null and void.
+ - I’m the nut!
+ - Connor Broekhart was born to fly, or more accurately he was born flying.
+ - The problem is that I know the textbook answers to any question you care to ask.
+ - I miss my suits...
+ - Hey, if you can’t remember, don’t worry about it. I’m having a few memory problems myself in this place. Little things like how long I’ve been here, what my purpose in life is, which feet to put my shoes on. Stuff like that.
+ - If you were me, then I’d be you, and if I were you, then I’d hide somewhere far away.
+ - A fifeteen-year old, of to save the world, with faries. – Angeline Fowl.
+ - Lollipop!
+ - A pity to survive night flights over St. Georges Channel only to crack my skull falling from a ladder.
+ - HOLLY: Are you suggesting I occasionally stray from the rule book? FOALY: No. I’m suggesting you do not own a copy of the rule book, and if you do, you have certainly never opened it.
+ - The two of them went down in a heap, with not even a turkey to break their fall.
+ - No, I don’t think you understand just how stupid goblins are. Let me give you an example. One of the B’wa Kell generals, and this is their top fairy, was caught caught trying to pass off forged credit slips by signing his own name.
+ - Satan was crouched in the corner of his office, playing a gameboy, ‘Die alien scum’ he was saying feverishly...
+ - In my experience, boys are predictable. As soon as they think of something, they do it. Girls are smarter – they plan ahead. They think about not getting caught.
+ - There were only two men on the planet better educated in the various martial arts than Butler, and he was related to one of them. The other lived on an island in the South China Sea, and spent his days meditating and beating up palm trees. You had to feel sorry for the B’wa Kell.
+ - I’m LEP. A captain. No rent-a-cop gnome is going to stand in the way of my orders.
+ - The Theory of Evolution has more holes in it than a dam made out of Swiss cheese.
+ - Hey, look your girlfriend is saying something. Artemis had a vast mental reserve of scathing comebacks at his disposal, but none of them covered girlfriend insults. He wasn’t even sure if it was an insult. And if it was, who was being insulted? Him or the girl?
+ - Let us proceed under the assumption that the fairy folk do exist, and that I am not a gibbering moron.
+ - Her glare was so intense that you completely forgot she was wearing pink.
+ - The only other scenario that could explain everything, up to and including your own bizarre apperance, is a convoluted conspiracy theory involving the Russian Mafia and a crack team of plastic surgeons.
+ - Artemis simple-toon.
+ - Holly frowned at her. “Glad to see you’ve forgiven yourself so quickly.” “Harboring feelings of guilt can have a negative affect on mental health.” “Child geniuses,” growled Holly. “Genii,” said Minerva.
+ - When I went to school, I was already reading and writing. In fact, I was offended that the other kids couldn’t.
+ - Red was smiling back at me. “Ok. I’m not in trouble. But tell me your heart didn’t start beating for the first time in a month.” I couldn’t deny it. So I didn’t.
+ - Artemis: How long will it take you to prepare the time spell? N1 chewed his knuckle: About as long as it takes you to take your clothes off. “Aaarrk,” Artemis half choked.
+ - There is always a use for everything, Victor had told him. Even pain.
+ - Either that boy is the sanest creature on Earth, he thought, or he is so disturbed that our tests cannot even begin to scratch the surface.
+ - I am charging you with the protection of my mother and friends, not to mention keeping my younger self off the Internet. He is as dangerous as Opal.
+ - My bugs don’t have bugs.
+ - He knew that Dr. Argon would advise him against bottling up his emotions as it would lead to psychological scarring in the long term.
+ - That was all he said, except for “Aaaeerrgghhh.” Which is not really a word. But the reason that he screamed “Aaaeerrgghhh” was that Franco had bitten him savegly on the wrist.
+ - The thing about reading is that if you are hooked, you’re not going to stop just because one series is over; you’re going to go and find something else.
+ - When you’ve come face-to-face with the dark side of the school yard, life doesn’t hold many surprises.
+ - Holly died without a friend to hold her hand. Artemis felt her go, another gift of the magic. He kept on counting, brushing away the tears on his cheeks.
+ - Yes, Chix, it’s between us. Everyone has a right to be temporarily unstable. – Foaly.
+ - Sometimes plans don’t translate smoothly from paper to real life.
+ - It would take less than a second for you to die. But that’s quite long enough to be in mortal agony, don’t you think?
+ - I have a lovely office at the back of my house; it’s an old stable and you can see right out to the countryside on one side and into the house on the other side.
+ - Meg and Belch only had eyes for each other. Not in the usual romantic sense.
+ - Other men look up and down, left and right; but men like us are different. We are visionaries.
+ - We lost the crickets.
+ - Well, I don’t like the first bit and I don’t know the last bit. So I’m really hoping the middle bit is exceptional.
+ - In spite of what youngsters think, parents do not get a sneaky thrill out of punishing their children.
+ - Look at those two. Wasting time. You wouldn’t catch me doing that.
+ - I hear that you were on a date with Trouble Kelp. Are you two planning on building a bivouac any time soon?
+ - There’s always time for babbling.
+ - Doobie always wanted to see the badge. It was shiny, and he was eight.
+ - I can’t imagine what they’re planning. But I can tell you two things. We won’t like it, and it won’t be legal.
+ - Listen to me, convict. I have not traveled all this way to listen to your war stories. So shut your trap before I shut it for you. Commander Julius Root.
+ - If Elmore Leonard met Jim Thompson down a dark alley at midnight they might emerge a week later with thick beards, bloodshot eyes and the manuscript for THE BIG O.
+ - Caballine likes me to be masterful. She calls me her stallion.
+ - That’s the last order I’ll ever give you Captain. Don’t you dare ignore it.
+ - Inside the mirrored elevator, Mulch used a telescopic pointer to push P for the penthouse. For the first few months he had jumped to reach the button, but that was undignified behavior for a millionaire. And besides, he was certain that Art could hear the thumping from the security desk.
+ - Really, I’m trying to care, Artemis, really. But I thought it was all supposed to be over when the fat lady sings. Well, she’s singing, but it doesn’t appear to be over.
+ - Ma was using her for-company voice. Sweet on the outside but with an underlying death threat.
+ - Ignorance, as they say, is usually fatal, but sometimes it can be bliss.
+ - The miracle of modern science. The LEP pours millions into your department, Foaly, and all you can do is send Mud Boys to the toilet.
+ - The humans were protecting their heritage, or so they thought. Strange that Mud Men seem more concerned about the past than the present.
+ - If you’re going to read five books, three should be issues and two for fun.
+ - Certainly, Doctor. Let’s talk about your chair. Victorian?
+ - But even though there were plenty of teeth in the grin, there was no heart.
+ - What many people don’t know about ‘Peter Pan’ is that it’s a very violent book and Hook is one of the most finely observed villains ever.
+ - Grab some caviar from the kitchen. You wouldn’t believe the muck they feed us in Bartleby’s for ten thousand a term.
+ - Benny was awake again. Happened every morning.
+ - Mulch was not impressed. ‘I’m not impressed,’ he said.
+ - Artemis felt like he was six again and caught hacking the school computers trying to make the test questions harder.
+ - Holly: Seven and a half hours to save the world. Isn’t there some law that says we get twenty-four? Artemis: I don’t think Opal pays much attention to laws.
+ - Commander: What’s that? Foaly: It’s a finger, what does look like?
+ - This was a nightmare scenario for any bodyguard: stuck in the middle of a transparent tube, several miles underwater, with a murdering band of fugitives at one end and an enthralled but still highly skilled police officer at the other.
+ - Why can’t we for once have a meeting in Starbucks?
+ - Everything rests on the poisoned wine. If it were just the queen, I could force it down her gullet, but Declan Broekhart would run me through with that damned ceremonial sword, and if his wife’s stares were daggers, he’d be dead already.
+ - Radomosity, thought Artemis. And he felt like weeping.
+ - You display inordinate pride for someone who has completed a task which could have been performed by a lesser primate in a shorter time.
+ - Now before we get into anything, ladies, no scratching, no spitting and no tattling to mummy.
+ - Yes. Because every family needs a laser for thier family jet.
+ - My truffles? You took them? That’s just mean!
+ - Hilarious, dude. You should, like, have your own show.
+ - The craft’s occupants clutched their armrests, and more than one of them closed their eyes. But not Artemis. He couldn’t. There was something morbidly fascinating about flying into an uncharted tunnel at a reckless speed with only a kleptomaniac dwarf’s word for what lay at the other end.
+ - Oh, I’m crazy all right. I do have plenty of psychoses. Multiple personality, delusional dementia, OCD. I’ve got them all, but most of all, I’m crazy about you.
+ - Don’t feel bad; I regularly reduce people to unintelligible stammers.
+ - I am perhaps unusual in that I came to ‘Doctor Who’ through the numerous novelisations and not through the television show.
+ - Vinyaya was being openly antagonistic, and that was an emotion that could be trusted, unless of course it was a bluff and the commander was a secret fan of his, unless it was a double bluff and she really did feel antagonistic.
+ - Remember this? You gave it to me for ensuring your trigger finger got reattached to your hand. You said it would remind me of that spark of decency inside me. I’m trying to do something decent now, Captain.
+ - Foaly twitched his tail contentedly. Genius. No point in being humble about it.
+ - We get an apartment together, and after a whirlwind courtship you marry my sister and honeymoon in Vegas.
+ - Artemis: I am not buoyed by that. Foaly: You are not supposed to be buoyed by that. You are supposed to be equalized. Mulch: I’m pretty sure that both of you just made really horrible jokes. But I’m not sure because I think you broke my funny bone.
+ - I do like to read in bed, but because I have two kids I’m often forced to read in the bathroom.
+ - Of course. Opal is toying with our emotions for her own gratification. Nothing more. She wishes to place herself in a position of power, emotionally.
+ - The name’s Bond. James Omar Bond.
+ - Excuse me, Captain. Are you two going to weep salty tears of admiration over a helmet all night, or do we have matters to discuss?
+ - It’ll be messy, but after a day you’ll be zipping around as though you were a thousand years old again.
+
+153 quotes

@@ -1,0 +1,42 @@
+ - The cure for anything is salt water: sweat, tears or the sea. ~~Isak Dinesen
+ - If you don’t become the ocean, you’ll be seasick every day. ~~Leonard Cohen
+ - Silence is an ocean. Speech is a river. When the ocean is searching for you, don’t walk into the river. Listen to the ocean. ~~Rumi
+ - Don’t cross oceans for people who wouldn’t cross a puddle for you. ~~Tony Robbins
+ - We are tied to the ocean. And when we go back to the sea, whether it is to sail or to watch – we are going back from whence we came. ~~John F. Kennedy
+ - I am probably in the sky, flying with the fish, or maybe in the ocean, swimming with the pigeons. See, my world is different... ~~Lil Wayne
+ - Your heart is the size of an ocean. Go find yourself in its hidden depths. ~~Rumi
+ - You must have an iron will, if you would cross the ocean. You must be strong enough to pierce mountains. ~~Swami Vivekananda
+ - The revolutionary breakthrough will come with rockets that are fully and rapidly reusable. We will never conquer Mars unless we do that. It’ll be too expensive. The American colonies would never have been pioneered if the ships that crossed the ocean hadn’t been reusable. ~~Elon Musk
+ - Give up to grace. The ocean takes care of each wave ’til it gets to shore. You need more help than you know. ~~Rumi
+ - If you wish to be a mine of jewels, open the deep ocean within your heart. ~~Rumi
+ - Smart men walked on the moon, daring men walked on the ocean floor, but wise men walk with God. ~~Leonard Ravenhill
+ - It’s a little place on the Pacific Ocean. You know what the Mexicans say about the Pacific? They say it has no memory. That’s where I want to live the rest of my life. A warm place with no memory. ~~Stephen King
+ - You are not just the drop in the ocean. You are the mighty ocean in the drop. ~~Rumi
+ - Never lose hope. Stay close to Allah and when you mess up, go back to Him. Never, ever stop going back to Him. Repent often. Cry to Allah. And hold on tight-with your life-to His remembrance and to prayer. If you do this, you may get wet, but insha Allah never drown in this ocean of dunya. ~~Yasmin Mogahed
+ - Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean. ~~Paramahansa Yogananda
+ - Civilization is like a thin layer of ice upon a deep ocean of chaos and darkness. ~~Werner Herzog
+ - What is any ocean but a multitude of drops? ~~David Mitchell
+ - Christ, Buddha, and Krishna are but waves in the Ocean of Infinite Consciousness that I am! ~~Swami Vivekananda
+ - You never so touch the ocean of God’s love as when you forgive and love your enemies. ~~Corrie ten Boom
+ - A frog in a well cannot conceive of the ocean. ~~Zhuangzi
+ - You don’t understand. You’re not a wave. You’re part of the ocean. ~~Morrie Schwartz
+ - The smallest oceans still make big big waves. ~~Eddie Vedder
+ - Everyone has ocean’s to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries? ~~Amelia Earhart
+ - The heart can think of no devotion Greater than being shore to the ocean- Holding the curve of one position, Counting an endless repetition. ~~Robert Frost
+ - With passion pray. With passion make love. With passion eat and drink and dance and play. Why look like a dead fish in this ocean of God? ~~Rumi
+ - We have been to the moon, we have charted the depths of the ocean and the heart of the atom, but we have a fear of looking inward to ourselves because we sense that is where all the contradictions flow together. ~~Terence McKenna
+ - My life amounts to no more than one drop in a limitless ocean. Yet what is any ocean, but a multitude of drops? ~~David Mitchell
+ - From birth, man carries the weight of gravity on his shoulders. He is bolted to earth. But man has only to sink beneath the surface and he is free. ~~Jacques-Yves Cousteau
+ - Time is an ocean, but it ends at the shore. ~~Bob Dylan
+ - If I were dropped out of a plane into the ocean and told the nearest land was a thousand miles away, I’d still swim. And I’d despise the one who gave up. ~~Abraham Maslow
+ - It was like trying to bail out an ocean of water with a teaspoon. ~~Jodi Picoult
+ - Exploration is in our nature. We began as wanderers, and we are wanderers still. We have lingered long enough on the shores of the cosmic ocean. We are ready at last to set sail for the stars. ~~Carl Sagan
+ - The three great elemental sounds in nature are the sound of rain, the sound of wind in a primeval wood, and the sound of outer ocean on a beach. ~~Henry Beston
+ - Emotions are like waves. Watch them disappear in the distance on the vast calm ocean. ~~Ram Dass
+ - Our knowledge is a little island in a great ocean of nonknowledge. ~~Isaac Bashevis Singer
+ - You and I are all as much continuous with the physical universe as a wave is continuous with the ocean. ~~Alan Watts
+ - You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. ~~Alan Watts
+ - Asking is the beginning of receiving. Make sure you don’t go to the ocean with a teaspoon. At least take a bucket so the kids won’t laugh at you. ~~Jim Rohn
+ - Writing fiction, especially a long work of fiction, can be a difficult, lonely job; it’s like crossing the Atlantic Ocean in a bathtub. There’s plenty of opportunity for self-doubt. ~~Stephen King
+
+40 quotes

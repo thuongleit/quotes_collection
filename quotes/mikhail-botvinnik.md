@@ -1,0 +1,35 @@
+ - Chess is the art which expresses the science of logic.
+ - Chess is the art of analysis.
+ - If Tal sacrifices a piece, take it. If Petrosian sacrifices a piece, don’t take it.
+ - Chess mastery essentially consists of analyzing Chess positions accurately.
+ - If you are going to make your mark among masters, you have to work far harder and more intensively, or, to put it more exactly, the work is far more complex than that needed to gain the title of Master.
+ - Memorization of variations could be even worse than playing in a tournament without looking in the books at all.
+ - Before Geller we did not understand the King’s Indian Defence.
+ - Chess, like any creative activity, can exist only through the combined efforts of those who have creative talent, and those who have the ability to organize their creative work.
+ - When my opponent’s clock is going I discuss general considerations in an internal dialogue with myself. When my own clock is going I analyse conctrete variations.
+ - It is peculiar but a fact nevertheless, that the gamblers in chess have enthusiastic followers.
+ - You have to accustom yourself to practical study at home, you have to devote time to studies, to the history of chess, the development of chess, of chess culture.
+ - Along with my retirement from chess analytical work seems to have gone too.
+ - If you are weak in the endgame, you must spend more time analysing studies; in your training games you must aim at transposing to endgames, which will help you to acquire the requisite experience.
+ - With opposite coloured bishops the attacking side has in effect an extra piece in the shape of his bishop.
+ - Capablanca’s phenomenal move-searching algorithm in those early years, when he possessed a wonderful ability for calculating variations very rapidly, made him invincible.
+ - Chess cannot be taught. Chess can only be learned.
+ - Chess is a part of culture and if a culture is declining then Chess too will decline.
+ - Yes, I have played a blitz game once. It was on a train, in 1929.
+ - Everything is in a state of flux, and this includes the world of Chess.
+ - Chess is no whit inferior to the violin, and we have a large number of professional violinists.
+ - Don’t worry kids, you’ll find work. After all, my machine will need strong chess player-programmers. You will be the first.
+ - I only think well when my mind is calm.
+ - Above all else, before playing in competitions a player must have regard to his health, for if he is suffering from ill-health he cannot hope for success. In this connection the best of all tonics is 15 to 20 days in the fresh air, in the country.
+ - If Tal would learn to program himself properly, then it would become quite impossible to play against him.
+ - I claim that nothing else is so effective in encouraging the growth of chess strength as such independent analysis, both of the games of the great players and your own.
+ - Capablanca’s play produced and still produces an irresistable artistic effect. In his games a tendency towards simplicity predominated, and in this simplicity there was a unique beauty of genuine depth.
+ - A knight ending is really a pawn ending.
+ - It must be clearly understood that Soviet players do not seek simple systems in the opening, but try to formulate opening systems in which everything is complicated, distinctive, or new.
+ - In short, we can see Karpov as an exploiter of other people’s ideas. His ability to use these ideas is not at issue, but he himself is about as fertile as a woman who has been sterilized is.
+ - Every great master will find it useful to have his own theory on the openings, which only he himself knows, a theory which is closely linked with plans for the middle game.
+ - It is a well known fact that almost all the outstanding chess-players have been first-class analysts.
+ - The triumph of the analytical movement, which formed in the ’30’s and ’40’s, was precisely what earned the Soviet masters the acclaim of chessplayers the world over. Unfortunately, it must also be noted that, for today’s chessmasters, the watchword is practicality.
+ - There is no better place for learning to work independently and to extend your horizon than in higher school.
+
+33 quotes

@@ -1,0 +1,27 @@
+ - Train hard, fight easy.
+ - What is difficult in training will become easy in a battle.
+ - Accustom yourself to tireless activity.
+ - To surprise the enemy is to defeat him.
+ - One minute can decide the outcome of the battle, one hour – the outcome of the campaign, and one day – the fate of the country.
+ - Fortune seized at the right moment gives victory.
+ - The more comfort, the less courage there is.
+ - If we had not driven them into hell, hell would have swallowed us.
+ - A hard drill makes an easy battle.
+ - One cannot think that blind bravery gives victory over the enemy.
+ - He who is afraid is half beaten.
+ - Win with ability, not with numbers.
+ - Fight the enemy with the weapons he lacks.
+ - No battle can be won in the study, and theory without practice is dead.
+ - The bullet is a mad thing, only the bayonet knows what it is about.
+ - When the enemy is driven back, we have failed, and when he is cut off, encircled and dispersed, we have succeeded.
+ - As long as the enemy fights he must be beaten relentlessly, but a defeated enemy and especially the civilian population must be treated generously.
+ - Exercises cultivated self-reliance – the foundation of courage.
+ - The Church will pray to God for the dead. The survivor has honour and glory.
+ - Fire opens the gates of victory.
+ - There is nobody more terrible than the desperate.
+ - To me death is better than the defensive.
+ - A strong pursuit, give no time for the enemy to think, take advantage of victory, uproot him, cut off his escape route.
+ - Drill your soldiers well, and give them a pattern yourself.
+ - Judgment of eye, speed and attack are the basis of victory.
+
+25 quotes

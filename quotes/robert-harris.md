@@ -1,0 +1,54 @@
+ - The true currency of life is time, not money, and we’ve all got a limited stock of that.
+ - Suicide leaves everyone feeling guilty.
+ - Golf requires only a few simple Rules and Regulations to guide the players in the true nature of its sporting appeal. The spirit of the game is its own referee.
+ - In a way I’m almost more rueful about the notion of having a non-ideological Labour party than I am about the personality of Tony Blair.
+ - If you go back, ‘The Great Gatsby’ would be a portrait of the rich and fortune made by business.
+ - A police state is a country run by criminals.
+ - You can’t ever win the war on crime, or the war on terror. You can’t repeal human nature.
+ - The financial world is at the cutting edge of high technology.
+ - History is too important to be left to the historians.
+ - Power brings a man many luxuries, but a clean pair of hands is seldom among them.
+ - To be brave, by definition, one has first to be afraid.
+ - Working 14 hours a day until you’re 55 and missing your kids growing up is not what I would consider a recipe for happiness.
+ - A book unwritten is a delightful universe of infinite possibilities. Set down one word, however, and it immediately becomes earthbound. Set down one sentence and it’s halfway to being just like every other bloody book that’s ever been written.
+ - Another of Cicero’s maxims was that if you must do something unpopular, you might as well do it wholeheartedly, for in politics there is no credit to be won by timidity.
+ - What is leadership, after all, but the blind choice of one route over another and the confident pretense that the decision was based on reason.
+ - Storytelling has a narcotic power.
+ - You can always spot a fool, for he is a man who will tell you he knows who is going to win an election.
+ - By dawn he had surrendered, gratefully, to the old inertia, the product of always seeing both sides of every question.
+ - If one first gives himself to the Lord, all other giving is easy.
+ - Cicero most reminds me of Harold Wilson. Both men knew how to keep the show on the road.
+ - But clever people all make one mistake. They all think everyone else is stupid. And everyone isn’t stupid. They just take a bit more time, that’s all.
+ - Politics is never a victory, it’s just the remorseless grinding forward of events.
+ - If you spend too long trying to avoid death, you will be dead in at least one way.
+ - It’s when you’ve stopped writing and are doing other things, especially when you’re asleep, that the real work is done.
+ - You find out what you think by talking to yourself.
+ - It implies a slight failure as a writer that you are reduced to being a ghostwriter for the money.
+ - It is perseverance, and not genius that takes a man to the top. Rome is full of unrecognized geniuses. Only perseverance enables you to move forward in the world.
+ - Everyone thinks politics will just go on the way it is. I don’t agree.
+ - I was a political journalist; I came to writing novels through an interest in politics and power.
+ - Don’t try to write too much in a single session. One thousand words a day is quite enough. Stop after about four or five hours.
+ - In a generation or two, or maybe sooner, young golfers of true sporting instinct will wonder why all this handling of the ball is necessary. It will seem to them that the game is not as good as it might be.
+ - Does a name stick because it suits a man or does the man, unconsciously, evolve into his name?
+ - The natural impulse of men is to follow and whoever has the strongest sense of purpose will always dominate.
+ - I think it’s very, very hard not to go slightly crazy if you’re in the top in politics – especially if you’re there for a long time.
+ - I think that whenever a nation feels itself to be at is zenith, it starts to feel a creeping sense of anxiety.
+ - My greatest regret as a writer is that I’ve never been able to include as many jokes as I’d like.
+ - What a heap of ash most political careers amount to, when one really stops to consider them!
+ - My literary career was a fluke. Utterly unexpected.
+ - Egyptologists, skilled in piecing together the papyri of lost civilisations, suddenly discovered that the same talent could be applied to working out the pattern of German radio traffic.
+ - One cannot see any world leader who has got a grip on the financial markets these days. They’re too big, too fast. I think that’s quite scary.
+ - I’ve always just wanted to earn my living by writing. The best thing is to go into my study in the morning and put words together.
+ - It is perfectly legitimate to write novels which are essentially prose poems, but in the end, I think, a novel is like a car, and if you buy a car and grow flowers in it, you’re forgetting that the car is designed to take you somewhere else.
+ - I write as well as I can. I’m a journalist at heart, so it’s the story that matters.
+ - Orwell has always been a huge influence on me.
+ - That young man seeks opportunities to test his principles as readily as a drunk picks fights in a bar.
+ - History is what we bring to it, not just the events themselves, but how we interpret those events.
+ - Tape is the archiving champ and has been for decades. Reliable, less expensive than disks and available in large-scale robotic systems that store petabytes.
+ - Humans have changed little over time. We think we’ve invented the modern world but they were making better speeches 2,000 years ago and grappling with issues of empire and terrorism.
+ - You can’t make sense of the present unless a part of you lives in the past.
+ - Politics? Boring? Politics is history on the wing! What other sphere of human activity calls forth all that is most noble in men’s souls, and all that is most base? Or has such excitement? Or more vividly exposes our strengths and weaknesses? Boring? You might as well say that life itself is boring!
+ - If long hitting is the thing that causes the spectators to whistle through their teeth in wonderment, why not play tournaments up and down an expansive stadium?
+ - But only a fool sails into combat with nature.
+
+52 quotes

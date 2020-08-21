@@ -1,0 +1,34 @@
+ - There are more experiences in life than you’d think for which there are no words.
+ - If you’re skating on thin ice, you might as well dance.
+ - Odd how intensely you knew a person, or thought you did, when you were in love-soaked, drenched in love-only to discover later that perhaps you didn’t know that person quite as well as you had imagined.
+ - Sometimes, she thought, courage was simply a matter of putting one foot in front of another and not stopping.
+ - Love and marriage are wonderful arenas in which to place a character. We are most likely to risk our morals and beliefs while in love. Betrayal gives tremendous insights into a character as well.
+ - Reunions are always fraught with awkward tensions – the necessity to account for oneself; the attempt to find, through memories, an ember of the old emotions...
+ - Is imagination dependent upon experience, or is experience influenced by imagination?
+ - I have always been faithful to you if faithful means the experience against which everything else has been measured.
+ - The weight of his losses finally too much to bear. But not before he has known the unforgiving light of the equator, a love that exists only in his imagination, and the enduring struggle to capture in words the infinite possibilities of a life not lived.
+ - I thought about how one tiny decision can change a life. A decision that takes only a split second to make.
+ - Once you tell your first lie, the first time you lie for him, you are in it with him, and then you are lost.
+ - Sometimes I think that if it were possible to tell a story often enough to make the hurt ease up, to make the words slide down my arms and away from me like water, I would tell that story a thousand times.
+ - And then she moved from shock to grief the way she might enter another room.
+ - Sometimes it seems to me that all of life is a struggle to contain the natural impulses of the body and spirit, and that what we call character represents only the degree to which we are successful in this endeavor.
+ - Love is never as ferocious as when you think it’s going to leave you.
+ - And so a person can never promise to love someone forever because you never know what might come up, what terrible thing the person you love might do.
+ - To ward off a feeling of failure, she joked that she could wallpaper her bathroom with rejection slips, which she chose not to see as messages to stop, but rather as tickets to the game.
+ - A single action can cause a life to veer off in a direction it was never meant to go.
+ - I guess that’s the point of drinking, to take all the feelings and thoughts and morals away until you are just a body doing what a body will do.
+ - Olympia thinks often about desire – desire that stops the breath, that causes a preoccupied pause in the midst of uttering a sentence – and how it may upend a life and threaten to dissolve the soul.
+ - Good luck, I’m beginning to discover, is just as baffling as the bad. There never seems to be a reason for it – no sense of reward or punishment. It simply is – the most incomprehensible idea of all.
+ - To leave, after all, was not the same as being left.
+ - In the time it takes for her to walk from the bathhouse at the seawall of Fortune’s Rocks, where she has left her boots and has discreetly pulled off her stockings, to the waterline along which the sea continually licks the pink and silver sand, she learns about desire.
+ - I wonder this: If you take a woman and push her to the edge, how will she behave?
+ - To be relieved of love, she thought, was to give up a terrible burden.
+ - That I have no right to be jealous is irrelevant. It is a human passion: the sick, white underbelly of love.
+ - And she thought then how strange it was that disaster – the sort of disaster that drained the blood from your body and took the air out of your lungs and hit you again and again in the face – could be at times, such a thing of beauty.
+ - Love is not simply the sum of sweet greetings and wrenching partings and kisses and embraces, but is made up more of the memory of what has happened and the imagining of what is to come.
+ - Among other things, Kathryn knew, grief was physically exhausting.
+ - But how do you ever know that you know a person?
+ - I think about the hurt that stories cannot ease, not with a thousand tellings.
+ - I learned that night that love is never as ferocious as when you think it is going to leave you. We are not always allowed this knowledge, and so our love sometimes becomes retrospective.
+
+32 quotes

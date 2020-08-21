@@ -1,0 +1,166 @@
+ - Wishes are false. Hope is true. Hope makes its own magic.
+ - Once upon a time, an angel and a devil fell in love. It did not end well.
+ - Have you ever asked yourself, do monsters make war, or does war make monsters?
+ - I am one of billions. I am stardust gathered fleetingly into form. I will be ungathered. The stardust will go on to be other things someday and I will be free.
+ - It is a condition of monsters that they do not perceive themselves as such. The dragon, you know, hunkered in the village devouring maidens, heard the townsfolk cry ‘Monster!’ and looked behind him.
+ - As long as you’re alive, there’s always a chance things will get better.
+ - Hope can be a powerful force. Maybe there’s no actual magic in it, but when you know what you hope for most and hold it like a light within you, you can make things happen, almost like magic.
+ - Once upon a time, the sky knew the weight of angel armies on the move, and the wind blew infernal with the fire of their wings.
+ - She moved like a poem and smiled like a sphinx.
+ - Mercy, she had discovered, made mad alchemy: a drop of it could dilute a lake of hate.
+ - Your soul sings to mine. My soul is yours, and it always will be, in any world. No matter what happens. I need you to remember that I love you.
+ - Peace is more than the absence of war. Peace is accord. Harmony.
+ - Long life is a burden, when it’s spent in misery.
+ - Like a magpie, I am a scavenger of shiny things: fairy tales, dead languages, weird folk beliefs, fascinating religions, and more.
+ - I am stardust gathered fleetingly into form.
+ - A pause came between them, and it was so full of Akiva that Karou imagined she could smell him.
+ - Creamy and leggy, with long azure hair and the eyes of a silent-movie star, she moved like a poem and smiled like a sphinx.
+ - What can a soldier do when mercy is treason, and he is alone in it?
+ - We haven’t been introduced. Not really.
+ - How much does your life have to suck to want the Apocalypse?
+ - Stars got tangled in her hair whenever she played in the sky.
+ - We dreamed together of the world remade.
+ - She knocked and waited, because when the door was opened from within, it had the potential to lead someplace quite different.
+ - Once upon a time, a little girl was raised by monsters. But angels burned the doorways to their world, and she was all alone.
+ - Alas. I am not an option.
+ - Dead souls dream only of death. Small dreams for small men. It is life that expands to fill worlds. Life is your master, or death is.
+ - Icon of Prague, the medieval bridge crossed the Vltava between Old Town and the Little Quarter. Gothic bridge towers rose on both sides, and the whole span – pedestrian-only – was lined by monumental statues of saints.
+ - Hey! My body may be small, but my soul is large. It’s why I wear platforms. So I can reach the top of my soul.
+ - Skip meeting him? The butterflies, the pounding heart, the blushing? The part where you enter each other’s magnetic fields for the first time, and it’s like invisble lines of energy are drawing you together-.
+ - I’m going to be the scariest grandma in the world.
+ - I will give them nightmares to haunt their dreams long after I’m gone.
+ - A dream dirty and bruised is better than no dream at all.
+ - Brimstone once told me that to stay true in the face of evil is a feat of strength.
+ - Nothing made you feel so useless as another person’s grief.
+ - As for Ellai, she told her sister what had passed, and Nitid wept, and her tears fell to earth and became chimaera, children of regret...
+ - Like mold on books, grow myths on history.
+ - Infinities are not for casual exploration. You could fall and keep falling. You could get lost.
+ - When you are young, hone your craft and write shorter pieces instead of novels, because it’s really hard to finish a novel.
+ - Your heart is not wrong. Your heart is your strength. You don’t have to be ashamed.
+ - One world on its own is a strange enough seethe of coiling, unknowable veins of intention and chance, but two? Where two worlds mingle breath through rips in the sky, the strange becomes stranger, and many things may come to pass that few imaginations could encompass.
+ - She stabbed him in the armpit, deep, and he dropped his sword. And died. So that’s what is feels like, she thought as her boldness gave away to trembling. It feels awful.
+ - Perhaps Fate laid out your life for you like a dress on a bed, and you could either wear it or go naked.
+ - It’s like all my life I’ve been this tower standing at the edge of the ocean for some obscure purpose, and only now, almost eighteen years in, has someone thought to flip the switch that reveals that I’m not a tower at all. I’m a lighthouse. It’s like waking up. I am incandescent.
+ - An idea fell like a seed and over the next weeks it went on growing like a fig vine lush and conquering twining round her old beliefs and covering them in new growth until they were as invisible as a tiger in a thicket and just as deadly.
+ - Like attracts like, beauty finds beauty, and freaks look on from the smoking section, aching.
+ - I want to touch with my mouth. His mouth, with my mouth. Maybe his neck, too. But first things first: Make him aware I exist. It’s possible that he is already aware, if only in a ‘don’t step on the small girl’ kind of way.
+ - Once upon a time, an angel and a devil held a wishbone between them. And its snap split the world in two.
+ - It’s like losing gravity and falling into space – the moment of pitching headlong when the endlessness of space asserts itself and there is no more down, only an eternity of up, and you realize you can fall forever and never run out of stars.
+ - Happiness wasn’t a mystical place to be reached or won – some bright terrain beyond the boundary of misery, a paradise waiting for them to find it – but something to carry doggedly with you through everything, as humble and ordinary as your gear and supplies.
+ - I miss sunrise even more. The green scent of dawn in the forest? The color blushing back into the world, different every day.
+ - That faeries have forgotten the Tapestry; that is the greatest tragedy of all. It’s the fabric of all creation and it’s woven of dreams, the dreams of the Djinn. Dreams are real, Magpie. They’re seed and water and sun. They’re everything.
+ - Once upon a time, a girl lived in a sandcastle, making monsters to send through a hole in the sky.
+ - Zuzana arched an eyebrow. She was a master of the eyebrow arch, and Karou envied her for it. Her own eyebrows did not function independently of each other, which handicapped her expressions of suspicion and disdain.
+ - The two of them were stoic and stone-faced and ten feet apart, currently not even looking at each other, but Zuzana had the impression of a pair of magnets pretending not to be magnets. Which, you know, only works until it doesn’t.
+ - His eyes are blue, and blue eyes up close are a celestial phenomenon: nebulae as seen through telescopes, the light of unnamed stars diffused through dusts and elements and endlessness. Layers of light. Blue eyes are starlight.
+ - This is the story of the curse and the kiss, the demon and the girl. It’s a love story with dancing and death in it, and singing and souls and shadows reeled out on kite strings.
+ - She had fallen in love with him twice. She loved him now with both loves, so overpowering it was almost unbearable.
+ - Oh, gross. Your stomach is full of butterfly barf!
+ - I know it’s not easy for you, living this life, but try to remember, always try to remember, you’re not the only one with troubles.
+ - You have only to begin, Lir. Mercy breeds mercy as slaughter breeds slaughter. We can’t expect the world to be better than we make it.
+ - Anyone who would wear all white like that clearly had issues. Just looking at him made her wish she had a paintball gun, but hell, you couldn’t pack for every eventuality.
+ - Love affair. Doesn’t that sound so middle-aged? And also ill-fated. Like ill-fated is an understood prefix to love affair. Well, ill-fated is fine, as long as it’s a meaty and fraught ill-fated love affair, not a pale and insipid one.
+ - My tiny scary friend is coming.
+ - There are other ways of showing someone you love them, such as fetching them out of Hell.
+ - Scientist and smart fellow learner-of-stuff, want to do samurai-monster training with us? We intend to become dangerous.
+ - Then there were things – epic, terrible things – that he didn’t tell her but skirted around, like caressing the edges of a wound, hesitant, testing for pain.
+ - A bruxis. That was the one wish more powerful than a gavriel, and its trade value was singular: The only way to purchase one was with one’s own teeth. All of them, self-extracted.
+ - Head held high, she stepped toward the block and sank to her knees, and it was then that Akiva started to scream. His voice soared over the pandemonium – a scream to scour the souls of all gathered, a sound to drive ghosts from their nests.
+ - And I’ve found that since you can’t electrify yourself like a fence, the next best thing is to have murderer’s eyes.
+ - The goblins want girls who dream so hard about being pretty their yearning leaves a palpable trail, a scent goblins can follow like sharks on a soft bloom of blood. The girls with hungry eyes who pray each night to wake up as someone else. Urgent, unkissed, wishful girls. Like Kizzy.
+ - It’s not stalking if you don’t follow them home, right?
+ - You just mingled saliva with the most beautiful boy ever to tread the hallways of Saint Pock’s. Saliva. There’s DNA in saliva. You’re like carrying his cells in your mouth like one of those weird frogs that incubates its eggs in its cheeks.
+ - Being near her was like balancing on a tipping world, trying to keep your footing as the ground wanted to roll you forward, hurl you into a spiral from which there was no recovery, only impact, and it was a longed-for impact, a sweet and beckoning collision.
+ - How could you tell if your instincts were just hope in disguise, and if your hope was really desperation parading as possibility?
+ - If only it were that easy to let go of hate. Just relax your face.
+ - If it’s not chocolate, it’s not breakfast.
+ - And just so you know, the invaders are always the bad guys. Always.
+ - It was sadness, lostness, and the worst thing about it was the way it seemed like a default – like it was there all the time, and all her other expressions were just an array of masks she used to cover it up.
+ - For the way loneliness is worse when you return to it after a reprieve – like the soul’s version of putting on a wet bathing suit, clammy and miserable.
+ - Take up a weapon and you become an instrument with as pure a purpose as the weapon itself: to find arteries and open them, limbs and sever them; to take what is alive and deliver it unto death.
+ - She was a girl and she was a queen and back in the mists she was a woman who had seized the moon from the sky and drunk its light so that she would never die. And she never had.
+ - Beauty,’ Brimstone had scoffed once. ‘Humans are fools for it. As helpless as moths who hurl themselves at fire.
+ - When a street musician lowered his violin to inquire, ‘Hey lovely, what you got there?’ she said, ‘Musicians who ask questions,’ and kept on dragging.
+ - With the infinite patience of one who has learned to live broken, he awaited her return.
+ - Because hope comes from in you, and wishes are just magic.
+ - Stop squandering yourself, child. Wait for love.
+ - There is the past, and there is the future. The present is never more than the single second dividing one from the other. We live poised on that second as it’s hurtling forward-toward what?
+ - To a new generation of butterflies, hopefully less stupid than last. Maybe they were burgeoning even now in fat little cocoons. Or maybe not.
+ - A thousand things might have stopped me from being here right now, but instead, a thousand things brought me here.
+ - I think with world building, it’s important to create a sense of culture even if it is just a fantasy, and the best way to do that is to look at a real human culture and see what makes it cohesive.
+ - It was Kizzy’s first kiss and maybe it was her last and it was delicious.
+ - Don’t I deserve to finally be free of you?
+ - Oh, Hell. Must. Mate. Immediately.
+ - He was right. It made no sense at all, but the feeling flooded through Karou, and whatever it was, it was as sweet as a patch of sun on a glossy floor and, like a cat, she just wanted to curl up in it.
+ - It was interesting the way a small hate could grow inside a big hate and take it over.
+ - Kizzy wanted it all so bad her soul leaned half out of her body hungering after it, and that was what drove the goblins wild, her soul hanging out there like an untucked shirt.
+ - It seemed she was in a cathedral – if, that is, the earth itself were to dream a cathedral into being over thousands of years of water weeping through stone.
+ - Around Mik, my powers desert me. I lose basic motor function, like my brain focuses all neural activity on my lips and shifts into kiss preparedness mode way too early, to the detriment of things like speech, and walking.
+ - Where am I and doing what? You might well ask. Freaky chick, you say? You can’t imagine. I am priestess of a sandcastle in a land of dust and starlight.
+ - You almost hold up your piece of paper and say, ‘The girl I like just gave me a treasure map to herself.’ But you don’t. You just don’t.
+ - They were tower stairs, a tight corkscrew down. The spiraling descent made Karou dizzy: down, around, down, around, hypnotic, until it seemed as if she were caught in a purgatory of stairs and would go down like this forever.
+ - He wanted to tell her that everything he had done he had done because he was broken, because watching her die had destroyed him, but there was no way to say it that didn’t sound like he was trying to pin the blame outside himself.
+ - A man once said, ‘All you need in this life is ignorance and confidence; then success is sure.’ Mark Twain, you know. He had a fine mustache. Men of wisdom so often do.
+ - It didn’t escape Karou’s notice that he found subtle ways of touching her.
+ - There are boys you look at and want to touch with your mouth, and there are boys you look at and want to wear one of those surgical masks everyone in China had during bird flu. There are a lot more bird-flu boys at large.
+ - When I turned to writing fantasy, and writing for young people, it was joyous. It was like discovering an underground lake of ideas that went on forever.
+ - The thing is, you throw brains and souls into an animal and stir, you don’t really know what you’re going to get.
+ - Once upon a time, there were two moons, who were sisters. Nitid was the goddess of tears and life, and the sky was hers. No one worshipped Ellai but secret lovers.
+ - It was as if she had emitted a pulse of radiation that reached him even where he stood, and it bathed him and it burned him.
+ - Music. Close your eyes and it’s a rosebush blooming in time lapse so that it shoots and blossoms flow outward in a swift choreography of growth and collapse, twine and coil, release and fade. Close your eyes and music paints light vines and calligraphy on the darkness within you.
+ - And they were quiet but their blood and nerves and butterflies were not – they were rampantly alive, rushing and thrumming in a wild and perfect melody, matched note for note.
+ - Happiness. It was the place where passion, with all its dazzle and drumbeat, met something softer: homecoming and safety and pure sunbeam comfort. It was all those things, intertwined with the heat and the thrill, and it was as bright within her as a swallowed star.
+ - Life doesnt need magic to be magical.
+ - She tried to pray, but she had only ever prayed at night, and it seemed to her that the moons made poor protectors when angels chose to hunt by day.
+ - You really think joy is easier to come by than pain? What have you had more of?
+ - There’s a long pause. But it’s not a bad pause, because Mik is looking at me like I’m the treasure from the high shelf that someone’s just taken down and put into his hands. I find I don’t mind being looked at like this. I don’t mind it at all.
+ - It was funny, she thought, but her smile turned wistful because she had nobody to tell.
+ - I’ve always imagined that one day the path of your life would unroll at your feet and carry you away from us. As it should, as it must. But I am glad that day is not today.
+ - There are guerrilla armies that make little boys kill their own families. Such acts rip out the soul and make space for beasts to grow inside. Armies need beasts, don’t they? Pet beasts, to do their terrible work!
+ - Thank you, but we respectfully decline your overture, being more enjoyably occupied at present.
+ - Was there any fate more bitter than to get what you long for most, when it’s too late?
+ - Karou saw them with her human eyes, this army she had rendered more monstrous than ever nature had, and she knew what the world would see in them if they flew to fight the Dominion: demons, nightmares, evil. The sight of the seraphim would be heralded as a miracle. But chimaera? The apocalypse.
+ - I might try that one thing, you know, that thing people do when their eyes get all wet and stupid – what’s it called? Crying? Or NOT. I might PUNCH you instead and trust that you won’t punch me back because of my endearing smallness. It would be like punching a child.
+ - In all that was to happen, there would be that feeling of inevitability and rightness, and the sense that the universe was conspiring in it. It would be easy.
+ - Humanity, perhaps, that quality of benevolence that humans have, without irony, named after themselves.
+ - Thank you to the world for being a wild and inspiring place, full of odd creatures, strange people, and mysterious cities. I hope by and by to know you better.
+ - What are we fighting for? What are we killing for? What do you see when you look into the future?
+ - Dialogue is the place that books are most alive and forge the most direct connection with readers. It is also where we as writers discover our characters and allow them to become real.
+ - Boredom is a terrible affliction of the soulless.
+ - Her courage was a guise. She wondered if courage always was, or if there were those who truly felt no fear.
+ - I’ve always been a reader and a writer.
+ - She tasted of fairytales.
+ - Cats and ghosts both partook of the saucers of milk and that was okay. They consumed different parts of it: the cats its substance, the ghosts its essence, and none went to waste.
+ - The truth, she found, felt smooth, like a skipping stone in the palm of your hand.
+ - It was one of those dreams that invade the space between seconds, proving sleep has its own physics- where time shrinks and swells, lifetimes unspool in a blink, and cities burn to ash in a mere flutter of lashes.
+ - As long as he had life, who deserved it so little, he would use it, wield it, and do whatever he could in its name, even if it was not, was never, enough.
+ - The thing he wished for most was a thing he had never wished for at all, not until he had discovered her. And it came true that night, and many nights after. A brief and shining span of happiness, it was the pivot point around which his whole life spun.
+ - It was the first time either of them had ever held another’s hand, and for them alone, the immensity of what unfolded that night was overshadowed by the perfect wonderment of fingers intertwined – as though this was what hands had always been for, and not for holding weapons at all.
+ - It’s easy to get published once you have written a really good book and the hard part, 99 percent of what you need to worry about, is really finishing it.
+ - The audacity to love. Do you know what a gift that is?
+ - During my second draft pass on my last book I made 20,000 words happen in a week, which is practically supernatural for me, and it would never have been possible without three nights in a hotel in my own city.
+ - The main thing I’ve learned is that we all have to learn to work with – and appreciate – the brain we’ve been given, and not waste time wishing things were easier.
+ - A wave of weariness took him. How could life be so unrelentingly ugly?
+ - Creatures with no dreams of their own can do naught but destroy the dreams of others.
+ - Love makes a person do strange things.
+ - Better to be the cat gazing coolly down from a high wall, its expression inscrutable. The cat that shunned petting, that needed no one. Why couldn’t she be that cat?
+ - What a lovely display of personhood. He’s like a good book cover that grabs your gaze. Read me. I’m fun but smart. You won’t be able to put me down.
+ - It’s all a quilt of fairy tales with a patch here and there of truth.
+ - These soldiers had done what they had done, and been done unto in return. This was how it went. In the cycle of slaughter, reprisal begat reprisal, forever.
+ - Bitter, bitter, this desolation of angels.
+ - You mean he came to your school? The scandalous rodent-loaf!
+ - And there’s no better way to thaw a face, as it turns out, than with another face.
+ - Liraz was special. Specially antisocial. Spectacularly, even.
+ - Light coursed through Karou and darkness chased it-burning through her, chilling her, shimmer and shadow, ice and fire, blood and starlight, rushing, roaring, filling her.
+ - I started blogging in 2006 when I had sold my first novel but it had not yet been published, in those anxious months in between while I learned the whole process.
+ - She tastes like nectar and salt. Nectar and salt and apples. Pollen and stars and hinges. She tastes like fairy tales. Swan maiden at midnight. Cream on the tip of a fox’s tongue. She tastes like hope.
+ - Never sit staring at a blank page or screen. If you find yourself stuck, write. Write about the scene you’re trying to write. Writing about is easier than writing, and chances are, it will give you your way in.
+ - I want to build spires in their minds and dance shadows through like marionettes, chased by whispers and hints of the unspeakable.
+ - The sooner you learn to finish things, and as a matter of course finish your creative endeavors, the better. It took me a long time to learn that.
+ - The worst moment of one’s life could be seared into the memory, brighter than any joy.
+ - He actually listened, rather than pretending to listen while waiting a suitable interval before it was his time to talk again...
+ - What does true even mean when it comes to a face? Only souls are true, and when you spill them to the air they melt away...
+ - We only get to be one person; we don’t even get to choose that person. By the time we get ahold of ourselves, we are pieces already in play.
+ - No, tiny violent one.
+
+164 quotes

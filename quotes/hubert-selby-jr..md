@@ -1,0 +1,26 @@
+ - I suspect there will never be a requiem for a dream, simply because it will destroy us before we have the opportunity to mourn it’s passing.
+ - Eventually we all have to accept full and total responsibility for our actions, everything we have done, and have not done.
+ - There’s a sorrow and pain in everyone’s life, but every now and then there’s a ray of light that melts the loneliness in your heart and brings comfort like hot soup and a soft bed.
+ - Sometimes it seems to stand still. Like you’re in a bag and you can’t get out and somebody’s always telling you that it will get better with time and time just seems to stand still and laugh at you and your pain.
+ - I knew the alphabet. Maybe I could be a writer.
+ - Sometimes we have the absolute certainty there’s something inside us that’s so hideous and monstrous that if we ever search it out we won’t be able to stand looking at it. But it’s when we’re willing to come face to face with that demon that we face the angel.
+ - But I knew that someday I was going to die. And just before I died two things would happen; Number 1: I would regret my entire life. Number 2: I would want to live my life over again.
+ - I’ve always felt alienated. I realized that I’ve been terrified my entire life. So I can identify that fear which drives so many of the people that I write about.
+ - There are a lot of people in this country who really like my writing. And a lot of writers respect me. But the so-called establishment? They hate me.
+ - The responsibility of the artist is to transcend the human ego.
+ - No matter how beautiful the outside may be, the inside still has feelings and needs that just words don’t fulfill.
+ - I have rituals for cleaning out resentments, disappointments, heartbreak, depression and for work. One of the things I do is go over old stuff if I have been unable to write for a while.
+ - All the energy of their frustration and fear going into their laughter.
+ - Life was not longer something to endure, but to live.
+ - My writing is inspired by just about everything, yet I am unaware of so much of the process.
+ - Everything about it was wrong. Thats why it worked so good.
+ - Writing, like any art, is a continuing process of discovering the infinite possibilities of Life.
+ - For weeks Tyrone thought he was going to die any minute, and there were also times when he was afraid he wasnt going to die.
+ - He didnt know what was defeating him, but he sensed it was something he could not cope with, something that was far beyond his power to control or even at this point in time comprehend.
+ - One of the things I have become aware of through the years is how much I love the people I write about.
+ - They luxuriated in the feeling of deep and all pervading satisfaction, a feeling of knowing absolutely that all was well with the world and them and that the world was not only their oyster it was also their linguine with clam sauce. Not only were all things possible, but all things were theirs.
+ - However they may have felt when they left they were now committed, they had passed the point of no return.
+ - The resistance and the degree of the resistance to the natural phenomenon of life causes tremendous suffering.
+ - But to believe that getting stuff is the purpose and aim of life is madness.
+
+24 quotes

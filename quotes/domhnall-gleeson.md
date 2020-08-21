@@ -1,0 +1,25 @@
+ - We’re all traveling through time together, every day of our lives. All we can do is do our best to relish in this remarkable ride.
+ - All the time travelling in the world can’t make someone love you.
+ - People who don’t listen make me annoyed. That’s the normal stuff, isn’t it?
+ - People always want to ask me about my dad. Which I get because he’s a phenomenal actor, and that’s for the world, that’s out there. But my mother is every bit as impressive and as important for the world as my dad is. It’s just that she’s not an actor.
+ - I’m that person in the bar who’s like, “Can they turn the music down? I would like to chat.”
+ - Life is difficult for everyone, everyone has bad days. Everyone has trouble in their life, because it doesn’t matter how rich you are: Sickness and trouble and worry and love, these things will mess with you at every level of life.
+ - You’re supposed to take a second if life is going well, to enjoy it and not just move on with the rest of your day worrying about the next thing. And it’s a really trite point in some ways. But it’s bizarre how little I had done it at various points in my life.
+ - There’s this thing that you’re not meant to have too many children – for global warming, it’s bad. But I know lots of crappy people, and I would rather that good people have lots of kids and outnumber the baddies.
+ - I’m hugely proud of being Irish. And I don’t even know what that means. I just know that it’s true.
+ - Conventionally handsome is not really where I’m at.
+ - Portraying as human the people you hear about on the news doing bad things is dangerous. But it’s also necessary and important.
+ - I’ve got three brothers; I think all of them are good human beings.
+ - There is this old thing that a lot of people say – that the worst experiences make the best films. I don’t subscribe to it. But I’ve seen it happen.
+ - I find looking forward scary because you might die.
+ - The only music I’ve ever written was for a film called Frank, and the idea was that it was the worst music in the world.
+ - Most of the time, I do what I’m offered, but after I worked for it. I think I try much harder for the things that scare me and inspire me. The things that scare and inspire you are things that are different from what you did before.
+ - I think I’m happiest when there are really talented people around.
+ - I get asked to give stuff to my dad. I’m, like, ‘I’m not gonna pass your script to him!’ You know? My dad’s my dad. I’m not his agent.
+ - I’ve definitely enjoyed myself more on the projects where I’ve played a good person, rather than on the projects where I’ve played somebody who is morally compromised.
+ - My dad was also a teacher until he was 34. I think there is a basis in reality. But I’d only done two jobs before I was an actor. I worked in a petrol station and I worked in a supermarket.
+ - As an actor, I’ve just gotten insanely lucky. I quite like being surrounded by lots of different talented people lots of different times a year.
+ - It’s weird to be very good at something and not necessarily to want to do it.
+ - As an actor, there’s very little you can do if people don’t want to see you. Just getting yourself into the room to audition is tough.
+
+23 quotes

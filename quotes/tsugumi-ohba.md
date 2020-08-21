@@ -1,0 +1,31 @@
+ - Justice will prevail!
+ - So, come on! Kill me if you can!!
+ - This world is rotten. The rotten should die.
+ - Just because I am alone, does not mean I am lonely. I am not you.
+ - There is no heaven or hell. No matter what you do while you’re alive, everybody goes to the same place once you die. Death is Equal.
+ - The most intelligent people disguise the fact that they are intelligent. Wise men do not wear name tags. The more people talk about their own skills, the more desperate they are – their work should speak for itself.
+ - Kira is childish and hates to lose. I am also childish and hate to lose. – L.
+ - If you keep my secret, this strawberry is yours.
+ - So when our dreams come true will you marry me?
+ - You’ve eased my boredom for quite a while, haven’t you? -Ryuk.
+ - You can call me whatever you like. Last chance for cake!
+ - Misa- I can’t imagine a world without Light. L- Yes, it would be rather dark.
+ - I gained another friend.
+ - Nobody can tell what is right and what is wrong; what is righteous and what is evil. Even if there is a god and I had his teachings right before me, I would think it through and decide if that was right or wrong myself.
+ - College is fun as long as you don’t die.
+ - The other raised his club and attacked L, who inexpliciably fell over on his back like an overturned frog.
+ - L shot Maki a disappointed look. But soon he forgot everything when Misa Amane appeared onstage. Enraptured he began to cheer with the girls in black lace and frilly skirts.
+ - I will reign over a new world!
+ - Manga just needs to be interesting. If it is than it will get serialized.
+ - Dying in the line of duty is heroic, but dying while unemployed is just stupid.
+ - An eye for an eye my friend.
+ - If I become the most popular author in jump, please give me the right to end one manga I hate.
+ - No one can tell what is righteous and what is wrong, what is good and what is evil.
+ - The iron heart that does not bleed The iron wing that does not break They exist, here and now.
+ - There are no nudists in cold areas.
+ - Rem: The way to kill a shinigami is to make them fall in love with a human. Misa: What a wonderful way to kill.
+ - I am justice!
+ - I’m gonna take a patato chip! AND eat it!
+ - The name of the human who is written in this note shall die.
+
+29 quotes

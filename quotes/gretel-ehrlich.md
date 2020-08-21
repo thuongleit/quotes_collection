@@ -1,0 +1,36 @@
+ - Walking is also an ambulation of mind.
+ - A tree is a thought, an obstruction stopping the flow of wind and light, trapping water, housing insects, birds, and animals, and breathing in and out. How treelike the human, how human the tree.
+ - Everything in nature invites us constantly to be what we are.
+ - To know something, then, we must be scrubbed raw, the fasting heart exposed.
+ - The toughness I was learning was not a martyred doggedness, a dumb heroism, but the art of accommodation. I thought: to be tough is to be fragile; to be tender is to be truly fierce.
+ - Honesty is stronger medicine than sympathy, which may console but often conceals.
+ - History is an illogical record. It hinges on nothing. It is a story that changes, and has accidents, and recovers with scars.
+ - Autumn teaches us that fruition is also death; that ripeness is a form of decay. The willows, having stood for so long near water, begin to rust. Leaves are verbs that conjugate the seasons.
+ - If anything is endemic to Wyoming it is wind. This big room of space is swept out daily, leaving a bone yard of fossils, agates, and carcasses in every stage of decay. Though it was water that initially shaped the state, wind is the meticulous gardener, raising dust and pruning the sage.
+ - True solace is finding none, which is to say, it is everywhere.
+ - Everything in nature invites us constantly to be what we are. We are often like rivers: careless and forceful, timid and dangerous, lucid and muddied, eddying, gleaming, still.
+ - Leaves are verbs that conjugate the seasons.
+ - Finally, the lessons of impermanence taught me this: loss constitutes an odd kind of fullness; despair empties out into an unquenchable appetite for life.
+ - To rise above treeline is to go above thought, and after, the descent back into bird song, bog orchids, willows, and firs is to sink into the preliterate parts of ourselves.
+ - A tree is an aerial garden, a botanical migration from the sea, from those earliest plants, the seaweeds; it is a purchase on crumbled rock, on ground. The human, standing, is only a different upsweep and articulation of cells. How treelike we are, how human the tree.
+ - I understood why war zones are called ‘theaters’ because they frame a kind of play acting or, worse, deceit, that can stain a human life forever: the deceit of hate on hearsay – hating an enemy one doesn’t know...
+ - Animals give us their constant, unjaded faces, and we burden them with our bodies and civilized ordeals.
+ - How odd it is that sewing is thought to be ‘women’s work’ when surgeons, sailors, and cowboys sew too. Yet how many female thoracic surgeons are there? And if precision motor activities are thought to be performed better by women, why wouldn’t they make better surgeons too?
+ - I thought: to be tough is to be fragile; to be tender is to be truly fierce.
+ - The fog lifted in the evening and a blue-black band at the horizon marked the end of the sea and the beginning of thought. Where does a beginning begin when nothing has gone on before?
+ - To long for love, to have experienced passion’s deep pleasure, even once, is to understand the mercilessness of having a human body whose memory rides desire’s back unanchored from season to season.
+ - The retreat and disappearance of glaciers – there are only 160,000 left – means we’re burning libraries and damaging the planet, possibly beyond repair. Bit by bit, glacier by glacier, rib by rib, we’re living the Fall.
+ - Turbulence, like many forms of trouble, cannot always be seen. We bounce so hard my arms sail helplessly above my head. In evolution, wing bones became arms and hands; perhaps I’m de-evolving.
+ - There is nothing in nature that can’t be taken as a sign of both mortality and invigoration.
+ - Islands are reminders of arrivals and departures.
+ - I like to think of the landscape not as a fixed place but as a path that is unwinding before my eyes, under my feet. To see and know a place is a contemplative act. It means emptying our minds and letting what is there, in all its mulitplicity and endless variety, come in.
+ - It’s no wonder human beings are so narcissistic. The way our ears are constructed, we can hear only what is right next to us or else the internal monologue inside.
+ - Am I like the optimist who, while falling ten stories from a building, says at each story, I’m all right so far?
+ - Gary Snyder’s The Practice of the Wild is an exquisite, far-sighted articulation of what freedom, wildness, goodness, and grace mean, using the lessons of the planet to teach us how to live.
+ - Perhaps despair is the only human sin.
+ - I designed furniture that pulled apart, folded, and broke down into neat stacks. Since arriving in California, I had moved four times and it looked as if I would move again. Was it the land running under my feet or my feet running over the land?
+ - The truest art I would strive for in any work would be to give the page the same qualities as earth: weather would land on it harshly; light would elucidate the most difficult truths; wind would sweep away obtuse padding.
+ - Ritual which could entail a wedding or brushing one’s teeth goes in the direction of life. Through it we reconcile our barbed solitude with rushing, irreducible conditions of life.
+ - Between highway sounds I heard waves and thought how the curve of the coastline here had sheltered and nurtured live-born sharks, humans, and migrating whales. Here, at the edge of the continent, time and distance stopped; in the lull between sets of waves I could get a fresh start.
+
+34 quotes

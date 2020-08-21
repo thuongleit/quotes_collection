@@ -1,0 +1,54 @@
+ - Humanity, take a good look at yourself. Inside, you’ve got heaven and earth, and all of creation. You’re a world – everything is hidden in you.
+ - We cannot live in a world that is not our own, in a world that is interpreted for us by others. An interpreted world is not a home. Part of the terror is to take back our own listening, to use our own voice, to see our own light.
+ - The mystery of God hugs you in its all-encompassing arms.
+ - You are encircled by the arms of the mystery of God.
+ - There is the music of Heaven in all things.
+ - Even in a world that’s being shipwrecked, remain brave and strong.
+ - Dare to declare who you are. It is not far from the shores of silence to the boundaries of speech. The path is not long, but the way is deep. You must not only walk there, you must be prepared to leap.
+ - Every creature is a glittering, glistening mirror of Divinity.
+ - The earth which sustains humanity must not be injured. It must not be destroyed!
+ - A human being is a vessel that God has built for himself and filled with his inspiration so that his works are perfected in it.
+ - All of creation is a song of praise to God.
+ - I am the fiery life of the essence of God; I am the flame above the beauty in the fields; I shine in the waters; I burn in the sun, the moon, and the stars. And with the airy wind, I quicken all things vitally by an unseen, all-sustaining life.
+ - When the words come, they are merely empty shells without the music. They live as they are sung, for the words are the body and the music the spirit.
+ - Glance at the sun. See the moon and stars. Gaze at the beauty of the green earth. Now think.
+ - I, God, am in your midst. Whoever knows me can never fall. Not in the heights, nor in the depths, nor in the breadths. For I am love, which the vast expanses of evil can never still.
+ - These visions which I saw were not in sleep nor in dreams, nor in my imagination nor by bodily eyes or outward ears nor in a hidden place; but in watching, aware with the pure eyes of the mind and inner ear of the heart.
+ - Holy persons draw to themselves all that is earthly.
+ - God has arranged everything in the universe in consideration of everything else.
+ - Sometimes when we hear a song we breathe deeply and sigh. This reminds the prophet that the soul arises from heavenly harmony. In thinking about this, he was aware that the soul itself has something in itself of this music...
+ - Love abounds in all things, excels from the depths to beyond the stars, is lovingly disposed to all things. She has given the king on high the kiss of peace.
+ - Like billowing clouds, Like the incessant gurgle of the brook The longing of the spirit can never be stilled.
+ - The soul is a breath of living spirit, that with excellent sensitivity, permeates the entire body to give it life. Just so, the breath of the air makes the earth fruitful. Thus the air is the soul of the earth, moistening it, greening it.
+ - Just as a mirror, which reflects all things, is set in its own container, so too the rational soul is placed in the fragile container of the body. In this way, the body is governed in its earthly life by the soul, and the soul contemplates heavenly things through faith.
+ - It is easier to gaze into the sun, than into the face of the mystery of God. Such is its beauty and its radiance.
+ - The marvels of God are not brought forth from one’s self. Rather, it is more like a chord, a sound that is played. The tone does not come out of the chord itself, but rather, through the touch of the musician. I am, of course, the lyre and harp of God’s kindness.
+ - Every element has a sound, an original sound from the order of God; all those sounds unite like the harmony from harps and zithers.
+ - Because a woman brought death a bright Maiden overcame it, and so the highest blessing in all of creation lies in the form of a woman, since God has become man in a sweet and blessed Virgin.
+ - Everything that is in the heavens, on earth, and under the earth is penetrated with connectedness, penetrated with relatedness.
+ - I, the fiery life of divine wisdom, I ignite the beauty of the plains, I sparkle the water, I burn in the sun, and the moon, and the stars.
+ - The Word is living, being, spirit, all verdant greening, all creativity. This Word manifests itself in every creature.
+ - We shall awaken from our dullness and rise vigorously toward justice. If we fall in love with creation deeper and deeper, we will respond to its endangerment with passion.
+ - The earth should not be injured. The earth should not be destroyed. As often as the elements, the elements of the world are violated by ill treatment, so God will cleanse them thru the sufferings, thru the hardships of mankind.
+ - When one’s thoughts are neither frivolous nor flippant, when one’s thoughts are neither stiff-necked nor stupid, but rather, are harmonious – they habitually render physical calm and deep insight.
+ - O, You who are ever giving life to all life, moving all creatures, root of all things, washing them clean, wiping out their mistakes, healing their wounds, You are our true life, luminous, wonderful, awakening the heart from its ancient sleep.
+ - Our souls should be like a transparent crystal through which God can be perceived.
+ - The soul is kissed by God in its innermost regions. With interior yearning, grace and blessing are bestowed. It is a yearning to take on God’s gentle yoke, It is a yearning to give one’s self to God’s Way.
+ - The soul is kissed by God in its innermost regions.
+ - All living creatures are sparks from the radiation of God’s brilliance, emerging from God like the rays of the sun.
+ - With nature’s help, humankind can set into creation all that is necessary and life sustaining.
+ - Divinity is in its omniscience and omnipotence like a wheel, a circle, a whole, that can neither be understood, nor divided, nor begun nor ended.
+ - I welcome all creatures of the world with grace.
+ - Rivers of living water are to be poured out over the whole world, to ensure that people, like fishes caught in a net, can be restored to wholeness.
+ - You are the mountain and the valley.
+ - Those voices you hear are like the voice of a multitude, which lifts its sound on high; for jubilant praises, offered in simple harmony and charity, lead the faithful to that consonance in which is no discord, and make those who still live on earth sign with heart and voice for the heavenly reward.
+ - If one intends to make beer from oats, it is prepared with hops.
+ - Angels, living light most glorious! Beneath the Godhead in burning desire in the darkness and mystery of creation you look on the eye of your God never taking your fill: What glorious pleasures take shape within you!
+ - What I do not see I do not know. I see, hear and know simultaneously and learn what I know as if in a moment.
+ - Just as a circle embraces all that is within it, so does the God-head embrace all. No one has the power to divide this circle, to surpass it, or to limit it.
+ - Humanity finds itself in the midst of the world. In the midst of all other creatures humanity is the most significant and yet the most dependent upon the others.
+ - A person who lacks the verdancy of justice is dry, totally without tender goodness, totally without illuminating virtue.
+ - All the arts serving human desires and needs are derived from the breath that Godsent into the human body.
+ - The word stands for the body, but the symphony stands for the spirit.
+
+52 quotes

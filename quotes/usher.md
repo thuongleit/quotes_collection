@@ -1,0 +1,49 @@
+ - Success is measured by personal happiness.
+ - You either evolve or dissolve.
+ - Strivers achieve what dreamers believe.
+ - You are my superstar. I’m your number one fan, give me your autograph, sign it right here on my heart. Girl, I’ll be your groupie, baby.
+ - In time we grow older, we grow wiser, we grow smarter, and we’re better. And I feel like I’m becoming more seasoned, although I don’t have my salt-and-pepper hair.
+ - My philosophy is I’m raising future adults, not children.
+ - I think anybody, not just children, is a product of a great environment. If you put them in a better environment from a sad situation, nine times out of 10, they’ll go in the right direction.
+ - There’s always that one person, That will always have your heart. That one person for me is you.
+ - If you don’t EVOLVE, you dissolve. You evolve or you evaporate.
+ - For a woman to be able to dominate and also be feminine and soft, that’s a talent. And its not all about appearance. A woman who has a brain, who is street-smart and book-smart, that woman is very, very sexy to me.
+ - Success is about dedication. You may not be where you want to be or do what you want to do when you’re on the journey. But you’ve got to be willing to have vision and foresight that leads you to an incredible end.
+ - The hardest thing I think I’ve ever had to do to tell you, the woman I love, that I’m having a baby by a woman that I barely know.
+ - Sleeping is forbidden at the age of 22. It’s all work and no play.
+ - You are who you are, and in the end, If you don’t believe it then no one will.
+ - I guess I had it made. My mother gave me advice – she taught me that women like to be looked in the eye – and my grandmother gave me condoms.
+ - Down time is not the name of the game.
+ - Success is all about having the confidence to shoot for something even if it seems impossible.
+ - Giving a child an education is by far one of the most important investments we can make.
+ - I tried football and got my ass beat. I tried baseball, and the ball knocked out one of my teeth.
+ - I like a woman who takes care of herself – it says something about the way she’ll care for me.
+ - I think it’s important for us to believe in one another’s capabilities. If I didn’t have someone to believe in me, I wouldn’t be the individual I am today. Neither would I strive for new territory or new direction or to believe in myself.
+ - I have this bodyguard so if I get tired of signing Autographs I ask him to step in. It’s hard because people get angry at you, but I’ve got a life to live too.
+ - It’s a mission for me to make sure that philanthropy doesn’t feel like a vintage hand-me-down from mom or dad. I want people to feel compelled to do something positive because they just love it, they’re excited about it, and it’s cool.
+ - Somebody has to look out for and protect our kids, and I feel blessed to be a blessing to someone else.
+ - The more youth begin to recognize that they have a voice, the more change is possible.
+ - The best present a man can give a woman is his undivided attention.
+ - I never hated my father. I would have named my child Usher regardless. I never hated myself because I carried his name, because I made it mean what I wanted it to mean.
+ - It isn’t hard to be in a relationship because I’ve always loved to be in a relationship, and I love to be in love.
+ - Breaking up is a natural evolution when you try to figure out what you want in life.
+ - You can’t fake being a star. But you can also become a great personality.
+ - Learn from the mistakes of others. You can’t make them all yourself.
+ - The beauty about living in Atlanta is that there aren’t too many paparazzi here; you can just relax. And that really works for me and my children.
+ - How do I define who Usher is? I’m still doing it – every day, every new opportunity, every stage, every interview, every other thing that I’ve done, every time that I’ve invested in anything that is all the definition of who I am.
+ - Live performance has always been my thing. It’s my purpose to master and capture the moment every time I have you connected.
+ - Breaking up is a natural evolution when you try to figure out what you want in life. If you’re with an individual who isn’t moving in the same direction and at the same rate that you are, it ain’t going to work.
+ - The unique essence of being an artist is dying. Eveything looks the same. Now there’s a formula. And it works. – But it takes away from the reason we do it.
+ - Appearance is something you should definitely consider when you’re going out. Have your girlfriend clip your nails or something like that.
+ - I’ve been working so hard, I’m about to have a Mariah Carey.
+ - I’d like to do something with Michael Buble, Harry Connick Jr., Tim McGraw, Justin Timberlake, and Gwen Stefani.
+ - I met BSB at a benefit gig we were both doing, and they are really humble, nice guys – and very hard working.
+ - The girls want to see the rips on your stomach – they like that.
+ - I wouldn’t call myself a coward, no way. But being buried alive is something I could never handle. The only way you’d see me being buried alive is if I was dead, man.
+ - We all possess exactly what we need to be our greatest selves...
+ - I can win those four-chair turns all day.
+ - It can never be bad to have a foundation as a man – a black man. – in a time when women are dying for men. Women have started to become lovers of each other as a result of not having enough men.
+ - I’m a flamboyant type of guy, a cooler version of Liberace.
+ - I learned how music works dealing with Jermaine Dupri, and I learned how image works dealing with Puff Daddy.
+
+47 quotes

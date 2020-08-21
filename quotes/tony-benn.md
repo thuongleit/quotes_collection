@@ -1,0 +1,82 @@
+ - There is no final victory, as there is no final defeat. There is just the same battle. To be fought, over and over again. So toughen up, bloody toughen up.
+ - Hope is the fuel of progress and fear is the prison in which you put yourself.
+ - The Civil Service is a bit like a rusty weathercock. It moves with opinion then it stays where it is until another wind moves it in a different direction.
+ - If we can find the money to kill people, we can find the money to help people.
+ - Five questions for politicians: 1. What power have you got? 2. Where did you get it from? 3. In whose interest do you exercise it? 4. To whom are you accountable? 5. How can we get rid of you?
+ - The Labour party has never been a socialist party, although there have always been socialists in it – a bit like Christians in the Church of England.
+ - I’ve made every mistake – but mistakes are how you learn.
+ - The way a government treats refugees is very instructive...
+ - Anyone from abroad will tell you that it is the class system that really lies at the root of our problems, economic and industrial. The House of Lords symbolises that.
+ - I think there are two ways in which people are controlled. First of all frighten people and secondly, demoralise them.
+ - When I saw how the European Union was developing, it was very obvious what they had in mind was not democratic. In Britain, you vote for a government so the government has to listen to you, and if you don’t like it you can change it.
+ - We are paying a heavy political price for 20 years in which, as a party, we have played down our criticism of capitalism and soft-peddled our advocacy of socialism.
+ - The Tory party is the enemy of democracy.
+ - Britain is the only colony in the British Empire and it is up to us now to liberate ourselves.
+ - Food movement organic food stores supplies health food products and facilitate with instrumental support in organic agriculture.
+ - It’s the same each time with progress. First they ignore you, then they say you’re mad, then dangerous, then there’s a pause and then you can’t find anyone who disagrees with you.
+ - There may be a legal obligation to obey, but there will be no moral obligation to obey. When it comes to history, it will be the people who broke the law for freedom who will be remembered and honoured.
+ - There is no moral difference between a Stealth bomber and a suicide bomber. They both kill innocent people for political reasons.
+ - I do not share the general view that market forces are the basis for political liberty. Every time I see a homeless person living in a cardboard box in London, I see that person as a victim of market forces. Everytime I see a pensioner who cannot manage, I know that he is a victim of market forces.
+ - No medieval monarch in the whole of British history ever had such power as every modern British Prime Minister has in his or her hands. Nor does any American President have power approaching this.
+ - A faith is something you die for; a doctrine is something you kill for; there is all the difference in the world.
+ - We are not just here to manage capitalism but to change society and to define its finer values.
+ - I do not share the general view that market forces are the basis of personal liberty.
+ - Encouragement is the most important thing in the world for young people, rather than league tables, which demoralise everyone.
+ - Democracy is not just voting every 5 years and watching ‘Big Brother’ in between and wondering why nothing happens. Democracy is what we do and say where we live and work.
+ - People in debt become hopeless and hopeless people don’t vote. They always say that that everyone should vote but I think that if the poor in Britain or the United States turned out and voted for people that represented their interests there would be a real democratic revolution.
+ - When I think of Cool Britannia I think of old people dying of hypothermia.
+ - Choice depends on the freedom to choose and if you are shackled with debt you don’t have the freedom to choose.
+ - The Internet is only the street corner meeting on a big scale.
+ - I am not a reluctant peer but a persistent commoner.
+ - The thought that my mother would suddenly be a foreigner would upset me very much.
+ - It is wholly wrong to blame Marx for what was done in his name, as it is to blame Jesus for what was done in his.
+ - The crisis that we inherit when we come to power will be the occasion for fundamental change and not the excuse for postponing it.
+ - If the Queen can reject the advice of a minister on a little thing like a postage stamp, what would happen if she rejected the advice of the Prime Minister on a major matter? If the Crown personally can reject advice, then, of course, the whole democratic facade turns out to be false.
+ - An educated, healthy and confident nation is harder to govern.
+ - I am a public library.
+ - She believes in something. It is an old-fashioned idea.
+ - Making mistakes is how you learn.
+ - I think very often the boat-rockers turn out to be the people who are building the craft.
+ - It is government policy to phase out subsidies to nationalised industries. In line with this, the government hopes that the coal industry will be able to operate without the need for assistance apart from social grants.
+ - I’d rather die on my feet making a speech than die of Alzheimer’s – and that’s what I’m planning to do.
+ - The House of Lords is the British Outer Mongolia for retired politicians.
+ - An MP is the only job where you have 70,000 employers, and only one employee.
+ - Through me the energy policy of the whole Common Market is being held up. Without opening old wounds, it pleases me no end.
+ - I’ve got four lovely children, ten lovely grandchildren, and I left parliament to devote more time to politics, and I think that what is really going on in Britain is a growing sense of alienation. People don’t feel anyone listens to them.
+ - The Establishment decided Thatcher’s ideas were safer with a strong Blair government than with a weak Major government. We are given all these personalities to choose between to disguise the fact that the policies are the same.
+ - Middle class Labour leaders are recaptured by the establishment when they die.
+ - If ever I left the House of Commons it would be because I wanted to spend more time on politics.
+ - People say that if we work for the Single European Act, women will get their rights, the water will be purer, and training will be better. That is rubbish. It is part of the attempt to consolidate the EEC.
+ - I now want more time to devote to politics and more freedom to do so.
+ - Through talk, we tamed kings, restrained tyrants, averted revolution.
+ - I did not enter the Labour Party 47 years ago to have our manifesto written by Dr Mori, Dr Gallup and Mr Harris.
+ - Some of the jam we thought was for tomorrow, we’ve already eaten.
+ - When you think of the number of men in the world who hate each other, why, when two men love each other, does the church split?
+ - Although socialism is widely held by the establishment to be outdated, the things that are most popular in British society today are little pockets of socialism, where areas of life have been excluded from the crude operation of market forces and are protected for the benefit of the community.
+ - I have had the advantage of a radical Christian upbringing.
+ - The flag of radicalism which has been hoisted in Wolverhampton is beginning to look like the one that fluttered 25 years ago over Dachau and Belsen.
+ - Someone comes every morning at nine o’clock to see if I am still alive. I do get lonely, yes, but I have the children who come and see me. I see all my children every week, and there are the grandchildren, too.
+ - In developing our industrial strategy for the period ahead, we have the benefit of much experience. Almost everything has been tried at least once.
+ - The 1973 Labour Conference will have before it the most radical programme the Party has prepared since 1945.
+ - It is tempting to deny, but if you deny you confirm what you won’t deny.
+ - The people who have sacrificed their view in order to get to the top have very often left no footprints in the sands of time.
+ - Having served in eleven Parliaments, it would be difficult to describe this as a maiden speech. It would be like Elizabeth Taylor appearing at her next wedding in a white gown.
+ - The present combination of corporate or commercial control theoretically answerable to politically appointed Boards of Governors is not in any sense a democratic enough procedure to control the power the broadcasters have.
+ - I think the truth is that the Labour Party isn’t believed any more because people suspect it will say anything to get votes. The rebuilding of some radical alternatives to Thatcherism – and by that I mean all-party Thatcherism – will require us to do some very difficult things.
+ - I see myself as an old man and an unqualified teacher to the nation. I think being a teacher is probably the most important thing you can be in politics.
+ - I try to operate on two unconnected levels. One on the practical level of action in which I am extremely cautious and conservative. The second is the realm of ideas where I try to be very free.
+ - I don’t want to commit myself in advocating a definite republican constitution which will get bogged down with the question of who would elect the President and when.
+ - Marxism is now a world faith and must be allowed to enter into a continuous dialogue with other world faiths, including religious faiths.
+ - Thanks to the tabloid campaigns I have many death threats and I was very pleased to get another one the other day.
+ - In the end, the tragedy of Harold Wilson was that you couldn’t believe a word he said.
+ - The exhaustion of old age is something people who are younger don’t fully appreciate.
+ - There is good and bad in all of us and the Church uses the idea of original sin to control us by saying that, if we do not obey the bishops, we will rot in Hell.
+ - Undoubtedly the war with Iraq was a tragedy. I think it was also a crime.
+ - I believe the more difficult the circumstances, the more people will be inclined to trust those in charge at the moment.
+ - When we have a majority we will do it. I think the days of the Lords are quite genuinely numbered.
+ - It is obvious I shall have to abandon my hopes of getting the Queen’s head off the stamps.
+ - I’ve been a member of the Labour Party sixty five years, and I remain in it, but I think it’s all about campaigning for justice and peace, and if you do that, you get a lot of support.
+ - Britain’s continuing membership of the Community would mean the end of Britain as a completely self-governing nation.
+ - If you file your waste-paper basket for fifty years, you have a public library.
+
+80 quotes

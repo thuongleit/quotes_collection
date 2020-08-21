@@ -1,0 +1,44 @@
+ - Either we reduce the world’s population voluntarily or nature will do this for us, but brutally.
+ - Isn’t the only hope for the planet that the industrialized civilizations collapse? Isn’t it our responsibility to bring that about?
+ - I am a socialist in ideology, a capitalist in methodology.
+ - We may get to the point where the only way of saving the world will be for industrial civilization to collapse.
+ - What pleases me most is that sustainable development is on almost everybody’s agenda now.
+ - We’re either going to save the world or no one will be saved.
+ - Current lifestyles and consumption patterns of the affluent middle class – involving high meat intake, use of fossil fuels, appliances, air-conditioning, and suburban housing – are not sustainable.
+ - A shift is necessary toward lifestyles less geared to environmental damaging consumption patterns.
+ - It is the responsibility of each human being today to choose between the force of darkness and the force of light. We must therefore transform our attitudes, and adopt a renewed respect for the superior laws of Divine Nature.
+ - My belief is that the purpose of economic life is to meet the social needs of people.
+ - The real goal of the Earth Charter is that it will in fact become like the Ten Commandments.
+ - The combination of population growth and the growth in consumption is a danger that we are not prepared for and something we will need global co-operation on.
+ - We need what I have often called an ecological approach to the management of these resources and we do not have that now. We have the inertia of past habits, unsustainable habits.
+ - We owe at least this much to future generations, from whom we have borrowed a fragile planet called Earth.
+ - After all, sustainability means running the global environment – Earth Inc. – like a corporation: with depreciation, amortization and maintenance accounts. In other words, keeping the asset whole, rather than undermining your natural capital.
+ - Inertia is a powerful force in human and political affairs.
+ - The Earth Charter is important as an expression of the commitment of people throughout the Earth to evoke their own deepest moral, spiritual and ethical principles in the task of ensuring a sustainable future for those who inhabit the Earth now and those who will follow us on the Earth.
+ - I am convinced the prophets of doom have to be taken seriously.
+ - If you want to maintain a sustainable supply of fish you have to farm the fish, rather than mine them. So putting your money into fishing fleets that are going to exacerbate the problem by over-fishing is not the way to preserve the underlying asset.
+ - A citizen of an advanced industrialized nation consumes in six months the energy and raw materials that have to last the citizen of a developing country his entire lifetime.
+ - Toyota was the first to put a commercial fuel cell powered car on the road, and I have no doubt that Toyota will continue to be in the front lines in the development of competitive fuel cell vehicles.
+ - Rumors of my wealth are greatly exaggerated. I have never been interested in money.
+ - Nevertheless, the concept of sustainable development is now known – even amongst those who haven’t accepted it – and it’s recognized, debated and followed by an increasing number of businesses.
+ - Don’t accept that you can’t make a difference. Because if you can’t make a difference, you won’t make a difference, and if you put a multiplier on that we will continue on an unsustainable pathway.
+ - The Prime Minister of India, at a meeting that I co-chaired a few months ago, stated that any development that is not sustainable is not development.
+ - I am President of the UN created University for Peace, which has a strong commitment to the relationship between peace, security and the environment. I meet with young people around the world and I always come away enthused and encouraged.
+ - Licences to have babies incidentally is something that I got in trouble for some years ago for suggesting even in Canada that this might be necessary at some point, at least some restriction on the right to have a child.
+ - In addition to this, they already have a fuel cell car on the road in Japan. It is subsidized from within the corporation because they are still at a high cost.
+ - Occupy World Street is a masterpiece which deserves to get wide circulation and commitment by world leaders.
+ - Not to say that corporations are perfect today, but even grand corporations like Dupont have made immense progress in translating some of their past environmentally damaging practices into new profit opportunities.
+ - I’ve developed a huge regard for Toyota for its environmental awareness, for its immense commitment to research and development in this field, and for its leadership in developing hybrids which others are now following.
+ - I learn something from criticism because when it comes from sources you respect you always examine it and learn.
+ - I was with Ted Turner when he came to see Kofi Annan – the Secretary-General of the UN – to announce his decision to put $1 billion to the service of UN projects and programs.
+ - One of the things that Ive always thought I would like to do is to develop an environmental index. Then people can measure their own environmental performance on an index as they do in other ways.
+ - Ted Turner is still a leader. And he sets a great example. His ability financially has been reduced, but his influence and his example still is an important asset to the whole environmental movement.
+ - So, what we do as individuals matters. It adds up.
+ - I believe we are going to move into a situation where the more effective conferences will be smaller, more specialized, more focused, with occasional large gatherings to get the attention of the larger world.
+ - Also, it is interesting that developing countries, with China and India perhaps in the lead, where the future of the global environment will be decided are now on board with the case for sustainable development.
+ - Well they do have a use, but we should never believe that any international conference is going to suddenly solve problems like the condition of the global environment.
+ - I’ve got used to criticisms and, naturally, I try to make sure I don’t listen to the more extreme ones because most of the people who have taken their right-wing extremist view of my life are people that I’ve never met.
+ - Anyone who is seriously interested in me would usually do a little more homework and realise that the extreme criticisms are almost exclusively ideologically based.
+ - I am on the board of corporations who contribute both to environmental problems and their solutions. And I am on the NGO side: the Earth Council and other organizations.
+
+42 quotes

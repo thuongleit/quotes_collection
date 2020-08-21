@@ -1,0 +1,45 @@
+ - Base not your joy on the deeds of others. For what has been given can be taken away.
+ - I was fine, until I was born. And it’s been downhill ever since.
+ - I hate the human race. Of course, therefore, I hate myself the most, because I am the least of the human race.
+ - I don’t like the human race in general. We are the only species who hunt for sport, who kill due to emotional need.
+ - Have faith that when bad things happen to you, I belief in an after life, it is better to suffer here on Earth than what awaits you. That is why I pray for pain, and I get it. I do.
+ - It’s bad poetry executed by people that can’t sing. That’s my definition of Rap.
+ - I think all recent music sucks, and that includes Type O Negative.
+ - Yes, there are times when I get extremely depressed and how I sublimate those feelings is through music.
+ - People ask how I learned to play bass with one hand. Well, with a face like mine, you learn to do a lot of things with one hand.
+ - Instead of slashing my wrists, I just write a bunch of really crummy songs.
+ - I think I’ve changed a lot as a person.
+ - We live to avoid death, we exist to avoid unexistence.
+ - It’s a funny thing, when you talk to God, you’re religious, but when he talks to you, you’re a psychopath.
+ - I’m the product of 6 million years of evolution? Come on, man. I crawled out of a swamp yesterday.
+ - If I wasn’t bound to Brooklyn, due to my own personal reasons like taking care of my mother and the fact that this is where the band is based, I would probably move to Iceland.
+ - I think anyone who has an opinion, and voices it, will offend someone.
+ - So, I simply switched over to wine because it was not carbonated.
+ - I don’t really like to play live. I don’t like to be on stage. I feel very self-conscious.
+ - I don’t know what to say to that, but I have to agree with Johnny that, yeah, we do touch upon things that most men would rather not admit: That we feel pain, we cry, get sad and sometimes don’t deal well with disappointment.
+ - I had hit a critical period in my life, where I changed very much as a person. I consider the person I used to be, dead, and I’m glad that he is. Insecure, frightened, confused, much like a lot of people I know today.
+ - I like to put on hardcore when I have to clean my apartment, which I hate to do, but it’s motivational. I like old heavy metal when I’m outside working on my car. Music has definite functions for me.
+ - I drink for the effect, because it loosens up the tongue a little bit.
+ - And when you start to think about death, you start to think about what’s after it. And then you start hoping there is a God. For me, it’s a frightening thought to go nowhere. I also can’t believe that people like Stalin and Hitler are gonna go to the same place as Mother Teresa.
+ - I used to try to run five miles every other day, which I worked up to and I was doing it, but I was subjected to my own thoughts for forty minutes without any sensory input, and I couldn’t stand what I thought.
+ - As far as humor goes, I’ve always been a very insecure person and I’ve always wanted to be liked.
+ - I feel that I’ve grown up a little bit and I’m actually ready to settle down.
+ - Most bands don’t even last fourteen months let alone fourteen years.
+ - I want to stay away from politics, or else I’ll probably end up putting my size fifteen foot into my mouth.
+ - It seems to be that southern Europeans are just more intimate socially, whereas I like a lot of personal space – like, a mile from the nearest person is fine for me.
+ - I don’t believe in, and I am a devout non-believer, in playing new songs live if the subjected and pathetic crowd has not heard them before because I consider it like mass psychosis and genocidal.
+ - One of the things I’ve always personally tried to stress with this band was to have some kind of visual aspect and to be consistent with it – like, not to change.
+ - Sometimes, I write ’60s or ’80s style pop songs.
+ - I guess I’ve learned that there’s really no such thing as a bad label, there is only a bad contract.
+ - I’ve always been very image prone, along the lines of bands like Black Sabbath and even Devo.
+ - Treat each other the way you would like to be treated.
+ - Technically, at this point we’re no longer with the label; we’ve fulfilled our contract.
+ - I think aerobics are great, of course, but it just bores me out of my mind.
+ - I also like to eat very much, so I like all different types of foods.
+ - I just like being a social experiment sometimes. I really should not be allowed in public. But I just go out into the public just to see people’s reaction.
+ - I find that different types of music are good for certain activities.
+ - There’s a lot of things that go on when you’re on tour that cannot be controlled. I’m not even talking about myself, but of course there’s sexual activity and drugs, fighting and language; it is certainly not a place to raise a family.
+ - I’m a big fan of the effects of alcohol.
+ - Finding fresh song topics can sometimes be quite difficult.
+
+43 quotes

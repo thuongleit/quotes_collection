@@ -1,0 +1,22 @@
+ - I have fallen in love with you, and there is no future for us. That you burst into my life suddenly only a short time ago. That it’s too fast, too soon, and you will leave the same way you came into my life. I’ll turn around one day and you’ll be gone.
+ - I feel like I should probably ask you to leave. But I don’t really want you to go. I want you to stay, but I know you shouldn’t. – Hope.
+ - Because sometimes in life Ken doesn’t always choose Barbie.
+ - Sometimes you have to wander around until you find where you really belong. And sometimes it’s right where you started.
+ - Anyone can get a degree or a certificate in something. Big deal. A piece of paper from a university somewhere doesn’t define a person. It won’t tell you who I am.
+ - You make me want to suck a bruise on you just to kiss it better. – Luc to Jane –.
+ - The only problem with one-man woman was that he was not a one-woman man.
+ - When you lock everything down tight so that the pain can’t get out, you also keep good stuff from getting in.
+ - The two things I enjoy the most about writing are the first page of a book and the last. What’s in between is very hard work.
+ - I write romance because I love to read romance.
+ - I finished ‘The Hunger Games’ trilogy, and I love most anything with zombies.
+ - I wanted people to watch. I wanted people to see us together. I wanted people to see us kissing today. I want everyone to know that you’re mine.
+ - I’ve tried and I can’t. The thought of it twists me in a knot.
+ - Sometimes a person needs to hear you forgive them so they can start to forgive themselves.
+ - One of the most difficult things he’d ever done was turn away and leave her standing in the shadows.
+ - I didn’t choose to write a military man as much as Vince Haven chose me.
+ - Give me some sugar.
+ - Each time I reach a goal or read a great review, I am beyond pleased.
+ - The expectation was that ‘True Confessions’ would be my first published book, but that didn’t happen. After it was rejected by every publisher in New York and Canada, I shoved it in a closet and went on to write and publish my next three books.
+ - The first book I sat down to write was an historical romance. It was really bad and thankfully no one ever saw it.
+
+20 quotes

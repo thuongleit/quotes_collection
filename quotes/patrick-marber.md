@@ -1,0 +1,28 @@
+ - I don’t love you anymore. Goodbye.
+ - I’m a happily married man and I think to get married you have to be optimistic.
+ - What’s so great about the truth? Try lying for a change, it’s the currency of the world.
+ - I love everything about you that hurts.
+ - Alice: It’s the only way to leave. “I don’t love you anymore. Goodbye.” Dan: Supposing you do still love them? Alice: You don’t leave.
+ - I don’t want to lie. I can’t tell the truth. So it’s over.
+ - I think you owe me something for deceiving me so exquisitely.
+ - Everything is a version of something else.
+ - Where is this love? I can’t see it, I can’t touch it. I can’t feel it. I can hear it. I can hear some words, but I can’t do anything with your easy words.
+ - Lying is the most fun a girl can have without taking her clothes off. But it’s better if you do.
+ - When you’re in your early 20s your love life seems to explode every 20 minutes or so. By the time you’ve reached your thirties, it is every five or ten years.
+ - I like the varying rhythm of being a writer that you have a period of being in complete isolation where it’s just you and the book and your screenplay and no-one can read it.
+ - It’s one of the reasons I don’t do drugs. One sniff and I’d go all the way.
+ - A couple of flop plays, a death in the family, and it could all collapse.
+ - Well, you just know, as a writer, I didn’t really write one of the five best screenplays of the year. There were lots of brilliant screenplays; I was just one of the lucky ones who got nominated.
+ - Always when I directed the play, I was always trying to cast people not who were necessarily like the characters, but people who I felt had the essential component that the character had, some kind of soul for it.
+ - When I look back I can’t believe I was so stupid as to direct Dealer’s Choice.
+ - The trite answer is that everything is true but none of it happened. It is emotionally true, but the events, the plotting, the narrative, isn’t true of my life, though I’ve experienced most of the emotions experienced by the characters in the play.
+ - I think a tragedy is something where the natural order of things is completely interrupted and doesn’t right itself.
+ - That’s the most stupid expression in the world. ‘I fell in love’ – as if you had no choice. There’s a moment, there’s always a moment; I can do this, I can give in to this or I can resist it. I don’t know when your moment was but I bet there was one.
+ - I’m a Golden Globe nominee, yes. It’s very nice. It’s a very nice thing, but I kind of think of all the awards I wasn’t ever nominated for, for years and things.
+ - I like them all – I don’t always approve. I see myself as a sort of benevolent uncle to these characters, and I can see why they do what they do; sometimes they make some mistakes, but at heart I think they’re decent.
+ - I mean when the play was on in New York I was starting to get film offers coming through, and since the film’s come out I get offered more than I used to, but it happens incrementally.
+ - I used to go with my parents and loved it, I was in school plays, and I started reading plays before I started reading novels. I’ll defend it to the hilt. When theatre is good it is fabulous.
+ - I’m constantly having to be vigilant with a depressive tendency, an addictive tendency.
+ - Theatre is how I first encountered art on any level.
+
+26 quotes

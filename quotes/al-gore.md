@@ -1,0 +1,252 @@
+ - The will to act is a renewable resource.
+ - You know there’s an old african proverb that i made up. if you want to go quickly, go alone. if you want to go far, go together. we need to go far, quickly.
+ - ManBearPig, half man, half bear, half pig.
+ - Well, the title “An Inconvenient Truth” is a way of highlighting the reasons why some people, including the president, don’t seem to accept the truth.
+ - The warnings about global warming have been extremely clear for a long time. We are facing a global climate crisis. It is deepening. We are entering a period of consequences.
+ - Believe in the power of your own voice. The more noise you make, the more accountability you demand from your leaders, the more our world will change for the better.
+ - There is an old African proverb that says if you want to go quickly, go alone, if you want to go far, go together. We have to go far, quickly, and that means we have to quickly find a way to change the world’s consciousness about exactly what we are facing and how we have to work to solve it.
+ - I saw the logarithmic growth of computer power...
+ - It is just human nature to take time to connect the dots, I know that. But I also know that there can be a day of reckoning when you wish you had connected the dots more quickly.
+ - Take it from me, every vote counts.
+ - In a time of darkness, you don’t curse the darkness, you light a candle.
+ - What we take for granted might not be here for our children.
+ - That we can be e pluribus Unum – out of one, many.
+ - I believe that the purpose of life is to glorify God.
+ - A zebra does not change its spots.
+ - We must also promote global access to the Internet. We need to bridge the digital divide not just within our country, but among countries. Only by giving people around the world access to this technology can they tap into the potential of the Information Age.
+ - If we did not take action to solve this crisis, it could indeed threaten the future of human civilization. That sounds shrill. It sounds hard to accept. I believe it’s deadly accurate. But again, we can solve it.
+ - Fifteen per cent of the population believe the moon landing was actually staged in a movie lot in Arizona and somewhat fewer still believe the Earth is flat. I think they all get together with the global warming deniers on a Saturday night and party.
+ - Pollution should never be the price of prosperity.
+ - A lot of people go straight from denial to despair without pausing in the middle and doing something about it.
+ - The truth is that climate change is presenting the greatest challenge humanity has ever faced.
+ - Future generations may well have occasion to ask themselves, “What were our parents thinking? Why didn’t they wake up when they had a chance?” We have to hear that question from them, now.
+ - The struggle to save the global environment is in one way much more difficult than the struggle to vanquish Hitler, for this time the war is with ourselves. We are the enemy, just as we have only ourselves as allies.
+ - Fear is the most powerful enemy of reason.
+ - We can build a collective civic space large enough for all our separate identities, that we can be E Pluribus Unum – Out of One, Many.
+ - We’re putting 70 million tonnes of pollution into the atmosphere every day, trapping an enormous amount of extra heat from the sun inside the earth’s atmosphere. It’s threatening to push the planet past a tipping point beyond which climate change would be difficult to stop.
+ - The interior of the earth is extremely hot – several million degrees.
+ - Throughout history, religious wars have always been the most brutal and cruel and merciless.
+ - Today I challenge our nation to commit to producing 100 percent of our electricity from renewable energy and truly clean carbon-free sources within 10 years.
+ - When politics is too slow, change has to come from culture.
+ - Plant trees, Lots of trees.
+ - I’m not a vegetarian, but I have cut back sharply on the meat that I eat.
+ - The debate’s over. The people who dispute the international consensus on global warming are in the same category now with the people who think the moon landing was staged on a movie lot in Arizona.
+ - Every nation has a moral obligation to safeguard the future.
+ - I do genuinely believe that the political system is not linear. When it reaches a tipping point fashioned by a critical mass of opinion, the slow pace of change we’re used to will no longer be the norm. I see a lot of signs every day that we’re moving closer and closer to that tipping point.
+ - I was recently on a tour of Latin America, and the only regret I have was that I didn’t study Latin harder in school so I could converse with those people.
+ - I smoked pot in college and in the Army...
+ - We all know the leopard can’t change his stripes.
+ - What changed in the United States with Hurricane Katrina was a feeling that we have entered a period of consequences.
+ - No matter how hard the loss, defeat might serve as well as victory to shake the soul and let the glory out.
+ - Junkies find veins in their toes when the veins in their arms collapse. Developing tars sands is the equivalent.
+ - Winston Churchill aroused this nation in heroic fashion to save civilisation in World War Two. We have everything we need except political will, but political will is a renewable resource.
+ - I am old enough to know that a red carpet is just a rug.
+ - Our world faces a true planetary emergency. I know the phrase sounds shrill, and I know it’s a challenge to the moral imagination.
+ - The planet is in distress and all of the attention is on Paris Hilton.
+ - If the only tool we use to analyse what’s valuable is a price tag, then those things that don’t have price tags begin to look like they have no value.
+ - We are running out of time, we must have a planetary solution to a planetary crisis.
+ - There’s no such thing as clean coal. It’s non-existent. Theoretically, it might be possible, many years from now, to come up with a way to clean it as it’s burnt. But there’s not a single demonstration project in the United States. Clean coal doesn’t exist.
+ - Our planet has a rising fever. If the crib catches fire you don’t say: ‘Hmmm, how fast is that crib going to burn? Has it ever burned before? Is my baby flame retardant?’
+ - We are monumentally distracted by a pervasive technological culture that appears to have a life of its own, one that insists on our full attention, continually seducing us and pulling us away from the opportunity to experience directly the true meaning of our own lives.
+ - It seems an easy choice – sacrifice the tree for a human life – until one learns that three trees must be destroyed for each patient treated. Suddenly we must confront some tough questions. How important are the medical needs of future generations?
+ - When you have the facts on your side, argue the facts. When you have the law on your side, argue the law. When you have neither, holler.
+ - Incredibly, while these 18 to 20 year-olds cannot legally buy a beer, cannot purchase a bottle of wine and cannot order a drink in a bar, right now they can walk into any gun shop, any pawn shop, any gun show, anywhere in America and buy a handgun.
+ - The symbolism – and the substantive significance – of planting a tree has universal power in every culture and every society on Earth, and it is a way for individual men, women and children to participate in creating solutions for the environmental crisis.
+ - There are good people, who are in politics – in both parties – who hold this at arm’s length, because if they acknowledge it and recognize it, then the moral imperative to make big changes is inescapable.
+ - When people flirt with despair about the future, they are less likely to take the actions necessary to safeguard it, focusing instead on the short-term.
+ - The day I made that statement, about the inventing the internet, I was tired because I’d been up all night inventing the Camcorder.
+ - Civil disobedience has an honourable history, and when the urgency and moral clarity cross a certain threshold, then I think that civil disobedience is quite understandable, and it has a role to play.
+ - Humankind has suddenly entered into a brand new relationship with our planet. Unless we quickly and profoundly change the course of our civilization, we face an immediate and grave danger of destroying the worldwide ecological system that sustains life as we know it.
+ - Adopting a central organizing principle means embarking on an all-out effort to use every policy and program, every law and institution, to halt the destruction of the environment.
+ - Hurricane Sandy is a disturbing sign of things to come. We must heed this warning and act quickly to solve the climate crisis. Dirty energy makes dirty weather.
+ - Politics has become a game of meaningless, mindless battles, conducted by unscrupulous methods and people, designed to transform even the most serious policy debates into sport.
+ - We can believe in the future and work to achieve it and preserve it, or we can whirl blindly on, behaving as if one day there will be no children to inherit our legacy. The choice is ours; the earth is in balance.
+ - Our civilization is experiencing unprecedented changes across many realms, largely due to the rapid advancement of information technology. The ability to code and understand the power of computing is crucial to success in today’s hyper-connected world.
+ - Take it from me – every vote counts. In our Democracy, every vote has power. And never forget – that power is yours. Don’t let anyone take it away or talk you into throwing it away. And let’s make sure that this time every vote is counted.
+ - I didn’t realize I was in a Buddhist temple.
+ - We have to abandon the conceit that isolated personal actions are going to solve this crisis. Our policies have to shift.
+ - George Bush taking credit for the wall coming down is like the rooster taking credit for the sun rising.
+ - We are close to a time when all of humankind will envision a global agenda that encompasses a kind of Global Marshall Plan to address the causes of poverty and suffering and environmental destruction all over the earth.
+ - The catastrophe now threatening us is unprecedented – and we often confuse the unprecedented with the improbable.
+ - In order to solve the climate crisis, we need to solve the democracy crisis.
+ - I would kiss Tipper much longer.
+ - I have absolutely no plans and no expectations of ever being a candidate again.
+ - The climate crisis is not a political issue, it is a moral and spiritual challenge to all of humanity. It is also our greatest opportunity to lift Global Consciousness to a higher level.
+ - Remember America, I gave you the Internet and I can take it away.
+ - The science linking the increased frequency and severity of extreme weather to the climate crisis has matured tremendously in the last couple of years.
+ - It’s always been my dream to come to Madison Square Garden and be the warm-up act for Elvis.
+ - I was born a poor black child.
+ - The climate crisis requires a bottom-up, grassroots demand for solutions because the elites in many parts of the world are under the influence of old industry.
+ - We are in an unusual predicament as a global civilization. The maximum that is politically feasible, even the maximum that is politically imaginable right now, still falls short of the minimum that is scientifically and ecologically necessary.
+ - Like an audience entertained by a magician, we allow ourselves to be deceived by those with a stake in persuading us to ignore reality.
+ - The entire North Polar ice cap is disappearing before our very eyes. It’s been the size of the continental United States for the last 3 million years and now 40 percent is gone and the rest of it is going.
+ - I’m sorry I ever invented the Electoral College.
+ - I tell you that Michael Jackson is unbelievable, isn’t he? He’s just unbelievable!
+ - Most people in politics draw energy from backslapping and shaking hands and all that. I draw energy from discussing ideas.
+ - We’re operating this planet like a business in liquidation.
+ - I put all my sighs in a lockbox.
+ - It’s a blessing to have work that feels fulfilling.
+ - Global warming pollution, indeed all pollution, is now described by economists as an “externality.” This absurd label means, in essence: we don’t to keep track of this stuff so let’s pretend it doesn’t exist.
+ - The fate of mankind, as well as religion, depends on the emergence of a new faith in the future. Armed with such a faith, we might find it possible to resanctify the earth.
+ - Clouds of a different sort signal an environmental holocaust without precedent. Once again, world leaders waffle, hoping the danger will dissipate. Yet today the evidence is as clear as the sounds of glass shattering in Berlin.
+ - I remember as a boy when the conversation on civil rights was won in the South. I remember a time when one of my friends made a racist joke and another said, ‘Hey man, we don’t go for that anymore.’
+ - And just as the false assumption that we are not connected to the earth has led to the ecological crisis, so to the equally false assumption that we arenot connected to each other that has led to our social crisis.
+ - Today we’re dumping 70 million tons of global-warming pollution into the environment, and tomorrow we will dump more, and there is no effective worldwide response. Until we start sharply reducing global-warming pollution, I will feel that I have failed.
+ - To use a Southern euphemism, our space program has been snake-bit.
+ - I think the ethical standards established in this White House have been the highest in the history of the White House.
+ - The physical relationship between CO2 molecules and the atmosphere and the trapping of heat is as well-established as gravity, for God’s sakes. It’s not some mystery.
+ - My fellow Americans, people all over the world, we need to solve the climate crisis, it’s not a political issue, it’s a moral issue. We have everything we need to get started, with the possible exception of the will to act, that’s a renewable resource, let’s renew it.
+ - I drive a hybrid. Tipper and I got a Lexus hybrid. And we have a couple of Priuses in the family with our children. And I encourage people to make environmentally conscious choices because we all have to solve this climate crisis.
+ - There is an air of unreality in debating these arcane points when the world is changing in such dramatic ways right in front of our eyes because of global warming.
+ - Our way of life is at stake, our grandchildren are at stake, the future of civilization is at stake.
+ - I did very extensive diligence on Al Jazeera English, the network from which Al Jazeera America is going to be derived, and it’s really very clear that they have long since established a reputation for excellence and integrity and objectivity.
+ - The choice to ‘do nothing’ in response to the mounting evidence is actually a choice to continue and even accelerate the reckless environmental destruction that is creating the catastrophe at hand.
+ - In a time of social fragmentation, vulgarity becomes a way of life. To be shocking becomes more important – and often more profitable – than to be civil or creative or truly original.
+ - We sometimes emphasize the danger in a crisis without focusing on the opportunities that are there.
+ - Political will is a renewable resource, and everyone can have it in abundance if they so choose.
+ - Well-established theories collapse under the weight of new facts and observations which cannot be explained, and then accumulate to the point where the once useful theory is clearly obsolete.
+ - If you want your energy bills to go up, you should support an ever greater dependence on foreign oil, because the rate of new discoveries is declining as demand in China and India is growing, and the price of oil and thus the price of coal will go sky high.
+ - As important as it is to change the light bulbs, its more important to change the laws.
+ - I think I may have a future as a disembodied head.
+ - If youre a young person looking at the future of this planet and looking at what is being done right now, and not done, I believe we have reached the stage where it is time for civil disobedience to prevent the construction of new coal plants that do not have carbon capture and sequestration.
+ - For me, the most disturbing aspect of the Republican political culture is how it puts its unquenchable thirst for power, domination and a radical ideology above facts, reason and the truth.
+ - No controlling legal authority.
+ - The wind and the sun are free.
+ - My counsel advises me that there is no controlling legal authority or case that says there was any violation of law whatsoever.
+ - I drive a hybrid, and we’ve changed our light bulbs and windows and installed solar panels and geothermal ground source heat pumps and most everything else.
+ - I flew on Air Force Two for eight years, and now I have to take off my shoes to get on an aeroplane.
+ - We Americans write our own history. And the chapters of which we’re proudest are the ones where we had the courage to change. Time and again, Americans have seen the need for change, and have taken the initiative to bring that change to life.
+ - When fear displaces reason, the result is often irrational hatred and division.
+ - I decided to pick the diet that I thought would maximize my chances of long-term survival.
+ - Mother Nature does not do bailouts.
+ - I have always been fascinated with those who try to look over the horizon and see things that are coming at us.
+ - As it turns out, the scientific community has been addressing this particular question for some time now and they say that increased heavy snowfalls are completely consistent with what they have been predicting as a consequence of man-made global warming.
+ - The UK is one of the only nations on earth that has actually met and even exceeded its goals under the Kyoto Protocol.
+ - The Internet empowers individuals to play a more active role in the political process, as Obama’s campaign has manifested.
+ - How could this Y2K be a problem in a country where we have Intel and Microsoft?
+ - As I have said for many years throughout this land, we’re borrowing money from China to buy oil from the Persian Gulf to burn it in ways that destroy the future of human civilization. Every bit of that has to change.
+ - For a free country to continue thriving, there have to be regular reforms, because any society, any economy that stays in place, you’re going to see repeated attempts to exploit the openings for twisting policy to the advantage of those who already have wealth and power.
+ - Once the renewable infrastructure is built, the fuel is free forever. Unlike carbon-based fuels, the wind and the sun and the earth itself provide fuel that is free, in amounts that are effectively limitless.
+ - A low voter turnout is an indication of fewer people going to the polls.
+ - The consensus is clear. We need an immediate and determined shift to a clean, renewable economy. The continued mass burning of fossil fuels is inconsistent with a healthy, prosperous future for our civilization.
+ - I’m passionate about restoring the efficacy of American democracy, making capitalism sustainable, prioritizing advances in technology, and seizing the opportunities to use that kind of innovation to help usher in a new economy that doesn’t rely on carbon-spewing fossil fuels.
+ - If the people that believed the moon landing was staged on a movie lot had access to unlimited money from large carbon polluters or some other special interest who wanted to confuse people into thinking that the moon landing didn’t take place, I’m sure we’d have a robust debate about it right now.
+ - Of all the works of civilization that interfere with the natural water distribution system, irrigation has been by far the most pervasive and powerful.
+ - The conversation on global warming has been stalled because a shrinking group of denialists fly into a rage when it’s mentioned.
+ - I strongly believe in the separation of church and state. But freedom of religion does not mean freedom from religion, there is a better way.
+ - Although I have a variety of obligations, the climate crisis is my central concern.
+ - It should be lifted above partisanship because it’s a question of survival. It’s a moral issue.
+ - We’re all capable of mistakes, but I do not care to enlighten you on the mistakes we may or may not have made.
+ - Those who are quick to feel disrespected often have a spiritual vacuum in their lives, because they feel disconnected to the love of their Father in Heaven.
+ - There was never any doubt in our minds that men and women were equal, if not more so.
+ - I take no pleasure in the fact that the scientific predictions I’ve relayed to popular audiences turn out to be true.
+ - Some people accuse me of exaggeration, so let me be clear. Those people seek nothing less than the complete and utter destruction of the American way of life.
+ - John McCain is now openly endorsing the policies of the Bush-Cheney White House and promising to actually continue the same policies over again? Hey, I believe in recycling but that’s ridiculous.
+ - I’m very familiar with the importance of dairy farming in Wisconsin. I’ve spent the night on a dairy farm here in Wisconsin. If I’m entrusted with the presidency, you’ll have someone who is very familiar with what the Wisconsin dairy industry is all about.
+ - I see myself in the mold of Rin Tin Tin. It didn’t go to his head either.
+ - Judge Roberts is a brilliant lawyer, a brilliant judge. He is a very careful judge, a thoughtful judge. I would agree with what the President said earlier. He is a decent man. I think everybody who knows him likes him.
+ - Any child born into the hugely consumptionist way of life so common in the industrial world will have an impact that is, on average, many times more destructive than that of a child born in the developing world.
+ - I am Al Gore, and I used to be the next president of the United States of America.
+ - Throughout most of my life, I raised tobacco. I want you to know that my own hands, all of my life, I put in the plant beds and transferred it! I hoed it! I’ve dug in it! I’ve sprayed it! I’ve chopped it! I’ve shredded it, spiked it, put it in the barn and stripped it and sold it!
+ - There’s lots about politics I don’t feel comfortable with. To talk about the politics of future ideas is impossible in soundbite form.
+ - I think George W. Bush has a warm, engaging personality. But, you know, the presidency is more than just a popularity contest.
+ - Iraq’s search for weapons of mass destruction has proven impossible to deter and we should assume that it will continue for as long as Saddam is in power.
+ - I don’t have the illusion that there’s any position or role in the world with as much potential for bringing about change as that of president of the United States.
+ - Hey, you know what, I’ve gotta go on that ‘Letterman’ show. That show is so lame.
+ - I have faith in the United States and our ability to make good decisions based on the facts.
+ - In digital era, privacy must be a priority. Is it just me, or is secret blanket surveillance obscenely outrageous?
+ - I feel passionate about solving the climate crisis.
+ - In the United States of America, unfortunately we still live in a bubble of unreality.
+ - Population growth is straining the Earth’s resources to the breaking point, and educating girls is the single most important factor in stabilizing that. That, plus helping women gain political and economic power and safeguarding their reproductive rights.
+ - The presidency is more than a popularity contest.
+ - The existence of the EPA regulation will require large carbon polluters to look at their hole cards, and some of them have decided that they much prefer legislation.
+ - You have to rip your opponent’s lungs out and then move on.
+ - American troops and American taxpayers are shouldering a huge burden with no end in sight because Mr. Bush took us to war on false premises and with no plan to win the peace.
+ - I was in elective politics for 24 years. I’ve made four national races, two for President, two for Vice President. I have found there are other ways to serve, and I’m enjoying them.
+ - I think it’s harder for people than it should be. But as more and more of us become carbon neutral and change the patterns in our lives to be part of the solution instead of part of the problem, we are now beginning to see the changes in policy that are needed.
+ - The ten hottest years in the atmospheric record, going back only 160 years, have been in the last eleven years.
+ - We know that he has stored secret supplies of biological and chemical weapons throughout his country.
+ - There is the natural tendency that all of us are vulnerable to, to deny unpleasant realities and to look for any excuse to push them away and resolve to think about them another day long in the future.
+ - The planet has a fever. If your baby has a fever, you go to the doctor. If the doctor says you need to intervene here, you don’t say ‘I read a science fiction novel that says it’s not a problem.’ You take action.
+ - Earlier in this century, the Heisenberg Principle established that the very act of observing a natural phenomenon can change what is being observed. Although the initial theory was limited in practice to special cases in subatomic physics, the philosophical implications were and are staggering.
+ - Someone who expresses a view that is contrary to the view of the overwhelming majority should be allowed to stand undisturbed as a monument to our commitment to free speech.
+ - We have arrived at a moment of decision. Our home-Earth-is in danger. What is at risk of being destroyed is not the planet itself, of course, but the conditions that have made it hospitable for human beings.
+ - While President Bush likes to project an image of strength and courage, the real truth is that in the presence of his large financial contributors, he is a moral coward.
+ - It’s an important point, and every little bit helps not least because those who make those kinds of changes are more likely to make their voices heard as citizens. But the ultimate solutions are going to come through policies.
+ - When it comes to climate, we can all make a big difference. At the most basic level, don’t let denial go unchallenged and win the conversation on climate.
+ - As many of you know, I was very instrumental in the founding of the Internet.
+ - I used to have a military officer travelling with me at all times with a suitcase – referred to as the nuclear football – in case it had to be used.
+ - The carbon fuels industry-big oil and coal-have a 50-year lease on the Republican Party and they are drilling it for everything it’s worth.
+ - I’m asking you in your sermons to do the work of the Lord here on earth. I ask for your help in getting that message out urgently tomorrow.
+ - The dominance of short-term perspectives has led to routine decisions in the markets that sacrifice the long-term buildup of genuine value in pursuit of artificial, short-term gains.
+ - Consider a clock thermostat, and set it so that you’re not using energy when you don’t need it, when you’re out of your house.
+ - I’m old enough to know that a red carpet’s just a rug, and I’ve been able to enjoy the pageantry without letting it go to my head.
+ - Scientists with access to data from Navy submarines traversing underneath the North polar ice cap have warned that there is now a 75 percent chance that within five years the entire ice cap will completely disappear during the summer months.
+ - I don’t really consider this a political issue, I consider it to be a moral issue.
+ - The way to bring gas prices down is to end our dependence on oil and use the renewable sources that can give us the equivalent of $1 per gallon gasoline.
+ - When energy prices go up, the difficulty of projecting demand also goes up – uncertainty goes up.
+ - Distributed intelligence is the key to the advancement of human civilization. Dictatorships, communist countries, monarchies in the past all eventually collapsed because of their inefficiency in moving information.
+ - The survival of the United States of America as we know it is at risk. And even more – if more should be required – the future of human civilization is at stake.
+ - There are skeptics who do not come to their view because they have a source of income from carbon polluters.
+ - I took the initiative in moving forward a whole range of initiatives that have proven to be important to our country’s economic growth, environmental protection, improvements in our educational system.
+ - We need to remake the Democratic party. We need to remake America.
+ - The rule of reason is the true sovereign in the American system.
+ - As many know, the Chinese expression for “crisis” consists of two characters side by side. The first is the symbol for “danger,” the second the symbol for “opportunity.”
+ - I pledge to you today that as president, in my first budget, I will introduce the largest increase in special education ever.
+ - I am concerned about the economy. I was the first one laid off.
+ - The heart of the security agenda is protecting lives – and we now know that the number of people who will die of AIDS in the first decade of the 21st Century will rival the number that died in all the wars in all the decades of the 20th century.
+ - We face the gravest threat that civilization has ever confronted. It’s global in nature and requires a global solution. Increased CO2 emissions anywhere, whether from China or the United States or from one of the countries that is burning its forests like Brazil or Indonesia.
+ - The Congress is virtually incapable of passing any reforms unless they first get permission from the powerful special interests who are most affected by the proposal.
+ - One tragic example of the loss of forests and then water is found in Ethiopia. The amount of its forested land has decreased from 40 to 1 percent in the last four decades. Concurrently, the amount of rainfall has declined to the point where the country is rapidly becoming a wasteland.
+ - The scientific evidence of how serious this climate crisis is becoming continues to amass week after week after week.
+ - I’m not trying to top anything. I’m trying to be useful, to play a positive role, to serve the public interest.
+ - Our insatiable drive to rummage deep beneath the surface of the earth is a willful expansion of our dysfunctional civilization into Nature.
+ - This is by far the most serious crisis civilisation has ever faced.
+ - The Bush-Cheney administration had betrayed some basic American values. So there was hunger for change.
+ - Cigarette smoking is a significant contributor to global warming!
+ - America’s political system has evolved over the last 50 years in ways that have enhanced the power of business lobbies.
+ - I’m naturally an optimist, but my basis for hope is rooted in my understanding of human nature.
+ - It’s as if we think the laws of physics are subject to debate and amendment and political contributions can sway the laws of physics.
+ - I think the cost of energy will come down when we make this transition to renewable energy.
+ - I work to promote the idea of sustainable capitalism driven by long-term considerations rather than quarterly profits, which seeks to better people’s lives and the planet rather than destroy them.
+ - The task of saving the earth’s environment must and will become the central organizing principle of the post-Cold War world.
+ - You’re going to see new processes that utilize waste as the source of energy, so there’s no petroleum consumed in the process – that makes the energy balance uniformly positive.
+ - I think that more diversity is a good thing, and fresh points of view articulated by people who are committed to excellence in journalism is a beneficial change in the American media landscape.
+ - Our democracy, our constitutional framework is really a kind of software for harnessing the creativity and political imagination for all of our people. The American democratic system was an early political version of Napster.
+ - There are many who would much prefer that the word ‘climate’ never be mentioned and that the issue be eliminated from our national conversation.
+ - As long as the government’s actions are secret, it cannot be held accountable. A government for the people and by the people should be transparent to the people.
+ - During my service in the United States Congress, I took the initiative in creating the Internet.
+ - The oil industry has outpaced the building of a public consensus of the implications of climate science.
+ - Americans have the right to have their medical decisions made by them and their doctors, and not by those bureaucrats sitting behind a computer screen hundreds of miles away.
+ - The ability of big money to shape perceptions – where you have four anti-climate lobbyists for every single member of the House and Senate – is a big factor.
+ - The Bush administration works closely with a network of rapid response digital brownshirts who work to pressure reporters and their editors for ‘undermining support for our troops.’
+ - As president, I will bring all the parties and stakeholders together. I am going to come up with a solution that respects the environment and does not cause an upheaval in the economy.
+ - Our new technologies, combined with our numbers, have made us, collectively, a force of nature.
+ - Many of the green places and open spaces that need protecting most today are in our own neighborhoods. In too many places, the beauty of local vistas has been degraded by decades of ill-planned and ill-coordinated development.
+ - I want to extend condolences to the families of those who died in the service of the United Nations.
+ - A president who breaks the law is a threat to the very structure of our government.
+ - I wrote newspaper articles professionally for seven years, and I love newspapers.
+ - American democracy has been hacked.
+ - Researchers at the Naval Postgraduate School have told us that the entire Arctic ice cap may totally disappear in summer in as little as five years if nothing is done to curb emissions of greenhouse gas pollution.
+ - Global warming is real and human activity is the main cause. The consequences are mainly negative and headed toward catastrophic, unless we act. However, the good news is that we can meet this challenge. It is not too late, and we have everything we need to get started.
+ - In a free society, there comes a time when the truth – however hard it may be to hear, however impolitic it may seem to say – must be told.
+ - We have a planetary emergency. We have to find a way to create, in the generation of those alive today, a sense of generational mission.
+ - Because these consequences are distributed globally, the problem masquerades as a distraction. Because the length of time between causes and consequences stretches out longer than we’re used to dealing with, it gives us the illusion that we have the luxury of time. Neither of those things is true.
+ - The United States is the only nation that can lead the world toward a solution on climate change.
+ - I affirm my faith when I’m asked about it. But I always try to do so in a way that communicates absolute respect, not only for people who worship in a different way, but just as much respect for those who do not believe in God and who are atheists.
+ - The golden thread of reason that used to be stretched taut to mark the boundary between the known and the unknown is now routinely disrespected.
+ - Speaking from my own religious tradition in this Christmas season, 2,000 years ago a homeless woman gave birth to a homeless child in a manger because the inn was full.
+ - Airplane travel is nature’s way of making you look like your passport photo.
+ - Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.
+ - The global environment crisis is, as we say in Tennessee, real as rain, and I cannot stand the thought of leaving my children with a degraded earth and a diminished future.
+ - I doubt nuclear power will play a much larger role than it does now.
+ - Surveillance technologies now available – including the monitoring of virtually all digital information – have advanced to the point where much of the essential apparatus of a police state is already in place.
+ - All I have to do is be the best Al I can be, because I’m good enough, I’m smart enough and, doggone it, people like me.
+ - I wrote newspaper articles professionally for seven years, and I love newspapers. I’m hopeful that new business models will emerge that allow the newspaper culture to genuinely thrive in the digital age.
+ - And nobody is talking about taking guns away from hunters or sportsmen or banning all guns. Nobody is talking about that.
+ - Local and state governments have outrun the federal government. The EPA has served notice that it will enact a rule requiring CO2 reductions by major emitters in the absence of major legislation. But it’s a blunt instrument that is a little more difficult to use than a legislative remedy.
+ - The age of printed pamphlets and political essays has long since been replaced by television, a distracting and absorbing medium which seems determined to entertain itself more than it informs and educates.
+ - You need to really scrub your investment portfolios, because I guarantee you, many of you are going to find them chock-full of subprime carbon assets.
+ - It’s not unusual to find big political shifts that take place beneath the surface before they’re visible above the surface.
+
+250 quotes

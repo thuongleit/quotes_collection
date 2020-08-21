@@ -1,0 +1,502 @@
+ - To love means loving the unlovable. To forgive means pardoning the unpardonable. Faith means believing the unbelievable. Hope means hoping when everything seems hopeless.
+ - Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed.
+ - If a thing is worth doing, it is worth doing badly.
+ - Jesus promised his disciples three things – that they would be completely fearless, absurdly happy, and in constant trouble.
+ - There is only one thing certain and that is that nothing is certain.
+ - The true soldier fights not because he hates what is in front of him, but because he loves what is behind him.
+ - Whenever you remove any fence, always pause long enough to ask why it was put there in the first place.
+ - God is like the sun; you cannot look at it, but without it you cannot look at anything else.
+ - A dead thing goes with the stream, but only a living thing can go against it.
+ - Christianity has not been tried and found wanting; it has been found difficult and not tried.
+ - If seeds in the black earth can turn into such beautiful roses, what might not the heart of man become in its long journey toward the stars?
+ - Humility is the mother of giants.
+ - It isn’t that they can’t see the solution. It is that they can’t see the problem.
+ - Gratitude produced the most purely joyful moments that have been known to man.
+ - Tolerance is the virtue of the man without convictions.
+ - And when it rains on your parade, look up rather than down. Without the rain, there would be no rainbow.
+ - An adventure is only an inconvenience rightly considered. An inconvenience is only an adventure wrongly considered.
+ - I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+ - Here ends another day, during which I have had eyes, ears, hands and the great world around me. Tomorrow begins another day. Why am I allowed two?
+ - There are two ways to get enough. One is to continue to accumulate more and more. The other is to desire less.
+ - We’re all in the same boat, and we’re all seasick.
+ - Let your religion be less of a theory and more of a love affair.
+ - Right is Right even if nobody does it. Wrong is wrong even if everybody is wrong about it.
+ - The traveler sees what he sees, the tourist sees what he has come to see.
+ - Christmas is built upon a beautiful and intentional paradox; that the birth of the homeless should be celebrated in every home.
+ - They say travel broadens the mind, but you must have the mind.
+ - With every step of our lives we enter into the middle of some story which we are certain to misunderstand.
+ - The Bible tells us to love our neighbors, and also to love our enemies; probably because generally they are the same people.
+ - Gratitude, being nearly the greatest of human duties, is also nearly the most difficult.
+ - There are no uninteresting things, only uninterested people.
+ - Cleanliness is not next to godliness nowadays, for cleanliness is made an essential and godliness is regarded as an offence.
+ - The point is not that this world is too sad to love or too glad not to love; the point is that when you do love a thing, its gladness is a reason for loving it, and its sadness a reason for loving it more.
+ - The main point of Christianity was this: that Nature is not our mother: Nature is our sister.
+ - It is the test of a good religion whether you can joke about it.
+ - Meaninglessness does not come from being weary of pain. Meaninglessness comes from being weary of pleasure.
+ - When belief in God becomes difficult, the tendency is to turn away from Him; but in heaven’s name to what?
+ - I had always felt life first as a story: and if there is a story there is a story-teller.
+ - Hope is the power of being cheerful in circumstances that we know to be desperate.
+ - The whole modern world has divided itself into Conservatives and Progressives. The business of Progressives is to go on making mistakes. The business of the Conservatives is to prevent the mistakes from being corrected.
+ - Wherever there is animal worship, there is human sacrifice.
+ - Art, like morality, consists in drawing the line somewhere.
+ - It is easy to be heavy: hard to be light.
+ - Fallacies do not cease to be fallacies because they become fashions.
+ - Courage is almost a contradiction in terms. It means a strong desire to live taking the form of readiness to die.
+ - How you think when you lose determines how long it will be until you win.
+ - You say grace before meals. All right. But I say grace before the concert and the opera, and grace before the play and pantomime, and grace before I open a book, and grace before sketching, painting, swimming, fencing, boxing, walking, playing, dancing and grace before I dip the pen in the ink.
+ - There is a road from the eye to heart that does not go through the intellect.
+ - To have a right to do a thing is not at all the same as to be right in doing it.
+ - What was wonderful about childhood is that anything in it was a wonder. It was not merely a world full of miracles; it was a miraculous world.
+ - Marriage is a duel to the death which no man of honour should decline.
+ - Marriage is an adventure, like going to war.
+ - We need to be reminded more than we need to be instructed.
+ - Modern man is educated to understand foreign languages and misunderstand foreigners.
+ - There is the great lesson of ‘Beauty and the Beast,’ that a thing must be loved before it is lovable.
+ - The world will never starve for want of wonders; but only for want of wonder.
+ - Without education we are in a horrible and deadly danger of taking educated people seriously.
+ - One sees great things from the valley; only small things from the peak.
+ - There are no rules of architecture for a castle in the clouds.
+ - The chief object of education is not to learn things but to unlearn things.
+ - Men do not differ much about what things they will call evils; they differ enormously about what evils they will call excusable.
+ - Thinking in isolation and with pride ends in being an idiot.
+ - Every time a man knocks on a brothel door, he is really knocking for God.
+ - Being a success at work is not worth it if it means being a failure at home.
+ - Any man who preaches real love is bound to beget hate. It is as true of democratic fraternity as a divine love; sham love ends in compromise and common philosophy; but real love has always ended in bloodshed.
+ - A man does not know what he is saying until he knows what he is not saying.
+ - The best kind of giving is thanksgiving.
+ - In the main, and from the beginning of time, mysticism has kept men sane. The thing that has driven them mad was logic.
+ - The trouble with always trying to preserve the health of the body is that it is so difficult to do without destroying the health of the mind.
+ - You’ll never find the solution if you don’t see the problem.
+ - Passion makes every detail important.
+ - The reason that angels fly is that they take themselves so lightly.
+ - Hope means hoping when things are hopeless, or it is no virtue at all. And faith means believing the incredible, or it is no virtue at all.
+ - The Iliad is only great because all life is a battle, The Odyssey because all life is a journey, The Book of Job because all life is a riddle.
+ - Marriage halves our griefs, doubles our joys, and quadruples our expenses.
+ - The poet only asks to get his head into the heavens. It is the logician who seeks to get the heavens into his head. And it is his head that splits.
+ - In truth, there are only two kinds of people; those who accept dogma and know it, and those who accept dogma and don’t know it.
+ - We do not want, as the newspapers say, a church that will move with the world. We want a church that will move the world.
+ - We fear men so much, because we fear God so little. One fear cures another. When man’s terror scares you, turn your thoughts to the wrath of God.
+ - My brain and this world don’t fit each other; and there’s an end of it.
+ - The whole object of travel is not to set foot on foreign land; it is at last to set foot on one’s own country as a foreign land.
+ - Only friendliness produces friendship. And we must look far deeper into the soul of man for the thing that produces friendliness.
+ - Men are ruled, at this minute by the clock, by liars who refuse them news, and by fools who cannot govern.
+ - The madman is the man who has lost everything except his reason...
+ - There’s a lot of difference between listening and hearing.
+ - The long words are not the hard words, it is the short words that are hard. There is much more metaphysical subtlety in the word “damn” than in the word “degeneration.”
+ - We talk of wild animals but man is the only wild animal. It is man that has broken out. All other animals are tame animals; following the rugged respectability of the tribe or type.
+ - Poets do not go mad; but chess-players do. Mathematicians go mad, and cashiers; but creative artists very seldom. I am not, as will be seen, in any sense attacking logic: I only say that this danger does lie in logic, not in imagination.
+ - How much happier you would be, how much more of you there would be, if the hammer of a higher God could smash your small cosmos.
+ - Against a dark sky, all flowers look like fireworks.
+ - Over-civilization and barbarism are within an inch of each other. And a mark of both is the power of medicine-men.
+ - There are two ways of getting home; and one of them is to stay there.
+ - Once abolish the God and the government becomes the God.
+ - For the only courage worth calling courage must necessarily mean that the soul passes a breaking point and does not break.
+ - At least five times, with the Arian and the Albigensian, with the Humanist skeptic, after Voltaire and after Darwin, the Christian Faith has to all appearance, gone to the dogs? But, in each of these five cases, it was the dog that died.
+ - There is more simplicity in the man who eats caviar on impulse than in the man who eats Grape-Nuts on principle.
+ - In Catholicism, the pint, the pipe and the Cross can all fit together.
+ - Hell is God’s great compliment to the reality of human freedom and the dignity of human choice.
+ - We are all in the same boat, in a stormy sea, and we owe each other a terrible loyalty.
+ - When it comes to life the critical thing is whether you take things for granted or take them with gratitude.
+ - The worst moment for an atheist is when he feels a profound sense of gratitude and has no one to thank.
+ - You don’t want to be so open minded that your brains fall out!
+ - Poetry is sane because it floats easily in an infinite sea; reason seeks to cross the infinite sea, and so make it finite. The result is mental exhaustion. To accept everything is an exercise, to understand everything a strain.
+ - Each generation is converted by the saint who contradicts it most.
+ - Gratitude is happiness doubled by wonder.
+ - In anything that does cover the whole of your life – in your philosophy and your religion – you must have mirth. If you do not have mirth you will certainly have madness.
+ - A man running after a hat is not half so ridiculous as a man running after a woman.
+ - I tell you naught for your comfort, Yea, naught for your desire, Save that the sky grows darker yet And the sea rises higher.
+ - True contentment is a thing as active as agriculture. It is the power of getting out of any situation all that there is in it. It is arduous and it is rare.
+ - I don’t need a church to tell me I’m wrong where I already know I’m wrong; I need a Church to tell me I’m wrong where I think I’m right.
+ - The most incredible thing about miracles is that they happen.
+ - The test of happiness is gratitude.
+ - Tradition means giving votes to the most obscure of all classes, our ancestors. It is the democracy of the dead. Tradition refuses to submit to that arrogant oligarchy who merely happen to be walking around.
+ - The aim of life is appreciation; there is no sense in not appreciating things; and there is no sense in having more of them if you have less appreciation of them.
+ - He may be mad, but there’s method in his madness. There nearly always is method in madness. It’s what drives men mad, being methodical.
+ - Drink because you are happy, but never because you are miserable.
+ - The more I considered Christianity, the more I found that while it had established a rule and order, the chief aim of that order was to give room for good things to run wild.
+ - Christendom has had a series of revolutions and in each one of them Christianity has died. Christianity has died many times and risen again; for it had a God who knew the way out of the grave.
+ - If there were no God, there would be no atheists.
+ - Plato was right, but not quite right.
+ - Man is more himself, man is more manlike, when joy is the fundamental thing in him, and grief the superficial. Melancholy should be an innocent interlude, a tender and fugitive frame of mind; praise should be the permanent pulsation of the soul.
+ - Education is simply the soul of a society as it passes from one generation to another.
+ - I never could see anything wrong in sensationalism; and I am sure our society is suffering more from secrecy than from flamboyant revelations.
+ - It is always the secure who are humble.
+ - Original sin is the only doctrine that’s been empirically validated by 2,000 years of human history.
+ - Any one thinking of the Holy Child as born in December would mean by it exactly what we mean by it; that Christ is not merely a summer sun of the prosperous but a winter fire for the unfortunate.
+ - I am a journalist and have no earthly motives except curiosity and personal vanity.
+ - Most modern freedom is at root fear. It is not so much that we are too bold to endure rules; it is rather that we are too timid to endure responsibilities.
+ - For when we cease to worship God, we do not worship nothing, we worship anything.
+ - Let a man walk ten miles steadily on a hot summer’s day along a dusty English road, and he will soon discover why beer was invented.
+ - The great Gaels of Ireland are the men that God made mad, For all their wars are merry, and all their songs are sad.
+ - I am more than a devil; I am a man. I can do the one thing which Satan himself cannot do – I can die.
+ - Where does a wise man hide a leaf? In the forest. But what does he do if there is no forest? He grows a forest to hide it in.
+ - The issue is now clear. It is between light and darkness and everyone must choose his side.
+ - Every high civilization decays by forgetting obvious things.
+ - Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men.
+ - The Catholic Church is the only thing that saves man from the degrading slavery of being a child of his age.
+ - The Catholic Church is like a thick steak, a glass of red wine, and a good cigar.
+ - A man is angry at a libel because it is false, but at a satire because it is true.
+ - All democrats object to men being disqualified by the accident of birth; tradition objects to their being disqualified by the accident of death.
+ - The fatal metaphor of progress, which means leaving things behind us, has utterly obscured the real idea of growth, which means leaving things inside us.
+ - Paradox – Truth standing on her head to get attention.
+ - Faith means believing the unbelievable.
+ - The riddles of God are more satisfying than the solutions of man.
+ - When we were children we were grateful to those who filled our stockings at Christmas time. Why are we not grateful to God for filling our stockings with legs?
+ - The triangle of truisms, of father, mother and child, cannot be destroyed; it can only destroy those civilizations which disregard it.
+ - Love is not blind; that is the last thing that it is. Love is bound; and the more it is bound the less it is blind.
+ - What embitters the world is not excess of criticism, but an absence of self-criticism.
+ - Buddhism is not a creed, it is a doubt.
+ - If Christianity should happen to be true – that is to say, if its God is the real God of the universe – then defending it may mean talking about anything and everything.
+ - All things are from God; and above all, reason and imagination and the great gifts of the mind. They are good in themselves; and we must not altogether forget their origin even in their perversion.
+ - And all over the world, the old literature, the popular literature, is the same. It consists of very dignified sorrow and very undignified fun. Its sad tales are of broken hearts; its happy tales are of broken heads.
+ - Music with dinner is an insult both to the cook and the violinist.
+ - The poets have been mysteriously silent on the subject of cheese.
+ - Romance is the combination of something that is strange with something that is secure.
+ - Literature is a luxury; fiction is a necessity.
+ - The way to love anything is to realize that it may be lost.
+ - All science, even the divine science, is a sublime detective story. Only it is not set to detect why a man is dead; but the darker secret of why he is alive.
+ - Art consists of limitation. The most beautiful part of every picture is the frame.
+ - Progress is Providence without God. That is, it is a theory that everything has always perpetually gone right by accident. It is a sort of atheistic optimism, based on an everlasting coincidence far more miraculous than a miracle.
+ - Journalism largely consists of saying ‘Lord Jones is Dead’ to people who never knew that Lord Jones was alive.
+ - For Scotland has a double dose of the poison called heredity; the sense of blood in the aristocrat, the sense of doom in the Calvinist.
+ - Freethinkers are occasionally thoughtful, though never free.
+ - The simplification of anything is always sensational.
+ - There’d be a lot less scandal if people didn’t idealize sin and pose as sinners.
+ - A good Moslem king was one who was strict in religion, valiant in battle, just in giving judgment among his people, but not one who had the slightest objection in international matters to removing his neighbour’s landmark.
+ - All real democracy is an attempt like that of a jolly hostess to bring the shy people out.
+ - The pure modernist is merely a snob; he cannot bear to be a month behind the fashion.
+ - If we could destroy custom at a blow and see the stars as a child sees them, we should need no other apocalypse.
+ - Take not thy thunder from us, but take away our pride.
+ - Whether a man chooses to tell the truth in long sentences or short jokes is a problem analogous to whether he chooses to tell the truth in French or in German.
+ - I am not absentminded. It is the presence of mind that makes me unaware of everything else.
+ - The hands that had made the sun and stars were too small to reach the huge heads of the cattle. Upon this paradox, we might almost say upon this jest, all the literature of our faith is founded.
+ - A strange fanaticism fills our time: the fanatical hatred of morality, especially of Christian morality.
+ - A woman uses her intelligence to find reasons to support her intuition.
+ - The danger of loss of faith in God is not that one will believe in nothing, but rather that one will believe in anything.
+ - All men matter. You matter. I matter. It’s the hardest thing in theology to believe.
+ - Evil always wins through the strength of its splendid dupes; and there has in all ages been a disastrous alliance between abnormal innocence and abnormal sin.
+ - There are many ways to fall down, but there’s only one way to stand up straight.
+ - When people begin to ignore human dignity, it will not be long before they begin to ignore human rights.
+ - The only way to be sure of catching a train is to miss the one before it.
+ - Moral issues are always terribly complex for someone without principles.
+ - There is one thing which gives radiance to everything. It is the idea of something around the corner.
+ - Classic literature is still something that hangs in the air like a song.
+ - Impartiality is a pompous name for indifference which is an elegant name for ignorance.
+ - For children are innocent and love justice, while most of us are wicked and naturally prefer mercy.
+ - Happy is he who still loves something he loved in the nursery: He has not been broken in two by time; he is not two men, but one, and he has saved not only his soul but his life.
+ - Hope means hoping when everything seems hopeless.
+ - We are learning to do a great many clever things. The next great task will be to learn not to do them.
+ - Truth, of course, must of necessity be stranger than fiction, for we have made fiction to suit ourselves.
+ - The first two facts which a healthy boy or girl feels about sex are these: first that it is beautiful and then that it is dangerous.
+ - Self-denial is the test and definition of self-government.
+ - The beautification of the world is not a work of nature, but a work of art, then it involves an artist.
+ - A man looking at a hippopotamus may sometimes be tempted to regard a hippopotamus as an enormous mistake; but he is also bound to confess that a fortunate inferiority prevents him personally from making such mistakes.
+ - The problem of disbelieving in God is not that a man ends up believing nothing. Alas, it is much worse. He ends up believing anything.
+ - We should thank God for beer and burgundy by not drinking too much of them.
+ - A good man’s work is effected by doing what he does, a woman’s by being what she is.
+ - The secularists have not wrecked divine things; but the secularists have wrecked secular things, if that is any comfort to them. The Titans did not scale heaven; but they laid waste the world.
+ - The disadvantage of men not knowing the past is that they do not know the present. History is a hill or high point of vantage, from which alone men see the town in which they live or the age in which they are living.
+ - Where does a wise man kick a pebble? On the beach. Where does a wise man hide a leaf? In the forest.
+ - The poetry of art is in beholding the single tower; the poetry of nature in seeing the single tree; the poetry of love in following the single woman; the poetry of religion in worshipping the single star.
+ - He must not merely cling to life, for then he will be a coward, and will not escape. He must not merely wait for death, for then he will be a suicide, and will not escape. He must seek his life in a spirit of furious indifference to it.
+ - The word good has many meanings...
+ - Exactly at the instant when hope ceases to be reasonable it begins to be useful.
+ - You can only find truth with logic if you have already found truth without it.
+ - The one perfectly divine thing, the one glimpse of God’s paradise given on earth, is to fight a losing battle – and not lose it.
+ - I left the fairy tales lying on the floor of the nursery, and I have not found any books so sensible since.
+ - There are no words to express the abyss between isolation and having one ally. It may be conceded to the mathematician that four is twice two. But two is not twice one; two is two thousand times one.
+ - Progress should mean that we are always changing the world to fit the vision, instead we are always changing the vision.
+ - The thing I hate about an argument is that it always interrupts a discussion.
+ - We call a man a bigot or a slave of dogma because he is a thinker who has thought thoroughly and to a definite end.
+ - To the humble man, and to the humble man alone, the sun is really a sun; to the humble man, and to the humble man alone, the sea is really a sea.
+ - America is the only country ever founded on a creed.
+ - The real pleasure-seeking is the combination of luxury and austerity in such a way that the luxury can really be felt.
+ - These are the days when the Christian is expected to praise every creed except his own.
+ - Man is an exception, whatever else he is. If he is not the image of God, then he is a disease of the dust. If it is not true that a divine being fell, then we can only say that one of the animals went entirely off its head.
+ - The Reformer is always right about what’s wrong. However, he’s often wrong about what is right.
+ - All but the hard hearted man must be torn with pity for this pathetic dilemma of the rich man, who has to keep the poor man just stout enough to do the work and just thin enough to have to do it.
+ - Thieves respect property. They merely wish the property to become their property that they may more perfectly respect it.
+ - It is terrible to contemplate how few politicians are hanged.
+ - The men who really believe in themselves are all in lunatic asylums.
+ - The coziness between church and state is good for the state and bad for the church.
+ - Surprise is the secret of joy.
+ - A yawn is a silent shout.
+ - My life is passed in making bad jokes and seeing them turn into true prophecies.
+ - The things we see every day are the things we never see at all.
+ - Islam was something like a Christian heresy. The early heresies had been full of mad reversals and evasions of the Incarnation, rescuing their Jesus from the reality of his body even at the expense of the sincerity of his soul.
+ - The supreme adventure is being BORN.
+ - You cannot grow a beard in a moment of passion.
+ - A man imagines a happy marriage as a marriage of love; even if he makes fun of marriages that are without love, or feels sorry for lovers who are without marriage.
+ - Americans are a very backward people, with all the real virtues of a backward people; the patriarchal simplicity and human dignity of a democracy, and a respect for labor uncorrupted by cynicism.
+ - There is a great deal of difference between an eager man who wants to read a book and the tired man who wants a book to read.
+ - Coincidences are spiritual puns.
+ - The real great man is the man who makes every man feel great.
+ - Men always talk about the most important things to perfect strangers. In the perfect stranger we perceive man himself; the image of a God is not disguised by resemblances to an uncle or doubts of wisdom of a mustache.
+ - Whatever the word “great” means, Dickens was what it means.
+ - I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.
+ - Reason is itself a matter of faith. It is an act of faith to assert that our thoughts have any relation to reality at all.
+ - People generally quarrel because they cannot argue.
+ - Idolatry is committed, not merely by setting up false gods, but also by setting up false devils; by making men afraid of war or alcohol, or economic law, when they should be afraid of spiritual corruption and cowardice.
+ - Why are we not grateful to God for filling our stockings with legs?
+ - Price is a crazy and incalculable thing, while Value is an intrinsic and indestructible thing.
+ - In the struggle for existence, it is only on those who hang on for ten minutes after all is hopeless, that hope begins to dawn.
+ - We do not need to get good laws to restrain bad people. We need to get good people to restrain us from bad laws.
+ - People that insist upon drinking and driving, are putting the quart before the hearse.
+ - The object of opening the mind, as of opening the mouth, is to shut it again on something solid.
+ - Catholic doctrine and discipline may be walls; but they are the walls of a playground.
+ - The difference between the poet and the mathematician is that the poet tries to get his head into the heavens while the mathematician tries to get the heavens into his head.
+ - Saint George he was for England, And before he killed the dragon he drank a pint of English ale out of an English flagon.
+ - Every act of will is an act of self-limitation. To desire action is to desire limitation. In that sense, every act is an act of self-sacrifice. When you choose anything, you reject everything else.
+ - Too much capitalism does not mean too many capitalists, but too few capitalists.
+ - Earnest Freethinkers need not worry themselves so much about the persecutions of the past. Before the Liberal idea is dead or triumphant we shall see wars and persecutions the like of which the world has never seen.
+ - Nothing is certain by uncertainty.
+ - The human race, to which so many of my readers belong, has been playing at children’s games from the beginning, and will probably do it till the end, which is a nuisance for the few people who grow up.
+ - No sceptical philosopher can ask any questions that may not equally be asked by a tired child on a hot afternoon.
+ - He is a very shallow critic who cannot see an eternal rebel in the heart of a conservative.
+ - Contemporary society has become dry, not for lack of wonders but for lack of wonder.
+ - A feminist is someone who loathes being a woman and who dislikes the chief feminine characteristics.
+ - I still think sincere pessimism the unpardonable sin.
+ - All my authority in heaven and on earth has been given to me.
+ - The repetition in Nature may not be a mere recurrence; it may be a theatrical encore.
+ - The great majority of people will go on observing forms that cannot be explained; they will keep Christmas Day with Christmas gifts and Christmas benedictions; they will continue to do it; and some day suddenly wake up and discover why.
+ - I am going to hold a pistol to the head of the Modern Man. But I shall not use it to kill him–only to bring him to life.
+ - I should say that psycho-analysis was confession without absolution.
+ - To be simple is the best thing in the world; to be modest is the next best thing. I am not sure about being quiet.
+ - There is a road from the eye to the heart that does not go through the intellect. Men do not quarrel about the meaning of sunsets; they never dispute that the hawthorn says the best and wittiest thing about the spring.
+ - Nothing taken for granted; everything received with gratitude; everything passed on with grace.
+ - A great city is the place to escape the true drama of provincial life, and find solace in fantasy.
+ - I need not pause to explain that crime is not a disease. It is criminology that is a disease.
+ - The cross cannot be defeated for it is defeat.
+ - Ten thousand women marched through the streets shouting, ‘We will not be dictated to,’ and went off and became stenographers.
+ - There are an infinity of angles at which one falls, only one at which one stands.
+ - A society is in decay, final or transitional, when common sense really becomes uncommon.
+ - The greatest political storm flutters only a fringe of humanity. But an ordinary man and an ordinary woman and their ordinary children literally alter the destiny of nations.
+ - The family is the test of freedom; because the family is the only thing that the free man makes for himself and by himself.
+ - Adventure is the champagne of life, but I prefer my champagne and my adventures dry.
+ - Life exists for the love of music or beautiful things.
+ - All true friendliness begins with fire and food and drink and the recognition of rain or frost.
+ - Truth is sacred; and if you tell the truth too often nobody will believe it.
+ - But there is good news yet to hear and fine things to be seen before we go to Paradise by way of Kensal Green.
+ - A sober man may become a drunkard through being a coward. A brave man may become a coward through being a drunkard.
+ - Joy, which was the small publicity of the pagan, is the gigantic secret of the Christian.
+ - Against a dark sky all flowers look like fireworks. There is something strange about them, at once vivid and secret, like flowers traced in fire in the phantasmal garden of a witch.
+ - Women have a thirst for order and beauty as for something physical; there is a strange female power of hating ugliness and waste as good men can only hate sin and bad men virtue.
+ - I am not fighting a hopeless fight. People who have fought in real fights don’t, as a rule.
+ - Grey is a colour that always seems on the eve of changing to some other colour.
+ - Civilization has run on ahead of the soul of man, and is producing faster than he can think and give thanks.
+ - Mr. McCabe thinks that I am not serious but only funny, because Mr. McCabe thinks that funny is the opposite of serious. Funny is the opposite of not funny and nothing else.
+ - What people call impartiality may simply mean indifference, and what people call partiality may simply mean mental activity.
+ - One may understand the cosmos, but never the ego; the self is more distant than any star.
+ - If you happen to read fairy tales, you will observe that one idea runs from one end of them to the other – the idea that peace and happiness can only exist on some condition. This idea, which is the core of ethics, is the core of the nursery-tales.
+ - If the apple hit Newton’s nose, Newton’s nose hit the apple.
+ - Those who leave the tradition of truth do not escape into something which we call Freedom. They only escape into something else, which we call Fashion.
+ - Because our expression is imperfect we need friendship to fill up the imperfections.
+ - Unless a man becomes the enemy of an evil, he will not even become its slave but rather its champion.
+ - Democracy is like blowing your nose. You may not do it well, but it’s something you ought to do yourself.
+ - If the world becomes pagan and perishes, the last man left alive would do well to quote the Iliad and die.
+ - It is hard to make government representative when it is also remote.
+ - The honest poor can sometimes forget poverty. The honest rich can never forget it.
+ - Romance is the deepest thing in life. It is deeper than reality.
+ - When a man ceases to believe in god, he does not believe in nothing. He believes in everything.
+ - A great man knows he is not God, and the greater he is the better he knows it.
+ - Real development is not leaving things behind, as on a road, but drawing life from them, as from a root.
+ - Dogma does not mean the absence of thought, but the end of thought.
+ - The aim of good prose words is to mean what they say. The aim of good poetical words is to mean what they do not say.
+ - The most important fact about the subject of education is that there is no such thing. Education is not a subject and it does not deal in subjects. It is instead the transfer of a way of life.
+ - Silence is the unbearable repartee.
+ - The aesthete aims at harmony rather than beauty. If his hair does not match the mauve sunset against which he is standing, he hurriedly dyes his hair another shade of mauve. If his wife does not go with the wall-paper, he gets a divorce.
+ - I have known many happy marriages, but never a compatible one. The whole aim of marriage is to fight through and survive the instant when incompatibility becomes unquestionable. For a man and a woman, as such, are incompatible.
+ - War is not the best way of settling differences; it is the only way of preventing their being settled for you.
+ - Art is born when the temporary touches the eternal.
+ - If you argue with a madman, it is extremely probable that you will get the worst of it; for in many ways his mind moves all the quicker for not being delayed by the things that go with good judgment.
+ - The men of the East may spell the stars, And times and triumphs mark, But the men signed of the cross of Christ Go gaily in the dark.
+ - I have little doubt that when St. George had killed the dragon he was heartily afraid of the princess.
+ - I may not practice what I preach but God forbid I should preach what I practice.
+ - Dipsomaniac and the abstainer are not only both mistaken, but they both make the same mistake. They both regard wine as a drug and not as a drink.
+ - The Mass is very long and tiresome unless one loves God.
+ - Moderate strength is shown in violence, supreme strength is shown in levity.
+ - The eagle has no liberty; he only has loneliness.
+ - Unless a man starts afresh about things, he will certainly do nothing effective. Unless a man starts on the strange assumption that he has never existed before, it is quite certain that he will never exist afterwards.
+ - Brave men are all vertebrates; they have their softness on the surface and their toughness in the middle.
+ - One elephant having a trunk was odd; but all elephants having trunks looked like a plot.
+ - Sticking to one woman is a small price to pay for so much as having seen one woman.
+ - In prosperity, our friends know us. In adversity, we know our friends.
+ - Theology is simply that part of religion that requires brains.
+ - If men will not be governed by the Ten Commandments, they shall be governed by the ten thousand commandments.
+ - And Noah he often said to his wife when he sat down to dine, “I don’t care where the water goes if it doesn’t get into the wine.”
+ - Democracy is reproached with saying that the majority is always right. But progress says that the minority is always right.
+ - Government has become ungovernable; that is, it cannot leave off governing. Law has become lawless; that is, it cannot see where laws should stop. The chief feature of our time is the meekness of the mob and the madness of the government.
+ - Only men to whom the family is sacred will ever have a standard or a status by which to criticize the State. They alone can appeal to something more holy than the gods of the city.
+ - The criminal is the creative artist; the detective only the critic.
+ - A puritan is a person who pours righteous indignation into the wrong things.
+ - Evil comes at leisure like the disease. Good comes in a hurry like the doctor.
+ - If I can put one touch of rosy sunset into the life of any man or woman, I shall feel that I have worked with God.
+ - Men rush towards complexity, but they yearn towards simplicity. They try to be kings; but they dream of being shepherds.
+ - Modern nature-worship is all upside down. Trees and fields ought to be the ordinary things; terraces and temples ought to be extraordinary. I am on the side of the man who lives in the country and wants to go to London.
+ - Like every book I never wrote, it is by far the best book I have ever written.
+ - It is better to speak wisdom foolishly like the saints than to speak folly wisely like the deans.
+ - Fairy tales say that apples were golden only to refresh the forgotten moment when we found that they were green. They make rivers run with wine only to make us remember, for one wild moment, that they run with water.
+ - Correctitude implies nowadays a formal or fastidious use of words; and what is wanted is not so much the correct as the living use of words. It is the memory of the meaning of a word which is the life of the word.
+ - The rolling stone rolls echoing from rock to rock; but the rolling stone is dead. The moss is silent because the moss is alive.
+ - The ignorant pronounce it Frood To cavil or applaud The well-informed pronounce it Froyd But I pronounce it Fraud.
+ - If you’d take your head home and boil it for a turnip it might be useful. I can’t say. But it might.
+ - Life is not an illogicality; yet it is a trap for logicians. It looks just a little more mathematical and regular than it is; its exactitude is obvious, but its inexactitude is hidden; its wildness lies in wait.
+ - The decay of society is praised by artists as the decay of a corpse is praised by worms.
+ - Idolatry is when you worship what you should use, and use what you should worship.
+ - Human anger is a higher thing than what is called divine discontent. For you must be angry with something; but you can be discontented with everything.
+ - By experts in poverty I do not mean sociologists, but poor men.
+ - When you break the big laws, you do not get liberty; you do not even get anarchy. You get the small laws.
+ - You can free things from alien or accidental laws, but not from the laws of their own nature. You may, if you like, free a tiger from his bars; but do not free him from his stripes.
+ - Time and again, the Faith has to all appearances gone to the dogs. But each time, it was the dog that died.
+ - Laughter has something in it common with the ancient words of faith and inspiration; it unfreezes pride and unwinds secrecy; it makes people forget themselves in the presence of something greater than themselves.
+ - Big Business and State Socialism are very much alike, especially Big Business.
+ - What is called matriarchy is simply moral anarchy, in which the mother alone remains fixed because all the fathers are fugitive and irresponsible.
+ - Faith is always at a disadvantage; it is a perpetually defeated thing which survives all conquerors.
+ - We all feel the riddle of the earth without anyone to point it out. The mystery of life is the plainest part of it. The clouds and curtains of darkness, the confounding vapors, these are the daily weather of this world.
+ - We make our friends; we make our enemies; but God makes our next door neighbour.
+ - Family is the theatre of the spiritual drama, the place where things happen, especially the things that matter.
+ - As an explanation of the world materialism has a sort of insane simplicity. It has the quality of a madman’s arguments; we have at once the sense of it covering everything and the sense of it leaving everything out.
+ - Men rush toward complexity; but yearn for simplicity.
+ - And though St. John saw many strange monsters in his vision, he saw no creature so wild as one of his own commentators.
+ - The atheist is not interested in anything except attacks on atheism.
+ - Gluttony is a great fault; but we do not necessarily dislike a glutton. We only dislike the glutton when he becomes a gourmet-that is, we only dislike him when he not only wants the best for himself, but knows what is best for other people.
+ - A tragedy means always a mans struggle with that which is stronger than man.
+ - The paradox of courage is that a man must be a little careless of his life even in order to keep it.
+ - Nine times out of ten it is the coarse word that condemns an evil, and the refined word that excuses it.
+ - To be wrong, and to be carefully wrong, that is the definition of decadence.
+ - Life is indeed terribly complicated – to a man who has lost his principles.
+ - Virtue is not the absence of vices or the avoidance of moral dangers; virtue is a vivid and separate thing, like pain or a particular smell.
+ - It may not be automatic necessity that makes all daisies alike; it may be that God makes every daisy separately, but has never gotten tired of making them.
+ - Blessed is he that expecteth nothing, for he shall be gloriously surprised.
+ - The great saint may be said to mix all his thoughts with thanks. All goods look better when they look like gifts.
+ - Do not, I beseech you be troubled by the increase of forces already in dissolution. You have mistake the hour of the night: it is already morning.
+ - Agnostic is the Greek word, for the Latin word, for ignorant.
+ - Imagination does not breed insanity. Exactly what does breed insanity is reason. Poets do not go mad, but chess players do.
+ - The unconscious democracy of America is a very fine thing. It is a true and deep and instinctive assumption of the equality of citizens, which even voting and elections have not destroyed.
+ - But there is in everything a reasonable division of labour. I have written the book, and nothing on earth would induce me to read it.
+ - The full value of this life can only be got by fighting; the violent take it by storm. And if we have accepted everything we have missed something – war. This life of ours is a very enjoyable fight, but a very miserable truce.
+ - Anyone who is not an anarchist agrees with having a policeman at the corner of the street; but the danger at present is that of finding the policeman half-way down the chimney or even under the bed.
+ - There are no new lies, no new heresies. Man is simply not that creative.
+ - But we are the people of England; and we have not spoken yet. Smile at us, pay us, pass us. But do not quite forget.
+ - The lunatic is the man who lives in a small world but thinks it is a large one; he is the man who lives in a tenth of the truth, and thinks it is the whole. The madman cannot conceive any cosmos outside a certain tale or conspiracy or vision.
+ - Men invent new ideals because they dare not attempt old ideals. They look forward with enthusiasm, because they are afraid to look back.
+ - People talk of the pathos and failure of plain women; but it is a more terrible thing that a beautiful woman may succeed in everything but womanhood.
+ - It is absurd for the Evolutionist to complain that it is unthinkable for an admittedly unthinkable God to make everything out of nothing, and then pretend that it is more thinkable that nothing should turn itself into everything.
+ - The person who is really in revolt is the optimist, who generally lives and dies in a desperate and suicidal effort to persuade other people how good they are.
+ - The new school of art and thought does indeed wear an air of audacity, and breaks out everywhere into blasphemies, as if it required any courage to say a blasphemy. There is only one thing that it requires real courage to say, and that is a truism.
+ - I am at one with my duality.
+ - A cosmic philosophy is not constructed to fit a man; a cosmic philosophy is constructed to fit a cosmos. A man can no more possess a private religion than he can possess a private sun and moon.
+ - La mejor prueba de la cultura y la liberalidad de un hombre es su actitud ante las cosas que nunca sucedieron.
+ - Science must not impose any philosophy, any more than the telephone must tell us what to say.
+ - If the devil tells you something is too fearful to look at, look at it. If he says something is too terrible to hear, hear it. If you think some truth unbearable, bear it.
+ - The man of the true religious tradition understands two things: liberty and obedience. The first means knowing what you really want. The second means knowing what you really trust.
+ - Man is not merely an evolution but rather a revolution.
+ - Do not look at the faces in the illustrated papers. Look at the faces in the street.
+ - The first fact about the celebration of a birthday is that it is a way of affirming defiantly, and even flamboyantly, that it is a good thing to be alive.
+ - I represent the jolly mass of mankind. I am the happy and reckless Christian.
+ - Every true artist feels that he is touching transcendental truths; that his images are shadows of things seen through the veil.
+ - Men did not love Rome because she was great. She was great because they had loved her.
+ - No man’s really any good till he knows how bad he is, or might be...
+ - The Devil’s walking parody; On all four-footed things.
+ - Christianity satisfies suddenly and perfectly man’s ancestral instinct for being the right way up; satisfies it supremely in this, that by its creed Joy becomes something gigantic, and Sadness something special and small.
+ - The function of the imagination is not to make strange things settled, so much as to make settled things strange.
+ - Tolerance is a virtue of people who don’t believe in anything anymore.
+ - When we really worship anything, we love not only its clearness but its obscurity. We exult in its very invisibility.
+ - One of the great disadvantages of hurry is that it takes such a long time.
+ - And we were angry and poor and happy, And proud of seeing our names in print.
+ - People wonder why the novel is the most popular form of literature; people wonder why it is read more than books of science or books of metaphysics. The reason is very simple; it is merely that the novel is more true than they are.
+ - Daybreak is a never-ending glory; getting out of bed is a never ending nuisance.
+ - Every sane man recognises that unlimited liberty is anarchy, or rather is nonentity. The civic idea of liberty is to give the citizen a province of liberty; a limitation within which a citizen is a king.
+ - The center of every man’s existence is a dream.
+ - The rich are the scum of the earth in every country.
+ - There is only one thing that stands in our midst, attenuated and threatened, but enthroned in some power like a ghost of the Middle Ages: the Trade Unions.
+ - There are two kinds of charlatan: the man who is called a charlatan, and the man who really is one. The first is the quack who cures you; the second is the highly qualified person who doesn’t.
+ - Youth is the period in which a man can be hopeless. The end of every episode is the end of the world. But the power of hoping through everything, the knowledge that the soul survives its adventures, that great inspiration comes to the middle-aged.
+ - Certain new theologians dispute original sin, which is the only part of Christian theology which can really be proved.
+ - The voice of the special rebels and prophets, recommending discontent, should, as I have said, sound now and then suddenly, like a trumpet. But the voices of the saints and sages, recommending contentment, should sound unceasingly, like the sea.
+ - Our society is so abnormal that the normal man never dreams of having the normal occupation of looking after his own property. When he chooses a trade, he chooses one of the ten thousand trades that involve looking after other people’s property.
+ - And it is always the humble man who talks too much; the proud man watches himself too closely.
+ - When a person has found something which he prefers to life itself, he for the first time has begun to live.
+ - Modern broad-mindedness benefits the rich; and benefits nobody else.
+ - The real argument against aristocracy is that it always means the rule of the ignorant. For the most dangerous of all forms of ignorance is ignorance of work.
+ - There is only one reason an intelligent person doesn’t believe in miracles. He or she believes in materialism.
+ - Criticism is only words about words, and of what use are words about such words as these?
+ - Chastity does not mean abstention from sexual wrong; it means something flaming, like Joan of Arc.
+ - A good joke is the closest thing we have to divine revelation.
+ - A Catholic is a person who has plucked up courage to face the incredible and inconceivable idea that something else may be wiser than he is.
+ - If we want to give poor people soap we must set out deliberately to give them luxuries. If we will not make them rich enough to be clean, then empathically we must do what we did with the saints. We must reverence them for being dirty.
+ - Making the landlord and the tenant the same person has certain advantages, as that the tenant pays no rent, while the landlord does a little work.
+ - If the barricades went up in our streets and the poor became masters, I think the priests would escape, I fear the gentlemen would; but I believe the gutters would simply be running with the blood of philanthropists.
+ - Journalism is popular, but it is popular mainly as fiction. Life is one world, and life seen in the newspapers is another.
+ - If there is one thing worse than the modern weakening of major morals it is the modern strengthening of minor morals.
+ - Every remedy is a desperate remedy. Every cure is a miraculous cure. Curing a madman is not arguing with a philosopher; it is casting out a devil.
+ - Cruelty is, perhaps, the worst kid of sin. Intellectual cruelty is certainly the worst kind of cruelty.
+ - Man does not live by soap alone; and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.
+ - Progress is a comparative of which we have not settled the superlative.
+ - The evolutionists seem to know everything about the missing link except the fact that it is missing.
+ - In the modern conflict between the Smile and the Laugh, I am all in favor of laughing. The recent stage of culture and criticism might very well be summed up as the men who smile criticizing the men who laugh.
+ - Fairy tales do not give the child his first idea of bogey. What fairy tales give the child is his first clear idea of the possible defeat of bogey. The baby has known the dragon intimately ever since he had an imagination. What the fairy tale provides for him is a St. George to kill the dragon.
+ - Your next-door neighbor is not a man; he is an environment. He is the barking of a dog; he is the noise of a piano; he is a dispute about a party wall; he is drains that are worse than yours, or roses that are better than yours.
+ - I wish we could sometimes love the characters in real life as we love the characters in romances. There are a great many human souls whom we should accept more kindly, and even appreciate more clearly, if we simply thought of them as people in a story.
+ - A crown of roses is also a crown of thorns.
+ - To downgrade the human mind is bad theology.
+ - The perplexity of life arises from there being too many interesting things in it for us to be interested properly in any of them.
+ - Customs are generally unselfish. Habits are nearly always selfish.
+ - I believe in getting into hot water; it keeps you clean.
+ - And it did for one wild moment cross my mind that, perhaps, those might not be the very best judges of the relation of religion to happiness who, by their own account, had neither one nor the other.
+ - Aesthetes never do anything but what they are told.
+ - The whole pleasure of marriage is that it is a perpetual crisis.
+ - Oscar Wilde said that sunsets were not valued because we could not pay for sunsets. But Oscar Wilde was wrong; we can pay for sunsets. We can pay for them by not being Oscar Wilde.
+ - ONCE remove the old arena of theological quarrels, and you will throw open the whole world to the most horrible, the most hopeless, the most endless, the most truly interminable quarrels; the untheological quarrels.
+ - We should always endeavor to wonder at the permanent thing, not at the mere exception. We should be startled by the sun, and not by the eclipse. We should wonder less at the earthquake, and wonder more at the earth.
+ - Ritual will always mean throwing away something: destroying our corn or wine upon the altar of our gods.
+ - Religious unity can look like a carnival and religious liberty can look like a funeral.
+ - Democracy means government by the uneducated, while aristocracy means government by the badly educated.
+ - If you do not understand a man you cannot crush him. And if you do understand him, very probably you will not.
+ - They have invented a phrase, a phrase that is a black and white contradiction in two words – ‘free-love’ – as if a lover ever had been, or ever could be, free.
+ - A teacher who is not dogmatic is simply a teacher who is not teaching.
+ - The greenhorn is the ultimate victor in everything; it is he that gets the most out of life.
+ - Art is the signature of man.
+ - Boys like romantic tales; but babies like realistic tales-because they find them romantic.
+ - Earth will grow worse till men redeem it, And wars more evil, ere all wars cease.
+ - The artistic temperament is a disease that afflicts amateurs. It is a disease which arises from men no having sufficient power of expression to utter and get rid of the element of art in their being.
+ - There is no such thing on earth as an uninteresting subject; the only thing that can exist is an uninterested person.
+ - How much larger your life would be if you were smaller in it...
+ - People have fallen into a foolish habit of speaking of orthodoxy as something heavy, humdrum, and safe. There never was anything so perilous or so exciting as orthodoxy. It was sanity: and to be sane is more dramatic than to be mad.
+ - The only object of liberty is life.
+ - There are no new ideas.
+ - Is ditchwater dull? Naturalists with microscopes have told me that it teems with quiet fun.
+ - All men are ordinary men; the extraordinary men are those who know it.
+ - We talk of wild animals, but the wildest animal is man.
+ - All architecture is great architecture after sunset.
+ - There is nothing the matter with Americans except their ideals. The real American is all right; it is the ideal American who is all wrong.
+ - There is no bigot like the atheist.
+ - Poets do not go mad, but chess players do.
+ - An almost unnatural vigilance is really required of the citizen because of the horrible rapidity with which human institutions grow old.
+ - All architecture is great architecture after sunset; perhaps architecture is really a nocturnal art, like the art of fireworks.
+ - I say that a man must be certain of his morality for the simple reason that he has to suffer for it.
+ - I would rather a boy learnt in the roughest school the courage to hit a politician, or gained in the hardest school the learning to refute him – rather than that he should gain in the most enlightened school the cunning to copy him.
+ - The home is not the one tame place in the world of adventure. It is the one wild place in the world of rules and set tasks.
+ - Stated baldly, charity certainly means one of two things–pardoning unpardonable acts, or loving unlovable people.
+ - The martyr endured tortures to affirm his belief in truth but he never asserted his disbelief in torture.
+ - The man who throws a bomb is an artist, because he prefers a great moment to everything.
+ - The past is not what it was.
+ - The whole truth is generally the ally of virtue; a half-truth is always the ally of some vice.
+ - A faith is that which is able to survive a mood.
+ - The cosmos is about the smallest hole that a man can hide his head in.
+ - Women are the only realists; their whole object in life is to pit their realism against the extravagant, excessive, and occasionally drunken idealism of men.
+ - I came to the conclusion that the optimist thought everything good except the pessimist, and that the pessimist thought everything bad, except himself.
+ - Just at present you only see the tree by the light of the lamp. I wonder when you would ever see the lamp by the light of the tree.
+ - Truth can understand error, but error cannot understand truth.
+ - It’s not the world that’s got so much worse but the news coverage that’s got so much better.
+ - If a man says that he is Jesus Christ, it is no answer to tell him that the world denies his divinity; for the world denied Christ’s.
+ - A great curse has fallen upon modern life with the discovery of the vastness of the word Education.
+ - I regard golf as an expensive way of playing marbles.
+ - No man should leave in the universe anything of which he is afraid.
+ - Excuse me if I enjoy myself rather obviously! I don’t often have the luck to have a dream like this. It is new to me for a nightmare to lead me to a lobster. It is commonly the other way.
+ - Great truths can only be forgotten and can never be falsified.
+ - What life and death may be to a turkey is not my business; but the soul of Scrooge and the body of Cratchit are my business.
+ - Wait and see whether the religion of the Servile State is not in every case what I say: the encouragement of small virtues supporting capitalism, the discouragement of the huge virtues that defy it.
+ - We are like the penny, because we have the image of the king stamped on us, the divine king.
+
+500 quotes

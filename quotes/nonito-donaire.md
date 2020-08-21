@@ -1,0 +1,55 @@
+ - If you try your best, you can always be better.
+ - The motivation is in my heart to work toward my goals and my dreams.
+ - I just wanna live the moment and just take every moment and embrace it because life is short.
+ - Whatever happens, I train hard for the fans and their support.
+ - I’m training everyday, even though I should be resting.
+ - I was taught to fighter like Sugar Ray Leonard and Muhammad Ali when I was growing up.
+ - He’s a smart guy, but I think I’m a genius.
+ - I’m not into being competitive. I never saw myself as a competitive type of person.
+ - People call me a nerd because I like to spend time on the computer.
+ - All I know is that I’m proud to be Filipino.
+ - The best feeling is to win by knockout.
+ - I wanted to bring that old school mentality of “Fight Me!, Fight me!”
+ - You can’t look good everytime, even if you try to no matter what.
+ - My father and I, we finally saw each other eye to eye and I think he’s seeing me as a man, and I’m seeing him as the father he’s always been.
+ - Criticism is good, you learn from it each time and you know that people are paying attention.
+ - Usually, sprinting is my main source of energy and recovery time because that’s how I move.
+ - I enjoy singing, I enjoy music as much as I enjoy photography, doing filming and stuff like that. I do a lot of things to express who I am.
+ - Everything in our family was always boxing. It was the life my father chose for me.
+ - He said it’s an honor to fight me, well I say that it’s an honor to fight him as well.
+ - For punches I never really choose, I take whatever opportunity is given to me. If it’s a left, I’ll take it. If it’s a right I’ll take it.
+ - Seeing the Mexican fighters, it gave me, physically and mentally, ready for an all our war.
+ - I’ll help out in ways to inspire others and ways to get people together and bring about things to help people financially.
+ - He’s such a great kid and such a determined kid, and he’s so strong.
+ - As long as I have that support from my team, and I have that confidence in myself that I train really hard, I think there’s no one out there who can defeat me in my weight class.
+ - My Internet friends who I play games with say, ‘This guy’s a fighter?’ I’m the last person they expect to be a fighter.
+ - I was always scared in the amateurs, but the minute I got in the ring it was like another person took over. I become more vicious. In there I love to hurt people. Outside I can’t hurt a bug.
+ - We put our body and minds and lives on the line for being in that ring for the fans, that’s why I respect fighters. Unless they don’t respect me then I can’t give any respect back.
+ - Being a world champion is something I’m already proud of and can take for the rest of my life.
+ - A lot of guys just punch with their arms; they don’t utilize every part of their muscles they can use. I know how to use that, and that’s where the power comes in.
+ - My style is like Bruce Lee, I’m like water. It’s everything from defensive, to counters, to offense.
+ - I was one of those kids that was always picked on but, one thing I gotta say it that no matter how bad your life gets, there’s always a bright light out there and you gotta find it.
+ - I lived my life where I didn’t have anything. I lived my life where people picked on me. Now that I am in a different light, I appreciate every moment of it.
+ - With me, boxing’s a beautiful sport.
+ - When you do your best, there is no impossibility.
+ - If there’s a best, I want to fight them.
+ - I’ll bring a flower out there and then give them a peace sign and hopefully they’ll make it happen.
+ - I have a lot of respect for Mexico.
+ - As much as I have respect for him, this is for the crowd. The crowd didn’t deserve what happened tonight.
+ - Always push beyond what you can do.
+ - Growing up as an amateur, I wasn’t much of a power puncher. I was more of a speed guy.
+ - If he wants to box we’ll box. If he wants to brawl we’ll brawl.
+ - I was always into cartoons and animation.
+ - As a boxer, you have to put risk in to get to another level.
+ - Growing up, I kind of adopted that mentality, going all out, being a warrior.
+ - Even the other kids who people made fun of made fun of me. Thats where I stood on the school food chain.
+ - I believe that he’s a boring fighter.
+ - I seek to fight the best out there. I seek to fight the champions in every division I go up to.
+ - I need to take a punch in order for me to throw that hook.
+ - I was 11 when I started boxing. My brother was fighting before I did, and he got me into it.
+ - Moving up and fighting the best keeps me hungry.
+ - He’s going for the home run, I’m going for the grand slam. If he gets a lot of strikeouts, I’m getting a shutout. I just have that positivity, that mentality that I can conquer whatever he gives out.
+ - Not only did I win the fight, but I won something that’s more than a fight could ever give me and that is gaining back a family.
+ - In school I was pretty fast.
+
+53 quotes

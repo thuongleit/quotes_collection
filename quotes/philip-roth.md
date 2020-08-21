@@ -1,0 +1,109 @@
+ - The road to hell is paved with works-in-progress.
+ - Don’t judge it. Just write it. Don’t judge it. It’s not for you to judge it.
+ - I did the best I could with what I had.
+ - You can’t write good satirical fiction in America because reality will quickly outdo anything you might invent.
+ - All that we don’t know is astonishing. Even more astonishing is what passes for knowing.
+ - Nothing bad can happen to a writer. Everything is material.
+ - The only obsession everyone wants: ‘love.’ People think that in falling in love they make themselves whole? The Platonic union of souls? I think otherwise. I think you’re whole before you begin. And the love fractures you. You’re whole, and then you’re cracked open.
+ - You be greater than your feelings. I don’t demand this of you – life does. Otherwise you’ll be washed away by feelings. You’ll be washed out to sea and never seen again.
+ - Life is just a short period of time in which you are alive.
+ - I turn sentences around. That’s my life. I write a sentence and then I turn it around. Then I look at it and turn it around again...
+ - Nothing lasts and yet nothing passes either, and nothing passes just because nothing lasts.
+ - I think you’re a wonder. You’re beautiful. You’re mature. You are, I admit, vastly more experienced than I am. That’s what threw me. I was thrown. Forgive me.
+ - The pleasure isn’t in owning the person. The pleasure is this. Having another contender in the room with you.
+ - Stop worrying about growing old. And think about growing up.
+ - He had learned the worst lesson that life can teach – that it makes no sense.
+ - You tasted it. Isn’t that enough? Of what do you ever get more than a taste? That’s all we’re given in life, that’s all we’re given of life. A taste. There is no more.
+ - Seeing is believing and believing is knowing and knowing beats unknowing and the unknown.
+ - The fact remains that getting people right is not what living is all about anyway. It’s getting them wrong that is living, getting them wrong and wrong and wrong and then, on careful reconsideration, getting them wrong again. That’s how we know we’re alive: we’re wrong.
+ - Because that is when you love somebody – when you see them being game in the face of the worst. Not courageous. Not heroic. Just game.
+ - And as he spoke, I was thinking, ’the kind of stories that people turn life into, the kind of lives people turn stories into.
+ - I am the Raskolnikov of jerking off – the sticky evidence is everywhere!
+ - Sheer Playfulness and Deadly Seriousness are my closest friends.
+ - You put too much stock in human intelligence, it doesn’t annihilate human nature.
+ - Writing turns you into somebody who’s always wrong. the illusion that you may get it right someday is the perversity that draws you on. What else could? As pathological phenomena go, it doesn’t completely wreck your life.
+ - Sex is all the enchantment required. Do men find women so enchanting once the sex is taken out? Does anyone find anyone that enchanting unless they have sexual business with them? Who else are you enchanted by? Nobody.
+ - I think I write or publish as much as I do because I can bear being without a book to work on.
+ - Memories of the past are not memories of facts but memories of your imaginings of the facts.
+ - You have a conscience, and a conscience is a valuable attribute, but not if it begins to make you think you were to blame for what is far beyond the scope of your responsibility.
+ - Unless one is inordinately fond of subordination, one is always at war.
+ - Literature got me into this mess and literature is going to have to get me out of it.
+ - How Far back must we go to discover the beginning of trouble?
+ - Everyone becomes a part of history whether they like it or not and whether they know it or not.
+ - In my childhood I led the life of a sage, when I grew up I started climbing trees.
+ - It’s the little questions from women about tappets that finally push men over the edge.
+ - The terror of the unforeseen is what the science of history hides, turning a disaster into an epic.
+ - There were many hours when I never quite know how I’d gotten there or why I stayed.
+ - There’s something every woman wants, and that’s a man to blame.
+ - Fear tends to manifest itself much more quickly than greed, so volatile markets tend to be on the downside. In up markets, volatility tends to gradually decline.
+ - I work most days and if you work most days and you get at least a page done a day, then at the end of the year you have 365. So the pages accumulate and then I publish the books.
+ - To read a novel requires a certain kind of concentration, focus, devotion to the reading. If you read a novel in more than two weeks, you don’t read the novel really.
+ - A life of writing books is a trying adventure in which you cannot find out where you are unless you lose your way.
+ - There are no uncontaminated angels.
+ - Is an intelligent human being likely to be much more than a large-scale manufacturer of misunderstanding?
+ - At a certain stage of misery, you’ll try anything to explain what’s going on with you, even if you know it doesn’t explain a thing and it’s one failed explanation after another.
+ - Actually we did not have the feelings we said we had until we spoke them – at least I didn’t; to phrase them was to invent them and own them.
+ - Satire is moral outrage transformed into comic art.
+ - You cannot observe people through an ideology. Your ideology observes for you.
+ - You can no more make someone tell the truth than you can force someone to love you.
+ - As for himself, however hateful life was, it was hateful in a home and not in the gutter. Many Americans hated their homes. The number of homeless in America couldn’t touch the number of Americans who had homes and families and hated the whole thing.
+ - Suicide is the role you write for yourself. You inhabit it and you enact it. All carefully staged – where they will find you and how they will find you. But one performance only.
+ - It’s amazing what lies people can sustain behind the mask of their real faces.
+ - Doctor doctor, what do you say, lets put the id back in yid.
+ - Each book starts from ashes really. I don’t feel that I have this to say or that to say or this story to tell or that story to tell, but I want to be occupied with the writing process while I’m living.
+ - Literature takes a habit of mind that has disappeared. It requires silence, some form of isolation, and sustained concentration in the presence of an enigmatic thing.
+ - For a pure sense of being tumultuously alive, you can’t beat the nasty side of existence.
+ - Obviously the facts are never just coming at you but are incorporated by an imagination that is formed by your previous experience. Memories of the past are not memories of facts but memories of your imaginings of the facts.
+ - I kept waiting for him to lay bare something more than this pointed unobjectionableness, but all that rose to the surface was more surface.
+ - Old age isn’t a battle; old age is a massacre.
+ - I was a biography in constant motion, memory to the marrow of my bones.
+ - Maybe the best thing would be to forget being right or wrong about people and just go along for the ride. But if you can do that – well, lucky you.
+ - I know I’m not going to write as well as I used to. I no longer have the stamina to endure the frustration. Writing is frustration – it’s daily frustration, not to mention humiliation.
+ - Dreams? If only they had been! But I don’t need dreams, Doctor, that’s why I hardly have them – because I have this life instead. With me it all happens in broad daylight!
+ - How can one say, ‘No, this isn’t a part of life,’ since it always is? The contaminant of sex, the redeeming corruption that de-idealizes the species and keeps us everlastingly mindful of the matter we are.
+ - When he is sick, every man wants his mother.
+ - Everything dictated silence and self-control but I couldn’t restrain myself and spoke my mind.
+ - How easy life is when it’s easy, and how hard when it’s hard.
+ - A Jewish man with parents alive is a fifteen-year-old boy, and will remain a fifteen-year-old boy until they die!
+ - It’s best to give while your hand is still warm.
+ - It’s human to have a secret, but it’s just as human to reveal it sooner or later.
+ - Being in the dark from sentence to sentence is what convinces me to go on.
+ - I am marked like a road map from head to toe with my repressions. You can travel the length and breadth of my body over superhighways of shame and inhibition and fear.
+ - People are unjust to anger – it can be enlivening and a lot of fun.
+ - Literature isn’t a moral beauty contest. Its power arises from the authority and audacity with which the impersonation is pulled off; the belief it inspires is what counts.
+ - I have a slogan I use when I get anxious writing, which happens quite a bit: ‘the ordeal is part of the commitment.’ It’s one of my mantras. It makes a lot of things doable.
+ - Like all enjoyable things, you see, it has unenjoyable parts to it.
+ - When the whole world doesn’t believe in God, it’ll be a great place.
+ - The book really comes to life in the rewriting.
+ - Nothing has a more sinister effect on art than the artist’s desire to prove that he’s good. The terrible temptation of idealism!
+ - A Jewish man with his parents alive is half the time a helpless infant!
+ - The only way to have a funeral is to invite everyone who ever knew the person and just wait for the accident to happen-somebody who comes in out of the blue and says the truth. Everything else is table manners.
+ - Too late, but I understand. That we don’t perish of understanding everything too late, that is a miracle. But we do perish of that – of just that.
+ - It isn’t that you subordinate your ideas to the force of the facts in autobiography but that you construct a sequence of stories to bind up the facts with a persuasive hypothesis that unravels your history’s meaning.
+ - A writer has to be driven crazy to help him to see. A writer needs his poisons.
+ - Should you protect profits? Yes. But run for the hills? No.
+ - It’s amazing how much punishment we can take.
+ - I cannot and do not live in the world of discretion, not as a writer, anyway. I would prefer to, I assure you – it would make life easier. But discretion is, unfortunately, not for novelists.
+ - When you publish a book, it’s the world’s book. The world edits it.
+ - I write fiction and I’m told it’s autobiography, I write autobiography and I’m told it’s fiction, so since I’m so dim and they’re so smart, let them decide what it is or it isn’t.
+ - I do not say correct or savory. I do not say seemly or even natural. I say serious. Sensationally serious. Unspeakably serious. Solemnly, recklessly, blissfully serious.
+ - One either imposes one’s ideas or one is imposed on.
+ - Let’s hope the first comes first.
+ - I often have to write a hundred pages or more before there’s a paragraph that’s alive.
+ - This is what you know about someone you have to hate: he charges you with his crime and castigates himself in you.
+ - Everybody else is working to change, persuade, tempt and control them. The best readers come to fiction to be free of all that noise.
+ - We live in an age in which the imagination of the novelist is helpless against what he knows he is going to read in tomorrow’s newspaper.
+ - I don’t wish to be a slave any longer to the stringent exigencies of literature.
+ - What I have in mind when I start to write could fit inside an acorn-an acorn, moreover, that rarely if ever grows into an oak. Write fiction and you relinquish reason. You start with an acorn and you end up with a mackerel.
+ - He was no more, freed from being, entering into nowhere without even knowing it. Just as he’d feared from the start.
+ - I’m an Obama supporter. And if you’re an Obama supporter that means you had a hard time during the Bush years.
+ - Each book starts from ashes.
+ - Just like those who are incurably ill, the aged know everything about their dying except exactly when.
+ - The horror of being caged has lost its thrill.
+ - For discipline is imposed not just on oneself but on those in one’s orbit.
+ - The secret to living in the rush of the world with a minimum of pain is to get as many people as possible to string along with your delusions...
+ - Oh, to be a center fielder, a center fielder- and nothing more.
+ - The danger with hatred is, once you start in on it, you get a hundred times more than you bargained for. Once you start, you can’t stop.
+ - I came to New York and in only hours, New York did what it does to people: awakened the possibilities. Hope breaks out.
+
+107 quotes

@@ -1,0 +1,257 @@
+ - All that we see or seem is but a dream within a dream.
+ - I became insane, with long intervals of horrible sanity.
+ - And all I loved, I loved alone.
+ - I am a writer. Therefore. I am not sane.
+ - There is no beauty without some strangeness.
+ - Believe only half of what you see and nothing that you hear.
+ - We loved with a love that was more than love.
+ - Those who dream by day are cognizant of many things which escape those who dream only by night.
+ - Science has not yet taught us if madness is or is not the sublimity of the intelligence.
+ - Leave my loneliness unbroken.
+ - Deep into that darkness peering, long I stood there, wondering, fearing, doubting, dreaming dreams no mortal ever dared to dream before.
+ - I was never really insane except upon occasions when my heart was touched.
+ - Words have no power to impress the mind without the exquisite horror of their reality.
+ - To elevate the soul, poetry is necessary.
+ - A short story must have a single mood and every sentence must build towards it.
+ - Poetry is the rhythmical creation of beauty in words.
+ - And so being young and dipped in folly I fell in love with melancholy.
+ - Never to suffer would never to have been blessed.
+ - I do not suffer from insanity, I enjoy every minute of it.
+ - The scariest monsters are the ones that lurk within our souls.
+ - Beauty of whatever kind, in its supreme development, invariably excites the sensitive soul to tears.
+ - Stupidity is a talent for misconception.
+ - The death of a beautiful woman, is unquestionably the most poetical topic in the world.
+ - There are chords in the hearts of the most reckless which cannot be touched without emotion.
+ - A wise man hears one word and understands two.
+ - Deep in earth my love is lying And I must weep alone.
+ - Years of love have been forgot, In the hatred of a minute.
+ - If a poem hasn’t ripped apart your soul; you haven’t experienced poetry.
+ - Every poem should remind the reader that they are going to die.
+ - The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins?
+ - The true genius shudders at incompleteness – and usually prefers silence to saying something which is not everything it should be.
+ - All suffering originates from craving, from attachment, from desire.
+ - Those who gossip with you will gossip about you.
+ - The eye, like a shattered mirror, multiplies the images of sorrow.
+ - Lord help my poor soul.
+ - It is by no means an irrational fancy that, in a future existence, we shall look upon what we think our present existence, as a dream.
+ - Experience has shown, and a true philosophy will always show, that a vast, perhaps the larger portion of the truth arises from the seemingly irrelevant.
+ - I have great faith in fools; self-confidence my friends call it.
+ - That man is not truly brave who is afraid either to seem or to be, when it suits him, a coward.
+ - The best things in life make you sweaty.
+ - To observe attentively is to remember distinctly.
+ - The goodness of the true pun is in the direct ratio of its intolerability.
+ - It is a happiness to wonder; – it is a happiness to dream.
+ - I have no faith in human perfectability. I think that human exertion will have no appreciable effect upon humanity. Man is now only more active – not more happy – nor more wise, than he was 6000 years ago.
+ - The believer is happy. The doubter is wise.
+ - Sometimes I’m terrified of my heart; of its constant hunger for whatever it is it wants. The way it stops and starts.
+ - False hope is nicer than no hope at all.
+ - I was a child and she was a child, In this kingdom by the sea; But we loved with a love that was more than love- I and my Annabel Lee; With a love that the winged seraphs of heaven Coveted her and me.
+ - There are some secrets which do not permit themselves to be told.
+ - I intend to put up with nothing that I can put down.
+ - How many good books suffer neglect through the inefficiency of their beginnings!
+ - With me poetry has not been a purpose, but a passion.
+ - Of puns it has been said that those who most dislike them are those who are least able to utter them.
+ - The world is a great ocean, upon which we encounter more tempestuous storms than calms.
+ - If you wish to forget anything on the spot, make a note that this thing is to be remembered.
+ - You call it hope-that fire of fire! It is but agony of desire.
+ - I felt that I breathed an atmosphere of sorrow.
+ - But our love was stronger by far than the love Of those who were older than we Of many far wiser than we And neither the angels in heaven above, Nor the demons down under the sea, Can ever dissever my soul from the soul Of the beautiful Annabel Lee.
+ - And my soul from out that shadow that lies floating on the floor, Shall be lifted – Nevermore!
+ - Men of genius are far more abundant than is supposed. In fact, to appreciate thoroughly the work of what we call genius, is to possess all the genius by which the work was produced.
+ - If you run out of ideas follow the road; you’ll get there.
+ - That which you mistake for madness is but an overacuteness of the senses.
+ - From childhood’s hour I have not been. As others were, I have not seen. As others saw, I could not awaken. My heart to joy at the same tone. And all I loved, I loved alone.
+ - Sleep, those little slices of death – how I loathe them.
+ - The past is a pebble in my shoe.
+ - Were I called on to define, very briefly, the term Art, I should call it ‘the reproduction of what the Senses perceive in Nature through the veil of the soul.’ The mere imitation, however accurate, of what is in Nature, entitles no man to the sacred name of ‘Artist.’
+ - A lie travels round the world while truth is putting her boots on.
+ - A man’s grammar, like Caesar’s wife, should not only be pure, but above suspicion of impurity.
+ - It was night, and the rain fell; and falling, it was rain, but, having fallen, it was blood.
+ - You are not wrong who deem That my days have been a dream; Yet if hope has flown away In a night, or in a day, In a vision, or in none, Is it therefore the less gone? All that we see or seem Is but a dream within a dream.
+ - The ninety and nine are with dreams, content but the hope of the world made new, is the hundredth man who is grimly bent on making those dreams come true.
+ - Indeed, there is an eloquence in true enthusiasm that is not to be doubted.
+ - Men have called me mad; but the question is not yet settled, whether madness is or is not the loftiest intelligence– whether much that is glorious– whether all that is profound– does not spring from disease of thought– from moods of mind exalted at the expense of the general intellect.
+ - The idea of God, infinity, or spirit stands for the possible attempt at an impossible conception.
+ - All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry.
+ - To die laughing must be the most glorious of all glorious deaths!
+ - In reading some books we occupy ourselves chiefly with the thoughts of the author; in perusing others, exclusively with our own.
+ - Beauty is the sole legitimate province of the poem.
+ - And all my days are trances, And all my nightly dreams Are where thy dark eye glances, And where thy footstep gleams – In what ethereal dances, By what eternal streams!
+ - Even in the grave, all is not lost.
+ - And the Raven, never flitting, still is sitting, still is sitting...
+ - The plots of God are perfect. The Universe is a plot of God.
+ - It is the nature of truth in general, as of some ores in particular, to be richest when most superficial.
+ - The rain came down upon my head – Unshelter’d. And the wind rendered me mad and deaf and blind.
+ - Art is to look at not to criticize.
+ - Convinced myself, I seek not to convince.
+ - I found him well educated, with unusual powers of mind, but infected with misanthropy, and subject to perverse moods of alternate enthusiasm and melancholy.
+ - Perversity is the human thirst for self-torture.
+ - If a man deceives me once, shame on him; if he deceives me twice, shame on me.
+ - I heed not that my earthly lot Hath – little of Earth in it – That years of love have been forgot In the hatred of a minute: – I mourn not that the desolate Are happier, sweet, than I, But that you sorrow for my fate Who am a passer by.
+ - I have made no money. I am as poor now as ever I was in my life – except in hope, which is by no means bankable.
+ - Keeping time, time, time, In a sort of Runic rhyme, To the tintinnabulation that so musically wells, From the bells, bells, bells.
+ - Music, when combined with a pleasurable idea, is poetry; music, without the idea, is simply music; the idea, without the music, is prose, from its very definitiveness.
+ - And each separate dying ember wrought its ghost upon the floor.
+ - The fever called “living” Is conquer’d at last.
+ - Sensations are the great things, after all. Should you ever be drowned or hung, be sure and make a note of your sensations; they will be worth to you ten guineas a sheet.
+ - Man’s real life is happy, chiefly because he is ever expecting that it soon will be so.
+ - The object, Truth, or the satisfaction of the intellect, and the object, Passion, or the excitement of the heart, are, although attainable, to a certain extent, in poetry, far more readily attainable in prose.
+ - True, nervous, very, very dreadfully nervous I had been and am, but why will say that I am mad?! The disease had haunted my senses, not destroyed, not dulled them. Of all the sense of hearing acute.
+ - Blood was its Avatar and its seal.
+ - Sound loves to revel in a summer night.
+ - Invisible things are the only realities.
+ - Marking a book is literally an experience of your differences or agreements with the author. It is the highest respect you can pay him.
+ - I stand amid the roar Of a surf-tormented shore, And I hold within my hand Grains of golden sand- How few! yet how they creep Through my fingers to the deep, While I weep- while I weep!
+ - Yes I now feel that it was then on that evening of sweet dreams- that the very first dawn of human love burst upon the icy night of my spirit. Since that period I have never seen nor heard your name without a shiver half of delight half of anxiety.
+ - There are moments when, even to the sober eye of Reason, the world of our sad humanity must assume the aspect of Hell.
+ - Quaff, oh quaff this kind nepenthe, and forget this lost Lenore!
+ - And Darkness and Decay and the Red Death held illimitable dominion over all.
+ - That the play is the tragedy, “Man,” And its hero, the Conqueror Worm.
+ - He knew that Hop-Frog was not fond of wine; for it excited the poor cripple almost to madness; and madness is no comfortable feeling.
+ - When, indeed, men speak of Beauty, they mean, precisely, not a quality, as is supposed, but an effect – they refer, in short, just to that intense and pure elevation of soul – not of intellect, or of heart.
+ - I was never kinder to the old man than during the whole week before I killed him.
+ - The pioneers and missionaries of religion have been the real cause of more trouble and war than all other classes of mankind.
+ - The unity of effect or impression is a point of the greatest importance. It is clear, moreover, that this unity cannot be thoroughly preserved in productions whose perusal cannot be completed at one sitting.
+ - Who cares how time advances? I am drinking ale today.
+ - In visions of the dark night I have dreamed of joy departed – But a waking dream of life and light Hath left me broken-hearted.
+ - I am walking like a bewitched corpse, with the certainty of being eaten by the infinite, of being annulled by the only existing Absurd.
+ - The customs of the world are so many conventional follies.
+ - In our endeavors to recall to memory something long forgotten, we often find ourselves upon the very verge of remembrance, without being able, in the end, to remember.
+ - Even for those to whom life and death are equal jests. There are some things that are still held in respect.
+ - Let my heart be still a moment and this mystery explore...
+ - If you have never been at sea in a heavy gale, you can form no idea of the confusion of mind occasioned by wind and spry together. They blind, deafen, and strangle you, and take away all power of action or reflection.
+ - In me didst thou exist-and, in my death, see by this image, which is thine own, how utterly thou hast murdered thyself.
+ - It is with literature as with law or empire – an established name is an estate in tenure, or a throne in possession.
+ - Decorum – that bug-bear which deters so many from bliss until the opportunity for bliss has forever gone by.
+ - When a madman appears thoroughly sane, indeed, it is high time to put him in a straight jacket.
+ - It will be found, in fact, that the ingenious are always fanciful, and the truly imaginative never otherwise than analytic.
+ - Finally on Sunday morning, October 7, 1849, “He became quiet and seemed to rest for a short time. Then, gently, moving his head,” he said, “Lord help my poor soul.” As he had lived so he died-in great misery and tragedy.
+ - Most writers – poets in especial – prefer having it understood that they compose by a species of fine frenzy – an ecstatic intuition – and would positively shudder at letting the public take a peep behind the scenes...
+ - Mournful and Never-ending Remembrance.
+ - I remained to much inside my head and ended up losing my mind.
+ - That pleasure which is at once the most pure, the most elevating and the most intense, is derived, I maintain, from the contemplation of the beautiful.
+ - You will observe that the stories told are all about money-seekers, not about money-finders.
+ - If in many of my productions terror has been the thesis, I maintain that terror is not of Germany, but of the soul.
+ - The generous Critic fann’d the Poet’s fire, And taught the world with reason to admire.
+ - The most natural, and, consequently, the truest and most intense of the human affections are those which arise in the heart as if by electric sympathy.
+ - The usual derivation of the word Metaphysics is not to be sustainedthe science is supposed to take its name from its superiority to physics. The truth is, that Aristotle’s treatise on Morals is next in succession to his Book of Physics.
+ - He is, as you say, a remarkable horse, a prodigious horse, although as you very justly observe, a suspicious and untractable character.
+ - There is something in the unselfish and self-sacrificing love of a brute, which goes directly to the heart of him who has had frequent occasion to test the paltry friendship and gossamer fidelity of mere Man.
+ - Grammar is the analysis of language.
+ - In one case out of a hundred a point is excessively discussed because it is obscure; in the ninety-nine remaining it is obscure because it is excessively discussed.
+ - Where the good and the bad and the worst and the best have gone to their eternal rest.
+ - As a poet and as a mathematician, he would reason well; as a mere mathematician, he could not have reasoned at all.
+ - Life is for the strong, to be lived by the strong and if need be, taken by the strong. The weak were put on earth to give the strong pleasure.
+ - No one should brave the underworld alone.
+ - Boston: Their hotels are bad. Their pumpkin pies are delicious. Their poetry is not so good.
+ - Many years ago, I contracted an intimacy with a Mr. William Legrand. He was of an ancient Huguenot family, and had once been wealthy; but a series of misfortunes had reduced him to want.
+ - It all depends on the robber’s knowledge of the loser’s knowledge of the robber. – Daupin.
+ - Always keep a big bottle of booze at your side. If a bird starts talking nonsense to you in the middle of the night pour yourself a stiff drink.
+ - I hold that a long poem does not exist. I maintain that the phrase, “a long poem,” is simply a flat contradiction in terms.
+ - In the tale proper – where there is no space for development of character or for great profusion and variety of incident – mere construction is, of course, far more imperatively demanded than in the novel.
+ - Ah, broken is the golden bowl! the spirit flown forever! Let the bell toll!-a saintly soul floats on the Stygian river; And, Guy de Vere, hast thou no tear?-weep now or nevermore!
+ - Democracy is a very admirable form of government – for dogs.
+ - Tell me truly, I implore – Is there – is there balm in Gilead? – tell me – tell me, I implore!
+ - There was an iciness, a sinking, a sickening of the heart – an unredeemed dreariness of thought which no goading of the imagination could torture into aught of the sublime.
+ - And I fell violently on my face.
+ - And the life of the ebony clock went out with that of the last of the gay. And the flames of the tripods expired. And Darkness and Decay and the Red Death held illimitable dominion over all.
+ - But Psyche uplifting her finger said: Sadly this star I mistrust.
+ - Now this is the point. You fancy me a mad. Madmen know nothing. But you should have seen me. You should have seen how wisely I proceeded...
+ - The writer who neglects punctuation, or mispunctuates, is liable to be misunderstood for the want of merely a comma, it often occurs that an axiom appears a paradox, or that a sarcasm is converted into a sermonoid.
+ - The nose of a mob is its imagination. By this, at any time, it can be quietly led.
+ - To him, who still would gaze upon the glory of the summer sun, there comes, when that sun will from him part, a sullen hopelessness of heart.
+ - And then there stole into my fancy, like a rich musical note, the thought of what sweet rest there must be in the grave.
+ - The fury of a demon instantly possessed me. I knew myself no longer. My original soul seemed, at once, to take its flight from my body; and a more than fiendish malevolence, gin-nurtured, thrilled every fibre of my frame.
+ - To vilify a great man is the readiest way in which a little man can himself attain greatness.
+ - The analytical power should not be confounded with simple ingenuity; for while the analyst is necessarily ingenious, the ingenious man is often remarkably incapable of analysis.
+ - A wrong is unredressed when retribution overtakes its redresser. It is equally unredressed when the avenger fails to make himself felt as such to him who has done the wrong.
+ - We gave the Future to the winds, and slumbered tranquilly in the Present, weaving the dull world around us into dreams.
+ - It is impossible to say how first the idea entered my brain, but, once conceived, it haunted me day and night.
+ - I fashion the expression of my face, as accurately as possible, in accordance with the expression of his, and then wait to see what thoughts or sentiments arise in my mind or heart, as if to match or correspond with the expression.
+ - Yet I am not more sure that my soul lives, than I am that perverseness is one of the primitive impulses of the human heartone of the indivisible primary faculties, or sentiments, which give direction to the character of Man.
+ - Man is an animal that diddles, and there is no animal that diddles but man.
+ - Truth is not always in a well. In fact, as regards the more important knowledge, I do believe that she is invariably superficial. The depth lies in the valleys where we seek her, and not upon the mountain-tops where she is found.
+ - Happiness is not to be found in knowledge, but in the acquisition of knowledge.
+ - In beauty of face no maiden ever equaled her. It was the radiance of an opium-dream – an airy and spirit-lifting vision more wildly divine than the fantasies which hovered about the slumbering souls of the daughters of Delos.
+ - It may be roundly asserted that human ingenuity cannot concoct a cipher which human ingenuity cannot resolve.
+ - In the deepest slumber-no! In delirium-no! In a swoon-no! In death-no! even in the grave all is not lost.
+ - Scorching my seared heart with a pain, not hell shall make me fear again.
+ - Every moment of the night Forever changing places And they put out the star-light With the breath from their pale faces.
+ - There is no passion in nature so demoniacally impatient, as that of him who, shuddering upon the edge of a precipice, thus meditates a Plunge.
+ - I have been happy, though in a dream. I have been happy-and I love the theme: Dreams! in their vivid colouring of life As in that fleeting, shadowy, misty strife.
+ - I dread the events of the future, not in themselves but in their results.
+ - The Romans worshipped their standard; and the Roman standard happened to be an eagle. Our standard is only one tenth of an eagle, – a dollar, but we make all even by adoring it with tenfold devotion.
+ - I could have clasped the red walls to my bosom as a garment of eternal peace. “Death,” I said, “any death but that of the pit!” Fool! might I have not known that into the pit it was the object of the burning iron to urge me?
+ - The result of law inviolate is perfection–right–negative happiness. The result of law violate is imperfection, wrong, positive pain.
+ - If I could dwell where Israfel hath dwelt and he where I he might not sing so wildly well a mortal melody while a bolder note then this might swell from my lyre in the sky.
+ - A gentleman with a pug nose is a contradiction in terms.
+ - As the strong man exults in his physical ability, delighting in such exercises as call his muscles into action, so glories the analyst in that moral activity which disentangles.
+ - The higher powers of the reflective intellect are more decidedly and more usefully tasked by the unostentatious game of draughts than by all the elaborate frivolity of chess.
+ - In efforts to soar above our nature, we invariably fall below it.
+ - In criticism I will be bold, and as sternly, absolutely just with friend and foe. From this purpose nothing shall turn me.
+ - True! – nervous – very, very nervous I had been and am; but why will you say that I am mad?
+ - We had always dwelled together, beneath a tropical sun, in the Valley of the Many Colored Grass.
+ - The best chess-player in Christendom may be little more than the best player of chess; but proficiency in whist implies capacity for success in all those more important undertakings where mind struggles with mind.
+ - A poem in my opinion, is opposed to a work of science by having for its immediate object, pleasure, not truth.
+ - For my own part, I have never had a thought which I could not set down in words, with even more distinctness than that with which I conceived it.
+ - A strong argument for the religion of Christ is this – that offences against Charity are about the only ones which men on their death-beds can be made – not to understand – but to feel – as crime.
+ - I am above the weakness of seeking to establish a sequence of cause and effect, between the disaster and the atrocity.
+ - The true genius shudders at incompleteness.
+ - By undue profundity we perplex and enfeeble thought; and it is possible to make even Venus herself vanish from the firmament by a scrutiny too sustained, too concentrated, or too direct.
+ - We now demand the light artillery of the intellect; we need the curt, the condensed, the pointed, the readily diffused – in place of the verbose, the detailed, the voluminous, the inaccessible.
+ - Mysteries force a man to think, and so injure his health.
+ - Books, indeed, were his sole luxuries.
+ - Perched upon a bust of Pallas, just above my chamber door,- Perched, and sat, and nothing more.
+ - Believe me, there exists no such dilemma as that in which a gentleman is placed when he is forced to reply to a blackguard.
+ - A mystery, and a dream, should my early life seem.
+ - I have, indeed, no abhorrence of danger, except in its absolute effect – in terror.
+ - Literature is the most noble of professions. In fact, it is about the only one fit for a man.
+ - I have no words alas! to tell the loveliness of loving well.
+ - From a proud tower in the town, Death looks gigantically down.
+ - We allude to the short prose narrative, requiring from a half hour to one or two hours in its perusal.
+ - The mere imitation, however accurate, of what is in Nature, entitles no man to the sacred name of Artist.
+ - One half of the pleasure experienced at a theatre arises from the spectator’s sympathy with the rest of the audience, and, especially from his belief in their sympathy with him.
+ - If we cannot comprehend God in his visible works, how then in his inconceivable thoughts, that call the works into being?
+ - To be thoroughly conversant with Man’s heart, is to take our final lesson in the iron-clasped volume of Despair.
+ - If you are ever drowned or hung, be sure and make a note of your sensations.
+ - There are some qualities, some incorporate things, that have a double life, which thus is made. A type os twin entity which springs from matter and light, envinced in solid and shade.
+ - Once upon a midnight dreary.
+ - How much more intense is the excitement wrought in the feelings of a crowd by the contemplation of human agony, than that brought about by the most appalling spectacles of inanimate matter.
+ - Either the memory of past bliss is the anguish of to-day; or the agonies which are have their origins in ecstasies which might have been.
+ - Whether people grow fat by joking, or whether there is something in fat itself which predisposes to a joke, I have never been quite able to determine...
+ - Alas! for that accursed time They bore thee o’er the billow, From love to titled age and crime, And an unholy pillow! From me, and from our misty clime, Where weeps the silver willow!
+ - I have before suggested that a genuine blackguard is never without a pocket-handkerchief.
+ - The Bostonians are really, as a race, far inferior in point of anything beyond mere intellect to any other set upon the continent of North America. They are decidedly the most servile imitators of the English it is possible to conceive.
+ - Imperceptibly the love of these discords grew upon me as my love of music grew stronger.
+ - I call to mind flatness and dampness; and then all is madness – the madness of a memory which busies itself among forbidden things.
+ - The greater amount of truth is impulsively uttered; thus the greater amount is spoken, not written.
+ - It would be mockery to call such dreariness heaven at all.
+ - My next thought concerned the choice of an impression, or effect, to be conveyed: and here I may as well observe that, throughout the construction, I kept steadily in view the design.
+ - A dirge for her the doubly dead in that she died so young.
+ - A fearful instance of the ill consequences attending upon irascibility – alive, with the qualifications of the dead – dead, with the propensities of the living – an anomaly on the face of the earth – being very calm, yet breathless.
+ - Children are never too tender to be whipped. Like tough beefsteaks, the more you beat them, the more tender they become.
+ - I need scarcely observe that a poem deserves its title only inasmuch as it excites, by elevating the soul. The value of the poem is in the ratio of this elevating excitement. But all excitements are, through a psychal necessity, transient.
+ - No thinking being lives who, at some luminous point of his life of thought, has not felt himself lost amid the surges of futile efforts at understanding, or believing, that anything exists greater than his own soul.
+ - There are few cases in which mere popularity should be considered a proper test of merit; but the case of song-writing is, I think, one of the few.
+ - If the propositions of this Discourse are tenable, the “state of progressive collapse” is precisely that state in which alone we are warranted in considering All Things.
+ - I wish I could write as mysterious as a cat.
+ - The realities of the world affected me as visions, and as visions only, while the wild ideas of the land of dreams became, in turn, – not the material of my every-day existence – but in very deed that existence utterly and solely in itself.
+ - In other words, I believed, and still do believe, that truth, is frequently of its own essence, superficial, and that, in many cases, the depth lies more in the abysses where we seek her, than in the actual situations wherein she may be found.
+ - The rudiment of verse may, possibly, be found in the spondee.
+ - If any ambitious man have a fancy to revolutionize, at one effort, the universal world of human thought, human opinion, and human sentiment...
+ - We gave him a hearty welcome, for there was nearly half as much of the entertaining as of the contemptible about the man...
+ - In for ever knowing, we are for ever blessed; but to know all were the curse of a fiend.
+ - There are certain themes of which the interest is all-absorbing, but which are too entirely horrible for the purposes of legitimate fiction.
+ - The people have nothing to do with the laws but to obey them.
+ - Odors have an altogether peculiar force, in affecting us through association; a force differing essentially from that of objects addressing the touch, the taste, the sight or the hearing.
+ - A poem deserves its title only inasmuch as it excites, by elevating the soul.
+ - I seemed to be upon the verge of comprehension, without the power to comprehend as men, at time, find themselves upon the brink of rememberance, without being able, in the end, to remember.
+ - No man who ever lived knows any more about the hereafter than you and I.
+ - To see distinctly the machinery – the wheels and pinions – of any work of Art is, unquestionably, of itself, a pleasure, but one which we are able to enjoy only just in proportion as we do not enjoy the legitimate effect designed by the artist.
+ - There was much of the beautiful, much of the wanton, much of the bizarre, something of the terrible, and not a little of that which might have excited disgust.
+ - With me poetry has been not a purpose, but a passion; and the passions should be held in reverence: they must not they cannot at will be excited, with an eye to the paltry compensations, or the more paltry commendations, of mankind.
+ - In spite of the air of fablethe public were still not at all disposed to receive it as fable. I thence concluded that the facts of my narrative would prove of such a nature as to carry with them sufficient evidence of their own authenticity.
+ - No pictorial or sculptural combinations of points of human loveliness, do more than approach the living and breathing human beauty as it gladdens our daily path.
+ - I was cautious in what I said before the young lady; for I could not be sure that she was sane; and, in fact, there was a certain restless brilliancy about her eyes that half led me to imagine she was not.
+
+255 quotes

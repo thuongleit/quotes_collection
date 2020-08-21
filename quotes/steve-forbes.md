@@ -1,0 +1,32 @@
+ - Your brand is the single most important investment you can make in your business.
+ - The Declaration of Independence, the words that launched our nation – 1,300 words. The Bible, the word of God – 773,000 words. The Tax Code, the words of politicians – 7,000,000 words – and growing!
+ - No more turning a blind eye to Chinese spies in our nuclear labs. No more keeping silent about Chinese slave labor camps.
+ - A promise made should be a promise kept.
+ - You make more money selling advice than following it. It’s one of the things we count on in the magazine business – along with the short memory of our readers.
+ - Our failure to properly deal with Germany and Japan early cost the world dearly later on. We dare not make the same mistake with China.
+ - What you do as president has consequences.
+ - And it would be fair. Everyone will pay the same tax and it will eliminate tax cheaters and corporate shenanigans.
+ - The real cure for what ails our health care system today is less government and more freedom.
+ - The tax code is a monstrosity and there’s only one thing to do with it. Scrap it, kill it, drive a stake through its heart, bury it and hope it never rises again to terrorize the American people.
+ - Duarte is a moderate when it comes to civilian control of the military and curbing death squads. On economics, the man is almost a Marxist.
+ - We must guard against the overreaching hand of big government trying to take away our freedom. And we must always protect the environment in a manner consistent with our values.
+ - Contrary to the cliche’, genuinely nice guys most often finish first or very near it.
+ - You don’t change minds in Washington with sweet reason. You do it to the white light of public opinion.
+ - As more money flowed through Washington and as Washington’s power to regulate our lives grew, opportunities and temptations for graft, influence peddling and cutting corners grew exponentially. Power breeds corruption.
+ - There is something fundamentally unfair about a government that takes away so much of people’s money, power, and personal control while telling them that life will be better as a result.
+ - One thing on psychology, which we’ve always known, is that every investor says they’re long-term – and they are until the market takes a hit.
+ - There’s no human censorship at kiosks.
+ - The politicians say ‘we’ can’t afford a tax cut. Maybe we can’t afford the politicians.
+ - The flat tax would be so simple, you could fill it out on a post card. A post card that would say, in effect, having a wonderful time; glad most of my money is here.
+ - It can’t help but knock things down.
+ - There’s plenty of juice to keep this economy going.
+ - People are not going to reelect Barack Obama. But will the new president govern as a real conservative? We’re going to have to apply the heat to make sure.
+ - The most laughable White House criticism is that tax cuts are a ‘free lunch.’ The American people’s work created that money. Only in Washington could there be a belief that letting people keep more of what they create is a giveaway.
+ - The phenomenon of home schooling is a wonderful example of the American can-do attitude. Growing numbers of parents have become disenchanted with government-run public schools. Many parents have simply taken matters into their own hands, literally.
+ - Today, the US spends less on defense as a percentage of our economy than we did at any time since he Japanese attack on Pearl Harbor. For the world’s only superpower, that is an invitation to very serious trouble.
+ - If a man breaks a pledge, the public ought to know it.
+ - The Chinese government is quickly losing its ideological legitimacy, maintain its rule with force, but cannot draw strength from the ideology of Marx and Mao.
+ - As our federal government has grown too large and too powerful, the real loss has been the freedom of people to govern their own lives and participate fully in the American dream.
+ - The words, ‘penalty,’ ‘restrict’ and ‘violate’ appeared more times in President Clinton’s health care reform bill than in his crime bill.
+
+30 quotes

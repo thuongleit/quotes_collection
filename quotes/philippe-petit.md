@@ -1,0 +1,26 @@
+ - I know it’s impossible. But I know I’ll do it!
+ - It’s impossible, that’s for sure. So let’s start working.
+ - Limits exist only in the souls of those who do not dream.
+ - Life should be lived on the edge of life. You have to exercise rebellion: to refuse to tape yourself to rules, to refuse your own success, to refuse to repeat yourself, to see every day, every year, every idea as a true challenge – and then you are going to live your life on a tightrope.
+ - Life should be lived on the edge of life.
+ - I don’t have a career, I have a life. Don’t think of a career, think about your passion and look for inspiration.
+ - Passion is the model of all my actions.
+ - If I die, what a beautiful death.
+ - I focus, I invent, I transform, I challenge, I attempt, I observe, I perform.
+ - Wirewalker, trust your feet! Let them lead you; they know the way.
+ - I don’t like to risk my life, so I prepare sometimes for months or sometimes for years. But sometimes after a walk, I look what I have done, and I have a little bit of fear coming to me, just looking at pictures.
+ - When you are a young person, the world is yours. You can do the impossible.
+ - Improvisation is empowering because it welcomes the unknown. And since what’s impossible is always unknown, it allows me to believe I can cheat the impossible.
+ - For me, when I am on the wire, I do not have a problem of eliminating or blocking fear. I do not really feel fear, although it is a fearful activity to walk in thin air, as I do without any safety device, but I am not fearful.
+ - Death frames the high wire. But I don’t see myself as taking risks. I do all of the preparations that a non-death seeker would do.
+ - I am very sensitive to all form of music, painting, sculpting, dancing, and I love cinema also. For example if I look at the work of the dancer Mikhail Baryshnikov, who happens to be a friend of mine, everything he does is inspiring to me.
+ - I am the poet of the high wire – I never do stunts; I do theatrical performances.
+ - I have walked many times around the world and each time it’s different from the last one. It feels a little bit like I am a theatrical director, creating a theatre in space. It’s really a theater in the sky. But of course the World Trade Center is certainly the most well-known of my productions.
+ - Whenever other worlds invite us, whenever we are balancing on the boundaries of our limited human condition, that’s where life starts, that’s where you start feeling yourself living.
+ - Why does almost every ad agency in the world set the time on a watch at 10:10 before photographing it?
+ - If I look at the performance of another friend Sting, whenever I hear him take over a stage and share his art with millions, it’s very inspiring to me. So I have a lot in my life, a lot of friends who inspire me and I’m sure it goes the other way around, or so that I inspire them.
+ - The practical answer is, no it would be totally impossible for young or foreign people to get access to roof of a building that stands in the heart of a giant city and to put a cable across.
+ - I usually practice on a small, low wire, that features the predominant wind. I study the meteorology of the place at the time that I am supposed to do my walk, and then I find the predominant direction and velocity of the wind and I train to fight that wind.
+ - I was not born into the world of the stuntman and the daredevil; I was born into the world of theater and writing and sculpting and classical music.
+
+24 quotes

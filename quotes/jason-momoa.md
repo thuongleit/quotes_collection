@@ -1,0 +1,36 @@
+ - How far would you go to protect your family? I’m a father, I’m a son, I’m a grandson, and I’m a husband. If someone were to hurt the women in my life and the law didn’t take care of it, what would I do? Pretty awful things.
+ - A wolf is not bad for eating and tearing apart something, if it’s for survival. It doesn’t do it to be menacing.
+ - I grew up rock climbing.
+ - I was a huge comic book fan, and I still am.
+ - I’m raised to actually think, to use my brain.
+ - I was born in Hawaii, but I was raised in Iowa.
+ - I love carbs, but denial is good training for the mind.
+ - As a Polynesian, our gods are tied to water, so this means something special.
+ - People who know me, know who I am.
+ - I love life and if there’s something that I’m playing that I love, I’ll research it.
+ - I don’t want to play a superhero. Drogo may not be Superman, but it is a phenomenal role. I didn’t want to get typecast. Drogo is an exceptional character. Conan is iconic. Whether it does good or not, you just try to elevate it to the next level.
+ - I think a man needs to be a man. To hold a woman the way she wants to be held. Just do whatever your woman wants, and you’ll be fine.
+ - I don’t really push myself upon people. I don’t have that. When it meets and things fall in line, it’s meant to happen. It’s happened that way. I just try to do my best and do my work, and then it falls in line.
+ - I lay naked in furs a lot. I think I’m naked more than I talk.
+ - In this business, we have to travel so far away from our families. We have two children, so if we can work together, that’s awesome. Before I met Lisa Bonet, it was a dream to work with her.
+ - I took no money to make art, but my woman backed me up on it and I want my children to see their father happy.
+ - I made a conscious choice to turn down some movies that were action-based, so that I could direct Road to Paloma and show that side.
+ - I don’t want to just play the same thing. But with The Red Road, no one has ever seen me like that. No one really even knows that I smile, have a personality and have a sense of humor.
+ - I’m one of those freaky people that actually reads books.
+ - Some people we know in our lives come up to a crossroads, and they could go left or right, and then end up in a totally different place.
+ - I’m half Hawaiian and the haka is a very sacred thing, something your family teaches you – my father taught me.
+ - I got called ‘pretty boy’ my whole life.
+ - For right now, I’d like to tell stories that I want to tell. I haven’t wanted to use someone else’s material yet, but I would with the show. It’s become an integral enough part of me now, that I could definitely tell a story in this.
+ - A lot of people don’t know enough about me. When I meet people who freak out about Game of Thrones, they don’t even know that I can speak English.
+ - When I’m acting, I wish I was out there, being a part of it and making it. It’s all on your name to do that. It’s your vision. You’re going to get slandered for your work, and I like that. As an actor, it’s so hard. I’d rather direct than act.
+ - I’ve been on shows that went for years and years and years, and I was not ready for that again.
+ - I don’t really have any limitations for what I want to do, as an actor.
+ - To do six to 10 episodes of high-quality writing, and then be able to go direct my own things, and do a movie, if it comes along, sure. I just want to act and do good work.
+ - I wanted to know everything about the blues. I think it constantly changes for me.
+ - There are tons of things I’d love to do. I want to do comedy. It’s not that I don’t want to play a superhero, but I got to play Conan and Drogo.
+ - I grew up with artists.
+ - I’m kind of ADD in that sense where if I start liking something, I’ll just learn it to the absolute max.
+ - I’m not a big fan of just doing weights. Anything more physical is infinitely better.
+ - You know what’s it’s changed is my appreciate for the art form of making cinema. I don’t want to act as much as I want to tell stories. I want to be a part of the whole collective and pull all of the pieces together. That’s what I love about directing.
+
+34 quotes

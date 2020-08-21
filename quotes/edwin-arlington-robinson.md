@@ -1,0 +1,25 @@
+ - Two kinds of gratitude: The sudden kind we feel for what we take; the larger kind we feel for what we give.
+ - The world is a kind of spiritual kindergarten where millions of bewildered infants are trying to spell “God” with the wrong blocks.
+ - Shake the tree of life itself and bring down fruits unheard of.
+ - For when a woman is left too much alone, sooner or later she begins to think; and no man knows what then she may discover.
+ - Friends: people who borrow my books and set wet glasses on them.
+ - To some will come a time when change itself is beauty, if not heaven.
+ - Youth sees too far to see how near it is To seeing farther.
+ - I have been reading the Old Testament, a most bloodthirsty and perilous book for the young. Jehovah is beyond doubt the worst character in fiction.
+ - Pity is like a knife, sometimes, and it may pierce one who employs it more shrewdly than the victim it would save.
+ - Were it not for love, Poor life would be a ship not worth launching.
+ - Life is the game that must be played.
+ - Love must have wings to fly away from love, And to fly back again.
+ - This morning I deleted the hyphen from “hell-bound” and made it one word; this afternoon I redivided it and restored the hyphen.
+ - And thus we all are nighing The truth we fear to know: Death will end our crying For friends that come and go.
+ - The typical entrepreneur is no longer the bold and tireless man of Marshall, or the sly and rapacious Moneybags of Marx, but a mass of inert shareholders, indistinguishable from rentiers, who employ salaried managers to run their concerns.
+ - No matter what we are, and what we sing, Time finds a withered leaf in every laurel.
+ - I shall have more to say when I am dead.
+ - I wonder more and more just where I may have come out if I had never seen Harvard Square.
+ - I mean you last as long as lies.
+ - Where’s the need of singing now?
+ - Do you hear the children singing?
+ - Are we no greater than the noise we make Along one blind atomic pilgrimage Whereon by crass chance billeted we go Because our brains and bones and cartilage Will have it so?
+ - I don’t say what God is, but a name That somehow answers us when we are driven To feel and think how little we have to do With what we are.
+
+23 quotes

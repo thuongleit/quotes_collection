@@ -1,0 +1,97 @@
+ - Power is neither good nor evil, but its user makes it so.
+ - Great, lets round up all the useless cats and hope a tree falls on them – Jayfeather.
+ - Warriors should suffer their pain silently.
+ - Fire will save the Clan.
+ - There will be three, kin of your kin, who hold the power of the stars in their paws.
+ - May Starclan light your path.
+ - You cannot live with a paw in each world.
+ - We all have our flaws. But we overcome them. And sometimes, it’s our flaws that make us who we are.
+ - The only true borders lie between day and night, between life and death, between hope and loss.
+ - Before there is peace, blood will spill blood, and the lake will run red.
+ - Go and don’t come back, you can take the catmint. I have no quarrel with ThunderClan; I don’t want to see cats suffer, whatever you might think. Just be careful you don’t end up like a bully like your kin, Tigerstar.
+ - Our code is different from the warrior code. It reaches across boundaries. To us, every cat is simply that – a cat, with the same right to life as any other. We made a promise to heal and protect, remember?
+ - Surprise is the warrior’s greatest weapon.
+ - A medicine cat has no time for doubt. Put your energy into today and stop worrying about the past.
+ - You know Yellowfang, don’t you? she was cranky, stubborn, impatient-and the most loyal cat you will ever meet.
+ - Being Tigerstar’s son has meant I’ve had to win the trust of every ThunderClan cat over and over. So I know how frustrating it is when you have to prove something that shouldn’t need proving.
+ - Now Darkstripe,? Graypaw hissed to Firepaw under his breath, ’is neither young, nor pretty.
+ - I’m so hungry I could eat you! -Cloudpaw.
+ - Four will Become Two, Lion and Tiger will Meet in Battle, and Blood will Rule the Forest.
+ - Once a friend, always a friend. Why should borders stop that?
+ - I am proud of my children. They will make great warriors. And I will watch over them forever. I promise.
+ - It’s coming, a battle between Starclan and The Dark Forest and every warrior will be called upon to fight.
+ - Well, I’m more lopsided than a one-legged badger.
+ - This is not an end. It is a beginning. You will need the courage of a lion to face this journey.
+ - This is a path that you follow alone.
+ - I am no warrior, but I am a ThunderClan cat. I stay in the nursery rather than hunt and fight because that is what I do best. I care for our young as though they were my own. This is my gift to the Clan, but I do it in my own chosen name.
+ - Your mother betrayed my father as well as her Clan. You have no right to be a medicine cat. No right to even live among the Clans. I’ll never forgive you for what you’ve done! Never!
+ - You know how I feel about you, Bluefur. I’d do my best to make you happy, I promise. And I’ll love your kits as though they were my own.
+ - The truth is, I love Firestar now as much as I ever did, and I’ll watch over him forever, knowing that he can never be mine. He belongs to Sandstorm and to ThunderClan. But my heart is his, and always will be.
+ - Good-bye, Graystripe. I love you. Take care of our kits.
+ - You have no idea how much pain I’m in. It’s like being cut open every day, bleeding onto the stones. I can’t understand how any of you failed to see the blood...
+ - Keep your eyes open, Fireheart. Keep your ears pricked. Keep looking behind you. Because one day I’ll find you, and then you’ll be crowfood.
+ - What do you mean, something important? It’s the middle of the night! -Sandstorm.
+ - You walk in my dreams, Leafpool.
+ - There’s more to being a warrior than killing. A true warrior – the best warrior – isn’t cruel or mean. He doesn’t claw an enemy who can’t fight back. Where’s the honor in that?
+ - Don’t be scared. I’ll look after you.
+ - Firepaw held the menacing amber gaze for few moments. Warrior and apprentice, for a heartbeat their eyes were locked as enemies.
+ - I’ll protect my Clan, whatever it takes.
+ - Every step begins a journey, and this one is for us.
+ - After the sharp-eyed jay and the roaring lion, peace will come on dove’s gentle wing.
+ - I wonder if he’ll ever see the truth in my own heart: that, whatever Dustpelt says, however much Fireheart breaks the warrior code, I love him more that I could imagine loving any other cat. And if Fireheart knew, would he love me, too? – Sandstorm.
+ - My name is Echo. I dream of cats with stars in their fur.
+ - If Nightcloud were a gentle, loving cat like Leafpool, or feisty and warmhearted like Squirrelflight, it would be easier to feel sorry for her.
+ - You’re never been wrong before, Spottedleaf. If StarClan has spoken, then it must be so. Fire will save our Clan. -Bluestar, Into the Wild.
+ - WindClan has traveled a long time. It’s nearly a moon since ShadowClan drove us from our home. The weather is turning colder, and leaf-bare will be here soon. We have no choice but to stay.
+ - Redtail was a brave warrior. His loyalty to ThunderClan could never be doubted. I always relied on his judgment, for it bore witness to the needs of the Clan, and was never swayed by self-interest or pride. He would have made a fine leader.
+ - Fox dung! I’m a loyal ShadowClan cat. If I’m ever made deputy or leader it will be because I have earned it myself – and my Clanmates and StarClan wish it. You’re twisting the warrior code to get what you want, just like you did when you were alive.
+ - The time has come for Firepaw to be made a warrior.
+ - You’re no better than Sharpclaw and Sparrowpelt. They look down their noses at us because we stay loyal to our housefolk as well as our Clan. I thought you were different, Leafstar, but I was wrong.
+ - Look at his collar! He’s a kittypet! Once a kittypet, always a kittypet. This clan needs wild-born warriors to defend it, not another soft mouth to feed.
+ - Birchfall lapped at his wound “You’re not very sympathetic for a medicine cat” “I’m here to HEAL you. If you want sympathy, go to the nursery” Jaypaw mewed.
+ - This is not my Clan. Not any longer. ThunderClan is led by a kittypet, and there’s nothing left to fight for. I feel no loyalty to ThunderClan. In the whole forest, the only cat worth following is Tigerstar.
+ - A leaf cannot return to the bud – bluestar to fireheart and greystripe.
+ - ThunderClan warriors don’t kill unless they have to.
+ - You’re a medicine cat. I understand what that means now. StarClan go with you, Leafpool. I’ll never forget you.
+ - I know I did the right thing, but no one would ever understand.
+ - He never seemed to get tired. Always first up and ready to move on. Never afraid of what lay ahead.
+ - You have to stop thinking about Billystorm in that way, right now! You have a different destiny, one that involves the future of the whole Clan. And it is a path that you must walk alone.
+ - Stay away from Twolegplace!!!!
+ - Graystorm: You know Firestar was also very naughty, just like you. Bramblepaw: Really? He seems to be very responsible! Graystorm: Yes. I was there when he was too stubborn to not help RiverClan.
+ - What about you? You didn’t even think twice about following those two. They say, ‘Let’s go onto the ice’ and right away you say, ‘Where do I put my paws?’ If you ask me, you’re the brave one.
+ - All she’s caught is fleas! She’s a medicine cat, not a warrior. She should be helping me, not trying to pretend that her entire history vanished on the day the truth came out.
+ - Understand that Bluestar does not make this offer lightly if you wish to train with us, we will have to take you into our Clan. You must either live with us and respect our ways, or return to your Twolegplace and never come back. You cannot live with a paw in each world.
+ - The water is calm, but the currents pull beneath the surface. Though they can’t be seen, they have the power to drag cats to their deaths.
+ - Thank you for bringing me to ThunderClan. Tell Bluestar I have always been grateful for the home she gave me. This is a good place to die. I only regret that I will miss watching you become what StarClan has destined you to be.
+ - Graystripe pushed past Tigerheart and Whitestorm and crouched beside his old friend. “I would have taken your place if you had let me”. His voice was hoarse with grief.
+ - Why do relationships have to be so complicated?
+ - Then stop being a know-it-all lionpaw retorted You’re not my mentor so stay out of my fur. Lionpaw at Berrynose in Outcast pg 67.
+ - I’ve missed you, too, Graystripe. I watch over you, every day and every night.
+ - Have courage. We still have our clan. There is always hope.
+ - I’m going to die whatever you do, but I’m not afraid.
+ - Time may smooth the stone, but time will never wear it away.
+ - The only thing that can hurt me is being apart from you.
+ - Keep your eye on the prey.
+ - SkyClan’s destiny is that we will never live in isolation from other cats. We’re not like forest Clans, we can’t shut ourselves off entirely from kittypets or rogues. And visitors will be welcome.
+ - Whitestorm was experienced, wise and brave. When Firestar had been made deputy, he had shown not a scrap of resentment that a lesser cat might have felt. He had supported him from the beginning, and he was the cat Firestar naturally turned to when he needed advice.
+ - My name is Squirrelpaw, but I never thought I’d wish I was one!
+ - It was his cunning, this confidence and farsightedness in dealing with his own Clan, that made Crookedstar one of the strongest leaders the Clans have ever seen.
+ - Twolegs are mousebrain.
+ - Oh yes. Blood is everything. But the only blood I’m interested in flows from my enemies. Look around you! These cats are bathed in blood. It soaks their fur and laps at their paws. This is the way we survive! We are BloodClan!
+ - Never be afraid of the future, for it brings wonderful things.
+ - You couldn’t catch a mouse if leaped in between your paws!
+ - Oh, and welcome to the Three.
+ - CinderHeart: You’re the one that changed every thing. LoinBlaze: No. This was all decided before I was born.
+ - He was desperate to tell his news to some other cat; he almost felt that if a mouse crossed his path he would stop to inform it that it was about to be eaten by a ThunderClan deputy.
+ - Stupid Furball!
+ - I forgot it.
+ - You have sacrified so much. And our Clan walks a safer path now. With this life, I give you pride, so that you may know your own worth and the worth of your Clan. Thank you for raising Whitestorm. You were chosen long ago, and StarClan has never regretted its choice.
+ - I have won.
+ - Nights’re cold now. Nights g’cold, y’get sick. S’what happens.
+ - You’re going to find Tigerstar. Against that fiend, every cat is helpless.
+ - His words are nothing more than mist and sunshine, impossible to hold down.
+ - You put quite a fight for a tame kitty.
+ - Can nothing change what is about to happen.
+ - I will always be here. We will walk the skies together forever.
+
+95 quotes

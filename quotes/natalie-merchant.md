@@ -1,0 +1,33 @@
+ - For your kindness, I’m in debt to you. For your selflessness, my admiration.
+ - Poetry comes alive to me through recitation.
+ - I go to the river from time to time to ponder over the crazy days in my life. Watch the river flow, ease my mind and soul where I go.
+ - I’ve raised my daughter with no television.
+ - I’ve never sold my publishing. I have 100% control of all of my publishing and that includes everything, every use of my songs.
+ - I’m on this search trying to figure out exactly who I am and what I have to say to people.
+ - I don’t want to live in a culture of despair. I’d like to live in a culture of hope.
+ - I think I don’t invest so much time in thinking about people’s sexuality. I just take people as individuals.
+ - It’s really wonderful to be able to be nobody, and then have a moment when I can be somebody, and then go right back to being nobody again.
+ - I was shy. Bookish. The kind of 13-year-old girl who, instead of having a boyfriend, would have a crush on a dead, 19th-century author!
+ - I would say I’d rather dig a ditch, you know, do hard, manual labor than write lyrics.
+ - Life is sweet, life is also very short.
+ - Have I been blind, have I been lost, inside myself and my own mind?
+ - My mother was a single working mother; she started having children very young. There was a tension inside her about who she wanted to be and what she wanted to do and how she couldn’t achieve the things she wanted to.
+ - I think of myself as a musician and not a celebrity. Celebrity status is something you have to deliberately pursue – I couldn’t imagine myself seeking that.
+ - Have I been wrong? Have I been wise to shut my eyes?
+ - I don’t think women’s prisons are environments for dance routines, and I don’t think mass murder is humorous.
+ - Literature gives us a window into other people’s experiences in other places, in other times, so I thought it would be really interesting to investigate how different people had written about motherhood, and childhood.
+ - I don’t enjoy the work that I do. It’s just that it’s not self-sustaining anymore. The way that I like to make records – they’re expensive records to make and just can’t afford to do it anymore.
+ - I don’t have a lot of thrilling anecdotes about my career or personal life. All the stuff that is interesting is private and I wouldn’t want people to know.
+ - It’s funny, I remember doing the Johnny Carson show, and, uh, I couldn’t afford my rent.
+ - I think I have a really diverse audience. I’ve had people from all sorts of sexual persuasions.
+ - I wish I had appreciated my youth – I should have worn tighter clothing when I could have!
+ - Im going to be shaking my booty when Im 55.
+ - TV holds a close second to cars for destroying our society. It’s a failed experiment.
+ - I would never do a printed memoir. I’ve been asked to publish a memoir from years by different publishers and literary agents. I think it wouldn’t be great for me because all I’d really want to talk about it music and I’d rather just play it.
+ - When it came time to sequence the album, the new arrangements really demanded a different order. They were so different than they were before that the old sequence didn’t work anymore.
+ - I’ve always considered it a great privilege to be a musician, I’ve never lost sight of that.
+ - I’ve found out how overwhelming the media is and the way it drills things into your head, it’s almost like a mind control. If I could control prople’s minds, I’d like to put something useful in.
+ - I can’t remove the autobiographical slant from the things I write. You always bring yourself into what you’re writing.
+ - The research phase was really fascinating – I’m not a closeted nerd, I’m an out-of-the-closet nerd.
+
+31 quotes

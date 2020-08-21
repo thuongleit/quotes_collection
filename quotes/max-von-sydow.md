@@ -1,0 +1,30 @@
+ - The power of Christ compels you!
+ - I think English is a fantastic, rich and musical language, but of course your mother tongue is the most important for an actor.
+ - If Jesus came back today, and saw what was going on in his name, he’d never stop throwing up.
+ - The more I had to act like a saint, the more I felt like being a sinner.
+ - It’s important to me to work in my own language now and then. I love English, but you can never learn to master a foreign language if you’re not brought up with it.
+ - I don’t believe in devils. Indifference and misunderstandings can create evil situations. Most of the time, people who appear to be evil are really victims of evil deeds.
+ - I like to play with things a while before annihilation.
+ - A vacation spot out of season always has a very special magic.
+ - The offers I get are for grandfathers, uncles – and they often die very quickly in the script.
+ - In Hollywood they usually cast me as villains or priests.
+ - Filming is repetition and many takes.
+ - The idea of working with Steven Spielberg was very attractive. He’s such a master. He knows the language of the camera and of filmmaking, which gives him a great freedom.
+ - Producers are not gamblers. They want a good return on their investment.
+ - I began imagining scenes in public which some drunk would come up to me and slap me in the face. Nothing like that ever happened, but I often wonder if I would have turned the other cheek.
+ - Movies give me an opportunity to go places. I’m not only a Swede but an American, not just a man of my time, but I’ve been living 2,000 years ago-and not just in a new country, America, but in the Holy Land, too.
+ - All my life I’ve been looking for diversity.
+ - I accept a role only if it’s something I really, really like.
+ - I just feel I shouldn’t work too much, because there are so many other things to do.
+ - In this country, you have movie actors and theatre actors and television actors.
+ - In a theater, the part is mine and I can control it as I want to. In the movies, I don’t have direct contact, and I am fighting technical machinery.
+ - I’m getting too old to play some parts, but I’m still greedy.
+ - Playing Christ, I began to feel shut away from the world. A newspaper became one of my biggest luxuries. I noticed that some of my close friends began treating me with reverence.
+ - I remember those days with Bergman with great nostalgia. We were aware that the films were going to be quite important, and the work felt meaningful.
+ - Only very rarely are foreigners or first-generation immigrants allowed to be nice people in American films. Those with an accent are bad guys.
+ - Do it, do it, do it. And watch good actors. See what they are doing and how they are doing it. You have to practically participate, I think, in order to develop yourself.
+ - I’ve never been in a barroom brawl in my life. I just don’t do such things.
+ - Spielberg knows his craft so well, he can also improvise, and that is a lot of fun.
+ - I’m not in retirement. I just don’t want to work so much, and I don’t get that many offers any more.
+
+28 quotes

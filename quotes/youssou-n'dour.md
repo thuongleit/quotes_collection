@@ -1,0 +1,34 @@
+ - Africa is the future.
+ - Islam is a peaceful religion.
+ - When I’m in Senegal, I can’t just sit in isolation making music. People need my help. And the Senegalese people helped create my music. It comes from the country itself.
+ - World music is about taking things from different places and bringing them together – which is great.
+ - I respect music, I do. I love it.
+ - I have to protect my family and have a life with them that is completely private.
+ - My father used to tell me about how musicians don’t have respect from people and he was afraid about my future.
+ - My music is like a spinning ball. It can turn in one direction, and then it comes back to origins.
+ - If you come from Africa with your economic poverty and your cultural riches, and you meet someone like Peter Gabriel or a person from a big record company, and they tell you that what you are doing is marvelous, that makes you feel powerful.
+ - I think that Sufism fits all over the world. The concept is not anything that fits standard Western ideas – it’s always related to culture, to music, to religion. It is a dominant religion in Senegal.
+ - Malaria kills and its main victims are children and women. We can stop this scourge so people can live with dignity and go to work and school.
+ - I grew up with reggae music.
+ - The question of modernization is central to disturbances in the Middle East and in Africa. Everyone is after modernization, no matter where they come from. But you have to be careful about it, and more importantly, you have to have sense about it.
+ - Music in Africa often contains messages. Music in Senegal, and Africa, is never music for music’s sake or solely for entertainment. It’s always a vehicle for social connections, discussions and ideas.
+ - I don’t want to see that two-tier Senegal, that two-tier Africa, when you have those at the top and those at the bottom, people who are hungry, people who do not have enough to eat.
+ - People need to see that, far from being an obstacle, the world’s diversity of languages, religions and traditions is a great treasure, affording us precious opportunities to recognize ourselves in others.
+ - When the slaves left Africa, they left us this music. They left us blues.
+ - In politics, sometimes you have to lie, or you make a promise that you cannot keep.
+ - I want to use my music to deliver a political message and sometimes to denounce, but I don’t want to be a politician.
+ - Senegal needs a renaissance.
+ - I love meeting interesting people and doing things with them.
+ - I have studied at the school of the world.
+ - Politics is politics; art is art. If you play a political role, you have to stop being an artist.
+ - I really want to bring the message of love that is Islam to people; bring something new to that familiar face.
+ - Listen, a lot of religions have fundamentalists.
+ - I can assure you that I have never used my media companies for propaganda, and I will never do so.
+ - Western record companies haven’t always dealt with African musicians in the best way. Giving them a lot of money and telling them they’re going to be bigger than Phil Collins is the wrong way to do it!
+ - In the West, you have always associated the Islamic faith 100 percent with Arab culture. This in itself is a fundamentalist attitude and it is mistaken.
+ - I don’t really see myself as an actor.
+ - I’m a modern Muslim. I pray, and if I have a question, I ask someone who is more educated in the religion than me.
+ - Islam has been badly used by a certain ideology.
+ - Travel teaches as much as books.
+
+32 quotes

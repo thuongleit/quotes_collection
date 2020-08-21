@@ -1,0 +1,24 @@
+ - In a major matter no details are small.
+ - Every man whom chance alone has, by some accident, made a public character, hardly ever fails of becoming, in a short time, a ridiculous private one.
+ - There are no small steps in great affairs.
+ - Nothing sways the stupid more than arguments they can’t understand.
+ - Where princes are concerned, a man who is able to do good is as dangerous and almost as criminal as a man who intends to do evil.
+ - One of man’s greatest failings is that he looks almost always for an excuse, in the misfortune that befalls him through his own fault, before looking for a remedy-which means he often finds the remedy too late.
+ - The man who can own up to his error is greater than he who merely knows how to avoid making it.
+ - What is necessary is never a risk.
+ - Great men help dazzle the people; after that, they dazzle themselves even more dangerously.
+ - Timorous minds are much more inclined to deliberate than to resolve.
+ - Weak souls always set to work at the wrong time.
+ - Every numerous assembly is a mob; everything there depends on instantaneous turns.
+ - Weakness has many stages. There is a difference between feebleness by the impotency of the will, of the will to the resolution, of the resolution to the choice of means, of the choice of the means to the application.
+ - If you have to make an unpopular speech, give it all the sincerity you can muster; that’s the only way to sweeten it.
+ - When you are obliged to make a statement that you know will cause displeasure, you must say it with every appearance of sincerity; this is the only way to make it palatable.
+ - Of all the passions, fear weakens judgment most.
+ - It’s easier to fight one’s enemies than to get on with one’s friends.
+ - Most men only commit great crimes because of their scruples about petty ones.
+ - Nothing indicates the soundness of a man’s judgment so much as knowing how to choose between two disadvantages.
+ - Persecution to persons in a high rank stands them in the stead of eminent virtue.
+ - The most mistrustful are often the greatest dupes.
+ - A man who does not trust himself will never really trust anybody.
+
+22 quotes

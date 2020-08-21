@@ -1,0 +1,29 @@
+ - Every great thinker keeps a journal, you know.
+ - Remember the White Knight.
+ - May your adventures bring you closer together, even as they take you far away from home.
+ - You must remember, family is often born of blood, but it doesn’t depend on blood. Nor is it exclusive of friendship. Family members can be your best friends, you know. And best friends, whether or not they are related to you, can be your family.
+ - She was a thin woman in a mustard-yellow suit, with a yellowish complexion, short-cropped rusty red hair, and a stiff posture. She reminded Reynie of a giant walking pencil.
+ - Is this what family is like: the feeling that everyone’s connected, that with one piece missing, the whole thing’s broken?
+ - Rules and school are tools for fools! I don’t give two mules for rules.
+ - Grow the lawn and mow the lawn always keep the TV on, brush your teeth and kill the germs, poison apples, poison worms.
+ - One problem with being a leader, is that even among your friends you are alone, for it is you – and you alone – to whom the others look for final guidance.
+ - Everything is as it should be.
+ - What is life without laughter?
+ - I think when I started to write The Mysterious Benedict Society that I had that kind of thing in mind – the notion of having to be able to solve puzzles and riddles because enormous stakes rode upon your ability to do that.
+ - If you like to tell stories and compose sentences, and if you work hard at being good at these things, then you are a writer even if you haven’t published anything.
+ - Children are capable of such open rudeness.
+ - The gym is always open, except when it’s closed.
+ - They stared out their window at night enough to know where the darkest shadows lay, and it was to the darkest shadows they kept.
+ - You are the smartest children i know. You just don’t beleive it.
+ - In other words, you are our last possible hope. You are our only hope.
+ - Was it worse for him, Reynie wondered, to have felt loved and then rejected? Or was it worse to have always felt alone?
+ - I’ve only just arrived, Kate. It may surprise you to learn that you were my top priority.
+ - No one seems to realize how much we are driven by FEAR, the essential component of human personality. Everything else – from ambition to love to despair – derives in some way from this single powerful emotion.
+ - She announced her age right away, for children consider their ages every bit as important as their names.
+ - Daddy, will you take me to the mill, again?
+ - I was always interested in the possibility maybe of finding my way into a big adventure.
+ - I tend to find characters who lack vulnerability dull.
+ - It just supports my personal opinion that he’s a wacko.
+ - At this, Constance sat down on a rock and covered her face. She seemed smaller than ever now – so small the harbor breeze might catch her up like a scrap of paper and carry her away, carry her into nowhere.
+
+27 quotes

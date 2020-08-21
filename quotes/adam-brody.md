@@ -1,0 +1,37 @@
+ - Welcome to a life of insecurity and paralyzing self-doubt.
+ - And in a world without heroes, as the movie trailer voice-over guy might say, the slightly awkward can be slightly cool.
+ - I’m a fake intellectual.
+ - I wish I came from a more pure place. I don’t have something to say from the bottom of my soul. I just know how to take stuff I like and repackage it in a slightly different way.
+ - I am super-proud to have a sort of famous character in my background that if you’re a certain age, he was probably a part of your youth. I think that’s pretty cool.
+ - My best jokes are so cheap. All I do is say things sarcastically.
+ - I always enjoyed movies and in hindsight I realise how captivating they were to me.
+ - I do think that sometimes you can invent more palatable or digestible reasons versions or reasons, when perhaps you don’t want to admit the truth to yourself, and sometimes we deceive ourselves – along with others – about our reasons and motives.
+ - I have been in teen shows for years, so doing that stuff – kissing – is kind of commonplace and not a big deal. It was way more cool just because it was Meg Ryan.
+ - I worry that I can come off smarmy. I wonder if I was listening to myself if I’d want to kick my own ass.
+ - It’s bad writing, however naturalistic it’s written, that’s where you have to do your best acting.
+ - I don’t know anyone who’s going to see Grind 22 times in the theater. My mom. Some kid who has short-term memory loss and forgot that he’s seen it.
+ - I like to always have humour in whatever I do.
+ - Really, as long as I am working and have diversity, I am happy.
+ - I’ve had to fight for roles and I’ve lost a hundred roles, but ‘Smoking’ and ‘Smith’ were phone calls. That’s the dream.
+ - Most of the time, my favorite drama has comedy in it as well. I think most good dramas have comedy in there. And all of the dramatic actors I look up to are also very funny.
+ - It’s very important to me to love what I do. It was important to me to find a career that I truly enjoy. You can find something that sort of excites you, that’s half the battle of life.
+ - I want to work with intelligent people and look for scripts that I think are intelligent and surprising.
+ - I started drinking Scotch just to be a man.
+ - Okay, using the dreaded middle name is not the best way to forge a bond.
+ - I just want to be in good things that I want to see, and I want to work with talented people who are smarter than myself.
+ - I always knew I was going to die in space.
+ - Transitioning to being an unemployed film actor is different, but it’s fun and I’ve been looking forward to it for a while.
+ - I just graduated from high school, and I was working at Blockbuster. Not only did I get into movies while I was there, but I was putting away boxes and looking at the kids on the covers. It felt like windows into these seemingly perfect lives.
+ - It helps if you don’t date other actors, but actresses are beautiful. How can you say no?
+ - There’s no conversation more boring than talking about what it’s really like to live in Newport and how the show compares to the real thing. I just don’t care.
+ - I try to make all of my roles likeable in some way.
+ - I feel like Hollywood is a big high school again. Seriously, Ashton Kutcher is the prom king.
+ - Comic books aren’t nerdy. You’d have to be an idiot to think computers are nerdy.
+ - You know, you’re a great barbecuetionist.
+ - I like great directors who are scarce. Prolific ones are nice too but for me, there’s something about the scarcity that makes it all the more valuable.
+ - I like an interesting movie even if it’s controversial or offensive, depending on your taste.
+ - I love movie-making. I’m interested in writing and directing, and I’ve dabbled, but I haven’t done anything I care to brag about. Yet.
+ - I have a pretty lousy voice.
+ - If I don’t direct a movie at some point, I’ve failed personally.
+
+35 quotes

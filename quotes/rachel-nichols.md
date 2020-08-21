@@ -1,0 +1,51 @@
+ - I simply do not think that yelling, swearing, threatening or belittling will get you to the place you want to be faster than kindness, understanding, patience and a little willingness to compromise.
+ - I’m obsessed with making lists.
+ - I remember thinking that people were crazy for reading the same book more than once, but I now have a new-found appreciation for the re-discovery of literature. The lessons we learned from books in the school curriculum are reinvented and updated when we read as adults.
+ - I strongly believe that good books are the best home accessory.
+ - I am much more productive late at night because I have no one to look to for entertainment aside from myself.
+ - My first modeling job in Paris, the photographer said, ‘Tue es belle,’ which means, ‘you are pretty,’ and I thought he said, ‘Tu es poubelle,’ which means, ‘you are the trash can.’ I burst into tears. He was not happy about that.
+ - Why do I always choose the shopping cart with the squeaky wheel? Is it my bad luck, or are all the carts dysfunctional?
+ - How come foreign accents are so sexy? If I say, ‘I’m going to the store,’ it sounds boring, benign and rudimentary. But if it’s said with an accent, it sounds fundamentally cool.
+ - I love Bridget Fonda.
+ - Apparently, despite my awareness of its pejorative connotation, procrastinating is something I fall victim to quite frequently. I’m not proud of it; I’m just being honest.
+ - How come I love having an episode of deja vu? It’s akin to an out-of-body experience, I would think. It sits with me, happily, begging me to delve into my memory to find its match point.
+ - I love to personalize things. I love to make things my own. I like to name everything – from cars to iPhones to the socks I just lost.
+ - I used to hate working out – until I learned how to do it properly.
+ - I love dessert. All kinds. But there’s something about ice cream that makes me happy. I am drawn to its simplicity. I am perplexed by the endless supply of constantly growing flavor options. And I am always in the mood for sprinkles and a sugar cone.
+ - I always knew I’d go back to school. Modeling was a means to an end, making money for graduate school.
+ - I have been known to go to the grocery store and just buy pepperoni. There’s just something fantastic about salty, fatty meats.
+ - Don’t get me wrong, I love watching episodes of my favorite shows on Hulu and reading the daily trash on PageSix, but I also embrace the opportunity to settle down with a good book and let my mind travel to another place and time.
+ - I love having wine with my meals. And if I splurge, I’m going to splurge big, because if I deny my cravings, it just ends up backfiring on me, you know?
+ - History is fickle. We know that. The good and bad come around and go around, and go around again. There are recessions and depressions and economic boom and bust.
+ - I never pile a plate to the point where it overflows. I’d rather have a small plate with small portions and then get up for more if I’m still hungry.
+ - I think that being read to every night is the reason why I was plowing through volume after volume of ‘Nancy Drew’ books all by myself by the time I reached the first grade. I loved stories. I loved the escape. I had a vivid imagination.
+ - I started dealing with weapons on the first show I ever did, ‘The Inside,’ but I didn’t really do any physical stuff until ‘Alias.’
+ - I love the physicality side of roles, I really do, And when I get to do my own stunts, it’s that much cooler. I’ll do anything the production safety people will let me.
+ - I love the smell of freshly cut grass. It takes me back to summers in Maine.
+ - I have a lot of Twitter rules. I never swear on Twitter, and if anybody’s inappropriate, I block them. I have young followers.
+ - I don’t know how to cook, but I do know how to bake.
+ - I will openly admit that I’ve never really followed hockey. Given my New England upbringing, I have always adhered to the Celtics, Patriots, Red Sox, Bruins mantra of professional sports fandom, but hockey was definitely the lowest sport on the totem pole – even when the Bruins won the Stanley Cup.
+ - Yes, I was the child who would sneak into her closet and read ‘Nancy Drew’ for hours after the designated ‘lights out’ time of night.
+ - Lets talk about the holidays, more specifically, consumption during the holidays. If it’s true that ‘We are what we eat,’ most of us would be unrecognizable during the period that ranges from the night before Thanksgiving through that day in early January when everyone decides to return to the gym.
+ - I thought that I’d have a briefcase-and-power-suit career.
+ - I’ve always enjoyed doing dishes. Maybe it was the fashionable yellow gloves that I loved so much. It’s weird, I know, but I find cleaning cathartic.
+ - I have smelled some very famous and undoubtedly sexy boys. And sometimes, as cute as they are, I’d rather have them as a friend – just because of the way they smell!
+ - One of the great things about the sci-fi genre is that you can kind of get away with a bit more when talking politics, making social references or dealing with very hot-button topics because it is sci-fi.
+ - I spend an extraordinary amount of time in my car, so I can justify the expense. That’s the only extravagance in my life – it’s my car.
+ - I happen to be quite fond of staying out late and sleeping the day away.
+ - My house is filled with books, most of which I have read, some of which I intend to eventually get to. I’m always reading at least one work of fiction and one work of non-fiction simultaneously. Whatever mood I’m in, there’s always a book nearby to suit it.
+ - I’d like to think, if I was ever in a fight, I’d win, although I’d probably run in the opposite direction.
+ - I love stretching in the morning. It’s the first thing I do when I wake up because getting a good back-crack is so extremely satiating. I feel taller when I finally stand.
+ - I adore anything Michael Alexis writes.
+ - There’s nothing I hate more than gritty, linty, mysterious pocket schmutz in the cap of my lip moisturizer – or, even worse, on the applicator itself. I shudder at the thought.
+ - I laugh at what I used to think was cool when I was growing up. In all seriousness, I thought having braces was cool.
+ - Sci-fi fans are awesome. They’re very smart, they like to be involved, they like to ask questions. I’ve been asked questions I don’t even know the answer to. I’ve never had any aggressive interactions. I’ve had lovely interactions.
+ - I know my football. And I adore football players. The crashing noise of a tackle, the huddle grunting, and the roar of the crowd are music to my ears.
+ - People ask me about fighting in real life and, honestly, it wouldn’t look as graceful as it does in film and TV.
+ - Hockey seems completely lawless and, therefore, inexplicably sexy.
+ - I can never find a movie I want to watch, even though I’ve got hundreds to choose from.
+ - I normally work out six days a week. I’ll do Pilates on Tuesdays, Thursdays, and Saturdays, and I’ll do cardio on Mondays, Wednesdays, and Fridays.
+ - The list of problems that we all experience may be endless, but I honestly cannot abide by the rule that, ‘He who yells louder is heard.’
+ - I’d like to do a comedy, actually. I think it would be great to do a sitcom or something like that. I’m pretty much open to anything.
+
+49 quotes

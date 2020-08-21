@@ -1,0 +1,66 @@
+ - If you aren’t going all the way, why go at all?
+ - When you have confidence, you can have a lot of fun. And when you have fun, you can do amazing things.
+ - My family’s the most important thing in my life.
+ - When you win, nothing hurts.
+ - There are some things you only learn through experience.
+ - I can’t wait until tomorrow ’cause I get better looking every day.
+ - To be a leader, you have to make people want to follow you, and nobody wants to follow someone who doesn’t know where he is going.
+ - First, I prepare. Then I have faith.
+ - Something’s been guiding me around throughout my life.
+ - Things change when you have children; your priorities change.
+ - It feels good to show some courage.
+ - I am a football fan, yeah.
+ - You learn how to be a gracious winner and an outstanding loser.
+ - I wanna kiss you. I couldn’t care less about the team struggling. What we know is we can improve. Chad Pennington, our quarterback, missed the first part of the season, and we struggled. We’re looking to next season. We’re looking to make a noise now, and I wanna kiss you!
+ - I wanna kiss you. I couldn’t care less about the team struggling.
+ - I’ve got news for you. We’re gonna win the game. I guarantee it.
+ - Football is an honest game. It’s true to life. It’s a game about sharing. Football is a team game. So is life.
+ - You learn you can do your best even when its hard, even when you’re tired and maybe hurting a little bit. It feels good to show some courage.
+ - I don’t know whether I prefer Astroturf to grass. I never smoked Astroturf.
+ - Whether it’s 18 years old or 40 years old, we think we know what’s going on. But if you’re lucky enough to continue the journey, its amazing how we keep learning how much we didn’t know.
+ - I don’t care what a man is as long as he treats me right. He can be a gambler, a hustler, someone everybody else thinks is obnoxious, I don’t care so long as he’s straight with me and our dealings are fair.
+ - I have no idea what my batting average was in high school, but I know it wasn’t below .450, and that’s pretty good hitting where I come from.
+ - It feels bad to feel like you’re not wanted.
+ - I’ve figured out that life in general is a team effort; it’s a team game.
+ - There’s an old saying amongst players in football talking about your general manger and coaches, they speak with a forked tongue.
+ - I took my time to find the perfect girl.
+ - I’d rather go to Vietnam than get married.
+ - How you recover from what life’s throwing at you is what matters.
+ - When we won the league championship, all the married guys on the club had to thank their wives for putting up with all the stress and strain all season. I had to thank all the single broads in New York.
+ - I don’t like to date so much as I just like to kind of, you know, run into somethin’, man.
+ - I’ve always said I’m going to get married only once.
+ - I was a very naive young man, and I may still be ignorant about a lot of things.
+ - As a football coach, everything in your life comes after your football schedule. I just could not make that commitment.
+ - My philosophy in life, where I was trying to get, could have been a little bit different.
+ - I love football. I really love football, As far as I’m concerned, it’s the second best thing in the world.
+ - I was born with the gift.
+ - I think there’s always going to be a problem dealing with firearms, with knives. It’s the animal we are that cause the problems.
+ - After my first knee operation, in January of ’65 before I went to the Jets, Dr. James Nicholas told me everything went well and that I could probably play four years in the NFL. The surgery was trailblazing to a certain extent.
+ - I like music and I like ladies. I like to see them dance.
+ - I believe in letting a guy live the way he wants to if he doesn’t hurt anyone.
+ - I’ve tested life and I’ve learned what works for me.
+ - Football is a team game. So is life.
+ - Of course, in pro ball, they never hit the quarterback in practice.
+ - I deal with football from a realistic, logical point of view.
+ - I should have been thinking more about my family, how I raised my children, how I maintained life’s work, so to speak.
+ - Until my senior year, baseball and basketball were my best sports; and even when I was a senior, I still wanted to play baseball professionally. But the family wanted me to go to college, and I guess I agreed with them, or else I would have accepted some of the offers I got.
+ - What I do is prepare myself until I know I can do what I have to do.
+ - I was focused on athletics, outdoors, sports.
+ - I think I could have become an outstanding professional baseball player, but I don’t think I could have reached the heights that I have in football – being one of the very top players in the game, being a world champion.
+ - Times have changed. The athletes have changed.
+ - Pressure just makes you go a little more. I kind of like pressure.
+ - Where I came from, sports were the only way to get out front.
+ - I can’t compare family to athletics.
+ - Till I was 13, I thought my name was ‘Shut Up.’
+ - I’m always gonna be Joe Namath, and I’m not running from that.
+ - I’ve been some through some things medically. I’ve seen some things on my brain. But I’ve had some treatment – and I’ve improved.
+ - The game is choreographed; it is mental, it is physical, it is a battle. People can feel those hits when they are in the stadium, you feel them and you see the velocity of the players.
+ - I have to convince myself I know what I’m doing.
+ - I was a workhorse; there was never a practice that I didn’t enjoy.
+ - I couldn’t do anything I didn’t enjoy.
+ - Johnny Unitas was my hero.
+ - I don’t think that I’ve ever been a backup.
+ - I was lucky enough when it came to sports and work ethic to be taught some basics that continue to be important.
+ - None of the body was designed to play football. Excuse me, you know, football, we’re just not designed for.
+
+64 quotes

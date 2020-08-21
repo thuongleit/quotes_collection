@@ -1,0 +1,233 @@
+ - I hide hurt behind a fake smile. I wear it all the time. Everyone says how I always look so cheerful. Shows what they know I guess.
+ - You can’t walk away from someone you love, leave them drowning in your desertion. If love has no more meaning than that, you can keep it. I don’t want it now or ever again. Don’t want to hear the word or wear its scars.
+ - She is madness, sanity. She is hell, and paradise.
+ - You believe this is a game, and you may be right. But if you think you can play it better than me, think again.
+ - Sometimes the little things in life mean the most.
+ - Life is full of choices. We don’t always make good ones.
+ - When all choice is taken from you, life becomes a game of survival.
+ - The only thing about myself I know for sure is that I don’t know anything.
+ - Words have power. The power to soothe. The power to skewer someone through the heart. The power to render someone speechless.
+ - I know I can’t stay here forever.
+ - You deserve good things, and I want to be one of them.
+ - You were a summer gift, one I’ll always treasure. You were a dream I never wanted to wake up from. You opened my eyes to things I’ll never really see. You’re the best thing that will ever happen to me.
+ - I hate this feeling. Like I’m here, but I’m not. Like someone cares. But they don’t. Like I belong somewhere else, anywhere but here, and escape lies just past that snowy window, cool and crisp as the February air.
+ - Taking no chances means wasting your dreams...
+ - I want the part of you that you refuse to give.
+ - Living means taking chances. Risks. Playing safe all the time is being dead inside, even if you happen to still be breathing.
+ - This time when we kiss, I feel it in the pit of my stomach, I feel it in my heart. And I realize love isn’t about sex. It’s about connection.
+ - Love is like that. I could crush her beneath the weight of confession.
+ - Only by confronting your demons can you ever hope to conquer them.
+ - Love without trust is nothing more than infatuation.
+ - Act on your impulse, swallow the bottle, cut a little deeper, put the gun to your chest.
+ - The first time I kissed you. One kiss, and I was totally hooked. Addicted to you. I could never love anyone the way I love you. I’d follow you across the universe.
+ - When You Weren’t Looking The child became a woman, though she wasn’t ready to. Don’t ask how or why. Those questions are not important ones. Can’t you see you didn’t care enough to notice?
+ - What’s the point of being a hero when everyone thinks you’re a villain?
+ - Torch every book. Burn every page. Char every word to ash. Ideas are incombustible. And therein lies your real fear.
+ - One foot in front of the other, counting tiles on the floor so I don’t have to focus the blur of painted smiles, fake faces.
+ - Her smile is like summer moonlight-beautiful and magical, with a fire that could melt the night.
+ - Addiction is rarely conquered alone.
+ - I love you so much when i see you i get butterflies.
+ - Some people never find the right kind of love. You know, the kind that steals your breath away, like diving into snowmelt. The kind that jolts your heart, sets it beating apace, an anxious hiccuping of hummingbird wings.
+ - With you, I am Eve. And you are my beautiful Adam. Let’s run away, find our garden, live there together, happy. Naked.
+ - I mean, who wants to trudge through life, doing everything just right? Taking no chances means wasting your dreams.
+ - In control. Out of control. Sometimes they’re the same thing. The trick is knowing that, realizing it’s okay to feel out of control once in a while, as long as you’re sure you can regain the upper hand when you absolutely need to.
+ - Maybe Life is random. No fate. No God. Just Time.
+ - Can’t promise I’ll stay. That would be lying. And I’m so, so tired of lies.
+ - Anger is a valid emotion. It’s only bad when it takes control and makes you do things you don’t want to do.
+ - Love can complete you. It can also destroy you.
+ - The problem with falling in love is falling back out of it again, usually because you’ve fallen in love with a lie. That happens as often as not.
+ - Can a dream be wrong? Aren’t dreams God’s way of telling you things?
+ - Puzzle pieces don’t always connect do they?
+ - I’m a total wreck. Afraid to let anyone near. Afraid they’ll see the real me.
+ - And if candor strikes to forcefully, step back, draw careful breath, and consider the angle your words must take before you open your mouth, let them leak out. Because once you tilt the truth, it becomes a lie.
+ - It’s probably weird to think about an addiction like it’s a sentient being, but that’s how it feels. Like it’s something living inside you. Something you can’t get rid of because killing it means killing you.
+ - Life was good before I met the monster. After, life was great At least for a little while.
+ - It is hard to believe that something that seems so permanent was once so different. Change. I guess that really is one thing you can count on...
+ - But, though I was very much in lust with him, I knew from the start we were nothing like “forever.” Maybe because forever is such a scary place.
+ - We kissed for about the thousandth time, No promises, no demands, Just solid rebuilding of shattered trust.
+ - When i’m with you my blood flows smoothly through.
+ - Before you, I believed love was making love. Waiting only makes me love you more.
+ - Kaeleigh, queen of passive, all the time saying no, but not strong enough to mean it.
+ - I write poetry anyway and have for years and years. For me, putting fiction and poetry together is like the best of both worlds.
+ - When you love someone, you don’t want to hurt them, even if they deserve to be hurt. When you love someone, you want to hurt them, even when they don’t deserve to be hurt.
+ - That’s what I’ll be. A silhouette, rarely seen, and yet believed in.
+ - Clear. Cold. Empty. Like how I feel right now. Love is strange. One minute you’re jungle fever. The next you’re Artic winter.
+ - Death Is only the easy way out if you are the one who dies.
+ - Your life doesn’t belong to you, it belongs to the people that love you.
+ - Life is all about change. If it were static, think about how boring it would be. You can’t be afraid of it, and you can’t worry that you’ll mess things up. You deserve good things, and I want to be one of them.
+ - Happiness, you see, its just an illusion of Fate, a heavenly sleight of hand designed to make you believe in fairy tales. But there’s no happily ever after. You’ll only find happy endings in books. Some books.
+ - Forever has no meaning when you’re living in the moment. I wasn’t ready for that moment to end.
+ - God i’ve missed you. I can’t wait to give you your present. He kisses me hotter this time, and beneath me, through his denim and mine. I can feel the promise of his Christmas gift soon to come.
+ - Life was good before I met the monster. After, life was great At least for a little while.
+ - Do you know how beautiful you are?? I shook my head ‘I’m not. But you make me fell like I am.’ I wanted to be beautiful. To him. For him. I didn’t care how anybody else saw me. Only Ethan.
+ - My happiest memories have no place in the past; they are those I have yet to create.
+ - It wasn’t my first kiss, maybe it wasn’t my best kiss, but it was pretty fine, and the fact that he had asked will forever make that kiss stand out in my mind, touch my heart, make me remember a kiss so tender it made me cry.
+ - I do have friends, but they don’t know me, only someone I’ve created to take my place. Someone sculpted from ice. I keep the melted me bottled up inside. Where no one can touch her, until, unbidden, she comes pouring out.
+ - Memory is a tenuous thing, like a rainbow’s end or a camera with a failing lens.
+ - I was about six years old, still Daddy’s little girl, even though Daddy couldn’t care less about me. How could I expect any man every would?
+ - You can have your pick of pretty women. Why me? You’re like the ocean, Pattyn. Pretty enough on the surface, but dive down into your depths, you’ll find beauty most people never see. Lucky me. I fell in, headfirst.
+ - Eventually, it becomes a matter of scale. When the good outweighs the bad, you stay. When the bad is the only thing you notice anymore, you think about your future, or what’s left of it, consider options.
+ - Some people never find love at all, count yourself blessed if it ever happens your way.
+ - Ghosts don’t scare me. Flesh and blood people do.
+ - Christmas is far and away my favorite holiday. I love everything about it, from the event that inspired it, hoping for a white one, to wrapping presents. But mostly I love having family and friends gathered, and sharing traditions.
+ - The truth is, I’ve always been afraid of letting anyone get too close. I built a wall around me, a barricade to hide behind those few times someone wanted entry to my heart.
+ - And now life has become the future. Every moment of your life is lived for the future-you go to high school so you can go to college so you can get a good job so you can get nice house.
+ - That’s what I’ll be. A silhouette, rarely seen, and yet believed in. Kaeleigh wants to believe in me. I am her twin, forever alive inside her. And when she needs me, I am always here.
+ - Don’t you know? We’re connected by an invisible chain. It’s very long, very light. But also very strong. It can’t rust. Can’t break. And the only thing that can sever it is if you ever stop loving me.
+ - Commitment means losing yourself to gain something temporary. Nothing lasts. Not looks. Not love.
+ - Hell isn’t some fiery pit “down there.” It’s right here on Earth, in every dirty city, every yawning town.
+ - Paradise A concept embraced by almost every culture. A land of peace and harmony. Some say it doesn’t belong to the earth, that there is no Shangri-la, no utopian wilderness for the living.
+ - Do you ever dangle your toes over the precipice, dare the cliff to crumble, defy the frozen deity to suffer the sun, thaw feather and bone, take wing to fly you home?
+ - Grandma once told me it’s easy to overthink love, to dissect it and question it until it is no more.
+ - Innocence eroded into nightmare. All because of very bad touch. Love, corrupted.
+ - But more importantly, you are a gift, to all who know you, whether or not they realize it. If they don’t, they are blind. You have a special place in this world. All you hvae to do is find it.
+ - Grown up? Me? I suppose I have. Killing things, and almost killing myself, must have changed me some, after all.
+ - Real love finds you once, if you’re lucky.
+ - Alone everything changes. Some might call it distorted reality but it’s exactly the place I need to be.
+ - Just keep on shining that light. The rest will take care of itself.
+ - The stars shine as they always do. Same stars. Same sky. Only I am different.
+ - I whisper and you close your eyes. I speak and you turn away. If I scream, will you finally hear me beg you to hold me close to you, promise you’ll never let go?
+ - Or might the soul clone itself, create a perfect imitation of something yet to be defined? In this way, can a reflection be altered?
+ - Red and raw like my brain, unable to shut down, thoughts crashing like electrons orbiting a nucleus of deuling emotions.
+ - There will never be color blindness in a culture of fear.
+ - Six months since we met up again we are inseparable, an intricate weave. No longer do I believe this is a temporary fling. More like total commitment. More like I have walked down the aisle, holding hands with the monster.
+ - I can’t change what has happened in the past, Kaeleigh. I can only promise to make the future better.
+ - Even good girls have secrets, ones even their best friends must guess.
+ - Then teach me how to not care about someone who was everything to me. All I want is to know she’s okay. Is that too much to ask?
+ - How can I explain purposely setting foot on a path so blatantly treacherous? Was the fun in the fall?
+ - She is angle. I am curve. Together, we are geometric sculpture, and we make perfect sense.
+ - Every high has an equal, measurable low.
+ - Your hurt swallows ine, like space swallows time, and the two intertwine. We tangle together.
+ - Have you ever once in your life reached out to touch infinity?
+ - You can turn your back but you can never really walk away.
+ - When did creating a flawless facade become a more vital goal than learning to love the person who lives inside your skin?
+ - Our meeting, touching, accidentally connecting immediately, interwoven hand-in-hand, heart-to-heart.
+ - My priest tells me i should not date a mormon but im just too in love with you that i’m willing to take risks.
+ - And the thought of that makes me want to open a vein, experience pain, know I’m alive, despite this living death.
+ - Either way, you are in charge. Jealousy works against you. It takes control away from you, hands it over to the opposition. Maintain control.
+ - I think parents should know what their children are reading, and if they truly object, they should tell their kids why, rather than summarily removing a book from their possession.
+ - Face red, but brave in spite of it, Ethan offered an even smaller box. My hands shook as i opened it. Set in a gold promise ring, three small diamonds glittered. One for you, one for me, one for us, he said sweetly. I love you.
+ - Without poetry, stories would be told in sepia.
+ - I never went to Albuquerque expecting to find love. I thought it had found me there, followed me home. I never came home expecting to lose love in the space of one brief telephone call. Is it always so short-lived?
+ - If all you can promise me is today, I’ll take it and hope for tomorrow.
+ - A Problem Is really just a solution in need of a reason to exist.
+ - This is unstoppable, no holds barred. This is beautiful. Crazy. A beginning. Betrayal. Addictive. Aggressive. Alive. This is something to be afraid of.
+ - The problem with resolutions is they’re only as solid as the person making them.
+ - She’s no longer afraid to die. What she’s afraid of is living, accepting the status quo.
+ - Never accept evil as something you must walk with, something you deserve.
+ - Forgiveness is easy. Trust is much more difficult, and should never be given lightly.
+ - BEAUTIFUL is stark, disquieting and, quite simply, riveting. Amy Reed is an author to keep on your radar.
+ - Not even Carol knows firsthand how it feels to be hurt in such a way by someone who’s supposed to protect you.
+ - Happily ever after is a concept I’ll never believe in.
+ - Never say never, dear. You might be surprised at what you can do, should circumstances dictate.
+ - Smile. Nod. Say something witty before he finds out what an incredible geek you are.
+ - Don’t make me laugh, I’d much rather cry.
+ - Forever made that kiss stand out in my mind, touch my heart, make me remember a kiss so tender.
+ - Yeah, I know getting high isn’t so smart. Ask me if I care.
+ - When you’ve only got one little shimmer of sunshine, you capture it best you can.
+ - But Hey, Guess What Crazy means I’m not liable for my actions. So screw it, I’ll go home, propped up on Prozac against distractions.
+ - Would I ever find forever love? Do I really want to, when forever was a word without meaning?
+ - Anger is easier than forgiveness.
+ - Yesterday influences today, thus creates tomorrow.
+ - Learning by example is valid, but when you have the information to know that turning in a certain direction can lead you to a very wrong place, most of the “blame” is on the individual.
+ - Is it wrong to leave relative security in favor of unknown risk at the side of someone you love?
+ - Bad choices or good, if you never take chances, someone else will build your life for you.
+ - So you try to think of someone else you’re mad at, and the unavoidable answer pops into your little warped brain: everyone.
+ - The wind kicks in stronger, branches clatter. Or maybe skeletons. Bones of abandonment. Ghosts that will never be.
+ - Nonfiction speaks to the head. Fiction speaks to the heart. Poetry speaks to the soul. It’s the essence of beauty. The essence of pain. It pleases the eye and the ear.
+ - Now that I have opened that bottle of memories they’re pouring out like wine, crimson and bittersweet.
+ - He did seem like a nice boy. Seeming and being are two different things.
+ - Life is full of choices. We don’t always make good ones. It seems to Kristina you gotta be crazy to open your windows, invite the demons in. Bree throws rocks at the feeble glass, laughs.
+ - I tattered their wings and tore off their legs, joint by joint, watched them crawl in circles, like little lost infants, untill they decide to die.
+ - I mean, if you’re gonna purposely lose your mind, you want to get it back some day. Don’t you? Okay, maybe not.
+ - Then I said it. He said it too. I love you. And everything that went before meant nothing.
+ - Certain of misfire, my heart threatens to stop.
+ - Easier, sometimes, to gulp down giant spoonfuls of uncertainty than it is to swallow throat-clogging capsules of what really is.
+ - You’ll only find happy endings in books. Some books.
+ - Sorry. But I don’t need some money-grubbing preacher defining my relationship with God.
+ - Believe it or not, I sold my first novel, Crank, with only seventy-five pages complete. It was in verse then, and it was hard-hitting then.
+ - I feel like a goddess, jailed in her Olympus. Little wonder how the gods toyed with humans. Toyed with women, to watch them squirm, pollinate the seeds of despair; toyed with men, to satiate their Seven Deadly Sins.
+ - Happiness is a bull’s-eye, awaiting arrows of pain.
+ - Whatever has happened in someone’s past, the future is theirs to shape. The first step is to find a way out.
+ - I want to open myself, let him inside. But how do I give what has already been taken?
+ - No one teaches you how to walk away from someone who you know loves you. NO one teaches you how to say good-bye.
+ - Love is only found in books.
+ - How could I share the way my heart was breaking when my confessor didn’t believe.
+ - I’d like to cry now. Don’t know how.
+ - Think long and hard before offering your heart to someone who can only accept it part-time.
+ - God wasn’t love, couldn’t be love. Because for me, love was a corpse.
+ - Funny thing about the monster. The worse he treats you, the more you love him.
+ - Fake Is that what you are if you choose to improve the basic not perfect you?
+ - I write books for young adults because I truly connect with them on some very deep level. They are our hope, our future, and inspiring them to be the best they can be is very important to me.
+ - She’s incredible, not that she’s perfect. But you once said imperfections create character.
+ - Must be nice to have that kind of unshakable belief in a merciful higher power.
+ - Hot flush, raging bluch. Ice flash, instant crash.
+ - The Screaming flashed me back to a time when mom and dad were still together if you could call miles apart together.
+ - All I can do is lie here, brain turning somersaults. It’s nights like these when memories stir, whipping themselves into stiff peaks of pain.
+ - One kiss, I was totally hooked.
+ - I don’t need more pain in my life. Why did I invite it in? Do I have to feel pain to believe I feel anything at all?
+ - I’m in love. And I like how that feels. And I hate how that feels. Because love is an invention of fiction writers.
+ - Sad, that lives can be shattered, into so many pieces that they can never be put back together, the the relentless force of love. Irreparable.
+ - The universe is a big place. If I was lost up there, how would you ever find me.
+ - Except when it comes to Mom. She is, and always has been, the driving force in this family. And sometimes that means driving us head-on, no possible change of course, into a wall.
+ - Always before, I just said no, left it solidly there. I waver now. I want to share everything with him. Want to know what he knows, feel what he feels, share the same space he’s in.
+ - Freedom is a double-edged ideal, because true freedom comes without the protection of laws that also enslave us by defining us – female, male; Christian, Islamic; good, evil. All at the whim of a frail minority.
+ - Without Warning Sometimes you’re traveling a highway, the only road you’ve ever known, and wham! A semi comes from nowhere and rolls right over you.
+ - I nod, because I do understand. I’m just not sure how to go about divorcing myself from the evil I’ve already accepted.
+ - Even without them touching me, I feel dirty about what I do. Alex does even filthier things but says it all washes off with soap. I don’t believe that. I think it all leaves stains. Indelible stains.
+ - Evil is not intrinsic. It’s fashioned.
+ - Fear is a better friend than you, who feel nothing, beneath the weight of my pain.
+ - The more I think about it, the more I believe there has to be a subtle yet satisfying method of revenge.
+ - I want to know living love. And I don’t want to wait for it.
+ - Detailed descriptions, abstract ambitions, relevant observations, your’s and mine.
+ - Was the fun in the fall?
+ - So when he asked about getting high, I didn’t think, I agreed. We smoked some good California green. Took three tries to put me in the place he said I should be.
+ - I wonder how long it would take him to realize I’m right as sin – it’s the rest of the world that’s wrong. I’m not even sure how I qualify for admission to Aspen Springs. Does wanting to die equal losing your mind?
+ - I told her about the man, not my daddy, she said, He was only making you into a real girl. I didn’t understand. But I made myself believe her. I was a real girl now. But what was I before?
+ - Something stirred beneath my skin, some being inside I’d only suspected existed, demon or angel, I couldn’t say.
+ - Sometimes I’m not so sure just who I am either.
+ - It’s just so hard to feel good, you know?
+ - As I thought about that, I had to wonder: What will we know better about tomorrow? Who cares? Hindsight is useless.
+ - I don’t think we’ll get caught, but the very possibility is half the fun.
+ - Why are people so afraid of giving their kids necessary information that might prevent an unwanted pregnancy or disease? But they’re not worried about the violent nature of video games or movies or books...
+ - In my limited realm of experience, beginnings led to endings.
+ - When the door to love opens, The window to control closes.
+ - Red and raw like my heart, pried from your’s, the two beating, no longer together, but a thousand miles between them when only yesterday they thumped in unison.
+ - I really have to wonder who or what made Daddy become this way. Babies aren’t born cruel or filled with sick desire. Evil is not intrinsic. It’s fashioned.
+ - And how can it be he’s so in love with me? To grow up without love, and still have so much inside?
+ - I know he wants to get serious. He’s definitely not a player, not a poser, not a loser, not a user.
+ - But I so want to walk that razor’s edge, Take feeling to a whole new level.
+ - Why doesn’t love come with an owner’s manual?
+ - When all else fails, dream bigger.
+ - I want to know what it means to be in love. But in my dictionary ‘in love’ is indefinable.
+ - But hey, I’m not exactly sold on the idea that love is, in fact, real. Will it find me one day, overtake me, infiltrate my life like sunlight snakes through the cold of morning? Can love thaw me? will it ever?
+ - Too much to take in, too much to purge. Why must every memory, once sweet, dead end in such ugliness?
+ - Authors have to write for their characters, for who they are, that’s the strength of books. Don’t worry about censors. Just write the story you need to tell and the rewards will come.
+ - Love is more than blind. It’s brain-dead.
+ - I never actually plan sequels. They demand to be done.
+ - I get so nervous when im around you i start to studder.
+ - A best friend is your voice when you can’t find it.
+ - Loss is loss. Doesn’t take death to create it.
+ - Afraid to Die Loveless Because I think if you die without knowing love in this life, that’s how you’ll spend eternity. Alone. Frozen.
+ - I wanted to meet the monster. Why go down if you can go up?
+ - Love is for children and dimwads.
+ - How odd, to suddenly glimpse a facet of me I didn’t know existed. I guess it really isn’t all that unusual to surprise oneself with an ugly bit of ego.
+ - Cleansed, chlorinated to the point of chemical peel, sore muscles relieved, I felt almost human again. Tiptoe to my room, up a darkened hall, past closed doors, I wondered if I’d ever feel completely human again.
+ - Anger requires energy, something I don’t dare waste on what cannot be altered.
+ - Some secrets can’t be kept too long. No matter how hard you try to hide them, sooner or later they scurry out from your cupboards, cockroaches on the run.
+ - Would I drown saving him?
+ - Real love shouldn’t be disposable.
+ - I am different. And I don’t understand exactly how. And I don’t understand just why.
+ - And at some point I would like to talk my publisher into doing an anthology of my poetry alongside some teen readers poetry. It would be fun, and really wonderful to get their stuff out there.
+ - You gotta be crazy to open your windows, invite the demons in.
+ - It was body rush After body rush, intensity building. Touch me there.
+ - I fell for a boy from the wrong side of the tracks.
+ - I needed to see, needed to know, needed a whole lot more.
+ - The truth is, I don’t have a real clue what love is – how to find it, how to give it. Once upon a time I thought I knew.
+ - Because to tell you the truth, most of the time dying seems pretty much like my only means of escape.
+ - Think of how they must have loved when all they had was each other.
+ - Starving for a high, a place to hang out inside my own head. Starving for touch. Pain, even. A way to feel. I need to feel.
+ - The love of her life dissolved into dreams.
+ - And almost instantly, Daddy made everything seem just fine. Even when it wasn’t.
+
+231 quotes

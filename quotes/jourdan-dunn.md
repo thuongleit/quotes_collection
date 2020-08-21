@@ -1,0 +1,21 @@
+ - Happiness is making your dreams come true.
+ - I always get so excited cooking chicken wings.
+ - The unconditional love for you child, it’s truly amazing.
+ - When I go back into education, I’m going to do business studies.
+ - I love being around my family.
+ - I don’t wear heels. I’m all about flats from Chanel and wedges. I love my Gucci wedge boots.
+ - I’m a compulsive sneaker collector, mostly limited edition.
+ - My favourite types of cuisine are Asian and Caribbean, and I love cooking new recipes for my family.
+ - I am hoping to be able to lend my support to a Sickle Cell charity in the near future, as I want to try and help raise money and awareness about this disease.
+ - I mean, I suppose when I’m in London, I’m home so I’m more comfortable.
+ - I don’t like to attach myself to material things.
+ - I go to castings and see several black and Asian girls, then I get to the show and look around there’s just me and maybe one other coloured face.
+ - I like seeing how I can look in a photo.
+ - I’m really ambitious.
+ - London’s not a white city. So why should our catwalks be so white?
+ - I don’t have a favourite designer because I feel every designer offers something different and special, but I do really like Alexander Wang, Burberry, Stella McCartney and Balmain.
+ - I always have shoe trouble.
+ - Recently, I haven’t had too much time to read. But I love a good romance novel.
+ - I’m a mum. Cooking is something I have to do. It’s something I like to do.
+
+19 quotes

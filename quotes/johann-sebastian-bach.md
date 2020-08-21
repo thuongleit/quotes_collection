@@ -1,0 +1,24 @@
+ - Ceaseless work, analysis, reflection, writing much, endless self-correction, that is my secret.
+ - I play the notes as they are written, but it is God who makes the music.
+ - I worked hard. Anyone who works as hard as I did can achieve the same results.
+ - Music is an agreeable harmony for the honor of God and the permissible delights of the soul.
+ - Without my morning coffee I’m just like a dried up piece of roast goat.
+ - Old concept: Love is blind. Marriage is an eye opener. New concept: Love is not blind – it simply enables one to see things others fail to see.
+ - What I have achieved by industry and practice, anyone else with tolerable natural gift and ability can also achieve.
+ - I worked hard. Anyone who works as hard as I did can achieve the same results. The final aim and reason of all music is nothing other than the glorification of God and the refreshment of the spirit.
+ - You just have to press the right keys and the right pedals at the right time and the music plays itself.
+ - It is the special province of music to move the heart.
+ - Harmony is next to Godliness.
+ - I was made to work. If you are equally industrious, you will be equally successful.
+ - On one of those rare occasions when Bach appraised his own life’s work, he remarked: I worked hard.
+ - The most stupendous miracle in all music.
+ - God’s gift to his sorrowing creatures is a joy worthy of their destiny.
+ - I was a microscopic life-form, infinitely large, stumbled backstage of its playhouse, caught a nanosecond glance of its own reality and nearly vaporized in shock.
+ - If I decide to be an idiot, then I’ll be an idiot on my own accord.
+ - Ah! How sweet coffee tastes! Lovelier than a thousand kisses, sweeter far than muscatel wine!
+ - Bring me coffee before I turn into a goat!
+ - My present post amounts to about 700 thaler, and when there are rather more funerals than usual, the fees rise in proportion; but when a healthy wind blows, they fall accordingly...
+ - A Composition on the Piano.
+ - On land, on sea, at home abroad, I smoke my pipe and worship God.
+
+22 quotes

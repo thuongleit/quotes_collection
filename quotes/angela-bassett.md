@@ -1,0 +1,33 @@
+ - When you ask the best questions of yourself and others, you invite the best answers.
+ - Don’t settle for average. Bring your best to the moment. Then, whether it fails or succeeds, at least you know you gave all you had. We need to live the best that’s in us.
+ - Memories are meant to fade, Lenny. They’re designed that way for a reason.
+ - Maybe if you’re younger you have more energy – but that’s a big maybe. Because at this stage of life, I have more patience, understanding, wisdom, resources – and a husband. I didn’t get him until I was 39. But I got a good one.
+ - My mom was always pretty supportive. She saw me do plays and she’d always act out the parts I did. My aunt, who played a big part in my life, was a little bit more reserved, because if they don’t see you on TV every week they think you must be starving.
+ - I like the nice guys. I like when they show the stories, the human element behind it all.
+ - Acting is my calling, not my career.
+ - Theater’s my first love. I love it. It excites me. It feeds me.
+ - I can give you the King’s English and then I can take it to the street, but do both or do one and don’t do one knowing only the street. That’s going to hold you back because what comes out is going to impress people, and it will impress them negatively.
+ - I hope I just continue to be passionate about the roles and to always endeavor to bring clarity and honesty to the table and different ideas.
+ - I remembered that throughout my growing up and education and pursuing my dreams and desires, going into acting, and, of course, getting through Yale University and on and on and on, that being average, being mediocre was not an option that you should be proud of.
+ - Drink a bunch of water and get facials regularly. I take care of my skin.
+ - The first time I acted was in high school in Florida, and when I heard that applause I felt so alive and felt that electricity go up my spine.
+ - It’s more than just saying lines and turning the light on. You have to drive the story – there’s a technical aspect.
+ - I think if you’re able to do over the course of your career 20, 30, 50 very wonderful rich characters, you’d rather have that than an Oscar.
+ - I don’t really like horror shows, horror movies, or any of that. I’m really a lightweight, in terms of that.
+ - Of course you want to do all the research that you can, but it’s impossible to take a life and the boundaries of an hour and a half, so there is hope there will be understanding about that also.
+ - My mom was always pretty supportive. She saw me do plays and she’d always act out the parts I did.
+ - I really believe that what I do as an actress is my God-given talent. This is my calling, not my career.
+ - I look in the eyes and I see the heart. As long as it’s a human story. I would like to turn on my television and see African American, Hispanic, Asian as well as Caucasian. And I think there are probably more people like me.
+ - I love vegan choices, raw food choices, and I’ll eat whatever I have to in order to get into whatever shape I need to get into for any one particular role.
+ - The three things I said when I came out of school were I want to work consistently, I want to do good work and I want to be paid fairly, and that’s happened. But I didn’t become an actress for the money. I do it for other reasons.
+ - This is a career about images. It’s celluloid; they last for ever. I’m a black woman from America. My people were slaves in America, and even though we’re free on paper and in law, I’m not going to allow you to enslave me on film, in celluloid, for all to see.
+ - I’m the type of individual that I enjoy watching any different cultural lives, and I see the common humanity even though the hair textures are different or the skin tones are varied.
+ - As an actor, you’re used to putting on characters, taking them off, becoming someone else, doing your research, and working on that.
+ - I’m thinking about directing, but I know it’s a lot of work and I appreciate what directors do and I would like to be good at it. The opportunity has presented itself four to five times, and I usually said no because of the script.
+ - People confuse the person and the part.
+ - I deal in a very artistic way of what interests me and marks my passion, and I try to – whether its good or not – am in love with acting and the stage and characters and the ability to reach and to touch people, so that’s where, I guess, that’s where my heart will reside, by and large.
+ - The world has white people and black people in it. Even in Harlem.
+ - I am content that the work that I’ve done is wonderful.
+ - I guess I’m breaking out a little of what’s comfortable and easy.
+
+31 quotes

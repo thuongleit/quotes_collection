@@ -1,0 +1,93 @@
+ - I think people should elect a cat person. If you elect a dog person, you elect someone who wants to be loved. If you elect a cat person, you elect someone who wants to serve.
+ - Our relationship with nature is more one of being than having. We are nature: we do not have nature.
+ - Evil comes in many forms and seems to reinvent itself time and again. But whatever it calls itself – Nazism, Marxist-Leninism, today, terrorism – they all have one thing in common: the destruction, the end of human liberty.
+ - There is no greater fraud than a promise not kept.
+ - After all, enforced national bilingualism in this country isn’t mere policy. It has attained the status of a religion. It’s a dogma which one is supposed to accept without question.
+ - Having hit a wall, the next logical step is not to bang our heads against it.
+ - Paul Martin talks eloquently about defending national sovereignty but the reality hasn’t matched the rhetoric. When it comes to the United States, Mr. Martin says he calls them as he sees them, but when it comes to American passage through Canada, he doesn’t actually see anything.
+ - Canada is big enough to make a difference but not big enough to threaten anybody. And that is a huge asset if it’s properly used.
+ - I think because we’re such a trading nation, I think Canadians understand that first and foremost we’re part of the global economy.
+ - Canada is a Northern European welfare state in the worst sense of the term, and very proud of it.
+ - Look, I think the worst case scenario is obvious. I think first of all it doesn’t work for very long. It’s an unstable government that raises taxes and destroys the image we’re building for Canada as a strong place to invest.
+ - Carbon dioxide does not cause or contribute to smog, and the Kyoto treaty would do nothing to reduce or prevent smog.
+ - The continued increase in many crime indicators and the fact that the overall crime rate has not seen a marked decrease while the Liberals have been in power is a clear indication that the Liberal approach to combating crime, as on so many other issues, has failed.
+ - If we are willing to be still and open enough to listen, wilderness itself will teach us.
+ - The jackasses at Elections Canada are out of control.
+ - If Ottawa giveth, then Ottawa can taketh away.
+ - We want to see oil and gas regulations on a continental basis given the integrated nature of this industry, with the current conditions in the oil and gas sector, this government will not consider unilateral regulation.
+ - I believe very strongly that in this world you have to have values and you have to stand up for your interests and if you don’t do those things you’re not going to get anywhere.
+ - It’s the idea that we just have to go along, we can’t change it, things won’t change. I think that’s the sad part, the sad reality traditional parties have bred in parts of Atlantic Canada.
+ - As a religion, bilingualism is the god that failed. It has led to no fairness, produced no unity, and cost Canadian taxpayers untold millions.
+ - Buying pollution credits is folly; it doesn’t help the environment. Instead of using tax dollars to buy credits overseas, we’ll use them at home.
+ - Canada is a vast and empty country.
+ - I’ve always been clear, I support the traditional definition of marriage.
+ - You don’t defend national sovereignty with flags, cheap election rhetoric, and advertising campaigns.
+ - Faith teaches that there is a right and wrong beyond mere opinion or desire. Most importantly, it teaches us that freedom is not an end in itself, that how freedom is exercised matters as much as freedom itself.
+ - The single most important duty of the federal government is to protect and defend our national sovereignty. There are new and disturbing reports of American nuclear submarines passing though Canadian waters without obtaining the permission of, or even notifying, the Canadian government.
+ - It was probably not an appropriate term, but we support the war effort and believe we should be supporting our troops and our allies and be there with them doing everything necessary to win.
+ - Canada remains alienated from its allies, shut out of the reconstruction process to some degree, unable to influence events. There is no upside to the position Canada took.
+ - There is a Canadian culture that is in some ways unique to Canada, but I don’t think Canadian culture coincides neatly with borders.
+ - We also support the exploration of alternative ways to deliver health care. Moving toward alternatives, including those provided by the private sector, is a natural development of our health care system.
+ - I don’t know if for sure in absolute terms if Jim Flaherty is the best Finance Minster in the world, but I am sure that he is the best Finance Minster per inch in the world.
+ - It’s all part of the pattern. This is a story of scandal and corruption, investigations, refusals to take responsibility. If this government continues in office, this will continue.
+ - I think in Atlantic Canada, because of what happened in the decades following Confederation, there is a culture of defeat that we have to overcome.
+ - I believe that all taxes are bad.
+ - I was asked to speak about Canadian politics. It may not be true, but it’s legendary that if you’re like all Americans, you know almost nothing except for your own country. Which makes you probably knowledgeable about one more country than most Canadians.
+ - We have to remember we’re in a global economy. The purpose of fiscal stimulus is not simply to sustain activity in our national economies, but to help the global economy as well, and that’s why it’s so critical that measures in those packages avoid anything that smacks of protectionism.
+ - We got into a recession because the global economy went into the recession and we’re a big exporting nation.
+ - We’ll support the government on issues if it’s essential to the country but our primary responsibility is not to prop up the government, our responsibility is to provide an opposition and an alternative government for Parliament and for Canadians.
+ - If you want to be a government in a minority Parliament, you have to work with other people.
+ - It’s not sufficient in the internet age to communicate through the media; you have to be able to do it on the ground, door by door, coffee shop by coffee shop, shop floor by shop floor. You really have to do that as well.
+ - Now ‘pay equity’ has everything to do with pay and nothing to do with equity. It’s based on the vague notion of ‘equal pay for work of equal value,’ which is not the same as equal pay for the same job.
+ - We should have been there shoulder to shoulder with our allies. Our concern is the instability of our government as an ally. We are playing again with national and global security matters.
+ - It is imperative to take the initiative, to build firewalls around Alberta, to limit the extent to which an aggressive and hostile federal government can encroach upon legitimate provincial jurisdiction.
+ - I just think it would be unrealistic to suggest we’re going to eliminate every last domestic insurgent in Afghanistan. Certainly, the history of the country would indicate that’s not a very realistic objective, and I think we have to have realistic objectives.
+ - I intend to lead my party, which is the only party that has a serious policy on the No. 1 priority of the people and that is the economy.
+ - Canada appears content to become a second-tier socialistic country, boasting ever more loudly about its economy and social services to mask its second-rate status...
+ - You have to remember that west of Winnipeg the ridings the Liberals hold are dominated by people who are either recent Asian immigrants or recent migrants from eastern Canada; people who live in ghettos and are not integrated into Western Canadian society.
+ - In terms of the unemployed, of which we have over a million-and-a-half, don’t feel particularly bad for many of these people. They don’t feel bad about it themselves, as long as they’re receiving generous social assistance and unemployment insurance.
+ - Don’t indulge your theories, think of your children and listen to the experts.
+ - The world is now unipolar and contains o-nly o-ne superpower. Canada shares a continent with that superpower.
+ - The Liberals may blather about protecting cultural minorities, but the fact is that undermining the traditional definition of marriage is an assault on multiculturalism and the practices in those communities.
+ - This party will not take its position based on public opinion polls. We will not take a stand based on focus groups. We will not take a stand based on phone-in shows or householder surveys or any other vagaries of pubic opinion.
+ - But the Progressive Conservative is very definitely liberal Republican. These are people who are moderately conservative on economic matters, and in the past have been moderately liberal, even sometimes quite liberal on social policy matters.
+ - I think the way to change it is to handle issues individually when it’s essential to do so.
+ - It’s the government’s obligation to look really to the third parties to get the support to govern.
+ - Make no mistake. Canada is not a bilingual country. In fact it is less bilingual today than it has ever been.
+ - It will come as no surprise to anybody to know that I support the traditional definition of marriage as a union of one man and one woman to the exclusion of all others, as expressed in our traditional common law.
+ - Whether Canada ends up as o-ne national government or two national governments or several national governments, or some other kind of arrangement is, quite frankly, secondary in my opinion.
+ - We have in this country a federal government that increasingly is engaged in trying to determine which business, which regions, which industries will succeed, which will not through a whole range of economic development, regional development corporate subsidization programs.
+ - What the government has to do, if it wants to govern for any length of time, is it must appeal primarily to the third parties in the House of Commons to get them to support it.
+ - I do think that all economies need a sense of fiscal discipline especially over the midterm and if you are in the middle of a debt crisis you can’t borrow your way out of a debt crisis. That’s logically impossible.
+ - It’s past time the feds scrapped the Canada Health Act.
+ - I do not intend to dispute in any way the need for defence cuts and the need for government spending cuts in general. I do not share a not in my backyard approach to government spending reductions.
+ - Universality has been severely reduced: it is virtually dead as a concept in most areas of public policy.
+ - I think I have been perfectly clear in saying that I hope Canadians do elect a majority government. I think this cycle of election after election, minority after minority is beginning to put some of the country’s interests in serious jeopardy.
+ - I know economists will say well, we could run a small deficit but the problem is that once you cross that line as we see in the United States, nothing stops deficits from getting larger and larger and spiralling out of control.
+ - Restoring accountability will be one of the major priorities of our new government. Accountability is what ordinary Canadians, working Canadians, those people who pay their bills, pay their taxes, expect from their political leaders.
+ - But I’m very libertarian in the sense that I believe in small government and, as a general rule, I don’t believe in imposing values upon people.
+ - We’re not going to scrap the budget and make up some totally new platform the day after the election. So it’s certainly willingness to compromise but we’re not going back on the fundamental things we’re running on in this campaign.
+ - Even if people are suspicious of the motives I think that learning and speaking two languages can only be a good thing for people.
+ - I don’t know all the facts on Iraq, but I think we should work closely with the Americans.
+ - Canada is in budgetary deficit now only because of the recession, only because of stimulus measures, and we will come out of it. We will go back into surplus position when the economy recovers. So there is no need in Canada to raise taxes.
+ - The government can only be brought down because it alienates several parties in the House.
+ - It was the removing of a regime that was hostile, that clearly had the intention of constructing weapons systems.
+ - I don’t get into that second guessing of myself publicly.
+ - Everybody makes money when times are good. It’s when times are not so good that the groundwork is laid for the next generation.
+ - As I constantly remind Canadians, there isnt really a Canadian economy anymore. It is a global economy.
+ - I think we’re vastly over-invested in universities. Universities should be relatively small and provide excellent education and research in a number of specialized areas. I think the vast majority of young people should be going through non-university, post-secondary training.
+ - On the justification for the war, it wasn’t related to finding any particular weapon of mass destruction.
+ - I have no difficulty with the recognition of civil unions for non-traditional relationships but I believe in law we should protect the traditional definition of marriage.
+ - Canada receives the news of the death of Osama Bin Laden with sober satisfaction. Sadly, others will take his place.
+ - We’ve got to see a state where the Afghan government can handle its own day-to-day security.
+ - Those of different faiths and no faith should seek areas of common agreement based on their different perspectives.
+ - I think first and foremost everybody should understand that Canadians are strongly committed to the system of universal health insurance, to the principle that your ability to pay does not determine your access to critical medical service.
+ - Whether Canada ends up with one national government or two governments or 10 governments, the Canadian people will require less government no matter what the constitutional status or arrangement of any future country may be.
+ - Corruption is not a Canadian value!
+ - Redirect federal spending aimed at fulfilling the terms of the increasingly irrelevant Kyoto Protocol.
+ - I will strive to make this not the highest-spending country in the world, but instead the lowest taxing o-ne.
+ - First of all, I can’t forget my first responsibility – which is to be the Leader of the Opposition and that’s to provide an alternative government.
+ - When Ralph Goodale tried to tax Income Trusts they showed us where they stood, they showed us their attitude towards raiding Seniors hard earned assets and a Conservative government will never allow either of these parties to get away with that.
+ - The Leader of the Opposition’s constitutional obligation – the obligation to Parliament – it’s the reason we did the merger! – is to make sure Canadians have an alternative for government.
+
+91 quotes

@@ -1,0 +1,21 @@
+ - When you doubt yourself you create something better.
+ - Everybody should be able to listen to the kind of music they want.
+ - I tried spinning around in a chair to impress a girl.
+ - Everybody goes through rough things in their lives, us included. The best advice we can give is to never give up, and always believe in yourself because when you do that, anything is possible.
+ - To ignore death and to be afraid of it is dumb because everyone is going to face it at some point. If you look at death and the reality of it, you realize that we’re all going to die, so let’s use this time on Earth to be positive and do good things.
+ - The song is celebrating someone’s life. When someone passes, you should focus on all the good that that person has done, and try not to really think about the fact that they’re not gonna be on this earth any longer, that they had an effect on you and your lives, and that’s what you should take out.
+ - Be creative. Use your voice, your community.
+ - I hate my voice, I sound like a girl. I am in fact a male.
+ - Hey! Don’t laugh at me for that cupcake thing. I enjoy cupcakes, therefore EVERYONE should enjoy cupcakes.
+ - It’s kind of dumb; everybody should be able to listen to the kind of music they want and just because you’re a fan of a band for a longer period of time doesn’t mean you have a greater stake of claim to the band or the music.
+ - Art is doing something you really believe in.
+ - I think that the music we create together is one of a kind.
+ - As a little kid, I was very shy.
+ - I can never be on time for anything. I’m always 10 or 15 minutes late.
+ - And we hope that when they hear it, you know, it’ll make people get out of their cars and just go live life to the fullest!
+ - Rock music is becoming stale. Let’s put the fun back.
+ - I have a lot of experience with making fake helmets out of foil.
+ - I was Pac-Man. It was the worst costume ever. You would expect a big round suit, but it was just a mask and a smock with a maze on it.
+ - Unfortunately, most men would only be interested in a woman’s mind if it bounced when she walked.
+
+19 quotes

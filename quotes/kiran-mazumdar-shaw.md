@@ -1,0 +1,23 @@
+ - An entrepreneur’s life is always a continuous journey.
+ - I have never let gender get in my way.
+ - One of my objectives when I started Biocon was to make sure that I create a company for women scientists to pursue a vocation.
+ - Indian business women like Indra Nooyi, Chanda Kochhar, Naina Lal Kidwai, Shikha Sharma, Swati Piramal, Anu Agha, Swati Piramal, Sulajja Firodia Motwani and Zia Mody have put India on the global firmament.
+ - I really believe that entrepreneurship is about being able to face failure, manage failure and succeed after failing.
+ - I have never let gender get in my way. It has taken me over 30 years to get from a garage to the huge campus that we have today. And it’s been a long journey.
+ - I hate the title of being called ‘the richest woman in India,’ but it’s the recognition that this was the value that I had created as a woman entrepreneur, and that makes me very, very proud.
+ - The brewing industry is a very, very male dominated industry. It’s a male bastion.
+ - As you become more successful, the gender barrier disappears. The credibility challenges you have during your growing up years starts disappearing when you start demonstrating success.
+ - My passion for innovation and my interest in the ‘business of science’ has seen Biocon commercialize many innovative platforms and products.
+ - You have to build a culture of philanthropy. In a country like India, we need to be sensitive and caring about the poorer, more disadvantaged section of our country.
+ - As a traditionally risk-averse nation, India has rarely been at the forefront of innovation. Indian companies have mostly imitated others and became very good at it.
+ - I do serve on various boards and I’m very honest and frank, obviously. I am a very forthright person and I do, sort of, share my candid views on anything.
+ - I faced a number of challenges whilst I built Biocon. Initially, I had credibility challenges where I couldn’t get banks to fund me; I couldn’t recruit people to work for a woman boss. Even in the businesses where I had to procure raw materials, they didn’t want to deal with women.
+ - Today anything can be done – we have the techniques.
+ - I have a great team who has helped me build Biocon, I was very fortunate to be able to share my vision with a group of people who really were as excited about challenges as I was.
+ - What really got me focused on cancer was when my best friend was diagnosed with breast cancer, and even though she was a well-to-do person, I found that her treatment costs were crippling.
+ - My father was a brew master. He was the one who I was very close to, he influenced me in many many ways including my pursuing a career as a brew master.
+ - My legacy is going to be in affordable health care. I am willing to invest in developing that model and the policies around it.
+ - I want to be remembered as someone who put India on the scientific map of the world in terms of large innovation. I want to be remembered for making a difference to global healthcare. And I want to be remembered as someone who did make a difference to social economic development in India.
+ - It was a chance encounter with a biotech entrepreneur from Ireland that got me started as an entrepreneur in India, because I partnered this Irish company in setting up India’s first biotech company.
+
+21 quotes

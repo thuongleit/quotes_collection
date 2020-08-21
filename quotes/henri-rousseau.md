@@ -1,0 +1,28 @@
+ - God created man in his own image. And man, being a gentleman, returned the favor.
+ - I felt before I thought.
+ - The universe was born restless and has never since been still.
+ - Nothing makes me so happy as to observe nature and to paint what I see.
+ - If a king tries to start a war, a mother should go to him and forbid it.
+ - It is often said that my heart is too open for my own good.
+ - The first man to fence in a piece of land, saying “this is mine” and who found people simple enough to believe him, was the real founder of civil society.
+ - Hatred as well as love, renders its votaries credulous.
+ - It is not I that am drawing, it is this thing at the end of my hand.
+ - Cities are the sinks of the human race.
+ - Little privations are easily endured when the heart is better treated than the body.
+ - I have always believed that good is only beauty put into practice.
+ - The landscapist lives in silence.
+ - When I go out into the countryside and see the sun and the green and everything flowering, I say to myself “Yes indeed, all that belongs to me!”
+ - The passage from the state of nature to the civil state produces a very remarkable change in man, by substituting justice for instinct in his conduct.
+ - If it is reason that forms man then it is the emotions that guide her.
+ - The more humanity owes the poor man, the more society denies him.
+ - Nature’s instructions are always slow; those of men are generally premature.
+ - Politeness requires this thing; decorum that; ceremony has its forms, and fashion its laws, and these must always follow, never the promptings of our own nature.
+ - The principal problem I had during the five years I ran the Caisse – and I bet you that it will be the same problem for my successor – is the retention, recruitment and training of competent personnel.
+ - The severity of penalties is only a vain resource, invented by little minds in order to substitute terror for that respect which they have no means of obtaining.
+ - The happiest is he who suffers the least pain; the most miserable, he who enjoys the least pleasure.
+ - It is not the criminal things which are hardest to confess, but the ridiculous and shameful.
+ - From the first moment of life, men ought to begin learning to deserve to live.
+ - The interest and the feelings are not due to colors; the lines of a painting that move us move us even more in a print.
+ - I cannot now change my style, which I acquired, as you can imagine, by dint of labour.
+
+26 quotes

@@ -1,0 +1,22 @@
+ - The network is the computer.
+ - Technology has the shelf life of a banana.
+ - Yes, we have a dress code. You have to dress.
+ - The best decision is the right decision. The next best decision is the wrong decision. The worst decision is no decision.
+ - You already have zero privacy – get over it.
+ - If everyone thinks you’re doing the right thing, then everyone would be doing it. Have a controversial strategy.
+ - In a world without fences, who needs Gates?
+ - Get the best people and train them well.
+ - Computers shouldn’t be unusable. You don’t need to know how to work a telephone switch to make a phone call, or how to use the Hoover Dam to take a shower, or how to work a nuclear-power plant to turn on the lights.
+ - The utility model of computing – computing resources delivered over the network in much the same way that electricity or telephone service reaches our homes and offices today – makes more sense than ever.
+ - If I could embed a locator chip in my child right now, I know I would do that. Some people call that Big Brother; I call it being a father.
+ - Only a monopolist could study a business and ruin it by giving away products...
+ - Who cares who’s captain after the wings have fallen off.
+ - Without choice, you have no innovation. Without innovation, you have nothing.
+ - Every time you turn on your new car, you’re turning on 20 microprocessors. Every time you use an ATM, you’re using a computer. Every time I use a settop box or game machine, I’m using a computer. The only computer you don’t know how to work is your Microsoft computer, right?
+ - We have an opportunity to improve productivity and cut costs while growing our way to a better and a more comfortable operating environment. I don’t think anyone feels comfortable about bumping around where we are today.
+ - I can’t figure the stock market out. I think it’s wacky. I have done well with a long-term strategy and will continue being a long-term investor.
+ - We think computing ought to be like a telephone or a water tap or a light switch.
+ - The only thing I’d rather own than Windows is English. Then I’d be able to charge you an upgrade fee every time I add new letters like N and T.
+ - When Steve Ballmer calls me wacko, I consider that a compliment.
+
+20 quotes

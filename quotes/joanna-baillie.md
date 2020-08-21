@@ -1,0 +1,37 @@
+ - The bliss even of a moment still is bliss.
+ - But woman’s grief is like a summer storm, Short as it violent is.
+ - O lovely Sisters! is it true That they are all inspired by you, And write by inward magic charm’d, And high enthusiasm warm’d?
+ - A good man’s prayers will from the deepest dungeon climb heaven’s height, and bring a blessing down.
+ - This will be triumph! This will be happiness! Yea, that very thing, happiness, which I have been pursuing all my life, and have never yet overtaken.
+ - Words of affection, howsoe’er expressed, The latest spoken still are deem’d the best.
+ - The tyrant now Trusts not to men: nightly within his chamber The watch-dog guards his couch, the only friend He now dare trust.
+ - I believe this earth on which we stand is but the vestibule to glorious mansions through which a moving crowd forever press.
+ - A willing heart adds feather to the heel.
+ - I can bear scorpion’s stings, tread fields of fire, in frozen gulfs of cold eternal lie, be tossed aloft through tracts of endless void, but cannot live in shame.
+ - Me care for te laws when te laws care for me.
+ - A woman is seldom roused to great and courageous exertion but when something most dear to her is in immediate danger.
+ - Time never bears such moments on his wing as when he flies too swiftly to be marked.
+ - Pampered vanity is a better thing perhaps than starved pride.
+ - Pride is a fault that great men blush not to own: it is the ennobled offspring of self-love; though, it must be confessed, grave and pompous vanity, Iike a fat plebeian in a rove of office, does very often assume its name.
+ - I wish I were with some of the wild people that run in the woods, and know nothing about accomplishments!
+ - To make the cunning artless, tame the rude, subdue the haughty, shake the undaunted soul; yea, put a bridle in the lion’s mouth, and lead him forth as a domestic cur, – these are the triumphs of all-powerful beauty.
+ - Think’st thou there are no serpents in the world But those who slide along the grassy sod, And sting the luckless foot that presses them? There are who in the path of social life Do bask their spotted skins in Fortune’s sun, And sting the soul.
+ - Oh swiftly glides the bonnie boat, Just parted from the shore, And to the fisher’s chorus-note Soft moves the dipping oar.
+ - Still on it creeps, Each little moment at another’s heels, Till hours, days, years, and ages are made up Of such small parts as these, and men look back Worn and bewilder’d, wondering how it is.
+ - Heaven often smites in mercy, even when the blow is severest.
+ - The mind doth shape itself to its own wants, and can bear all things.
+ - Busy work brings after ease; Ease brings sport and sport brings rest; For young and old, of all degrees, The mingled lot is best.
+ - Good-morrow to thy sable beak, And glossy plumage, dark and sleek, Thy crimson moon and azure eye.
+ - I have seen the day, when, if a man made himself ridiculous, the world would laugh at him. But now, everything that is mean, disgusting, and absurd, pleases them but so much the better!
+ - The plainest case in many words entangling.
+ - Half-uttered praise is to the curious mind, as to the eye half-veiled beauty is, more precious than the whole.
+ - Ah! happy is the man whose early lot Hath made him master of a furnish’d cot; Who trains the vine that round his window grows, And after setting sun his garden hoes; Whose wattled pails his own enclosure shield, Who toils not daily in another’s field.
+ - O mysterious Night! thou art not silent; many tongues halt thou.
+ - The strength of man sinks in the hour of trial; but there doth live a Power that to the battle girdeth the weak.
+ - If my heart were not light, I would die.
+ - It ever is the marked propensity of restless and aspiring minds to look into the stretch of dark futurity.
+ - He that will not give some portion of his ease, his blood, his wealth, for other’s good, is a poor, frozen churl.
+ - Men’s actions to futurity appear but as the events to which they are conjoined do give them consequence.
+ - My day is closed! the gloom of night is come! a hopeless darkness settles over my fate.
+
+35 quotes

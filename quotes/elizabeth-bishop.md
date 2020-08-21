@@ -1,0 +1,29 @@
+ - The art of losing isn’t hard to master.
+ - Oh, must we dream our dreams and have them, too?
+ - Hoping to live days of greater happiness, I forget that days of less happiness are passing by.
+ - The art of losing isn’t hard to master; so many things seem filled with the intent to be lost that their loss is no disaster.
+ - It is like what we imagine knowledge to be: dark, salt, clear, moving, utterly free.
+ - Close, close all night the lovers keep. They turn together in their sleep, Close as two pages in a book that read each other in the dark. Each knows all the other knows, learned by heart from head to toes.
+ - Lose something every day. Accept the fluster of lost door keys, the hour badly spent. The art of losing isn’t hard to master.
+ - Democracy in the contemporary world demands, among other things, an educated and informed people.
+ - Someone loves us all.
+ - The pigs stuck out their little feet and snored.
+ - If after I read a poem the world looks like that poem for 24 hours or so I’m sure it’s a good one – and the same goes for paintings.
+ - What one seems to want in art, in experiencing it, is the same thing that is necessary for its creation, a self-forgetful, perfectly useless concentration.
+ - I was made at right angles to the world and I see it so. I can only see it so.
+ - Heaven is not like flying or swimming, but has something to do with blackness and a strong glare.
+ - Think of the long trip home. Should we have stayed home and thought of here? Where should we be today?
+ - The armored cars of dreams, contrived to let us do so many a dangerous thing.
+ - I HATED the Salinger story. It took me days to go through it, gingerly, a page at a time, and blushing with embarrassment for him every ridiculous sentence of the way. How can they let him do it?
+ - There are some people whom we envy not because they are rich or handsome or successful, although they may be all or any of these, but because everything they are or do seems to be all of a piece, so that even if they wanted to they could not be or do otherwise.
+ - What childishness is it that while there’s breath of life in our bodies, we are determined to rush to see the sun the other way around?
+ - Being a poet is one of the unhealthier jobs – no regular hours, so many temptations!
+ - The whole shadow of Man is only as big as his hat.
+ - All the untidyactivity continues, awful but cheerful.
+ - Time to plant tears, says the almanac. The grandmother sings to the marvelous stove and the child draws another inscrutable house.
+ - Ports are necessities, like postage stamps or soap, but they seldom seem to care what impressions they make.
+ - And as to experience-well, think how little some good poets have had, or how much some bad ones have.
+ - Something needn’t be large to be good.
+ - I’ve never written the things I’d like to write that I’ve admired all my life. Maybe one never does.
+
+27 quotes

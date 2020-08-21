@@ -1,0 +1,109 @@
+ - Social media is where losers go to feel important.
+ - I like to help poor people who got no chance. If rich people don’t, who will? Not other poor people, that’s for sure.
+ - Sometimes that light at the end of the tunnel is a train.
+ - My message is simple: take control of your life.
+ - I May Be Wrong but I Doubt It.
+ - I don’t care what people think. people are stupid.
+ - If I weren’t earning $3 million a year to dunk a basketball, most people on the street would run in the other direction if they saw me coming.
+ - I don’t know anything about Angola, but Angola’s in trouble.
+ - The main thing to do is relax and let your talent do the work.
+ - There’s no medical term for what I’ve got.
+ - I’m not a role model.
+ - Preseason is just a way to screw fans out of money.
+ - I read that heavy drinking is bad for your health. I decided I better stop reading.
+ - Curling is not a sport. I called my grandmother and told her she could win a gold medal because they have dusting in the Olympics now.
+ - I can be bought. If they paid me enough, I’d work for the Klan.
+ - Poor people have been voting for Democrats for the last 50 years and they’re still poor.
+ - The older I get, the faster I was.
+ - Only poor people go to jail.
+ - The only difference between a good shot and a bad shot is if it goes in or not.
+ - He’s got to bring something stronger than that. That’s like bringing milk to a bar, it’s not strong enough.
+ - Well, when I went off to college, the guys I used to hang with were pumping gas and voting Democrat. Today they’re still pumping gas and voting Democrat. Guess the Democrats didn’t do much for them.
+ - It’s the kind of game that makes you go home and beat your wife.
+ - My wife’s married. I’m not.
+ - They run like deer, jump like deer and think like deer.
+ - If Michael Jordan was a damn plumber, he couldn’t get a date. Any guy got $500 million looks good.
+ - I was asked for years about being a Republican, probably because most black people are Democrats. My mother heard it once and called me and said ‘Charles, Republicans are for the rich people.’ And I said, ‘Mom, I’m rich.’
+ - If all babies are so cute, how the hell do we have so many ugly people in the world?
+ - People always say turn the other cheek. If you turn the other cheek, I’m gonna hit you in the other cheek too.
+ - On his homesickness during the Barcelona Olympics -I miss America. I miss crime and murder. I miss Philadelphia. There hasn’t been a brutal stabbing or anything here the last 24 hours. I’ve missed it.
+ - What does politically correct mean? If you’re fat, don’t ask me if you’re fat, because I’m gonna tell you the truth. You’re fat.
+ - The most underrated player in NBA history is Dominique Wilkins. Right behind him is Gary Payton. He never has gotten the respect he deserves. If he doesn’t spend the rest of his days in Seattle, I hope he goes someplace where he has a chance to win a title.
+ - This is why I hate white people. You guys try to turn everything into a racial issue.
+ - Yeah, I regret we weren’t on a higher floor.
+ - There’s only 5 real jobs in the world. Teacher, fireman, policeman, doctor and somebody who is in the armed service. If you don’t have one of those 5 jobs, you shouldn’t take your life that serious.
+ - I don’t create controversies. They’re there long before I open my mouth. I just bring them to your attention.
+ - People always say he can run and he can jump. So can a deer and you wouldn’t put a deer in the game.
+ - You got to believe in yourself. Hell, I believe I’m the best-looking guy in the world and I might be right.
+ - I don’t hate anyone, at least not for more than 48 minutes, barring overtime.
+ - I’m a mad dog whose only concern is winning.
+ - I don’t have time to put up with the politics. Who’s a Democrat? Who’s a Republican? Who’s liberal? Who’s conservative? Man, can my daughter just go to a school and not get killed? Can these people get a good job? That’s what I’m concerned about.
+ - I’m afraid of the skeletons in my closet. I’ve got a whole cemetery full of them.
+ - I think the biggest problem is parents are so concerned with being friends with their kids. You’re not their friend. You’re their parent.
+ - I’m still going to Disney World.
+ - Thank God for Jerry Springer’s show. I thought only black folks were that screwed up until I watched Jerry Springer.
+ - If you go out with a girl and they say she has a great personality, she’s ugly. If they tell you a guy works hard, he can’t play a lick. Same thing.
+ - I don’t believe professional athletes should be role models. I believe parents should be role models...
+ - It’s kinda great to see the Celtics doin well again cuz that was so much fun in my day to go to the Boston Garden and they spit at you and throw things at you and talk about your mom. It sounds like dinner at Kenny Smith’s house.
+ - Every time I hear the word conservative it makes me sick to my stomach...
+ - We don’t need refs, but I guess white guys need something to do.
+ - I’m so sick and tired of people in the media telling us that because of the war, sports aren’t important. Fans need sports. We’d have only crime and war to watch on TV if not for sports.
+ - When you’re black, you have to deal with so much crap in your life from other black people. It’s a dirty, dark secret; I’m glad it’s coming out.
+ - Poor white people and poor black people just don’t know how much they have in common. Rich people don’t give a damn about either group.
+ - I didnt wear the pink panties because I didnt want America going crazy with excitement.
+ - I want to be a politician. I think I understand how the system works, I think a lot of politicians are corrupt, and it’s about time we put some people in there who are going to look out for the majority of the people instead of the rich people.
+ - I came to the realization a couple months ago that I am fat. If you get tired from walking – and that’s all that golf is – then you are officially fat.
+ - Say, Cuttino. What are those Godawful clothes you’re wearing? Man, this ain’t Rhode Island anymore. You’re in the NBA. The girls have teeth here.
+ - When I speak to kids I tell them, ‘Hey, you think your parents are a pain in the ass now, but they’re going to get smarter as you get older.’
+ - Half Man, Half Sit-Out-The-Season.
+ - Kids are great. That’s one of the best things about our business, all the kids you get to meet. It’s a shame they have to grow up to be regular people and come to the games and call you names.
+ - I just wish all these young black kids would realize how significant it is to stop acting a fool out there, killing each other, not getting their education. You know, people have died to put us in a situation to be successful.
+ - You know what’s amazing to me? America. There have been so many people who have stepped up, and I’m just proud to be an American. Yeah, there were some mistakes made, but I don’t play the blame game. Let’s move forward and rebuild New Orleans.
+ - Hakeem couldn’t kick your ass cause you were too close, kissing his!
+ - They don’t let many black people in the governor’s mansion in Alabama, unless they’re cleaning.
+ - I always laugh when people ask me about rebounding techniques. I’ve got a technique. It’s called just go get the damn ball.
+ - You can talk without saying a thing. I don’t ever want to be that type of person.
+ - I don’t worry about playing basketball; that comes natural. I just want to have fun. David Robinson, Patrick Ewing, Michael Jordanthis is like spring break in the ghetto.
+ - People say I eat a lot. I really don’t. More or less I just eat all the time.
+ - Those Grizzlies are more like pandas.
+ - Yeah Ernie, its called defense, I mean I wouldn’t know anything about it personally but I’ve heard about it through the grapevine.
+ - All I know is, as long as I led the Southeastern Conference in scoring, my grades would be fine.
+ - Anytime a fan touches you, you have the right to beat the hell out of him.
+ - If a guy drew a charge on me, I tried to kick him in the balls.
+ - Everybody in the world has an ego. The only difference between us is we have a reason to have an ego.
+ - If ifs were gifts, every day would be Christmas.
+ - Man, everything gets blamed on the Clintons, every single thing in this world. I think Bill Clinton shot JFK, too.
+ - I have nothing against old people; I want to be one myself one day.
+ - You can’t start a diet in the middle of the week, that’s just stupid.
+ - I’m not paid to be a role model. I’m paid to wreak havoc on the basketball court.
+ - White folks are not going to come to see a bunch of guys with tattoos, with cornrows. I’m sorry, but anyone who thinks different, they’re stupid.
+ - These are my new shoes. They’re good shoes. They won’t make you rich like me, they won’t make you rebound like me, they definitely won’t make you handsome like me. They’ll only make you have shoes like me. That’s it.
+ - Well, all I can say is that people know I’m not saying anything out of malice.
+ - There’s nobody you’d rather beat than your good friend.
+ - I remember sitting down with the Rockets and saying, ‘Yeah. I’m going to retire.’ They said, ‘Well, we’ll give you $9 million.’ And I said, ‘You got a pen on you?’
+ - Being black or white isn’t an accomplishment. What you do with your life – or what you accomplish with your life – dictates what you should be proud of.
+ - Most sportswriters don’t know their ass from a hole in the ground.
+ - We’re not all supposed to think alike.
+ - You know what I always say about basketball whenever anybody tried to tell me the Knicks are gonna be good: They’re old. Old people don’t get healthy. They die.
+ - I don’t listen to the refs. I don’t listen to anyone who makes less money than I do.
+ - America is divided by economics, and we as Americans, we’ve got to do a better job of supporting poor people.
+ - When you read the book you see that these guys aren’t holding any punches. They’re straightforward. They’re honest. They’re giving you their honest opinion.
+ - I don’t how anybody taller than 6-4 can sit in those seats. And the airline executives don’t give a damn ’cause they never walk back there in the first place. I don’t fly first class because I have a lot of money. I do it because I need the room.
+ - If you can’t slam with the best, then jam with the rest.
+ - Hey Steve, no offense, but if you couldn’t shoot, there would be no reason for you to be alive.
+ - Sometimes I have to criticize guys to try to make it fun, I mean, I’m out there trying to bust other people. I want all these guys to do well, but when they do something stupid or don’t play well, I try not to kill ’em, I try to make ’em laugh a little bit.
+ - It ain’t like we’re curing cancer or anything, we’re watching basketball.
+ - I got pulled over when I was behind the wheel of a Porsche in Philly once for what we call DWB – Driving While Black.
+ - Every time I think about changing a diaper, I run a little bit harder and a little bit faster to make sure I can afford a nanny until my daughter’s old enough to take care of that herself.
+ - I was a Republican until they lost their minds.
+ - Christian is going to be the strongest man in the NBA next year, because all he’s been doing all summer is carrying around the luggage for 11 guys.
+ - If you are an ugly woman, you have no chance of getting a TV job.
+ - Look, I’m in the top 20 of players who ever lived.
+ - I know a lot of people did a lot of heavy lifting to make me successful and I do everything in my power not to screw it up.
+ - I’m never embarassed.
+ - I don’t mess with that cat. I’m pretty sure he carries a blade under his jersey.
+ - He’ll never be Jordan. This clearly takes him out of the conversation. He can win as much as he wants to.
+ - Every team in the Western Conference has flaws.
+ - When you get arrested it’s in big letters. When you get acquitted it’s in small letters.
+
+107 quotes

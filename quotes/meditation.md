@@ -1,0 +1,42 @@
+ - Your mind is a powerful thing. When you filter it with positive thoughts, your life will start to change. ~~Buddha
+ - A quiet mind is more important than a positive mind. ~~Deepak Chopra
+ - One conscious breathe in and out is a meditation. ~~Eckhart Tolle
+ - Life is available only in the present moment. ~~Nhat Hanh
+ - Meditation is not a withdrawal from life. Meditation is a process of understanding oneself. ~~Jiddu Krishnamurti
+ - In the end, only three things matter: how much you loved, how gently you lived, and how gracefully you let go of things not meant for you. ~~Buddha
+ - Prayer is you speaking to God. Meditation is allowing the spirit to speak to you. ~~Deepak Chopra
+ - By the practice of meditation, you will find that you are carrying within your heart a portable paradise. ~~Paramahansa Yogananda
+ - Create a gap of no-mind in which you are highly alert and aware but not thinking. This is the essence of meditation. ~~Eckhart Tolle
+ - Truth is the offspring of silence and meditation. ~~Isaac Newton
+ - Meditation is the action of silence. ~~Jiddu Krishnamurti
+ - Mind is there, in front of you. Don’t log in. ~~Mooji
+ - My workout is my meditation. ~~Kyle MacLachlan
+ - Come into the silence of solitude, and the vibration there will talk to you through the voice of God. ~~Paramahansa Yogananda
+ - The more we witness our emotional reactions and understand how they work, the easier it is to refrain. ~~Pema Chödrön
+ - The beauty of meditation is that you never know where you are, where you are going, what the end is. ~~Jiddu Krishnamurti
+ - Meditation is a vital way to purify and quiet the mind, thus rejuvenating the body. ~~Deepak Chopra
+ - Whatever anyone does or says, I must be emerald and keep my colour. ~~Marcus Aurelius
+ - Wear gratitude like a cloak and it will feed every corner of your life. ~~Rumi
+ - Meditation is like giving a hug to our ourselves, getting in touch whith that awesome reality in us. While meditating we feel a deep sense of intimacy with God, a love that is inexplicable. ~~Paramahansa Yogananda
+ - If you meditate regularly, even when you don’t feel like it, you will make great gains, for it will allow you to see how your thoughts impose limits on you. Your resistances to meditation are your mental prisons in miniature. ~~Ram Dass
+ - He who is persistent will realize God. So try your best to make meditation a regular experience in your life. ~~Paramahansa Yogananda
+ - The most fundamental aggression to ourselves, the most fundamental harm we can do to ourselves, is to remain ignorant by not having the courage and the respect to look at ourselves honestly and gently. ~~Pema Chödrön
+ - In mindfulness one is not only restful and happy, but alert and awake. Meditation is not evasion; it is a serene encounter with reality. ~~Nhat Hanh
+ - To commune daily with God in deep meditation, and to carry His love and guidance with you into all your dutiful activities, is the way that leads to permanent peace and happiness. ~~Paramahansa Yogananda
+ - To meditate with mindful breathing is to bring body and mind back to the present moment so that you do not miss your appointment with life. ~~Nhat Hanh
+ - That deep silence has a melody of its own, a sweetness unknown amid the harsh discords of the world’s sounds. ~~Paul Brunton
+ - Through silence, through meditation, and through non-judgment, you will access the first law, the Law of Pure Potentiality. ~~Deepak Chopra
+ - I hate having to do small talk. I’d rather talk about deep subjects. I’d rather talk about meditation, or the world, or the trees or animals, than small, inane, you know, banter. ~~Ellen DeGeneres
+ - Meditation is waiting on God. ~~Mahatma Gandhi
+ - Meditation is the discovery that the point of life is always arrived at in the immediate moment. ~~Alan Watts
+ - If you can’t meditate in a boiler room, you can’t meditate. ~~Alan Watts
+ - Only a life of prayer and meditation will render a vessel ready for the Master’s use. ~~George Müller
+ - Daydreaming with pencil and paper is a respectable form of meditation. ~~John Howe
+ - Maintain your physical, emotional, and spiritual harmony with the universe by meditating every day. Inhale the precious breath of life. It is your connection to your Higher power. ~~Louise Hay
+ - Next to meditation is music, soulful music, the music that stirs and elevates our aspiring consciousness. ~~Sri Chinmoy
+ - Every heart has a divine intelligence and natural guidance system. With every prayer, every meditation and every thought of love, we tune in to ours. ~~Marianne Williamson
+ - You are a little soul carrying about a corpse, as Epictetus used to say. ~~Marcus Aurelius
+ - Movement for me is meditation. ~~Conor McGregor
+ - The practice of Transcendental Meditation creates a natural situation in the mind so that the mind entertains right thoughts, useful thoughts, thoughts that are cherished by nature and whose fulfillment is worked out by all the laws of nature. ~~Maharishi Mahesh Yogi
+
+40 quotes

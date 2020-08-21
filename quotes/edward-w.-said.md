@@ -1,0 +1,37 @@
+ - History is written by those who win and those who dominate.
+ - Every empire, however, tells itself and the world that it is unlike all other empires, that its mission is not to plunder and control but to educate and liberate.
+ - We can not fight for our rights and our history as well as future until we are armed with weapons of criticism and dedicated consciousness.
+ - Humanism is the only – I would go so far as saying the final- resistance we have against the inhuman practices and injustices that disfigure human history.
+ - Look at situations as contingent, not as inevitable, look at them as the result of a series of historical choices made by men and women, as facts of society made by human beings, and not as natural or god-given, therefore unchangeable, permanent, irreversible.
+ - I don’t remember when exactly I read my first comic book, but I do remember exactly how liberated and subversive I felt as a result.
+ - I am for peace. And I am for a negotiated peace. But this accord is not a just peace.
+ - Since the time of Homer every European, in what he could say about the Orient, was a racist, an imperialist, and almost totally ethnocentric.
+ - The definition of terrorism has to be more precise, so that we are able to discriminate between, for example, what it is that the Palestinians are doing to fight the Israeli military occupation and terrorism of the sort that resulted in the World Trade Center bombing.
+ - Since when does a militarily occupied people have the responsibility for a peace movement?
+ - Ideas, cultures, and histories cannot seriously be understood or studied without their force, or more precisely their configurations of power, also being studied.
+ - No cause, no God, no abstract idea can justify the mass slaughter of innocents.
+ - Beginning is not only a kind of action. It is also a frame of mind, a kind of work, an attitude, a consciousness.
+ - There’s been essentially the same analysis over and over again and very little allowance made for different views and interpretations and reflections.
+ - You cannot continue to victimize someone else just because you yourself were a victim once – there has to be a limit.
+ - The United States that has been involved first in the Gulf War and then in the tremendously damaging sanctions against Iraqi civilians. The United States that is the supporter of Israel against the Palestinians.
+ - Appeals to the past are among the commonest of strategies in interpretations of the present.
+ - Much as I have no wish to hurt anyone’s feelings, my first obligation has not been to be nice but to be true to my perhaps peculiar memories, experiences and feelings.
+ - It was thought that to rally Islam against godless communism would be doing the Soviet Union a very bad turn indeed, and that, in fact, transpired.
+ - Just as none of us is outside or beyond geography, none of us is completely free from the struggle over geography. That struggle is complex and interesting because it is not only about soldiers and cannons but also about ideas, about forms, about images and imaginings.
+ - I have been unable to live an uncommitted or suspended life. I have not hesitated to declare my affiliation with an extremely unpopular cause.
+ - Theory is taught so as to make the student believe that he or she can become a Marxist, a feminist, an Afrocentrist, or a deconstructionist with about the same effort and commitment required in choosing items from a menu.
+ - What we must eliminate are systems of representation that carry with them the authority which has become repressive because it doesn’t permit or make room for interventions on the part of those represented.
+ - To say that we’re going to end countries or eradicate terrorism, and that it’s a long war over many years, with many different instruments, suggests a much more complex and drawn-out conflict for which, I think, most Americans aren’t prepared.
+ - The history of other cultures is non-existent until it erupts in confrontation with the United States.
+ - It’s very hard, for example, to justify the thirty-four-year occupation of the West Bank and Gaza. It’s very hard to justify 140 Israeli settlements and roughly 400,000 settlers.
+ - The just response to this terrible event should be to go immediately to the world community, the United Nations. The rule of international law should be marshaled, but it’s probably too late because the United States has never done that; it’s always gone it alone.
+ - But I do not know whether the photograph can, or does, say things as they really are. Something has been lost. But the representation is all we have.
+ - Until the June 1967 war I was completely caught up in the life of a young professor of English. Beginning in 1968, I started to think, write, and travel as someone who felt himself to be directly involved in the renaissance of Palestinian life and politics.
+ - Ironically, many of these people, including Osama bin Laden and the mujahedeen, were, in fact, nourished by the United States in the early eighties in its efforts to drive the Soviets out of Afghanistan.
+ - In 1985, a group of mujahedeen came to Washington and was greeted by President Reagan, who called them “freedom fighters.” These people, by the way, don’t represent Islam in any formal sense. They’re not imams or sheiks. They are self-appointed warriors for Islam.
+ - My argument is that history is made by men and women, just as it can also be unmade and rewritten, always with various silence and elisions, always with shapes imposed and disfigurements tolerated.
+ - It is quite common to hear high officials in Washington and elsewhere speak of changing the map of the Middle East, as if ancient societies and myriad peoples can be shaken up like so many peanuts in a jar.
+ - The other view is of the official United States, the United States of armies and interventions. The United States that in 1953 overthrew the nationalist government of Mossadegh in Iran and brought back the shah.
+ - Uninformed and yet open to appeals for justice as they are, Americans are capable of reacting as they did to the ANC campaign against apartheid, which finally changed the balance of forces inside South Africa.
+
+35 quotes

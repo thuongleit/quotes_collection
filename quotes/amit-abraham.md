@@ -1,0 +1,50 @@
+ - Love is in the air but the air is highly polluted.
+ - God helps those who help others.
+ - The art of appreciation begins with self appreciation.
+ - We have progressed from the stone age and moved on to the age of stone hearted people.
+ - People who do not value you are worthless and those who do are priceless.
+ - Desire is the key to motivation. It is the key to develop a healthy personality and a positive attitude towards oneself and others.
+ - Common sense has become an uncommon virtue.
+ - It’s up to you to make your own destiny and not up to destiny to make you.
+ - There is no season and no reason for love. Love is not seasonal its perennial.
+ - Its a mathematical fact that two negatives make a positive so even under adverse circumstances think positively.
+ - Don’t fall in love rise with it.
+ - The biggest fool is one who minds the business of others rather than minding his very own.
+ - If today you don’t have time for those who gave all their time for you yesterday then tomorrow they will not have time to give to you who has no time today.
+ - Hear no evil, speak no evil, see no evil but then also do no evil.
+ - The two great movers of the human mind are the desire of good and the fear of evil.
+ - The sadest part of love life is when you cannot live with and without the one you love.
+ - Dates are important in history because what is done on those dates is of importance.
+ - The perspective is more important than the perception.
+ - The heart has its reasons but the mind makes the excuses.
+ - It’s really very difficult to understand a woman – actually it’s not she but he who is confused.
+ - Think and then think what you have thought. Is it really what you had thought. Think again.
+ - Love need not speak volumes. It need not demand proof. It never has a happy ending – simply because it doesn’t end as long as love is pure and true.
+ - Long distance relationships through mobile communication generally becomes poor because of the weak signals and ends up due to jammed networks.
+ - I wonder how one can hate to love and love to hate the same person over a period of time in a relationship.
+ - Understanding comes with compassion and compassion comes with truthfulness.
+ - Procrastination is also a subtle act of corruption – it corrupts valuable time.
+ - Rumors spread faster than news and news spreads faster than the happenings.
+ - Don’t try to tell me what I am because I know what I am not.
+ - Alcohol does not solve problems but becomes a problem in itself.
+ - Happy are those who evolve from within.
+ - Man is what he believes – believe in yourself.
+ - Keep in touch without touching.
+ - I don’t believe in ghosts but they blindly believe in me.
+ - If marriages are said to be made in heaven then why search for grooms in hell.
+ - The last love is the most lasting of loves.
+ - Some days some times are remembered by me, in life’s all moments they are cherished by me.
+ - People expect that they should be understood by you but seldom put in an effort to understand you.
+ - Love is a disease – ultimately you get sick of each other.
+ - It’s very difficult to stay in one’s heart as it keeps beating.
+ - A procrastinators willpower lies in the fact that he keeps work pending because he strongly feels he wants to do the same – keep it pending.
+ - I know that you know but you do not know that you really do not know – know yourself. Look within and get to know yourself better.
+ - Don’t be bothered by troubles because they are generally guests we ourselves invite – they will stay for some time and then leave.
+ - I don’t have a mind to mindI only have a heartthat loves and cares.
+ - Love is an emotion which does not die it disappears.
+ - One does not have the right to criticize until he can do the same work without being criticized.
+ - We generally look around for what is not there fretting over it and thus letting go of what is there.
+ - All’s well that carries on well.
+ - All appreciations and praises are worthless unless the one you love appreciates.
+
+48 quotes

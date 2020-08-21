@@ -1,0 +1,74 @@
+ - Remember, life is just a game and no one gets out alive.
+ - Money can’t buy you happiness, but it can buy you a yacht big enough to pull up right alongside it.
+ - The perfect woman has an IQ of 150, wants to make love until 4 in the morning, then turns into a pizza!
+ - I can teach you to jump up in five seconds-it takes years to learn how to land properly.
+ - People ask me how far I’ve come. And I tell them twelve feet: from the audience to the stage.
+ - The only people who put iced tea in Jack Daniel’s bottles is the Clash baby!!
+ - If you want to split a bottle with a friend, then Sammy Hagar is your guy. If you want to split your friend with a bottle than give me a call.
+ - You’ve got to roll with the punches to get to what’s real.
+ - It’s always irritated me that people say, ‘Where’s the action? Oh wow, there’s no action here; let’s go somewhere else.’ These people will never find the action.
+ - I’m not conceited. Conceit is a fault and I have no faults.
+ - Nobody’s going to get a hot dog at my concert!
+ - Music is like girlfriends to me; I’m continually astonished by the choices other people make.
+ - I’ve always been very self-motivated.
+ - If you put a Van Halen album in your record collection, it will melt all the rest of your records.
+ - I would just like to say that after all these years of heavy drinking, bright lights and late nights, I still don’t need glasses. I drink right out of the bottle.
+ - When you can spell subpoena without thinking about it, that’s when you know you’ve made it.
+ - An ounce of image is worth a pound of performance.
+ - It’s not who wants to sleep with you; It’s who wants to sleep with you again.
+ - The light you see at the end of the tunnel is the front of an oncoming train.
+ - Audience participation should extend from on-stage to backstage to under the stage.
+ - The problem with self-improvement is knowing when to quit.
+ - Van Halen can keep providing the rain and I’ll keep providing the parade.
+ - I think the two most difficult things to deal with in life are failure and success.
+ - If you subtracted all of the great artists who never drank, who never went to excess, you wouldn’t have any more art left. What kind of poem are you gonna get out of a glass of iced tea?
+ - We’ve all got out self-destructive bad habits, the trick is to find four or five you personally like the best and just do those all the time.
+ - I always wanted to be an outrage to public decency and a threat to women. And this is one of the few occupations where you’re not only allowed that, but you’re encouraged.
+ - They make this drink in Brazil Called cachaca. It’s sugar can alcholho. Costs 35 cents a quart. One quart of that stuff and you see God. Two quarts and you graow a pair of tight pants and an electric guitar.
+ - Music journalists love Elvis Costello and hate me because they look like Elvis Costello.
+ - The Breakfast of Champions isn’t cereal, it’s the competition!
+ - You stick your head above the crowd and attract attention and sometimes somebody will throw a rock at you. That’s the territory. You buy the land, you get the Indians.
+ - A song without a hook is like a train without rails. It skitters all over the place, bangs into everything. Boom! Crash! There goes Grand Central Station. Crushed by a train.
+ - He who knows how will always work for he who knows why.
+ - Stick your head above the crowd and eventually somebody will throw a rock at it.
+ - I’m gonna abandon my spirit to them, which is actually what I attempt to do. You work yourself up into that state and you fall in supplication of the demon gods.
+ - I used to jog but the ice cubes kept falling out of my glass.
+ - You gotta learn the alphabet, backwards and forwards. And then the choice is yours, ’cause last I looked, the Bible is written in the same words, the exact same alphabet, as my favorite pornography. Choice is yours.
+ - Women are great. When they dig you, there’s nothing they won’t do. That kind of loyalty is hard to find – unless you’ve got a good dog.
+ - Being a rock star is being a rock star, I don’t need to go into the details. What would you do if you were a rock star?
+ - Rap is poetry to music, like beatniks without beards and bongos.
+ - There are only so many letters in the alphabet. When I talk to young musicians or authors and they ask for advice, I say, You gotta learn all the letters of your own personal alphabet. With music, you need to know all the different kinds of music and everything in and around your given instrument.
+ - I used to have a drug problem, now I make enough money.
+ - You want a hero in the music world? James Brown. He brought a feeling to music without really using words. He’s just famous for his sound.
+ - My ambition is to further create a signature sound, a signature spirit, that makes some kind of contribution to music in general.
+ - Self-tragedy is always a great way to dramatize yourself – ask any teenager.
+ - I’m a family oriented guy; I’ve personally started four or five this year.
+ - On parties it’s not about who you are. The real reason to which a party revolves is how good you look.
+ - I’m a natural behind the camera. My attentions are more toward behind the scenes, more toward creating, producing, and directing what’s going on here. When I finally do pop in front of the lens, I’m genuinely glad and relieved to be there.
+ - I knew already when I was seven years old, that I wanted to be on stage and entertain people. I sell laughs. Here, you got one for free!
+ - I live and breathe and do four times as much four times as fast as anyone else.
+ - I believe more and more that this business is about people. People, people. The idea is to make friends at the retail level, the warehouse level, let people see you exist, can form sentences and have an interest in something other than yourself.
+ - In the United States, you can put on a cowboy hat and join the country-western neighborhood. If you’re down below 14th Street in New York City, that’s bohemian; that’s left-wing.
+ - I know that people think I’m a party king; but, face it, if I finished the bottle every time I took a drink, I wouldn’t be able to do the aerials I do onstage.
+ - I take my personal upkeep real seriously; my sense of organization and attention to detail; my memory; my business – I love the business.
+ - For the last 30 years, I’ve been leading a life of crime and international intrigue that’s involved 40 stamps in my passport, love affairs, and broken hearts to go with each one of them. You would have to live three lifetimes to catch up with just the allegations that follow me!
+ - Many of the critics have kids of their own. It scares the hell out of them to think that their kids could be anything remotely like David Lee Roth.
+ - The most important part of any rock song is the guitar solo.
+ - It doesn’t matter the kind of music, it doesn’t matter whether it’s a cowboy hat or a yarmulke. I don’t care if it’s outer space or pop, the spirit is the same.
+ - The only thing I’m allergic to is criticism.
+ - Whether I’m on for a day or whether I’m on for a year, at the end of the day, I sing for my dinner.
+ - Let’s play with the career, if we can’t find anything else to do.
+ - I change as the times change. I’m a reflection of what’s around me without trying at all.
+ - I just wanted to be in show biz. I wanted to make music and sing and dance, tell jokes and stories, make ya smile, make ya cry – and charge you $ 8.50.
+ - I grew up on radio, not TV.
+ - Ya know, I always admired Ray Kroc, the man who invented McDonald’s. Ray had a vision of the most commonplace thing – a hamburger and fries to go – but to him it was just the greatest thing ever, and he was going to make it the greatest thing ever for everybody else, and he did.
+ - In front of the camera and in front of the lens, there’s no lawsuits, there’s no agent, and there’s most frequently no time limits. There’s a longevity that’s kind of built into it. I spend most of my time behind the scenes, and when it is time to perform, I’m genuinely delighted to do it.
+ - A lot of rock bands are truly a legend in their own minds.
+ - Radio as we know it is pretty much changing completely.
+ - Maybe I’m like acts of Congress or your favorite Chinese restaurant – you don’t really want to know what’s going on behind the door. I’m a real study in contrast, I expect, looking from without. But it adds up to what you get on stage.
+ - The world’s a stage, and I want the brightest spot.
+ - The travels before and after the tour are what add up to what you’re doing. You are really called into service – and it’s the service industry man, it’s blue collar man, I’m sweating by the second song. It’s construction work from that second song on.
+ - I think very frequently, musicians become a victim of every song they sing. I like all kinds of recreation. It’s aggressive. I want to be part of everything.
+ - People say that life is a cesspool of darkness and dispair. Well we of Van Halen are sailing through it in a yacht!
+
+72 quotes

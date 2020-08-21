@@ -1,0 +1,353 @@
+ - Don’t judge each day by the harvest you reap but by the seeds that you plant.
+ - Don’t ever confuse motion with progress.
+ - I travel not to go anywhere, but to go. I travel for travel’s sake. The great affair is to move.
+ - To travel hopefully is a better thing than to arrive.
+ - Everyone lives by selling something.
+ - Make the most of the best and the least of the worst.
+ - You cannot run away from weakness; you must some time fight it out or perish; and if that be so, why not now, and where you stand?
+ - Keep busy at something: a busy person never has time to be unhappy.
+ - Do not write merely to be understood. Write so you cannot possibly be misunderstood.
+ - There is no duty we so much underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.
+ - The habit of being happy enables one to be freed, or largely freed, from the domination of outward conditions.
+ - We are all travelers in the wilderness of this world, and the best we can find in our travels is an honest friend.
+ - Take care of each other.
+ - You can give without loving, but you can never love without giving.
+ - To be what we are, and to become what we are capable of becoming, is the only end of life.
+ - The cruelest lies are often told in silence.
+ - Like a bird singing in the rain, let grateful memories survive in time of sorrow.
+ - The world is so full of a number of things, I’m sure we should all be as happy as kings.
+ - Wherever we are, it is but a stage on the way to somewhere else, and whatever we do, however well we do it, it is only a preparation to do something else that shall be different.
+ - Little do ye know your own blessedness; for to travel hopefully is a better thing than to arrive, and the true success is to labour.
+ - Keep your fears to yourself, but share your courage with others.
+ - Everyday courage has few witnesses. But yours is no less noble because no drum beats for you and no crowds shout your name.
+ - In each of us, two natures are at war – the good and the evil. All our lives the fight goes on between them, and one of them must conquer. But in our own hands lies the power to choose – what we want most to be we are.
+ - Everybody, soon or late, sits down to a banquet of consequences.
+ - The world has no room for cowards.
+ - We consume the carcasses of creatures with like appetites, passions, and organs as our own. We feed on babes, though not our own, and fill the slaughter-houses daily with screams of pain and fear.
+ - The essence of love is kindness.
+ - Anyone can carry his burden, however heavy, until nightfall. Anyone can do his work, however hard, for one day. Anyone can live sweetly, patiently, lovingly, purely, until the sun goes down. And this is all that life really means.
+ - There are no foreign lands. It is the traveler only who is foreign.
+ - There is nothing but God’s grace. We walk upon it; we breathe it; we live and die by it; it makes the nails and axles of the universe.
+ - I consider the success of my day based on the seeds I sow, not the harvest I reap.
+ - That man is a success who has lived well, laughed often and loved much.
+ - An aim in life is the only fortune worth the finding; and it is not to be found in foreign lands, but in the heart itself.
+ - You think dogs will not be in heaven? I tell you, they will be there long before any of us.
+ - The difficulty of literature is not to write, but to write what you mean; not to affect your reader, but to affect him precisely as you wish.
+ - Quiet minds cannot be perplexed or frightened but go on in fortune or misfortune at their own private pace, like a clock during a thunderstorm.
+ - There is a fellowship more quiet even than solitude, and which, rightly understood, is solitude made perfect.
+ - It is perhaps a more fortunate destiny to have a taste for collecting shells than to be born a millionaire.
+ - I’ve a grand memory for forgetting.
+ - An aim in life is the only fortune worth finding.
+ - Loving God, help us remember the birth of Jesus, that we may share in the song of the angels, the gladness of the shepherds, and the worship of the wise men.
+ - Do not measure success by today’s harvest. Measure success by the seeds you plant today.
+ - I hate to write, but I love to have written.
+ - Live life to the fullest.
+ - To know what you prefer instead of humbly saying Amen to what the world tells you ought to prefer, is to have kept your soul alive.
+ - Fifteen men on the Dead Man’s Chest Yo-ho-ho, and a bottle of rum! Drink and the devil had done for the rest Yo-ho-ho, and a bottle of rum!
+ - You mightn’t happen to have a piece of cheese about you, now? No? Well, many’s the long night I’ve dreamed of cheese-toasted, mostly-and woke up again, and here I were.
+ - Suicide carried off many. Drink and the devil took care of the rest.
+ - The first experience can never be repeated. The first love, the first sun-rise, the first South Sea Island, are memories apart, and touched a virginity of sense.
+ - Wine is bottled poetry.
+ - I know what happiness is, for I have done good work.
+ - You must suffer me to go my own dark way.
+ - No man is useless while he has a friend.
+ - Wealth I ask not, hope nor love, Nor a friend to know me; All I seek, the heaven above And the road below me.
+ - Jekyll had more than a father’s interest; Hyde had more than a son’s indifference.
+ - If I am the chief of sinners, I am the chief of sufferers also.
+ - To miss the joy is to miss everything.
+ - Every heart that has beat strongly and cheerfully has left a hopeful impulse behind it in the world, and bettered the tradition of mankind.
+ - To know what you like is the beginning of wisdom and of old age. Youth is wholly experimental. The essence and charm of that unquiet and delightful epoch is ignorance of self as well as ignorance of life.
+ - I am told there are people who do not care for maps, and I find it hard to believe.
+ - There is only one difference between a long life and a good dinner: that, in the dinner, the sweets come last.
+ - Sightseeing is the art of disappointment.
+ - There are two things that men should never weary of, goodness and humility; we get none too much of them in this rough world among cold, proud people.
+ - Many’s the long night I’ve dreamed of cheese – toasted mostly.
+ - All sorts of allowances are made for the illusions of youth, and none, or almost none for the disenchantment of age.
+ - There is but one art, to omit.
+ - Teacher, tender comrade, wife, A fellow-farer true through life.
+ - Sir, with no intention to take offence, I deny your right to put words into my mouth.
+ - If it comes to a swinging, swing all, say I.
+ - The most beautiful adventures are not those we go to seek.
+ - To love is the great amulet that makes this world a garden.
+ - Seaward ho! Hang the treasure! It’s the glory of the sea that has turned my head.
+ - My devil had been long caged, he came out roaring.
+ - The saints are the sinners who keep on trying.
+ - Absences are a good influence in love and keep it bright and delicate.
+ - The true success is to labour.
+ - O my poor old Harry Jekyll, if ever I read Satan’s signature upon a face, it is on that of your new friend.
+ - And the true realism, always and everywhere, is that of the poets: to find out where joy resides, and give it a voice far beyond singing. For to miss the joy is to miss all.
+ - For God’s sake give me the young man who has brains enough to make a fool of himself!
+ - We should wipe two words from our vocabulary: gratitude and charity. In real life, help is given out of friendship, or it is not valued; it is received from the hand of friendship, or it is resented.
+ - When a torrent sweeps a man against a boulder, you must expect him to scream, and you need not be surprised if the scream is sometimes a theory.
+ - To be idle requires a strong sense of personal identity.
+ - Compromise is the best and cheapest lawyer.
+ - We fill the slaughterhouses daily with screams of fear and pain.
+ - We all know what Parliament is, and we are all ashamed of it.
+ - Faster than fairies, faster than witches, Bridges and houses, hedges and ditches; And charging along like troops in a battle, All through the meadows the horses and cattle.
+ - Everyone who got where he is has had to begin where he was.
+ - To forget oneself is to be happy.
+ - Every man has a sane spot somewhere.
+ - You can read Kant by yourself, if you wanted to; but you must share a joke with someone else.
+ - Of what shall we be proud of if we are not proud of our friends?
+ - It is one of the worst things of sentiment that the voice grows to be more important than the words, and the speaker than that what is spoken.
+ - But that is the object of long living, that man should cease to care about life.
+ - Well, well, Henry James is pretty good, though he is of the nineteenth century, and that glaringly.
+ - If they only married when they fell in love, most people would die unwed.
+ - The full truth of this odd matter is what the world has long been looking for and the public curiosity is sure to welcome.
+ - We advance in years somewhat in the manner of an invading army in a barren land; the age that we have reached, as the saying goes, we but hold with an outpost, and still keep open communications with the extreme rear and first beginnings of the march.
+ - There comes an end to all things; the most capacious measure is filled at last; and this brief condescension to evil finally destroyed the balance of my soul.
+ - I never weary of great churches. It is my favorite kind of mountain scenery. Mankind was never so happily inspired as when it made a cathedral.
+ - Sing a song of seasons; something bright in all, flowers in the summer, fires in the fall.
+ - In the law of God, there is no statute of limitations.
+ - My tea is nearly ready and the sun has left the sky; It’s time to take the window to see Leerie going by; For every night at tea-time and before you take your seat, With lantern and with ladder he comes posting up the street.
+ - The rain is falling all around, It falls on field and tree, It rains on the umbrellas here, And on the ships at sea. – Rain.
+ - Each has his own tree of ancestors, but at the top of all sits Probably Arboreal.
+ - The body is a house of many windows: there we all sit, showing ourselves and crying on the passers-by to come and love us.
+ - All human beings are commingled out of good and evil.
+ - I learned to recognise the thorough and primitive duality of man; I saw that, of the two natures that contended in the field of my consciousness, even if I could rightly be said to be either, it was only because I was radically both.
+ - A child should always say what’s true, And speak when he is spoken to, And behave mannerly at table: At least as far as he is able.
+ - Life is not a matter of holding good cards.
+ - Bright is the ring of words When the right man rings them, Fair the fall of songs When the singer sings them. Still they are carolled and said – On wings they are carried – After the singer is dead And the maker buried.
+ - I will make you brooches and toys for your delight Of bird-song at morning and star-shine at night. I will make a palace fit for you and me Of green days in forests and blue days at sea.
+ - We do not go to cowards for tender dealing; there is nothing so cruel as panic; the man who has least fear for his own carcase, has most time to consider others.
+ - There is no progress whatever. Everything is just the same as it was thousands, and tens of thousands, of years ago. The outward form changes. The essence does not change.
+ - It takes hard writing to make easy reading.
+ - Nothing more strongly arouses our disgust than cannibalism, yet we make the same impression on Buddhists and vegetarians, for we feed on babies, though not our own.
+ - Mankind was never so happily inspired as when it made a cathedral: a thing as simple and specious as a statue to the first glance, and yet on examination, as lively and interesting as a forest in detail.
+ - An aspiration is a joy forever, a possession as solid as a landed estate.
+ - I smoke a pipe abroad, because To all cigars I much prefer it, And as I scorn you social laws, My choice has nothing to deter it.
+ - Since hate poisons the soul, don’t cherish enmities or grudges: avoid people who make you unhappy.
+ - Give us grace and strength to forbear and to persevere. Give us courage and gaiety and the quiet mind, spare to us our friends, soften to us our enemies.
+ - Cruel children, crying babies, All grow up as geese and gabies, Hated, as their age increases, By their nephews and their nieces.
+ - Give to me the life I love, Let the lave go by me, Give the jolly heaven above And the byway nigh me. Bed in the bush with the stars to see, Bread I dip in the river There’s the life for a man like me, There’s the life for ever.
+ - I sat in the sun on a bench; the animal within me licking the chops of memory; the spiritual side a little drowsed, promising subsequent penitence, but not yet moved to begin.
+ - Go, little book, and wish to all Flowers in the garden, meat in the hall, A bin of wine, a spice of wit, A house with lawns enclosing it, A living river by the door, A nightingale in the sycamore!
+ - My idea of man’s chief end was to enrich the world with things of beauty, and have a fairly good time myself while doing so.
+ - The person who has stopped being thankful has fallen asleep in life.
+ - In winter I get up at night And dress by yellow candle-light. In summer quite the other way I have to go to bed by day.
+ - I have seen wicked men and fools, a great many of both; and I believe they both get paid in the end; but the fools first.
+ - I believe in an ultimate decency of things.
+ - Youth is the time to go flashing from one end of the world to the other, both in mind and body.
+ - Ice and iron cannot be welded.
+ - The friendly cow, all red and white, I love with all my heart; She gives me cream with all her might, To eat with apple-tart.
+ - Courage, the footstool of the Virtues, upon which they stand.
+ - When I am grown to man’s estate I shall be very proud and great. And tell the other girls and boys Not to meddle with my toys.
+ - If this is death, it is easier than life.
+ - Some places speak distinctly. Certain dark gardens cry aloud for a murder; certain old houses demand to be haunted; certain coasts are set apart for shipwreck.
+ - Make up your mind to be happy. Learn to find pleasure in simple things.
+ - Let first the onion flourish there, Rose among roots, the maiden-fair, Wine-scented and poetic soul Of the capacious salad bowl.
+ - Marriage: A friendship recognized by the police.
+ - It is not so much for its beauty that the forest makes a claim upon men’s hearts, as for that subtle something, that quality of air that emanation from old trees, that so wonderfully changes and renews a weary spirit.
+ - A great part of life consists of contemplating what we cannot cure.
+ - I am in the habit of looking not so much to the nature of a gift as to the spirit in which it is offered.
+ - A bottle of good wine, like a good act, shines ever in the retrospect.
+ - Marriage is a step so grave and decisive that it attracts light-headed, variable men by its very awfulness.
+ - I am painfully situated, Utterson; my position is a very strange – a very strange one. It is one of those affairs that cannot be mended by talking.
+ - The less I understood of this farrago, the less I was in a position to judge of its importance.
+ - There is but one art, to omit! Oh, if I knew how to omit I would ask no other knowledge. A man who knows how to omit would make an Iliad of a daily paper.
+ - The only noble thing a man can do with money is to build a schooner.
+ - Man is a creature who lives not upon bread alone, but primarily by catchwords.
+ - This profusion of eccentricities, this dream in masonry and living rock is not a drop scene in a theatre, but a city in the world of reality.
+ - There can be no fairer ambition than to excel in talk; to be affable, gay, ready, clear, and welcome.
+ - Youth is wholly experimental.
+ - The smack of California earth shall linger on the palate of your grandson.
+ - The truth that is suppressed by friends is the readiest weapon of the enemy.
+ - Some people swallow the universe like a pill; they travel on through the world, like smiling images pushed from behind.
+ - All speech, written or spoken, is a dead language, until it finds a willing and prepared hearer.
+ - His friends were those of his own blood or those whom he had known the longest; his affections, like ivy, were the growth of time, they implied no aptness in the object.
+ - An aspiration is a joy forever, a possession as solid as a landed estate, a fortune which we can never exhaust and which gives us year by year a revenue of pleasurable activity.
+ - If you keep on drinking rum, the world will soon be quit of a very dirty scoundrel!
+ - Blows the wind to-day, and the sun and the rain are flying, Blows the wind on the moors to-day and now, Where about the graves of the martyrs the whaups are crying, My heart remembers how!
+ - I regard you with an indifference closely bordering on aversion.
+ - Our business in life is not to succeed, but to continue to fail in good spirits.
+ - The correction of silence is what kills; when you know you have transgressed, and your friend says nothing, and avoids your eye.
+ - Here it is about gentlemen of fortune. They lives rough, and they risk swinging, but they eat and drink like fighting-cocks, and when a cruise is done, why, it’s hundreds of pounds instead of hundreds of farthings in their pockets.
+ - The true wisdom is to be always seasonable, and to change with a good grace in changing circumstances.
+ - Marriage is one long conversation, chequered by disputes.
+ - If your morals make you dreary, depend on it, they are wrong.
+ - And this shall be for music when no one else is near, The fine song for singing, the rare song to hear! That only I remember, that only you admire, Of the broad road that stretches and the roadside fire.
+ - When I suffer in mind, stories are my refuge; I take them like opium; and consider one who writes them as a sort of doctor of the mind.
+ - Whenever the moon and stars are set, Whenever the wind is high, All night long in the dark and wet, A man goes riding by.
+ - If a man loves the labour of his trade, apart from any question of success or fame, the gods have called him.
+ - Trusty, dusky, vivid, true, With eyes of gold and bramble-dew, Steel-true and blade-straight, The great artificer made my mate.
+ - He who sows hurry reaps indigestion.
+ - The child that is not clean and neat, With lots of toys and things to eat, He is a naughty child, I’m sure – Or else his dear Papa is poor.
+ - Nothing made by brute force lasts.
+ - Here then, as I lay down the pen and proceed to seal up my confession, I bring the life of that unhappy Henry Jekyll to an end.
+ - How do you like to go up in a swing, Up in the air so blue? Oh, I do think it the pleasantest thing Ever a child can do!
+ - I kept always two books in my pocket, one to read, one to write in.
+ - A knowledge that another has felt as we have felt, and seen things not much otherwise than we have seen them, will continue to the end to be one of life’s choicest blessings.
+ - Hope looks for unqualified success; but Faith counts certainly on failure, and takes honorable defeat to be a form of victory.
+ - With every day, and from both sides of my intelligence, the moral and the intellectual, I thus drew steadily nearer to the truth, by whose partial discovery I have been doomed to such a dreadful shipwreck: that man is not truly one, but truly two.
+ - I hazard the guess that man will be ultimately known for a mere polity of multifarious, incongruous, and independent denizens.
+ - To be truly happy is a question of how we begin, and not how we end, of what we want and not what we have.
+ - Jealousy is the most radical primeval and naked form of admiration in war paint, so to speak.
+ - It is one thing to mortify curiosity, another to conquer it.
+ - Lastly no woman should marry a teetotaller, or a man who does not smoke. It is not for nothing that this “ignoble tobagie” as Michelet calls it, spreads all over the world.
+ - A little amateur painting in water colors shows the innocent and the quiet mind.
+ - To be overwise is to ossify; and the scruple-monger ends by standing stockstill.
+ - He is not dead, this friend; not dead, Gone some few, trifling steps ahead, And nearer to the end; So that you, too, once past the bend, Shall meet again, as face to face, this friend You fancy dead.
+ - To cast in it with Hyde was to die a thousand interests and aspirations.
+ - When Christ came into my life, I came about like a well-handled ship.
+ - When your toil has been a pleasure, you have not earned money merely, but money, health, delight, and moral profit, all in one.
+ - Sit loosely in the saddle.
+ - If you would grow great and stately, You must try to walk sedately.
+ - I have done my fiddling so long under Vesuvius that I have almost forgotten to play, and can only wait for the eruption and think it long of coming. Literally no man has more wholly outlived life than I. And still it’s good fun.
+ - Death is given in a kiss; the dearest kindnesses are fatal; and into this life, where one thing preys upon another, the child too often makes its entrance from the mother’s corpse.
+ - In marriage, a man becomes slack and selfish, and undergoes a fatty degeneration of his moral being.
+ - The Devil, can sometimes do a very gentlemanly thing.
+ - O wind, a-blowing all day long, O wind, that sings so loud a song!
+ - Nothing like a little judicious levity.
+ - Extreme busyness is a symptom of deficient vitality, and a faculty for idleness implies a catholic appetite and a strong sense of personal identity.
+ - Away with funeral music-set The pipe to powerful lips- The cup of life’s for him that drinks And not for him that sips.
+ - Talk is by far the most accessible of pleasures. It costs nothing in money, it is all profit, it completes our education, founds and fosters our friendships, and can be enjoyed at any age and in almost any state of health.
+ - Am I no a bonny fighter?
+ - You start a question, and it’s like starting a stone. You sit quietly on the top of a hill; and away the stone goes, starting others...
+ - Perpetual devotion to what a man calls his business is only to be sustained by perpetual neglect of many other things.
+ - When we look in to the long avenue of the future, and see the good there is for each one of us to do, we realize, after all, what a beautiful thing it is to work, and to live, and to be happy.
+ - We got together in a few days a company of the toughest old salts imaginable – not pretty to look at, but fellows, by their faces, of the most indomitable spirit.
+ - The cruelest lies are often told in silence. A man may have sat in a room for hours and not opened his mouth, and yet come out of that room a disloyal friend or a vile calumniator.
+ - Every book is, in an intimate sense, a circular-letter to the friends of him who writes it.
+ - It is the mark of a good action that it appears inevitable in retrospect.
+ - You’re either my ship’s cook-and then you were treated handsome-or Cap’n Silver, a common mutineer and pirate, and then you can go hang!
+ - I lived on rum, I tell you. It’s been meat and drink, and man and wife, to me.
+ - When I say writing, O believe me, it is rewriting that I have chiefly in mind.
+ - He who has learned to love an art or science has wisely laid up riches against the day of riches.
+ - Had be been Shakespeare, he would then have written Troilus and Cressidato brand the offending sex; but being only a little dog, he began to bite them.
+ - Marriage is like life – it is a field of battle, not a bed of roses.
+ - Every man is his own doctor of divinity, in the last resort.
+ - I have resolved that from this day on, I will do all the business I can honestly, have all the fun I can reasonably, do all the good I can willingly, and save my digestion by thinking pleasantly.
+ - I had learned to dwell with pleasure, as a beloved daydream, on the thought of the separation of these elements.
+ - If your morals make you dreary, depend upon it they are wrong. I do not say “give them up,” for they may be all you have; but conceal them like a vice, lest they should spoil the lives of better and simpler people.
+ - It is better to emit a scream in the shape of a theory than to be entirely insensible to the jars and incongruities of life and take everything as it comes in a forlorn stupidity.
+ - The price we have to pay for money is sometimes liberty.
+ - When it comes to my own turn to lay my weapons down, I shall do so with thankfulness and fatigue, and whatever be my destiny afterward, I shall be glad to lie down with my fathers in honor. It is human at least, if not divine.
+ - Death, like a host, comes smiling to the door; Smiling, he greets us, on that tranquil shore Where neither piping bird nor peeping dawn Disturbs the eternal sleep, But in the stillness far withdrawn Our dreamless rest for evermore we keep.
+ - Fear is the strong passion; it is with fear that you must trifle, if you wish to taste the intensest joys of living.
+ - Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
+ - Everything is true; only the opposite is true too; you must believe both equally or be damned.
+ - Truth in spirit, not truth to the letter, is the true veracity.
+ - This grove, that was now so peaceful, must then have rung with cries, I thought; and even with the thought I could believe I heard it ringing still.
+ - We live in an ascending scale when we live happily, one thing leading to another in an endless series.
+ - And every day when I’ve been good, I get an orange after food.
+ - The bold may not live long, but the timid never live at all.
+ - We can only know others by ourselves.
+ - They say cowardice is infectious; but then argument is, on the other hand, a great emboldener;.
+ - Going for character: why not now, and where you stand?
+ - When the teeth are shut the tongue is at home.
+ - Our affections and beliefs are wiser than we; the best that is in us is better than we can understand; for it is grounded beyond experience, and guides us, blindfold but safe, from one age on to another.
+ - Books are good enough in their own way, but they are a poor substitute for life.
+ - We are not content to pass away entirely from the scenes of our delight; we would leave, if but in gratitude, a pillar and a legend.
+ - O God! I screamed, and “O God! Again and again; for there before my eyes – pale and shaken, and half fainting, and groping before him with his hands, like a man restored from death – there stood Henry Jekyll.”
+ - I who all the Winter through, Cherished other loves than you And kept hands with hoary policy in marriage-bed and pew; Now I know the false and true, For the earnest sun looks through, And my old love comes to meet me in the dawning and the dew.
+ - Love- what is love? A great and aching heart; Wrung hands; and silence; and a long despair.
+ - Although I express myself with some degree of pleasantry, the purport of my words is entirely serious.
+ - Must we to bed indeed? Well then, Let us arise and go like men, And face with an undaunted tread The long black passage up to bed.
+ - Everyday life is a stimulating mixture of order and haphazardry. The sun rises and sets on schedule but the wind bloweth where it listeth.
+ - So soon as prudence has begun to grow up in the brain, like a dismal fungus, it finds its first expression in a paralysis of generous acts.
+ - Being happy enables you to be free from domination by the outside world.
+ - To the old our mouths are always partly closed; we must swallow our obvious retorts and listen. They sit above our heads, on life’s raised dais, and appeal at once to our respect and pity.
+ - The saddest object in civilization, and to my mind the greatest confession of its failure, is the man who can work, who wants work, and who is not allowed to work.
+ - Youth now flees on feathered foot.
+ - The greatest engineering is the engineering of men.
+ - For will anyone dare to tell me that business is more entertaining than fooling among boats? He must have never seen a boat, or never seen an office, who says so.
+ - When the grass was closely mown, Walking on the lawn alone, In the turf a hole I found, And hid a soldier underground. Spring and daisies came apace; Grasses hide my hiding place; Grasses run like a green sea O’er the lawn up to my knee.
+ - Doubtless the world is quite right in a million ways; but you have to be kicked about a little to convince you of the fact.
+ - The problem of education is twofold: first to know, and then to utter. Everyone who lives any semblance of an inner life thinks more nobly and profoundly than he speaks.
+ - But of works of art little can be said.
+ - A man should stop his ears against paralyzing terror and run the race that is set before him with a single mind.
+ - Fiction is to the grown man what play is to the child; it is there that he changes the atmosphere and tenor of his life.
+ - If we take matrimony at it’s lowest, we regard it as a sort of friendship recognised by the police.
+ - With the half of a broken hope for a pillow at night That somehow the right is the right And the smooth shall bloom from the rough: Lord, if that were enough?
+ - A generous prayer is never presented in vain; the petition may be refused, but the petitioner is always, I believe, rewarded by some gracious visitation.
+ - So long as we are loved by others I should say that we are almost indispensable; and no man is useless while he has a friend.
+ - The spirit, Sir, is one of mockery.
+ - A hanging in a good quarrel is an easy death they say, though I could never hear of any that came back to say so.
+ - A proposition of geometry does not compete with life; and a proposition of geometry is a fair and luminous parallel for a work of art. Both are reasonable, both untrue to the crude fact; both inhere in nature, neither represents it.
+ - The very flexibility and ease which make men’s friendships so agreeable while they endure, make them the easier to destroy and forget.
+ - Every child can remember laying his head in the grass, staring into the infinitesimal forest and seeing it grow populous with fairy armies.
+ - And my heart springs up anew, Bright and confident and true, And the old love comes to meet me, in the dawning and the dew.
+ - It is better to be a fool than to be dead.
+ - One more touch of the bow, smell of the virginal Green – one more, and my bosom Feels new life with an ecstasy.
+ - In anything fit to be called by the name of reading, the process itself should be absorbing and voluptuous; we should gloat over a book, be rapt clean out of ourselves.
+ - Vanity dies hard; in some obstinate cases it outlives the man.
+ - A happy man or woman is a better thing to find than a five-pound note. He or she is a radiating focus of goodwill; and their entrance into a room is as though another candle had been lighted.
+ - Once I guessed right, And I got credit by’t; Thrice I guessed wrong, And I kept my credit on.
+ - I am not afraid of the truth, if any one could tell it me, but I am afraid of parts of it impertinently uttered.
+ - Once you are married, there is nothing left for you, not even suicide.
+ - A horrible sense of blackness and the treachery of fate seized hold upon the soul of the unhappy student.
+ - The web, then, or the pattern, a web at once sensuous and logical, an elegant and pregnant texture: that is style, that is the foundation of the art of literature.
+ - To believe in immortality is one thing, but it is first needful to believe in life.
+ - If you are going to make a book end badly, it must end badly from the beginning.
+ - In every part and corner of our life, to lose oneself is to be a gainer; to forget oneself is to be happy.
+ - The outer world, from which we cower into our houses, seemed after all a gentle habitable place; and night after night a man’s bed, it seemed, was laid and waiting for him in the fields, where God keeps an open house.
+ - It was for one minute that I saw him, but the hair stood upon my head like quills. Sir, if that was my master, why had he a mask upon his face?
+ - Fiction is to grown men what play is to the child.
+ - Is there anything in life so disenchanting as achievement?
+ - After all, the commonplaces are the great poetic truths.
+ - Away down the river, A hundred miles or more, Other little children Shall bring my boats ashore.
+ - You can forgive people who do not follow you through a philosophical disquisition; but to find your wife laughing when you had tears in your eyes, or staring when you were in a fit of laughter, would go some way towards a dissolution of the marriage.
+ - I have a little shadow that goes in and out with me, And what can be the use of him is more than I can see.
+ - The San Francisco Stock Exchange was the place that continuously pumped up the savings of the lower classes into the pockets of the millionaires.
+ - Strange indeed is the attraction of the forest for the minds of men.
+ - No human being ever spoke of scenery for above two minutes at a time, which makes me suspect that we hear too much of it in literature.
+ - Restfulness is a quality for cattle; the virtues are all active, life is alert.
+ - This is still the strangest thing in all man’s travelling, that he should carry about with him incongruous memories.
+ - A good conscience is eight parts of courage.
+ - If you wish the pick of men and women, take a good bachelor and a good wife.
+ - To be wholly devoted to some intellectual exercise is to have succeeded in life.
+ - The difficulty is not to write, but to write what you mean.
+ - The world was made before English language, and seemingly upon a different design.
+ - If a man knows he will sooner or later be robbed upon a journey, he will have a bottle of the best in every inn, and look upon all his extravagances as so much gained upon the thieves.
+ - We must accept life for what it actually is – a challenge to our quality without which we should never know of what stuff we are made, or grow to our full stature.
+ - It’s a pleasant thing to be young, and have ten toes.
+ - Happiness, eternal or temporal, is not the reward that mankind seeks, Happinesses are but his wayside companions. His soul is in the journey and in the struggle.
+ - Make up your mind to be happy.
+ - There is a certain frame of mind to which a cemetery is, if not an antidote, at least an alleviation. If you are in a fit of the blues, go nowhere else.
+ - Old and young, we are all on our last cruise.
+ - It is a golden maxim to cultivate the garden for the nose, and the eyes will take care of themselves.
+ - Age may have one side, but assuredly Youth has the other. There is nothing more certain than that both are right, except perhaps that both are wrong.
+ - Nobody speaks of a beautifful view for 5 minutes.
+ - The ideal story is that of two people who go into love step for step, with a fluttered consciousness, like a pair of children venturing together into a dark room.
+ - Benjamin Franklin went through life an altered man because he once paid too dearly for a penny whistle. My concern springs usually from a deeper source, to wit, from having bought a whistle when I did not want one.
+ - The obscurest epoch is to-day.
+ - And if a man reads very hard, as the old anecdote reminds us, he will have little time for thought.
+ - I travel not to go anywhere, but to go.
+ - Things looked at patiently from one side after another generally end by showing a side that is beautiful.
+ - Bright is the ring of words When the right man rings them.
+ - I would rather do a good hours work weeding than write two pages of my best; nothing is so interesting as weeding. I went crazy over the outdoor work, and at last had to confine myself to the house, or literature must have gone by the board.
+ - For the forest takes away from you all excuse to die. There is nothing here to cabin or thwart your free desires. Here all impudences of the brawling world reach you no more.
+ - It is a great thing if you can persuade people that they are somehow or other partakers in a mystery. It makes them feel bigger.
+ - To make our morality center on forbidden acts is to defile the imagination and to introduce into our judgments of our fellow men a secret element of gusto.
+ - When I was a boy, I was a bit puzzled, and hardly knew weather it was myself or the world that was curious and worth looking into. Now I know that it is myself, and stick to that.
+ - If you want a person’s faults, go to those who love him. They will not tell you, but they know.
+ - A man finds he has been wrong at every stage of his career, only to deduce the astonishing conclusion that he is at last entirely right.
+ - The sticks break, the stones crumble, The eternal altars tilt and tumble, Sanctions and tales dislimn like mist About the amazed evangelist. He stands unshook from age to youth Upon one pin-point of the truth.
+ - There is certainly some chill and arid knowledge to be found upon the summits of formal and laborious science; but it is all round about you, and for the trouble of looking, that you will acquire the warm and palpitating facts of life.
+ - A friend is somebody who loves us with understanding, as well as emotion.
+ - In the harsh face of life faith can read a bracing gospel.
+ - It is better to lose health like a spendthrift than to waste it like a miser.
+ - There is an idea abroad among moral people that they should make their neighbors good. One person I have to make good: Myself. But my duty to my neighbor is much more nearly expressed by saying that I have to make him happy if I may.
+ - The bourgeoisie’s weapon is starvation. If as a writer or artist you run counter to their narrow notions they simplyand silently withdraw your means of subsistence. I sometimes wonder how many people of talent are executed in this way every year.
+ - Let any man speak long enough, he will get believers.
+ - To love playthings well as a child, to lead an adventurous and honorable youth, and to settle when the time arrives, into a green and smiling age, is to be a good artis en life and deserve well of yourself and your neighbor.
+ - To avoid an occasion for our virtues is a worse degree of failure than to push forward pluckily and make a fall.
+ - It is a mere illusion that, above a certain income, the personal desires will be satisfied and leave a wider margin for the generous impulse.
+ - You can kill the body but not the spirit.
+ - It is not likely that posterity will fall in love with us, but not impossible that it may respect or sympathize; so a man would rather leave behind him the portrait of his spirit than a portrait of his face.
+ - Children are certainly too good to be true.
+ - You have no idea, unless you have tried it, how endlessly long is a summer’s day, that you measure out only by hunger, and bring to an end only when you are drowsy.
+ - All error, not merely verbal, is a strong way of stating that the current truth is incomplete.
+ - Extreme busyness, whether at school or college, kirk or market, is a symptom of deficient vitality.
+ - The little rift between the sexes is astonishingly widened by simply teaching one set of catchwords to the girls and another to the boys.
+ - If a man lives to any considerable age, it can not be denied that he laments his imprudences, but I notice he often laments his youth a deal more bitterly and with a more genuine intonation.
+ - The spirit of delight comes in small ways.
+ - By the time a man gets well into his seventies his continued existence is a mere miracle.
+ - It is not enough to be ready to go where duty calls. A man should stand around where he can hear the call!
+ - I have been made to learn that the doom and burden of our life is bound forever on man’s shoulders; and when the attempt is made to cast it off, it but returns upon us with more unfamiliar and more awful pressure.
+ - To be feared of a thing and yet to do it, is what makes the prettiest kind of a man.
+ - Do not forget that even as “to work is to worship” so to be cheery is to worship also, and to be happy is the first step to being pious.
+ - Even if the doctor does not give you a year, even if he hesitates about a month, make one brave push and see what can be accomplished in a week.
+ - Politics is perhaps the only profession for which no preparation is thought necessary.
+
+351 quotes

@@ -1,0 +1,42 @@
+ - Mathematics is the language with which God has written the universe. ~~Galileo Galilei
+ - Nothing exists except atoms and empty space; everything else is opinion. ~~Democritus
+ - Real science can be far stranger than science fiction and much more satisfying. ~~Stephen Hawking
+ - Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. ~~Louis Pasteur
+ - Science is a way of thinking much more than it is a body of knowledge. ~~Carl Sagan
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. ~~Isaac Asimov
+ - Mathematics is the key and door to the sciences. ~~Galileo Galilei
+ - We live in a society exquisitely dependent on science and technology, in which hardly anyone knows anything about science and technology. ~~Carl Sagan
+ - Science may set limits to knowledge, but should not set limits to imagination. ~~Bertrand Russell
+ - Ignorance more frequently begets confidence than does knowledge. ~~Charles Darwin
+ - Research is formalized curiosity. It is poking and prying with a purpose. ~~Zora Neale Hurston
+ - What can be asserted without evidence can be dismissed without evidence. ~~Christopher Hitchens
+ - One thing in life is for certain, the more profoundly baffled you have been in your life, the more open your mind becomes to new ideas. ~~Neil deGrasse Tyson
+ - The test of a first-rate intelligence is the ability to hold two opposed ideas in mind at the same time and still retain the ability to function. ~~F. Scott Fitzgerald
+ - Science, my lad, is made up of mistakes, but they are mistakes which it is useful to make, because they lead little by little to the truth. ~~Jules Verne
+ - Two things awe me most, the starry sky above me and the moral law within me. ~~Immanuel Kant
+ - The cure for a fallacious argument is a better argument, not the suppression of ideas. ~~Carl Sagan
+ - Science may have found a cure for most evils; but it has found no remedy for the worst of them all – the apathy of human beings. ~~Helen Keller
+ - God is dead, God remains dead, and we have killed him. ~~Friedrich Nietzsche
+ - We are stuck with technology when what we really want is just stuff that works. ~~Douglas Adams
+ - Life would be tragic if it weren’t funny. ~~Stephen Hawking
+ - In nature we never see anything isolated, but everything in connection with something else which is before it, beside it, under it and over it. ~~Johann Wolfgang von Goethe
+ - Astronomy compels the soul to look upwards and leads us from this world to another. ~~Plato
+ - People like it when they understand something that they previously thought they couldn’t understand. It’s a sense of empowerment. ~~Neil deGrasse Tyson
+ - The beauty of a living thing is not the atoms that go into it, but the way those atoms are put together. ~~Carl Sagan
+ - The notion that science and spirituality are somehow mutually exclusive does a disservice to both. ~~Carl Sagan
+ - My view is that if your philosophy is not unsettled daily then you are blind to all the universe has to offer. ~~Neil deGrasse Tyson
+ - So Einstein was wrong when he said, “God does not play dice.” Consideration of black holes suggests, not only that God does play dice, but that he sometimes confuses us by throwing them where they can’t be seen. ~~Stephen Hawking
+ - All civilizations become either spacefaring or extinct. ~~Carl Sagan
+ - I never guess. It is a shocking habit destructive to the logical faculty. ~~Arthur Conan Doyle
+ - Religion ends and philosophy begins, just as alchemy ends and chemistry begins, and astrology ends and astronomy begins. ~~Richard Dawkins
+ - Even if the open windows of science at first make us shiver after the cozy indoor warmth of traditional humanizing myths, in the end the fresh air brings vigor, and the great spaces have a splendor of their own. ~~Bertrand Russell
+ - When Kepler found his long-cherished belief did not agree with the most precise observation, he accepted the uncomfortable fact. He preferred the hard truth to his dearest illusions, that is the heart of science. ~~Carl Sagan
+ - Scientists have calculated that the chances of something so patently absurd actually existing are millions to one. But magicians have calculated that million-to-one chances crop up nine times out of ten. ~~Terry Pratchett
+ - By far the best proof is experience. ~~Francis Bacon
+ - I’m not saying I’m gonna change the world, but I guarantee that I will spark the brain that will change the world. ~~Tupac Shakur
+ - For your own safety, do not ever tell an astrophysicist, I hope all your stars are twinkling. ~~Neil deGrasse Tyson
+ - The trouble with always trying to preserve the health of the body is that it is so difficult to do without destroying the health of the mind. ~~Gilbert K. Chesterton
+ - Nature and nature’s laws lay hid in the night. God said, Let Newton be! and all was light! ~~Alexander Pope
+ - Two things fill the mind with ever new and increasing admiration and awe, the oftener and more steadily we reflect on them: the starry heavens above and the moral law within. ~~Immanuel Kant
+
+40 quotes

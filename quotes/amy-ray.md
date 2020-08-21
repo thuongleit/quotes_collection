@@ -1,0 +1,32 @@
+ - When I’m writing, which is 8-9 months out of the year, I’m in a concerted writing pace, where I work 5 days a week for at least a few hours a day, maybe a little bit more. But I won’t work for more than 2 hours at a time. I’ll work for a couple hours and take a break.
+ - Tolerance ain’t the same as acceptance, even though we all wish it was.
+ - An idealist who couldn’t cope becomes cynical.
+ - Your hatred is rooted in your fear, and your paranoia and insecurities, well they don’t belong here.
+ - I think you just have to take the bad with the good and you’re going to get hurt more, but it’s worth it.
+ - I sit down and draw from my lyric book. I sit down and start looking through it and see if there is anything that strikes me that I’ve written.
+ - We act empty and innocent but we are fueled by distortions of lives led in discontent trading misfortunes cause faith is one thing that is hard to deliver it feels funny being free.
+ - You can spend time self-identifying and figuring out what you are on that, but at some point, you just want to be who you are and not walk around telling people.
+ - My personal feeling is that people need to be careful not to start over-analyzing and taking things apart and trying to be critical.
+ - It’s important to have a voice; it’s more important to use it.
+ - The impossibility and hypocrisy of a situation where kids are expected to be honest but are judged and alienated from their community because of it should not escape us.
+ - The best days I have are usually days where I’m out in the woods and something happens, like I see an amazing animal like a fox, or I get a glimpse of a wild pig or something that I never see. Or crazy things happen.
+ - Majoring in religion, listening to TV evangelists interpret the scriptures and dictate my offerings-I found my God inside myself-in every moment and piece of matter. Everything is animate.
+ - It’s all right if things don’t change today. We’re gonna keep doing what we do. The world can either catch up or not.
+ - There are a lot of people who that you may only nod to; it’s better to stop and say hello.
+ - I have a lyric journal that I write in a lot. When I’m going to play, I just sit down and have my books with me and my notes and tapes and whatever I need to refer to. I just play and try different things. It’s a kind of discipline.
+ - Your perspective probably depends on where you live.
+ - When people say, ‘Nothing’s coming to me,’ they usually don’t like what’s coming to them.
+ - I think the musicians I play with solo do a certain thing that the musicians we play with with the Indigo Girls don’t do. It’s just a different thing. And it sort of steers my writing in some ways.
+ - I do think within any job you do, you have a chance to serve the community.
+ - Music is such a good way to resist. It keep you strong, it has dignity.
+ - When I do solo stuff, when I do anything involving music, it’s very collaborative.
+ - I mean, I really, really love playing solo. Definitely, it’s like a labor of love, it’s not a huge career. It’s not that successful, but it’s something I love so much that I’ll do it regardless.
+ - But if you want to be a songwriter-based musician, whether you play punk or rock or country or jazz, whatever, you have to work on your songwriting and you have to work on being able to play in front of people, I think. That performance is how you create the groundwork for a lasting career.
+ - I’m not really thinking about what I’m talking about or what I’m willing to achieve. I’m just kind of letting it come out, recording it.
+ - But the reality is that we are a folk band.
+ - If some event happens and it seems really important to me and moving to me, I’ll write it down in my lyric book knowing that it will come out in a song.
+ - I don’t typically work that late into the night in a studio, I’m more productive during the day.
+ - I think art is definitely a great thing, and looked at as a way to open people up.
+ - Maybe our gender is one thing and our sexuality is another. And that’s a cool thing I think.
+
+30 quotes

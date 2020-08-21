@@ -1,0 +1,48 @@
+ - The only person standing in your way is you.
+ - You can’t escape from what you are.
+ - Perfection is not just about control, it is also about letting go.
+ - People look up to Jacques Mesrine as if he were a Robin Hood, stealing from the rich, but he never gave anything back to anybody.
+ - And now I have a big house, nice clothes and I travel in first class and I love it, so maybe it’s time to enjoy being a star.
+ - Cinema is entertainment, and people go to the movies because they want to feel good and forget about everything.
+ - They say the day you lose your parents, you start to look like them.
+ - I don’t really shop any more. I only do it when I have to. I think it is very overrated.
+ - I’m more attracted to the bad guys. Why? Because in real life, I don’t know any good guys. I know okay guys. I know polite guys. I know people who can control themselves.
+ - I think life is short, and you can’t spend time doing things just to be on set to reassure yourself that people are not going to forget about you.
+ - People pretend to be nice, people pretend to be smooth, and polite and everything, but this is only an appearance, because the way we’re built as human beings is only in paradox and contradictions.
+ - I wear a lot of wigs as Jacques Mesrine. He’d wear multiple wigs and take them off one at a time to rob three banks in one hour.
+ - If the guy behind the camera is not good, the pictures are bad. It’s still you, and it’s the same lines and everything, but it doesn’t work.
+ - I love French style from the Thirties and Forties. French movie stars like Jean Gabin and Yves Montand had so much natural, effortless style.
+ - Good guys need to be a little dirty otherwise they’re just boring.
+ - I’m a little angry in life.
+ - I come from an acting family, my father was an actor, and I had to fight my way and just create my own identity.
+ - I’ve always loved the idea of changing myself, wearing costumes and disguises. It takes you back to being a kid, to dressing up.
+ - I think I’m actually more vulnerable than people imagine.
+ - The idea of telling a story in reverse destabilises your ordinary moral reactions. That’s one of the points of art – to challenge your preconceptions.
+ - When somebody is talking to you about something terrible on set with lines, and you believe what he says, sometimes it gives a strange vibe, because you wonder when that person is talking if he’s talking about something that really happened to him and he’s using the character.
+ - I always had the sense of being in the spotlight, being on stage, being looked at.
+ - If kids really made all the parents better, there wouldn’t be crazy kids in the world.
+ - I used to be more self-conscious about style because when you’re younger, you want to exist, you want to show everything you do.
+ - I wanted to be an actor to act, and now, being an actor, you have to dress up, you have to be nice, you have to be smart, you have to be sexy, you have to be ready.
+ - I really like romantic comedies and light movies and everything but I think – I don’t know where it comes from – but when you’re doing violent movies, you’re closer to reality.
+ - To work with somebody you love makes filming faster, more fun.
+ - My father is best known for his light comedies, and Im best known for crazy bad guys with short tempers.
+ - I always compare human beings to animals. It’s a nice way to figure out who they are.
+ - I was thinking of going to London drama schools or to New York, because France didn’t accommodate the things I wanted to do in film.
+ - I’m producing more, but I think to direct, one has to have a burning desire, and that’s not me. I’d rather do something else.
+ - I have learned that acting is not about beauty.
+ - There is this idea that its very different from the French point of view to work in America blah, blah, blah. But I think its different from one person to the other, not from one country to the other.
+ - I worked with young directors all my life, only young directors.
+ - When you see violence in movies in general, it’s very quick and painless, which isn’t what it’s like.
+ - Coming from Paris, I’d really like to live in Rio. I think it’s gotten better. It’s not as violent. The economy is better. The middle class is rising.
+ - The minute I started being recognised, I became much more discreet.
+ - Women? I’m still working on the subject. I haven’t finished my studies. I would say I’m so happy that they’re around. This is the salt and pepper of life. This is what makes me wake up in the morning – even more than work, really.
+ - When you have a bunch of scripts that you have to read, the less you have, the better it is, because otherwise, everything is already planned and I think that’s a terrible feeling.
+ - Cronenberg’s a lot of fun, and that a lot of people don’t know watching his movies. He doesn’t take himself seriously. He’s still reinventing himself.
+ - It’s always interesting to see a director trying different things, and on top of it, doing it right each and almost every time.
+ - I really enjoy being an actor!
+ - I’m an actor, that’s what I do every day. Dressing up is part of my job. But whatever you wear you should always be yourself: never go totally with the fashion but use what there is available to be an individual.
+ - I think American audiences like gangster movies. It’s part of the culture.
+ - Neither of us are workaholics. I think the key thing is to accept that if you only exist through what you do, then you become what you do, and this is very wrong.
+ - I did direct two short movies. I learned many things, and one of the things I learned was that I am not a director. It has to be visceral, and it’s not for me. I feel much more comfortable acting.
+
+46 quotes

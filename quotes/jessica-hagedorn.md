@@ -1,0 +1,23 @@
+ - Adaptability is the simple secret of survival.
+ - Everything matters. Time is precious.
+ - Hybridity keeps me from being rigid about most things. It has taught me to appreciate the contradictions in the world and in my life. I scavenge from the best.
+ - Don’t say Fili, sister. Say Pili. In Tagalog, pili means to choose. Pino means fine. Pilipino equals ’fine choice.
+ - I love writing dialogue, and I think a lot of my writing is visual and very cinematic.
+ - Life is not simple, and people can’t be boxed into being either heroes or villains.
+ - There is real beauty in my eyes when I lose my mind.
+ - It’s not just NYU. There are days when I feel like I’m stranded in some upscale mall in Pasadena. Don’t even get me started on the insidious transformation of Bleecker Street!
+ - I don’t believe in sampling some Tibetan music just to make it sound groovy, but you do your homework, you understand what you’re doing with it.
+ - There were also horror shows on the radio. Very terrifying and thrilling to me as a kid. They had all these creepy sound effects. They would come on at ten o’clock at night, and I just would scare myself to death.
+ - I’m an underdog person, so I align myself with those who seem to be not considered valuable in polite society.
+ - Becoming a mother has helped make me a tougher, stronger writer.
+ - But I think there’s a genuine joy, too, a sense that no matter what, even if my stomach’s growling, I’m going to dance. That’s what I want to leave people with at the end of the play. After all this, people still know how to live.
+ - I also identify as a Latin person, a person who has Latin blood.
+ - I don’t know what issues concerning identity have helped contemporary fiction evolve to what it is now. All I know is that the range of voices that are being heard and published is a lot more diverse than when I was coming up.
+ - We didn’t have television until I was about eight years old, so it was either the movies or radio. A lot of radio drama. That was our television, you know. We had to use our imagination. So it was really those two things, and the comics, that I immersed myself in as a child.
+ - I’m preparing for a multimedia theater piece, Airport Music, that’s coming up in New York City.
+ - My identity is linked to my grandmother, who’s pure Filipino, as pure as you can probably get. And that shaped my imagination. So that’s how I identify.
+ - There are certain regions in the country where the indigenous people eat dogs.
+ - Music is very influential to my writing, as are theater and film.
+ - I think for a lot of so-called post-colonial peoples, there’s a feeling of not being quite legitimate, of not being pure enough.
+
+21 quotes

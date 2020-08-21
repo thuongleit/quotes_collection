@@ -1,0 +1,125 @@
+ - Our worst days are never so bad that you are beyond the reach of God’s grace. And your best days are never so good that you are beyond the need of God’s grace.
+ - The purpose of God’s discipline is not to punish us but to transform us.
+ - Preach the gospel to yourself every day.
+ - Lord, I am willing To receive what You give. To lack what You withhold. To relinquish what You take, To suffer what You inflict, To be what you require.
+ - God never allows pain without a purpose.
+ - God never wastes pain. He always uses it to accomplish his purpose. And his purpose is for his glory and our good. Therefore we can trust him when our hearts are aching or our bodies are racked with pain.
+ - Obedience is the pathway to holiness.
+ - Contentment is one of the most distinguishing traits of the godly person, because a godly person has his heart focused on God rather than on possessions or position or power.
+ - The pursuit of holiness is a joint venture between God and the Christian. No one can attain any degree of holiness without God working in his life, but just as surely no one will attain it without effort on his own part.
+ - Bitterness arises in our hearts when we do not trust in the sovereign rule of God in our lives.
+ - Trusting God is not a matter of my feelings but of my will.
+ - There is no point in praying for victory over temptation if we are not willing to make a commitment to say no to it.
+ - Practice of true community involves responsibilities and actions that do not come naturally to us.
+ - The cure for the sin of envy and jealousy is to find our contentment in God.
+ - To be justified means more than to be declared “not guilty.” It actually means to be declared righteous before God. It means God has imputed or charged the guilt of our sin to His Son, Jesus Christ, and has imputed or credited Christ’s righteousness to us.
+ - Christ exhausted the cup of God’s wrath. For all who trust in Him there is nothing more in the cup. It is empty.
+ - The great antidote to anxiety is to come to God in prayer. We are to pray about everything. Nothing is too big for Him to handle, and nothing is too small to escape His attention.
+ - God’s guidance is almost always step-by-step; He does not show us our life’s plan all at once. Sometimes our anxiousness to know the will of God comes from a desire to peer over God’s shoulder to see what His plan is. What we need to do is learn to trust Him to guide us.
+ - Trials always change our relationship with God. Either they drive us to Him, or they drive us away from Him. The extent of our fear of Him and our awareness of His love for us determine in which direction we will move.
+ - Don’t believe everything you think. You cannot be trusted to tell yourself the truth. Stay in The Word.
+ - God’s plan and His ways of working out His plan are frequently beyond our ability to fathom and understand. We must learn to trust when we don’t understand.
+ - Even our tears of repentance need to be washed in the blood of the Lamb.
+ - We could not take one step in the pursuit of holiness if God in His grace had not first delivered us from the dominion of sin and brought us into union with His risen Son. Salvation is by grace and sanctification is by grace.
+ - Biblical community is first of all the sharing of a common life in Christ.
+ - If we are going to learn to trust God in adversity, we must believe God will allow nothing to subvert His glory so He will allow nothing to spoil the good He is working out in us and for us.
+ - Because God is sovereign, He is able to answer. Because He is faithful to His promises, He will answer.
+ - Only those who walk in holiness experience true joy.
+ - Jesus did not die just to give us peace and a purpose in life; he died to save us from the wrath of God.
+ - Thankfulness to God is a recognition that God in His goodness and faithfulness has provided for us and cared for us, both physically and spiritually. It is a recognition that we are totally dependent upon Him; that all that we are and have comes from God.
+ - If we want proof of God’s love for us, then we must look first at the Cross where God offered up His Son as a sacrifice for our sins. Calvary is the one objective, absolute, irrefutable proof of God’s love for us.
+ - The pursuit of holiness must be anchored in the grace of God; otherwise it is doomed to failure.
+ - Godly character flows out of devotion to God and practically confirms the reality of that devotion.
+ - Every day that we’re not practicing godliness we’re being conformed to the world of ungodliness around us.
+ - Prayer is the most tangible expression of trust in God.
+ - We’re more concerned about our own “victory” over sin than we are about the fact that our sins grieve God’s heart.
+ - Every day of our Christian experience should be a day of relating to God on the basis of His grace alone. We are not only saved by grace, but we also live by grace every day.
+ - If there is not at least a yearning in our hearts to live a holy life pleasing to God, we need to seriously question whether our faith in Christ is genuine.
+ - Trust is not a passive state of mind. It is a vigorous act of the soul by which we choose to lay hold on the promises of God and cling to them despite the adversity that at times seeks to overwhelms us.
+ - The gospel is not only the most important message in all of history; it is the only essential message in all of history.
+ - God’s sovereignty does not negate our responsibility to pray, but rather makes it possible for us to pray with confidence.
+ - Our very worst days are never beyond the reach of God’s grace.
+ - Instead of living in the sunshine of God’s forgiveness through Christ, we tend to live under an overcast sky of guilt most of the time.
+ - It is not the fact that we are united in common goals or purposes that makes us a community. Rather, it is the fact that we share a common life in Christ.
+ - No circumstance is so big that He cannot control it.
+ - Sanctification is the work of the Holy Spirit in us whereby our inner being is progressively changed, freeing us more and more from sinful traits and developing within us over time the virtues of Christlike character.
+ - It is just as important to trust God as it is to obey Him. When we disobey God we defy His authority and despise His holiness. But when we fail to trust God we doubt His sovereignty and question His goodness.
+ - The fruit of the Spirit is fundamentally relational. Rather than originating with us, it flows to us from our union with Christ, and it flows beyond us to bring us into fellowship with others. The secret of this flow – and our unity with God and others – is humility.
+ - So often we try to develop Christian character and conduct without taking the time to develop God-centered devotion. We try to please God without taking the time to walk with Him and develop a relationship with Him. This is impossible to do.
+ - Patience is the ability to suffer a long time under the mistreatment of others without growing resentful or bitter.
+ - This is the essence of God’s sovereignty; His absolute independence to do as He pleases and His absolute control over the actions of all His creatures. No creature, person, or empire can either thwart His will or act outside the bounds of His will.
+ - Worship is the specific act of ascribing to God the glory, majesty, honor, and worthiness which are His.
+ - As we grow in the knowledge of God’s holiness, even though we are growing in the practice of holiness, it seems the gap between our knowledge and our practice always gets wider. This is the Holy Spirit’s way of drawing us to more and more holiness.
+ - We must pray constantly for His enabling grace to say no to temptation, of choosing to take all practical steps to avoid known areas of temptation and flee from those that surprise us.
+ - The opposite of retaliation is to entrust ourselves to God, who judges justly.
+ - Biblical love is not emotions or feelings, but attitudes and actions that seek the best interests of the other person, regardless of how we feel toward him.
+ - Uncontrolled temper is soon dissipated on others. Resentment, bitterness, and self-pity build up inside our hearts and eat away at our spiritual lives like a slowly spreading cancer.
+ - Jesus did not die just to save us from the penalty of sin, nor even just to make us holy in our standing before God. He died to purify for Himself a people eager to obey Him, a people eager to be transformed into His likeness.
+ - God in His love always wills what is best for us. In His wisdom He always knows what is best, and in His sovereignty He has the power to bring it about.
+ - Evil Rulers Are Never Beyond The Bounds of God’s Sovereign Will.
+ - It is our response to our circumstances rather than the degree of difficulty that determines whether or not we are discontent.
+ - Only when we’re thoroughly convinced that the Christian life is entirely of grace are we able to serve God out of a grateful and loving heart.
+ - God intends that everyone who has embraced the gospel become a part of the great enterprise of spreading the gospel.
+ - God makes provision for our holiness, but He gives us the responsibility of using those provisions.
+ - God is worthy of my loving obedience because of who He is, not because of what he does.
+ - No detail of your life is too insignificant for your heavenly Father’s attention.
+ - Faith enables us to obey when obedience is costly or seems unreasonable to the natural mind.
+ - This is the secret of being content: To learn and accept that we live daily by God’s unmerited favor given through Christ, and that we can respond to any and every situation by His divine enablement through the Holy Spirit.
+ - Every day is important for us because it is a day ordained by God. If we are bored with life there is something wrong with our concept of God and His involvement in our daily lives. Even the most dull and tedious days of our lives are ordained by God and ought to be used by us to glorify Him.
+ - Complaining about the weather seems to be a favorite American pastime. Sadly, we Christians often get caught up in this ungodly habit in our society. But when we complain about the weather, we are actually complaining against God who sent us our weather. We are, in fact, sinning against God.
+ - Introspection can easily become the tool of Satan, who is called the accuser. One of his chief weapons is discouragement. He knows that if he can make us discouraged and dispirited we will not fight the battle for holiness.
+ - The realization that my daily relationship with God is based on the infinite merit of Christ instead of on my own performance is a very freeing and joyous experience. But it is not meant to be a one-time experience; the truth needs to be reaffirmed daily.
+ - Because peace is a fruit of the Spirit, we are dependent upon the Spirit’s work in our lives to produce the desire and the means to pursue peace. But we are also responsible to use the means He has given us and to take all practical steps to attain both peace within and peace with others.
+ - We take what we think are the tools of spiritual transformation into our own hands and try to sculpt ourselves into robust Christlike specimens. But spiritual transformation is primarily the work of the Holy Spirit. He is the Master Sculptor.
+ - How then can we deal with our tendency toward worldliness? It is not by determining that we will not be worldly, but by committing ourselves to becoming more godly.
+ - Gentleness is an active trait, describing the manner in which we should treat others. Meekness is a passive trait, describing the proper Christian response when others mistreat us.
+ - We are 100 percent responsible for the pursuit of holiness, but at the same time we are 100 percent dependent upon the Holy Spirit to enable us in that pursuit. The pursuit of holiness is not a pull-yourself-up-by-your-own-bootstraps approach to the Christian life.
+ - We believers do need to be challenged to a life of committed discipleship, but that challenge needs to be based on the gospel, not on duty or guilt. Duty or guilt may motivate us for awhile, but only a sense of Christ’s love for us will motivate us for a lifetime.
+ - Worship from the heart in times of adversity implies an attitude of humble acceptance on our part of God’s right to do as He pleases in our lives.
+ - We fail to see the gospel as the solution to our greatest problem-our guilt, condemnation, and alienation from God. Beyond that, we fail to see it as the basis of our day-to-day acceptance with Him. As a result, many believers live in spiritual poverty.
+ - Three means by which God assures us that we do have eternal life: 1. The promises of His Word, 2. The witness of the Spirit in our hearts, 3. The transforming work of the Spirit in our lives.
+ - We don’t have to start all over again and try to keep the slate clean. There is no more slate.
+ - Love provides the motive for obeying the commands of the law, but the law provides specific direction for exercising love.
+ - To live by grace is to live solely by the merit of Jesus Christ. To live by grace is to base my entire relationship with God, including my acceptance and standing with Him, on my union with Christ.
+ - As we search the Scriptures, we must allow them to search us, to sit in judgment upon our character and conduct.
+ - We must allow the Bible to say what is says, not what we think it ought to say.
+ - May we be as severe with ourselves over our own subtle sins as we are with the vile sins we condemn in others.
+ - We might say God’s wrath is His justice in action, rendering to everyone his just due, which, because of our sin is always judgment.
+ - God’s love to us cannot fail any more than His love to Christ can fail.
+ - We must not allow our emotions to hold sway over our minds. Rather, we must seek to let the truth of God rule our minds. Our emotions must become subservient to the truth.
+ - A son or daughter in any human family is either born to or adopted by the parents. By definition, a child can’t be both. But with God we’re both born of Him and adopted by Him.
+ - But we need to pray daily for humility and honesty to see these sinful attitudes for that they really are, and then for grace and discipline to root them out of our minds and replace them with thoughts pleasing to God.
+ - When God saves us through Christ, He not only saves us from the penalty of sin, but also from its dominion.
+ - Giving thanks to God for both His temporal and spiritual blessings in our lives is not just a nice thing to do – it is the moral will of God. Failure to give Him the thanks due Him is sin.
+ - The grace that brought salvation to you is the same grace that teaches or disciplines you. But you must respond on the basis of grace, not law.
+ - God will never allow any action against you that is not in accord with His will for you. And His will is always directed to our good.
+ - We all want Grace, but we cannot enjoy Grace when there is an attitude of comparing.
+ - Grace is the love of God shown to the unlovely. It is God reaching downward to people who are in rebellion against him.
+ - The level of our obedience is most often determined by the behavior standard of other Christians around us.
+ - We need to call sin what the Bible calls it and not soften it with modern expressions borrowed from our culture.
+ - Sin is wrong, not because of what it does to me, or my spouse, or child, or neighbor, but because it is an act of rebellion against the infinitely holy and majestic God.
+ - All pain we experience is intended to move us closer to the goal of being holy as He is holy.
+ - Which of us, then, does not offend frequently with our tongue? The real problem, however, is not our tongues but our hearts.
+ - We ought to be as earnest and frequent in our prayers of thanksgiving when the cupboard is full as we would be in our prayers of supplication if the cupboards were bare.
+ - As we grow in holiness, we grow in hatred of sin; and God, being infinitely holy, has an infinite hatred of sin.
+ - God is never at a loss because He cannot find someone to cooperate with Him in carrying out His plan. He so moves in the hearts of people – either Christians or non Christians, it makes no difference – that they willingly, of their own free will carry out His plans.
+ - God does not delight in our sufferings. He brings only that which is necessary, but He does not shrink from that which will help us grow.
+ - We insist that God must surely lead everyone as we believe He has led us. We refuse to allow God the freedom to deal with each of us as individuals. When we think like that, we are legalistic.
+ - In both its precepts and penalty, the law of God in its most exacting requirements was fulfilled by Jesus. And He did this in our place as our representative and our substitute.
+ - I warmly commend it to all Christians who want to grow in their faith.
+ - As we become soft and lazy in our bodies, we tend to become soft and lazy spiritually.
+ - Every day is important for us because it is a day ordained by God.
+ - Truth is we must plant and we must water if we are to make progress with our children in holiness but only the Holy Spirit can change our children more and more into the likeness of Jesus. Our problem is we tend to depend upon our planting and watering rather than the Lord.
+ - Sometimes the end God has in mind is to exercise our faith, so He brings us into straitened circumstances so that we might look up to Him and see His deliverance.
+ - The Holy Spirit makes us aware of our lack of holiness to stimulate us to deeper yearning and striving for holiness. But Satan will attempt to use the Holy Spirit’s work to discourage us.
+ - Our duty is found in the revealed will of God in the Scriptures. Our trust must be in the sovereign will of God as He works in the ordinary circumstances of our daily lives for our good and His glory.
+ - We obey God’s Law, not to be loved but because we are loved in Christ.
+ - Holiness is nothing less than conformity to the character of God.
+ - Some days we may be more acutely conscious of our sinfulness and hence more aware of our need of His grace, but there is never a day when we can stand before Him on our own two feet of performance, when we are worthy enough to deserve His blessing.
+ - Obeying the revealed will of God and trusting Him for the results.
+ - Faith in Christ and a reliance on ourselves, even to the smallest degree, are mutually exclusive.
+ - True joy comes only from God and He shares this joy with those who walk in fellowship with Him.
+ - Our sins are forgiven and we are accepted as righteous by God because of both the sinless life and sin-bearing death of our Lord Jesus Christ. There is no greater motivation for dealing with sin in our lives than the realization of these two glorious truths of the gospel.
+ - A willingness to share our possessions with one another is a very important aspect of true biblical community.
+
+123 quotes

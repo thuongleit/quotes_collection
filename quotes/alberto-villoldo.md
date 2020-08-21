@@ -1,0 +1,53 @@
+ - True initiation is a response to an inner calling; it requires that you face personal challenges heroically and experience a genuine rebirth into a new way of being.
+ - We can change the world with every thought we have and every word we speak.
+ - Destiny is saying yes to the calling we were born with.
+ - The dawning of the light of awareness is the new birth, where the sun rises and the day breaks within you.
+ - Shamanism is not a course, but a life journey.
+ - To an Earthkeeper, love is not a feeling or something your barter with. Love is the essence of who you are, and it radiates from you as a brilliant aura: You become love, practice fearlessness, and attain enlightenment.
+ - To become completely healed is to become the healer – bringing the beauty and meaning you found into the world.
+ - The Divine does not come from somewhere above, it exists beyond time and space, and informs all life.
+ - The True Self is infinite. It knows no boundaries. Pure essence. Pure light. Engulfing the mind, the soul, the body, the invisible real, with its radiance.
+ - Before you can move in new directions, you must first let go of what’s not working for you.
+ - There is a sea of consciousness that is universal, even though we each perceive it from our own shores, an awareness and a world that we all share, that can be experienced by every living being, yet is seldom seen by any.
+ - When we are no longer motivated by fear, we understand that every moment is perfect in its own way. We no longer dread what we can’t control; we learn to respect the wisdom of Spirit rather than impose our will on situations. This is the path of genuine power.
+ - When you see beauty all around you, beauty will seek and find you, even in the most unexpected places.
+ - The shaman does not believe in a division between the body and the spirit or between the visible world of form and the invisible world of energy.
+ - When we dream with the courage of our soul, we dream sacred dreams – fresh, creative, and able to infuse us with passion and courage to act.
+ - We often forget that growth requires sacrifice.
+ - The Munay-Ki is your invitation to dream an entire new world into being.
+ - The nature of the cosmos is such that whatever vision you have about yourself and the world will become reality. As soon as you awaken to the power you have, you begin to flex the muscles of your courage.
+ - One Spirit Medicine opens the doors to the invisible matrix of wisdom where everything is intertwined, where every thought we have impacts every cell in our body and every molecule in the cosmos.
+ - When you truly have the courage to dream, you have the courage to act as well.
+ - To see another with clarity and objectivity, one first must master stillness.
+ - Life will drag us kicking and screaming to our destiny if we try to escape it.
+ - To be a hero means being the author of your own myth.
+ - There are those who follow maps, and those who make them.
+ - Only when all conceptions of space and time, life and death, are exploded, when the grip of the past and fear of the future become merely conditions of one’s past, only then can one live in the present fully.
+ - The task is not to search for meaning, but to bring meaning to every situation you are in.
+ - It is through your presence that creates your reality. What am I creating? I am a co-creator.
+ - The dreams you craft at the level of your soul are very different from goals, which are tangible, measurable and set the future.
+ - Life and death and rebirth live within me.
+ - There are two kinds of people in the world: those who are dreamers and those who are being dreamed.
+ - Everyone else is waiting for eternity and the shamans are saying, ‘How about tonight?’
+ - Healing is not necessarily about curing. As your inner light grows – anything is possible.
+ - We are like a drop of water in a vast, divine ocean, distinct yet immersed in something much larger than ourselves. It’s only when we experience our connection to infinity that we’re able to dream powerfully.
+ - To be a seer is to walk softly on the earth and dream.
+ - Fate is a story that’s been written for you by somebody else. By your parent’s genes, by what happened to you when you were a child, by your culture, by the fact that you were born a man or a woman. Destiny is a story that you write.
+ - In the hall of mirrors, you are everywhere. Which is the real you? Find your original Self, the one who perceives all the reflections and is amused by them. Then you will recognize your path and walk it.
+ - Psychosis is a very Western phenomena.
+ - Patience is about understanding the right moment for action and the right moment for stillness.
+ - The shaman is a self-realized person. She discovers the ways of Spirit through her inner awakening.
+ - If your faith in reality is based on the belief that time moves in one direction only, the foundation of your faith will be shattered by the experience of the future.
+ - In order to tap into the power of dreaming, we must connect not only to the human story, but to all of nature and creation as well.
+ - An inspired and inspiring guide to living with optimism in a world that is increasingly jaded and pessimistic. Uplifting, rousing, and challenging us to dream the world into being in a positive and creative manner.
+ - Everything you experience mirrors a part of you.
+ - As soon as you awaken to the power you have, you begin to flex the muscles of your courage. Then you can dream bravely: letting go of your limiting beliefs and pushing past your fears. You can start to come up with a truly original dream that germinates in your soul and bears fruit in your life.
+ - All deaths, all endings, are a path to the next beginning.
+ - The universe is a Divine thought that has taken form.
+ - If the way of the sage is true, that we are all dreaming our world into being, then it has to apply not only to our private, personal universe but to the world at large.
+ - Courageous dreaming allows you to create from the source, the quantum soup of the universe where everything exists in a latent or potential state.
+ - The truest experience of life is when we dream awake.
+ - December 21, 2012 represents a unique opportunity for renaissance, renewal and reinvention that people have waited for for centuries.
+ - With imagination, we can hold a universe inside our minds.
+
+51 quotes

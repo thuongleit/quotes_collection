@@ -1,0 +1,40 @@
+ - The soul that beholds beauty becomes beautiful.
+ - The stars are like letters that inscribe themselves at every moment in the sky. Everything in the world is full of signs. All events are coordinated. All things depend on each other. Everything breathes together.
+ - Never stop working on your statue until the divine glory of virtue shines out on you, until you see self-mastery enthroned upon its holy seat.
+ - Mankind is poised midway between the gods and the beasts.
+ - Life is the flight of the alone to the alone.
+ - Knowledge has three degrees – opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.
+ - Beauty is rather a light that plays over the symmetry of things than that symmetry itself.
+ - Knowledge, if it does not determine action, is dead to us.
+ - Fear must be entirely banished. The purified soul will fear nothing.
+ - Withdraw into yourself and look.
+ - The world is knowable, harmonious, and good.
+ - We are not separated from spirit, we are in it.
+ - Never did eye see the sun unless it had first become sun-like, and never can the soul have vision of the First Beauty unless itself be beautiful.
+ - Become vision itself.
+ - It is precisely because there is nothing within the One that all things are from it.
+ - There is one and the same soul in many bodies.
+ - Knowing ourselves, we are beautiful; in self-ignorance, we are ugly.
+ - All things are filled full of signs, and it is a wise man who can learn about one thing from another.
+ - Withdraw into yourself and look. And if you do not find yourself beautiful as yet, do as the creator of a statue that is to be made beautiful; the sculptor cuts away here, smoothes there, makes this line lighter, this other purer, until he or she has shown a beautiful face upon the statue.
+ - God is not external to anyone, but is present with all things, though they are ignorant that He is so.
+ - One principle must make the universe a single complex living creature, one from all.
+ - Each one of us is part of the soul of the universe.
+ - When we look outside of that on which we depend we ignore our unity; looking outward we see many faces; look inward and all is one head. If a man could but be turned about, he would see at once God and himself and the All.
+ - The Soul of each one of us is sent, that the universe may be complete.
+ - The soul in its nature loves God and longs to be at one with Him in the noble love of a daughter for a noble father; but coming to human birth and lured by the courtships of this sphere, she takes up with another love, a mortal, leaves her father and falls.
+ - It is in virtue of unity that beings are beings.
+ - Nature is but an image of wisdom, the last thing of the soul; nature being a thing which doth only do, but not know.
+ - Being is desirable because it is identical with Beauty, and Beauty is loved because it is Being. We ourselves possess Beauty when we are true to our own being; ugliness is in going over to another order; knowing ourselves, we are beautiful; in self-ignorance, we are ugly.
+ - You can only apprehend the Infinite by a faculty that is superior to reason.
+ - I am striving to give back the Divine in myself to the Divine in the All.
+ - In this state of absorbed contemplation, there is no longer any question of holding an object in view; the vision is such that seeing and seen are one; object and act of vision have become identical.
+ - We must not run after it, but we must fit ourselves for the vision and then wait tranquilly for it, as the eye waits on the rising of the Sun which in its own time appears above the horizon and gives itself to our sight.
+ - We ourselves possess Beauty when we are true to our own being; ugliness is in going over to another order...
+ - Wherever it lies, under earth or over earth, the body will always rot.
+ - Knowing demands the organ fitted to the object.
+ - It is bad enough to be condemned to drag around this image in which nature has imprisoned me. Why should I consent to the perpetuation of the image of this image?
+ - Being is desirable because it is identical with Beauty, and Beauty is loved because it is Being.
+ - If someone with the right conduct tries to attain to something that lies outside of it, is his goal not the right conduct.
+
+38 quotes

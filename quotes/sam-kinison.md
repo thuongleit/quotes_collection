@@ -1,0 +1,42 @@
+ - There’s no happy ending to cocaine. You either die, you go to jail, or else you run out.
+ - Jesus is still up in Heaven, thumbing through his Bible, going ‘Where did I say build a water slide?’
+ - I have lived a carnal life. My view of life is ‘If you’re going to miss Heaven, why miss it by two inches? Miss it!’ I don’t have to go through the thing of paying for it in the next life. I know I’m screwed in the next life.
+ - I look for women I know are gonna bust me up good. Come on, man, who can resist that? Who can resist that emotional pain? Yeah, they all have the same line, they’re so sweet: I’m not gonna hurt you like all the others. Really I’m not. I’m gonna introduce you to a whole new level of pain!
+ - You know what the problem is with world hunger? We’ve been sending them food.
+ - So many people counted on me to be the party, I had to move far enough away that they wouldn’t want to drive there.
+ - Stand-up comedy is an art form and it dies unless you expand it.
+ - I’m attracted to heartbreakers.
+ - Obviously I’m not a role model for impressionable youth.
+ - I don’t worry about terrorism. I was married for two years.
+ - How does a guy look at another guy’s hairy ass, and find love?
+ - If I’ve learned one thing, it’s ‘don’t tell the truth.’ Lies keep you together.
+ - Well, life was tough, but at least I was able to live it out and I was able to face death and not be afraid.
+ - Rock Against Drugs, what a name. Somebody was high when they came up with that title. It’s like Christians Against Christ. Rock created drugs.
+ - I guess my main influences are Jesus, rock n roll and ex-wives. In that order.
+ - Real comedy doesn’t just make people laugh and think, but makes them laugh and change.
+ - What happened? Satan was busy?
+ - Rage only works if it is justified. That’s the trick with rage. You gotta have a reason to be mad.
+ - I got divorced, which was not a good thing for a revivalist minister. It did not go down well. I’d already been banned from a couple churches for my jokes. So one day I woke up and decided it was time to start living for myself.
+ - Jesus had a tough life. I read about that guy. Jesus is the only guy that ever came back from the dead that didn’t scare the F- out of everybody!
+ - Jim Bakker. He’s lost everything, he’s ruined. And the worst thing of all he still has to wake up to her!
+ - Ive never been against women. That anti-feminist rap is bogus. I think men should be nice to women, buy them diamonds.
+ - John Goodman isn’t fat. He’s in a category beyond fat. What does one call it? Whalelike.
+ - You don’t know what a rough crowd is. If all I have to do is go make people laugh, that’s nothing. Let me tell you what a tough crowd is. A tough crowd is going to a morning service and you got six people there and you gotta pat your house payment. That’s a tough crowd.
+ - It was great to be the rock comic, the shock comic. But after you’ve played Giants Stadium with Bon Jovi in front of 82,000 people, after you’ve done the ‘Wild Thing’ video with Jessica Hahn and every rock band from hell, you’re not gonna top that.
+ - If I get married again, I want a guy there with a drum to do rimshots during the vows.
+ - What am I responsible for? Who am I responsible to? Everybody? How come when Archie Bunker nailed everybody, it was funny – but when I do it, it’s not?
+ - I called a detox center – just to see how much it would cost: $13,000 for three weeks! My friends, if you can come up with thirteen grand, you don’t have a problem yet.
+ - I started saying things in church that didn’t meet with a lot of approval – like ‘Jesus isn’t coming back.’ They started throwing Bibles.
+ - I want to show people that there’s a side of myself other than just the outrageous comedian.
+ - AIDS is a horrible disease, and the people who catch it deserve compassion.
+ - When has stand-up comedy been kind to anyone? It goes after anyone who’s the target. Comedy attacks, man.
+ - I have lived a carnal life.
+ - So many of these comics are just frustrated singers or actors – they want to get a gig doing a sitcom. It’s paint-by-the-numbers comedy, lame joke-telling. They’re drawn to it as a career move.
+ - With any other celebrity, people come up and say, ‘Hey, I really like your work.’ But with my fans, when they see me, they don’t even say hello. They just go, ‘AWWWWWGHGHHHGHGHRRR!’
+ - I’d rather entertain people than offend them.
+ - Everything can be satirized.
+ - I don’t deny my life-style is occasionally pretty wild.
+ - Every generation has someone who steps outside the norm and offers a voice for the unspeakable attitudes of that time. I represent everything that’s supposed to be wrong, everything that’s forbidden.
+ - I’m responsible. I even did a commercial for MTV saying how I was going to register to vote. And I still haven’t.
+
+40 quotes

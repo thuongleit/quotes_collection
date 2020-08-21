@@ -1,0 +1,42 @@
+ - Good bye may seem forever. Farewell is like the end, but in my heart is the memory and there you will always be. ~~Walt Disney
+ - How lucky I am to have something that makes saying goodbye so hard. ~~A. A. Milne
+ - Goodbyes are only for those who love with their eyes. Because for those who love with heart and soul there is no such thing as separation. ~~Rumi
+ - Be well, do good work, and keep in touch. ~~Garrison Keillor
+ - You’ve changed me forever. And I’ll never forget you. ~~Kiera Cass
+ - Nothing’s worse than saying goodbye. It’s a little like dying. ~~Marjane Satrapi
+ - Live your life as if you are ready to say goodbye to it at any moment, as if the time left for you were some pleasant surprise. ~~Marcus Aurelius
+ - Where is the good in goodbye? ~~Meredith Willson
+ - Goodbye – Because I love you. ~~Kate Chopin
+ - I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye. ~~Yann Martel
+ - I make it easier for people to leave by making them hate me a little. ~~Cecelia Ahern
+ - I remember when we kissed. I still feel it on my lips. The time you danced with me with no music playing. I remember the simple things. I remember till I cry. But the one thing I wish I’d forget, the memory I wanna forget is goodbye. ~~Miley Cyrus
+ - The French have a phrase for it. The bastards have a phrase for everything and they are always right. To say goodbye is to die a little. ~~Raymond Chandler
+ - You endure what is unbearable, and you bear it. That is all. ~~Cassandra Clare
+ - May everyone live, And may everyone die. Hello, my love, And my love, Goodbye. ~~Leonard Cohen
+ - To say goodbye is to die a little. ~~Raymond Chandler
+ - I keep going till that pain says hello to me. I don’t say goodbye until that pain says hello. That’s a good set. ~~Greg Plitt
+ - Las Vegas is the only place I know where money really talks – it says, Goodbye. ~~Frank Sinatra
+ - What is that feeling when you’re driving away from people and they recede on the plain till you see their specks dispersing? – it’s the too-huge world vaulting us, and it’s good-bye. But we lean forward to the next crazy venture beneath the skies. ~~Jack Kerouac
+ - Now I know who you are U got nothin’ on me, I see I should’ve known it from the start You can’t tell me lies Don’t even try cuz This is goodbye Goodbye. ~~Demi Lovato
+ - I’m so sorry that I wasted your time because you really do mean a lot to me and I hope you have a very nice life because I really think you deserve it. I really do. I hope you do, too. Okay, then. Goodbye. ~~Stephen Chbosky
+ - In the twilight glow I see her, blue eyes crying in the rain. As we kissed goodbye and parted, I knew we’d never meet again. ~~Willie Nelson
+ - Nothing makes the earth seem so spacious as to have friends at a distance; they make the latitudes and longitudes. ~~Henry David Thoreau
+ - True love doesn’t have a happy ending, because true love never ends. Letting go is one way of saying I love you. ~~Barbara Johnson
+ - It’s hard to say goodbye to the place you’ve lived. It can be as hard as saying goodbye to a person. ~~Jonathan Safran Foer
+ - I didn’t want to kiss you goodbye – that was the trouble – I wanted to kiss you good night – and there’s a lot of difference. ~~Ernest Hemingway
+ - Gone – flitted away, Taken the stars from the night and the sun From the day! Gone, and a cloud in my heart. ~~Alfred Tennyson
+ - The funny thing is you oddly don’t really say goodbye to all the characters you’ve played. There’s like a chest of drawers in your head that you can always access. They’re always around. I’m not sure if that’s healthy. But they’re all there. ~~Johnny Depp
+ - Leaving San Francisco is like saying goodbye to an old sweetheart. You want to linger as long as possible. ~~Walter Cronkite
+ - I love you too much to say goodbye. ~~Lauren Kate
+ - But all the love in the world won’t save a sinking ship. You have to either bail or jump overboard. ~~Sarah Dessen
+ - Here lies my past, Goodbye I have kissed it; Thank you kids, I wouldn’t have missed it. ~~Ogden Nash
+ - The reason I don’t tweet as much as I used to, is because I’m sick of all the useless opinions and hate that I get daily. Goodbye Twitter. ~~Zayn Malik
+ - And before he can tell her to tell Widget goodbye for him if need be, she leans forward and kisses him, not on the cheek, as she has a handful of times before, but on the lips, and Bailey knows in that moment that he will follow her anywhere. ~~Erin Morgenstern
+ - Not so cold, some snow fell. I went inside the log cabin and said goodbye to Mother, she was so alike grandmother, just younger. ~~Anders Zorn
+ - You are allowed to be alive. You are allowed to be somebody different. You are allowed to not say goodbye to anybody or explain a single thing to anyone, ever. ~~Augusten Burroughs
+ - If my father could have sat up in bed and said goodbye, I’d have pressed the button. I wouldn’t have been able to see for crying, but I would have considered that a duty. ~~Terry Pratchett
+ - Every parting is a form of death, as every reunion is a type of heaven. ~~Tryon Edwards
+ - People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar. ~~Nhat Hanh
+ - There’s never a right time to say goodbye. ~~Chris Brown
+
+40 quotes

@@ -1,0 +1,54 @@
+ - My private life is private. But at the same time, I have nothing to hide. So what I will say is that I am very happy.
+ - I find that vegetables like butternut squash, which I feel unexcited about as a side dish, I’m thrilled to eat in a soup.
+ - I’m so not a financial person.
+ - Cancer is really hard to go through and it’s really hard to watch someone you love go through, and I know because I have been on both sides of the equation.
+ - Talk with your doctor, make healthy lifestyle choices and most importantly, know your body – as that can make all the difference in the world.
+ - I had a lumpectomy. It wasn’t that bad. Six and a half weeks of radiation.
+ - I am definitely as happy as I’ve ever been. Happier, I would say, than I’ve ever been.
+ - Now I have a third must-do on my list of things to do with cancer, and it’s this: follow your gut, ask questions, don’t be complacent.
+ - The only thing we have to fear is fear itself. So the only thing to really be afraid of is if you don’t go get your mammograms.
+ - My girlfriend is much better than I am at working hard then resting, and she demands that from me, too. She insists on having time when we don’t do anything. We leave the housework and watch a movie.
+ - Unlike me, a lot of child actors are very short, which is why they work. So when they’re 15 they can play 11 or when they’re 18 they can play 14. They look young for so long, they have abilities a much younger kid wouldn’t have.
+ - There are no available men in their thirties in New York. Giuliani had them removed along with the homeless.
+ - I am not a redhead, I’m a blonde.
+ - My mother has battled breast cancer three times.
+ - Women’s health needs to be front and center – it often isn’t, but it needs to be.
+ - Gay people who want to marry have no desire to redefine marriage in any way. When women got the right to vote, it did not redefine voting.
+ - I’m a very big public school advocate.
+ - I love a warm bath at the end of a day.
+ - Women are half the population and they know how to take care of themselves, if they are only given access to health care.
+ - Nobody ever really thought of me as sexy, right? They thought of me as smart and quirky.
+ - I feel that between my experience and my mother’s, breast cancer is a little bit like someone who lives next door. I know what that person looks like and what their daily habits are.
+ - I met this woman, I fell in love with her, and I’m a public figure.
+ - I don’t define myself. I’m just a woman in love with another woman.
+ - A couple of hanging glands have nothing to do with making someone a man.
+ - I think TV is the only place left where you can have a midsize something.
+ - I go for my completely routine mammogram and then I get a call from my gynecologist. And she says, ‘Well, I have some – it’s not such great news, but here it is, but it’s very small and we’re just going to get in there and take it right out, right away, and then you’ll probably have radiation.’
+ - I am always looking for a great play and a great part to do.
+ - I don’t really want to get married to get married pretend.
+ - I do tend to be an analyzer. I’m an old English major from way back, so I do have fun tearing apart texts and trying to find the hidden secrets and the subtexts in there.
+ - I’m a total theater junkie – whether I’m working on a stage or sitting in a seat. I am always looking for a great play and a great part to do.
+ - I’ve seen wonderful stay-at-home moms and moms who could use a little improving.
+ - Abortion is a hard thing for Hollywood to deal with because it is so controversial and you don’t want to alienate half your audience by sending one message or the other.
+ - Motherhood is the only thing in my life that I’ve really known for sure is something I wanted to do.
+ - I don’t have Steve. There is no having the Steve.
+ - I’ve always been wary of marriage.
+ - I understand that if I really need my hair to be nice, now I hire someone to do it, and I understand that putting on a pair of heels really makes a difference.
+ - I am heat obsessed. I crave the heat in my bedroom.
+ - I’m fairly out of the loop when it comes to pop culture.
+ - I think my least healthy habit is running around too much. And I think I’m getting better about it as I’m getting older.
+ - Abortion is a right I feel must not go away, and I feel like people aren’t mobilizing so much because it’s so complicated and it’s difficult to understand.
+ - Even though I’m over 35, I feel like so much more of a leading lady than I did when I was 30.
+ - Some friends of mine who are actors feel directing shuts them down and kills all their impulses, but the worst thing for me is if I feel a director hasn’t noticed.
+ - I always sort of thought, ‘I’m probably going to get breast cancer. There’s a really good chance.’
+ - I never felt like there was an unconscious part of me around that woke up or that came out of the closet; there wasn’t a struggle, there wasn’t an attempt to suppress.
+ - I’d do a show about garbagemen if it was good!
+ - Your good friend has just taken a piece of cake out of the garbage and eaten it. You will probably need this information when you check me into the Betty Crocker Clinic.
+ - What I do for exercise sort of depends on what’s happening in the rest of my life.
+ - I have a lot of shoes.
+ - I can’t go on anymore bad dates. I would rather be home alone than out with some guy who sells socks on the internet.
+ - I used to just take every job that seemed relatively appealing. But now I take a job and it’s in the trades the next day – it feels like people are watching and waiting to see what you do, and when you do take a job, attention is noted.
+ - I just want my relationship to be more for myself rather than a public statement.
+ - I think women still want to be married. But I don’t think they’ll do anything to get married anymore.
+
+52 quotes

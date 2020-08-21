@@ -1,0 +1,64 @@
+ - Success takes communication, collaboration and, sometimes, failure.
+ - My theory is that if you look confident you can pull off anything – even if you have no clue what you’re doing.
+ - Being perfect is being flawed, accepting it, and never letting it make you feel less than your best.
+ - You have to be tenacious, you have to be focused, you have to have a real vision, and be extremely passionate about it.
+ - Love is ever evolving and it takes compromise, work and patience.
+ - Find your passion and do it totally. The more life experience you get, the better you’ll be at whatever you want to do.
+ - Guys are stimulated easily. They are easy to manipulate. All you have to do is wear a sexy outfit.
+ - Your husband or your wife is the only person you can really choose to be your family and to have unconditional love with them.
+ - Nanotechnology is really interesting to me. Stuff to sort of make our world a better place, and a cleaner place, through science. And it also explains things that are happening. I’ve always been into it.
+ - I loved my baby dolls when I was a kid. I used to pray with them and say good night to each and every one of them because I didn’t want their feelings to get hurt. I remember having that connection with my baby dolls.
+ - Honor has to say “please” and “thank you.” Manners are really important.
+ - I don’t need to be famous. I’m not that ambitious. At this point, if I’m not sucked in, I’m never going to get sucked in. Being the so-called hot girl, I disconnect from that. It’s not that deep.
+ - Makeup can be pure fantasy – it can transform you into any kind of magical creature, whether that’s a superhero or a retro Hollywood icon or just a more fun, fresher version of yourself. Looking like a stress-free, well-rested working mom? That’s some kind of magic to me.
+ - I share the same advice that my mom gave me – stay hydrated and sleep well. And that being a beautiful person on the inside is what really matters.
+ - I’m really good at being sarcastic with guys. That’s the best way to hang out with them, because that’s what guys. They don’t want the quiet, prissy little things.
+ - Everyone has an opinion of who you are and what your relationship is about, things that you’ve done or didn’t do in your relationship – and it’s just all crap, really. Things that are written about it are all crap.
+ - I could have sexual chemistry with vinegar.
+ - I’m much more of a risk taker. I’m more fearless now than when I was 18. I was much more self-aware and I cared too much about what people thought of me and now I really don’t. I probably should.
+ - If I didn’t get a job, between 16 and 18, that wasn’t significant, I was just going to go to college. I didn’t want to be a struggling actor at 36 with five kids, doing something I hated. You see the story so much. It’s such a vicious business to be in when you’re not meant to be in it.
+ - I love acting because it’s this space where dreams can be realized, fantasy comes to life, and there are no limitations on what’s possible.
+ - For me, makeup is about being your best self. If I wake up in a foul mood and have to deal with temper tantrums and an exploding diaper – I know taking 10 minutes to get my game face on will reset my stress levels. It’s a chance to check in and remind myself – you got this.
+ - Movies are the shadiest business in the world.
+ - I’ve got cousins galore, Mexicans just spread all their seeds and the women just pop them out.
+ - There’s no such thing as a perfect guy. I think it would be strange if somebody was absolutely everything you always wanted, because then there’d be no challenge. Also, you’d feel inferior.
+ - My parents were young and liberal and knew I was going to drink anyway, so they let me do it at home.
+ - Way too high maintenance to be in a relationship with an actor. I don’t need a man who spends as much time in front of the mirror as me.
+ - The films I do always have a happy ending. I hope it reflects back to real life.
+ - As a kid, I was always sick. I had pneumonia, I had really severe allergies. And it wasn’t until I got older, that I realized some of that was caused by toxins in things like detergent. That made me crazy, because it’s supposed to help get things clean!
+ - I’m not incredibly self-conscious. I don’t really feel like I walk around making fashion or my appearance the most important thing in the world. It’s certainly not the way that I live my life. I’m not really sure how the magazines perceive me because I don’t read them.
+ - I don’t hang out with the Hollywood cool people. I’m not out trying to make friends with people because they’re famous.
+ - I always try to do something for my husband that’s completely selfless, and something that I hope will rock his world in some form or fashion.
+ - I wish I could speak Spanish, because it would be a lot easier to play more interesting roles.
+ - No one gives Cameron Diaz a hard time for not speaking Spanish.
+ - A parent knows better than any book or “expert” what their kid really needs.
+ - I thought it was my job to give all the boys their first kiss.
+ - As a girl, I was always told I was nasty or dirty if I was sexual in any way. Americans are such prudes.
+ - I don’t put weight on fame, and having people around me just because I am famous makes me feel really bad about myself.
+ - Just being a mother is making me a big, weepy mess.
+ - Mike Adams, you are simply the sexiest man alive. You have my vote in .
+ - All moms need confidants who are in their shoes and can relate to what they’re going through. You need a night out together to be who you are, and not feel like you have to be the career woman, wife and mommy – all at once. After all, we’re not superwomen.
+ - I can’t tell you how great it is to get away with a girlfriend for four days shopping in Paris. Now that’s what I call a vacation.
+ - The secret to using power is not to use it. Just having it is enough.
+ - I did research when I was pregnant with my first daughter and was horrified by the chemicals in products, even those meant for babies. I would have to go to 50 different places just to get my house and my kid clean.
+ - I think that people who don’t like animals tend to be selfish, but I’m biased.
+ - Like many other moms out there, I try to buy safe products for my family, but that can’t be the only solution. You can’t hire a team of scientists to do your shopping for you. At some point the government has to step in and ensure that chemicals are safe before our children are exposed to them.
+ - When I work out, I have energy and feel good about myself.
+ - It’s not always so great to be objectified, but I don’t feel I have much of a choice right now. I’m young in my career. I know I have to strike when the iron is hot.
+ - I’ve been getting my makeup done professionally since I was 12, I’ve never found a brand that could create that glowing look and flawless finish we all want from beauty products with ingredients that were effective and safe. So I had to create it.
+ - I am the good girl and I always play the good girl. It’s nice to do that.
+ - When I used to do the action scenes, I would have to play it rough. If you hit an actress accidentally, she would usually take it on the chin and say, ‘Don’t do that again.’ But with the guys, they would put ice on it, take a 20-minute break and ask for x-rays. It was unbelievable.
+ - The time I’m not spending with my kid has to be worth it, so when I sat down with my agents after I was ready to go back to work, I told them: It’s all about the directors.
+ - I’m comfortable looking sexy. I don’t push it with poses, although I like the ironic part of it. That’s what makes it fun.
+ - I’m not trying to do stuff for my kids necessarily all the time, but when you get the odd opportunity to do something for them that they could enjoy its cool.
+ - The time I’m not spending with my kid has to be worth it.
+ - Good actors never use the script unless it’s amazing writing. All the good actors I’ve worked with, they all say whatever they want to say.
+ - Parents try the best they can. They want the best for you. But a lot of their stuff is just their own. If you can pull yourself away from it and not always feel like they’re attacking you, then it’s easier to deal with.
+ - After a bath, I like to use Jo Wood Organics Usiku Body Oil. It mositurises my skin without leaving it greasy.
+ - When I do comedy, I lose all inhibition and introspection. I no longer care.
+ - I think the world is ready for people of color to take on more heroic and leading roles, and not always be the sidekick, the nemesis or any sort of stereotype of what a person of color can play typically in a Hollywood picture.
+ - I’m all about supporting anyone whose art is also the way they make their living.
+ - Most nights I end up wearing a wife beater T-shirt and boxers.
+ - It feels like I’m starting to come into my own in terms of where I want to go artistically, toward more complicated, interesting characters.
+
+62 quotes

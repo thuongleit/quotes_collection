@@ -1,0 +1,27 @@
+ - It’s a beautiful day, and I can’t stop myself from smiling!
+ - I might have to wait. I’ll never give up. I guess it’s half timing, and the other half’s luck. Wherever you are, whenever it’s right, you’ll come out of nowhere and into my life.
+ - Jazz is like a great blues band that fell down the stairs.
+ - When grandpa was ill and could’ve died, I would have swapped all my record sales so he could get well. He is the reason I am a singer. He was my best friend growing up.
+ - I have a tendency to sabotage relationships; I have a tendency to sabotage everything. Fear of success, fear of failure, fear of being afraid. Useless, good-for-nothing thoughts.
+ - I am a candid interview and I have a dark and dry sense of humor – a very Canadian sense of humor and I am only learning now stupidly that you can’t read tongue. When I say something funny in a newspaper and I meant it to be funny, it doesn’t read that way.
+ - I think the legacy we leave is our family. I don’t think it’s money. I don’t think it’s – I’m not saying that charity isn’t a great thing. I just think that it’s my family. Even now I look and I think, God, I’m lucky if I lost it all.
+ - I am singing a genre of music that people are very protective of. I am being compared to the greatest vocalist of all time.
+ - When I say something funny in a newspaper and I meant it to be funny, it doesn’t read that way.
+ - I am a candid interview and I have a dark and dry sense of humor – a very Canadian sense of humor.
+ - I just don’t want people to think I’m too sweet of a boy; and little miss angel boy, because I’m going to get caught doing somebody horrible.
+ - It turns out that I’m far too schizophrenic musically for people to categorize me. I think people judge me a lot before they ever really know who I am.
+ - I had this strange belief, perhaps naively, that somehow, if I kept working hard, and I kept doing it with integrity, that I would get my chance.
+ - I think I’m a mama’s boy who wanted to be a hockey player, who failed, and had to become a singer. I think that I’m a generous, impatient, kind, jerk.
+ - I would rather have people be even cynical about me than to feed the negative vibe. Y.
+ - Someone asked me the other day, ‘Do you get upset when people say you are the young Frank Sinatra?’ It doesn’t upset me. It is a huge compliment, but it is false.
+ - I get to study and I got to mimic and what I basically did was I stole from every person that I could steal from. I was an imitator. That’s what I was. It was years before I could take all of these things that I loved about all of these different artists and put them together and find my voice.
+ - I think Elvis Presley is a crooner. Even people like Eddie Vedder, I hear him sing some things and I go “wow”. Seal, that kind of nice voice, too.
+ - It’s a bit shocking when you show up in Africa or you’re in the middle of Spain and there are people that know the words and the young kids singing along.
+ - I don’t want to be the flavor, the passing thing that the girls scream at. I think that it’s more important for me, honestly, that the guy who gets dragged to the show, you know, looks at his wife and says, thank you, that was great and tells his buddies.
+ - You want to be commercially successful and critically acclaimed. But the truth is, there’s only a few Bruce Springsteens and Paul McCartneys out there.
+ - Not that I’m some rocker, but what I do in a show is probably far more aggressive than what Dean Martin or Bobby Darin ever did.
+ - I don’t think it’s soft at all. I think a man can be in touch with his emotions.
+ - You can try to trick the people and come out wearing a fedora and a tuxedo but that’s not me. I was born in the late ’70s, I wear jeans. I don’t hang out in casinos. The lifestyle isn’t my thing. I don’t drink martinis and I don’t smoke cigars.
+ - I have not earned the right to be called the young Sinatra, but give me time.
+
+25 quotes

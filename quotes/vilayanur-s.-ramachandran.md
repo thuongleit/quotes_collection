@@ -1,0 +1,32 @@
+ - Here is this three-pound mass of jelly you can hold in the palm of your hand, and it can contemplate the vastness of interstellar space. It can contemplate the meaning of infinity and it can contemplate itself contemplating on the meaning of infinity.
+ - The boundary between neurology and psychiatry is becoming increasingly blurred, and its only a matter of time before psychiatry becomes just another branch of neurology.
+ - What the neurology tells us is that the self consists of many components, and the notion of one unitary self may well be an illusion.
+ - What do we mean by “knowledge” or “understanding”? And how do billions of neurons achieve them? These are complete mysteries. Admittedly, cognitive neuroscientists are still very vague about the exact meaning of words like “understand,” “think,” and indeed the word “meaning” itself.
+ - There is no real independent self, aloof from other human beings, inspecting the world, inspecting other people. You are, in fact, connected not just via Facebook and Internet, you’re actually quite literally connected by your neurons.
+ - The visual system of the brain has the organization, computational profile, and architecture it has in order to facilitate the organism’s thriving at the four Fs: feeding fleeing, fighting, and reproduction.
+ - Even today no computer can understand language as well as a three-year-old or see as well as a mouse.
+ - Curiosity illuminates the correct path to anything in life. If you’re not curious, that’s when your brain is starting to die.
+ - Remember that politics, colonialism, imperialism and war also originate in the human brain.
+ - Lofty questions about the mind are fascinating to ask, philosophers have been asking them for three millennia both in India where I am from and here in the West – but it is only in the brain that we can eventually hope to find the answers.
+ - Science is like a love affair with nature; an elusive, tantalising mistress. It has all the turbulence, twists and turns of romantic love, but thats part of the game.
+ - Without ducking responsibility, what’s wrong with medicine today is that it is predicated on providing treatment, not on reducing suffering. Not on solving problems.
+ - A culture without mythology is not really a civilisation.
+ - You cant just take an image and randomly distort it and call it art – although many people in La Jolla where I come from do precisely that.
+ - Indeed, the line between perceiving and hallucinating is not as crisp as we like to think. In a sense, when we look at the world, we are hallucinating all the time. One could almost regard perception as the act of choosing the one hallucination that best fits the incoming data.
+ - A genius is somebody who seemingly just reaches out of nowhere.
+ - Any ape can reach for a banana, but only humans can reach for the stars.
+ - The minute you succumb to outside pressure, you cease to be creative.
+ - We are not angels, we are merely sophisticated apes. Yet we feel like angels trapped inside the bodies of beasts, craving transcendence and all the time trying to spread our wings and fly off, and it’s really a very odd predicament to be in, if you think about it.
+ - Our ability to perceive the world around us seems so effortless that we tend to take it for granted.
+ - Great art allows you to transcend your mortal frame and to reach for the stars. I think great science does the same thing.
+ - Yet as human beings we have to accept-with humility-that the question of ultimate origins will always remain with us, no matter how deeply we understand the brain and the cosmos that it creates.
+ - With the arrival of humans, it has been said, the universe has suddenly become conscious of itself. This, truly, it the greatest mystery of all.
+ - People often ask how I got interested in the brain; my rhetorical answer is: ‘How can anyone NOT be interested in it?’ Everything you call ‘human nature’ and consciousness arises from it.
+ - The adage that fact is stranger than fiction seems to be especially true for the workings of the brain.
+ - Your conscious life is an elaborate after-the-fact rationalization of things you really do for other reasons.
+ - The brain abhors discrepancies.
+ - Think about what artists, novelists and poets have in common: the ability to engage in metaphorical thinking, linking seemingly unrelated ideas, such as, ‘It is the east, and Juliet is the Sun.’
+ - If we knew about the real facts and statistics of mortality, wed be terrified.
+ - If you’re a thinking person, the liver is interesting, but nothing is more intriguing than the brain.
+
+30 quotes

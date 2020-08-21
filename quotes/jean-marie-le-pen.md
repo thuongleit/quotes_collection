@@ -1,0 +1,31 @@
+ - Everyone sees drama from his own perspective.
+ - You cannot speak on behalf of a nation when you have no mandate to do so.
+ - Marine Le Pen may want me dead, that’s possible, but she must not count on my co-operation.
+ - In recent years – before the intifada – there were three or four incidents of anti-Semitism a year, and that’s out of 18 million crimes and violations of the law.
+ - There is an Islamic population in France, most of which comes from the North African countries.
+ - Millions also perished in the Chinese camps, and there have been terrible genocides in Cambodia and Vietnam.
+ - The second world war claimed tens of millions of victims.
+ - The Vichy government was under occupation and carried out the orders of the German occupier.
+ - I have said and I repeat, at the risk of being sacrilegious, that the gas chambers are a detail of the history of the Second World War.
+ - An ancient dictum says that when Zeus wanted to destroy someone, he would first drive him mad.
+ - You must either suffer in this life or give up the hope of seeing God in Heaven. Sufferings and persecutions are of the greatest avail to us, because we can find therein a very efficient means to make atonement for our sins, since we are bound to suffer for them either in this world or in the next.
+ - My father was killed by a German mine, while I lost other relatives in Allied bombing attacks.
+ - When you write a two thousand page history of the Second World War, the deportations and the concentration camps will take up five pages, and the gas chambers perhaps 20 lines.
+ - The much greater crimes of the Soviet Gulags occurred over decades and cost millions of lives.
+ - Im always suspicious of people who repent of other peoples sins.
+ - However, the wind only changes the picture temporarily, the substrate remains the same and sooner or later the same picture surfaces once again.
+ - After all, you’re not exactly a nation like all the other nations. You are unique, if only because you are such an ancient people, and because of the way you are spread all over the world and your obvious success in many fields.
+ - France was an occupied country, a country that surrendered and was left without the right to choose.
+ - The government would have preferred not to take a stand, but the constant presence of the Israeli-Arab conflict on our television screens made it an issue that could no longer be avoided.
+ - What’s surprising is that the people who fought against torture here are the communists.
+ - As for me, even though I have been accused of anti-Semitism countless times, no one has ever heard me make anti-Semitic statements or engage in anti-Semitic behavior.
+ - There was no reason to label us as anti-Semitic.
+ - There wasn’t anti-Semitism in France.
+ - There must be an authority, and we believe that the most qualified authority in a household is the man’s.
+ - When two drivers curse each other on the road, and one of them happens to be a Jew, you can’t define that as anti-Semitism.
+ - Political rivals attacked me. I was savagely beaten. I was kicked in the face and I lost my eye as a result.
+ - For some the most terrible aspect of it was the deportations, while for others it was the leveling bombings or the mass deaths by starvation and cold.
+ - The suffering caused by the terrorists is the real torture.
+ - I’m not saying that the gas chambers didn’t exist. I couldn’t see them myself.
+
+29 quotes

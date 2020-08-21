@@ -1,0 +1,42 @@
+ - The bond that links your true family is not one of blood, but of respect and joy in each other’s life. ~~Richard Bach
+ - Aim high, work hard, and love your family. ~~Deborah Roberts
+ - What can you do to promote world peace? Go home and love your family. ~~Mother Teresa
+ - The strength of a family, like the strength of an army, lies in its loyalty to each other. ~~Mario Puzo
+ - This is part of what a family is about, not just love. It’s knowing that your family will be there watching out for you. Nothing else will give you that. Not money. Not fame. Not work. ~~Mitch Albom
+ - There is nothing like staying at home for real comfort. ~~Jane Austen
+ - United we stand, divided we fall. ~~Aesop
+ - A happy family is but an earlier heaven. ~~George Bernard Shaw
+ - THINK before you speak. Is it True, Helpful, Inspiring, Necessary, Kind? ~~Alan Redpath
+ - Laughter is an instant vacation. ~~Milton Berle
+ - If you don’t know history, then you don’t know anything. You are a leaf that doesn’t know it is part of a tree. ~~Michael Crichton
+ - Don’t build walls and shut people out of your life. To act as if another does not exist is a mean and cruel weapon. ~~Joyce Meyer
+ - There is no more lovely, friendly and charming relationship, communion or company than a good marriage. ~~Martin Luther
+ - All family life is organized around the most damaged person in it. ~~Sigmund Freud
+ - A happy marriage is the union of two good forgivers. ~~Ruth Bell Graham
+ - God’s dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion. ~~Desmond Tutu
+ - Peace in society depends upon peace in the family. ~~Saint Augustine
+ - All happy families resemble one another, each unhappy family is unhappy in its own way. ~~Leo Tolstoy
+ - It is not until you become a mother that your judgment slowly turns to compassion and understanding. ~~Erma Bombeck
+ - If it looks like a duck, and quacks like a duck, we have at least to consider the possibility that we have a small aquatic bird of the family anatidae on our hands. ~~Douglas Adams
+ - Your family and your love must be cultivated like a garden. Time, effort, and imagination must be summoned constantly to keep any relationship flourishing and growing. ~~Jim Rohn
+ - Once you agree upon the price you and your family must pay for success, it enables you to ignore the minor hurts, the opponent’s pressure, and the temporary failures. ~~Vince Lombardi
+ - Strangers are just family you have yet to come to know. ~~Mitch Albom
+ - Friends and good manners will carry you where money won't go. ~~Margaret Walker
+ - Only those who have learned the power of sincere and selfless contribution experience life’s deepest joy: true fulfillment. ~~Tony Robbins
+ - Sexiness wears thin after a while and beauty fades, but to be married to a man who makes you laugh every day, ah, now that’s a real treat. ~~Joanne Woodward
+ - I don’t want to be interesting. I want to be good. ~~Ludwig Mies Van Der Rohe
+ - There are trivial truths and the great truths. The opposite of a trivial truth is plainly false. The opposite of a great truth is also true. ~~Niels Bohr
+ - Family connexions were always worth preserving, good company always worth seeking. ~~Jane Austen
+ - First and foremost comes my family and my life with Brad. We have so much joy in raising our children and teaching them about the world that nothing really compares to that. ~~Angelina Jolie
+ - A child who is allowed to be disrespectful to his parents will not have true respect for anyone. ~~Billy Graham
+ - No one is useless in this world who lightens the burdens of another. ~~Charles Dickens
+ - Watch your manner of speech if you wish to develop a peaceful state of mind. Start each day by affirming peaceful, contented and happy attitudes and your days will tend to be pleasant and successful. ~~Norman Vincent Peale
+ - No matter what you’ve done for yourself or for humanity, if you can’t look back on having given love and attention to your own family, what have you really accomplished? ~~Lee Iacocca
+ - Great achievement is usually born of great sacrifice, and is never the result of selfishness. ~~Napoleon Hill
+ - A man should never neglect his family for business. ~~Walt Disney
+ - Trust yourself, you know more than you think you do. ~~Benjamin Spock
+ - Small deeds done are better than great deeds planned. ~~Peter Marshall
+ - Love is not love that alters when it alteration finds. ~~William Shakespeare
+ - A mother’s love for her child is like nothing else in the world. It knows no law, no pity, it dares all things and crushes down remorselessly all that stands in its path. ~~Agatha Christie
+
+40 quotes

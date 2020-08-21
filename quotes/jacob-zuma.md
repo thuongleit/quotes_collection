@@ -1,0 +1,33 @@
+ - Jan van Riebeeck’s arrival in Cape Town was the beginning of all South Africa’s problems.
+ - Once we have the infrastructure in Africa, it should not be blocked by borders.
+ - Those who vote for the ANC will be blessed on earth and heaven.
+ - People are constantly applying double standards. Take the United States, for example. Washington wants the whole world to admire the country for its democracy. Then the government sends out its army, in the name of this democracy, and leaves behind the kind of chaos we see in Iraq.
+ - There is no cloud above my head – there is not even a mist.
+ - The ANC will rule South Africa until Jesus comes back.
+ - It is wrong to leave the ANC, in fact, it is cold and rough outside the ANC. People must remain in the party and try to fix things internally because those who do leave they will attract the wrath of the ancestors, who will also bring that person bad luck.
+ - African problems should have African solutions.
+ - The ANC is more important than the Constitution.
+ - A shower would minimise the risk of contracting the disease.
+ - Aid should shift to investment. This will help countries stand on their own.
+ - As a citizen of this country, I’ve got to be honest to the people of South Africa.
+ - People tend to try to find something to talk about Zuma. My surname is very nice and simple. Very simple, so they like pronouncing it all the time. So what’s the problem?
+ - Criminality is always the result of poverty.
+ - You have fewer rights because you are a minority. Absolutely, that’s how democracy works.
+ - Criminality is always the result of poverty. Countries that experience such a fundamental change as we have – we had the apartheid regime and must now develop a multicultural democracy – must necessarily pass through a phase of high crime rates.
+ - There is not a single country in the world that is not interested in doing business with China. And no one is seriously concerned about human rights. But Africans are criticized for wanting to do business with China.
+ - What made Nelson Mandela great, was precisely what made him human. We saw in him, what we seek in ourselves.
+ - We South Africans are also crazy about football, so the World Cup can be nothing but successful.
+ - Me? Well, I don’t know, I must go to a dictionary and learn what a crook is. I’ve never been a crook.
+ - The Constitution is only there to regulate matters.
+ - Even if you apply any kind of lotion and straighten your hair you will never be white.
+ - It’s just a figment of the imagination.
+ - We have noted the appeal of Honorable Ambrosini about the decriminalizing of marijuana for medical use.
+ - The results will be very good.
+ - No one person can be above the ANC. He can’t be.
+ - Africa suffered under European dominance for centuries.
+ - When I joined the ANC, I never thought I would be anything. In no way, did I say, ‘One day I could be the president. I think I am good material for the presidency.’ Not at all.
+ - The ancestors will turn their backs against you and you will have bad luck forever if you leave the ANC unhappy.
+ - We want to eradicate all mud schools. We are already doing so. We are not in a hurry because no one is going to rule but the ANC.
+ - Africa has decided to take matters of instability into its own hands.
+
+31 quotes

@@ -1,0 +1,31 @@
+ - If you work on something a little bit every day, you end up with something that is massive.
+ - It’s not plagiarism in the digital age – it’s repurposing.
+ - Automation and technology don’t cure behavioral ruts: they just create new instances of them.
+ - An updated notion of genius would have to center around one’s mastery of information and its dissemination.
+ - Art used to make me see the world differently, think about things in a new way – it rarely does that for me anymore, but technology does that for me on a daily basis.
+ - I think it’s time to admit that our writing is guided by the technology we use as much as it is by our own subjectivity.
+ - You can’t show me a sentence, word, or phoneme that is meaningless; by its nature, language is packed with meaning and emotion.
+ - How fortunate we are to exist in the moneyless economy of poetry! When you take money out of the equation, anything goes and nobody cares. It’s truly free.
+ - If you don’t want something to exist – and there are many reasons to want to keep things private – keep it off the web. But if you put it in digital form, expect it to be bootlegged, remixed, manipulated, and endlessly commented upon.
+ - Conceptual writing is looking for that “Aha!” moment, when something so simple, right under our noses, is revealed as being awe- inspiring, profound, and transcendent.
+ - All of our media is made of language: our films, our music, our images, and of course our words. How different this is from analog production, where, if you were somehow able to peel back the emulsion from, say, a photograph, you wouldn’t find a speck of language lurking below the surface.
+ - New York City is just one node on the global cultural scene. Social media reflects the state of the world, so I’ve become more devoted to that. To be a NYC artist feels local and small. Social media feels now.
+ - Language is material to shape and mold, not only a transparent or invisible medium for communication, business contracts, or telling stories.
+ - I think that writers often try too hard in the name of expression, when often it’s just a matter of reframing what’s around you or republishing a preexisting text into a new environment that makes for a successful work.
+ - I don’t think that the world will ever become an unpoliced place, sadly. But I do feel that there is relative freedom on the margins.
+ - Poets think in short lines. Unless you’re Samuel Beckett, Twitter might be more difficult for novelists.
+ - It’s Twitter’s combination of simplicity and complexity that is astonishing in the same way that minimalist sculpture was inspiring and enlightening.
+ - We’re living in a time when the sheer amount of language has exponentially increased. As writers, if we wish to be contemporary, I think we need to acknowledge that the very nature of the materials that we’re working with – the landscape of language – is very different than it was a few decades ago.
+ - I don’t have a readership, I have a thinkership. I guess this is why what I do is called “conceptual writing.” The idea is much more important than the product.
+ - I often don’t endorse what I tweet, rather I want to throw things about to spark conversation or controversy. What I think about something is not particularly important when talking to thousands of unknown strangers.
+ - Most artists want first and foremost to be loved, secondly to make history, and money is a distant third or fourth.
+ - Favoriting tweets has become a form of acknowledging that you’ve read what someone else has written.
+ - I think that the richer and deeper documentation is on the web, the better off we all are.
+ - Twitter is not art. But it inspires me in the way that art used to inspire me.
+ - I think that the special thing about radio is the off switch. If something’s not pleasing you, turn it off.
+ - I’ve been trolled lots. But I understand trolls for what they are and I don’t let them get to me. They take my bait, so I’m in charge of the discourse.
+ - I never wanted my books to be mistaken for poetry or fiction books; I wanted to write reference books. But instead of referring to something, they refer to nothing.
+ - It’s hard to be understood when addressing many people at once. How can you ever know if you’re being understood? So, I’ve just started being intelligently provocative. And people take the bait.
+ - What I’m doing in writing has been thoroughly and exhaustively explored in other fields like visual art, music, and cinema, yet somehow it’s never really been tested on the page.
+
+29 quotes

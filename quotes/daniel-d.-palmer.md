@@ -1,0 +1,38 @@
+ - Study first, play afterwards.
+ - Chiropractic embraces the science of life, the knowledge of how organisms act in health and disease, and also the art of adjusting the neuroskeleton.
+ - There is a vast difference between treating effects and adjusting the cause.
+ - Little deeds are like little seeds, they grow to flowers or to weeds.
+ - Life is the expression of tone. In that sentence is the basic principle of Chiropractic.
+ - Excelsior, higher and higher, but only step by step.
+ - Chiropractic is founded upon different principles than those of medicine.
+ - The best physicians are Dr. Diet, Dr. Quiet, and Dr. Merryman.
+ - Pressure on nerves causes irriatation and tension with deranged functions as a result. Why not release the pressure? Why not adjust the cause instead of treating the effects? Why not?
+ - Grief causes suffering and disease.
+ - Disease is the abnormal performance of certain functions; the abnormal activity has its causes.
+ - Life is but the expression of spirit through matter. To make life manifest requires the union of spirit and body.
+ - Chiropractic is a science just so far as it is specific.
+ - I desired to know why one person was ailing and his associate, eating at the same table, working in the same shop, at the same bench was not. Why? What difference was there in these two persons that caused one to have various diseases, while his partner escaped?
+ - The only failure one man should fear, is the failure to do his best.
+ - Chiropractors correct abnormalities of the intellect as well as those of the body.
+ - Man is a physical and spiritual epitome of the Universe.
+ - Many patients imagine that they have tried everything. True, they have used many remedies, but they have never had the cause of their infirmity adjusted.
+ - Drugs are delusive; they do not adjust anything.
+ - Innate directs its vital energy through the nervous system to specialize the coordination and sensation and volition through the cumulative and vegetative functions.
+ - To be specific, is to exhibit a knowledge of the principles and art of adjusting; a comprehension of facts so systematized that they are available for the relief of disease.
+ - Compulsory vaccination is an outrage and a gross interference with the liberty of the people in a land of freedom.
+ - I claimed to be the first person to adjust a vertebra by hand, using the spinous and transverse processes and levers. I developed the art known as adjusting, and formulated the science of chiropractic, and developed its philosophy.
+ - Disease is a disturbed condition, not a thing or entity.
+ - I laid the foundation and built thereon, the science of CHIROPRACTIC.
+ - That which I named ‘innate’ is a segment of that intelligence which fills the universe.
+ - Innate is a segment of the All-Wise; Educated is an offspring of innate, a servant for its lifetime only. Educated continues with and lasts as long as life exists; Innate is eternal, always was and always will be.
+ - The spiritual is the cause of action. Action is life.
+ - The advancement of all sciences, especially where there has been such a radical change, have been attended with persecution.
+ - The most wonderful study of mankind is man. Relieving human suffering and diffusing universal knowledge is humanitarian.
+ - The mill cannot grind with the water that is past.
+ - I feel it my bounden duty to not only replace displaced bones, but also teach others, so that the physical and spiritual may enjoy health, happiness and the full fruition of our earthly lives.
+ - Do not forget that chiropractors did not treat diseases. They adjust causes, whether acquired, spontaneous, or the result of accident.
+ - He who obeys God’s laws finds him a father. He who disobeys them, finds him a judge.
+ - The spiritual always did exist, always will. It is eternal, it is changeless.
+ - The mind must be cured as well as the body, as the mind so is the body.
+
+36 quotes

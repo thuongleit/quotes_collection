@@ -1,0 +1,479 @@
+ - Nature loves courage. You make the commitment and nature will respond to that commitment by removing impossible obstacles. Dream the impossible dream and the world will not grind you under, it will lift you up.
+ - Only psychos and shamans create their own reality.
+ - Culture is a simplification and a lie. It’s the currency by which fools navigate the world. Smart people get beyond it.
+ - The psychedelic mind is a higher dimensional mind, it is not fit for three dimensional space time.
+ - If you don’t have a plan, you become part of somebody else’s plan.
+ - The syntactical nature of reality, the real secret of magic, is that the world is made of words. And if you know the words that the world is made of, you can make of it whatever you wish.
+ - No one knows enough to worry.
+ - We are led by the least among us – the least intelligent, the least noble, the least visionary. We are led by the least among us and we do not fight back against the dehumanizing values that are handed down as control icons.
+ - I see the psychedelic experience as a birthright, and we can’t have a free society until people are free to explore their own mind.
+ - This is how magic is done. By hurling yourself into the abyss and discovering its a feather bed.
+ - You are an explorer, and you represent our species, and the greatest good you can do is to bring back a new idea, because our world is endangered by the absence of good ideas. Our world is in crisis because of the absence of consciousness.
+ - Astonishment is the proper response to reality.
+ - Television is, to my mind, the most insidious drug that the 20th Century has had to deal with.
+ - The world which we perceive is a tiny fraction of the world which we can perceive, which is a tiny fraction of the perceivable world...
+ - What we call reality is in fact nothing more than a culturally sanctioned and linguistically reinforced hallucination.
+ - Life must be a preparation for the transition to another dimension.
+ - There is nobody who is so enlightened that they don’t need to work on themselves.
+ - Science is the special province of the ego. And magic and art are the special province of something else. I could name it, but I won’t. It prefers to be unnamed.
+ - Shamanism is essentially a living tradition of alchemy that is not seeking the stone but has found the stone.
+ - The social consequence of the psychedelic experience is clear thinking -which trickles down as clear speech. Empowered speech.
+ - If you go to Paris you know more about reality than people who don’t. If you smoke DMT you know more about reality than people who don’t.
+ - If we could feel what we are doing to the Earth, we would stop immediately.
+ - Nature is not mute, it is a man who is deaf.
+ - We have been to the moon, we have charted the depths of the ocean and the heart of the atom, but we have a fear of looking inward to ourselves because we sense that is where all the contradictions flow together.
+ - You are the cutting edge of a thirteen billion year old process of defining novelty. Your acts matter. Your thoughts matter. Your purpose? To add to the complexity. Your enemy? Disorder, entropy, stupidity, and tastelessness.
+ - What we call imagination is actually the universal library of what’s real. You couldn’t imagine it if it weren’t real somewhere, sometime.
+ - Belief is a toxic and dangerous attitude toward reality. After all, if it’s there it doesn’t require your belief- and if it’s not there why should you believe in it?
+ - You have to take seriously the notion that understanding the universe is your responsibility, because the only understanding of the universe that will be useful to you is your own understanding.
+ - Knowledge, or verbal facility, is no proof that you know what you’re talking about.
+ - The problem is not to find the answer, it’s to face the answer.
+ - When we free ourselves we are not freed into a void. When we free ourselves we are freed into a dimension in which Art is an obligation.
+ - The cost of sanity in this society, is a certain level? of alienation.
+ - This is the nature of going forward into being: A series of self-transforming ascents of level.
+ - The shaman is not merely a sick man, or a madman; he is a sick man who has healed himself.
+ - As the bonfires of knowledge grow brighter, the more the darkness is revealed to our startled eyes.
+ - Television is by nature the dominator drug par excellence. Control of content, uniformity of content, repeatability of content make it inevitably a tool of coersion, brainwashing, and manipulation.
+ - The psychedelic species of visual beauty is something we don’t see in our furniture styles and our architecture. It seems to be coming in, literally, from another dimension, and yet it is undeniably moving. It’s beautiful.
+ - DMT seems to argue, convincingly I might add, that the world is made entirely of something, for want of a better word, we would have to call magic.
+ - We live in condensations of our imagination.
+ - Hallucinogenic plants act as enzymes which stimulate imagination.
+ - Chaos is what we’ve lost touch with. This is why it is given a bad name. It is feared by the dominant archetype of our world, which is Ego, which clenches because its existence is defined in terms of control.
+ - There is an angel within the monkey struggling to get free, and this is what the historical crisis is all about.
+ - For me, what all these years of psychedelic taking came to was a new model of how reality works, a new model of what the world is.
+ - Worrying is betting against yourself.
+ - I think ideology is toxic, all ideology. It’s not that there are good ones and bad ones. All ideology is toxic, because ideology is a kind of insult to the gift of human free thinking.
+ - Tribalism is a social form which can exist at any level of technology. It’s a complete illusion to associate it with low levels of technology. It is probably, in fact, a form of social organization second only to the family in its ability to endure.
+ - Nobody is smarter than you are. And what if they are? What good is their understanding doing you?
+ - The only evil that associates itself with mushrooms is taking too little.
+ - Life lived in the absence of the psychedelic experience that primordial shamanism is based on is life trivialized, life denied, life enslaved to the ego.
+ - Animals are something invented by plants to move seeds around. An extremely yang solution to a peculiar problem which they faced.
+ - It’s no big deal about how you get language to evolve. You cause language to evolve by saying new and intelligent things to each other.
+ - The tension in the world is the tension between the ego and the feminine, not between the masculine and the feminine.
+ - Ayahuasca loves to take prideful people and rub their nose in it. I mean it can make you beg for mercy like nothing. You have to really approach it humbly.
+ - You see, a secret is not something untold. It’s something which can’t be told.
+ - My idea of enlightenment is when ego and Tao are fused, and Tao is perceived as ego. Then everything happens with complete appropriateness.
+ - Behind us: the unknown. Before us: the secret.
+ - I’ll try to be around and about. But if I’m not, then you know that I’m behind your eyelids, and I’ll meet you there.
+ - Language, thought, analysis, art, dance, poetry, mythmaking: these are the things that point the way toward the realm of the eschaton.
+ - The shaman has access to a superhuman dimension and a superhuman condition, and by being able to do that he affirms the potential for transcendence in all people. He is an exemplar, if you will.
+ - Every step into freedom contains within it the potential for greater bondage.
+ - We are going through the eye of the needle; make sure you leave what you don’t need behind.
+ - Psychedelic experiences and dreams are chemical cousins; they are only different in degree.
+ - How do we fight back? By creating art.
+ - What is needed, is an awakening.
+ - Nature and the imagination seem to be the precursors to involvement in the psychedelic experience.
+ - The reason I am so passionately committed to the psychedelic thing is because I see it as radical, and if this is not the moment for radical solutions, what is?
+ - Capitalism is not a human being. Capitalism is a Moloch, a god, a god of bloody sacrifice that sees human beings as ants.
+ - All information is everywhere. Information that is not here is nowhere.
+ - Don’t diddle the dose. Once you have done your homework, go for it.
+ - Impressionism is simply twenty minutes into LSD.
+ - Psilocybin, tryptamine, is in my opinion the means to eliminating the future by becoming cognizant of the architecture of eternity, which is modulating time and causing history, essentially.
+ - So when you look at the eschaton what you see, strangely enough, is your own face.
+ - Belief is a form of infantilism. There is no ground for believing anything.
+ - As a society we cannot seem to make peace with nature. As individuals, it’s hard for us to be at peace with ourselves.
+ - We’re not dropping out here, we’re infiltrating and taking over.
+ - I don’t know what life is like without cannabis, I hear there is such a thing.
+ - Shamanism is about shape shifting. Shamanism is about doing phenomenology with a tool kit that works.
+ - Ideologies are cultural memes. They are the most confining of the cultural memes. That’s where culture gets real ugly. It is when you rub up against its ideologies.
+ - We have outlived this embryo, this human cradle, and now it’s time to be up and about the great business of becoming citizens of the galaxy and at home with our own heart.
+ - Nature has an economy, an elegance, a style, that if we could but emulate it we could rise out of the rubble we are making out of the planet.
+ - We are consciousness. We may not always be monkeys.
+ - To date, the enterprise of thinking has moved us radically away from understanding anything.
+ - Escape into the dream. Escape, a key thing charged against these drugs, that they are for escapists. I think the people who make this charge hardly dare dream to what degree they are escapist.
+ - The question is being asked, ‘Are we alone?’ And though we now focus on that question we need to think beyond that to what if we’re not alone? Then what becomes the next imperative question?
+ - And I don’t mean this metaphorically. I want to be taken seriously as proposing that the ennui of modernity is the consequence of a disruptive symbiotic relationship between ourselves and vegetable nature.
+ - What I always hoped for out of the psychedelic voyaging was to bring back something. I always felt, and still feel, that that is the attitude with which you should go into these things.
+ - All psychedelic explorers should be aware of the concept of what is called a cognitive hallucination. The is a much more insidious phenomenon. This is, quite simply, an out-and-out delusion.
+ - The most beautiful things in the universe are inside the human mind.
+ - If the words ‘life, liberty, and the pursuit of happiness’ don’t include the right to experiment with your own consciousness, then the Declaration of Independence isn’t worth the hemp it was written on.
+ - Why does mathematics describe nature. That’s a deeper question than most.
+ - Matter is simply a concept. The world is made of language.
+ - Without sounding too cliche, the Internet really is the birth of global mind.
+ - This is what I believe: That we are not pushed from behind by the casual unfolding of historical necessity, but that we are in the grip of an attractor of some sort, which lies ahead of us in time.
+ - Inevitably out of the psychedelic experience emerges not despair, not self-indulgence, but wild-eyed idealism, that’s the inevitable product of any psychedelically driven social process.
+ - If you charge off with some political agenda that is not informed by clarity, you are going to end up with business as usual. The road to hell is paved with good intentions but it is not paved with clarity.
+ - I believe reality is a marvelous joke staged for my edification and amusement and everybody is working very hard to make me happy.
+ - Alchemy is about the generation of a psychic construct, a wholeness, a thing which has many properties, which is paradoxical, which is both mind and matter, which can do anything.
+ - The engineers of the future will be poets.
+ - You are a divine being. You matter, you count. You come from realms of unimaginable power and light, and you will return to those realms.
+ - Our destiny is to become what we think, to have our thoughts become our bodies and our bodies become our thoughts.
+ - Half the time you think your thinking you’re actually listening.
+ - Culture is your operating system.
+ - So part of what being psychedelic means, I think, is relentlessly living with unanswered questions.
+ - The psychedelic viewpoint is becoming more and more legitimate, but psychedelic drugs are not. That’s the odd paradox of it.
+ - In the way that the 15th Century discovered the New World, the 20th Century discovered the parallel continuum.
+ - I think what we have to do is convince people that matter is tacky.
+ - The world is not an unsolved problem for scientists or sociologists. The world is a living mystery.
+ - The felt presence of immediate experience – this is all you know. Everything else comes as unconfirmed rumor.
+ - The drugs of the future will be computers. The computers of the future will be drugs.
+ - The shaman is the figure at the beginning of human history that unites the doctor, the scientist and the artist into a single notion of care-giving and creativity.
+ - We are part of a symbiotic relationship with something which disguises itself as an extra-terrestrial invasion so as not to alarm us.
+ - Consistency is the hobgoblin of small minds.
+ - DMT is the most powerful hallucinogen there is. If it gets stronger than that I don’t want to know about it.
+ - The testimony of DMT, for me, is that there is a nearby dimension, teeming with intelligences, that from one of the more conservative perspectives seems like an ecology of souls.
+ - Patanjali specifically says that there are three paths to the goal of yoga. And they are, control of the breath, control of posture, and light-filled herbs. It says it right there. Stanza 6 of the Yoga Sutras of Patanjali.
+ - An interesting thing about drugs is often, when a new drug is discovered, it takes a long time to figure out how do you do it.
+ - Psychedelics can carry you farther and faster than most people care to go. Once you get to psychedelics, it’s no longer a matter of seeking the answer, you have found the answer. Now the issue changes dramatically, you must face the answer.
+ - Science is the exploration of the experience of nature without psychedelics. And I propose, therefore, to expand that enterprise and say that we need a science beyond science. We need a science which plays with a full deck.
+ - Inform yourself, inform your children, talk to your friends! And let’s try to make a better, stonier world than the one we inherited!
+ - The human brain is the god of technological innovation.
+ - What civilization is, is 6 billion people trying to make themselves happy by standing on each other’s shoulders and kicking each other’s teeth in. It’s not a pleasant situation.
+ - A singularity is a place where the rules are broken. A miracle is a singularity.
+ - Well, certainly the Voynich Manuscript is the ‘limit text’ of Western occultism. No one can read it. It is truly an occult book.
+ - Culture is the greatest barrier to your enlightenment, your education, and your decency.
+ - History is rooted in the future.
+ - Without an understanding and a familiarity of the psychedelic experience you should be sued for fraud if you’re practicing psychotherapy.
+ - Buddhism is a heresy on Hinduism. It was Hinduism that did the dirty work for Buddhism, by the time Buddha came along priest-craft was an ancient tradition in India.
+ - We are creatures of information and the imagination. The monkey we are already beginning to transform and shed. We don’t look like the other monkeys, and we look less like them all the time.
+ - Think about our dilemma on this planet. If the expansion of consciousness does not loom large in the human future, what kind of future is it going to be?
+ - We cannot evolve faster than our language. The edge of being is the edge of meaning, and somehow we have to push the edge of meaning. We have to extend it.
+ - When your time is turned into money, the felt presence of immediate experience is analogous to being enslaved. I mean, let’s be frank about it, it is enslavement.
+ - No one is in charge of this process, this is what makes history so interesting, it’s a runaway freight train on a dark and stormy night.
+ - Western civilization is a loaded gun pointed at the head of this planet.
+ - To me it begins and ends with these psychedelic substances. The synergy of the psilocybin in the hominid diet brought us out of the animal mind and into the world of articulated speech and imagination.
+ - The Internet is the global brain, the cyberspacially connected, telepathic, collective domain that we’ve all been hungering for.
+ - Chaos is roving through the system and able to undo, at any point, the best laid plans.
+ - My technique is don’t believe anything. If you believe in something, you are automatically precluded from believing its opposite.
+ - If reality is code, then it can be hacked in some way that we had not suspected before.
+ - Death is the black hole of biology. It’s an event horizon, and once you go over that event horizon, no information can be passed back out of the hole.
+ - The Imagination is the golden pathway to everywhere.
+ - Within the context of the alchemical vocabulary, the psychedelic experience, as brought to us through plants long in the possession of Aboriginal people, appears to be the identical phenomena.
+ - I have nothing but scorn for all weird ideas other than my own.
+ - LSD is different. LSD is like psychoanalytical Drano. It’s not a personality.
+ - We are alienated, so alienated that the self must disguise itself as an extraterrestrial in order not to alarm us with the truly bizarre dimensions that it encompasses.
+ - For all we know, we know nothing.
+ - Time will perfect matter.
+ - If the world is made of language, then you can hack it in the sense that you can hack code.
+ - Nothing comes unannounced, but many can miss the announcement. So it’s very important to actually listen to your own intuition rather than driving through it.
+ - The thing that excites me about these informational technologies is I think we are going to be able to use virtual reality to show each other the insides of our own heads.
+ - All time is is how much change you can pack into a second.
+ - Certainly the central Platonic idea, which is the idea of the ideas, these archetypal forms which stand outside of time is one which is confirmed by the psychedelic experience.
+ - Psychedelic telepathy is you ‘see’ what I mean.
+ - I don’t believe consciousness is generated in the brain any more than television programs are made inside my TV. The box is too small.
+ - The main thing to understand is that we are imprisoned in some kind of work of art.
+ - The things I encounter that I call elves or gnomes, it’s just a gloss. I mean, they’re small, and they have the archetype. They’re more like leprechauns, and this maybe raises a racial issue.
+ - And what is the primary datum? It’s the felt presence of immediate experience. In other words, being here now is the primary datum.
+ - You are some kind of a mystery suspended between two eternities. And in that moment, when a mind looks out at a world and asks the question, ‘What is it?’ In that moment art can be created.
+ - The apocalypse is not something which is coming. The apocalypse has arrived in major portions of the planet and it’s only because we live within a bubble of incredible privilege and social insulation that we still have the luxury of anticipating the apocalypse.
+ - Ultimate novelty must be a situation where all boundaries are dissolved.
+ - Drugs induce paranoia and psychosis in people who have never taken any.
+ - I spend as many hours a day as I possibly can smoking cannabis.
+ - The imagination is the goal of history. I see culture as an effort to literally realize our collective dreams.
+ - Ideology always paves the way toward atrocity.
+ - The numinous depth of the mystery that seems to have called us out of the animal mind is completely impenetrable to modern analysis.
+ - The world is not made of anti-mu mesons, quarks, and photons, and electromagnetic fields. Reality is made of words.
+ - You know what, I’m stoned, and I’m proud.
+ - The purpose of life is to familiarize oneself with this after-death body so that the act of dying will not create confusion in the psyche.
+ - It’s a product of the fractal laws that govern the world at an informational level. There is no deeper truth.
+ - It is not easy to measure the ocean, but we can be measured by it, confront it, and be in it.
+ - In the silence, in the darkness, swept away by these alien alkaloids and the plant-mind behind them, you find out a truth that can barely be told. And most of it can’t be told.
+ - The monkey body has carried us to this moment of release, but we are coming more and more to exist in a world made by the human imagination.
+ - Shamanism, on the other hand, is this world wide, since Paleolithic-times, tradition which says that you must make your own experience the center piece of any model of the world that you build.
+ - What the psychedelic experience really is, is opening the doorway into a lost continent of the human mind, a continent that we have almost lost all connection to, and the nature of this lost world of the human mind is that it is a Gaian entelechy.
+ - Reality itself is not static. This is one of the things that the psychedelic is trying to put across, that the reality we’re embedded in is itself some kind of an organism and is evolving toward a conclusion.
+ - I see the psychedelic experience as both the centerpiece of prehistoric life and destined to be the centerpiece of any future that we want to be part of.
+ - What is unusual about Earth is that language, literally, has become alive. It has infested matter. It is replicating and defining and building itself. And it is in us.
+ - We don’t have to look far for miracles because they’re all around us. Everything is astonishing. The universe on it’s surface is alive with mystery.
+ - Part of what being involved in the psychedelic experience is about is reclaiming your own experience.
+ - You may miss the end of the world, but you definitely are going to have a front row seat for the end of your world.
+ - The creative act is a letting down of the net of human imagination into the ocean of chaos on which we are suspended, and the attempt to bring out of it ideas.
+ - We can move no faster than the evolution of our language, and this is certainly part of what the psychedelics are about: they force the evolution of language.
+ - Reality is, you know, the tip of an iceberg of irrationality that we’ve managed to drag ourselves up onto for a few panting moments before we slip back into the sea of the unreal.
+ - I believe that what makes the psychedelic experience so central is that it is a connection into a larger modality of organization on the planet, which is a fancy way of saying it connects you up to the mind of Nature Herself.
+ - Experientially there is only one religion, and it is shamanism and shamanic ecstasy.
+ - We love to congratulate ourselves on the forward-leaning liberal society that we live in, and the truth is it’s a bunch of rattle snake-handling fundamentalists that are much closer to Stalin than they are to FDR or anybody else like that.
+ - I believe that great weirdness stalks the universe. That’s not the issue with me, but it is not tacky. It is not tacky.
+ - Alchemy is really the secret tradition of the redemption of spirit from matter.
+ - Cultures are virtual realities made of language.
+ - If you play the cultural game, it’s like playing only with clubs or something, or playing only with the red marked cards. You have to play with a full deck, and that includes this pre-linguistic surround in which we are embedded.
+ - Ego is a structure that is erected by a neurotic individual who is a member of a neurotic culture against the facts of the matter. And culture, which we put on like an overcoat, is the collectivized consensus about what sort of neurotic behaviors are acceptable.
+ - It is the imagination that argues for the Divine Spark within human beings. It is literally a decent of the World’s Soul into all of us.
+ - Once you have the psychedelic tool in hand then some real choices have to be made.
+ - Inside the boundaries of the old paradigm there’s no hope, there’s no way out of the box of capitalism, monogamy, consumer fetishism, egoism, money worship, no way out. No way. No way out!
+ - If psychedelics are, on any level, to be taken seriously as catalyzers or expanders of consciousness, then we need them, because it’s an absence of consciousness that is making this historical transition so excruciating.
+ - I connect the psychedelic dimension to the dimension of inspiration and dream.
+ - History, call it 15,000 or 25,000 years of duration, is the story of an animal, some kind of complex animal, becoming conscious.
+ - Transformation of language through psychedelic drugs is a central factor of the evolution of the social matrix of the rest of the century.
+ - There will be difficult moments in a five-gram trip, but on the other hand certain questions will be solved forever for you, because you will validate the existence of this dimension. You will see what your relationship to it is.
+ - This is in fact what shamanism is all about, what the end of history is all about, what psychedelic drugs are all about, we are edge-walking on an ontological transformation of what it means to be human.
+ - A history-stopping archetype is being released into the skies of this planet, and if we are not careful it will halt all intellectual inquiry in the same way that the Christos archetype halted intellectual inquiry in the Hellenistic Age.
+ - There is no knowledge without risk taking.
+ - The lack of a sense of history makes us really prey to manipulation.
+ - It’s getting funnier because everybody’s categories are disintegrating, and the cult of political correctness dictates that we never point out that other people don’t make sense.
+ - The state in the matter of drugs should not, any more than in the matter of sex, act as the secret agent for the agenda of the church.
+ - We do not birth our children into the world of nature. We birth our children into the world of culture.
+ - That’s what a god is. Somebody who knows more than you do about whatever you’re dealing with.
+ - The quality of rhetoric emanating from the psychedelic community must improve radically. If it does not, we will forfeit the reclamation of our birthright and all opportunity for exploring the psychedelic dimension will be closed off.
+ - I think what’s really happening is that a dialogue opens up between the ego and these larger, more integrated parts of the psyche that are normally hidden from view.
+ - Ultimately, I think, what the psychedelic experience may be is a higher topological manifold of temporality.
+ - The miracle of our predicament is not how long everything has been in place but how brief it all has been.
+ - Psychedelics are actually a kind of miraculous reality that can stand the test of objective examination.
+ - This unique strategy that the advanced primates created, the strategy of using language to bind time, is what the process we call ‘civilization’ has been all about.
+ - Everything will come true in cyberspace. That’s the whole idea. What cyberspace is, on one level, it’s simply the human imagination vivified, hardwired.
+ - It’s our machines and our technologies that are now the major evolutionary forces acting upon us. It’s not our political systems.
+ - Flying saucers are nothing more than miracles, and they occur essentially to bedevil science.
+ - The mind is the cutting edge of the evolving event system.
+ - You could almost describe psychedelics as enzymes for the activity of the imagination.
+ - We are all cells of a much larger body, and like the cells of our own body it is hard for us to glimpse the whole pattern of the whole of what is happening, and yet we can sense that there is a purpose, and there is a pattern...
+ - That’s the core puzzling experience, when you meet the Other organized as a speaking mind.
+ - In the absence of good scientific data about the effects of artificial hallucinogens it’s good to stick to the natural ones.
+ - This is a general comment that you should take a committed dose of whatever it is you’re taking so that there is no ambiguity, because there’s nothing worse than a sub-threshold psychedelic experience.
+ - We are caught inside a mystery, veiled in an enigma, locked inside a riddle.
+ - The world could be anything, you know, It could be a solid state matrix of some sort. It could be an illusion. It could be a dream. I mean it really could be a dream.
+ - In a way, this is a definition of shamanism. A shaman is a person who by some means has gotten out of their own culture.
+ - The bigger you build the bonfire, the more darkness is revealed.
+ - If in fact the conservation and complexification of novelty is what the universe is striving for, then suddenly our own human enterprise, previously marginalized, takes on an immense new importance.
+ - The data stream has been corrupted, return to first principles.
+ - The momentum now is inevitable. Now it’s about each of us individually arranging the furniture of our own mind to deal with what has become inevitable.
+ - Having lived long enough to go at least once or twice around the block, I’m noticing that the strangeness is not receding The strangeness seems to be accelerating.
+ - This is a general law of the universe, overlooked by science, that out of complexity emerges greater complexity. We could almost say that the universe, nature, is a novelty-conserving, or complexity-conserving engine.
+ - The mystery is in the body and the way the body works itself into nature.
+ - We are like caterpillars contemplating pupation.
+ - Beauty is self-defined, perceived and understood without ambiguity. It’s the stuff that lies under the skins of our individual existences.
+ - I started out in psychedelic drugs, and people said it was a flight from reality. It still is a flight from reality, but I think reality is now a bit more scary than the drugs we used to fly from it, so long ago.
+ - Closure is a neurotic and infantile demand to make upon reality, other people, or language.
+ - You put two egos together and you’ve either got a conflict, which is always interesting, or better yet, a love affair.
+ - History is the siren song of the soul.
+ - When we really understand time travel we may find out it’s as common as dirt and has been going on all around us is all kinds of physical processes.
+ - History is like self-reflection through the medium of language propelling itself into self-recognition.
+ - The culture cannot evolve faster than the language. The language is the flashlight that shows the path.
+ - As I see it, Being, the Cosmos, whatever you want to call it, is a struggle between two implacable forces: Novelty on the one side and habit on the other side.
+ - What history is, essentially, is a careening, out-of-control effort to find our way back to this state of primordial balance.
+ - Even as the nineteenth century had to come to grips with the notion of human descent from apes, we must now come to terms with the fact that those apes were stoned apes.
+ - What the psychedelic thing can be seen as, when it’s done with plants, as a return to Gaia, an immersion in the feminine.
+ - Television, introduced at the close of World War II, has become a form of electronic heroin, and it isn’t even your trip. They don’t even let you go on your own trip, you get a trip designed by Madison Avenue.
+ - My voice speaking is a monkey’s mouth making little mouth noises that are carrying agree-upon meaning, and it is meaning that matters. Without the meaning one has only little mouth noises.
+ - The traditional manner of taking psilocybin is to take a very healthy dose, in the vicinity of 15 mg. on an empty stomach in total darkness.
+ - There is no hierarchy of elder knowledge in my social region of things. There are only people learning and sharing in a very complex environment.
+ - We can’t sell short the spiritual power of cannabis, especially when eaten.
+ - People are concrescences of ambiguity.
+ - It doesn’t matter what your cultural conditioning is, it falls into question under the influence of the psychedelic. And for most people that’s frightening.
+ - The notion of illegal plants and animals is obnoxious and ridiculous.
+ - The plants are the pipeline into the Gaian intention. It’s just not a coincidence that these plants carry this immense spiritual message. They are the pipeline of Gaian intentionality.
+ - If I can paraphrase Teilhard de Chardin for a moment, he said, or I will paraphrase in this way, ‘When the human race understands the potential of the hallucinogenic drug experience, it will have discovered fire for the second time.’
+ - The message of psychedelics is that culture can be re-engineered as a set of emotional and spiritual values rather than products. This is terrifying news.
+ - What we drug people have, that you don’t, is repeatability.
+ - Could any symbol be any more appropriate of the ambiguity of human transformation? What mushroom is it that grows at the end of history? Is it Stropharia cubensis, or is it the creation of Edward Teller? This is an unresolved problem.
+ - The “just say no” campaign at this point is a lot like drawing sea-monsters over certain unexplored areas of the map and expecting people to stay away. It may work for some, but explorers live for this kind of thing.
+ - The long night of human history is drawing at last to its conclusion.
+ - There is a spiritual obligation, there is a task to be done. It is not, however, something as simple as following a set of somebody else’s rules.
+ - What blinds us, or what makes historical progress very difficult, is our lack of awareness of our ignorance.
+ - Memory training is great psychedelic training.
+ - And the psychedelics, I believe, are the key to moving from wearing culture like cloths to recognizing that culture is this intensifying reflection of an aspect of the self and integrating it into the self.
+ - Cyberspace is the human transition into a mathematical super space where we as a collectivity become optionally a single point of view.
+ - We are so much the victims of abstraction that with the Earth in flames we can barely rouse ourselves to wander across the room and look at the thermostat.
+ - A great turning point is in the offing. The world is changing. It’s changed before, but not for a long time in our lives, not since before our lives. But now it’s changing, and there are many many possibilities.
+ - Nothing is as boundary dissolving, except for psychedelic compounds, as travel. Travel is up there.
+ - It was the fall into history that enslaved us to the labor cycle, to the agricultural cycle. And notice how fiendish it is.
+ - Human populations that do not have contact with the psychedelic tremendum are neurotic because they are male ego dominated.
+ - What is revealed through the psychedelic experience, I think, is a higher dimensional perspective on reality. And I use ‘higher dimensional’ in the mathematical sense.
+ - Human history is a Gaian dream.
+ - Psychedelic experiences are beyond the reach of cultural manipulation, and discovering this and exploring it is somehow the frontier of maturity. Culture is a form of enforced infantilism. It’s the last nursery, and most people never leave it.
+ - What was created by the era of the proper gentleman was excellent table manners and genocide over most of the surface of the planet.
+ - Mind conjures miracles out of time.
+ - Psychedelics are probably responsible for every aspect of human evolution apart from the decline in bodyhair.
+ - Because I believe psychedelics are a kind of higher dimensional sectioning of reality, I think they give the kind of stereoscopic vision necessary to hold the entire hologram of what’s happening in your mind. The old paradigm is gone.
+ - I don’t believe that shamanism without hallucinogens is authentic shamanism or comfortable shamanism.
+ - Ecstasy is not simply joy. Ecstasy is an emotion of great complexity that hovers almost on the edge of terror sometimes.
+ - In 1948, television was introduced, and millions and millions of people lead larval, low-awareness, warehoused lives mainlining an electronic drug straight into their brains.
+ - What you call man is time.
+ - Biology seems to be a chemical strategy for amplifying quantum mechanical indeterminacy so that it leaves the subatomic realm and can be present in a hundred and forty five pound block of meat.
+ - By manipulating queuing, by manipulating expectation, you can lead people to a fundamental confrontation, not only with themselves, but with the Other.
+ - Science works its miracles by turning its enterprise into a kind of parlor game confined to the category matter and energy.
+ - The problem is we have to transcend cultural languages and fall into a phase with the communication systems that nature has placed all around us.
+ - What the churches are peddling is high abstraction, and you really have to work yourself up into a lather to be able to accept that as worthy of that kind of attention. The psychedelic subset of society is into an experience, and it’s accessible.
+ - A lot of people pass through the thinking I’m a guru and take enough trips to understand that no, I was just a witness. I was just a witness.
+ - I’m proposing on one level that hallucinogens be thought of as almost as social pheromones that regulate the rate at which language develops, and therefore regulate human culture generally.
+ - We are the inheritors of a million years of striving for the unspeakable.
+ - Alcoholism isn’t a disease. It’s a failure of self-image.
+ - Just because you have a nut theory it doesn’t mean that you agree with other nut theories. In fact, it often makes you very hostile to them. After all, there’s a limited pool there that we’re all after.
+ - One of the things that’s so striking about shamanism in the native context is the absence of mental illness.
+ - How can we know who is the other until we know who is the self?
+ - I discovered early in life a stunning truth that’s made my life very complicated in its wake, but that I still think is true, and it’s that people are very easy to love.
+ - To my mind this is what shamanic training must really be, is mnemonic training. If you want to bring the stuff back you have to train yourself to bring it back.
+ - Ninety percent of the difficulty in your intellectual life would never have happened if you just had better taste.
+ - The drug may not be toxic, but you may be self-toxic, and you may discover this in the drug experience.
+ - This rising global humanism is, in fact, the rising into consciousness of a tribal god similar to the kind of tribal god that functioned in these pre-Hellenic societies.
+ - Our culture takes us out of the body and sells our loyalty into political systems, into religions, into inanimate objects and machines, collections, so forth and so on. The felt experience of the body is what the psychedelics are handing back to us.
+ - The message coming back at all of us is: live without closure.
+ - There is not the Newtonian universe deployed throughout the parsecs and kiliocosms of physical space and the interior mental universe. They are the same thing.
+ - We have changed. We are no longer, as I said, bipedal monkeys. We are instead a kind of cybernetic coral reef of organic components and inorganic technological components.
+ - I think that a lot of people are making a lot of money spreading anxiety. Anxiety sells.
+ - Information is just simply bootstrapping itself to higher and higher levels of self-reflection and self-coordination using whatever means are necessary.
+ - The only real experience that counts, is your own.
+ - Eros is an ego-overwhelming, boundary dissolving, breakthrough creating force scripted into human life that is pretty intrinsically psychedelic.
+ - The psychedelic experience is not a journey into the human unconscious, or into the ghost bards of our human civilization. It’s a journey into the presence of the Gaian mind.
+ - I’m not an advocate of drugs. I’m an advocate of psychedelics.
+ - People without plants are in a state of perpetual neurosis, a state of existential wanting.
+ - One has attained a very fortunate incarnation, I think, to be in a culture, in a place, in a time when psychedelic knowledge is available.
+ - Shamanism is just show business and philosophy is just a branch of that vaudevillian impulse.
+ - In a sense, what’s happening is that the unconscious mind is a luxury the human species cannot afford at this point in our dilemma, and so the unconscious mind is simply rising into consciousness by being hardwired into this global infrastructure.
+ - I believe that the place to search for extraterrestrials is in the psychic dimension.
+ - We tend to disempower ourselves. We tend to believe that we don’t matter. And in the act of taking that idea to ourselves we give everything away to somebody else, to something else.
+ - We were essentially torn from the Gaian womb, thrust into the birth canal of history, and expelled sometime around the fall of the Roman Empire into the cold hard world of modern science, existentialism and all the rest of it.
+ - If we were to place our power at the service of our imaginations rather than our primate politics we would create a civilization worthy of the name.
+ - By passing into the psychedelic phase, the space-faring phase, the entire species is passing into adolescence.
+ - Wherever we press beyond the thin curtain of rationalist culture, we discover the incredibly rich, erotic, scary, promising presence of this intelligent Other, that beckons us out of history, and says, you know: ‘The galaxy lies waiting.’
+ - I think the cybernetic matrix is a tremendous tool for feminizing, and radicalizing, and psychedelicizing the social matrix. I see computers as entirely feminine.
+ - The terror of drugs is a terror of giving up control. This is what people are most alarmed about by psychedelics, is the giving up control.
+ - I have a skeptical and cranky side, and I’m forever puzzled why people believe the, seeming to me, dumb things that they choose to believe.
+ - You’re immortal as long as you live.
+ - The party impulse is a very subversive impulse. I mean, you know, a lot of artists have too much integrity to sell their art as a brand; but who has so much integrity that they would turn down a party?
+ - The real truth is splintered and spread throughout time.
+ - It’s a relationship like to a crusty Zen master, or something like that. And it is really like another entity because you cannot predict the answers.
+ - We’re not mere spectators, or a cosmic accident, or some sideshow, or the Greek chorus to the main event. The human experience IS the main event.
+ - Terror of the future can be put out to pasture with psychedelic shamanism.
+ - We can will the perfect future into being by becoming microcosms of the perfect future.
+ - Basically, for me the psychedelic experience was the path to revelation. It actually worked on somebody who thought nothing would work.
+ - It’s the impossible become possible and yet remaining impossible.
+ - The content of the dialogue with ‘the Other’ is a content that indicates that man’s horizons are infinitely bright, that death is in fact, well, as Thomas Vaughn put it, ‘the body is the placenta of the soul’
+ - The good news about psychedelics is that they are incredibly democratic. Even the clueless can be swept along if the dose is sufficient.
+ - We get to the point then with modern science where you could almost say that modern science is the art of describing those systems so crude in their structure that they are not subject to temporal variables.
+ - The central point about the psychedelic experience is the content of the experience. And this has been occluded or obfuscated by the behavioral and statistical and scientific methods that have been brought to bear to study hallucinogenic experience.
+ - There is no liberation to compare with freeing oneself from the illusions and delusions of the age in which one lives.
+ - And the whole schtick of the psychedelic experience, I think, is reclaim immediate experience, realize that you out vote all parliaments, police forces, and major newspapers on the planet because, who knows, they may be illusions.
+ - Our assumptions are the edges of our worlds.
+ - I think really what unites psychedelic people is the faith in the power of the imagination.
+ - The movement of a single atom from one known position to another known position changes an experience from nothing to overwhelming. This means that mind and matter at the quantum mechanical level are all spun together.
+ - Notice that the whole story of Eden is the story of the struggle over a woman’s relationship to a psychoactive plant.
+ - In a sense, sexuality is the built-in psychedelic experience that only a very few people manage to evade.
+ - What is always left out of descriptions of the psychedelic state, the deep psychedelic state, is how weird it is.
+ - History is just this froth of artifact production that has appeared in the last ten to fifteen thousand years. It spread across the planet very quickly. But that mind in man just goes back and back into the darkness.
+ - We have to recognize that the world is not something sculptured and finished, which we as perceivers walk through like patrons in a museum; the world is something we make through the act of perception.
+ - The Gaian process is more than a process. It is s self-reflecting entelechy of some sort.
+ - The immediate future of man lies in the imagination and in seeking the dimension where the imagination can be expressed.
+ - I think that the whole thing, the crux of the whole psychedelic issue, is that it accentuates personal responsibility by making people take their own experiences seriously.
+ - The central figure in the archaic revival is the shaman.
+ - What we now have is the freedom which attends decadence, or the decadence which attends freedom.
+ - It’s the only hallucinogen I know, where if it’s made right, the next day, or the day after the experience, you actually feel better than if you hadn’t done it.
+ - Nature is actually the goal at the end of history.
+ - I’m as against restricting access to drugs as I am to burning books. It offends me in the same way.
+ - I believe in extraterrestrials, but I believe that real extraterrestrials are so peculiar that the job is to recognize them.
+ - The psychedelics are this immense tool for the inspection of our own nature.
+ - We are living in a state of constant scientific revolution. There is not a single area that you can name that is now seen as it was seen a hundred years ago. Nothing is left of the world view of one hundred years ago.
+ - To me, the most amazing the most amazing transformation in my lifetime is not the revolution of the Sixties but the counter revolution of the Seventies, where they managed to put the cuckoo clock back together again.
+ - If you’re truly psychedelic the difference between living and dying is quite immaterial. No pun intended.
+ - Life, carefully examined, is actually a form of allegorical literature with a very tight constructural grid laid over it.
+ - There is no mundane dimension really, if you have the eyes to see it, it is all transcendental.
+ - History is the in-rushing toward what the Buddhists call the realm of the densely packed, a transformational realm where the opposites are unified.
+ - The whole of the Amazonian narcotic complex, as it’s called in the old literature, is based on activation of DMT by one strategy or another.
+ - We now know enough to fantasize realistically about what the alien would be like, and I think that this then sets up polarities in the collective psyche that previously we have only seen at the level of the individual.
+ - I can’t think of a society on Earth where people don’t take drugs that any of us would want anything to do with.
+ - The real justification for psychedelics is that they feed new data into your model.
+ - We need a pharmacological intervention on anti-social behavior or we are not going to get hold of our dilemma.
+ - We can begin the restructuring of thought by declaring legitimate what we have denied for so long. Lets us declare Nature to be legitimate. The notion of illegal plants is obnoxious and ridiculous in the first place.
+ - To carry language from two dimensions into three is the task of the poets, and the rebels in the 20th Century.
+ - Fine tuning the institutions built by powdered wig guys two hundred years ago is a long shot at holding the whole thing together.
+ - I think psychedelics are sort of like doing calisthenics in preparation for the marathon at the end of time.
+ - We are the damaged heirs of a damaged cultural style which has been practiced now for about seven thousand years.
+ - The only frontier now left to exploit is not a frontier in space but a frontier in time. We steal the future from our children by plunging massively deeper and deeper into debt.
+ - It is the people who are ‘far out’ who are gaining advantage in the evolutionary jostling for efficacious strategies.
+ - And psychedelics now, as we de-condition ourselves from the post-medieval world, they are present to hand as tools.
+ - Standing outside the cultural hysteria the trend is fairly clear. It is a trend toward temporal compression and the emergence of ambiguity.
+ - The western mind, because of it’s unique history, is the most sensitive mind to the impact of psychedelics.
+ - It seems to me far more likely that an advanced civilization would communicate inter dimensionally and telepathically.
+ - I’m fascinated by hallucinations. I mean, to me that is the sina qua non that you’re getting somewhere.
+ - Time is a series of fluctuating variables.
+ - The discs which haunt the skies of Earth indicate that the unconscious cannot be kept waiting forever. These things are going to have to be dealt with.
+ - History is anomalous, and there is no way to get used to it.
+ - Even a billion people is too much. There’s no way back to the simplicity we once knew, but there may be a way forward to the simplicity that we once knew.
+ - For unknown reasons, there is a tremendous concentration of psychoactive plants on the South American continent. The South American continent has more known hallucinogens than the rest of the planet combined.
+ - The possibility seems to be that what we call styles, or what we call motifs, are actually categories in the unconscious.
+ - What foods are, essentially, are idea-neutral drugs.
+ - We have to claim anarchy and realize that systems have a life of their own that is anti-humanist. There is definitely an anti-humanist tendency in all systems.
+ - The apocalypse is the millennium, and the psychedelics move you into the future.
+ - Culture is another dimension.
+ - Plants seem like an excellent model for the kind of future that we should be building.
+ - The human imagination, in conjunction with technology, has become a force so potent that it really can no longer be unleashed on the surface of the planet with safety.
+ - Apparently, in the Avesta classical period no one would have dreamed of having a spiritual experience without resort to drugs.
+ - What we need to change is our minds, that’s the part that’s doing us dirt and dragging us under. How can we change our minds.
+ - It’s pretty simple, the ethical life. It’s just demanding.
+ - One of the things that people don’t do enough of when they do psychedelic work is spend time in the library.
+ - The history of man that you don’t know is what your unconscious is made out of. Just as the history of yourself that you don’t know is what your personal unconscious is made out of.
+ - The psychedelic issue is a civil rights and civil liberties issue. It is an issue concerned with the most basic of human freedoms: religious practice and the privacy of the individual mind.
+ - Language is something that springs from the biological matrix, and the neurological matrix, within us.
+ - I would argue that it’s almost better to do heroin than to watch TV. At least when you’re doing heroin you’re responsible for your own reveries and thought processes. When you’re mainlining TV what is it but endless messages to fetishize products?
+ - All of you who have been through high dose psychedelic experiences know that it’s very hard to carry stupid baggage through that keyhole. In fact you’re lucky if you just get your soul and yourselves through and intact.
+ - I’m not an advocate for everything that rolls out of the laboratory. I’m an advocate for things sanctioned by millennia of usage.
+ - I’m not trying to sign people up to a creed, I’m much more interested in the people that disagree. These ideas are powerful but this isn’t mysticism in the ordinary sense to be protected by mumblings about faith and all that. This is the real thing.
+ - Safety is really a concern of mine, and what I’ve been telling people recently is that until there’s animal and human data on a drug it should probably be looked at very carefully.
+ - Our theories are the weakest part of what we say. What we’re working from is the fact of an experience which we need to make sense of.
+ - But what I really am interested in is not the end of the world but everything which precedes it.
+ - At the interface of the say-able and the unsay-able is the novel, the new, the never before seen, said or done. And that’s what I think it’s important to try and bring out, ideas. Because I think we are the animals that bring back ideas.
+ - The leading edge of reality is mind, and mind is the primary substratum of being.
+ - I think the entire message of the psychedelic experience, which is basically the sine qua non of the rebirth of alchemical understanding, the very basis of that understanding is that nature seeks to communicate.
+ - I think what electronic culture permits is incredible diversity, and what the print-created world demanded and created was tremendous suppression of diversity.
+ - The psychedelic sets you at the beginning of the path, and then people do all kinds of things with it.
+ - One way of assessing the toxicity of a drug is how do you feel the next day?
+ - Now, through the catalytic interaction with technology, the human species is getting set to redefine itself.
+ - For me, the glory of the human animal is cognitive activity.
+ - There is a morphological enfoldment occurring on this planet. It is bringing forth some entirely new order of being. We are a privileged part of this.
+ - We are like coral animals in a vast reef of excreted technological material that is wired for solid state data transfer.
+ - The future holds no terrors for a person who knows how process inevitably unfolds. They are always right and with it each moment.
+ - These religions that are so freighted with their own pomposity are no better than inspired guesses.
+ - We have wandered into a state of prolonged neurosis because of the absence of a direct pipeline to the unconscious and we have then fallen victim to priestcraft of every conceivable sort.
+ - Television, while chemically non-invasive, nevertheless is every bit as addicting and physiologically damaging as any other drug.
+ - Human beings are co-partners with deity in the project of being. This is the basis of all magic.
+ - Our world is endangered by the absence of good ideas.
+ - Part of what is wrong with our society, and hence with ourselves, is that we consume images, we don’t produce them. We need to produce, not consume, media.
+ - And science, when it examines psychedelics, as it will and must, is going to discover a revolution, I believe, that will put all the previous revolutions in perspective.
+ - We’re not going to save the monkey unless we can shed the monkey. And the greatest impetus, the greatest inspiration to the expression of our higher selves comes in the confrontation with psyche that occurs in the psychedelic experience.
+ - Only responsible human beings can exist in an anarchistic society.
+ - I think with the work we do with these drugs we are the earliest pioneers in what over the next 100 years will lead to an understanding of consciousness almost as a thing apart from the monkey body and brain.
+ - Is there a necessary succession in style, or are these things pure chance?
+ - I think there is a global commonality of understanding coming into being. And it is not necessarily fostered by institutions.
+ - Because this is the world that science built, with the henchmen of capitalism and Christianity.
+ - The tryptamine molecule has this unique property of releasing the structured self into the over-self.
+ - You aren’t an object. You’re a process of some sort.
+ - History is a series of approximations of the final singularity.
+ - I’m meeting my obligations, somehow, always have, without ever truly working, without ever putting my shoulder to the wheel for the man. Of course I had to deal dope to do this!
+ - The mind is a far bigger domain than we ever imagined.
+ - Culture as we’re practicing it is causing a lot of pain.
+ - Obviously, it’s some kind of freely commanded modality in the psyche with which we can have a relationship if we will but evolve a control language and a dialogue. And it remains mysterious.
+ - We need a metaphor that can contain the daemon of the future that we have conjured into being.
+ - The surface of things is not where attention should rest.
+ - Nobody should be allowed more than fifty years to get their act together.
+ - What the psychedelics are for us as a species, rather than for each one of us as an individual, what they are for us as a species is an enzyme that catalyzes the language-making capacity.
+ - Well, you could almost say, I suppose, that the scientist seeks what is similar between any two days, or bluebirds, or glaciers. And the poet seeks what is different. The artist seeks to celebrate the unique.
+ - I think transcending our cultures is going to be extraordinarily necessary for our survival. I don’t think we can carry our cultures through the keyhole of the stretch of the next millennium.
+ - And so, these are the things, the exploration of which, the singing about of which, makes us human beings. The exploration of the universe of the unseen is the business of human beings.
+ - Being imposes some kind of obligation to find out what’s going on.
+ - Since the very beginning of culture, what we seem to be are animals which take in raw material and excrete it imprinted with ideas.
+ - There has been no progress in 60,000 years in reducing the psychedelic experience to a known quantity. It is as terrifying, as awesome, as ecstatic, as irreducible to us as it was to them.
+ - One thing that these Buddhists have certainly gotten right is that attention to attention is the key to taking control of your mental life.
+ - You can stand back and look at this planet and see that we have the money, the power, the medical understanding, the scientific know-how, the love, and the community to produce a kind of human paradise.
+ - It is slowly becoming understood that the modality of being is the modality of mind.
+ - Each stage of cosmic development proceeded more quickly than the stage which preceded it.
+ - I think that understanding man’s place in nature is going to require integration of the psychedelic experience.
+ - What I think is going on is that probably language was entertainment long before it was meaning. It’s a kind of tuneless singing.
+ - It seems to me that it is psyche in a way that has become occluded by the perverse development of language.
+ - What I’ve observed, and I think it’s fair to give credit to the psychedelic experience for this, what I’ve observed is that nature builds on previously established levels of complexity.
+ - The obligation on us is to communicate the truth so that it is understood. The belief will take care of itself.
+ - Although whenever you have intelligent life in the presence of large explosions, a safe bet is that the intelligent life is responsible for the large explosion.
+ - It’s as though a certain level of intoxication with the mushroom is the precondition for being able to communicate, but is not itself enough.
+ - National governments are under paid, under staffed, and under talented.
+ - It’s meanings that we need to coax into our lives.
+ - What I like to talk about, and what I have very little competition in terms of talking about, is the content of the psychedelic experience.
+ - Anything which must be understood by millions of people is so hopelessly divorced from how it is that it becomes a form of fiction.
+ - There’s only the integrity of doing and having done.
+ - I have never felt that the primary use of these things was to cure what is called in modern parlance neurosis, what I call unhappiness. It isn’t for that.
+ - The main thing going on in the 20th century is a dissolving of boundaries, all the boundaries that historical civilization put in place.
+ - The entire drug phenomenon of the 1960s happened without the concept of shamanism to help it along.
+ - What is happening here is we are living past the age, by the millions, living past the age where cultural values make any sense at all.
+ - I really think that the psychedelic realm is the realm of ideas, and that ideas which change the world come first from that place.
+ - Our medium is meat, but we are made of information.
+ - In cyberspace things are built out of light.
+ - There’s something in the Western mind that gets very nervous when you try to talk about the bedrock of ontology.
+ - Spaceflight is nothing less than the exterior metaphor for the shamanic voyage. In other words, in our terms, the hallucinogenic experience. This is the way engineers get high. They go to the moon!
+ - It seems to me that right under the surface of human neurological organization is a mode shift of some sort that would make language beholdable.
+ - It seems to me that information is the thing which uses matter, uses light, uses spirit, uses whatever it can put its hands on to organize itself into higher and higher levels of self-reflection.
+ - Culture is more and more consciously becoming a project carried out in the domain of language by, for instance, propaganda both governmental and commercial.
+ - It’s as important to be well informed in this area, if you’re going to do it, as it is to be well informed about procedures in skin diving and that sort of thing if you’re going to do that.
+ - The thing is that it is incredibly frustrating to anyone who would control it, because you can’t predict the impact of any technology before you put it in place.
+ - Clearly, what is happening, I think, is there is a kind of global emergence of a new mental order.
+ - To me, the psychedelic experience is the experience of trying to make sense of reality.
+ - The real nature of our predicament is completely opaque to us.
+ - Because the planetary culture is becoming ever more closely knitted together all its parts are becoming co-dependent.
+
+477 quotes

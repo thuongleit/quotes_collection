@@ -1,0 +1,55 @@
+ - Living safely is dangerous.
+ - Though the physicality of death destroys us, the idea of death may save us.
+ - If you want to choose the pleasure of growth, prepare yourself for some pain.
+ - Every person must choose how much truth he can stand.
+ - Despair is the price one pays for self-awareness. Look deeply into life, and you’ll always find despair.
+ - Live your life to the fullest; and then, and only then, die. Don’t leave any unlived life behind.
+ - The act of revealing oneself fully to another and still being accepted may be the major vehicle of therapeutic help.
+ - When people don’t have any curiosity about themselves, that is always a bad sign.
+ - I dream of a love that is more than two people craving to possess one another.
+ - Mature love is loving, not being loved.
+ - Never take away anything if you have nothing better to offer.
+ - If we climb high enough, we will reach a height from which tragedy ceases to look tragic.
+ - The more unlived your life, the greater your death anxiety.
+ - Perhaps the single most important therapeutic credo that I have is that the unexamined life is not worth living.
+ - One doesn’t do existential therapy as a freestanding separate theory; rather it informs your approach to such issues as death, which many therapists tend to shy away from.
+ - Psychiatry is a strange field because, unlike any other field of medicine, you never really finish. Your greatest instrument is you, yourself, and the work of self-understanding is endless. I’m still learning.
+ - If one is to love oneself one must behave in ways that one can admire.
+ - Self-awareness is a supreme gift, a treasure as precious as life. This is what makes us human. But it comes with a costly price: the wound of mortality. Our existence is forever shadowed by the knowledge that we will grow, blossom, and, inevitably, diminish and die.
+ - Death anxiety is the mother of all religions, which, in one way or another, attempt to temper the anguish of our finitude.
+ - The pain is there; when you close one door on it, it knocks to come in somewhere else...
+ - Does a being who requires meaning find meaning in a universe that has no meaning?
+ - The spirit of a man is constructed out of his choices.
+ - Life is a spark between two identical voids, the darkness before birth and the one after death.
+ - To love means to be actively concerned for the life and the growth of another.
+ - Look out the other’s window. Try to see the world as your patient sees it.
+ - Marriage and its entourage of possession and jealousy enslave the spirit.
+ - Heidegger makes the distinction between being absorbed in the way things are in the world and being aware that things are in the world. And if you do the latter, you’re not so worried about the everyday trivialities of life, for example, petty concerns about secrecy or privacy.
+ - Life is a miserable thing. I have decided to spend my life thinking about it.
+ - It is wrong to bear children out of need, wrong to use a child to alleviate loneliness, wrong to provide purpose in life by reproducing another copy of oneself. It is wrong also to seek immortality by spewing one’s germ into the future as though sperm contains your consciousness!
+ - Were not teaching our students the importance of relationships with other people: how you work with them, what the relational pathology consists of, how you examine your own conscience, how you examine the inner world, how you examine your dreams.
+ - None of my patients are really troubled by the idea that some part of what they say might be in a book in the future. Some have expressed the very opposite feeling – the fear that they would not be interesting enough to write about.
+ - Not to take possession of your life plan is to let your existence be an accident.
+ - If I had to pick out a therapist in a movie that I’d like to go see as a personal therapist, it would be Robin Williams in Goodwill Hunting.
+ - If one is to learn to live with the dead, one must first learn to live with the living!
+ - Despite the staunchest, most venerable defenses, we can never completely subdue death anxiety: it is always there, lurking in some hidden ravine of the mind.
+ - You will search the world over and not find a nonsuperstitious community. As long as there is ignorance, there will be adherence to superstition. Dispelling ignorance is the only solution. That is why I teach.
+ - Death cures psychoneurosis. In a sense all these neurotic concerns – fear of rejection, interpersonal concerns – seem to melt away, and people get another perspective on their lives. The important things are really important, and the trivia of life is trivialized.
+ - One thing I feel clear about is that it’s important not to let your life live you. Otherwise, you end up at forty feeling you haven’t really lived. What have I learned? Perhaps to live now, so that at fifty I won’t look back upon my forties with regret.
+ - Absolute power, as we have always known, corrupts absolutely; it corrupts because it does not do the trick for the individual. Reality always creeps in – the reality of our helplessness and our mortality; the reality that, despite our reach for the stars, a creaturely fate awaits us.
+ - One comprehends oneself in order not to be preoccupied with oneself.
+ - As we reach the crest of life and look at the path before us, we apprehend that the path no longer ascends but slopes downward toward decline and diminishment. From that point on, concerns about death are never far from mind.
+ - I must stop him from being one of those who call themselves good because they have no claws.
+ - To the extent that one is responsible for one’s life, one is alone.
+ - Death loses its terror if one dies when one has consummated one’s life!
+ - The path to decision may be hard because it leads into the territory of both finiteness and groundlessness – domains soaked in anxiety.
+ - Therapists need to have a long experience in personal therapy to see what it’s like to be on the other side of the couch and see what they find helpful or not helpful. And if possible, get into therapy at different stages of their life with different kinds of therapists just to sample a bit.
+ - Live right, he reminded himself, and have faith that good things will flow from you even if you never learn of them.
+ - To care of another individual means to know and to experience the other as fully as possible.
+ - The creative members of an orthodoxy, any orthodoxy, ultimately outgrow their disciplines.
+ - Psychotherapy is a cyclical process from isolation into relationship. It is cyclical because the patient, in terror of existential isolation, relates deeply and meaningfully to the therapist and then, strengthened by this encounter, is led back again to a confrontation with existential isolation.
+ - I don’t let any personal views about religion cause me to want to take away something that’s offering the patient comfort. I never want to take away something when I don’t have anything better to offer him in a way.
+ - I think my quarry is illusion. I war against magic. I believe that, though illusion often cheers and comforts, it ultimately and invariably weakens and constricts the spirit.
+ - I feel strongly, because a man who will himself die one day in the not to distant future and, also, as a psychiatrist who spent decades dealing with death anxiety, that confronting death allows us, not to open some noisome, Pandora’s box, but to re-enter life in a richer, more compassionate manner.
+
+53 quotes

@@ -1,0 +1,24 @@
+ - In accepting the Gift you Honor the Giver.
+ - Stone and sea are deep in life Two unalterable symbols of the world Permanence at rest And permanence in motion Participants in the power that remains.
+ - We need metaphors of magic and monsters in order to understand the human condition.
+ - Futility is the defining characteristic of life.
+ - This you have to understand. There’s only one way to hurt a man who’s lost everything. Give him back something broken.
+ - Joy is in the ears that hear.
+ - Everything dies, from the smallest blade of grass to the biggest galaxy.
+ - One word more, a final caution: Do not forget whom to fear at the last. I have had to be content with killing and torment; but now my plans are laid, and I have begun. I shall not rest until I have eradicated hope from the Earth. Think on that, and be dismayed!
+ - The heart cherishes secrets not worth the telling.
+ - I may not yet be as old as dirt, but dirt and I are starting to have an awful lot in common.
+ - It is wrong to ask for more than you give freely. In this way, we come to resemble what we hate.
+ - Despair and bitterness are not the only songs in the world.
+ - I respect my limitations, but I don’t use them as an excuse.
+ - He who waits for the sword to fall upon his neck will surely lose his head.
+ - However you look at it, in these books “power” tends to be an expression of the essential nature of the person or being whose power it is. On those occasions when we’ve seen Lord Foul act directly, he seems to exert the withering force of pure scorn. IMHO, that’s pretty intense.
+ - It is the responsibility of the living to make meaningful the sacrifices of the dead.
+ - We didn’t make the world. All we have to do is live in it.
+ - Any belief that puts itself beyond doubt nurtures its own collapse.
+ - When you’ve tried all the salves in the world and they don’t work, you start thinking about fire.
+ - Where do you get dreams like this?
+ - Whatever the explanation, it’s perfectly obvious that our educational system has nothing to do with education: it’s a babysitting service designed to replicate the worst qualities of the parents.
+ - I had no intention of pursuing either the characters or the setting further.
+
+22 quotes

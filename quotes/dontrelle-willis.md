@@ -1,0 +1,22 @@
+ - I’m a happy-go-lucky guy.
+ - I’m just a kid having fun.
+ - I feel I let my team down today. My heart is bleeding for everybody else. I felt like I should have gotten it done today. That’s how it is. Sometimes you do, sometimes you don’t.
+ - The sun shines on everybody. Youve got to keep believing.
+ - I love what I do. I’m appreciative and I’m still competitive. I still love baseball, but it doesn’t consume me. If I can’t do it anymore, then I go home and do something else. It’s not the end of the world. It’s just the end of your career.
+ - I want to make guys put the ball in play. If I give up ten hits, then I give up ten hits. But I want to work on making them earn it.
+ - It’s not about the money for me.
+ - I’m not a conventional guy. I’ve never been a conventional guy.
+ - As far as the anxiety, I have no idea about it. I don’t feel like I have any nervousness out there. I’m just a guy who really cares about being competitive and that’s the bottom line.
+ - I’m trying not to get ahead of myself. I’m taking it one game at a time.
+ - Every day’s a blessing, so I’m just out there throwing my best.
+ - If I give up nine runs on nine hits, I tip my hat.
+ - I just want to throw strikes. If I can’t throw strikes, I’m worthless.
+ - Whatever I can do to win, I’ll do it, even if I have to get hit by a pitch, whatever it takes.
+ - I just want to say I owe the whole reds organization a great deal. Great staff top to bottom and I wish those guys all the best.
+ - Keep winning and get to the postseason, I won 20 games and they just dumped one beer on my head. It feels good because I’m helping my team win.
+ - I know about having days off. They can be helpful sometimes, especially late in the year. It’s just key to go out there and establish early, especially in this park where they can put up some crooked numbers early.
+ - I want to be a traveling circus in that big-league uniform, like everybody else.
+ - I was nervous batting eighth, and I was nervous batting seventh.
+ - Win or lose, I’ve been fortunate to be able to pitch deep enough into games to get decisions.
+
+20 quotes

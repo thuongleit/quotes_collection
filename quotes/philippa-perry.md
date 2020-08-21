@@ -1,0 +1,29 @@
+ - A sense of achievement improves general confidence and self-esteem.
+ - I am talking about being optimistic enough to sow some seeds in the hope that some of them will germinate and grow into flowers.
+ - Neurogenesis continues throughout life and we have the capacity to establish new neural pathways and strengthen existing ones.
+ - Beginning a new habit, or ending an old one can feel like letting go of a rope that swings a mile above the ground. So we feel reluctant to let go, after all, we’ve survived so far doing what we’ve done, why risk it.
+ - Two brains are better than one. You’ve twice the brain capacity and you have two sets of experiences and genes to bring to any challenge.
+ - A relapse doesn’t mean you’ll never walk down the path you prefer. But I think relapses are almost an inevitable part of any course of self-development.
+ - The extreme of flexibility is chaos and the extreme of being structured is rigid and staying sane, or indeed using your creativity, is about being aware of these extremes and steering yourself to areas where you work best which usually tend to be more in the middle than at either extreme edge.
+ - Our emotional map is laid down mainly in relationship with our earliest caregiver in the first couple of years of life.
+ - Meditation is focused attention and the more we practise focusing our brains the more connections we build up.
+ - If we keep practicing mental skills it is likely we can strengthen neural connections and make new connections.
+ - After a stroke we can re-learn how to talk, because by practicing we can establish different pathways in the brain, circumnavigating the damaged part.
+ - The trouble is if we take no new steps to try a new challenge, our comfort zone doesn’t seem just to stay still, but retract.
+ - Plasticity is an intrinsic property of the human brain and represents evolution’s invention to enable the nervous system to escape the restrictions of its own genome and thus adapt to environmental pressures, physiologic changes, and experiences.
+ - If someone is depressed they tend to retreat within the inner circle of their comfort zone which in the longer term, may contribute to exacerbating a problem rather than soothing it and if not seeking to expand the comfort zone becomes the norm.
+ - If we think of our brains as a map, those early roads are like grooves, tram tracks, easy to fall into.
+ - There are probably times where the creative process is not helped by collaboration.
+ - When we had to survive on our wits, gather and kill our food from scratch and be more at the mercy of our environment than we are today, we probably had enough challenge to keep our brains healthy.
+ - Sometimes an artist’s vision may get blurred when subjected to a committee because an artwork is usually an expression of something unconscious that is better left in the realm of one person’s unconscious if it is to speak to another person’s unconscious.
+ - Whether you plan or whether you flow in order to be creative probably isn’t the point. The point is to keep practicing to maintain neural pathways and to establish new ones by learning new skills.
+ - If you start from a position of I’m a no-hoper, in a paradoxical kind of way you are not risking being vulnerable.
+ - It seems whether we have a tendency towards being flexible or structured affects how we create, how we parent, how we work.
+ - Our brains do not have to be fixed, they can be plastic.
+ - In order to stretch ourselves we do need to experience the vulnerability of not knowing the outcome.
+ - People tend to slip up and go along the old road before they realise what they’ve done and climb out of it again.
+ - I think there is probably something evolutionary in that we are drawn to the easiest option. But in our age of convenience, cars, ready meals and off the peg mean that we are in danger of being mentally under stretched.
+ - It used to be thought that you stopped making new neural connections in your youth and from then on your brain was fixed and it was downhill all the way. But in fact as we know from our own experience we can keep on learning and learning means changing our brain on a physical level.
+ - We don’t have to have suffered brain damage to take advantage of the plastic nature of our brains.
+
+27 quotes

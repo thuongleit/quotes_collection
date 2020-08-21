@@ -1,0 +1,41 @@
+ - We have not only multiplied diseases, but we have made them more fatal.
+ - A simple democracy is the devil’s own government.
+ - Controversy is only dreaded by the advocates of error.
+ - I do not believe that the Constitution was the offspring of inspiration, but I am as satisfied that it is as much the work of a Divine Providence as any of the miracles recorded in the Old and New Testament.
+ - If we were to remove the Bible from public schools we would be wasting so much time punishing crimes and taking so little pains to prevent them.
+ - Liberty without virtue would be no blessing to us.
+ - Freedom can exist only in the society of knowledge. Without learning, men are incapable of knowing their rights.
+ - Dreams are nothing but incoherent ideas, occasioned by partial or imperfect sleep.
+ - Scandal dies sooner of itself, than we could kill it.
+ - Without Virtue there can be no liberty.
+ - The Gates of Hell shall not prevail against it.
+ - I have alternately been called an Aristocrat and a Democrat. I am neither. I am a Christocrat.
+ - Patriotism is as much a virtue as justice, and is as necessary for the support of societies as natural affection is for the support of families.
+ - The American war is over, but this is far from being the case with the American Revolution.
+ - I anticipate the Day when to command Respect in the remotest Regions it will be sufficient to say I am an American.
+ - Terror acts powerfully upon the body, through the medium of the mind, and should be employed in the cure of madness.
+ - Upon my return from the army to Baltimore in the winter of 1777, I sat next to John Adams in Congress, and upon my whispering to him and asking him if he thought we should succeed in our struggle with Great Britain, he answered me, “Yes-if we fear God and repent of our sins.”
+ - The art of healing is like an unroofed temple, uncovered at the top and cracked at the foundation.
+ - Mirth, and even cheerfulness, when employed as remedies in low spirits, are like hot water to a frozen limb.
+ - The Bible contains more knowledge necessary to man in his present state than any other book in the world.
+ - Let our pupil be taught that he does not belong to himself, but that he is public property. Let him be taught to love his family, but let him be taught at the same time that he must forsake and even forget them when the welfare of his country requires it.
+ - In such a performance you may lay the foundation of national happiness only in religion, not by leaving it doubtful “whether morals can exist without it,” but by asserting that without religion morals are the effects of causes as purely physical as pleasant breezes and fruitful seasons.
+ - There is but one method of rendering a republican form of government durable, and that is by disseminating the seeds of virtue and knowledge through every part of the state by means of proper places and modes of education and this can be done effectively only by the aid of the legislature.
+ - It would seem from this fact, that man is naturally a wild animal, and that when taken from the woods, he is never happy in his natural state, ’till he returns to them again.
+ - Let us show the world that a difference of opinion upon medical subjects is not incompatible with medical friendships; and in so doing, let us throw the whole odium of the hostility of physicians to each other upon their competition for business and money.
+ - A Christian cannot fail of being a republican.
+ - Temperate, sincere, and intelligent inquiry and discussion are only to be dreaded by the advocates of error. The truth need not fear them...
+ - Without the restraints of religion and social worship, men become savages much sooner than savages become civilized by means of religion and civil government.
+ - Without religion, I believe that learning does real mischief to the morals and principles of mankind.
+ - Now if the study of the Scriptures be necessary to our happiness at any time in our life, the sooner we begin to read them, the more we shall be attached to them...
+ - The great enemy of the salvation of man, in my opinion, never invented a more effective means of limiting Christianity from the world than by persuading mankind that it was improper to read the Bible at schools.
+ - Mania’s premonitory signs are unusual acts of extravagance, manifested by the purchase of houses, and certain expensive and unnecessary articles of furniture.
+ - Christianity is the only true and perfect religion...
+ - As the War Office of the United States was established in a time of peace, it is equally reasonable that a Peace Office should be established in a time of War.
+ - Such is my veneration for every religion that reveals the attributes of the Deity, or a future state of rewards and punishments, that I had rather see the opinions of Confucius or Mahomed inculcated upon our youth than see them grow up wholly devoid of a system of religious principles.
+ - The only means of establishing and perpetuating our republican forms of government is the universal education of our youth in the principles of Christianity by means of the Bible.
+ - A pioneer is generally a man who has outlived his credit or fortune in the cultivated parts.
+ - I have always considered Christianity as the strong ground of republicanism.
+ - Mothers and schools plant the seeds of nearly all the good and evil which exists in the world.
+
+39 quotes

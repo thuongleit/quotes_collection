@@ -1,0 +1,62 @@
+ - People aim for the stars, and they end up like goldfish in a bowl. I wonder if it wouldn’t be simpler just to teach children right from the start that life is absurd.
+ - Madame Michel has the elegance of the hedgehog: on the outside she is covered in quills, a real fortress, but my gut feeling is that on the inside, she has the same simple refinement as the hedgehog: a deceptively indolent little creature, fiercely solitary – and terrible elegant.
+ - I thought: pity the poor in spirit who know neither the enchantment nor the beauty of language.
+ - When illness enters a home, not only does it take hold of a body. It also weaves a dark web between hearts, a web where hope is trapped.
+ - That’s what the future is for: to build the present, with real plans, made by living people. – The Elegance of the Hedgehog.
+ - To beauty, all is forgiven, even vulgarity. Intelligence no longer seems an adequate compensation for things...
+ - Because art is life, playing to other rhythms.
+ - Talent consists not in inventing shapes but in causing those that were invisible to emerge.
+ - What is an aristocrat? A woman who is never sullied by vulgarity, although she may be surrounded by it.
+ - Personally I think that grammar is a way to attain beauty.
+ - I am going to die, but that is of no importance.
+ - Don’t worry Renee, I won’t commit suicide and I won’t burn a thing. Because from now on, for you, I’ll be searching for those moments of always within never. Beauty, in this world.
+ - Life has meaning and we grown-ups know what it is is the universal lie that everyone is supposed to believe. Once you become an adult and you realize that’s not true, it’s too late.
+ - When something is bothering me, I seek refuge. No need to travel far; a trip to the realm of literary memory will suffice. For where can one find more noble distraction, more entertaining company, more delightful enchantment than in literature?
+ - The real ordeal is not leaving those you love but learning to live without those who don’t love you.
+ - Humans live in a world where the weak are dominant. This is a terrible insult to our animal nature, a sort of perversion or a deep contradiction.
+ - What makes the strength of a soldier isn’t the energy he uses trying to intimidate the other guy by sending him a whole lot of signals, it’s the strength he’s able to concentrate within himself, by staying centered.
+ - When tea becomes ritual, it takes place at the heart of our ability to see greatness in small things.
+ - We never look beyond our assumptions and what’s worse, we have given up trying to meet others; we just meet ourselves.
+ - I may be indigent in name, position, and in appearance, but in my own mind I am an unrivaled goddess -.
+ - With the exception of love, friendship and the beauty of art, I don’t see much else that can nurture human life.
+ - In our world, that’s the way you live your grown-up life: you must constantly rebuild your identity as an adult, the way it’s been put together it is wobbly, ephemeral, and fragile, it cloaks despair and, when you’re alone in front of the mirror, it tells you the lies you need to believe.
+ - I may know that the world is an ugly place, I still don’t want to see it.
+ - What does art do for us? It gives shape to our emotions.
+ - Beautiful things should belong to beautiful souls.
+ - People think that children don’t know anything. It’s enough to make you wonder if grownups were ever children once upon a time.
+ - To the rich, therefore, falls the burden of Beauty. And if they cannot assume it, then they deserve to die.
+ - Melancholy overwhelms me at supersonic speed.
+ - Yes, the world may aspire to vacuousness, lost souls mourn beauty, insignificance surrounds us. Then let us drink a cup of tea. Silence descends, one hears the wind outside, autumn leaves rustle and take flight, the cat sleeps in a warm pool of light. And, with each swallow, time is sublimed.
+ - I find this a fascinating phenomenon: the ability we have to manipulate ourselves so that the foundation of our beliefs is never shaken.
+ - If you have but one friend, make sure you choose her well.
+ - Don’t let the cat out or the concierge in: this is the first principle of socialist ladies.
+ - The only purpose of cats is that they constitute mobile decorative objects.
+ - Do you know that it is in your company that I have had my finest thoughts?
+ - As far as I can see, only psychoanalysis can compete with Christians in their love of drawn-out suffering.
+ - In the end, I wonder if the true movement of the world might not be a voice raised in song.
+ - If you want to heal Heal others And smile or weep At this very happy reversal of fate.
+ - Just as teardrops, when they are large and round and compassionate, can leave a long strand washed clean of discord, the summer rain as it washes away the motionless dust can bring to a person’s soul something like endless breathing.
+ - Conclusion: better to be a thinking monk than a postmodern thinker.
+ - We don’t recognize each other because other people have become our permanent mirrors. If we actually realized this, if we were able to become aware of the fact that we are only ever looking at ourselves in the other person, that we are alone in the wilderness, we would go crazy.
+ - Tasting is an act of pleasure and writing about that pleasure is an artistic gesture, but the only true work of art, in the end, is another person’s feast.
+ - Civilization is the mastery of violence, the triumph, constantly challenged, over the aggressive nature of the primate. For primates we have been and primates we shall remain, however often we learn to find joy in a camellia on moss. This is the very purpose of education.
+ - Maybe that’s what being alive is about: so we can track down those movments that are dying.
+ - How to measure a life’s worth? The important thing, said Paloma one day, is not the fact of dying, it is what you are doing in the moment of your death.
+ - As always, I am saved by the inability of living creatures to believe anything that might cause the walls of their little mental assumptions to crumble.
+ - Entrusting one’s life is not the same as opening up one’s soul.
+ - But the world, in its present state, is no place for princesses.
+ - The strong ones among humans do nothing. They talk and talk again.
+ - What is writing, no matter how lavish the pieces, if it says nothing of the truth, cares little for the heart, and is merely subservient to the pleasure of showing one’s brilliance.
+ - We think we can make honey without sharing in the fate of bees, but we are in truth nothing but poor bees, destined to accomplish our task and then die.
+ - So if there is something on the planet that is worth living for, I’d better not miss it, because once you’re dead, it’s too late for regrets, and if you die by mistake, that is really, really dumb.
+ - I’m afraid to go into myself and see what’s going on in there.
+ - We can be friends. We can be anything we want to be.
+ - Levin delights in the forgetfulness that movement brings, where the pleasure of doing is marvellously foreign to the striving of the will.
+ - I won’t get any better by punishing the people I can’t heal.
+ - It would be so much better if we could share our insecurity, if we could all venture inside ourselves and realize that green beans and vitamin C, however much they nurture us, cannot save lives, or sustain our souls.
+ - Live or die: mere consequences of what you have built. What matters is building well.
+ - As a child I often wondered whether I would be allowed to live such moments- to inhabit the slow, majestic ballet of the snowflakes, to be released at last from the dreary frenzy of time. Is that what it feels to be naked? All one’s clothes are gone, yet one’s mind is overladen with finery.
+ - I belong to the 8% of the world population who calm their apprehension by drowning it in numbers.
+ - Because beauty consits of it’s own passing, just as we reach for it. It’s the ephemeral configuration of things in the moment, when you can see both their movement and their death.
+
+60 quotes

@@ -1,0 +1,54 @@
+ - If everything seems under control, you’re not going fast enough.
+ - Desire is the key to motivation, but it’s determination and commitment to an unrelenting pursuit of your goal – a commitment to excellence – that will enable you to attain the success you seek.
+ - Circumstances may cause interruptions and delays, but never lose sight of your goal.
+ - The only thing that happens if you wait, is that you get older.
+ - If you’re so afraid of failure, you will never succeed. You have to take chances.
+ - If you don’t come walking back to the pits every once in a while holding a steering wheel in your hands, you’re not trying hard enough.
+ - I count my blessings every day, quite honestly, because I take nothing for granted.
+ - You do the best you can with what’s thrown at you, then you try again.
+ - Nobody is born with a steering wheel or a gear shift in his hand. It’s something you choose to do or you don’t.
+ - It is amazing how may drivers, even at the Formula One Level, think that the brakes are for slowing the car down.
+ - Desire is the key to motivation.
+ - Motor racing is like one big family, ultimately, and when you come back to it, that’s really what it feels like.
+ - What is golden is miles under your belt, miles, miles, miles.
+ - Speed is relative. You have to live it. You can’t just jump into it. You have to live it all the time.
+ - I had no problems staying motivated because things that were happening were things I looked forward to.
+ - Unfortunately, we don’t educate drivers enough to be respectful on the road.
+ - I don’t have many superstitions, just dumb things I don’t talk about. I will not sign an autograph with a green pen.
+ - Sometimes you have to bring back only the steering wheel so the car owner will know that you’re giving it all you have.
+ - Whenever you’re aggressive, you’re at the edge of mistakes.
+ - Circumstances may cause interruptions and delays, but never lose sight of your goal. Prepare yourself in every way you can by increasing your knowledge and adding to your experience, so that you can make the most of opportunity when it occurs.
+ - I look at myself as the luckiest man alive.
+ - If a neighbor is killed in a car accident, do you sell your car and stop driving?
+ - I never personally name anyone. I am not comfortable rating other drivers.
+ - I don’t have any feeling of accomplishment about anything unless there’s a lot of risk to it.
+ - The crashes people remember, but drivers remember the near misses.
+ - Love what you do. Believe in your instincts. And you’d better be able to pick yourself up and brush yourself off every day.
+ - You do a period of go-karting until you’re at the age of qualifying for a ride in a ‘school-kart,’ then you qualify for driving school. And several of the driving schools have a competition series for their own students.
+ - The experts or the cynics say, “Oh, those were the good old days, that’s when drivers were really drivers. They didn’t have all these aids.” You know what? What we had, we did the best with and when we got more we provided what was needed.
+ - A racing car is an animal with a thousand adjustments.
+ - The man upstairs is pushing the buttons, and if your name happens to be on that button, well, thank you.
+ - When you are losing it can seem like there is a black cloud following you around, but like they say there is a silver lining in every cloud.
+ - Sebastian Vettel’s brilliant talent will ultimately come forth and he’ll continue to show what he’s capable of. I will never ever degrade Vettel’s ability. Sooner or later, he’ll prove anyone so wrong.
+ - The United States is the only country where a driver can have a successful career – either in stock cars or IndyCar – and he won’t need a passport.
+ - Every NASCAR driver watches Formula One in the morning; they are well informed.
+ - The first time I fired up a car, felt the engine shudder and the wheel come to life in my hands, I was hooked. It was a feeling I can’t describe. I still get it every time I get into a race car.
+ - Young drivers are supposed to be hard on equipment. That’s how you learn.
+ - My biggest concern during a race is getting bored. The biggest thing I have to combat is falling asleep while going around and around.
+ - Anybody who can drive and doesn’t come out of it a rich man is a fool.
+ - In racing, there is no question who is best – the first one to cross the finish line wins first prize. But with wine, even if you make the best wine in the world, someone isn’t going to like it, because it isn’t their style. Judging wine is very subjective.
+ - Speed takes a little bit of getting used to, but rules have to be followed. At any speed, the more you run, the more you get used to it.
+ - You can’t take a vacation from speed. I probably could have taken more time off and not driven in all the different disciplines, but I wanted to drive, drive and drive.
+ - I’m so thankful that I’ve had such a long and uninterrupted career. I count my blessings every day for that because it was so fulfilling.
+ - It takes a lifetime to build tradition.
+ - From the driver’s standpoint I had the same horrors, the same satisfactions, the same everything. The speed is relative. It’s faster and things are happening quicker, but you have the equipment to handle it.
+ - Tom Carnegie will never be replaced.
+ - There’s something special about racing in real streets. The ‘artificial’ circuits have a certain sameness to them. But every race conducted on real streets has a character of its own – Barcelona, Monaco, and now Long Beach.
+ - You dream what you’re supposed to do.
+ - I think social media really is a great tool. It fascinates me when I tweet something and right away you get a response almost immediately.
+ - The passport changes but the blood doesn’t.
+ - I will always enter a race car from the left side. Always. Why? I have no idea.
+ - When a car’s ahead of you, as long as you can see it, you get a tow, just like the draft in NASCAR. Even if it’s a long ways down the track, it punches a hole in the air that has to help. When you’re running alone, you can feel the difference, and it shows on the clock, too.
+ - I go to bed is around 11, and I do that for every race. I get good sleep. I don’t lie awake for any race. That’s my routine.
+
+52 quotes

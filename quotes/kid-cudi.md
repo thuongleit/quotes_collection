@@ -1,0 +1,95 @@
+ - I’m on the pursuit of happiness and I know, everything that shines ain’t always gonna be gold. But I’ll be fine once I get it, I’ll be good.
+ - Don’t let the sadness from the past and fear of the future ruin the happiness of the present.
+ - You can’t judge my choices without understanding my reasons.
+ - In the end they’ll judge me anyway, so whatever.
+ - I just wanna go on more adventures. Be around good energy. Connect with people. Learn new things. Grow.
+ - You sometimes think you want to disappear, but all you really want is to be found.
+ - I know it’s easy to imagine, But it’s easier to just do, See, if you can’t do what you imagine, then what is imagination to you?
+ - Music Has Been There For Me When No One Else Was And The Only Thing That Stays When Everyone Else Leaves.
+ - Everything that shines ain’t always gonna be gold.
+ - Learn from this, there’s a light at the end of the tunnel. Hell does have an exit, and I found it. For those who are still looking for a way out, I left the door open and I’ll be waiting for whoever wants to grow with me.
+ - People say that bad memories cause the most pain, but it’s actually the good ones that drive you insane.
+ - You’d commit suicide trying to read my mind.
+ - It’s true that the pain makes people change.
+ - Have you ever noticed, the saddest person has the most beautiful smile.
+ - Don’t hold strong opinions about things you don’t truly understand.
+ - I am happy, thats just the saddest lie.
+ - The Moon Will Illuminate My Room And Soon Im Consumed By My Doom.
+ - Weird itself, even in the dictionary, is just something that is different and unexplainable. A weirdo is someone who follows their heart. Im definitely weird, aint nothing wrong with that.
+ - My life is like a speeding bullet that just hasn’t hit the target yet.
+ - The end is never the end. A new challenge awaits. A test no man could be prepared for. A new hell he must conquer and destroy. A new level of growth he must confront himself. The machine in the ghost within. This is the journey of the man on the moon.
+ - Never regret something, because at one point everything you did was exactly what you wanted to do. And sometimes that’s the hardest thing to realize.
+ - Blood sweat and tears homie I’m made of it.
+ - For even in hell, I still have faith, To one day be free with my father at the gates, But make no mistakes, Ill show you what time takes, To be a success on earth, mixed with all the hate, I stand on my pivot, my life you cannot live it For the things that Ive seen have been too damn explicit.
+ - At the end of the day, you can’t regret it if you were trying. At the end of the day I’m walking with a heart of a lion.
+ - You don’t really care about the trials of tomorrow, rather lay awake in a bed full of sorrow.
+ - The ones that make it complicated never get congratulated.
+ - It’s the same old thing getting lost Day ‘N’ Nite young and lost in the pain.
+ - The devil tryna rip out my soul. Lost my soul. I’ll see you in hell. I see the devil linger on, stuck in my hell.
+ - The three things a guy should want to change about his girl is her last name, address and her viewpoint on men.
+ - I’ve got some issues that nobody can see and all of these emotions are pouring out of me I bring them to the light for you it’s only right.
+ - Struggle is the enemy, but weed is the remedy.
+ - Always say how you feel because you never know if you’ll get the chance again.
+ - Gentle with the drugs, heavy with the love.
+ - I don’t love who I am so I’m working on a fix.
+ - I was definitely high-fiving death a couple of times.
+ - I’m a wizard and I know it.
+ - I don’t like to power trip, but when you’re a boss you have to fight for certain things.
+ - I have all these revelations as I’m writing. Each song is like a chapter of my diary.
+ - It’s definitely the biggest lesson – not to take things personally. But it’s also the hardest one.
+ - I’m an emotional creature. I make music to express that.
+ - Living life is a choice. Making a difference in someone else’s isn’t.
+ - When lifes seems hopeless, rearrange things for a dose of dopeness.
+ - Girls that I dated, it’s ok I am not mad yo Unless you stabbed me in the heart, no love ho.
+ - You can always say sorry but the real apology is when you hear the sadness in their voice and see the look in their eyes. And you realize that they have hurt themselves just as much.
+ - My mind runs I can never catch it even if I got a head start.
+ - My whole thing is just to put out positive messages in the music, give people something that can change their lives.
+ - I love Sweden. In Sweden, the women are just so hot. Their vibe is so amazing. You feel like every girl out there was genetically altered to just be hot. I did not see one ugly woman out there, it was just a line of continuously hot girls.
+ - The devil tryna rip out my soul. Lost my soul.
+ - If somebody feels a certain way about me and I feel like they’re misunderstanding me, I don’t need to explain myself. I just try to shy away from it and just pretend like it never happened, and try to rekindle the friendship and let him know that its not like that.
+ - When you try to convince yourself that something doesn’t bother you, it usually bothers you more.
+ - I’ll never get why the earth is a puzzle that i’ll never fit.
+ - I like to get one pair of shoes and wear them till they’re dirty. Besides, I don’t walk – I glide, like butter. Float like a vampire. I’m like Louis Vuitton, but smoother. He wishes he were like me.
+ - Running from your problems is a race you’ll never win.
+ - I’m a people person when I’m out, but I’m a homebody. I like my time and peace and quiet.
+ - I just wanna learn and I wanna grow. I wanna consume as much information as possible. I wanna be great.
+ - My background is not typical hip-hop. I didn’t grow up in the projects. I grew up in a single family home in a middle-class suburb. That doesn’t mean I didn’t experience hardship, but to me it’s not about that, it’s about the future and where we are trying to take it.
+ - Help Kids Not Feel Alone And Stop Kids From Committing Suicide.
+ - Dim them lights get it in pimp tight do wat i do i lace up my own nikes.
+ - And I try to piece the puzzle of the universe, Split an eight of shrooms just so I could see the universe !
+ - I have to be ahead of myself so I don’t just fit into the realm of everybody who sounds like me.
+ - Yeah, but if you’re not doing what everyone else is doing then you’re going to be misunderstood. People are going to wonder why you’re trying to be different; it’s just a natural instinct.
+ - Wake up, life does get tough. No need to stress, holds you back too much.
+ - Not many people are true, fake as the lies they tell.
+ - I went out of my way to make ‘Immortal’ sound perfect. ‘Immortal,’ ‘Just What I Am,’ and ‘King Wizard,’ those are perfect beats. Not a lot of people can perform on them. I say that meaning they’re tailor-made for me.
+ - I used to take Sharpies and draw on my pillowcases, and then go to sleep on them and wake up with red marker from the drool all on my face.
+ - I like Louis Vuitton accessories, but I’d never wear their clothes. No offense, it’s just not my steeze.
+ - I was always the ugly duckling; I never got attention from girls.
+ - Emotion is what hip-hop thrives on. Don’t you want your music to have emotion in it? People like to always throw some negative cloud over it. Doesn’t even make sense.
+ - I’m trying to change the world.
+ - I’m confident in my art.
+ - Some people just don’t want to see change, but thankfully there are a lot of people more optimistic for something new in music, even with the bigger picture like with Obama getting elected.
+ - There was a moment in time where I was really focused on the Navy and I followed through with it – I passed the test. I was happy with myself because I was accomplishing something and I was really working towards a goal. That was the first true thing I invested my energy in.
+ - I’m very close with my family, so my mom is part of my entourage.
+ - I hated suits until I wore a Calvin Klein; they just fit me.
+ - I’m a goofball and a comedian.
+ - I’m a dude who likes to create music with good feeling. I live like a chameleon through music. It all depends on what the beat tells me to do; that’s why you’re always gonna get passionate hooks, because I’m feeling the beats and the emotion behind the drums and melodies.
+ - The people I met and the places I been Are all what make me the man I so proudly am.
+ - I probably could have gone in depth about a lot of things, but then the album would’ve been longer. You can’t have a short album when you’re talking about suicide and cocaine. That’s not going to be a short album.
+ - Ive always been ahead of the curve when it came to trying new stuff in the underground scene.
+ - I hate playing the bass, bro. I’ve been playing the bass because it’s there and I don’t want anyone else to play it.
+ - In music, you collaborate with people. It’s supposed to be a mutually beneficial thing.
+ - I’m usually always thinking about the cons.
+ - I’m well known because I do music at a professional level, and a certain magnitude.
+ - So with the freestyles, I just do it for fun. If I hear something that I like, I’m rapping on it.
+ - My fans will tell you all day that I can rap. That’s all I need.
+ - To be considered a celebrity, there’s a certain lifestyle that comes with that.
+ - I’ve always felt that because I’m from Cleveland, which isn’t recognised as a place for hip-hop, I needed to step it up if I wanted to make myself known.
+ - In America, we’re kind of lazy. But in New York, it’s one of those places where you see the majority of people hustling. If you can make it in New York, you can make it anywhere.
+ - I never knew the media would be so interested in my personal life.
+ - Once I accomplish one thing and I’m satisfied, I try something else. I may be 50 and doing something totally outside of music and acting. Maybe I’ll become a kindergarten teacher.
+ - If I never am better then Kanye, in my brain, I’m always going to be trying to be, forever and ever until the day that I die.
+ - I like being a consumer. I’ll do collabs with brands I like, only because I would like something free to wear. But I don’t want people to dress like me, which is what you’re asking when you create a brand. The fashion industry’s just a super-duper headache.
+ - If I fall if I die know I lived it to the fullest, if I fall if I die know I lived and missed some bullets.
+
+93 quotes

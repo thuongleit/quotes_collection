@@ -1,0 +1,40 @@
+ - Real estate prices are way out of whack with what people earn.
+ - I’ve always been interested in why countries appear and disappear. And the curious thing is how often it happens.
+ - The thing that keeps me most awake is the desire and curiosity to learn more.
+ - It’s not fear that keeps me up. I mean, every generation has thought, this is the worst generation; the world’s going to hell in a hand basket. The reality is, people are living longer, and they’re living better.
+ - It’s not going to surprise me if our kids end up running on the beach in Florida when they’re 100 years old on regrown body parts with a much higher quality of life than we can begin to imagine.
+ - It’s such an extraordinary time to be alive that you just don’t want to miss it. I mean, it’s a really neat historical period.
+ - Those of us of a certain age grew up expecting that by now we would have Rosie the Robot from ‘The Jetsons’ in our house. And all we’ve got is a Roomba.
+ - There’s a creativity, a power, an energy, an ability to do things unlike any other period in history. It’s a little bit like sitting in the Renaissance, but multiplied a thousand-fold.
+ - If I had a wand and could put statues in different places, one of the statues would go to a man who just died, called Norman Borlaug, who came up with the Green Revolution.
+ - It’s actually very hard to find an area of the economy that doesn’t fundamentally change in the measure that we are able to read and write life code.
+ - When you brought the digital revolution in, all of a sudden, you could build a country like Singapore and take that country, which had the income per capita of Ghana in 1965, and make it something similar to the United States in one generation.
+ - There is a massive ecosystem that has to get built that looks like a biosphere. And the various parts of that biosphere better be there.
+ - The thing that’s really important to understand is, the last thing an empire traditionally does is drive itself into bankruptcy. You’ve seen that with the great empires.
+ - It’s not completely inconceivable that someday you’ll be able to download your own memories.
+ - It is important that New York, in addition to its fashion, and finance, and tourism, and communications infrastructure, also begin developing venture infrastructure that’s for real.
+ - When you brought the Industrial Revolution in, all of a sudden India and China went from being the dominant global powers to being powers dominated by those who understood how to apply this new technology.
+ - The housing crisis may not be the worst thing that’s happened to New York City because it was becoming impossible for some of the young doctors, for some of the young artists, for some of the people that make the city so special to be able to live here.
+ - Try to live without something digital – without digital code for about two hours, very hard to do if you’re awake.
+ - New York City is a fascinating place because it’s very good at using the energy in attracting some of the best and the brightest from everywhere.
+ - The difference between people who can read and write and those who can’t is just absolutely astronomical.
+ - There are certain zip codes that generate a disproportionate share of patents, of startups, of wealth, of jobs. And it’s really important if other parts of the country are going to want to create these tech centers.
+ - We have to get serious about living within our means.
+ - As countries appear and disappear, then I began to ask, what makes countries successful? And it turns out, after a long slog through geographies and ethnicities and all kinds of variables, it’s the ability to adapt and adopt, what Darwin talked about.
+ - China has, all of a sudden, found a way of putting the best of the best to work to build an economy that is growing at 10% to 12% per year, and now India is following. And those changes and how quickly they’ve come out of this mess, how little debt they have, is really important.
+ - If you depend on a single industry, if you don’t continuously upgrade it, if that industry is not producing real wealth, if it’s simply shuffling paper from here to here in a very efficient manner sometimes, that’s not enough and that’s not where you begin to get the rest of your jobs.
+ - Borlaug would be one figure that I think fundamentally changed India, China, all of Southeast Asia, and gave them the time to be able to build on other things.
+ - We’re beginning to enter an era where it gets really cheap and really fast to begin to do things like make fuels, and make textiles, and make extra teeth for ourselves. And we’re beginning to think about how we regrow our bladders.
+ - When I grew up, I simply didn’t have mentors that said, “Science is important. Science helps you build a country. Science makes a country powerful.” And that’s such a simple thought, but when you think about what’s powered Taiwan and Korea and Silicon Valley and Cambridge.
+ - During a period of time when Italy is talking about splitting northern and southern Italy, France is talking about splitting with Corsica and Normandy, England is talking about splitting with Wales and Scotland and England. And it goes on and on and on.
+ - One of the lessons that I hope people will take out is the extreme dependence simply on the financial sector is really dangerous.
+ - It’s important to begin to even consider whether countries can become something that looks very different because people tend to take their countries for granted.
+ - Not only are we reading life code, we’re beginning to copy it through cloning, and we’re beginning to write, and in the measure that we do that, boy, you can build a lot of very powerful companies in a short period of time.
+ - Within the United States, there is a real division between the PhDs given in science and math to the Asian community, to the traditional white community, and then to African-Americans and Hispanics.
+ - The Americas has been a relatively stable continent. The last truly new border we have is Panama in 1903.
+ - There are few jobs in the world that are more fun than being the head of Urban Development for a great and thriving city.
+ - The definition of who’s literate and who’s not keeps changing. So, in Neanderthal times, if you painted on a cave wall, that was enough to transmit how you hunt, how you eat, how you cook, how you dress, and we can read about that.
+ - There is so much extraordinary opportunity if you’re curious, if you’re interested.
+ - Anytime you bring a really powerful new technology to market there are multiple implications. You start changing the relative position of countries.
+
+38 quotes

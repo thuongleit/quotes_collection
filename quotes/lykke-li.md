@@ -1,0 +1,48 @@
+ - I believe life’s too short for compromises and bad fitting jeans.
+ - I can cry myself to sleep because I’m not as great as Leonard Cohen, but who cares? Maybe you can’t be as great as some people, but it’s a tragedy when you don’t follow your dreams.
+ - My whole art is based on escaping life and reality, which might not the best tendency to have when you’re trying to be a good person in general. But people can escape into my world easily – artists are supposed to create a keyhole that people can look into.
+ - If you’re being ignored, that’s a good time to concentrate on finding yourself and creating your own mystery.
+ - I’m looking forward to some peace and quiet. I fantasize about having a home, which I’ve kind of never had.
+ - I hate the fact you always feel like you have to be going somewhere, like the end destination is to be finished, or to be happy. But the truth is a lot of us are completely lost, and we don’t know, and that is also a state of mind, to not know who you are and where you’re going.
+ - I don’t love all hip-hop, but I do relate to stuff like early Nas, 2Pac, Biggie, and MF Doom because they’re also trying to escape a scenario.
+ - I felt such a deep connection with dolphins. I felt like they were the only ones who understood me.
+ - I know that I’m dealing with some kind of wound through my music.
+ - In every person’s life, around 27 to 29 years old, the stars and the planets align themselves to exactly the way they were when you were born. You’re faced with yourself. There’s no running away.
+ - I am such a complex person. I have so many different layers of my personality to choose from. I am super-sensitive, and I am super-strong.
+ - I lived five years in Portugal and then spent winters in Nepal or India.
+ - I relate to hustlers who want to get out of where they are and create something different for themselves.
+ - Driving, for me, means power and freedom. The feeling that I can go anywhere I want at any time is exhilarating.
+ - I’m a really restless person; I’m tired of the way I sounded or looked yesterday. So it’s hard to hang onto this image of me as this young Swedish female in this world.
+ - Los Angeles is such a mysterious place because there’s so much evil in that city, but there’s also so much light. You can be totally alone on a hillside and I love that kind of secluded, deserted rawness.
+ - I would want to create an amphitheater outside of California where I would play everyday, and then people would have to come to me. I would create all this crazy stage decor and film it. Or I would just stay inside my home and do films. I would be like the modern Maya Deren.
+ - The key to a good life is finding things that you want to master.
+ - I’m really depressing. Some people watch comedy to relax. I watch 21 Grams. I can recognize sadness and tragedy really easily because it’s been with me forever.
+ - I had to do this album. I tried thinking, “I’m not going to do it.” But then I’m sitting there getting all suicidal and depressed, and I just start writing. It’s like this inner drive. If I could choose, I would probably be living in the countryside and be fine with that, but I’m not.
+ - I’m a girl from Sweden. I took a lot of risks and went to New York by myself when I was 19 just because I read about it in a few books. I came here knowing nobody, having no money, and now I’m doing all these things like making records and videos every day.
+ - I hung out with some crazy desert people. One guy was just walking around with only shorts on – he’d been walking with bare feet for the last two years. He was totally scarred and eating on all fours like a dog.
+ - I was totally romanticizing the idea of Los Angeles when the Doors, Joni Mitchell, and Neil Young were hanging out there.
+ - People comment on how you look, it’s so unnecessary. I just wanted people to listen to what I have to say instead of focusing on anything else.
+ - Do you have to have emotional turmoil to create music? I’m not sure because I’ve never been without it.
+ - I’m not so interested in being indie just for the sake of being indie.
+ - I dove into the craziness and did things that maybe I would think twice about when I get older.
+ - I don’t necessarily love all the collaborations that I’ve done; the more I work with other people, the more I realize that I want to work with myself.
+ - I feel it’s so important to have strong women around you.
+ - It’s not a very sane thing to try to be great all the time. You want to make something magical; you want to make something wonderful; you want to give to everybody; you want to heal people; you want to still be inspired. That’s not easy.
+ - I’m from Sweden so I don’t enjoy winter at all; there’s nothing cute about it.
+ - I was 21 and homeless – such a broken, lost woman.
+ - Life is greater when I’m dealing with something than when I’m just dreaming away.
+ - I do it live on tape with a band. It’s not like I’m doing electronic music with a laptop.
+ - I want to get my music out there. I enjoy playing shows; I just don’t enjoy airports. I want to be more creative, but it’s hard to get into that zone on tour.
+ - After you’ve been wounded a few times, it’s hard to let somebody get that deep again.
+ - It’s not a very sane thing to try to be great all the time.
+ - Sometimes women are so great and powerful, but then they surrender to these vain things. They kind of fall for it.
+ - I probably thought that about most of the things I did. But you wind up in situations where you have to make decisions very quickly, and you just go for it a lot of the time.
+ - I wanted to create something really aggressive and psychedelic.
+ - I don’t think Neil Young has a beautiful voice but it’s something that grabs you and the songs are so good.
+ - I always want to keep things unwritten. I’m inspired by Bob Dylan, who’s kept evolving and changing his sound. I think that’s what you should do as an artist. Why be comfortable?
+ - I was 19 when I recorded my first album, and I’ve been exposed to many things during these last few years; all the baby fat is gone.
+ - You can’t stay in the desert, you go nuts after 24 hours.
+ - Of course, there are a lot of things I’m angry about in the world.
+ - It would be amazing if people listened to it when they needed shelter; it would be lovely if they didn’t spit on it.
+
+46 quotes

@@ -1,0 +1,32 @@
+ - I think it’s a very important collaboration between the conductor and the orchestra – especially when the conductor is one more member of the orchestra in the way that you are leading, but also respecting, feeling and building the same way for all the players to understand the music.
+ - You have to believe that things will happen, you have to work and love what you’re doing.
+ - It’s not that people don’t like classical music. It’s that they don’t have the chance to understand and to experience it.
+ - My main goal, and it’s a big one, is that every child has a chance to get close to music – as a right – that as they have access to food, health, and education, they get the chance to have art and culture – especially music.
+ - When you play Mozart, it’s so clean, it’s so simple. It’s the body naked.
+ - Recently, I went to a disco with friends, and all the young people were saying, ‘Dudamel, we want to go to your concert, but it’s impossible because it’s sold out.’ It’s really amazing.
+ - Music is a fundamental human right.
+ - I think that I need to learn a lot, a lot.
+ - It’s a physical challenge. It’s a spiritual challenge. I’m studying almost every day a different symphony, not returning to any one for a week.
+ - I think the atmosphere of a Prom concert can change your life, in the best way. It’s so deep, the feeling you have there. The audience is so close, and there are so many of them, that you feel they are almost embracing you.
+ - Classical music in Venezuela is now something like a pop concert. You can see people screaming or crying because they don’t have a ticket.
+ - When people feel that something really special is happening on the stage, things change.
+ - I love to travel, but sometimes it’s nice to stay in one place.
+ - A friend gave me a CD of the ‘Pathetique’ Symphony as a Christmas present. I went home, and I put on the CD expecting to listen to Tchaikovsky. But it started ‘ta ta ta taaa.’ It was too long for me. I didn’t understand it at first, but then I fell in love, in love, in love.
+ - For me to rehearse with a children’s orchestra a Mahler symphony was to really work. We had three or four weeks of rehearsal with the orchestra, every day eight or nine hours, putting the First together. I had been conducting Tchaikovsky a lot and Beethoven, but Mahler was different.
+ - I love to read different books on completely different subjects at the same time. I cannot focus on one. I read a few pages of literature, then I jump to philosophy and at the same time I’m reading biographies of Mahler.
+ - Whenever I listen to a children’s orchestra, I learn. They feel everything, they enjoy everything, they have amazing energy.
+ - With an orchestra you are building citizens, better citizens for the community.
+ - I wanted to play my violin and have my musical expression through the instrument. But then I was really young when I had my first opportunity to conduct.
+ - The challenge is not so much to change the sound. The challenge is to connect and to create something special.
+ - In my imagination yes, I remember, when I was six years old, I was conducting all this concert in my house. But now it’s real.
+ - I have eaten very well in Los Angeles. Marvelously!
+ - I set out to create a means whereby music could be a way of vindicating the rights of the masses.
+ - Los Angeles is a very special city. It’s a great ethnic mix, a great cultural mix.
+ - I studied music since I was four years old, and from that moment I became part of a family. And that family has taught me things; not only musical things, but things I have to face in life, and that is where the success of the system lies.
+ - For me, Venezuela is very important, not just because it’s a place I go to conduct, but because my family is there – my wife, my parents and my musical family.
+ - My relationship with the Philharmonia Orchestra brought me many times to London and I will always reflect positively on that early period of development with them – their patience, their warmth, their dedication.
+ - I want to work with the big orchestras. I want to have a big family.
+ - You learn a lot about each other from a tour, musically and humanly.
+ - My material life is simple.
+
+30 quotes

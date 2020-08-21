@@ -1,0 +1,40 @@
+ - Everything is held together with stories. That is all that is holding us together, stories and compassion.
+ - The wolf exerts a powerful influence on the human imagination. It takes your stare and turns it back on you.
+ - The interior landscape responds to the character and subtlety of the exterior landscape; the shape of the individual mind is affected by the land as it is by genes.
+ - The most intelligent thing we can do is love, not reason.
+ - The land is like poetry: it is inexplicably coherent, it is transcendent in its meaning, and it has the power to elevate a consideration of human life.
+ - It is the imagination that gives shape to the universe.
+ - We simply do not understand our place in the universe and have not the courage to admit it.
+ - The opposite of love is not hate; it’s indifference. To be indifferent is to not express love.
+ - The gaze of the wolf reached into our soul.
+ - Throughout the centuries we have projected on to the wolf the qualities we most despise and fear in ourselves.
+ - One of the great dreams of man must be to find some place between the extremes of nature and civilization where it is possible to live without regret.
+ - The land gets inside of us; and we must decide one way or another what this means, what we will do about it.
+ - One must live in the middle of contradiction, because if all contradiction were eliminated at once life would collapse.
+ - To put your hands in a river is to feel the chords that bind the earth together.
+ - If stories come to you, care for them. And learn to give them away where they are needed. Sometimes a person needs a story more than food to stay alive.
+ - You can’t learn anything from saguaro cactus, from ocotillo. They are just passing through; their roots, their much heralded dormancy in the dry season, these are only illusions of permanence. They know even less than you do.
+ - We cannot, of course, save the World because we do not have authority over its parts. We can serve the world though. That is everyone’s calling, to lead a life that helps.
+ - Sometimes a person needs a story more than food to stay alive.
+ - One must live in the middle of contradiction, because if all contradiction were eliminated at once, life would collapse. There are simply no definitive answers to some of the great pressing questions. You continue to live them out making your life a worthy expression of leaning into the light.
+ - The land urges us to come around to an understanding of ourselves.
+ - When I sit at that typewriter, I have to be frightened of what I’m trying to do. I’m frightened by my own belief that I can actually get a story down on paper.
+ - Have we come all this way, I wondered, only to be dismantled by our own technologies, to be betrayed by political connivance or the impersonal avarice of a corporation?
+ - The attempt to close the gap between what is known and what IS, is the temptation behind the apple in Genesis.
+ - There are simply no answers to some of the great pressing questions.
+ - Would the last animal, eating garbage and living on the last scrap of land, his mate dead, would he still forgive you?
+ - I lay there knowing something eerie ties us to the world of animals. Sometimes the animals pull you backward into it. You share hunger and fear with them like salt in blood.
+ - No culture has yet solved the dilemma each has faced with the growth of a conscious mind: how to live a moral and compassionate existence when one is fully aware of the blood, the horror inherent in all life, when one finds darkness not only in one’s own culture but within oneself.
+ - In behaving respectfully toward all that the land contains, it is possible to imagine a stifling ignorance falling away from us.
+ - It does not demean men to want to be what they imagine the wolf to be, but it does demean them to kill the animal for it.
+ - My faith is in my colleagues. And when I meet other writers, journalists, who’ve been doing this for a long time, trying to make us aware of what it is that we’re living in, I put my faith in those people.
+ - For so many centuries, the exchange of gifts has held us together. It has made it possible to bridge the abyss where language struggles.
+ - People think that if you’ve written a book and somebody’s given you a pat on the back then, you know, it’s all – you’re all settled, you know? You’re going to be fine. I know that if I’m not confused, and really afraid, my work isn’t going to be any good.
+ - My function as a writer is to provide an atmosphere in which people can think wisely about what we’re doing on this planet.
+ - You continue to live them out, making your life a worthy expression of leaning into the light.
+ - I know of no restorative of heart, body, and soul more effective against hopelessness than the restoration of the Earth.
+ - Theres so much to be afraid of.
+ - The writer works on the inside and the critic works on the outside. I don’t know what it looks like on the outside, sometimes. It’s not that I’m not interested-it’s not where I live. I live inside the story.
+ - If there is a stage at which an individual life becomes truly adult, it must be when one grasps the irony in its unfolding and accepts responsibility for a life lived in the midst of such paradox.
+
+38 quotes

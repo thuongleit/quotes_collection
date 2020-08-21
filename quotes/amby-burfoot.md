@@ -1,0 +1,34 @@
+ - Life is a marathon, not a sprint; pace yourself accordingly.
+ - If you train your mind for running, everything else will be easy.
+ - I have learned that there is no failure in running, or in life, as long as you keep moving.
+ - As we run, we become.
+ - Winning has nothing to do with racing. Most days don’t have races anyway. Winning is about struggle and effort and optimism, and never, ever, ever giving up.
+ - Don’t judge your running by your speed.
+ - It’s not about speed and gold medals. It’s about refusing to be stopped.
+ - Best wishes for a great marathon. Be sure to savor it. The first marathon is something special. Run long and healthy.
+ - To get to the finish line, you’ll have to try lots of different paths.
+ - I always tell beginning runners: Train your brain first. It’s much more important than your heart or legs.
+ - You have to want it, you have to plan for it, you have to fit it into a busy day, you have to be mentally tough, you have to use others to help you. The hard part isn’t getting your body in shape. The hard part is getting your mind in shape.
+ - Courage is crossing a starting line.
+ - It’s what runners do. We keep on keeping on.
+ - Running removes us briefly from the fragmentation and depersonalization of the digital world.
+ - In running, it doesn’t matter how fast or slow you are relative to anyone else. You set your own pace and you measure your own progress. You can’t lose this race because you’re not running against anyone else. You’re only running against yourself, and as long as you are running, you are winning.
+ - That’s the beauty of starting lines: Until you begin a new venture, you never know what awaits you.
+ - I’ve always liked hills. I see a challenge, a goal, and I feel instantly galvanized to achieve that goal.
+ - The most powerful lesson you can learn in running? You’re capable of much more than you think.
+ - The true but rare runner’s high is a zone that we enter when everything seems to click perfectly, when time stands still, and when we can run almost without effort.
+ - Motivation is a skill. It can be learned and practiced.
+ - It’s not about how fast you go. It’s not about how far you go. It’s a process.
+ - Running is ultimately a personal experience. It is a revival of the spirit, a private oasis for the thirsty mind. Yet, its healing power only increases in the presence of others. Run together and the oasis grows cooler and more satisfying.
+ - Too many people have refused to begin running or have quickly dropped out of running programs because they ‘have no talent for it.’ Ridiculous. Talent has nothing to do with it. The only thing that matters is mental discipline.
+ - Success does not come to the most righteous and rigorously disciplined but to those who continue running.
+ - I’ve never known a runner who had as much patience as he needed.
+ - I run because I enjoy it – not always, but most of the time. I run because I have always run – not trained, but run. What do I get? Joy and pain. Good health and injuries. Exhilaration and despair. A feeling of accomplishment and a feeling of waste. The sunrise and the sunset.
+ - Set a goal and a program for yourself, and everything else will follow. Guaranteed.
+ - Here’s my mantra: ‘Every mile is a gift.’
+ - I like to say, and I truly believe, that every run brings new experiences. You just don’t know what they might be until you actually do the run. That’s one of my major reasons for pushing out the front door as often as I do-the adventure of it all.
+ - In the longest run of all, your life, you’re going to be a winner.
+ - Everyone stumbles at one time or another. It’s the human condition.
+ - Once upon a time, about 20 years ago, runners believed they didn’t have to do anything but run.
+
+32 quotes

@@ -1,0 +1,29 @@
+ - There is a flower, a little flower With silver crest and golden eye, That welcomes every changing hour, And weathers every sky.
+ - Bliss in possession will not last; Remembered joys are never past.
+ - A mother’s love – how sweet the name! What is a mother’s love? – A noble, pure and tender flame, Enkindled from above, To bless a heart of earthly mould; The warmest love that can grow cold; This is a mother’s love.
+ - The tulip’s petals shine in dew, All beautiful, but none alike.
+ - Prayer moves the arm Which moves the world, And brings salvation down.
+ - Beyond this vale of tears there is a life above. unmeasured by the flight of years; and all that life is love.
+ - Prayer is the soul’s sincere desire, Uttered or unexpressed, The motion of a hidden fire That trembles in the breast. Prayer is the burden of a sigh, The falling of a tear, The upward glancing of an eye When none but God is near.
+ - The Dove, on silver pinions, winged her peaceful way.
+ - When evening closes Nature’s eye, The glow-worm lights her little spark To captivate her favorite fly And tempt the rover through the dark.
+ - The Dead are like the stars by day; Withdrawn from mortal eye, But not extinct, they hold their way In glory through the sky.
+ - Eagle of flowers! I see thee stand, And on the sun’s noon-glory gaze; With eye like his, thy lids expand, And fringe their disk with golden rays: Though fix’d on earth, in darkness rooted there, Light is thy element, thy dwelling air, Thy prospect heaven.
+ - There is a world above, Where parting is unknown; A whole eternity of love, Form’d for the good alone; And faith beholds the dying here Translated to that happier sphere.
+ - Yet nightly pitch my moving tent, a day’s march nearer home.
+ - Fairest and best adorned is she Whose clothing is humility.
+ - Time is eternity begun.
+ - Eternity: a moment standing still for ever.
+ - Here hyacinths of heavenly blue, shook their rich tresses to the morn.
+ - Blue thou art, intensely blue; Flower, whence came thy dazzling hue?
+ - Two roses on one slender spray In sweet communion grew, Together hailed the morning ray And drank the evening dew.
+ - There is a calm for those who weep, A rest for weary pilgrims found, They softly lie and sweetly sleep Low in the ground.
+ - Songs of praise the angels sang, Heav’n with alleluias rang, when creation was begun, when God spoke and it was done.
+ - Joys too exquisite to last, And yet more exquisite when past.
+ - Dark-green and gemm’d with flowers of snow, With close uncrowded branches spread Not proudly high, nor meanly low, A graceful myrtle rear’d its head.
+ - While rose-buds scarcely show’d their hue, But coyly linger’d on the thorn.
+ - Tis human actions paint the chart of time.
+ - Who that hath ever been Could bear to be no more? Yet who would tread again the scene He trod through life before?
+ - We fought the Revolutionary War for no taxation without representation, it seems to me that we are much worse off today, because we are heavily taxed, and only the king’s corporations control this Country, together with mob rule, of the special interests.
+
+27 quotes

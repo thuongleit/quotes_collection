@@ -1,0 +1,23 @@
+ - Good riddance to bad rubbish.
+ - Books are like truth serum – if you don’t read, you can’t figure out what’s real.
+ - Pain is just a state of mind. You can think your way out of everything, even pain.
+ - Every word is part of a picture, Every sentence is a picture. All you have to do is link them together.
+ - The only real treasure is in your head. Memories are better than diamonds and nobody can steal them from you.
+ - I believe that we have the ability to change our lives using our imaginations. Imagination is a muscle – the more you use it, the stronger it gets.
+ - I wrote Freak the Mighty because Max, the mighty half of Freak the Mighty, insisted and he’s bigger than I am.
+ - You don’t need a time machine if you know how to remember.
+ - I never had a brain until Freak came along and let me borrow his for awhile, and that’s the truth, the whole truth. The unvanquished truth, is how Freak would say it, and for a long time it was him who did the talking.
+ - Do not despair, my friend. Today is theirs, but the future is ours.
+ - Matter of fact, I watch tons of tube, but I also read tons of books so I can figure out what’s true and what’s fake, which isn’t always easy. Books are like truth serum – if you don’t read, you can’t figure out what’s real.
+ - I’m thinking maybe letting the latches burn is the right idea. Let everything burn until there’s nothing left but ashes and cool rain.
+ - It all boils down to this: A person has only two options in life, to do something or to do nothing.
+ - Keep marching boys and girls. Keep marching.
+ - The future is like the moon. You never expect to go there, or think about what it might be like.
+ - His heart was simply to big for his body.
+ - It’s fun to be amazing, to be the star of the show, to have everyone watching you-even if you have to act like a pig.
+ - I don’t have any of the answers, son. Never did. All I can do is keep asking the questions. Keep trying to make sense of why people do what they do.
+ - Remembering is a great invention of the mind.
+ - I never had a brian till freak came along...
+ - I think in some way it’s like that for all of us, living with the ghosts of things that used to be, or never were. We’re all of us haunted by yesterday, and we got no choice but to keep marching into our tomorrows.
+
+21 quotes

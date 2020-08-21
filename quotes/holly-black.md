@@ -1,0 +1,144 @@
+ - Life is like licking Honey from a Thorn.
+ - To remind me, pain is the best teacher.
+ - Instead, it just reminded her that sometimes there were no good choices.
+ - If curiosity killed the cat, it was satisfaction that brought it back.
+ - Every hero is the villain of his own story.
+ - I’m sorry I kissed you- it was selfish and it upset you- but you can’t ask me to pretend I didnt want to.
+ - She loves the serene brutality of the ocean, loves the electric power she felt with each breath of wet, briny air.
+ - Changing is what people do when they have no options left.
+ - Don’t be drinking the Haterade.
+ - Those who really love you don’t mean to hurt you and if they do, you can’t see it in their eyes but it hurts them too.
+ - Clever as the Devil and twice as pretty.
+ - She wears trouble like a crown. If she ever falls in love, she’ll fall like a comet, burning the sky as she goes.
+ - The truth is messy. It’s raw and uncomfortable. You can’t blame people for preferring lies.
+ - Ah coffee. The sweet balm by which we shall accomplish today’s tasks.
+ - Lie until even you believe it – that’s the real secret of lying.
+ - Every plan is a house of cards.
+ - Mine. The language of love is like that, possessive. That should be the first warning that it’s not going to encourage anyone’s betterment.
+ - This, the language of deception, we both understand. We were born to it, along with the curses.
+ - Marks forget that whenever something’s too good to be true, that’s because it’s a con.
+ - You want me to say something? Okay. Sometimes I think I am what you made me. And sometimes I don’t know who I am at all. And either way I’m not happy.
+ - Once, there was a girl who vowed she would save everyone in the world, but forgot herself.
+ - Once someone’s hurt you, it’s harder to relax around them, harder to think of them as safe to love. But it doesn’t stop you from wanting them.
+ - Mirroring behavior. When a mark takes a drink from his water glass, so should you. When he smiles, so should you. Keep it subtle, rather than creepy, and it’s a good technique.
+ - I can’t help feeling a little bit competitive and a little bit disappointed in myself that I’m already so far behind. After all, Yulikova thinks Barron has a real future with the Bureau. She told me so. I told her that sociopaths are relentlessly charming. I think she figured I was joking.
+ - We are, largely, who we remember ourselves to be. That’s why habits are so hard to break. If we know ourselves to be liars, we expect not to tell the truth. If we think of ourselves as honest, we try harder.
+ - One fine day, in the middle of the night, two dead boys got up to fight. Back to back they faced each other. They pulled out their swords and shot one another. One deaf cop, on the beat heard the noise, and came and shot the two dead boys.
+ - I can’t trust the people I care about not to hurt me. And I’m not sure I can trust myself not to hurt them, either.
+ - Clever girl. You play with fire because you want to be burnt.
+ - We’re all dying, Cassel. It’s just that some of us are dying faster than others.
+ - And if I wanted to kill myself, I wouldn’t throw myself off a roof. And if I was going to throw myself off a roof, I would put on some pants before I did it.
+ - Boys never believe I can beat them, she told me back then. But I always win in the end.
+ - A girl like that, Grandad said, perfumes herself with ozone and metal filings.
+ - She took a deep breath, “Last chance. Are you in need of rescuing?” His expression turned very strange, almost as if she’d struck him, “yes,” he said finally. -Tana and Gavriel-page 33- chapter 5.
+ - The first boy I fell in love with didn’t know I loved him, but he managed to break my heart anyway.
+ - The more powerful you become, the more others will find ways to master you. They’ll do it through those you love and those you hate. They will find the bit and the bridle that fits your mouth and will make you yield.
+ - Yesterday when we went over the plan again and again, I never thought about Grandad showing up. Because I’m an idiot, basically – an idiot with poor planning skills. Of course he’s here. Where else would he be? Seriously, what else could go wrong?
+ - You are more dangerous than daybreak.
+ - Kaye: You know what the sun looks like? Janet: No, What? Kaye: Like he slit his wrists in a bathtub and the blood is all over the water. Janet: That’s gross, Kaye. Kaye: And the moon is just watching. She’s just watching him die. She must have driven him to it.
+ - Allow me to explain how my whole life has prepared me for this moment. I am used to girls screaming, and your screams – will be sweeter than another’s cries of love.
+ - She can’t help it. She loves the con. I tell myself I’m not like her, but I have to admit I love it too.
+ - He’s the kind of liar who totally forgets what he told you the last time, but he believes every single lie with such conviction that sometimes he can convince you of it.
+ - Life’s full of opportunities to make crappy decisions that feel good. And after the first one, the rest get a whole lot easier.
+ - Love changes us, but we change how we love too.
+ - There’s people who do things and people who never do – who say they will someday, but they just don’t. I want to go on a quest. I’ve always wanted to go on a quest. And now that I have one, I’m not backing down from it. I’m not going home until it’s complete.
+ - Mutually assured destruction.
+ - I want you and I hate wanting things and I especially hate admitting I want them.
+ - If the enemy of my enemy is my friend, then surely you should be friend to my friend.
+ - They say that nameless things change constantly – that names fix them in place like pins.
+ - Jewels, lies, slips of paper, dried flowers, memories of thing long past, useless quotations, idle hands, beads, buttons, and mischief.
+ - She knew she shouldn’t feel that way about a monster, but right then, she wanted nothing more than a monster of her very own.
+ - Once, she made a boy come out of his house and kiss her under the streetlight. It was her first kiss. She thinks it was probably his, too. She never told him and she never, ever will.
+ - I thought of how proud he was when he took the marks- cutting the skin of his throat in a long slash and then packing it with ashes until keloid scars rose up. He called it his second smile.
+ - Ruthless. That’s my girl.
+ - Sam: You know what I wish? Cassel: What? Sam: That someone would covert my bed into a robot that would fight other bed robots to the death for me.
+ - The problem with cell phones is that you can’t slam them down into a cradle when you hang up. Your only option is to throw them, and if you do, they just skitter across the floor and crack their case. It’s not satisfying at all. I close my eyes and bend down to pick up the pieces.
+ - Some promises aren’t worth keeping.
+ - The moment she was cursed, I lost her. Once it wears off- soon- she will be embarrassed to remember things that she said, things she did, things like this. No matter how solid she feels in my arms, she is made of smoke.
+ - It’s the flaw that brings out the beauty.
+ - Even from the beginning, that was the problem. People liked pretty things. People even liked pretty things that wanted to kill and eat them.
+ - She didn’t know how much she’d been hoping that he still loved her, until she felt how much it hurt to realize he didn’t.
+ - There are dog people and cat people.
+ - A mortal had woven it, a man who, having caught sight of the Seelie queen, had spent the remainder of his short life weaving depictions of her. He had died of starvation, raw, red fingers staining the final tapestry.
+ - I hate that everyone calls it growing up, but it seems like DYING.
+ - I did it to get what I want. Maybe I should regret that, but I can’t. Sometimes you do the bad thing and hope for the good result.
+ - That’s family for you. Can’t live with them, can’t murder them.
+ - Like a stage magician, the con artist misdirects suspicion. While everyone’s watching for him to pull a rabbit out of a hat, he’s actually sawing a girl in half. You think he’s doing one trick when he’s actually doing another. You think that I’m dying, but I’m laughing at you.
+ - Crippled things are always more beautiful. It’s the flaw that brings out beauty.
+ - As the last Seelie left the hall, Roiben, self-declared King of the Unseelie Court, nearly fell into his throne. Kaye tried to smile at him, but he was not looking at her. He was staring out across the brugh with eyes the color of falling ash. Corny had not stopped laughing.
+ - Everything was strange and beautiful and swollen with possibilities.
+ - All friendships are negotiations of power.
+ - You are the best kind of killer, Cassel Sharpe, the kind that never has blood on his hands. The kind that never has to sicken at the sight of what he’s done, or come to like it too much.
+ - The easiest lies to tell are the ones you want to be true.
+ - Telling Sam and Daneca feels like peeling off my own skin to expose everything underneath. It hurts.
+ - He was as honest as any criminal can hope to be.
+ - Greg stands up, wiping his mouth. “I saw your mother’s trial in the paper, Sharpe. I know you’re just like her.” “If I was, I would make you beg to blow me,” I sneer.
+ - He was saying that the end of the world wasn’t an accident; it was a joke.
+ - He wondered whether growing up was learning that most stories turned out to be lies.
+ - You can break a thing, but you cannot always guide it afterward into the shape you want.
+ - Nobody ever really sees me the way I am, underneath everything. But she did. She does.
+ - If she was going to die, she might as well die sarcastic.
+ - I survive at the edge of friends circles.
+ - His eyes look too bright, the way the do in people who are in love, people who are enraged, and people who are completely bonkers.
+ - I thought you needed to be tougher. But I’ve been thinking that protecting somebody by hurting them before someone else gets the chance isn’t the kind of protecting that anybody wants.
+ - He must have been handsome when he was alive and was handsome still, although made monstrous by his pallor and her awareness of what he was. His mouth looked soft, his cheekbones as sharp as blades, and his jaw curved, giving him an off-kilter beauty. His black hair a mad forest of dirty curls.
+ - It’s hard to look at Barron now, but I do. He’s smirking. His black hair and black suit make him into a shadow, as if I conjured some dark mirror of myself.
+ - She looks honestly upset, but then, I’ve learned that I can’t read her. The problem with a really excellent liar is that you have to just assume they’re always lying.
+ - It’s not that I don’t know that it’s a bad idea. It’s that, lately, bad ideas have a particular hold over me.
+ - He looks like the good boy he’s never been.
+ - She knew what it felt like to tremble like that before touching someone – desire so acute that it became despair.
+ - Jones looks like he wants to slug me, which is only subtly different from his usual way of looking at me like I’m a slug.
+ - But if you didn’t believe in monsters, then how were you going to be able to keep safe from them?
+ - When you don’t know what you’re searching for, you have to look absolutely everywhere.
+ - I wonder about death, I who may never know it. It looks much like ecstacy, the way they open their mouths as they drown, the way their fingers dig into your skin. Their eyes are wide and startled and they trash in your hands as though with an excess of passion.
+ - They think you can’t feel anything, because they’ve forgotten how. You’re very, very dangerous, I get that, and you’re prone to some very theatrical brooding, but don’t let yourself mistake that for some kind of inner corruption. They see themselves in you and are blinded.
+ - Everyone danced – sweaty bodies packed tight, drunk with sound.
+ - I have no memory of climbing the stairs up to the roof. I don’t even know how to get where I am, which is a problem since I’m going to have to get down, ideally in a way that doesn’t involve dying.
+ - She’d always been a little contemptuous of beauty, as though it was something you had to trade away some other vital thing for.
+ - We are, largely, who we remember ourselves to be.
+ - There’s nothing like a gunshot to make you the life of the party.
+ - I need you to be happy. I need one of us to be happy.
+ - You are the only thing I have that is neither duty nor obligation, the only thing I chose for myself. The only thing I want.
+ - I’m afraid my voice is going to break. I am afraid she is going to hear how much this hurts.
+ - This is the part in the movie where that guy says, “Zombies? What zombies?” just before they eat his brains. I don’t want to be that guy.
+ - Yeah, the whole family knows. It’s no big deal. One night at dinner I said, ‘Mom, you know the forbidden love that Spock has for Kirk? Well, me too.’ It was easier for her to understand that way.
+ - One night you will ask me for something I cannot give.
+ - I haven’t had a very good day. I think I might still be hung over and everyone’s dead and my root beer’s gone.
+ - Carney is like a graveyard where everyone already owns their plots and has built houses on top of them.
+ - What an author doesn’t know could fill a book.
+ - We all wind up drawn to what we’re afraid of, drawn to try to find a way to make ourselves safe from a thing by crawling inside of it, by loving it, by becoming it.
+ - He’s quiet then. We lie next to each other, twin corpses waiting for burial.
+ - I’m the best kind of thief, the kind that leaves behind items equal in value to those he’s stolen.
+ - I wonder if he really could rationalize what I did to him, really treat betrayal like the slight transgression of a recalcitrant business partner. I wonder if I hurt him. If he can rationalize what I did to him, it’s easy to imagine how he rationalized what he did to me.
+ - Death has his favorites, like anyone. Those who are beloved of Death will not die.
+ - It’s sweet. All this trouble for a kitty.
+ - Our tragedy is that we forget it might be someone else first.
+ - I know how to be the witness to her grief. I don’t know how to be this kind of villain.
+ - Poisonous jealousy thrummed through my veins.
+ - I drive him to school, then I break back into Barron’s house. I’m the best kind of thief, the kind that leaves behind items equal in value to those he’s stolen. Then I go home and shave until my skin is as slick as any slickster’s.
+ - He runs to the sink to spit it out. I grin. There’s nothing quite as funny as someone else’s misery.
+ - Maybe it was that nearly everyone else was dead and she felt a little bit dead too, but she figured that even a vampire deserved to be saved. Maybe she ought to leave him, but she wasn’t going to.
+ - My head is pounding. I wish the mints were aspirin.
+ - I thought you were her knight, but you have become only her woodsman – taking little girls into the forest to cut out their hearts.
+ - It makes you a different person, to not have a past. It eats away at who you are, until what’s left is all construct, all artifice.
+ - I thought weirdness was a good thing. I don’t mean that defensively, either. I thought it was something to be cultivated.
+ - For me the curse is a crutch, but the con is everything.
+ - Can’t get away from your own self.
+ - I like all the things that make you monstrous.
+ - The row of dolls watched her impassively from the bookshelf, their tea party propriety almost certainly offended.
+ - She sat in the dew-damp grass and ripped up clumps of it, tossing them in the air and feeling vaguely guilty about it. Some gnome ought to pop out of the tree and scold her for torturing the lawn.
+ - Tana. In all my long life, though there were many times I prayed for it, no one has ever saved me. No one but you.
+ - Death’s favorites don’t die.
+ - You’re like this leopard who’s pretending to be a house cat.
+ - You have to write a lot. And you have to rewrite what you wrote a lot more.
+ - Let me look out for you. Let your enemies become mine.
+ - It is my belief that books are living things.
+ - I envy what I fear and hate what I envy.
+ - I can learn to live with guilt. I don’t care about being good.
+ - More and more I feel like the boy who cut off his nose to spite his face.
+ - After that, she wasn’t sure what the game was or if she’d imagined it. All she knew was that she had lost.
+ - It’s hard to come up with a scheme to thwart some other scheme you don’t even know about.
+ - A second book that makes you rethink the first book is the Holy Grail of a series.
+ - I’m Lila, and yes, he’s crazy. But you must have noticed that before now. He was crazy back when I knew him, and he’s obviously gotten crazier over time.
+
+142 quotes

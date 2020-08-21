@@ -1,0 +1,34 @@
+ - Why are you unhappy? Because 99.9 percent of everything you think, and of everything you do, is for yourself – and there isn’t one.
+ - Spontaneity is being present in the present.
+ - Wise men don’t judge: They seek to understand.
+ - I AM Here Now As This.
+ - Never forget, what your looking for is what is looking.
+ - We ourselves are not an illusory part of Reality; rather are we Reality itself illusorily conceived.
+ - In order to be effective truth must penetrate like an arrow – and that is likely to hurt.
+ - What is your trouble? Mistaken identity.
+ - As long as there is a ‘you’ doing or not-doing, thinking or not-thinking, ‘meditating’ or ‘not-meditating’ you are no closer to home than the day you were born.
+ - Worshiping the teapot instead of drinking the tea.
+ - We do not possess an ‘ego.’ We are possessed by the idea of one.
+ - Play your part in the comedy, but don’t identify yourself with your role.
+ - Do not mistake the pointing finger for the moon.
+ - Are we not wasps who spend all day in a fruitless attempt to traverse a window-pane – while the other half of the window is wide open?
+ - Reintegration with Nature, which we are, is the recovery of spontaneity.
+ - Realisation is a matter of becoming conscious of that which is already realised.
+ - There is no mystery whatever – only inability to perceive the obvious.
+ - The practice of meditation is represented by the three monkeys, who cover their eyes, ears and mouths so as to avoid the phenomenal world.
+ - It is only with total humility, and in absolute stillness of mind that we can know what indeed we are.
+ - The saint is a man who disciplines his ego. The sage is a man who rids himself of his ego.
+ - The qualities we possess should never be a matter for satisfaction, but the qualities we have discarded.
+ - What do you have to do? Pack your bags, Go to the station without them, Catch the train, And leave your self behind.
+ - The writer of these lines has nothing whatsoever to teach anyone; his words are just his contribution to our common discussion of what must inevitably be for us the most important subject which could be discussed by sentient beings.
+ - We imagine that waking-life is real and that dream-life is unreal, but there does not seem to be any evidence for this belief.
+ - Past and Future are a duality of which Present is the reality. The now-moment alone is eternal and real.
+ - Transcendence implies the surpassing of two things, and the consequent attainment of a third thing. But there are no ‘things’ in reality, of any kind whatever: there is only the thing-in-itself, its suchness, which is Reality, revealed when the illusory dualism of inexistent qualities is dissolved.
+ - All the evil in the world, and all the unhappiness, comes from the I-concept.
+ - A man who is seeking for realization is not only going around searching for his spectacles without realizing that they are on his nose all the time, but also were he not actually looking through them he would not be able to see what he is looking for!
+ - The only real service we can render to that which we perceive and interpret in phenomenal existence as ‘others’ is by awakening to universal consciousness ourselves.
+ - Living should be perpetual and universal benediction.
+ - The notion that human life has greater value than any other form of life is both unjustifiable and arrogant.
+ - It is less what one is that should matter, than what one is not.
+
+32 quotes

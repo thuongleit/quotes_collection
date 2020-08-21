@@ -1,0 +1,42 @@
+ - When the people are afraid of the government, that’s tyranny. But when the government is afraid of the people, that’s liberty. ~~Thomas Jefferson
+ - I prefer liberty with danger than peace with slavery. ~~Jean-Jacques Rousseau
+ - Any society that would give up a little liberty to gain a little security will deserve neither and lose both. ~~Benjamin Franklin
+ - If you can cut the people off from their history, then they can be easily persuaded. ~~Karl Marx
+ - Liberty does not exist in the absence of morality. ~~Edmund Burke
+ - Liberty of thought is the life of the soul. ~~Voltaire
+ - My country is wherever liberty lives. ~~Thomas Paine
+ - Discipline must come through liberty. ~~Maria Montessori
+ - Liberty is the right to choose. Freedom is the result of the right choice. ~~Jules Renard
+ - The loss of liberty to a generous mind is worse than death. ~~Alexander Hamilton
+ - Individual rights are not subject to a public vote; a majority has no right to vote away the rights of a minority. ~~Ayn Rand
+ - To achieve progress and development it is necessary to bring about co-ordination between liberty and security through Devotion. ~~Pandurang Shastri Athavale
+ - In essentials unity, in non-essentials liberty, in all things charity and love. ~~Greg Laurie
+ - The God who gave us life gave us liberty. Can the liberties of a nation be secure when we have removed a conviction that these liberties are the gift of God? ~~Thomas Jefferson
+ - Where there is no law there is no freedom. ~~John Locke
+ - Liberty and responsibility are inseparable. ~~Friedrich August von Hayek
+ - So this is how liberty dies. With thunderous applause. ~~George Lucas
+ - Liberty, equality, fraternity, or death; – the last, much the easiest to bestow, O Guillotine! ~~Charles Dickens
+ - Individual liberty is individual power. ~~John Quincy Adams
+ - Freedom is not a gift received from the State or leader, but a possession to be won every day by the effort of each and the union of all. ~~Albert Camus
+ - America needs fewer laws, not more prisons. ~~James Bovard
+ - The Constitution is the guide which I never will abandon. ~~George Washington
+ - Nothing is so permanent as a temporary government program. ~~Milton Friedman
+ - I ask, sir, what is the militia? It is the whole people except for a few public officials. ~~George Mason
+ - Underlying most arguments against the free market is a lack of belief in freedom itself. ~~Milton Friedman
+ - In any compromise between food and poison, it is only death that can win. In any compromise between good and evil, it is only evil that can profit. ~~Ayn Rand
+ - No animal has more liberty than the cat, but it buries the mess it makes. The cat is the best anarchist. ~~Ernest Hemingway
+ - The curious task of economics is to demonstrate to men how little they really know about what they imagine they can design. ~~Friedrich August von Hayek
+ - If you sacrifice liberty for security, you will lose both. ~~Ron Paul
+ - Equality, because without it there can be no liberty. ~~Jean-Jacques Rousseau
+ - Money for me has only one sound: liberty. ~~Coco Chanel
+ - Liberty is not collective, it is personal. All liberty is individual liberty. ~~Calvin Coolidge
+ - Liberty is a better husband than love to many of us. ~~Louisa May Alcott
+ - Everyone has the right to make his own decisions, but none has the right to force his decision on others. ~~Ayn Rand
+ - God leaves to our conscience the choice of the road we decide to follow, and the liberty of yielding to one or another of the opposing influences that act upon us. ~~Allan Kardec
+ - Anyone in a free society where the laws are unjust has an obligation to break the law. ~~Henry David Thoreau
+ - Memory, like liberty, is a fragile thing. ~~Elizabeth Loftus
+ - Democracy is the road to socialism. ~~Karl Marx
+ - I would rather be exposed to the inconveniences attending too much liberty than those attending too small a degree of it. ~~Thomas Jefferson
+ - Knowledge is power but only wisdom is liberty. ~~Will Durant
+
+40 quotes

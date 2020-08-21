@@ -1,0 +1,52 @@
+ - All roads lead home in the end. You’ve got to keep that in mind always – in your work and in your life.
+ - A lot of people ask me about my father’s passing when I was young, which I’m never comfortable with. I invariably move around that subject.
+ - My father, Arinze Ejiofor, was a musician and a doctor. Nobody’s ever asked me about that combination and what growing up in that environment was like.
+ - I wanted to be an actor ever since I got on stage for the first time, aged 13. Before that, I thought I might follow in the medical footsteps of my parents: my father was a doctor, my mother a pharmacist.
+ - Solomon Northup is one of the most remarkable people Ive ever encountered in my life; one of the most amazing stories I have ever been in any kind of contact with. To not tell that story would have been disgraceful, in my opinion.
+ - I think the crucial thing about being an actor is to be doing it.
+ - That global poverty would end. That people would be able to eat. It’s the worst shame in the world that people go hungry.
+ - It’s a strange thing, but you get this click in your brain; the wonderful feeling that the entirety of a character is suddenly available and accessible to you.
+ - I think fear is a very healthy motivator.
+ - I was always lucky that I’ve always had a gig, I’m fortunate in that way.
+ - I don’t ever feel like I’ve had a moment where I am like, “There it is; perfect and holy in all ways.”
+ - Depending on what your interest in theater is, I always recommend working on plays. It’s a great way to be introduced to the field, and also a great way to be seen by agents and representation. I’m also a great advocate for studying acting at a drama school or a college.
+ - In England, theres no acknowledgement the invention of slavery came from Britain.
+ - I enjoy doing everything, comedy and drama. I just look for the characters really and what they offer.
+ - I would love to be a fly on the wall watching other directors and actors to see what their process is like.
+ - I was the classic middle child in some ways, the one who could have been a priest in an alternate universe.
+ - The only way to be an actor is to find ways to work as an actor, even if that means doing a one-man show by a river.
+ - I think Africa will have a crisper impact on Europe, as it has traditionally, and then that will filter into the American cultural psyche, in the way that India has.
+ - Ridley creates a very immersive world, so when you walk up to a Ridley Scott film set you’re in Ridley Scott’s imagination, and it’s a really comfortable, cool place to be.
+ - When I first had my eyebrows waxed, I was pretty disturbed.
+ - I like to disappear into a role. I equate the success of it with a feeling of being chemically changed. That’s the only way I can express it.
+ - There’s always something ridiculous happening on the set, especially when people get tired because of the long days.
+ - Ive always liked the idea of being a father. And Ive always romanticised it, because I lost my father when I was young. In a way, all of the complications that come with my career are about that.
+ - My favorite thing to cook is anything that comes out okay. I’m very fond of certain pastas and sauces that I can just about cook from scratch. So those are what I like to cook, as well as roasted potatoes and chicken. Anything that tastes alright.
+ - I started off doing plays as a theater actor. But I never thought of it in terms of it leading anywhere. I was just trying to be the best actor that I could be in the context of what I was doing.
+ - Ive just tried to keep my eyes open, tried to read everything you can, and tried to see whether I see myself within it. If I do, then I can get excited about it.
+ - I fell in love with film. I didn’t start out to be a film actor. I wanted to be a theater actor.
+ - I started working as an actor, semi-professionally, when I was 16, and got my first professional gig at 19. I guess I’ve kind of worked pretty consistently since then.
+ - I do like sci-fi. When I was a kid, I was always sort of locked into sci-fi stories. So, sci-fi has always had a special place in my heart.
+ - Steve MCQueen created an entire family to tell one man’s tale and I am delighted that so many of this family have also been recognised today. I am hugely grateful to the Academy for this great honour, and, of course, to Solomon Northup for sharing his story through his breathtaking book.
+ - I have always been very fortunate in my working life in terms of the, I say that like I’ve not been fortunate at all in my private life.
+ - Dividing everybody into genders and sexuality and races and religions, and I think its important to have films out there, to have discussions out there which really try to get to grips with where that kind of thing can lead.
+ - Working in this industry, I do feel that science and creativity turned out to be a very useful combination for me.
+ - When I worked with Woody Allen, I only got the parts of the script that I was in. I was able to piece together the narrative from that, but I remember being quite excited to watch the movie – the movie that I was in but didn’t know what happened in, like, 65 percent of.
+ - I became an actor by doing school plays and youth theaters, and then National Youth Theatre of Great Britain. And then I did study at the London Academy of Music and Dramatic Arts. For me that was a good way to enter the field, to work in the theater.
+ - I’m in favor of anything that promotes greener solutions.
+ - I’ve always enjoyed doing a huge variety of roles, which I think helps, instead of settling for the things I might be most comfortable with.
+ - I’m constantly looking to see whether I look the same as I did earlier, whether I’ve put on or lost any weight.
+ - I’m constantly discovering things. Like Bobby Bland. Right now I suppose I’m into the Eighties, which turned out to be a great musical period.
+ - I think I enjoy working obviously as a lead, but also you know I feel I’m also a character actor as well, so I enjoy approaching various projects in all sort of capacities. Any film I have been able to do I feel very fortunate to have been a part of.
+ - I feel that audiences are very sophisticated, and part of my challenge is to keep them engaged because they are so complex.
+ - Reporters tend to launch on what seems to be the clearest, most stark aspects of someone’s life in terms of an interview.
+ - I believe people instinctively know that about writing, yet people get confused about that when it comes to acting.
+ - My music tastes are often 20 years behind.
+ - David Mamet was great to work with. He was everything that I thought he would be as a director. He’s incredibly articulate, an easy collaborator. Extraordinarily knowledgeable about film and writing.
+ - Id never really considered film. If Id thought about film more growing up, I probably would have changed my name. I had no concept of my name in lights.
+ - I’ve often had the fortune to work on projects with a small theme I find very interesting enough to pursue and to be passionate about in the context of the story, then it may turn out there’s a universality about my character which still resonates with many people as well.
+ - This is going to sound completely absurd, but I do sometimes feel like the enjoyment of an awards ceremony or the pride in the finished article hasn’t ever surpassed the joy of doing the work, of making it. The doing it is really the bit I’m there for.
+ - I wouldnt be the same actor if I couldnt do theater.
+ - The thing about film is it is a very precise form. You know if you have it and you know if you don’t have it. There’s not really a middle bit where you’re like, “I think we kind of have that scene.”
+
+50 quotes

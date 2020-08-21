@@ -1,0 +1,63 @@
+ - Be yourself. No one else can.
+ - Imperfection is underrated. Perfection is overrated.
+ - Who wants to be normal when you can be unique?
+ - Multitasking? I can’t even do two things at once. I can’t even do one thing at once.
+ - You just have to do what suits you, and it doesn’t matter if you don’t look like everybody else. Be you. That’s our gift and we’ve got to celebrate that.
+ - I do think imperfection’s underrated.
+ - Why do you put your self esteem in the hands of complete strangers?
+ - There is no normality in life.
+ - Falling in love with him was completely unexpected. When you only see someone as a friend, you don’t expect anything else. There was definitely a moment when something quite magical happened and we both agree that it transformed our relationship.
+ - I just went and got an agent because I thought I can create my own world – you can’t right your own life, but you can escape to a world where you can have control.
+ - I was weird right from the start. It’s just that you can’t ever expect people to get you. And I do think that really did mess with my head, being well-known young, when you really don’t know who you are.
+ - When it comes to acting, people talk about the suspension of disbelief that you ask of the audience. Before that starts, you have to, as an actor, suspend your own disbelief.
+ - I’m not dead and I don’t have blue hair but some people say there are similarities. It is usually intolerable to watch myself onscreen but this time it’s fine. I think it’s beautiful and a real work of art.
+ - It took me so many years to move out. I’m definitely a bit of a Peter Pan, reluctant to grow up. It all seemed really nice at home-why change it? Part of me would prefer not to have any responsibility whatsoever.
+ - I enjoy those small chats you have when people come up and talk to you about your work. It only involves a few seconds of effort to be nice to those people, and I am very grateful for the kind words that people have taken the trouble to express to me in person.
+ - Everyone seems to think I’m very ladylike. That I’m very cultured and intelligent. I drink alot of Diet Coke and belch. I’ve been known to use the F-word. I’ve told a few dirty jokes. I arm-wrestle.
+ - On corsets: I said, You have got to be kidding. I am an ape and yet I am still expected to squeeze myself into one of those damn things.
+ - I’m drawn to emotionally damaged characters because there is more to unlock.
+ - Tim also has enough confidence so that it always looks like a Tim Burton film, but it really is collaborative. You’re allowed to do it your way but of course he’s always going to choose his way.
+ - You can actually have a pitch button, you know, to get people on pitch.
+ - I love witches and magic and dress-up and make-believe.
+ - Journalists are always calling my features Edwardian or Victorian, whatever that means. I am small, and people were smaller in those times. I’m pale and sickly-looking. I look fragile-like a doll. But sometimes I just wish I had less of a particular look, one that was more versatile.
+ - When you write for very young children what they want is something familiar and safe and stereotyped.
+ - As everyone, you do end up becoming your mother, but also as you’re acting, I find out you become every member of your family, bits come out without you really wanting them to come out.
+ - I just want to give you this one piece of advice: if you’re standing and you could be sitting, sit. If you’re sitting and you could be lying down, lie down.
+ - Very early on, you figure out that you put your self-esteem in the hands of strangers. There’s a different commodity. There’s the Helena Bonham Carter that everyone thinks they know, who really has nothing to do with me. But you just have to let that go.
+ - There is no normality in life. Having two houses means that we can get out of each other’s hair – which, let’s face it, we’ve both got a lot of.
+ - The thing about the Oscars is real life doesn’t stop. You have to get back to planet Earth the following morning. The rubbish needs taking out. The kids will be crying. They’ll need feeding. Kids do not care whether you’ve been to the Oscars!
+ - It was weird because I was pregnant, throughout that so it was weird being a pregnant witch. I was in a really bad mood but luckily, because I sleep with the director, he just sort of scheduled me so I only had to do it two nights.
+ - Famous people come up to me, but I don’t know who they are because my sight is so bad. It’s always at the pool of the Four Seasons in Beverly Hills when I don’t have my lenses in and my glasses are in my room.
+ - No matter how many modern parts I do, people still refer to me as Mrs. Costume Drama.
+ - I should get a few ribs taken out, because I’ll be in a corset for the rest of my life.
+ - Am I a good example? Well, at least I’m not too thin. I eat.
+ - Mothers are the heart of any household. I try to spend as much time with my children as I possibly can while also fulfilling my professional duties. It is tricky, but I think I manage it.
+ - No matter how many modern parts I do, people still refer to me as Mrs. Costume Drama. Fight Club is a studio pic, and I’ve done very few of those. I’ve got a feeling it’s going to change things for me.
+ - Not only was it nearly impossible to hear because of these huge rubber ears we had to wear, but we also had these huge furry hands which were absolutely useless, especially if you had to scratch yourself.
+ - A film actor is just a victim of directors and editors.
+ - I’ve aged, but I don’t think I’ve grown up.
+ - I think I’ve still got a bit of a sado-masochistic streak in me, because if I’m not going to be restricted by corsets and covered in lace, then I still wind up wearing an ape-mask over my face. I do wonder how I get myself in these situations!
+ - Sometimes I get it right and I sometimes I get it wrong. But fashion is all about having fun. I think fashion has been hijacked by the fashion industry creating rules on what one should wear and I feel like breaking the mold and seeing that the world won’t crumble.
+ - It was a challenge to be able to create a character without being able to use one’s normal set of expressions. All the rubber and makeup attached to your face left you with only a modest range of facial movements.
+ - When I was young I had so many inferiority complexes. I had an inferiority complex because I didn’t go to university. I had an inferiority complex because I didn’t train. Then it gets tiring. And you do get bored of it.
+ - I’ve never had white teeth. To be honest, I’ve never been told to do any of those horrible things – get your teeth whitened or your nose straightened.
+ - Maybe from now on puppets can do the parts.
+ - I loved doing all those costume dramas. I didn’t think, ‘Ooh I’ve got to avoid being typecast’ – you can’t ever be dictated to by what other people think. I just do things because I fancy the parts and the directors.
+ - Most of my relationships were people in the business. Having said that, me and Tim don’t really talk that much about work. He comes into my bit of the house every so often to vent but we don’t really have very high, cultured conversations.
+ - Sometimes I go, “What am I doing with my life?” But then I get letters from young women, or people come up to me, and they say, “You’ve made such a difference to my confidence.” And that is a good thing. I should read more fan mail though. I’m crap at responding.
+ - The problems come when your personal life and relationships come under scrutiny in the press and often very uncomplimentary things are printed about you.
+ - If you’re a queen, you’re powerless, so I’d probably demote myself and go shopping.
+ - I was a mixture of being incredibly old for my age and incredibly backwards. I was born quite old, but then I stopped growing. I lived with my mum and dad till I was 30.
+ - I love changing what I look like because I always feel super strange whenever I do watch something that I’m in.
+ - But it’s often been the case, I’ve done so many countless small, independent films that really 3.2 people have seen, so you never know. You do it for the joy of the part and not necessarily expect anyone to see the final product.
+ - No, I can never rely on Tim to make me pretty.
+ - I was reading William Shawcross’s biography of the Queen Mother, dressed in my witch outfit! And you know what? It was a really good mix; it was a therapeutic mix.
+ - I’m convinced that whatever state you’re in during your pregnancy has a huge influence on the baby’s personality – so I hope we haven’t produced a little serial killer!
+ - Usually I’m frustrated when I look at my films and I don’t believe that I’ve made a real transformation beyond my usual sets of gestures and expressions. I still have this nagging feeling that it’s me, that I didn’t create a unique character.
+ - That’s the thing with animated films – I often feel that puppets get the better parts compared to us normal actresses.
+ - To understand how you live, to live. Do not think about it and live with it.
+ - What I loved about playing the corpse is that obviously somebody else got to do the physical part. It appeals to the part of me that likes playing character parts and getting the chance to get away from my own physicality.
+ - When you’re up for an Oscar, you just get offered everything. It’s fantastic, but a lot of it you’re completely inappropriate for.
+ - I always feel better after a good scream.
+
+61 quotes

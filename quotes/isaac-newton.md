@@ -1,0 +1,105 @@
+ - What we know is a drop, what we don’t know is an ocean.
+ - If I have seen further it is by standing on the shoulders of Giants.
+ - For every action, there is an equal and opposite reaction.
+ - Nature is pleased with simplicity.
+ - Men build too many walls and not enough bridges.
+ - Live your life as an exclamation rather than an explanation.
+ - I can calculate the motion of heavenly bodies but not the madness of people.
+ - If I have ever made any valuable discoveries, it has been due more to patient attention, than to any other talent.
+ - I do not know what I may appear to the world, but to myself I seem to have been only like a boy playing on the seashore, and diverting myself in now and then finding a smoother pebble or a prettier shell than ordinary, whilst the great ocean of truth lay all undiscovered before me.
+ - Tact is the knack of making a point without making an enemy.
+ - Gravity explains the motions of the planets, but it cannot explain who sets the planets in motion.
+ - You have to make the rules, not follow them.
+ - What goes up must come down.
+ - Truth is the offspring of silence and meditation.
+ - To explain all nature is too difficult a task for any one man or even for any one age.
+ - Plato is my friend, Aristotle is my friend, but my greatest friend is truth.
+ - If I am anything, which I highly doubt, I have made myself so by hard work.
+ - My powers are ordinary. Only my application brings me success.
+ - To arrive at the simplest truth requires years of contemplation.
+ - All knowledge and understanding of the Universe was no more than playing with stones and shells on the seashore of the vast imponderable ocean of truth.
+ - An object that is at rest will tend to stay at rest. An object that is in motion will tend to stay in motion.
+ - Truth is ever to be found in the simplicity, and not in the multiplicity and confusion of things.
+ - The best way to understanding is a few good examples.
+ - No great discovery was ever made without a bold guess.
+ - When two forces unite, their efficiency double.
+ - A body in motion tends to stay in motion unless acted on by an outside force.
+ - God created everything by number, weight and measure.
+ - I consider my greatest accomplishment to be lifelong celibacy.
+ - All my discoveries have been made in answer to prayer.
+ - Errors are not in the art but in the artificers.
+ - He who thinks half-heartedly will not believe in God; but he who really thinks has to believe in God.
+ - To myself I am only a child playing on the beach, while vast oceans of truth lie undiscovered before me.
+ - The way to chastity is not to struggle directly with incontinent thoughts but to avert the thoughts by some imployment, or by reading, or meditating on other things.
+ - If I had stayed for other people to make my tools and things for me, I had never made anything.
+ - This most beautiful system of the sun, planets and comets, could only proceed from the counsel and dominion of an intelligent and powerful Being.
+ - In the absence of any other proof, the thumb alone would convince me of God’s existence.
+ - Atheism is so senseless. When I look at the solar system, I see the earth at the right distance from the sun to receive the proper amounts of heat and light. This did not happen by chance.
+ - A man may imagine things that are false, but he can only understand things that are true, for if the things be false, the apprehension of them is not understanding.
+ - I do not know what I may appear to the world, but to myself I seem to have been only a boy playing on the seashore.
+ - Physics, beware of metaphysics.
+ - Poetry is a kind of ingenious nonsense.
+ - I know not how I seem to others, but to myself I am but a small child wandering upon the vast shores of knowledge, every now and then finding a small bright pebble to content myself with while the vast ocean of undiscovered truth lay before me.
+ - I have a fundamental belief in the Bible as the Word of God, written by those who were inspired. I study the Bible daily.
+ - Nature does nothing in vain when less will serve; for Nature is pleased with simplicity and affects not the pomp of superfluous causes.
+ - Hypotheses non fingo. I frame no hypotheses.
+ - Philosophy is such an impertinently litigious lady that a man had as good be engaged in lawsuits as have to do with her.
+ - We account the Scriptures of God to be the most sublime philosophy.
+ - Whence arises all that order and beauty we see in the world?
+ - God in the beginning formed matter in solid, massy, hard, impenetrable, movable particles, of such sizes and figures, and with such other properties, and in such proportion to space, as most conduced to the end for which he formed them.
+ - There are more sure marks of authenticity in the Bible than in any profane history.
+ - The latest authors, like the most ancient, strove to subordinate the phenomena of nature to the laws of mathematics.
+ - Centripetal force is the force by which bodies are drawn from all sides, are impelled, or in any way tend, toward some point as to a center.
+ - For the Rays, to speak properly, have no Colour. In them there is nothing else than a certain power and disposition to stir up a sensation of this Colour or that.
+ - As a blind man has no idea of colors, so we have no idea of the manner by which the all-wise God perceives and understands all things.
+ - The wonderful arrangement and harmony of the cosmos would only originate in the plan of an almighty omniscient being. This is and remains my greatest comprehension.
+ - If you are affronted it is better to pass it by in silence, or with a jest, though with some dishonor, than to endeavor revenge. If you can keep reason above passion, that and watchfulness will be your best defenders.
+ - I keep the subject of my inquiry constantly before me, and wait till the first dawning opens gradually, by little and little, into a full and clear light.
+ - The Ignis Fatuus is a vapor shining without heat.
+ - Yet one thing secures us what ever betide, the scriptures assures us that the Lord will provide.
+ - If I have done the public any service, it is due to my patient thought.
+ - Trials are medicines which our gracious and wise Physician prescribes because we need them; and he proportions the frequency and weight of them to what the case requires. Let us trust his skill and thank him for his prescription.
+ - What Descartes did was a good step. You have added much several ways, and especially in taking the colours of thin plates into philosophical consideration. If I have seen a little further it is by standing on the shoulders of Giants.
+ - We are not to consider the world as the body of God: he is an uniform being, void of organs, members, or parts; and they are his creatures, subordinate to him, and subservient to his will.
+ - No sciences are better attested than the religion of the Bible.
+ - The changing of Bodies into Light, and Light into Bodies, is very conformable to the Course of Nature, which seems delighted with Transmutations.
+ - God is able to create particles of matter of several sizes and figures and perhaps of different densities and forces, and thereby to vary the laws of nature, and make worlds of several sorts in several parts of the Universe.
+ - His epitaph: Who, by vigor of mind almost divine, the motions and figures of the planets, the paths of comets, and the tides of the seas first demonstrated.
+ - Where both are friends, it is right to prefer truth.
+ - I shall not mingle conjectures with certainties.
+ - To any action there is always an opposite and equal reaction; in other words, the actions of two bodies upon each other are always equal and always opposite in direction.
+ - It is the weight, not numbers of experiments that is to be regarded.
+ - The description of right lines and circles, upon which geometry is founded, belongs to mechanics. Geometry does not teach us to draw these lines, but requires them to be drawn.
+ - The instinct of brutes and insects can be the effect of nothing else than the wisdom and skill of a powerful ever-living agent.
+ - Impressed force is the action exerted on a body to change its state either of resting or of moving uniformly straight forward.
+ - All the characters of the Passion agree to the year 34; and that is the only year to which they all agree.
+ - I feign no hypotheses.
+ - Pictures, propagated by motion along the fibers of the optic nerves in the brain, are the cause of vision.
+ - Nature is very consonant and conformable with herself.
+ - I understood. I have understood. I do understand.
+ - Is not Fire a Body heated so hot as to emit Light copiously? For what else is a red hot Iron than Fire? And what else is a burning Coal than red hot Wood?
+ - You sometimes speak of gravity as essential and inherent to matter. Pray do not ascribe that notion to me, for the cause of gravity is what I do not pretend to know, and therefore would take more time to consider of it.
+ - To me there has never been a higher source of earthly honor or distinction than that connected with advances in science.
+ - I see I have made my self a slave to Philosophy.
+ - The seed of a tree has the nature of a branch or twig or bud. It is a part of the tree, but if separated and set in the earth to be better nourished, the embryo or young tree contained in it takes root and grows into a new tree.
+ - The alternation of motion is ever proportional to the motive force impressed; and is made in the direction of the right line in which that force is impressed.
+ - Every body persists in a state of rest or of uniform motion in a straight line, unless it is compelled to change that state by forces having impact upon it.
+ - Therefore to the same natural effects we must, as far as possible, assign the same causes.
+ - Daniel was in the greatest credit amongst the Jews, till the reign of the Roman Emperor Hadrian. And to reject his prophecies, is to reject the Christian religion. For this religion is founded upon his prophecy concerning the Messiah .
+ - By such deductions the law of gravitation is rendered probable, that every particle attracts every other particle with a force which varies inversely as the square of the distance. The law thus suggested is assumed to be universally true.
+ - A cylinder of air reaching to the top of the atmosphere is of equal weight with a cylinder of water about 33 feet high.
+ - He that in ye mine of knowledge deepest diggeth, hath, like every other miner, ye least breathing time, and must sometimes at least come to terr. alt. for air.
+ - If the ancient churches, in debating and deciding the greatest mysteries of religion, knew nothing of these two texts, I understand not why we should be so fond of them now the debate is over.
+ - My principal method for defeating error and heresy is by establishing the truth. One purposes to fill a bushel with tares, but if I can fill it first with wheat, I may defy his attempts.
+ - We are to admit no more causes of natural things than such as are both true and sufficient to explain their appearances.
+ - OUR ORDINATION: Sir Isaac Newton, 1642 – 1747 About the times of the End, a body of men will be raised up who will turn their attention to the prophecies, and insist upon their literal interpretation, in the midst of much clamor and opposition.
+ - My Design in this Book is not to explain the Properties of Light by Hypotheses, but to propose and prove them by Reason and Experiments: In order to which, I shall premise the following Definitions and Axioms.
+ - The qualities of bodies, which admit neither intension nor remission of degrees, and which are found to belong to fill bodies within the reach of our experiments, are to be esteemed the universal qualities of all bodies whatsoever.
+ - When the adversaries of Erasmus had got the Trinity into his edition, they threw by their manuscript as an old almanac out of date.
+ - I have been much amused at ye singular phenomena resulting from bringing of a needle into contact with a piece of amber or resin fricated on silke clothe. Ye flame putteth me in mind of sheet lightning on a small-how very small-scale.
+ - Against filling the Heavens with fluid Mediums, unless they be exceeding rare, a great Objection arises from the regular and very lasting Motions of the Planets and Comets in all manner of Courses through the Heavens.
+ - Every particle of matter is attracted by or gravitates to every other particle of matter with a force inversely proportional to the squares of their distances.
+ - Absolute, true and mathematical time, of itself, and from its own nature flows equably without relation to anything external.
+ - If I have seen a little further, it is because of the height limit and absence of overhead wires.
+
+103 quotes

@@ -1,0 +1,222 @@
+ - To one who has faith, no explanation is necessary. To one without faith, no explanation is possible.
+ - If the highest aim of a captain were to preserve his ship, he would keep it in port forever.
+ - He who is not angry when there is just cause for anger is immoral. Why? Because anger looks to the good of justice. And if you can live amid injustice without anger, you are immoral as well as unjust.
+ - There is nothing on this earth more to be prized than true friendship.
+ - Christ was either liar, lunatic, or Lord!
+ - Humility is the mark of a genuine disciple.
+ - To love God is something greater than to know Him.
+ - The celebration of Holy Mass is as valuable as the death of Jesus on the cross.
+ - Beware the man of a single book.
+ - Wonder is the desire of knowledge.
+ - Mercy without justice is the mother of dissolution; justice without mercy is cruelty.
+ - There is within every soul a thirst for happiness and meaning.
+ - There must be must be a first mover existing above all – and this we call God.
+ - The greatest kindness one can render to any man consists in leading him from error to truth.
+ - The light of faith makes us see what we believe.
+ - The splendor of a soul in grace is so seductive that it surpasses the beauty of all created things.
+ - No man truly has joy unless he lives in love.
+ - The truth of the Christian faith surpasses the capacity of reason.
+ - To convert somebody go and take them by the hand and guide them.
+ - Happiness is secured through virtue; it is a good attained by man’s own will.
+ - Baptism is the door of the spiritual life and the gateway to the sacraments.
+ - Fear is such a powerful emotion for humans that when we allow it to take us over, it drives compassion right out of our hearts.
+ - If you can live amid injustice without anger, you are immoral as well as unjust.
+ - The Eucharist is the Sacrament of Love; It signifies Love, It produces love. The Eucharist is the consummation of the whole spiritual life.
+ - Faith is God’s work within us.
+ - In order for a war to be just, three things are necessary. First, the authority of the sovereign. Secondly, a just cause. Thirdly, a rightful intention.
+ - One cannot use an evil action with reference to a good intention.
+ - Better to illuminate than merely to shine to deliver to others contemplated truths than merely to contemplate.
+ - Faith will tell us Christ is present, When our human senses fail.
+ - He who does not embrace the teaching of the Church does not have the habit of faith.
+ - The soul is known by it’s acts.
+ - The soul, which is the first principle of life, is not a body, but the act of a body; just as heat, which is the principle of calefaction, is not a body, but an act of a body.
+ - Justice is a certain rectitude of mind whereby a man does what he ought to do in the circumstances confronting him.
+ - We must love them both, those whose opinions we share and those whose opinions we reject, for both have labored in the search for truth, and both have helped us in finding it.
+ - Better to illuminate, than merely to shine.
+ - Grace does not destroy nature, it perfects it.
+ - True peace consists in not separating ourselves from the will of God.
+ - The soul is like an uninhabited world that comes to life only when God lays His head against us.
+ - Give, expecting nothing there of.
+ - The end of every maker is himself.
+ - Believing is an act of the intellect assenting to the divine truth by command of the will moved by God through grace.
+ - One aspect of neighbourly love is that we must not merely will our neighbours good, but actually work to bring it about.
+ - I would rather feel compassion than know the meaning of it. I would hope to act with compassion without thinking of personal gain.
+ - Sorrow can be alleviated by good sleep, a bath and a glass of good wine.
+ - In the life of the body a man is sometimes sick, and unless he takes medicine, he will die. Even so in the spiritual life a man is sick on account of sin. For that reason he needs medicine so that he may be restored to health; and this grace is bestowed in the Sacrament of Penance.
+ - To virginity is awarded the tribute of the highest beauty.
+ - You change people by delight, by pleasure.
+ - As mariners are guided into port by the shining of a star, so Christians are guided to heaven by Mary.
+ - All that is true, by whomsoever it has been said has its origin in the Spirit.
+ - To the Everlasting Father, And the Son who made us free And the Spirit, God proceeding From them Each eternally, Be salvation, honour, blessing, Might and endless majesty.
+ - By nature all men are equal in liberty, but not in other endowments.
+ - God has need for our worship. It is we who need to show our gratitude for what we have received.
+ - Any error about creation also leads to an error about God.
+ - Rarely affirm, seldom deny, always distinguish.
+ - Law; an ordinance of reason for the common good, made by him who has care of the community.
+ - Well-ordered self-love is right and natural.
+ - To disparage the dictate of reason is equivalent to contemning the command of God.
+ - Obedience unites us so closely to God that it in a way transforms us into Him, so that we have no other will but His. If obedience is lacking, even prayer cannot be pleasing to God.
+ - Love follows knowledge.
+ - Miracles are signs not to them that believe, but to them that believe not.
+ - Since faith rests upon infallible truth, and since the contrary of a truth can never be demonstrated, it is clear that the arguments brought against faith cannot be demonstrations, but are difficulties that can be answered.
+ - Anything done against faith or conscience is sinful.
+ - Of all the pursuits open to men, the search for wisdom is most perfect, more sublime, more profitable, and more full of joy.
+ - Art is right reason in the doing of work.
+ - It is only God who creates. Man merely rearranges.
+ - We should love others truly, for their own sakes rather than our own.
+ - There is nothing in your mind which wasn’t experienced before hand.
+ - Characteristics which define beauty are wholeness, harmony and radiance.
+ - Even as in the blessed in heaven there will be most perfect charity, so in the damned there will be the most perfect hate. Wherefore as the saints will rejoice in all goods, so will the damned grieve for all goods. Consequently the sight of the happiness of the saints will give them very great pain.
+ - Far graver is it to corrupt the faith that is the life of the soul than to counterfeit the money that sustains temporal life.
+ - The existence of a prime mover- nothing can move itself; there must be a first mover. The first mover is called God.
+ - Bestow upon me, O Lord my God, understanding to know thee, diligence to seek thee, wisdom to find thee, and a faithfulness that may finally embrace thee.
+ - The Study of philosophy is not that we may know what men have thought, but what the truth of things is.
+ - Every truth without exception- and whoever may utter it- is from the Holy Spirit.
+ - We can open our hearts to God, but only with Divine help.
+ - But man is freer than all the animals, on account of his free-will, with which he is endowed above all other animals.
+ - The human mind may perceive truth only through thinking, as is clear from Augustine.
+ - He who is drawn to something desirable does not desire to have it as a thought but as a thing.
+ - Charity is love; not all love is charity.
+ - The meaning of what is said is according to the motive for saying it: because things are not subject to speech, but speech to things. Therefore we should take account of the motive of the lawgiver, rather than of his very words.
+ - It is necessary for the perfection of human society that there should be men who devote their lives to contemplation.
+ - A man should remind himself that an object of faith is not scientifically demonstrable, lest presuming to demonstrate what is of faith, he should produce inconclusive reasons and offer occasion for unbelievers to scoff at a faith based on such ground.
+ - The Blessed Eucharist is the perfect Sacrament of the Lord’s Passion, since It contains Christ Himself and his Passion.
+ - When fear is excessive it can make many a man despair.
+ - Man has free choice, or otherwise counsels, exhortations, commands, prohibitions, rewards and punishments would be in vain.
+ - An act of love always tends towards two things; to the good that one wills, and to the person for whom one wills it.
+ - Not everyone who is enlightened by an angel knows that he is enlightened by him.
+ - The soul is perfected by knowledge and virtue.
+ - Grace is a certain beginning of glory in us.
+ - It is not possible to be ignorant of the end of things if we know their beginning.
+ - Prostitution in the towns is like the cesspool in the palace: take away the cesspool and the palace will become an unclean and evil-smelling place.
+ - Theology is taught by God, teaches God, and leads to God.
+ - Mary means Star of the sea, for as mariners are guided to port by the ocean star, so Christians attain to glory through Mary’s maternal intercession.
+ - Whatever a man has in superabundance is owed, of natural right, to the poor for their sustenance.
+ - It would be superfluous to receive by faith, things that can be known by natural reason.
+ - I can write no more. All that I have written seems like straw.
+ - That the saints may enjoy their beatitude and the grace of God more abundantly they are permitted to see the punishment of the damned in hell.
+ - Grace renders us like God and a partaker of the divine nature.
+ - It is not theft, properly speaking, to take secretly and use another’s property in a case of extreme need: because that which he takes for the support of his life becomes his own property by reason of that need.
+ - Most men seem to live according to sense rather than reason.
+ - We set forth our petitions before God, not in order to make known to Him our needs and desires, but rather so that we ourselves may realize that in these things it is necessary to turn to God for help.
+ - Eternity is called whole, not because it has parts, but because it is lacking in nothing.
+ - Charity brings to life again those who are spiritually dead.
+ - Nothing which implies contradiction falls under the omnipotence of God.
+ - Love works in a circle, for the beloved moves the lover by stamping a likeness, and the lover then goes out to hold the beloved inreality. Who first was the beginning now becomes the end of motion.
+ - The blessed in the kingdom of heaven will see the punishments of the damned, in order that their bliss be more delightful for them.
+ - The highest perfection of human life consists in the mind of man being detached from care, for the sake of God.
+ - A scrap of knowledge about sublime things is worth more than any amount about trivialities.
+ - God destines us for an end beyond the grasp of reason.
+ - Charity is the form, mover, mother and root of all the virtues.
+ - Nothing created has ever been able to fill the heart of man. God alone can fill it infinitely.
+ - All my words are but chaff next to the faith of a simple man.
+ - When the devil is called the god of this world, it is not because he made it, but because we serve him with our worldliness.
+ - If a man deliberately abstains from wine to such an extent that he does serious harm to his nature, he will not be free from blame.
+ - Good can exist without evil, whereas evil cannot exist without good.
+ - In the end, we know God as unknown.
+ - For loving draws us more to things than knowing does, since good is found by going to the thing, whereas the true is found when the thing comes to us.
+ - We are like children, who stand in need of masters to enlighten us and direct us; God has provided for this, by appointing his angels to be our teachers and guides.
+ - All men are equal in nature, and also in original sin. It is in the merits and demerits of their actions that they differ.
+ - There being an imminent danger for the faith, prelates must be questioned, even publicly, by their subjects.
+ - To restore man, who had been laid low by sin, to the heights of divine glory, the Word of the eternal Father, though containing all things within His immensity, willed to become small. This He did not by putting aside His greatness but by taking to Himself our littleness.
+ - Love takes up where knowledge leaves off.
+ - Beauty adds to goodness a relation to the cognitive faculty: so that “good” means that which simply pleases the appetite; while the “beautiful” is something pleasant to apprehend.
+ - In a false person, sacraments do not produce any effect.
+ - The happy man in this life needs friends.
+ - Now this relaxation of the mind from work consists on playful words or deeds. Therefore it becomes a wise and virtuous man to have recourse to such things at times.
+ - The image of God always abides in the soul, whether this image be obsolete and clouded over as to amount to almost nothing; or whether it be obscured or disfigured, as is the case with sinners; or whether it be clear and beautiful as is the case with the just.
+ - To pretend angels do not exist because they are invisible is to believe we never sleep because we don’t see ourselves sleeping.
+ - God himself would not permit evil in this world if good did not come of it for the benefit and harmony of the universe.
+ - So, to detract from the perfection of creatures is to detract from the perfection of divine power.
+ - One will observe that all things are arranged according to their degrees of beauty and excellence, and that the nearer they are to God, the more beautiful and better they are.
+ - Godhead here in hiding, whom I adore Masked by these bare shadows, shape and nothing more, See, Lord, at thy service low lies here a heart Lost, all lost in wonder at the God thou art.
+ - For although the will cannot be inwardly moved by any creature, yet it can be moved inwardly by God.
+ - He that obstinately denieth the truth before men upon earth, wilfully refuseth his soul’s health in heaven.
+ - To bear with patience wrongs done to oneself is a mark of perfection, but to bear with patience wrongs done to someone else is a mark of imperfection and even of actual sin.
+ - A man’s heart is right when he wills what God wills.
+ - It is a sin directly against one’s neighbour, since one man cannot over-abound in external riches, without another man lacking them.
+ - For in order that man may do well, whether in the works of the active life, or in those of the contemplative life, he needs the fellowship of friends.
+ - There is, therefore, a more perfect intellectual life in the angels. In them the intellect does not proceed to self-knowledge from anything exterior, but knows itself through itself...
+ - Baptism is not to be conferred on a man who is unwilling to give up his other sins, so neither should Baptism be given to one who is unwilling to renounce his unbelief. Nevertheless, each of them receives the Sacrament if it is conferred on him, although not unto salvation.
+ - It is unlawful to add anything to the words of Holy Scripture regarding the sense.
+ - There would not be a perfect likeness of God in the universe if all things were of one grade of being.
+ - Do not wish to jump immediately from the streams to the sea, because one has to go through easier things to the more difficult.
+ - How is it they live in such harmony, the billions of stars, when most men can barely go a minute without declaring war in their minds?
+ - Man can sin against nature in two ways. First, when he sins against his specific rational nature, acting contrary to reason. In this sense, we can say that every sin is a sin against man’s nature, because it is against man’s right reason...
+ - A thing is lovable according as it is good. But God is infinite good. Therefore He is infinitely lovable.
+ - Unbelief is the greatest of sins.
+ - We ought to cherish the body. Our body’s substance is not from an evil principle, as the Manicheans imagine, but from God. And therefore, we ought to cherish the body by the friendship of love, by which we love God.
+ - He who achieves power by violence does not truly become lord or master.
+ - The fact that the evil ones, as long as they live, can be corrected from their errors does not prohibit that they may be justly executed, for the danger which threatens from their way of life is greater and more certain than the good which may be expected from their improvement.
+ - The proper effect of the Eucharist is the transformation of man into God.
+ - First, I say that he draws near to those who make peace with him. For God is the One who brings about peace; and where else should peace dwell than in peace?
+ - Anger and the like are attributed to God on account of a similitude of effect. Thus, because to punish is properly the act of an angry man, God’s punishment is metaphorically spoken of as His anger.
+ - Gods are called many by the error of some who worshipped many deities, thinking as they did the planets and other stars were gods, and also the separate parts of the world.
+ - An angel can illumine the thought and mind of man by strengthening the power of vision and by bringing within his reach some truth which the angel himself contemplates.
+ - Sin is a spiritual illness; thus sinners are in need of salvation.
+ - The proper task of the Savior is that he is a savior; indeed, for this he came into the world: to seek and save what was lost.
+ - Not everything that is more difficult is more meritorious.
+ - God answered the prayers of animals.
+ - Man should not consider his material possession his own, but as common to all, so as to share them without hesitation when others are in need.
+ - The Angel’s bread is made the Bread of man today.
+ - Law has the power to compel: indeed, the ability to enforce is a condition of the ability to command.
+ - Now, nothing can be brought from potentiality to actual existence except through something actually existing.
+ - It is a sin to regard the fact that God cannot do the impossible as a limitation on his powers.
+ - Don’t ask who said it? Ask what they said.
+ - What does it take to become a saint? Will it.
+ - If all the sins of the flesh are worthy of condemnation because by them man allows himself to be dominated by that which he has of the animal nature, much more deserving of condemnation are the sins against nature by which man degrades his own animal nature...
+ - Man is closer to God according to his existence in grace than he is according to his existence in nature.
+ - The celestial bodies are the cause of all that takes place in the sublunar world.
+ - To be united to God in unity of person was not fitting to human flesh, according to its natural endowments, since it was above his dignity; nevertheless, it was fitting that God, by reason of his infinite goodness, should unite it to himself for human salvation.
+ - He who is dying of hunger must be fed rather than taught.
+ - Every cell in us worships God.
+ - To love is to will the good of the other.
+ - Arrive at knowledge over small streamlets, and do not plunge immediately into the ocean, since progress must go from the easier to the more difficult.
+ - Faith does not quench desire, but inflames it.
+ - Justice is in subjects as well as in rulers.
+ - The only-begotten Son of God, wanting to make us sharers in His divinity, assumed our nature, so that He, made man, might make men gods.
+ - God’s precepts are light to the loving, heavy to the fearful.
+ - There can be no joy in living without joy in work.
+ - To teach in order to lead others to faith is the task of every preacher and of each believer.
+ - It is necessary to posit something which is necessary of itself, and has no cause of its necessity outside of itself but is the cause of necessity in other things. And all people call this thing God.
+ - As the saints will rejoice in all goods, so will the damned grieve for all goods.
+ - The custom of the Church has very great authority and ought to be jealously observed in all things.
+ - God is never angry for His sake, only for ours.
+ - Concerning perfect blessedness which consists in a vision of God.
+ - Grant me, O Lord my God, a mind to know you, a heart to seek you, wisdom to find you, conduct pleasing to you, faithful perseverance in waiting for you, and a hope of finally embracing you. Amen.
+ - Because we cannot know what God is, but only what He is not, we cannot consider how He is but only how He is not.
+ - Charity, by which God and neighbor are loved, is the most perfect friendship.
+ - It would seem that zeal is not an effect of love. For zeal is a beginning of contention.
+ - Being born he have himself as our Companion, Eating with us he gave himself as Food, Dying He became our Ransom, Reigning he gives himself as our Reward.
+ - A song is the exultation of the mind dwelling on eternal things, bursting forth in the voice.
+ - Reason in man is rather like God in the world.
+ - O saving Victim, opening wide The gate of heaven to man below, Our foes press on from every side, Thine aid supply, Thy strength bestow.
+ - Jesus Lord, kind Pelican, Cleanse my filth with Thy blood, One drop of which can save The whole world from all its sin.
+ - I cannot understand how anyone conscious of mortal sin can laugh or be merry.
+ - The Cross to me is certain salvation. The Cross is that which I ever adore. The Cross of the Lord is with me. The Cross is my refuge.
+ - The theologian considers sin mainly as an offence against God; the moral philosopher as contrary to reasonableness.
+ - The Bread of angels has become the Bread of mankind; This heavenly Bread puts an end to all images; O wonderful reality! The poor, the slave, and the humble can eat the Lord.
+ - The minister to whom confession is made is the delegate of Christ, Who is the Judge of the living and the dead.
+ - Devotion is a certain act of the will by which man gives himself promptly to divine service.
+ - Practical sciences proceed by building up; theoretical science by resolving into components.
+ - Sing, my tongue, the Saviour’s glory, Of His Flesh, the mystery sing; Of the Blood, all price exceeding, Shed by our Immortal King, Destined, for the world’s redemption, From a noble Womb to spring.
+ - Even as in heaven there will be most perfect charity, so in hell there will be the most perfect hate.
+ - The apostles and their successors are God’s vicars in governing the Church which is built on faith and the sacraments of faith. Wherefore, just as they may not institute another Church, so neither may they deliver another faith, nor institute other sacraments.
+ - Mistakes are made on two counts: an argument is either based on error or incorrectly developed.
+ - There is no leisure about politics.
+ - Whenever God wakes in us, our thinking becomes clear – nothing is missing.
+ - In the realm of evil thoughts none induces to sin as much as do thoughts that concern the pleasure of the flesh.
+ - Without sanctifying grace it is not possible to refrain long from mortal sin.
+ - Now it seems that everything in the world stems from sources other than God, since the products of nature have their source in nature; deliberate effects can be traced back to human reason or will as their source. There is no need then to assume that God exists.
+ - Down in adoration falling, Lo! the sacred Host we hail; Lo! o’er ancient forms departing, Newer rites of grace prevail; Faith for all defects supplying, Where the feeble senses fail.
+ - Affirmative precepts are distinguished from negative whenever one is not comprised in the other; thus, that of honoring parents does not comprise that of not killing, and vice versa.
+ - For just as the first general precepts of the law of nature are self-evident to one in possession of natural reason, and have no need of promulgation, so also that of believing in God is primary and self-evident to one who has faith: for he that cometh to God must believe that he is.
+ - This Blood that but one drop of has the power to win all the world forgiveness of its world of sin.
+ - See to whom Jesus is drawing near, three kinds of people: to those who make peace with him, to those who are devoted to God, and to those who are kind to their neighbors.
+ - Here ’neath veils, my Saviour darkly I behold; To my thirsting spirit all thy light unfold; Face to face in heaven let me come to thee, And the blessed vision of thy glory see.
+ - Those who are more adapted to the active life can prepare themselves for contemplation in the practice of the active life, while those who are more adapted to the contemplative life can take upon themselves the works of the active life so as to become yet.
+ - It must be said that charity can, in no way, exist along with mortal sin.
+ - A man does not always choose what his guardian angel intends.
+ - If someone knows from experience that daily Communion increases fervor without lessening reverence, then let him go every day. But if someone finds that reverence is lessened and devotion not much increased, then let him sometimes abstain, so as to draw near afterwards with better dispositions.
+
+220 quotes

@@ -1,0 +1,42 @@
+ - You master Monday! You start winning the day! You start winning the week! Then the month! Then the year! ~~Eric Thomas
+ - Hey, I know it’s Monday, but it’s also a new day, a new week and in that lies a new opportunity for something special to happen. ~~Michael Ealy
+ - Every Monday morning is new hope. ~~Maira Kalman
+ - A vision without a strategy remains an illusion. ~~Lee Bolman
+ - Doing the right thing isn’t always easy – in fact, sometimes it’s real hard – but just remember that doing the right thing is always right. ~~David Cottrell
+ - True joy comes when you inspire, encourage, and guide someone else on a path that benefits him or her. ~~Zig Ziglar
+ - Bring your whole self to work. I don’t believe we have a professional self Monday through Friday and a real self the rest of the time. It is all professional and it is all personal. ~~Sheryl Sandberg
+ - You do your best work if you do a job that makes you happy. ~~Bob Ross
+ - I have to be alone very often. I’d be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That’s how I refuel. ~~Audrey Hepburn
+ - I moved into a nice houseboat in Little Venice when I was 15 years old. I found a girlfriend called Monday and a houseboat called Friday, so I had the week sewn up. ~~Richard Branson
+ - To find joy in work is to discover the fountain of youth. ~~Pearl S. Buck
+ - Ideas come from curiosity. ~~Walt Disney
+ - Success in business requires training and discipline and hard work. ~~David Rockefeller
+ - Don’t settle for average. You were made for greatness. ~~Victoria Osteen
+ - Be so happy that when others look at you, they become happy too. ~~Harbhajan Singh Yogi
+ - Those who move forward “with a” happy spirit will find that things alwas work out. ~~Gordon B. Hinckley
+ - Peter was the only one who walked on water besides Jesus, but he was also the only one who got out of the boat. Until you make a decision to believe, and then act on it, nothing will happen. ~~Joyce Meyer
+ - Mondays are fine. It’s your life that sucks. ~~Ricky Gervais
+ - Go big or go home. Because it’s true. What do you have to lose? ~~Eliza Dushku
+ - You can’t be common, the common man goes nowhere; you have to be uncommon. ~~Herb Brooks
+ - I think hell is something you carry around with you, not somewhere you go. ~~Neil Gaiman
+ - You already have everything you need to be content. Your real work is to do whatever it takes to realize that. ~~Geneen Roth
+ - If you care about what you do and work hard at it, there isn’t anything you can’t do if you want to. ~~Jim Henson
+ - The choice to have a great attitude is something that nobody or no circumstance can take from you. ~~Zig Ziglar
+ - Monday Night Football. That was everything to me because you get a chance to show everybody what you’re capable of. It’s only two teams on that Monday night. ~~Jerry Rice
+ - Monday burn Millay, Wednesday Whitman, Friday Faulkner, burn ’em to ashes, then burn the ashes. That’s our official slogan. ~~Ray Bradbury
+ - I knew I became a professional when I stop paying attention to what time it was. ~~Tom Brady
+ - You may be living under the illusion that when God ignites great things in your life, He’ll announce it with a big bang. He might. It’s more likely that He won’t. So stop waiting around for the big bang. Pay attention to the subtle clues and the still, small voice. God lives in that place too. ~~Steven Furtick
+ - Make the big time where you are! ~~Frosty Westering
+ - Anything goes on any given Sunday, especially Monday Night. ~~Jon Gruden
+ - I hate recording all the shows for the week in one day, because I want to be able to mention current events and pop culture. If Madonna punches Britney in the face today, I want to reference that on ‘Wine Library TV’ tomorrow. Monday’s episode is always the best, because it’s hot off the press. ~~Gary Vaynerchuk
+ - You fight dandelions all weekend, and late Monday afternoon there they are, pert as all get out, in full and gorgeous bloom, pretty as can be, thriving as only dandelions can in the face of adversity. ~~Hal Borland
+ - Almost every Monday I have a charity thing. I like that. I do. ~~Yogi Berra
+ - Well, people got attatched. Once you cut the umbilical cord they attatched to the other things. Sight, sound, sex, money, mirages, mothers, masturbation, murder, and Monday morning hangovers. ~~Charles Bukowski
+ - I’ve always been trying to write songs like Lightfoot. A song of mine like ‘Come Monday’ is a direct result of me trying to write a Gordon Lightfoot song. ~~Jimmy Buffett
+ - Really poor children in really poor neighborhoods have no habits of working and have nobody around them who works. So they literally have no habit of showing up on Monday. They have no habit of staying all day. They have no habit of ‘I do this and you give me cash’ unless it’s illegal. ~~Newt Gingrich
+ - Morning is wonderful. Its only drawback is that it comes at such an inconvenient time of day. ~~Glen Cook
+ - This is the real secret of life – to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. ~~Alan Watts
+ - The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. ~~Confucius
+ - Good morning is a contradiction of terms. ~~Jim Davis
+
+40 quotes

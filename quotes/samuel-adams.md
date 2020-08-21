@@ -1,0 +1,63 @@
+ - Give credit to whom credit due.
+ - A general dissolution of principles and manners will more surely overthrow the liberties of America than the whole force of the common enemy.
+ - If ever a time should come, when vain and aspiring men shall possess the highest seats in Government, our country will stand in need of its experienced patriots to prevent its ruin.
+ - What a glorious morning this is!
+ - It is in the interest of tyrants to reduce the people to ignorance and vice. For they cannot live in any country where virtue and knowledge prevail.
+ - Nil desperandum, – Never Despair. That is a motto for you and me. All are not dead; and where there is a spark of patriotic fire, we will rekindle it.
+ - The natural liberty of man is to be free from any superior power on Earth, and not to be under the will or legislative authority of man, but only to have the law of nature for his rule.
+ - The Constitution shall never be construed to prevent the people of the United States who are peaceable citizens from keeping their own arms.
+ - All might be free if they valued freedom, and defended it as they should.
+ - Among the natural rights of the colonists are these: First a right to life, secondly to liberty, and thirdly to property; together with the right to defend them in the best manner they can.
+ - Let us contemplate our forefathers, and posterity, and resolve to maintain the rights bequeathed to us from the former, for the sake of the latter.
+ - What a man has honestly acquired is absolutely his own, which he may freely give, but cannot be taken from him without his consent.
+ - How strangely will the Tools of a Tyrant pervert the plain Meaning of Words!
+ - The country shall be independent, and we will be satisfied with nothing short of it.
+ - Let no man thirst for good beer.
+ - A true patriot would keep the attention of his fellow citizens awake to their grievances, and not allow them to rest till the causes of their just complaints are removed.
+ - Rebellion against a king may be pardoned, or lightly punished, but the man who dares to rebel against the laws of a republic ought to suffer death.
+ - A nation of shopkeepers are very seldom so disinterested.
+ - We may look up to Armies for Defence, but Virtue is our best Security. It is not possible that any state should long remain free, where Virtue is not supremely honord.
+ - There never was a democracy that did not commit suicide.
+ - The utopian schemes of leveling and a community of goods, are as visionary and impractical as those which vest all property in the crown. These ideas are arbitrary, despotic, and, in our government unconstitutional.
+ - Crouch down and lick the hands which feed you. May your chains sit lightly upon you, and may posterity forget that ye were our countrymen!
+ - If taxes are laid upon us without our having a legal representation where they are laid, we are reduced from the character of free subjects to the state of tributary slaves.
+ - The liberties of our country, the freedom of our civil constitution, are worth defending against all hazards: And it is our duty to defend them against all attacks.
+ - We boast of our freedom, and we have your example for it. We talk the language we have always heard you speak.
+ - Liberty will not long survive the total extinction of morals.
+ - Our contest is not only whether we ourselves shall be free, but whether there shall be left to mankind an asylum on earth for civil and religious liberty.
+ - A standing army, however necessary it may be at some times, is always dangerous to the liberties of the people. Such power should be watched with a jealous eye.
+ - The sum of all is, if we would most truly enjoy this gift of Heaven, let us become a virtuous people.
+ - We cannot make events. Our business is wisely to improve them.
+ - Mankind are governed more by their feelings than by reason.
+ - Driven from every other corner of the earth, freedom of thought and the right of private judgment in matters of conscience direct their course to this happy country as their last asylum.
+ - If our Trade be taxed, why not our Lands, or Produce in short, everything we possess? They tax us without having legal representation.
+ - I thank God that I have lived to see my country independent and free. She may long enjoy her independence and freedom if she will. It depends on her virtue.
+ - If we suffer tamely a lawless attack upon our liberty, we encourage it, and involve others in our doom.
+ - Religion and good morals are the only solid foundation of public liberty and happiness.
+ - I believe that no people ever yet groaned under the heavy yoke of slavery but when they deserved it.
+ - It is no dishonor to be in a minority in the cause of liberty and virtue.
+ - We have this day restored the Sovereign to Whom all men ought to be obedient. He reigns in heaven and from the rising to the setting of the sun, let His kingdom come.
+ - Man’s rights are evident branches of, rather than deductions from, the duty of self-preservation, commonly called the first law of nature.
+ - The diminution of public virtue is usually attended with that of public happiness, and the public liberty will not long survive the total extinction of morals.
+ - Of how much importance is it, that the utmost pains be taken by the public to have the principles of virtue early inculcated on the minds even of children, and the moral sense kept alive.
+ - The public cannot be too curious concerning the characters of public men.
+ - Our union is now complete; our constitution composed, established, and approved. You are now the guardians of your own liberties.
+ - Principally, and first of all, I resign my soul to the Almighty Being who gave it, and my body I commit to the dust, relying on the merits of Jesus Christ for the pardon of my sins.
+ - One battle would do more towards a Declaration of Independence than a long chain of conclusive arguments in a provincial convention or the Continental Congress.
+ - Nothing is more essential to the establishment of manners in a State than that all persons employed in places of power and trust must be men of unexceptionable characters.
+ - It is a very great mistake to imagine that the object of loyalty is the authority and interest of one individual man, however dignified by the applause or enriched by the success of popular actions.
+ - In the midst of these pleasing ideas we should be unfaithful to ourselves if we should ever lose sight of the danger to our liberties if anything partial or extraneous should infect the purity of our free, fair, virtuous, and independent elections.
+ - In regard to religion, mutual toleration in the different professions thereof is what all good and candid minds in all ages have ever practiced, and both by precept and example inculcated on mankind.
+ - It bodes very ill for government when men are exalted to places of high trust through their own solicitations. He only fills a place with dignity who is invited to it by his fellow citizens from the experience they have had of his adequate abilities.
+ - We shall never be abandoned by Heaven while we act worthy of its aid and protection.
+ - What has commonly been called rebellion has more often been nothing but a manly and glorious struggle in opposition to the lawless power of rebellious kings and princes.
+ - Shame on the men who can court exemption from present trouble and expense at the price of their own posterity’s liberty!
+ - But there are some persons who wouldpersuade the people never to make use of their constitutional rights.
+ - Could I be assured that America would remain virtuous, I would venture to defy the utmost Efforts of Enemies to subjugate her.
+ - I firmly believe that the benevolent Creator designed the republican Form of Government for Man.
+ - Hence as a private man has a right to say what wages he will give in his private affairs, so has a Community to determine what they will give and grant of their substance for the Administration of public affairs.
+ - We cannot make events. Our business is wisely to improve them. Mankind are governed more by their feeling than by reason. Events which excite those feelings will produce wonderful effects.
+ - All men have a right to remain in a state of nature as long as they please; and in case of intolerable oppression, civil or religious, to leave the society they belong to, and enter into another.
+ - If the public are bound to yield obedience to laws to which they cannot give their approbation, they are slaves to those who make such laws and enforce them.
+
+61 quotes

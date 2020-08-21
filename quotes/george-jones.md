@@ -1,0 +1,34 @@
+ - If drinking don’t kill me, her memory will.
+ - You can’t put this possum in a cage.
+ - I just thank God I’m still here and the main thing is to try to get closer and closer to Him as much as I can so that I can treat my friends and my family the way they should be treated.
+ - Walk through this world with me, go where I go. Share all your dreams with me, for I love you so.
+ - Country music to me is heartfelt music that speaks to the common man. It is about real life stories with rather simple melodies that the average person can follow. Country music should speak directly and simply about the highs and lows of life. Something that anyone can relate to.
+ - I sing from my heart, I love country music and I love the people that respond to it. You never see yourself as others do but I’ve always beeen proud to be part of country music and I hope that the format is proud of me.
+ - Loneliness is lessened when you’re lonely by choice.
+ - I took my $100,000 and bought a new Corvette, a lot of cocaine, and spent the rest on foolishness.
+ - God bless the boys from Memphis, blue suede shoes, and Elvis.
+ - He stopped loving her today, they placed a wreath upon his door.
+ - There are questions I’m still not wise enough to answer, just wise enough to no longer ask.
+ - The only thing different between sinners and saints is one is forgiven and the other ain’t.
+ - I’ve had a lot of practice and wrong’s what I do best.
+ - I lay my head on the wheel and the horn begins honking, the whole neighborhood knows that I’m home drunk again.
+ - If you’re gonna drive me crazy baby, drive me to drink.
+ - Be real about what you do. Stay true to the voice inside you. Don’t let the ‘business’ change what it is you love because the people, the fans, respond to what is heartfelt. They can always tell when a singer is faking it.
+ - You can shut out the world. But you always have to stop, and the world is always waiting when you do.
+ - There, gleaming in the glow, was that ten-horsepower rotary engine under a seat. A key glistening in the ignition. I imagine the top speed for that old mower was five miles per hour. It might have taken an hour and a half or more for me to get to the liquor store, but get there I did.
+ - Today they forget you in five years. They give an artist nowadays four or five years and that’s it. Some of them don’t have that. They get a couple of releases. If you don’t sell two million copies, you’re gone, you’re out of here.
+ - Different people have their ways of measuring success, maybe it’s not the right way but wrong’s what I do best.
+ - Maybe some folks are alcoholics and others are just voluntary drunks. Maybe some folks drink due to body chemistry and others due to their lazy characters. Maybe some have drinking problems, while others have problems enough to drink.
+ - There’s nothing prettier in the world than a melody. I can get lost in a song with a melody.
+ - Country fans need to support country music by buying albums and concert tickets for traditional artists or the music will just fade away. And that would be really sad.
+ - Everybody knows in the business how I feel about country music. I’m an old traditionalist. Then they just call me an old man and stuck in my old ways, but with all the fans I’ve got out there, I can’t be all that wrong. I do love traditional country music. I love the good stuff.
+ - Before then, Britain was pessimistic and the role of government was largely managing Britain in decline.
+ - I just want to keep living on and enjoying food! Even though I’m gaining weight, I want to record if the Lord wants me to still record, and I just want to do my work on the road as long as I got those fans out there.
+ - If people liked your singing well enough, if you were special to them, then you never left their minds throughout all of the years.
+ - Anybody who loves country music loves gospel. Even they are competing with the same type of problem that I’m competing with. We older artists are competing with the new style of country, with their new modern style of gospel, with the young people.
+ - I’ve always said that if I could have made a living someway in gospel music, I would have loved to had that break, but it never was offered to me, a job in that field, so naturally, I got lost on that other road.
+ - After the first couple of years recording I did a lot of praying. I said, ‘Lord, please give me a hit.’ I want one so bad.
+ - All Patsy Cline had to do was sing somebody else’s song and her version would outsell theirs because it would be so good!
+ - A new artist today has to get their teeth fixed, has to tighten their jeans up, and they have to get ’em the right kind of hat, and if anything’s wrong with their nose, if it’s a little crooked, it’s got to be straightened up.
+
+32 quotes

@@ -1,0 +1,30 @@
+ - Drugs are the enemies of ambition and hope – and when we fight against drugs we are fighting for the future.
+ - Tolerating evil leads only to more evil. And when good people stand by and do nothing while wickedness reigns, their communities will be consumed.
+ - Victims of domestic violence need assistance and deserve justice, I commend the crime unit’s efforts to put offenders behind bars and reach out to victims.
+ - If my house is on fire, I don’t need the fire chief telling me I should not have built the house out of wood. I need somebody to put the fire out.
+ - One person can make a difference. In fact, its not only possible for one person to make a difference, its essential that one person makes a difference. And believe it or not, that person is you.
+ - I ask you: turn a deaf ear to the special interests. Let politics stand down for a while. don’t waste anytime thinking about future elections until we’ve done our jobs here.
+ - No skill shapes a child’s future success in school or in life more than the ability to read.
+ - Perseverance is a virtue that cannot be understated.
+ - Half a world away nations that once lived under oppression and tyranny are now budding democracies due in large part to America ’s leadership and the sacrifices of our military.
+ - The men and women who serve in our military have won for us every hour we live in freedom, sometimes at the expense of the very hours of the lifetimes they had hoped to live.
+ - In a time of tight budgets, difficult choices have to be made. We must make sure our very limited resources are spent on priorities. I believe we should have no higher priority than investing in our children’s classrooms and in their future.
+ - For too long, we have focused on our differences – in our politics and backgrounds, in our race and beliefs – rather than cherishing the unity and pride that binds us together.
+ - I think you’d change Alabama fundamentally if in six years someone said, ‘If you want the best education in America, you’ve got to live in Alabama.’ you’d change economic development, change the image of this state, you’d offer these kids an opportunity they otherwise would never have had.
+ - I have long believed that sacrifice is the pinnacle of patriotism.
+ - Nothing is worse, or more of a breach of the social contract between citizen and state, than for government officials, bureaucrats and agencies to waste the money entrusted to them by the people they serve.
+ - You elected government officials to make decisions and it’s about time they started making good ones.
+ - God looked down on this country because this country was founded on the rock and that rock was our Lord and Savior Jesus Christ. And when the storms came and the rains came, the rock, it did not move. But over the last 15 or 20 years, something began to erode.
+ - We must now view our problems as opportunities – historic opportunities to change the failed systems of the past and do what’s right for our future.
+ - According to our Christian ethics, we’re supposed to love God, love each other and help take care of the poor. It is immoral to charge somebody making $5,000 an income tax.
+ - When money follows results – we will get more results for our money.
+ - The fight for reform comes down to a simple goal: giving our citizens the confidence that government serves the people first and the people only.
+ - If we are going to save this country, if we are going to reestablish that belief in God, it’s up to us. If we don’t do it, who will?
+ - Ladies and gentlemen: There can be no greater investment in Alabama’s future than an investment in education.
+ - No two wars are ever the same. Some are just, some are unjust, but the basic commonality shared between them all is that young men and women heeded a call to service, overcame their fear, and fought for their side.
+ - The amount of money we spend on education is important, but not nearly as important as how the money is spent.
+ - The success of our economy shouldn’t determine the success of our schools.
+ - The opponents of my budget propose taking $200 million out of our classrooms and instead spending it on a larger school employee pay raise. Our focus should be on making sure our children come first.
+ - Government does not create jobs. It only helps create the conditions that make jobs more or less likely.
+
+28 quotes

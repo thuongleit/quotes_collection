@@ -1,0 +1,33 @@
+ - Education is not only a ladder of opportunity, but it is also an investment in our future.
+ - We must vote for hope, vote for life, vote for a brighter future for all of our loved ones.
+ - The photographs of Iraqi prisoners being subjected to degrading and humiliating treatment by their captors, and the reports of acts of sexual abuse, physical abuse, and other acts of maltreatment shock the conscience.
+ - The segregated schools of today are arguably no more equal than the segregated schools of the past.
+ - The beauty of daylight-saving time is that it just makes everyone feel sunnier.
+ - First responders will be on the frontlines if there is a terrorist attack in our communities, and we must provide them with the tools they need to do their difficult jobs.
+ - The war against terrorism is a war against those who engage in torture.
+ - The falsification of scientific data or analysis is always a serious matter.
+ - Detroit is saying that the hydrogen vehicle is the vehicle of the future. But it’s 15 years from now.
+ - My thoughts and prayers go out to the thousands of marathon runners, onlookers, city officials and others affected by this senseless tragedy.
+ - Although children are only 24 percent of the population, they’re 100 percent of our future and we cannot afford to provide any child with a substandard education.
+ - People really feel that, when they go to the gas pump now, that the oil cartel is holding them by the legs and tipping them upside down and shaking money out of their pockets.
+ - Drilling in the Refuge is completely unnecessary when we could improve the average fuel economy of cars, minivans and SUV’s by just 3 miles a gallon and save more oil within 10 years than we could ever produce from the Arctic Refuge...
+ - In Uzbekistan, hundreds of protesters were recently killed under the corrupt regime of President Karimov in what human rights groups are calling a massacre.
+ - Last year in a historic move, the state of New York passed the very first cigarette fire safety standard.
+ - Hope is the most important four-letter word in the language.
+ - Our nation’s security, economy, and place on the world stage depends on the success our educational system.
+ - Scientists at MIT and engineering schools all across America say that they could improve the fuel economy standards for the existing set of vehicles by 10 miles per gallon using existing technology, without compromising safety or comfort at all.
+ - The Christians had a better chance against the lions than the American consumer has against the OPEC cartel.
+ - Well, as you know, General Motors does not make hybrids. Ford only made 4,000 hybrids last year.
+ - That’s the premise of the Saudi Arabians. He’s holding the president’s hand with one. In the other hand, he’s got his hand in the pocket of American consumers.
+ - The Constitution is a 200-year-old parchment, simply because we digitize the words should not suggest their meanings change.
+ - You have to wait six months to purchase a fuel efficient automobile made from overseas.
+ - Cigars are no safe alternative act.
+ - I have no confidence whatsoever in BP. I think that they do not know what they are doing.
+ - The Republican Party is bringing out here onto the floor of Congress an all-out assault on the protection of the rights of people who work in the fields of our country, in the factories of our country, in the offices of our country.
+ - The problem is, is that President Bush and the Republican leadership in the Congress have resisted attempts to increase dramatically our fuel economy standards over the last five years.
+ - However, while we should certainly celebrate the demise of overt official racism, we must also critically examine where we are at this historical moment, recognize the many challenges ahead and reaffirm our commitment to making Brown v. Board a reality.
+ - It is common knowledge that smoking is considered one of the nation’s leading causes of preventable death, but it’s less widely known that cigarettes are also the leading cause of fatal fires.
+ - America is running a fever, but there are no emergency rooms.
+ - We can no longer tolerate losing one more innocent child or putting one more firefighter at risk in a fire that could have been prevented at the cost of pennies by making a couple simple changes to the construction of a cigarette.
+
+31 quotes

@@ -1,0 +1,34 @@
+ - Each year it grows harder to make ends meet – the ends I refer to are hands and feet.
+ - Libraries: Here is where people, one frequently finds, lower their voices, and raise their minds.
+ - Adolescence isn’t a period; it’s a coma.
+ - If you convinced me And I convinced you, Would there not still be Two points of view?
+ - Beauty is only skin deep, and the world is full of thin skinned people.
+ - Good sportsmanship we hail, we sing, It’s always pleasant when you spot it. There’s only one unhappy thing: You have to lose to prove that you’ve got it.
+ - There is no balm of Gilead, No salve, no soothing ointment To stay the pain of one who’s had In love a disappointment – Unless it be that healing lotion Of fixing on a new devotion.
+ - I miss my mattress when I am gone; It’s one thing I’ve made an impression on.
+ - Of late I appear To have reached that stage When people who look old Who are only my age.
+ - When it comes to eating, you can sometimes help yourself more by helping yourself less.
+ - There is some consolation in the fact that, even though your dreams don’t come true, neither do your nightmares.
+ - How I love to get a letter! I can think of nothing better Than perusing an epistolary item. But deep is my despondence, For I’ve found that correspondence Means that if you want to get ’em, You must write ’em!
+ - Middle age is the time of life that a man first notices in his wife.
+ - Rockefeller made his money in oil, which he discovered at the bottom of wells. Oil was considered crude in those days, but so was Rockefeller. Now both are considered quite refined.
+ - In larger things we are convivial; what causes trouble is the trivial.
+ - There are very few humorists who have written first-rate humor after they’ve become elderly.
+ - If we cannot define stupidity, at least we can trace most human misfortunes and weaknesses to it. Its manifestations are legion, its symptoms are endless.
+ - I love a finished speaker, I really, truly do I don’t mean one who’s polished, I just mean one who’s through.
+ - Rather than earn money, it was Thoreau’s idea to reduce his wants so that he would not need to buy anything. As he went around preaching this ingenious idea, the shopkeepers of Concord hoped he would drop dead.
+ - A rumor is one thing that gets thicker instead of thinner as it is spread.
+ - Although practice swings Can be helpful things, Twere better, indeed, not take any Than to fiddle and fret And before playing get Exhausted from taking too many.
+ - My day-old son is plenty scrawny, his mouth is wide with screams, or yawny; His ears seem larger than he’s needing, His nose is flat, his chin’s receding. His skin is very, very red, He has no hair upon his head, And yet I’m proud as proud can be, To hear you say he looks like me.
+ - G is for Green, that’s constructed to roll in every direction away from the hole.
+ - The great improvement of the radio over the telephone is that it may be turned off without offending the speaker.
+ - This golfer has a wicked slice. And quite a follow-through. That’s why his partner, who stood too close, Is on the green in two.
+ - Some people can carry a tune, but they seem to stagger under the load.
+ - They head the list of bad to bet on: But I insist they’re worse to get on.
+ - Some golfers blast their ball from traps, With one adroit explosion, But others, out in ten perhaps, Depend upon erosion.
+ - If only I kept my eye on the ball, Looking downward as does the pro there, I might not see where it was going, at all, But there might be a chance it would go there.
+ - I’ve suffered from all of the hang-ups known, and none is as bad as the telephone.
+ - If I ever make a hole in one, A thrill that I’ve never known, I won’t be believed and I’ll have no fun, For I’m sure to be playing alone.
+ - It is all right to hold a conversation but you should let go of it now and then.
+
+32 quotes

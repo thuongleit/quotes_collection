@@ -1,0 +1,48 @@
+ - No matter what, always be yourself!
+ - Bigger the risk, bigger the reward. But the higher the climb the harder the fall.
+ - Life without dreams is like a rainbow without colours.
+ - Chase your dreams. Don’t wait til the dreams come true.
+ - Be yourself, because an original is better than a copy.
+ - Don’t let anyone knock you down. Keep your head up.
+ - My friends are my second family. Sometimes friends can understand my problem but my family can’t.
+ - I’m here to help you notice the rainbow.
+ - If you stop, you’ll lose everything. You’ve got to keep going.
+ - Everyone can say ‘I Love You’ but not everyone really means it, so believe it when you feel it, not when you hear it.
+ - Get rid of all the hesitation, it’s time for you to seize the day.
+ - Keep on following your dreams and don’t let anyone put you down or tell you that you can’t do it!
+ - If they break your heart, break their bones.
+ - Be yourself, it’s the best thing you can do.
+ - People screw me over with words, so I screw them over with songs.
+ - I won’t try to be anybody else. I just try to be myself.
+ - I will never forget my ASIAN fans, because they’re so welcome with me, its my best moment ever.
+ - Don’t have Valentine this year, but all of you guys are mine.
+ - If i sad, I’m always search the mirror, because it never laugh when i cry.
+ - Go for today, don’t worry about the future, it’ll come eventually.
+ - So afraid of taking chances. How you gonna reach the top?
+ - Make your haters mad! Yeah, make them really mad!
+ - Asian girls are so natural and beautiful. I guess they don’t like to wear make up.
+ - I’m a really cheesy romantic I like to light candles and listen to romantic music.
+ - My fans are all my girlfriends.
+ - I draw inspiration from everything. I draw a lot from love, from hate, from anger, from happiness.
+ - Sometimes things happen that you never thought would. Sometimes you’re just blessed.
+ - Bullying is not gonna stop, but we can at least be confident enough to stand up to it.
+ - I’m still the same guy. My name is still Greyson Chance from Oklahoma. I grow much taller. But nothing really changes.
+ - I’m just so extremely lucky to have amazing Enchancers and all people around me...
+ - I hope someday when I date my fan, she loves me as a person and not as a famous Greyson Chance.
+ - My fans don’t love me because I’m successful, I’m successful because my fans love me.
+ - I’m married to my fans. I Love you all.
+ - I love hugging people. If they are happy, I’m happy too.
+ - I’ll never give up til I get want I want. Cause enchancers still supporting me.
+ - My fans are incredible. They mean the world to me, I love them dearly.
+ - Don’t hate on my fans. Hate on me.
+ - Greyson Chance says it’s gold, so it must be gold.
+ - What you need to find is someone who never will let you go...
+ - It’s hard but it’s not too much of a challenge because i’m doing what i love.
+ - I like the girls who are honest, because honesty is important.
+ - I’m not gonna date anyone since i’m married to my fans.
+ - Enchancers are my pride, i do everything for them.
+ - I love to see a dedicated, loyal and a polite fans!
+ - Some people never get to go oversees they entire lives.
+ - This is my dream and I’m living it. I’ve never wanted to do anything else except write songs and perform them.
+
+46 quotes

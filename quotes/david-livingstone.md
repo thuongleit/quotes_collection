@@ -1,0 +1,56 @@
+ - Fear God and work hard.
+ - I’ll go anywhere as long as it’s forward.
+ - If a commission by an earthly king is considered a honor, how can a commission by a Heavenly King be considered a sacrifice?
+ - God, send me anywhere, only go with me. Lay any burden on me, only sustain me. And sever any tie in my heart except the tie that binds my heart to Yours.
+ - I’d rather be in the heart of Africa in the will of God, than on the throne of England, out of the will of God.
+ - God had only one Son, and He was a missionary.
+ - Sympathy is no substitute for action.
+ - Without Christ, not one step; with Him, anywhere!
+ - People talk of the sacrifice I have made in spending so much of my life in Africa. It is emphatically no sacrifice. Say rather it is a privilege.
+ - I never made a sacrifice. Of this we ought not to talk when we remember the great sacrifice which he made who left His Father’s throne on high to give Himself for us.
+ - If you have men who will only come if they know there is a good road, I don’t want them. I want men who will come if there is no road at all.
+ - I am immortal till my work is accomplished.
+ - The best remedy for a sick church is to put it on a missionary diet.
+ - Death alone will put a stop to my effort!
+ - Christ alone can save the world, but Christ cannot save the world alone.
+ - I am a missionary, heart and soul.
+ - I am willing to go anywhere, anywhere, anywhere-provided it be forward.
+ - Education has been given us from above for the purpose of bringing to the benighted the knowledge of the Saviour.
+ - There is one safe and happy place, and that is in the will of God.
+ - Oh, that I could dedicate my all to God. This is all the return I can make Him.
+ - May the time come when rich men and great men would think it an honor to support whole stations of missionaries in Africa, instead of spending their money on hounds and horses.
+ - If success attend me, grant me humility; If failure, resignation to Thy will.
+ - Self-deception helps us deceive.
+ - I place no value on anything I have or may possess, except in relation to the kingdom of God. If anything will advance the interests of the kingdom, it shall be given away or kept, only as by giving or keeping it I shall most promote the glory of Him to whom I owe all my hopes in time or eternity.
+ - He who died for us, and Whom we ought to copy, did more for us than we can do for any one else. He endured the contradiction of sinners. We should have grace to follow in His steps.
+ - Cannot the love of Christ carry the missionary where the slave-trade carries the trader? I shall open up a path to the interior or perish.
+ - Do not think me mad. It is not to make money that I believe a Christian should live. The noblest thing a man can do is, just humbly to receive, and then go amongst others and give.
+ - All that I am I owe to Jesus Christ, revealed to me in His divine Book.
+ - It is far easier to travel than to write about it.
+ - I have found that I have no unusual endowments of intellect, but this day I resolve that I will be an uncommon Christian.
+ - I am a missionary, heart and soul. God had an only Son, and He was a missionary and a physician. I am a poor, poor imitation of Him, or wish to be. In this service I hope to live; in it I wish to die!
+ - In this service I hope to live; in it I wish to die!
+ - It is my desire to show my attachment to the cause of Him who died for me by devoting my life to His service.
+ - This generation can only reach this generation.
+ - The mere animal pleasure of travelling in a wild unexplored country is also great. The effect of travel on a man whose heart is in the right place is that the mind is made more self-reliant: it becomes more confident of its own resources, there is greater presence of mind.
+ - Shall I tell you what supported me through all those years of exile among a people whose language I could not understand and whose attitude towards me we always uncertain and often hostile? It was this: “Lo, I am with you alway, even unto the end of the world”.
+ - Nothing earthly will make me give up my work in despair.
+ - I will place no value on anything I have or may possess except in relation to the kingdom of Christ.
+ - If you knew the satisfaction of performing a duty, as well as the gratitude to God which the missionary must always feel in being chosen for so noble and sacred a calling, you would feel no hesitation in embracing it.
+ - And although I see few results, future missionaries will see conversions following every sermon. May they not forget the pioneers who worked in the thick gloom with few rays to cheer, except such as flow from faith in the precious promises of God’s Word.
+ - It is hard to work for years with pure motives, and all the time be looked upon by most of those to whom our lives are devoted as having some sinister object in view.
+ - I will try and remember always to approach God in secret with as much reverence in speech, posture, and behavior as in public. Help me, Thou who knowest my frame and pitiest as a father his children.
+ - All I can say in my solitude is, May Heaven’s rich blessing come down on every one – American, English, Turk – who will help to heal this open sore of the world.
+ - Fastings and vigils without a special object in view are time run to waste.
+ - There is a Ruler above, and His Providence guides all things. He is our Friend and has plenty of work for all His people to do. It is such a blessing and a privilege to be led into His work instead of into the service of the hard taskmasters – the Devil and sin.
+ - Anywhere, provided it be forward – farther still farther into the night.
+ - Providence seems to call me to the regions beyond.
+ - To be aroused in the dark by five feet of cold, green snake gliding over one’s face is unpleasant.
+ - I determined never to stop until I had come to the end and achieved my purpose.
+ - The islands above the falls are covered with foliage as beautiful as can be seen anywhere. Viewed from the mass of rock which overhangs the fall, the scenery was the loveliest I had seen.
+ - It is working with clients and changing that perception. I don’t mind if market commentators have that view. It’s the view that clients have that matters.
+ - Though there is antipathy in the human heart to the gospel of Christ, yet when Christians make their good work shine, all admire them. It is when great disparity exists between profession and practice that we secure the scorn of mankind.
+ - I have never ceased to rejoice that God has appointed me to such an office.
+ - It’s been busier than ever I guess they were having a going-out-of-business sale.
+
+54 quotes

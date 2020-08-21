@@ -1,0 +1,42 @@
+ - Without coffee something’s missing. ~~Al Pacino
+ - When the going gets tough, the tough take a coffee break. ~~Stephen Hawking
+ - Given enough coffee I could rule the world. ~~Terry Pratchett
+ - As long as there was coffee in the world, how bad could things be? ~~Cassandra Clare
+ - I never laugh until I’ve had my coffee. ~~Clark Gable
+ - Adventure in life is good; consistency in coffee even better. ~~Justina Chen
+ - What goes best with a cup of coffee? Another cup. ~~Henry Rollins
+ - Wake up and smell the coffee. ~~Ann Landers
+ - I’ll read my books and I’ll drink coffee and I’ll listen to music, and I’ll bolt the door. ~~J.D. Salinger
+ - Science may never come up with a better office communication system than the coffee break. ~~Earl Wilson
+ - To do good work one must eat well, be well housed, have one’s fling from time to time, smoke one’s pipe, and drink one’s coffee in peace. ~~Vincent van Gogh
+ - Live on coffee and flowers. Try not to worry what the weather will be. ~~Matt Berninger
+ - I like my men like I like my coffee. Silent. ~~Anna Kendrick
+ - When we drink coffee, ideas march in like the army. ~~Honoré de Balzac
+ - Strong coffee, much strong coffee, is what awakens me. Coffee gives me warmth, waking, an unusual force and a pain that is not without very great pleasure. ~~Napoleon
+ - I drink too much coffee. ~~Julianna Margulies
+ - Do Lipton employees take coffee breaks? ~~Steven Wright
+ - Put. That coffee. Down. Coffee’s for closers only. ~~David Mamet
+ - Coffee is a way of stealing time that should by rights belong to your older self. ~~Terry Pratchett
+ - The powers of a man’s mind are directly proportional to the quantity of coffee he drank. ~~James Mackintosh
+ - I had some dreams, they were clouds in my coffee. ~~Carly Simon
+ - Reading in bed can be heaven, assuming you can get just the right amount of light on the page and aren’t prone to spilling your coffee or cognac on the sheets. ~~Stephen King
+ - I would certainly end up forever crying the blues into a coffee cup in a park for old men playing chess or silly games of some sort. ~~Charles Bukowski
+ - It is inhumane, in my opinion, to force people who have a genuine medical need for coffee to wait in line behind people who apparently view it as some kind of recreational activity. ~~Dave Barry
+ - Cocaine is like really evil coffee. ~~Courtney Love
+ - Sex might satisfy, food might fuel, love might sustain, but without coffee, what is the point? ~~Nora Roberts
+ - The coffee was boiling over a charcoal fire, and large slices of bread and butter were piled one upon the other like deals in a lumber yard. ~~Charles Dickens
+ - I don’t like people who drink decaf coffee it’s like what. Why you drinking it? Like it taste so good? That’s like drinking non alcoholic vodka. ~~Chelsea Handler
+ - That’s something that annoys the hell out of me-I mean if somebody says the coffee’s all ready and it isn’t. ~~J.D. Salinger
+ - Should I kill myself, or have a cup of coffee? ~~Albert Camus
+ - Emotions are contagious. We’ve all known it experientially. You know after you have a really fun coffee with a friend, you feel good. When you have a rude clerk in a store, you walk away feeling bad. ~~Daniel Goleman
+ - Cold morning on Aztec Peak Fire Lookout. First, build fire in old stove. Second, start coffee. Then, heat up last night’s pork chops and spinach for breakfast. Why not? And why the hell not? ~~Edward Abbey
+ - A wine shop was open and I went in for some coffee. It smelled of early morning, of swept dust, spoons in coffee-glasses and the wet circles left by wine glasses. ~~Ernest Hemingway
+ - I love the morning time – a cup of coffee and to sit at the piano, that’s probably my favorite time. ~~Sara Bareilles
+ - I must always have fresh orange juice, alkaline water and hazelnut creamer for my coffee. ~~Vivica Fox
+ - In New York I pretty much live in diners – I order French Fries, Diet Coke floats and lots of coffee. ~~Lana Del Rey
+ - People don’t think of their office as a workplace anymore. They think of it as a stationary store with Danish. You want to get your pastry, your envelopes, your supplies, your toilet paper, six cups of coffee, and you go home. ~~Jerry Seinfeld
+ - A 41-inch bust and a lot of perseverance will get you more than a cup of coffee – a lot more. ~~Jayne Mansfield
+ - She smiled as sweetly as a show poster for the glorified, all-American Ziegfeld girl just before dumping her second cigarette into Wally’s fresh cup of coffee. ~~Libba Bray
+ - I packed coffee once when I lived in Australia, and I just remember going around every day with coffee up my nose and in my ears. ~~Hugo Weaving
+
+40 quotes

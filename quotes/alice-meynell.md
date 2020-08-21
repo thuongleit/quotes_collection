@@ -1,0 +1,28 @@
+ - Happiness is not a matter of events; it depends upon the tides of the mind.
+ - We talk of sunshine and moonshine, but not of cloud-shine, which is yet one of the illuminations of our skies. A shining cloud is one of the most majestic of all secondary lights.
+ - There is nothing in the world more peaceful than apple – leaves with an early moon.
+ - Spirit of place! It is for this we travel, to surprise its subtlety; and where it is a strong and dominant angel, that place, seen once, abides entire in the memory with all its own accidents, its habits, its breath, its name.
+ - There is no innocent sleep so innocent as sleep shared between a woman and a child, the little breath hurrying beside the longer, as a child’s foot runs.
+ - The true colour of life is the colour of the body, the colour of the covered red, the implicit and not explicit red of the living heart and the pulses. It is the modest colour of the unpublished blood.
+ - It is easy to replace man, and it will take no great time, when Nature has lapsed, to replace Nature.
+ - There is something very cheerful and courageous in the setting-out of a child on a journey of speech with so small baggage and with so much confidence...
+ - She walks – the lady of my delight – A sheperdess of sheep. Her flocks are thoughts. She keeps them white; She guards them from the steep. She feeds them on the fragrant height, And folds them in for sleep.
+ - Play is not for every hour of the day, or for any hour taken at random. There is a tide in the affairs of children. Civilization is cruel in sending them to bed at the most stimulating time of dusk.
+ - A wall is the safeguard of simplicity.
+ - A child is beset with long traditions. And his infancy is so old, so old, that the mere adding of years in the life to follow will not seem to throw it further back – it is already so far.
+ - If there is a look of human eyes that tells of perpetual loneliness, so there is also the familiar look that is the sign of perpetual crowds.
+ - Let us turn to our own childhoods-no further-if we will renew our sense of remoteness, and of the mystery of change.
+ - Solitude is separate experience.
+ - Tender, too, is the silence of human feet. You have but to pass a season amongst the barefooted to find that man, who, shod, makes so much ado, is naturally as silent as snow.
+ - Children have a fastidiousness that time is slow to cure. It is to be wondered, for example, whether if the elderly were half as hungry as children are they would yet find so many things at table to be detestable.
+ - Assuredly it would be a pity if laughter should ever become, like rhetoric and the arts, a habit.
+ - Our fathers valued change for the sake of its results; we value it in the act.
+ - Terrestrial scenery is much, but it is not all. Men go in search of it; but the celestial scenery journeys to them; it goes its way round the world. It has no nation, it costs no wearinesss, it knows no bonds.
+ - The sense of humor has other things to do than to make itself conspicuous in the act of laughter.
+ - I have known some grim bells, with not a single joyous note in the whole peal, so forced to hurry for a human festival, with their harshness made light of, as though the Bishop of Hereford had again been forced to dance in his boots by a merry highwayman.
+ - Now, in our opinion no author should be blamed for obscurity, nor should any pains be grudged in the effort to understand him, provided that he has done his best to be intelligible. Difficult thoughts are quite distinct from difficult words. Difficulty of thought is the very heart of poetry.
+ - If life is not always poetical, it is at least metrical.
+ - I come from nothing: but from where come the undying thoughts I bear?
+ - Spring and autumn are inconsiderable events in a landscape compared with the shadows of a cloud.
+
+26 quotes

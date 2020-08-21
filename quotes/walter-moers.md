@@ -1,0 +1,21 @@
+ - From the stars we come, to the stars we go. Life is but a journey into the unknown.
+ - Life is too precious to be left to chance.
+ - Stealing from one author is plagiarism; from many authors, research.
+ - Im as good as dead, but they haven’t buried me yet.
+ - No one who writes a good book is really dead.
+ - Reading is an intelligent way of not having to think.
+ - Writers are there to write, not experience things. If you want to experience things, become a pirate or a Bookhunter. If you want to write, write. If you can’t find the makings of a story inside yourself, you won’t find them anywhere.
+ - A bluebear has twenty-seven lives. I shall recount thirteen-and-a-half of them in this book but keep quiet about the rest. A bear must have his secrets, after all; they make him seem attractive and mysterious.
+ - People always covet what they themselves do not possess.
+ - For some miracles can only occur in the dark.
+ - Ordinary folk prefer familiar tastes – they’d sooner eat the same things all the time – but a gourmet would sample a fried park bench just to know how it tastes.
+ - Someone with an obsession for arranging things in alphabetical order was an abcedist, whereas someone with an obsession for arranging them in reverse alphabetical order was a zyxedist.
+ - If flatness were funny, a dinner plate would be hilarious.
+ - Anyone can write. Some people can write a bit better than others; they’re called authors. Then there are some who can write better than authors; they’re called artists.
+ - Wednesdays were the best thing about Atlantis. The middle of the week was a traditional holiday there. Everyone stopped work and celebrated the fact that half the week was over.
+ - I now understood the secret of music and knew what makes it so infinitely superior to all the other arts: its incorporeality. Once it has left an instrument it becomes its own master, a free and independent creature of sound, weightless, incorporeal and perfectly in tune with the universe.
+ - The written word is redundant on the high seas. Why? Because paper gets wet too easily.
+ - On horseback you feel as if you’re moving in time to classical music; a camel seems to progress to the beat of a drum played by a drunk.
+ - Wine is drinkable sunlight. It’s the most glorious summer’s day imaginable, captured in a bottle.
+
+19 quotes

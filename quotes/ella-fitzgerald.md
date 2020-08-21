@@ -1,0 +1,25 @@
+ - Just don’t give up trying to do what you really want to do.
+ - It isn’t where you came from, its where you’re going that counts.
+ - The only thing better than singing is more singing.
+ - I think I do better when I sing.
+ - Everybody wants to know about my style and how it came about. It’s no big secret. It’s the way I feel.
+ - When I’m on stage I feel at home.
+ - The fabulous places I’ve been, wonderful things that’ve happened, great people I’ve met ought to make a story.
+ - I know I’m no glamour girl, and it’s not easy for me to get up in front of a crowd of people. It used to bother me a lot, but now I’ve got it figured out that God gave me this talent to use, so I just stand there and sing.
+ - I don’t want to say the wrong thing, which I always do. I think I do better when I sing.
+ - What everyone wants more than anything else is to be loved.
+ - Listen to her voice, don’t look at her.
+ - I guess what everyone wants more than anything else is to be loved. And to know that you loved me for my singing is too much for me. Forgive me if I don’t have all the words. Maybe I can sing it and you’ll understand.
+ - I’ve had some wonderful love affairs and some that didn’t work out. I don’t want to dwell on that and I don’t want to put people down, but I think all the fabulous places I’ve been, the wonderful things that have happened for me, the great people I’ve met – that ought to make a story.
+ - She has been more famous, over a longer time span, than any other female singer.
+ - When we were at the Apollo, Holiday was a block away. I asked her for her autograph.
+ - Whatever she does to my songs, she always makes them sound better.
+ - I’m very shy, and I shy away from people. But the moment I hit the stage, it’s a different feeling I get nerve from somewhere; maybe it’s because it’s something I love to do.
+ - You take romance – I’ll take Jell-O.
+ - Ella knows her way around her voice as very few people today. But there are times when she seems to be unaware there are things the human voice just doesn’t do. She does them.
+ - Sometimes when we’re flying or in the hotel, I might run over songs, or in the bathroom.
+ - I stole everything I ever heard, but mostly I stole from the horns.
+ - She is amazingly creative, bringing so much more to a song than just a singer. She is a first-class musician and the most gracious person in the world.
+ - Coming through the years, and finding that I not only have just the fans of my day, but the young ones of today – that’s what it means, it means it was worth all of it.
+
+23 quotes

@@ -1,0 +1,49 @@
+ - You either die a hero or live long enough to become the villain.
+ - The day you stop caring what other people think of you is the day your life begins.
+ - The only morality in a cruel world is chance.
+ - You can go left, you can go right, I don’t give a damn. Just make a decision.
+ - Filmmaking is a difficult process. There are the logistics of making a film. You have to do your part, and then change the entire thing around to do someone else’s part. A lot of the magic is lost, in between that, and you have to figure out how to get it back.
+ - It seems to me if you want something badly enough, whether you’re a man or a woman, you’ll do whatever you have to do to get it.
+ - I’ve not made a career of being physical in my movies, but I love sports. I’m a very physical guy.
+ - I often feel that my days in New York City, that I was here for five years, didn’t get one job, went on a thousands of auditions and literally did not get a job on a soap, not a movie, not TV, not nothing, although I did do some commercials thank God.
+ - I have a dog and sometimes I’ll be the littlest kid with my dog and marvel at his ears and his nose and how he looks at me. If he died, I’d bawl like a baby.
+ - I think women can be as cruel as men, and men as tender as women, and vice versa.
+ - But I will say this: In my humble opinion, knowing nothing about it, I do believe that they have remote viewers working on where Osama Bin Laden is. I absolutely, 100%, convinced of that.
+ - If we’re talking about masculinity and tenderness, I don’t look at Clinton.
+ - I always ask, why can’t I be just like Cary Grant or something.
+ - There are different reasons to make movies.
+ - I’ve been working for many years and I think I’ve managed to work with some of the best people in the business, which has been rewarding and an apprenticeship.
+ - Well, I’ve thought many times when my career was in the toilet, that I was going to have to seriously consider getting another job, I don’t know what I’d do.
+ - I think that maybe that’s my weakness, in that I don’t know how to do it, so I just do what I do and try to do it as passionately and as well as I can.
+ - I’m sort of fascinated by the whole espionage crime thing.
+ - I mean, the problem is, I think I’m a great writer.
+ - I’d like to do a romantic comedy.
+ - I don’t do comedy so much although I would like to do a comedy.
+ - But I guess I like playing flawed guys ’cause it gives a place for the characters to go.
+ - I wanted to do a war movie, a western and an alien movie. In reality, there are a lot of ugly things happening in the world.
+ - Yeah, I’d like to get the girl and at least make it through the film.
+ - Some movies get rushed out right after you make them and I’m not always happy with that.
+ - I would love to get great performances from actors as a director, because that’s what I’m always looking for, a director that’s going to help me go places I’ve never been before.
+ - A film has its own life and takes its own time.
+ - I owned a 1972 Plymouth Valiant that we bought for $125. It was infested with cockroaches and geckos – it was its own little ecosystem.
+ - A true measure of strength is to use your hands to incapacitate somebody.
+ - I think every actor wants to be an FBI or cop at one point.
+ - I can think of films that I’m producing right now that are extremely hard-hitting, graphic films, that nobody necessarily wants to see, graphic in terms of violence, of adult content and racial and historical subject matter.
+ - Right now, I have to admit, that I’m more interested in giving people a little bit of hope and goodness.
+ - Actors aren’t fighters. They don’t know how to throw a punch. So, there’s a lot of hitting in the face. I’d much rather fight with a stuntman than another actor. I don’t like fighting with other actors because somebody always ends up getting hurt.
+ - I would like to direct.
+ - I’m always fascinated with how a person becomes a good quality person, a productive person, and how it happened to me, because I was a terror.
+ - I like doing movies with kids in them, and you’re explaining things. They’re teaching you and you’re teaching them, and the audience can loop through that.
+ - I think America right now is looking for somebody who appeals to every faction.
+ - I’d like to do more family dramas.
+ - Directors, producers can make you look good or make you look bad.
+ - I’m an actor and it happened to go my way that day.
+ - Yeah, but there’s nobody who represents romance to me like Cary Grant.
+ - Funerals are important rituals. They don’t just recognize that a life has ended; they recognize that a life was lived.
+ - I think they are very important because westerns have a code and a symbolism.
+ - Some movies I see today have the most dramatic plot points but the actors are not playing them dramatically.
+ - We always feel threatened by things we don’t know. But, there are definitely some weird things going on.
+ - If you go to YouTube and look up ‘grief’ you can find them and it’s just an unbelievable tool for an actor to be able to access, without being unethical. It’s like accessing the deepest, most painful parts of a person.
+ - If it helps me in the way that if this movie is successful, I get to make more films, great, and the more films that I make and the more interest that I’m allowed to cover, the better for me and the better, hopefully, for the people who like to watch me.
+
+47 quotes

@@ -1,0 +1,420 @@
+ - Nothing, Everything, Anything, Something: If you have nothing, then you have everything, because you have the freedom to do anything, without the fear of losing something.
+ - Dance like there’s nobody watching. Or filming. Never mind that creepy guy in the corner with the camcorder. Just keep dancing.
+ - With faith the size of a mustard seed, you can indeed move a mountain, but you can hardly be expected to garnish your sandwich.
+ - Laughter is the sound of the soul dancing. My soul probably looks like Fred Astaire.
+ - I want to end global hunger by feeding half the world’s starving people to the other half.
+ - Never let go of a good thing without a fight. Especially if that good thing is a pair of boxing gloves.
+ - I love running. I’m not into marathons, but I am into avoiding problems at an accelerated rate.
+ - When faced with two equally tough choices, most people choose the third choice: to not choose.
+ - One of my main regrets in life is giving considerable thought to inconsiderate people.
+ - Sometimes I ask myself, “Do I have the courage to do the right thing when it matters most?” And that answer, I’m afraid, is silence.
+ - I want to be asexual, because then I could be more productive. But not reproductive.
+ - I am a slave to your love. Well, more like indentured servant.
+ - I define myself and grow as a person through emotional torment, so if you love me, you will inflict as much pain on me as you possibly can.
+ - I love sleepwalking, because when else would I get to combine exercise and rest?
+ - If I had a clone, he’d better be my equal, and not my better. Can you imagine how I’d feel being jealous of myself?
+ - I hate fake people. You know what I’m talking about. Mannequins.
+ - Any lustful fool can love a million women, but only a real man can love one woman cloned a million times.
+ - I don’t want to work a 9-5 job, because 20 hours a day is just too much.
+ - Today is your special day, even if today might be tomorrow to an Australian. And even though you’re not Australian, it doesn’t negate the fact that today may or may not be tomorrow.
+ - Love knows no boundaries. I wish I would have known that before I hired a cartographer to map out my romantic territory.
+ - I once asked an old Japanese man why Japan decided to team up with Germany during WWII, and do you know what he told me? Well, you would if you speak Japanese, which I don’t.
+ - Love is like jumping out of an airplane with no parachute. But there’s no need to be frightened, because that plane is still on the ground.
+ - When people change, I’m disappointed they’re not who I remember them being. And when people don’t change, I’m disappointed they still are who they were. All people do is disappoint, and I do mean all people.
+ - Because I’m emotionally immature, I’d prefer letting go of you early and always remembering you as you were, rather than hanging on and letting things develop and blossom and then eventually decay.
+ - Learning how to love is like learning how to tie your shoes, and that’s precisely why I wear slippers.
+ - Fight or flight? If I had wings, there’d be no choice. But since I don’t have wings, I have to rely on my cape, and a long running start.
+ - The only drink I like ice in is water, because you can’t water down water. I’m like that with love, too. Don’t you dare add any ice to the hot liquid loving I’m trying to pour all over you.
+ - Friends are like orgasms: you can never have too many, but just try to watch out for the fake ones.
+ - I used to date the lead singer of The Cranberries, but she cheated on me. Turns out she had some turkey on the side.
+ - Love will wreck your heart like a derailed train. So choo-choose your partner wisely.
+ - I don’t drink water, because if water can erode rock, think what it can do to flesh.
+ - It’s scary to be a woman on a blind date. For all she knows the man she is meeting up with could be a rapist, a murderer, or, God forbid, a politician.
+ - My love is rare, like a hornless unicorn.
+ - It’s a dog-eat-dog world, and I’m just a kitten.
+ - Don’t try to hog loneliness and keep it all to yourself. Share it with a special someone.
+ - I believe in true love. But my opinion is tainted, because I also believe in Bigfoot, aliens, and in the existence of honest politicians.
+ - She had two lips like strawberries, and the seeds gave her kisses texture. I preferred kissing her over two scoops of vanilla ice cream.
+ - It’s impossible for me to applaud your successes when my hands are too busy patting myself on the back. But if I clap for you, and you pat my back, we can both feel like winners.
+ - You could empty the trash and my love for you still wouldn’t fit inside. But just because it won’t fit, doesn’t mean you shouldn’t empty the trash.
+ - I find out a lot about myself by sleeping. Dreams, they are who I am when I’m too tired to be me.
+ - The race is long, and I am sprinting. If I ever see her again, I’ll probably be too out of breath to tell her I love her.
+ - The wind blew my words away from you. So while I told you I love you, the phrase was carried in the opposite direction and landed 333 miles away in the ears of a confused farmer. He was nice, though. He sent me a kind letter saying that while he was flattered, I wasn’t really his type.
+ - I know a thing or two about love. Well, maybe just a thing. A big, blurry thing, like Bigfoot.
+ - I saw this beautiful girl the other day. She had an ass behind her that seemed to go on for days. In fact, I’m still going on about her.
+ - People always ask me if I’m into sports, and I say, “Well, isn’t writing a sport? If you’re doing it right, and you have a deadline, you should be sweating.”?
+ - If you were to ask me the best time of day to fall in love, I’d say, “Now.” But you’d also have to remember to factor in the fact that my watch is eleven minutes fast.
+ - 99% of the population is afraid of public speaking, and of the remaining 1%, 99% of them have nothing original and interesting to say.
+ - Coaching 101: First you build the team, and then you build the torture chamber for underperformers.
+ - Reading – it’s the third best thing to do in bed.
+ - I always keep a Ziploc bag in my pocket, and wherever I go I fill up my bag with dirt, because my goal is to be the largest land holder in the world by the time I’m 42.
+ - A Kiss is a terrible name for a piece of chocolate shaped like a water droplet, because kisses are hot and would melt chocolate – even if it is wearing an astronaut suit made out of tinfoil.
+ - I think it would be neat to meet a man who slept with one eye open, especially if that man was a Cyclops.
+ - I wonder if rooms in an insane asylum have Do Not Disturb signs for the doors. I should hope not, because knock or no knock, every occupant in those rooms is already disturbed.
+ - I’m very close to my dad. He’s about six inches away right now and snoring in my ears.
+ - I have a good ear for music, just like Van Gogh had a good ear for art.
+ - I blew the love trumpet until my cheeks were blue. Then I paid 34 bucks for a taxicab ride home so I could admire my receding hairline in the mirror.
+ - I’m bilingual, speaking English and body language. I prefer the latter, because I can speak it silently and without listening and while my back is turned.
+ - I want to say something so embarrassing about September that even the leaves start blushing and turning red.
+ - I haven’t been feeling like myself lately. No, I’ve been feeling like my clone.
+ - The sunset faded and blended from pink to peach to mango in a smoothie in the sky. For as long as she doesn’t love me, I will love her.
+ - When I saw you, I saw love. When I saw you naked, I saw lust. When I saw you with my clone in a dream, I saw the future.
+ - I believe the love shared between two people shouldn’t be secretly shared with a third. Not even if I am vacationing on the moon, and that third person is my clone.
+ - I got a new car. I just need to put it together. They’re easier to steal piece by piece.
+ - I want to spend less time talking about myself, and more time listening to what other people have to say about me.
+ - I want to scream sometimes, because I hate when people refer to a dead person as the “late” so and so. I’m sorry to break that bad news, but that person isn’t just late – they’re not even coming!
+ - I don’t demand much. All I expect is for you to love me so much you kill yourself just to get my attention.
+ - My love is expansive. Your love is expensive.
+ - I consider conversations with people to be mind exercises, but I don’t want to pull a muscle, so I stretch a lot. That’s why I’m constantly either rolling my eyes or yawning.
+ - My grandpa died yesterday. I ought to know, because I shot him. So come, join me in the fight against patricide by killing your father’s father.
+ - I have good news and I have bad news. The good news is that your house hasn’t burned down, you don’t have cancer, and your daughter hasn’t been raped or murdered. The bad news is that I ran over your dog. And your son. And his wife. But not before I ran out of gas to achieve all of that.
+ - It’s true, I can’t make you love me. But I can refuse to let you out of your cage.
+ - Moral codes are like the ocean. Some people live by them, while others, such as myself, would rather live by a lake.
+ - Love is what you make it. Unfortunately, I can’t make it today, as I have a doctor’s appointment.
+ - I want to go to all the topless bars in America and try to sell every single one of them a roof.
+ - A shopping cart flipped upside down forms a cage that I use to protect myself from consumerism.
+ - I want to write my own eulogy, and I want to write it in Latin. It seems only fitting to read a dead language at my funeral.
+ - I want to go to sleep in my time machine and wake up eight hours in the future.
+ - If love were a dolphin with wings and a unicorn’s horn, being ridden by a blind leprechaun dressed like Rasputin, would you believe in second chances for love at first sight?
+ - I had a dream about you. You were storing my brain in a pickle jar in the fridge, and I only discovered it when I went to garnish my hamburger. Mindless and hungry, I was a US politician’s ideal voter.
+ - If I saw you hitchhiking, I’d smile and return your thumb’s up, just for you doing such a great job of being a positive roadside influence.
+ - You tell me you love me, but I’m not sure you know what love is, or how fast it flies, or how much it resembles a UFO, or what kind of weapon you’d use to shoot it down.
+ - Goodbyes, they often come in waves.
+ - Ideas are like legs: what good are they if you can’t run with them, or spread them?
+ - The truth is like a nipple: the more you twist it, the more somebody is going to get hurt.
+ - I want a shower the size of the Sydney Opera House, because you know damn well I sing in the shower. And I might as well make millions off my cleanliness.
+ - I may not be able to remember your name, but I remember your address and what time you leave in the mornings. Your name isn’t Rob, is it?
+ - Some people try to change the world one life at a time. Others try to change the world one death at a time. And I try to change the world one bucket full of dirt at a time.
+ - Leave the cage open. If you love someone, give them a chance to leave. You can always lock them up again should they return to you.
+ - The reason it’s hard for men to say “I love you” is because those three words represent 10% of the average man’s vocabulary.
+ - You can tell a lot about a person’s character by how they do life’s menial tasks. For example, I saw my neighbor washing dishes, and I could immediately tell that he was an adulterer by the way my wife’s naked body glistened through his kitchen window.
+ - To me, the perfect date consists of dinner, dancing, and sex with a girl who has no stomach or legs, but does have an overactive sex drive.
+ - My parents always said that knowledge was the best gift they could give me, probably because they were too cheap to buy me Christmas or Birthday presents.
+ - If our destiny stems from our name, then I weep for the flower named Wilt.
+ - You can’t put a price tag on love. But if you could, I’d wait for it to go on sale.
+ - The canvas isn’t empty. It’s full of whatever you imagine it to be full of. My art is so conceptual that not only do I not tell, but I don’t even show. All I do is sign the canvas and try to sell it.
+ - I like to vote, but not be voted on. I don’t mind losing one on one, but to lose through a vote means the majority think I’m a loser.
+ - I had a dream about you. I said green was blue and yellow, and you said green was yellow and blue. You were like that with everything I said, taking the exact opposite stance, yet completely agreeing with me. That’s how I knew you loved me.
+ - Whether you live to be 50 or 100 makes no difference, if you made no difference in the world.
+ - My girlfriend bought me a collared shirt for my birthday, mainly so I don’t get too far ahead of her when she takes me for a walk.
+ - Love will find you eventually, I guarantee it. That’s why you need to buy an invisible cloak from me for the one-time low price of $77,777.77. Offer valid for emotional invalids only.
+ - If loving someone is putting them in a straitjacket and kicking them down a flight of stairs, then yes, I have loved a few people.
+ - I’ll tug at your breasts like a thirsty child. Try not to burn your nipples in my hot coffee. While you’re at it, I also like sugar in my coffee.
+ - If I told you I’ve worked hard to get where I’m at, I’d be lying, because I have no idea where I am right now.
+ - Patience and wisdom walk hand in hand, like two one-armed lovers.
+ - This morning my girlfriend was so loud in bed that we woke up the neighbors. So I told them to roll over and go back to sleep.
+ - I want to remember our fallen heroes. And after I’ve spent a day remembering them, I want to extend my arm and help them up.
+ - My words and my ideas are my property, and I’ll keep and protect them as surely as I do my stable of unicorns.
+ - How to duplicate yourself: hang out with the same people and say the same things all the time. The you of today is a clone of the you from yesterday.
+ - I once saw the world’s ugliest baby drown. But then I realized, “That’s not a baby, that’s a log. And it’s not drowning, it’s burning.” I wonder what it did to deserve that? It was probably a heretic.
+ - With a palindrome of a name, like Bob, I’d be both right thinking and dyslexic. Would you love me more as a Bob, or as a Bob?
+ - Sometimes I get depressed about my age. In March I’ll be 26. If man weren’t measured in numbers, but rather letters, I’d be turning Z. And then I’d be dead.
+ - If two heads are better than one, then what about double chins? On that note, I will help myself to seconds.
+ - My two favorite colors of the rainbow are gold and leprechaun.
+ - If I have to beat you up to keep you safe, that’s just what I’ll do. It’s this kind of regard for others that makes me believe I’d be a good politician.
+ - I know a woman loves me when she leaves me leftovers in the fridge from the date she went on the night before.
+ - 33 old people went into a nursing home, and only 34 people came out alive. One old woman died while giving birth to twins.
+ - I’m not a very good sleeper. But you know what? I’m willing to put in a few extra hours every day to get better. That’s just the kind of hard worker I am.
+ - I just recently figured out how mirrors work. Pretty cool. That guy always hungrily staring at my naked body was me!
+ - I toss and turn so much in my sleep that the very act of sleeping must be exhausting for me. Sleeping makes me want to sleep even more.
+ - I want to go to Martha’s Vineyard. I have an aunt named Martha. And an uncle by that name. Neither one is related to me.
+ - The good, the bad, and the ugly basically sums up my sex life. Except that I’ve never had the good.
+ - The mouth is made for communication, and nothing is more articulate than a kiss.
+ - I told the joke, but someone else got the high five. That’s like me drinking a cup of coffee and a guy in a coma waking up. Go back to bed, buddy.
+ - I don’t need love. I live in a forest. The quiet is my companion. The cold is my warmth. My heart once suffered from frostbite, but I removed and replaced it with a fuel pump.
+ - I said I’d drive to her place. But she lives in her car, so I don’t see why she couldn’t just drive her place to my place.
+ - I hate when I’m at the grocery store and the person checking me out asks, “Paper or plastic?” It’s offensive. As if I’m going to sleep with her just because she has a clever pick up line.
+ - I don’t want to make love last, I want to make love second to last. The last thing we’ll do is cuddle.
+ - I promised her the world, but instead I bought her a globe.
+ - I want to be a naughty pirate, because when I put on that eye patch, it barely covers my genitals.
+ - Meatloaf is meatloaf is not a true statement. You can have gravy on top, ketchup on top, and don’t forget you can also have love on top – however, you must understand that I would do anything, but I won’t do that.
+ - Yesterday I saved a baby, a boy, a man, and an old man from death, and all by simply not impregnating anybody. But I don’t consider myself a hero. Merely heroic, and also unable to reach any of my lady friends on the phone.
+ - I like my relationships like I like my eggs. Over easy.
+ - I want to hang from a tree the way Spanish moss hung from my father’s face, like the mustache he was so embarrassed he couldn’t grow.
+ - My father sacrificed his life for our family when I was growing up. He was one of the bravest, wisest, and most unselfish goats I have ever known, and I will miss his cheese dearly.
+ - When I’m in a relationship, I love like a burrito. And if you’re a taco, don’t talk to me. At our core we may seem similar, but trust me, we are two different items on the menu.
+ - When our dreams were nothing more than pancake batter, I was there for her, making breakfast.
+ - There’s nothing funny about war. Well, aside from this joke Orafoura told me: What did WWI say to WWII? I wish I could tell you the punch line, but the restaurant was so noisy that I didn’t hear it. But I laughed anyway, because I’ll bet it was pretty funny.
+ - I want to upholster the inside lining of my nostrils with leather, to have that “new car smell” all the time.
+ - I want to understand the elements that compose courage in the same way I understand the periodic table. I feel that by knowing the periodic table of courage I can be courageous, at least periodically.
+ - On your birthday you should throw me a party. This is my advice for everybody, especially my clones.
+ - I want my words to illuminate like the sun, as I give my daily lecture on photosynthesis to my houseplants.
+ - I love how babies look like old people. I saw a baby the other day that looked exactly like my grandpa, only taller.
+ - Between hello and goodbye is I love you.
+ - I want to make something of myself. I believe it’s called a statue.
+ - In the land of Gibberish, the man who makes sense, the man who speaks clearly, clearly speaks nonsense.
+ - My name is Davis Davis. And don’t call me Mr. Davis! How would you like it if I called you Mr. Archibald, or whatever your first name is?
+ - I am the sunrise of sunsets, and I make love like noon at midnight.
+ - Sleeping in a tinfoil suit keeps me warmer and helps prepare me for my voyage to the moon. Would you care for some licorice?
+ - Love is a circular emotion that surrounds you, like a hug. Or a noose.
+ - I have a fear of palindromes. Maybe because the only person to ever beat the hell out of me was a man named Bob.
+ - If sharks really can smell blood, then I’d imagine they’re all salivating over my erection right now.
+ - One thing I often get carried away with is piggyback rides.
+ - I made a graph of my emotions, a chart, and when I looked it over I was amazed to notice that the day Agatha broke up with me looked identical to the stock market crash of 1929. I thought I was the Irving Fisher of love.
+ - I want to meet a guy named Art. I’d take him to a museum, hang him on the wall, criticize him, and leave.
+ - If you work in a hospital, you can’t easily fake call in sick to work. Oh, you’re sick? Well why don’t you come in to work and we’ll have a look at it.
+ - Hoping to get a head start on the next day, I eat breakfast the night before. That way I can sleep in until two in the afternoon.
+ - I keep my love in the fridge, next to my meat, because you simply can’t beat it.
+ - I still remember her meandering Mississippi kiss. I sipped it like a riverboat captain in the desert. Ah, to be young and naughtily nautical.
+ - I can tell if two people are in love by how they hold each other’s hands, and how thick their sanitation gloves are.
+ - I lost a little weight over the weekend. I cut my fingernails.
+ - I’m not waiting until my hair turns white to become patient and wise. Nope, I’m dyeing my hair tonight.
+ - I am the dinosaur of love. Specifically, I am a pterodactyl, and you are my silent “p.” Stay quiet woman!
+ - The morning always has a way of creeping up on me and peeking in my bedroom windows. The sunrise is such a pervert.
+ - She says he says, but she could be lying to me, and he could be lying to her, so I can’t believe her, even if I could believe her.
+ - Love is the jelly to sunshine’s peanut butter. And if I tell you that I’m in sandwich with you, I’m not just saying it to get in your Ziploc bag.
+ - If we spoke with our ears, and listened through our mouth, then a kiss might be the most romantic sound in the world.
+ - I want to write a book called, “Bonfires and Bras,” which follows around a young, braless feminist who struggles to adopt in air conditioned rooms, as her hardened nipples cause her excess embarrassment.
+ - I’d love to work with an Asian guy named Wu Hu, because just saying his name would get me all pumped up and excited.
+ - I want to protect innocent people from sin by locking them in cages, where the evil can’t get to them.
+ - Witty sayings don’t grow on bumpers the way babies do. I was raised by a single rush hour.
+ - Love is the most pleasurable pain imaginable, and I have experienced more pain-pleasure than a German twin experiencing schadenfreude at the expense of his brother.
+ - I’m not courageous. In fact, when I shadow box I wear boxing gloves that are outfitted with flashlights.
+ - Love is like a forest, I think as I kill trees by squandering toilet paper while “decorating” my ex girlfriend’s front yard.
+ - The only gift I have to give, is the ability to receive. If giving is a gift, and it surely is, then my gift to you is to allow you to give to me.
+ - I told her, “I admire your mustache madam, but I wonder, what’s for dessert?” Knowing her and knowing me, she probably thought I meant I love you.
+ - If you don’t know how to love, then any old robot or mechanical device would best suit your relationship style. In this situation, vacuum cleaners might make the best lovers.
+ - I’d like to file a missing person’s report – on my clone. It’s nearly 2012. He should have been here by now.
+ - Some guys are the type of people who bring brass knuckles to a fight. I’ve always thought it prudent to bring some running shoes.
+ - I didn’t tackle him. I gave him a flying hug. Sometimes love is up in the air until it hits you.
+ - In a brave and noble way, I want to sacrifice my life one day so that two of my clones can live.
+ - My ashtray is full, the carton of cigarettes is empty, and I just cremated grandpa. But I never inhaled – or told him I loved him.
+ - We had a blast at my magical birthday party. There were midgets, fairies, glass slippers, and I actually got to ride in a pumpkin.
+ - I have a beard of fog that I wear on misty mornings. It’s not cigarette smoke, but I’d understand if you wanted to shave it off and inhale it.
+ - Strangers sometimes call me Mr. Kintz, and I don’t mind. But I would if I were a hermaphrodite. Then I’d probably want to be called Mr. and Mrs. Kintz.
+ - My clones better not wear invisible cloaks. How am I supposed to find myself as a person if I can’t even find my clones?
+ - Whenever I see a gorgeous woman, I think, Who is that tall drink of water, and how come I’m suddenly thirsty?
+ - I want to be in the Guinness Book of World Record’s for something ridiculous like juggling poison-tipped porcupines, playing the piano blindfolded while tightrope walking in tights, or throwing a rubber ball in a circular rim adorned with a dangling white nylon net.
+ - 4 am – if I’m ever up that early, it’s because I’m up that late.
+ - I wrote a thesis on love, and I wrote it in lipstick. Of course, I also got blood on the paper, because the lipstick was still attached to her cheating lips.
+ - He had a new girl, and I told him she looked like Marilyn Monroe. He smiled because he thought I meant she was beautiful, and I smiled because I meant she looked like a corpse.
+ - I’m not interested in driving a racecar, but I would love to cruise around in a palindrome.
+ - If someone invited you to a flash mob, would you wear a bra?
+ - I want to create a seventeen-syllable word that encompasses the human condition, and then use that word to form the world’s most perfect haiku.
+ - I am the washing machine of love. And if you have no idea what I mean, maybe it’s time to let some laundry into your life.
+ - Love is the best gift because it’s free to give and priceless to receive.
+ - I am the archaeologist of love. I’m digging for the bones of a loved one I shot and buried decades ago.
+ - Don’t shave my head to make your wig of selfishness. Shave it because you care.
+ - I want to make love like the most romantic thing ever, but I just don’t know how to go about learning how to fornicate like a flower.
+ - Love waits patiently. In the lobby. I’ll be with you as soon as I can.
+ - I spray-paint my underwear gold, because it makes me feel like a winner. When two people are in love, one is always in second place.
+ - There Are Two Typos Of People In This World: Those Who Can Edit And Those Who Can’t.
+ - I was nervous. Like an ice cube, I just froze up. Then I melted in some strange guy’s drink.
+ - Your love story, I don’t want to give away the ending, but both you and your lover die.
+ - When red fights with white, pink is always the winner. Let that be a lesson in love.
+ - My coffee gets increasingly better the more I drink and the closer I come to the bottom of the cup, where all the sugar is. I wonder if life is the same way as we approach the end.
+ - My girlfriend just bought me a portable toaster. And my birthday’s coming up, so I’m half expecting her to buy me a portable bathtub to go along with it.
+ - I’m willing to die for the woman I love. I just want to take 75 years to do it.
+ - I want to be happy and sad at the same time. Yeah, I know it sounds sappy.
+ - If sex were shoes, I’d wear you out. But I wouldn’t wear you out in public.
+ - I once watched several criminals engage in an organized argument, while an audience of supporters cheered them on, but I was so disgusted that I had to turn off the political debate.
+ - Yesterday I memorized Shakespeare, and tomorrow I’m also going to memorize his first name.
+ - The year you were born marks only your entry into the world. Other years where you prove your worth, they are the ones worth celebrating.
+ - The Nike swoosh logo would make an interesting mustache – on a man who runs his mouth all the time.
+ - I often fantasize about torturing some of the lazier letters of the alphabet, like C, U, and E, because together they only manage to accomplish as much as the solitary letter Q.
+ - The easiest way to get from point A to point B is with a vehicle that runs on alphabet soup.
+ - I like to call in sick to work at places where I’ve never held a job. Then when the manager tells me I don’t work there, I tell them I’d like to. But not today, as I’m sick.
+ - I love Huey Lewis, but not the News, because the News is too depressing.
+ - I want to never stop growing as a person. I’d love to be well over 8 feet tall.
+ - Grandpa always used to make me ride in the bed of his pickup truck, so he could keep up his conversations with the 100-pound sack of manure he kept buckled up in the passenger seat. Grandpa said all they ever talked about was grass, but I know Grandpa used to do a little flirting, too.
+ - Half of what I write is garbage, but if I don’t write it down it decomposes in my head.
+ - I want to write the Boston Marathon of run-on sentences. And since it’ll be so long, I’ll replace all the commas with the word Gatorade, to help push people through it.
+ - I’m on a government watch list. But I’m not interested, because government watches only work twenty minutes out of every hour.
+ - Love is like a door knob that I’ve mistaken for a shower handle, and I’m trying to turn up the heat on our relationship, but the handle won’t turn and I’ve got shampoo in my eyes and my wetsuit is dry and I started crying just as the zookeeper asked me to leave.
+ - I made a nap this afternoon. I made it out of two pillows, a bed, a sheet, a blanket, and exhaustion.
+ - I love teamwork. I love the idea of everyone rallying together to help me win.
+ - Love is a bicycle with two pancakes for wheels. You may see love as more of an exercise in hard work, but I see it as more of a breakfast on the go.
+ - I rarely drink, but last night, after several hours and several beers at the bar, I found myself face to face with two huge boobs. They weren’t the breasts of a young woman, but those of an old man. Still, the taste of a nipple is genderless.
+ - We can’t be lovers because we both have mustaches. But since you’re a lady, and I’m a gentleman, I’ll shave mine off.
+ - I want my kids to have the things in life that I never had when I was growing up. Things like beards and chest hair.
+ - It’s not: I jumped in, and it was cold. No. It was cold, and I jumped in. Always arrange a sentence so you appear to be fearless, when in fact you are far less than fearless – you are clueless.
+ - If I ever go to China, I’m going to find a piano and play “Chopsticks” – only not with my fingers, but rather I’ll be using two forks.
+ - I want to get the huge wart that looks like a nose removed from my back, but first I’m going to try to grow a mustache underneath it, to make it less noticeable.
+ - I told her I’d wait forever for her, but that was before I found somebody else who’d give me a ride home.
+ - I want to be the first and second man to dance on the moon. No, I won’t moonwalk. But I will Cha Cha – with my clone.
+ - After lunch, we made love like it was the 4th of July. And because it was the 4th of July, it felt exceptionally patriotic. I even wore my British flag t-shirt to commemorate the evening.
+ - I will never buy a fish tank, because I don’t believe in supporting the funding of aquatic war machines.
+ - Love is like learning to ride a midget, which I’ve never done because I’m afraid of heights.
+ - In the immortal words of myself, “If our destiny stems from our name, then I weep for the flower named Wilt.” Likewise, if cyborgs one day come to be viewed as so human-like that they are accepted as equals, then I cry for the cyborg named Mel T. Down.
+ - If flowers were boogers, I’d pick a few big ones and flick them on your grave.
+ - I want a billion people to know my name as well as they know their own. I want to clone myself to fame.
+ - If my last name were Om, I’d want my first name to be Fred. Fred Om isn’t worth fighting for, but an extra “e” is.
+ - I would say exploit the stupid, because they’re expendable and loyal, but it’s a fact: politicians are not loyal.
+ - I may be alive now, but in a series of moments I won’t be. And let it be said about me: He didn’t waste his time talking to conch shells, but he did listen to what they had to say about the ocean.
+ - I remember I laughed so hard I cried. But my response was half appropriate, because I was at a funeral.
+ - You know you’re in love when you reach out to hold your woman’s hand, without remembering that her hands are full because you insisted she carry all the groceries out to the car.
+ - I wouldn’t say I’m superficial, just averagely ficial.
+ - I could tell by their audible gasps that the people on the beach were jealous of me when I found five shark’s teeth. Locating them wasn’t really the problem, but pulling them out of my leg was.
+ - Time is such a waste of time to think about, because the longer you ponder it, the more of it you lose. And before you know it, you don’t know it, because you are nothing but dusty worm food.
+ - I smiled, and you winked. I think. Perhaps you merely blink with one eye at a time.
+ - I’m such an alcoholic that I go to church just for communion.
+ - Love is like war, except without all the blood and death and stuff.
+ - I want certain conversations to come equipped with antilock brakes, especially if I’m talking to a real airbag.
+ - I think the best time to stare off into space is when you’re going 65 on a motorcycle, provided you’re wearing your astronaut’s helmet.
+ - I am a master of logic and a powerfully convincing debater. In fact, against my better judgment, I can talk myself out of doing anything.
+ - I wish my stove came with a Save As button like Word has. That way I could experiment with my cooking and not fear ruining my dinner.
+ - I want to replace my knees with miniature Rube Goldberg machines. That way you’ll know how difficult it is for me to simply walk out of your life.
+ - To make my meal in a box taste better, I decided to tweak the logo, rather than the ingredients.
+ - I went out to eat on a restaurant’s opening night. It was packed! I guess people heard I’d be dining there and came to adore me.
+ - I want to have a bunch of kids so I can open a factory and have free labor. Beat that, China!
+ - When push comes to shove, I’m going to figure out that this door needs to be pulled to be opened.
+ - My birthday is on a holiday, I just have to wait until I die and they commemorate me.
+ - I want to be a matador in the bull market, but not so I can make a killing. Rather, I just want to wear flamboyant and form-fitting pants that emphasize my genitalia as I stroll down Wall Street.
+ - I just bought a small condo overlooking the water. The water is in a cup, one floor below my unit.
+ - If love came in a cardboard tube, I’d probably send it priority mail. But I’d make you pay for shipping.
+ - The last time somebody pointed out that cowboys ride horses, not tricycles, I shot him. Of course, I waited until another gunslinger gunned him down, but nevertheless, I still shot him.
+ - Grandmother hates it when I do the “turkey dance.” Basically, I lather my naked body in gravy and then spaz out on the kitchen floor. She just doesn’t understand modern dance.
+ - Love is the most amazing feeling in the world. Let me double check. Yep, love is a feeling.
+ - I would have been a black belt in Karate much sooner, but the store was sold out of Sharpie markers.
+ - I’m so excited. I just bought a new file cabinet, some manila folders, some sticky note pads, and a few highlighters, and I think I’m finally ready to enter into organized crime.
+ - I think the key indicator for wealth is not good grades, work ethic, or IQ. I believe it’s relationships. Ask yourself two questions: How many people do I know, and how much ransom money could I get for each one?
+ - They should make bubblegum that tastes like mashed potatoes. You know, for lovers.
+ - I want to be more like James Bond, and less like Ian Fleming.
+ - I’ve been trying to start a garage band for over a decade now, but father won’t move his car.
+ - All the ideas in the universe can be described by words. Therefore, if you simply take all the words and rearrange them randomly enough times, you’re bound to hit upon at least a few great ideas eventually. Sausage donkey swallows flying guillotine, my love assembly line.
+ - When I compliment you, I compliment myself, because I am who I associate with.
+ - I am the broth of love. Make soup to me.
+ - The only reason my wife agreed to marry me is because Christian Bale wasn’t around to propose to her.
+ - I called an insurance company to get a quote. They gave me one of Oscar Wilde’s best.
+ - I type as fast as a ten-legged man who just had eight legs chopped off runs.
+ - I skimmed the pond scum with a spoon like broth in a soup bowl. Why does everything have to remind me of her?
+ - On the scale of tomato to ketchup, my girlfriend is definitely a 57.
+ - I want to put silencers on all guns. That way war will be nothing more than a whisper in the future. And all those who are caught whispering will be shot.
+ - Despite marking the spot, Generation X has no treasure. How could they, when I dug it up first?
+ - I cried so hard after I put my cat to sleep. I guess I shouldn’t have cried so hard, because with all my sobbing, I ended up waking it up.
+ - For your birthday I got you some batteries. They’re dead, just like you’ll soon be.
+ - I was going to change my clothes, but I changed my mind instead.
+ - She asked if I wanted to spoon with her, and I told her I didn’t want to stir things up.
+ - Love is you wearing her favorite shirt of yours, just like you did yesterday and the day before. And the day before that too.
+ - If girlfriends were knees, I’d love to have both of mine replaced. That way, it’d be easier to run around on them.
+ - Books allow you to take flight, unlike the chicken wings I stapled to my back before eating them.
+ - Let’s make love in the library – in the romance section.
+ - If I promise you I’ll show up fifteen minutes late, I’ll always arrive on time.
+ - Francis Bacon has the most delicious last name ever, followed closely by Johnny Scrambledeggs. I make love like those two guys make breakfast out of family reunions.
+ - I make art for one person and one person only. And as soon as I find that one person, I sure hope he has a lot of wall space, because he’ll be getting a lot of art from me.
+ - I feel like I’m late for love. I’ll be 30 in March. Damn it! I knew I should have set my alarm clock.
+ - The only thing I could love more than you is two of you. And I suppose three.
+ - What does it mean to be the best? It means you have to be better than the number two guy. But what gratification is there in that? He’s a loser – that’s why he’s number two.
+ - A banker is a man who will lend you the short sleeve shirt off his back and demand a long sleeve one in return.
+ - I would pour you a glass of wine, but wouldn’t it be more romantic if you sipped it out of my armpit?
+ - Every night I cuddle with a blob of unbaked clay I fashioned in the shape of a woman. But that’s what being in love is all about.
+ - Death cannot stop true love. That’s why it’s pointless for me to try to murder all my adoring female fans.
+ - When I meet a European, the first thing I say is, “I’d much rather watch football than football.” But I’m just teasing them, and they know I’d really rather watch football than football.
+ - Surviving cancer is cool, but surviving old age is cooler.
+ - Love is a tomato. And while it’s true that I can live without a tomato, I could sure go for some ketchup.
+ - Sometimes I’ll forget a utensil’s name, and I’ll say, “Give me that pointy thing,” as I point with my pointy finger.
+ - I fell in love with her the moment she was late, though neither one of us knew it at the time because she hadn’t arrived yet.
+ - The sky was as blue as orange could get. I love sunsets at noon, and forks disguised as spoons.
+ - I have a real problem keeping friends. I’m always running out of space in my freezer.
+ - Most fools drink after one another, from a thinking cup that is empty. But I only drink after people whose cups are filled with a fluid to fascination ratio of nearly 1:1.
+ - I don’t understand people who say they need more “Me Time.” What other time is there? Do these people spend part of their day in someone else’s body?
+ - If I knew what you’d do, exactly when you knew what you’d do, then I’d either be you or I’d be God. And we both know I’m not you.
+ - I like wearing a blindfold while watching movies, so that I can focus on the dialogue. My favorite flicks are the silent movies.
+ - I have a “Waiter, there’s a hair in my soup” dance. It involves platform shoes, a mustache, and a hair net.
+ - I’ve often wondered what makes a relationship last. I guess the best answer is it’s the one right after the next to the last one.
+ - I like to spoon after I fork.
+ - The most enjoyable book in the world is the phone book, because think of all the sex that went into creating the content.
+ - I’m asexual, though occasionally I’m attracted to inanimate objects. Mainly tube-shaped objects.
+ - I’m the kind of guy who puts other people first. Particularly if there’s danger up ahead. Now I’m not saying I’m any more cowardly than the next man, unless that next man is any other man besides my clone.
+ - When I was a little boy, I used to work in a sweatshop. We made deodorant.
+ - I once got attacked by a bearskin rug, two days before it was a rug.
+ - My close friends are fond of telling me that I put the “yalt” in loyalty. Well, I don’t know if I’d go that far with it, but yeah, I guess I am a pretty yalty person.
+ - I want to own something that really reflects me as a person. Something like a mirror.
+ - I want to be the Everyman and take an IQ test and get a perfect 100.
+ - I want to be a creature that’s half bee, half the letter B. That way I can pollinate the world with my literacy.
+ - Love one person at a time, that’s the motto I’ll try to get my clones to live by.
+ - You just tell me when and where, and not only will I not be there, but I’ll also be late.
+ - I am the Guillotine of Love, and I will never lose my head over another woman again.
+ - I want my time to be taken up by chores, errands, appointments, and arguments. In other words, I want to get married.
+ - Even a fool recognizes that there is great sadness in a bucket of tears. But only a wise man thinks to conserve water and use that bucket to wash his car.
+ - I want to keep a human mouth on my coffee table. It’ll be a great conversation starter.
+ - I picked up a new language a few months ago. It was just laying on the ground, dirty, so I scooped it up and popped it in my mouth.
+ - Politically, Republicans and Democrats are at opposite ends. One’s a burp and the other’s a fart.
+ - I saw a bottle of conditioner the other day that said, “Family Size,” and I thought, That’s odd, I didn’t know too many families showered together.
+ - I am the Love Ventriloquist. And if you say I’m not, I’ll say it so it sounds like you said I am.
+ - I made myself an “I Love Jennifer” jacket out of my old “I Love Jenn” jacket. Two girls, one continuous love. The I Love Jennifer is a little off-center, but then so am I. Better than being self-centered, as my clone would probably say.
+ - From the ages of 8-18, me and my family moved around a lot. Mostly we would just stretch, but occasionally one of us would actually get up to go to the fridge.
+ - Love is like whoa! Actually, it’s closer to woe.
+ - I want to know how watches can hold all the time in the world using only two hands.
+ - Flowers and fear are a lot alike. For one, flowers and fear have a distinct smell, and two, I’m currently trying to grow both in my garden.
+ - Is there anything more pathetic than a flower that doesn’t get enough sunlight and dies, because it couldn’t get out of bed until four in the afternoon?
+ - If we all had an additional twelve hours a day, think of how far mankind could advance in just a year! That’s exactly what I’d be thinking about while I was sleeping twenty hours a day.
+ - I want to create moonglasses, and then write a song called, “I Wear My Moonglasses at Noon.” Hopefully, with a little lunar luck, my track will also feature Corey Hart.
+ - Do I attribute my success to hard work, or sunscreen? If you want the truth, maybe you should ask my new albino secretary.
+ - Love is an empty bottle, and it makes my heart thirsty thinking how fast I chugged it.
+ - I want to be the kind of person that kind people like and want to be like.
+ - Selling something only to steal it back to sell again is not only dishonest, but highly profitable.
+ - The police called it choking, but I called it a two-handed neck hug. That’s how I knew she really loved me.
+ - I have two friends, Steve and Martin. But I’d happily replace both for the friendship of Steve Martin.
+ - I love having a ceiling fan, although sometimes I wish he wouldn’t cheer so loud when I’m trying to sleep.
+ - Just to show my dad that I think he’s number one, I bought him a urinal cake for his birthday.
+ - I met two twins, each named Dakota. I nicknamed the older one North, and the younger one I called – you guessed it – Cock Tease.
+ - What did I know of love then? What do I know of love now? I went from mustard to ketchup, but I’m still leading with my hotdog.
+ - I am my own love story. And I want to tell my love story, from the inside. Just add water and stir.
+ - I want to gather up all the ink cartridges in the universe, because somewhere, mixed in with all that ink, is the next great American novel. And I’d love nothing more than to drink it.
+ - Too bad Americans can’t export Awesome, because I have boxes and boxes of the stuff just lying around in my attic.
+ - I feel like I could be the best, but I’m not going to openly admit that. At least not to any of my clones.
+ - A part-time worker is fully employed, half the time. In other words, they are part-time unemployees.
+ - I applied for your love like a recent MBA grad might apply at Walmart today. I grew a beard on my chest and laughed through my ass just to get your attention.
+ - If I had a dollar for every time a random woman walked up to me and tried to seduce me, I’d have 50 cents. That’s assuming drag queens are half price.
+ - The only time I really think is when I smoke, and I quit smoking years ago.
+ - Love means never having to say you’re sorry for a minor stab wound.
+ - For me, it’s not about winning an award. It’s also about not even being nominated.
+ - I want to mail my mailman something. He always brings me mail, yet I never give him any mail. Maybe he will appreciate the thought, or maybe he will feel I am making more work for him.
+ - Inviting the invading army over for dinner, buffet style, is a bad idea. Especially when I just took a bath in the last of your mac and cheese.
+ - Loneliness is the unloneliest feeling in the world, as everyone has experienced it.
+ - I don’t quite know how to respond to people who say that I dance like my genitals are on fire. I usually just blush and brush aside their flattery.
+ - I want to write a book about shoes that’s full of footnotes.
+ - I don’t like customer service, because I don’t believe the customer should have to pay and help out too.
+ - I am approximately 96.694444% in love with you. Of course, that’s just a rough estimate.
+ - My boxers should require batteries, because I’m such an exceptional lover that pizza delivery people call me for carry out. 30 minutes or less – as if!
+ - Not only am I thinking about getting a nose job, but I’m also trying to get employment for the rest of my face.
+ - I’m not going to lecture you on the error of your ways. Not until you fetch me a podium and a microphone. I’ll also need a screen, a projector, and a laser pointer.
+ - Nothing in this world feels quite like freedom, except for freedom. And nothing in the world tastes quite like freedom, except for fried bald eagles.
+ - I object to that object that’s made of bronze and shaped like my clone. It should be made of gold, and shaped like me.
+ - We fell in love like two medium pizzas in one large stomach. I wish dad would have saved a few slices for us.
+ - I don’t think anybody’s ever written a song called, “There’s urine on the couch, and the remote control is in the shower.” I would write it myself, but I’ve never been very good at writing love ballads.
+ - I haven’t spent my time trying to duplicate my success. But only because I haven’t had any yet.
+ - I just realized my lips are inside out. They should be turned inwards, because I spend most of my time talking to myself.
+ - I’m trying to translate what my cat says and put it in a book, but how many homonyms are there for meow?
+ - I’ve got a way with love. Away with love.
+ - I ate a pound cake today, but I gained two.
+ - I’m always the last in love by exactly one person.
+ - I am innocent! But only because the opportunity to partake in an activity that would render me guilty has not presented itself.
+ - I have discovered that the easiest way to make my nose appear smaller is to wear a Speedo on my head.
+ - I’ve got a lot of love to give. Did I say give? I meant to say sell.
+ - Return something not for the possibility of a reward, but for the joy of giving a gift which you did not have to pay for.
+ - I didn’t fire my gun. I gave it a promotion.
+ - Artists exist to show us the world. So do windows.
+ - I want to be strapped to a table, while a family of chickens argues over who gets to eat my legs.
+ - A lot of people go searching for “Truth.” But they can’t be searching too hard, because very few of them ever think to look under my bed.
+ - Mr. Pot drank ten pots of coffee, even though I only made eight. That’s a savings of 20%!?
+ - I am the bathtub of love, but all Agatha ever wanted was a shower.
+ - I told you I didn’t want to go. Of course, I really did want to go, but I just said I didn’t want to go so you’d beg me to go and I could feel needed. I’m needy like that.
+ - Every politician has a promising career. Unfortunately, most of them do not keep those promises.
+ - You’re disoriented. You just woke up. You’re in the future. You’ve been asleep for eight hours.
+ - What can I say about love that’s never been said by me or anyone else? Well, sometimes love smells like my farts, after I eat a dozen roses.
+ - If writers write, then rangers range. And I’d like to wake up every morning and be a mother, so I could eat my own clothes.
+ - She moved her hands like crane claws as she spoke, trying to dig at the essence of what she was saying. It was the dirtiest I love you I’ve ever heard.
+ - I’ve often wondered why more science textbooks don’t tell teenagers that the only thing sharks like to eat more than fish, are dead prostitutes.
+ - In high school I barely made the rodeo team. But I wasn’t good enough to start, so I just rode the bench.
+ - I want my relationship with my girlfriend to be built on trust, not toothpicks, rubber bands, and lentil beans.
+ - I want to own a wind farm. Don’t breathe, or you’ll undermine the price of my crop.
+ - You and I have a love so secret that not even you know about it. But first, let me introduce myself.
+ - I wish the masses of people would all follow my advice, because I’d throw it off a cliff.
+ - I want to merge a Phoenix with a Camel to create the world’s first everlasting cigarette. It’ll be a cigarette that rises from its own ashes, so you can keep smoking it indefinitely.
+ - Heard, Seen, and Dunn et al.
+ - I’m hungry but I won’t order 18 tubs of ketchup and a spoon. No, I’ll order it because I’m thirsty, and I’ll ask for a straw.
+ - Agatha loved military men. Actually, she loved men in uniform. And my bowling league outfit used to drive her wild with desire.
+ - I want to get the words “Courage” and “Bravery” tattooed across my back, so people could associate me with those things as they read them while they chase me.
+ - No matter how much water a sink takes on, it never lives up to its name. The Titanic would never have sunk if it were made out of a sink.
+ - You’re used to being the smartest guy in the room. Solitary confinement will do that.
+ - To maximize love, I try to emulate an omelet. And I’m not just saying that to sound romantic.
+ - I want to read the employment section of the Bible. I think it’s simply called Job.
+ - I want to see an elephant hunt down a man for the sole purpose of collecting his teeth, while a chorus of typewriters sings songs that praises the bananas for their wisdom, leadership, and their high levels of potassium.
+ - In high school I got voted most likely to get voted for something. Even though I was the only one who voted, it still felt terrific being nominated.
+ - I have studied the astrological musings of the mystics, and I can conclude one thing: of all things cosmic, bowling is the best.
+ - A one dollar bill, though it weighs less than 99 pennies, is psychologically heavier.
+ - I’ll give you a deal on the meat, cheese, rice, beans, tomatoes, and sour cream, but I’ll jack up the price of burritos and tacos. That’s also how I love.
+
+418 quotes

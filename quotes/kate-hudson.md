@@ -1,0 +1,55 @@
+ - You Can’t Lose Something You Never Had.
+ - Being active and good health is the most important beauty regime because that will affect you for the rest of your life.
+ - I’m not really single. I mean I am, but i have a son. Being a single mother is different from being a single woman.
+ - I wouldn’t be honest if I didn’t say my mom. Apart from the fact that she’s my mother, she’s a brilliant comedian and a force as a producer. She paved the way for women to produce and star in their own films, and to balance that with being the matriarch of our family is really inspiring.
+ - I’m pretty comfortable with my body. I’m imperfect. The imperfections are there. People are going to see them, but I take the view you only live once.
+ - No matter how far you take it with your friends, whether you’re fighting with them or you hate them for two months, you just really need them, because they’re the ones who teach you the most about yourself.
+ - Honesty will never break you.
+ - Nobody can tell you to do things a way that you don’t want to do them. Nobody can say really what’s right or what’s wrong. It’s like some people don’t feed their children meat. Some people do. It’s a crazy world.
+ - I always thought my mother was so damn cute!
+ - I smoke, isn’t that terrible?
+ - You have to know what you need. You need someone who’s going to really push you hard. But they also need to understand that, emotionally, sometimes today’s not the day to push so hard.
+ - I think for all the women who are working parents it’s difficult to balance your work-life and your home-life. You make obvious sacrifices because you really just want to be with your family.
+ - I don’t know if people really want to know how I feel about drugs. I’m not such a stickler. I believe you can choose to live your life any way you want.
+ - I grew up dancing, and my ballet teacher was literally a drill sergeant; she was so strict and so scary. And it made me a better dancer.
+ - You have people who can’t act and they get all these parts. Paris Hilton falls into her own category. She’s made a career out of it.
+ - I’ve had friends who’ve lied to me, I’ve had friends who’ve done things behind my back, I’ve had people steal from me – and it doesn’t stop me from trusting.
+ - Only in failure do you reach success. You can only get to the good stuff when you’ve done the hard stuff.
+ - I try to give everyone options because no matter what you think you’re going to wear, what you actually put on depends totally on how you feel.
+ - If I think about my life, I’m not reluctant about taking chances. I’m definitely not reluctant about relationships.
+ - I gained 60 pounds, and I’m proud of it. Why do I need to watch my weight when I’m pregnant? I could eat whatever the hell I want to eat.
+ - Never worry about bad press. All that matters is if they spell your name right.
+ - The reason I trust so much is that I don’t feel like I have anything to hide. If somebody betrays that trust, it could never be so bad, because I don’t keep any secrets.
+ - I do think that there is an innocence to people who are searching for things. It’s a beautiful thing when you leave yourself vulnerable to discover anything and everything.
+ - The American Dream is a romantic notion but it’s newer – not as pretty. You go to Europe, and it says something about the type of person you are. You’re in search of something more intimate and more about yourself.
+ - I’m working 18 hour days and I’m feeling guilty not being able to be there when all those times I want to be mother.
+ - I have a big, flamboyant, open personality, which I think is why people may be saying these nice things about me.
+ - I realized that my skin was always the best when I had only been cleaning it, I hadn’t been moisturizing that much and I hadn’t been going to a facialist.
+ - Just as it takes work to be in a relationship, so it takes work to not be in a relationship.
+ - Obsession is such a naughty word – it’s a very intense word. I’m obsessed with music, always have been. I can’t lie. And I’m obviously obsessed with my child, my child’s life and the little things that he does.
+ - I’m not interested in being fearful. I’m not a good flyer, but that doesn’t stop me.
+ - I’d like to be able to experience things. That’s the best thing for my work – to be somebody who does get to travel and observe people.
+ - I have always been fiery; I go after things. But what I learned from my mother is to step back and actually experience things that are happening. So for me, it’s about meditating. My Everest is to have that become a real part of my life.
+ - I talked to ex-wives of musicians of the ’70s for research. They’re the funniest people in the world, yet there is this sad, beautiful thing in their eyes that says they’ve seen more than they could ever possibly tell you.
+ - I think that, like anything, people take their image and what they want somebody else to be and then people just run with it. And when you really know the person and really love the person, you recognize that that person is nothing like that.
+ - I went on countless auditions. I begged my parents until I finally was allowed to be in a theatrical play when I was 13. It was the most important thing in my life.
+ - I’m not afraid of heights. I rock climb. I can repel off the side of a building.
+ - I got so much advice; I just started tuning it out. If one more person told me what I had to do when the baby comes, I was going to shoot ’em.
+ - I slather Egyptian Magic cream all over my face on overnight flights to keep my skin hydrated.
+ - For an everyday makeup look, I usually use Almay’s CC cream, then concealer, bronzer and maybe a bit of mascara. The whole thing takes me ten minutes. I apply everything with my hands and blend like crazy.
+ - You don’t wear stuff for other people; you’ve got to wear it for yourself.
+ - If it’s a big hit, fantastic. If it’s not, then it’s not. I don’t worry about my work.
+ - To do high fashion, you have to go into a little bit of a higher price point.
+ - Your children teach you so much. It’s a real mirror of yourself.
+ - Somebody can become a celebrity for being stupid. That is what it’s turned into.
+ - I auditioned on my own. I tried to make a mark for myself without anybody’s help, not even Mom’s.
+ - I have never done a thriller, and it will just be really fun for me to heave and pant and run and climb and break windows and scream every once in a while.
+ - I did not like leaving them when they were little or big. You have to have priorities regarding what you will allow to take you away from your kid.
+ - I don’t like working out with lots of makeup because I don’t like it getting into my pores.
+ - When you’re nursing and you’re working 18-hour days, that’s pretty hard.
+ - I’m not a big fan of romantic comedies, believe it or not.
+ - Do you know what a blessing it is to make movies that make people happy?
+ - The happier I am, the better my skin is. Any woman knows when they are over exerting themselves, whether it is emotionally or physically, you can see it on your face.
+ - When you see something, you are supposed to tell the energy what year it is and that they don’t belong there.
+
+53 quotes

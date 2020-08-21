@@ -1,0 +1,21 @@
+ - The moment we believe that success is determined by an ingrained level of ability as opposed to resilience and hard work, we will be brittle in the face of adversity.
+ - I believe an appreciation for simplicity, the everyday – the ability to dive deeply into the banal and discover life’s hidden richness – is where success, let alone happiness, emerges.
+ - We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities.
+ - It is rarely a mysterious technique that drives us to the top, but rather a profound mastery of what may well be a basic skill set.
+ - The key to pursuing excellence is to embrace an organic, long-term learning process, and not to live in a shell of static, safe mediocrity. Usually, growth comes at the expense of previous comfort or safety.
+ - Just about every error has a technical and psychological component: get good at discovering those connections.
+ - Not only do we have to be good at waiting, we have to love it. Because waiting is not waiting, it is life.
+ - My coach and my parents both had this relationship to what I was doing, which was allowing me to express myself with chess. And so I could love it. I had a passion for it. I was expressing myself through chess, and I was learning about myself through chess.
+ - One of the main focuses of my training sessions is to help individuals find their unique voices in the learning process. We all have our strengths, our weaknesses, our styles of learning, our personalities. Developing introspective sensitivity to these issues is critical to long-term success.
+ - In chess you might find a good move. Then you might find a better move. But take your time. Find the best move.
+ - At the very core of my relationship to learning is the idea that we should be as organic as possible. We need to cultivate a deeply refined introspective sense, and build our relationship to learning around our nuance of character.
+ - In America, people focus on the end result; they focus on the star.
+ - Maybe it’s better not to be the best. Then you can lose and it’s OK.
+ - Of course the sad truth is that if we are not present to the moment, our true love could come and go and we wouldn’t even notice.
+ - Our minds are all different and I believe cultivating a keen introspective sensitivity is absolutely essential in discovering our potential.
+ - I tend not to dwell on the parallels between chess and business, chess and the martial arts, or any two things for that matter, because the truth is that all pursuits are connected if we gain an eye for the thematic links.
+ - Very gifted people, they win and they win, and they are told that they win because they are a winner. That seems like a positive thing to tell children, but ultimately, what that means is when they lose, it must make them a loser.
+ - One thing about the business and investing world that I connect to very intimately is that there is little room to deny the harsh realities of your mistakes. A bad call can lose you many millions.
+ - I have never considered myself a prodigy. Others have used that term, but I never bought in to it.
+
+19 quotes

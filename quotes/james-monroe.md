@@ -1,0 +1,40 @@
+ - In a representative republic, the education of our children must be of the utmost importance!
+ - We must support our rights or lose our character, and with it, perhaps, our liberties.
+ - History has shown that at least one-half of every century is consumed in war.
+ - Peace is the best time for improvement and preparation of every kind; it is in peace that our commerce flourishes most, that taxes are most easily paid, and that the revenue is most productive.
+ - The mention of Greece fills the mind with the most exalted sentiments and arouses in our bosoms the best feelings of which our nature is capable.
+ - A free, virtuous, and enlightened people must know full well the great principles and causes upon which their happiness depends.
+ - There is every reason to believe that our system will soon attain the highest degree of perfection of which human institutions are capable.
+ - It is better to spread trust all around than to hand out money!
+ - The right of self-defense never ceases. It is among the most sacred, and alike necessary to nations and to individuals.
+ - I have great satisfaction in stating that our relations with France, Russia, and other powers continue on the most friendly basis.
+ - The emigrants although of different parties and different religious sects all flew from persecution in pursuit of liberty.
+ - The civil war which has so long prevailed between Spain and the Provinces in South America still continues, without any prospect of its speedy termination.
+ - The liberty, prosperity, and the happiness of our country will always be the object of my most fervent prayers to the Supreme Author of All Good.
+ - A little flattery will support a man through great fatigue.
+ - National honor is the national property of the highest value.
+ - I regret that I should leave this world without again beholding him.
+ - Preparation for war is a constant stimulus to suspicion and ill will.
+ - Let us by wise and constitutional measures promote intelligence among the people as the best means of preserving our liberties.
+ - Our country may be likened to a new house. We lack many things, but we possess the most precious of all – liberty!
+ - While we assert for ourselves a freedom to embrace, to profess, and to observe, the Religion which we believe to be of divine origin, we cannot deny an equal freedom to them whose minds have not yielded to the evidence which has convinced us.
+ - The best form of government is that which is most likely to prevent the greatest sum of evil.
+ - If America wants concessions, she must fight for them. We must purchase our power with our blood.
+ - The earth was given to mankind to support the greatest number of which it is capable, and no tribe or people have a right to withhold from the wants of others more than is necessary for their own support and comfort.
+ - If it was wise, manly, and patriotic for us to establish a free government, it is equally wise to attend to the necessary means of its preservation.
+ - It is only when the people become ignorant and corrupt, when they degenerate into a populace, that they are incapable of exercising their sovereignty.
+ - The movements of a great nation are connected in all their parts. If errors have been committed they ought to be corrected; if the policy is sound it ought to be supported.
+ - There is a price tag on human liberty. That price is the willingness to assume the responsibilities of being free men. Payment of this price is a personal matter with each of us.
+ - In wars of the European powers in matters relating to themselves we have never taken any part, nor does it comport with our policy so to do.
+ - The American continents, by the free and independent condition by which they have assumed and maintained, are henceforth not to be considered as subjects for future colonization by any European powers.
+ - Our relations with the other powers of Europe have experienced no essential change since the last session.
+ - I enter on the trust to which I have been called by the suffrage of my fellow-citizens with my fervent prayers to the Almighty that He will be graciously pleased to continue to us that protect which He has already so conspicuously displayed in our favor.
+ - To impose taxes when the public exigencies require them is an obligation of the most sacred character, especially with a free people.
+ - The great increase of our population throughout the Union will alone produce an important effect, and in no quarter will it be so sensibly felt as in those in contemplation.
+ - At no period of our political existence had we so much cause to felicitate ourselves at the prosperous and happy condition of our country.
+ - From several of the Indian tribes inhabiting the country bordering on Lake Erie purchases have been made of lands on conditions very favorable to the United States, and, as it is presumed, not less so to the tribes themselves.
+ - If we look to the history of other nations, ancient or modern, we find no example of a growth so rapid, so gigantic, of a people so prosperous and happy.
+ - The payments which have been made into the Treasury show the very productive state of the public revenue.
+ - By the last returns to the Department of War the militia force of the several States may be estimated at 800,000 men – infantry, artillery, and cavalry.
+
+38 quotes

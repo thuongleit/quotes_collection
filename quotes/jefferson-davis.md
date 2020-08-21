@@ -1,0 +1,42 @@
+ - The past is dead; let it bury its dead, its hopes and its aspirations; before you lies the future-a future full of golden promise.
+ - Truth crushed to earth is truth still and like a seed will rise again.
+ - Be not haughty with the humble; be not humble with the haughty.
+ - A question settled by violence, or in disregard of law, must remain unsettled forever.
+ - African slavery, as it exists in the United States, is a moral, a social, and a political blessing.
+ - Vicksburg is the nail head that holds the South’s two halves together.
+ - Truthfulness is a cornerstone in character, and if it be not firmly laid in youth, there will ever after be a weak spot in the foundation.
+ - The troops of other states have their reputation to gain, the sons of the Alamo have theirs to maintain.
+ - All we ask is to be let alone.
+ - Obstacles may retard, but they cannot long prevent the progress of a movement sanctified by its justice, and sustained by a virtuous people .
+ - Our government is an agency of delegated and strictly limited powers. Its founders did not look to its preservation by force; but the chain they wove to bind these States together was one of love and mutual good offices...
+ - It was one of the compromises of the Constitution that the slave property in the Southern States should be recognized as property throughout the United States.
+ - The Slave must be made fit for his freedom by education and discipline, and thus made unfit for slavery. And as soon as he becomes unfit for slavery, the master will no longer desire to hold him as a slave.
+ - Let men not ask what the law requires, but give whatever freedom demands.
+ - It is our duty to keep the memory of our heroes green. Yet they belong to the whole country; they belong to America.
+ - Lay aside all rancor, all bitter sectional feeling, and to make your places in the ranks of those who will bring about a consummation devoutly to be wished – a reunited country.
+ - The principle for which we contend is bound to reassert itself, though it may be at another time and in another form.
+ - If slavery be a sin, it is not yours. It does not rest on your action for its origin, on your consent for its existence. It is a common law right to property in the service of man; its origin was Divine decree.
+ - Nothing fills me with deeper sadness than to see a Southerner apologizing for the defense we made of our inheritance.
+ - Governments rest on the consent of the governed, and that it is the right of the people to alter or abolish them at will whenever they become destructive of the ends for which they were established.
+ - Upon my weary heart was showered smiles, plaudits and flowers, but beyond them I saw troubles and thorns innumerable.
+ - The contest is not over, the strife is not ended. It has only entered upon a new and enlarged arena.
+ - If the Confederacy fails, there should be written on its tombstone: Died of a Theory.
+ - It is a duty we owe to posterity to see that our children shall know the virtues, and rise worthy of their sires.
+ - Our armies were in as much chaos in victory as theirs in defeat.
+ - God forbid that the day should ever come when to be true to my constituents is to be hostile to the Union.
+ - For an enemy so relentless in the war for our subjugation, we could not be expected to mourn; yet, in view of its political consequences, it could not be regarded otherwise than as a great misfortune for the South.
+ - At Rest An American Soldier And Defender of the Constitution.
+ - Neither current events nor history show that the majority rule, or ever did rule.
+ - Butler is branded a felon, an outlaw, an enemy of Mankind, and so ordered that in the event of his capture, the officer in command of the capturing force do cause him to be immediately executed by hanging.
+ - How idle is this prating about natural rights as though still containing all that had been forfeited.
+ - It is not differences of opinion; it is geographical lines, rivers, and mountains which divide State from State, and make different nations of mankind.
+ - A restitution of the Union has been rendered forever impossible.
+ - We protest solemnly in the face of mankind, that we desire peace at any sacrifice, save that of honor.
+ - The authors of all our misfortune.
+ - If you will not have it thus: if in the pride of power, if in contempt of reason and reliance upon force, you say we shall not go, but shall remain as subjects to you, then, gentlemen of the North, a war is to be inaugurated the like of which men have not seen...
+ - I worked night and day for twelve years to prevent the war, but I could not. The North was mad and blind, would not let us govern ourselves, and so the war came.
+ - The time for compromise has now passed, and the South is determined to maintain her position, and make all who oppose her smell Southern powder and feel Southern steel.
+ - Tradition usually rests upon something which men did know; history is often the manufacture of the mere liar.
+ - Pray excuse me. I cannot take it.
+
+40 quotes

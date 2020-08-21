@@ -1,0 +1,53 @@
+ - I am tired of hustling.
+ - I don’t make enemies, it’s just I’m not afraid to speak my mind, which can sometimes mean people don’t like what I am saying.
+ - If you enjoy what you do, don’t be afraid of expressing your enthusiasm. Enjoyment is infectious.
+ - I have principles and I am not going to be forced to compromise them.
+ - I like to be a very fair person.
+ - I’m a commercial person, not an academic.
+ - Once you decide to work for yourself, you never go back to work for somebody else.
+ - I’m an Englishman. What more can I say?
+ - The entrepreneurial instinct is in you. You can’t learn it, you can’t buy it, you can’t put it in a bottle. It’s just there and it comes out.
+ - Not everybody needs to go to university; they can get out and start working straight away.
+ - I have no patience at all.
+ - You can’t stop people printing what they want to print.
+ - There are two fools in every marketplace; one asks too little, one asks too much.
+ - A good leader is not necessarily the most popular person in their business, but the best ones are liked because they are respected for their clarity and vision.
+ - Success comes more quickly to the entrepreneur that follows his instincts rather than following the progress of his competitors.
+ - I am not looking for a friend; if I want a friend I’d buy a dog.
+ - Above all, in order to gain respect, you need to be true to yourself. There is no point in trying to be brutal if it’s not in your nature; there is no point in trying to be suave and sophisticated if it doesn’t come naturally.
+ - Well, there’s nothing I’ve done I’m not proud of. Making money was an interest, but it’s never been my god.
+ - I know you’re Belgian, that’s where those waffles come from.
+ - Effective leadership is about earning respect, and it’s also about personality and charisma.
+ - Nobody can honestly say that they never lie.
+ - My idea of government support was, you supply me with hospitals, schools and the environment to do well and that will do me fine. But do not poke your nose in my business.
+ - Money is all right but once you have it you learn it’s not the be all and end all.
+ - Don’t try to blame the rest of the world. The blame only lies with you. Recognize that immediately.
+ - I’ve written books on advertising-cheque books.
+ - The boring side of business is what makes it work.
+ - If you lock me in the room with a piano teacher for a year I might be able to knock out a rendition of ‘Roll Out The Barrel,’ but will I ever be a concert pianist? No.
+ - There is a lot of luck in football. Following England is like following Wycombe Wanders or Leyton Orient. You hope for the best and hope you are lucky.
+ - During negotiations nothing is gained by attacking people’s comfort zones.
+ - An entrepreneur is not what you call yourself, it’s what someone calls you in recognition of what you’ve achieved. I call Richard Branson an entrepreneur. Rupert Murdoch called me one. Anybody who stands up and says: ‘I’m an entrepreneur’ needs shooting. You’ll drive people crazy.
+ - Start small and with your own money.
+ - I’ve just got an exceptional memory, if I say so myself.
+ - In America, everybody thinks they’re an entrepreneur. That’s the problem. It’s not a title that anybody should call oneself.
+ - There’s a lot of regrets about last year – maybe turning up was the biggest regret about it.
+ - I got on a high believing everything I would produce was going to sell at the rate I wanted.
+ - I get angry when people bring derisory actions against me.
+ - I don’t believe in God and all that. But I am Jewish, and very proud to be so, very proud of the culture.
+ - My mother was a housewife. My father was a garment worker.
+ - My history of lending money from banks is that they want to know the ins and outs of the backside of a duck.
+ - There was a desire to see me being nasty and horrible, and of course that’s not really me.
+ - It is torment to be segregated out because of some bit of clothing that you’re wearing.
+ - If there was a market in mass-produced portable nuclear weapons, we’d market them, too.
+ - It will take a brave person to cull the benefits system and analyse who deserves and who doesn’t.
+ - I don’t like paying 50 per cent of tax.
+ - I did not come into football to make money. I had already made millions.
+ - Look, I’m a member of the House of Lords and I’m the first to admit that I don’t understand how one gets new laws through.
+ - I find it strange that Gisela Gschaider a 1974 immigrant from Germany is on the brexit panel telling us British what we should do .
+ - I like things in their proper places.
+ - I don’t like this young crudeness now which is supposed to be comedy on Friday nights.
+ - I never experienced any feelings of closeness and caring from my parents.
+ - Market leaders inevitably slip into decline when they tell the people what they want instead of giving the people what they want.
+
+51 quotes

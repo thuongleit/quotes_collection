@@ -1,0 +1,72 @@
+ - Sharing knowledge is the most fundamental act of friendship. Because it is a way you can give something without loosing something.
+ - Think ‘free speech,’ not ‘free beer.’
+ - Programming is not a science. Programming is a craft.
+ - Free software’ is a matter of liberty, not price. To understand the concept, you should think of ‘free’ as in ‘free speech,’ not as in ‘free beer’.
+ - Facebook is not your friend, it is a surveillance engine.
+ - Idiots can be defeated but they never admit it.
+ - I did write some code in Java once, but that was the island in Indonesia.
+ - I have met bright students in computer science who have never seen the source code of a large program. They may be good at writing small programs, but they can’t begin to learn the different skills of writing large ones if they can’t see how others have done it.
+ - Open source is a development methodology; free software is a social movement.
+ - There is no system but GNU and Linux is one of it’s kernels.
+ - Playfully doing something difficult, whether useful or not, that is hacking.
+ - I’m always happy when I’m protesting.
+ - If the users don’t control the program, the program controls the users. With proprietary software, there is always some entity, the “owner” of the program, that controls the program and through it, exercises power over its users. A nonfree program is a yoke, an instrument of unjust power.
+ - To be able to choose between proprietary software packages is to be able to choose your master. Freedom means not having a master. And in the area of computing, freedom means not using proprietary software.
+ - Giving the Linus Torvalds Award to the Free Software Foundation is a bit like giving the Han Solo Award to the Rebel Alliance.
+ - If you want to accomplish something in the world, idealism is not enough – you need to choose a method that works to achieve the goal.
+ - Anything that prevents you from being friendly, a good neighbour, is a terror tactic.
+ - The idea that laws decide what is right or wrong is mistaken in general. Laws are, at their best, an attempt to achieve justice; to say that laws define justice or ethical conduct is turning things upside down.
+ - Paying isn’t wrong, and being paid isn’t wrong. Trampling other people’s freedom and community is wrong, so the free software movement aims to put an end to it, at least in the area of software.
+ - I could have made money this way, and perhaps amused myself writing code. But I knew that at the end of my career, I would look back on years of building walls to divide people, and feel I had spent my life making the world a worse place.
+ - The Adobe flash plug-in is non-free software, and people should not install it, or suggest installing it, or even tell people it exists.
+ - Free software is software that respects your freedom and the social solidarity of your community. So it’s free as in freedom.
+ - You can use any editor you want, but remember that vi vi vi is the text editor of the beast.
+ - The GNU GPL was not designed to be “open source”.
+ - Sharing is good, and with digital technology, sharing is easy.
+ - People sometimes ask me if it is a sin in the Church of Emacs to use vi. Using a free version of vi is not a sin; it is a penance. So happy hacking.
+ - GNU, which stands for Gnu’s Not Unix, is the name for the complete Unix-compatible software system which I am writing so that I can give it away free to everyone who can use it.
+ - A commune is where people join together to share their lack of wealth.
+ - I suppose many people will continue moving towards careless computing, because there’s a sucker born every minute.
+ - Globalizing a bad thing makes it worse. But globalizing a good thing is usually good.
+ - Laws that oppress people have no moral authority.
+ - One reason you should not use web applications to do your computing is that you lose control.
+ - Snow is so beautiful, it doesn’t have to be useful.
+ - While corporations dominate society and write the laws, each advance in technology is an opening for them to further restrict its users.
+ - Once GNU is written, everyone will be able to obtain good system software free, just like air.
+ - So, make a real effort to avoid getting sucked into all the expensive lifestyle habits of typical Americans. Because if you do that, then people with the money will dictate what you do with your life.
+ - Geeks like to think that they can ignore politics, you can leave politics alone, but politics won’t leave you alone.
+ - It doesn’t take special talents to reproduce – even plants can do it. On the other hand, contributing to a program like Emacs takes real skill. That is really something to be proud of. It helps more people, too.
+ - The principal lesson of Emacs is that a language for extensions should not be a mere “extension language”. It should be a real programming language, designed for writing and maintaining substantial programs. Because people will want to do that!
+ - I never imagined that the Free Software Movement would spawn a watered-down alternative, the Open Source Movement, which would become so well-known that people would ask me questions about ‘open source’ thinking that I work under that banner.
+ - If programmers deserve to be rewarded for creating innovative programs, by the same token they deserve to be punished if they restrict the use of these programs.
+ - I consider that the Golden Rule requires that if I like a program I must share it with other people who like it. Software sellers want to divide the users and conquer them, making each user agree not to share with others. I refuse to break solidarity with other users in this way.
+ - Whether gods exist or not, there is no way to get absolute certainty about ethics. Without absolute certainty, what do we do? We do the best we can.
+ - People get the government their behavior deserves. People deserve better than that.
+ - I have not seen anyone assume that all the citizens of New York are guilty of murder, violence, robbery, perjury, or writing proprietary software.
+ - Fighting patents one by one will never eliminate the danger of software patents, any more than swatting mosquitoes will eliminate malaria.
+ - In terms of effect on the world, it’s very good that I’ve lived. And so I guess, if I could go back in time and prevent my birth, I wouldn’t do it. But I sure wish I hadn’t had so much pain.
+ - Writing non-free software is not an ethically legitimate activity, so if people who do this run into trouble, that’s good! All businesses based on non-free software ought to fail, and the sooner the better.
+ - Creativity can be a social contribution, but only in so far as society is free to use the results.
+ - Copying all or parts of a program is as natural to a programmer as breathing, and as productive. It ought to be as free.
+ - All governments should be pressured to correct their abuses of human rights.
+ - We need to teach people to refuse to install non-free plug-ins; we need to teach people to care more about their long-term interest of freedom than their immediate desire to view a particular site.
+ - Odious ideas are not entitled to hide from criticism behind the human shield of their believers feelings.
+ - I’m the last survivor of a dead culture. And I don’t really belong in the world anymore. And in some ways I feel I ought to be dead.
+ - Steve Jobs, the pioneer of the computer as a jail made cool, designed to sever fools from their freedom, has died.
+ - The paradigm of competition is a race: by rewarding the winner, we encourage everyone to run faster. When capitalism really works this way, it does a good job; but its defenders are wrong in assuming it always works this way.
+ - Without absolute certainty, what do we do? We do the best we can. Injustice is happening now; suffering is happening now. We have choices to make now. To insist on absolute certainty before starting to apply ethics to life decisions is a way of choosing to be amoral.
+ - Android is a major step towards an ethical, user-controlled, free-software portable phone, but there is a long way to go.
+ - Somebody is saying this is inevitable – and whenever you hear somebody saying that, it’s very likely to be a set of businesses campaigning to make it true.
+ - I figure that since proprietary software developers use copyright to stop us from sharing, we cooperators can use copyright to give other cooperators an advantage of their own: they can use our code.
+ - Also, because schools must teach the spirit of goodwill, the habit of helping others around you, every class should have this rule: students, if you bring software to class you may not keep it for yourself.
+ - I’m trying to change the way people approach knowledge and information in general. I think that to try to own knowledge, to try to control whether people are allowed to use it, or to try to stop other people from sharing it, is sabotage.
+ - Today many people are switching to free software for purely practical reasons. That is good, as far as it goes, but that isn’t all we need to do! Attracting users to free software is not the whole job, just the first step.
+ - If in my lifetime the problem of non-free software is solved, I could perhaps relax and write software again. But I might instead try to help deal with the world’s larger problems. Standing up to an evil system is exhilarating, and now I have a taste for it.
+ - Prior art is as effective as US soldiers in Iraq: They control the ground they stand on, and nothing more. I used to say Vietnam, but, well, you know...
+ - Control over the use of one’s ideas really constitutes control over other people’s lives; and it is usually used to make their lives more difficult.
+ - The desire to be rewarded for one’s creativity does not justify depriving the world in general of all or part of that creativity.
+ - No person, no idea, and no religion deserves to be illegal to insult, not even the Church of Emacs.
+ - My favorite programming languages are Lisp and C. However, since around 1992 I have worked mainly on free software activism, which means I am too busy to do much programming. Around 2008 I stopped doing programming projects.
+ - Because I don’t believe that it’s really desirable to have security on a computer, I shouldn’t be willing to help uphold the security regime.
+
+70 quotes

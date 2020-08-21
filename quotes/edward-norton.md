@@ -1,0 +1,118 @@
+ - Life, like poker has an element of risk. It shouldn’t be avoided. It should be faced.
+ - The more you do your homework, the more you’re free to be intuitive. But you’ve got to put the work in.
+ - As we say in the sewer, time and tide wait for no man.
+ - Popularity is the slutty little cousin of prestige, my friend.
+ - Sometimes creativity is a compulsion, not an ambition.
+ - Sometimes we don’t see certain things until we’re ready to see them in a certain way.
+ - As we say in the sewer, if you’re not prepared to go all the way, don’t put your boots on in the first place.
+ - My generation is having its midlife crisis in its 20s.
+ - I’ve always thought of acting as more of an exercise in empathy, which is not to be confused with sympathy. You’re trying to get inside a certain emotional reality or motivational reality and try to figure out what that’s about so you can represent it.
+ - I don’t smoke and I don’t want to smoke. I am not a fan of gratuitous smoking in films.
+ - I just like working with smart people.
+ - See, I don’t get the sense that you need to direct at all. Sometimes I get the opposite sensation from you, that you’re like, “I really should go do something else.” But then you are drawn back in by a particular story, like a hangnail in the brain.
+ - I almost forgot what it’s like to be proud of my government.
+ - I don’t think you should sit around and wait for people to give you an opportunity to express yourself or do your work, or whatever. Actors have to be producers and writers have to be producers.
+ - The more you can create that magic bubble, that suspension of disbelief, for a while, the better.
+ - I don’t have anything to prove to anybody, which is a lovely place to be.
+ - People think because I went to Yale that that implies privilege, and it is a privilege in the sense that it’s an incredible opportunity.
+ - When people come together too young, they try to become one person. As you get older, you realize that you don’t want to become one person because then you lose the person you are.
+ - All people are paradoxical. No one is easily reducible, so I like characters who have contradictory impulses or shades of ambiguity. It’s fun, and it’s fun because it’s hard.
+ - As an actor, I don’t have any politics. As an actor, I’m driven more by an authentic – I would say an obsessive-compulsive-disorder level-fixation on mimicry, tonality of voice, to literally imitate something until I can just disappear into it.
+ - To cite my own alma mater, it’s shocking to me that Yale University can teach what it teaches at the Yale School of Environmental Studies and utterly fail to mirror those values in any way in its investment practices.
+ - It’s better for people to miss you than to have seen too much of you.
+ - I studied French forever, and when do I ever speak French? I clearly should have studied Spanish. I wish I had stuck with music, because that would still be great. I really wish I had learned to surf earlier in my life.
+ - I think that the environmental movement is wisely moving away from a largely emotion-based argument for the spiritual or intrinsic value of Nature with a capital “N” and evolving toward a very hard-nosed case for the economic value of natural capital, ecosystem services, biodiversity, etc.
+ - Anybody who is running a marathon or doing a walkathon, doing a fundraiser for their school, their company, by far it’s guaranteed the easiest and most fun way to quickly set up a fundraising campaign and send it around to your friends and family.
+ - The best films of any kind, narrative or documentary, provoke questions.
+ - Basically, I think 21st century conservation is moving toward preserving ecosystems by dealing with the needs of people.
+ - The Zionist Tulsa Jew who’s pugnacious is a reality. I grew up around it. And I think it’s really, really funny and surprising and unlikely.
+ - When I’m looking for Zen and I’m not saying this facetiously at all – I would really rather surf, scuba dive, or fly my plane. And, when I feel tension about the grind of work, it’s not getting the money to make films versus making films that constitutes the grind, it’s all this stuff.
+ - I thought Rounders was a comic movie in its way. First time I directed a movie, I wanted to do a comedy. I don’t like things that are superficially one thing or another, mainly. My favorite comedies are really smart, too, and have a lot of levels to them as well.
+ - Unpopular speech is absolutely vital to the health of our nation.
+ - If I ever have to stop taking the subway, I’m gonna have a heart attack.
+ - I don’t flatter myself – I’m not a scientist, I’m not a conservation expert.
+ - I’ve already spent a lot of my life doing what makes me go. There’s a life out there while I’m still young, able to move, able to just sit at peace in the water – I should be spending much more time doing that, rather than continuing to go through this artistic struggle.
+ - Identical twins are endemically alike in many ways.
+ - The deeper you go with the character, the more you see the layers start to peel away. It’s more challenging to me, but it’s also just interesting. Those are the things I like to watch. I like to watch the evolutions of something.
+ - My greatest hope is that we transcend the most fearful thing, which is that we are rapidly degrading the ecological systems on this planet that support everything we are doing and all life on it.
+ - I tend to have a kind of tunnel vision when I’m looking at an individual piece.
+ - I knew Danny DeVito and he knew me, so he wanted me to try Death to Smoochy. I loved that stuff and had a great time doing it.
+ - I always felt that acting was an escape, like having the secret key to every door and permission to go into any realm and soak it up. I enjoy that free pass.
+ - When you have a pipe salesman with a business called Macabee Pipes, I’d say you’ve got your tongue planted firmly in your cheek.
+ - I remember as a kid having the offer of a scholarship, that it was going to be like going to Mars, and deciding to stay in my public school.
+ - The incentive for business is not, and cannot, be anything other than the root incentive for all business: they must profit.
+ - I grow tired of intelligence having such a limited manifestation in movies – “intelligence” usually meaning coastal, with a certain level of formal education.
+ - You never make all things for all people and can’t always pander to the broadest denominator. I keep an eye toward doing the themes that interest me. Do they move me? Interest me? Make me think? When I run across something that is provocative in an unsettling way, it appeals to me.
+ - It’s ginned up by the corporate plutocracy as a way of distracting the working-class people that it’s screwing. We hamstring our own natural progressivism in this country, and that’s really stupid.
+ - Duality is not a story. Duality is just a complexity.
+ - There’s a lot of romanticisation of the intuitive actor and method acting and all kinds of notions about getting inside a character and coming out from there.
+ - I wish I were more musically gifted, more intuitive in playing instruments.
+ - There are tens of thousands of charities and hundreds of thousands, getting towards millions, of people now using it. And when I flip through it, I’m just blown away by people.
+ - Obviously plastics have served very important purposes and been incredibly convenient but as we begin to witness the long-term consequences of the chemical components leaching into our water and our bodies, we’re going to be forced to look for alternatives to how we package goods and food.
+ - Instead of telling the world what you’re eating for breakfast, you can use social networking to do something that’s meaningful.
+ - I grew up on the golden age of children’s TV.
+ - I’ve always liked the idea of taking old dramatic ideas and devices and making them feel relevant or contemporary or whatever.
+ - I had a huge advantage with Edward Norton because he’s directed a movie before, so one thing he appreciates is how hard my job is, he’s very sensitive to that. We actually ended up finishing “Leaves of Grass” a day early.
+ - I start to get fixated on a story and a character and an idea, and at a certain point, I really want to do it. It’s a compulsion to explore a specific thing, as opposed to a compulsion to direct, generally speaking.
+ - I have this embedded faith in the process through which films of a certain type get discovered on longer timelines.
+ - Every little thing that people know about you as a person impedes your ability to achieve that kind of terrific suspension of disbelief that happens when an audience goes with an actor and character he’s playing.
+ - I’m not a very methodologically pure actor. Almost every time that I start, I feel completely at sea. Always at the beginning I feel like a fraud, really, because I’m never sure how to get started.
+ - I never even considered comedy genre as something to embrace or move away from.
+ - People are worried about the degree to which corporate interest is starting to threaten human interest.
+ - The film industry needs to confront the physical footprint of the way films get made.
+ - I just don’t think most of us are aware how much of what we throw away ends up in the ocean, for starters. Plastic bags are among the worst. The US is actually falling behind the curve on that score. China and many other countries have already banned the production and use of thin plastic bags.
+ - Practiced poorly, tourism can be extremely negative.
+ - But work that’s got real substance does make people feel, “There’s someone else out there who relates to my experience, or who just helped me understand my own experience a little bit better.” And I think that’s still got enormous value.
+ - You know, independent films have been institutionalized, practically. Every studio has got a boutique arthouse label.
+ - I’ve observed over and over that people seem to get a much deeper sense of fulfillment out of something they’ve done as an act of service than out of the things they do for themselves.
+ - A lot of why I do something is just the novelty of the experience.
+ - You can do things in twin scenes now you couldn’t before. You can implement actual moving cameras.
+ - I’m a Tulsa Jew and I have a religious upbringing.
+ - I hear about actors being exterior actors and actors being instinctual actors and I always think it’s crap. Anybody who knows anything about it knows that good actors do both – they do inside-outward and they do outside-inward. You can’t not do both.
+ - I do subscribe to the maxim that generally comedy is like jazz. Either you get it or you don’t. You can’t learn it and you can’t be taught it. I don’t think that if you are not a funny person, you can fake it.
+ - People say you can’t make movies about your politics or the environment. And, generally speaking, I completely divide those sides of my brain.
+ - It must be good to be in Germany and France, because I have completely forgotten what it is like to be proud of your government.
+ - In drama, I think, the audience is a willing participant. It’s suspending a certain kind of disbelief to try to get something out of a story.
+ - You dream as an actor’s director of letting moments breathe through two-shots.
+ - Most of the movies that I’ve made that I really felt good about and cared about made very little money anyway, so I’m not particularly worried about people downloading and sharing them.
+ - If two people are at completely different stages in their spiritual life, that can present a real problem.
+ - Everyone keeps saying the western’s dead, but it’s not.
+ - People wrestle sometimes making movies, and I think that conflict is a very essential thing. I think a lot of very happy productions have produced a lot of very banal movies.
+ - The thing I’m absolutely convinced of, no matter how crazy – technological the world is getting, is that people feel more connected through the good works. Entertainment, and the sort of soporific effect it has on people and their stress, is one thing.
+ - No, I’m not a very methodologically pure actor.
+ - If I’m trying to put size on for a role, then I don’t do much running.
+ - Young people know how to use these social networking tools, and they know how to use them effectively.
+ - I think the consensus among our generation and people younger than us is that we do have a defining challenge in the moment, so I do like being involved in something bigger than the finger-doodling I do in art. It stimulates your brain in certain ways.
+ - When I think about directing a film, the thing that stops me short is wondering if I’m a natural at it the way I think you, and PTA, and Fincher are born directors. Maybe some people’s talent is in understanding the ways that film communicates, without dialogue, without plot.
+ - You can’t control everything that comes to you.
+ - On the downside, to paraphrase Thom Yorke talking about the music business, we’re still having to deal with the stench of the last fart of the dying corpse of this regressive vision that America is a white, middle-aged, male, conservative country.
+ - I’m not particularly precious about the theatrical experience any more.
+ - With Edward Norton you’d never say, “This is the one we’re going with whether you like it or not.” It has to be agreed upon.
+ - I’m pretty busy in my life and I’m very aware of what it takes to direct a movie. It takes a lot out of you; it takes a lot out of the rest of your life, from other people in your life. I don’t lie around hungering for that consumption very often.
+ - Most of what I know about environmental conservation I learned from my father, who has been a leader within the movement for over 30 years.
+ - You know when somebody really knows what they’re drawing from and you can feel it when you see the movie.
+ - When you’re working on a creative thing, everyone has an idea, and they’re pushing it. The first time you work with anybody, you have to get comfortable with the way another person pushes hard for what they want.
+ - If you try to make interesting films, you’re going to be disappointed most of the time. I choose just not to look at it that way.
+ - Sometimes their oppression of emotion and the weird way it comes out is more interesting than painting it in bold primary colors.
+ - You always end up getting involved in things because of, you know, the strange things your life brings you into contact with.
+ - I read a lot of scripts and so many are clearly a knockoff of one familiar genre or another.
+ - At this point in my life I’m not bent on proving anything, really.
+ - Look, you’ve got a generation of people coming along who are going to form their own new relationship with the idea of supporting the causes that they care about or changing the world. And these people are not going to do it the way our parents do it.
+ - Making really great music, making really great films, writing great books is an antidote to all of that. And, as people, as artists, some of the massive disruption that technology is causing is so exciting, the way that people can share creativity now.
+ - I think we really feel like Crowdrise could be something that, 20 years from now, people take for granted because that’s just how you do it, like if you’re going to raise money for something, that’s how you do it.
+ - I do find myself drawn more to pieces that I feel are wrestling with the way that we’re living now, what we’re all going through.
+ - Screenplays aren’t written to be read, they’re written to be made into movies.
+ - I like it when the deeper you go with the character, the more you see the layers start to peel away.
+ - I don’t get much out of doing a red carpet.
+ - I never think that a film should answer questions for you. I think it should make you ask a lot of questions.
+ - I tend to relate to a character in terms of the arc: what’s interesting is where he starts versus where he ends up.
+ - Just because you’ve made a couple movies, you’ve done some good movies, you’ve been nominated for some Academy Awards, whatever, nobody’s entitled. It’s a business. If they don’t see it, I can think they’re wrong, but I’m not entitled to a $15 million budget to make a film.
+ - It’s dismaying to see the unilateralism that the government is doing.
+ - There is a lot of interesting product coming to market already. Bags and bottles and cups and such made of potato starch and other fully biodegradable materials. In some sense, plastic is more chemically complex. We ought to be able to simplify.
+ - What has always been most interesting about acting to me personally is that it affords you the chance to shift gears, both in terms of the experiences you get to have through doing it, but also the different kinds of things you get to represent.
+ - I think technology is having a democratising effect on film.
+ - I’m a New Yorker, you know.
+ - Fame is very corrosive and you have to guard very strictly against it.
+ - If there’s a criteria that really gets me interested in a work besides any type of personal interaction with the theme, it’s if I feel like this is the right piece of work for that director at that moment in their career.
+
+116 quotes

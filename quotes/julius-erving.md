@@ -1,0 +1,64 @@
+ - Being a professional is doing the things you love to do, on the days you don’t feel like doing them.
+ - I firmly believe that respect is a lot more important, and a lot greater, than popularity.
+ - The key to success is to keep growing in all areas of life – mental, emotional, spiritual, as well as physical.
+ - I demand more from myself than anybody could ever expect.
+ - Attitude is altitude.
+ - To be an innovator, you can’t be worried about making mistakes.
+ - To be great we need to win games we aren’t supposed to win.
+ - And I continued to grow until I was 25 years old.
+ - If you don’t do what’s best for your body, you’re the one who comes up on the short end.
+ - I had to spend countless hours, above and beyond the basic time, to try and perfect the fundamentals.
+ - I came from a broken home, so my mom was a major influence in my life.
+ - It’s better to stay too long than to leave too soon.
+ - You can feel the vibes, feel the people pulling for you.
+ - Being a typical Pisces, I might have experienced mood shifts, but I don’t remember any depression, or needing to do anything, or to have someone bring me out of being depressed.
+ - Goals determine what you are going to be.
+ - I didn’t want to become a reserve player, or a bench player, and it was time to move on and take on another challenge.
+ - My mom is one of 14 children. She’s a great lady. She’s a Taurus. Has been a profound influence in my life, still is to this day. Born in meager surroundings in rural South Carolina.
+ - But you know, we have a very normal family. We’ve had our ups and downs. You know, we’ve had our issues, but we’ve had great cause for celebration.
+ - Teachers are sort of faced with a thankless task, because no matter how good they are, unless they find a way to personally rationalize the rewards of their effort, nobody else is really going to do it for them en masse.
+ - They are taking steps, but they are baby steps.
+ - When I went to Philadelphia I was 26 years old and really sitting on top of the world. Family life, a professional career, plenty of friends and associates, and a good reputation, a wish list that could be the envy of many.
+ - I think I started learning lessons about being a good person long before I ever knew what basketball was. And that starts in the home, it starts with the parental influence.
+ - I am very proud to be featured, especially when you consider the outstanding champions who have had this honor. It is great company to be in.
+ - So much of becoming a good athlete involves bringing other things to the table, other than physical skills. It involves intelligence, it involves many of the things that you learn during the process of being educated. How to analyze, how to assess, how to equate, how to reason.
+ - You know, we always tried to rationalize by saying you take the good, you take the upside, you got to deal with the downside, you’ve to take the downside.
+ - In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.
+ - If you’ve experienced having control, you don’t want to be moved to a subordinate position, if you have your druthers.
+ - I pulled the plug on it at a time that I thought was right for me to exit.
+ - When handling the ball, I always would look for daylight, wherever there was daylight.
+ - I always try to keep a pretty conservative demeanor on the court.
+ - I grabbed 19 rebounds in my first professional game, and somehow found a way to score 20 points. I felt real good about it. I felt that this was the beginning of something good.
+ - One of the most predictable things in life is there will be change. You are better off if you can have a say in the change. But you are ignorant or naive if you don’t think there will be change, whether you want it to or not.
+ - LA Clippers should come to Louisville.
+ - I live my life trying to never appear to be a small man.
+ - That was just my own personal program: I didn’t want to get too high over the good moments because I didn’t want to be saddened and depressed when things didn’t go as I had planned.
+ - Many people think sports are totally physical, that you don’t have to think, everything is done for you and you’re catered to, I found that to be so far removed from the truth that it’s almost a joke. The ones who become stars are the ones who have a head on their shoulders and know how to use it.
+ - I think that my God-given physical attributes, big hands, and big feet, the way that I’m built, proportion-wise, just made basketball the most inviting sport for me to play.
+ - I keep both eyes on my man. The basket hasn’t moved on me yet.
+ - If you get depressed about being the second-best team in the world, then you’ve got a problem.
+ - I wanted to undertake the challenge of daring to be great.
+ - When the crowd appreciates you, it encourages you to be a little more daring, I think.
+ - The biggest thing that I felt basketball could do for me was help me get a good education.
+ - One of the things in the back of my mind is that, after my sports experience, I never want to be, totally consumed by any one endeavor, other than my family life.
+ - If you do things with a certain type of result and cause a certain type of reaction or effect, then you increase your market value. It’s very much a competition for the entertainment dollar, and that’s never been more clearly evident than in today’s NBA game.
+ - Right up until the time I retired at age 37, I felt like there were still things that I could do better.
+ - When I played, the owners had the power. The prisoners are running the prison now, not the warden. The warden is strong and he has say so but, the balance of power is definitely with the players.
+ - I’ve always tried to tell myself that the work itself is the thing, that win, lose, or draw, the work is really what counts.
+ - One of the commitments that I personally have now is to a diverse approach to buying businesses, and the operation of those businesses.
+ - As a kid, I played a lot of one-on-none.
+ - The first professional game that I ever played remains, to me, the most exciting moment of my professional career.
+ - You know, just in terms of having to have a life on the road, you know, having the celebrity aspect be a burden for my family, friends and extended family.
+ - Every team that I’ve played on, I’ve either been the captain or co-captain.
+ - My role models in the business were the older guys on my team when I first got there: Gray Scott, Adrian Smith, Roland Taylor. These were the guys who took me under their wing, and really schooled me in terms of what the business was about.
+ - I think I was chosen by basketball, although I never really physically got drafted to any team that I played for.
+ - Because of the makeup of the NBA, it cannot afford for the public to turn on them.
+ - In a lot of areas of my life, particularly in my teenage years, I began to think about the world, and to think about the universe as being a part of my conscious everyday life.
+ - The ones who become stars or superstars are the ones who have a head on their shoulders and know how to use it.
+ - When I get a chance to power jump off both legs, I can lean, twist, change directions and decide whether to dunk the ball or pass it to an open man. In other words, I may be committed to the air, but I still have some control over it.
+ - I liked the game, I enjoyed the game, and the game fed me enough, and gave me enough rewards to reinforce that this is something that I should spend time doing, and that I could possibly make a priority in my life, versus other sports.
+ - With the crowds on your side, it’s easier to play up to your potential.
+ - I started playing professional basketball in 1971, and I played professionally for five seasons before going to Philadelphia.
+ - And from the first time I picked up a basketball at age eight – I had a lot of difficulty when I first picked up a basketball, because I was a scrub – there were things that I liked about it.
+
+62 quotes

@@ -1,0 +1,83 @@
+ - A drowning man will clutch at a straw.
+ - For if you suffer your people to be ill-educated, and their manners to be corrupted from their infancy, and then punish them for those crimes to which their first education disposed them, what else is to be concluded from this, but that you first make thieves and then punish them.
+ - You wouldn’t abandon ship in a storm just because you couldn’t control the winds.
+ - I die the king’s faithful servant, but God’s first.
+ - The things we pray for, good Lord, give us grace to labor for.
+ - Occupy your mind with good thoughts, or the enemy will fill them with bad ones.
+ - The heart that has truly loved never forgets.
+ - If honor were profitable, everybody would be honorable.
+ - A pretty face may be enough to catch a man, but it takes character and good nature to hold him.
+ - Lord, give me a sense of humor so that I may take some happiness from this life and share it with others.
+ - To gold and silver nature hath given no use that we may not well lack.
+ - What though youth gave love and roses, Age still leaves us friends and wine.
+ - I should only ever tell the king what he ought to do, not what he could do. For if the lion knows his own strength, no man could control him.
+ - If we lived in a state where virtue was profitable, common sense would make us saintly. But since we see that avarice, anger, pride and stupidity commonly profit far beyond charity, modesty, justice and thought, perhaps we must stand fast a little, even at the risk of being heroes.
+ - It’s wrong to deprive someone else of a pleasure so that you can enjoy one yourself, but to deprive yourself of a pleasure so that you can add to someone else’s enjoyment is an act of humanity by which you always gain more than you lose.
+ - I’d give the Devil benefit of law, for my own safety’s sake.
+ - Most people know nothing about learning; many despise it. Dummies reject as too hard whatever is not dumb.
+ - Whoever loveth me, loveth my hound.
+ - Friendship demands attention.
+ - We cannot go to heaven in featherbeds.
+ - See me safe up: for in my coming down, I can shift for myself.
+ - What is deferred is not avoided.
+ - Pride thinks it’s own happiness shines the brighter by comparing it with the misfortunes of others.
+ - If the lion knew his own strength, hard were it for any man to rule him.
+ - The times are never so bad but that a good man can make shift to live in them.
+ - Nobody owns anything but everyone is rich – for what greater wealth can there be than cheerfulness, peace of mind, and freedom from anxiety?
+ - I would uphold the law if for no other reason but to protect myself.
+ - One of the greatest problems of our time is that many are schooled but few are educated.
+ - An absolutely new idea is one of the rarest things known to man.
+ - No living creature is naturally greedy, except from fear of want – or in the case of human beings, from vanity, the notion that you’re better than people if you can display more superfluous property than they can.
+ - Nor can they understand why a totally useless substance like gold should now, all over the world, be considered far more important than human beings, who gave it such value as it has, purely for their own convenience.
+ - The way to heaven out of all places is of length and distance.
+ - Anyone who campaigns for public office becomes disqualified for holding any office at all.
+ - Your love has build me from strength to strength. It has made me a stronger and better person than I was. There is nothing that love cannot change darling. Once you fall in love, even wars turn to love stories.
+ - For men use, if they have an evil turn, to write it in marble; and whoso doth us a good turn we write it in dust.
+ - A man taking basil from a woman will love her always.
+ - The increasing influence of the Bible is marvelously great, penetrating everywhere. It carries with it a tremendous power of freedom and justice guided by a combined force of wisdom and goodness.
+ - It is part of the business of life to be affable and pleasing to those whom either nature, chance or circumstance has made our companions.
+ - Two evils, greed and faction are the destruction of all justice.
+ - As for rosemary, I let it run all over my garden walls, not only because my bees love it but because it is the herb sacred to remembrance and to friendship, whence a sprig of it hath a dumb language.
+ - There are dreadful punishments enacted against thieves, but it were much better to make such good provisions by which every man might be put in a method how to live, and so be preserved from the fatal necessity of stealing and of dying for it.
+ - Getting married is like putting one’s hand in a bag containing 99 serpents and one eel.
+ - Kindness and good nature unite men more effectually and with greater strength than any agreements whatsoever, since thereby the engagements of men’s hearts become stronger than the bond and obligation of words.
+ - Take something from yourself, to give to another, that is humane and gentle and never takes away as much comfort as it brings again.
+ - Food is an implement of magic, and only the most coldhearted rationalist could squeeze the juices of life out of it and make it bland. In a true sense, a cookbook is the best source of psychological advice and the kitchen the first choice of room for a therapy of the world.
+ - It is only natural, of course, that each man should think his own opinions best: the crow loves his fledgling, and the ape his cub.
+ - The Utopians feel that slaughtering our fellow creatures gradually destroys the sense of compassion, which is the finest sentiment of which our human nature is capable.
+ - By reason of gifts and bribes the offices be given to rich men, which should rather have been executed by wise men.
+ - By confronting us with irreducible mysteries that stretch our daily vision to include infinity, nature opens an inviting and guiding path toward a spiritual life.
+ - Because the soul has such deep roots in personal and social life and its values run so contrary to modern concerns, caring for the soul may well turn out to be a radical act, a challenge to accepted norms.
+ - One man to live in pleasure and wealth, whiles all other weap and smart for it, that is the part not of a king, but of a jailor.
+ - For when they see the people swarm into the streets, and daily wet to the skin with rain, and yet cannot persuade them to go out of the rain, they do keep themselves within their houses, seeing they cannot remedy the folly of the people.
+ - Instead of inflicting these horrible punishments, it would be far more to the point to provide everyone with some means of livelihood, so that nobody’s under the frightful necessity of becoming first a thief and then a corpse.
+ - He travels best that knows when to return.
+ - In the first place, most princes apply themselves to the arts of war, in which I have neither ability nor interest, instead of to the good arts of peace. They are generally more set on acquiring new kingdoms by hook or by crook than on governing well those that they already have.
+ - And peradventure we have more cause to thank Him for our loss than for our winning; for His wisdom better seeth what is good for us than we do ourselves.
+ - It is naturally given to all men to esteem their own inventions best.
+ - They have no lawyers among them, for they consider them as a sort of people whose profession it is to disguise matters.
+ - Oh! blame not the bard.
+ - Howbeit, this one thing, son, I assure you on my faith, that if the parties will at hands call for justice, then, all were it my father stood on the one side, and the devil on the other, his cause being good, the devil should have right.
+ - Yea, marry, now it is somewhat, for now it is rhyme; before, it was neither rhyme nor reason.
+ - Laws could be passed to keep the leader of a government from getting too much power.
+ - It is possible to live for the next life and still be merry in this.
+ - Our emotional symptoms are precious sources of life and individuality.
+ - What part soever you take upon you, play that as well as you can and make the best of it.
+ - It is a wise mans part, rather to avoid sickness, than to wish for medicines.
+ - The servant may not look to be in better case than his master.
+ - A good tale evil told were better untold, and an evil take well told need none other solicitor.
+ - Lawyers-a profession it is to disguise matters.
+ - Every tribulation which ever comes our way either is sent to be medicinal, if we will take it as such, or may become medicinal, if we will make it such, or is better than medicinal, unless we forsake it.
+ - They wonder much to hear that gold, which in itself is so useless a thing, should be everywhere so much esteemed, that even men for whom it was made, and by whom it has its value, should yet be thought of less value than it is.
+ - Everywhere do I percieve a certain conspiracy of rich men seeking their own advantage underthat name and pretext of commonwealth.
+ - It’s a poor doctor who can’t cure one disease without giving you another.
+ - No more like together than is chalke to coles.
+ - Those among them that have not received our religion do not fright any from it, and use none ill that goes over to it, so that all the while I was there one man was only punished on this occasion.
+ - The most part of all princes have more delight in warlike manners and feats of chivalry than in the good feats of peace.
+ - To love God, which was a thing far excelling all the cunning that is possible for us in this life to obtain.
+ - And it will fall out as in a complication of diseases, that by applying a remedy to one sore, you will provoke another; and that which removes the one ill symptom produces others.
+ - Every man has by the law of nature a right to such a waste portion of the earth as is necessary for his subsistence.
+ - Who does more earnestly long for a change than he who is uneasy in his present circumstances? And who run to create confusions with so desperate a boldness as those who have nothing to lose, hope to gain by them?
+ - There are several sorts of religions, not only in different parts of the island, but even in every town; some worshipping the sun, others the moon or one of the planets.
+
+81 quotes

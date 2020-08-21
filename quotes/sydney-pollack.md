@@ -1,0 +1,62 @@
+ - Editing feels almost like sculpting or a form of continuing the writing process.
+ - I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.
+ - I didn’t believe that I’d ever be lucky enough to be able to make a living as an actor.
+ - Reading a novel of a private experience, very, very different, the nature of it is very different.
+ - Relationship films are political. If a woman is sitting in a waiting room in an office and a man walks in and sits down, it’s a political situation. If he decides to smoke, does he ask her or does he just light up? If he lights up, what does she do? It’s politics.
+ - You mustn’t regret decisions that you make. Because the decisions are made out of your gut in a way and you have to stick with them.
+ - With a movie you’re creating from the beginning this particular work, let’s not call it work of art, because very few movies are works of art, let’s just call them bits of popular culture, whatever they are, sometimes very rarely by accident a movie becomes a work of art.
+ - When you spend your life acting and being other people, as opposed to being the one person that you are, you learn that life is gray sometimes, not black and white. That what you thought was true isn’t necessarily true if you switch sides.
+ - All films are political, whether they mean to be or not. Star Wars is political. As soon as you have conflict, which is the key to most films, you have politics. It’s just that some are more artful with the handling of politics than others.
+ - There isn’t any question that Hollywood is profit driven. Anybody that thinks it isn’t is a fool. It’s a business. Hollywood was never philanthropy. The only purpose it had was making money; the only purpose it still has is to make money.
+ - I mean, movies are like your kids or your fingers and toes or something, it’s pretty hard to pick favorites.
+ - Every film I’ve made has a kind of frustrated love story in the center of it. They were people who saw life from opposing points of view, which has been in every film I’ve ever done. It had all the ingredients of the kinds of films I like to do.
+ - I didn’t grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.
+ - OK, I know this is going to disgust you, Michael, but a lot of people are in this business to make money.
+ - I personally have never made a movie in Hollywood, because I don’t want to get up in my own bed and then go to the movie set, and then come home at night to my real life.
+ - Every single art form is involved in film, in a way.
+ - You don’t normally do another presentation of All About Eve. You do one All About Eve, and that’s it.
+ - I mean, the truth of the matter is, I like the failures as much as I like the successes, it’s only the world that doesn’t like the failures.
+ - When you work without a script, you are in a sense working in a much more improvisational way than when you are prepared totally.
+ - And I taught acting for years, and without knowing it that was the real thing that started bending me toward directing.
+ - We talked about Tootsie, the idea in Tootsie is that a man becomes a better man for having been a woman.
+ - Well, there’s no question that a good script is an absolutely essential, maybe the essential thing for a movie.
+ - If we were a primitive society, movie stars would be gods.
+ - No, I never went to college. Always regretted it, always envied people who did.
+ - I don’t consider myself a teacher of moral and political positions. I don’t want to be that. I can’t help but have a point of view when I make a film, but my first job is to entertain you.
+ - Most human beings who are accustomed to attempting to see the world from various points of view tend to be more liberal than conservative.
+ - I think it’s a terrible shame that politics has become show business.
+ - I mean, I don’t know anything else that I would try to do, but it’s a very frustrating thing to do, because you are trying to take what’s a fantasy in your head and make it live through the minds of 200 people.
+ - Well, I was born and raised in the Midwest, in Indiana specifically, and my childhood was full of weekend movies, you know, the Saturday and Sunday popcorn movies.
+ - I have one life. I am a certain age. I’m married to one person. I have a certain number of children. I won’t have another life other than that, but I do have many lives through the films.
+ - It’s always interesting to play people different from yourself, it would be boring for me to play myself.
+ - I have to have a working knowledge of light, and optics, film emulsions and their properties, and lenses, otherwise I can’t create the shoots that are the vocabulary of the films. But it is not necessary for me to be a cameraman, I can hire a cameraman.
+ - My films ought to be judged on whether they’re entertaining or good as films, but not on the political view necessarily. I’m trying to be morally responsible and no more. I don’t have an agenda I’m trying to push.
+ - Hollywood was set up by a bunch of businessmen. They do not see their job as being philanthropists. I don’t think it’s a contradiction in terms to attempt to be a good businessman and to also be liberal.
+ - By that I mean, I think that it is true that politics and political heroes have to satisfy our need to be greater than mortal in some way, and that’s led them into creating illusions, sound bites, focus groups that tell you what to do.
+ - Well, the wonderful thing about making movies, oddly enough, is that they’re sort of highly motivated graduate studies in one or another field.
+ - You can be moderate in a way and still intense in your views. It’s the extremism that gets frightening; religious fundamentalism and wacko-left liberalism is crazy.
+ - When you make a film you usually make a film about an idea.
+ - I’ve produced my own films for twenty years now – it means I have to talk to less people.
+ - I tend to be what I would call more progressive than conservative, but I think either extreme is excessive.
+ - Making a film is a way for me to understand what it’s like to be a murderer, to confess, to be a beaten wife, to be a minority, to be a victor, to get the girl, to lose the girl. I can do all of that through the practice of an art form.
+ - Burt Lancaster was largely responsible for me becoming a director.
+ - Making films is much more difficult than people imagine, and so the experience of actually directing them is not one I’ve ever relished.
+ - Film is a collective experience, as you know.
+ - One wants to be able to experience being other people, remaking a reality, remaking a life, remaking a certain world.
+ - Obviously its a good feeling to know that something you’ve done has lasted.
+ - You know, essentially when you do a play you’re reinterpreting a work of art that already exists. That’s not what happens with a movie.
+ - I love having made a film and watching it when it affects audiences in a positive way. It was always fun for me to hide in the back of a theater and watch Tootsie with an audience and hear them laugh. And it’s gratifying 20 years later to imagine that they still can find it amusing.
+ - I don’t know about liberal bias, but people of a liberal mentality are probably attracted in greater numbers to the arts than people of a conservative mentality.
+ - But, I’ve made films in Japan, in Yugoslavia, all over Europe, all over the United States, Mexico, but not Hollywood.
+ - I make films, and I hope that people come to see them. If they don’t, I pay a big price. But I can’t make decisions where I would change my own standards or my own taste in order to court the public in some way.
+ - I see my job as trying to entertain you, to be balanced in some way, and morally responsible. I don’t want to glorify a killer. I don’t want to glorify a rapist. I don’t want to do those things, but on the other hand I don’t want to lecture to you, either.
+ - I’m not a very good predictor in any area of art, particularly my own. I don’t know how to evaluate that.
+ - What I really want to do is produce. There isn’t much patience with a slow developing story line anymore.
+ - For example, a man who might not have enormous charisma, who could be president 40 years ago, and who was a deserving president, I don’t know that George Washington would be a president today, I don’t know that Abe Lincoln would, I don’t know that Roosevelt would.
+ - People aren’t interested in paying $10 or $12 to go to the movies and to be lectured to politically. I’m not either. So I don’t try to make those kinds of films.
+ - You are not an active creator of the film.
+ - The very reasons sometimes that you make a film are the reasons for its failure.
+ - I mean, certainly it’s the single biggest event, I think, in terms of popular entertainment, or art even, if you say that, of the 20th Century. It’s been film. It’s the 20th Century’s real art form.
+ - The essence of acting is seeing the world from another point of view. That’s what acting is.
+
+60 quotes

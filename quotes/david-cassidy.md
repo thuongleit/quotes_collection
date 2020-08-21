@@ -1,0 +1,33 @@
+ - It’s not about the fame and the money because if you do good work all that stuff comes.
+ - When you have had the kind of fame I had, I was always hounded by the media and I lived a very isolated life. Now it’s even more difficult. The world has changed dramatically.
+ - My life has flourished in so many ways both personally and professionally that I can’t ask for a better life.
+ - I’ve been able to go on and have a successful career on Broadway and certainly the last five years in Las Vegas have been amazing.
+ - I had a lot of very religious influences – Christian religious.
+ - As a father, I do everything my dad didn’t do. My son Beau’s birth changed my life.
+ - I’ve always had a love for horses since I was really young. When I was 5 years old, the only thing that made me happy was when they’d take me out and give me pony rides.
+ - My music was never considered cool, but I’ve always felt that connection with the audience.
+ - I have an audience that goes from kids to seventy year olds.
+ - I was silver-white by the time I was 35, but having grey hair makes me look washed out. My wife and son have both said that grey hair doesn’t suit me because I have a boyish face.
+ - I’m a really good team player. That’s what it takes to work in the theater. That’s what it takes to work in a band with musicians and writers.
+ - I’ve had a great metamorphosis in my life. I struggled for a number of years because I was identified with that image of the Seventies.
+ - I’m never going to retire and say, ‘This is it. This is my last show.’ I will not go on tour – I promised my wife and son no more than two weeks on the road.
+ - I look fine. I’ve had no surgery apart from an operation I had decades ago to remove the fat under my eyes. My mum looked 30 when she was 60, so I guess I owe it all to genes and hair dye.
+ - My mom used to take me down to the Jersey Shore when I was 7, 8, 9 years old. I can remember being down in that area – Belmar, Seaside Heights, Asbury Park and all those places that I went back and revisited.
+ - In a very short period of time, actors can become kind of relevant and hot.
+ - All I had done for five years was work 18 hours a day all over the world. I needed to step back and distance myself from it.
+ - I don’t play nostalgia acts. I don’t play nostalgia shows.
+ - If you put the talent of all my brothers together, they wouldn’t add up to the talent that was in my father.
+ - Thoroughbred racing is really my true passion. I’m living my dream.
+ - I found myself very lost after ‘The Partridge Family,’ and I lost my dad and I lost my manager, and I lived in a bubble, and it took me 15 years to get through that and a lot of psychotherapy, and I’m laughing about it now!
+ - I bought my first horse when I was 15. I always loved racing and I started studying about breeding and I’ve been doing it now for 30 years, so I have some credibility.
+ - I’ve had three biographies made about my life so people know an awful lot about me.
+ - For me to go back and to play for audiences some of whom have been following me for thirty years and some who have found me in the last five or six years, that’s really an interesting thing. I have an audience that goes from kids to seventy year olds.
+ - My mother, Evelyn, was an actress and singer, and my father, Jack, was an actor. My earliest recollection of my father is being taken to see him in a matinee.
+ - I’m not saying that I won’t tour again, but the chances are slim because my priorities are different now.
+ - It’s been the work that has carried me and I never wanted to rest on my laurels or go back and do what I done before.
+ - My mother gave up a good part of her career to look after me.
+ - I played in garage bands and rock and roll bands when I was in junior high and high school and saw some of the great talents of all time in the local area where I lived.
+ - In California, of all places, entertainment is the key to a vibrant economy. If we do not develop young adults capable of entering that world, the financial base of this state is sure to suffer and impact all of us.
+ - I understand the rock star deal having been one and still going out strapping my guitar on and performing. Now, I probably do 30 or 40 dates a year and I get to relive how I felt at 19 when I played in some really bad bands.
+
+31 quotes

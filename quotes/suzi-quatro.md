@@ -1,0 +1,21 @@
+ - Love is the best part of life.
+ - Rock and roll mainly but I can play passable jazz also.
+ - Nothing heals like love and time.
+ - I also have a big love of classical music played on piano because this is the environment I grew up in my brother being one of the great masters in this world.
+ - I’ve always maintained that you can be sexy with your clothes on. Sexier maybe.
+ - Guitar is for the head, drums are for the chest, but bass gets you in the groin.
+ - I read and write classical piano and percussion, also guitar.
+ - Down in devil gate drive. I led the angel pack on the road to sin. Knock down the gates, let me in.
+ - My feet never touched the ground. Lots of good groups with crazy and unique images. It was wild. I spent all of my time doing gigs, TV appearances, interviews, or recording. I could write a book – and probably will.
+ - Anyone who has had their heart broken learns to keep a little safety area. Even now in my relationship, I have something I can call my own in case something goes wrong. You need a place to retreat to.
+ - A bass should sound like a bass with the thump of the finger against the wood, like it began with stand up.
+ - I am busy touring all over Europe, Japan, and Australia.
+ - I made up my mind that I was going to be just like Elvis. It never occurred to me that Elvis was a man. I just wanted to be him. He had a huge impact on me, right down to that black leather jumpsuit he wore on the 68 Comeback Special.
+ - The Pleasure Seekers eventually turned into Cradle, when we started writing our own material. My younger sister Nancy was brought in as singer and I kind of stepped aside as main lead singer and concentrated on my instrument.
+ - As far as more recognition goes, I am happy with the amount of love and respect I have received from other artists and the public. Of course, I would love more, and think I deserve it.
+ - I am flattered to have been the woman to have opened the door for female rockers to be accepted into the mainly male industry.
+ - After moving to England I did some recording and eventually formed an English band, this was together for quite a few years with only a keyboard replacement. The band had no name, just my name.
+ - I have recorded nine tracks for a new album which I financed myself and am looking for a home for.
+ - Len and I had parted musical ways and this was one of the problems.
+
+19 quotes

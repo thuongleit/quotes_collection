@@ -1,0 +1,42 @@
+ - Those who seek a better life must first become a better person. ~~Jim Rohn
+ - There’s always room for improvement. ~~Joey Logano
+ - Always think, ‘what’s the worst that can happen’ and have some kind of strategy to deal with it. ~~Richard Branson
+ - We become what we want to be by consistently being what we want to become each day. ~~Richard G. Scott
+ - Talent comes from experience and failure. ~~Richard Branson
+ - We cannot control what emotions or circumstances we will experience next, but we can choose how we will respond to them. ~~Gary Zukav
+ - Every positive change in your life begins with a clear, unequivocaldecision that you are going to either do something or stop doing something. ~~Brian Tracy
+ - We are affected by what we know so get the information. Don’t be lazy in learning. ~~Jim Rohn
+ - Perfection does not exist – you can always do better and you can always grow. ~~Les Brown
+ - If you want to become successful, seek to become a person of value. ~~Myles Munroe
+ - Decisions decide destiny, there is no action without decision. ~~Tony Robbins
+ - Screw it, let’s do it – Just get on with it and do it. ~~Richard Branson
+ - Enjoy life. There’s plenty of time to be dead. ~~Hans Christian Andersen
+ - Fear overrides all rational thinking. ~~Greg Secker
+ - If you would stop analyzing everything and just look for things to appreciate, you would live happily ever after. ~~Esther Hicks
+ - When you betray somebody else, you also betray yourself. ~~Isaac Bashevis Singer
+ - Your life is yours to live, no matter how you choose to live it. When you do not think about how you intend to live it, it lives you. When you occupy it, step into it consciously, you live it. ~~Gary Zukav
+ - If you add the value, you will become the brand. Find a way to add more value than anyone else does. ~~Tony Robbins
+ - I can bounce back from adversity and reinvent my life – it’s possible. ~~Les Brown
+ - Finding is reserved for the searchers, we don’t find what we need, we find what we search for. ~~Jim Rohn
+ - I pretended to be somebody I wanted to be until finally I became that person. Or he became me. ~~Cary Grant
+ - Knowledge without transformation is not wisdom. ~~Paulo Coelho
+ - Our essential nature is one of pure potentiality. ~~Deepak Chopra
+ - If you are going to succeed, you must deal with what caused you to fail. ~~Tony Robbins
+ - Do not listen to those who weep and complain, for their disease is contagious. ~~Og Mandino
+ - Everything you need is within reach, the key is whose going to reach. ~~Jim Rohn
+ - Everything you need you already have. You are complete right now, you are a whole, total person, not an apprentice person on the way to someplace else. ~~Wayne W. Dyer
+ - Don’t think about making money, think about making a difference, spot where others are doing it badly and do it better. ~~Richard Branson
+ - See it better than it is or you have no future, without vision there is no possibility of improvement. ~~Tony Robbins
+ - Love is the ability and willingness to allow those that you care for to be what they choose for themselves without any insistence that they satisfy you. ~~Wayne W. Dyer
+ - You may succeed in making another feel guilty about something by blaming him, but you won’t succeed in changing whatever it is about you that is making you unhappy. ~~Wayne W. Dyer
+ - Life is too deep for words, so don’t try to describe it, just live it. ~~C. S. Lewis
+ - You cannot fix what you will not face. ~~James Baldwin
+ - People can cry much easier than they can change. ~~James Baldwin
+ - See things the way they are not worse than they are. ~~Tony Robbins
+ - God has entrusted me with myself. ~~Epictetus
+ - In order to have influence, you have to be influenced. ~~Stephen R. Covey
+ - I strive to be brief, and I become obscure. ~~Baltasar Gracián
+ - Being a leader is living life on your terms not getting followers. ~~Tony Robbins
+ - What are the aims which are at the same time duties? They are perfecting of ourselves, the happiness of others. ~~Immanuel Kant
+
+40 quotes

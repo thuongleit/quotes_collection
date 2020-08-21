@@ -1,0 +1,55 @@
+ - As an actress I just want to tell beautiful stories.
+ - I think in friendship, you want to be there for your friend, and sometimes you just don’t know what to do or the relationship you have with them is not clear enough for you to know what to do.
+ - That Paris exists and anyone could choose to live anywhere else in the world will always be a mystery to me.
+ - You cannot escape what you have to deal with inside yourself. It will never bring good things. It will only bring madness.
+ - I think that when you don’t see the boundaries, you cross them without even knowing they exist in the first place.
+ - I couldn’t live without music. I experienced things through music in different countries where you cannot speak the same language, but the music and the dance relates everything.
+ - I didn’t like anything about myself – my looks, my personality. I was very, very angry.
+ - You have to invest if you want to restore balance to the world.
+ - As a teenager, I didn’t want to be me; I wanted to be many different people. Maybe I realized that they all lived inside me and that if I managed to connect with them, they would become aspects of me.
+ - For me, what Macbeth is about is people who cannot face their fears and pain and instead of facing them and going beyond, they just run away and they try to cover this with power and violence, but it doesn’t work.
+ - I was born in Paris and raised in the suburbs and then lived in the countryside.
+ - What I like in this job is you can travel to many places, many imaginations.
+ - I think that emotion and good stories can cross the times.
+ - The first thing I have to do to erase my French accent is think that it is actually possible, whereas for the moment, I think it’s not. I have a lot of work.
+ - I was shy. I was more than shy.
+ - I think you’re where you have to be and I’m not a person who wants to control things too much because I love surprises.
+ - Respect the place you live, be aware of the impact that you have on things.
+ - I am not very good at expressing myself in a simple way so it can create mis-understandings and I hate that.
+ - When you see yourself on video, you and your friends spending time on vacation, and they take a video, and then you see it, it’s really disturbing.
+ - I don’t think you learn how to act. You learn how to use your emotions and feelings.
+ - I find it easier to play someone who is so far from me because you create someone – you build this person based on the story and the script, with the director.
+ - If I wake up during a dream I can usually go back to sleep and finish the story.
+ - I was raised with the idea of beauty in a different way. To me, it is something that really comes out of you and surrounds you.
+ - I never thought that I would have to play an Indian, well half French, but an Indian woman in my life.
+ - We lost this animal instinct that we used to have. We use a very low percentage of our instinct.
+ - It’s pretty refreshing to be in a situation where the spotlight is on someone else.
+ - Did a man really walk on the moon? I saw plenty of documentaries on it, and I really wondered.
+ - When you are abandoned by two parents as a baby – wow, that is something to live with.
+ - Im so lucky to have the opportunity to work with some directors and some actors I wouldnt have dared to think I would work with one day.
+ - Every Story is different, Every Movie is different, Every Director is different.
+ - When I was little, there were so many people in my house. Everyone was enjoying themselves, rehearsing, having fun. It was like a playground.
+ - Usually when I start to work and to prepare the movie, some inspirations, different kind of human beings, it can be someone I know, someone I don’t, a girl, a boy. So usually when I start, quite right away, some inspirations come.
+ - I’m always very scared when I start a movie because I never know if I’m going to be able to do a good job or do a very bad job.
+ - I don’t think that I’m that sophisticated. Maybe I’m not aware of it, I don’t know.
+ - I’m always 100% committed to a character, a story and a director, and with Michael Mann it was 1,000%. I don’t know how to explain this...
+ - My parents always told me that if you want something, you can do whatever you have to do to get it. As long as it’s not against someone else.
+ - I’ve always known actors because my parents are actors on stage and so I lived in a very creative environment when I was a kid. All my life.
+ - I think the Earth and everything around it is connected – the sky and the planets and the stars and everything else we see as a mystery.
+ - I love to work this way – I love the time of preparation. If you feed yourself with all the information and you get to understand who the character is then you can really be her.
+ - I would love to go into an animal’s dream – like a lion’s or a cat’s. I’m sure that’s pretty awesome.
+ - I took piano lessons when I was like 5 or 6 but that was a long time ago. I stopped when I was 13.
+ - I have a tendency to often share the point of view of the conspiracy theory.
+ - I’ll never approach a part in the same way again. Piaf taught me so much. In terms of my work, I think I’ll enjoy it even more than before, because now I know that characters truly exist in their own right. I’ll have a way to bring them even more intensely to life.
+ - But it’s very technical and you really have to work and work and work to crack it. It’s about using your whole face, jaw and tongue in a totally different way. It was very interesting – I love the English language, which made it easier.
+ - An artist is maybe not always having a normal life.
+ - I don’t stick to special techniques, conscious techniques.
+ - I think that you always learn something from working with good actors.
+ - I’m a great fan of Michael Mann and when he asked to see me I couldn’t believe it. I was very happy. I met him and I read this beautiful script. I didn’t know anything about Dillinger. I fell in love with the movie and Michael Mann.
+ - I don’t live with my role, I’m a really normal person.
+ - I’m not a method actor, but I’m affected by the life I share my life with during shooting. It’s always a very strange and special period for me.
+ - The first thing, the main thing, about how I work is I need to understand the character.
+ - It cannot be stressful. It just has to be fun. There are many, many things to stress for in this life – not getting ready for a red carpet.
+ - I think what we’ve experienced in the past is that people do like to be challenged.
+
+53 quotes

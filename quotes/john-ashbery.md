@@ -1,0 +1,48 @@
+ - A yak is a prehistoric cabbage; of that, we can be sure.
+ - I write with experiences in mind, but I don’t write about them, I write out of them.
+ - Imagine a painter crucified by his subject!
+ - There is the view that poetry should improve your life. I think people confuse it with the Salvation Army.
+ - In the increasingly convincing darkness The words become palpable, like a fruit That is too beautiful to eat.
+ - Somewhere someone is traveling furiously toward you, At incredible speed, traveling day and night, Through blizzards and desert heat, across torrents, through narrow passes. But will he know where to find you, Recognize you when he sees you, Give you the thing he has for you?
+ - And so we turn the page over. To think of starting. This is all there is.
+ - Its a bit mad. Too bad, I mean, that getting to know each just for a fleeting second Must be replaced by unperfect knowledge of the featureless whole Like some pocket history of the world, so general As to constitute a sob or wail.
+ - Much that is beautiful must be discarded So that we may resemble a taller Impression of ourselves.
+ - How many people came and stayed a certain time, Uttered light or dark speech that became part of you Like light behind windblown fog and sand Filtered and influenced by it, until no part Remains that is surely you.
+ - Poetry is mostly hunches.
+ - Until, accustomed to disappointments, you can let yourself rule and be ruled by these strings or emanations that connect everything together, you haven’t fully exorcised the demon of doubt that sets you in motion like a rocking horse that cannot stop rocking.
+ - I don’t want to read what is going to slide down easily; there has to be some crunch, a certain amount of resilience.
+ - I don’t look on poetry as closed works. I feel they’re going on all the time in my head and I occasionally snip off a length.
+ - I often wonder if I am suffering from some mental dysfunction because of how weird and baffling my poetry seems to so many people and sometimes to me too.
+ - The winter does what it can for its children.
+ - What is the past, what is it all for? A mental sandwich?
+ - Each servant stamps the reader with a look.
+ - Things can harden meaningfully in the moment of indecision.
+ - We might realize that the present moment may be one of an eternal or sempiternal series of moments, all of which will resemble it because, in some ways, they are the present, and won’t in other ways, because the present will be the past by that time.
+ - I am often asked why I write, and I don’t know really – I just want to.
+ - If you need a certain vitality you can only supply it yourself, or there comes a point, anyway, when no one’s actions but your own seem dramatically convincing and justifiable in the plot that the number of your days concocts.
+ - What I like about music is its ability to be convincing, to carry an argument through successfully to the finish, though the terms of the argument remain unknown quantities.
+ - Just when I thought there wasn’t room enough for another thought in my head, I had this great idea –.
+ - I think that in the process of writing, all kinds of unexpected things happen that shift the poet away from his plan and that these accidents are really what we mean when we talk about poetry.
+ - How funny your name would be if you could follow it back to where the first person thought of saying it, naming himself that, or maybe some other persons thought of it and named that person. It would be like following a river to its source, which would be impossible. Rivers have no source.
+ - I’m heading for a clean-named place like Wisconsin, and mad as a jack-o’-lantern, will get there without help and nosy proclivities.
+ - The poem is sad because it wants to be yours, and cannot be.
+ - Once you’ve lived in France, you don’t want to live anywhere else, including France.
+ - I lost my ridiculous accent without acquiring another.
+ - The facts of history have been too well rehearsed.
+ - The mind Is so hospitable, taking in everything Like boarders, and you don’t see until It’s all over how little there was to learn Once the stench of knowledge has dissipated.
+ - The gray glaze of the past attacks all know-how...
+ - Most reckless things are beautiful in some way, and recklessness is what makes experimental art beautiful, just as religions are beautiful because of the strong possibilities that they are founded on nothing.
+ - Where then shall hope and fear their objects find?
+ - Silly girls your heads full of boys.
+ - I don’t find any direct statements in life. My poetry imitates or reproduces the way knowledge or awareness come to me, which is by fits and starts and by indirection. I don’t think poetry arranged in neat patterns would reflect that situation. My poetry is disjunct, but then so is life.
+ - Reading is a pleasure, but to finish reading, to come to the blank space at the end, is also a pleasure.
+ - Once a happy old man One can never change the core of things, and light burns you the harder for it.
+ - It never seems to occur to anyone that each reader is different, and that even those who might be said to resemble each other will each bring an individual set of experiences and references to their reading, and interpret and misinterpret it according to these.
+ - I tried each thing, only some were immortal and free.
+ - The soul establishes itself. But how far can it swim out through the eyes And still return safely to its nest?
+ - Will occur as time grows more open about it.
+ - Part of the strength of Pollock and Rothko’s art, in fact, is this doubt as to whether art may be there at all.
+ - I feel that poetry is going on all the time inside, an underground stream.
+ - Not until it starts to stink does the inevitable happen.
+
+46 quotes

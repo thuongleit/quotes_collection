@@ -1,0 +1,34 @@
+ - Success is not only for the elite. Success is there for those who want it, plan for it, and take action to achieve it.
+ - A liberal will cut off your leg so he can hand you a crutch.
+ - I set my standards so high, no one could be harsher on me than I was.
+ - Make sure when anyone tackles you he remembers how much it hurts.
+ - I’d rather play lacrosse six days a week and football on the seventh.
+ - I’m a very sensitive person. I do like to be respected. I’m very loyal. I like it to be a two-way street.
+ - Teammates are there for each other even after the noise of the crowd is gone.
+ - When you need a friend, you can always count on your teammates.
+ - I’m not pro-owner or pro-player. I am pro-football. I want the game to go on. I want the game to be tough. I don’t want the game to be a killer of our players.
+ - I don’t deal in frustration. I’m a fighter. And everything I’ve ever gotten, I’ve had to fight for.
+ - I could fully express myself in lacrosse.
+ - Lacrosse is probably the best sport I ever played.
+ - The social issues outside of football are not as defined as they were earlier, when integration took place and certain rights were legislated. The Civil Rights movement is over. Individuals can buy homes wherever they want, travel first class wherever they want, eat wherever they want.
+ - I came from Long Island, so I had a lot of experience at the stick. I played in junior high school, then I played in high school. The technical aspect of the game was my forte. I had all that experience, then I had strength and I was in good condition.
+ - The need to be cared for is the base of everything. In the penitentiaries, you won’t hear gangbangers and criminals say, ‘No, I don’t want to be cared for by nobody.’ When you care about them, they’ll open up to you.
+ - If you truly believe something, and it’s incorrect, that doesn’t mean you don’t have integrity.
+ - When you have a problem, rules don’t solve your problem. It’s caring and education.
+ - Tank’s a fantastic human being, as far as fighting’s concerned.
+ - Money has changed today’s black athletes. Those who have the ability as African men to bring a change in a community that so desperately needs it are concentrating only on their own careers, some charities and how much money they can make.
+ - I was just a big guy running down with a big, deep pocket and little short stick putting it against my chest.
+ - I could run 200 yards at a stretch, I could duck between players, I felt free to make plays that suited me best. It wasn’t like football then and basketball today, where coaches tell you what foot to put down.
+ - I think the National Football League needs a new union. The heavyweights of this union are not heavyweights enough.
+ - Ya know, America’s a great country. It’s great because it allows you to fight. And you can win, if you have the stamina and tenacity.
+ - You can’t get old without living.
+ - I had a choice to be lazy or lean – if I hadn’t changed, thing probably would catch up with me.
+ - The bikes have been sitting around, but now were getting them out and using them.
+ - There was no publicity. You had to like it. There was no pressure, just great competition. The attitude of the coaches and players was exceptional.
+ - Nobody I ever broke bread with, and I see players all the time, talked about using their head running the football.
+ - I loved the game. We played because we loved it.
+ - When I’m on a picture, I have two bosses – the director and the producer. My co-star is not my boss.
+ - There were a lot of running backs as good as me. The real difference was that I could focus. I never laid back and relied on natural ability.
+ - I don’t teach kids to be number 1. Organizations and people that tell you you have to be number 1; that’s not it. You don’t have to be number 1. What I teach is to be as good as you can be. Use what you have and be as good as you can be. That’s all you can do, anyway.
+
+32 quotes

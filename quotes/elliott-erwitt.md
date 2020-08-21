@@ -1,0 +1,60 @@
+ - To me, photography is about finding something interesting in an ordinary place. I’ve found it has little to do with the things you see and everything to do with the way you see them.
+ - Color is descriptive. Black and white is interpretive.
+ - The whole point of taking pictures is so that you don’t have to explain things with words.
+ - I am serious about not being serious.
+ - I appreciate simplicity, true beauty that lasts over time, and a little wit and eclecticism that make life more fun.
+ - Photography is pretty simple stuff. You just react to what you see, and take many, many pictures.
+ - Photography is an art of observation – it’s about creating something extraordinary out of the ordinary. You choose a frame and then wait until the right time for something magical to come along and fill it.
+ - If you keep your cool, you’ll get everything.
+ - The best things happen when you just happen to be somewhere with a camera.
+ - It’s about time we started to take photography seriously and treat it as a hobby.
+ - Be sure to take the lens cap off before photographing.
+ - When I get up in the morning I brush my teeth and go about my business, and if I am going anywhere interesting I take my camera along.
+ - All the technique in the world doesn’t compensate for the inability to notice.
+ - I like things that have to do with what is real, elegant, well presented and without excessive style. In other words, just fine observation.
+ - There’s no great mystique to photography. A lot of photographers like to put their hands up to their forehead and tell you how they’ve suffered and so forth. Well, I just rent a car and drive to the place and take the pictures.
+ - Good photography is not about Zone Printing or any other Ansel Adams nonsense. It’s just about seeing. You either see or you don’t see. The rest is academic. Photography is simply a function of noticing things. Nothing more.
+ - The thing is that when you don’t carry a camera, that’s when you see pictures in particular, or at least that’s when you think you see pictures in particular. When you do carry it, if you do see one on the occasion that you do, you can take it.
+ - I don’t really have a favorite camera. I use a Leica and Canon a lot. It depends, especially professionally, on the requirements. But my carry-around camera is a Leica.
+ - The work I care about is terribly simple. I observe. I try to entertain. But above all I want my pictures to be emotional. Little else interests me in photography.
+ - A visual sense is something you either have or you don’t.
+ - Dogs don’t mind being photographed in compromising situations.
+ - After following the crowd for a while, I’d then go 180 degrees in the exact opposite direction. It always worked for me.
+ - Something catches your eye, or your interest. You attack it in some way or observe it in some way, and try to put it in some kind of form and take a picture. It’s as simple as that.
+ - Photography is simply a function of noticing things.
+ - I don’t like explosions. I don’t mind progress. But digital photography has made every man, woman, child and chimpanzee a photographer of sorts and consequently has numbed down the general quality of photographs.
+ - Do what the client wants, not what you want.
+ - I’ve been around so long, most editors think I’m dead.
+ - Photography is a craft. Anyone can learn a craft with normal intelligence and application. To take it beyond the craft is something else. That’s when magic comes in. And I don’t know that there’s any explanation for that.
+ - In those simpler days, you could just take pictures of movie stars and show them the way they were, as normal human beings. And if I felt part of any movement at the time, it was just to do that – to be journalistic and photograph what is, rather than what is made up.
+ - Making people laugh is one of the highest achievements you can have. And when you can make someone laugh and cry, alternatively, as Chaplin does – now that’s the highest of all personal achievements. I don’t know that I aim for it, but I recognize it as the supreme goal.
+ - I enjoy nothing more than spending time with my loved ones, young and old, and at least once a year we get together for a formal family photograph.
+ - I’m not a serious photographer like many of my contemporaries. That is to say, I am serious about not being serious.
+ - I like to think I keep my mind open. When I walk the streets I don’t look for anything in particular. I come from a philosophy that believes you shouldn’t have preconceived notions – that you don’t need a gimmick. That you should just photograph what you react to – what you see.
+ - I dislike landscapes. I only like people, and plastic flowers.
+ - Somehow Photoshop and the ease with which one can produce an image has degraded the quality of photography in general.
+ - It’s about reacting to what you see, hopefully without preconception. You can find pictures anywhere. It’s simply a matter of noticing things and organising them. You just have to care about what’s around you and have a concern with humanity and the human comedy.
+ - I’m an amateur photographer, apart from being a professional one, and I think maybe my amateur pictures are the better ones.
+ - Ill always be an amateur photographer.
+ - I see no difference between my pictures that people consider amusing and the rest. To me, it’s all serious work – they’re just a reaction to what I see. I don’t leave this apartment in the morning and say to myself ‘Today I’m going to be funny and tomorrow I’m going to be sad.’
+ - You don’t study photography, you just do it.
+ - I am a professional photographer by trade and an amateur photographer by vocation.
+ - Working myself into a position of total versatility, so that I can do anything I want to do at the time I want to do it. Whether I do it or not is another question.
+ - Photoshop is useful in many ways but must NEVER be used for the altering of photographs. My assistants and my agency do whatever Photoshop work for me that may be required as it is too complicated for my brain.
+ - You can find pictures anywhere. It’s simply a matter of noticing things and organizing them.
+ - If you’re not a curious person, you’re certainly not going to be a good photographer.
+ - As a professional photographer I take photographs for other people to see – but I want them to see what I see. So I never assume that only a few people will appreciate what I do. At all times, the public should be able to understand what I’ve done, even if they don’t understand how I’ve done it.
+ - It’s just seeing – at least the photography I care about. You either see or you don’t see. The rest is academic. Anyone can learn how to develop. It’s how you organize what you see into a picture.
+ - A picture should be looked at – not talked about.
+ - You have to devote yourself totally to be successful at it.
+ - The main thing is to study pictures and stop listening to the pontifictaions of photographers. Photographers aren’t oracles of wisdom. If they’re good photographers, then take a good look at their pictures – what else do you need?
+ - If you’ve got no responsibility and don’t have to generate a certain amount of cash each month, and can live on a shoestring, and are ambitious enough, then you might have a chance. You can be dedicated but that is no guarantee that you’ll make it. I rely on a hunch, a little luck, and some cunning.
+ - The advantage of taking pictures of the famous is that they get published.
+ - I like museums in Berlin a lot, especially in the eastern part. They’re extraordinarily good.
+ - You must have a visual sense if you want to be a photographer. It is a very subtle thing, this visual business.
+ - My ‘work’ is about seeing not about ideas.
+ - Most photographers work best alone, myself included.
+ - I wasn’t imposing my presence on anyone, which is very important for a would- be journalist. I stayed back. Always let people be themselves.
+ - All of my marriages lasted seven years.
+
+58 quotes

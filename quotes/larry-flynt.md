@@ -1,0 +1,35 @@
+ - Freedom of speech doesn’t protect speech you like; it protects speech you don’t like.
+ - The only question to ask yourself is, how much are you willing to sacrifice to achieve this success?
+ - The two most misused words in the entire English vocabulary are love and friendship. A true friend would die for you, so when you start trying to count them on one hand, you don’t need any fingers.
+ - My position has always been that there’s two types of people opposed to pornography: those who don’t know what they’re talking about, and those who don’t know what they’re missing.
+ - If the human body’s obscene, complain to the manufacturer, not me.
+ - Along with a strong belief in your own inner voice, you also need laser-like focus combined with unwavering determination.
+ - And a democracy can’t exist without free speech and the right to assemble. And that’s what Americans tend to forget. And they’re born into a culture where they take all of their freedoms for granted.
+ - Majority rule only works if you’re also considering individual rights. Because you can’t have five wolves and one sheep voting on what to have for supper.
+ - You have to be able to tolerate what you don’t necessarily like so you can be free.
+ - I’ve always felt that feminism was just an excuse for ugly women to march.
+ - You will encounter many distractions and many temptations to put your goal aside: The security of a job, a wife who wants kids, whatever. But if you hang in there, always following your vision, I have no doubt you will succeed.
+ - Religion has caused more harm than any other idea since the beginning of time. There’s nothing good I can say about it. People use it as a crutch.
+ - In 1973, the Supreme Court ruled that individual communities should set obscenity standards. Whenever a case is tried, it will be based on a community standard for that particular place.
+ - You know, everybody believes in free speech until you start questioning them about it.
+ - No one understands that the First Amendment is only important if you are going to offend somebody. If you’re not going to offend somebody, you don’t need protection of the First Amendment.
+ - There’s nothing that will change someone’s moral outlook quicker than cash in large sums.
+ - I may be paralyzed from the waist down, but unlike Gray Davis, I’m not paralyzed from the neck up.
+ - Politics is my hobby. Smut is my vocation.
+ - Those who would give up their civil liberties for security deserve neither.
+ - The sole motivating factor behind the death penalty is vengeance, not justice, and I firmly believe that a government that forbids killing among its citizens should not be in the business of killing people itself.
+ - Within three or four months, the average girl will just get used up. It just takes your soul, you know? It just takes your soul.
+ - You know, a huge drain on California’s economy is the illegal immigrants. We need to close the borders.
+ - I don’t think many people anticipated how the Internet was going to revolutionize the way we disseminate information.
+ - Being in a wheelchair for 30 years. I’m not whining about it because I don’t dwell on things I can’t do anything about, you know. I never really think about until somebody mentions it. I did take a bullet.
+ - Privacy is not explicitly spelled out in the Constitution as freedom of speech is in the First Amendment.
+ - Well, one thing, you got to stand in a courtroom and listen to a judge sentencing you to 25 years in prison before you realize that freedom of expression can no longer be taken for granted.
+ - Any time there’s a scandal, we always try and get involved.
+ - I used to buy into a former Supreme Court justice’s argument that you can’t scream fire in a crowded theater. Well, I think you can.
+ - If you’re not going to offend somebody you don’t need the First Amendment.
+ - People aren’t interested in others controlling what they can do or read or see in the privacy of their own homes.
+ - Just because I publish pornography does not mean that I am not concerned about the social ills that all of us are.
+ - Moses freed the Jews. Lincoln freed the slaves. I freed the neurotics.
+ - The right-wing of the Republican party isn’t so much a political agenda as a plea for help.
+
+33 quotes

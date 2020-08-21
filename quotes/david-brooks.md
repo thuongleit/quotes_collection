@@ -1,0 +1,124 @@
+ - Almost every successful person begins with two beliefs: the future can be better than the present, and I have the power to make it so.
+ - Freedom without structure is its own slavery.
+ - The prevailing view is that geniuses are largely built, not born.
+ - Our emotions tell us what to value. They’re like a little GPS system: Go that way. Don’t go that way.
+ - Much of life is about failure, whether we acknowledge it or not, and your destiny is profoundly shaped by how effectively you learn from and adapt to failure.
+ - The people who really have character make deep, unshakable connections to something outside themselves.
+ - The roots of great innovation are never just in the technology itself. They are always in the wider historical context. They require new ways of seeing. As Einstein put it, ‘The significant problems we face cannot be solved at the same level of thinking we were at when we created them.’
+ - People generally don’t suffer high rates of PTSD after natural disasters. Instead, people suffer from PTSD after moral atrocities. Soldiers who’ve endured the depraved world of combat experience their own symptoms. Trauma is an expulsive cataclysm of the soul.
+ - Some people think humility is thinking lowly of yourself. Some people think it’s not thinking about yourself. But, to me, the best definition of humility is radical self-awareness from a distance, seeing themselves from a distance and saying, what’s my problem?
+ - I take a benign view of digital connectedness. I notice in most young people’s lives, Facebook and such doesn’t replace normal dating or hanging out, it just facilitates it.
+ - We are all fundamentally equal souls, and if you make a zillion dollars, you’re not any better than anybody else spiritually. You’re still an equal soul.
+ - The brain is not the mind. It is probably impossible to look at a map of brain activity and predict or even understand the emotions, reactions, hopes and desires of the mind.
+ - Bragging about what a good deal you got is one of the many great art forms that my people, the Jews, have introduced to American culture.
+ - The message of the summoned life is that you don’t need to panic if you don’t yet know what you want to do with your life. But you probably want to throw yourselves into circumstances where the summons will come.
+ - We live in a culture of a big me. We’re encouraged – we raise our kids to think how great they are, where we have to market ourselves to get through life. We’re in social media, where we broadcast highlight – highlight reels of our own lives on Facebook.
+ - Civility is the natural state for people who know how limited their own individual powers are and know, too, that they need the conversation.
+ - In my view, success is earned externally by being better than other people. But character, that sort of unfakeable goodness, is earned by being better than you used to be. And it’s about self-confrontation.
+ - Empathy makes you more aware of other people’s suffering, but it’s not clear it actually motivates you to take moral action or prevents you from taking immoral action.
+ - I am not a Jew for Jesus but I am definitely a Jew for Christmas. Christmas is one of the best things you Christians have given us, along with mac and cheese, Bono, croquet and politeness.
+ - The daily activity that contributes most to happiness is having dinner with friends. The daily activity that detracts most from happiness is commuting. Eat more. Commute less.
+ - Marital happiness is far more important than anything else in determining personal well-being.
+ - We don’t have the choice to control our emotions, but we do have the power to educate our emotions. And we do that through literature and through art and music to give ourselves a repertoire of emotional experiences.
+ - It’s only useful to ask, what wisdom have you learned from your misjudgments that will help you going forward?
+ - Some children lack tools to see their course in the world in far-sighted ways. Just introducing school vouchers won’t change that. You have to have nurse-home partnerships, early childhood education, mentoring programs and so on. People learn from people they love.
+ - Friendship allows you to see your own life but with a second sympathetic self.
+ - Pain now is better than pain deferred.
+ - If you do something really cognitively demanding, like buying furniture, it turns out buying furniture is one of the most difficult things we do. Go into a furniture store and look at a sofa.
+ - Liberals lost touch with working-class Americans because they never had to have a conversation about values with those voters; they could just rely on the courts to impose their views.
+ - I could tell you that when you have trouble making up your mind about something, tell yourself you’ll settle it by flipping a coin. But don’t go by how the coin flips; go by your emotional reaction to the coin flip. Are you happy or sad it came up heads or tails?
+ - I think the Republican budget priorities are messed up. I salute for the way they’re attacking some of the entitlement programs, but they are taking huge cuts, by pretending they’re just block-granting it to the states, out of Medicaid, from the least fortunate.
+ - There are no free and democratic and wealthy countries in the world that have US rate of gun violence. We have to worry about loners and alienated people. We have to do better on mental health.
+ - I’ve come to think that flourishing consists of putting yourself in situations in which you lose self-consciousness and become fused with other people, experiences, or tasks.
+ - Courage is the most important virtue because it is the hardest.
+ - The incumbents just have a ton more money because they have rigged the system to help themselves, because they have these networks of small donors. Meanwhile, the amount of people, the incumbents being reelected has just been – that has been going up and up and up.
+ - I came to the conclusion is that we have a very shallow view of human nature in the policy world. We’re really good at talking about material things, really bad at talking about emotions, really good at stuff we can count, really bad at the deeper stuff that actually drives behavior.
+ - The rich don’t exploit the poor. They just out-compete them.
+ - When your institution is under threat, you feel you have a lot of hostility, you feel things are slipping away, you have got internal problems, there’s a tendency to turn inward and to focus on yourselves.
+ - One of the things this world is finding is that emotion is the basis of reason. We really have to trust our emotions, which are much smarter than our reason in some ways.
+ - Sometimes, you go – you achieve a few things in life. I have achieved more career success than I ever experienced or that I ever thought. And I just realized, it doesn’t make you happy. It’s an elemental truth. It’s so true.
+ - The effectiveness of a group of people is not determined by their IQ but by how well they communicate.
+ - I wouldn’t say philosophy and theology are dead. Brain science doesn’t invent new philosophies but it helps remind us which of our existing philosophies are more true.
+ - Research by Donald A. Redelmeier and Sheldon M. Singh has found that, on average, Oscar winners live nearly four years longer than nominees that don’t win.
+ - America is not just a democracy, it represents a certain culture of competitive mobility and personality aspirations, politics is not merely a clash of interests, but a clash of dreams.
+ - The point of being a teacher is to do more than impart facts, it’s to shape the way students perceive the world, to help a student absorb the rules of a discipline. The teachers who do that get remembered.
+ - It’s worth noting that you can devote your life to community service and be a total schmuck. You can spend your life on Wall Street and be a hero.
+ - The natural human reaction is to greet hatred with hatred, revenge by revenge. That’s the natural genetic reaction.
+ - Trade agreements are a net benefit for the world, and a net benefit for our foreign policy, and in the long run, given the dislocations, are a net benefit for us, too.
+ - We live in a culture that encourages us to be big about ourselves, and I think the starting point of trying to build inner goodness is to be a little bit smaller about yourself.
+ - Britain is blessed with a functioning political culture. It is dominated by people who live in London and who have often known each other since prep school. This makes it gossipy and often incestuous.
+ - It is especially painful when narcissists suffer memory loss because they are losing parts of the person they love most.
+ - We are primarily the products of thinking that happens below the level of awareness.
+ - Institutions do all the things that are supposed to be bad. They impede personal exploration. They enforce conformity. But they often save us from our weaknesses and give meaning to life.
+ - Memo to young journalists: Democratic victories are always ascribed to hope; Republican ones to rage.
+ - I’m a pundit. I’m, like, paid to be a narcissistic blowhard and be in front of the camera.
+ - No matter where you are on politics, I think it is wonderful to see candidates funding campaigns not by talking to a very small number of very rich people, but by reaching out to a very large number of citizens.
+ - We are a democratic, egalitarian people who spend our days desperately trying to climb over each other.
+ - Highly educated young people are tutored, taught and monitored in all aspects of their lives, except the most important, which is character building. When it comes to this, most universities leave them alone.
+ - A heroic moral victory for the New York Mets,. It may be the only kind of victory we’re achieving this season, but he set a good example for professional athletes and the rest of us.
+ - Most people don’t form a self and then lead a life. They are called by a problem, and the self is constructed gradually by their calling.
+ - It’s easy to see why politicians would be drawn to the populist pose. First, it makes everything so simple. The economic crisis was caused by a complex web of factors, including global imbalances caused by the rise of China. But with the populist narrative, you can just blame Goldman Sachs.
+ - What family you were born into matters so much more than it did before in a perverse way.
+ - I think Americans expect optimism in their leadership. The most popular and effective leaders, whether it was Bill Clinton or Ronald Reagan or Jack Kennedy, brought to it a sense of optimism and possibility.
+ - I learned I’m not a science writer. I’m not very good at describing how something is happening. I try to describe “So What?”
+ - The legitimacy of a war is not established by how it is organized but by what it achieves.
+ - When you cover politics, you realize that knowing how to talk about character matters more and more. The way we hold ideas is more important than the ideas.
+ - If you’re a soldier or marine in an Arab country, Islam is the solution. And you need to show respect.
+ - That is the job of the Catholic Church, to be a balance to the materialistic drives of our culture and of economy.
+ - I think we are all disgusted by the way George W. Bush’s administration has allowed honesty and candor to seep into the genteel world of international affairs.
+ - Learning was a by-product of her search for pleasure.
+ - We have the choice to choose how we’re going to educate our emotions.
+ - When you’re running for president, you’re a guest in the living room for four years. And if people don’t think you’re going to be around the living room as a pleasant experience, they’re not going to vote for you even if they agree with you.
+ - I think the presidency is a bad way to measure the effective campaign finance, because in the presidency, there is so much publicity, there’s so much money floating around.
+ - The technology’s going to change, but what people want to read is going to be basically the same.
+ - Since 2005, a majority of Americans, according to the Gallup poll, have said it was wrong and a mistake to go into Iraq.
+ - It’s a completely irrational decision to drop out of school.
+ - I don’t know if I’m sexist, though I have not paid much attention to the women’s bracket.
+ - Live life as a series of revelations.
+ - I think that it’s an arguable position, whether with Hamas and ISIS around, whether there should be a Palestinian state, but it’s a defensible position, given the current circumstances.
+ - It’s not that Egypt doesn’t have a recipe for a democratic transition. It seems to lack even the basic mental ingredients.
+ - It’s impossible for one person to think of everything.
+ - To explain the unknown by the known is a logical procedure; to explain the known by the unknown is a form of theological lunacy.
+ - The crossroads where government meets enterprise can be an exciting crossroads. It can also be a corrupt crossroads. It requires moral rectitude to separate public service from private gain.
+ - People used to complain that selling a president was like selling a bar of soap. But when you buy soap, at least you get the soap. In this campaign, you just get two guys telling you they really value cleanliness.
+ - I want to make big films. That’s always been my ambition.
+ - When you’re running for president you have to take some risks and you’ve got to show people something fresh and you’ve got to stay interesting.
+ - I’m not the most emotionally attuned guy in the world. My wife says that me writing about emotion is like Gandhi writing about gluttony.
+ - If you grow up in a home where actions don’t lead to predictable consequences, you don’t develop strategies to control your impulses.
+ - People want reality that tells them how right they are all the time.
+ - Emotion is the foundation of reason.
+ - If it feels all right for you, it’s probably OK.
+ - I was really fortunate that I went to a high school where we actually had a film theory program.
+ - I wasn’t born with a tie or with Mark Shields stapled to my left hip. I have another life.
+ - I do think British and American politics rhyme. They go in cycles. They go in Thatcher-Reagan cycles, Blair-Clinton cycles.
+ - Most poor people in America are white. The family breakdown issue is an issue that crosses all sorts of racial lines. High school dropout issues. But because of the flow of events which involve the racial component, we’ve sometimes confused racial issues with other issues which are trans-racial.
+ - This death cult has no reason and is beyond negotiation. This is what makes it so frightening. This is what causes so many to engage in a sort of mental diversion. They don’t want to confront this horror. So they rush off in search of more comprehensible things to hate.
+ - When your institution is under assault, you’re feeling like the weight is on it and the history might be flowing away, don’t turn inward, go outward.
+ - There are plenty of team players in government who do whatever the leader says. There are too few difficult members, who have complicated minds, unusual perspectives, the toughness to withstand the party-line barrages and a practical interest in producing results.
+ - Economists sometimes do try to reduce behavior to law-like predictability. But people respond differently to different primes, to different contexts even from one moment to the next. We possess multiple selves that are aroused by different circumstances.
+ - The school asks a person who has achieved a certain level of career success to give you a speech telling you that career success is not important.
+ - I want to limit the effects of the power of donors, no question about it.
+ - One of the things capitalism does is, it does enhance and exacerbate the sin of pride, making yourself, the material world the center of your universe, instead of God’s will.
+ - Often, I go and see films where I can see the beats coming. So, if I read something where I don’t see the beats coming and it takes me somewhere unexpected, that’s a great thing to build upon.
+ - If you know that most processing is below the level of awareness, you learn the value of sleep. You’re brain is working on the problem anyway.
+ - The drugs are just growing all around the country, and so, it all feeds into problems that are not just urban, but are just spread throughout the country.
+ - A wise soul once declared that the ultimate power of the writer is that he has the choice of whom he wants to be co-opted by.
+ - People tend to marry people with similar-width noses, eyes similarly apart, with complementary immune systems.
+ - It’s just a lot safer to be an incumbent. So I think they have used the campaign finance reforms. They have passed laws that will help themselves stay in office. And I think that’s one of the flaws that we do have in the system.
+ - As a director, I like trying to unlock the subtext of the scene and try to put the camera in a place that helps that.
+ - Fundamentalism is still on the march.
+ - I do think trying to live each day as a bunch of moral occasions, did I live up to what I would hope, and, if I didn’t, what can I do tomorrow to be a little better, I do think we can improve. We get better at life as we get older.
+ - If you just rely on one model, you tend to amputate reality to make it fit your model.
+ - President Obama was the first president not to abide by the limits in the general election.
+ - People generally overestimate how distinct their lives are, so the commonalities seemed to them like a series of miracles.
+ - I’m thankful that we live in a crassly commercial, polarized culture, so media jackals like me have a lot of work to do.
+ - Palin is smart, politically skilled, courageous and likable. Her convention and debate performances were impressive.
+ - The gun becomes this psychological totem, this thing of who I am. And it’s almost as if using the gun is going to be the thing that’s going to be my expression of how I make a difference in the world.
+ - I don’t think history will ever be a science because history will never be reduced to law-like behavior. People are to unpredictable.
+ - The brain writes the autobiography of our species at the conscious level.
+ - People who give money in large amount in politics are basically not altruistic.
+ - The more people doubt their own beliefs the more, paradoxically, they are inclined to proselytize in favor of them.
+ - I’m not a kicker and a screamer.
+ - I want to try to make big films that hopefully connect with people.
+
+122 quotes

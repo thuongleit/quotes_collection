@@ -1,0 +1,57 @@
+ - Good teaching is more a giving of right questions than a giving of right answers.
+ - Every perception of color is an illusion, we do not see colors as they really are. In our perception they alter one another.
+ - One line plus one line results in many meanings.
+ - Easy-to know that diamonds-are precious, Good-to learn that rubies-have depth, But more-to see that pebbles-are miraculous.
+ - If one says ‘Red’ – the name of color – and there are fifty people listening, it can be expected that there will be fifty reds in their minds. And one can be sure that all these reds will be very different.
+ - Simultaneous contrast is not just a curious optical phenomenon – it is the very heart of painting.
+ - I prefer to see with closed eyes.
+ - Simultaneous contrast is not just a curious optical phenomenon – it is the very heart of painting. Repeated experiments with adjacent colors will show that any ground subtracts its own hue from the colors which it carries and therefore influences.
+ - As we do not see squares in nature, I thought that it is man-made. But I have corrected myself. Because squares exist in salt crystals, our daily salt.
+ - The purpose of art is to re-present nature, not represent it.
+ - The role of art for me is the visualization of attitude, of the human attitude towards life, towards the world.
+ - I want color and form to have contradictorily functions.
+ - Color is like cooking. The cook puts in more or less salt, that’s the difference!
+ - I was for years in the yellow period, you know.
+ - Learn to see and to feel life; that is, cultivate imagination, because there are still marvels in the world, because life is a mystery and always will be. But be aware of it.
+ - I’m not a talker. I’m a formulator.
+ - Art problems are problems of human relationship.
+ - Ah, the creative process is the same secret in science as it is in art. They are all the same absolutely.
+ - I paint the way I spread butter on pumpernickel.
+ - A thing is never seen as it really is.
+ - Instead of art I have taught philosophy. Though technique for me is a big word, I never have taught how to paint. All my doing was to make people to see.
+ - There is no difference between science and art when it comes to creativeness, productiveness, to come to conclusions and to formulations.
+ - I think art parallels life; it is not a report on nature or on intimate disclosure of inner secrets. Color, in my opinion, behaves like man – in two distinct ways: first in self-realization and then in the realization of relationships with others.
+ - Any ground subtracts its own hue from the colors which it carries and therefore influences.
+ - Color deceives continuously.
+ - Thus art is not an object, it is an experience.
+ - A painter paints because he has no time not to paint.
+ - Apprentice is the beginner – the first years you work in a craft in the European sense you are an apprentice. That takes 3 or 4 years. Then you are a journeyman. You can go from one master to another and learn other tricks and other secrets.
+ - In order to use color effectively it is necessary to recognize that color deceives continually.
+ - The aim of art is a constant, and a continuous job to reveal visually the attitude of our mentality. And the less we disturb the influence of our mentality the more I believe we come close to the truth.
+ - Traditionally art is to create and not to revive. To revive: leave that to the historians, who are looking backward.
+ - I do not like to be a prophet. I like better to paint than to predict what the next painters will do. Though I have a feeling that consideration of order is very much in the air.
+ - I have taught my students not to apply rules or mechanical ways of seeing.
+ - Therefore art means: you have to believe, to have faith, that is, cultivate vision.
+ - It’s the only dish I serve my craziness for color in.
+ - To design is to plan and to organize, to order, to relate and to control. In short it embraces all means of opposing disorder and accident. Therefore it signifies a human need and qualifies man’s thinking and doing.
+ - We never really perceive what color is physically!
+ - In my basic courses I have always tried to develop discovery and invention which, in my opinion, are the criteria of creativeness.
+ - Art is concerned with the HOW and not the WHAT.
+ - I think Kandinsky and I were very near friends.
+ - It was my family that wanted me to be a teacher. That was safe, you see. To be a painter was terrible.
+ - I have invented the Thermometer style.
+ - As basic rules of a language must be practiced continually, and therefore are never fixed, so exercises toward distinct color effects never are done or over. New and different cases will be discovered time and again.
+ - If you don’t do it my way, I suggest you commit suicide.
+ - And I started with this: I have not painted at all my childhood. In fact, I never painted. But I helped my father who was a house painter and decorative painter. He made stage sets, he made glass paintings, he made everything.
+ - Independent of harmony rules, any color ‘goes’ or ‘works’ with any other color, presupposing that their quantities are appropriate.
+ - I count all the time on resonance. I call on this, you see.
+ - Just as the unmusical ear is not competent to judge music, so it is likewise with pictures, whether they are paintings, drawings or photos. Only a sensitive and trained eye gives us the right to judge...
+ - I love very much to draw animals.
+ - What has been said does not simply belong to us.
+ - When we were in the seminary we got a stipend direct from the government and for that stipend we had an obligation to stick to our teaching job for five years.
+ - My father’s parents were carpenters. They were also builders partly. They were painters. And several of them were very, active in the theatre and all such nonsense, you know.
+ - When we are honest – that’s my saying – if we are honest then we will reveal ourselves. But we do not have to make an effort to be individualistic, different from others.
+ - I was at the Royal Art School. That was a preparatory school specially for art teachers. You see, it was not so much for the development of artists. But we had there terribly stiff training.
+ - We never really perceive what color really is, as it physically is. This fact makes color the most relative medium in art.
+
+55 quotes

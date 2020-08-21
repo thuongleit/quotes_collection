@@ -1,0 +1,53 @@
+ - You can’t just sit there and wait for people to give you that golden dream. You’ve got to get out there and make it happen for yourself.
+ - I can be a better me than anyone can.
+ - Take a little time out of your busy day to give encouragement to someone who’s lost their way.
+ - Instead of looking at the past, I put myself ahead twenty years and try to look at what I need to do now in order to get there then.
+ - I really, deeply believe that dreams do come true. Often, they might not come when you want them. They come in their own time.
+ - Either black people end up being the best in sports, or else it’s show business. You know, we all got rhythm.
+ - My life has often been described as ‘from rags to riches’ but in fact, the Ross’s were never raggedy.
+ - I want an autobiography without revealing any personal information.
+ - If I have someone who believes in me, I can move mountains.
+ - You know, you do need mentors, but in the end, you really just need to believe in yourself.
+ - My children come first and the career comes in around that.
+ - Most people are so hard to please that if they met God, they’d probably say yes, she’s great, but...
+ - Do you know where you going to? Do you like the things that life is showing you? Where are you going to? Do you know?
+ - Hair has always been important.
+ - With the Supremes I made so much money so fast all I wanted to do was buy clothes and pretty things. Now I’m comfortable with money and it’s comfortable with me.
+ - I don’t know what I feel about wearing my furs anymore. I worked so hard to have a fur coat, and I don’t want to wear it anymore because I’m so wrapped up in the animals. I have real deep thoughts about it because I care about the world and nature.
+ - My travels led me to where I am today. Sometimes these steps have felt painful, difficult, but led me to greater happiness and opportunities.
+ - Discipline is a necessary tool to help you get what you want in life. It forces you to stay on center and to move away from the things that are not necessary.
+ - So I’m not worried about the emotions I carry with me, because I’m happy that I have them; I think it’s good for the work I do. The emotions that are not healthy are the ones you hold inside, like anger.
+ - I was brought up in this part of Detroit that they used to call the ghetto.
+ - I think that if my voice for some reason changes – because your voice does change – then it’s time for me not to sing.
+ - Criticism, even when you try to ignore it, can hurt. I have cried over many articles written about me, but I move on and I don’t hold on to that.
+ - I’m a parent, and I try to take care of my health and keep my life in order. In the last few years I’ve really had to decide what’s important to me, and it seems to me that my family and my health are top on the list. And those have nothing to do with show business.
+ - I think a responsibility comes with notoriety, but I never think of it as power. It’s more like something you hold, like grains of sand. If you keep your hand closed, you can have it and possess it, but if you open your fingers in any way, you can lose it just as quickly.
+ - I am in prayer for his kids and the family.
+ - The first time I heard a Billie Holiday record, I thought, ‘What’s so great about Billie Holiday?’
+ - I have never gotten into the label thing.
+ - It has always been, and still is, my intention to build a playground in Central Park.
+ - I learned something from that. If someone asks me something that I really don’t want to do, I say no. I have to trust that. And I’m not afraid to talk money.
+ - I even thought of adopting a child as a single mother.
+ - I have three girls, and I say the same thing to them. I’m not involved in their careers because I’ve learned that it’s important for them to stand on their own two feet. They’ll feel better and prouder of themselves if they do.
+ - I don’t like to have too many makeup artists around, so I always like to do my own.
+ - My family called me a wiggle tail because I was a little skinny, wiry kid full of energy.
+ - I try to choose the songs that really are basically coming from my heart. I think that through the songs that I select, people know what’s going on in my life.
+ - It takes a long time to get to be a diva. I mean, you gotta work at it.
+ - A reporter once asked me if I ever cried. I wonder if people think I’m just as hard as a rock and have no emotions at all.
+ - They tell me that it will be hard to find a man strong enough to love my own strength and independence, and not worry about being Mr. Diana Ross, but I disagree. I know absolutely that that man is somewhere out there.
+ - My father worked hard, but we were still very poor; and I didn’t want anybody arguing about money, so I became the entertainer, the one who wanted everyone to be happy. I didn’t want there to be any problems.
+ - You can always tell where Diana Ross has been by the hair that’s left behind!
+ - I know that my fans want to know who I’m sleeping with, but it’s really none of their business.
+ - Being a parent is very important to me.
+ - I look forward to the future – and going into the studio to make new music.
+ - I’d traveled a lot, was going temporarily insane and became very successful, but there was no one to take that all home to.
+ - I’m not really a songwriter – I’m an interpreter. So in a sense I am an actress first and foremost. I act out the songs, and I lead with my heart.
+ - I don’t think getting in and out of a limousine has anything to do with being an icon.
+ - I just appreciate still having the longevity that I’ve had in my career.
+ - I don’t have to sit around and wait for the next movie to come along, I can go out and sing.
+ - I keep a great organiser, I try to keep my priorities in the right place.
+ - One thing you cannot control is nature.
+ - If I’m with a man I’m soft and buttery.
+ - I listen to most everything that’s out there because I need to stay aware of what’s happening in the industry.
+
+51 quotes

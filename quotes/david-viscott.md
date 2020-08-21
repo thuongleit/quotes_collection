@@ -1,0 +1,25 @@
+ - If you could get up the courage to begin, you have the courage to succeed.
+ - The purpose of life is to discover your gift. The work of life is to develop it. The meaning of life is to give your gift away.
+ - Your ultimate goal in life is to become your best self. Your immediate goal is to get on the path that will lead you there.
+ - You must begin to think of yourself as becoming the person you want to be.
+ - To love and be loved is to feel the sun from both sides.
+ - When you respond to an unreasonable person by getting emotional, you give them victory. How do you manage unreasonable people? You dismiss them. Like shadows.
+ - To fail is a natural consequence of trying, To succeed takes time and prolonged effort in the face of unfriendly odds. To think it will be any other way, no matter what you do, is to invite yourself to be hurt and to limit your enthusiasm for trying again.
+ - Frequently, visualization is the key to lose weight. Imagine yourself with your desired body, and work for it. At some point in the future, this wish will come true.
+ - Take the best action toward your most important goal right now.
+ - The highest love a person can have for you is to wish for you to evolve into the best person you can be.
+ - Even those who venture to dip a toe in the pond of risk never allow themselves to get used to the water.
+ - If your life is ever going to get better, you’ll have to take risks. There is simply no way you can grow without taking chances.
+ - You are the only one who has to live your life.
+ - You don’t have to try, you just have to be.
+ - Most people of action are inclined to fatalism and most of thought believe in providence.
+ - There is some place where your specialties can shine. Somewhere that difference can be expressed. It’s up to you to find it, and you can.
+ - If we are the sum of everything that happens to us, to limit a person’s experience is to limit their growth.
+ - The original lists were probably carved in stone and represented longer periods of time. They contained things like ‘Get More Clay. Make Better Oven.’
+ - Once a person says, “This is who I really am, what I am all about, what I was really meant to do,” it is easier to decide how to spend one’s time.
+ - Lists today are a way of trying to get through the day, because we are losing a sense of time.
+ - This is really America in therapy, people trying to get themselves together and be whole.
+ - Lists have always implied social order.
+ - People now feel time accelerating. Lists allow them to feel some sense of accomplishment.
+
+23 quotes

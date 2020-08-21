@@ -1,0 +1,109 @@
+ - Only the strong go crazy. The weak just go along.
+ - Where there is oppression, there will be resistance.
+ - No one is going to give you the education you need to overthrow them. Nobody is going to teach you your true history, teach you your true heroes, if they know that that knowledge will help set you free.
+ - And if I know anything at all, it’s that a wall is just a wall and nothing more at all. It can be broken down.
+ - Nobody in the world, nobody in history, has ever gotten their freedom by appealing to the moral sense of the people who were oppressing them.
+ - We need to be weapons of mass construction, weapons of mass love. It’s not enough just to change the system. We need to change ourselves.
+ - If you’re deaf, dumb, and blind to what’s happening in the world, you’re under no obligation to do anything. But if you know what’s happening and you don’t do anything but sit on your ass, then you’re nothing but a punk.
+ - The methods of peaceful protests are not capable of being effective, because in reality most people pay little attention to things that are not abrasive.
+ - Black Revolutionaries do not drop from the moon. We are created by our conditions. We are shaped by our oppression. We are being manufactured in droves in the ghetto streets, places like attica, san quetin, bedford hills, leavenworth, and sing sing. They are turning out thousands of us.
+ - I believe in living, I believe in birth, I believe in the sweat of love and in the fire of truth and I believe that a lost ship, steered by tired, sea sick sailors, can still be guided home to port.
+ - A woman’s place is in the struggle.
+ - Peace is a rare gift. Peace of mind, peaceful sleeps, and peaceful spirits are all luxuries that few rebels can ever afford.
+ - Theory without practice is just as incomplete as practice without theory.
+ - Part of being a revolutionary is creating a vision that is more humane. That is more fun, too. That is more loving. It’s really working to create something beautiful.
+ - I was sentenced to life plus 30 years by an all-White jury. What I saw in prison was wall-to-wall Black flesh in chains. Women caged in cells. But we’re the terrorists. It just doesn’t make sense.
+ - We’re living in a very tricky world, and unless we become analytical and expose the tricknology, people will become sucked into that. It is very easy, it is very, very easy.
+ - I’ve always been a student of different ways of looking at the world, different religions. That’s been part of my survival mechanism, and also part of my curiosity as a person.
+ - Love is contraband in Hell, cause love is an acid that eats away bars. But you, me, and tomorrow hold hands and make vows that struggle will multiply. The hacksaw has two blades. The shotgun has two barrels. We are pregnant with freedom. We are a conspiracy.
+ - Dreams and reality are opposites. Action synthesizes them.
+ - No one is going to give you the education you need to overthrow them.
+ - A revolutionary woman can’t have no reactionary man.
+ - People get used to anything. The less you think about your oppression, the more your tolerance for it grows. After a while, people just think oppression is the normal state of things. But to become free, you have to be acutely aware of being a slave.
+ - I don’t have to live up to that Superwoman myth. I can cry and be human and lean on people who take care of me. That can be very liberating.
+ - Imperialism is the underlying motor of racism. The underlying reason that racism keeps on being promoted in all of its various forms.
+ - Black revolutionaries do not drop from the moon. We are created by our conditions. Shaped by our oppression.
+ - We’re taught at such an early age to be against the communists, yet most of us don’t have the faintest idea what communism is. Only a fool lets somebody else tell him who his enemy is.
+ - Hip Hop can be a very effective way to reach young people and teach them about current political and social issues.
+ - Freedom! you askin me about freedom. I’ll be honest with you. I know a whole more about what freedom isn’t than about what it is, ’cause I’ve never been free. I can only share my vision with you of the future, about what freedom is.
+ - I must confess that waltzes do not move me, I guess I hummed the blues too early, and spent too many midnights out wailing to the rain.
+ - Being in Cuba has allowed me to live in a society that is not at war with itself. There is a sense of community. It’s a given in Cuba that, if you fall down, the person next to you is going to help you get up.
+ - When you go through all your life processing and abusing your hair so it will look like the hair of another race of people then you are making a statement and the statement is clear.
+ - A revolutionary woman can’t have no reactionary man. If he’s not about liberation, if he’s not about struggle, if he ain’t about building a strong Black family, if he ain’t about building a strong Black nation, then he ain’t about nothing.
+ - It is only for the sake of those without hope that hope is given to us.
+ - Being a warrior and being a struggler has been forced on me by oppression, otherwise I would have been free to be so much more.
+ - I miss friends and family. If it weren’t for visits from old friends and other African Americans I meet who come to Cuba, I’d probably be in some kind of time warp.
+ - I believe in life. And I have seen the death parade.
+ - I believe in self-defense and self-determination for Africans and other oppressed people in America.
+ - Before going back to college, i knew i didn’t want to be an intellectual, spending my life in books and libraries without knowing what the hell is going on in the streets. Theory without practice is just as incomplete as practice without theory. The two have to go together.
+ - In the long run, the people are our only appeal. The only ones who can free us are ourselves.
+ - Unless you are addressing the issues people are concerned about and contributing positive direction, they’ll never support you. The first thing the enemy tries to do is isolate revolutionaries from the masses of people, making us horrible and hideous monsters so that our people will hate us.
+ - Every person that steps up and commits to social change helps solidify the black movement cause. It is not easy for those who fill in the leader role.
+ - Any community seriously concerned with its own freedom has to be concerned about other people’s freedom as well. The victory of oppressed people anywhere in the world is a victory for Black people. Each time one of imperialism’s tentacles is cut off we are closer to liberation.
+ - Tourism has affected Cuba, because tourists come and they bring racist, sexist ideas. They bring a whole vision that there are rich people all over the world and that’s the way it should be.
+ - We had to learn that we’re beautiful. We had to relearn something forcefully taken from us. We had to learn about Black power. People have power if we unite. We learned the importance of coming together and being active.
+ - Are you ready to sacrifice to end world hunger? To sacrifice to end colonialism? To end neo-colonialism? To end racism? To end sexism?
+ - Schools in amerika are interested in brainwashing people with amerikanism, giving them a little bit of education, and training them in skills needed to fill the positions the capitalist system requires. As long as we expect amerika’s schools to educate us, we will remain ignorant.
+ - The real reason Cuba poses a threat has nothing to do with my being here or anyone else being here. It’s because Cuba is an example of a country that is actively fighting against imperialist domination and insists on its own right to self-determination and sovereignty.
+ - I stay connected in my head. I’m spiritually and psychologically connected to African-Americans. They are my people, and that will never change.
+ - I think that in order to struggle you have to be creative. In my life, creativity has been something that has sustained me; it awoke my spiritual struggle.
+ - The first part of planning is to believe that you can put that plan into practise.
+ - The U. S. is becoming more hostile to Black people and other people of color. Racism is running rampant and xenophobia is on the rise.
+ - My life wasn’t beautiful and creative before I became politically active. My life was totally changed when I began to struggle.
+ - Cuba has its own moral system and priorities. That’s what keeps it going, the belief that the country can control its own destiny.
+ - I trust Cuba as a principled country. Cuba’s strength is that it has been steadfast in its commitment to the principles of liberation, freedom, of resistance to the kind of institutionalized terrorism that the United States government does every day.
+ - To become free, you have to be acutely aware of being a slave.
+ - If we are not committed to saving this earth we will be buying designer air filters and gas masks with little Nike swishes on them.
+ - People are tried and convicted in the newspapers and on television before they ever see a courtroom.
+ - I think anybody who is honestly struggling against racism must struggle against imperialism and vice versa.
+ - The people who are running this planet are insane – they are literally destroying it. I don’t know where they think they’re gonna drink water, breathe air.
+ - I think that one of the great things that the Cuban revolution has done is preserve history.
+ - Like all other Black revolutionaries, Amerika is trying to lynch me.
+ - My energy just couldn’t stop dancing. I was caught up in the music of struggle, and i wanted to dance.
+ - All you have to do is ask yourselves, who controls the government? And who are the victims of that control?
+ - In my case, spirituality has been important to me because at periods in my life there’s been very little else that I’ve had going. I’ve actually needed to call on, to feel the forces of good in this universe to be able to survive.
+ - People come telling the truth. When I ask how thing are in the States, they don’t give me the okeydoke. They say, “Honey, things are hard.” It reminds me I have to keep struggling.
+ - There is a down side to everything if you don’t understand what the consequences of what you are saying in your music you could possibly end up getting yourself killed or hurting other people because of your carelessness.
+ - I really prefer to be kind of anonymous. Because when people know your whole history, they have a tendency to relate to you differently and maybe put you up on a pedestal. I want people to just be normal with me. I just want to live my life.
+ - We are pregnant with freedom.
+ - There’s something about approaching 50 that’s very liberating. Political struggle has always been a 24-hour-a-day job for me. I felt I could never take time out for myself. Now I feel I owe it to myself to develop in ways I’ve been putting off all my life.
+ - When Black people seriously organize and take up arms to fight for our liberation, there will be a lot of white people who will drop dead from no other reason than their own guilt and fear.
+ - I couldn’t see how we could seriously struggle without having a strong sense of collectivity, without being responsible FOR each other and TO each other.
+ - The abnormal, the sick, the vicious have become more and more interwoven into the violent culture of the United States. Into the way news is seen, into the way movies are seen.
+ - I think that, like many sisters, I was raised to be a Superwoman. I am a serious woman, and I want to be taken seriously.
+ - I think that spirituality is important for all people to develop. I don’t mean there necessarily has to be a religious aspect to spirituality. Some people are spiritual in a religious way, other people are spiritual in their work and in their art and in their treatment of other people.
+ - I realized that I was connected to Africa.
+ - I think that people who want to change this planet have to seriously understand that as human beings we have to work to be good.
+ - We usually reach success by putting the simple truths that we know into practice.
+ - I found that people had all kinds of levels of consciousness, all kinds of levels of education, but that Cubans in general were very educated politically. I could go sit in a bus and get into a conversation with someone and that person had a wealth of knowledge. And energy!
+ - What most impressed me about Cuba was the optimism.
+ - The attitudes of many police organizations were extremely negative to the prospect of Rap, and many officials weren’t afraid to say that they were against it. To them, Rappers were just criminals waiting to get caught.
+ - People think that in order for something to work, it has to be complicated, but a lot of times the opposite is true. We usually reach success by putting the simple truths that we know into practice.
+ - I have been a political activist most of my life and many groups have attempted to label me as a criminal because of my outspoken beliefs. I am not a criminal and I have never been one.
+ - When I was a child, if someone had talked to me about buying water, I would have thought it was a joke.
+ - I think that the greatest betrayal that a revolutionary can participate in is to become like the people you are struggling against. To become like your persecutors. I think that is a betrayal and a sin.
+ - It never occurred to me that anyone would name a nuclear missile “Peacekeeper”. It never occurred to me that thousands of people would be killed in the name of “peace-keeping”.
+ - I think it’s really hard to plan if you don’t believe you can implement those plans.
+ - I’ve tried as much as possible to avoid the standard nine-to-five thing. I’ve tried to organize my life so that I can move around, change the rhythm and the tempo.
+ - It seemed that most women, because they had been caught, gave up on the movement and were just trying to pass the time until they could be released. Men in prison struggled to maintain their pride, including their manhood, because that is all they had left after everything had been taken away.
+ - I had grown up at a time when people were being lynched, being attacked with water hoses. Becoming active and learning a different way of viewing my life was a healthy reaction to what I was seeing every day.
+ - My fantasy of Cuba was that everybody was going to be going around looking like Fidel, with green uniforms – and it was very different from my vision of how Cuba was going to be.
+ - I worked, studied, mothered and continued to be an activist. I found that Cuba was much different from the US; its government was genuinely trying to erase racism.
+ - A lot of contemporary American culture makes its way to this county. Cuba is not some gray, isolated backwater. This is a happening place.
+ - I have declared war on the rich who prosper on our poverty, the politicians who lie to us with smiling faces, and all the mindless, heartless, robots who protect them and their property.
+ - I think that one of the problems that exists in the United States and in many places in the world is that people don’t believe that they can make a difference. So a lot of times we’re defeated before we even start. We’ve become consumers of a world vision, of Kentucky Fried Chicken, of McDonalds.
+ - And it is that one percent, the heads of large corporations, who control the policies of news media and determine what you and I hear on radio, read in the newspapers, see on television. It is more important for us to think about where the media gets its information.
+ - This planet is a wonderful place, but a vulnerable place.
+ - The death penalty is used in such a blatantly racist way in the United States. There is no way that can be defended under any kind of definition of justice by anybody.
+ - I really wanted to know what happens in a place that is trying to build socialism, that’s trying to construct some form of social justice. That’s trying to feed people, to make health care and education a right.
+ - For me personally Cuba has been a healing state. When I first got here I had no sense that I had to heal or anything. When you’re struggling for your life and you’re in the midst of things, you don’t feel all the blows.
+ - How lovely it is to live with a sense of community. To live where you can drop in the street and a million people will come and help you.
+ - I can’t do nothin except try to find cloud nine.
+ - Racism had grown out of slavery and exploitation and was very hard to eradicate quickly and completely.
+ - I think that any time anybody gets rid of oppression, intervention, exploitation, cruelty – that’s positive.
+ - My experience in the United States was living in a society that was very much at war with itself, that was very alienated. People felt not part of a community, but like isolated units that were afraid of interaction, of contact, that were lonely.
+ - The government recognized immediately that Rap music has enormous revolutionary potential and politicians immediately came together to end it.
+ - I have advocated and I still advocate revolutionary change.
+ - The US government’s most acute fear is that other countries are going to follow the Cuban example. They want everybody to know that if you follow this example we will attack you in every way that we can.
+
+107 quotes

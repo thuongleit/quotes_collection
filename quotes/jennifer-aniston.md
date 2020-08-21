@@ -1,0 +1,99 @@
+ - There are no regrets in life, just lessons.
+ - I think it’s important to have closure in any relationship that ends – from a romantic relationship to a friendship. You should always have a sense of clarity at the end and know why it began and why it ended. You need that in your life to move cleanly into your next phase.
+ - Friends are the family we choose.
+ - Life is about making mistakes. Death is about wishing you made more.
+ - The greater your capacity to love, the greater your capacity to feel the pain.
+ - What inspires you, what excites you when you wake up in the morning?
+ - I’m excited about what the future holds. I’m not a fortune-teller; I have no idea how it will play out. People say, “What are you going to do?” I don’t know. I kind of love that not knowing.
+ - I always say don’t make plans, make options.
+ - It’s impossible to satisfy everyone, and I suggest we all stop trying.
+ - Once you figure out who you are and what you love about yourself, I think it all kind of falls into place.
+ - It’s a real gift when you find someone to share your life with.
+ - When you try to avoid the pain, it creates greater pain.
+ - Maybe it’s a fairy tale, but I believe in happily ever after.
+ - It’s all about being comfortable, being easy and having you be able to wear something and not having it wear you. It’s classic. Every time I’ve tried to be bold and crazy, I feel like a Japanese animated cartoon character.
+ - Yoga calms me down. It’s a therapy session, a workout and meditation all at the same time!
+ - Are men intimated by sexually confident women, you ask? I think men are intimated by any woman who says they are sexually confident, at no matter what age.
+ - When you think of dog movies, that genre, Old Yeller is sort of the benchmark and you hope that you can raise your game up to that.
+ - I’m not sitting somewhere dwelling on the past. I’m not fretting or obsessing about something in the future.
+ - Thirties. Go to therapy. Clean up all of the sh-t. Clean up all of the toxins and the noise. Understand who you are. Educate yourself on the self.
+ - Quirky is sexy, like scars or chipped teeth. I also like tattoos they’re rebellious.
+ - I don’t like injustice. We’re living in a time where, whether it’s the Internet or tabloids, being sh-tty has become a sport. We’re just grown-up bullies.
+ - I just want to keep trying to surprise myself and I want to keep challenging myself.
+ - There’s times when you see people climbing and getting success and you start to see, oh, they’re starting to really change. So I always just make the effort to be as humble and grateful as possible.
+ - I’m really happy. Really! I think people honestly just want to see me as a mum and married and barefoot and pregnant in the kitchen. And I just want to say, ‘Everybody, relax! It’s going to happen.’
+ - People who avoid the brick walls – all power to ya, but we all have to hit them sometimes in order to push through to the next level, to evolve.
+ - I remember dreaming about it, about being on TV. I remember seeing Children of a Lesser God on Broadway. I was sitting in the second or third row, and I was just so blown away, and I walked out saying, ‘That’s what I want to do.’
+ - If you only love 70% of yourself, that’s what is going to come back to you.
+ - I think there’s something so wonderful about being part of the process from the seed of the idea to seeing it come to life on a screen. And to have a hand in that creatively, not just showing up as an actor for hire.
+ - I really love comedy. I love making people laugh. But other things also appeal to me.
+ - I think it’s always important to reflect anyway, no matter what age you’re approaching or what milestone is in front of you. Reflection should be almost a daily thing if possible.
+ - If yoga didn’t exist, I’d invent it.
+ - The gift of my childhood was laughter, being able to find the humor.
+ - Really try to follow what it is that you want to do and what your heart is telling you to do.
+ - I am a creature of habit.
+ - I think you miss out on a lot of stuff when you’re so protected and isolated.
+ - When your parents split up, it’s impossible to delude yourself about fairytale romance and happy endings.
+ - People laugh at me. Sometimes I know why, and sometimes I don’t. But I can pretty much find humor in anything. That is a necessary part of life. I don’t want to say laughter is healing, because it sounds corny, but it’s a release.
+ - I feel sexy in my jeans and wearing my boyfriend’s T-shirt.
+ - True love brings up everything – you’re allowing a mirror to be held up to you daily.
+ - Yoga changed my life. Have fun and work hard because it will totally pay off.
+ - If You’re Not Happy, You Can Become Happy. Happiness Is a Choice.
+ - Women are realizing it more and more knowing that they don’t have to settle with a man just to have that child. Times have changed and that is also what is amazing is that we do have so many options these days.
+ - I’m a Pilates person. It’s great. I had a hip problem. I had a chronic back, a pinched nerve and a hip problem and it’s completely solved all of it. I love it. It makes me feel like I’m taller.
+ - Being “America’s Sweetheart”, that label gets put on a lot of people. I don’t pay that much attention. And I’m not trying to shake anything. I’m just following my instincts and doing work that is coming to me and I’m just grateful for it.
+ - Because I was never a ‘where do you see yourself in five years’ person. I had no idea, and I didn’t have a checklist, which really creates a lot less stress in your life.
+ - The media create this wonderful illusion-but the amount of airbrushing that goes into those beauty magazines-the hours of hair and makeup! It’s impossible to live up to, because it’s not real.
+ - I absolutely get more comfortable in my body and my skin as I get older, more than when I was in my 20s.
+ - I’d love to say I’m an accomplished cook, but I don’t have any signature dishes. I’m good at breakfast – I make great eggs. My father gave me a little recipe. It’s all in the seasoning. But it’s a Greek secret. I won’t give it away!
+ - It would be great to have a little getaway place somewhere hot, maybe down in Mexico, since I love it there. But now that I’ve banned myself from the sun, I don’t know how that will work.
+ - As I get older I realize what qualities are important in love and what suits me. And what I won’t settle for.
+ - I was a dumpy teenager. My mum was a model and was all about looks, so I rebelled by going goth. It took me years of peeling back the onion to finally stop using make-up as a mask and feel comfortable in my skin.
+ - People who do comedy are always underrated because they make it look so easy.
+ - My world. My rules. I would command everyone to do so many things! Be kind. Oh, I would command everyone to stop buying tabloids!
+ - She’s been there for me in a lot of ways, and she really is just the most dependable and loyal and funny as all get out. I mean, she just cracks me up. Constantly.
+ - I don’t have a religion. I believe in a God. I don’t know what it looks like but it’s MY god. My own interpretation of the supernatural.
+ - I will always speak my mind.
+ - In high school there were so many Jennifers, I had all sorts of names, including Jo-Jen, Jenna, Jenna-Bean, and Jenny A.
+ - We’re all with Friends until Friends dies. If one of us goes, we all go. One of us wouldn’t leave. It wouldn’t be the show it is without each of us.
+ - Yoga calms me down. It gives me energy and focus.
+ - That’s not a rat, that’s my ferret.
+ - I read a lot of scripts that I just don’t find very funny.
+ - I love acting, but being an actor for hire only serves so much, and then you want to fill your well up again and be charged by something else.
+ - I’ve been lucky to have things come to me that creatively fulfill me, and those are usually the independent films just because you have a little bit more freedom.
+ - To talk about a relationship trivializes something that’s nobody’s business.
+ - When I come residence from an evening out with my honey and my make-up’s just a little smudged. I have many moments when I really feel lovely. It’s all about having that inside confidence.
+ - Being this side of 40 feels like what I should have felt being this side of 25: in my body, in my heart, happy with my life, and OK with whatever bumps in the road present themselves.
+ - I was somebody who never loved my hair. I had curly hair and wished it was straight.
+ - Everybody relates to having a dream.
+ - I support women, men, anybody who is in a place that’s not their strongest and who is ready to push forward.
+ - I’m a bit of a clothes hoarder, admittedly. I try to weed out stuff. My girlfriends come over for cheese and wine and go shopping in my wardrobe. They especially love it when they get stuff with a tag still on.
+ - I’m not a role model or the poster child for how to do anything.
+ - I can’t write. I would love to. I don’t really have an interest in it, to be honest. I’ll leave that to my fiance.
+ - Something about family and trying to relate it to the movie with, ‘Oh, if I was to have a child how many kids do I want?’ And ‘do I want a boy or a girl?’ I didn’t realize you could place orders, I honestly didn’t realize it was like a drive-through, that you could talk to a little electronic voice.
+ - There is nothing you can control about love.
+ - My dog didn’t like me very much. My first dog, Dmitri, was a poodle. I used to think Dmitri was something I could play with and ride. I tried to ride a poodle. And then he bit me.
+ - I enjoy it once in a while. There is nothing wrong with that. Everything in moderation. I wouldn’t call myself a pot-head.
+ - I actually feel I’ve been unbelievably lucky in love.
+ - I really kind of pride myself on figuring stuff out pretty quickly but I couldn’t, couldn’t. I just had no idea.
+ - I think that’s the great thing about being with, having a dog, is it kind of forces you to be in the present because that’s definitely where they’re spending their time.
+ - When you’re doing a movie, you’re in a vacuum, just going, “Well, that’s done. Let’s see what happens.”
+ - I’m lucky if I write a letter.
+ - The ultimate is finding a place where you have no inhibitions, nothing to hide, where you can learn with one another.
+ - There was the period where I wanted to be a therapist, if the acting thing didn’t work. That was pretty much it. I don’t know why. I was just always the girl that people would come and talk to about their problems.
+ - Oh gosh, I noticed dramatic changes in my body after I started doing yoga, but I also think you have to shake things up.
+ - It’s a really nice thing to have so many fans and people that really care.
+ - I really feel lovely when I get up with my sweetheart. When I depart a photograph shoot, as a result of someway miracles have been labored.
+ - I really do believe it you can live through remodeling a home, you can live the rest of your lives together.
+ - If we can say, ‘I loved, and I received a lot of love,’ then great. That’s enough.
+ - As women, we do feel like we have to live up to an expectation, whether it’s on camera or going to the market or whatever it is. And the truth of the matter is, that’s not always the way it is. We don’t always have our high heels on, we don’t always have our makeup on.
+ - When I first got an agent, they gave me some advice – lose weight.
+ - As an adult, I can’t blame my parents any more.
+ - I love clothes, but I don’t know what to put on myself, let alone others. I have a lot of help getting dressed.
+ - As a teenager, I was an enormous fan of Valerie Bertinelli’s hair.
+ - I entertain for a living, and I entertain.
+ - Everybody who has ever been snubbed, you know that is very humiliating.
+ - The thing about chemistry, it’s sort of you get along with a person and then sort of if the movie does well, then you have great chemistry.
+ - There are a lot of movies that are unbelievable successes that I would be mortified to be a part of.
+
+97 quotes

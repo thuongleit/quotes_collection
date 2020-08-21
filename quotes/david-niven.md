@@ -1,0 +1,30 @@
+ - Never stop learning and adapting. The world will always be changing. If you limit yourself to what you knew and what you were comfortable with earlier in your life, you will grow increasingly frustrated with your surroundings as you age.
+ - Dreams don’t have an expiration date.
+ - I see my purpose in life as making the world a happier place to be in.
+ - But Champagne is not drinking.
+ - Keep the circus going inside you, keep it going, don’t take anything too seriously, it’ll all work out in the end.
+ - True leadership strengthens the followers. It is a process of teaching, setting an example, and empowering others. If you seek to lead, your ability will ultimately be measured in the successes of those around you.
+ - Old age has got to start creeping up on me one day soon, and frankly I’m very scared. I don’t want to be old. I’ve always felt so young. And I want to stay that way.
+ - If you could do something that would make people happy, and it would cost you neither money nor time, would you do it? If that same thing made you happy, would you do it? What is this magical thing that will brighten your day and the days of people around you and yet cost you nothing? A smile.
+ - I wonder why it is, that young men are always cautioned against bad girls. Anyone can handle a bad girl. It’s the good girls men should be warned against.
+ - You can count on Errol Flynn, he’ll always let you down.
+ - Tomorrow, Trubshawe, I am going to get married again, thereby quite possibly making the greatest mistake of my life.
+ - Malta is a sod of a place.
+ - Ultra competitive people who always need to win end up enjoying things less.
+ - Tell me that I misunderstood a joke, but don’t tell me that my choice of cravat is wrong.
+ - Champagne offers a minimum of alcohol and a maximum of companionship.
+ - Watching too much TV can triple our hunger for more possessions, while reducing our personal contentment by about 5 percent for every hour a day we watch.
+ - Do something today that reflects who you are, what you are capable of, what you care about. Give yourself plenty of evidence of what you can do, and you will not doubt your abilities to do anything.
+ - I have a face that is a cross between two pounds of halibut and an explosion in an old clothes closet.
+ - Isn’t it fascinating to think that probably the only laugh that man will ever get in his life is by stripping off and showing his shortcomings?
+ - A philosopher once noted that people long for immortality but run out of things to do on a rainy afternoon.
+ - There are wonderful people out there but also wonderful people right here.
+ - I make two movies a year to take care of the butcher and the baker and the school fees. Then I try to write, but it’s not that easy. Acting is what’s easy.
+ - Stardom is like making love in a hammock – a happy experience but one of uncertain duration.
+ - I’ve been lucky enough to win an Oscar, write a best-seller – my other dream would be to have a painting in the Louvre. The only way that’s going to happen is if I paint a dirty one on the wall of the gentlemen’s lavatory.
+ - Going to war was the only unselfish thing I have ever done for humanity.
+ - Actors don’t retire. They just get offered fewer roles.
+ - I enjoy reality as much as the next man. It’s just that in my case, fortunately, reality includes a good stiff belt every now and then.
+ - This is a terrible confession to make, but after I left the Army I had a number of things to try. I had a great conceit to think that if all else failed I could always go to Hollywood. So when all else did fail I really went to Hollywood. And then I found out how wrong I was.
+
+28 quotes

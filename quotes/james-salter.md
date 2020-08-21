@@ -1,0 +1,57 @@
+ - Women fall in love when they get to know you. Men are just the opposite. When they finally know you they’re ready to leave.
+ - In 1957, I decided: write or perish.
+ - If you write enough, you begin to learn to do things. But in a way, you do start from zero each time.
+ - There comes a time when you realize that everything is a dream, and only those things preserved in writing have any possibility of being real.
+ - God is the God of the people who are at their wits end, who are right up against it with their backs to the wall, and He delights to come to our help when we need Him most.
+ - Your parents are the parents you know best. Your brother and sister, if you have them, are the brother and sister you know best. They may not be the ones you like the best. They may not be the most interesting, but they are the closest and probably the clearest to you.
+ - I deem as heroic those who have the harder task, face it unflinchingly and live. In this world women do that.
+ - One alters the past to form the future but there is a real significance to the pattern which finally appears, which resists all further change.
+ - Age doesn’t arrive slowly, it comes in a rush. One day nothing has changed, a week later, everything has. A week may be too long a time, it can happen overnight. You are the same and still the same and suddenly one morning two distinct lines, ineradicable, have appeared at the corners of your mouth.
+ - There is no complete life. There are only fragments. We are born to have nothing, to have it pour through our hands. And yet, this pouring, this flood of encounters, struggles, dreams...
+ - The dreams are the skeleton of all reality.
+ - He liked to read with the silence and the golden color of the whiskey as his companions. He liked food, people, talk, but reading was an inexhaustible pleasure. What the joys of music were to others, words on a page were to him.
+ - Sometimes you are aware when your great moments are happening, and sometimes they rise from the past. Perhaps it’s the same with people.
+ - They are travelling cheaply, with that touch of indolence and occasional luxury that comes only from having real resources. They live in Levis and sunlight. Sometimes they brush their teeth in streams.
+ - Why is it so difficult to assemble those things that really matter in life and to dwell among them only? I am referring to certain landscapes, persons, beasts, books, rooms, meteorological conditions, fruits.
+ - Love must wait; it must break one’s bones.
+ - The normal economic system works itself.
+ - I don’t fear death. I’m not obsessed with it the way everybody else seems to be.
+ - The summer has ended. The garden withers. The mornings become chill. I am thirty, I am thirty-four -the years turn dry as leaves.
+ - Dresscodes are for styleless people.
+ - I like aristocracy. I like the beauty of aristocracy. I like the hierarchical feeling.
+ - A light snow, a snow so faint and small-bodied that it seems nothing more than a manifestation of the cold.
+ - Now they are lovers. The first, wild courses are ended. They have founded their domain. A satanic happiness follows.
+ - You are perfectly entitled to invent your life and to claim that it’s true.
+ - One should not believe too strongly in a life which can easily vanish.
+ - As I look back, I see that life is like a game of solitaire and every once in a while there is a move.
+ - To write? Because all this is going to vanish. The only thing left will be the prose and poems, the books, what is written down. Man was very fortunate to have invented the book. Without it the past would completely vanish, and we would be left with nothing, we would be naked on earth.
+ - I like men who have known the best and the worst, whose life has been anything but a smooth trip. Storms have battered them, they have lain, sometimes for months on end, becalmed. There is a residue even if they fail. It has not been all tinkling; there have been grand chords.
+ - Events need their invitation, dissolutions their start.
+ - The myriad past, it enters us and disappears. Except that within it, somewhere, like diamonds, exist the fragments that refuse to be consumed. Sifting through, if one dares, and collecting them, one discovers the true design.
+ - What is the ultimate impulse to write? Because all this is going to vanish.
+ - I don’t hold myself dictated to by what everyone is saying, by the tabloids or popular opinion. I don’t like bourgeois values. I say you find your own way to live.
+ - You’re so American. You believe everything is possible, everything will come. I know differently.
+ - Solitude. One knows instinctively it has benefits that must be more deeply satisfying than those of other conditions, but still it is difficult.
+ - Happiness is often at its most intense when it is based on inequality.
+ - I’m a frotteur, someone who likes to rub words in his hand, to turn them around and feel them, to wonder if that really is the best word possible.
+ - We were moderate, we will never know what it is to spill out our lives...
+ - A film writer is very much like a party girl. While you’re good-looking and still unlined, the possibilities seem endless. But your appeal doesn’t last long and you’re quickly discarded.
+ - In a certain sense, a writer is an exile, an outsider, always reporting on things, and it is part of his life to keep on the move. Travel is natural.
+ - I write down portions, maybe fragments, and perhaps an imperfect view of what Im hoping to write. Out of that, I keep trying to find exactly what I want.
+ - The whole joy of writing comes from the opportunity to go over it and make it good, one way or another.
+ - Not necessarily narrow so much as impatient, intense.
+ - Lots of scripts are written and not made, even scripts that people want to make.
+ - You can write about other people and their ideas and life without having lived it, but even your perception of that is going to be colored by what you know and what you experience. And this is undeniable.
+ - It’s tremendous: this world, this life. Take it while you have it.
+ - It’s just that it’s hard to believe in greatness...
+ - On the Internet, everyone is writing. There is a great flowering of writing.
+ - I like to write about certain things that if they are not written about are not going to exist.
+ - But that isn’t my life. I have said many times I don’t want to be considered one who once flew fighters. That’s not who I am. I devoted the subsequent 50 years – more – to writing.
+ - Hope but not enthusiasm is the proper state for the writer.
+ - It is always an accident that saves us. It is someone we have never seen.
+ - I am afraid of him, of all men who are successful in love.
+ - I always knew writing a novel was a great thing.
+ - My idea of writing is of unflinching and continual effort, somehow trying to find the right words until you reach a point where you can make no further progress and you either have something or you don’t.
+ - I’d say the biggest relationship is the repetition of certain themes. I don’t want to say “topics,” but certain points of interest.
+
+55 quotes

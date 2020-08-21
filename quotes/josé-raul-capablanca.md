@@ -1,0 +1,34 @@
+ - A good player is always lucky.
+ - You may learn much more from a game you lose than from a game you win. You will have to lose hundreds of games before becoming a good player.
+ - In order to improve your game, you must study the endgame before everything else. For whereas the endings can be studied and mastered by themselves, the middle game and opening must be studied in relation to the end game.
+ - The winning of a pawn among good players of even strength often means the winning of the game.
+ - To improve at chess you should in the first instance study the endgame.
+ - Chess books should be used as we use glasses: to assist the sight, although some players make use of them as if they thought they conferred sight.
+ - Chess is a very logical game and it is the man who can reason most logically and profoundly in it that ought to win.
+ - People who want to improve should take their defeats as lessons, and endeavor to learn what to avoid in the future. You must also have the courage of your convictions. If you think your move is good, make it.
+ - Chess is something more than a game. It is an intellectual diversion which has certain artistic qualities and many scientific elements.
+ - Sultan Khan had become champion of India at Indian chess and he learned the rules of our form of chess at a later date. The fact that even under such conditions he succeeded in becoming champion reveals a genius for chess which is nothing short of extraordinary.
+ - In order to improve your game, you must study the Endgame before everything else.
+ - As one by one I mowed them down, my superiority soon became apparent.
+ - Endings of one rook and pawns are about the most common sort of endings arising on the chess board. Yet though they do occur so often, few have mastered them thoroughly. They are often of a very difficult nature, and sometimes while apparently very simple they are in reality extremely intricate.
+ - Excellent! I will still be in time for the ballet!
+ - The great World Champions Morphy, Steinitz, and Lasker were past masters in the art of Pawn play; they had no superiors in their handling of endgames. The present World Champion has not the strength of the other three as an endgame player, and is therefore inferior to them.
+ - To my way of thinking, Troitzky has no peer among endgame compsers; no one else has composed so many and such varied endings of the first rank.
+ - The king, which during the opening and middlegame stage is often a burden because it has to be defended, becomes in the endgame a very important and aggressive piece, and the beginner should realize this, and utilize his king as much as possible.
+ - An hour’s history of two minds is well told in a game of chess.
+ - Morphy gained most of his wins by playing directly and simply, and it is simple and logical method that constitutes the true brilliance of his play, if it is considered from the viewpoint of the great masters.
+ - When you sit down to play a game you should think only about the position, but not about the opponent. Whether chess is regarded as a science, or an art, or a sport, all the same psychology bears no relation to it and only stands in the way of real chess.
+ - Alekhine evidently possesses the most remarkable chess memory that has ever existed. It is said that he remembers by heart all the games played by the leading masters during the last 15-20 years.
+ - The best way to learn endings, as well as openings, is from the games of the masters.
+ - None of the great players has been so incomprehensible to the majority of amateurs and even masters, as Emanuel Lasker.
+ - The weaker the player the more terrible the Knight is to him, but as a player increases in strength the value of the Bishop becomes more evident to him, and of course there is, or should be, a corresponding decease in his estimation of the value of the Knight as compared to the bishop.
+ - I have not given any drawn or lost games, because I thought them inadequate to the purpose of the book.
+ - During the course of many years I have observed that a great number of doctors, lawyers, and important businessmen make a habit of visiting a chess club during the late afternoon or evening to relax and find relief from the preoccupations of their work.
+ - In chess, as played by a good player, logic and imagination must go hand in hand, compensating each other.
+ - Although the Knight is generally considered to be on a par with the Bishop in strength, the latter piece is somehat stronger in the majority of cases in which they are opposed to each other.
+ - The game might be divided into three parts, the opening, the middle-game and the end-game. There is one thing you must strive for, to be equally efficient in the three parts.
+ - A passed pawn increase in strength as the number of pieces on the board diminishes.
+ - It was Steinitz who was the first to establish the basic principles of general chess strategy. He was a pioneer and one of the most profound researchers into the thruth of the game, which was hidden from his contemporaries.
+ - Ninety percent of the book variations have no great value, because either they contain mistakes or they are based on fallacious assumptions; just forget about the openings and spend all that time on the endings.
+
+32 quotes

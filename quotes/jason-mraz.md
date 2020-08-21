@@ -1,0 +1,193 @@
+ - Hold your own. Know your name. And go your own way. And everything will be fine.
+ - I won’t give up. Even if the skies get rough.
+ - Lucky to have been where I have been.
+ - You win some, you learn some.
+ - Don’t let your mind stop you from having a good time.
+ - You can turn off the sun, but I’m still gonna shine.
+ - There’s no shame in being crazy...
+ - You don’t need a vacation when there’s nothing to escape from.
+ - Cause even the stars they burn, some even fall to the earth. We’ve got a lot to learn, God knows we’re worth it.
+ - When hands are joined, no one can point fingers.
+ - Well, I won’t give up on us, Even if the skies get rough I’m giving you all my love, I’m still looking up.
+ - Music is a weapon in the war against unhappiness.
+ - Life can’t work for you if you don’t show up as you.
+ - Live High, Live Mighty, Live Righteously.
+ - I’m lucky I’m in love with my best friend Lucky to have been where I have been Lucky to be coming home again.
+ - It takes some silence to make sound.
+ - If it’s a broken part, replace it. If it’s a broken arm then brace it. If it’s a broken heart, then face it.
+ - You’re not obligated to win. You’re obligated to keep trying. To the best you can do everyday.
+ - It takes no time to fall in love, but it takes you years to know what love is.
+ - Just take it easy and celebrate the malleable reality. You see, nothing is ever at is seems, yeah this life is but a dream.
+ - When you choose to be a loving person, it’s magical how love comes back to you and brightens someone’s day, changing your mood and that of the world.
+ - The measure of your character is not what you do when people are looking. It’s what you do when you think no one is looking.
+ - Life doesn’t come at you. It comes from you.
+ - Sometimes people forget their own greatness.
+ - It’s our God forsaken right to be loved, loved, loved.
+ - Two halves don’t make a whole. Two wholes make a whole.
+ - I’m dreaming of sleeping next to you and feeling like a lost little boy in a brand new town I’m counting my sheep and each one that passes is another dream to ashes And they all fall down. – Sleeping to Dream.
+ - If you got the poison, I’ve got the remedy.
+ - I call it sacred geometry. When everything’s just right and it feels really balanced, so that when it unfolds to the next part, you feel totally familiar and at ease within the song.
+ - Open up your plans and damn you’re free!
+ - For every action there’s a reaction. And also, for every action there’s an equal and opposite criticism.
+ - EVERYTHING is love, so the only thing that’s not love is our resistance to love, is us trying to be separate from the world.
+ - In the words of Michael Jackson: I’m a lover, not a fighter.
+ - If you have a dream, this is your chance. We don’t always have to play it safe because people might think you’re weird.
+ - The rules of life are made up. The rules only exist in your mind.
+ - I love surprises and coincidences. I love them even more when I don’t pass them off as luck, but rather recognize them as a sign that my life’s course is right on track.
+ - Transformation is my favorite game and in my experience, anger and frustration are the result of you not being authentic somewhere in your life or with someone in your life. Being fake about anything creates a block inside of you. Life can’t work for you if you don’t show up as you.
+ - I discovered at 18 that singing and songwriting was my strength. I decided that it was closest to my heart and if I pursued it then there would be no competition. I would just live my life being myself and living my dream.
+ - It’s strange how dreams get under your skin and give your heart a test for what’s real and what’s imaginary.
+ - Equality and separation cannot exist in the same space.
+ - Some people they simply just want to hear you. And others actually have things they want to share and talk with you about. So it’s important for me to be as strong as I can when I leave home so I can hold space for all of it.
+ - Here’s to freedom, cheers to art. Here’s to having an excellent adventure and may the stopping never start.
+ - I love surfing and bodysurfing. I love getting slammed by the waves – that makes me feel alive. The waves are a good reminder that I’m small and fragile.
+ - Last weekend a young man asked me how I remain so positive. “It seems all the negativity in the world doesn’t affect you,” he said. I had no more than a minute with the young man so I offered this: It’s all about where you choose to put your attention, and I choose to be happy.
+ - Surrender to life itself and you’ll just be rewarded with so many things. And I’ve been rewarded so many times, in so many mysterious ways. So I have no reason to be disappointed with anything.
+ - Traveling has a major impact on what I do, cause all over the world I’m meeting all kinds of people. And relationships is the second major impact that I have. I just enjoy the variety that the world has to offer.
+ - So often the woman forgets her own greatness and she goes a little bat sh – crazy sometimes. So its up to the other half to love that person back into the person we know them to be.
+ - Music is my way to shine back and express positive vibrations for a common healing. It’s similar to farming, or surfing, or yoga. Before world peace, we have to have inner peace and music helps us get there.
+ - I love getting a smile out of my girlfriend – that makes me feel like I’m seen, or heard.
+ - I am who I am, you are who you are, and everything else is a perception based on acceptance, deception, smoke, mirrors, and so on. It’s what’s between us that seems to justify our accidental identities.
+ - You don’t have to live near the ocean for it to have an impact on you. And you don’t have to live near the ocean for you to have an impact on it.
+ - There’s a certain feeling of giving, a certain feeling of generosity in love songs. When you sing a song of love, you’re actually giving something to yourself, too. You’re singing and casting these affirmations of love out into the universe.
+ - I meet people every single day who have heard the music and incorporated it into their lives. I feel like I have a tribe all around the world.
+ - I’ve come to the conclusion that people who wear headphones while they walk, are much happier, more confident, and more beautiful individuals than someone making the solitary drudge to work without acknowledging their own interests and power.
+ - Creativity is a religion. When you get into it, you will find your life becomes more spiritual.
+ - Humans will always endure suffering – even accepting the fact that we’re going to die will cause us suffering, and from that stems a little pessimism and negativity that all of us are susceptible to.
+ - You come to realize that only one person can tell you what’s expected of you, and that’s you.
+ - Everything in life influences my music. I’ve always used songwriting as a means to share what I think is profound.
+ - When I fall in love I take my time There’s no need to hurry when I’m making up my mind You can turn off the sun but I’m still gonna shine and I’ll tell you why.
+ - The unavoidable kiss, where the minty fresh death breath is sure to outlast his catastrophe.
+ - It’s from being melancholy and having my human down experiences that I learn, that I overcome, that I transform – and these realizations I put into song. That’s what I choose to put in my backpack and carry with me around the world.
+ - I love the sound of the wind in the trees and the song of the birds and the shuffle in the leaves of my many woodland friends.
+ - You’re an island of reality in an ocean of diarrhea.
+ - You can’t live the rest of your life carrying a pain because your parents couldn’t get along. I choose to spend my life crafting a joy.
+ - Two halves don’t make a whole. Two wholes make a whole. In my relationship, I was giving myself away to make the relationship better, but in actuality, wasn’t doing better by doing that. I became less of a man.
+ - When I first started, my message was about joy, but I didn’t really have the vocabulary and life experience to fully deliver it.
+ - I don’t follow any of what the pop world is doing. Sometimes I feel like that’s a weakness, actually, that I’m too in my own bubble. But I’m really just interested in the inner journey. And pop is all about the exterior world, the material.
+ - I love the feeling of putting my feet back on the sand after I’ve been out in the ocean for a while. I love that. I guess the adrenaline calms down when the sense of balance returns in a really grounded way.
+ - Whether or not I tour forever, I’m not sure. I would love to spend more time living in harmony with nature rather than flying all over the world and contributing to global warming, you know what I mean?
+ - In my lifetime, I want to see humanity start being conscious of our waste, the things we buy, and how we can reuse and recycle things. I want people to live harmoniously with our planet. I hope everybody wakes up and appreciates life.
+ - A picture can say 1000 words but it can also inspire you to write 1000 more.
+ - The soil is actually the greatest technology we have for adapting to climate change. And I feel it’s our generation’s duty to build it back up.
+ - Stress is the result of not listening to your heart. If you ignore it for too long, and surrender your power to someone else, your chest will explode with panic. I take plenty of time for me.
+ - Careers can disappear just as quickly as they’re made, so I’m in no hurry.
+ - As things grew for me I felt like I was losing myself and wanted to stay true to myself as well. I didn’t want to lose any connection I had with the audience. I felt small on a big stage and I felt like I was peaking generically to an audience.
+ - Our shows are packed with laughter and light-hearted songs to lift the listener from their everyday life. We encourage the audience to participate in any way.
+ - I had always been singing, all of my life, but it wasn’t until I got out of high school and was on my own that I didn’t have any accompaniment.
+ - I’m a lover, not a fighter. No battles for me.
+ - The more I travel around the world, the more I see people want the same thing – to be happy. We wouldn’t be in a monetary system if we didn’t have to work, so if my music can contribute to happiness, then that’s my main responsibility.
+ - When I look back at what musical theatre music and show music meant to me, first of all – more than anything – what it meant to me was work. As I was growing up, I realized that singing and performing was my strong suit.
+ - My goal is to show everyone that they, too, can do what they love to do.
+ - Being out in nature inspires me as a writer.
+ - We have the ability to manifest our thoughts: to actually say something and express what our feelings are. That, then, transforms the world and puts something into action.
+ - In a song you can shine a light on a topic and with your voice at a concert you can shine a light on an actual issue or a person, you can acknowledge whatever you like with music and people will listen.
+ - I write my miserable songs. I write songs about disgust and self-pity. We’re all going to have bummer moments. That’s not the stuff I choose to share.
+ - The power of yes: that’s what allows creativity to breathe and to come in. That’s what allows your ideas to become living, breathing, moving dreams in action.
+ - I know that if I do the right amount of, say, meditation and hot yoga or something, I can move the energy through my body and get rid of my cold within twenty-four hours.
+ - Anything that we’re connecting with that’s happening right now, there’s an obvious vulnerability – because we’re just fragile human beings in the middle of a just-now expression.
+ - One thing I’m most passionate about is that I’m geared up and ready for another cycle of touring, to go out in the world and be whoever I need to be for someone.
+ - How we treat food is how we treat ourselves. Eating and buying organic means we’re committed to a healthier world overall. It’s good karma.
+ - Songs always get better after you start playing them live.
+ - If you are what you eat, in my case, I’d be sweet so come and get some.
+ - Creating the record is like digging up the earth, planting your seeds and waiting to see what happens.
+ - I still go through stages of wanting to try other trades. When I was young I thought I’d be a magician. And then a cartoonist. Or a professional roller-skater. But there wasn’t much support for those on career day.
+ - I’ve been fortunate to view the world as if Tom Cruise is constantly walking in front of me on his way across a tarmac before an aerial dogfight. I’m speaking cinematically here. The homoeroticism was an accident that I wont dismiss.
+ - I’m trying to be more of a gentleman.
+ - If you have nothing but love for your avocados, and you take joy in turning them into guacamole, all you need is someone to share it with.
+ - I’m not always a positive person. I wake up grumpy, I read the newspaper and I get furious that the world is still at war.
+ - In case you never noticed, the path you never chose has chosen you.
+ - Everything is perfect. Everything is fine. The rules of life are made up. The rules only exist in your mind. Of course there may be courtesies And closures and laws to abide, But the zeal with which you play Relies on where YOU draw the line.
+ - New York City has the most beautiful women.
+ - I listened to the radio, so I was influenced by everyone from Michael Jackson to Milli Vanilli. But thankfully my dad had a collection of Cat Stevens albums while my mom was listening to jazz.
+ - For the first thirty years of my life I exercised very little, and I smoked cigarettes for ten or twelve years, and I ate junk food. And I began to see some elders in my community’s health decline, and I didn’t want that to happen to me.
+ - I get tired of the same albums, the same look and singing the same songs. When I get bored I paint, I plant trees and just do something different. I get far away from singing.
+ - Well, for me, what I’ve learned at the very end of this, love is sharing, and I think that really is, for me, the best place to go to experience love, is sharing.
+ - It’s when you cry just a little, but you laugh in the middle that you’ve made it.
+ - I’m a self-taught musician so how I read music is kind of very weak and I kind of read my own version of tablature, I write my own crappy reminders on what I’m playing.
+ - I think surprises are what’s great about life: “WHOA! I didn’t see that coming!”
+ - Performing live is like harvesting your crops and sharing your food with people.
+ - When we all sing in unison – sing in harmony – things come to us on levels that are much deeper than can be seen by the naked eye. Much deeper than even our subconscious. Things are happening.
+ - Are you prepared to take a dive into the deep end of my head?
+ - You make all the fashion statements just by dressing up your mind.
+ - When I was in high school, The Dave Matthews Band was a local band, and that was the first time I was starting to connect with a live band that was something that wasn’t on the radio or TV.
+ - What I enjoy the most about all this is the traveling. I love that my job allows me to travel all over the world.
+ - When I sit down to write a song, I really want the message of healing to thrive and transcend all ages.
+ - I have always wanted to do an acoustic record from the very beginning of my career. I was a coffeeshop artist where everything I did was acoustic.
+ - I want to be surrounded by women, I want to be snuggled and cuddled and pampered.
+ - Whenever there’s a camera in my face, that’s when I feel vulnerable, and then it turns into a little bit of being self-conscious, which I think is the worst kind of vulnerability.
+ - The studio and road both have their charms. The studio allows me to be a mad scientist and the tour lets me feel like James Bond.
+ - I recently read that it’s the left brain that does all that calculating, and the right brain that does the poetry. Somehow I’ve veered way towards the left. I’ve been doing it for years. Maybe I do art to balance it out.
+ - To create an album of love, I really had – I thought it was going to be easy, because I’ve always written love songs. But I thought if I really want to make a love album that contributes, that actually means something, I’ve got to go deep.
+ - You’re letting go of having the best possible experience you can have regardless of who you are and where you are. I think that can be applied to all things, but it’s easier said than done.
+ - What I get on a yoga mat, and from a yoga teacher, has been more beneficial onstage than any other workshop I’ve ever done.
+ - I think anyone who uses the web is smart and will profit.
+ - My memory is not so good so my most memorable show is the last one I played. Songs are written with intention but they only emerge in the moment.
+ - I came from Mechanicsville, Virginia, where you have four seasons.
+ - But that guitar is the perfect companion to the human voice. You rest it against your gut, against your heart, and when you strum it the vibrations go outwards for all to hear, but the vibration also hits you on your body.
+ - When all of us are acknowledged as the human equals that we really are, there will be no space left for bullying. It will no longer be wrong to choose one thing over another.
+ - I buy records from all across the board. I get kind of a hybrid of influences in my own music.
+ - I think more obvious to others, is that I’m most vulnerable on stage. Even though I know which songs I’m going to play, I try and keep it loose and base my stage time more on what the audience is requesting of me.
+ - It’s through my health that I’m able to maintain that every single day and keep light in people until I’m actually of service to others.
+ - I get my most creative energy after a show, so I love to go back to the hotel and compose new material. I generally do it in a rush. I have to get it out, otherwise I can’t sleep.
+ - When I have a breakthrough in music and I hear the melody in my hands: that’s when I get compelled – something in my gut just has to rise up and sing and put something to that.
+ - It makes me feel great, knowing my songs are being heard and of service to people.
+ - I hope everyone wakes up and appreciates life.
+ - Getting on stage is a bonus, that’s my therapy, that’s when I can tell stories and it all makes sense.
+ - Musicians are so well covered in the press, it would be great to see more outspoken practitioners of green life.
+ - Sometimes you forget where the heck you are but when you get on stage, you know by the look on the people’s faces and the accent in their voices where you might be.
+ - I really want to be able to keep going and I realize that in some aspects I’ve got to treat myself like an athlete.
+ - I’ll experience vulnerability when I just don’t have any more to give.
+ - I had to have a lot of jobs until I was supporting myself through music, but I knew that those jobs were all leading me to something. It was all about taking things one step at a time, one day at a time.
+ - My parents were always very supportive and accepting. They even shared my curiosity for life, or perhaps I theirs.
+ - I’m totally into new age and self-help books. I used to work in a bookstore and that’s the section they gave me, and I got way into it. I just loved the power of positive thinking, letting yourself go.
+ - If i were to lose my memories, I would rely on music. There is so much of my story embedded in each.
+ - The foolish idea that my music can actually make a difference in someone’s life – that right there is proof that it’s working. It makes me feel great, it really does.
+ - I just loved the power of positive thinking, letting yourself go.
+ - Paul McCartney and John Lennon would often write a song a day, so I have the same workmanlike philosophy.
+ - You know, there’s still a lot of great songwriters out there who hand in songs. And there’s a lot of brilliant singers and performers out there who sing other people’s words. I enjoy doing both.
+ - Other people’s lives are affected by how you are treating yourself and the way in which you are performing.
+ - I was looking for inspiration. I found it in California. The weather was always great, and the majority of San Diego seemed to be youth-and if you weren’t 21 and couldn’t get into the clubs, you’d go to a coffeehouse and hang out.
+ - Being a human means waking up in this world, where we all have to work and slog to put food on the table.
+ - By the end of the writing process, which is about 80 songs per album, I look at the material and think, what’s going to make a difference in someone’s life.
+ - Well, I’ve been happily supporting myself for ten years now on the hustle and trade of live entertainment. I guess my breakthrough moment was when I decided to go for it once and for all.
+ - I try not to write songs. I would rather emote them, and I found myself going back to my room every night while on my trip, just pouring out new songs and new stories about what I was seeing, what I was feeling.
+ - I would enjoy doing what cats do: singing, sleeping, and licking my nuts.
+ - As an American citizen, one has to vote.
+ - My parents dreaded the fact that I was changing my life to do this, but I just kept doing it.
+ - As an American citizen, one has to vote. If we don’t vote, we’re not doing our part. We’ll become some sort of oligarchy.
+ - I’m always thinking about the next record. I’ve got like 20 different themes and then I’ll scratch the themes. It’s a learning process.
+ - My days could be described as an ever changing palette of blues, greens, browns, and golds. Mostly because of surfing and garden-gazing. On tour, the colors are desaturated by florescent lights and dull grey carpets.
+ - Genre-spanning is the effort to make the live show interesting. It’s also a great way to challenge yourself as a writer.
+ - Quite simply I’ve distilled my mission down to the essence. The only thing I’m really here to do is shine light on people’s lives through music, through laughter and to simply enjoy being with people.
+ - I’ve always used songwriting as a way to help me organise reality.
+ - I was raised playing music in coffeehouses and I feel that was the foundation for my career. I think it is important that we remember where we came from.
+ - If I’m in a relationship, that girl gets showered with letters from the road. I pour my heart into it.
+ - I didn’t want to be a headshot and get a chance to go compete to sing-that’s not me.
+ - Free downloads is something that I like to do its just not as publicised and it is the future of music.
+ - My dad is still the only Mraz in the Mechanicsville phone book, so he’s getting calls from girls to see if I’m home!
+ - Music is such a powerful fundraising tool and it’s so easy for me to share that and it’s such a light.
+ - I basically had the idea when I was 18 that I wanted to write my own songs. I knew it was going to be a long, tough road, and I was like, if I just begin now, by the time I’m 40, I’ll be good at it.
+ - I do feel most at home playing live, but the feeling of getting into the studio to see the new songs take shape was really incredible.
+ - I’ve been compared to people since the beginning. When you’re starting out, you need a comparison so people will understand you right away.
+ - A lot of those ideal towns are all starting to look the same, the specifics are starting to disappear. So we need to retain a love for life, a love for one’s family, a love for where one’s really from.
+ - To create an album of 12 songs, I’ve got to write about 80 songs. Half of those are totally weird and rubbish.
+ - Love is the only thing that makes the world spin around, I think. It’s weird. We have to call it “love,” because we have to call it something, but it’s not a word. It’s an energy. It’s an act. It’s an action. It’s a natural thing.
+ - Timeless comes to mind. When you listen to it, you can’t tell what year the thing was made. And you don’t even care.
+ - The easiest songs to write are pure fiction. There is no limit to how you can tell the story. I find it difficult when I’m replaying an event through a song.
+ - I feel like I write the same album every time but each time I try to convey the message more simply.
+ - I look around my life and it’s hard to believe that music has given me all that I have.
+ - I can’t predict what songs will do to the collective consciousness.
+ - I aim to write songs in a way that you don’t have to have gone to Ghana to relate to it, you really just have to have a heart.
+ - I had never made a record before, so I didn’t know anything about it. I don’t know anything about knobs, frequencies, tones.
+ - Everything in life influences my music.
+ - I would love to blog daily but I have not been making time for it because my internet is very slow. Everyone should make time for writing.
+ - There’s nothing more vulnerable than just standing in front of a thousand people, or ten thousand people, and doing your best to entertain them, touch them in some way.
+ - Through my years as a writer, I’ve learnt how to simplify the message and pen songs that have a more specific quality – it’s not just about my ego and trying to meet girls.
+ - I feel at home in intimate concert halls. I can take risks and I’m immediately forgiven if the risk is a failure because it’s such a cozy atmosphere. It opens up the opportunity for conversation and for interacting with the crowd.
+ - Music was always the distraction, so it was the obvious choice to pursue. My dad always said to find a job I love to do, that way it wouldn’t feel like a job. So I did that.
+ - And if you’re singing to someone, or if they’re singing along, and suddenly you’re in harmony, then it’s actually making a huge difference on a subatomic level that is actually transforming the world.
+ - I think especially with the Internet and the amount of reality shows that are going on, there’s no way to keep a secret anymore, so I try to let my project be as much as reality show as I can allow it to be.
+ - The internet is awesome and responsible for my success.
+
+191 quotes

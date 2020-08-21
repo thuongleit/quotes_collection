@@ -1,0 +1,75 @@
+ - He who provides for this life, but takes no care for eternity, is wise for a moment, but a fool forever.
+ - To be able to bear provocation is an argument of great reason, and to forgive it of a great mind.
+ - Our belief or disbelief of a thing does not alter the nature of the thing.
+ - Ignorance and inconsideration are the two great causes of the ruin of mankind.
+ - We anticipate our own happiness, and eat out the heart and sweetness of worldly pleasures by delightful forethought of them.
+ - The crafty person is always in danger; and when they think they walk in the dark, all their pretenses are transparent.
+ - Truth is always consistent with itself, and needs nothing to help it out. It is always near at hand, and sits upon our lips, and is ready to drop out before we are aware; whereas a lie is troublesome, and sets a man’s invention upon the rack; and one trick needs a great many more to make it good.
+ - There is little pleasure in the world that is true and sincere beside the pleasure of doing our duty and doing good.
+ - If God were not a necessary Being of Himself, He might almost seem to be made for the use and benefit of men.
+ - The true ground of most men’s prejudice against the Christian doctrine is because they have no mind to obey it.
+ - How often might a man, after he had jumbled a set of letters in a bag, fling them out upon the ground before they would fall into an exact poem, yea, or so much as make a good discourse in prose? And may not a little book be as easily made by chance as this great volume of the world?
+ - The art of using deceit and cunning grow continually weaker and less effective to the user.
+ - The crime of a bad example is the same whether men follow it or not, because he that gives bad example to others, does what in him lies to draw them into sin; and if they do not follow it, that is no mitigation of his fault.
+ - Sincerity is to speak as we think, to do as we pretend and profess, to perform and make good what we promise, and really to be what we would seem and appear to be.
+ - To be happy is not only to be freed from the pains and diseases of the body, but from anxiety and vexation of spirit; not only to enjoy the pleasures of sense, but peace of conscience and tranquillity of mind.
+ - Zeal is fit for wise men, but flourishes chiefly among fools.
+ - Wickedness is a kind of voluntary frenzy, and a chosen distraction.
+ - Sincerity is like traveling on a plain, beaten road, which commonly brings a man sooner to his journey’s end than by-ways, in which men often lose themselves.
+ - Some things will not bear much zeal; and the more earnest we are about them, the less we recommend ourselves to the approbation of sober and considerate men.
+ - Of all parts of wisdom the practice is the best.
+ - Great is the advantage of patience.
+ - Are we proud and passionate, malicious and revengeful? Is this to be like-minded with Christ, who was meek and lowly?
+ - Next to the wicked lives of men, nothing is so great a disparagement and weakening to religion as the divisions of Christians.
+ - No man’s body is as strong as his appetites, but Heaven has corrected the boundlessness of his voluptuous desires by stinting his strength and contracting his capacities.
+ - Take away God and religion, and men live to no purpose, without proposing any worthy end of life to themselves.
+ - If people would but provide for eternity with the same solicitude and real care as they do for this life, they could not fail of heaven.
+ - If our souls be immortal, this makes amends for the frailties of life and the sufferings of this state.
+ - When a man has once forfeited the reputation of his integrity, he is set fast, and nothing will then serve his turn, neither truth nor falsehood.
+ - True wisdom is a thing very extraordinary. Happy are they that have it: and next to them, not those many that think they have it, but those few that are sensible of their own defects and imperfections, and know that they have it not.
+ - If the show of any thing be good for any thing, I am sure sincerity is better; for why does any man dissemble, or seem to be that which he is not, but because he thinks it good to have such a quality as he pretends to?
+ - Fear is that passion which hath the greatest power over us, and by which God and His laws take the surest hold of us.
+ - Wisdom and understanding are synonymous words; they consist of two propositions, which are not distinct in sense, but one and the same thing variously expressed.
+ - They who are in the highest places, and have the most power, have the least liberty, because they are the most observed.
+ - When men live as if there were no God, it becomes expedient for them that there should be none.
+ - The angriest person in a controversy is the one most liable to be in the wrong.
+ - Men sunk in the greatest darkness imaginable retain some sense and awe of the Deity.
+ - A little wit and a great deal of ill-nature will furnish a man for satire; but the greatest instance of wit is to commend well.
+ - None so nearly disposed to scoffing at religion as those who have accustomed themselves to swear on trifling occasions.
+ - The covetous man heaps up riches, not to enjoy them, but to have them; and starves himself in the midst of plenty, and most unnaturally cheats and robs himself of that which is his own; and makes a hard shift, to be as poor and miserable with a great estate, as any man can be without it.
+ - Abstinence is many times very helpful to the end of religion.
+ - Malice and hatred are very fretting and vexatious, and apt to make our minds sore and uneasy; but he that can moderate these affections will find ease in his mind.
+ - We have no cause to be ashamed of the Gospel of Christ; but the Gospel of Christ may justly be ashamed of us.
+ - It is hard to personate and act a part long; for where Truth is not the bottom, Nature will always be endeavoring to return, and will peep and betray herself one time or other.
+ - There are two restraints which God has laid upon human nature, shame and fear; shame is the weaker, and has place only in those in whom there are some reminders of virtue.
+ - In all the affairs of this world, so much reputation is in reality so much power.
+ - Of all parts of wisdom, the practice is the best. Socrates was esteemed the wisest man of his time because he turned his acquired knowledge into morality, and aimed at goodness more than greatness.
+ - Is not he imprudent, who, seeing the tide making haste towards him apace, will sleep till the sea overwhelms him?
+ - There is no readier way for a man to bring his own worth into question than by endeavoring to detract from the worth of other men.
+ - There is no man that is knowingly wicked but is guilty to himself; and there is no man that carries guilt about him but he receives a sting in his soul.
+ - If they be principles evident of themselves, they need nothing to evidence them.
+ - With the history of Moses no book in the world, in point of antiquity, can contend.
+ - Fill each day with light and heart.
+ - Truth is the shortest and nearest way to our end, carrying us thither in a straight line.
+ - Religion in a magistrate strengthens his authority, because it procures veneration, and gains a reputation to it. In all the affairs of this world, so much reputation is in reality so much power.
+ - Integrity gains strength by use.
+ - The little and short sayings of nice And excellent men are of great value, like the dust of gold, or the least sparks of diamonds.
+ - A good word is an easy obligation; but not to speak ill requires only our silence, which costs us nothing.
+ - Though all afflictions are evils in themselves, yet they are good for us, because they discover to us our disease and tend to our cure.
+ - Whatever convenience may be thought to be in falsehood and dissimulation, it is soon over; but the inconvenience of it is perpetual, because it brings a man under everlasting jealousy and suspicion, so that he is not believed when he speaks the truth, nor trusted when perhaps he means honestly.
+ - Was ever any wicked man free from the stings of a guilty conscience?
+ - Surely modesty never hurt any cause; and the confidence of man seems to me to be much like the wrath of man.
+ - Many man’s scruples lie almost wholly about obedience to authority and compliance with indifferent customs, but very seldom about the dangers of disobedience and unpeaceableness and rending in pieces the Church of Christ by needless separations and endless divisions.
+ - Every man hath greater assurance that God is good and just than he can have of any subtle speculations about predestination and the decrees of God.
+ - Whether religion be true or false, it must be necessarily granted to be the only wise principle and safe hypothesis for a man to live and die by.
+ - He who is sincere hath the easiest task in the world, for, truth being always consistent with itself, he is put to no trouble about his words and actions; it is like traveling in a plain road, which is sure to bring you to your journey’s end better than byways in which many lose themselves.
+ - The gospel chargeth us with piety towards God, and justice and charity to men, and temperance and chastity in reference to ourselves.
+ - There is one way whereby we may secure our riches, and make sure friends to ourselves of them, – by laying them out in charity.
+ - Piety and virtue are not only delightful for the present, but they leave peace and contentment behind them.
+ - Wealth and riches, that is, an estate above what sufficeth our real occasions and necessities, is in no other sense a ‘blessing’ than as it is an opportunity put into our hands, by the providence of God, of doing more good.
+ - Virtue and vice are not arbitrary things; but there is a natural and eternal reason for goodness and virtue, and against vice and wickedness.
+ - When we have practiced good actions awhile, they become easy; when they are easy, we take pleasure in them; when they please us, we do them frequently; and then, by frequency of act, they grow into a habit.
+ - Every Christian is endued with a power whereby he is enabled to resist temptations.
+ - Of some calamity we can have no relief but from God alone; and what would men do, in such a case if it were not for God?
+
+73 quotes

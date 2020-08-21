@@ -1,0 +1,33 @@
+ - When you see a good move, look for a better one.
+ - The hardest game to win is a won game.
+ - Without error there can be no brilliancy.
+ - Chess is, above all, a fight.
+ - While the Baroque rules of Chess could only have been created by humans, the rules of Go are so elegant, organic, and rigorously logical that if intelligent life forms exist elsewhere in the universe, they almost certainly play Go.
+ - On the chessboard, lies and hypocrisy do not survive long. The creative combination lays bare the presumption of a lie; the merciless fact, culminating in the checkmate, contradicts the hypocrite.
+ - The laws of chess do not permit a free choice: you have to move whether you like it or not.
+ - Loss generally occurs when a player overrates his advantage or for other reasons seeks to derive from a minute advantage a great return such as a forced win.
+ - In Chess, as it is played by masters, chance is practically eliminated.
+ - The combination player thinks forward; he starts from the given position, and tries the forceful moves in his mind.
+ - I have added these principles to the law: get the Knights into action before both Bishops are developed.
+ - By some ardent enthusiasts Chess has been elevated into a science or an art. It is neither; but its principal characteristic seems to be – what human nature mostly delights in – a fight.
+ - The range of circumstances in which it is possible to presuppose the presence of a combination is very limited. The presence of such circumstances is the reason for the genesis of the idea in the master’s brain.
+ - To refer to the oft mooted question, “Which piece is stronger, the Bishop or the Knight?” it is clear that the value of the Bishop undergoes greater changes than that of the Knight.
+ - The attack is that process by means of which you remove obstructions.
+ - Truth derives its strength not so much from itself as from the brilliant contrast it makes with what is only apparently true. This applies especially to Chess, where it is often found that the profoundest moves do not much startle the imagination.
+ - I have known many chess players, but among them there has been only one genius – Capablanca!
+ - To find the right plan is just as hard as looking for its sound justification.
+ - The fatal hour of this ancient game is approaching. In its modern form this game will soon die a drawing death – the inevitable victory of certainty and mechanization will leave its stamp on the fate of chess.
+ - A chess game, after all, is a fight in which all possible factors must be made use of, and in which a knowledge of the opponent’s good and bad qualities is of the greatest importance.
+ - I keep on fighting as long as my opponent can make a mistake.
+ - Do not permit yourself to fall in love with the end-game play to the exclusion of entire games. It is well to have the whole story of how it happened; the complete play, not the denouement only. Do not embrace the rag-time and vaudeville of chess.
+ - Education in Chess has to be an education in independent thinking and judging. Chess must not be memorized...
+ - On the chessboard, lies and hypocrisy do not survive long.
+ - In mathematics, if I find a new approach to a problem, another mathematician might claim that he has a better, more elegant solution. In chess, if anybody claims he is better than I, I can checkmate him.
+ - He who has a slight disadvantage plays more attentively, inventively and more boldly than his antagonist who either takes it easy or aspires after too much. Thus a slight disadvantage is very frequently seen to convert into a good, solid advantage.
+ - By what right does White, in an absolutely even position, such as after move one, when both sides have advanced 1. e4, sacrifice a pawn, whose recapture is quite uncertain, and open up his kingside to attack? And then follow up this policy by leaving the check of the black queen open? None whatever!
+ - The intelligent perusal of fine games cannot fail to make the reader a better player and a better judge of the play of others.
+ - Steinitz was a thinker worthy of a seat in the halls of a university. A player, as the world believed he was, he was not; his studious temperament made that impossible; and thus he was conquered by a player and in the end little valued by the world, he died.
+ - Show me three variations in the leading handbook on the openings, and I will show you two of those three that are defective.
+ - An advantage could consist not only in a single important advantage but also in a multitude of insignificant advantages.
+
+31 quotes

@@ -1,0 +1,434 @@
+ - The World is my country, all mankind are my brethren, and to do good is my religion.
+ - The harder the conflict, the more glorious the triumph.
+ - The mind once enlightened cannot again become dark.
+ - To argue with a person who has renounced the use of reason is like administering medicine to the dead.
+ - The harder the conflict, the more glorious the triumph. I love the man that can smile in trouble, that can gather strength from distress and grow.
+ - Character is much easier kept than recovered.
+ - He who dares not offend cannot be honest.
+ - If there must be trouble, let it be in my day, that my child may have peace.
+ - The cunning of the fox is as murderous as the violence of the wolf.
+ - The real man smiles in trouble, gathers strength from distress, and grows brave by reflection.
+ - It is not in numbers, but in unity, that our great strength lies.
+ - Independence is my happiness, and I view things as they are, without regard to place or person; my country is the world, and my religion is to do good.
+ - Man must go back to nature for information.
+ - These are the times that try men’s souls. The summer soldier and the sunshine patriot will, in the crisis, shrink from the service of his country; but he that stands it NOW, deserves the love and thanks of man and woman.
+ - Reputation is what men and women think of us; character is what God and angels know of us.
+ - The balance of power is the scale of peace.
+ - What we obtain too cheap, we esteem too lightly; it is dearness only that gives everything its value.
+ - We have it in our power to begin the world over again.
+ - Where knowledge is a duty, ignorance is a crime.
+ - A long habit of not thinking a thing wrong gives it a superficial appearance of being right.
+ - My country is wherever liberty lives.
+ - In Deism our reason and our belief become happily united. The wonderful structure of the universe, and everything we behold in the system of the creation, prove to us, far better than books can do, the existence of a God, and at the same time proclaim His attributes.
+ - Belief in a cruel God makes a cruel man.
+ - That which we obtain too easily, we esteem too lightly.
+ - These are the times that try men’s souls.
+ - The duty of a patriot is to protect his country from its government.
+ - When men yield up the privilege of thinking, the last shadow of liberty quits the horizon.
+ - The Deist needs none of those tricks and shows called miracles to confirm his faith, for what can be a greater miracle than the creation itself, and his own existence?
+ - Youth is the seed time of good habits, as well in nations as in individuals.
+ - To argue with a man who has renounced the use and authority of reason, and whose philosophy consists in holding humanity in contempt, is like administering medicine to the dead, or endeavoring to convert an atheist by scripture.
+ - It is the duty of every true Deist to vindicate the moral justice of God against the evils of the Bible.
+ - I believe in one God, and no more; and I hope for happiness beyond this life.
+ - Commerce diminishes the spirit, both of patriotism and military defence.
+ - I would not dare so dishonor my Creator’s name by attaching it to this filthy book.
+ - A long habit of not thinking a thing wrong, gives it a superficial appearance of being right, and raises at first a formidable outcry in defense of custom. But the tumult soon subsides. Time makes more converts than reason.
+ - As to the book called the bible, it is blasphemy to call it the Word of God. It is a book of lies and contradictions and a history of bad times and bad men.
+ - Men should not petition for rights, but take them.
+ - A Democracy is the most vile form of government there is!
+ - The Christian religion is a parody on the worship of the sun, in which they put a man called Christ in the place of the sun, and pay him the adoration originally payed to the sun.
+ - The study of theology, as it stands in the Christian churches, is the study of nothing.
+ - Nothing, they say is more certain than death, and nothing more uncertain than the time of dying.
+ - Our greatest enemies, the ones we must fight most often, are within.
+ - Government is a necessary evil.
+ - What is it the Bible teaches us? – raping, cruelty, and murder. What is it the New Testament teaches us? – to believe that the Almighty committed debauchery with a woman engaged to be married, and the belief of this debauchery is called faith.
+ - Christianity is the strangest religion ever set up, for it committed a murder upon Jesus in order to redeem mankind from the sin of eating an apple.
+ - Reason obeys itself; and ignorance submits to whatever is dictated to it.
+ - The creation is the Bible of the Deist. He there reads, in the handwriting of the Creator himself, the certainty of His existence and the immutability of His power, and all other Bibles and Testaments are to him forgeries.
+ - Society is produced by our wants and government by our wickedness.
+ - What we obtain too cheap, we esteem too lightly: it is dearness only that gives every thing its value. Heaven knows how to put a proper price upon its goods; and it would be strange indeed if so celestial an article as freedom should not be highly rated.
+ - Those who expect to reap the blessing of freedom must undertake to support it.
+ - My mind is my own church.
+ - If I do not believe as you believe, it proves that you do not believe as I believe, and that is all that it proves.
+ - The slavery of fear had made men afraid to think.
+ - Practical religion consists in doing good: and the only way of serving God is that of endeavoring to make His creation happy. All preaching that has not this for its object is nonsense and hypocrisy.
+ - To say that any people are not fit for freedom, is to make poverty their choice, and to say they had rather be loaded with taxes than not.
+ - All the tales of miracles, with which the Old and New Testament are filled, are fit only for impostors to preach and fools to believe.
+ - A body of men holding themselves accountable to nobody ought not to be trusted by anybody.
+ - The Book of Job and the 19th Psalm, which even the Church admits to be more ancient than the chronological order in which they stand in the book called the Bible, are theological orations conformable to the original system of theology.
+ - Of more worth is one honest man to society, and in the sight of God, than all the crowned ruffians that ever lived.
+ - I fear not, I see not reason for fear. In the end we will be the victors. For though at times the flame of liberty may cease to shine, the ember will never expire.
+ - An army of principles can penetrate where an army of soldiers cannot.
+ - It has been the scheme of the Christian Church, and of all the other invented systems of religion, to hold man in ignorance of the Creator, as it is of Government to hold man in ignorance of his rights. The systems of the one are as false as those of the other, and are calculated for mutual support.
+ - The cause of America is in great measure the cause of all mankind.
+ - What is called a republic, is not any particular form of government... it is naturally opposed to the word monarchy, which means arbitrary power.
+ - To be nobly wrong is more manly than to be meanly right.
+ - Moderation in temper is always a virtue; but moderation in principle is always a vice.
+ - It is the duty of every man, as far as his ability extends, to detect and expose delusion and error.
+ - A man does not serve God when he prays, for it is himself he is trying to serve.
+ - It is from the Bible that man has learned cruelty, rapine, and murder; for the belief of a cruel God makes a cruel man.
+ - The declaration which says that God visits the sins of the fathers upon the children is contrary to every principle of moral justice.
+ - I believe in one God, and no more; and I hope for happiness beyond this life. I believe in the equality of humans; and I believe that religious duties consist in doing justice, loving mercy, and endeavoring to make our fellow creatures happy.
+ - That which is now called natural philosophy, embracing the whole circle of science, of which astronomy occupies the chief place, is the study of the works of God, and of the power and wisdom of God in his works, and is the true theology.
+ - The greatest tyrannies are always perpetuated in the name of the noblest causes.
+ - I die in perfect composure and resignation to the will of my Creator, God.
+ - In Deism our reason and our belief are happily united.
+ - Every Tory is a coward; for servile, slavish, self-interested fear is the foundation of Toryism; and a man under such influence, though he may be cruel, never can be brave.
+ - Therefore we say that a lying Spirit has been in the mouth of the writers of the books of the Bible.
+ - Kill the king but spare the man.
+ - He that would make his own liberty secure, must guard even his enemy from oppression; for if he violates this duty, he establishes a precedent that will reach to himself.
+ - Every religion is good that teaches man to be good; and I know of none that instructs him to be bad.
+ - Whatever is my right as a man is also the right of another; and it becomes my duty to guarantee as well as to possess.
+ - There are two distinct classes of men – those who pay taxes and those who receive and live upon taxes.
+ - It is an affront to treat falsehood with complaisance.
+ - The error of those who reason by precedents drawn from antiquity, respecting the rights of man, is that they do not go far enough into antiquity.
+ - Rights are not gifts from one man to another, nor from one class of men to another. It is impossible to discover any origin of rights otherwise than in the origin of man; it consequently follows that rights appertain to man in right of his existence, and must therefore be equal to every man.
+ - The whole religious complexion of the modern world is due to the absence from Jerusalem of a lunatic asylum.
+ - The birthday of a new world is at hand.
+ - I do not believe in the creed professed by the Jewish church, by the Roman church, by the Greek church, by the Turkish church, by the Protestant church, nor by any church that I know of. My own mind is my own church.
+ - There is something absurd in supposing a continent to be perpetually governed by an island.
+ - The greatest remedy for anger is delay.
+ - Let a crown be placed thereon, by which the world may know, that so far as we approve of monarcy, that in America the law is King. For as in absolute governments the King is law, so in free countries the law ought to be King; and there ought to be no other.
+ - It is from our enemies that we often gain excellent maxims, and are frequently surprised into reason by their mistakes.
+ - Everything that is right or reasonable pleads for separation. The blood of the slain, the weeping voice of nature cries, ’tis time to part.
+ - Let them call me rebel, I feel no concern from it.
+ - It is the fable of Jesus Christ, as told in the New Testament, and the wild and visionary doctrine raised thereon, against which I contend. The story, taking it as it is told, is blasphemously obscene.
+ - But where, says some, is the King of America? I’ll tell you. Friend, he reigns above, and doth not make havoc of mankind like the Royal Brute of Britain.
+ - Our citizenship in the United States is our national character. Our citizenship in any particular state is only our local distinction. By the latter we are known at home, by the former to the world. Our great title is AMERICANS...
+ - It is only by the exercise of reason that man can discover God.
+ - Titles are but nicknames, and every nickname is a title. The thing is perfectly harmless in itself, but it marks a sort of foppery in the human character, which degrades it.
+ - Reason and Ignorance, the opposites of each other, influence the great bulk of mankind. If either of these can be rendered sufficiently extensive in a country, the machinery of Government goes easily on. Reason obeys itself; and Ignorance submits to whatever is dictated to it.
+ - To establish any mode to abolish war, however advantageous it might be to Nations, would be to take from such Government the most lucrative of its branches.
+ - The reformation was preceded by the discovery of America, as if the Almighty graciously meant to open a sanctuary to the persecuted in future years, when home should afford neither friendship nor safety.
+ - Whenever we read the obscene stories, the voluptuous debaucheries, the cruel and tortuous executions, the unrelenting vindictiveness with which more than half the Bible is filled, it would be more consistent that we call it the word of a demon than the word of God. It is a history of wickedness that has served to corrupt and brutalize humankind.
+ - ’Tis the business of little minds to shrink; but he whose heart is firm, and whose conscience approves his conduct, will pursue his principles unto death.
+ - Men did not make the earth. It is the value of the improvements only, and not the earth itself, that is individual property. Every proprietor owes to the community a ground rent for the land which he holds.
+ - The right of voting for representatives, is the primary right by which other rights are protected.
+ - To believe that God created a plurality of worlds, at least as numerous as what we call stars, renders the Christian faith at once little and ridiculous; and scatters it in the mind like feathers in the air.
+ - The balance of power is the scale of peace. The same balance would be preserved were all the world not destitute of arms, for all would be alike; but since some will not, others dare not lay them aside... Horrid mischief would ensue were one half the world deprived of the use of them... the weak will become prey to the strong.
+ - The right of voting for representatives is the primary right by which other rights are protected. To take away this right is to reduce a man to slavery, for slavery consists in being subject to the will of another, and he that has not a vote in the election of representatives is in this case.
+ - Of all the tyrannies that affect mankind, tyranny in religion is the worst.
+ - Mystery is the antagonist of truth. It is a fog of human invention, that obscures truth, and represents it in distortion.
+ - Human language is local and changeable, and is therefore incapable of being used as the means of unchangeable and universal information.
+ - Government without a constitution, is a power without a right.
+ - Arms discourage and keep the invader and plunderer in awe, and preserve order in the world as well as property... Horrid mischief would ensue were the law-abiding deprived of the use of them.
+ - It is the madness of folly, to expect mercy from those who have refused to do justice; and even mercy, where conquest is the object, is only a trick of war; the cunning of the fox is as murderous as the violence of the wolf.
+ - The more men have to lose, the less willing are they to venture.
+ - When the tongue or the pen is let loose in a frenzy of passion, it is the man, and not the subject, that becomes exhausted.
+ - The protection of a man’s person is more sacred than the protection of his property.
+ - I have always strenuously supported the right of every man to his own opinion, however different that opinion might be to mine. He who denies to another this right, makes a slave of himself to his present opinion, because he precludes himself the right of changing it.
+ - There is something in corruption which, like a jaundiced eye, transfers the color of itself to the object it looks upon, and sees everything stained and impure.
+ - Every age and generation must be as free to act for itself in all cases as the ages and generations which preceded it. The vanity and presumption of governing beyond the grave is the most ridiculous and insolent of all tyrannies.
+ - It has been the political career of this man to begin with hypocrisy, proceed with arrogance, and finish with contempt.
+ - The strength and power of despotism consists wholly in the fear of resistance.
+ - Could the straggling thoughts of individuals be collected, they would frequently form materials for wise and able men to improve into useful matter.
+ - Beware the greedy hand of government thrusting itself into every corner and crevice of industry.
+ - It is necessary to the happiness of man that he be mentally faithful to himself. Infidelity does not consist in believing, or in disbelieving, it consists in professing to believe what he does not believe.
+ - The moral duty of man consists of imitating the moral goodness and beneficence of God, manifested in the creation towards all his creatures. Everything of persecution and revenge between man and man, and everything of cruelty to animals is a violation of moral duty.
+ - The end of all political associations is the preservation of the natural and imprescriptible rights of man; and these rights are liberty, property, security, and resistance of oppression.
+ - The Christian church has set up a religion of pomp and revenue in pretended imitation of a person (Jesus) who lived a life of poverty.
+ - It is not a field of a few acres of ground, but a cause, that we are defending, and whether we defeat the enemy in one battle, or by degrees, the consequences will be the same.
+ - It is error only, and not truth, that shrinks from inquiry.
+ - Government, like dress, is the badge of lost innocence.
+ - Now is the seedtime of continental union, faith and honor. The least fracture now, will be like a name engraved with the point of a pin on the tender rind of a young oak; the wound would enlarge with the tree, and posterity read in it full grown characters.
+ - Wisdom is not the purchase of a day, and it is no wonder that we should err at the first setting off.
+ - There is no greater tyranny than that of the dead over the living.
+ - Accustom a people to believe that priests, or any other class of men can forgive sins and you will have sins in abundance.
+ - There is a happiness in Deism, when rightly understood, that is not to be found inany other system of religion. All other systems have something in them that either shock our reason, or are repugnant to it, and man, if he thinks at all, must stifle his reason in order to force himself to believe them.
+ - Some writers have so confounded society with government, as to leave little or no distinction between them; whereas they are not only different, but have different origins... Society is in every state a blessing, but Government, even in its best state, is but a necessary evil; in its worst state, an intolerable one.
+ - Change of ministers amounts to nothing. One goes out, another comes in, and still the same measures, vices, and extravagances are pursued. It signifies not who is minister. The defect lies in the system. The foundation and superstructure of the government is bad. Prop it as you please, it continually sinks and ever will.
+ - The age of ignorance commenced with the Christian system.
+ - We fight not to enslave, but to set a country free, and to make room upon the earth for honest men to live in.
+ - From such beginnings of governments, what could be expected, but a continual system of war and extortion?
+ - Religion is a history of wickedness that has served to corrupt and brutalize humankind; and, for my part, I sincerely detest it as I detest everything that is cruel.
+ - Suspicion is the companion of mean souls, and the bane of all good society.
+ - He is not affected by the reality of distress touching his heart, but by the showy resemblance of it striking his imagination. He pities the plumage, but forgets the dying bird.
+ - Death is not the monarch for the dead, but of the dying. The moment he obtains a conquest he loses a subject.
+ - It is far better that we admitted a thousand devils to roam at large than that we permitted one such imposter and monster as Moses, Joshua, Samuel, and the Bible prophets, to come with the pretended word of God and have credit among us.
+ - When I see throughout this book, called the Bible, a history of the grossest vices and a collection of the most paltry and contemptible tales and stories, I could not so dishonor my Creator by calling it by His name.
+ - An avidity to punish is always dangerous to liberty. It leads men to stretch, to misinterpret, and to misapply even the best of laws.
+ - The guilt of a government is the crime of a whole country.
+ - It is necessary to the happiness of man that he be mentally faithful to himself.
+ - All national institutions of churches, whether Jewish, Christian or Turkish, appear to me no other than human inventions, set up to terrify and enslave mankind, and monopolize power and profit.
+ - The New Testament, they tell us, is founded upon the prophecies of the Old; if so, it must follow the fate of its foundation.
+ - A world of little cares is continually arising, which busy or affluent life knows nothing of, to open the first door to distress. Hunger is not among the postponable wants; and a day, even a few hours, in such a condition is often the crisis of a life of ruin.
+ - Call to mind the sentiments which nature has engraved on the heart of every citizen, and which take a new force when they are solemnly recognised by all:-For a nation to love liberty, it is sufficient that she knows it; and to be free, it is sufficient that she wills it.
+ - It is important that we should never lose sight of this distinction. We must not confuse the peoples with their governments...
+ - The idea of hereditary legislators is as inconsistent as that of hereditary judges, or hereditary juries; and as absurd as an hereditary mathematician, or an hereditary wise man; and as ridiculous as an hereditary poet-laureate.
+ - Let it be told to the future world, that in the depth of winter, when nothing but hope and virtue could survive, the city and the country, alarmed at one common danger, came forth to meet and to repulse it.
+ - The Vatican is a dagger in the heart of Italy.
+ - Nothing but heaven is impregnable to vice.
+ - It matters not where you live, or what rank of life you hold, the evil or the blessing will reach you all.
+ - The United States should be an asylum for the persecuted lovers of civil and religious liberty.
+ - Public money ought to be touched with the most scrupulous conscientiousness of honor. It is not the produce of riches only, but of the hard earnings of labor and poverty. It is drawn even from the bitterness of want and misery. Not a beggar passes, or perishes in the streets, whose mite is not in that mass.
+ - It is always to be taken for granted, that those who oppose an equality of rights never mean the exclusion should take place on themselves.
+ - I would give worlds, if I had them, if The Age of Reason had never been published. O Lord, help! Stay with me! It is hell to be left alone.
+ - Wherefore, security being the true design and end of government, it unanswerably follows that whatever form thereof appears most likely to ensure it to us, with the least expense and greatest benefit, is preferable to all others.
+ - I draw my idea of the form of government from a principle in nature, which no art can overturn, viz. that the more simple any thing is, the less liable it is to be disordered; and the easier repaired when disordered...
+ - There is a natural firmness in some minds, which cannot be unlocked by trifles, but which, when unlocked, discovers a cabinet of fortitude.
+ - Men who look upon themselves born to reign, and others to obey, soon grow insolent; selected from the rest of mankind their minds are early poisoned by importance.
+ - The Sun never shined on a cause of greater worth.
+ - Freedom had been hunted round the globe; reason was considered as rebellion; and the slavery of fear had made men afraid to think. But such is the irresistible nature of truth, that all it asks, and all it wants, is the liberty of appearing.
+ - When I contemplate the natural dignity of man; when I feel (for Nature has not been kind enough to me to blunt my feelings) for the honor and happiness of its character, I become irritated at the attempt to govern mankind by force and fraud, as if they were all knaves and fools, and can scarcely avoid disgust at those who are thus imposed upon.
+ - Truth never envelops itself in mystery, and the mystery in which it is at any time enveloped is the work of its antagonist, and never of itself.
+ - We hold the moral obligation of providing for old age, helpless infancy, and poverty is far superior to that of supplying the invented wants of courtly extravagance.
+ - A Constitution is not the act of a Government, but of a people constituting a government, and a government without a constitution is a power without right.
+ - And as to you, Sir, treacherous in private friendship and a hypocrite in public life, the world will be puzzled to decide whether you are an apostate or an impostor; whether you have abandoned good principles, or whether you ever had any.
+ - THE WORD OF GOD IS THE CREATION WE BEHOLD: And it is in this word, which no human invention can counterfeit or alter, that God speaketh universally to man.
+ - Action and care will in time wear down the strongest frame, but guilt and melancholy are poisons of quick dispatch.
+ - I bring reason to your ears, and, in language as plain as ABC, hold up truth to your eyes.
+ - The obscene and vulgar stories in the Bible are as repugnant to our ideas of the purity of a Divine Being, as the horrid cruelties and murders it ascribes to Him are repugnant to our ideas of His justice.
+ - When my country, into which I had just set my foot, was set on fire about my ears, it was time to stir. It was time for every man to stir.
+ - A government of our own is our natural right; and when a man seriously reflects on the precariousness of human affairs, he will become convinced, that it is infinitely wiser and safer, to form a constitution of our own in a cool deliberate manner, while we have it in our power, than to trust such an interesting event to time and chance.
+ - A bad cause will never be supported by bad means and bad men.
+ - He who takes nature for his guide, is not easily beaten out of his argument.
+ - A government of our own is our natural right.
+ - The stupid texts of the Bible – from which, be the talents of the preacher what they may, only stupid sermons can be preached.
+ - Now, which am I to believe, a book that any impostor might make and call the Word of God, or the creation itself which none but an Almighty Power could make? For the Bible says one thing; and the creation says the contrary. The Bible represents God with all the passions of a mortal, and the creation proclaims him with all the attributes of a God.
+ - As priestcraft was always the enemy of knowledge, because priestcraft supports itself by keeping people in delusion and ignorance, it was consistent with its policy to make the acquisition of knowledge a real sin.
+ - Lay then the axe to the root, and teach governments humanity. It is their sanguinary punishments which corrupt mankind.
+ - Every person of learning is finally his own teacher.
+ - The period of debate is closed. Arms, as a last resource, must decide the contest.
+ - Aristocracy has a tendency to degenerate the human species.
+ - I call not upon a few, but upon all: not on this state or that state, but on every state; up and help us; lay your shoulders to the wheel; better have too much force than too little, when so great an object is at stake.
+ - There is something in meanness which excites a species of resentment that never subsides, and something in cruelty which stirs up the heart to the highest agony of human hatred.
+ - The study of theology, as it stands in Christian churches, is the study of nothing; it is founded on nothing; it rests on no principles; it proceeds by no authorities; it has no data; it can demonstrate nothing; and it admits of no conclusion.
+ - Not all the treasures of the world, so far as I believe, could have induced me to support an offensive war, for I think it murder; but if a thief breaks into my house, burns and destroys my property, and kills or threatens to kill me, or those that are in it, and to “bind me in all cases whatsoever” to his absolute will, am I to suffer it?
+ - Virtues are acquired through endeavor, Which rests wholly upon yourself. So, to praise others for their virtues Can but encourage one’s own efforts.
+ - From the east to the west blow the trumpet to arms! Through the land let the sound of it flee; Let the far and the near all unite, with a cheer, In defense of our Liberty Tree.
+ - That God cannot lie, is no advantage to your argument, because it is no proof that priests can not, or that the Bible does not.
+ - Natural rights are those which always appertain to man in right of his existence. Of this kind are all the intellectual rights, or rights of the mind, and also all those rights of acting as an individual for his own comfort and happiness, which are not injurious to the rights of others.
+ - In a chariot of light from the region of the day, the Goddess of Liberty came. She brought in her hand as a pledge of her love, the plant she named Liberty Tree.
+ - A nation under a well regulated government, should permit none to remain uninstructed. It is monarchical and aristocratical government only that requires ignorance for its support.
+ - It is the direction and not the magnitude which is to be taken into consideration.
+ - For all men being originally equals, no one by birth could have the right to set up his own family in perpetual preference to all others forever, and tho’ himself might deserve some decent degree of honours of his cotemporaries, yet his descendants might be far too unworthy to inherit them.
+ - Everything wonderful in appearance has been ascribed to angels, to devils, or to saints. Everything ancient has some legendary tale annexed to it. The common operations of nature have not escaped their practice of corrupting everything.
+ - If, to expose the fraud and imposition of monarchy... to promote universal peace, civilization, and commerce, and to break the chains of political superstition, and raise degraded man to his proper rank; if these things be libellous... let the name of libeller be engraved on my tomb.
+ - Those words, temperate and moderate, are words either of political cowardice, or of cunning, or seduction. A thing, moderately good is not so good as it ought to be. Moderation in temper, is always a virtue; but moderation in principle, is a species of vice.
+ - And to read the Bible without horror, we must undo everything that is tender, sympathizing and benevolent in the heart of man.
+ - Where there are no distinctions there can be no superiority; perfect equality affords no temptation.
+ - The intimacy which is contracted in infancy, and friendship which is formed in misfortune, are, of all others, the most lasting and unalterable.
+ - Civil rights are those which appertain to man in right of his being a member of society. Every civil right has for its foundation some natural right pre-existing in the individual, but to the enjoyment of which his individual power is not, in all cases, sufficiently competent. Of this kind are all those which relate to security and protection.
+ - Arms, like laws, discourage and keep the invader and plunderer in awe and preserve order...
+ - The first was a government of priestcraft, the second of conquerors, and the third of reason.
+ - Take away from Genesis the belief that Moses was the author, on which only the strange believe that it is the word of God has stood, and there remains nothing of Genesis but an anonymous book of stories, fables, and traditionary or invented absurdities, or of downright lies.
+ - Those who knew Benjamin Franklin will recollect that his mind was forever young, his temper ever serene; science, that never grows gray, was always his mistress. He was never without an object, for when we cease to have an object, we become like an invalid in a hospital waiting for death.
+ - The people of America are a people of property; almost every man is a freeholder.
+ - The story of the whale swallowing Jonah, though a whale is large enough to do it, borders greatly on the marvelous; but it would have approached nearer to the idea of a miracle if Jonah had swallowed the whale.
+ - Universal empire is the prerogative of a writer. His concerns are with all mankind, and though he cannot command their obedience,he can assign them their duty. The Republic of Letters is more ancient than monarchy, and of far higher character in the world than the vassal court of Britain.
+ - The graceful pride of truth knows no extremes, and preserves, in every latitude of life, the right-angled character of man.
+ - Time makes more converts than reason.
+ - War is the gambling table of governments, and citizens the dupes of the game.
+ - And this manner of speaking of the Almighty, as one would speak of a man, is consistent with nothing but the stupidity of the Bible.
+ - Mutual fear is a principal link in the chain of mutual love.
+ - As my object was not myself, I set out with the determination, and happily with the disposition, of not being moved by praise or censure, friendship or calumny, nor of being drawn from my purpose by any personal altercation; and the man who cannot do this, is not fit for a public character.
+ - It is a fraud of the Christian system to call the sciences human invention; it is only the application of them that is human.
+ - The aristocracy are not the farmers who work the land, and raise the produce, but are the mere consumers of the rent; and when compared with the active world, are the drones, a seraglio of males, who neither collect the honey nor form the hive, but exist only for lazy enjoyment.
+ - Society is produced by our wants, and government by wickedness; the former promotes our happiness positively by uniting our affections, the latter negatively by restraining our vices. The one encourages intercourse, the other creates distinctions. The first is a patron, the last a punisher.
+ - Is it more probable that nature should go out of her course or that a man should tell a lie? We have never seen, in our time, nature go out of her course. But we have good reason to believe that millions of lies have been told in the same time. It is therefore at least millions to one that the reporter of a miracle tells a lie.
+ - If anything had or could have a value equal to gold and silver, it would require no tender law; and if it had not that value it ought not to have such a law; and, therefore, all tender laws are tyrannical and unjust and calculated to support fraud and oppression.
+ - There is existing in man, a mass of sense lying in a dormant state. The construction of government ought to be such as to bring forward, by a quiet and regular operation, all that extent of capacity.
+ - Wisdom is not the purchase of a day.
+ - He that rebels against reason is a real rebel, but he that in defence of reason rebels against tyranny has a better title to Defender of the Faith, than George the Third.
+ - When it becomes necessary to do a thing, the whole heart and soul should go into the measure, or not attempt it.
+ - You cannot undermine police authority and then complain about rising crime.
+ - The Allwise Creator hath been dishonored by being made the author of fable and the human mind degraded by believing it.
+ - The art of publicity is a black art; but it has come to stay, and every year adds to its potency.
+ - But in addition to all the moral evidence against the Bible, I will, in the progress of this work, produce such other evidence as even a priest cannot deny; and show, from that evidence, that the Bible is not entitled to credit, as being the word of God.
+ - Every proprietor owes to the community a ground-rent for the land which he holds.
+ - The Christian system of religion is an outrage on common sense.
+ - If there was ever a just war since the world began, it is this in which America is now engaged.
+ - The story of the redemption will not stand examination. That man should redeem himself from the sin of eating an apple by committing a murder on Jesus Christ, is the strangest system of religion ever set up.
+ - The story of Jesus Christ appearing after he was dead is the story of an apparition, such as timid imaginations can always create in vision, and credulity believe. Stories of this kind had been told of the assassination of Julius Caesar.
+ - Before anything can be reasoned upon to a conclusion, certain facts, principles, or data, to reason from, must be established, admitted, or denied.
+ - One of the strongest natural proofs of the folly of hereditary right in kings, is, that nature disapproves it, otherwise, she would not so frequently turn it into ridicule by giving mankind an ass for a lion.
+ - Toleration is not the opposite of intoleration, but it is the counterfeit of it. Both are despotisms. The one assumes to itself the right of withholding liberty of conscience, and the other of granting it. The one is the pope, armed with fire and fagot, and the other is the pope selling or granting indulgences.
+ - Priests and conjurors are of the same trade.
+ - I consider the war of America against Britain as the country’s war, the public’s war, or the war of the people in their own behalf, for the security of their natural rights, and the protection of their own property.
+ - One good schoolmaster is of more use than a hundred priests.
+ - The state of a king shuts him from the world, yet the business of a king requires him to know it thoroughly...
+ - Human nature is not of itself vicious.
+ - Peace, which costs nothing, is attended with infinitely more advantage than any victory with all its expence.
+ - A share in two revolutions is living to some purpose.
+ - It may perhaps be said that it signifies nothing to a man what is done to him after he is dead; but it signifies much to the living; it either tortures their feelings or hardens their hearts...
+ - Here then is the origin and rise of government; namely, a mode rendered necessary by the inability of moral virtue to govern the world; here too is the design and end of government, viz. Freedom and security.
+ - Science is the true theology.
+ - Persecution is not an original feature in any religion; but it is always the strongly marked feature of all religions established by law.
+ - No nation ought to be without a debt. A national debt is a national bond; and when it bears no interest, is in no case a grievance.
+ - The Bible is a book that has been read more and examined less than any book that ever existed.
+ - It can only be by blinding the understanding of man, and making him believe that government is some wonderful mysterious thing, that excessive revenues are obtained. Monarchy is well calculated to ensure this end. It is the popery of government; a thing kept up to amuse the ignorant, and quiet them into taxes.
+ - Better fare hard with good men than feast it with bad.
+ - Our present condition is, Legislation without law; wisdom without a plan; a constitution without a name; and, what is strangely astonishing, perfect independence contending for dependence.
+ - Man cannot make, or invent, or contrive principles; he can only discover them; and he ought to look through the discovery to the Author.
+ - And as a man, who is attached to a prostitute, is unfitted to choose or judge of a wife, so any prepossession in favour of a rotten constitution of government will disable us from discerning a good one.
+ - Every age and generation must be as free to act for itself.
+ - EVERY national church or religion has established itself by pretending some special mission from God, communicated to certain individuals. The Jews have their Moses; the Christians their Jesus Christ, their apostles and saints; and the Turks their Mahomet; as if the way to God was not open to every man alike.
+ - Ye that dare oppose, not only tyranny, but the tyrant, stand forth!
+ - The animals to whom nature has given the faculty we call cunning know always when to use it, and use it wisely; but when man descends to cunning he blunders and betrays.
+ - How necessary it is at all times to watch against the attempted encroachment of power, and to prevent its running to excess.
+ - The American constitutions were to liberty, what a grammar is to language: they define its parts of speech, and practically construct them into syntax.
+ - No country can be called free which is governed by an absolute power; and it matters not whether it be an absolute royal power or an absolute legislative power, as the consequences will be the same to the people.
+ - Oppression is often the consequence, but seldom or never the means of riches.
+ - Not a place upon earth might be so happy as America. Her situation is remote from all the wrangling world, and she has nothing to do but to trade with them.
+ - The most detestable wickedness, the most horrid cruelties, and the greatest miseries, that have afflicted the human race have had their origin in this thing called revelation, or revealed religion.
+ - The sublime and the ridiculous are often so nearly related, that it is difficult to class them separately. One step above the sublime makes the ridiculous, and one step above the ridiculous makes the sublime again.
+ - The adulterous connection between church and state...
+ - There now remain only a few books, which they call books of the lesser prophets; and as I have already shown that the greater are impostors, it would be cowardice to disturb the repose of the little ones. Let them sleep, then, in the arms of their nurses, the priests, and both be forgotten together.
+ - What at first was plunder assumed the softer name of revenue.
+ - I am sensible that he who means to do mankind a real service must set down with the determination of putting up, and bearing with all their faults, follies, prejudices and mistakes until he can convince them that he is right.
+ - Man is not the enemy of man, but through the medium of a false system of Government. Instead, therefore, of exclaiming against the ambition of kings, the exclamation should be directed against the principle of such governments; and instead of seeking to reform the individual, the wisdom of a nation should apply itself to reform the system.
+ - It is easy to see that when republican virtue fails, slavery ensues.
+ - The trade of governing has always been monopolized by the most ignorant and the most rascally individuals of mankind.
+ - It is not a God, just and good, but a devil, under the name of God, that the Bible describes.
+ - Ignorance is of a peculiar nature; once dispelled, it is impossible to reestablish it. It is not originally a thing of itself, but is only the absence of knowledge; and though man may be kept ignorant, he cannot be made ignorant.
+ - Yet this is trash that the Church imposes upon the world as the Word of God; this is the collection of lies and contradictions called the Holy Bible! This is the rubbish called Revealed Religion!
+ - When an objection cannot be made formidable, there is some policy in trying to make it frightful; and to substitute the yell and the war-whoop, in the place of reason, argument and good order.
+ - Titles are but nicknames, and every nickname is a title.
+ - Thus commerce, though in itself a moral nullity, has had a considerable influence in tempering the human mind... he trades with the same countries... (that he) would have gone to war with.
+ - I know not whether taxes are raised to fight wars, or wars are fought in order to raise taxes.
+ - Every science has for its basis a system of principles as fixed and unalterable as those by which the universe is regulated and governed. Man cannot make principles; he can only discover them.
+ - The most formidable weapon against errors of every kind is reason.
+ - Some people can be reasoned into sense, and others must be shocked into it.
+ - I do not believe that any two men, on what are called doctrinal points, think alike who think at all. It is only those who have not thought that appear to agree.
+ - All the religions known in the world are founded, so far as they relate to man or the unity of man, as being all of one degree. Whether in heaven or in hell, or in whatever state man may be supposed to exist hereafter, the good and the bad are the only distinctions.
+ - When we are planning for posterity, we ought to remember that virtue is not hereditary.
+ - Government, even in its best state, is but a necessary evil; in its worst state, an intolerable one.
+ - Any system of religion that has anything in it that shocks the mind of a child, cannot be true.
+ - It was needless, after this, to say that all was vanity and vexation of spirit; for it is impossible to derive happiness from the company of those whom we deprive of happiness.
+ - It is with a pious fraud as with a bad action; it begets a calamitous necessity of going on.
+ - For freemen like brothers agree; With one spirit endured, they one friendship pursued, And their temple was Liberty Tree.
+ - I detest the Bible as I detest everything that is cruel.
+ - Immediate necessity makes many things convenient, which if continued would grow into oppressions.
+ - Mingling religion with politics may be disavowed and reprobated by every inhabitant of America.
+ - When all other rights are taken away, the right of rebellion is made perfect.
+ - Prejudice, like the spider, makes everywhere its home. It has neither taste nor choice of place, and all that it requires is room. If the one prepares her food by poisoning it to her palate and her use, the other does the same. Prejudice may be denominated the spider of the mind.
+ - Politics and self-interest have been so uniformly connected, that the world, from being so often deceived, has a right to be suspicious of public characters.
+ - Calumny is a vice of curious constitution; trying to kill it keeps it alive; leave it to itself and it will die a natural death.
+ - What is it the Bible teaches us? – rapine, cruelty, and murder.
+ - But if objects for gratitude and admiration are our desire, do they not present themselves every hour to our eyes?
+ - Aristocracy is kept up by family tyranny and injustice.
+ - The nearer any disease approaches to a crisis, the nearer it is to a cure. Danger and deliverance make their advances together; and it is only in the last push that one or the other takes the lead.
+ - Titles do not count with posterity.
+ - We feel something like respect for consistency even in error. We lament the virtue that is debauched into a vice; but the vice that affects a virtue becomes the more detestable.
+ - In the early ages of the world, according to the scripture chronology, there were no kings; the consequence of which was there were no wars; it is the pride of kings which throws mankind into confusion.
+ - The times that tried men’s souls are over-and the greatest and completest revolution the world ever knew, gloriously and happily accomplished.
+ - From whence, then, could arise the solitary and strange conceit that the Almighty, who had millions of worlds equally dependant on His protection, should quit the care of all the rest, and come to die in our world, because, they say, one man and one woman had eaten an apple?
+ - Civilization, or that which is so called, has operated two ways to make one part of society more affluent and the other part more wretched than would have been the lot of either in a natural state.
+ - Man did not enter society to be worse off, or to have fewer rights, but rather to have those rights better secured.
+ - Small islands, not capable of protecting themselves, are the proper objects for kingdoms to take under their care; but there is something absurd, in supposing a continent to be perpetually governed by an island.
+ - The abilities of man must fall short on one side or the other, like too scanty a blanket when you are abed. If you pull it upon your shoulders, your feet are left bare; if you thrust it down to your feet, your shoulders are uncovered.
+ - They took care to represent government as a thing made up of mysteries, which only themselves understood, and they hid from the understanding of the nation, the only thing that was beneficial to know, namely, that government is nothing more than a national association acting on the principles of society.
+ - A little matter will move a party, but it must be something great that moves a nation.
+ - There exists in man a mass of sense lying in a dormant state, and which, unless something excites it to action, will descend with him, in that condition,to the grave.
+ - Each government accuses the other of perfidy, intrigue and ambition, as a means of heating the imagination of their respective nations, and incensing them to hostilities. Man is not the enemy of man, but through the medium of a false system of government.
+ - Of all the tyrannies that effect mankind, tyranny in religion is the worst; every other species of tyranny is limited to the world we live in; but this attempts to stride beyond the grave, and seeks to pursue us into eternity.
+ - The more we bestow the richer we become.
+ - I have never made it a consideration whether the subject was popular or unpopular, but whether it was right or wrong; for that which is right will become popular, and that which is wrong, though by mistake it may obtain the cry or fashion of the day, will soon lose the power of delusion, and sink into disesteem.
+ - We repose an unwise confidence in any government, or in any men, when we invest them officially with too much, or an unnecessary quantity of, discretionary power.
+ - A man may write himself out of reputation when nobody else can do it.
+ - The United States of America will sound as pompously in the world or in history as The Kingdom of Great Britain.
+ - He, who survives his reputation, lives out of despite himself, like a man listening to his own reproach.
+ - As property, honestly obtained, is best secured by an equality of rights, so ill-gotten property depends for protection on a monopoly of rights. He who has robbed another of his property, will next endeavor to disarm him of his rights, to secure that property; for when the robber becomes the legislator he believes himself secure.
+ - The burden of the national debt consists not in its being so many millions, or so many hundred millions, but in the quantity of taxes collected every year to pay the interest. If this quantity continue the same, the burden of the national debt is the same to all intents and purposes, be the capital more or less.
+ - It is painful to behold a man employing his talents to corrupt himself.
+ - We still find the greedy hand of government thrusting itself into every corner and crevice of industry and grasping at the spoil of the multitude. Invention is continually exercised to furnish new pretenses for revenue and taxation. It watches prosperity as its prey and permits none to escape without a tribute.
+ - Wisdom degenerates in governments as governments increase in age.
+ - Whatever has a tendency to promote the civil intercourse of nations by an exchange of benefits is a subject as worthy of philosophy as of politics.
+ - To take away (voting) is to reduce a man to slavery.
+ - All men can understand what representation is; and that it must necessarily include a variety of knowledge and talents.
+ - It is unpleasant to see character throw itself away.
+ - There are matters in the Bible, said to be done by the express commandment of God, that are shocking to humanity and to every idea we have of moral justice.
+ - Tears may soothe the wounds they cannot heal.
+ - The fate of Charles I has only made kings more subtle, not more just.
+ - I disbelieve all holy men and holy books.
+ - Public credit is suspicion asleep.
+ - Panics, in some cases, have their uses; they produce as much good as hurt. Their duration is always short; the mind soon grows through them and acquires a firmer habit than before. But their peculiar advantage is, that they are the touchstone of sincerity and hypocrisy, and bring things and men to light, which might have lain forever undiscovered.
+ - A constitution defines and limits the powers of the government it creates. It therefore follows, as a natural and also a logical result, that the governmental exercise of any power not authorized by the constitution is an assumed power, and therefore illegal.
+ - It is a position not to be controverted, that the earth... was and ever would have continued to be, the COMMON PROPERTY OF THE HUMAN RACE.
+ - Titles are like a magicians wand which circumscribe human facility and prevent us from living the lives of man.
+ - Man did not make the earth, and though he had a natural right to occupy it, he had no right to locate as his property in perpetuity, any part of it.
+ - It is a general idea, that when taxes are once laid on, they are never taken off.
+ - Government is best which governs least.
+ - Of all the systems of religion that ever were invented, there is no more derogatory to the Almighty, more unedifiying to man, more repugnant to reason, and more contradictory to itself than this thing called Christianity.
+ - All Of Us Might Wish At Times That We Lived In A More Tranquil World... (yet) Our Times Are Challenging And Filled With Opportunity.
+ - We can only reason from what is; we can reason on actualities, but not on possibilities.
+ - Suspicion and persecution are weeds of the same dunghill, and flourish best together.
+ - To live with our enemies as if they may some time become our friends, and to live with our friends as if they may some time become our enemies, is not a moral but a political maxim.
+ - The Almighty implanted in us these inextinguishable feelings for good and wise purposes. They are the guardians of His image in our heart. They distinguish us from the herd of common animals.
+ - Is it not a species of blasphemy to call the New Testament revealed religion, when we see in it such contradictions and absurdities.
+ - If those to whom power is delegated do well, they will be respected; if not, they will be despised.
+ - It is a faculty of the human mind to become what it contemplates, and to act in unison with its object.
+ - I do not believe in the creed professed by any church that I know of. Each of these churches accuse the other of unbelief; and for my part, I disbelieve them all.
+ - The duty of man is not a wilderness of turnpike gates, through which he is to pass by tickets from one to the other. It is plain and simple, and consists but of two points – his duty God, which every man must feel; and, with respect to his neighbor, to do as he would be done by.
+ - Compassion, the fairest associate of the heart.
+ - We ought therefore to suspect that a great mass of information respecting the Bible, and the introduction of it into the world, has been suppressed by the united tyranny of Church and State, for the purpose of keeping people in ignorance, and which ought to be known.
+ - The representative system of government is calculated to produce the wisest laws, by collecting wisdom where it can be found.
+ - A constitution, therefore, is to a government what the laws made afterwards by that government are to a court of judicature. The court of judicature does not make the laws, neither can it alter them; it only acts in conformity to the laws made: and the government is in like manner governed by the constitution.
+ - It is the object only of war that makes it honorable.
+ - The greatest characters the world has known, have rose on the democratic floor. Aristocracy has not been able to keep a proportionate pace with democracy.
+ - It will be proper to take a review of the several sources from which governments have arisen, and on which they have been founded.
+ - To possess ourselves of a clear idea of what government is, or ought to be, we must trace it to its origin.
+ - It is not because a part of the government is elective, that makes it less a despotism, if the persons so elected, possess afterwards, as a parliament, unlimited powers. Election, in this case, becomes separated from representation, and the candidates are candidates for despotism.
+ - One would think that a system loaded with such gross and vulgar absurdities as Scripture religion is could never have obtained credit; yet we have seen what priestcraft and fanaticism can do, and credulity believe.
+ - Customs will often outlive the remembrance of their origin.
+ - We must be compelled to hold this doctrine to be false, and the old and new law called the Old and New Testament, to be impositions, fables and forgeries.
+ - The Christian religion begins with a dream and ends with a murder.
+ - The Bill of Rights should contain the general principles of natural and civil liberty. It should be to a community what the eternal laws and obligations of morality are to the conscience. It should be unalterable by any human power...
+ - A single legislature, on account of the superabundance of its power, and the uncontrolled rabidity of its execution, becomes as dangerous to the principles of liberty as that of a despotic monarch.
+ - The Grecians and Romans were strongly possessed of the spirit of liberty but not the principle, for at the time they were determined not to be slaves themselves, they employed their power to enslave the rest of mankind.
+ - The danger to which the success of revolutions is most exposed, is that of attempting them before the principles on which they proceed, and the advantages to result from them, are sufficiently seen and understood.
+ - The case, however, is, that the Bible will not bear examination in any part of it, which it would do if it was the Word of God. Those who most believe it are those who know least about it, and priests always take care to keep the inconsistent and contradictory parts out of sight.
+ - Liberty cannot be purchased by a wish.
+ - No falsehood is so fatal as that which is made an article of faith.
+ - Let the world see that this nation can bear prosperity; and that her honest virtue in time of peace is equal to her bravest valor in time of war.
+ - If thou trusteth to the book called the Scriptures, thou trusteth to the rotten staff of fables and falsehood.
+ - That there are men in all countries who get their living by war, and by keeping up the quarrels of nations, is as shocking as it is true; but when those who are concerned in the government of a country, make it their study to sow discord and cultivate predjudices between nations, it becomes the more unpardonable.
+ - I die content, I die for the liberty of my country.
+ - The NT, compared with the Old, is like a farce of one act...
+ - “Government,” says Swift, “is a plain thing, and fitted to the capacity of many heads.”
+ - The final event to himself has been, that as he rose like a rocket, he fell like the stick.
+ - Prophesying is lying professionally.
+ - When authors and critics talk of the sublime, they see not how nearly it borders on the ridiculous.
+ - If any generation of men ever possessed the right of dictating the mode by which the world should be governed for ever, it was the first generation that existed; and if that generation did it not, no succeeding generation can show any authority for doing it, nor can set any up.
+ - They may be all comprehended under three heads – 1st, Superstition; 2d, Power; 3d, the common interests of society, and the common rights of man.
+ - To reason with goverments, as they have existed for ages, is to argue with brutes. It is only from the nations themselves that reforms can be expected.
+ - No man is prejudiced in favor of a thing, knowing it to be wrong. He is attached to it on the belief of its being right; and when he sees it is not so, the prejudice will be gone.
+ - Government is not a trade which any man or body of men has a right to set up and exercise for his own emolument, but is altogether a trust, in right of those by whom that trust is delegated, and by whom it is always resumable. It has of itself no rights; they are altogether duties.
+ - On this question of war, three things are to be considered. First, the right of declaring it: secondly, the expense of supporting it: thirdly, the mode of conducting it after it is declared.
+ - Public money ought to be touched with the most scrupulous consciousness of honor.
+ - The New Testament rests itself for credulity and testimony on what are called prophecies in the Old Testament, of the person called Jesus Christ; and if there are no such things as prophecies of any such person in the Old Testament, the New Testament.
+ - In reviewing the history of the English Government, its wars and its taxes, a bystander, not blinded by prejudice nor warped by interest, would declare that taxes were not raised to carry on wars, but that wars were raised to carry on taxes.
+ - How strangely is antiquity treated! To answer some purposes it is spoken of as the times of darkness and ignorance, and to answer others, it is put for the light of the world.
+ - As to religion, I hold it to be the indispensable duty of all government to protect all conscientious professors thereof, and I know of no other business which government hath to do therewith.
+ - War involves in its progress such a train of unforeseen circumstances that no human wisdom can calculate the end; it has but one thing certain, and that is to increase taxes.
+ - We do not admit the authority of the church with respect to its pretended infallibility, its manufactured miracles, its setting itself up to forgive sins. It was by propagating that belief and supporting it with fire that she kept up her temporal power.
+ - There are two distinct classes of what are called thoughts: those that we produce in ourselves by reflection and the act of thinking and those that bolt into the mind of their own accord.
+ - If the present generation, or any other, are disposed to be slaves, it does not lessen the right of the succeeding generation to be free: wrongs cannot have a legal descent.
+ - Governments arise either out of the people or over the people.
+ - He who is the author of a war lets loose the whole contagion of hell and opens a vein that bleeds a nation to death.
+ - That there are men in all countries who get their living by war, and by keeping up the quarrels of Nations is as shocking as it is true...
+ - Government has no right to make itself a party in any debates respecting the principles or mode of forming or of changing, constitutions. It is not for the benefit of those who exercise the powers of government, that constitutions, and the governments issuing from them, are established.
+ - Wrong cannot have a legal descendant.
+ - A government on the principles on which constitutional governments arising out of society are established, cannot have the right of altering itself. If it had, it would be arbitrary. It might make itself what it pleased; and wherever such a right is set up, it shows there is no constitution.
+ - Commerce is no other than the traffic of two individuals, multiplied on a scale of number; and, by the same rule that Nature intended the intercourse of two, she intended that of all!
+ - The mind, in discovering truths, acts in the same manner as it acts through the eye in discovering objects; when once any object has been seen, it is impossible to put the mind back to the same condition it was in before it saw it.
+ - In the progress of politics, as in the common occurrences of life, we are not only apt to forget the ground we have travelled over, but frequently neglect to gather up experiences as we go.
+ - What more does man want to know than that the hand or power that made these things is divine, is omnipotent? Let him believe this with the force it is impossible to repel, if he permits his reason to act, and his rule of moral life will follow of course.
+ - Prejudice will fall in a combat with interest.
+ - The countries the most famous and the most respected of antiquity are those which distinguished themselves by promoting and patronizing science, and on the contrary those which neglected or discouraged it are universally denominated rude and barbarous.
+ - The artificial noble shrinks into a dwarf before the noble of nature; and in the few instances (for there are some in all countries) in whom nature, as by a miracle, has survived in aristocracy, those men despise it.
+ - Virtue is not hereditary.
+ - The instant formal government is abolished, society begins to act. A general association takes place, and common interest produces common security.
+ - It is from the power of taxation being in the hands of those who can throw so great a part of it from their own shoulders, that it has raged without a check.
+ - Is it because you are sunk in the cruelty of superstition, or feel no interest in the honor of your Creator, that you listen to the horrid tales of the Bible, or hear them with callous indifference?
+ - Though avarice will prevent a man from being necessitously poor, it generally makes him too timorous to be wealthy.
+ - It is not the nature of avarice to be satisfied with anything but money. Every passion that acts upon mankind has a peculiar mode of operation. Many of them are temporary and fluctuating; they admit of cessation and variety. But avarice is a fixed, uniform passion.
+ - The more acquisitions the government makes abroad, the more taxes the people have to pay at home.
+ - A man will pass better through the world with a thousand open errors upon his back than in being detected in one sly falsehood. When one is detected, a thousand are suspected.
+ - When extraordinary power and extraordinary pay are allotted to any individual in a government, he becomes the center, round which every kind of corruption generates and forms.
+ - War ought to be no man’s wish.
+ - The accumulation of great wealth is, in many instances, the effect of paying too little for the labor that produced it, the consequence of which is that the working people perish in old age and the employer abounds in affluence.
+ - Evils, like poisons, have their uses, and there are diseases which no other remedy can reach.
+ - And when we view a flag, which to the eye is beautiful, and to contemplate its rise and origin inspires a sensation of sublime delight, our national honor must unite with our interests to prevent injury to the one, or insult to the other.
+
+432 quotes

@@ -1,0 +1,35 @@
+ - We lived in the attic, Christopher, Cory, Carrie, and me, Now there are only three.
+ - There is no hate such as that born out of love betrayed- and my brain screamed out for revenge.
+ - I am a pretty, useless ornament who always believed she’d have a man to take care of her.
+ - It was the eyes. The secret of love was in the eyes. The way one person looked at another, the way eyes communicated and spoke when the lips never moved.
+ - People make the rules of society, not God.
+ - Beauty thinks it needs no talent and can feed on itself, so it soon dies.
+ - Mine are the deep-seated fears established when we are children, and they never quite go away: the fear of being helpless, the fear of being trapped, the fear of being out of control.
+ - My thoughts took frantic flight, wanting to escape this prison, and seek out the wind so it could fan my hair and sting my skin, and make me feel alive again.
+ - Life offers more than one chance, Cathy, you know that.
+ - There was a war going on in our house. A silent war that sounded no guns, and the bodies that fell were only wishes that died and the bullets were only words and the blood that spilled was always called pride.
+ - Love doesn’t always come when you want it to. Sometimes it just happens, despite your will.
+ - Little rabbits have big ears.
+ - If you hold a bird too tightly, you’ll crush its wings.
+ - Love, in short is the most dangerous emotion human can experience.
+ - Angel, saint, Devil’s spawn, good or evil, you’ve got me pinned to the wall and labeled as yours until the day I die. And if you die first, then it won’t be long before I follow.
+ - I don’t think she’s ever coming back.
+ - I never realized that the blue sky I saw was not the soft, nurturing sky of spring, but the cold, chilling, lonely sky of winter.
+ - The creative genius begins in the idle moment, dreaming up the impossible, and later making it come true.
+ - What is normal? Normal is only ordinary; mediocre. Life belongs to the rare, exceptional individual who dares to be different.
+ - Promises are lies wrapped in pretty ribbons -Cinnamon.
+ - You can trust a few some of the time, and most none of the time. Feel lucky if you have even one to trust all of the time.
+ - Dreams, I thought. They’re the riches of a poor person, stashed in treasure chests buried deeply in the imagination. But are dreams enough?
+ - Seek the tarnish and you shall find.
+ - Time doesn’t heal scars as most people commonly think. It simply makes them firmer, stiffer. One must accept it and not hope to mend and return to what he or she once was.
+ - Maybe thats because we take criticism best from those we love and those who love us-Ethan.
+ - At the end of the rainbow waited the pot of gold. But rainbows were made of faint and fragile gossamer-and gold weighed a ton-and since the world began, gold was the reason to do most anything.
+ - Unless i’m reading an assignment or doing a paper or taking a test, i’m thinking about you.
+ - I wish the night would end, I wish the day’d begin, I wish it would rain or snow, or the wind would blow, or the grass would grow, I wish I had yesterday, I wish there were games to play...
+ - A flower blooms best in a happy pot.
+ - Only someone who had cried a great deal understands why someone else wants to stop the tears.
+ - People never really died. They only went on to a better place, to wait a while for their loved ones to join them. And then once more they went back to the world, in the same way they had arrived the first time around.
+ - Life is like that – twenty minutes of misery for every two seconds of joy.
+ - Tragedy had sent me headlong into reality. All the things I had seen before now looked different, even nature.
+
+33 quotes

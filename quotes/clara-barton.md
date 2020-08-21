@@ -1,0 +1,22 @@
+ - The door that nobody else will go in at, seems always to swing open widely for me.
+ - Offering a hand up is not a hand-out.
+ - I may be compelled to face danger, but never fear it, and while our soldiers can stand and fight, I can stand and feed and nurse them.
+ - Let me go, let me go.
+ - I founded the American Red Cross.
+ - It irritates me to be told how things have always been done. I defy the tyranny of precedent. I cannot afford the luxury of a closed mind.
+ - You must never so much think as whether you like it or not, whether it is bearable or not; you must never think of anything except the need, and how to meet it.
+ - The surest test of discipline is its absence.
+ - This conflict is one thing I’ve been waiting for. I’m well and strong and young – young enough to go to the front. If I can’t be a soldier, I’ll help soldiers.
+ - I may sometimes be willing to teach for nothing, but if paid at all, I shall never do a man’s work for less than a man’s pay.
+ - People should not say that this or that is not worth learning, giving as their reason that it will not be put to use. They can no more know what information they will need in the future than they will know the weather two hundred years from today.
+ - What could I do but go with them Civil War soldiers, or work for them and my country? The patriot blood of my father was warm in my veins.
+ - Everybody’s business is nobody’s business, and nobody’s business is my business.
+ - What armies and how much of war I have seen, what thousands of marching troops, what fields of slain, what prisons, what hospitals, what ruins, what cities in ashes, what hunger and nakedness, what orphanages, what widowhood, what wrongs and what vengeance.
+ - I wonder if a soldier ever does mend a bullet hole in his coat?
+ - I went to the Senate, accomplished nothing as usual.
+ - My business is staunching blood, and feeding fainting men.
+ - Others are writing my biography, and let it rest as they elect to make it. I have lived my life, well and ill, always less well than I wanted it to be but it is, as it is, and as it has been; so small a thing, to have had so much about it!
+ - It is wise statesmanship which suggests that in time of peace we must prepare for war, and it is no less a wise benevolence that makes preparation in the hour of peace for assuaging the ills that are sure to accompany war.
+ - Long ago I added to the true old adage of “What is everybody’s business is nobody’s business,” another clause which, I think, morethan any other principle has served to influence my actions in life. That is, What is nobody’s business is my business.
+
+20 quotes

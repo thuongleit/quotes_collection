@@ -1,0 +1,67 @@
+ - Don’t go looking for boys in the dark They will say pretty things then leave you with scars. Do go looking for boys in the park For that is where the true gentlemen are.
+ - The first stab of love is like a sunset, a blaze of color – oranges, pearly pinks, vibrant purples...
+ - Heart-stopping envy is the sincerest form of flattery.
+ - To look in the face of hard things and keep moving forward – that’s what one has to do.
+ - The value of secrets is ever fluctuating although ladies who have been in society for a long time learn that a secret kept can be worth more than a secret told.
+ - All really interesting girls invent themselves.
+ - Oh yes, well, I find myself unconventional everywhere.
+ - It’s the craziest thing, but I can’t stop thinking about you.
+ - Even when a girl is married she still never completely leaves her mother and father’s home.
+ - Already she could feel the stunning weight of a lifetime of regret for letting him go, and she knew that it was enought to bury her alive.
+ - Gossip is just a tool to distract people who have nothing better to do from feeling jealous of those few of us still remaining with noble hearts.
+ - I’ve always believed in savoring the moments. In the end, they are the only things we’ll have.
+ - The living are made of nothing but flaws. The dead, with each passing day in the afterlife, become more and more impeccable to those who remain earthbound.
+ - He was a mystery to her, and every time she tried to solve him it caused her a little more pain. But when she tired to give him up he pursued her in her thoughts, stronger each time.
+ - So this was betrayal. It was like being left alone in the desert at dusk without water or warmth. It left your mouth dry and will broken. It sapped your tears and made you hollow.
+ - Girls took to dressing like boys, and though women had obtained the vote, we had swiftly moved on to pursuing flashier freedoms: necking in cars and smoking cigarettes and walking down city streets in flesh colored stockings.
+ - It is easy to forget now, how effervescent and free we all felt that summer.
+ - The world is such a marvel-it gave you trials, but if you were still and concentrated, if you tried to do the right thing, it always provided you with salvation.
+ - Among her other talents were forgetting what she did not like and ignoring what she preferred not to see.
+ - What was it about that short creature with her wild hair and spurious air of purity and why would anyone much less two men love her and to such disastrous ends.
+ - A man is made in the rough-and-tumble of the world a lady emerges from the flossy back rooms of her own imagination.
+ - She found herself longing for home-not just for the hotel but for New York and all the real novels that she could lose herself in there.
+ - But in that moment she realized how false most smiles were and what a tremendous waste of time.
+ - He was just like summer, and she loved summer. If she had any wish, it would be to live a lifetime of summers.
+ - I can’t imagine what my life was before. I can’t imagine ever being without you for very long again.
+ - She should have know that villains often come with pretty faces.
+ - She was trying to sound tough and impatient, but she knew that vulnerable desire to be wooed was still brimming in her tone.
+ - Diana knew it wouldn’t be right, but then she told herself that things only looked wrong when there was someone to see you.
+ - Always stay sharp on railways and cruise ships for transit has a way of making everything clear.
+ - It is well known that a man, when wooing a lady to be his wife, must first win over the females she most confides in – her friends, of course, and her sister, if she has one.
+ - That was how the heroine of a book would play it and Diana was still writing her own story the best heroines she’d always believed took their fate into their own hands.
+ - There was no pleasure like being envied on a mass scale.
+ - She felt so much aware of her own beauty it seemed inconceivable that everybody else wouldn’t notice the difference too.
+ - Living too much in one’s head can be dangerous.
+ - She was full of some strange energy that morning. Her every movement had purpose and life and she seemed to find satisfaction in every little thing.
+ - As she always did on any really important day, Penelope Hayes wore red.
+ - She was like a heroine in a novel that she herself was writing the character kept protesting that she was too strong for love and yet the narrator went on describing her desire.
+ - He turned his dark eyes on the girl whom he had dreamed of so often over the previous months. Beside him, at that very moment of existence, at the heart of torrential downpour, she was exquisitely real, and she, too, seemed content to go on sitting there forever.
+ - That was the way love was, she guessed-it left you always unsteady on your feet.
+ - She had had no idea what it would do to her seeing him in a suit.
+ - They were a society whose chief vocations were to entertain and be entertained...
+ - After Henry’s treatment of her she wasn’t sure that men could honestly love women but she wanted to believe it. She wanted to be told pretty things and for the frightening clip of her heart to slow to something more reasonable.
+ - She had rarely been near Henry since then, and the sight of him now was like a concentrated dose.
+ - Life was a short window and there was no sense in doing the wrong thing over and over even if it was so difficult to stop.
+ - It is a truth universally acknowledge that there will always be a gentleman to dance with, except at just the moment when you require one most.
+ - In New York there is always something to look at, but it is all infinitely more interesting through a window in the backseat of a limousine.
+ - A lady must retain always her composure. Even in a rainstorm, she must appear joyous and dry. When she loses her composure, then the respect of her peers and her staff will follow in short order.
+ - Diana felt she was beginning to understand why, in all those novels she read, the headiest loves were the loves that couldn’t be.
+ - It is a fact of big cities that one girl’s darkest how is always another’s moment of shining triumph, and New York is the biggest and cruelest city of them all.
+ - Henry was thinking of the younger Holland sister of the way she could go from being an impetuous girl to a knowing woman in a few seconds and never lose the stars in her eyes.
+ - Instead, he sat in the parlor of his family’s Fifth Avenue mansion, growing older by the minute just like everybody else.
+ - Love is all right, as things go, but lovers can be a terrible waste of a girl’s time.
+ - It seemed to her as though everything that was good and true had been blasted out of the world. All those things had been crushed destroyed made to disappear.
+ - Though her emotions had not deviated from a jittery frailty she knew that in her own room she could at least attempt sleep and that if she dreamed she might then finally be with Henry.
+ - You don’t need to marry a man with millions. You only need to be your exquisite self.
+ - The headiest loves were the loves that couldn’t be.
+ - Her life, she realized, had all the charm of a steel trap.
+ - So this is how life was, she thought with a faint smile: It wore you down until you emerged at its wildest, most unexpected ends.
+ - Henry turned his hat in his hands but went on looking at Diana in a way that made her want to crawl into his arms and stay there forever.
+ - Henry closed his eyes and imagined the sweet petulant woundedness with which she had stared at him on the beach. He felt a little proud that she could love him.
+ - A young lady’s most natural ally is her sister although sometimes our own relatives are as inscrutable to us as an antipodean.
+ - That is what I want to tell you about: the girls with their short skirts and bright eyes and big-city dreams. The girls of 1929.
+ - Her heart the damned thing had begun to race and she only hoped that the rapid inflation and deflation of her chest wasn’t visible beneath her fitted bodice.
+ - They were all dressed in their finest as though life really were some magical stage play in which every moment ought to be illuminated with its own bright spotlight.
+ - There was plenty of life left and if he had to he would use it all to get her back. The time had passed for making promises to her-all that was left for him was to act.
+
+65 quotes

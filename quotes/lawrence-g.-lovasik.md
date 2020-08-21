@@ -1,0 +1,22 @@
+ - Strength of character means the ability to overcome resentment against others, to hide hurt feelings, and to forgive quickly.
+ - It is just as cowardly to judge an absent person as it is wicked to strike a defenseless one. Only the ignorant and narrow-minded gossip, for they speak of persons instead of things.
+ - Any fool can try to defend his mistakes – and most fools do – but it gives one a feeling of nobility to admit one’s mistakes. By fighting, you never get enough, but by yielding, you get more than you expected.
+ - Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!
+ - If you want to make friends, go out of your way to do things for other people – things that require time, energy, unselfishness, and thoughtfulness.
+ - Do not take yourself too seriously. You have to learn not to be dismayed at making mistakes. No human being can avoid failures.
+ - To be outspoken when truth is under attack, when charity is being bruise, or when important issues of life are at stake is a good and courageous thing. To be outspoken when nothing is at stake except the feelings of someone else is a small and contemptible thing.
+ - Irritability is immaturity of character. If you are subject to being cross and unpleasant with others for no apparent reason, you need to come face-to-face with the fact that you are thinking too much of yourself. After all, your feelings are not the most important thing in this world.
+ - Nobody needs a smile so much as the one who has none to give. So get used to smiling heart-warming smiles, and you will spread sunshine in a sometimes dreary world.
+ - Genuine love will always feel urged to communicate joy – to be a joy-giver. Mankind needs joy...
+ - Cheerfulness is a very great help in fostering the virtue of charity. Cheerfulness itself is a virtue.
+ - Kind words are a creative force, a power that concurs in the building up of all that is good, and energy that showers blessings upon the world.
+ - A sarcastic person has a superiority complex that can be cured only by the honesty of humility.
+ - A gentleman has his eyes on all those present; he is tender toward the bashful, gentle toward the distant, and merciful toward the absent.
+ - The practice of patience toward one another, the overlooking of one another’s defects, and the bearing of one another’s burdens is the most elementary condition of all human and social activity in the family, in the professions, and in society.
+ - If you feel an aversion to a person – that is, an unexplainable feeling of dislike or distaste for him – it is the most dangerous time for a proper opinion of him, his character, or his actions. Any judgment you pass upon him at such a time is bound to be unfair.
+ - Have you noticed in your past experience that your kind interpretations were almost always truer than you harsh one?
+ - If, when you charged a person with his faults, you credited him with his virtues too, you would probably like everybody.
+ - Everyone who comes within the reach of your knowledge is, as it were, on trial in your mind. It is easy to be an unjust, ignorant, and even a merciless judge. The real character of the actions of others depends in great measure on the motives that prompt them, and these motives are unknown to you.
+ - Only a kind person is able to judge another justly and to make allowances for his weaknesses. A kind eye, while recognizing defects, sees beyond them.
+
+20 quotes

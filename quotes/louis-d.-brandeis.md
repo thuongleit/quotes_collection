@@ -1,0 +1,56 @@
+ - There is no great writing, only great rewriting.
+ - Sunlight is said to be the best of disinfectants.
+ - The greatest menace to freedom is an inert people.
+ - If you would only recognize that life is hard, things would be so much easier for you.
+ - The right most valued by all civilized men is the right to be left alone.
+ - There is a spark of idealism within every individual which can be fanned into flame and bring forth extraordinary results.
+ - If there be time to expose through discussion the falsehood and fallacies, to avert the evil by the processes of education, the remedy to be applied is more speech, not enforced silence.
+ - In differentiation, not in uniformity, lies the path of progress.
+ - People fear witches, and burn women.
+ - The old idea of a good bargain was a transaction in which one man got the better of another. The new idea of a good contract is a transaction which is good for both parties to it.
+ - It is the function of speech to free men from the bondage of irrational fears.
+ - In business, the earning of profit is something more than an incident of success. It is an essential condition of success. It is an essential condition of success because the continued absence of profit itself spells failure.
+ - The function of the press is very high. It is almost holy. It ought to serve as a forum for the people, through which the people may know freely what is going on. To misstate or suppress the news is a breach of trust.
+ - The only title in our democracy superior to that of President is the title of citizen.
+ - The US States are our laboratories of democracy.
+ - Behind every argument is somebody’s ignorance. Rediscover the foundation of truth and the purpose and causes of dispute immediately disappear.
+ - If we desire respect for the law, we must first make the law respectable.
+ - There are no shortcuts in evolution.
+ - Strong responsible unions are essential to industrial fair play. Without them the labor bargain is wholly one-sided.
+ - Ways may someday be developed by which the government, without removing papers from secret drawers, can reproduce them in court, and by which it will be enabled to expose to a jury the most intimate occurrences of the home.
+ - No danger flowing from speech can be deemed clear and present unless the incidence of the evil apprehended is so imminent that it may befall before there is an opportunity for full discussion. Only an emergency can justify repression.
+ - The goose that lays golden eggs has been considered a most valuable possession. But even more profitable is the privilege of taking the golden eggs laid by somebody else’s goose. The investment bankers and their associates now enjoy that privilege.
+ - Neutrality is at times a graver sin than belligerence.
+ - No one can really pull you up very high – you lose your grip on the rope. But on your own two feet you can climb mountains.
+ - Behind every argument is someone’s ignorance.
+ - Ownership has been separated from control; and this separation has removed many of the checks which formerly operated to curb the misuse of wealth and power.
+ - The best of wages will not compensate for excessively long working hours which undermine heath.
+ - I used to oppose women’s suffrage and I’ve come to support it because these women have convinced me that we need full gender equality for full democratic participation.
+ - At the foundation of our civil liberties lies the principle that denies to government officials an exceptional position before the law and which subjects them to the same rules of conduct that are commands to the citizen.
+ - The world presents enough problems if you believe it to be a world of law and order; do not add to them by believing it to be a world of miracles.
+ - We shall have lost something vital and beyond price on the day when the state denies us the right to resort to force...
+ - There is no such thing as an innocent purchaser of stocks.
+ - Repression breeds hate; hate menaces stable government.
+ - Those who won our independence by revolution were not cowards. They did not fear political change. They did not exalt order at the cost of liberty.
+ - To be good Americans, we must be better Jews, and to be better Jews, we must become Zionists.
+ - Those who won our independence by revolution were not cowards.
+ - I abhor averages. I like the individual case. A man may have six meals one day and none the next, making an average of three meals per day, but that is not a good way to live.
+ - We gain nothing by trading the tyranny of capital for the tyranny of labor.
+ - I think all of our human Experience shows that no one with absolute power can be trusted to give it up even in part.
+ - It is one of the happy incidents of the federal system that a single courageous State may, if its citizens choose, serve as a laboratory; and try novel social and economic experiments without risk to the rest of the country.
+ - Subtler and more far-reaching means of invading privacy have become available to the government. Discovery and invention have made it possible for the government, by means far more effective than stretching upon the rack, to obtain disclosure in court of what is whispered in the closet.
+ - The general rule of law is, that the noblest of human productions knowledge, truths ascertained, conceptions and ideas become, after voluntary communication to others, free as the air to common use.
+ - Democracy is moral before it is political.
+ - No system of regulation can safely be substituted for the operation of individual liberty as expressed in competition.
+ - In a democracy, the most important office is the office of citizen.
+ - Nearly all legislation involves a weighing of public needs as against private desires; and likewise a weighing of relative social values.
+ - Those who won our independence believed that the final end of the state was to make men free to develop their faculties.
+ - I rise early because no day is long enough for a day’s work.
+ - Fear of serious injury cannot alone justify suppression of free speech and assembly.
+ - The most important thing we do is not doing.
+ - If you will just start with the idea that this is a hard world, it will all be much simpler.
+ - Anyone who critically analyzes a business learns this: that the success or failure of an enterprise depends usually upon one man.
+ - History is not life, but since only life makes history, the union of the two is obvious.
+ - There are better mothers than disaster. A native land is the best of all mothers. We American Jews have a native land we love. But it is even better to have a native land who loves us.
+
+54 quotes

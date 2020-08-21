@@ -1,0 +1,34 @@
+ - Nihilism, there’s really nothing to it.
+ - Those who understand the true nature of humanity are always loners.
+ - All creativity is a work in progress.
+ - I obviously invented Solipsism.
+ - The Celebrity Charity Industrial Complex Makes a Mockery of Compassion.
+ - We don’t fall in love, we fall in lust. We ascend to love.
+ - Our minds are big enough to contemplate the cosmos but small enough to care about who wins an Oscar.
+ - Neo-Liberalism promised us a Global Village and gave us a Potemkin Village.
+ - Faking your own death is illegal, yet faking your own life is celebrated.
+ - Royal blood isn’t blue, it is a jaundiced shade of red and riddled with broken chromosomes.
+ - Humanity enveloped in entropy desperately seeking symmetry for peace of mind.
+ - The yawn of the void. A siren call for the unimaginative.
+ - Time Is Speeding Up In Relation To Corruption. Hold On Tight.
+ - The “result” of life is death, so when you create, the importance is not on the result but on the process of creating in and of itself.
+ - We need more moral compasses and less Sat Navs.
+ - We can depend on nobody in this world, and sometimes we even betray ourselves.
+ - You can’t live in the digital and die in the analog.
+ - The Plutocracy’s insatiable hunger for pixelated information is enough to put a bulimic Pac-Man to shame.
+ - We have an infinite capacity for self interest, yet the infinite has absolutely no interest in us.
+ - Corporatism trying to redeem itself through charity is akin to a serial killer offering to pay a fine for his crimes.
+ - The atheist suicide bomber is unfaithfully committed to his mission.
+ - The most visceral science fiction always takes place in the past and focuses on the humdrum.
+ - The ego camouflages itself like a fox born and raised in a hen house. Its only worry is that you fail to notice its presence every so often and start acting without fear.
+ - Culture now spreads at central nervous system speed. It’s a shame that compassion doesn’t.
+ - Jay-Z and Kanye West are to authentic rap culture what diseased rates were to 14th century Europeans.
+ - Entertainment alleviates the fear of life, but art vanquishes the fear of death.
+ - Can the perpetrator of a “senseless” crime use transcendence as a defense?
+ - You can never read too much into anything.
+ - When inspiration comes life is lived in the moment and peace descends. When inspiration leaves thoughts turn to violently killing time.
+ - The future is just a memory that has yet to be born.
+ - Your mind gives birth to an action and, whether you like it or not, it will never let it become orphaned.
+ - Life is simply a vacation from the infinite.
+
+32 quotes

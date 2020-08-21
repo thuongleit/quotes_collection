@@ -1,0 +1,24 @@
+ - Teamwork builds trust and trust builds speed.
+ - If I’m a leader, I have a mission.
+ - Leadership is working with goals and vision management is working with objectives.
+ - Leadership means forming a team and working toward common objectives that are tied to time, metrics, and resources.
+ - You were born free by accident. You live free by choice. To die free is your responsibility.
+ - When you form a team, why do you try to form a team? Because teamwork builds trust and trust builds speed.
+ - The preparations are what they are. We’re here. The storm is coming. We are as best prepared as we can be as the eye of the storm approaches.
+ - I cant swing a dead cat without hitting a reporter.
+ - People need to be cautious because anything built by man can be destroyed by Mother Nature.
+ - You cannot depend on a sandbag dike to save your life. You put it up to try to save your property.
+ - Who is affected more when it’s cold? Poor people. Who is affected more when it’s hot? Poor people. Who is affected more when it’s wet? Poor people. Who is most affected when the economy is bad? Poor people. Poor people are the most fragile.
+ - Hurricane Sandy was one of the most vicious storm systems to hit the New York City area in nearly two centuries.
+ - During the aftermath of Katrina, National Guard troops were positioned on every block to establish a sense of safety and source of help for the people in need. They did not leave communities until people were safe and sound.
+ - Superstorm Sandy inflicted havoc and heartache throughout the Northeast, hitting the Big Apple and its surrounding coastal towns hard.
+ - In the military, as in any organization, giving the order might be the easiest part. Execution is the real game.
+ - They went into stores to get food to stay alive. Looting isn’t the right word. I call it survival.
+ - The National Guard has served America as both a wartime force and the first military responders in times of domestic crisis. Hundreds of times each year, the nation’s governors call upon their Guard troops to respond to fires, floods, hurricanes and other natural disasters.
+ - You know, we lose more homes every year to flooding than we do any other event in America.
+ - You can’t vote that water out of the city of New Orleans.
+ - Before Katrina, it was a longstanding tradition in our country for political officials to wait until the last minute to warn, to take action, to evacuate. No more. With Irene, you had mass evacuations – mandatory ones – issued days ahead of time. That was the right thing to do.
+ - I think American industry has lost perspective about their products.
+ - America needs to get over it. We can’t control everything. We can’t control the storms.
+
+22 quotes

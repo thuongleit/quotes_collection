@@ -1,0 +1,60 @@
+ - When two people are meant to be together, they will be together. It’s fate.
+ - With a secret like that, at some point the secret itself becomes irrelevant. The fact that you kept it does not.
+ - Keeping up the appearance of having all your marbles is hard work, but important.
+ - The sky the sky- same as it always was.
+ - Even as your body betrays you, your mind denies it.
+ - You do right by me, I’ll show you a life most suckers can’t even dream of.
+ - Dear God. Not only am I unemployed and homeless, but I also have a pregnant woman, bereaved dog, elephant, and eleven horses to take care of.
+ - Although there are times I’d give anything to have her back, I’m glad she went first. Losing her was like being cleft down the middle. It was the moment it all ended for me, and I wouldn’t have wanted her to go through that.
+ - I want her to melt into me, like butter on toast. I want to absorb her and walk around for the rest of my days with her encased in my skin. I want.
+ - I stare at her for a long moment. I want to kiss her. I want to kiss her more than I’ve ever wanted anything in my life.
+ - Honey, I plan to marry you the moment the ink is dry on that death certificate.
+ - Life goes on with fragile normalcy.
+ - I just can’t. I’m married. I made my bed and now I have to lie in it.
+ - Hey! Shouts Camel. There ain’t no woman in the world worth two bottles of whiskey!
+ - When I first submerged my feet into frigid water, they hurt so badly I yanked them out again. I persisted, dunking them for longer and longer periods, until the cold finally blistered.
+ - Age is a terrible thief. Just when you’re getting the hang of life, it knocks your legs out from under you and stoops your back. It makes you ache and muddies your head and silently spreads cancer throughout your spouse.
+ - Why the hell shouldn’t I run away with the circus?
+ - They grew fat and happy – the horses, not the children, or Marlena for that matter.
+ - The more distressing the memory, the more persistent it’s presence.
+ - After sixty-one years together, she simply clutched my hand and exhaled.
+ - It’s just a crazy damned life, that’s all...
+ - I scan the room. Catherine is writing quickly, her light brown hair falling over her face. She is left-handed, and because she writes in pencil her left arm is silver from wrist to elbow.
+ - Even when I look straight into the milky blue eyes I can’t find myself any more. When did I stop being me?
+ - When did I stop being me?
+ - When will people learn that just because you can make something doesn’t mean you should?
+ - I roll onto my side and stare out the venetian blinds at the blue sky beyond. After a few minutes I’m lulled into a sort of peace. The sky, the sky – same as it always was.
+ - I strain to hear, but my old ears, for all their obscene hugeness, pick up nothing but snippets:.
+ - I am ninety. Or ninety-three. One or the other.
+ - Sometimes I think if I had to choose between an ear of corn or making love to a woman, I’d choose the corn.
+ - I was always searching, always seeking the next big thing, because that was the thing that was going to make everything all right again. And while I was working toward it, it gave me something to think about other than that thing I couldn’t put my finger on. But it always came back.
+ - Do you have any idea how much an elephant drinks?
+ - The only thing that makes me crazier than writing is not writing.
+ - I hate this bizarre policy of protective exclusion, because it effectively writes me off the page.
+ - Juliet is one of those rare novels that has it all: lush prose, tightly intertwined parallel narratives, intrigue, and historical detail all set against a backdrop of looming danger. Anne Fortier casts a new light on one of history’s greatest stories of passion. I was swept away.
+ - I have to convince myself that this is not a pointless life, even the body is telling me so.
+ - I am further back, surrounded on all sides by wailing men, their faces shiny with tears. Uncle Al promised three dollars and a bottle of Canadian whiskey to the man who puts on the best show. You’ve never seen such grief – even the dogs were howling.
+ - Then I lie down on the horse blanket and drift into a dream about Marlena that will probably cost me my soul.
+ - Don’t want to get tipsy and break a hip.
+ - We traveled for two weeks with a pickled hippo.
+ - I’m truly grateful for my microwave, which allows me to easily clarify butter, steam vegetables, and – when I am really lazy – feed my three kids in less than five minutes.
+ - Must protect my little pockets of happiness.
+ - Gorillas are in danger of being wiped out by the Ebola virus. I feel like we have limited time to get to know them and understand them and they’re going to disappear – that’s terrifically sad. Wouldn’t it be great if we could stop that?
+ - The thought has cheered me, and I’d like to hang onto that. Must protect my little pockets of happiness.
+ - I think there is just a vein of humanity that really loves animals and really loves to read about them.
+ - I tend not to think about the reading public at all, or the business, when I’m writing.
+ - You work hard on a book and throw it out there and then it’s beyond your control.
+ - Being the survivor stinks.
+ - Although, pretending not to notice is almost worse than noticing.
+ - Is where you’re from the place you’re leaving or where you have roots?
+ - It’s as though I’ve been sleepwalking and suddenly woken to find myself here.
+ - I just think I’m better equipped to make a study of human personality than trying to get into the mind of animals.
+ - Jacob: I’ve never seen so much manure. Wade: Baggage stock horses. They pack’em in 27 a car. Jacob: how do you stand the smell? Wade: what smell?
+ - What else do I have to offer? Nothing happens to me anymore. That’s the reality of getting old, and I guess that’s really the crux of the matter. I’m not ready to be old yet.
+ - I don’t like outlining, because books are organic things. Sometimes a book doesn’t want to be written in a certain way.
+ - At this moment, the story in his head was perfect. He also knew from experience that it would degenerate the second he started typing, because such was the nature of writing.
+ - But it all zipped by. One minute Marlena and I were up to our eyeballs, and the next thing we knew the kids were borrowing the car and fleeing the coop for college. And now, here I am. In my nineties and alone.
+ - How hard can it be to find a girl and an elephant for Christ’s sake?
+ - So what if I’m ninety-three? So what if I’m ancient and cranky and my body’s a wreck? If they’re willing to accept me and my guilty conscience, why the hell shouldn’t I run away with the circus?
+
+58 quotes

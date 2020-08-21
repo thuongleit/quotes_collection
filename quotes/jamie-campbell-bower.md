@@ -1,0 +1,36 @@
+ - It shouldn’t matter what anyone else thinks. Life is not easy. The road to happiness is not a path well trotted. You have to find your own path to enlightenment.
+ - I don’t think I’d really be alive without it, in all honesty.
+ - My essentials are skinny jeans, loose-fitting tees, big jumpers, and the leather jacket. Everything is black or blue – I don’t own anything colorful.
+ - I like being broken. It means I can have chocolate for breakfast.
+ - I’m hardly the sexiest man in the world. I’m a bit of a geek.
+ - I see myself as a mascot for the kids who get beat down and don’t feel like they belong.
+ - People can hate on you for doing what it is that makes you happy, but ultimately it has to belong to you. It shouldn’t matter what anyone else thinks.
+ - For every person that likes you there is going to be a person that doesn’t like you. It’s the nature of humanity.
+ - People don’t get it; they think I’m rich. I’m not! I have no money.
+ - I have an apartment back home in London. England will be home for me. It always has been and always will be. It’s where my friends are.
+ - I’m an extrovert, I like to gesticulate and talk loud and stuff, and the theater is easy for me.
+ - I don’t mind if people are saying nasty things about me behind my back – I just don’t want to know about them.
+ - I tend to thrive on being misquoted. It’s the only way I sound good.
+ - You know, Johnny Depp has always been a massive inspiration for me and he’s somebody who has produced an incredible amount of work, and every single piece that he does is amazing.
+ - I like old school horror movies like Exorcist. I always loved scaring myself and I don’t know at all what that’s about.
+ - Of course, on a job, you have a shared common interest in the fact that you’re there making a movie or making a TV show, and that creates unification within a group. There has to be something more than just the work for that to continue on, for that friendship to continue on.
+ - I always had the idea that I wanted to perform. I love being the center of attention – and I always love talking about myself.
+ - I’m working on my music a lot, like folk singing, guitar. It’s sort of rocky, folky, alty, angsty. I’m putting a lot of energy into that.
+ - I feel responsible for certain fans, but I’ve never said I’m a role model.
+ - As a kid I was into horror. I loved horror. Horror was huge. I was always into horror. Goosebumps for me was massive growing up. Horror for me was always a big thing.
+ - For me, it’s interesting because I never thought of myself as an action man, but apparently I can do it, so that’s good to know.
+ - If I could play any character from the book though it’d be Church. Who wouldn’t want to be a cat?!
+ - I write music. I’m in a band.
+ - Growing up in England, I was constantly surrounded by the Arthurian legend.
+ - I was obsessed with girls when I was 13 years old; I wasn’t really into books.
+ - I’m nervous when taking part in any movie.
+ - I want to do more movies. I feel like it’s a totally different skill set than there is to theater. It’s much more internal.
+ - I’m a horrible romantic!
+ - As an actor and as a performer, I’m very much aware of the fact that my job is to change both physically and emotionally and that was what hurt the most – the fact that people were judging me based on nothing.
+ - I’ve been a musician longer than I’ve been an actor.
+ - I think I’m always drawn to a good story.
+ - Particularly for English people, Shakespeare is always at the forefront of both drama and the English language. He’s always been there. I can’t remember starting school and not learning about him.
+ - I think I’m nervous to sign on to any job.
+ - Being on a movie set is wonderful experience, but it’s a bubble – it isn’t real life.
+
+34 quotes

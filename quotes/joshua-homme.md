@@ -1,0 +1,40 @@
+ - I like when people take chances.
+ - Independent minded girls that are naked sounds like a great start to something.
+ - I’m not a militant, drug-taking freak! I’m sensitive.
+ - I’m not so much of a joiner.
+ - I like to move forward and notice things along the roadside that indicate where I should go.
+ - I don’t mind saying what’s on my mind.
+ - You got to risk something to be able to give something, you know?
+ - I break my back for music because it’s something that I love, but I’m not going to break my back for a bank. I wouldn’t want to be an ATM repairman; there are some things that just aren’t worth it.
+ - Banks are kinda cool, you put some money in there. It should be kinda vaguely sexy, but it’s not.
+ - I know there are some labels that put out music for art’s sake, but I don’t know which ones.
+ - I’ve been playing live gigs since I was 13. I really don’t know how to do anything else, and please God strike me down.
+ - Not everyone deserves to be a musician, you get lucky enough to be one.
+ - Sometimes you’ve got to draw a line between having all the options and being a slave to the things, using them every time you play the guitar. I’m trying to keep a real inconsistency to the pedals so that it is something new every time.
+ - I think the notion of understanding each other is a relief. It’s not a thing you get with everyone you hang out with.
+ - Foolishly play with the fires of rumor, only to risk being burned by its treacherous flames.
+ - Guitar solos, to me, should be a really articulate way to make fun of guitar solos.
+ - A homemade affair that’s just in time for Halloween.
+ - I hate that sense of entitlement or the sense of business crawling into playing music.
+ - All I really care about is that I’m being honest and I’m real and I’m coming from a real place.
+ - I think I learned years ago when I went to Hawaii that you don’t bring puka shells back. You’ve got to be careful of your vacation purchases.
+ - I think more people need to make out.
+ - I’m not politically correct; I never said I was.
+ - I write about my life and the lives of people around me and situations, and the idea’s for each record to try to make you a better person, to understand the life that you lead more.
+ - I like to write about things that are dark or twisted. Where the poetry seems to be is when you start in the dark and reach for the light – that’s what makes it not depressing to me.
+ - I like to keep my feet on the sidewalk.
+ - If you’re trying to do something different, you can’t ask someone to help, because they’ll want to make it not different.
+ - After all, nothing helps to write lyrics more than to mess around with the language.
+ - When you try to put everything into music, there’s no room left to try to make you think we’re cool. We know you think we’re cool.
+ - I think people listen to whatever they think is good.
+ - I think people get fixated on the example of an idea.
+ - I think part of what happens is that small labels want to get bigger. And bigger is not better.
+ - I think everyone is trying to figure out who they are and their own thing.
+ - I’m just going to put out three or four releases a year and make it so that if you like the Desert Sessions, then you’ll definitely like everything else.
+ - I got into guitar because no parent will buy their eight-year-old kid drums, unless they’re divorced and trying to get back at their wife.
+ - Records don’t have to be perfect.
+ - Any band on their first couple records is just trying to keep up with their inspiration.
+ - I’ve always heard music in my head since I was a little kid, so I’ve always played towards that. If I felt bad, that’s what I did.
+ - I think if you play music and you join a scene you’re already too late.
+
+38 quotes

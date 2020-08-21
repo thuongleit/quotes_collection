@@ -1,0 +1,34 @@
+ - People naturally despise a dependant.
+ - Inequality is as dear to the American heart as liberty itself.
+ - It is the still, small voice that the soul heeds, not the deafening blasts of doom.
+ - A man never sees all that his mother has been to him until it’s too late to let her know that he sees it.
+ - By beauty of course I mean truth, for the one involves the other; it is only the false in art which is ugly, and it is only the ugly that is universal.
+ - The conqueror is regarded with awe; the wise man commands our respect; but it is only the benevolent man that wins our affection.
+ - The secret of a man who is universally interesting is that he is universally interested.
+ - Wisdom and goodness are twin-born, one heart must hold both sisters, never seen apart.
+ - Primitive societies without religion have never been found.
+ - It is the curse of prosperity that it takes work away from us, and shuts that door to hope and health of spirit.
+ - How is it the great pieces of good luck fall to us?
+ - Each one of us must suffer long to himself before he can learn that he is but one in a great community of wretchedness which has been pitilessly repeating itself from the foundation of the world.
+ - Some people stay longer in an hour than others can in a week.
+ - The wars come and go in blood and tears; but whether they are bad wars, or what are comically called good wars, they are of one effect in death and sorrow.
+ - The book which you read from a sense of duty, or because for any reason you must, does not commonly make friends with you.
+ - The disposition to give a cup of cold water to a disciple is a far nobler property than the finest intellect. Satan has a fine intellect, but not the image of God.
+ - He who sleeps in continual noise is wakened by silence.
+ - What the American public wants in the theater is a tragedy with a happy ending.
+ - You’ll find as you grow older that you weren’t born such a great while ago after all. The time shortens up.
+ - A friend knows how to allow for mere quantity in your talk, and only replies to the quality.
+ - There will presently be no room in the world for things; it will be filled up with the advertisements of things.
+ - The difficulty is to know conscience from self-interest.
+ - In Europe life is histrionic and dramatized, and in America, except when it is trying to be European, it is direct and sincere.
+ - The mortality of all inanimate things is terrible to me, but that of books most of all.
+ - Preach the blessings of our deeply incorporated civilization by the mouths of our eight-inch guns.
+ - We are creatures of the moment; we live from one little space to another, and only one interest at a time fills these.
+ - If ever the public was betrayed by its press, it’s ours.
+ - Do not trouble yourselves about standards or ideals; but try to be faithful and natural: remember that there is no greatness, no beauty, which does not come from truth to your own knowledge of things; and keep on working, even if your work is not long remembered.
+ - I wonder why we hate the past so.
+ - If we like a man’s dream, we call him a reformer; if we don’t like his dream, we call him a crank.
+ - Is it worth while to observe that there are no Venetian blinds in Venice?
+ - The wrecks of slavery are fast growing a fungus crop of sentiment.
+
+32 quotes

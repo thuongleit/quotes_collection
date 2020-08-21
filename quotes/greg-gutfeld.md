@@ -1,0 +1,106 @@
+ - Delayed gratification is the one thing we ignore these days. And if you delay it, it becomes more pleasurable later in life.
+ - I never quit. I just got fired.
+ - We need to remember who the enemy is, and then we need to eat them alive.
+ - The government is controlling your mind through chem trails, we all know this is true.
+ - Military simulation is an important way of training people for an emergency.
+ - Good people suddenly don’t turn bad.
+ - If America was a house, the Left would root for the termites.
+ - Sanctuary cities are a lot like hitchhiking. And the abstract, it feels really good until you feel dead.
+ - Essentially, the Tea Party are the Hell’s Angels, but with sun visors instead of switch blades. They push macaroni instead of meth. Mess with the Tea Party and they’ll put your dog in an American flag sweater on a hot day.
+ - Chris Matthews is so nuts that if he ate a snickers bar it would be cannibalism.
+ - Celebrities are the doormats to power.
+ - The longer I live, the more I’m convinced the world is just one big high school, with the cool kids always targeting the uncool.
+ - Being a conservative on campus is like bing a goat amongst the taliban. You are never safe.
+ - A funny thing about tolerant people? They’re really only tolerant when you agree with them.
+ - Fake sympathy is the politicians demanding more cash as they ignore the underlying crisis. They prefer money over morality.
+ - Is your relationship strong enough to survive a trip to Ikea? Is their furniture strong enough to survive a relationship? Have you ever bought a bed there?
+ - You should just go, go to work, work hard, be a perfectionist, be a workhorse. If you work 10 years straight, you’ll be comfortable and set for life. That is a fact.
+ - ObamaCare is to health care as a fart is to an elevator.
+ - I have friends my age who started smoking pot when they got out of college. They didn’t get anywhere. But if they drank, they managed to go somewhere. Does that make sense?
+ - When you are so obsessed with identity politics it’s not healthy because you’re constantly worried about how you’re perceived as opposed to your achievements. Once your identity becomes your achievement then you run into serious problems.
+ - We need somebody that can unify a country in spite of a vocal powerful media that’s intent on division. It’s not about winning the media. It’s about winning the people, and I don’t think it’s necessarily persuasive to eat – to cannibalize yourself. I think that you have to pick the winner.
+ - I don’t like the way my hair looks, so we’re going to do the whole show over.
+ - I haven’t used that word since I was 7 years old. I don’t understand Donald Trump.
+ - I have to say that Adam Levine is truly a daring young man to go on Twitter to bash Fox News. He’s so rebellious, so subversive. I mean, for a musician, seriously, could you find a more predictable stance than that? He’s as edgy as a hacky sack, which also describes his music.
+ - Legal gun ownership always prevails over the emotionalism of the gun control movement.
+ - We’re already going down that path with illegal drug use and incarceration. I can’t imagine it getting any worse.
+ - The joy of hate reflects people who get off pretending to hate something, or hate you, in order to score political points. I call them the ‘tolerati’ – you know, a group of people who claim to be tolerant, except when they run into someone who disagrees with them.
+ - One thing I noticed when I was young was I was impatient for success. I think everybody is impatient for success. It will come. But don’t – you shouldn’t let that impatience drive you crazy.
+ - I guess if your heart’s in the right place, the trash can go anywhere.
+ - What I’m going to miss is the competition, being, that’s OK, I can watch from the house.
+ - We need an idiot middle ground, where we have to be honest and say, kids can be idiots and cops can be idiots.
+ - I want to make a positive point of Ikea. It makes income inequality a minor distraction.
+ - The most problematic word in America is the word “problematic.” It’s a wuss word used by people to silence language without actually saying that they want to silence you. They don’t want to go full fascist.
+ - Some things get better with age. And then there’s Madonna.
+ - I know that if I say something that’s considered outrageous, a group will take it, create an email blast, and use me to raise money or to do whatever, to build their profile.
+ - When you talk about Islamic terror. You go, oh, you’re an Islamic – you’re Islamophobic because you besmirching all Muslims. No. I’m talking about Islamic terror.
+ - There’s an argument that celebrities stop growing mentally the moment they reach stardom and then they just – everything goes away. I think that’s true.
+ - Planned Parenthood’s entire existence is basically based on keeping people in the dark through euphemism. You don’t call it genocide, you call it reproductive health. So that’s why Planned Parenthood has – nobody really thought.
+ - The irony of prison is that it takes years and years and years to plan an elaborate escape, but all you have is years and years and years.
+ - Private citizens and companies are always seen as evil and greedy, because they want to profit. But the government picks your pocket any chance it can get, but they’re never called greedy.
+ - I don’t understand why a 40 is a quarter of beer when a 40 is 40 ounces. It’s time to embrace the metric system.
+ - You also wonder if a restaurant placed an ad that read, “Only homeless need apply,” would they get fined? Probably not. But if they said, “No homeless apply,” they would be transient bigots. For as bureaucrats use language to punish the lawful, they use tolerance to coddle the troubled.
+ - Politicians, you know Harry Reid hates you. We get it. But when somebody from “The New York Times” or “The Washington Post” is saying this stuff, that’s different, that’s offensive, that’s wrong.
+ - The media treats fear like a one-night stand. They jump on it and then they leave the next day and they forget – remember the Alar Scare? Things – see, nobody even remembers Alar.
+ - I would like to see a president with a monocle.
+ - Move somewhere with decent public transit so you don’t drive drunk and hit somebody.
+ - When you get famous and rich when you’re young, what happens is you start feeling insecure.
+ - Accusing a politician of being politically expedient is like accusing water of being wet or circles for being round.
+ - If Russia, if Russia had the same military power that America did, earth would be called Russia.
+ - Playboy seems like a sad magazine for me. It seems like for men who would sit around in a bath robe.
+ - I’ve always wondered, how did Hitler get away with so much for so long?
+ - The problem with legalization is we already have a dependent generation that’s subsidized to oblivion. And will legal pot somehow slice another sliver of the population off of the productive world?
+ - Steer clear of pot. It’s an ambition zapper. Wait till you’ve made it. When you’re 45 buy a bong. But for now, buy a suit.
+ - We have two nations, and it’s not black or white. It’s red and blue. Under Republican leadership, cities tend to do better. Cities are destroyed under Democrats, because they don’t know how to deal with the constituency; they’re terrified.
+ - There are always gonna be people that are gonna be offended about something. This will never end.
+ - Unlike those who fight truly intolerant things like terrorism throughout the world, Madonna is really the lone brave voice in the wilderness standing up against evil.
+ - If you’re hiring, if you’re the person doing the hiring, forgive a scar or two. Remember that when we were young, we were also idiots. There were just no cameras there to catch it.
+ - The great thing about being rich is, you can embrace practices that kill the poor – that’s what socialism does.
+ - I’m thinking about American votes and American – all Americans, black or white have to be concerned about what’s happening in the world.
+ - If you’re a Republican and rich, that’s evil. But if you’re a Democrat and rich, that’s great.
+ - Eric Holder sees everything through the prism of race. He keeps that mustache because shaving cream is white.
+ - Paternity, paternity. Let’s think about this. This discriminates against the childless. So you get a year off because you produce a brat. If anything if you have a child you should work more because your brat’s going to annoy me at the restaurants.
+ - Al Gore completely lied about climate change in an effort to make a lot of money.
+ - Security should not be a black and white thing.
+ - Ocean privilege does not exist anymore. The world is small. We cannot rely on distance anymore.
+ - When you have a TV show or when you are running a magazine, you have to remember that your audience isn’t rich. They’re not made of money.
+ - When the government sees a poor area, its solution is to move the poor out.
+ - The beauty of progress is that it makes it easier for you to carve out a space to be nonproductive.
+ - How can you have a reasonable debate with people who are constantly changing the panic? They are moving the panic to a greater wave of hysteria?
+ - I’m sure if you could survey the unborn they would prefer the chance for life over the options of solar power.
+ - The problem is, then you see immigrants saving cities in Baltimore and you see 40 Korean groceries get burned down.
+ - When immigrants go into the worse neighborhood and they fix it up, they should become citizens.
+ - The thing which Reagan did, which was great, was he won the people. He marginalized the media. And that’s what you need, an intellectual agility.
+ - People that want to control words will never ever try to break up, like, a fight on a subway. They will never confront an aggressive person on the bus. They prefer their fights to be easy.
+ - 92 people are killed every single day in car fatalities. What if we filmed every one of them? No one would drive cars.
+ - Hollywood’s schizophrenia over guns is matched only by their attitude toward taxes. Ever wonder why they film in Vancouver so often? It ain’t for the beaches, I can tell you.
+ - It goes back to the if identity becomes your achievement, what do you do, this is what happens? And I do think it leads to psychological disorders. You have to start doing things and stop thinking about yourself.
+ - I am not the least bit religious, but at least I stick up for the good work of religion and the cascade of benefits that come from religion.
+ - Fact is, the desperate desire to be cool has skewed our culture toward nihilism, carelessness, and ineptitude. It is now cool to be an idiot. A jackass. It’s cool to be a failure, as long as your failure is the basis for a reality show.
+ - Job creation is important I think, but it’s not the critical issue for Republicans.
+ - You can’t get more racist than hating black conservatives just because they’re black.
+ - The first mistake is trying to explain morality to a terrorist. Like trying to teach a rock to drive. It is impossible.
+ - We used to actually kill each other before we discovered rhetoric in words. If you look at other countries, there are people attacking each other in parliament and stuff.
+ - Why is our media quick to find evil in our local police, but tnot in Islamic terror?
+ - I don’t know if you get anything more adorable than a tiny pig eating an apple. And here’s a fun fact. This is how you make apple-smoked bacon.
+ - I admire President Obama’s ability to trust strangers.
+ - The problem with the immigration debate, it’s probably is the most poisoned and political debate of any issue, because you have this huge voting bloc that everybody says is yours.
+ - America is like the greatest hit of the world.
+ - ObamaCare is creating nothing but misery for everybody.
+ - You should try to get fired once in a while. It’s good for you.
+ - The problem with Republicans and Conservatives is we attack each other.
+ - Republicans do actually care about health care. They just don’t care about government-run health care.
+ - Ask dumb questions and listen quietly for the answers. That’s a wisdom stair climber.
+ - I think the reason why ‘Red Eye’ is popular is because we question the common assumptions that you find elsewhere.
+ - When someone in power declares that something is broken that means it’s actually fine. What they’re really saying is, “Let’s change this so I like it and ruin it.” Nothing is ever broken.
+ - If a journalist calls you a racist, chances are, all other journalists will call you a racist.
+ - People ask me what I am politically and I’ve previously offered this equation: I became a conservative by being around liberals. And I became a libertarian after being around conservatives.
+ - Al Sharpton chases the spotlight the way Obama chases golf balls.
+ - Magic Johnson links his HIV and treatment to health care as though ObamaCare would provide the same level of care that a mega rich celebrity would get. Is he going to dump his coverage? Is he going to dump it and sign up for ObamaCare?
+ - In the hands of fiends, guns will kill you. In your hands, they protect against such fiends.
+ - The problem with leftism as a vice is that everyone else is stuck with the hangover.
+ - American people, what about the American people? I think the president delights in the fact that they have been roofied by technology and pop culture. They’re not conscious to any expansion of power, which is why they’re happy to exist in this dependant decline.
+ - Commencement addresses are usually garbage. They’re for colleges seeking publicity.
+ - The media is Obama’s scandal condom.
+
+104 quotes

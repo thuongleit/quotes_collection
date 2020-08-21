@@ -1,0 +1,118 @@
+ - Faith is not believing that God can. It is knowing that God will.
+ - The human spirit needs to accomplish, to achieve, to triumph to be happy.
+ - The indispensable first step to getting the things you want out of life is this: decide what you want.
+ - It’s amazing what ordinary people can do if they set out without preconceived notions.
+ - Jump into the middle of things, get your hands dirty, fall flat on your face, and then reach for the stars.
+ - No one will do it for you.
+ - Personal relationships are the fertile soil from which all advancement, all success, all achievement in real life grows.
+ - Keep on beginning and failing. Each time you fail, start all over gain, and you will grow stronger until have accomplished a purpose – not the one you began with perhaps, but one you’ll be glad to remember.
+ - What’s a good investment? Go home from work early and spend the afternoon throwing a ball around with your son.
+ - It isn’t the rich people’s fault that poor people are poor. Poor people who get an education and work hard in this country will stop being poor. That should be the goal for all poor people everywhere.
+ - If we are just specks of dust hit by lightning, if we have no spark of God in us, why not just take whatever we can and devil take the hindmost? I mean, we are fools not to do that if there is no right or wrong.
+ - When I seemed to be irritable or sad, my father would quote the learned Dr. Knight, and then say, ‘Just go to sleep.’ Like all smart aleck kids, I thought the advice was silly. But as I’ve grown older, I’ve realized just how smart Knight was.
+ - I don’t believe the most successful people are the ones who got the best grades, got into the best schools, or made the most money.
+ - You must take the first step. The first steps will take some effort, maybe pain. But after that, everything that has to be done is real-life movement.
+ - Screaming at children over their grades, especially to the point of the child’s tears, is child abuse, pure and simple. It’s not funny and it’s not good parenting. It is a crushing, scarring, disastrous experience for the child. It isn’t the least bit funny.
+ - I think a snob would be a person who thinks he is entitled; he has good things in his life and is entitled to them.
+ - I think it’s criminal how little people in the military are paid. These are people out risking their lives, taken away from their families for long periods of time. I think they should be paid dramatically more than they’re paid.
+ - Science leads you to killing people.
+ - The education system should teach us about money; it’s an incredibly big subject. I run into people all the time that don’t have the first clue of what they should do about money.
+ - The successful people of this world take life as it comes. They just go out and deal with the world as it is.
+ - I have to tell you I never in my life anticipated getting this old, this fast. It seems as if I were 25 just a few days ago.
+ - Life lived to help others is the only life that matters.
+ - If you want to fight the evil you see in finance and industry, get to work reading the corporate filings, see if there has been fraud, and where you find it, report it to the SEC or write about it or blog about it.
+ - I don’t think Wall Street people in general are smart. I think that’s one of the biggest myths in American lore. They’re tough, aggressive, greedy, quick thinking but I don’t think they’re particularly smart at all.
+ - I am a Jew, and every single one of my ancestors was Jewish. And it does not bother me even a little bit when people call those beautiful lit up, bejeweled trees Christmas trees. I don’t feel threatened. I don’t feel discriminated against.
+ - It’s really amazing that in the age of unbelief, as a smart man called it, there isn’t even more fraud. After all, with no God, there’s no one to ever call you to account, and no accounting at all if you can get away with it.
+ - Love of God and compassion and empathy leads you to a very glorious place- science leads you to killing people.
+ - If Iran and North Korea, by some horrible, devilish, nightmarish scenario, got together and went to war at the same time, one against Saudi Arabia and one against South Korea, I don’t know what we would do about that. I don’t know that we could stop them short of using nuclear weapons.
+ - We are not supposed to be all equal. Let’s just forget that. We are supposed to have equal rights under law. If we do that, we have done enough.
+ - I am scared of running out of money.
+ - Academic freedom is being lost by a great many people who dare to challenge Darwinism. That’s a terrifying situation. That’s contrary to the principles of science.
+ - I am scared of getting old. I am scared of being ill.
+ - Darwinism doesn’t explain where gravity comes from. It doesn’t explain where thermodynamics comes from. It doesn’t explain where the laws of physics come from. It doesn’t explain where matter comes from.
+ - Being a Daddy is priority number one. When you are old and facing oblivion in a nursing home or a hospital or on a golf course in winter, you are not going to wish you had spent more time at the office or making a sales call or watching a show. You will wish you had spent more time with your family.
+ - I’m not a Mensa member. I have no idea where that rumor came from. I never have been, and I doubt if I ever will be.
+ - If there are finer beings than German short hairs, I don’t know what they are. In their eyes is peace.
+ - Prime-time network television has become an island without religion in an ever-more-religious America.
+ - I am so used to having a comfortable life. What will it be like when I am no longer able to just buy anything I want?
+ - If you can’t stand the heat, don’t go to Cancun in the summer.
+ - If there is no God, then man sometimes thinks he is god, and sometimes tries to live like a god.
+ - Usually I am not a conspiracy theorist. I don’t believe in the Bilderbergers as a conspiracy or the Trilateralists. But I am certain that the Communists killed JFK. There is a super great book called ‘Legend’ by Edward Jay Epstein that makes it all perfectly clear.
+ - My parents, products of the Great Depression, were successful people, but lived in a state of constant fear that my sister and I, and they, would sink into the kind of economic insecurity that their generation knew so well.
+ - I’m out and about meeting people all day long. And I’m very friendly; I talk to just about everybody I meet.
+ - It doesn’t bother me a bit when people say, ‘Merry Christmas’ to me. I don’t think they are slighting me or getting ready to put me in a ghetto. In fact, I kind of like it.
+ - I don’t like the sound of all the lists he’s making.
+ - The sad fact is that spending rises every year, no matter what people want or say they want.
+ - It is so great to sleep in safe, glorious, beautiful America. I just cannot get over it.
+ - The people who did the collateralized mortgage obligations, sold them to pension funds, then sold them short, then bought credit default swap insurance on them, are just amazing. They are a law unto themselves.
+ - If we try to engineer outcomes, if we overturn tradition to make everyone the same, we ruin society. If we upset tradition to allow for an equal shot at the starting gate, everyone wins, except for the charlatans and would be dictators.
+ - I think, there are many people who are much smarter than I am, and many, many, many who are much harder-working than I am, but in terms of the range of my activities, they’re unique.
+ - If there is no God, why bother to tell the truth? Why not steal?
+ - It’s a lot better to hope than not to.
+ - I have always been very concerned that Darwinism gave the basic okay to terrible racism and to the idea of murder based upon race.
+ - Sleep more at night. If it’s allowed at work or home, take a nap in the afternoon. You’ll be amazed at how much better you’ll feel.
+ - You can do what you think you can do and you cannot do what you think you cannot.
+ - Israel is our strongest, most reliable ally in the Middle East. Of course, we’re their most reliable ally, too.
+ - It means zero to be against greed.
+ - The scientific community says that if you even mention God as causes of anything scientific, you’re gone.
+ - For me, I’ve always believed that there was a God. I’ve always believed that God created the heavens and earth – so, for me it’s not a huge leap from there to intelligent design.
+ - I spend so much time in fear of going broke, and I never have been even remotely close to going broke.
+ - When are American Jews going to realize that the Republican Party is far better for Israel than the Democrats?
+ - Sleep makes people calmer, more alert, less fearful – just plain happier, or so I see around me and in me. I am sure that if this great nation were to concentrate on getting more sleep, we would be a happier, more confident people, and that by itself would be a major achievement.
+ - Darwinism is still very much alive, utterly dominating biology. Despite the fact that no one has ever been able to prove the creation of a single distinct species by Darwinist means, Darwinism dominates the academy and the media.
+ - I have talent at playing myself. I don’t have a very broad range, but at playing myself I am a wizard. It’s more than fun; it’s the best job on Earth.
+ - The banks are not lending, at least from what I see. They were so wild and reckless back in the good times that they got burned terribly.
+ - I tell you why I don’t think I will ever vote for a Democrat, if I may say so. Because for me, the number one issue is right to life, and I don’t think the Democrats are very good on the right-to-life issue.
+ - The America that we knew as the smartest place on the planet is gone with the wind.
+ - Politics is a thankless occupation; I have no interest in it at all.
+ - I am about to vote. I am about to do something that human beings are rarely allowed to do. I am doing something that did not exist until America.
+ - Science should always be in the business of attempting to disprove itself.
+ - So, who in the media is without sin among us? I am in the media and I am a major league sinner. I don’t know anyone except my wife who isn’t a big time sinner.
+ - The poor black people in it make the black people in Gone With the Wind look like Malcolm X.
+ - I don’t really consider myself to be a personal finance expert compared with some others. There are quite a few that know a lot more than I do.
+ - People ask how I can be a conservative and still want higher taxes. It makes my head spin, and I guess it shows how old I am. But I thought that conservatives were supposed to like balanced budgets. I thought it was the conservative position to not leave heavy indebtedness to our grandchildren.
+ - My ‘thing’ is that I just lie in my immense bed and look out the window at the skyline over Virginia and the sky and the airplanes coming into Reagan. I really love doing that.
+ - I do all of the grocery shopping in my little family. I buy cheese, of many different kinds, sliced packaged meats and poultry, bagels, immense quantities of eggs, pre-made fried chicken. Milk. Bacon. It is insane how much dairy, deli and bakery stuff I buy.
+ - Yes, Americans can still get credit for cars and trucks and refrigerators, and those businesses are doing well. But just try to get a home loan now.
+ - And now, any of those who refuse, or are unable, to prove they are citizens will receive free insurance paid for by those who are forced to buy insurance because they are citizens.
+ - Trying to pick individual stocks is a trap. I can’t do it. Warren Buffett can, but hardly anyone else can beat the indexes over a long period of time.
+ - I feel as if I’m in on a pass and am damn lucky to have whatever I have. It could all be taken away in a second.
+ - Emperor Sid Caesar is gone to eternity himself now. He takes with him the gratitude of every one of us who first learned the relief of laughter from this genuinely great performer.
+ - If there’s a recession, I’d buy stocks. That’s when you make money: when markets are spooked.
+ - I am so in love with just lying in bed listening to Mozart.
+ - Now we’re asking ourselves why our children have no conscience, why they don’t know right from wrong, and why it doesn’t bother them to kill strangers, their classmates, and themselves.
+ - I thought that all of the sacrifices and blessings of the whole history of mankind have devolved upon me. Thank you, God.
+ - Somewhere there is a map of how it can be done.
+ - I always assumed scientists were free to ask any question, pursue any line of inquiry without fear or reprisal.
+ - Americans are terrified because so many of them have been laid off in recent years and months and they fear that they may be next. Even if they have not been laid off or have not known anyone laid off, they definitely know someone who has lost his home.
+ - Neo-Darwinists ask us to believe in things not seen. We’re not supposed to have an established religion in America, but we do, and it’s called Darwinism .
+ - There’s no evidence whatsoever that Darwin had anything useful to say or anything to say period about how life began or how the universe began or how gravity began or how physics began or fluid motion or how thermodynamics began. He had nothing to say about that whatsoever.
+ - I think Darwinism as a theory explaining evolution within species is incredibly brilliant – just unbelievably, incredibly brilliant.
+ - People getting rich in a free society in general – with some scammy exceptions, which are rare – makes everyone else richer, too.
+ - It’s a great stretch for me to do my game show. It’s very hard. It’s not me at all. The only part that’s me is sort of when I’m sitting in the booth looking tormented. That’s the only part that’s the real me.
+ - I’d say the main way people get into terrible financial trouble is just to spend too much money relative to their income, and that is an endemic problem in the United States of America, and that’s the kind of thing that should be taught about in schools.
+ - I agree that there are some bad apples on Wall Street. I spent about ten years exposing corporate and financial fraud for ‘Barron’s’ magazine and I found a lot to write about.
+ - Humans are alive, therefore life must be complex.
+ - As Beverly Hills becomes more Iranian-Jewish, it is becoming politically conservative.
+ - I have no idea where the concept came from that America is an explicitly atheist country. I can’t find it in the Constitution, and I don’t like it being shoved down my throat.
+ - Wow, bad news. Mr. Obama now hates Israel because the Israelis want to build 1,600 apartments in their own capital city, Jerusalem. Russia hates Israel, too. So do the Europeans. So does Ban Ki-moon, a Korean who is secretary-general of the UN.
+ - Running a real business is exacting, daunting, repetitive work. Even in Silicon Valley.
+ - Could Congress really do its work if it held its sessions by teleconferencing? Could the Supreme Court? Nothing can replace the spark of intelligence that travels from person to person at meetings.
+ - We in the media are just people with all of people’s faults.
+ - When Hollywood sees a good story about a man who sells confidence, they see themselves and they like it.
+ - Men and women succeed because they find a field of endeavor that matches their interests and abilities.
+ - Israel being condemned by the EU, which 66 years ago watched with glee as its Jews were being mass murdered. That is pretty rich.
+ - I’ve never liked the idea of just having an office in a college somewhere and teaching classes and going to the library and doing research all day. I’ve never wanted that. The glamorous life is the life that appeals to me.
+ - Greed is a basic part of animal nature. Being against it is like being against breathing or eating. It means nothing.
+ - A corporation’s responsibility is to the shareholders, not its retirees and employees. Companies are doing everything they can to get rid of pension plans and they will succeed.
+ - Hollywood is largely about scammers and con men. It was my main livelihood for about 25 years, and the scams were beautiful and ugly, cheap and expensive, but, wow, were there a lot of scammers.
+ - I love sleeping in a moving car more than sleeping in bed.
+ - I have always been very diversified, so I have never suffered a catastrophic loss. I spread my money around the way a large institutional investor does. I use different brokerage firms. I manage some of my accounts myself...
+ - Every soul deserves a shot at a Cadillac, but not everyone should be guaranteed a Cadillac.
+ - You cannot win if you’re not at the table. You have to be where the action is.
+ - Put simply, the rich pay a lot of taxes as a total percentage of taxes collected, but they don’t pay a lot of taxes as a percentage of what they can afford to pay, or as a percentage of what the government needs to close the deficit gap.
+ - I’m an economist by training. I don’t really work as an economist. I only worked briefly as an economist.
+ - After all the black man has been through in this world, he can still often reach levels of spirituality the most pampered white man cannot touch. Maybe what he’s been through is the reason why.
+
+116 quotes

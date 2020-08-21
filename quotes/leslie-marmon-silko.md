@@ -1,0 +1,24 @@
+ - You don’t have anything if you don’t have the stories.
+ - When someone dies, you don’t get over it by forgetting; you get over it by remembering, and you are aware that no person is ever truly lost or gone once they have been in our life and loved us, as we have loved them.
+ - As long as the hummingbird had not abandoned the land, somewhere there were still flowers, and they could all go on.
+ - Things which don’t shift and grow are dead things.
+ - The Indian wars have never ended in the Americas.
+ - To be able to make up stories has been a great gift to me from my ancestors and from the storytellers who were so numerous at Laguna Pueblo when I was growing up. I learned to read as soon as I could because I wanted stories without having to depend on adults to tell or read stories to me.
+ - I write in order to find out what I truly know and how I really feel about certain things. Writing requires me to go much deeper into my thoughts and memories than conversation does. Writing provides the solitude necessary to reflect on being in this world.
+ - Time limits are fictional. Losing all sense of time is actually the way to reality. We use clocks and calendars for convenience sake, not because that kind of time is real.
+ - Moonflowers blossom in the sand hills before dawn, just as I followed him.
+ - Because if you weren’t born white, you were forced to see differences; or if you weren’t born what they called normal, or if you got injured, then you were left to explore the world of the different.
+ - Janice Gould is one of our best poets. The music of her poetry will delight you, and her gentle courageous accounts of tribal, family, and personal history make this book unforgettable. Doubters and Dreamers is a master-piece.
+ - But as long as you remember what you have seen, then nothing is gone. As long as you remember, it is part of this story we have together.
+ - What is it about us human beings that we can’t let go of lost things?
+ - Writing cant change the world overnight, but writing may have an enormous effect over time, over the long haul.
+ - The truth of course was otherwise, but Lecha had never felt she owed anyone the truth, unless it was truth about their own lives, and then they had to pay her to tell them.
+ - But sometimes what we call ‘memory’ and what we call ‘imagination’ are not so easily distinguished.
+ - Anybody can act violently – there is nothing to it; but not every person is able to destroy his enemy with words.
+ - The story was the important thing and little changes here and there were really part of the story. There were even stories about the different versions of stories and how they imagined the differing versions came to be.
+ - I don’t make outlines or plans because whenever I do, they turn out to be useless. It is as if I am compelled to violate the scope of any outline or plan; it is as if the writing does not want me to know what is about to happen.
+ - Fortunately, her year of graduate classes prepared her for obnoxious conduct.
+ - Night. Heavenly delicious sweet night of the desert that calls all of us to love her. The night is our comfort with her coolness and darkness. On wings, on feet, on our bellies, out we all come to glory in the night.
+ - Being alive was all right then: he had not breathed like that for a long time.
+
+22 quotes

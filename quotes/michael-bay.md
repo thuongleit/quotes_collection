@@ -1,0 +1,30 @@
+ - Why isn’t everything exploding?!
+ - I’m done with effects movies for now. When you do a movie like ‘Transformers,’ it can feel like you’re doing three movies at once – which is tiring.
+ - The press don’t like to say nice things because nice is boring. It’s much better to label me the devil. What we do is not brain surgery. We are entertainers, plain and simple, and we’re responsible to bring that money back, to make a profit.
+ - I make movies that audiences like, that I’d want to see. That’s all.
+ - We don’t make movies for critics. I’ve done four movies; there’s millions upon millions upon millions of people who’ve paid to see them. Somebody likes them. My greatest joy is to sit anonymously in a dark theater and watch it with an audience, a paying audience.
+ - Fast cars are my only vice.
+ - I go out there to win. People don’t care if you die in this business. The only way I get back is with success.
+ - Im at that point in my life where I definitely want to get married soon. Ive got my dogs as surrogates, but Im ready for kids.
+ - Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.
+ - A car is a big thing for anyone going into adulthood, it’s a big seminal moment.
+ - I make movies for teenage boys. Oh, dear, what a crime.
+ - Some nights I sleep like a baby. Other nights it’s, Oh God, I just came up with a bomb shot.
+ - I was talking to one of the writers about our target audience, and he was insulted that I used that term. But if you’re given $60 million to make a film, you’d better know who your target audience is. That’s who’s going to pay back the bills you run up.
+ - I’m one of the few directors that actually shoots a lot in camera.
+ - You get the most 3D effect when it starts about three to four seconds, that’s when it starts feeling 3D. And then what you do, quick shots are always flat.
+ - I allow a lot of room for improvisation and funny stuff. I always feel planned.
+ - A lot of directors don’t want the pressure of a movie the size of Pearl Harbor. But I love it. I thrive on it.
+ - What I look for in a script is something that challenges me, something that breaks new ground, something that allows me to flex my director muscle. You have got to think fast in this business, youve got to keep reinventing yourself to stay on top.
+ - I look at directing as a sporting event. It’s a race, a marathon. It’s great when it clicks, which is why I push my crews so hard so we can excel.
+ - Maybe I have just a younger voice than many other directors.
+ - Directing is not a job. It’s more like a career. Which is great!
+ - There are many movies that have done it very badly. The studios have gone for quick profits and audiences are feeling angry. People aren’t taking the time and spending the money to do it right. I am.
+ - I love doing big movies. It’s awesome! You have all these toys. The thing I like about this movie is, like they always say, directors have the biggest train sets! Don’t tell anyone, but I’d do this for free.
+ - For me, the great joy is to watch an audience watching what I’ve made. To hear not a peep from the audience at the right moment, and then to hear the laughs and the cheers.
+ - It is really cool to have created a movie that has turned out to become the biggest movie of the year.
+ - There are things that I invented – the creaky geriatric robot that is always grumpy, for example, or the little wheelie guy, he’s not in the Hasbro lore. But kids love that stuff – this little guy as a pet on a chain. They gravitate towards it.
+ - I filmed my first little Super 8 movie by stealing my mum’s Super 8 camera where I set some fires to some of the models, which actually caught the drapes of my bedroom on fire! The fire department came. I was grounded for three weeks and it was my very first movie.
+ - Do you know what directors go through? It’s just hell. Like, why do I work so hard – to think I’m only going to see this movie five times and then never see it again ’cause I’m so sick of it? What is it worth, honestly?
+
+28 quotes

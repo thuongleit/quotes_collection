@@ -1,0 +1,36 @@
+ - An easy life is rarely meaningful and a meaningful life rarely easy.
+ - Heroes aren’t athletes who set new sports records, or Hollywood actors who make ‘daring’ films or politicians who make bold promises. Heroes are people who place themselves at risk for the benefit of others.
+ - I came here to tell you the truth, the good, the bad and the ugly.
+ - President Reagan didn’t always know what he knew.
+ - The lesson of Pearl Harbor ought never to be forgotten, and of course the motto that came from that, 69 years ago, the war which my dad fought, was ‘Remember Pearl Harbor, never again.’ We need to keep that to mind.
+ - I would have promised those terrorists a trip to Disneyland if it would have gotten the hostages released. I thank God they were satisfied with the missiles and we didn’t have to go to that extreme.
+ - I never considered myself a fall guy. I know what I did. I know why I did it. I’m not ashamed of it.
+ - I know the difference between right and wrong, and I can tell good from bad. But I also know that the more difficult decisions come when we have to choose between good and better. The toughest calls of all are those we have to make between bad and worse.
+ - Death is never easy when you know the people doing the dying.
+ - Today, only 2 percent of the people know the name of someone serving in uniform. That means 2 percent of your listeners can actually conjure up the image of someone wearing the uniform of the military of the United States.
+ - Bill Clinton is not my commander-in-chief.
+ - I think capital punishment’s day is done in this country. I don’t think it’s fairly applied.
+ - In my first book, Under Fire, I wrote that I revered Ronald Reagan. That was a dozen years ago. I still feel that way. I think he changed the world for the better for my children and my children’s children.
+ - I’m trusting in the Lord and a good lawyer.
+ - I’m like John Wayne. I only play good guys. Describing his cameo role on a TV series.
+ - Without any intended hubris, I’ve lead a pretty exciting life. What I’ve tried to do in Mission Compromised is draw on those experiences to create a sense of excitement and realism within the story.
+ - A Commander-in-Chief needs to do two things. One – tell us who the enemy is. And two – say we are fighting to win.
+ - I think as a rifle platoon and company commander your view is about 1,000 meters in front of you and you hope you can cover that ground and not have to back up and give it up again.
+ - God knows, we don’t want prayer.
+ - And so, the youngsters you have today, even though there are far fewer of them – in World War II 16.5 million men and women in uniform, today roughly a million in uniform in spite of the fact that the country is almost twice as large a population as we had in World War II.
+ - I was provided with additional input that was radically different from the truth. I assisted in furthering that version.
+ - I don’t think there is another person in America that wants to tell this story as much as I do.
+ - I haven’t, in the 23 years that I have been in the uniformed services of the United States of America, ever violated an order – not one.
+ - It’s one thing to say don’t commit atrocities on the battlefield. It’s another thing to say don’t get caught doing atrocities.
+ - The good Lord gave me eight grandchildren, and I am convinced that through schools like Desert Christian that we are going to overwhelm the adversaries, not just with bombs and bullets, but with the demonstration of Christian principles.
+ - I would not trade you a billion dollars for the kids I led to combat in Vietnam or in fact any of the Marines that I served with for a quarter of a century.
+ - History and war are cruel pedants. Those who know too little of the former are likely to have too much of the latter.
+ - I want to make it clear that I honestly answered every question put to me during the so-called Iran-Contra hearings. But if they didn’t ask me about something, I wasn’t about to reveal things that would put other people in jeopardy.
+ - Writers are storytellers. So are readers.
+ - The average term length of a member of congress is approaching 15 years, and the average term length of a convicted criminal is less than three. We’ve got that backward.
+ - And of course there is so much of World War II that is documented that we never have seen.
+ - As a Marine officer in combat, I was responsible for the lives and safety of all the Marines who served with me.
+ - The terrorists that we are up against today do not rely upon cell phones and SAT phones and emails. They rely on couriers. You cannot intercept what a courier is telling somebody.
+ - We don’t need a head of state who guts our defenses and draws phony red lines with a pink crayon.
+
+34 quotes

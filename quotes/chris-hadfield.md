@@ -1,0 +1,48 @@
+ - Anticipating problems and figuring out how to solve them is actually the opposite of worrying: it’s productive.
+ - Decide in your heart of hearts what really excites and challenges you, and start moving your life in that direction.
+ - Every decision you make, from what you eat to what you do with your time tonight, turns you into who you are tomorrow and the day after that.
+ - Focus on the journey, not on arriving at a certain destination.
+ - Competence means keeping your head in a crisis, sticking with a task even when it seems hopeless, and improvising good solutions to tough problems when every second counts. It encompasses ingenuity, determination and being prepared for anything.
+ - Almost everything worthwhile carries with it some sort of risk, whether it’s starting a new business, whether it’s leaving home, whether it’s getting married, or whether it’s flying in space.
+ - I wasn’t destined to be an astronaut. I had to turn myself into one.
+ - There is no problem so bad that you cannot make it worse.
+ - Don’t let life randomly kick you into the adult you don’t want to become.
+ - Square astronaut, round hole. But somehow, I’d managed to push myself through it, and here was the truly amazing part: along the way, I’d become a good fit. It had only taken 21 years.
+ - It’s not enough to shelve your own competitive streak. You have to try, consciously, to help others succeed.
+ - Every single day you’re the result of what you did on the days prior.
+ - We are not machines exploring the universe, we are people.
+ - Good leadership means leading the way, not hectoring other people to do things your way.
+ - If you start thinking that only your biggest and shiniest moments count, you’re setting yourself up to feel like a failure most of the time.
+ - Sweat the small stuff. Without letting anyone see you sweat.
+ - Preparation is not only about managing external risks, but about limiting the likelihood that you’ll unwittingly add to them. When you’re the author of your own fate, you don’t want to write a tragedy. Aside from anything else, the possibility of a sequel is nonexistent.
+ - When I stand on the edge of a cliff or right at the edge of a building or something, it’s one of the few things that gives me kind of a deep, overwhelming, irrational fear where it affects my physiology.
+ - Early success is a terrible teacher. You’re essentially being rewarded for a lack of preparation, so when you find yourself in a situation where you must prepare, you can’t do it. You don’t know how.
+ - In my experience, fear comes from not knowing what to expect and not feeling you have any control over what’s about to happen. When you feel helpless, you’re far more afraid than you would be if you knew the facts.
+ - Almost everything worthwhile carries with it some sort of risk...
+ - No one ever accomplished anything great sitting down.
+ - Life off Earth is in two important respects not at all unworldly: you can choose to focus on the surprises and pleasures, or the frustrations. And you can choose to appreciate the smallest scraps of experience, the everyday moments, or to value only the grandest, most stirring ones.
+ - Remember, nobody changes the world on their own.
+ - There’s really just one thing I can control: my attitude during the journey, which is what keeps me feeling steady and stable, and what keeps me headed in the right direction. So I consciously monitor and correct, if necessary, because losing attitude would be far worse than not achieving my goal.
+ - Success is feeling good about the work you do throughout the long, unheralded journey that may or may not wind up at the launch pad. You can’t view training solely as a stepping stone to something loftier. It’s got to be an end in itself.
+ - You can’t change the bricks, and together, you still have to build a wall.
+ - In any field, it’s a plus if you view criticism as potentially helpful advice rather than as a personal attack.
+ - It’s good to have a fear of heights. I mean, it’s kind of crazy not to because if you just lean out a little bit and there’s a gust of wind or somebody bumps you or something and you fall, you’re splat.
+ - It’s almost comical that astronauts are stereotyped as daredevils and cowboys. As a rule, we’re highly methodical and detail-oriented. Our passion isn’t for thrills but for the grindstone, and pressing our noses to it.
+ - I’ve been lucky enough to fly to space twice.
+ - I’m really looking forward to it, if you can imagine floating weightless, watching the world pour by through the big bay window of the space station playing a guitar; just a tremendous place to think about where we are in history.
+ - I’ve had a chance to fly a lot of different airplanes, but it was nothing like the shuttle ride.
+ - So without that Canadian invention we were grounded. And so that was a really important and key part of the mission and Canadians should take real pride in it.
+ - By looking at the difference between perceived danger and actual danger, you can fundamentally change your reaction.
+ - It’s like being a newborn, this sudden sensory overload of noise, color, smells and gravity after months of quietly floating, encased in relative calm and isolation. No wonder babies cry in protest when they’re born.
+ - The cool things about space is when you put your pants on here, you can put them on two legs at a time.
+ - I want to know: How does a space suit on Mars work? Show me how it is pressurized, and how it is cooled. What’s the glove design? None of that stuff can be bought off the rack. It does not exist. You can’t just go to SpaceMart and buy those things.
+ - I guarantee if you walk into 100 spider webs, you will have changed your fundamental human behavior. And you can apply this to anything, And figure out a way to reprogram yourself, to change your primal fear.
+ - Fatherhood is the unending imperfect task of turning yourself into your dad while secretly maintaining the unbridled elation of your boyhood.
+ - The rough and ready improvisational quality to life on board the International Space Station is reminiscent of a long trip in a sailboat: privacy and fresh produce are in short supply, hygiene is basic, and a fair amount of the crew’s time is spent just on maintaining and repairing the craft.
+ - Spaceflight isn’t just about doing experiments, it’s about an extension of human culture.
+ - Our three big emergencies are fire, loss of pressurization or contaminated atmosphere. Any of those things in a spaceship are very deadly and time critical. Everybody’s trained, but I’m the commander of the ship, and it’s up to me to decide.
+ - I’m not a wealthy person and I don’t think that I would be able to prioritize that much money to go for a ride to a place that I have already lived. But if the price comes down or I win a lottery or something, why not?
+ - Our role is to develop techniques that allow us to provide emergency life-saving procedures to injured patients in an extreme, remote environment without the presence of a physician.
+ - It is spectacular. From about five minutes in, when we knew for sure that we were going to have the weather to go, the smile on my face just got bigger and bigger, and I was just beaming through the whole launch. I mean, it is just an amazing ride.
+
+46 quotes

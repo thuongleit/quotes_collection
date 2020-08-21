@@ -1,0 +1,112 @@
+ - Acting is the greatest answer to my loneliness that I have found.
+ - It’s my job to find the cornel of truth and then exaggerate, exaggerate, exaggerate until it’s of an appropriate scale.
+ - Tel Aviv is the most party time place in the world.
+ - People with bipolar disorder have difficulty with boundaries.
+ - I am not a genius. But I am nerdy.
+ - I can get a dance party started pretty much anywhere and anytime.
+ - Psychology and acting are very closely linked. It’s just about studying people and how they work. It can be an incredible discipline and exercise.
+ - Find as many opportunities as you can and clock as many hours as you can.
+ - Any story is better with a little love in it, right?
+ - Television lets audiences deeply connect with characters.
+ - If you do something that you’re not genuinely passionate about, it is a little soul-crushing. Just not worth it.
+ - Relationships are a constant negotiation and balance.
+ - You are the most brave intrepid person I have ever known, and you have dedicated your life to helping those who are misunderstood and underrepresented.
+ - I get a little jealous of these actor boys. They walk into a club, and in two seconds flat there are swarms of girls who are wanting so badly to touch them or just say hello. That’s not the case with me, or any other girl I know.
+ - But I don’t know if people are meant to be together. You have to have a lot in common, choose well and be really fortunate. It’s not like you’re sprinkled with fairy dust. You have to believe that love will be there when you need it.
+ - At every stage in life you think about death. But teenagers especially are sort of invincible. They’re not supposed to be thinking about dying yet, or else they’d be too afraid to live.
+ - I like reading novels because it provides insight into human behavior.
+ - Every three seconds in the developing world, a child dies needlessly due to lack of basic health care and other things we all take for granted.
+ - My skin is a bit sensitive, so Cetaphil is my standby. I also use toner and a light layer of moisturizer – I use a lot of Kiehl’s and other natural brands.
+ - Most people assume that autistic people are not capable of empathy.
+ - I started working when I was very young. I got an agent when I was 12, and fortunately was employed consistently from that point on. So I didn’t really go to a conventional high school. I was tutored on sets and things.
+ - You have to stay hydrated when you have crying scenes.
+ - I do know how to fire a machine gun, so be warned! I’m trained!
+ - Once you get over that peak of puberty, you hit a nice stride.
+ - I know, it’s true. I’ve played these tortured teenagers. I can’t wait to shed that image.
+ - It just seems like, you agree to have a certain personality or something. For no reason. Just to make things easier for everyone. But when you think about it, I mean, how do you know it’s even you?
+ - It just seems like the most successful, iconic love stories are not so easy or escapist. I think the ones that stay with us and resonate are full of conflict, discord and misunderstandings ’cause that’s what makes drama happen or tension even if it’s a comedy.
+ - I am a feminist. And I’m so glad that Lena Dunham exists, because she is one too, and she’s quite vocal about it. Yes, women have more freedom and more influence than ever, but it’s hardly equal. It’s just not.
+ - I’m so impressed by Jennifer Lawrence and Carey Mulligan. They have this exquisite taste. They are very gifted in their ability to make great choices.
+ - There’s certainly something very uncomfortable about the voyeurism involved in being in the press, being an actor, where people have a seemingly insatiable curiosity about, you.
+ - Counterterrorism isn’t really about the nunchakus, the guns and gadgets. It’s about psychology.
+ - I have a huge, active imagination, and I think I’m really scared of being alone; because if I’m left to my own devices, I’ll just turn into a madwoman.
+ - Fame doesn’t end loneliness.
+ - I played a girl. There’s really nothing controversial about her. She’s just fine. She has to be fine in order to make Sarah Jessica’s character pop, I say I just play a white girl in that movie.
+ - My character was kidnapped by the Terminator and I was kidnapped by the Terminator production.
+ - Autism does exist on a spectrum, and there are so many manifestations of it, so many kinds of expressions of it. And every case is particular.
+ - I’ve always had a really active imagination. Lots of kids have imaginary friends. Mine just took on a rather demonic form.
+ - By the time I went to Yale, I’d been acting for a long time and I was really tired of it. I was restless – and a little bored – and I was really eager to investigate different parts of myself.
+ - I have this book club, and we don’t read one book; we offer up a few suggestions and create a library over time.
+ - Growing up in New York City, I was always encouraged to question authority, and I think I confused patriotism with jingoism.
+ - I have to say that my dad’s face is very malleable. He’s barely got any cartilage in his face. I think I maybe inherited that Play-Doh-like physicality from him.
+ - Money or no money, acting is my calling.
+ - I’m only realizing now that I was a child actress because I always took myself so seriously.
+ - In a way, that’s really reassuring. I’m not just a very limited person to not have figured it out at this point. But it’s also intimidating. Well, how long is it going to take before you can have a good time?
+ - I guess I stopped acting when I was 18 and didn’t pick it up again until I was 21. That wasn’t the plan, though. When I first started at Yale, the plan was to do a movie each summer.
+ - Huge events take place on this earth every day. Earthquakes, hurricanes, even glaciers move. So why couldn’t he just look at me?
+ - I’ve always very earnestly tried to do my best, so I just have to trust that and forgive myself for being fallible.
+ - I like reading novels because it provides insight into human behavior. I am really interested in feelings and think they are what define us as a species. When you really get it right in acting, it’s an act of empathy. You feel less distant from others, and that is really exciting.
+ - I love sitting in the makeup trailer and getting my makeup done in 15 minutes as opposed to an hour and a half.
+ - I’m just always learning lines. I’ve learned to flag the really crucial scenes, and I start figuring them out and committing them to memory as soon as I get them.
+ - I love love and falling in love, but it can get pretty flat real fast.
+ - I should be so lucky to be a misfit. I aspire to be a misfit.
+ - Oliver Stone’s strategy is to unnerve the actors so as to make them alert and alive.
+ - Yeah, there was the Flora Plum thing, where I trained for about a month and I had taken a semester off for that, and two weeks prior to filming, the financing collapsed.
+ - People in the CIA, they marry each other. They’re like actors! We have to travel without much warning to far-flung places, and it’s very hard to communicate what our experiences are like to those in the outside world.
+ - I discovered Christopher Isherwood in college. His writing style is so direct, warm, and inclusive.
+ - There is real honor in being a total goofball.
+ - I like marriage. I feel very secure. It helps when you are in love with the person you are married to.
+ - My husband and I have watched a lot of Hitchcock movies in bulk, and there’s a lot to be gained from that, from focusing strictly on an artists canon.
+ - I was a pretty nerdy kid. I was pretty nerdy. I’m still kind of nerdy. I have all of the worst qualities of being a nerd – all of the affect and none of the smarts. I’m a useless nerd! That’s pretty bad.
+ - I was told that my going to college wouldn’t be good for my career. I think that’s nonsense. It’s good to empower yourself by cutting yourself off from this business every once in a while.
+ - The big question is always, ‘Eyes or lips?’ I tend to go with the eyes because I’ve got a lot more material to work with now – and it saves me from reapplying lipstick! I’m a pretty low-maintenance person and it’s too excessive to exaggerate both the eyes and lips.
+ - Steve Martin is one of my favorite performers, writers, artists of all time.
+ - I really liked Yale, although it was extremely intimidating. When I visited the campus, I was hiding behind trees, I felt so unworthy.
+ - I used to talk about my personal life all the time. It’s the most fun thing to talk about, the people in my life are hurt.
+ - I got an agent when I was 12, and I started working in more amateur productions well before that. But even as a kid, I never felt like a kid actor, you know? I always took myself kind of absurdly seriously.
+ - I actually haven’t been approached a whole lot for television, believe it or not.
+ - Voice over can be tricky. It can be dangerous because it’s over-used or inappropriately used.
+ - If I hadn’t been an actress, I was thinking seriously about going into psychology. It’s just really what I’m interested in: the human psyche and how we process information.
+ - I finally realized that yeah I did want to be an actor and it wasn’t out of habit, but I needed to grow up for myself and then kind of re-enter the industry with a sound understanding of what my sensibilities and my values are as a relatively formed human being.
+ - Hatred can become like food, it gives you this energy that you can, like, live off...
+ - When I was 18 I went to college for two years and didn’t work for a year which was essential for me, because my identity had been so influenced by my being an actor and I think I just needed to discover what it was to be myself, divorced from all that responsibility.
+ - Acting is a humiliating job, from start to finish.
+ - I hadn’t been free from adult responsibilities since I was 12, and I needed to experience that. I really needed to just be a kid again.
+ - I’m human. I think people see me as sweeter and softer than I do.
+ - However, I’m at a very comfortable place in my career and celebrity, in that I don’t have to audition as extensively as I used to for roles but yet I’m not immediately recognizable.
+ - I think people who make movies and have invested a lot of money in them, get frightened that if they challenge an audience they are going to repel them. And I think the opposite it’s really true. It takes confidence and courage to know that and then commit to it.
+ - I fantasized about being a psychology major when I first started school, and I took a handful of Psych 101 classes.
+ - I’m just a big old nerd.
+ - I think because I am as earnest as I am, people were accepting of my evolving into a certified, legitimate, and grown up and I did take three years off.
+ - The first time I realised I was patriotic was after September 11th.
+ - It’s funny with jeans now, because if they don’t feel like a pair of sweatpants, I don’t have patience for them anymore! I think I’m becoming increasingly lazy.
+ - I think the voice over actually enhances the various moments instead of compensating for something that’s lacking. Voice over can be tricky. It can be dangerous because its over used or inappropriately used. I think in this case it informs the story.
+ - I was a serious kid to an absurd degree. I was overwhelmed with responsibility. You know, trying to play grown up. I overdid it.
+ - Growing up in New York with artist parents – a very liberal environment, where we were always encouraged to challenge the status quo – I think for a long time I confused jingoism with patriotism. And that is a mistake.
+ - College was just so essential for my sense of self and my development.
+ - I really have never been concerned about being beautiful on-screen. That’s just not my jam.
+ - I have to expose myself and then accept the judgment that audiences and critics will have. And that’s okay. I appreciate the elliptical nature of it. Sometimes people are more in the mood to be nice to me than others, and that’s great.
+ - It’s very difficult to judge yourself. Extreme self-doubt is only attractive when it’s fictionalized. Which is why people love the movies. They are so reassuring.
+ - Every time I make a movie, I’m prepared for it to become influential and career-defining – but I have no control over these things.
+ - I discovered Orson Welles in college; my freshman English professor screened ‘Citizen Kane’ for us, and I wound up writing a 20-page term paper on it.
+ - My first offer was when I was 12, and it was for a soap opera. And I turned it down because I knew that I was an unformed actor, and I didn’t want to develop bad habits.
+ - I have this home in New York, I have a long-term relationship with my boyfriend, who’s from Australia, and I had this business that I had maintain. Even though I wasn’t actively shooting, there’s a lot of peripheral work.
+ - My parents never condescended to me. As a child, I always sat at the head of our dinner table. I was always given a lot of responsibility.
+ - I was very driven to act from a very young age, and my parents were not only tolerant of that drive but also encouraging.
+ - I would sign on for projects that were meant to shoot in July, and then they would postponed and they would bleed into the following semester, and then I’d take a semester off, and then the movie would collapse.
+ - Anybody who knows how to make a good movie, knows that it’s a collaborative undertaking. To deny that its really dangerous.
+ - As a young performer, I didn’t know that you can have a great time playing someone in terrible crisis. The more you know it’s not real, the deeper you can go into it. And the easier it is to let it go when it’s done.
+ - You know, let a few years go by until I hit my midlife crisis. Then that can be documented on film.
+ - Actors want to surprise themselves. When it’s really good, you kind of transcend yourself, and that happens infrequently. Very, very rarely.
+ - What I needed was a connection to life that was real and lasting.
+ - I could truly have gone through life thinking that women were these venomous creatures. Turns out, they’re not.
+ - In New York City, everybody goes into therapy.
+ - Growing up, I wanted desperately to please, to be a good girl.
+ - I think I would make a lousy stay-at-home mom. It just wouldn’t suit me.
+ - You don’t realize how useful a therapist is until you see yourself on e and discover you have more problems than you ever dreamed of.
+ - With acting there are a lot more choices, With this, I either stick it or I don’t. There’s something really unforgiving about that.
+ - There was a solid year and a half, perhaps two years, after making ‘Temple Grandin,’ when I didn’t do anything. I just didn’t have much patience for roles that were silly, or light, or inconsequential.
+ - I don’t know any celebrated people that register in a big way who aren’t unique.
+ - I used to have nightmares when I was a little kid that I woke up prematurely and opened all the Christmas presents. And then I would be so relieved when I woke up and I realized that I hadn’t done it.
+
+110 quotes

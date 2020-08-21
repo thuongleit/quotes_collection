@@ -1,0 +1,27 @@
+ - Less is more.
+ - God dwells in the details.
+ - First you have to learn to do something, then you can go out and do it.
+ - Never talk to a client about architecture. Talk to him about his children.
+ - I don’t want to be interesting. I want to be good.
+ - Architecture starts when you carefully put two bricks together. There it begins.
+ - But what if we are dealing with fools?
+ - Architecture is a language. When you are very good, you can be a poet.
+ - The long path from material through function to creative work has only one goal: to create order out of the desperate confusion of our time.
+ - Each material is only what we make it.
+ - No design is possible until the materials with which you design are completely understood.
+ - We must have order, allocating to each thing its proper place and giving to each thing is due according to its nature.
+ - Architecture is the will of the age conceived in spatial terms.
+ - The individual is losing significance; his destiny is no longer what interests us.
+ - Architecture has the power to create order out of unholy confusion.
+ - A chair is a very difficult object. A skyscraper is almost easier. That is why Chippendale is famous.
+ - Means must be subsidiary to ends and to our desire for dignity and value.
+ - If teaching has any purpose, it is to implant true insight and responsibility. Education must lead us from irresponsible opinion to true responsible judgement. It must lead us from chance and arbitrariness to rational clarity and intellectual order.
+ - True education is concerned not only with practical goals but also with values. Our aims assure us of our material life, our values make possible our spiritual life.
+ - Let us guide our students over the road of discipline from materials, through function, to creative work.
+ - Let us guide our students over the road of discipline from materials, through function, to creative work. Let us lead them into the healthy world of primitive building methods, where there was meaning in every stroke of an axe, expression in every bite of chisel.
+ - We must be as familiar with the functions of our building as with our materials. We must learn what a building can be, what it should be, and also what it must not be...
+ - Architecture wrote the history of the epochs and gave them their names.
+ - And just as we acquaint ourselves with materials, just as we must understand functions, so we must become familiar with the psychological and spiritual factors of our day. No cultural activity is possible otherwise; for we are dependent on the spirit of our time.
+ - Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.
+
+25 quotes

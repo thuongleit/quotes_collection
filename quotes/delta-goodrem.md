@@ -1,0 +1,46 @@
+ - I believe the impossible is possible to overcome I believe in miracles Born from love in everyone.
+ - What resonates with me now is the acoustic guitar and piano.
+ - Life is a journey I don’t have a map for.
+ - Anybody who has gone through a life-changing experience will tell you there is a different understanding of what is real and what is important, and when you are going through different moments, you can reflect and go, ‘I have been through worse.’
+ - Sport was my absolute love. It was very sporty household. We had my – my brother and I both loved sports.
+ - I used to get stressed out, but my cancer has put everything into perspective.
+ - I think it’s important to have professional lessons or advice.
+ - I don’t have any expectations.
+ - I’d just love magic. I’d love to be able to just click and transport. I’d be like a fairy little godmother, I think, going round hearing what people wish for and seeing what I could do for them.
+ - Anyones allowed to dream, I say.
+ - I don’t think I’ve ever been moulded but I think I am always learning.
+ - What a strange turn of events.
+ - I can’t be all things to everyone.
+ - I’d just recorded it in Mariah Carey’s studio. THey thought the song was perfect for Nina, because she’s so shy, so it was nice to have that connection with Nina in the song. It was special.
+ - Everything was going for me, I didn’t even know the meaning of the word insecurity and suddenly I am surrounded by words like operation, cancer, chemotherapy, radiation.
+ - I always had long hair. When you lose it, you realise just how important it is to your identity.
+ - Well, Neighbours wanted to do a song on the show, and they asked me what songs I had. I told them I’d just written this song, called Born to Try, and I had just gone overseas and spoken to some people from Song about it.
+ - I feel I lost my innocence to cancer.
+ - I believe that in music and in a lot of things it’s kind of like surfing, you can have a really big wave sometimes and then you can have a smaller wave.
+ - I need to keep traveling, being a gypsy, having experiences and writing about them.
+ - Most people’s journeys haven’t been as disjointed as mine.
+ - I love having my hair back. It is so important to how you feel, how you dress, how you look.
+ - At 18, I felt I was too young to think about having my eggs frozen.
+ - If I get a cold, it lasts for a month.
+ - I have weathered many different storms and I know who I am and my friends know who I really am.
+ - I’ve done a lot of collaboration over the years, but right now I’m enjoying writing by myself and just being me again for a while.
+ - I’m just excited I get to sing all the time. There’s nothing but open ears of people wanting to listen.
+ - I’m not worried any more about changing people’s view of me.
+ - Now I know you should listen to what your body is telling you.
+ - Hodgkin’s is serious and I don’t want to be dismissive about it, but there are people who have gone through much worse and lost their lives to cancer.
+ - The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.
+ - I think Taj and Nina were better friends, because they get along, they have a lot of fun and they laugh. But it seems that Nina and Jack really hit it off. Nina really fell in love with Jack. there’s a lot of chemistry between them!
+ - I like to go into a little shell and be a hermit and make music for a while.
+ - Im thankful for my songs being at the top of the charts but I am human – I think people still have to remember that.
+ - I’m still human – I can’t not feel.
+ - I knew who I was as a girl but I had to find who I was as a woman.
+ - I started performing at school and drama classes when I was 7.
+ - I felt I came back rather quickly from being ill and didn’t give myself the time to reflect.
+ - I want to sing for people. I want them to have the music. It’s a nice feeling.
+ - Since the release of my single ‘Born To Try’ I have been so busy completing the album as well as my busy Neighbours schedule I have not had much spare time. When I do get the chance I just love to hang around at home with friends and family.
+ - I was at number one in Australia with both my album and my single. And then I was told I had cancer. I thought, ‘What a strange turn of events.’
+ - I have been singing for as long as I could talk.
+ - When I do get the chance I just love to hang around at home with friends and family.
+ - I’m enjoying writing songs that are more stripped back.
+
+44 quotes

@@ -1,0 +1,26 @@
+ - Writing a great script – not just a good one, but a great one – is almost an impossible task.
+ - Good writing is deceptive in that it hides its own artifice – it makes it seem easy.
+ - The fluidity of thought is based on the flexibility of beliefs and the emotional boundaries surrounding them.
+ - One of my favorite films is LATE SPRING by Yasujiro Ozu. To me, it represents film as art.
+ - Failure can only exist from stagnant perceptions. Everything is a process of learning and if you learn something useful, you have success.
+ - My thing is that most scripts arent bad scripts, theyre just not finished yet.
+ - Every problem offers an opportunity for a solution. if you are in the right frame of mind to find it.
+ - Adversity challenges the masks we hide behind, revealing sides of ourselves we have not yet comfortably with the world outside. It is why we dislike adversity, because we have to face what we don’t yet understand about ourselves.
+ - You never want your second act or the whole movie to just be this relentless march towards its goal. You want things to take the audience by surprise.
+ - In terms of writing characters or stories, at least initially, there’s no difference between live-action and animation. A good story is a good story, whatever the medium.
+ - We have the freedom to excel or inhibit our potential. You are the grand designer of your thoughts and emotions. At some level or another you are the one who chooses which thoughts to accept and which ones to ignore. That can be a very empower realization.
+ - Line up your thoughts up for potential, take action and success will follow.
+ - The way you think either stands in your way or assists you in achieving your goals.
+ - If you write a bunch of different characters with a bunch of different opinions, you end up with these long scenes of everyone standing around talking.
+ - All thought is created, therefore we are all creators of whatever world we live in.
+ - The best writing really does come from the deepest, most private part of you.
+ - Who you think you are is only a thought.
+ - If you only know something one way, then you don’t really know it.
+ - Working at Pixar has been like my graduate school for screenwriting.
+ - A good story is a good story, whatever the medium.
+ - I can write two scripts concurrently, but I usually prefer to do one at a time. However, I also usually have 5 or 6 story ideas that are percolating in my head at any one time, so it can get a little crowded in there.
+ - Changing how you think costs you no money and it takes no special talent. It does take a commitment on your part to be different.
+ - I had read enough mediocre scripts and was determined not to inflict another one on the world.
+ - My God, there are so many mediocre screenplays out there.
+
+24 quotes

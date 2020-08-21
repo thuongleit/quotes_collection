@@ -1,0 +1,502 @@
+ - If you want something you have never had, you must be willing to do something you have never done.
+ - Nothing can stop the man with the right mental attitude from achieving his goal; nothing on earth can help the man with the wrong mental attitude.
+ - I'm a greater believer in luck, and I find the harder I work the more I have of it
+ - I cannot live without books.
+ - Honesty is the first chapter in the book of wisdom.
+ - In matters of style, swim with the current; in matters of principle, stand like a rock.
+ - The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants.
+ - I find that the harder I work, the more luck I seem to have.
+ - Do you want to know who you are? Don't ask. Act! Action will delineate and define you.
+ - We hold these truths to be self-evident: that all men are created equal; that they are endowed by their Creator with certain unalienable rights; that among these are life, liberty, and the pursuit of happiness.
+ - The man who reads nothing at all is better educated than the man who reads nothing but newspapers.
+ - The government you elect is the government you deserve.
+ - All tyranny needs to gain a foothold is for people of good conscience to remain silent.
+ - Be polite to all, but intimate with few.
+ - Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances.
+ - I prefer dangerous freedom over peaceful slavery.
+ - Evil triumphs when good men do nothing.
+ - Never spend your money before you have earned it.
+ - Determine never to be idle. No person will have occasion to complain of the want of time, who never loses any. It is wonderful how much may be done, if we are always doing.
+ - I believe that banking institutions are more dangerous to our liberties than standing armies.
+ - I predict future happiness for Americans, if they can prevent the government from wasting the labors of the people under the pretense of taking care of them.
+ - Do not bite at the bait of pleasure till you know there is no hook beneath it.
+ - The equal rights of man, and the happiness of every individual, are now acknowledged to be the only legitimate objects of government.
+ - I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
+ - A lawyer without books would be like a workman without tools.
+ - When tyranny becomes law, rebellion becomes duty.
+ - I like the dreams of the future better than the history of the past.
+ - The most valuable of all talents is that of never using two words when one will do.
+ - I had rather be shut up in a very modest cottage with my books, my family and a few old friends, dining on simple bacon, and letting the world roll on as it liked, than to occupy the most splendid post, which any human power can give.
+ - To learn, you have to listen. To improve, you have to try.
+ - A democratic society depends upon an informed and educated citizenry.
+ - Health is worth more than learning.
+ - Every generation needs a new revolution.
+ - A society that will trade a little liberty for a little order will lose both, and deserve neither.
+ - The man who stops advertising to save money is like the man who stops the clock to save time.
+ - When the people are afraid of the government, that’s tyranny. But when the government is afraid of the people, that’s liberty.
+ - It is neither wealth nor splendor; but tranquility and occupation which give you happiness.
+ - Rebellion to tyranny is obedience to God.
+ - Men of quality are not threatened by women of equality.
+ - There is nothing more unequal than the equal treatment of unequal people.
+ - Peace is that brief glorious moment in history when everybody stands around reloading.
+ - The possession of facts is knowledge; the use of them is wisdom.
+ - One man with courage is a majority.
+ - The only security of all is in a free press.
+ - If a nation expects to be ignorant and free, in a state of civilization, it expects what never was and never will be.
+ - Love your neighbor as yourself and your country more than yourself.
+ - I sincerely believe that banking establishments are more dangerous than standing armies, and that the principle of spending money to be paid by posterity, under the name of funding, is but swindling futurity on a large scale.
+ - I would rather be exposed to the inconveniences attending too much liberty than those attending too small a degree of it.
+ - When the subject is strong, simplicity is the only way to treat it.
+ - It is wonderful how much may be done if we are always doing.
+ - The end of democracy and the defeat of the American Revolution will occur when government falls into the hands of lending institutions and moneyed incorporations.
+ - But when a long train of abuses and usurpations, pursuing invariably the same Object evinces a design to reduce them under absolute Despotism, it is their right, it is their duty, to throw off such Government, and to provide new Guards for their future security.
+ - A candle loses nothing when it lights another candle.
+ - Without health there is no happiness. An attention to health, then, should take the place of every other object.
+ - All men are created equal.
+ - Never trouble another for what you can do yourself.
+ - Hemp is one of the greatest, most important substances of our nation.
+ - He who permits himself to tell a lie once, finds it much easier to do it the second time.
+ - No generation has a right to contract debts greater than can be paid off during the course of its own existence.
+ - The contest is not between us and them, but between good and evil, and if those who would fight evil adopt the ways of evil, evil wins.
+ - The best defense of democracy is an informed electorate.
+ - A well informed citizenry is the best defense against tyranny.
+ - A Man’s management of his own purse speaks volumes about character.
+ - Ridicule is the only weapon which can be used against unintelligible propositions.
+ - Freedom, the first-born of science.
+ - I hold it that a little rebellion now and then is a good thing, and as necessary in the political world as storms in the physical.
+ - The God who gave us life gave us liberty. Can the liberties of a nation be secure when we have removed a conviction that these liberties are the gift of God?
+ - The boisterous sea of liberty is never without a wave.
+ - Coffee – the favorite drink of the civilized world.
+ - Timid men prefer the calm of despotism to the tempestuous sea of liberty.
+ - He who knows nothing is closer to the truth than he whose mind is filled with falsehoods and errors.
+ - I am for freedom of religion, and against all maneuvers to bring about a legal ascendency of one sect over another.
+ - If you have to eat crow, eat it while it’s young and tender.
+ - Does the government fear us? Or do we fear the government? When the people fear the government, tyranny has found victory. The federal government is our servant, not our master!
+ - If I had to choose between government without newspapers, and newspapers without government, I wouldn’t hesitate to choose the latter.
+ - If ignorance is bliss, why aren’t more people happy?
+ - A little patience, and we shall see the reign of witches pass over, their spells dissolve, and the people, recovering their true sight, restore their government to its true principles.
+ - We in America do not have government by the majority. We have government by the majority who participate.
+ - I believe that banking institutions are more dangerous to our liberties than standing armies. Already they have raised up a moneyed aristocracy that has set the Government at defiance. The issuing power should be taken from the banks and restored to the people to whom it properly belongs.
+ - A prince whose character is thus marked by every act which may define a tyrant, is unfit to be the ruler of a people who mean to be free.
+ - Peace, commerce and honest friendship with all nations; entangling alliances with none.
+ - It is as useless to argue with those who have renounced the use of reason as to administer medication to the dead.
+ - God grant that men of principle shall be our principal men.
+ - The whole art of government consists in the art of being honest.
+ - There is a natural aristocracy among men. The grounds of this are virtue and talents.
+ - No man will labor for himself who can make another labor for him.
+ - I look to the diffusion of light and education as the resource most to be relied on for ameliorating the condition, promoting the virtue and advancing the happiness of man.
+ - The greatest calamity which could befall us would be submission to a government of unlimited powers.
+ - The spirit of resistance to government is so valuable on certain occasions that I wish it to be always kept alive.
+ - The oppressed should rebel, and they will continue to rebel and raise disturbance until their civil rights are fully restored to them and all partial distinctions, exlusions, and incapacitations are removed.
+ - Ignorance is a poor tool in a battle of wits.
+ - Christianity is the most perverted system that ever shone on man.
+ - I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country.
+ - The Central Bank is an institution of the most deadly hostility existing against the principles and form of our Constitution.
+ - The art of governing consists simply of being honest, exercising common sense, following principle, and doing what is right and just.
+ - Peace and friendship with all mankind is our wisest policy, and I wish we may be permitted to pursue it.
+ - Industry, commerce and security are the surest roads to the happiness and prosperity of people.
+ - How soon the labor of men would make a paradise of the earth were it not for misgovernment and a diversion of his energies to selfish interests.
+ - The olive tree is surely the richest gift of Heaven. I can scarcely expect bread.
+ - Walking is the best possible exercise. Habituate yourself to walk very far. The Europeans value themselves on having subdued the horse to the uses of man; but I doubt whether we have not lost more than we have gained, by the use of this animal.
+ - Exercise and application produce order in our affairs, health of body, cheerfulness of mind, and these make us precious to our friends.
+ - All men are created equal and have the right to life, liberty, and the pursuit of happiness.
+ - Never use two words when one will do.
+ - Everything yields to diligence.
+ - Our liberty depends on the freedom of the press, and that cannot be limited without being lost.
+ - The cost of freedom is eternal vigilance.
+ - Eternal Vigilance is the price of democracy.
+ - Who then can so softly bind up the wound of another as he who has felt the same wound himself.
+ - May I never get too busy in my own affairs that I fail to respond to the needs of others with kindness and compassion.
+ - I view great cities as pestilential to the morals, the health, and the liberties of man.
+ - It is to secure our rights that we resort to government at all.
+ - When angry count to ten before you speak. If very angry, count to one hundred.
+ - Question with boldness even the existence of a God; because, if there be one, he must more approve of the homage of reason, than that of blind-folded fear.
+ - We will be soldiers, so our sons may be farmers, so their sons may be artists.
+ - The sun has not caught me in bed in fifty years.
+ - In the environment, every victory is temporary, every defeat permanent.
+ - If the body be feeble, the mind will not be strong.
+ - What we learn to do, we learn by doing.
+ - Agriculture is our wisest pursuit, because it will in the end contribute most to real wealth, good morals, and happiness.
+ - The Bible is the cornerstone of liberty.
+ - The people will not understand the importance of the Second Amendment until it is too late.
+ - Walking is the best possible exercise. Habituate yourself to walk very far.
+ - The sovereign invigorator of the body is exercise, and of all the exercises walking is the best.
+ - The genius of architecture seems to have shed its maledictions over this land.
+ - Give up money, give up fame, give up science, give the earth itself and all it contains, rather than do an immoral act.
+ - Let those flatter, who fear: it is not an American art. To give praise where it is not due, might be well from the venal, but would ill beseem those who are asserting the rights of human nature.
+ - A pirate spreading misery and ruin over the face of the ocean.
+ - Ignorance of the law is no excuse in any country. If it were, the laws would lose their effect, because it can always be pretended.
+ - A walk about Paris will provide lessons in history, beauty, and in the point of Life.
+ - Pride costs us more than hunger, thirst, and cold.
+ - Until we stop harming all other living beings, we are still savages.
+ - Let the eye of vigilance never be closed.
+ - The will of the people is the only legitimate foundation of any government, and to protect its free expression should be our first object.
+ - The First Amendment has created a wall of separation between the church and the State. But that wall is one directional. It is to keep the government from running the Church. But it is not to keep Christian principles out of the government.
+ - Of all exercises, walking is the best.
+ - Leave all the afternoon for exercise and recreation, which are as necessary as reading. I will rather say more necessary because health is worth more than learning.
+ - But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.
+ - I was bold in the pursuit of knowledge, never fearing to follow truth and reason to whatever results they led, and bearding every authority which stood in their way.
+ - I believe that every human mind feels pleasure in doing good to another.
+ - Our minds and hearts are free to believe everything or nothing at all – and it is our duty to protect and perpetuate this sacred culture of freedom.
+ - Enlighten the people generally, and tyranny and oppressions of body and mind will vanish like evil spirits at the dawn of day.
+ - I steer my bark with hope in the head, leaving fear astern. My hopes indeed sometimes fail, but not oftener than the forebodings of the gloomy.
+ - Whenever you do a thing, act as if all the world were watching.
+ - But every difference of opinion is not a difference of principle. We have been called by different names brethren of the same principle. We are all Republicans, we are all Federalists.
+ - Every man has two countries: his own and France.
+ - Fix reason firmly in her seat, and call on her tribunal for every fact, every opinion. Question with boldness even the existence of a God.
+ - All should be laid open to you without reserve, for there is not a truth existing which I fear, or would wish unknown to the whole world.
+ - Ridicule is the only weapon which can be used against unintelligible propositions. Ideas must be distinct before reason can act upon them; and no man ever had a distinct idea of the trinity. It is the mere Abracadabra of the mountebanks calling themselves the priests of Jesus.
+ - We need a revolution every 20 years just to keep government honest.
+ - Not less than two hours a day should be devoted to exercise, and the weather shall be little regarded. If the body is feeble, the mind will not be strong.
+ - No nation is drunken where wine is cheap, and none sober where the dearness of wine substitutes ardent spirits as the common beverage.
+ - Equal rights for all, special privileges for none.
+ - A mind always employed is always happy. This is the true secret, the grand recipe, for felicity.
+ - Agriculture, manufactures, commerce, and navigation, the four pillars of our prosperity, are the most thriving when left most free to individual enterprise.
+ - Let us in education dream of an aristocracy of achievement arising out of a democracy of opportunity.
+ - I prefer the tumult of liberty to the quiet of servitude.
+ - All through your life, you’ll be faced with making a decision between two things-choose the one that is right. If they are both right, then choose the one that will make you feel the best about it at the end of the day.
+ - Paper is poverty, it is only the ghost of money, and not money itself.
+ - I am not an advocate for frequent changes in laws and constitutions, but laws and institutions must go hand in hand with the progress of the human mind.
+ - The mobs of great cities add just so much to the support of pure government as sores do to the strength of the human body.
+ - Merchants have no country. The mere spot they stand on does not constitute so strong an attachment as that from which they draw their gains.
+ - Every gentleman plays billiards, but someone who plays billiards too well, is no gentleman.
+ - An informed citizenry is the only true repository of the public will.
+ - That government that governs least governs best.
+ - I do not find in orthodox Christianity one redeeming feature.
+ - When you abandon freedom to achieve security, you lose both and deserve neither.
+ - Confidence is everywhere the parent of despotism. Free government is founded in jealousy, and not in confidence.
+ - No duty the Executive had to perform was so trying as to put the right man in the right place.
+ - The wise know too well their weakness to assume infallibility; and he who knows most knows best how little he knows.
+ - The Christian god is a being of terrific character – cruel, vindictive, capricious and unjust.
+ - I have always said that a studious perusal of the sacred volume will make better citizens, better fathers, and better husbands.
+ - The course of history shows that as a government grows, liberty decreases.
+ - Truth between candid minds can never do harm.
+ - I will not believe our labors are lost. I shall not die without a hope that light and liberty are on a steady advance.
+ - I love peace, and am anxious that we should give the world still another useful lesson, by showing to them other modes of punishing injuries than by war, which is as much a punishment to the punisher as to the sufferer.
+ - Free government is founded in jealousy, and not in confidence; it is jealousy, and not confidence, which prescribes limited constitutions, to bind down those whom we are obliged to trust with power.
+ - And for the support of this declaration, with a firm reliance on the protection of divine providence, we mutually pledge to each other our lives, our fortunes and our sacred honor.
+ - Every citizen should be a soldier. This was the case with the Greeks and Romans, and must be that of every free state.
+ - We must meet our duty and convince the world that we are just friends and brave enemies.
+ - Nothing is troublesome that we do willingly.
+ - The colleges of Edinburgh and Geneva as seminaries of science, are considered as the two eyes of Europe. While Great Britain and America give the preference to the former, all other countries give it to the latter.
+ - My God! How little do my countrymen know what precious blessings they are in possession of, and which no other people on earth enjoy!
+ - Men as well as rivers grow crooked by following the path of least resistance.
+ - No stile of writing is so delightful as that which is all pith, which never omits a necessary word, nor uses an unnecessary one.
+ - The fact is that one new idea leads to another, that to a third and so on through a course of time, until someone, with whom no one of these ideas was original, combines all together, and produces what is justly called a new invention.
+ - Tranquility is the old man’s milk.
+ - Paper money is liable to be abused, has been, is, and forever will be abused, in every country in which it is permitted.
+ - While the farmer holds the title to the land, actually, it belongs to all the people because civilization itself rests upon the soil.
+ - The spirit of 1776 is not dead. It had only been slumbering. The body of the American people is substantially republican.
+ - Delay is preferable to error.
+ - Do not write me studied letters but ramble as you please.
+ - Whether I retire to bed early or late, I rise with the sun.
+ - Whenever you are to do a thing, though it can never be known but to yourself, ask yourself how you would act if all the world were looking at you, and act accordingly.
+ - I find as I grow older that I love those most whom I loved first.
+ - Only aim to do your duty, and mankind will give you credit where you fail.
+ - Money, not morality, constitutes the principle of commercial nations.
+ - I consider trial by jury as the only anchor ever yet imagined by man, by which a government can be held to the principles of its constitution.
+ - We never repent of having eaten too little.
+ - A single zealot may commence prosecutor, and better men be his victims.
+ - Reason and free inquiry are the only effectual agents against error.
+ - My principle is to do whatever is right, and leave consequences to him who has the disposal of them.
+ - Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time.
+ - The moment a person forms a theory, his imagination sees in every object only the traits which favor that theory.
+ - Health, learning and virtue will ensure your happiness; they will give you a quiet conscience, private esteem and public honour.
+ - My heart trembles when I reflect that God is just.
+ - The art of life is the art of avoiding pain; and he is the best pilot, who steers clearest of the rocks and shoals with which it is beset.
+ - The only way to win money out of a casino is to own one.
+ - Man once surrendering his reason, has no remaining guard against absurdities the most monstrous, and like a ship without rudder, is the sport of every wind. With such persons, gullibility, which they call faith, takes the helm from the hand of reason, and the mind becomes a wreck.
+ - The press is the best instrument for enlightening the mind of man, and improving him as a rational, moral and social being.
+ - Whenever there are in any country uncultivated lands and unemployed poor, it is clear that the laws of property have been so far extended as to violate natural right. The earth is given as a common stock for man to labor and live on. The small landowners are the most precious part of a state.
+ - No occupation is so delightful to me as the culture of the earth, and no culture comparable to that of the garden.
+ - Cultivators of the earth are the most valuable citizens. They are the most vigorous, the most independent, the most virtuous and they are tied to their country and wedded to its liberty and interests by the most lasting bands.
+ - Politics is such a torment that I advise everyone I love not to mix with it.
+ - I really look with commiseration over the great body of my fellow citizens who, reading newspapers, live and die in the belief that they have known something of what has been passing in their times.
+ - The Habeas Corpus secures every man here, alien or citizen, against everything which is not law, whatever shape it may assume.
+ - It is an axiom in my mind, that our liberty can never be safe but in the hands of the people themselves, and that too of the people with a certain degree of instruction. This it is the business of the State to effect, and on a general plan.
+ - Taxes should be proportioned to what may be annually spared by the individual.
+ - Nothing can now be believed which is seen in a newspaper.
+ - We may consider each generation as a distinct nation, with a right, by the will of its majority, to bind themselves, but none to bind the succeeding generation, more than the inhabitants of another country.
+ - Always take hold of things by the smooth handle.
+ - I extremely believe in luck, and I discovered more hard work, your luck as much.
+ - One war, such as that of our Revolution, is enough for one life.
+ - Dependence leads to subservience.
+ - Each generation has a right to choose for itself the form of government it believes most promotive of its happiness.
+ - There is a fulness of time when men should go, and not occupy too long the ground to which others have a right to advance.
+ - A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference.
+ - A rising nation, spread over a wide and fruitful Land, traversing all the seas with the rich production of their Industry.
+ - A little rebellion is a good thing.
+ - It is the old practice of despots to use a part of the people to keep the rest in order.
+ - Resort is had to ridicule only when reason is against us.
+ - I consider the doctrines of Jesus as delivered by himself to contain the outlines of the sublimest system of morality that has ever been taught but I hold in the most profound detestation and execration the corruptions of it which have been invented...
+ - The natural progress of things is for liberty to yield and government to gain ground.
+ - Against us are all timid men who prefer the calm of despotism to the boisterous sea of liberty We are likely to preserve the liberty we have obtained only by unremitting labors and perils.
+ - I deny the power of the general government to making paper money, or anything else a legal tender.
+ - Laws that forbid the carrying of arms disarm only those who are neither inclined nor determined to commit crimes.
+ - A great deal of love given to a few is better than a little to many.
+ - With nations as with individuals our interests soundly calculated will ever be found inseparable from our moral duties.
+ - I have but one system of ethics for men and for nations – to be grateful, to be faithful to all engagements under all circumstances, to be open and generous, promoting in the long run even the interests of both.
+ - Though the will of the majority is in all cases to prevail, that will, to be rightful, must be reasonable.
+ - If you are obliged to neglect any thing, let it be your chemistry. It is the least useful and the least amusing to a country gentleman of all the ordinary branches of science.
+ - The failure of one thing is repaired by the success of another.
+ - I view great cities as pestilential to the morals, the health and the liberties of man. True, they nourish some of the elegant arts; but the useful ones can thrive elsewhere; and less perfection in the others, with more health, virtue and freedom, would be my choice.
+ - Independence can be trusted nowhere but with the people in mass. They are inherently independent of all but moral law.
+ - A democracy is nothing more than mob rule, where fifty-one percent of the people may take away the rights of the other forty-nine.
+ - It is reasonable that everyone who asks justice should do justice.
+ - No government should be without critics. If its intentions are good then it has nothing to fear from criticism.
+ - We are the friends of liberty everywhere, but the guarrantors of only our own.
+ - I have given up newspapers in exchange for Tacitus and Thucydides, for Newton and Euclid; and I find myself much the happier.
+ - The tender breasts of ladies were not formed for political convulsion.
+ - Let those flatter who fear; it is not an American art .
+ - Certain teachings in the Bible are as diamonds in a dung-heap.
+ - To every obstacle oppose patience, perseverance and soothing language.
+ - The mass of mankind has not been born with saddles on their backs, nor a favored few booted and spurred, ready to ride them legitimately, by the grace of God.
+ - If I could not go to heaven with but a party, I would not go there at all. Therefore, I am not of the party of federalists. But I am much further from that of the anti-federalists.
+ - I never did, or countenanced, in public life, a single act inconsistent with the strictest good faith; having never believed there was one code of morality for a public, and another for a private man.
+ - If I am to meet with a disappointment, the sooner I know it, the more of life I shall have to wear it off.
+ - Idleness begets ennui, ennui the hypochondriac, and that a diseased body. No laborious person was ever yet hysterical.
+ - I have nothing but contempt for anyone who can spell a word in only one way.
+ - Enemies in War, in Peace Friends.
+ - When we see ourselves in a situation which must be endured and gone through, it is best to make up our minds to it, meet it with firmness, and accommodate everything to it in the best way practicable. This lessens the evil; while fretting and fuming only serves to increase your own torments.
+ - Power is not alluring to pure minds.
+ - The sheep are happier of themselves, than under the care of wolves.
+ - State a moral case to a plowman and a professor. The former will decide it as well, and often better than the latter, because he has not been led astray by artificial rules.
+ - Let your gun therefore be your constant companion of your walks.
+ - The federal government is our servant, not our master.
+ - Adore God. Reverence and cherish your parents. Love your neighbor as yourself, and your country more than yourself. Be just. Be true. Murmur not at the ways of Providence. So shall the life into which you have entered be the portal to one of eternal and ineffable bliss.
+ - No experiment can be more interesting than that we are now trying, and which we trust will end in establishing the fact, that man may be governed by reason and truth.
+ - The worst day in a man’s life is when he sits down and begins thinking about how he can get something for nothing.
+ - On a hot day in Virginia, I know nothing more comforting than a fine spiced pickle, brought up trout-like from the sparkling depths of the aromatic jar below the stairs of Aunt Sally’s cellar.
+ - Perfect happiness, I believe, was never intended by the Deity to be the lot of one of his creatures in this world; but that he has very much put in our power the nearness of our approaches to it is what I have steadfastly believed.
+ - The dead should not rule the living.
+ - The true theory of our Constitution is surely the wisest and best, that the states are independent as to everything within themselves and united as to everything respecting foreign nations. Let the general government be reduced to foreign concerns only.
+ - The moral sense is the first excellence of well-organized man.
+ - Every government degenerates when trusted to the rulers of the people alone. The people themselves are its only safe depositories.
+ - One never really knows how much one has been touched by a place until one has left it.
+ - How sublime to look down on the workhouse of nature, to see her clouds, hail, snow, rain, thunder, all fabricated at our feet!
+ - A judiciary independent of a king or executive alone, is a good thing; but independence of the will of the nation is a solecism, at least in a republican government.
+ - We confide in our strength, without boasting of it, we respect that of others, without fearing it.
+ - The darker the berry, the sweeter the juice.
+ - The reason that Christianity is the best friend of government is because Christianity is the only religion that changes the heart.
+ - Should things go wrong at any time, the people will set them to rights by the peaceable exercise of their elective rights.
+ - It is always better to have no ideas than false ones; to believe nothing, than to believe what is wrong.
+ - Our peculiar security is in the possession of a written Constitution. Let us not make it a blank paper by construction.
+ - Whiskey claims to itself alone the exclusive office of sot-making.
+ - An acre of the best ground for hemp, is to be selected and sewn in hemp and be kept for a permanent hemp patch.
+ - We shall all consider ourselves unauthorized to saddle posterity with our debts, and morally bound to pay them ourselves; and consequently within what may be deemed the period of a generation, or the life of the majority.
+ - Material abundance without character is the surest way to destruction.
+ - The introduction of so powerful an agent as steam to a carriage on wheels will make a great change in the situation of man.
+ - Without virtue, happiness cannot be.
+ - We prefer war in all cases to tribute under any form and to any people whatever.
+ - We have the wolf by the ears, and we can neither hold him, nor safely let him go. Justice is in one scale, and self-preservation in the other.
+ - No provision in our Constitution ought to be dearer to man than that which protects the rights of conscience against the enterprises of the civil authority.
+ - If I could not go to Heaven but with a party, I would not go there at all.
+ - Every experience deeply felt in life needs to be passed along. Wheather it be through words and music, chiseled in stone, painted with a brush, or sewn with a needle, it is a way of reaching for immortality.
+ - Those who labor in the earth are the chosen people of God.
+ - For Heaven’s sake discard the monstrous wig which makes the English judges look like rats peeping through bunches of oakum.
+ - We act not for ourselves but for the whole human race. The event of our experiment is to show whether man can be trusted with self – government.
+ - It is a melancholy truth, that a suppression of the press could not more completely deprive the nation of its benefits than is done by its abandoned prostitution to falsehood.
+ - Our citizens may be deceived for awhile, and have been deceived; but as long as the presses can be protected, we may trust to them for light.
+ - It will take a thousand years for the frontier to reach the Pacific.
+ - I have great confidence in the common sense of mankind in general.
+ - A nation, as a society, forms a moral person, and every member of it is personally responsible for his society.
+ - A good cause is often injured more by ill-timed efforts of its friends than by the arguments of its enemies. Persuasion, perseverance and patience are the best advocates on questions depending on the will of others.
+ - But though an old man, I am but a young gardener.
+ - I find friendship to be like wine, raw when new, ripened with age, the true old man’s milk and restorative cordial.
+ - Bigotry is the disease of ignorance, of morbid minds; enthusiasm of the free and buoyant. Education and free discussion are the antidotes of both.
+ - Lethargy is the forerunner of death to the public liberty.
+ - I am not among those who fear the people. They, and not the rich, are our dependence for continued freedom.
+ - The ultimate arbiter is the people of the Union.
+ - I steer my bark with hope in the head, leaving fear astern.
+ - It is more honorable to repair a wrong than to persist in it.
+ - If there be any among us who wish to dissolve the Union or to change its republican form, let them stand undisturbed, as monuments of the safety with which error of opinion may be tolerated where reason is left free to combat it.
+ - I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.
+ - There is a debt of service due from every man to his country, proportioned to the bounties which nature and fortune have measured to him.
+ - Those who labour in the earth are the chosen people of God, if ever he had a chosen, people, whose breasts he has made his peculiar deposit for substantial and genuine virtue.
+ - Nothing is more certainly written in the book of fate than that these people are to be free.
+ - The last hope of human liberty in this world rests on us.
+ - It look like the lord just work for wite folks cause ever sens i wasn nothin but a litle boy i been on my on haulin water to the fiel on that ol water cart wit all them dime bukets an that dipper just hittin an old dorthy just trottin and trottin an me up their hittin her wit that rope...
+ - The tax which will be paid for the purpose of education is not more than the thousandth part of what will be paid to kings, priests and nobles who will rise up among us if we leave the people in ignorance.
+ - Malice will always find bad motives for good actions. – Shall we therefore never do good?
+ - Be a listener only, keep within yourself, and endeavor to establish with yourself the habit of silence, especially in politics.
+ - The cement of this union is in the heart blood of every American. I do not believe there is on earth a government established on so immovable a basis.
+ - There is not one redeeming feature in our superstition of Christianity. It has made one half the world fools, and the other half hypocrites.
+ - Equal and exact justice to all men, of whatever state or persuasion.
+ - The love of justice and the love of country plead equally the cause of these people, and it is a moral reproach to us that they should have pleaded it so long in vain.
+ - No nation is permitted to live in ignorance with impunity.
+ - I recoil with horror at the ferociousness of man. Will nations never devise a more rational umpire of differences than force? Are there no means of coercing injustice more gratifying to our nature than a waste of the blood of thousands and of the labor of millions of our fellow creatures?
+ - It is strangely absurd to suppose that a million of human beings, collected together, are not under the same moral laws which bind each of them separately.
+ - A noiseless course, not meddling with the affairs of others, unattractive of notice, is a mark that society is going on in happiness. If we can prevent the government from wasting the labors of the people under the pretense of taking care of them, they must become happy.
+ - The man who would choose security over freedom deserves neither.
+ - All, too, will bear in mind this sacred principle, that though the will of the majority is in all cases to prevail, that will to be rightful must be reasonable; that the minority possess their equal rights, which equal law must protect, and to violate would be oppression.
+ - The purpose of government is to enable the people of a nation to live in safety and happiness. Government exists for the interests of the governed, not for the governors.
+ - Experience has already shown that the impeachment the Constitution has provided is not even a scarecrow.
+ - The execution of the laws is more important than the making of them.
+ - Your own reason is the only oracle given you by heaven, and you are answerable for, not the rightness, but the uprightness of the decision.
+ - Easter was when they nailed Him to the cross. And He never said a mumbling word.
+ - As for what is not true, you will always find abundance in the newspapers.
+ - Nobody can acquire honor by doing what is wrong.
+ - It is not only vain, but wicked, in a legislator to frame laws in opposition to the laws of nature, and to arm them with the terrors of death. This is truly creating crimes in order to punish them.
+ - If the obstacles of bigotry and priestcraft can be surmounted, we may hope that common sense will suffice to do everything else.
+ - We mutually pledge to each other our lives, our fortunes, and our sacred honour.
+ - If the children are untaught, their ignorance and vices will in future life cost us much dearer in their consequences than it would have done in their correction by a good education.
+ - A true patriot will defend his country from its government.
+ - The constitutional freedom of religion is the most inalienable and sacred of all human rights.
+ - The further the departure from direct and constant control by the citizens, the less has the government of the ingredient of republicanism...
+ - The happiest moments of my life have been the few which I have passed at home in the bosom of my family.
+ - The parent storms, the child looks on, catches the lineaments of wrath, puts on the same airs in the circle of smaller slaves, gives a loose to the worst of passions, and thus nursed, educated and daily exercised in tyranny, cannot but be stamped by it with odious peculiarities.
+ - Educate and inform the whole mass of the people. Enable them to see that it is their interest to preserve peace and order, and they will preserve them.
+ - My most earnest wish is to see the republican element of popular control pushed to the maximum of its practicable exercise. I shall then believe that our government may be pure and perpetual.
+ - No nation was ever drunk when wine was cheap.
+ - If the present Congress errs in too much talking, how can it be otherwise in a body to which the people send one hundred and fifty lawyers, whose trade it is to question everything, yield nothing, and talk by the hour?
+ - Amplification is the vice of modern oratory. It is an insult to an assembly of reasonable men, disgusting and revolting instead ofpersuading. Speeches measured by the hour, die by the hour.
+ - The religion-builders have so distorted and deformed the doctrines of Jesus, so muffled them in mysticism, fancies, and falsehoods.
+ - What justice would there be to take this life? Justice, gentlemen? Why, I would just as soon put a hog in the electric chair as this.
+ - This I hope will be the age of experiments in government, and that their basis will be founded in principles of honesty, not of mere force.
+ - But a short time elapsed after the death of the great reformer of the Jewish religion, before his principles were departed from by those who professed to be his special servants, and perverted into an engine for enslaving mankind, and aggrandizing their oppressors in Church and State.
+ - Cultivators of the earth are the most virtuous and independent citizens.
+ - I advance it therefore as a suspicion only, that the blacks, whether originally a distinct race, or made distinct by time and circumstances, are inferior to the whites in the endowments of both body and mind.
+ - Courts love the people always, as wolves do the sheep.
+ - Traveling makes men wiser, but less happy.
+ - Too old to plant trees for my own gratification, I shall do it for my posterity.
+ - I think our governments will remain virtuous for many centuries; as long as they are chiefly agricultural.
+ - The more a subject is understood, the more briefly it may be explained.
+ - It is more dangerous that even a guilty person should be punished without the forms of law than that he should escape.
+ - We are not to expect to be translated from despotism to liberty in a featherbed.
+ - I cannot live without books: but fewer will suffice where amusement, and not use, is the only future object.
+ - To preserve the freedom of the human mind then and freedom of the press, every spirit should be ready to devote itself to martyrdom; for as long as we may think as we will, and speak as we think, the condition of man will proceed in improvement.
+ - Heliotrope. To be sowed in the spring. A delicious flower, but I suspect it must be planted in boxes and kept in the house in the winter. The smell rewards the care.
+ - I think it is a great error to consider a heavy tax on wines as a tax on luxury. On the contrary, it is a tax on the health of our citizens.
+ - The only orthodox object of the institution of government is to secure the greatest degree of happiness possible to the general mass of those associated under it.
+ - Let common sense and common honesty have fair play, and they will soon set things to rights.
+ - Every human being must be viewed according to what it is good for. For not one of us, no, not one, is perfect. And were we to love none who had imperfection, this world would be a desert for our love.
+ - I own that I am not a friend to a very energetic government. It is always oppressive.
+ - Victory and defeat are each of the same price.
+ - Those who don’t read the newspapers are better off than those who do insofar as those who know nothing are better off than those whose heads are filled with half-truths and lies.
+ - No knowledge can be more satisfactory to a man than that of his own frame, its parts, their functions and actions.
+ - The appointment of a woman to office is an innovation for which the public is not prepared, nor I.
+ - The monopoly of a single bank is certainly an evil. The multiplication of them was intended to cure it; but it multiplied an influence of the same character with the first, and completed the supplanting the precious metals by a paper circulation. Between such parties the less we meddle the better.
+ - All power is inherent in the people.
+ - Government can do something for the people only in proportion as it can do something to the people.
+ - Above all things, lose no occasion of exercising your dispositions to be grateful, to be generous, to be charitable, to be humane, to be true, just, firm, orderly, courageous, etc. Consider every act of this kind as an exercise which will strengthen your moral faculties and increase your worth.
+ - I am tired of a life of contention, and of being the personal object for the hatred of every man, who hates the present state of things.
+ - The Giver of life gave it for happiness and not for wretchedness.
+ - I have no ambition to govern men; it is a painful and thankless office.
+ - I tolerate with the utmost latitude the right of others to differ from me in opinion without imputing to them criminality.
+ - I hold the precepts of Jesus as delivered by Himself, to be the most pure, benevolent and sublime which have ever been preached to man...
+ - Laws are made for men of ordinary understanding and should, therefore, be construed by the ordinary rules of common sense. Their meaning is not to be sought for in metaphysical subtleties which may make anything mean everything or nothing at pleasure.
+ - Tobacco is a culture productive of infinite wretchedness.
+ - But under the beaming, constant and almost vertical sun of Virginia, shade is our Elysium. In the absence of this no beauty of the eye can be enjoyed.
+ - When wrongs are pressed because it is believed they will be borne, resistance becomes morality.
+ - Merchants have no country.
+ - Every man’s reason is his own rightful umpire. This principle, with that of acquiescence in the will of the majority, will preserve us free and prosperous as long as they are sacredly observed.
+ - The sickly, weakly, timid man fears the people, and is a Tory by nature. The healthy, strong and bold cherishes them, and is formed a Whig by nature.
+ - Taste cannot be controlled by law.
+ - Never did a prisoner, released from his chains, feel such relief as I shall on shaking off the shackles of power.
+ - Taxation is, in fact, the most difficult function of government and that against which their citizens are most apt to be refractory.
+ - The clergy, by getting themselves established by law and in-grafted into the machine of government, have been a very formidable engine against the civil and religious rights of man.
+ - A cold-blooded, calculation, unprincipled, usurper, without a virtue, no statesman, knowing nothing of commerce, political economy, or civil government, and supplying ignorance by bold presumption.
+ - Honor, justice, and humanity, forbid us tamely to surrender that freedom which we received from our gallant ancestors, and which our innocent posterity have a right to receive from us.
+ - The press is impotent when it abandons itself to falsehood.
+ - A rigid economy of the public contributions and absolute interdiction of all useless expenses will go far towards keeping the government honest and unoppressive.
+ - It should be remembered, as an axiom of eternal truth in politics, that whatever power in any government is independent, is absolute also.
+ - You see I am an enthusiast on the subject of the arts. But it is an enthusiasm of which I am not ashamed, as its object is to improve the taste of my countrymen, to increase their reputation, to reconcile to them the respect of the world, and procure them its praise.
+ - Were we directed from Washington when to sow and when to reap, we should soon want bread.
+ - Certainly one of the highest duties of the citizen is a scrupulous obedience to the laws of the nation. But it is not the highest duty.
+ - Where the law of the majority ceases to be acknowledged, there government ends; the law of the strongest takes its place, and life and property are his who can take them.
+ - I pledge undying hostility to any government restrictions on the free minds of the people.
+ - The flames kindled on the Fourth of July, 1776, have spread over too much of the globe to be extinguished by the feeble engines of despotism; on the contrary, they will consume these engines and all who work them.
+ - Speeches that are measured by the hour will die with the hour.
+ - The unsuccessful strugglers against tyranny have been the chief martyrs of treason laws in all countries.
+ - I have seen enough of one war never to wish to see another.
+ - The religion of Jesus is founded in the Unity of God, and this principle chiefly gave it triumph over the rabble of heathen gods then acknowledged. Thinking men of all nations rallied readily to the doctrine of one only God, and embraced it with the pure-morals which Jesus inculcated.
+ - The greatest good we can do our country is to heal its party divisions and make them one people.
+ - Religions are all alike- founded upon fables and mythologies.
+ - A man’s moral sense must be unusually strong if slavery does not make him a thief.
+ - Truth is the proper and sufficient antagonist to error, and has nothing to fear from the conflict, unless, by human interposition, disarmed of her natural weapons, free argument and debate; errors ceasing to be dangerous when it is permitted freely to contradict them.
+ - The small landholders are the most precious part of a state.
+ - Would the honest patriot, in the full tide of successful experiment, abandon a government which has so far kept us free and firm on the theoretic and visionary fear that this Government, the world’s best hope, may by possibility want energy to preserve itself? I trust not.
+ - The law of self-preservation is higher than written law.
+ - The most effective means of preventing tyranny is to illuminate, as far as practicable, the minds of the people at large, and more especially to give them knowledge of those facts.
+ - He does most in God’s great world who does his best in his own little world.
+ - It is my principle that the will of the majority should always prevail.
+ - I like my coffee like I like my women.
+ - I leave the world and its affairs to the young and energetic, and resign myself to their care, of whom I have endeavored to take care when young.
+ - Man is not made for the State but the State for man and it derives its just powers only from the consent of the governed.
+ - Nothing can be believed but what one sees, or has from an eye witness.
+ - No government ought to be without censors; and where the press is free no one ever will.
+ - Congress has not unlimited powers to provide for the general welfare, but only those specifically enumerated.
+ - Every man has a commission to admonish, exhort, convince another of error.
+ - The metaphysical insanities of Athanasius, of Loyola, and of Calvin, are, to my understanding, mere lapses into polytheism, differing from paganism only by being more unintelligible.
+ - My confidence is that there will for a long time be virtue and good sense enough in our countrymen to correct abuses.
+ - I believe the states can best govern our home concerns and the federal government our foreign ones.
+ - Rightful liberty is unobstructed action according to our will within limits drawn around us by the equal rights of others. I do not add ‘within the limits of the law’ because law is often but the tyrant’s will, and always so when it violates the rights of the individual.
+ - Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.
+ - I am sure that in estimating every man’s value either in private or public life, a pure integrity is the quality we take first into calculation, and that learning and talents are only the second.
+ - Commerce with all nations, alliance with none, should be our motto.
+ - In a virtuous government, and more especially in times like these, public offices are what they should be – burdens to those appointed to them which it would be wrong to decline, though foreseen to bring them intense labor and great private loss.
+ - The hole and the patch should be commensurate.
+ - I wish it were possible to obtain a single amendment to our Constitution. I would be willing to depend on that alone for the reduction of the administration of our government; I mean an additional article taking from the Federal Government the power of borrowing.
+ - The same political parties which now agitiate the US have existed through all time. And in fact the terms of whig and tory belong to natural as well as to civil history. They denote the temper and constitution and mind of different individuals.
+ - Question with boldness even the existence of a god.
+ - In every government on earth is some trace of human weakness, some germ of corruption and degeneracy, which cunning will discover, and wickedness insensibly open, cultivate and improve.
+ - Reading, reflection and time have convinced me that the interests of society require the observation of those moral precepts only in which all religions agree.
+ - Never fear the want of business. A man who qualifies himself well for his calling, never fails of employment.
+ - Paul was the first corrupter of the doctrines of Jesus.
+ - The chief purpose of government is to protect life. Abandon that and you have abandoned all.
+ - Say nothing of my religion. It is known to God and myself alone. Its evidence before the world is to be sought in my life: if it has been honest and dutiful to society the religion which has regulated it cannot be a bad one.
+ - When an instrument admits two constructions, the one safe, the other dangerous, the one precise, the other indefinite, I prefer that which is safe and precise.
+ - If there is one principle more deeply rooted in the mind of every American, it is that we should have nothing to do with conquest.
+ - When a man assumes a public trust he should consider himself a public property.
+ - Some men look at constitutions with sanctimonious reverence, and deem them like the ark of the Covenant, too sacred to be touched. They ascribe to the men of the preceding age a wisdom more than human, and suppose what they did to be beyond amendment.
+ - It will be said that great societies cannot exist without government.
+ - From candlelight to early bedtime, I read.
+ - Those who have once got an ascendancy, and possessed themselves of all the resources of the nation, their revenues and offices, have immense means for retaining their advantage.
+ - Nothing was or is farther from my intentions, than to enlist myself as the champion of a fixed opinion, where I have only expressed doubt.
+ - An injured friend is the bitterest of foes.
+ - The purse of the people is the real seat of sensibility. Let it be drawn upon largely, and they will then listen to truths which could not excite them through any other organ.
+ - Our civil rights have no dependence on our religious opinions any more than our opinions in physics or geometry...
+ - The natural cause of the human mind is certainly from credulity to skepticism.
+ - Perseverance in object, though not by the most direct way, is often more laudable than perpetual changes, as often as the object shifts light.
+ - I fancy it must be the quantity of animal food eaten by the English which renders their character insusceptible to civilization. I suspect it is in their kitchens and not in their churches that the reformation must be worked.
+ - So inscrutable is the arrangement of causes and consequences in this world, that a two-penny duty on tea, unjustly imposed in a sequestered part of it, changes the condition of all its inhabitants.
+ - No government can continue good, but under the control of the people.
+ - Truth will do well enough if left to shift for herself.
+ - There is not in the British empire a man who more cordially loves a union with Great Britain than I do. But by the God that made me, I will cease to exist before I yield to a connection on such terms as the British Parliament propose.
+ - Peace and abstinence from European interferences are our objects, and so will continue while the present order of things in America remain uninterrupted.
+ - History, in general, only informs us what bad government is.
+ - Wine brightens the life and thinking of anyone.
+ - Never buy what you do not want, because it is cheap; it will be dear to you.
+ - I am satisfied, and sufficiently occupied with the things which are, without tormenting or troubling myself about those which may indeed be, but of which I have no evidence.
+ - Motherhood is the keystone of the arch of matrimonial happiness.
+ - Every honest man will suppose honest acts to flow from honest principles, and the rogues may rail without intermission.
+ - There is not a sprig of grass that shoots uninteresting to me.
+ - The judiciary of the United States is the subtle corps of sappers and miners constantly working under ground to undermine the foundations of our confederated fabric. They are construing our constitution from a co-ordination of a general and special government to a general and supreme one alone.
+ - I believe we may lessen the danger of buying and selling votes, by making the number of voters too great for any means of purchase. I may further say that I have not observed men’s honesty to increase with their riches.
+ - My only fear is that I may live too long. This would be a subject of dread to me.
+ - The opinions and beliefs of men follow involuntarily the evidence proposed to their minds.
+ - I shall see with sincere satisfaction the progress of those sentiments which tend to restore to man all his natural rights, convinced he has no natural right in opposition to his social duties.
+ - Subject opinion to coercion: whom will you make your inquisitors? Fallible men; men governed by bad passions, by private as well as public reasons. And why subject it to coercion? To produce uniformity. But is uniformity of opinion desirable? No more than of face and stature.
+ - The liberty of speaking and writing guards our other liberties.
+ - Nature intended me for the tranquil pursuits of science by rendering them my supreme delight.
+ - Beer, if drank with moderation, softens the temper, cheers the spirit, and promotes health.
+ - I do not take a single newspaper, nor read one a month, and I feel myself infinitely the happier for it.
+ - Trial by jury is part of that bright constellation which has gone before us and guided our steps through an age of revolution and reformation.
+ - That one hundred and fifty lawyers should do business together ought not to be expected.
+ - I consider ethics, as well as religion, as supplements to law in the government of man.
+ - Mankind are more disposed to suffer, while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed.
+ - He, who steadily observes those moral precepts in which all religions concur, will never be questioned at the gates of heaven as to the dogmas in which they all differ.
+ - Experience hath shewn, that even under the best forms of government those entrusted with power have, in time, and by slow operations, perverted it into tyranny.
+ - One precedent in favor of power is stronger than a hundred against it.
+ - Bind them down by the chains of the Constitution where they can do no mischief.
+ - We discover in the gospels a groundwork of vulgar ignorance, of things impossible, of superstition, fanaticism and fabrication .
+ - To consider judges as the ultimate arbiters of all constitutional questions is a very dangerous doctrine indeed, and one which would place us under the despotism of an oligarchy.
+ - I do not agree that an age of pleasure is no compensation for a moment of pain.
+ - Take painsto write a neat round, plain hand, and you will find it a great convenience through life to write a small and compact hand as well as a fair and legible one.
+ - Our minds were circumscribed within narrow limits by an habitual belief that it was our duty to be subordinate to the mother country.
+ - If ever there was a holy war, it was that which saved our liberties and gave us independence.
+ - Dispositions of the mind, like limbs of the body, acquire strength by exercise.
+ - All things here appear to me to trudge on in one and the same round: we rise in the morning that we may eat breakfast, dinner andsupper and to bed again that we may get up the next morning and do the same: so that you never saw two peas more alike than our yesterday and to-day.
+ - If the game runs sometimes against us at home we must have patience till luck turns, and then we shall have an opportunity of winning back the principles we have lost, for this is a game where principles are at stake.
+
+500 quotes

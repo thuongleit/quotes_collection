@@ -1,0 +1,214 @@
+ - There are three things all wise men fear: the sea in storm, a night with no moon, and the anger of a gentle man.
+ - Practice makes the master.
+ - It’s the questions we can’t answer that teach us the most. They teach us how to think. If you give a man an answer, all he gains is a little fact. But give him a question and he’ll look for his own answers.
+ - It’s like everyone tells a story about themselves inside their own head. Always. All the time. That story makes you what you are. We build ourselves out of that story.
+ - Only a fool worries over what he can’t control.
+ - It was wise enough to know itself, and brave enough to be itself, and wild enough to change itself while somehow staying altogether true.
+ - If I seem to wander, if I seem to stray, remember that true stories seldom take the straightest way.
+ - Feel free to call me by my first name: Master.
+ - The truth is that the world is full of dragons, and none of us are as powerful or cool as we’d like to be. And that sucks. But when you’re confronted with that fact, you can either crawl into a hole and quit, or you can get out there, take off your shoes, and Bilbo it up.
+ - Words are pale shadows of forgotten names. As names have power, words have power. Words can light fires in the minds of men. Words can wring tears from the hardest hearts.
+ - There are times when the mind is dealt such a blow it hides itself in insanity. While this may not seem beneficial, it is. There are times when reality is nothing but pain, and to escape that pain the mind must leave reality behind.
+ - Do not mistake me for my mask. You see light dappling on the water and forget the deep, cold dark beneath.
+ - Too much truth confuses the facts. Too much honesty makes you sound insincere.
+ - Dawn was coming. The Waystone Inn lay in silence, and it was a silence of three parts.
+ - Anger can keep you warm at night, and wounded pride can spur a man to wondrous things.
+ - Knowing your own ignorance is the first step to enlightenment.
+ - Owls are wise. They are careful and patient. Wisdom precludes boldness. That is why owls make poor heroes.
+ - You are not wise enough to fear me as I should be feared.
+ - Books are a poor substitute for female companionship, but they are easier to find.
+ - Small facts lead to great knowing.
+ - My bad luck got tangled up with my bad decisions, and I’m paying for it.
+ - The desire for knowledge shapes a man.
+ - One reason we love fiction is because stories have a comforting shape. They provide a resolution that’s lacking in our regular lives.
+ - It’s the questions we can’t answer that teach us the most. They teach us how to think.
+ - All the truth in the world is held in stories.
+ - You have to be a bit of a liar to tell a story the right way.
+ - I guess I’m destined to be loveless.
+ - The best lies about me are the ones I told.
+ - But to love something despite. To know the flaws and love them too. This is rare and pure and perfect.
+ - Half of seeming clever is keeping your mouth shut at the right times.
+ - It’s hard to be wrongfully accused, but it’s worse when the people looking down on you are clods who have never read a book or traveled more than twenty miles from the place they were born.
+ - He was giving me enough rope to hang myself with. Apparently he didn’t realize that once a noose is tied it will fit one neck as easily as another.
+ - Language is inexorably tied to power and understanding. And power and understanding are the roots of magic. Just the act of writing something down is a magical act.
+ - Beer dulls a memory, brand sets it burning, but wine is the best for a sore heart’s yearning.
+ - Only priests and fools are fearless and I’ve never been on the best of terms with God.
+ - Words have to find a man’s mind before they can touch his heart, and some men’s minds are woefully small targets.
+ - I’ve always liked the moonless night best. It’s easier to say things in the dark. It’s easier to be yourself.
+ - If you can find someone like that, someone who you can hold and close your eyes to the world with, then you’re lucky.
+ - Metal rusts, music lasts forever.
+ - Just handle the books gently and you’ll get along fine.
+ - Secrets of the heart. We swallow hard against them every day, forcing them deep inside us. There they sit, growing heavier, festering. Given enough time, they cannot help but crush the heart that holds them.
+ - There are two sure ways to lose a friend, one is to borrow, the other is to lend.
+ - The day we fret about the future is the day we leave our childhood behind.
+ - We are more than the parts that form us.
+ - Music is a proud, temperamental mistress. Give her the time and attention she deserves, and she is yours. Slight her and there will come a day when you call and she will not answer. So I began sleeping less to give her the time she needed.
+ - When the hearthfire turns to blue, what to do? what to do? run outside, run and hide when his eyes are black as crow? where to go? where to go? near and far. Here they are. see a man without a face? move like ghosts from place to place. whats their plan? whats their plan? Chandrian. Chandrian.
+ - But how awful would that be? How terrible to live surrounded by the stark, sharp, hollowness of things that simply were enough?
+ - Remember this, son, if you forget everything else. A poet is a musician who can’t sing. Words have to find a man’s mind before they can touch his heart, and some men’s minds are woeful small targets. Music touches their hearts directly no matter how small or stubborn the mind of the man who listens.
+ - A tree doesn’t make a thunderstorm, but any fool knows where lightning’s going to strike.
+ - I always read. You know how sharks have to keep swimming or they die? I’m like that. If I stop reading, I die.
+ - My thought is, if you’re a book lover, you’re going to enjoy winning a book even if it’s not something you’d ordinarily pick up on your own. It’s a chance to expand your horizons a little.
+ - When we are children we seldom think of the future. This innocence leaves us free to enjoy ourselves as few adults can. The day we fret about the future is the day we leave our childhood behind.
+ - Each woman is like an instrument, waiting to be learned, loved, and finely played, to have at last her own true music made.
+ - You lack the requisite spine and testicular fortitude to study under me.
+ - Congratulations. That was the stupidest thing I’ve ever seen. Ever.
+ - I learned to love the feel of good words.
+ - I needed to let them know they couldn’t hurt me. I’ve learned that the best way to stay safe is to make your enemies think you can’t be hurt.
+ - My shrug was so nonchalant it would make a cat jealous.
+ - All explicit knowledge is translated knowledge, and all translation is imperfect.
+ - You do not know the first note of the music that moves me.
+ - The boy grows upward, but the girl grows up.
+ - With slow care rather than stealth we must approach the subject of a certain woman. Her wildness is of such degree, I fear approaching her too quickly even in a story. Should I move recklessly, I might startle even the idea of her into sudden flight.
+ - I also felt guilty about the three pens I’d stolen, but only for a second. And since there was no convenient way to give them back, I stole a bottle of ink before I left.
+ - I was just wondering why you’re here.
+ - I believe a writer’s most important skill lies in being able to see things from different perspectives.
+ - If I could sum it up in 50 words, I wouldn’t have needed to write a whole novel about it.
+ - 85% of modern music doesn’t have a damn thing to do with music. It has to do with looking good. Name me one woman on the top ten right now who isn’t absolutely smoking hot. You think that’s a coincidence?
+ - A long stretch of road will teach you more about yourself than a hundred years of quiet introspection.
+ - I’ve waited a long time to show these flowers how pretty you are.
+ - Don’t get me wrong, hard and soft fantasy stories can both be good. But you need to know which camp you’re in. I’m into realism. I’m a hard fantasy guy.
+ - Roses! I swear you men have all your romance from the same worn book. Flowers are a good thing, a sweet thing to give a lady. But it is always roses, always red, and always perfect hothouse blooms when they can come by them.
+ - It is quite a thing. There are so many men, all endlessly trying to sweep me off my feet. And there is one of you, trying just the opposite. Making sure my feet are firm beneath me lest I fall.
+ - If you are going to impose your will on the world, you must have control over what you believe.
+ - Just pity him, my boy. Tomorrow we’ll be on our way, but he’ll have to keep his own disagreeable company until the day he dies.
+ - We all become what we pretend to be.
+ - I firmly believe that we’re all good people, but sometimes it’s hard to understand how to do good.
+ - That was another lesson I had learned perhaps too well: people meant pain.
+ - I have, of course, been called many other things. Most of them uncouth, although very few were unearned.
+ - Hours later the blank sheet still stared at me, and I beat my fist against the desk in fury and fustration, striking it so hard my hand bled. That is how heavy a secret can become. It can make blood flow easier than ink.
+ - Why would I want to win anything other than a beautiful game?
+ - I only know one story. But oftentimes small pieces seem to be stories themselves.
+ - I’ll string a fiddle with your guts and make you play it while I dance.
+ - It wasn’t even a good note. ‘If you are reading this I am probably dead.’ What sort of a note is that?
+ - Appearance is a type of power.
+ - Fencing is more a sport than a martial art. It would be like basing your knowledge of roman phalanx warfare on NFL football.
+ - For me, language is something that I’ve always loved. When I read, that’s what I look for. When I write, that’s what I strive for.
+ - It’s hard for me to take myself too seriously when I’m constantly experiencing firsthand what an incredible gimp I can be.
+ - Fear tends to come from ignorance. Once I knew what the problem was, it was just a problem, nothing to fear.
+ - I want to learn how to pick locks, swordfight, throw pottery – it’s all research. It’s like the curious person’s version of James Bond’s license to kill. I’ve got a license to learn.
+ - Whenever you write a character, you want to make them themselves, you want to make them unique. You don’t want fifty characters in your book and they all pretty much act and think the same except they have different colored hair.
+ - Good lord woman. If i had tits like yours I’d own half the world by now.
+ - I need you to breathe for me.
+ - It was the patient, cut-flower sound of a man who is waiting to die.
+ - Perhaps the greatest faculty our minds possess is the ability to cope with pain.
+ - I’m not a role model. I’m an aberation. A statistical anomoly. Following in my footsteps is about the dumbest thing you could ever do.
+ - But sometimes the best help a person can find is helping someone else.
+ - In brief, worldbuilding is different than setting in my opinion. Setting is a room. A backdrop. It’s scenery. But without good worldbuilding, you can’t have realistic feeling scenery. You can’t have cool, unique backdrops for your story.
+ - I’ve never really understood the desire people have to quantify a baby. “He’s X big and Y long,” As if the baby is a fish you’re not sure you’re going to keep. Or some prize potato you’re hoping will win a prize at the county fair.
+ - Bones mend. Regret stays with you forever.
+ - If there is one thing I will not abide it is the folly of a willful pride.
+ - It’s easier to write about heartbreak after you’ve had your heart broken. You have more material to draw from, you can extrapolate from your own experiences and make reasonable assumptions about how your characters would feel and act.
+ - She taught me I should never do anything in private I did not want talked about in public, and cautioned me not to talk in my sleep.
+ - The world is a mess and I just need to rule it.
+ - Death was like an unpleasant neighbor. You didn’t talk about him for fear he might hear you and decide to pay a visit.
+ - That is how heavy a secret can become. It can make blood flow easier than ink.
+ - She was a wicked thing sometimes. All full of want. As if the shape of the world depended on her mood. As if she were important.
+ - The seeds of the past bear fruit in the present.
+ - Half a King is my favorite book by Joe Abercrombie so far, and that’s saying something.
+ - If your name is getting too heavy, you should have Kvothe give you a new one.
+ - Speculative fiction is where my heart lies. It’s what I read growing up, and it’s what I read as an adult.
+ - Close your mouth, E’lir Kvothe, or I will feel obliged to put some vile tonic in it.
+ - I won the only duel I ever lost.
+ - Music sounds different to the one who plays it. It is the musician’s curse.
+ - I am no poet. I do not love words for the sake of words. I love words for what they can accomplish. Similarly, I am no arithmetician. Numbers that speak only of numbers are of little interest to me.
+ - There are few things as nauseating as pure obedience.
+ - I’ve got an idea for a modern day faerie tale that I think would made a great short novel. But I just don’t have the time to work on it right now. I’m way too busy with the ‘Kingkiller Chronicles’ and being a new dad.
+ - Its like he knows he’s better than you, but doesn’t look down on you for it because he knows it’s not your fault.
+ - The second was some rather bad poetry, but it was short, and I forced my way through by gritting my teeth and occasionally closing one eye so as not to damage the entirety of my brain.
+ - Reading is professionally important for me to keep tuned in to what’s being written in my genre, let’s not lie. But that’s not the reason I read. I read for my own emotional and mental health. If I stopped reading, I’d probably just die.
+ - When you love something, you have to make sure it loves you back, or you’ll bring about no end of trouble chasing it.
+ - What has made me most proud – the things that I’ve done that I feel the most pride about – is helping people care about making the world better.
+ - You know, I could have carried you.
+ - Just because I tread heavily on propriety’s toes doesn’t mean I can’t play the game when it’s of use to me.
+ - A poet is a musician who can’t sing.
+ - It’s hard for a newbie author to get noticed.
+ - To deem us simply enemies is to lose the true flavor of our relationship. It was more like the two of us entered into a business partnership in order to more efficiently pursue our mutual interest of hating each other.
+ - There is something powerfully beguiling about the excited eyes of a young woman. They can pull all manner of nonsense out of a foolish young man, and I was no exception to this rule.
+ - I have a blog where I keep in touch with my fans. I write about things that are important to me. Sometimes on there I’ll just tell a little story about the things that happen in my everyday life. People seem to enjoy them well enough.
+ - I’m not officially a collector, but I have a strange attraction and a weakness for keys and coins. Old keys and interesting coins.
+ - Generally my favorite remarks always come from my readers. I’ve had people say my books made them laugh, or cry, or that it frightened them late at night.
+ - The way I cook it’s more like mad science. There’s a lot of inspiration and dramatic failure with the occasional gorgeous success.
+ - I can’t count the men who have tried to seduce me away from my virtue by teaching me how to defend it.
+ - Humor is important. If you’re going to tell any sort of realistic story, you’re going to have to have humor in it, because people are funny. Clever people especially.
+ - Is there a connection between language and magic? Yes. Ten times yes. So much yes that it almost doesn’t bear talking about. It’s as pointless that arguing that the sun is hot.
+ - There is a sort of camaraderie that rarely exists except between men who have fought the same enemies and know the same women.
+ - Don’t get me wrong, magic is cool. But a nervous mother singing to her child at night while something moves quietly through the dark outside her house? That’s a story. Handled properly, it’s more dramatic than any apocalypse or goblin army could ever be.
+ - We need time to relax and enjoy ourselves too, no matter how dark the story. The occasional humorous moment helps with that. That’s one of the things that Joss Whedon excels at in his storytelling.
+ - I don’t feel beholden to follow the real world at all. The important thing is to know WHY things turned out the way they did. You need to understand the reasons for events, or at least be able to make reasonable guesses about them.
+ - It’s my opinion that if you’re trying to tell a realistic story that centers around realistic characters, you can’t help but touch on important issues. Those issues are what make us human.
+ - I’d love to take a stab at writing videogames. There are a lot of storytelling opportunities that really aren’t being taken advantage of in that field. I’d like to experiment with telling a truly non-linear story.
+ - Someone’s parents have been singing entirely the wrong sort of songs.
+ - Science is just magic with better PR.
+ - There is only one Whedon, and I am his prophet.
+ - Performance and music are inexorably tied together. And hell, I’ll watch Brittany’s Toxic music video all day. But there’s a difference between that and listening to Leo Kottke play guitar. One is entertainment. The other is Music.
+ - I’m not a speed writer. I write slowly and revise obsessively. The end result tends to be good. That’s where my strength is.
+ - To be both rich and handsome was bad enough. But to have a voice like honey over warm bread on top of that was simply inexcusable.
+ - Unfortunately, a lot of fantasy is chock full of sexism and racism. A lot of authors don’t even realize they’re doing it, and a lot of readers don’t know they’re reading it. That’s what makes it so scary in some cases.
+ - It’s one thing to not want an evil-sorcerer type villain in your story, but it’s another thing to avoid having any sort of antagonist at all. A story without an antagonist gets weird pretty quick.
+ - I’m not implying that fantasy is for kids. I’m saying that more and more people are finally realizing that there’s more to fantasy stories than elves and wizards and goblin armies.
+ - Then he turned it the third time, and the boy’s ass fell off.
+ - One of my favorite artists on Deviantart.
+ - I believe it, Chronicler found himself thinking. Before it was just a story, but now I can believe it. This is the face of a man who has killed an angel.
+ - If you’re going to have a book full of clever people and nobody ever jokes, it’s just not going to ring true to the reader. That said, humor writing is the hardest kind of writing there is.
+ - And if Hollywood has taught us anything, it’s that cool props and special effects are not enough. Story comes first. Everything depends on story.
+ - Humor is important for is pacing. If your whole book is just drama drama drama, it’s going to wear down the reader.
+ - But I don’t believe every bit of nonsense that gets rumored about.
+ - There is nothing quite so delightfully mysterious as a secret in your own backyard.
+ - He had a bright, reckless tenor that was always wandering off, looking for notes in the wrong places.
+ - Abenthy gave me an appraising look. I’d been waiting for it. It was the look that said, “You don’t sound as young as you look.” I hoped he’d come to grips with it fairly soon. It gets tiresome being spoken to as if you are a child, even if you happen to be one.
+ - Do you just want to get by? Or do you want to make me proud?
+ - I do this so you cannot help but hear. A wise man views a moonless night with fear.
+ - Clean, quick, and easy as lying. We know how it ends practically before it starts. That’s why stories appeal to us. They give is the clarity and simplicity our real lives lack.
+ - No hard feelings about that time in the Crucible when you mixed my salts and I was nearly blind for a day. No. No, really, drink up!
+ - Isn’t that the way of the world? We want the sweet things, but we need the unpleasant ones.
+ - I swear I’ve never met a man who has your knack for lack of social grace. If you weren’t naturally charming, someone would have stabbed you by now.
+ - It’s not prowess if you watch 5 hours of TV a day. It’s just how you choose to spend your time.
+ - Everything said, you couldn’t hope for a nicer day to have a half dozen ex-soldiers with hunting bows relieve you of everything you owned.
+ - I’m not a stereotypical professor type. I don’t smoke a pipe and wear a tweedy jacket. I’m more like a student who stayed at the university for so long that they gave him a job to keep him out of trouble.
+ - I loved college. I wish I was still taking classes instead of teaching them.
+ - You can have an interesting story about a person living an interesting life. And if it’s done well, that is just as engaging as the end of the world. A million people dying – we can’t process. One person, we can process.
+ - Hespe’s mouth went firm. She didn’t scowl exactly, but it looked like she was getting all the pieces of a scowl together in one place, just in case she needed them in a hurry.
+ - But even this piece of flattery couldn’t distract me from the fact that I was in the center of the Fae realm, blind, stark naked, and without the slightest idea of what was going on.
+ - You can’t write good characters if you can’t imagine what it’s like being in another person’s skin. And if you can imagine that, you naturally want other people’s lives to be better. You want to make that happen.
+ - But it isn’t a rough draft either. The one I turned in several months ago was rough. There were some bad plot holes, some logical inconsistencies, pacing problems, and not nearly enough lesbian unicorns.
+ - By your logic I should also be in charge of Solinade dances, needlework, and horse thieving.
+ - In my opinion there are two basic questions that any writer tries to answer. “What is?” is the question non-fiction asks. “What if?” is the question fiction asks. That’s the question I’m more interested in.
+ - When someone tells you a piece of their life, they’re giving you a gift, not granting you your due.
+ - It’s my belief that you should never show your work to anyone in the publishing world until it shines like a diamond. Rough drafts don’t shine, as a rule. Mine certainly didn’t. That’s why I was rejected for years and years.
+ - Most games follow a real railroad plot, no matter what you want, you’re following their storyline to its unavoidable conclusion. I’d like to write a game where your character can follow any number of possible story arcs and sub-plots.
+ - I don’t speak fluent bumpkin...
+ - I can sell anything to anyone. That is actually my superpower. I am really good at negotiating and persuading.
+ - Pride is always a better lever against the nobility than reason.
+ - It was more exciting when I didn’t know I had permission.
+ - The framed tale is, in my opinion, one of the most natural ways to tell a story. If you think of it, the conceit of the frame-less story is actually the odd way of doing things. Without the frame, how do you know the context for a story?
+ - The air was heavy with the smell of leather and dust, of old parchment and binding glue. It smelled of secrets.
+ - You may have heard of me.
+ - After a certain point is reached the numbers cease to matter, and all that remains is the faceless mass of a crowd.
+ - Humor is hard, hard, hard. And if you fail with humor, you don’t fail halfway. You drop the ball humor-wise and everyone notices.
+ - When you read a fantasy novel part of the fun is getting to explore a new world. Everyone knows that. But I believe the same is true about characters. You can explore interesting people in the same way that you explore a town or a culture.
+ - I decided to dub the room with the good chairs my lutery. Or perhaps my performatory. I would need a while to come up with something suitably pretentious.
+ - Old Cob tucked away his bowl of stew with the predatory efficency of a lifetime bachelor.
+ - Do you know what it’s like to run spellcheck for six hours? It’s like a party in purgatory. A party in purgatory where all they have to drink is sugar-free Kool-aid, and the only game to play is Monopoly, and none of your friends show up.
+ - As a writer, I first felt successful before I was published.
+ - When left to its own devices it tends to make me look as if I’ve been set afire.
+ - It might not be true, but that doesn’t mean it’s nonsense.
+ - I spoke it soft, but close enough to brush against her lips. I spoke it quiet, but near enough so that the sound of it went twining through her hair. I spoke it hard and firm and dark and sweet.
+ - I’m pretty good at putting up drywall and I’m an excellent kisser. That’s pretty much all of my skills right there.
+ - Character is half the reason we read. We’re excited because of the plot, but we care because of the characters.
+ - For me the really cool parts of being an author don’t have anything to do with getting onto a bestseller list.
+ - You need to realize that most writing rules aren’t laws, they’re rules of thumb.
+ - I don’t think people need to know much about me to understand the book, or to enjoy it. The book stands by itself. Over the last several years, my life has been all about writing these books, but the books aren’t about my life.
+ - That is like throwing two virgins into a bed. Enthusiasm, passion, and ignorance are not a good combination. Someone is likely to get hurt.
+ - All stories are true.
+ - One of them had a large wooden sign nailed to its door proclaiming, NO SYMPATHY! I wondered what non-arcane visitors might think of the warning.
+ - Nobody cooks using just one ingredient. Why would you write using just one flavor of story?
+ - The cost of a loaf is a simple thing, and so a loaf is often sought, but some things are past valuing: laughter, land, and love are never bought.
+ - It gets tiresome being spoken to as if you are a child, even if you happen to be one.
+ - A troublesome question? Those tend to be the only whorthwhile kind.
+ - I think the best part of being an author is that I get to learn about anything I want and explain it away as research.
+ - Stories only happen to people who can tell them.
+ - Barbarian that I am, I had eaten all of it. It had tasted quite nice too. Still, I took note of this fact and resigned myself to throw away half of a perfectly good cheese if it was set in front of me. Such is the price of civilization.
+ - This is how deeply rooted stories are, folks. We crave them before we can walk, and we start telling them before we can talk.
+
+212 quotes

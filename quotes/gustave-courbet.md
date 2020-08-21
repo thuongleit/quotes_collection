@@ -1,0 +1,27 @@
+ - I have never seen an angel. Show me an angel, and I’ll paint one.
+ - When I am dead, let it be said of me: he belonged to no school, to no church, to no institution, to no academy, and least of all, to any regime except the regime of liberty.
+ - Art or talent, for an artist, is merely a means of applying his personal faculties to the ideas and the things of the period in which he lives.
+ - Painting is an essentially concrete art and can only consist of the representation of real and existing things. It is a completely physical language, the words of which consist of all visible objects. An object which is abstract, not visible, non-existent, is not within the realm of painting.
+ - I too am a government.
+ - I am not one who was born in the custody of wisdom; I am one who is fond of olden times and intense in quest of the sacred knowing of the ancients.
+ - Beauty lies in nature and reveals, once the artist has perceived it, its own expressive power.
+ - The expression of beauty is in direct ratio to the power of conception the artist has acquired.
+ - I have never seen either angels or goddesses, so I am not interested in painting them.
+ - Fine art is knowledge made visible.
+ - Painting is the representation of visible forms. The essence of realism is its negation of the ideal.
+ - When I am no longer controversial, I will no longer be important.
+ - Painting is an essentially concrete art and can only consist of the representation of real and existing things.
+ - The beautiful is in nature, and it is encountered under the most diverse forms of reality. Once it is found it belongs to art, or rather to the artist who discovers it.
+ - I hope to live all my life for my art, without abandoning my principles one iota.
+ - To be able to translate the customs, ideas and appearance of my times as I see them – in a word, to create a living art – this has been my aim.
+ - The principle of realism means denial of the ideal.
+ - Beauty, like truth, is relative to the time when one lives and to the individual who can grasp it.
+ - Without trying to clear up the degree of correctness of a qualification which no one, one must hope, will be asked to understand exactly, I will limit myself to a few words of explanation to cut short any misunderstandings.
+ - I deny that art can be taught, or, in other words, maintain that art is completely individual, and that the talent of each artist is but the result of his own inspiration and his own study of past tradition.
+ - Titles have never given a just idea of things; were it otherwise, the work would be superfluous.
+ - It is fatal for art if it is forced into official respectability and condemned to sterile mediocrity.
+ - I have studied the art of the masters and the art of the moderns, avoiding any preconceived system and without prejudice. I have no more wanted to imitate the former than to copy the latter; nor have I thought of achieving the idle aim of art for art’s sake.
+ - France is the only nation in which astoundingly small numbers of civilized patrons reside.
+ - Art is a wholly physical language whose words are all the visible objects.
+
+25 quotes

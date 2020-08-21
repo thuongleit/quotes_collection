@@ -1,0 +1,38 @@
+ - A mountain with a wolf on it stands a little taller...
+ - Indeed, if “biology is chemistry with history,” as somebody has said, then nature writing is biology with love.
+ - In order to really enjoy a dog, one doesn’t merely try to train him to be semi-human. The point of it is to open oneself to the possibility of becoming partly a dog.
+ - There are two kinds of writers: hustlers and sanctimonious hustlers.
+ - If two people are in love they can sleep on the blade of a knife.
+ - To relive the relationship between owner and slave we can consider how we treat our cars and dogs – a dog exercising a somewhat similar leverage on our mercies and an automobile being comparable in value to a slave in those days.
+ - It would be hard to define chaos better than as a world where children decide they don’t want to live.
+ - Country people do not behave as if they think life is short; they live on the principle that it is long, and savor variations of the kind best appreciated if most days are the same.
+ - A writer’s work is to witness things.
+ - Men greet each other with a sock on the arm, women with a hug, and the hug wears better in the long run.
+ - True solitude is a din of birdsong, seething leaves, whirling colors, or a clamor of tracks in the snow.
+ - Silence is exhilarating at first – as noise is – but there is a sweetness to silence outlasting exhilaration, akin to the sweetness of listening and the velvet of sleep.
+ - There is a time of life somewhere between the sullen fugues of adolescence and the retrenchments of middle age when human nature becomes so absolutely absorbing one wants to be in the city constantly, even at the height of summer.
+ - It’s incongruous that the older we get, the more likely we are to turn in the direction of religion. Less vivid and intense ourselves, closer to the grave, we begin to conceive of ourselves as immortal.
+ - Summer is when we believe, all of a sudden, that if we just walked out the back door and kept on going long enough and far enough we would reach the Rocky Mountains.
+ - City people try to buy time as a rule, when they can, whereas country people are prepared to kill time, although both try to cherish in their mind’s eye the notion of a better life ahead.
+ - No birdcall is the musical equal of a clarinet blown with panache.
+ - The question of whether it’s God’s green earth is not at center stage, except in the sense that if so, one is reminded with some regularity that He may be dying.
+ - If a person sings quietly to himself on the street people smile with approval; but if he talks it’s not alright; they think he’s crazy. The singer is presumed to be happy and the talker unhappy...
+ - Land of opportunity, land for the huddled masses where would the opportunity have been without the genocide of those Old Guard, bristling Indian tribes?
+ - Poetry is engendered in solitude, so what better meter for it than the clip of a buckskin horse?
+ - There often seems to be a playfulness to wise people, as if either their equanimity has as its source this playfulness or the playfulness flows from equanimity; and they can persuade other people who are in a state of agitation to calm down and smile.
+ - Once I climbed into a mountain lion’s cage and she bounded at me and put her paw on my face, but she kept her claws withdrawn.
+ - Many people have believed that they were Chosen, but none more baldly than the Texans.
+ - Animals are stylized characters in a kind of old saga – stylized because even the most acute of them have little leeway as they play out their parts.
+ - Country people tend to consider that they have a corner on righteousness and to distrust most manifestations of cleverness, while people in the city are leery of righteousness but ascribe to themselves all manner of cleverness.
+ - There aren’t many irritations to match the condescension which a woman metes out to a man who she believes has loved her vainly for the past umpteen years.
+ - If human nature eventually is going to take the place of nature everywhere, those of us who have been naturalists will have to transpose the faith in nature which is inherent in the profession to a faith in man-if necessary, man alone in the world.
+ - To live is to see, and traveling sometimes speeds up the process.
+ - Man is different from animals in that he speculates, a high-risk activity.
+ - Our loneliness makes us avid column readers these days.
+ - Men often compete with one another until the day they die. Comradeship consists of rubbing shoulders jocularly with a competitor.
+ - Black bears, though, are not fearsome. I encountered one on the road to my house in Vermont, alone at night. I picked up two stones just in case, but I wasn’t afraid of him. I felt a hunter’s exhilaration and a brotherly feeling.
+ - We New Yorkers see more death and violence than most soldiers do, grow a thick chitin on our backs, grimace like a rat and learn to do a disappearing act. Long ago we outgrew the need to be blowhards about our masculinity; we leave that to the Alaskans and Texans, who have more time for it.
+ - The novelist screws up his courage in order to invest another two or three years in another attempt to float a boat of original design upon an invented ocean.
+ - There were periods during my childhood when I stammered so badly I couldn’t talk at all.
+
+36 quotes

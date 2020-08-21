@@ -1,0 +1,23 @@
+ - There is no substitute for experience.
+ - There is always a time to move on.
+ - Football without fans is nothing.
+ - If you’re good enough, the referee doesn’t matter.
+ - We must play as if there are no more games, no more tomorrows...
+ - Surely there are enough Celtic songs without introducing religion or politics or anything else.
+ - Celtic jerseys are not for second best, they don’t shrink to fit inferior players.
+ - I lost some friends when I made the move, but if that’s what matters to them, then they’re not really friends at all.
+ - Unlike many other Celts, I cannot claim that Celtic was my first love but I can say that it will be my last love.
+ - Football is for the fans. It can be the greatest game in the world but if there are no people to watch it, it becomes nothing. The fans are the lifeblood of the game.
+ - The most pleasure any manager can get is seeing everyday boys joining the Club as youngsters and growing into men and giving themselves a better social standing than they could ever have dreamed of previously.
+ - Without fans who pay at the turnstile, football is nothing. Sometimes we are inclined to forget that. The only chance of bringing them into stadiums is if they are entertained by what happens on the football field.
+ - The best place to defend is in the opposition penalty box.
+ - There is no excuse for a professional footballer not to be 100% fit.
+ - There’s nothing wrong with losing your temper for the right reasons.
+ - It’s not religion that’s the problem – it’s the lack of religion!
+ - I think it is important to win a match, but I think what is even more important is the manner in which you win.
+ - It is up to us, to everyone at Celtic Park, to build up our own legends. We don’t want to live with history, to be compared with legends from the past. We must make new legends.
+ - Ach, Rangers are alright, but they still haven’t invented blue grass.
+ - If I can achieve for Celtic what I have achieved for Hibs, then I feel I will have done well for them.
+ - My proudest moment? Every Friday morning when I look at the board at Celtic Park and see my name on the team sheet for tomorrow’s game.
+
+21 quotes

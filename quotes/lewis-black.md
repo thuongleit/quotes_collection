@@ -1,0 +1,125 @@
+ - If it weren’t for my horse, I wouldn’t have spent that year in college.
+ - Do you know what ‘meteorologist’ means in English? It means liar.
+ - Just relax and breathe through your ass.
+ - I love anything that gets me outside of my own head. I love music because it’s really just – I tried to play piano as a kid. I was awful. It didn’t help, and this is absolutely true, that my piano teacher had arthritis. And that’s not a good way to learn.
+ - We have a two-party system: The Democratic Party, which is a party of NO ideas, and the Republican Party, which is a party of BAD ideas.
+ - Now, they say that New Zealand is beautiful and I do not know – because after 22 hours on a plane any landmass would be beautiful.
+ - Democrats are dumb and Republicans are stupid, but the difference between dumb and stupid is dumb isn’t funny. Dumb is when you say something and the whole room goes, ‘What did he say?’
+ - North Korea is the country that the monkeys in the Wizard of Oz came from.
+ - If you don’t drink 56 bottles of water a week, scientists say you should take a garden hose at the end of the week and shove it up your ass.
+ - There’s no such thing as soy milk. It’s soy juice.
+ - For a while, I thought the great disappointment of my life was that I don’t have a family of my own. Then it dawned on me: That’s not what I think; that’s what married people think.
+ - The reason I like socialism is that it’s kind of enforced Christianity. It’s basically very Christian, in the sense of “do unto others as you would have them do unto you.” These people have nothing, so you have to share.
+ - Self-love is a big part of golf.
+ - Interesting thing about being rich is once you pay your taxes, you’re still rich.
+ - What is the difference between a Democrat and a Republican? A Democrat blows, a Republican sucks.
+ - The one thing I think we learned this year is that the Democrats and the Republicans are completely worthless.
+ - If somebody tries to tell me the earth was created in 7 days I take a fossil and say “FOSSIL”. If he still won’t shut up I throw it at him.
+ - It’s absolutely stupid that we live without an ozone layer. We have men, we’ve got rockets, we’ve got saran wrap – FIX IT!!!
+ - Writing is thinking and thinking is hard work.
+ - I do have certain feelings. My feeling is that whoever is in charge, I want him out.
+ - MTV is to music as KFC is to chicken!
+ - Mother Teresa had a mustache. Hitler had a mustache. Mother Teresa is Hitler.
+ - I went to New Zealand this year, and, whew man, I know a lot of people want to go there. But let me just tell you, it’s 22 hours by plane. So, if you have the opportunity, don’t.
+ - It’s a shame cars don’t run on cognitive dissonance.
+ - On the plane was a Time magazine and there was a 30 page article on diabetes, and I read every page. By the time that plane landed, I had diabetes.
+ - Online, there’s no time. It’s always Christmas.
+ - Nyquil comes in two colors, red and green, and it’s the only thing on the planet that tastes like red and green.
+ - We don’t have seasons anymore. You know why? We lost the ozone layer. Well, put it on milk cartons – let’s find it!
+ - Parenting isn’t just parenting your own child.
+ - When you compare Christmas to Hanukkah, there’s no comparison. Christmas is great. Hanukkah sucks! First night you get socks. Second night, an eraser, a notebook. It’s a Back-to-School holiday!
+ - That’s the funny thing about religion: it doesn’t matter what you say, you’re going to upset someone.
+ - He smiles so much, I don’t think he has a central nervous system.
+ - My favorite health club is the International House of Pancakes.
+ - Pursue whatever it is that you want to do with your life. It is the only secret to happiness that I know except for maybe true love, that and maybe having the amazing health insurance plan that our congressmen have.
+ - I’m always amazed when I hear people saying; That George Bush, he’s a great leader. And I wonder, where can one find a drug that would make one so delusional?
+ - I am Batman. That’s who I am, who are you?
+ - Valentine’s Day: the holiday that reminds you that if you don’t have a special someone, you’re alone.
+ - The whole Valentine’s thing is fine, but you don’t back it up right next to the biggest gift-giving holiday of the year. Unbelievable. And we find it acceptable.
+ - I feel the need to scream, and even if the scream is not answered, I find my sanity in the echo.
+ - You want to know what it’s like to be on a plane for 22 hours? Sit in a chair, squeeze your head as hard as you can, don’t stop, then take a paper bag and put it over your mouth and nose and breath your own air over and over and over.
+ - Some people have religion as a means of solace. But, I had a dreidel, so that was out.
+ - The thing is, whenever I see Hillary Clinton, I feel like I have to vote for her. She makes me feel guilty because I feel like I should vote for her so that she’ll feel better about herself because she’d been in such a bad marriage.
+ - Nobody in college races home and says, ‘I can’t wait to see the news! I can’t wait to see who CBS is going to hire!’
+ - I’m not a great joke writer, which is odd for a comic to say, but I’m not. So it’s hard for me to come up with things, because I don’t write stuff, I don’t write my act down.
+ - Stupidity really gets me going, when it’s just plain stupid, obvious stupidity.
+ - When from behind me, a young woman of 25 uttered the following, it was the dumbest thing I have ever heard in my life until Dan Quayle was elected Vice President of the United States. She said, if it weren’t for my horse, I wouldn’t have spent that year in college.
+ - It’s great that we’re bringing democracy to Iraq. I can’t wait to see how we do it! What are we gonna do, give them our civics textbooks?
+ - You can never put too much pork in your mouth as far as I’m concerned.
+ - Every time I use an app, part of my brain dies! We’ll get to the point where we go to bed and wonder: ‘Did I have a thought today?’ You’ll have to go to your ‘Thought’ app!
+ - It’s a privilege to pay taxes. Yeah! It’s not a political question, folks. We have to pay for stuff.
+ - FEMA I always thought was a bone here in your ass.
+ - Glenn Beck is offended! Glenn Beck thinks playing the Nazi card is going too far. Glenn Beck. this is a guy who uses more Swastika props and video of the Nuremberg rallies than the History Channel.
+ - One thing I know about the rich, being rich, is that you can take money from me and tomorrow, I’m still going to be rich.
+ - It’s 2003. Why can’t I teleport?
+ - Wow, you survived a blackout. You’re made of stronger stuff than ice cream.
+ - I don’t need politicians doing a 24-hour prayer with Oral Roberts to get our country back on track.
+ - Democrats are like a big tortoise that’s on its back and can’t get up; you can’t make jokes about that.
+ - I have this insane optimistic streak that the American people prevail over the stupidity that the leadership exhibits time and time again, and I think that’s the truth.
+ - I’ve always been a social network retard, even before there was a social network. People would say, “You want to go to this party and do some networking?”
+ - If there is hell, it was modeled after junior high school.
+ - When I’m funny is when I’m angriest.
+ - There is absolutely nothing you can learn out of one bllodeshot eye.
+ - Johnny Vassilaros is the man who has created the finest cup of coffee ever served in the city of New York.
+ - I can be drunk until 6 in the morning, and then I don’t have to show up to work until 14 hours later.
+ - I have N’Sync and Aerosmith and Britney Spears. I have a trifecta from hell.
+ - Donald Trump came out as a birther, which is Republican for, ‘I’m running for president.’
+ - I’m constantly in fear of having a stroke.
+ - I had to watch the Republican stuff which makes me feel even older than I am. By the time I get through the Democrats, I may be dead. I don’t know how much older I can get.
+ - I’m not a big birthday guy; I never have been.
+ - The Republicans are the party of bad ideas. The Democrats are the party of no ideas.
+ - Now, most of the time you couldn’t be too sure of the quality of the drug. Although, in my experience the stuff was always of a very high quality, because back then we didn’t have business majors peddling lower-quality stuff in an effort to increase profits.
+ - Who knew that the devil had a factory where he made millions of fossils, which his minions distributed throughout the earth, in order to confuse my tiny brain?
+ - I never write anything down. I write onstage.
+ - Stupidity really gets me going, when it’s just plain stupid, obvious stupidity. And I think that’s the reason my act has become more political. I’ve become somewhat more of a political comic because the level of stupidity I’ve watched is staggering.
+ - If you listen to a song and get an image in your head, and then you go home and watch mtv and the image they’re showing is the same as the one in your head, kill yourself. You’re better off coming back as a lobster.
+ - Glenn Beck has Nazi Tourettes’.
+ - Ninety percent of a shirt that not only was bright purple and green but with a design on it that, if you moved too quickly, might cause a seizure in an unsuspecting onlooker.
+ - If I wanted to be bored by 6,000 pages of unreadable dreck, I’d read War and Peace four times.
+ - The tortoise moves very slowly, it moves towards whatever the goal is, to keep a democratic capitalistic society functioning.
+ - And I know this happens because I took economics, and I’d explain it to ya, but I flunked that course. Not my fault. They taught it at 8 o’clock in the morning. And there is absolutely nothing you can learn out of one bloodshot eye.
+ - Since there are so many idiots out there, you may actually start to think you’re crazy. You are not. They are idiots.
+ - None of this seems to affect the leadership, that people don’t go out to vote, that they don’t feel the need to go vote, that they already feel disenfranchised. It’s not just Obama’s fault or Clinton’s or whomever’s, it’s all of them, the whole collection of clowns I’ve had to sit through.
+ - Then there was the man who declared in court, he wasn’t a person. “Excuse me, sir, why haven’t you paid your taxes.” “Well, as you can clearly see, I am not a person.” “Well, you look like a person.” “No it’s all done with mirrors, trust me!”
+ - You got to be just stupid to not be focused on alternative energy.
+ - It took forever for me to get work because I was a political comic, and now it’s become good business, and God knows how long that’ll last. You have to do it night after night after night to kind of make it. I still find myself on ‘Piers Morgan’ or on some show and I think, ‘I hope this is funny.’
+ - Apparently there is no profit in the unique, or not enough to make it worthwhile to preserve. Ultimately it drains the life out of us, and existentialism starts to make more and more sense.
+ - A lot of the times I’m looking at something that I discover is part of a larger framework and not just a couple jokes. I see that it’s a set, a story that I’ll be telling. Sometimes I get lost in that.
+ - Elected officials shouldn’t get to choose who gets to choose elected officials.
+ - I had an iPhone and a Droid and both of them were miserable pieces of equipment.
+ - You know. I don’t think I’m gonna be Jewish for very long.
+ - No matter what, your parents are going to worry about you. I had a tour bus, and my mother still thought I was broke. Remember: It’s your life, not theirs. Just because your parents sent you to college doesn’t mean they bought the rest of your life.
+ - There’s a whole group of Christians who believe the individual is more important, but in the end I don’t think that’s what Christ was talking about.
+ - The kids say golf taught them this and that. I get it with the military: A guy joins the military because he needs discipline and has to find himself. But don’t tell me, ‘Golf helps you find yourself.’ I’ve been playing my whole life, and I’m still looking for myself.
+ - If you yell about one woman, you’re not a misogynist. If I yell about Michelle Bachman, that doesn’t make me a misogynist. If I compare all women to Michelle Bachman, then I’m a misogynist.
+ - I get an idea about something. I just start thinking about it, and then I get onstage and I talk about it, and then I think about it some more and talk about it some more, and think about it some more and talk about it some more, until it starts to take a shape.
+ - The Droid I had actually seemed to have free will, which I thought was interesting.
+ - Democrats should be focused on which way we can help the most people in this country, and Republicans should be focused on how to do that in the most fiscally responsible manner possible.
+ - I can pretty much guarantee that if I do a show in a comedy club, there will be someone who will come out of the audience and tell me the worst joke ever. It’s just a guarantee.
+ - Well first of all, I’d just like to say that 2005 was a great year, if you like swimming through crap.
+ - The last person to get across that town in under three hours was yelling “The British are coming! The British are coming!”
+ - I do like Guinness, I have to say, because you feel like you’re eating something.
+ - I think inevitably over the course of my lifetime there’s been an underestimation of the American people, and I believe they are really the ones that give me hope. There’s so much of “they don’t know this, and they don’t know that,” and they’re always denigrating.
+ - I do not make jokes about Sarah Palin simply because I could not live in this world if I believed she was a real person.
+ - I’ve been very lucky. There are guys I know who are really terrific in this business of stand-up who have not gotten the recognition they deserve. And it’s nice, if you’ve put in the time, to achieve that recognition.
+ - In Canada I’m not dealing with people who are bringing in baggage, they just get it. But New Orleans will be a bit different. If there’s a group of people who have a right to be bitter, it’s the people of New Orleans.
+ - In four days, I experienced five seasons. It was thirty, it was sixty, it was ninety, then it was twelve! And on the last day, there was thunder, lightning, and snow – together! And I hadn’t done drugs.
+ - If you’re going to vote for somebody because you think they have a great faith in God, you’d better be sure that God has faith in them.
+ - I started playing golf when I was a kid, because across the street from where we lived there was a little nine-hole golf course where my father worked.
+ - I’ve always really liked theater. It fascinated me. You can create a reality and get people involved in that reality. It takes place in real time.
+ - Should I eat this or should I eat this? Well, I’ll have to eat both!
+ - Everybody’s family has different values.
+ - Republicans and Democrats can barely do what they’re supposed to do, and they sure can’t do math!
+ - If I get a week off, I’ll go to a hotel that has a golf course. I like to come downstairs and go right onto the course. I’ll do that five days in a row.
+ - One of the interesting things about comedy is it’s tension release, and nothing creates tension faster than anger.
+ - I hammer on a theme until I’m tired of it and the audience is tired of it.
+ - Stupid presidents, smart presidents, white presidents, black presidents – doesn’t work! What this country needs is a crazy Third World dictator. And Donald Trump has what it takes to be that. He’s already got a plane with his name on it, solid gold buildings, a harem...
+ - Going up to Canada is great because I’m not dealing with people carrying their agendas into the room. I’m lucky because 97% of the people who come to the show know who they are dealing with, whether they are on the left or the right, we’re sharing the same frustration.
+ - You know what would help the instruction form? Verbs! Verbs would be nice! Because they help you get to the end of a thought!
+ - These ballot initiatives remind us that America is the land where people are free to dream whatever they want, so long as that dream doesn’t make Midwesterners feel icky!
+ - I like my friends because they make me feel normal, even though I’m not.
+ - There should be a law that you can’t shut down the government – that you don’t have that power.
+ - In a series of wonderful essays, Evan Handler gives himself up to us – warts and all. To our amusement and bemusement we share in his emotional growth as he struggles to mature. I not only laughed along with him but felt that I too had grown a little along the way. Who could ask for more?
+ - My hate of Apple has moved into a hate of Facebook.
+
+123 quotes

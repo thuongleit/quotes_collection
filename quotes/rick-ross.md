@@ -1,0 +1,42 @@
+ - Forget yesterday, live for today. Tomorrow will take care of itself.
+ - Everyday I’m Hustlin’.
+ - I’m from where your hustle determines your salary.
+ - Every boss started as a worker.
+ - Every day is a new opportunity to reach that goal.
+ - Regardless of how it goes down, life goes on.
+ - I’m very versatile and there’s nothing I really regret in my life. I’m excited with who I am and I’m just going to keep riding the wave.
+ - How many people you bless is how you measure success
+ - I just take everything one at a time and make sure everything I do is the best.
+ - I’m building a dream with elevators in it.
+ - These haters can’t hold me back.
+ - Love is for free, just expensive to shop.
+ - Nah, that’s not true.
+ - Being dead broke is the Root of all Evil...
+ - If you’re a hater we make you scared to show your face. It’s called success.
+ - I’m single, I’m enjoying life. Being a boss. Like all true bosses, one day you gotta give it up.
+ - It’s a new year, new year, new money, money!
+ - You gotta judge a man by his principles.
+ - I may not be a role model, but I most definitely could be motivation for a lot of people in the hoods.
+ - My Chevrolet shines like a marble floor. Baby keep it raw, have you modeled before?
+ - Two, let’s all stop smoking blunts; let’s smoke out of papers. Ladies, you all should just love me. Let’s all have a beautiful year, let’s get this money.
+ - I won’t sing to you like Chris and Ne-Yo, but I’m fresher than a stick of deo.
+ - Got a budget for the lawyer though.
+ - Most often the earlier a cult member is approached through an intervention the more likely they are to be responsive.
+ - Living fast where it’s all about the money bags? Never front.
+ - I usually have an idea that I want to build on and let the music take me where I wanna go.
+ - There may be some difficulties during a period of adjustment. Specifically, picking up their life again and making their own truly independent decisions.
+ - When families observe a later, deeper stage of cult involvement they may find it necessary to consider the involvement of a professional such as myself in an intervention effort.
+ - I mean, I’m a fan of Eminem. I’m a fan first and foremost. Maybe before I wouldn’t have challenged him, but I’m contemplating it now.
+ - I’d never trade my old girl for all the money in the world. I’d never trade my daughter Toya for all the money in the world. I’d never trade my only boy for all the money in the world. I put my last name first!
+ - I didn’t understand that you could go to jail for the rest of your life for selling cocaine. I thought life sentences were for murderers. I didn’t know that you could get it for supplying something to someone that they asked you for.
+ - The best method for preventing destructive cult involvement is preventative education. If students and the public at large are more aware of destructive groups beforehand they may better understand and resist their recruitment efforts.
+ - I scoop Emmy winners like kitty litter.
+ - In a cult intervention information is presented about the group that the member is most often not aware of.
+ - Through “deprogramming” or cult intervention the only issues that are addressed focus upon the specific group and group involvement. The subject of such an intervention subsequently may leave the group and go on with their life reassuming their own basic individual values and beliefs.
+ - Typically cult groups target universities and colleges. Most likely those schools that maintain campus housing.
+ - Even before making music I was always someone that you had to get to know, at school or elementary. I walked the hallways. I would take your pizza.
+ - You know how in football, guys throw defenses, and the defense throws you a look, but the look is not really what it is – it’s only made to fool you. It’s the same thing with drugs. The drug is only an illusion to draw you in.
+ - However, today due to civil litigation funded by cults this option for families has been eliminated. Instead, the only form of cult intervention now practiced is voluntary-with the exception of minor children under the direct supervision of a custodial parent.
+ - Also, schools share some responsibility and should offer helpful orientations that include general information about such recruitment efforts on their campuses.
+
+40 quotes

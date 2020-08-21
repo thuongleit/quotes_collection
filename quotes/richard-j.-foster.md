@@ -1,0 +1,90 @@
+ - Prayer is – listening for the still small voice of God. Listening with the “ear of our hearts.”
+ - Loneliness is inner emptiness. Solitude is inner fulfillment.
+ - Just as worship begins in holy expectancy, it ends in holy obedience. If worship does not propel us into greater obedience, it has not been worship.
+ - Simplicity is freedom.
+ - In intellectual honesty, we should be willing to study and explore the spiritual life with all the rigor and determination we would give to any field of research.
+ - Our Adversary majors in three things: noise, hurry and crowds. If he can keep us engaged in “muchness” and “manyness,” he will rest satisfied.
+ - Superficiality is the curse of our age. The doctrine of instant satisfaction is a primary spiritual problem.
+ - Worship is our response to the overtures of love from the heart of the Father.
+ - Of all spiritual disciplines prayer is the most central because it ushers us into perpetual communion with the Father.
+ - The desperate need today is not for a greater number of intelligent people, or gifted people, but for deep people.
+ - It is Stoicism that demands a closed universe, not the Bible.
+ - Giving with glad and generous hearts has a way of routing out the tough old miser within us. Even the poor need to know that they can give. Just the very act of letting go of money, or some other treasure, does something within us. It destroys the demon greed.
+ - As worship begins in holy expectancy, it ends in holy obedience. Holy obedience saves worship from becoming an opiate, an escape from the pressing needs of modern life.
+ - Simplicity is the only thing that sufficiently reorients our lives so that possessions can be genuinely enjoyed without destroying us.
+ - The discovery of God lies in the daily and the ordinary, not in the spectacular and the heroic. If we cannot find God in the routines of home and shop, then we will not find Him at all.
+ - Conformity to a sick society is to be sick.
+ - Joy, not grit, is the hallmark of holy obedience. We need to be light-hearted in what we do to avoid taking ourselves too seriously. It is a cheerful revolt against self and pride.
+ - May God give you – and me- the courage, the wisdom, the strength always to hold the kingdom of God as the number one priority of our lives. To do so is to live in simplicity.
+ - Today the heart of God is an open wound of love. He aches over our distance and preoccupation. He mourns that we do not draw near to Him. He grieves that we have forgotten Him. He weeps over our obsession with muchness and manyness. He longs for our presence.
+ - The spiritual discipline of simplicity is not a lost dream, but a recurrent version throughout history. It can be recaptured today. It must be.
+ - Goals are discovered, not made.
+ - If the Lord is to be Lord, worship must have priority in our lives. The divine priority is worship first, service second.
+ - Stop trying to impress people with your clothes and impress them with your life.
+ - And so I urge you: carry on an ongoing conversation with God about the daily stuff of life, a little like Tevye in Fiddler on the Roof. For now, do not worry about “proper” praying, just talk to God.
+ - God has given us the Disciplines of the spiritual life as a means of receiving his grace. The Disciplines allow us to place ourselves before God so that he can transform us.
+ - Worship begins in holy expectancy, it ends in holy obedience.
+ - Grace saves us from life without God-even more it empowers us for life with God.
+ - Inward solitude has outward manifestations. There is the freedom to be alone, not in order to be away from people but in order to hear the divine Whisper better.
+ - Thinking is the hardest work we can do, and among the most important.
+ - When the poor farmer of India is unable to buy a gallon of gasoline to run his simple water pump because the world’s demand has priced him out of the market, who is to blame?
+ - Simplicity, then, is getting in touch with the divine center.
+ - He is inviting you – and me – to come home, to come home to where we belong, to come home to that for which we were created. His arms are stretched out wide to receive us. His heart is enlarged to take us in.
+ - Let’s discipline ourselves so that our words are few and full.
+ - If worship does not change us it has not been worship.
+ - In worship an increased power steals its way into the heart sanctuary, an increased compassion grows in the soul. To worship is to change.
+ - When we determine to dwell on the good and excellent things in life, we will be so full of those things that they will tend to swallow our problems.
+ - Prayer is simply saying “thank you, bless you, praise you.”
+ - If we truly love people, we will desire for them far more than it is within our power to give them, and this leads us to prayer.
+ - Real prayer comes not from gritting our teeth but from falling in love.
+ - Absolute freedom is absolute nonsense! We gain freedom in anything through commitment, discipline, and fixed habit.
+ - Eastern meditation is an attempt to empty the mind; Christian meditation is an attempt to fill the mind. The two ideas are quite different.
+ - Our God is not made of stone. His heart is the most sensitive and tender of all. No act goes unnoticed, no matter how insignificant or small. A cup of cold water is enough to put tears in the eyes of God. God celebrates our feeble expressions of gratitude.
+ - When we genuinely believe that inner transformation is God’s work and not ours, we can put to rest our passion to set others straight.
+ - Countless people pray far more than they know. Often they have such a “stained-glass” image of prayer that they fail to recognize what they are experiencing as prayer and so condemn themselves for not praying.
+ - Love, not anger, brought Jesus to the cross. Golgotha came as a result of God’s great desire to forgive, not his reluctance. Jesus knew that by his vicarious suffering he could actually absorb all the evil of humanity and so heal it, forgive it, redeem it.
+ - To pray is to change. This is a great grace. How good of God to provide a path whereby our lives can be taken over by love and joy and peace and patience and kindness and goodness and faithfulness and gentleness and self-control.
+ - Owning things is an obsession in our culture. If we own it, we feel we can control it; and if we control it, we feel it will give us more pleasure. The idea is an illusion.
+ - Adoration is the spontaneous yearning of the heart to worship, honor, magnify, and bless God. We ask nothing but to cherish him. We seek nothing but his exaltation. We focus on nothing but his goodness.
+ - We must understand the connection between inner solitude and inner silence; they are inseparable. All the masters of the interior life speak of the two in the same breath.
+ - You see, we need instruction on how to possess money without being possessed by money. We need help to learn how to own things without treasuring them. We need the discipline that will allow us to live simply while managing great wealth and power.
+ - Prayer is more than thoughts and feelings expressed in words. It is the opening of mind and heart – our whole being to God our Abba Father. It is Divine Union.
+ - Spiritual direction involves a process through which one person helps another person understand what God is doing and saying.
+ - The inner attitude of the heart is far more crucial than the mechanics for coming into the reality of the spiritual life.
+ - Our problem is that we assume prayer is something to master the way we master algebra or auto mechanics. But when praying, we come “underneath,” where we calmly and deliberately surrender control and become incompetent.
+ - Silence is one of the deepest Disciplines of the Spirit, simply because it puts the stopper on all self-justificat ion.
+ - If we are silent when we should speak, we are not living the Discipline of silence. If we speak when we should be silent, we again miss the mark.
+ - The person who does not seek the kingdom first does not seek it at all, regardless of how worthy the idolatry that he or she has substituted for it.
+ - Prayer is the human response to the perpetual outpouring of love by which God lays siege to every soul.
+ - The needed change within us is God’s work, not ours. The demand is for an inside job, and only God can work from the inside. We cannot attain or earn this righteousness of the kingdom of God: it is a grace that is given.
+ - The message from all quarters is the same: our undisciplined consumption must end. If we continue to gobble up our resources without any regard to stewardship and to spew out our deadly wastes over land, sea, and air, we may well be drawing down the final curtain upon ourselves.
+ - Prayer is – loving conversation with the One who has invited us into His embrace.
+ - In the same way that a small child cannot draw a bad picture so a child of God cannot offer a bad prayer.
+ - In the spiritual life only one thing produces genuine joy and that is obedience.
+ - It is in the everyday and the commonplace that we learn patience, acceptance, and contentment.
+ - The lust for affluence in contemporary society has become psychotic; it has completely lost touch with reality.
+ - Forms and rituals do not produce worship, nor does the disuse of forms and rituals. We can use all the right techniques and methods, we can have the best possible liturgy, but we have not worshiped the Lord until Spirit touches spirit.
+ - Prayer involves transformed passions. In prayer, real prayer, we begin to think God’s thoughts after Him: to desire the things He desires, to love the things He loves, to will the things He wills.
+ - In the context of Quaker worship, it is perfectly appropriate for any person in the congregation to speak a timely word from the Lord.
+ - Over-consumption is a cancer eating away at our spiritual vitals. It distances us from the great masses of broken bleeding humanity. It converts us into materialists. We become less able to ask the moral questions.
+ - Simplicity enables us to live lives of integrity in the face of the terrible realities of our global village.
+ - Pride is one of the socially acceptable sins in some corners of the evangelical culture. Its just straight-out ego gratification – how important I am; whether my name gets on the building or on the TV program or in the magazine article.
+ - Spiritual direction is an interpersonal relationship in which we learn how to grow, live, and love in the spiritual life.
+ - Children do not find it difficult or complicated to talk to their parents, nor do they feel embarrassed to bring the simplest need to their attention. Neither should we hesitate to bring the simplest requests confidently to the Father.
+ - You will never have time for prayer; you must make time.
+ - It is an occupational hazard of devout folk to become stuffy bores. This should not be. Of all people, we should be the most free, alive, interesting.
+ - Prayer is seeing His greatness to the extent we can receive it.
+ - Freedom in the Gospel does not mean license. It means opportunity.
+ - We who have turned our lives over to Christ need to know how very much he longs to eat with us, to commune with us. He desires a perpetual Eucharistic feast in the inner sanctuary of the heart.
+ - We should all without shame enrol in the school of contemplative prayer.
+ - Humility, as we all know, is one of those virtues that is never gained by seeking it. The more we pursue it the more distant it becomes. To think we have it is sure evidence that we don’t.
+ - We over-eat, over-buy, and over-built, spewing out our toxic wastes upon the earth and into the air.
+ - Because we lack a divine Center our need for security has led us into an insane attachment to things.
+ - Conversion does not make us perfect, but it does catapult us into a total experience of discipleship that affects – and infects – every sphere of our living.
+ - To stand before the Holy One of eternity is to change. Resentments cannot be held with the same tenacity when we enter his gracious light.
+ - In spiritual direction there is absolutely no domination or control.
+ - What is urgently needed is a bold new move from a consumer economy to a conserver economy in all of the developed countries, and particularly in the United States.
+ - Prayer is – a means of uniting us unto Himself.
+ - Four times a year withdraw for three to four hours for the purpose of reorienting your life goals.
+
+88 quotes

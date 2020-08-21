@@ -1,0 +1,32 @@
+ - I’m a fighter, not a quitter.
+ - Intensely relaxed about people getting filthy rich.
+ - I have moved on from being a British parliamentarian, I have moved on from being a New Labour politician, I have moved on from being the supporter in the active day-to-day sense of Tony Blair.
+ - The markets don’t like instability and they don’t like uncertainty.
+ - If the constitutional treaty is rejected it will be back to square one, just at a time when we want Europe to be a more effective force for good in the world, when we need to buttress ourselves against the pressures and insecurities of globalization.
+ - Instead of saying that globalization is a fact, that it’s inevitable, we’ve also got to demonstrate that while the growing interdependence of the world economy is indeed a fact, it’s not uncontrollable.
+ - I certainly believe that we gain through open trade and liberalisation.
+ - In the space of a decade, China and India have emerged as dramatic, dynamic competitors.
+ - Few politicians are good at taking the high ground and throwing themselves off it.
+ - I’m optimistic that we are actually seeing the opportunity of a generation being created in this.
+ - We’ve got to demonstrate why European unity and integration, our vast single market, our single currency, equip us with the strength to embrace globalization.
+ - It’s a very good idea that we have a third term Labour government led by Tony Blair for a full term.
+ - I didn’t mislead people. I know I didn’t lie and I have got to establish that.
+ - Having viewed Europe as an extension and projection of itself, France now finds Europe developing a mind and identity of its own which embraces France but is not controlled by France.
+ - Europe has to address people’s needs directly and reflect their priorities, not our own preoccupations.
+ - They want to derail peace because they want to plunge Northern Ireland back into armed conflict.
+ - I think Europe is going in the right direction and we shouldn’t be set back.
+ - What is most important for Europe is economic growth and jobs, security at home and safety in the world.
+ - I do not share the half-in, half-out attitude to the EU of some in Britain. Britain’s place is in Europe.
+ - Essentially we need a new social consensus for economic reform as New Labour has achieved in Britain.
+ - The last thing we need is to turn in on ourselves rather than face us up to what we have to do in the world.
+ - There is no high-carbon future.
+ - I understand why the Tories will be gunning for Alastair Campbell because they fear his campaigning skills.
+ - What we have to do is reinvent the idea of Europe.
+ - Too often we think we can act without explaining and take decisions without justifying them.
+ - Europe lacks leadership and a sense of mission and too many people don’t feel a part of it...
+ - I believe that if you treat China as an enemy, then it is likely to become one.
+ - In my experience of these things, parties which shout about dirty tricks and the like tend to do so because they fear a direct hit in some vulnerable part of their political anatomy.
+ - For too long, decisions have been taken behind closed doors – tablets of stone have simply been past down to people without bothering to involve people, listen to their views or give them information about what we are doing and why.
+ - Of course, the EU is not going to fall apart, but at best it will stagnate for the foreseeable future and we will be dealing with quite a lot of internal chaos.
+
+30 quotes

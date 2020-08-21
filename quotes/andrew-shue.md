@@ -1,0 +1,35 @@
+ - Community service has taught me all kinds of skills and increased my confidence. You go out there and think on your feet, work with others and create something from nothing. That’s what life’s all about.
+ - People who dream of something bigger and better are good role models.
+ - Life is the most exciting opportunity we have.
+ - Teenagers too often have to deal with loss and death. You had to cope with the untimely death of your brother; how can young people deal with such tragedies?
+ - I’m just kind of taking a break now and enjoying the freedom of making my own choices. When you’re on a television show for six years, they run your schedule.
+ - The most important role models should and could be parents and teachers. But that said, once you’re a teenager you’ve probably gotten as much of an example from your parents as you’re going to.
+ - When you start suppressing feelings at an early age, it hurts you down the road. Full expression of anger and pain is very important.
+ - Try to have as diverse group of friends as possible and don’t get into the the clique scenario.
+ - With my new venture, Club Mom, we want to empower moms to feel their value and also build their collective power to make their lives better and easier. We want to bring them together as a community to share experiences and information.
+ - The money was good while it lasted. The best part was clearly that it changed my view of what’s possible, as far as thinking how you can have an impact on a national level.
+ - I’d never been a teacher before, and here I was starting my first day with these eager students. There was a shortage of teachers, and they had been without a math teacher for six months. They were so excited to learn math.
+ - When we’re young we have a very clear vision of how life is supposed to be, and it all seems very neatly packaged.
+ - It’s easy to say young people should believe in themselves, but the number one thing is recognizing that it’s a journey, that you have to build confidence in yourself.
+ - When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.
+ - You start to think bigger when you see how quickly a TV show can catch on in a whole country. That confidence, and thinking big, opened a lot of doors.
+ - I’m a big fan of Bruce Springsteen and Tom Petty, they’re my two favorites.
+ - If you can get a teen leader in each sector of a student population, you can pull people in. Everybody wants to get involved, but most are too afraid. When they see a person they think is cool leading it, they’re first to join.
+ - The biggest lesson from Africa was that life’s joys come mostly from relationships and friendships, not from material things. I saw time and again how much fun Africans had with their families and friends and on the sports fields. they laughed all the time.
+ - After a devastating loss, your whole perspective shifts, and you’re kind of in a blank space. You feel like on one side nothing matters, and on the other side a freedom because nothing matters.
+ - Life is the most exciting opportunity we have. But we have one shot. You graduate from college once, and that’s it. You’re going out of that nest. And you have to find that courage that’s deep, deep, deep in there. Every step of the way.
+ - Young people can be the catalyst for starting the effort to redefine what’s important in America.
+ - Michael Sanchez and I grew up in New Jersey, not far from here, playing soccer together. When I was in high school, I worked to start an organization to help senior citizens, which I learned a great deal from.
+ - Unfortunately, there are so many people who live their whole life in a place that is safe and protected and simple and they don’t really have that strength inside to fly.
+ - If I want to continue to build the kind of effort we have with Do Something, being in a public office would help. I wouldn’t rule it out, but it’s not something I feel determined to do.
+ - You need to make relationships to help you.
+ - I have amazing friends who have led inspirational lives.
+ - I can pretty much call anyone, whether at the White House, in a company or in the media. I have access, because of the silliness of the entertainment world and how people react to it. It gave me an enormous opportunity to do anything I really want to.
+ - I found at an early age the times when I learned the most about myself was when I got thrown out there on a stage in front of a microphone when you didn’t really want to be out there, where you’re kind of afraid.
+ - I was on Oprah’s show recently talking about the people who impacted me the most. One was a teacher and one was my soccer coach. I didn’t even go into my family, who had the most influence.
+ - There are 80 million moms in the United States. Forty million stay at home with their children.
+ - Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.
+ - Winning isn’t everything, but playing and competing and striving and going through things can be a lot of fun and really important. As long as you’re doing it in a way that’s healthy, sports can be an incredible opportunity.
+ - A good balance of winning and losing is important. If you just win all the time, you won’t get anything out of it; having some tough losses can be really important.
+
+33 quotes

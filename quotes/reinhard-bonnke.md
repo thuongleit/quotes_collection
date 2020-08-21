@@ -1,0 +1,40 @@
+ - God always works with workers and moves with movers, but He does not sit with sitters.
+ - The Holy Spirit is a healing spirit. When the Holy Spirit is present, anything is possible.
+ - I don’t want to play with marbles, when God told me to move mountains!
+ - The Gospel is not an alternative, it’s an ultimatum.
+ - The Holy Spirit’s motivation is always the same thing -to charge the word with heaven’s own electric power.
+ - We are to Plunder Hell to Populate Heaven for Calvary’s sake.
+ - Go for the purposes of God, and the means to fulfill them will follow.
+ - God has a thousand-year calendar with only one day marked on it. It is marked “TODAY”.
+ - The less Holy Spirit we have, the more cake and coffee we need to keep the church going.
+ - It is worth it to serve the Lord, young people. It is worth it, it is worth it, it is worth it a million times.
+ - Don’t plan with what is in your pocket; plan with what is in God’s pocket.
+ - The Gospel is a gospel of power or it is nothing at all.
+ - When you do business with people you need money. When you do business with God you need faith. Faith is the currency of the Kingdom of God.
+ - Those who forever seek the will of God are overrun by those who do it.
+ - Evangelism and the local church are inseparable. It’s like the Good Samaritan seeking an inn for the one he rescued.
+ - If you want to catch fish, don’t throw your net into the bathtub.
+ - Don’t accept the applause of men, and you won’t be destroyed by their criticism.
+ - Christ did not die to give people a career but to save the lost.
+ - Creation cost Him nothing; salvation cost Him everything.
+ - It is a tragedy when the church saves money instead of saving souls. We MUST spend to save.
+ - If you are doing nothing, God doesn’t need to give you any help in doing nothing. Go out and do something impossible for Jesus, and then God will help you.
+ - Jesus did not die for pastors to have a well paid job. Neither was He raised on the cross just to raise our standard of living. He died to seek and to save those who are lost.
+ - Anyone can believe when God is already moving. But real faith is when you step out when it seems that God is not moving.
+ - When Jesus sees a heart that can’t wait, He cant wait either. At the wedding at Cana, Jesus may have done nothing if it wasn’t for Mary’s faith. How many situations are we in now that God won’t act without our faith?
+ - The Bible is our fire-guard. Some read God’s Word critically but the Word is their critic and by their own attitude towards the Word they condemn themselves.
+ - Faith is a leap into the light, not a step into the darkness.
+ - If the disciples needed to be so endued and to preach the gospel with the Holy Spirit and with the manifestation of the Almighty, are we better than them able to carry on God’s work without the empowerment they had?
+ - The Gospel is like water; no man invented it, yet no man can live without it.
+ - The Gospel is not reformation, decoration or renovation. It is liberation.
+ - We never do great things without trying.
+ - Nigeria has its problems, nobody denies that, but there is a surge of spiritual, I would say, Christian dynamics that are awesome.
+ - You must desire the fire, and claim your flame!
+ - The vision of a blood-washed Africa propelled me to go from Cape Town to Cairo and start Christ for all Nations.
+ - God is not a duplicator, He is a Creator. You are an original!
+ - We can make an impression on this world if the world doesn’t make too much impression on us.
+ - Faith is a kind of immune system filtering out fears that otherwise would paralyze all activity.
+ - People in obedience to the Lord do not worry, do not fret, do not need to know all of the outcomes before they are willing to commit themselves.
+ - Miracles begin within us and then affect our surroundings.
+
+38 quotes

@@ -1,0 +1,23 @@
+ - I’m not afraid of aging.
+ - Take events in your life seriously, take work seriously, but don’t take yourself seriously, or you’ll become affected, pompous and boring.
+ - Pigs are not that dirty. And they’re smart, strange little creatures. They just need love.
+ - I don’t know if I was a desirable person, not just physically but emotionally and mentally and intellectually. I still have a long way go and a lot to learn, but I’m on my way, I don’t think I’m terribly attractive, but I’m comfortable with my looks.
+ - Anyway, I went out and bought thousands of dollars worth of mature clothes so I’d look like a person to be taken seriously, instead of a pretty little twit.
+ - Making it big in this world is such a rip-off, you gotta keep your head together or it can be totally without meaning.
+ - But most of what I’ve learned about acting – and a lot of what I’ve learned about life in the past seven years – was taught to me by Robert Altman.
+ - I’m one of those people who thinks you can have a happy life and still be an artist.
+ - The world doesn’t end just because one thing goes wrong.
+ - I felt little awkward about taking one boyfriend to see a film starring another boyfriend.
+ - Acting in films hasn’t changed me. I feel exactly the same.
+ - I like to pick my own vegetables.
+ - No matter what it is, pick yourself up and go on to the next project.
+ - In school the kids thought I was freaky because I made straight A’s and daydreamed a lot.
+ - Theres nothing that can beat the feeling of doing a movie or a TV show that makes everyone feel good.
+ - We live from day to day and get as much joy out of experiencing as we can.
+ - Having been an actress before becoming a producer has helped, because I realize the needs.
+ - I suppose I learned organization from Altman.
+ - In Houston everyone owns guns and uses ’em – sometimes just for the hell of it.
+ - But I never let a fantasy get away, because I always stop to analyze it.
+ - Two months later at a party, Bernard pulled me into a closet and proposed. I said yes.
+
+21 quotes

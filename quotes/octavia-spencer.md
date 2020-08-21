@@ -1,0 +1,38 @@
+ - The way to bring about change is to be proactive and active.
+ - You have to create your own path and I’m up to the challenge.
+ - I’m not an optimist. I’m a realist. And my reality is that we live in a multifaceted, multicultural world. And maybe once we stop labeling ourselves, then maybe everyone else will.
+ - Civil rights happened because youth got involved. The youth stood up and helped to break the pattern that their parents had got accustomed to living. The next generation has to take that stand for whatever it is, socially, that they are involved in.
+ - I’m not a fan of ‘Gone With the Wind.’ I didn’t like the movie. I didn’t like the book.
+ - I think that young women and little girls need to see that they don’t have to be the damsel in distress. They don’t have to not show their strength. They don’t have to be whatever the stereotype is or the tropes that we go to in our minds.
+ - One thing I’ve learned is be comfortable in your skin, and more importantly, be comfortable in your shoes.
+ - I’m starstruck everyday. The day I’m not starstruck, I’ll have to retire.
+ - I gotta go home and feed my eels. They’re not electric, but I have a plan.
+ - I’m an Oscar nominee. I love saying that. Whatever happens, I’m going to sing that ‘I’m an Oscar nominee’ part.
+ - Weight issues, race issues will always be there and if you allow them to get to you and you allow them to affect you then yes they affect you. But my thing is I have so many other things to worry about I can’t worry about other people’s perception of me.
+ - You cannot live to please everyone else. You have to edify, educate and fulfill your own dreams and destiny, and hope that whatever your art is that you’re putting out there, if it’s received, great, I respect you for receiving it. If it’s not received, great, I respect you for not.
+ - Christian Louboutin, I love you, but honey, please! But when you have this much weight, you’ve got to give us a little platform. Sorry! The shoes are stunning though. An ounce of pain, it’s worth it.
+ - You know, bigotry isn’t relevant to just the South. It never was. But I’m very grateful that I don’t know what it’s like from experience.
+ - The one thing that I realize – well, not the one thing, but it was a big thing – having in my head that I need to get healthier. It’s been a very gradual process for me.
+ - You never write a speech in advance because if you don’t get to use it, you’ll be heartbroken.
+ - I’m not trying to be a different weight. I want to be a different body type so that I’m not an apple. I just want to be a pear!
+ - I have an affinity for the law. I like looking at the small type on contracts, and if I could have afforded law school, I probably would have gone.
+ - I’m probably the most militant person you’ll ever meet and I speak my mind without provocation sometimes.
+ - I was always a closet lover of acting. My mom was very practical. She never, ever restricted our dreams, always told us we could do or be anything. Then I said, Maybe I want to be an actor. And she said, Maybe not that.
+ - If you go through life and you don’t find the beauty in an unexpected place, then you really have a sad existence.
+ - Let’s just say that I have a tendency if I am uncomfortable in a situation to speak my mind.
+ - I was not a Girl Scout, but I try to be very prepared. I triple-Spanx!
+ - I like a person who knows how to say something dark at a very dark moment. The darker the moment and the darker the comic, the better. Something that is so wrong on all levels.
+ - I prefer doing interviews where people don’t have to interpret what you say. I’m going to be real honest.
+ - I didn’t realize that diets don’t work, and I did not want to diet. I didn’t want to do anything that required dieting.
+ - I think if I weren’t so squeamish, I would have been some sort of forensic analyst. And I can’t do anything with a microscope, because then I start thinking about the world of germs around us.
+ - I’ll say that I don’t think you can throw a stone and not come in contact with someone who knows someone or has problems with substance abuse.
+ - I hope that in some way that I can be some sort of beacon of hope, especially because I am not the typical Hollywood beauty.
+ - I think it’s actually a misperception that I am a comedic actress. I do more drama than comedy but very little of it has been seen. When you are in big funny movies and they do well and your little part in it kind of explodes people perceive you as a comedian.
+ - There are moments where you stop living, if you stop changing, and if you stop seeking growth of some sort.
+ - To be silent is to be passive.
+ - I was starstruck and sweat a lot when I met Oprah Winfrey and tried to hug her. Because when you think you know people when you see them from your couch.
+ - I’m an actor and I am looking for roles where I can continue to evolve, and things that are challenging. I gravitate to the roles, not necessarily television or film. It’s just the fact that, for me, the most interesting roles have been in television.
+ - As you make your way along life’s tumultuous highways, it’s important to note that you should always carry a map, have plenty of fuel in the tank, and take frequent rest stops.
+ - Every character I get to play has some element of who I am, but there’s no fun in playing yourself. At least, for me, there isn’t.
+
+36 quotes

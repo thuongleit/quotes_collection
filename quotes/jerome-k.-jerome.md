@@ -1,0 +1,102 @@
+ - I like work. It fascinates me. I can sit and look at it for hours.
+ - A new life begins for us with every second. Let us go forward joyously to meet it. We must press on, whether we will or not, and we shall walk better with our eyes before us than with them ever cast behind.
+ - It is always the best policy to speak the truth, unless, of course, you are an exceptionally good liar.
+ - Time is but the shadow of the world upon the background of Eternity.
+ - I love the chill October days, when the brown leaves lie thick and sodden underneath your feet.
+ - A boy’s muscles move quicker than his thoughts.
+ - Love is like the measles; we all have to go through it.
+ - The facts of life are the impossibilities of fiction.
+ - It is no more effort for a man to be a saint than to be a sinner; it becomes a mere matter of habit.
+ - Being poor is a mere trifle. It is being known to be poor that is the sting.
+ - Life will always remain a gamble, with prizes sometimes for the imprudent, and blanks so often to the wise.
+ - It is so pleasant to come across people more stupid than ourselves. We love them at once for being so.
+ - I had walked into that reading-room a happy, healthy man. I crawled out a decrepit wreck.
+ - Nothing is more beautiful than the love that has weathered the storms of life. The love of the young for the young, that is the beginning of life. But the love of the old for the old, that is the beginning of things longer.
+ - I can’t sit still and see another man slaving and working. I want to get up and superintend, and walk round with my hands in my pockets, and tell him what to do. It is my energetic nature. I can’t help it.
+ - Life works upon a compensating balance, and the happiness we gain in one direction we lose in another.
+ - I want a house that has got over all its troubles; I don’t want to spend the rest of my life bringing up a young and inexperienced house.
+ - Cheese, like oil, makes too much of itself.
+ - Nature, always inartistic, takes pleasure in creating the impossible.
+ - There may be a better land where bicycle saddles are made of rainbow, stuffed with cloud; in this world the simplest thing is to get used to something hard.
+ - If you are foolish enough to be contented, don’t show it, but grumble with the rest; and if you can do with a little, ask for a great deal. Because if you don’t you won’t get any.
+ - It seems to me so shocking to see the precious hours of a man’s life – the priceless moments that will never come back to him again – being wasted in a mere brutish sleep.
+ - It is very strange, this domination of our intellect by our digestive organs. We cannot work, we cannot think, unless our stomach wills so. It dictates to us our emotions, our passions.
+ - I plodded conscientiously through the twenty-six letters, and the only malady I could conclude I had not got was housemaid’s knee.
+ - Splendid cheeses they were, ripe and mellow, and with a two hundred horse-power scent about them that might have been warranted to carry three miles, and knock a man over at two hundred yards.
+ - Eat good dinners and drink good wine; read good novels if you have the leisure and see good plays; fall in love, if there is no reason why you should not fall in love; but do not pore over influenza statistics.
+ - Some people are under the impression that all that is required to make a good fisherman is the ability to tell lies easily and without blushing; but this is a mistake.
+ - Better to work and fail than to sleep one’s life away.
+ - We are so bound together that no man can labor for himself alone. Each blow he strikes in his own behalf helps to mold the universe.
+ - 1lb beefstak, with 1pt bitter beer every 6 hours. 1 ten-mile walk every morning. 1 bed at 11 sharp every night. And don’t stuff your head with things you don’t understand.
+ - When you forget to take the sail at all, then the wind is constantly in your favour both ways. But there! this world is only a probation, and man was born to trouble as the sparks fly upward.
+ - I did not intend to write a funny book, at first. I did not know I was a humorist. I have never been sure about it. In the middle ages, I should probably have gone about preaching and got myself burnt or hanged.
+ - All is vanity and everybody’s vain. Women are terribly vain. So are men – more so, if possible.
+ - Among all nations there should be vast temples raised where people might worship in silence and listen to it, for it is the voice of God.
+ - The advantage of literature over life is that its characters are clearly defined, and act consistently.
+ - It is impossible to enjoy idling thoroughly unless one has plenty of work to do.
+ - It is easy enough to say that poverty is no crime. No; if it were men wouldn’t be ashamed of it. It is a blunder, though, and is punished as such. A poor man is despised the whole world over.
+ - You can always tell the old river hand by the way in which he stretches himself out upon the cushions at the bottom of the boat, and encourages the rowers by telling them anecdotes about the marvellous feats he performed last season...
+ - If there is one person I do despise more than another, it is the man who does not think exactly the same on all topics as I do...
+ - A good woman’s arms round a man’s neck is a lifebelt thrown out to him from heaven.
+ - When a man or woman loves to brood over a sorrow and takes care to keep it green in their memory, you may be sure it is no longer a pain to them.
+ - Life is a thing to be lived, not spent; to be faced, not ordered. Life is not a game of chess, the victory to the most knowing; it is a game of cards, one’s hand by skill to be made the best of.
+ - The world must be rather a rough place for clever people. Ordinary folk dislike them, and as for themselves, they hate each other most cordially.
+ - We shall never be content until each man makes his own weather and keeps it to himself.
+ - What readers ask nowadays in a book is that it should improve, instruct, and elevate. This book wouldn’t elevate a cow.
+ - Love is too pure a light to burn long among the noisome gases that we breathe, but before it is choked out we may use it as a torch to ignite the cozy fire of affection.
+ - Everything has its drawbacks, as the man said when his mother-in-law died, and they came down upon him for the funeral expenses.
+ - We are but the veriest, sorriest slaves of our stomach. Reach not after morality and righteousness, my friends; watch vigilantly your stomach, and diet it with care and judgment.
+ - I don’t understand German myself. I learned it at school, but forgot every word of it two years after I had left, and have felt much better ever since.
+ - The proverbial Englishman, we know from old chronicler Froissart, takes his pleasures sadly, and the Englishwoman goes a step further and takes her pleasures in sadness itself.
+ - We must not think of the things we could do with, but only of the things that we can’t do without.
+ - Swearing relieves the feelings – that is what swearing does. I explained this to my aunt on one occasion, but it didn’t answer with her. She said I had no business to have such feelings.
+ - It always does seem to me that I am doing more work than I should do. It is not that I object to the work, mind you; I like work: it fascinates me. I can sit and look at it for hours.
+ - Evil thought is a dangerous pet. It is safer to play with it from behind the iron bars of circumstance.
+ - It is well we cannot see into the future. There are few boys of fourteen who would not feel ashamed of themselves at forty.
+ - I don’t know why it should be, I am sure; but the sight of another man asleep in bed when I am up, maddens me.
+ - A glass of wine often makes me a better man than hearing a sermon.
+ - Five thousand people in one society might do something, but five thousand societies of one member each would be a holy trouble.
+ - Man, if he would live, must worship. He looks around, and what to him, within the vision of his life, is the greatest and the best, that he falls down and does reverence to.
+ - I can see the humorous side of things and enjoy the fun when it comes; but look where I will, there seems to me always more sadness than joy in life.
+ - A Spaniard will seek to persuade you that the bull-ring is an institution got up chiefly for the benefit of the bull.
+ - I often arrive at quite sensible ideas and judgements, on the spur of the moment. It is when I stop to think that I become foolish.
+ - Idleness, like kisses, to be sweet must be stolen.
+ - What I am looking for is a blessing not in disguise.
+ - There is no more thrilling sensation I know of than sailing. It comes as near to flying as man has got to yet – except in dreams.
+ - It takes 3 girls to tow always; two to hold the rope, and the other one runs round and round, and giggles.
+ - One we discover how to appreciate the timeless values in our daily experiences, we can enjoy the best things in life.
+ - Fox-terriers are born with about four times as much original sin in them as other dogs.
+ - Conceit is the finest armour a man can wear.
+ - People who have tried it, tell me that a clear conscience makes you very happy and contented; but a full stomach does the business quite as well, and is cheaper, and more easily obtained.
+ - We like, we cherish, we are very, very fond of – but we never love again.
+ - I saw a great Newfoundland dog the other day sitting in front of a mirror at the entrance to a shop in Regent’s Circus, and examining himself with an amount of smug satisfaction that I have never seen equaled elsewhere outside a vestry meeting.
+ - The less taste a person has in dress, the more obstinate he always seems to be.
+ - It is in our faults and failings, not in our virtues, that we touch one another and find sympathy. We differ widely enough in our nobler qualities. It is in our follies that we are at one.
+ - Let us play the game of life as sportsmen, pocketing our winnings with a smile, leaving our losings with a shrug.
+ - It is a most extraordinary thing, but I never read a patent medicine advertisement without being impelled to the conclusion that I am suffering from the particular disease therein dealt with in its most virulent form.
+ - He is very imprudent, a dog; he never makes it his business to inquire whether you are in the right or the wrong, never asks whether you are rich or poor, silly or wise, sinner or saint. You are his pal. That is enough for him.
+ - The shy man does have some slight revenge upon society for the torture it inflicts upon him.
+ - The odour of Burgundy, and the smell of French sauces, and the sight of clean napkins and long loaves, knocked as a very welcome visitor at the door of our inner man.
+ - But who wants to be foretold the weather? It is bad enough when it comes, without our having the misery of knowing about it beforehand.
+ - There is no fun in doing nothing when you have nothing to do. Wasting time is merely an occupation then, and a most exhausting one.
+ - I could not conjure up one melancholy fancy upon a mutton chop and a glass of champagne.
+ - A cat’s got her own opinion of human beings. She don’t say much, but you can tell enough to make you anxious not to hear the whole of it.
+ - The weather is like the government, always in the wrong.
+ - Too much of anything is a mistake, as the man said when his wife presented him with four new healthy children in one day. We should practice moderation in all matters.
+ - Weather in towns is like a skylark in a counting-house-out of place and in the way.
+ - I attribute the quarrelsome nature of the Middle Ages young men entirely to the want of the soothing weed.
+ - Think of the man who first tried German sausage.
+ - Give an average baby a fair chance, and if it doesn’t do something it oughtn’t to a doctor should be called in at once.
+ - There are many families where the whole interest of life is centered upon the dog.
+ - What the eye does not see, the stomach does not get upset over.
+ - Ambition is only vanity ennobled.
+ - If he were a man of strong mind, it only gave him fits; but a person of mere average intellect it usually sent mad.
+ - It’s really extraordinary what a variety of ways of loving there must be. We all do it as it was never done before.
+ - I should never make anything of a fisherman. I had not got sufficient imagination.
+ - Angels may be very excellent sort of folk in their own way, but we, poor mortals in our present state, would probably find them precious slow company.
+ - Idling has always been my strong point.
+ - I respect the truth too much to drag it out on every occasion.
+ - Opportunities flit by while we sit regretting the chances we have lost, and the happiness that comes to us we heed not, because of the happiness that is gone.
+ - There are the goods; if you want them, you can have them. If you do not want them, they would almost rather that you did not come and talk about them.
+
+100 quotes

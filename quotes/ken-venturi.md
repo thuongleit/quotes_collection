@@ -1,0 +1,22 @@
+ - I don’t believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.
+ - The greatest gift in life is to be remembered.
+ - After you have the basics down it’s all mental.
+ - There are two great rules of life: never tell everything at once.
+ - My father always said excuses are the crutches for the untalented.
+ - My father taught me that the easiest thing to do was to quit. He’d say, ‘It doesn’t take any talent to do that.’
+ - My father was a man of few words.
+ - I began seeing my wife, Kathleen, while I was undergoing treatment for prostate cancer.
+ - I had a terrible stammering problem when I was young, and as a result I spent a lot of time alone.
+ - When my father spoke, it was to say something meaningful.
+ - People thought I was cocky because I didn’t talk much. When I first turned pro, reporters asked me who was going to win. I’d say, ‘I am’ because it was the easier than giving some long, drawn-out answer.
+ - All of my decisions I made when I was a kid were decisions, would my mother and father be proud of.
+ - Retirement isn’t so bad. Give me a tall drink, a plush sofa and a rerun of ‘Matlock,’ and you can have the rest. Matlock is my hero. He never loses.
+ - Victory is everything. You can spend the money but you can never spend the memories.
+ - The hardest thing in golf is trying to two-putt when you have to, because your brain isn’t wired that way. You’re accustomed to trying to make putts, and when you change that mind-set, your brain short-circuits, especially under pressure.
+ - You can’t make good scores happen. You’ve got to let it happen.
+ - All of us have an ‘inner clock,’ a certain pace at which we function most comfortably and effectively.
+ - I couldn’t say my own name when I was 12.
+ - Art said he wanted to get more distance. I told him to hit it and run backward.
+ - Sometimes you try to make it happen instead of just letting it happen.
+
+20 quotes

@@ -1,0 +1,155 @@
+ - We must eat to live, and not live to eat.
+ - Where the law ends tyranny begins.
+ - I am content; that is a blessing greater than riches; and he to whom that is given need ask no more.
+ - Handsome is that handsome does.
+ - Success is a fruit of slow growth.
+ - Great joy, especially after a sudden change of circumstances, is apt to be silent, and dwells rather in the heart than on the tongue.
+ - No one hath seen beauty in its highest lustre who hath never seen it in distress.
+ - It is a trite but true Observation, that Examples work more forcibly on the Mind than Precepts: and if this be just in what is odious and blameable, it is more strongly so in what is amiable and praiseworthy.
+ - What’s vice today may be virtue, tomorrow.
+ - It is a trite but true definition that examples work more forcibly on the mind than precepts.
+ - Thy modesty ’s a candle to thy merit.
+ - No acquisitions of guilt can compensate the loss of that solid inward comfort of mind, which is the sure companion of innocence and virtue; nor can in the least balance the evil of that horror and anxiety which, in their room, guilt introduces into our bosoms.
+ - Make money your god, and it will plague you like the devil.
+ - The devil take me, if I think anything but love to be the object of love.
+ - Good-breeding is not confined to externals, much less to any particular dress or attitude of the body; it is the art of pleasing, or contributing as much as possible to the ease and happiness of those with whom you converse.
+ - It is with jealousy as with the gout. When such distempers are in the blood, there is never any security against their breaking out, and that often on the slightest occasions, and when least suspected.
+ - A wonder lasts but nine days, and then the puppy’s eyes are open.
+ - Guilt has very quick ears to an accusation.
+ - Wicked companions invite us to hell.
+ - Neither great poverty nor great riches will hear reason.
+ - A good countenance is a letter of recommendation.
+ - The slander of some people is as great a recommendation as the praise of others.
+ - It is not enough that your designs, nay that your actions, are intrinsically good, you must take care they shall appear so.
+ - The prudence of the best heads is often defeated by tenderness of the best hearts.
+ - Public schools are the nurseries of all vice and immorality.
+ - Let no man be sorry he has done good, because others concerned with him have done evil! If a man has acted right, he has done well, though along; if wrong, the sanction of all mankind will not justify him.
+ - I describe not men, but manners; not an individual, but a species.
+ - What a silly fellow must he be who would do the devil’s work for free.
+ - A truly elegant taste is generally accompanied with excellency of heart.
+ - For I hope my Friends will pardon me, when I declare, I know none of them without a Fault; and I should be sorry if I could imagine, I had any Friend who could not see mine. Forgiveness, of this Kind, we give and demand in Turn.
+ - Enough is equal to a feast.
+ - Love and scandal are the best sweeteners of tea.
+ - A lottery is a taxation on all of the fools in creation.
+ - Nothing can be so quick and sudden as the operations of the mind, especially when hope, or fear, or jealousy, to which the other two are but journeymen, set it to work.
+ - Wine and youth are fire upon fire.
+ - When children are doing nothing, they are doing mischief.
+ - In the forming of female friendships beauty seldom recommends one woman to another.
+ - Every physician almost hath his favourite disease.
+ - It is much easier to make good men wise, than to make bad men good.
+ - Adversity is the trial of principle. Without it, a man hardly knows whether he is honest or not.
+ - We are as liable to be corrupted by books, as by companions.
+ - Fashion is the science of appearance, and it inspires one with the desire to seem rather than to be.
+ - The blackest ink of fate are sure my lot, And when fate writ my name it made a blot.
+ - Thwackum was for doing justice, and leaving mercy to heaven.
+ - Affectation proceeds from one of these two causes, – vanity or hypocrisy; for as vanity puts us on affecting false characters, in order to purchase applause; so hypocrisy sets us on an endeavor to avoid censure, by concealing our vices under an appearance of their opposite virtues.
+ - Riches without charity are nothing worth. They are a blessing only to him who makes them a blessing to others.
+ - Money is the fruit of evil, as often as the root of it.
+ - The greatest part of mankind labor under one delirium or another; and Don Quixote differed from the rest, not in madness, but the species of it. The covetous, the prodigal, the superstitious, the libertine, and the coffee-house politician, are all Quixotes in their several ways.
+ - Lo, when two dogs are fighting in the streets, With a third dog one of the two dogs meets; With angry teeth he bites him to the bone, And this dog smarts for what that dog has done.
+ - When widows exclaim loudly against second marriages, I would always lay a wager than the man, If not the wedding day, is absolutely fixed on.
+ - Sensuality not only debases both body and mind, but dulls the keen edge of pleasure.
+ - A rich man without charity is a rogue; and perhaps it would be no difficult matter to prove that he is also a fool.
+ - To the generality of men you cannot give a stronger hint for them to impose upon you than by imposing upon yourself.
+ - Human life very much resembles a game of chess: for, as in the latter, while a gamester is too attentive to secure himself very strongly on one side of the board, he is apt to leave an unguarded opening on the other, so doth it often happen in life.
+ - Commend a fool for his wit, or a rogue for his honesty and he will receive you into his favour.
+ - A comic writer should of all others be the least excused for deviating from nature, since it may not be always so easy for a serious poet to meet with the great and the admirable; but life every where furnishes an accurate observer with the ridiculous.
+ - Never trust the man who has reason to suspect that you know he has injured you.
+ - LOVE: A word properly applied to our delight in particular kinds of food; sometimes metaphorically spoken of the favorite objects of all our appetites.
+ - Distance of time and place generally cure what they seem to aggravate; and taking leave of our friends resembles taking leave of the world, of which it has been said, that it is not death, but dying, which is terrible.
+ - It hath been often said, that it is not death, but dying, which is terrible.
+ - Gravity is the best cloak for sin in all countries.
+ - An author ought to consider himself, not as a gentleman who gives a private or eleemosynary treat, but rather as one who keeps a public ordinary, at which all persons are welcome for their money.
+ - Petition me no petitions, sir, to-day; Let other hours be set apart for business. To-day it is our pleasure to be drunk; And this our queen shall be as drunk as we.
+ - A broken heart is a distemper which kills many more than is generally imagined, and would have a fair title to a place in the bills of mortality, did it not differ in one instance from all other diseases, namely, that no physicians can cure it.
+ - Tea! The panacea for everything from weariness to a cold to a murder Love and scandal are the best sweeteners of tea.
+ - Thirst teaches all animals to drink, but drunkenness belongs only to man.
+ - When mighty roast beef was the Englishman’s food It ennobled our hearts and enriched our blood – Our soldiers were brave and our courtiers were good. Oh! the roast beef of England. And Old England’s roast beef.
+ - Though we may sometimes unintentionally bestow our beneficence on the unworthy, it does not take from the merit of the act. For charity doth not adopt the vices of its objects.
+ - We endeavor to conceal our vices under the disguise of the opposite virtues.
+ - Wit, like hunger, will be with great difficulty restrained from falling on vice and ignorance, where there is great plenty and variety of food.
+ - Hairbreadth missings of happiness look like the insults of Fortune.
+ - Yes, I had two strings to my bow; both golden ones, egad! and both cracked.
+ - There’s one fool at least in every married couple.
+ - Fear hath the common fault of a justice of peace, and is apt to conclude hastily from every slight circumstance, without examining the evidence on both sides.
+ - Great vices are the proper objects of our detestation, smaller faults of our pity, but affectation appears to be the only true source of the ridiculous.
+ - The characteristic of coquettes is affectation governed by whim.
+ - To the composition of novels and romances, nothing is necessary but paper, pens, and ink, with the manual capacity of using them.
+ - Worth begets in base minds, envy; in great souls, emulation.
+ - There is scarcely any man, how much soever he may despise the character of a flatterer, but will condescend in the meanest manner to flatter himself.
+ - Some folks rail against other folks, because other folks have what some folks would be glad of.
+ - There is perhaps no surer mark of folly, than to attempt to correct natural infirmities of those we love.
+ - Ingratitude never so thoroughly pierces the human breast as when it proceeds from those in whose behalf we have been guilty of transgressions.
+ - In a debate, rather pull to pieces the argument of thy antagonists than offer him any of thy own; for thus thou wilt fight him in his own country.
+ - It is admirably remarked, by a most excellent writer, that zeal can no more hurry a man to act in direct opposition to itself than a rapid stream can carry a boat against its own current.
+ - His designs were strictly honourable, as the phrase is; that is, to rob a lady of her fortune by way of marriage.
+ - For parents to restrain the inclinations of their children in marriage is an usurped power.
+ - Prudence is a duty which we owe ourselves, and if we will be so much our own enemies as to neglect it, we are not to wonder if the world is deficient in discharging their duty to us; for when a man lays the foundation of his own ruin, others too often are apt to build upon it.
+ - The life of a coquette is one constant lie; and the only rule by which you can form any correct judgment of them is that they are never what they seem.
+ - Guilt, on the contrary, like a base thief, suspects every eye that beholds him to be privy to his transgressions, and every tongue that mentions his name to be proclaiming them.
+ - He in a few minutes ravished this fair creature, or at least would have ravished her, if she had not, by a timely compliance, prevented him.
+ - There are two considerations which always imbitter the heart of an avaricious man – the one is a perpetual thirst after more riches, the other the prospect of leaving what he has already acquired.
+ - When the effects of female jealousy do not appear openly in their proper colours of rage and fury, we may suspect that mischievous passion to be at work privately, and attempting to undermine, what it doth not attack above-ground.
+ - With the latitude of unbounded scurrility, it is easy enough to attain the character of a wit, especially when it is considered how wonderfully pleasant it is to the generality of the public to see the folly of their acquaintance exposed by a third person.
+ - To speak a bold truth, I am, after much mature deliberation, inclined to suspect that the public voice hath, in all ages, done much injustice to Fortune, and hath convicted her of many facts in which she had not the least concern.
+ - The dignity of history.
+ - Wisdom is the talent of buying virtuous pleasures at the cheapest rate.
+ - All nature wears one universal grin.
+ - A newspaper consists of just the same number of words, whether there be any news in it or not.
+ - These are called the pious frauds of friendship.
+ - It is not from nature, but from education and habits, that our wants are chiefly derived.
+ - There cannot be a move glorious object in creation than a human being replete with benevolence, meditating in what manner he might render himself most acceptable to his Creator by doing most good to His creatures.
+ - The woman and the soldier who do not defend the first pass will never defend the last.
+ - What is commonly called love, namely the desire of satisfying a voracious appetite with a certain quantity of delicate white human flesh.
+ - The highest friendship must always lead us to the highest pleasure.
+ - Men who pay for what they eat will insist on gratifying their palates.
+ - Let no man be sorry he has done good, because others have done evil.
+ - When I mention religion I mean the Christian religion; and not only the Christian religion, but the Protestant religion; and not only the Protestant religion, but the Church of England.
+ - As a conquered rebellion strengthens a government, or as health is more perfectly established by recovery from some diseases; so anger, when removed, often gives new life to affection.
+ - Setting down in writing, is a lasting memory.
+ - There is nothing so useful to man in general, nor so beneficial to particular societies and individuals, as trade. This is that alma mater, at whose plentiful breast all mankind are nourished.
+ - Considering the unforeseen events of this world, we should be taught that no human condition should inspire men with absolute despair.
+ - Dignity and love were never yet boon companions.
+ - Conscience – the only incorruptible thing about us.
+ - It may be laid down as a general rule, that no woman who hath any great pretensions to admiration is ever well pleased in a company where she perceives herself to fill only the second place.
+ - There are persons of that general philanthropy and easy tempers, which the world in contempt generally calls good-natured, who seem to be sent into the world with the same design with which men put little fish into a pike pond, in order only to be devoured by that voracious water-hero.
+ - It is an error common to many to take the character of mankind from the worst and basest amongst them; whereas, as an excellent writer has observed, nothing should be esteemed as characteristical, of a species but what is to be found amongst the best and the most perfect individuals of that species.
+ - The constant desire of pleasing which is the peculiar quality of some, may be called the happiest of all desires in this that it rarely fails of attaining its end when not disgraced by affectation.
+ - Perhaps the summary of good-breeding may be reduced to this rule. “Behave unto all men as you would they should behave unto you.” This will most certainly oblige us to treat all mankind with the utmost civility and respect, there being nothing that we desire more than to be treated so by them.
+ - However exquisitely human nature may have been described by writers, the true practical system can be learned only in the world.
+ - There are those who never reason on what they should do, but what they have done; as if Reason had her eyes behind, and could only see backwards.
+ - When I’m not thanked at all, I’m thanked enough.
+ - Love may be likened to a disease in this respect, that when it is denied a vent in one part, it will certainly break out in another; hence what a woman’s lips often conceal, her eyes, her blushes, and many little involuntary actions betray.
+ - The exceptions of the scrupulous put one in mind of some general pardons where everything is forgiven except crimes.
+ - Can any man have a higher notion of the rule of right and the eternal fitness of things?
+ - Beauty may be the object of liking – great qualities of admiration – good ones of esteem – but love only is the object of love.
+ - Good-humor will even go so far as often to supply the lack of wit.
+ - Some general officers should pay a stricter regard to truth than to call the depopulating other countries the service of their own.
+ - A man may go to heaven with half the pains it cost him to purchase hell.
+ - Scarcely one person in a thousand is capable of tasting the happiness of others.
+ - We should not be too hasty in bestowing either our praise or censure on mankind, since we shall often find such a mixture of good and evil in the same character, that it may require a very accurate judgment and a very elaborate inquiry to determine on which side the balance turns.
+ - There is an insolence which none but those who themselves deserve contempt can bestow, and those only who deserve no contempt can bear.
+ - Money will say more in one moment than the most eloquent lover can in years.
+ - What was said by the Latin poet of labor – that it conquers all things – is much more true when applied to impudence.
+ - Some virtuous women are too liberal in their insults to a frail sister; but virtue can support itself without borrowing any assistance from the vices of other women.
+ - Life may as properly be called an art as any other.
+ - Heroes, notwithstanding the high ideas which, by the means of flatterers, they may entertain of themselves, or the world may conceive of them, have certainly more of mortal than divine about them.
+ - Now in reality, the world has paid too great a compliment to critics, and has imagined them to be men of much greater profundity than they really are.
+ - A good man therefore is a standing lesson to us all.
+ - Most men like in women what is most opposite their own characters.
+ - A good heart will, at all times, betray the best head in the world.
+ - A grave aspect to a grave character is of much more consequence than the world is generally aware of; a barber may make you laugh, but a surgeon ought rather to make you cry.
+ - Clergy are men as well as other folks.
+ - He that dies before sixty, of a cold or consumption, dies, in reality, by a violent death.
+ - Nothing more aggravates ill success than the near approach of good.
+ - Penny saved is a penny got.
+ - Giving comfort under affliction requires that penetration into the human mind, joined to that experience which knows how to soothe, how to reason, and how to ridicule; taking the utmost care never to apply those arts improperly.
+ - Dancing begets warmth, which is the parent of wantonness. It is, Sir, the great grandfather of cuckoldom.
+ - It is well known to all great men, that by conferring an obligation they do not always procure a friend, but are certain of creating many enemies.
+ - There is not in the universe a more ridiculous, nor a more contemptible animal, than a proud clergyman.
+ - A good face they say, is a letter of recommendation. O Nature, Nature, why art thou so dishonest, as ever to send men with these false recommendations into the World!
+ - There is nothing a man of good sense dreads in a wife so much as her having more sense than himself.
+ - A good conscience is never lawless in the worst regulated state, and will provide those laws for itself which the neglect of legislators had forgotten to supply.
+ - It is a good maxim to trust a person entirely or not at all.
+
+153 quotes

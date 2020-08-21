@@ -1,0 +1,87 @@
+ - Enjoy the journey as much as the destination.
+ - Either make your money work for you or you will always have to work for your money.
+ - Take action now, because tomorrow never comes.
+ - When you control your thoughts and emotions, you control everything.
+ - A dream becomes a goal the moment you write it down. A goal becomes a plan the moment you break it down into doable steps. A plan becomes a reality only when you take action.
+ - You must become what you want to attract.
+ - Everything begins with a thought, and thoughts are turned into plans, and plans into reality.
+ - Turn your ‘problems’ into ‘challenges’ and you will suddenly see results in a more positive light.
+ - Make no apologies for who you are.
+ - It’s not difficult to make money – it’s different.
+ - Habits are a function of your subconscious mind.
+ - You must learn to love, respect and believe in yourself. To accomplish this, begin by restructuring your current self-programming.
+ - Learn to trust and be trustworthy. When you treat someone as if they are being dishonest, you will train them to be. It’s more powerful to treat someone as if they are being honest, and you will train them to now be honest, even if they weren’t then.
+ - Elegant persuasion is when the other person thought it was their idea.
+ - Be interested rather than interesting.
+ - Either you will do now what it takes or ten years from now you wish that you had.
+ - When you truly desire change, your conscious mind chooses the positive, new action.
+ - Take charge of your environment.
+ - The power of faith is suspending judgment long enough to gain the rewards available.
+ - What if opportunity comes and you aren’t prepared? If you don’t prepare yourself for opportunity, one thing is certain, you won’t win even when you get the chance. You must recognize the power of being prepared.
+ - Your life wasn’t meant to be a struggle; it was meant to be an adventure. Start living the adventure now!
+ - Never fall in love with someone’s potential.
+ - Let your yes be yes and your no be no – you can always change your mind.
+ - You choose how to feel and act every moment of every day. The moment you accept this responsibility completely, you gain total control over your life.
+ - Either create your own journey or you’ll become a part of someone else’s.
+ - What you do today will determine how you feel tomorrow.
+ - The higher the levels, the higher the devils.
+ - Everything begins in thought and the reality is only our interpretation of the situation.
+ - Self-programming, what you believe and affirm about yourself, is the basis of who you are.
+ - Do exactly the opposite of what the sheep are doing in order to become the Shepherd.
+ - Unless you love yourself, it’s difficult to respect anyone else who holds that high an opinion of you.
+ - To get what you want you must communicate with others in a way that inspires them to want to give it to you.
+ - You make the choice for change more easily and readily each time as your conscious mind begins to reprogram your subconscious mind with a new habit, and the decision is reinforced by that positive change.
+ - What if living your life, naturally created what you wanted?
+ - We find what we are looking for.
+ - When you know exactly what you want, then you will appreciate it more when you experience it.
+ - One of the first ways to begin building your self-confidence is to focus on what’s great about you.
+ - Sarcasm is always perceived as an attack.
+ - When you know how to make money, you’re obligated to.
+ - With constant repetition and reinforcement, new habits are easily formed.
+ - People will always respect you when you’re in the process of being better.
+ - You can only get more in life by saying YES.
+ - Finding your life less than perfect is a waste of your time.
+ - It’s not enough to learn, one must become.
+ - The mind, like any muscle, must be exercised.
+ - Not appreciating what we have now, robs us of our abundance even when it exists.
+ - Never loan money, you’re not reading or willing to give away.
+ - You can never get more by saying “No.” You can hold a current position by saying “No”, but you can only move forward by saying “Yes.”
+ - Nothing has any power except the power that you give it.
+ - Laughter is a release of tension. When influencing, make the other person laugh; you’ll gain rapport instantly.
+ - To yourself you are what you think. To the outside world, you are what you do.
+ - Finding love requires perseverance.
+ - The very best thing you can give someone is what they want.
+ - Relationships are like a book, in that they are for learning.
+ - There is no question that love is not the answer to.
+ - Choose who you are in any given moment.
+ - Those that are afraid to buy are always afraid to sell.
+ - See your misfortunes as blessings.
+ - Those who think govern those who labor.
+ - Not expecting someone to measure up is an insult.
+ - The stress of an action diminishes rapidly after that action is performed.
+ - Turn your habit into a conscious decision.
+ - To forgive someone means to take away the power this person has over you.
+ - Wealthy people always know the exact value of their time.
+ - People reach a point of readiness for change when they reach their own personal bottom.
+ - People will always be more willing to give you things that they think you don’t need.
+ - If you want to get attacked, have an opinion.
+ - When you break an agreement in a relationship, you must offer an amendment first, or it is meaningless.
+ - You will never see what you are capable of, although you must seek to.
+ - More is learned in pain than in pleasure.
+ - When you are doing what you really love and creating the life that you really want it will be easier to create a healthy personal relationship with someone that will be supportive of what you want too.
+ - The greater the responsibility, the greater the reward.
+ - Your body will produce what your mind believes.
+ - Everything you want and you don’t have, you get from other people.
+ - Determine where you are going and how you will get there will become obvious.
+ - Failure makes excuses. Success just keeps swinging the bat.
+ - Find your life perfect and deal with what emerges.
+ - There are only 2 reasons that someone would want something in their life and not get it. First, they don’t know what to do and second, they know what to do and don’t know how to get themselves to do it consistently, if at all.
+ - Ask ‘What’ and ‘When.’ The ‘How’ will naturally be revealed.
+ - You simply cannot blame anyone or anything for causing you to be, think or respond in a certain way.
+ - You must recognize that we train the people in our lives how to treat us.
+ - The only way faith can be relevant is by preparing the mind to receive it.
+ - How someone is responding to you may have nothing to do with you.
+ - Not believing in something doesn’t make it not exist.
+ - In every area of our lives we get back what we send out.
+
+85 quotes

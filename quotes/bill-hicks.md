@@ -1,0 +1,146 @@
+ - Don’t worry, don’t be afraid, ever, because this is just a ride.
+ - There are essentially only two drugs that Western civilization tolerates: Caffeine from Monday to Friday to energize you enough to make you a productive member of society, and alcohol from Friday to Monday to keep you too stupid to figure out the prison that you are living in.
+ - It’s just a ride.
+ - Oh sorry, I was taking life seriously.
+ - Today a young man on acid realized that all matter is merely energy condensed to a slow vibration, that we are all one consciousness experiencing itself subjectively, there is no such thing as death, life is only a dream, and we are the imagination of ourselves. Heres Tom with the Weather.
+ - Humanity is just a virus with shoes.
+ - It’s all about money, not freedom. If you think you’re free, try going somewhere without money, okay?
+ - Any organization created out of fear must create fear to survive.
+ - I believe that there is an equality to all humanity. We all suck.
+ - I left in love, in laughter, and in truth, and wherever truth, love and laughter abide, I am there in spirit.
+ - It’s an insane world, and I’m proud to be a part of it.
+ - Would you let the aliens land, please? They might be here to pick me up.
+ - If you are living for tomorrow, you will always be one day behind.
+ - Oh my God. Lift me up out of this illusion, Lord. Heal my perception that I might know only reality and only you.
+ - I don’t mean to sound bitter, cold, or cruel, but I am, so that’s how it comes out.
+ - I need my sleep. I need about eight hours a day, and about ten at night.
+ - It’s not a war on drugs, it’s a war on personal freedom.
+ - All your beliefs, they’re just that. They’re nothing. They’re how you were taught and raised. That doesn’t make ’em real.
+ - It has become more and more obvious that there is one political party in America, and that is The Business Party.
+ - I’m totally confused about what I’m going to do with my life.
+ - I just have one of those faces. People come up to me and say, ‘What’s wrong?’ Nothing. ‘Well, it takes more energy to frown than it does to smile.’ Yeah, you know it takes more energy to point that out than it does to leave me alone?
+ - No one can give you any answers. There aren’t any. You have to discover for yourself-you must learn to navigate the mystery.
+ - We all pay for life with death, so everything in between should be free.
+ - I can’t watch TV longer than five minutes without praying for nuclear holocaust.
+ - Be yourself on stage. Nobody else can be you and you have the law of supply and demand covered.
+ - We are the facilitators of our own creative evolution.
+ - I get a kick out of being an outsider constantly. It allows me to be creative.
+ - Isn’t that weird, we’ve made nature against the law. That’s how un-natural we’ve become.
+ - What kind of people are these with such low self-esteem that they need a war to feel better about themselves?
+ - I believe the cost of life is Death and we will all pay that in full. Everything else should be a gift.
+ - I’m just trying to rid the world of all these fevered egos that are tainting our collective unconscious...
+ - It’s always funny until someone gets hurt. Then it’s just hilarious.
+ - The eyes of love see all of us as one.
+ - Shut up! Go back to bed, America. Your government is in control. Here’s Love Connection. Watch this and get fat and stupid.
+ - They proved that if you quit smoking, it will prolong your life. What they haven’t proved is that a prolonged life is a good thing. I haven’t seen the stats on that yet.
+ - Pot is a better drug than alcohol. I’ll prove it to you. You’re at a ball game or a concert, and someone’s really violent and agressive and obnoxious, are they drunk or are they smoking pot?
+ - Ever noticed that people who believe in Creationism look really unevolved?
+ - Listen, the next revolution is gonna be a revolution of ideas.
+ - Women priests. Great, great. Now there’s priests of both sexes I don’t listen to.
+ - To make marijuana against the law is like saying God made a big mistake.
+ - All governments are lying cocksuckers.
+ - I do not believe making money in order to consume goods is mankind’s sole purpose on this planet.
+ - The American dream is a crock. Stop wanting everything. Everyone should wear jeans and have three T-shirts, eat rice and beans.
+ - What are you reading for?
+ - Music is a great energizer. It’s a language everybody knows.
+ - I ascribe to Mark Twain’s theory that the last person who should be President is the one who wants it the most. The one who should be picked is the one who should be dragged kicking and screaming into the White House.
+ - I loved when Bush came out and said, ‘We are losing the war against drugs.’ You know what that implies? There’s a war being fought, and the people on drugs are winning it.
+ - Man, the Beatles were so high, they let Ringo sing a coupla tunes. Tell me they weren’t partyin’.
+ - Rock stars against drugs – that’s what we want, isn’t it? Government-approved rock-n-roll? Woo! We’re partying now!
+ - Good comedy helps people know they’re not alone. Great comedy provides an answer.
+ - They Want You To Be A Docile Apathetic Consumer.
+ - Writing, acting, music, comedy. A deep love of literature and books. Thank God for all the artists who’ve helped me.
+ - What does an atheist scream when they come?
+ - I wouldn’t give Satan a snowball’s chance in Hell against a woman’s ego...
+ - You are the imagination of yourself.
+ - Why is marijuana against the law? It grows naturally on our planet, serves a thousand different functions, all of them positive. To make marijuana against the law is like saying that God made a mistake.
+ - If ur going to have a war on drugs, have them against ALL drugs, including alcohol, the number one offender.
+ - I smoke to fill the potholes in my soul.
+ - I don’t care if you’re obscene, filthy, horrendous – as long as you’re honest.
+ - If you’re so pro-life, do me a favour: don’t lock arms and block medical clinics. If you’re so pro-life, lock arms and block cemeteries.
+ - Keith Richards outlived Jim Fixx, the runner and health nut. The plot thickens.
+ - It’s my object to be stared at like a dog that’s just been shown a card trick.
+ - You think when Jesus comes back, he really wants to see a cross? That’s like going up to Jackie Onassis with a rifle pendant on.
+ - We’re supposed to keep evolving. Evolution did not end with us growing opposable thumbs. You do know that, right?
+ - Jesus-murdered. Martin Luther King-murdered. Gandhi-murdered. Malcolm X-murdered. Reagan-wounded.
+ - That’s why I always recommend a psychedelic experience because it makes you realize that all you’ve learned is in fact just learned and not necessarily the truth.
+ - Your denial is beneath you, and thanks to the use of hallucinogenic drugs, I see through you.
+ - If you don’t think drugs have done good things for us, then take all of your records, tapes and CD’s and burn them.
+ - You all saw him – he had a gun.
+ - The best kind of comedy to me is when you make people laugh at things they’ve never laughed at, and also take a light into the darkened corners of people’s minds, exposing them to the light.
+ - If I thought the Jews killed God, I’d worship the Jews.
+ - I’m an American who loves an America which doesn’t exist, which is a land of freedom and free ideas.
+ - I began working quite young, writing, growing, maturing, always striving to top myself – to make people laugh hard at things they know and believe deep in their hearts to be true.
+ - The role of the comedian is to say ‘Wait a minute’ when a consensus starts to form.
+ - Children are smarter than any of us. Know how I know that? I don’t know one child with a full time job and children.
+ - I’m a heavy smoker. I go through two lighters a day.
+ - Mushrooms grow on cow turds. I love that. I think that’s why you giggle the first hour.
+ - People often ask me where I stand politically. It’s not that I disagree with Bush’s economic policy or his foreign policy, it’s that I believe he was a child of Satan sent here to destroy the planet Earth. Little to the left.
+ - Just one thing I know for sure, chicks dig jerks.
+ - Will there be titty? Sure. Boom! I’m a producer. Where you been all our life, boy? We been lookin for you in Hollywood.
+ - And I’m not getting laid! What am I doing wrong?
+ - I’m sorry if any of you are Catholic. I’m not sorry if you’re offended, I’m actually just sorry by the fact that you’re Catholic.
+ - Right foot, left foot, hemorrhage.
+ - The definition of black irony is Pro-lifers killing Doctors who do abortions.
+ - Childbirth is no more a miracle then eating food and a turd coming out of your ass.
+ - It’s really weird how your life changes. Tonight I’m drinking water. Four years ago? Opium. Night and day, you know?
+ - I’m just skin covering coffee and some real nervous teeth.
+ - I believe it is our own misperceptions of who we really are that leads to every self-created hell you’ll find in this world.
+ - Well we looked at all the people in the Bible and we added ’em up all the way back to Adam and Eve, their ages: 12,000 years.
+ - Why do we put people who are on drugs in jail? They’re sick, they’re not criminals. Sick people don’t get healed in prison. You see? It makes no sense.
+ - Why is pot against the law? It wouldn’t be because anyone can grow it, and therefore you can’t make a profit off it, would it?
+ - Nicotine patches are great. Stick one over each eye and you can’t find your fags.
+ - BTW A 24 week old embryo is not a human being. You’re not a human being until you’re in my phone book.
+ - People always snap and think they’re Jesus. How come no one ever snaps and thinks they’re Buddha?
+ - Nonsmokers – this is for you and you only. Ready? Nonsmokers die every day. Sleep tight.
+ - Dinosaur fossils were placed in rocks by prankster God just to make human beings think the world is older than it is.
+ - I think it’s interesting how people act on their beliefs. A lot of Christians, for instance, wear crosses around their necks. Nice sentiment, but do you think when Jesus comes back, he’s really going to want to look at a cross?
+ - You ever noticed how people who believe in Creationism look really un-evolved? You ever noticed that? Eyes real close together, eyebrow ridges, big furry hands and feet. “I believe God created me in one day”. Yeah, looks like He rushed it.
+ - Yesterday, some hooligans knocked over a dustbin in Shaftesbury.
+ - But where did this veneration of childbirth come from? I missed that meeting. Childbirth is wonderful, childbirth is a miracle. Wrong. It’s no more a miracle than eating food and a turd coming out your ass.
+ - How dare you have wino tell me not to do drugs.
+ - I love the Pope, I love seeing him in his Pope-Mobile, his three feet of bullet proof plexi-glass. That’s faith in action folks! You know he’s got God on his side.
+ - Let me tell you about gays in the military. I don’t want any gay people hanging around me while I’m killing kids. I just don’t want to see it.
+ - We are one with God and He loves us. Now if that isn’t a hazard to this country-How’re we gonna keep building nuclear weapons?
+ - My voice was not heard, the questions were not asked that I wanted to see asked.
+ - I don’t like anything in the mainstream and they don’t like me.
+ - We’ll see who believes in me now. I am the Prankster God – I am killing me!
+ - How about a positive LSD story? Wouldn’t that be news-worthy, just the once? To base your decision on information rather than scare tactics and superstition and lies? I think it would be news-worthy.
+ - What strikes me as funny about Elvis is that all the impersonators choose to do the Vegas Elvis, not the young, cool guy...
+ - I am available for children’s parties, by the way...
+ - Okay, I got one word to ask you, a one word question, ready?
+ - Been on what I call my Flying Saucer Tour – appearing in small Southern towns – in front of handfuls of hillbillies.
+ - I don’t identify with anyone historically, but there are several people in the future who I am a dead ringer for.
+ - Watching television is like taking black spray paint to your third eye.
+ - There is a 3rd point of view on the gun control issue – those who I refer to as THE VICTIMS – but they remain strangely silent...
+ - I used to drink, I did. I had to quit. Man, I was an embarrassing drunk. I’d get pulled over by the cops, I’d be so drunk I’d be out dancing in their lights thinking I’d made it to the next club.
+ - Ultimately, it is in fun. It is supposed to be highly entertaining.
+ - Laughter makes the bitter swallowing of truth, for some, a little easier.
+ - I wish I could meet a Christian who would proselytize to me, but they keep running away from me. I wanna talk to you all.
+ - Eternal suffering awaits anyone who questions god’s infinite love.
+ - I can’t believe a war against drugs when they have anti-drug commercials on TV all day long followed by This Bud is for you.
+ - Is it impossible to imagine Americans sneaking into Mexico en masse, seeking regular employment and a better way of life?
+ - Let’s do some comedy. I always like to add some comedy to my show. Those who’ve seen me before might know that.
+ - People in the United Kingdom and outside the United States share my bemusement with the United States that America doesn’t share with itself.
+ - Speaking of Satan, I was watching Rush Limbaugh the other day.
+ - I find it ironic that people who are against things that cause sexual thoughts are generally fundamentalist Christians who also believe you should be fruitful and multiply.
+ - As long as one person lives in darkness then it seems to be a responsibility to tell other people.
+ - The whole image is that eternal suffering awaits anyone who questions God’s infinite love. That’s the message we’re brought up with, isn’t it? Beleive or die! Thank you, forgiving Lord, for all those options.
+ - To me, Texas is Austin, a bunch of cool people trying to make a difference.
+ - I believe that God left certain drugs growing naturally upon our planet to help speed up and facilitate our evolution.
+ - So, it’s good to be here, wherever I am.
+ - When two or more people agree on an issue, I form on the other side.
+ - A lotta Christians wear crosses ’round their necks; do you think if Jesus comes back he ever wants to see another cross?
+ - I was in a cab in New York. The cab had a sign, “Please do not smoke, Christ is our unseen guest.” This guy was reaching. I figure, if he could overcome being nailed to a cross, I don’t think a Marlboro Light’s gonna faze him that much.
+ - I never got along with my dad. Kids used to come up to me and say, “My dad can beat up your dad.” I’d say Yeah? When?
+ - Do I have a message? Yes, I do. Here’s my message: as scary as the world is – and it is – it is merely a ride...
+ - I can speak for every guy in this room here tonight. Guys, if you could blow yourselves, ladies, you’d be in this room alone right now. Watching an empty stage.
+ - It seems to me that there will be a point in out development or our evolution where you put your guns aside.
+ - Truly, the only stupid people I’ve ever met, the most absolutely clueless, are the very people that produce television.
+ - I’ve said all that I’ve had to say.
+ - You’re not a human till you’re in my phone book. There. My hat is now in the political ring.
+ - And if I can take part in it by transforming my own consciousness, then someone else’s, I’m happy to do it.
+ - Sometimes you feel in control, and it’s great, but sometimes you just don’t feel in control and you really have to struggle to get laughs.
+ - I love talking about the Kennedy assassination. The reason I do is because I’m fascinated by it. I’m fascinated that our government could lie to us so blatantly, so obviously for so long, and we do absolutely nothing about it.
+
+144 quotes

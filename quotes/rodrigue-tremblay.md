@@ -1,0 +1,65 @@
+ - Don’t do to others what you would not like to be done to you, if you were in their place.
+ - Wars of aggression are the most barbarous of all human endeavors and are, more often than not, the instruments of insane tyrants who hear voices.
+ - The world should be worried about those who go around the planet with a can of gasoline in one hand and a box of matches in the other, pretending to sell fire insurance.
+ - Armed with the neoconservative doctrine of so-called ‘preventive’ wars of aggression, if it is not vigilant, the United States could be in the 21st Century, what Germany was in the 20th Century, that is, a danger to the World.
+ - If it is appropriate to introduce economic rationality into public debates, we must be careful not to throw out the baby with the bathwater and make markets what they are not, what they have never been and what they will never will be, that is, perfect mechanisms for allocating resources.
+ - It would be nothing less than scandalous for the United States of America, which was founded on humanistic and democratic principles, to attempt to replace the old empires of the past and to deny the fundamental democratic right of other peoples and other nations to self-determination.
+ - As an economist but also as a humanist, I believe that collectively, we must aim at creating the greatest good for the greatest number of people, not the maximizing of purely selfish personal financial objectives.
+ - It is in the interest of any country to avoid giving power to idiots, to ignoramuses, incompetents, devious and delusional characters or to demagogues. If not, watch out. More countries are destroyed by their own politicians than by invading armies.
+ - The system of religions has played a central role in the evolution of the human species. It just happens that our ancestors invented the system of religions to solidify the cohesion of their communities and… to justify the killing of their enemies.
+ - Cemeteries are full of people with large pension funds.
+ - Crooked politicians, when facing a quagmire of their own making, and feeling powerless and under attack, will spend unlimited amounts of public money and will sacrifice unlimited numbers of other people’s lives, in order to save face.
+ - Morality and religion are not the same thing. In fact, religion is a prism that tends to skew morality in one’s favor, in one group’s favor or in one nation’s favor; often, what is good for one people is considered bad for others, and conversely.
+ - A constitution is only good as long as the people in power [politicians, judges, etc.], believe in its principles. If people in power no longer believe in its principles, they will find a way to change it or circumvent it. This is major lesson of the history of democracy: democracies do die and they are often replaced by tyrannies.
+ - For a people to be free, it must first prove that it deserves it.
+ - Wars are cruel gimmicks designed to enrich the few and impoverish the many.
+ - [In economics], we have seen the emergence of a truly secular cult according to which the market is a kind of omniscient god, omnipotent and infallible, which could serve as the only collective instrument for achieving the common good and the collective interest, and that in all circumstances. It has been claimed, despite the recurrent dramatic collapses of financial markets, and some still claim that there is practically no economic problem that markets, left alone, cannot solve on their own.
+ - In the long run, it is much better for a political party to be in the minority, but keeping a clear sense of what it wants to accomplish, than to be in the majority while being paralyzed by irreconcilable dissentions and condemned to do nothing.
+ - An incompetent politician who surrounds himself with competent people can pull it off. However, if he is dumb enough to surround himself with like-minded people, failure becomes a certainty.
+ - No other organizations, (except perhaps an army), but organized religions can mobilize large groups of people into congregations and turn them into mind-numbed automatons, all too ready to follow orders.
+ - The Earth can endure without humans, but humans cannot survive without planet Earth.
+ - Death is part of life. It is an unavoidable surrender to the overwhelming forces of nature.
+ - The fundamental purpose of life is to live it fully and as morally as possible, and to help others live their life fully and as morally as possible.
+ - In economics, as in medicine, it is never too late to do the right thing.
+ - People who make hell on Earth often have the crazy idea that they are bound for a heaven after death.
+ - Politicians sometimes forget that, once elected, they are expected to serve all the people, not just their narrow base of fanatical partisans. In that regard, their public statements are very important because they give a clue to what type of public servant the candidates will become once in power. Also, a candidate can easily self-destruct if he or she forgets that, when talking to partisans, the entire electorate is listening. Strong general statements, good or bad, remain in people’s consciousness when time comes to vote.
+ - An organized and coherent minority is usually stronger politically than a disorganized and divided majority.
+ - The American military invasion of Iraq [in 2003] to gain control over that country’s vast oil reserves could go down in history as the biggest planned heist of the 21st Century.
+ - Some economists sometimes prefer something extremely precise, which is false, to another one less precise, which is true.
+ - The same simplistic populism, the same anti-intellectualism, the same aggressive isolationism, the same xenophobia, the same militarism, and the same scorn of international laws and institutions can be found in some segments of American politics today. Therefore, the United States could be in greater danger than many think.
+ - Proselytizing or expansionist ideologies, such as communism, fascism, colonialism, Christianism, Islamism and Zionism, are powerful seeds of war. The more so, it seems, when one relies on the exhortations of a self-serving “holy” book. The first three ideologies nearly destroyed the Planet in the 20th century, while the last three threaten to do the same in the 21st century.
+ - No organized religion treats women, in practice, with less respect and consideration than radical Islam.
+ - In our media-run world, people get the politicians that pundits and the media deserve.
+ - As the rich often steal from the poor, it is only natural and just for the state to tax the rich to give to the poor.
+ - State-sponsored killing abroad or state-imposed capital punishment at home are both inimical to humanist principles.
+ - If persons in power can do whatever they want, irrespective of due process, that country is not a democracy. It may be a royalty, an empire or a dictatorship, but it is not a democratic republic.
+ - Mankind has invented the imaginary world of ‘gods’ to console people of their absence of control over life and death.
+ - It is always possible that a revolution will make things worse for everybody, rather than improve things for some.
+ - There exists currently in the United States an unhealthy obsession with high caliber guns – a form of idolatry of the gun as a useful tool to settle differences between individuals.
+ - Like all ‘Ponzi schemes’, [the] pyramiding of debts with no liquid assets behind them is bound to implode sooner or later.
+ - Nowadays, a [U.S.] president who does not start a war abroad or who does not enlarge one already in progress is open to criticism and is likely to suffer politically. He must be seen less as a president than as a “commander-in-chief”, and even – as a de facto emperor.
+ - The two biggest curses of humanity have been proselytizing religions and wars, and both have often been intertwined.
+ - A government bent on controlling the people can never gather enough information on citizens, and it can be expected to use all the available techniques to obtain it.
+ - With the current globalization of our problems, we need to extend our circle of empathy and view humanity as a worldwide extended human family. As long as we refrain from facing that challenge, divisiveness and unsolvable conflicts will persist.
+ - Sometimes, one can get away with an illegal act, if it is legitimate; sometimes, one can get away with an illegitimate act, if it is legal; but, it is most difficult to get away with an act, which is both illegal and illegitimate.
+ - The world should take notice when someone… with a fanatic mind and with powerful means, pretends to receive his marching orders from heaven.
+ - When all has been said and done – before the beginning we are nothing – and in the end we are nothing. It is what we do in between that counts.
+ - Historically speaking, organized religions have often produced more demagogues and charlatans than politics.
+ - Generally speaking, because of its so many pitfalls, the all-out economic globalization that is currently being imposed on nations and people alike is bound to implode, sooner or later. This is because it is a bad economic and political model. It de facto transfers the real power in our societies from legitimate elected officials to officers of large corporations and of mega banks, and to owners of capital who, in turn, use it to corrupt the political system.
+ - The unrestricted use of big money in politics can turn a vibrant democracy into a decadent plutocracy, just as surely as poisoning a well can destroy a village.
+ - Legally created entities such as corporations are not moral agents; only breathing individuals are; only they can adopt moral standards of conduct and be a source of law.
+ - It is a sad fact that even in so-called democracies, it seems that all wars are based on and sold with official lies and fraudulent fabrications in order to fool the people. Warmongers in government know that people do not like wars, especially illegal wars of aggression, against countries which have not attacked them, and that is why their first reflex is to attempt to drag the people along with lies and false pretexts for war, and by dehumanizing any potential enemy through simplistic propaganda.
+ - Hell on Earth is when one has too few things... or too many.
+ - With the current globalization of our problems, we need to extend our circle of empathy and view humanity as a worldwide extended human family. As long as we refrain from facing that challenge, divisiveness and unsolvable conflicts will persist.
+ - While democratic societies should have a great tolerance for an individual’s choice, they should not have a suicidal tolerance of intolerant movements that openly threaten to abolish freedom and democracy.
+ - It is not faith that gives freedom; knowledge brings freedom.
+ - On the political chessboard, those in the middle may have influence, but they rarely have power.
+ - For everyone of us, there is but one way to be born, but there are a thousand ways to die.
+ - In the end, life is only a long succession of problems to be solved on a daily basis.
+ - The increased complexity of the global economic system over the last quarter century has had a general consequence: it has resulted in increasing the power and incomes of the CEOs of large corporations and of mega banks as never seen before, as well, to a lesser extent, of those of politicians and bureaucrats, at the expense of the less educated segments of the population and the less mobile people generally, thus weakening the democratic spirit and practices in many countries.
+ - Each time a government circulates photos of dead babies to justify an act of military aggression against a foreign country, one has to ask if this is not part of a campaign of artful disinformation to manipulate public opinion, and if it is a case of a ‘false flag operation’.
+ - Wars of aggression are for warlike gambling leaders, a way to bet their citizens’ houses to fulfill their megalomaniac dreams of grandeur.
+ - The fact that we do not have a good government does not mean that we are not governed.
+ - Social justice and a fair economic system are prerequisites of a well functioning democracy.
+
+63 quotes

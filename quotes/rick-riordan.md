@@ -1,0 +1,502 @@
+ - True success requires sacrifice.
+ - With great power... comes great need to take a nap. Wake me up later.
+ - Fairness does not mean everyone gets the same. Fairness means everyone gets what they need.
+ - There is always a way out for those clever enough to find it.
+ - Tell the sun and stars hello for me.
+ - You must forge your own path for it to mean anything.
+ - Humans see what they want to see.
+ - But remember, boy, that a kind act can sometimes be as powerful as a sword.
+ - Being a hero doesn’t mean you’re invincible. It just means that you’re brave enough to stand up and do what’s needed.
+ - Humor was a good way to hide the pain.
+ - Just remember if we get caught, you’re deaf and I don’t speak English.
+ - That’s it, cupcake. You’re going down.
+ - Life is only precious because it ends, kid. Take it from a god. You mortals don’t know how lucky you are.
+ - No hero is above fear.
+ - If my life is going to mean anything, I have to live it myself.
+ - Names have power.
+ - Keep climbing,? he told himself. ‘Cheeseburgers,’ his stomach replied. ‘Shut up,’ he thought. ‘With fries,’ his stomach complained.
+ - A Half-Blood of the eldest gods, Shall reach sixteen against all odds And see the world in endless sleep The Hero’s soul, cursed blade shall reap A single choice shall end his days Olympus to preserve or raze.
+ - Sugar and caffeine. My willpower crumbled.
+ - Nothing is unfixable.
+ - Always, Always have a plan.
+ - It takes strength and courage to admit the truth.
+ - I love New York. You can pop out of the Underworld in Central Park, hail a taxi, head down Fifth Avenue with a giant hellhound loping behind you, and nobody even looks at you funny.
+ - Don’t judge someone until you’ve stood at his forge and worked with his hammer, eh?
+ - Knowing too much of your future is never a good thing.
+ - If I’m going to burn, it might as well be bright.
+ - Earthshaker, Stormbreaker, Father of Horses. Hail, Perseus Jackson, Son of the Sea God.
+ - It’s hard to enjoy practical jokes when your whole life feels like one.
+ - Where’s the glory in repeating what others have done?
+ - My name is Percy Jackson. I’m twelve years old. Until a few months ago, I was a boarding student at Yancy Academy, a private school for troubled kids in upstate New York. Am I a troubled kid? Yeah. You could say that.
+ - It’s funny how humans can wrap their mind around things and fit them into their version of reality.
+ - No one can hate you with more intensity than someone who used to love you.
+ - Be careful of love. It’ll twist your brain around and leave you thinking up is down and right is wrong.
+ - We’ve all got weaknesses. Me, for instance. I’m tragically funny and good-looking.
+ - Hope does not leave without being given permission.
+ - The sea does not like to be restrained.
+ - For once, I didn’t look back.
+ - Don’t stay in one place too long. It was the only way to stay ahead of the sadness.
+ - Percy is the most powerful demigod I’ve ever met. No offense to you guys but it’s true.
+ - Bring it on, Pinecone Face!
+ - A battle can be won before it’s ever fought by choosing the right ground.
+ - Egyptians believe in the power of the sunrise. They believe each morning begins not just a new day, but a new world.
+ - The first lesson every child of Athena learned: Mom was the best at everything, and you should never, ever suggest otherwise.
+ - Let the world honor you, my Huntress. Live forever in the stars.
+ - Suspecting and knowing are not the same.
+ - Delaying death is one of my favorite hobbies.
+ - I have moments like that alot, when my brain falls asleep or something, and the next thing I know I’ve missed something, as if a puzzle piece fell out of the universe and left me staring at the blank place behind it. – Percy Jackson.
+ - Because I know you, Percy Jackson. In many ways, you are impulsive, but when it comes to your friends, you are as constant as a compass needle. You are unswervingly loyal, and you inspire loyalty. You are the glue that will unite the seven.
+ - Life is only precious because it ends, kid.
+ - The most dangerous flaws are those which are good in moderation.
+ - You, sir, are a ray of sunshine. -Percy Jackson.
+ - Everything happens for a reason, Sadie, even bad things.
+ - A real man’s weapon is his mind.
+ - Great victory requires great risk. -Hera.
+ - I could always see myself being a teacher. I remember sitting in class as a kid, listening to the teacher and thinking, you know, I’m pretty sure I could explain that a little bit better.
+ - Back in my day, we died all the time, and we liked it!
+ - My resolve, my anger, even my grief gave me confidence.
+ - Fairness means everyone gets what they need. And the only way to get what you need is to make it happen yourself.
+ - Love is no game! It is no flowery softness! It is hard work- It demands everything from you- especially the truth. Only then does it yield results.
+ - Plus, humor ws a good way to hide the pain. And if that didn’t work, there was always Plan B. Run aaway. Over and over.
+ - You can’t control every contingency. You have to accept that. Let it scare you. Trust that it’ll be okay anyway.
+ - Nothing lasts forever, not even the best machines. And everything can be reused. – Hephaestus.
+ - The pinecone is a fearsome tool of destruction! -Bacchus.
+ - No hero is above fear, Percy. And you have risen above every hero. – Poseidon.
+ - Sometimes small things can become very large, indeed.
+ - Things will work out – maybe just not the way you plan.
+ - You can’t burn me.
+ - My point is that love is the most powerful motivator in the world. It spurs mortals to greatness. Their noblest, bravest acts are done for love.
+ - The most important thing whenever we’re connecting kids to books, is that we try to match the book to the kid and make sure that reading is a fun, rewarding experience outside the classroom.
+ - Wisdom’s daughter walks alone. That didn’t just mean without other people, Annabeth realized. It meant without any special powers.
+ - So few people did good in their lives. It was depressing.
+ - A guy in Greek armor drew his sword and charged, but slipped in a puddle of pina colada.
+ - Die! – Gleeson Hedge.
+ - What about a compromise? I’ll kill them first, and if it turns out they were friendly, I’ll apologize.
+ - She would always be my biggest what if.
+ - People of Earth, I come in peace!
+ - Even strength must bow to wisdom sometimes.
+ - Young people don’t always do what they’re told, but if they can pull it off and do something wonderful, sometimes they escape punishment.
+ - Why would Roman gods want to date Chinese Canadians?
+ - The world may need fixing, but it’s worth preserving.
+ - Why does it have to be so hard? Why can’t it be a happily-ever-after ride-into-the-sunset feeling all the time?
+ - Not inmune to engines huh? BOO-Yah!! -Leo.
+ - Don’t get starry-eyed about somebody you can’t have, especially if it blinds you to somebody who’s really important.
+ - Nico started to crawl away, groaning. Percy wanted him to move faster and groan less. He considered throwing his wonder bread at him.
+ - Well, actually it carried Cadmus. Europa fell off and died along the way, but that’s not important.? It was probably important to her.
+ - He was slumped over, blood trickling from the side of his mouth. I shook his furry hip, thinking, No! Even if you are half barnyard animal, you’re my best friend and I don’t want you to die!
+ - Annabeth pressed her lips to Percy’s ear. “I love you.” She wasn’t sure he could hear her – but if they died, she wanted those to be her last words.
+ - Love is on every side, and no one’s side. Don’t ask what Love can do for you.
+ - I pulled out Riptide.
+ - I was a fight to the death, and I felt great.
+ - Dreams like podcast. Downloading truth in my ears. They tell me cool stuff.
+ - I try very hard to be annoying. Don’t insult my ability to annoy.
+ - Felix believed that the answer to every problem involved penguins; but it wasn’t fair to birds, and I was getting tired of teleporting them back home. Somewhere in Antarctica, a whole flock of Magellanic penguins were undergoing psychotherapy.
+ - Identify the moral dilemma driving the novel. the successful novel will haunt a reader because it deals with some ethical or moral dilemma that makes the reader wonder what he or she would do in the protagonist’s place.
+ - We’d spent maybe ten minutes together, during which time I’d accidentally swung a sword at her, she’d saved my life, and I’d run away chased by a band of supernatural killing machines. You know, your typical chance meeting.
+ - I’m a teacher still, but with a much larger classroom.
+ - I love Norse mythology – Thor and Odin and Loki – amazing characters.
+ - He had a crush on a blueberry bush once.
+ - It wasn’t easy looking dignified wearing a bed sheet and a purple cape.
+ - Grover and Nico came back from their walk, and Grover helped me fix up my wounded arm. “It’s green!” Nico said with delight.
+ - It isn’t easy being a brilliant inventor, always alone. Always misunderstood. Easy to turn bitter, make horrible mistakes. People are more difficult to work with than machines. And when you break a person, he can’t be fixed. -Hephaestus.
+ - Annabeth: Hey, Seaweed Brain. Percy: Will you stop calling me that? Annabeth: You know you love it.
+ - People are more difficult to work with than machines. And when you break a person, he can’t be fixed.
+ - Wisdom’s daughter walks alone, The mark of Athena burns through Rome.
+ - We need a shroud. A shroud for the son of Hermes.
+ - Jason’s fingers itched to draw his sword. He’d met plenty of scary demigods, but he was starting to realize that Nico di Angelo – as pale and gaunt as he looked – might be more than he could handle.
+ - Ever had a flying burrito hit you? Well, it’s a deadly projectile, right up there with cannonballs and grenades.
+ - Nothing like ADHD and a good fight to the death to make time fly.
+ - Seven half-bloods shall answer the call To storm or fire the world must fall An oath to keep with a final breath and foes bear arms to the doors of death.
+ - Deadlines just aren’t real to me until I’m staring one in the face.
+ - The Friday before winter break, my mom packed me an overnight bag and a few deadly weapons and took me to a new boarding school.
+ - Zeus looked like a really buff, really angry hippie.
+ - The end of the world started when a pegasus landed on the hood of my car.
+ - All we can do, child, is follow our destiny.
+ - Only the fire of life can melt the chains of death.
+ - What I did next was so impulsive and dangerous I should’ve been named ADHD poster child of the year.
+ - Don’t feel bad, I’m usually about to die.
+ - But beauty is about finding the right fit, the most natural fit, To be perfect, you have to feel perfect about yourself – avoid trying to be something you’re not. For a goddess, that’s especially hard. We can change so easily. -Aphrodite.
+ - To a degree, the Greek and Roman mythological heroes are just the first superheroes. They appeal to children for much the same reason. These gods and heroes may have powers, but they get angry and they do the wrong thing. They are human too.
+ - Look, I didn’t want to be a half-blood.
+ - Love and war always go together. They are the peaks of human emotion! Evil and good, beauty and ugliness.
+ - You want to know how Egyptians pulled the brains out of mummies. or built the pyramids, or cursed King Tut’s tomb? My dad’s your man.
+ - When in doubt, start from the top. -Jason Grace.
+ - Words are the source of all power. And names are more than just a collection of letters.
+ - Aphrodite strikes again, huh? You’re gonna be the best-dressed warrior in town, beauty queen.
+ - Some pain shouldn’t be wished away so easily. It has to be dealt with, even embraced.
+ - The right choice is hardly ever the easy choice.
+ - My dear young cousin, if there’s one thing I’ve learned over the eons, it’s that you can’t give up on your family, no matter how tempting they make it.
+ - Maybe people with special gifts show up when bad things are happening because that’s when they’re needed most.
+ - The real world is where the monsters are.
+ - Number eight, the silver one, belongs to Artemis. She vowed to be a maiden forever. So of course, no kids. The cabin is, you know, honorary. If she didn’t have one, she’d be mad.
+ - Love is powerful. It can bring the gods to their knees.
+ - The Feast of Fortuna had nothing to do with tuna, which was fine with Percy.
+ - You might as well ask an artist to explain his art, or ask a poet to explain his poem. It defeats the purpose. The meaning is only clear thorough the search.
+ - A hero can go anywhere, challenge anyone, as long as he has the nerve.
+ - As for me, I did the stupidest thing in my life, which is saying a lot. I attacked the Titan Lord Atlas.
+ - See you on the other side. -Percy Jackson.
+ - Five shall go west to the goddess in chains, One shall be lost in the land without rain, The bane of Olympus shows the trail, Campers and Hunters combined prevail, The Titan’s curse must one withstand, And one shall perish by a parent’s hand.
+ - Sometimes you have to lose a piece to win a game.
+ - Most problems look worse than they are. nothing is unfixable.
+ - Death has more in common with Love than you might imagine.
+ - All da ladies love Leo!!
+ - Annabeth came up to me. She was dressed in black camouflage with her Celestial bronze knife strapped to her arm and her laptop bag slung over her shoulder – ready for stabbing or surfing the Internet, whichever came first.
+ - I prefer to be the noisiest thing in my environment thank you very much.
+ - My name is Carter Kane. I’m fourteen and my home is a suitcase.
+ - Once I got over the fact that my Latin teacher was a horse, we had a nice tour, though I was careful not to walk behind him. I’d done pooper-scooper patrol in the Macy’s Thanksgiving Day Parade a few times, and, I’m sorry, I did not trust Chiron’s back the the way I trusted his front.
+ - Survive first. Figure out crayon drawing of destiny later.
+ - Nico, I’ve seen a lot of brave things. But what you just did? That was maybe the bravest.
+ - Annabeth’s voice caught on the word friend. Percy was a lot more than that. Even boyfriend really didn’t cover it. They’d been through so much together, at this point Percy was part of her – a sometimes annoying part, sure, but definitely a part she could not live without.
+ - I gave her my deluxe I’ll-Kill-You-Later stare.
+ - Percy imagined what that would be like: getting an apartment in this tiny replica of Rome, protected by the legion and Terminus the OCD border god. He imagined holding hands with Annabeth at a cafe. Maybe when they were older, watching their own kid chase seagulls across the forum...
+ - Jumping out a window five hundred feet above ground is not usually my idea of fun. Especially when I’m wearing bronze wings and flapping my arms like a duck.
+ - Running with a drowsy child of Hades was more like doing a 3 -legged race with a life size rag doll.
+ - Sounds like a plan worthy of Athena.
+ - Nothing lasts forever. But the thing is, you can reuse some. Use your mind. – Leo’s Mother, The Lost Hero.
+ - My goal in the classroom was always to make sure they were having so much fun that they didn’t realize they were learning.
+ - Go on with what your heart tells you, or you will lose all.
+ - I’d like to say I took the news well. The truth was, I wanted to strangle the Hunters of Artemis one eternal maiden at a time. – Percy Jackson.
+ - I don’t define myself by the boys who may or may not like me.
+ - The images from the book you make in your head are always going to be the best images.
+ - Wow. When he started looking back on the war with Kronos as the good old days – that was sad.
+ - You deal with mythological stuff for a few years, you learn that paradises are usually places where you get killed.
+ - I can see the stars again m’lady.
+ - And it was pretty much the best underwater kiss of all time.
+ - I told Tantalus to go chase a doughnut.
+ - Don’t Worry, Be Hapi.
+ - Genius does not excuse evil.
+ - Please excuse Jason from eternal damnation. He has had amnesia.
+ - Look, I never wanted to be a half-blood. most of the time it gets you killed in nasty, dangerous ways.
+ - It is a costly thing, looking on the true face of Love.
+ - A giant vulture with a girl hanging from its feet tends to attract attention.
+ - She said this in the same way you might say Fields of Punishment or Hades’s gym shorts.
+ - Now fight me! For today thee House of Hades will be called the saviors of Olympus.
+ - I had weird dreams full of barnyard animals. Most of them wanted to kill me. The rest wanted food.
+ - Leo choked. “Your mom is a rainbow goddess?” “Got a problem with that?” Butch said. “No, no,” Leo said. “Rainbows, very macho.” “Butch is our best equestrian,” Annabeth said. “He gets along great with the pegasi.” “Rainbows, ponies,” Leo muttered. “I’m gonna toss you off this chariot,” Butch warned.
+ - Sometimes, it takes us a while to appreciate something new, something that might change us for the better.
+ - If somebody offers you Hapi pills, just say no!
+ - He warned me the greediest wishes cause the greatest sorrows.
+ - Writing is like a sport – you only get better if you practice.
+ - I keep forgetting about your amnesia. Heh. Forgetting about amnesia. That’s funny.
+ - A long white ribbon shot out of the crack in the wall. The ribbon just kept coming, weaving itself into some kind of shape next to Anubis, and my first thought was, My god, he’s got a magic roll of toilet paper.
+ - It’s natural to feel fear. All great warriors are afraid. Only the stupid and the delusional are not...
+ - I thought maybe he was seeing another tree. – Juniper.
+ - It blew my mind that this stuff had survived for two thousand, three thousand years.
+ - I wasn’t sure whether I was supposed to kneel or buy stamps from him or what.
+ - I remembered the last time Annabeth and I had parted ways, when she’d given me a kiss for luck in Mount St. Helens. This time, all I got was the hat.
+ - No man may be completely invulnerable.
+ - The cafe windows wrapped all the way around the observation floor, which gave us a beautiful panoramic view of the skeleton army that had come to kill us.
+ - I wasn’t aiming at the school bus, but of course I got expelled anyway.
+ - A truly great artist has many talents.
+ - As long as we’re together.
+ - I am your friend Bob!
+ - I hoped I wasn’t blushing. It was bad enough I had to depend on my mom to drive me to my battles.
+ - I’d missed Annabeth probably more than I wanted to admit.
+ - Great, I thought. We just blowtorched a national monument.
+ - I wondered if Olympus had gone to a commercial break, or if our ratings had been any good.
+ - Their goal was in sight. They had a Titan with a very loud kitten on their side. That had to count for something.
+ - About the prophecy that Rachel did at the end of “The Last Olympian,” Percy Jackson will participate this prophecy, along with Annabeth? Sorry for spelling errors.
+ - Strange things conspire when one tries to cheat fate.
+ - If Annabeth’s mother was Athena, the goddess of wisdom, then why didn’t Annabeth know better than to fall off a cliff?
+ - Annabeth’s face, her blond hair and gray eyes, the way she laughed, threw her arms around him, and gave him a kiss whenever he did something stupid. She must have kissed me a lot, Percy thought.
+ - The world will fall, the gods will die, and I will never achieve a perfect score on this stupid machine. -Dionysus.
+ - Percy: Don’t I get a kiss for luck? It’s kind of a tradition, right? Annabeth: Come back alive, Seaweed Brain. Then we’ll see.
+ - Mark my words, nothing smells worse than burned scorpion.
+ - I’m Dylan. I’m so cool. I want to date myself, but I don’t know how! You want to date me instead? You’re so lucky!
+ - A weapon, I told Horus. I need a weapon. I reached into the Duat and pulled out an ostrich feather. “Really?” I yelled. Horus didn’t answer.
+ - Eat bitter, taste sweet.
+ - Love was the most savage monster of all.
+ - But magic is neither good nor evil. It is a tool, like a knife. Is a knife evil? Only if the wielder is evil.
+ - Thalia blushed. “Hi, Lord Apollo.” Zeus’s girl, yes? Makes you my half sister. Used to be a tree, didn’t you? Glad you’re back. I hate it when pretty girls turn into trees. Man, I remember one time –.
+ - See, bad things happen to me on field trips. Like at my fifth-grade school, when we went to the Saratoga battlefield, I had this accident with a Revolutionary War cannon. I wasn’t aiming for the school bus, but of course I got expelled anyway. – Percy Jackson.
+ - The world was collapsing, and the only thing that really mattered to me was that she was alive.
+ - With her braided hair and white dress, she seemed to glow in the moonlight.
+ - For what it’s worth: trust your feelings. I can’t promise that you’ll never get hurt again, but I can promise you the risk is worth it.
+ - I tried very hard. But I can’t help it. The Fates are cruel. They sent you to me, my brave one, knowing that you would break my heart.
+ - I love Greek Mythology, wish there was a TV series, like being human or smallville, but with the series based around Percy Jackson and the Olympians, Holla Mayne!
+ - Don’t worry, goat boy. The milkman is dead.
+ - That is exactly how people beat Chinese handcuffs. They turn into iguanas.
+ - Her freckles were orange, as if somebody had spray-painted her face with liquid Cheetos.
+ - Your head is full of kelp.
+ - Do you always try to kill people when they blow their nose?
+ - A person’s shadow stood for his legacy, his impact on the world. Some people cast hardly any shadow at all. Some cast long, deep shadows that endured for centuries.
+ - What’s the best part of being in Hermes cabin? Connor: You are never lonely. I mean seriously, new kids are always coming in. So you always have someone to talk to. Travis: Or prank. Connor: Or pickpocket. One big happy family.
+ - Hubris means deadly pride. Thinking you can do things better than anyone else.
+ - Frank Zhang! I, Jason Grace, praetor of the Twelfth Legion Fulminata, give you my final order: I resign my post and give you emergency field promotion to praetor, with the full powers of that rank. Take command of this legion!
+ - I was glad to be with her, but it also kind of hurt, and it hurt when I wasn’t with her, too.
+ - We choose to believe in Ma’at. We create order out of chaos, beauty out of ugly randomness. That’s what Egypt is all about.
+ - I get letters from college kids who have read Percy Jackson when they were younger who tell me, ‘I just passed my Classics exam.’ The books are accurate enough that they can serve as a gateway to Homer and Virgil.
+ - We tend to think of divorced or complicated families as a modern invention, and that is not at all true. You only have to read the Greek myths to see broken homes, widows, divorce, stepchildren, children trying to get along with new parents.
+ - Words had started swimming off the page, circling my head, the letters doing one-eighties as if they were riding skateboards.
+ - I’ve met plenty of embarrassing parents, but Kronos, the evil Titan Lord who wanted to destroy Western Civilization? Not the kind of dad you invited to school for Career Day.
+ - Your destiny grows clearer, Jason Grace. When the choice comes again- storm or fire- remember me. And do not despair.
+ - Green grass breaks through snow, Artemis pleads for my help, I am so cool.
+ - Carter Kane, 14, died tragically in Paris when he was eaten by his sister’s cat Muffin.
+ - Hi, this is Ganymede, cup-bearer to Zeus, and when I’m out buying wine for the Lord of the Skies, I always buckle up!
+ - You do the easy thing, the appealing thing, the peaceful thing, mostly it turns sour in the end. But if you take the hard path – ah, that’s how you reap the sweet rewards. Duty. Sacrifice. They mean something.
+ - Our problems started in Dallas, when the fire-breathing sheep destroyed the King Tut exhibit.
+ - The wind blowing through my ripped clothes was so cold that I felt like a Percysicle.
+ - So I saved your life, and you repaid me by raising Kronos. That’s fair.
+ - She held up her calloused, grimy fingers. Leo couldn’t help thinking there was nothing hotter than a girl who didn’t mind getting her hands dirty. But of course, that was just a general comment. Didn’t apply to Calypso. Obviously.
+ - I just love family meetings. Very cozy, with the Christmas garlands round the fireplace and a nice pot of tea and a detective from Scotland Yard ready to arrest you.
+ - Forget the chicken-nugget smoke screen. Percy wanted Leo to invent an anti-dream hat.
+ - I blinked the sleep out of my eyes and realized my head was in Khufu’s lap. The baboon was foraging my scalp for munchies. “Dude.” I sat up groggily. “Not cool.” “But he gave you a lovely hairdo,” Sadie said. “Agh-agh!” Khufu agreed.
+ - I found myself staring at her, which was stupid since I’d seen her a billion times. Still, she seemed so much more mature. It was kind of intimidating. I mean, sure, she’d always been cute, but she was starting to be seriously beautiful.
+ - Tantalus made a wild grab, but the marshmallow committed suicide, diving into the flames.
+ - Writing is like a sport. If you don’t practice, you don’t get any better.
+ - Yours in demigodishness, and all that. Peace out!
+ - To foreswear romantic love forever. To never grow up, never get married. To be maiden eternally.
+ - Good job on Percy Jackson I read all of them 8 times and have listened 42 times and still not bored Thanks.
+ - Patterns repeat themselves in history.
+ - Wouldn’t that put a twist in your toga?
+ - That sounded about as likely as Apophis and Ra becoming Facebook buddies, but I decided not to say anything.
+ - Is a knife evil? Only if the wielder is evil.
+ - Some risks are worth taking, even if it means losing a life.
+ - Son of Poseidon? East asked. I nodded. Took a dip in the Styx? Hudson asked. Yep. They made digusted sounds. Well that’s perfect East said. Now how do we kille him?
+ - He didn’t think much of fates and prophecies, but he did believe in one thing: Annabeth and he were supposed to be together.
+ - Sometimes mortals can be more horrible than monsters.
+ - Oh, I wouldn’t say Love always makes you happy. Sometimes it makes you incredibly sad.
+ - The last time I’d seen the Minotaur, he’d been wearing nothing but his tighty whities. I don’t know why. Maybe he’d been shaken out of bed to chase me.
+ - Knowledge of any value can’t be given. It must be sought and earned.
+ - It’s not bad enough I am exiled? It’s not bad enough you take away the few good heroes I’m allowed to meet? You think it’s funny to send me this this – this charbroiled runt of a boy to ruin my tranquility? This is NOT FUNNY! Take him back!
+ - I should’ve been very cross with Anubis. Kissing me without permission – the nerve!
+ - And if I was humming “Happy Birthday” and smiling stupidly as I fled for my life – well, that was nobody’s business, was it?
+ - The wood nymph instructors left me in the dust. They told me not to worry about it. They’d had centuries of practice running away from lovesick gods. But still, it was a little humiliating to be slower than a tree.
+ - I accidentally vaporize my pre-algebra teacher.
+ - They had a silent staring contest, but Percy didn’t back down. When he and Annabeth started dating, his mother had drummed it into his head: It’s good manners to walk your date to the door. If that was true, it had to be good manners to walk her to the start of her epic solo death quest.
+ - I’ve found peace here at the co-op. You could stay with us, if you want. Become a ROFLcopter.
+ - Far, far below, red liquid bubbled. Blood? Lava? Evil ketchup? None of the posibilities were good.
+ - To all my librarian friends, champions of books, true magicians in the House of Life. Without you, this writer would be lost in the Dust.
+ - She wondered if it was her stupid mother, the goddess of love, messing with her thoughts. If Piper started getting urges to read fashion magazines, she was going to have to find Aphrodite and smack her.
+ - We only came close to dying six or seven times which I thought was pretty good. A minute later Annabeth hit a slippery patch of moss and her foot slipped. Fortunately she found something else to put it against. Unfortunately that something was my face.
+ - Oh, my dear! I’m afraid you’ve mistaken me for someone else! My name is Rhea Silvia. I was the mother to Romulus and Remus, thousands of years ago. But you’re so kind to think I look as young as the 1950s.
+ - Our secret weapon, Khione! We’re not just a bunch of demigods. We’re a team.
+ - Laistrygonians. Cannibals. Northern Giants. Sasquatch legend. Yep, yep. They are not birds. Not birds of North America.
+ - I need to use the Dam Bathroom, I need to use the Dam Snack bar, I want a Dam Tee-Shirt.
+ - As a magician, you must think about chaos and order. Those are the two forces that control the universe.
+ - Met them. Killed them. Got the T-shirt.
+ - Percy was getting tired of water. If he said that aloud, he would probably get kicked out of Poseidon’s Junior Sea Scouts, but he didn’t care.
+ - I looked into his eyes, and I realized he was the same man I’d seen in my dreams. His face might be totally different, but the same soul was in there, the same intelligence and all the sadness.
+ - I didn’t understand how. But the toilets had responded to me. I had become one with the plumbing...
+ - Hello, Hazel Levesque.
+ - Yes, Horus said. I remember this place. It’s El Paso, I told him. Unless you went out for Mexican Food, you’ve never been here.
+ - But she wondered why beautiful things had to be wrapped up with evil history. Or was it the other way around? Maybe the evil history made it necessary to build beautiful things, to mask the darker aspects.
+ - Frank Zhang: lumbering klutz, child of Mars, part-time pachyderm.
+ - Well that was sucktastic.
+ - The dead aren’t scary. They are just sad.
+ - Nothing like watching your relatives fight, I always say.
+ - The meeting was like a war council with donuts. Then again, back at Camp Half-Blood they used to have their most serious discussions around the Ping-Pong table in the rec room with crackers and Cheez Whiz, so Percy felt right at home.
+ - Grover: It’s a very sweet love story. I get misty-eyed every time I play it. So does Percy, but I think that’s because he’s laughing at me.
+ - My fatal flaw is hubris. The brown stuff they spread on veggie sandwiches? No, seaweed brain. That’s hummus. Hubris is worse. What could be worse than hummus?
+ - I don’t leave her speechless very often. I have to enjoy those rare moments.
+ - Sometimes wisdom came from strange places, even from giant teenaged goldfish.
+ - He looked like an evil male model, showing off what the fashionable college age villain was wearing to Harvard this year.
+ - Even when she looked scared, she had a lot of guts.
+ - I am never, ever, going to make things easy for you, Seaweed Brain. Get used to it.
+ - Remake the world, a little at a time, each in your own corner of the world.
+ - The truth hit him. Jason wasn’t quite Roman anymore. His time at Camp Half-Blood had changed him. Reyna had recognized that. Apparently, so did the undead legionnaires. If Jason no longer gave off the right sort of vibe, or aura of a Roman leader...
+ - Khufu carefully picked out everything that ended with-o – Doritos, Oreos, and some chunks of meat. Buffalo? Armadillo? I was scared to even ask.
+ - I felt like one of Apollo’s sacred cows- slow, dumb, and bright red.
+ - He looked like those paintings of baby angels – what do you call them, hubbubs? No cherubs. That’s it. He looked like a cherub who’d turned middle-aged in a trailer park.
+ - Oh, don’t mind me! Just the queen of the heavens, dying over here!
+ - I want some time without you organic life forms.
+ - Leo had seen Tia Callida in action; she liked knives, snakes and putting babies in roaring fires. Yeah, definitely let’s unleash her rage. Great idea.
+ - Maybe, standing next to the obelisk of Ma’at, surrounded by the Sea of Chaos, we both realized that restraining ourselves from vengeance is what made us different from Apophis. Rules had their place. They kept us from unraveling.
+ - We’ll have to work on your bunny phobia later.
+ - You’re cute when you’re worried, your eyebrows get all scrunched together.
+ - Christmas in the Underworld was NOT my idea. If I’d known what was coming, I would’ve called in sick. I could’ve avoided an army of demons, a fight with a Titan, and a trick that almost got my friends and me cast into eternal darkness. But no, I had to take my stupid English exam.
+ - My girlfriend: sophomore honors student, demigod, and – oh, yeah – head architect for redesigning the palace of the gods on Mount Olympus in her spare time.
+ - My mother says looking is the nature of wisdom.
+ - Nico drank from the chalice, then offered it to Jason. “You asked me about trust, and taking a risk? Well, here you go, son of Jupiter. How much do you trust me?” Frank wasn’t sure what Nico was talking about, but Jason didn’t hesitate. He took the cup and drank.
+ - Percy tried to remember. He really did. For some reason, Annabeth and he had visited a spa and decided to destroy it. He couldn’t imagine why. Maybe they hadn’t like the deep-tissue massage? Maybe they’d gotten bad manicures?
+ - All right, cupcakes. You are about to see the Grand Canyon. Try not to break it. The skywalk can hold the weight of seventy jumbo jets, to you featherweights should be safe out there. If possible, try to avoid pushing each other over the edge, as that would cause me extra paperwork.
+ - Am I a troubled kid? Yeah, you could say that.
+ - Lots of death, huh? Personally, I’m trying to avoid lots of death, but you guys have fun!
+ - Gods have great power, but only humans have creativity, the power to change history.
+ - That’s what being a demigod was all about, not quite belonging in the mortal world or on Mount Olympus but trying to make peace with both sides of their nature.
+ - My understanding of magic is fairly straightforward. Hit enemies with a sword until they’re dead. If they rise again, hit them again. Repeat as necessary. It worked against Set.
+ - Before I could figure out how to apologize for being such an idiot, she tackled me with a hug, then pulled away just as quickly. “I’m glad you’re not a guinea pig.” “Me, too.” I hoped my face wasn’t as red as it felt.
+ - I gave her a smile that I hoped conveyed something like: Hey, you know I’m on your side. Gods are such jerks! But what can you do? Probably my expression actually conveyed: It’s not my fault! Please do not kill me!
+ - Perseus, you are not the hero.
+ - The dead see what they believe they will see. So do the living. That is the secret.
+ - You assume that it has to be a male god who finds a human female attractive? How sexist is that?
+ - For a moment, Percy actually remembered what it was like to be happy. He had an amazing girlfriend. They could have a future together.
+ - A general never shows despair. He instills confidence in his troops. He leads them forward, even into the mouth of death.
+ - Vitellius would’ve given Percy an hour-long lecture on the subject, probably with a PowerPoint presentation.
+ - Poseidon can come in too! We will eat you both! Seafood!
+ - The entrance to the Underworld is in Los Angeles.
+ - My mother was gone. The whole world should be black and cold. Nothing should look beautiful.
+ - Does truth have a moral?
+ - Kids are baby goats. They’re cute and they have redeeming social value. You are definitely not kids.
+ - Travis: The Aphrodite kids were ripping each other’s clothes and throwing lipstick and jewellery. It was like a rabid herd of wild Bratz.
+ - Before Keto could notice, Hedge pointed towards the top of the amphitheater. It looked like he might be screaming, Gods of Olympus, what is that? Keto turned. Coach Hedge promptly took off his fake foot and ninja-kicked her in the back of the head with his goat hoof.
+ - Getting eaten by a giant crocodile was bad enough. The kid with the glowing sword only made my day worse.
+ - Leo. Jason said, you’re wierd. Yeah, you tell me that a lot. Leo grinned. But if you don’t remember me, that means I can reuse all my old jokes. Come on!
+ - You drool when you sleep.
+ - Sanchez looked at me and we locked eyes a second too long. There was nothing I could do about it. The signal went out. A moment of clear, silent hostility passed between us as hotly charged and unintentional as a thousand-volt arc through a squirrel.
+ - You began your journey here as a pup. Now you must find your way back. A new quest, a new start.
+ - Yeah, well. I don’t try to be awesome. It just comes natural.
+ - If you don’t like it you can kiss my quiver.
+ - I’d love to tell you I had some deep revelation on my way down, that I came to terms with my own mortality, laughed in the face of death, et cetera. The truth? My only thought was: Aaaaggghhhhh!
+ - As we rose over the rooftops I caught my breath-well, if you can catch your breath underwater.
+ - Our baboon was going completely sky goddess – which is to say, nuts.
+ - I tried to think of something to say. Excuse me? Hello? Marry me? Anything would have done.
+ - Sadie Kane here. If you’re listening to this, congratulations, you survived doomsday.
+ - Akhlys lunged at Percy, and for a split second he thought: Well, hey, I’m just smoke. She can’t touch me, right? He imagined the Fates up in Olympus, laughing at his wishful thinking: LOL, NOOB!
+ - I must admit I’m impressed, Sadie. You controlled your magic and controlled Isis. And you, Carter, did well turning into a lizard.
+ - My experience with Khonsu had taught me not be greedy about time. It was best to appreciate what you had and not yearn for more.
+ - Monsters don’t die. They just dissipate into smoke and dust, which saves heroes a lot of trouble cleaning up after a fight.
+ - Calm down, Horus said. “Don’t tell me to calm down!” Bast frowned. “I didn’t.” “Talking to him!” I pointed at my forehead.
+ - A ruby-encrusted orb popped its top and helicopter blades unfolded. Leo was glad Buford the table wasn’t here-he would’ve fallen in love.
+ - I think kids will read more good books than we can possibly produce.
+ - Piper gave Lit a friendly sorry-about-that smile. Even with her hair messed up and wearing two-day-old clothes, she looked extremely cute, and Jason felt a little jealous she was giving Lit that smile.
+ - Poseidon held out his arms and gave me a hug. I realized, a little embarrassed, that I’d never actually hugged my dad before. He was warm – like a regular human – and he smelled of a salty beach and fresh sea air.
+ - She deserved at least one person who saw her and knew how good she was.
+ - I didn’t answer, but, please – nothing is obvious with boys. For such simple creatures, they are quite baffling.
+ - It’s useless to lecture a human.
+ - Gods forbid if she ever broke up with him. She’d never be able to visit the sea again without remembering her broken heart. Annabeth about Percy.
+ - You mix Greek and Roman, you know what you get? You get BAM!
+ - Maybe it’s okay to still be a kid every once in a while.
+ - Annabeth realized that if six of them went on these two quests, it would leave Percy alone on the ship with Coach Hedge, which was maybe not a situation a caring girlfriend should put him in. Nor was she eager to let Percy out of her sight again – not after they’d been apart for so many months.
+ - He could’t have survied a hundred foot drop. I’m sorry Annabeth.
+ - I got ready for bed and crawled in. The covers were comfortable and warm, but the pillow was just too weird. It gave me neck cramps, so I put it on the floor and went to sleep without it. My first big mistake.
+ - I think every writer struggles in some way with writers block. The trick is to plan out what you are going to say beforehand. I found out that if you make an outline you’re much less likely to get blocked when you get into the middle of the story.
+ - Teach you to try marrying me, you idiot!
+ - Heroes like you always have a weak spot. We just have to find it, and then we can kill you. Won’t that be lovely? Have a cheese ‘n’ Wiener!
+ - And I was holding someone who was destined to be my best friend, or possibly my worst enemy.
+ - I stepped forward. Call me old-fashioned, but I wanted to keep his focus on me and not Annabeth. I think it’s polite for a guy to protect his girlfriend from instant incineration.
+ - If not for the horses, Piper would’ve died.
+ - Tyson thought Annabeth was just about the coolest thing since peanut butter, and he SERIOUSLY loved peanut butter.
+ - We were just looking at maps...
+ - If you look at it from any other side, it looks like a pile of enormous deer droppings, but Chiron wouldn’t let us call the place the Poop Pile, especially after it had been named for Zeus, who doesn’t have much of a sense of humor.
+ - I’ve always found the second book in a series is the hardest to write.
+ - If my mom told one more story about how cute I looked in the bathtub when I was three years old I was going to burrow into the snow and freeze myself to death.
+ - He offered to stop the tide for me once. He offered to build me a palace at the bottom of the sea.
+ - Here’s a tip, Alyconeus. Next time you choose the biggest state for your home, don’t set up base in the part that’s only 10 miles wide. Welcome to Canada, idiot.
+ - All of my characters tend to be montages of different people I’ve met: little bits and pieces of their personalities put together.
+ - I think anytime you’re writing to the middle grades, you’re writing to young readers who are trapped in a number of ways between two worlds: between childhood and adulthood, between their friends and their parents.
+ - I have a great deal of sympathy for reluctant readers because I was one. I would do anything to avoid reading. In my case, it wasn’t until I was 13 and discovered the ‘Lord of the Rings’ that I learned to love reading.
+ - I’ve always liked the idea that writing is a form of travel. And I started my writing career as a mystery novelist for adults.
+ - Rachel: They asked me a lot of questions about you. I played dumb. Annabeth: Was it hard?
+ - One basketball to rule them all.
+ - Lovely. Imprisoned in a nursery school dungeon.
+ - Oh, lord. I was beginning to think like Neith. Soon I’d be huddled in an underground bunker eating army rations and cackling as I sewed together the pockets of all the boys who’d jilted me.
+ - Just for you non-sea-god types out there, don’t go swimming in New York Harbor. It may not be as filthy as it was in my mom’s day, but that water will still probably make you grow a third eye or have mutant children when you grow up.
+ - June cackled with delight, muttering, “Whoops!” as a car almost killed them.
+ - Knowledge isn’t always good for you.
+ - I couldn’t help thinking about my dream, with Annabeth crumpled and lifeless in Luke’s arms. Here I was rescuing baby monsters, but I couldn’t save my friend.
+ - Percy: I thought I’d lost my mom forever, and I was stuck on a hill in a thunderstorm fighting this huge bull dude while Grover was passed out wailing. “Food!” It was terrifying, man.
+ - Even from far away, I could see people being chased by hellhounds, burned at the stake, forced to run naked through cactus patches or listen to opera music.
+ - The metal blade hit her shoulder and passed cleanthrough her body as if she were made of water. HISSS!
+ - A surgeon would never hesitate to amputate a rotting hand, no matter how faithfully it had served its owner in the past.
+ - Whoa, boy, he told himself. Golden Rule for Demigods: Thou shalt not Hokey Pokey with psychos.
+ - My dear, I’m a cat. Everything I see is mine.
+ - The future for Commander Tool Belt was not looking so hot.
+ - You Titans are about as bright as my gym socks.
+ - Honestly, I thought I was going to be a kite forever, suffocating inside a little feathery prison. And he had the nerve to make fun!
+ - Nobody welcomes a war – not if they’re smart. But war finds everyone sooner or later. It’s inevitable.
+ - Leo waited while the fish centaur put away his supplies. Aphros’s lobster-claw horns kept swimming around in his thick hair, and Leo had to resist the urge to try and rescue them.
+ - I may be biased, but I think jackals are cute and cuddly, even if they were known for digging up graves in Ancient Egypt.
+ - After all the dangerous adventures I’d had, I couldn’t die like this. Sadie would be devastated. Then, once she got over her grief, she’d track down my soul in the Egyptian afterlife and tease me mercilessly for how stupid I’d been.
+ - Never bet against a cat.
+ - I heard Amos yell, “For Brooklyn!” It was an odd battle cry.
+ - For an absurd moment, I wondered if Ammit devoured the hearts of wicked cows, and if he liked the beefy taste. – Carter Kane.
+ - No which fish are big enough to land.
+ - All right cupcakes listen up!
+ - Just because you don’t see me doesn’t mean I wasn’t there.
+ - Nico leaned over and plucked a grape. Probably that was the guy’s entire diet for the day.
+ - I grabbed a pair of glowing red legs.
+ - It was a crazy idea. But, as usual, that’s all Percy had.
+ - We were absolutely destined to meet your hot sister.
+ - Feel the wrath of wheat!
+ - There’s no point in defending camp if you guys die. All our friends are here.
+ - I could hear hopefulness in her voice, but also doubt. She was waiting for me to admit the obvious: I’d forgotten. I was toast. I was boyfriend roadkill.
+ - Down in the water, Octavian yelled, “Get me out of here! I’ll kill you!” “Tempting,” Percy called down.
+ - So what if they were in Tartarus? So what if they stood a slim chance of surviving? He was so glad that they were together, he had the ridiculous urge to smile.
+ - Hope survives best at the hearth.
+ - You know how hard it is to feel like an extreme falcon-headed combat machine when somebody calls you “chicken man”?
+ - People usually asked her if she had a belly button. Of course she had a belly button. She couldn’t explain how. She didn’t really want to know.
+ - The whole campfire idea freaked Piper out. It made her think of that huge purple bonfire in the dreams, and her father tied to a stake. What she got instead was almost as terrifying: a sing-along.
+ - Texting, even browsing the Internet – all these things can attract monsters.
+ - Staplers – Excellent source of iron.
+ - Until she met the exploding statue, Annabeth thought she was prepared for anything.
+ - Thalia’s shoulders relaxed. “I owe you one.” “Two.” “One and a half,” Thalia said. She smiled, and for a second, I remembered that I actually liked her when she wasn’t yelling at me.
+ - Our camels plodded along. Katrina tried to kiss, or possibly spit on Hindenburg, and Hindenburg farted in response. I found this a depressing commentary on boy-girl relationships.
+ - For the rest of my life I would always be thinking about her. She would always be my biggest what if. -Perseus Jackson.
+ - Leo frowned at the giant’s spire. “Can’t we blow it up or something?” “Without me, you do not have the power,” Hera said. “You might as well try to destroy a mountain.” “Done that once today,” Jason said.
+ - It’s just Annabeth mom jeez!
+ - We’d just released a zebra in Las Vegas.
+ - We swallowed a few bites-not to much scince the food of the gods can burn you to ashes is you overindulge. I guess thats why you don’t see many fat gods.
+ - Afterward, I had the last laugh. I made an air bubble at the bottom of the lake. Our friends kept waiting for us to come up, but hey-when you are the son of Poseidon, you don’t have to hurry. And it was pretty much the best underwater kiss of all time.
+ - Think positive girl, or the world ends.
+ - Stupid Sixteen year old kid falling from the sky! I’m late!
+ - Leo fell in love with every girl he saw-as long as she was completely out of his league.
+ - Gods tend to be selfish. Even when they’re helpful, they always have their own motives. That’s why you have to be careful about trusting them.
+ - Teachers and librarians are some of my favorite people, especially since I was a teacher myself. I love talking to them because they have wonderful ideas about how to share books, and especially about how to share my books with kids.
+ - I pictured my mom, alone in our little apartment on the Upper East Side. I tried to remember the smell of her blue waffles in the kitchen. It seemed so far away.
+ - After my bad experience as a kite, I simply refused to go about as a glowing Sadie-headed chicken. That’s fine for Carter, but I have standards.
+ - You are one freaking awesome baboon.
+ - We are servants of Ma’at – order and justice. We don’t kill our enemies for things they might do in the future.
+ - I always love it when I hear back from kids who say they discovered Percy Jackson and now wear their learning difference as a badge of honour.
+ - When she kissed me, I had the feeling my brain was melting right through my body.
+ - You’re pretty smug, Lord Ares, for a guy who runs from Cupid statues.
+ - I guessed his name was Face of Horror. I wondered how long it had taken his mom to think of that. Bob? No. Sam? No. How about Face of Horror?
+ - You must carry on my spirit. It can no longer be carried by a god. It must be taken up by all of you. – Pan.
+ - I left him in his wheelchair, staring sadly into the fireplace. I wondered how many times he’d sat here, waiting for heroes that never came back.
+ - I thought she’d make some comment about the bloodthirsty gods chasing us, but when she finally found her voice, she said, “That boy kissed you!” Leave it to Liz to have her priorities straight.
+ - I stared at her. Maybe I wasn’t the brightest guy in the world when it came to girls, but I was pretty sure Rachel had just dumped me, which was lame considering we’d never even been together.
+ - He’d learned years ago it was better not to dwell too much on who was related to whom on the godly side of things. After Tyson the Cyclops adopted him as a brother, Percy decided that that was about as far as he wanted to extend the family.
+ - Imitation is flattery.
+ - First, you start carrying a man satchel. Next thing you know, you’re running around in a bathrobe and pink bunny slippers, chasing chickens with a weed whacker.
+ - So I took her hand, and I don’t know what everybody else heard, but to me it sounded like a slow dance: a little sad, but maybe a little hopeful, too.
+ - Silena appeared out of the woods, her sword drawn. Her Aphrodite armour was pink and red, colour coordinated to match her clothes and makeup. She looked like Guerilla Warfare Barbie.
+ - We heard the army before we saw it. The noise was like a cannon barrage combined with a football stadium crowd- like every Patriots fan in New England was charging us with bazookas.
+ - If you were a god, how would you like being called a myth, an old story to explain lightning? What if I told you, Perseus Jackson, that someday people would call you a myth, just created to explain how little boys can get over losing their mothers?
+ - You promised, Seaweed brain. We would not get separated! Ever again!
+ - I hadn’t seen my dad get violent since the Great Spatula Incident, and I wasn’t anxious to see a repeat of that.
+ - BAD COW!
+ - I wanted to keep things as normal as possible for the trainees, so I led my usual morning class. I called it Magic Problem-Solving 101. The trainees called it Whatever Works.
+ - My stomach churned. The monster had mimicked Thalia perfectly. If I’d heard that voice in the dark, calling for help, I would’ve run straight toward it.
+ - Leo had wanted to paint a giant message on the bottom of the hull-WASSUP? with a smiley-face-but Annabeth had vetoed the idea.
+ - If i’m going to survive, it won’t be because i have a lion-skin cloak. I’m not Hercules.
+ - That was so completely unfair that I told Tantalus to go chase a donut, which didn’t help his mood.
+ - The forge looked like a steam-powered locomotive had smashed into the Greek Parthenon and they had fused together.
+ - Curse Hermes and his multi-vitamins!
+ - The thing about plummetting downhill at fifty miles an hour on a snack platter – if you realize it’s a bad idea when you’re halfway down, it’s too late.
+ - So, if I looked him up on google maps-.
+ - The taller they are, the longer they fall.
+ - Sometimes she teased me that she’d eventually catch up to me in age and be my older sibling. Looking at her now, with that determined glint in her eyes and the confidence in her voice, I could almost believe her.
+ - He was beautiful the way an angel is beautiful – timeless, perfect, remote.
+ - Annabeth sat up and glared at her ankle. “You HAD to break,” she scolded it. The ankle did not reply.
+ - I don’t think about being famous, really. Being an author, I don’t generally get stopped as I walk down the street. It’s not like being a movie star.
+ - Apparently, word of the chicken man incident hadn’t spread quite yet.
+ - I guess it wasn’t everyday they see a yellow lifeboat with no engine going a hundred knots an hour, manned by three kids.
+ - I like to have a simple workplace.
+ - Back when I taught middle school and wrote adult mysteries, my students often asked me why I wasn’t writing for kids. I never had a good answer for them. It took me a long time to realize they were right.
+ - Lookin up at the huge baboons, I wondered if Khufu had some sort of secret baboon code that would get us in. But instead he barked at the statues and cowered heroically behind my legs.
+ - I looked back, but Bast and Sadie seemed fine. They were still staring at the water as if it were some amazing Internet video.
+ - Chiron probably wanted me to say, Heck it wa nothing. I eat hellhounds for breakfast. But I didn’t feel like lying.
+ - I wrote for 10 years before I even started the ‘Percy Jackson’ series.
+ - It was beautiful in a harsh I’m-going-to-gut-you-like-a-fish kind of way.
+ - Keep a demon busy, I thought. Right. Maybe he fancies a game of Tiddlywinks.
+ - Yes,? she said. ‘The Great Prophecy has begun.’ Pandemonium broke out.
+ - Happy the Dragon was not so happy.
+ - Set screamed something in Ancient Egyptian. I was fairly sure it wasn’t a compliment. “I will rend your limbs from their sockets!” he shouted. “I will – ” “Die?” Carter suggested.
+ - Despicable creatures, vultures: without a doubt the most disgusting birds ever. I suppose they served their purpose, but did they have to be so greasy and ugly? Couldn’t we have cute fuzzy rabbits that cleaned up roadkill instead?
+ - I’m a cat. I respect the sanctity of sleep.
+ - If possible, try to avoid pushing each other over the edge, as that would cause me extra paperwork.
+ - Either the kid was naturally hyper or he was hopped up on enough caffeine to give a heart attack to a water buffalo.
+ - Piper, you’re the strongest, most powerful beauty queen I’ve ever met. You can trust yourself. For what it’s worth, you can trust me too.
+ - Ptah? son of ptooey? What is he god of spitting? i asked.
+ - I was wondering how you got all that out of a single moooooo.
+ - There were a lot of answers I might’ve given, from “I knew that” to “LIAR!” to “Yeah right, and I’m Zeus.” – Percy, after Quintus says that he is Daedalus.
+ - She’d secretly had a crush on him since they were twelve years old. Last summer, she’d fallen for him hard.
+ - I don’t like you two going off on you won. Just remember: behave. If I hear about any funny business, I will ground you until the Styx freezes over.
+ - I racked my brain trying to remember the names of all of Nut’s five children. Bit difficult without my brother, the human Wikipedia, around to keep track of such trivia for me.
+ - Being turned into a lizard can really mess up your day.
+ - And when demigods use cell phones, the signals agitate every monster within a hundred miles. It’s like sending up a flare: Here I am! Please rearrange my face!
+ - Hey Grover! Thorn’s kidnapping us! He’s a poisonous spike-throwing maniac! Help!
+ - You’d think getting chopped into a million pieces and cast into the darkest part of the Underworld would give him a subtle clue that nobody wanted him around.
+ - Percy pushed on his side furiously and the crack closed. His eyes blazed with anger. She hoped he wasn’t mad at her, but if he was she couldn’t blame him. If it keeps him going, she thought, then let him be angry.
+
+500 quotes

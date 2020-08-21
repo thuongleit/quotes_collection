@@ -1,0 +1,32 @@
+ - You’re like a turd that won’t flush.
+ - I used to have to wear a gas mask to school when I was a kid because of the dust. I would tell people that the first light I saw was in a movie theater, because the sun was just a little glow.
+ - Just because it happened to you, doesn’t mean it’s interesting.
+ - Dialectic logic is there’s only love and hate, you either love somebody or you hate them.
+ - The reality of things going on around me is more interesting than the fantasies of the world I work in.
+ - I am just a middle-class farm boy from Dodge City and my grandparents were wheat farmers. I thought painting, acting, directing and photography were all part of being an artist. I have made my money that way. And I have had some fun. It’s not been a bad life.
+ - It takes more than going down to the video store and renting “Easy Rider” to be a rebel.
+ - The man is clear in his mind, but his soul is mad.
+ - My whole written history is one big lie! I mean, I can’t even believe my history.
+ - I should have been dead ten times over. I’ve thought about that a lot. I believe in miracles. It’s an absolute miracle that I’m still around.
+ - When we’re out of the eighties, the nineties are gonna make the sixties look like the fifties!
+ - People keep asking me, ‘What evil lurks in you to play such bad characters?’ There is no evil in me, I just wear tight underwear.
+ - Work is fun to me. All those years of being an actor and a director and not being able to get a job – two weeks is too long to not know what my next job will be.
+ - Independent films in this country are in the same position. Miramax and Fine Line are not independent – they’re with Disney! Come on. Or they’re with Warner Brothers. They’re all with somebody.
+ - There are moments that I’ve had some real brilliance, you know. But I think they are moments. And sometimes, in a career, moments are enough.
+ - In Method acting, you can’t have preconceived ideas. You have to live in the moment. You have to keep yourself open.
+ - The best and only authentic book written on the sixties underground.
+ - I’ve been a Republican since Reagan. I voted for Bush and his father. I don’t tell a lot of people, because I live in a city where somebody who voted for Bush is really an outcast.
+ - When I was about 14. I saw my first mountain. I saw the ocean for the first time. I remember thinking that that ocean looked very similar to our wheat fields. I didn’t know what I thought I would see when I looked out at the ocean, but I thought I’d see something different.
+ - Well, it’s not just money. I consider myself establishment right now. I’m borderline establishment, I’m hanging on by my toenails – but I’m establishment.
+ - I was very shy, and it was a lot easier for me to communicate if I had a camera between me and other people.
+ - Art is a bad word in Hollywood. You use art too many times and they show you the elevator and then your name is taken off the parking lot.
+ - To make a documentary is one thing, to make a feature film is quite another.
+ - You know, this is such a rich time that we’ve just been involved in, and there’s really a job now for historians. Film is still very young. This is the first hundred years of filmmaking. So I think it’s important that we have some sense of history and continuity. Especially in film.
+ - You know, the history of California art doesn’t start until about 1961, and that’s when these photographs start. I mean, we have no history out here.
+ - For most of my life I wasn’t on the left.
+ - I was a Shakespearean actor, I had preconceived ideas, line readings – everything was a gesture, everything was conscious.
+ - Like all artists, I want to cheat death a little and contribute something to the next generation.
+ - I was reading a lot of Thomas Jefferson at the time, and Jefferson said that every 20 years, if one party has stayed in power, it’s your obligation as an American to vote the other party in.
+ - I wanted to be an actor. I decided when I was very young, when I first saw movies, that I wanted to be an actor.
+
+30 quotes

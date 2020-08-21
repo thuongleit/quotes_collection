@@ -1,0 +1,75 @@
+ - Strong and healthy is the new sexy.
+ - Skinny girls look good in clothes, but fit chicks look good naked.
+ - Everyone wants to win. But to truly succeed – whether it is at a sport or at your job or in life – you have to be willing to do the hard work, overcome the challenges, and make the sacrifices it takes to be the best at what you do.
+ - I’m scared of failure all the time. But not scared enough to stop trying.
+ - It’s your purpose to leave the world better than how you found it.
+ - I train to be the best in the world on my worst day.
+ - Some people like to call me cocky or arrogant, but I just think ‘how dare you assume I should think less of myself’
+ - Life is a fight from the minute you take your first breath to the moment you exhale your last.
+ - Sports are a metaphor for life.
+ - If you’re unwilling to leave someplace you’ve outgrown, you will never reach your full potential. To be the best, you have to constantly be challenging yourself, raising the bar, pushing the limits of what you can do. Don’t stand still, leap forward.
+ - You have to fight because you can’t count on anyone else fighting for you. And you have to fight for people who can’t fight for themselves. To get anything of real value, you have to fight for it.
+ - To be a fighter, you have to be passionate. I have so much passion, it’s hard to hold it all in. That passion escapes as tears from my eyes, sweat from my pores, blood from my veins.
+ - Easy lives make boring people.
+ - You have to have fear in order to have courage.
+ - A belt does nothing but hold your gi together. A belt has assigned significance, a belt is someone else saying you’re good, you don’t need other people saying that you’re good in order to be good.
+ - I’m living such a lucky and blessed life and I’m trying my best to deserve it.
+ - I am vulnerable; that’s why I fight.
+ - My first injury ever was a broken toe, and my mother made me run laps around the mat for the rest of the night. She said she wanted me to know that even if I was hurt, I was still fine.
+ - No one has the right to beat you.
+ - Reality TV is set up to make people entertaining. A good person with values and principles is not good television.
+ - Do I ever get tired of being the first female everything? Not really, I just happened to be in a position where the job that I wanted was not really there for me. I had to create an opportunity instead of waiting for an opportunity.
+ - There was a long time I had no job security, no options and no education.
+ - If you work hard the fight’s easy. If you don’t work hard then the fight’s hard.
+ - I’ve never had anything cold and wet touching my butthole before. That was quite the experience!
+ - I don’t shy away from any questions. I’m not scared of any question. I’ll give you an answer. A lot of people are scared of having actual opinions out there. People are so scared of criticism I’m not scared of people disliking me.
+ - The whole ‘bad girl’ thing allows me to mess up sometimes. And I have freedom to say more of what I want to.
+ - I don’t want little girls to have the same ambitions as me. But I want them to know that it’s okay to be ambitious.
+ - I’m going to retire undefeated. I’ll take everybody out one-by-one then go on my merry way.
+ - My one fear is failure and that’s one fear I have to face all the time. Yes, it’s uncomfortable to be scared but I’m finally comfortable being uncomfortable.
+ - I’m the most dangerous unarmed women in the world, I’ve prepared my entire life to be that way.
+ - For me, MMA is like speed chess. It’s like I’m herding a person into a certain position. Say my endgame is an arm bar. I’m not gonna actually take you and put you there. What I’m going to do is convince you that it’s a good idea to move in the direction I want you to go.
+ - It was a very bold step for Sports Illustrated, and a lot of people are taking notice. I want it to be so normal that people don’t even notice anymore.
+ - At home, I watch fights and documentaries – that’s it. If it’s not about the birth and death of stars, ‘Frozen Planet,’ or someone getting punched in the face, I’m probably not watching it.
+ - When you shoot nude, you always find a way to, like, cover yourself up in a way. So you really don’t feel like you’re truly naked because you’re still covering yourself.
+ - Complimenting yourself is the funnest form of manifestation.
+ - When you’re doing something like body paint or a nude shoot, you’re making yourself very vulnerable, and you’re really trusting people to really take care of you and make sure everything is very professional.
+ - I kind of like to think of myself as the bad girl Olympian that would get kicked out of the Miss America pageant.
+ - Even before I was a fighter, I was a daddy’s girl.
+ - I’m kind of like a middle mix between a warrior diet and a Paleo diet, so I only eat once a day and it’s at night – so kind of like interval fasting. But I eat until I’m full, I eat as much as I want, and I really don’t eat anything that you couldn’t find, you know, 10,000 years ago.
+ - Look at my face. Does it look like I can take a good hit?
+ - My father would say, ‘Ronnie, you’re going to be someone special. Whatever it is that you want to do, you’re going to be the best in the world at it.’
+ - Being an athlete, you try to get protein.
+ - I get asked that a lot and I always go back to my mom’s, ‘No one has the right to beat you.’ I take that to every venue that I’m in. She would say, ‘Someone has to be the best in the world, why not you?’ I always try to keep that in mind.
+ - I grew up with a lot of body image issues – not just about my weight, but I would always see these perfect orb, domed boobs on television, and think, “Mine don’t look like that.” I thought there was something wrong with me.
+ - There have always been people who have written me off. They’re not going away. I use that to motivate me. I’m driven to show them just how wrong they are.
+ - The Olympics is a once-in-a-lifetime thing. I was lucky enough to go twice, but most people only get one chance. And in judo you can train your whole life and it’ll come down to a split second: You can lose everything or win anything.
+ - That’s why I love fighting, because I get to have a big battle every couple months to make up for the little battles I have to forfeit every day.
+ - That I happened to fall into a career that no other girls wanted isn’t surprising to me. I wanted something that didn’t exist, so I had to create it.
+ - I think that going on any reality show is not good for your mental health because you behave differently when you are being watched, and you constantly have an extra bit of awareness of what’s going on all the time.
+ - I’m not a full model like those other girls. Mostly I was surprised that I could hang.
+ - The Sports Illustrated swimsuit issue really sets the social standard for what people expect the perfect woman’s body to look like, and a lot of those bodies usually look the same.
+ - I respect Georges St. Pierre as a businessman and an athlete. I don’t have anything against him personally. But he’s not the kind of fighter I like watching.
+ - As an athlete you’re taught to be selfish. When I’m training, it’s usually all about me.
+ - When I looked at the state of women’s MMA, what I saw was that it was missing rivalries or anything theatrical about it. Everybody was trying to be Miss America, unwilling to go under any kind of criticism, and taking the safe answers. I thought I needed to do whatever I could to get attention.
+ - In MMA it’s a lot less intimidating because it’s not like you get one shot at a title every four years. You get a title shot every couple of months With the Olympics, you don’t always have this, so there is so much more pressure involved.
+ - Where is women’s sports prominently displayed with the men? Tennis is the only thing I can think of.
+ - I try not to get caught up on how cool I am. That way nothing ever gets done. I’m always thinking about what I haven’t done.
+ - Sports Illustrated is very serious about their covers. They’ll never say, like, ‘Oh you got it.’
+ - The bigger my chest is, the more it gets in the way. It just creates space. It makes me much more efficient if I don’t have so much in the way between me and my opponent.
+ - I think that Floyd Mayweather is the best boxer that’s ever lived; like actual technical boxer.
+ - After I did the swimsuit issu?, I knew that I wanted to do it again.
+ - I’m going to beat Alexis Davis then take a nap.
+ - If I could have had everything exactly the way I wanted, this is how I would have written it down. Win all my fights in the first round, then go to the UFC and headline a show, and have it as a pay-per-view and at home. People’s dreams don’t come true like that.
+ - No one is easy until you actually beat them.
+ - I thought that I was mutant somehow. I eventually realized that I have a very natural look, and that’s what God gave me, and I’m proud of it. It was kind of a way for me to get past that as well.
+ - If there’s a camera on me or off me, it’s roughly the same, just a lot less energy.
+ - I’m a courageous person because I’m a scared person.
+ - I’ve coached doing judo, but I’ve never coached MMA. I’ll have my own coach with me to help me along the way and I can’t really fail with him by my side, but I’m a little nervous.
+ - The way that I like to fight is I like to paint myself into a corner and so the only way is for me to win.
+ - Even though I was painted, even though I had on seven layers of paint – to the point that I got a tan, it was as thick as a fabric – I think I felt the most naked because I couldn’t cover myself at all. I didn’t have to, so I had to be much more open and relaxed.
+ - Whenever people call me the first female this or that, it doesn’t make it more special because no one in front of me wanted the same job. I’ve always wanted weird stuff and enjoyed things differently than other girls.
+ - The thing that gets me up in the morning is that I’m really not ready to see someone that I know I can beat holding my belt.
+ - The reaction has been amazing because there is no woman that could look at these covers and not be like, ‘That’s what I could look like,’ or, ‘I pretty much already look like one of these chicks.’ It really makes beauty seem so much more attainable to people.
+
+73 quotes

@@ -1,0 +1,62 @@
+ - The older I get, the less I suffer fools gladly.
+ - I’m not bad, I’m just drawn that way.
+ - I think my mission is to become the greatest human I can. I know that sounds pompous, but what else do we have?
+ - I am dedicated to ensuring reproductive health and freedom for all.
+ - When someone is kissing you passionately, you feel passionate!
+ - I don’t see anything wrong with technology as long as it doesn’t interfere with your life.
+ - Women are responsible for creating their own roles.
+ - I am certainly a liberal.
+ - What makes me angry? The education of children. How in God’s name can you expect to have a functioning society the way we teach our kids?
+ - You shouldn’t get to live in society and give nothing back. People complain about their taxes, yet they do nothing for the community. That makes me furious.
+ - My husband says I can do anything I put my mind to, but the truth i, the only thing I want to do is act.
+ - I don’t think I’m anything like the improviser. I’m not. I do better with at least an outline.
+ - Organized religion is primarily man putting words in God’s mouth. That’s how I basically feel about that. But, I do believe in believing and I admire it. I just don’t think it should be exclusive or judgmental.
+ - I want people to like me. They don’t have to always like my characters, you understand.
+ - You’re not too smart, are you? I like that in a man.
+ - It never occurred to me that I couldn’t change things that needed changing or couldn’t have what I wanted if I worked hard enough and was good enough.
+ - I do not admire young actresses whose foreheads cannot move.
+ - The best role is always ahead.
+ - Crimes of Passion, which is one of the best films I’ve done, will live strongly in my resume, even though it didn’t do well.
+ - I never feel more alive than when I’m on stage. On film you feel chopped up, you can be acting from the neck up, or the hand, there is a lot of close up.
+ - My greatest fear when we were doing “Body Heat” was that I wouldn’t be sexy. I didn’t have a self-image of myself as this alluring, powerful, sexual female.
+ - Fearlessness at twenty springs from not knowing challenges lie ahead. Fearlessness at fifty comes from having wrestled with life’s challenges and learned from them.
+ - I figured as I got older, the good roles for women would be in the theatre. So 15 years ago I started building a Broadway career to try and develop the chops to be accepted as a great theatrical actress.
+ - There are still women who are not living their own lives, but living through their men or their children.
+ - I don’t really go to YouTube or, especially, participate in Facebook. I just really don’t want to know that many people!
+ - My father was a diplomatic officer. As a diplomat’s daughter, you have to learn to present yourself very early on.
+ - There’s something so muffled about the way you experience things. It’s as if you were trying to slip through life unchanged.
+ - I always thought the point was to have a bigger life, to meet more people. So I don’t understand Hollywood.
+ - There are always people doing things wrong who need to be taught, for their own good. That’s doable.
+ - I have a brother who’s a psychologist. He says three-quarters of the world are born feeling that they will be affected by the world; one quarter are born knowing that they will affect the world.
+ - I had a great deal of pressure to move to LA after Romancing the Stone came out and I’d become very popular. But people came to me anyway.
+ - The big gap between the ability of actors is confidence.
+ - I find the idea of today’s icons being teenagers incredibly uninspiring.
+ - I have health. I have a wonderful support system. I have the admiration of millions of strangers, which I do not underestimate.
+ - A woman my age is not supposed to be attractive or sexually appealing. I just get kinda tired of that.
+ - A woman can plan when to have her family and how to support a family.
+ - I rent houses in LA when I’m filming. I find the isolation there terrifying. There’s nowhere to go, there’s nowhere to be with people. I’m not a beach bunny.
+ - You know, when you’ve worked with somebody before and you’ve worked very deeply and dangerously then you start with the relaxation and the trust right away and that lets you go even deeper, which is a lovely thing.
+ - As I traveled from one country to another, no one knew anything about me. So I could be anybody, I could speak as I wished, act as I wished, dress as I wished.
+ - The roles that are written for women as they grow older in theater are much richer and much more powerful.
+ - The idea behind doing comedies is that you go home a little happier.
+ - I think Europeans have enough tradition and respect for the experience and body of work of an actress that they don’t sell out to the new ones.
+ - It begins and ends with money. It’s absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It’s obscene.
+ - The roles that I am attracted to are women who try to do something about their lives, and not a woman who waits for some circumstance or man to come rescue her. I have no interest in that.
+ - I don’t think it has to be one religious structure, one church. I think the issues of faith and redemption are much more universal than any one religion.
+ - Professionally, I have no age.
+ - What we need is more women writers, writing for older women. There are some actresses who have production companies and create their own material, and I truly admire that.
+ - I would certainly choose my jobs depending on the actions of the character. I won’t do anything that has to do with child abuse or women’s abuse.
+ - I’m not very active politically. The causes I work on offer immediate, practical, accessible help, and politics has never meant that to me.
+ - It’s fascinating how all of us, everyday, rely – at some point, to some extent, for some reason – on faith in our life. Whether it’s God or not, or “Please help me!”
+ - I’m very old-fashioned in some ways because of my father, who thought that being a public servant was an honor. Everyone must find a capacity in which they can serve, because we all benefit from society.
+ - I never took to Hollywood.
+ - If my ego was out of whack and I believed I could carry anything off, that would be a stupid risk. But so far there’s been no reason not to try anything.
+ - I don’t believe in simply accumulating money, but I have the luxury to say that, because I have enough for all my needs.
+ - Get more women producers, writers, directors. Why should we expect men to do it for us? They can’t.
+ - I often play women who are not essentially good or likable, and I often go through a stage where I hate them. Then I end up loving and defending them.
+ - At about 40, the roles started slowing down. I started getting offers to play mothers and grandmothers.
+ - I’m very practical. What I’m reaching for is individualism for women.
+ - Risk is the willingness to fail.
+ - I have no desire to play most of the roles being offered.
+
+60 quotes

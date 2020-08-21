@@ -1,0 +1,36 @@
+ - Sexuality is not a leisure or part-time activity. It is a way of being.
+ - A person who doesn’t breathe deeply reduces the life of his body. If he doesn’t move freely, he restricts the life of his body. If he doesn’t feel fully, he narrows the life of his body. And if his self-expression is constricted, he limits the life of his body.
+ - Death is the fate no one can escape. The question, then, is, How does one die? A person can die like a hero or like a coward. The difference is that the hero can face death without fear, whereas the coward can’t.
+ - Fear is another emotion that is strongly suppressed. We cannot afford to be afraid, and so we don’t allow ourselves to sense and feel the fear within us. We lower our brows to deny it, set our jaws to defy it, and smile to deceive ourselves. But inwardly we remain scared to death.
+ - Change is possible, but it must start with self-acceptance.
+ - No one is exempt from the rule that learning occurs through recognition of error.
+ - A person does not choose his or her fate; he or she only fulfills it. We are bound by our fate as long as we accept the values that determine it.
+ - It is only by making the past alive again for a person that a true growth in the present is facilitated. If the past is cut off, the future does not exist.
+ - Mature love is not a surrender of the self but a surrender to the self. The ego surrenders its hegemony of the personality to the heart, but in this surrender it is not annihilated. Rather it is strengthened because its roots in the body are nourished by the joy that the body feels.
+ - I would describe a hero as a person who has no fear of life, who can face life squarely.
+ - The ego exists as a powerful force in Western man that cannot be dismissed or denied. The therapeutic goal is to integrate the ego with the body and its striving for pleasure and sexual fulfilment.
+ - Despair is the only cure for illusion.
+ - Without awareness of bodily feeling and attitude, a person becomes split into a disembodied spirit and a disenchanted body.
+ - Beneath the seemingly rational exterior of our lives is a fear of insanity. We dare not question the values by which we live or rebel against the roles we play for fear of putting our sanity in doubt.
+ - The feeling of love is a rich feeling, but the expression of love in word or deed is a joy.
+ - Above all, faith is grounded in one’s body, in one’s humanity, and in one’s animal nature. It is an biological phenomenon and not a psychic creation.
+ - The path to joy leads through despair.
+ - Love is the feeling that emanates from the heart and extends through the blood to every cell of the body.
+ - Bioenergetics is an adventure in self-discovery. It differs from similar explorations into the nature of the self by attempting to understand the human personality in terms of the human body. Most previous explorations focused their investigations on the mind.
+ - We live in an ocean of air like fish in a body of water. By our breathing we are attuned to our atmosphere. If we inhibit our breathing we isolate ourselves from the medium in which we exist. In all Oriental and mystic philosophies, the breath holds the secret to the highest bliss.
+ - The only way you can make a marriage work is as free, independent people. It needs to be based on the good feelings that you have for each other, not on need.
+ - Sustenance for the infant and child is more than alimentary nourishment. The child needs love, security, narcissistic supplies – however one may describe it.
+ - In my opinion the hectic and almost frantic pace of modern living is a clear sign of the fear we have of being and of life. And as long as this fear exists in a person’s unconscious, he will run faster and do more so as not to feel his fear.
+ - The repression of the memory is dependent upon and related to the suppression of feeling, for as long as the feeling persists, the memory remains vivid.
+ - Because we are afraid of life, we seek to control or master it.
+ - If the ego is inflated it must be gradually deflated.
+ - Life is not a mixture of matter and energy but energy in matter, bound in such a way that dissociation is impossible so long as the living process continues.
+ - The single factor most responsible for the disruption of the family is the automobile. Its full effect cannot be assessed. Modern life, as we know, would be impossible without the ubiquitous motorcar. It broke up the old family and community.
+ - Not to fear a person with power – to profess, instead, one’s love – is to deny that that person has power.
+ - Everyone who becomes a psychotherapist eventually adopts a theory that suits his needs.
+ - Contact with reality is not an all-or-nothing condition.
+ - Power seems to confer on its possessor a mantle of superiority, specialness, and sexual potency, which the envious person desperately wants because he feels himself on some level to be inferior, unimportant, and impotent.
+ - What happened to me is that as I grew up, I found that I was smart. My mother had insisted on that you see. Oh, but I loved to play ball. I loved the physical aspect. So you have one leg in one field, and one leg in the other and you’re nowhere.
+ - The modern individual is committed to being successful, not to being a person. He belongs rightly to the action generation whose motto is do more but feel less.
+
+34 quotes

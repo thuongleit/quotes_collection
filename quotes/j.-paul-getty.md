@@ -1,0 +1,62 @@
+ - I’d rather have 1% of the effort of 100 men than 100% of my own effort.
+ - Money isn’t everything but it sure keeps you in touch with your children.
+ - The key to wealth is to learn how to make money while you sleep.
+ - If you can count your money, you don’t have a billion dollars.
+ - Patience; this is the greatest business asset. Wait for the right time to make your moves.
+ - There is only one way to make a great deal of money; and that is in a business of your own.
+ - The meek shall inherit the Earth, but not its mineral rights.
+ - Formula for success: rise early, work hard, strike oil.
+ - You must take risks, both with your own money or with borrowed money. Risk taking is essential to business growth.
+ - If you owe the bank $100 that’s your problem. If you owe the bank $100 million, that’s the bank’s problem.
+ - People who don’t respect money don’t have any.
+ - Wealth is only a benefit of the game of money. If you win, the money will be there.
+ - Buy when everyone else is selling and hold until everyone else is buying. That’s not just a catchy slogan. It’s the very essence of successful investing.
+ - The man who comes up with a means for doing or producing almost anything better, faster or more economically has his future and his fortune at his fingertips.
+ - Men of means look at making money as a game which they love to play.
+ - The individual who wants to reach the top in business must appreciate the might and force of habit. He must be quick to break those habits that can break him-and hasten to adopt those practices that will become the habits that help him achieve the success he desires.
+ - The employer generally gets the employees he deserves.
+ - Build wealth as a by product of your business success. If wealth is your only objective in business, you will probably fail.
+ - If you look after the pennies, the dollars will look after themselves.
+ - To build wealth today, you must be in your own business.
+ - To succeed in business, to reach the top, an individual must know all it is possible to know about that business.
+ - During the 1950s, Aristotle Onassis and I formed what grew to be a close friendship and association in several business ventures.
+ - Some people find oil. Others don’t.
+ - Nostalgia often leads to idle speculation.
+ - Money is like manure. You have to spread it around or it smells.
+ - Age doesn’t matter, unless you are cheese.
+ - I find all this money a considerable burden.
+ - A sense of thrift is essential to success in business. The businessman must discipline himself to practice economy whenever possible, in his personal life as well as his business affairs.
+ - I buy when other people are selling.
+ - My love of fine art increased – the more of it I saw, the more of it I wanted to see.
+ - The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.
+ - Whether we like it or not, men and women are not the same in nature, temperament, emotions and emotional responses.
+ - In times of rapid change, experience could be your worst enemy.
+ - Rhetoric and dialectics can’t change what I have learned from observation and experience.
+ - If you get up early, work late, and pay your taxes, you will get ahead – if you strike oil.
+ - You must never try to make all the money that’s in a deal. Let the other fellow make some money too, because if you have a reputation for always making all the money, you won’t have many deals.
+ - I hate to be a failure. I hate and regret the failure of my marriages. I would gladly give all my millions for just one lasting marital success.
+ - Going to work for a large company is like getting on a train. Are you going sixty miles an hour or is the train going sixty miles an hour and you’re just sitting still?
+ - You must not only learn to live with tension, you must seek it out. You must learn to thrive on stress.
+ - Books, like proverbs, receive their chief value from the stamp and esteem of the ages through which they have passed.
+ - The rich are not born sceptical or cynical. They are made that way by events, circumstances.
+ - There are one hundred men seeking security to one able man who is willing to risk his fortune.
+ - Before marriage, many couples are very much like people rushing to catch an airplane; once aboard, they turn into passengers. They just sit there.
+ - Getting results through people is a skill that cannot be learned in the classroom.
+ - I have no complex about wealth. I have worked very hard for my money; producing things people need.
+ - Without the element of uncertainty, the bringing off of even, the greatest business triumph would be dull, routine, and eminently unsatisfying.
+ - My yachts were, I suppose, outstanding status symbols.
+ - There are heads of royal families who control hereditary fortunes that defy comprehension.
+ - In my opinion, an individual without any love of the arts cannot be considered completely civilized.
+ - There may be some substitute for hard facts, but if there is, I have no idea what it can be.
+ - Once you have made it, you will understand that any business is limited in the challenges it offers. You will want and need other games to play, so you will look for other ventures to hold your interest.
+ - In business, as in politics, it is never easy to go against the beliefs and attitudes held by the majority. The businessman who moves counter to the tide of prevailing opinion must expect to be obstructed, derided and damned.
+ - You cannot further the Brotherhood of Man by encouraging class hatred.
+ - Oil is like a wild animal. Whoever captures it has it.
+ - Nationalized industries are notorious for their inability to operate at a profit.
+ - No one can possibly achieve any real and lasting success or ‘get rich’ in business by being a conformist.
+ - My wealth is not a subject I relish discussing.
+ - What I learned at Oxford has been used to great advantage throughout my business career.
+ - There are no safeguards that can protect the emotional investor from himself.
+ - There are always opportunities through which businessmen can profit handsomely if they will only recognize and seize them.
+
+60 quotes

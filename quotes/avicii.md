@@ -1,0 +1,31 @@
+ - Life’s a game made for everyone, and love is the prize.
+ - Life’s a game made for everyone and love is the prize. So wake me up when it’s all over – when I’m wiser and I’m older. All this time I was finding myself and I didn’t know I was lost.
+ - I tried carrying the weight of the world. But I only have two hands.
+ - When I started out, I was Avici with one i. But on MySpace, that name was taken.
+ - It’s hard – some people get inspired by a feeling, but I’m mostly inspired by melodies.
+ - There’s always haters, no matter what you’re doing – whether they’re complaining that everything you do sounds the same, or it’s too different.
+ - I think I am a pretty good judge of character in general and try to surround myself with the best people I can.
+ - I’ve always had a fascination with making your own music but never have been skilled enough to play the instrument, so to be able to make music without the ability was awesome.
+ - I always just sit down at the piano and make the main hook – what I want the track to be about melodically – and then I’ll build everything else around that. But growing up, I did not play any instruments.
+ - I’m a DJ. I get the party started.
+ - I actually only started listening to house music around the time I started making it. I got hooked both to making music and to house music.
+ - I have always been mainstream. It’s so weird, because I don’t see it as something negative at all. So many people see it as something negative.
+ - I love DJing, I do. I love everything that comes with it; it’s fun and it’s kind of glamorous.
+ - I travel with a bunch of battery packs because I don’t always have time to charge my phone at the hotel room when I’m traveling. I always change them, so I never run out of battery.
+ - I’ve always been a producer – that’s how I see myself first. The DJing came second as a way for me to be able to perform.
+ - I would never lay down a pre-programmed set and perform to a pre-mixed CD; I would never cheat my fans like that.
+ - I’ve tried plenty of telephones. I tried to get into the Samsung Galaxy and the Blackberry, but the iPhone is just too easy to use. The camera takes clear pictures and the phone itself looks great. Like all Apple products, it kind of just makes sense.
+ - When I started working on electronic music, that was after the rave period. I haven’t even seen that part of it that much.
+ - I have a hard time writing music when I’m on tour.
+ - When it comes to electronic music, I started listening to a lot of Daft Punk, way before I knew what house music was, and then progressed into a lot of Steve Angello, Eric Prydz, Axwell, Sebastian Ingrosso, and Laidback Luke.
+ - I grew up listening to a lot of Ray Charles and ’60s rock, thanks to my father, and then my brothers got me in to KISS and whatnot, so I guess that’s where I got my first taste for music.
+ - House music originated in America, and it has always been around, but I guess it just got a tighter hold on Europe and other parts of the world.
+ - If I wanted to make a quick buck, there’s far easier ways of doing it. What I want is to provoke people. If you want a hit song, all you need to do is rewrite an old song. It might have been proven to work, but you won’t be remembered the same way.
+ - Obviously there is stuff that I wouldn’t play in a club that I play at festivals, and vice-versa, but my sets are still dominated largely by my own music. I think that’s what makes me stand out a bit. My music is also festival- and club-friendly, so it generally works out well.
+ - I’m good at melody – I’ll write the top-line melody and ideal words I want to go with it. But I’m not that good at writing lyrics. I bounce those back and forth with songwriters or someone who can sing.
+ - I make sure to use both Twitter and Facebook a lot which helps me connect to the fans.
+ - I’ve always worn a lot of Ralph Lauren, and plaid shirts in general have been a signature piece for me. With plaid, you can look super-relaxed or you can look a bit dressed up.
+ - My dad has always been a big Ray Charles fan, and I’ve grown up listening to all kinds of music.
+ - People in Sweden are very conscious of what people are saying about you.
+
+29 quotes

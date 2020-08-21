@@ -1,0 +1,27 @@
+ - You dance love, and you dance joy, and you dance dreams.
+ - I may be rancid butter, but I’m on your side of the bread.
+ - You dance love, and you dance joy, and you dance dreams. And I know if I can make you smile by jumping over a couple of couches or running through a rainstorm, then I’ll be very glad to be a song and dance man.
+ - I still find it almost impossible to relax for more than one day at a time.
+ - When Ginger Rogers danced with Astaire, it was the only time in the movies when you looked at the man, not the woman.
+ - I didn’t want to move or act like a rich man. I wanted to dance in a pair of jeans. I wanted to dance like the man in the streets.
+ - At 14, I discovered girls. At that time, dancing was the only way you could put your arm around the girl. Dancing was courtship. Only later did I discover that you dance joy. You dance love. You dance dreams.
+ - The finest all-around performer we ever had in America was Judy Garland. There was no limit to her talent. She was the quickest, brightest person I ever worked with.
+ - I never wanted to be a dancer. It’s true! I wanted to be a shortstop for the Pittsburgh Pirates.
+ - There’s nothing revolutionary about Saturday Night Fever. You can see the same kind of movement at your local disco.
+ - If Fred Astaire is the Cary Grant of dance, I’m the Marlon Brando.
+ - My mother had gotten a job as a receptionist at a dancing school and had the idea that we should open our own dancing school; we did, and it prospered.
+ - Fred Astaire represented the aristocracy, I represented the proletariat.
+ - I took it as it came and it happened to be very nice.
+ - I wanted to invent some kind of American dance that was danced to the music that I grew up on: Cole Porter and Rodgers and Hart and Irving Berlin. So I evolved a style that certainly didn’t catch on right away – but I had some good mentors in New York who encouraged me.
+ - The way I look at a musical, you are commenting on the human condition no matter what you do. A musical may be light and frivolous, but by its very nature, it makes some kind of social comment.
+ - I wanted to do new things with dance, adapt it to the motion picture medium.
+ - Any man who looks like a sissy while dancing is just a lousy dancer.
+ - I arrived in Hollywood twenty pounds overweight and as strong as an ox. But if I put on a white tails and tux like Fred Astaire, I still looked like a truck driver.
+ - I got started dancing because I knew it was one way to meet girls.
+ - I think dancing is a man’s game and if he does it well he does it better than a woman.
+ - Kids talk to me and say they want to do musicals again because they’ve studied the tapes of the old films. We didn’t have that. We thought once we had made it, even on film, it was gone except for the archives.
+ - I’d studied dance in Chicago every summer and taught it all winter, and I was well-rounded. I wasn’t worried about getting a job on Broadway. In fact, I got one the first week.
+ - There is a strange sort of reasoning in Hollywood that musicals are less worthy of Academy consideration than dramas. It’s a form of snobbism, the same sort that perpetuates the idea that drama is more deserving of Awards than comedy.
+ - Things danced on the screen do not look the way they do on the stage. On the stage, dancing is three-dimensional, but a motion picture is two-dimensional.
+
+25 quotes

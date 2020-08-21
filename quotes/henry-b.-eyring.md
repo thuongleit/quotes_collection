@@ -1,0 +1,147 @@
+ - When you meet someone, treat them as if they were in serious trouble, and you will be right more than half the time.
+ - It is serving God and others persistently with full heart and soul that turns testimony of truth into unbreakable spiritual strength.
+ - If you are on the right path, it will always be uphill.
+ - Pride is the great enemy of unity.
+ - If the foundation of faith is not embedded in our hearts, the power to endure will crumble.
+ - Heavenly Father hears your prayers, He loves you. He knows your name. He loves you beyond your ability to comprehend.
+ - Ask yourself, ‘How did God bless me today?’ If you do that long enough and with faith, you will find yourself remembering blessings.
+ - Whether or not you choose to keep your covenant to always remember Him, He always remembers you.
+ - By helping others come unto Him, you will find that you have come unto Him yourself.
+ - I testify that Jesus Christ, born in Bethlehem, was and is the Only Begotten of the Father, the Lamb of God. He chose from before the foundations of the earth to be your Savior, my Savior, and the Savior of all we will ever know or meet.
+ - Each child in each generation chooses faith or disbelief. Faith is not an inheritance; it is a choice.
+ - We never need to feel that we are alone or unloved in the Lord’s service because we never are. We can feel the love of God. The Savior has promised angels on our left and our right to bear us up. And He always keeps His word.
+ - The miracle of unity is being granted to us as we pray and work for it in the Lord’s way. Our hearts will be knit together in unity. God has promised that blessing to His faithful Saints whatever their differences in background and whatever conflict rages around them.
+ - If you ponder the scriptures and begin to do what you covenanted with God to do, I can promise you that you will feel more love for God and more of His love for you.
+ - You hold in your hands the happiness of more people than you can imagine.
+ - The Lord will always prepare a way for you to escape from the trials you will be given if you understand two things. One is that you need to be on the Lord’s errand. The second thing you need to understand is that the escape will almost never be out of the trial; it will usually be through it.
+ - Only God knows hearts, and so only He can say, in truth, “I know how you feel.”
+ - Logical thinking will not be enough to get answers to the questions that matter most in life. We need revelation from God.
+ - Every person is different and has a different contribution to make. No one is destined to fail.
+ - The Lord doesn’t put us through this test just to give us a test: He does it because the process will change us.
+ - Each life is unique. But for all, repentance will surely include passing through the portal of humble prayer. Our Father in Heaven can allow us to feel fully the conviction of our sins. He knows the depths of our remorse. He can then direct what we must do to qualify for forgiveness.
+ - Humble prayer to our Heavenly Father, in deep faith in Jesus Christ, is essential to qualify us for the companionship of the Holy Ghost.
+ - The great test of life is to see whether we will hearken to and obey God’s commands in the midst of the storms of life.
+ - Acting on even a twig of faith allows God to grow it.
+ - There is joy guaranteed for the faithful.
+ - The message of the restored gospel of Jesus Christ is that we can and must expect to become better as long as we live.
+ - Our Heavenly Father wants our hearts to be knit together. That union in love is not simply an ideal. It is a necessity.
+ - The Lord will give you, if you ask, the feelings of the compassion He feels for those in need.
+ - We must choose with our agency to obey in faith that the promised blessing will come, that the promise is true because it comes from God.
+ - God does not rule in nations, but He is mindful of them. He can and does place people in positions of influence who want what is best for the people and who trust in the Lord.
+ - The Holy Ghost has as a major purpose witnessing that Jesus is the Christ. As we plead for help in His service, the Holy Ghost will come and confirm our faith in Him. Our faith in the Savior will increase. And, as we continue to serve Him, we will come to love Him.
+ - You can give a great and wonderful Christmas if you remember the gifts God has given you and, as best you can, offer them to others as He would. That is the spirit of Christmas and of true happiness every day.
+ - As you pray and serve others, your knowledge that you are a child of God and your feelings about Him will grow.
+ - If we have faith in Jesus Christ the hardest as well as the easiest times in life can be a blessing.
+ - We have trials to face because our Heavenly Father loves us. His purpose is to help us qualify for the blessing of living with Him and His Son, Jesus Christ, forever in glory and in families.
+ - Carrying a grudge is a heavy burden. As you forgive, you will feel the joy of being forgiven.
+ - If you will be humble and ask God what to do, I promise you that he will always prepare a way for your deliverance.
+ - Although his time is not always our time, we can be sure that the lord keeps his promises.
+ - The first, the middle and the last thing to do is to pray.
+ - Hard as things seem today, they will be better in the next day if you choose to serve the Lord this day with your whole heart.
+ - You make choices every day and almost every hour that keep you walking in the light or moving away toward darkness.
+ - God’s purpose in creation was to let us prove ourselves. The plan was explained to us in the spirit world before we were born. We were valiant enough there to qualify for the opportunity to choose against temptation here to prepare for eternal life, the greatest of all the gifts of God.
+ - Heavenly Father has perfect foresight, knows each of us, and knows our future. He knows what difficulties we will pass through. He sent His Son to suffer so that He would know how to succor us in all our trials.
+ - Don’t worry about how inexperienced you are or think you are, but think about what, with the Lord’s help, you can become.
+ - You need never be discouraged or afraid. The way through difficulties has always been prepared for you, and you will find it if you exercise faith.
+ - Heavenly Father and the Savior are grateful that you do your part. They know you, They watch over you, and They love you.
+ - In the priesthood we share the sacred duty to labor for the souls of men. We must do more than learn that this is our duty. It must go down into our hearts so deeply that neither the many demands on our efforts in the bloom of life nor the trials that come with age can turn us from that purpose.
+ - As you pray for forgiveness, you will find yourself forgiving others. As you thank God for His kindness, you will think of others, by name, who need your kindness. Again, that experience will surprise you every day, and over time it will change you.
+ - Children are the inheritance of the Lord to us in this life and also in eternity. Eternal life is not only to have forever our descendants from this life. It is also to have eternal increase.
+ - Even before baptism, a child or an adult can have the Holy Ghost testify to their hearts of sacred truth. They must act on that testimony to retain it, but it will guide them toward goodness.
+ - If you reflect often on how His Atonement has changed you, and if you give thanks often, you will find that your witness of Him gains power to touch the hearts of others. When those you invite out of your own testimony feel that witness, they will come to accept Him as their Lord and Savior.
+ - We can follow a steady upward course in a world of change without fear, welcoming opportunities.
+ - Parents, brothers and sisters, grandparents, aunts and uncles are made more powerful guides and rescuers by the bonds of love that are the very nature of a family.
+ - We have moral agency as a gift of God. Rather than the right to choose to be free of influence, it is the inalienable right to submit ourselves to whichever of those powers we choose .
+ - The family unit is fundamental not only to society and to the Church, but to our hope for eternal life.
+ - This is the Church of Jesus Christ, and He leads it. No assignment in it need ever overwhelm you if you know that and listen for the Master’s voice.
+ - You may feel overwhelmed by your own poverty and the labors of the day. But if you decide not to wait until you have more strength and more money, and if you pray for the Holy Spirit as you go, you will, when you arrive, know what to do and how to help someone even poorer than you are.
+ - We cannot control what others choose to do, and so we cannot force our children to heaven, but we can determine what we will do. And we can decide that we will do all we can to bring down the powers of heaven into that family we want so much to have forever.
+ - Each of you is a unique child of God. God knows you individually. He sends messages of encouragement, correction, and direction fitted to you and to your needs.
+ - Choose to obey the Lord quickly, always, in quiet times and in storms. As we do, our faith will be strengthened, we will find peace in this life, and we will gain the assurance that we and our families can qualify for eternal life in the world to come.
+ - The Father to whom we pray is the glorious God who created worlds through His Beloved Son.
+ - Even the acceptance of personal responsibility may not overcome the temptation to believe that now is not the time to repent. ‘Now’ can seem so difficult, and ‘later’ appear so much easier. The truth is that today is always a better day to repent than any tomorrow.
+ - It is hard to know when we have done enough for the Atonement to change our natures and so qualify us for eternal life. And we don’t know how many days we will have to give the service necessary for that mighty change to come. But we know that we will have days enough if only we don’t waste them.
+ - It is hard to repent, to admit you are wrong on faith alone before the evidence of a feeling of being forgiven and light comes.
+ - Love invites the Holy Ghost to be present to confirm truth. And the joy of learning divine truths creates love in the hearts of people who shared the experience of learning.
+ - No one who strives with full faith and heart for the blessings of eternal life will be denied. And how great will be the joy and how much deeper the appreciation then after enduring in patience and faith now.
+ - For us to know that the Book of Mormon is true, we must read it and make the choice found in Moroni: pray to know if it is true. When we have done that, we can testify from personal experience to our friends that they can make that choice and know the same truth.
+ - When the words of prophets seem repetitive, that should rivet our attention.
+ - The problem of using your time well is not a problem of the mind but of the heart.
+ - We help God’s children best by providing ways to build faith in Jesus Christ and in His restored gospel when they are young.
+ - Have you felt, as I have, the impression to help someone only to find that what you were inspired to give was exactly what someone needed at that very moment? That is a wonderful assurance that God knows all of our needs and counts on us to fill the needs of others around us.
+ - It is only with the companionship of the Holy Ghost that we can hope to be equally yoked in a marriage free from discord. I have seen how that companionship is crucial for felicity in a marriage. The miracle of becoming one requires the help of heaven, and it takes time.
+ - The words of confirmation into the Church are an invitation: Receive the Holy Ghost. And that choice must be made not once, but every day, every hour, every minute.
+ - We lighten the loads of others best by helping the Lord strengthen them.
+ - We were promised that we would have Jehovah, Jesus Christ, as our Savior and Redeemer. He would assure that we would all be resurrected. And He would make it possible for us to pass the test of life if we exercised faith in Him by being obedient.
+ - By His words and His example, Christ has shown us how to draw closer to Him.
+ - Testimony requires the nurturing by the prayer of faith, the hungering for the word of God in the scriptures, and the obedience to the truth.
+ - The key to the remembering that brings and maintains testimony is receiving the Holy Ghost as a companion. It is the Holy Ghost who helps us see what God has done for us. It is the Holy Ghost who can help those we serve to see what God has done for them.
+ - When you choose whether to make or keep a covenant with God, you choose whether you will leave an inheritance of hope to those who might follow your example.
+ - Many of you have loved ones who are wandering off the path to eternal life. You wonder what more you can do to bring them back. You can depend on the Lord to draw closer to them as you serve Him in faith.
+ - Whenever we meet anyone, our first, almost unconscious reaction may be to look for imperfections.
+ - Most people stop learning out of fear. They are afraid they cannot learn.
+ - While serving others, we are most likely to plead for the companionship of the Holy Ghost. Success in the Lord’s service always produces miracles beyond our own powers.
+ - Is there any conflict between science and religion? There is no conflict in the mind of God, but often there is conflict in the minds of men.
+ - Our human tendency is to be impatient with the person who cannot see the truth that is so plain to us. We must be careful that our impatience is not interpreted as condemnation or rejection.
+ - With faith and obedience practiced long enough, the Holy Ghost becomes a constant companion, our natures change, and endurance becomes certain.
+ - It is possible to rise to the lofty standard set by the Lord for priesthood holders in making decisions in quorums. It is possible when there is great faith and love and the absence of contention.
+ - The Savior will let you feel the love He feels for those you serve. The call is an invitation to become like Him.
+ - That solid basis for a foundation of faith is personal integrity.
+ - From what might appear to you to be small choices, the Lord will lead you to the happiness you want. Through your choices He will be able to bless countless others.
+ - Studying the daily news can appear more interesting than the priesthood lesson manual. Sitting down to rest can be more attractive than making appointments to visit those who need our priesthood service.
+ - One of the surest ways to avoid even getting near false doctrine is to choose to be simple in our teaching.
+ - The good word of the Lord with which we must nourish is the simple doctrine of the gospel. We need not fear either simplicity or repetition.
+ - With one eye on today’s blessings you will have more staying power for the distant goal.
+ - Throughout my life, the scriptures have been a way for God to reveal things to me that are personal and helpful. When I was a little boy, I was given a small Bible. If I remember correctly, it was only the New Testament.
+ - The Book of Mormon is another testament of Jesus Christ, and we learn about Him in its pages. We know that it has great power. It has the power to change lives. It has the power to convert. If you read it with an open heart, you will know that it is the word of God and that it is true.
+ - We know the Lord makes His servants bold. The young boy Joseph who saw God the Father and His Son, Jesus Christ, in a grove of trees was transformed into a spiritual giant.
+ - You will notice that the work is simple obedience. It is not complicated things, it is not fancy things or getting great spiritual manifestations. This work is within the abilities of the most humble and the least educated.
+ - The fruit of keeping covenants is the companionship of the Holy Ghost and an increase in the power to love.
+ - The enemy of human happiness as well as the cause of poverty and starvation is not the birth of children. It is the failure of people to do with the earth what God could teach them to do if only they would ask and then obey, for they are agents unto themselves.
+ - We need not just one flash of light and comfort, but we need the continuing blessing of communication with God.
+ - We need continuing communication from god. One stream of light is not enough.
+ - The sad pattern of lack of trust in God has persisted since the Creation.
+ - Our choosing the right consistently whenever the choice is placed before us creates the solid ground under our faith.
+ - If we choose to exercise faith, the Holy Ghost will bring God’s kindnesses to our remembrance.
+ - The Holy Ghost is a comforter and a guide. But it is also a cleansing agent. That is why service in the kingdom is so crucial to enduring. When we are called to serve, we can pray for the Holy Ghost to be our companion with assurance it will come.
+ - My point is to urge you to find ways to recognize and remember God’s kindness. It will build our testimonies. You may not keep a journal. You may not share whatever record you keep with those you love and serve. But you and they will be blessed as you remember what the Lord has done.
+ - Conversion brings a drive to learn.
+ - If we continue to seek learning to serve God and His children better, it is a blessing of great worth. If we begin to seek learning to exalt ourselves alone, it leads to selfishness and pride, which will take us away from eternal life.
+ - At this and every season, our Savior invites us to join with HIM and others to offer the priceless gift of JOY.
+ - TRUST in GOD and then GO and DO.
+ - Each of us, whatever our talents, has service to give. And to do it well always involves learning, not once or for a limited time, but continually.
+ - What all of us long for in our hearts, at Christmastime and always, is to feel bound together in love with the sweet assurance that it can last forever.
+ - God asks that we give thanks to Him for whatever blessings we receive from Him. It is easy for us to become mechanical in our prayers of gratitude, often repeating the same words but without the intent to give our thanks as a gift of the heart to God.
+ - For each of us, life is a journey. Heavenly Father designed it for us out of love. Each of us has unique experiences and characteristics, but our journey began in the same place before we were born into this world.
+ - Those who submit like a child do it because they know that the Father wants only the happiness of His children and that only He knows the way. That is the testimony we must have to keep praying like a submissive child, in the good times as well as the times of trouble.
+ - The Lord knew I would someday be charged with the priesthood responsibility for hundreds and even thousands of Heavenly Father’s children who were in desperate temporal need.
+ - When we offer succor to anyone, the Savior feels it as if we reached out to succor Him.
+ - As we do what He would have us do for His children, the Lord considers it kindness to Him, and we will feel closer to Him as we feel His love and His approval. In time, we will become like Him, and will think of the judgement day with happy anticipation.
+ - The Lord makes his servants bold.
+ - With the help of the Holy Ghost, we can watch over ourselves. We can pray to recognize and reject the first thoughts of sin. We can pray to recognize a warning not to speak words which would hurt or tempt someone else. And we can, when we must, pray for the humility and the faith to repent.
+ - Parents who struggle to get a witness of the Savior into the heart of a child will be helped as they seek for a way to bring the words and the spirit of the Book of Mormon into the home and all the lives in their family.
+ - The Lord protects, guides, and watches over those who are His trusted friends in His work. His work and that of His Father and our Father is to bring to pass the immortality and eternal life of the children of God. And Satan, the enemy of our happiness, opposes those who serve the Lord.
+ - Every child of Heavenly Father born in the world is given at birth, as a free gift, the Light of Christ.
+ - I pray that wherever we are and whatever duties we have in the priesthood of God, we will be united in the cause to bring the gospel to all the world.
+ - God not only loves the obedient – He enlightens them.
+ - The Lord’s way to help those in temporal need requires people who out of love have consecrated themselves and what they have to God and to His work.
+ - The ideal God holds for us is to form families in the way most likely to lead to happiness and away from sorrow.
+ - You can be a great model, an average one, or a bad model. You may think it doesn’t matter to you, but it does to the Lord.
+ - Invest time that will compound forever.
+ - You may have confidence in the Lord’s service. The Savior will help you do what He has called you to do, be it for a time as a worker in the Church or forever as a parent. You may pray for help enough to do the work and know that it will come.
+ - The Lord will give His righteous servants opportunities to be bold as lions when they speak in His name and as witnesses in His priesthood.
+ - We yearn, as spirit children of our Heavenly Father, for that joy which we once had with Him in the life before this one. His desire is to grant us that sacred wish for unity out of His love for us.
+ - The Savior warns that if we start along the path and go far enough and then fail and deny Him, it would have been better if we had never begun.
+ - God loves his children more than any earthly parent, so think what your kindness to his children means to him.
+ - The Atonement is real. As you steadily do the things the Lord would have you do, a change will occur in you, and Satan’s ability to lead you into the things that will destroy you and bring misery to you will become lessened.
+ - Every missionary who is proclaiming the name and gospel of Jesus Christ will be blessed by daily feasting from the Book of Mormon.
+ - The children of God have more in common then they have differences.
+ - Pray for the love which allows you to see the good in your companion. Pray for the love that makes weaknesses and mistakes seem small. Pray for the love to make your companion’s joy your own. Pray for the love to want to lessen the load and soften the sorrows of your companion.
+ - Because the Lord hears their cries and feels your deep compassion for them, He has from the beginning of time provided ways for His disciples to help. He has invited His children to consecrate their time, their means, and themselves to join with Him in serving others.
+ - The pavilion that seems to intercept divine aid does not cover God but occasionally covers us. God is never hidden, yet sometimes we are, covered by a pavilion of motivations that draw us away from God and make Him seem distant and inaccessible.
+ - The thirst for education that comes with the change the gospel brings can be a blessing or a curse, depending on our motives.
+ - We can with confidence set a goal to make this Christmas brighter than the last and each year that follows brighter still.
+ - Love is the motivating principle by which the Lord leads us along the way towards becoming like Him, our perfect example. Our way of life, hour by hour, must be filled with the love of God and love for others.
+ - It is by avoiding future sin that we retain a remission of the sins of the past.
+
+145 quotes

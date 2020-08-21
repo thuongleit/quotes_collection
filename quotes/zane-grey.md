@@ -1,0 +1,42 @@
+ - I need this wild life, this freedom.
+ - I arise full of eagerness and energy, knowing well what achievement lies ahead of me.
+ - I hope I have found myself, my work, my happiness – under the light of the western skies.
+ - Love of man for woman – love of woman for man. That’s the nature, the meaning, the best of life itself.
+ - Love grows more tremendously full, swift, poignant, as the years multiply.
+ - I love my work but do not know how I write it.
+ - Never insult seven men when all your packing is a six-shooter.
+ - If I fished only to capture fish, my fishing trips would have ended long ago.
+ - Fishing is a condition of the mind wherein one cannot have a bad time.
+ - I am tired. My arm aches. My head boils. My feet are cold. But I am not aware of any weakness.
+ - What makes life worth living? Better surely, to yield to the stain of suicide blood in me and seek forgetfulness in the embrace of cold dark death.
+ - Far away Tongariro! Green – white thundering Athabasca river of New Zealand! I vowed I would come again down across the Pacific to fish in the swift cold waters of this most beautiful and famous of trout streams. It is something to have striven. It is much to have kept your word.
+ - I am full of fire and passion. I am not ready yet for great concentration and passion.
+ - Men may rise on stepping stones of their dead selves to higher things.
+ - I will see this game of life out to its bitter end.
+ - I must go deeper and even stronger into my treasure mine and stint nothing of time, toil, or torture.
+ - Where I was raised a woman’s word was law. I ain’t quite outgrowed that yet.
+ - There was never an angler who lived but that there was a fish capable of taking the conceit out of him.
+ - Fishermen, no matter what supreme good fortune befalls them, cannot ever be absolutely satisfied. It is a fundamental weakness of intellect.
+ - Realism is death to me. I cannot stand life as it is.
+ - Every once in a while I feel the tremendous force of the novel. But it does not stay with me.
+ - Before exulatation had vanished, I felt as if I had been granted a marvellous privilege. Out of the inscrutable waters a beautiful fish had somehow leaped to show me fleetingly the life and spirit of his element.
+ - Work is my salvation. It changes my moods.
+ - Jealousy is an unjust and stifling thing.
+ - A good rule of angling philosophy is not to interfere with any fishermans ways of being happy, unless you want to be hated.
+ - Today I began the novel that I determined to be great.
+ - I confess that reading proofs is a pleasure. It stimulates and inspires me.
+ - Writing was like digging coal. I sweat blood. The spell is on me.
+ - I can write best in the silence and solitude of the night, when everyone has retired.
+ - I see so much more than I used to see. The effect has been to depress and sadden and hurt me terribly.
+ - What is writing but an expression of my own life?
+ - The difficulty, the ordeal, is to start.
+ - There are hours when I must force the novel out of my mind and be interested in the children.
+ - This motion-picture muddle had distracted me from my writing.
+ - These critics who crucify me do not guess the littlest part of my sincerity. They must be burned in a blaze. I cannot learn from them.
+ - The Indian story has never been written. Maybe I am the man to do it.
+ - Adam Larey gazed with hard and wondering eyes down the silent current of the red river upon which he meant to drift away into the desert.
+ - No one connected intimately with a writer has any appreciation of his temperament, except to think him overdoing everything.
+ - I did not have one bad spell during writing – an unprecedented record.
+ - It was a decent New Year’s, but it took a million officers to make it so.
+
+40 quotes

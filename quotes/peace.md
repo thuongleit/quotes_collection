@@ -1,0 +1,42 @@
+ - You cannot find peace by avoiding life. ~~Virginia Woolf
+ - Remember your humanity, and forget the rest. ~~Bertrand Russell
+ - Conflict is inevitable but combat is optional. ~~Max Lucado
+ - He who lives in harmony with himself lives in harmony with the universe. ~~Marcus Aurelius
+ - If we don’t end war, war will end us. ~~H. G. Wells
+ - Evil is powerless if the good are unafraid. ~~Ronald Reagan
+ - Look deep into nature, and then you will understand everything better. ~~Albert Einstein
+ - To see a world in a grain of sand and heaven in a wild flower Hold infinity in the palms of your hand and eternity in an hour. ~~William Blake
+ - The world is a dangerous place to live, not because of the people who are evil, but because of the people who don’t do anything about it. ~~Albert Einstein
+ - Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. ~~Sun Tzu
+ - Forgiveness is not always easy. At times, it feels more painful than the wound we suffered, to forgive the one that inflicted it. And yet, there is no peace without forgiveness. ~~Marianne Williamson
+ - Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. ~~Alan Watts
+ - Those who are at war with others are not at peace with themselves. ~~William Hazlitt
+ - There is no flag large enough to cover the shame of killing innocent people. ~~Howard Zinn
+ - Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. ~~Peter F. Drucker
+ - They who can give up essential liberty to obtain a little temporary safety deserve neither liberty nor safety. ~~Benjamin Franklin
+ - It is often easier to ask for forgiveness than to ask for permission. ~~Grace Murray Hopper
+ - The philosophers have only interpreted the world, in various ways: the point, however, is to change it. ~~Karl Marx
+ - If there must be trouble, let it be in my day, that my child may have peace. ~~Thomas Paine
+ - If you are neutral in situations of injustice, you have chosen the side of the oppressor. If an elephant has its foot on the tail of a mouse and you say that you are neutral, the mouse will not appreciate your neutrality. ~~Desmond Tutu
+ - If you want peace, you don’t talk to your friends. You talk to your enemies. ~~Desmond Tutu
+ - You cannot escape the responsibility of tomorrow by evading it today. ~~Abraham Lincoln
+ - Don’t expect to build up the weak by pulling down the strong. ~~Calvin Coolidge
+ - I like to listen. I have learned a great deal from listening carefully. Most people never listen. ~~Ernest Hemingway
+ - You can chain me, you can torture me, you can even destroy this body, but you will never imprison my mind. ~~Mahatma Gandhi
+ - You can’t separate peace from freedom because no one can be at peace unless he has his freedom. ~~Malcolm X
+ - Climb the mountains and get their good tidings. Nature’s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn. ~~John Muir
+ - You cannot make yourself feel something you do not feel, but you can make yourself do right in spite of your feelings. ~~Pearl S. Buck
+ - Those who make peaceful revolution impossible will make violent revolution inevitable. ~~John F. Kennedy
+ - Realize that true happiness lies within you. Waste no time and effort searching for peace and contentment and joy in the world outside. Remember that there is no happiness in having or in getting, but only in giving. Reach out. Share. Smile. Hug. Happiness is a perfume you cannot pour on others without getting a few drops on yourself. ~~Og Mandino
+ - If I choose to bless another person, I will always end up feeling more blessed. ~~Marianne Williamson
+ - Be happy in the moment, that’s enough. Each moment is all we need, not more. ~~Mother Teresa
+ - I offer you peace. I offer you love. I offer you friendship. I see your beauty. I hear your need. I feel your feelings. ~~Mahatma Gandhi
+ - Peace is our gift to each other. ~~Elie Wiesel
+ - If you want to make the world a better place, take a look at yourself, and make a change. ~~Michael Jackson
+ - The worst evils which mankind has ever had to endure were inflicted by bad governments. ~~Ludwig von Mises
+ - Faith is the first factor in a life devoted to service. Without it, nothing is possible. With it, nothing is impossible. ~~Mary McLeod Bethune
+ - He that cannot forgive others breaks the bridge over which he must pass himself; for every man has need to be forgiven. ~~Thomas Fuller
+ - Do your little bit of good where you are; its those little bits of good put together that overwhelm the world. ~~Desmond Tutu
+ - I refuse to accept the view that mankind is so tragically bound to the starless midnight of racism and war that the bright daybreak of peace and brotherhood can never become a reality... I believe that unarmed truth and unconditional love will have the final word. ~~Martin Luther King Jr.
+
+40 quotes

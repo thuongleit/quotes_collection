@@ -1,0 +1,149 @@
+ - Get rich or die tryin’.
+ - Sleep is for those people who are broke. I don’t sleep. I’ve got an opportunity to make a dream become a reality.
+ - Sunny days wouldn’t be special, if it wasn’t for rain. Joy wouldn’t feel so good, if it wasn’t for pain. Death gotta be easy, ’cause life is hard; It’ll leave you physically, mentally, and emotionally scarred.
+ - Hate it or love it, the underdogs come out on top.
+ - Hate a liar more than I hate thief. A thief is only after my salary a liar is after my reality.
+ - When I nearly died it made me think – this can happen again any second. I better hurry and do what I want. I started to live like I never lived before. When the fear of death is gone, then nothing can bother you and nobody can stop you.
+ - You either pray or worry. Don’t do both.
+ - Reality is my drug. The more I have of it, the more power I get and the higher I feel.
+ - I’m the diamond in the dirt, that ain’t been found. I’m the underground king and I ain’t been crowned.
+ - Sleep is for those who are broke.
+ - I’m the type to swallow my blood before I swallow my pride.
+ - Success is my drug of choice.
+ - Death must be easy cuz life is hard.
+ - The only excuse for being broke is being in Jail.
+ - Show No Love, Cus Love Can Get U killed.
+ - I love you like a fat kid love cake.
+ - I don’t display emotions. I have every feeling that everyone else has, but I’ve developed ways to suppress them. Anger is one of my most comfortable feelings.
+ - I don’t think it makes me a role model. I think it makes me inspiring. Cause I’m from the bottom I think they look at me and go ‘well, if he made it, I can make it’
+ - Look into the windows of my soul. The eyes never lie, they bloodshot red.
+ - I was born alone and I will die alone. I’ve got to do what’s right for me and not live my life the way anybody else wants it.
+ - I need you to pray for me; I need you to care for me. I need you to want me to win. I need to know where I’m heading, because I know where I’ve been.
+ - Wise men listen and laugh, while fools talk.
+ - People are like plants: They grow; they change every day.
+ - I’m really sensitive. And they don’t understand that, because my most comfortable feeling is anger. So I’ll get angry if you said something to hurt my feelings or you’re making me uncomfortable, I’ll get angry, and be ready to do something about it.
+ - It’s Fifty, not Fiddy.
+ - Just be confident. I think confidence is the most attractive part of a person.
+ - Most people can’t handle boredom. That means they can’t stay on one thing until they get good at it. And they wonder why they’re unhappy.
+ - Love your enemies and? hate your friends, your enemies remain the same your friends always change.
+ - My past is my shadow, it follows me everywhere I go. Well, all those things come from when I had no other choice. They put my back against the wall. I do what I gotta do.
+ - I need you. I need you to hate, so I can use you for your energy.
+ - I have less compassion than the average human.
+ - You shouldn’t throw stones if you live in a glass house and if you got a glass jaw, you should watch yo mouth: cause I’ll break yo face.
+ - God’s the seamstress that tailor-fitted my pain.
+ - I had to overcome challenge after challenge in order to take my life from nothing to living my dreams.
+ - You can be a victim, or you can lock and load.
+ - The less you fear, the more power you will have.
+ - Just be confident. Confidence is the most attractive part of a person. Because if they’re not confident enough to show you who they are, you don’t even know who they are.
+ - Be prepared to do whatever you have to do. If you get put in a situation where your back is up against the wall let your gun go off.
+ - People often say I have so much energy, that I never stop; but that’s what it takes to accomplish your goals.
+ - When I wasn’t killing time in school, I was sparring in the gym or selling crack on the strip.
+ - I’ve got to make it to heaven; for going through hell.
+ - Your fears are a kind of prison that confines you within a limited range of action. The less you fear, the more power you will have and the more fully you will live.
+ - It’s not funny when you actually get shot, but afterwards, yeah, it’s funny.
+ - There had to be a better way – if I couldn’t find it, I wanted to create it.
+ - They don’t understand the process I went through and how much I had to believe in myself...
+ - You know how a person is made for something? Eminem is made for hip-hop. The best rapper is a white man.
+ - Every night I talk to God, but he don’t say nothing back. I know he protecting me, but I still stay with my gat.
+ - If you were in a bad relationship and you meet someone new, you’re going to leave with your luggage. The next person is going to have to endure things that someone else causes.
+ - I’ve been patiently waiting to blow!
+ - When my son came into my life, my priorities changed, because I wanted to have the relationship with him, that I didn’t have with my father.
+ - Every negative is a positive. The bad things that happen to me, I somehow make them good. That means you can’t do anything to hurt me.
+ - I’m a track star running through life, chasing my dream.
+ - Real man is someone who handles his responsibilities. Take care of all of his responsibilities. No matter how, by any means take care of your situations.
+ - Being broke is against my religion.
+ - Beware of feedback from friends whose judgments could be tainted by feelings of envy or the need to flatter.
+ - If I wrote you a love letter, would you write back?
+ - 50 Cent is a metaphor for “change”. But originally it was a gangster from Fort Greene Projects named 50 Cent and I took the name when he passed and because he’s not active, I thought it’d be cool to take it.
+ - He who fears fate lives like a coward.
+ - I’ll break your face, have your ass mumbling to the jay, you going against me dawg you makin a mistake. I’ll split your wig and leave you open like a mickeal jackson jacket with all them zippers.
+ - Actions may make you appear to be someone else, when people actually find out what you’re doing.
+ - If I didn’t smell so good would you still hug me?
+ - I’ve made so many mistakes, so many corrections. I’m so far from perfect so many imperfections. But I’m a go getta I get up and go get it, so if you preaching prosperity, i wanna hit it...
+ - My grandparents went through a bad experience themselves; they invested money in a church and got burned – the pastor had his own agenda – and my grandfather lost interest in the church after that. That was when I had the option to not go. ‘Grandpa ain’t going; I’m gonna stay with Grandpa.’
+ - Negative energy that comes at you in some form is energy that can be turned around – to defeat an opponent and lift you up.
+ - When I put out my first mixtape, ‘50 Cent is the Future,’ it was the first tape where an artist did the entire tape in song format.
+ - I get photobombed by the hottest people in the world.
+ - True hustlers are prepared to get hustled and know when to change positions and move to something different and aren’t afraid.
+ - For me success was always going to be a Lamborghini. But now I’ve got it, it just sits on my drive.
+ - A thug is what I want and a thug is what I need. And my friends don’t understand, and I think it’s jealousy.
+ - Concentrate on your money. Try to hold your paper. It takes money to make money, so save your money, opportunites come.
+ - My grandma pregnant again trying to talk her out of keeping it.
+ - Ambition is a tunnel that you run through that doesn’t end.
+ - Chris Lighty was a huge portion of my actual career. It’s difficult to adjust to not have someone around that’s in your life, in your life.
+ - Either you are a victim or you victimize someone and in the hood it’s no holds barred. The kid in the schoolyard that doesn’t want to fight always leaves with a black eye.
+ - If you’re familiar with my man Uncle Sam, you understand the only way you can actually feel better about what he’s gonna take, come the end of the year, is lifestyle. Only thing you can do is spend some of it.
+ - When I fell in love with hip-hop, there was a terminology at the time called “battling.” All that was just battling with other artists, but after Tupac and those incidents when it spilled into the street and turned into a negative situation, battling turned into a beef. A whole new dynamic.
+ - When I reached the top in business, I adjusted to my new position – I became bolder and crazier than before. And I listened even less to people who tried to slow me down.
+ - The opportunity and the concept of merging music culture with actual boxing is exciting. It’s bringing a younger demographic to the sport.
+ - If I don’t make music I’m going back to the hood. I’ll sell crack. I’m gonna go back to sell crack if I can’t make it in the music business and that’s what I was doing before that.
+ - If you don’t have finances to jump on opportunites or at least room to support yourself while you’re tryin to move into new situations then you can’t even evolve.
+ - There’s a small group of guys in hip-hop that really have money. The whole culture talks about money, but it’s a small group that actually has it.
+ - I believe people have a little more interest in reading what I’m saying or hearing me speak because they know I ain’t gonna sugarcoat it. Because I give them the truth.
+ - People who actually have money don’t want to talk about it. They want to talk about everything else.
+ - I’ve been in situations like in Tokyo where people sang my song word for word and then when the music stopped, they couldn’t speak to me. I’ve seen the music break the language barrier.
+ - The importance of ‘Dream School’ is monumental. Helping to inspire these students to reach their potential is personally gratifying.
+ - Everyone else is just mad cause i came from the bottom with out them.
+ - I was surrounded by too many people who felt that they had a strong sense of entitlement. That I owed them something.
+ - I make music cuz it’s almost like I can escape everything I was involved in. All I gotta do is make music. I don’t do nothin but make music.
+ - If I’m focused while I’m strokin I could change how you walk.
+ - At that age, it’s one of the worse things in the world to wake up and not see your bike where you left it.
+ - I never allowed my fear to limit me.
+ - The competitive nature of hip-hop culture has always had battling involved with it. So you battle with the other artist but not necessarily in business and everywhere else.
+ - Money definitely changes your lifestyle. But the things you go through makes who you are. Your experiences, they travel with you.
+ - Stay to yourself, just listen. Do more listening than talking. The more you speak the higher the chances you sayin the wrong thing.
+ - I love funny women, and just being around them talking is fine with me. I love an interesting mind.
+ - I have the opportunity to do something positive, I want to stay positive. It’s hustling backwards in my eyes when I can earn money legitimately. This is what I want to do.
+ - I done been to the pearly gates, they sent me back said the good die young I ain’t eligible for that.
+ - Because hip-hop has no requirements, you deal with people that have the least intelligence on the planet. Some of the people that compare themselves to me, compare themselves to me because they rap and I rap. They can’t even read the contracts that they sign to be a rapper, to do the deal.
+ - I am what I am; you can like it or love it. It feels good to blow fifty grand and think nothing of it.
+ - You gotta be smart enough to pick up the information as you go.
+ - I feel like you can will yourself into a good space. Things that are meant to happen, will. If you believe in yourself enough, you can help yourself learn. You can inspire yourself in ways to discipline yourself to a point where you CAN become good enough.
+ - I think either you’re creative or you’re not. In general, I don’t think you need to be in pain to actually be creative unless you’re writing love songs. Then you might need to have some ups and downs within your emotions to start to capture that.
+ - My description of fun would be to sit on someone’s couch and watch TV. Regular cable TV. When I’m in a hotel, on-demand is the same. I watch the TV in another language, trying to figure out what they’re saying.
+ - If you’re not doin anything and you don’t have goals and you got nothing to do then you might as well go jump off something, you just wasting the air.
+ - My grandmother, she’s been the positive portion of my life the entire time. She raised us Baptist, and when I got old enough to say I didn’t want to go to church, she didn’t force me. She was cool.
+ - A big mistake people make when they are trying to lose weight is that they stop eating. They’ll eat salads once a day and then their body starts trying to protect itself and holds onto the fat.
+ - I like generals. I like Napoleon. I like strategy. The majority of them are praised for mass destruction, but it’s exciting to see how it comes to the mind mentally.
+ - I can’t have a lot of people around me all the time. It really bugs me out that I have that many people. I need to be by myself.
+ - I have received 16 Grammy nominations and I have no trophies, because I chose to write the harsh realities. I stayed true to myself and I’ve taken a little beating behind it.
+ - When you get in a point when you generate finances in a circle of people they gonna treat you different. They gonna treat you like as if you’re gonna bring the money. You’re the cash cow.
+ - In business there’s people who have talent and there’s people whose talent is to take advantage of people who have talent.
+ - When I’m actually creating music, I try not to listen to the hip-hop records that are going on, because I think, subconsciously, we steal from each other. If you’re listening to a record and it’s really hot, then you’ll be looking for something that feels like that, or that has a version of it.
+ - Eating well was something I learned as I started to be successful and had to travel and perform concerts, which are an intense cardio workout.
+ - The State of New York City says in defense you can use as much force as you feel like the person that is coming for you with. So if I’m wrong than the law is wrong. That’s really the way I felt.
+ - Without music I wouldn’t have the ability to be in business. The opportunity to be in business came with the finances from music and the notoriety that comes with being successful as an artist. So I see myself as an artist first, but I’m absolutely conscious of business.
+ - Everybody mad when their paper don’t stack right.
+ - I think it’s impossible to actually be a role model. I think on some level, you’ll have your flaws or defects of character, regardless.
+ - A recession is predominantly for the middle class. Where I come from, the majority of people have always lived in a recession.
+ - What I want to be is the best bad guy you’ve ever seen.
+ - I think I’ll be going to Heaven, because I had good intentions. But my actions are another thing.
+ - You have to challenge yourself and your muscles. When you are really regimented, it’s the same over and over and you start to get comfortable. Switching up the style of training works your muscles differently.
+ - If you consider yourself a part of the culture, then finances can’t allow you to be bigger than the actual art form.
+ - When a person completely has nothing but negative interest in you and would like nothing more than to see you in the worst situation possible, then why would you consistently go toward that energy?
+ - At first, my love was just to be in the studio and make the music and enjoy it when I hear it played back, but then the biggest thing for me was to see the response of the people. When you go out and see the energy in the crowd, it’s incredible.
+ - I never had working papers. I never had a job. I sold crack until I got in the music, so this is the best thing that happened to me and I do it excessively.
+ - It was great to watch her spin out of control because it makes the average person feel better.
+ - Power is confidence. The confidence to deliver your answer when you’re in a board meeting is what will allow you to move up faster. The confidence to be yourself in front of people creates a separation.
+ - Anybody who says that money don’t change you – they only say that because they don’t make enough.
+ - The public is never wrong. When people don’t respond to what you do, they’re telling you something loud and clear. You’re just not listening.
+ - I’m not trying to save the world. As a musician and artist, it just ain’t me.
+ - Every morning I wake up in a home where Mike Tyson previously laid in the bed and he earned over $500 million his career. It makes me conscious.
+ - When Elvis was there, they were stopping everything. Elvis had the moment for real. While I’m here, its not all about 50 Cent, but it was all about Elvis.
+ - Even the worst that happens to you can be converted into GOLD if you are clever enough.
+ - Get into the music business. This is the business that you have absolutely no requirements. You listen to music, you need no college degree.
+ - Ya’ll know what you need to do? Get together, make a We Are The World record.
+ - My son is the reason why I write music. He’s the reason why everything is different for me.
+ - My confidence allows me to do things my way and help people make a decision. People like the idea of me just being me.
+ - I think Sean Parker damaged the music business with Napster.
+ - I don’t have a problem removing people from around me. They could be around for a long time, and I could get comfortable or used to them, and then I can just get rid of them.
+ - I don’t need to get any validation by someone else who sits next to me in first class. If you think a seat in first class makes you a star, then you’re not one.
+ - Even the toughest guys are afraid to be anything outside of the toughest guys.
+ - A man becomes as attractive as an attractive woman when he becomes successful and is publicly noted. Power’s an aphrodisiac.
+ - I have a romantic side.
+ - When I have conversations with people, for some strange reason they think I’m gonna die and they’re not. But you know what? Death means nothing to me.
+ - I think it’s easier for the general public to embrace me in a negative way. You have people who already have a perception of me that says I’m a bad person.
+ - The more my fans know about my past, the more they’ll be able to predict and understand some of the moves I make in the future.
+ - Your opinion of yourself becomes your reality. If you have all these doubts, then no one will believe in you and everything will go wrong. If you think the opposite, the opposite will happen. It’s that simple.
+
+147 quotes

@@ -1,0 +1,28 @@
+ - The first step in the acquisition of wisdom is silence, the second listening, the third memory, the fourth practice, the fifth teaching others.
+ - The beginning of wisdom is to desire it.
+ - As long as a word remains unspoken, you are its master; once you utter it, you are its slave.
+ - There are three types of friends: those like food without which you can’t live those like medicine which you need occasionally and those like an illness which you never want.
+ - My friend is he who will tell me my faults in private.
+ - Plan for this world as if you expect to live forever; but plan for the hereafter as if you expect to die tomorrow.
+ - As the lily among thorns, so is my love among the daughters.
+ - The test of good manners is to be patient with the bad ones.
+ - If you want to keep something concealed from your enemy, don’t disclose it to your friend.
+ - A tiny fly can choke a big man.
+ - Man is wise only while in search of wisdom; when he imagines he has attained it, he is a fool.
+ - A wise man’s questions contain half the answer.
+ - Worry over what has not occurred is a serious malady.
+ - Misfortune may become fortune through patience.
+ - Jealousy is cruel as the grave: the coals thereof are coals of fire.
+ - Faith is the summit of the Torah.
+ - Kings may be judges of the earth, but wise men are the judges of kings.
+ - One is punished by the very things by which he sins.
+ - Many men hoard for the future husbands of their wives.
+ - Riches bring anxiety; wisdom gives peace of mind.
+ - Drink poison rather than worry.
+ - I am better able to retract what I did not say than what I did.
+ - Thou hast created me not from necessity but from grace.
+ - A man’s mind is hidden in his writings: criticism brings it to light.
+ - And when I was born, I drew in the common air, and fell upon the earth, which is of like nature; and the first voice which I uttered was crying, as all others do.
+ - All men have one entrance into life, and the like going out.
+
+26 quotes

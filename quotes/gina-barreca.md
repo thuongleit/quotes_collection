@@ -1,0 +1,21 @@
+ - How about “diamonds are a girl’s best friends”? Nope. It should be switched around and pointed out, instead, that your best friends are diamonds.
+ - Laughing together is as close as you can get to a hug without touching.
+ - Envy is what makes you, when an acquaintance is lustily telling you that she’s dating a Greek god of a guy, ask, ‘Which one, Hades?’
+ - There are two kinds of people in the world: those who like what they like more than they don’t like what they don’t like and, in contrast, those who don’t like what they don’t like more than they like what they like.
+ - Birthdays are a reward for having shown up 365 days in a row. It’s like getting a badge for attendance.
+ - I have an intimate relationship with books. After all, I take them with me into the bathtub-not an invitation I offer lightly.
+ - Truth is like nuclear waste: it needs to be dealt with carefully. Sometimes it needs to be buried way, way out of town. And sometimes it should never be uncovered at all.
+ - If anger were mileage, I’d be a very frequent flyer, right up there in First Class.
+ - If you know you can do it – if you can already chart every day in your future – then why bother? Choose to do something you have more trouble imagining. Take a chance.
+ - Having a lean and hungry look was frowned upon in my Italian neighborhood where a girl was considered too skinny if she could make her knees touch.
+ - Most cooks would not, for example, prepare an important, elaborate, and difficult dish on the back-burner. Neither should we relegate the cultivation and preparation of happiness for a position where it is both hard to reach and difficult to infuse with new ingredients.
+ - My longing to improve my looks via The Body Shop is being replaced by my longing to improve my looks via Photoshop.
+ - Anger is the quintessential individual-signature emotion: I am what makes me mad.
+ - We should remind ourselves that laughing together is as close as you can get to another person without touching, and sometimes it represents a closer tie than touching ever could.
+ - Think of the funniest story from your life. Chances are, it was something awful at the time.
+ - The search for truth can be compared to a cat chasing her tail: frantic in her pursuit, her quarry nevetheless eludes her; despite the fact that all the world can see it’s right there, it remains just beyond her reach. It cannot be possessed because, paradoxically, it is already part of her.
+ - As a kid, you await holidays with a wide-eyed, passionate, almost maniacal enthusiasm. Heavy breathing is involved.
+ - Humor is a show of both strength and of vulnerability: you are willing to make the first move but you are trusting in the response of your listener.
+ - The people I work with are like family. I don’t mean this in a nice way.
+
+19 quotes

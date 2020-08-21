@@ -1,0 +1,37 @@
+ - I believe that laughter is the best emotional Band-Aid in the world. It’s like nature’s Neosporin.
+ - I grew up in Boston, so it’s a nice change to be cold after living in California.
+ - Having kids has been great for me. I have two beautiful step- kids, as well as my own new daughter. They’ve really helped me to keep my feet firmly on the ground, and life is good. I feel like I’m the luckiest guy here.
+ - The more cynical you become, the better off you’ll be.
+ - I could build and roof a house, though electricity is not my thing.
+ - You always question people’s intentions. That may be a combination of having money, having fame, and being a little older.
+ - Work to me has become kind of a hobby. I was a part of something that gave me financial independence and the rent is paid. Now it’s just about projects that turn me on.
+ - I remember when my daughter, Marina, was born. The second I laid eyes on her, I was in love, and I had never felt that way before. I couldn’t believe it.
+ - I’m not in a rush to do anything. And I wouldn’t say I pick and choose. When it comes to producers picking people for roles I don’t think it’s between me and Tom Cruise, do you know what I mean?
+ - In comedy, you have to be unafraid to hang from the tree branch naked in the high wind and you have to be absolutely unafraid to look ridiculous and silly.
+ - It’s funny – nowadays people that are famous get chased by paparazzi. They have this fame, but they don’t have the money to hide from it.
+ - The way I look at it, everything is a trade. You acquire some money, so then you’ve got no financial burdens, but everyone wants your money and so who can you trust? Or you’ve got no money and you can trust anyone, but then you’ve got the worry to pay bills. Which is worse?
+ - Misery is manifold. The wretchedness of the earth is multiform.
+ - I keep waiting for the roof to cave in. I was raised to follow the Golden Rule, you know, treat people the way you wish to be treated. That’s kind of the way I live my life. Maybe someone up there likes me for that.
+ - I am not afraid if people think Matt LeBlanc in ‘Episodes’ is who I am – my friends and family know who I am.
+ - Why do you have to break up with her? Be a man. Just stop calling.
+ - As an actor, the biggest compliment you can get, in my book is for someone to believe that you’re the character.
+ - I don’t like producing. It’s a lot of meetings you sit through that amount to nothing.
+ - I don’t like silk underwear. They don’t do the job, you know?
+ - When there’s writing that you really trust, it’s very freeing as an artist.
+ - I find the earth to be a place of misery in which I am surrounded by the conformity that kills society.
+ - This whole acting thing was always just for me and was always an absolute shot in the dark. If it didn’t pan out, I had my hammer and tool belt, banging nails again tomorrow if I had to.
+ - My favorite character on Friends was Joey, because we’re both actors. I always thought that was so cool.
+ - I started going gray in my early twenties.
+ - People call me Joey all the time. I take it as a compliment. There’s no point in correcting them. But I’m much more even-keeled and subdued and relaxed than Joey Tribbiani.
+ - I really like the half-hour comedy. I really do. I know people that are in movies all the time and they, you know, they don’t see their families as much. And that takes its toll over time.
+ - I have funny bones. If there’s ever any kind of tension, I’ll always be the one to try and be funny to loosen things up.
+ - When I was younger and studying acting, I never ever saw myself in the sitcom world; it was drama that really turned me on and still does.
+ - A true gentleman doesn’t prefer blondes. A true gentleman doesn’t have any preferences whatsoever.
+ - I’m much more low-key than the characters I’ve played.
+ - You can’t be funny if you don’t have good material.
+ - Everyone in my family used to work with some kind of tool in their hands every day. That’s what we do. That’s what I did before I got into acting.
+ - Comedy is just to me, maybe it’s a natural knack, if I can see where the joke is in the writing and I can see where the setup is and I can tell this is the way to make it.
+ - The phone’s not ringing off the hook, but that’s ok by me. I feel very fortunate, work to me has become a kind of hobby.
+ - Everyone is just as committed and focused as they were the first season.
+
+35 quotes

@@ -1,0 +1,32 @@
+ - The Christians stole the winter solstice from the pagans, and capitalism stole it from the Christians.
+ - So, if you don’t fit in, if you feel at odds with the world, if your identity is troubled and frayed, if you feel lost and ashamed – it could be because you have retained the human values you were supposed to have discarded. You are a deviant. Be proud.
+ - Why is it so easy to save the banks – but so hard to save the biosphere?
+ - Change arises from conviction. Stop voting in fear. Start voting for hope.
+ - When you warn people about the dangers of climate change, they call you a saint. When you explain what needs to be done to stop it, they call you a communist.
+ - Development which has no regard for whom or what it harms is not development. It is the opposite of progress, damaging the Earth’s capacity to support us and the rest of its living systems.
+ - Do we want to be remembered as the generation that saved the banks and let the biosphere collapse?
+ - We would do well to ask why governments seem to find it so easy to raise the money required to wreck the biosphere, and so difficult to raise the money required to save it.
+ - All the money, all the prestige in the world will never make up for the loss of your freedom.
+ - If wealth was the inevitable result of hard work and enterprise, every woman in Africa would be a millionaire.
+ - Faced with a choice between the survival of the planet and a new set of matching tableware, most people would choose the tableware.
+ - If global warming is not contained, the West will face a choice of a refugee crisis of unimaginable proportions, or direct complicity in crimes against humanity.
+ - Acknowledging our love for the living world does something that a library full of papers on sustainable development and ecosystem services cannot: it engages the imagination as well as the intellect. It inspires belief; and this is essential to the lasting success of any movement.
+ - Deregulation is a transfer of power from the trodden to the treading. It is unsurprising that all conservative parties claim to hate big government.
+ - Progress is measured by the speed at which we destroy the conditions that sustain life.
+ - Nobody ever rioted for austerity.
+ - The institutions founded ‘to save succeeding generations from the scourge of war’ have failed. Since the end of WW2, some thirty million people have been killed in armed conflict. Most of them were civilians.
+ - In motivating people to love and defend the natural world, an ounce of hope is worth a ton of despair.
+ - Until now I believed that the nation which has done most to sabotage a new climate change agreement was the United States. I was wrong. The real villain is Canada. Unless we can stop it, the harm done by Canada in December 2009 will outweigh a century of good works.
+ - Soil is an almost magical substance, a living system that transforms the materials it encounters.
+ - People believe Loose Change because it proposes a closed world: comprehensible, controllable, small. Despite the great evil which runs it, it is more companionable than the chaos which really governs our lives, a world without destination or purpose.
+ - There is enough oil in the ground to deep-fry the lot of us, and no obvious means to prevail upon governments and industry to leave it in the ground.
+ - Almost everywhere, climate change denial now looks as stupid and as unacceptable as Holocaust denial.
+ - Even when nuclear power plants go horribly wrong, they do less damage to the planet and its people than coal-burning stations operating normally.
+ - Those who consume far more resources than they require destroy the life chances of those whose survival depends upon consuming more.
+ - It is a campaign not for abundance but for austerity. It is a campaign not for more freedom but for less. Strangest of all, it is a campaign not just against other people, but against ourselves.
+ - The corporations are powerful only because we have allowed them to be. In theory, it is we, not they, who mandate the state. But we have neglected our duty of citizenship, and they have taken advantage of our neglect to seize the reins of government.
+ - Thinking like ethical people, dressing like ethical people, decorating our homes like ethical people makes not a damn of difference unless we also behave like ethical people.
+ - War and pestilence might kill large numbers of people, but in most cases the population recovers. But lose the soil and everything else goes with it.
+ - August 28th 2012. Remember that date. It marks the day when the world went raving mad.
+
+30 quotes

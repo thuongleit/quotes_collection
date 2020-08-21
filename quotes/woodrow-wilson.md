@@ -1,0 +1,354 @@
+ - Justice, and only justice, shall always be our motto.
+ - This is a war to end all wars.
+ - We grow great by dreams. All big men are dreamers.
+ - I not only use all the brains that I have, but all I can borrow.
+ - There is no higher religion than human service. To work for the common good is the greatest creed.
+ - If you lose your wealth, you have lost nothing; if you lose your health, you have lost something; but if you lose your character, you have lost everything.
+ - Loyalty means nothing unless it has at its heart the absolute principle of self-sacrifice.
+ - The Constitution was not made to fit us like a straitjacket. In its elasticity lies its chief greatness.
+ - The only use of an obstacle is to be overcome. All that an obstacle does with brave men is, not to frighten them, but to challenge them.
+ - Wilson was once asked how long it took him to write a speech. He answered, ‘That depends. If I am to speak 10 minutes, I need a week for preparation. If 15 minutes, 3 days. If half hour, two days. If an hour, I am ready now.’
+ - The object of love is to serve, not to win.
+ - We are not here merely to make a living. We are here to enrich the world.
+ - The world can be at peace only if the world is stable, and there can be no stability where the will is in rebellion, where there is not tranquility of spirit and a sense of justice, of freedom, and of right.
+ - The government, which was designed for the people, has got into the hands of the bosses and their employers, the special interests. An invisible empire has been set up above the forms of democracy.
+ - We are citizens of the world. The tragedy of our times is that we do not know this.
+ - To think that I, the son of the manse, should be able to help restore the Holy Land to its people.
+ - America is not a mere body of traders; it is a body of free men. Our greatness is built upon our freedom – is moral, not material. We have a great ardor for gain; but we have a deep passion for the rights of man.
+ - America cannot be an ostrich with its head in the sand.
+ - If I am to speak ten minutes, I need a week for preparation; if an hour, I am ready now.
+ - Self-determination is not a mere phrase. It is an imperative principle of action, which statesmen will henceforth ignore at their peril.
+ - We came to America, either ourselves or in the persons of our ancestors, to better the ideals of men, to make them see finer things than they had seen before, to get rid of the things that divide and to make sure of the things that unite.
+ - Life does not consist in thinking, it consists in acting.
+ - Only a peace between equals can last. Only a peace the very principle of which is equality and a common participation in a common benefit.
+ - If you want to make enemies, try to change something.
+ - We live in an age disturbed, confused, bewildered, afraid of its own forces, in search not merely of its road but even of its direction.
+ - Let it be your pride to show all men everywhere not only what good soldiers you are, but also what good men you are.
+ - Just what is it that America stands for? If she stands for one thing more than another it is for the sovereignty of self-governing people.
+ - Benevolence does not consist in those who are prosperous pitying and helping those who are not. It consists in fellow feeling that puts you upon actually the same level with the fellow who suffers.
+ - There is no indispensable man.
+ - The difference between a strong man and a weak one is that the former does not give up after a defeat.
+ - Sometimes people call me an idealist. Well, that is the way I know I am an American. America is the only idealistic nation in the world.
+ - It is easier to move a cemetery than to change a curriculum.
+ - Tell me what is right and I will fight for it.
+ - The man who is swimming against the stream knows the strength of it.
+ - Progressiveness means not standing still when everything else is moving.
+ - No man has ever risen to the stature of spiritual manhood until he has found that it is finer to serve somebody else than it is to serve himself.
+ - The man who reads everything is like the man who eats everything: he can digest nothing, and the penalty of crowding one’s mind with other men’s thoughts is to have no thoughts of one’s own.
+ - The way to stop financial joyriding is to arrest the chauffeur, not the automobile.
+ - Friendship is the only cement that will ever hold the world together.
+ - The ear of the leader must ring with the voices of the people.
+ - If a dog will not come to you after having looked you in the face, you should go home and examine your conscience.
+ - Not all change is progress.
+ - The Civil War created in this country what had never existed before – a national consciousness. It was not the salvation of the Union; it was the rebirth of the Union.
+ - We must believe the things We teach our children.
+ - Hunger does not breed reform; it breeds madness and all the distemper’s that make an ordered life impossible.
+ - We grow by our dreams.
+ - The only thing that saves the world is the little handful of disinterested men that are in it.
+ - If you will think about what you ought to do for other people, your character will take care of itself. Character is a by-product, and any man who devotes himself to its cultivation in his own case will become a selfish prig.
+ - The sum of the whole matter is this – our civilization cannot survive materially unless it be redeemed spiritually.
+ - It recognizes no morality but a sham morality meant for deceit, no honor even among thieves and of a thievish sort, no force but physical force, no intellectual power but cunning, no disgrace but failure, no crime but stupidity.
+ - I would never read a book if it were possible for me to talk half an hour with the man who wrote it.
+ - The right is more precious than peace.
+ - High society is for those who have stopped working and no longer have anything important to do.
+ - You cannot be friends upon any other terms than upon the terms of equality.
+ - Provision for others is a fundamental responsibility of human life.
+ - No student knows his subject: the most he knows is where and how to find out the things he does not know.
+ - The fewer the desires, the more peace.
+ - The world must be made safe for democracy. Its peace must be planted upon the tested foundations of political liberty.
+ - Reality is what I see, not what you see.
+ - It is the object of learning, not only to satisfy the curiosity and perfect the spirits of ordinary men, but also to advance civilization.
+ - Conformity will be the only virtue and any man who refuses to conform will have to pay the penalty.
+ - Genius is divine perseverance. Genius I cannot claim nor even extra brightness but perseverance all can have.
+ - All things come to him who waits – provided he knows what he is waiting for.
+ - People will endure their tyrants for years, but they tear their deliverers to pieces if a millennium is not created immediately.
+ - When you have read the Bible, you will know it is the word of God, because you will have found it the key to your own heart, your own happiness and your own duty.
+ - The Bible is the one supreme source of revelation of the meaning of life, the nature of God and spiritual nature and need of men. It is the only guide of life which really leads the spirit in the way of peace and salvation.
+ - There is here a great melting pot in which we must compound a precious metal. That metal is the metal of nationality.
+ - There must be, not a balance of power, but a community of power; not organized rivalries, but an organized peace.
+ - Power consists in one’s capacity to link his will with the purpose of others, to lead by reason and a gift of cooperation.
+ - The white men were roused by a mere instinct of self-preservation – until at last there had sprung into existence a great Ku Klux Klan, a veritable empire of the South, to protect the Southern country.
+ - Some Americans need hyphens in their names because only part of them has come over.
+ - Neutrality is a negative word. It does not express what America ought to feel. We are not trying to keep out of trouble; we are trying to preserve the foundations on which peace may be rebuilt.
+ - Fear God and you need not fear anyone else.
+ - An invisible empire has been set up above the forms of Democracy.
+ - Remember that God ordained that I should be the next president of the United States. Neither you nor any other mortal or mortals could have prevented this.
+ - The flag is the embodiment, not of sentiment, but of history.
+ - A man’s rootage is more important than his leafage.
+ - Thought cannot conceive of anything that may not be brought to expression. He who first uttered it may be only the suggester, but the doer will appear.
+ - Never attempt to murder a man who is committing suicide.
+ - I used to be a lawyer, but now I am a reformed character.
+ - When men take up arms to set other men free, there is something sacred and holy in the warfare.
+ - If you wish your children to be Christians you must really take the trouble to be Christian yourselves. Those are the only terms upon which the home will work the gracious miracle.
+ - We didn’t have another choice but to do what we did, if we wanted to be accepted, because we weren’t counted as human beings.
+ - It’s harder for a leader to be born in a palace than to be born in a cabin.
+ - Government is not a warfare of interests.
+ - The only place in the world that nothing has to be explained to me is the South.
+ - The presidential office is not a rosewater affair. This is an office in which a man must put on his war paint.
+ - It is a fearful thing to lead this great peaceful people into war, into the most terrible and disastrous of all wars, civilizationitself seeming to be in the balance. But the right is more precious than peace, and we shall fight for the things we have always carried closest to our hearts.
+ - The cure for bad politics is the same as the cure for tuberculosis. It is living in the open.
+ - I will not speak with disrespect of the Republican Party. I always speak with respect of the past.
+ - Some Americans need hyphens in their names, because only part of them has come over; but when the whole man has come over, heart and thought and all, the hyphen drops of its own weight out of his name.
+ - America is the only idealistic nation in the world.
+ - I believe in Democracy because it releases the energies of every human being.
+ - Jefferson’s Declaration of Independence is a practical document for the use of practical men. It is not a thesis for philosophers, but a whip for tyrants; it is not a theory of government but a program of action.
+ - The wisest thing to do with a fool is to encourage him to hire a hall and discourse to his fellow-citizens. Nothing chills nonsense like exposure to the air.
+ - There is little for the great part of the history of the world except the bitter tears of pity and the hot tears of wrath.
+ - Death, like the quintessence of otherness, is for others.
+ - There is a power so organized, so subtle, so complete, and so pervasive, that they had better not speak above their breath when they speak in condemnation of it.
+ - That a peasant may become king does not render the kingdom democratic.
+ - We have beaten the living, but we cannot fight the dead.
+ - We ought to regard ourselves and to act as socialists – believers in the wholesomeness and beneficence of the body politic.
+ - To be free is not necessarily to be wise. Wisdom comes with counsel, with the frank and free conference of untrammeled men united in the common interest.
+ - If you’ve made up your mind you can do something, you’re absolutely RIGHT.
+ - A sure sign of an amateur is too much detail to compensate for too little life.
+ - The seed of revolution is repression.
+ - Property as compared with humanity, as compared with the red blood in the American people, must take second place, not first place.
+ - No people are true Christians who do not think constantly of how they can lift their brother and sister, how they can assist their friends, how they can enlighten mankind, how they can make virtue the rule of conduct in the circle in which they live.
+ - The flag is a flag of liberty of opinion as well as of political liberty.
+ - Have you thought of the sufferings of Armenia? You poured out your money to help succor the Armenians after they suffered; now set your strength so that they shall never suffer again.
+ - There is something better, if possible, that a man can give than his life. That is his living spirit to a service that is not easy, to resist counsels that are hard to resist, to stand against purposes that are difficult to stand against.
+ - A conservative is a man who just sits and thinks, mostly sits.
+ - Music says nothing to the reason: it is a kind of closely structured nonsense.
+ - Responsibility is proportionate to opportunity.
+ - I have always been among those who believed that the greatest freedom of speech was the greatest safety, because if a man is a fool, the best thing to do is to encourage him to advertise the fact by speaking.
+ - The growth of our nation and all its activities are in the hands of a few men.
+ - War is only a sort of dramatic representation, a sort of dramatic symbol of a thousand forms of duty. I fancy that it is just as hard to do your duty when men are sneering at you as when they are shooting at you.
+ - Leadership does not always wear the harness of compromise.
+ - The highest and best form of efficiency is the spontaneous cooperation of a free people.
+ - Tolerance is an admirable intellectual gift; but it is of little worth in politics.
+ - Uncompromising thought is the luxury of the closeted recluse. Untrammeled reasoning is the indulgence of the philosopher, of the dreamer of sweet dreams.
+ - We shall fight for a universal dominion of right by such a concert of free peoples as shall bring peace and safety to all nations and make the world itself at last free.
+ - The method of political science is the interpretation of life; its instrument is insight, a nice understanding of subtle, unformulated conditions.
+ - The commands of democracy are as imperative as its privileges and opportunities are wide and generous. Its compulsion is upon us.
+ - A conservative is someone who makes no changes and consults his grandmother when in doubt.
+ - Liberty has never come from Government. Liberty has always come from the subjects of it. The history of liberty is a history of limitations of governmental power, not the increase of it.
+ - It would be the irony of fate if my administration had to deal chiefly with foreign affairs.
+ - I firmly believe in Divine Providence. Without belief in Providence I think I should go crazy. Without God the world would be a maze without a clue.
+ - I am not one of those who believe that a great standing army is the means of maintaining peace, because if you build up a great profession those who form parts of it want to exercise their profession.
+ - God knows that any man who would seek the presidency of the United States is a fool for his pains. The burden is all but intolerable, and the things that I have to do are just as much as the human spirit can carry.
+ - Liberty does not consist in mere declarations of the rights of man. It consists in the translation of those declarations into definite action.
+ - By ‘radical,’ I understand one who goes too far; by ‘conservative,’ one who does not go far enough; by ‘reactionary,’ one who won’t go at all.
+ - Settlements may be temporary, but the action of the nations in the interest of peace and justice must be permanent. We can set up permanent processes. We may not be able to set up permanent decisions.
+ - Business underlies everything in our national life, including our spiritual life. Witness the fact that in the Lord’s Prayer, the first petition is for daily bread. No one can worship God or love his neighbor on an empty stomach.
+ - It must be a peace without victory.
+ - As compared with the college politician, the real article seems like an amateur.
+ - It is not an army that we must train for war; it is a nation.
+ - I would rather belong to a poor nation that was free than to a rich nation that had ceased to be in love with liberty.
+ - No man can worship God or love his neighbor on an empty stomach.
+ - Congress in session is Congress on public exhibition, whilst Congress in its committee-rooms is Congress at work.
+ - Surely a man has come to himself only when he has found the best that is in him, and has satisfied his heart with the highest achievement he is fit for.
+ - If Freud had worn a kilt in the prescribed Highland manner he might have had a very different attitude to genitals.
+ - I am all kinds of a democrat, so far as I can discover but the root of the whole business is this, that I believe in the patriotism and energy and initiative of the average man.
+ - We have not given science too big a place in our education, but we have made a perilous mistake in giving it too great a preponderance in method in every other branch of study.
+ - No government has ever been beneficent when the attitude of government was that it was taking care of the people. The only freedom consists in the people taking care of the government.
+ - Every man who takes office in Washington either grows or swells, and when I give a man an office, I watch him carefully to see whether he is swelling or growing. The mischief of it is that when they swell, they do not swell enough to burst.
+ - But the right is more precious than peace, and we shall fight for the things which we have always carried nearest our hearts.
+ - Politics is a war of causes; a joust of principles. Government is too serious a matter to admit of meaningless courtesies.
+ - The use of a university is to make young gentlemen as unlike their fathers as possible.
+ - Politics is a war of causes; a joust of principles.
+ - No nation is fit to sit in judgement upon any other nation.
+ - There is a price which is too great to pay for peace, and that price can be put in one word. One cannot pay the price of self-respect.
+ - Work is the keystone of a perfect life. Work and trust in God.
+ - Some of us let our dreams die, but others nourish and protect them, nurse them through bad days ’till they bring them to sunshine and light.
+ - While we are fighting for freedom, we must see, among other things, that labor is free.
+ - The greatest and truest models for all oratorsis Demosthenes. One who has not studied deeply and constantly all the great speeches of the great Athenian, is not prepared to speak in public. Only as the constant companion of Demosthenes, Burke, Fox, Canning and Webster, can we hope to become orators.
+ - There are blessed intervals when I forget by one means or another that I am President of the United States.
+ - My best training came from my father.
+ - The roll of honor consists of the names of meant who have squared their conduct by ideals of duty.
+ - If the colored people made a mistake in voting for me, they ought to correct it.
+ - We shall not, I believe, be obliged to alter our policy of watchful waiting.
+ - Segregation is not humiliating but a benefit.
+ - The truth is we are all caught in a great economic system which is heartless.
+ - There was a time when corporations played a minor part in our business affairs, but now they play the chief part, and most men are the servants of corporations.
+ - They do not need our praise. They do not need that our admiration should sustain them. There is no immortality that is safer than theirs. We come not for their sakes but for our own, in order that we may drink at the same springs of inspiration from which they themselves drank.
+ - This little world, this little state, this little commonwealth of our own...
+ - Nothing was ever done so systematically as nothing is being done now.
+ - Caution is the confidential agent of selfishness.
+ - The masters of the government of the United States are the combined capitalists and manufacturers of the United States.
+ - It is like writing history with lightning and my only regret is that it is all so terribly true.
+ - We are provincials no longer. The tragic events of the 30 months of vital turmoil through which we have just passed have made us citizens of the world. There can be no turning back.
+ - One cool judgement is worth a thousand hasty councils.
+ - There can be no equality or opportunity if men and women and children be not shielded in their lives from the consequences of great industrial and social processes which they cannot alter, control, or singly cope with.
+ - Your enlightenment depends on the company you keep. You do not know the world until you know the men who have possessed it and tried its wares before you were ever given your brief run upon it.
+ - The world is not looking for servants, there are plenty of these, but for masters, men who form their purposes and then carry them out, let the consequences be what they may.
+ - All things come to him who waits.
+ - Big business is not dangerous because it is big, but because its bigness is an unwholesome inflation created by privileges and exemptions which it ought not to enjoy.
+ - No man ever saw a government. I live in the midst of the Government of the United States, but I never saw the Government of the United States.
+ - The light that shined upon the summit now seems almost to shine at our feet.
+ - A man who thinks of himself as belonging to a particular national group in America has not yet become an American. And the man who goes among you to trade upon your nationality is no worthy son to live under the Stars and Stripes.
+ - No man that does not see visions will ever realize any high hope or undertake any high enterprise.
+ - An evident principleis the principle of justice to all peoples and nationalities, and their right to live on equal terms of liberty and safety with one another, whether they be strong or weak.
+ - The awakening of the people of China to the possibilities under free government is the most significant, if not the most momentous, event of our generation.
+ - I have always in my own thought summed up individual liberty, and business liberty, and every other kind of liberty, in the phrase that is common in the sporting world, ‘A free field and no favor.’
+ - Any man that resists the present tides that run in the world, will find himself thrown upon a shore so high and barren that it will seem he has been separated from his human kind forever.
+ - It is not men that interest or disturb me primarily; it is ideas. Ideas live; men die.
+ - A man may be defeated by his own secondary successes.
+ - No man can sit down and withhold his hands from the warfare against wrong and get peace from his acquiescence.
+ - All the extraordinary men I have known were extraordinary in their own estimation.
+ - There is such a thing as a man being too proud to fight.
+ - Freedom exists only where the people take care of the government.
+ - A little group of willful men, representing no opinion but their own, have rendered the great government of the United States helpless and contemptible.
+ - I have long enjoyed the friendship and companionship of Republicans because I am by instinct a teacher, and I would like to teach them something.
+ - One cannot pay the price of self-respect.
+ - Justice has nothing to do with expediency. Justice has nothing to do with any temporary standard whatever. It is rooted and grounded in the fundamental instincts of humanity.
+ - I’m a vague, conjunctured personality, more made up of opinions and academic prepossessions than of human traits and red corpuscles.
+ - Energy in a nation is like sap in a tree; it rises from bottom up.
+ - The rule for every man is, not to depend on the education which other men have prepared for him-not even to consent to it; but to strive to see things as they are, and to be himself as he is. Defeat lies in self-surrender.
+ - A living thing is born.
+ - Here lies, in a “horizontal” position The “outside” case of Peter Pendulum, watch-maker. He departed this life “wound up” In hopes of being “taken in hand” by his Maker, And of being thoroughly “cleaned, repaired” and “set a-going” In the world to come.
+ - Absolute identity with one’s cause is the first and great condition of successful leadership.
+ - There are times when words seem empty and only actions seem great. Such a time has come, and in the Providence of God America will once more have an opportunity to show the world that she was born to save mankind.
+ - Every great man of business has got somewhere a touch of the idealist in him.
+ - Some people have a large circle of friends while others have only friends that they like.
+ - Democracy is not so much a form of government as a set of principles.
+ - Liberty is its own reward.
+ - Things get very lonely in Washington sometimes. The real voice of the great people of America sometimes sounds faint and distant in that strange city. You hear politics until you wish that both parties were smothered in their own gas.
+ - Where the great force lies, there must be the sanction of peace.
+ - The princes among us are those who forget themselves and serve others.
+ - Character is a by-product; it is produced in the great manufacture of daily duty.
+ - Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
+ - A nation which does not remember what it was yesterday, does not know what it is today, nor what it is trying to do. We are trying to do a futile thing if we do not know where we came from or what we have been about.
+ - The interesting and inspiring thing about America is that she asks nothing for herself except what she has a right to ask for humanity itself.
+ - When correcting a child, the goal is to apply light, not heat.
+ - Today’s greatest labor-saving device is tomorrow.
+ - War isn’t declared in the name of God; it is a human affair entirely.
+ - I had rather have everybody on my side than be armed to the teeth.
+ - It has become a people’s war, and peoples of all sorts and races, of every degree of power and variety of fortune, are involved inits sweeping processes of change and settlement.
+ - Only peace between equals can last.
+ - As a matter of fact and experience, the more power is divided the more irresponsible it becomes.
+ - If you think too much about being re-elected, it is very difficult to be worth re-electing.
+ - So far as the colleges go, the sideshows are swallowing up the circus.
+ - I can predict with absolute certainty that within another generation there will be another world war if the nations of the world do not concert the method by which to prevent it.
+ - We have come to be one of the worst ruled, one of the most completely controlled and dominated Governments in the world.
+ - We want one class of persons to have a liberal education, and we want another class of persons, a very much larger class of necessity in every society, to forgo the privilege of a liberal education and fit themselves to perform specific difficult manual tasks.
+ - America was established not to create wealth but to realize a vision, to realize an ideal – to discover and maintain liberty among men.
+ - This is history written in lightning.
+ - I have sometimes heard men say politics must have nothing to do with business, and I have often wished that business had nothing to do with politics.
+ - I am not willing to be drawn further into the toils. I cannot accede to the acceptance of gifts upon terms which take the educational policy of the university out of the hands of the Trustees and Faculty and permit it to be determined by those who give money.
+ - There will be no greater burden on our generation than to organize the forces of liberty in our time in order to make our quest ofa new freedom for America.
+ - What is the use of voting? We know that the machines of both parties are subsidized by the same persons, and therefore it is useless to turn in either direction.
+ - The Government of the United States would be constrained to hold the Imperial German government to a strict accountability for such acts of their naval authorities.
+ - You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.
+ - No task, rightly done, is truly private. It is part of the world s work.
+ - My dream of politics all my life has been that it is the common business, that it is something we owe to each other to understand and discuss with absolute frankness.
+ - One of the proofs of the divinity of our gospel is the preaching it has survived.
+ - The most conservative persons I ever met are college undergraduates.
+ - Sciencehas won for us a great liberty in the physical world, a liberty from superstitious fear and from disease, a freedom touse nature as a familiar servant; but it has not freed us from ourselves.
+ - The natural man inevitably rebels against mathematics, a mild form of torture that could only be learned by painful processes of drill.
+ - The firm basis of government is justice, not pity.
+ - I want to re-echo my hope that we may all work together for a great peace as distinguished from a mean peace.
+ - To do things today exactly the way you did them yesterday saves thinking.
+ - I believe very profoundly in an over-ruling Providence, and I do not fear that any real plans can be thrown off the track. It maynot be intended that I shall be President – but that would not break my heart.
+ - America lives in the heart of every man everywhere who wishes to find a region where he will be free to work out his destiny as he chooses.
+ - I am sorry for those that disagree with me because I know that they are wrong.
+ - America is not anything if it consists of each of us. It is something only if it consists of all of us.
+ - I have come slowly into possession of such powers as I have. I receive the opinions of my day. I do not conceive them. But I receive them into a vivid mind.
+ - There is no more subtle dissolvent of morals than sentimentality.
+ - When the representatives of “Big Business” think of the people, they do not include themselves.
+ - A man is not as big as his belief in himself; he is as big as the number of persons who believe in him.
+ - Open covenants of peace, openly arrived at.
+ - The success of a party means little more than that the Nation is using the party for a large and definite purpose. It seeks to use and interpret a change in its own plans and point of view.
+ - You cannot tear up ancient rootages and safely plant the tree of liberty in soil that is not native to it.
+ - No one who has read official documents needs to be told how easy it is to conceal the essential truth under the apparently candid and all- disclosing phrases of a voluminous and particularizing report.
+ - Generally young men are regarded as radicals. This is a popular misconception. The most conservative persons I ever met are college undergraduates. The radicals are the men past middle life.
+ - We should not only master questions, but also act upon them, and act definitely.
+ - There is no indispensable man. The government will not collapse and go to pieces if any one of the gentlemen who are seeking to be entrusted with its guidance should be left at home.
+ - The man who disparages music as a luxury and non-essential is doing the nation an injury. Music now, more than ever before, is a national need.
+ - A nation is as great, and only as great, as her rank and file.
+ - I am one who fights without a knack of hoping confidentlysimply a Scotch-Irishman who will not be conquered.
+ - Such a mind we must desire to see in a woman, – a mind that stirs without irritating you, that arouses but does not belabour, amuses and yet subtly instructs.
+ - Interest does not tie nations together; it sometimes separates them. But sympathy and understanding does unite them.
+ - It does not become America that within her borders, where every man is free to follow the dictates of his conscience, men should raise the cry of church against church. To do that is to strike at the very spirit and heart of America.
+ - We are not put into this world to sit still and know; we are put into it to act.
+ - To fight, you must be brutal and ruthless, and the spirit of ruthless brutality will enter into the very fibre of national life...
+ - The great monopoly in this country is the money monopoly. So long as it exists, our old variety of freedom and individual energy of development are out of the question.
+ - If I cannot retain my moral influence over a man except by occasionally knocking him down, if that is the only basis upon which he will respect me, then for the sake of his soul I have got occasionally to knock him down.
+ - America is the place where you cannot kill your government by killing the men who conduct it.
+ - From the dim morning hours of history when the father was king and priest down to this modern time of history’s high noon when nations stand forth full grown and self-governed, the law of coherence and continuity in political development has suffered no serious breach.
+ - There is no cause half so sacred as the cause of the people. There is no idea so uplifting as the idea of the service of humanity.
+ - There’s not an idea in our heads that has not been worn shiny by someone else’s brains.
+ - We cannot be separated in interest or divided in purpose. We stand together until the end.
+ - If there are men in this country big enough to own the government of the United States, they are going to own it.
+ - The men who act stand nearer to the mass of man than the men who write; and it is in their hands that new thought gets its translation into the crude language of deeds.
+ - Whatever may be said against the chewing of tobacco, this at least can be said of it, that it gives a man time to think between sentences.
+ - We are expected to put the utmost energy, of every power that we have, into the service of our fellow men, never sparing ourselves, not condescending to think of what is going to happen to ourselves, but ready, if need be, to go to the utter length of self-sacrifice.
+ - The way to be patriotic in America is not only to love America, but to love the duty that lies nearest to our hand, and to know that in performing it we are serving our country.
+ - A right is worth fighting for only when it can be put into operation.
+ - I have no happy fairyland vision that she can win.
+ - The profession I chose was politics; the profession I entered was law. I entered the one because I thought it would lead to the other.
+ - I believe that soldiers will bear me out in saying that both come in time of battle. I take it that the moral courage comes in going into the battle, and the physical courage in staying in.
+ - I am sorry for men who do not read the Bible every day. I wonder why they deprive themselves of the strength and pleasure.
+ - I would rather lose in a cause that will some day win, than win in a cause that will some day lose.
+ - A fault which humbles a person is of more use to him or her than a good action which puffs him or her up.
+ - I believe in human liberty as I believe in the wine of life. There is no salvation for men in the pitiful condescension of industrial masters. Guardians have no place in a land of freemen.
+ - Great statesmen seem to direct and rule by a sort of power to put themselves in the place of the nation over which they are set, and may thus be said to possess the souls of poets at the same time they display the coarser sense and the more vulgar sagacity of practical men of business.
+ - There is such a thing as man being too proud to fight. There is such a thing as a nation being so right that it does not need to convince others by force that it is right.
+ - The question of armaments, whether on land or sea, is the most immediately and intensely practical question connected with the future fortunes of nations and of mankind.
+ - The shadows that now lie dark upon our path will soon be dispelled and we shall walk with the light all about us if we but be true to ourselves.
+ - The world must be made safe for democracy.
+ - The American Revolution was a beginning, not a consummation.
+ - The nation’s honor is dearer than the nation’s comfort.
+ - Only free peoples can hold their purpose and their honor steady to a common end, and prefer the interests of mankind to any narrow interest of their own.
+ - Excesses accomplish nothing. Disorder immediately defeats itself.
+ - The law that will work is merely the summing up in legislative form of the moral judgment that the community has already reached.
+ - Men grow by having responsibility laid upon them.
+ - My own ideals for the university are those of a genuine democracy and serious scholarship. These two, indeed, seem to go together.
+ - The history of liberty is the history of limitations on the power of government, not the increase of it. When we resist, therefore, the concentration of power, we are resisting the processes of death, because concentration of power is what always precedes the destruction of human liberties.
+ - I am not sure that it is of the first importance that you should be happy. Many an unhappy man has been of deep service to himself and to the world.
+ - The world must be made safe for democracy. Its peace must be planted upon the tested foundations of political liberty. We have no selfish ends to serve. We desire no conquest, no dominion. We seek no indemnities for ourselves, no material compensation for the sacrifices we shall freely make.
+ - What every man seeks is satisfaction. He deceives himself so long as he imagines it to lie in self-indulgence.
+ - No peace can last, or ought to last, which does not recognize and accept the principle that governments derive all their just powers from the consent of the governed, and that no right anywhere exists to hand peoples from sovereignty to sovereignty as if they were property.
+ - I am so glad that I am young, so that I may give my youth to you.
+ - No man can be just who is not free.
+ - Government, in it’s last analysis, is organized force.
+ - Prosperity is necessarily the first theme of a political campaign.
+ - I want the people to love me, but I suppose they never will.
+ - The allied nations with the fullest concurrence of our government and people are agreed that in Palestine shall be laid the foundations of a Jewish Commonwealth.
+ - Opinion is the great, indeed the only coordinating force in our system.
+ - America was born to exemplify that devotion to the elements of righteousness which are derived from the revelations of the Holy Scripture.
+ - The things that the flag stands for were created by the experiences of a great people. Everything that it stands for was written by their lives. The flag is the embodiment, not of sentiment, but of history.
+ - I have the feeling that he would rather see a good cause fail than succeed if he were not the head of it.
+ - The man who has no vision will undertake no great enterprise.
+ - The literary gift is a very dangerous gift to possess if you are not telling the truth, and I would a great deal rather, for my part, have a man stumble in his speech than to feel he was so exceedingly smooth that he had better be watched both day and night.
+ - Some of the greatest and most lasting effects of genuine oratory have gone forth from secluded lecture desks into the hearts of quiet groups of students.
+ - Every country is renewed out of the unknown ranks and not out of the ranks of those already famous and powerful and in control.
+ - To conquer with arms is to make only a temporary conquest; to conquer the world by earning its esteem is to make a permanent conquest.
+ - Uncompromising thought is the luxury of the closeted recluse.
+ - We want the spirit of America to be efficient; we want American character to be efficient; we want American character to display itself in what I may, perhaps, be allowed to call spiritual efficiency – clear disinterested thinking and fearless action.
+ - You are here to enrich the world, and you impoverish yourself if you forget the errand.
+ - Understanding is the soil in which grow all the fruits of friendship.
+ - In public affairs, stupidity is more dangerous than knavery, because it is harder to fight.
+ - Is there any man, is there any woman, let me say any child here that does not know that the seed of war in the modern world is industrial and commercial rivalry?
+ - Never for a moment have I had one doubt about my religious beliefs. There are people who believe only so far as they can understand – that seems to me presumptuous and sets their understanding as the standard of the universe.
+ - Death comes along like a gas bill one can’t payand that’s all one can sayabout it.
+ - What is at the heart of all national problems? It is that we have seen the hand of material interest sometimes about to close upon our dearest rights and possessions.
+ - You cannot, in human experience, rush into the light. You have to go through the twilight into the broadening day before the noon comes and the full sun is upon the landscape.
+ - The whole purpose of democracy is that we may hold counsel with one another, so as not to depend upon the understanding of one man.
+ - When you come into the presence of a leader of men, you know that you have come into the presence of fire – that it is best not uncautiously to touch that man – that there is something that makes it dangerous to cross him.
+ - They lived long that have lived well.
+ - The westward march has stopped, upon the final plains of the Pacific; and now the plot thickenswith the change, the pause, the settlement, our people draw into closer groups, stand face to face, to know each other and be known.
+ - Bagehot did what so many thousand of young graduates before him had done, – he studied for the bar; and then, having prepared himself to practise law, followed another large body of young men in deciding to abandon it.
+ - I have received delegations of working men who come, apparently speaking of the utmost sincerity, have declared that they would regard it as a genuine hardship to be deprived of their beer.
+ - Every people has a right to choose the sovereignty under which they shall live.
+ - Politics I conceive to be nothing more than the science of the ordered progress of society along the lines of greatest usefulness and convenience to itself.
+ - Liberty cannot live apart from constitutional.
+ - Unless justice be done to others it will not be done to us.
+ - What we seek is the reign of law, based upon the consent of the governed and sustained by the organized opinion of mankind.
+ - When I give a man an office, I watch him carefully to see whether he is swelling or growing.
+ - And while you bring all countries with you, you come with a purpose of leaving all other countries behind you – bringing what is best of their spirit, but not looking over your shoulders and seeking to perpetuate what you intended to leave behind in them.
+ - A presidential campaign may easily degenerate into a mere personal contest, and so lose its real dignity. There is no indispensable man.
+ - I am not one of those who have the least anxiety about the triumph of the principles I have stood for. I have seen fools resist Providence before, and I have seen their destruction, as will come upon these again, utter destruction and contempt. That we shall prevail is as sure as that God reigns.
+ - Government is merely an attempt to express the conscience of everybody, the average conscience of the nation, in the rules that everybody is commanded to obey. That is all it is.
+ - In the last analysis, my fellow country men, as we in America would be the first to claim, a people are responsible for the acts of their government.
+ - We grow through our dreams. All great men and women are dreamers. Some, however, allow their dreams to die. You should nurse your dreams and protect them through bad times and tough times to the sunshine and light which always come.
+ - If you would be a leader of men, you must lead your own generation, not the next.
+ - Statesmen have to bend to the collective will of their peoples or be broken.
+ - That is Gladstone, the greatest statesman that ever lived. I intend to be a statesman, too.
+ - Americanism consists in utterly believing in the principles of America.
+ - We can afford to exercise the self-restraint of a really great nation which realizes its own strength and scorns to misuse it.
+ - We are in the presence of a new organization of society. Our life has broken away from the past.
+ - Princeton is no longer a thing for Princeton men to please themselves with. Princeton is a thing with which Princeton men must satisfy the country.
+ - The history of liberty is a history of resistance.
+
+352 quotes

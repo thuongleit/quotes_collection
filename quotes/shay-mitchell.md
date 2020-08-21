@@ -1,0 +1,66 @@
+ - I am a foodie. I’m not afraid to say it.
+ - It’s important to wake up everyday and remind yourself what you’re working towards. You create your own life, it’s not set out there for you.
+ - I’ve always felt like you should love who you love – sexuality doesn’t matter. It would be so cool in the future if it weren’t even an issue to anybody anymore.
+ - When you look at yourself in the mirror, don’t pinpoint the things that you aren’t happy with. Appreciate what you were born with and acknowledge the fact that you are you, and that is something to celebrate.
+ - I’m a huge pasta and pizza lover. I can eat those every single day.
+ - If you can make me laugh, my heart is yours! I think there’s nothing more attractive than someone who doesn’t take themselves too seriously.
+ - It’s the bully who is insecure.
+ - Coconut oil has always been my favorite. Any dry spots I have I’ll put coconut oil on them because it’s a natural ingredient and it works better than anything.
+ - Embrace what you were born with because it’s beautiful.
+ - I love colorful things. I think the world is so beautiful because of all the different colors. With my feed, I really like it to be a rainbow effect, very colorful and vibrant, and just showing happy moments.
+ - I realized that bullying never has to do with you. It’s the bully who’s insecure.
+ - Take that one thing you don’t like about yourself and more often than not that’s the one thing that makes you more special. Whether it’s that gap in your teeth, or that mole you never liked, or your skin color.
+ - I’ll never turn down a red velvet cupcake.
+ - I finally realized that no one is perfect and that I like the fact that I look different and don’t have the perfect body. No one does!
+ - You lie when you’re a teenager, I think, because your parents are treating you like you’re younger and you – in your mind – think that you’re so much older. You make up all of these lies because you think it’s what you should do.
+ - We all have to find beauty within us, as opposed to just our exterior.
+ - I feel like it’s about taking time out of your week to have your own mini spa day. I like to do it on Sundays because usually I don’t have anything on that day.
+ - I love to use beets as a lip tint. It lasts all day.
+ - I think it would be cute to marry your high school sweetheart, but I think it would also be nice to be sitting on a plane with somebody who lives across the world from you.
+ - Growing up, I wish I hadn’t tried so hard to fit in. I’d tell myself to just embrace what you were born with because it’s beautiful and you were made like that for a reason. It’s tough being a girl. I think we need all of the support we can get.
+ - I’m definitely a girly-girl and I love playing with fashion, but at the same time I will go skydiving with you tomorrow.
+ - I hate dieting. Let’s just say that.
+ - In high school I was an outcast I wasn’t cool to hang out with. I ate my lunch in a bathroom stall because that was the one place I could go where I wouldn’t been seen.
+ - When I was in high school, I wanted to be a counselor and I wanted to work with kids. I’ve been through the worst of high school. And I want to motivate people to live the best life that they can, because we’re only here for one life.
+ - I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn’t met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!
+ - I will never forget that there are millions of other people who would be dying to be in my position. I’m not going to be an actress who doesn’t appreciate what she has.
+ - Sometimes when I travel from climate to climate, my skin can change very drastically because I go from hot to cold. I get dry like everybody else – from planes.
+ - My daily beauty regimen is definitely always in the mornings, and at night, always washing my face with a basic cleanser. I also use a moisturizer with SPF to follow up.
+ - After I finished high school I went to Hong Kong and Thailand and spent some time there. Just to get that whole experience of being out of the bubble that I was in from high school in Vancouver, to be able to travel around and be on your own was an amazing experience.
+ - I grew up in a predominantly Caucasian neighborhood, but my mom is Filipino-Spanish and my dad is Irish.
+ - With fitness, I do Bikrams hot yoga. The gym that I have in my building is amazing. I love to do cardio and weights there.
+ - Being single is not as bad as everyone likes to make it seem!
+ - American Eagle clothing is stylish, flattering and all about embracing your individuality.
+ - I love working out. Dance classes are my favorite.
+ - Personally, I don’t really have a set style or look. It’s pretty much what I feel like wearing that day, from a floral-print dress and high heels to ripped jeans and army boots.
+ - Honestly, I think it’s about always making sure to cleanse your skin every single night. I never go to bed with my makeup on. That is a major key. There’s nothing worse than waking up in the morning and all of your makeup has soaked into your pores.
+ - I feel so good after a workout. Any time you can be alone with yourself is really important.
+ - I’m all about having one day during the week when I have an at-home spa day. That’s when I like to do my nails and moisturize, or do a coconut oil hair masque and clear out my blackheads with pore strips. That’s one of my favorite things.
+ - I actually just rock-climbed when I was away on vacation and now I’m searching out rock climbing gyms. That’s my new obsession for 2013.
+ - The craziest thing I’ve done getting over love is skydiving. I had a really upsetting breakup. When I broke up with my boyfriend I needed to like do something different and so I actually went skydiving to turn over a new page.
+ - It didn’t take me very long to realize that modeling wasn’t very satisfying. I was always asking people, ‘How are you going to set up this shot? How will it be lit?’ And they’d say, ‘Stop. Just pose.’ I had a problem with that.
+ - For my prom I really wanted to wear a bright color – something that was going to pop and stand out.
+ - I can’t live without mousse. When my hair is damp I put it at the roots. When I blow dry my hair it makes it so much bouncier. It gives you shampoo commercial hair and makes your blowout so much better.
+ - It’s kind of a shock to your skin, changing climates. It’s new water, and new air quality.
+ - I work with a cause called the Somaly Mam Foundation, and that is my purpose in life, above anything else. Everything that I do, I’m thinking about girls. As strong as we are, we’re also sensitive, and I feel like men take advantage of that.
+ - There’s nothing worse than seeing someone chewing gum on the red carpet!
+ - I grew up in a predominantly Caucasian community, and most of my friends had blonde hair and blue eyes. So I was always straightening my hair, wearing colored contacts, and I never tanned, if I could help it.
+ - I’m a fan of things I can get done fast! It feels awesome because it heats up in your hand, and leaves your skin tingly and clean.
+ - I’m a fan of designers and clothes that look beautiful, but more importantly, make me feel beautiful and confident. It’s why I’ve always loved Stella McCartney, and more recently, Prabal Gurung. Their pieces are cool, yet timeless, and the fits are effortlessly flattering.
+ - I like to let my skin breathe when I’m not shooting or working, so that’s why you’ll find me on most of my social media accounts barefaced with face masks!
+ - I’m more comfortable in heels than I am in sneakers.
+ - Yeah, you know, if I’m having an emotional scene I do like to go off and be by myself; not to say that I’m a method actor or anything like that, but for scenes like that that are more emotional, I do like to take that night off and not be so social.
+ - I like to layer when I fly – the climate always changes from the airport to the plane to the new city.
+ - For everyday, Rebecca Minkoff’s collection is chic and comfortable at the same time.
+ - I think if the ingredients have nothing that I recognize, that kind of scares me. I like unique ingredients – like charcoal and baking soda – because it’s cool to be able to use products with ingredients you see at home.
+ - I’ve met a few fans from across the world who’ve had my name tattooed on them.
+ - Why would I try to change who I look like, what my race is? No. No no no. You are beautiful because that’s the skin you were born with. Love it. And be proud of it.
+ - When it comes to my skin, I take it seriously. Being on camera and doing what I do, it’s very important to start with a good base. So finding products that work really well with your skin are important.
+ - Once, I had to clip a jacket back to take a picture, and after they were done I forgot to remove the clip until someone noticed.
+ - The fact that the scrub literally comes out into your hand as a powder and then activates with water is a really cool thing.
+ - I’m a longtime fan of American Eagle, so when they approached me about joining their ‘Live Your Life’ campaign, it already felt like an organic fit.
+ - I’d define my everyday style as put together, but also comfortable. A great pair of jeans and a cute top can be so versatile.
+ - I did shoot a movie called Mother’s Day, and I really can’t wait for everybody to see that. I had so much fun shooting that with Jennifer Aniston, which was kind of surreal in itself.
+ - My mom grew up in the Philippines, and she would use coconut oil. I put that in my hair always – literally, natural coconut oil that you use for cooking. I use that for my cuticles and dry spots on my skin too.
+
+64 quotes

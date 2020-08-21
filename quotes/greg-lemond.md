@@ -1,0 +1,26 @@
+ - It never gets easier; you just go faster.
+ - There is no pill, no drug, that can do for you what one hour of exercise can.
+ - Perhaps the single most important element in mastering the techniques and tactics of racing is experience. But once you have the fundamentals, acquiring the experience is a matter of time.
+ - I have always struggled to achieve excellence. One thing that cycling has taught me is that if you can achieve something without a struggle, it’s not going to be satisfying.
+ - When you get second place, you say ‘I could have won it here, I could have won it there.’ When you win, you never say anything; it’s finished.
+ - The key is being able to endure psychologically. When you’re not riding well, you think, why suffer? Why push yourself for four or five hours? The mountains are the pinnacle of suffering.
+ - Testing, we will never do enough of it.
+ - You don’t suffer, kill yourself and take the risks I take just for money. I love bike racing.
+ - I’m more optimistic about cycling right now than I’ve ever been.
+ - Racing is a very selfish, self-centred, self-glorifying thing. My wife’s life for 14 years was centered around me. It was all about me. It was all for my ego.
+ - If Lance is clean, it is the greatest comeback in the history of sports. If he isn’t, it would be the greatest fraud.
+ - The most important decision I ever made in my career was to live my life in sports as honestly and ethically as possible. Never having compromised my values allows me to look back on my life with no regrets and feel satisfaction in what I was able to accomplish.
+ - If people really want to clean the sport of cycling up, all you have to do is put your money where your mouth is.
+ - The problem with being a Tour de France winner is you always have that feeling of disappointment if you don’t win again. That’s the curse of the Tour de France.
+ - There are few things that you can’t do as long as you are willing to apply yourself.
+ - Sincere apologies are for those that make them, not for those to whom they are made.
+ - I rode in a nine-day charity ride recently, averaged 43km a day and still finished in the lead group. I’m 38, not quite finished yet.
+ - I know it is possible to win the Tour without taking anything.
+ - Even good people are obliged to deceive.
+ - There are so many people who have died of cycling, and that didn’t happen when I was racing.
+ - More people should apologize, and more people should accept apologies when sincerely made.
+ - I’m lucky that mountian biking wasn’t around when I was 20, because I wouldn’t have won the Tour de France. It’s my kind of sport – hard, individualistic, and not a lot of tactics.
+ - It is cycling as a professional sport that represents the problem. It can transform someone into a liar.
+ - I know too that we Americans like to think of ourselves as cleaner than clean, a healthy nation who would never take anything when a recent poll suggested that 65 per cent of the population would risk dying in 10 years if they would be guaranteed Olympic gold.
+
+24 quotes

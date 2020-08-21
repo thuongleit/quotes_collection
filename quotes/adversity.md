@@ -1,0 +1,42 @@
+ - It is your reaction to adversity, not the adversity itself, that determines how your life’s story will develop. ~~Dieter F. Uchtdorf
+ - Adversity makes men, and prosperity makes monsters. ~~Victor Hugo
+ - If you have a strong belief in yourself, in what you are doing and what you want to do, no adversity is too difficult to overcome. ~~Napoleon Hill
+ - Don’t be afraid of a little opposition. Remember that the ‘Kite’ of success generally rises AGAINST the wind of Adversity, not with it. ~~Napoleon Hill
+ - I am thankful for the adversities, which have crossed my pathway, for they taught me tolerance, sympathy, self-control, perseverance and some other virtues I might never have known. ~~Napoleon Hill
+ - When jarred, unavoidably, by circumstance revert at once to yourself and don’t lose the rhythm more than you can help. You’ll have a better grasp of harmony if you keep going back to it. ~~Marcus Aurelius
+ - Within every adversity is an equal and opposite benefit. ~~Napoleon Hill
+ - Adversity always presents opportunities for introspection. ~~Abdul Kalam
+ - No one’s life is a smooth sail; we all come into stormy weather. But it’s this adversity – and more specifically our resilience – that makes us strong and successful. ~~Tony Robbins
+ - Face adversity head on in your training and you will conquer it smoothly in your fight. ~~Conor McGregor
+ - Celebrate your success and stand strong when adversity hits, for when the storm clouds come in, the eagles soar while the small birds take cover. ~~Napoleon Hill
+ - In order for the light to shine so brightly, the darkness must be present. ~~Francis Bacon
+ - Much of your pain is self-chosen. ~~Khalil Gibran
+ - Adversity is a crossroads that makes a person choose one of two paths: character or compromise. Every time he chooses character, he becomes stronger, even if that choice brings negative consequences. ~~John C. Maxwell
+ - Here life itself, life at its best and healthiest, awaits the caprice of the bullet. Let us see the development of the day. All else may stand over, perhaps for ever. Existence is never so sweet as when it is at hazard. ~~Winston Churchill
+ - I can bounce back from adversity and reinvent my life – it’s possible. ~~Les Brown
+ - Pursue your goals even in the face of difficulties, and convert adversities into opportunities. ~~Dhirubhai Ambani
+ - What such a man needs is not courage but nerve control, cool headedness. This he can get only by practice. ~~Theodore Roosevelt
+ - There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time. ~~Malcolm X
+ - It is the last straw that breaks the camel’s back. ~~Charles Dickens
+ - Education is the food of youth, the delight of old age, the ornament of prosperity, the refuge and comfort of adversity, and the provocation to grace in the soul. ~~Saint Augustine
+ - No man is more unhappy than he who never faces adversity. For he is not permitted to prove himself. ~~Seneca the Younger
+ - Gold is tried by fire, brave men by adversity. ~~Seneca the Younger
+ - Adversity often produces an unexpected opportunity. Look for it ! Appreciate and utilize it! This is difficult to do if you’re feeling sorry for yourself because you’re faced with adversity. ~~John Wooden
+ - The great challenge is to refuse to let the bad things that happen to us do bad things to us. That is the crucial difference between adversity and tragedy. ~~Neal A. Maxwell
+ - I thank God for my handicaps. For through them, I have found myself, my work and my God. ~~Helen Keller
+ - When you face adversity, you need to remind yourself that whatever is trying to defeat you could very well be what God will use to promote you. ~~Joel Osteen
+ - I never feel more alive than when I’m in great pain, struggling against insurmountable odds and untold adversity. Hardship? Suffering? Bring it! ~~Dean Karnazes
+ - You will suffer, be tempted, and make mistakes. You will learn for yourself what every heroine has learned: through overcoming challenges come growth and strength. It is your reaction to adversity, not the adversity itself, that determines how your life’s story will develop. ~~Dieter F. Uchtdorf
+ - Miracles arise from conviction. Be convicted about these things: Miracles can happen. Miracles do happen. Love makes them happen. ~~Marianne Williamson
+ - Your attitude towards problems, difficulties, and adversities is the most important factor in overcoming them. ~~Napoleon Hill
+ - Where victims see adversity, extreme achievers see opportunity. ~~Robin S. Sharma
+ - Many miles away there’s a shadow on the door of a cottage on the Shore of a dark Scottish lake. ~~Walter Scott
+ - With every adversity and trial comes the opportunity to grow stronger and learn from your circumstance. ~~O. J. Brigance
+ - Extraordinary people survive under the most terrible circumstances and they become more extraordinary because of it. ~~Robertson Davies
+ - Prosperity tries the fortunate, adversity the great. ~~Rose Kennedy
+ - We find comfort among those who agree with us – growth among those who don’t. ~~Frank A. Clark
+ - Never to suffer would never to have been blessed. ~~Edgar Allan Poe
+ - Good actions are a guard against the blows of adversity. ~~Abu Bakr
+ - Real champions fight through adversity. ~~Conor McGregor
+
+40 quotes

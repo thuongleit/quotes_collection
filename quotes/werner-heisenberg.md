@@ -1,0 +1,53 @@
+ - The first gulp from the glass of natural sciences will turn you into an atheist, but at the bottom of the glass God is waiting for you.
+ - What we observe is not nature itself, but nature exposed to our method of questioning.
+ - Only a few know, how much one must know to know how little one knows.
+ - The reality we can put into words is never reality itself.
+ - The very act of observing disturbs the system.
+ - The ‘path’ comes into existence only when we observe it.
+ - An expert is someone who knows some of the worst mistakes that can be made in his subject and how to avoid them.
+ - After the conversations about Indian philosophy, some of the ideas of Quantum Physics that had seemed so crazy suddenly made much more sense.
+ - There is a fundamental error in separating the parts from the whole, the mistake of atomizing what should not be atomized. Unity and complementarity constitute reality.
+ - My mind was formed by studying philosophy, Plato and that sort of thing.
+ - The more closely you look at one thing, the less closely can you see something else.
+ - Natural science, does not simply describe and explain nature; it is part of the interplay between nature and ourselves.
+ - The existing scientific concepts cover always only a very limited part of reality, and the other part that has not yet been understood is infinite.
+ - The one who insists on never uttering an error must remain silent.
+ - Unless you stake your life, life will not be won.
+ - It will never be possible by pure reason to arrive at some absolute truth.
+ - By getting to smaller and smaller units, we do not come to fundamental or indivisible units. But we do come to a point where further division has no meaning.
+ - Nonsense. Space is blue and birds fly through it.
+ - Every tool carries with it the spirit by which it has been created.
+ - The ontology of materialism rested upon the illusion that the kind of existence, the direct “actuality” of the world around us, can be extrapolated into the atomic range. This extrapolation is impossible, however.
+ - Looking at something changes it.
+ - What we observe is not nature itself but nature exposed to our method of questioning. Our scientific work in physics consists in asking questions about nature in the language that we possess and trying to get an answer from experiment by the means that are at our disposal.
+ - We will have to abandon the philosophy of Democritus and the concept of elementary particles. We should accept instead the concept of elementary symmetries.
+ - Every word or concept, clear as it may seem to be, has only a limited range of applicability.
+ - There are things that are so serious that you can only joke about them.
+ - It is probably true quite generally that in the history of human thinking the most fruitful developments frequently take place at those points where two different lines of thought meet.
+ - Whenever we proceed from the known to the unkown we may hope to understand, but we may have to learn at the same time a new meaning of the word ‘understanding’
+ - Both matter and radiation possess a remarkable duality of character, as they sometimes exhibit the properties of waves, at other times those of particles. Now it is obvious that a thing cannot be a form of wave motion and composed of particles at the same time – the two concepts are too different.
+ - The structure underlying the phenomena is not given by material objects like the atoms of Democritus but by the form that determines the material objects. The Ideas are more fundamental than the objects.
+ - I believe that the existence of the classical “path” can be pregnantly formulated as follows: The “path” comes into existence only when we observe it.
+ - Thus, the more precisely the position is determined, the less precisely the momentum is known, and conversely.
+ - The Same organizing forces that have shaped nature in all her forms are also responsible for the structure of our minds.
+ - The world thus appears as a complicated tissue of events, in which connections of different kinds alternate or overlap or combine and thereby determine the texture of the whole.
+ - The basic idea is to shove all fundamental difficulties onto the neutron and to do quantum mechanics in the nucleus.
+ - I think that modern physics has definitely decided in favor of Plato. In fact the smallest units of matter are not physical objects in the ordinary sense; they are forms, ideas which can be expressed unambiguously only in mathematical language.
+ - Whether we electrons, light quanta, benzol molecules, or stones, we shall always come up against these two characteristics, the corpuscular and the undular.
+ - The exact sciences also start from the assumption that in the end it will always be possible to understand nature, even in every new field of experience, but that we may make no a priori assumptions about the meaning of the word understand.
+ - Quantum theory provides us with a striking illustration of the fact that we can fully understand a connection though we can only speak of it in images and parables.
+ - Nature is made in such a way as to be able to be understood. Or perhaps I should put it-more correctly-the other way around, and say that we are made in such a way as to be able to understand Nature.
+ - The problems of language here are really serious. We wish to speak in some way about the structure of the atoms. But we cannot speak about atoms in ordinary language.
+ - Where no guiding ideals are left to point the way, the scale of values disappears and with it the meaning of our deeds and sufferings, and at the end can lie only negation and despair. Religion is therefore the foundation of ethics, and ethics the presupposition of life.
+ - I think that the discovery of antimatter was perhaps the biggest jump of all the big jumps in physics in our century.
+ - Every experiment destroys some of the knowledge of the system which was obtained by previous experiments.
+ - Science clears the fields on which technology can build.
+ - A consistent pursuit of classical physics forces a transformation in the very heart of that physics.
+ - The solution of the difficulty is that the two mental pictures which experiment lead us to form – the one of the particles, the other of the waves – are both incomplete and have only the validity of analogies which are accurate only in limiting cases.
+ - Nature allows only experimental situations to occur which can be described within the framework of the formalism of quantum mechanics.
+ - In general, scientific progress calls for no more than the absorption and elaboration of new ideas- and this is a call most scientists are happy to heed.
+ - The violent reaction on the recent development of modern physics can only be understood when one realises that here the foundations of physics have started moving; and that this motion has caused the feeling that the ground would be cut from science.
+ - Can quantum mechanics represent the fact that an electron finds itself approximately in a given place and that it moves approximately with a given velocity, and can we make these approximations so close that they do not cause experimental difficulties?
+ - Even for the physicist the description in plain language will be a criterion of the degree of understanding that has been reached.
+
+51 quotes

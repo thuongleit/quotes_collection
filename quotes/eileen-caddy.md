@@ -1,0 +1,44 @@
+ - Don’t force anything. Let life be a deep let go.
+ - Learn your lessons quickly and move on.
+ - Never be afraid to tread the path alone. Know which is your path and follow it wherever it may lead you; do not feel you have to follow in someone else’s footsteps.
+ - You find true joy and happiness in life when you give and give and go on giving and never count the cost.
+ - When one door closes another opens. Expect that new door to reveal even greater wonders and glories and surprises. Feel yourself grow with every experience. And look for the reason for it.
+ - Seek always for the answer within. Be not influenced by those around you, by their thoughts or their words.
+ - The secret of making something work in your lives is first of all, the deep desire to make it work; then the faith and belief that it can work; then to hold that clear definite vision in your consciousness and see it working out step by step, without one thought of doubt or disbelief.
+ - Let my Peace which passes all understanding infill and enfold you, for when you are at Peace within, you reflect Peace without, and all those souls you meet will feel that Peace.
+ - Our life is our own creation.
+ - All souls can find the truth within.
+ - You can transcend all negativity when you realize that the only power it has over you is your belief in it. As you experience this truth about yourself you are set free.
+ - One small action of love can do far, far more for a soul than all the most beautiful words in the world.
+ - Be afraid of nothing. You have within you all wisdom, all power, all strength, all understanding.
+ - When your desire is to bring peace and harmony to the world, then you will have to start by finding peace and harmony within your own heart. It is a waste of time talking about peace. You have to seek and find that consciousness of peace which nothing and no one can disturb, and remain in it.
+ - It is not what you say that matters. It is what you are and how you live.
+ - When you feel that you have reached the end and that you cannot go one step further, when life seems to be drained of all purpose: What a wonderful opportunity to start all over again, to turn over a new page.
+ - Great changes are about to take place in the whole universe. It will not be a comfortable time. It is important that each one has no fear, no concern, knowing that this great upheaval is necessary before the next step can be taken.
+ - Hold ever before you the vision of the new heaven and new earth.
+ - It is in that inner peace and stillness that things begin to happen, and it was in that peace and stillness that I began to hear God’s voice.
+ - Be very very still and allow every new experience to take place in your life without any resistance whatsoever. You do not have to do anything, you simply have to be and let things happen.
+ - What is right for one soul may not be right for another. It may mean having to stand on your own and do something strange in the eyes of others. But do not be daunted, do whatever it is because you know within it is right for you.
+ - See every difficulty as a challenge, a stepping stone, and never be defeated by anything or anyone.
+ - Be at peace and see a clear pattern and plan running through your lives. Nothing is by chance.
+ - Start each day in my peace and stillness, then you can go forth and face whatever the day may bring in perfect peace and joy.
+ - Let there be more joy and laughter in your living.
+ - Stop sitting there with your hands folded looking on, doing nothing; Get into action and live this full and glorious life. Now. You have to do it.
+ - Expect the most wonderful things to happen, not in the future but right now.
+ - All that you need is deep within you waiting to unfold and reveal itself. All you have to do is be still and take time to seek for what is within and you will surely find it.
+ - You will have wonderful surges forward. Then there must be a time of consolidating before the next forward surge. Accept this as part of the process and never become downhearted.
+ - Nothing really matters except what you do now in this instant of time.
+ - A human being is a single being. Unique and unrepeatable.
+ - Dwell not on the past. Use it to illustrate a point, then leave it behind.
+ - You will find when you open your heart and can fill it with loving, beautiful thoughts, that you will want to love all those souls you come into contact with, no matter who they are.
+ - You are never asked to do more than you are able without being given the strength and ability to do it.
+ - Why not make a habit of approaching life in the right spirit, joyously, expectantly, and with absolute faith that only the very best is for you?
+ - Be like a very small joyous child, living gloriously in the ever present now, without a single worry or concern about even the next moment of time.
+ - I AM your anchor. I AM your haven. Let My Peace and Love infill and enfold you.
+ - Relax in my love and in turn pour forth that Divine Love out to the world.
+ - When a cupboard is full to overflowing and the doors are opened up, that which is within comes tumbling out and nothing can stop it. When floodgates are opened, the water rushes forth with tremendous power and force, carrying all before it. So with the.
+ - The spring of the New Age is here, bursting forth in perfect harmony, beauty and abundance; and nothing can stop it from coming about.
+ - Life is full and overflowing with the new. But it is necessary to empty out the old to make room for the new to enter.
+ - All you need within you is waiting to unfold and reveal itself.
+
+42 quotes

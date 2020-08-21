@@ -1,0 +1,40 @@
+ - Measure what is important, don’t make important what you can measure.
+ - Brains are like hearts – they go where they are appreciated.
+ - Rationality will not save us.
+ - In order to do good, you may have to engage in evil.
+ - Poor planning or poor execution of plans is simply to let some force other than reason shape reality.
+ - I don’t object to its being called “McNamara’s war.” I think it is a very important war and I am pleased to be identified with it and do whatever I can to win it.
+ - The greatest contribution Vietnam is making-right or wrong is beside the point-is that it is developing an ability in the United States to fight a limited war, to go to war without the necessity of arousing the public ire.
+ - We see what we want to believe.
+ - We do not have the God-given right to shape every nation in our image or as we choose.
+ - Short of nuclear war itself, population growth is the gravest issue the world faces. If we do not act, the problem will be solved by famine, riots, insurrection and war.
+ - Neither conscience nor sanity itself suggests that the United States is, should or could be the global gendarme.
+ - One solitary God-centered, God-intoxicated man can do more to keep God’s love alive and His presence felt in the world than a thousand half-hearted, talkative busy men living frightened, fragmented lives of quiet desperation.
+ - The indefinite combination of human fallibility and nuclear weapons will lead to the destruction of nations.
+ - Let’s go in, let’s totally destroy Cuba.
+ - I like to run down to the beach and have a little swim in the nude in the morning.
+ - Never answer the question that is asked of you. Answer the question that you wish had been asked of you.
+ - I would characterize current US nuclear weapons policy as immoral, illegal, militarily unnecessary, and dreadfully dangerous.
+ - General, you don’t have a war plan! All you have is a kind of horrible spasm!
+ - The war in Vietnam is going well and will succeed.
+ - It was a perfectly beautiful night, as fall nights are in Washington. I walked out of the president’s Oval Office, and as I walked out, I thought I might never live to see another Saturday night.
+ - The picture of the world’s greatest superpower killing or seriously injuring 1,000 noncombatants a week, while trying to pound a tiny backward nation into submission on an issue whose merits are hotly disputed, is not a pretty one.
+ - One cannot fashion a credible deterrent out of an incredible action.
+ - One must take draconian measures of demographic reduction against the will of the populations. Reducing the birth rate has proved to be impossible or insufficient. One must therefore increase the mortality rate. How? By natural means. Famine and sickness.
+ - What makes it immoral if you lose and not immoral if you win?
+ - At my age, 85, I’m at age where I can look back and derive some conclusions about my actions. My rule has been try to learn, try to understand what happened. Develop the lessons and pass them on.
+ - We burned to death 100,000 Japanese civilians in Tokyo – men, women and children. LeMay recognized that what he was doing would be thought immoral if his side had lost. But what makes it immoral if you lose and not immoral if you win?
+ - If we’d lost the war, we’d all have been prosecuted as war criminals. And I think he’s right. He, and I’d say I, were behaving as war criminals.
+ - I think the human race needs to think about killing. How much evil must we do to do good?
+ - Action should be founded on contemplation, and those of us who act don’t put enough time, don’t give enough emphasis, to contemplation.
+ - Management is the gate through which social and economic and political change, indeed change in every direction, is diffused though society.
+ - Elimination of nuclear weapons, so naive, so simplistic, and so idealistic as to be quixotic? Some may think so. But as human beings, citizens of nations with power to influence events in the world, can we be at peace with ourselves if we strive for less? I think not.
+ - A computer does not substitute for judgment any more than a pencil substitutes for literacy. But writing without a pencil is no particular advantage.
+ - They’ll be no learning period with nuclear weapons. Make one mistake and you’re going to destroy nations.
+ - There are many ways to make the death rate increase.
+ - To this day we seem to act in the world as though we know what’s right for everybody.
+ - I formed the hypothesis that each of us could have achieved our objectives without the terrible loss of life. And I wanted to test that by going to Vietnam.
+ - There is no more important task in a democracy than resolving the differences among people and finding a course of action that will be supported by a sufficient number to permit the nation to achieve a better life for all.
+ - It would be our policy to use nuclear weapons wherever we felt it necessary to protect our forces and achieve our objectives.
+
+38 quotes

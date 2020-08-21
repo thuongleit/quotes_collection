@@ -1,0 +1,83 @@
+ - To burn with desire and keep quiet about it is the greatest punishment we can bring on ourselves.
+ - I’ve often lost myself, in order to find the burn that keeps everything awake.
+ - The poem, the song, the picture, is only water drawn from the well of the people, and it should be given back to them in a cup of beauty so that they may drink – and in drinking understand themselves.
+ - Theatre is poetry that rises from the book and becomes human enough to talk and shout, weep and despair.
+ - Every step we take on earth brings us to a new world.
+ - At the heart of all great art is an essential melancholy.
+ - Love is the kiss in the quiet nest while the leaves are trembling, mirrored in the water.
+ - Verde que te quiero verde. Verde viento. Verde ramas. Green I love you green. Green Wind. Green branches.
+ - But hurry, let’s entwine ourselves as one, our mouth broken, our soul bitten by love, so time discovers us safely destroyed.
+ - Only mystery allows us to live, only mystery.
+ - As I have not worried to be born, I do not worry to die.
+ - In Spain, the dead are more alive than the dead of any other country in the world.
+ - I have often lost myself in the sea, ears full of newly cut flowers, tongue full of love and agony.
+ - I know there is no straight road No straight road in this world Only a giant labyrinth Of intersecting crossroads.
+ - The one thing life has taught me is that most people spend their lives bottled up inside their houses doing the things they hate.
+ - The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.
+ - Besides black art, there is only automation and mechanization.
+ - The day hunger disappears, the world will see the greatest spiritual explosion humanity has ever seen.
+ - Understand one single day fully, so you can love every night.
+ - In each thing there is an insinuation of death. Stillness, silence, serenity are all apprenticeships.
+ - Old women can see through walls.
+ - What’s the furthest corner? Because that’s where I want to be, alone with the only thing that I love.
+ - To see you naked is to recall the Earth.
+ - New York is something awful, something monstrous. I like to walk the streets, lost, but I recognize that New York is the world’s greatest lie. New York is Senegal with machines.
+ - Woodcutter. Cut my shadow from me. Free me from the torment of being without fruit. Why was I born among mirrors? Day goes round and round me. The night copies me in all its stars. I want to live without my reflection. And then let me dream that ants and thistledown are my leaves and my parrots.
+ - The snow is falling on the deserted field of my life, and my hopes, which roam far, are afraid of becoming frozen or lost.
+ - Moon like a large stainedglass window that breaks on the ocean.
+ - My head is full of fire and grief and my tongue runs wild, pierced with shards of glass.
+ - In our eyes the roads are endless. Two are crossroads of the shadow.
+ - The important thing in life is to let the years carry us along.
+ - The groom is like a flower of gold. When he walks, blossoms at his feet unfold.
+ - Pero yo ya no soy yo Ni mi casa es ya mi casa. But now I am no longer I, nor is my house any longer my house.
+ - Death laid its eggs in the wound.
+ - At five in the afternoon. It was exactly five in the afternoon. A boy brought the white sheet at five in the afternoon. A frail of lime ready prepared at five in the afternoon. The rest was death, and death alone.
+ - Green how I want you green. Green wind. Green branches.
+ - My tongue is pierced with glass.
+ - My poetry is a game. My life is a game. But I am not a game.
+ - The day that hunger is eradicated from the earth there will be the greatest spiritual explosion the world has ever known. Humanity cannot imagine the joy that will burst into the world.
+ - A poet must be a professor of the five senses and must open doors among them.
+ - Green how I love you green. Green wind. Green boughs. The ship on the sea And the horse on the mountain.
+ - With their souls of patent leather, they come down the road. Hunched and nocturnal, where they breathe they impose, silence of dark rubber, and fear of fine sand.
+ - Those who are afraid of death will carry it on their shoulders.
+ - My God, I have come with the seeds of questions. I planted them, and they never flowered.
+ - The dancer’s trembling heart must bring everything into harmony, from the tips of her shoes to the flutter of her eyelashes, from the ruffles of her dress to the incessant play of her fingers.
+ - Life is laughter amid a rosary of death.
+ - We’re all curious about what might hurt us.
+ - All one’s personality is embedded in gloves and hats after they’ve been good and used. Show me a glove and I’ll tell you the character of its owner.
+ - Men like to pleasure us, girl. They like to undo our plaits and give us water to drink from their own mouths. That’s what makes the world go round.
+ - Death, vicious death, Leave a green branch for love.
+ - If blue is dream what then innocence? What awaits the heart if Love bears no arrows?
+ - Today in my heart a vague trembling of stars and all roses are as white as my pain.
+ - What shall I say about poetry? What shall I say about those clouds, or about the sky? Look; look at them; look at it! And nothing more. Don’t you understand anything about poetry? Leave that to the critics and the professors. For neither you, nor I, nor any poet knows what poetry is.
+ - Everything’s a fan. Brother, open up your arms. God is the pivot.
+ - Little black horse. Where are you taking your dead rider?
+ - In the garden I will die. In the rosebush they will kill me.
+ - I put my head out of my window and see how much the wind’s knife wants to slice it off. On this unseen guillotine, I’ve placed the eyeless head of all my desires.
+ - The night below. We two. Crystal of pain. You wept over great distances. My ache was a clutch of agonies over your sickly heart of sand.
+ - The mirror is the mother dew, the book of desiccated twilights, echo become flesh.
+ - Death, lonely death, Beneath the withered leaves.
+ - The artist, and particularly the poet, is always an anarchist in the best sense of the word. He must heed only the call that arises within him from three strong voices: the voice of death, with all its foreboding, the voice of love and the voice of art.
+ - The moon carries the masks of meningitis into bedrooms, fills the wombs of pregnant women with cold water and, as soon as I’m not careful, throws handfuls of grass on my shoulders.
+ - Ever since I got married I’ve been thinking night and day about whose fault it was, and every time I think about it, out comes a new fault to eat up the old one; but always there’s a fault left.
+ - Oh honey, there’s nothing new on this earth when it comes to what men and women do in the dark. First love is when you learn. So you’ve learned that love can open you up like spring sun on a wee primrose. Good. Remember that. You know how to love.
+ - While the poet wrestles with the horses on his brain and the sculptor wounds his eyes on the hard spark of alabaster, the dancer battles the air around her, air that threatens at any moment to destroy her harmony or to open huge open empty spaces where her rhythm will be annihilated.
+ - I’ll always be happy if they’d leave me alone in that delightful and unknown furthest corner, apart from struggles, putrefactions and nonsense; the ultimate corner of sugar and toast, where the mermaids catch the branches of the willows and the heart opens to a flute’s sharpness.
+ - The bride, the white bride today a maiden, tomorrow a wife.
+ - Hail, mute devil! You are the most intense animal. An eternal mystic of the fleshly inferno...
+ - Just as the light and weightless vegetation of saltpeter floats over the old walls of houses as soon as the owner gets careless, so the literary vocation springs up in you.
+ - Not for a moment, beautiful aged Walt Whitman, have I failed to see your beard full of butterflies.
+ - The wounds were burning like suns at five in the afternoon, and the crowd broke the windows At five in the afternoon. Ah, that fatal five in the afternoon! It was five by all the clocks! It was five in the shade of the afternoon!
+ - Relish the fresh landscape of my wound, break rushes and delicate rivulets, drink blood poured on honeyed thigh.
+ - I’m afraid to be on this shore a trunk without limbs, and what I most regret is not to have flower, pulp, or clay for the worm of my suffering.
+ - Fire is fed by fire. The same small flame destroys Two stalks of wheat at once.
+ - What matters most has an ultimate metallic quality of death. The chasuble and the wagon wheel, the razor and the prickly beards of shepherds, the bare moon, a fly, humid cupboards, rubble piles, the images of saints covered in lace, quicklime, and the wounding edges of the rooflines and watchtowers.
+ - I’m satisfied. I am progressively making my life and my name in the surest and purest manner. If I catch on in the theater, as I think I will, all the doors will gladly open wide for me.
+ - The only things that the United States has given to the world are skyscrapers, jazz, and cocktails. That is all. And in Cuba, in our America, they make much better cocktails.
+ - I was lucky enough to see with my own eyes the recent stock-market crash, where they lost several million dollars, a rabble of dead money that went sliding off into the sea.
+ - I want to be a poet, from head to toe, living and dying by poetry.
+ - Everyone understands the pain that accompanies death, but genuine pain doesn’t live in the spirit, nor in the air, nor in our lives, nor on these terraces of billowing smoke. The genuine pain that keeps everything awake is a tiny, infinite burn on the innocent eyes of other systems.
+ - Even money, which shines so much, spits sometimes.
+ - At first glance, the rhythm may be confused with gaiety, but when you look more closely at the mechanism of social life and the painful slavery of both men and machines, you see that it is nothing but a kind of typical, empty anguish that makes even crime and gangs forgivable means of escape.
+
+81 quotes

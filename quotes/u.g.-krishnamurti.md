@@ -1,0 +1,39 @@
+ - Don’t follow me, I’m lost.
+ - You think when you don’t want to do anything. Thinking is a poor alternative to acting. Your thinking is consuming all your energy. Act, don’t think!
+ - The fact is that we don’t want to be free. What is responsible for our problems is the fear of losing what we have and what we know.
+ - You love fear. The ending of fear is death, and you don’t want that to happen. I am not talking of wiping out the phobias of the body. They are necessary for survival. The death of fear is the only death.
+ - All I can guarantee you is that as long as you are searching for happiness, you will remain unhappy.
+ - Food, clothing and shelter – these are the basic needs. Beyond that, if you want anything, it is the beginning of self-deception.
+ - The plain fact is that if you don’t have a problem, you create one. If you don’t have a problem you don’t feel that you are living.
+ - There is no such thing as truth. The only thing that is actually there is your ‘logically’ ascertained premise, which you call truth.
+ - Nature is busy creating absolutely unique individuals, whereas culture has invented a single mold to which all must conform. It is grotesque.
+ - There is no such thing as permanence at all. Everything is constantly changing. Everything is in a flux. Because you cannot face the impermanence of all relationships, you invent sentiments, romance, and dramatic emotions to give them certainty. Therefore you are always in conflict.
+ - You can have the courage to climb the mountain, swim the lakes, go on a raft to the other side of the Atlantic or Pacific. That any fool can do, but the courage to be on your own, to stand on your two solid feet, is something which cannot be given by somebody.
+ - There is no power outside of man. Man has created God out of fear. So the problem is fear and not God.
+ - Thought can never capture the movement of life, it is much too slow. It is like lightning and thunder. They occur simultaneously, but sound, travelling slower than light, reaches you later, creating the illusion of two separate events.
+ - To be yourself requires extraordinary intelligence. You are blessed with that intelligence; nobody need give it to you; nobody can take it away from you. He who lets that express itself in its own way is a “Natural Man”.
+ - There is no need to change this world at all; and there is no need to change yourself either.
+ - The body is not interested in anything you are interested in. And that is the battle that is going on all the time.
+ - Your constant utilization of thought to give continuity to your separate self is you. There is nothing there inside you other than that.
+ - If anyone thinks he can help you, he will inevitably mislead you, and the less phony he is; the more powerful he is, the more enlightened he is, the more misery and mischief he will create for you.
+ - If you have the courage to touch life for the first time, you will never know what hit you. Everything man has thought, felt and experienced is gone, and nothing is put in its place.
+ - All your experiences, all your meditations, all your prayer, all that you do, is self-centred. It is strengthening the self, adding momentum, gathering momentum, so it is taking you in the opposite direction. Whatever you do to be free from the self also is a self-centred activity.
+ - Nature is interested in only two things – to survive and to reproduce one like itself. Anything you superimpose on that, all the cultural input, is responsible for the boredom of man.
+ - Life has to be described in pure and simple physical and physiological terms. It must be demystified and depsychologised.
+ - A guru is one who tells you to throw away all the crutches that we have been made to believe are essential for our survival. He would ask you to walk, and he would say that if you fall, you will arise and walk.
+ - We don’t want to be free from fear. All that we want to do is to play games with it and talk about freeing ourselves from fear.
+ - I am simply pointing out that at the rate at which we are going the whole genetic engineering technology will end up in the hands of the political system to be used for the complete control and subjugation of man.
+ - There is nothing there – no soul – there is only this question about after death. The question has to die now to find the answer – your answer; not my answer – because the question is born out of the assumption, the belief, that there is something to continue after death.
+ - We are not created for any grander purpose than the ants that are there or the flies that are hovering around us or the mosquitoes that are sucking our blood.
+ - Society or culture or whatever you might want to call it, has created us all solely and wholly for the purpose of maintaining its continuity and status quo.
+ - Your situation and prospects only seem hopeless because you have ideas of hope. Knock off that hope and the crippling feelings of helplessness go with it.
+ - The questioner has to come to an end. It is the questioner that creates the answer; and the questioner comes into being from the answer, otherwise there is no questioner.
+ - You cannot experience the death of anybody.
+ - It would be more interesting to learn from children, than try to teach them how to behave, how to live and how to function.
+ - My teaching, if that is the word you want to use, has no copyright. You are free to reproduce, distribute, interpret, misinterpret, distort, garble, do what you like, even claim authorship, without my consent or the permission of anybody.
+ - Thought can never capture the movement of life, it is much too slow.
+ - Everything you stand for, believe in, experience and aspire to is the result of thought. And thought is destructive because it is nothing more than a protective mechanism, programmed to protect its own interests at all costs.
+ - I am not anti-rational, just unrational. You may infer a rational meaning in what I say or do, but it is your doing, not mine.
+ - Yes! is the thing that blows the whole structure apart.
+
+37 quotes

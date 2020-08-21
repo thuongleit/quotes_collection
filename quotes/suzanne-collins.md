@@ -1,0 +1,486 @@
+ - Hope is the only thing stronger than fear.
+ - You don’t forget the face of the person who was your last hope.
+ - It takes ten times as long to put yourself back together as it does to fall apart.
+ - Happy Hunger Games! And may the odds be ever in your favor.
+ - Some walks you have to take alone.
+ - I am not pretty. I am not beautiful. I am as radiant as the sun.
+ - Let the Hunger Games Begin!
+ - I wish I could freeze this moment, right here, right now and live in it forever.
+ - Fire is catching! And if we burn, you burn with us!
+ - Highly unlikely but not impossible.
+ - Destroying things is much easier than making them.
+ - For there to be betrayal, there would have to have been trust first.
+ - That if desperate times call for desperate measures, then I’m free to act as desperately as I wish.
+ - Hope, it is the only thing stronger than fear. A little hope is effective, a lot of hope is dangerous.
+ - Stupid people are dangerous.
+ - They’ll either want to kill you, kiss you, or be you.
+ - Knowing it and seeing it are two different things.
+ - Okay, maybe I don’t go around loving everybody I meet, maybe my smiles are hard to come by, but I do care for some people.
+ - If I’m going to die, I want to still be me.
+ - Closing my eyes doesn’t help. Fire burns brighter in the darkness.
+ - What I need is the dandelion in the spring. The bright yellow that means rebirth instead of destruction. The promise that life can go on, no matter how bad our losses. That it can be good again.
+ - District 12: Where you can starve to death in safety.
+ - The star-crossed lovers.
+ - Telling a story in a futuristic world gives you this freedom to explore things that bother you in contemporary times.
+ - Slowly, with many lost days, I come back to life.
+ - The problem is, I can’t tell what’s real anymore, and what’s made up.
+ - There’s no going back. So we might as well get on with things.
+ - The bird, the pin, the song, the berries, the watch, the cracker, the dress that burst into flames. I am the mockingjay. The one that survived despite the Capitol’s plans. The symbol of the rebellion.
+ - Eyes on the forest, not on the trees.
+ - This is no place for a girl on fire.
+ - Are you, are you coming to the tree? Wear a necklace of rope, side by side with me. Strange things did happen here. No stranger would let it be if we met up At midnight in the hanging tree.
+ - My spirit. This is a new thought. I’m not sure exactly what it means, but it suggests I’m a fighter. In a sort of brave way. It’s not as if I’m never friendly. Okay, maybe I don’t go around loving everybody I meet, maybe my smiles are hard to come by, but i do care for some people.
+ - My nightmares are usually about losing you. I’m okay once I realize you’re here.
+ - The sun persists in rising, so I make myself stand.
+ - Isn’t it strange that I know you’d risk your life to save mine, but I don’t even know what your favorite color is?
+ - Mutually counting on each other, watching each other’s backs, forcing each other to be brave.
+ - I just don’t want them to change me, if I’m going to die I still want to be me.
+ - Okay, listen to me, you’re stronger than they are. You are. They just want a good show, that’s all they want. You know how to hunt. Show them how good you are.
+ - You’ve got to go through it to get to the end of it.
+ - Courage only counts when you can count.
+ - Here’s some advice. Stay alive.
+ - How much energy they put into harming each other. How little into saving.
+ - An ability to look into the confusing mess of life and see things for what they are.
+ - So it’s you and a syringe against the Capitol? See, this is why no one lets you make the plans.
+ - Thank you for you consideration.
+ - The more you can distract yourself, the better.
+ - While you live, the revolution lives.
+ - Right before the explosions begin, I find a star.
+ - They can’t hurt me. I’m not like the rest of you. There’s no one left I love.
+ - I miss him so badly it hurts.
+ - Because it doesn’t matter anymore, and because I’m so desperately lonely I can’t stand it.
+ - I always channel my emotions into my work. That way, I don’t hurt anyone but myself.
+ - Trapped for days, years, centuries maybe. Dead, but not allowed to die. Alive, but as good as dead. So alone that anyone, anything no matter how loathsome would be welcome.
+ - Just the sound of his voice twists my stomach into a knot of unpleasant emotions like guilt, sadness and fear. And longing. I might as well admit there’s some of that too.
+ - No one will forget me. Not my look, not my name. Katniss. The girl who was on fire.
+ - I’ve stopped talking because there’s really nothing left to say and there’s this piercing sort of pain where my heart is. Maybe I’m even having a heart attack, but it doesn’t seem worth mentioning.
+ - I see now that the circumstances of ones birth are irrelevent. it is what you do with the gift of life that determines who you are.
+ - I squeeze my eyes shut and try to reach for him across the hundreds and hundreds of miles, to send my thoughts into his mind, to let him know he is not alone. But he is. And I can’t help him.
+ - Deep in the meadow, hidden far away A cloak of leaves, a moonbeam ray Forget your woes and let your troubles lay.
+ - If you appeal to the crowd, either by being humorous or brutal or eccentric, you gain favor.
+ - It must be very fragile, if a handful of berries can bring it down.
+ - It’s as if I’m Finnick, watching images of my life flash by. The mast of a boat, a silver parachute, Mags laughing, a pink sky, Beetee’s trident, Annie in her wedding dress, waves breaking over rocks. Then its over.
+ - The anguish I always feel when she’s in pain wells up in my chest and threatens to register on my face.
+ - Look, if you wanted to be babied you should have asked Peeta.
+ - If there’s a more helpless feeling than trying to reach someone you love who’s trapped underground, I don’t know it.
+ - Lay down your head, and close your sleepy eyes, and when again they open, the sun will rise.
+ - I’m going to be the Mockingjay.
+ - I drag myself out of nightmares each morning and find there’s no relief in waking.
+ - Something flickers across his bloodshot eyes. Pain.
+ - It’s strange to be so physically close to someone who’s so distant.
+ - It means thanks, it means admiration, it means good-bye to someone you love.
+ - No, you won her over. Gave up everything for her. Maybe that’s the only way to convince her you love her.
+ - Even in war there should be lines you didn’t cross.
+ - So that’s who Finnick loves, I think. Not his string of fancy lovers in the Capitol. But a poor, mad girl back home.
+ - Taking the kids from our districts, forcing them to kill one another while we watch – this is the Capitol’s way of reminding us how totally we are at their mercy.
+ - Remember, heads high. Smiles. They’re going to love you!
+ - I don’t write about adolescence. I write about war. For adolescents.
+ - A spark could be enough to set them ablaze.
+ - I stare at the mirror as I try to remember who I am and who I am not.
+ - One of the most memorable things I hear is when someone tells me that my books got a reluctant reader to read.
+ - And we must fight back! President Snow says he’s sending us a message? Well, I have one for him. You can torture us and bomb us and burn our districts to the ground, but do you see that? Fire is catching! And if we burn, you burn with us!
+ - But once I saw Fulvia Cardew crumple up a sheet of paper with just a couple of words written on it and you would’ve thought she’d murdered someone from the looks she got.
+ - Whenever I write a story, I hope it appeals to both boys and girls.
+ - Whatever the opposite of fine is, that’s what I am.
+ - Yes, it’s your fault I’m alive.
+ - I’m sick of people lying to me for my own good. Because really it’s mostly for their own good.
+ - I no longer feel any allegiance to these monsters called human beings, despise being one myself.
+ - He frosted under heavy guard.
+ - I have been keeping track of the boy with the bread.
+ - Because I can’t handle the nightmares. Not without you.
+ - Something small and quiet, like a match being struck, lights up the gloom inside of me.
+ - It’s lovely. If only you could frost someone to death.
+ - Star-crossed lovers desperate to get home together. Two hearts beating as one. Romance.
+ - And then he gives me a smile that just seems so genuinely sweet with just the right touch of shyness that unexpected warmth rushes through me.
+ - If you die and i live there’s no life for me back in District 12. You’re my whole life. I would never be happy again.
+ - Warmblood now a bloodborne death, Will rob your body of it’s breath Mark your skin and seal your fate The Underland becomes a plate.
+ - Maybe everyone is just trying to protect me by lying to me. I don’t care. I’m sick of people lying to me for my own good.
+ - But the words are easy and soothing, promising tomorrow will be more hopeful than this awful piece o time we call today.
+ - There’s no point in comforting words, in telling her she’ll be all right. She’s no fool. Her hand reaches out and I clutch it like a lifeline. As if it’s me who’s dying instead of Rue.
+ - I realize, for the first time, how very lonely I’ve been in the arena. How comforting the presence of another human being can be.
+ - Pity does not get you aid. Admiration at your refusal to give in does.
+ - Something inside me shuts down and I’m too numb to feel anything. It’s like watching complete strangers in another Hunger Games. But I do notice they omit the part where I covered her in flowers. Right. Because even that smacks of rebellion.
+ - Well, don’t expect us to be too impressed. We just saw Finnick Odair in his underwear.
+ - My name is Katniss Everdeen. Why am I not dead? I should be dead.
+ - I realize only one person will be damaged beyond repair if Peeta dies. Me.
+ - The idea of being strong for someone else having never entered their heads, I find myself in the position of having to console them. Since I’m the person going in to be slaughtered, this is somewhat annoying.
+ - Oh, my dear Miss Everdeen. I thought we had an agreement not to lie to each other.
+ - As coal pressured into pearls by our weighty existence. Beauty that arose out of pain.
+ - My mother says healers are born, not made.
+ - It crosses my mind that Cinna’s calm and normal demeanor masks a complete madman.
+ - Because I can count on my fingers the number of sunsets I have left, and I don’t want to miss any of them.
+ - My sleep wasn’t peaceful, though. I have the sense of emerging from a world of dark, haunted places where I traveled alone.
+ - But collective thinking is usually short-lived. We’re fickle, stupid beings with poor memories and a great gift for self-destruction.
+ - How could I leave Prim, who is the only person in the world I’m certain I love?
+ - I take his hand, holding on tightly, preparing for the cameras, and dreading the moment when I will finally have to let go.
+ - In our world, I rank music somewhere between hair ribbons and rainbows in terms of usefulness.
+ - Oh, and I suppose the apples ate the cheese.
+ - Maybe I’ll be like the man in the Hanging Tree still waiting for an answer.? Gale who I have never seen cry has tears in his eyes. To keep them from spilling over. I reach forward and press my lips against his. We taste of heat, ashes and misery.
+ - Everything is happening too fast for me to process it.
+ - I try to forgive her for my father’s sake. But to be honest, I’m not the forgiving type.
+ - Peeta: You be nice to her, Finnick. Or I might try and take her away from you. Finnick: Oh, Peeta. Don’t make me sorry I restarted your heart.
+ - What happens when we get back? I don’t know. I guess we try and forget. I don’t want to forget.
+ - This was the door to both sustenance and sanity. And we were each other’s key.
+ - To this day, I can never shake the connection between this boy, Peeta Mellark, and the bread that gave me hope, and the dandelion that reminded me that I was not doomed.
+ - Katniss Everdeen, you have caused a spark, wich left unattended, may cause a spark that could cause a whole rebelion.
+ - I have two older sisters and one older brother and hold them largely responsible for the trouble I got into growing up. I believe as the youngest child, that is my right.
+ - Flight is essential, but I can’t let my fear show.
+ - Having an eye for beauty isn’t the same thing as a weakness.
+ - No. Now, shut up and eat your pears.
+ - Remember, we’re madly in love, so it’s all right to kiss me anytime you feel like it.
+ - I’m not a very fancy person. I’ve been a writer a long time, and right now ‘The Hunger Games’ is getting a lot of focus. It’ll pass. The focus will be on something else. It’ll shift. It always does. And that seems just fine.
+ - I miss home badly sometimes. But then I remember there’s nothing left to miss anymore. I feel safer here.
+ - I don’t want anyone with me today. Not even him. Some walks you have to take alone.
+ - Poison. The perfect weapon for a snake.
+ - So I learned to hold my tongue and to turn my features into an indifferent mask so that no one could ever read my thoughts.
+ - Because I’m selfish. I’m a coward. I’m the kind of girl who, when she might actually be of use, would run to stay alive and leave those who couldn’t follow to suffer and die.
+ - Look how we take your children and sacrifice them and there’s nothing you can do. If you lift a finger, we will destroy every last one of you. Just as we did in District Thirteen.
+ - I’m more than just a piece in their Games.
+ - You here to finish me off, Sweetheart?
+ - And there I am, blushing and confused, made beautiful by Cinna’s hands, desirable by Peeta’s confession, tragic by circumstance, and by all accounts, unforgettable.
+ - It’s the final word in camouflage. Forget chucking weights around. Peeta should have gone into his private session with the Gamemakers and painted himself into a tree. Or a boulder. Or a muddy bank full of weeds.
+ - Since my father died and I stopped trusting my mother, no one else’s arms have made me feel this safe.
+ - Stay with me. Always.
+ - She has no idea. The effect she can have.
+ - I also want to tell him how much I already miss him. But that wouldn’t be fair on my part.
+ - I never see these things coming. They happen too fast. One second you’re proposing an escape plan and the next...
+ - We fight, we dare, we end our hunger for justice.
+ - Sometimes when things are particularly bad, my brain will give me a happy dream.
+ - Aim higher in case you fall short.
+ - If you had hope, maybe you could find a way to make things change,. Because if you thought about it, there were so many reasons to try.
+ - The pounding music, the cheers, the admiration work their way into my blood, and I can’t suppress my excitement. Cinna has given me a great advantage. No one will forget me. Not my look, not my name. Katniss. The girl who was on fire.
+ - Let the Seventy-forth Hunger Games begin, Cato, I think. Let them begin for real.
+ - I curl up, make myself smaller, try to disappear entirely. Wrapped in silence, I slide my bracelet that reads ‘mentally disoriented’ around and around my wrist.
+ - As we ride the elevator Gale finally says “You’re still angry.” “And you’re still not sorry,” I reply. “I will stand by what I said. Do you want me to lie about it?” he asks. “No, I want you to rethink it and come up with the right opinion,” I tell him.
+ - If he wants me broken, then I will have to be whole.
+ - I reach out to touch his cheek and he catches my hand and presses it against his lips.
+ - Most of the Peacekeepers turn a blind eye to the few of us who hunt because they’re as hungry as we are for fresh meat as anyone. In fact, they’re among our best customers.
+ - But I feel as if I did know Rue, and she’ll always be with me. Everything beautiful brings her to mind. I see her in the yellow flowers that grow in the Meadow by my house. I see her in the Mockingjays that sing in the trees. But most of all, I see her in my sister, Prim.
+ - Just don’t die for me, you won’t be doing me any favour !
+ - I don’t want to cry. Everyone will make note of my tears and I’ll be marked as an easy target. A weakling. I will give no one that satisfaction.
+ - Tick tock, this is a clock.
+ - I want to do something, right here, right now, to shame them, to make them accountable, to show the Capitol that whatever they do or force us to do there is a part of every tribute they can’t own. That Rue was more than a piece in their Games. And so am I.
+ - Yes, and I’m sure the arena will be full of bags of flour for me to chuck at people.
+ - Cato kneels beside Clove, spear in hand, begging her to stay with him. In a moment, he will realize it’s futile, she can’t be saved.
+ - If I’m going to cry, now is the time. By morning, I’ll be able to wash all the damage done by the tears from my face. But no tears come. I’m too tired or too numb to cry. The only thing I feel is a desire to be somewhere else. So I let the train rock me into oblivion.
+ - Lucky thing were allies, right? -Finnick Odair.
+ - Not only does he hate me, and want to kill me, he no longer believes I’m human. It was less painful being strangled.
+ - Let them go, I tell myself. Say good-bye and forget them. I do my best, thinking of them one by one, releasing them like birds from the protective cages inside me, locking the doors against their return.
+ - If my holding out those berries was an act of temporary insanity, then those people will embrace insanity too.
+ - You haven’t hurt people – you’ve given them an opportunity. They just have to be brave enough to take it.
+ - There’s a chance that the old Peeta, the one who loves you, is still inside. Trying to get back to you. Don’t give up on him.
+ - You’ll never be able to let him go. You’ll always feel wrong about being with me.
+ - And she’s very clever, Peeta. Well, she was. Until you outfoxed her.
+ - Sick and disoriented, I’m able to form only one thought: Peeta Mellark just saved my life.
+ - He puts the chain with the locket around my neck, then rests his hand over the spot where our baby would be. “You’re going to make a great mother, you know,” he says. He kisses me one last time and goes back to Finnick.
+ - You’re hideous, you know that, right?
+ - Technically, I am unarmed. But no one should ever underestimate the harm that fingernails can do. Especially if the target is unprepared.
+ - The numbness of his loss had passed, and the pain would hit me out of nowhere, doubling me over, racking my body with sobs. Where are you? I would cry out in my mind. Where have you gone? Of course, there was never any answer.
+ - Crying is not an option.
+ - Yes, frosting. The final defense of the dying.
+ - Shame isn’t a strong enough word for what I feel. “You could live a hundred lifetimes and not deserve him, you know,” Haymitch says.
+ - I press my ear against his chest, to the spot where I always rest my head, where I know I will hear the strong and steady beat of his heart. Instead, I find silence.
+ - Fly you high.
+ - At once, it’s clear I cannot gush. We try me playing cocky, but I just don’t have the arrogance. Apparently, I’m too “vulnerable” for ferocity. I’m not witty. Funny. Sexy. Or mysterious By the end of the session, I am no one at all.
+ - Here began countless days of hunting and snaring, fishing and gathering, roaming together through the woods, unloading our thoughts while we filled our game bags. This was the doorway to both sustenance and sanity. And we were each other’s key.
+ - It’s not wondering what I breathe in, but who, that threatens to choke me.
+ - His dad said even the cavemen had geniuses among them. Somebody had thought up the wheel.
+ - I guess there isn’t a rule book for what might be unacceptable to do to another human being.
+ - Since Mags seems to have no ill effects from the nuts, Peeta collects bunches of them and fries them by bouncing them off the force field.
+ - Fire beats roses again.
+ - I pound on the glass, screaming my head off. Everyone ignores me except for some Capitol attendant who appears behind me and offers me a beverage.
+ - At the moment, the choice would be simple. I can survive just fine without either of them.
+ - Here your dreams are sweet and tomorrow brings them true, here is the place where I love you.
+ - He could have had his choice of any woman in the district. And he chose solitude. Not solitude – that sounds too peaceful. More like solitary confinement.
+ - Cleaning me up is just a preliminary step to determining my new look. With my acid-damaged hair, sunburned skin, and ugly scars, the prep team has to make me pretty and then damage, burn, and scare me in a more attractive way.
+ - Entrails. No hissing. This is the closest we will ever come to love.
+ - Run like the river.
+ - My lips are just forming his name when his fingers lock around my throat.
+ - I’m on a frosting sailboat, tossed around by blue-green waves, the deck shifting beneath my feet.
+ - So I thought if I stopped being so, you know, wounded, we could take a shot at just being friends. – Peeta Mellark.
+ - But don’t worry; as I’ve been saying – and this has been very clever of me, I’m sure you’ll agree – if you put enough pressure on coal, it’ll turn to pearls!
+ - I’m almost there, almost to the barricade, when I thinks she hears me. Because for just a moment, she catches sight of me, her lips form my name. And that’s when the rest of the parachutes go off.
+ - Don’t. Don’t let’s pretend when there’s no one around.
+ - The Eleventh Plague hits disturbingly close to home An excellent, taut debut novel.
+ - Beauty that arose out of pain.
+ - People deal with me, but they are genuinely fond of Prim. Maybe there will be enough fondness to keep her alive.
+ - No more kisses for you, until you have eaten !
+ - Your only defense can be you were so madly in love you weren’t responsible for your actions.
+ - I clench his hands to the point of pain. “Stay with me.” His pupils contract to pinpoints, dialate again rapidly, and then return to something resembling normalcy. “Always,” he murmurs.
+ - My voice, at first rough and breaking on the high notes, warms up into something splendid. A voice that would make the mockingjays fall silent and then tumble over themselves to join in.
+ - But the only thing that distracts me from my current situation is fantasizing about killing President Snow.
+ - I’m running on hate. When the energy from that ebbs I’ll be worthless.
+ - Besides, it’s the first gift that’s always the hardest to pay back. I wouldn’t even have been here to do it if you hadn’t helped me then.
+ - Suddenly I am furious, that with my life on the line, they don’t even have the decency to pay attention to me. That I’m being upstaged by a dead pig.
+ - Make sure they remember you.
+ - But I don’t know what to him about the aftermath of killing a person. About how they never leave you.
+ - On and on we seal the pages with salt water and promises to live well to make their deaths count.
+ - Birds are settling down for the night, singing lullabies to their young.
+ - So we both strip off our boots and socks and, while there’s some improvement, I could swear he’s making an effort to snap every branch we encounter.
+ - There are much worse games to play.
+ - I look coolly in to the blue eyes of the person who is now my greatest opponent, the person who would keep me alive at his own expense. And I promise myself I will defeat his plan.
+ - That was the first time I ever saw him smile. It transformed him from someone menacing to someone you wished you knew.
+ - Peeta bakes. I hunt. Haymitch drinks until the liquor runs out.
+ - To be honest, I’m not much of a drinker. It makes me sick, and I hate that.
+ - I’m in pain. That’s the only way I get your attention.
+ - And here I am, strapped into a tree, a stone’s throw from the biggest idiot in the games.
+ - I drink in his wholeness, the soudness of his body and mind. It runs through me like the morphling they give me in the hospital, dulling the pain of the last weeks.
+ - And it takes so much energy to stay angry with someone who cries so much.
+ - As the alcohol overcomes my mind, I hear the glass bottle shatter on the floor. This seems appropriate since I have obviously lost my grip on everything.
+ - In the end, the only person I truly want to comfort me is Haymitch, because he loves Peeta, too.
+ - Smiling is mostly about smiling more.
+ - Sometimes when I’m alone, I take the pearl from where it lives in my pocket and try to remember the boy with the bread, the strong arms that warded off nightmares on the train, the kisses in the arena.
+ - One slip. One slip in thousands. The odds had been entirely in her favor. But it hadn’t mattered.
+ - My mouth has gone dry as sawdust. I desperately find Cinna in the crowd and lock eyes with him. I imagine the words coming from his lips. ‘What’s impressed you most since you arrived here?’ I rack my brain for something that made me happy here. Be honest, I think. Be honest.
+ - But some secrets are too delicious not to share.
+ - Sometimes, when I clean a kill, I feed Buttercup the entrails. He has stopped hissing at me. Entrails. No hissing. This is the closest we will ever come to love.
+ - Five years later I still wake up screaming for? him to run.
+ - What does this mean? It means I get to spend the morning having the hair ripped off my body while Peeta sleeps in.
+ - Either you came in here a swimmer or you’d better be a really fast learner.
+ - Girl talk. That thing I’ve always been so bad at.
+ - And she’s my fiancee. So if you want to get to him, expect to go through both of us.
+ - I really can’t think about kissing when I’ve got a rebellion to incite.
+ - But because two can play at this game, I stand on tiptoe and kiss his cheek. Right on his bruise.
+ - I keep hoping that as time passes by, we’ll regain the ease between us, but part of me knows it’s futile. There’s no going back.
+ - Oh, the fun we two have together.
+ - Sorry excuses for hunters and friends. Both of us.
+ - You know, you could live a thousand lifetimes and not deserve him.
+ - Mostly we just add to the piles of rainbow glass that’s been blown off the exteriors of the cany-colored buildings.
+ - You could do a lot worse.
+ - Frankly, I could use a little sugarcoating.
+ - It’s the first gift that’s always the hardest to pay back.
+ - The awful thing is that if i can forget they’re people, it will be no different at all.
+ - When I was young, I was trained in stage fighting and rapier and dagger for several years.
+ - The main thing I feel is a sense of relief. That I can give up this game. That the question of whether I can succeed in this venture has been answered, even if that answer is a resounding no. That if desperate times call for desperate measures, I am free to act as desperately as I want.
+ - Her name’s Prim. She’s just twelve. And I love her more than anything.
+ - They hadn’t counted on the highly controlled jabberjay having the brains to adapt to the wild, to pass on its genetic code, to thrive in a new form. They hadn’t anticipated its will to live.
+ - I’m not good at talking about myself.
+ - But after several hours, I go anyway, walking in silent sock feet, so as not to awaken the ghosts.
+ - Maybe the other tributes are out there beating one another senseless. Which would be fine. – Katniss -.
+ - I don’t know how to make people like me. Cinna, how do you make people like you?
+ - Positioned on my dresser, that white-as-snow rose is a personal message to me. It speaks of unfinished business. It whispers, I can find you. I can reach you. Perhaps I am watching you now.
+ - You don’t destroy what you want to acquire in the future.
+ - What will break me into a million pieces so that I am beyond repair, beyond usefulness?
+ - It’s not easy to find a topic. Talking of home is painful. Talking of the present unbearable.
+ - Just remember, stealing’s punishable by death.
+ - Glimmer, I hear someone call her – ugh, the names the people in District 1 give their children are so ridiculous...
+ - The damage, the fatigue, the imperfections. That’s how they recognize me; Why I belong to them.
+ - One time, my mother told me that I always eat like I’ll never see food again. And I said, “I won’t unless I bring it home.” That shut her up.
+ - I guess this is a bad time to mention I hung a dummy and painted Seneca Crane’s name on it...
+ - Despite what I feel for Peeta, this is when I accept deep down that he’ll never come back to me. Or i’ll never go back to him. I’ll die for my trouble. And he’ll die insane and hating me.
+ - The heat of the bread burned into my skin, but I clutched it tighter, clinging to life.
+ - Whatever it takes to break you.
+ - And suddenly, it’s as if there’s no one in the world but these two, crashing through space to reach each other. They collide, enfold, lose their balance, and slam against a wall, where they stay. Clinging into one being. Indivisible.
+ - Haymitch said you’d take a lot of convincing.
+ - My guess is that fearful events are the hardest to root out. They’re the ones we naturally remember the best, after all.
+ - I’ve spent so much time making sure I don’t underestimate my opponents that I’ve forgotten it’s just as dangerous to overestimate them as well.
+ - Plutarch rushes to reassure me. “Oh, no, Katniss. Not your wedding. Finnick and Annie’s. All you need to do is show up and pretend to be happy for them.” “That’s one of the few things I won’t have to pretend, Plutarch,” I tell him.
+ - All those months of taking it for granted that Peeta thought I was wonderful are over. Finally, he can see me for who I really am. Violent. Distrustful. Manipulative. Deadly. And I hate him for it.
+ - I notice her blouse has pulled out of her skirt in the back again and force myself to stay calm. “Tuck your tail in, little duck,” I say, smoothing the blouse back in place. Prim giggles and give me a small “Quack.” “Quack yourself,” I say with a light laugh. The kind only Prim can draw out of me.
+ - The only thing worse than fighting a giant scorpion was fighting a giant scorpion who was trying to protect her young.
+ - Haymich finally drops the good-natured act. “you know who else, Katniss. You know who stepped up first.” Of course I do. Gale.
+ - This is what birds see. Only they’re free and safe. The very opposite of me.
+ - Fine, than I will not have to blame you for killing my friends with your stupidity. -Haymitch.
+ - I pull the sleeping bag up to his chin and kiss his forehead, not for the audience, but for me. Because I’m so grateful that he’s here, not dead by the stream as I’d thought. So glad I don’t have to face Cato alone.
+ - The audience must be sick to death of the star-crossed lovers from District 12. I know I am.
+ - You’re a painter. You’re a baker. You like to sleep with the windows open. You never take sugar in your tea. And you always double-knot your shoelaces.
+ - I don’t care if you got knocked up. I can still rip your throat out.
+ - Winning the Games will make you famous, losing will mean death.
+ - I’m in a shallow hole, not filled with the humming orange bubbles of my hallucination but with old, dead leaves.
+ - Scores only matter if they’re very good, no one pays much attention to the bad or mediocre ones.
+ - Where did they get those screams, Katniss?
+ - If you won’t talk about yourself, at least compliment the audience. Just keep turning it back around, all right. Gush.
+ - Hey, Finnick, come on in! We figured out how to make you pretty again!
+ - You’re punishing him over and over for things that are out of his control.
+ - That was the one thing I had going for me. Taking care of your family.
+ - I’m not flailing now, as my muscles are rigid with the tension of holding myself together.
+ - Because something is significantly wrong with a creature that sacrifices its children’s lives to settle its differences.
+ - Kind people have a way of working their way inside me and rooting there.
+ - Sometimes things happen to people and they’re not equipped to deal with them.
+ - But there was only one kiss that made me feel something stir deep inside. Only one that made me want more. But my head wound started bleeding and he made me lie down.
+ - I look down at our linked fingers as I loosen my grasp, but he regains his grip on me. “No, don’t let go of me,” he says.
+ - Dawn comes before sleep does.
+ - I’m filled with awe, as I always am, as I watch her transform from a woman who calls me to kill a spider to a woman immune to fear.
+ - I can almost hear Haymitch groaning as I team up with this wispy child. But I want her. Because she’s a survivor, and I trust her, and why not admit it? She reminds me of Prim.
+ - All I can think of is the emaciated bodies of children on our kitchen table as my mother prescribes what the parent’s can’t give. More food.
+ - Somehow it always comes back to coal at school.
+ - Living out here, I have found that many creatures would prefer not to fight. But if your first instinct is to reach for your sword, you will never discover that.
+ - Just last year i wanted to kill him, but now it is my duty to save him.
+ - A furious Peeta hammers Haymitch with the atrocity he could become party to, but I can feel Haymitch watching me. This is the moment, then. When we find out exactly just how alike we are, and how much he truly understands me. “I’m with the Mockingjay,” he says.
+ - He hasn’t accepted his death. He is already fighting hard to stay alive. Which also means that kind Peeta Mellark, the boy who gave me bread, is fighting hard to kill me.
+ - My words hang in the air. I look to the screen, hoping to see them recording some wave of reconciliation going through the crowd. Instead I watch myself get shot on television.
+ - Everything is about them, not the dying boys and girls in the arena.
+ - Delly lost her temper at Peeta over how he treated you. She got very squeaky. It was like someone stabbing a mouse with a fork repeatedly.
+ - Remembering from last year how Haymitch’s gifts are often timed to send a message, I make a note to myself. Be friends with Finnick. You’ll get food.
+ - Instead of satisfying me, the kisses have the opposite effect, of make my need greater. I thought I was something of an expert on hunger, but this is an entirely new kind.
+ - Doors are for those who lack enemies.
+ - I wish Peeta were here to hold me, until I remember I’m not supposed to wish that anymore. I have chosen Gale and the rebellion, and a future with Peeta is the Capitol’s design, not mine.
+ - Plants are tricky. Many are edible, but one false mouthful and your dead.
+ - And once we reach the city, my stylist will dictate my look for the opening ceremonies tonight anyway. I just hope I get one who doesn’t think nudity is the last word in fashion.
+ - Tuck in your tail, little duck.
+ - Impulsively, I lean forward and kiss him, stopping his word. This is probably overdue anyway since he’s right, we are supposed to be madly in love.
+ - I merely feel emptyness. A hollow of dead brush where flowers use to bloom.
+ - And so I’m stupid for thinking they might be useful. Because of something Johanna Mason said while she was oiling her breasts for wrestling.
+ - Gale is mine. I am his. Anything else is unthinkable.
+ - A need for revenge can burn long and hot. Especially if every glance in a mirror reinforces it.
+ - Peeta looks me right in the eye and gives my hand what I think is meant to be a reassuring squeeze. Maybe it’s just a nervous spasm.
+ - I start to crack at four hundred to one.
+ - Come on and eat with him. I promise, I won’t let him kiss you again.
+ - Roses. Wolf mutts. Tributes. Frosted Dolphins. Friends. Mockingjays. Stylists. Me. Everything screams in my dreams tonight.
+ - Fire is catching!
+ - Frankly, our ancestors don’t seem much to brag about. I mean, look at the state they left us in, with the wars, the broken planet. Clearly, they didn’t care about what would happen to the people who came after them.
+ - Why am I hopping around like some trained dog trying to please people I hate?
+ - Well you are a piece of work aren’t you?
+ - For a second, I’m afraid he’s dying. I have to remind myself that I don’t care.
+ - I knew it. In this way, Peeta’s not hard to predict. While I was wallowing around on the floor of that cellar, thinking only of myself, he was here, thinking of me. Shame isn’t a strong enough word for what I feel.
+ - You know, you’re kind of squeamish for such a lethal person.
+ - You’ve got about as much charm as a dead slug.
+ - Fine. Somebody else can arrange to get the stupid goat knocked up.
+ - What? My head doctor says I’m not supposed to censor my thoughts. It’s part of my therapy.
+ - Listen up. You’re in trouble. Word is the Capitol’s furious about you showing them up in the arena. The one thing they can’t stand is being laughed at and they’re the joke of Panem.
+ - Peeta and I had adjoining cells in the capitol. We’re very familiar with each other’s screams.
+ - I walk around the room eating goose liver and puffy bread until there’s a knock on the door. Effie’s calling me to dinner. Good. I’m starving.
+ - They can pump whatever they want into my arm but it takes more than that to keep a person going once she’s lost the will to live.
+ - Gale and I were thrown together by a mutual need to survive. Peeta and I know the other’s survival means our own death. How do you side step that?
+ - If I feel ragged, my prep team seems in worse condition, knocking back coffee and sharing brightly colored little pills. As far as I can tell, they never get up before noon unless there’s some sort of national emergency, like my leg hair.
+ - The sensation inside me grows warmer and spreads out from my chest down through my body out along my arms and legs to the tips of my being. Instead of satisfying me the kisses have the opposite effect of making my need greater.
+ - They more than do their work, they take pride in it. Like Cinna.
+ - I pull an arrow, whip the notch into place, and am about to let it fly when I’m stopped by the sight of Finnick kissing Peeta. And it’s so bizarre, even for Finnick.
+ - I noticed just about every girl, but none of them made a lasting impression but you.
+ - I swear if you cry, I’ll kill you here and now.? Cinna just smiles. ‘Had a damp morning?’ ‘You could wring me out.’ I reply.
+ - He’s dozed off again, but I kiss him awake, which seems to startle him. Then he smiles as if he’d be happy to lie there gazing at me forever.
+ - In my mind, President Snow should be viewed in front of marble pillars hung with oversized flags. It’s jarring to see him surrounded by the ordinary objects in the room. Like taking the lid off a pot and finding a fanged viper instead of stew.
+ - We follow instructions to my destination, a chamber for my preparation.
+ - Most rats read. Our frustration is, we cannot hold a pen to write.
+ - Then I dive into my tent before I do something stupid like cry.
+ - Just one more thing. I kill Snow.
+ - In really bad times, the hungriest would gather at his door at nightfall, vying for the chance to earn a few coins to feed their families by selling their bodies. Had I been older when my father died, I might have been among them. Instead I learned to hunt.
+ - They’re already taking my future! They can’t have the things that mattered to me in the past!
+ - I’m so tired, Katniss.
+ - In other words, I step out of line and we’re all dead.
+ - If I get home, I’ll be so stinking rich, I’ll be able to pay someone to do my hearing.
+ - So instead of acknowledging applause, I stand there unmoving while they take part in the boldest form of dissent they can manage. Silence. Which says we do not agree. We do not condone. All of this is wrong.
+ - Even if times got bad, he would never again deny himself the possibility that the future might be happy even if the present was painful. He would allow himself dreams.
+ - I will never give up if you never give in.
+ - I’m not allowed to bet, but if I could, my money would be on you.
+ - I know he was desperate. That makes people do all kinds of crazy things.
+ - Real or not real?
+ - I mean I know it’s cold out here and not everybody has a sleeping bag. But when you grit your teeth and stick it out until dawn!
+ - Underground. Which I hate. Like mines and tunnels and 13. Underground, where I dread dying, which is stupid because even if I die aboveground, the next thing they’ll do is bury me underground anyway.
+ - Katniss, the girl who was on fire!
+ - The morphlings from District 6 are in the camouflage station, painting each other’s faces with bright pink swirls.
+ - I’m not prepared for Rue’s family. Her parents, whose faces are still fresh with sorrow. Her fiver younger siblings, who resemble her so closely. The slight builds, the luminous brown eyes. They form a flock of small dark birds.
+ - I must have loved you a lot.
+ - Exactly how am I supposed to work in a thank-you in there? Somehow it just won’t seem sincere if I’m trying to slit his throat.
+ - You can tell by the way the girls whisper about him when he walks by in school that they want him. It makes me jealous but not for the reason people would think. Good hunting partners are hard to find.
+ - They recognize me. Of course they recognize me. My face is uncovered and I’m standing here outside of District 12 pointing an arrow at them. Who else would I be?
+ - What must it be like, I wonder, to live in a world where food appears at the press of a button?
+ - The air’s warm with hopeful hints of spring in it. Spring would be a good time for an uprising, I think. Everyone feels less vulnerable once winter passes.
+ - Once I’m on my feet I realize escape might not be so easy.
+ - I go back to my room and lie under the covers, trying not to think of Gale and thinking of nothing else.
+ - The glue of mutual need that bonded us so tightly together for all those years is melting away. Dark patches, not light, show in the spaces between us.
+ - Making knots. Making knots. No word. Making knots. Tick-tock. This is a clock. Do not think of Gale. Do not think of Peeta. Making knots.
+ - I will never have a life with Gale even if I want to.
+ - I can’t fight the sun. I can only watch helplessly as it drags me into a day that I’ve been dreading for months. Katniss Everdeen.
+ - Remember that even in war there is a time for restraint. A time to hold back your sword.
+ - Actually, Katniss isn’t complaining because she has no intention of staying with the “Star Squad,” but she recognizes the necessity of getting to the Capitol before carrying out any plan.
+ - But just before they cut back to the main newscaster, I see the unmistakable flash of that same mockingjay’s wing. The reporter has simply been incorporated into the old footage. She’s not in District 13 at all. Which begs the question, What is?
+ - Katniss. I remember about the bread.
+ - If you are not trying to hold on to time, you are not so afraid of losing it.
+ - I shift on to my side and find myself looking directly into Gale’s eyes. For an instant the world recedes and there is just his flushed face, his pulse visible at his temple, his lips slightly parted as he tries to catch his breath.
+ - But there’s food if you know how to find it. My father knew and he taught me some before he was blown to bits in a mine explosion. There was nothing even to bury. I was eleven then. Five years later, I still wake up screaming for him to run.
+ - I poke around in the pile, about to settle on some cod chowder, when Peeta holds out a can to me. “Here.” I take it, not knowing what to expect. The label reads LAMB STEW.
+ - It’d be better if he were easier to hate.
+ - I’ll tell them that on bad mornings, it feels impossible to take pleasure in anything because I’m afraid it could be taken away.
+ - Whatever the truth is, I don’t see how it will help me get food on the table.
+ - Instead, I watch myself get shot on television.
+ - I can see the first apple teetering when I let the third arrow go, catching the torn flap and ripping it from the bag. For a moment, everything seems frozen in time. Then the apples spill to the ground and I’m blown backward into the air.
+ - They don’t know that I’m already asking for the moon.
+ - If you hit bottom, there’s a whole lot of people here to help you up.
+ - He never lets go of Annie’s hand. Not when they walk, not when they eat. I doubt he ever plans to.
+ - It’s the first time I’ve ever kissed a boy, which should make some sort of impression I guess, but all I can register is how unnaturally hot his lips are from the fever.
+ - Never underestimate the power of a brillian stylist.
+ - Buttercup, miserable even with Prim’s constant attention, huddles in the cube and exhales cat breath in my face.
+ - For me, it’s better to wake up with a paintbrush than a knife in my hand. -Peeta.
+ - I wonder if Effie will still be wearing that silly pink wig, or is she’ll be sporting some other unnatural color especially for the Victor Tour.
+ - I’ll never know what it was he wanted me to remember.
+ - Despite serious reservations, I had to forgive Finnick for his role in the conspiracy that landed me here. He, at least has some idea of what I’m going through. And it takes too much energy to stay angry with someone who cries so much.
+ - Tick, tock.
+ - Something inside me twists as I remember another voice. Rue. In the arena. When I gave her the leg of groosling. “Oh, I’ve never had a whole leg to myself before.” The disbelief of the chronically hungry.
+ - How did Rue end up on that stage with nothing but the wind offering to take her place?
+ - Im still betting on you. – Cinna.
+ - I think we put our children at an enormous disadvantage by not educating them in war, by not letting them understand about it at an early age.
+ - If the careers want me, let them find me.
+ - All around the dining hall, you can feel the rejuvenating effect that a good meal can bring on. The way it can make people kinder, funnier, more optimistic, and remind them it’s not a mistake to go on living. It’s better than any medicine.
+ - Jackson has devised a game called “Real or Not Real” to help Peeta. He mentions something he thinks happened, and they tell him if it’s true or imagined, usually followed by a brief explanation.
+ - Never having been in love, this is going to be a real trick. I think of my parents. The way my father never failed to bring her gifts from the woods. The way my mother’s face would light up at the sound of his boots at the door. The way she almost stopped living when he died.
+ - Oh, well. At least my blood is flowing.
+ - That should have been my strategy! By the time I’ve worked through the emotions of surprise, admiration, anger, jealousy, and frustration, I’m watching that reddish mane of hair disappear into the trees well out of shooting range.
+ - My mother just wanted me to forget it. So, of course, every word was immediately, irrevocably branded into my brain.
+ - Oh, Peeta, Don’t make me sorry I restarted your heart.
+ - For the last year his grandma had been slipping in and out of reality. One minute she was as clear as a bell and the next she was calling him Simon. Who was Simon? He had no idea.
+ - I do think you’re mad and I’ll still go with you.
+ - Katniss, there is no District Twelve...
+ - So I only say, “So what should we do with our last few days?” “I just want to spend every possible minute of the rest of my life with you,” Peeta replies.
+ - The hatred I feel for him, for the phantom girl, for everything, is so real and immediate it chokes me. Gale is mine. I am his. Anything else is unthinkable. Why did it take him being whipped within an inch of his life to see it?
+ - We have to joke about it because the alternative is to be scared.
+ - Time and tragedy have forced her to grow too quickly, at least for my taste, into a young woman who stitches bleeding wounds and knows our mother can hear only so much.
+ - There was no discussion between them; it was as if the bugs had worked out this whole scenario long ago. Temp put on a burst of speed for the end of the bridge, and Tick turned to face down the army of rats alone.
+ - No wonder I won the Games. NO decent person ever does.
+ - I have zero interest in these Capitol people. They are only distractions from the food.
+ - Yeah, we wouldn’t want to lose our little Mockingjay when she’s finally begun to sing.
+ - All the times these arms were my only refuge from the world. Perhaps not fully appreciated then, but so sweet in my memory, and now gone forever.
+ - No one knows what to do with you, girlie.
+ - I had to do that. At least once.
+ - She genuinely likes people. All people, not just a select few she’s spent years making up her mind about.
+ - She’s Prim’s size in diameter.
+ - Haymitch in my head full-time. Horrifying.
+ - Just because people starve in a book, doesn’t mean that we will starve in the future...
+ - We’re supposed to be making up this stuff, playing at being in love, not actually being in love.
+ - I sit back on my bed cross-legged and find myself rubbing the smooth iridescent surface of the pearl back and forth against my lips. For some reason, it’s soothing. A cool kiss.
+ - The most exciting thing either of us does is nap.
+ - It’s ideal really. They will come up with a plan. No one will like it. Everyone will feel they have been treated unfairly, but will be happy that their neighbors feel the same. And that is the nature of compromise. Now let’s go eat an awful lot.
+ - I flee what I can’t fight. What can only do me harm.
+ - So what I’d really like is to try and conceal him somewhere safe, then go hunt, and come back and collect him. But I have a feeling his ego isn’t going to go for that suggestion.
+ - I killed you. And you. And you.
+ - Better not to give in to it.
+ - It’s just me and the Bane. And I’m fighting him because he killed all of those innocent mice and people, and I have to stop him. Not because Sandwich says so but because I say so.
+ - Because that’s what you and I do, protect each other.
+ - And, my God, the actors. The cast, led by the extraordinary Jennifer Lawrence, is absolutely wonderful across the board. It’s such a pleasure to see how they’ve embodied the characters and brought them to life.
+ - And random bits of happiness, like Finnick and Annie’s newborn boy.
+ - It starts at midnight.
+ - But if you want to find peace, you must first be able to hope it is possible.
+ - If you’d been taken by the Capital and hijacked and then tried to kill Peeta, is this the way he would be treating you?
+ - And to us, we’re more married than any piece of paper or big party could make us.
+ - As long as you can find yourself, you’ll never starve.
+ - That it’s no good loving me because I’m never going to get married anyway and he’d just end up hating me later instead of sooner.
+ - It’s more complicated than that. I know them. They’re not evil or cruel. They’re not even smart. Hurting them, it’s like hurting children.
+ - Desperate, yet no longer alone after that day, because we’d found each other.
+ - Not like this. He wanted it to be real.
+ - They’re a little strange, but I’m pretty sure neither of them is going to try to make me uncomfortable by stripping naked.
+ - Behind a rack of framed photos of Snow, we encounter a wounded Peacekeeper propped up against a strip of brick wall. He asks us for help. Gale knees him in the side of the head and takes his gun.
+ - I’m stopped by the sight of Finnick kissing Peeta.
+ - Our romance became a key strategy for our survival in the arena. Only it wasn’t just a strategy for Peeta.
+ - A hysterical young woman with flowing brown hair is also called from 4, but she’s quickly replaced by a volunteer, an eighty-year-old woman who needs a cane to walk to the stage.
+ - Great. Now I have to go back and tell Haymitch I want an eighty-year-old and Nuts and Volts for my allies. He’ll love that.
+ - Still, I hate them. But, of course, I hate almost everybody now. Myself more than anyone.
+ - Someone ought to get Haymitch a drink.
+ - You know, I think this is the first time we’ve ever done anything normal together.
+ - I don’t know what it is with Finnick and bread, but he seems obsessed with handling it.
+ - It’s amazing to see things that are suggested in the book fully developed and so brilliantly realized through the artistry of the designers.
+ - Don’t let him take you from me.
+ - They erase my face with a layer of pale makeup and draw my features back out.
+ - But just the fact that he was sparkling leads me to doubt everything that happened.
+ - Please feel free to take this personally.
+ - When I break into the clearing, she’s on the ground, hopelessly entangled in a net. She just has the time to reach her hand through the mesh and say my name before the spear enters her body.
+ - You’re not going to die. I forbid it.
+ - You call that a kiss?
+ - Anyway, even if she’s sugarcoating my good points, I appreciate it. Frankly, I could use a little sugarcoating.
+ - You know what I miss? More than anything? Coffee. – Plutarch Heavensbee.
+ - How much better my life has been for knowing him. For loving him, even if it’s only in the limited way that I can manage. But I never get the chance.
+ - Not daring to flee since my general location has just been broadcast to any killer who cares. I mean, I know it’s cold out here and not everybody has a sleeping bag.
+ - We could do it, you know.
+ - And don’t you let your guard down for a second because you think anything’s inevitable.
+ - Barbarism? That’s ironic coming from a woman helping to prepare us for slaughter. And what’s she basing our success on? Our table manners?
+
+484 quotes

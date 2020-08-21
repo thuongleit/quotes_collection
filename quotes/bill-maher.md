@@ -1,0 +1,478 @@
+ - Suicide is man’s way of telling God, ‘You can’t fire me – I quit.’
+ - If you have a gun, you can rob a bank, but if you have a bank, you can rob everyone.
+ - Faith means the purposeful suspension of critical thinking. It’s nothing to be admired.
+ - God knows life sucks. It’s right there in the Bible. The book of Job is all about Job asking God to take away pain and misery. And God says, “I can’t take away pain and misery because then no one would talk to me.”
+ - Religion is insanity by consensus.
+ - We need more people speaking out. This country is not overrun with rebels and free thinkers. It’s overrun with sheep and conformists.
+ - Denying racism is the new racism.
+ - The plain fact is: religion must die for mankind to live.
+ - Don’t get so tolerant that you tolerate intolerance.
+ - To a coward, courage always looks like stupidity.
+ - There are good people who do good things, there are bad people who do bad things, but to get a good person to do a bad thing takes religion.
+ - It’s very hard not to be condescending when you’re explaining something to an idiot.
+ - Religion is bad, drugs are good.
+ - My policy is I am always more than happy to say, “I’m sorry if I hurt your feelings.” What I am not willing to do is take back what I said. Unless I am wrong.
+ - I’m for the death penalty, I’m pro-abortion, I’m pro-assisted suicide, I’m pro-regular suicide. Anything that’ll get the traffic moving.
+ - Ask your doctor if getting off your ass is right for you.
+ - In an average moral universal society, good people will try to do the right thing, and psychotic people will do wicked things. But if you want to make good people do wicked things, you need them to be religious.
+ - The difference between the three Abrahamic religions: Christianity – mumbling to the ceiling, Judaism – mumbling to the wall, Islam – mumbling to the floor.
+ - The younger generation is supposed to rage against the machine, not for it. They’re supposed to question authority, not question those who question authority.
+ - As you go down the path of life, ask whats true. Not who else believes it.
+ - If you think you have it tough, read history books.
+ - Saddam Hussein is Hitler like Oasis was The Beatles.
+ - Atheism is a religion the way abstinence is a sex position.
+ - Religion, it stops people from thinking because they think all the answers are in that one book; it impedes progress; it justifies crazy people. Flying planes into a building was a faith-based initiative.
+ - Whatever good religion has done, it has come at a terrible price.
+ - In ancient times they sacrificed the virgins. Men were not about to sacrifice the sluts!
+ - I don’t think all life is precious. I know people say that all the time, “Life is precious.” I think some life is precious, and some life is just a waste of protoplasm. Start over.
+ - Jesus, as a philosopher is wonderful. There’s no greater role model, in my view, than Jesus Christ. It’s just a shame that most of the people who follow him and call themselves Christians act nothing like him.
+ - If the bible myth of Jonah in the whale and the Mother Goose myth of Jack and the Beanstalk were switched at birth so that Jack in the Beanstalk were in the bible, do you think any child would notice?
+ - I think what’s dangerous is the idea that someone can wash away your sins.
+ - Can we go back to using Facebook for what it was originally for – looking up exes to see how fat they got?
+ - Religion is detrimental to the progress of society.
+ - I’m a pessimist by nature. A pot head, but a pessimist.
+ - There is no debate here, just scientists and non-scientists. And since the subject is science, the non-scientists don’t get a vote.
+ - Let’s face it; God has a big ego problem. Why do we always have to worship him?
+ - I am so tired of rearranging my life around what the stupidest people might do.
+ - Community is gathering around a fire and listening to someone tell a story.
+ - Sex is too easy for women to get, and too hard for men. I mean, honestly, for a man to walk into someplace and have every woman ready to take him home, he’d have to rule the world. A woman would have to do her hair.
+ - The only thing I hate worse than prophecy is self-fulfilling prophecy.
+ - There’s a phrase we live by in America: “In God We Trust”. It’s right there where Jesus would want it: on our money.
+ - Life is not like a box of chocolates unless there’s a few turds in the box.
+ - If you believe Jesus ever had a good word for war or torture or tax cuts for the rich, or raping the earth, or refusing water to dying migrants, then you might as well believe bunnies lay painted eggs.
+ - Why can’t God just defeat the devil and get rid of evil? It’s the same reason the comic book character can’t get rid of his nemesis; then there’s no story.
+ - I have a problem with people who take the Constitution loosely and the Bible literally.
+ - I couldn’t run for any office. I think that religion is bad, weed is good, and babies are disgusting; who would vote for me?
+ - Here’s the thing about Donald Trump: he never apologizes; he’s never wrong no matter what crazy thing he says. He’s the white Kanye.
+ - The reason I love my dog so much is because when I come home, he’s the only one in the world who treats me like I’m the Beatles.
+ - Tea-baggers love the truth. They just hate facts.
+ - If you believe that the world is going to come to an end – and perhaps any day now – does it not drain one’s motivation to improve life on earth while we’re here?
+ - I don’t respect religon. I don’t respect superstitious thinking and that is what religous is.
+ - Stupidity is not another form of knowledge.
+ - People say I’m into black women. Robert De Niro is into black women. I’m just into women who are real, and they happen to be black.
+ - I think girls hate each other, no doesn’t always mean no, you have to lie to stay married, women’s sports are boring and the Olympics are gay.
+ - I feel like I’m wearing orthopedic shoes, because I stand corrected.
+ - Because of the Republicans, I’m not ashamed of being an American. I’m embarrassed!
+ - Gordon Gekko was right: greed is good. Because, the potty-trained Republicans have now stepped forward – like the Koch brothers – to say, ‘You know what? You yokels stop talking about defaulting on the debt, because I’m going to lose a fortune!’
+ - Women cannot complain about men anymore until they start getting better taste in them.
+ - False hope really makes you cynical.
+ - If you ignore every single thing Jesus told you to do, you are just auditing. You’re not a Christian.
+ - Failing to warn the citizens of a looming weapon of mass destruction- and that’s what global warming is- in order to protect oil company profits, well, that fits for me the definition of treason.
+ - If we were a dog and God owned us, the cops would come and take us away.
+ - You know, if you’re an American and you’re born at this time in history especially, you’re lucky. We all are. We won the world history Powerball lottery.
+ - Love does not conquer all.
+ - Disneyland’s a mess. And it’s not just the measles. Donald Duck has bird flu. Pocahontas has small pox. The Little Mermaid has crabs. And the Monorail? Mono.
+ - When sex is good theres nothing better, when its bad its not bad.
+ - Good presidents, people like George Bush, they SEND people to war. They don’t bring them a rescue. This is America. We rescue insurance companies and banks.
+ - If you belonged to a political party or a social club that was tied to as much bigotry, misogyny, homophobia, violence, and sheer ignorance as religion is, youd resign in protest. To do otherwise is to be an enabler – a mafia wife.
+ - Abstinence is a perversion.
+ - You can’t claim you’re for peace if you’re not willing to disturb it.
+ - I don’t want to start a movement that mirrors religion. I don’t want to create the church of the non-believers where I’m the preacher and we’re all gathering together and reciting things.
+ - The worst years of my life were the first two years I was doing standup. You’re learning how to do, and you’re going on stage in front of two drunks and people aren’t laughing and you’re broke. That’s a really hard time in your life.
+ - I kid Fox News, but they may be a little biased. We had an earthquake here on Monday, and they reported that ‘the earth’s crust was emboldened by Obama’s weakness.’
+ - The answer isn’t another pill. The answer is spinach.
+ - I know climate change is a hoax – of course – but places that have never seen this type of winter weather got hit by it. More than a half a million southerners have been left in the dark – and then the storm hit.
+ - You can’t lie to kids about drugs. They know about drugs. You can’t say they’re just all bad. They know life is a little more complicated. I have never done heroin. I would never recommend heroin, but it hasn’t hurt my record collection.
+ - It’s a little strange when you have never been to war, and you eye-roll about a guy who’s got shrapnel still in his body, as Chuck Hagel does.
+ - Wichita Falls, Texas is considering using toilet water for drinking. And a dog there today said, ‘White people’s problems.’
+ - I don’t do heroin myself, but it’s done wonders for my music collection.
+ - Did you see Britney Spears at the Video Music Awards? I don’t want to say that that performance was a disaster, but after the show, I saw Rudy Giuliani having his picture taken standing on her.
+ - What I believe in is love your neighbor as yourself and don’t call him stupid because they don’t agree with you politically.
+ - Sam Brownback, Mike Huckabee and Tom Tancredo – those were the three guys who said they do not believe in evolution. The irony will be on them when their campaigns die off in favor of stronger, fitter campaigns.
+ - No politician is perfect. But in every election in your life, there will be one choice that is better than the others. Go out and vote for that one.
+ - Death is the monster we all fear, yet with each day, we walk toward it, and can’t help doing so; we can’t help but walk toward the one thing we’re most trying to avoid.
+ - Rick Santorum doesn’t like sex. He doesn’t like the pill. He really doesn’t like condoms. He said if men are going to pull something on to prevent procreation, nothing works better that a sweater vest.
+ - Paul Revere was warning the British about gun control, and George Washington apparently was crossing the Delaware to bomb an abortion clinic.
+ - The people who got everything wrong are back on TV talking about the place they got all wrong? Cheney, Bill Kristol, Paul Wolfowitz, Richard Perle. It’s like Satan’s VIP list for Hell.
+ - If conservatives don’t want to be seen as bitter people who cling to their guns and religion and anti-immigrant sentiments, they should stop being bitter and clinging to their guns, religion and anti-immigrant sentiments.
+ - Funny that all of Nixon’s crimes – anonymous campaign cash, wiretapping, undeclared wars – are all legal now. Discuss.
+ - I have two dogs. If I had retarded children, I’d be a hero. And yet, the dogs are pretty much the same thing.
+ - I love trains. It’s the only way to travel anymore where it doesn’t involve a TSA agent slowly tracing the curve of my inner thigh.
+ - Did you hear this – Sarah Palin finally heard what happened in Japan and she’s demanding that we invade Tsunami. I mean she said, These Tsunamians will not get away with this. Oh speaking of dumb twats, did you...
+ - I’m not a joiner. I don’t like organizations.
+ - New rule: Tulips aren’t flowers. They’re some kind of gay onion.
+ - Hollywood isn’t your cesspool, America. It’s your mirror.
+ - Like it or not, we’re still a primitive tribe ruled by fears, superstition and misinformation.
+ - I feel terrible for a Palestinian child who dies. But, if it’s your father, your brother or your uncle who was firing those rockets into Israel, whose fault is it really? Do you really expect the Israelis not to retaliate?
+ - Do you want to know why marijuana is illegal? Because the drug companies want marijuana to be illegal. You see, if it came down to Prozak versus Marijuana, Prozak would lose.
+ - The tea baggers. The one thing they hate is when you call them racist. The other thing they hate is black people. But they won’t say it.
+ - Sarah Palin finally heard what happened in Japan and she’s demanding that we invade ‘Tsunami.’
+ - Why are we working so hard to preserve Iraq, a fake country to begin with? Why do we care whether this fake country that was drawn on the map 100 years ago remains?
+ - My father said, Bring along your best girl. This is something you say to a pimp!
+ - Of course, there are questions that plague all of us. How did we get here? What happens when we die? Is there a heaven? Am I on the list? Who let the dogs out?
+ - Don’t you miss the days when America was just MORALLY bankrupt?
+ - Hi, I’m Bill. I’m a birth survivor.
+ - Sarah Palin should not be on vacation. She should be in summer school.
+ - If you have a few hundred followers and you let some of them molest children, they call you a cult leader. If you have a billion, they call you Pope.
+ - Cleavage is to a man what power is to a woman.
+ - Just honest. To me, being ‘politically incorrect’ means the opposite of being political – which means to spin everything. That’s all it’s ever meant to me. It’s never meant liberal or conservative. It means honest.
+ - The Dalai Lama visited the White House and told the President that he could teach him to find a higher state of consciousness. Then after talking to Bush for a few minutes, he said, ‘You know what? Let’s just grab lunch.’
+ - People sometimes say how standup is so hard, and I always tell them that it’s hard at the beginning.
+ - I’m not defending what Cory Booker said. I’m saying I understand why he has to kiss the asses of the rich people on Wall Street, because there’s no other way to keep his city afloat.
+ - How can the Republicans get away with picking their Dennis Kucinich, but when – if the Democrats tried it, all hell would break lose?
+ - Sam Harris made that great analogy. He said, ‘If someone was talking into their hair dryer and claiming that they were speaking to God, they would call Bellevue. But, take away the hair dryer, it’s just praying.’
+ - Only cowards push a button from thousands of miles away, or tens of thousands of feet up, to kill people who can’t possibly fight back.
+ - In ten Muslim countries you can get the death penalty just for being gay. If they were chopping the heads off of gay people in the Vatican, wouldn’t there be a greater outcry among liberals?
+ - The true axis of evil in America is the brilliance of our marketing combined with the stupidity of our people.
+ - Life is about making tough choices. Sometimes you have to go where your career is going.
+ - Married men live longer. Yes. And an indoor cat also lives longer. It’s a furball with a broken spirit, that can only look out on a world it can never enjoy. But it does technically live longer.
+ - Ninety percent of people support background checks. Which means even people who can’t pass a background check support background checks.
+ - A lot of people say they are dyslexic; some have to realize that they are just stupid.
+ - A lot of good has come from drugs. I think ‘Penny Lane’ is worth 10 dead kids. Dark Side of the Moon is worth 100 dead kids. Because a lot of kids wouldn’t even be born if it weren’t for that album, so it evens out.
+ - The “Power of One” is a slogan – not a goal.
+ - It’s that time of year again, April 15, taxes. I know it’s depressing, but just remember, you’re paying for roads, bridges, hospitals, and an army to keep the nation free. Unfortunately that nation is Afghanistan.
+ - I mean, maybe one day we will live in a more optimum world where terrorists come in every color of the rainbow. But the truth is, now they don’t. I mean, the people who are trying to get us are young Muslim men, period.
+ - I just don’t see why anybody would vote Republican in the Army. If you want to support the troops, if I was a troop, I would say, ‘You know how to support me? Don’t send me to stupid wars.’
+ - New Rule: News organizations have to stop using the phrase: “We go beyond the headlines.” That’s your job, dummy. You don’t see American Airlines saying, “We land our jets on the runway”!
+ - Well, I hate to tell youbut if you have a flu shot for more than five years in a row, there’s ten times the likelihood that you’ll get Alzheimer’s disease.
+ - If conservatives get to call universal healthcare ‘socialized medicine,’ I get to call private, for-profit healthcare ‘soulless, vampire bastards making money off human pain.’
+ - Eunice Kennedy Shriver, President Kennedy’s sister, endorsed Arnold Schwarzenegger, said he’s not a womanizer. Of course by Kennedy standards that means he never drove one off a bridge.
+ - I think capital punishment works great. Every killer you kill never kills again.
+ - Americans are gluttons. We shop with forklifts. We have a holiday where we stuff food into other food. Our strippers wrestle in Jell-O, where other countries have to use mud.
+ - I hear this all the time: ‘Obama’s policies aren’t working.’ He hasn’t been allowed to put his policies into place.
+ - It’s so childish, greatest country in the world. It’s like saying, I have the best wife in the world. Not just the one best suited for me, the best wife in the world. And if you could have my wife, you’d kill your wife.
+ - I think America causes cancer, longevity is less important than fun, and young people should be discouraged from voting.
+ - Hot women have to stop putting long paragraphs of text on their bodies. I know you think it’s sexy but one thing that men never think is, “Gee, you know what would make this sex better? Having something to read.”
+ - If anti-gay stuff is always coming out of your mouth, something very gay is probably going in.
+ - You know what happens when windmills collapse into the sea? A splash.
+ - I think religion is a neurological disorder.
+ - A new cologne is coming out. It’s for cowboys, and it’s made from cow’s manure. That way the women will be on you like flies!
+ - North Carolina right now is going apeshit in a way no state ever has. Take every crazy, angry idea your drunk, right-wing uncle mumbles at Thanksgiving, turn it into a law, and that’s North Carolina today.
+ - I don’t want to be a pessimist. I’m a realist. One man’s realist is another man’s pessimist.
+ - Trump is a little tone-deaf to the average American. He unveiled his slogan this week: ‘Are you better off than you were four wives ago?’
+ - In today’s Republican Party, there’s a term for people who hate charity and love killing: ‘Christian.’
+ - To paraphrase the great Will Rogers, El Rusho never met a pharmacist he did not like.
+ - I always compare marriage to communism. They’re both institutions that don’t conform to human nature, so you’re going to end up with lying and hypocrisy.
+ - To all conservative women out there: If you are so sure the embryo needed for stem cell research are precious human life that can’t be destroyed, then implant one in your uterus and bring it to term. That’s right, put your cervix where your mouth is.
+ - I’m guessing our soldiers are happy to be leaving Iraq. It is no fun being in a country where there’s crumbling infrastructure and an ignorant population, but they said they’re happy to come home anyway.
+ - The cable TV sex channels don’t expand our horizons, don’t make us better people, and don’t come in clearly enough.
+ - To me a real patriot is like a real friend. Who’s your real friend? It’s the person who tells you the truth. That’s who my real friends are. So, you know, I think as far as our country goes, we need more people who will do that.
+ - The only way for mankind to survive is for religion to die.
+ - We don’t like mystery. You like mystery, ’cause it’s not a mystery to you; you know when you’re gonna get laid.
+ - Everything that used to be a sin is now a disease.
+ - Saying someone is religious is heard in most of America as a compliment, a reassuring affirmation that someone will be moral, ethical, and after a few glasses of wine, a freak in the bedroom.
+ - Russia has banned all adoptions to Americans. So, if you were hoping to get a little white kid with fetal alcohol syndrome, you’re going to have to wait until Lindsay Lohan reproduces.
+ - Republicans stand by their convictions. Stupid, ignorant, world-destroying convictions based on disproven economic fantasies and ancient books full of primitive morality and magic people. But convictions, nonetheless.
+ - During the Depression, or back when we were fighting Hitler, people didn’t have time to sue a company if the coffee was too hot. There were urgent, pressing problems. If you think you have it tough, read history books.
+ - I love Jesus. I just don’t like the Christians who don’t believe in what he says.
+ - Arnold Schwarzenegger has come out against gay marriage. He said marriage is a sacred union between a groupie and any number of body builders.
+ - Halloween is a day when we all get to fool people into thinking we’re someone else. Or as Mitt Romney calls it, campaigning.
+ - All I did was tell the truth. That’s is what the whole show is about! And if Politically Incorrect has to go down for it, so be it!
+ - Fame has sent a number of celebrities off the deep end, and in the case of Michael Jackson, to the kiddy pool.
+ - Oh, America! I could never leave you! You’re like my dog, dumb as a post but you make me laugh!
+ - If we stopped calling it profiling and started calling it “proactive intelligence screening” or “high alert detecting”, people would be saying “Well, it’s about time”.
+ - If you’re living hand-to-mouth, and still buying into the con that the big threats to America are socialized medicine, Mexican immigrants and tax increases, then you’re not being kept down by the rich. You’re being kept down by you.
+ - Jesus is not a candle. A company in South Dakota is selling candles with the scent of Jesus. You light one and your friends says, Christ, what’s that smell?
+ - I wouldn’t touch a hot dog unless you put a condom on it! You realize that the job of a hot dog is to use parts of the animal that the Chinese can’t figure out how to make into a belt? -timecode 1:11:10.
+ - Space tourism is God’s way of telling you you aren’t spending enough on lap dances, baccarat and cocaine.
+ - Men are only as loyal as their options.
+ - Anyone who is elected mayor of a place called Sin City is allowed to be a drunk.
+ - I don’t understand why the police are infallible. They remind me a lot of the Catholic Church.
+ - They’re talking about banning cigarette smoking now in any place that’s used by ten or more people in a week, which, I guess, means that Madonna can’t even smoke in bed.
+ - When I was in high school the worst thing you could ever get was VD. Talk about the sniffles! I just want to meet an old-fashioned girl with gonorrhea.
+ - If you want to get rich with a tax free enterprise that sells nothing, start a church.
+ - Why did Mitt Romney strap his dog to the roof of his car? Could it be because his station wagon was full of wives?
+ - Catholicism has changed tremendously in recent years. Now when Communion is served there is also a salad bar.
+ - I want to thank some very special people without whom I would not be here today. George Bush, Sarah Palin and the Pope. When I came to Hollywood in 1983, I had one dream – to sleep with Jodie Foster. That didn’t work out, but this is nice, too.
+ - When opportunity knocks all some people can do is complain about the noise.
+ - There are people who think everything is a conspiracy and I think they’re crazy.
+ - Heroin may be bad, but it sure as hell hasn’t hurt my CD collection.
+ - Many people can’t deal with unanswered questions, which religion exploits by providing answers, even if they are just made up by someone. This is also why we love TV shows and movies that neatly wrap up everything in exactly an hour or two.
+ - I thought this election was an adult discussion on how best to protect ourselves in the face of terrorism, but apparently it was a referendum on boys kissing. When homophobia trumps terrorism in America, wow. This country needs to get laid.
+ - I want to see riots! I want to see the kind of riots where cab drivers are afraid to pick up white people! I want to see this guy!
+ - New Rule: Someone must x-ray my stomach to see if the Peeps I ate on Easter are still in there, intact and completely undigested. And I’m not talking about this past Easter. I’m talking about the last time I celebrated Easter, in 1962.
+ - Government – they used to teach it in college. It’s actually something you should study and learn and know how to do. The Republicans always run on the idea that government isn’t very effective. Well, not the way you do it. But it can be effective.
+ - A lot of people have warned President Clinton that Bosnia will turn into another Vietnam, which would be embarrassing for him because he’ll have to go back to college.
+ - The other guys are selling certainty. Not me. I’m on the corner with doubt.
+ - A flu shot is the worst thing you can do.
+ - Ronald Reagan basically legalized every illegal immigrant in this country. I just like to bring this up because every week I like to make Republican heads explode about how they love Ronald Reagan, but would despise everything he did.
+ - The president is not doing well with African Americans. His popularity rating – his approval rating – with blacks: two percent. Two percent. That is somewhere between Mark Fuhrman and sickle cell anemia.
+ - What is “martinizing” and why does it only take one hour?
+ - Clint Eastwood’s speech was kind of a metaphor for the entire Republican Party: A confused old person yelling at something that doesn’t exist.
+ - The truth can be hard to take, but we have an obligation to look and see what’s going on, and, if we don’t like it, a chance to stop going along with it. This important film provides precisely that insight and that opportunity.
+ - New Rule: This Valentine’s Day Americans must remember that politicians are like a box of chocolates. We bite into them to find out what’s on the inside only to discover that Democrats are too often soft and gooey and Republicans are mostly nuts.
+ - Whoever needs the relationship less has all the power.
+ - Kids. They’re not easy, but there has to be some penalty for having sex.
+ - If there is such a thing as karma, let’s hope that Sarah Palin comes back as a wolf being shot at from a plane.
+ - The only silver lining I can find is that British accents aren’t sexy anymore.
+ - They say that Japan’s rigorous building codes and regulations saved thousands of lives over there. Or, as Republicans here saw it, it ‘fostered a socialist, anti-business environment that’s worse than being dead.’
+ - First they didn’t believe in evolution. Then they didn’t believe in global warming. Now the debt ceiling. What I call ‘the moron trifecta.’
+ - New rule: If churches don’t have to pay taxes, they also can’t call the fire department when they catch fire. Sorry reverend, that’s one of those services that goes along with paying in. I’ll use the fire department I pay for. You can pray for rain.
+ - The difference, I think, that matters is which of the religions are dangerous. They’re all crazy, but which ones have the potential to turn that into death. In that area, I think we have to worry the most about the Muslims and the Christians.
+ - There’s no greater model, in my view, than Jesus Christ.
+ - Do you think it’s possible that when we’re on something like marijuana or mushrooms and we believe we’re having a really spiritual experience that we’re just high?
+ - You can’t pray away global warming, and that’s the difference between religious people and sane people.
+ - Republicans have pounced. They’re outraged. They say, ‘How dare you lie about caring for the people who got hurt in the war we lied them into?’
+ - I don’t dislike children, I just don’t particularly want to be around with them a lot. Problem is, neither do their parents.
+ - I do miss George Bush. Compared to these teabaggers and the people who are pandering to them, he looks like a professor.
+ - In fact, because people are religious, they think they can do bad things.
+ - New Rule: The people of America who were most in favor of the Iraq War must now go there and fight it.
+ - Remember, guns don’t kill people – unless you practice real hard.
+ - Republicans have become the party of red, white and blue rose colored glasses. By drowning out criticism with USA! USA!, they prevent this country from healing itself where it needs healing, and that is the opposite of Country First.
+ - I believe in God, I just give him more credit than being a single parent and an author.
+ - America is like a dog. I’m sorry, but it is. It cannot understand actual words. It understands inflection. It understands fear. But you can’t actually explain issues to a dog.
+ - So many kids are fat drug addicts these days, it’s almost as if Rush Limbaugh had puppies.
+ - Clinton left the White House with all the class of an XFL halftime show.
+ - The Drug War is an addiction, really.
+ - All marriages are same sex marriages. You get married and every night, it’s the same sex.
+ - Jim Bakker spells his name with two k’s because three would be too obvious.
+ - I’m staying in a strange hotel. I called room service for a sandwich and they sent up two hookers.
+ - This is America. We don’t call an election before we know who won. That, after all, is the job of the Supreme Court.
+ - Shouldn’t we be against procreation at this point in time? With overpopulation and the strain on the resources on this planet? Shouldn’t we reward people who don’t spawn?
+ - Democrats are afraid of polls. Republicans aren’t afraid of polls. Republicans make polls. Democrats run from polls.
+ - My thinking is, government is really there to do the things that people absolutely can’t do for themselves. And that’s mostly involved with the things that might kill you. And what might kill me? The environment and terrorism.
+ - White people have always shown their superiority over blacks with their feet, moving out of black neighborhoods with the fear that their kids will turn into one of them. And now, through the magic of MTV, damned if it didn’t turn out that way!
+ - I don’t hate America. I love America. I want it to be better. The only way we can get it to be better is to realistically criticize what’s wrong with it.
+ - The only sport I really get into is snowboarding. Cause that’s the only sport where they perform a half pipe just after smoking a full pipe.
+ - My wife always has a splitting archetype whenever I want to have sex.
+ - Maybe a president who didn’t believe our soldiers were going to heaven might be a little less willing to get them killed.
+ - This is a powerful message from our government: we will not be intimidated by bombs; we will not be intimidated by poison; this is America, if you’re a violent, paranoid lunatic, you must use a gun!
+ - Tiger Woods apologized to the three women in America he never got around to sleeping with.
+ - I don’t know if you heard the news, but Wall Street now is a farmer’s market. I don’t want to say things are going downhill quickly, but Obama’s new campaign slogan is ‘Are you better off than you were four days ago?’
+ - Today Obama was seen leaving the White House in a nurse’s uniform on a flight to Cuba to smother Castro with a pillow.
+ - I can’t stay mad at Pope Frank. I just can’t. It’s a funny situation that I like the pope and Mel Gibson doesn’t.
+ - Why is monotheistic faith better than polytheistic? I mean, either you believe – if you believe in, like, a magic person who can do magic things, why is it different – so different if it’s Superman or the Fantastic Four?
+ - Time magazine put Chris Christie on the cover with the caption, ‘The Elephant in the Room.’ And People magazine named him ‘Sexiest Garbage Truck in a Suit.’
+ - The rebel army in Libya is just like 1,000 guys in Toyota trucks. The world is asking the question; can 1000 anti-government guys in pick-up trucks with small arms, take over a country of millions? To which I say, ask the Teabaggers.
+ - As a loyal American and I think a patriotic American, no, I don’t want Sarah Palin to be president.
+ - I think flying planes into a building was a faith-based initiative. I think religion is a neurological disorder.
+ - I would describe my spirituality as exactly the opposite of having a religious affiliation.
+ - We had a national tragedy this week, and the President of the United States and Sarah Palin both made speeches on the same day. Obama came out against lunatics with guns, she gave the rebuttal.
+ - Who takes care of their people better? FEMA or Hezbollah?
+ - A cult is a cult, and that’s what a frat is. A place where they strip you of your personality and rebuild it in their image.
+ - The difference between a GOP convention and Comic-Con is that the people at Comic-Con have a much firmer grasp of reality.
+ - You want to spend your millions on a worthless cause? Try donating it to the Democrats.
+ - In Europe, Socialism is just another political party. It just means that government takes over certain things like hospitals, prisons, military and schools that should not be run for profit.
+ - Unemployment is down, confidence is up, DOW 5,000 above Bush – or as Republicans put it, let’s talk about gay people and abortion!
+ - This party is just full of children, and someone needs to leave them in a hot car.
+ - That’s what’s so great about the Internet. It allows pompous blow-hards to connect with other pompous blow-hards in a vast circle-jerk of pomposity.
+ - Edward Snowden gave a little press conference today. He is apparently seeking temporary asylum in Russia. Because, you know, when you’re tired of the government snooping into everything you do, Putin’s Russia is definitely the place you want to go.
+ - Between trying to impeach Bill Clinton, Florida 2000, and the recall in California, I’m beginning to think that Republicans will do anything to win an election-except get the most votes.
+ - Things aren’t right. If a burglar breaks into your home and you shoot him, he can sue you. For what, restraint of trade?
+ - That’s ended, that’s over. I want you to meet my pimps. I thought, I’m a show-business ho already, so I might as well be a real ho.
+ - In this country, a smart leader is suspect. That’s just the way it is. Even George Bush’s father, who was a lot smarter than the son, had to sort of prove that he wasn’t that bright.
+ - Rick Santorum said this week that his 12-year-old could out-reason me about God. Look, I am not about to debate a home-schooled 12-year-old. I have enough trouble with Sarah Palin.
+ - The NRA made an ad saying that Obama is elitist because his kids have armed guards. Yeah, that crazy Obama thinking his kids need special protection. I love the NRA accusing anyone of being paranoid. It’s like a septic tank saying, ‘You need a mint.’
+ - When you hear a lobby called Partnership for a Drug-Free America, just remember – they do not want a drug free America. They want an America free of drugs that are their competitors.
+ - Doctors said that the test most commonly used to screen for colon cancer doesn’t go far enough. They’re recommending a procedure that involves photographing the entire colon. I say, don’t vie CBS an idea for another reality show.
+ - I think the reason why more rapists go into the military is the same reason why predators go into the Catholic Church. It’s a place they know they can get away with it.
+ - This has been a learning experience for me. I also thought that privacy was something we were granted in the Constitution. I have learned from this when in fact the word privacy does not appear in the Constitution.
+ - In the Muslim world, much of it, they cannot conceive of something coming out of the United States that wouldn’t be sanctioned by the government, because in their countries, everything is sanctioned by the government.
+ - People are very narcissistic. It’s not all their fault. We live in a society where there is a magazine for you, a channel for you, a perfume for you.
+ - New rule: Stop calling it Obamacare. It’s not like Obama will be the doctor for your next prostate exam. That’s just a common fantasy of Republican men.
+ - This country hates professors. It likes Toby Keith – ‘I’m gonna put a boot in their ass.’ If you don’t do that, somehow you can’t be strong.
+ - New Rule: Someone has to tell Francesco Schettino that embracing a callous policy of “every man for himself” doesn’t make you a sea captain. It makes you the Republican nominee.
+ - Donald Rumsfeld also lost his gig last week. When asked what his future plans are, Rumsfeld said, ‘What’s a plan?’
+ - I can’t believe I’m saying this, but Obama looks like he DOES need a teleprompter.
+ - Stand-up is great because I can get everything off my chest.
+ - I see they found out the universe is 80 million years older than we thought. It’s also been lying about its weight.
+ - Mitt Romney we think is going run again. He says he has no plans to run, but he said if he did run, this time things would turn out differently. Yes they would. This time he would get his ass kicked by a woman.
+ - Recognition is one of the three big elements of comedy.
+ - Not a lot of people know about Tunisia. Sarah Palin thinks it’s the name of one of Obama’s kids.
+ - The comedy gods are smiling on me tonight...
+ - In this country your guilty until proven wealthy.
+ - To give you an idea how slowly we are leaving Afghanistan, Afghans don’t refer to us anymore as ‘infidel crusaders.’ They refer to us as ‘Irish relatives.’
+ - This is the worst thing to happen to beaches since the Speedo.
+ - Officials believe that one of the terrorists was a woman. And there are female suicide bombers. It’s just that their reward in paradise is a little different. Instead of getting 72 virgins, they get 72 guys who just listen.
+ - We are a nation that is unenlightened because of religion. I do believe that. I think religion stops people from thinking. I think it justified crazies.
+ - It’s supposed to be a good thing that he’s got this dialogue started. To me, I think, I just took away something bad from it, because, apparently he had to do this not to convince them of anything. To educate them.
+ - We don’t really have to make fun of religion – it makes fun of itself.
+ - If Jesus was a Jew, why did he have a Spanish name?
+ - Mitt Romney was attacking Obama about our failing education system. He has a point. We are graduating millions of people in this country who are so lacking in basic analytical skills, they are considering voting for Mitt Romney.
+ - Eric Holder, our attorney general, says the Mr. Snowden will be brought to justice. Just as soon as we can find someone who can track his calls and read his emails.
+ - What we don’t know is about Jeb Bush and cocaine. But we do know that he did once had his brother Florida on a silver platter.
+ - Now people want Brian Williams to resign, but it could have a happy ending. Apparently what he said was such a blatant departure from the truth, today he got an offer from Fox News.
+ - If it weren’t for acid, you might not have an IPod, and you definitely would not have some of the best music in your IPod.
+ - Religion, to me, is a bureaucracy between man and God that I don’t need.
+ - Between Ron Paul and Rick Perry, I think the lesson is don’t get sick in Texas.
+ - In Republican fantasy world, everything is always Obama’s fault. Somehow, he’s weak and he’s ineffective, and yet he pulls the strings on everything in the world.
+ - This week Sarah Palin’s memoir became a bestseller. It’s not even out yet. It’s being translated into English.
+ - When consumers know things, they tend to make informed choices, and that could affect corporate profits. I’m sorry, but your right to know is always going to be outweighed by their right to hide it from you.
+ - I think the right-wingers have to buddy up to the fact that either the minimum wage has to go up, and people get enough money to live, or you’re always going to have people needing government assistance. You can’t have it both ways.
+ - What mostly prevents black people from voting is that drug laws send them to prison, and then they can’t vote.
+ - A flu shot just compromises your immune system.
+ - North Korea has the same ability to launch a nuclear strike against America as I do. It’s like walking through a parking lot and getting barked at by a chihuahua locked in a car.
+ - We’re all gonna be gay if we get health care!
+ - There’s a word the teabaggers have wanted to use since Obama came on the scene, but they can’t because it’s not the 1950s. They would love to say this word. It begins with an N and ends with -er, and it’s not nation-builder.
+ - African American Congressman Bobby Rush wore a hoodie on the floor of Congress to make a point this week. And they threw him out. They said a hoodie is too scary for Congress. Too scary? Have you ever looked into Michele Bachmann’s eyes?
+ - The Democrats are very bad at selling their own product. The Republicans are geniuses at it. And I’ve said it before, a bad product well apologized for is superior in this country to a good product.
+ - Selling pot allowed me to get through college and make enough money to start off in comedy.
+ - I like groaning. That means that you’re not pandering to their already settled prejudices.
+ - Is it like gay men go into the priesthood because they figure, well, this’ll solve my problem. I can’t be a homosexual in the priesthood; it’ll just go away. Maybe I’ll try it with the Republican Party.
+ - You’d know if I was the de-facto leader of the Democratic Party, because you’d go down to Walgreen’s and buy a pack of blunts.
+ - When the tabloids photograph me when I’m out, I always say: “You know what, folks? I’m not married and I’m not gay. You caught me with a hot chick. You got me. Take me to hot-chick jail. Did it again. Guilty.”
+ - If you, the citizen, deliberately vote for someone who won’t give you healthcare over someone who will, you need to have your head examined. Except you can’t afford to have your head examined.
+ - I do think the patriotic thing to do is to critique my country. How else do you make a country better but by pointing out its flaws?
+ - I’m okay with it now that Obama’s in office. I’m kind of trusting of him. But President Ted Cruz? Where this is going would bother me.
+ - New Jersey Mayor Corey Booker last night personally rescued a woman from a burning building. Or as Fox News reported it, ‘black man loots house, steals white woman.’
+ - Canadian bacon isn’t bacon. It’s ham.
+ - If you can look at a crime where everything points to one answer and not see it, you’re a dumb-ass. And if you can look at the deficit and not see that the problem is that the rich stopped paying taxes, you’re a Republican.
+ - I always say to my religious friends, if a pool had even one turd in it, would you jump in?
+ - The church has historically been very slow to embrace technology. Until very recently, their idea of a laptop was an altar boy.
+ - The whole dating ritual was different when I was a kid. Girls got pinned, not nailed.
+ - I’ll show you Obama’s birth certificate when you show me Sarah Palin’s high school diploma.
+ - Maybe every other American movie shouldn’t be based on a comic book. Other countries will think Americans live in an infantile fantasy land where reality is whatever we say it is and every problem can be solved with violence.
+ - Republicans look to find the future and they find radio.
+ - The idea that I hear from the right wing in the last few decades, is that any sort of sacrifice is an affront to my liberty as an American to be a pig the way I want to.
+ - Face the fact that there’s only one sure-fire way to erase credit card debt. By picking up a big, shiny pair of scissors and cutting your wife in half.
+ - It just seems like the culture war is over, and the gay kissers won.
+ - To those people who say, ‘My father is alive because of animal experimentation,’ I say, ‘Yeah, well, good for you. This dog died so your father could live.’ Sorry, but I am just not behind that kind of trade-off.
+ - It was quite a sight to see Obama next to President Hu. Obama has a Nobel Peace Prize in his basement, and Hu has a Nobel Peace Prize winner in his.
+ - We’re always on a tightrope. We’re trying to put together people who don’t make sense to be together, talking about issues that are sensitive and controversial. We’re mixing dangerous chemicals on a nightly basis.
+ - Let’s make a law that gay people can have birthdays, but straight people get more cake – you know, to send the right message to kids.
+ - Ronald Reagan came from show business. His idea of how the government should help the homeless was like your agent. “We’ll try to get you work. But don’t bug us about it.”
+ - I didn’t really think a lot about religion, but I didn’t really think a lot against it, either. I was one of those people who didn’t go to church, but when I got in trouble I kinda pleaded with God – whoever that was.
+ - Anything is depressing if you dwell on it. The fact that religion could end the world? Yeah, I guess that could be considered depressing. But considering that there’s also a lot to laugh at, I think it’s a good balance.
+ - Everybody has a magazine and a channel. There are 500 channels and 500 magazines, and we wonder why we’re not united as a country.
+ - The Eleventh Commandment: don’t speak ill of a fellow Republican. What if the fellow Republican is doing something that hurts America? Isn’t it the patriot who sides with America before he sides with the Republicans?
+ - I think Mitt Romney is a symptom. I think the problem is the Republican Party.
+ - What kind of tyrant punishes everyone just to get back at the few he’s mad at? I mean, besides Chris Christie.
+ - There are two things that you have to lie to get through. One is politics, and the other is marriage.
+ - In America, if a Democrat even thinks you’re calling him liberal he grabs an orange vest and a rifle and heads into the woods to kill something.
+ - Obama has had more fundraisers than the last six presidents combined. And he’s still losing in the money race!
+ - Did you see the 2000 Republican Presidential Convention? The last time the Republicans had that many Black people on a stage, they were selling them!
+ - Germs do not have a political party.
+ - The Republican Party is like the corpse in ‘Weekend at Bernies’ and the Tea Party is like the two guys who put sunglasses and a party hat on it and drag it around.
+ - I’m not into western medicine. That to me is a complete scare tactic.
+ - George Bush says, ‘Gore’s book needs a lot of explaining.’ Of course, Bush says that about every book.
+ - That’s what American democracy has come down to at these town hall meetings: old people and gun nuts, which is a terrible combination. I heard somebody yell ‘AK-47!’ and a lady yelled, ‘Bingo!’
+ - Greed can overtake smart.
+ - The food is out of this world!
+ - If it makes you feel any better we will be happy to attack a country that had nothing to do with it.
+ - President Bush is supporting Arnold but a lot of Republicans are not, because he is actually quite liberal. Karl Rove said if his father wasn’t a Nazi, he wouldn’t have any credibility with conservatives at all.
+ - I think the news people no longer have any idea of what covering the news is.
+ - Tt just seems to be human nature to seem to want to posit in another human being, qualities that you must know, in part of your mind, that human being couldn’t possess because you don’t possess.
+ - You’re not a patriot unless even when you lose, it’s still your country.
+ - One of the reasons I still do stand-up is because it was so hard in the beginning that I feel like it would be such a shame not to redeem it that it’s all fun.
+ - You would think there is a higher bar than having a Facebook page to run for president.
+ - You are what you do. It’s about actions.
+ - If nobody is clear on what you’re protesting, it’s not a protest. Thousands of people gathered in London this week to voice their disapproval of the G-20. Their basic message being, Stop all your globalizing and unite the world!
+ - Donald Trump announced he got his own segment every Monday morning on Fox News. Just what Fox News needs – another blonde airhead.
+ - BP today finally managed to almost completely stop the flow of information.
+ - Nobody sees people as people. It’s all how they relate to my little group.
+ - I don’t know anyone less Jesus like than Christians.
+ - Whenever the people are for gay marriage or medical marijuana or assisted suicide, suddenly the ‘will of the people’ goes out the window.
+ - Don’t vote for Republicans or Democrats until they clean up the open system of bribery that we live under.
+ - Americans are used to being pandered to and spoon-fed everything. In a culture that needs caffeine-free cherry chocolate diet Coke, you’d best deliver information with entertainment.
+ - This is a ridiculous heat wave we’re in right now, and to contribute, Newt Gingrich said that for the entire month of June, he will stop blowing hot air.
+ - When I was 5-years-old, I knew who Khrushchev was.
+ - To even win a nomination in this country, you have to say you’re a person of great faith. You have to pledge to the people out there that you put your faith in things that are unable to be proven – that you suspend critical thinking as the way to go.
+ - Hillary Clinton and Nancy Reagan have a lot in common – they’re both smarter than their husbands and both consulted the stars for guidance, Nancy with astrology and Hillary with Barbra Streisand.
+ - I doubt anything will really come of this lawsuit. First of all, it’s a lawsuit. It involves a subpoena. And try to find a Republican who will be willing to be seen serving a black man.
+ - I understand we’re on our way to being a Third World country. Could we just stop at ‘Second World’ before we get there?
+ - When you tolerate intolerance, you’re not really being a liberal.
+ - It’s all been satirized for your protection.
+ - Gingrich is the “foremost intellectual” in the Republican party like Gene Simmons is the foremost intellectual in “Kiss”.
+ - Bush the younger has two things going for him that his father never had. One: an easy charm with regular people and two: the power to make them disappear without a trial.
+ - Rick Santorum beat Mitt Romney in three states on Tuesday. Got a huge amount of fundraising. That’s the good news for Rick Santorum. The bad news: people are now Googling ‘Santorum.’
+ - What Democratic congressmen do to their women staffers, Republican congressmen do to the country.
+ - We don’t do sensible things. This is America.
+ - The problem is that the people with the most ridiculous ideas are always the people who are most certain of them.
+ - You know, the only place in America where the millionaires and billionaires are predominantly liberal is here in Hollywood.
+ - The country has become much more conservative, partly because it’s been taken over by the religious right.
+ - I think the funniest stuff comes from the heaviest stuff.
+ - I have two questions about Arnold Schwarzenegger. What does he know, and when will he know it?
+ - Iraq now says that it will, after all, destroy its missiles. President Bush said, ‘Please, I used to pull the same trick. There’d be an intervention, I’d make a big show of pouring out the liquor and then there was a case under the floorboards.’
+ - There’s more than one mosque in the world that used to be a church and before that was a temple. Because it’s a lot easier to just change the sign on the top and say under new management than it is to change the whole building.
+ - Why are the patriots the ones who don’t want to spend money on trains?
+ - Just be happy that something traveled 5,000 miles across the Pacific and, for once, it wasn’t your job.
+ - One of the advantages of atheism is takes so little of your time.
+ - Eell there always is a tendency in human nature to deify.
+ - If you came into the theater believing in the talking snake, it’s kind of hard to leave the theater still believing in the talking snake.
+ - When you get people who are out of office, suddenly their tongues loosen up and suddenly they say the things that you wish they’d said or did when they were in office.
+ - The President said that Gold told him to invade Iraq. You see that’s what happens when you mix New Testament and Old Milwaukee.
+ - More astronauts have been to the moon than farmers who paid the inheritance tax in 2013.
+ - Republicans are taking the defeat over Health Care as well as Tiger Woods took to marriage.
+ - In America, you’re allowed to justify almost any kind of bigotry, sexism, or intolerance if you source it to God’s big book of bad ideas.
+ - I think we need to change that old saying, “I don’t need a building to fall on me.” Because two did and we still don’t get it. I think we all stick our head in the sand as a deep human impulse.
+ - They told us to buy duct tape and portable radios so that if the world does end, we can all listen to Rush Limbaugh blame it on Clinton.
+ - I have a theory that the Internet makes people stupider – and also FOX News makes people stupider.
+ - It’s very well known that the Republicans have problems with minorities. The Democrats have big problems with white people. Obama only got 39% of the vote. He only got 36% of the working-class white people.
+ - Based on every statement I’ve heard out of any Republican in the last two years, the Israelis are controlling our government.
+ - Emergency rooms will be used the way they were intended to be used: not for primary care, but for when the average freaky American get some strange object up his ass.
+ - Beating Newt Gingrich in a popularity contest is like beating Stephen Hawking in ‘Dancing with the Stars.’
+ - How come regional pandering only works in one direction, right? You never see a Southern politician trying to win votes in New York State by saying, ‘I read books and make a mean vegan meatloaf.’
+ - It is appalling to make Jesus out of food! Now, if you’ll excuse me, I have to go bake some communion wafers.
+ - Obama is huge in the polls these days. His popularity is soaring. Even conservatives are coming around. 30 percent of them now believe Obama deserves a Green Card.
+ - Death is nature’s way of killing you.
+ - The New York Times – but the whole country gives it that weight. It’s like the Asian kid in math class. Everybody in the media cheats off The New York Times.
+ - I have such disdain for anybody who gets joy out of blowing the stuffing out of a little woodland creature, that I don’t really care if any of them gets shot.
+ - I would rather put up with Rush Limbaugh and live in a country where we all do have freedom of speech.
+ - The electricity is back on in Baghdad. That is a very climactic moment in any country’s liberation, when the lights come back on and you get a good look at what you looted.
+ - Little do women know what big ideas I have in my pants.
+ - In the Republican party, crazy is a constituency.
+ - Laughter is sort of a natural truth detector. If you laugh at something, it’s probably because there was some truth in it.
+ - This is why rational people – anti-religionists – must end their timidity and come out of their closet and assert themselves.
+ - If the Hamas people had the opportunity, they would kill the maximum number of Israelis, which would be all. And, Israel has the opportunity to kill way more, and they do not.
+ - When you want to make it clear to the rest of the world that you are not an imperialist, the best countries to have with you are Britain and Spain.
+ - For the first time since 1979, we are talking to the Islamic Republic of Iran. Obama says talking to him is probably pointless, but it’s a hell of a relief from Mitch McConnell.
+ - If a President must constantly remind the people that we’re at war, then we’re not.
+ - Rand Paul and Chris Christie both said vaccinations should be a choice, not a government mandate. Because when have Republicans ever told people what they could do with their own bodies?
+ - We have the Bill of Rights. What we need is a Bill of Responsibilities.
+ - The difference between a hockey mom and a pit bull: At some point, a pit bull does stop whining.
+ - If I thought the Lord was speaking to me I’d check myself into Bellevue, and I think you should too.
+ - Last week, I suggested the candidates take up mushrooms. I’ll be damned if Rick Perry didn’t take me up on that.
+ - Religion is defined as belief in and worship of a controlling power and atheism is precisely not that.
+ - Be out of the mainstream. I’m out of the mainstream. I enjoy it, who wants to be in the mainstream?
+ - In no way was I intending to say, nor have I ever thought, that the men and women who defend our nation in uniform are anything but courageous and valiant, and I offer my apologies to anyone who took it wrong.
+ - The shame would be if Democrats get thrown out of office without ever having tried Democratic policies.
+ - You can always tell when Obama’s negotiations with the Republicans are winding down, because he’s missing his watch and his lunch money.
+ - People like the Mormons and the Scientologists, who I think should combine and make a Mormontologist because what they believe is just so out there it’s just laughable.
+ - Why are there so many puritans in this country, and why can’t the rest of us make them go away?!
+ - The Senate decided they will be smoke-free. They ordained that all public areas in the Senate are now smoke-free. However, the senators themselves will still be allowed to blow smoke up each other’s asses.
+ - The jury could get the case as early as next week, but the defense says they just want to introduce one last-minute load of crap.
+ - New polls show that Obama is now pulling away from Mitt Romney. And, of course, what could be more natural than to see Mitt Romney and pull away?
+ - Tea Party has now cost the Republicans 5 senate seats. My next donation is going to them.
+ - This is my question for conservatives: don’t you want to live, too?
+ - Our mistakes from the past are just that: mistakes. And they were necessary to make in order to become the wiser person we became.
+ - This Ted Cruz guy, I mean, he incurred the wrath, really, of his own party. They don’t like him. Democrats hate him. Independents hate him. Republicans hate him. Even Miley Cyrus, he’s the one guy she refuses to lick.
+ - The Bible looks like it started out as a game of Mad Libs.
+ - Romney, Gingrich, Santorum spent their week lecturing America about the morality of birth control. You know, you guys don’t need birth control, you are birth control.
+ - I never thought I’d say this, what Obama needs in his personality is a little George Bush.
+ - We’ve been on a long break and I’ve just been kicking back, doing nothing. Like our government.
+ - We have been the cowards lobbing cruise missiles from 2,000 miles away. That’s cowardly. Staying in the airplane when it hits the building, say what you want about it, it’s not cowardly.
+ - Don’t you think that being a person of faith has become a third rail in American politics? If you want to run for president nowadays, you’d better get out there and say you’re a very faith-based person.
+ - Hey birthers, wanna hear my theory? My theory was that Obama was born in America and you were born with the umbilical cord around your neck.
+ - At some point in the last 20 years, the left moved to the center, and the right moved into a mental institution.
+ - The thing I don’t understand about homosexuals is, how do they decide which one is the one who’s supposed to pretend they don’t want it?
+ - It would be kind of a tragedy if we got to the end of four years of Democratic rule without having really tried any Democratic policies.
+ - The country can’t get well if the people are sick. And the people are sick.
+ - During the debate, Bush was asked by a lady to name three mistakes he’s made. And Bush responded, this debate, the last debate and the next debate.
+ - I think I know now why we are occupying Iraq. In case we have to sell America and move to a smaller country.
+ - There is no such thing as a moderate Republican anymore.
+ - I never, ever in my life tried to be outrageous. I’ve only ever tried to say what was truly on my mind and not pull punches about it.
+ - People are either good or they’re not. Religion doesn’t make anybody good, I don’t think.
+ - The politicians are no prizes, but the people are even worse, they’re so ill-informed. I never understand the pushback when I say people are stupid.
+ - President Obama invited John McCain to the White House to give his opinion on Egypt, specifically what it’s like to be a mummy.
+ - My father was a news guy, you know, he was in radio news. And so that was sort of in my DNA. It was something we talked about at the dinner table when I was a kid.
+ - Only 42 percent of Republicans believe Obama was born in the United States. That’s an amazing statistic. How come in America Christians are the only ones who won’t take anything on faith?
+ - There were two Republican responses to the State of the Union. So if you watched the whole night, it was kind of evolution in reverse. You have Obama, then Paul Ryan, and then Michele Bachmann. Then Animal Planet had a squirrel monkey give his take.
+ - Sarah Palin’s whole family got into a drunken public fistfight. Something police are calling a ‘tragic case of trash-on-trash violence.’
+ - Your fuselage shouldn’t open more easily than your pretzel bag.
+ - Now, I’m no doctor, but I am on TV. And in my professional opinion, George Bush is a paranoid schizophrenic.
+ - You can’t get saved if you don’t play.
+ - There is good news. Scientists sent a probe down there in the Gulf of Mexico today and they found traces of seawater.
+ - Meat is dirty. I wouldn’t touch a hot dog without a condom on it.
+ - Only a Bush could answer a ‘yes’ or ‘no’ question two different ways and be wrong both times.
+ - And to answer the question that people have about this conspiracy theory that he has a pack in his back, my answer is, if someone was feeding him answers, couldn’t they be able to feed him better ones than he came up with?
+ - The unemployment rate is now at 9.2%, which is scary, because experts say 9.5 is the point at which people are desperate enough to consider Michele Bachmann.
+ - I’d just like to know what a cop WOULD have to do to get indicted – and what good are cop cameras since Eric Garner IS on tape?
+ - A new biography of Madonna came out last week, and apparently the biography lists all the men she’s slept with. The book is apparently called the Manhattan Telephone Directory.
+ - Sarah Palin has strong opinions on the Libyans. She said, ‘Marriage is between a man and a woman and Libyans like Rachel Maddow are what’s ruining this country.’
+ - I love the Tea Party. They are the ultimate beer goggles. They make everything look better.
+ - Nobody in America who wants pot has any trouble getting it, so maybe that’s why we aren’t seeing support for legalization. People don’t think it’s necessary to legalize it, because it’s so easy to get it.
+ - I just don’t think a lot of Republicans like it when single women have sex.
+ - If the NRA keeps messing with the President’s daughters, they’re going to have to start worrying about Michelle Obama’s guns.
+ - There was one awkward moment where a black man stood-up to ask a question and out of habit, Bush said ‘Clemency denied.’
+ - You know, we do a lot of complaining here in America. And that itself is something they can’t do in a lot of other countries.
+ - Some people think I enjoy debate. I don’t. I wish everyone agreed with me; it would save a lot of time.
+ - Obama is not a secret Kenyon, or a secret Muslim, he’s a secret Republican.
+ - God makes trees, he doesn’t write books.
+ - When we make mistakes they call it evil.
+ - Trusting the government to monitor your calls without listening. It’s kind of like trusting Chris Christie to pick up the McDonald’s and not eat the fries on the way home.
+ - All across the Middle East in the streets, people are demanding democracy. It’s amazing. The only way in America you get people to get worked up like that is to threaten to give them health care.
+ - Don’t say a woman is crazy just because she runs away from her wedding.
+ - You talk about ‘Obama is going to herd us into FEMA brainwashing camps.’ Maybe your brain needs a little washing.
+ - Curious people are intersting people, I wonder why that is.
+
+476 quotes

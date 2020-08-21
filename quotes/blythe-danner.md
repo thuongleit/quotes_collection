@@ -1,0 +1,25 @@
+ - You live long enough, you lose enough people, you learn to appreciate the memories you have and stop begrudging the ones you never got to make.
+ - We all have an obligation as citizens of this earth to leave the world a healthier, cleaner, and better place for our children and future generations.
+ - Acting is really only part of my life. I’m addicted to it.
+ - My theory in anything you do is to keep exploring, keep digging deeper to find new stuff.
+ - Whether you’re on TV or on the stage, you have to work hard to stay fresh, real, and full of energy. You can’t settle back. You always have to stay on your toes.
+ - I loved doing Shakespeare. My two favorite roles, in fact, have been Viola in Twelfth Night and Helena in A Midsummer Night’s Dream.
+ - Maybe subconsciously I’ve kept activism separate from acting because it’s important to me in a more profound way.
+ - I’ve always just adored music. It’s my first love, really. I admire and respect people in the music business. You really have to work hard and diligently. Sometimes actors can be lazy and get away with it, but you can’t do that if you’re a musician.
+ - Actors are very generous.
+ - I think I have a lot of crazy layers.
+ - I’m mostly a jazz fan and I’ve never really been into rock ‘n’ roll music – although I guess Coldplay isn’t really rock ‘n’ roll – but he’s made me a convert. I do go to their concerts whenever we’re in the same town and I don’t even have to wear earplugs any more, which I did in the beginning.
+ - You learn more discipline in the theatre than you do in movies or TV. You’re on stage every night and you have to sustain your energy level tor several hours.
+ - Just look at my face. Its an extraordinary experience. All of my friends who are grandparents have been saying, just wait, a bit cynically, but its just extraordinary. You feel like a child again yourself. Just walking on air.
+ - It was in high school that I first became interested in acting. We put on lots of plays.
+ - I feel that its our children who do give us hope because they are the ones who are going to save the world.
+ - I’ve been very lucky. I wanted to be an actress, but I didn’t really have the drive to sell myself. Fortunately I had a terrific agent in New York who kept me going from job to job.
+ - Film has always been hard for me, I’m basically a stage actress. I never felt comfortable in front of the camera.
+ - I try to avoid a specific image. I seek to play as many different women as I can to avoid having a label put on me.
+ - I was raised in a time where children were still seen and not heard basically, so I think a lot of us in my generation went the other way and just tried to be as much more liberal and open and we’re still paying for it.
+ - Mostly, I spend my time being a mother to my two children, working in my organic garden, raising masses of sweet peas, being passionately involved in conservation, recycling and solar energy.
+ - Part of me says that no life will work if I can’t make this one right.
+ - I think one of my very favorite films of all time was with Peter Sellers when he played Chauncey, the gardener. Being There.
+ - I feel a little guilty only being an actor.
+
+23 quotes

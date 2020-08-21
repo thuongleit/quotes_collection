@@ -1,0 +1,85 @@
+ - All kids need is a little help, a little hope and somebody who believes in them.
+ - In life, winning and losing will both happen. What is never acceptable is quitting.
+ - I am a businessman. This is what I do each and every day. I love it. I love coming to work. I never have a bad day.
+ - Talent is never enough. With few exceptions the best players are the hardest workers.
+ - When you face a crisis, you know who your true friends are.
+ - HIV changed my life, but it doesn’t keep me from living.
+ - If you want someone to be your mentor, you better be ready to listen and be humbled.
+ - Young people want you to be real with them.
+ - I grew up poor, but I didn’t have poor dreams.
+ - For me, it always goes back to something I learned in basketball. There’s winning and there’s losing, and in life you have to know they both will happen. But what’s never been acceptable to me is quitting.
+ - Just celebrate the life you had, not the life you could’ve had.
+ - A woman always remembers. Remember that.
+ - Even as a fierce competitor I try to smile.
+ - You’re the only one who can make the difference. Whatever your dream is, go for it.
+ - Don’t give up! Be friends with people who help you work hard.
+ - Larry, you only told me one lie. You said there will be another Larry Bird. Larry, there will never, ever be another Larry Bird.
+ - Everybody on a championship team doesn’t get publicity, but everyone can say he’s a champion.
+ - I love coming to work. I never have a bad day.
+ - It’s almost like we have ESPN.
+ - God blessed me with two unbelievable parents, and I am just like both of them. I have the smile and charisma of my mother and the big heart of my mom, because she wants to save the world and help the world, so I am just like her.
+ - You can’t get AIDS from a hug or a handshake or a meal with a friend.
+ - I want to be here for a long time, so I am going to do everything I have to do to be here.
+ - When I’m under the gun and I’ve got pressure on me, I don’t panic. I look for the right solution, and then I go for it.
+ - When you are honest and open with young people, they let you in.
+ - On the best tactic when playing alongside Kareem Abdul-Jabbar- Just give him the ball.
+ - If people around you aren’t going anywhere, if their dreams are no bigger than hanging out on the corner, or if they’re dragging you down, get rid of them.
+ - They said playing basketball would kill me. Well, not playing basketball was killing me.
+ - I’m a big believer in dreaming. If you don’t dream it, you can’t become it.
+ - If the community is happy, then they support your business and if your business is doing well, then you can give back even more to the community.
+ - My father is my idol, so I always did everything like him. He used to work two jobs and still come home happy every night.
+ - A competent and self-confident person is incapable of jealousy in anything. Jealousy is invariably a symptom. Just like right now with the whole mortgage crisis, I want to help people get back into their homes.
+ - When you are a successful business person, you are only as good as your team. No one can do every deal alone.
+ - I enjoy being the messenger for God in terms of letting people know about HIV and AIDS.
+ - I tell you, it’s funny because the only time I think about HIV is when I have to take my medicine twice a day.
+ - Most people who are healthy, and I’m healthy, can’t even live my life. Trust me. I get up 530-6 every morning. I’m in the gym. I run a couple miles. I lift weights, and then I’m at work until 8-9 o’clock at night.
+ - I was around when my father finished the last payment of his house. I remember like it was yesterday. He had worked all those years to own that house and he cried. He was so excited and so happy and I want to see other people get that feeling, too.
+ - Once Michael gets up there he says, ‘Well, maybe I’ll just hang up here in the air for a while, just sit back.’ Then all of a sudden, he says, ‘Well, maybe I’ll 360. No I changed my mind. I’ll go up on the other side.’ He’s just incredible.
+ - My diet is mostly chicken and fish. I make sure I get a lot of vegetables, a lot of fruit. I am a big fruit man, I am a vegetable man anyway. And I also get a lot of rest. That’s the key I may be up early, but I’m in bed early too.
+ - People don’t stop eating, and they don’t stop drinking coffee.
+ - To me, everything is wonderful. Life is wonderful.
+ - You know I was a shy guy and people didn’t know that and still don’t know it today. I’m sure basketball brought my shyness out because of the fact that you have to do interviews, and that people are always talking to you in terms of the fans and everything.
+ - As an athlete, I understood the value of my health insurance. I knew that in my profession, injuries were common and could happen at any time.
+ - Even when I went to the playground, I never picked the best players. I picked guys with less talent, but who were willing to work hard and had the desire to be great.
+ - I strive on pressure.
+ - A lot of black guys always ask me, ‘Did Larry Bird really play that good?’ I said, ‘Larry Bird is so good it’s frightening.’
+ - If you’re a competitive person, that stays with you. You don’t stop. You always look over your shoulder.
+ - It’s a burden trying to keep a secret. It’s hard. It probably takes more out of you trying to hold it and keep it than it does for you to really let it out.
+ - If you hate to lose, you do whatever you need to do to make sure you’re business is successful.
+ - Research your idea. See if there’s a demand. A lot of people have great ideas, but they don’t know if there’s a need for it. You also have to research your competition.
+ - I’m at peace with myself. The main thing is not letting people dictate what I do or what I am.
+ - I met wonderful people playing in the NBA. Whether it is the officials, the scorekeepers, all the people who work for the NBA, not just for the Lakers, but I’m talking about just for the league itself.
+ - The worst moment from all of this was driving from that doctor’s office, to tell my wife that I was HIV positive.
+ - Everyone thought I was going to die like a year later, they didn’t know. So I helped educate sports, and then the world, that a man living with HIV can play basketball. He’s not going to give it to anybody by playing basketball.
+ - The first year was hard for me to deal with. The second year was a little bit easier, but still difficult. It took me five years to get it out of me. It was a difficult moment, a difficult time.
+ - Any guy who can maintain a positive attitude without much playing time certainly earns my respect.
+ - If somebody says no to you, or if you get cut, Michael Jordan was cut his first year, but he came back and he was the best ever. That is what you have to have. The attitude that I’m going to show everybody, I’m going to work hard to get better and better.
+ - I only know how to play two ways: reckless and abandon.
+ - I wouldn’t do the ‘Magic Hour’ again, but I would do TV again. The ‘Magic Hour’ is not me. Anything I would do, I would have to be me. That is how it would work.
+ - Magic is crazy. He is that crazy wild guy on the basketball court that is very intense and very serious. He is the guy who lives and eats and breathes basketball.
+ - I’m from there. You know, when you grow up with these people and see them every day and then you look at the numbers it was easy; it was a no-brainer. And when Sony took a look, it was a no-brainer to them, too.
+ - My father was a great example of a strong and good man and Christian man, and my mother taught all my six sisters how to be young ladies and mothers and how to take care of your family. And so I think they were – they still are – great examples for all of us to their kids and to the world, too.
+ - It all started when I got injured early in my second season. This turned out to be as difficult emotionally as physically.
+ - You don’t have to be Magic to be special. You’re already special, you’re you.
+ - Assists is what Earvin is all about. That’s what my whole life has been, assisting others.
+ - The important thing is this Just because I’m doing well doesn’t mean that they’re going to do well if they get HIV. A lot of people have died since I have announced. This disease is not going anywhere.
+ - I was able to see what I wanted to do, I could see the opportunity, even when others could not, and I stay committed to doing it and doing it well, no matter what.
+ - I’ve always studied business. Even when I was a ball player, I’d read business journals and the business sections of newspapers.
+ - On his telepathic understanding with James Worthy- It’s almost like we have ESPN.
+ - WE all have to play as a team to make the world a better place.
+ - Being able to touch so many people through my businesses and make money while doing it, is a huge blessing.
+ - We are a company that lives and breathes a philosophy that’s centered on not only making sound business decisions but also personally and professionally finding ways to contribute to the well being of society. We are also a company that understands community.
+ - I never think that there’s something I can’t do, whether it’s beating my opponent one on one or practicing another hour because something about my game is just not right.
+ - I guess when people ask what is the biggest transition to the NBA from college, it is definitely defense and the mental part.
+ - You either have to be great or you have to be bad to get a good pick.
+ - Because if you’re going to lose, lose. I’m serious.
+ - If you want to be successful, you have to be willing to use every connection you’ve got.
+ - Magic is who I am on the basketball court. Earvin is who I am.
+ - Standing on that platform, I said a silent prayer. I thanked God for giving me the strength and the opportunity to come back, to play basketball again, and to be part of that whole magnificent Olympic experience. It’s a memory I will always cherish.
+ - I wanted to do two things when I was growing up, about your age. I wanted to play in the NBA, and I wanted to be a businessman after my basketball career was over, and that is what I am doing now.
+ - Life doesnt stop because something happens to you.
+ - The audience likes their emotions to be touched. They want to laugh and cry and feel good.
+ - I learned to give him the ball...
+ - I want to be here for a long time, so I am going to do everything I have to do to be here. And I want to walk my daughter down the aisle and give her away to somebody some day. I want to make sure I am still here to make sure my two young sons become men.
+
+83 quotes

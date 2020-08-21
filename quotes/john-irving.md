@@ -1,0 +1,192 @@
+ - You’ve got to get obsessed and stay obsessed.
+ - If you are lucky enough to find a way of life you love, you have to find the courage to live it.
+ - Keep passing the open windows.
+ - Your memory is a monster; it summons with will of its own. You think you have a memory, but it has you.
+ - You only grow by coming to the end of something and by beginning something else.
+ - There’s nothing as scary as the future.
+ - Self-hatred is worse than loneliness.
+ - Goodnight you princes of Maine, you kings of New England.
+ - The way you define yourself as a writer is that you write every time you have a free minute. If you didn’t behave that way you would never do anything.
+ - Your memory is a monster; you forget – it doesn’t. It simply files things away. It keeps things for you, or hides things from you – and summons them to your recall with a will of its own. You think you have a memory; but it has you!
+ - With every book, you go back to school. You become a student. You become an investigative reporter. You spend a little time learning what it’s like to live in someone else’s shoes.
+ - Half my life is an act of revision; more than half the act is performed with small changes.
+ - It is hard work and great art to make life not so serious.
+ - What greater thing is there for two human souls, than to feel that they are joined for life – to strengthen each other in all labor, to rest on each other in all sorrow, to minister to each other in all pain, to be one with each other in silent unspeakable memories at the moment of the last parting?
+ - You take every opportunity given you in this world, even if you have too many opportunities. One day, the opportunities stop, you know.
+ - O God – please give him back! I shall keep asking You.
+ - What is hardest to accept about the passage of time is that the people who once mattered the most to us wind up in parentheses.
+ - Good habits are worth being fanatical about.
+ - If you presume to love something, you must love the process of it much more than you love the finished product.
+ - We are formed by what we desire.
+ - I’m old-fashioned, a storyteller. I’m not an analyst and I’m not an intellectual.
+ - You live your life at the time you live it – you don’t have much of an overview when what’s happening to you is still happening.
+ - I’m not afraid, but I’m very nervous.
+ - You know, everybody dies. My parents died. Your father died. Everybody dies. I’m going to die too. So will you. The thing is, to have a life before we die. It can be a real adventure having a life.
+ - Patriotism is not necessarily defined as blind devotion to a president’s particular agenda – and that to dispute a presidential policy is not necessarily anti-American.
+ - My dear boy, please don’t put a label on me – don’t make me a category before you get to know me!
+ - A personal injustice is stronger motivation than any instinct for philanthropy.
+ - It is your responsibility to find fault with me, it is mine to hear you out. But don’t expect me to change.
+ - It was a sound like someone trying not to make a sound.
+ - Kids are beautiful, man. And they know much more than grownups think they know. Kids are just perfect people until grownups get their hands on them.
+ - I have a friend who says that reviewers are the tickbirds of the literary rhinoceros-but he is being kind. Tickbirds perform a valuable service to the rhino and the rhino hardly notices the birds.
+ - Rituals are comforting; rituals combat loneliness.
+ - You know, people think you have to be dumb to skip rope for 45 minutes. No, you have to be able to imagine something else. While you’re skipping rope, you have to be able to see something else.
+ - A writer’s job is to imagine everything so personally that the fiction is as vivid as memories.
+ - Being afraid you’ll look like a coward is the worst reason for doing anything.
+ - The more clearly one sees this world; the more one is obliged to pretend it does not exist.
+ - And never forget, there is memory.
+ - The unspoken factor is love. The reason I can work so hard at my writing is that it’s not work for me.
+ - Imagining something is better than remembering something.
+ - The characters in my novels, from the very first one, are always on some quixotic effort of attempting to control something that is uncontrollable – some element of the world that is essentially random and out of control.
+ - Nearly everything seems a letdown after a writer has finished writing something.
+ - When I finally write the first sentence, I want to know everything that happens, so that I am not inventing the story as I write it – rather, I am remembering a story that has already happened.
+ - My life is a reading list.
+ - Sometimes that’s a year, sometimes it’s 18 months, where all I’m doing is taking notes. I’m reconstructing the story from the back to the front so that I know where the front is.
+ - It’s my experience that very few writers, young or old, are really seeking advice when they give out their work to be read. They want support; they want someone to say, “Good job.”
+ - I suppose I’m proudest of my novels for what’s imagined in them. I think the world of my imagination is a richer and more interesting place than my personal biography.
+ - Just because you’re sober, don’t think you’re a good driver, Cookie.
+ - Life is serious but art is fun!
+ - The only way you get Americans to notice anything is to tax them or draft them or kill them.
+ - In the world according to her father, Jenny Garp knew, we must have energy. Her famous grandmother, Jenny Fields, once thought of us as Externals, Vital Organs, Absentees, and Goners. But in the world according to Garp, we are all terminal cases.
+ - In increments both measurable and not, our childhood is stolen from us – not always in one momentous event but often in a series of small robberies, which add up to the same loss.
+ - Sell my old clothes – I’m off to heaven.
+ - We often need to lose sight of our priorities in order to see them.
+ - Nothing bears out in practice what it promises incipiently.
+ - How we love to love things for other people; how we love to have other people love things through our eyes.
+ - Half my life is an act of revision.
+ - Don’t forget this, too: Rumors aren’t interested in the unsensational story; rumors don’t care what’s true.
+ - Never confuse faith, or belief – of any kind – with something even remotely intellectual.
+ - A truly happy woman drives some men and almost every other woman absolutely crazy.
+ - The desire to never leave your side, the desire to never see you again. The desire to see your face asleep on the pillow beside my face and to see your eyes open in the morning when I lie next to you – just watching you, waiting for you to wake up.
+ - My brain is sending poison to my heart.
+ - He also knew that rivals are best unmanned by being ignored.
+ - The main character and the most important character are not always the same person – you have to know the difference.
+ - All his life he would hold this moment as exemplary of what love was. It was not wanting anything more, nor was it expecting people to exceed what they had just accomplished; it was simply feeling so complete.
+ - It happens to many teenagers-that moment when you feel full of resentment or distrust for those adults you once loved unquestioningly.
+ - People only ask questions when they’re ready to hear the answers.
+ - It’s not right to hurt or deceive someone who’s already been hurt and deceived.
+ - The arrangements that couples make in order to maintain civility in the midst of their journey to divorce are often most elaborate when the professed top priority is to protect a child.
+ - All men are liars, said Roberta Muldoon, who knew this was true because she had once been a man.
+ - As it was, things went from bad to worse, as they often will when amateurs are involved in an activity that they perform in bad temper – or in a hurry.
+ - The powerful wind swept his hair away from his face; he leaned his chest into the wind, as if he stood on the deck of a ship heading into the wind, slicing through the waves of an ocean he’d not yet seen.
+ - The former stewardess glared at her ex-pilot husband as if he had been speaking, and thinking, in the absence of sufficient oxygen.
+ - Thus we try to keep our heroes alive; hence we remember them.
+ - I am doomed to remember a boy with a wrecked voice. Not because of his voice, or because he was the smallest person I ever knew, or even because he was the instrument of my mother’s death, but because he is the reason I believe in God. I am a Christian because of Owen Meany.
+ - Sigmund Freud was a novelist with a scientific background. He just didn’t know he was a novelist. All those damn psychiatrists after him, they didn’t know he was a novelist either.
+ - They were involved in that awkward procedure of getting to unknow each other.
+ - I’m a worst-case scenario person. I’m only interested in a story because I kind of go, like a magnet, to the worst thing that can happen.
+ - The first of my father’s illusions was that bears could survive the life led by human beings; the second was that human beings could survive a life in hotels.
+ - To each other, we were as normal and nice as the smell of bread. We were just a family. In a family even exaggerations make perfect sense.
+ - A part of adolescence is feelimg that there’s no one else around who’s enough like youself to understand you.
+ - Life forces enough final decisions on us. We should have the sense to avoid as many of the unnecessary ones as we can.
+ - Watch out for people who call themselves religious; make sure you know what they mean––make sure they know what they mean!
+ - Writing is hard. I learned how to work hard from wrestling, not English courses.
+ - A novel is a piece of architecture. It’s not random wallowings or confessional diaries. It’s a building-it has to have walls and floors and the bathrooms have to work.
+ - There’s a lot of ignorance about how long it takes to write a novel. There’s a lot of ignorance about how long a novel is in your head before you start to write it.
+ - Being reviewed is being condescended to by your inferiors.
+ - Almost everyone is dying to leave home, eventually; and almost everyone needs to.
+ - I never know when I finish the novel I am writing which will be the next novel out of the station.
+ - Wrestling was my first success, the first thing that confirmed that I could be good at anything. Devoting yourself to wrestling, or tennis, or skiing, or dance, or to a musical instrument is a longing to be disciplined for a purpose.
+ - Among adults – and among orphans – Wilbur Larch noted that delirious happiness was rare.
+ - Nothing moves at the Hotel New Hampshire! We’re screwed down here-for life!
+ - There are few things as seemingly untouched by the real world as a child asleep.
+ - You can’t learn everything you need to know legally.
+ - I certainly think Obama is the most hopeful president I’ve seen in the country since John Kennedy.
+ - It doesn’t really matter who said it – it’s so obviously true. Before you can write anything, you have to notice something.
+ - The object of war is to survive it.
+ - Newspapers are even worse for me than ice cream; headlines, and the big issues that generate the headlines, are pure fat.
+ - Human beings are remarkable – at what we can learn to live with. If we couldn’t get strong from what we lose, and what we miss, and what we want and can’t have, then we couldn’t ever get strong enough, could we? What else makes us strong?
+ - The gardener had a dread of small women; he’d always imagined them to have an anger disproportionate to their size.
+ - Kids are perfect people till grownups get their hands on them.
+ - In the world according to Garp, we are all terminal cases.
+ - Maybe television causes cancer, Garp thinks; but his real irritation is a writer’s irritation: he knows that wherever the TV glows, there sits someone who isn’t reading.
+ - I have learned that the consequences of our past actions are always interesting; I have learned to view the present with a forward-looking eye.
+ - You can learn a lot from your lovers, but-for the most part-you get to keep your friends longer, and you learn more from them.
+ - You don’t want to dwell on your enemies, you know. I basically feel so superior to my critics for the simple reason that they haven’t done what I do. Most book reviewers haven’t written 11 novels. Many of them haven’t written one.
+ - Writing a novel is actually searching for victims. As I write I keep looking for casualties. The stories uncover the casualties.
+ - If you can’t love crudeness, how can you truly love mankind?
+ - Most places we leave in childhood grow less, not more, fancy.
+ - I always begin with a character or characters, and then try to think up as much action for them as possible.
+ - I believe in plot, in development of character, in the effect of the passage of time, in a good story – better than something you might find in the newspaper. And I believe a novel should be as complicated and involved as you’re capable of making it.
+ - We invent what we love and what we fear.
+ - There’s no reason you should write any novel quickly.
+ - No one could have fathomed what a life he’d led, for it was chiefly a life lived in his mind.
+ - It was one of those ridiculous arrangements that couples make when they are separating, but before they are divorced – when they still imagine that children and property can be shared with more magnanimity than recrimination.
+ - If I have any advantage, maybe, as a writer, it is that I don’t think I’m very interesting. I mean, beginning a novel with the last sentence is a pretty plodding way to spend your life.
+ - What a phrase that is: ‘that explains everything!’ I know better than to think anything ‘explains everything’ today.
+ - Ambition robs you of your childhood. The moment you want to become an adult – in any way – something in your childhood dies.
+ - If you don’t feel that you are possibly on the edge of humiliating yourself, of losing control of the whole thing, then probably what you are doing isn’t very vital.
+ - And I find – I’m 63, and my capacity to be by myself and just spend time by myself hasn’t diminished any. That’s the necessary part of being a writer, you better like being alone.
+ - You don’t want to be ungenerous toward people who give you prizes, but it is never the social or political message that interests me in a novel. I begin with an interest in a relationship, a situation, a character.
+ - When time passes, it’s the people who knew you whom you want to see; they’re the ones you can talk to. When enough time passes, what’s it matter what they did to you?
+ - When Jack Burns needed to hold his mother’s hand, his fingers could see in the dark.
+ - But I often think that so-called glamorous people are just very busy people.
+ - But who can distinguish between falling in love and imagining falling in love? Even genuinely falling in love is an act of the imagination.
+ - If we live long enough, we become caricatures of ourselves.
+ - I have pretty thick skin, and I think if you’re going to be in this business, if you’re going to be an actor or a writer, you better have a thick skin.
+ - Religious freedom should work two ways: we should be free to practice the religion of our choice, but we must also be free from having someone else’s religion practiced on us.
+ - People are either attracted to the unseemly or disapproving of it, or both; yet we try to sound superior to the unseemly by pretending to be amused by it or indifferent to it.
+ - I have always believed that, in a story, if something traumatic or calamitous enough happens to a kid at a formative age, that will make him or her the adult they become.
+ - There are always suicides among people who are unable to say what they mean.
+ - A woman half dressed seemed to have some power, but a man was simply not as handsome as when he was naked, and not as secure as when he was clothed.
+ - You can give yourself a headache trying to decipher the tattoos on a naked man who’s leaping up and down on a bed.
+ - Gender mattered a whole lot less to Shakespeare than it seems to matter to us.
+ - Adolescence-is it the first time in life we discover that we have something terrible to hide from those who love us?
+ - Life is an X-rated soap opera.
+ - Be serious. Life hurts. Reflect what hurts. I don’t mean that you can’t also be funny, or have fun, but at the end of the day, stories are about what you lose.
+ - I’m not a movie person. They’re collaborations of the worst kind. You must compromise yourself to many interests that are venal and crass and do not have your best interests at heart.
+ - More than a half, maybe as much as two-thirds of my life as a writer is rewriting. I wouldn’t say I have a talent that’s special. It strikes me that I have an unusual kind of stamina.
+ - It’s a no-win argument – that business of what we’re born with and what our environment does to us. And it’s a boring argument, because it simplifies the mysteries that attend both our birth and our growth.
+ - I write very quickly; I rewrite very slowly. It takes me nearly as long to rewrite a book as it does to get the first draft.
+ - This is a writer’s lesson: To learn that the sounds that we imagine can be the clearest, loudest sounds of all.
+ - I don’t want you to describe to me – not ever – what you were doing to that poor boy to make him sound like that; but if you ever do it again, please cover his mouth with your hand.
+ - Garp drank the beer and wondered if everything was an anticlimax...
+ - I had been a student in Vienna, and one of the neat little things I had found out was about that zoo. It was a good debut novel for me to have published. I was 26 or 27 when it was published. I already had a kid and would soon have a second.
+ - She sat keenly white and still among them, a witness to everything – maybe determining nothing, possibly judging it all.
+ - And when you love a book, commit one glorious sentence of it-perhaps your favorite sentence-to memory. That way you won’t forget the language of the story that moved you to tears.
+ - She was an expert at the art of sudden appearance.
+ - A sentence boiled in her, but she could not yet see it clearly.
+ - Human sexuality makes farcical our most serious intentions.
+ - I am compulsive about writing, I need to do it the way I need sleep and exercise and food and sex; I can go without it for a while, but then I need it.
+ - When I was still in prep school – 14, 15 – I started keeping notebooks, journals. I started writing, almost like landscape drawing or life drawing. I never kept a diary, I never wrote about my day and what happened to me, but I described things.
+ - I take people very seriously. People are all I take seriously, in fact. Therefore, I have nothing but sympathy for how people behave – and nothing but laughter to console them with.
+ - The building of the architecture of a novel – the craft of it – is something I never tire of.
+ - I have a very poor record at multiple choice questions.
+ - Our memory is a monster; you forget it – it does not.
+ - You don’t have to be in the habit of going to church to listen to such a literary minister; you don’t have to be a believer to be moved by Mr. Buechner’s faith.
+ - If watching television doesn’t hasten death, it surely manages to make death very inviting; for television so shamelessly sentimentalizes and romanticizes death that it makes the living feel they have missed something – just by staying alive.
+ - He was too young to know that, in any novel with a reasonable amount of forethought, there were no coincidences.
+ - The lie, of course, is more interesting.
+ - Being wrong about important things is exhausting.
+ - When I feel like being a director, I write a novel.
+ - He wished he could arrange a maiming as a kind of moral lesson.
+ - Just when you begin thinking of yourself as memorable, you run into someone who can’t even remember having met you.
+ - I do know where I’m going and it’s just a matter of finding the language to get there.
+ - I’m not proselytizing my method. I don’t believe that one writer should tell other writers how to write.
+ - He was one of those people things came easily to, but he did little to demonstrate that he deserved to be gifted.
+ - I think that writers are, at best, outsiders to the society they inhabit. They have a kind of detachment, or try to have.
+ - It is exhausting to be seventeen and not know who you are.
+ - This was not of the nature of a Christlike lesson for Owen Meany to learn, as he lay in the manger, that someone you hate can give you a hard-on.
+ - I don’t begin a novel or a screenplay until I know the ending. And I don’t mean only that I have to know what happens. I mean that I have to hear the actual sentences. I have to know what atmosphere the words convey.
+ - All I say is: Let us leave les folles alone; let’s just leave them be. Don’t judge them. You are not superior to them – don’t put them down.
+ - This is what self-centered religion does to us: it allows us to use it to further our own ends.
+ - What has been violated here is your freedom of choice, and every woman’s freedom of choice, too.
+ - You think you have a memory; but it has you!
+ - I’ve always preferred writing in longhand. I’ve always written first drafts in longhand.
+ - People regard art too highly, and history not enough.
+ - Whereas she wished more of the population were better educated, she also believed that education was largely wasted on the majority of the people she met.
+ - So, I don’t work in terms of real time. I don’t work in a timely fashion.
+ - I always know more about the ending, even the aftermath to the ending, than I know about the beginning. And so there’s a construction that works from back to front.
+ - There’s no reason you shouldn’t, as a writer, not be aware of the necessity to revise yourself constantly.
+ - Like many successful people he made good use of disappointments – responding to them with energy, with near-frenzied activity, rather than needing to recover from them.
+ - No adult in my family would ever tell me anything about who my father was. I knew from an older cousin – only four years older than I am – everything, or what little I could discover about him.
+ - He had in abundance youth’s most dangerous qualities: optimism and relentlessness. He would risk everything he had to fly the plane that could carry the bomb within him.
+ - Because abortions are illegal, women who need and want them have no choice in the matter, and you-because you know how to perform them-have no choice, either.
+ - We will often do anything to pretend that nothing is on our minds.
+ - My old coach used to say that if you were in it for the match, if you were in it for the trophies, you were in it for the wrong reasons.
+ - I don’t begin a novel until I have written, not just the last sentence, but usually, as a result thereof, many of the surrounding final paragraphs, so that in addition to knowing what happens, I know what the voice is.
+ - Whatever I write, no matter how gray or dark the subject matter, it’s still going to be a comic novel.
+ - I will tell you what is my overriding perception of the last twenty years: that we are a civilization careening toward a succession of anticlimaxes – toward an infinity of unsatisfying, and disagreeable endings.
+ - In a school community, someone who reads a book for some secretive purpose, other than discussing it, is strange. What was she reading for?
+
+190 quotes

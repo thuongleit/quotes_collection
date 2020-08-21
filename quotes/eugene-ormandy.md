@@ -1,0 +1,74 @@
+ - Thank you for your cooperation and vice versa.
+ - Beauty is less important than quality.
+ - Accelerando means in tempo. Don’t rush.
+ - Don’t ever follow me, because I am difficult.
+ - During the rests – pray.
+ - Write it down in your own handwriting.
+ - Who is sitting in that empty chair?
+ - Intonation is important, especially when it is cold.
+ - That’s the way Stravinsky was. Bup, bup, bup, bup. The poor guy’s dead now. Play it legato.
+ - Think of your girlfriend or boyfriend or whomever you want to.
+ - Start at B. Yes. No. Yes. No.
+ - Something went wrong. It was correct when I studied it.
+ - I don’t get into politics, general or musical, but just call me if you get jury duty. Even in New Jersey I was able to help somebody.
+ - Mahler wrote it as the third movement of his Fourth Symphony. I mean the fourth movement of his First Symphony. We play it third. The trumpet solo will be played by our solo trumpet player. It’s named ‘Blumine,’ which has something to do with flowers.
+ - Watch me closely – only one can spoil it.
+ - Please follow me because I have to follow him and he isn’t here.
+ - Serkin was so sick he almost died for three days.
+ - More basses, because you are so far away.
+ - Brass, stay down all summer.
+ - Suddenly I was in the right tempo – but it wasn’t.
+ - Im one of the boys, no better than the last second violinist. Im just the lucky one to be standing in the center, telling them how to play.
+ - I told him he’d have a heart attack a year ago, but unfortunately he lived a year longer.
+ - There was confusion since I stood here 35 years ago.
+ - Congratulations to each and every one of you for the concert last night in New York and vice versa.
+ - Let me explain what I do here. I don’t want to confuse you any more than absolutely necessary.
+ - It is not together, but the ensemble is perfect.
+ - Even when you are not playing you are holding me back.
+ - I cannot give it to you, so try to watch me.
+ - We can’t hear the balance yet because the soloist is still on the airplane.
+ - I can see none of you are smugglers; that’s why it’s so loud.
+ - It’s so legato it’s difficult to splice. Sibelius was famous for that.
+ - With us tonight is William Warfield, who is with us tonight. He is a wonderful man, and so is his wife.
+ - Someone came too sooner.
+ - It’s hot as hell as can be.
+ - I conduct faster so you can see my beat.
+ - Why do you always insist on playing while I’m trying to conduct?
+ - I always feel I do it too slow, but then others do it faster.
+ - I don’t mean to make you nervous, but unfortunately I have to.
+ - After two minutes after this time, and I am already there.
+ - Let’s start at 35 because I don’t know where it is.
+ - This is one bar you should take home.
+ - Without him here, it is impossible to know how fast he will play it, approximately.
+ - I wrote it the right way, so it was copied the wrong way right. I mean the right way wrong.
+ - It has no rhythm, but it will because it’s so much faster.
+ - I can conduct better than I count.
+ - I know this music from memory, not from the music.
+ - We have to play it longer because there are no numbers or letters.
+ - I was trying to help you, so I was beating wrong.
+ - Yes, the mutes are already on. You took them off in the beginning.
+ - It’s difficult to remember when you haven’t played it before.
+ - Tonight I’m going to listen with my ears.
+ - Why do you always start after my beat then rush to catch up? Do you want us to stay behind?
+ - The notes are right, but if I listened they would be wrong.
+ - Death is an awful thing. I don’t believe in it myself.
+ - He was listening so I don’t remember.
+ - We do not know when he is coming. He is coming tomorrow.
+ - Don’t think you are looking at me because you are not.
+ - If you don’t have it in your part, leave it out, because there is enough missing already.
+ - Muti is going to do the Alpine Symphony this year. He will do it well because it is not very well known.
+ - It is not as difficult as I thought it was, but it is harder than it is.
+ - It’s all very well to have principles, but when it comes to money you have to be flexible.
+ - Start three bars before something.
+ - The next movement is still in the factory.
+ - That was perfect. It was just the opposite from what I said yesterday.
+ - I’m conducting slowly because I don’t know the tempo.
+ - Bizet was a very young man when he composed this symphony, so play it softly.
+ - That’s the way it was every time I studied it.
+ - I never say what I mean, but I always manage to say something similar.
+ - I need one more bass less.
+ - There is a number missing. I can see it.
+ - Long note? Yes. Make it seem short.
+ - Did you play? It sounded very good.
+
+72 quotes

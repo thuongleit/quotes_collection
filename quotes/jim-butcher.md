@@ -1,0 +1,310 @@
+ - Love is patient. Love is kind. Love always forgives, trusts, supports, and endures. Love never fails. When every star in the heavens grows cold, and when silence lies once more on the face of the deep, three things will endure: faith, hope, and love.
+ - Sleep is God. Go worship.
+ - Life is a journey. Time is a river. The door is ajar.
+ - Have you ever felt despair? Absolute hopelessness? Have you ever stood in the darkness and known, deep in your heart, in your spirit, that it was never, ever going to get better? That something had been lost, forever, and that it wasn’t coming back?
+ - I don’t care about whose DNA has recombined with whose. When everything goes to hell, the people who stand by you without flinching – they are your family.
+ - You don’t have to run faster than the bear to get away. You just have to run faster than the guy next to you.
+ - Are you always a smartass?? Nope. Sometimes I’m asleep.
+ - Evil isn’t the real threat to the world. Stupid is just as destructive as Evil, maybe more so, and it’s a hell of a lot more common. What we really need is a crusade against Stupid. That might actually make a difference.
+ - Punctuality is for people with nothing better to do.
+ - HARRY DRESDEN – WIZARD Lost Items Found. Paranormal Investigations. Consulting. Advice. Reasonable Rates. No Love Potions, Endless Purses, Parties, or Other Entertainment.
+ - Son. Everyone dies alone. That’s what it is. It’s a door. It’s one person wide. When you go through it, you do it alone. But it doesn’t mean you’ve got to be alone before you go through the door. And believe me, you aren’t alone on the other side.
+ - Anger is just anger. It isn’t good. It isn’t bad. It just is. What you do with it is what matters. It’s like anything else. You can use it to build or to destroy. You just have to make the choice.
+ - There is the world that should be and the world that is. We live in one and must create the other.
+ - Smiling always seems to annoy people more than actually insulting them. Or maybe I just have an annoying smile.
+ - There aren’t any magical words, really. Words just hold the magic.
+ - If you can’t manage courtesy, try silence.
+ - Tiny, but fierce!
+ - Sometimes the only way to carry a heavy burden is to share it with another.
+ - There are things you can’t walk away from. Not if you want to live with yourself afterward.
+ - You rush a miracle worker, you get lousy miracles!
+ - There is no spoon. I am completely spoonless over here.
+ - It was never too late to learn something. The past is unalterable in any event. The future is the only thing we can change. Learning the lessons of the past is the only way to shape the present and the future.
+ - Don’t mess with a wizard when he’s wizarding!
+ - I don’t have a muse. I have a mortgage.
+ - Harry Dresden. Saving the world, one act of random destruction at a time.
+ - It isn’t good to hold on too hard to the past. You can’t spend your whole life looking back. Not even when you can’t see what lies ahead. All you can do is keep on keeping on, and try to believe that tomorrow will be what it should be – even if it isn’t what you expected.
+ - If I was on the road to Hell, at least I was going in style.
+ - Sometimes it isn’t easy to be sane, smart, and responsible. Sometimes it sucks. Sucks wang. Camel wang. But that doesn’t turn wrong into right or stupid into smart.
+ - There are old swordsmen and bold swordsmen. But few old, bold swordsmen.
+ - Fear is a part of life. It’s a warning mechanism. That’s all. It tells you when there’s danger around. Its job is to help you survive. Not cripple you into being unable to do it.
+ - My faith protects me. My Kevlar helps.
+ - Life is easier when you can write off others as monsters, demon, as horrible threats that must be hated and feared the thing is you can’t do that without becoming them, just a little.
+ - But the only way never to do the wrong thing is never to do anything.
+ - We have now left Reason and Sanity Junction. Next stop, Looneyville.
+ - The movie of my life must be really low budget.
+ - Discretion is the better part of not getting exsanguinated.
+ - Knowledge is the ultimate weapon. It always has been.
+ - Age is always advancing and I’m fairly sure it’s up to no good.
+ - Kincaid! Bolshevik Muppet!
+ - Love is another kind of power, which shouldn’t surprise you. Magic comes from emotions, among other things. And when two people are together, in that intimacy, when they really, selflessly love each other it changes them both. It lingers on in the energy of their lives, even when they are apart.
+ - I’m dealing with a lot of scary things. I think you have to react to them. And you either laugh at them or you go insane.
+ - The building was on fire, and it wasn’t my fault.
+ - Sticks and stones may break your bones, but Chinese throwing stars get you a dozen stitches.
+ - God isn’t about making good things happen to you, or bad things happen to you. He’s all about you making choices – exercising the gift of free will. God wants you to have good things and a good life, but He won’t gift wrap them for you. You have to choose the actions that lead you to that life.
+ - The impossible we do immediately. The unimaginable takes a little while.
+ - Laughter, like love, has power to survive the worst things life has to offer. And to do it with style.
+ - Whatever you do, do it for love. If you keep to that, your path will never wander so far from the light that you can never return.
+ - I have nightmares about hell, where all I do is add up numbers and try to have conversations with people like you.
+ - Even a broken clock gets it right occasionally.
+ - There should be a rule against your own inner monologue throwing around that much sarcasm.
+ - You’re a cop. I need a doughnut.
+ - Paranoid? Probably. But just because you’re paranoid doesn’t mean there isn’t an invisible demon about to eat your face.
+ - Where instinct fails, intellect must venture.
+ - If your opponent has you by fifty pounds, winning a fight against him is a dubious proposition, at best. If your opponent has you by eight thousand and fifty pounds, you’ve left the realm of combat and enrolled yourself in Road-kill 101. Or possibly in a Tom and Jerry cartoon.
+ - Pain is to be endured. It ends or it does not.
+ - Like “love,” “hope” is one of those ridiculously disproportional words that by all rights should be a lot longer.
+ - Not that I was worried about anyone stealing my car. I once had a car thief offer to get me something better for a sweetheart rate.
+ - I do not need the written code of a spiritual belief to act like a decent human being.
+ - I had a vague memory of being that ridiculous at one time. Let he who hath never worn parachute pants cast the first stone.
+ - Polka will never die.
+ - Pain is a byproduct of life. That’s the truth. Life sometimes sucks. That’s true for everyone. But if you don’t face the pain and the suck, you don’t ever get the other things either. Laughter. Joy. Love. Pain passes, but those things are worth fighting for. Worth dying for.
+ - Growing up is all about getting hurt. And then getting over it. You hurt. You recover. You move on. Odds are pretty good you’re just going to get hurt again. But each time, you learn something.
+ - Nobody can be bad at everything. There’s no such thing as a perfect screwup.
+ - Whenever you’ve got a choice, do good, kiddo. It isn’t always fun or easy, but in the long run it makes your life better.
+ - We all must die. There is no better way to do so than in the pursuit of something you love.
+ - My hair had grown out long and shaggy – not in that sexy-young-rock-star kind of way but in that time-to-take-Rover-to-the-groomer kind of way.
+ - Some things just aren’t meant to go together. Things like oil and water. Orange juice and toothpaste.
+ - Hope is a force of nature. Don’t let anyone tell you different.
+ - As a whole, people suck. But a person can be extraordinary.
+ - Fear is bred from ignorance. So knowledge is a weapon against it, and reason is the tool of knowledge.
+ - Hell’s bells. I don’t call him the Fist of God as a pet name, folks.
+ - I will make Maggie safe. If the world burns because of that then so be it. Me and the kid will roast some marshmallows.
+ - There are bad things in the world. There’s no getting away from that. But that doesn’t mean nothing can be done about them. You can’t abandon life just because it’s scary, and just because sometimes you get hurt.
+ - A little humiliation and ego deflation, now and then, is good for apprentices. Mine sighed miserably.
+ - There is a primal reassurance in being touched, in knowing that someone else, someone close to you, wants to be touching you. There is a bone-deep security that goes with the brush of a human hand, a silent, reflex-level affirmation that someone is near, that someone cares.
+ - There’s more magic in a baby’s first giggle than in any firestorm a wizard can conjure up, and don’t let anyone tell you any different.
+ - For me chivalry isn’t dead; it’s an involuntary reflex.
+ - No one is an unjust villain in his own mind. Even – perhaps even especially those who are the worst of us. Some of the cruelest tyrants in history were motivated by noble ideals, or made choices they would call “hard but necessary” for the good of their nation. We’re all the hero of our own story.
+ - I once lost five years listening to a Pink Floyd album.
+ - Sullen monosyllabism, a sure sign of sleep deprivation.
+ - Body or mind, heart or soul, we’re all human, and we’re supposed to feel pain. You cut yourself off from it at your own risk.
+ - Many things are not as they seem: The worst things in life never are.
+ - I ask people impertinent questions. Hopefully turning up pertinent answers.
+ - What is the point of having free will if one cannot occasionally spit in the eye of destiny?
+ - The human mind is not a terribly logical or consistent place.
+ - Better safe than exsanguinated.
+ - God save me from idealists.
+ - Survival was not enough. One had to live.
+ - The last time I was at a supernatural shindig, I got poisoned and then everything there tried to kill me. So I burned the whole place to the ground.
+ - Sometimes I think that’s where most of us are. Fighting off the crazy as best we can. Trying to become something better than we were. It’s that second bit that’s important.
+ - Bring it, Darth Bathrobe!
+ - Heroism doesn’t pay very well. I try to be cold-blooded and money-oriented, but I keep screwing it up.
+ - I’ve always admired your ability to be unilaterally irritating.
+ - Doroga thumped a finger against his skull. Head got nothing to do with the heart. Your heart wants what it wants. Head got to learn that it can only kill the heart or else get out of the way.
+ - The best thing about my faerie godmother is that the creepy just keeps on coming.
+ - Murphy hung up and I said, to the still-open line, “Hey, if you’ve got someone watching my place, could you call the cops if anyone tries to steal my Star Wars poster? It’s an original.” Then I vindictively hung up on the FBI. It made my inner child happy.
+ - When I started, I was pretty sure I was going to be writing some goofy little wizard novels that might make me some part-time money and would hopefully lead to something I could do better.
+ - Somewhere out there was a village I’d deprived of it’s idiot.
+ - Yeah, but I forgot to take my George Orwell-shaped multivitamins along with my breakfast bowl of Big Brother Os this morning.
+ - Just because you start out as one thing, it doesn’t mean you can’t grow into something else.
+ - Honest. It’s almost always best to go with honest. It means you never have to worry about getting your story straight.
+ - The mad rarely know that they are mad. It’s the rest of the world, I think, that seems insane to them.
+ - It came charging toward me, several hundred pounds of angry-looking monster, and I did the only thing any reasonable wizard could have done. I turned around and ran like hell.
+ - Man. Being mostly dead is hard on a guy.
+ - In my judgment, my buildings are less likely to burn to the ground during one of your visits if you are disoriented from being treated like a sultan.
+ - No story that juicy was going to stay secret for long.
+ - There’s a fine line between audacity and idiocy.
+ - Children are a precious gift, but they belong to no one but themselves. They are only lent us a little while.
+ - Even in winter, the cold isn’t always bitter, and not every day is cruel.
+ - How long have you been a Wiccan?? ‘A what?’ ‘A pagan. A witch.’ ‘I’m not a witch,’ I said, glancing out the door. ‘I’m a wizard.’ Sanya frowned. ‘What is the difference?’ ‘Wizard has a Z’ He looked at me blankly. ‘No one appreciates me.’ I muttered.
+ - Living was a dangerous past-time, and often quite painful – but there was also such joy in living, such beauty, things that one would otherwise never see, never experience, never know. The risk of pain and loss was a part of living.
+ - Everything was perfectly healthy and normal here in Denial Land.
+ - Laugh whenever you can. Keeps you from killing yourself when things are bad. That and vodka.
+ - He’s Gandalf on crack and an IV of Red Bull, with a big leather coat and a .44 revolver in his pocket.
+ - Men plan. Fate Laughs. Guis Alera, First Lord.
+ - Kids. You gotta love them. I adore children. A little salt, a squeeze of lemon – perfect.
+ - There’re things we keep hidden from one another. Things we hide from ourselves. Things that are kept hidden from us. And things no one knows. You always learn the damnedest things at the worst possible times.
+ - This is ridiculous. I look like the Games Workshop version of a Jedi Knight.
+ - When I’m in turmoil, when I can’t think, when I’m exhausted and afraid and feeling very, very alone, I go for walks. It’s just one of those things I do. I walk and I walk and sooner or later something comes to me, something to make me feel less like jumping off a building.
+ - Sheep can befriend a hungry wolf only for briefly.
+ - Of course Evil’s afoot. If it had switched to the metric system it’d be up to a meter by now.
+ - People love dogs. You can never go wrong adding a dog to the story.
+ - Love is another kind of power, which shouldn’t surprise you. Magic comes from emotions, among other things.
+ - In the name of the Pizza Lord. Charge!
+ - Fire isn’t always an element of destruction. Classical alchemical doctrine teaches that it also has dominion over another province: change.
+ - You can’t plan for everything or you never get started in the first place.
+ - My head was throbbing, and my hands were shaking, but I went down the ladder to my workroom – and started figuring out how to rip someone’s heart out of his chest from fifty miles away. Who says I never do anything fun on a Friday night?
+ - Thank God for imminent doomsday.
+ - I think that men ought to treat women like something other than weaker men with breasts.
+ - I may have had good reasons. I may have had the best of intentions. But intentions aren’t enough, no matter how good they are. Intentions can lead you to a place where you’re able to make a choice. It’s the choice that counts.
+ - When I finally got tired of arguing with her and decided to write a novel as if I was some kind of formulaic, genre writing drone, just to prove to her how awful it would be, I wrote the first book of the Dresden Files.
+ - Lies. Mab cannot change who you are.
+ - Worry is fear in disguise. And fear will eat you from the inside out if you let it.
+ - My magic. That was at the heart of me. It was a manifestation of what I believed, what I lived. It came from my desire to see to it that someone stood between the darkness and the people it would devour.
+ - Most of the bad guys in the real world don’t know that they are bad guys. You don’t get a flashing warning sign that you’re about to damn yourself. It sneaks up on you when you aren’t looking.
+ - Caring about someone isn’t complicated. It isn’t easy. But it isn’t complicated, either. Kinda like lifting the engine block out of a car.
+ - Ha-ha! Ah-hahahaha! I am wizard; hear me roar!
+ - You suck. You suck diseased moose wang, Marcone.
+ - I’ve been a young man. Boobs are near the center of the universe, until you turn twenty-five or so. Which is also when young men’s auto insurance rates go down. This is not a coincidence.
+ - Your face looks like a sack of purple potatoes.
+ - Life would be unbearably dull if we had answers to all our questions.
+ - Wizards and computers get along about as well as flamethrowers and libraries.
+ - One can have only as much preparation as he has foresight.
+ - So there I was being strangled by a ranting, half-naked madman in the middle of the woods, with a she-werewolf dangling from a rope snare somewhere nearby.
+ - We’re always disappointed when we find out someone else has human limits, the same as we do. It’s stupid for us to feel that way, and we really ought to know better, but that doesn’t seem to slow us down.
+ - If you can’t stop the bad thoughts from coming to visit, at least you can make fun of them while they’re hanging around.
+ - It was one of those moments that would have had dramatic music if my life were a movie, but instead I got a radio jingle for some kind of submarine sandwich place blaring over the store’s ambient stereo. The movie of my life must be really low-budget.
+ - There’s power in the night. There’s terror in the darkness. Despite all our accumulated history, learning, and experience, we remember. We remember times when we were too small to reach the light switch on the wall, and when darkness itself was enough to make us cry out in fear...
+ - Magic comes from what is inside you. It is a part of you. You can’t weave together a spell that you don’t beleive in.
+ - Paranoia is a survival trait when you run in my circles. It gives you something to do in your spare time, coming up with solutions to ridiculous problems that aren’t ever going to happen. Except when one of them does, at which point you feel way too vindicated. – Harry Dresden, Changes, Jim Butcher.
+ - I put on the boots and kicked some monster ass.
+ - All of those faeries and duels and mad queens and so on, and no one quoted old Billy Shakespeare. Not even once.
+ - I had to smile at the man. I mean, you have to smile at idiots and children.
+ - Put some clothes on, you weird, yellow-eyed, table-dancing, werewolf-training, cryptic, stare-me-right-in-the-eyes-and-don’t-even-blink wench.
+ - The human mind isn’t a terribly logical or consistent place. Most people, given the choice to face a hideous or terrifying truth or to conveniently avoid it, choose the convenience and peace of normality. That doesn’t make them strong or weak people, or good or bad people. It just makes them people.
+ - You don’t take your cat with you to go bird shopping. Not because the cat isn’t polite, but because he’s a cat.
+ - You never get a straight answer from captains. You should know that by now.
+ - Hell’s bells, irony blows.
+ - All right, you primitive screwheads. Listen up. I’m Harry Dresden. I’m the new Winter Knight.
+ - Keep it up, wise guy. I’m always going to be taller than you once you’re lying unconscious on the ground.
+ - The only good thing about having your back to the wall is that it makes it really easy to choose which way you’re going to go.
+ - I’m trying to be diplomatic. The wisdom of my ass is well-known. If I didn’t lip off to them, after shooting my mouth off to faerie queens and Vampire Courts – plural, Courts – demigods and demon lords, they might get their feelings hurt.
+ - Ease off the martyr throttle.
+ - The vampire’s true appearance was grotesque – but it wasn’t as bad as some of the things I had seen in my day. Some demons were a lot worse, and some of the Elder Things could rip your mind apart just by letting you look at them.
+ - We’re all so damned fragile.
+ - Thomas has the kind of whiter-than-white boyish grin that makes women’s panties spontaneously evaporate.
+ - Jobs are a part of life. Maybe you’ve heard of the concept. It’s called work? See, what happens is that you suffer through doing annoying and humiliating things until you get paid not enough money. Like those Japanese game shows, only without all the glory.
+ - I like to stay cozy with my paranoia, not pass her around to my friends and family.
+ - Vanity, thy name is vampire.
+ - I’ve never lost a duel to the death. Not one.
+ - I felt my face stretch in a victorious smile. The potion had worked. I was inside. I had to suppress an urge to break into a soft shoe routine. Sometimes being able to use magic was so cool.
+ - Here’s where I ask why don’t you spend your time doing something safer and more boring. Like maybe administering suppositories to rabid gorillas.
+ - I just stood there staring, because while I’ve seen a lot of weird things, I hadn’t ever seen that.
+ - Sometimes I hate having a conscience, and a stupidly thorough sense of honor.
+ - Because a sound tree doesn’t have bad roots, Amara. No enterprise of greatness begins with treachery, with lying to the people who trust and love you.
+ - My gast was pretty well flabbered.
+ - Laughter is good for you. Nine out of ten stand-up comedians recommend laughter in the face of intense stupidity.
+ - A pure heart and mind only takes you so far – sooner or later the hormones have their say, too.
+ - Being a wizard gives you more power than most, but it doesn’t change your heart. We’re all human. We’re all of us equally naked before the jaws of pain.
+ - Though I walk through the valley of the shadow of trauma, I will fear no concussion.
+ - You’re dead, son. Cheer is contraindicated.
+ - I sometimes give myself excellent advice. Occasionally, I even listen to it.
+ - If you go to your death rather than do everything you might to prevent what is happening, you are merely committing suicide and trying to make yourself feel better about it. That is the act of a coward. It is beneath contempt.
+ - The married thing. Sometimes I look at it and feel like someone from a Dickens novel, standing outside in the cold and staring in at Christmas dinner. Relationships hadn’t ever really worked for me. I think it’s had something to do with all the demons, ghosts, and human sacrifice.
+ - Yeah, they look great, but that isn’t a fantasy come true, Harry. That’s a wood chipper in Playboy bunny clothing.
+ - Ignorance is more than bliss, it’s freaking orgasmic ecstacy!
+ - I died. I died and someone made a clerical error and I am in Heaven.
+ - Likest thou jelly within thy doughnut?
+ - I brought the Beetle to life with a roar. Well. Not really a roar. A Volkswagen Bug doesn’t roar. But it sort of growled...
+ - If I lived through the next day or so, I needed to start keeping track of where these jokers liked to get their bloodthirsty freak on. It might give me an edge someday. Or at least a list of places that could use a nice burning down. I hadn’t burned down a building in ages.
+ - Hers was a beauty so pure that it was nearly painful to behold – Athena heading out on a Friday night.
+ - He had hard, steady eyes, and all the comforting, reassuring charm of a dental drill. – Harry Dresden describing Morgan.
+ - I mean, we’re all going to die. We know that on an intellectual level. We figure it out when we’re still fairly young, and it scares us so badly that we convince ourselves we’re immortal for more than a decade afterwards.
+ - There is, I think, humor here which does not translate well from English into sanity.
+ - I checked my gear, my pockets, my shoelaces, and realized that I had crossed the line between making sure I was ready and trying to postpone the inevitable.
+ - At the moment I was mad enough to chew up nails and spit out paper clips.
+ - It rained toads the day the White Council came to town.
+ - There is hinkiness afoot with regard to my, ah, disposition.
+ - We’re ostriches and the whole world is sand.
+ - So. You get handed a holy sword by an archangel, told to go fight the forces of evil, and you somehow remain an atheist. Is that what you’re saying?
+ - In the action business, when you don’t want to say you ran like a mouse, you call it ‘taking cover.’ It’s more heroic.
+ - Don’t call me a dinosaur. It isn’t fair to the dinosaurs. What did a dinosaur ever do to you?
+ - Now I feel like James Bond. Suave and intelligent, breaking all the codes while looking fabulous.
+ - He gave me an inscrutable look that said maybe he would and maybe he wouldn’t. Mister was a cat, and cats generally considered it the obligation of the universe to provide shelter, sustenance, and amusement as required. I think Mister considered it beneath his dignity to plan for the future.
+ - Chili dogs, funnel cakes, fried bread, majorly greasy pizza, candy apples, ye gods. Evil food smells amazing – which is either proof that there is a Satan or some equivalent out there, or that the Almighty doesn’t actually want everyone to eat organic tofu all the time. I can’t decide.
+ - And I knew that there was some dark corner of me that would enjoy using magic for killing – and then long for more. That was black magic, and it was easy to use. Easy and fun. Like Legos.
+ - Molly was committing dinner by that time, aided and abetted by Sanya, who seemed to take some kind of grim Russian delight in watching train wrecks in progress.
+ - You killed my dog! Get your affairs in order.
+ - Pretty please. With sugar.
+ - But I don’t understand God. I don’t understand how he could see the way people treat one another, and not chalk up the whole human race as a bad idea.
+ - It’s all right to be afraid. You just don’t let it stop you from doing your job.
+ - My friend is going to save a little girl from monsters. I am going with him. That’s what friends do.
+ - You don’t explain to the janitorial staff how your company is a part of a sinister organization with goals of global infiltration and control. You just tell them to clean the floor.
+ - You know how confusing the whole good-evil concept is for me.
+ - See? This is why I’m not religious. I couldn’t possibly keep my mouth shut long enough to get along with everyone else.
+ - I’ve had a tense couple of days. And I’ve got to tell you, burning someone’s face off sounds like a great way to relax.
+ - Whenever it gets too dark, think of the good things you have, the good times you’ve had. It will help. I promise.
+ - It always shocked me how you could understand so many things and be such a complete idiot about so many others.
+ - It would require a singularly stupid man to go hang around in narrow tunnels and cramped spaces alongside a threat like that. “And I, Harry Dresden, am that man,” I stated.
+ - Thomas was an annoying wiseass who tended to make everyone he met want to kill him, and when I have that much in common with someone, I can’t help but like him a little.
+ - Me and polite have never been on close terms.
+ - Fading light means more than just the end of another day. Night is when terrible things emerge from their sleep and seek soft flesh and hot blood.
+ - Hospital waits are bad ones. The fact that they happen to pretty much all of us, sooner or later, doesn’t make them any less hideous.
+ - My brief flash of relief and confidence melted away. Good thing it did, too. I’m sure the world would come to an end if I were allowed to feel a sense of relief and well-being for any length of time.
+ - Discussing a problem with yourself is almost never a good way to secure a divergent viewpoint.
+ - I could buy that she would murder me in a fit of rage, poison me out of flaming jealousy, or bomb my car out of sheer, stubborn pique. But she would never do it and feel nothing.
+ - There’s always, always a choice. My options might really, truly suck, but that doesn’t mean there isn’t a choice.
+ - You don’t go walking into the proverbial lion’s den lightly. You start with a good breakfast.
+ - Life is precious, fragile, fleeting – and Murphy’s life was one of my favorites.
+ - Rule number one of the wizarding business. Never let them see you sweat. People expect us to know things. It can be a big advantage. Don’t screw it up by looking like you’re as confused as everyone else. Bad for the image.
+ - The One created us all to be free. To learn. To find common cause with others and to grow stronger and wiser. But the ancient enemy perverts that union of strengths. With the enemy, there is no choice, no freedom. They take. They force a joining of all things, until nothing else remains. – Doroga.
+ - Being here? With you? I’ve met my subconscious, and he’s not that sick.
+ - Dammit, Dresden, if you want to know about me, wait for the autobiography like everyone else.
+ - The next time you interfere with me, more than smoke will interfere with you.
+ - Magic. It can get a guy killed.
+ - It doesn’t make you a monster to want, she said, her voice very gentle. It’s what you do with it that matters.
+ - Just like credit card companies, or those student loan people. Now there’s evil for you.
+ - People have far more power than they realize, if they would only choose to use it.
+ - Could a man’s heart, his soul, perish and yet leave him walking and talking as if alive?
+ - Time after time, history demonstrates that when people don’t want to believe something, they have enormous skills of ignoring it altogether.
+ - The wacky thing about those bad guys is that you can’t count on them to be obvious. They forget to wax their mustaches and goatees, leave their horns at home, send their black hats to the dry cleaner’s. They’re funny like that.
+ - I would hit you on the head with a rock and drag you away from this. But it would only shatter the rock.
+ - Not gonna bind ya or break ya, old spirit. Just gonna kick your ass up between your ears.
+ - Bigots see something they expect and then they stop thinking about what is in front of them. It’s probably how they got to be bigots in the first place.
+ - Here had lived someone else who knew that the only thing waiting at home was a sense of loneliness. Sometimes it is comforting. Most often, it isn’t.
+ - Bite me, faerie fruitcake.
+ - Every soul is special. They’re all beautiful. They’re all far more significant than anyone on this rock realizes. I think when people are at their best, they’re acting in accordance with their soul. The ones who have gone bad don’t have bad souls. They’ve just given up on keeping in touch with them.
+ - Death is only frightening from the near side.
+ - I slammed the doors open a little harder than I needed to, stalked out to the Blue Beetle, and drove away with all the raging power the ancient four-cylinder engine should muster. Behold the angry wizard puttputt-putting away.
+ - Night wasn’t so much falling as sharpening its claws.
+ - Santa is a much bigger and more powerful faery than Toot, and I don’t know his true name anyway. You’d never see me trying to nab Saint Nick in a magic circle even if I did. I don’t think anyone has stones that big.
+ - We’ve both got into the blue beetle. He got into the red door, I got into the white one.
+ - She studied my face for a long minute. “Are you going to help my mom?” It was a simple question. But how do you tell a child that things just aren’t that simple, that some questions don’t have simple answers – or any answer at all?
+ - Alone. It’s one of those small words that means entirely too much. Like fear. Or trust.
+ - I like to think of it less as embezzling and more as an involuntary goodwill contribution.
+ - I was seducing shepherdesses when you weren’t a twinkle in your great-grandcestor’s eyes. I think I know what I’m doing.
+ - I’m sure that you psychotic necro-wannabes with delusions of godhood are all about sharing with your fellow maniacs.
+ - I’m amazing and studly, but I have limits.
+ - This is what it look like when it WORKS?
+ - He wasn’t evil as much as magnificently innocent of any kind of morality.
+ - Life is too short, Harry. And there’s nowhere near enough joy in it. If you find it, grab it. Before it’s gone.
+ - When you die, do you want to feel ashamed of what you’ve done with your life? Feel ashamed of what your life meant?
+ - Many women have earned titles, Your Grace. It doesn’t seem to have been a factor in whether or not they actually received them.
+ - I parked in front of the Field Museum under a NO PARKING sign. There were a couple of actual spots I could have used, but the drive was even closer. Besides, I found it aesthetically satisfying to defy municipal code.
+ - I guess maybe you don’t get to be the Merlin of the White Council by saving up frequent-flier miles.
+ - Faith is about what you do. It’s about aspiring to be better and nobler and kinder than you are. It’s about making sacrifices for the good of others – even when there’s not going to be anyone telling you what a hero you are.
+ - I’m pretty sure lurking in a dark alley to mug me with your apology isn’t the usual way to go about saying you’re sorry. But I didn’t read that Mars-Venus book, so who knows.
+ - Seedy wasn’t a fair description for the place, because seeds imply eventual regrowth and renewal.
+ - Over the course of many encounters and many years, I have successfully developed a standard operating procedure for dealing with big, nasty monsters. Run away.
+ - You predicted quick victory. Now it’s going to get hopelessly complicated. Jesus, don’t you know any better than that by now?
+ - I felt like I had just double-tapped Santa.
+ - Mister Dresden is a diplomatically challenged individual. He should be in a shelter for the tactless.
+ - Everybody should get to make a living with their passion.
+ - I let out a battle cry. Sure, a lot of people might have mistaken it for a sudden yelp of unmanly fear, but trust me. It was a battle cry.
+ - It’s not my fault all women like motorcycles, Murph. They’re basically huge vibrators. With wheels.
+ - I’ve always felt that the best whips and chains are in the mind. With a little creativity, the physical ones are hardly necessary.
+ - When a young writer comes up to me with an ambitious idea for a 20-book series, I usually tell him to maybe try something smaller to start off with.
+ - Do you have a little white dress? I’ve had this deep-seated nurse fantasy about you, Murphy.
+ - All power is the same. Magic. Physical strength. Economic strength. Political strength. It all serves a single purpose-it gives its possessor a broader spectrum of choices. It creates alternative courses of action.
+ - My main source for faith-based stuff is mostly the Bible, and a childhood with a much, much higher-than-median exposure to theological thought.
+ - The distinction between good and evil is meaningless if one does not have the freedom to choose between them.
+ - I got the sneaking suspicion that the vampire was a couple of Peeps short of an Easter basket.
+ - Chocolate fends off all kinds of nasty stuff. And if you get hungry while warding off evil, you have a snack. It’s multipurpose equipment.
+ - The cold rain came down in buckets. I was shaking, shivering, and naked, and more soap was getting into my eyes. But hey. At least I was clean.
+ - Molly, you are a good person. Don’t let anyone take that away from you. Not even yourself.
+ - I don’t believe in faeries!
+ - There is no truer gauge of a man’s character than the way in which he employs his strength, his power.
+ - Let’s sum up: an unknown number of enemies with unknown capabilities, supported by a gang of madmen, packs of attack animals, and superhumanly intelligent pocket change.
+ - A technicality I’m prepared to hide wildly behind.
+ - No rest for the wicked, Bob, and that means that we can’t slack off either, or they’ll outwork us.
+ - I like dogs. They give Mister something to snack on.
+ - You can’t abandon life just because it’s scary, and just because you get hurt.
+ - I’d been in hairier situations than this one. Actually, it’s sort of depressing, thinking how many times I’d been in them. But if experience had taught me anything, it was this: No matter how screwed up things are, they can get a whole lot worse.
+ - I put it down to the paranoia of advancing age. It isn’t like I’m all that old or anything, especially for a wizard, but age is always advancing and I’m fairly sure it’s up to no good.
+ - I love being a wizard. Every day is like Disneyland.
+ - Because nothing says flattery like a gun to the head.
+ - I don’t know about your true form, but the weight of your ego sure is pushing the crust of the earth toward the breaking point.
+ - People always equate beauty with good, but it just ain’t so.
+ - I’m so pretty, it’s hard for me to think of myself as intelligent.
+ - Oh, I forgot to mention it: My brother is the kind of man whom women stalk. In cooperative packs.
+ - Maybe the Merlin was right. Maybe its better to look stupid but strong, than it is to look smart but weak, I don’t know. I’m not sure I want to believe that the world stage bears that strong a resemblance to high school.
+ - Murphy had found a spot on the street, which made me wonder if she didn’t have some kind of magical talent after all. Only some kind of precognitive ESP could have gotten us a parking space on the street, in the shadow of a building, with both of us in sight of the apartment building’s entrance.
+ - The past was gone. Nothing could change what had already been. Looking back at it, letting its wounds fester, indulging in regret was just a different, slower way to die. The living moved forward.
+ - We’re all of us equally naked before the jaws of pain.
+ - I put the ick in magic.
+ - I am blind and limited. I would be a fool think myself wise. And so, not knowing what the universe means, I can only try to be responsible with the knowledge, the strength, and the time given to me. I must be true to my heart.
+ - Honey, I liked the Harry Potter movies, too, but that doesn’t mean I ran out and got a Dark Mark tattooed onto my left forearm like you did.
+ - I didn’t know this before, but as it turns out, Tyrannosaurs can really haul ass.
+
+308 quotes

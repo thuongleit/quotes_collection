@@ -1,0 +1,24 @@
+ - I hate being alone, even for 10 minutes.
+ - I believe that horses bring out the best in us. They judge us not by how we look, what we’re wearing or how powerful or rich we are, they judge us in terms of sensitivity, consistency, and patience. They demand standards of behavior and levels of kindness that we, as humans, then strive to maintain.
+ - I find people interesting. People trying hard are interesting. People with a passion are interesting – whether its old cars or taxidermy or knitting.
+ - Women’s sport helps break down a lot of barriers for women in other areas, whether in religion or politics.
+ - I play golf – even though I’m awful at it.
+ - I didn’t just grow up with horses; I wanted to be one.
+ - The most important quality in a partner is a sense of humour.
+ - I am many things, but one of the things I am is a lesbian.
+ - Being made to feel like an irrelevant child was probably an asset. Benign negligence is not a bad parental attitude or at least a cross between a benevolent dictator and benign negligence – you should just let kids crack on with it.
+ - I’ve never been particularly maternal.
+ - Fitting in is boring. But it takes you nearly your whole life to work that out.
+ - If you are fearful, a horse will back off. If you are calm and confident, it will come forward. For those who are often flattered or feared, the horse can be a welcome mirror of the best in human nature.
+ - I don’t make decisions for money or popularity. I do things because they’re right for me, and they’re interesting and challenging.
+ - I want to make the world a better place, for women, mainly.
+ - Dad is a really surprising guy. Every time I think he’s going to be useless, he ends up doing something amazing and saying exactly the right thing.
+ - I’ve always been fascinated by intelligence and how our brains work, and how they can be improved.
+ - I think all kids should have something they feels is theirs.
+ - A lot of interviewers are looking for the dark side. They want to know about the depths of your despair and fear.
+ - I felt like a misfit at school, and I think that’s quite common.
+ - I really love good food occasionally, but I need time to enjoy it, and I need to be hungry.
+ - Swimming and athletics are the big gigs at the Olympic games. Cycling and rowing are pretty big for Britain, but globally, the two big things are athletics and swimming.
+ - I think ‘ambitious’ is one of those adjectives used for women in a derogatory way.
+
+22 quotes

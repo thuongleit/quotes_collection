@@ -1,0 +1,63 @@
+ - The meaning of your communication is the response you get.
+ - The major problems in the world are the result of the difference between how nature works and the way people think.
+ - Without context words and actions have no meaning at all.
+ - The creature that wins against its environment destroys itself.
+ - Wisdom is the intelligence of the system as a whole.
+ - It takes two to know one.
+ - Information is a difference that makes a difference.
+ - After mastery comes artistry and not before.
+ - The rules of the universe that we think we know are buried deep in our processes of perception.
+ - No organism can afford to be conscious of matters with which it could deal at unconscious levels.
+ - A man walking is never in balance, but always correcting for imbalance.
+ - What is the pattern that connects the crab to the lobster and the primrose to the orchid, and all of them to me, and me to you?
+ - Science, like art, religion, commerce, warfare, and even sleep, is based on presuppositions.
+ - Science probes; it does not prove.
+ - Surrender to alcohol intoxication provides a partial and subjective shortcut to a more correct state of mind.
+ - In the nature of the case, an explorer can never know what he is exploring until it has been explored.
+ - We are discovering today that several of the premises which are deeply ingrained in our way of life are simply untrue and become pathogenic when implemented with modern technology.
+ - Perhaps the attempt to achieve grace by identification with the animals was the most sensitive thing which was tried in the whole bloody history of religion .
+ - There are times when I catch myself believing that there is such a thing as something; which is separate from something else.
+ - Logic can often be reversed, but the effect does not precede the cause.
+ - We can never be quite clear whether we are referring to the world as it is or to the world as we see it.
+ - But epistemology is always and inevitably personal. The point of the probe is always in the heart of the explorer: What is my answer to the question of the nature of knowing?
+ - Life and ‘Mind’ are systemic processes.
+ - Logic is a poor model of cause and effect.
+ - The wise legislator will only rarely initiate a new rule of behaviour; more usually he will confine himself to affirming in law what has already become the custom of the people.
+ - People are going to have to make themselves predictable, or the machines will get angry and kill them.
+ - Multiple descriptions are better than one.
+ - Evolution has long been badly taught. In particular, students – and even professional biologists – acquire theories of evolution without any deep understanding of what problem these theories attempt to solve. They learn but little of the evolution of evolutionary theory.
+ - Interesting phenomena occur when two or more rhythmic patterns are combined, and these phenomena illustrate very aptly the enrichment of information that occurs when one description is combined with another.
+ - I shall argue that the problem of grace is fundamentally a problem of integration and what is to be integrated is the diverse parts of the mind – especially those multiple levels of which one extreme is called ‘consciousness’ and the other the ‘unconscious’
+ - Yes, metaphor. That’s how the whole fabric of mental interconnections holds together. Metaphor is right at the bottom of being alive.
+ - Most of us have lost that sense of unity of biosphere and humanity which would bind and reassure us all with an affirmation of beauty. Most of us do not today believe that whatever the ups and down of detail within our limited experience, the larger whole is primarily beautiful.
+ - Still more astonishing is that world of rigorous fantasy we call mathematics.
+ - Play is the establishment and exploration of relationship.
+ - It is to the Riddle of the Sphinx that I have devoted fifty years of professional life as an anthropologist.
+ - There are no monotone “values” in biology.
+ - If a man achieves or suffers change in premises which are deeply embedded in his mind, he will surely find that the results of that change will ramify throughout his whole universe.
+ - Creative thought must always contain a random component.
+ - Synaptic summation is the technical term used in neurophysiology for those instances in which some neuron C is fired only by a combination of neurons A and B.
+ - Prediction can never be absolutely valid and therefore science can never prove some generalization or even test a single descriptive statement and in that way arrive at final truth.
+ - Every move we make in fear of the next war in fact hastens it.
+ - Language commonly stresses only one side of any interaction.
+ - There is a strong tendency in explanatory prose to invoke quantities of tension, energy, and whatnot to explain the genesis of pattern. I believe that all such explanations are inappropriate or wrong.
+ - The world is indeed only a small tide pool; disturb one part and the rest is threatened.
+ - Those who lack all idea that it is possible to be wrong can learn nothing except know-how.
+ - Members of weakly religious families get, of course, no religious training from any source outside the family.
+ - It is of first-class importance that our answer to the Riddle of the Sphinx should be in step with how we conduct our civilisation, and this should in turn be in step with the actual workings of living systems.
+ - The only way out is spiritual, intellectual, and emotional revolution in which, finally, we learn to experience first hand the interloping connections between person and person, organism and organism, action and consequence.
+ - Official education was telling people almost nothing of the nature of all those things on the seashores, and in the redwood forests, in the deserts and in the plains.
+ - A major difficulty is that the answer to the Riddle of the Sphinx is partly a product of the answers that we already have given to the riddle in its various forms.
+ - There are many matters and many circumstances in which consciousness is undesirable and silence is golden, so that secrecy can be used as a marker to tell us that we are approaching the holy.
+ - It is impossible, in principle, to explain any pattern by invoking a single quantity.
+ - It is, I claim, nonsense to say that it does not matter which individual man acted as the nucleus for the change. It is precisely this that makes history unpredictable into the future.
+ - Things have to be done fast in America, and therefore therapy has to be brief.
+ - We do not know enough about how the present will lead into the future.
+ - Number is different from quantity.
+ - Whatever the ups and downs of detail within our limited experience, the larger whole is primarily beautiful.
+ - Some tools of thought are so blunt that they are almost useless; others are so sharp that they are dangerous. But the wise man will have the use of both kinds.
+ - We are most of us governed by epistemologies that we know to be wrong.
+ - In no system which shows mental characteristics can any part have unilateral control over the whole. In other words, the mental characteristics of the system are imminent, not in some part, but in the system as a whole.
+ - Let’s not pretend that mental phenomena can be mapped on to the characteristics of billiard balls.
+
+61 quotes

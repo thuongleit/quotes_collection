@@ -1,0 +1,61 @@
+ - I’m not sure I can think of any scenario more enjoyable than making 55,000 people from New York shut up.
+ - The bigger the game the better. I’m an adrenaline junkie. I feed off big crowds and noise.
+ - I am much more of a geek than I am an athlete.
+ - I don’t hide my feelings, but when it comes to illness, I guess I don’t panic. My father was the same way. I’m the provider for the family and the caretaker. If I panic, who is anybody going to run to?
+ - My father left me with a saying that I’ve carried my entire life and tried to pass on to our kids: ‘Tough times don’t last, tough people do,’
+ - I’ve made mistakes, I’ve misspoke, I am sure I will again sometime, but that happens, that’s part of being human in my book. I’m OK with that. I’ve never done it maliciously, ever.
+ - The real world has consequences when you do and say things about others. We’re at a point now where you better be sure who you’re going after.
+ - I don’t vote party lines. Never have. I vote for the best candidate.
+ - I’m a good person. I don’t wish hateful things on people. I don’t hate anybody. I know that I treat people right.
+ - I care what people think, but that doesn’t change what I say. I am who I am.
+ - When you’re having a bad day at work, a lot of times it’s your head. When you’re having good days, a lot of times it’s the absence of the mind.
+ - I’ve had teammates I didn’t get along with, who hasn’t? I’ve never had a teammate call me a bad guy, while he was my teammate, and if he did when I was gone what kind of teammate was he anyway?
+ - I had the perfect job for a gamer. From February to October, I’d get up at 7 in the morning with nothing to do but play games until I had to be at the park around 1 or 2 o’clock. When I got back after the game, I played until 3 or 4 in the morning.
+ - I’m a very routine-oriented guy.
+ - I’ve got a wife, four kids, a business, and a baseball career.
+ - I played on teams with 24 guys pulling the rope one way and one guy pulling the other. I’ve seen how destructive it can be. I tell them, ‘If 13 of you are insanely successful and one fails, we all lose.’
+ - I’ve been able to do what I love and what I’m passionate about my entire life. I made, you know, an insane amount of money playing baseball.
+ - I wanted to create a multibillion dollar company that lets me go out and let us go out and change the world and create a Skin Cancer Awareness Center that costs a quarter a billion dollars.
+ - Have I said dumb things? Absolutely, who hasn’t? But I have never backed away from being called out on something I did or said wrong.
+ - Baseball is not a sport you can achieve individually.
+ - I was raised to understand and know the difference between right and wrong.
+ - There’s not a long track record of people leaving professional sports to become a software developer.
+ - In my mind, I never doubted whether I was going to achieve what I wanted to do. I just had to decide what it is I wanted to do.
+ - I did all the stupid things you’d expect from a 21-year-old kid with money.
+ - I did everything I could to win every time I was handed the ball.
+ - Short of baseball and my family, it was gaming. And gaming is a $20-million to $200-million multi-year effort. It’s an insane, stupid and utterly irresponsible act. But I did it.
+ - People love to say we get paid a lot of money to play a game, but it stopped being a game when you start getting paid.
+ - I don’t miss anything I did for a living.
+ - One of the walls of my bedroom was a collage of about 15 years of baseball photos. I would cut out the baseball pictures from every issue and I had this huge montage of thousands of pictures.
+ - I’ve been playing games for 30 years, and I’ve been a hard-core gamer.
+ - In this I-me society, my job is to get people to buy into something bigger than themselves.
+ - As much as I’d like to think I’m a really good designer, I’m average.
+ - The things I was allowed to experience, the people I was able to call friends, teammates, mentors, coaches and opponents, the travel, all of it, are far more than anything I ever thought possible in my lifetime.
+ - I’ve been called a lot of things. But never, and I mean never, could anyone ever make the mistake of calling me a Yankee fan.
+ - More often than not, what you open, unwrap and install on your hard drive is not what you were told you were getting.
+ - Every dollar I can’t commit to my company that’s paid in taxes is paying a government that I believe is too big and doing way too much that I don’t want done.
+ - Trust me, I have never written a speech in my life, and if I have my way, I never will.
+ - You could ask any position player and they’ll tell you: pitchers aren’t athletes.
+ - I don’t pitch for contracts.
+ - War is by no means something glamorous, and I don’t think that should ever be forgotten.
+ - I was a very weird amalgam of things as a kid.
+ - I am human, when people write bad stuff about me it bothers me, but I know that will never end.
+ - The money I saved during baseball was probably all gone. I’m tapped out.
+ - When you say you are a gamer and you are a celebrity or a former celebrity there’s a grain of salt that everybody takes that with.
+ - A lot of my theories were not applicable as a closer.
+ - I had a laptop when they weighed 10 pounds.
+ - Most guys who don’t like me are either Democrats or Yankee fans.
+ - I’ve always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.
+ - I had three jobs my junior and senior year of high school. I worked for the gas station and worked for a pizza place.
+ - So every dollar of income that I have that is potentially taxed away is a dollar I can’t put in my company to create a job. My entire company is around job creation.
+ - I don’t have any problem with government helping entrepreneurs and businesses.
+ - On a two week road trip I know I can get by better with no underwear than no laptop.
+ - I was such a screwup when I got to the big leagues. I was a total idiot.
+ - I think I’ve earned a certain level of respect, based on my accomplishments and my consistency.
+ - I tell people all the time that without the fans, I’ve got nothing.
+ - It is all about rehab. Most doctors can make you 100 percent well physically. I would tell you that it is 25 percent about the surgery and 75 percent about the rehab.
+ - Before I pitch any game, from spring training to Game 7 of the World Series, I’m scared to death.
+ - I’d like to think I did well. I’d like to think that, if I had a must-win game, the guys I played with would want me to have the ball. But no, I don’t think I deserve to be in the Hall of Fame.
+ - In baseball, I was always in control of everything until I let the ball go.
+
+59 quotes

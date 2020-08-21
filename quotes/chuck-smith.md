@@ -1,0 +1,26 @@
+ - Where God guides, God provides.
+ - You have only one life and it will soon be past, and only what’s done for Christ will last.
+ - Ritualism is nothing more than a rut and the only difference between a rut and a grave is the length and the depth.
+ - Though prayer doesn’t change God’s mind or God’s purposes, prayer does change something- It changes us.
+ - The purpose is not that you might get more of the Holy Spirit, but that the Holy Spirit might get more of you.
+ - So live for the kingdom of God. Seek to bring glory to Jesus Christ and the Lord will use you. It is my prayer, my constant and daily prayer, that God would keep me useable.
+ - The most important thing a born again Christian can do is to pray.
+ - God often goes to the gutter to find the recipient for His grace. He lifts him out, washes him and transforms him – making him into a child of God fit for His kingdom. That is God’s grace.
+ - Prayer does not change the purpose of God. But prayer does change the action of God.
+ - We should not take the blessings of God for granted. We should always be careful to give God praise and thanksgiving for the work that he does in our lives.
+ - Look, don’t judge Christianity by the imperfect examples that we have seen in history. Judge it by Jesus Christ.
+ - Prayer is not an agency by which my will is to be accomplished upon the earth. The purpose of prayer is to get God’s will to be accomplished upon the earth, and so many times we ask and receive not because the motive behind our asking is really that of accomplishing my will rather than God’s will.
+ - What we are really lacking today is a real hatred of evil.
+ - As you commit your life to follow the Lord, He begins to plant His desires in your heart, then guides you according to His plan.
+ - There’s a difference between losing your salvation and leaving your salvation. If you lose something, you don’t know where to find it. You can’t lose your salvation because you always know where to find it; you can only leave it.
+ - Prayer is the most important activity a born-again Christian can perform. It should head your list of priorities, for certainly the world around us desperately needs prayer. Prayer will open the door for God to do a glorious work in these last days. Prayer will stem the tide of evil.
+ - There are more battles won through prayer than by any other means.
+ - Sometimes we make the mistake of thinking God uses only ‘special’ people the strong, the intelligent, the beautiful. We don’t think He has a place for the rest of us. We are so wrong!
+ - I think it rather pathetic that so many people are looking forward to heaven to prove that their doctrinal position was correct.
+ - I would rather have the wrong facts and a right attitude, than right facts and a wrong attitude.
+ - Wisdom is knowing what to do with what you know.
+ - Our heart is like a reservoir from which our lives flow.
+ - God is more interested in what we are than in what we do. He looks for fruit; we try to produce works.
+ - I want the real deal whatever that means and whatever it takes to get there so I’ve been exploring...
+
+24 quotes

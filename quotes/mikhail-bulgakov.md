@@ -1,0 +1,46 @@
+ - Everything will turn out right, the world is built on that.
+ - Manuscripts don’t burn.
+ - Well, as everyone knows, once witchcraft gets started, there’s no stopping it.
+ - Never ask for anything! Never for anything, and especially from those who are stronger than you. They’ll make the offer themselves, and give everything themselves.
+ - Cowardice is the most terrible of vices.
+ - What would your good do if evil didn’t exist, and what would the earth look like if all the shadows disappeared?
+ - He who never hurries is always on time.
+ - But what can be done, the one who loves must share the fate of the one he loves.
+ - This twenty-year-old boy was distinguished from childhood by strange qualities, a dreamer and an eccentric. A girl fell in love with him, and he went and sold her to a brothel...
+ - There is no greater misfortune in the world than the loss of reason.
+ - No documents, no person.
+ - Yes, man is mortal, but that would be only half the trouble. The worst of it is that he’s sometimes unexpectedly mortal – there’s the trick!
+ - You should never ask anyone for anything. Never- and especially from those who are more powerful than yourself.
+ - The tongue may hide the truth but the eyes – never!
+ - To speak the truth is easy and pleasant.
+ - Not causing trouble, not touching anything, fixing the primus.
+ - No one’s fate is of any interest to you except your own.
+ - Obedient to constraint, I was compelled to submit.
+ - Follow me, reader! Who told you that there is no true, faithful, eternal love in this world! May the liar’s vile tongue be cut out! Follow me, my reader, and me alone, and I will show you such a love!
+ - The darkness that had come in from the Mediterranean covered the city so detested by the procurator...
+ - Second freshness – that’s what is nonsense! There is only one freshness – the first – and it is also the last. And if sturgeon is of the second freshness, that means it is simply rotten.
+ - Once upon a time there was a lady. She had no children, and no happiness either. And at first she cried for a long time, but then she became wicked...
+ - The most amazing combinations can result if you shuffle the pack enough.
+ - Allow me to inquire how man can control his own affairs when he is not only incapable of compiling a plan for some laughably short term such as, say, a thousand years, but cannot even predict what will happen to him tomorrow?
+ - Remove the document – and you remove the man.
+ - Difficult folk, these women!
+ - Why try to pursue what is completed?
+ - I had the pleasure of meeting that young man at the Patriarch’s Ponds. He almost drove me mad myself, proving to me that I don’t exist. But you do believe that it is really I?
+ - Nobody should be whipped. Remember that, once and for all. Neither man nor animal can be influenced by anything but suggestion.
+ - If it is true that cowardice is the most grave vice, then the dog, at least, is not guilty of it.
+ - Punch a man on the nose, kick an old man downstairs, shoot somebody or any old thing like that, that’s my job. But argue with women in love – no thank you!
+ - There’s only one degree of freshness – the first, which makes it also the last.
+ - You pronounced your words as if you don’t acknowledge the shadows, or the evil either. Would you be so kind as to give a little thought to the question of what your good would be doing if evil did not exist, and how the earth would look if the shadows were to disappear from it?
+ - In the first few seconds an aching sadness wrenched his heart, but it soon gave way to a feeling of sweet disquiet, the excitement of gypsy wanderlust.
+ - I suppose that in no educational institution can one become an educated person.
+ - Literature has become my life.
+ - Azazello begged her not to worry, assuring her that he had seen not only naked women but also women with their skin flayed clean off.
+ - What’s the use of dying in a ward surrounded by a lot of groaning and croaking incurables? Wouldn’t it be much better to throw a party with that twenty-seven thousand and take poison and depart for the other world to the sound of violins, surrounded by lovely drunken girls and happy friends?
+ - For some reason, cats are usually addressed familiarly, though no cat has ever drunk bruderschaft with anyone.
+ - The procurator studied the new arrival with avid, and slightly fearful eyes. It was the kind of look one gives someone one has heard of and thought a lot about, and whom one is meeting for the first time.
+ - Once in 1919, when I was traveling at night by train, I wrote a short story. In the town where the train stopped, I took the story to the publisher of the newspaper who published the story.
+ - A dog’s spirit dies hard.
+ - Who ever told you there is no such thing in the world as real, true, everlasting love? May the liar have his despicable tongue cut out!
+ - My writing is progressing slowly, but at least it’s moving forward. I’m sure that’s the case. The only problem is that I’m never absolutely certain that what I’ve written is any good.
+
+44 quotes

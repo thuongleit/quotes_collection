@@ -1,0 +1,39 @@
+ - The heroes of our youth grow old – ‘the boys of summer in their ruin,’ in Dylan Thomas’s verse – yet we seem the same.
+ - For many in baseball September is a month of stark contrast with April, when everyone had dared to hope. If baseball is a lot like life, as pundits declare, it is because life is more about losing than winning.
+ - We play because we are wired for joy; it is imperative as human beings.
+ - This was nostalgia in the literal Greek sense: the pain of not being able to return to one’s home and family.
+ - Yes, we’ve seen it all before. And yes, those who do not study history are condemned to repeat it. But no, the sky is not falling – baseball is such a great game that neither the owners nor the players can kill it. After some necessary carnage, market forces will prevail.
+ - Baseball is not a conventional industry. It belongs neither to the players nor management, but to all of us. It is our national pastime, our national symbol, and our national treasure.
+ - More fundamentally, it is a dream that does not die with the onset of manhood: the dream is to play endlessly, past the time when you are called home for dinner, past the time of doing chores, past the time when your body betrays you past time itself.
+ - The caliber of play suffered and attendance declined year by year. Interest in college football was exploding, and there was this new game called basketball.
+ - Pursuing employment or climatic relief, we live in voluntary exile from our extended families and our longer past, but in an involuntary exile from ourselves and our own past.
+ - Life is more about losing than winning.
+ - Except in expert hands, stats can get in the way of story; an array of data that might better be presented in a table instead clogs up sentences.
+ - Baseball presents a living heritage, a game poised between the powerful undertow of seasons past and the hope of next day, next week, next year.
+ - One of the first lessons he or she learns is that in baseball anything, absolutely anything, can happen. Just two days ago as I write this, something happened that had never happened in baseball before.
+ - Just because I am increasingly bored by sabermetric arcana doesn’t mean anyone else has to be; it remains good for people who like that sort of thing.
+ - Why we play as children is not because it is our work or because it is how we learn, though both statements are true; we play because we are wired for joy, it is imperative as human beings.
+ - Do we settle on a regional team because we can go to its ballpark and see its games on television? Or do we choose a team as our favorite because it has an especially appealing player, a Barry Bonds or an Ichiro?
+ - In response to the challenge of strangers, sport arose as a sublimated representation of a community’s armed might as well as its pride of place and clan.
+ - Finally, for all of us but a lucky few, the dream of playing big-time baseball is relinquished so we can get on with grown-up things.
+ - But the dream is never forgotten, only put aside and never out of reach: Where once the dream connected boys with the world of men, now it reconnects men with the spirit of boys.
+ - Keep score, which is what the Talmud recognizes as a distinction between work and play that renders a game unfit for the Sabbath.
+ - Award trophies, as opposed to letting the players define and claim their own. Ultimately, pay them to play so that their activity not only resembles work but is work.
+ - I think that much of this was running in background as I contemplated whether or not to attend the PS 99 reunion, although I certainly anticipated that I would not; it smelled like death, not youth.
+ - Although the world proved not yet ready for the brotherhood of baseball, that would be only a matter of time, baseball magnates believed.
+ - Distant replay morphs into instant replay, and future replay cannot be far off.
+ - But baseball bounced back in the next decade to reclaim its place as the national pastime: new heroes, spirited competition, and booming prosperity gave birth to dreams of expansion, both within the major leagues and around the world.
+ - If I haven’t made myself clear, this worrisome chain of events describes the game of the nineteenth century.
+ - We know these men are professionals whose services are up for bid and whose bags are packed, and yet we call them our own and take personal, even civic pride in their accomplishments.
+ - Better than anything else in our culture, it enables fathers and sons to speak on a level playing field while building up from within a personal history of shared experience – a group history – that may be tapped into at will in years to come.
+ - Whatever else I do before finally I go to my grave, I hope it will not be looking after young people.
+ - As the game enters its glorious final weeks, the chill of fall signals the reality of defeat for all but one team. The fields of play will turn brown and harden, the snow will fall, but in the heart of the fan sprouts a sprig of green.
+ - In over 160 years of recorded baseball history, no team had ever won a championship this way.
+ - I am opposed, naturally, to regurgitating anecdote or any other form of received wisdom, unless it is characterized as such.
+ - Donning a glove for a backyard toss, or watching a ball game, or just reflecting upon our baseball days, we are players again, forever young.
+ - And then came the nineties, when management, suddenly frightened that they had ceded control to the players, sought to restore baseball’s profitability by ‘running the game like a business.’
+ - Planning to play: that’s what saving for retirement is today – and it is antithetical to the nature of play, fully within the definition of work, and blissfully ignorant of the reality of death.
+ - I’d just like to see – in writing about baseball – more energy and better craft, minus statistical bludgeoning and invective.
+ - My egotistical concern was less that I would fail to relate to my classmates than that they would know nothing of my uniquely tortured life’s course and, thus, me.
+
+37 quotes

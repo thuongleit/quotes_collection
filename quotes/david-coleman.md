@@ -1,0 +1,34 @@
+ - Read like a detective and write like a conscientious investigative reporter.
+ - There is a fine line between serendipity and stalking.
+ - And here’s Moses Kiptanui – the 19 year old Kenyan, who turned 20 a few weeks ago.
+ - There goes Juantorena down the back straight, opening his legs and showing his class.
+ - And there’s no “I love you” message because Steve Ovett has married the girl.
+ - Ingrid Kristiansen then has smashed the world record, running the 5000 metres in 14:58.89. Truly amazing. Incidentally, this is a personal best for Ingrid Kristiansen.
+ - The late start is due to the time.
+ - Some names to look forward to – perhaps in the future.
+ - And for those of you who watched the last programme, I hope all your doughnuts turn out like Fanny’s.
+ - And with alphabetical irony Nigeria follows New Zealand.
+ - There’s going to be a real ding dong when the bell goes.
+ - Peru score their third, and It’s 3-1 to Scotland.
+ - On this 101st FA Cup Final day, there are just two teams left.
+ - And now International Soccer Special, Manchester United v Southampton.
+ - He’s 31 this year: last year he was 30.
+ - Don’t tell those coming in the final result of that fantastic match, but let’s just have another look at Italy’s winning goalo.
+ - Both of the Villa scorers were born in Liverpool, as was the Villa manager, who was born in Birkenhead.
+ - He is accelerating all the time. That last lap was run in 64 seconds and the one before in 62.
+ - In a moment, we hope to see the pole vault over the satellite.
+ - The Republic-of-China – back in the Olympic Games for the first time.
+ - A truly international field, no Britons involved.
+ - In fact that’s Swindon’s first win of any kind in nine matches.
+ - That’s the fastest time ever run – but it’s not as fast as the world record.
+ - Notting Forest are having a bad run, they’ve lost six matches in a row now without winning.
+ - This is a young man who is only 25, and you have to say, her has answered every question that has ever been asked.
+ - And the line up for the final of the women’s 400 metres hurdles includes three Russians, two East Germans, a Pole, a Swede and a Frenchman.
+ - We estimate, and this isn’t an estimation, that Greta Waitz is 80 seconds behind.
+ - Her time is about 4.33, which she’s capable of.
+ - It’s a battle with himself and with the ticking finger of the clock.
+ - The Italians are hoping for an Italian victory.
+ - The pace of this match is really accelerating, by which I mean it’s getting faster all the time.
+ - The ball has broken 50-50 for Keegan.
+
+32 quotes

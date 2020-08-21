@@ -1,0 +1,61 @@
+ - Loving someone is giving them the power to break your heart, but trusting them not to.
+ - Air pollution is terrible for our children. Every single scientist, every single doctor will tell you the same thing: Air pollution damages our children’s brains, their hearts, and their lungs.
+ - Life is full of compromises, and whether or not you’re willing to negotiate.
+ - I do Ashtanga yoga three times a week, and I run a couple of times a week, too. I really like yoga; I enjoy the actual doing of it, so it doesn’t feel like the agony of the gym felt like to me.
+ - I like that sense of family in my workplace, having the same pair of eyes to look into.
+ - I always say about acting: the audience doesn’t come to see you, they come to see themselves. So if you’re able to give them an experience where they feel, ‘Oh, my gosh, that’s me, that’s my story, they know!’ then you’ve done your job.
+ - In grade school, I was a complete geek. You know, there’s always the kid who’s too short, the kid who wears glasses, the kid who’s not athletic. Well, I was all three.
+ - I think imperfections are important, just as mistakes are important. You only get to be good by making mistakes, and you only get to be real by being imperfect.
+ - Right before I met my husband, I always felt as if the party was happening somewhere else. And once I met him and we had our children, I was like, ‘This is where the party is.’
+ - My life may be a pretty crazy life at times, but its a very privileged one – being able to earn a good living doing what you love. Not many people have such an opportunity.
+ - I was a bookworm, and very skinny with big, thick glasses. I never went on dates and guys were afraid of me because I was smart. So I got contact lenses, started to dress a little better and tried not to talk about Plato with boys. It worked!
+ - People with Alzheimer’s deserve to be seen, so that we can find a cure!
+ - I think that one of the things that you do learn is that falling in love and being in love with someone is a rarity. That you don’t fall in love as many times as you think you’re going to. And then when you do, it’s really special; it’s really important.
+ - With actors, all our ages are out there for all to see – you can’t hide anything, really. And it’s kind of a relief. This is my age, this is what I look like without makeup on – who cares? That youth culture – that lying about your age – it’s all denial of death anyway.
+ - I love it, to have the same crew. I’m not married. I don’t have children. My 17-year-old dog died. I’m kind of on my own. So I really like having the same camera guy for four years. I love looking around and seeing the hair and makeup people who have been there from the beginning.
+ - At one point, ‘feminist’ became a pejorative term. How did that happen? If you’re a feminist, you’re basically saying you’re a humanist.
+ - What gives you pleasure and joy? Let those be the things that lead you forward in life.
+ - I’m at the mercy of others because I’m not a director. I’m not a producer. I’m not a writer.
+ - We impose order and narrative on everything in order to understand it. Otherwise, there’s nothing but chaos.
+ - I love my kids with all my heart and the last thing I want to worry about is the air they breathe.
+ - I’m older than I was before when I was young.
+ - You know, comedy’s hard. With drama, you have a responsibility to the emotional truth, but with comedy, you have emotional truth and you have technique on top of it.
+ - I don’t really care if people like a character ornot; I think in life we don’t always like everybody. But you haveto be able to understand them.
+ - I don’t consider myself very brave in any sense. I’m interested in this kind of behavior. My job is to try to make it realistic and emotionally resonant. That’s the most challenging thing, to bring emotional resonance to what you do as an actor.
+ - When you become a parent, you finally appreciate and understand what your mother did.
+ - My schedule, it always looks like it’s really steady, but believe it or not, I tend to work a bunch and then take a year off.
+ - If you’re 50, you’re never going to be 50 ever again, so enjoy being 50. If you sit through the year wishing you were younger, before you know it, it’s going to be over, and you’re going to be 51.
+ - I’ve heard it said that winning an Oscar means you live five years longer. If that’s true I want to thank the academy because my husband is younger than me.
+ - The audience doesn’t come to see you, they come to see themselves.
+ - I wouldn’t be an actor if it weren’t for the English teacher I had my junior year in high school. She’s the one who told me I could be an actor. I had never met an actor, I had never seen a real play, only high school plays. I didn’t know actors were real, that it was a real job.
+ - If you ask anybody about their life, usually the first thing they talk about is how their wife is doing, how their kids are, they don’t usually say “My job, my job, my job”. It’s really true. It’s usually about your family.
+ - People talk about generating my own work, but I don’t really know how to go about that. There are certainly some roles in the theater I’d like to play but I don’t know if I’ll ever get to do it.
+ - There was a period of time in America where the advertising world actually went to the housewives of America and had them write jingles that would appeal to them. It was actually brilliant marketing.
+ - We shouldn’t require our politicians to be movie stars. Then again, we’re all influenced by charisma. It’s hard not to be. We all collectively fall for it.
+ - I’ve always wanted to go where the work was or where I was wanted. The idea that it can be planned is one I let go of a long time ago.
+ - Either you like a person or you don’t like a person. I don’t have to love somebody to work with them. I’m a professional person. But when you get the bonus of really liking someone and really connecting with them and really enjoying them, it’s a fantastic thing.
+ - People think that the directors direct actors. No. Really, what the director’s doing is directing the audience’s eye through the film.
+ - I was lucky enough to come in at the beginning of the independent film movement and its really shaped my life and career.
+ - You always absorb a lot from a great actor. What you want, as an actor, no matter where you are in your career, is a partner who’s going to bring everything they have to the scene.
+ - I think the thing about relationships is that you’re always thinking “Oh, it’s going to go bad”. But then, it’s the same thing that all the silly magazines say, “Take time for yourselves. Go away.”
+ - I hope this brings someone else the courage they need to face whatever challenge is before them.
+ - Ever since there’s been a Hollywood, they remake a movie every 20 years.
+ - Movie studios aren’t making too many dramas anymore; they’re in the superhero business. Material for television is much, much stronger for actors now.
+ - For me, the most important thing is that I feel comfortable with the actor that I’m working with and I’m able to talk to them.
+ - You have to remember that Hollywood is in the business of making movies that they can sell tickets to, they’re not in the business of finding great roles for actors.
+ - Older, you know, is obviously relative. You’re older if there’s somebody younger than you in the room, and you’re younger if there’s someone older in the room.
+ - At the Golden Globes, they put all the bigger stars in the front; the movie stars in the front, TV actors in the back. But even as a movie star, you can be outseated by a bigger star in any given year. It’s kind of hilarious. You have to take it in stride.
+ - I was the kid who read a lot and who was academic, and who was more of an indoor person than an outdoor person. I would win the summer reading contest at the library.
+ - Art is an expression of who we are, what we believe, and what we dream about.
+ - Men aren’t asked about their children.
+ - If you are at odds with the director, neither one of you is going to get anywhere. You really do have to be able to make both of you happy.
+ - Sarah Palin’s real quality is that she is her own best creation.
+ - We have to work for a living, but it is your life, so make sure you find something that you enjoy doing and people that you enjoy doing it with. Then, hopefully, you’ll have a happy life.
+ - Men aren’t asked about age. Men aren’t asked about their children. Not that these things aren’t important, but I do feel like it becomes reductive when a woman’s life becomes, ‘Talk to me about your kids and how you feel about plastic surgery.’
+ - It’s pretty boring, working by yourself. The scene happens in between the two of you, and then you don’t know what it’s going to be because it’s a kind of combustion. So, you do take something from every actor you work with.
+ - I like the excitement you get at touching another human being when you’re acting with them and then having a little spark and not knowing what is going to happen in between you.
+ - Comedy is ridiculously hard. And if the rhythm is not right, if the music or the line is not right, it’s not funny.
+ - When the computer and tablets are all about playing games, thats not interesting to me.
+ - I’m not supposed to communicate something that’s completely unrealistic.
+
+59 quotes

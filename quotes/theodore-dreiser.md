@@ -1,0 +1,43 @@
+ - Love is the only thing you can really give in all this world. When you give love, you give everything.
+ - How true it is that words are but the vague shadows of the volumes we mean.
+ - I believe in the compelling power of love. I do not understand it. I believe it to be the most fragrant blossom of all this thorny existence.
+ - Life is a God-damned, stinking, treacherous game and nine hundred and ninety-nine men out of a thousand are bastards.
+ - We are to have no pictures which the puritan and the narrow, animated by an obsolete dogma, cannot approve of. We are to have no theaters no motion pictures, no books, no public exhibitions of any kind, no speech even which will anyway contravene his limited view of life.
+ - Nothing is proved, all is permitted.
+ - Let no one underestimate the need of pity. We live in a stony universe whose hard, brilliant forces rage fiercely.
+ - I acknowledge the Furies. I believe in them. I have heard the disastrous beating of their wings.
+ - When a girl leaves her home at eighteen, she does one of two things. Either she falls into saving hands and becomes better, or she rapidly assumes the cosmopolitan standard of virtue and becomes worse.
+ - Art is the stored honey of the human soul, gathered on wings of misery and travail.
+ - When a man, however passively, becomes an obstacle to the fulfillment of a woman’s desires, he becomes an odious thing in her eyes, – or will, given time enough.
+ - A thought will color a world for us.
+ - Remember, love is all a woman has to give, but it is the only thing which God permits us to carry beyond the grave.
+ - Morality and ethics are nothing but footballs, wherewith people, strong people play to win points.
+ - Words are but the vague shadows of the volumes we mean. Little audible links, they are, chaining together great inaudible feelings and purposes.
+ - I will kneel and strike my breast, then touch the dust with my forehead; I will, I will. Only do not forsake me, oh god of beauty.
+ - Nature, machine-like, works definitely and heartlessly, if in the main beautifully. Hence, if we, as individuals, do not make this dream of a god or what he stands for us real in our thoughts and deeds, then he is not real or true.
+ - Oh, the moon is fair tonight along the Wabash, From the fields there comes the breath of new-mown hay; Through the sycamores the candle lights are gleaming On the banks of the Wabash, far away.
+ - Theodore Dreiser Should ought to write nicer.
+ - In order to have wisdom we must have ignorance.
+ - Our civilization is still in a middle stage, scarcely beast, in that it is no longer wholly guided by instinct; scarcely human, in that it is not yet wholly guided by reason.
+ - To the untraveled, territory other than their own familiar heath is invariably fascinating. Next to love it is the one thing that solaces and delights.
+ - The most futile thing in this world is any attempt, perhaps, at exact definition of character. All individuals are a bundle of contradictions – none more so than the most capable.
+ - And then he sank back and tried, as usual, not to think. He must succeed. That’s what the world was made for. That’s what he was made for. That was what he would have to do.
+ - We who feel that justice is not being done have but one thing to do: that is fight, by argument, by example, by insistence on fair play wherever we have the power to do so. The rest is in the hands of the Lord, or nature, which swings, apparently, from one extreme to another.
+ - If I were personally to define religion, I would say that it is a bandage that man has invented to protect a soul made bloody by circustance.
+ - I believe in the compelling power of love.
+ - A real flame of love is a subtle thing. It burns as a will-o’-the-wisp, dancing onward to fairy lands of delight. It roars as a furnace. Too often jealousy is the quality upon which it feeds.
+ - The true meaning of money yet remains to be popularly explained and comprehended.
+ - It is a sad thing to want for happiness, but it is a terrible thing to see another groping about blindly for it, when it is almost within the grasp.
+ - You walk into a room, see a woman, and something happens. It’s chemical. What are you going to do about it?
+ - The strong man wants to be allowed to DO; the little man wants to stop him.
+ - Your writer, your scientist, your chief official, all have lost the power to revive the early illusion concerning fame and high place. Their beauty and delight is like the mirage in the heavens, only plain to the eye outside; within is nothing.
+ - All forms of dogmatic religion should go. The world did without them in the past and can do so again.
+ - If we are to extract any joy out of our span, we must think and plan and make things better not only for ourselves but for others, since joy for ourselves depends upon our joy in others and theirs in us.
+ - How dismal is progress without publicity.
+ - The Irish are a philosophic as well as a practical race. Their first and strongest impulse is to make the best of a bad situation to put a better face on evil than it normally wears.
+ - Shakespeare, I come !
+ - Why must women torment me so?
+ - Depend upon it; from every condition of distress or evil, there is a great reaction, and the greater the distress or evil, the greater the reaction.
+ - If you have that unconquerable urge to write, nothing will stop you from writing.
+
+41 quotes

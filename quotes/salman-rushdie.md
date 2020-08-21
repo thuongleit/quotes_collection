@@ -1,0 +1,434 @@
+ - A photograph is a moral decision taken in one eighth of a second. 
+ - Reality is a question of perspective;.
+ - The moment you declare a set of ideas to be immune from criticism, satire, derision, or contempt, freedom of thought becomes impossible.
+ - What can’t be cured must be endured.
+ - English, no longer, an English language, now grows from many roots.
+ - What is freedom of expression? Without the freedom to offend, it ceases to exist.
+ - Those who do not have power over the story that dominates their lives, power to retell it, to rethink it, deconstruct it, joke about it, and change it as times change, truly are powerless, because they cannot think new thoughts.
+ - Literature is where I go to explore the highest and lowest places in human society and in the human spirit, where I hope to find not absolute truth but the truth of the tale, of the imagination and of the heart.
+ - The only people who see the whole picture,? he murmured, ’are the ones who step out of the frame.
+ - Our lives teach us who we are.
+ - Respect for religion’ has become a code phrase meaning ‘fear of religion’. Religions, like all other ideas, deserve criticism, satire, and, yes, our fearless disrespect.
+ - I don’t dictate to anyone what to believe and what not to. And I don’t want that to be dictated to me either.
+ - I am the sum total of everything that went before me, of all I have been seen done, of everything done-to-me. I am everyone everything whose being-in-the-world affected was affected by mine. I am anything that happens after I’m gone which would not have happened if I had not come.
+ - Liberate yourself, because no one else is going to liberate you.
+ - If you’re offended, it’s your problem.
+ - Broad-mindedness is related to tolerance; open-mindedness is the sibling of peace.
+ - Make as much racket as you like people. Noise is life and an excess of noise is a sign that life is good. There will be time for us all to be quiet when we are safely dead.
+ - Hyperrealism can create an atmosphere of surrealism because nobody sees the world in such detail.
+ - After a long, hopeless war, people will settle for peace, at almost any price.
+ - Home is the place where you feel happy.
+ - This may be the curse of human race. Not that we are different from one anther, but we are so alike .
+ - In the cookie of life, friends are the chocolate chips.
+ - The miniatures of the Mughal period are really the pinnacle of Indian artistic achievement. And not a single one of those paintings is done by an individual artist.
+ - When you throw everything up in the air anything becomes possible.
+ - We are the storytelling animal.
+ - Rohinton Mistry’s celebrated novel ‘Such a Long Journey’ was pulled off the syllabus of Mumbai University because local extremists objected to its content.
+ - Most of what matters in your life takes place in your absence.
+ - We cannot allow religious hooligans to place limiting points on thought.
+ - Thomas Pynchon looks exactly like Thomas Pynchon should look. He is tall, he wears lumberjack shirts and blue jeans. He has Albert Einstein white hair and Bugs Bunny front teeth.
+ - How do you defeat terrorism? Don’t be terrorized.
+ - We all owe death a life.
+ - Vertigo is the conflict between the fear of falling and the desire to fall.
+ - A mature society understands that at the heart of democracy is argument.
+ - Language is courage: the ability to conceive a thought, to speak it, and by doing so to make it true.
+ - Free speech is the whole thing, the whole ball game. Free speech is life itself.
+ - I’m not saying I am never going to fall in love again, but there is no need to marry.
+ - I grew up kissing books and bread.
+ - From the beginning men used God to justify the unjustifiable.
+ - Free speech is life itself.
+ - When you know what you’re against you have taken the first step to discovering what you’re for.
+ - If you want to tell the untold stories, if you want to give voice to the voiceless, you’ve got to find a language. Which goes for film as well as prose, for documentary as well as autobiography. Use the wrong language, and you’re dumb and blind.
+ - Bread and books: food for the body and food for the soul – what could be more worthy of our respect, and even love?
+ - Now I know what a ghost is. Unfinished business, that’s what.
+ - She saw him fracture into rainbow colors through the prism of her love.
+ - Good advice is rarer than rubies.
+ - Ignorantly is how we all fall in love; for it is a kind of fall. Closing our eyes, we leap from that cliff in hope of a soft landing. Nor is it always soft; but still, without that leap nobody comes to life.
+ - When thought becomes excessively painful, action is the finest remedy.
+ - Perhaps the story you finish is never the one you begin.
+ - Two things form the bedrock of any open society – freedom of expression and rule of law. If you don’t have those things, you don’t have a free country.
+ - I am certainly not a good Muslim. But I am able now to say that I am Muslim; in fact it is a source of happiness to say that I am now inside, and a part of the community whose values have always been closest to my heart.
+ - Between the adored and the adorer falls the shadow.
+ - Sometimes we feel we straddle two cultures; at other times, that we fall between two stools.
+ - A figure of speech is a shifty thing; it can be twisted or it can be straight.
+ - Masks beneath masks until suddenly the bare bloodless skull.
+ - There is no such thing as perfect security, only varying levels of insecurity.
+ - I will come back to India – so deal with it.
+ - I beat my sons in real-life table tennis, but virtually, I get murdered. I download games on the iPhone that I’m addicted to – I’m a master at “Angry Birds.”
+ - What’s the use of stories that aren’t even true?
+ - Freedom is not a tea party, India. Freedom is a war.
+ - The liveliness of literature lies in its exceptionality, in being the individual, idiosyncratic vision of one human being, in which, to our delight and great surprise, we may find our own vision reflected.
+ - Question: What is the opposite of faith? Not disbelief. Too final, certain, closed. Itself is a kind of belief. Doubt.
+ - What’s real and what’s true aren’t necessarily the same.
+ - American literature has always been immigrant.
+ - One of the things a writer is for is to say the unsayable, speak the unspeakable and ask difficult questions.
+ - That’s the trouble with you sad-city types: a place has to be miserable and dull as ditchwater before you believe it’s real.
+ - One of the problems with defending free speech is you often have to defend people that you find to be outrageous and unpleasant and disgusting.
+ - Memory has its own special kind. It selects, eliminates, alters, exaggerates, minimizes, glorifies, and vilifies also; but in the end it creates its own reality, its heterogeneous but usually coherent version of events; and no sane human being ever trusts someone else’s version more than his own.
+ - Go for broke. Always try and do too much. Dispense with safety nets. Take a deep breath before you begin...
+ - Even when things are at their worst, there’s a little voice in your head saying, ‘Good story!’
+ - In the end, you write the book that grabs you by the throat and demands to be written.
+ - You can find shame in every house, burning in an ashtray, hanging framed upon a wall, covering a bed. But nobody notices it any more.
+ - Life is lived forward but is judged in reverse.
+ - With death comes honesty.
+ - Captain Ahab drowned, he reminded himself; it was the trimmer, Ishmael, who survived.
+ - It is literature which for me opened the mysterious and decisive doors of imagination and understanding. To see the way others see. To think the way others think. And above all, to feel.
+ - Reality is a question of perspective; the further you get from the past, the more concrete and plausible it seems – but as you approach the present, it inevitably seems more and more incredible.
+ - Shame is like everything else; live with it for long enough and it becomes part of the furniture.
+ - O the shame of it, the humiliating shame of being condescended to by dolts.
+ - The world is full of things that upset people. But most of us deal with it and move on and don’t try and burn the planet down.
+ - One of the strange things about violent and authoritarian regimes is they don’t like the glare of negative publicity.
+ - When I’m writing books, something weird happens; and the result is the books contain a large amount of what you could call ‘supernaturalism.’ As a writer, I find I need that to explain the world I’m writing about.
+ - It is very, very easy not to be offended by a book. You just have to shut it.
+ - I think it’s a very important function of art to challenge accepted reality, especially when that reality is created by powerful interest groups.
+ - The frustrating part of being tagged ‘controversial’ is people go looking for trouble where there isn’t any to look for.
+ - Every time you finish a book, you have a terrible feeling that there’s just never going to be another one. But fortunately, so far, the next one has always shown up.
+ - The difference between memoir and autobiography, as far as I see it, is that a memoir is there primarily to tell one particular story, whereas an autobiography tries to be a full account of a life.
+ - When I’m writing a book, sentence by sentence, I’m not thinking theoretically. I’m just trying to work out the story from inside the characters I’ve got.
+ - Writers and politicians are natural rivals. Both groups try to make the world in their own images; they fight for the same territory.
+ - The fact of being alive compensated for what life did to one.
+ - Life is elsewhere. Cross frontiers. Fly away.
+ - Prophet Mohammed would have no objection to The Satanic Verses.
+ - When you have children, your perspective on the parent-child relationship alters.
+ - Sometimes, people trying to commit suicide manage it in a manner that leaves them breathless with astonishment.
+ - She’s no flibberti-gibberti mamzell, but a whir-stir-get-lost-sir bundla dynamite!
+ - Madame Bovary and a flying carpet, they are both untrue in the same way. Somebody made them up.
+ - A sigh isn’t just a sigh. We inhale the world and breathe out meaning. While we can. While we can.
+ - One of the reasons my name is Rushdie is that my father was an admirer of Ibn Rush’d, the 12th century Arab philosopher known as Averroes in the West. In his time, he was making the non-literalist case for interpreting the Koran.
+ - My love for Dan Brown knows no bounds. It literally has no mass.
+ - All names mean something.
+ - Peace, perfect peace, in this dark world of sin? The Blood of Jesus whispers peace within.
+ - Literature is the one place in any society where, within the secrecy of our own heads, we can hear voices talking about everything in every possible way.
+ - Sometimes legends make reality, and become more useful than the facts.
+ - Travel was pointless. It removed you from the place in which you had a meaning, and to which you gave meaning in return by dedicating your life to it, and it spirited you away into fairylands where you were, and looked, frankly absurd.
+ - I admit it: above all things, I fear absurdity.
+ - Actually, I don’t even like parties. I would much prefer a room with four friends who sit around and have dinner. I detest nightclubs. And I don’t like places where the noise is so loud you can’t talk to people.
+ - What kind of Christmas present would Jesus ask Santa for?
+ - Our lives disconnect and reconnect, we move on, and later we may again touch one another, again bounce away. This is the felt shape of a human life, neither simply linear nor wholly disjunctive nor endlessly bifurcating, but rather this bouncey-castle sequence of bumpings-into and tumblings-apart.
+ - I don’t think people cry reading ‘Midnight’s Children,’ but a lot of people seem to cry watching the movie.
+ - If my child had prejudice in his head, I’d be ashamed. I would see it as my failure as a parent.
+ - I used to say, ‘There is a God-shaped hole in me.’ For a long time I stressed the absence, the hole. Now I find it is the shape which has become more important.
+ - He knew what he knew: that the real world was full of magic, so magical worlds could easily be real.
+ - One minute you’ve got a lucky star watching over you and the next instant it’s done a bunk.
+ - Nothing comes from nothing, Thieflet; no story comes from nowhere; new stories are born from old – it is the new combinations that make them new.
+ - Five mysteries hold the keys to the unseen: the act of love, and the birth of a baby, and the contemplation of great art, and being in the presence of death or disaster, and hearing the human voice lifted in song.
+ - If there is a choice between absolute safety and freedom, then freedom must always prevail.
+ - Home has become such a scattered, damaged, various concept in our present travails. There is so much to yearn for. There are so few rainbows any more.
+ - I learned: the first lesson of my life: nobody can face the world with his eyes open all the time.
+ - What grows best in the heat: fantasy; unreason; lust.
+ - I know that when people pull apart, they usually employ misunderstanding as a weapon, deliberately getting hold of the stick’s wrong end, impaling themselves on its point in order to prove the perfidy of the other.
+ - Where there is no belief, there is no blasphemy.
+ - Things, even people have a way of leaking into each other like flavours when you cook.
+ - Don’t you know girls have to fool people every day of their lives if they want to get anywhere?
+ - I seem to have fallen for women with missing parents. Goodness knows what it signifies.
+ - Children are the vessels into which adults pour their poison.
+ - Friendships are the family we make – not the one we inherit. I’ve always been someone to whom friendship, elective affinities, is as important as family.
+ - Live on, survive, for the earth gives forth wonders. It may swallow your heart, but the wonders keep on coming. You stand before them bareheaded, shriven. What is expected of you is attention.
+ - Human beings, you see, do absolutely two primary things. We see like and unlike. Like becomes, in literature, simile and metaphor. Unlike becomes uniqueness and difference, from which I believe, the novel is born.
+ - A photograph is a moral decision taken in one eighth of a second, or one sixteenth, or one one-hundred-and-twenty-eighth. Snap your fingers; a snapshot’s faster.
+ - One of the things I’ve thought about ‘Midnight’s Children’ is that it is a novel which puts a Muslim family at the centre of the Indian experience.
+ - The First Amendment defends all forms of speech including hate speech, which is why groups like Ku Klux Klan are allowed to utter their poisonous remarks.
+ - People don’t like being around despair. Our tolerance for the truly hopeless, for those who are irredeemably broken by life is strictly limited. The sob stories we like are the ones that end before we’re bored.
+ - The West should be tougher on Pakistan. It is trying to play both ends against the middle – to look like the friend of the revolutionaries on the one hand and a friend of the West in the fight against terrorism. It can’t be both things.
+ - One of the things I’ve learnt is not to depend on there being a woman in your life to make it work. I love my work, I love my children, I’ve got wonderful friends, you know, I have a nice life.
+ - My heart broke open and history fell in.
+ - A thing that happens to migrants is that they lose many of the traditional things which root identity, which root the self.
+ - So when I studied history at Cambridge, I did a special subject in that, exactly that. And then actually that – while I was studying it was where I came across the so-called incident of the satanic verses.
+ - Rock and roll music – the music of freedom frightens people and unleashes all manner of conservative defense mechanisms.
+ - In early Islam, it was an absolute tenet that the prophet was not to be worshipped. The prophet was a messenger. And one of the things that’s happened in Islam is this cult of the prophet, which to my view is counter to the original tradition.
+ - If the culture shifts, if people think differently about women, the art will shift, too. You can’t ask art to make social change. It’s not what it’s for.
+ - India, the new myth – a collective fiction in which anything was possible, a fable rivalled only by the two other mighty fantasies: money and God.
+ - I do not envy people who think they have a complete explanation of the world, for the simple reason that they are obviously wrong.
+ - Too many people spouting too many words, and in the end those words will turn to bullets and stones.
+ - Your blasphemy, Salman, can’t be forgiven. To set your words against the Words of God.
+ - An attack upon our ability to tell stories is not just censorship – it is a crime against our nature as human beings.
+ - Stories in families are colossally important. Every family has stories: some funny, some proud, some embarrassing, some shameful. Knowing them is proof of belonging to the family.
+ - The West was involved in toppling the Mossadegh government. That ultimately led to the Iranian revolution.
+ - If you take a look at history, you will find that the understanding of what is good and evil has always existed before the individual religions. The religions were only invented by people afterwards, in order to express this idea.
+ - The inevitable triumph of illusion over reality that was the single most obvious truth about the history of the human race.
+ - Once you put a thought into the world, it can be disagreed with, but it can’t be unthought.
+ - British society has never been cleansed of the filth of imperialism.
+ - Speaking as somebody with three sisters and a very largely female Muslim family, there is not a single woman I know in my family or in their friends who would have accepted the wearing of a veil.
+ - Having been borne across the world, we are translated men. It is normally supposed that something always gets lost in translation; I cling, obstinately, to the notion that something can also be gained.
+ - There is nothing like a War for the reinvention of lives...
+ - Why speak if you can’t manage perfect thoughts, perfect sentences?
+ - Cruelty is not a literary value.
+ - I’m not a very big fan of ‘Slumdog Millionaire.’ I think it’s visually brilliant. But I have problems with the story line. I find the storyline unconvincing.
+ - Books choose their authors; the act of creation is not entirely a rational and conscious one.
+ - Language upon a silvered tongue affords enchantment enough.
+ - Free-form games in which the player can make choices about what the game is going to be, become a kind of gaming equivalent of the narrative possibility.
+ - The history of a culture can be determined by its untranslatable words.
+ - So India’s problem turns out to be the world’s problem. What happened in India has happened in God’s name. The problem’s name is God.
+ - I make no complaint. I am a writer. I do not accept my condition; I will strive to change it; but I inhabit it, I am trying to learn from it.
+ - Everything has shape, if you look for it. There is no escape from form.
+ - When I was growing up, everyone around me was fond of fooling around with words. It was certainly common in my family, but I think it is typical of Bombay, and maybe of India, that there is a sense of play in the way people use language.
+ - The acceptance that all that is solid has melted into the air, that reality and morality are not givens but imperfect human constructs, is the point from which fiction begins.
+ - Originality is dangerous. It challenges, questions, overturns assumptions, unsettles moral codes.
+ - Human beings do not perceive things whole; we are not gods but wounded creatures, cracked lenses, capably only of fractured perceptions. Partial beings, in all the senses of that phrase.
+ - We are described into corners, and then we must describe ourselves out of corners.
+ - There is no magic on earth strong enough to wipe out the legacies of one’s parents.
+ - To see things plainly, you have to cross a frontier.
+ - When I was writing ‘The Satanic Verses,’ if you had asked me about the phenomenon that we all now know as radical Islam, I wouldn’t have had much to say. As recently as the mid-1980s, it didn’t seem to be a big deal.
+ - It may be argued that the past is a country from which we have all emigrated, that its loss is part of our common humanity.
+ - Our lives, our stories, flowed into one another’s, were no longer our own, individual, discrete.
+ - I’m a big-city boy. What I like is big cities. It’s not just what I like. It’s what I write about.
+ - Free societies are societies in motion, and with motion comes friction.
+ - We must agree on what matters: kissing in public places, bacon sandwiches, disagreement, cutting-edge fashion, literature, generosity, water, a more equitable distribution of the world’s resources, movies, music, freedom of thought, beauty, love.
+ - The history of life was not the bumbling progress – the very English, middle-class progress – Victorian thought had wanted it to be, but violent, a thing of dramatic, cumulative transformations: in the old formulation, more revolution than evolution.
+ - I have been a film buff all my life and believe that the finest cinema is fully the equal of the best novels.
+ - I grew up in a family in which there was very little religion. My father wasn’t religious at all. But he was really interested in the subject of, you know, the birth and growth of Islam. And he basically transmitted that interest to me.
+ - You never know the answers to the questions of life until you are asked.
+ - I think that a lot of us, whether we are religious or not – there are no words to express some things except religious words. For instance, ‘soul.’
+ - Anyone who has had the experience of going through American security checks knows the purpose of these checks is not to make you safer; it’s just to annoy you.
+ - If Woody Allen were a Muslim, he’d be dead by now.
+ - What happened in Pakistan was that people were told: You’re all Muslim, so now you’re a country. As we saw in 1971 with the Bangladesh secession, the answer to that was: ‘Oh no, we’re not.’
+ - The Republicans were not always insane. They might’ve had politics I didn’t agree with, but they weren’t always actually certifiable.
+ - It is commonly and, I believe, accurately said of Pakistan that her women are much more impressive than her men.
+ - Exile is a dream of a glorious return. Exile is a vision of revolution: Elba, not St Helena. It is an endless paradox: looking forward by always looking back. The exile is a ball hurled high into the air.
+ - Bin Laden was born filthy rich and died in a rich man’s house, which he had painstakingly built to the highest specifications.
+ - The Muslim population in India is, largely speaking, not radicalised. From the beginning, they were always very secular-minded.
+ - I fell victim to the temptation of every autobiographer, to the illusion that since the past exists only in one’s memories and the words which strive vainly to encapsulate them, it is possible to create past events simply by saying they occurred.
+ - A relationship with an imaginary woman is preferable to a relationship with a real one.
+ - One either loves, or waits for love, or banishes love for good. That is the full range of possible choices.
+ - Airport security exists to guard us against terrorist attacks.
+ - In this world without quiet corners, there can be no easy escapes from history, from hullabaloo, from terrible, unquiet fuss.
+ - Names, once they are in common use, quickly become mere sounds, their etymology being buried, like so many of the earth’s marvels, beneath the dust of habit.
+ - I am on Facebook, but mainly as a way to spy on my children. I find out more about them from their Facebook pages than from what they tell me.
+ - When ‘Midnight’s Children’ came out, people in the West tended to respond to the fantasy elements in the novel, to praise it in those terms. In India, people read it like a history book.
+ - It’s one thing to say, ‘I don’t like what you said to me and I find it rude and offensive,’ but the moment you threaten violence in return, you’ve taken it to another level, where you lose whatever credibility you had.
+ - The whole story of migration and what that has done in interconnecting the planet is obviously something I’ve written about a lot.
+ - What you were is forever who you are.
+ - But love is what we want, not freedom. Who then is the unluckier man? The beloved, who is given his heart’s desire and must for ever after fear its loss, or the free man, with his unlooked-for liberty, naked and alone between the captive armies of the earth?
+ - A book is not completed till it’s read.
+ - What I’ve always seen in writers and artists is the courage it takes to make an original work of art. I think the real risks in literature are linguistic and intellectual, and I hope we can highlight those, as well as political courage.
+ - I was very happy in Bombay. I was good at school. There was no reason to change anything. I suppose it must have been some spirit of adventure, of wanting to see the world.
+ - In the experience of art, time seems not to exist. When I’m writing and think, “I’ve been working for two hours,” I’ve actually been working for seven.
+ - My children are English, and both of their mothers were English.
+ - The sixty-minute drama form has become very rich.
+ - I always thought the front line was the bookstores. And bookstores around America, around the world did astonishingly well. They held the line. They didn’t chicken out. You know, they defended the book. They kept it in the front of the store.
+ - I get a lot of letters – a lot of letters saying, who knew that you were funny?
+ - I write books I’d enjoy reading, I’m the reader standing behind my shoulder.
+ - I’ve never yet managed to write a novel which didn’t have an Indian central character.
+ - Sometimes you find your voice by trying to write like people, and sometimes you find it by trying to write unlike people.
+ - A poet’s work is to name the unnameable, to point at frauds, to take sides, start arguments, shape the world, and stop it going to sleep.
+ - Mo Yan is the Chinese equivalent of the Soviet Russian apparatchik writer Mikhail Sholokhov: a patsy of the regime.
+ - The problem’s name is God.
+ - The glamour of being forbidden must not be underestimated.
+ - I do think of Bombay as my hometown. Those are the streets I walked when I was learning to walk. And it’s the place that my imagination has returned to more than anywhere else.
+ - The worst, most insidious effect of censorship is that, in the end, it can deaden the imagination of the people. Where there is no debate, it is hard to go on remembering, every day, that there is a suppressed side to every argument.
+ - Not all possibilities are open to us. The world is finite; our hopes spill over its rim.
+ - The only privilege literature deserves – and this privilege it requires in order to exist – is the privilege of being in the arena of discourse, the place where the struggle of our languages can be acted out.
+ - If there were Israeli attacks on Iranian nuclear facilities, it makes it certain there would be a reprisal attack against the United States at some point.
+ - No story comes from nowhere; new stories are born from old.
+ - I’ve never read anything so badly written that got published. It made ‘Twilight’ look like ‘War and Peace.’
+ - One of the extraordinary things about human events is that the unthinkable becomes thinkable.
+ - If I had simply wanted to trade on an insult to Islam, I could have done it in a sentence rather than writing a 250,000-word novel, a work of fiction.
+ - My grandmother was very fierce and gruff. She was quite small, but she was very wide.
+ - The only way of living in a free society is to feel that you have the right to say and do stuff.
+ - Reading is a very different thing than performing. In fact, one of the things I think that doesn’t work in books on tape is if the person doing the reading “acts” too much; it becomes irritating to you listening to it.
+ - I think the book is less emotional than the film. With the film, the emotions are much more raw and in front. In the book, they are kind of ironized and seen through comedy.
+ - Terror is glamour – not only, but also. I am firmly convinced that there’s something like a fascination with death among suicide bombers.
+ - We all dream things into being; you imagine yourself having a child, and then you have a child. An inventor will think of something in his mind and then make it actual. So things are often passing from the imagined realm into the real world.
+ - There is nothing intrinsic linking any religion with any act of violence. The crusades don’t prove that Christianity was violent. The Inquisition doesn’t prove that Christianity tortures people. But that Christianity did torture people.
+ - Too many people had spent too long demonizing or totemizing me to listen seriously to what I had to say.
+ - Realism can break a writer’s heart.
+ - For a fellow who’s not to much to look at, you have the instincts of a champion.
+ - Sometimes great, banned works defy the censor’s description and impose themselves on the world – ‘Ulysses,’ ‘Lolita,’ the ‘Arabian Nights.’
+ - Many of us didn’t believe in the image of bin Laden as a wandering Old Man of the Mountains, living on plants and insects in an inhospitable cave somewhere on the porous Pakistan-Afghan border.
+ - England in a way is lucky. It’s an island, so the frontiers are given by the sea.
+ - Fundamentalism isn’t about religion, it’s about power.
+ - I saw Quentin Tarantino’s ‘Django Unchained,’ and you could say a lot of things against it, but it was incredible fun. I don’t like blood and gore, and I am very squeamish about violence, but Tarantino’s violence is actually funny.
+ - If somebody’s trying to shut you up, sing louder, and if possible, better.
+ - I have always thought that these two ways of talking, one is the fantastic, the fable, the fairy tale, and the other being history, the scholarly study of what happened, I think they’re both amazing ways to understand human nature.
+ - I am gagged and imprisoned. I can’t even speak. I want to kick a football in a park with my son. Ordinary, banal life: my impossible dream.
+ - I think the veil is a way of taking power away from women.
+ - Hell is other people’s fantasies...
+ - Many men start being friendly with women because they are trying to seduce them. I’m not trying to seduce them. I just like hanging out with them.
+ - Religion, a medieval form of unreason, when combined with modern weaponry becomes a real threat to our freedoms. This religious totalitarianism has caused a deadly mutation in the heart of Islam and we see the tragic consequences in Paris today.
+ - It’s so disappointing, to put it mildly, that people know so much about my life. Because it means that they’re always trying to look at my books in terms of my life.
+ - We crave permission openly to become our secret selves.
+ - Only the foolish, blinded by language’s conventions, think of fire as red or gold. Fire is blue at it’s melancholy rim, green in it’s envious heart. It may burn white, or even, in it’s greatest rages, black.
+ - The only thing worse than a bad review from the Ayatollah Khomeini would be a good review from the Ayatollah Khomeini.
+ - Nobody wants to read a 600 page book in which the author is fabulous throughout.
+ - A man who catches History’s eye is thereafter bound to a mistress from whom he will never escape.
+ - In Iran, fundamentalism was fuelled to an extent by the regime of the Shah being supported by the West.
+ - I’m not a big fan of there being voiceovers in movies. I really prefer it when the film tells it story.
+ - I had a very difficult relationship with my father, which ended up okay, but there were many difficult years.
+ - There is no alternative to the peaceful coexistence of cultures.
+ - I would argue that religion comes from a desire to get to the questions of, ‘Where do we come from?’ and ‘How shall we live?’ And I would say I don’t need religion to answer those questions.
+ - I don’t think there is a need for an entity like God in my life.
+ - Believe in your own eyes and you’ll get into a lot of trouble, hot water, a mess.
+ - I’ll tell you what divorce hasn’t taught me. It didn’t teach me not to get married again.
+ - Chekhov is this poet of melancholy and isolation and of wishing you were somewhere else than where you are.
+ - People must be protected from prejudice against their person. But people cannot be protected from prejudice against their ideas – because otherwise we’re all done.
+ - Anyone who reads my work will see that there are often difficult relationships between fathers and sons.
+ - I did a lot of student acting when I was young.
+ - It may be that the books that were best liked in your lifetime are not the ones that are best liked 100 years later.
+ - In the movies, the writer is just the servant, the employee.
+ - Freedom to reject is the only freedom.
+ - Sometimes I think that when people become famous, there’s a public perception that they are not human beings any more. They don’t have feelings; they don’t get hurt; you can act and say as you like about them.
+ - The people suffering most from the Taliban were Afghans.
+ - Few topographical boundaries can rival the frontiers of the mind.
+ - My first novel – the novel I wrote before ‘Midnight’s Children’ – feels, to me, now, very – I mean, I get embarrassed when I see people reading it. You know, there are some people who, bizarrely, like it. Which I’m, you know, I’m happy for.
+ - Censorship is the thing that stops you doing what you want to do, and what writers want to talk about is what they do, not what stops them doing it.
+ - I for one don’t need a supreme “sacred” arbiter in order to be a moral being.
+ - A people that has remained convinced of its greatness and invulnerability, that has chosen to believe such a myth in the face of all the evidence, is a people in the grip of a kind of sleep, or madness.
+ - I think anyone who knows me at all knows that I have been a movie addict all my life. I grew up in a city obsessed by cinema and where there are cinemas on every street corner.
+ - Original thought, original artistic expression is by its very nature questioning, irreverent, iconoclastic.
+ - I am clearly vulnerable to these more passionate and volatile unstable relationships. I am trying to not be so vulnerable.
+ - We who have grown up on a diet of honour and shame can still grasp what must seem unthinkable to people living in the aftermath of the death of God and of tragedy: that men will sacrifice their dearest love on the implacable altars of their pride.
+ - As human knowledge has grown, it has also become plain that every religious story ever told about how we got here is quite simply wrong. This, finally, is what all religions have in common. They didn’t get it right.
+ - My horizon’s have shrunk and I have only endings to write.
+ - There is a widespread difficulty in the Muslim world, which has to do with how the people are taught about examining their own history. A whole range of stuff has been placed off limits.
+ - I do have a lot of time for people in my life, and friendship is a very important subject for me. I think I’m unusual among the writers I know in that respect.
+ - Discovery is fun. I am incredibly open to everything.
+ - I hate admitting that my enemies have a point.
+ - Sometimes when you finish a book, you don’t know quite what you’ve got.
+ - The thing that I think was very brave of my younger self was that he decided he would be an idiot. Just persevere. That feels brave to me: deciding that I’m going to damn well be this person that I’ve set my heart on being.
+ - We were language’s magpies by nature, stealing whatever sounded bright and shiny.
+ - A man is sane only to the extent that he subscribes to a previously-agreed construction of reality.
+ - I do not need the idea of God to explain the world I live in.
+ - What distinguishes a great artist from a weak one is first their sensibility and tenderness; second, their imagination, and third, their industry.
+ - I have always thought, the secret purpose of the book tour is to make the writer hate the book he’s written. And, as a result, drive him to write another book.
+ - You don’t fight radical conservatism with not-quite-so radical conservatism.
+ - What kind of God is it who’s upset by a cartoon in Danish?
+ - Out-of-step intellectuals like Noam Chomsky and the deceased Edward Said have often been dismissed as crazy extremists, ‘anti-American,’ and in Mr. Said’s case even, absurdly, as apologists for Palestinian ‘terrorism.’
+ - India is my kid sister.
+ - The enemy for the fanatic is pleasure, which makes it extremely important to continue to indulge in pleasure. Dance madly. That is how you get rid of terrorism.
+ - Human beings understand themselves and shape their futures by arguing and challenging and questioning and saying the un-sayable, not by bowing the knee whether to gods or to men.
+ - I’ve met the Dalai Lama briefly, but I would probably say my grandfather was the wisest person I ever met. He was my mother’s father, an Indian, a family doctor, and very unlike me in that he was deeply religious.
+ - Very often, people who actually pick up a book of mine for the first time are kind of surprised. And I get these letters saying, well, who knew that you were good, you know?
+ - When we stop believing in the gods we can start believing in their stories.
+ - The Christian Coalition is still about Christianity, even if it’s an idea of Christianity that many Christians might not go along with.
+ - Why obliterate the exceptional merely in order to make the outstanding look finer than it was?
+ - It is often said by religious people that without its framework, there is no sense of right or wrong. My view is that religion comes after ethics.
+ - Between shame and shamelessness lies the axis upon which we turn; meteorological conditions at both these poles are of the most extreme, ferocious type. Shamelessness, shame: the roots of violence.
+ - Matthew Wiener on ‘Mad Men’ writes the entire series before they start shooting, and if you have that, then what you can do with character and story is not at all unlike what you can do in a novel.
+ - We are the only animals that tell stories to understand the world we live in.
+ - Children like being a little scared, but they don’t want to be disturbed.
+ - Once you get that instinct for the fictiveness, the fictionality of fiction, it kind of sets you free.
+ - Acting was always my unscratched itch, when I was in college and even afterwards.
+ - If you actually want to change your world, there is a better way of doing it than blowing yourself up.
+ - Wherever goodness lay, it did not lie in ritual, unthinking obeisance before a deity but rather, perhaps, in the slow clumsy, error-strewn working out of an individual or collective path.
+ - I only met Margaret Thatcher twice. The thing that I thought about meeting her was how extraordinarily intelligent she was. You really had to be on your game; otherwise, she’d make mincemeat of you.
+ - Doubt, it seems to me, is the central condition of a human being in the twentieth century.
+ - I’ve never rejected the world I came from. To be rejected by it is horrible.
+ - Ideas are interesting to me, and religions are a place where ideas have been very subtly embodied for thousands of years. All literature started as sacred literature.
+ - You start at the stupid end of the book, and if you’re lucky you finish at the smart end.
+ - All art began as sacred art, you know? I mean, all painting began as religious painting. All writing began as religious writing.
+ - We live in a frightened time, and people self-censor all the time and are afraid of going into some subjects because they are worried about violent reactions.
+ - If the creative artist worries if he will still be free tomorrow, then he will not be free today.
+ - The lessons one learns at school are not always the ones the school thinks it’s teaching.
+ - The problem of telling contemporary history is that your message gets outdated.
+ - I think if we wish to live in any kind of a moral universe, we must hold the perpetrators of violence responsible for the violence they perpetrate. It’s very simple. The criminal is responsible for the crime.
+ - If you have children, you worry about the world you’re leaving them.
+ - I have had many more close women friends than men, and I’ve always assumed that comes from the fact that in my family there was such a disproportionate female element.
+ - Fundamentalists of all faiths are the fundamental evil of our time.
+ - I’m definitely post-something.
+ - In the real world, immeasurable hurt is caused by terrorists based in Pakistan who attack countries like India.
+ - The world, somebody wrote, is the place we prove real by dying in it.
+ - The Koran was revealed at a time of great change in the Arab world, the seventh-century shift from a matriarchal nomadic culture to an urban patriarchal system.
+ - I’ve always prided myself on my discipline as a writer. I do it like a job. I get up in the morning and go to my desk.
+ - There’s a lot of conflict and darkness inside everybody’s family. We all pretend to outsiders that it’s not so, but behind locked doors, there are usually high emotions running.
+ - Science fiction is where I started out, really. When I was a kid, I was a complete addict of science fiction. It was one of my earliest interests as a writer, and I’ve just taken a long time to circle back around to it.
+ - The answer to religion is not no religion, but another way of thinking of it. Another way of being in it.
+ - I don’t feel American. I do feel like a New Yorker. I think there’s a real distinction there. A city allows you to become a citizen even when you’re not a national.
+ - YouTube is full of pieces of trash. If you want to look on YouTube and find something that insults you, you can probably find it.
+ - You can adhere to your faith, but that faith needs to march in line with the rest of the world and needs to find a way of expressing itself in the modern world.
+ - The great concern is that year after year, rising numbers of journalists are being killed in pursuit of their work. They are increasingly seen as not being neutral but rather as combatants by one side or the other.
+ - I’m a world expert on superhero comics. I think maybe only Michael Chabon knows more than me.
+ - If I were asked for a one-sentence sound bite on religion, I would say I was against it.
+ - You can’t have modern states based on ideas which have been out of date for a thousand years.
+ - Everybody loves ‘The Wire,’ and I think it’s okay, but in the end it’s just a police series.
+ - I don’t like books that play to the gallery, but I’ve become more concerned with telling a story as clearly and engagingly as I can.
+ - In general, writers shouldn’t be killed for what they write, though I can think of exceptions.
+ - I don’t read my books, I write them. Once I’ve finished the many years it usually takes me to write them, I can’t bear to read them, because I’ve spent too long with them already. I’m not advertising them very well, am I?
+ - I do think there was a period there when my sanity was under intense pressure, and I didn’t know what to say or do or how to act. I was literally living from day to day.
+ - I think people direct good films when they feel personal to them, not because it’s a famous book or something. It has to something move over that and somehow become personal to the director.
+ - I’m no friend of Tony Blair’s and I consider the Middle East policies of the United States and the UK fatal.
+ - All my adult life, if I didn’t have several hours a day to sit in a room by myself, I would get antsy and irritable.
+ - It’s always been colossally important to me that my books should be well received in India. It’s where I come from.
+ - I think that England made a very big, historical mistake to allow itself to become the kind of terrorist capital of the world.
+ - You want all your books to stick around after you’ve gone.
+ - The Chinese are good at repression and can be pretty ruthless about it.
+ - Is birth always a fall?
+ - The thing about literature is that, yes, there are kind of tides of fashion, you know; people come in and out of fashion; writers who are very celebrated fall into, you know, people you know stop reading them, and then it comes back again.
+ - There needs to be a thorough examination, by Muslims everywhere, of why it is that the faith they love breeds so many violent mutant strains.
+ - I stand with Charlie Hebdo, as we all must, to defend the art of satire.
+ - The idea of the sacred is quite simply one of the most conservative notions in any culture, because it seeks to turn other ideas – uncertainty, progress, change – into crimes.
+ - I became a writer because I got addicted to story. The first storyteller in my life was my father.
+ - I have no problem with people’s religious beliefs. I just don’t happen to have any.
+ - I grew up reading ‘The Jungle Books’ and loving them.
+ - A novel, I think, is partly about the contemporary and partly about the eternal, and it’s the balance of that that’s difficult to achieve.
+ - Have you noticed the physical resemblance between Imran Khan and Gaddafi? If you were making a movie of the life of Gaddafi and you wanted a slightly better-looking version of Gaddafi, you might cast Imran Khan.
+ - Certainly, the Hollywood cinema, there’s almost nothing of interest coming out of there.
+ - It’s true that the human body is more vulnerable than the products of the human mind.
+ - When you are making an independent film, money is never an issue.
+ - Sometimes writing a novel is not unlike having a baby. You’d have to ask a female novelist to compare the pain.
+ - I’m a novelist. Fortunately I don’t have to rule the world.
+ - The mistake of the West was to put the Sauds on the throne of Saudi Arabia and give them control of the world’s oil fortune, which they then used to propagate Wahhabi Islam.
+ - But I – and I just think it’s very – one of the problems of defending the extraordinary principle of freedom of speech is that you have to defend freedom of speech for people like that too.
+ - The world is about the way in which our dreams intersect with our real life. Endlessly, the world of the imagination changes the world.
+ - Be sure that you go to the author to get at his meaning, not to find yours.
+ - I have to say that after some initial resistance, I’m now a complete ‘Game of Thrones’ addict.
+ - You don’t that often see writers being sought out when there are matters of great moment to discuss. And I think that’s a loss.
+ - Obviously, a rigid, blinkered, absolutist world view is the easiest to keep hold of, whereas the fluid, uncertain, metamorphic picture I’ve always carried about is rather more vulnerable.
+ - Throughout human history, the apostles of purity, those who have claimed to possess a total explanation, have wrought havoc among mere mixed-up human beings.
+ - Normally when I read, I don’t like music playing.
+ - The suicide bomber’s imagination leads him to believe in a brilliant act of heroism, when in fact he is simply blowing himself up pointlessly and taking other people’s lives.
+ - No, I don’t think it’s fair to label Islam ‘violent.’ But I will say that to my knowledge, no writer has ever gone into hiding for criticizing the Amish.
+ - A book is a version of the world. If you do not like it, ignore it; or offer your own version in return.
+ - I have never really thought of myself as a writer about religion. And I think one of the things that happened to me as a result of all that is that I think it did for some people, many people, obscure the kind of writer that I actually am.
+ - There is a point beyond which conciliation looks like capitulation. I do not believe I passed that point, but others have thought otherwise.
+ - If bigots behave like bigots, it’s not a huge surprise.
+ - Someone asked me if I was afraid to write my memoirs. I told him: ‘We have to stop drawing up accounts of fear! We live in a society in which people are allowed to tell their story, and that is what I do.’
+ - And so it is they who, between them, give me all the reasons for believing in none.
+ - The only way to find out why someone decides to engage in armed combat is to look at their individual personality.
+ - In television, the 60-minute series, ‘The Wire’ and ‘Mad Men’ and so on, the writer is the primary creative artist.
+ - The thing I really like about Twitter is the speed with which information reaches me. You find out things from Twitter long before they’re on the news. That, I think, is valuable.
+ - What I’ve always tried to find in my books are points at which the private lives of the characters, and also my own, intersect with the public life of the culture.
+ - You can’t judge an internal injury by the size of the hole.
+ - It seems that the right of freedom of speech that was enshrined in numerous constitutions is now under attack by religious institutions.
+ - Like everybody else, I’ve had relationships in which I was passionately in love but was completely miserable all the time and didn’t trust the person I was in love with one inch.
+ - It’s obvious that I come down on the side of free speech for anybody’s work.
+ - I remember when I was young, many cities in the Muslim world were cosmopolitan cities with a lot of culture.
+ - When you start writing about the stuff that is the central experience of your own life, you can talk about whatever you want, in whatever way you want.
+ - If a birth is the fall-out from the explosion caused by the union of two unstable elements, then perhaps a half-life is all we can expect.
+ - This strange business of what it is to be a writer is this increasingly insane world in which we live, in which surrealism, it seems, is the new realism.
+ - Religion is responsible for a lot of the problems in the history of the world and it’s not something that I practice or recommend, but to each his own.
+ - Before I came to England, my favorite authors were P. G. Wodehouse and Agatha Christie. I used to devour both.
+ - Writers have been in terrible situations and have yet managed to produce extraordinary work.
+ - In a novel, if you’re any good, you don’t just have good people or bad people. You have complicated people. You have real people.
+ - The way you write a screenplay is that you close your eyes and run the movie in your head and then you write it down.
+ - The interesting thing about history sometimes. is that you know these people existed, and you knew what jobs they did, but you don’t know much about them as people, so you actually have to make them up.
+ - Raif Badawi’s is an important voice for all of us to hear.
+ - What one writer can make in the solitude of one room is something no power can easily destroy.
+ - If I were dead, then nobody in England would have to fuss about the cost of my security and whether or not I merited such special treatment for so long.
+ - He had picked up languages the way most sailors pick up diseases; languages were his gonorrhoea, his syphilis, his scurvy, his ague, his plague.
+ - I discovered that if you find the language to talk to younger readers, children can accept anything.
+ - It’s Kennedy’s war, Vietnam. Lyndon Johnson got all the flak, but it’s Kennedy’s war.
+ - In the waking dreams our societies permit, in our myths, our arts, our songs, we celebrate the nonbelongers, the different ones, the outlaws, the freaks.
+ - Such is the miraculous nature of the future of exiles: what is first uttered in the impotence of an overheated apartment becomes the fate of nations.
+ - Look at history. It’s not the account of a species at peace.
+ - History could claw upward as well as down. The powerful could be deafened by the cries of the poor.
+ - The writers of the French enlightenment had deliberately used blasphemy as a weapon, refusing to accept the power of the Church to set limiting points on thought.
+ - We must conclude that it is not only a particular political ideology that has failed, but the idea that men and women could ever define themselves in terms that exclude their spiritual needs.
+ - When you write, you write out of your best self. Everything else drops away.
+ - Until you know who you are you can’t write.
+ - I didn’t become a writer to write about me.
+ - I do think that there is such a thing as human nature, and that the things that we have in common are perhaps greater than the things that divide us.
+ - If Turkey wants to join Europe, it will have to become a European country, and that might take a long time.
+ - Our lives are not what we deserve; they are, let us agree, in many ways deficient.
+ - It just requires so much of you, and most of the time you feel dumb.
+ - I don’t know what to say about literary critics. I think it’s probably best to say nothing.
+ - The publishing of a book is a worldwide event. The attempt to suppress a book is a worldwide event.
+ - Science fiction is always a vehicle for ideas. It’s the form which allows either movies or books to be an exploration of how we should live.
+ - Killing people because you don’t like their ideas – it’s a bad thing.
+ - Writers have an opinion about the world and offer arguments about the world. They should offer contemplation.
+ - People are always telling me that they’ve seen people reading my books on the subway, or the beach, or whenever.
+ - The USA approach looks like bullying because it is.
+ - The West sees Iran as an important force in the gulf.
+ - I’ve never had very high regard for therapists. I owe my health, my mental survival, to my friends and loved ones.
+ - The novel does not seek to establish a privileged language but it insists upon the freedom to portray and analyze the struggle between the different contestants for such privileges.
+
+432 quotes

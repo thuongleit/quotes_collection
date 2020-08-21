@@ -1,0 +1,59 @@
+ - I am patient with stupidity but not with those who are proud of it.
+ - Poetry ennobles the heart and the eyes, and unveils the meaning of all things upon which the heart and the eyes dwell. It discovers the secret rays of the universe, and restores to us forgotten paradises.
+ - Winter is the time for comfort, for good food and warmth, for the touch of a friendly hand and for a talk beside the fire: it is the time for home.
+ - There is no truth. Only points of view.
+ - My poems are hymns of praise to the glory of life.
+ - The public will believe anything, so long as it is not founded on truth.
+ - My temper is not spoilt. I am absolutely non-homicidal. Nor do I ever attack unless I have been attacked first, and then Heaven have mercy upon the attacker, because I don’t! I just sharpen my wits on a wooden head as a cat sharpens its claws on the wood legs of a table.
+ - My personal hobbies are reading, listening to music, and silence.
+ - I am not eccentric. It’s just that I am more alive than most people. I am an unpopular electric eel set in a pond of catfish.
+ - If one is a greyhound, why try to look like a Pekingese?
+ - Rhythm is one of the principal translators between dream and reality. Rhythm might be described as, to the world of sound, what light is to the world of sight. It shapes and gives new meaning. Rhythm was described by Schopenhauer as melody deprived of its pitch.
+ - Still falls the rain – dark as the world of man, black as our loss – blind as the nineteen hundred and forty nails upon the Cross.
+ - I am an unpopular electric eel in a pool of catfish.
+ - Eccentricity is not, as some would believe, a form of madness. It is often a kind of innocent pride, and the man of genius and the aristocrat are frequently regarded as eccentrics because genius and aristocrat are entirely unafraid of and uninfluenced by the opinions and vagaries of the crowd.
+ - Winter is the time for comfort – it is the time for home.
+ - Vulgarity is, in reality, nothing but a modern, chic, pert descendant of the goddess Dullness.
+ - Virginia Woolf, I enjoyed talking to her, but thought nothing of her writing. I considered her ’a beautiful little knitter.
+ - Good taste is the worst vice ever invented.
+ - I’m dying, but otherwise I’m in very good health.
+ - Rhythm is one of the principal translators between dream and reality.
+ - Why not be oneself? That is the whole secret of a successful appearance. If one is a greyhound why try to look like a Pekinese?
+ - Picasso was a delightful, kindly, friendly, simple little man. When I met him he was extremely excited and overjoyed that his mother-in-law had just died, and he was looking forward to the funeral.
+ - I have never, in all my life, been so odious as to regard myself as ‘superior’ to any living being, human or animal. I just walked alone – as I have always walked alone.
+ - A great many people now reading and writing would be better employed keeping rabbits.
+ - As for the usefulness of poetry, its uses are many. It is the deification of reality. It should make our days holy to us. The poet should speak to all men, for a moment, of that other life of theirs that they have smothered and forgotten.
+ - One’s own surroundings means so much to one, when one is feeling miserable.
+ - What an artist is for is to tell us what we see but do not know that we see.
+ - The poet speaks to all men of that other life of theirs that they have smothered and forgotten.
+ - All great poetry is dipped in the dyes of the heart...
+ - The child and the great artist – these alone receive the sensation fresh as it was at the beginning of the world.
+ - Art is magic, not logic. This craze for the logical spirit in irrational shape is part of the present harmful mania for uniformity...
+ - I’m afraid I’m being an awful nuisance.
+ - By ‘happiness’ I do not mean worldly success or outside approval, though it would be priggish to deny that both these things are most agreeable. I mean the inner consciousness, the inner conviction that one is doing well the thing that one is best fitted to do by nature.
+ - Another little drink wouldn’t do us any harm.
+ - Said the Sun to the Moon-’When you are but a lonely white crone, And I, a dead King in my golden armour somewhere in a dark wood, Remember only this of our hopeless love That never till Time is done Will the fire of the heart and the fire of the mind be one.
+ - Virginia Woolf’s writing is no more than glamorous knitting. I believe she must have a pattern somewhere.
+ - Poetry is the deification of reality.
+ - What the reporters are like! They are mad with excitement at the thought of my approaching demise. Kind Sister Farquhar, my nurse, spends much of her time in throwing them downstairs. But one got in the other day, and asked me if I mind the fact that I must die.
+ - Hot water is my native element. I was in it as a baby, and I have never seemed to get out of it ever since.
+ - When we think of cruelty, we must try to remember the stupidity, the envy, the frustration from which it has arisen.
+ - I’m not the man to balk at a low smell, I not the man to insist on asphodel. This sounds like a He-fellow, don’t you think? It sounds like that. I belch, I bawl, I drink.
+ - White as a winding sheet, Masks blowing down the street: Moscow, Paris London, Vienna all are undone. The drums of death are mumbling, rumbling, and tumbling, Mumbling, rumbling, and tumbling, The world’s floors are quaking, crumbling and breaking.
+ - It is hardly respectable to be good nowadays.
+ - What is the special privilege of youth? It is, I think, the power of looking forward, the firm belief that the future holds something that is worth possessing, and that, therefore, one can let the present moment drop from one without regret and without fear.
+ - I wish the government would put a tax on pianos for the incompetent.
+ - All great art contains an element of the irrational.
+ - Tall windows show Infinity; And, hard reality, The candles weep and pry and dance Like lives mocked at by Chance. The rooms are vast as Sleep within; When once I ventured in, Chill Silence, like a surging sea, Slowly enveloped me.
+ - The aim of flattery is to soothe and encourage us by assuring us of the truth of an opinion we have already formed about ourselves.
+ - By the time I was eleven years old, I had been taught that nature, far from abhorring a Vacuum, positively adores it.
+ - The poet is the complete lover of mankind.
+ - People are usually made Dames for virtues I do not possess.
+ - If certain critics and poetasters had their way, ‘Ordinary Piety’ and its child, Dullness, would be the masters of poetry.
+ - I am one of those unhappy persons who inspire bores to the greatest flights of art.
+ - I may say that I think greed about poetry is the only permissible greed – it is, indeed, unavoidable.
+ - The poet is a brother speaking to a brother of “a moment of their other lives” a moment that had been buried beneath the dust of the busy world.
+ - I have taken this step because I want the discipline, the fire and the authority of the Church. I am hopelessly unworthy of it, but I hope to become worthy.
+ - The trouble with most Englishwomen is that they will dress as if they had been a mouse in a previous incarnation they do not want to attract attention.
+
+57 quotes

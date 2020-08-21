@@ -1,0 +1,37 @@
+ - I know I have great inner strength; I always have. I can blank things out, cut people out, and I know that I can go and live in a cave on my own if necessary.
+ - I can occupy myself quite easily with what’s going on inside me.
+ - You go though a period of immense pain when reality meets the dream.
+ - I can be seen as not being very communicative, or rather mysterious, or distant, or rather cold – all those things. Yeah, I know I can give off that impression. So I am that, too.
+ - A lot of young actors will do a scene and then run off and look at themselves. I don’t believe in that at all.
+ - There’s always a time for change, and you should never be frightened of it.
+ - By trying to control everything we become very neurotic, more and more desperate. It’s a huge tragic thing.
+ - I must explore desert ground and see what can grow. But there are limits. I know in my heart what I would never do.
+ - Ever since I was a small child, Ive had this feeling – its in my nature, and so its not even pretentious – that if everyones going one way, I will go the other, just by some kind of spirit of defiance.
+ - We all have loads of information. What an actor does is bring it to the surface. I jump without a net because that’s how I am. The information comes out because I am brave enough to allow it. I’m not brave as a human being in everyday life. I’m brave when I’m acting.
+ - I’d had a French education for three years, my father being in the army. From 9 to 12, I went to French school. I’ve been sort of part of the culture, part of the geography, since I was quite young – the imprint was there. And I loved it.
+ - I am fascinated by the whole process of what it’s like to be alive, whether it’s unbelievably uncomfortable and horrible or whether it’s quite nice.
+ - I felt very special in Paris, more special than I felt in London. I love London for different reasons. I’ve always been close to London, being English. But somehow there’s something special about living as an Englishwoman in Paris.
+ - French women have been made beautiful by the French people – they’re very aware of their bodies, the way they move and speak, they’re very confident of their sexuality. French society’s made them like that.
+ - Quite often in life, when a tragic event arrives it becomes a springboard for mirroring all other things in one’s life that one hasn’t come to terms with.
+ - Fashion is not trivial. It’s a huge industry and a big part of our lives. Fashion is about us – how we look and present ourselves, how we can change ourselves, and our perceptions. You can dress up to be quite glorious creatures – it’s all a very important part of life.
+ - What beauty brings is huge. It brings great privilege, great power and potential to do many things. If you are beautiful, doors open for you; people smile at you; you are accepted in places where others aren’t. So the relationship that people have with beauty, in a sense, is almost deforming.
+ - I did that film just so I could kiss Robert Redford.
+ - I regret not having enough training, I trained for a year at The Royal Court, but I very quickly went off to do films and television.
+ - You give, actually, what you have in your inner world through your emotion and feeling. That’s what you can give; it’s not so much about “acting” in a sense of playing something that’s very different to you.
+ - I know a lot about fear in itself, and lived with fear a lot. Lived with anxiety a lot, lived with the things that – most human beings, at some stage in their lives, are going to live with these feelings.
+ - Training is fabulous because it gives you a basis, a strong structure, so that when you’re unbelievably nervous and you think that you can’t get a word out, you will get the word out.
+ - There are moments when things just break apart and not really for very valid reasons, either. But they just change your life and make you go in different directions.
+ - You can never really judge your work because once it’s done, it’s done.
+ - To grieve is something extremely difficult, we don’t even know how to begin to grieve, and I don’t know how you can be taught to grieve.
+ - The process of filmmaking is very musical, you get into the rhythm and the rhythmics of how someone is, especially with Woody Allen who is very much into body language and body movement.
+ - A film based on a jolly good John Grisham book is fine, but I like to get a bit under the skin.
+ - You can’t fool an audience with lots of bits and pieces. You have to lead them somewhere.
+ - I am not qualified to be a Dame. To be Dame you have to represent England in a way that I don’t.
+ - European films were what it was about for me – the sensations I needed, the depth, the storytelling, the characters, the directors, and the freedom that you can’t really find in American films.
+ - One of the reasons I don’t see eye to eye with Women’s Lib is that women have it all on a plate if only they knew it. They don’t have to be pretty either.
+ - Doing cinema is not about watching yourself.
+ - I think that most actors don’t have very good opinions of themselves.
+ - If words don’t have vibration behind them, and a real feeling behind them, then they’re just words.
+ - You cannot watch yourself dispassionately.
+
+35 quotes

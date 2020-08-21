@@ -1,0 +1,45 @@
+ - Demons are like obedient dogs; they come when they are called.
+ - The terrible thing about the quest for truth is that you find it.
+ - The human mind is so complex and things are so tangled up with each other that, to explain a blade of straw, one would have to take to pieces an entire universe. A definition is a sack of flour compressed into a thimble.
+ - Very simple ideas lie within the reach only of complex minds.
+ - Art is the accomplice of love. Take love away and there is no longer art.
+ - Modesty is the delicate form of hypocrisy.
+ - Autumn is as joyful and sweet as an untimely end.
+ - A definition is a sack of flour compressed into a thimble.
+ - Since art is the expression of beauty and beauty can be understood only in the form of the material elements of the true idea it contains, art has become almost uniquely feminine. Beauty is woman, and also art is woman.
+ - Art includes everything that stimulates the desire to live; science, everything that sharpens the desire to know. Art, even the most disinterested, the most disembodied, is the auxiliary of life.
+ - Man begins by loving love and ends by loving a woman. Woman begins by loving a man and ends by loving love.
+ - An imbecile is never bored: he contemplates himself.
+ - It is well-nigh obvious that those who are in favor of the death penalty have more affinities with murderers than those who oppose it.
+ - We live less and less, and we learn more and more. Sensibility is surrendering to intelligence.
+ - Women still remember the first kiss after men have forgotten the last.
+ - And there is neither beginning nor end, nor past nor future; there is only a present, at the same time static and ephemeral, multiple and absolute. It is the vital ocean in which we all share, according to our strength, our needs or our desires.
+ - Good books are irrefutable, and bad books refute themselves.
+ - Art is the accomplice of love.
+ - To know what everyone knows is to know nothing.
+ - If the secret of being a bore is to tell all, the secret of pleasing is to say just enough to be -not understood, but divined.
+ - Art is the flower of life and, as seed, it gives back life.
+ - Money is the sign of liberty. To curse money is to curse liberty- to curse life, which is nothing, if it be not free.
+ - Of all the sexual aberrations, perhaps the most peculiar is chastity.
+ - For two thousand years Christianity has been telling us: life is death, death is life; it is high time to consult the dictionary.
+ - Each man must grant himself the emotions that he needs and the morality that suits him.
+ - The pleasure of being a scoundrel can be adequately savored in silence.
+ - In order to understand life it is not only necessary not to be indifferent to men, but not to be indifferent to flocks, to trees. One should be indifferent to nothing.
+ - Art includes everything that stimulates the desire to live.
+ - Industry has operated against the artisan in favor of the idler, and also in favor of capital and against labor. Any mechanical invention whatsoever has been more harmful to humanity than a century of war.
+ - Nothing exists except by virtue of a disequilibrium, an injustice. All existence is a theft paid for by other existences; no life flowers except on a cemetery.
+ - The ever-present phenomenon ceases to exist for our senses. It was a city dweller, or a prisoner, or a blind man suddenly given his sight, who first noted natural beauty.
+ - Two elements are needed to form a truth – a fact and an abstraction.
+ - God is not all that exists. God is all that does not exist.
+ - Thinking is hard work. One can’t bear burdens and ideas at the same time.
+ - Man associates ideas not according to logic or verifiable exactitude, but according to his pleasure and interests. It is for this reason that most truths are nothing but prejudices.
+ - Life is a series of sensations connected to different states of consciousness.
+ - Man, in spite of his tendency towards mendacity, has a great respect for what he calls the truth. Truth is his staff in his voyage through life; commonplaces are the bread in his bag and the wine in his jug.
+ - Knowledge has its end in itself, apart from any idea of life and propagation of the species.
+ - The woman who loves always smells good.
+ - Man has made use of his intelligence; he invented stupidity.
+ - Intelligence, that sublimation of the sensibility, that organ of the need to know, is sterilized sensibility.
+ - Most men who rail against women are railing at one woman only.
+ - Born of the sensibility, art sows and creates life in its turn.
+
+43 quotes

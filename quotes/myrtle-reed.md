@@ -1,0 +1,80 @@
+ - It all depends on the way you look at it. The point of view is everything in this world.
+ - Impermanence is the very essence of joy-the drop of bitterness that enables one to perceive the sweet.
+ - The body grows by food and work, the mind by use, and the soul through joy and pain.
+ - Gossip is the social mosquito.
+ - Womankind suffers from three delusions: marriage will reform a man, a rejected lover is heartbroken for life, and if the other women were only out of the way, he would come back.
+ - Of all the things that make for happiness, the love of books comes first. No matter how the world may have used us, sure solace lies there.
+ - Making an issue of a little thing is one of the surest ways to spoil happiness.
+ - May our house always be too small to hold all of our friends.
+ - Love is an orchid which thrives principally on hot air.
+ - In every life there is a perfect moment, like a flash of sun. We can shape our days by that, if we will – before by faith, and afterward by memory.
+ - The appointed thing comes at the appointed time in the appointed way.
+ - I’ve just washed my hair and I can’t do a thing with it!
+ - When the years bring wisdom, one learns to leave many problems to their own working out.
+ - A book, unlike any other friend, will wait, not only upon the hour but upon the mood.
+ - After the door of a woman’s heart has once swung on its silent hinges, a man thinks he can prop it open with a brick and go away and leave it.
+ - One of the most interesting things in the world to me is the vast difference between what people say they are going to do, and what they actually do.
+ - Money may not be your best friend, but it’s the quickest to act, and seems to be favorably recognized in more places than most friends are.
+ - Somewhere on this great world the sun is always shining, and it will sometimes shine on you.
+ - A real love letter is absolutely ridiculous to everyone except the writer and the recipient.
+ - Conceit is lovable and unconcealed ; vanity is supreme selfishness, usually hidden.
+ - It is possible for a spinster to be disappointed in lovers, but only the married are ever disappointed in love.
+ - Anger is a better weapon than tears; a burr commands more respect than a sensitive plant.
+ - When we come to the sundown road, we need all the love we have managed to take with us from the summit of the hill.
+ - Sins of commission are far more productive of happiness than the sins of omission.
+ - Silence always gives consent...
+ - Some women are born to be married, some achieve marriage, and others have marriage thrust upon them.
+ - When you borrow trouble you give your peace of mind as security.
+ - The things that are ours cannot be given away, or taken away, or lost. We break our hearts, all of us, trying to keep things that do not belong to us – and to which we have no right.
+ - Heart-aches are forgotten, tears lose their bitterness, and like a leaf of lavendar in a store of linen, so does Memory make life sweet.
+ - If we all tried to make other people’s paths easy, our own feet would have a smooth even place to walk on.
+ - At twenty, men love woman; at thirty, a woman; and at forty, women.
+ - How strange it is that life must be nearly over, before one fully learns to live!
+ - A bird is joy incarnate.
+ - No woman need fear the effect of absence upon the man who honestly loves her. The needle of the compass, regardless of intervening seas, points forever toward the north. Pitiful indeed is she who fails to be a magnet and blindly becomes a chain.
+ - The conventions of society are all in the interests of morality. If you’re conventional, you’ll be good, in a negative sense, of course.
+ - Did you ever read a love-letter that wasn’t an evidence of idiocy – except your own?
+ - I have a friend, physically magnificent, who combines within himself the intellect of a philosopher, the diplomacy of a statesman, the executive ability of the general of an army, the courtesy of a Chesterfield – and the emotions of a rabbit.
+ - Revolution is obstructed evolution.
+ - Silence and reserve will give anyone a reputation for wisdom.
+ - Lots of people think they’re charitable if they give away their old clothes and things they don’t want.
+ - I had thought, in my blindness, that the great things were the easiest to do, but now I see that drudgery is an inseparable part of everything worth while, and the more worth while it is, the more drudgery is involved.
+ - A good forgettery is a happier possession than a good memory.
+ - Married and unmarried women waste a great deal of time in feeling sorry for each other.
+ - On that first day when we look back, either happily or with remorse, to the stony ways over which we have traveled, losing concern for that part of the journey which is yet to come, we have grown old.
+ - Nothing in the world was ever built without a dream at the beginning.
+ - I’ve always thought my flowers had souls.
+ - As if by magic, the love of the many comes with the love of the one.
+ - Marriage is the cold potato of love.
+ - The fine gifts of temperament and imagination which are essential to the production of true poetry are often accompanied by morbid sensibility. The soul capable of ecstasy and transport must pay its price in suffering; he who walks upon the heights must sometimes grovel in the dust.
+ - It is personal vanity of the most flagrant type which intrudes itself, unasked, into other people’s affairs. There are few of us who do not feel capable of ordering the daily lives of others, down to the most minute detail.
+ - There is only one path which leads to the house of forgiveness – that of understanding.
+ - For the size of it, a check book is about the greatest convenience I know of.
+ - Nothing is bad which does not harm either you or someone else.
+ - One uncongenial guest can ruin a dinner more easily than a poor salad, and that is saying a great deal.
+ - There is always one way to make anybody do anything – the trouble is to find it.
+ - Activity is a sovereign remedy for the blues.
+ - Art, if it is art, will develop in whatever circumstances it is placed.
+ - The spirit in which one earns his daily bread means as much to his soul as the bread itself may mean to his body.
+ - The only way to win happiness is to give it. The more we give, the more we have.
+ - I experienced the discomfort of those who have moved mentally, but are still clamped, physically, to the places they have moved from.
+ - Marriage is the process by which a woman deprives herself of an escort.
+ - Death is the advertisement, at the end of an autobiography, wherein people discover its virtues.
+ - It seems to take a lifetime for us to learn that wisdom consists largely in a graceful acceptance of things that do not immediately concern us.
+ - When things hurt us, we’re merely on our way to another spiritual environment.
+ - There is a great deal of trouble in this world which is not caused by people keeping their mouths shut.
+ - When we get civilised, I believe children will go by number until they get old enough to choose their own names.
+ - Love and hate always remember; it is only indifference that forgets.
+ - Legislation may at times be disobeyed, but never law, for the breaking brings swift punishment of its own.
+ - A letter has distinct advantages. You can say all you want to say before the other person has a chance to put in a word.
+ - Youth asks no greater privilege than to fight its own battles. It is mistaken kindness to shield – it weakens one in the years to come.
+ - All we can do in this world is the thing that seems to us the best. We have no concern with the results, except as a guide for the future, and sometimes, years afterward, we see that what seemed like a bitter loss was, in reality, gain.
+ - Before, you think of it as a permanent bond of happiness; later, you see that it is a yoke, borne unequally. You marry to keep love, but sometimes that is the surest way to lose it.
+ - Fortunately age does not affect literature. After a man is dead, he may continue in the business and often rank higher than his living competitors.
+ - Those who have been made great have first suffered.
+ - It saves trouble to be conventional, for you’re not always explaining things.
+ - There isn’t a new sorrow in the world – they’re all old ones – but we can all find new happiness if we look in the right way.
+ - Home is a place where we all do as we please – usually regardless of the others.
+ - There are many people who consider love a dream, but they usually grow to think of marriage as the cold breakfast.
+
+78 quotes

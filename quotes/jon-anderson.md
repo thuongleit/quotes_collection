@@ -1,0 +1,37 @@
+ - Cage of freedom, that’s our prison; we’re the jailer and captive combined Cage of freedom, cast in power; all the trappings of our own design. Blind ambition, steals our reason; we’re soon behind those invisible bars On the inside, looking outside; to make it safer we double the guard.
+ - It is just a wonderful, wonderful time to be alive and to be able to be part of the ever-growing spiritual awareness that is happening around the world.
+ - You are the reason. If you want, you are the answer in the end.
+ - We are all in Christs energy. We are all in the divine plan. We are all on the sacred journey, if you want to put it into some very spiritual words. And I like to sing about it, so thats what I do.
+ - Sweet songs of youth, the wise, the meeting of all wisdom To believe in the good in man.
+ - Wretched excess is an unfortunate human trait that turns a perfectly good idea such as Christmas into a frenzy of last-minute shopping.
+ - My thoughts and wishes are all that surrounds, mysteries hold you then fly you away. You know you are my life, my lady of dreams.
+ - We’re still growing into that place of higher consciousness; we are becoming a global conscience. The idea is to unravel the onion and let go of the ego and evolve to that place where you perceive everything to be a beautiful experience rather than a daunting experience.
+ - Tattoo. What a loaded word it is, rife with associations to goons, goofs, bikers, tribal warriors, carnival artists, drunken sailors and floozies.
+ - We’re physically part of the sun. The sun gives us energy, creates our world.
+ - There’s only one reason we live. It’s very simple. To find the creator. That’s just my understanding.
+ - Using the Internet as as vehicle to work with people is fascinating. It’s sort of a Pandora’s box of energy for me.
+ - The secret of poetry is cruelty.
+ - Everybody wants to be American, it seems; I travel enough to know.
+ - I think in life, you have a choice. You can either be optimistic or pessimistic, and I go for the optimism.
+ - I know when I started I would have been happy to sound like the Beatles or Joe Tex or whoever. You want to sound like most bands, you want to sound like their records and that’s how you learn your chops.
+ - I’ve got a great life. I’m in love, I have a happy, wonderful, beautiful time with my marriage, and I have a beautiful home. I want to spend time here working and creating.
+ - Jewel of life, guiding light, heralding a joyous new dawn.
+ - I love X-Games music.
+ - Music is beautiful. Yes, music is great. My music’s great.
+ - There’s so much corruption in America; there’s so much corruption around the world. It’s all coming to the surface thanks to the Internet, and thanks to the younger people who are saying, ‘We don’t like corrupt people.’
+ - I have seen the mystics play there Once or twice but I knew they had a reason Enchantment plays it’s cards all right Hand in hand with the working of the seasons Legends can be now and forever Teaching us to love for goodness sake Legends can be now and forever Loved by the sun, loved by the sun.
+ - This is love that surrounds, only a fool without wisdom can see. Blind as I am in your eyes, my lady of dreams.
+ - Some people haven’t got a life, I suppose. They want to be on the road all the time.
+ - The sun is so powerful, that without it we are nothing.
+ - Sweet music, and your secret heart. Both have the healing grace.
+ - One of the great moments of my life was when I could write musician on my passport.
+ - I nearly died three times in 2008, and when you go through those experiences, you realize that you’re blessed every day that you wake up. My world changed, my life changed, and with the help of my wife Jane, I was able to survive.
+ - There are times for inner changes. Be ready for the choice!
+ - We receive all we venture to give. And one of the things I’ve learned over the years is that giving is everything, and taking is nothing.
+ - This state of independence shall be!
+ - I believed and still believe that success is only part of the story. It makes you want to get better and better so as not to let yourself down and not to let the people down who like what you do and you don’t waste your success.
+ - Tell me I’m a fool. I would not know how to believe it.
+ - To be an American is to be part of the world because America, all the people of the world come to America.
+ - Fashion has changed, and it’s continuing to change because, fundamentally, people get bored quicker.
+
+35 quotes

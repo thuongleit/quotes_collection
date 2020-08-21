@@ -1,0 +1,184 @@
+ - The best ideas come as jokes. Make your thinking as funny as possible.
+ - If you can’t be brilliant, at least be memorable.
+ - It’s not creative unless it sells.
+ - Consumers do not buy products. They buy product benefits.
+ - Creativity needs discipline and freedom.
+ - Don’t count the people that you reach, reach the people who count.
+ - Play to win, but enjoy the fun.
+ - Tell the truth, but make the truth fascinating.
+ - If it doesn’t sell, it isn’t creative.
+ - Where people aren’t having any fun, they seldom produce good work.
+ - Encourage innovation. Change is our lifeblood, stagnation our death knell.
+ - Don’t hire a dog, then bark yourself.
+ - I do not regard advertising as entertainment or an art form, but as a medium of information. When I write an advertisement, I don’t want you to tell me that you find it ‘creative.’ I want you to find it so interesting that you buy the product.
+ - I admire people with gentle manners who treat other people as human beings.
+ - Nobody has ever built a brand by imitating somebody else’s advertising.
+ - The best idea is the simplest.
+ - Any damn fool can put on a deal, but it takes genius, faith and perseverance to create a brand.
+ - Compete with the immortals.
+ - Positioning should be decided before the advertising is created.
+ - The consumer isn’t a moron; she is your wife.
+ - Hard work never killed a man. Men die of boredom, psychological conflict, and disease. They do not die of hard work.
+ - Big ideas are usually simple ideas.
+ - My motto has always been: Only first class business and that in a first class way.
+ - Nobody ever arrives at a very big idea through a conscious, rational thought process. It comes from your unconscious.
+ - Consumers don’t think how they feel. They don’t say what they think and they don’t do what they say.
+ - A consumer is not a moron. She’s your wife. Don’t insult her intelligence, and don’t shock her.
+ - I prefer the discipline of knowledge to the anarchy of ignorance.
+ - Good products can be sold by honest advertising. If you don’t think the product is good, you have no business to be advertising it.
+ - People who think well, write well.
+ - Unless your campaign has a big idea, it will pass like a ship in the night.
+ - We all have a tendency to use research as a drunkard uses a lamppost – for support, but not for illumination.
+ - Don’t bunt. Aim out of the ball park. Aim for the company of immortals.
+ - The headline is the most important element in most advertisements. It is the telegram which decides the reader whether to read the copy.
+ - We admire people who work hard, who are objective and thorough. We detest office politicians, toadies, bullies, and pompous asses. We abhor ruthlessness. The way up our ladder is open to everybody. In promoting people to top jobs, we are influenced as much by their character as anything else.
+ - Great marketing only makes a bad product fail faster.
+ - Talent, I believe, is most likely to be found among nonconformists, dissenters, and rebels.
+ - You will never win fame and fortune unless you invent big ideas.
+ - If each of us hires people who are smaller than we are, we shall become a company of dwarfs. But if each of us hires people who are bigger than we are, we shall become a company of giants.
+ - A good advertisement is one which sells the product without drawing attention to itself.
+ - First, make yourself a reputation for being a creative genius. Second, surround yourself with partners who are better than you are. Third, leave them to go get on with it.
+ - When you advertise fire extinguishers, open with the fire.
+ - Study the methods of your competitors and do the exact opposite.
+ - If you can’t advertise yourself, what hope do you have of advertising anything else?
+ - Our business is infested with idiots who try to impress by using pretentious jargon.
+ - If you always hire people who are bigger than you are, we shall become a company of giants.
+ - If you ever find a man who is better than you are – hire him. If necessary, pay him more than you pay yourself.
+ - Within every brand is a product, but not every product is a brand.
+ - Advertising people who ignore research are as dangerous as generals who ignore decodes of enemy signals.
+ - Hire people who are better than you are, then leave them to get on with it. Look for people who will aim for the remarkable, who will not settle for the routine.
+ - What really decides consumers to buy or not to buy is the content of your advertising, not its form.
+ - You cannot bore people into buying your product – you can only interest them in buying it.
+ - Repeat your winners. If you are lucky enough to write a good advertisement, repeat it until it stops selling. Scores of good advertisements have been discarded before they lost their potency.
+ - The temptation to entertain instead of selling is contagious.
+ - Never stop testing, and your advertising will never stop improving.
+ - What you say in advertising is more important than how you say it.
+ - A well-run restaurant is like a winning baseball team. It makes the most of every crew member’s talent and takes advantage of every split-second opportunity to speed up service.
+ - On the average, five times as many people read the headlines as read the body copy.
+ - Never write more than two pages on any subject.
+ - You have only 30 seconds in a TV commercial. If you grab attention in the first frame with a visual surprise, you stand a better chance of holding the viewer. People screen out a lot of commercials because they open with something dull. When you advertise fire-extinguishers, open with the fire.
+ - If you tell lies about a product, you will be found out – either by the Government, which will prosecute you, or by the consumer, who will punish you by not buying your product a second time.
+ - The trouble with many copywriters in general agencies are that they don’t really think in terms of selling. They have never written direct-response; they have never tasted blood.
+ - Never write an advertisement which you wouldn’t want your family to read. You wouldn’t tell lies to your own wife. Don’t tell them to mine.
+ - Write the way you talk. Naturally.
+ - David Ogilvy made his copywriters come up 100 different headlines for every ad they wrote.
+ - The psychiatrists say that everybody should have a hobby. The hobby I recommend is advertising.
+ - When you have nothing to say, sing it.
+ - When people aren’t having any fun, they seldom produce good work. Kill the grimness with laughter. Encourage exuberance. Get rid of sad dogs that spread gloom.
+ - Training should not be confined to trainees. It should be a continuous process, and should include the entire professional staff of the agency. The more our people learn, the more useful they can be to our clients.
+ - Give people a taste of Old Crow, and tell them it’s Old Crow. Then give them another taste of Old Crow, but tell them it’s Jack Daniel’s. Ask them which they prefer. They’ll think the two drinks are quite different. They are tasting images.
+ - In most agencies, account executives outnumber the copywriters two to one. If you were a dairy farmer, would you employ twice as many milkers as you had cows?
+ - Nowadays it is the fashion to pretend that no single individual is ever responsible for a successful advertising campaign. This emphasis on “teamwork” is bunkum – a conspiracy of the mediocre majority.
+ - The pursuit of excellence is less profitable than the pursuit of bigness, but it can be more satisfying.
+ - The consumer isn’t a moron; she is your wife. You insult her intelligence if you assume that a mere slogan and a few vapid adjectives will persuade her to buy anything. She wants all the information you can give her.
+ - The more informative your advertising, the more persuasive it will be. Before people making a buying decision, they have many questions. For example, why they should buy from you, why your product is better than other similar products, why they should trust you, and why they should buy it now, etc.
+ - It follows that unless your headline sells your product, you have wasted 90 percent of your money...
+ - I have noticed that agencies which are full of fun and ferment seem to create the best advertising. If you are not happy in advertising, for goodness sake find a job in which you would be happy. For as far as I know, we pass this way only once.
+ - Lazy and superficial men and women do not produce superior work.
+ - I have a theory that the best ads come from personal experience. Some of the good ones I have done have really come out of the real experience of my life, and somehow this has come over as true and valid and persuasive.
+ - It has been found that the less an advertisement looks like an advertisement and the more it looks like an editorial, the more readers stop, look, and read.
+ - We exist to build the business of our clients. The recommendations we make to them should be the recommendations we would make if we owned their companies, without regard to our own short-term interest. This earns their respect, which is the greatest asset we can have.
+ - If you want ACTION, don’t write. Go and tell the guy what you want.
+ - Why do eight out of ten new consumer products fail? Sometimes because they are too new. The first cold cereals were rejected by consumers. More often new products fail because they are not new enough.
+ - Nobody should be allowed to create general advertising until he has served his apprenticeship in direct-response.
+ - The advertisers who believe in the selling power of jingles have never had to sell anything.
+ - Political advertising ought to be stopped. It’s the only really dishonest kind of advertising that’s left. It’s totally dishonest.
+ - I once used the word OBSOLETE in a headline, only to discover that 43 per cent of housewives had no idea what it meant. In another headline, I used the word INEFFABLE, only to discover that I didn’t know what it meant myself.
+ - The best leaders are apt to be found among those executives who have a strong component of unorthodoxy in their character. Instead of resisting innovation, they symbolize it.
+ - You now have to decide what ‘image’ you want for your brand. Image means personality. Products, like people, have personalities, and they can make or break them in the market place.
+ - You can’t save souls in an empty church.
+ - You aren’t advertising to a standing army; you are advertising to a moving parade.
+ - Advertising reflects the mores of society, but it does not influence them.
+ - One half was sad because I had damaged my reputation. The other half was happy because I had damaged my reputation.
+ - Advertising is only evil when it advertises evil things.
+ - Be more ambitious. Don’t bunt. When you get a job to do a story or an ad, try and hit the ball out of the park every time.
+ - At 60 miles an hour the loudest noise in this Rolls-Royce comes from the electric clock.
+ - Try and inject into every commercial you make a touch of singularity; a bird that will hook on to the consumers mind.
+ - Develop your eccentricities while you are young. That way, when you get old, people won’t think you’re going gaga.
+ - Candor compels me to admit that I have no conclusive research to support my view that jingles are less persuasive than the spoken word. You’d run like hell if a salesman came to your door and began singing at you. Why do it in advertising?
+ - Consumers still buy products whose advertising promises them value for money, beauty, nutrition, relief from suffering, social status and so on.
+ - Always hold your sales meetings in rooms too small for the audience, even if it means holding them in the WC. ‘Standing room only’ creates an atmosphere of success, as in theatres and restaurants, while a half-empty auditorium smells of failure.
+ - Every ad is an investment in the long-term image of a brand.
+ - The secret of long life is double careers. One to about age sixty, then another for the next thirty years.
+ - Ninety-nine percent of advertising doesn’t sell much of anything.
+ - Readers travel so fast they don’t stop to decipher the meaning of obscure headlines.
+ - Set exorbitant standards, and give your people hell when they don’t live up to them. There is nothing so demoralizing as a boss who tolerates second rate work.
+ - Madison Avenue is full of masochists who unconsciously provoke rejection by their clients. I know brilliant men who have lost every account they have ever handled.
+ - Like a midwife, I make my living bringing new babies into the world, except that mine are new advertising campaigns.
+ - Supposing you’ve got an acute appendicitis. You’ve got to be operated on tonight. Would you like to have a surgeon who’s read some books of anatomy and knows how to do that operation – or would you prefer to have a surgeon who refused to read all books about anatomy and relied on his own instinct?
+ - Can advertising foist an inferior product on the consumer? Bitter experience has taught me that it cannot. On those rare occasions when I have advertised products which consumer tests have found inferior to other products in the same field, the results have been disastrous.
+ - Advertising is a business of words, but advertising agencies are infested with men and women who cannot write. They cannot write advertisements, and they cannot write plans. They are helpless as deaf mutes on the stage of the Metropolitan Opera.
+ - I don’t believe in tricky advertising, I don’t believe in cute advertising, I don’t believe in comic advertising. The people who perpetrate that kind of advertising never had to sell anything in their lives.
+ - There is no need for advertisements to look like advertisements. If you make them look like editorial pages, you will attract about 50 per cent more readers.
+ - Every advertisement should be thought of as a contribution to the complex symbol which is the brand image.
+ - The more informative your advertising, the more persuasive it will be.
+ - The success of a meeting often depends on having the right documents – proofs, artwork, schedules, research charts, etc. – present at the start of the meeting. All too often we arrive like plumbers, leaving our tools behind.
+ - Managing an advertising agency isn’t all beer and skittles. After fourteen years of it, I have come to the conclusion that the top man has one principle responsibility: to provide an atmosphere in which creative mavericks can do useful work.
+ - Creativity Is a fancy word for the work we have to do by Friday.
+ - Our offices must always be headed by the kind of men who command respect. Not phonies, zeros or bastards.
+ - To advertisers: “Do not compete with your agency in the creative area. Why keep a dog and bark yourself?”
+ - Experience has taught me that advertisers get the best results when they pay their agency a flat fee. It is unrealistic to expect your agency to be impartial when its vested interest lies wholly in the direction of increasing your commissionable advertising.
+ - Many manufacturers secretly question whether advertising really sells their product, but are vaguely afraid that their competitors might steal a march on them if they stopped.
+ - Much of the messy advertising you see on television today is the product of committees. Committees can criticize advertisements, but they should never be allowed to create them.
+ - If you ever have the good fortune to create a great advertising campaign, you will soon see another agency steal it. This is irritating, but don’t let it worry you; nobody has ever built a brand by imitating somebody else’s advertising.
+ - I avoid clients for whom advertising is only a marginal factor in their marketing mix. They have an awkward tendency to raid their advertising appropriations whenever they need cash for other purposes.
+ - I always said that mega-mergers were for megalomaniacs.
+ - I notice increasing reluctance on the part of marketing executives to use judgment; they are coming to rely too much on research, and they use it as a drunkard uses a lamp post for support, rather than for illumination.
+ - The line between pride in our work and neurotic obstinacy is a narrow one. We make our recommendations clear. But we do not grudge our clients the right to the final say. It is their money.
+ - I know of a brewer who sells more of his beer to the people who never see his advertising than to the people who see it every week. Bad advertising can unsell a product.
+ - I never write fewer than sixteen headlines for a single advertisement.
+ - It strikes me as bad manners for a magazine to accept one of my advertisements and then attack it editorially – like inviting a man to dinner then spitting in his eye.
+ - I figure that my staff will be less reluctant to work overtime if I work longer hours than they do.
+ - Sound an alarm! Advertising, not deals, builds brands.
+ - Remove advertising, disable a person or firm from proclaiming its wares and their merits, and the whole of society and of the economy is transformed. The enemies of advertising are the enemies of freedom.
+ - It is flagrantly dishonest for an advertising agent to urge consumers to buy a product which he would not allow his own wife to buy.
+ - Why should a manufacturer bet his money, perhaps the future of his company, on your instinct?
+ - Headlines can be strengthend by the inclusion of emotional words like darling, love, fear, proud, friend and baby.
+ - It is the inescapable duty of management to fire incompetent people.
+ - The more story-appeal there is in the picture or in the photograph, the more people would look at your ad.
+ - Senior men have no monopoly on great ideas. Nor do creative people. Some of the best ideas come from account executives, researchers and others. Encourage this, you need all the ideas you can get.
+ - I’d like to be remembered, as a copywriter who had some big ideas. That’s what the advertising business is all about. Big ideas.
+ - The manufacturer who finds himself up the creek is the short-sighted opportunist who siphons off all his advertising dollars for short-term promotions.
+ - Never stop testing, and your advertising will never stop improving. Testing was used in advertising decades ago. The internet has made testing so easy that every online marketer can use it to improve advertising results. Google content experiment is a free tool for you to do split testing.
+ - Make sure you have a vice president in charge of your revolution, to engender ferment among your more conventional colleagues.
+ - We like people who are honest. Honest in argument, honest with clients, honest with suppliers, honest with the company – and above all, honest with consumers.
+ - I never tell one client that I cannot attend his sales convention because I have a previous engagement with another client; successful polygamy depends upon pretending to each spouse that she is the only pebble on your beach.
+ - Most headlines are set too big to be legible in the magazines or newspaper. Never approve a layout until you have seen it pasted into the magazine or newspaper for which it was destined. If you pin up the layouts on a bulletin board and appraise them from fifteen feet, you will produce posters.
+ - There is one catagory of advertising which is totally uncontrolled and flagrantly dishonest: the television commercials for candidates in Presidential elections.
+ - I never assign a product to a writer unless I know that he is personally interested in it. Every time I have written a bad campaign, it has been because the product did not interest me.
+ - It has taken more than a hundred scientists two years to find out how to make the product in question; I have been given thirty days to create its personality and plan its launching. If I do my job well, I shall contribute as much as the hundred scientists to the success of this product.
+ - Good copy can’t be written with tongue in cheek, written just for a living. You’ve got to believe in the product.
+ - In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create.
+ - Leaders grasp nettles.
+ - I did not feel ‘evil’ when I wrote advertisements for Puerto Rico. They helped attract industry and tourists to a country which had been living on the edge of starvation for 400 years.
+ - The only marketers who know what the hell they’re doing are those who have worked in sales.
+ - It takes a big idea to attract the attention of consumers and get them to buy your product. Unless your advertising contains a big idea, it will pass like a ship in the night. I doubt if more than one campaign in a hundred contains a big idea.
+ - Few of the great creators have bland personalities. They are cantankerous egotists, the kind of men who are unwelcome in the modern corporation.
+ - Don’t just create content to get credit for being clever – create content that will be helpful, insightful, or interesting for your target audience.
+ - I do not regard advertising as entertainment or an art form, but as a medium of information.
+ - If you have all the research, all the ground rules, all the directives, all the data – it doesn’t mean the ad is written. Then you’ve got to close the door and write something – that is the moment of truth which we all try to postpone as long as possible.
+ - People don’t buy a new detergent because the manufacturer told a joke on television last night.
+ - The most important word in the vocabulary of advertising is TEST. If you pretest your product with consumers, and pretest your advertising, you will do well in the marketplace.
+ - I have an inviolable rule against employing nepots and spouses, because they breed politics. Whenever two people get married, one of them must depart – preferably the female, to look after the baby.
+ - If you have a truly big idea, the wrong technique won’t kill it. And if you don’t have a big idea, the right technique won’t help you.
+ - The relationship between a manufacturer and his advertising agency is almost as intimate as the relationship between a patient and his doctor. Make sure that you can life happily with your prospective client before you accept his account.
+ - Agencies which frequently work nights and weekends are more stimulating, more successful – and more profitable.
+ - If you, my fellow copywriters or art directors, want to win the award, devote your genius to making the cash register ring.
+ - A lot of today’s campaigns are based on optimum positioning but are totally ineffective – because they are dull, or badly constructed, or ineptly written. If nobody reads your advertisement or looks at your commercial, it doesn’t do you much good to have the right positioning.
+ - There are very few men of genius in advertising agencies. But we need all we can find. Almost without exception they are disagreeable. Don’t destroy them. They lay golden eggs.
+ - While you are responsible to your clients for sales results, you are responsible to consumers for the kind of advertising you bring into their homes.
+ - Many people – and I think I am one of them – are more productive when they’ve had a little to drink. I find if I drink two or three brandies, I’m far better able to write.
+ - Great hospitals do two things. They look after patients, and they teach young doctors. We look after clients, and we teach young advertising people.
+ - You make the best products you can, and you grow as fast as you deserve to.
+ - The majority of business men are not capable of an original thought, simply because they cannot escape the tyranny of reason.
+ - The headline is the ‘ticket on the meat.’ Use it to flag down readers who are prospects for the kind of product you are advertising.
+ - The worst fault a salesman can commit is to be a bore. Foster any attempt to talk about other things; the longer you stay the better you get to know the prospect, and the more you will be trusted.
+ - No sale, no commission. No commission, no eat. That made an impression on me.
+ - It is important to admit your mistakes, and to do so before you are charged with them. Many clients are surrounded by buckpassers who make a fine art of blaming the agency for their own failures. I seize the earliest opportunity to assume the blame.
+ - What is a good advertisement? An advertisement which pleases you because of its style, or an advertisement which sells the most? They are seldom the same.
+ - I can’t stand callow amateurs who aren’t sufficiently interested in the craft of advertising to assume the posture of students.
+ - Advertising is the place where the selfish interests of the manufacturer coincide with the interests of society.
+ - Some manufacturers illustrate their advertisements with abstract paintings. I would only do this if I wished to conceal from the reader what I was advertising.
+ - Do not address your readers as though they were gathered together in a stadium. When people read your copy, they are alone. Pretend you are writing to each of them a letter on behalf of your client.
+
+182 quotes

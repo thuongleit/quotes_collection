@@ -1,0 +1,47 @@
+ - I demand excellence from the people I work with.
+ - If the Indian people want stories written about themselves, how they want them told, they are going to have to make them, they’re going to have to finance them. If you let Hollywood do it, Hollywood is going to get it wrong most of the time.
+ - I always knew I was going to be a family man.
+ - I spent my whole childhood wishing I were older and now I’m spending my adulthood wishing I were younger.
+ - I think one of the things that saved me is that I never put all my eggs in one basket.
+ - I feel like I’m a fighter. I’ve fought my whole life to get to where I’m at. I like fight movies. When someone gets knocked down, I like to root for him to succeed.
+ - There are going to be peaks and valleys in everything – in your marriage, in your job, in your life. So just enjoy the peaks and ride out the valleys. Just try not to do anything too rash.
+ - I asked Michael Jackson once. I said to him, ‘How were you able to go from the Jackson Five to the biggest star in the world? What was your secret, Michael?’ He said, ‘Ricky, stay inspired. That’s the hardest thing to do. If you can figure out a way to stay inspired, you can make it.’
+ - There have been times I almost got a persecution complex. I felt like people wouldn’t let me grow up. They always saw me as a smiling kid or goofy teenager, no matter how much I’d changed.
+ - In the John Wayne movies, the Indians were savages that were trying to scalp you. That culture has really suffered because of the stereotype you see in those westerns.
+ - I’m just not a quitter and I just never, ever give up. I was forced to adapt because if I didn’t, I was losing inspiration only doing what I was doing.
+ - I did a lot of gasoline commercials – Hess, Texaco. I was part of the family in the car, the little brat in the back.
+ - There are always moments of despair when you get close to jobs and lose them at the last second. It feels like getting punched in the stomach. You feel like, ‘Why do I do this?’ Then you go to bed, get up the next day and forget about it.
+ - My career was full of struggles and dreams, disappointments and peaks and valleys. But there was no Twitter, no Facebook or TMZ. Young actors could make mistakes and not become the focus of tabloids.
+ - I’ve been very blessed. My parents always told me I could be anything I wanted. When you grow up in a household like that, you learn to believe in yourself.
+ - A horrible script 99 percent of the time means a horrible movie. But if you start with a good script, odds are you’re going to have a good movie.
+ - I weren’t an actor, I’d be a wildlife biologist or forest ranger.
+ - I was very outgoing, and a good-looking kid. I started doing all the catalogs. I made 60 commercials by the time I was 6. I must have been a natural, because I never took an acting lesson.
+ - I feel cheesy when I see ‘Silver Spoons.’ Some of it was funny, but some of it was just cheese! My kids love it, but I look at it and cringe.
+ - I have been a huge nerd to my kids. I haven’t done the cool movies that they like. With ‘24,’ I gained a lot of respect. ‘24’ is now, it’s hip, it’s their generation.
+ - I didn’t grow up around wild horses, no. But I’ve appreciated their beauty and their power ever since I can remember.
+ - It’s difficult being a child actor. I don’t think everything beautiful has to be exploited. Some things can be beautiful and left beautiful.
+ - I have a career I am proud of as a child actor. I’m not running away from it or embarassed with anything I did.
+ - Trying to understand women is a tall order period.
+ - I’m really into sci-fi. The reason I’m an actor is because of ‘Star Wars’ – I saw that and I knew that’s what I wanted to do. But most of the projects I’m offered as an actor are straightforward dramas, so I haven’t really been given a chance to do that kind of role.
+ - I never thought I was good enough actually to write.
+ - I always thought I had a problem socially, because I was pulled out of school so early. I had a tough time talking to other kids and being comfortable with them.
+ - An actor is like an instrument, tune them, play them the right way.
+ - I play a lot of chess. I probably played 200 games while we were making ‘Andromeda.’
+ - My sympathies go out to the young performers today because they are under a microscope in a way I wasn’t. Now everybody’s got a camera phone and can record at will or take pictures of you. It’s just a different world. I don’t know how I would have fared back then.
+ - Nashville feels like a big little town to me. It’s got lots of culture and lots of interesting things to do and lots of interesting people. At the same time, it feels very small and tight-knit and very close. Everyone feels like they know each other.
+ - I really enjoy the writing process because I can do it from my house. I can create these characters and take them in the different directions that I want to take them. You have a lot of freedom as a writer.
+ - I’m very loving and supporting of my actors. I also expect them to show up prepared, happy to be there, and give their all as I do as an actor.
+ - I became a country music fan in 1990 when I moved to Colorado. It was my first exposure to it because I’m from a city. I’ve been a fan of country music ever since.
+ - I’ve found joy, peace and perspective. Those are very good things to have.
+ - There’s some things that you’re passionate about as a director. You just know it has to be a certain way. The challenge is resolving those so everyone is happy and no one feels that they have not been heard.
+ - I met the Queen, the Pope, and we went all over Europe and Asia. I just wish I was older when I did all this. Then I could appreciate it more.
+ - I can be tough on actors, but I also let them know early on in our relationship what I expect from them.
+ - I have a real eclectic taste for work, for movies, for characters and jobs.
+ - Westerns are fun. I wish more of them would be made. When you’re out there on a set, carrying a gun, riding a horse, you kind of get lost in that make believe world.
+ - I didn’t take the reins of my career until I was about 21, and I’ve been in charge since then.
+ - My daughter’s wanted to be an actress since she was six years old, but I didn’t want her to go through the same experiences as I did as a child actor.
+ - I don’t know why it is, but sometimes I feel like I’m 60. It’s like I’ve been around for a long time. I felt that way even when I was 8.
+ - Directing, I just feel comfortable. I know what I want. I know what I want from my crew. I lead by example. I have limitless energy as a director.
+ - I love being on set, because I’ve basically grown up on a set. And now I love to contribute as a director and help steer the ship, if you will.
+
+45 quotes

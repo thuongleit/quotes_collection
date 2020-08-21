@@ -1,0 +1,23 @@
+ - It’s like most anything. If you want to be a loser, there’s always a way to dwell on the negative. If you want to win, there’s always a way to think positively.
+ - Pressure comes when someone calls on you to perform a task for which you are unprepared.
+ - Even when you have three strikes, you’re still not out. There is always something else you can do.
+ - Anything that disturbs your comfort factor is good for you.
+ - I’m careful not to give into theatrics when times are tough, I don’t like it when somebody gives into outside pressure and puts on a show for others.
+ - I’m ready to do something different.
+ - There are always distractions, if you allow them.
+ - You can be stupid once, but idiotic to do it again. I’ll settle for being stupid.
+ - The game has never seen a better catcher than YADIER MOLINA.
+ - Being involved in competition is a privilege and an opportunity. Seek to make the most of that opportunity by pushing yourself to the limit of your abilities. When it is over, you will have earned the respect of your opponents, your coaches, and yourself.
+ - Just because you’re down to your last strike, you’re not out yet. You can always do more. You’ll always have more at-bats to take. That’s true in baseball, in rescuing animals, and in life generally.
+ - I’m a great believer in the character of the club. To me, character has a lot to do with how you compete. That creates urgency and toughness. That elevates the talent that you have.
+ - It’s a really neat and special coincidence, but it’s nothing but a coincidence. This wasn’t set up to give Matt that honor. It’s just the way it worked out. It’s a neat extra.
+ - Toughest thing for me as a young manager is that a lot of my players saw me play. They know how bad I was.
+ - Play the game right. If you play the game intelligently and execute the fundamentals, you can win.
+ - I’m very distressed that the report was leaked early so that the initial headline said ‘dismissed, fired.’ That’s 180 degrees from the arrangement we have potentially.
+ - In the end, as a manager or coach, you have to keep your heart pure and do your best as a manager or a coach.
+ - The best way to win is to play well early or late in the game. The middle part tends to take care of itself.
+ - The thing I learned when I was playing was that your best way of winning was to make it difficult for the other team to score in the last three innings.
+ - We never quit trying. I know that’s kind of corny, but the fact is we never quit trying. The dugout was alive even when we were behind. And sometimes it works.
+ - To me, there is no more conscientious umpire in the Major Leagues than Jim Joyce. He gives you a hellacious effort every time.
+
+21 quotes

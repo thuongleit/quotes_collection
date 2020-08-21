@@ -1,0 +1,28 @@
+ - No one remembers who came in second.
+ - Don’t forget to stop and smell the roses.
+ - You’re only here for a short visit. Don’t hurry, don’t worry. And be sure to smell the flowers along the way.
+ - You don’t have the game you played last year or last week. You only have today’s game. It may be far from your best, but that’s all you’ve got. Harden your heart and make the best of it.
+ - I never played a perfect 18 holes. There is no such thing. I expect to make at least seven mistakes a round. Therefore, when I make a bad shot, I don’t worry about it. It is just one of the seven.
+ - I never wanted to be a millionaire. I just wanted to live like one.
+ - Give me a man with big hands and big feet and no brains and I’ll make a golfer out of him.
+ - If you worry about the ones you missed, you are going to keep missing them.
+ - It is the addition of strangeness to beauty that constitutes the romantic character in art.
+ - Here Eddie, hold the flag while I putt out.
+ - Hurry up Gene, I got a date tonight.
+ - I would rather be of clear mind and decision with the wrong club than with an unclear mind and the right club.
+ - Whatever happens on the golf course is OK, because if I put the ball in trouble I know that I have the skills to get it out of trouble and back into play.
+ - He may have gone to bed three hours ago, but he knows who he is playing. You can rest assured that he hasn’t slept a wink.
+ - My dear, did you ever stop to think what a wonderful bunker you would make?
+ - Every golfer can expect to have four bad shots in a round and when you do, just put them out of your mind. This, of course is hard to do when you’ve had them and you’re not even off the first tee.
+ - It takes six years to make a golfer: three to learn the game, then another three to unlearn all you have learned in the first three years. You might be a golfer when you arrive at that stage, but more likely you are just starting.
+ - Which one of you is going to be runner-up?
+ - There is no tragedy in missing a putt, no matter how short. All have erred in this respect.
+ - That’s the easiest 69 I ever made.
+ - Miss a putt for $2,000? Not likely!
+ - The course is playing the players instead of the players playing the course.
+ - What a shame to waste those great shots on the practice tee.
+ - Why waste good shots in practice when you might need them in a match?
+ - Short putts are missed because it is not physically possible to make the little ball travel over uncertain ground for three or four feet with any degree of regularity.
+ - Trouble shots are surprisingly easy if you activate your imagination. You simply must be able to imagine exactly what flight the ball will take before you can play any shot well.
+
+26 quotes

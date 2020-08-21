@@ -1,0 +1,25 @@
+ - I’m a pessimist because of intelligence, but an optimist because of will.
+ - The old world is dying, and the new world struggles to be born; now is the time of monsters.
+ - The challenge of modernity is to live without illusions and without becoming disillusioned.
+ - To tell the truth is revolutionary.
+ - The crisis consists precisely in the fact that the old is dying and the new cannot be born.
+ - Every State is a dictatorship.
+ - Indifference is the dead weight of history.
+ - If you beat your head against the wall, it is your head that breaks and not the wall.
+ - Pessimism of the spirit; optimism of the will.
+ - The old is dying and the new cannot be born. In this interregnum there arises a great diversity of morbid symptoms.
+ - What comes to pass does so not so much because a few people want it to happen, as because the mass of citizens abdicate their responsibility and let things be.
+ - Man is above all else mind, consciousness – that is, he is a product of history, not of nature.
+ - Common sense is the folklore of philosophy.
+ - Before puberty the child’s personality has not yet formed and it is easier to guide its life and make it acquire specific habits of order, discipline, and work...
+ - Driving forward is the chief characteristic of western man since the Sumerians. His dread triad of vices is property-holding, voraciousness, and lust.
+ - The abolition of the class struggle does not mean the abolition of the need to struggle as a principle of development.
+ - All men are intellectuals, but not all men have in society the function of intellectuals.
+ - Destruction is difficult. It is as difficult as creation.
+ - The starting-point of critical elaboration is the consciousness of what one really is, and is ’knowing thyself’as a product of the historical processes to date, which has deposited in you an infinity of traces, without leaving an inventory.
+ - History is at once freedom and necessity.
+ - What are the “maximum” limits of acceptance of the term “intellectual”?
+ - One must speak for a struggle for a new culture, that is, for a new moral life that cannot but be intimately connected to a new intuition of life, until it becomes a new way of feeling and seeing reality.
+ - I turn and turn in my cell like a fly that doesn’t know where to die.
+
+23 quotes

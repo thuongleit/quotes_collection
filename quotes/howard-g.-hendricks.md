@@ -1,0 +1,84 @@
+ - The secret to concentration is elimination.
+ - Teaching that impacts is not head to head, but heart to heart.
+ - If we stop learning today, we stop teaching tomorrow.
+ - Nothing is more common than unfulfilled potential.
+ - Vision without integrity is not mission – it’s manipulation.
+ - A good leader has a compass in their head and a magnet in their heart.
+ - Leaders are readers, and readers are leaders.
+ - You teach what you know, but you reproduce what you are.
+ - It’s a sin to bore people with the Bible.
+ - The measure of you as a leader is not what you do, but what others do because of what you do.
+ - Experience is not the best teacher; evaluated experience is.
+ - Every disciple needs three types of relationships in his life. He needs a ‘Paul’ who can mentor him and challenge him. He needs a ‘Barnabas’ who can come along side and encourage him. And he needs a ‘Timothy,’ someone that he can pour his life into.
+ - A belief is something you will argue about. A conviction is something you will die for.
+ - The Bible is the divine means of developing spiritual maturity. There is no other way.
+ - In the midst of a generation screaming for answers, Christians are stuttering.
+ - When God measures a man he puts the tape around the heart, not the head.
+ - Christian education is a bomb with a long fuse – it takes a while to go off.
+ - How big is your God? The size of your God determines the size of everything.
+ - You can impress from a distance, but you can only impact up close.
+ - There was no identity crisis in the life of Jesus Christ. He knew who He was. He knew where He had come from, and why he was here. And he knew where He was going. And when you are that liberated, then you can serve.
+ - You are free to make choices. You are not free to escape the consequences.
+ - Don’t put eggs under dead chickens.
+ - If you leave the church service thinking about how good the pastor was, he has missed the mark. If you leave consumed with Christ, the pastor has been used by the Lord.
+ - Just think about it: God wanted to communicate with you in the twenty-first century -and he wrote His message in a book.
+ - Bible study is essential to spiritual maturity.
+ - The goal is not to make you a smarter sinner but to make you like the Savior.
+ - My great concern for you in life is not that you will fail, but that you will succeed in doing the wrong things.
+ - Children are not looking for perfect parents, but they are looking for honest parents.
+ - Has it ever occurred to you that love is the greatest positive force in existence?
+ - You are either in the Word and the Word is conforming you to the image of Jesus Christ, or you are in the world and the world is squeezing you into its mold.
+ - In the spiritual realm, the opposite of ignorance is not knowledge, it’s obedience.
+ - My greatest fear is not your failure, but your success.
+ - You can control your choices but you can’t control the outcome of those choices.
+ - The Bible was written not to satisfy your curiosity but to help you conform to Christ’s image. Not to make you a smarter sinner but to make you like the Saviour. Not to fill your head with a collection of biblicalfacts but to transform your life.
+ - Succeeding in business and failing at home is a cop-out. For no success in the workplace will ever make up for failure at home.
+ - Your strengths develop your confidence; your weaknesses develop your faith.
+ - So the first reason for studying Scripture is that it is a means of spiritual growth. There is none apart from the Word. It is God’s primary tool to develop you as an individual.
+ - You never graduate from the school of discipleship.
+ - It is amazing how much light the Bible shines on commentaries.
+ - So it is with scripture. The word of God is there, able to transform your life. But you must probe for it. You have to penetrate the surface with more than just a cursory glance.
+ - Show me a man’s closest companions and I can make a fairly accurate guess as to what sort of man he is, as well as what sort of man he is likely to become.
+ - If you cannot be accused of exclusivity, you are not discipling.
+ - The teacher has not taught until the student has learned.
+ - You cannot impart what you do not possess.
+ - There’s an old saying that nothing good happens fast. I don’t know if that’s altogether true, but it does have some bearing on Bible study.
+ - The Bible was written not to satisfy your curiosity but to help you conform to Christ’s image.
+ - That’s the way to come to the Word of God. Read it as though it were His love letter to you.
+ - God is not looking for more stars; He’s looking for more servants.
+ - I assure you, where prayer focuses power falls.
+ - If you want to continue leading, you must continue changing.
+ - It Bible opens up the doors in your life, and provides a purifying dynamic to help you clean out sin and learn to conform to God’s will.
+ - The Bible is owned, read on occasion, even taken to church-but not studied.
+ - If you want to use your testosterone to grow hair, that’s up to you.
+ - Jesus never discipled one-on-one.
+ - The genius of the Word of God is that it has staying power; it can stand up to repeated exposure.
+ - Heaven is a person: Jesus.
+ - If you are not thinking correctly, you are not living correctly. What you believe will determine how you behave.
+ - Most people don’t think, they just rearrange their prejudices.
+ - It’s essential to growth. It’s essential to maturity. It’s essential for equipping you, training you, so that you might be an available, clean, sharp instrument in His hands to accomplish His purposes.
+ - Never traffic in unpracticed truth.
+ - The reason God can’t use you more than He wants to may well be that you are not prepared.
+ - The point, do whatever it take to approach the Word with a fresh perspective.
+ - There is no fear of judgment for the man who judges himself according to the Word of God.
+ - It is not about where you are but in what direction you’re moving. God is into character, not credentials.
+ - The greatest curse that pervaded the university is apathy.
+ - Spend the rest of your life doing what God prepared you to do.
+ - Our problem is that we are in the Word but not under the Word.
+ - People tell me they want to make the Bible relevant. Nonsense. The Bible’s already relevant. You’re the one that’s irrelevant!
+ - Biblically speaking, to hear and not to do is not to hear at all.
+ - If your religion does not work at home, don’t export it.
+ - The moment you come to a passage of scripture and say, “Oh, I know this one already,” you’re in deep trouble.
+ - You are able to do many things. But be sure you find the one thing you must do.
+ - The will of God is found in the Word of God. The more a person grows, the more he begins to think instinctively and habitually from a divine perspective.
+ - So the real question confronting you now is: How can you afford not to be in God’s Word?
+ - There’s no one without significant creative potential.
+ - The home marks a child for life.
+ - Maybe you’ve attended church for five, ten, or even twenty years, but you’ve never cracked open the Bible to prepare yourself for effectiveness as His instrument. You’ve been under the Word, but not in it for yourself.
+ - Prayer is especially crucial when you come to a place in your study where you are stuck and confused.
+ - God is still in the process of dispensing gifts, and He uses ordinary individuals like us to develop those gifts in other people.
+ - Woodrow Kroll is dead-on in his assessment of the church’s lack of engagement with the Word.
+ - If you’re just like someone else, we don’t need you.
+ - Some people expect the door of opportunity to be opened with an electric eye.
+
+82 quotes

@@ -1,0 +1,89 @@
+ - Thoughts lead on to purpose, purpose leads on to actions, actions form habits, habits decide character, and character fixes our destiny.
+ - Right actions in the future are the best apologies for bad actions in the past.
+ - Thoroughly to teach another is the best way to learn for yourself.
+ - Some of the best lessons we ever learn we learn from our mistakes and failures. The error of the past is the wisdom of the future.
+ - Every parting is a form of death, as every reunion is a type of heaven.
+ - He that never changes his opinions, never corrects his mistakes, will never be wiser on the morrow than he is today.
+ - If you would thoroughly know anything, teach it to others.
+ - Sinful and forbidden pleasures are like poisoned bread; they may satisfy appetite for the moment, but there is death in them at the end.
+ - Words are both better and worse than thoughts, they express them, and add to them; they give them power for good or evil; they start them on an endless flight, for instruction and comfort and blessing, or for injury and sorrow and ruin.
+ - High aims form high characters, and great objects bring out great minds.
+ - Prejudices are rarely overcome by argument; not being founded in reason they cannot be destroyed by logic.
+ - The first step to improvement, whether mental, moral, or religious, is to know ourselves – our weakness, errors, deficiencies, and sins, that, by divine grace, we may overcome and turn from them all.
+ - Have a time and place for everything, and do everything in its time and place, and you will not only accomplish more, but have far more leisure than those who are always hurrying.
+ - Between two evils, choose neither; between two goods, choose both.
+ - The great end of education is to discipline rather than to furnish the mind; to train it to the use of its own powers rather than to fill it with the accumulation of others.
+ - To waken interest and kindle enthusiasm is the sure way to teach easily and successfully.
+ - There is nothing so elastic as the human mind. The more we are obliged to do, the more we are able to accomplish.
+ - Appreciation, whether of nature, or books, or art, or men, depends very much on temperament. What is beauty or genius or greatness to one, is far from being so to another.
+ - Anxiety is the rust of life, destroying its brightness and weakening its power. A childlike and abiding trust in Providence is its best preventive and remedy.
+ - Conscience is merely our own judgment of the right or wrong of our actions, and so can never be a safe guide unless enlightened by the word of God.
+ - True humility is not an abject, groveling, self-despising spirit; it is but a right estimate of ourselves as God sees us.
+ - A holy life is not an ascetic, or gloomy or solitary life, but a life regulated by divine truth and faithful in Christian duty. It is living above the world while we are still in it.
+ - True religion extends alike to the intellect and the heart. Intellect is in vain if it lead not to emotion, and emotion is vain if not enlightened by intellect; and both are vain if not guided by truth and leading to duty.
+ - Contemplation is to knowledge what digestion is to food – the way to get life out of it.
+ - Never think that God’s delays are God’s denials. True prayer always receives what it asks, or something better.
+ - To possess money is very well; it may be a valuable servant; to be possessed by it is to be possessed by the devil, and one of the meanest and worst kind of devils.
+ - Common sense is, of all kinds, the most uncommon. It implies good judgment, sound discretion, and true and practical wisdom applied to common life.
+ - Accuracy is the twin brother of honesty; inaccuracy is a near kin to falsehood.
+ - The slanderer and the assassin differ only in the weapon they use; with the one it is the dagger, with the other the tongue. The former is worse that the latter, for the last only kills the body, while the other murders the reputation.
+ - Unbelief, in distinction from disbelief, is a confession of ignorance where honest inquiry might easily find the truth. – “Agnostic” is but the Greek for “ignoramus.”
+ - To murder character is as truly a crime as to murder the body: the tongue of the slanderer is brother to the dagger of the assassin.
+ - Mystery is but another name for ignorance; if we were omniscient, all would be perfectly plain!
+ - Some so speak in exaggerations and superlatives that we need to make a large discount from their statements before we can come at their real meaning.
+ - We should be as careful of the books we read, as of the company we keep. The dead very often have more power than the living.
+ - The secret of a good memory is attention, and attention to a subject depends upon our interest in it. We rarely forget that which has made a deep impression on our minds.
+ - Indolence is the dry rot of even a good mind and a good character; the practical uselessness of both. It is the waste of what might be a happy and useful life.
+ - Quiet and sincere sympathy is often the most welcome and efficient consolation to the afflicted. Said a wise man to one in deep sorrow, I did not come to comfort you; God only can do that; but I did come to say how deeply and tenderly I feel for you in your affliction.
+ - Piety and morality are but the same spirit differently manifested. Piety is religion with its face toward God; morality is religion with its face toward the world.
+ - To be good, we must do good; and by doing good we take a sure means of being good, as the use and exercise of the muscles increase their power.
+ - Anecdotes are sometimes the best vehicles of truth, and if striking and appropriate are often more impressive and powerful than argument.
+ - We never do evil so thoroughly and heartily as when led to it by an honest but perverted, because mistaken, conscience.
+ - To rule one’s anger is well; to prevent it is still better.
+ - Seek for duty, and happiness will follow as the shadow comes with the sunshine.
+ - All things are ordered by God, but His providence takes in our free agency, as well as His own sovereignty.
+ - The most we can get out of life is its discipline for ourselves, and its usefulness for others.
+ - Let your holidays be associated with great public events, and they may be the life of patriotism as well as a source of relaxation and personal employment.
+ - He that is possessed with a prejudice is possessed with a devil, and one of the worst kinds of devils, for it shuts out the truth, and often leads to ruinous error.
+ - Compromise is but the sacrifice of one right or good in the hope of retaining another – too often ending in the loss of both.
+ - Right actions for the future are the best apologies for wrong ones in the past – the best evidence of regret for them that we can offer, or the world receive.
+ - Sincerity is not test of truth-no evidence of correctness of conduct. You may take poison sincerely believing it the needed medicine, but will it save your life?
+ - If rich men would remember that shrouds have no pockets, they would, while living, share their wealth with their children, and give for the good of others, and so know the highest pleasure wealth can give.
+ - True art is reverent imitation of God.
+ - Hell is truth seen too lateduty neglected in its season.
+ - Duty performed gives clearness and firmness to faith, and faith thus strengthened through duty becomes the more assured and satisfying to the soul.
+ - Age does not depend upon years, but upon temperament and health. Some men are born old, and some never grow so.
+ - Most of our censure of others is only oblique praise of self, uttered to show the wisdom and superiority of the speaker. It has all the invidiousness of self-praise, and all the ill-desert of falsehood.
+ - Sin with the multitude, and your responsibility and guilt are as great and as truly personal, as if you alone had done the wrong.
+ - Some persons are exaggerators by temperament. They do not mean untruth, but their feelings are strong, and their imaginations vivid, so that their statements are largely discounted by those of calm judgment and cooler temperament. They do not realize that we always weaken what we exaggerate.
+ - Anxiety is the poison of human life; the parent of many sins and of more miseries.
+ - He who can suppress a moments anger may prevent a day of sorrow.
+ - Most controversies would soon be ended, if those engaged in them would first accurately define their terms, and then adhere to their definitions.
+ - Whatever our place allotted to us by Providence that for us is the post of honor and duty. God estimates us, not by the position we are in, but by the way in which we fill it.
+ - Credulity is belief in slight evidence, with no evidence, or against evidence.
+ - Any act often repeated soon forms a habit; and habit allowed, steady gains in strength, At first it may be but as a spider’s web, easily broken through, but if not resisted it soon binds us with chains of steel.
+ - This world is the land of the dying; the next is the land of the living.
+ - Apothegms are the wisdom of the past condensed for the instruction and guidance of the present.
+ - Superstitions are, for the most part, but the shadows of great truths.
+ - One of the great lessons the fall of the leaf teaches, is this: do your work well and then be ready to depart when God shall call.
+ - The first evil choice or act is linked to the second; and each one to the one that follows, both by the tendency of our evil nature and by the power of habit, which holds us as by a destiny.
+ - We never reach our ideals, whether of mental or moral improvement, but the thought of them shows us our deficiencies, and spurs us on to higher and better things.
+ - Attention to a subject depends upon our interest in it.
+ - There is often as much independence in not being led as in not being driven.
+ - To rejoice in another’s prosperity is to give content to your lot; to mitigate another’s grief is to alleviate or dispel your own.
+ - Nature hath nothing made so base, but can read some instruction to the wisest man.
+ - Deviation from either truth or duty is a downward path.
+ - Science has sometimes been said to be opposed to faith, and inconsistent with it. But all science, in fact, rests on a basis of faith, for it assumes the permanence and uniformity of natural laws – a thing which can never be demonstrated.
+ - Some blame themselves to extort the praise of contradiction from others.
+ - Never be so brief as to become obscure.
+ - Preventives of evil are far better than remedies; cheaper and easier of application, and surer in result.
+ - We weep over the graves of infants and the little ones taken from us by death; but an early grave may be the shortest way to heaven.
+ - What we gave, we have; What we spent, we had; What we left, we lost.
+ - Some men are born old, and some men never seem so. If we keep well and cheerful, we are always young and at last die in youth even when in years would count as old.
+ - Ridicule may be the evidence of with or bitterness and may gratify a little mind, or an ungenerous temper, but it is no test of reason or truth.
+ - My books are my tools, and the greater their variety and perfection the greater the help to my literary work.
+ - He that is possessed with a prejudice is possessed with a devil.
+ - No true civilization can be expected permanently to continue which is not based on the great principles of Christianity.
+ - Where duty is plain delay is both foolish and hazardous; where it is not, delay may be both wisdom and safety.
+
+87 quotes

@@ -1,0 +1,184 @@
+ - Love yourself, accept yourself, forgive yourself, and be good to yourself, because without you the rest of us are without a source of many wonderful things.
+ - Too often we underestimate the power of a touch, a smile, a kind word, a listening ear, an honest compliment, or the smallest act of caring, all of which have the potential to turn a life around.
+ - Change is the end result of all true learning.
+ - Your talent is God’s gift to you. What you do with it is your gift back to God.
+ - Only the weak are cruel. Gentleness can only be expected from the strong.
+ - To love others you must first love yourself.
+ - The person who risks nothing, does nothing, has nothing, is nothing, and becomes nothing. He may avoid suffering and sorrow, but he simply cannot learn, feel, change, grow or love. Chained by his certitude, he is a slave; he has forfeited his freedom. Only the person who risks is truly free.
+ - Risks must be taken because the greatest hazard in life is to risk nothing.
+ - Let go. Why do you cling to pain? There is nothing you can do about the wrongs of yesterday. It is not yours to judge. Why hold on to the very thing which keeps you from hope and love?
+ - Death is a challenge. It tells us not to waste time. It tells us to tell each other right now that we love each other.
+ - A life without passion is not living, it’s merely existing.
+ - A life without love, no matter how many other things we have, is an empty, meaningless one.
+ - I have a very strong feeling that the opposite of love is not hate – it’s apathy. It’s not giving a damn.
+ - The greatest risk is to risk nothing at all.
+ - Value yourself. The only people who appreciate a doormat are people with dirty shoes.
+ - The most painful thing to experience is not defeat but regret.
+ - Compassion is an act of tolerance where kindness and forgiveness reign. When we make the compassionate choice, we enhance the dignity of each individual, which is the very essence of loving them.
+ - Don’t hold to anger, hurt or pain. They steal your energy and keep you from love.
+ - Life is a paradise for those who love many things with a passion.
+ - The easiest thing to be in the world is you. The most difficult thing to be is what other people want you to be. Don’t let them put you in that position.
+ - Don’t smother each other. No one can grow in the shade.
+ - Life is uncharted territory. It reveals its story one moment at a time.
+ - You have the choice. You can choose joy over despair, happiness over tears, action over apathy, growth over stagnation.
+ - We all fear what we don’t know – it’s natural.
+ - Listening is love in action.
+ - Worry never robs tomorrow of its sorrow, it only saps today of its joy.
+ - It’s not enough to have lived. We should be determined to live for something. May I suggest that it be creating joy for others, sharing what we have for the betterment of personkind, bringing hope to the lost and love to the lonely.
+ - Life is a great and wondrous mystery, and the only thing we know that we have for sure is what is right here right now. Don’t miss it.
+ - In order to learn, you have to be free. You have to be free to experiment, free to try, free to make mistakes...
+ - Say “yes” to life! “Yes” to wonder, to joy, to despair. “Yes” to pain, “yes” to what you don’t understand. Try “yes.” Try “always.” Try “possible.” Try “hopeful.” Try “I will.” And try “I can.”
+ - To love is to risk not being loved in return.
+ - The life and love we create is the life and love we live.
+ - Love is always open arms. If you close your arms about love you will find that you are left holding only yourself.
+ - The fact that I can plant a seed and it becomes a flower, share a bit of knowledge and it becomes another’s, smile at someone and receive a smile in return, are to me continual spiritual exercises.
+ - In a crazy world, it’s only your insanity that will keep you sane.
+ - Those who think they know it all have no way of finding out they don’t...
+ - Don’t spend your precious time asking “Why isn’t the world a better place?” It will only be time wasted. The question to ask is “How can I make it better?” To that there is an answer.
+ - Choose the way of life. Choose the way of love. Choose the way of caring. Choose the way of goodness. It’s up to you. It’s your choice.
+ - In the end you have only you.
+ - No one gets out of this world alive, so the time to live, learn, care, share, celebrate, and love is now.
+ - Love is always bestowed as a gift – freely, willingly and without expectation. We don’t love to be loved; we love to love.
+ - We all need each other.
+ - Forgive others, forgive yourself, forgive yourself for not being perfect, and accept responsibility for your own life.
+ - One does not fall “in” or “out” of love. One grows in love.
+ - The only thing of value we can give kids is what we are, not what we have.
+ - We don’t love to be loved in return; we love to love.
+ - Happiness is intrinsic, it’s an internal thing. When you build it into yourself, no external circumstances can take it away.
+ - A total immersion in life offers the best classroom for learning to love.
+ - To love oneself is to struggle to rediscover and maintain your uniqueness.
+ - Find the person who will love you because of your differences and not in spite of them and you have found a lover for life.
+ - To live in love is life’s greatest challenge. It requires more sublety, flexibility, sensitivity, understanding, acceptance, tolerance, knowledge and strength than any other human endeavor.
+ - Change. It has the power to uplift, to heal, to stimulate, surprise, open new doors, bring fresh experience and create excitement in life. Certainly it is worth the risk.
+ - What love we’ve given, we’ll have forever. What love we fail to give, will be lost for all eternity.
+ - If I don’t have wisdom, I can teach you only ignorance.
+ - God made mud, God made dirt, God made boys so girls could flirt.
+ - A life lived in love will never be dull.
+ - Catch the beauty of the moment!
+ - Don’t look over people’s shoulders. Look in their eyes. Don’t talk at your children. Take their faces in your hands and talk to them. Don’t make love to a body, make love to a person.
+ - Don’t walk in my head with your dirty feet.
+ - Every moment spent in unhappiness is a moment of happiness lost.
+ - Love is life. And if you miss love, you miss life.
+ - People are not here to meet your expectations.
+ - Fantastic things happen – to the way we feel, to the way we make other people feel. All this simply by using positive words.
+ - One cannot give what he does not possess. To give love you must possess love. To love others you must love yourself.
+ - To live in love is to live in life, and to live in life is to live in love.
+ - If you make mistakes, if you act like a human being- I will love you no matter.
+ - Relish love in your old age! Aged love is like aged wine; it becomes more satisfying, more refreshing, more valuable, more appreciated and more intoxicating!
+ - To laugh is to risk appearing a fool, to weep is to risk appearing too sentimental, to reach out for another is to risk involvement, and to expose feelings is to risk exposing one’s true self.
+ - Time has no meaning in itself unless we choose to give it significance.
+ - I’d like to be remembered for being a good, kind, loving, gentle man who attempted to live wisely, and who cared a lot.
+ - The heart is the place where we live our passions. It is frail and easily broken, but wonderfully resilient. There is no point in trying to deceive the heart. It depends upon our honesty for its survival.
+ - There are scores of people waiting for someone just like us to come along; people who will appreciate our compassion, our encouragement, who will need our unique talents. Someone who will live a happier life merely because we took the time to share what we had to give.
+ - We need to learn to let go as easily as we grasp and we will find our hands full and our minds empty.
+ - A growing relationship can only be nurtured by genuineness.
+ - The hardest battle you are ever going to have to fight is the battle to be just you.
+ - Most of us remain strangers to ourselves, hiding who we are, and ask other strangers, hiding who they are, to love us.
+ - Only when we give joyfully, without hesitation or thought of gain, can we truly know what love means.
+ - When we give ourselves in love we become our most vulnerable. We are never safe. We become open to disappointment and hurt.
+ - Love is not a thing, it is not lost when given. You can offer your love completely to hundreds of people and still retain the same love you had originally.
+ - Don’t brood. Get on with living and loving. You don’t have forever.
+ - I’ve always thought that people need to feel good about themselves and I see my role as offering support to them, to provide some light along the way.
+ - Never idealize others. They will never live up to your expectations.
+ - If you don’t like the scene you’re in, if you’re unhappy, if you’re lonely, if you don’t feel that things are happening, change your scene. Paint a new backdrop.
+ - Never idealize others. They will never live up to your expectations. Don’t over-analyze your relationships. Stop playing games. A growing relationship can only be nurtured by genuineness.
+ - Life lived for tomorrow will always be just a day away from being realized.
+ - A loving relationship is one in which the loved one is free to be himself – to laugh with me, but never at me; to cry with me, but never because of me; to love life, to love himself, to love being loved. Such a relationship is based upon freedom and can never grow in a jealous heart.
+ - Don’t over analyze your relationships.
+ - Labels are distancing phenomena. They push us away from each other.
+ - I love to think that the day you’re born, you’re given the world as a birthday present.
+ - Life is meant to be a celebration! It shouldn’t be necessary to set aside special times to remind us of this fact. Wise is the person who finds a reason to make every day a special one.
+ - Happiness and love are just a choice away.
+ - A single rose can be my garden; a single friend, my world.
+ - We seem to gain wisdom more readily through our failures than through our successes. We always think of failure as the antithesis of success, but it isn’t. Success often lies just the other side of failure.
+ - Loving means sharing joy with people.
+ - Because you are human, you do have magic. Get in touch with it. When you feel the insanity rising, don’t push it down. Let it come out. Just once-and then let me know what happens!
+ - There is nothing wrong with making mistakes and not having all the answers, so long as we are willing to admit this and strive for personal betterment. Those who think they know it all have no way of finding out that they don’t.
+ - We are no longer puppets being manipulated by outside powerful forces: we become the powerful force ourselves.
+ - Happiness comes only when we push our brains and hearts to the farthest reaches of which we are capable. The purpose of life is to matter-to count, to stand for something, to have it make so difference that we lived at all.
+ - A loving relationship is a wanting to celebrate, communicate, and know another’s heart and soul.
+ - Man has no choice but to love. For when he does not, he finds his alternatives lie in loneliness, destruction and despair.
+ - Love requires that we overcome the traditional and self-defeating fears that place distance between ourselves and others.
+ - We all need to be recognized for what we’re doing, for our work. Every once in a while we need someone to come up to us and say, ‘You’re beautiful. That was well done. That’s nice.’
+ - Hold on to your dreams for they are, in a sense, the stuff of which reality is made. It is through our dreams that we maintain the possibility of a better, more meaningful life.
+ - We need others. We need others to love and we need to be loved by them. There is no doubt that without it, we too, like the infant left alone, would cease to grow, cease to develop, choose madness and even death.
+ - What we call the secret of happiness is no more a secret than our willingness to choose life.
+ - Everybody needs a hug. It changes your metabolism.
+ - Why do some people always see beautiful skies and grass and lovely flowers and incredible human beings, while others are hard-pressed to find anything or any place that is beautiful?
+ - There are all kinds of symbols. Verbal language is only one. Sometimes by opening our mouths, we make dreadful errors. It’s often so much nicer just to look at somebody and vibrate.
+ - Man seldom questions the fact that ugliness and evil are to be found in the world. But he’s never as ready to accept that life also offers unlimited beauty and potential for joy as well as endless opportunities for pleasure.
+ - After all, the wrong is done. It is past and cannot be changed. We have only the present and the future upon which to move forward.
+ - If you want to learn to love, then you must start the process of finding out what it is, what qualities make up a loving person and how these are developed. Each person has the potential for love. But potential is never realized without work.
+ - Assume that people are good until you actually and specifically learn differently. And even then, know that they have potential for change and that you can help them out.
+ - Definition of a relationship – an enduring, mutually-agreed upon connection or union, which fulfills certain needs of the individuals involved and the society in which they live.
+ - It’s not enough to have lived. We should be determined to live for something.
+ - Education should be the process of helping everyone to discover his uniqueness, to teach him how to develop that uniqueness, and then to show him how to share it because that’s the only reason for having anything.
+ - The essence of education is not to stuff you with facts but to help you discover your uniqueness, to teach you how to develop it, and then to show you how to give it away.
+ - Learn to bend. It’s better than breaking.
+ - Live nutty. Just occasionally. Just once in a while. And see what happens. It brightens up the day.
+ - Experience seems to convince us that only fools trust, that only fools believe and accept all things. If this is true, then love is most foolish. For if it is not founded on trust, belief and acceptance, it’s not love.
+ - It is difficult for some people to accept that love is a choice. This seems to run counter to the generally accepted theory of romantic love which expounds that love is inborn and as such requires no more than to accept it.
+ - Love withers with predictability; its very essence is surprise and amazement. To make love a prisoner of the mundane is to take its passion and lose it forever.
+ - Too often we underestimate the power of a touch...
+ - The only lasting trauma is the one we suffer without positive change.
+ - We need others. We need others to love and we need to be loved by them.
+ - Love creates an “us” without destroying the “me”.
+ - Love is spontaneous and craves expression through joy, through beauty, through truth, even through tears. Love lives the moment; it’s neither lost in yesteryear nor does it crave for tomorrow. Love is NOW!
+ - A life of love is one of continualgrowth, where the doors and windows of experience are always open to thewonder and magic that life offers. To love is to risk living fully.
+ - Based on a string of bad breakups, I was forced to examine my choice of partners. Surely, that must have abolished me from any wrongdoing.
+ - When we feel joyful, euphoric, happy, we are more open to life, more capable of seeing things clearly and handling daily tensions.
+ - There are many miracles in the world to be celebrated and, for me, garlic is the most deserving.
+ - Love and the self are one and the discovery of either is the realization of both.
+ - Each man lives love in his limited fashion and does not seem to relate the resultant confusion and loneliness to his lack of knowledge about love.
+ - It is paradoxical that many educators and parents still differentiate between a time for learning and a time for play without seeing the vital connection between them.
+ - If one wishes to know love, one must live love, in action. Thoughts, readings and discourse on love are of value only as they present questions to be acted upon.
+ - Love is a dynamic interaction, lived every second of our lives, all of our lives.
+ - We are so ruled by what people tell us we must be that we have forgotten who we are.
+ - Tact is rubbing out another’s mistake instead of rubbing it in.
+ - A wonderful realization will be the day you realize that you are unique in all the world. The world is an incredible unfulfilled tapestry, and only you can fulfill that tiny space that is yours.
+ - In love, each man is his own personal challenge.
+ - We are not evil, inadequate or incompetent when our relationships fail.
+ - Life is our greatest possession and love its greatest affirmation.
+ - The only people who become wealthy by being concerned with the future are insurance companies.
+ - To this day I cannot see a bright daffodil, a proud gladiola, or a smooth eggplant without thinking of Papa. Like his plants and trees, I grew up as a part of his garden.
+ - We created time, and now we have become the slave of time.
+ - I was one of those fortunate individuals who grew up in a large, passionate, demonstrative Italian family where we were taught to love as naturally as we breathed and ate giant bowls of pasta!
+ - Love always creates, it never destroys. In this lie’s man’s only promise.
+ - Each of our acts makes a statement as to our purpose.
+ - Knowing that one is always capable of change, the second step lies in making the decision to change. Change does not occur by merely willing it anymore than behavior changes simply through insight.
+ - Nine times out of ten, when you extend your arms to someone, they will step in, because basically they need precisely what you need.
+ - Everybody is teaching Everybody to Love at every moment.
+ - Man is happiest when he is creating. In fact, the highest state of which man is capable lies in the creative act.
+ - Love is always open arms.
+ - The oppposite of Love is not Hate – it’s apathy.
+ - Live now. When you are eating, eat. When you are loving, love. when you are talking with someone, talk. When you are looking at a flower, look. Catch the beauty of the moment!
+ - The human need to play is a powerful one. When we ignore it, we feel there is something missing in our lives.
+ - He who remains calm while those around him panic probably doesn’t know what’s going on.
+ - The most unfortunate thing that happens to a person who fears failure is that he limits himself by becoming afraid to try anything new.
+ - Things omitted are often more deadly than errors committed.
+ - Ninety per-cent of what we worry about never happens, yet we worry and worry. What a horrible way to go through life! What a horrible thing to do to your colon!
+ - To place your ideas and your dreams before the crowd is to risk being called naive.
+ - There is only the moment. The now. Only what you are experiencing at this second is real.
+ - Love is always changing and, unless we stay aware and change with it, it eludes us.
+ - When it comes to giving love, the opportunities are unlimited, and we are all gifted.
+ - If one wishes to be a lover he must start by saying ‘YES’ to love.
+ - It’s amazing – you may not realize it, but so much of what you are not is because you are literally standing in your own way of becoming. And what I’m pleading with you about is, get the hell out of your own way.
+ - My rule is always, People first and things second.
+ - It is when we ask for love less and begin giving it more that the basis of human love is revealed to us.
+ - We are born for love, but it will die if not nurtured.
+ - It is the foregiver who is freed in foregiving.
+ - Love revels in and grows in the moment and the joy of the moment.
+ - We are not for everyone and everyone is not for us. The question is, ‘If we cannot be with another, can we at least not hurt them? Can we, at least, find a way to coexist?’
+ - To that there is an answer.
+ - When we cling to pain, we end up punishing ourselves.
+ - If one wishes to know love, one must live love, in action.
+ - There is nothing quite so satisfying, and so healing, as a good cry.
+ - What do years have to do with age?
+ - If we wish to free ourselves from enslavement, we must choose freedom and the responsibility this entails.
+ - Every day we are offered new means for learning and growing in love.
+ - We treat our encounters with them with carefree casualness. We are certain that our relationships will naturally take care of themselves.
+ - One must never be satisfied with his ability to love. No matter where he is, it is always just a beginning.
+ - This loving person is a person who abhors waste-waste of time, waste of human potential. How much time we waste. As if we were going to live forever.
+ - Success often lies just the other side of failure.
+
+182 quotes

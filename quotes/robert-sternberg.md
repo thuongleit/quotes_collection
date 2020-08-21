@@ -1,0 +1,21 @@
+ - The essence of intelligence would seem to be in knowing when to think and act quickly, and knowing when to think and act slowly.
+ - Success in life does not necessarily originate with academic success.
+ - And in order to succeed in later life, you need creative skills because look at how fast the world is changing.
+ - Current intelligence-testing practices require examinees to answer but not to pose questions. In requiring only the answering of questions, these tests are missing a vital half of intelligence- the asking of questions...
+ - I had planned to be a psychology major, but I bombed introductory psychology.
+ - The world supports a multi-million dollar industry of intelligence and ability research, but it devotes virtually nothing to determine why this intelligence is squandered by engaging in amazing, breathtaking acts of stupidity.
+ - In other words, if a teacher only teaches in one way, then they conclude that the kids who can’t learn well that way don’t have the ability, when, in fact, it may be that the way the teacher’s teaching is not a particularly good match to the way those kids learn.
+ - But in any case, I did poorly on the tests and so, in the first three years of school, I had teachers who thought I was stupid and when people think you’re stupid, they have low expectations for you.
+ - If there’s going to be an SAT, it’s probably practical to invest in a book or perhaps in a course, but I’m sorry to say, I went to some classes that my kids took and it was clear in school that what they were doing was just SAT training.
+ - There was already a famous Sternberg in psychology and it was obvious there would not be another.
+ - You can quickly go from having passion and love to passion and hate when an act of betrayal happens.
+ - Well, first of all, we did lots of studies where we show practical intelligence doesn’t correlate with G. We have probably two dozen studies that practical intelligence better predicts job success than IQ.
+ - Passion is the quickest to develop, and the quickest to fade. Intimacy develops more slowly, and commitment more gradually still.
+ - There is no recipe to be a great teacher, that’s what is unique about them.
+ - If you’re not adapting to the very rapidly changing environment, if you can’t think creatively, you lose big in this society because there are very few jobs for you left.
+ - So, for example, if a child is labeled as having a learning disability, it has very concrete consequences for the kinds of services and potentially accommodations that child will get.
+ - I’ve taught statistics, math courses and what I’ve found is that often if you teach them algebraically the formulas, you’ll have one group of kids doing well.
+ - But what many psychologists have done, probably because they did well on a test themselves and everyone wants high self esteem, is to create this little box and then do their research inside it.
+ - And so, you can do hundreds and hundreds of studies showing a general factor and just so long as you restrict your populations, your testing materials and the kinds of situations you look at, you can keep finding the same wrong thing again and again.
+
+19 quotes

@@ -1,0 +1,39 @@
+ - It hurts too much so I don’t want to talk about it.
+ - Something with inner beauty will live forever, like the scent of a rose.
+ - I have a great deal of empathy for anyone who’s having a hard time. I believe this ability to see another’s viewpoint has served me well as a writer.
+ - The magic is over, but its effects will live forever.
+ - A beautiful thing is precious no matter the price.
+ - I love you, I thought. But I didn’t say it. It was not that I feared she would laugh in my face. She was far too kind for that. My fear was a greater one – that she won’t say it back.
+ - You shouldn’t miss someone who don’t miss you, right?
+ - This isn’t a fairy tale. It’s New York City.
+ - Sometimes, unexpected things can happen.
+ - True love would look a second time. True love would not be thwarted. True love would not accept no for an answer.
+ - Maybe we judge people too much by their looks because it’s easier than seeing what’s really important.
+ - She wanted to leave. I loved her too much to make her stay.
+ - A beautiful thing is precious, no matter the price. Those who do not know how to see the precious things in life will never be happy...
+ - I am not frightened of you Kyle. I am frightened for you.
+ - Every girl pretends she is a princess at one point, no matter how little her life is like that.
+ - Of course, maybe I’d end up like one of those crazy old people with, like, sixty cats. And one day, the neighbors would complain about the smell, and it would turn out I’d died and the cats had eaten me. Still, it might be nice to have a cat.
+ - What happened to romance? Sappy, soppy longhand love letters.
+ - People make such a big deal about looks, but after a while, when you know someone, you don’t even notice anymore...
+ - In stories like Cinderella and Beauty and the Beast, they always say the heroine is ‘as good as she is beautiful.’ I wondered if people just wanted that to be true, wanted the beautiful to be good. I wondered if they wanted the ugly to be bad because then they wouldn’t have to feel bad for them.
+ - I wrote poetry, journals, and, especially, plays for the neighborhood kids to perform. I had an ordinary, happy childhood. Nothing much was going on, but I had fun.
+ - A boy admiring a pretty girl. A rare thing to be certain. But love-true love-is something else.
+ - I was a lawyer for about ten years. The law teaches one to see things from all different angles.
+ - Maybe you actually do need to face obstacles with someone to know that they’re the one you’d sacrifice for.
+ - Everyone can use a little beauty.
+ - A shoe that fits one person pinches another.
+ - I was painfully shy, and I had tremendous difficulty making friends. So, lacking friends, I watched other people. Watching is something all writers must do, and it was in junior high that I learned to do it.
+ - Good to know: Doctors can’t cure you of being a beast.
+ - That’s what true love should be like-the person should be part of your soul and you should know what they’re feeling all the time.
+ - I enjoy people who aren’t afraid to say what they mean. It makes life so much easier!
+ - Seem like a lot of people wear shoes they can’t walk in.
+ - It would be so great to have someone my own age to talk to, even if it was just about books.
+ - Magic. It was magic, and the magic is called love.
+ - Any experience that isn’t fun is probably something I will at least use in my writing someday.
+ - Since I’ve written many of my books from a less-than-sympathetic viewpoint, I think that being able to see things from all sides is a useful talent.
+ - I write contemporary fiction, and that is what my readers want to read.
+ - Each of my books took roughly one and a half years to write. Some may have taken a shorter time to write the draft and a longer time to revise, while others were the opposite.
+ - I am a princess. I do not follow fashions – I make them.
+
+37 quotes

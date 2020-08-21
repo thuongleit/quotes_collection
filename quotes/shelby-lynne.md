@@ -1,0 +1,56 @@
+ - Be exceptional. Make tremendous efforts to be extraordinary. What a privilege to be here on the planet to contribute your unique donation to humankind. Just make sure you do so.
+ - My thinking brain never stops my creative brain never stops so they wrestle a lot and get in fights sometimes they fight in the night and keep me up.
+ - I am very picky about my people and my beer.
+ - I am a late starter. I like to go on into the night when it’s quiet and everything has shut down. I find that’s where music and minds open in the dark.
+ - I just don’t conform very well.
+ - I love being a gypsy and getting on the bus with the band making sounds for the people who love and enjoy a night of Americana and good times.
+ - I can find some way to make poetry out of my life’s experiences.
+ - You can’t roll a joint on an iPod, buy vinyl.
+ - So it’s the greatest compliment in the world when people want to hear you sing. That means it feels good to them, so I keep doing it.
+ - I feel like I’ve kind of gotten to a peaceful place in my heart.
+ - I’m the audience first, and if you’re gonna be a great performer, you need to be a great audience. So, I do music for me first, and whoever likes it likes it, and whoever doesn’t – well, it’s just not for them.
+ - I can’t write about your pain; I only know my own.
+ - I don’t talk about my personal life. But the relationships I’ve had have usually been with other musicians. It’s just easier that way.
+ - I feel like records are moments in time, a modern moment that feels right then and it found its way to us then, that minute. We can all try and repeat records we have made that had success, but it’s not possible.
+ - That’s what I so admired about Johnny Cash and June Carter. Their music wasn’t a big influence on me. It was their character, their individual styles, what they were like as people. They weren’t afraid to stick out.
+ - What is happy? I think happy’s in the moment. I don’t think everybody can be happy all the time.
+ - My band can tell you, I’d rather do anything than rehearse.
+ - I never sing a song more than twice because my fear of waning excitement for a piece is part of my troubles. I so rely on vibe, energy and emotions that the technical part occurs to me last.
+ - I can’t stand too long of a record.
+ - I was raised in South Alabama in the woods, y’know? I’m country.
+ - I wanted to be a rock ‘n’ roll star. It defines life for me. It’s all I’ve ever imagined for myself.
+ - The musings are the same I believe the fire to create burns so heavily that I am never far from a guitar or a fountain pen.
+ - I’d like to thank my parents for always stressing, be an individual.
+ - A great hang is mandatory. But in all of my years as a traveling musician, on a whole it’s been pretty damn magical. There have been a couple duds along the way, but most time, I’m in awe of the guys who want to play on my records.
+ - I still believe in the old-school show thing no frills, no fancy equipment just a guitar and some amps and some drums, and throw it out there and do it the best you can in a live sense, because it’s easy to make records. But the live show is where you really show if you’ve got the balls to do it.
+ - If you think too much about something, you’re not feeling it.
+ - I don’t like modern country music. It’s not what I’m into, is all. I’m old-school.
+ - I write about what I know.
+ - I like to make great albums.
+ - I just had it with the corporate money, money, money label thing.
+ - Well, I had a record deal since I was 18, and it got me where I am.
+ - I’m comfortable in my miseries. I have no choice.
+ - I don’t feel like taking anybody’s money.
+ - I was singing before I could talk.
+ - I like strength. I depend on my own.
+ - I’ve pretty much run the circle of labels and dealing with that whole kind of battle, because you’re the one creating the music, but you’re not the final say. That’s always been hard.
+ - I love the live cut part of making records the surprises are the prizes.
+ - It’s time for artists to take their music back.
+ - I didn’t go to college.
+ - I have always wanted to see what the vibe was like and I was right It’s on the Vermillion Bayou.
+ - I like rules that are broken.
+ - The only way to get ahead in the music business these days is to call up all your friends. To pool your resources.
+ - Music should be poor. Music should be with out air conditioning. That’s just the way it is.
+ - I can’t tell you how freeing it is to have my own label. For the first time in my career, I have total control.
+ - It’s taken me years to embrace the softer elements of who I am and let that shine some.
+ - I wasn’t encouraged to write just stand there and sing and I never thought I was a writer. I always figured if I couldn’t write something as good as “He Stopped Loving Her Today,” then what’s the point?
+ - I was an opening act for 10 years.
+ - I don’t think I’ve ever put it in words before. But daddy took a gun and ended his life and took momma’s with him.
+ - It is so killer to collaborate with someone who gets what you’re trying to say.
+ - It was hard to work and work and work and not get your music played on the radio.
+ - I don’t have a problem baring my emotions in music. That’s one of the reasons I’m glad to have music in my life. I’m pretty resilient as far as being a human being. A lot of songs write themselves.
+ - Now I can make a thousand dollars a night at a club.
+ - You know, I just don’t believe that art is supposed to make sense. I really don’t think it’s supposed to be analyzed to death. It’s left to the listener or looker to get what they can get from it.
+ - I insist on the truth. I surround myself with people who tell the truth.
+
+54 quotes

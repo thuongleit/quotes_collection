@@ -1,0 +1,260 @@
+ - O, what a tangled web we weave when first we practise to deceive!
+ - Teach self-denial and make its practice pleasure, and you can create for the world a destiny more sublime that ever issued from the brain of the wildest dreamer.
+ - The will to do, the soul to dare.
+ - Sleep in peace, and wake in joy.
+ - For success, attitude is equally as important as ability.
+ - Is death the last sleep? No, it is the last and final awakening.
+ - Success or failure in business is caused more by the mental attitude even than by mental capacities.
+ - Affection can withstand very severe storms of vigor, but not a long polar frost of indifference.
+ - One crowded hour of glorious life is worth an age without a name.
+ - Vacant heart, and hand, and eye, Easy live and quiet die.
+ - Many miles away there’s a shadow on the door of a cottage on the Shore of a dark Scottish lake.
+ - Revenge, the sweetest morsel to the mouth that ever was cooked in hell.
+ - And love is loveliest when embalm’d in tears.
+ - Look back, and smile on perils past.
+ - Breathes there the man with soul so dead, Who never to himself hath said, This is my own, my native land.
+ - Fight on, brave knights! Man dies, but glory lives! Fight on; death is better than defeat! Fight on brave knights! for bright eyes behold your deeds!
+ - All men who have turned out worth anything have had the chief hand in their own education.
+ - Her blue eyes sought the west afar, For lovers love the western star.
+ - Hope is brightest when it dawns from fears.
+ - A sound head, an honest heart, and an humble spirit are the three best guides through time and to eternity.
+ - Like the dew on the mountain, like the foam on the river, like the bubble on the fountain, thou art gone, and for ever!
+ - God in his goodness sent the grapes To cheer both great and small; Little fools will drink too much And great fools none at all!
+ - Without courage there cannot be truth, and without truth there can be no other virtue.
+ - My foot is on my native heath, and my name is MacGregor.
+ - Despite those titles, power, and pelf, The wretch, concentred all in self, Living, shall forfeit fair renown, And, doubly dying, shall go down To the vile dust, from whence he sprung, Unwept, unhonor’d, and unsung.
+ - For monarchs seldom sigh in vain.
+ - Come one, come all! this rock shall fly From its firm base, as soon as I.
+ - Well, then – our course is chosen – spread the sail – Heave oft the lead, and mark the soundings well – Look to the helm, good master – many a shoal Marks this stern coast, and rocks, where sits the Siren Who, like ambition, lures men to their ruin.
+ - Where is the coward that would not dare to fight for such a land as Scotland?
+ - Marry in haste, repent at leisure.
+ - Love rules the court, the camp, the grove, And men below, and saints above: For love is heaven, and heaven is love.
+ - He is the best sailor who can steer within fewest points of the wind, and exact a motive power out of the greatest obstacles.
+ - The man who is deserving the name is the one whose thoughts and exertions are for others rather than for himself.
+ - Success – keeping your mind awake and your desire asleep.
+ - When thinking about companions gone, we feel ourselves doubly alone.
+ - Fortune may raise up or abuse the ordinary mortal, but the sage and the soldier should have minds beyond her control.
+ - The summer dawn’s reflected hue To purple changed Lock Katrine blue, Mildly and soft the western breeze Just kiss’d the lake, just stirr’d the trees, And the pleased lake, like maiden coy, Trembled but dimpled not for joy.
+ - He that would soothe sorrow must not argue on the vanity of the most deceitful hopes.
+ - The pith of conversation does not consist in exhibiting your own superior knowledge on matters of small consequence, but in enlarging, improving and correcting the information you possess by the authority of others.
+ - All is possible for those who dare to die!
+ - Now, it is well known, that a man may with more impunity be guilty of an actual breach either of real good breeding or of good morals, than appear ignorant of the most minute point of fashionable etiquette.
+ - My hope, my heaven, my trust must be, My gentle guide, in following thee.
+ - True love’s the gift which God has given to man alone beneath the heaven.
+ - True love’s the gift which God has given To man alone beneath the heaven: It is not fantasy’s hot fire, Whose wishes soon as granted fly; It liveth not in fierce desire.
+ - The chain of friendship, however bright, does not stand the attrition of constant close contact.
+ - The way was long, the wind was cold, The Minstrel was infirm and old; His withered cheek, and tresses gray, Seemed to have know a better day.
+ - We build statues out of snow, and weep to see them melt.
+ - O come ye in peace here, or come ye in war, Or to dance at our bridal, young Lord Lochinvar?
+ - True love’s the gift which God has given To man alone beneath the heaven. It is the secret sympathy, The silver link, the silken tie, Which heart to heart, and mind to mind, In body and in soul can bind.
+ - Time rolls his ceaseless course.
+ - Hurry no man’s cattle; you may come to own a donkey yourself.
+ - November’s sky is chill and drear, November’s leaf is red and sear.
+ - From my experience, not one in twenty marries the first love; we build statues of snow and weep to see them melt.
+ - Respect was mingled with surprise, And the stern joy which warriors feel In foemen worthy of their steel.
+ - Love will subsist on wonderfully little hope but not altogether without it.
+ - Within that awful volume lies The mystery of mysteries!
+ - A glass of good wine is a gracious creature, and reconciles poor mortality to itself and that is what few things can do.
+ - The misery of keeping a dog is his dying so soon. But, to be sure, if he lived for fifty years and then died, what would become of me?
+ - The tear, down childhood’s cheek that flows, Is like the dewdrop on the rose; When next the summer breeze comes by And waves the bush, the flower is dry.
+ - He turn’d his charger as he spake, Upon the river shore, He gave his bridle reins a shake, Said, “Adieu for evermore, my love, And adieu for evermore.”
+ - I was born a Scotsman and a bare one. Therefore I was born to fight my way in the world.
+ - Good even, good fair moon, good even to thee. I prithee, dear moon, now show to me the form and the features, the speech and degree, of the man that true lover of mine shall be.
+ - A mother’s pride, a father’s joy.
+ - So faithful in love, and so dauntless in war, There never was knight like young Lochinvar.
+ - He that climbs the tall tree has won right to the fruit, He that leaps the wide gulf should prevail in his suit.
+ - A lawyer without history or literature is a mechanic, a mere working mason; if he possesses some knowledge of these, he may venture to call himself an architect.
+ - For a laggard in love, and a dastard in war, Was to wed the fair Ellen of Lochinvar.
+ - Saint George and the Dragon!-Bonny Saint George for Merry England!-The castle is won!
+ - Women are but the toys which amuse our lighter hours – ambition is the serious business of life.
+ - Sleep the sleep that knows not breaking, morn of toil, nor night of waking.
+ - Chess is a sad waste of brains.
+ - Vengeance to God alone belongs; But, when I think of all my wrongs My blood is liquid flame!
+ - High minds, of native pride and force, Most deeply feel thy pangs, Remorse; Fear, for their scourge, means villains have, Thou art the torturer of the brave!
+ - Good wine needs neither bush nor preface to make it welcome. And they drank the red wine through the helmet barr’d.
+ - Discretion is the perfection of reason, and a guide to us in all the duties of life.
+ - That day of wrath, that dreadful day. When heaven and earth shall pass away.
+ - Covetousness bursts the sack and spills the grain.
+ - The willow which bends to the tempest often escapes better than the oak which resists it.
+ - He that climbs a ladder must begin at the first round.
+ - Great talent has always a little madness mixed up with it.
+ - To all, to each, a fair good-night, and pleasing dreams, and slumbers light.
+ - There is a southern proverb – fine words butter no parsnips.
+ - Some touch of Nature’s genial glow.
+ - Each age has deemed the new-born year the fittest time for festal cheer.
+ - To the timid and hesitating everything is impossible because it seems so.
+ - We often praise the evening clouds, And tints so gay and bold, But seldom think upon our God, Who tinged these clouds with gold.
+ - God forgive me for having thought it possible that a schoolmaster could be out and out a rational being.
+ - Steady of heart and stout of hand.
+ - I like a highland friend who will stand by me not only when I am in the right, but when I am a little in the wrong.
+ - War is the only game in which both sides lose.
+ - It was woman that taught me cruelty, and on woman therefore I have exercised it.
+ - Merrily, merrily goes the bark On a breeze from the northward free, So shoots through the morning sky the lark, Or the swan through the summer sea.
+ - A few drops sprinkled on the torch of love make the flame blaze the brighter.
+ - Thou hast had thty day, old dame, but thy sun has long been set. Thou art now the very emblem of an old warhorse turned out on the barren heath; thou hast had thy paces in thy time, but now a broken amble is the best of them.
+ - The race of mankind would perish did they cease to aid each other. We cannot exist without mutual help. All therefore that need aid have a right to ask it from their fellow-men; and no one who has the power of granting can refuse it without guilt.
+ - As long as the Fates permit, live cheerfully.
+ - Though varying wishes, hopes, and fears, Fever’d the progress of these years, Yet now, days, weeks, and months but seem The recollection of a dream.
+ - For love is heaven and heaven is love.
+ - O woman! in our hours of ease Uncertain, coy, and hard to please, And variable as the shade By the light quivering aspen made; When pain and anguish wring the brow, A ministering angel thou!
+ - Love, to her ear, was but a name, Combin’d with vanity and shame; Her hopes, her fears, her joys, were all Bounded within the cloister wall.
+ - Treason seldom dwells with courage.
+ - Look not thou on beauty’s charming; Sit thou still when kings are arming; Taste not when the wine-cup glistens; Speak not when the people listens.
+ - Some feelings are to mortals given With less of earth in them than heaven.
+ - What I have to say is far more important than how long my eyelashes are.
+ - Mystery has great charms for womanhood.
+ - The schoolmaster is termed, classically, Ludi Magister, because he deprives boys of their play.
+ - O Caledonia! stern and wild, Meet nurse for a poetic child! Land of brown heath and shaggy wood; Land of the mountain and the flood!
+ - Real valor consists not in being insensible to danger; but in being prompt to confront and disarm it.
+ - The heart-sick faintness of the hope delayed!
+ - We are like the herb which flourisheth most when trampled upon.
+ - When a man has not a good reason for doing a thing, he has one good reason for letting it alone.
+ - Woe to the youth whom Fancy gains, Winning from Reason’s hand the reins, Pity and woe! for such a mind Is soft contemplative, and kind.
+ - Ambition is no cure for love!
+ - Warriors! and where are warriors found, If not on martial Britain’s ground? And who, when waked with note of fire, Love more than they the British lyre?
+ - As system virtualization becomes mainstream, IT managers will find a greater need for disk imaging for disaster recovery and systems deployment,.
+ - As hope and fear alternate chase Our course through life’s uncertain race.
+ - Never was flattery lost on a poet’s ear; a simple race, they waste their toil for the vain tribute of a smile.
+ - Credit is like a looking-glass, which when once sullied by a breath, may be wiped clear again; but if once cracked can never be repaired.
+ - Heap on more wood! – the wind is chill; But let it whistle as it will, We’ll keep our Christmas merry still.
+ - For Love will still be lord of all.
+ - There is a vulgar incredulity, which in historical matters, as well as in those of religion, finds it easier to doubt than to examine.
+ - But woe awaits a country when She sees the tears of bearded men.
+ - Mellow nuts have the hardest rind.
+ - On his bold visage middle age Had slightly press’d its signet sage, Yet had not quench’d the open truth And fiery vehemence of youth: Forward and frolic glee was there, The will to do, the soul to dare.
+ - A Christmas gambol oft could cheer The poor man’s heart through half the year.
+ - In love quarrels the party that loves the most is always most willing to acknowledge the greater fault.
+ - If a farmer fills his barn with grain, he gets mice. If he leaves it empty, he gets actors.
+ - Teach you children poetry; it opens the mind, lends grace to wisdom and makes the heroic virtues hereditary.
+ - If you keep a thing seven years, you are sure to find a use for it.
+ - I’ll dream no more – by mainly mind Not even in sleep is well resigned. My midnight orisons said o’er, I’ll turn to rest and dream no more.
+ - Adversity is, to me at least, a tonic and a bracer.
+ - A thousand fearful images and dire suggestions glance along the mind when it is moody and discontented with itself. Command them to stand and show themselves, and you presently assert the power of reason over imagination.
+ - It is the privilege of tale-tellers to open their story in an inn, the free rendezvous of all travellers, and where the humour of each displays itself, without ceremony or restraint.
+ - If you once turn on your side after the hour at which you ought to rise, it is all over. Bolt up at once.
+ - Tears are the softening showers which cause the seed of heaven to spring up in the human heart.
+ - Jock, when ye hae naething else to do, ye may be aye sticking in a tree; it will be growing, Jock, when ye ’re sleeping.
+ - The playbill, which is said to have announced the tragedy of Hamlet, the character of the Prince of Denmark being left out.
+ - Welcome as the flowers in May.
+ - Blessed be his name, who hath appointed the quiet night to follow the busy day, and the calm sleep to refresh the wearied limbs and to compose the troubled spirit.
+ - What is a diary as a rule? A document useful to the person who keeps it. Dull to the contemporary who reads it and invaluable to the student, centuries afterwards, who treasures it.
+ - In listening mood she seemed to stand, The guardian Naiad of the strand.
+ - Spur not an unbroken horse; put not your plowshare too deep into new land.
+ - What skilful limner e’er would choose To paint the rainbow’s varying hues, Unless to mortal it were given To dip his brush in dyes of heaven?
+ - O! many a shaft, at random sent, Finds mark the archer little meant! And many a word, at random spoken, May soothe or wound a heart that’s broken!
+ - I was not always a man of woe.
+ - It is more difficult to look upon victory than upon battle.
+ - Commend me to sterling honesty though clad in rags.
+ - What can they see in the longest kingly line in Europe, save that it runs back to a successful soldier?
+ - Nothing is more the child of art than a garden.
+ - Necessity – thou best of peacemakers, As well as surest prompter of invention.
+ - What an ornament and safeguard is humor! Far better than wit for a poet and writer. It is a genius itself, and so defends from the insanities.
+ - Meat eaten without either mirth or music is ill of digestion.
+ - Will future ages believe that such stupid bigotry ever existed!
+ - Every hour has its end.
+ - Threatened folk live long.
+ - Lightly from fair to fair he flew, And loved to plead, lament, and sue; Suit lightly won, and short-lived pain, For monarchs seldom sigh in vain.
+ - Unless a tree has borne blossoms in spring, you will vainly look for fruit on it in autumn.
+ - Thou and I are but the blind instruments of some irresistible fatality, that hurries us along, like goodly vessels driving before the storm, which are dashed against each other, and so perish.
+ - Then hush thee, my darling, take rest while you may, For strife comes with manhood, and waking with day.
+ - If a faultless poem could be produced, I am satisfied it would tire the critics themselves; and annoy the whole reading world with the spleen.
+ - Literature is a great staff, but a very sorry crutch.
+ - A sinful heart makes feeble hand.
+ - Look at a gown of gold, and you will at least get a sleeve of it.
+ - Land of my sires! what mortal hand Can e’er untie the filial band That knits me to thy rugged strand!
+ - Cats are a mysterious kind of folk.
+ - We shall never learn to feel and respect our real calling and destiny, unless we have taught ourselves to consider every thing as moonshine, compared with the education of the heart.
+ - Ridicule, the weapon of all others most feared by enthusiasts of every description, and which from its predominance over such minds, often checks what is absurd, and fully as often smothers that which is noble.
+ - Woman’s faith and woman’s trust, Write the characters in dust.
+ - See yonder rock from which the fountain gushes; is it less compact of adamant, though waters flow from it? Firm hearts have moister eyes.
+ - Still are the thoughts to memory dear.
+ - I am she, O most bucolical juvenal, under whose charge are placed the milky mothers of the herd.
+ - And children know, Instinctive taught, the friend and foe.
+ - Soldier, rest! Thy warfare o’er.
+ - Of all vices, drinking is the most incompatible with greatness.
+ - Methinks I will not die quite happy without having seen something of that Rome of which I have read so much.
+ - The happy combination of fortuitous circumstances.
+ - Silence, maiden; thy tongue outruns thy discretion.
+ - Oh, Brignall banks are wild and fair, And Greta woods are green, And you may gather garlands there Would grace a summer’s queen.
+ - The paths of virtue, though seldom those of worldly greatness, are always those of pleasantness and peace.
+ - The sun never sets on the immense empire of Charles V.
+ - Come forth, old man, – thy daughter’s side Is now the fitting place for thee: When time has quell’d the oak’s bold pride, The youthful tendril yet may hide, The ruins of the parent tree.
+ - I will tear this folly from my heart, though every fibre bleed as I rend it away!
+ - Still from the sire the son shall hear Of the stern strife, and carnage drear, Of Flodden’s fatal field, When shiver’d was fair Scotland’s spear, And broken was her shield!
+ - Earth walks on Earth, Glittering in gold; Earth goes to Earth, Sooner than it wold; Earth builds on Earth, Palaces and towers; Earth says to Earth, Soon, all shall be ours.
+ - Hail to the chief in triumph advances.
+ - Heaven know its time; the bullet has its billet.
+ - For deadly fear can time outgo, and blanch at once the hair.
+ - Just at the age ’twixt boy and youth, When thought is speech, and speech is truth.
+ - Wounds sustained for the sake of conscience carry their own balsam with the blow.
+ - A good deal of philanthropy arises in general from mere vanity and love of distinction gilded over to others and to themselves with some show of benevolent sentiment.
+ - Sordid selfishness doth contract and narrow our benevolence, and cause us, like serpents, to infold ourselves within ourselves, and to turn out our stings to the entire world besides.
+ - And better had they ne’er been born, Who read to doubt, or read to scorn.
+ - It is wonderful what strength of purpose and boldness and energy of will are roused by the assurance that we are doing our duty.
+ - A rusty nail placed near a faithful compass, will sway it from the truth, and wreck the argosy.
+ - Come fill up my cup, come fill up my can, Come saddle your horses, and call up your men; Come open the West Port, and let me gang free, And it’s room for the bonnets of Bonny Dundee!
+ - Contentions fierce, Ardent, and dire, spring from no petty cause.
+ - The most learned, acute, and diligent student cannot, in the longest life, obtain an entire knowledge of this one volume.
+ - Caution comes too late when we are in the midst of evils.
+ - Fair play is a jewel.
+ - Faces that have charmed us the most escape us the soonest.
+ - I envy thee not thy faith, which is ever in thy mouth but never in thy heart nor in thy practice.
+ - Dear to me is my bonnie white steed; Oft has he helped me at pinch of need.
+ - In man’s most dark extremity Oft succour dawns from Heaven.
+ - The lover’s pleasure, like that of the hunter, is in the chase, and the brightest beauty loses half its merit, as the flower its perfume, when the willing hand can reach it too easily. There must be doubt; there must be difficulty and danger.
+ - Greatness of any kind has no greater foe than a habit of drinking.
+ - In the lost battle, Borne down by the flying, Where mingles war’s rattle With groans of the dying.
+ - In that pleasant district of merry England which is watered by the river Don, there extended in ancient times a large forest, covering the greater part of the beautiful hills and valleys which lie between Sheffield and the pleasant town of Doncaster.
+ - It is a great disgrace to religion, to imagine that it is an enemy to mirth and cheerfulness, and a severe exacter of pensive looks and solemn faces.
+ - Do not Christians and Heathens, Jews and Gentiles, poets and philosophers, unite in allowing the starry influences?
+ - The sickening pang of hope deferr’d.
+ - We do that in our zeal our calmer moment would be afraid to answer.
+ - The race of humankind would perish did they cease to aid each other.
+ - Where shall the lover rest, Whom the fates sever From his true maiden’s breast, Parted for ever? Where, through groves deep and high, Sounds the far billow, Where early violets die, Under the willow.
+ - Hard toil can roughen form and face, And want call quench the eye’s bright grace.
+ - Spangling the wave with lights as vain As pleasures in the vale of pain, That dazzle as they fade.
+ - One or two of these scoundrel statesmen should be shot once a-year, just to keep the others on their good behavior.
+ - Call it not vain: they do not err Who say that when the poet dies Mute Nature mourns her worshipper, And celebrates his obsequies.
+ - Blud’s thicker than water.
+ - Many of our cares are but a morbid way of looking at our privileges.
+ - Oh, on that day, that wrathful day, When man to judgment wakes front clay, Be Thou, O Christ, the sinner’s stay, Though heaven and earth shall pass away.
+ - Where, where was Roderick then? One blast upon his bugle horn Were worth a thousand men.
+ - What a strange scene if the surge of conversation could suddenly ebb like the tide, and show us the real state of people’s minds.
+ - As good play for nothing, you know, as work for nothing.
+ - Art thou a friend to Roderick?
+ - Sensibility is nature’s celestial spring.
+ - A ruin should always be protected but never repaired – thus may we witness full the lingering legacies of the past.
+ - Where lives the man that has not tried How mirth can into folly glide, And folly into sin!
+ - Although too much of a soldier among sovereigns, no one could claim with better right to be a sovereign among soldiers.
+ - He who indulges his sense in any excesses renders himself obnoxious to his own reason; and, to gratify the brute in him, displeases the man, and sets his two natures at variance.
+ - Those who are too idle to read, save for the purpose of amusement, may in these works acquire some acquaintance with history, which, however inaccurate, is better than none.
+ - Each must drain His share of pleasure, share of pain.
+ - Profan’d the God-given strength, and marr’d the lofty line.
+ - I will but confess the sins of my green cloak to my grey friar’s frock, and all shall be well again.
+ - There never will exist anything permanently noble and excellent in the character which is a stranger to resolute self-denial.
+ - Stood for his country’s glory fast, And nailed her colors to the mast!
+ - A fool’s wild speech confounds the wise.
+ - In prosperous times I have sometimes felt my fancy and powers of language flag, but adversity is to me at least a tonic and bracer.
+ - But with morning cool repentance came.
+ - For he that does good, having the unlimited power to do evil, deserves praise not only for the good which he performs, but for the evil which he forbears.
+ - Oh, poverty parts good company.
+ - Give me an honest laugher.
+ - I cannot tell how the truth may be; I say the tale as it was said to me.
+ - Thus aged men, full loth and slow, The vanities of life forego, And count their youthful follies o’er, Till Memory lends her light no more.
+ - Recollect that the Almighty, who gave the dog to be companion of our pleasures and our toils, hath invested him with a nature noble and incapable of deceit.
+ - Whose lenient sorrows find relief, whose joys are chastened by their grief.
+ - He that follows the advice of reason has a mind that is elevated above the reach of injury; that sits above the clouds, in a calm and quiet ether, and with a brave indifferency hears the rolling thunders grumble and burst under his feet.
+ - Cats are a mysterious kind of folk. There is more passing in their minds than we are aware of.
+ - Ridicule often checks what is absurd, and fully as often smothers that which is noble.
+ - No scene of mortal life but teems with mortal woe.
+ - It is only when I dally with what I am about, look back and aside, instead of keeping my eyes straight forward, that I feel these cold sinkings of the heart.
+ - The rose is fairest when ’t is budding new, And hope is brightest when it dawns from fears. The rose is sweetest wash’d with morning dew, And love is loveliest when embalm’d in tears.
+ - Here is neither want of appetite nor mouths, Pray heaven we be not scant of meat or mirth.
+ - Tell that to the marines – the sailors won’t believe it.
+ - But search the land of living men, Where wilt thou find their like again?
+ - Many a law, many a commandment have I broken, but my word never.
+ - Honour is a homicide and a bloodspiller, that gangs about making frays in the street; but Credit is a decent honest man, that sits at hame and makes the pat play.
+ - He hath a share of man’s intelligence, but no share of man’s falsehood.
+ - To be ambitious of true honor, of the true glory and perfection of our natures, is the very principle and incentive of virtue.
+
+258 quotes

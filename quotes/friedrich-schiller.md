@@ -1,0 +1,304 @@
+ - Great souls suffer in silence.
+ - The strong man is strongest when alone.
+ - Only those who have the patience to do simple things perfectly will acquire the skill to do difficult things easily.
+ - It is not flesh and blood, but heart which makes us fathers and sons.
+ - His saying was: live and let live.
+ - Dare to be wrong and to dream.
+ - What is life without the radiance of love?
+ - Every true genius is bound to be naive.
+ - Lose not yourself in a far off time, seize the moment that is thine.
+ - Appearance rules the world.
+ - Deep meaning lies often in childish play.
+ - Did you think the lion was sleeping because he didn’t roar?
+ - Let no one despair, even though in the darkest night the last star of hope may disappear.
+ - Our safety is not in blindness, but in facing our dangers.
+ - A noble heart will always capitulate to reason.
+ - To live is to dream, and to dream pleasantly is to be wise.
+ - A beautiful soul has no other merit than its own existence.
+ - Whatever is not forbidden is permitted.
+ - Art is the daughter of freedom.
+ - Honor women! they entwine and weave heavenly roses in our earthly life.
+ - Anyone taken as an individual is tolerably sensible and reasonable – as a member of a crowd, he at once becomes a blockhead.
+ - Physical beauty is the sign of an interior beauty, a spiritual and moral beauty which is the basis, the principle, and the unity of the beautiful.
+ - Even the weak become strong when they are united.
+ - The dream is short, repentance long.
+ - Truth is more than a dream and a song.
+ - I am my own heaven and hell!
+ - No emperor has the power to dictate to the heart.
+ - Deeper meaning resides in the fairy tales told to me in my childhood than in the truth that is taught by life.
+ - Happy he who learns to bear what he cannot change.
+ - Honesty prospers in every condition of life.
+ - Man only plays when in the full meaning of the word he is a man, and he is only completely a man when he plays.
+ - Power is the most persuasive rhetoric.
+ - The joke loses everything when the joker laughs himself.
+ - Pain is short, and joy is eternal.
+ - Chains of iron or of silk-both are chains.
+ - As soon as I have begun to fear I have ceased to fear.
+ - Modest humility is beauty’s crown.
+ - Seraphs share with thee Knowledge; but Art, O Man, is thine alone!
+ - Disappointments are to the soul what a thunderstorm is to the air.
+ - If you cannot please everyone with your deeds and your art, please a few. To please many is bad.
+ - What is the short meaning of the long speech?
+ - Man is never so authentically himself as when at play.
+ - Only through Beauty’s morning-gate, dost thou penetrate the land of knowledge.
+ - Wise to resolve, patient to perform.
+ - Forgiveness is the finding again of a lost possession.
+ - Whatever lives, lives to die in sorrow. We engage our hearts, and grasp after the things of this world, only to undergo the pang of losing them.
+ - In the case of a creative mind, it seems to me, the intellect has withdrawn its watchers from the gates, and the ideas rush in pell-mell and only then does it review and inspect the multitudes.
+ - Fear of death is worse than dying.
+ - In the society, where people are just parts in a larger machine, individuals are unable to develop fully.
+ - Grace is the beauty of form under the influence of freedom.
+ - I am better than my reputation.
+ - The lemonade is weak, like your soul.
+ - Time is a blooming field: nature is ever teeming with life: and all is seed, and all is fruit.
+ - Be noble minded! Our own heart, and not other men’s opinions of us, forms our true honor.
+ - If you want to study yourself, look into the hearts of other people. If you want to study other people, look into your own heart.
+ - The first great law is to obey.
+ - Revenge is barren of itself: it is the dreadful food it feeds on; its delight is murder, and its end is despair.
+ - To save all we must risk all.
+ - There is no such thing as chance; and what seem to us merest accident springs from the deepest source of destiny.
+ - It hinders the creative work of the mind if the intellect examines too closely the ideas as they pour in.
+ - Will it, and set to work briskly.
+ - I have enjoyed the happiness of the world; I have loved.
+ - It is often wise to reveal that which cannot be concealed for long.
+ - In the ardor of pursuit men soon forget the goal from which they start.
+ - A merely fallen enemy may rise again, but the reconciled one is truly vanquished.
+ - Even weak men when united are powerful.
+ - The future comes slowly, the present flies and the past stands still forever.
+ - It is not the mere station of life that stamps the value on us, but the manner in which we act our part.
+ - O God, how lovely still is life!
+ - Individual character is in the right that is in strict consistence with itself. Self-contradiction is the only wrong.
+ - It does not prove a thing to be right because the majority say it is so.
+ - The average estimate themselves by what they do, the above average by what they are.
+ - To the fool-king belongs the world.
+ - Courage, ne’er by sorrow broken! Aid where tears of virtue flow; Faith to keep each promise spoken! Truth alike to friend and foe!
+ - The voice of the majority is no proof of justice.
+ - Measure not by the scale of perfection the meager product of reality.
+ - He that is over-cautious will accomplish but very little.
+ - Rarely do we arrive at the summit of truth without running into extremes; we have frequently to exhaust the part of error, and even of folly, before we work our way up to the noble goal of tranquil wisdom.
+ - Truth suffers no loss if a vehement youth fails in finding it, in the same way that virtue and religion suffer no detriment if a criminal denies them.
+ - A healthy nature needs no God or immortality.
+ - The key to education is the experience of beauty.
+ - Without a home must the soldier go, a changeful wanderer, and can warm himself at no home-lit hearth.
+ - When you are not happy with your life, always think that someone is happy simply because you exist.
+ - What’s old collapses, times change, and new life blossoms in the ruins.
+ - Aesthetic matters are fundamental for the harmonious development of both society and the individual.
+ - Time flies on restless pinions – constant never.
+ - We can never replace a friend. When a man is fortunate enough to have several, he finds they are all different. No one has a double in friendship.
+ - If you have never seen beauty in a moment of suffering, you have never seen beauty at all. If you have never seen joy in a beautiful face, you have never seen joy at all.
+ - This is the curse of an evil deed, that it incites and must bring forth more evil.
+ - There are evil spirits who suddenly fix their abode in man’s unguarded breast, causing us to commit devilish deeds, and then, hurrying back to their native hell, leave behind the stings of remorse in the poisoned bosom.
+ - Truth lives on in the midst of deception...
+ - Arrow-swift the present sweepeth, and motionless forever stands the past.
+ - Man is made of the wholly common, and custom is his nurse; woe then to them who lay irreverent hands on his old house-furniture, the dear inheritance from his forefathers: For time consecrates, and what is gray with age becomes religion.
+ - There is no solitude in nature.
+ - Knowledge, the object of knowledge and the knower are the three factors which motivate action; the senses, the work and the doer comprise the threefold basis of action.
+ - Regarded in isolation, an idea may be quite insignificant, and venturesome in the extreme, but it may acquire importance from an idea which follows it; perhaps, in a certain collocation with other ideas, which may seem equally absurd, it may be capable of furnishing a very serviceable link.
+ - Sentimental poetry differs from naive poetry in that it relates the real state at which the latter stops to ideas and applies ideas to that reality.
+ - No greater grief than to remember days of gladness when sorrow is at hand.
+ - Posterity weaves no garlands for imitators.
+ - Day’s lustrous eyes grow heavy in sweet death.
+ - Most gladly would I give the blood-stained laurel for the first violet which March brings us, the fragrant pledge of the new-fledged year.
+ - Truth exists for the wise, beauty for the feeling heart.
+ - Yes great people are always subject to persecution and always getting into straits.
+ - Let him that sows the serpent’s teeth not hope to reap a joyous harvest. Every crime has, in the moment of its perpetration, its own avenging angel, – dark misgivings at the inmost heart.
+ - Many a smiling face hides a mourning heart; but grief alone teaches us what we are.
+ - O jealousy! thou magnifier of trifles.
+ - Why should I deem myself to be a chisel, when I could be the artist?
+ - Fate always wins, for our own heart within us Imperiously furthers its designs.
+ - The Moor has done his work, the Moor may go.
+ - The rich become richer and the poor become poorer is a cry heard throughout the whole civilized world.
+ - Appearance should never attain reality, And if nature conquers, then must art retire.
+ - Foster the beautiful, and every hour thou tallest new flowers to birth.
+ - We shall be free, just as our fathers were.
+ - We are too prone to find fault; let us look for some of the perfections.
+ - Alas! When duty grows thy law, enjoyment fades away.
+ - Even in a righteous cause force is a fearful thing.
+ - It is only through the morning gate of the beautiful that you can penetrate into the realm of knowledge. That which we feel here as beauty we shall one day know as truth.
+ - Historians are prophets with their face turned backward.
+ - On dreary night let lusty sunshine fall.
+ - Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.
+ - Men show no mercy and expect no mercy, when honor calls, or when they fight for their idols or their gods.
+ - Many a crown shines spotless now that yet was deeply sullied in the winning.
+ - Around, around, Companions all, take your ground, And name the bell with joy profound! CONCORDIA is the word we’ve found Most meet to express the harmonious sound, That calls to those in friendship bound.
+ - On the mountains there is freedom! The world is perfect everywhere, save where man comes with his torment.
+ - It is criminal to steal a purse, daring to steal a fortune, a mark of greatness to steal a crown. The blame diminishes as the guilt increases.
+ - You saw his weakness, and he will never forgive you.
+ - He who never ventures beyond actuality will never win the prize of truth.
+ - He, that noble prize possessing He that boasts a friend that’s true, He whom woman’s love is blessing, Let him join the chorus too!
+ - Joy all creatures drink At nature’s bosoms...
+ - Uncommon men require no common trust; give him but scope and he will set the bounds.
+ - Virtue has her heroes too As well as Fame and Fortune.
+ - Joy, in Nature’s wide dominion, Mightiest cause of all is found; And ’tis joy that moves the pinion When the wheel of time goes round.
+ - False fancy brings real misery.
+ - Votes should be weighed not counted.
+ - Live with your century; but do not be its creature.
+ - Art is the right hand of Nature. The latter has only given us being, the former has made us men.
+ - Satisfy a few to please many is bad.
+ - Friends show me what I can do, foes teach me what I should do.
+ - To one, science is an exalted goddess; to another it is a cow which provides him with butter.
+ - One can give advice comfortably from a safe port.
+ - When the gods were more manlike, Men were more godlike.
+ - A childlike mind in its simplicity practises that science of good to which the wise may be blind.
+ - Innocence has a friend in heaven.
+ - What the inner voice says will not disappoint the hoping soul.
+ - Thus Arm in Arm with thee I dare defy my century into the lists.
+ - It is play and only play that makes man complete.
+ - Opposition always inflames the enthusiast, never converts him.
+ - To be man’s tender mate was woman born, and in obeying nature she best serves the purposes of heaven.
+ - No cause has he to say his doom is harsh, who’s made the master of his destiny.
+ - It is through beauty that we arrive at freedom.
+ - The brave person thinks of himself last of all.
+ - He who neglects the present moment throws away all he has.
+ - I feel that I am a man of destiny.
+ - Love can sun the realms of night.
+ - One drop of hatred left in the cup of joy turns the most blissful draught into poison.
+ - Rigor pushed too far is sure to miss its aim, however good, as the bow snaps that is bent too stiffly.
+ - While the womanly god demands our veneration, the godlike woman kindles our love; but while we allow ourselves to melt in the celestial loveliness, the celestial self-sufficiency holds us back in awe.
+ - As freely as the firmament embraces the world, or the sun pours forth impartially his beams, so mercy must encircle both friend and foe.
+ - A gloomy guest fits not a wedding feast.
+ - Time consecrates; and what is gray with age becomes religion.
+ - Wine invents nothing; it only tattles.
+ - Have hope. Though clouds environs now, And gladness hides her face in scorn, Put thou the shadow from thy brow – No night but hath its morn.
+ - Speech is always bolder than action.
+ - No doubt the artist is the child of his time; but woe to him if he is also its disciple, or even its favorite.
+ - That which is so universal as death must be a benefit.
+ - Mankind is made great or little by its own will.
+ - The mind is the eyesight of the soul.
+ - I speak with the Eternal through the instrument of nature, through the world’s history: I read the soul of the artist in his Apollo.
+ - The great happiness of life, I find, after all, to consist in the regular discharge of some mechanical duty.
+ - Virtue is no empty echo.
+ - The very plants turn with a joyful transport to the light.
+ - When the wine goes in, strange things come out.
+ - O the eye’s light is a noble gift of Heaven! All beings live from light, each fair created thing; the very plants turn with a joyful transport to the light.
+ - The man who fears nothing is as powerful as he who is feared by everybody.
+ - Fate hath no voice but the heart’s impulse.
+ - Culture, far from giving us freedom, only develops, as it advances, new necessities; the fetters of the physical close more tightly around us, so that the fear of loss quenches even the ardent impulse toward improvement, and the maxims of passive obedience are held to be the highest wisdom of life.
+ - A noble soul spreads even over a face in which the architectonic beauty is wanting an irresistible grace, and a often even triumphs over the natural disfavor.
+ - Illusion is brief, but repentance is long.
+ - Worthless is the nation that does not gladly stake its all on its honor.
+ - The world’s history is the world’s judgment.
+ - The iron chain and the silken cord are both equally bonds.
+ - Eternity gives nothing back of what one leaves out of the minutes.
+ - If yon wish to be like the gods on earth, to be free in the realms of the dead, pluck not the fruit from the garden! In appearance it may glisten to the eye; but the perishable pleasure of possession quickly avenges the curse of curiosity.
+ - To rankling poison hast thou turned in me the milk of human kindness.
+ - No, no! I do nature injustice. She gave us inventive faculty, and set us naked, and helpless on the shore of this great ocean, – the world; swim those who can, the heavy may go to the bottom.
+ - Of all the possessions of this life fame is the noblest; when the body has sunk into the dust the great name still lives.
+ - The lamp of genius burns quicker than the lamp of life.
+ - Sorrow is brief but joy is endless.
+ - The hat is the pride of man; for he who cannot keep his hat on before kings and emperors is no free man.
+ - Emulation is a noble and just passion, full of appreciation.
+ - To gain a crown by fighting is great, to reject it divine.
+ - Weep, for the light is dead.
+ - Cling to thy native land, for it is the land of thy fathers?
+ - Not without a shudder may the human hand reach into the mysterious urn of destiny.
+ - Death is a mighty mediator. There all the flames of rage are extinguished, hatred is appeased, and angelic pity, like a weeping sister, bends with gentle and close embrace over the funeral urn.
+ - Where there is much freedom there is much error.
+ - It is difficult to discriminate the voice of truth from amid the clamor raised by heated partisans.
+ - There are occasions when the general belief of the people, even though it be groundless, works its effect as sure as truth itself.
+ - What reason, like the careful ant, draws laboriously together, the wind of accident sometimes collects in a moment.
+ - Whoever fails to turn aside the ills of life by prudent forethought, must submit to fulfill the course of destiny.
+ - Toil of science swells the wealth of art.
+ - The gentlest man cannot live in peace if it does not please his wicked neighbor.
+ - When the measured dance of the hours brings back the happy smile of spring, the buried dead is born again in the life-glance of the sun. The germs which perished to the eye within the cold breast of the earth spring up with joy in the bright realm of day.
+ - What else is chance but the rude stone which receives its life from the sculptor’s hand? Providence gives us chance, and man must mould it to his own designs.
+ - As inclination changes, thus ebbs and flows the unstable tide of public judgment.
+ - The will of man is his happiness.
+ - Never the grave gives back what it has won!
+ - Not he who scorns the Saviour’s yoke Should wear his cross upon the heart.
+ - It is well for a man when he has learned to endure what he cannot change, and to give up with dignity what he cannot retain.
+ - I know that we often tremble at an empty terror; yet the false fancy brings a real misery.
+ - He who has done his best for his own time has lived for all times.
+ - The world’s history is constant, like the laws of nature, and simple, like the souls of men. The same conditions continually produce the same results.
+ - A sublime soul can rise to all kinds of greatness, but by an effort; it can tear itself from all bondage, to all that limits and constrains it, but only by strength of will. Consequently the sublime soul is only free by broken efforts.
+ - Love is only known by him who hopelessly persists in love.
+ - Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance. In this great balance of utility, the spiritual service of art has no weight, and, deprived of all encouragement, it vanishes from the noisy Vanity Fair of our time.
+ - Every great mind seeks to labor for eternity. All men are captivated by immediate advantages; great minds alone are excited by the prospect of distant good.
+ - Song forbids victorious deeds to die.
+ - The May of life blooms once and never again.
+ - What shall he fear that does not fear death.
+ - The greater part of humanity is too much harassed and fatigued by the struggle with want, to rally itself for a new and sterner struggle with error.
+ - Virtue, though clothed in a beggar’s garb, commands respect.
+ - Youth covets; let not this covetousness seduce you.
+ - Love guides the stars towards each other, the world plan endures only through love.
+ - Man is created free, and is free, even though born in chains.
+ - A brave man hazards life, but not his conscience.
+ - Stern is the visage of necessity.
+ - I feel an army in my fist.
+ - Against stupidity the very gods themselves contend in vain.
+ - He who considers too much will perform little.
+ - I follow my heart, for I can trust it.
+ - Art is difficult, transient is her reward.
+ - The worst of me is known, and I can say that I am better than the reputation I bear.
+ - Sorrows must die with the joys they outnumber.
+ - O who knows what slumbers in the background of the times?
+ - Futurity is impregnable to mortal ken: no prayer pierces through heaven’s adamantine walls. Whether the birds fly right or left, whatever be the aspect of the stars, the book of nature is a maze, dreams are a lie, and every sign a falsehood.
+ - He cannot complain of a hard sentence, who is made master of his own fate.
+ - There is room in the smallest cottage for a happy loving pair.
+ - Heaven and earth fight in vain against a dunce!
+ - Yet have I ever heard it said that spies and tale-bearers have done more mischief in this world than poisoned bowl or the assassin’s dagger.
+ - There is a nobility in the world of manners.
+ - The game of life looks cheerful when one carries a treasure safe in his heart.
+ - Full of wisdom are the ordinations of fate.
+ - The world is ruled only by consideration of advantages.
+ - Genuine morality is preserved only in the school of adversity; a state of continuous prosperity may easily prove a quick sand to virtue.
+ - They would need to be already wise, in order to love wisdom.
+ - Nothing, it is true, is more common than for both Science and Art to pay homage to the spirit of the age, and for creative taste to accept the law of critical taste.
+ - The mountain cannot frighten one who was born on it.
+ - Strange customs do not thrive in foreign soil.
+ - The painter is, as to the execution of his work, a mechanic; but as to his conception and spirit and design he is hardly below even the poet.
+ - Misery travels free through the whole world!
+ - Deaf rage that hears no leader.
+ - Vast, colossal destiny, which raises man to fame, though it may also grind him to powder!
+ - Freedom exists only with power.
+ - Joy, thou spark from Heav’n immortal, Daughter of Elysium! Drunk with fire, toward Heaven advancing Goddess, to thy shrine we come. Thy sweet magic brings together What stern Custom spreads afar; All men become brothers Where thy happy wing-beats are.
+ - Be true, and thou shalt fetter time with everlasting chain.
+ - Nothing leads to good that is not natural.
+ - The happy man does not notice the flight of time.
+ - All things must; man is the only creature that wills.
+ - We, we live! ours are the hours, and the living have their claims.
+ - Don’t let your heart depend on things That ornament life in a fleeting way! He who possesses, let him learn to lose, He who is fortunate, let him learn pain.
+ - The universe is one of God’s thoughts.
+ - Stubbornness is not firmness.
+ - Accursed be he who plays with the devil.
+ - If thou art something bring thy soul and interchange with mine. – Johann Christoph Friedrich von Schiller.
+ - The victor is often vanquished by his own success.
+ - Intellect – brain force.
+ - But how is the artist to protect himself against the corruption of the age which besets him on all sides?
+ - You have to go the rounds from individual to individual in order to gather the totality of the race.
+ - An axe at home saves hiring a carpenter.
+ - In love, Jealousy is the great exaggerator.
+ - Cowards have done good and kind actions, but a coward never pardoned.
+ - A pity about the people! they are brave enough comrades, but they have heads like a soapboiler’s.
+ - Have Love. Not love alone for one, but man as man they brother call; and scatter like the circling sun thy charities on all.
+ - It is easy to give advice from a port of safety.
+ - Life did not present its sunny side to thee.
+ - Man is an imitative creature.
+ - We must bear what Heaven sends.
+ - I am called The richest monarch in the Christian world; The sun in my dominion never sets.
+ - Spring flies, and with it all the train it leads; and flowers, in fading, leave us but their seeds.
+ - Man, living, feeling man, is the easy sport of the over-mastering present.
+ - It is at the approach of extreme danger when a hollow puppet can accomplish nothing, that power falls into the mighty hands of nature, of the spirit giant-born, who listens only to himself, and knows nothing of compacts.
+ - For the world is only governed by self-interest.
+ - The jest loses its point when he who makes it is the first to laugh.
+ - Obedience is the Christian’s crown.
+ - Keep true to the dreams of your youth.
+ - The storm is master. Man, as a ball, is tossed twixt winds and billows.
+ - Satisfied if they themselves can escape from the hard labour of thought, they willingly abandon to others the guardianship of their thoughts.
+ - Gray hairs are death’s blossoms.
+ - The dictates of the heart are the voice of fate.
+ - Ever building, building to the clouds, still building higher, and never reflecting that the poor narrow basis cannot sustain the giddy tottering column.
+ - Man, one may say, was never in such a completely animal condition; but he has, on the other hand, never escaped from it.
+ - Man is made of ordinary things, and habit is his nurse.
+ - Think with awe on the slow and quiet power of time.
+ - In a narrow circle the mind contracts. Man grows with his expanded needs.
+ - The zeal of friends it is that razes me, And not the hate of enemies.
+ - If we do not find anything very pleasant, at least we shall find something new.
+ - Even now, nature is the only flame, on which the poetic spirit feeds; from it alone it draws all its power, to it alone it speaks even in the artificial, in the man engaged in culture.
+ - Secrecy is for the happy, – misery, hopeless misery, needs no veil; under a thousand suns it dares act openly.
+ - Only the soldier is a free man, because he can look death in the face.
+ - An honest man you may form of windle-straws, but to make a rogue you must have grist.
+ - Who dares nothing, need hope for nothing.
+ - There is more to life than just existing and having a pleasant time.
+
+302 quotes

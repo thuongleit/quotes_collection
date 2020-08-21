@@ -1,0 +1,25 @@
+ - Language is a personality as well. People are different when they speak different languages.
+ - When you write a book, you want to have fidelity to the character. Characters and their emotions guide the structure of the novel.
+ - When writing dialogue, I hear it in both Russian and English, and try to find a language that combines the two.
+ - There are books like Darkness at Noon, which from the prose standpoint I don’t think is a perfect book. It has flaws. But for its time, it was very politically courageous.
+ - Writing a novel, in an unplanned and unpredictable way, makes you engaged; it takes you into yourself, and it becomes something between you and the character for a moment, and then you move back into the structure of the book. I love those moments, because they are completely unbidden.
+ - There are different types of readers. People draw lines at which three things intersect: the character, the author, and the reader.
+ - We all have some ideological quotient in ourselves. And I think it does guide who we are.
+ - I think ex-Soviet or Russian-Jewish women are tougher and that comes through. And if they are more pragmatic than the men, it’s because they are obliged to be. They have all the female responsibilities and all the male responsibilities.
+ - Maybe the most provocative thing one can do – and I’m not the first one to do it – is to ask the moral and philosophical question: why are some people better than others? Why are some people more moral than others?
+ - We are taught that we can be better than we are. But is there a limit to how good we can be?
+ - I think there are differences between men and women. There is more of a softness to women than there is to men, especially when it comes to those more intimate emotions: feeling love, feeling familial connections.
+ - Why are some people highly principled and willing to do anything for their principles, while most of us are not? And I am willing to not only ask, but also answer the question.
+ - Nothing is easy in writing. I don’t think for anyone. But dialogue is probably what comes most naturally to me.
+ - Incident at Vichy, one of my favorite Arthur Miller plays, is a play in which you look at all of the different perspectives of this moral question. And it isn’t so easy to decide which position is correct.
+ - I think even with women who come across with a tough exterior, the interior is the same. I think you’ll find this with women around the word: some women, because of their circumstances, are forced to be tougher, forced to cultivate tougher exteriors.
+ - I spent seven years writing The Free World. There are a lot of things I accomplished there that I’m very proud of, but I didn’t want to spend another seven years writing a book like that.
+ - It’s not for the writer to say whether the thing is successful or not.
+ - People everywhere feel differently at different times of their lives.
+ - Some is, I think, the personal in any act of writing. You find yourself caught up: you start a sentence, and it becomes revelatory, not just of the character, but of you as well.
+ - In my experience of women, women have a greater capacity. Maybe women, even very pragmatic ones, are less guarded about showing emotions.
+ - There are books where you can really see the moral question, which I think we answer every day for ourselves, in every interaction we have with people, to a lesser or greater degree.
+ - I think every book is a reaction to everything you’re written before, and most immediately to the book you wrote just before.
+ - I think having an uncompromising ideology eventually forces you out of the norm.
+
+23 quotes

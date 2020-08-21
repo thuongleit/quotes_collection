@@ -1,0 +1,21 @@
+ - The willingness of America’s veterans to sacrifice for our country has earned them our lasting gratitude.
+ - As a strong supporter of our 2nd Amendment rights, I believe tougher enforcement of our nation’s existing gun laws must be done before any more laws are enacted and put on the books.
+ - The American flag, Old Glory, standing tall and flying free over American soil for 228 years is the symbol of our beloved country. It is recognized from near and afar, and many lives have been lost defending it.
+ - The democratic process is only as great as the people who participate in it.
+ - That future depends on the values of self-government, our sense of duty, loyalty, self-confidence and regard for the common good. We are a diverse country, and getting more diverse. And these virtues are what keep this great country together.
+ - I, in fact, have been involved in the construction of and the management of wastewater treatment plants.
+ - In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.
+ - Reconciliation is a special budget procedure to change entitlement and tax laws. It cannot be filibustered and requires only a simple majority in the Senate to be passed. It is primarily intended for deficit and mandatory spending reduction.
+ - I’ve often argued that oil and gas exploration is a state’s rights issue. It is abundantly clear that the State of Florida does not want drilling to negatively affect its beaches and shores.
+ - The 2004 Election marks the first time in modern political history that Republican voter turnout matched Democratic turnout in a presidential election year.
+ - God gave us cats so that we would have an example of how we treat Him-mainly that we totally ignore Him as we go about our lives, but when we want something we will start to purr and figuratively rub ourselves against His legs to gain His attention for our wants.
+ - All are free to believe or not believe; all are free to practice a faith or not. But those who believe must be free to speak of and act on their belief.
+ - We need religion as a guide. We need it because we are imperfect. Our government needs the church, because only those humble enough to admit they are sinners can bring to democracy the tolerance it requires in order to survive.
+ - I think it’s unconscionable for a Senator from Massachusetts to come down here and tell the people of Florida what’s right for them. It’s arrogant and irresponsible.
+ - With a nation at war against terrorism and our men and women on the front line defending our homeland from abroad, resources need to be prioritized and allocated properly.
+ - Democrats have no agenda, no plan for the future, and no sense of leadership.
+ - I have always been a firm believer in the longstanding American principle of having the right to bear arms and I will remain committed to see that this freedom is not infringed upon, revoked, or limited in any way.
+ - But recently it seems that each time I vote, I am being asked to compromise my conservative ideals and my commitment to the American taxpayer simply for the benefit of political gain.
+ - Far too often we see attention paid to the firearm and not the criminal.
+
+19 quotes

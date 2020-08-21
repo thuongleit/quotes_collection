@@ -1,0 +1,112 @@
+ - Dreams are not what you see in your sleep, dreams are things which do not let you sleep.
+ - Maybe they hate me because I’m too good!
+ - We don’t want to tell our dreams. We want to show them.
+ - If you think you’re perfect already, then you never will be.
+ - I’ve never tried to hide the fact that it is my intention to become the best.
+ - Without football, my life is worth nothing.
+ - I am always motivated. I am ambitious and I want to always improve.
+ - I’m living a dream I never want to wake up from.
+ - I don’t have to show anything to anyone. There is nothing to prove.
+ - The great thing about him, is that he will not quit.
+ - I still remember when my teacher told me that football wouldn’t give me anything to eat.
+ - When I win awards, I think of my father.
+ - I’m sure that I’m a winner person. I’m sure that I win more than lose.
+ - We should make the most of life, enjoy it because that’s the way it is!
+ - We lost because we didn’t win.
+ - There is no harm in dreaming of becoming the world’s best player. It is all about trying to be the best. I will keep working hard to achieve it but it is within my capabilities.
+ - People are going to think I’m crazy.
+ - I know who likes football likes me.
+ - Manchester United is still in my heart. Disappointed they didn’t win the title but they are still the kings of Premier League.
+ - I don’t consider myself as the best player in the world. I’m not obsessed with individual titles. I’m much more interested in being part of a team which wins trophies.
+ - My life has always been a series of challenges and I’m psychologically-prepared but this is the biggest challenge of my life.
+ - If we can’t help our family, who are we going to help?
+ - Friendship cant end just because you change your life.
+ - I don’t like being alone.
+ - I know I’m a good professional, I know that no one’s harder on me than myself and that’s never going to change, under any circumstances.
+ - I’ve always dreamed to win the Champions League with Real Madrid and we are only one step away to win it.
+ - I never promise anything. I don’t promise anything to my mum. I don’t promise anything to the supporters.
+ - People whistle me because I am good-looking, rich and a great footballer. They are jealous of me.
+ - It gives me the happiest feeling in the world. I just love scoring. It doesn’t matter if it’s a simple goal from close range, a long shot or a dribble around several players, I just love to score all goals.
+ - I’m ready to lose my life if that’s what Portugal needs to win. I’ll play vs USA even if I play with one leg.
+ - My aim is to go down in history as one of the best.
+ - I’m not a perfectionist, but I like to feel that things are done well.
+ - Mesut Ozil made me the worlds best striker.
+ - The number 7 shirt is an honor and a responsibility. I hope it brings me a lot of luck.
+ - Why lie? I’m not going to be a hypocrite and say the opposite of what I think, like some others do.
+ - For the people that I love I only have one face but for some people we can’t have one face.
+ - For me Sir Alex was my father in football. He was crucial in my career and, outside football, was a great human being with me. Talent isn’t everything. You can have it from the cradle, but it is necessary to learn the trade to be the best.
+ - Scoring goals is a great feeling, but the most important thing to me is that the team is successful – it doesn’t matter who scores the goals as long as we’re winning.
+ - My free-kick secret? I just look at the net and say take the kick, Cristiano.
+ - My father was always in good spirits, he loved football. It makes me a bit sad because if he could enjoy seeing me now, what I have achieved, that would be a highlight in his life. But I’m sure that he watches over me from above.
+ - When you lose a person you love so much, surviving the loss is difficult.
+ - I know that people have different ways to see me but I’m used to it.
+ - I will never reject an autograph, hug or photo. I was also a fan of football.
+ - When you’re surrounded by flowers, you breath better.
+ - I have practically no private life. I’m already used to this and ready for it. Yes, sometimes it is hard, but it is the choice I made.
+ - I would be very proud if, one day, I’m held in the same esteem as George Best or Beckham. It’s what I’m working hard towards.
+ - I spent six years at United and I owe them everything that I am today. I made history at United and won many trophies. It was a pleasure to play at Old Trafford.
+ - Today there are opportunities that no one knows if they will come round again in the future.
+ - I want to be one of the best players around in two or three years time, to be a decisive footballer.
+ - I do not exchange my shirt with ASSASSINS.
+ - I prefer other people to make judgments about the way I play and to characterize me, rather me describe myself.
+ - It would be a dream if 2015 was like 2014 or even better.
+ - The high point of my career was winning the Champions League. No one will ever erase that from my memory, in the same way that no one will ever erase the fact that I did it in a Manchester United shirt.
+ - Lots of young players have triumphed at United, so why can’t it happen to me? I’m not worried I’m young – it’s an incentive to do the best I can.
+ - He’s a gift from heaven, he is truly a gift from heaven. Whatever he touches turns to gold.
+ - After dating for five years, my relationship with Irina Shayk has come to an end. We believed it would be best for both of us to take this step now. I wish Irina the greatest happiness.
+ - Every time I went away I was deceiving my mum. I’d tell her I was going to school but I’d be out on the street playing football. I always had a ball on my feet.
+ - Every season is a new challenge to me, and I always set out to improve in terms of games, goals, assists.
+ - I don’t think about one trick or the other, they just happen.
+ - I was saluted by Alex Ferguson when I was subbed and that made me very happy.
+ - When my family isn’t alright, I get restless. It just doesn’t seem right to me.
+ - I have my flaws too, but I am a professional who doesn’t like to miss or lose.
+ - Some fans keep booing and whistling at me because I’m handsome, rich and a great player. They envy me.
+ - I have ambitions I want to fulfil, to enjoy more success with Brazil.
+ - After we played Sporting last week, the lads in the dressing room talked about him constantly, and on the plane back from the game they urged me to sign him. That’s how highly they rated him.
+ - But the tricks I use are ones that will hopefully benefit the team.
+ - I still learn, but I think it’s the best thing in life to have a kid.
+ - I’m no longer thinking of Madrid. That dream is dead. The only thing I dream about now is Manchester United and winning the Champions League again in Rome.
+ - The last time I cry was when I won the champions. It was one of the best moments in my life.
+ - Ronaldo can do whatever he wants as a footballer. There are some things he does with the ball that make me touch my head and wonder how he did it.
+ - I’m proud to play for Real Madrid because I have fun; when you no longer have fun it’s a sign that it’s time to leave. For now though, I’m happy here at the greatest club in the world.
+ - Sharing the cover with Irina means a lot. Irina is the most beautiful woman in the world and working with her was a surprise and something very special. It was the first time we did something together. And I enjoyed it.
+ - I have never played against anybody like that in my life and I was pleased to be taken off.
+ - I know If I score we’re going to win the match.
+ - Iker has never stopped being one of the best goalkeepers in the world. For me, Iker is a top goalkeeper and has never not been.
+ - There’s no point in making predictions. It’s not worth speculating because nothing is set in stone and things change all the time in football. Today there are opportunities that no one knows if they will come round again in the future.
+ - When you see someone like him coming on, with his great pace and desire to take someone on, it is a boost.
+ - I have two Golden Boot awards at home. It would be nice to win another, but I wouldn’t mind it if I didn’t.
+ - I’m here to score a lot of goals. It’s my specialty, that’s what I’ve been brought here to do, and I want to score plenty ; like I did with Barcelona. And here, there’s every reason to think I can do it.
+ - What I do as an individual player is only important if it helps the team to win. That is the most important thing.
+ - We’ve had some great players at this club in my 20 years, but he’s up with the best.
+ - I miss Manchester, especially the apple crumble and custard they served at Carrington after training.
+ - I enjoy been on holidays because you can do whatever you want and people can’t say anything to you.
+ - Do you think I would enter into a contract with that mob? Absolutely no chance. I would not sell them a virus. That is a ‘No’ by the way. There is no agreement whatsoever between the clubs.
+ - For me, he is an exceptional player.
+ - I want to consistently play well and win titles. I’m only at the beginning.
+ - The one thing that I really dislike, is being alone.
+ - There have been a few players described as the new George Best over the years, but this is the first time its been a compliment to me.
+ - I don’t understand referees. It appears like some players can’t even be touched, but in my case, everyone can hit me as hard as they can.
+ - I like playing in Italy. It was a challenge I wanted since very early in my career.
+ - He’s six-foot two, brave as a lion, strong as an ox and quick as lightning. If he was good looking, you’d say he has everything.
+ - I’m running out of words to describe this lad.
+ - I am very happy to be signing for the best team in the world and especially proud to be the first Portuguese player to join United.
+ - But I don’t want to be compared to anyone like to impose my own style of play and do the best for myself and for the club here.
+ - Tuesday will be a tough night for me. It’s like to return to the family who have not seen you for a long time. I spent a wonderful time there.
+ - He is as tough as anything. You can crack him once, but he won’t let it bother him. He’s back on his feet in no time and getting on with it. He is a strong character and a great sight when he’s heading for goal.
+ - I am very ambitious. I want to enjoy this and then really go for it.
+ - We saw that he plays with his heart too. He obviously loves the game so much and was distraught to lose in the final. Seeing him cry nearly got me going too.
+ - It’s very important for me to be distinguished in my own home.
+ - It’s not a problem. In four or five days I will be beautiful once again.
+ - People that really know me, they adore me.
+ - I want to be remembered as part of the group of the greatest players ever.
+ - I don’t want my fans to have the same disappointment as me when I was refused by some players to sign my notebook when I was young.
+ - When you’ve got a player who does what he does at that pace this late in the game than you know you’ve got an invaluable talent.
+ - To me, being the best means proving it in different countries and championships.
+ - I feel bad only when I play badly. Fortunately, that happens rarely.
+ - The people I work with have a very good impression of me for sure, because of how I am.
+ - No one did what I did last season and for this I deserve the Golden Boot and why not the best World Player.
+ - I’m aware that, whatever the circumstances, there will always be speculation about me.
+ - If I can have the chance to be the best ever, then that would be perfect.
+
+110 quotes

@@ -1,0 +1,45 @@
+ - In 1969 I gave up women and alcohol and it was the worst 20 minutes of my life.
+ - I spent 90% of my money on women and drink. The rest I wasted.
+ - If you make up your own mind, you can only blame yourself.
+ - You can’t trust very many people.
+ - I want to be remembered for my football and the pleasure I gave people.
+ - If I had to choose between dribbling past 5 players and scoring from 40 yards at Anfield or shagging miss world, it’d be a hard choice. Thankfully, i’ve done both.
+ - Maybe ‘loner’ is too strong a word, but I’ve always enjoyed being on my own.
+ - I always wanted more – more of everything.
+ - Football is a sad game.
+ - Love is about mutual respect, apart from attraction.
+ - People say I slept with seven miss worlds, I didn’t. It was only four, I didn’t turn up for the other three.
+ - If I had been born ugly, you would have never heard of Pele.
+ - I don’t recognize myself in the players I see today. There’s only one who excites me, and that is Thierry Henry. He’s not just a great footballer, he’s a showman, an entertainer.
+ - Every team has a hard man. We has Nobby Stiles, Chelsea had Chopper, Arsenal had Peter Storey, Liverpool had Tommy Smith. Leeds had eleven of them.
+ - Don’t die like I did.
+ - I’d give all the champagne I’ve ever drunk to be playing alongside him in a big European match at Old Trafford.
+ - Pele called me the greatest footballer in the world. That is the ultimate salute to my life.
+ - I definitely don’t think that money can buy you love. It can buy you affection but certainly not love.
+ - People say you have to hit rock bottom, and, I can tell you, almost dying is as rock bottom as it gets.
+ - He can’t kick with his left foot, he can’t head a ball, he can’t tackle and he doesn’t score many goals. Apart from that he’s all right.
+ - I never went out in the morning with the intention of getting drunk. It just happened.
+ - If you’d given me the choice of going out and beating four men and smashing a goal in from thirty yards against Liverpool or going to bed with Miss World, it would have been a difficult choice. Luckily, I had both.
+ - They told me I wouldn’t make 25. Then it was 35, then 45. These were my doctors speaking – they’re all dead now.
+ - They say Paul Gascoigne is the new George Best but has he shagged three Miss Worlds?
+ - I’m OK. Much better than on other occasions. It’s true that I’ve made lots of mistakes but I’ve never tried to bother anyone. I want to stay alive, preferably in peace, without seeing every one of my mistakes in the papers, and on many occasions, even stories that are lies.
+ - I will respect this liver. After all, it’s not mine.
+ - I even found it difficult to watch myself playing on TV because I couldn’t identify with the person on the screen. I couldn’t get to grips with it. It was as if it was all happening to someone else.
+ - I was in for 10 hours and had 40 pints – beating my previous record by 20 minutes.
+ - I must be the only person in the world who’s looking forward to going into hospital. I can’t wait to get it over and done with.
+ - Robert Redford used to be such a handsome man and now look at him: everything has dropped, expanded and turned a funny color.
+ - That’s what children do – throw food. That’s not fighting. We were real men. We’d have chinned them.
+ - There isn’t a single player I would pay to watch. A great entertainer needs to have charisma.
+ - I was ill, and everyone could see it but me.
+ - Even at the height of my fame, 50 per cent of the people who saw me wanted a fight; it’s the downside of being a star player.
+ - Everyone went crazy over Wayne Rooney, but I get more excited by Cristiano Ronaldo.
+ - Cristiano Ronaldo’s was the most exciting debut I’ve ever seen. There have been a few players described as ‘The New George Best’ over the years, but this is the first time it’s been a compliment to me.
+ - That thing about being an icon, the fifth Beatle, I just found it so freaky.
+ - My one big regret is that I didn’t play on for 10 more years.
+ - I was born with a great gift, and sometimes with that comes a destructive streak.
+ - One day they might even say that I was another Ryan Giggs.
+ - The best thing about being a dad? Well, I think it’s just the thing that every man wants – to have a son and heir.
+ - When they first installed all-seater stadiums everyone predicted that the fans wouldn’t stand for it.
+ - To call Keegan a superstar is stretching a point.
+
+43 quotes

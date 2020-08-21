@@ -1,0 +1,42 @@
+ - I will take what is mine with fire and blood. ~~George R.R. Martin
+ - Ready, fire, aim. Do it! Make it happen! Action counts. No one ever sat their way to success. ~~Tom Peters
+ - The time has come to turn your heart into a temple of fire. Your essence is gold hidden in dust. To reveal its splendor you need to burn in the fire of love. ~~Rumi
+ - We are all born with a divine fire in us. Our efforts should be to give wings to this fire and fill the world with the glow of its goodness. ~~Abdul Kalam
+ - The blazing fire makes flames and brightness out of everything thrown into it. ~~Marcus Aurelius
+ - Light up the fire of love inside and blaze the thoughts away. ~~Rumi
+ - I am the sword in the darkness. I am the watcher on the walls. I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men. ~~George R.R. Martin
+ - The difference between a good life and a bad life is how well you walk through the fire. ~~C.G. Jung
+ - Keep a little fire burning; however small, however hidden. ~~Cormac McCarthy
+ - Neurons that fire together wire together. You can rewire your brain for higher consciousness by focusing on love. ~~Deepak Chopra
+ - The human body is capable of amazing physical deeds. If we could just free ourselves from our perceived limitations and tap into our internal fire, the possibilities are endless. ~~Dean Karnazes
+ - Now young faces grow sad and old, and hearts of fire grow cold, we swore blood brothers against the wind, I’m ready to grow young again. ~~Bruce Springsteen
+ - I Wish I Could Give You A Taste Of The Burning Fire Of Love. There Is A Fire Blazing Inside Of Me. If I Cry About It, Or If I Don’t, The Fire Is At Work, Night And Day. ~~Rumi
+ - All empires are created of blood and fire. ~~Pablo Escobar
+ - Tradition is not the worship of ashes, but the preservation of fire. ~~Gustav Mahler
+ - Forget them. Burn all, burn everything. Fire is bright and fire is clean. ~~Ray Bradbury
+ - All the poems have wolves in them. All but one. The most beautiful one of all. She dances in a ring of fire and throws off the challenge with a shrug. ~~Jim Morrison
+ - Some say the world will end in fire, Some say in ice. From what I’ve tasted of desire, I hold with those who favor fire. But if it had to perish twice I think I know enough of hate To say that for destruction ice Is also great And would suffice. ~~Robert Frost
+ - A cigarette is a pinch of tobacco rolled in paper with fire at one end and a fool at the other. ~~George Bernard Shaw
+ - She was beautiful, but she was beautiful in the way a forest fire was beautiful. ~~Neil Gaiman
+ - The stars are far brighter Than gems without measure, The moon is far whiter Than silver in treasure; The fire is more shining On hearth in the gloaming Than gold won by mining, So why go a-roaming? O! Tra-la-la-lally Come back to the Valley. ~~J. R. R. Tolkien
+ - Our God is a consuming fire. He consumes pride, lust, materialism, and other sin. ~~Leonard Ravenhill
+ - There may be a great fire in our hearts, yet no one ever comes to warm himself at it, and the passers-by see only a wisp of smoke. ~~Vincent van Gogh
+ - Content is fire. Social media is gasoline. ~~Ryan Kahn
+ - Some say the world will end in fire, some say in ice. ~~Robert Frost
+ - I think about more than I forget, but I don’t go around fire expecting not to sweat. ~~Lil Wayne
+ - Content is fire and social media is gasoline. ~~Jay Baer
+ - Time is the substance from which I am made. Time is a river which carries me along, but I am the river; it is a tiger that devours me, but I am the tiger; it is a fire that consumes me, but I am the fire. ~~Jorge Luis Borges
+ - Lolita, light of my life, fire of my loins. My sin, my soul. ~~Vladimir Nabokov
+ - The Church exists by mission as fire exists by burning. ~~Emil Brunner
+ - We feel free when we escape – even if it be but from the frying pan to the fire. ~~Eric Hoffer
+ - There’s a fire starting in my heart. ~~Adele
+ - You can’t start a fire without a spark. ~~Bruce Springsteen
+ - Love is friendship that has caught fire. It is quiet understanding, mutual confidence, sharing and forgiving. It is loyalty through good and bad times. It settles for less than perfection and makes allowances for human weaknesses. ~~Ann Landers
+ - As soon go kindle fire with snow, as seek to quench the fire of love with words. ~~William Shakespeare
+ - Christmas is a season for kindling the fire for hospitality in the hall, the genial flame of charity in the heart. ~~Washington Irving
+ - To feel the love of people whom we love is a fire that feeds our life. ~~Pablo Neruda
+ - Good leaders must know how to reward those who succeed and know when to retrain, move, or fire ineffective staff. ~~Colin Powell
+ - Time is the fire in which we burn. ~~Gene Roddenberry
+ - The finest steel has to go through the hottest fire. ~~Richard M. Nixon
+
+40 quotes

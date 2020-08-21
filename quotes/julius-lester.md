@@ -1,0 +1,21 @@
+ - I write because the lives of all of us are stories. If enough of those stories are told, then perhaps we will begin to see that our lives are the same story. The differences are merely in the details.
+ - Being a failure at living your own life as best as you can is better than being a success living the life somebody else says you should live.
+ - We remember with our emotions. The things that were important in our emotional life, that’s what we remember.
+ - I’m tired of thinking and I’m really tired of Feeling. – Jenna Richards.
+ - Just because she’s dead it doesn’t mean I stopped loving her or that she stopped loving me. It’s just her body that left. The love didn’t. – Jenna Richards.
+ - But I want you around even when I don’t need you. – Jeremy Richards.
+ - Some wounds go so deep that you don’t even feel them until months, maybe years, later.
+ - A good teacher is one who helps you become who you feel yourself to be. A good teacher is also one who says something that you won’t understand until 10 years later.
+ - Dying ain’t important. Everyone does that. What’s important is how well you do your living.
+ - Freeform radio is an art form. The airwaves are the empty canvas, the producer is the artist, and the sound is the paint.
+ - It ain’t how long you know somebody that means anything. It’s what that person mean to you in your heart.
+ - Books, and especially fiction, do not proceed from ideas. They are born from feelings.
+ - Silence was not the absence of sound but was itself a sound that could be loud or soft, soothing or disturbing, complex or simple.
+ - To write and not tell the truth? That would be death for any writer. But more, it would be death to the imagination. And if the imagination dies, what would happen to the souls of children?
+ - Goodness was not a trait you acquired; it was a value you practiced when you were on the verge of doing evil.
+ - How can I love you if I don’t know what hurts you?
+ - The young accept the extraordinary as normal because they do not compare their lives with those of others when everyone is like them.
+ - Faith is not something that one has; faith is something that one practices at the very moment in your life when you really don’t believe anything, and you’re in the worst kind of despair.
+ - Often, the human animal dresses terror in rage, and expresses both in a way unlike either.
+
+19 quotes

@@ -1,0 +1,37 @@
+ - I love tennis, love it!
+ - Excellence is the best weapon against prejudice.
+ - I hear God as an audible voice.
+ - I love that as a black person I’ve experienced not being a minority. I think that’s helped me to combat the minority mentality people can have here, which can stop them scaling the heights.
+ - I do think opportunity breeds bravery. It’s such a competitive profession, no one owes you anything, talent in itself is not enough. I went to drama school with so many great actors who are not doing it anymore and it’s circumstantial.
+ - Because I was aspirational, I did my work, I was respectful to my teachers, I experienced a lot of bullying from the black kids. My friends were largely white or Asian.
+ - I have a bee in my bonnet as to how few black historical figures one sees on film; incredible stories, stories from which we are living the legacy and which just don’t get made.
+ - I am a father, I am very aware of the things that I’m putting out in the world knowing that one day my children will watch the work that I’ve done. I want to be able to stand by it.
+ - For me, I’m always looking for opportunities to work with people who are better than me, who are more experienced than me, people from whom I can learn. And who could I learn more from than someone with an unprecedented movie star career that has spanned over thirty years whose name is Tom Cruise?
+ - Don’t send me your script if you want me to play the black best friend. I just won’t do that.
+ - Asher means ‘happy and blessed’ which embodies my eldest. Caleb means ‘stubborn and tenacious dog’ and I can’t even tell you how much that is my little boy! It was a useful warning.
+ - One of the occupational hazards of being an actor, the reason why so many actors are insecure, is that the only way we know we’re good is when other people tell us.
+ - My parents are very hard working people who did everything they could for their children. I have two brothers and they worked dog hard to give us an education and provide us with the most comfortable life possible. My dad provided for his family daily. So, yes, that is definitely in my DNA.
+ - You can’t have people curating culture in this way when we need to see things in order to reform from them.
+ - Considering that I’m British and I talk the way I do, I love it when a director takes a chance on me.
+ - There are many, many communities, many ethnic minorities, many civilizations that have been brutalised by others and you have to move on. You cannot perpetually stay in that place of blame, otherwise it’s just a downward spiral.
+ - I don’t have a tailor, but I do love clothes.
+ - Find the audience, be excellent, and you will be fine.
+ - One of the things the BBC does better than anyone is period drama.
+ - I would make the tea on a Daniel Day-Lewis set just to observe how he crafts roles like he did in ‘My Left Foot.’ That was the equivalent of seeing Haley’s Comet for me. I just couldn’t understand how that was possible.
+ - I seem to be able to disassociate my insecurities. I know a lot of actors – some of the best actors in the world – can’t bear to watch themselves and I have to say I can’t relate to that.
+ - I feel television is in a fantastically rich vein of what it’s presenting both by opportunity to actors and to audiences.
+ - I know for a fact the reason I’m an actor is because one, two, maybe three people when I was younger saw something that I did, in youth theater or some small play somewhere, and said, “You’re good.”
+ - That’s what’s so satisfying about acting. You can come as prepared as you like, but there’s no accounting for what’s going to come at you from the other actor. That’s part of the joy and the play of it. If you don’t have that it’s a different kind of performance.
+ - You’re always looking for roles and other creatives who are going to be challenging to you, because you’re always a better actor after the experience.
+ - I think it’s vital to have something outside your acting to keep you rooted in the real world, and help you fill the vacuum. If you have nothing else, it can be unhealthy. For me being a Christian has been invaluable: it simply means acting isn’t the centre of my life.
+ - I consider myself a human being, a Christian, a father, a husband, so many things, before being a black person.
+ - There’s a nimble quality to the way a television actor can work. When that muscle gets strong it’s a very valuable thing.
+ - I’m one of those actors who says, “Point me toward the work that matters to me and I don’t care where you’re putting it. Television show. Movie. Projected on the back of someone’s garage.” If that’s where the work is that’s exciting to me and moving, I want to be there.
+ - We can’t afford to deny our past in a bid to be empowered. But what we can do is contextualize the past.
+ - I admire many actors, though I don’t think there’s anyone whose career I would want to mirror sort of by the beats. What I’m really looking to do is constantly defy expectations. I’m very curious to see if you can actually have a character actor and a movie star’s career combined.
+ - I was sometimes called ‘coconut’ when I was at school.
+ - If you merely focus on what we already know, then it’s not revelatory. You may as well just go and watch a documentary or a few videos on Youtube, and you’re good.
+ - I think until Britain acknowledges just how much of a presence black people had here before the Sixties, then there are certain stories that are not going to be inclusive of what I have to offer.
+ - I like to think of myself as a physical actor.
+
+35 quotes

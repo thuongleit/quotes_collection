@@ -1,0 +1,29 @@
+ - If you believe in the power of words, you can bring about physical changes in the universe.
+ - It is here that I can concentrate my mind upon the Remembered Earth. It is here that I am most conscious of being, here that wonder comes upon my blood, here I want to live forever; and it is no matter that I must die.
+ - We are what we imagine. Our very existence consists in our imagination of ourselves. Our best destiny is to imagine, at least, completely, who and what, and that we are. The greatest tragedy that can befall us is to go unimagined.
+ - The Kiowas reckoned their stature by the distance they could see.
+ - Your imagination comes to life, and this, you think, is where Creation was begun.
+ - Words were medicine; they were magic and invisible. They came from nothing into sound and meaning. They were beyond price; they could neither be bought nor sold.
+ - It’s a landscape that has to be seen to be believed. And as I say on occasion, it may have to be believed in order to be seen.
+ - Loneliness is an aspect of the land.
+ - In the beginning was the word, and it was spoken.
+ - I wonder if, in the dark night of the sea, the octopus dreams of me.
+ - For the storyteller, for the arrowmaker, language does indeed represent the only chance for survival.
+ - I sometimes think the contemporary white American is more culturally deprived than the Indian.
+ - Once in his life a man ought to concentrate his mind upon the remembered earth. He ought to give himself up to a particular landscape in his experience; to look at it from as many angles as he can, to wonder upon it, and dwell upon it.
+ - I have a pretty good knowledge of the Indian world by virtue of living on several different reservations and being exposed to several different cultures and languages.
+ - The highest human purpose is always to reinvent and celebrate the sacred.
+ - Anything is bearable if you can make a story out of it.
+ - They have assumed the names and gestures of their enemies, but have held on to their own, secret souls; and in this there is a resistance and an overcoming, a long outwaiting.
+ - There was only the dark infinity in which nothing was. And something happened. At the distance of a star something happened, and everything began. The Word did not come into being, but it was. It did not break upon the silence, but it was older than the silence and the silence was made of it.
+ - A word has power in and of itself. It comes from nothing into sound and meaning; it gives origin to all things.
+ - To look upon that landscape in the early morning, with the sun at your back, is to lose the sense of proportion.
+ - Although my grandmother lived out her long life in the shadow of Rainy Mountian, the immense landscape of the continental interior lay like memory in her blood.
+ - Indians are marvelous storytellers. In some ways, that oral tradition is stronger than the written tradition.
+ - He used both hands when he made the bear. Imagine a bear proceeding from the hands of God.
+ - The first word gives origin to the second, the first and second to the third, and the third to the fourth, and so on. You cannot begin with the second word...
+ - My father was a painter and he taught art. He once said to me, ‘I never knew an Indian child who could not draw.’
+ - My line of vision was such that the creature filled the moon like a fossil. It had gone there, I thought, to live and die, for there, of all places, was its small definition made whole and eternal.
+ - Her name is Ago, and she belonged to the last culture to evolve in North America.
+
+27 quotes

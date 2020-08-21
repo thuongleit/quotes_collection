@@ -1,0 +1,48 @@
+ - I recommend that people try new stuff or take new fitness classes all the time. It’s important to mix up your routine, not only for your body, but also for your mental state.
+ - I have two beautiful children and my husband. The perfect day for me is just to be with them and have fun. We like simple things, you know.
+ - Spinning has been such an amazing part of my exercise. I love the music, the energy, and the sweat. It’s a tough class, which makes me feel like I’ve really accomplished something. It’s a great way to burn fat and lean out the body. An all-around win!
+ - I like to watch ‘Grey’s Anatomy’ when I’d doing cardio. But, sometimes I do need good music to get me moving. I like high energy songs by artists like Justin Timberlake and Rihanna.
+ - My husband and I both have our bucket lists. Running a marathon was on mine.
+ - My husband and I don’t want Hollywood drama. I go to the market and do the dishes. I’m not treated differently because I work on TV.
+ - What’s wrong with extreme dieting and hard-core fitness plans is that they don’t take into account the rest of your life.
+ - My DVR says that I watch a lot of TV my husband likes.
+ - We talk a lot on ‘Biggest Loser’ about how fitness is a natural antidepressant, how it burns off stress. What I like about running is that it gives me time alone. I’m always busy, with people at work, with my kids. I love getting out for a run by myself and just listening to my music.
+ - I always cringe when people tell me they don’t eat breakfast, as though that’s a good thing. Eek! You have to start the day off with something in your stomach to get your metabolism active.
+ - There are times, like after a long day of work, when the thought of an easy drive-through is enticing. But then I remember how crappy I felt when I ate fast food in the past, and it inspires me to head to the grocery store or my local farmer’s market and whip up an easy but healthier option.
+ - It’s not weird to look at yourself in the mirror at the gym – that’s why they’re there! You have to make sure that you’re doing things right.
+ - Can you believe approximately 17 percent of American children ages 2 to 19 years are obese? How about this fact: approximately 60 percent of overweight children ages 5 to 10 already have at least one risk factor for heart disease? We are all to blame for this – parents, schools, kids – all of us.
+ - I’ve been with ‘Days of Our Lives’ for 21 years, and I’ve decided this year is going to be my last year.
+ - I’m a working mom, not a professional athlete, but I am a runner and that’s a special club.
+ - I cook at home all the time and really enjoy it. It’s fun family time and we all chip in and help out. We do a lot with our outdoor grill, a lot of chicken or shrimp, and every meal includes veggies.
+ - With reality TV, sometimes it’s amazing chemistry and you get these gems that turn out to be everything you hoped, and the camera loves them and they just blossom on the show. And then sometimes it’s not all you envision.
+ - I have encouraged my kids to eat well from day one. I add flavor – herbs and spices – to everything because I don’t want them getting used to starchy, bland food.
+ - I was never obese, but I felt ‘less than’ because I wasn’t as thin as other actresses. I totally fell for that low-fat craze. My goal was to be X jeans size or a specific number on the scale.
+ - People think, ‘Oh, I’m loving myself by sitting on this sofa for four hours.’ Love yourself enough to get up!
+ - The number one mistake is giving pets table scraps. I made the mistake thinking I was showing my dog love by giving her food and treats. You see a tiny 4 oz. piece of cheese, but for a Boston Terrier like mine, that’s like one and a half hamburgers. That’s unhealthy.
+ - I keep track of my body by how my jeans fit – and how I feel.
+ - The mental game of ‘holding out,’ not eating for as long as possible, at least for me, was a really unhealthy mental place. I would inevitably lose that battle and eat too much in one sitting and end up really mad at myself.
+ - I like Burt’s Bees Tinted Lip Balm because I don’t need a mirror to reapply. But I definitely treat myself with face lotion – I use La Mer.
+ - I love almonds as a snack, and in the morning, yogurt is a fantastic go-to. Sometimes I mix them together.
+ - Fitness is not an option. It’s part of my job.
+ - I was definitely one of those people who fell for the fat-free cookies and chips that are loaded with sugar and calories.
+ - I wasn’t eating the right kinds of calories. I didn’t know about healthy carbs such as brown rice and lentils. Now I eat small meals throughout the day: oatmeal with cinnamon to start, fruit and yogurt as a snack, and vegetables or with chicken or tuna, and a healthy carb, like a yam, for lunch.
+ - I do a lot of cardio. I think it’s super important, especially for women. I don’t have a tremendous amount of time to work out, so I find myself cramming in a cardio because that’s all I can fit in. I think that if you don’t have a lot of time, that it’s the cleanest way to burn a few calories.
+ - Sally Field looks amazing in general, never mind her age! She’s a phenomenally talented actress and has had a career spanning so many decades.
+ - Humans should always exercise and watch what they eat. So with your pet, make sure they get enough exercise, make sure they’re getting fed at the same time every day and getting the nutrition they need. And make sure they get a lot of love and attention you both need. That’s why you have them!
+ - When I saw contestants fighting for their lives on ‘The Biggest Loser,’ I realized I just wanted to be healthy – to have fun playing soccer with my son or teaching my daughter to shoot hoops. Then it was so much easier to say no to carbs, soda, or dessert, and the weight just came off.
+ - If you’re sitting in front of the TV, you can’t have ice cream. But if you’re running around all day, then yeah, you can.
+ - It’s funny because I’m a sucker for glitz and glitter when it comes to clothes and nail polish, but with my makeup, I’m more comfortable with a natural look. It feels more like me.
+ - I’ve been on ‘Days’ since I was 16, and being surrounded by such thin, gorgeous actresses made me so insecure and self-conscious.
+ - I save my dreams and hopes for my kids. When I’m making a wish under a bridge or tunnel, it’s always for them.
+ - I love fresh vegetables and we always include them in our meals. I don’t force my kids to eat asparagus, but they do eat peas, broccoli, and carrots.
+ - Hey ‘Bachelor,’ take notes! Trusting one another and sharing a journey to health leads to lasting relationships!
+ - I’ll have wine or a piece of cake once in a while, but I don’t look at it as sliding backwards, even if I go a whole week without working out. I don’t dwell on it and beat myself up – I just try to have a healthier day tomorrow.
+ - That’s the biggest thing to separate – your body from your self worth.
+ - I’ve met so many fans of daytime television who’ve watched the shows with their moms and grandmas and feel like they’ve known the characters their whole lives. It’s sad for them to have to say goodbye to their favorite soaps and characters. We don’t want that to happen to the ‘Days’ fans.
+ - I save every Christmas card. I keep them all.
+ - Especially with me working in the entertainment industry, I think my kids are aware of weight and fat much earlier than other kids. It was important to me from the beginning to make sure they understand things like why too much sugar is bad for you, etc.
+ - I’m addicted to a really tough workout. I like to be drenched in sweat when I’m done because I feel accomplished.
+ - I battled with my weight as a teenager, partly because there wasn’t the information or conversation about how to live a healthy lifestyle.
+ - Yoga is my luxury workout. If I’m on vacation or I have a day off, I love a 90-minute yoga class. It’s a really strong workout, but it takes a little bit longer.
+
+46 quotes

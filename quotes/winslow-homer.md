@@ -1,0 +1,23 @@
+ - Look at nature, work independently, and solve your own problems.
+ - You will see, in the future I will live by my watercolors.
+ - You have the sky overhead giving one light; then the reflected light from whatever reflects; then the direct light of the sun; so that, in the blending and suffusing of these several luminations, there is no such thing as a line to be seen anywhere.
+ - Oh what a friend chance can be – when it chooses.
+ - There is no such thing as talent. What they call talent is nothing but the capacity for doing continuous work in the right way.
+ - The life that I have chosen gives me my full hours of enjoyment for the balance of my life. The sun will not rise, or set, without my notice, and thanks.
+ - The Sun will not rise or set without my notice and thanks.
+ - All is lovely outside my house and inside my house and myself.
+ - Never put more than two waves in a picture; it’s fussy.
+ - Artists should never look at pictures, but should stutter in a language of their own.
+ - The life that I have chosen gives me my full hours of enjoyment.
+ - I thought for a change I would give up drinking, and it was a great mistake, and, although I reduced the size of my nose and improved my beauty, my stomach suffered.
+ - If a man wants to be an artist, he should never look at pictures.
+ - It is wonderful how much depends upon the relations of black and white A black and white, if properly balanced, suggests colour.
+ - What’s the use? The people are too stupid. They do not understand.
+ - I prefer every time a picture composed and painted outdoors. The thing is done without your knowing it.
+ - I regret very much that I have painted a picture that requires any description.
+ - I will paint for money any time.
+ - The most interesting part of my life is of no concern to the public.
+ - When you paint, try to put down exactly what you see. Whatever else you have to offer will come out anyway.
+ - Only think of my being alive with a reputation!
+
+21 quotes

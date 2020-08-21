@@ -1,0 +1,26 @@
+ - You gotta pay your dues to sing the blues.
+ - You’re in my personal space, so get out of it.
+ - If you can understand human behavior, it can’t hurt you nearly as much.
+ - It’s fine to be insane as long as you keep it to yourself.
+ - People can love their lies, tell their lies, believe their own lies until hell pays a visit.
+ - People will do and think whatever it is they have to in order to survive.
+ - Life is all we have, and if we can’t look at it honestly, are we really living?
+ - Nobody stopped believing that other people were more guilty than they were. Why do people have so much trouble seeing their own faults but such an easy time seeing everyone else’s?
+ - There are times in life to grow, and there are times in life to shine. One can’t grow and shine at the same time; it just doesn’t work that way. Now you’re growing. Tomorrow you’ll shine.
+ - You can never see a plant grow, but they do.
+ - You can almost believe what you know is not true when you really have to.
+ - If people knew who the angels were, they would be very nice when they saw one and would still do their same evil garbage when they thought none were around. Knowing who they are defeats the purpose.
+ - People make their own choices, and sometimes those choices suck.
+ - I only wish to be gone. Therefore, I AM.
+ - Complete happiness can look so much like complete terror that its hard to tell them apart.
+ - Don’t tell people you care about them when all you really care about is getting your own way.
+ - If a life goes down the toilet, it comes out in a river and meets the sea.
+ - People love to see you get ahead – so long as you don’t get farther ahead than they are.
+ - People only see as far as they are able and the rest of the truth is lost on them.
+ - Things don’t have to be sane when they’re normal.
+ - You’re supposed to be kind to everyone, because you never know when you’re meeting an angel.
+ - Sometimes it has to feel worse before it feels better.
+ - My belief in ghosts swings with the wind. But my belief that the cemetery felt happy and not sad-I’ve never changed my mind about that.
+ - Everyone who doesn’t want to believe in supernormal powers says the people who experience them are psycho. What the hell kind of a world is this if all magic moments are psychotic?
+
+24 quotes

@@ -1,0 +1,31 @@
+ - A diplomat is a man who thinks twice before he says nothing.
+ - Other countries have far greater problems than we have.
+ - Protectionism is the institutionalization of economic failure.
+ - Abhorrence of apartheid is a moral attitude, not a policy.
+ - Unemployment is of vital importance, particularly to the unemployed.
+ - There is no question of any erosion of essential national sovereignty.
+ - The unpleasant and unacceptable face of capitalism.
+ - We shall have a harder Christmas than we have known since the war.
+ - I have no interest in sailing around the world. Not that there is any lack of requests for me to do so.
+ - Whatever the lady does is wrong. I do not know of a single right decision taken by her.
+ - I have always had a hidden wish, a frustrated desire, to run a hotel.
+ - We will have to embark on a change so radical, a revolution so quiet and yet so total, that it will go far beyond the programme for a parliament.
+ - I think Churchill would be appalled at the Thatcher government.
+ - Pitt the Younger was a great British Prime Minister. He saved Europe from Napoleon, he was the pilot who weathered the storm. I don’t know whether he’d have done it any better or quicker had he been married.
+ - I do not often attack the Labour Party, they do it so well themselves.
+ - In excluding me from the shadow cabinet, Margaret Thatcher has chosen what I believe to be the only wholly honest solution and one which I accept and welcome.
+ - I was delighted that by campaigning throughout England, Scotland and Wales, addressing in all 39 public meetings, I had contributed to the victory of the Conservative Party at this general election.
+ - If politicians lived on praise and thanks they’d be forced into some other line of business.
+ - You mustn’t expect prime ministers to enjoy themselves. If they do, they mustn’t show it – the population would be horrified.
+ - Do you know what Margaret Thatcher did in her first Budget? Introduced VAT on yachts! It somewhat ruined my retirement.
+ - I am not a product of privilege, I am a product of opportunity.
+ - A ready smile concealed a firm mind.
+ - I said it three times actually.
+ - There’s a lot of people I’ve encouraged and helped to get into the House of Commons. Looking at them now, I’m not so sure it was a wise thing to do.
+ - We have had eight years of consistent and persistent attacks on those four years in government – and on me, personally, but that does not matter – by people who were collectively responsible for those four years.
+ - The historic role of the Conservative Party is to use the leverage of its political and diplomatic skills to create a fresh balance between the different elements within the state at those times when, for one reason or another, their imbalance threatens to disrupt the orderly development of society.
+ - Leadership is all about right and wrong.
+ - This was a secret meeting on a secret tour which nobody is supposed to know about. It means that there are men, and perhaps women, in this country walking around with eggs in their pockets, just on the off-chance of seeing the Prime Minister.
+ - I don’t think that modesty is the outstanding characteristic of contemporary politics, do you?
+
+29 quotes

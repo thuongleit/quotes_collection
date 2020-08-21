@@ -1,0 +1,205 @@
+ - The trouble is that you think you have time.
+ - We can always begin again.
+ - Let go of the battle. Breathe quietly and let it be. Let your body relax and your heart soften. Open to whatever you experience without fighting.
+ - To let go does not mean to get rid of. To let go means to let be. When we let be with compassion, things come and go on their own.
+ - Much of spiritual life is self-acceptance, maybe all of it.
+ - Everything that has a beginning has an ending. Make your peace with that and all will be well.
+ - Have respect for yourself, and patience and compassion. With these, you can handle anything.
+ - If your compassion does not include yourself, it is incomplete.
+ - We have only now, only this single eternal moment opening and unfolding before us, day and night.
+ - Be mindful of intention. Intention is the seed that creates our future.
+ - Life is so hard, how can we be anything but kind?
+ - The goal of practice is always to keep our beginner’s mind.
+ - The task is not to perfect yourself, it’s to perfect your love.
+ - Life without forgiveness is unbearable.
+ - May I be given the appropriate difficulties so that my heart can truly open with compassion. Imagine asking for that.
+ - Wisdom says we are nothing. Love says we are everything. Between these two our life flows.
+ - True love is not for the faint-hearted.
+ - When we get too caught up in the busyness of the world, we lose connection with one another – and ourselves.
+ - Great pain, when it is honored from the heart, opens into great understanding.
+ - It is not enough to know that love and forgiveness are possible. We have to find ways to bring them to life.
+ - Most people discover that when hate is gone, they will be forced to deal with their own pain.
+ - Those who are Awake live in a state of constant amazement...
+ - We are awakened to the profound realization that the true path to liberation is to let go of everything.
+ - Every facet, every department of your mind, is to be programmed by you. And unless you assume your rightful responsibility, and begin to program your own mind, the world will program it for you.
+ - Compassion is our deepest nature. It arises from our interconnection with all things.
+ - Weigh the true advantages of forgiveness and resentment to the heart. Then choose.
+ - To live life is to make a succession of errors. Understanding this can bring us great ease and forgiveness for ourselves and others.
+ - The things that matter most in our lives are not fantastic or grand. They are the moments when we touch one another.
+ - Attention to the human body brings healing and regeneration. Through awareness of the body we remember who we really are.
+ - Do not doubt your own basic goodness. In spite of all confusion and fear, you are born with a heart that knows what is just, loving, and beautiful.
+ - One of the essential tasks for living a wise life is letting go. Letting go is the path to freedom. It is only by letting go of the hopes, the fears, the pain, the past, the stories that have a hold on us that we can quiet our mind and open our heart.
+ - The heart is like a garden. It can grow compassion or fear, resentment or love. What seeds will you plant there?
+ - The quieting of our mind is a political act.
+ - The work of your heart, the work of taking time, to listen, to help, is also your gift to the whole of the world.
+ - We as human beings have the amazing capacity to be reborn at breakfast everyday and say, “This is a new day.”
+ - There is beauty to be found in the changing of the earth’s seasons, and an inner grace in honouring the cycles of life.
+ - Gratitude is confidence in life itself. In it, we feel how the same force that pushes grass through cracks in the sidewalk invigorates our own life.
+ - Equanimity arises when we accept the way things are.
+ - The only way to live is by accepting each minute as an unrepeatable miracle.
+ - At the end of our life our questions are simple: Did I live fully? Did I love well?
+ - Whatever we cultivate in times of ease, we gather as strength for times of change.
+ - When we take the one seat on our meditation cushion we become our own monastery. We create the compassionate space that allows for the arising of all things: sorrows, loneliness, shame, desire, regret, frustration, happiness.
+ - There are many ways up the mountain and each of us must choose a practice that feels true to our heart.
+ - Compassion for ourselves gives rise to the power to transform resentment into forgiveness, hatred into friendliness, and fear into respect for all beings.
+ - Though outer events may be difficult, the key to our happiness is how our mind responds to them.
+ - The waves do keep coming, so learn to surf.
+ - Buddhists were actually the first cognitive-behavioral therapists.
+ - If we are engaged in actions that cause pain and conflict to ourselves and others, it is impossible for the mind to become settled, collected, and focused in meditation; it is impossible for the heart to open.
+ - Whenever we forgive, in small ways at home, or in great ways between nations, we free ourselves from the past.
+ - Love is based on our capacity to trust in a reality beyond fear, to trust a timeless truth bigger than all our difficulties.
+ - Train your mind the same way you’d train a puppy: Be patient, be consistent, and have some fun along the way.
+ - Wherever you are is the perfect place to awaken. This moment is the exact place to practice compassion and loving awareness. You have all the ingredients to breathe and find freedom just where you are.
+ - When we struggle to change ourselves we, in fact, only continue the patterns of self-judgement and aggression. We keep the war against ourselves alive.
+ - Forgiveness is primarily for our own sake, so that we no longer carry the burden of resentment. But to forgive does not mean we will allow injustice again.
+ - Within each of us there is a silence as vast as the universe. We long for it. We can return to it.
+ - The best of modern therapy is much like a process of shared meditation, where therapist and client sit together, learning to pay close attention to those aspects and dimensions of the self that the client may be unable to touch on his or her own.
+ - We must look at ourselves over and over again in order to learn to love, to discover what has kept our hearts closed, and what it means to allow our hearts to open.
+ - The wholeness and freedom we seek is our true nature, who we really are.
+ - With mindfulness, we are learning to observe in a new way, with balance and a powerful disidentification.
+ - It is our commitment to wholeness that matters, the willingness to unfold in every deep aspect of our being.
+ - You need a community. They remind you when you forget, and you remind them when they forget.
+ - Virtue and integrity are necessary for genuine happiness. Guard your integrity with care.
+ - Built on the foundation of concentration is the third aspect of the Buddha’s path of awakening: clarity of vision and the development of wisdom.
+ - Knowledge and achievements matter little if we do not yet know how to touch the heart of another and be touched.
+ - Two qualities are at the root of all meditation development: right effort and right aim – arousing effort to aim the mind toward the object.
+ - For most of us, generosity is a quality that must be developed. We have to respect that it will grow gradually; otherwise our spirituality can become idealistic and imitative, acting out the image of generosity before it has become genuine.
+ - In all practices and traditions of freedom, we find the heart’s task to be quite simple. Life offers us just what it offers, and our task is to bow to it, to meet it with understanding and compassion.
+ - It is hard to imagine a world without forgiveness. Without forgiveness life would be unbearable. Without forgiveness our lives are chained, forced to carry the sufferings of the past and repeat them with no release.
+ - In any moment we can learn to let go of hatred and fear. We can rest in peace, love, and forgiveness. It is never too late. Yet to sustain love we need to develop practices that cultivate and strengthen the natural compassion within us.
+ - To live fully is to let go and die with each passing moment, and to be reborn in each new one.
+ - To open deeply, as genuine spiritual life requires, we need tremendous courage and strength, a kind of warrior spirit.
+ - The questions asked at the end of lie are very simple ones: Did I love well? Did I love the people around me, my community, the earth, in a deep way? And perhaps, Did I live fully? Did I offer myself to life?
+ - There is a web of life into which we are born, from which we can never fall.
+ - In a society that almost demands life at double time, speed and addictions numb us to our own experience. In such a society, it is almost impossible to settle into our bodies or stay connected with our hearts, let alone connect with one another or the earth where we live.
+ - Most of us have spent our lives caught up in plans, expectations, ambitions for the future; in regrets, guilt or shame about the past. To come into the present is to stop the war.
+ - We can struggle with what is. We can judge and blame others or ourselves. Or we can accept what cannot be changed. Peace comes from an honorable and open heart accepting what is true. Do we want to remain stuck? Or to release the fearful sense of self and rest kindly where we are?
+ - Since death will take us anyway, why live our life in fear? Why not die in our old ways and be free to live?
+ - To bow to the fact of our life’s sorrows and betrayals is to accept them; and from this deep gesture we discover that all life is workable. As we learn to bow, we discover that the heart holds more freedom and compassion than we could imagine.
+ - Peace requires us to surrender our illusions of control.
+ - As surely as there is a voyage away, there is a journey home.
+ - Letting go does not mean not caring about things. It means caring about them in a flexible and wise way.
+ - When attachment arises in the place of love, it sees the other as separate; it grasps and needs. Attachment is conditional; it seeks control and it fear loss. Ask your heart if attachment has replaced love. If we speak to our heart, it will always tell us the truth.
+ - As we willingly enter each place of fear, each place of deficiency and insecurity in ourselves, we will discover that its walls are made of untruths, of old images of ourselves, of ancient fears, of false ideas of what is pure and what is not.
+ - What we seek is what we are.
+ - Part of spiritual and emotional maturity is recognizing that it’s not like you’re going to try to fix yourself and become a different person. You remain the same person, but you become awakened.
+ - We need a repeated discipline, a genuine training, in order to let go of our old habits of mind and to find and sustain a new way of seeing.
+ - Spiritual life doesn’t make you a good person; you ARE a good person, you are a holy being when you are born. What spiritual life does is remind us that this is who we really are.
+ - Indifference is a misguided way of defending ourselves.
+ - Breathing meditation can quiet the mind, open the body, and develop a great power of concentration.
+ - Beneath the sophistication of Buddhist psychology lies the simplicity of compassion. We can touch into this compassion whenever the mind is quiet, whenever we allow the heart to open.
+ - To begin to meditate is to look into our lives with interest in kindness and discover how to be wakeful and free.
+ - In Buddhist practice, the outward and inward aspects of taking the one seat meet on our meditation cushion.
+ - In this world there are two great sources of strength. One rests with those who are not afraid to kill. The other rests with those who are not afraid to love.
+ - Only a deep attention to the whole of our life can bring us the capacity to love well and live freely.
+ - To understand ourselves and our life is the point of insight meditation: to understand and to be free.
+ - Meet this transient world with neither grasping nor fear, trust the unfolding of life, and you will attain true serenity.
+ - If you put a spoonful of salt in a cup of water it tastes very salty. If you put a spoonful of salt in a lake of fresh water the taste is still pure and clear. Peace comes when our hearts are open like the sky, vast as the ocean.
+ - There are no holy places and no holy people, only holy moments, only moments of wisdom.
+ - Strength of the Heart comes from knowing that the pain that we each must bear is part of the greater pain shared by all that lives. It is not just ‘our’ pain, but ‘the’ pain and realizing this awakens our universal compassion.
+ - May you know the beauty of your own true nature.
+ - When we come into the present, we begin to feel the life around us again, but we also encounter whatever we have been avoiding. We must have the courage to face whatever is present – our pain, our desires, our grief, our loss, our secret hopes our love – everything that moves us most deeply.
+ - The knowledge of the past stays with us. To let go is to release the images and emotions, the grudges and fears, the clingings and disappointments of the past that bind our spirit.
+ - As we follow a genuine path of practice, our sufferings may seem to increase because we no longer hide from them or from ourselves. When we do not follow the old habits of fantasy and escape, we are left facing the actual problems and contradictions of our life.
+ - It is true that the heart has its seasons, just as a flower opens to the sunlight and closes to the night. We need to be respectful of those rhythms. But we can’t close down for long. It is our true nature to have an open heart.
+ - In this there is no judgment and no blame, for we seek not to perfect the world but to perfect our love for what is on this earth.
+ - It is the place of feeling that binds us or frees us.
+ - Every individual has a unique contribution.
+ - There are several different kinds of painful feelings that we might experience, and learning to distinguish and relate to these feelings of discomfort or pain is an important part of meditation practice, because it is one of the very first things that we open to as our practice develops.
+ - Love creates a communion with life. Love expands us, connects us, sweetens us, ennobles us. Love springs up in tender concern, it blossoms into caring action. It makes beauty out of all we touch. In any moment we can step beyond our small self and embrace each other as beloved parts of a whole.
+ - You hold in your hand an invitation: to remember the transforming power of forgiveness and loving kindness. To remember that no matter where you are and what you face, within your heart peace is possible.
+ - We don’t know all the reasons that propel us on a spiritual journey, but somehow our life compels us to go.
+ - All of spiritual practice is a matter of relationship: to ourselves, to others, to life’s situations.
+ - We must look at our life without sentimentality, exaggeration or idealism. Does what we are choosing reflect what we most deeply value?
+ - To see the preciousness of all things, we must bring our full attention to life.
+ - An honorable spiritual practice recognizes the losses we have suffered, tells our story, and sheds our tears to free us from the past.
+ - Nirvana manifests as ease, as love, as connectedness, as generosity, as clarity, as unshakable freedom. This isn’t watering down nirvana. This is the reality of liberation that we can experience, sometimes in a moment and sometimes in transformative ways that change our entire life.
+ - To let go in the deepest recesses of the heart, to release all struggle and wanting, leads us to that knowing which is timeless.
+ - The way I treat my body is not disconnected from the way I treat my family or the commitment I have to peace on our earth.
+ - No amount of meditation, yoga, diet, and reflection will make all of our problems go away, but we can transform our difficulties into our practice until little by little they guide us on our way.
+ - Ours is a society of denial that conditions us to protect ourselves from any direct difficulty and discomfort. We expend enormous energy denying our insecurity, fighting pain, death and loss and hiding from the basic truths of the natural world and of our own nature.
+ - You have to accept the way things are before you can move on.
+ - It’s much better to become a Buddha than a Buddhist.
+ - The unawakened mind tends to make war against the way things are.
+ - Without being aware of it, you take many things as being your identity: your body, your race, your beliefs, your thoughts.
+ - Tending to ourselves, we tend the world. Tending the world, we tend ourselves.
+ - The willingness to empty ourselves and then seek our true nature is an expression of great and courageous love.
+ - Only in the reality of the present can we love, can we awaken, can we find peace and understanding and connection with ourselves and the world.
+ - But forgiveness is the act of not putting anyone out of your heart, even those who are acting out of deep ignorance or out of confusion and pain.
+ - The purpose of a spiritual discipline is to give us a way to stop the war, not by our force of will, but organically, through understanding an gradual training.
+ - Meditation practice is neither holding on nor avoiding; it is a settling back into the moment, opening to what is there.
+ - In the end, just three things matter: How well we have lived How well we have loved How well we have learned to let go.
+ - Buddhist teachings are not a religion, they are a science of mind.
+ - Refraining from stealing: care with material goods. Undertake for one week to act on every single thought of generosity that arises spontaneously in your heart.
+ - The path of awakening begins with a step the Buddha called right understanding.
+ - As desire abates, generosity is born. When we are connected and present, what else is there to do but give?
+ - You awaken your True spirit by way of the broken heart: ragged, vulnerable, fierce and finally compassionate. Chris trod this rough way and shows honestly how it can be done.
+ - Anger shows us precisely where we are stuck, where our limits are, where we cling to beliefs and fears.
+ - The present moment is really all that we have. The only place you can really love another person is in the present. Love in the past is a memory. Love in the future is a fantasy. To be really alive, love – or any other experience – must take place in the present.
+ - Yet I knew that spiritual practice is impossible without great dedication, energy, and commitment.
+ - The Sufis have a saying: “Praise Allah, and tie your camel to a post.” This brings together both parts of practice: pray, yes, but also make sure that you do what is necessary in the world.
+ - To live in this precious animal body on this earth is as great a part of spiritual life as anything else.
+ - The basic principle of spiritual life is that our problems become the very place to discover wisdom and love.
+ - Through practice, gently and gradually we can collect ourselves and learn how to be more fully with what we do.
+ - We need energy, commitment, and courage not to run from our life nor to cover it over with any philosophy – material or spiritual.
+ - Meditation is a vehicle for opening to the truth of this impermanence on deeper and deeper levels.
+ - We must especially learn the art of directing mindfulness into the closed areas of our life.
+ - The grief we carry is part of the grief of the world. Hold it gently. Let it be honored. You do not have to keep it in anymore. You can let go into the heart of compassion; you can weep.
+ - In the end, forgiveness simply means never putting another person out of our heart.
+ - As we step out of the way new things are born.
+ - We do not have to improve ourselves; we just have to let go of what blocks our heart.
+ - No matter what situation we find ourselves in, we can always set our compass to our highest intentions in the present moment.
+ - Even the most exalted states and the most exceptional spiritual accomplishments are unimportant if we cannot be happy in the most basic and ordinary ways, if we cannot touch one another and the life we have been given with our hearts.
+ - We can bring our spiritual practice into the streets, into our communities, when we see each realm as a temple, as a place to discover that which is sacred.
+ - As we encounter new experiences with a mindful and wise attention, we discover that one of three things will happen to our new experience: it will go away, it will stay the same, or it will get more intense. whatever happens does not really matter.
+ - According to Buddhist scriptures, compassion is the “quivering of the pure heart” when we have allowed ourselves to be touched by the pain of life.
+ - Religion and philosophy have their value, but in the end all we can do is open to mystery and live a path with heart.
+ - To undertake a genuine spiritual path is not to avoid difficulties but to learn the art of making mistakes wakefully, to bring them to the transformative power of our heart.
+ - The person who betrayed you is sunning themselves on a beach in Hawaii and you’re knotted up in hatred. Who is suffering?
+ - True emptiness is not empty, but contains all things. The mysterious and pregnant void creates and reflects all possibilities. From it arises our individuality, which can be discovered and developed, although never possessed or fixed.
+ - Embodied courage chooses not to wait until illness or notice of death demands attention.
+ - When we take time to quiet ourselves, we can all sense that our life could be lived with greater compassion and greater weakness.
+ - This life is a test-it is only a test. If it had been an actual life, you would have received further instructions on where to go and what to do. Remember, this life is only a test.
+ - In our charade with ourselves we pretend that our war is not really war. We have changed the name of the War Department to the Defense Department and call a whole class of nuclear missiles Peace Keepers!
+ - As long as you are trying to be something other than what you actually are, your mind wears itself out. But if you say, ‘This is what I am, it is a fact that I am going to investigate and understand,’ then you can go beyond.
+ - As we learn to bow, we discover that the heart holds more freedom and compassion than we could imagine.
+ - The independence and rebelliousness of our adolescence offer us yet another quality essential to our practice; the insistence that we find out the truth for ourselves, accepting no one’s word above our own experience.
+ - Expressing gratitude to our benefactors is a natural form of love. In fact, some people find loving kindness for themselves so hard, they begin their practice with a benefactor. This too is fine. The rule in loving kindness practice is to follow the way that most easily opens your heart.
+ - A factor that greatly supports the opening of energy in practice is exercise and care of the physical body.
+ - In opening we can see how many times we have mistaken small identities and fearful beliefs for our true nature and how limiting this is. We can touch with great compassion the pain from the contracted identities that we and others have created in the world.
+ - We can bring a heart of understanding and compassion to a world that needs it so much.
+ - When we have for so long been judged by everyone we meet, just to look into the eyes of another who does not judge us can be extraordinarily healing.
+ - We need to learn how to honor and use a practice for as long as it serves us – which in most cases is a very long time – but to look at it as just that, a vehicle, a raft to help us cross through the waters of doubt, confusion, desire, and fear.
+ - Everybody needs to take some time, in some way, to quiet themselves and really listen to their heart.
+ - Great spiritual traditions are used as a means to ripen us, to bring us face to face with our life, and to help us to see in a new way by developing a stillness of mind and a strength of heart.
+ - Your happiness and suffering depend on your actions and not on my wishes for you.
+ - We have so many ideas and beliefs about ourselves. We told ourselves story about what we want and who we are, smart or kind. Often these are the unexamined and limited ideas of others that we have internalized and then gone on to life out.
+ - What would we have to hold in compassion to be at peace right now? What would we have to let go of to be at peace right now?
+ - When we let go of yearning for the future, preoccupation with the past, and strategies to protect the present, there is nowhere left to go but where we are. To connect with the present moment is to begin to appreciate the beauty of true simplicity.
+ - The focusing of attention on the breath is perhaps the most universal of the many hundreds of meditation subjects used worldwide.
+ - We each have been betrayed. Let yourself picture and remember the many ways this is true. Feel the sorrow you have carried from this past. Now sense that you can release this burden of pain by gradually extending forgiveness as your heart is ready.
+ - In deep self acceptance, grows a compassionate understanding.
+ - When we let go of our battles and open our hearts to things as they are, then we come to rest in the present moment. This is the beginning and the end of spiritual practice.
+ - The light around someone who speaks truth, who consistently acts with compassion for all, even in great difficulty, is visible to all around them.
+ - The aim of spiritual life is to awaken a joyful freedom, a benevolent and compassionate heart in spite of everything.
+ - Everyone and everything is in some degree or other our teacher.
+ - Skill in concentrating and steadying the mind is the basis for all types of meditation.
+ - Our ideas of self are created by identification. The less we cling to ideas of self, the freer and happier we will be.
+ - Where we tended to be judgmental, we became more judgmental of ourselves in our spiritual practice.
+ - We each need to make our lion’s roar – to persevere with unshakable courage when faced with all manner of doubts and sorrows and fears – to declare our right to awaken.
+ - There is no higher happiness than peace.
+ - When our identity expands to include everything, we find a peace with the dance of the world. The ocean of life rises and falls within us – birth and death, joy and pain, it is all ours, and our heart is full and empty, large enough to embrace it all.
+ - A second quality of mature sirituality is kindness. It is based on a fundamental notion of self-acceptance...
+ - When we feel anger toward someone, we can consider that they are a being just like us, who has faced much suffering in life.
+ - To learn to concentrate we must choose a prayer or meditation and follow this path with commitment and steadiness, a willingness to work with our practice day after day, no matter what arises.
+ - To meditate is to discover new possibilities, to awaken the capacities of us has to live more wisely, more lovingly, more compassionately, and more fully.
+ - Live in joy, in love, even among those who hate.
+ - We need a warrior’s heart that lets us face our lives directly, our pains and limitations, our joys and possibilities.
+ - In sitting on the meditation cushion and assuming the meditation posture, we connect ourselves with the present moment in this body and on this earth.
+ - Samadhi doesn’t just come of itself; it takes practice.
+ - The first level of practice is illuminated by the qualities of courage and renunciation.
+ - Without integrity and conscience we lose our freedom.
+ - How well we have learned to let go.
+ - There are many good forms of meditation practice. A good meditation practice is any one that develops awareness or mindfulness of our body and our sense, of our mind and heart.
+
+203 quotes

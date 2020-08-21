@@ -1,0 +1,22 @@
+ - What is the opposite of two? A lonely me, a lonely you.
+ - Step off assuredly into the blank of your mind. Something will come to you.
+ - Outside the open window The morning air is all awash with angels.
+ - All that we do is touched with ocean, and yet we remain on the shore of what we know.
+ - Happy in all that ragged, loose collapse of water, the fountain, its effortless descent and flatteries of spray...
+ - The strength of the genie comes from being in a bottle.
+ - The eye is pleased when nature stoops to art.
+ - A thrush, because I’d been wrong, Burst rightly into song In a world not vague, not lonely, Not governed by me only.
+ - There is a poignancy in all things clear, In the stare of the deer, in the ring of a hammer in the morning. Seeing a bucket of perfectly lucid water We fall to imagining prodigious honesties.
+ - What you hope for Is that at some point of the pointless journey, Indoors or out, and when you least expect it, Right in the middle of your stride, like that, So neatly that you never feel a thing, The kind assassin Sleep will draw a bead And blow your brains out.
+ - Caught Summer is always an imagined time. Time gave it, yes, but time out of any mind. There must be prime In the heart to beget that season, to reach past rain and find Riding the palest days Its perfect blaze.
+ - It is true that the poet does not directly address his neighbors; but he does address a great congress of persons who dwell at the back of his mind, a congress of all those who have taught him and whom he has admired; they constitute his ideal audience and his better self.
+ - Odd that a thing is most itself when likened.
+ - Whatever pains disease may bring Are but the tangy seasoning To Loves delicious fare.
+ - It is not tricks of sense But the time’s fright within me which distracts Least fancies into violence.
+ - That’s the main business of the poem!-to see if you can’t make up a language that sets all your selves talking at once-all of them being fair to each other.
+ - Composition for me is, externally at least, scarcely distinguishable from catatonia.
+ - I would feel dead if I didn’t have the ability periodically to put my world in order with a poem. I think to be inarticulate is a great suffering, and is especially so to anyone who has a certain knack for poetry.
+ - Writing poetry is talking to oneself; yet it is a mode of talking to oneself in which the self disappears; and the product’s something that, though it may not be for everybody, is about everybody.
+ - Columbus and his men, they say, Conveyed the virus hither Whereby my features rot away And vital powers wither; Yet had they not traversed the seas And come infected back, Why, think of all the luxuries That modern life would lack.
+
+20 quotes

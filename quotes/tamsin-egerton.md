@@ -1,0 +1,40 @@
+ - I am my own worst enemy. My friends and family will say, Youve got everything going for you right now, and I say, Oh yes, but! Which is not a good way to be.
+ - I have no sense of direction at all. Thank the Lord for my TomTom, otherwise I’d spend my whole life lost.
+ - I will normally eat about seven or eight mince pies in one sitting. Sometimes, I can get to double figures. My friends, and probably most people, stop at two, so they probably dislike me a bit for it.
+ - I was brought up to think a lot about food and have respect for it, both as medicine and something to eat and enjoy.
+ - I think if you have a good night’s sleep, you can take on the world.
+ - I suppose I am one of those lucky people who eats what they like and doesn’t gain too much weight.
+ - I’m not interested in serial dating; I’d honestly rather be single.
+ - I’m a real animal lover. I adore animals of all shapes and sizes.
+ - Always take earplugs and an eye mask. It doesn’t matter where you are. Even if you’re in the best hotel, if there’s road works outside, then you’re screwed. So I take earplugs and an eye mask with me wherever I go.
+ - Acting is an aesthetic career, which is annoying.
+ - Guinevere is not the Morgan type, where she’s sultry and she knows she has this incredible female energy that she can use and utilize, and she’s not necessarily used to having this power over men.
+ - If you steal other people’s characters, it doesn’t work with the context of the scripts and what is written, so I wanted to make her my own. I was petrified, in the beginning, because it’s such an iconic character, especially being a young lady myself.
+ - I’m neurotic about children. I see dangers everywhere – sharp corners, stairs.
+ - The truth is, I’m not body confident.
+ - My mum is a bit unconventional; she’s outdoorsy and has more of an emotional intelligence, whereas my dad is pragmatic; he’s a businessman.
+ - I have to be careful not to do so many comedy airhead roles from now on. I’ve turned down a couple already.
+ - I’m trying to cultivate a long-term career rather than get every job right this minute. That’d be putting too much pressure on myself. I’d go crazy if I thought like that.
+ - What I don’t like about Guinevere is the fact that she can’t control her passions and urges. She gets herself into quite a love triangle, and quite a web. Personally, I find that very difficult to relate to. But, it wouldn’t be interesting, if she did everything right.
+ - I’m a big handbag lover and will always have one with me.
+ - I’ve always wanted to play Guinevere. I just asked Chris what he thought, and he steered me in the right directions. We just wanted to make her young and able to make mistakes, which I think is important.
+ - Kicks are my forte. I’ve got strong legs and high kicks. And I’ve got very good reach, obviously.
+ - I know that the battle scenes, as well, are quite gory and quite strong. Battle was romantic, but it was far from being easy. It’s nice, in both respects, to have that color and contrast.
+ - Kids hate anyone who is different.
+ - When you’re acting, you’re escaping and hiding behind something. It’s cliched to say, but there’s a safety there.
+ - I actually love doing period pieces, purely because it takes you into a different world, mentally. The clothes you have to wear are so far from our everyday clothes that it immediately helps with the character and putting you in that mind frame.
+ - I have been working since I was 11 on everything including period dramas.
+ - I’m not a flying fan. I can’t bear it.
+ - I hardly ever missed school, and I always got my work in on time. I was a good student and always got top grades.
+ - I hate watching myself on film because I am so judgmental.
+ - I don’t think any actors love taking their clothes off on film, unless you’re an exhibitionist, which I’m certainly not.
+ - I don’t know what it is about me, but I don’t think of myself as sexy; I never have.
+ - My style is schizophrenic! One minute I’ll be wearing bright girly dresses, and the next I’ll be swinging towards more structured masculine things.
+ - I defy any woman that doesn’t feel more elegant and more groomed and ready for an evening than if you have a blow dry.
+ - That’s really why I wanted to do it. I wanted to be a part of this generation’s telling of Camelot, and also get the chance to play a fantastic, complex, interesting, emotionally passionate, young lead role.
+ - At 11, I got my first job in a mini-series for America, and it was very exciting.
+ - I love dressing up for events; to me it’s almost like wearing a costume for the evening.
+ - The 1950s would be my ideal decade because I’m actually very traditional; I enjoy being at home, and I’m a complete nester.
+ - I did model for a little while part-time, but I wasn’t a bloody model, and I am definitely not that horrible thing ‘model-turned-actress.’
+
+38 quotes

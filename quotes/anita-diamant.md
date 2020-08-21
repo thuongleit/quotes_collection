@@ -1,0 +1,48 @@
+ - I never wanted Mary Poppins to be my nanny. I wanted to be her when I grew up.
+ - Why did I not know that birth is the pinnacle where women discover the courage to become mothers?
+ - Mountains are where heaven meets earth.
+ - My heart is a ladle of sweet water brimming over.
+ - I tell writers to keep reading, reading, reading. Read widely and deeply. And I tell them not to give up even after getting rejection letters. And only write what you love.
+ - The painful things seemed like knots on a beautiful necklace, necessary for keeping the beads in place.
+ - Egypt loved the lotus because it never dies. It is the same for people who are loved.
+ - Of all life’s pleasures, only love owes no debt to death.
+ - Wherever you walk, I go with you. Selah.
+ - If you want to understand any woman, you must first ask about her mother and then listen carefully.
+ - When a shy person smiles, it’s like the sun coming out.
+ - The Sabbath is a weekly cathedral raised up in my dining room, in my family, in my heart.
+ - It was one of those perfect fall days when the air is cool enough to wake you up but the sun is also kissing your face.
+ - My husband, Jim, converted to Judaism just before our wedding.
+ - Right now, I’m Writing song lyrics. Experimenting with a play. Toying with an idea for a documentary. I hope one of these will eventually be launched into the light of day.
+ - I pray I die before they day comes when I do not know if my sons are infants or grandfathers.
+ - One of his tears fell in my mouth, where it became a blue sapphire, source of strength, source of strength and eternal hope.
+ - I like the way he danced. And then I like the way we danced together.
+ - One of my great secrets was knowing I had the power to make her smile.
+ - Egypt loved the lotus becuase it never dies. It is the same for people who are loved. Thus can something as insignificant as a name-two syllables, one high, one sweet- summon up the innumerable smiles, tears, sighs and dreams of a human life.
+ - I wanted to cry, but I realized that I was too old for that. I would be a woman soon and I would have to learn how to live with a divided heart.
+ - The other reason women wanted daughters was to keep their memories alive.
+ - I lived through a classic publishing story. My editor was fired a month before the book came out. The editor who took it over already had a full plate. It was never advertised. We didn’t get reviewed in any major outlets.
+ - The story it told was unremarkable: a tale of love found and lost- the oldest story in the world. The only story.
+ - The real Mary Poppins got lost when Hollywood turned her into a cream puff.
+ - One of my favorite poets, Neruda, writes close to the bone. Though I know only a little Spanish, I like to compare the Spanish and English lines and see how the translator worked.
+ - Making plans is a game. Life chooses for you.
+ - As a journalist I’m comfortable doing library research, and I did a lot! I had a fellowship at Radcliff for a year which gave me access to the Harvard system.
+ - It’s a good thing babies don’t give you a lot of time to think. You fall in love with them and when you realize how much they love you back, life is very simple.
+ - I could not get my fill of looking. There should be a song for women to sing at this moment or a prayer to recite. But perhaps there is none because there are no words strong enough to name that moment.
+ - Until very recently men and women inhabited very separate spheres. There was always interconnection, passion, love. But men and women didn’t hang out at the end of the day and chat about what their day was like at the office.
+ - He was golden and beautiful as a sunset.
+ - Whatever your relationship is to your sacred tradition in the West, you have some relationship to the Bible if only through the names of the characters.
+ - My early childhood was spent in Newark, New Jersey, but my family moved to Denver when I was 12.
+ - Biblical names are hot again.
+ - They sang the words in unison, yet somehow created a web of sounds with their voices. It was like hearing a piece of fabric woven with all the colors of a rainbow. I did not know that such beauty could be formed by the human mouth. I had never heard harmony before.
+ - I love many kinds of music: world music, jazz, classical, pop.
+ - I moved my arms through the water, feeling them float on the surface, watching the waves and wake that followed my gesture. Here was magic, I thought. Here was something holy.
+ - Since 1985, I have written about contemporary Jewish practice and the Jewish community.
+ - It is terrible how much has been forgotten, which is why, I suppose, remembering seems a holy thing.
+ - I am so honored to be the vessel into which you pour this story of pain and strength.
+ - I would have stayed forever within the garden of Re-mose’s childhood, but time is a mother’s enemy.
+ - The more I do bookstores, the more people come up to me from church groups. I spoke at Pittsburg State College and had 2 or 3 ministers and book groups from a couple of churches.
+ - I got nice rejections explaining that historical fiction was a difficult sell. But I kept trying.
+ - There’s something almost adolescent about Whitman’s paean to everything that was and remains good about America.
+ - The Bible – it’s sort of the other person in the room. There’s this book, the reader, and the Bible.
+
+46 quotes

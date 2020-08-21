@@ -1,0 +1,48 @@
+ - Be truthful, say what you mean and mean what you say, don’t ignore the given circumstances.
+ - Today is the day you have to start believing in yourself. No one can do it for you anymore.
+ - I must work harder to achieve my goal of not seeking approval from those whose approval I’m not even sure is important to me.
+ - Growing up an only child with a single parent is probably why I’m an actor.
+ - Perspective is the most important thing to have in life.
+ - Texting is not flirting, if you don’t care about me enough to say the words than that’s not love, I don’t like it!
+ - Belly buttons are cool!
+ - There’s nothing more important than a good story.
+ - Once again, I’ve been thwarted by the massive difference between my vision of the successful me and the me I’m currently stuck with.
+ - Maybe I should sit. Plenty of people use sitting as a way to pass the time.
+ - My mother had lived in London since I was little, so she never got to see my school plays and stuff.
+ - We’re all working hard, but so far away from what we actually want to be doing. We’re all peering in at the window of a party we aren’t invited to yet, a party we wouldn’t know how to dress for, or what kind of conversation to make, even if we came as someone’s guest.
+ - I’ve spent a lot of time wondering, What’s going to happen? What’s going to happen? I try not to allow myself to do that much anymore. I think ive gotten more comfortable with the unknown.
+ - Nobody ever seems to want my advice about serious stuff. People will be like: ‘Who made that sweater?’ Or ‘How did you get your hair so straight?’ They don’t to come to me for the relationship advice or deep stuff. In fact, my little sister actually hides from me.
+ - You may be sensitive inside, but what I see on the outside is a soldier.
+ - Anyone can smile on their best day. I like to meet a man who can smile on his WORST.
+ - The best you can hope for is a great collaborator.
+ - I’d pay more just to hear proper English and have everyone keep their clothes on.
+ - Like my dad, I have a Christmas party most years. I like to celebrate and see as many people as possible.
+ - I think what my hope is is that the only downside of having a steady job on television is, I think for all actors, there’s a piece, there’s some adrenaline, and part of the love of the job is not knowing what’s coming next, and the variety.
+ - I would like to be part of a family, however that looks. Family is really important to me.
+ - As I’ve gotten older, I’ve gotten more liberal, and my father is increasingly conservative. It’s so shocking to me because I always thought we had the same politics. The day I realized we voted for different presidents, I practically fell out of my chair.
+ - As actors we always say that once the person in a scene gets what they want, the scene is over. It’s resolved. But life is never resolved – you’re always in the process.
+ - These days I have to be extra nice in stores. It never fails that whenever I look as bad as I can possibly look or I am sort of cranky because the store is out of something, that is precisely the time when someone one will recognize me and say: ‘I really like your show.’
+ - I love TV. I think I’d do a half-hour single-camera comedy.
+ - If I had a normal job and had been moving up, I’d be management level now.
+ - I have to introduce the part of me that feels like a winner to the part of me convinced I’m a loser, and see if they can’t agree to exist somewhere closer to the middle.
+ - I just don’t know that a TV show demands a movie ending.
+ - You want the story to end when it’s supposed to and not be squeezed for somebody’s financial gain.
+ - Well, it’s more of a sane life to be part of an ensemble! I find that the work can be more specific too and I have to really make sure I know where I am in the story because I’m not in every scene.
+ - I’ve made out more this season on a family-friendly show than ever in my actual life.
+ - Actors should ACT. Not sell perfume, or write cookbooks.
+ - While I very much wanted to be in a relationship, I didn’t want to be in the wrong one.
+ - It’s great to have an acting job in the age of Reality TV.
+ - I’ve dated people who I thought were going to be a big deal in my life, and I’ve also spent long periods by myself.
+ - When the creator of the show is gone, the actors end up being the people who have been there the longest.
+ - Some people think my father was a spy, because of working for that government agency in Vietnam, but he can’t find his car keys, much less keep a national secret.
+ - I’m nice, and I show up on time.
+ - The thing you must really do in television is bring yourself to everything you do – you can’t try to be anybody else.
+ - I didn’t grow up identifying with beauty. I grew up thinking I could be smart and funny – those are the things I got feedback on.
+ - None of my characters have really had jobs.
+ - The thing I don’t like on television is when somebody does something that makes absolutely no sense just for the shock of it.
+ - All TV shows are basically part of the same storyline.
+ - I take the no-doughnut pledge, and then I break it.
+ - The parts for women, you’re either like the quietly suffering wife or the wild girl.
+ - Personally, all I ever want to be wearing are jeans.
+
+46 quotes

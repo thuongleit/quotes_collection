@@ -1,0 +1,502 @@
+ - If you don’t find a way to make money while you sleep, you will work until you die.
+ - The difference between successful people and really successful people is that really successful people say no to almost everything.
+ - Honesty is a very expensive gift. Don't expect it from cheap people.
+ - Price is what you pay. Value is what you get.
+ - Risk comes from not knowing what you’re doing.
+ - Games are won by players who focus on the playing field – not by those whose eyes are glued to the scoreboard.
+ - Someone's sitting in the shade today because someone planted a tree a long time ago.
+ - It takes 20 years to build a reputation and five minutes to ruin it. If you think about that you’ll do things differently.
+ - Be fearful when others are greedy and greedy when others are fearful.
+ - You’ve gotta keep control of your time, and you can’t unless you say no. You can’t let people set your agenda in life.
+ - I always knew I was going to be rich. I don’t think I ever doubted it for a minute. 
+ - It’s better to hang out with people better than you. Pick out associates whose behavior is better than yours and you’ll drift in that direction.
+ - Opportunities come infrequently. When it rains gold, put out the bucket, not the thimble.
+ - The most important thing to do if you find yourself in a hole is to stop digging.
+ - You only have to do a very few things right in your life so long as you don’t do too many things wrong.
+ - Wall Street is the only place that people drive to in a Rolls Royce to take advice from people who ride the subway.
+ - You can't produce a baby in one month by getting nine women pregnant.
+ - In the business world, the rearview mirror is always clearer than the windshield.
+ - People always ask me where they should go to work, and I always tell them to go to work for whom they admire the most.
+ - There seems to be some perverse human characteristic that likes to make easy things difficult. 
+ - Accounting is the language of business.
+ - Rule No. 1: Never lose money. Rule No. 2: Never forget Rule No. 1.
+ - If you cannot control your emotions, you cannot control your money.
+ - Never ask a barber if you need a haircut.
+ - It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes.
+ - If you aren't thinking about owning a stock for ten years, don't even think about owning it for ten minutes.
+ - Investing in yourself is the best thing you can do. If you’ve got talents, no one can take them from you.
+ - Keep all your eggs in one basket, but watch that basket closely.
+ - Life is like a snowball. The important thing is finding wet snow and a really long hill. 
+ - If past history was all that is needed to play the game of money, the richest people would be librarians.
+ - The greatest investment a young person can make is in their own education, in their own mind. Because money comes and goes. Relationships come and go. But what you learn once stays with you forever.
+ - Always invest for the long term.
+ - We don’t have to be smarter than the rest. We have to be more disciplined than the rest.
+ - In the world of business, the people who are most successful are those who are doing what they love.
+ - A public-opinion poll is no substitute for thought.
+ - What the wise do in the beginning, fools do in the end.
+ - If you buy things you do not need, soon you will have to sell things you need.
+ - An investor should act as though he had a lifetime decision card with just twenty punches on it.
+ - Forecasts may tell you a great deal about the forecaster; they tell you nothing about the future.
+ - Never depend on single income. Make investment to create a second source.
+ - I am not a businessman, I am an artist.
+ - We all make mistakes. If you can’t make mistakes, you can’t make decisions. I’ve made a lot bigger mistakes myself.
+ - What we learn from history is that people don’t learn from history.
+ - I learned to go into business only with people whom I like, trust, and admire.
+ - Don’t pass up something that’s attractive today because you think you will find something way more attractive tomorrow.
+ - Somebody once said that in looking for people to hire, you look for three qualities: integrity, intelligence, and energy. And if you don’t have the first, the other two will kill you. You think about it; it’s true. If you hire somebody without integrity, you really want them to be dumb and lazy.
+ - If book knowledge made great investors, than the librarians would all be rich.
+ - The first rule is not to lose. The second rule is not to forget the first rule.
+ - Tell me who your heroes are and I’ll tell you how you’ll turn out to be.
+ - You never know who’s swimming naked until the tide goes out.
+ - Everybody’s got a different circle of competence. The important thing is not how big the circle is. The important thing is staying inside the circle.
+ - Focus alone is not enough; putting in the time to commit is also crucial to achieve success.
+ - I will tell you the secret to getting rich on Wall Street. You try to be greedy when others are fearful. And you try to be fearful when others are greedy.
+ - Chains of habit are too light to be felt until they are too heavy to be broken.
+ - The most dangerous distractions are the ones you love, but that don’t love you back.
+ - The best investment you can make is in yourself.
+ - I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will.
+ - There comes a time when you ought to start doing what you want. Take a job that you love. You will jump out of bed in the morning. I think you are out of your mind if you keep taking jobs that you don’t like because you think it will look good on your resume. Isn’t that a little like saving up sex for your old age?
+ - Should you find yourself in a chronically leaking boat, energy devoted to changing vessels is likely to be more productive than energy devoted to patching leaks.
+ - I made my first investment at age eleven. I was wasting my life up until then.
+ - I never try to predict the market.
+ - You don’t need to be a rocket scientist. Investing is not a game where the guy with the 160 IQ beats the guy with 130 IQ.
+ - What’s hot today isn’t likely to be hot tomorrow. The stock market reverts to fundamental returns over the long run. Don’t follow the herd.
+ - If you’re in the luckiest 1 percent of humanity, you owe it to the rest of humanity to think about the other 99 percent.
+ - Our goal is to find an outstanding business at a sensible price, not a mediocre business at a bargain price.
+ - A bull market is like sex. It feels best just before it ends.
+ - I do not like debt and do not like to invest in companies that have too much debt, particularly long-term debt. With long-term debt, increases in interest rates can drastically affect company profits and make future cash flows less predictable.
+ - If you’ve been playing poker for half an hour and you still don’t know who the patsy is, you’re the patsy.
+ - Investment philosophy is the clear understanding that by owning shares of stocks he owns businesses, not pieces of paper.
+ - Equities will do well over time – you just have to avoid getting excited when other people are getting excited.
+ - Do not put all your eggs in one basket.
+ - With each investment you make, you should have the courage and the conviction to place at least ten per cent of your net worth in that stock.
+ - I’d rather have a $10 million business making 15 per cent than a $100 million business making 5 per cent.
+ - With a wonderful business, you can figure out what will happen; you can’t figure out when it will happen. You don’t want to focus on when, you want to focus on what. If you’re right about what, you don’t have to worry about when.
+ - Mr. Market is kind of a drunken psycho. Some days he gets very enthused, some days he gets very depressed. And when he get really enthused you sell to him, and if he gets depressed, you buy from him. There’s no moral taint attached to that.
+ - A single year’s performance is of minor importance and, good or bad, should never be taken seriously.
+ - In looking for people to hire, you look for three qualities: integrity, intelligence, and energy. And if they don’t have the first, the other two will kill you.
+ - You shouldn’t own common stocks if a 50 per cent decrease in their value in a short period of time would cause you acute distress.
+ - There are all kinds of businesses that Charlie and I don’t understand, but that doesn’t cause us to stay up at night. It just means we go on to the next one, and that’s what the individual investor should do.
+ - Gold gets dug out of the ground in Africa, or someplace. Then we melt it down, dig another hole, bury it again and pay people to stand around guarding it. It has no utility. Anyone watching from Mars would be scratching their head.
+ - Nothing sedates rationality like large doses of effortless money.
+ - I find that the standard of living does not go up in proportion with the cost of living. The trick in life is to do things that are fun all the time.
+ - Over the years, a number of very smart people have learned the hard way that a long string of impressive numbers multiplied by a single zero always equals zero.
+ - You are lucky in life if you have the right heroes. I advise all of you, to the extent you can, to pick out a few heroes.
+ - When you combine ignorance and leverage, you get some pretty interesting results.
+ - If at first you do succeed, quit trying on investing.
+ - One’s objective should be to get it right, get it quick, get it out and get it over. Your problem won’t improve with age.
+ - Take the probability of loss times the amount of possible loss from the probability of gain times the amount of possible gain. That is what we’re trying to do. It’s imperfect, but that’s what it’s all about.
+ - No formula in finance tells you that the moat is 28 feet wide and 16 feet deep. That’s what drives the academics crazy. They can compute standard deviations and betas, but they can’t understand moats.
+ - We have usually made our best purchases when apprehensions about some macro event were at a peak. Fear is the foe of the faddist, but the friend of the fundamentalist.
+ - In the insurance business, there is no statute of limitation on stupidity.
+ - We always live in an uncertain world. What is certain is that the United States will go forward over time.
+ - I would say that life at 84, I am having as much fun as I’ve ever had in my life. I mean I get to do what I love every day with the people I love-and it just doesn’t get any better than that.
+ - In our view, derivatives are financial weapons of mass destruction carrying dangers that, while latent, are potentially lethal.
+ - If knowing history made you rich, librarians would be billionaires.
+ - There’s class warfare, all right, but it’s my class, the rich class, that’s making war, and we’re winning.
+ - We do not view the company itself as the ultimate owner of our business assets but instead view the company as a conduit through which our shareholders own assets.
+ - In a difficult business, no sooner is one problem solved than another surfaces – never is there just one cockroach in the kitchen.
+ - I could end the deficit in five minutes. You just pass a law that says that any time there’s a deficit of more than three percent of GDP, all sitting members of Congress are ineligible for re-election.
+ - Either they’re trying to con you or they’re trying to con themselves.
+ - The Stock Market is designed to transfer money from the Active to the Patient.
+ - Invest in as much of yourself as you can, you are your own biggest asset by far.
+ - Read 500 pages every day. That’s how knowledge works. It builds up like compound interest.
+ - Larger sums may be an advantage at some cases and a disadvantage at others.
+ - The key to success is emotional stability.
+ - Earnings can be pliable as putty when a charlatan heads the company reporting them.
+ - Take the high road; it’s far less crowded.
+ - Successful Investing takes time, discipline and patience. No matter how great the talent or effort, some things just take time: You can’t produce a baby in one month by getting nine women pregnant.
+ - The secret to happiness is having low expectations.
+ - If you want to soar like an eagle in life, you can’t be flocking with the turkeys.
+ - We’ve used up a lot of bullets. And we talk about stimulus. But the truth is, we’re running a federal deficit that’s 9 percent of GDP. That is stimulative as all get out. It’s more stimulative than any policy we’ve followed since World War II.
+ - Nevertheless, as circumstances presently appear, I feel substantially greater size is more likely to harm future results than to help them. This might not be true for my own personal results, but it is likely to be true for your results.
+ - Intensity is the price of excellence.
+ - The Noah rule: Predicting rain doesn’t count; building arks does.
+ - I insist on a lot of time being spent, almost every day, to just sit and think. That is very uncommon in American business. I read and think. So I do more reading and thinking, and make less impulse decisions than most people in business. I do it because I like this kind of life.
+ - Investing is simple, but not easy.
+ - You can’t make a good deal with a bad person.
+ - Trust is like the air we breathe – when it’s present, nobody really notices; when it’s absent, everybody notices.
+ - The rich invest in time, the poor invest in money.
+ - They say the chains of habit are too light to be felt until they are too heavy to be broken. The chains you put around yourself now have enormous consequences as you go through life.
+ - Never test the depth of river with both the feet.
+ - Only when the tide goes out do you discover who’s been swimming naked.
+ - Never depend on a single source of income.
+ - If you lose money for the firm, I will be forgiving. If you lose reputation, I will be ruthless.
+ - Failure comes from ego, greed, envy, fear, imitation. I have success not because I am smart, but because I am rational.
+ - Money is not everything. Make sure you earn a lot before speaking such nonsense.
+ - Very successful people say no to almost everything.
+ - Investing requires qualities of temperament way more than it requires qualities of intellect.
+ - The wise man once said invest young.
+ - Cash combined with courage in a time of crisis is priceless.
+ - Investment must be rational; if you can’t understand it, don’t do it.
+ - We enjoy the process far more than the proceeds.
+ - It’s much easier to stay out of trouble now than to get out of trouble later.
+ - If you can’t communicate and talk to other people and get across your ideas, you’re giving up your potential.
+ - The greatest Enemies of the Equity investor are Expenses and Emotions.
+ - If you can’t read the scoreboard. You don’t know the score. If you don’t know the score, you can’t tell the winners from the losers.
+ - Whatever you like to do, make it a hobby and whatever the world likes to do, make it a business.
+ - It is not necessary to do extraordinary things to get extraordinary results.
+ - Taking jobs to build up your resume is the same as saving up sex for old age.
+ - Diversification is protection against ignorance. It makes little sense if you know what you are doing.
+ - It’s far better to buy a wonderful company at a fair price than a fair company at a wonderful price.
+ - My favorite holding period is forever.
+ - Diversification may preserve wealth, but concentration builds wealth.
+ - Time is your friend, impulse is your enemy. Take advantage of compound interest and don’t be captivated by the siren song of the market.
+ - What the human being is best at doing is interpreting all new information so that their prior conclusions remain intact.
+ - Energy deregulation will be the largest transfer of wealth in history.
+ - Derivatives are financial weapons of mass destruction.
+ - Never invest in a business you can’t understand.
+ - I don’t look to jump over 7-foot bars: I look around for 1-foot bars that I can step over.
+ - It is more important to say “no” to an opportunity, than to say “yes”.
+ - Making money isn’t the backbone of our guiding purpose; making money is the by-product of our guiding purpose. If you’re doing something you love, you’re more likely to put your all into it, and that generally equates to making money.
+ - We don’t read other people’s opinions. We want to get the facts, and then think.
+ - Things you like to do should be a hobby of yours, but things the world does should be a business of yours.
+ - Asking for financial advice from a financial planner is like asking a barber if you need a hair cut.
+ - A low-cost index fund is the most sensible equity investment for the great majority of investors. My mentor, Ben Graham, took this position many years ago, and everything I have seen since convinces me of its truth.
+ - It’s nice to have a lot of money, but you know, you don’t want to keep it around forever. I prefer buying things. Otherwise, it’s a little like saving sex for your old age.
+ - Enjoy your work and work for whom you admire.
+ - There’s no use running if you’re on the wrong road.
+ - Cultivate curiosity and strive to become a little wiser every day.
+ - People will always try to stop you from doing the right thing if it is unconventional.
+ - By periodically investing in an index fund, the know-nothing investors can actually outperform most investment professionals.
+ - Only when you combine sound intellect with emotional discipline do you get rational behavior.
+ - My wealth has come from a combination of living in America, some lucky genes, and compound interest.
+ - Growth and value investing are joined at the hip.
+ - Beware of geeks bearing formulas.
+ - Do what you would do for free, having passion for what you do is the most important thing.
+ - Look at market fluctuations as your friend rather than your enemy; profit from folly rather than participate in it.
+ - I really like my life. I’ve arranged my life so that I can do what I want.
+ - The stock market is a no-called-strike game. You don’t have to swing at everything – you can wait for your pitch.
+ - Of the billionaires I have known, money just brings out the basic traits in them. If they were jerks before they had money, they are simply jerks with a billion dollars.
+ - Exercise humility and restraint.
+ - No matter how great the talent or efforts, some things just take time.
+ - I measure success by how many people love me. And the best way to be loved is to be lo veable.
+ - Time is the friend of the wonderful company, the enemy of the mediocre.
+ - Like most trends, at the beginning it’s driven by fundamentals, at some point speculation takes over. What the wise man does in the beginning, the fool does in the end.
+ - The fact that people will be full of greed, fear, or folly is predictable. The sequence is not predictable.
+ - When investing, pessimism is your friend, euphoria the enemy.
+ - What’s nice about investing is you don’t have to swing at every pitch.
+ - When people tell me they’ve learned from experience, I tell them the trick is to learn from other people’s experience.
+ - The big question about how people behave is whether they’ve got an Inner Scorecard or an Outer Scorecard. It helps if you can be satisfied with an Inner Scorecard.
+ - The best thing I did was choose the right heroes.
+ - You don’t need to have extraordinary effort to achieve extraordinary results. You just need to do the ordinary, everyday things exceptionally well.
+ - Interest rates are to asset prices what gravity is to the apple. When there are low interest rates, there is a very low gravitational pull on asset prices.
+ - I have three boxes on my desk: In, Out, and Too Hard.
+ - You have to turn over a lot of rocks to find those little anomalies. You have to find the companies that are off the map – way off the map.
+ - A great investment opportunity occurs when a marvelous business encounters a one-time huge, but solvable problem.
+ - The future is never clear; you pay a very high price in the stock market for a cheery consensus. Uncertainty actually is the friend of the buyer of long-term values.
+ - First come the innovators, then come the imitators, then come the idiots.
+ - A prediction about the direction of the stock market tells you nothing about where stocks are headed, but a whole lot about the person doing the predicting.
+ - Focus on return on equity, not earnings per share.
+ - A contrarian approach is just as foolish as a follow-the-crowd strategy. What’s required is thinking rather than polling.
+ - Managers and investors alike must understand that accounting numbers are the beginning, not the end, of business valuation.
+ - If you invested in a very low cost index fund – where you don’t put the money in at one time, but average in over 10 years -you’ll do better than 90% of people who start investing at the same time.
+ - When you get to my age, you’ll measure your success in life by how many of the people you want to have love you actually do love you. That’s the ultimate test of how you’ve lived your life.
+ - Never count on making a good sale. Have the purchase price be so attractive that even a mediocre sale gives good results.
+ - Investing is forgoing consumption now in order to have the ability to consume more at a later date.
+ - Investing is laying out money now to get more money back in the future.
+ - The reaction of weak management to weak operations is often weak accounting.
+ - The plan itself is opportunism. There is no plan before that.
+ - It’s never paid to bet against America. We come through things, but its not always a smooth ride.
+ - Outstanding long-term results are produced primarily by avoiding dumb decisions, rather than by making brilliant ones.
+ - I read annual reports of the company I’m looking at and I read the annual reports of the competitors – that is the main source of material.
+ - I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years.
+ - My father was the best person i’ve ever known.
+ - Writing a check separates a commitment from a conversation.
+ - Many stock options in the corporate world have worked in exactly that fashion: they have gained in value simply because management retained earnings, not because it did well with the capital in its hands.
+ - I’ve seen more people fail because of liquor and leverage – leverage being borrowed money. You really don’t need leverage in this world much. If you’re smart, you’re going to make a lot of money without borrowing.
+ - Benign neglect, bordering on sloth, remains the hallmark of our investment process.
+ - You pay a very high price in the stock market for a cheery consensus.
+ - The most important thing in terms of your circle of competence is not how large the area of it is, but how well you’ve defined the perimeter.
+ - Whether we’re talking about socks or stocks, I like buying quality merchandise when it is marked down.
+ - Focus on your customers and lead your people as though their lives depend on your success.
+ - Other guys read Playboy. I read annual reports.
+ - The dumbest reason in the world to buy a stock is because it’s going up.
+ - I checked the actuarial tables, and the lowest death rate is among six-year-olds. So I decided to eat like a six-year-old.
+ - Most business mistakes are irreversible setbacks, but you get another chance. There are two things in life that you don’t get another chance at – marrying the wrong person and what you do with your children.
+ - Activity is the enemy of investment returns.
+ - A diamond cannot be polished without friction, nor a person perfected without trials. Someone is enjoying shade today because someone planted a tree a long time ago.
+ - Uncertainty is the friend of the buyer of long term values.
+ - Never give up searching for the job that you’re passionate about.
+ - There are three kinds of people: 1. Innovators. 2. Imitators. 3. Idiots.
+ - In a commodity business, it’s very hard to be smarter than your dumbest competitor.
+ - It’s never paid to bet against America.
+ - When it’s raining gold, reach for a bucket, not a thimble.
+ - Anything can happen anytime in markets. And no advisor, economist, or TV commentator-and definitely not Charlie nor I-can tell you when chaos will occur. Market forecasters will fill your ear but will never fill your wallet.
+ - Only buy something that you’d be perfectly happy to hold if the market shut down for 10 years.
+ - Valuing a business is part art and part science.
+ - Mr. Market is your servant, not your guide.
+ - Well, it may be all right in practice, but it will never work in theory.
+ - The less prudence with which others conduct their affairs, the greater the prudence with which we should conduct our own affairs.
+ - If we have a strength, it is in recognizing when we are operating well within our circle of competence and when we are approaching the perimeter.
+ - The investor of today does not profit from yesterday’s growth.
+ - Great investment opportunities come around when excellent companies are surrounded by unusual circumstances that cause the stock to be misappraised.
+ - Long ago, Ben Graham taught me that.
+ - Investors should be skeptical of history-based models. Constructed by a nerdy-sounding priesthood using esoteric terms such as beta, gamma, sigma and the like, these models tend to look impressive. Too often, though, investors forget to examine the assumptions behind the models. Beware of geeks bearing formulas. 
+ - The most important quality for an investor is temperament, not intellect.
+ - You should invest in a business that even a fool can run, because someday a fool will.
+ - The advice “you never go broke taking a profit” is foolish.
+ - We don’t get paid for being busy, we get paid for being right.
+ - If you want to shoot rare, fast-moving elephants, you should always carry a loaded gun.
+ - Never risk what you have and need for what we don’t have and don’t need.
+ - Buy stocks like you buy your groceries, not like you buy your perfume.
+ - Take the job you would take if you were independently wealthy. You’re going to do well at it.
+ - Risk is a part of God’s game, alike for men and nations.
+ - If you aren’t willing to own a stock for ten years, don’t even think about owning it for ten minutes. Put together a portfolio of companies whose aggregate earnings march upward over the years, and so also will the portfolio’s market value.
+ - My idea of a group decision is to look in the mirror.
+ - An investor will succeed by coupling good business judgment with an ability to insulate his thoughts and behavior from the super-contagious emotions that swirl about the marketplace.
+ - That which is not worth doing at all is not worth doing well.
+ - Never be afraid to ask for too much when selling or offer too little when buying.
+ - Never do anything in life if you would be ashamed of seeing it printed on the front page of your hometown newspaper for your friends and family to see.
+ - Investment decision should be made on the basis of the most probable compounding of after-tax net worth with minimum risk.
+ - Knowing the edge of your competency is important. If you think you know more than you do, you will get in trouble.
+ - The fundamental basis of above-average performance in the long run is sustainable competitive advantage.
+ - Banking is very good business if you don’t do anything dumb.
+ - The best education you can get is investing in yourself, and that doesn’t mean college or university.
+ - The one piece of advice I can give you is, do what turns you on. Do something that if you had all the money in the world, you’d still be doing it. You’ve got to have a reason to jump out of bed in the morning.
+ - The ideal business is one that earns very high returns on capital and that keeps using lots of capital at those high returns. That becomes a compounding machine.
+ - The best asset is your own self. You can become to an enormous degree the person you want to be.
+ - How do you beat Bobby Fischer? You play him at any game but chess. I try to stay in games where I have an edge.
+ - Always associate yourself with people who are better than you.
+ - Look for companies with high profit margins.
+ - If horses had controlled investment decisions, there would have been no auto industry.
+ - I can’t promise results, but I can promise a common destiny.
+ - Buy a business, don’t rent stocks.
+ - My job is essentially just corralling more and more and more facts and information, and occasionally seeing whether that leads to some action.
+ - The real fortunes in this country have been made by people who have been right about the business they invested in, and not right about the timing of the stock market.
+ - When asked how he became so successful in investing, Buffett answered: ’we read hundreds and hundreds of annual reports every year.
+ - Read Ben Graham and Phil Fisher read annual reports, but don’t do equations with Greek letters in them.
+ - Much success can be attributed to inactivity. Most investors cannot resist the temptation to constantly buy and sell.
+ - The most common cause of low prices is pessimism – sometimes pervasive, sometimes specific to a company or industry. We want to do business in such an environment, not because we like pessimism but because we like the prices it produces.
+ - Investment ideas, like women are often more exciting than punctual.
+ - Confidence in markets and in institutions, it’s a lot like oxygen. When you have it, you don’t even think about it. It’s indispensable. You can go years without thinking about it. When it’s gone for five minutes, it’s the only thing to think about.
+ - If a business does well, the stock eventually follows.
+ - Knowing what to leave out is just as important as knowing what to focus on.
+ - Every company that has an economist working for him has one employee too many.
+ - Most people get interested in stocks when everyone else is. The time to get interested is when no one else is. You can’t buy what is popular and do well.
+ - Your premium brand had better be delivering something special, or it’s not going to get the business.
+ - Never lie under any circumstances.
+ - If you want your business to survive for 100 years, you’ve got to make it through every single day for 100 years. It’s not enough to do it 99.9% of the time.
+ - Let blockheads read what blockheads wrote.
+ - Do not take yearly results too seriously. Instead, focus on four or five-year averages.
+ - The value of a business is the cash it’s going to produce in the future.
+ - There is no perfect mathematical formula for pricing a business.
+ - If, when making a stock investment, you’re not considering holding it at least ten years, don’t waste more than ten minutes considering it.
+ - You will be right, over the course of many transactions, if your hypotheses are correct, your facts are correct, and your reasoning is correct. True conservatism is only possible through knowledge and reason.
+ - I am a better investor because I am a businessman, and a better businessman because I am no investor.
+ - I always invest in companies an idiot could run, because one day one will.
+ - If you don’t know the Jewelry, know the Jeweller.
+ - Working with people who cause your stomach to churn seems much like marrying for money – probably a bad idea under any circumstances, but absolute madness if you are already rich.
+ - Having a large amount of leverage is like driving a car with a dagger on the steering wheel pointed at your heart. If you do that, you will be a better driver. There will be fewer accidents but when they happen, they will be fatal.
+ - The most important quality for an investor is temperament, not intellect. You need a temperament that neither derives great pleasure from being with the crowd or against the crowd.
+ - Bad terminology is the enemy of good thinking.
+ - I like to go for cinches. I like to shoot fish in a barrel. But I like to do it after the water has run out.
+ - We have long felt that the only value of stock forecasters is to make fortune-tellers look good.
+ - Well, I think the biggest mistake is not learning the habits of saving properly early. Because saving is a habit. And then, trying to get rich quick. It’s pretty easy to get well-to-do slowly. But it’s not easy to get rich quick.
+ - We can afford to lose money – even a lot of money. But we can’t afford to lose reputation – even a shred of reputation.
+ - In investing, just as in baseball, to put runs on the scoreboard, one must watch the playing field, not the scoreboard.
+ - Money will always flow toward opportunity, and there is an abundance of that in America.
+ - Inactivity strikes us as intelligent behavior.
+ - What could be more advantageous in an intellectual contest – whether it be chess, bridge, or stock selection – than to have opponents who have been taught that thinking is a waste of energy?
+ - We do not have, nor have had, and never will have an opinion about where the stock market, interest rates, or business activity will be a year from now.
+ - Too often, a vast collection of possessions ends up possessing its owner. The asset I most value, aside from health, is interesting, diverse, and long-standing friends.
+ - When a management with a reputation for brilliance tackles a business with a reputation for bad economics, it is the reputation of the business that remains intact.
+ - Paradoxically, when ‘dumb’ money acknowledges its limitations, it ceases to be dumb.
+ - Investors should remember that excitement and expenses are their enemies.
+ - I have a house that I bought 55 years ago. It’s warm in the winter; it’s cool in the summer. It has everything I wanted, plus it has all kinds of good memories. Like my kids, I have good thoughts about that. I can’t imagine living any better.
+ - Anything can happen in stock markets and you ought to conduct your affairs so that if the most extraordinary events happen, that you’re still around to play the next day.
+ - I’ll tell you why I like the cigarette business. It cost a penny to make. Sell it for a dollar. It’s addictive. And there’s a fantastic brand loyalty.
+ - We also believe candour benefits us as managers. The CEO who misleads often in public eventually misleads himself in private.
+ - I buy expensive suits. They just look cheap on me.
+ - Remember that the stock market is manic-depressive.
+ - The critical investment factor is determining the intrinsic value of a business and paying a fair or bargain price.
+ - The rich are always going to say that, you know, just give us more money and we’ll go out and spend more and then it will all trickle down to the rest of you. But that has not worked the last 10 years, and I hope the American public is catching on.
+ - A CEO’s behavior has a huge impact on managers down the line.
+ - Shares are not mere pieces of paper. They represent part ownership of a business. So, when contemplating an investment, think like a prospective owner.
+ - Possessing a powerful worldwide brand is essential for sustained success.
+ - I know what I want to do, and it makes sense to get going.
+ - Do what you love and work for whom you admire the most, and you’ve given yourself the best chance in life you can.
+ - The obligation of a society as prosperous as ours is to figure out how nobody gets left too far behind.
+ - When forced to choose, I will not trade even a night’s sleep for the chance of extra profits.
+ - It takes 150 years to build an investment bank and only five minutes to convince you to sell me preferred stock in it at a 10% interest rate.
+ - Buy companies with strong histories of profitability and with a dominant business franchise.
+ - The greater the potential for reward in the value portfolio, the less risk there is.
+ - Fund consultants like to require style boxes such as “long-short,” “macro,” “international equities.” At Berkshire our only style box is “smart.”
+ - You are neither right nor wrong because the crowd disagrees with you.
+ - The thing to do is to keep your mind when the world around you is losing theirs.
+ - It is impossible to unsign a contract, so do all your thinking before you sign.
+ - I view derivatives as time bombs, both for the parties that deal in them and the economic system.
+ - The ability to say no is a tremendous advantage for an investor.
+ - To win, the first thing you have to do is not lose.
+ - Never get too hung up on mistakes.
+ - Good big decisions do not take time at all, if they do you are in trouble.
+ - It’s not that I want money. It’s the fun of making money and watching it grow.
+ - During inflation, Goodwill is the gift that keeps on giving.
+ - I have worked with investors for 60 years and I have yet to see anyone – not even when capital gains rates were 39.9 percent in 1976-77 – shy away from a sensible investment because of the tax rate on the potential gain.
+ - Returns decrease as motion increases.
+ - If you hit a hole in one every hole, you wouldn’t play golf for very long.
+ - An investor needs to do very few things right as long as he or she avoids big mistakes.
+ - I don’t have my diploma from the University of Nebraska hanging on my office wall, and I don’t have my diploma from Columbia up there either-but I do have my Dale Carnegie graduation certificate proudly displayed.
+ - If principles can become dated, they’re not principles.
+ - It’s class warfare; my class is winning, but they shouldn’t be.
+ - There is nothing like writing to force you to think and get your thoughts straight.
+ - I have a wonderful family. I have a job that I love and wonderful people who help me with it. It can’t get any better than that.
+ - A Company should be viewed as an unfolding movie, not as a still photograph.
+ - I make plenty of mistakes and I’ll make plenty more mistakes, too. That’s part of the game. You’ve just got to make sure that the right things overcome the wrong ones.
+ - Wide diversification is only required when investors do not understand what they are doing.
+ - The important thing is to keep playing, to play against weak opponents and to play for big stakes.
+ - My friends and I have been coddled long enough by a billionaire-friendly Congress.
+ - I’m happy when I can spend every day doing the things that I like to do. That’s my luxury.
+ - Failing conventionally is the route to go; as a group, lemmings may have a rotten image, but no individual lemming has ever received bad press.
+ - Stop trying to predict...
+ - We will only do with your money what we would do with our own.
+ - Continually challenge and be willing to amend your best loved ideas.
+ - You need a lot of curiosity for a long, long time.
+ - We make investment decisions based on our evaluation of the most profitable combination of probabilities.
+ - Buy into a company because you want to own it, not because you want the stock to go up.
+ - I knew a lot about what I did when I was 20. I had read a lot, and I aspired to learn everything I could about the subject.
+ - Cash, though, is to a business as oxygen is to an individual: never thought about when it is present, the only thing in mind when it is absent. When bills come due, only cash is legal tender. Don’t leave home without it.
+ - Would you rather be the world’s greatest lover, but have everyone think you’re the world’s worst lover? Or would you rather be the world’s worst lover but have everyone think you’re the world’s greatest lover? Now, that’s an interesting question.
+ - Turnarounds seldom turn.
+ - There are certain things that cannot be adequately explained to a virgin either by words or pictures.
+ - If you gave me $100 billion and said take away the soft drink leadership of Coca-Cola in the world, I’d give it back to you and say it can’t be done.
+ - You can’t stand to see your neighbor getting rich. You know you’re smarter than he is and he’s doing these things and he’s getting rich.
+ - A fool and his money are soon invited everywhere.
+ - When you build a bridge, you insist that it can carry 30,000 pounds, but you only drive 10,000-pound trucks across it. And that same principle works in investing.
+ - The key to life is to figure out who to be the batboy for.
+ - If you get to my age in life and nobody thinks well of you, I don’t care how big your bank account is, your life is a disaster.
+ - A very rich person should leave his kids enough to do anything, but not enough to do nothing.
+ - Wall Street makes its money on activity. You make your money on inactivity.
+ - An IPO is like a negotiated transaction – the seller chooses when to come public – and it’s unlikely to be a time that’s favourable to you.
+ - A home is one of the most important assets that most people will ever buy. Homes are also where memories are made and you want to work with someone you can trust.
+ - Fear is the foe of the faddist, but the friend of the fundamentalist.
+ - With enough insider information and a million dollars, you can go broke in a year.
+ - The business schools reward difficult complex behavior more than simple behavior, but simple behavior is more effective.
+ - If I subscribed to the efficient market theory I would still be delivering papers.
+ - Problems in a company are like cockroaches in the kitchen. You will never find just one.
+ - The trick is, when there is nothing to do, do nothing.
+ - We don’t get paid for activity, just for being right. As to how long we’ll wait, we’ll wait indefinitely.
+ - Sound investing can make you very wealthy if you’re not in too big a hurry.
+ - We continue to make more money when snoring than when active.
+ - While the poor and middle class fight for us in Afghanistan, and while most Americans struggle to make ends meet, we mega-rich continue to get our extraordinary tax breaks.
+ - In other words, the percentage change in book value in any given year is likely to be reasonably close to that year’s change in intrinsic value.
+ - I don’t measure my life by the money I’ve made. Other people might, but certainly don’t.
+ - When the brothel burns down, even the pretty girls have to run out.
+ - When I take a look at a company’s annual report, if I don’t understand it, they don’t want me to understand it.
+ - A pin lies in wait for every bubble and when the two eventually meet, a new wave of investors learns some very old lessons.
+ - Stop trying to predict the direction of the stock market, the economy or elections.
+ - Don’t settle for anything other than your passion – if you’re lucky enough to find it.
+ - I don’t read economic forecasts. I don’t read the funny papers.
+ - When bills come due, only cash is legal tender. Don’t leave home without it.
+ - In the long run managements stressing accounting appearance over economic substance usually achieve little of either.
+ - Success is having people love you that you want to have love you.
+ - Today people who hold cash equivalents feel comfortable. They shouldn’t. They have opted for a terrible long-term asset, one that pays virtually nothing and is certain to depreciate in value.
+ - You don’t need to be an expert in order to achieve satisfactory investment returns. But if you aren’t, you must recognize your limitations and follow a course certain to work reasonably well. Keep things simple and don’t swing for the fences.
+ - Managers thinking about accounting issues should never forget one of Abraham Lincoln’s favorite riddles: How many legs does a dog have, if you call a tail a leg? The answer: Four, because calling a tail a leg doesn’t make it a leg.
+ - The smartest side to take in a bidding war is the losing side.
+ - Unfortunately, the hangover may prove to be proportional to the binge.
+ - Of our 49 billion, we haven’t moved any to Bitcoin.
+ - I’m just lucky to have been in the right place at the right time. Another place, another time, I wouldn’t have been as successful. Society enabled me to make my money and my money should go to society.
+ - I tell college students, when you get to be my age you will be successful if the people who you hope to have love you, do love you.
+ - A pack of lemmings looks like a group of rugged individualists compared with Wall Street when it gets a concept in its teeth.
+ - Personally, I really hope I can treat everyone equally. I think I have done a pretty good job so far but I know I can do it better.
+ - You do not adequately protect yourself by being half awake when other are sleeping.
+ - Having first rate people on the team is more important than designing hierarchies and clarifying who reports to whom.
+ - Traditional wisdom is long on tradition and short on wisdom.
+ - For some reason people take their cues from price action rather than from values. Price is what you pay. Value is what you get.
+ - Is management candid with the shareholders?
+ - A hyperactive stock market is the pickpocket of enterprise.
+ - Buy a cross section of American industry, and if a cross section of American industry doesn’t work, certainly trying to pick the little beauties here and there isn’t going to work either.
+ - I wouldn’t mind going to jail if I had three cellmates who played bridge.
+ - Our leaders have asked for ‘shared sacrifice.’ But when they did the asking, they spared me. I checked with my mega-rich friends to learn what pain they were expecting. They, too, were left untouched.
+ - Investors should remember that excitement and expenses are their enemies. And if they insist on trying to time their participation in equities, they should try to be fearful when others are greedy and greedy only when others are fearful.
+ - Stocks of companies selling commodity-like products should come with a warning label: “Competition may prove hazardous to human wealth”.
+ - We intend to continue our practice of working only with people whom we like and admire. This policy not only maximizes our chances for good results, it also ensures us an extraordinarily good time.
+ - I’m the luckiest guy in the world in terms of what I do for a living. No one can tell me to do things I don’t believe in or things I think are stupid.
+ - It’s us fun being a gorse when the tractor comes along, or the blacksmith when the car comes along.
+ - Don’t risk what is important to you, to get what is not important to you.
+ - Risk can be greatly reduced by concentrating on only a few holdings.
+ - When people talk about cash being king, it’s not king if it just sits there and never does anything.
+ - Bull markets and Bear markets can obscure mathematical laws, they cannot repeal them.
+ - John Maynard Keynes essentially said, don’t try and figure out what the market is doing. Figure out a business you understand, and concentrate.
+ - It’s not debt per say that overwhelms an individual corporation or country. Rather it is a continuous increase in debt in relation to income that causes trouble.
+ - If I taught a class, on my final exam I would take an Internet company and ask, ‘How much is this company worth?’ Anyone who would answer, I would flunk.
+ - Our approach is very much profiting from lack of change rather than from change. With Wrigley chewing gum, it’s the lack of change that appeals to me. I don’t think it is going to be hurt by the Internet. That’s the kind of business I like.
+ - Our stay-put behavior reflects our view that the stock market serves as a relocation center at which money is moved from the active to the patient.
+ - I’m putting all my money in the Chinese toy market.
+ - I am not in the business of predicting general stock market of business fluctuations. If you think I can do this, or think it is essential to an investment program, you should not be in the partnership.
+ - As one of my older friends says, “Nostalgia just isn’t what it used to be.” Let’s take a stab at it, anyway.
+ - Calculate “owner earnings” to get a true reflection of value.
+ - Confidence is key. You’re not going to put your money – you’re not going to leave your money with me unless you’re confident I’m going to give it back to you.
+ - Cash never makes us happy, but it’s better to have the money burning a hole in Berkshire’s pocket than resting comfortably in someone else’s.
+ - If you are a professional and have confidence, then I would advocate lots of concentration.
+ - I put heavy weight on certainty. It’s not risky to buy securities at a fraction of what they’re worth.
+ - We believe that according the name ‘investors’ to institutions that trade actively is like calling someone who repeatedly engages in one-night stands a ‘romantic.’
+ - You do things when the opportunities come along. I’ve had periods in my life when I’ve had a bundle of ideas come along, and I’ve had long dry spells. If I get an idea next week, I’ll do something. If not, I won’t do a damn thing.
+ - We have embraced the 21st century by entering such cutting-edge industries as brick, carpet, insulation and paint. Try to control your excitement.
+ - Consciously paying more for a stock than its calculated value – in the hope that it can soon be sold for a still-higher price – should be labelled speculation.
+ - Emotional makeup is more important than technical skill.
+ - The market system rewards me outlandishly for what I do, but that doesn’t mean I’m any more deserving of a good life than a teacher or a doctor or someone who fights in Afghanistan.
+ - There is no substitute for a local newspaper that is doing its job.
+ - The nature of democracy is such that when there’s – there’ll be revulsion, obviously, towards – that’s never going to happen again.
+ - Intrinsic value can be defined simply: It is the discounted value of the cash that can be taken out of a business during its remaining life.
+ - Credit worthiness is like virginity, it can be preserved but not restored very easily, so it is crazy to play around with it.
+ - There’s nothing inappropriate about having debt in America. It’s what helped us grow over time. And it’s when debt gets out of control that you worry.
+ - I choose to work with every single person that I work with. That ends up being the most important factor. I don’t interact with people I don’t like or admire. That’s the key. It’s like marrying.
+ - SUPPOSE that an investor you admire and trust comes to you with an investment idea. This is a good one, he says enthusiastically. I’m in it, and I think you should be, too.
+ - Investing in a market where people believe in efficiency is like playing bridge with someone who has been told it doesn’t do any good to look at the cards.
+ - The smarter the journalists are, the better off society is. For to a degree, people read the press to inform themselves – and the better the teacher, the better the student body.
+ - We set no volume goals in our insurance business generally-and certainly not in reinsurance-as virtually any volume can be achieved if profitability standards are ignored.
+ - Market prices for stocks fluctuate at great amplitudes around intrinsic value but, over the long term, intrinsic value is virtually always reflected at some point in market price.
+ - We will reject interesting opportunities rather than over-leverage our balance sheet.
+ - Investors making purchases in an overheated market need to recognize that it may often take an extended period for the value of even an outstanding company to catch up with the price they paid.
+ - Good profits simply are not inconsistent with good behavior.
+ - The key to investing is not assessing how much an industry is going to affect society, or how much it will grow, but rather determining the competitive advantage of any given company and, above all, the durability of that advantage.
+ - We’re perfectly willing to trade away a big payoff for a certain payoff.
+ - The purpose of life is to be loved by as many people as possible among those you want to have love you.
+ - The Fed is the greatest hedge fund in history.
+ - In some corner of the world they are probably still holding regular meetings of the Flat Earth Society. We derive no comfort because important people, vocal people, or great numbers of people agree with us. Nor do we derive comfort if they don’t.
+ - When they get their ego involved, people do things they shouldn’t do.
+ - When you’re associating with the people that you love, doing what you love, it doesn’t get any better than that.
+ - It irritates the hell out of me but you can’t buy love.
+ - People always should know better. People don’t get – they don’t get smarter about things that get as basic as greed.
+ - You should look at stocks as small pieces of business.
+ - If we start deciding, based on guesses or emotions, whether we will or won’t participate in a business where we should have some long run edge, we’re in trouble.
+ - When we own portions of outstanding businesses with outstanding managements, our favorite holding period is forever.
+ - If the world couldn’t see your results, would you rather be thought of as the world’s greatest investor but in reality have the world’s worst record? Or be thought of as the world’s worst investor when you were actually the best?
+ - We’re still in a recession. We’re not gonna be out of it for a while, but we will get out.
+ - We will prosper or suffer in controlled investments in relation to the operating performances of our businesses – we will not attempt to profit by playing various games in the securities markets.
+ - Although we deal with probabilities and expectations, the actual results can deviate substantially from such expectations, particularly on a short-term basis.
+ - I look for businesses in which I think I can predict what they’re going to look like in ten to fifteen years time. Take Wrigley’s chewing gum. I don’t think the internet is going to change how people chew gum.
+ - Occasionally, a man must rise above principles.
+ - Ignore the stock market, ignore the economy, and buy a business you understand.
+ - If this is a war, my side has the nuclear bomb. We have K Street. We have Wall Street. Debbie doesn’t have anybody. I want a government that is responsive to the people who got the short straw in life.
+ - When we really sit back with a smile on our face is when we run into a situation we can understand, where the facts are ascertainable and clear, and the course of action obvious.
+ - A lot of great fortunes in the world have been made by owning a single wonderful business. If you understand the business, you don’t need to own very many of them.
+ - I sent one e-mail in my life. I sent it to Jeff Raikes at Microsoft, and it ended up in court in Minneapolis, so I am one for one.
+ - What you really want to do in investments is figure out what’s important and knowable. If it’s unimportant or unknowable you forget about it.
+ - In one way, I’m sympathetic to the institutional reluctance to face the music. I’d give a lot to mark my weight to ‘model’ rather than to ‘market.’
+ - I have no idea on timing. It’s easier to tell what will happen than when it will happen. I would say that what is going on in terms of trade policy is going to have very important consequences.
+ - The only way to be loved is to be loveable, which really irritates me.
+ - I have this complicated procedure I go through every morning, which is to look in the mirror and decide what I’m going to do. And I feel at that point, everybody’s had their say.
+ - Our approach is very much profiting from lack of change rather than from change.
+ - I spend twelve hours a week – a little over 10% of my waking hours – playing the game. Now I am trying to figure out how to get by on less sleep in order to fit in a few more hands.
+ - A newspaper that reduces its coverage of the news important to its community is certain to reduce its readership as well.
+ - You should invest like a Catholic marries: for life.
+ - As of 1992, in fact-though the picture would have improved since then-the money that had been made since the dawn of aviation by all of this country’s airline companies was zero. Absolutely zero.
+ - To be successful, you should concentrate on the world of companies, not arcane accounting mathematics.
+ - I believe the chance of any event causing Berkshire to experience financial problems is essentially zero. We will always be prepared for the thousand-year flood; in fact, if it occurswe will be selling life jackets to the unprepared.
+ - The .350 hitter expects, and also deserves, a big payoff for his performance – even if he plays for a cellar-dwelling team. And a .150 hitter should get no reward – even if he plays for a pennant winner.
+ - I want to be able to explain my mistakes. This means I do only the things I completely understand.
+ - It’s easy to identify many investment managers with great recent records. But past results, though important, do not suffice when prospective performance is being judged. How the record has been achieved is crucial...
+ - Does management resist the institutional imperative?
+ - I do know that when I am 60, I should be attempting to achieve different personal goals than those which had priority at age 20.
+ - He must never forget Charlie’s plea: Tell me where I’m going to die, so I’ll never go there.
+ - Truly conservative actions arise from intelligent hypotheses, correct facts and sound reasoning.
+ - I’ve made money over the years by buying into good companies, run by good people, at attractive prices. And I don’t try and make it out of buying into the market at one point and selling at another point.
+ - Unless your answers are clearly better, copy the answers of your betters.
+ - As far as you are concerned, the stock market does not exist. Ignore it.
+ - Making money isn’t the backbone of our guiding purpose; it is the by-product of our guiding purpose.
+ - If the reason for doing something is that everyone else is doing it, it’s not a good enough reason.
+
+500 quotes

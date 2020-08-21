@@ -1,0 +1,54 @@
+ - The search for truth is more precious than its possession.
+ - To look forward to pleasure is also a pleasure.
+ - Pure truth is for God alone.
+ - A heretic is a man who sees with his own eyes.
+ - Nature intended that woman should be her masterpiece.
+ - The more we see the more we must be able to imagine, and the more we imagine, the more we must think we see.
+ - It is not the truth that a man possesses, or believes that he possesses, but the earnest effort which he puts forward to reach the truth, which constitutes the worth of a man.
+ - Yesterday I lived, today I suffer, tomorrow I die; but I still think fondly, today and tomorrow, of yesterday.
+ - For the will and not the gift makes the giver.
+ - If some things don’t make you lose your sense of reason, then you have none to lose.
+ - A single grateful thought toward heaven is the most perfect prayer.
+ - For me the greatest beauty always lies in the greatest clarity.
+ - The real beggar is indeed the true and only king.
+ - Suspicion follows close on mistrust.
+ - Nothing under the sun is ever accidental.
+ - They make glorious shipwreck who are lost in seeking worlds.
+ - Pleasures, riches, honor and joy are sure to have care, disgrace, adversity and affliction in their train. There is no pleasure without pain, no joy without sorrow. O the folly of expecting lasting felicity in a vale of tears, or a paradise in a ruined world.
+ - Let us be lazy in everything, except in loving and drinking, except in being lazy.
+ - Ein einziger dankbarer Gedanke gen Himmel ist das vollkommenste Gebet. One single grateful thought raised to heaven is the most perfect prayer.
+ - He who doesn’t lose his wits over certain things has no wits to lose.
+ - Did the Almighty, holding in his right hand truth, and in his left hand search after truth, deign to proffer me the one I might prefer, in all humility, but without hesitation, I should request search after truth.
+ - Let the devil catch you but by a single hair, and you are his forever.
+ - Who cannot resolve upon a moment’s notice To live his own life, he forever lives A slave to others.
+ - Joy makes us giddy, dizzy.
+ - We moderns do not believe in demigods, but our smallest hero we expect to feel and act as a demigod.
+ - It is medicine, not poison, I offer you.
+ - Resist as much as thou wilt; heaven’s ways are heaven’s ways.
+ - What can the Creator see with greater pleasure than a happy creature?
+ - The most deadly fruit is borne by the hatred which one grafts on an extinguished friendship.
+ - It’s easier to swoon in pious dreams Than do good actions.
+ - How can such deep-imprinted images sleep in us at times, till a word, a sound, awake them?
+ - Would that we could at once paint with the eyes! In the long way from the eye through the arm to the pencil, how much is lost!
+ - Nothing under the sun is accidental, least of all that of which the intention is so clearly evident.
+ - With a clear sky, a bright sun, and a gentle breeze, you will have friends in plenty; but let fortune frown, and the firmament be overcast, and then your friends will prove like the strings of the lute, of which you will tighten ten before you find one that will bear the stretch and keep the pitch.
+ - The end-purpose of all art is enjoyment!
+ - The superstition in which we were brought up never loses its power over us, even after we understand it.
+ - It is not I who die, when I die, but my sin and misery.
+ - A blush is the sign which Nature hangs out to show where chastity and honor dwell.
+ - I know not whether there exists such a thing as a coin stamped with a pair of pinions; but I wish this were the device which monarchs put upon their dollars and ducats, to show that riches make to themselves wings, and fly away.
+ - What education is to the individual man, revelation is to the human race. Education is revelation coming to the individual man, and revelation is education that has come, and is still coming to the human race.
+ - When the heart dares to speak, it needs no preparation.
+ - The superstition in which we grew up, Though we may recognize it, does not lose Its power over us.-Not all are free Who make mock of their chains.
+ - The true vagrant is the only king above all comparison.
+ - To borrow scarce is better than to beg; As lending, lending upon interest, Scarce better is than stealing.
+ - It is not children only that one feeds with fairy tales.
+ - Well was it said by a man of sagacity that dancing was a sort of privileged and reputable folly, and that the best way to be convinced of this was to close the ears and judge of it by the eyes alone.
+ - Borrowing is not much better than begging.
+ - What education is to the individual, revelation is to the whole human race.
+ - If the advice of a fool for once happens to be good, it requires a wise man to carry it out.
+ - The gift of prayer is not always at our command.
+ - The searcher’s eye Not seldom finds more than he wished to find.
+ - The lion is ashamed, it’s true, when he hunts with the fox.
+
+52 quotes

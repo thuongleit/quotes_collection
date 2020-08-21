@@ -1,0 +1,72 @@
+ - The world’s population will multiply more rapidly than the available food supply.
+ - The power of population is indefinitely greater than the power in the earth to produce subsistence for man.
+ - Instead of recommending cleanliness to the poor, we should encourage contrary habits. In our towns we should make the streets narrower, crowd more people into the houses, and court the return of the plague.
+ - Man cannot live in the midst of plenty.
+ - The perpetual struggle for room and food.
+ - A feather will weigh down a scale when there is nothing in the opposite one.
+ - The superior power of population cannot be checked without producing misery or vice.
+ - Population, when unchecked, increases in a geometrical ratio. Subsistence increases only in an arithmetical ratio. A slight acquaintance with numbers will shew the immensity of the first power in comparison of the second.
+ - The natural inequality of the two powers of population and of production in the earth, and that great law of our nature which must constantly keep their efforts equal, form the great difficulty that to me appears insurmountable in the way to the perfectibility of society.
+ - The passion between the sexes has appeared in every age to be so nearly the same, that it may always be considered, in algebraic language as a given quantity.
+ - A great emigration necessarily implies unhappiness of some kind or other in the country that is deserted.
+ - Whether the law of marriage be instituted or not, the dictate of nature and virtue seems to be an early attachment to one woman.
+ - It has appeared that from the inevitable laws of our nature, some human beings must suffer from want. These are the unhappy persons who, in the great lottery of life, have drawn a blank.
+ - To prevent the recurrence of misery is, alas! beyond the power of man.
+ - The rich, by unfair combinations, contribute frequently to prolong a season of distress among the poor.
+ - Malthus married in 1804 and beat three children with his wife.
+ - Nature herself in times of great poverty or bad climatic conditions, as well as poor harvest, intervenes to restrict the increase of population of certain countries or races; this, to be sure, by a method as wise as it is ruthless.
+ - The most baleful mischiefs may be expected from the unmanly conduct of not daring to face truth because it is unpleasing.
+ - The prodigious waste of human life occasioned by this perpetual struggle for room and food, was more than supplied by the mighty power of population, acting, in some degree, unshackled, from the constant habit of emigration.
+ - The constant effort towards population, which is found even in the most vicious societies, increases the number of people before the means of subsistence are increased.
+ - Population, when unchecked, goes on doubling itself every 25 years or increases in a geometrical ratio.
+ - The ordeal of virtue is to resist all temptation to evil.
+ - Had population and food increased in the same ratio, it is probable that man might never have emerged from the savage state.
+ - Hard as it may appear in individual cases, dependent poverty ought to be held disgraceful.
+ - Evil exists in the world not to create despair but activity.
+ - It accords with the most liberal spirit of philosophy to suppose that not a stone can fall, or a plant rise, without the immediate agency of divine power.
+ - The finest minds seem to be formed rather by efforts at original thinking, by endeavours to form new combinations, and to discover new truths, than by passively receiving the impressions of other men’s ideas.
+ - If a country can only be rich by running a successful race for low wages, I should be disposed to say at once, perish such riches!
+ - Each pursues his own theory, little solicitous to correct or improve it by an attention to what is advanced by his opponents.
+ - The perpetual tendency of the race of man to increase beyond the means of subsistence is one of the general laws of animated nature, which we can have no reason to expect to change.
+ - The redundant population, necessarily occasioned by the prevalence of early marriages, must be repressed by occasional famines, and by the custom of exposing children, which, in times of distress, is probably more frequent than is ever acknowledged to Europeans.
+ - In 1860, sixty-three per cent of the couples married in Great Britain had families of four or more children; in 1925 only twenty per cent had more than four.
+ - The main peculiarity which distinguishes man from other animals is the means of his support-the power which he possesses of very greatly increasing these means.
+ - The histories of mankind are histories only of the higher classes.
+ - It is an acknowledged truth in philosophy that a just theory will always be confirmed by experiment.
+ - The immediate cause of the increase of population is the excess of the births above deaths; and the rate of increase, or the period of doubling, depends upon the proportion which the excess of the births above the deaths bears to the population.
+ - In prosperous times the mercantile classes often realize fortunes, which go far towards securing them against the future; but unfortunately the working classes, though they share in the general prosperity, do not share in it so largely as in the general adversity.
+ - Capitals accumulate faster than population.
+ - The love of independence is a sentiment that surely none would wish to see erased from the breast of man, though the parish law of England, it must be confessed, is a system of all others the most calculated gradually to weaken this sentiment, and in the end may eradicate it completely.
+ - The most successful supporters of tyranny are without doubt those general declaimers who attribute the distresses of the poor, and almost all evils to which society is subject, to human institutions and the iniquity of governments.
+ - The friend of the present order of things condemns all political speculations in the gross.
+ - I do not know that any writer has supposed that on this earth man will ultimately be able to live without food.
+ - To minds of a certain cast there is nothing so captivating as simplification and generalization.
+ - No move towards the extinction of the passion between the sexes has taken place in the five or six thousand years that the world has existed.
+ - Subsistence increases only in an arithmetical ratio.
+ - With regard to the duration of human life, there does not appear to have existed from the earliest ages of the world to the present moment the smallest permanent symptom or indication of increasing prolongation.
+ - A writer may tell me that he thinks man will ultimately become an ostrich. I cannot properly contradict him.
+ - In a state therefore of great equality and virtue, where pure and simple manners prevailed, the increase of the human species would evidently be much greater than any increase that has been hitherto known.
+ - The proposition of Mr. Ricardo, which states that a rise in the price of labour lowers the price of a large class of commodities, has undoubtedly a very paradoxical air; but it is, nevertheless, true, and the appearance of paradox would vanish, if it were stated more naturally and correctly.
+ - The most effectual encouragement to population is, the activity of industry, and the consequent multiplication of the national products.
+ - On the whole it may be observed, that the specific use of a body of unproductive consumers, is to give encouragement to wealth by maintaining such a balance between produce and consumption as will give the greatest exchangeable value to the results of the national industry.
+ - It has been said, and perhaps with truth, that the conclusions of Political Economy partake more of the certainty of the stricter sciences than those of most of the other branches of human knowledge.
+ - It is not the most pleasant employment to spend eight hours a day in a counting house.
+ - The doctrine of population has been conspicuously absent, not because I doubt in the least its truth and vast importance, but because it forms no part of the direct problem of economics.
+ - To remedy the frequent distresses of the common people, the poor laws of England have been instituted; but it is to be feared that though they may have alleviated a little the intensity of individual misfortune, they have spread the general evil over a much larger surface.
+ - The great and unlooked for discoveries that have taken place of late years have all concurred to lead many men into the opinion that we were touching on a period big with the most important changes.
+ - It is a mere futile process to exchange one set of commodities for another, if the parties; after this new distribution of goods has taken place, are not better off than they were before.
+ - It may at first appear strange, but I believe it is true, that I cannot by means of money raise a poor man and enable him to live much better than he did before, without proportionably depressing others in the same class.
+ - The transfer of three shillings and sixpence a day to every labourer would not increase the quantity of meat in the country. There is not at present enough for all to have a decent share. What would then be the consequence?
+ - If I saw a glass of wine repeatedly presented to a man, and he took no notice of it, I should be apt to think that he was blind or uncivil. A juster philosophy might teach me rather to think that my eyes deceived me, and that the offer was not really what I conceived it to be.
+ - The first business of philosophy is to account for things as they are; and till our theories will do this, they ought not to be the ground of any practical conclusion.
+ - Thirty or forty proprietors, with incomes answering to between one thousand and five thousand a year, would create a much more effectual demand for the necessaries, conveniences, and luxuries of life, than a single proprietor possessing a hundred thousand a year.
+ - No limits whatever are placed to the productions of the earth; they may increase forever.
+ - Population trends have always provoked doom-fraught oracles, because their popular interpreters suppose that every new series will be infinitely sustained; yet, beyond the short term, expectations based on them are never fulfilled.
+ - I feel no doubt whatever that the parish laws of England have contributed to raise the price of provisions and to lower the real price of labour.
+ - It is also very important to observe, that menial servants are absolutely necessary to make the resources of the higher and middle classes of society efficient in the demand for material products.
+ - The germs of existence contained in this spot of earth, with ample food, and ample room to expand in, would fill millions of worlds in the course of a few thousand years.
+ - In general it may be said that demand is quite as necessary to the increase of capital as the increase of capital is to demand.
+ - The science of political economy is essentially practical, and applicable to the common business of human life. There are few branches of human knowledge where false views may do more harm, or just views more good.
+ - The moon is not kept in her orbit round the earth, nor the earth in her orbit round the sun, by a force that varies merely in the inverse ratio of the squares of the distances.
+
+70 quotes

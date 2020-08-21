@@ -1,0 +1,122 @@
+ - Those who have the ability to take action have the responsibility to take action.
+ - Some things are true whether you believe in them or not.
+ - Don’t lose the best thing in your life just because you are not sure.
+ - There are over 550 million firearms in worldwide circulation. That’s one firearm for every twelve people on the planet. The only question is, how do we arm the other 11?
+ - I am not a demon. I am a lizard, a shark, a heat-seeking panther. I want to be Bob Denver on acid playing the accordion.
+ - Passion is very important to me. If you stop enjoying things, you’ve got to look at it, because it can lead to all kinds of depressing scenarios.
+ - When I act, I hear it like music. In my head, I hear the dialogue like music.
+ - I’m not a trained actor. I’m someone who is autodidactic and learned on my own.
+ - I’m always fearful of something happening to people I love. That doesn’t go away.
+ - When I work, I really try to get absorbed in the character. Unless I want to do something playful with the camera, I’m not too worried about where the camera is or positions.
+ - I knew I wanted to be an actor when I was very young. I guess I was about 6 years old at the time, and I was fascinated by television. I started having waking fantasies where I was in a movie and there were crane shots of me during a scene.
+ - I cry a lot. My emotions are very close to my surface. I don’t want to hold anything in so it festers and turns into pus – a pustule of emotion that explodes into a festering cesspool of depression.
+ - I’m going to steal the Declaration of Independence.
+ - I don’t know if my wife left me because of my drinking or I started drinking ’cause my wife left me.
+ - Nobody ever thinks clearly at the airport.
+ - I find it inspiring and I always think when I’m working on something new, whether it’s a new kind of character or a new kind of story or new kind of camera, it gets my creative wheels spinning.
+ - I think I jump around more when I’m alone.
+ - I love it all. I don’t want to go through my career with one hand tied behind my back. I love making kids happy. I love the midnight audience. I like intense dramas. And I like high-adrenaline action films.
+ - Just because you’re a man doesn’t mean that you can’t raise your kid. I think that families should stay together, but if you are a single father, don’t give up no matter what they say.
+ - If you’re really special, meaning you’re doing something unique and original, it could scare people.
+ - I don’t like it when people on the street say “smile” or “cheer up.” It’s a real cheap line. I’m feeling good. I’m feeling real grateful for everything. It’s a solid time in my life. When people say I look sad, they’re wrong.
+ - My father used to say to me, “It doesn’t matter what the profession is, but if they’re the best in their field, it will always be fascinating to watch.” And I said, “Really, dad? Even like someone who makes pencils?” “Even someone who makes pencils, it will be fascinating to watch.”
+ - One of the first signs of being depressed is that you lose interest in things. That’s why I think it is important to stay passionate.
+ - Halloween has always been fascinating to me from a very young age. I think any actor would be fascinated by Halloween because it’s one of the only holidays that advocates dressing up in makeup and costumes and transforming oneself.
+ - I always say, “Well if you think it’s over the top, then tell me where the top is first. I don’t think anyone can, but if you can tell me where the top is, then I’ll tell you whether or not I’m over it.”
+ - I went to New Orleans for the first time for Wild at Heart, and I kept going back to make more movies there. I’ve become very close to the city and part of me does feel like a New Orleanian.
+ - It may come as a surprise to people, but I’m actually quite boring and normal. What do I do? I read books. I drive my kid to school. I have lunch with my wife. I pick my kid up from school. I go home.
+ - If you have people that totally support you and have your back, I feel like you have all the confidence in the world, and you believe that you can do things that most people can’t achieve. I feel that’s really important.
+ - I think anything that opens my mind and triggers my imagination I’m reading. I like to read science fiction and imagine the character. Anything that keeps my imagination flowing.
+ - God bless the popcorn film. Especially movies where you can take the kids, because I remember looking forward to seeing these movies with my parents, and if I can give that back, I’m gonna do it.
+ - Peter Fonda is the reason I became a motorcyclist. I saw Easy Rider and I bought a motorcycle the next day, and I rode it all the way from LA to San Francisco.
+ - The most meaningful movies I can make are the ones where parents can share them with their children and children can look forward to sharing them with their parents, a ritual if you will, where they get to spend time together and the kids are smiling.
+ - I’m always going to judge somebody on their work ethic, and whether or not they made me feel something, or whether or not I felt they did a good job. To me, it’s important to try to block anything personal out and look at the performance, in any field.
+ - If you get a chance, whenever you’re traveling, do go to the local boutique comic book shop and don’t buy your comics online ’cause those guys are going to go extinct, in a minute here, and we want to be able to have those experiences with our kids.
+ - I always add a year to myself, so I’m prepared for my next birthday. So when I was 39, I was already 40.
+ - I do understand sometimes when actors say there’s no one to talk to, or you can’t react to, there’s truth in that, but for me, I’ve always enjoyed green screen, and blue screen.
+ - I got into film acting because I wanted to be James Dean. We lost him at a very young age – he was only 24 – but I’m in my fifthies, so there’s only so many times you can act like James Dean. I had to find new ways of expressing myself that kept me fascinated with film performance.
+ - I’m legally unable to ride motorcycles. It’s a contract that I have with my life insurance, so whenever I get a chance to do a movie and ride a bike I go for it.
+ - I like to work with young people because young people haven’t had their dreams kicked out of them yet. They’re full of confidence and imagination and vision and when they score, that all get’s empowered.
+ - The fact that ‘Astro Boy’ appealed to me as a boy in America was proof that the story and character transcend cultural stereotypes.
+ - The best characters are the ones that somehow manage to be both attractive and repulsive at the same time. If you do that, you’re at the center of the universe – if you can find characters who are more ambiguous and can raise more questions than answers.
+ - I will promise you that if I can give you two good scenes – which is what I always try to do in every movie – then I feel like I’m doing my job.
+ - I just try to keep it fresh. I try to keep it interesting. The truth is my roots are independently spirited dramas that are small, and I will always go back to that well, because that’s where I broke out of. But I’m going to keep doing as many different movies as I possibly can.
+ - Tattoos to me are the outward symbol of the inward change within my soul.
+ - I wasn’t any good at romnace. I was a total nerd. My thing is, I was just too romantic. I was the romantic goofball. I wasn’t cynical enough or harsh enough. I cared too much, so I always made a fool out of myself.
+ - My definition of a father is someone who empowers their children.
+ - Someone like Vincent Price or somebody like Christopher Lee, they never won an award, and it doesn’t matter. They’re cool.
+ - People are losing jobs, people need to be entertained, and I want to make movies that parents and children can look forward to seeing, that can become a kind of family ritual.
+ - I came out of independent film, that’s my roots. I used my independent film as a laboratory, and used what I could discover in that laboratory.
+ - I like movies where you feel like you’re going into another world, and no matter how many times you watch it, you’re gonna see something new in that world. That level of detail really inspires me.
+ - The end of the world is on people’s minds. We have the power to destroy or save ourselves, but the question is what do you do with that responsibility.
+ - When you have 400 people watching you making a movie, it doesn’t go where you want it to go. It’s a lot of pressure.
+ - Without impending on your own personal choice, there are going to be those that wear the hat of religion and those that wear the hat of science. I still don’t really understand why they can’t wear both hats, because personally, I think that they go beautifully together.
+ - I love art, I love music. I can listen to Stockhausen and a very experimental, avant-garde approach, and I can listen to Beethoven and have a more classical, traditional approach. Why not be able to do that with film performance?
+ - I’ve really had good luck working with younger actors. Every younger actor that I have worked with has always been really on top of their game and fascinating to watch.
+ - I may be alone in this, but I do sense the power of film, in that movies have the ability to literally change people’s minds. That’s pretty powerful stuff when you consider that.
+ - I think on some level, all of us have a little bit of belief in the possibility of different energies and forces and things like that. Otherwise, we wouldn’t be afraid of them. Or there wouldn’t be so many movies about them.
+ - I want people to discover my movies, and however they choose to receive it is their business.
+ - I try to keep my characters raising more questions than giving answers. I don’t want to leave too much on the table. I want you to have your connection and your secret understanding of the character.
+ - I think I’ve become more relaxed throughout my career. I don’t feel the need to jump up and down and make a big noise to get people to pay attention to me. I don’t need to do punk rock gestures or eat a cockroach or do something weird to say I exist.
+ - I’ve always believed that the greatest actors are the ones that have the voices that are imitable.
+ - We’ve become so glorified in the movie-star system that it’s become this artificial royalty. The truth is that we’re circus clowns.
+ - When you’re playing supernatural characters, there’s an infinite number of possibilities with a character. And I also think they’re wonderful and entertaining for the whole family. You don’t have a high body count...
+ - Nobody can make a movie as exciting as Jerry Bruckheimer. When it’s a Jerry Bruckheimer movie that it’s going to have lots of chrome and gloss, it’s going to be sexy, and it’s going to be big and fun.
+ - The biggest problem for me was feeling that as I became more balanced and a better man that I wouldn’t have the fire to create from.
+ - Idris Elba is a grand actor. He’s very larger than life; he’s bigger than life.
+ - I was thinking about being more global in my work, which means trying more foreign countries and working with foreign filmmakers, hoping they would give me a new take on my work, a new point of view, reinvent me in some way.
+ - Nobody wants to watch perfection.
+ - First of all the criteria that I have that goes into any career decision is whether or not I have the life experience, emotional resources to play the part truthfully or the imagination. Second, would be the director.
+ - I’ve been lucky to work with some of the most creative people and it’s true that I enjoy filmmaking and I’m an enthusiast.
+ - Yeah, my real name is Coppola. I changed it because they’d think I was some nepotism-oriented kid.
+ - Sometimes I do love to rehearse, but I always switch it up depending on whom I’m working with.
+ - I think that the best characters are the ones who both manage to be attractive and repulsive at the same time.
+ - I think that if you go about making movies to win Oscars, you’re really going about it the wrong way.
+ - Actors work with their look. I come from the Lon Chaney Sr. school of acting. I’ll wear wigs, I’ll wear nose pieces, I’ll wear green contact lenses in my eyes. I’ll do whatever I need to do to create a character.
+ - Movies work, in my opinion, on the best level when they’re more enigmatic, when we don’t say it’s this or that and where it raises more questions than answers.
+ - I needed to change my name just to liberate myself and find out I could do it without walking into a Hollywood casting office with the name Coppola.
+ - I’m not contractually obligated to sequels on anything.
+ - You often feel like you are on a high wire with no net productions because you have to rely on spontaneity and come up with ideas on the spur of the moment – and then what happens is that there is electricity to it that gets caught.
+ - It’s always exciting when you can go into a mode where you can be both spontaneous and choreographed. Sort of in control and out of control at the same time.
+ - When I won the Oscar, I made a point of actively going against that and doing adventure films like ‘Con Air’ and ‘Gone in 60 Seconds,’ not what would be expected.
+ - With my name in cement, I feel actualised. – On cementing his hand prints on Sunset Boulevard.
+ - One of the pluses of getting older is you set some limits.
+ - I think I’ve spent more time in front of a camera than off camera. That’s just the way it is.
+ - I really think it’s important that my beliefs don’t impinge upon what you get from the movie. It’s your opinion that matters and it’s far more interesting than mine.
+ - I try to make two movies a year. To me, that’s not too much. On top of that, I like to work.
+ - I do like to move and get physical in my movies.
+ - I’ve always had a soft spot for comic books.
+ - I think a good movie is a good movie whether that falls into a genre or not.
+ - I’m a seeker. I’m very much a believer in science. But I do think there are times when science and mysticism intersect.
+ - My best takes are my first two takes.
+ - Film acting is one of the only industries where you’re criticized for working hard. In any other industry, it’s considered a quality and something to behold.
+ - I never say never, but I haven’t been given the quality of script to compel me to go on television.
+ - Generally my instinct is to not do biographical movies. I want to build characters and not be locked into playing a part in history.
+ - I find children inspiring. The way they look at the world. The magical world they live in, to me, is inspiring.
+ - I definitely went through my magic phase. I think all little boys do at some point or another – they get fascinated by magic tricks.
+ - I do like characters that have flaws, some sort of pathos to them that they are trying to sort out.
+ - I believe that everybody has the right to believe what they want to believe and to knock somebody’s faith and religion is foolish, whatever it may be – Christianity, Judaism, Islam, Buddhism.
+ - You aren’t a true internationalist until you’ve supplied weapons to kill your own countrymen.
+ - More than ever, movies reveal themselves as healing, as helpful, as encouraging, as escapist – anything that makes someone get through their day in these times. It’s the best form of entertainment, and it’s still arguably the most inexpensive form of entertainment.
+ - I always wanted to find a way to apply my acting in a big mad monster movie where I was transforming into this scary entity.
+ - I do enjoy animated movies.
+ - I really would like to be able to face all my superstitions that may have existed and walk under the ladder and do everything you’re not supposed to do.
+ - It’s important to keep the eccentric spirit alive, because when that goes, the work will go.
+ - I love working with younger actors because they always come into the game full of energy and ideas that challenge me and keep me learning and stimulated.
+ - I’m not really gadget oriented. I’m not into technology or computers. I’m not good at interfacing with that sort of gear.
+ - One of the great bonuses of being a film actor is that I get to go to different places, meet inspiring people and learn different things. So all those details add up.
+ - All movies on some level can aspire to be more than just whatever the label is of the movie.
+ - I had been making a lot of family oriented movies, which I also like. But I still have a passion for the midnight audience and for midnight movies.
+ - These so called Popcorn movies, or family movies, actually provide something quite beautiful and something quite necessary, which is a family bonding experience.
+ - I love England – it’s no secret.
+ - I’m very impressed with ‘Drive.’
+ - I like the idea of being involved in pictures that can entertain the entire family and can stimulate youngsters into looking at picture books. There’s nothing wrong with that.
+ - I’ve always maintained that I see myself as a student. There’s always something to learn and be challenged by and hopefully grow from.
+ - I just want to keep making movies that hopefully makes some kids smile.
+ - Remakes are always a challenge and they always are sitting ducks.
+ - I actually enjoy working with green screen, because I can imagine all that stuff happening, and I really cut my teeth on a movie I made called “Adaptation” where I had to imagine four-page dialogue scenes with my twin brother, who was nothing more than a tennis ball and a gas stand.
+ - Acting is like any other art form, in that you have the option to go very big or go very small.
+ - I got a little tired of movies where I had to shoot people. I got to thinking about the power of film and what that power is. The power is in fact that it really can change people’s minds.
+ - It’s amazing marrying someone who wants nothing to do with Hollywood.
+
+120 quotes

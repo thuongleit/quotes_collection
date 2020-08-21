@@ -1,0 +1,46 @@
+ - Man is an animal suspended in webs of significance he himself has spun.
+ - I think of myself as a writer who happens to be doing his writing as an anthropologist.
+ - People keep asking how anthropology is different from sociology, and everybody gets nervous.
+ - Culture is public, because meaning is.
+ - We don’t know what we think until we see what we say.
+ - I’ve often been accused of making anthropology into literature, but anthropology is also field research. Writing is central to it.
+ - Believing, with Max Weber, that man is an animal suspended in webs of significance he himself has spun, I take culture to be those webs, and the analysis of it to be therefore not an experimental science in search of law but an interpretive one in search of meaning.
+ - Cultural analysis is intrinsically incomplete. And, worse than that, the more deeply it goes the less complete it is.
+ - One of the most significant facts about humanity may finally be that we all begin with the natural equipment to a live a thousand kinds of life but end in the end having lived only one.
+ - I don’t write drafts. I write from the beginning to the end, and when it’s finished, it’s done.
+ - Anthropology never has had a distinct subject matter, and because it doesn’t have a real method, there’s a great deal of anxiety over what it is.
+ - I don’t think things are moving toward an omega point; I think they’re moving toward more diversity.
+ - I don’t feel that an atmosphere of debate and total disagreement and argument is such a bad thing. It makes for a vital and alive field.
+ - I think what’s known about neurology is still scattered and uncertain.
+ - Most anthropologists are doing straightforward ethnography, and should.
+ - If I remember correctly, a writer is someone who wants to convey information. Language or writing is a code.
+ - Meaning is socially, historically, and rhetorically constructed.
+ - If we wanted home truths, we should have stayed at home.
+ - I think the perception of there being a deep gulf between science and the humanities is false.
+ - It may be in the cultural particularities of people – in their oddities – that some of the most instructive revelations of what it is to be generically human are to be found.
+ - Gender consciousness has become involved in almost every intellectual field: history, literature, science, anthropology. There’s been an extraordinary advance.
+ - The point of literary criticism in anthropology is not to replace research, but to find out how it is that we are persuasive.
+ - I agree with Chomsky in almost nothing. When it comes to innate structures and so on, I’m very skeptical.
+ - I had a hard time convincing students that they were going to North Africa to understand the North Africans, not to understand themselves.
+ - My instincts are always against people who want to fasten some sort of hegemony onto things.
+ - A scholar can hardly be better employed than in destroying a fear.
+ - I think feminism has had a major impact on anthropology.
+ - I’m an inveterate fox and not a hedgehog, so I always think you should try everything.
+ - What we call our data are really our own constructions of other people’s constructions of what they and their compatriots are up to.
+ - I do think the attempt to raise consciousness has succeeded. People are very aware of gender concerns now.
+ - Has feminism made us all more conscious? I think it has. Feminist critiques of anthropological masculine bias have been quite important, and they have increased my sensitivity to that kind of issue.
+ - The way in which mathematicians and physicists and historians talk is quite different, and what a physicist means by physical intuition and what a mathematician means by beauty or elegance are things worth thinking about.
+ - If there’s ever a place where you can’t argue that you can put the facts over here and the text over there and see if they fit, it is surely in anthropology.
+ - I never leave a sentence or a paragraph until I’m satisfied with it.
+ - It’s always amusing to look at how something early in the 20th century was written in anthropology and how it’s written now. There’s been an enormous shift in how it’s done, but yet you can’t put your finger on someone who actually did it.
+ - I don’t have the notion that everybody has to write in some single academic style.
+ - I’ve written a lot of books which are written from the moon – the view from nowhere.
+ - I’m writing a review of three books on feminism and science, and it’s about social constructionism. So I would say I’m a social constructionist, whatever that means.
+ - I was trained in the ’50s as a New Critic. I remember what literature was like before the New Critics, when people stood up and talked about Shelley’s soul and such things.
+ - Learning to exist in a world quite different from that which formed you is the condition, these days, of pursuing research you can on balance believe in and write sentences you can more or less live with.
+ - The North African mule talks always of his mother’s brother, the horse, but never of his father, the donkey, in favor of others supposedly more reputable.
+ - Anthropology in general has always been fairly hospitable to female scholars, and even to feminist scholars.
+ - I think the American university system still seems to be the best system in the world.
+ - Younger anthropologists have the notion that anthropology is too diverse. The number of things done under the name of anthropology is just infinite; you can do anything and call it anthropology.
+
+44 quotes

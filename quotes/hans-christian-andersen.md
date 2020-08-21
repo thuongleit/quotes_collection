@@ -1,0 +1,59 @@
+ - Where words fail, music speaks.
+ - To travel is to live.
+ - To move, to breathe, to fly, to float, To gain all while you give, To roam the roads of lands remote, To travel is to live.
+ - Enjoy life. There’s plenty of time to be dead.
+ - Life is like a beautiful melody, only the lyrics are messed up.
+ - The whole world is a series of miracles, but we’re so used to them we call them ordinary things.
+ - Life itself is the most wonderful fairy tale.
+ - A human life is a story told by God.
+ - But a mermaid has no tears, and therefore she suffers so much more.
+ - Everything you look at can become a fairy tale and you can get a story from everything you touch.
+ - My life is a lovely story, happy and full of incident.
+ - We haven’t yet got eyes that can gaze into all the splendor that God has created, but we shall get them one day, and that will be the greatest fairytale of all, for we shall be in it ourselves.
+ - Nothing is too high for a man to reach, but he must climb with care and confidence.
+ - A mermaid has not an immortal soul, nor can she obtain one unless she wins the love of a human being. On the power of another hangs her eternal destiny.
+ - To be of use to the world is the only way to be happy.
+ - Every man’s life is a fairy tale written by God’s fingers.
+ - Death walks faster than the wind and never returns what he has taken.
+ - Time is so fleeting that if we do not remember God in our youth, age may find us incapable of thinking of him.
+ - I never dreamed of so much happiness when I was the Ugly Duckling!
+ - But shouldn’t all of us on earth give the best we have to others and offer whatever is in our power?
+ - How little do the wisest among us know of that which is so important to us all.
+ - Being born in a duck yard does not matter, if only you are hatched from a swan’s egg.
+ - Well, it’s not so easy to give an answer when you ask a stupid question!
+ - If you looked down to the bottom of my soul, you would understand fully the source of my longing and – pity me. Even the open, transparent lake has its unknown depths, which no divers know.
+ - She laughed and danced with the thought of death in her heart.
+ - Travelling expands the mind rarely.
+ - It is the power of thought that gives man power over nature.
+ - Well, yes: people write poems when they are in love, but a wise man will not print them.
+ - The sun shines upon good and bad alike.
+ - Almighty God, thee only have I; thou steerest my fate, I must give myself up to thee! Give me a livelihood! Give me a bride! My blood wants love, as my heart does!
+ - The naive was only a part of my fairy tales; humor was the real salt in them.
+ - My life will be the best illustration of all my work.
+ - But the Emperor has nothing at all on!
+ - Don’t ask me how I am! I understand nothing more!
+ - Brave soldier, never fear. Even though your death is near.
+ - Happy domestic life is like a beautiful summer’s evening; the heart is filled with peace; and everything around derives a peculiar glory.
+ - There was once a bundle of matches, and they were frightfully proud because of their high origin. Their family tree, that is to say the great pine tree of which they were each a little splinter, had been the giant of the forest.
+ - When the bird of the heart begins to sing, too often will reason stop up her ears.
+ - I have gone through the most terrible affair that could possibly happen; only imagine, my shadow has gone mad; I suppose such a poor, shallow brain, could not bear much; he fancies that he has become a real man, and that I am his shadow.
+ - There was once a merchant who was so rich that he might have paved the whole street, and a little alley besides, with silver money. But he didn’t do it – he knew better how to use his money than that.
+ - No, the light is too intense; we do not yet have eyes that can see all the glory God has created. But maybe someday we will have such eyes. That will be the most wonderful fairy tale of all, for we ourselves will be part of it.
+ - The wiser a man becomes, the more he will read, and those who are wisest read most.
+ - I know what you want. It is very stupid of you, but you shall have your way, and it will bring you to sorrow, my pretty princess. – The sea witch.
+ - Human beings, on the contrary, have a soul which lives forever, lives after the body has been turned to dust. It rises up through the clear, pure air beyond the glittering stars.
+ - Many, many steeples would have to be stacked one on top of another to reach from the bottom to the surface of the sea.
+ - Every town, like every man, has its own countenance; they have a common likeness and yet are different; one keeps in his mind all their peculiar touches.
+ - Most of the people who will walk after me will be children, so make the beat keep time with short steps.
+ - And the Top spoke no more of his old love; for that dies away when the beloved objects has lain for five years in a roof gutter and got wet through; yes, one does not know her again when one meets her in the dust box.
+ - Now, if we only had as many casks of butter as there are people here, then I would eat lots of butter!
+ - It was clear to me, as I glanced back over my earlier life, that a loving Providence watched over me, that all was directed for me by a higher power.
+ - I covet honour in the same way as a miser covets gold.
+ - I would give gladly all the hundreds of years that I have to live, to be a human being only for one day, and to have the hope of knowing the happiness of that glorious world above the stars.
+ - At first she was overjoyed that he would be with her, but then she recalled that human people could not live under the water, and he could only visit her father’s palace as a dead man.
+ - I only appear to be dead.
+ - Some are created for beauty, and some for use; and there are some which one can do without altogether.
+ - Eighty percent of our criminals come from unsympathetic homes.
+ - In the days of Moses and the prophets such a man would have been counted among the wise men of the land; in the Middle Ages he would have been burned at the stake.
+
+57 quotes

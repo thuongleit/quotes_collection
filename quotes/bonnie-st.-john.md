@@ -1,0 +1,21 @@
+ - People fall down, winners get up, and gold medal winners just get up faster!
+ - Friendship is such a powerful healer and source of support.
+ - I was ahead in the slalom. But in the second run, everyone fell on a dangerous spot. I was beaten by a woman that got up faster than I did. I learned that people fall down, winners get up, and gold medal winners just get up faster.
+ - My definition of confidence is how you feel about yourself, and not letting the external world define you.
+ - Because I am a one-legged, black, short, woman I had to spend every day of my life pushing against what society told me I should be. I had to sell my value every day of my life. Confidence is what enables us to push back on reality. Once you get good at that, you can use it to live your joy.
+ - People are going through tough times. I want to say to them, “Live your joy.” I know I can tell them that because I went through a lot of hard times. I had a choice of either succumbing to the hard times or figuring it out.
+ - I was sexually abused by my step father for years and years, and that caused scars you can’t see. And we know many people have the kind of scars you can’t see.
+ - We don’t always get everything. And sometimes we worry too much about our circumstances. We think oh I’ll be happy when I get my job back, or I’ll be happy when I get a man back, but it’s really about allowing God to give us joy now.
+ - You have the strength to push back against what others are making you think or do. You use that muscle of confidence. In the same way, joy is from the inside out, and not letting the things on the outside define you.
+ - I spent a good portion of my life being unable to honor my feelings. When I started the process of having real friendships it was a huge change. I still struggle with it because it is not familiar ground.
+ - When I am around someone who is a joy stealer, I say to myself, I only have to deal with you for an hour. That person has to deal with thinking that way every moment of their lives.
+ - I spent so much of my life shut down from the abuse of my childhood. I didn’t have friends and I didn’t have connections with people.
+ - I realized that I spent more time thinking about my problem clients than my great clients. I had to stop feeding the drama of the problem clients-and other problems in my life.
+ - God has joy for you right now.
+ - Friends are people who are in your life because you feel good around them and you like them. Friends are the people you choose to be with.
+ - I do a lot of to-dos and a lot of lists. I realized I had to make room for joy. So I added “to feel” items on my to-do list. That’s something you can easily do.
+ - You can’t have real and authentic friendships unless you honor your feelings.
+ - We are all drawn to problems and solving problems. Joy doesn’t demand our time. So we have to mark that time on our schedules. That’s the only way you are going to get it. Five minutes, three times a day in your schedule. That’s doable.
+ - I was always interested in how to be more joyful. This goes all the way back to elemenatary school. I looked at what was going on around me and I wanted something better. Because my mother had so many ups and downs, I watned to know how to be “up” more often.
+
+19 quotes

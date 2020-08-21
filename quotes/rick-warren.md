@@ -1,0 +1,502 @@
+ - Remember how far you’ve come, not just how far you have to go. You are not where you want to be, but neither are you where you used to be.
+ - We are created for community, fashioned for fellowship, and formed for a family, and none of us can fulfill God’s purposes by ourselves.
+ - A lie doesn’t become truth, wrong doesn’t become right and evil doesn’t become good, just because it’s accepted by a majority.
+ - God changes caterpillars into butterflies, sand into pearls and coal into diamonds using time and pressure. He’s working on you, too.
+ - There is no growth without change, no change without fear or loss and no loss without pain.
+ - Passion drives perfection.
+ - You were made by God and for God, and until you understand that, life will never make sense.
+ - Humility is not denying your strengths, humility is being honest about your weaknesses.
+ - The deepest level of worship is praising God inspite of pain, trusting Him during a trial, surrendering while suffering, and loving Him when He seems distant.
+ - People are interested by talent. God is impressed by character.
+ - The way you think determines the way you feel, and the way you feel determines the way you act.
+ - Our culture has accepted two huge lies. The first is that if you disagree with someone’s lifestyle, you must fear or hate them. The second is that to love someone means you agree with everything they believe or do. Both are nonsense. You don’t have to compromise convictions to be compassionate.
+ - It is only in God that we discover our origin, our identity, our meaning, our purpose, our significance, and our destiny. Every other path leads to a dead end.
+ - The greatest tragedy is not death, but life without purpose.
+ - The more you pray, the less you’ll panic. The more you worship, the less you worry. You’ll feel more patient and less pressured.
+ - A great commitment to the Great Commandment and the Great Commission will grow a great church.
+ - Faithful servants never retire. You can retire from your career, but you will never retire from serving God.
+ - The only way you can serve God is by serving other people.
+ - God’s LOVE is Like an Ocean; You can See its Beginning, but not its end.
+ - When you use your life for God’s glory, everything you do can become an act of worship.
+ - God is more interested in your character than your comfort. God is more interested in making your life holy than He is in making your life happy.
+ - Without God, life has no purpose, and without purpose, life has no meaning. Without meaning, life has no significance or hope.
+ - Living for God’s glory is the greatest achievement we can accomplish with our lives.
+ - When God is at the center of your life, you Worship, when He’s not, you Worry.
+ - You never know God is all you need until God is all you have.
+ - We are products of our past, but we don’t have to be prisoners of it.
+ - The smile of God is the goal of your life.
+ - Without the grace of Jesus: a hopeless end. With the grace of Jesus: an endless hope.
+ - Living in light of eternity changes your priorities.
+ - While you’re waiting, God’s working.
+ - Don’t waste your pain; use it to help others.
+ - If you give it to God, He transforms your test into a testimony, your mess into a message, and your misery into a ministry.
+ - Your commitments can develop you or destroy you, but either way, they will define you.
+ - Christianity is not a religion or a philosophy, but a relationship and a lifestyle. The core of that lifestyle is thinking of others, as Jesus did, instead of ourselves.
+ - God specializes in giving people a fresh start.
+ - Life minus love equals zero.
+ - Life is a series of problem-solving opportunities. The problems you face will either defeat you or develop you depending on how you respond to them.
+ - Satan tries to limit your praying because he knows your praying will limit him.
+ - Christlikeness is your eventual destination, but your journey will last a lifetime.
+ - Irrelevance happens when the speed of change outside an organization is greater than speed of change inside an organization.
+ - Be careful how you think; your life is shaped by your thoughts.
+ - Time is your most precious gift, because you only have a set amount of it.
+ - Fellowship is a place of grace, where mistakes aren’t rubbed in but rubbed out. Fellowship happens when mercy wins over justice.
+ - God’s mercy to us is the motivation for showing mercy to others. Remember, you will never be asked to forgive someone else more than God has forgiven you.
+ - If you’re alive, there’s a purpose for your life.
+ - God’s ultimate goal for your life on earth is not comfort, but character development. He wants you to grow up spiritually and become like Christ.
+ - The most desired gift of love is not diamonds or roses or chocolate. It’s focused attention.
+ - All leaders are learners. The moment you stop learning, you stop leading. I learn as much as I can, from as many as I can, as often as I can.
+ - Humility is not thinking less of yourself; it is thinking of yourself less. Humility is thinking more of others.
+ - God is love. He didn’t need us. But he wanted us.
+ - The secret of endurance is to remember that your pain is temporary but your reward will be eternal.
+ - People may refuse our love or reject our message, but they are defenseless against our prayers.
+ - If God was small enough for you to completely understand him, he wouldn’t be big enough for you to completely trust him.
+ - When you understand that life is a test, you realize that nothing is insignificant in your life.
+ - God has a purpose behind every problem. He uses circumstances to develop our character. In fact, he depends more on circumstances to make us like Jesus than he depends on our reading the Bible.
+ - Fear is a self imposed prison that will keep you from becoming what God intends for you to be. You must move against it with the weapons of faith and love.
+ - Knowing your purpose gives meaning to your life.
+ - Worry is a waste of energy. It cant change the past. It cant control the future. It only makes today miserable.
+ - You discover your identity and purpose through a relationship with Jesus Christ.
+ - It’s not what you do, but how much love you put into it that matters.
+ - When pressure builds up, don’t panic. Pray! Prayer is a tremendous stress reliever. It can be your safety valve.
+ - Your most profound and intimate experiences of worship will likely be in your darkest days – when your heart is broken, when you feel abandoned, when your out of options, when the pain is great – and you turn to God alone.
+ - The greatest things in life are not things.
+ - Pride builds walls between people, humility builds bridges.
+ - Never confuse activity with productivity.
+ - The ultimate test of faith is not how loudly you praise God in happy times but how deeply you trust him in dark times.
+ - While it is wise to learn from experience, it is wiser to learn from the experiences of others.
+ - God sometimes removes a person from your life for your protection. Don’t run after them.
+ - When God wants to make a mushroom, he does it overnight, but when He wants to make a giant oak, He takes a hundred years. Great souls are grown through struggles and storms and seasons of suffering. Be patient with the process.
+ - A godly man is never threatened by the gifts of a godly woman.
+ - For God to mend your broken heart you must give him ALL the pieces. You can’t hold any back.
+ - Your spiritual gifts were not given for your own benefit but for the benefit of others, just as other people were given gifts for your benefit.
+ - Never let an impossible situation intimidate you. Let it motivate you – to pray more, trust more, expect more.
+ - We often miss hearing God’s voice simply because we aren’t paying attention.
+ - You are as close to God as you choose to be.
+ - First open your heart, then open your Bible.
+ - Familiarity breeds complacency.
+ - God’s Word is your owner’s manual for life. It contains principles for health, finance, marriage, other relationships, business, and much more.
+ - Love leaves legacy. How you treated other people, not your wealth or accomplishments, is the most enduring impact you can leave on earth.
+ - We become whatever we are committed to.
+ - When you feel nothing, God is teaching you to live by faith.
+ - Measured against eternity, our time on earth is just a blink of an eye, but the consequences of it will last forever.
+ - Your abilities are the map to God’s will for your life. It points the direction. When you know what you’re good at, then you can know what God wants you to do with your life.
+ - Integrity is built by defeating the temptation to be dishonest; humility grows when we refuse to be prideful; and endurance develops every time you reject the temptation to give up.
+ - Faith is facing reality without being discouraged by it.
+ - Worry is focused thinking on something negative. Meditation is doing the same thing only focusing on God’s word instead of your problem.
+ - People ask me, “Are you right wing or are you left wing?” and I always say, “I’m for the whole bird.” A one-winged bird didn’t ever get off the ground.
+ - Great opportunities may come once in a lifetime, but small opportunities surround us every day.
+ - I believe Jesus Christ came for everybody. I don’t think he came for Christians. The Bible says take this good news to the whole world.
+ - If you are facing trouble right now, don’t ask, “Why me?” Instead ask, “What do you want me to learn?” Then trust God and keep on doing what’s right.
+ - In pain, I’d rather walk with Jesus with all of my questions, than walk by myself with all the answers.
+ - Those who follow the crowd usually get lost in it.
+ - God wants to use you to make a difference in His world. He wants to work through you. What matters is not the duration of your life, but the donation of it. Not how long you lived, but how you lived.
+ - Ever feel like God is a million miles away? The truth is, he’s not. Whatever struggle you’re going through, you can rest assured you’re not alone. You have God in your corner.
+ - I want to change my circumstances. God wants to change me.
+ - The only way to always be relevant is to focus on what’s eternal. Everything in style will soon be out of style.
+ - What gives me the most hope every day is God’s grace; knowing that his grace is going to give me the strength for whatever I face, knowing that nothing is a surprise to God.
+ - The greatest gift God gave us is also our greatest curse, which is the free will. We are made in God’s image, the Bible says, which means we have the ability to love him or not love him, to reject him or not reject him.
+ - Trusting God completely means having faith that He knows what is best for your life. You expect Him to keep His promises, help you with problems, and do the impossible when necessary.
+ - To fulfill your mission will require that you abandon your agenda and accept God’s agenda for your life.
+ - The race to be a leader is crowded, but the field is wide open for those willing to be servants.
+ - A disciple is one who thinks, feels and acts like Jesus Christ. It is being conformed to the image of Christ as Romans 8:28-29 states-that God’s No.1 purpose in our lives is to make us like Jesus.
+ - Jesus measured greatness in terms of service not status. God determines your greatness by how many people you serve, not how many people serve you.
+ - God’s purpose is greater than our problems, our pain and even our sin.
+ - Without a purpose, life is motion without meaning, activity without direction, and events without reason.
+ - Salvation is not a religion. It’s not rules or regulations or rituals. Salvation is a relationship. That relationship doesn’t begin when you get to Heaven; it begins here on Earth.
+ - Love pays attention. Love listens to the fears and the doubts of others and treats them with respect. Love accepts others the way Jesus accepts you.
+ - But no one who is lost has lost one ounce of value to God. Even if you don’t have a relationship with him, you have immense value to God.
+ - Maturity is produced through relationships and community.
+ - Not everything in this life has a happy ending, but this life is not the end of the story.
+ - Behind every successful child is an adult who believed in him.
+ - Remember that your character is the sum total of your habits.
+ - Every church needs to grow warmer through fellowship, deeper through discipleship, stronger through through worship, and larger through evangelism.
+ - Your spiritual family is even more important than our physical family because it will last forever.
+ - The most essential quality for leadership is not perfection but credibility. People must be able to trust you.
+ - Let love be your greatest aim.
+ - Little people belittle people. Great people make people feel great.
+ - A Christian ought to speak kindly even when given the opportunity to retaliate.
+ - The greatest gift you can give someone is your time.
+ - If you want to find your purpose in life, find your wound.
+ - We are healed to help others. We are blessed to be a blessing. We are saved to serve, not to sit around and wait for heaven.
+ - God is never in a hurry, but he is always on time.
+ - Faith is choosing and believing God’s dream for your life. Nothing starts happening in your life until you start dreaming. God gave you the ability to dream, to create, to imagine.
+ - The greatest detriment to tomorrow’s success, is today’s success.
+ - There’s nothing in your life you can’t learn from, if you respond with the right attitude.
+ - When Jesus started His ministry, the very first thing He did was form a small group.
+ - A pretentious, showy life is an empty life; a plain and simple life is a full life.
+ - Surrender is not the best way to live; it is the only way to live. Nothing else works.
+ - As Christians we’re called to belong, not just to believe. We are not meant to live lone-ranger lives; instead, we are to belong to Christ’s family and be members of his body.
+ - Pain is the fuel of passion – it energizes us with an intensity to change that we don’t normally possess.
+ - Leadership is learned, earned, and discerned. You develop it. It’s based on trust and credibility. Others see it in you. You can’t demand it.
+ - Your past, present, and future are taken care of as you put your trust in Jesus.
+ - Wearing a mask wears you out. Faking it is fatiguing. The most exhausting activity is pretending to be what you know you aren’t.
+ - Maturity is when you live your life by your commitments, not by your feelings.
+ - What is your assurance of salvation? The promise of God’s Word. If God says it, that settles it, because God cannot lie. You can trust the promise of God’s Word.
+ - The only antidote to materialism is giving, because materialism’s all about getting. Every time I give, my heart grows bigger. Every time I give, I become more like Jesus.
+ - Your value is not determined by your valuables, and God says the most valuable things in life are not things!
+ - Great leaders genuinely care for and love the people they lead more than they love leading itself.
+ - At first opposites attract. Then opposites attack.
+ - Worry is the warning light that shows I’ve stopped looking to God to meet my needs.
+ - Patience is a form of faith. It says, “I trust God. I believe that God is bigger than this problem.”
+ - I could imagine God saying to a lot of us, “Hey, I’m God, and you’re not. You’re not the general manager of the universe.” And the greatest stress reliever is take God seriously, but don’t take yourself seriously.
+ - Whenever you feel unimportant, unloved, or insecure, remember to who you belong.
+ - Transformation is a process, and as life happens there are tons of ups and downs. It’s a journey of discovery – there are moments on mountaintops and moments in deep valleys of despair.
+ - The very first task of leadership is to set the vision for the organization. If you don’t set the vision, you’re not the leader.
+ - The most damaging aspect of contemporary living is short-term thinking.
+ - Forgiveness must be immediate, whether or not a person asks for it. Trust must be rebuilt over time. Trust requires a track record.
+ - Taking risks in older age is more courageous because you have more to lose. When you have nothing, you have nothing to lose.
+ - In the Old Testament, it says that if you have the power to do something good, then you have to do it. You’re not to avoid helping somebody in their time of need.
+ - Those who follow the crowd usually get lost in it. I don’t know all the keys to success, but one key to failure is to try to please everyone.
+ - Whenever you serve others in any way, you are actually serving God.
+ - Leadership is neither showmanship nor dictatorship. Leadership is a stewardship and a partnership.
+ - The best use of life is love. The best expression of love is time. The best time to love is now.
+ - The Bible offers three metaphors that teach us God’s view of life: Life is a test, life is a trust, and life is a temporary assignment.
+ - There is nothing you can do that will make God stop loving you. You could try, but you simply can’t do it – because his love for you is based upon his character and not on anything you do or say or feel.
+ - Relationships are always worth restoring.
+ - You weren’t put on earth to be remembered. You were put here to prepare for eternity.
+ - God hates loneliness, and community is God’s answer to loneliness. When we walk alongside other people, we find a community where we learn how to love.
+ - Instant obedience will teach you more about God than a lifetime of Bible discussions.
+ - While we worry about how fast we grow, God is concerned about how strong we grow.
+ - Your net worth is not the same thing as your self-worth. Your value is not based on your valuables.
+ - REAL fellowship is being as committed to each other as we are to Jesus Christ.
+ - Real life begins by committing yourself completely to Jesus Christ.
+ - Real security can only be found in that which can never be taken from you – your relationship with God.
+ - In our final moments we all realize that relationships are what life is all about. Wisdom is learning that truth sooner rather than later.
+ - Every time you defeat a temptation, you become more like Jesus!
+ - Life is about letting God use you for his purposes, not using him for your own purpose.
+ - You do not grow stronger by accident – you grow stronger by intention.
+ - Jesus is knocking at your door. Take hold of the better life by letting him into your life. Make him the boss of your life. It’ll change everything.
+ - Life is not fair, but one day God’s going to settle the score. He’s going to right the wrongs. So, who can get better justice – you or God?
+ - We are not saved by good works; we are saved for good works. The Christian lifestyle is to be a lifestyle of goodness.
+ - God’s Word is not meant just to inform you, but to transform you.
+ - Failure isn’t a character quality. It’s just an event. How you respond to failure is your character.
+ - Keep your hope in the Lord and your eyes focused on the hope of Heaven, not just on the here and now.
+ - If you want God to bless you and use you greatly, you must be willing to walk with a limp the rest of your life, because God uses weak people.
+ - We do not have to make the Bible relevant – it already is! But we do have to show its relevance.
+ - Your illness is not your identity. Your chemistry is not your character.
+ - Great people are just ordinary people with an extraordinary amount of determination. They simply don’t know how to quit. They just keep on ‘keepin’ on’.
+ - Other people are going to find healing in your wounds. Your greatest life messages and your most effective ministry will come out of your deepest hurts.
+ - The Bible teaches that we are to love people and use money, but we often get that reversed and you start loving money and using people to get more money. Money is simply a tool to be used for good.
+ - A church must grow larger and smaller at the same time. Larger through worship and smaller through small groups.
+ - If you talked to others the way you talk to yourself, would you have any friends?
+ - Worry is really just a form of atheism. Every time you worry, you’re acting like an atheist. You’re saying, “It all depends on me.” That’s just not in the Bible.
+ - At most, you will live a hundred years on earth, but you will spend forever in eternity.
+ - Building friendships with people from dissimilar backgrounds and diverse perspectives will make you wiser and more creative.
+ - Even through such simple acts as telling the truth, being kind, and encouraging others, we bring a smile to God’s face.
+ - Character is both developed and revealed by tests, and all of life is a test.
+ - Great leaders inspire. They maintain a hopeful attitude, even in the face of discouraging setbacks, constant criticism and abundant opposition. People don’t follow discouraged leaders. They follow those who persist with hope.
+ - If you have ever said, “I didn’t get anything out of worship today,” you worshiped for the wrong reason. Worship isn’t for you. It’s for God.
+ - Spiritual emptiness is a universal disease.
+ - If your activities don’t match your priorities, you are wasting your life.
+ - Don’t let your net worth determine your self worth.
+ - God accepts us unconditionally, and in his view we are all precious and priceless. Focus on this and you will not waste any time and effort trying to be someone you’re not.
+ - Many people are reluctant to show mercy because they don’t understand the difference between trust and forgiveness. Forgiveness is letting go of the past. Trust has to do with future behavior.
+ - We are all called to fulfill God’s five purposed for our lives: to worship, to fellowship, to grow like Christ, to serve, and to be on mission with God in the world.
+ - Long before you were conceived by your parents, you were conceived in the mind of God.
+ - Because God is with you all the time, no place is any closer to God than the place where you are right now.
+ - The Bible is clear that God considers 40 days a spiritually significant time period. Whenever God wanted to prepare someone for his purposes, he took 40 days...
+ - Any time you get serious about using your life the way God wants you to use it, there are going to be people who oppose it.
+ - Having authority implies accountability. If you reject the blame for failures under your watch, people reject your leadership.
+ - You’ll never do anything creative, innovative or world changing if you fear criticism. Pioneers are easy targets for arrows!
+ - The closer you live to God, the smaller everything else appears.
+ - If you aren’t making any mistakes, you aren’t innovating. If you’re making the same mistakes, you aren’t learning.
+ - There are many pitfalls in the marathon of life. But regardless of what you go through, you can count on God’s sustaining grace.
+ - The only really happy people are those who have learned how to serve.
+ - You must begin with God.
+ - God is looking for people to use, and if you can get usable, he will wear you out. The most dangerous prayer you can pray is this: ‘Use me.’
+ - You are most like Christ, when you remain silent under attack.
+ - There is an entire generation who was too young to read ‘The Purpose Driven Life’ 10 years ago but are now asking the critical question, ‘What on earth am I here for?’
+ - You are loved by the One who knows you best. God’s love will never disappoint you and never give up on you.
+ - Racism is stupid. It’s an insult to God, arrogantly implying that God goofed-up when he chose to make us all different.
+ - You can only make a difference by being different.
+ - Forgiveness is a gift we give ourselves that allows us to get on with our lives instead of being trapped in the past by resentment.
+ - In deep pain, people don’t need logic, advice, encouragement, or even Scripture. They just need you to show up and shut up.
+ - How much are you worth? Jesus says, with his arms stretched out on the cross, “I’m willing to die for you, because you mean this much to me.”
+ - Blessed are the uncool; for they shall be happy without needing the approval of others.
+ - If someone broke your heart it doesn’t mean you should build a wall around it and quit loving. Redirect your love.
+ - Why is this happening to me? Why am I having such a difficult time? One answer is that life is supposed to be difficult! It’s what enables us to grow. Remember, earth is not heaven!
+ - When you feel abandoned by God yet continue to trust him in spite of your feelings, you worship him in the deepest way.
+ - Anytime you feel jealous or envious, you reject your uniqueness. It’s a criticism of God’s plan for you.
+ - Be grateful for who you are and whatever you have. Everything you have is a gift from God.
+ - God is always more interested in why we do something than in what we do. Attitudes count more than achievements.
+ - In God’s eyes, the greatest heroes of faith are not those who achieve prosperity, success, and power in this life, but those who treat life as a temporary assignment and serve faithfully, expecting their promised reward in eternity.
+ - God teaches us to love by putting some unlovely people around us.
+ - It is never too late to start growing.
+ - Being successful and fulfilling your lifes purpose are not at all the same thing; You can reach all your personal goals, become a raving success by the worlds standard and still miss your purpose in this life.
+ - Jesus modeled a purpose-driven life, and he taught others how to live it, too. That was the ‘work’ that brought glory to God.
+ - God loves to bring good out of bad. He loves to turn crucifixions into resurrections. Every obstacle is an opportunity. Every problem has potential. Every crisis is an opportunity for ministry. Every hurt God wants to use for His glory.
+ - We may not always finish what we start but God always finishes what He starts.
+ - Nothing shapes your life more than the commitments you choose to make.
+ - Relationships, not achievements or the acquisition of things, are what matters most in life.
+ - Stop listening for a voice and start looking for a verse. He’s already spoken.
+ - Never be impressed with charisma. Look for character.
+ - You cannot fulfil God’s purposes for your life while focusing on your own plans.
+ - A person without conviction is a weak, jellyfish type of individual who mindlessly follows the crowd.
+ - There’s a Grand Designer behind everything. Your life is not a result of random chance, fate, or luck. There is a master plan. History is His story. God is pulling the strings.
+ - A father, finding time for what is most important is the true marker of a successful person.
+ - God is the Father who is full of mercy. God is the Father who is full of comfort. That is the kind of relationship he offers to you.
+ - Becoming like Christ is a long, slow process of growth.
+ - Your birth was no mistake or mishap, and your life is no fluke of nature. Your parents may not have planned you, but God did. He was not at all surprised by your birth. In fact, he expected it.
+ - At the end of your life on earth you will be evaluated and rewarded according to how well you handled what God entrusted to you.
+ - The point is, there are some things worth dying for. There’s no doubt about that. And I would die for my family. I would die for my freedom. I would die for my country.
+ - You were born by his purpose and for his purpose.
+ - Kindness always starts with noticing the needs and hurts of others.
+ - Everytime you forgive you disappoint the devil.
+ - Pretentiousness repels but authenticity attracts, and vulnerability is the pathway to intimacy.
+ - Get honest with God, and your focus will shift from just seeing your problems – no matter how overwhelming they seem – to the grace of God.
+ - The world is always changed by people who don’t listen to conventional wisdom. I think we often set our goals too small and try to accomplish them too quickly.
+ - To begin loving people today, we must close the door on the past. And that cannot happen without forgiveness! Forgive those who have hurt you – for your sake, not because they deserve it.
+ - Every small group has at least one ‘difficult’ person in it. If you don’t immediately recognize who that person is – it’s probably you!
+ - We must learn to share the gospel in ways that show it is both GOOD and NEWS. The gospel is about what God has done for us and what we can become in Christ.
+ - As a Christian, you can enjoy life because your conscience is clear. You can enjoy life because you are secure within God’s love.
+ - Limited faith, limited future. Unlimited faith, unlimited future.
+ - If you are serious about changing your life, you are going to have to get into the Bible. You need to read it, study it, memorize it, meditate on it, and apply it.
+ - What’s true or right is NEVER determined by popularity or polls. The right thing is often unpopular since it’s harder to do.
+ - The Bible says that God puts government on earth to punish evildoers. Not good-doers. Evildoers.
+ - Only changed people can change the world. Start with yourself.
+ - One day it’s all going to be clear. It’s all going to make sense. You’re going to be able to say, “So that’s why God allowed that in my life!” Until then, God wants you to trust him.
+ - Through salvation our past has been forgiven, our present is given meaning, and out future is secured.
+ - Keeping your body in shape is a spiritual discipline. Its not just about losing a few pounds, wanting to live longer, or trying to look nicer.
+ - I believe that you measure the health or strength of a church by its sending capacity rather than its seating capacity.
+ - Longing for the ideal while criticizing the real is evidence of immaturity. On the other hand, settling for the real without striving for the ideal is complacency. Maturity is living with the tension.
+ - God is much more concerned about your character than your career, because you will take your character into eternity, but not your career.
+ - When you get to heaven God won’t ask you why you weren’t more like Billy Graham. He may ask you why you weren’t more like you. Get in touch with who you are. Lead with your own unique style. Be yourself and let God use you.
+ - What matters is not the duration of your life, but the donation of it.
+ - Unconditional love will turn a loser into a winner. You have no idea how many times your heavenly Father has wanted to reach out and grasp you in his arms when you felt like you blew it!
+ - Christmas is the time for celebration, so I’m not against decorating, putting on lights, buying gifts. In fact, the whole reason we give gifts is the wise men gave gifts to Jesus at the first Christmas, and that started the gift-giving process.
+ - The more you care about the powerless, the more power you have. The more you serve those with no influence, the more influence God gives you. The more you humble yourself, the more you’re honored by others.
+ - Eternal values, not temporal ones, should become the deciding factors for your decisions.
+ - Every problem is a character-building opportunity, and the more difficult it is, the greater the potential for building spiritual muscle and moral fiber.
+ - Your most effective ministry will come out of your deepest hurts.
+ - Living to create an earthly legacy is a short-sighted goal.
+ - Those who have hurt you in the past cannot continue to hurt you now unless you hold on to the pain through resentment.
+ - If God only used perfect people, He would have no one to use.
+ - If you don’t live by priorities, you’ll live by pressures. Either you determine what’s important in life or other people will determine it for you.
+ - You drift through life and let things happen to you, or go by design and say, ‘This is what I’m intended to do.’ The Bible is very clear that God has a purpose. But even if I know that purpose, I can’t fulfill it if I’m out of shape.
+ - Most people fail to realize that money is both a test and trust from God.
+ - Frankness is not a license to say anything you want, wherever and whenever you want. It is not rudeness.
+ - Gods plan isn’t a map for your life that you see all at once, but a scroll unrolled a little at a time.
+ - So when you say who does Christ die for? He died for the church, okay. I don’t think God’s death on the cross through Christ was a failure, if you are saying that. I do not believe that anybody he intended to die for is failing in that area.
+ - Never procrastinate in showing love. Don’t delay. Don’t put it off. Do it now.
+ - I serve a higher power, Jesus Christ. I make no apologies in saying that.
+ - Only in hindsight do we understand how God intended a problem for good.
+ - Those that innovate the future understand history the best.
+ - Sacrifice is the essence of love, which is the essence of God.
+ - Well, in the first place, military service, they don’t call it service for nothing. You are actually serving your country. And it is a worthy and valid vocation.
+ - God doesn’t owe us an explanation for everything and actually what I’ve found is that explanations don’t comfort. What comforts is the presence of God, not the explanation of God.
+ - The only reason you can love God or anybody else is because God first loved you. And he showed that love by sending Jesus Christ to Earth to die for you.
+ - To accomplish anything you must first have a mission, a goal, a hope, a vision.
+ - The easiest way to discover the purpose of an invention is to ask the creator of it. The same is true for discovering your life’s purpose: Ask God.
+ - The first purpose of your life is to be loved by God! Yes, it is important to serve him, obey, and trust him, but your first purpose is to love him.
+ - The key to friendship with God, he said, is not changing what you do, but changing your attitude toward what you do.
+ - While we wait for God to work for us, God is waiting to work through us.
+ - There is nothing quite as potent as a focused life, one lived on purpose.
+ - The antidote to the lust of the flesh is integrity.
+ - So I would say God hates war, but God loves every soldier.
+ - Life is too short to learn everything by personal experience.
+ - Your wisest moments will be those when you say yes to God.
+ - The greatest use of your words is prayer. Talk to God about EVERYTHING, all the time. Maintain a running conversation.
+ - The purpose of your life fits into a much larger, cosmic purpose that God has designed for eternity.
+ - Living by faith isn’t living with certainty. It’s trusting God in spite of unanswered questions and unresolved doubts.
+ - The first step to becoming what God made you to be is to stop worrying about what others want you to be.
+ - Many people, especially men, feel it is an admission of weakness to ask for help or to express a need. But there is absolutely no shame in needing others.
+ - I believe that the purpose of influence is to speak up for those who have no influence. And fame is not for our own benefit, or notoriety is not for our own benefit, it’s for leverage to do good.
+ - Every time you make a bad choice, it becomes harder to make a good one.
+ - If you want to know why you were jplaced on this planet, you must begin with God. You were born by his purpose and for his purpose.
+ - What surprises me most about God is that the creator of the universe should want a relationship with me.
+ - Willpower can produce short-term change, but it creates constant internal stress because you haven’t dealt with the root cause.
+ - Doing the easy thing makes you popular. Doing the hard thing makes you a leader.
+ - If you aren’t serving, you’re just existing, because life is meant for ministry.
+ - The love of Jesus Christ covers your sins, and it also gives you the power to let other people off the hook. You’ve been forgiven, and you can forgive others.
+ - A non-serving Christian is a contradiction in terms.
+ - God does not want you to become a God; he wants you to become godly – taking on his values, attitudes, and character.
+ - I dare you to try trusting Jesus for 60 days. Or your money guaranteed back.
+ - Start today by practicing constant conversation with God and continual mediation on his Word. Prayer lets you speak to God; mediation lets God speak to you.
+ - I really do feel that these people are brothers and sisters in God’s family. I am looking to build bridges with the Orthodox Church, looking to build bridges with the Catholic Church, with the Anglican church.
+ - The Bible isn’t meant to just inform us, it is meant to transform us. 40 Days in the Word will teach you how to be not just a hearer of the Word, but a doer of the Word!
+ - God wants to produce the character of Christ in our lives because he knows that the more we become like him, the more fulfilled we will be.
+ - You’re not really ready to live unless you know what you’re willing to die for.
+ - We have a choice of focusing on our problems or focusing on God, who holds the solution.
+ - If you have felt hopeless, hold on! Wonderful changes are going to happen in your life as you begin to live it on purpose.
+ - The church that doesn’t want to grow is saying to the world, “go to hell.”
+ - There are illegitimate parents, but I don’t believe there are any illegitimate children.
+ - Temptation always starts in your mind, not in circumstances.
+ - Will we fulfill God’s purpose, or will we shrink back and live a comfortable, self-centered life?
+ - My whole goal is just to keep myself motivated. If I’m motivated, if I’m on fire, it’s going to catch with somebody else.
+ - Many people spend their lives trying to create a lasting legacy on earth. They want to be remembered when they’re gone. Yet, what ultimately matters most will not be what others say about your life but what God says.
+ - You were created to add to life on earth, not just take from it. God wants you to give something back.
+ - You won’t step on other’s toes if you imagine yourself in their shoes.
+ - Prayer is the greatest use of my words.
+ - Growing marriages aren’t determined by how much you have in common but by how graciously you deal with your differences.
+ - The goal of ‘The Purpose Driven Life’ is to help people develop a heart for the world.
+ - It is impossible to do everything people want you to do. You have just enough time to do God’s will. If you can’t get it all done, it means you’re trying to do more than God intended for you to do.
+ - Possessions only provide temporary happiness.
+ - If there was more courting in marriage, there’d be fewer marriages in court. Date your mate. Today.
+ - The way you see your life shapes your life.
+ - What happens outwardly in your life is not as important as what happens inside you. Your circumstances are temporary, but your character will last forever.
+ - I’d rather have all my questions unanswered and walk with God than not walk with God and have all my questions answered.
+ - The miracle of Christmas is not on 34th street; it’s in Bethlehem.
+ - Jesus specialized in menial tasks that everyone else tried to avoid: washing feet, helping children, fixing breakfast, and serving lepers. Nothing was beneath him, because he came to serve.
+ - Servants think of ministry as an opportunity, not an obligation. They enjoy helping people, meeting needs, and doing ministry.
+ - Experience is not what happens to you. It is what you do with what happens to you. Don’t waste your pain; use it to help others.
+ - We always get into trouble when we doubt God’s love, because when we don’t trust him, we don’t obey him.
+ - The Bible tells us that there are some things worth fighting for. In fact, the Bible says there’s some things worth dying for.
+ - Lust is about satisfaction. Love is about sacrificing, serving, surrendering, sharing, supporting, and even suffering for others. Most love songs are actually lust songs.
+ - Unkind people need your kindness the most. They advertise their pain.
+ - The most common mistake Christians make in worship today is seeking an experience rather than seeking God.
+ - You’ll find success in life when you stop trying to include God in your plans and Instead ask God to include you in His.
+ - America was built on rugged individualism, and today that has evolved into a culture of narcissism. But God didn’t create you to live for you. If you want to follow Jesus, you have to put aside your selfish ambition.
+ - The more God gives you, the more responsible he expects you to be.
+ - Use ‘breath prayers’ throughout the day, as many Christians have done for centuries. You choose a brief sentence or a simple phrase that can be repeated to Jesus in one breath.
+ - Much of what happens in our world is evil and bad, but God specializes in bringing good out of it.
+ - There’s never going to be peace in the world until there’s peace in nations. There’s never going to be peace in nations till there’s peace in communities and families and in individual lives.
+ - I absolutely believe that people should show respect to everybody, regardless of their lifestyle, regardless of their beliefs, religious beliefs or any other kind of belief.
+ - Focusing on ourselves will never reveal our life’s purpose.
+ - Two thousand years ago, in the Middle East, an event occurred that permanently changed the world. Because of that event, history was split. Every time you write a date, you’re using the Resurrection of Jesus Christ as the focal point.
+ - I forgive. First, because I’ve been forgiven by God. Second, unforgiveness makes me miserable. And third, I’m going to need more forgiveness in the future. So we don’t forgive for their benefit. We actually forgive for ours.
+ - To me, God says, “I’ve given you this gift of grace, which means you don’t earn your way to heaven. You don’t work your way to heaven. You simply receive my gift.”
+ - We take ourselves way too seriously, and we don’t take God seriously enough. It is not by accident that humor and humility come from the same root word. If you can laugh at yourself, you’ll always have plenty of good material.
+ - Significance in life doesn’t come from status, because you can always find somebody who’s got more than you. It doesn’t come from sex. It doesn’t come from salary. It comes from serving.
+ - Because every day of your life was written on God’s calendar before you were born, everything that happens to you has spiritual significance.
+ - Almost nobody gives thanks to God at Thanksgiving, unless there’s a short prayer before we eat.
+ - The bible says that all people, not just believers, possess part of the image of God; that is why murder and abortion are wrong.
+ - Marriage doesn’t create problems. It reveals them. You bring unresolved stuff into it.
+ - I don’t think gay marriage is any threat to marriage. I think divorce is a bigger problem to marriage than anything else.
+ - I invite you to bow your head and quietly whisper the prayer that will change your eternity: Jesus I believe in you and I receive you.
+ - I’d rather live dangerously for Jesus than exist safely for people’s approval.
+ - Because God is love, the most important lesson he wants you to learn on earth is how to love.
+ - There’s a difference between freedom of worship and freedom of religion. Worship is an event that happens inside the house of worship. Religion is a lifestyle. It is a way of living.
+ - The heart of the issue is an issue of the heart. And that’s why I’m a pastor, not a politician. Because I think only – only God can change hearts. And only God can take the evil out. I don’t think you can legislate the evil out of people.
+ - In Psalm 72, Solomon prays for power and fame but he says the purpose of influence is to speak up for others and one is the immigrant. He doesn’t delineate between legal and illegal.
+ - Without implementation, all of our Bible studies are worthless.
+ - Lust is raw selfishness. It’s all about my wants, my needs, my pleasure. Most love songs are actually lust songs.
+ - I happen to know people who are followers of Christ in other religions.
+ - God intentionally allows you to go through painful experiences to equip you for ministry to others.
+ - In every growing church you will find leadership that is not afraid to believe God.
+ - Paul says that as Christians we can rejoice even in tough times because we have hope and because we know that God is working in our lives.
+ - God uses the opposite situation of each fruit to allow us a choice. You can’t claim to be good if you have never been tempted to be bad.
+ - God made every one of us a sexual being, and that is good. Attraction and arousal are the natural, spontaneous, God-given responses to physical beauty, while lust is a deliberate act of the will.
+ - You can’t make a life without making mistakes. Relax and learn something.
+ - Everybody wants confidence but you don’t find it in self help books. You find confidence in the Holy Spirit.
+ - We’re a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.
+ - Then Jesus changed the situation. When he paid for our sins on the cross, the veil in the temple that symbolized our separation from God was split from top to bottom, indicating that direct access to God was once again available.
+ - I don’t care whether you’re Baptist, Buddhist, Mormon, Methodist, Jewish, Muslim, or no religion at all. Jesus Christ still loves you. You still matter to God.
+ - The Bible says that evil cannot be negotiated with. It has to just be stopped.
+ - Learning to love unselfishly is not an easy task. It runs counter to our self-centered nature.
+ - Self worth and net worth are not the same.
+ - Delays are as much a part of God plan as answered prayers. God wants you to trust him.
+ - America was founded by religious people, devout people who came here because they wanted freedom of religion. It’s what made America different from every other country.
+ - Many people allow their need for other people’s approval to control their lives. They spend their lives worrying about what others think of them.
+ - People respond to vision, not need.
+ - We are only fully alive when we’re helping others.
+ - If you prayed as much as you complain and quarrel, you’d have a lot less to argue about and much more peace of mind.
+ - People aren’t things to be molded; they are lives to be unfolded. And that’s what true leaders do. They unfold the lives of others and help them reach their God-given potential.
+ - Since God intends to make you like Jesus, he will take you through the same experiences Jesus went through. That includes loneliness, temptation, stress, criticism, rejection, and many other problems.
+ - If we condone torture, we yield the moral high ground to our enemies and encourage anyone who hates us to stoop to using that subhuman level against us. We reap whatever we sow.
+ - When God gives, he holds nothing back.
+ - Some opportunities are a calling. Others are a distraction. Just because you can do something doesn’t mean you should.
+ - God doesn’t intend for you to handle all the pain and stress in your life by yourself. We were wired for each other. We need each other.
+ - I’m not looking for peace on earth through a political solution. I’m a pastor. The Bible talks about three kinds of peace. There is peace with God. There’s the peace of God. And there’s peace with each other.
+ - Christians can be positive even in a negative situation because we know God has a purpose for allowing that problem.
+ - Where the grass is greener, the water bill is bigger.
+ - Some people want tolerance to mean now that all ideas are equally valid. That’s nonsense. There are some things that are right and there are some things that are wrong.
+ - The key is really just saying my brain isn’t big enough to figure out why everything happens. It would be like an ant trying to understand the internet.
+ - In the end we must be merciful to the fallen, show grace to struggling, and be patient with the doubting. But when God’s Word is clear we must not-and we cannot-back up, back off, back down, back out, or backslide from the truth.
+ - You don’t bring glory or pleasure to God by hiding your abilities or by trying to be someone else. You only bring him enjoyment by being you.
+ - You didn’t create yourself, so there is no way you can tell yourself what you were created for.
+ - I think any apparent contradiction in scripture is my limited capacity. Me trying to understand God is like an ant trying to understand the Internet. I don’t have the brain capacity.
+ - AIDS is the leprosy of the 21st Century. Where did Jesus hang out? With lepers. Jesus would love on people with AIDS.
+ - Jesus has not promised to build your ministry; he has promised to build his church.
+ - When you jump across a canyon, cautious small steps and vacillation won’t work. Sometimes you just have to go for it.
+ - Three enemies that will weaken your ministry over time: Self-indulgence, bitterness, and carelessness. Strong people discipline their desires, restrain their reactions, and keep their commitments.
+ - I am opposed to the redefinition of marriage.
+ - Our hope is not in the man we put in the White House but in the Man we put on the Cross.
+ - I think we live in a pluralistic society where we have to get along with each other and show common grace to each other.
+ - Life is a school and problems are the curriculum.
+ - The ultimate goal of the universe is to show the glory of God.
+ - Character is never built in a classroom; it is built in the circumstances of life.
+ - That’s the big difference between Christianity and other religions. The difference between Works and Grace or Do and Done.
+ - In Eden, worship was not an event to attend, but a perpetual attitude.
+ - The mission of Tom Peterson and Catholics Come Home to bring souls home to Jesus and the church is critically important during this challenging time in our history. I fully support this New Evangelization project.
+ - We discover that meaning and purpose only when we make God the reference point of our lives.
+ - When you win, don’t swagger. When you lose, don’t sulk.
+ - I’m not looking for peace on earth, though, through a political solution. I’m a pastor.
+ - Even a broken tree can bear fruit.
+ - When the Christian praises and gives thanks to God, this not only pleases God, but it enriches the Christian’s life with joy. It is a reciprocating transaction between God and man.
+ - We don’t praise God to feel good, but to do good.
+ - A dad stands tallest when he kneels to pray with his children.
+ - The things you’re most embarrassed about, most ashamed of, and most reluctant to share are the very tools God can use most powerfully to heal others.
+ - Jesus meets every one of our deepest needs. And what we need to do is accept his gift of a pastor-given, purposeful living home in heaven.
+ - You’ve got a lot to look forward to in Heaven. Compared to what’s in store for you in Heaven, your current pain and problems are petty.
+ - Faith in Jesus must be personal but it cannot be private.
+ - If what I do pleases God, it is always the right thing to do, and I can stop worrying about everyone else’s reactions. This dramatically simplifies life.
+ - Absolutely nothing will revitalize a discouraged church faster than rediscovering it’s purpose.
+ - If you always feel comfortable reading God’s Word, you’re either not reading ALL of it, or you aren’t letting it sink in.
+ - But dogs, which have no ability to sin nor moral conscience, do not have an ability to reject Jesus.
+ - Explanations don’t comfort. You won’t feel better if you know why. It won’t hurt any less.
+ - Great opportunities are often disguised as small acts of service.
+ - The way God teaches us to live by faith is He takes away our feelings.
+ - Every temptation is an offer to doubt God’s love and wisdom.
+ - Nothing works perfectly. The weather doesn’t work perfectly. Because of sin in the world, nothing works perfectly. But in spite of that we can find comfort. We can find strength.
+ - Help us, oh God, to remember that we are Americans. United not by race or religion or by blood, but to our commitment to freedom and justice for all. When we focus on ourselves, when we fight each other, when we forget you, forgive us.
+ - God didnt put you on earth just to read about what others do. He made you TO DO some things others will want to read about!
+ - As long as you pretend to be self-sufficient, you short-circuit God’s power in your life. You need to admit your inadequacy and say, “God, I can’t handle this!”
+ - The most common way Jesus comes into our lives is through a broken heart.
+ - Receiving, reading, researching, remembering, and reflecting on the Word of God are all useless if we fail to put what we learn into practice.
+ - Knowing you’re a child of the creator of the universe changes everything.
+ - I have always been blessed with an enormous amount of energy. And so I didn’t take care of my health at all.
+ - The Bible says that governments can do things that I’m not supposed to do as an individual. God has not put the law in my hands. He’s put the law in the government’s hands.
+ - I don’t believe my interpretation’s inerrant. I don’t believe anybody else’s interpretation is inerrant, but I do believe the scripture is inerrant. I believe in the plenary, verbal plenary inspiration of scripture, without a doubt.
+ - Every human activity, except sin, can be done for God’s pleasure, if you do it with an attitude of praise.
+ - And you know, when you’ve experienced grace and you feel like you’ve been forgiven, you’re a lot more forgiving of other people. You’re a lot more gracious to others.
+ - Instead of focusing on that unappeasable person, refocus on Jesus, who accepts you unconditionally.
+ - A life that is never willing to change is a great tragedy – a wasted life. Change is a necessary part of a growing life, and we need change in order to remain fresh and to keep progressing.
+ - I can’t imagine God not allowing my dog into heaven.
+ - It seems we are often guilty of being more interested in defending God’s Word than in studying it.
+ - What you BECOME on earth matters far more than what you DO. You’re taking your character to heaven, not your career.
+ - I’m not getting to heaven on my integrity. I’m not getting to heaven on my goodness.
+ - I believe in the separation of church and state, but I do not believe in the separation of politics from religion.
+ - Law is downstream from culture. By the time you make a law about something, you’re reacting, not acting. I’d rather shape the culture.
+ - War is and always has been a brutal exercise that destroys lives, families and communities. It is never something for which we hope.
+ - Obviously there have been historically many different theories of the atonement and I think each of them has a part. But I think fundamentally it is the substitutionary understanding that God – Jesus took our payment and you can’t understand.
+ - I don’t personally have enough faith to be an atheist.
+ - You cannot exalt God and yourself at the same time.
+ - It takes no courage to say or do what’s popular.
+ - God is far more interested in what you are than who you are.
+ - The fact is, you can say you love God and sing that you trust God and put him first, but your checkbook is where you can show just how much God’s grace means to you.
+ - The Constitution does not guarantee freedom of worship. It guarantees freedom of religion. And this is what I call America’s first freedom.
+ - Satan doesn’t mind you using your strengths, so long as you do it for personal benefits.
+ - The church must always show compassion, always.
+ - Christians ought to have a reputation for being the most dependable people at work. They are always aware of who their true boss is.
+ - I’ve always said the shoes must never tell the foot how big to be.
+ - God never does anything accidentally...
+ - Who are you going to live for – yourself or God?
+ - We receive God’s grace by humbly admitting that we need it.
+ - There’s much you can’t change, but there’s something important you can change: you.
+ - You can’t grow strong without resistance.
+ - Nothing else you do will ever matter as much as helping people establish an eternal relationship with God.
+ - You may have done some really nifty things in life, but if you think they’re going to get you into Heaven, forget it. The only way any of us are going to get in is by receiving God’s gift of grace, which is available to every person.
+ - We’re not completely happy here because we’re not supposed to be!
+ - Never use prayer as an excuse to procrastinate doing what you already know is the right thing to do.
+ - The actual number of atheists is quite small outside of Europe and Manhattan.
+ - I think a lot of times God takes away your feelings, so you have to depend on faith. And faith is kind of like a tide. It rolls in and rolls out.
+ - It’s easy to demonize from a distance.
+ - I’m naturally inclined to have sex with every beautiful woman I see. But that doesn’t mean it’s the right thing to do.
+ - A church will never grow beyond its capacity to meet needs.
+ - Let your broken heart create an open heart.
+ - The truth is, almost everything we do is done poorly when we first start doing it – that’s how we learn.
+ - In 30 years of travel and training leaders -164 nations – I’ve never met anyone who didn’t need massive doses of love.
+ - If you try to serve people, it impresses them. If you try to impress people it irritates them.
+ - I just think the Internet has made us ruder.
+ - Ministry is received, not achieved.
+ - Now God has never shouted out to me. I’ve never heard God speak audibly. He doesn’t have to.
+ - What matters in life is not so much what happens to us, but what happens in us.
+ - There’s not a person on earth that God doesn’t love, but God wants us to learn to love him back.
+ - Resentment always hurts you more than the person you resent.
+ - If it grows on a plant, it’s healthy. If it’s made in a plant, don’t eat it.
+ - I added up all the money the church paid me for the first 25 years and gave it all back.
+ - Small churches become more effective when they specialize in what they do best.
+ - The books that have helped me most are the ones I reacted to, not just read.
+
+500 quotes

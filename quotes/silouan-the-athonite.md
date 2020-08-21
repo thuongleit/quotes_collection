@@ -1,0 +1,20 @@
+ - The humble soul is blessed. The Lord loves her. The Mother of God is higher than all in humility, and therefore all races bless her on earth, while the heavenly powers serve her. And the Lord has given us this blessed Mother of His as a defender and helper.
+ - With all your power, ask the Lord for humility and brotherly love, because God freely gives His grace for love towards one’s brother. Do an experiment on yourself: one day ask God for love towards your brother, and another day – live without love. You will see the difference.
+ - Whoever will not love his enemies cannot know the Lord and the sweetness of the Holy Spirit. The Holy Spirit teaches us to love our enemies in such way that we pity their souls as if they were our own children.
+ - The Lord loves all people, but He loves those who seek Him even more. To his chosen ones the Lord gives such great grace that for love they forsake the whole earth, the whole world, and their souls burn with desire that all people might be saved and see the glory of the Lord.
+ - We have such a law: If you forgive, it means that God has forgiven you; but if you do not forgive your brother, it means that your sin remains with you.
+ - If you see a man who has sinned and you do not pity him, the grace of God will leave you. Whoever curses bad people, and does not pray for them, will never come to know the grace of God.
+ - By obedience a man is guarded against pride. Prayer is given for the sake of obedience. The grace of the Holy Spirit is also given for obedience. This is why obedience is higher than prayer and fasting.
+ - We suffer because we have no humility and we do not love our brother. From love of our brother comes the love of God. People do not learn humility, and because of their pride cannot receive the grace of the Holy Spirit, and therefor the whole world suffers.
+ - The Lord does not show Himself to a proud soul. The proud soul, no matter how many books it reads, will never know God, since by its pride it does not give place for the grace of the Holy Spirit, while God is known only by the humble soul.
+ - In order to abide in the love of God it is essential for anger and ‘hate’ to attain their maximum intensity but be directed against the sin that lives in me, against the evil active in me – in me, not in my brother.
+ - Some suffer much from poverty and sickness, but are not humbled, and so they suffer without profit. But one who is humbled will be happy in all circumstances, because the Lord is his riches and joy, and all people will wonder at the beauty of his soul.
+ - You must teach yourself how to eat less, but with discernment, insofar as your work allows. The measure of temperance should be such that after lunch you want to pray.
+ - If a man does not tell everything to his spiritual father, then his path is crooked and does not lead to the Kingdom of Heaven. But the path of one who tells everything leads directly to the Kingdom of Heaven.
+ - The saints were people like all of us. Many of them came out of great sins, but by repentance they attained the Kingdom of Heaven. And everyone who comes there comes through repentance, which the merciful Lord has given us through His sufferings.
+ - Don’t be troubled if you don’t feel the love of God in yourself, but thing about the Lord, that He is merciful, and guard yourself from sins, and the grace of God will teach you.
+ - Whoever has known the love of God loves the whole world and never murmurs against his fate, for the burden of sorrow for the sake of God gains eternal joy.
+ - When God wants to have mercy on someone, He inspires someone else to pray for him, and He helps in this prayer.
+ - Understand two thoughts, and fear them. One says, “You are a saint,” the other, “You won’t be saved.” Both of these thoughts are from the enemy, and there is no truth in them. But think this way: I am a great sinner, but the Lord is merciful. He loves people very much, and He will forgive my sins.
+
+18 quotes

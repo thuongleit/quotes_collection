@@ -1,0 +1,56 @@
+ - Who cares what you are just enjoy it!
+ - I’ve always thought that less was a lot more.
+ - I am no size zero or super-thin Hollywood actress. I am built for men who like women to look like women.
+ - Practically all the relationships I know are based on a foundation of lies and mutually accepted delusion.
+ - Your dressing area should be your private space.
+ - Really rejoice in being yourself. Have your own drumbeat.
+ - I exercise as much as I can. If I don’t exercise, I feel sluggish. i try to do 30 minutes a day.
+ - I like movies I can relate to.
+ - I’m certainly not a prude.
+ - When I feel lost and can’t make a decision, I just stop and get quiet. I take a time-out.
+ - It’s your body, your life. Do what you want to do.
+ - I have a very healthy dose of self-loathing. But I think we all have a past of being whatever our story was, of feeling not good enough. It can propel you to work harder and do more, but it can also be a tremendous trap, and you cant see beyond it.
+ - I’m a trisexual. I’ll try anything once.
+ - I sort of have a love affair with my work. Many of us work far too hard and we don’t put enough value in the epicurean, sensual part of life.
+ - I had a great time in my youth and I still feel youthful. I’ve no desire to look as though I’m in my 20s.
+ - I try not to listen to the shoulds or coulds, and try to get beyond expectations, peer pressure, or trying to please – and just listen. I believe all the answers are ultimately within us.
+ - I prefer younger men. In some ways, they are much more open to a woman being stronger and independent then some of the men my age.
+ - I’ve learned that I can’t have a packed work schedule and a packed social schedule and a packed personal life; I need to just have time to myself to sit and breathe and unwind.
+ - At the beginning of every role I take, I have to start from basics and build it up. It’s like a new construction.
+ - When you’re filming, you work 19-hour days and you know more about what’s going on with your crew and co-workers than you do with your husband. You’re away, you miss things. It’s taxing. Relationships fail because of it.
+ - There are many ways to be a mother. I have a lot of young actors I mentor, and my nieces and my nephews need a lot of love.
+ - I don’t know many women who can relate to Sharon Stone and the kind of movies she does. I don’t know a lot of guys who can relate to Tom Cruise’s movies because they’re on a kind of fantastic level.
+ - Art is an expression of who you are. Parts that I play are my sculptures.
+ - Whenever I go to bars in London, people send me over Cosmopolitans. It’s a very sweet gesture, but I don’t like them, so they just sit there.
+ - I’ve been playing sexually aware women most of my life. At this point I expected to be playing moms and wives. It’s exciting to play a femme fatale.
+ - Being a gossip reporter just isn’t a respectable job. It’ll chew you up and spit you out.
+ - Imagination helps me to become part of that journey that I’m going through in font of the camera, or in front of an audience. I used to think you had to disappear within a character, but I find that puts a mask on what I do.
+ - The chemistry among the four of us is very strong.
+ - Vulcans are so smart. There’s no excess; it’s just enough. I learned coming away from the film that less really is much more. Sometimes, as a human, you get so discombobulated with emotions, but this was easier, because it was s o clean to play.
+ - You have to be desirable. And that’s why so many woman of my age or even younger are pushed to Botox and plastic surgery, all the things that people say, ‘Why do women do this?’ Where do you go in your 50s in your career?
+ - In my life and career I want to embrace ageing because I think that’s what’s interesting.
+ - If you stick with a vision, it might not all work, but some of it will be absolute genius. To me, 15 minutes worth of absolute genius in a film is so much better than two hours of mediocrity. I would rather pay to see something different like that.
+ - I always assumed that like my mother before me, one day I would have children.
+ - My experiences in film and theatre in the States have been much more rigorous-in England there’s an environment of, Let’s try this.
+ - I like my life. It’s good.
+ - I’m not a personality actress. I never have been. I have been a character actress.
+ - Being a biological mother just isn’t part of my experience this time around. However, I am a mother who continues to give birth to ideas and ways of experiencing life that challenge the norm.
+ - I don’t read reviews because if they’re bad I’m devastated and if they’re good I get a big head.
+ - Theatre can’t be done again and again and again and again – it’s organic.
+ - Having my priorities in order has really helped me look better, fresher, and more relaxed.
+ - The roles for women in theatre are much better than they are in film.
+ - I’m so lucky to have a career in my fifties. And to still have the desire to do it. I don’t think about retirement.
+ - I haven’t played a lot of wallflowers but I have played women who have been vulnerable.
+ - When I see a woman who looks her age, she’s radiating something, and it’s life.
+ - I think the wonderful thing about doing theater is that it’s more of an actor’s medium. I think that film is more of a director’s medium. You can’t edit something out on stage. It’s there.
+ - The first professional play I ever saw was The Importance Of Being Earnest, and I just fell in love.
+ - I first wanted to be an actress after seeing a play – not a movie.
+ - My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.
+ - I’m smart with my money, I invest conservatively. I don’t mind paying top-dollar, but I don’t want to get ripped off.
+ - I realized that so much of the pressure I was feeling was from outside sources, and I knew I wasn’t ready to take that step into motherhood. Being a biological mother just isn’t part of my experience this time around.
+ - In film, the possibilities are greater. You can go beyond the fourth wall. You can go to these incredible locations and you’re put into circumstances that are physically sensuous. It sometimes requires much more of a physical talent.
+ - Talented people are written off once they hit their 50s and 60s, and the saddest thing is, we just get better as we get older.
+ - When I got out of my Twenties I stopped playing women that were victims. I like playing women who are strong and have a piece of mind.
+ - That’s what life is – you follow where your heart leads you – at least I do.
+
+54 quotes

@@ -1,0 +1,33 @@
+ - I’m not a completely closed book; I’m a social person and if I see something worth sharing, I’m happy to do that.
+ - Nobody wants to know what I’m doing 24 hours a day, they’d be painfully bored, trust me. At the same time, if I’m doing something interesting or funny, I like being able to share that with my fans.
+ - I love football and beer and have a normal girlfriend.
+ - Everybody’s got regrets. Everybody’s made mistakes. Nobody’s perfect.
+ - I grew up like Huck Finn, always outdoors, exploring, collecting frogs – there was space everywhere. I want my kids to experience that too. I love being outside.
+ - My parents are divorced, and that was the last thing I wanted for myself. I waited until I was 36 to propose, and I’m really proud of that.
+ - Adopted pets are the best pets you can have. Most adoptable pets come from loving homes that simply cannot care for them anymore. Or, they are strays who’ve been on their own without the loving care they deserve.
+ - They tell you that at his age, all they do is eat, sleep, and poop. And what I’ve learned is they can actually do all three at the same time. Who knew?
+ - Relationships, if you want them to work, take work. The biggest thing that I learned growing up, and even now, is if it’s right, it’s worth it. It’s just a matter of finding that person you want to be with.
+ - There’s a tendency to fall into certain habits, but if you tell yourself not to do that and if you don’t stay there too long – I think if you start staying for too long, you tend to fall into certain bad habits, and I tried not to do that.
+ - You have to be a pretty miserable person to not enjoy making movies. It’s something I always dreamed about. I do not take it for granted.
+ - I’m sort of an old man, always tinkering in the backyard. Since I grew up playing outdoors, I still like to plant things, sit out on the deck, or go hiking.
+ - I’ve always wanted to be a dad. I just can’t wait to have a little rug rat running around. I used to want five or six kids, but maybe I’ve become too self-absorbed over the years. I think two would be perfect.
+ - I want to do good work, but having kids and a life outside of that is important, too. If you don’t have anybody around who loves you, then what’s it all for? You’re just lonely in the end.
+ - At one point that’s all I cared about, being a pro athlete. But I realized I wasn’t athletic enough.
+ - Everybody’s got regrets. It’s a personal choice as to whether or not you can change.
+ - I’m a glutton for coffee Heath Bar crunch ice cream.
+ - I feel sexiest when I can make you laugh.
+ - Fergie will sing ballads to the dogs and they’ll sit there rapt. You know your wife’s a star when she keeps the dogs entertained for 20 minutes.
+ - When I was on ‘All My Children,’ we did a thing for ‘Seventeen Magazine’ where a girl won a date. I went to her prom with her in Alabama, and she was a sweetheart. I didn’t move to Alabama and I didn’t buy a farm there, but we still keep in touch.
+ - I’m working on inventing an aerosol spray that repels papparazi. I haven’t perfected it but when I do I will make millions.
+ - Soap operas are such a great way to break-in to the industry. The diminishing landscape of daytime TV means its going to be harder for young talent to get discovered.
+ - I don’t know who came up with this push present idea, but I think it’s probably a female.
+ - My wife and I like to go to church if we’re in town. On Sundays, I try to be as chill as I can, whether I’m watching golf or barbecuing.
+ - The thing I can say about all this stuff that’s going on right now is that I appreciate it.
+ - I made a conscious effort that I just wanted to work with people that were going to make me better and that was the main thing – writers, directors, in whatever medium.
+ - It’s all about whatever enriches you. If you decide to go the domestic route and get married and all those things, it makes you a better actor.
+ - Finally, you get the job, and you think you’ll be dancing on the ceiling, but I just wanted to go take a nap. It was just like a weight had been lifted off or something.
+ - I think Paul Newman had an amazing career. I also love what Tom Hanks has done. He has always made very grounded movies that have something to say. He has found a way to make blockbusters that are about something and that is what I want to do.
+ - When I first started, I wasn’t really into movies that much unless it was an action-packed gunslinger with naked women here and there.
+ - I really feel like a regular dude who happens to be incredibly lucky.
+
+31 quotes

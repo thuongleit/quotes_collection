@@ -1,0 +1,49 @@
+ - You are not entitled to your opinion. You are entitled to your informed opinion. No one is entitled to be ignorant.
+ - The two most common elements in the universe are hydrogen and stupidity.
+ - The trick is not becoming a writer. The trick is staying a writer.
+ - They minute people fall in love they become liars.
+ - I’m nothing. Nothing at all without writing. Without truth, my truth, the only truth I know, it’s all a gambol in the pasture without rhythm or sense.
+ - My philosophy of life is that the meek shall inherit nothing but debasement, frustration, and ignoble deaths.
+ - The real name for ‘science’ is magic.
+ - You’re a writer. And that’s something better than being a millionaire. Because it’s something holy.
+ - If you make people think they’re thinking, they’ll love you; but if you really make them think, they’ll hate you.
+ - I have no mouth. And I must scream.
+ - Like a wind crying endlessly through the universe, Time carries away the names and the deeds of conquerors and commoners alike. And all that we were, all that remains, is in the memories of those who cared we came this way for a brief moment.
+ - The act of writing means you wish to communicate. Whether you’re writing a memoir for yourself you put in a drawer, or you write a poem and you send it to a little magazine, or you write for publication, it always means – the form follows function.
+ - Writing is the hardest work in the world. I have been a bricklayer and a truck driver, and I tell you – as if you haven’t been told a million times already – that writing is harder. Lonelier. And nobler and more enriching.
+ - Now begin in the middle, and later learn the beginning; the end will take care of itself.
+ - I am not one of these people who instantly takes umbrage when he’s corrected or – I love being corrected.
+ - Thank your readers and the critics who praise you, and then ignore them. Write for the most intelligent, wittiest, wisest audience in the universe: Write to please yourself.
+ - To say more, is to say less.
+ - When you’re a writer, you have to have the passion and the skill and the craft. It’s not just enough to have the passion. You’ve gotta have all three.
+ - I don’t mind you thinking I’m stupid, but don’t talk to me like I’m stupid.
+ - I was the green monkey, the pariah. And I had no friends. Not just a few friends, or one good friend, or grudging acceptance by other misfits and outcasts. I was alone. All stinking alone, without even an imaginary playmate.
+ - I see all. I hear all. I know all. And I spend a great deal of time in the bathroom.
+ - The ability to dream is all I have to give. That is my responsibility; that is my burden. And even I grow tired.
+ - You must never be afraid to go there.
+ - Posing the question: does the god of love use underarm deodorant, vaginal spray and fluoride toothpaste?
+ - I think love and sex are separate and only vaguely similar. Like the word bear and the word bare. You can get in trouble mistaking one for the other.
+ - I usually say I write for the smartest, cleverest, wittiest audience I know, and that’s me.
+ - Because the chief commodity a writer has to sell is his courage. And if he has none, he is more than a coward. He is a sellout and a fink and a heretic, because writing is a holy chore.
+ - Don’t start an argument with somebody who has a microphone when you don’t. They’ll make you look like chopped liver.
+ - When belief in a god dies, the god dies.
+ - The world is turning into a cesspool of imbeciles.
+ - I refuse to write the same story twice. I keep experimenting. I keep learning how to work. I’ve been at it pretty much 50 years, and I’m now beginning to learn how to do the job well.
+ - I am responsible for myself. I am exactly who I eventually wanted myself to be, I guess, without consciously knowing what I wanted me to be.
+ - Writing is a holy chore.
+ - People don’t die from the old diseases any more. They die from new ones, but that’s Progress, isn’t it? Isn’t it?
+ - Love ain’t nothing but sex misspelled.
+ - Get a day job, make your money from that, and write to please yourself.
+ - If you let the image of the messenger get in the way of whatever message there may be, however large or small, that’s your problem, not his.
+ - I hate being wrong, but I love it when I’m set straight.
+ - I made as many mistakes as anybody else. I sound as if I’m an egomaniac, and I suppose in some ways I’m filled with hubris because I know how good I am at certain things. But other things, I can’t do at all. I can’t draw.
+ - I never send a story off until I have read it aloud to at least two or three people. Because when I read – and I don’t need their criticism, what I need is my own – when I read it aloud, there is a flow, there is a poetry to it.
+ - K is for “Kenghis Khan”; He was a very nice person. History has no record of him. There is a moral in that, somewhere.
+ - For the first time we have a weapon that nobody has used for thirty years. This gives me great hope for the human race.
+ - They change scapegoats at the networks more regularly than some people change socks.
+ - Thus, from admiration of one wise and innocent child, and from a misheard remark, the process that not even Aristotle could codify was triggered. Where do you get your ideas? I purposely mishear things.
+ - Any writer who pretends to a disaffection for recognition, I think they’re being duplicitous.
+ - There in the midst of the Amazon Jungle, Simon Haskell has cobbled up for himself a replica of an Art Deco salon.
+ - You can live in your dreams, but only if you are worthy of them.
+
+47 quotes

@@ -1,0 +1,48 @@
+ - Transformation is a journey without a final destination.
+ - No one can persuade another to change. Each of us guards a gate of change that can only be opened from the inside. We cannot open the gate of another, either by agreement or by emotional appeal.
+ - The other side of every fear is a freedom.
+ - Your past is not your potential. In any hour you can choose to liberate the future.
+ - If we continue to believe as we have always believed, we will continue to act as we have always acted. If we continue to act as we have always acted, we will continue to get what we have always gotten.
+ - We have two strategies for coping; the way of avoidance or the way of attention.
+ - Making mental connections is our most crucial learning tool, the essence of human intelligence; to forge links; to go beyond the given; to see patterns, relationships, context.
+ - The difference between transformation by accident and transformation by a system is like the difference between lightning and a lamp. Both give illumination, but one is dangerous and unreliable, while the other is relatively safe, directed, available.
+ - Mystical experiences nearly always lead one to a belief that some aspect of consciousness is imperishable. In a Buddhist metaphor the consciousness of the individual is like a flame that burns through the night. It is not the same flame over time, yet neither is it another flame.
+ - The most disturbing and wasteful emotions in modern life, next to fright, are those which are associated with the idea of blame, directed against the self or against others.
+ - Real progress in understanding nature is rarely incremental. All important advances are sudden intuitions, new principles, new ways of seeing.
+ - Things fall apart, so they can fall together at a higher level of order.
+ - Of all the self-fulfilling prophecies in our culture, the assumption that aging means decline and poor health is probably the deadliest.
+ - Health and disease don’t just happen to us. They are active processes issuing from inner harmony or disharmony, profoundly affected by our states of consciousness, our ability or inability to flow with experience. This recognition carries with it implicit responsibility and opportunity.
+ - Fear is a question What are you afraid of, and why? Just as the seed of health is in illness, because illness contains information, your fears are a treasure house of self-knowledge if you explore them.
+ - Our past is not our potential.
+ - Our biggest failure is our failure to see patterns.
+ - Over the years your bodies become walking autobiographies, telling friends and strangers alike of the minor and major stresses of your lives.
+ - Risk always brings its own rewards: the exhilaration of breaking through, of getting to the other side; the relief of a conflict healed; the clarity when a paradox dissolves.
+ - The beginning of personal transformation is absurdly easy. We have only to pay attention to the flow of attention itself.
+ - We live what we know. If we believe the universe and ourselves to be mechanical, we will live mechanically.
+ - The spiritual quest begins, for most people, as a search for meaning.
+ - If the King’s English was good enough for Jesus, it’s good enough for me!
+ - Before we choose our tools and technology, we must choose our dreams and values, for some technologies serve them, while others make them more unobtainable.
+ - An atmosphere of trust, love, and humor can nourish extraordinary human capacity. One key is authenticity: parents acting as people, not as roles.
+ - By definition, revolutions are not linear, one step at a time, event A leading to event B, and so on. Many causes operate on each other at once. Revolutions shift into place suddenly, like the pattern in a kaleidoscope. They do not so much proceed as crystallize.
+ - If we are to find our way across troubled waters, we are better served by the company of those who have built bridges, who have moved beyond despair and inertia.
+ - War is unthinkable in a society of autonomous people who have discovered the connectedness of all humanity, who are unafraid of alien ideas and alien cultures, who know that all revolutions begin within and that you cannot impose your brand of enlightenment on anyone else.
+ - We live what we know. If we believe the universe and ourselves to be mechanical, we will live mechanically. On the other hand, if we know that we are part of an open universe, and that our minds are a matrix of reality, we will live more creatively and powerfully.
+ - Love is a context, not a behavior.
+ - The creative process requires chaos before form emerges.
+ - Sometimes in astronomy, a heavenly body has been virtually invisible until a single observer detects its presence and points it out to his colleagues, who then see it with increasing clarity. Perhaps a myriad of unknown senses are only awaiting our consciousness.
+ - When one begins the transformative process, death and birth are imminent: the death of custom as authority, the birth of the self.
+ - Although most of us are complacent in our assumption that science is gaining on the unknown, scientists are acknowledging that man’s own brain is complex beyond any hope of complete understanding.
+ - So long as we need to control other people, however benign our motives, we are captive to that need. In giving them freedom, we free ourselves.
+ - Spirituality is a kind of virgin wisdom, a knowing that comes prior to experience.
+ - Whatever the rationale, the suppression of unorthodox cancer therapies and the sustained persecution of their proponents by government and colleagues runs counter to freedom of thought, much less freedom of choice.
+ - Never have so many been so high so often. When a Boston research group decided to compare the effects of marijuana on experienced and inexperienced users, it took them two months to line up nine student subjects who had never used marijuana.
+ - New perspectives give birth to new historic ages. Humankind has had many dramatic revolutions of understanding – great uses of fire and the wheel, language and writing. We found that the earth only seems flat, the sun only seems to circle the earth, matter only seems solid.
+ - Martin Buber said he sensed a rising hunger for relatedness Men would no longer rise in rebellion merely against one oppressor or another but against the distortion of a great yearning, ‘the effort towards community.’
+ - The brain’s calculations do not require our conscious effort, only our attention and our openness to let the information through. Although the brain absorbs universes of information, little is admitted into normal consciousness.
+ - A fully functioning employee with a healthy self-image is money in the bank.
+ - Many artists have said that when life itself becomes fully conscious, art as we know it will vanish.
+ - The person and society are yoked, like mind and body. Arguing which is more important is like debating whether oxygen or hydrogen is the more essential property of water.
+ - Cynics know the answers without having penetrated deeply enough to know the questions. When challenged by mysterious truths, they marshall ’facts.
+ - Uncertainty is the necessary companion of all explorers.
+
+46 quotes

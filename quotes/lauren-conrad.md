@@ -1,0 +1,160 @@
+ - Like everybody and trust no one.
+ - Tomorrow will be better.
+ - Sometimes, you just have to take a step back and realise what’s important in your life, what you can live with, and more importantly, what you can’t live without.
+ - My Dad always told me ‘Flowers mean I’m sorry, chocolates mean I love you.’
+ - You can waste so much energy trying to make everyone happy, but at the end of the day it’s impossible to please everyone, so you just need to focus on what makes you happy.
+ - Don’t cry over someone who wouldn’t cry over you.
+ - Some people are willing to betray years of friendship just to get a little bit of the spotlight.
+ - As people grow up, they realize it’s less important to have more friends and more important to have real ones.
+ - When you do multiple things you love, it doesn’t feel like work.
+ - Staying physically active – walking or running every day – and eating healthily is the best way to stay fit.
+ - Go with your gut, but use your head.
+ - There is never just one thing that leads to success for anyone. I feel it always a combination of passion, dedication, hard work, and being in the right place at the right time.
+ - If you’re putting your name on something, it’s really important to be a part of it, or else people will just do whatever they want with it. And then it’s not really you, and it won’t be true.
+ - The only thing left to do is forgive and forget. I want to forgive you and I want to forget you.
+ - I think that everyone can change if the right person comes along, and I think that every girl wants to be the right person.
+ - I just think love is stupid.
+ - Stay true to what you believe in and don’t let people try to change that direction. Don’t take ‘no’ for an answer.
+ - People are just obsessed with other people’s lives. I don’t know whether it’s kind of a way to escape their own, or something to follow I really couldn’t tell you.
+ - There’s always that one person that you always go back to.
+ - I’m my happiest when I’m really busy. I love feeling like I need one more hour of sleep, or when I’m running around frazzled!
+ - I think it’s definitely important to look like yourself on a date. You don’t want to look like someone else with too much makeup or too much hair.
+ - I learn a little more and I change a little bit.
+ - I really, really want to produce. That’s the top of my to-do list.
+ - Fitness is a luxury when you are busy!
+ - It’s hard to tell people who they should hang out with and who they shouldn’t, especially if they aren’t ready to hear that. You have to let your friends make their own mistakes sometimes. You can’t protect them from everything, or else they’ll never learn.
+ - There’s always that one guy that you will always go back to. Even though you date other people in between, you are always in the back of your mind hoping to run into that guy.
+ - I don’t think it’s about trusting people, it’s about knowing who to trust.
+ - You go to new places and it opens your eyes to different things you haven’t seen before. Everything from colors, to silhouettes, to patterns – it just comes from everywhere.
+ - In case you didn’t notice me, I’m the less attractive friend to the right.
+ - A true friend is someone who never gets tired listening to your pointless drama over and over again.
+ - I’m keeping my opinions to myself, they just get me in trouble.
+ - It’s always better to be the dumper than the dumpee.
+ - I would so much rather have a few of good friends than a lot of fake friends.
+ - I think a good friend, to me, is all about trust and loyalty. You don’t ever want to second-guess whether you can tell your friend something.
+ - As soon as you stop thinking about them, they’ll send you a text message or call you. Because they know you stopped thinking about them. It’s like a radar.
+ - Love is not a maybe thing, you know when you love someone.
+ - One way to stay grounded in the entertainment industry is to surround yourself with very good people that will constantly remind you how uncool you are.
+ - You have the rest of your life to be married. Enjoy falling in love. When girls get caught up in the timeline, it becomes more about the wedding than the marriage. You should be with someone with whom you could elope this weekend and be happy.
+ - I think that I get bored easily with things.
+ - It’s about empowering girls, You’re gonna have bad boyfriends and best friends-turned-enemies. You need to be yourself, you need to work hard, and you’ll get there.
+ - I think that it’s really nice to learn that makeup is different for every person. Everyone has a different feature on their face that they like to show off.
+ - As soon as I walk out that door, you’re gonna decide you want me back. You might even tell yourself that you’re in love with me. But you’re not. You never will be.
+ - It’s very hard to lose someone who’s the closest person to you in your life.
+ - I’m sure a lot of people don’t take me seriously.
+ - I’m not old-fashioned when it comes to dating, but there’s something nice about a guy pulling out a girl’s chair and opening the door for her, even if it’s just in the beginning.
+ - Being a good observer is a great tool to have as a writer, just taking the world in.
+ - I always think you can never go wrong with a cute party dress.
+ - I try really hard to separate myself from other celebrity brands.
+ - Anyone who knows me knows I can be a control freak with things I love doing. I love doing fashion and I love writing, so everything I’ve done I’m really involved with, so it’s not really work to me because I’m enjoying it.
+ - I never wanted to end up in entertainment; that wasn’t the goal.
+ - I’m a bad dater. I’m the most socially awkward person, like carrying on conversations and stuff.
+ - You don’t get that many people in your life that you can just tell anything to.
+ - You should have a guy that makes you feel happier, not upset. I don’t think that’s too much to ask for.
+ - Sometimes when you love people, you want to believe they’re good.
+ - Dates are always hard. You don’t want to be too dressed up or too casual.
+ - It just is what it is. It’s not always fair.
+ - Every girl wants to be the one girl that can change that guy.
+ - When you are looking to meet someone, you are looking to settle. Becaue you are not looking for someone, you are looking for anyone.
+ - The normal 21-year-old doesn’t have to worry about their night out being put on TMZ.
+ - Life isn’t an Island, you have to have other people in your life.
+ - Dating in Los Angeles can be hard, which makes it all the better when you meet a really nice guy.
+ - Being responsible for another human life terrifies me, because I kill plants.
+ - I make fun of guys when I like them. I act like I’m 10 years old. I do it as a test to see if they can laugh at themselves. If they get sensitive, then it’s like, ‘Um, this isn’t going to work.’
+ - There’s not a business or a master plan as far as I’m concerned. I take it week by week, and I don’t think you ever expect to be able to do the next thing.
+ - I’m not a sexy person. I’m OK with it. I’ve never been the sexy girl. Whenever I’ve had a boyfriend, he’s always been like, ‘Oh, you’re cute.’
+ - Look at me. Home boy wore combat boots to the beach. I know you don’t want to call that your boyfriend, I know you don’t.
+ - I used to think that diamonds were a girl’s best friend, but now I realize it’s carbohydrates. Seriously, I have a French baguette at home sporting a matching friendship bracelet.
+ - I grew up at the beach and I was always involved in beach clean-ups and caring for my environment.
+ - I grew up always knowing what I wanted to do, and I’m starting to see how rare that is. All of my friends are just figuring it out. It’s a process of elimination until you find what you love.
+ - I think that when you have kids, it’s all about them.
+ - When you’re growing up, you play dress-up – it’s a game, it’s a pastime. And then as you get older, getting ready and looking nice becomes this constant stress. I want to make it fun again.
+ - Dating is all about the chase. It’s fun!
+ - I go into meetings, and people have this preconceived notion of me that I didn’t work hard to get where I am.
+ - It’s a good thing to feel like you have to prove something.
+ - I don’t really have a talent. I can’t sing or act or dance or perform, those talents. All I can do is be myself.
+ - I’ve actually spent a lot of time researching beauty products, how they are produced and how they are sold.
+ - Anyway, he’s gone. Which, as you know, is how I like my men.
+ - I used to get taxed on my allowance. Yeah, I’ve been taxed since I was a little kid. And at the end of the year I had to pick a charity to donate my taxes to.
+ - You don’t want a slob, but you don’t want a guy who is constantly borrowing your tweezers.
+ - Like most people, I used to wear clothing off the rack. But having them fitted to me makes a really big difference, especially with pieces like a cocktail dress. Little nips and tucks can take 10 pounds off you.
+ - Most of my friends all tend to work in restaurants part time, doing acting classes on the side.
+ - What is the point of working all your life and then stopping?
+ - The nice thing about the fashion industry is that you’re constantly working on something new.
+ - Whenever someone comes up to me and says, ‘I’m having trouble shopping.’ I tell them to pull out their 10 favorite, most-worn pieces, then build a wardrobe around them. Those staples are going to be different for everybody.
+ - I love having a full schedule everyday and always being a little bit sleep deprived and just kind of love that lifestyle.
+ - I think there is a niche for every market.
+ - I’ve spent years saying no to things. It’s important to be selective with both projects and partners.
+ - This is my chance to make it all happen, in the one city, where they say dreams come true.
+ - I can sleep anywhere. I’m like an infant.
+ - Purses are dreamt up by artists, not architects.
+ - Five years on TV is a really, really long time.
+ - If you’re on the cover of any magazine, you certainly get recognized more.
+ - I wouldn’t include a piece in my collection that I wouldn’t wear personally.
+ - A lot of my branding has come from stubbornness – I knew what I liked. I knew what I wanted to do.
+ - When I work with my art department on putting imagery together for my blog posts I always think, ‘Would I pin this?’ That really helps.
+ - I get very uncomfortable with people watching me.
+ - During holiday parties I end up recycling a lot of my cocktail dresses and just wearing a layering piece, like a blazer and tights, with it.
+ - I’d love to design bridal dresses.
+ - I think that a lot of times, I trust people I shouldn’t, and it turns out right, and it makes me feel a little better about it.
+ - I think that like most girls in high school, I just mirrored what was around me.
+ - I haven’t met a woman without insecurities.
+ - As a designer, you are flattered to see anyone in one of your designs, whether it’s on a red carpet or passing by you in the market. It’s this wonderful little high every time.
+ - I like wearing scarves in my hair because they make me look put together without taking a lot of time.
+ - I don’t call magazines and let them know about things so they can write stories.
+ - I think that makeup can be challenging, especially when you are younger.
+ - At night I can write for hours.
+ - One of my biggest goals, especially with writing YA novels, is just to have people enjoy reading.
+ - In Hollywood, you grow up quick.
+ - I think when you’re put into a completely different situation and environment, you really see who you are. You’re not affected by what’s around you. You are who you are.
+ - I do most of my shopping online. It’s just convenient for me.
+ - In high school I spent most of my time in jeans and T-shirts or Juicy sweats. We’re such a laid-back town. I mean, people wore bikinis under their clothes half the time, so you didn’t really get dressed up to go to school.
+ - When you’re writing a book, you don’t want it to be overly trendy because you want people to enjoy it for years and refer back to it.
+ - I think the level of criticism you’re under is never healthy. I think that’s why lots of people in Hollywood end up in rehab. There are the ups and downs. I was never a fan of the attention.
+ - Listen to advice from people who have been there and done that. It is so hard to believe that when you are young, but parents, mentors, teachers, they can all be so valuable when it comes to advice.
+ - I like to involve myself in charities that help children and also young women in need.
+ - I love wearing designer pieces with something I found at Target.
+ - I don’t stage my own publicity.
+ - I think any opportunity you have to be green, whether it’s in business or in everyday life, you should take it.
+ - That’s one of the great thing about writing is that you get to be in someone’s head.
+ - I think if you’re not willing to wear your own clothes, you’re doing something wrong. If you’re not wearing your own line, you’re taking all the fun out of it.
+ - I love anything really feminine. I love any sort of girly detail – anything with a bow or a heart on it, I’m immediately in love with.
+ - I’m into mellow dates with really good food.
+ - I go through phases when I’ve been filming where I wake up in the middle of the night and I think I’m being filmed.
+ - Every girl should have a little black dress, a great boyfriend blazer and a pair of skinny jeans in their wardrobe.
+ - I know he is younger than me, but I absolutely love Zac Efron. His hair is always so pretty.
+ - Real relationships – the kind that were supposed to last but never did – were more trouble than they were worth.
+ - I just don’t really want to settle and I don’t think I should have to.
+ - Scripts are corny and predictable. Real life is always better.
+ - I almost exclusively wear skinny jeans. I’m terrified of any other cut of denim.
+ - I don’t kiss on the first date. My friends always make fun of me for that! But I will hold hands.
+ - Best friends are forever. That’s why they’re called BFFs.
+ - Social media is key to promoting the editorial posts on my website.
+ - I have always loved reading. Ever since I was a young girl I had a book by my bed and would get lost in the world of make believe.
+ - I definitely aspire to be someone like Tyra Banks, who’s created an empire for herself.
+ - I always wear bronzer because I love the way my skin looks when it’s tan.
+ - I’m obsessed with the 1920s, everything from the style to the lifestyle. It was a really cool era.
+ - I’ve found when all I’m eating is really fresh, healthy foods, I stop craving pizza and burgers.
+ - You have your personal life and you have work life; when it’s combined, it’s difficult.
+ - I like to know exactly what’s being put into my food.
+ - Any way to make a workout feel like playtime is great.
+ - You should never need a guy to make you feel complete.
+ - I can’t even read a script. I’ve tried and it’s painful to watch.
+ - I’ve always been open to doing reality again. Just under certain circumstances.
+ - I love going on book tours because it’s an opportunity to connect with the people that matter most to my brand.
+ - I think clothes hang beautifully on thin women.
+ - I’m a writer slash designer slash TV personality.
+ - Hollywood was fine with fakes, but it was most definitely not okay with frauds.
+ - People label you the way they know you best.
+ - A lot of people in fashion don’t want to be linked with anything that has to do with reality TV.
+ - I’ve always been a big fan of Phillip Lim. He’ll always be a favorite of mine.
+ - He had a lot of different smiles, and Jane was getting to know them all.
+ - I’ve never felt a push to be stick thin. I work out and eat healthy, so mostly it’s about being in shape and having energy.
+ - When you are working really hard and you’re really focused on your career, a lot of other things suffer.
+ - The one thing I’ve learned about friends is that the good ones are rare.
+ - One thing you can’t miss in your suitcase is a hat.
+ - I read a lot of ‘Spark Notes’ in high school.
+ - I don’t have the best dating track record.
+ - Take a moment each day to focus on the good, and then try to carry that with you throughout the day, because while bangs don’t look good on everyone, confidence does.
+
+158 quotes

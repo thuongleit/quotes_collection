@@ -1,0 +1,42 @@
+ - Never give up on what you really want to do ~~H. Jackson Brown Jr.
+ - If you ever think about giving up, remember why you held on for so long. ~~Hayley Williams
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. ~~Earl Nightingale
+ - Having a rough day? Place your hand over your heart. Feel that? It’s called purpose. You’re alive for a reason. Don’t give up. ~~Joyce Meyer
+ - If you don’t have a passion, you’ll give up. ~~Steve Jobs
+ - If you fall behind, run faster. Never give up, never surrender, and rise up against the odds. ~~Jesse Jackson
+ - To succeed, work hard, never give up and above all cherish a magnificent obsession. ~~Walt Disney
+ - Our greatest weakness lies in giving up. ~~Thomas A. Edison
+ - When you get into a tight place and everything goes against you, till it seems as though you could not hang on a minute longer, never give up then, for that is just the place and time that the tide will turn. ~~Harriet Beecher Stowe
+ - For my part, I will never give up, and I mean never. ~~Elon Musk
+ - It’s hard to beat a person who never gives up. ~~Babe Ruth
+ - Never, never, never give in! ~~Winston Churchill
+ - Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. ~~Thomas A. Edison
+ - Just because Fate doesn’t deal you the right cards, it doesn’t mean you should give up. It just means you have to play the cards you get to their maximum potential. ~~Les Brown
+ - Do not let what you cannot do interfere with what you can do. ~~John Wooden
+ - For every minute you are angry you lose sixty seconds of happiness. ~~Ralph Waldo Emerson
+ - Never give up. And most importantly, be true to yourself. Write from your heart, in your own voice, and about what you believe in. ~~Louise Brown
+ - Never let your head hang down. Never give up and sit down and grieve. Find another way. And don’t pray when it rains if you don’t pray when the sun shines. ~~Richard M. Nixon
+ - Learned helplessness is the giving-up reaction, the quitting response that follows from the belief that whatever you do doesn’t matter. ~~Martin E.P. Seligman
+ - Nobody grows old merely by living a number of years. We grow old by deserting our ideals. Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul. ~~Samuel Ullman
+ - Don’t give up. Don’t ever give up. ~~Jim Valvano
+ - The only one who can make you give up is yourself. ~~Sidney Sheldon
+ - Never give up on what you really want to do. The person with big dreams is more powerful than one with all the facts. ~~H. Jackson Brown Jr.
+ - One, remember to look up at the stars and not down at your feet. Two, never give up work. Work gives you meaning and purpose and life is empty without it. Three, if you are lucky enough to find love, remember it is there and don’t throw it away. ~~Stephen Hawking
+ - Anyone can give up; it is the easiest thing in the world to do. But to hold it together when everyone would expect you to fall apart, now that is true strength. ~~Chris Bradford
+ - The most common way people give up their power is by thinking they don’t have any. ~~Alice Walker
+ - Being defeated is often a temporary condition. Giving up is what makes it permanent. ~~Marilyn Vos Savant
+ - God grant me the courage not to give up what I think is right even though I think it is hopeless. ~~Chester Nimitz
+ - Always work hard, never give up, and fight until the end because it’s never really over until the whistle blows. ~~Alex Morgan
+ - Most people give up just when they’re about to achieve success. They quit on the one yard line. They give up at the last minute of the game one foot from a winning touchdown. ~~H. Ross Perot
+ - Don’t be afraid to give up the good to go for the great. ~~John D. Rockefeller
+ - Never give up, for that is just the place and time that the tide will turn. ~~Harriet Beecher Stowe
+ - Just don’t give up trying to do what you really want to do. ~~Ella Fitzgerald
+ - In this world it is not what we take up, but what we give up, that makes us rich. ~~Henry Ward Beecher
+ - To give up yourself without regret is the greatest charity. ~~Bodhidharma
+ - Any society that would give up a little liberty to gain a little security will deserve neither and lose both. ~~Benjamin Franklin
+ - He who learns but does not think, is lost. He who thinks but does not learn is in great danger. ~~Confucius
+ - They who can give up essential liberty to obtain a little temporary safety deserve neither liberty nor safety. ~~Benjamin Franklin
+ - Never give up on anybody. ~~Hubert H. Humphrey
+ - Part of being a winner is knowing when enough is enough. Sometimes you have to give up the fight and walk away, and move on to something that’s more productive. ~~Donald Trump
+
+40 quotes

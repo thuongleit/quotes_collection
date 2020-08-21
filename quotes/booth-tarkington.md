@@ -1,0 +1,28 @@
+ - It is love in old age, no longer blind, that is true love. For the love’s highest intensity doesn’t necessarily mean it’s highest quality.
+ - Take your work seriously but never take yourself seriously and do not take what happens either to yourself or your work seriously.
+ - Christmas day is the children’s, but the holidays are youth’s dancing-time.
+ - An ideal wife is any woman who has an ideal husband.
+ - The understanding smile of an old wife to her husband is one of the loveliest things in the world.
+ - The only good in pretending is the fun we get out of fooling ourselves that we fool somebody.
+ - Destiny has a constant passion for the incongruous.
+ - Nobody has a good name in a bad mouth. Nobody has a good name in a silly mouth either.
+ - Boyhood is the longest time in life for a boy. The last term of the school-year is made of decades, not of weeks, and living through them is like waiting for the millennium.
+ - Arguments only confirm people in their own opinions.
+ - They were upon their great theme: “When I get to be a man!” Being human, though boys, they considered their present estate too commonplace to be dwelt upon. So, when the old men gather, they say: “When I was a boy!” It really is the land of nowadays that we never discover.
+ - Whatever does not pretend at all has style enough.
+ - The only safe male rebuke to a scornful female is to stay away from her – especially if that is what she desires.
+ - There aren’t any old times. When times are gone they’re not old, they’re dead! There aren’t any times but new times!
+ - Mothers see the angel in us because the angel is there. If it’s shown to the mother, the son has got an angel to show, hasn’t he? When a son cuts somebody’s throat the mother only sees it’s possible for a misguided angel to act like a devil – and she’s entirely right about that!
+ - The things that we have and that we think are so solid – they’re like smoke, and time is like the sky that the smoke disappears into, nothing is left but the sky, and the sky keeps on being just the same forever.
+ - Some day the laws of glamour must be discovered, because they are so important that the world would be wiser now if Sir Isaac Newton had been hit on the head, not by an apple, but by a young lady.
+ - There are two things that will be believed of any man whatsoever, and one of them is that he has taken to drink.
+ - So long as we can lose any happiness, we possess some.
+ - Superciliousness is not safe after all, because a person who forms the habit of wearing it may some day find his lower lip grown permanently projected beyond the upper, so that he can’t get it back, and must go through life looking like the King of Spain.
+ - Mystics always hope that science will some day overtake them.
+ - Gossip is never fatal until it is denied.
+ - One of the hardest conditions of boyhood is the almost continuous strain put upon the powers of invention by the constant and harassing necessity for explanations for every natural act.
+ - This is a boy’s lot: anything he does, anything whatever, may afterward turn out to have been a crime – he never knows. And punishment and clemency are alike inexplicable.
+ - Men were just like sheep, and nothing was easier than for women to set up as shepherds and pen them up in a field.
+ - Youth cannot imagine romance apart from youth.
+
+26 quotes

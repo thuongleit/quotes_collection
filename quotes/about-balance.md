@@ -1,0 +1,42 @@
+ - Life is about balance. Be kind, but don’t let people abuse you. Trust, but don’t be deceived. Be content, but never stop improving yourself. ~~Zig Ziglar
+ - Throughout the infinite, the forces are in a perfect balance, and hence the energy of a single thought may determine the motion of a universe. ~~Nikola Tesla
+ - Love is the undisturbed balance that binds this universe together. ~~Mahavatar Babaji
+ - Don’t confuse having a career with having a life. ~~Hillary Clinton
+ - Life is balance of holding on and letting go. ~~Rumi
+ - We have to balance the lineality of the known universe with the nonlineality of the unknown universe. ~~Carlos Castaneda
+ - In the end, it’s all a question of balance. ~~Rohinton Mistry
+ - Retire to the center of your being, which is calmness. ~~Paramahansa Yogananda
+ - Work is a rubber ball. If you drop it, it will bounce back. The other four balls – family, health, friends, integrity – are made of glass. If you drop one of these, it will be irrevocably scuffed, nicked, perhaps even shattered. ~~Gary W. Keller
+ - Balance every thought with its opposition. Because the marriage of them is the destruction of illusion. ~~Aleister Crowley
+ - The most important career decision you’ll make is who your life partner is. ~~Sheryl Sandberg
+ - A balance of giving and receiving is essential to keeping your energy, mood and motivation at a consistently high level. ~~Doreen Virtue
+ - There is no balance, all or nothing. ~~David Choe
+ - Happiness isn’t real unless it is shared. ~~Christopher McCandless
+ - When conscious activity is wholly concentrated on some one definite purpose, the ultimate result, for most people, is lack of balance accompanied by some form of nervous disorder. ~~Bertrand Russell
+ - Mathematics expresses values that reflect the cosmos, including orderliness, balance, harmony, logic, and abstract beauty. ~~Deepak Chopra
+ - There’s no such thing as work-life balance. There are work-life choices, and you make them, and they have consequences. ~~Jack Welch
+ - The aim is to balance the terror of being alive with the wonder of being alive. ~~Carlos Castaneda
+ - Never slouch as doing so compresses the lungs, overcrowds other vital organs, rounds the back, and throws you off balance. ~~Joseph Pilates
+ - The key to finding a happy balance in modern life is simplicity. ~~Sogyal Rinpoche
+ - To put everything in balance is good, to put everything in harmony is better. ~~Victor Hugo
+ - There is no such thing as work-life balance. Everything worth fighting for unbalances your life. ~~Alain de Botton
+ - Economy without ecology means managing the human nature relationship without knowing the delicate balance between humankind and the natural world. ~~Satish Kumar
+ - To lose balance sometimes for love is part of living a balanced life. ~~Elizabeth Gilbert
+ - The balance of power is the scale of peace. ~~Thomas Paine
+ - Find a balance between head and heart. ~~Colleen Hoover
+ - Holiness is the balance between my nature and the law of God as expressed in Jesus Christ. ~~Oswald Chambers
+ - Don’t confuse symmetry with balance. ~~Tom Robbins
+ - If you restore balance in your own self, you will be contributing immensely to the healing of the world. ~~Deepak Chopra
+ - If you strive only to avoid the darkness or to cling to the light, you cannot live in balance. Try striving to be conscious of all that you are. ~~Gary Zukav
+ - A beginning is the time for taking the most delicate care that the balances are correct. ~~Frank Herbert
+ - Nature is about balance. All the world comes in pairs – Yin and Yang, right and wrong, men and women; whats pleasure without pain? ~~Angelina Jolie
+ - Being an impatient person, I wanted to do what my grandmother said: “Do as much as you can as fast as you can; be as productive as possible.” But you must be patient. So I have struggled to balance patience with being an impatient person, and trying to find a happy medium. ~~Farrah Gray
+ - A good reputation for yourself and your company is an invaluable asset not reflected in the balance sheets. ~~Li Ka-shing
+ - Balance and good fortune can only come to a person who is balanced and feels fortunate. ~~Stuart Wilde
+ - Shabbat is a day of rest, of mental scrutiny and of balance. Without it the workdays are insipid. ~~Hayim Nahman Bialik
+ - Work, love and play are the great balance wheels of man’s being. ~~Orison Swett Marden
+ - Science-fiction balances you on the cliff. Fantasy shoves you off. ~~Ray Bradbury
+ - Find your balance and stand with it. Find your song and sing it out. Find your cadence and let it appear like a dance. Find the questions that only you know how to ask and The answers that you are content to not know. ~~Mary Anne Radmacher
+ - We’re on the verge of a financial collapse unless we balance the budget, and that means some really, really tough decisions. ~~Gary Johnson
+
+40 quotes

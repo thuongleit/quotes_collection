@@ -1,0 +1,158 @@
+ - To remain silent in the face of evil is itself a form of evil.
+ - Stories have to be told or they die, and when they die, we can’t remember who we are or why we’re here.
+ - The hardest thing on earth is choosing what matters.
+ - We become what we pay attention to.
+ - You have untold strengths and resources inside. You have your glorious self.
+ - And when you get down to it, Lily, that is the only purpose grand enough for a human life. Not just to love but to persist in love.
+ - All my life I’ve thought I needed someone to complete me, now I know I need to belong to myself.
+ - Once you know the truth, you can’t ever go back and pick up your suitcase of lies. Heavier or not, the truth is yours now.
+ - I have noticed that if you look carefully at people’s eyes the first five seconds they look at you, the truth of their feelings will shine through for just an instant before it flickers away.
+ - When it’s time to die, go ahead and die, and when it’s time to live, live. Don’t sort-of-maybe live, but live like you’re going all out, like you’re not afraid.
+ - We have to acknowledge sometimes that this moment is enough. This place is enough. I am enough.
+ - Into every life a little rain must fall.
+ - If you aren’t giving people something to talk about, you’ve become too dull.
+ - You gotta imagine what’s never been.
+ - After you get stung, you can’t get unstung no matter how much you whine about it.
+ - It is the peculiar nature of the world to go on spinning no matter what sort of heartbreak is happening.
+ - The world depends upon the small beating in your heart.
+ - Sunset is the saddest light there is.
+ - Knowing can be a curse on a person’s life. I’d traded in a pack of lies for a pack of truth, and I didn’t know which one was heavier.
+ - What’s wrong with living in a dream world? You have to wake up.
+ - I’ve always been a journal-keeper. I’ve always tried to write about how I’m experiencing life, and my feelings and thoughts.
+ - Nobody around here had ever seen a lady beekeeper till her. She liked to tell everybody that women made the best beekeepers, ’cause they have a special ability built into them to love creatures that sting. It comes from years of loving children and husbands.
+ - Place a beehive on my grave And let the honey soak through. When I’m dead and gone, That’s what I want from you. The streets of heaven are gold and sunny, But I’ll stick with my plot and a pot of honey. Place a beehive on my grave And let the honey soak through.
+ - I came to believe that my true identity goes beyond the outer roles I play. It transcends the ego. I came to understand that there is an Authentic ‘I’ within – an ‘I Am,’ or divine spark within the soul.
+ - How could I choose someone who would force me to give up my own small reach for meaning? I chose myself, and without consolation.
+ - You can go other places, all right – you can live on the other side of the world, but you can’t ever leave home.
+ - It’s your time to live, don’t mess it up.
+ - There’s release in knowing the truth no matter how anguishing it is. You come finally to the irreducible thing, and there’s nothing left to do but pick it up and hold it. Then, at last, you can enter the severe mercy of acceptance.
+ - We must err, do so on the side of audacity.
+ - We are so limited, you have to use the same word for loving Rosaleen as you do for loving Coke with peanuts. Isn’t that a shame we don’t have many more ways to say it?
+ - Empathy is the most mysterious transaction that the human soul can have, and its accessible to all of us, but we have to give ourselves the opportunity to identify, to plunge ourselves in a story where we see the world from the bottom up or through anothers eyes or heart.
+ - Someone who thinks death is the scariest thing doesn’t know a thing about life.
+ - If you need something from somebody always give that person a way to hand it to you.
+ - It was the first time I’d ever said the words to another person, and the sound of them broke open my heart.
+ - There’s nothing like a song about lost love to remind you how everything precious can slip from the hinges where you’ve hung it so careful.
+ - Loss takes up inside of everything sooner or later and eats right through it.
+ - There is no place so AWAKE and ALIVE as the edge of becoming.
+ - We can’t think of changing our skin color. Change the world – that’s how we gotta think.
+ - You create a path of your own by looking within yourself and listening to your soul, cultivating your own ways of experiencing the sacred and then practicing it. Practicing until you make it a song that sings you.
+ - Everybody needs a seashell in her bathroom to remind her the ocean is her home.
+ - T. Ray said ‘Who do you think you are? Julias Shakespeare?’ The man sincerely thought that was Shakespeare’s first name, and if you think I should have corrected him, you are ignorant about the art of survival.
+ - You don’t have to place your hand on Mary’s heart to get strength and consolation and rescue, and all the other things we need to get through life. You can place it right here on your own heart. Your own heart.
+ - People, in general, would rather die than forgive. It’s that hard.
+ - The body knows things a long time before the mind catches up to them. I was wondering what my body knew that I didn’t.
+ - Most people don’t have any idea about all the complicated life going on inside a hive. Bees have a secret life we don’t know anything about.
+ - I realized it for the first time in my life: there is nothing but mystery in the world, how it hides behind the fabric of our poor, browbeat days, shining brightly, and we don’t even know it.
+ - How did we ever get the idea that God would supply us on demand with quick fixes, that God is merely a rescuer and not a midwife?
+ - Have you ever written a letter you knew you could never mail but you needed to write it anyway?
+ - You have to find a mother inside yourself. We all do. Even if we already have a mother, we still have to find this part of ourselves inside.
+ - The most significant gifts are the ones most easily overlooked. Small, everyday blessings: woods, health, music, laughter, memories, books, family, friends, second chances, warm fireplaces, and all the footprints scattered throughout our days.
+ - Something deep in all of us yearns for God’s beauty, and we can find it no matter where we are.
+ - The world will give you that once in awhile, a brief timeout; the boxing bell rings and you go to your corner, where somebody dabs mercy on your beat-up life.
+ - And I was struck all at once how life was out there going through its regular courses, and I was suspended, waiting, caught in a terrible crevice between living my life and not living it.
+ - I found that I could not climb my way up to God in a blaze of doing and performing. Rather, I had to descend into the depths of myself and find God there in the darkness of troubled waters.
+ - People can start out one way, and by the time life gets through with them they end up completely different.
+ - Drifting off to sleep, I thought about her. How nobody is perfect. How you just have to close your eyes and breathe out and let the puzzle of the human heart be what it is.
+ - There’s a gap somehow between empathy and activism. Dr. Martin Luther King Jr. spoke of ‘soul force’ – something that emanates from a deep truth inside of us and empowers us to act. Once you identify your inner genius, you will be able to take action, whether it’s writing a check or digging a well.
+ - I don’t hold to the idea that God causes suffering and crisis. I just know that those things come along and God uses them. We think life should be a nice, clean ascending line. But inevitably something wanders onto the scene and creates havoc with the nice way we’ve arranged life to fall in place.
+ - My mother’s life was way too heavy for me.
+ - Sometimes you want to fall on your knees and thank God in heaven for all the poor news reporting that goes on in the world.
+ - Gazing into the mirror, I saw myself as I was-a black silhouette in the room, a woman whose darkness had completely leaked through.
+ - Unraveling external selves and coming home to our real identity is the true meaning of soul work.
+ - There is no place so awake and alive as the edge of becoming. But more than that, birthing the kind of woman who can authentically say, ‘My soul is my own,’ and then embody it in her life, her spirituality, and her community is worth the risk and hardship.
+ - Honeybees depend not only on physical contact with the colony, but also require it’s social companionship and support. Isolate a honeybee from her sisters and she will soon die.
+ - The awakening passed from simple recognition of my need for God at the center of my life, to a depth where the will is stirred And that is a deeper place by far. That is the place of response, of unifying one’s heart, mind, soul and feet around a decision.
+ - I wished she’d been smart enough, or loving enough, to realize everybody has burdens that crush them, only they don’t give up their children.
+ - It takes a bee 10,000,000 trips to collect enough nectar to make 1 pound of honey.
+ - When it comes to religion today, we tend to be long on butterflies and short on cocoons. Somehow we’re going to have to relearn that the deep things of God don’t come suddenly.
+ - I missed Rosaleen’s snoring the way you’d miss the sound of the ocean waves after you’ve gotten used to sleeping with them. I didn’t realize how it had comforted me. Quiteness has a strange, spongy hum that can nearly break your eardrums.
+ - Look, I know you meant well creating the world and all, but how could you let it get away from you like this? How come you couldn’t stick with your original idea of paradise? People’s lives were a mess.
+ - My ultimate authority is the divine voice in my own soul. Period.
+ - In the photograph by my bed my mother is perpetually smiling on me. I guess I have forgiven us both, although sometimes in the night my dreams will take me back to the sadness, and I have to wake up and forgive us again.
+ - Until we look from the bottom up we have nothing.
+ - You think you want to know something, and then once you do, all you can think about is erasing it from your mind.
+ - So I taught Sunday school and brought dishes to all manner of potlucks and tried to adjust the things I heard from the pulpit to my increasingly incongruent faith.
+ - I learned a long time ago that some people would rather die than forgive. It’s a strange truth, but forgiveness is a painful and difficult process. It’s not something that happens overnight. It’s an evolution of the heart.
+ - You are my everlasting home. Don’t you ever be afraid. I am enough. We are enough.
+ - To be fully human, fully myself, To accept all that I am, all that you envision, This is my prayer. Walk with me out to the rim of life, Beyond security. Take me to the exquisite edge of courage And release me to become.
+ - I wanted to know what happened when two people felt it. Would it divide the hurt in two, make it lighter to bear, the way feeling someone’s joy seemed to double it?
+ - It’s something everybody wants-for someone to see the hurt done to them and set it down like it matters.
+ - Every little thing wants to be loved.
+ - Standing there, I loved myself and I hated myself. That’s what the black Mary did to me, made me feel my glory and my shame at the same time.
+ - Stopping is a spiritual art. It is the refuge where we drink life in.
+ - Betrayal of any kind is hard, but betrayal by one’s religion is excruciating. It makes you want to rage and weep.
+ - I grew up in the American South and came of age in the 1960s, an incredibly turbulent time. It was as if the seams of American life were being ripped apart with riots and protests.
+ - When compassion wakes up in us, we find ourselves more willing to become vulnerable, to take the risk of entering the pain of others.
+ - It was the oldest sound there was. Souls flying away.
+ - Regrets don’t help anything.
+ - To fashion an inner story of our pain carries us into the heart of it, which is where rebirth inevitably occurs.
+ - It only meant that my natural inclination was to draw my “energy” from within instead of seeking it outside myself, plus my mom was an introvcert, and so were a lot of normal people. The problem was I was shy on top of that. And we all know how the world loves a shy introvert.
+ - Now and then sprays of rain flew over and misted our faces. Every time I refused to wipe away the wetness. It made the world seem so alive to me. I couldn’t help but envy the way a good storm got everyone’s attention.
+ - He’d gone to church for forty years and was only getting worse. It seemed like this should tell God something.
+ - Elizabeth A. Johnson explains that including divine female symbols and images not only challenges the dominance of male images but also calls into question the structure of patriarchy itself.
+ - Make the world better. Take the meanness out of people’s hearts.
+ - I believe in the goodness of imagination.
+ - That’s the sacred intent of life, of God – to move us continuously toward growth, toward recovering all that is lost and orphaned within us and restoring the divine image imprinted on our soul.
+ - Still everyone, including the abbot, had said that he was running away from his grief. They’d had no idea what they were talking about. He’d cradled his grief, almost to the point of loving it. For so long he refused to give it up, because leaving it behind was like leaving her.
+ - I think many people need, even require, a narrative version of their life. I seem to be one of them. Writing memoir is, in some ways, a work of wholeness.
+ - Our earlier lives aren’t wrong, they are just pre-construction. Our lives are meant to unfold, to evolve, and that’s good. The only wrong thing, perhaps, is permanently hesitating on the verge of courage, which would prevent this process from taking place.
+ - If someone should ask me, ‘What does the soul do?’ I would say, It does two things. It loves. And it creates. Those are its primary acts.
+ - The only wrong thing, perhaps, is permanently hesitating on the verge of courage.
+ - I sit in my new room and write everything down. My heart never stops talking.
+ - Yes, here I am returning, the woman who bore herself to the bottom and back. Who wanted to swim like dolphins, leaping waves and diving. Who wanted only to belong to herself.
+ - Were all yearning for a wedge of sky, aren’t we? I suspect God plants these yearnings in us so we’ll at least try and change the course of things. We must try, that’s all.
+ - Embodiment means we no longer say, I had this experience; we say, I am this experience.
+ - When had my fear of broken plates gotten so grandiose? My desire for extravagant moments so small?
+ - The time to assert one’s right is when it’s denied!
+ - I never know how to give advice to a writer because there’s so much you could say, and it’s hard to translate your own experience. But of course, I always try. The main thing that I usually end up saying is to read a lot. To read a great deal and to learn from that.
+ - From now on when people asked me what I wanted to be when I grew up, I planned to say, Amnesiac.
+ - I wondered what it was like to be inside her, just a curl of flesh swimming in the darkness, the quiet things that had passed between us.
+ - When a woman starts to disentangle herself from patriarchy, ultimately she is abandoned to her own self.
+ - I didn’t know then what I wanted, but the ache for it was palpable.
+ - Grandmotherhood initiated me into a world of play, where all things became fresh, alive, and honest again through my grandchildren’s eyes. Mostly, it retaught me love.
+ - For me, creativity is essentially a spiritual experience, a conversation between my soul and me.
+ - You have to know when to prod and when to be quiet, when to let things take their course.
+ - It was the in-between time, before day leaves and night comes, a time I’ve never been partial to because of the sadness that lingers in the space between going and coming.
+ - This is what I know about myself. She was all I wanted. And I took her away.
+ - How often do we do that, he wondered – look at someone and fail to see what’s really there?
+ - I vividly remember the summer of 1964 with its voter registration drives, boiling racial tensions, and the erupting awareness of the cruelty of racism. I was never the same after that summer.
+ - I worried so much about how I looked and whether I was doing things right, I felt half the time I was impersonating a girl instead of really being one.
+ - I watched him, filled with tenderness and ache, wondering what it was that connected us. Was it the wounded places down inside people that sought each other out, that bred a kind of love between them?
+ - You can tell which girls lack mothers by the look of their hair...
+ - The True Self is not our creation, but God’s. It is the self we are in our depths. It is our capacity for divinity and transcendence.
+ - I don’t remember what they said, only the fury of their words, how the air turned raw and full of welts. Later it would remind me of birds trapped inside a closed room, flinging themselves against the windows and the walls, against each other.
+ - People in general would rather die than forgive. It’s THAT hard. If God said in plain language. “I’m giving you a choice, forgive or die,” a lot of people would go ahead and order their coffin.
+ - Whatever else you do, listen to your Deepest Self. Love Her and be true to Her, speak Her truth, always.
+ - When you can’t go forward, and you can’t go backward, and you can’t stay where you are without killing off something deep and vital in yourself, you are on the edge of creation.
+ - I eventually found that the soul is more than an immortal commodity to win and save. It is the repository of the inner divine, the truest part of us.
+ - In a way, humans are not made of skin and bones as such, as we’re made of stories.
+ - Where had I been that I didn’t know about imaginary friends? I could see the point of it. How a lost part of yourself steps out and remind you who you could be with a little work.
+ - History is not just facts and events. History is also a pain in the heart and we repeat history until we are able to make another’s pain in the heart our own.
+ - I could even feel how perishable all my moments really were, how all my life they had come to me begging to be lived, to be cherished even.
+ - Sometimes I didn’t even feel like getting out of bed. I took to wearing my days-of-the-week panties out of order. It could be Monday and I’d have on underwear saying Thursday. I just didn’t care.
+ - I’d forgotten how that sort of craving felt, how it rose suddenly and loudly from the pit of my stomach like a flock of startle birds, then floated back down in the slow, beguiling way of feathers.
+ - So few people know what they’re capable of.
+ - I think there must be a place inside of us where dreams go and wait their turn.
+ - I’d heard August say more than once, “If you need something from somebody, always give that person a way to hand it to you.” T. Ray needed a face-saving way to hand me over, and August was giving it to him.
+ - Journal became a sanctuary where I could pour out in honesty my pain and joy. It recorded my footsteps and helped me understand where I was standing, where I had been, and even where God pointed.
+ - As an adolescent, I went to charm school, where I learned to pour tea and relate to boys, which, as I recall, meant giving them the pickle jar to unscrew, whether it was too hard for me or not.
+ - She didn’t even know how dangerous the truth could be, all the tiny, shattering seeds it carried.
+ - What matters is giving over to what you love.
+ - Just to be is holy, just to live is a gift.
+ - I realize what a strange in-between place I am in. The Young Woman inside has turned to go, but the Old Woman has not shown up.
+ - We walked along the river with the words streaming behind us like ribbons in the night.
+ - I’m tired of carrying around the weight of the world. I’m just going to lay it down now. It’s my time to die, and it’s your time to live. Don’t mess it up.
+ - I realize that I can be with someone, but on a deeper level I’m not available to them at all. I have attention deficit disorder of the soul.
+ - It’s always been my hope that I would write a story that would inspire and would connect with people in a way that would touch hearts.
+ - The whole problem with people is they don’t know what matters and what doesn’t.
+ - Nobody should go through life without falling in love.
+ - I know you’ve run away – everybody gets the urge to do that some time – but sooner or later you’ll want to go home.
+ - The words were unexpected, but so incisively true. So much of prayer is like that – an encounter with a truth that has sunk to the bottom of the heart, that wants to be found, wants to be spoken, wants to be elevated into the realm of sacredness.
+ - Stories are amazing and powerful because they can resonate with people depending on their needs and experiences and speak truths we need to hear in that moment in time.
+ - Sometimes, in order to say yes to what matters most, I must say no to good things.
+ - Novels attempt to render human experience; that’s really all they are. They are meant to convey empathy for the character.
+ - You can’t stop your heart from loving, really – it’s like standing out there in the ocean yelling at the waves to stop.
+ - A lot of time you write out of some unconscious place. I try to trust what is coming and where it wants to take me.
+
+156 quotes

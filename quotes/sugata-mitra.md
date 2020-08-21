@@ -1,0 +1,24 @@
+ - Ask BIG questions, find BIG answers.
+ - It’s quite fashionable to say that the education system’s broken – it’s not broken, it’s wonderfully constructed. It’s just that we don’t need it anymore. It’s outdated.
+ - If children have interest, then Education happens.
+ - A teacher that can be replaced by a machine should be.
+ - We need to look at learning as the product of educational self-organization. It’s not about making learning happen; it’s about letting it happen.
+ - My wish is that we design the future of learning. We don’t want to be spare parts for a great human computer.
+ - Students are rewarded for memorization, not imagination or resourcefulness.
+ - Experiments show that children in unsupervised groups are capable of answering questions many years ahead of the material they’re learning in school. In fact, they seem to enjoy the absence of adult supervision, and they are very confident of finding the right answer.
+ - Education is a self-organizing system, where learning is an emergent phenomenon.
+ - It took nature 100 million years to make the ape stand up and become Homo sapiens. It took us only 10,000 to make knowing obsolete.
+ - Who knows what we’ll need to learn thirty years from now? We do know that we will need to be good at searching for information, collating it, and figuring out whether it is right or wrong.
+ - People are adamant learning is not just looking at a Google page. But it is. Learning is looking at Google pages. What is wrong with that?
+ - Learning is the new skill. Imagination, creation and asking new questions are at its core.
+ - The bottom line is, if you’re not the one controlling your learning, you’re not going to learn as well.
+ - Teachers say to me, ‘The internet is full of rubbish, wrong answers.’ But you would be surprised how just long it takes to find wrong information on Google, and where it’s not obvious that it’s wrong.
+ - Children will learn to do what they want to learn to do.
+ - I was inspired by the Hole in the Wall project, where a computer with an internet connection was put in a Delhi slum. When the slum was revisited after a month, the children of that slum had learned how to use the worldwide web.
+ - Profound changes to how children access vast information is yielding new forms of peer-to-peer and individual-guided learning.
+ - In nine months, a group of children left alone with a computer in any language will reach the same standard as an office secretary in the West.
+ - You don’t actually need to know anything, you can find out at the point when you need to know it. It’s the teachers job to point young minds towards the right kind of question, a teacher doesn’t need to give any answers because answers are everywhere.
+ - There are places on Earth, in every country, where, for various reasons, good schools cannot be built and good teachers cannot or do not want to go.
+ - I’m encouraging kids to use computers at their own pace to build aspirations.
+
+22 quotes

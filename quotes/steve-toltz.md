@@ -1,0 +1,30 @@
+ - When you put so much effort to forget someone, the effort itself becomes a memory. Then you have to forget the forgetting, and that too is memorable.
+ - I think that’s the real loss of innocence: the first time you glimpse the boundaries that will limit your potential.
+ - Regrets came up and asked me if I’d like to own them. Declined them for the most part but took a few just so I wouldn’t leave this relationship empty handed.
+ - There’s nothing perplexing to me about a leafy shrub evolving out of the big bang, but that the post office exists because carbon exploded out of a supernova is a phenomenon so outrageous it makes my head twitch.
+ - Don’t be afraid to have nothing.
+ - We’re always sick and we just don’t know it. What we mean by health is only when our constant physical deterioration is undetectable.
+ - People carry their secrets in hidden places, not on their faces. They carry suffering on their faces. Also bitterness if there’s room.
+ - Losers blame their parents; Failures blame their kids.
+ - Optimism isnt funny unless you are laughing at the person, whereas extreme pessimism is extremely funny. Its exaggeration.
+ - Sometimes not talking is effortless, and other times it’s more exhausting than lifting pianos.
+ - When we finished the kiss she said laughing, I can taste your loneliness – it tastes like vinegar. That annoyed me. Everyone knows loneliness tastes like cold potato soup.
+ - The moment seemed endless, but it was probably only half that.
+ - Let’s not mince words: the inside of the Sydney casino looks as if Vegas had an illegitimate child with Liberace’s underpants, and that child fell down a staircase and hit its head on the edge of a spade.
+ - There is something so arbitrary about prizes.
+ - I was so happy I wanted to fold all the people into paper airplanes and fly them into the lidless eye of that big yellow moon.
+ - After all, memory may be the only thing on earth we can truly manipulate to serve us, so we don’t have to look back at ourselves in the receding past and think, What an arsehole!
+ - I groaned. Man and his codes! Even in a lawless inferno, man has to give himself some honor, he’s so desperate to separate himself from the beasts.
+ - I actually went into writing first to supplement my income, which was a strange thing to do, and actually failed.
+ - I didn’t think anyone who had to demand respect ever got it.
+ - Raymond Chandler I love a lot, and the Austrian writer Thomas Bernhard. I really love his voice.
+ - To have a child is to be impaled daily on the spike of responsibility.
+ - Negotiating with memories isn’t easy: how to choose between those panting to be told, those still ripening, those already shriveling, and those destined to be mangled by language and come out pulverized?
+ - Sometimes I think the human animal doesn’t really need food or water to survive, only gossip.
+ - What a nasty act of cruelty, giving a dying man his last wish. Don’t you realize he doesn’t want it? His real wish is not to die.
+ - I enjoy being influenced by other writers.
+ - We were on our way to the twentieth floor, sharing the elevator with two suits that had men inside them.
+ - I don’t have a great respect for reality or getting the ‘facts’ as a means of putting together a story.
+ - Friendships are an unforseeable burden.
+
+28 quotes

@@ -1,0 +1,30 @@
+ - Liberalism is Rationalism in politics.
+ - Leftist ideas are a part of the very atmosphere which American youth breathes.
+ - For us there is but one crime: to be untrue to ourselves.
+ - If pessimism is despair, optimism is cowardice and stupidity. Is there any need to choose between them?
+ - The early American arrived at a land of which he knew nothing.
+ - To the fantastic mental illness of Rationalism, hard facts are regrettable things, and to talk about them is to create them.
+ - The way politics divides the world is into friend and enemy.
+ - No section of the American populace has been more completely deceived by the forces interested in keeping the truth from the people than America’s youth.
+ - Every non-political human grouping of whatever kind, legal, social, religious, economic or other becomes at last political if it creates an opposition deep enough to range men against one another as enemies.
+ - As a world view, Darwinism cannot of course be refuted, since Faith is, always has been, and always will be, stronger than facts.
+ - Alliance does not mean love, any more than war means hate.
+ - Capitalism is not an economic system, but a world-outlook, or rather, a part of a whole world-outlook.
+ - Politics is activity in relation to power.
+ - Pessimism only describes an attitude, and not facts, and hence is entirely subjective.
+ - Rationalism, which is the feeling that everything is subject to and completely explicable by Reason, consequently rejects everything not visible and calculable.
+ - To an intellectual who is adrift in politics, a theory is an aim; to a true politician his theory is a boundary.
+ - The 19th century was the age of Individualism the 20th and 21st are the ages of Socialism.
+ - Liberalism is a most important by-product of Rationalism, and its origins and ideology must be clearly shown.
+ - The important part of Marxism was its demand for active, constant, practical, class-war.
+ - A moment’s reflection shows that Liberalism is entirely negative. It is not a formative force, but always and only a disintegrating force.
+ - Every science is a profane restatement of the preceding dogmas of the religious period.
+ - The State becomes society or humanity on the ethical side, a production and trade system on the economic side.
+ - The purest expression of the doctrine of Liberalism was probably that of Benjamin Constant.
+ - Man as a pure animal does not exist.
+ - The independence of the economic sphere was a tenet of faith with Liberalism.
+ - A political theory seeks to find from history the limits of the politically possible.
+ - Liberalism can only be defined negatively. It is a mere critique, not a living idea.
+ - Hatred is not contained in political thinking. Any hatred worked up against the public enemy is non-political, and always shows some weakness in the internal political situation.
+
+28 quotes

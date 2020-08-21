@@ -1,0 +1,502 @@
+ - One day you will ask me which is more important – my life or yours? I will say mine and you will walk away not knowing that you are my life.
+ - If you love somebody, let them go, for if they return, they were always yours. If they don’t, they never were.
+ - Out of suffering have emerged the strongest souls; the most massive characters are seared with scars.
+ - We are all like the bright moon, we still have our darker side.
+ - Beauty is not in the face; beauty is a light in the heart.
+ - To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to.
+ - Generosity is giving more than you can, and pride is taking less than you need. 
+ - It takes a minute to have a crush on someone, an hour to like someone, and a day to love someone, but it takes a lifetime to forget someone.
+ - Our anxiety does not come from thinking about the future, but from wanting to control it.
+ - I slept and I dreamed that life is all joy. I woke and I saw that life is all service. I served and I saw that service is joy.
+ - You talk when you cease to be at peace with your thoughts.
+ - Ever has it been that love knows not its own depth until the hour of separation.
+ - Between what is said and not meant, and what is meant and not said, most of love is lost.
+ - We choose our joys and sorrows long before we experience them.
+ - Sadness is but a wall between two gardens.
+ - Rest in reason. Move in Passion.
+ - The optimist sees the rose and not its thorns; the pessimist stares at the thorns, oblivious to the rose.
+ - They deem me mad because I will not sell my days for gold; and I deem them mad because they think my days have a price.
+ - The timeless in you is aware of life's timelessness. And knows that yesterday is but today's memory and tomorrow is today's dream.
+ - A man’s true wealth is the good he does in the world.
+ - Only love and death will change all things.
+ - Music is the language of the spirit. It opens the secret of life bringing peace, abolishing strife.
+ - But let there be spaces in your togetherness and let the winds of the heavens dance between you. Love one another but make not a bond of love: let it rather be a moving sea between the shores of your souls.
+ - I have learned silence from the talkative, toleration from the intolerant, and kindness from the unkind; yet, strange, I am ungrateful to those teachers.
+ - Faith is a knowledge within the heart, beyond the reach of proof.
+ - Your children are not your children. They are the sons and daughters of Life’s longing for itself. They came through you but not from you and though they are with you yet they belong not to you.
+ - Trust in dreams, for in them is hidden the gate to eternity.
+ - A thief is a man in need. A liar is a man in fear.
+ - Mother: the most beautiful word on the lips of mankind.
+ - Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution.
+ - Life without liberty is like a body without spirit.
+ - All things in this vast universe exist in you, with you, and for you.
+ - Much of your pain is self-chosen.
+ - Many of us spend our whole lives running from feeling with the mistaken belief that you can not bear the pain. But you have already borne the pain. What you have not done is feel all you are beyond that pain.
+ - Oh, Lord God, have mercy on me and mend my broken wings.
+ - The reality of the other person is not in what he reveals to you, but in what he cannot reveal to you. Therefore, if you would understand him, listen not to what he says but rather to what he does not say.
+ - Yesterday we obeyed kings and bent our necks before emperors. But today we kneel only to truth, follow only beauty, and obey only love.
+ - Doubt is a pain too lonely to know that faith is his twin brother.
+ - We live only to discover beauty. All else is a form of waiting.
+ - Wake at dawn with a winged heart and give thanks for another day of loving.
+ - And forget not that the earth delights to feel your bare feet and the winds long to play with your hair.
+ - Your living is determined not so much by what life brings to you as by the attitude you bring to life; not so much by what happens to you as by the way your mind looks at what happens.
+ - Your pain is the breaking of the shell that encloses your understanding. It is the bitter potion by which the physician within you heals your sick self. Therefore, trust the physician and drink his remedy in silence and tranquility.
+ - A traveller I am, and a navigator, and everyday I discover a new region within my soul.
+ - Yesterday is but today’s memory, and tomorrow is today’s dream.
+ - Our worst fault is our preoccupation with the faults of others.
+ - Trees are poems the earth writes upon the sky, We fell them down and turn them into paper, That we may record our emptiness.
+ - I have found both freedom and safety in my madness; the freedom of loneliness and the safety from being understood, for those who understand us enslave something in us.
+ - Hearts united in pain and sorrow will not be separated by joy and happiness. Bonds that are woven in sadness are stronger than the ties of joy and pleasure. Love that is washed by tears will remain eternally pure and faithful.
+ - The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
+ - The universe is my country and the human family is my tribe.
+ - There must be something strangely sacred about salt. It is in our tears and in the sea.
+ - A little knowledge that acts is worth infinitely more than much knowledge that is idle.
+ - The power to Love is God’s greatest gift to man, For it never will be taken from the Blessed one who loves.
+ - Hell is not in torture; Hell is in an empty heart...
+ - It was in my heart to help a little because I was helped much.
+ - Only when you drink from the river of silence shall you indeed sing. And when you have reached the mountain top, then you shall begin to climb. And when the earth shall claim your limbs, then shall you truly dance.
+ - Remembrance is a form of meeting.
+ - The earth is like a beautiful bride who needs no manmade jewels to heighten her loveliness...
+ - Perplexity is the beginning of knowledge.
+ - The deeper that sorrow carves into your being, the more joy you can contain.
+ - You talk when you cease to be at peace with your thoughts; And when you can no longer dwell in the solitude of your heart you live in your lips, and sound is a diversion and a pastime. And in much of your talking, thinking is half murdered.
+ - If your heart is a volcano, how shall you expect flowers to bloom?
+ - When I planted my pain in the field of patience it bore fruit of happiness.
+ - What the soul knows is often unknown to the man who has a soul. We are infinitely more than we think.
+ - When you are sorrowful look again in your heart, and you shall see that in truth you are weeping for that which has been your delight.
+ - Your pain is the breaking of the shell that encloses your understanding. Even as the stone of the fruit must break, that its heart may stand in the sun, so must you know pain.
+ - The appearance of things changes according to the emotions; and thus we see magic and beauty in them, while the magic and beauty are really in ourselves.
+ - There are those who give with joy, and that joy is their reward.
+ - Prayer is the song of the heart. It reaches the ear of God even if it is mingled with the cry and the tumult of a thousand men.
+ - Tortoises can tell you more about the road than hares.
+ - But memory is an autumn leaf that murmurs a while in the wind and then is heard no more.
+ - My loneliness was born when men praised my talkative faults and blamed my silent virtues.
+ - When you part from your friend, you grieve not; For that which you love most in him may be clearer in his absence, as the mountain to the climber is clearer from the plain.
+ - I have passed the mountain peak and my soul is soaring in the firmament of Complete and unbounded freedom; I am in comfort, I am in peace.
+ - Limited love asks for possession of the beloved, but the unlimited asks only for itself.
+ - Oh heart, if one should say to you that the soul perishes like the body, answer that the flower withers, but the seed remains.
+ - Even while the Earth sleeps we travel.
+ - Art is a step from what is obvious and well-known toward what is arcane and concealed.
+ - I AM IGNORANT of absolute truth. But I am humble before my ignorance and therein lies my honor and my reward.
+ - Of life’s two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer’s hand.
+ - True love cannot be found where it truly does not exist, Nor can it be hidden where it truly does. Anonymous Love possesses not nor would it be possessed; For love is sufficient unto love.
+ - March on. Do not tarry. To go forward is to move toward perfection. March on, and fear not the thorns, or the sharp stones on life’s path.
+ - Defeat, my defeat, my deathless courage, You and I shall laugh together with the storm, And together we shall dig graves for all that die in us, and we shall stand in the sun with a will, And we shall be dangerous.
+ - It has been said that next to hunger and thirst, our most basic human need is for storytelling.
+ - For thought is a bird of space, that in a cage of words may indeed unfold its wings but cannot fly.
+ - I prefer to be a dreamer among the humblest, with visions to be realized, than lord among those without dreams and desires.
+ - When a man’s hand touches the hand of a woman, they both touch the heart of eternity.
+ - The true wealth of a nation lies not in it’s gold or silver but in it’s learning, wisdom and in the uprightness of its sons.
+ - In the sweetness of friendship let there be laughter, and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
+ - Your body is the harp of your soul and it is yours to bring forth sweet music from it or confused sounds.
+ - You pray in your distress and in your need; would that you might also pray in the fullness of your joy and in your days of abundance.
+ - Say not, I have found the path of the soul Say rather, I have met the soul walking upon my path.
+ - One may not reach the dawn save by path of night.
+ - I had a second birth when my soul and my body loved one another and were married.
+ - Friendship with the ignorant is as foolish as arguing with a drunkard.
+ - Of the good in you I can speak, but not of the evil. For what is evil but good tortured by its own hunger and thirst? Verily when good is hungry it seeks food even in dark caves, and when it thirsts it drinks even of dead waters.
+ - And then to sleep with a prayer for the beloved in your heart and a song of praise upon your lips.
+ - Your joy is your sorrow unmasked. And the selfsame well from which your laughter rises was oftentimes filled with your tears. And how else can it be? The deeper that sorrow carves into your being, the more joy you can contain.
+ - I deserted the world and sought solitude because I became tired of rendering courtesy to those multitudes who believe that humility is a sort of weakness, and mercy a kind of cowardice, and snobbery a form of strength.
+ - Spare me the political events and power struggles, as the whole earth is my homeland and all men are my fellow countrymen.
+ - Progress lies not in enhancing what is, but in advancing toward what will be.
+ - To belittle, you have to be little.
+ - I do not want you to hear that I LOVE you, but I want you to feel it without me having to say.
+ - Remember, one just man causes the Devil greater affliction than a million blind believers.
+ - Let there be spaces in your togetherness.
+ - Education sows not seeds in you, but makes your seeds grow.
+ - He is short-sighted who looks only on the path he treads and the wall on which he leans.
+ - Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
+ - The lust for comfort kills the passions of the soul.
+ - You are the bows from which your children as living arrows are sent forth.
+ - You give but little when you give of your possessions. It is when you give of yourself that you truly give.
+ - Solitude is a silent storm that breaks down all our dead branches; yet it sends our living roots deeper into the living heart of the living earth.
+ - Let there be no purpose in friendship save the deepening of the spirit.
+ - And alone and without his nest shall the Eagle fly across the sun.
+ - A friend who is far away is sometimes much nearer than one who is at hand. Is not the mountain far more awe-inspiring and more clearly visible to one passing through the valley than to those who inhabit the mountain?
+ - Every man is two men; one is awake in the darkness, the other asleep in the light.
+ - There is a desire deep within the soul which drives man from the seen to the unseen, to philosophy and to the divine.
+ - And when you have reached the mountain top, then you shall begin to climb.
+ - Your confidence in the people, and your doubt about them, are closely related to your self-confidence and your self-doubt.
+ - I love you when you bow in your mosque, kneel in your temple, pray in your church. For you and I are sons of one religion, and it is the spirit.
+ - We are limited, not by our abilities, but by our vision.
+ - It is well to give when asked, but it is better to give unasked, through understanding; and to the open-handed the search for one who shall receive is joy greater than giving.
+ - I sit between my brother the mountain and my sister the sea. We three are one in loneliness, and the love that binds us together is deep and strong and strange.
+ - If winter should say, ‘Spring is in my heart,’ who would believe winter?
+ - Listen to the women when she looks at you, not when she talks to you.
+ - Desire is half of life, indifference is half of death.
+ - One’s own religion is after all a matter between oneself and one’s Maker and no one else’s.
+ - How beautiful to find a heart that loves you, without asking you for anything, but to be okay.
+ - Half of what I say is meaningless; but I say it so that the other half may reach you.
+ - A seed hidden in the heart of an apple is an orchard invisible.
+ - Marriage is like a temple resting on two pillars. If they come too close to each other the temple will collapse.
+ - For what is it to die but to stand naked in the wind and to melt into the sun? And when the earth shall claim your limbs, then shall you truly dance.
+ - When love beckons to you, follow him, Though his ways are hard and steep. And when his wings enfold you yield to him, Though the sword hidden among his pinions may wound you.
+ - If you would behold the spirit of death, open your heart wide unto the body of life. For life and death are one, even as the river and sea are one.
+ - Wisdom is not in words; Wisdom is meaning within words.
+ - Poetry is a deal of joy and pain and wonder, with a dash of the dictionary.
+ - The silence of the envious is too noisy.
+ - Perhaps a man may commit suicide in self-defense.
+ - For the first time the sun kissed my own naked face and my soul was inflamed with love for the sun, and I wanted my masks no more. And as if in a trance I cried, “Blessed, blessed are the thieves who stole my masks.” Thus I became a madman.
+ - If I accept the sunshine and warmth, then I must also accept the thunder and lightning.
+ - Only those beneath me can envy or hate me. I have never been envied nor hated; I am above no one. Only those above me can praise or belittle me. I have never been praised nor belittled; I am below no one.
+ - For Reason, ruling alone, is a force confining; and Passion, unattended, is a flame that burns to its own destruction.
+ - Should you really open your eyes and see, you would behold your image in all images. And should you open your ears and listen, you would hear your own voice in all voices.
+ - Advance, and never halt, for advancing is perfection. Advance and do not fear the thorns in the path, for they draw only corrupt blood.
+ - Women opened the windows of my eyes and the doors of my spirit. Had it not been for the woman-mother, the woman-sister, and the woman-friend, I would have been sleeping among those who seek the tranquility of the world with their snoring.
+ - Your daily life is your temple and your religion. When you enter into it take with you your all.
+ - The real test of good manners is to be able to put up with bad manners pleasantly.
+ - Marriage is like a golden ring in a chain, whose beginning is a glance and whose ending is eternity.
+ - Forgetfulness is a form of freedom.
+ - People of Orphalese, beauty is life when life unveils her holy face. But you are life and you are the veil. Beauty is eternity gazing at itself in a mirror. But you are eternity and you are the mirror.
+ - Your pain is the breaking of the shell that encloses your understanding.
+ - Like the seeds dreaming beneath the snow your heart dreams of spring.
+ - Many are the places of worship, but few indeed are those who worship in Spirit and in truth.
+ - If you cannot work with love but only with distaste, it is better that you should leave your work.
+ - And you would accept the seasons of your heart just as you have always accepted that seasons pass over your fields and you would watch with serenity through the winters of your grief.
+ - Spiritual awakening is the most essential thing in man’s life, and it is the sole purpose of being. Is not civilization, in all its tragic forms, a supreme motive for spiritual awakening?
+ - Nature reaches out to us with welcoming arms, and bids us enjoy her beauty; but we dread her silence and rush into the crowded cities, there to huddle like sheep fleeing from a ferocious wolf.
+ - And let it direct your passion with reason, that your passion may livethrough its own daily resurrection, and like the phoenix rise above its own ashes.
+ - In every winter’s heart there is a quivering spring, and behind the veil of each night there is a shining dawn.
+ - I would not exchange the sorrows of my heart for the joys of the multitude. And I would not have the tears that sadness makes to flow from my every part turn into laughter. I would that my life remain a tear and a smile.
+ - Say not, ‘I have found the truth,’ but rather, ‘I have found a truth.’
+ - For love is sufficient unto love.
+ - Darkness is dawn not yet born.
+ - Vague and nebulous is the beginning of all things, but not their end.
+ - If it’s a despot you would dethrone, see first that his throne erected within you is destroyed.
+ - Men who do not forgive women their little faults will never enjoy their great virtues.
+ - Keep your heart in wonder at the daily miracles of your life.
+ - The love of a parent for a child is the love that should grow towards separation.
+ - I discovered the secret of the sea in meditation upon a dewdrop.
+ - My God, my aim and my fulfillment; I am thy yesterday and thou are my tomorrow. I am they root in the earth and thou art my flower in the sky, and together we grow before the face of the sun.
+ - Let me, O let me bathe my soul in colours; let me swallow the sunset and drink the rainbow.
+ - A word I want to see written on my grave: I am alive like you, and I am standing beside you. Close your eyes and look around, you will see me in front of you.
+ - Perhaps time’s definition of coal is the diamond.
+ - You may forget with whom you laughed, but you will never forget with whom you wept.
+ - The smallest act of kindness is worth more than the greatest intention.
+ - We are all prisoners but some of us are in cells with windows and some without.
+ - Sow a seed and the earth will yield you a flower. Dream your dream to the sky and it will bring you your beloved.
+ - The biggest thing in today’s sorrow is the memory of yesterday’s joy.
+ - For life and death are one, even as the river and the sea are one.
+ - For the breath of life is in the sunlight and the hand of life is in the wind.
+ - All that spirits desire, spirits attain.
+ - Safeguarding the rights of others is the most noble and beautiful end of a human being.
+ - The most solid stone in the structure is the lowest one in the foundation.
+ - A sense of humour is a sense of proportion.
+ - How often have you sailed in my dreams. And now you come in my awakening, which is my deeper dream.
+ - If you reveal your secrets to the wind, you should not blame the wind for revealing them to the trees.
+ - Rob a neighbour with a smile.
+ - Persecution cannot harm him who stands by Truth. Did not Socrates fall proudly a victim in body? Was not Paul stoned for the sake of the Truth? It is our inner selves that hurt us when we disobey it, and it kills us when we betray it.
+ - All work is empty save when there is love.
+ - Love and doubt have never been on speaking terms.
+ - You cannot judge any man beyond your knowledge of him, and how small is your knowledge.
+ - Your freedom when it loses its fetters becomes itself the fetter of a greater freedom.
+ - Even as the holy and the righteous cannot rise beyond the highest which is in each one of you, so the wicked and the weak cannot fall lower than the lowest which is in you also.
+ - From a sensitive woman’s heart springs the happiness of mankind, and from the kindness of her noble spirit comes mankind’s affection.
+ - Enthusiasm is a volcano on whose top never grows the grass of hesitation.
+ - How can I lose faith in the justice of life, when the dreams of those who sleep upon feathers are not more beautiful than the dreams of those who sleep upon the earth?
+ - Yes, there is a Nirvanah; it is leading your sheep to a green pasture, and in putting your child to sleep, and in writing the last line of your poem.
+ - You may give them your love, but not your thoughts. For they have their own thoughts.
+ - Your joy can fill you only as deeply as your sorrow has carved you.
+ - Some of you say, “Joy is greater than sorrow,” and others say, “Nay, sorrow is the greater.” But I say unto you, they are inseparable. Together they come, and when one sits alone with you at your board, remember that the other is asleep upon your bed.
+ - The philosopher’s soul dwells in his head, the poet’s soul is in his heart; the singer’s soul lingers about his throat, but the soul of the dancer abides in all her body.
+ - A truly religious man does not embrace a religion; and he who embraces one has no religion.
+ - The chemist who can extract from his heart’s elements compassion, respect, longing, patience, regret, surprise, and forgiveness and compound them into one can create that atom which is called love.
+ - I purified my lips with sacred fire that I might speak of love, but when I opened my mouth to speak, I found myself mute.
+ - Love is not without its flaws. The stronger the love, the more it tests you. Compassion and empathy will make true love persist.
+ - Beauty is eternity gazing at itself in a mirror.
+ - In one drop of water are found all the secrets of all the oceans; in one aspect of You are found all the aspects of existence.
+ - When you are born, your work is placed in your heart.
+ - Love is the gentle smile upon the lips of beauty.
+ - All can hear, but only the sensitive can understand...
+ - You are far, far greater than you know – and all is well.
+ - He who denies his heritage, has no heritage.
+ - For if you bake bread with indifference, you bake a bitter bread that feeds but half man’s hunger.
+ - But if in your fear you would seek only love’s peace and love’s pleasure, then it is better for you that you cover your nakedness and pass out of love’s threshing-floor, into the seasonless world where you shall laugh, but not all of your laughter, and weep, but not all of your tears.
+ - In the depths of your hopes and desires, lies your silent knowledge of the beyond, and like seeds dreaming beneath the snow, your heart dreams of spring. Trust the dreams, for in them is hidden the gate to eternity.
+ - The first glance from the eyes of the beloved is like the spirit that moved upon the face of the waters, giving birth to heaven and earth.
+ - When you reach the end of what you should know, you will be at the beginning of what you should sense.
+ - Love is life sharing, not for hurt, Love is alive both not ambiguous. Love is whole life, not an affair.
+ - Truth is a deep kindness that teaches us to be content in our everyday life and share with the people the same happiness.
+ - And all knowledge is vain save when there is work, and all work is empty save when there is love; and when you work with love you bind yourself to yourself, and to one another, and to God.
+ - Love possesses not nor will it be possessed, for love is sufficient unto love.
+ - Madness is the first step towards unselfishness. Be mad and tell us what is behind the veil of “sanity”. The purpose of life is to bring us closer to those secrets, and madness is the only means.
+ - If we were to all sit in a circle and confess our sins, we would laugh at each other for lack of originality.
+ - Those who give you a serpent when you ask for a fish, may have nothing but serpents to give.
+ - All men love you for themselves. I love you for yourself.
+ - When you have solved all the mysteries of life you long for death, for it is but another mystery of life.
+ - A look which reveals inward stress adds more beauty to the face, no matter how much tragedy and pain it bespeaks; but the face which, in silence, does not announce hidden mysteries is not beautiful, regardless of the symmetry of its features.
+ - We wanderers, ever seeking the lonelier way, begin no day where we have ended another day; and no sunrise finds us where sunset left us.
+ - Birth and Death are the two noblest expressions of bravery.
+ - Love has no other desire but to fulfill itself, but if you love and must needs have desires, let these be your desires.
+ - Friendship is always a sweet responsibility, never an opportunity.
+ - The lust for comfort, that stealthy thing that enters the house a guest, and then becomes a host, and then a master.
+ - The thirst of soul is sweeter than the wine of material things, and the fear of spirit is dearer than the security of the body.
+ - Man struggles to find life outside himself, unaware that the life he is seeking is within him.
+ - Life is weaker than Death and Death is weaker than Truth.
+ - Exaggeration is truth that has lost its temper.
+ - The eye of a human being is a microscope, which makes the world seem bigger than it really is.
+ - The tiny flame that lights up the human heart is like a blazing torch that comes down from heaven to light up the paths of mankind. For in one soul are contained the hopes and feelings of all Mankind.
+ - Zeal is a volcano, the peak of which the grass of indecisiveness does not grow.
+ - Your saying ‘I do not understand you’ is praise beyond my worth, and an insult you do not deserve.
+ - When you love you should not think you can direct the course of love, for love, if it finds you worthy, directs your course.
+ - Fear of the devil is one way of doubting God.
+ - Your soul is oftentimes a battlefield, upon your reason and your judgment wage war against your passion and your appetite.
+ - The snow and the storm destroy the flower; but its seed they cannot kill.
+ - For what is evil but good tortured by its own hunger and thirst?
+ - The sorrowful spirit finds relaxation in solitude. It abhors people, as a wounded deer deserts the herd and lives in a cave until it is healed or dead.
+ - Love is a magic ray emitted from the burning core of the soul and illuminating the surrounding earth. It enables us to perceive life as a beautiful dream between one awakening and another.
+ - Your friend is your needs answered. He is your field which you sow with love and reap with thanksgiving. And he is your board and your fireside. For you come to him with your hunger, and you seek him for peace.
+ - A voice cannot carry the tongue and the lips that gave it wings. Alone must it seek the ether. And alone and without his nest shall the eagle fly across the sun.
+ - Love has the power that dispels death; charm that conquers the enemy.
+ - Strange, the desire for certain pleasures is a part of my pain.
+ - Learn the words of wisdom uttered by the wise and apply them in your own life. Live them – but do not a make a show of reciting them, for he who repeats what he does not understand is no better than an ass loaded with books.
+ - These things he said in words. But much in his heart remained unsaid. For he himself could not speak his deeper secret.
+ - Love that is cleansed by tears will remain eternally pure and beautiful.
+ - There is a space between man’s imagination and man’s attainment that may only be traversed by his longing.
+ - Love is the only freedom in the world because it so elevates the spirit that the laws of humanity and the phenomena of nature do not alter its course.
+ - It was but yesterday I thought myself a fragment quivering without rhythm in the sphere of life. Now I know that I am the sphere, and all life in rhythmic fragments moves within me.
+ - Sit by me, my beloved, and listen to my heart; smile, for your happiness is a symbol of our future.
+ - Where are you now, my beloved? Do you hear my weeping From beyond the ocean? Do you understand my need? Do you know the greatness of my patience?
+ - He who wears his morality but as his best garment were better naked. The wind and the sun will tear no holes in his skin.
+ - Love gives naught but itself and takes naught but from itself.
+ - We shall never understand one another until we reduce the language to seven words.
+ - The “I” in me, my friend, dwells in the house of silence, and therein it shall remain for ever more, unperceived, unapproachable.
+ - Life is but a sleep disturbed by dreaming, prompted by the will; the saddened soul with sadness hides it’s secrets, and the gay, with thrill.
+ - The voice of life in me cannot reach the ear of life in you; but let us talk that we may not feel lonely.
+ - Hate is a dead thing. Who of you would be a tomb?
+ - The sea that calls all things unto her cals me, and I must embark.
+ - When you work you are a flute through whose heart the whispering of the hours turns to music. Which of you would be a reed, dumb and silent, when all else sings together in unison?
+ - And if you sing though as angels, and love not the singing, you muffle man’s ears to the voices of the day and the voices of the night.
+ - For even as love crowns you so shall he crucify you. Even as he is for your growth so is he for your pruning. Even as he ascends to your height and caresses your tenderest branches that quiver in the sun, so shall he descend to your roots and shake them in their clinging to the earth.
+ - God made Truth with many doors to welcome every believer who knocks on them.
+ - The truly great man is he who would master no one, and who would be mastered by none.
+ - God has given you a spirit with wings on which to soar into the spacious firmament of Love and Freedom. Is it not pitiful than that you cut your wings with your own hands and suffer your soul to crawl like an insect upon the earth?
+ - It is wrong to think that love comes from long companionship and persevering courtship. Love is the offspring of spiritual affinity and unless that affinity is created in a moment, it will not be created for years or even generations.
+ - But now I have learned to listen to silence. To hear its choirs singing the song of ages, chanting the hymns of space, and disclosing the secrets of eternity.
+ - The heart’s affections are divided like the branches of the cedar tree; if the tree loses one strong branch; it will suffer but it does not die; it will pour all its vitality into the next branch so that it will grow and fill the empty place.
+ - Let passion fill your sails, but let reason be your rudder.
+ - Would that I were a dry well, and that the people tossed stones into me, for that would be easier than to be a spring of flowing water that the thirsty pass by, and from which they avoid drinking.
+ - A shy failure is nobler than an immodest success.
+ - Is not dread of thirst when your well is full, the thirst that is unquenchable?
+ - History does not repeat itself except in the minds of those who do not know history.
+ - Beauty is life when life unveils her holy face.
+ - Beauty is not a need but an ecstasy. It is not a mouth thirsting nor an empty hand stretched forth, But rather a heart enflamed and a soul enchanted.
+ - Only once have I been made mute. It was when a man asked me, ‘Who are you?’
+ - Long were the days of pain I have spent within its walls, and long were the nights of aloneness; and who can depart from his pain and his aloneness without regret?
+ - Braving obstacles and hardships is nobler than retreat to tranquility. The butterfly that hovers around the lamp until it dies is more admirable than the mole that lives in a dark tunnel.
+ - You who are strong and swift, see that you do not limp before the lame, deeming it kindness.
+ - Solitude has soft, silky hands, but with strong fingers it grasps the heart and makes it ache with sorrow.
+ - Words are timeless. You should utter them or write them with a knowledge of their timelessness.
+ - Love has no other desire but to fulfill itself.
+ - Seek not the depths of your knowledge with staff or sounding line. For self is a sea boundless and measureless.
+ - Always you have been told that work is a curse and labor a misfortune. But I say to you that when you work you fulfill a part of earth’s furthest dream, assigned to you when that dream was born.
+ - Jesus was not sent here to teach the people to build magnificent churches and temples amidst the cold wretched huts and dismal hovels. He came to make the human heart a temple, and the soul an altar, and the mind a priest.
+ - No human relation gives one possession in another – every two souls are absolutely different. In friendship or in love, the two side by side raise hands together to find what one cannot reach alone.
+ - The significance of a man is not in what he attains, but rather what he longs to attain.
+ - The teacher gives not of his wisdom, but rather of his faith and lovingness.
+ - At ebb tide I wrote a line upon the sand, and gave it all my heart and all my soul. At flood tide I returned to read what I had inscribed and found my ignorance upon the shore.
+ - For this I bless you most. You give much and know not that you give at all.
+ - When you were a wandering desire in the mist, I too was there, a wandering desire. Then we sought one another, and out of our eagerness dreams were born. And dreams were time limitless, and dreams were space without measure.
+ - Your fear of death is but the trembling of the shepherd when he stands before the king whose hand is to be laid upon him in honour.
+ - As the strings of a lute are apart though they quiver the same music.
+ - Give me an ear and I will give you a Voice...
+ - Knowledge of the self is the mother of all knowledge. So it is incumbent on me to know my self, to know it completely, to know its minutiae, its characteristics, its subtleties, and its very atoms.
+ - Love descends upon our souls by the will of God and not by the demand or the plea of the individual.
+ - The nearest to my heart are a king without a kingdom and a poor man who does not know how to beg.
+ - Money is like love; it kills slowly and painfully the one who withholds it, and enlivens the other who turns it on his fellow man.
+ - A woman whom Providence has provided with beauty of spirit and body is a truth, at the same time both open and secret, which we can understand only by love, and touch only by virtue.
+ - For in truth it is life that gives unto life-while you, who deem yourself a giver, are but a witness.
+ - Let us disperse from our aloofness and serve the weak who made us strong, and cleanse the country in which we live. Let us teach this miserable nation to smile and rejoice with heaven’s bounty and glory of life and freedom.
+ - Only when you drink from the river of silence shall you indeed sing.
+ - Your life is an island separated from all other islands and continents. Regardless of how many boats you send to other shores or how many ships arrive upon your shores, you yourself are an island separated by its own pains, secluded in its happiness.
+ - Now let us play hide and seek. Should you hide in my heart it would not be difficult to find you. But should you hide behind your own shell, then it would be useless for anyone to seek you.
+ - You often say, “I would give, but only to the deserving.” The trees in your orchard say not so, nor the flocks in your pasture. They give that they may live, for to withhold is to perish.
+ - He who does not see the angels and devils in the beauty and malice of life will be far removed from knowledge, and his spirit will be empty of affection.
+ - Tears have cleansed my eyes, and errors have taught me the language of the hearts.
+ - Trees are poems that the earth writes upon the sky.
+ - In battling evil, excess is good; for he who is moderate in announcing the truth is presenting half-truth. He conceals the other half out of fear of people’s wrath.
+ - You may strive to be like them but seek not to make them like you. For life goes not backward nor tarries with yesterday.
+ - Science and religion are in full accord, but science and faith are in complete discord.
+ - Observe the wonders as they occur around you. Don’t claim them. Feel the artistry moving through and be silent.
+ - Much of your pain is the bitter potion by which the physician within you heals your sick self.
+ - If your knowledge teaches you not the value of things, and frees you not from the bondage to matter, you shall never come near the throne of Truth.
+ - In a dream I saw Jesus and My God Pan sitting together in the heart of the forest. They laughed at each other’s speech, with the brook that ran near them, and the laughter of Jesus was the merrier. And they conversed long.
+ - Am I a harp that the hand of the mighty may touch me, or a flute that his breath may pass through me? A seeker of silences am I, and what treasure have I found in silences that I may dispense with confidence?
+ - When God created Man, he gave him Music as a language different from all other languages. And early man sang his glory in the wilderness; and drew the hearts of kings and moved them from their thrones.
+ - Seven times have I despised my soul: The sixth time when she despised the ugliness of a face, and knew not that it was one of her own masks.
+ - Love is trembling happiness.
+ - The just is close to the people’s heart, but the merciful is close to the heart of God.
+ - I came here to be for all and with all, and what I do today in my solitude will be echoed tomorrow by the multitude. What I say now with one heart will be said tomorrow by thousands of hearts...
+ - The strong grows in solitude where the weak withers away.
+ - Love that does not renew itself every day becomes a habit and in turn a slavery.
+ - When you feel Jealousy is a sign that Love should have each other.
+ - Love is the only flower that grows and blossoms without the aid of the seasons.
+ - Are you a politician asking what your country can do for you or a zealous one asking what you can do for your country? If you are the first, then you are a parasite; if the second, then you are an oasis in the desert.
+ - The very strength that protects the heart from injury is the strength that prevents the heart from enlarging to its intended greatness within. The song of the voice is sweet, but the song of the heart is the pure voice of heaven.
+ - Now I realize that the trees blossom in Spring and bear fruit in Summer without seeking praise; and they drop their leaves in Autumn and become naked in Winter without fearing blame.
+ - As one’s gifts increase, his friends decrease.
+ - But you who walk facing the sun, what images drawn on the earth can hold you?
+ - I am a poet who composes what life proses, and who proses what life composes.
+ - Humanity is a river of light running from the ex-eternity to eternity.
+ - Darkness may hide the trees and the flowers from the eyes but it cannot hide love from the soul.
+ - My brothers, seek counsel of one another, for therein lies the way out of error and futile repentance. The wisdom of the many is your shield against tyranny. For when we turn to one another for counsel we reduce the number of our enemies.
+ - You shall be free indeed when your days are not without a care, nor your nights without a want and a grief, but rather when these things girdle your life and yet you rise above them naked and unbound.
+ - If indeed you must be candid, be candid beautifully.
+ - You may chain my hands, you may shackle my feet; you may even throw me into a dark prison; but you shall not enslave my thinking, because it is free!
+ - The feelings we live through in love and in loneliness are simply, for us, what high tide and low tide are to the sea.
+ - Do not be merciful, but be just, for mercy is bestowed upon the guilty criminal, while Justice is all that the innocent man requires.
+ - And your fragrance shall be my breath, And together we shall rejoice through all the seasons.
+ - God has made many doors opening into truth which He opens to all who knock upon them with hands of faith.
+ - And let to-day embrace the past with remembrance and the future with longing.
+ - Comfort comes into your house first as guest, then as a host, then finally as the master.
+ - All our words are but crumbs that fall down from the feast of the mind.
+ - A minute moving among the patterns of beauty and the dreams of love is greater and more precious than an age filled with splendor granted by the weak to the strong.
+ - You may give them your love but not your thoughts, for they have their own thoughts. You may house their bodies but not their souls, for their souls dwell in the house of tomorrow, which you cannot visit, not even in your dreams.
+ - The poet is a bird of strange moods. He descends from his lofty domain to tarry among us, singing; if we do not honor him he will unfold his wings and fly back to his dwelling place.
+ - And let there be no purpose in friendship save the deepening of the spirit. For love that seeks aught but the disclosure of its own mystery is not love but a net cast forth: and only the unprofitable is caught.
+ - I existed from all eternity and, behold, I am here; and I shall exist till the end of time, for my being has no end.
+ - Everyone has experienced that truth: that love, like a running brook, is disregarded, taken for granted; but when the brook freezes over, then people begin to remember how it was when it ran, and they want it to run again.
+ - God has bestowed upon you intelligence and knowledge. Do not extinguish the lamp of Divine Grace and do not let the candle of wisdom die out in the darkness of lust and error. For a wise man approaches with his torch to light up the path of mankind.
+ - For that which is boundless in you abides in the mansion of the sky, whose door is the morning mist, and whose windows are the songs and the silences of night.
+ - To love life through our labor is to be intimate with life’s inmost secrets.
+ - How distant I am from people when I am with them, and how close when they are far away.
+ - I said to Life, I would hear Death speak. And Life raised her voice a little higher and said, You hear him now.
+ - Your house is your larger body.
+ - Death most resembles a prophet who is without honor in his own land or a poet who is a stranger among his people.
+ - The lights of stars that were extinguished ages ago still reaches us. So it is with great men who died centuries ago, but still reach us with the radiations of their personalities.
+ - Verily all things move within your being in constant half embrace, the desired and the dreaded, the repugnant and the cherished, the pursued and that which you would escape.
+ - You would measure time the measureless and the immeasurable. You would adjust your conduct and even direct the course of your spirit according to hours and seasons. Of time you would make a stream upon whose bank you would sit and watch its flowing.
+ - What of the old serpent who cannot shed his skin, and calls all others naked and shameless?
+ - I am forever walking upon these shores, Betwixt the sand and the foam, The high tide will erase my food prnts, And the wind will blow away the foam, But the sea and the shore will remain forver.
+ - Happiness is a vine that takes root and grows within the heart, never outside it.
+ - Where is the justice of political power if it executes the murderer and jails the plunderer, and then itself marches upon neighboring lands, killing thousands and pillaging the very hills?
+ - For the sight of the angry weather saddens my soul and the sight of the town, sitting like a bereaved mother beneath layers of ice, oppresses my heart.
+ - The longing for paradise is paradise itself.
+ - My yearning is my cup, my burning thirst is my drink, and my solitude is my intoxication; I do not and shall not quench my thirst. But in this burning that is never extinguished is a joy that never wanes.
+ - If it were not for guests all houses would be graves.
+ - If your knowledge teaches you not to rise above human weakness and misery and lead your fellow man on the right path, you are indeed a man of little worth and will remain such till Judgment Day.
+ - You have your ideology and I have mine.
+ - Many a doctrine is like a window pane. We see truth through it but it divides us from truth.
+ - And when you crush an apple with your teeth, say to it in your heart: Your seeds shall live in my body, And the buds of your tomorrow shall blossom in my heart, And your fragrance shall be my breath, And together we shall rejoice through all the seasons.
+ - It is not a garment I cast off this day, but a skin that I tear with my own hands.
+ - All you have shall some day be given. Therefore give now, that the season of giving may be yours and not your inheritors.
+ - Your friend is your field which you sow with love and reap with thanksgiving.
+ - Your joy is your sorrow unmasked.
+ - God created music as a common language for all men. It inspires the poets, the composers and the architects. It lures us to search our souls for the meaning of the mysteries described in ancient books.
+ - I wash my hands of those who imagine chattering to be knowledge, silence to be ignorance, and affection to be art.
+ - Our pain carves out a larger space for love to fill.
+ - You cannot laugh and be unkind at the same time.
+ - And as a single leaf turns not yellow but with the silent knowledge of the whole tree.
+ - He alone is great who turns the voice of the wind into a song made sweeter by his own loving.
+ - He who does not prefer exile to slavery is not free by any measure of freedom, truth and duty.
+ - If you sing of beauty though alone in the heart of the desert you will have an audience.
+ - Do not keep crying when your love has been gone. You only need Smile because he had been given you the opportunity to meet someone who is better.
+ - Who can separate his faith from his actions, or his belief from his occupations?
+ - He who loses his mother loses a pure soul who blesses and guards him constantly.
+ - Seek ye counsel of the aged for their eyes have looked on the faces of the years and their ears have hardened to the voices of Life. Even if their counsel is displeasing to you, pay heed to them.
+ - If any of you would bring judgment the unfaithful wife, let him also weight the heart of her husband in scales, and measure his soul with measurements.
+ - Let your home be you mast and not your anchor.
+ - And one of the elders of the city, said, speak to us of good and evil. And he answered : You are good in countless ways, and you are not evil when you are not good .
+ - And when one of you falls down he falls for those behind him, a caution against the stumbling stone. Ay, and he falls for those ahead of him, who though faster and surer of foot, yet removed not the stumbling stone.
+ - In every aspect of the day Jesus was aware of the Father. He beheld Him in the clouds and in the shadows of the clouds that pass over the earth.
+ - A teacher can only lead you to the threshold of your own mind.
+ - The song of the voice is sweet, but the song of the heart is the pure voice of heaven.
+ - Your hearts know in silence the secrets of the days and the nights.
+ - You work that you may keep peace with the earth and the soul of the earth.
+ - Let ignorance reproduce itself until it is weary of its own offspring.
+ - Love is the veil between lover and lover.
+ - Beauty is that which attracts your soul, and that which loves to give and not to receive.
+ - For a love to grow through the test of everyday living, one must respect that zone of privacy where one retires to relate to the inside instead of the outside.
+ - I am the lover’s gift; I am the wedding wreath; I am the memory of a moment of happiness; I am the last gift of the living to the dead; I am a part of joy and a part of sorrow.
+ - Cover me with soft earth, and let each handful be mixed With seeds ofjasmine, lilies, and myrtle; and when they Grow above me and thrive on my body’s element they will Breathe the fragrance of my heart into space.
+ - Those to whom worshiping is a window, to open but also to shut, have not yet visited the house of their souls whose windows are open from dawn to dawn.
+ - It is not the sap within the furrowed bark, nor a wing attached to a claw, But rather a garden forever in bloom and a flock of angels forever in flight.
+ - Life has two halves: one patient and one afire. Love is the fiery half. Make me, O Lord, food for the flames.
+ - Death changes nothing but the mask that covers our faces.
+ - Inspiration will always sing; inspiration will never explain.
+ - Strange that we all defend our wrongs with more vigor than we do our rights.
+ - Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
+ - A poet is a bird of unearthly excellence, who escapes from his celestial realm arrives in this world warbling. If we do not cherish him, he spreads his wings and flies back into his homeland.
+ - There are those who give little of the much which they have – and they give it for recognition and their hidden desire makes their gifts unwholesome.
+ - We are the sons of Sorrow; we are the poets and the prophets and the musicians.
+ - To be closer to god, be closer to people.
+ - Thinking is always the stumbling stone to poetry.
+ - He who does not see the kingdom of heaven in this life will never see it in the coming life.
+ - No man can reveal to you nothing but that which already lies half-asleep in the dawning of your knowledge.
+ - When we turn to one another for counsel we reduce the number of our enemies.
+ - If the other person injures you, you may forget the injury; but if you injure him you will always remember.
+ - Your clothes conceal much of your beauty, yet they hide not the unbeautiful.
+ - We who love Him beheld Him with these our eyes which He made to see; and we touched Him with these our hands which He taught to reach forth.
+ - Philosophy began when man ate the produce of the earth and suffered indigestion.
+ - Saying this, he turned his head toward the window as if he were trying to solve the problems of human existence by concentrating on the beauty of the universe.
+ - If you are poor, shun association with him who measures men with the yardstick of riches.
+ - He who is more mindful of one, loses the love and the faith of both.
+ - Love passes by us, robed in meekness; but we flee from her in fear, or hide in the darkness; or else pursue her, to do evil in her name.
+ - When you are sorrowful, look again.
+ - He who repeats what he does not understand is no better than an ass that is loaded with books.
+ - The truly good is he who is one with all those who are deemed bad.
+ - Is not the beautiful moon, that inspires poets, the same moon which angers the silence of the sea with a terrible roar?
+ - They tell me: If you see a slave sleeping, do not wake him lest he be dreaming of freedom. I tell them: If you see a slave sleeping, wake him and explain to him freedom.
+ - Doubt is a pain too lonely to know that faith is his twin brother. Doubt is a foundling unhappy and astray, and though his own mother who gave him birth should find him and enfold him, he would withdraw in caution and in fear.
+ - A little while, a moment of rest upon the wind, and another woman shall bear me.
+ - Make me, oh God, the prey of the Lion, ere you make the rabbit my prey.
+ - The first thought of God was an angel. The first word of God was a man.
+ - The fool sees naught but folly; and the madman only madness. Yesterday I asked a foolish man to count the fools among us. He laughed and said, “This is too hard a thing to do, and it will take too long. Were it not better to count only the wise?”
+ - Lovers embrace that which is between them rather than each other.
+ - He who seeks ecstasy in love should not complain of suffering.
+ - I use hate as a weapon to defend myself; had I been strong, I would never have needed that kind of weapon.
+ - Your house is your larger body. It grows in the sun and sleeps in the stillness of the night; and it is not dreamless. Does not your house dream, and dreaming, leave the city for grove or hilltop?
+ - Man is like the foam of the sea, that floats upon the surface of the water. When the wind blows, it vanishes, as if it had never been. Thus are our lives blown away by Death.
+ - The best of man is he who blushes when you praise him and remains silent when you defame him.
+ - If my survival caused another to perish, then death would be sweeter and more beloved.
+ - You hate Jesus because someone from the North Country said He was the Son of God. But you hate one another because each of you deems himself too great to be the brother of the next man.
+ - A root is a flower that disdains fame.
+ - You are your own forerunner, and the towers you have builded are but the foundation of your giant-self. And that self too shall be a foundation.
+ - When life does not find a singer to sing her heart she produces a philosopher to speak her mind.
+ - They have exiled me now from their society and I am pleased, because humanity does not exile except the one whose noble spirit rebels against despotism and oppression. He who does not prefer exile to slavery is not free by any measure of freedom.
+ - When you reach the heart of life you shall find beauty in all things, even in the eyes that are blind to beauty.
+ - I have never agreed with my other self wholly. The truth of the matter seems to lie between us.
+ - Rebellion without truth is like spring in a bleak, arid desert.
+ - He who does not seek advice is a fool. His folly blinds him to Truth and makes him evil, stubborn, and a danger to his fellow man.
+ - You are a flower crushed beneath the feet of the animal that is concealed in a human being. Take comfort, in that you are the flower crushed and not the foot that has crushed it.
+ - Disagreement may be the shortest cut between two minds.
+ - A God who is good knows no segregation amongst words or names. And were a God to deny his blessing to those who pursue a different path to eternity, there would be no human who should offer worship.
+ - Knowledge and understanding are life’s faithful companions who will never prove untrue to you. For knowledge is your crown, and understanding your staff; and when they are with you, you can possess no greater treasures.
+ - Would that I could be the peacemaker in your soul, that I might turn the discord and the rivalry of your elements into oneness and melody.
+ - He who passes not his days in the realm of dreams is the slave of the days.
+ - Wit is often a mask. If you tear it you will find either genius irritated or cleverness juggling.
+ - He who understands you is greater kin to you than your own brother. For even your own kindred neither understand you nor know your true worth.
+ - Your house shall be not an anchor but a mast It shall not be a glistening film that covers a wound, but an eyelid that guards the eye.
+ - And is not time even as love is, undivided and paceless? But if in you thought you must measure time into seasons, let each season encircle all the other seasons, And let today embrace the past with remembrance and the future with longing.
+ - Faith is an oasis in the heart which will never be reached by the caravan of thinking.
+ - A man can be free without being great, but no man can be great without being free.
+ - The obvious is that which is never seen until someone expresses it simply.
+ - What is fear of need but need itself?
+ - My proof convinces the ignorant, and the wise man’s proof convinces me. But he whose reasoning falls between wisdom and ignorance, I neither can convince him, nor can he convince me.
+ - Because the soul is like a flower that folds its petals when dark comes, and breathes not its fragrance into the phantoms of the night.
+ - Love is a gracious host to his guests though to the unbidden his house is a mirage and a mockery.
+ - How narrow is the vision that exalts the busyness of the ant above the singing of the grasshopper.
+ - Some think I wink at them when I shut my eyes to avoid their sight.
+ - Tolerance is love sick with the sickness of haughtiness.
+ - Extreme torture is mute, and so we sat silent, petrified, like columns of marble buried under the sand of an earthquake. Neither wished to listen to the other because our heart-threads had become weak and even breathing would have broken them.
+ - You are good when you are fully awake in your speech, Yet you are not evil when you sleep while your tongue staggers without purpose. And even stumbling speech may strengthen a weak tongue.
+ - You shall not dwell in tombs made by the dead for the living.
+ - He who defines his conduct by ethics imprisons his song-bird in a cage.
+ - The wolves prey upon the lambs in the darkness of the night, but the blood stains remain upon the stones in the valley until the dawn comes, and the sun reveals the crime to all.
+ - The giving and receiving of pleasure is a need and an ecstasy.
+ - In the mouth of Society are many diseased teeth, decayed to the bones of the jaws. But Society makes no effort to have them extracted and be rid of the affliction. It contents itself with gold fillings.
+ - Time has been transformed, and we have changed; it has advanced and set us in motion; it has unveiled its face, inspiring us with bewilderment and exhilaration.
+ - The most wonderful thing, Mary, is that you and I are always walking together, hand in hand, in a strangely beautiful world, unknown to other people. We both stretch one hand to receive from Life – and Life is generous indeed.
+ - In the depth of your hopes and desires lies your silent knowledge of the beyond...
+ - The bird has an honor that man does not have. Man lives in the traps of his abdicated laws and traditions; but the birds live according to the natural law of God who causes the earth to turn around the sun.
+ - You cannot lay remorse upon the innocent nor lift it from the heart of the guilty. Unbidden shall it call in the night, that men may wake and gaze upon themselves.
+ - Have you not heard of the man who was digging in the earth for roots and found a treasure?
+ - When we oppose the hidden conscience, it does us hurt. When we betray it, it judges us.
+ - And what word is knowledge but a shadow of wordless knowledge?
+ - I would tell you more of Him, but how shall I? When love becomes vast love becomes wordless. And when memory is overladen it seeks the silent deep.
+ - For the vision of one man lends not its wings to another man.
+ - If I extend an empty hand and in retrieving it and finding it still empty, I feel disappointment, that is foolishness; yet if I extend a hand which is full and yet find no one to receive it, then that is hopelessness.
+ - He was gentle, like a man mindful of his own strength. In my dreams I beheld the kings of the earth standing in awe in His presence.
+
+500 quotes

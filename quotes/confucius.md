@@ -1,0 +1,104 @@
+ - It does not matter how slowly you go as long as you do not stop.
+ - The man who thinks he can and the man who thinks he can't are both right.
+ - Choose a job you love, and you will never have to work a day in your life.
+ - The man who moves a mountain begins by carrying away small stones.
+ - Everything has beauty, but not everyone sees it.
+ - Wherever you go, go with all your heart.
+ - Our greatest glory is not in never falling, but in rising every time we fall.
+ - Life is really simple, but we insist on making it complicated.
+ - Respect yourself and others will respect you.
+ - No matter how busy you may think you are, you must find time for reading, or surrender yourself to self-chosen ignorance.
+ - If you make a mistake and do not correct it, this is called a mistake.
+ - Education breeds confidence. Confidence breeds hope. Hope breeds peace.
+ - He who knows all the answers has not been asked all the questions.
+ - I hear and I forget. I see and I remember. I do and I understand.
+ - The gem cannot be polished without friction, nor man perfected without trials.
+ - What the superior man seeks is in himself; what the small man seeks is in others.
+ - Forget injuries, never forget kindnesses.
+ - You cannot open a book without learning something.
+ - Music produces a kind of pleasure which human nature cannot do without.
+ - It is not the failure of others to appreciate your abilities that should trouble you, but rather your failure to appreciate theirs.
+ - Ability will never catch up with the demand for it.
+ - The man who asks a question is a fool for a minute, the man who does not ask is a fool for life.
+ - Knowledge without practice is useless. Practice without knowledge is dangerous.
+ - The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
+ - Silence is a true friend who never betrays.
+ - Study the past if you want to define the future.
+ - When it is obvious that the goals cannot be reached, don’t adjust the goals, adjust the action steps.
+ - He who chases two rabbits, catches none.
+ - A superior man is modest in his speech, but exceeds in his actions.
+ - Success depends upon previous preparation, and without such preparation there is sure to be failure.
+ - Real knowledge is to know the extent of one’s ignorance.
+ - When anger rises, think of the consequences.
+ - If your plan is for one year plant rice. If your plan is for ten years plant trees. If your plan is for one hundred years educate children.
+ - By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.
+ - Everything has its beauty, but not everyone sees it.
+ - Give a bowl of rice to a man and you will feed him for a day. Teach him how to grow his own rice and you will save his life.
+ - It is better to light one small candle of gratitude than to curse the darkness.
+ - He who learns but does not think, is lost. He who thinks but does not learn is in great danger.
+ - Before you embark on a journey of revenge, dig two graves.
+ - The hardest thing of all is to find a black cat in a dark room, especially if there is no cat.
+ - Attack the evil that is within yourself, rather than attacking the evil that is in others.
+ - Better a diamond with a flaw than a pebble without.
+ - A lion chased me up a tree, and I greatly enjoyed the view from the top.
+ - To know that we know what we know, and that we do not know what we do not know, that is true knowledge.
+ - If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear?
+ - A fool despises good counsel, but a wise man takes it to heart.
+ - To see what is right and not do it is the worst cowardice.
+ - If what one has to say is not better than silence, then one should keep silent.
+ - And remember, no matter where you go, there you are.
+ - The superior man thinks always of virtue; the common man thinks of comfort.
+ - What you do not wish upon yourself, extend not to others.
+ - Only the wisest and stupidest of men never change.
+ - Don’t complain about the snow on your neighbor’s roof when your own doorstep is unclean.
+ - To put the world in order, we must first put the nation in order; to put the nation in order, we must first put the family in order; to put the family in order; we must first cultivate our personal life; we must first set our hearts right.
+ - Charity, like the sun, brightens every object on which it shines.
+ - To be wronged is nothing, unless you continue to remember it.
+ - When a wise man points at the moon the imbecile examines the finger.
+ - In a country well governed, poverty is something to be ashamed of. In a country badly governed, wealth is something to be ashamed of.
+ - The superior man is slow in his words and earnest in his conduct.
+ - Learning without thought is labor lost; thought without learning is perilous.
+ - Have no friends not equal to yourself.
+ - Faced with what is right, to leave it undone shows a lack of courage.
+ - The superior man understands what is right; the inferior man understands what will sell.
+ - If I am walking with two other men, each of them will serve as my teacher. I will pick out the good points of the one and imitate them, and the bad points of the other and correct them in myself.
+ - Consideration for others is the basis of a good life, a good society.
+ - He who requires much from himself and little from others, will keep himself from being the object of resentment.
+ - Behind every smile there’s teeth.
+ - Riches and honor are what everyone desires, but if they can be gained only by doing evil, they must not be held. Don’t worry about not being in office, worry about qualifying yourself for office. Don’t worry that no one knows you, but seek to be worthy of being known.
+ - It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve; and bad things are very easy to get.
+ - True goodness springs from a man’s own heart. All men are born good.
+ - The scholar does not consider gold and jade to be precious treasures, but loyalty and good faith.
+ - Time flows away like the water in the river.
+ - The funniest people are the saddest once.
+ - The Essence of Knowledge is, having it, to use it.
+ - The noble-minded are calm and steady. Little people are forever fussing and fretting.
+ - The man of wisdom is never of two minds; the man of benevolence never worries; the man of courage is never afraid.
+ - Hold faithfulness and sincerity as first principles.
+ - By nature, men are nearly alike; by practice, they get to be wide apart.
+ - Shall I teach you what knowledge? When you know a thing, say that you know it; when you do not know a thing, admit that you do not know it. That is knowledge.
+ - It is more shameful to distrust our friends than to be deceived by them.
+ - The nobler sort of man emphasizes the good qualities in others, and does not accentuate the bad. The inferior does.
+ - A common man marvels at uncommon things. A wise man marvels at the commonplace.
+ - Never give a sword to a man who can’t dance.
+ - If you think in terms of a year, plant a seed; if in terms of ten years, plant trees; if in terms of 100 years, teach the people.
+ - The way of the superior person is threefold; virtuous, they are free from anxieties; wise they are free from perplexities; and bold they are free from fear.
+ - To be wealthy and honored in an unjust society is a disgrace.
+ - Knowledge is merely brilliance in organization of ideas and not wisdom. The truly wise person goes beyond knowledge.
+ - If a man takes no thought about what is distant, he will find sorrow near at hand.
+ - One joy dispels a hundred cares.
+ - The strength of a nation derives from the integrity of the home.
+ - Fix your mind on truth, hold firm to virtue, rely on loving kindness, and find your recreation in the Arts.
+ - If there were one word that could act as a standard of conduct for one’s entire life, perhaps it would be ’thoughtfulness.
+ - Ignorance is the night of the mind, but a night without moon or star.
+ - Without knowing the force of words, it is impossible to know more.
+ - The superior man, when resting in safety, does not forget that danger may come. When in a state of security he does not forget the possibility of ruin. When all is orderly, he does not forget that disorder may come. Thus his person is not endangered, and his States and all their clans are preserved.
+ - A youth is to be regarded with respect. How do we know that his future will not be equal to our present?
+ - No lake so still but it has its wave. No circle so perfect but that it has its blur. I would change things for you if I could; As I can’t you must take them as they are.
+ - We take greater pains to persuade others that we are happy than in endeavoring to think so ourselves.
+ - They must often change who would remain constant in happiness and wisdom.
+ - Virtuous people often revenge themselves for the constraints to which they submit by the boredom which they inspire.
+ - To be able under all circumstances to practice five things constitutes perfect virtue; these five things are gravity, generosity of soul, sincerity, earnestness and kindness.
+ - Settle one difficulty, and you keep a hundred away.
+
+102 quotes

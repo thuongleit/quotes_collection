@@ -1,0 +1,40 @@
+ - All battles are first won or lost, in the mind.
+ - I fear nothing for God is with me!
+ - Help yourself and God will help you.
+ - Go forward bravely. Fear nothing. Trust in God; all will be well.
+ - I am the drum on which God is beating out his message.
+ - How else would God speak to me, if not through my imagination?
+ - In God’s name let us go on bravely.
+ - Courage! Do not fall back.
+ - I’m gonna take it as it comes.
+ - If I be not in a state of grace, I pray God place me in it; if I be in it, I pray God keep me so.
+ - I would rather die than do something which I know to be a sin, or to be against God’s will.
+ - Do you know whether or not you are in God’s grace? Joan: If I am not, may God put me there; and if I am, may God so keep me.
+ - I place trust in God, my creator, in all things; I love Him with all my heart.
+ - Do you smell something burning or is it me?
+ - If I said that God did not send me, I should condemn myself; truly God did send me.
+ - About Jesus Christ and the Church, I simply know they’re just one thing, and we shouldn’t complicate the matter.
+ - It is true I wished to escape; and so I wish still: is not this lawful for all prisoners?
+ - It is better to be alone with God. His friendship will not fail me, nor His counsel, nor His love. In His strength, I will dare and dare and dare until I die.
+ - I was in my thirteenth year when I heard a voice from God to help me govern my conduct. And the first time I was very much afraid.
+ - Courage! Do not fall back; in a little the place will be yours. Watch! When the wind blows my banner against the bulwark, you shall take it.
+ - I saw them with my bodily eyes as clearly as I see you. And when they departed, I used to weep and wish they would take me with them.
+ - Even though I saw the executioner and the fire, I could not say anything but what I have said.
+ - I die for speaking the language of the angels.
+ - If ever I do escape, no one shall reproach me with having broken or violated my faith, not having given my word to any one, whosoever it may be.
+ - Hope in God. If you have good hope and faith in Him, you shall be delivered from your enemies.
+ - When women came up with PMS, men came up with ESPN.
+ - I was admonished ot adopt feminine clothes; I refused, and still refuse. As for other avocations of women, there are plenty of other women to perform them.
+ - Even little children repeat that oftentimes people are hanged for having told the truth.
+ - Alas! that my body, clean and whole, never been corrupted, today must be consumed and burnt to ashes!
+ - I used to say, “Go boldly in among the English,” and then I used to go boldly in myself.
+ - Truly, if you were to tear me limb from limb and separate my soul from my body, I would not say anything more. If I did say anything, afterwards I would always declare that you made me say it by force!
+ - The Maid and her soldiers will have the victory. Therefore the Maid is willing that you, Duke of Bedford, should not destroy yourself.
+ - Men are sometimes hanged for telling the truth.
+ - Everything I have said or done is in the hands of God. I commit myself to Him! I certify to you that I would do or say nothing against the Christian faith.
+ - Far rather would I sit and sew beside my poor mother, for this thing is not of my condition. But I must go, and I must do this thing, because my Lord will have it so. Rather now than tomorrow, and tomorrow than the day after!
+ - The poor folk gladly came to me, for I did them no unkindness, but helped them as much as I could.
+ - The angels are as perfect in form as they are in spirit.
+ - What concerns this dress is a small thing – less than nothing. I did not take it by the advice of any man in the world. I did not take this dress or do anything but by the command of Our Lord and of the Angels.
+
+38 quotes

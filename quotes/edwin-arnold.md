@@ -1,0 +1,24 @@
+ - There is no caste in blood.
+ - Sleep – death without dying – living, but not life.
+ - Never the spirit was born; the spirit shall cease to be never; Never was time it was not; End and Beginning are dreams! Birth-less and deathless and changeless remaineth the spirit forever. Death hath not touched it all, dead though the house of it seems!
+ - Almond blossom, sent to teach us That the spring days soon will reach us.
+ - Like a plank of driftwood Tossed on the watery main, Another plank encountered, Meets, touches, parts again; So tossed, and drifting ever, On life’s unresting sea, Men meet, and greet, and sever, Parting eternally.
+ - No power on earth compares to a mother’s tender prayers.
+ - Pity and need Make all flesh kin. There in no caste in blood.
+ - Not a piece of architecture, as other buildings are, but the proud passions of an emperor’s love wrought in living stones.
+ - Shall any gazer see with mortal eyes, Or any searcher know by mortal mind; Veil upon veil will lift but there must be Veil upon veil behind.
+ - For death, Now I know, is that first breath Which our souls draw when we enter Life, which is of all life center.
+ - Like threads of silver seen through crystal beads Let love through good deeds show.
+ - A little rain will fill The lily’s cup which hardly moistens the field.
+ - Pity makes the world soft to the weak and noble to the strong.
+ - Sweetest smile is made saddest tear-drop!
+ - That what will come, and must come, shall come well.
+ - Yet who shall shut out Fate?
+ - What good I see humbly I seek to do, And live obedient to the law, in trust That what will come, and must come, shall come well.
+ - Who doth right deeds Is twice born, and who doeth ill deeds vile.
+ - Within yourself deliverance must be searched for, because each man makes hiw own prison.
+ - Early violets blue and white Dying for their love of light.
+ - The royal kingcup bold Dares not don his coat of gold.
+ - One can be a soldier without dying and a lover without sighing.
+
+22 quotes

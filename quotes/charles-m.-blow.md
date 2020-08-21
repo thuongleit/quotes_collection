@@ -1,0 +1,24 @@
+ - There is no wrong time to do the right thing.
+ - One doesn’t have to operate with great malice to do great harm. The absence of empathy and understanding are sufficient. In fact, a man convinced of his virtue even in the midst of his vice is the worst kind of man.
+ - Trying hard and working hard is its own reward. It feeds the soul. It affirms your will and your power. And it radiates from you, lighting the way for all those who see you.
+ - Great leadership isn’t shaped in the absence of opposition but in the presence of it. Great leaders draw us together by our universal humanity; they galvanize the wills of the willing; they draw clarity from the spigot of chaos.
+ - The only way to vanquish cowardice is to brandish courage.
+ - An illustration is a visual editorial – its just as nuanced. Everything that goes into it is a call you make: every color, every line weight, every angle.
+ - A lie is like a cat: you need to stop it before it gets out the door or it’s really hard to catch.
+ - Voter apathy is a civic abdication.
+ - Concealment makes the soul a swamp. Confession is how you drain it.
+ - Different is not deviant, no matter what the world may say. You have the moral obligation to love yourself.
+ - There can be moments in your life where you may feel attracted to someone depending on circumstance, depending on the person of one gender or another, and sometimes where that is less of an influence in your life.
+ - The internet is ruthless. And people are very, very happy to let you know when they don’t like something.
+ - Being a world leader is less about destiny than focused determination, and it is there that we have faltered.
+ - Co-opted convictions will always betray you.
+ - While the word bisexual was technically correct, I would only slowly come to use it to refer to myself in part because of the derisive connotations. But, in addition, it would seem to me woefully inadequate and impressionistically inaccurate.
+ - I had set about trying to make myself more polished than a country boy would be.
+ - I was always a relatively quiet and introspective kid.
+ - I know that life, I’ve done all those things, and I can still tell you that just being you is perfectly fine.
+ - Elections have a way of cooling passions, especially when voters get what they want.
+ - I’m trying to illuminate how perilously narrow we draw the concepts of masculinity and sexuality in our male culture.
+ - There are no ‘come shoot me’ clothes.
+ - You don’t become a teacher to make a world of money. You become a teacher to make a world of difference.
+
+22 quotes

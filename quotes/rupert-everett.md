@@ -1,0 +1,45 @@
+ - I’m not really a political animal but I am rather fascinated by the meltdown of England and America. In the end, it seems as if America might come out of it, but I’m not sure if England is ever going to recover.
+ - I don’t think many actors are that good, to be honest. I certainly don’t think I am.
+ - There are lots of women and lots of men in the business that the powers that be decide are the right people and they’ll stand with them for quite a long time.
+ - What’s happened to humour? We’re becoming American. Everyone gets so angry over everything.
+ - The thing about lying is, it is quite exhausting – you have to remember a lot.
+ - I smell of sweat. I don’t like people smelling of all these weird things. I think deodorant is disgusting.
+ - Actors make bad lovers. Their most important kiss is for the camera. Not in a superficial way, in a really deep way. They can only give everything if they know someone is going to shout cut!
+ - It’s amazing the clarity that comes with psychotic jealousy.
+ - I’m not a great poetry fan.
+ - There’ll be a black lesbian in the White House before I’m James Bond.
+ - Starbucks is spreading like a cancer.
+ - We now live in a world where the only thing to have is success, but failure is marvelous. It’s fertiliser, it’s like living fertiliser, because you’re forced on yourself.
+ - To be a soldier one needs that special gene, that extra something, that enables a person to jump into one on one combat, something, after all, that is unimaginable to most of us, as we are simply not brave enough.
+ - I think belief is like having the first Microsoft Windows – it’s so rudimentary, in the human brainwork, it’s so obviously a sham.
+ - I went to boarding school at seven and cried and cried.
+ - Why are men talking about what clothes they’re wearing? It’s so unmanly, I think. It’s like Versailles before the Revolution, without the style.
+ - If I did have the impulse to be a parent, I would adopt – or foster.
+ - I was basically adventurous, I think I wanted to try everything.
+ - My grandfather was born in India and three generations of my family served there.
+ - I don’t want to be carried out of a club wearing a tie-dye T-shirt and a cap on the wrong way around when I am 70, but I would like to settle down a bit. Maybe with a partner.
+ - I don’t accept my business the way it is, to be honest. I don’t like what it’s become. I don’t blame anyone for it becoming the way it has. It’s got its own hideous natural progression, just like world events.
+ - I don’t think kids should have role models. They’re disastrous.
+ - Madness is a prerequisite of being in showbusiness.
+ - My idea of a holiday was following my family up the hill with my pekinese, who would skip over the heather in front of me.
+ - I am at that age when you panic at the slightest thing.
+ - Authority figures are so irritating. Because they always tell you to do things for reasons that aren’t very good. That sums up what authority is about for me.
+ - I loved looking at myself when I was very photogenic, at the very beginning of my career.
+ - Listen, in England people are already writing their memoirs at the age of 23.
+ - Honestly, I would not advise any actor necessarily, if he was really thinking of his career, to come out.
+ - The interesting thing about Sherlock is that he is himself a reflection of that very English duality. As a drug addict, he is a criminal. But he is also a crime fighter. That makes him an extremely potent character to personify the hypocrisy of a culture that is both moralistic and corrupt.
+ - From my point of view, being out is not about anything political. It’s just because I can’t be bothered to be in.
+ - I seem to have been everywhere in the last 30 years, maybe not in the epicenter but flying around the periphery of extraordinary events and equally extraordinary people.
+ - I think marriage is ghastly.
+ - I find there aren’t that many options as an actor.
+ - You’re not allowed to be an eccentric in the world, you have to fit it.
+ - I’ve done a lot of period stuff but that’s mostly because, in England, we get off on a lot of period stuff, but it’s not any kind of particular choice. That’s where a lot of the work is.
+ - I think it’s fun playing a part that lots of other people have played, in a way.
+ - I’ve never been any good with authority.
+ - I don’t think I’ve ever tried to change anyone. I don’t have the energy.
+ - I’m miserable: that’s why I have such a bad back, because I’m endlessly stressing out about my career.
+ - You cannot be politically correct in a war.
+ - Being in Hollywood is like being in the Christian right these days.
+ - To give and not expect anything in return, that is what lies at the heart of love.
+
+43 quotes

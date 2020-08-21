@@ -1,0 +1,112 @@
+ - Don’t be afraid to expand yourself, to step out of your comfort zone. That’s where the joy and the adventure lie.
+ - Jazz is about being in the moment.
+ - It’s part of life to have obstacles. It’s about overcoming obstacles; that’s the key to happiness.
+ - Music happens to be an art form that transcends language.
+ - I think risk-taking is a great adventure. And life should be full of adventures.
+ - We need to put into practice the idea of embracing other cultures. We need to be shaping the kind of world we want to live in instead of waiting for someone else or some other entities to do it for us.
+ - Life is not about finding our limitations, it’s about finding our infinity.
+ - The strongest thing that any human being has going is their own integrity and their own heart. As soon as you start veering away from that, the solidity that you need in order to be able to stand up for what you believe in and deliver what’s really inside, it’s just not going to be there.
+ - We need to move into a culture of peace. What I hope to promote is the idea that we all need each other and that the greatest happiness in life is not how much we have but how much we give. That’s a wealth that’s priceless. You can’t buy compassion.
+ - In the world of Art there are no wrong choices.
+ - I think I was supposed to play jazz.
+ - I’m always interested in looking forward toward the future. Carving out new ways of looking at things.
+ - I like the idea of an eclectic approach, incorporating jazz with other forms and other genres of music.
+ - The cool thing is that jazz is really a wonderful example of the great characteristics of Buddhism and great characteristics of the human spirit. Because in jazz we share, we listen to each other, we respect each other, we are creating in the moment. At our best, we’re non-judgmental.
+ - You can practice to attain knowledge, but you can’t practice to attain wisdom.
+ - You make different colors by combining those colors that already exist.
+ - It is people’s hearts that move the age.
+ - The value of music is to be able to play one note at the right time in the right way.
+ - Globalization means we have to re-examine some of our ideas, and look at ideas from other countries, from other cultures, and open ourselves to them. And that’s not comfortable for the average person.
+ - The most valuable things in life are priceless. They are courage, compassion, wisdom, respect for ourselves and others, and a host of characteristics that we call the beauty of the human spirit.
+ - I look for what’s of value and extract that. I don’t look to criticize.
+ - In World War II, jazz absolutely was the music of freedom, and then in the Cold War, behind the Iron Curtain, same thing. It was all underground, but they needed the food of freedom that jazz offered.
+ - We are eternally linked not just to each other but our environment.
+ - You can practice to learn a technique, but I’m more interested in conceiving of something in the moment.
+ - I’ve had a life that has taken many interesting paths. I’ve learned a lot from mentors who were instrumental in shaping me, and I want to share what I’ve learned.
+ - Jazz to me is the spirit of freedom. I mean real freedom. Freedom to explore. Freedom to express. Freedom to pour out your guts.
+ - So I didn’t actually change my name the way some people did.
+ - Each human being exists because there’s something they have to offer for the evolution of the universe that only they can fulfill.
+ - Creativity and artistic endeavors have a mission that goes far beyond just making music for the sake of music.
+ - I’ve always been interested in science. I used to take watches apart and clocks apart, and there’s little screws, and a little this and that, and I found out if I dropped one of them, that thing ain’t gonna work.
+ - Jazz has borrowed from other genres of music and also has lent itself to other genres of music.
+ - You can change your character and, at the same time, change your fortune.
+ - I think there’s a great beauty to having problems. That’s one of the ways we learn.
+ - My father was really good with math. It’s a funny thing, I don’t remember my father or my mother being so mechanical-minded. My father always wanted to be a doctor, but he came from a really poor family in Georgia, and there was no way he was going to be a doctor.
+ - The spirit of jazz is the spirit of openness.
+ - I try to practice with my life.
+ - Without wisdom, the future has no meaning, no valuable purpose.
+ - When I was young I used to listen to everything.
+ - All you have to do is play one note. But it needs to be the right note.
+ - One of the greatest experiences I ever had was listening to a conversation with Joni Mitchell and Wayne Shorter. Just to hear them talking, my mouth was open. They understand each other perfectly, and they make these leaps and jumps because they don’t have to explain anything.
+ - Music truly is the universal language.
+ - Oscar Peterson is the greatest living influence on jazz pianists today.
+ - The value of music is not dazzling yourself and others with technique.
+ - Wisdom corresponds to the future; it is philosophy.
+ - You would not exist if you did not have something to bring to the table of life.
+ - Since time is a continuum, the moment is always different, so the music is always different.
+ - Wisdom is the key to understanding the age, creating the time.
+ - It’s not exclusive, but inclusive, which is the whole spirit of jazz.
+ - I don’t look at music from the standpoint of being a musician; I look at it from the standpoint of being a human being.
+ - My first Grammy wasn’t even in a jazz category, but of course I was really excited. ‘Rockit’ was the beginning of kind of a new era for the whole hip-hop movement.
+ - I’ve never really been interested in doing a solo piano tour.
+ - Music isn’t about music, it’s about life.
+ - Jazz translates the moment into a sense of inspiration for not only the musicians but for the listeners.
+ - When you struggle to reach for something you don’t know, that’s where most of the interesting stuff is.
+ - When I was in my early teens, I remember coming to the conclusion that your life never ends.
+ - Music is not the only reason that I practice Buddhism anymore because it has affected my whole life.
+ - I am not fundamentally a musician, I am fundamentally a human being.
+ - I like to be on the edge, on the cutting edge, or be into the unknown, into the territory where I have to depend on being in the moment and depending on my instincts.
+ - I don’t go around, the way many musicians do, with earbuds in my ear listening to my iPod all day and just sticking my head in the music all the time.
+ - The true artform is being a human being.
+ - One thing that attracted me to Buddhism was the support for this larger vision of values.
+ - It’s not the style that motivates me, as much as an attitude of openness that I have when I go into a project.
+ - But, the truth is that everyone is somebody already.
+ - One thing I like about jazz is that it emphasized doing things differently from what other people were doing.
+ - There’s so much spontaneity involved, what do you practice? How do you practice teamwork? How do you practice sharing? How do you practice daring? How do you practice being nonjudgmental?
+ - I’m one of the people who was a pioneer in encouraging musicians, early in the game, to get interested in technology, and now all the musicians are getting into it.
+ - But I have to be careful not to let the world dazzle me so much that I forget that I’m a husband and a father.
+ - There are a lot of records coming out, in every field of music, not just jazz.
+ - I try stuff. I synthesize what’s of value with some of the other things I have at my disposal.
+ - Creativity shouldn’t be following radio; it should be the other way around.
+ - So much of what I create has been due to the influence of Miles Davis and Donald Byrd, and so many of those that have passed on. Their music, their legacy lives on with the rest of us because we are so highly influenced by their experience and what they have given us.
+ - People always want to protect what’s really going on inside. They want to kind of make visible something that looks more pleasant than what may be happening inside of themselves.
+ - In the past, there’s always been one leader that has led the pack to development of the music.
+ - Buddhism has turned me on to my humanness, and is challenging my humanness so that I can become more human.
+ - It pulled me like a magnet, jazz did, because it was a way that I could express myself.
+ - The first thing I ever heard about synthesizers, they were being used in rock.
+ - I hope to use dialogue and culture as a means of bringing people of various cultures together, and using that as a way to resolve conflict.
+ - We can all be ourselves, be true to ourselves, and all be together.
+ - I’ve been curious ever since I was a little kid.
+ - World peace is no longer some pie-in-the-sky thing, because no single person or country is going to solve it on their own.
+ - Nobody told me I was a child prodigy.
+ - Being a musician is what I do, but it’s not what I am.
+ - Technology has developed to a whole other level and theres the scientist part of me that loves that stuff.
+ - I keep recycling and repackaging music that I’ve done in the past, as though I can’t write anymore. Like, okay, I’m done with that. But I need to kind of prod myself again into come on, Herbie, get off your duff and start writing some new music.
+ - I hope that I can make good music out of whatever genre I go into. Just to prove to myself that I can.
+ - You can expand, repeat, even change keys and do other things electronically to give certain elements and phrases more cohesiveness.
+ - While knowledge may provide useful point of reference, it cannot become a force to guide the future.
+ - Inspiration is constantly in the air. It’s up to us to develop the sensitivity to pick up on it.
+ - At a certain point, I became a kind of musician that has tunnel vision about jazz. I only listened to jazz and classical music.
+ - I’m aware that a lot of what is happening in jazz has not had a very dynamic change in a long time.
+ - One of the greatest attributes of jazz, I think, is that it is that open.
+ - I’ve been practising Buddhism for forty years, and that’s what has led me to this path of discovering my own humanity and recognizing the humanity in others.
+ - I started off with classical music, and I got into jazz when I was about 14 years old. And I’ve been playing jazz ever since.
+ - Clare Fischer was a major influence on my harmonic concept. He and Bill Evans, and Ravel and Gil Evans, finally. You know, that’s where it really came from. Almost all of the harmony that I play can be traced to one of those four people and whoever their influences were.
+ - So in other words, we were constantly challenged to grow, and thats what a master does.
+ - One thing that sticks in my mind is that jazz means freedom and openness. It’s a music that, although it developed out of the African American experience, speaks more about the human experience than the experience of a particular people.
+ - I’m very conscious of the idea of trying to each time present something that I haven’t presented before. It’s a challenge to me to find something new, to find something innovative, but it’s also very exciting.
+ - I don’t mind being classified as a jazz artist, but I do mind being restricted to being a jazz artist. My foundation has been in jazz, though I didn’t really start out that way. I started in classical music, but my formative years were in jazz, and it makes a great foundation.
+ - Getting the Oscar had the biggest impression on me.
+ - I feel a lot more secure about the directions I take, than I might have, had I not practiced Buddhism.
+ - I’m always looking to create new avenues or new visions of music.
+ - You don’t need the fame to be vital.
+ - Like no matter what happens, this would be the ultimate, they can make something positive happen.
+ - The thing that we possess, that machines don’t, is the ability to exhibit wisdom.
+ - The arts have always served relationships between people of different cultures so well. In a way, the arts function as a very serious kind of ambassador.
+ - It’s part of my nature. I get excited when trying out new stuff, whether it be an idea or equipment. It stimulates my juices.
+ - Music is the tool to express life – and all that makes a difference.
+ - The music becomes something that is its own entity.
+ - I’ve been a religious, spiritual person for a long time.
+ - The Internet opens up a whole new range of possibilities in a wide range of areas.
+
+110 quotes

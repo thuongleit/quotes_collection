@@ -1,0 +1,29 @@
+ - To stop the flow of music would be like the stopping of time itself, incredible and inconceivable.
+ - Music that is born complex is not inherently better or worse than music that is born simple.
+ - You compose because you want to somehow summarize in some permanent form your most basic feelings about being alive, to set down some sort of permanent statement about the way it feels to live now, today.
+ - Inspiration may be a form of superconsciousness, or perhaps of subconsciousness – I wouldn’t know. But I am sure it is the antithesis of self-consciousness.
+ - If you want to know about the Sixties, play the music of The Beatles.
+ - A melody is not merely something you can hum.
+ - I adore extravagance but I abhor waste.
+ - Listening to the Fifth Symphony of Ralph Vaughan Williams is like staring at a cow for 45 minutes.
+ - You may feel depressed, but it can’t be so depressing that you can’t move. No, I would say that people create in moments when they are elated about expressing their depression!
+ - So long as the human spirit thrives on this planet, music in some living form will accompany and sustain it and give it expressive meaning.
+ - The main thing is to be satisfied with your work yourself. It’s useless to have an audience happy if you are not happy.
+ - The melody is generally what the piece is all about.
+ - Most people use music as a couch; they want to be pillowed on it, relaxed and consoled for the stress of daily living. But serious music was never meant to be soporific.
+ - When I speak of the gifted listener, I am thinking of the nonmusician primarily, of the listener who intends to retain his amateur status. It is the thought of just such a listener that excites the composer in me.
+ - If one were asked to name one musician who came closest to composing without human flaw, I suppose general consensus would choose Johann Sebastian Bach...
+ - I hope my recordings of my own works won’t inhibit other people’s performances. The brutal fact is that one doesn’t always get the exact tempo one wants, although one improves with experience.
+ - The greatest moments of the human spirit may be deduced from the greatest moments in music.
+ - You may be sitting in a room reading this book. Imagine one note struck upon the piano. Immediately that one note is enough to change the atmosphere of the room – proving that the sound element in music is a powerful and mysterious agent, which it would be foolish to deride or belittle.
+ - I don’t compose. I assemble materials.
+ - If a literary man puts together two words about music, one of them will be wrong.
+ - The whole problem can be stated quite simply by asking “Is there a meaning to music?” My answer would be, “Yes”, And “Can you state in so many words what the meaning is?” My answer to that would be “No.”
+ - Mozart tapped the source from which all music flows, expressing himself with a spontaneity and refinement and breathtaking rightness.
+ - Arthur V. Berger commenting on the music of Aaron Copland: Here is at last an American that we may place unapologetically beside the great recognized creative figures of any other country.
+ - Is there a meaning to music? Yes. Can you state in so many words what the meaning is? No.
+ - There is something about music that keeps its distance even at the moment that it engulfs us. It is at the same time outside and away from us and inside and part of us. In one sense it dwarfs us, and in another we master it. We are led on and on, and yet in some strange way we never lose control.
+ - A great symphony is a man-made Mississippi down which we irresistibly flow from the instant of our leave-taking to a long forseen destination.
+ - Composers tend to assume that everyone loves music. Surprisingly enough, everyone doesn’t.
+
+27 quotes

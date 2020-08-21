@@ -1,0 +1,29 @@
+ - The best physician is also a philosopher.
+ - After coitus every animal is sad, except the human female and the rooster.
+ - Confidence and hope do more good than physic.
+ - Look to the nervous system as the key to maximum health.
+ - All who drink of this remedy recover in a short time except those whom it does not help, who all die.
+ - Employment is nature’s physician, and is essential to human happiness.
+ - Those who are enslaved to their sects are not merely devoid of all sound knowledge, but they will not even stop to learn!
+ - If sometimes dreams come true, what of our nightmares?
+ - The chief merit of language is clearness, and we know that nothing detracts so much from this as do unfamiliar terms.
+ - Laziness breeds humors of the blood.
+ - The physician is only nature’s assistant.
+ - The chief merit of language is clearness.
+ - He who has two cakes of bread, let him dispose of one of them for some flowers of the narcissus; for bread is the food of the body, and the narcissus is the food of the soul.
+ - The reason that I keep writing is that all my most powerful messages about the fates of wild places that I care about need to have words as well as images.
+ - When we tune in to an especially human way of viewing the landscape powerfully, it resonates with an audience.
+ - A cold and moist brain is an inseparable companion to folly.
+ - These days, most nature photographers are deeply committed to the environmental message.
+ - I think that cognitive scientists would support the view that our visual system does not directly represent what is out there in the world and that our brain constructs a lot of the imagery that we believe we are seeing.
+ - One of the biggest mistakes a photographer can make is to look at the real world and cling to the vain hope that next time his film will somehow bear a closer resemblance to it.
+ - Luckily, many other people tell me how they have had a particular landscape photograph of mine in their office or bedroom for 15 years and it always speaks to them strongly whenever they see it.
+ - I’m exchanging molecules every 30 days with the natural world and in a spiritual sense I know I am a part of it and take my photographs from that emotional feeling within me, rather than from an emotional distance as a spectator.
+ - If we limit our vision to the real world, we will forever be fighting on the minus side of things, working only too make our photographs equal to what we see out there, but no better.
+ - The combination of pictures and words together can be really effective, and I began to realise in my career that unless I wrote my own words, then my message was diluted.
+ - My mountaineering skills are not important to my best photographs, but they do add a component to my work that is definitely a bit different than that of most photographers.
+ - I like to feel that all my best photographs had strong personal visions and that a photograph that doesn’t have a personal vision or doesn’t communicate emotion fails.
+ - What I mean by photographing as a participant rather than observer is that I’m not only involved directly with some of the activities that I photograph, such as mountain climbing, but even when I’m not I have the philosophy that my mind and body are part of the natural world.
+ - I began taking pictures in the natural world to be able to show people what I was experiencing when I climbed and explored in Yosemite in the High Sierra.
+
+27 quotes

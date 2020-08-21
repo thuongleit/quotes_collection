@@ -1,0 +1,101 @@
+ - No one can pull anyone back from anywhere. You save yourself or you remain unsaved.
+ - I wish you all a long and happy life.
+ - This is just a temporary hell, not a permanent one.
+ - Murderers are not monsters, they’re men. And that’s the most frightening thing about them.
+ - You’re not supposed to look back, you’re supposed to keep going.
+ - Nothing is ever certain.
+ - I’m fine with whatever comes my way, and whatever doesn’t come my way I’m fine with too. I have a very laissez-faire attitude with the whole thing.
+ - Poison and medicine are often the same thing, given in different proportions.
+ - Sometimes the dreams that come true are the dreams you never even knew you had.
+ - Heaven is comfort, but it’s still not living.
+ - I had rescued the moment by using my camera and in that way had found how to stop time and hold it. No one could take that image away from me because I owned it.
+ - I was in the air around him. I was in the cold mornings he had now. I was in the quiet time he spent alone. I was the girl he had chosen to kiss. He wanted, somehow to set me free. -Susie Salmon.
+ - Each time I told my story, I lost a bit, the smallest drop of pain.
+ - I have always felt extremely weird. But I am very happy with my weirdnesses, and I want other people to be very happy with theirs.
+ - It’s hard, because when you talk about process or your characters ruling your narrative, it sounds like you have no control, but obviously you’re ultimately the author, so you do have control.
+ - Your first kiss is destiny knocking.
+ - I like gardening – it’s a place where I find myself when I need to lose myself.
+ - And my sister, my Lindsey, left me in her memories, where I was meant to be.
+ - Between a man and a woman there was always one person who was stronger than the other one. That doesn’t mean the weaker one doesn’t love the stronger.
+ - Our only kiss was like an accident- a beautiful gasoline rainbow.
+ - My name is Salmon, like the fish; first name, Susie. I was fourteen when I was murdered.
+ - Sometimes you cry, Susie, even when someone you love has been gone a long time.
+ - I’m not a slash-and-burn kind, and I’m also not a posterity kind. They just kind of exist on my hard drive. It’s like walking down the street – what you leave behind is still there, even if you never go back and revisit it.
+ - Murder had a blood red door on the other side of which was everything unimaginable to everyone.
+ - There’s no condition one adjusts to so quickly as a state of war.
+ - I live in a world where two truths coexist: where both hell and hope lie in the palm of my hand.
+ - Life is a perpetual yesterday for us.
+ - The sun came through the branches of the tree above her, and Ruth looked up past them. “I think she listens,” she said, too softly to be heard.
+ - I fell in love with you again; While you were away – Jack Salmon.
+ - Each time I told my story, I lost a bit, the smallest drop of pain. It was that day that I knew I wanted to tell the story of my family. Because horror on Earth is real and it is every day. It is like a flower or like the sun; it cannot be contained.
+ - What did dead mean, Ray wondered. It meant lost, it meant frozen, it meant gone.
+ - There was our father, the heart we knew held all of us. Held us heavily and desperately, the doors of his heart opening and closing with the rapidity of stops on an instrument, the quiet felt closures, the ghostly fingering, practice and practice and then, incredibly, sound and melody and warmth.
+ - I missed her then but it was an odd sort of missing because by then, I knew the meaning of forever.
+ - I think that if you’re somebody who’s a control freak, the process would make you crazy, but I’m kind of a process freak, so I’m excited to see what he does with it. I know it’s not going to be my book, so just starting with that knowledge frees me from having to get all freaked out about it.
+ - Stones and bones; snow and frost; seeds and beans and polliwogs. Paths and twigs, assorted kisses, We all know who Daddy misses! His two little frogs of girls, that’s who. They know where they are, do you, do you?
+ - Last night it had been my father who had finally said it: “She’s never coming home.” A clear and easy piece of truth that everyone who had ever known me had accepted. But he needed to say it, and she needed to hear him say it.
+ - I tried to take solace in Holiday, our dog. I missed him in a way I hadn’t yet let myself miss my mother and father, my sister and brother. That way of missing would mean that I had accepted that I would never be with them again; it might sound silly but I didn’t believe it, would not believe it.
+ - I had always been in love with him. I counted the lashes of each closed eye. He had been my almost, my might have been, and I did not want to leave him.
+ - She didn’t even have to smile, and she rarely did outside her house – it was the eyes, her dancer’s carriage, the way she seemed to deliberate over the smallest movement of her body.
+ - Every day a question mark.
+ - But she was waiting patiently. She no longer believed in talk. It never rescued anything. At seventy she had come to believe in time alone.
+ - There was one thing my murderer didn’t understand; he didn’t understand how much a father could love his child.
+ - How could it be that you could love someone so much and keep it secret from yourself as you woke daily so far from home?
+ - People grow up by living.
+ - Then a little voice in him said, Let go, let go, let go.
+ - The dead are never exactly seen by the living, but many people seem acutely aware of something changed around them. They speak of a chill in the air. The mates of the deceased wake from dreams and see a figure standing at the end of thier bed, or in a doorway, or boarding, phantomlike, a city bus.
+ - Learn a language of another country and then you can go to that country: a place where the problems of your family will not follow. A language they do not speak.
+ - Out loud I said I had two children. Silently I said three. I always felt like apologizing to her for that.
+ - The moon is whole all the time, but we can’t always see it. What we see is an almost moon or not-quite moon. The rest is hiding just out of view, but there’s only one moon, so we follow it in the sky. We plan our lives based on its rhythms and tides.
+ - I wanted to be the moron of the family, because morons seemed to have more fun, more freedom and more personality.
+ - I left my mark on that man.
+ - As if in the other side of his kiss there could ve a new life.
+ - Before, they had never found themselves broken together. Usually, it was one needing the other but not both needing each other, and so there had been a way, by touching, to borrow from the stronger one’s strength.
+ - The damage can fester under layers of time and change, and an ignorant, thoughtless remark can easily reopen the wound.
+ - Loss could be used as a measure of beauty in a woman.
+ - He had a moment of clarity about how life should be lived: not as a child or as a woman. They were the two worst things to be.
+ - All you have to do is desire it, and if you desire it enough and understand why – really know – it will come.
+ - She liked to imagine that when she passed, the world looked after her, but she also knew how anonymous she was. Except when she was at work, no one knew where she was at any time of day and no one waited for her. It was immaculate anonymity.
+ - The shadow of years was not as big on his small body. He knew I was away. But when people left they always came back.
+ - Well, as my dad would say, it means she’s out of this shithole.
+ - The relationship with the words someone uses is more intimate and integrated than just a quick read and a blurb can ever be. This intimacy – the words on the page being sent back and forth from engaged editor to open author – is unique in my experience.
+ - I watched my brother and my father. The truth was very different from what we learned in school. The truth was the line between the living and the dead could be, it seemed, murky and blurred.
+ - You could not be filled with hate and be beautiful. Like any other girl, I wanted to be beautiful. But I was filled with hate.
+ - If I shut my eyes, I believed, I would disappear. To make it through, I had to be present the whole time.
+ - It’s very weird to succeed at thirty-nine years old and realize that in the midst of your failure, you were slowly building the life that you wanted anyway.
+ - You look invincible,? my mother said one night. I loved these times, when we seemed to feel the same thing. I turned to her, wrapped in my thin gown, and said: I am.
+ - He had been my almost. My might-have-been. I was afraid of what I wanted most – His kiss. Still, I collected kiss stories. -Susie Salmon.
+ - But also I wanted him to go away and leave me be. I was granted one weak grace. Back in the room where the green chair was still warm from his body, I blew that lonely, flickering candle out.
+ - I was the girl he had chosen to kiss. He wanted, somehow to set me free. He didn’t want to burn my photo or toss it away, but he didn’t want to look at me anymore, either.
+ - I’m just a friendly bystander who they occasionally ask questions of. That’s my level of involvement.
+ - I don’t do much public speaking. I did a lot of stuff for Bones, and then ended up having said yes to a lot of things that kept me on the road for a while for that, but then I pretty much stopped. I’m touring for this book, but when the tour is done, that’ll be the end of it.
+ - I was trying to prove to them and to myself that I was still who I had always been. I was beautiful, if fat. I was smart, if loud. I was good, if ruined.
+ - I stared at her black hair. It was shiny like the promises in magazines.
+ - One thing about failing repeatedly: If you’re still doing it after you’ve failed that much, you really mean it.
+ - After telling the hard facts to anyone from lover to friend, I have changed in their eyes. Often it is awe or admiration, sometimes it is repulsion, once or twice it has been fury hurled directly at me for reasons I remain unsure of.
+ - The living deserve attention, too.
+ - For me, heaven would be a lack of alienation. The whole time I was growing up, I felt comfort was inherently evil. I think that, for me, heaven isnt about couches and milk shakes and never having a troubling thought again.
+ - In this deeply nuanced portrait of an American family, Bret Anthony Johnston fearlessly explores the truth behind a mythic happy ending. In Remember Me Like This, Johnston presents an incisive dismantling of an all-too-comforting fallacy: that in being found we are no longer lost.
+ - To transform experience and thought into language and narrative – that is beautiful even if that beauty is in brokenness.
+ - No one on the street thought anything of the downtown girl dressed in black who had paused in the middle of midtown foot traffic. In her art student camouflage she could walk the entire length of Manhattan and, if not blend in, be classified and therefore ignored.
+ - I was like I was in science class: I was curious.
+ - As she stood in the darkened room and watched my sister and father, I knew one of things that heaven meant. I had a choice, and it was not to divide my family in my heart.
+ - She no longer believed in talk. It never rescued anything.
+ - He was beginning to understand: You were treated special and, later, something horrible would be told to you.
+ - These things, she felt, were not to be passed around like disingenuous party favors. She kept an honor code with her journals and her poems. ‘Inside, inside,’ she would whisper quietly to herself when she felt the urge to tell...
+ - Books and novels in particular that grapple with quite a few things are difficult to explain, so I think that first line can come in a substitute for trying to form a longer sense of what the book is about.
+ - What I think was hardest for me to realize was that he had tried each time to stop himself. He had killed animals, taking lesser lives to keep from killing a child.
+ - Part of the creative process for me is an invitation for readers to follow their imagination.
+ - I loved the way the burned-out flashcubes of the Kodak Instamatic marked a moment that had passed, one that would now be gone forever except for a picture.
+ - So there are cakes and pillows and colors galore, but underneath this more obvious patchwork quilt are places like a quiet room where you can go and hold someone’s hand and not have to say anything.
+ - Well, it’s my voice, so it’s more accessible that way, and there are also all sorts of things like plot and timelines that are already known entities, so for me, it’s very different from writing fiction.
+ - Tess was my first experience of a woman who had inhabited her weirdness, moved into the areas of herself that made her distinct from those around her, and learned how to display them proudly.
+ - I would like to tell you that I am, and you will one day be, forever safe.
+ - Depending on where I am in the process, sometimes I have a page count and sometimes I don’t. Sometimes I have an hour count; sometimes I’m just happy to string a few words together. I do keep pretty rigorous hours, because otherwise you never get anything done.
+ - I mean, if I went into my closet, I could find a previous draft and try to figure that out, but it takes a long time for me to find the voice to tell a story in. I was working from other points of view for a couple years there.
+ - I have never been shy about listening to the input of others and weighing it seriously.
+ - Who would have thought something that happened that long ago could have such power?
+ - I think you only learn what kind of personality you have by committing to things.
+ - As she brought prospective buyers through, the realtor said it was an oil stain, but it was me, seeping out of the bag.
+
+99 quotes

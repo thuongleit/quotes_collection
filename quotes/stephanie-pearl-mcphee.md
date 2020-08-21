@@ -1,0 +1,40 @@
+ - SABLE- A common knitting acronym that stands for Stash Acquisition Beyond Life Expectancy.
+ - Knitting is a boon for those of us who are easily bored. I take my knitting everywhere to take the edge off of moments that would otherwise drive me stark raving mad.
+ - You don’t knit because you are patient. You are patient because you knit.
+ - When you are knitting socks and sweaters and scarves, you aren’t just knitting. You are assigning a value to human effort. You are holding back time. You are preserving the simple unchanging act of handwork.
+ - It took me years and years of trial efforts to work out that there is absolutely no knitting triumph I can achieve that my husband will think is worth being woken up for.
+ - When confronted with a birthday in a week I will remember that a book can be a really good present, too.
+ - A half finished shawl left on the coffee table isn’t a mess; it’s an object of art.
+ - I am a person who works well under pressure. In fact, I work so well under pressure that at times, I will procrastinate in order to create this pressure.
+ - As usual, the sock yarns have no idea what is going on.
+ - I will resist the urge to underestimate the complexity of knitting.
+ - I explain at the parties that I believe knitting is a transformative and intriguing act that can change the life and brain of the person doing it, and that knitting is a perfect metaphor for life and insight into some better ways through it.
+ - I will continue to freak out my children by knitting in public. It’s good for them.
+ - I recognize that knitting can improve my mood in trying circumstances.
+ - I will always buy extra yarn. I will not try to tempt fate.
+ - In the nineteeth century, knitting was prescribed to women as a cure for nervousness and hysteria. Many new knitters find this sort of hard to believe because, until you get good at it, knitting seems to cause those ailments. The twitch above my right eye will disappear with knitting practice.
+ - There is practically no activity that cannot be enhanced or replaced by knitting, if you really want to get obsessive about it.
+ - It’s only knitting and it’s one of the few times in your life when there are no bad consequences to a mistake.
+ - When people see me knitting, I tell them I’m a knitter. Not the sort of knitter they may have run into before, but a passionate, constant, deliberate knitter. I knit everyday, all the time, everywhere I go.
+ - The only difference between an experienced knitter and new knitter is that the experienced knitter makes bigger mistakes faster. Be bold; there are no terrible consequences in knitting.
+ - Knitters just can’t watch TV without doing something else. Knitters just can’t wait in line, knitters just can’t sit waiting at the doctor’s office. Knitters need knitting to add a layer of interest in other, less constructive ways.
+ - Knitters use knitting to value-add to the world.
+ - Hat head is a sad affliction wherein the chosen hat and the selected hairstyle are grossly incompatible. The unfortunate combination results in a condition that can be hidden only with the application of another hat.
+ - Since I became a knitting humor writer, I seem to be understood a little better – at least for the purposes of social discourse.
+ - With great effort comes great gratification.
+ - I’m a knitter. My projects are the ultimate in ’some assembly required.
+ - 100 years ago, buying something you could make was considered wasteful; now making something you could buy is considered wasteful. I am not convinced this is a step in the right direction.
+ - The best reason for a knitter to marry is that you can’t teach the cat to be impressed when you finish a lace scarf.
+ - The chances of running out of yarn on a project are directly related to the difficulty that you will have getting more.
+ - I will not let the non-knitters of the world decide how normal I am.
+ - It turns out I will buy any yarn, even yarn I will never use, if the store discounts it by more than 50 percent.
+ - Sweaters need to be imagined, dreamed over.
+ - I do know that there isn’t ever going to be a time when there aren’t any knitters.
+ - The rules of Canadian engagement say that if we encounter a celebrity, we have to pretend we’re not encountering a celebrity.
+ - Achieving the state of SABLE is not, as many people who live with these knitters believe, a reason to stop buying yarn, but for the knitter it is an indication to write a will, bequeathing the stash to an appropriate heir.
+ - The essay is one of my favourite forms of writing, and I feel like what’s inside is really personal, more so than with shorter pieces.
+ - The twitch above my right eye will disappear with knitting practice.
+ - It is a little known fact that much like birds, who can always find north, knitters can always find yarn.
+ - It is important for knitters to know two things about frogging: that cats are capable of this knitting action, and even seem to enjoy it and seek opportunities to do it; and that foul language is a normal, healthy accompaniment to frogging, whether it is you or the cat that accomplished the task.
+
+38 quotes

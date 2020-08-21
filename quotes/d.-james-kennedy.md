@@ -1,0 +1,24 @@
+ - The star of Bethlehem was a star of hope that led the wise men to the fulfillment of their expectations, the success of their expedition. Nothing in this world is more fundamental for success in life than hope, and this star pointed to our only source for true hope: Jesus Christ.
+ - Indeed, there is an attack against things Christian in America. We see it in the movies, on TV, in the schools, in the universities, in the public arena, in the courts, and even within some church circles.
+ - What really matters is what happens in us, not to us.
+ - In the major institutions of education, government, science, and the arts, we are witnessing the imposition of a post-Christian view of life. It now dominates in motion pictures, television, and every other form of entertainment.
+ - In Grimm’s fairy tales, you kiss a frog and in two seconds, it becomes a prince. That is a fairy tale. In evolution, you kiss a frog and in two million years, it becomes a prince.
+ - You cannot say, ‘No, Lord,’ and mean both words; one annuls the other. If you say no to Him, then He is not your Lord.
+ - Christianity teaches that the human race is depraved, fallen, and sinful.
+ - Christian bashing is alive and well on college and university campuses also. In fact, it’s ever more direct and overt because Christianity is not ‘politically correct.’ Never has been. Never will be.
+ - To put it simply, no Darwin, no Hitler. Hitler tried to speed up evolution, to help it along, and millions suffered and died in unspeakable ways because of it.
+ - No one expects this nation to become a theocracy, where Christianity is the only value, but we do indeed say that the essential values and founding principles of the nation should not be ignored.
+ - Christ, who came meek and mild to save us from pain and suffering, was the One who talked more about hell than any other person in Scripture.
+ - This is our land. This is our world. This is our heritage, and with God’s help, we shall reclaim this nation for Jesus Christ. And no power on earth can stop us.
+ - How much more forcefully can I say it? The time has come, and it is long overdue, when Christians and conservatives and all men and women who believe in the birthright of freedom must rise up and reclaim America for Jesus Christ.
+ - In modern America, Judeo-Christian beliefs are often held up to ridicule and disdain by the media.
+ - The Christian community has a golden opportunity to train an army of dedicated teachers who can invade the public school classrooms and use them to influence the nation for Christ.
+ - The Supreme Court has said that America is a Christian nation. But to make such a statement today causes reporters, newsmen, and many politicians to go ballistic.
+ - Anytime you hear the concept of the separation of church and state being talked about these days, it is never in regard to maintaining the restraints on government; instead, it is always talking about what Christians and churches cannot do.
+ - The religious foundations of America have been completely expurgated from our history textbooks.
+ - In France, religion had been considered the enemy of liberty, but in America, as George Washington expressed it, religion and morality were the ‘twin pillars of freedom.’
+ - That is what we have in revisionist historians. It starts with their own atheism, their own unbelief, and then they go back and attempt to revise and rewrite history in their own image.
+ - Rock and roll has had a powerful anti-Christian subtheme for decades now.
+ - As a result of the assault on Christianity, the Christian faith has been isolated more and more into a tiny private sector of life and removed from the whole public spectrum of America.
+
+22 quotes

@@ -1,0 +1,55 @@
+ - Sit down and read. Educate yourself for the coming conflicts.
+ - Mourn the dead, fight like hell for the living.
+ - I’m not a humanitarian, I’m a hell-raiser.
+ - My friends, it is solidarity of labor we want. We do not want to find fault with each other, but to solidify our forces and say to each other: We must be together; our masters are joined together and we must do the same thing.
+ - Freedom for the working class!
+ - Reformation, like education, is a journey, not a destination.
+ - I am not afraid of the pen, or the scaffold, or the sword. I will tell the truth wherever I please.
+ - I am not blind to the shortcomings of our own people.
+ - I believe that no man who holds a leader’s position should ever accept favors from either side. He is then committed to show favors. A leader must stand alone.
+ - I know that there are no limits to which the powers of privilege will not go to keep the workers in slavery.
+ - The militant not the meek shall inherit the earth!
+ - In Georgia where children work day and night in the cotton mills they have just passed a bill to protect song birds. What about the little children from whom all song is gone?
+ - I hope to live long enough to be the great-grandmother of all agitators.
+ - You ought to be out raising hell. This is the fighting age. Put on your fighting clothes.
+ - Some day the workers will take possession of your city hall, and when we do, no child will be sacrificed on the altar of profit!
+ - I am Mother Jones. The Government can’t take my life and you can’t take my arm, but you can take my suitcase.
+ - No matter what the fight, don’t be ladylike!
+ - My address is like my shoes. It travels with me. I abide where there is a fight against wrong.
+ - Not all the coal that is dug warms the world.
+ - I have never had a vote, and I have raised hell all over this country. You don’t need a vote to raise hell! You need convictions and a voice!
+ - My teachers treated me as a diamond in the rough, someone who needed smoothing.
+ - God almighty made women and the Rockefeller gang of thieves made the ladies.
+ - I went West and took part in the strike of the machinists – the Southern Pacific Railroad, the corporation that swung California by its golden tail, that controlled its legislature, its farmers, its preachers, its workers.
+ - What one state could not get alone, what one miner against a powerful corporation could not achieve, can be achieved by the union.
+ - I preferred sewing to bossing little children.
+ - I would fight God Almighty Himself if He didn’t play square with me.
+ - I nursed men back to sanity who were driven to despair. I solicited clothes for the ragged children, for the desperate mothers. I laid out the dead, the martyrs of the strike.
+ - Injustice boils in men’s hearts as does steel in its cauldron, ready to pour forth, white hot, in the fullness of time.
+ - What is a good enough principle for an American citizen ought to be good enough for the working man to follow.
+ - The employment of children is doing more to fill prisons, insane asylums, almshouses, reformatories, slums, and gin shops than all the efforts of reformers are doing to improve society.
+ - I have always advised men to read.
+ - That is, the wife must care for what the husband cares for if he is to remain resolute.
+ - Out of labor’s struggle in Arizona came better conditions for the workers, who must everywhere, at all times, under advantage and disadvantage work out their own salvation.
+ - I will tell the truth wherever I please.
+ - If they want to hang me, let them. And on the scaffold I will shout Freedom for the working class!
+ - I asked a man in prison once how he happened to be there and he said he had stolen a pair of shoes. I told him if he had stolen a railroad he would be a United States Senator.
+ - Life comes to the miners out of their deaths, and death out of their lives.
+ - I believe that movements to suppress wrongs can be carried out under the protection of our flag.
+ - I am not unaware that leaders betray, and sell out, and play false.
+ - Today the white child is sold for two dollars a week to the manufacturers.
+ - Men’s hearts are cold. They are indifferent.
+ - You know I took an oath to tell the truth when I took the witness stand.
+ - Slowly those who create the wealth of the world are permitted to share it. The future is in labor’s strong, rough hands.
+ - But in Shimabukuro’s hands, as he breaks out experimental jazz, lays down a steady blues train, or shreds on rock anthems, this little jumping flea becomes a melodic monster.
+ - All the average human being asks is something he can call a home; a family that is fed and warm; and now and then a little happiness; once in a long while an extravagance.
+ - I was born in revolution.
+ - And who is responsible for this appalling child slavery? Everyone.
+ - I’m not afraid of the press or the Militia.
+ - Sometimes it seemed to me I could not look at those silent little figures; that I must go north, to the grim coal fields, to the Rocky Mountain camps, where the labor fight is at least fought by grown men.
+ - Little girls and boys, barefooted, walked up and down between the endless rows of spindles, reaching thin little hands into the machinery to repair snapped threads.
+ - You must stand for free speech in the streets.
+ - I want to hold a series of meetings all over the country and get the facts before the American people.
+ - I live in the United States, but I do not know exactly where. My address is wherever there is a fight against oppression. My address is like my shoes; it travels with me. I abide where there is a fight against wrong.
+
+53 quotes

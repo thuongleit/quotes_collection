@@ -1,0 +1,81 @@
+ - Hurry? I have no time to hurry.
+ - There is music wherever there is rhythm, as there is life wherever there beats a pulse.
+ - I haven’t understood a bar of music in my life, but I have felt it.
+ - Art is the opposite of chaos. Art is organized chaos.
+ - Just as appetite comes by eating, so work brings inspiration, if inspiration is not discernible at the beginning.
+ - To listen is an effort, and just to hear is no merit. A duck hears also.
+ - Sins cannot be undone, only forgiven.
+ - Vivaldi didn’t write 400 concertos; he wrote one concerto 400 times.
+ - Revolution means turning the wheel.
+ - My childhood was a period of waiting for the moment when I could send everyone and everything connected with it to hell.
+ - A good composer does not imitate; he steals.
+ - Composers combine notes, that’s all.
+ - The further one separates himself from the precepts of the Christian Church, the further one distances himself from the truth. Only God can create. I make music from music.
+ - Is it not by love alone that we succeed in penetrating to the very essence of being?
+ - Harpists spend 90 percent of their lives tuning their harps and 10 percent playing out of tune.
+ - I never am sea sick, never. I am sea drunk!
+ - Music’s exclusive function is to structure the flow of time and keep order in it.
+ - All you have to do is close your eyes and wait for the symbols.
+ - The Church knew what the psalmist knew: Music praises God. Music is well or better able to praise him than the building of the church and all its decoration; it is the Church’s greatest ornament.
+ - The more constraints one imposes, the more one frees one’s self. And the arbitrariness of the constraint serves only to obtain precision of execution.
+ - The trouble with music appreciation in general is that people are taught to have too much respect for music they should be taught to love it instead.
+ - In order to create there must be a dynamic force, and what force is more potent than love?
+ - Too many pieces of music finish too long after the end.
+ - A cultural snob is someone who claims to be familiar with the incomprehensible.
+ - The more constraints one imposes, the more one frees one.
+ - What gives the artist real prestige is his imitators...
+ - Mediocrity borrows, genius steals.
+ - Composition is selective improvisation.
+ - My God, so much I like to drink Scotch that sometimes I think my name is Igor Stra-whiskey.
+ - I know that the twelve notes in each octave and the variety of rhythm offer me opportunities that all of human genius will never exhaust.
+ - Music is, by its very nature, essentially powerless to express anything at all. Music expresses itself.
+ - Look for the music on all things, and life will be a symphony of joy. My music is best understood by children and animals.
+ - I live neither in the past nor in the future. I am in the present. I cannot know what tomorrow will bring forth. I can know only what the truth is for me today. That is what I am called upon to serve, and I serve it in all lucidity.
+ - Invention presupposes imagination but should not be confused with it.
+ - It’s one of nature’s way that we often feel closer to distant generations than to the generation immediately preceding us.
+ - An artist is like a pig snouting truffles.
+ - What force is more potent than love?
+ - Music is given to us specifically to make order of things, to move from an anarchic, individualistic state to a regulated, perfectly concious one, which alone insures vitality and durability.
+ - To be deprived of art and left alone with philosophy is to be close to Hell.
+ - The more controlled, limited and tormented art is, the freer it is.
+ - A plague on eminence! I hardly dare cross the street any more without a convoy, and I am stared at wherever I go like an idiot member of a royal family or an animal in a zoo; and zoo animals have been known to die from stares.
+ - Lesser artists borrow, great artists steal.
+ - The faculty of creating is never given to us all by itself. It always goes hand in hand with the gift of observation.
+ - All music is nothing more than a succession of impulses that converge towards a definite point of repose.
+ - I take no pride in my artistic talents; they are God-given and I see absolutely no reason to become puffed up over something that one has received.
+ - Money may kindle, but it cannot by itself, and for very long, burn.
+ - We have a duty towards music, namely, to invent it.
+ - Why is it that whenever I hear a piece of music I don’t like, it’s always by Villa Lobos?
+ - Music is the sole domain in which man realizes the present.
+ - We can neither put back the clock nor slow down our forward speed, and as we are already flying pilotless, on instrument controls, it is even too late to ask where we are going.
+ - One’s belief that one is sincere is not so dangerous as one’s conviction that one is right. We all feel we are right; but we felt the same way twenty years ago and today we know we weren’t always right.
+ - I had another dream the other day about music critics. They were small and rodent-like with padlocked ears, as if they had stepped out of a painting by Goya.
+ - A composer is not only an architect but also an inventor, and he should not build houses in which he cannot live.
+ - Conformism is so hot on the heels of the mass-produced avant-garde that the ‘ins’ and the ‘outs’ change places with the speed of mach 3.
+ - To continue in one path is to go backward.
+ - When I discovered that I had been made custodian of this gift, in my earliest childhood, I pledged myself to God to be worthy of it, but I have received uncovenanted mercies all my life. The custodian has too often kept faith on his all-too-worldly terms.
+ - I have learned throughout my life as a composer chiefly through my mistakes and pursuits of false assumptions, not by my exposure to founts of wisdom and knowledge.
+ - The real composer thinks about his work the whole time; he is not always conscious of this, but he is aware of it later when he suddenly knows what he will do.
+ - I cannot now evaluate the events that, at the end of those thirty years, made me discover the necessity of religious belief. I was not reasoned into my disposition. Though I admire the structured thought of theology, it is to religion no more than counterpoint exercises are to music.
+ - The principle of the endless melody is the perpetual becoming of a music that never had any reason for starting, any more than it has any reason for ending.
+ - The performance of performance has developed to such an extent in recent years that it challenges the music itself and will soon threaten it with relegation.
+ - We cannot describe sound, but we cannot forget it either.
+ - My music is best understood by children and animals.
+ - Old age is a time of humiliations, the most disagreeable of which, for me, is that I cannot work long at sustained high pressure with no leaks in concentration.
+ - Music is given to us with the sole purpose of establishing an order in things, including, and particularly, the coordination between man and time.
+ - The true creator may be recognized by his ability always to find about him, in the commonest and humblest thing, items worthy of note.
+ - I never understood the need for a “live” audience. My music, because of its extreme quietude, would be happiest with a dead one.
+ - Silence, which will save from shame, will also deprive me of fame.
+ - Art postulates communion, and the artist has an imperative need to make others share the joy which he experiences himself.
+ - I am an inventor of music.
+ - I knew I had to write a Mass of my own, but a real one.
+ - Film music should have the same relationship to the film drama that somebody’s piano playing in my living room has on the book I am reading.
+ - The one true comment on a piece of music is another piece of music.
+ - The trick is to compose what one wants to compose and to get it commissioned afterward.
+ - Nothing is likely about masterpieces, least of all whether there will be any.
+ - What I cannot follow are the manic-depressive fluctuations from total control to no control, from the serialization of all elements to chance.
+ - One has a nose. The nose scents and it chooses. An artist is simply a kind of pig snouting truffles.
+ - It is my conviction that the public always shows itself more honest in its spontaneity than do those who officially set themselves up as judges of works of art.
+ - I was born out of due time in the sense that by temperament and talent I should have been more suited for the life of a small Bach, living in anonymity and composing regularly for an established service and for God.
+
+79 quotes

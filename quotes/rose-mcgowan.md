@@ -1,0 +1,65 @@
+ - Hetero – normative behavior and herd mentality is dangerous. It’s okay to be different. It’s okay to stand out for whatever reason. Some people are just born that way and instead of trying to tear them down, learn something new. Be curious and open because maybe that’s a pathway out for you, too.
+ - People get so burned out on hearing about sexism, but you know what? I would love to burn out on it. I would love to never talk about that again, but until we’re all equal I shall have to fight, and remain fighting.
+ - I love the absurd – kind of absurdist comedy, absurd things in life.
+ - I like strong, strong women who don’t go down without a fight. I like iconic roles. They don’t come around very often, so I have to wait for them. Obviously I’m not the typical blonde who stands by the side, while the man has all the fun.
+ - I don’t mind being disliked – I will be the one to step up and say what needs to be said if it helps one woman who comes after me.
+ - It wasn’t that I was shy to go out with him, I just didn’t want people with preconceived notions to assume anything about why we were together. I was pretty careful for a while.
+ - Every woman knows that any man engaging in street harassment can switch to anger very quickly and that anger goes to rage and their rage is their masculinity being threatened. We’re scared for good reason.
+ - I think of the kids that live on top of garbage dumps, I think of the ways we could reach out to other countries, I think of certainly climate change. There’s so much. The nighttime is that time, is it not?
+ - I see so much beauty in people and in the world and when I see ugliness I try to either expose it or fight but also remind myself that it’s mostly just people who can’t spell who say mean things.
+ - I don’t know how exactly but I’m maybe perverse in the sense that I like being disappointed in something on a daily basis. Because it means that I’m still not jaded.
+ - I always thought I was more satanic than Manson.
+ - I was up watching Meet Joe Black at four AM. I was hoping Brad Pitt would die, and he was still alive at seven forty in the morning! I actually felt sorry for once, for critics.
+ - I have great luck. I’m used to people dying and going away. Not used to it exactly – but I expect it. Like, whenever people go off on a trip, I save their phone messages because I think they might die.
+ - I was a boy in the ads I did as a child. My sister was the girl, and I was the boy. I had short hair and I was in overalls and I was giving flowers to my sister Daisy, who fit their model of what a girl was supposed to look like.
+ - A lot of times when you do things where you’re killing people, the character is always having an existential crisis about it. It’s fun to be no-holds-barred and have no big crisis of conscious.
+ - If one person starts crying, I’ll cry. If one person has no money, I’ll give them mine. If I had a bicycle growing up, I always felt incredibly guilty when I see someone sitting at the bus stop.
+ - I literally feel pity for a lot of the stupid idiots that I have to deal with.
+ - I have a lot of brothers and sisters, and each movie has helped pay for tuition. And then I was like, I only have one left in college, so why am I doing this? But now I want to go back to Italy and live on a farm in Tuscany.
+ - I’m a pussycat unless you do something to one of my friends. Then I’ll think of unique ways to get back at you. I’m more creative than your average bear.
+ - I was with somebody else at the time, who I left – one, because I didn’t really want to be with that person, and two, because I felt I’d had so much tragedy I needed to go off, go crazy, and maybe live on the outside for a while.
+ - There are moments when you act that you actually disappear from your body, and that’s amazing. That’s better than any drug, I would imagine. People take drugs to disappear from themself, and that’s what it feels like when you hit that moment.
+ - It’s my job to spread deviance to the American youth.
+ - I love shooting guns. I would never shoot an animal or hunt, but I probably would be a very good hit woman. It’s hand-in-glove for me.
+ - You have to be at the forefront of culture to create art, which they call “product,” and Hollywood is not. It’s this very old business model, which I think is dying in a lot of ways.
+ - I’ve seen many actors go awry by making the wrong choices early on.
+ - From a really young age, I was into female empowerment and supporting the underdog. Right now, I’m into female vengeance.
+ - I came out of the womb waving red lipstick.
+ - My whole family is very art-based. My sister runs a gallery, my other sister works for PACE in New York, my other sister is a sculptor. I’d say the ending one is me because that’s the artist and the artist feels a lot.
+ - I think if I had lived back in Salem, I would have been burned at the stake.
+ - The awesome thing about being an artist? You can’t be fired from your own mind.
+ - I was 13. And on my own for about 10 months, but those were long months. My stepdad wanted me out of his hair and tried to put me in a home, a hospital kind of place for kids with drug problems, which I absolutely did not belong in. So I left that place and struck out on my own .
+ - I’m not really one of those people who goes and writes some big back story and agonizes over characters. I think you kind of can get it. For me personally, it’s just kind of more instinctive. But I don’t have kind of an acting background. I fell into it accidentally.
+ - I don’t believe in rules. I would be happy to be climbing a pyramid when I’m 70. And I know I will be.
+ - I think I ran so hard and so fast, in a lot of ways, from my life and I kind of took a fall. It was like – what do they call it? – post-traumatic stress syndrome.
+ - I think working with artists is incredibly important for everybody in the world, but also, it is a way of seeing the world differently.
+ - Why should I downplay myself to make someone else more comfortable?
+ - I still say I can do whatever I want as long as I’m not hurting anybody else. I don’t understand why more people aren’t like that.
+ - That’s my takeaway from ‘Scream’ – I know I can fit in dog doors. You have to jimmy your body in a certain position and really hope you’re not wearing something super fancy.
+ - I just felt like, “Why would you discuss my body as if it’s an object?” People will come up and say things like, “Are your breasts real?” I mean, people will come up and discuss my body as if I’m not human.
+ - I’ve had, like, four long-term boyfriends. I tend to be in relationships for long periods of time.
+ - Gosh, if I’m gonna take a big stand on something I would hope it would be for more than flip flops!
+ - If somebody said something racist around me, or you, or most people, you would correct it, you would stop it, but when they say things about women, so frequently no one says anything. That has to change.
+ - You have to work to carve out your own little corner, and I’m certainly smacking my head against the wall trying to make a dent. I just hope I don’t get brain-damaged before I get there.
+ - One of my goals is to create more art to put out there in the world.
+ - There was a story that I was in a shoe shop and that I threw a pair of flip flops at the wall, shouting, ‘I can’t believe how overpriced these are!’ I thought, ‘Gosh, if I’m gonna take a big stand on something I would hope it would be for more than flip flops!’
+ - I’d never even seen orange cheese. I mean, who decided to make that orange? And so there was something different about me that they wanted to crush. I don’t think it had anything to do with my physicality, but every single day in school it was, “You’re the ugliest thing I’ve ever seen.”
+ - I went to regular schools and I was home schooled a lot but I don’t have any history in schools. Like, I literally don’t exist. I didn’t even get a birth certificate until the mid-80s. I always feel like I could be, like, 10 years younger, or maybe I’m 70!
+ - It’s interesting when you go out into the world and see which of your roles have affected people.
+ - I love Cate Blanchett: she takes risks, but is still refind.
+ - I really prize my freedom more than work. I prize just being human and doing other things.
+ - At 13, when I was a runaway, I was taken in by the most amazing drag queens in Portland, Ore. We didn’t always know where our next meal was coming from, but there was so much camaraderie and love. Not to mention, those girls could paint a face, and I learned how because of them.
+ - Heterosexual men terrified me. I found them to be dangerous. Not all of them, of course, but it took me some time to learn to be comfortable.
+ - I like people who are fit. I figure if I work out, you can at least return the favor. Would I go out with a meathead? No.
+ - I am going to be pretty kick a$$ by the time I’m thirty, and I can’t wait!!
+ - It’s funny, honestly, by rights, with a lot of the stuff that’s happened to me I should be running down the street with my hair on fire, but instead I want to shape things, and I want to shake things up. There’s nothing wrong with being an agitator.
+ - I would like Obama to be tougher on going up against the Republicans, I don’t think he should try to be so moderate.
+ - I realized a career is built as much on what you don’t do as what you do do.
+ - There have been a lot of murders and suicides in my family; it’s like the primary cause of death. I wonder if there’s a certain energy that attracts that.
+ - There are some movies that I absolutely hate but someone else loves – people love things for different reasons.
+ - Hollywood is all about making an entrance. I don’t want to be a walking advertisement for anyone other than myself.
+ - Quentin Tarantino is controlled insanity, I would say. He’s very loud and fun. I don’t think there’s anybody on the planet like him that I have ever met.
+ - I was never nervous directing. Not once. I’m more nervous acting. I’m far more nervous on set, before I say my lines, than I ever have been, as a director.
+ - I never started out trying to be an actor. That was not my passion, this was not my thing.
+
+63 quotes

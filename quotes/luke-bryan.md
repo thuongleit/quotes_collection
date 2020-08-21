@@ -1,0 +1,27 @@
+ - I am just what I am, I’m just what you see. So I’ll make it easy, I’ll stay me.
+ - Rain makes corn, corn makes whiskey.
+ - From my dad I learned to be good to people, to always be honest and straightforward. I learned hard work and perseverance.
+ - It’s pretty cool to see how far music can take you.
+ - I’m a big sports fan in general.
+ - Every night before bed, I rub my wife’s feet. She says they’re the best foot rubs on Earth.
+ - A big part of country music is a way of life, at least from my standpoint. That’s how I craft my music from my own life experiences.
+ - People hear me talk and they know my background and they immediately stereotype me as being a real, real country guy, and that’s the right stereotype. But you also want people to know you’re a little broader than that, too.
+ - Even with all the negativeness of the whole social media thing, I still think it’s leaps and bounds more positive.
+ - I’m a little drunk on you, and high on summertime.
+ - You get weird, funny requests on Twitter. With our fan club, I was seeing a lot of fans were having some issue with the way the fan club tickets were being handled in one of the shows. So I was able to correspond with that fan, and be like, ‘Listen, we’ll be on it.’
+ - There’s always gonna be guys who are just wonderful singers and probably shouldn’t be writing songs. Then there’s always gonna be guys who move up the ranks writing. I don’t know what’s healthier or what’s the best thing – probably whatever yields the best songs.
+ - I’ll always have songs with a farm connotation on my albums. It’s in the fabric of my music, and I plan to keep it that way.
+ - I always look back to awards shows and think about being a kid watching them.
+ - My dad is very successful in his business. He’s always been big in having hobbies and having little ways to get away. He always made time for hunting and fishing. He always encouraged me to do it.
+ - I thought being on stage was an amazing feeling, but there is nothing that can top watching my wife bring our son into this world.
+ - Nothing is more rewarding than to take a song, create it out of thin air and then watch it affect people.
+ - As far as heroes thorough the years, I’d say definitely Alabama and Randy Owen, Conway Twitty was a big influence of mine, George Strait, Lionel Richie.
+ - When you look into the eyes of your people out there that came to see you, that’s when it’s like, ‘Yep, this is what it’s all about.’ This is why we don’t sleep, and this is why we write songs and try to be the best. This moment right here onstage.
+ - A lot of people don’t have near the amount of success as I’ve been blessed to have, and it’s all about working hard and hoping that continues.
+ - I think the defining moment in my career is the day that I moved to Nashville – September 1, 2001. That’s the biggest step to getting here is making that move. Anything that happens, the wonderful opportunities that happen to you, can’t happen until you make that move.
+ - I think the attraction to country music is the fans, the lure of the hardcore fan base.
+ - I always want to have a personal relationship with everybody that works for me.
+ - I want to be comfortable on TV. If I’m comfortable, they’re comfortable watching me. I think nothing’s more icky than watching icky on TV.
+ - Alcohol is perfect for me to curb the nerves a little bit.
+
+25 quotes

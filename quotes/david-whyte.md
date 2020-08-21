@@ -1,0 +1,77 @@
+ - Sometimes it takes darkness and the sweet confinement of your aloneness to learn anything or anyone that does not bring you alive is too small for you.
+ - The courageous conversation is the one you don’t want to have.
+ - What you can plan is too small for you to live. What you can live wholeheartedly will make plans enough for the vitality hidden in your sleep.
+ - The greatest tragedy is to live out someone else’s life thinking it was your own.
+ - There is a lovely root to the word humiliation – from the latin word humus, meaning soil or ground. When we are humiliated, we are in effect returning to the ground of our being.
+ - A real conversation always contains an invitation. You are inviting another person to reveal herself or himself to you, to tell you who they are or what they want.
+ - The marvelous thing about a good question is that it shapes our identity as much by the asking as it does by the answering.
+ - A sure sign of a soul-based workplace is excitement, enthusiasm, real passion; not manufactured passion, but real involvement. And there’s very little fear.
+ - You must learn one thing. The world was made to be free in. Give up all the other worlds Except the one in which you belong.
+ - Alertness is the hidden discipline of familiarity.
+ - When your eyes are tired the world is tired also. When your vision has gone no part of the world can find you. Time to go into the dark where the night has eyes to recognize its own. There you can be sure you are not beyond love.
+ - The price of our vitality is the sum of all our fears.
+ - Gratitude arises from paying attention, from being awake in the presence of everything that lives within and without us.
+ - There is no house like the house of belonging.
+ - Some things cannot be spoken or discovered until we have been stuck, incapacitated, or blown off course for awhile. Plain sailing is pleasant, but you are not going to explore many unknown realms that way.
+ - Art is the act of triggering deep memories, of what it means to be fully human.
+ - Everyone casts a shadow. Everyone has a relationship with the fearful unknown.
+ - Poetry is the art of overhearing ourselves say things from which it is impossible to retreat.
+ - Inside everyone is a great shout of joy waiting to be born.
+ - The tragedy with velocity as the answer to complexity is that, after awhile, you cannot see or comprehend anything that is not traveling at the same speed you are. And you actually start to feel disturbed by people who have a sense of restfulness to their existence.
+ - To be human is to become visible while carrying what is hidden as a gift to others.
+ - Whether we stay or whether we go – to be courageous is to stay close to the way we are made.
+ - Anything that does not bring you alive is too small for you.
+ - Put down the weight of your aloneness and ease into the conversation. Pay attention to everything in the world as if it’s alive. Realize everything has its own discrete existence outside your story. By doing this, you open to gifts and lessons that the world has to give you.
+ - To seek out beauty in our work is to make a pilgrimage of our labors, to understand that the consummation of work lies not only in what we have done, but who we have become while accomplishing the task.
+ - Absent the edge, we drown in numbness.
+ - Our work is to make ourselves visible in the world. This is the soul’s individual journey, and the soul would much rather fail at its own life than succeed at someone else’s.
+ - We withdraw not to disappear, but to find another ground from which to see; a solid ground from which to step, and from which to speak again, in a different way, a clear, rested, embodied voice we begin to remember again as our own.
+ - Courage is the measure of our heartfelt participation with life, with another, with a community, a work, a future.
+ - Poetry for me has been a long pilgrimage, a journey and a growing relationship with the unknown.
+ - The frail, vulnerable sounds of which we are capable seem to be essential to a later ability to roar like a lion without scaring everyone to death.
+ - Poetry is a break for freedom.
+ - Vulnerability is not a weakness but a faculty for understanding.
+ - What is precious inside us does not care to be known by the mind in ways that diminish its presence.
+ - The moment you’ve uttered the exact dimensionality of your exile, you’re already turning towards home.
+ - The fear of loss, in one form or another, is the motivator behind all conscious and unconscious dishonesties.
+ - The truth about our own modest contribution might immobilize us: much easier then, to tell ourselves a story about how much we make our own reality.
+ - The great poems are not about experience, but are the experience itself, felt in the body.
+ - Genius is becoming something you were all along.
+ - Honesty is reached through the doorway of grief and loss.
+ - Sometimes everything has to be inscribed across the heavens so you can find the one line already written inside you.
+ - When I recite poems onstage, I put myself into the very personal struggle and it grants tremendous perspective. At the same time you get another perspective on the poem you’re reciting.
+ - You’ll always love the person, if you’re sensible. But you get a lot of people, especially in divorces and separations, doing a lot of damage to themselves, because they can’t figure out that they actually still love this person, but not in their original way.
+ - The outlaw is the radical, the one close to the roots of existence. The one who refuses to forget their humanity and, in remembering, helps everyone else remember, too.
+ - We are the only species on earth capable of preventing our own flowering.
+ - Your great mistake is to act the drama as if you were alone.
+ - Being a good parent will necessarily break our hearts as we watch a child grow and eventually choose their own way, even through many of the same heartbreaks we have traversed.
+ - To feel abandoned is to deny the intimacy of your surroundings.
+ - For the personality, bankruptcy or failure may be a disaster. For the soul, it may be grist for its strangely joyful mill, and a condition it has been secretly engineering for years.
+ - To forge an untouchable, invulnerable identity is actually a sign of retreat from this world; of weakness, a sign of fear rather than strength, and betrays a strange misunderstandin g of an abiding, foundational and necessary reality: that untouched, we disappear.
+ - A good poem has its own life. It’s like bringing a child into the world. You, the poet, birthed the child, but the child will surprise you continually. I think a work of art has its own aliveness, its own future.
+ - To have a firm persuasion in our work – to feel that what we do is right for ourselves and good for the world at exactly the same time – is one of the great triumphs of human existence.
+ - Poetry is often the art of overhearing yourself say things you didn’t know you knew. It is a learned skill to force yourself to articulate your life, your present world or your possibilities for the future.
+ - Put down the weight of your aloneness and ease into the conversation.
+ - All of our great traditions, religious, contemplative and artistic, say that you must a learn how to be alone – and have a relationship with silence. It is difficult, but it can start with just the tiniest quiet moment.
+ - Silence is like a cradle holding our endeavors and our will; a silent spaciousness sustains us in our work and at the same time connects us to larger worlds that, in the busyness of our daily struggle to achieve, we have not yet investigated. Silence is the soul’s break for freedom.
+ - If in your mind it was possible to take a year’s sabbatical from work to reassess your life, what would you do and where would you go?
+ - A good poem looks life straight in the face, unflinching, sincere, equal to revelation through loss or gain.
+ - I want to know if you are willing to live, day by day, with the consequence of love.
+ - Poetry is a street fighter. It has sharp elbows. It can look after itself. Poetry can’t be used for manipulation; it’s why you never see good poetry in advertising.
+ - Shyness means you are in the hallway of a greater presence. You just don’t know how to take the conversation another step. It’s a lovely indication.
+ - If I don’t have time for the writing, it’s because I’m not making that time. It’s really just a question of whether you want to or not, whether you feel you deserve to write or not.
+ - I believe that human beings are desperate, always, to belong to something larger than themselves.
+ - The art form has to do with the mystery and the hidden invitation that’s in the room. And that’s when the magic happens, that’s when the deep silence emerges to the surprise of all the attentively listening ears. In a way, you’re following that silence. You go where the silence is deepest.
+ - By definition, poetry works with qualities and dynamics that mainstream society is reluctant to face head-on. It’s an interesting phenomenon that by necessity, poetry is just below the radar.
+ - Shedding the carapace we have been building so assiduously on the surface, we must by definition give up exactly what we thought was necessary to protect us from further harm.
+ - It might be liberating to think of human life as informed by losses and disappearances as much as by gifted appearances, allowing a more present participation and witness to the difficulty of living.
+ - To remember the other world in this world is to live in your true inheritance.
+ - The severest test of work today, is not of our strategies, but of our imaginations and identities.
+ - There’s a fierce practicality and empiricism which the whole imaginative, lyrical aspect of poetry comes from.
+ - See, even if you’re stuck in life, if you can describe just exactly the way you’re stuck, then you will immediately recognise that you can’t go on that way anymore. So, just saying precisely, writing precisely how you’re stuck, or how you’re alienated, opens up a door of freedom for you.
+ - I returned to poetry as a more precise way to describe the world, more precise than science.
+ - It is the province of poetry to be more realistic and present than the artificial narratives of an outer discourse, and not afraid of the truthful difficulty of the average human life.
+ - A soul-based workplace asks things of me that I didn’t even know I had. It’s constantly telling me that I belong to something large in the world.
+ - To give generously but appropriately and then, most difficult of all, and as the full apotheosis of the art, with feeling, in the moment and spontaneously, has always been recognized as one of the greatest of human qualities.
+
+75 quotes

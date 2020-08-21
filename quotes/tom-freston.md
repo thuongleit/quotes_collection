@@ -1,0 +1,21 @@
+ - Innovation is taking two things that already exist and putting them together in a new way.
+ - A career path is rarely a path at all. A more interesting life is usual a more crooked, winding path of missteps, luck and vigorous work. It is almost always a clumsy balance between the things you try to make happen and the things that happen to you.
+ - I have prevented my kids from watching MTV at home. It’s not safe for kids.
+ - Travel early and travel often. Live abroad, if you can. Understand cultures other than your own. As your understanding of other cultures increases, your understanding of yourself and your own culture will increase exponentially.
+ - People often say that a bad event is a ‘blessing in disguise.’ Trust me, experience will teach you that some are unbelievably well disguised. Everyone gets fired, or decides to make a radical change at some point. Everyone suffers setbacks.
+ - Only true love can fuel the hard work that awaits you.
+ - I always hustled to make money and pay for school. I was never afraid of hard work.
+ - When I got fired, I had a feeling of loss because Viacom had been a passionate long-term relationship. But I got my balance back. I guess its like getting jilted by a girlfriend, a serious girlfriend. You move on.
+ - I’ve never been fired in my life. From anything. I’ve never failed at anything I’ve tried.
+ - I always imagined myself somehow as an electron around some atom, and you’re just, like, bouncing around and spinning. There was a never-ending supply of places to go, people to see, things to do, and fitting it all in became kind of an art.
+ - We, as Americans, have so much to learn here. We have a shockingly low level of global awareness and familiarity and little idea of how the world sees us. And those disturbing facts keep getting us into a lot of trouble.
+ - Authenticity is really important, and sometimes thats really hard to get.
+ - Sometimes I just like the feeling of being a minority and seeing how far you can push yourself in extreme circumstances.
+ - Travel is the best and probably cheapest graduate school you can buy.
+ - The skills you acquire can always be effectively redeployed. You will look back on setbacks and be grateful for the catalyst that came not a moment too soon.
+ - I think online is a better platform. If you look at the metrics, if you look at the delivery system, if you look at social – all of the things that online can do – TV can’t compete.
+ - Read, listen to and watch everything you can. Explore the corners of popular culture and the arts. And, of course, these days you have to stay maniacally plugged in to the cutting edge of whatever technology is taking your profession into the future – otherwise you’re toast.
+ - If you look at the Internet, it’s been hard for a lot of the traditional media companies to launch viable brands.
+ - There’s almost nothing that distracts you from your day-to-day problems more than a trip. You’re totally consumed in the present, you’ve got new sense impressions, you’ve got all this stuff to digest.
+
+19 quotes

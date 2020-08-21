@@ -1,0 +1,32 @@
+ - The blues had a baby and they called it rock and roll.
+ - That Mississippi sound, that Delta sound is in them old records. You can hear it all the way through.
+ - I been in the blues all my life. I’m still delivering ’cause I got a long memory.
+ - Find me playing till sunrise for 50 cents and a sandwich.
+ - Ain’t nobody’s business, if I bark like a dog.
+ - China is to stock fraud as Silicon Valley is to technology.
+ - Theres no way in the world I can feel the same blues the way I used to. When I play in Chicago, Im playing up-to-date, not the blues I was born with. People should hear the pure blues – the blues we used to have when we had no money.
+ - Of course that was my idol, Son House. I think he did a lot for the Mississippi slide down there.
+ - Going to Chicago was like going out of the world...
+ - All the kids made their own git-tars. Made mine out of a box and bit of stick for a neck. Couldn’t do much with it, but that’s how you learn.
+ - I got up one Christmas morning and we didn’t have nothing to eat. We didn’t have an apple, we didn’t have an orange, we didn’t have a cake, we didn’t have nothing.
+ - I was so wild and crazy and dumb in my car. It didn’t run but 30 miles an hour. You made do.
+ - Saturday night is your big night. Everybody used to fry up fish and have one hell of a time. Find me playing till sunrise for 50 cents and a sandwich. And be glad of it. And they really liked the low-down blues.
+ - Robert Johnson? No, I didn’t know him, personally.
+ - My blues are so simple, but so few people can play it right.
+ - The thing about San Francisco is that it has this kind of magical quality.
+ - I wanted to definitely be a musician or a good preacher or a heck of a baseball player. I couldn’t play ball too good – I hurt my finger, and I stopped that. I couldn’t preach, and well, all I had left was getting into the music thing.
+ - If you got something you don’t want other people to know, keep it in your pocket.
+ - Man, you don’t know how I felt that afternoon when I heard that VOICE and it was my own VOICE.
+ - My grandmother, she say I shouldn’t be playing. I should go to church. Fially, I say I’m going do this, I’m going do it. And she got where she didn’t bother me about it.
+ - I stone got crazy when I saw somebody run down them strings with a bottleneck. My eyes lit up like a Christmas tree and I said that I had to learn.
+ - He took my music, but he gave me my name.
+ - I wanted to get out of Mississippi in the worst way. Go back? What I want to go back for?
+ - Memphis was almost like going to California. Beale Street was the black man’s street.
+ - I was always singing the way I felt, and maybe I didn’t exactly know it, but I just didn’t like the way things were down there-in Mississippi.
+ - I went to school, but they didn’t give you too much schooling because just as soon as you was big enough, you get to working in the fields. I guess I was a big boy for my age.
+ - You get a heck of a sound from the church. Can’t you hear it in my voice?
+ - Now that I’m gettin old enough to get some money, I’d like to have some money. I don’t get much made, I need to conquer a big chunk of money. Not quit playin but quit playin so hard.
+ - I went down to my baby’s house and I sit down on her steps. She said, now come on in now, you know, my husband just left.
+ - I got your strand of hair, I kiss it day and night.
+
+30 quotes

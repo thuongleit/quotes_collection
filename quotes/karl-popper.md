@@ -1,0 +1,108 @@
+ - All life is problem solving.
+ - True ignorance is not the absence of knowledge, but the refusal to acquire it.
+ - It is part of my thesis that all our knowledge grows only through the correcting of our mistakes.
+ - A theory that explains everything, explains nothing.
+ - I may be wrong and you may be right, and by an effort, we may get nearer to the truth.
+ - No rational argument will have a rational effect on a man who does not want to adopt a rational attitude.
+ - Those who promise us paradise on earth never produced anything but a hell.
+ - If you can’t say it simply and clearly, keep quiet, and keep working on it till you can.
+ - It is not his possession of knowledge, of irrefutable truth, that makes the man of science, but his persistent and recklessly critical quest for truth.
+ - Science must begin with myths, and with the criticism of myths.
+ - We do not know. We can only guess.
+ - Optimism is a duty. The future is open. It is not predetermined. No one can predict it, except by chance. We all contribute to determining it by what we do. We are all equally responsible for its success.
+ - The growth of knowledge depends entirely upon disagreement.
+ - Every solution of a problem raises new unsolved problems.
+ - The survival value of intelligence is that it allows us to extinct a bad idea, before the idea extincts us.
+ - The attempt to make heaven on earth invariably produces hell.
+ - No number of sightings of white swans can prove the theory that all swans are white. The sighting of just one black one may disprove it.
+ - The only way to test a hypothesis is to look for all the information that disagrees with it.
+ - Every genuine test of a theory is an attempt to falsify it, or to refute it.
+ - It can’t happen here is always wrong: a dictatorship can happen anywhere.
+ - We should therefore claim, in the name of tolerance, the right not to tolerate the intolerant.
+ - Ignorance is not a simple lack of knowledge but an active aversion to knowledge, the refusal to know, issuing from cowardice, pride, or laziness of mind.
+ - There will be well-testable theories, hardly testable theories, and non-testable theories. Those which are non-testable are of no interest to empirical scientists. They may be described as metaphysical.
+ - There is no history, only histories.
+ - Our knowledge can only be finite, while our ignorance must necessarily be infinite.
+ - The history of science is everywhere speculative. It is a marvelous hiatory. It makes you proud to be a human being.
+ - The difference between the amoeba and Einstein is that, although both make use of the method of trial and error elimination, the amoeba dislikes erring while Einstein is intrigued by it.
+ - The best thing that can happen to a human being us to find a problem, to fall in love with that problem, and to live trying to solve that problem, unless another problem even more lovable appears.
+ - Whenever a theory appears to you as the only possible one, take this as a sign that you have neither understood the theory nor the problem which it was intended to solve.
+ - No book can ever be finished. While working on it we learn just enough to find it immature the moment we turn away from it.
+ - We all remember how many religious wars were fought for a religion of love and gentleness; how many bodies were burned alive with the genuinely kind intention of saving souls from the eternal fire of hell.
+ - I have spoken to Einstein and he admitted to me that his theory was in fact no different from the one of Parmenides.
+ - It is impossible to speak in such a way that you cannot be misunderstood.
+ - The genuine rationalist does not think that he or anyone else is in possession of the truth; nor does he think that mere criticism as such helps us achieve new ideas. But he does think that, in the sphere of ideas, only critical discussion can help us sort the wheat from the chaff.
+ - All things living are in search of a better world .
+ - A theory is just a mathematical model to describe the observations.
+ - If you know that things are bound to happen whatever you do, then you may feel free to give up the fight against them.
+ - In so far as a scientific statement speaks about reality, it must be falsifiable; and in so far as it is not falsifiable, it does not speak about reality.
+ - While differing widely in the various little bits we know, in our infinite ignorance we are all equal.
+ - A rationalist is simply someone for whom it is more important to learn than to be proved right; someone who is willing to learn from others – not by simply taking over another’s opinions, but by gladly allowing others to criticize his ideas and by gladly criticizing the ideas of others.
+ - If we wish our civilization to survive we must break with the habit of deference to great men.
+ - Serious rational criticism is so rare that it should be encouraged. Being too ready to defend oneself is more dangerous than being too ready to admit a mistake.
+ - The quest for precision is analogous to the quest for certainty and both – precision and certainty are impossible to attain.
+ - It is wrong to think that belief in freedom always leads to victory; we must always be prepared for it to lead to defeat. If we choose freedom, then we must be prepared to perish along with it.
+ - Some scientists find, or so it seems, that they get their best ideas when smoking; others by drinking coffee or whisky. Thus there is no reason why I should not admit that some may get their ideas by observing, or by repeating observations.
+ - The defence of democracy must consist in making anti-democratic experiences too costly for those who try them; much more costly than a democratic compromise.
+ - What really makes science grow is new ideas, including false ideas.
+ - Simple statements are to be prized more highly than less simple ones because they tell us more; because their empirical content is greater; and because they are better testable.
+ - We are social creatures to the inmost centre of our being. The notion that one can begin anything at all from scratch, free from the past, or unindebted to others, could not conceivably be more wrong.
+ - The future is always present, as a promise, a lure and a temptation.
+ - If we are not prepared to defend a tolerant society against the onslaught of the intolerant, then the tolerant will be destroyed, and tolerance with them.
+ - The old scientific ideal of episteme – of absolutely certain, demonstrable knowledge – has proved to be an idol. The demand for scientific objectivity makes it inevitable that every scientific statement must remain tentative for ever.
+ - It is wrong to ask who will rule. The ability to vote a bad government out of office is enough. That is democracy.
+ - I have insisted that we must be tolerant. But I also believe that this tolerance has its limits. We must not trust those anti-humanitarian religions which not only preach destruction but act accordingly. For if we tolerate them, then we become ourselves responsible for for their deeds.
+ - Do not allow your dreams of a beautiful world to lure you away from the claims of men who suffer here and now. Our fellow men have a claim to our help; no generation must be sacrificed for the sake of future generations.
+ - Good tests kill flawed theories; we remain alive to guess again.
+ - It is complete nihilism to propose laying down arms in a world where atom bombs are around. It is very simple: there is no way of achieving peace other than with weapons.
+ - The moral decisions of others should be treated with respect, as long as such decisions do not conflict with the principle of tolerance.
+ - In my view, aiming at simplicity and lucidity is a moral duty of all intellectuals: lack of clarity is a sin, and pretentiousness is a crime.
+ - We have become makers of our fate when we have ceased to pose as its prophets.
+ - Genuine philosophical problems are always rooted outside philosophy and they die if these roots decay.
+ - The open society is one in which men have learned to be to some extent critical of taboos, and to base decisions on the authority of their own intelligence.
+ - Propose theories which can be criticized. Think about possible decisive falsifying experiments-crucial experiments. But do not give up your theories too easily-not, at any rate, before you have critically examined your criticism.
+ - Better our hypotheses die for our errors than ourselves.
+ - Science is perhaps the only human activity in which errors are systematically criticized and, in time, corrected.
+ - But some of these theories are so bold that they can clash with reality: they are the testable theories of science. And when they clash, then we know that there is a reality; something that can inform us that our ideas are mistaken.
+ - Man, some modern philosophers tell us, is alienated from his world: he is a stranger and afraid in a world he never made. Perhaps he is; yet so are animals, and even plants. They too were born, long ago, into a physico-chemical world, a world they never made.
+ - Historically speaking all – or very nearly all – scientific theories originate from myths.
+ - But it is certainly not possible to insist on one hand that the formalism is complete and to insist on the other hand that its application to ‘the actual’ actually demands a step which cannot be derived from it.
+ - Thus science must begin with myths, and with the criticism of myths; neither with the collection of observations, nor with the invention of experiments, but with the critical discussion of myths, and of magical techniques and practices.
+ - Our belief in any particular natural law cannot have a safer basis than our unsuccessful critical attempts to refute it.
+ - Every discovery contains an irrational element or a creative intuition.
+ - Science may be described as the art of systematic oversimplification.
+ - Evolution is not a fact. Evolution doesn’t even qualify as a theory or as a hypothesis. It is a metaphysical research program, and it is not really testable science.
+ - There is no history of mankind, there is only an indefinite number of histories of all kinds of aspects of human life.
+ - The war of ideas is a Greek invention. It is one of the most important inventions ever made. Indeed, the possibility of fighting with with words and ideas instead of fighting with swords is the very basis of our civilization, and especially of all its legal and parliamentary institutions.
+ - We must plan for freedom, and not only for security, if for no other reason than only freedom can make security more secure.
+ - The history of science, like the history of all human ideas, is a history of irresponsible dreams, of obstinacy, and of error.
+ - There is no history of mankind, there are only many histories of all kinds of aspects of human life. And one of these is the history of political power. This is elevated into the history of the world.
+ - Our aim must be to make our successive mistakes as quickly as possible. To speed up evolution.
+ - You cannot have a rational discussion with a man who prefers shooting you to being convinced by you.
+ - The scientific tradition is distinguished from the pre-scientific tradition by having two layers. Like the latter, it passes on its theories; but it also passes on a critical attitude towards them.
+ - Piecemeal social engineering resembles physical engineering in regarding the ends as beyond the province of technology.
+ - It is not possible to write clearly enough to avoid being misrepresented by people who are sufficiently determined to do so.
+ - Plato felt that a complete reconstruction of society’s political program was needed.
+ - I have come to the conclusion that Darwinism is not a testable scientific theory, but a metaphysical research programme...
+ - I have learned more from Hayek than from any other living thinker, except perhaps Alfred Tarski – but not even excepting Russell.
+ - The method of science depends on our attempts to describe the world with simple theories: theories that are complex may become untestable, even if they happen to be true. Science may be described as the art of systematic over-simplification-the art of discerning what we may with advantage omit.
+ - Whenever we propose a solution to a problem, we ought to try as hard as we can to overthrow our solution, rather than defend it.
+ - Reason like science, grows by way of mutual criticism; the only possible way of planning its growth is to develop those institutions that safeguard. the freedom of thought.
+ - It is the rule which says that the other rules of scientific procedure must be designed in such a way that they do not protect any statement in science against falsification.
+ - We hate the very idea that our own ideas may be mistaken, so we cling dogmatically to our conjectures.
+ - The initial stage, the act of conceiving or inventing a theory, seems to me neither to call for logical analysis nor to be susceptible of it.
+ - We never know what we are talking about.
+ - Our aim as scientists is objective truth; more truth, more interesting truth, more intelligible truth. We cannot reasonably aim at certainty. Once we realize that human knowledge is fallible, we realize also that we can never be completely certain that we have not made a mistake.
+ - The more we learn about the world, and the deeper our learning, the more conscious, specific, and articulate will be our knowledge of what we do not know, our knowledge of our ignorance.
+ - We have the right not to tolerate the intolerant. We should tolerate even them whenever we can do so without running a great risk; but the risk may become so great that we cannot allow ourselves the luxury.
+ - Contrary to the outstanding work of art, outstanding theory is susceptible to improvements.
+ - There can be no ultimate statements science: there can be no statements in science which can not be tested, and therefore none which cannot in principle be refuted, by falsifying some of the conclusions which can be deduced from them.
+ - The game of science is, in principle, without end. He who decides one day that scientific statements do not call for any further test, and that they can be regarded as finally verified, retires from the game.
+ - All we can do is search for the falsity content in our best theory.
+ - The use of violence is justified only under a tyranny which makes reforms without violence impossible, and should have only one aim, that is, to bring about a state of affairs which makes reforms without violence possible.
+ - It is a myth that the success of science in our time is mainly due to the huge amounts of money that have been spent on big machines. What really makes science grow is new ideas, including false ideas.
+ - We do not know anything – this is the first. Therefore, we should be very modest – this is the second. Not to claim that we do know when we do not – this is the third. That’s the kind of attitude I’d like to popularize. There is little hope for success.
+ - The fundamental thing about human languages is that they can and should be used to describe something; and this something is, somehow, the world. To be constantly and almost exclusively interested in the medium – in spectacle-cleaning – is a result of a philosophical mistake.
+ - It must be possible for an empirical system to be refuted by experience.
+
+106 quotes

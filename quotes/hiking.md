@@ -1,0 +1,42 @@
+ - The greatest adventure is what lies ahead. ~~J. R. R. Tolkien
+ - I see my path, but I don’t know where it leads. Not knowing where I’m going is what inspires me to travel it. ~~Rosalía de Castro
+ - Doubly happy, however, is the man to whom lofty mountain tops are within reach. ~~John Muir
+ - My yesterdays walk with me. They keep step, they are gray faces that peer over my shoulder. ~~William Golding
+ - Our wretched species is so made that those who walk on the well-trodden path always throw stones at those who are showing a new road. ~~Voltaire
+ - Do nothing in haste; look well to each step; and from the beginning think what may be the end. ~~Edward Whymper
+ - Hiking up a hill is an ass kicker, going downhill is a little easier. ~~Joe Teti
+ - When you part from your friend, you grieve not; For that which you love most in him may be clearer in his absence, as the mountain to the climber is clearer from the plain. ~~Khalil Gibran
+ - Poetry is to prose as dancing is to walking. ~~Paul Valéry
+ - Hiking in undiscovered places is a lot of fun. ~~Karolina Kurkova
+ - If it had been possible to build the Tower of Babel without climbing it, it would have been permitted. ~~Franz Kafka
+ - Walk while ye have the light, lest darkness come upon you. ~~John Ruskin
+ - Were we, also, hiking along some cosmic journal page? Were the events about us all part of a message we could understand, if only we found the right perspective from which to read them? Somehow, with our long series of miracles, I thought so. ~~Richard Bach
+ - I know the guru route, I know you go sit on a mountain. But screw India. I ain’t going there. ~~Susan Powter
+ - I would walk along the quais when I had finished work or when I was trying to think something out. It was easier to think if I was walking and doing something or seeing people doing something that they understood. ~~Ernest Hemingway
+ - Space Mountain may be the oldest ride in the park, but it has the longest line. ~~Ric Flair
+ - Walk away quietly in any direction and taste the freedom of the mountaineer. Camp out among the grasses and gentians of glacial meadows, in craggy garden nooks full of nature’s darlings. ~~John Muir
+ - Hiking the PCT was the maddening effort of knitting that sweater and unraveling it over and over again. As if everything gained was inevitably lost. ~~Cheryl Strayed
+ - In my case Pilgrim’s Progress consisted in my having to climb down a thousand ladders until I could reach out my hand to the little clod of earth that I am. ~~C.G. Jung
+ - I like golf, hiking, camping, boating and fishing. ~~Bryan Clay
+ - There are some cases in which the sense of injury breeds not the will to inflict injuries and climb over them as a ladder, but a hatred of all injury. ~~George Eliot
+ - When the sun is shining I can do anything; no mountain is too high, no trouble too difficult to overcome. ~~Wilma Rudolph
+ - When you reach the top, that’s when the climb begins. ~~Michael Caine
+ - It was great growing up a nomad. To this day I still love hiking and back packing. ~~Jared Leto
+ - The place where you lose the trail is not necessarily the place where it ends. ~~Tom Brown, Jr.
+ - I never weary of great churches. It is my favorite kind of mountain scenery. Mankind was never so happily inspired as when it made a cathedral. ~~Robert Louis Stevenson
+ - Freedom – to walk free and own no superior. ~~Walt Whitman
+ - The best remedy for a short temper is a long walk. ~~Joseph Joubert
+ - The bizarre trend in mountaineers is not the risk they take, but the large degree to which they value life. They are not crazy because they don’t dare, they’re crazy because they do. These people tend to enjoy life to the fullest, laugh the hardest, travel the most, and work the least. ~~Lisa Morgan
+ - Now shall I walk or shall I ride? ‘Ride,’ Pleasure said; ‘Walk,’ Joy replied. ~~W. H. Davies
+ - Make your feet your friend. ~~James M. Barrie
+ - We’ve climbed the mighty mountain. I see the valley below, and it’s a valley of peace. ~~George W. Bush
+ - If the Fed ceases hiking, against the backdrop of still rising commodity prices, then the Australian dollar will have few reasons for resisting any topside advances. ~~Craig Ferguson
+ - Jack London is a very generous description of my small hiking, bicycling, and canoeing habit. I myself feel like a weak urbanite a lot of the time, because lots of my friends are incredible outdoorsmen and women. ~~Nick Offerman
+ - The civilized man has built a coach, but has lost the use of his feet. ~~Ralph Waldo Emerson
+ - I remember for that one moment, I believe I was hitch hiking on one of those comets, falling so fast that I’d surely burn away before I ever hit the ground. ~~Jodi Picoult
+ - I always told Hitch that it would have been better to put seats around the set and sell tickets. ~~James Stewart
+ - We are all vegetarians here, and except for a mountain lion that’s been hanging around and killed our dog, we don’t have a care in the world. ~~Dirk Benedict
+ - Once more I can climb about and remind you that a woman in this epoch does the important literary thinking. ~~Gertrude Stein
+ - It isn’t the mountain ahead that wears you out; it’s the grain of sand in your shoe. ~~Robert W. Service
+
+40 quotes

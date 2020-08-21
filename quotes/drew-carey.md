@@ -1,0 +1,76 @@
+ - Eating crappy food isn’t a reward – it’s a punishment.
+ - It isn’t premarital sex if you have no intention of getting married.
+ - Oh, you hate your job? Why didn’t you say so? There’s a support group for that. It’s called everybody, and they meet at the bar.
+ - It sucks being fat, you know.
+ - Violence doesn’t solve anything? World War I. World War II. Star Wars. Every Super Bowl. Who says violence doesn’t solve anything?
+ - I love Las Vegas. I like that Las Vegas has everything. Everything and anything you want to do, you can do in Las Vegas.
+ - In any other job, they’re truck drivers. In show-biz, they’re Transportation Captains.
+ - I’m a big believer in overcoming and achieving and doing things and not feeling sorry for yourself.
+ - Learn how to set goals. That’s the key to everything. That includes designing your own success. You define what the goal is, it’s not somebody else’s goal, it’s yours.
+ - I’m down to earth; people sense that and they appreciate it.
+ - I used to go to the library all the time when I was kid. As a teenager, I got a book on how to write jokes at the library, and that, in turn, launched my comedy career.
+ - You say tomato, I say bourbon and coke.
+ - And for you kids watching at home, remember, the less homework you do and the closer you sit to the TV, the more points you get.
+ - You know what I worry about? I worry that when I hit my head, it pushes my hair into my brain, and it will eventually kill me.
+ - The difference between Las Vegas and Atlantic City is the difference between getting conned by a beautiful call girl and getting mugged by a crack head.
+ - Listen, you don’t know any better so I’ll just tell you. You can’t try to save money by not having the right beer. You know, you can skip having medical insurance, you can buy everything you own at a swap meet but the right beer is what makes living like this possible.
+ - If frogs could fly – well, we’d still be in this mess, but wouldn’t it be neat?
+ - Funniest thing happened though, you wouldn’t believe it, ha, the mannequins came to life. I went insane.
+ - Why is everybody afraid of going to Heaven? You want to be here with the smog and the sin and bad people and the war? Or do you want to be in Heaven, sitting next to Jesus, you know?
+ - I like to think of my house as nothing more than a glorified console for my television; the ultimate stereo cabinet.
+ - I was raised by just my mom. See, my father died when I was eight years old. At least, that’s what he told us in the letter...
+ - That’s the great thing about having your friends around you. I’ve known these guys forever. I really enjoy their company just as people. You couldn’t ask for a better work environment.
+ - I’m not a good lover, but at least I’m fast.
+ - Who ever thought that the world-famous Captain Obvious was really mild-mannered Colin Mochrie?
+ - I don’t care if my jokes are appropriate for a kid.
+ - George Carlin is kind of my template now because George Carlin before was straight laced regular comic and he had short hair, a tie, suit, nightclub guy. Then he said screw it, let his hair grow, just started telling what he thought was the truth. So that’s what I’m trying to do.
+ - Libertarians are conservatives who still get high.
+ - I have a position of indirect respect and oblique power.
+ - I am happy that I ran the half-marathon, but to me, just running and saying that I finished a race isn’t enough for me. I want to run the race as best as I can. Working out for pants size isn’t enough. I need a goal or a race to get back on the treadmill every day.
+ - Welcome to ‘Who’s Line Is It Anyway’ the show where everything’s made up and the points don’t matter. That’s right the points are just like Canada.
+ - Hollywood people are filled with guilt: white guilt, liberal guilt, money guilt. They feel bad that they’re so rich, they feel they don’t work that much for all that money – and they don’t, for the amount of money they make.
+ - I never thought I was a libertarian until I picked up Reason magazine and realized I agree with everything they had printed.
+ - The easiest diet is, you know, eat vegetables, eat fresh food. Just a really sensible healthy diet like you read about all the time.
+ - People laugh to forget their troubles, and to forget their troubles they like to look at people who aren’t doing better than they are.
+ - The TV season is a year-long thing now, and the networks are starting to look at it that way, thanks to cable, satellites, and competition.
+ - What right does a politician have to tell me what I can and cannot watch? Change the channel if you don’t like what’s on TV!
+ - Things don’t make me nearly as happy as talking and having a beer with my friends. And that’s something everyone can do.
+ - I don’t run outside, honestly. Sometimes I go out around my house, but mainly it’s the stupid treadmill. I wish I had a better answer, but I’m very businesslike about my runs.
+ - Living in Hollywood, you can get disconnected from everybody. You can feel like you are the only one.
+ - What good is democracy if you can’t get what you want?
+ - I think that if anyone bothered to take a survey, they would find a sharp decline in atheism during the winters in Cleveland, Ohio.
+ - Being a celebrity you always get really good seats to sporting events but you never get as good seats as the photographers get. And I really love sports. So one of the scams I have going now is I want to learn sports photography so I can get better seats at a sporting event.
+ - I wish I could end every rap song I didn’t like with a buzzer.
+ - Every election I have to hold my nose to vote.
+ - I’d buy joke books and try doing them at school; I always had jokes. That would be my go-to thing at parties: I’d be able to get through them if I just told enough jokes. Otherwise, I wouldn’t end up talking to anybody.
+ - Trust me, kids – your homework can wait. Don’t need to be doing homework while Whose Line is on; skip it!
+ - I learned how to believe in myself. Learned how to set goals, you know, self help books man. I just read every single one I can get a hold of, and I still do.
+ - Look, this is an odd question, but you’re kind of cute and you’re pretty nice to me. Are you drunk? It’s OK if you are.
+ - Like I said, all comedy is based on exaggeration, big or small, whatever you can get away with.
+ - I was just sick of being fat, you know? You get sick of it. It just really, it’s a tiring lifestyle to have.
+ - I’ve always got stuff in my head in case I meet somebody like Steven Spielberg or someone like that, where I can hopefully say something to them that nobody else has ever said and get a laugh out of them.
+ - It should be up to each bar owner and patron to decide if they want to smoke or not.
+ - I always thought I was going to die before I was 60.
+ - I wanted to do a show based on what my life would be like if I had never become a comedian.
+ - I actually was worried about the pounding, but I actually love running more than working out on the elliptical. Now if I get on the elliptical, I feel like I’m trapped.
+ - The less government, the better.
+ - I don’t do one show and wish I was doing something else.
+ - Liquor prohibition led to the rise of organized crime in America, and drug prohibition has led to the rise of the gang problems we have now.
+ - Yeah, apparently chasing a bus uses different muscles than sitting and eating.
+ - I’m the kind of person that likes what I’m doing when I’m doing it.
+ - I just try to get people to laugh – I’m not trying to change the world or anything.
+ - On other shows when they get to the end of the scene, they yell ‘Cut!’ On Whose Line, we yell ‘That’s Enough!’
+ - There’s a game called Checkout where there’s grocery items and it’s how much you think the manufacturer’s suggested retail price is and we add up your total, then your total has to be within $2 of the regular total. I don’t think I could ever win that game.
+ - I’m competitive at everything.
+ - I loved the old stories in National Lampoon, like the original story the movie Vacation was based on. I used to laugh at them until I cried.
+ - The economy is in trouble, schools are in trouble, and people have been leaving the city in droves for a long, long time.
+ - If I wasn’t a comic or TV star, I really wanted to be a photojournalist.
+ - My cranky cardiologist says I’m destined to die in the kitchen.
+ - The Marines was a fresh start – that is why they shave your head. I wish they would let you change your name.
+ - Nothing’s funny about someone who’s successful.
+ - When I’m working, I’m going to avoid all media. No newspapers, no magazines, no movies, no radio, no TV. I’m just going to do creative work.
+ - When asked if he enjoys being famous: Sometimes I like it, sometimes I don’t. I’ve always been a people watcher. I like to go to malls and just sit, and I can’t do that very easily anymore.
+ - I don’t miss the economic insecurity, the living paycheck to paycheck.
+ - If you’re wearing a Bluetooth thing and you’ve got that thing on your belt, you are working for somebody else. You are not the guy in charge. That’s a really good social status indicator.
+
+74 quotes

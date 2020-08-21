@@ -1,0 +1,299 @@
+ - We do not draw people to Christ by loudly discrediting what they believe, by telling them how wrong they are and how right we are, but by showing them a light that is so lovely that they want with all their hearts to know the source of it.
+ - You have to write the book that wants to be written. And if the book will be too difficult for grown-ups, then you write it for children.
+ - Maybe you have to know the darkness before you can appreciate the light.
+ - We have to be braver than we think we can be, because God is constantly calling us to be more than we are.
+ - We are all strangers in a strange land, longing for home, but not quite knowing what or where home is. We glimpse it sometimes in our dreams, or as we turn a corner, and suddenly there is a strange, sweet familiarity that vanishes almost as soon as it comes.
+ - Nothing, no one, is too small to matter. What you do is going to make a difference.
+ - A straight line is not the shortest distance between two points.
+ - People become trustworthy when they are trusted.
+ - Believing takes practice.
+ - I love, therefore I am vulnerable.
+ - A book, too, can be a star, a living fire to lighten the darkness, leading out into the expanding universe.
+ - Stories make us more alive, more human, more courageous, more loving.
+ - If you don’t recount your family history, it will be lost. Honor your own stories and tell them too. The tales may not seem very important, but they are what binds families and makes each of us who we are.
+ - God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty.
+ - Le coeur a ses raisons que la raison ne connait point. French. Pascal. The heart has its reasons, whereof reason knows nothing.
+ - The best way to guide children without coercion is to be ourselves.
+ - A good laugh heals a lot of hurts.
+ - Don’t try to comprehend with your mind. Your minds are very limited. Use your intuition.
+ - When we believe in the impossible, it becomes possible, and we can do all kinds of extraordinary things.
+ - Deepest communion with God is beyond words, on the other side of silence.
+ - Inspiration usually comes during work, rather than before it.
+ - A self is not something static, tied up in a pretty parcel and handed to the child, finished and complete. A self is always becoming.
+ - Just write a little bit every day. Even if it’s for only half an hour – write, write, write.
+ - Some things have to be believed to be seen.
+ - Like it or not, we either add to the darkness of indifference and out-and-out evil which surrounds us or we light a candle to see by.
+ - Maybe that’s the best part of going away for a vacation-coming home again.
+ - Hate hurts the hater more’n the hated.
+ - If I’m not free to fail, I’m not free to take risks and everything in life that’s worth doing involves a willingness to take a risk.
+ - The minute we begin to think we have all the answers, we forget the questions.
+ - When we celebrate Christmas, we are celebrating that amazing time when the Word that shouted all the galaxies into being limited all power and, for love of us, came to us in the powerless body of a human baby.
+ - That’s the way things come clear. All of a sudden. And then you realize how obvious they’ve been all along.
+ - People are more than just the way they look.
+ - Time exists so that everything doesn’t happen at once.
+ - Because to take away a man’s freedom of choice, even his freedom to make the wrong choice, is to manipulate him as though he were a puppet and not a person.
+ - Truth is eternal. Knowledge is changeable. It is disastrous to confuse them.
+ - I don’t understand it any more than you do, but one thing I’ve learned is that you don’t have to understand things for them to be.
+ - I am still every age that I have been. Because I was once a child, I am always a child. Because I was once a searching adolescent, given to moods and ecstasies, these are still part of me, and always will be.
+ - A long-term marriage has to move beyond chemistry to compatibility, to friendship, to companionship. It is certainly not that passion disappears, but that it is conjoined with other ways of love.
+ - If you’re going to care about the fall of the sparrow you can’t pick and choose who’s going to be the sparrow. It’s everybody.
+ - It’s hard to let go anything we love. We live in a world which teaches us to clutch. But when we clutch we’re left with a fistful of ashes.
+ - The growth of love is not a straight line, but a series of hills and valleys.
+ - We can’t take any credit for our talents. It’s how we use them that counts.
+ - There is nothing so secular that it cannot be sacred, and that is one of the deepest messages of the Incarnation.
+ - Life, with its rules, its obligations, and its freedoms, is like a sonnet: You’re given the form, but you have to write the sonnet yourself. – Mrs. Whatsit.
+ - Humility is throwing oneself away in complete concentration on something or someone else.
+ - To grow up is to accept vulnerability. To be alive is to be vulnerable.
+ - Those who believe they believe in God, but without passion in the heart, without anguish of mind, without uncertainty, without doubt, and even at times without despair, believe only in the idea of God, and not in God himself.
+ - The unending paradox is that we do learn through pain.
+ - When we make ourselves vulnerable, we do open ourselves to pain, sometimes excruciating pain. The more people we love, the more we are liable to be hurt, and not only by the people we love, but for the people we love.
+ - You mean you’re comparing our lives to a sonnet? A strict form, but freedom within it? Yes. Mrs. Whatsit said. You’re given the form, but you have to write the sonnet yourself. What you say is completely up to you.
+ - It is the ability to choose which makes us human.
+ - Qui plussait, plus se tait. French, you know. The more a man knows, the less he talks.
+ - Darkness was and darkness was good. As with light. Light and Darkness dancing together, born together, born of each other, neither preceding, neither following, both fully being, in joyful rhythm.
+ - I wish that we worried more about asking the right questions instead of being so hung up on finding answers.
+ - Integrity, like humility, is a quality which vanishes the moment we are conscious of it in ourselves. We see it only in others.
+ - We look not at the things which are what you would call seen, but at the things which are not seen. For the things which are seen are temporal. But the things that are not seen are eternal.
+ - The world has been abnormal for so long that we’ve forgotten what it’s like to live in a peaceful and reasonable climate. If there is to be any peace or reason, we have to create it in our own hearts and homes.
+ - It is possible to suffer and despair an entire lifetime and still not give up the art of laughter.
+ - Wild nights are my glory!
+ - Great art transcends its culture and touches on that which is eternal.
+ - You see, though we travel together, we travel alone.
+ - I share Einstein’s affirmation that anyone who is not lost in rapturous awe at the power and glory of the mind behind the universe “is as good as a burnt out candle.”
+ - I saw Eternity the other night, Like a great ring of pure and endless light, All calm, as it was bright, And round beneath it, Time, in hours, days, years, Driven by the spheres, Like a vast shadow moved, in which the world And all her train were hurled.
+ - Remember the root word of humble and human is the same: humus: earth. We are dust. We are created; it is God who made us and not we ourselves. But we were made to be co-creators with our maker.
+ - The beginning of our happiness lies in the understanding that life without wonder is not worth living. What we lack is not a will to believe but a will to wonder.
+ - In art we are once again able to do all the things we have forgotten; we are able to walk on water; we speak to the angels who call us; we move, unfettered, among the stars.
+ - Thou cannot harm a butterfly, without troubling a star.
+ - Because it is the nature of love to create, a marriage itself is something which has to be created, so that, together we become a new creature.
+ - The great thing about getting older is that you don’t lose all the other ages you’ve been.
+ - To be a witness means to live in such a way that one’s life would not make sense if God did not exist.
+ - To pray is to listen, to move through my own chattering to God, to that place where I can be silent and listen to what God may have to say.
+ - For the things that are seen are temporal, but things that are unseen are eternal.
+ - To be born is to start the journey towards death.
+ - When we lose our myths we lose our place in the universe.
+ - A Wrinkle in Time was almost never published. You can’t name a major publisher who didn’t reject it.
+ - Art is communication.
+ - One cannot be humble and aware of oneself at the same time.
+ - It’s a good thing to have all the props pulled out from under us occasionally. It gives us some sense of what is rock under our feet, and what is sand.
+ - I would like to travel light on this journey of life, to get rid of the encumbrances I acquire each day.
+ - Art is not a mirror but an icon. It takes the chaos in which we live and shows us structure and pattern, not the structure of conformity which imprisons but the structure which liberates, sets us free to become growing, mature human beings.
+ - Detachment and involvement: the artist must have both. The link between them is compassion. It has taken me over fifty years to get a glimmer of what this means.
+ - Stories are able to help us to become more whole, to become Named. And Naming is one of the impulses behind all art; to give a name to the cosmos, we see despite all the chaos.
+ - My dear, I’m seldom sure of anything. Life at best is a precarious business, and we aren’t told that difficult or painful things won’t happen, just that it matters. It matters not just to us but to the entire universe.
+ - A new year can begin only because the old year ends.
+ - Man has a viewpoint, but God has the view.
+ - It was a dark and stormy night.
+ - And sometimes when we listen, we are led into places we do not expect, into adventures we do not always understand.
+ - A lot of the shadow self is the home of poetry, story, prayer. My deepest understandings are often released from the part of me of which I am least aware most of the time.
+ - When I am constantly running there is no time for being. When there is no time for being there is no time for listening.
+ - Inspiration more often comes during the work than before it, because the largest part of the job of an artist is to listen to the work.
+ - One of the many sad results of the Industrial Revolution was that we came to depend more than ever on the intellect, and to ignore the intuition with its symbolic thinking.
+ - Why does anybody tell a story? It does indeed have something to do with faith. Faith that the universe has meaning, that our little human lives are not irrelevant, that what we choose or say or do matters, matters cosmically.
+ - On the other side of pain, there is still love.
+ - There is in God, some say, a deep but dazzling darkness.
+ - Nothing important is completely explicable.
+ - When the work takes over, then the artist is enabled to get out of the way, not to interfere. When the work takes over, then the artist listens.
+ - Everything we do, our entire interior monologue, is prayer.
+ - If you’re too happy about anything, fate usually gives you a good sock in the jaw and knocks you down.
+ - Following Christ has nothing to do with success as the world sees success. It has to do with love.
+ - Anger is not bitterness. Bitterness can go on eating at a man’s heart and mind forever. Anger spends itself in its own time.
+ - Reading is a creative activity. You have to visualize the characters, you have to hear what the voices sound like.
+ - We do learn and develop when we are exposed to those who are greater than we are. Perhaps this is the chief way we mature.
+ - The only way to cope with something deadly serious is to try to treat it a little lightly.
+ - God is over all things, under all things; outside all; within, but not enclosed; without, but not excluded; above, but not raised up; below; but not depressed; wholly above, presiding; wholly without, embracing; wholly within, filling.
+ - I do not know everything; still many things I understand.
+ - You don’t know the meaning of moderation, do you, my darling? A happy medium is something I wonder if you’ll ever learn.
+ - Only a fool is not afraid.
+ - Faith is what makes life bearable, with all its tragedies and ambiguities and sudden, startling joys.
+ - The naked intellect is an extraordinarily inaccurate instrument.
+ - Friends – or lovers – are not always available to each other. Inner turmoils can cause us to be unhearing when someone needs us, to need to receive understanding when we should be giving understanding.
+ - Easter is always the answer to “My God, my God, why hast thou forsaken me!”
+ - If you aren’t unhappy sometimes you don’t know how to be happy.
+ - Love of music, of sunsets and sea; a liking for the same kind of people; political opinions that are not radically divergent; a similar stance as we look at the stars and think of the marvelous strangeness of the universe – these are what build a marriage. And it is never to be taken for granted.
+ - Love isn’t how you feel. It’s what you do.
+ - Speaking of ways, pet, by the way, there is such a thing as a tesseract.
+ - It seemed to travel with her, to sweep her aloft in the power of song, so that she was moving in glory among the stars, and for a moment she, too, felt that the words Darkness and Light had no meaning, and only this melody was real.
+ - Almost all the joyful things of life are outside the measure of IQ tests.
+ - I suspect that in every good marriage there are times when love seems to be over.
+ - If we commit ourselves to one person for life, this is not, as many people think, a rejection of freedom; rather, it demands the courage to move into all the risks of freedom, and the risk of love which is permanent; into that love which is not possession but participation.
+ - If we are not willing to fail we will never accomplish anything. All creative acts involve the risk of failure.
+ - I don’t know if they’re really like everybody else, or if they’re able to pretend they are.
+ - If we are to be aware of life while we are living it, we must have the courage to relinquish our hard-earned control of ourselves.
+ - Now I am setting out into the unknown. It will take me a long while to work through the grief. There are no shortcuts; it has to be gone through.
+ - If we don’t pray according to the needs of the heart, we repress our deepest longings. Our prayers may not be rational, and we may be quite aware of that, but if we repress our needs, then those unsaid prayers will fester.
+ - The degree of talent, the size of the gift, is immaterial. All artists must listen, but not all hear great symphonies, see wide canvasses, conceive complex, character-filled novels. No matter, the creative act is the same, and it is an act of faith.
+ - We think because we have words, not the other way around. The more words we have, the better able we are to think conceptually.
+ - The deeper and richer a personality is, the more full it is of paradox and contradiction. It is only a shallow character who offers us no problems of contrast.
+ - But my memories are like a fire in winter – whenever I’m cold I can warm my hands at them. – Ditta.
+ - When a promise is broken, the promise still remains. In one way or another, we are all unfaithful to each other, and physical unfaithfulness is not the worst kind there is.
+ - Experiment is the mother of knowledge.
+ - Because you’re not what I would have you be, I blind myself to who, in truth, you are.
+ - I like the fact that in ancient Chinese art the great painters always included a deliberate flaw in their work: human creation is never perfect.
+ - The virgin birth has never been a major stumbling block in my struggle with Christianity; it’s far less mind boggling than the Power of all Creation stooping so low as to become one of us.
+ - If we aren’t capable of being hurt we aren’t capable of feeling joy.
+ - Stories are like children. They grow in their own way.
+ - Euripedes. Nothing is hopeless; we must hope for everything.
+ - No long-term marriage is made easily, and there have been times when I’ve been so angry or so hurt that I thought my love would never recover.
+ - I feel as though I’m not breathing when I’m out of his presence. He’s the oxygen in my air, the sun in my universe, the staff of my life. – Jane Gardiner.
+ - My lovely shining fragile broken house is filled with flowers and founded on a rock.
+ - In the evening of life we shall be judged on love, and not one of us is going to come off very well, and were it not for my absolute faith in the loving forgiveness of my Lord I could not call on him to come.
+ - A mystic is a person who sees the facts as inadequate.
+ - Because we fail to listen to each other’s stories, we are becoming a fragmented human race.
+ - Refusing to accept God’s love because we’re unworthy – of course we’re unworthy! – is another golden calf.
+ - But unless we are creators, we are not fully alive.
+ - I believe that good questions are more important than answers, and the best children’s books ask questions, and make the readers ask questions. And every new question is going to disturb someone’s universe.
+ - We tend to defend vigorously things that in our deepest hearts we are not quite certain about. If we are certain of something we know, it doesn’t need defending.
+ - I have a point of view. You have a point of view. God has view.
+ - I hope that I will never forget the salvific power of joyful laughter.
+ - We need the rock of the past under our feet in order to spring forward into the future.
+ - Infinity is present in each part. A loving smile contains all art. The motes of starlight spark and dart. A grain of sand holds power and might.
+ - Love. That was what she had that IT did not have.
+ - If it’s bad art, it’s bad religion, no matter how pious the subject.
+ - Death is contagious; it is contracted the moment we are conceived.
+ - An infinite question is often destroyed by finite answers. To define everything is to annihilate much that gives us laughter and joy.
+ - Just because we don’t understand doesn’t mean that the explanation doesn’t exist.
+ - It strikes me as somewhat odd that the people who use God’s name most frequently, both in life and in literature, usually don’t believe in him.
+ - Like and equal are not the same thing at all. – Meg Murray.
+ - To marry is the biggest risk in human relations that a person can take.
+ - Art should communicate with as many people as possible.
+ - That’s something I’ve noticed about food: whenever there’s a crisis if you can get people to eating normally things get better.
+ - Oh child, your language is so utterly simple and limited that it has the affect of extreme complication. -Aunt Beast.
+ - There are times when I feel that he has withdrawn from me, and I have often given him cause, but Easter is always the answer to My God, my God, why hast thou forsaken me!
+ - The concentration of a small child at play is analogous to the concentration of the artist of any discipline. In real play, which is real concentration, the child is not only outside time, he is outside himself.
+ - I think that all artists, regardless of degree of talent, are a painful, paradoxical combination of certainty and uncertainty, of arrogance and humility, constantly in need of reassurance, and yet with a stubborn streak of faith in their own validity no matter what.
+ - Artists of all disciplines must be willing to go into the dark, let go control, be surprised.
+ - Silence fell between them, as tangible as the dark tree shadows that fell across their laps and that now seemed to rest upon them as heavily as though they possessed a measurable weight of their own.
+ - And joy is always a promise.
+ - You’ve got to accept the fact that you are basically not teaching a subject, you are teaching children.
+ - It takes too much energy to be against something unless it’s really important.
+ - Have you ever tried to get to your feet with a sprained dignity?
+ - I am not some kind of computer. Only machines have glib answers for everything.
+ - When a bride insists on telling her lover everything, I suspect she is looking for a father, not a husband.
+ - There’s nothing more physically exhausting than a sense of failure.
+ - God understands that part of us which is more than what we think we are.
+ - Severe illness isolates those in close contact with it, because it inevitably narrows the focus of concern. To a certain extent this can lead to healing, but not if the circle of concern is so tight that it cannot be broken into, or out of.
+ - The discipline of creation, be it to paint, compose, write, is an effort towards wholeness.
+ - Be aware that rigidity imprisons.
+ - If our language is watered down, then mankind becomes less human, and less free...
+ - Like and equal are two entirely different things.
+ - Creative scientists and saints expect revelation and do not fear it. Neither do children. But as we grow up and we are hurt, we learned not to trust.
+ - You’re going to get hurt yourself, and badly, if you take everything so hard.
+ - We turn to stories and pictures and music because they show us who and what and why we are.
+ - All real art is, in its true sense, religious; it is a religious impulse; there is no such thing as a non-religious subject. But much bad or downright sacrilegious art depicts so-called religious subjects.
+ - A life lived in chaos is an impossibility.
+ - I looked at this tiny, perfect creature and it was as though a light switch had been turned on. A great rush of love flooded out of me.
+ - It was the same way with silence. This was more than silence. A deaf person can feel vibrations. Here there was nothing to feel.
+ - Schooling, instead of encouraging the asking of questions, too often discourages it.
+ - If our love for each other really is participatory, then all other human relationships nourish it; it is inclusive, never exclusive.
+ - Unlearning is the choice, conscious or unconscious, of any real artist. And it is the true sign of maturity.
+ - Conversion for me was not a Damascus Road experience. I slowly moved into an intellectual acceptance of what my intuition had always known.
+ - All will be redeemed in God’s fullness of time, all, not just the small portion of the population who have been given the grace to know and accept Christ. All the strayed and stolen sheep. All the little lost ones.
+ - Love isn’t how you feel. It’s what you do. I’ve never had a feeling in my life. As a matter of fact, I matter only with earth people.
+ - She seems to have had the ability to stand firmly on the rock of her past while living completely and unregretfully in the present.
+ - We do not love each other without changing each other.
+ - You don’t want him for a reason. You want him because he’s your father.
+ - When the bright angel dominates, out comes a great work of art, a Michelangelo David or a Beethoven symphony.
+ - Love can’t be pinned down by a definition, and it certainly can’t be proved, any more than anything else important in life can be proved.
+ - Accepting that we are angry is a healthy and appropriate response as long as we don’t get stuck in it. Acknowledging it is one way of going through it.
+ - Part of doing something is listening. We are listening. To the sun. To the stars. To the wind.
+ - A truly great work of art breaks beyond the bounds of the period and culture in which it is created, so final judgement on a current book has to be deferred until it can be seen outside this present moment.
+ - Our truest response to the irrationality of the world is to paint or sing or write, for only in such response do we find truth.
+ - We have much to be judged on when he comes, slums and battlefields and insane asylums, but these are the symptoms of our illness and the result of our failures in love.
+ - Their love was a bright flower, youthful and radiantly beautiful.
+ - Only Christ can free us from the prison of legalism, and then only if we are willing to be freed.
+ - With our human limitations we’re not always able to understand the explanations.
+ - Poetry, at least the kind I write, is written out of immediate need; it is written out of pain, joy, and experience too great to be borne until it is ordered into words. And then it is written to be shared.
+ - There is little character or loveliness in the face of someone who has shunned risk, avoided suffering and rejected life.
+ - We find what we are looking for. If we are looking for life and love and openness and growth, we are likely to find them. If we are looking for witchcraft and evil, we’ll likely find them, and we may get taken over by them.
+ - All forms of art are consciousness expanders, and I am convinced that they will take us further, and more consciously, than drugs.
+ - We tend to think things are new because we’ve just discovered them.
+ - I cannot believe that God wants punishment to go on interminably any more than does a loving parent. The entire purpose of loving punishment is to teach, and it lasts only as long as is needed for the lesson. And the lesson is always love.
+ - Artistic temperament sometimes seems a battleground, a dark angel of destruction and a bright angel of creativity wrestling.
+ - Sometimes idiosyncrasies which used to be irritating become endearing, part of the complexity of a partner who has become woven deep into our own selves.
+ - There was no light. The darkness was deep and there was no dazzle.
+ - Sometimes when we aren’t looking, the holiness comes breaking through like a rainbow.
+ - In my dreams, I never have an age.
+ - And there’s no getting around the fact that all life lives at the expense of another life.
+ - I believe that consistently we need to look for good, and not for evil, that when we look for evil we call up evil, while heaven comes closer when we acknowledge it.
+ - Picasso says that an artists paints not to ask a question but because he has found something and he wants to share – he cannot help it – what he has found.
+ - I rebel against death, yet I know that it is how I respond to death’s inevitability that is going to make me less or more fully alive.
+ - What can we give a child when there is nothing left? All we have, I think, is the truth, the truth that will set him free, not limited, provable truth, but the open, growing, evolving truth that is not afraid.
+ - The medieval mystics say the true image and the true real met once and for all on the cross: once and for all: and yet they still meet daily.
+ - To create a work of art, great or small, is work, hard work, and work requires discipline and order.
+ - If she could give love to IT perhaps it would shrivel up and die, for she was sure that IT could not withstand love.
+ - Wherever she was, holy laughter was present to heal and redeem.
+ - Yes! I dare disturb the universe.
+ - I knew that the moment I started worrying about whether or not I was good enough for the job, I wouldn’t be able to do it.
+ - God promised to make you free. He never promised to make you independent.
+ - Great art always transcends its culture, while lesser art merely reflects it.
+ - To refuse to respond is in itself a response.
+ - We are suspicious of grace. We are afraid of the very lavishness of the gift.
+ - It was not an end, it was a beginging.
+ - I love my mother, not as a prisoner of atherosclerosis, but as a person; and I must love her enough to accept her as she is, now, for as long as this dwindling may take.
+ - All children are artists, and it is an indictment of our culture that so many of them lose their creativity, their unfettered imaginations, as they grow older.
+ - You learn to write by doing it.
+ - Don’t keep putting your anger off. Until you go through it, you can’t get out of it.
+ - But where, after we have made the great decision to leave the security of childhood and move on into the vastness of maturity, does anybody ever feel completely at home?
+ - Women must be very gentle with men as they, as well as women, seek to regain the lost wholeness for which they were destined.
+ - When we are self-conscious, we cannot be wholly aware; we must throw ourselves out first. This throwing ourselves away is the act of creativity.
+ - An artist is someone who cannot rest, who can never rest as long as there is one suffering creature in the world.
+ - When I am grappling with ideas which are radical enough to upset grown-ups, then I am likely to put these ideas into a story which will be marketed for children, because children understand what their parents have rejected and forgotten.
+ - It does not matter that we cannot fathom this mystery. The only real problem comes when we think that we have.
+ - Meg, when people don’t know who they are, they are open either to being Xed, or Named.
+ - With each book I write, I become more and more convinced that the books have a life of their own, quite apart from me.
+ - Love is the one surprise.
+ - Stories have a richness that goes way beyond fact. My writing knows more than I know. What a writer must do is listen to her book. It might take you where you don’t expect to go.
+ - This wasn’t the first time that I’d come close to death, but it was the first time I’d been involved in this part of it, this strange, terrible saying goodbye to someone you’ve loved.
+ - Inspiration does not always precede the act of writing; it often follows it.
+ - A book comes and says, ‘Write me.’ My job is to try to serve it to the best of my ability, which is never good enough, but all I can do is listen to it, do what it tells me and collaborate.
+ - As human beings, the closest we can get to truth is through story.
+ - Goodness has never been a guarantee of safety.
+ - Like all great fantasists, he has taught me about life, life in eternity rather than chronology, life in that time in which we are real.
+ - Dare I? Of course I don’t. But I’m going to anyhow because I have no choice.
+ - I can’t think of one great human being in the arts, or in history generally, who conformed, who succeeded, as education experts tell us children must succeed, with his peer group.
+ - We cannot always cry at the right time and who is to say which time is right?
+ - It is not always on the great or the important that the balance of the universe depends.
+ - In reading we must become creators.
+ - Truth is what is true, and it’s not necessarily factual. Truth and fact are not the same thing. Truth does not contradict or deny facts, but it goes through and beyond facts. This is something that it is very difficult for some people to understand. Truth can be dangerous.
+ - Give the public the ‘image’ of what it thinks it ought to be, or what television commercials or glossy magazine ads have convinced us we ought to be, and we will buy more of the product, become closer to the image, and further from reality.
+ - She began to feel the sense of wonderful elation that always came to her when beauty took hold of her and made her forget her fears.
+ - When we can play with the unself-conscious concentration of a child, this is: art: prayer: love.
+ - I believe that each work of art, whether it is a work of great genius, or something very small, comes to the artist and says, “Here I am. Enflesh me. Give birth to me.”
+ - If you want to write, you need to keep an honest, unpublishable journal that nobody reads, nobody but you.
+ - We know you have a great mind and all, Mother, but you don’t have much sense.
+ - The shadows are deepening all around us. Now is the time when we must begin to see our world and ourselves in a different way.
+ - Sometimes when we have to speak suddenly we come closer to the truth than when we have time to think.
+ - If I sit for a while, then my impatience, crossness, frustration, are indeed annihilated, and my sense of humor returns.
+ - What is self-image? Who started talking about one? I rather fancy it was Madison Avenue.
+ - As far as I’m concerned, there is only one absolute: God is love.
+ - Are anybody’s parents typical?
+ - That’s a sure way to tell about somebody – the way they play, or don’t play, make-believe.
+ - Compassion is nothing one feels with the intellect alone. Compassion is particular; it is never general.
+ - Because I am a storyteller I live by words. Perhaps music is a purer art form. It may be that when we communicate with life on another planet, it will be through music, not through language or words.
+ - I wrote because I wanted to know what everything was about.
+ - If I didn’t get fond I could be happy all the time.
+ - It’s not my brain that’s writing the book, it’s these hands of mine.
+ - We human beings grow through our failures, not our virtues.
+ - A community to be truly community, must have a quality of unselfconsciousness about it.
+ - Basically there can be no categories such as ‘religious’ art and ‘secular’ art, because all true art is incarnational, and therefore ’religious.
+ - We do not know and cannot tell when the spirit is with us. Great talent or small, it makes no difference. We are caught within our own skins, our own sensibilities; we never know if our technique has been adequate to the vision.
+ - To grow up is to find the small part you are playing in the extraordinary drama written by somebody else.
+ - I do not believe that true optimism can come about except through tragedy.
+ - My protagonists, male and female, are me.
+ - You cannot see the past that did not happen any more than you can foresee the future.
+ - To write for children at all is an act of faith.
+ - I know writers who write only when inspiration comes. How would Isaac Stern play if he played the violin only when he felt like it? He would be lousy.
+ - A great painting or symphony or play, doesn’t diminish us, but enlarges us, and we, too, want to make our own cry of affirmation to the power of Creation behind the Universe...
+ - We do have to use our minds as far as they will take us, yet acknowledging that they cannot take us all the way.
+ - Man is; it matters to him; this is terrifying unless it matters to God, too, because this is the only possible reason we can matter to ourselves...
+ - We do not have to understand in order to believe that behind the mystery and the fascination there is love.
+ - No matter how true I believe what I am writing to be, if the reader cannot also participate in that truth, then I have failed.
+ - Anything that’s natural can’t be sinful-it may be inconvenient, but it’s not sinful.
+ - A great piece of literature does not try to coerce you to believe it or agree with it. A great piece of literature simply is. It is a vehicle of truth, but it is not a blueprint, and we tend to confuse the two.
+ - What can we give a child when there is nothing left?
+ - There is nothing we need be afraid to say before the Lord.
+ - The novelist helps us to see things we might not notice otherwise.
+ - We do live, all of us, on many different levels, and for most artists the world of imagination is more real than the world of the kitchen sink.
+
+297 quotes

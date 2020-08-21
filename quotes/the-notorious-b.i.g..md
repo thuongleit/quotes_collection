@@ -1,0 +1,46 @@
+ - Stay far from timid only make moves when you’re heart’s in it, and live the phrase the sky’s the limit.
+ - Never let them know your next move.
+ - We can’t change the world until we change ourselves.
+ - Spread love, it’s the Brooklyn way.
+ - Climb the ladder to success escalator style.
+ - If the game shakes me or breaks me, I hope it makes me a better man.
+ - Excellence is my presence. Never tense, never hesitant.
+ - You’re nobody ’til somebody kills you.
+ - I’m living everyday like a hustle. Another drug to juggle. Another day, another struggle.
+ - Never get high on your own supply.
+ - Forgive me for my disrespect, forgive me for my lies.
+ - Super Nintendo, Sega Genesis. When I was dead broke, man, I couldn’t picture this.
+ - Move over Lucifer, I’m more ruthless, leave you toothless.
+ - Get ready to die, tell God I say hi.
+ - And everything you get, ya gotta work hard for it.
+ - Even when I was wrong, I got my point across.
+ - Relax and take notes while I take tokes of the marijuana smoke.
+ - If you don’t love yourself, I’ll make you see your own heart.
+ - While your guns raisin’, mine is blazin’.
+ - To all the teachers that told me I’d never amount to nothing.
+ - We be tight like frogs ass.
+ - First comes the cash, then comes the ass, then come big blunts with chunks of hash.
+ - Mariah Carey is kinda scary.
+ - When I release, you loose teeth.
+ - Please, all you MCs out there, all you fans out there, don’t think Big gonna make a record dissing 2Pac or the West Coast because it’s not going down like that. I cant even see me wasting my time or my talent to disrespect another black man.
+ - I never wish death on nobody, cause there ain’t coming back from that.
+ - Stop, look, listen. I spit on your grave, then I grab my Charles Dickens.
+ - Never trust nobody, your moms will set your ass up.
+ - The lesson from the smith and wesson is depressin’.
+ - Revenge be the dish I serve to cats cold.
+ - Never let no one know how much dough you hold.
+ - I can’t never stop nobody, can’t knock nobody hustle.
+ - Old school new school need to learn though I burn baby, burn like Disco Inferno Burn slow like blunts with ya-yo Peel more skins than Idaho potato.
+ - The second time I went to jail, I was like, ‘okay, this is not the move.’
+ - She used my toothbrush to clean the toilet.
+ - As soon as she hit the door we start blastin’, I saw her brains hit the floor, raw laughin’.
+ - I’m a thug, but I swear for three days I cried.
+ - Sticks and stones may break bones, but the Gat will kill you quicker.
+ - The green tempts me to make the rich the enemy, and take their cheese.
+ - With big folks, either people think you look mean or it’s more of a jolly Santa Claus, ‘Oh, he’s just a pudgy little teddy bear pillow.’
+ - I’m making music for the people. If y’all love the music, y’all gonna buy the music.
+ - Growing up in the streets of Bed-Stuy, it was hard, yo.
+ - My real life helped me sell a lot of records.
+ - Play the charts like the Beatles.
+
+44 quotes

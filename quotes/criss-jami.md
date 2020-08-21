@@ -1,0 +1,369 @@
+ - To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength.
+ - Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane.
+ - The biggest challenge after success is shutting up about it.
+ - Closed in a room, my imagination becomes the universe, and the rest of the world is missing out.
+ - Listen to God with a broken heart. He is not only the doctor who mends it, but also the father who wipes away the tears.
+ - The role of genius is not to complicate the simple, but to simplify the complicated.
+ - Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on.
+ - If you’re waiting until you feel talented enough to make it, you’ll never make it.
+ - Popular culture is a place where pity is called compassion, flattery is called love, propaganda is called knowledge, tension is called peace, gossip is called news, and auto-tune is called singing.
+ - Just because something isn’t a lie does not mean that it isn’t deceptive. A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction.
+ - Don’t change your mind just because people are offended; change your mind if you’re wrong.
+ - A lonely day is God’s way of saying that he wants to spend some quality time with you.
+ - It’s not at all hard to understand a person; it’s only hard to listen without bias.
+ - Telling an introvert to go to a party is like telling a saint to go to Hell.
+ - Never hide things from hardcore thinkers. They get more aggravated, more provoked by confusion than the most painful truths.
+ - To seek greatness is the only righteous vengeance.
+ - After awhile you realize that putting your actions where your mouth is makes you less likely to have to put your money where your mouth is.
+ - I don’t pretend to know everything; I just only speak on matters I know I’ll win.
+ - The only thing more frustrating than slanderers is those foolish enough to listen to them.
+ - If you want to find the real competition, just look in the mirror. After awhile you’ll see your rivals scrambling for second place.
+ - The harder you fall, the heavier your heart; the heavier your heart, the stronger you climb; the stronger you climb, the higher your pedestal.
+ - Good intentions but bad results; bad results but lessons learned. There is a dark corner on every task beautiful and a beautiful corner on every task dark.
+ - To say that one waits a lifetime for his soulmate to come around is a paradox. People eventually get sick of waiting, take a chance on someone, and by the art of commitment become soulmates, which takes a lifetime to perfect.
+ - Confidence is like a dragon where, for every head cut off, two more heads grow back.
+ - Friends ask you questions; enemies question you.
+ - With too much pride a man cannot learn a thing. In and of itself, learning teaches you how foolish you are.
+ - In an extroverted society, the difference between an introvert and an extrovert is that an introvert is often unconsciously deemed guilty until proven innocent.
+ - If one should criticize one should always have a meaningful explanation to accompany.
+ - Never rebel for the sake of rebelling, but always rebel for the sake of truth.
+ - What is a genius? A person who demands little to nothing from others, but is often found extremely difficult to have around.
+ - The artist lives to have stories to tell and to learn to tell them well.
+ - An encouraged person will eventually get his drive from encouragement; he becomes more dependent. A person that never really receives encouragement learns to move out of spite; he becomes more independent.
+ - If you use a philosophy education well, you can get your foot in the door of any industry you please. Industries are like the blossoms on a tree while philosophy is the trunk – it holds the tree together, but it often goes unnoticed.
+ - When a poet digs himself into a hole, he doesn’t climb out. He digs deeper, enjoys the scenery, and comes out the other side enlightened.
+ - When I look at a person, I see a person – not a rank, not a class, not a title.
+ - Great minds think alike because a greater Mind is thinking through them.
+ - When you’re the only sane person, you look like the only insane person.
+ - Being nice merely to be liked in return nullifies the point.
+ - To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others.
+ - The humble ones are always learning and improving, and their secret is always that it’s a secret...
+ - If love is blind, then maybe a blind person that loves has a greater understanding of it.
+ - Confidence turns into pride only when you are in denial of your mistakes.
+ - Intelligence entails a strong mind, but genius entails a heart of a lion in tune with a strong mind.
+ - Like crying wolf, if you keep looking for sympathy as a justification for your actions, you will someday be left standing alone when you really need help.
+ - Simply minding one’s own business is more offensive than being intrusive. Without ever saying a word one can make a person feel less-than.
+ - At first, they’ll only dislike what you say, but the more correct you start sounding the more they’ll dislike you.
+ - I will never deny that life isn’t fair. It seems as though when a woman leaves a man she is strong and independent, but when a man leaves a woman he is a pig and a jerk.
+ - There’s sometimes a tugging feeling you get to push further when you aren’t being challenged enough or when things get too comfortable.
+ - Advanced technology does not always promise a more intelligent civilization. On the contrary, the more the common people rely on technology to do their thinking and solving for them, the less practice there is left for their own brains.
+ - I’m convinced that most men don’t know what they believe, rather, they only know what they wish to believe. How many people blame God for man’s atrocities, but wouldn’t dream of imprisoning a mother for her son’s crime?
+ - Good works is giving to the poor and the helpless, but divine works is showing them their worth to the One who matters.
+ - A wise man’s goal shouldn’t be to say something profound, but to say something useful.
+ - The first ingredient to being wrong is to claim that you are right.
+ - Beware: open-mindedness will often say, ‘Everything is permissible except a sharp opinion.’
+ - The devil’s happy when the critics run you off.
+ - An over-indulgence of anything, even something as pure as water, can intoxicate.
+ - Sometimes a people lose their right to remain silent when pressured to remain silent.
+ - If you build the guts to do something, anything, then you better save enough to face the consequences.
+ - There’s nothing more contagious than the laughter of young children; it doesn’t even have to matter what they’re laughing about.
+ - If ever you feel like an animal among men be a lion.
+ - A solid answer to everything is not necessary. Blurry concepts influence one to focus, but postulated clarity influences arrogance.
+ - I would rather a romantic relationship turn into contempt than turn into apathy. The passion in the extremities make it appear as though it once meant something. We grow from hot or cold, but lukewarm is the biggest insult.
+ - You are evidence of your mother’s strength, especially if you are a rebellious knucklehead and regardless she has always maintained her sanity.
+ - Every job from the heart is, ultimately, of equal value. The nurse injects the syringe; the writer slides the pen; the farmer plows the dirt; the comedian draws the laughter. Monetary income is the perfect deceiver of a man’s true worth.
+ - Whenever I think of something but can’t think of what it was I was thinking of, I can’t stop thinking until I think I’m thinking of it again. I think I think too much.
+ - Any fool can do something cool and look cool, but it takes skill to make something uncool cool again.
+ - To love without need or without expectation of restitution, that is how we ought to love.
+ - Man is not, by nature, deserving of all that he wants. When we think that we are automatically entitled to something, that is when we start walking all over others to get it.
+ - Feel what it’s like to truly starve, and I guarantee that you’ll forever think twice before wasting food.
+ - When you have wit of your own, it’s a pleasure to credit other people for theirs.
+ - The reality of loving God is loving him like he’s a Superhero who actually saved you from stuff rather than a Santa Claus who merely gave you some stuff.
+ - It is easier for one to take risks and to chase his dreams with a mindset that he has nothing to lose. In this lies the immense passion, the great advantage of avoiding a materialistic, pleasure-filled way of life.
+ - Love tames the benumbed beast. A man is put to use regarding a woman’s physical safety, but a woman is put to use regarding a man’s mental safety.
+ - You can receive all the compliments in the world, but that won’t do a thing unless you believe it yourself.
+ - Genius – the pursuit of madness.
+ - A pure heart does not demean the spirit of an individual, it, instead, compels the individual to examine his spirit.
+ - The man who is most aggressive in teaching tolerance is the most intolerant of all: he wants a world full of people too timid and ashamed to really disagree with anything.
+ - What may intimidate a man is a woman who thinks with her mind before she feels with her heart. Nevertheless what determines the strength in the man is his ability to accept one when he sees one.
+ - If a man cannot understand the beauty of life, it is probably because life never understood the beauty in him.
+ - A man who loves others based solely on how they make him feel, or what they do for him, is really not loving others at all – but loving only himself.
+ - Drunken men give some of the best pep talks.
+ - Many of us fight for and boast our freedom of what is ultimately the ability to prove ourselves to other people. It is unfortunate that only a few of us are so free in our joy, we no longer feel the need to prove ourselves to anyone.
+ - Thunderstorms are as much our friends as the sunshine.
+ - Generally, there is a lot of truth value in stepping back, observing, then logically generalizing the extremes of what you see.
+ - My confidence is in the idea that I may be wrong on this or that. No man in this life should ever have to bear the burden of perfection.
+ - Doubt is a question mark; faith is an exclamation point. The most compelling, believable, realistic stories have included them both.
+ - I think there is a song out there to describe just about any situation.
+ - In the fashion industry, everything goes retro except the prices.
+ - There’s more to logic than identifying logical fallacies.
+ - Companionship is a foreign concept to some people. They fear it as much as the majority of people fear loneliness.
+ - Let what offends God offend me, and what God pardons, I pardon.
+ - The motive behind criticism often determines its validity. Those who care criticize where necessary. Those who envy criticize the moment they think that they have found a weak spot.
+ - The thing about stereotyping is it’s usually just throwing rocks into a crowd hoping to hit somebody who deserves it.
+ - What man is really anti-progressive? For he is only anti-certain-people’s-visions-for-the-future.
+ - In the philosophical dialect, a cynic takes an insult as a compliment since opposition is already his style.
+ - I never feel unsafe except for when the majority is on my side.
+ - To spend your time wanting things is to smother your time for achieving things beyond your expectations.
+ - One of the greatest gifts from God is the eternal perspective. It is a level of fearlessness, a level of understanding where one can experience even emotional harmony with God.
+ - In God’s eyes, a man who teaches one truth and nothing else is more righteous than a man who teaches a million truths and one lie.
+ - You have to lift a person up before you can really put them in their place.
+ - The spirit of arrogance most definitely makes you shine. It paints a bright red target on your own forehead.
+ - In the land where excellence is commended, not envied, where weakness is aided, not mocked, there is no question as to how its inhabitants are all superhuman.
+ - I think that I am too warm to negatively judge individuals, yet I am cold enough to negatively judge humanity.
+ - Some concepts are so incredibly risky they take an honest fool to try to articulate them.
+ - Gloating is a superficial glowing, floating is an idle flowing, and bloatedness is the paralysis of blowing up; because silent movement results in loud victories.
+ - Everyone has a natural slant towards seeking themselves. This gets in the way of seeking God unless God intervenes.
+ - Seeing the glass as half empty is more positive than seeing it as half full. Through such a lens the only choice is to pour more. That is righteous pessimism.
+ - God tests, but he does not tempt.
+ - Discernment is the son of good judgment and the father of self-control. When mixed with an already clear conscience, the ability to read the true motives of a critic keeps one’s conscience both clear and at ease.
+ - If ever it’s necessary to ride the bandwagon, it’s done with one leg swinging out and eyes scoping the fields.
+ - Trustful people are the pure at heart, as they are moved by the zeal of their own trustworthiness.
+ - The most judgmental people are often those who complain most about being judged. The ones not complaining will look as though they’re the ones doing the judging.
+ - Everyone has their own ways of expression. I believe we all have a lot to say, but finding ways to say it is more than half the battle.
+ - As long as I am breathing, in my eyes, I am just beginning.
+ - I’m often painted as the bad guy, and the artistic part of me wants to hand out the brush.
+ - Old words are reborn with new faces.
+ - The unteachable man is sentenced to being taught only by experience. The tragedy is he reaches nothing further than his own pain.
+ - I’d rather strive for the kind of interview where instead of me asking to introduce myself to society, society asks me to introduce myself to society.
+ - Absurdity is the ecstasy of intellectualism.
+ - A fear of weakness only strengthens weakness.
+ - Creativity is the highest form of intelligence. Over time, after developing a more advanced creative brain, I started feeling that my college education was more so something to be ashamed of rather than something to be proud of.
+ - When good people consider you the bad guy, you develop a heart to help the bad ones. You actually understand them.
+ - Creative people are often found either disagreeable or intimidating by mediocrities.
+ - You think you’re losing your mind, but do keep in mind, as long as you may, that the ability to go on thinking such a thing means it’s not all gone.
+ - It’s easy to make a mess when you’re not the one who has to clean it up.
+ - There’s no need to curse God if you’re an ugly duckling. He chooses those strong enough to endure it so that they can guide others who’ve felt the same.
+ - It has always seemed that a fear of judgment is the mark of guilt and the burden of insecurity.
+ - The hard part about one being tough yet meek is the illusion of being a punching bag.
+ - Self-righteousness is much like a spiritual egocentricity. It constitutes a secular type of love that thrives under conditionality, one in which is only existent after an individual meets the adopted standards of the condemner; oppositely, unconditional love is a holy love.
+ - Simplicity is a bliss that makes one comprehend.
+ - Armed neutrality makes it much easier to detect hypocrisy.
+ - It is never just disagreement but always intellectual dishonesty that is the apologist’s worst enemy. And its apprentice is ignorance.
+ - Vivid simplicity is the articulation, the nature of genius. Wisdom is greater than intelligence; intelligence is greater than philosobabble.
+ - There are two circumstances that lead to arrogance: one is when you’re wrong and you can’t face it; the other is when you’re right and nobody else can face it.
+ - The only thing more dangerous than ignorance is the pretense of intelligent ignorance. The former is teachable; the latter is not.
+ - Wise men are not pacifists; they are merely less likely to jump up and retaliate against their antagonizers. They know that needless antagonizers are virtually already insecure enough.
+ - Love is as simple as the absence of self- given to another. God, when invited, fills the void of any unrequited love; hence loving is how one is drawn closer to God no matter its most horrific repercussions.
+ - In societies where coolness and being cool is a top priority, the religious replace the word ‘religious’ with ‘spiritual’ to make their faiths seem less extreme.
+ - The 2 extremes, neither one worse than the other: the result of bad religion is self-loathing and violence; the result of bad spirituality is self-worship and narcissism.
+ - It’s simple, it’s not that simple; or life is simple, but the things in it are not. When a man does not understand it, he tends to inflate it. When he does, he tends to deflate it. In the end, neither images are fully accurate.
+ - Society tells me to follow my own truth, but I don’t let society tell me what to do. If you need someone to tell you that, chances are you’re part of the crowd that will move on to the next fashion that comes around.
+ - The humble sinner will sometimes be interpreted as one of the filthiest in the eyes of man yet immersed in the eyes of God, and this is due to the volition of honesty regarding his own corruption.
+ - If you have to say or do something controversial, aim so that people will hate that they love it and not love that they hate it.
+ - The hated man is the result of his hater’s pride rather than his hater’s conscience.
+ - Easily mistaken, it is not about a love for adversity, it is about knowing a strength and a faith so great that adversity, in all its adverse manifestations, hardly even exists.
+ - A rebel adult often seems like a glorious savior, whereas a rebel child often seems like a little devil.
+ - Find a purpose to serve, not a lifestyle to live.
+ - The older you get, the more you understand how your conscience works. The biggest and only critic lives in your perception of people’s perception of you rather than people’s perception of you.
+ - When a man is penalized for honesty he learns to lie.
+ - Those who speak of progression but are afraid of change are self-repressed and therefore unable to reach any further than their eyes can already see.
+ - Let’s not grow with our roots in the ground.
+ - Tension, in the long run, is a more dangerous force than any feud known to man.
+ - The love of conflict is most evident when opposing forces join sides to defeat the peacemaker.
+ - I like solitude. It is when you truly hear and speak your natural, unadulterated mind, and out comes your most stupid self as well as your most intelligent self. It is when you realize who you are and the extents of the good and the evils which you are capable of.
+ - Most men either compromise or drop their greatest talents and start running after, what they perceive to be, a more reasonable success, and somewhere in between they end up with a discontented settlement. Safety is indeed stability, but it is not progression.
+ - The writer’s curse is that even in solitude, no matter its duration, he never grows lonely or bored.
+ - Cleverness isn’t always true nor is the truth always clever.
+ - A lack of common sense usually ends in some heroic feat, much like the soldier who dives onto the grenade so that others may live.
+ - With a hint of good judgment, to fear nothing, not failure or suffering or even death, indicates that you value life the most. You live to the extreme; you push limits; you spend your time building legacies. Those do not die.
+ - The trouble with poetry is it’s often written to the sound of a drum only the poet may hear; nonetheless, blessed are those poets who always manage to find unshakeable pleasure in their own works.
+ - Christ delves far beyond the means of superficiality, not simply because of his immaculate love, but also because he considers the distinct cases of each individual rather than withholding a broadened perception by use of stereotypes.
+ - God loves atheists. The former ones make the most compelling theists because they’re so empirically familiar with how atheists think.
+ - The best people are always the worst. They drive everyone mad by being so good at second-guessing everything bad.
+ - I think a lot of psychopaths are just geniuses who drove so fast that they lost control.
+ - Anger’s like a battery that leaks acid right out of me And it starts from the heart til it reaches my outer me.
+ - Everyone has a sense of humor. If you don’t laugh at jokes, you probably laugh at opinions.
+ - I only seem negative to the fortunate. That’s because I show the less fortunate that they aren’t less fortunate after all.
+ - Never take advice about never taking advice. That is an old vice of men – to dish it out without being able to take it – the blind leading the blind into more blindness.
+ - A sign of power in a man is not only when people follow what he suggests, but also when people make a conscious effort to do the exact opposite of what he suggests.
+ - With a philosophy education, one can infuriate his peers, intimidate his date, think of obscure, unreliable ways to make money, and never regret a thing.
+ - The sea in all its vastness is its own, real world. Man is nature’s sci-fi.
+ - Seemingly minor yet persistent things penetrate the mind over time making it difficult to ever realize the impact; hence, though quite unfortunate, the most dangerous forms of corruption are those that are subtle and below the radar.
+ - I’m not offended until you think I’m offended.
+ - When there’s music in your soul, there’s soul in your music.
+ - I do not care about happiness simply because I believe that joy is something worth fighting for.
+ - We often hear about stepping outside ourselves, but rarely about stepping outside our generation.
+ - The real test of love is loving those who we feel are the hardest ones to love.
+ - An insincere critic of a sincere person never wins.
+ - Psychobabble attempts to redefine the entire English language just to make a correct statement incorrect. Psychology is the study of why someone would try to do this.
+ - God’s relationship with man does not work in a way in which man stumbles and then God has to drop what he is doing in order to lift him up; rather, man stumbles so that God can lift him up. Hence it is utterly impossible to truly diminish his glory.
+ - There is a master way with words that cannot be learned but instead developed: a deaf man develops exceptional vision, a blind man exceptional hearing, a silent man, when given a piece of paper...
+ - An artistic perspective will jab at you from a different angle; its logic comes like a pitcher with a curveball.
+ - Sometimes it takes a lowly, title-less man to humble the world. Kings, rulers, CEOs, judges, doctors, pastors, they are already expected to be greater and wiser.
+ - Let our information and social technologies raise awareness and not propaganda, build connections and not passive-aggression.
+ - Frequent risk-takers have had their fair shares of failures and successes, hence, being confident in reaching their goals, they will usually seem insensitive to whether or not they look foolish or cool to other people.
+ - If you’re capable of despising your own behavior, you might just love yourself.
+ - Pride and power fall when the person falls, but discoveries of truth form legacies that can be built upon for generations.
+ - We men are fascinated by the things we don’t really understand. It gives us something to think and talk about: like females, they drive us nuts.
+ - I enjoy poetry where I can talk as bizarre as I please, but theology or philosophy, I always respect the truth by taking it a step further.
+ - It is better to doubt that a concept is stupidly flying under your head than profoundly flying over your head.
+ - Songwriting and poetry are so commonly birthed from underdogs because one can make even the ugliest situations admirable, or more beautiful than the beautiful situations – they are the most graceful media in which the lines of society are distorted.
+ - Women show men beauty in things beyond their ambitions. Women tell men to stop and smell the roses.
+ - If it’s true what is said, that only the wise discover the wise, then it must also be true that the lone wolf symbolizes either the biggest fool on the planet or the biggest Einstein on the planet.
+ - People don’t care about being duped as long as they’re happy, which is the shortest form of happiness; hence ‘self-duprication’ becomes a habit.
+ - Normality is the new eccentric.
+ - Treat people like people. Beware of pity and patronization because in them, you can’t see when you’re unashamedly looking down on someone.
+ - For the believer, humility is honesty about one’s greatest flaws to a degree in which he fearless about truly appearing less righteous than another.
+ - I believe in evolution in the sense that a short-tempered man is the successor of a crybaby.
+ - Everyone judges constantly: positively judging one person is the same as negatively judging everyone else; it is to say that that person is superior in some sense.
+ - The love of Christ is always there and unchanging, no matter what we do, but it is when we are obedient that we actually begin to feel it.
+ - Thoughts are like burning stars, and ideas, they flood, they stretch the universe.
+ - God gives His deepest discernment and sharpest marksmanship to men who aim to expose His truth before an enemy’s lies.
+ - Your love is as stable as you are: It’s not about how good a person makes you feel, but rather what good you can do for them.
+ - The weather is nature’s disruptor of human plans and busybodies. Of all the things on earth, nature’s disruption is what we know we can depend on, as it is essentially uncontrolled by men.
+ - Unlike wealth, there is an infinite value in legacy.
+ - Let your confidence reflect your contentedness.
+ - Of course, in our train of thought, we would all like to think we’re on the right track, or at least the same railroad company as the right track.
+ - The conscious attempt to be a good person without Christ is as legalistic as an attempt to make it into Heaven through empty religiosity.
+ - We are often taught to look for the beauty in all things, so in finding it, the layman asks the philosopher while the philosopher asks the photographer.
+ - A part of me genuinely wanted to be the worst because I was so sick of everyone fighting to be the best.
+ - What further helps to reveal reality is when our personal thinking ceases to take reality for granted.
+ - The hope is indeed that some will experience and believe: The purpose of a number of spiritual gurus is to demonstrate to God-fearing men faux spirituality.
+ - Because there are hundreds of different ways to say one thing, I, being a writer, songwriter, and poet, speak childishly and incoherently. In speech there is so much to decide in so little time.
+ - When you’re appeasing too much, you might be egotistically over-estimating everyone’s need for your approval.
+ - Even if there are instances in which it can be mistook by onlookers, never fool yourself into using misunderstood genius as an excuse to be a fool.
+ - It is the nature of physics to hear the loudest of mouths over the most comprehensive ones.
+ - A sign of a lover of wisdom is his delight in not running his mouth about things he doesn’t know.
+ - When it comes to world news, attitude is what marks the distinction between justice and vengeance. Justice is pure, but vengeance brings more ruin.
+ - Christians walk as strangers in the world: They are untamed. They are free. To persevere with love, yet untamed by man, is often what leaves that open space for divine revelation when God so wills.
+ - Oftentimes winning can become an addiction, whether good or bad, to the point where you would rather lose it all before you lose at all.
+ - The power of hope! Even a lack of ambition can, for a time, pay off as a necessary facet, as long as hope outweighs it.
+ - The evangelist is the world’s hopeless romantic, and just like a hopeless romantic, he must hope for the miracle of God more than the romance itself.
+ - Every new generation believes its own period to be absolutely superior intellectually – greater than all past cultures yet equal among its modern cultures.
+ - Tell me that the purpose of life is to have fun, and without a care in the world I’ll begin wreaking havoc on everything I pass. Now that’s what I call pure, honest fun.
+ - Peace is more of an internal settlement rather than what is visible on the external.
+ - It’s a good sign but rare instance when, in a relationship, you find that the more you learn about the other person, the more you continue to desire them. A sturdy bond requires a degree of youthful intrigue. Love loves its youth.
+ - Ultimate prosperity is one’s value within. It takes a man of depth, morality, and charm to be envied yet without a sign of wealth or romance. A passion to prove such inner worth is his permission to achieve whatever he desires.
+ - A poet should be so crafty with words that he is envied even for his pains.
+ - Music is not my life. My life is music.
+ - The apologist is most entrusted with apologetics when capable of arguing his opponent’s position better than his opponent.
+ - What is hard work? It takes strength, energy, and stress to truly care about others enough to place oneself last, but it is easy to wrap oneself up and selfishly scramble on the heads of others.
+ - Love is one of those topics that plenty of people try to write about but not enough try to do.
+ - The ones who constantly make us laugh are the hardest of friends to know – for comedians are the caricatures among us.
+ - The only activity a cynic will find contagious is yawning, that is, with other people, at other people.
+ - It is not true that everyone is special. It is true that everyone was once special and still possesses the ability to recover it.
+ - Emotion is always multiplied in the art of a person who doesn’t really show much emotion. It once expanded deep within his hidden soul, and following the downplay his audience is blown away.
+ - It always seems as though the definition of love will remain debatable by an opinionated world.
+ - A mature heart for Christ would much rather spend its time praising him than condemning his fanatics.
+ - When you mature in your relationship with God you realize how suffering and patience are like eating your spiritual vegetables.
+ - We first become salesmen as children in the confession booths of our parents.
+ - Love may be harder to find in some people, but when they do love you know it must be something marvelous.
+ - What good is there in being blind, you ask? Well, maybe it’s to see the beauty on the inside without being vainly distracted, or superficially blinded, by the ugly on the outside.
+ - Faith, in its most correct form, never removes responsibility; it removes fear of responsibility. The results are complete opposites with the greater saying, ‘God’s will is my delight.’
+ - Learning isn’t acquiring knowledge so much as it is trimming information that has already been acquired.
+ - Love without humility results in the inclination to act as everyone’s parent, humility without love results in the need to be everyone’s child, and love with humility results in the desire to be a friend.
+ - Envy is a sign of insecurity, yes; but so is longing to be envied.
+ - Whenever you feel like feeling like a devil’s advocate, Bible-thump. That, in a worldly world, is the great irony and satire of evangelism.
+ - You can’t be a rebel without the scars that come with it. Truth is, some days scars are just as ugly as they are beautiful.
+ - In order to share one’s true brilliance one initially has to risk looking like a fool: genius is like a wheel that spins so fast, it at first glance appears to be sitting still.
+ - A god who gave us everything we wanted would be the most malevolent god of all. With an infantile curiosity, we insist on tasting the cockroach on the floor while our father is preparing a magnificent feast for us.
+ - In the end, only God can see the heart of an individual and distinguish the difference between legalistic deadweight and the passion of holy solemnity.
+ - If what you create seems to turn out much stranger than who you are as a person, it’s probably because your heart is talking.
+ - In a general sense, I admit to valuing the worldviews of men under the age of 40 and women over the age of 30.
+ - A thief is one who insists on sharing his victimhood.
+ - The best ideas will eat at you for days, maybe even weeks, until something, some incident, some impulse, triggers you to finally express them.
+ - The only honorable, desirable kind of fear that shouldn’t be feared is the fear of harm on a loved one. It’s the kind of fear that leads to self-sacrifice and the kind of fear where you would truly jump in front of a bus to save another.
+ - All individuals have moral deficiencies, and when introducing these to reality one not only strengthens himself but also the confidence of others in the human exigency for Christ due to a reflection throughout the body of Christ.
+ - Great artists are a little too gifted to be bound by boxes and labels, and in saying that, the label ‘artist’ is to be used lightly.
+ - The manlier you are, the harder it is to understand what a woman wants: there is not a hint of female brain in you.
+ - All great leaders find a sense of balance through their levels of reception. For instance, those who support a leader may soften him, those who ignore him may challenge him, and those who oppose him may stroke his ego.
+ - To swear day and night by media slander will make one a bigger victim than the slandered. It doesn’t take much to begin to fear a mere illusion of human badness.
+ - Happiness is good, but well-overrated: what we hate most are the very motivators that put us in gear. A man drifts along with little to contribute until something agitates him enough to make a difference, whether for himself or for his communities.
+ - The most mesmerizing of artists is always like one who was merely drawing in the sand and people came to watch.
+ - I am not sure if women are attracted to genius. Can you imagine the wise wizard winning the woman over the gallant swordsman? It seems rather otherworldly in more ways than one.
+ - When your only regret is if anyone thinks you regret anything – that is the definition of conviction.
+ - To be extremely happy but extremely intelligent is a task of being optimistic without being cheesy.
+ - In learning and argumentation, the quality brain is similar to a facility of maximum security. What passes the logic test, free of fallacy and pretense, then must pass the test of biblical accuracy in order to proceed as an adopted, reliable truth.
+ - I would rather be an artist than a leader. Ironically, a leader has to follow the rules.
+ - These days when Christians bicker they exaggerate passion into a legalistic belief and prosperity into a lukewarm belief.
+ - When a man has a gift in speaking the truth, brute aggression is no longer his security blanket for approval. He, on the contrary, spends most of his energy trying to tone it down because his very nature is already offensive enough.
+ - A major gap between many of the denominations stems from how people define some of the most basic terms, such as ‘religion’ itself.
+ - One who enjoys finding errors will then start creating errors to find.
+ - As a writer of philosophy, it’s good to ask oneself, ‘Will I still believe this a week from now, or months, or even years?’
+ - Those who stand for different causes during different generations often experience the same oppositions and the same difficulties as those of the previous and the next generations. That is the basis of history repeating itself.
+ - A man does not have to feel less than human to realize his sin; oppositely, he has to realize that he gets no special vindication for his sin.
+ - I still believe that many Americans have a deep longing for that glorious moment when a sermon is more Biblical than American.
+ - To be heroic is to be courageous enough to die for something.
+ - If I were to vote, I would intentionally vote for the goofiest candidate. It is my theory that when the people can outwit the leader, the more respected their voices will be.
+ - Maturity is when you’re able to say, ‘It’s not just them. It’s me.’
+ - From recovery to rags and rags to recovery symbolizes art – a perfect compilation of human imperfections.
+ - Intelligent people, as some say, in their openness, are indeed slow to criticize, but conversely, in their openness to the concerns of others, the genuine are slow to fret about being criticized.
+ - The logic behind patriotism is a mystery. At least a man who believes that his own family or clan is superior to all others is familiar with more than 0.000003% of the people involved.
+ - Women rescue men just as much as, if not more than, men rescue women.
+ - You get hit the hardest when trying to run or hide from a problem. Like the defense on a football field, putting all focus on evading only one defender is asking to be blindsided.
+ - I enjoy melancholic music and art. They take me to places I don’t normally get to go.
+ - I’m never proud of my old work. I always feel as though my skills have since improved.
+ - One does not have to be a philosopher to be a successful artist, but he does have to be an artist to be a successful philosopher. His nature is to view the world in an unpredictable albeit useful light.
+ - Dreams and freedom are the same. In order for them to be, they come with a price.
+ - A distaste for the new is not always fear of the unknown, but sometimes ambition. Some people don’t like the new way simply because they never got a chance to master the old way.
+ - When it comes to judging individuals, I do not like remarks such as ‘too good to be true.’ They speak as though one is rewarding the nature of evil. Yet, ironically, we still wonder where all the good people have gone.
+ - We are to love God most importantly so that we can grow to love people as he loved us, not so that we can feel more divine and worthy than the worldly.
+ - I imagine that the intelligent people are the ones so intelligent that they don’t even need or want to look ‘intelligent’ anymore.
+ - If the entire world sought to make itself worthy of happiness rather than make itself happy, then the entire world would be happy.
+ - I appreciate a book intended to be judged by its cover. The insincere readers are often weeded out while the sincere readers remain curious.
+ - We have better relationships with those who truly seek us rather than those sitting on the couch watching us move mountains trying to prove ourselves.
+ - Whenever we want to combat our enemies, first and foremost we must start by understanding them rather than exaggerating their motives.
+ - People love answers, but only as long as they are the ones who came up with them.
+ - It’s not about going around trying to stir up trouble. As long as you’re honest and you articulate what you believe to be true, somebody somewhere will become your enemy whether you like it or not.
+ - Tolerance! The virtue that makes one bite his tongue so that he can tear out his hair.
+ - It’s not about whether or not someone is a bigot, but whether or not the argument which that someone is arguing is worth being a bigot about.
+ - I claim neither liberalism nor conservatism – one tends to be airheaded while the other tends to be brickheaded.
+ - The height of cleverness is in one’s ability to be very clever without seeming clever at all.
+ - There was a time when skepticism was an act of rebellion. Since to a degree I both believe in evolution and have faith, I can only conclude that, as prophesied, to have faith will someday be an act of rebellion.
+ - A number of our scientists boast intelligence but lack wisdom. I find those to be the predictable ones.
+ - I feel as though whenever I create something, my Mr. Hyde wakes up in the middle of the night and starts thrashing it. I sometimes love it the next morning, but other times it is an abomination.
+ - When you’re truly awesome, you know that it’s actually a burden and wish day after day to be relieved of such a curse. Think of about 95% of the superheroes.
+ - Just as some people may conceal their own sinfulness thus seeming better than the norm, others expose their own sinfulness thus seeming worse than the norm.
+ - Wisdom is nothing more than confirmed imagination: just because one did not study for his exam does not mean that he should leave it blank.
+ - A young outcast will often feel that there is something wrong with himself, but as he gets older, grows more confident in who he is, he will adapt, he will begin to feel that there is something wrong with everyone else.
+ - I would rather my descendants have greater abilities and a greater knowledge of the love of Christ than I do, much like standing on one’s shoulders in order to get a clearer view of the valley.
+ - A writer is one who communicates ideas and emotions people want to communicate but aren’t quite sure how, or even if, they should communicate them.
+ - I always make sure that the world will prove me right. It gives me the freedom to contradict myself.
+ - The last thing Scripture should do is make you blind in the world. Instead, you hear everything, see everything, and feel everything because everything just so happens to point right back to it.
+ - When you aren’t satisfied with what has already been done, make something better. That is the greatest responsibility and the true freedom of creativity. The freedom is in that it doesn’t need to complain.
+ - The idea that all souls are mortal is the only notion surely terminating love and all its forms.
+ - A man who goes into a restaurant and blatantly disrespects the servers shows a strong discontent with his own being. Deep down he knows that restaurant service is the closest thing he will ever experience to being served like a king.
+ - You can’t let the truth bring out the worst and let it get the best of you.
+ - Beyond all sciences, philosophies, theologies, and histories, a child’s relentless inquiry is truly all it takes to remind us that we don’t know as much as we think we know.
+ - There is more to joy than looking only for affirmation; refusing to be challenged is the only bigotry.
+ - Peaceful disputes are maintained when men sincerely believe that they are morally, logically correct about the issues at hand. It is when neither side is really certain that wars are instigated.
+ - The pressure of adversity is the most powerful sustainer of accountability. It’s as though everything you do is multiplied by 50 in order to surpass those with a head-start. I was never capable of slacking when at the threshold of failure.
+ - God favors men and women who delight in being made worthy of happiness before the happiness itself.
+ - Like most arts, the link between the mind and the pen can chain you like an enslaved workaholic. Even on an intended vacation you suddenly have this killer urge to record whatever the vacation may teach.
+ - Competition works best in sports, but humans get addicted to stuff.
+ - If truth is like the terrain, are we the generation who sees it as one who has worn shoes all his life or one who has never worn shoes? Yet still, even if the walk starts out as painful, the experience may be well worth it.
+ - Labeled fools to the world are geniuses to the cosmos.
+ - Humility is, in a sense, admitting how egotistical you are.
+ - In a society where dirt sells, for every good story told as it is, you will hear the whole of that day’s 10 bad stories sensationalized; although in reality, it could be that 100 good deeds happened that day which went unsung.
+ - Some things are so silly they have a certain brilliance to them. Other things, set as standards for brilliance and therefore exalted by many who don’t know why, become tarnished because of it.
+ - The surface of learning is hearing what your ears aren’t prepared to hear, and the core of learning is hearing what your ears don’t want to hear.
+ - Love does not dwell on how much one receives in return. If there is ever any balance in love, it is in a contest of who can love who more.
+ - You can be yourself without pursuing yourself. Have you ever seen a dog chase his own tail? He just runs in circles.
+ - Everyone claims to be okay with freedom of religion, but the moment you mention God there is a strange tension that fills the air. If there was a 6th sense, that would be it.
+ - Whatever thing a man gets quickly enraged about is his idol, and whatever thing he makes his idol becomes his religion.
+ - It’s much easier on the emotions when one sees life as an experiment rather than a struggle for popularity.
+ - Everything at some point has been declared the root of all evil.
+ - Genius, throughout history, has been found difficult to classify because it varies in amount: It’s rare to find a genius in the context of the noun, but most people, if not all, have a bit of genius in them in the context of the adjective.
+ - Hopefully, when your actions and deeds – and therefore other people – boast for you, you’re made tired of hearing it, too, from your own mouth because if not, all could lose sight of those actions and deeds behind the gong of your boasting.
+ - To believe in the truth of Christ is to be introduced to another form of hatred, and that is not sharing Him.
+ - Great philosophers become immortal – they make undeniable impacts on culture.
+ - Yes, be different, but not for the vanities of being different.
+ - Extreme right-wingers are known for giving God a bad name; extreme left-wingers are known for giving God a weak name. He’s not as simple as conservative versus liberal, old versus new. His wings are balanced. God is both and neither.
+ - Ingredients to success: know what you do well, know what to do well, and know someone who’s swell.
+ - Faithfulness imparts God’s reason for all circumstances. No matter what the world says, losing is no longer an option.
+ - I am a fan of overdoing something, but not running it into the ground. They are complete opposites with only a fine line separating them.
+ - Man has 2 common problems with God: the one is that there is evil in the world; the other is that free will is limited. The one, he is charging that the world is too evil; the other is that it is not evil enough.
+ - The hardest thing for a sane person to do is not care what anyone thinks, although everyone swears by it, hence our glorification of insanity.
+ - People think that fun in Christ is non-existent, but there is fun wherever your heart lives.
+ - When comprehending how different people truly are, you also comprehend the absolute necessity of some divine authority.
+ - The greater ignorance towards a country is not ignoring what its politicians have to say, it is ignoring what the inmates in its prisons have to say.
+ - When most of the greatest individuals in history were misunderstood and you’ve spent so much of your own adult life misunderstood, you can’t help but believe that the majority of people know very little worth knowing.
+ - Imagination doesn’t always make you long for what you cannot have, but rather thrive in what you do not have.
+ - It is a noble responsibility to not back down when you know that you know that you know that you are right.
+ - I am not here to merely argue about the perplexities regarding theism or philosophy, but to be a light to the world and to reach out to those who long to be a part of that light.
+ - Man was created to glorify God. Now, that may encompass other things which God has planned for each man, but essentially, man was created to glorify God.
+ - Those ‘back burner’ thoughts, the ones the brain isn’t quite sure about yet, may cook the slowest yet they often manage to be the tastiest when they come out.
+ - An exceedingly confident student would in theory make a terrible student. Why would he take school seriously when he feels that he can outwit his teachers?
+ - It is not so much freedom of speech but the right to truth that great men protect.
+ - When everyone believes they are the life coaches, who are the players?
+ - Tolerance never exists without negative judgment. It is the sentiment of having a negative opinion about something yet still putting up with it.
+ - I cannot encourage any fabrication even for the sake of making people feel good. If I were to fabricate consciously and knowingly, I would not only be ordaining myself their enemy, but also ordaining myself God’s enemy.
+ - Man was designed in a way in which he must eat in order to give him a solid reason to go to work everyday. This helps to keep him out of trouble. God is wise.
+ - When we find that God’s ways always coincide with our own ways, it’s time to question who we’re really worshipping, God or ourselves.
+ - I have a thing for things that last.
+ - Oftentimes in reality, the genius is in the position of the antihero. Neither the good guys nor the bad guys really trust him because his truth is universal.
+ - When focusing only on one’s credentials one boasts his own incompetence in his capacity for discernment of the individual.
+ - It takes a courageous fool to say things that have not been said and to do things that have not been done.
+
+367 quotes

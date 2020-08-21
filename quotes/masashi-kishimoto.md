@@ -1,0 +1,46 @@
+ - Give up trying to make me give up.
+ - I never go back on my word! That’s my nindo, my ninja way!
+ - There is only one will and that is the Will of Fire. The will that doesn’t let you give up.
+ - When a man learns to love, he must bear the risk of hatred.
+ - Naruto: BELIEVE IT!!!!!!!!!!!
+ - In this world, whenever there is light, there are also shadows. As long as the concept of winners exist, there must also be losers. The selfish desire of wanting to maintain peace causes wars and hatred is born to protect love.
+ - It’s foolish to fear what we’ve yet to see and know.
+ - What a drag.
+ - Those who forgive themselves and are able to accept their real nature, they are the strong ones.
+ - If you don’t like the hand that fate’s dealt you, fight for a new one.
+ - Live your life so that you’ll have no regrets. No matter how hard, no matter how sad, if something is precious to you, protect it with both arms.
+ - I’ve told you before. You shouldn’t judge people based on appearances and your preconceptions.
+ - In order to survive, we cling to all we know and understand. And label it reality. But knowledge and understanding are ambiguous. That reality could be an illusion. All humans live with the wrong assumptions. Isn’t that another way of looking at it? That sharingan how much can you really se?
+ - The next generation will always surpass the previous one. It’s one of the never-ending cycles in life.
+ - A smile is the best way to get away with trouble even if it’s a fake one.
+ - And so they fought. And so they laughed. Friends. And before they knew it, They were inseparable.
+ - For awhile, I thought that was love. -Gaara.
+ - Being hurt inevitably breeds feelings of hatred towards your attacker. But when we hurt others, we have to deal with their hatred for us, and our own feelings of guilt. Knowing what it feels like to be hurt is exactly why we try to be kind to others. That’s what makes us humans.
+ - To know what is right and choose to ignore it is the act of a coward.
+ - People cannot win against their loneliness because loneliness is this world’s worst kind of pain.
+ - We don’t know what kind of people we truly are until the moment before our deaths. As death comes to embrace you, you will realize what you are. That’s what death is, don’t you think?
+ - You have someone in your life whom you honor and revere so much that every hurt on them is inflicted on you as well. And the closer they are to you, the greater the pain.
+ - Perfect heroes are cool, but no one can really empathize or identify with them.
+ - Sasuke is always in the corner of my mind. Naruto and Sasuke progress as a pair. So when I write about Naruto, I always have to think about Sasuke. They are on opposite sides of the spectrum, like yin and yang.
+ - You said you want to became Hokage. I have become the Kazekage. If you are willing to bear the name Kage, you have to do what you must do.
+ - That’s my Shinobi Way.
+ - I don’t understand what’s going on, but i’ll just pretend that I do.
+ - Then when I saw Pain attack Hinata, I was so mad, so full of rage, I let the Nine-Tails take over without even thinking about it.
+ - A soul needs a purpose to live and so I concluded that my purpose was to kill everyone besides myself. I felt alive. – Gaara.
+ - The pain of being alone is completely out of this world, isn’t it? I don’t know why, but I understand your feelings so much, it actually hurts.
+ - Shut up or I’ll kill you.
+ - It’s nothing that complicated, I just want to kill him.
+ - Every human being relies on and is bounded by his knowledge and experience to live. This is what we call “reality”. However, knowledge and experience are ambiguous, thus reality can become illusion. Is it not possible to think that, all human beings are living in their assumptions?
+ - If being smart is what you say it is, I will remain a fool my entire life.
+ - When did you throw yourselves away?
+ - A scary but yet beautiful smile.
+ - Looks can be decieving.
+ - The weaker you are the louder you bark. -Tenten.
+ - Naruto: I bet you’re dying to know my name! Gaara: I couldn’t care less.
+ - When I look up to the sky between the narrow roofs, it reminds me of you, the one who is far, far away.
+ - Hidan: That was pitiful! What happened there, buddy? Kakuzu: You should talk. I wasn’t the one who fell for a shadow clone! Hidan: Ahaha, right. You saw that?
+ - I just want to protect them no matter how much pain befalls me.
+ - I didn’t think much about foreign readers when I began ‘Naruto,’ but I knew that many of the artists who influenced me had already been accepted overseas.
+ - Sakura: Never figured you for the artistic type. Sai: Looks can be decieving.
+
+44 quotes

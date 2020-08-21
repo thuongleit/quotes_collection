@@ -1,0 +1,27 @@
+ - This is me. Take it or leave it.
+ - Give it your best shot, have a good time and if it doesn’t work at least you tried!
+ - I don’t want to hurt anybody or be offensive. But I don’t want to not be me.
+ - Every field and flower fades, but love is infinite.
+ - Everybody starts with a clean slate only altered by unnecessary hate.
+ - No one can take away the days that we conquered.
+ - I know I’m not a great singer. But I love to sing and I like to use my voice in different ways.
+ - I love being onstage and I love to perform. To be honest with you, I’m more comfortable performing than I am in an everyday situation, which I can’t quite explain.
+ - A lot of the time, the British press make me ashamed and embarrassed to be British. They give others the impression that the British are selfish, envious and bitter people, which is simply not true in my opinion. I think that British people in general are really nice and friendly.
+ - Everybody in life is a chameleon.
+ - I just feel, in life, I’m searching for something I can rely on, something that’s constant and something that’s going to guide me through. And I felt that the Northern Star is a very beautiful image of that.
+ - I recognise a lot of myself in these kids who enter shows like Pop Idol. It’s very hard to get into the music industry and you have to take every opportunity that you can. Something like Pop Idol is a great opportunity but unfortunately, I think it’s tainted by the people that make these shows.
+ - Being in the Spice Girls was an insane experience.
+ - I don’t think the Spice Girls are celebrated as much as they should be. We championed British pop worldwide. We toured everywhere to sell-out crowds and I think there should have been a reflection of that at February’s Brit’s anniversary.
+ - If you turn the pages and look inside, there is nothing of me I feel that I have to hide.
+ - Some things weren’t designed to understand.
+ - The success of this album is very much in question. Who knows where it’s going to go? My being a Spice Girl is no guarantee of anything, although I hope it’ll benefit the sales.
+ - Putting out my album on my own label has been a great experience for me. It’s been very inspiring. It’s like a new start for me and having all this creative freedom is so liberating and exciting.
+ - A lot of people have been quite surprised with the stuff that I’m doing on my own, which shocks me because I’ve always known what I wanted to do. But people have only seen me with the Spice Girls, so I suppose it’s not that surprising.
+ - The funny thing about making this record and being away from the girls and on my own in LA is that it allowed me to reflect on how much we’ve accomplished.
+ - I feel there should have been some recognition of the Spice Girls at this year’s 25th anniversary. We flew the flag for Britain around the globe in the 1990s and we achieved a hell of a lot.
+ - I swear in real life-probably too much-though I don’t swear in front of my gran. We adapt to every situation.
+ - I don’t want to be daft and say I had some spiritual awakening or something, but I really did come of age in Los Angeles, where we recorded the album. I had my own little house and my own little circle and I really got to feel how the city ticks.
+ - The British press have written some nasty and spiteful things about the way I look which used to affect me quite badly when it was new to me but luckily, I’ve learned to ignore the comments. why do they even care about how I look?
+ - At the back of my mind there is always a fear the depression could return but I do all the right things. I try to get the right amount of sleep because I know that I need sleep to function and I need to eat properly and to do some exercising.
+
+25 quotes

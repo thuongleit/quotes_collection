@@ -1,0 +1,22 @@
+ - I’m not God, but I am something similar.
+ - I was born to be champion of the world.
+ - I do not fight for free. But I was born to be a fighter.
+ - Getting hit motivates me. It makes me punish the guy more. A fighter takes a punch, hits back with three punches.
+ - I am not an animal in my personal life. But in the ring there is an animal inside me. Sometimes it roars when the first bell rights. Sometimes it springs out later in a fight. But i can always feel it there, driving me and pushing me forward. It is what makes me win. It makes me enjoy fighting.
+ - There is only one legend. That’s me.
+ - The wind is old, but it keeps blowing.
+ - I want to thank America. You opened your heart so I could enter. Thank you everybody who lives in the United States, who saw me grow into becoming a world champion.
+ - Every time I stepped into the ring, somebody wanted to kill me.
+ - Yes, it’s true I once knocked out a horse. It was at a fiesta in my mother’s home town of Guarare. Someone bet me a bottle of whiskey that I couldn’t do it.
+ - I am not going to become crazy in the ring, because I am already crazy. And I am not going to die in the ring. I am going to die in bed as an old man.
+ - Nobody stands out right now. Everybody has similar styles. None of these fighters have reinvented the wheel and created a new style.
+ - The life of a boxer is about fighting for world titles.
+ - I laugh when Floyd Mayweather says that if he went back in time he would beat us all. I’ll tell you this: if he was in the same era as Hagler and Hearns and Leonard and me, I don’t think he would be such a big name. There is too much talk.
+ - Everybody says it: black, white; everybody calls me a legend. Italians, Jews. Everybody.
+ - If I had the medical clearance to fight, I would want to fight the best. The best would be Mayweather.
+ - Some of the old refs have favoritism toward some of the fighters that are currently fighting. There should be a changing of the guard with the refs, the same way there are with fighters.
+ - De La Hoya doesn’t know about salsa. He should keep on singing mariachis and leave the salsa to me. I’m good at salsa.
+ - Currently, I’m working with a company called DRL Promotions with my partners Dan Wise and Luis De Cubas. We’re currently representing over 30 fighters.
+ - I really feel that if it wasnt for the accident, Id still be fighting. I would have handled some of these fighters. I would have made sure that the doctors would have declared me physically sound; and after that, I would have trained.
+
+20 quotes

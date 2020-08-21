@@ -1,0 +1,30 @@
+ - I am a mystery to myself.
+ - Duty is ours and events are God’s.
+ - The tendency of organization is to kill out the spirit which gave it birth. Organizations do not protect the sacredness of the individual; their tendency is to sink the individual in the mass, to sacrifice his rights, and to immolate him on the altar of some fancied good.
+ - I recognize no rights but human rights – I know nothing of men’s rights and women’s rights...
+ - There is something in the heart of man which will bend under moral suasion. There is a swift witness for truth in his bosom, which will respond to truth when it is uttered with calmness and dignity.
+ - If a law commands me to sin I will break it; if it calls me to suffer, I will let it take its course unresistingly.
+ - We know it matters not what we have been but this and always this: what we shall be.
+ - The doctrine of blind obedience and unqualified submission to any human power, whether civil or ecclesiastical, is the doctrine of despotism...
+ - It is through the tongue, the pen, and the press that truth is principally propagated.
+ - We Abolition Women are turning the world upside down.
+ - Slavery always has, and always will produce insurrections wherever it exists, because it is a violation of the natural order of things...
+ - Thou art blind to the danger of marrying a woman who feels and acts out the principle of equal rights.
+ - Are we bereft of citizenship because we are mothers, wives and daughters of a mighty people? Have women no country – no interests staked in public weal – no liabilities in common peril – no partnership in a nation’s guilt and shame?
+ - Human beings have rights, because they are moral beings: the rights of all men grow out of their moral nature; and as all men have the same moral nature, they have the same rights.
+ - The nation is in a death-struggle. It must either become one vast slaveocracy of petty tyrants, or wholly the land of the free.
+ - So precious a talent as intellect never was given to be wrapt in a napkin and buried in the earth.
+ - I recognize no rights but human rights.
+ - One who is a slaveholder at heart never recognizes a human being in a slave.
+ - Women ought to feel a peculiar sympathy in the colored man’s wrong, for, like him, she has been accused of mental inferiority, and denied the privileges of a liberal education.
+ - Who has ever attempted to draw a line of separation between the duties of men and women, as moral beings, without committing the grossest inconsistencies on the one hand, or running into the most arrant absurdities on the other?
+ - The whole land seems aroused to discussion on the province of woman, and I am glad of it. We are willing to bear the brunt of thestorm, if we can only be the means of making a break in that wall of public opinion which lies right in the way of woman’s rights, true dignity, honor and usefulness.
+ - I have not placed reading before praying because I regard it more important, but because, in order to pray aright, we must understand what we are praying for.
+ - What man or woman of common sense now doubts the intellectual capacity of colored people? Who does not know, that with all our efforts as a nation to crush and annihilate the mind of this portion of our race, we have never yet been able to do it.
+ - The denial of our duty to act in this case is a denial of our right to act; and if we have no right to act, then may we well be termed the white slaves of the North, for like our brethren in bonds, we must seal our lips in silence and despair.
+ - Our fathers waged a bloody conflict with England, because they were taxed without being represented. This is just what unmarried women of property are now.
+ - We are commanded to love God with all our minds, as well as with all our hearts, and we commit a great sin if we forbid or prevent that cultivation of the mind in others which would enable them to perform this duty.
+ - Only let the North exert as much moral influence over the South, as the South has exerted demoralizing influence over the North, and slavery would die amid the flame of Christian remonstrance, and faithful rebuke, and holy indignation.
+ - I trust the time is coming, when the occupation of an instructor to children will be deemed the most honorable of human employment.
+
+28 quotes

@@ -1,0 +1,42 @@
+ - To Be Successful You Don’t Need Beautiful Face And Heroic Body, What You Need is Skillful Mind And Ability To Perform.
+ - Your services might be as useful as a barbershop on the steps of a guillotine.
+ - I have always worried about things more than I should.
+ - The path of my life is strewn with cow pats from the devil’s own satanic herd!
+ - Lord, thy one-liners are as good as thy tricks. Thou art indeed an all-round family entertainer.
+ - But generally speaking, I tend to be quiet and introspective.
+ - As hatred is defined as intense dislike, what is wrong with inciting intense dislike of a religion, if the activities or teachings of that religion are so outrageous, irrational or abusive of human rights that they deserve to be intensely disliked?
+ - For telling a good and incisive religious joke, you should be praised. For telling a bad one, you should be ridiculed and reviled. The idea that you could be prosecuted for the telling of either is quite fantastic.
+ - No, no, I was only funny on stage, really. I think I was funny as a person toward my classmates when I was very young. You know, when I was a child, up to about the age of 12.
+ - A law which attempts to say you can criticise and ridicule ideas as long as they are not religious ideas is a very peculiar law indeed.
+ - I have always regarded Mr. Bean as a timeless, ageless character, and I would rather he be remembered as a character mostly in his 30s and 40s.
+ - I find his films about as funny as getting an arrow through the neck and discovering there’s a gas bill tied to it.
+ - Nope, I don’t enjoy work generally. Not because I’m lazy; it’s just all so stressful and worrying.
+ - I’m as poor as a church mouse, that’s just had an enormous tax bill on the very day his wife ran off with another mouse, taking all the cheese.
+ - But I always feel that whatever I do, I could do better. I suppose it is perfectionism.
+ - We still have a tradition certainly in English television; it’s faded a bit in the last five years, but we still have a tradition where the important thing is the quality and the challenging nature of the programming.
+ - It’s the difficulty we had with Mr. Bean, actually, when it went from TV to film. You certainly discover that you need to explain more about a character.
+ - Having spent a substantial part of my career parodying religious figures from my own Christian background, I am aghast at the notion that it could, in effect, be made illegal to imply ridicule of a religion or to lampoon religious figures.
+ - The right to ridicule is far more important to society than any right not to be ridiculed because one in my view represents openness – and the other represents oppression.
+ - My personal problem is that I take the business of film-making so seriously that I find it very difficult to relax.
+ - I’m not a naturally funny man. I find that I can only be funny, if I become someone else.
+ - I consider myself more of a visual comedian than a physical one.
+ - In the modern media age we are rarely surprised by what we see. Whether it’s on television or film or in the theatre, everything is so advertised, so trailed, that most entertainment is merely what you thought it was going to be like.
+ - I have to say that I’ve always believed perfectionism is more of a disease than a quality. I do try to go with the flow but I can’t let go.
+ - I can be reasonably funny and light-hearted when I’m in the company of good friends, but I’m not a jokesmith. I tend to be quite serious.
+ - People think because I can make them laugh on the stage, I’ll be able to make them laugh in person. That isn’t the case at all. I am essentially a rather quiet, dull person who just happens to be a performer.
+ - But, actually, so many of the clerics that I’ve met, particularly the Church of England clerics, are people of such extraordinary smugness and arrogance and conceitedness who are extraordinarily presumptuous about the significance of their position in society.
+ - Marketing is what gets you noticed, and that side of it something – this side of it, if you like, doing interviews – is the side of it that I least enjoy, and yet is 50% of the project.
+ - Apart from the fact that your physical ability starts to decline, I also think someone in their fifties being childlike becomes a little sad. You’ve got to be careful.
+ - I enjoy racing historic motorcars from the ’50s and ’60s. The seed of my interest was planted when I was about 12 years old and took over my mother’s Morris Minor. I drove it around my father’s farm. But my favorite car is still a McLaren F1, which I have had for 10 years.
+ - I think I have an inner confidence that my tastes are pretty simple, that what I find funny finds a wide audience. I’m not particularly intellectual or clever or minority-focused in my creative instincts. And I’m certainly not aware of suppressing more sophisticated ambitions.
+ - Marketing is what gets you noticed.
+ - I have always believed that there should be no subject about which one cannot make jokes, religion included. Clearly, one is always constricted by contemporary mores and trends because, after all, what one seeks above all is an appreciative audience.
+ - I think you’re bound to get a sense of any character that you play. It’s not something you often do in comedy.
+ - It’s a bit disconcerting being treated like Madonna.
+ - If you’re a serious actor, it’s when you know you’re going to die tomorrow that you really start to feel it.
+ - I’m more critical of the films I make than anyone else.
+ - Look, if I’d wanted a lecture on the rights of man, I’d have gone to bed with Martin Luther.
+ - Get that right, then- if you get the quality right, then the marketability or whatever; your ability to sell videos or your ability to earn money or whatever, will follow naturally. But try to be creatively lead rather than market lead. And that’s important to me.
+ - And, we put a lot more value, or at least I personally put a lot more value, on the creative values and creative challenges of something than the commercial necessities.
+
+40 quotes

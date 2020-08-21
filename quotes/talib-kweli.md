@@ -1,0 +1,107 @@
+ - Life is a beautiful struggle...
+ - Life without knowledge is death in disguise.
+ - Skip the religion and politics, head straight to the compassion. Everything else is a distraction.
+ - When you shine bright, some won’t enjoy the shadow you cast.
+ - You can have your own opinion, but not your own facts.
+ - I ignored your aura but it grabbed me by the hand, like the moon pulled the tide, and the tide pulled the sand.
+ - A flower that grow in the ghetto know more about survival than the one from fresh meadows.
+ - Do the math: You never settle for less than the whole if you knew the half.
+ - God gave us music, so we play with our words.
+ - You gotta eat right, you gotta have healthy habits, you know, and balance out your decadence with a healthy lifestyle during the day.
+ - I don’t care if Rick Ross is 40 years old – he’s a misguided 40-year-old person.
+ - We get high on all types of drugs when, all you really need is Love.
+ - You make knowledge relevant to life and you make it important for children to learn things that will really relate to things going on in their lives, and not abstract.
+ - I feel like your city – with hip hop in particular, because we’re always beating our chest and shouting where we’re from – your city is just as influential as your parents. Even the grimy, hardcore gangster rap from New York – KRS-One and Wu Tang, the stuff acknowledges it.
+ - Love is blind, you just see bright light.
+ - With Prisoner of Conscience, the focus was – I’ve worked with Madlib, High Tech, Kanye West, J Dilla. I feel like I’ve worked with some of the greatest of all time. That’s been overlooked. That’s been overshadowed by the weight of the lyrics.
+ - When I look at the arc of my career, my focus is on lyricism, right? I own that.
+ - I think hip hop is a dance music that’s rebellious by nature.
+ - Ain’t nobody making music to not be heard and the easiest way to be heard is to be on the radio, but you should never compromise who you are, your values or your morals.
+ - Woman are complex creatures.
+ - What’s more condescending and corny than someone telling you how much more money they have than you and telling you basically, ‘I don’t care about poor people,’ which is a large part of what you hear of corporate hip-hop on the radio.
+ - My parents are my biggest influences. My parents and my city. Brooklyn, New York, New York City, the community I grew up. I don’t feel like I’m special in that. I feel like that’s everybody.
+ - Being called a conscious rapper is quite a compliment. It’s a great thing to be. But as an artist, my nature is to not be in a box.
+ - If you look at my career, doing albums with Norah Jones, Justin Timberlake, Gucci Mane and Lil Wayne or KRS-One and Jean Grae, I can’t be pigeonholed.
+ - Jazz is the greatest American art form and our greatest export. We don’t pay attention to the youth of jazz, don’t stoke the fires creatively for the youth coming up. I feel like jazz musicians became too much of purists – with Donald Byrd doing funk jazz in the ’70s.
+ - I think all those artists are artists who are appreciated because you believe their words and you appreciate their honesty in their music. If you don’t appreciate the honesty in the music, the beat can be fly as hell but you’ll never give an emcee props.
+ - Consider me the entity within the industry without a history of spitting the epitome of stupidity.
+ - You have to know when to be arrogant. You have to when to be humble. You have to know when to be hard and you have to know when to be soft.
+ - Honestly, you have to take care of yourself. That’s probably something I have learned on the road.
+ - Truthfully I wanna rhyme like common senseNext best thing I do a record with common sense.
+ - So I think hip-hop is moving and is going to continue to move in the direction of rappers just being honest with themselves, whether you’re talking about Common and Mos Def or Nas and 50 cent.
+ - Hip hop has always been, for us, for artists who are pure to the craft – any place overseas, whether it’s Australia, any place in Asia, Germany, Africa, it becomes something where you can still go and work. Hip hop is an import culture. We’re spoiled by it here. It’s homegrown.
+ - They ask me what I’m writing for – I’m writing to show you what we’re fighting for.
+ - If you go to a college campus and you do stop and frisk, you’re going to find a lot of drugs there too.
+ - I gotta be dope first. I gotta be appealing to your senses, and to what you like first. Then the message happens. Then you relate to the message.
+ - There are staples to my show. I have to be conscious about switching things up because I know people who saw me last year will say, ‘He did that last time.’ But if certain things work, they work.
+ - Unfortunately hip-hop is so competitive that in order for fringe groups to get in, you gotta be better than whoever’s the best. So before Eminem, the idea that there would be a white rapper that anybody would really check for was fantastic or amazing or impossible.
+ - The beautiful thing about hip-hop is it’s like an audio collage. You can take any form of music and do it in a hip-hop way and it’ll be a hip-hop song. That’s the only music you can do that with.
+ - Hip-hop is a vehicle.
+ - I feel like people mislead themselves when they tell themselves they’re into me because of the lyrics. From my vantage point, people aren’t into me because of the content, because of the lyrics. Because there’s a million of rappers who have great content.
+ - It’s very seductive to focus on what you don’t like as opposed to celebrating all that it is that you do.
+ - People consider Black Star a great album, and I think it’s a classic album. But the fact is, both me and Mos Def have made better albums since Black Star.
+ - We’re in an illusion about what our role is in world politics and foreign affairs, and our policies are killing and destroying and doing a lot of things that we are not aware of.
+ - I met Mos Def around that time but I didn’t hook up with him until I was about 17 or 18.
+ - The materialism, the brashness, the misogyny – everything in hip-hop is amplified. Misogyny is a good example of something that is completely amplified in hip-hop. I do think there is more than enough of a balance, though, for fans who are willing to search it out.
+ - People didn’t really take white rappers seriously until Eminem, because he was better than everybody. Like female emcees, you need to be like Lauryn Hill or Nicki Minaj or killing everything before somebody takes you seriously.
+ - I have a luxury of people coming to see me whether I play for the crowd or not. I don’t take that lightly.
+ - Let me finish my music, and let me present it the way I want to present it. And then share it, put it online, do whatever you want to do after that.
+ - My kids are the most inspiring thing that pushes me. It used to be because they were born, and I had to take care of them. Now it’s because my son raps, and he’s better than me. So now I gotta keep up with him, you know what I’m saying?
+ - But it becomes disrespectful when the artist’s process is not respected.
+ - The way I see it, if people truly love my music, they will support me in some way down the road.
+ - I’d like to work with Outkast, I’d like to work with RZA, I’d like to work with Timbaland, York, a whole bunch of people.
+ - As far as being on a major label, some labels get it and get what they have to do, and some labels don’t. I don’t think the label I’m on necessarily gets it, but I think over time they’re gonna have to.
+ - My musical influence is really from my father. He was a DJ in college. My parents met at New York University. So he listened to, you know, Motown, and he listened to Bob Dylan. He listened to Grateful Dead and Rolling Stones, but he also listened to reggae music. And he collected vinyl.
+ - And you know, art as commerce, doesn’t really make too much sense, they don’t go together.
+ - I like the fact that I can rep New York, but my style does not – I’m not trapped in a New York thing. I can do art songs with other artists and it’s seamless.
+ - Hip-hop isn’t as complex as a woman is.
+ - I think people are into me because of my music choices and my musicality.
+ - The problem with our role is Americans live in a world of illusion.
+ - Or is it the mind state that’s ill, creating crime rates to fill the new prisons the build.
+ - I was always rhyming and doing it for the love before I found out I was gonna have children and when I found out, doing it for the love wasn’t enough.
+ - War is not civilized.
+ - You know, there’s a lot of activism that doesn’t deal with empowerment, and you have to empower yourself in order to be relevant to any type of struggle.
+ - I think once you’re in the public eye, whether you’re a boss, a teacher or whatever you do, that you’re automatically in the position of role model. You have people looking up to you, so whether you choose to accept it or not is a different question.
+ - But there’s so many things in life like women, like children, like God and family that transcends the world of hip-hop.
+ - Well if somebody’s giving me a script, I’ll consider it. But it’s not something I’m chasing.
+ - I think its man’s nature to go to war and fight.
+ - A true artist does not depend on radio for success. A true fan does not let radio determine what they support.
+ - Music is not an exact science so depending on the time and the mode and the energy when we do it that will determine what happens with it.
+ - I don’t feel comfortable making empty music.
+ - I support the idea that artists have to make a stand. I’m with that – you’re putting the discussion on the table and you’re letting people know. You’re being brave as an artist and responsible to the community.
+ - But Rawkus is integral to what I do, because the cats who started Rawkus are the first ones who really saw my vision, and gave me a platform to get it out there, so I’m definitely totally grateful for that.
+ - I think music sharing of any kind is great.
+ - I feel like I have way more resources, way more experience. I’m better. But my fans romanticize the earlier stuff, and I don’t think it’s just like a nostalgia thing of “He’s not as good” – I think it’s because that earlier stuff was aggressively marketed as a lifestyle to them.
+ - I listened to a mind joint, and I wanted to do my own version of it, and what you hear on my mixtape is my take on what the whole CD sounds like.
+ - But you have to be creative on how you sell yourself and market yourself.
+ - Hopefully, we learn to appreciate hip-hop here so that it doesn’t go the way of jazz.
+ - I look at the deejay thing as a tier thing. If I’m not going to compete on that level, I’m just going to do it as a hobby.
+ - A lot of these people, these program directors, just like anybody else in the world, even though they’re supposed to be leaders in the world, they’re followers. They follow what they think someone else is doing, instead of trying to blaze a trail.
+ - I don’t think that early hip hop stood out to be a social critique. A lot of fans of mine think that hip hop’s ultimate responsibility is to critique social structures.
+ - Even an independent label is looking for a hit, they’re not looking for a record that’s not gonna do well.
+ - As an artist, I have to be a leader of my fans, not like follow them. Because if I chose to follow them, you know, they could do it.
+ - You see somebody rapping and you’re like, “Nah, my cousin can do that.” You’re spoiled by the experience. Overseas, it’s still something that people can appreciate.
+ - Everybody could write, deejay, rap. Everybody could do it all.
+ - I started rapping because I wanted people to hear what I have to say, I want as many people to hear me as possible, and I do everything in my power to make that pop.
+ - I look at the deejay thing as something – I’m good at it because I have my own music. I have enough rhythm to blend at this point.
+ - As far as my New York influence, one thing I’m proud of in my career is, I rep Brooklyn, New York all day. But people don’t look at my music as New York music. People consider my music underground music.
+ - The responsibility of an artist is to be honest with themselves.
+ - Fortunately, artists can live off their works, if you’re creative at how you do it. If you just depend on the videos and the radio, you’re at a loss.
+ - I have enough rhythm to blend at this point. I have enough rhythm to blend one song into another. But man, I have such respect for the art of deejaying. I hesitate to even call myself a deejay.
+ - I will never do a record without some sense of responsibility.
+ - It doesn’t get any more underground, conscious or indie than Macklemore, Ryan Lewis, but because they got a couple of really big pop hits, actually some of the biggest pop hits that hip-hop has ever seen, people are missing that part of their story. People are not counting that blessing.
+ - My fans like to be romantic. I feel like I’m creating at least at the same level or even a higher level of creativity than I was at twenty-one. I’ve gotten better as an artist.
+ - I was kind of just too lazy to take my money out of the bank until I saw how Citi Bank responded to Occupy Wall Street.
+ - I like collaboration because, first of all, I’m good at writing lyrics. I don’t know how to make beats. I don’t play instruments. I’m not a good singer. So even when you see a solo album of mine, it’s still a collaboration.
+ - Hip hop is at its essence a folk music, because it speaks the language that people are still speaking at ground zero, it speaks the language that people speak on the streets.
+ - I not only wanted to showcase lyrical skills but also continue to drop knowledge on the hiphop community. Im looking to elevate through my music, and through my music I educate.
+ - Coltrane had a sax, Dale Earnhardt drives a race car and everybody has their tools.
+ - The only way for me to be an artist is to be honest in my craft. If I veer from that, I’m not giving the investors what they want. Sometimes it’s my job as an artist to know what I want to do, even when the fans tell me different.
+ - So I just had to step up how I was doing it and the moment that I stepped up and the moment I focused all my energy on that is when things started to happen. So there’s a direct relationship between my inspiration and my output.
+ - Young kids should be doing music that has shock value. They’ll grow out of it.
+ - Just because someone has great content doesn’t mean you like them as a rapper.
+ - Once you’re signed to a label you compromise.
+ - Why give you the cure when the disease makes money?
+ - I’m at a loss for words. But even my loss is amplified.
+
+105 quotes

@@ -1,0 +1,21 @@
+ - Attack each day with an enthusiasm unknown to mankind.
+ - I don’t take vacations. I don’t get sick. I don’t observe major holidays. I’m a jack hammer.
+ - Winning as a team is better than anything. It’s great to share success.
+ - I am now in control of all things.
+ - I have always believed that you win as part of a team effort. I’ve learned that if everybody does a little bit, it adds up to a lot.
+ - Fans have a constitutional right to expect success and have high expectations...
+ - I love being part of something that is working toward a greater goal, and there’s no more satisfaction in life than achieving those goals as a team and being a part of that team.
+ - You’re kind of numb after 50 shots to the head.
+ - Anything is always a possibility. Wouldn’t talk about what we would have done or what we would do. Everything is a possibility.
+ - I love people, I really do. I’m a people person. I think that’s a strength of mine. I love being around people, especially in a team setting.
+ - I was and still am happier than a pig in slop.
+ - I have never asked to be the highest-paid coach in football. I have never asked to be paid like a Super Bowl-winning coach. I have never asked for more power.
+ - It’s more than personal. I can’t screw it up. I have to do...
+ - Top to bottom Michigan is about excellence, greatness. You have my pledge I will carry forward the excellence of Michigan football.
+ - There are no turnarounds at Michigan. This is greatness. Long tradition of it.
+ - People often think that there’s a general who makes all the difference, but I would reject that. It’s a team effort. It’s the power of the wedge.
+ - I was reminded of another very special word when I was driving into Ann Arbor this morning, and that word is homecoming. Our family’s had three homecomings to Ann Arbor, Michigan, in my lifetime.
+ - All human beings have a great agency for being part of a team.
+ - What will happen will happen, what won’t happen won’t happen.
+
+19 quotes

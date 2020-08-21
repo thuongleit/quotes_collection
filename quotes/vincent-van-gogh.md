@@ -1,0 +1,305 @@
+ - If you truly love nature, you will find beauty everywhere.
+ - Normality is a paved road: It’s comfortable to walk, but no flowers grow on it.
+ - I would rather die of passion than of boredom.
+ - If you hear a voice within you say you cannot paint, then by all means paint and that voice will be silenced.
+ - Great things are not done by impulse, but by a series of small things brought together.
+ - Art is to console those who are broken by life.
+ - Be clearly aware of the stars and infinity on high. Then life seems almost enchanted after all.
+ - What is done in love is done well.
+ - I often think that the night is more alive and more richly colored than the day.
+ - What would life be if we had no courage to attempt anything?
+ - I am seeking, I am striving, I am in it with all my heart.
+ - I am always doing what I cannot do yet, in order to learn how to do it.
+ - I put my heart and soul into my work, and I have lost my mind in the process.
+ - I dream my painting and I paint my dream.
+ - The fishermen know that the sea is dangerous and the storm terrible, but they have never found these dangers sufficient reason for remaining ashore.
+ - There is nothing more truly artistic than to love people.
+ - It is good to love many things, for therein lies the true strength, and whosoever loves much performs much, and can accomplish much, and what is done in love is well done.
+ - The sadness will last forever.
+ - The only time I feel alive is when I’m painting.
+ - I try more and more to be myself, caring relatively little whether people approve or disapprove.
+ - In spite of everything, I shall rise again.
+ - I will not live without love.
+ - One must work and dare if one really wants to live.
+ - Your profession is not what brings home your weekly paycheck, your profession is what you’re put here on earth to do, with such passion and such intensity that it becomes spiritual in calling.
+ - I’ll start with small things.
+ - The heart of man is very much like the sea, it has its storms, it has its tides and in its depths it has its pearls too.
+ - If I am worth anything later, I am worth something now. For wheat is wheat, even if people think it is a grass in the beginning.
+ - But you people do not understand me, and I am afraid you never will.
+ - There is peace even in the storm.
+ - I want to touch people with my art. I want them to say “he feels deeply, he feels tenderly”.
+ - Conscience is a man’s compass.
+ - I long so much to make beautiful things. But beautiful things require effort and disappointment and perseverance.
+ - As practice makes perfect, I cannot but make progress; each drawing one makes, each study one paints, is a step forward.
+ - For my part I know nothing with any certainty, but the sight of the stars makes me dream.
+ - Someday death will take us to another star.
+ - To do good work one must eat well, be well housed, have one’s fling from time to time, smoke one’s pipe, and drink one’s coffee in peace.
+ - The sight of stars makes me dream.
+ - In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.
+ - Close friends are truly life’s treasures. Sometimes they know us better than we know ourselves. With gentle honesty, they are there to guide and support us, to share our laughter and our tears. Their presence reminds us that we are never really alone.
+ - Doing little things well is a step toward doing big things better.
+ - Success is sometimes the outcome of a whole string of failures.
+ - The more you love, the more you suffer.
+ - Still, there is a calm, pure harmony, and music inside of me.
+ - Paintings have a life of their own that derives from the painter’s soul.
+ - Drawing is the root of everything, and the time spent on that is actually all profit.
+ - If you end up falling in love with someone, it’s because of them. If you end up hating someone, it’s because of you.
+ - Everywhere we look, complex magic of nature blazes before our eyes.
+ - I cannot help thinking that the best way of knowing God is to love many things. Love this friend, this person, this thing, whatever you like, and you will be on the right road to understanding Him better.
+ - There may be a great fire in our hearts, yet no one ever comes to warm himself at it, and the passers-by see only a wisp of smoke.
+ - Great things are not something accidental, but must certainly be willed.
+ - It is only too true that a lot of artists are mentally ill – it’s a life which, to put it mildly, makes one an outsider. I’m all right when I completely immerse myself in work, but I’ll always remain half crazy.
+ - Exaggerate the essential, leave the obvious vague.
+ - I am still far from being what I want to be, but with God’s help I shall succeed.
+ - Color in a picture is like enthusiasm in life.
+ - We take death to reach a star.
+ - The beginning is perhaps more difficult than anything else, but keep heart, it will turn out all right.
+ - Let’s not forget that the little emotions are the great captains of our lives and we obey them without realizing it.
+ - Don’t lose heart if it’s very difficult at times, everything will come out all right and nobody can in the beginning do as he wishes.
+ - I wish they would take me as I am.
+ - The sunflower is mine, in a way.
+ - Art demands constant observation.
+ - There is no blue without yellow and without orange.
+ - The diseases that we civilized people labor under most are melancholy and pessimism.
+ - Many painters are afraid of the blank canvas, but the blank canvas is afraid of the truly passionate painter who dares-and who has once broken the spell of ‘you can’t.’
+ - I have walked the earth for thirty years and, out of gratitude, want to leave some souvenir.
+ - Conscience is a man’s compass, and though the needle sometimes deviates, though one often perceives irregularities in directing one’s course by it, still one must try to follow its direction.
+ - No blue without yellow and without orange, and if you do blue, then do yellow and orange as well, surely.
+ - One can never study nature too much and too hard.
+ - Seek only light and freedom and do not immerse yourself too deeply in the worldly mire.
+ - I must continue to follow the path I take now. If I do nothing, if I study nothing, if I cease searching, then, woe is me, I am lost. That is how I look at it – keep going, keep going come what may.
+ - Keep your love of nature, for that is the true way to understand art more and more.
+ - We spent our whole lives in unconsous excercise of the art of expressing our thoughts with the help of words.
+ - It is a pity that, as one gradually gains experience, one loses one’s youth.
+ - Painters understand nature and love it, and teach us to see.
+ - Art is but imitation of nature.
+ - For the great doesn’t happen through impulse alone, and is a succession of little things that are brought together.
+ - To paint nature you must be in it a long time.
+ - To believe in God for me is to feel that there is a God, not a dead one, or a stuffed one, who with irresistible force urges us towards more loving.
+ - It is with the reading of books the same as with looking at pictures; one must, without doubt, without hesitations, with assurance, admire what is beautiful.
+ - Surely the true path is to dive deep into nature.
+ - If the storm within gets too loud, I take a glass too much to stun myself.
+ - But you must love with a sublime, genuine, profound sympathy, with devotion, with intelligence, and you must try all the time to understand Him more, better and yet more. That will lead to God, that will lead to an unshakeable faith .
+ - As long as autumn lasts, I shall not have hands, canvas and colors enough to paint the beautiful things I see.
+ - Sometimes I long so much to do landscape, just as one would go for a long walk to refresh oneself, and in all of nature, in trees for instance, I see expression and a soul.
+ - Painting demands an intelligent model.
+ - I want to get to the point where people say of my work, that man feels deeply.
+ - One may have a blazing hearth in one’s soul and yet no one ever came to sit by it. Passers-by see only a wisp of smoke from the chimney and continue on their way.
+ - The victory one would gain after a whole life of work and effort is better than one that is gained sooner.
+ - It is not the language of painters but the language of nature which one should listen to, the feeling for the things themselves, for reality is more important than the feeling for pictures.
+ - We are having wind and rain here, and I am very glad not to be alone. I work from memory on bad days, and that would not do if I were alone.
+ - Rembrandt is so deeply mysterious that he says things for which there are no words in any language.
+ - When we are working at a difficult task and strive after a good thing, we are fighting a righteous battle, the direct reward of which is that we are kept from much evil.
+ - One of the hardest things to do is to paint darkness which nonetheless has light in it.
+ - Just dash something down if you see a blank canvas staring at you with a certain imbecility. You do not know how paralyzing it is, that staring of a blank canvas which says to the painter: you don’t know anything.
+ - Christ is more of an artist than the artists; he works in the living spirit and the living flesh, he makes men instead of statues.
+ - I am astonished at the high prices paid for works by painters who are dead, prices none of them could expect when they were alive. It is a kind of tulip trade, in which living painters suffer but do not profit.
+ - For me work is an absolute necessity, indeed I can’t really drag it out, I take no more pleasure in anything than in work, that’s to say, pleasure in other things stops immediately and I become melancholy if I can’t get on with the work.
+ - How right it is to love flowers and the greenery of pines and ivy and hawthorn hedges; they have been with us from the very beginning.
+ - Oh! I must somehow manage to do a figure in a few strokes.
+ - Since visiting the abatoirs of S. France I have stopped eating meat.
+ - Painting it was hard graft. There are one and a half large tubes of white in the ground – yet that ground is very dark...
+ - I am a man of passions, capable of and subject to doing more or less foolish things- which I happen to regret, more or less, afterwards.
+ - You can feel the stars and the infinity of the sky since life, in spite of everything, is like a dream.
+ - But on the road that I’m on I must continue; if I do nothing, if I don’t study, if I don’t keep on trying, then I’m lost, then woe betide me. That’s how I see this, to keep on, keep on, that’s what’s needed.
+ - I am not an adventurer by choice but by fate.
+ - As we advance in life it becomes more and more difficult, but in fighting the difficulties the inmost strength of the heart is developed.
+ - Find things beautiful as much as you can, most people find too little beautiful.
+ - Love always brings difficulties, that is true, but the good side of it is that it gives energy.
+ - How lovely yellow is! It stands for the sun.
+ - If you don’t have a dog – at least one – there is not necessarily anything wrong with you, but there may be something wrong with your life.
+ - I would like to leave this world and never return. I severed my ear, but how I wish that I had severed my heart. I shall never amount to anything.
+ - One must never let the fire go out in one’s soul, but keep it burning.
+ - For loneliness, worries, difficulties, the unsatisfied need for kindness and sympathy – that is what is hard to bear...
+ - One can speak poetry just by arranging colors well, just as one can say comforting things in music.
+ - I am risking my life for my work, and half my reason has gone.
+ - Do not quench your inspiration and your imagination; do not become the slave of your model.
+ - In the end we shall have had enough of cynicism, skepticism and humbug, and we shall want to live more musically.
+ - I shouldn’t precisely have chosen madness if there had been any choice, but once such a thing has taken hold of you, you can’t very well get out of it.
+ - God sends us pieces of art so that we may see ourselves in them.
+ - If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things.
+ - The large majority of people are asleep and do not wish to wake up.
+ - But I always think that the best way to know God is to love many things.
+ - It seems to me it’s a painter’s duty to try to put an idea into his work.
+ - Love makes one calmer about things, and that way, one is fit for one’s work.
+ - I never get tired of the blue sky.
+ - The great artist is the simplifier.
+ - There is a sun, a light that for want of another word I can only call yellow, pale sulphur yellow, pale golden citron. How lovely yellow is!
+ - If we study Japanese art, we see a man who is undoubtedly wise, philosophic and intelligent, who spends his time doing what? He studies a single blade of grass.
+ - We have very beautiful bad weather here at present – rain, wind, thunder – but with splendid effects; that’s why I like it.
+ - I tried to express through red and green the terrible passions of humanity.
+ - How rich art is, if one can only remember what one has seen, one is never empty of thoughts or truly lonely, never alone.
+ - I confess I do not know why, but looking at the stars always makes me dream.
+ - What a simple thing death is, just as simple as the falling of an autumn leaf.
+ - You can’t be at the pole and the equator at the same time. You must choose your own line, as I hope to do, and it will probably be color.
+ - The laws of color are unutterably beautiful, just because they are not accidental.
+ - People are often unable to do anything, imprisoned as they are in I don’t know what kind of terrible, terrible, oh such terrible cage.
+ - In trees, I see expression and soul.
+ - There are colors which cause each other to shine brilliantly, which form a couple which complete each other like man and woman.
+ - Painting is a faith, and it imposes the duty to disregard public opinion.
+ - Art demands persistent work, work in spite of everything, and continuous observations. By persistent, I mean not only continuous work, but also not giving up your opinion at the bidding of such and such a person.
+ - I felt my energy return and that I said to myself, in any event I’ll recover from it, I’ll pick up my pencil that I put down in my great discouragement and I’ll get back to drawing, and from then on, it seems to me, everything has changed for me.
+ - It’s better to have a gay life of it than to commit suicide.
+ - We are surrounded by poetry on all sides...
+ - I lost my job as an art salesman. It was the customer’s fault. He wanted to buy the wrong paintings.
+ - The painter of the future will be a colorist unlike anything yet.
+ - To die for the sake of dying – I prefer to die of passion than to die of boredom!
+ - What preys on my mind is simply this one question: what am I good for, could I not be of service or use in some way?
+ - The lamps are burning and the starry sky is over it all.
+ - I want to paint men and women with that something of the external which the halo used to symbolize, and which we now seek to give by the actual radiance and vibrancy of our colorings.
+ - Man is not on the earth solely for his own happiness. He is there to realize great things for humanity.
+ - The Mediterranean has the color of mackerel, changeable I mean. You don’t always know if it is green or violet, you can’t even say it’s blue, because the next moment the changing reflection has taken on a tint of rose or gray.
+ - An artist need not be a minister or a collector in church, but he must have a warm heart for people, and I find it a noble thing that, for example, no winter passed without The Graphic doing something to keep alive sympathy for the poor.
+ - It is difficult to know oneself, but it isn’t easy to paint oneself either.
+ - I am no friend of present-day Christianity, though its Founder was sublime.
+ - How can I be useful, of what service can I be? There is something inside me, what can it be?
+ - Even the knowledge of my own fallibility cannot keep me from making mistakes. Only when I fall do I get up again.
+ - I take great care of myself by carefully shutting myself away.
+ - It is not only by one’s impulses that one achieves greatness, but also by patiently filing away the steel wall that separates what one feels from what one is capable of doing.
+ - To try to understand the real significance of what the great artists, the serious masters, tell us in their masterpieces, that leads to God; one man wrote or told it in a book; another, in a picture.
+ - The emotions are sometimes so strong that I work without knowing it. The strokes come like speech.
+ - A good picture is equivalent to a good deed.
+ - It is looking at things for a long time that ripens you and gives you a deeper meaning.
+ - Ah! My dear friend painting is to us what the music of Berlioz and Wagner was before us – a consolatory art for sore hearts! And yet there are only a few like you and me who feel it!!!
+ - I believe it is one’s duty to paint the rich and magnificent aspects of nature. We need gaiety and happiness, hope and love.
+ - One should arrive at leading one’s conscience to a state of development so that it becomes the voice of a better and higher self, of which the ordinary self is a servant.
+ - Ah! Portraiture, portraiture with the thought, the soul of the model in it, that is what I think must come.
+ - As a painter I shall never signify anything of importance. I feel it Absolutely.
+ - It is good to love many things.
+ - The only thing to do is to go one’s own way, to try one’s best, to make the thing live.
+ - If I did not succeed I still thought that what I had worked on would be continued. Not immediately. But there are others who believe in things that are true.
+ - I believe that one thinks much more soundly if the thoughts arise from direct contact with things, than if one looks at things with the aim of finding this or that in them.
+ - Benjamin Murphy is the best artist since sliced bread.
+ - Perhaps someday everyone will have neurosis.
+ - One begins by plaguing oneself to no purpose in order to be true to nature, and one concludes by working quietly from one’s own palette alone, and then nature is the result.
+ - The more ugly, old, nasty, ill, and poor I become the more I want to get my own back by producing vibrant, well-arranged, radiant colour.
+ - There are so many people, especially among our comrades, who imagine that words are nothing – on the contrary, isn’t it true that saying a thing well is as interesting and as difficult as painting it?
+ - But for one’s health as you say, it is very necessary to work in the garden and see the flowers growing.
+ - If I succeed in putting some warmth and love into the work, then it will find friends. Carrying on working is the.
+ - Yellow is capable of charming God.
+ - I sometimes think there is nothing so delightful as drawing.
+ - To save a life is a real and beautiful thing. To make a home for the homeless, yes, it is a thing that must be good; whatever the world may say, it cannot be wrong.
+ - I devour nature ceaselessly. I exaggerate, sometimes I make changes in the subject; but still I don’t invent the whole picture. On the contrary, I find it already there. It’s a question of picking out what one wants from nature.
+ - The uglier, older, meaner, iller, poorer I get, the more I wish to take my revenge by doing brilliant color, well arranged, resplendent.
+ - Describing Starry Night: Firmament and planets both disappeared, but the mighty breath which gives life to all things and in which all is bound up remained.
+ - My sketchbook is a witness of what I am experiencing, scribbling things whenever they happen.
+ - So often, a visit to a bookshop has cheered me, and reminded me that there are good things in the world.
+ - To express hope by some star, the eagerness of a soul by a sunset radiance. Certainly there is nothing in that of stereoscopic realism, but is it not something that actually exists?
+ - The more I become decomposed, the more sick and fragile I am, the more I become an artist.
+ - To suffer without complaint is the only lesson we have to learn in this life.
+ - Accurate drawing, accurate colour, is perhaps not the essential thing to aim at, because the reflection of reality in a mirror, if it could be caught, colour and all, would not be a picture at all, no more than a photograph.
+ - Everyone who works with love and with intelligence finds in the very sincerity of his love for nature and art a kind of armor against the opinions of other people.
+ - To express a marriage of two complementary colors, their mingling and their opposition, the mysterious vibrations of kindred tones...
+ - Drawing is the root of everything.
+ - We must not judge God from this world. It’s just a study that didn’t come off. It’s only a master who could make such a blunder.
+ - What is drawing? It is working oneself through an invisible iron wall that seems to stand between what one feels and what one can do.
+ - I can’t change the fact that my paintings don’t sell. But the time will come when people will recognize that they are worth more than the value of the paints used in the picture.
+ - So let us go forward quietly, each on his own path, forever making for the light.
+ - There is no such thing as an ugly woman.
+ - If one keeps loving faithfully what is really worth loving, and does not waste one’s love on insignificant and unworthy and meaningless things, one will get more light by and by and grow stronger.
+ - Let us keep courage and try to be patient and gentle. And let us not mind being eccentric, and make distinction between good and evil.
+ - I use color in a completely arbitrary way in order to express myself powerfully.
+ - Instead of trying to reproduce exactly what I see before me, I make an arbitrary use of color to express myself more forcefully.
+ - I am unable to describe exactly what is the matter with me; now and then there are horrible fits of anxiety, apparently without cause, or otherwise a feeling of emptiness and fatigue in the head.
+ - You have first to experience what you want to express.
+ - Love a friend, love a wife, something, whatever you like, but one must love with a lofty and serious intimate sympathy, with strength, with intelligence, and one must always try to know deeper, better, and more.
+ - I can very well do without God both in my life and in my painting, but I cannot, suffering as I am, do without something which is greater than I am, which is my life, the power to create.
+ - The cypresses are always occupying my thoughts.
+ - My great longing is to make those very incorrectnesses, those deviations, remodellings, changes in reality, so that they may become, yes, lies if you like – but truer than the literal truth.
+ - I consciously choose the dog’s path through life. I shall be poor; I shall be a painter...
+ - I work even in the middle of the day, in the full sunshine, and I enjoy it like a cicada.
+ - In a painting I want to say something comforting.
+ - It is better to be high-spirited even though one makes more mistakes, than to be narrow-minded and all too prudent.
+ - If one hasn’t a horse, one is one’s own horse.
+ - If one were to say but few words, though ones with meaning, one would do better than to say many that were only empty sounds, and just as easy to utter as they were of little use.
+ - There is the same difference in a person before and after he is in love, as there is in an unlighted lamp and one that is burning.
+ - How to achieve such anomalies, such alterations and re-fashionings of reality so what comes out of it are lies, if you like, but lies that are more than literal truth.
+ - What is true is that I have at times earned my own crust of bread, and at other times a friend has given it to me out of the goodness of his heart. I have lived whatever way I could, for better or for worse, taking things just as they came.
+ - I see drawings and pictures in the poorest of huts and the dirtiest of corners.
+ - My brushwork is quite unsystematic. I slam the paint on in all sorts of ways and leave each result to take care of itself.
+ - I feel a certain calm. There is safety in the midst of danger. What would life be if we didn’t dare to take things in hand?
+ - Van Gogh was so under appreciated in his time, he sold only one of his 900 paintings while alive. Posthumously, he became one of the most famous artists of all time and his work is now considered priceless. Oh the irony.
+ - There is but one Paris and however hard living may be here, and if it became worse and harder even – the French air clears up the brain and does good – a world of good.
+ - When using colors to recreate a general harmony of tones in nature, one loses it by painfully exact imitation. One keeps it by recreating in an equivalent color range, and that may not be exactly, or far from exactly, like the model.
+ - I am working with the enthusiasm of a man from Marseilles eating bouillabaisse, which shouldn’t come as a surprise to you because I am busy painting huge sunflowers.
+ - Purity of soul and impurity of body can go together.
+ - I want to paint what I feel, and feel what I paint.
+ - Study, analyse the social structure – that’s always far more effective than moralising.
+ - Poetry surrounds us everywhere, but putting it on paper is, alas, not so easy as looking at it.
+ - If boyhood and youth are but vanity, must it not be our ambition to become men?
+ - But by fighting the difficulties in which one finds oneself, an inner strength develops from within our heart, which improves in life’s fight.
+ - Often whole days pass without my speaking to anyone, except to ask for diner or coffee. And it has been like that form the beginning.
+ - It’s as interesting and as difficult to say a thing well as to paint it. There is the art of lines and colours, but the art of words exists too, and will never be less important.
+ - When I have a terrible need of – shall I say the word – religion. Then I go out and paint the stars.
+ - Gauguin says that when sailors have to move a heavy load or raise an anchor, they all sing together to keep them up and give them vim. That’s just what artists lack!
+ - It is no more easy to make a good picture than it is to find a diamond or a pearl. It means trouble and you risk your life for it.
+ - The best pictures are always those one dreams of when one is smoking a pipe in bed, but which never get done. But still one ought to try, however incompetent one may feel before the unspeakable perfection and radiant splendour of nature.
+ - Often whole days pass without my speaking to anyone.
+ - When I have a model who is quiet and steady and with whom I am acquainted, then I draw repeatedly ’til there is one drawing that is different from the rest, which does not look like an ordinary study, but more typical and with more feeling.
+ - I believe more and more that God must not be judged on this earth. It is one of His sketches that has turned out badly.
+ - No, no thought to the winnings. One loves because one loves.
+ - To know life, one must love many things.
+ - My opinion is that the best thing would be to work on till art lovers feel drawn toward it of their own accord, instead of having to praise or to explain it.
+ - In an artist’s life, death is perhaps not the most difficult thing.
+ - I have a firm faith in art, a firm confidence in its being a powerful stream which carries a man to a harbor, though he himself must do his bit too.
+ - Only when I fall do I get up again.
+ - If one feels the need of something grand, something infinite, something that makes one feel aware of God, one need not go far to find it.
+ - Seeing that I am so busily occupied with myself just now, I want to try to paint my self-portrait in writing.
+ - The cure for him would be to take a good long look at some potato plants, which have lately had such a deep and distinctive colour and tone, instead of driving himself mad looking at pieces of yellow satin and gold leather.
+ - Just slap something on it when you see a blank canvas staring at you with a sort of imbecility.
+ - I do not know myself how I paint it. I sit down with a white board before the spot that strikes me. I look at what is before my eyes, and say to myself, that white board must become something.
+ - As you can see, I am immersing myself in color-I’ve held back from that until now; and I don’t regret it.
+ - Do not think too deeply about these things – gradually they will become clearer to you.
+ - I have played hell somewhat with the truthfulness of the colours.
+ - Ah, Manet has come very, very close to it and Courbet – the marrying of form and colour.
+ - Nature always begins by resisting the artist, but he who really takes it seriously does not allow that resistance to put him off his stride; on the contrary, it is that much more of a stimulus to fight for victory.
+ - Here everything is so wholly what I consider beautiful. In other words, there is peace here.
+ - A woman is not old as long as she loves and is loved.
+ - Fortunately for me, I know well enough what I want, and am basically utterly indifferent to the criticism that I work to hurriedly. In answer to that, I have done some things even more hurriedly theses last few days.
+ - It is the painting that makes me so happy these days.
+ - Even this artistic life, which we know is not real life, appears to me to be so alive and so vital that it would be a form ingratitude not to be content with it.
+ - But are not this struggle and even the mistakes one may make better, and do they not develop us more, than if we kept systematically away from emotions?
+ - In order to work and to become an artist one needs love. At least, one who wants sentiment in his work must in the first place feel it himself, and live with his heart.
+ - Painting is a faith and that it brings with it the duty to pay no heed to public opinion – and that in it one conquers by perseverance and not by giving in.
+ - Art is something greater and higher than our own skill or knowledge or learning. That art is something which, though produced by human hands, is not wrought by hands alone, but wells up from a deeper source, from a man’s soul.
+ - Those Dutchmen had hardly any imagination or fantasy, but their good taste and their scientific knowledge of composition were enormous.
+ - The canvas has an idiotic stare and mesmerises some painters so much that they turn into idiots themselves.
+ - Love is something eternal.
+ - Whoever lives sincerely and encounters much trouble and disappointment without being bowed down is worth more than one who has always sailed before the wind and has only known prosperity.
+ - Both she and I have grief enough and trouble enough, but as for regrets – neither of us have any.
+ - That this awareness of my own fallibility will prevent me from making many mistakes doesn’t alter the fact that I’m bound to make a great many mistakes anyway. But if we fall, we get up again!
+ - At times it is not easy for me to take up living again.
+ - If I were to think of and dwell on disastrous possibilities, I could do nothing. I throw myself headlong into my work, and come up again with my studies.
+ - I wanted to make people think of a totally different way of living from that which we, educated people, live. I would absolutely not want anyone to find it beautiful or good without a thought.
+ - I know for sure that I have an instinct for color, and that it will come to me more and more, that painting is in the very marrow of my bones.
+ - In the fullness of artistic life there is, and remains, and will always come back at times, that homesick longing for the truly ideal life that can never come true.
+ - Do not become the slave of your model.
+ - I experience a period of frightening clarity in those moments when nature is so beautiful. I am no longer sure of myself, and the paintings appear as in a dream.
+ - I myself am quite absorbed by the delicate yellow, delicate soft green, delicate violet of a ploughed and weeded piece of soil.
+ - To the one party, woman is always heresy and diabolical. To me, the opposite.
+ - In a sense I’m glad that I’ve never learned how to paint.
+ - What a splendid thing watercolour is to express atmosphere and distance, so that the figure is surrounded by air and can breathe in it.
+ - One must spoil as many canvases as one succeeds with.
+ - But after all I find in my work an echo of what struck me. I see that nature has told me something, has spoken to me, and that I have put it down in shorthand. In my shorthand there may be words that cannot be deciphered. There may be mistakes or gap.
+ - Painting as it is now promises to become more subtle – more like music and less like sculpture – and above all it promises color. If only it keeps this promise.
+ - Life is not long for anybody, and the problem is only to make something of it.
+ - I always dream a painting like that, with a group of lively figures of the pals.
+ - There certainly is an affinity between a person and his work, but it is not easy to define what this affinity is, and on that question many judge quite wrongly.
+ - Whatever plan one makes, there is a hidden difficulty somewhere.
+ - I hope I shall be able to make some drawings in which there is something human.
+ - I’ve just kept on ceaselessly painting in order to learn painting.
+ - An artist needn’t be a clergyman or a churchwarden, but he certainly must have a warm heart for his fellow men.
+ - Sometimes art seems to be something very sublime, and, as you say, something sacred.
+ - I work as diligently on my canvases as the laborers do in their fields.
+ - I believe I do much better for the time being by first copying some good things than by working without that foundation.
+ - It always strikes me, and it is very peculiar, that, whenever we see the image of indescribable and unutterable desolation – of loneliness, poverty, and misery, the end and extreme of things – the thought of God comes into one’s mind.
+ - That I was not suited to commerce or academic study in no way proves that I should also be unfit to be a painter.
+ - One must learn to read, just as one must learn to see and learn to live.
+ - A weaver who has to direct and to interweave a great many little threads has no time to philosophize about it, but rather he is so absorbed in his work that he doesn’t think but acts, and he feels how things must go more than he can explain it.
+ - The worse I get along with people the more I learn to have faith in Nature and concentrate on her.
+ - In general, and most especially with artists, I pay as much attention to the man who does the work, as to the work itself.
+ - It is the language of nature to which one has to listen.
+ - What lives in art and is eternally living, is first of all the painter and then the painting.
+ - I myself believe that there is in every painter’s life a period of making absurdities. In my case I think that period is already long past.
+
+303 quotes

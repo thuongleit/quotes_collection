@@ -1,0 +1,151 @@
+ - Whenever I meet a pretty girl, the first thing I look for is intelligence; because if she doesn’t have that, then she’s mine.
+ - Dark humor appealed to me because it was a bigger laugh than you could get with anything else. Seeing people laugh at something inappropriate with their whole bodies, a guttural, visceral laugh beyond a mere “hah.”
+ - The world is full of horrible things that will eventually get you and everything you care about. Laughter is a universal way to lift your head up and say: ‘Not today, you bastards.’
+ - I’m a realist all the way. I’m too cynical to be an optimist. But I’ve lived too much of a charmed life so far to ever be a pessimist.
+ - My girlfriend is upset about her new haircut. I don’t understand why she’s crying. I’m the one who has to get a new girlfriend.
+ - I would write 100 jokes a day. Most of them were terrible. But I just said, ‘I’ll write more than everybody else, and that’s how I’ll get better.’
+ - My girlfriend asked me if I only love her for her body. I said no, baby. Just parts of it.
+ - You look like you deep fry your hands before you bite your fingernails.
+ - Childhood obesity affects all pedophiles.
+ - My dad was a complicated man. He was a huge racist, my dad, but he still tried to be a good father, you know? Like, he would tell me that Santa Claus was black – that way, when I found out he didn’t exist, it wouldn’t be that big a let down.
+ - Do whatever you want to do, whenever you want to do it.
+ - My sister just had a baby, a little newborn. The kid is adorable, so cute. She wouldn’t let me hold him, she refuses. She says, ‘No way, Anthony, I’m afraid you’re gonna drop him.’ I’m 32 years old. Like I’m some kind of idiot. Like I don’t have a million other ways to hurt that baby.
+ - My girlfriend is Jewish. But it’s easier to buy her a Christmas present and then break it into 8 pieces.
+ - With comics, you always talk about a big break, but there are a lot of big breaks in your life and not one of them makes a big difference.
+ - You’ll get my assault weapon when you pry it out of my curious six-year-old’s cold dead hands.
+ - I’m not a religious person; I would call myself an atheist. I don’t have a good story behind it, I’m just reasonable.
+ - I’m very arrogant and mean. I’m almost like a bad guy professional wrestler.
+ - I let a friend set me up on a blind date. It was a disaster. She ended up being a burn victim. By the end of the night.
+ - Father’s Day makes me wish I could talk to my Dad just one more time, instead of all the time.
+ - Mike Tyson, what can I say about you that hasn’t already been the title of a Richard Pryor album?
+ - When I finished high school, I wanted to take all my graduation money and buy myself a motorcycle. But my mom said no. See, she had a brother who died in a horrible motorcycle accident when he was 18. And I could just have his motorcycle.
+ - What do I care if someone doesn’t like me. If I like someone other people hate, it makes me feel special. I think my fans feel that way.
+ - Katey Sagal, you are an incredible actress. You worked on ‘Married with Children,’ the show that changed comedy, ‘Sons of Anarchy,’ the show that took comedy to a whole new level and ‘8 Simple Rules,’ the show that killed John Ritter.
+ - I have a rare form of body dysmorphia in which I absolutely can’t stand how good I look.
+ - I feel worthless. My girlfriend was attacked on the subway yesterday. And I can’t even enjoy it.
+ - If your house is on fire and you can only escape with your life and one thing, what one thing would you take out of your house? I got to think my laptop is the one thing that is totally irreplaceable. Either that or my son. Laptop. I’ll go laptop.
+ - Comedy Central made me delete the Boston Marathon joke. I wasn’t happy about it but, despite popular belief, I can occasionally be a team player.
+ - The opposite of sad is down’s syndrome.
+ - The one thing I’ve found you really can’t joke about – and people think it’s death or something – is money. No one thinks it’s funny, whether you have it or you don’t. Money is just something no one seems to like joking about.
+ - I want to get a tattoo of the word irony, only misspelled.
+ - People say it’s easy to make fun of retarded people, but it’s not. You really have to explain it to them.
+ - Sure, my uncle killed himself playing Russian Roulette. But I choose to remember him as a great Russian Roulette player.
+ - My girlfriend wants an open relationship. I said no way. What kind of man would I be if I had to tell my friends I date you?
+ - It’s impossible for me to hear the words quadruple murder suicide without thinking of my grandparents.
+ - My great grandmother threw herself in front of a bus. The police tried to say she was committed suicide but the family knew she was just trying to stop civil rights.
+ - I would never hit a woman – even if she had a knife or a stutter.
+ - People are surprised that I’m nice and it helps me out a little bit; it’s easy to be nice when everyone thinks you’re going to be a jerk but if people think you’re a nice guy then it’s tough because it’s what they expect.
+ - This past Christmas, I told my girlfriend for months in advance that all I wanted was an Xbox. That’s it. Beginning and end of list, Xbox. You know what she got me? A homemade frame with a picture of us from our first date together. Which was fine. Because I got her an Xbox.
+ - I can drink like a fish, or at least, someone born with fetal alcohol syndrome.
+ - I like to play pranks on my girlfriend, you know, keep things fresh for me, make me laugh, you know? She hates it. But like, the other night, I put Saran wrap over the toilet seat, you know, which doesn’t sound that original, but she’s bulimic.
+ - The best way to break up with a girl is like I’m taking off a band-aid. Slowly and in the shower.
+ - I know her in the biblical senseand when I say that, I mean I don’t believe a word she says.
+ - Sure, retarded jokes write themselves. But the spelling is always way off.
+ - I’m getting pretty worried. My girlfriend hasn’t gotten her period. And she’s already 14.
+ - Who do you think was smarter, Jesus or Buddha? I mean, just in terms of not letting themselves get crucified.
+ - Hitler really wasn’t so bad. In the black way.
+ - I’m inspired by making people laugh at subjects that should make them cry.
+ - I was a weird kid because I liked to be alone, but I craved attention. It was important for me to be cool, but I couldn’t keep my mouth shut. So I was either talking for the sake of talking, or I was curled up with a book somewhere hiding from everyone.
+ - I can’t talk politics with my cousin because he’s such a hypocrite. He’s against the death penalty and he hanged himself.
+ - My girlfriend is despicable. I just found out she flirted with my brother, during my mom’s funeral, while I was asleep.
+ - When my girlfriend cooks dinner, I’m happy to do the dishes. Because I make her wash dishes when I take her to a restaurant.
+ - I’m a comedian and there are a lot of things I’m still learning. I love one liners because I love smart jokes. I also don’t like complaining about society or whining about my life on stage.
+ - God, that Anthony Jeselnik Show sounds really funny.
+ - My sister is going to have a simple wedding. Just immediate family. And whoever the hell would want to marry her.
+ - I’ve got a long history of suicid in my family; the good news is it skips a generation, so, if I’m lucky, my kids will kill themselves.
+ - It’s always difficult when someone close to you passes away. But it’s really tough when they’re on top of you.
+ - I try to retire jokes as soon as I can once I put them on an album. But I can’t think of anything I just stopped doing for no reason.
+ - When I die, I want to be cremated with everybody.
+ - I didn’t care about the backlash. I think the reason it was so severe was because they didn’t know anything about me in New Zealand. If I had made jokes about a shark attack in the US, no one would have cared.
+ - I feel like every first episode of a TV show is bad, you know, and it always improves.
+ - I wish my family had taken more pictures when I was growing up. Instead of always having to draw everything.
+ - I was a terrible employee. I’ve been fired from almost every job I’ve ever had, luckily, in a good way, or else I’d be stuck. I would always joke around with everybody, and no one enjoyed my humor.
+ - I’m actually a really nice guy, once you get to blow me.
+ - I love Austin, but last time I was in town for twelve hours. I was exhausted, drunk and miserable. But none of that was Austin’s fault.
+ - Stereotypes wouldn’t be so bad if black people were nicer, in general.
+ - A couple of months ago, I gave my girlfriend some fancy lingerie, and she actually got mad at me. She said, ‘Anthony, I think this is more of a gift for you than it is for me.’ And I said, ‘If you want to get technical, it was originally a gift for my last girlfriend.’
+ - I was raised Catholic. I rejected it later on. I’m an outspoken atheist now. People say, ‘Oh, it’s a negative thing to be an atheist.’ I don’t agree. I think it’s more optimistic to think that there is no God, no afterlife.
+ - When I was seven, I broke my leg playing soccer. Just to feel something.
+ - I would love to DJ the royal wedding. Just so I could play Candle in the Wind non-stop.
+ - There is nothing that’s off limits. If people think something is off limits, I make it my business to go make a joke about it; that’s my job.
+ - Watching soccer just makes me wish I was watching Foosball.
+ - I prefer to sleep with deaf girls. Those crazy chicks never have a safe word.
+ - What do they call that hat Jewish guys always wear? A Yankees cap.
+ - My favorite sport is football. I’m a die hard Steelers fan. Favorite players were Hines Ward and Greg Lloyd.
+ - I was always fascinated by forbidden things people didn’t want to talk about, like death.
+ - On Twitter, when someone would die, I would write a joke. Or if there’s a tragedy, I would write a joke and tweet it. That was my thing, and then at a certain point, people started demanding it.
+ - Disasters are funny to me. As a comedian you learn from failure, so I’m always trying to put myself in a situation that does not seem ideal for my comedy and see how it works.
+ - I enjoyed writing for someone elses voice, but I wasnt very good at it.
+ - I don’t ever want to have kids of my own. But I do want a lot of kids.
+ - I’m not a comedy writer, I’m a comedian, so I only write stuff that I would want to say.
+ - The world is full of horrible things...
+ - I hated my mom for not letting me play football as a kid. So when I have kids someday, I guarantee they’ll never meet their grandmother.
+ - Yeah we’re not together anymore. She has got – she has got a new boyfriend now. They just moved into together. And I’ve heard rumors that he is abusive, which makes you want to go over there with a baseball bat. And then blame it on her boyfriend.
+ - My mom’s been having a hard time lately. She just found out that she has to have both of her breasts removed – if she’s ever going to be good at golf.
+ - We just found out my little brother has a peanut allergy, which is very serious I know. But still I feel like my parents are totally overreacting – they caught me eating a tiny little bag of airline peanuts and they kicked me out of his funeral.
+ - Doctor just told me I can’t have kids. I asked for a second opinion. He said, Why? No one’s gonna to let you take kids from this hospital.
+ - Halloween is just a made up holiday, created by the razor blade industry.
+ - I could see myself adopting a kid someday. But, obviously, I’d prefer it to be aborted.
+ - I like the idea of being the funny guy in the dramatic thing, playing a hit man with a weird sense of humor.
+ - I think brilliant stuff comes out of working with limitations. One liners are very limiting, but that’s what drew me to them in the first place.
+ - Of all the ways people save time, I think racism is the worst.
+ - I will never understand how a mother can kill her own baby and not get away with it.
+ - I don’t have much racial stuff in my act. And no one’s ever really threatened me to my face. Threats on the internet don’t bother me so much.
+ - I try to write three jokes every morning, although I don’t know what they are. I write them as fast as I can, then I put them away for a month. So I couldn’t even tell you what they are, or if they’re good. I just assume they weren’t.
+ - I don’t have a type, really. But I’ve always been more attracted to girls who yell fire.
+ - Im not the voice of reason; Im more the guy using these offensive topics as fodder to raise tension in a joke.
+ - Racist dermatologists think all black people have really bad skin.
+ - It seemed fun to play a villain on stage and I wanted my jokes to be so good that I could just calmly tell them on stage.
+ - The true meaning of Christmas is actually centuries of gullibility.
+ - One of my favorite things on the show was just getting to do my own monologue and talking about someone who killed themselves, or making a joke about some horrible tragedy – I love being able to fight for and get on TV. I just think it’s so different.
+ - Disgusting. I just found my grandpa’s Viagra. I swear, I almost puked from eating so many.
+ - I spent all night feeding the homeless to dogs.
+ - I never go see live comedy shows because I just sit in the audience thinking, “Here’s what I would say. Here’s what I would do if I got up there.” It drives me crazy.
+ - I loved Stephen Wright, and I loved Mitch Hedberg, but they seemed like geniuses you could never emulate. You’d just be ripping them off.
+ - I think some people just don’t know that much about comedy. It would be like a person who didn’t know anything about football thinking all offensive linemen are the same.
+ - Every comic went through their Mitch Hedberg phase – the glasses, the hair in the face – and you knew immediately when they were doing it.
+ - I’ve got a kid in Africa that I feed, that I clothe, that I school, that I inoculate for 75 cents a day. Which is practically nothing compared to what it cost to send him there.
+ - It was important to me to be cool as a comedian. I didn’t want to be a crowd-pleaser who sent out the vibe of, “I need you guys.” I wanted to be so cool that the audience could leave and I would still be killing, that I didn’t want to have to rely on them or need them. That really appealed to me.
+ - When I was little, I would burn ants with a magnifying glass. But now that I’m older, I’m more of a cat guy.
+ - I was always cutting words. I even would write my jokes in my notebook. I still do this, almost like a poem.
+ - My ultimate goal is to do whatever I want, whenever I want to do it. And that keeps changing. I didn’t want to host my own show until I wrote for someone else’s.
+ - Perhaps I’m being too optimistic, but I think this country is finally ready for a black serial killer.
+ - I like seeing what the comedian thinks is funny, not just what they think I’ll think is funny.
+ - I always loved comedy, but it never seemed like something that I could do professionally.
+ - I’ve always been fascinated by dark subjects, especially people’s reactions to them. Why are people so uncomfortable talking about death if everyone dies?
+ - Ellen Barkin, your upcoming TV show ‘The New Normal’ premiers on September 11th. September 11th, that sounds about right. Every clip I’ve seen feels like I’m watching a third tower collapse.
+ - I grew up in a poor family. I had to cut everyone’s hair, because we didn’t have money for entertainment.
+ - Everyone gets laid off and everyone in Hollywood gets unemployment for six months while they’re looking for a new job. So I would just do stand-up for six months and think I was really making it, and when my unemployment ran out, I had to get another job immediately.
+ - I think a theater show is a pure version of me doing my material. The theater crowd is a bit more polite, there really aren’t hecklers, and there are a lot of people there to see me, and they’re excited about the jokes and hanging out with me for a show.
+ - On the show, you have to be more charismatic, a little smoother, but I think I can still be that prince of darkness. You just have to learn the tricks of the TV trade as well.
+ - I had a happy childhood in a nice suburban area, pretty idyllic, upper middle class and very, very white. My dad is an attorney. My mother is a housewife. They had five kids in seven years: me, my brother, and three sisters. I’m the oldest. We were all very active. My mother was exhausted.
+ - I don’t want to wake up with cops surrounding my bed tonight.
+ - I guess I prefer the laughs. I couldn’t do a whole set of just shocks, but I like throwing a fastball inside every now and then to keep people on their toes.
+ - In comedy, I hate that cop-out where you say, “Just kidding.” I know you’re just kidding. Don’t insult my intelligence by spelling it out for me that much.
+ - Every Sunday my dad calls to ask if I went to church. And every Sunday I lie and say: Sorry. Wrong Number.
+ - Yesterday I accidentally hit a little kid with my car. It wasn’t serious – nobody saw me.
+ - In a late-night monologue, it’s not just about being funny; you have to come off as knowledgeable. You have to cultivate a persona of trust and intelligence and likeability.
+ - Donald, I’m not sure if you’re even aware of this, but the only difference between you and Michael Douglas from the movie, Wall Street, is that no one’s going to be sad when you get cancer.
+ - I got an email from my ex, telling me that she has AIDS. I didn’t know how to comfort her, so I just wrote back I know.
+ - My dad was amazing. He raised five boys. All by himself. Without the rest of us knowing.
+ - An offended audience member repeating a comedian’s act from memory is worse than, literally, anything.
+ - That’s the worst way you can hear about comedy material: from a third person’s blog story that they wrote when they were upset.
+ - I’m fascinated by offensive subject matter. Always have been. It is very natural to me, as any teach I’ve ever had growing up could attest.
+ - I had written for Jimmy Kimmel and Sarah Silverman in the past. Jimmy had a different voice, and different priorities. He couldnt be the bad guy in the joke; he couldnt upset people, really.
+ - Tom Cruise’s pre-nup lets him keep his money, the kids and Katie Holmes.
+ - I got into comedy because I wanted to get into writing.
+ - I never knew if I would get my own show, but I knew I loved stand-up.
+ - I can stand by a tweet. But Comedy Central said they couldn’t publicly support me, unless I deleted it. I wasn’t about to tell the people who work for me that they didn’t have jobs anymore because I wasn’t going to delete a stupid tweet.
+ - I’m trying to teach my girlfriend how to surf. But I just end up yelling at her the whole time. Because I don’t know how to surf.
+ - I think the reason I became funny was because if I made people laugh, they would let me keep talking.
+ - I think my friends wife has been banging a black guy. Because they just had a baby. And the baby had a hole in it.
+ - I killed a squirrel once with a car. Twice with a tennis racket.
+ - I don’t think people shouldn’t try to be edgy, but you have to take what the audience says to you in consideration.
+ - My favorite part of going to a wedding is ruining the wedding.
+ - If I tell a joke on stage and the crowd laughs for a minute, I stand there for a minute and enjoy them laughing before I go on to the next joke. On TV, if I stand there for a minute while they laugh, I look like an idiot who can’t remember the next joke.
+ - The driving force behind doing everything that I’ve been doing as a stand-up is having problems with authority and not liking to be told what to do.
+ - I don’t think Metallica sits around all day wondering why country music fans don’t embrace them.
+ - In the second grade, I would just get bored and a joke would pop into my head and I would have to say it. It was almost like I had some brilliant novel in my head that I had to get down, and I would interrupt class all the time and get in trouble.
+ - Larry King is so old, he’s actually one of the Jews that killed Christ.
+
+149 quotes

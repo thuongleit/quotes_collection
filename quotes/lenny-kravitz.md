@@ -1,0 +1,162 @@
+ - I want to get away, I want to fly away. Yeah, yeah, yeah.
+ - Love, creativity, and opportunity is in the air. Take it in and do your thing.
+ - Love is the most powerful energy there is.
+ - I don’t play the tuba.
+ - It’s very important to vote. People died for this right.
+ - Being free is a state of mind.
+ - We have so many distractions. We’re losing the family unit. We’re losing the one-on-one. We’re becoming extremely narcissistic. And we have to be careful about that. There’s a lot to deal with out there.
+ - The idea of having to conform to someone else’s ideal is unacceptable. I’m gonna be me. And if I can’t be me, then I’d rather not do it.
+ - I’ve always had to deal with being biracial, even in music. When I came on the scene, I’d go to these record labels, and they’d say things like, “Lenny Kravitz. That’s a weird name.” I’m brown-skinned and I’ve got these dreadlocks and I’ve got this Jewish last name.
+ - I was taught by my grandfather that anything that your mind can conceive, you can have. It’s a reality.
+ - Change is growth. For me it has been a very spiritual and musical rebirth.
+ - I am trying to get closer to God.
+ - Music, for me, is completely self-indulgent. I write it, I play the instruments, I arrange it, I produce it. It’s all about me – as it should be.
+ - My life is perfect because I accept it as it is.
+ - God is always in my life, and that’s the most important thing to me.
+ - My dream is to become a farmer. Just a Bohemian guy pulling up his own sweet potatoes for dinner.
+ - Mothers love you to the end, and she didn’t want to hold me back from my livelihood. So I left for a month and called her every couple of days. I came home and she died 24 hours later.
+ - The way I was raised and the people that I grew up around for the most part were very humble people, and I appreciate all that they taught me, and their energy and their magnanimity help keep me grounded.
+ - We weren’t put here to be miserable. We were put here to do the best we can, and we should take our energy and improve our state of being.
+ - If you heard my records and no one told you, I don’t think you’d know whether it’s a band or one guy.
+ - The fans of ‘The Hunger Games,’ of the book, are very passionate. It’s funny: Even at my concerts there are people holding up ‘Cinna’ signs.
+ - One day we’re going to watch people fight to the death, like Roman times. Instead of being in a coliseum, we’re going to watch it on TV.
+ - Eleutheria, the fire is burning. Eleutheria, the tables are turning.
+ - Are things getting better with each generation? Yes. It’s quite interesting to be living in these times, for me to witness an African-American being elected president. It’s quite extraordinary.
+ - I fell in love with Paris the first time I went.
+ - I am not trying to change the world. I am just offering my gift that God gave me, and if somebody is moved by it, that’s beautiful.
+ - Personal relationship with God is not all just the ceremony and not the religion of doing something because you were told that’s what you have to do; it’s relationships, it’s like we have relationships with our families, with our friends, with our loved ones.
+ - I basically camped out for a year and a half in an Airstream trailer on the beach out in front of the studio. I had no idea what I was gonna do, what kind of album I was gonna make – all I knew was that I wanted to sit there and just take in whatever came.
+ - I didn’t really listen to rock ‘n’ roll until I moved to LA. We would ditch school, go get high, put on Zeppelin IV and just bug out.
+ - After listening to “Machine Gun” I have to take a nap.
+ - I do my best to try to keep God with me on a personal level. It’s my belief that God really wants a personal relationship with us.
+ - I identify more with women than with men. I guess I have a strong feminine side.
+ - There’s certain things in life that I love. One is architecture. And music, culture, food, people. New Orleans has all of that.
+ - At first people thought I was really arrogant and a snob about music because I’m so intense about my production and sound, and because they knew I didn’t like new music so much.
+ - My mother passed at the end of the Circus tour. After that I really needed to take some time and just chill out and get my head together.
+ - We’re beginning to play God and get into cloning. We give up quickly. Divorce is an easy option. So why not just create your own mate? Synthesize a human being. You get tired of it, turn it off and put it in the closet like the vacuum cleaner.
+ - Jimi Hendrix was just so fluid. His hands were connected to his soul, you know? His playing was just so emotional. You could feel the fire, you could feel the blues. You could feel the sadness. It’s unbelievable.
+ - Fly Away changed my life. There are certain songs that do. When I won the Grammy, I was in Paris. I sort of forgot about it.
+ - So that’s why you’ve got to try, you got to breath and have some fun. Though I’m not paid, I play this game, and I won’t stop until I’m done. But what I really want to know is – Are you gonna go my way?
+ - Me being in my grandmother’s yard in Brooklyn. I must have been about 3. I had this red balloon. I let go of it, and it went up into the sky and just kept going and going. I completely flipped out, because I didn’t understand why.
+ - I found it a really refreshing change of pace to suddenly be completely directed. It was a type of collaboration that I don’t normally have.
+ - I always try to keep the circumstances in my life fresh. I like to change the physical environment I live in, change the people around me and try to experience things for the first time. I think that keeps one on their toes, creatively and spiritually.
+ - When I stopped trying to write songs, that’s when I’m able to begin writing songs. You have to just use your life, and the things around you for your inspiration.
+ - Things that would shock us years ago are like nothing now.
+ - I’m half Jewish, I’m half black, I look in-between. I dress funny. I play all these different styles of music on one record. It’s like, What is he doing?
+ - People don’t realize it, but no one lives that rock and roll life 24-7. They think it’s hundreds of bottles of champagne flowing and private jets and money. But there’s a lot of time when you’re traveling – time to think, time to be lonely. Sometimes it gets to you.
+ - My first guitar, a Fender Jazz Master, I traded it in for a Les Paul Deluxe.
+ - I want to do interiors, furniture. I want to do architecture, although I’m not an architect. Nor am I a trained interior designer.
+ - You’ve got your entourage and people that help you make whatever happen around you. Everything’s crazy and you’re not paying attention to your inner feelings because you’re so busy. I couldn’t take it.
+ - I knew Slash in high school, but not very well. Just knew him as this kid that used to hang out in the hallway. Pretty much looked then the way he does now.
+ - I’m experiencing the mood to go out and share the music. I don’t look at these concerts as a platform for people to watch me, look at me. No, a tour is about an interaction. A thing, myself, a band, and the people who support what I do and enjoy what I do.
+ - Confusion makes people uncomfortable. They can’t put their finger on me.
+ - I’m more hungry now than I was 11 years ago. Which is great because I see a lot of artists that have been out for a long period of time. They get kind of fat.
+ - Where I’m at in life, the women have got to come with something else, not just the body, but the mind and spirit. It usually trips them out, but that’s the way it’s going to be. I’m looking at the big picture.
+ - People feel they have to live that stereotypical lifestyle in order to be a rock star. You don’t have to shoot heroin and act a certain way to be a rock and roll musician.
+ - I never sit down to write. When I’m moved, I do it. I just wait for it to come. You just hear it. I can’t really describe writing. It’s in my head.
+ - God forbid you sing about love. It’s a lost concept.
+ - The story that I wanna tell is pretty much about the way I grew up. Being bi-racial, growing up in a big city and being an artist.
+ - Music is my life, it is a reflection of what I go through.
+ - I think that we have to be very careful and get back into the loop, get back to nature. Get back to God and not let the technology send us somewhere that we’re going to regret.
+ - We’re getting so pulled in by computers and technology, and our kids have their face in the computers all day. The human relationship is being diminished by this.
+ - When I’m making my music, I’m writing it, I’m producing it, I’m playing all the instruments, I’m performing. It’s my own world where I do what I feel, and nobody tells me anything.
+ - The image that the public gets is whatever they perceive it to be. Everybody has an opinion, everybody has their own vision, so I don’t know what my public image is. I have no idea.
+ - My mother’s side of the family is from the Bahamas, and I spent time there on and off when I was growing up. It’s the place where I feel at peace.
+ - I was always talking about peace and love, even when I was a kid. That’s how I grew up in my family.
+ - People always accuse me of being motivational in a way, like it was a bad thing, but that’s just how I was raised. My mom raised me in a positive environment, with lots of love in my heart, and that reflects in my music.
+ - I’m looking forward to going out at the concert with a clear head, with a clear mind, with a clear spirit and experiencing whatever it is. It’s great.
+ - You can be around 100 people and be completely alone. People don’t realize what it’s really like.
+ - I don’t go to church so much, the way my life is, but it’s in me every day.
+ - I enjoy what people at the concert give me and I can’t do it without them, so it’s really an exchange of energy that snowballs back and forth and becomes something that’s very satisfying and very magical.
+ - You need to open up so that more comes through. And you can just feel that when your ego is not in the way and when you’re letting it be what it wants to be. You have to let it be what it wants to be as opposed to what you think it should be.
+ - When you see a close person you know pass in front of your eyes, it’s hard core. After all that, I just wanted to enjoy every day. That was my goal. And to give thanks and to live fully.
+ - I feel like I’m only in the beginning of my career. I’ve only made five albums. It’s not a lot.
+ - Oasis are not just influenced by the Beatles; they actually take stuff. Then they get praised.
+ - If you listen to a lot of old funk records, the drums are really small. But you don’t perceive it like that because the groove is so heavy.
+ - I’m definitely happy with everything I’ve done. I stand behind it. You’ll always be saying, “Well, I could change that, or I would do that differently.” But you have to let it be what it is.
+ - You’re never promised your next breath.
+ - I just live my life and try to be present. When I’m present in the moment and something comes, I can capture it, because it doesn’t come from me, it’s out there.
+ - It’s like a dream to come to Spain and stay for a couple of years and get somebody to teach me Spanish music.
+ - God is love and if you are ready, he always is.
+ - I honestly don’t remember how I wrote or did the songs. Or the sessions. They all become very much a blur. And each album is like that. It may be that there are different locations, it may take longer, shorter, or whatever, but it’s always something that just happened.
+ - What motivates it is life. Life is everything. Life influences my music and brings it forth. Life is always changing, so I’m always hearing new music.
+ - I mean, look at the people we celebrate – a lot of people who really don’t do anything. They just walk the red carpets and go to all the parties, and they’re hooked up with the right people, so they’re celebrities. But what for?
+ - Later on in life I was like, “Wow!” because that’s exactly how it was. They don’t care that you’re mixed. They see you as one color.
+ - I have a great time with my band and on the stage we get along well.
+ - If I were white, I’d get less criticism.
+ - I get hired as a writer or producer and I do the best I can to bring out that artist. If somebody calls you to do something, you go right for that vision and you’re aware of that person’s vibe. You’re trying to get inside of them.
+ - When it comes to acting, it’s about creating a character and bringing forth a director’s vision. It’s a weird feeling, because with acting, it’s just not about me. I love being in that position, because with the music, it’s always about me.
+ - Tape machines are effects boxes as well because each tape machine has its own sound. You can over-load a tape machine or you can bump it a certain way so it compresses or makes a sound, tape saturation.
+ - I’m really happy about American Woman, it brought the Guess Who back. They started gigging again and got their song out on commercials.
+ - If you ask a hundred people, they all give you different answers.
+ - The thing I love about acting is that it’s got nothing to do with me; it’s about bringing forth a director’s vision. It’s like a release. I’m glad it’s come back into my life.
+ - It’s a good time for me to pursue acting, I suppose since I’m enjoying having another medium in which to express myself. I’ve been getting a great response to my work.
+ - I haven’t thought about making a music film, but if I did, that would be a very interesting idea.
+ - I went to Paris in 1989 when the Americans didn’t quite know what to do with me at first. Now, all those years later, it’s kind of the same story. Not the same scenario, but kind of the same story.
+ - Eventually you’re going to have a digital transfer anyway when you make a CD, so it doesn’t matter as long as what you’re hitting first is what you want it to be.
+ - The loyalty rate isn’t that high. I could have a big hit, then put out the next single, and they say, Oh yeah, who are you? Prove it again.
+ - That’s a big gift when people say to you that a song helped them or brought them to some place in their life where they needed to be.
+ - I wasn’t the kind of person that liked waiting for autographs or following them, I just liked to go to the shows, study their records, driving many, many hours to different states to go to concerts.
+ - I always read the Capitol as f – ked up pansexuality, everybody is doing everybody. Back to Greek and Roman times! It’s all happening.
+ - I’ve woken up from dreams and the whole song is there. I’m listening to it in my dreams. I consciously have to wake myself up and get a tape recorder because I hear it like a record.
+ - I’ve been compared to hundreds of artists, which just goes to show you that I’m not any one thing at all.
+ - If you look at the guys in the ’70s, like Led Zeppelin, they had bigger planes than we do, they had more money. But they weren’t singing about it.
+ - I made the record that my life had me make. Each one is like a diary.
+ - I knew what I wanted to do from the time I was 5.
+ - I just need to know that I did the very best I could and that I was true to myself.
+ - I feel like my best work is in front of me. I’m in the studio now, and I’m having an amazing time making this new album. It’s something I can’t help.
+ - My mother gave lots of good advice and had a lot to say. As you get older, you realize everything she said was true.
+ - Nine out of ten groups that came out in ’89 are gone. I’m still here.
+ - I started out making furniture because I couldn’t find certain things, and then I really got into it.
+ - There’s nothing more that we love than having a close, personal, open relationship, and I believe that’s what God wants.
+ - I wanted to make something that sounded very pure, organic, and personal. I wanted to make music that was timeless.
+ - I used to do plays and some television commercials when I was younger. I guess my mom’s being an actress got me interested in that, but music definitely took its place.
+ - I mean, there are only so many notes. What makes something original is how you put it together.
+ - I’m not one of those artists who refuses to play their hits. I find that ridiculous. Hits are a blessing.
+ - I’m so happy. I am able to see the world just by making music, just by doing the thing that I loved doing when I was five years old.
+ - It’s a trip to have a Greatest Hits record. It’s a trip.
+ - My career has been a gradual climb. I think that’s part of the reason why I’ve had longevity.
+ - I’ve always been into films. I’ve been offered lots of films but they’ve always been these very stereotypical roles. They wanted me to play some gangster or street guy, or pimp, drug addict.
+ - It doesn’t take a lot to get me motivated. I’m a studio rat. When I was in high school and I would walk into a recording studio, it felt like this magical place, this temple, this womb that I could escape into.
+ - We should take time out to really love; we should take time out to find out who we are.
+ - We’ve always just gotten up there and played. We don’t have any dancers, we don’t have all that stuff going on, we just get up there and play.
+ - I think kids in Europe have developed a deeper knowledge of music and of black music in particular. You go to Europe, and these kids know about all this obscure funk and soul that kids over here wouldn’t know. I think it’s getting better in the States, though, with the age of the Internet.
+ - People see my photos and think I labor over my image and I’m this cool, brooding artist. But I’m just having fun with it.
+ - I wouldn’t play together with someone who likes to control everything like me.
+ - Let’s look at human interactions. I really believe that there is a way for us to settle disputes nonviolently, using our minds, using all of that was given to us.
+ - God said, Here. Have it. Enjoy it. I’m gonna be miserable?
+ - Today, people are more into the glitz and the glamour of everything. We don’t even read the inside of records anymore.
+ - For the last few years, it’s been so chic for everybody to be miserable. Like if you’re in with the cool crowd, you can’t be happy.
+ - I don’t like to approach people that much. There’s been times when I wanted to say something to somebody, in a quick moment, but didn’t. Then you think, man, who knows?
+ - I don’t think about the styles. I write whatever comes out and I use whatever kind of instrumentation works for those songs.
+ - There are so many people that don’t believe in themselves and don’t have faith.
+ - A dramatic thing, the first time you stand up to your dad.
+ - God gave me the gift to be able to play instruments and I have to play.
+ - I am still into the people I listened to growing up, so I completely remember what is like to be a fan, I haven’t changed.
+ - I’m always sort of reflecting on what I do on what I’ve done. Usually before I make a new album, I’ll listen to the previous albums just to see where I’ve been.
+ - A lot of people don’t listen to the lyrics, really.
+ - When I was a kid and I bought a record, I ripped that thing open, I wanted to know who was playing what, what studio it was cut at, who was the string arranger, who was the engineer.
+ - I never sit down to write or say, “Today, I have to record something.” I wait to hear it and then I go for it.
+ - I had no idea ‘The Hunger Games’ was so big. I didn’t even know the book. I had been living under my own rock.
+ - Race in this country is still the elephant in the room that no one wants to discuss.
+ - You never know where you’re going to find a great actor.
+ - Keeping grounded and keeping focused and keeping calm and thankful, that comes from God.
+ - It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.
+ - If I had to associate myself with one song, it would probably be Let Love Rule. It’s so simple and to the point. It speaks for itself.
+ - Every night is different, you never know what it’s going to be like. I remember every night. I don’t like to compare them.
+ - I think it’d be a real nightmare to put a record out and sell 20 million copies and then that’s it.
+ - One musician listens to another musician, and you get inspired and then you do your thing, but it’s yours.
+ - They think I’m being serious when actually I’m a very big clown. But you have to know me to see that. I’m constantly cracking up and cracking everybody else around me up.
+ - A lot of my songs deal with spirituality and God, and I guess if you’re in tune with that, you’ll read into it.
+ - There’s definitely an old school element to my music, but I also think it’s modern.
+ - I’m sure great scripts are hard to find, but I’m definitely open, and waiting to see what comes my way.
+ - I couldn’t tell you what I am going to do next ’cause I have no idea, but I am open to anything.
+ - You can’t even sing or play an instrument, so you just scream instead. You’re living for an image, so you got five hundred women in your bed.
+ - I’m just looking for interesting roles and giving acting the respect it deserves.
+ - I get a lot of joy from playing instruments, and I have a different personality on each instrument. I like to let that come out. I get kind of selfish.
+ - My mom and dad would take me all over. One night we’d be at the Apollo watching James Brown, and then I’d be at the Joffrey Ballet. It was that kind of scene.
+ - I’ve had to work very hard, and I don’t really have a category or fit into any niche, so each time I come out with a new record, it’s like, I’m a new guy.
+ - The image is an image.
+ - I’ve lived my life dealing with everybody. And that’s how it’s always been for me.
+
+160 quotes

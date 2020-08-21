@@ -1,0 +1,502 @@
+ - Lend yourself to others, but give yourself to yourself.
+ - There is no conversation more boring than the one where everybody agrees.
+ - Ambition is not a vice of little people.
+ - If there is such a thing as a good marriage, it is because it resembles friendship rather than love.
+ - Valor is stability, not of legs and arms, but of courage and the soul.
+ - My life has been full of terrible misfortunes most of which never happened.
+ - A good marriage would be between a blind wife and a deaf husband.
+ - A man who fears suffering is already suffering from what he fears.
+ - Kings and philosophers defecate, and so do ladies.
+ - The most certain sign of wisdom is cheerfulness.
+ - No wind favors he who has no destined port.
+ - The soul which has no fixed purpose in life is lost; to be everywhere, is to be nowhere.
+ - No noble thing can be done without risks.
+ - A man is not hurt so much by what happens, as by his opinion of what happens.
+ - The beautiful souls are they that are universal, open, and ready for all things.
+ - Stubborn and ardent clinging to one’s opinion is the best proof of stupidity.
+ - I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.
+ - The greatest thing in the world is to know how to belong to oneself.
+ - There were many terrible things in my life and most of them never happened.
+ - I consider myself an average man, except in the fact that I consider myself an average man.
+ - I listen with attention to the judgment of all men; but so far as I can remember, I have followed none but my own.
+ - Don’t discuss yourself, for you are bound to lose; if you belittle yourself, you are believed; if you praise yourself, you are disbelieved.
+ - There never were, in the world, two opinions alike, no more than two hairs, or two grains; the most universal quality is diversity.
+ - Children’s games are hardly games. Children are never more serious than when they play.
+ - My art and profession is to live.
+ - We do not know where death awaits us: so let us wait for it everywhere. To practice death is to practice freedom. A man who has learned how to die has unlearned how to be a slave.
+ - The most universal quality is diversity.
+ - Learned we may be with another man’s learning: we can only be wise with wisdom of our own.
+ - Nothing is so firmly believed as what we least know.
+ - I want death to find me planting my cabbages, but careless of death, and still more of my unfinished garden.
+ - We need to interpret interpretations more than to interpret things.
+ - All the fame you should look for in life is to have lived it quietly.
+ - A man must keep a little back shop where he can be himself without reserve. In solitude alone can he know true freedom.
+ - We cannot fail in following nature.
+ - Friendship is the highest degree of perfection in society.
+ - Wise people are foolish if they cannot adapt to foolish people.
+ - Obsession is the wellspring of genius and madness.
+ - I conceive that pleasures are to be avoided if greater pains be the consequence, and pains to be coveted that will terminate in greater pleasures.
+ - When I dance, I dance; when I sleep, I sleep; yes, and when I walk alone in a beautiful orchard, if my thoughts drift to far-off matters for some part of the time for some other part I lead them back again to the walk, the orchard, to the sweetness of this solitude, to myself.
+ - Men are nothing until they are excited.
+ - One should always have one’s boots on and be ready to leave.
+ - Not being able to govern events, I govern myself, and apply myself to them if they will not apply themselves to me.
+ - I know that the arms of friendship are long enough to reach from the one end of the world to the other.
+ - A liar would be brave toward God, while he is a coward toward men; for a lie faces God, and shrinks from man.
+ - We trouble our life by thoughts about death, and our death by thoughts about life.
+ - Wonder is the foundation of all philosophy, inquiry the progress, ignorance the end.
+ - The world is all a carcass and vanity, The shadow of a shadow, a play And in one word, just nothing.
+ - Ignorance is the softest pillow on which a man can rest his head.
+ - I turn my gaze inward. I fix it there and keep it busy. I look inside myself. I continually observe myself.
+ - It is the mind that maketh good or ill, That maketh wretch or happy, rich or poor.
+ - Valor is strength, not of legs and arms, but of heart and soul; it consists not in the worth of our horse or our weapons, but in our own.
+ - My appetite comes to me while eating.
+ - Habit is second nature.
+ - To forbid us anything is to make us have a mind for it.
+ - In my opinion, every rich man is a miser.
+ - Difficulty is a coin the learned make use of like jugglers, to conceal the inanity of their art.
+ - To philosophize is nothing else than to prepare oneself for death.
+ - It is easier to sacrifice great than little things.
+ - It’s not victory if it doesn’t end the war.
+ - Tis so much to be a king, that he only is so by being so.
+ - Nothing fixes a thing so intensely in the memory as the wish to forget it.
+ - All I say is by way of discourse, and nothing by way of advice. I should not speak so boldly if it were my due to be believed.
+ - Cowardice is the mother of cruelty.
+ - The bees pillage the flowers here and there but they make honey of them which is all their own; it is no longer thyme or marjolaine: so the pieces borrowed from others he will transform and mix up into a work all his own.
+ - I study myself more than any other subject. That is my metaphysics, that is my physics.
+ - There are truths on this side of the Pyrenees which are falsehoods on the other.
+ - Love is like playing the piano. First you must learn to play by the rules, then you must forget the rules and play from your heart. If I were pressed to say why I loved him, I feel that my only reply could be: Because it was he, because it was I.
+ - It is in vain that we get upon stilts, for once on them, it is still with our legs that we must walk. And on the highest throne in the world we are still sitting on our own ass.
+ - The plague of man is boasting of his knowledge.
+ - Judgement can do without knowledge: but not knowledge without judgement.
+ - Since I would rather make of him an able man than a learned man, I would also urge that care be taken to choose a guide with a well-made rather than a well-filled head.
+ - I walk firmer and more secure uphill than down.
+ - Silence and modesty are very valuable qualities in conversation.
+ - Marriage, a market which has nothing free but the entrance.
+ - There is no wish more natural than the wish to know.
+ - Greatness of soul consists not so much in soaring high and in pressing forward, as in knowing how to adapt and limit oneself.
+ - Take care that old age does not wrinkle your spirit even more than your face.
+ - I have often seen people uncivil by too much civility, and tiresome in their courtesy.
+ - Not being able to govern events, I govern myself.
+ - I am afraid that our eyes are bigger than our stomachs, and that we have more curiosity than understanding. We grasp at everything, but catch nothing except wind.
+ - The reverse side of truth has a hundred thousand shapes and no defined limits.
+ - The honor we receive from those that fear us, is not honor; those respects are paid to royalty and not to me.
+ - Only the fools are certain and assured.
+ - Thus we should beware of clinging to vulgar opinions, and judge things by reason’s way, not by popular say.
+ - I have never seen a greater monster or miracle in the world than myself.
+ - I want death to find me planting my cabbages.
+ - We are, I know not how, double in ourselves, so that what we believe we disbelieve, and cannot rid ourselves of what we condemn .
+ - On the highest throne in the world, we still sit only on our own bottom.
+ - If you press me to say why I loved him, I can say no more than because he was he, and I was I.
+ - Oh senseless man, who cannot possibly make a worm or a flea and yet will create Gods by the dozen!
+ - True freedom is to have power over oneself for everything.
+ - I determine nothing; I do not comprehend things; I suspend judgment; I examine.
+ - It is good to rub and polish our brain against that of others.
+ - Presumption is our natural and original malady. The most vulnerable and frail of all creatures is man, and at the same time the most arrogant.
+ - Man is certainly stark mad; he cannot make a worm, and yet he will be making gods by dozens.
+ - Obstinacy and dogmatism are the surest signs of stupidity. Is there anything more confident, resolute, disdainful, grave and serious than an ass?
+ - The least strained and most natural ways of the soul are the most beautiful; the best occupations are the least forced.
+ - When I play with my cat, who knows whether she is not amusing herself with me more than I with her.
+ - A strong imagination begetteth opportunity.
+ - There is no pleasure to me without communication: there is not so much as a sprightly thought comes into my mind that it does not grieve me to have produced alone, and that I have no one to tell it to.
+ - Make your educational laws strict and your criminal ones can be gentle; but if you leave youth its liberty you will have to dig dungeons for ages.
+ - Once conform, once do what others do because they do it, and a kind of lethargy steals over all the finer senses of the soul.
+ - Poverty of goods is easily cured; poverty of soul, impossible.
+ - If I speak of myself in different ways, that is because I look at myself in different ways.
+ - The pleasantest things in the world are pleasant thoughts, and the great art of life is to have as many of them as possible.
+ - A straight oar looks bent in the water. What matters is not merely that we see things but how we see them.
+ - No man is a hero to his own valet.
+ - Plenty and indigence depend upon the opinion every one has of them; and riches, like glory of health, have no more beauty or pleasure than their possessor is pleaded to lend them.
+ - If I were a maker of books I should compile a register, with comments, of different deaths. He who should teach people to die, would teach them to live.
+ - Confidence in the goodness of another is good proof of one’s own goodness.
+ - The only thing certain is nothing is certain.
+ - Happiness involves working toward meaningful goals.
+ - The births of all things are weak and tender and therefore we should have our eyes intent on beginnings.
+ - We find our energies are actually cramped when we are overanxious to succeed.
+ - If I can, I shall keep my death from saying anything that my life has not already said.
+ - The most beautiful lives, to my mind, are those that conform to the common human pattern, with order, but without miracle and without eccentricity.
+ - To understand via the heart is not to understand.
+ - The greater part of the world’s troubles are due to questions of grammar.
+ - If I were of the trade, I should naturalize art as much as they “artialize” nature.
+ - Lovers are angry, reconciled, entreat, thank, appoint, and finally speak all things, by their.
+ - The corruption of the age is made up by the particular contribution of every individual man; some contribute treachery, others injustice, atheism, tyranny, avarice, cruelty, according to their power.
+ - In nine lifetimes, you’ll never know as much about your cat as your cat knows about you.
+ - God is favorable to those whom he makes to die by degrees; ’tis the only benefit of old age. The last death will be so much the less painful: it will kill but a quarter of a man or but half a one at most.
+ - Since philosophy is the art which teaches us how to live, and since children need to learn it as much as we do at other ages, why do we not instruct them in it?
+ - If my intentions were not to be read in my eyes and voice, I should not have survived so long without quarrels and without harm, seeing the indiscreet freedom with which I say, right or wrong, whatever comes into my head.
+ - I have here only made a nosegay of culled flowers, and have brought nothing of my own but the thread that tied them together.
+ - The most ordinary things, the most common and familiar, if we could see them in their true light, would turn out to be the grandest miracles.
+ - A person is bound to lose when he talks about himself; if he belittles himself, he is believed; if he praises himself, he isn’t believed.
+ - The strangest, most generous, and proudest of all virtues is true courage.
+ - I do not teach. I relate.
+ - Off I go, rummaging about in books for sayings which please me.
+ - There is as much difference between us and ourselves as there is between us and others.
+ - Age imprints more wrinkles in the mind than it does on the face.
+ - Nature has, herself, I fear, imprinted in man a kind of instinct to inhumanity.
+ - There are some defeats more triumphant than victories.
+ - Men of simple understanding, little inquisitive and little instructed, make good Christians.
+ - Speech belongs half to the speaker, half to the listener. The latter must prepare to receive it according to the motion it takes.
+ - It is fear that I stand most in fear of, in sharpness it exceeds every other feeling.
+ - The study of books is a drowsy and feeble exercise which does not warm you up.
+ - I seek in books only to give myself pleasure by honest amusement; or if I study, I seek only the learning that treats of the knowledge of myself and instructs me in how to die well and live well.
+ - Nor is it enough to toughen up his soul; you must also toughen up his muscles.
+ - He who does not live in some degree for others, hardly lives for himself.
+ - To die is not to play a part in society; it is the act of a single person. Let us live and laugh among our friends; let us die and sulk among strangers.
+ - To make a crooked stick straight, we bend it the contrary way.
+ - Make use of life while you have it. Whether you have lived enough depends upon yourself, not on the number of your years.
+ - It is not a mind, it is not a body that we educate, but it is a man, and we must not make two parts of him.
+ - Time steals away without any inconvenience.
+ - The thing I fear most is fear.
+ - Women when they marry buy a cat in the bag.
+ - The general order of things that takes care of fleas and moles also takes care of men, if they will have the same patience that fleas and moles have, to leave it to itself.
+ - And not to serve for a table-talk.
+ - A learned man is not learned in all things; but a sufficient man is sufficient throughout, even to ignorance itself.
+ - Scratching is one of nature’s sweetest gratifications, and the one nearest at hand.
+ - It takes so much to be a king that he exists only as such. That extraneous glare that surrounds him hides him and conceals him from us; our sight breaks and is dissipated by it being filled and arrested by this strong light.
+ - Intemperance is the plaque of sensuality, and temperance is not its bane but its seasoning.
+ - How many valiant men we have seen to survive their own reputation!
+ - Each man calls barbarism whatever is not his own practice; for indeed it seems we have no other test of truth and reason than the example and pattern of the opinions and customs of the country we live in.
+ - The oldest and best known evil was ever more supportable than one that was new and untried.
+ - In the education of children there is nothing like alluring the interest and affection; otherwise you only make so many asses laden with books.
+ - If falsehood, like truth, had but one face, we would be more on equal terms. For we would consider the contrary of what the liar said to be certain. But the opposite of truth has a hundred thousand faces and an infinite field.
+ - To philosophize is to doubt.
+ - Saying is one thing, doing another. We must consider the sermon and the preacher distinctly and apart.
+ - Writing does not cause misery. It is born of misery.
+ - I have seen people rude by being over-polite.
+ - If my mind could gain a firm footing, I would not make essays, I would make decisions; but it is always in apprenticeship and on trial.
+ - The world is but a perennial movement. All things in it are in constant motion-the earth, the rocks of the Caucasus, the pyramids of Egypt-both with the common motion and with their own.
+ - It is much more easy to accuse the one sex than to excuse the other.
+ - We imagine much more appropriately an artisan on his toilet seat or on his wife than a great president, venerable by his demeanorand his ability. It seems to us that they do not stoop from their lofty thrones even to live.
+ - Whatever can be done another day can be done today.
+ - Everyone gives the title of barbarism to everything that is not in use in his own country.
+ - We are all patchwork, and so shapeless and diverse in composition that each bit, each moment, plays its own game.
+ - A speech belongs half to the speaker and half to the listener.
+ - Disappointment and feebleness imprint upon us a cowardly and valetudinarian virtue.
+ - The word is half his that speaks, and half his that hears it.
+ - No one but yourself knows whether you are cowardly and cruel, or loyal and devout; others do not see you; they surmise you by uncertain conjectures; they perceive not so much your nature as your art.
+ - One may be humble out of pride.
+ - I may indeed very well happen to contradict myself; but truth, as Demades said, I do not contradict.
+ - Travelling through the world produces a marvellous clarity in the judgment of men. We are all of us confined and enclosed within ourselves, and see no farther than the end of our nose.
+ - Desire and hope will push us on toward the future.
+ - Physicians have this advantage: the sun lights their success and the earth covers their failures.
+ - Man is the sole animal whose nudities offend his own companions, and the only one who, in his natural actions, withdraws and hides himself from his own kind.
+ - I aim here only at revealing myself, who will perhaps be different tomorrow, if I learn something new which changes me.
+ - We are all of us richer than we think we are.
+ - He who falls obstinate in his courage, if he falls he fights from his knees.
+ - The premeditation of death is the premeditation of liberty; he who has learnt to die has forgot to serve.
+ - Who so hath his mind on taking, hath it no more on what he taketh.
+ - What kind of truth is this which is true on one side of a mountain and false on the other?
+ - Knowledge is an excellent drug; but no drug has virtue enough to preserve itself from corruption and decay, if the vessel be tainted and impure wherein it is put to keep.
+ - The most certain sign of wisdom is continual cheerfulness; her state is like the things above the moon, always clear and serene.
+ - Wisdom has its excesses, and has no less need of moderation than folly.
+ - Who ever saw a doctor use the prescription of his colleague without cutting out or adding something?
+ - Custom is a second nature, and no less powerful.
+ - Women are not altogether in the wrong when they refuse the rules of life prescribed to the World, for men only have established them and without their consent.
+ - Women are more susceptible to pain than to pleasure.
+ - There is no passion so contagious as that of fear.
+ - Dreams are faithful interpreters of our inclinations; but there is art required to sort and understand them.
+ - Obstinacy is the sister of constancy, at least in vigor and stability.
+ - We feel a kind of bittersweet pricking of malicious delight in contemplating the misfortunes of others.
+ - Men are most apt to believe what they least understand.
+ - It is not death, it is dying that alarms me.
+ - Saying is one thing and doing is another.
+ - Socrates thought and so do I that the wisest theory about the gods is no theory at all.
+ - Wit is a dangerous weapon, even to the possessor, if he knows not how to use it discreetly.
+ - No man dies before his hour. The time you leave behind was no more yours, than that which was before your birth, and concerneth you no more.
+ - I would have every man write what he knows and no more.
+ - If you don’t know how to die, don’t worry; Nature will tell you what to do on the spot, fully and adequately. She will do this job perfectly for you; don’t bother your head about it.
+ - I speak the truth not so much as I would, but as much as I dare, and I dare a little more as I grow older.
+ - We only labor to stuff the memory, and leave the conscience and the understanding unfurnished and void.
+ - No two men ever judged alike of the same thing, and it is impossible to find two opinions exactly similar, not only in different men but in the same men at different times.
+ - We wake sleeping, and sleep waking. I do not see so clearly in my sleep; but as to my being awake, I never found it clear enough and free from clouds.
+ - Intelligence is required to be able to know that a man knows not.
+ - The plague of man is the opinion of knowledge. That is why ignorance is so recommended by our religion as a quality suitable to belief and obedience.
+ - Is it not better to remain in suspense than to entangle yourself in the many errors that the human fancy has produced? Is it not better to suspend your convictions than to get mixed up in these seditious and quarrelsome divisions?
+ - And one might therefore say of me that in this book I have only made up a bunch of other people’s flowers, and that of my own I have only provided the string that ties them together.
+ - If health and a fair day smile upon me, I am a very good fellow; if a corn trouble my toe, I am sullen, out of humor, and inaccessible.
+ - The conduct of our lives is the true mirror of our doctrine.
+ - Children’s playthings are not sports and should be deemed as their most serious actions.
+ - There is nothing useless in nature; not even uselessness itself.
+ - To compose our character is our duty, not to compose books, and to win, not battles and provinces, but order and tranquillity in our conduct.
+ - Our religion is made to eradicate vices, instead it encourages them, covers them, and nurtures them.
+ - Love to his soul gave eyes; he knew things are not as they seem. The dream is his real life; the world around him is the dream.
+ - The day of your birth leads you to death as well as to life .
+ - The most fruitful and natural exercise for our minds is, in my opinion, conversation.
+ - We judge a horse not only by its pace on a racecourse, but also by its walk, nay, when resting in its stable.
+ - Peoples nurtured on freedom and self-government judge any other form of polity to be deformed and unnatural. Those who are used to monarchy do the same .
+ - The confidence in another man’s virtue is no light evidence of a man’s own, and God willingly favors such a confidence.
+ - It needs courage to be afraid.
+ - A man should keep for himself a little back shop, all his own, quite unadulterated, in which he establishes his true freedom and chief place of seclusion and solitude.
+ - I love a friendship that flatters itself in the sharpness and vigor of its communications.
+ - The art of dining well is no slight art, the pleasure no slight pleasure.
+ - My reason is not framed to bend or stoop: my knees are.
+ - Fame and tranquility can never be bedfellows.
+ - There is no more expensive thing than a free gift.
+ - How many things we held yesterday as articles of faith which today we tell as fables.
+ - The beginnings of all things are weak and tender. We must therefore be clear-sighted in the beginnings, for, as in their budding we discern not the danger, so in their full growth we perceive not the remedy.
+ - The utility of living consists not in the length of days, but in the use of time; a man may have lived long, and yet lived but a little.
+ - Books are a languid pleasure.
+ - Marriage can be compared to a cage: birds outside it despair to enter, and birds within, to escape.
+ - And I loathe people who find it harder to put up with a gown askew than with a soul askew and who judge a man by his bow, his bearing and his boots.
+ - Things are not bad in themselves, but our cowardice makes them so.
+ - It is a rare life that remains orderly even in private.
+ - Friendship is a creature formed for a companionship not for a herd.
+ - Of all our infirmities, the most savage is to despise our being.
+ - Long life, and short, are by death made all one; for there is no long, nor short, to things that are no more.
+ - Wine is the benevolent god, who gives back gaiety to men and restores youth to the old.
+ - If ordinary people complain that I speak too much of myself, I complain that they do not even think of themselves.
+ - You have your face bare; I am all face.
+ - The beauty of stature is the only beauty of men.
+ - Death, they say, acquits us of all obligations.
+ - And truly Philosophy is but sophisticated poetry. Whence do those ancient writers derive all their authority but from the poets?
+ - Glory and repose are things that cannot possibly inhabit in one and the same place.
+ - It would be better to have no laws at all, than to have too many.
+ - Death pays all debts.
+ - There is no man so good, who, were he to submit all his thoughts and actions to the laws, would not deserve hanging ten times in his life.
+ - Habituation puts to sleep the eye of our judgment.
+ - Age imprints more wrinkles a in the mind, than it does in the face, and souls are never, or very rarely seen, that in growing old do not smell sour and musty. Man moves all together, both towards his perfection and decay.
+ - My errors are by now natural and incorrigible; but the good that worthy men do the public by making themselves imitable, I shall perhaps do by making myself evitable.
+ - A man should think less of what he eats and more with whom he eats because no food is so satisfying as good company.
+ - If faces were not alike, we could not distinguish men from beasts; if they were not different, we could not tell one man from another.
+ - Repentance is no other than a recanting of the will, and opposition to our fancies, which lead us which way they please.
+ - He who would teach men to die would teach them to live.
+ - I love a gay and sociable wisdom, and shun harshness and austerity in behaviour, holding every surly countenance suspect.
+ - Every day I hear stupid people say things that are not stupid.
+ - I do not understand; I pause; I examine.
+ - To smell, though well, is to stink.
+ - The strength of any plan depends on the time. Circumstances and things eternally shift and change.
+ - Miracles arise from our ignorance of nature, not from nature itself.
+ - The most evident token and apparent sign of true wisdom is a constant and unconstrained rejoicing.
+ - When a Roman was returning from a trip, he used to send someone ahead to let his wife know, so as not to surprise her in the act.
+ - There is, nevertheless, a certain respect and a general duty of humanity that ties us, not only to beasts that have life and sense, but even to trees and plants.
+ - When all is summed up, a man never speaks of himself without loss; his accusations of himself are always believed; his praises never.
+ - The way of the world is to make laws, but follow custom.
+ - I do not speak the minds of others except to speak my own mind better.
+ - I am disgusted with innovation, in whatever guise, and with reason, for I have seen very harmful effects of it.
+ - When Socrates, after being relieved of his irons, felt the relish of the itching that their weight had caused in his legs, he rejoiced to consider the close alliance between pain and pleasure.
+ - Rash and incessant scolding runs into custom and renders itself despised.
+ - God defend me from being an honest man according to the description which every day I see made by each man to his own glorification.
+ - Marriage is like a cage; one sees the birds outside desperate to get in, and those inside equally desperate to get out.
+ - In my opinion it is the happy living, and not, as Antisthenes said, the happy lying, in which human happiness consists.
+ - In plain truth, lying is an accursed vice. We are not men, nor have any other tie upon another, but by our word.
+ - We are never present with, but always beyond ourselves; fear, desire, hope, still push us on toward the future.
+ - Laws are maintained in credit, not because they are essentially just, but because they are laws. It is the mystical foundation of their authority; they have none other.
+ - The daughter-in-law of Pythagoras said that a woman who goes to bed with a man ought to lay aside her modesty with her skirt, and put it on again with her petticoat.
+ - The receipts of cookery are swelled to a volume, but a good stomach excels them all; to which nothing contributes more than industry and temperance.
+ - The curiosity of knowing things has been given to man for a scourge.
+ - Covetousness is both the beginning and the end of the devil’s alphabet – the first vice in corrupt nature that moves, and the last which dies.
+ - It is indeed the boundary of life, beyond which we are not to pass; which the law of nature has pitched for a limit not to be exceeded.
+ - Lay a beam between these two towers of such width as we need to walk on: there is no philosophical wisdom of such great firmness that it can give us courage to walk on it as we should if it were on the ground.
+ - A man should ever be ready booted to take his journey.
+ - Diogenes was asked what wine he liked best; and he answered as I would have done when he said, “Somebody else’s”.
+ - Almost all the opinions we have are taken on authority and on credit.
+ - No man profiteth but by the loss of others.
+ - To say less of yourself than is true is stupidity, not modesty. To pay yourself less than you are worth is cowardice and pusillanimity.
+ - The souls of emperors and cobblers are cast in the same mold. The same reason that makes us wrangle with a neighbor creates a war betwixt princes.
+ - The knowledge of courtesy and good manners is a very necessary study. It is like grace and beauty, that which begets liking and an inclination to love one another at the first sight.
+ - Experience teaches that a strong memory is generally joined to a weak judgment.
+ - I say that male and female are cast in the same mold; except for education and habits, the difference is not great.
+ - The wise man lives as long as he ought, not so long as he can.
+ - It is a stupid presumption to go about despising and condemning as false anything that seems to us improbable; this is a common fault in those who think they have more intelligence than the crowd.
+ - The worst of my actions or conditions seem not so ugly unto me as I find it both ugly and base not to dare to avouch for them.
+ - The profit we possess after study is to have become better and wiser.
+ - Order a purge for your brain, it will there be much better employed than upon your stomach.
+ - I see several animals that live so entire and perfect a life, some without sight, others without hearing: who knows whether to us also one, two, or three, or many other senses, may not be wanting?
+ - It is not my deeds that I write down, it is myself, my essence.
+ - If your doctor does not think it good for you to sleep, to drink wine, or to eat of a particular dish, do not worry; I will find you another who will not agree with him.
+ - When I am attached by gloomy thoughts, nothing helps me so much as running to my books. They quickly absorb me and banish the clouds from my mind.
+ - Let every foot have its own shoe.
+ - Pride dwells in the thought; the tongue can have but a very little share in it.
+ - We do not marry for ourselves, whatever we say; we marry just as much or more for our posterity, for our family. The practice and benefit of marriage concerns our race very far beyond us.
+ - No wonder, said an Ancient, that chance has so much power over us, since it is by chance that we live.
+ - Nothing else but an insatiate thirst of enjoying a greedily desired object.
+ - As far as physicians go, chance is more valuable than knowledge.
+ - I do myself a greater injury in lying than I do him of whom I tell a lie.
+ - Necessity is a violent school-mistress.
+ - A father is very miserable who has no other hold on his children’s affection than the need they have of his assistance, if that can be called affection.
+ - The world is but a school of inquisition; it is not who shall enter the ring, but who shall run the best courses.
+ - Nature should have been pleased to have made this age miserable, without making it also ridiculous.
+ - Unless a man feels he has a good enough memory, he should never venture to lie.
+ - Malice sucks up the greatest part of its own venom, and poisons itself.
+ - We are all of us richer than we think we are; but we are taught to borrow and to beg, and brought up more to make use of what is another’s than of our own.
+ - A man should not so much respect what he eats, as with whom he eats.
+ - Tis faith alone that vividly and certainly comprehends the deep mysteries of our religion.
+ - Life itself is neither a good nor an evil: life is where good or evil find a place, depending on how you make it for them.
+ - This idea is more surely understood by interrogation; WHAT DO I KNOW? which I bear as my motto with the emblem of a pair of scales.
+ - There is no doubt that Greek and Latin are great and handsome ornaments, but we buy them too dear.
+ - It is a thorny undertaking, and more so than it seems, to follow a movement so wandering as that of our mind, to penetrate the opaque depths of its innermost folds, to pick out and immobilize the innumerable flutterings that agitate it.
+ - From Obedience and submission comes all our virtues, and all sin is comes from self-opinion.
+ - Ceremony forbids us to express by words things that are lawful and natural, and we obey it; reason forbids us to do things unlawful and ill, and nobody obeys it.
+ - The only good histories are those written by those who had command in the events they describe.
+ - An untempted woman cannot boast of her chastity.
+ - Obstinacy and contention are common qualities, most appearing in, and best becoming, a mean and illiterate soul.
+ - What fear has once made me will, I am bound still to will when without fear.
+ - Wise men have more to learn of fools than fools of wise men.
+ - Every place swarms with commentaries; of authors there is great scarcity.
+ - It is only certain that there is nothing certain, and that nothing is more miserable or more proud than man.
+ - A man must always study, but he must not always go to school: what a contemptible thing is an old abecedarian!
+ - The great and glorious masterpiece of men is to live to the point. All other things-to reign, to hoard, to build-are, at most, but inconsiderable props and appendages.
+ - To know how to live is my trade and my art.
+ - We are more unhappy to see people ahead of us than happy to see people behind us.
+ - I am myself the matter of my book.
+ - No doctor takes pleasure in the health even of his friends.
+ - Judgement holds in me a magisterial seat, at least it carefully tries to. It lets my feelings go their way, both hatred and friendship, even the friendship I bear myself, without being changed and corrupted by them.
+ - Every man carries the entire form of human condition.
+ - It is not the want, but rather abundance that creates avarice.
+ - The virtue of the soul does not consist in flying high, but in walking orderly.
+ - Those things that are dearest to us have cost us the most.
+ - We are nothing but ceremony; ceremony carries us away, and we leave the substance of things; we hang on to the branches and abandon the trunk and body.
+ - How many worthy men have we known to survive their own reputation, who have seen and suffered the honor and glory most justly acquired in their youth, extinguished in their own presence?
+ - I set forth a humble and inglorious life; that does not matter. You can tie up all moral philosophy with a common and private life just as well as with a life of richer stuff. Each man bears the entire form of man’s estate.
+ - Health is a precious thing, and the only one, in truth, meriting that a man should lay out not only his time, sweat, labor and goods, but also life itself to obtain it.
+ - There is no passion so much transports the sincerity of judgment as doth anger.
+ - We ought to love temperance for itself, and in obedience to God who has commanded it and chastity; but what I am forced to by catarrhs, or owe to the stone, is neither chastity nor temperance.
+ - He that had never seen a river imagined the first he met to be the sea; and the greatest things that have fallen within our knowledge we conclude the extremes that nature makes of the kind.
+ - We easily enough confess in others an advantage of courage, strength, experience, activity, and beauty; but an advantage in judgment we yield to none.
+ - My business is only to keep myself in motion, whilst motion pleases me; I only walk for the walk’s sake.
+ - Oh these foolish men! They could not create so much as a worm, but they create gods by the dozens.
+ - Why did I love her? Because it was her; because it was me.
+ - The most useful and honorable science and occupation for a woman is the science of housekeeping. I know some that are miserly, very few that are good managers.
+ - Man will rise, if God by exception lends him a hand; he will rise by abandoning and renouncing his own means, and letting himselfbe raised and uplifted by purely celestial means.
+ - All passions that suffer themselves to be relished and digested are but moderate.
+ - Virtue shuns ease as a companion. It demands a rough and thorny path.
+ - The honor of the conquest is rated by the difficulty.
+ - Man in sooth is a marvellous, vain, fickle, and unstable subject.
+ - Our speech has its weaknesses and its defects, like all the rest. Most of the occasions for the troubles of the world are grammatical.
+ - It is the part of cowardliness, and not of virtue, to seek to squat itself in some hollow lurking hole, or to hide herself under some massive tomb, thereby to shun the strokes of fortune.
+ - The wise man should withdraw his soul within, out of the crowd, and keep it in freedom and power to judge things freely; but as for externals, he should wholly follow the accepted fashions and forms.
+ - The worst condition of humans is when they lose knowledge and control of themselves.
+ - There is no knowledge so hard to acquire as the knowledge of how to live this life well and naturally.
+ - There is nothing more notable in Socrates than that he found time, when he was an old man, to learn music and dancing, and thought it time well spent.
+ - The souls of emperors and cobblers are cast in the same mould.
+ - We must not attach knowledge to the mind; we have to incorporate it there.
+ - Those who give the first shock to a state are the first overwhelmed in its ruin; the fruits of public commotion are seldom enjoyed by him who was the first mover; he only beats the water for another’s net.
+ - The soul that has no established aim loses itself.
+ - The most unhappy and frail creatures are men and yet they are the proudest.
+ - Vice leaves repentance in the soul, like an ulcer in the flesh, which is always scratching and lacerating itself; for reason effaces all other griefs and sorrows, but it begets that of repentance.
+ - If virtue cannot shine bright, but by the conflict of contrary appetites, shall we then say that she cannot subsist without the assistance of vice, and that it is from her that she derives her reputation and honor?
+ - Aesop, that great man, saw his master making water as he walked. “What!” he said, “Must we void ourselves as we run?” Use our timeas best we may, yet a great part of it will still be idly and ill spent.
+ - We endeavor more that men should speak of us, than how and what they speak, and it sufficeth us that our name run in men’s mouths, in what manner soever. It stemma that to be known is in some sort to have life and continuance in other men’s keeping.
+ - How often, being moved under a false cause, if the person offending makes a good defense and presents us with a just excuse, are we angry against truth and innocence itself?
+ - Pleasure itself is painful at the bottom.
+ - Ambition sufficiently plagues her proselytes, by keeping themselves always in show, like the statue of a public place.
+ - It is a human tendency “to measure truth and error by our capacity.”
+ - Those that will combat use and custom by the strict rules of grammar do but jest.
+ - A lady could not boast of her chastity who was never tempted.
+ - Human understanding is marvellously enlightened by daily conversation with men, for we are, otherwise, compressed and heaped up in ourselves, and have our sight limited to the length of our own noses.
+ - No-one is exempt from speaking nonsense – the only misfortune is to do it solemnly.
+ - Laws are often made by fools, and even more often by men who fail in equity because they hate equality: but always by men, vain authorities who can resolve nothing.
+ - We are Christians by the same title as we are natives of Perigord or Germany.
+ - T is one and the same Nature that rolls on her course, and whoever has sufficiently considered the present state of things might certainly conclude as to both the future and the past.
+ - I must use these great men’s virtues as a cloak for my weakness.
+ - Examples teach us that in military affairs, and all others of a like nature, study is apt to enervate and relax the courage of man, rather than to give strength and energy to the mind.
+ - Fortune does us neither good nor hurt; she only presents us the matter, and the seed, which our soul, more powerfully than she, turns and applies as she best pleases; being the sole cause and sovereign mistress of her own happy or unhappy condition.
+ - Some impose upon the world that they believe that which they do not; others, more in number, make themselves believe that they believe, not being able to penetrate into what it is to believe.
+ - We are more solicitous that men speak of us, than how they speak.
+ - The body enjoys a great share in our being, and has an eminent place in it. Its structure and composition, therefore, are worthy of proper consideration.
+ - There is perhaps no more obvious vanity than to write of it so vainly.
+ - As for me, then, I love life and cultivate it just as God has been pleased to grant it to us.
+ - It should be noted that children at play are not playing about; their games should be seen as their most serious-minded activity.
+ - Experience has taught me this, that we undo ourselves by impatience. Misfortunes have their life and their limits, their sickness and their health.
+ - Truth and reason are common to everyone, and are no more his who spake them first than his who speaks them after.
+ - Nature is a gentle guide, but not more sweet and gentle than prudent and just.
+ - The most profound joy has more of gravity than of gaiety in it.
+ - We seek and offer ourselves to be gulled.
+ - I look upon the too good opinion that man has of himself, as the nursing mother of all false opinions, both public and private.
+ - No spiritual mind remains within itself; it is always aspiring and going beyond its own strength.
+ - The entire lower world was created in the likeness of the higher world. All that exists in the higher world appears like an image in this lower world; yet all this is but One.
+ - What harm cause not those huge draughts or pictures which wanton youth with chalk or coals draw in each passage, wall or stairs of our great houses, whence a cruel contempt of our natural store is bred in them?
+ - I had rather fashion my mind than furnish it.
+ - The lack of wealth is easily repaired but the poverty of the soul is irreplaceable.
+ - I leaf through books, I do not study them. What I retain of them is something I no longer recognize as anyone else’s.
+ - He who establishes his argument by noise and command shows that his reason is weak.
+ - He whose mouth is out of taste says the wine is flat.
+ - We have so much ill fortune as inconstancy, or so much bad purpose as folly, we are not so full of evil as we are of inanity; we are not so wretched as we are base.
+ - Natural inclinations are assisted and reinforced by education, but they are hardly ever altered or overcome.
+ - Lying is a terrible vice, it testifies that one despises God, but fears men.
+ - A man has need of tough ears to hear himself fairly judged.
+ - It is very easy to accuse a government of imperfection, for all mortal things are full of it.
+ - The bitterness of the potion, and the abhorrence of the patient are necessary circumstances to the operation. It must be something to trouble and disturb the stomach that must purge and cure it.
+ - The customs and practices of life in society sweep us along.
+ - May God defend me from myself.
+ - The religion of my doctor or my lawyer cannot matter. That consideration has nothing in common with the functions of the friendship they owe me.
+ - An orator of past times declared that his calling was to make small things appear to be grand.
+ - Taking it all in all, I find it is more trouble to watch after money than to get it.
+ - Seneca’s virtue shows forth so live and vigorous in his writings, and the defense is so clear there against some of these imputations, as that of his wealth and excessive spending, that I would not believe any testimony to the contrary.
+ - Tortures are a dangerous invention, and seem to be a test of endurance rather than of truth.
+ - Those sciences which govern the morals of mankind, such as Theology and Philosophy, make everything their concern: no activity is so private or so secret as to escape their attention or their jurisdiction.
+ - If others examined themselves attentively, as I do, they would find themselves, as I do, full of inanity and nonsense. Get rid of it I cannot without getting rid of myself.
+ - Words repeated again have as another sound, so another sense.
+ - An ancient father says that a dog we know is better company than a man whose language we do not understand.
+ - Shame on all eloquence which leaves us with a taste for itself and not for its substance.
+ - It is not without good reason, that he who has not a good memory should never take upon him the trade of lying.
+ - Report followeth not all goodness, except difficulty and rarity be joined thereto.
+ - It has never occurred to me to wish for empire or royalty, nor for the eminence of those high and commanding fortunes. My aim lies not in that direction; I love myself too well.
+ - No man is exempt from saying silly things; the mischief is to say them deliberately.
+ - Petty vexations may at times be petty, but still they are vexations. The smallest and most inconsiderable annoyances are the most piercing. As small letters weary the eye most, so the smallest affairs disturb us most.
+ - If love and ambition should be in equal balance, and come to jostle with equal force, I make no doubt but that the last would win the prize.
+ - Live as long as you please, you will strike nothing off the time you will have to spend dead.
+ - Honesty is a question of right and wrong, not a matter of policy.
+ - Learning must not only lodge with us: we must marry her.
+ - We are nearer neighbors to ourselves than the whiteness of snow or the weight of stones are to us: if man does not know himself, how should he know his functions and powers?
+ - Let us not be ashamed to speak what we shame not to think.
+ - In true education, anything that comes to our hand is as good as a book: the prank of a page- boy, the blunder of a servant, a bit of table talk – they are all part of the curriculum.
+ - There is no virtue which does not rejoice a well-descended nature; there is a kind of I know not what congratulation in well-doing, that gives us an inward satisfaction, and a certain generous boldness that accompanies a good conscience.
+ - The thing in the world I am most afraid of is fear, and with good reason; that passion alone, in the trouble of it, exceeding all other accidents.
+ - To distract myself from tiresome thoughts, I have only to resort to books; they easily draw my mind to themselves and away from other things.
+ - The clatter of arms drowns out the voice of law.
+ - As for extraordinary things, all the provision in the world would not suffice.
+ - A man may by custom fortify himself against pain, shame, and suchlike accidents; but as to death, we can experience it but once, and are all apprentices when we come to it.
+ - Decency, not to dare to do that in public which it is decent enough to do in private.
+ - There is nothing so noble and so right as to play our human life well and fitly, nor anything so difficult to learn as how to livethis life well and according to Nature.
+ - Like a full-fed guest, depart to rest...
+ - No man is so exquisitely honest or upright in living, but that ten times in his life he might not lawfully be hanged.
+ - A man must live in the world and make the best of it, such as it is.
+ - All we do is to look after the opinions and learning of others: we ought to make them our own.
+ - Even from their infancy we frame them to the sports of love: their instruction, behavior, attire, grace, learning and all their words azimuth only at love, respects only affection. Their nurses and their keepers imprint no other thing in them.
+ - The recognition of virtue is not less valuable from the lips of the man who hates it, since truth forces him to acknowledge it; and though he may be unwilling to take it into his inmost soul, he at least decks himself out in its trappings.
+ - Every movement reveals us.
+ - The world is but a perpetual see-saw.
+ - A volunteer, you assign yourself specific roles and risks according to your judgement of their brilliance and importance, and you see when life itself may be justifiably devoted to them.
+ - Pride and curiosity are the two scourges of our souls. The latter prompts us to poke our noses into everything, and the former forbids us to leave anything unresolved and undecided.
+ - In general I ask for books that make use of learning, not those that build it up.
+ - There are no truths, only moments of claryty passing for answers.
+ - After they had accustomed themselves at Rome to the spectacles of the slaughter of animals, they proceeded to those of the slaughter of men, to the gladiators.
+ - Whatever is enforced by command is more imputed to him who exacts than to him who performs.
+ - Every one is well or ill at ease, according as he finds himself! not he whom the world believes, but he who believes himself to be so, is content; and in him alone belief gives itself being and reality.
+ - Most pleasures embrace us but to strangle.
+ - Meditation is a rich and powerful method of study for anyone who knows how to examine his mind.
+ - It is a small soul, buried beneath the weight of affairs, that does not know how to get clean away from them, that cannot put them aside and pick them up again.
+ - All general judgments are loose and imperfect.
+ - We have power over nothing except our will.
+ - It is easier to write an indifferent poem than to understand a good one.
+ - How often our involuntary facial motions testify to the thoughts we were keeping secret, and betray us to those around!
+ - It is probable that the principal credit of miracles, visions, enchantments, and such extraordinary occurrences comes from the power of imagination, acting principally upon the minds of the common people, which are softer.
+ - Excellent memories are often coupled with feeble judgments.
+ - I prefer the company of peasants because they have not been educated sufficiently to reason incorrectly.
+ - I never met a man who thought his thinking was faulty.
+ - The archer who overshoots his mark does no better than he who falls short of it.
+ - To speak less of oneself than what one really is, is folly, not modesty; and to take that for current pay which is under a man’s value, is pusillanimity and cowardice.
+ - Lawyers and physicians are an ill provision for any country.
+ - Whoever will imagine a perpetual confession of ignorance, a judgment without leaning or inclination, on any occasion whatever, hasa conception of Pyrrhonism.
+ - The first distinction among men, and the first consideration that gave one precedence over another, was doubtless the advantage of beauty.
+ - All the world knows me in my book, and my book in me.
+ - Things seem greater by imagination than they are in effect.
+ - Why do people respect the package rather than the man?
+ - For among other things he had been counseled to bring me to love knowledge and duty by my own choice, without forcing my will, and to educate my soul entirely through gentleness and freedom.
+ - My opinion is that we must lend ourselves to others and give ourselves only to ourselves. If my will happened to be prone to mortgage and attach itself, I would not last: I am too tender, both by nature and by practice.
+ - The finest souls are those that have the most variety and suppleness.
+ - I have ever loved to repose myself, whether sitting or lying, with my heels as high or higher than my head.
+ - We are born to inquire after truth; it belongs to a greater power to possess it. It is not, as Democritus said, hid in the bottom of the deeps, but rather elevated to an infinite height in the divine knowledge.
+ - Among the liberal arts, let us begin with the art that liberates us.
+ - Amongst so many borrowed things, am glad if I can steal one, disguising and altering it for some new service.
+ - I seek in the reading of books, only to please myself, by an honest diversion.
+ - To how many blockheads of my time has a cold and taciturn demeanor procured the credit of prudence and capacity!
+ - Stupidity and wisdom meet in the same centre of sentiment and resolution, in the suffering of human accidents.
+ - True it is that she who escapeth safe and unpolluted from out the school of freedom, giveth more confidence of herself than she who comet sound out of the school of severity and restraint.
+ - No pleasure has any savor for me without communication.
+ - Not only does the wind of accidents stir me according to its blowing, but I am also stirred and troubled by the instability of my attitude.
+ - There is a certain amount of purpose, acquiescence, and satisfaction in nursing one’s melancholy.
+ - Why dost thou complain of this world? It detains thee not; thy own cowardice is the cause, if thou livest in pain.
+ - Truly man is a marvelously vain, diverse, and undulating object. It is hard to found any constant and uniform judgment on him.
+
+500 quotes

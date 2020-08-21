@@ -1,0 +1,70 @@
+ - False hope is worse than despair.
+ - Pick battles big enough to matter, small enough to win.
+ - During the decades after Brown v. Board of Education there was terrific progress. Tens of thousands of public schools were integrated racially. During that time the gap between black and white achievement narrowed.
+ - The cause of homelessness is lack of housing.
+ - The first ten, twelve or fifteen years of life are excavated of inherent moral worth in order to accommodate a regimen of basic training for the adult years that many of the poorest children may not even live to know.
+ - A dream does not die on its own. A dream is vanquished by the choices ordinary people make about real things in their own lives...
+ - Apartheid does not happen spontaneously, like bad weather conditions.
+ - I encourage teachers to speak in their own voices. Don’t use the gibberish of the standards writers.
+ - Childhood is not merely basic training for utilitarian adulthood. It should have some claims upon our mercy, not for its future value to the economic interests of competitive societies but for its present value as a perishable piece of life itself.
+ - I wrote the first book, and I thought people would say: ‘Separate and unequal schools in the City of Boston? I didn’t know that. Let’s go out and fix it.’
+ - Now, I don’t expect what I write to change things. I think I write now simply as a witness. This is how it is. This is what we have done. This is what we have permitted.
+ - The greatest difference between now and 1964, when I began teaching, is that public policy has pretty much eradicated the dream of Martin Luther King.
+ - Children sometimes understand things that most grown-ups do not see.
+ - If you grow up in the South Bronx today or in south-central Los Angeles or Pittsburgh or Philadelphia, you quickly come to understand that you have been set apart and that there’s no will in this society to bring you back into the mainstream.
+ - The ones I pity are the ones who never stick out their neck for something they believe, never know the taste of moral struggle, and never have the thrill of victory.
+ - If there are amazing graces on this earth, I believe that they are these good children sent to us by God and not yet soiled by the knowledge that their nation does not love them.
+ - Separate and unequal didn’t work 100 years ago. It will not work today.
+ - I write books to change the world. Perhaps I can only change one little piece of that world. But if I can empower teachers and good citizens to give these children, who are the poorest of the poor, the same opportunity we give our own kids, then I’ll feel my life has been worth it.
+ - East St. Louis-which the local press refers to as “an inner city without an outer city”-has some of the sickest children in America. Of 66 cities in Illinois, East St. Louis ranks first in fetal death, first in premature birth, and third in infant health.
+ - I’d love to go back and teach primary school. I used to teach fourth grade and fifth grade. I’d love to spend several years teaching kindergarten or maybe third grade.
+ - More money is put into prisons than into schools. That, in itself, is the description of a nation bent on suicide. I mean, what is more precious to us than our own children? We are going to build a lot more prisons if we do not deal with the schools and their inequalities.
+ - Racial segregation has come back to public education with a vengeance.
+ - Unlike these powerful grown-ups, children have no ideologies to reinforce, no superstructure of political opinion to promote, no civic equanimity or image to defend, no personal reputation to secure.
+ - I feel, in the end, as if everything I’ve done has been a failure.
+ - I do get scared about the physical danger from drug dealers. But it’s not in the same league as the danger I feel eating an $80 lunch with my privileged friends to discuss hunger and poverty. That’s when my soul feels imperiled.
+ - I went to Washington to challenge the soft bigotry of low expectations.
+ - You need massive recruitment to tell the poorest of the poor what is possible.
+ - Hypersegregated inner-city schools – in which one finds no more than five or ten white children, at the very most, within a student population of as many as 3,000 – are the norm, not the exception, in most northern urban areas today.
+ - Like grain in a time of famine, the immense resources which the nation does in fact possess go not to the child in the greatest need but to the children of the highest bidder-the child of parents who, more frequently than not, have also enjoyed the same abundance when they were schoolchildren.
+ - Nationally, overwhelmingly non-white schools receive $1,000 less per pupil than overwhelmingly white schools.
+ - We continue, however, to write about important people, prize-winning people, blacks of grandeur, women of great fire, fame or wit. We do not write about ordinary people.
+ - By far the most important factor in the success or failure of any school, far more important than tests or standards or business-model methods of accountability, is simply attracting the best-educated, most exciting young people into urban schools and keeping them there.
+ - A culture in which guilt is automatically assumed to be neurotic and unhealthy has devised a remarkably clever way of protecting its self-interest.
+ - An awful lot of people come to college with this strange idea that there’s no longer segregation in America’s schools, that our schools are basically equal; neither of these things is true.
+ - Young children give us glimpses of some things that are eternal.
+ - On Mondays and Fridays in early May, nearly 18,000 children-the equivalent of all the elementary students in suburban Glencoe, Wilmette, Glenview, Kenilworth, Winnetka, Deerfield, Highland Park and Evanston-are assigned to classes with no teacher.
+ - In the book, I write about children in first grade who were taught to read by reading want ads. They learned to write by writing job applications. Imagine what would happen if anyone tried to do that to children in a predominantly white suburban school.
+ - Charity isn’t a good substitute for justice.
+ - When I was young, I was religious.
+ - Apartheid education, rarely mentioned in the press or openly confronted even among once-progressive educators, is alive and well and rapidly increasing now in the United States.
+ - I emphasize teachers because they are largely left out of the debate. None of the bombastic reports that come from Washington and think tanks telling us what needs to be ‘fixed’ – I hate such a mechanistic word, as if our schools were automobile engines – ever asks the opinions of teachers.
+ - The recklessness with which we sacrifice our sense of decency to maximize profit in the factory farming process sets a pattern for cruelty to our own kind.
+ - People rarely speak of children; you hear of ‘cohort groups’ and ‘standard variations,’ but you don’t hear much of boys who miss their cats or 6-year-olds who have to struggle with potato balls.
+ - The answers I remember longest are the ones that answer questions that I didn’t think of asking.
+ - In public schooling, social policy has been turned back almost one hundred years.
+ - I am opposed to the use of public funds for private education.
+ - So long as these kinds of inequalities persist, all of us who are given expensive educations have to live with the knowledge that our victories are contaminated because the game has been rigged to our advantage.
+ - My goal is to connect the young teachers to the old, to reignite their sense of struggle.
+ - Children are not simply commodities to be herded into line and trained for the jobs that white people who live in segregated neighborhoods have available.
+ - I think a moment of critical energy has suddenly emerged. But moments like this come and go unless we seize them at their height.
+ - But when I went to Harvard, it kind of got washed out of me, partly because people made fun of you in college. If you said you believed in God, they would look at you clinically, you know, suggest that you needed a referral.
+ - If we allow public funds to be used to support our relatively benign, morally grounded schools, we will have to allow those public funds to be used for any type of private school.
+ - Well, teachers have been profoundly demoralized in recent years and are often treated with contempt by politicians. There’s a great deal of reckless rhetoric in Washington about the mediocrity of the teaching profession – and I don’t find that to be true at all.
+ - Wonderful teachers should never let themselves be drill sergeants for the state.
+ - As a matter of record, New York City spends a higher portion of its budget on instruction and associated costs within the schools themselves than any of the other 100 largest districts in the nation.
+ - The primary victims of Katrina, those who were given the least help by the government, those rescued last or not at all, were overwhelmingly people of color largely hidden from the mainstream of society.
+ - What I tell these young people is, the world is not as dangerous as the older generation would like you to believe. Anyone I know who has ever taken a risk and lost a job has ended up getting a better one two years later.
+ - There has been so much recent talk of progress in the areas of curriculum innovation and textbook revision that few people outside the field of teaching understand how bad most of our elementary school materials still are.
+ - We know that segregation is evil. We know that the sickest children should not go to the worst hospitals.
+ - At that time, I had recently finished a book called Amazing Grace, which many people tell me is a very painful book to read. Well, if it was painful to read, it was also painful to write. I had pains in my chest for two years while I was writing that book.
+ - I beg people not to accept the seasonal ritual of well-timed charity on Christmas Eve. It’s blasphemy.
+ - Even if you never do anything about this, you’ve benefited from an unjust system. You’re already the winner in a game that was rigged to your advantage from the start.
+ - But for the children of the poorest people we’re stripping the curriculum, removing the arts and music, and drilling the children into useful labor. We’re not valuing a child for the time in which she actually is a child.
+ - Political struggle is the most important thing any of us can do as a citizen in a democracy; and that means the old joining the young to fight for elemental kinds of justice.
+ - When I was teaching in the 1960s in Boston, there was a great deal of hope in the air. Martin Luther King Jr. was alive, Malcolm X was alive; great, great leaders were emerging from the southern freedom movement.
+ - Instead of seeing these children for the blessings that they are, we are measuring them only by the standard of whether they will be future deficits or assets for our nation’s competitive needs.
+ - I once made a check of all books in my fourth-grade classroom. Of the slightly more than six hundred books, almost one quarter had been published prior to the bombing of Hiroshima; 60 percent were either ten years old or older.
+ - President Obama still places far too much emphasis on relentless testing with standardized exams.
+
+68 quotes

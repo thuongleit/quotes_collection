@@ -1,0 +1,56 @@
+ - A winner is someone who recognizes his God-given talents, works his tail off to develop them into skills, and uses these skills to accomplish his goals.
+ - Push yourself again and again. Don’t give an inch until the final buzzer sounds.
+ - First master the fundamentals.
+ - Once you are labeled ‘the best’ you want to stay up there, and you can’t do it by loafing around.
+ - My coach told me, “Larry, no matter how much you work at it, there’s always someone out there who’s working just a little harder – if you take 150 practice shots, he’s taking 200.” And that drove me.
+ - I wasn’t real quick, and I wasn’t real strong. Some guys will just take off and it’s like, whoa. So I beat them with my mind and my fundamentals.
+ - It makes me sick when I see a guy just stare at a loose ball and watch it go out of bounds.
+ - It doesn’t matter who scores the points, it’s who can get the ball to the scorer.
+ - I hate to lose more than I like to win.
+ - Don’t let winning make you soft. Don’t let losing make you quit. Don’t let your teammates down in any situation.
+ - Practice habits were crucial to my development in basketball. I didn’t play against the toughest competition in high school, but one reason I was able to do well in college was that I mastered the fundamentals. You’ve got to have them down before you can even think about playing.
+ - Michael Jordan is God disguised as a basketball player.
+ - I’m a firm believer in that you play the way you practice.
+ - I think you have to work very hard and dedicate yourself and have the respect of your teammates before you’re about to go out and just try to take a game over by yourself.
+ - When I was young, I never wanted to leave the court until I got things exactly correct. My dream was to become a pro.
+ - When I go to the line I’m thinking ‘All net.’ When I don’t think that, I’m likely to miss.
+ - In the closing seconds of every game, I want the ball in my hands for the last shot – not in anybody else’s, not in anybody else’s in the world.
+ - You never make any of the shots you never take. 87% of the ones you do take, you’ll miss too. I make 110% of my shots.
+ - I don’t think that once you get to one level, you can relax. You’ve got to keep pushing.
+ - There are many times when you are better off practicing than playing; but most people just don’t understand that.
+ - Basketball has been my life and I worked at it so hard because I enjoyed it so much.
+ - I think a lot of blue collar people related to me because a lot of people work for their money.
+ - Anytime you’ve got an opportunity to play for your country and win a gold medal, I think that takes it all. That’s the greatest thing you could ever achieve in your sport. So, I have been very fortunate to play on great teams, but the gold medal was probably the best.
+ - If there was a payment to the bank due, and we needed shoes, she’d get the shoes, and then deal with them guys at the bank. I don’t mean she wouldn’t pay the bank, but the children always came first.
+ - When I was a player, I didn’t expect my teammates to play the way I did. I did expect them to work hard hard every day and get better. And I never learned anything by losing.
+ - The nature of competition is such that any number of people invariably have their eyes on the same prize you do. Recognize your assets and employ them to the best of your ability.
+ - I just shoot until I feel good.
+ - What’s better? Dogs or broomsticks? I mean will the world really ever know?
+ - I really don’t like talking about money. All I can say is that the Good Lord must have wanted me to have it.
+ - As far as playing, I didn’t care who guarded me – red, yellow, black. I just didn’t want a white guy guarding me, because it’s disrespect to my game.
+ - I can see why fans don’t like to watch pro basketball. I don’t, either. It’s not exciting.
+ - Coaches can talk and talk and talk about something, but if you get it on tape and show it to them, it is so much more effective.
+ - You can make all the excuses you want, but if you’re not mentally tough and you’re not prepared to play every night, you’re not going to win.
+ - My goal was just to try and be the best player on my high school team, and look where I am now. And that was still my goal as a young kid, just to try and be a little better than my brother was.
+ - But it is a black man’s game, and it will be forever.
+ - I used to love the feeling of running, of running too far. It made my skin tingle.
+ - My opinion about basketball, the way I was taught, was when you step on the court, you play to win.
+ - Strength is not nearly as important as desire. I don’t think you can teach anyone desire. I think it’s a gift. I don’t know why I have it, but I do.
+ - I like being by myself.
+ - I’ve always been interested in jobs in the NBA. But I’ve been in this for 20 years and it might be time to do something else.
+ - Who in their right mind wouldn’t listen to what Larry Bird tells them? He knows what it takes to be a successful player, and he’s letting us do the things to have the success.
+ - I always know what’s happening on the court. I see a situation occur, and I respond.
+ - I learned what my weaknesses were and I went out the next day to turn those weaknesses intro strengths.
+ - Guys like Larry Bird – he played so hard, he wants everybody else to play hard. That’s not unreasonable. Any coach would want that and demand that.
+ - I wanted to compete at the highest level again – and that’s the NBA.
+ - If you tell a teammate you’re ready to play as tough as you’re able to, you’d better go out there and do it.
+ - Basketball was always a game to me. One of the greatest things in life for me was to be able to play what I loved dearly and get paid for it. So it was always a game to me and that’s how I perceived everything.
+ - The best basketball announcer is one who allows you to close your eyes.
+ - I knew I was as good as anybody. That’s not really bragging; it’s just that I’d put the time in.
+ - I have always been confident in my skills and once the game got going I knew I was probably the best player on the floor most of the time whether it was junior high, high school or college. I knew I had control of the game.
+ - I don’t know if I practiced more than anybody, but I sure practiced enough. I still wonder if somebody – somewhere – was practicing more than me.
+ - My name’s been on this check for a week now.
+ - The more you win, the better you’re gonna get. It grows on itself.
+ - Eminem. My son was listening to that and I was like, “What is that junk?” Then I started listening and I thought, You know, that kid is pretty good. It’s the storytelling.
+
+54 quotes

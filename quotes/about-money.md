@@ -1,0 +1,44 @@
+ - Before you speak, listen. Before you write, think. Before you spend, earn. Before you invest, investigate. Before you criticize, wait. Before you pray, forgive. Before you quit, try. Before you retire, save. Before you die, give. ~~William Arthur Ward
+ - The rich invest their money and spend what is left; the poor spend their money and invest what is left. ~~Jim Rohn
+ - Rule No. 1: Never lose money. Rule No. 2: Never forget Rule No. 1. ~~Warren Buffett
+ - Never depend on single income. Make investment to create a second source. ~~Warren Buffett
+ - If you’re good at something, never do it for free. ~~Jonathan Nolan
+ - Invest in as much of yourself as you can, you are your own biggest asset by far. ~~Warren Buffett
+ - Formal education will make you a living. Self-education will make you a fortune. ~~Jim Rohn
+ - Money can’t buy happiness, but it will certainly get you a better class of memories. ~~Ronald Reagan
+ - Never spend your money before you have earned it. ~~Thomas Jefferson
+ - Money is not the most important thing in the world. Love is. Fortunately, I love money. ~~Jackie Mason
+ - It’s not how much money you make, but how much money you keep, how hard it works for you, and how many generations you keep it for. ~~Robert T. Kiyosaki
+ - If you can’t make it good, at least make it look good. ~~Bill Gates
+ - Money is a great servant but a bad master. ~~Francis Bacon
+ - The money you have gives you freedom; the money you pursue enslaves you. ~~Jean-Jacques Rousseau
+ - Everyone has a plan ’till they get punched in the mouth. ~~Mike Tyson
+ - Money was never a big motivation for me, except as a way to keep score. The real excitement is playing the game. ~~Donald Trump
+ - I refuse to apologize for my ability – I refuse to apologize for my success – I refuse to apologize for my money. If this is evil, make the most of it. ~~Ayn Rand
+ - Money can’t buy you happiness but it does bring you a more pleasant form of misery. ~~Spike Milligan
+ - Money demands that you sell, not your weakness to men’s stupidity, but your talent to their reason. ~~Ayn Rand
+ - The way to stop financial joyriding is to arrest the chauffeur, not the automobile. ~~Woodrow Wilson
+ - Chase the vision, not the money. The money will end up following you. ~~Tony Hsieh
+ - A bank is a place that will lend you money if you can prove that you don’t need it. ~~Bob Hope
+ - Early to bed and early to rise makes a man healthy, wealthy, and wise. ~~Benjamin Franklin
+ - It’s simple arithmetic: “Your income can grow only to the extent you do.” ~~T. Harv Eker
+ - Success is having to worry about every damn thing in the world, except money. ~~Johnny Cash
+ - The Stock Market is designed to transfer money from the Active to the Patient. ~~Warren Buffett
+ - Time is more value than money. You can get more money, but you cannot get more time. ~~Jim Rohn
+ - Where large sums of money are concerned, it is advisable to trust nobody. ~~Agatha Christie
+ - Money and success don’t change people; they merely amplify what is already there. ~~Will Smith
+ - You aren’t wealthy until you have something money can’t buy. ~~Garth Brooks
+ - My favorite things in life don’t cost any money. It’s really clear that the most precious resource we all have is time. ~~Steve Jobs
+ - To give real service you must add something which cannot be bought or measured with money, and that is sincerity and integrity. ~~Douglas Adams
+ - Cocaine is God’s way of telling you you are making too much money. ~~Robin Williams
+ - So many people of wealth understand much more about making and saving money than about using and enjoying it. They fail to live because they are always preparing to live. ~~Alan Watts
+ - The superior man understands what is right; the inferior man understands what will sell. ~~Confucius
+ - Money is the alienated essence of man’s work and existence; this essence dominates him and he worships it. ~~Karl Marx
+ - Abundance is not something we acquire. It is something we tune into. ~~Wayne W. Dyer
+ - They deem me mad because I will not sell my days for gold; and I deem them mad because they think my days have a price. ~~Khalil Gibran
+ - Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. ~~Oprah Winfrey
+ - It is not the employer who pays the wages. Employers only handle the money. It is the customer who pays the wages. ~~Henry Ford
+ - Money is human happiness in the abstract; he, then, who is no longer capable of enjoying human happiness in the concrete devotes himself utterly to money. ~~Arthur Schopenhauer
+ - I have no money, no resources, no hopes. I am the happiest man alive. ~~Henry Miller
+
+42 quotes

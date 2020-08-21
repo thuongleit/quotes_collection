@@ -1,0 +1,174 @@
+ - I don’t listen to music. I hate music.
+ - Gossip is a very dangerous tool. We should be more wary of the gossiper, and not the gossip they’re trying to relay to you.
+ - Sometimes the most positive thing you can be in a boring society is absolutely negative.
+ - Ever get the feeling you’ve been cheated?
+ - As a human being, I’m work in process.
+ - I’m not here for your amusement. You’re here for mine.
+ - Turn the other cheek too often and you get a razor through it.
+ - Only the fakes survive.
+ - I have one major problem with the Internet: It’s full of liars.
+ - Situationism is a ludicrous proposition. It’s ill-formed and it’s perfectly French. That Gallic disposition towards common sense. L’Anarchie!
+ - One of the most beautiful things about Britain, apart from the NHS and the free education, is the British Army.
+ - I don’t have any expensive habits. I’m not a car collector or any of that nonsense. But I’d love to be incredibly wealthy for no reason at all.
+ - You’ll find that empty vessels make the most sound.
+ - If you have something to say then you want someone to pay attention or at least to have the opportunity for them to tell you to shut up and go away.
+ - I cannot comprehend fundamentalism. It’s fundamentally wrong.
+ - Just because people think politically different to you doesn’t mean they’re inhuman.
+ - My words are my bullets.
+ - The only good political movement I’ve seen lately was Occupy Wall Street. They had no leaders, which was genius. But unfortunately it always ends up with some hippy playing a flute.
+ - I like crazy people, especially those who don’t see the risk.
+ - Any kind of history you read is basically the winning side telling you the others were bad.
+ - There’s nothing glorious in dying. Anyone can do it.
+ - I hate the technological rip-offs that pass for music formats these days, and go back to vinyl to hear a good record because the sound is always so much fuller. I don’t even like listening to music in the car.
+ - It’s nice to be irritated. It’s a very joyous thing.
+ - Listen, you know this: If there’s not a rebellious youth culture, there’s no culture at all. It’s absolutely essential. It is the future. This is what we’re supposed to do as a species, is advance ideas.
+ - Love is what you feel for a dog or a pussycat. It doesn’t apply to humans.
+ - I mean, the genuine roots of culture is folk music.
+ - I like lime-flavoured yoghurt. The end. There is no religion. It’s a man-made fabrication. Once you understand that, you’ll be a happier individual. Atheism is as pointless as satanism.
+ - Words cannot express quite a lot of feelings, whereas a noise or tone or drone or sound, an accordion falling down a staircase, can somehow capture an emotion much better.
+ - Remaining childish is a tremendous state of innocence.
+ - The only notes that matter come in a wad.
+ - I don’t tolerate liars. When somebody lies to me, that’s really, like, just unbearable.
+ - I have no time for lies and fantasy, and neither should you. Enjoy or die...
+ - I’m not great at dealing with death, I have to say. I find death very hard: my mum, my dad, Sid Vicious. I’m not a monster; I feel it and it scares me. One death at a time, please, is all my heart will bear.
+ - Being born into the Royal Family is like being born into a mental asylum. Marrying into it is not something to be taken lightly.
+ - I never thought of Green Day as a punk band. Just bubblegum, really.
+ - When you come from desperate poverty, and that’s exactly what I come from, you know that nonsenses are not to be tolerated. I’m not sure who gains from chaos, but I know it’s not the poor folks in the council flats. The politics of vindictiveness is never, ever anything like a solution.
+ - Having a birthday cake squashed into your face by young kids? Delicious. I always don a Santa suit at Christmas. Remaining childish is a tremendous state of innocence.
+ - If my leg falls off, I’ll get a prosthetic. There’d be no deep sadness about. I’d just get on with it! It’s called life, and I love life. You have to be positive, and you have to crack on no matter what.
+ - Punk became a circus didn’t it? Everybody got it wrong. The message was supposed to be: Don’t follow us, do what you want!
+ - If you give me the chance, I’ll destroy America for you.
+ - Oscar Wilde turned the world upside down and was able to laugh at it, and hopefully by the time I’m 120 and worn out, that’s what I will achieve. I love being alive so much.
+ - I’m not blowing my own trumpet here, but I made a rap song 20 years ago with Afrika Bambaataa.
+ - As a young concert-going person, I was never enamoured with celebrities who would walk out to feature in certain songs and then walk off.
+ - I’ve never told anyone this. But I suffer from terrible stage fright. True. You can’t tell though, can you? Unbelievable, the panic. I nearly die of fear before I go on stage. Something wicked. I can’t eat a thing the day before a gig. It’d make me vomit.
+ - Meat isn’t murder, it’s delicious.
+ - You should never, ever be understood completely. That’s like the kiss of death, isn’t it? It’s a full stop. I don’t ever think you should put full stops on thoughts. They change.
+ - There are no limits to where our brains can take us. We are, if there be a God, God’s gracious creation.
+ - I had an Irish Catholic education. Horrible nuns, vindictive and cruel.
+ - If you were to look back at me as a school kid you’d see a very quiet little church mouse kind of character.
+ - Dummy Dum Dum was my nickname for years at school. I was the strange one of the family, the one who couldn’t remember his name.
+ - Britain’s an island; it’s always had a constant ebb and flow of immigration – it makes it a better place.
+ - I’ve always despised the hippies.
+ - Freedom isn’t to do what you want at somebody else’s expense.
+ - You can’t arrest me, I’m a rockstar.
+ - I don’t believe in anarchy, because it will ultimately amount to the power of the bully, with weapons. Gandhi is my life’s inspiration: passive resistance. I don’t want to live in the Thunderdome with Mad Max.
+ - I’ve never said I’m a communist.
+ - I love boating – not flash, ‘noisy go fast’ nonsense, but the general relaxation of it. My wife and I love to get in our little Wellcraft and go as far out to sea as we can, hopefully beyond land. That is the best thing you can ever do. It clears your psyche.
+ - These days young kids don’t have any place to form an epic adventure. It’s more often in front of the TV screen or a laptop. That’s very hard on them. They’re being taught daily unsocial skills. Facebook is an unsocial skill. It’s so sad.
+ - I have values. But morals are Christian. There’s no religion here. Values. Don’t hurt when you don’t need to, but don’t let anybody step over that line – it’s an invisible line, but it’s respect for somebody’s space.
+ - I love consumerism, TV culture, shopping malls. There’s nothing I’d ever buy, but I like being there. It’s wacky.
+ - Analog, electronic, whatever it happens to be, I simply love and adore literally every aspect of making music.
+ - I love pop music. It’s not easy to write a good pop song. It may be easier to put out a fake jazz album, as Sting does from time to time.
+ - I’m no one’s lap dog, you can’t put me on a leash.
+ - Until I see an Arab country, a Muslim country, with a democracy, I won’t understand how anyone can have a problem with how they’re treated.
+ - I always knew the Sixties wasn’t a revolution. It really was just a bunch of university students with wealthy parents having fun.
+ - Punk is like looking at a mirror. I already have a mirror so I don’t need the Offspring to remind me how gorgeous I am.
+ - I never take any commitment lightly, and I certainly don’t take my wife lightly. I never did and I never will. That’s permanent. That’s true love.
+ - If you ever want to know why I’m not on a record label, look at ‘The X Factor!’ Honestly, of all the people that strive to break barriers in music and do good things and write great lyrics, not one of them would ever pass the first round on any of these competitions.
+ - It’s volatile, the marriage. Which one isn’t? Nothing better than a good, full-on row. Get it all out. Say rude and nasty things. And then be sorry. Genuinely sorry, afterwards.
+ - I’m very open about my politics. I don’t believe in any political party at all, none of them.
+ - I love discordancy. It makes people ill at ease and wakes up a part of their brain that’s normally asleep.
+ - People think I hate the Royal Family, but that’s not true.
+ - I’ve had great pleasure meeting the likes of Newt Gingrich and having a chat with the fellow on a staircase. I found him completely dishonest and totally likeable, because he doesn’t care! He knows what a politician is, and he’s a perfect embodiment of one.
+ - If I’m left to my own devices, I will be tempted to make the most unlistenable music possible.
+ - When you grew up like me and my four brothers, you end up feeling somewhat inadequate, like somehow you don’t count.
+ - I always find the mirror in the dressing room is where the best artists are.
+ - I nearly die of fear before I go on stage. Something wicked. I can’t eat a thing the day before a gig.
+ - I’m not this callous clown walking around laughing at life all the time. I’ve had some serious, serious problems in my life. But I’ve come out with a smile.
+ - I think there’s something basically wrong with the general public that they do need their icons.
+ - I could never be a member of a single party. I want the best of all worlds, thank you.
+ - You’d have to be daft as a brush to say you didn’t like Pink Floyd.
+ - I showed what I can do with butter, right? Eighty-five percent increase in sales. I’m very proud of them Country Life ads. They were funny and clever and classy like the Toblerone ads I grew up with.
+ - I applaud the effort it takes to put a record together.
+ - Love is two minutes fifty-two seconds of squishing noises. It shows your mind isn’t clicking right.
+ - I’m aware of my songs. I’m aware of them because they’re about true emotions, true feelings, things that matter.
+ - We need wealthy dogs off the seats of power. They’re taking us back to feudalism and I really don’t want that. But I’m very far from being a socialist.
+ - I could take on England, but I couldn’t take on one heroin user.
+ - I’d love to have been born into a wealthy family. I might have turned out even more marvellous than I am now...
+ - Any new ideas go into PiL. My inspiration is everything that the human being gets up to. I don’t listen to any music when I’m in PiL-zone, because influences can poison your well. Otherwise, I listen to anything.
+ - Love is 2 minutes and 52 seconds of squelching noises.
+ - You gotta bear in mind, the youth – and this is just in Britain alone – have nowhere to go in the evenings. They’ve closed all the social centers. There’s not even a patch of grass to kick a ball on.
+ - I keep falling off the edge of the stage because I can’t see it. I can’t see my wrinkles in the mirror either, though.
+ - Music is a simulation of something, but language is the greatest thing we possess.
+ - I never wore a studded leather jacket, y’know. Ne-va!
+ - Here’s how I understand music. If you can play the same bunch of noise twice, it’s music. To go beyond that is supercilious and pontificating.
+ - If the Royal Family was going to assassinate someone, they would have gotten rid of me a long time ago.
+ - I think I have something valid to say. My words are my bullets. I like to brag that somehow I got it right.
+ - Anyone who’s parading under a $100,00-plus video is not free from corporate. That’s just the MTV advertising agency. I find them all to be just a bit of a sham.
+ - I think national pride leads to nothing but wars and hate.
+ - Some song ideas absolutely require a kind of rigid discipline, and others require absolute chaotic abandon. The form is only valid if you know how to un-form it. I don’t mean to sound like an intellectual here!
+ - I love books, and all the best ones are people analysing their own emotions. You can learn from that.
+ - My reputation is a media creation.
+ - There’s many, many ways to write a song. But generally, sitting down at a table and writing is not one of them.
+ - Music can describe emotions far more accurately than words ever can. As soon as I realised that, I knew music was where I wanted to be.
+ - You never know how things will work out. After all the bad reasons in the world, some good came out.
+ - Let’s face it, I ain’t ever gonna be the best singer in the world, or the best anything.
+ - Pop music I have always loved best. But the more extreme, fascist-led examples of the music business I tend to detest the most.
+ - Periods of inactivity, I don’t know such things. I’m consistently writing. My life is busy. It always is. There are hardly any moments for self-indulgent laziness.
+ - The idea of hearing, ‘Great gig, man,’ one more time just turns my stomach over.
+ - I’m not going to pontificate and tell you to execute your government at dawn, but it wouldn’t be a bad idea.
+ - For a gun-toting nation, Americans are surprisingly passive.
+ - If anyone asks for your autograph they’re showing you respect and give it back to them.
+ - Do not stand in the middle, go to the right or to the left.
+ - If dolphins are so intelligent, how come they ain’t got Walkmans?
+ - I don’t believe in pets. I like animals to be wild and free.
+ - Pop music I have always loved best.
+ - I love conversation and the sharing of different thoughts and philosophies. That kind of stuff always makes me happy. I don’t mind interviews, either – I like doing them.
+ - Me, as a human, I never want to take away another human being’s choices or lifestyles or anything.
+ - Over the years, during television interviews, whenever the host or the reviewer or whoever gets cynical and nasty with me, I will behave accordingly. I will defend myself.
+ - There are some Rolling Stones songs that are just stunners.
+ - I’ve helped launch 49 careers – those that have been in PiL. To me, they are my babies; whatever they get up to, they know I love them. They’ve been living in my pockets, and they should show more gratitude.
+ - I’ve done no harm to no one. In fact, I think I’ve improved the world.
+ - I love pop music. It’s not easy to write a good pop song.
+ - It’s nice to be a part of history but people should get it right. I may not be perfect, but I’m bloody close.
+ - I don’t release records to be anything but enjoyable.
+ - Maybe I’m a prehistoric monster by being an individual. It’s highly likely. All I offer to others is their own individuality. Grab it!
+ - Do what I want, be honest to myself and then it would do good for others, that’s all, full on.
+ - I don’t believe in pets. I like animals to be wild and free. But I can sit and watch an ant run up and down the floor for hours. I use a magnifying glass to look at the beautiful shape of the thing.
+ - I do use my music to entertain myself, as indeed I use other people’s music.
+ - For me, the best rock is not what you play – it’s what you’re not playing.
+ - If you can sort out why you feel the way you do then you might be in better shape to meet your maker.
+ - I’ve never done anything deliberately; I just speak my mind, and that is what I consistently do and will always do in any way shape or form that I can.
+ - My way of thinking as I approach any human being on this planet is, ‘What are you doing now?’ That’s what interests me. I don’t come at anybody with a whole bunch of assumptions.
+ - When I write, my brain moves faster than my hands so I’m always trying to picture things.
+ - You’re made to feel ugly, and I made ugly beautiful. Just by sheer persistence. Nobody has the right to say that I am ugly, and I will not be a professional victim, you know. Sorry!
+ - I find Lady Gaga hilarious. And I kind of like her. My heart’s warmed to her.
+ - Occasionally, a re-enactment is a fine thing. I love Civil War re-enactments.
+ - The sounds of anger are not melodic.
+ - I don’t need a Rolls Royce, I don’t need a house in the country, I don’t want to have to live in France. I don’t have any rock and roll heroes; they’re all useless. The Stones and The Who don’t mean anything anymore; they’re established. The Stones are more of a business than a band.
+ - Don’t accept the old order. Get rid of it.
+ - People don’t like other poor people, and rather than blame the people that make you all poor, you blame each other.
+ - I like America’s diversity and its landscapes.
+ - I don’t believe in false memories, like I don’t believe in false songs.
+ - Obama’s dense as a doorbell; not much going on up there – it’s a wooden top.
+ - You can always wake up on the wrong side of the bed and, boo-hiss, everyone suffers. We can all be temperamental.
+ - It’s no good being nice and young and naive. There’s no good in that at all. You’ve got to do it all yourself, and you’ve gotta learn quick. And you can’t look for sympathy either.
+ - Americans being upright and forthright and honest and true to themselves is a very hard concept.
+ - U2 – that’s a band that never should have existed. There’s no life experience in any of their songs.
+ - I’m not able to tell you what the best song is yet, because there’s more to come. I feel that in me. I can still feel the burning energy and the desire to create and create and create.
+ - A record company used to be a very good thing, but they ended up soul-destroyingly trapping people in the accounting department. And you couldn’t get any further, and the heads of each department were changing all the time, so you couldn’t have any permanent relationship within the corporation.
+ - I’d rather give up my ears than my eyes, which might sound unusual for a musician.
+ - You need the past as a guideline. The history of music is a good basis, but to escape that stuff, that tortuous rulebook, you have to learn it first. It’s kind of like religion – once you’ve written the Bible, that’s it, move on.
+ - I’ve been asked over the years to compile a list of desert-island discs. I couldn’t do that. If I was trapped on a desert island, I don’t think I’d want 10 songs to bring with me.
+ - Judge not others unless you’re prepared to be judged!
+ - Books are like my one and only joy.
+ - The day I run out of ideas is the day I stop making records.
+ - Every single lyric I’ve ever written I meant.
+ - Rules are important, but they’re temporary and they’re always supposed to be changed.
+ - The so-called alleged ‘art’ of the video – well, the video has killed the radio star, but the video star killed the live musician, et cetera, et cetera, et cetera.
+ - I love American ski resorts because they’re open to everyone, are not incredibly expensive. They’re not snobby and you can have fun all day long on the most excellent mountains.
+ - I love being alive so much. When you come out of comas in your childhood, every moment awake is a joyous occasion.
+ - I was brought up and raised in Britain as a Labour man, and that quickly changed. And I find there are more working-class people in the Conservative Party than the Labour party.
+ - Stroll into work at 10. Lunch from 12 till three. Leave work at five. That’s living!
+ - It’s a repressive society where you can’t be horrible, I’m not horrible, they made me horrible, I’m just honest.
+ - Art should be life. It’s an imitation of life. It should have some humanity in it.
+ - People should never allow themselves to be dictated to by media.
+ - The record companies fell apart – quite deservedly. Their corrupting, all-binding contract nonsense had to stop.
+ - I don’t like the monikers, and I don’t like being pigeonholed. You know, I’m a human being.
+ - You have moments of grief in life, and if you can put pen to paper and capture that, that’s something wonderful. I can revisit actual songs about past deaths, and I know that emotion is as true now as it was then.
+ - My biggest fear is mindlessly and stupidly repeating myself.
+ - I’ve created several musical trends, really. That’s not because I’m so far out and fabulous. It’s because most bands have no ideas of their own. They’re so desperate they’ll grab at any old straw.
+ - I have a sensible set of values that tell me to never lie.
+
+172 quotes

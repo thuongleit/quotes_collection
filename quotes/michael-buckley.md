@@ -1,0 +1,25 @@
+ - You can’t judge the many by the actions of the few.
+ - The world is always ruled by a maniac. – Baba Yaga.
+ - Please, don’t hate me because I am beautiful.
+ - Trickster, love will be the end of you.
+ - I’m going to teach you the art of swordsmanship-or in other words, how to totally kill someone with a sharp, pointy thing.
+ - The night is young, and by the grace of magic, so are we.
+ - Don’t disrespect the sword marshmallow.
+ - If we have to get married and have a million babies, I hope our relationship will be built on mutual disgust and an endless barrage of ridicule and insults. It feels like the only thing I can count on right now. I don’t want something dumb like respect and affection getting in the way.
+ - I mean, if you could have a wizard grant a wish, would you waste it on going to Kansas?
+ - Animals shouldn’t eat gumdrops! They shouldn’t drink tea or chocolate milk, either.
+ - And who are you supposed to be? the King of snot-nosed delinquents?
+ - When did you suddenly become Mister Maturity?
+ - That’s why crazy people are so dangerous. You think they’re nice until they’re chaining you up in the garage.
+ - If only he can get over becoming a NERD.
+ - Nothing like a puppet to give you the willies.
+ - Save the people you love, who cares about the rest of the world? – Uncle Jake.
+ - The only bad ideas are the ones never tried.
+ - How ironic, she thought, as she fell to her certain death, that at that moment she would have given anything to be a giant goose again.
+ - But know this, if you get killed out there I’m going to fire you.
+ - If you want a happy ending you have to go out and take it.
+ - And a utility belt! I’m like an asthmatic Batman!
+ - Moth, that wasn’t very nice.
+ - Are you familiar with that play? In fact, we’re almost living it!
+
+23 quotes

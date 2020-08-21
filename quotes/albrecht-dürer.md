@@ -1,0 +1,22 @@
+ - Sight is the noblest sense of man.
+ - Why has God given me such magnificent talent? It is a curse as well as a great blessing.
+ - If a man devotes himself to art, much evil is avoided that happens otherwise if one is idle.
+ - Help us to recognize your voice, help us not to be allured by the madness of the world, so that we may never fall away from you, O Lord Jesus Christ.
+ - Simplicity is the greatest adornment of art.
+ - Love and delight are better teachers than compulsion.
+ - The artist is chosen by God to fulfill his commands and must never be overwhelmed by public opinion.
+ - No single man can be taken as a model for a perfect figure, for no man lives on earth who is endowed with the whole of beauty.
+ - Sane judgment abhors nothing so much as a picture perpetrated with no technical knowledge, although with plenty of care and diligence.
+ - I hold that the perfection of form and beauty is contained in the sum of all men.
+ - What beauty is, I know not, though it adheres to many things.
+ - The new art must be based upon science – in particular, upon mathematics, as the most exact, logical, and graphically constructive of the sciences.
+ - Nature holds the beautiful, for the artist who has the insight to extract it. Thus, beauty lies even in humble, perhaps ugly things, and the ideal, which bypasses or improves on nature, may not be truly beautiful in the end.
+ - Geometry is the foundation of all painting.
+ - There is no man on earth who can give a final judgment on what the most beautiful shape may be. Only God knows.
+ - Art is embedded in nature and they who can extract it, have it.
+ - As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.
+ - But I shall let the little I have learnt go forth into the day in order that someone better than I may guess the truth, and in his work may prove and rebuke my error. At this I shall rejoice that I was yet a means whereby this truth has come to light.
+ - He that would be a painter must have a natural turn thereto. Love and delight therein are better of the Art of Painting than compulsion.
+ - My father suffered much and toiled painfully all his life, for he had no resources other than the proceeds of his trade from which to support himself and his wife and family.
+
+20 quotes

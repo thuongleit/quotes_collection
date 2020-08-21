@@ -1,0 +1,32 @@
+ - The essence of interior design will always be about people and how they live.
+ - The essence of interior design will always be about people and how they live. It is about the realities of what makes for an attractive, civilized, meaningful environment, not about fashion or what’s in or what’s out. This is not an easy job.
+ - Decorating is not a look, it’s a point of view.
+ - Design is about discipline and reality, not about fantasy beyond reality.
+ - Decoration is really about creating a quality of life, and a beauty in that life that nourishes the soul, that makes life beautiful.
+ - Nothing comes cheap, though the educated eye will always spot very nice things for the least money.
+ - Decorating is not about making stage sets, it’s not about making pretty pictures for the magazines, it’s really about creating a quality of life, a beauty that nourishes the soul.
+ - Design is defined by light and shade, and appropriate lighting is enormously important.
+ - Make your home as comfortable and attractive as possible and then get on with living. There’s more to life than decorating.
+ - Design is coming to grips with one’s real lifestyle, one’s real place in the world. Rooms should not be put together for show but to nourish one’s wellbeing.
+ - Forget the floor plans. Arrange the furniture where it is the most comfortable and will look best.
+ - After the design is firmly fixed, the decoration is added. Decorating is the final enhancement.
+ - Flair-a primitive kind of style-may be innate, but I think knowledgeable taste is learned, the result of travel, experience, living, education.
+ - Life is all about manners. Nothing else matters.
+ - I deeply believe that a beautiful decor can have a beneficial influence on our lives.
+ - To create an interior, the designer must develop an overall concept and stick to it.
+ - You cannot make a modern apartment out of a traditional space.
+ - An interior designer must be able to clarify his intent keeping ever in mind that decorating is not a look, it’s a point of view.
+ - A decorator, no matter how talented, can’t always get the desired results because sometimes there is resistance or maybe a lack of understanding on the part of the client. I think it is the decorator’s job to work as a guide, to bring out the best qualities and the best attitudes.
+ - Deep downy upholstery is absolutely what I’ve always been about.
+ - Too much of what passes for design now is theater. It’s one thing to be eccentric- and by the way, most eccentrics tend to be rather well-educated people – and quite another to be a faddist, by which I mean someone who tries to conjure a totally foreign aesthetic in a misplaced environment...
+ - So many people arrange furniture in order to see what’s going on outside. But why? The view isn’t going anywhere.
+ - Flair is a primitive kind of style. It is innate and cannot be taught. It can be polished and refined. When a person has flair, a grounding in the principle of design, and self-discipline, that person has the potential of being an outstanding designer.
+ - A good decorator not only plans and schemes, but he also knows how the job is done.
+ - We’re all collectors by nature. But if you’re talking about an orderly life, there has to be a stop sign somewhere. Building a collection requires a strong constitution and the ability to resist.
+ - I have always believed that the more educated the clients are, the easier they are to work with. Clients with a knowledge of decorating, and an ability to articulate what they want from the finished project, make the designer’s job easier.
+ - Decorators should always remember that letting a client see too many beautiful things is a pitfall.
+ - Ceilings must always be considered. They are the most neglected surface in a room.
+ - The one thing I never get involved with is selecting art or pictures for a client. This is a very personal thing. If the clients have pictures, I will hang them. When they do not own pictures I leave the walls blank.
+ - When Van Truex defined the difference between designing and decorating, he used the analogy of preparing a roast of beef. Design, he said, is the preparation and cooking; decorating is the final seasoning, the savoring.
+
+30 quotes

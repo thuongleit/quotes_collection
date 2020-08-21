@@ -1,0 +1,46 @@
+ - I am part of a divine essence. I don’t have to become anything. I already am.
+ - Simplicity. Simplicity. Simplicity. The three keys to a spiritual life.
+ - The solution begins with a deeper transformation that must occur in each of us. I AM isn’t as much about what you can do, as who you can be. And from that TRANSFORMATION OF BEING, action will naturally follow.
+ - I hope people start to look at their lives as the most powerful, creative act they will ever offer this world.
+ - I didn’t want to hear the usual answers about what’s wrong because I believe these are symptoms: global warming, genocide, hunger, poverty, war, environmental crisis. If we can identify the root cause, we can change our ways.
+ - Death is not the enemy. A life lived without love is the enemy.
+ - I love Frank Capra. He believed in the goodness of people and one man’s ability to fight and often triumph.
+ - Authenticity means to be the author of your own life.
+ - The bike accident caused me to start talking about spiritual truths. This accident – where I faced my own death – compelled me to talk about these truths and try to make a movie about them.
+ - You can’t sow an apple seed and expect to get an avocado tree. The consequences of your life are sown in what you do and how you behave.
+ - Nothing in nature takes more than what it needs.
+ - The way I think we were living is an invention. The truth is nobody can own anything. That was an unheard-of concept among indigenous people. We invented that.
+ - I was always kind of finding humor to be an access point to the conversation, to a pain relief, if you will. My mother was in a wheelchair since I was very young, so she was in pain and we used humor.
+ - I think laughter is a sacred act.
+ - If you bounce a tennis ball against a wall it will come back to you the same way every time. But if you shift the wall a few degrees it will come back another way.
+ - If you look at the Bible as a whole, it’s redemptive and beautiful, and it’s God’s love story to mankind.
+ - Theres one fundamental law that all of nature obeys that mankind breaks every day. Now, this is a law thats evolved over billions of years, and the law is this: Nothing in nature takes more than it needs.
+ - My dad’s half-Lebanese, my mom is full Lebanese. I’m three-quarters Lebanese. Irish-Lebanese.
+ - The mystics will tell you death is perfectly safe. A violent act will beget a violent act; it is simply a law.
+ - Definition is the death of discovery.
+ - Love is the essential energy of the universe. It is the force that puts the stars in the firmament, and it makes the blood run through the veins.
+ - Our culture does not teach us this, but what happens in Vegas does not stay in Vegas. If you cheat in Vegas, it comes right home with you. If you cheat in Vegas, you walk home as a cheater. You lie awake at a night a cheater. You cannot escape it.
+ - Illnesses are often times a reflection of an emotional place that needs healing or attention.
+ - I have not walked away from Hollywood. I’m walking away from the way I personally did business in Hollywood. The budget of whatever movie I do needs to be efficient; it needs to consider what kind of resources we’re using and how to be as responsible as possible.
+ - Hope is the belief we might get it done, and faith is the knowledge we will get it done.
+ - You send a message in everything you do, Im always very conscious about what ideas and what energy I put out there.
+ - I am operating under the philosophy that I will simply use what I need and the rest – even if I still have it somewhere – is not mine. It is others’. It is for the healing of the natural world. And it is in the process of returning.
+ - We started by asking what’s wrong with the world, and we ended up discovering what’s right with it.
+ - I believe in unity, as opposed to division.
+ - When an individual changes in even a small way he immediately changes the world around him. And that concentric circle moves out and changes everything.
+ - If we exchange bombs for bread there will be less reason for wanting to kill us. I just want to have the conversation.
+ - I wasn’t paying enough attention to what my heart was telling me. When I paid attention and got the message, I could move forward and heal.
+ - Communism didn’t work because people weren’t ready for it, it was corrupt, and because it squelched individualism.
+ - Nature is an incredible cooperative. When things operate outside of that cooperative, they die off. It’s a very simple rule that nature operates under.
+ - I don’t consider anything I’m doing as generous. In the new model of the world, I hope people will consider whatever I’m doing as just normal.
+ - I come from a family of lawyers. I was expected to be a professional of some sort, not an artist. I was never uplifted for my art.
+ - What matters is who we are, not who we beat.
+ - Fear represents our need to hang on to the riverbank, to control outcomes, results, our lives; it swims upstream. Truth is about releasing that hold, letting go of results, and trusting the direction of Life’s current.
+ - I was raised Catholic and didn’t like the dogma and exclusivity of that teaching but I was moved by the moral teachings and by the power of the Jesus fellow.
+ - TRUTH: When a child believes he must win to be worthy, when young adults define themselves by what they do and not who they are, it is a kind of slavery a slave master would envy.
+ - I wasn’t big in the party scene but I did have an excessive lifestyle. I had much more than I needed. I think that was a manifestation of a certain kind of mental illness.
+ - The one thing that advances a society is not technology or so-called development; its love – that one principle.
+ - I don’t have any interest in changing a system, because the system will simply get bucked back by people who haven’t changed.
+ - I’m from the Madeleine L’Engle school. The more she delves into science, the more she knows there’s a creator who’s behind these amazing laws, these amazing events. The symmetry of nature, the structure and order of it.
+
+44 quotes

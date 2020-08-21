@@ -1,0 +1,38 @@
+ - There is only you and your camera. The limitations in your photography are in yourself, for what we see is what we are.
+ - Photography is a transformation, not a reproduction.
+ - A picture is the expression of an impression. If the beautiful were not in us, how would we ever recognize it?
+ - Learn by doing or even better unlearn by doing. The opposite of what you learned.
+ - My theory of composition? Simple: do not release the shutter until everything in the viewfinder feels just right.
+ - I am not interested in shooting new things – I am interested to see things new.
+ - Leica, schmeica. The camera doesn’t make a bit of difference. All of them can record what you are seeing. But you have to see.
+ - The camera only facilitates the taking. The photographer must do the giving in order to transform and transcend ordinary reality. The problem is to transform without deforming. He must gain intensity in form and content by bringing a subjective order into an objective chaos.
+ - Only a vision – that is what one must have.
+ - We can write the new chapters in a visual language whose prose and poetry will need no translation.
+ - The most important lens you have is your legs.
+ - There are almost too many possibilities. Photography is in direct proportion with our time: multiple, faster, instant. Because it is so easy, it will be more difficult.
+ - Beware of color theories. Theories in color photography are dangerous. The plain fact that there are so many of them proves my point.
+ - Style has no formula, but it has a secret key. It is the extension of your personality. The summation of this indefinable net of your feeling, knowledge and experience. Take colour as a totality of relations within a framecolour is joy. One does not think joy. One is carried by it.
+ - In every artist there is poetry. In every human being there is the poetic element. We know, we feel, we believe.
+ - You don’t take pictures, the good ones happen to you.
+ - Refine your senses through the great masters of music, painting, and poetry.
+ - There is no formula. There are only confirmations to formulas which one has already discovered oneself.
+ - I want to be remembered much more by a total vision than a few perfect single pictures.
+ - The artist must express the summation of his feeling, knowing and believing through the unity of his life and work.
+ - Beware of too much taste as it leads to sterility.
+ - Photography is a bridge between science and art. It brings to science what it needs most, the artistic sense, and to art the proof that nothing can be imagined which cannot be matched in the counterpoints of nature.
+ - Color is joy. One does not think joy. One is carried by it.
+ - You see what you think, you see what you feel, you are what you see If with the camera you can make others see it – that is photography.
+ - With photography a new language has been created. Now for the first time it is possible to express reality by reality. We can look at an impression as long as we wish, we can delve into it and, so to speak, renew past experiences at will.
+ - Don’t ever over-analyze your results. Don’t ever try to find your own secret or the one which you admire. One does not try to catch soap bubbles. One enjoys them in flight and is grateful for their fluid existence.
+ - Every work of art has its necessity; find out your very own. Ask yourself if you would do it if nobody would ever see it, if you would never be compensated for it, if nobody ever wanted it. If you come to a clear ‘yes’ in spite of it, then go ahead and don’t doubt it anymore.
+ - Beware of direct inspiration. It leads too quickly to repetitions of what inspired you.
+ - I don’t believe so much in the value of a single picture anymore. I don’t really photograph for the wall.
+ - A few words about the question of whether photography is art or not: I never understood the question.
+ - All I wanted was to connect my moods with those of Paris. Beauty pains and when it pained most, I shot.
+ - We all would love sometimes to be free from our own knowledge. It is even the most difficult to unlearn – as the most important problems are.
+ - A picture is the expression of an impression.
+ - I have always felt better taking a risk than an easier route for what I believe in.
+ - Through photography, both artist and scientist can find a common denominator in their search for the synthesis of modern vision in time, space and structure.
+ - I prefer to be noticed some day, first for my ideas and second for my good eye...
+
+36 quotes

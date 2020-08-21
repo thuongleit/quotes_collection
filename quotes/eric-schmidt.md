@@ -1,0 +1,92 @@
+ - The self driving car is not self-aware. It’s just driving; it’s not thinking.
+ - We run the company by questions, not by answers.
+ - Say yes to more things.
+ - There were 5 Exabytes of information created between the dawn of civilization through 2003, but that much information is now created every 2 days.
+ - The Internet is the first thing that humanity has built that humanity doesn’t understand, the largest experiment in anarchy that we have ever had.
+ - The Internet of things will augment your brain.
+ - None of us is as smart as all of as.
+ - Bitcoin is a remarkable cryptographic achievement and the ability to create something which is not duplicable in the digital world has enormous value.
+ - In a networked world, trust is the most important currency.
+ - Every 2 days we create as much information as we did up to 2003.
+ - If you have something that you don’t want anyone to know, maybe you shouldn’t be doing it in the first place.
+ - The coach doesn’t have to play the sport as well as you do. They have to watch you and get you to be your best.
+ - There is a science to managing high tech businesses, and it needs to be respected. One of them is that in technology businesses, leadership is temporary. It’s constantly recycling. So the asset has limited lifetime.
+ - I don’t believe society understands what happens when everything is available, knowable and recorded by everyone all the time.
+ - Washington is an incumbent protection machine. Technology is fundamentally disruptive.
+ - We know where you are. We know where you’ve been. We can more or less know what you’re thinking about;.
+ - Google is very much a not-invented-here, build-it-ourselves culture.
+ - Just remember when you post something, the computers remember forever.
+ - Show us 14 photos of yourself and we can identify who you are;.
+ - In general in technology, if you own a platform that’s valuable, you can monetize it.
+ - Around 400 million people in the last year got a smartphone. If you think that’s a big deal, imagine the impact on that person in the developing world.
+ - The rise of Google, the rise of Facebook, the rise of Apple, I think are proof that there is a place for computer science as something that solves problems that people face every day.
+ - The computing world is very good at things that we are not. It is very good at memory.
+ - If you thought when you got your job at 20 that it would never change you were misinformed. Retrain yourself to be curious.
+ - Mobile is the future and there’s no such thing as communication overload.
+ - Brands are the solution, not the problem. Brands are how you sort out the cesspool.
+ - The Internet is fast becoming a cesspool where false information thrives.
+ - The characteristic of great innovators and great companies is they see a space that others do not. They don’t just listen to what people tell them; they actually invent something new, something that you didn’t know you needed, but the moment you see it, you say, ‘I must have it.’
+ - Mobile use is growing faster than all of Google’s internal predictions.
+ - It’s because of this fundamental shift towards user-generated information that people will listen more to other people than to traditional resources.
+ - People who bet against the Internet, who think that somehow this change is just a generational shift, miss that it is a fundamental reorganizing of the power of the end user. The Internet brings tremendous tools to the end user, and that end user is going to use them.
+ - Success is really about being ready for the good opportunities that come before you. It’s not to have a detailed plan of everything that you’re going to do. You can’t plan innovation or inspiration, but you can be ready for it, and when you see it, you can jump on it.
+ - Google Maps are phenomenal. Yep, ask an Apple user.
+ - Google is more than a business. Google is a belief system. And we believe passionately in the open Internet model.
+ - The trend has been mobile was winning. It’s now won.
+ - One of the unintended negative consequences of online advertising has been the loss of value in traditional classifieds. It’s simply quicker, simply easier for an end user who’s online, on a broadband connection, to look things up and to figure out what they want to buy.
+ - People are good at intuition, living our lives. What are computers good at? Memory.
+ - The Internet is really about highly specialized information, highly specialized targeting.
+ - It’s a bug that cars were invented before computers.
+ - People are building communities of people who use video. They’re sharing them. YouTube’s traffic continues to grow very quickly.
+ - Amazon has well passed any expectations of its ability to change distribution and marketing.
+ - I think it’s pretty clear that the Internet as a whole has not had a strong notion of identity. And identity means, ‘Who am I?’ Fundamentally, what Facebook has done has built a way to figure out who people are.
+ - Technology will move faster than governments, so don’t legislate before you understand the consequences.
+ - In a world where everything is remembered and everything is kept forever, you need to live for the future and things you really care about.
+ - I actually think most people don’t want Google to answer their questions. They want Google to tell them what they should be doing next.
+ - At Google, operations are not just an afterthought: they are critical to the company’s success, and we want to have just as much effort and creativity in this domain as in new product development.
+ - When you use Google, do you get more than one answer? Of course you do. Well, that’s a bug. We have more bugs per second in the world. We should be able to give you the right answer just once. We should know what you meant.
+ - One person’s definition of evil is another person’s different definition.
+ - We have an opportunity for everyone in the world to have access to all the world’s information. This has never before been possible. Why is ubiquitous information so profound? It’s a tremendous equalizer. Information is power.
+ - Ultimately, in the Internet, openness has always won. I cannot imagine that the current competitive environment would reverse that.
+ - A lot of the Google inventions came from engineers just screwing around with ideas. And then management would see them, and we’d say, ‘Boy, that’s interesting. Let’s add some more engineers.’
+ - There clearly are cases where evil people exist, but you don’t have to violate the privacy of every single citizen of America to find them.
+ - We don’t have a traditional strategy process, planning process like you’d find in traditional technical companies. It allows Google to innovate very, very quickly, which I think is a real strength of the company.
+ - If you think about YouTube, YouTube is a ‘searching the world’s videos’ problem, right? They all have to be there, but how do you find them? What I guess I’m trying to say is that search is still the killer app.
+ - Do not be afraid to fail, but also, do not be afraid to succeed.
+ - It’s very difficult for governments to dominate the Internet because it’s so difficult to control. People want to be free. People want to hear multiple voices. They want to make their own decisions. And people who see things will report things.
+ - I still believe that sitting down and reading a book is the best way to really learn something.
+ - Half of Google’s revenue comes from selling text-based ads that are placed near search results and are related to the topic of the search. Another half of its revenues come from licensing its search technology to companies like Yahoo.
+ - Since I have access to every, every crisis in the world because it’s always blaring at me on cable television, that doesn’t mean I have to worry about every one of them. This is also known as knowing where the off button is.
+ - I’ve come to a view that humans will continue to do what we do well, and that computers will continue to do what they do very well, and the two will coexist, but in different spaces.
+ - A mind set in its ways is wasted. Don’t do it.
+ - Remember, when you go to YouTube, you do a search. When you go to Google, you do a search. As we get the search integrated between YouTube and Google, which we’re working on, it will drive a lot of traffic into both places. So the trick, overall, is generating more searches, more uses of Google.
+ - Google docs and spreadsheets don’t work if you’re on an airplane. But it’s a technical problem that is going to get solved. Eventually you will be able to work on a plane as if you are connected and, then when you get reconnected to the Internet, your computer will just synchronize with the cloud.
+ - It’s a mistake to predict the size of markets that are so new. This model has shown no signs of slowing down. So we are going to get as much of it as we possibly can, and when we get close to that we’ll figure out other problems.
+ - The core problem is that the world is full of people who would like to take 99 per cent of the information that’s on the Internet, and eliminate 1 per cent. Everyone has their own thing they don’t like.
+ - We’re about to see an acceleration in technological platforms that, for marketers, will be on a scale rivalled only by the arrival of color TV.
+ - There’s been spying for years, there’s been surveillance for years, and so forth, I’m not going to pass judgement on that, it’s the nature of our society.
+ - We want to make sure the thing you’re looking for is on Google 100 percent of the time.
+ - I had a rule that I had to go to bed before the sun came up. So I used to look up the sunrise times because I thought it would be bad karma to be going to bed as dawn was arriving.
+ - If you have a child, you’ll notice they have two states: asleep or online.
+ - The issues of wireless versus wireline gets very messy. And that’s really an FCC issue, not a Google issue.
+ - The more broadband we can get globally, the better. It’s better for the world; it’s better for our advertisers; it’s better for Google.
+ - The average American doesnt realize how much of the laws are written by lobbyists.
+ - Search companies, which I won’t mention by name, tried to do so many things at the same time, they forgot all about search. They either missed the next revolution of search or they created an opening for a Google to enter.
+ - If you’re going to make a law, make a law that actually works. It’s extraordinarily difficult.
+ - Twitter can no more produce analysis than a monkey can type out a work of Shakespeare.
+ - Washington – having spent a lot of time there, I grew up there and have spent a lot of time there recently – is largely defined by detailed analytical views and policy choices that are not very good. You know, each policy choice has a winner and a loser, right? Somebody’s ox is getting gored.
+ - When the Internet publicity began, I remember being struck by how much the world was not the way we thought it was, that there was infinite variation in how people viewed the world.
+ - I believe that this notion of self-publishing, which is what Blogger and blogging are really about, is the next big wave of human communication. The last big wave was Web activity. Before that one it was e-mail. Instant messaging was an extension of e-mail, real-time e-mail.
+ - You have to fight for your privacy or you lose it.
+ - Each country makes a different decision on adult pornography, but the good news is that even governments you hate, hate child pornography.
+ - The adult way to run a business is to run it more like a country. They have disputes, yet they’ve actually been able to have huge trade with each other. They’re not sending bombs at each other.
+ - By the summer of 2012, the majority of the televisions you see in stores will have Google TV embedded.
+ - Silicon Valley’s involvement with Washington dates from one event, which was John Scully – who was the CEO of Apple – had dinner with President Clinton and Vice President Gore in 1993. And we’re all going, like, ‘What’s going on? Why would we have dinner with the president?’
+ - People are surprised to find out that an awful lot of people think that they’re idiots.
+ - The thing that people seem to miss about not just Google, but also our competitors, Yahoo, eBay and so forth, is that there’s an awful lot of communities that have never been served by traditional media.
+ - In many countries adult pornography legislation is an attempt to legislate something else.
+ - If you forgo your plan, you also have to forgo fear.
+ - I had always assumed that the right way to do it was to these engineers, put them in offices by themselves with doors that they could close so they could think deep thoughts. This is a terrible idea.
+ - I think I could argue that the press has more impact on politics than corporations.
+
+90 quotes

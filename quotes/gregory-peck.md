@@ -1,0 +1,25 @@
+ - Tough times don’t last, tough people do, remember?
+ - Faith gives you an inner strength and a sense of balance and perspective in life.
+ - I just do things I really enjoy. I enjoy acting. When I’m driving to the studio, I sing in the car. I love my work and my wife and my kids and my friends. And I think, ‘You’re a lucky man, Gregory Peck, a damn lucky man.’
+ - What did I do in high school? I grew from 5 feet 4 inches to 6 feet 2 inches.
+ - You have to dream, you have to have a vision, and you have to set a goal for yourself that might even scare you a little because sometimes that seems far beyond your reach. Then I think you have to develop a kind of resistance to rejection, and to the disappointments that are sure to come your way.
+ - I don’t lecture and I don’t grind any axes. I just want to entertain.
+ - Sorry, honey, but I haven’t worn a nightgown in years.
+ - It just seems silly to me that something so right and simple has to be fought for at all.
+ - Overacting is a self-indulgence, while underacting comes either through a lack of talent or a lack of courage.
+ - If you have to tell them who you are, you aren’t anybody.
+ - I had that stubborn streak, the Irish in me I guess.
+ - What is wrong with keeping guns out of the hands of the wrong people?
+ - I’m not a do-gooder. It embarrassed me to be classified as a humanitarian. I simply take part in activities that I believe in.
+ - The emotion is the music and the script is the libretto.
+ - I have tales to tell, but I don’t tell them. Discretion. Discretion.
+ - They say the bad guys are more interesting to play but there is more to it than that – playing the good guys is more challenging because it’s harder to make them interesting.
+ - I never liked the name Eldred. Since nobody knew me in New York, I just changed to my middle name.
+ - Gregory Peck is the hottest thing in town. Some say he is a second Gary Cooper. Actually, he is the first Gregory Peck.
+ - I don’t think I could stay interested for a couple of months in a character of mean motivation.
+ - I hold no brief for Communists, but I believe in and will defend their right to act independently within the law. I question whether members of the committee are interested in defending our form of government or whether they are attempting to suppress political opinion at odds with their own.
+ - I put everything I had into it – all my feelings and everything I’d learned in 46 years of living, about family life and fathers and children. And my feelings about racial justice and inequality and opportunity.
+ - Entertainment is all right, but entertainment with an idea behind it is much more important.
+ - There we were, hundreds of us lined up, waving at the great man as he tipped his hat to us. And that is the extent of my acquaintance with Albert Einstein.
+
+23 quotes

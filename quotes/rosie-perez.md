@@ -1,0 +1,25 @@
+ - You know, you may not be born in Puerto Rico, but Puerto Rican is definitely born in you.
+ - I am a positive person. I never think of the glass as half empty. I just keep pushing forward.
+ - You never understand how dear your privacy is until you lose it.
+ - If we can’t look at the good, bad and ugly of who we are, we are never going to progress as people – ever.
+ - Sometimes when you win, you really lose. And sometimes when you lose, you really win. And sometimes when you win or lose, you actually tie. And sometimes when you tie, you actually win or lose. Winning or losing is all one organic mechanism, from which one extracts what one needs.
+ - You can learn steps, but you cannot learn how to boogie.
+ - In my circle of friends, I’ve always been loud and funny and talkative. But as soon as I step out of that circle, I get very quiet and introspective. I don’t want the spotlight on me.
+ - I didn’t appreciate Brooklyn until I left it.
+ - Own it. Just take it and say, ‘Yes I will be great, I am going to be great.’ Great doesn’t mean being a movie star, great doesn’t mean having millions of dollars. Great means being able to be confident, strong, and a solid human being that has dignity and integrity. That is great.
+ - As far as a Latin explosion, I’m sorry, I’m the only Latino who’s going to say it, but there is no Latin explosion. I’m sorry. Four or five top box office people do not make it an explosion, and it’s disgusting to me that people will perceive it that way.
+ - Face dance means you don’t know what the hell the rest of your body was doing but your face is fierce. That’s face dancing.
+ - Women of color: if you’re over 40 and you get fat, you will work. But if you’re hot and over 40 and a woman of color, they don’t know what to do with you.
+ - I think I just have this need to be a storyteller. That’s why I wasn’t a great dancer – I couldn’t articulate a story. I was a better choreographer. I have the need to to just express myself in that way. I can’t explain it.
+ - As an actor, you may do things that aren’t politically correct. Unless you’re an actor who only does things for political reasons. I believe if we don’t do the good, bad, and the ugly, we’re not going to progress.
+ - I started lying about my age when I was 18 to be older. When I turned 21, I started lying that I was 18. It’s a weakness in me.
+ - In movies, you shoot out of sequence, so the issue of reality is really taken out of it.
+ - The majority of Latin actresses in Hollywood were always playing either spitfires or maids. Now here is a woman who comes in and does leads opposite white people and black people and other Spanish people, and she’s comfortable in her skin? Gasp! How dare she?
+ - I was very willing to take on controversial roles that people didn’t really want to look at.
+ - I did not try to conform to anybody’s ideal of what a Latin celebrity or movie star should be. I took a lot of hits for it.
+ - A lot of women feel ashamed to be weak.
+ - I get bored in Hollywood.
+ - I don’t call myself Latin, I call myself Puerto Rican.
+ - I want to be in shape.
+
+23 quotes

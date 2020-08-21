@@ -1,0 +1,49 @@
+ - No one but a fool is always right.
+ - Smiles are the language of love.
+ - Poetry is the key to the hieroglyphics of nature.
+ - Thought is the wind and knowledge the sail.
+ - I believe love opens people up.
+ - In oratory the will must predominate.
+ - I actually think love changes everything. I think it’s the only thing worth having.
+ - Via Dolorosa is the only thing I have ever acted in my life, professionally, and Ill never act again.
+ - The one thing that Via Dolorosa has is no opinions. To me, curiosity is 50 times as valuable as opinion.
+ - Purity is the feminine, truth the masculine of honor.
+ - What politicians want and what creative writers want will always be profoundly different, because I’m afraid all politicians, of whatever hue, want propaganda, and writers want the truth, and they’re not compatible.
+ - The ultimate tendency of civilization is towards barbarism.
+ - The most important playwright’s gift is to hit your time and speak to your time.
+ - When you get older, then you feel death not at the end of the road, but death all around you, in everything. Life is saturated with death. I feel death everywhere.
+ - One of the depressing things in England is the total orthodoxy: the law is handed down from Downing Street.
+ - An inability to handle language is not the same thing as stupidity.
+ - I fell into writing plays by accident. But the reason I write plays is that it’s the only thing I’m any good at.
+ - Never take advice from anyone with no investment in the outcome.
+ - As you write plays, you discover what you believe. And until you know what you believe, you can’t write a play.
+ - Weak minds sink under prosperity as well as adversity; but strong and deep ones have two high tides.
+ - The orthodoxy of America is as rigid as that of Soviet Russia. There is one point of view allowed. If you start a conversation from another point of view, the words dry in your mouth.
+ - The great mystery of adaptation is that true fidelity can only be achieved through lavish promiscuity.
+ - I’m vey bad at marshaling arguments. I can’t, at a dinner party, explain why I’m a socialist and why others should be socialists as well.
+ - Children always turn to the light.
+ - I never used to kill characters, because I thought killing characters was cheating.
+ - The actual business of writing dialogue is not thought of as a craft.
+ - If you kill a character people feel sad. That’s too easy.
+ - I have a very, very good relationship with 10 percent of the audience. The only purpose of art is intimacy. That’s the only point.
+ - Style is the art of getting yourself out of the way, not putting yourself in it.
+ - Sudden resolutions, like the sudden rise of mercury in a barometer, indicate little else than the variability of the weather.
+ - To those whose God is honor; only disgrace is a sin.
+ - I think the novel is the American form because people read it in private, and the only valuable things that happen in America happen in private life, because public life is a dead loss.
+ - Writers always sound insufferably smug when they sit back and assert that their job is only to ask questions and not to answer them. But, in good part, it is true. And once you become committed to one particular answer, your freedom to ask new questions is seriously impaired.
+ - I’m not good at standing on platforms and persuading people to my political point of view. Nor would I seek to. My gift is completely different. It’s for presenting an imaginative version of the world which I hope people would recognize and be affected by.
+ - The poetry from the eighteenth century was prose; the prose from the seventeenth century was poetry.
+ - You cant get a contemporary story about what is going on inside government, and how society sees itself, on American TV.
+ - In those days, the early 1980s, TV and film were interchangeable.
+ - For a politician, the mans to power is paramount, and the ideology, in a way, can look after itself; I’m afraid a writer can’t think like that. A writer has to think that it’s more important to be right than to be popular.
+ - The theatre is the best way of showing the gap between what is said and what is seen to be done, and that is why, ragged and gap-toothed as it is, it has still a far healthier potential than some poorer, abandoned arts.
+ - It’s inevitable that you will die, so the only question is when. The great thrillers are the moments that play and tease with the question, “When will it be?”
+ - Insofar as I’m good at directing, it’s because I’ve become a writer.
+ - Trying to be a socialist and a libertarian is obviously a very difficult balancing act, which nobody has pulled off too successfully in this century.
+ - The majority don’t like me before the curtain goes up, and I always have to win them.
+ - The future of American film lies on television.
+ - I don’t see the theater as an establishment. The National Theatre has always seemed to me a people’s theater. It was never meant to reinforce the values of the government of the day, nor does it, nor should it.
+ - Are we simply waving farewell to the days when some of the most interesting thinking in Europe and America came to us from our fiction film-makers? BBC2, which once introduced and showed great films, now shows none.
+ - One of the things I find about getting older is that I seem to get louder, more voluble; that I constantly have to walk around repressing my vitality.
+
+47 quotes

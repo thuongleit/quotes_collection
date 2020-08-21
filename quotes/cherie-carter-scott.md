@@ -1,0 +1,31 @@
+ - Anger makes you smaller, while forgiveness forces you to grow beyond what you were.
+ - Success is a process that never ends.
+ - You have all the tools and resources you need. What you do with them is up to you.
+ - Remember there are no mistakes, only lessons. Love yourself, trust your choices, and everything is possible.
+ - Ambivalence is like carbon monoxide – undetectable yet deadly.
+ - Lessons will repeat to you in various forms until you have learned them. When you have learned them, you can then go on to the next lesson.
+ - There are no mistakes in life – only lessons. Lessons to be learnt and re-learnt until they are no longer lessons.
+ - Know your limits, not so that you can honor them, but so that you can smash them to pieces and reach for magnificence.
+ - Other people are merely mirrors of you. You cannot love or hate something about another person unless it reflects to you something you love or hate about yourself.
+ - Setbacks are what build character. They are what separate the lucky from the truly successful.
+ - There are no mistakes, only lessons.
+ - You will be Presented with Lessons: You are enrolled in a full-time informal school called ‘life.’ Each day in this school you will have the opportunity to learn lessons. You may like the lessons or hate them, but you have designed them as part of your curriculum.
+ - Without good communication, a relationship is merely a hollow vessel carrying you along on a frustrating journey fraught with the perils of confusion, projection, and misunderstanding.
+ - Once you become aware of what stands in your way and become willing to release it, you signal the universe that you are ready to manifest the life you were meant to live.
+ - You can remember it if you want by unraveling the double helix of inner knowing.
+ - No child is ever born afraid. Fear is a learned behavior.
+ - Sometimes we don’t understand or we forget that there are no mistakes, only lessons.
+ - Growth is a process of experimentation, a series of trials, errors, and occasional victories. The failed experiments are as much as part of the process as the experiments that work.
+ - When your “there” has become a “here,” you will simply obtain a “there” that will look better to you than your present “here.”
+ - Extraordinary people visualize not what is possible or probable, but rather what is impossible. And by visualizing the impossible, they begin to see it as possible.
+ - Every event in our lives occurs to teach us something about ourselves.
+ - Success is like a mirror: It reflects back to you exactly what you held up before it.
+ - Arrogance occurs in people who have achieved something and believe that they independently caused their own success with no assistance, support, or input from others.
+ - You will receive a body. You may love it or hate it, but it will be yours for the duration of your life on Earth.
+ - Your life, in the end, is the sum total of how you spent your time.
+ - All you need to do is to look, listen, and trust.
+ - Remember, it’s not what you do but that you do something that matters.
+ - Acceptance is the act of embracing what life presents to you with a good attitude.
+ - There is no part of like that does not contain lessons. If you are alive, there are lessons to be learned.
+
+29 quotes

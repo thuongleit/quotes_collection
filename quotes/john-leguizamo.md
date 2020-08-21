@@ -1,0 +1,67 @@
+ - I like helping people achieve their dreams just like people helped me.
+ - It takes time to understand yourself, to go inside yourself and to question yourself and really take yourself to task. That’s self-expression.
+ - I love life, man, and I embrace every minute of it so maybe I bring that on the set. I love people and I want to have a good time.
+ - Some kids are fine, but often I don’t like what I see in child actors. My kids are young and they are already showing an interest, so I have to try to discourage them, squash that in them.
+ - I was working at Kentucky Fried Chicken when my math teacher said, “You’re failing in school, you’re messing up, why don’t you just try this?” I said, “Alright, let me try it,” and I started going to acting classes and I loved it. I thought, “I may not make it but I love doing it.”
+ - I was just school class clown and that was it. Someday I’ll get a job as a cab driver or whatever.
+ - With kids, the days are long, but the years are short.
+ - In Moulin Rouge I could not change the name of Toulouse-Lautrec obviously to Toulouse-Lautrec- Martinez. But in ER I did that, my name is Dr Victor Clemente, so sometimes it is possible.
+ - When you feel the world is against you or you give up hope, you look at your heroes and say, “They were able to do it. They had hard times and a lot of opposition, but they got through it.” Then you feel, “I can do it too.”
+ - So many people, my friends and family, were all saying, “You’re so funny. Why don’t you become a comedian or an actor?” But it wasn’t a reality at the time, it wasn’t a road that Latin people were accepted in.
+ - After kids leave the house, they can decide to do whatever they want, but while they’re under my roof, they’re going to be lawyers or writers or something, something important, anything except actors.
+ - Great acting is being able to create a character. Great character is being able to be yourself.
+ - I wasn’t even in a theater because I guess nobody believed in me, so I was in the hallway of a theater on a platform that they would move so the main stage show could go on at eight o’clock and I’d be gone.
+ - Marriage is wild. I thought it was this perfect land of happiness and joy. Wrong! After you say you do, you don’t for a long time.
+ - There were no Latin people on ‘Star Trek,’ that this was proof that they weren’t planning to have us around for the future.
+ - You know, I am kind of a bi-polarish schitzerphrenic. I run the gamut of being incredibly shy and withdrawn to being a crazy-eccentric exhibitionist. And I have always been like that.
+ - Sid is a prehistoric sloth. Sloths move really slowly and they store food in the cheek pouches. That’s where I got the voice that you hear. He had to sound as though he was storing food.
+ - I knew Linda Cardellini from when we did ER together – she was always great, such a cool spirit.
+ - I see the new Latin artist as a pioneer, opening up doors for others to follow. And when they don’t open, we crowbar our way in.
+ - I don’t think it’s my responsibility, but I definitely try to create my own projects that are Latin-based with a Latin crew and Latin cast. I try to give all my characters Latin names whenever I can and make sure that they are of Latin heritage. But that does not work with every project.
+ - I like drama. I love being in a drama where I get to be the funny guy. That’s what I really love the most.
+ - We are taking our culture and suturing it to America. Like gum on the bottom of a shoe, we are not going to disappear. Unlike other peoples who totally assimilated, we are more interested in co-assimilation.
+ - I wanted to enjoy the process. I wanted to enjoy just being on stage and giving back and the feedback.
+ - I keep my kids out of the whole business entirely. Allegra and Lucas are five and six and I’m not interested in them doing any acting at all. I don’t want my kids in show business. I keep them as far away from my work as possible.
+ - Don’t confuse the beginning of my world with the breakup of yours.
+ - That’s the happiest I am, when I’m doing great work.
+ - I did the bible as told through Hispanic people and they laughed and applauded. I thought, “Oh my god, this is what I want to do for the rest of my life.”
+ - I’m not really against a lot of things unless they are just pure exploitation and then they create their own copycat culture that comes from someone acting irresponsibly. That’s dangerous when that happens.
+ - I love cartoons. So when they came to me to make Ice Age and this sequel, I was so happy.
+ - When I started performing I was like, “Holy hell, how am I going to survive this?” I was giving it my all in 15 minutes but now I had to do it for two hours.
+ - You grow up Latin in this country and you’re a third class citizen from the word go, and so you have to deal with everything around you from that point of view and trying to feel entitled.
+ - People can be anonymous when they go on blogs and say crazy things that they would never have the courage to say to your face.
+ - My parents were incredibly strict, almost military style.
+ - Latins for Republicans – it’s like roaches for Raid.
+ - You have the hilarity and the great production. These films are distinctive because they are not just topical, they tell good stories and they let scenes play out physically. Apart from the dialogue, the characters also have a non-verbal existence, for example with Scrat.
+ - I have a lot of heroes. I don’t think people give enough of a tribute to their mentors. They try to act like they’re spontaneous generations – they are faking liars.
+ - I love life, and I embrace every minute of it.
+ - I’m just more comfortable with people who are like me than the people who are not.
+ - I walked around my apartment with food in my mouth asking myself: “How do I come up with this voice?” Then I found the voice. I called the director and said on the phone: “Guess who you’re talking to Chris? Sid, that’s right Sid!” And that’s how I came up with the voice. That’s a true story.
+ - I love theater. I think theater, when its done right, is the best, like a religious experience. When it is done badly, it’s the worst thing. It’s just an incredible experience.
+ - America may not realize it yet, but Latin prototypes are being created right now, and not just by me. They are these mambo kings and salsa queens, Aztec lords and Inca princesses, every Hernandez and Fernandez, whom this country will one day come to understand and respect.
+ - I would be jokesmithing. I had files with tons of disses that I would try to write as I was on the train going to school.
+ - Self-expression, to me, is something that you worked on, that you have mastered a skill to say something in the most artful way that you can. It’s not just blurting stuff out and having verbal diarrhea.
+ - You can’t really walk anywhere. Where are you going to go? Everything closes at a certain hour and it’s a highway with bars on it; that’s what it is.
+ - The beautiful thing about acting is that you can go your whole life if you stay current and you stay fresh.
+ - It’s been great, I have to dig deep for really raw emotions and at the same time I have to use my intellect to say the ridiculous medical jargon while acting and treating a patient and then I have to try to have a personality and emotions as well. So it is definitely hard work.
+ - Is there a God? Yeah, but there’s not just one God. There’s a whole lot of gods, because one God couldn’t have possibly made so many mistakes all by Himself. This had to be done by committee.
+ - I was always writing. I was writing in high school because it was a really competitive school for class clowns; I used to have to write all of my snaps and my disses the night before and then act like I was making it up the next day.
+ - Rehearsals make a huge difference.
+ - To be a comedian, you gotta jokesmith, there’s no way around it.
+ - It might have been really cool back in the ’50s when it was less populated but I don’t know.
+ - I think as you mature as an actor things open up to you in a lot of ways, especially if you do work on yourself.
+ - Self-expression is something that you’ve crafted, something that you’ve found. You’ve practiced on that piano for hours, you didn’t hang out with your buddies, you didn’t go after the girls, you stayed in your own little geeky room or you wrote for hours.
+ - The thing I gravitated to was being the class clown. It was very competitive.
+ - Definitely if you’re an athlete, you’re gonna be having all the baseball fame you can have. That’s the great thing about baseball and sports. You can measure ability.
+ - At Murry Bergtraum High I wanted to be as different from my father as possible. So I acted out in school, I was very anti-authority.
+ - I’d be terrified even now for a Latin kid wanting to be an actor, but back then? Forget it. They must have thought I was going to be working in restaurants and driving cabs for the rest of my life.
+ - Acting is kind of a calling for me so I’m just happy to be there and do great work.
+ - It’s not quite the same as other kinds of performing, but I love animation. It is just a different kind of experience. The difference is that making a live action movie you are using your whole body.
+ - Most of the great directors I’ve worked with – De Palma, Spike Lee – like rehearsals.
+ - I love independent films, it’s the only place as an actor you’re totally allowed to breathe.
+ - I had a great movement teacher – he showed me how to walk so I wasn’t becoming like a cartoon.
+ - I had to work with Ben Mendelsohn who’s one of the great actors of our time. I had a lot of scenes with him and I was thrilled to be on the set with him; I just wanted to see how we were going to play it.
+ - Independent film is for actors that love to act.
+ - The New York Times made you or broke you.
+
+65 quotes

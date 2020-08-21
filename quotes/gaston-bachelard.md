@@ -1,0 +1,106 @@
+ - All the senses awaken and fall into harmony in poetic reverie. Poetic reverie listens to this polyphony of the senses, and the poetic consciousness must record it.
+ - To disappear into deep water or to disappear toward a far horizon, to become part of depth of infinity, such is the destiny of man that finds its image in the destiny of water.
+ - A clear conscience is, for me, an occupied conscience-never empty-the conscience of a man at work until his last breath.
+ - The house protects the dreamer, the house allows one to dream in peace.
+ - Childhood lasts all through life.
+ - The night dreamer cannot articulate a cogito. The night dream is a dream without a dreamer.
+ - A house that has been experienced is not an inert box. Inhabited space transcends geometrical space.
+ - It is better to live in a state of impermanence than in one of finality.
+ - Imagination is a tree. It has the integrative virtues of a tree. It is root and boughs. It lives between earth and sky. It lives in the earth and the wind. The imagined tree imperceptibly becomes a cosmological tree, the tree which epitomises a universe, which makes a universe.
+ - What is the source of our first suffering? It lies in the fact that we hesitated to speak. It was born in the moment when we accumulated silent things within us.
+ - The word chrysalis alone is an unmistakable indication that here two dreams are joined together, dreams that be-speak both the repose and flight of being, evening’s crystallization and wings that open to the light.
+ - The dream remains overloaded with the badly lived passions of daytime life. Solitude in the nocturnal dream is always a hostility. It is strange. It isn’t really our solitude.
+ - Love is never finished expressing itself, and it expresses itself better the more poetically it is dreamed.
+ - Through imagination, thanks to the subtleties of the irreality function, we re-enter the world of confidence, the world of the confident being, which is the proper world for reverie.
+ - One must always maintain one’s connection to the past and yet ceaselessly pull away from it. To remain in touch with the past requires a love of memory. To remain in touch with the past requires a constant imaginative effort.
+ - In living off all the reflecting light furnished by poets, the I which dreams the reverie reveals itself not as poet but as poetizing I.
+ - It is not a question of observation which propels mankind forward as if toward a looking glass of great magnitude; it is an instance of aggrandized reflection that insinuates the human psyche to the inhuman.
+ - Ideas are invented only as correctives to the past. Through repeated rectification of this kind one may hope to disengage an idea that is valid.
+ - A pretext-not a cause-is sufficient for us to enter the “solitary situation”, the situation of the dreaming solitude. In this solitude, memories arrange themselves in tableaux. Decor takes precedence over drama. Sad memories take on at least the peace of melancholy.
+ - The great function of poetry is to give back to us the situations of our dreams.
+ - Literary imagination is an aesthetic object offered by a writer to a lover of books.
+ - There is no original truth, only original error.
+ - One doesn’t read poetry while thinking of other things.
+ - Every corner in a house, every angle in a room, every inch of secluded space in which we like to hide, or withdraw into ourselves, is a symbol of solitude for the imagination; that is to say, it is the germ of a room, or of a house.
+ - The only possible proof of the existence of water, the most convincing and the most intimately true proof, is thirst.
+ - Our house is our corner of the world.
+ - The blank page gives us the right to dream.
+ - Words are clamor-filled shells. There’s many a story in the miniature of a single word!
+ - So, like a forgotten fire, a childhood can always flare up again within us.
+ - Dreaming by the river, I dedicated my imagination to water, to clear, green water, the water that makes the meadows green.
+ - Instead of looking for the dream in reverie, people should look for reverie in the dream. There are calm beaches in the midst of nightmares.
+ - The poetic image is a sudden salience on the surface of the psyche.
+ - To go upstairs in the word house is to withdraw step by step; while to go down to the cellar is to dream.
+ - The psychology of the alchemist is that of reveries trying to constitute themselves in experiments on the exterior world. A double vocabulary must be established between reverie and experiment. The exaltation of the names of substances is the preamble to experiments on the “exalted” substances.
+ - Thanks to his complex convictions, made strong with the forces of animus and anima, the alchemist believes he is seizing the soul of the world, participating in the soul of the world. Thus, from the world to the man, alchemy is a problem of souls.
+ - In our view any awareness is an increment to consciousness, an added light, a reinforcement of psychic coherence. Its swiftness or instantaneity can hide this growth from us. But there is a growth of being in every instance of awareness. Consciousness is in itself an act, the human act.
+ - The spoken reverie of substances calls matter to birth, to life, to spirituality.
+ - By listening to certain words as a child listens to the sea in a seashell, a word dreamer hears the murmur of a world of dreams.
+ - Our whole childhood remains to be reimagined. In reimagining it, we have the possibility of recovering it in the very life of our reveries as a solitary child.
+ - We comfort ourselves by reliving memories of protection.
+ - The characteristic of scientific progress is our knowing that we did not know.
+ - All knowledge is in response to a question. If there were no question, there would be no scientific knowledge. Nothing proceeds from itself.
+ - There are children who will leave a game to go and be bored in a corner of the garret. How often have I wished for the attic of my boredom when the complications of life made me lose the very germ of freedom!
+ - The subconscious is ceaselessly murmuring, and it is by listening to these murmurs that one hears its truth.
+ - For in the end, the irreality function functions as well in the face of man as in the face of the cosmos. What would we know of others if we did not imagine things?
+ - The cleverer I am at miniaturizing the world, the better I possess it.
+ - Reverie is not a mind vacuum. It is rather the gift of an hour which knows the plenitude of the soul.
+ - Cosmic reveries separate us from project reveries. They situate us in a world and not in a society. The cosmic reverie possesses a sort of stability or tranquility. It helps us escape time. It is a state.
+ - To verify images kills them, and it is always more enriching to imagine than to experience.
+ - For a knowledge of intimacy, localization in the spaces of our intimacy is more urgent than determination of dates.
+ - Daydream transports the dreamer outside the immediate world to a world that bears the mark of infinity.
+ - The past of the soul is so distant! The soul does not live on the edge of time. It finds its rest in the universe imagined by reverie.
+ - The best proof of the specificity of the book is that it is at once a reality of the virtual and a virtuality of the real.
+ - A book is a human fact; a great book like Seraphita gathers together numerous psychological elements. These elements become coherent through a sort of psychological beauty. It does the reader a service.
+ - An excess of childhood is the germ of a poem.
+ - We are never real historians, but always near poets, and our emotion is perhaps nothing but an expression of a poetry that was lost.
+ - The human mind has claimed for water one of its highest values-the value of purity.
+ - I am alone so I dream of the being who has cured my solitude, who would be cured by solitudes. With its life, it brought me the idealizations of life, all the idealizations which give life a double, which lead life toward it summits, which make the dreamer too live by splitting...
+ - When the image is new, the world is new.
+ - Words, in their distant past, have the past of my reveries.
+ - By following “the path of reverie”-a constantly downhill path-consciousness relaxes and wanders-and consequently becomes clouded. So it is never the right time, when one is dreaming, to “do phenomenology.”
+ - Man is a creation of desire, not a creation of need.
+ - We understand nature by resisting it.
+ - What action could bodies and substances have if they were not named in a further increase of dignity where common nouns become proper nouns?
+ - A word is a bud attempting to become a twig. How can one not dream while writing? It is the pen which dreams. The blank page gives the right to dream.
+ - The words of the world want to make sentences.
+ - A book is always an emergence above everyday life. A book is expressed life and thus is an addition to life.
+ - Any work of science, no matter what its point of departure, cannot become fully convincing until it crosses the boundary between the theoretical and the experimental: Experimentation must give way to argument, and argument must have recourse to experimentation.
+ - One must live to build one’s house, and not build one’s house to live in.
+ - The reflected world is the conquest of calm.
+ - How is it possible not to feel that there is communication between our solitude as a dreamer and the solitudes of childhood? And it is no accident that, in a tranquil reverie, we often follow the slope which returns us to our childhood solitudes.
+ - In writing, you discover interior sonorities in words. Dipthongs sound differently beneath the pen. One hears them with their sounds divorced.
+ - Nobody knows that in reading we are re-living our temptations to be a poet. All readers who have a certain passion for reading, nurture and repress, through reading, the desire to become a writer.
+ - Nothing is forgotten in the processes of idealization. Reveries of idealization develop, not by letting oneself be taken in by memories, but by constantly dreaming the values of a being whom one would love. And that is the way a great dreamer dreams his double. His magnified double sustains him.
+ - It is through the intentionality of poetic imagination that the poet’s soul discovers the opening of consciousness common to all true poetry.
+ - True poetry is a function of awakening. It awakens us, but it must retain the memory of previous dreams.
+ - He who ceases to learn cannot adequately teach.
+ - Of course, any simplification runs the risk of mutilating reality; but it helps us establish perspectives.
+ - Actually, however, life begins less by reaching upward, than by turning upon itself. But what a marvelously insidious, subtle image of life a coiling vital principle would be! And how many dreams the leftward oriented shell, or one that did not conform to the rotation of its species, would inspire!
+ - A man is a man to the extent that he is a superman. A man should be defined by the sum of those tendencies which impel him to surpass the human condition.
+ - The reveries of two solitary souls prepare the sweetness of loving.
+ - Why should the actions of the imagination not be as real as those of perception?
+ - Happy is the man who knows or even the man who remembers those silent vigils where silence itself was the sign of the communion of souls!
+ - We must listen to poets.
+ - The philosophy of poetry must acknowledge that the poetic act has no past, at least no recent past, in which its preparation and appearance could be followed.
+ - The human being taken in his profound reality as well as in his great tension of becoming is a divided being, a being which divides again, having permitted himself the illusion of unity for barely an instant. He divides and then reunites.
+ - It is a poor reverie which invites a nap. One must even wonder whether, in this “failing asleep”, the subconscious itself does not undergo a decline in being.
+ - At all times and in all fields the explanation by fire is a rich explanation.
+ - Sleep refreshes only the body. It rarely sets the soul at rest.
+ - In our life as a civilized person in the industrial age, we are invaded by objects; how could an object have a “force” when it no longer has individuality?
+ - There are reveries so deep, reveries which help us descend so deeply within ourselves that they rid us of our history. They liberate us from our name. These solitudes of today return us to the original solitudes.
+ - To live life well is to express life poorly; if one expresses life too well, one is living it no longer.
+ - It will always be a fact that the woman is the person one idealizes, also the person who wishes his idealization.
+ - Two half philosophers will probably never a whole metaphysician make.
+ - If we did not have a feminine being within us, how would we rest ourselves?
+ - To feel most beautifully alive means to be reading something beautiful...
+ - The poetic image exists apart from causality.
+ - Irony gives us, at little expense, the impression that we are experienced psychologists.
+ - Empirical description involves enslavement to the object by decreeing passivity on the part of the subject.
+ - The reverie would not last if it were not nourished by the images of the sweetness of living, by the illusions of happiness.
+ - Written language must be considered as a particular psychic reality. The book is permanent; it is an object in your field of vision. It speaks to you with a monotonous authority which even its author would not have. You are fairly obliged to read what is written.
+ - Childhood knows unhappiness through men. In solitude, it can relax its aches. When the human world leaves him in peace, the child feels like the son of the cosmos.
+ - Any comparison diminishes the expressive qualities of the terms of the comparison.
+ - Reverie is commonly classified among the phenomena of psychic detente. It is lived out in a relaxed time which has no linking force. Since it functions with inattention, it is often without memory. It is a flight from out of the real that does not always find a consistent unreal world.
+
+104 quotes

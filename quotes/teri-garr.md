@@ -1,0 +1,36 @@
+ - Take a step back, evaluate what is important, and enjoy life.
+ - No matter how bad the truth is, it doesn’t tear you apart inside like dishonesty.
+ - When you hear the word ‘disabled,’ people immediately think about people who can’t walk or talk or do everything that people take for granted. Now, I take nothing for granted. But I find the real disability is people who can’t find joy in life and are bitter.
+ - Sandy: Boy, you must really think I’m stupid or something. Jeff: Ahh, no one would call you stupid, to your face.
+ - I understand how hard it is to talk to people about MS. You don’t want pity or random advice.
+ - Someday they may cure MS, that idiot thing. It gets in there and they can’t get it out.
+ - MS doesn’t define who I am.
+ - I’m wondering if they haven’t reported all the people with MS, because if all of the cases were reported, the government would have to step in and give more financial aid to us.
+ - I plan to live to be 120!
+ - Oddly enough, MS has made my life so much better than it was before. I now appreciate what I have and I am not running around like a rat in a maze.
+ - I refused David Letterman’s proposal of marriage for obvious reasons, but thanks for asking.
+ - My doctor said, for want of a better word, now that we’ve got medicines out here that can help, let’s put you on one of them and say we’re treating MS.
+ - If you get a diagnosis, get on a therapy, keep a good attitude and keep your sense of humor.
+ - If there’s ever a woman who’s smart, funny, or witty, people are afraid of that, so they don’t write that. They only write parts for women where they let everything be steamrolled over them, where they let people wipe their feet all over them.
+ - In addition to having a good partnership with a good doctor, you have to do some of the work yourself. Go online, read about it, and find out what you can tolerate.
+ - I go to my physical therapist to keep fighting it and one of them told me if you don’t use it, you lose it, but I know we’re on television so I won’t say what I would often say.
+ - You have to lift your head up out of the mud and just do it.
+ - You can be diagnosed and treated early. And there is hope for the future.
+ - There were symptoms that I saw, and though I went to many doctors and had many tests, no one diagnosed MS.
+ - I have a disease, but I also have a lot of other things.
+ - I’ve always been this insane. Isn’t that interesting?
+ - I have heard all kinds of stories about telling employers about MS and I really don’t know what the answer is. I am a private person, but I have found support by talking to fellow MSrs in the community.
+ - I have worked enough and I am happy to be touring the country speaking about living with MS to give people inspiration and motivation to help themselves.
+ - I have an enormous fondness for delicious food. It’s very comforting.
+ - You can keep it to yourself, but you could also call a support team like the team at MS LifeLines. They are there to support the MS community and give good advice.
+ - Going to dancing school, or being in a play, is a very familial feeling. You’re around friends.
+ - I do Pilates a lot. I don’t do a lot of cardiovascular stuff.
+ - You have to find out what’s right for you, so it’s trial and error. You are going to be all right if you accept realistic goals for yourself.
+ - Any movie I’ve ever made, the minute you walk on the set they tell you who’s the person to buy it from.
+ - I think there are a lot of myths about MS, and it may have affected my career.
+ - There’s always going to be somebody worse off than me.
+ - I take one of the interferon therapies, Rebif.
+ - I think eventually they’re going to find out that MS is like 10 different things. I have a neurological disease something like MS, and it’s MS, so let’s take medicine for it.
+ - Seventy-five percent of MS sufferers are women.
+
+34 quotes

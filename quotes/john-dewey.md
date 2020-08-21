@@ -1,0 +1,253 @@
+ - Education is not preparation for life; education is life itself.
+ - All genuine learning comes through experience.
+ - The interaction of knowledge and skills with experience is key to learning.
+ - Give the pupils something to do, not something to learn; and the doing is of such a nature as to demand thinking; learning naturally results.
+ - The deepest urge in human nature is the desire to feel important.
+ - I believe that education is the fundamental method of social progress and reform.
+ - Democracy has to be born anew every generation, and education is its midwife.
+ - Arriving at one goal is the starting point to another.
+ - You cannot teach today the same way you did yesterday to prepare students for tomorrow.
+ - The most important attitude that can be formed is that of desire to go on learning.
+ - To find out what one is fitted to do, and to secure an opportunity to do it, is the key to happiness.
+ - The self is not something ready-made, but something in continuous formation through choice of action.
+ - The goal of education is to enable individuals to continue their education.
+ - Failure is instructive. The person who really thinks learns quite as much from his failures as from his successes.
+ - What the best and wisest parent wants for his own child, that that must community want for all it’s children.
+ - Education, therefore, is a process of living and not a preparation for future living.
+ - It is a familiar and significant saying that a problem well put is half-solved.
+ - Every great advance in science has issued from a new audacity of imagination.
+ - Not perfection as a final goal, but the ever-enduring process of perfecting, maturing, refining is the aim of living.
+ - Inference is always an invasion of the unknown, a leap from the known.
+ - The aim of education is growth: the aim of growth is more growth.
+ - Education, in its broadest sense, is the means of this social continuity of life.
+ - Education is not an affair of ‘telling’ and being told, but an active and constructive process.
+ - Always make the other person feel important.
+ - Creative thinking will improve as we relate the new fact to the old and all facts to each other.
+ - The good man is the man who, no matter how morally unworthy he has been, is moving to become better.
+ - The origin of thinking is some perplexity, confusion or doubt.
+ - Skepticism: the mark and even the pose of the educated mind.
+ - Without some goals and some efforts to reach it, no man can live.
+ - Any doctrine that weakens personal responsibility for judgment and for action helps create the attitudes that welcome and support the totalitarian state.
+ - Art is not the possession of the few who are recognized writers, painters, musicians; it is the authentic expression of any and all individuality.
+ - There’s all the difference in the world between having something to say, and having to say something.
+ - If all meanings could be adequately expressed by words, the arts of painting and music would not exist.
+ - The real process of education should be the process of learning to think through the application of real problems.
+ - Vocational training is the training of animals or slaves. It fits them to become cogs in the industrial machine. Free men need liberal education to prepare them to make a good use of their freedom.
+ - We can have facts without thinking but we cannot have thinking without facts.
+ - All learning begins when our comfortable ideas turn out to be inadequate.
+ - Things gain meaning by being used in a shared experience or joint action.
+ - Of all affairs, communication is the most wonderful.
+ - Children who know how to think for themselves spoil the harmony of the collective society.
+ - The teacher loses the position of external boss or dictator but takes on that of leader of group activities.
+ - Since changes are going on anyway, the great thing is to learn enough about them so that we will be able to lay hold of them and turn them in the direction of our desires. Conditions and events are neither to be fled from nor passively acquiesced in; they are to be utilized and directed.
+ - Everything depends on the quality of the experience which is had.
+ - Balance is balancing.
+ - Science is a systematic means of gaining reliable knowledge.
+ - One might as well say he has sold when no one has bought as to say he has taught when no one has learned.
+ - Teaching may be compared to selling commodities. No one can sell unless somebody buys.
+ - Politics is the shadow cast on society by big business.
+ - A society with too few independent thinkers is vulnerable to control by disturbed and opportunistic leaders. A society which wants to create and maintain a free and democratic social system must create responsible independence of thought among its young.
+ - Perhaps the greatest of all pedagogical fallacies is the notion that a person learns only the particular thing he is studying at the time.
+ - Independent self-reliant people would be a counterproductive anachronism in the collective society of the future where people will be defined by their associations.
+ - As long as art is the beauty parlor of civilization, neither art nor civilization is secure.
+ - Confidence is directness and courage in meeting the facts of life.
+ - Cease conceiving of education as mere preparation for later life, and make it the full meaning of the present life.
+ - To feel the meaning of what one is doing, and to rejoice in that meaning; to unite in one concurrent fact the unfolding of the inner life and the ordered development of material conditions – that is art.
+ - Human nature exists and operates in an environment. And it is not ‘in’ that environment as coins are in a box, but as a plant is in the sunlight and soil.
+ - The conception of education as a social process and function has no definite meaning until we define the kind of society we have in mind.
+ - Education as growth or maturity should be an ever-present process.
+ - Such happiness as life is capable of comes from the full participation of all our powers in the endeavor to wrest from each changing situations of experience its own full and unique meaning.
+ - The school must be “a genuine form of active community life, instead of a place set apart in which to learn lessons”.
+ - Every teacher should realize the dignity of his calling.
+ - Schools have ignored the value of experience and chosen to teach by pouring in.
+ - I believe that the school must represent present life – life as real and vital to the child as that which he carries on in the home, in the neighborhood, or on the play-ground.
+ - Scientific principles and laws do not lie on the surface of nature. They are hidden, and must be wrested from nature by an active and elaborate technique of inquiry.
+ - Just as a flower which seems beautiful and has color but no perfume, so are the fruitless words of the man who speaks them but does them not.
+ - Of what use, educationally speaking, is it to be able to see the end in the beginning?
+ - If we learn not humility, we learn nothing.
+ - Purposeful action is thus the goal of all that is truly educative.
+ - Knowledge falters when imagination clips its wings or fears to use them.
+ - The struggle for democracy has to be maintained on as many fronts as culture has aspects: political, economic, international, educational, scientific and artistic, religious.
+ - The outstanding problem of the Public is discovery and identification of itself.
+ - One can think effectively only when one is willing to endure suspense and to undergo the trouble of searching.
+ - Criticism of the commitment of religion to the supernatural is thus positive in import.
+ - Teachers are the agents through which knowledge and skills are communicated and rules of conduct enforced.
+ - If there is one conclusion to which human experience unmistakably points it is that democratic ends demand democratic methods for their realization.
+ - As we have seen there is some kind of continuity in any case since every experience affects for better or worse the attitudes which help decide the quality of further experiences, by setting up certain preference and aversion, and making it easier or harder to act for this or that end.
+ - Instruction is important.
+ - There is no god and there is no soul. Hence, there is no need for the props of traditional religion. With dogma and creed excluded, then immutable truth is dead and buried. There is no room for fixed and natural law or permanent moral absolutes.
+ - What’s in a question, you ask? Everything. It is evoking stimulating response or stultifying inquiry. It is, in essence, the very core of teaching.
+ - The end justifies the means only when the means used are such as actually bring about the desired and desirable end.
+ - Only in education, never in the life of farmer, sailor, merchant, physician, or laboratory experimenter, does knowledge mean primarily a store of information aloof from doing.
+ - No man’s credit is as good as his money.
+ - The ultimate aim of production is not production of goods but the production of free human beings associated with one another on terms of equality.
+ - Since growth is the characteristic of life, education is all one with growing; it has no end beyond itself. The criterion of the value of school education is the extent in which it creates a desire for continuous growth and supplies means for making the desire effective in fact.
+ - We only think when we are confronted with problems.
+ - Anyone who has begun to think, places some portion of the world in jeopardy.
+ - As long as politics is the shadow cast on society by big business, the attenuation of the shadow will not change the substance.
+ - Time and memory are true artists; they remould reality nearer to the heart’s desire.
+ - Art is the most effective mode of communications that exists.
+ - The bad man is the man who no matter how good he has been is beginning to deteriorate, to grow less good. The good man is the man who no matter how morally unworthy he has been is moving to become better. Such a conception makes one severe in judging himself and humane in judging others.
+ - I believe that in this way the teacher always is the prophet of the true God and the usherer in of the true kingdom of God.
+ - Talk of democracy has little content when big business rules the life of the country through its control of the means of production, exchange, the press and other means of publicity, propaganda and communication.
+ - I believe that in the ideal school we have the reconciliation of the individualistic and the institutional ideals.
+ - We always live at the time we live and not at some other time, and only by extracting at each present time the full meaning of each present experience are we prepared for doing the same thing in the future.
+ - Any experience, however, trivial in its first appearance, is capable of assuming an indefinite richness of significance by extending its range of perceived connections.
+ - Mind is a verb not a noun.
+ - Every teacher should realize he is a social servant set apart for the maintenance of the proper social order and the securing of the right social growth. In this way, the teacher always is the prophet of the true God and the usherer-in of the true Kingdom of God.
+ - Knowledge is no longer an immobile solid; it has been liquefied. it is actively moving in all the currents of society itself.
+ - Philosophy recovers itself when it ceases to be a device for dealing with the problems of philosophers and becomes a method, cultivated by philosophers, for dealing with the problems of men.
+ - Complete adaptation to environment means death. The essential point in all response is the desire to control environment.
+ - Language fails not because thought fails, but because no verbal symbols can do justice to the fullness and richness of thought. Ifwe are to continue talking about “data” in any other sense than as reflective distinctions, the original datum is always such a qualitative whole.
+ - Language exists only when it is listened to as well as spoken. The hearer is an indispensable partner.
+ - How can the child learn to be a free and responsible citizen when the teacher is bound?
+ - To me faith means not worrying.
+ - Choice is the declaration by self that a certain ideal of self shall be realized.
+ - A society which is mobile, which is full of channels for the distribution of a change occurring anywhere, must see to it that its members are educated to personal initiative and adaptability.
+ - But the individual butterfly or earthquake remains just the unique existence which it is. We forget in explaining its occurrence that it is only the occurrence that is explained, not the thing itself.
+ - Hunger not to have, but to be.
+ - The central problem of an education based upon experience is to select the kind of present experience that live fruitfully and creatively in subsequent experiences.
+ - Change as change is mere flux and lapse; it insults intelligence. Genuinely to know is to grasp a permanent end that realizes itself through changes.
+ - Insight into soul-action, ability to discriminate the genuine from the sham and capacity to further one and discourage the other.
+ - Every thinker puts some portion of an apparently stable world in peril.
+ - Like the soil, mind is fertilized while it lies fallow, until a new burst of bloom ensues.
+ - Communication of science as subject-matter has so far outrun in education the construction of a scientific habit of mind that to some extent the natural common sense of mankind has been interfered with to its detriment.
+ - All education which develops power to share effectively in social life is moral.
+ - The problem of restoring integration and co-operation between man’s beliefs about the world in which he lives and his beliefs about values and purposes that should direct his conduct is the deepest problem modern life. It is the problem of any philosophy that is not isolated from life.
+ - The path of least resistance and least trouble is a mental rut already made. It requires troublesome work to undertake the alternation of old beliefs.
+ - The educational process has no end beyond itself; it is its own end.
+ - Everything which bars freedom and fullness of communication sets up barriers that divide human beings into sets and cliques, into antagonistic sects and factions, and thereby undermines the democratic way of life.
+ - One of the saddest things about US education is that the wisdom of our most successful teachers is lost to the profession when they retire.
+ - Luck, bad if not good, will always be with us. But it has a way of favoring the intelligent and showing its back to the stupid.
+ - The best preparation for the future is a well-spent today.
+ - Many of the obstacles for change which have been attributed to human nature are in fact due to the inertia of institutions and to the voluntary desire of powerful classes to maintain the existing status.
+ - Imposing an alleged uniform general method upon everybody breeds mediocrity in all but the very exceptional. And measuring originality by deviation from the mass breeds eccentricity in them.
+ - Man’s home is nature; his purposes and aims are dependent for execution upon natural conditions. Separated from such conditions they become empty dreams and idle indulgences of fancy.
+ - The first step in freeing men from external chains was to emancipate them from the internal chains of false beliefs and ideals. To free one’s mind of chains is to free it of the care of what is acceptable or viewed so by society, this is when true freedom is discovered.
+ - I believe that the only true education comes through the stimulation of the child’s powers by the demands of the social situations in which he finds himself.
+ - One lives with so many bad deeds on one’s conscience and some good intentions in one’s heart.
+ - The religious is any activity pursued in behalf of an ideal end against obstacles and in spite of threats of personal loss because of its general and enduring value.
+ - A moral principle is not a command to act or to forbear acting in a given way: it is a tool for analyzing a special situation, the right or wrong being determined by the situation in its entirety, not by the rule as such.
+ - Intelligent thinking means an increment of freedom in action-an emancipation from chance and fatality. ‘Thought’ represents the suggestion of a way of response that is different from that which would have been followed if intelligent observation had not effected an inference as to the future.
+ - Old ideas give way slowly; for they are more than abstract logical forms and categories. They are habits, predispositions, deeply ingrained attitudes of aversion and preference.
+ - Forty years spent in wandering in a wilderness like that of the present is not a sad fate – unless one attempts to make himself believe that the wilderness is after all itself the promised land.
+ - The reactionaries are in possession of force, in not only the army and police, but in the press and the schools.
+ - We have advanced far enough to say that democracy is a way of life. We have yet to realize that it is a way of personal life and one which provides a moral standard for personal conduct.
+ - There is more than a verbal tie between the words common, community, and communication.
+ - Men’s fundamental attitudes toward the world are fixed by the scope and qualities of the activities in which they partake.
+ - The development occurs through reciprocal give-and-take, the teacher taking but not being afraid also to give.
+ - Schools should take an active part in directing social change, and share in the construction of a new social order.
+ - Any genuine teaching will result, if successful, in someone’s knowing how to bring about a better condition of things than existed earlier.
+ - There is nothing left worth preserving in the notions of unseen powers, controlling human destiny, to which obedience and worship are due.
+ - Thought is impossible without words.
+ - Too rarely is the individual teacher so free from the dictation of authoritative supervisor, textbook on methods, prescribed course of study, etc., that he can let his mind come to close quarters with the pupil’s mind and the subject matter.
+ - To the being of fully alive, the future is not ominous but a promise; it surrounds the present like a halo.
+ - Since a democratic society repudiates the principle of external authority, it must find a substitute in voluntary disposition and interest; these can be created only by education.
+ - Experiences in order to be educative must lead out into an expanding world of subject matter, a subject matter of facts or information and of ideas. This condition is satisfied only as the educator views teaching and learning as a continuous process of reconstruction of experience.
+ - Popular psychology is a mass of cant, of slush and of superstition worthy of the most flourishing days of the medicine man.
+ - An idea is a method of evading, circumventing or surmounting through reflection, obstacles that otherwise would have to be attacked by brute force.
+ - Since there is no single set of abilities running throughout human nature, there is no single curriculum which all should undergo. Rather, the schools should teach everything that anyone is interested in learning.
+ - The educative value of manual activities and of laboratory exercises, as well as of play, depends upon the extent in which they aid in bringing about a sensing of the meaning of what is going on. In effect, if not in name, they are dramatizations.
+ - To “learn from experience” is to make a backward and forward connection between what we do to things and what we enjoy or suffer from things in consequence.
+ - Society exists through a process of transmission quite as much as biological life. This transmission occurs by means of communication of habits of doing, thinking, and feeling from the older to the younger.
+ - The intimation never wholly deserts us that there is, in the unformed activities of childhood and youth, the possibilities of a better life for the community as well as for individuals here and there. This dim sense is the ground of our abiding idealization of childhood.
+ - Nature is the mother and the habitat of man, even if sometimes a stepmother and an unfriendly home.
+ - By object is meant some element in the complex whole that is defined in abstraction from the whole of which it is a distinction.
+ - Legislation is a matter of more or less intelligent improvisation aiming at palliating conditions by means of patchwork policies.
+ - The mere absorption of facts and truths is so exclusively an individual affair that it tends very naturally to pass into selfishness. There is no obvious social motive for the acquirement of mere learning, there is no clear social gain in success thereat.
+ - The only thing that is unqualifiedly given is the total pervasive quality; and the objection to calling it “given” is that the word suggests something to which it is given, mind or thought or consciousness or whatever, as well possibly as something that gives.
+ - When men think and believe in one set of symbols and act in ways which are contrary to their professed and conscious ideas, confusion and insincerity are bound to result.
+ - A good aim surveys the present state of experience of pupils, and forming a tentative plan of treatment, keeps the plan constantly in view and yet modifies it as conditions develop. The aim, in short, is experimental, and hence constantly growing as it is tested in action.
+ - Mankind likes to think in terms of extreme opposites.
+ - A person who is trained to consider his actions, to undertake them deliberately, is in so far forth disciplined. Add to this ability a power to endure in an intelligently chosen course in the face of distraction, confusion, and difficulty, and you have the essence of discipline.
+ - The problem is to extract the desirable traits of forms of community life which actually exist, and employ them to criticize undesirable features and suggest improvement.
+ - I do not think that any thorough-going modification of college curriculum would be possible without a modification of the methods of instruction.
+ - Thinking is the accurate and deliberate instituting of connections between what is done and its consequences.
+ - When “reality” is sought for at large, it is without intellectual import; at most the term carries the connotation of an agreeableemotional state.
+ - The only way to abolish war is to make peace seem heroic.
+ - A possibility of continuing progress is opened up by the fact that in learning one act, methods are developed good for use in other situations. Still more important is the fact that the human being acquires a habit of learning. He learns to learn.
+ - Traveling is a constant arriving, while arrival that precludes further traveling is most easily attained by going to sleep or dying.
+ - The acquisition of skills is not an end in itself. They are things to be put to use, and that use is their contribution to a common and shared life.
+ - Social engaged intellectuals must accept reality as they found it and shape it toward positive social goals, not stand aside in self-righteous isolation.
+ - As a child lives today, he will live tomorrow.
+ - It is commonplace that a problem stated is well on its way to solution, for statement of the nature of a problem signifies that the underlying quality is being transformed into determinate distinctions of terms and relations or has become an object of articulate thought.
+ - Some experiences are mis-educative. Any experience is mis-educative that has the effect of arresting or distorting the growth of further experience.
+ - We cannot think of ourselves save as to some extent social being. Hence, we cannot separate the idea of ourselves and our own good from our idea of others and their good.
+ - Method means that arrangement of subject matter which makes it most effective in use. Never is method something outside of the material.
+ - The demand for liberty is a demand for power, either for possession of powers of action not already possessed or for retention and expansion of powers already possessed.
+ - That which distinguishes the Soviet system both from other national systems and from the progressive schools of other countries is the conscious control of every educational procedure by reference to a single and comprehensive social purpose.
+ - Education has no more serious responsibility than the making of adequate provision for enjoyment of recreative leisure not only for the sake of immediate health, but for the sake of its lasting effect upon the habits of the mind.
+ - Intelligence is in constant process of forming, and its retention requires constant alertness in observing consequences, an open-minded will to learn, and courage in readjustment.
+ - The moment philosophy supposes it can find a final and comprehensive solution, it ceases to be inquiry and becomes either apologetics or propaganda.
+ - An education could be given which would sift individuals, discovering what they were good for, and supplying a method of assigning each to the work in life for which his nature fits him.
+ - Collateral learning in the way of formation of enduring attitudes, of likes and dislikes, may be and often is much more important than the spelling lesson or lesson in geography or history that is learned.
+ - The most important factor in the training of good mental habits consists in acquiring the attitude of suspended conclusion, and in mastering the various methods of searching for new materials to corroborate or to refute the first suggestions that occur.
+ - Expertness of taste is at once the result and reward of constant exercise of thinking.
+ - Poetry has historically been allied with religion and morals; it has served the purpose of penetrating the mysterious depths of things.
+ - No system has ever as yet existed which did not in some form involve the exploitation of some human beings for the advantage of others.
+ - Resort to military force is a first sure sign that we are giving up the struggle for the democratic way of life, and that the Old World has conquered morally as well as geographically succeeding in imposing upon us its ideals and methods.
+ - You can teach students to develop the ability to think reflectively, and you can help them understand what this means, but if they are not inclined to do so they never will.
+ - Every subject at some phase of its development should possess, what is for the individual concerned with it, an aesthetic quality.
+ - Every great advance in science has issued from a new audacity of imagination. What are now working conceptions, employed as a matter of course because they have withstood the tests of experiment and have emerged triumphant, were once speculative hypotheses.
+ - Time with his old flail Beat me full sore; Till: Hold, I cried, I’ll stand no more. Then I heard a wail And looking spied How love’s little bow Had laid time low.
+ - It is merely a linguistic peculiarity, not a logical fact, that we say “that is red” instead of “that reddens,” either in the sense of growing, becoming, red, or in the sense of making something else red.
+ - It science involves an intelligent and persistent endeavor to revise current beliefs so as to weed out what is erroneous, to add to their accuracy, and, above all, to give them such shape that the dependencies of the various facts upon one another may be as obvious as possible.
+ - The spontaneous power of the child, his demand for self-expression, can not by any possibility be suppressed.
+ - It may be said that an education which does not succeed in making poetry a resource in the business of life as well as in its leisure, has something the matter with it.
+ - Man lives in a world of surmise, of mystery, of uncertainties.
+ - The phrase “think for one’s self” is a pleonasm. Unless one does it for one’s self, it isn’t thinking.
+ - The conduct of schools, based upon a new order of conception, is so much more difficult than is the management of schools which walk the beaten path.
+ - It is obvious to any observer that in every western country the increase of importance of public schools has been at least coincident with the relaxation of older family ties.
+ - Intellectually religious emotions are not creative but conservative. They attach themselves readily to the current view of the world and consecrate it.
+ - I should venture to assert that the most pervasive fallacy of philosophic thinking goes back to neglect of context.
+ - Schools should take part in the great work of construction and organization that will have to be done.
+ - By reading the characteristic features of any man’s castles in the air you can make a shrewd guess as to his underlying desires which are frustrated.
+ - The scientific-religious conflict ultimately is a conflict between allegiance to this method and allegiance to even an irreducible minimum of belief so fixed in advance that it can never be modified.
+ - Every serious-minded person knows that a large part of the effort required in moral discipline consists in the courage needed to acknowledge the unpleasant consequences of one’s past and present acts.
+ - Giving and taking of orders modifies actions and results, but does not of itself effect a sharing of purposes, a communication of interests.
+ - To be interested is to be absorbed in, wrapped up in, carried away by, some object. To take an interest is to be on the alert, to care about, to be attentive.
+ - The method of democracy is to bring conflicts out into the open where their special claims can be seen and appraised, where they can be discussed and judged.
+ - We sometimes talk as if “original research” were a peculiar prerogative of scientists or at least of advanced students. But all thinking is research, and all research is native, original, with him who carries it on, even if everybody else in the world already is sure of what he is still looking for.
+ - Within even the most social group there are many relations that are not as yet social.
+ - Nature as a whole is a progressive realization of purpose strictly comparable to the realization of purpose in any single plant or animal.
+ - An undesirable society, in other words, is one which internally and externally sets up barriers to free intercourse and communication of experience.
+ - Faith in the possibilities of continued and rigorous inquiry does not limit access to truth to any channel or scheme of things. It does not first say that truth is universal and then add there is but one road to it.
+ - The plea for the predominance of learning to read in early school life because of the great importance attaching to literature seems to be a perversion.
+ - We cannot set up, out of our heads, something we regard as an ideal society.
+ - The future of religion is connected with the possibility of developing a faith in the possibilities of human experience and human relationships that will create a vital sense of the solidarity of human interests and inspire action to make that sense a reality.
+ - Democracy is a form of government only because it is a form of moral and spiritual association.
+ - For one man who thanks God that he is not as other men there are a thousand to offer thanks that they are as other men, sufficiently as others are to escape attention.
+ - Man is not logical and his intellectual history is a record of mental reserves and compromises. He hangs on to what he can in his old beliefs even when he is compelled to surrender their logical basis.
+ - Were all instructors to realize that the quality of mental process, not the production of correct answers, is the measure of educative growth something hardly less than a revolution in teaching would be worked.
+ - In brief, the function of knowledge is to make one experience freely available to other experiences.
+ - A large part of the art of instruction lies in making the difficulty of new problems large enough to challenge thought, and small enough so that, in addition to the confusion naturally attending the novel elements, there shall be luminous familiar spots from which helpful suggestions may spring.
+ - A democracy is more than a form of government; it is primarily a mode of associated living, of conjoint communicated experience.
+ - The function of criticism is the reeducation of perception of works of art? The conception that its business is to appraise, to judge in the legal and moral sense, arrests the perception of those who are influenced by the criticism that assumes this task.
+ - Education is a regulation of the process of coming to share in the social consciousness; and that the adjustment of individual activity on the basis of this social consciousness is the only sure method of social reconstruction.
+ - Experience alone cannot deliver to us necessary truths; truths completely demonstrated by reason. Its conclusions are particular, not universal.
+ - Liberty is not just an idea, an abstract principle. It is power, effective power to do specific things. There is no such thing as liberty in general; liberty, so to speak, at large.
+ - Our historic imagination is at best slightly developed. We generalise and idealise the past egregiously. We set up little toys to stand as symbols for centuries and the complicated lives of countless individuals.
+ - The premium so often put in schools upon external “discipline,” and upon marks and rewards, upon promotion and keeping back, are the obverse of the lack of attention given to life situations in which the meaning of facts, ideas, principles, and problems is vitally brought home.
+ - The future of our civilisation depends upon the widening spread and deepening hold of the scientific habit of mind.
+ - It has been petrified into a slavery of thought and sentiment, as intolerant superiority on the part of the few and an intolerable burden on the part of the many.
+ - To be a recipient of a communication is to have an enlarged and changed experience.
+ - It is difficult to connect general principles with such thoroughly concrete things as children.
+ - We have lost confidence in reason because we have learned that man is chiefly a creature of habit and emotion.
+ - Any education given by a group tends to socialize its members, but the quality and the value of the socialization depends upon the habits and aims of the group. Hence, once more, the need of a measure for the worth of any given mode of social life.
+ - The ideal may seem remote of execution, but the democratic ideal of education is a farcical yet tragic delusion except as the ideal more and more dominates our public system of education.
+ - I know that there are many persons to whom it seems derogatory to link a body of philosophic ideas to the social life and cultureof their epoch. They seem to accept a dogma of immaculate conception of philosophical systems.
+ - We talk much more about individualism and liberty than our ancestors. But as so often happens, when anything becomes conscious, the consciousness is compensatory for absence in practice.
+ - The result of the educative process is capacity for further education.
+ - Democracy means the belief that humanistic culture should prevail.
+ - Unless our laboratory results are to give us artificialities, mere scientific curiosities, they must be subjected to interpretation by gradual re-approximation to conditions of life.
+ - Modern philosophy certainly exacts a surrender of all supernaturalism and fixed dogma and rigid institutionalism with which Christianity has been historically associated.
+ - The belief that all genuine education comes about through experience does not mean that all experiences are genuinely or equally educative.
+ - Education, therefore, is a process of living and not a preparation for future living. Without some goals and some efforts to reach it, no man can live. Education is not preparation for life; education is life itself.
+ - What holds for adults holds even more for children, sensitive and conscious of differences. I certainly hope that the Board of Education will think very, very seriously before it introduces this division and antagonism in our public schools.
+ - The difference between play and what is regarded as serious employment should be not a difference between the presence and absence of imagination, but a difference in the materials with which imagination is occupied.
+ - There is no discipline in the world so severe as the discipline of experience subjected to the tests of intelligent development and direction.
+ - Without the English, reason and philosophy would still be in the most despicable infancy in France.
+ - The empiric easily degenerates into the quack. He does not know where his knowledge begins or leaves off, and so when he gets beyond routine conditions he begins to pretend-to make claims for which there is no justification, and to trust to luck and to ability to impose upon others-to “bluff.”
+ - Education is life itself.
+
+251 quotes

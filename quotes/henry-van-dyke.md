@@ -1,0 +1,98 @@
+ - Time is too slow for those who wait, too swift for those who fear, too long for those who grieve, too short for those who rejoice, but for those who love, time is eternity.
+ - Some succeed because they are destined to, but most succeed because they are determined to.
+ - Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.
+ - Those who would see wonderful things must often be ready to travel alone.
+ - If only the best birds sang, the forest would be silent.
+ - Some people are so afraid do die that they never begin to live.
+ - The first day of spring is one thing, and the first spring day is another. The difference between them is sometimes as great as a month.
+ - There is a loftier ambition than merely to stand high in the world. It is to stoop down and lift mankind a little higher.
+ - As long as habit and routine dictate the pattern of living, new dimensions of the soul will not emerge.
+ - Hours fly, Flowers die: New days, New ways: Pass by! Love stays.
+ - Every house where love abides And friendship is a guest, Is surely home, and home sweet home For there the heart can rest.
+ - I shall grow old, but never lose life’s zest, because the road’s last turn will be the best.
+ - Who seeks for heaven alone to save his soul, May keep the path, but will not reach the goal; While he who walks in love may wander far, Yet God will bring him where the blessed are.
+ - There is a better thing than the observance of Christmas day, and that is, keeping Christmas.
+ - Gratitude is a two fold love – love coming to visit us, and love running out to greet a welcome guest.
+ - Gratitude is the inward feeling of kindness received. Thankfulness is the natural impulse to express that feeling. Thanksgiving is the following of that impulse.
+ - Faith is an adventure; it is the courage of the soul to face the unknown. But that courage springs from the hope and confidence of the soul that its adventure will succeed.
+ - Love is the best thing in the world, and the thing that lives the longest.
+ - Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.
+ - Four things a man must learn to do If he would make his record true; To think without confusion clearly; To love his fellowmen sincerely; To act from honest motives purely; To trust in God and Heav’n securely.
+ - A friend is what the heart needs all the time.
+ - Love is not getting, but giving; It is goodness, and honor, and peace and pure living.
+ - Self is the only prison that can ever bind the soul.
+ - Let me but find it in my heart to say, When vagrant wishes beckon me astray, “This is my work; my blessing, not my doom; Of all who live, I am the one by whom This work can best be done in the right way.”
+ - Look around for a place to sow a few seeds.
+ - Oh, London is a man’s town, there’s power in the air; And Paris is a woman’s town, with flowers in her hair; And it’s sweet to dream in Venice, and it’s great to study Rome; But when it comes to living, there is no place like home.
+ - Even if we should find another Eden, we would not be fit to enjoy it perfectly nor stay in it forever.
+ - Not to the swift, the race: Not to the strong, the fight: Not to the righteous, perfect grace: Not to the wise, the light. But often faltering feet Come surest to the goal; And they who walk in darkness meet The sunrise of the soul.
+ - In the progress of personality, first comes a declaration of independence, then a recognition of interdependence.
+ - Happiness is inward, and not outward; and so, it does not depend on what we have, but on what we are.
+ - Life is an arrow, therefore you must know What mark to aim at, how to use the bow – Then draw it to the head and let it go!
+ - Love is the heart s immortal thirst to be completely known and all forgiven.
+ - We measure success by accumulation. The measure is false. The true measure is appreciation. He who loves most has most.
+ - In love and friendship, small, steady payments on a gold basis are better than immense promissory notes.
+ - The more keenly we are awake to the perils of life, the higher and grander is the possibility of being truly brave.
+ - Courage is the standing army of the soul which keeps it from conquest, pillage, and slavery.
+ - A clean and sensitive conscience, a steady and scrupulous integrity in small things as well as large, is the most valuable of all possessions, to a nation as to an individual.
+ - No amount of energy will take the place of thought. A strenuous life with its eyes shut is a kind of wild insanity.
+ - The simple life which blandly ignores all care and conflict, soon becomes flabby and invertebrate, sentimental and gelatinous.
+ - You can never begin to live until you dare to die.
+ - Love that leads life upward is the noblest and the best.
+ - You never see the stock called Happiness quoted on the exchange.
+ - The strength of your life is measured by the strength of your will.
+ - It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.
+ - If all the world were music, Our hearts would often long For one sweet strain of silence. To break the endless song.
+ - Half of the secular unrest and dismal, profane sadness of modern society comes from the vain ideas that every man is bound to be a critic for life.
+ - It is better to follow even the shadow of the best, than to remain content with the worst.
+ - Natural beauty and wonder are priceless heirlooms which God has bestowed upon our nation. How shall we escape the contempt of the coming generation if we suffer this irreplaceable heritage to be wasted?
+ - The best rose-bush, after all, is not that which has the fewest thorns, but that which bears the finest roses.
+ - Jazz: Music invented for the torture of imbeciles.
+ - There are many kinds of love, as many kinds of light, And every kind of love makes a glory in the night. There is love that stirs the heart, and love that gives it rest, But the love that leads life upward is the noblest and the best.
+ - Love is not about getting – but giving.
+ - Be grateful for the tiny details of your life and make room for unexpected and beautiful blessings.
+ - A peace that depends on fear is nothing but a suppressed war.
+ - It is better to burn the candle at both ends, and in the middle, too, than to put it away in the closet and let the mice eat it.
+ - What is Fortune, what is Fame? Futile gold and phantom name- Riches buried in a cave, Glory written on a grave.
+ - What you possess in the world will be found at the day of your death to belong to someone else. But what you are will be yours forever.
+ - Oh, it’s home again and home again, America for me! I want a ship that’s westward bound to plough the rolling sea To the blessed land of Room Enough beyond the ocean bars, Where the air is full of sunlight and the flag is full of stars.
+ - Modest egotism is the salt of conversation; you do not want too much of it, but if it is altogether omitted, everything tastes flat.
+ - Deeds not Words: I say so too! And yet I find it somehow true, A word may help a man in need, To nobler act and braver deed.
+ - What do I owe my father? Everything!
+ - There is only one way to get ready for immortality, and that is to love this life and live it as bravely and faithfully and cheerfully as we can.
+ - One truly affectionate soul in a family will evert a sweetening and harmonizing influence upon all its members.
+ - Heaven is blessed with perfect rest but the blessing of earth is toil.
+ - Time is: Too slow for those who wait, too swift for those who fear.
+ - The birth of Jesus is the sunrise in the Bible.
+ - Many a treasure besides Ali Baba’s is unlocked with a verbal key.
+ - A tear that trembles for a little while Upon the trembling eyelid, till the world Wavers within its circle like a dream, Holds more of meaning in its narrow orb Than all the distant landscape that it blurs.
+ - The lintel low enough to keep out pomp and pride; The threshold high enough to turn deceit aside; The doorband strong enough from robbers to defend; This door will open at a touch to welcome every friend.
+ - Tact is the unsaid part of what you think.
+ - For real company and friendship, there is nothing outside the animal kingdom that is comparable to a river.
+ - How fascinating is death, the extinction of life. One moment here and the next gone. The light put out and only the empty bag of the body left.
+ - What is Friendship? Something deep That the heart can spend and keep: Wealth that greatens while we give, Praise that heartens us to live.
+ - You may have to live in a crowd, but you do not have to live like it.
+ - Lord, when my spirit shall return to thee, At the foot of a friendly tree let my body be buried, That this dust may rise and rejoice among the branches.
+ - Flowers rejoice when night is done, Lift their heads to greet the sun; Sweetest looks and odours raise, In a silent hymn of praise.
+ - A little while the rose, And after that the thorn; An hour of dewy morn, And then the glamour goes. Ah, love in beauty born, A little while the rose!
+ - It is better to desire the things we have than to have the things we desire.
+ - Fidelity is simply daring to be true in small things as well as great.
+ - A flawless cup: how delicate and fine The flowing curve of every jewelled line! Look, turn it up or down, ’tis perfect still – But holds no drop of life’s heart-warming wine.
+ - Christ never asks us to give up merely for the sake of giving up, but always in order to win something better.
+ - I thank God for the honesty and virility of Jesus religion which makes us face the facts and calls us to take a man’s part in the real battle of life.
+ - Culture is the habit of being pleased with the best and knowing why.
+ - We are all swimmers in God’s mighty sea.
+ - No matter what theory of the origin of government you adopt, if you follow it out to its legitimate conclusions it will bring you face to face with the moral law.
+ - The Bible teaches that God owns the world. He distributes to every man according to His own good pleasure, conformably to general laws.
+ - In warlike pomp, with banners flowing, The regiments of autumn stood: I saw their gold and scarlet glowing From every hillside, every wood.
+ - Thou warden of the western gate, above Manhattan Bay, The fogs of doubt that hid thy face are driven clean away: Thine eyes at last look far and clear, thou liftest high thy hand To spread the light of liberty world-wide for every land.
+ - The kingdom of birds is divided into two departments – birds and House Sparrows. House Sparrows are not real birds – they are little beasts!
+ - Of all the things that man has made, no is so full of interest and charm, none possesses so distinct a life and character of its own, as a ship.
+ - The Bible does not profess to make men omniscient, but simply to tell them enough to make them happy and good, if they will believe it and live up to it.
+ - There is no conflict between the Old and the New; the conflict is between the False and the True.
+ - Spend as much time as possible, with body and with spirit in God’s out-of-doors.
+ - Like water spilt upon the ground – alas, Our little lives flow swiftly on and pass; Yet may they bring rich harvests and green grass!
+ - What we do belongs to what we are; and what we are is what becomes of us.
+ - But this I know. Those who seek Him will do well to look among the poor and the lowly, the sorrowful and the oppressed.
+
+96 quotes

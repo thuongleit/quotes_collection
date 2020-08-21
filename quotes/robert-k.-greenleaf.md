@@ -1,0 +1,24 @@
+ - Good leaders must first become good servants.
+ - The servant leader is servant first. It begins with the natural feeling that one wants to serve.
+ - Servant leadership always empathizes, always accepts the person, but sometimes refuses to accept some of the person’s effort or performance as good enough.
+ - Behind every great achievement is a dreamer of great dreams.
+ - The best leaders are clear. They continually light the way, and in the process, let each person know that what they do makes a difference. The best test as a leader is: Do those served grow as persons; do they become healthier, wiser, freer, more autonomous, more likely themselves to become leaders?
+ - A Leader is one who ventures and takes the risks of going out ahead to show the way and whom others follow, voluntarily, because they are persuaded that the leader’s path is the right one-for them, probably better than they could devise for themselves.
+ - Ego can’t sleep. It micro-manages. It disempowers. It reduces our capability. It excels in control.
+ - Leadership must first and foremost meet the needs of others.
+ - Even the frankest and bravest of subordinates do not talk with their boss the same way they talk with colleagues.
+ - Where there is not community, trust, respect, ethical behavior are difficult for the young to learn and for the old to maintain.
+ - A statement of vision is the overarching purpose, the big dream, the visionary concept-something presently out of reach-so stated that it excites the imagination and chlalenges people to work for something they do not yet know how to do.
+ - Purpose and laughter are the twins that must not separate. Each is empty without the other.
+ - Not much happens without a dream. And for something great to happen, there must be a great dream. Behind every great achievement is a dreamer of great dreams. Much more than a dreamer is required to bring it to reality; but the dream must be there first.
+ - Don’t assume, because you are intelligent, able, and well-motivated, that you are open to communication, that you know how to listen.
+ - The quality of a society will be judged by what the least privileged in it achieves.
+ - Love without laughter can be grim and oppressive. Laughter without love can be derisive and venomous. Together they make for greatness of spirit.
+ - The most serious failure of leadership is the failure to foresee.
+ - Nothing much happens without a dream. For something really great to happen, it takes a really great dream.
+ - On an important decision one rarely has 100% of the information needed for a good decision no matter how much one spends or how long one waits. And, if one waits too long, he has a different problem and has to start all over. This is the terrible dilemma of the hesitant decision maker.
+ - The only test of leadership is that somebody follows.
+ - For the person with creative potential there is no wholeness except in using it.
+ - The work exists for the person as much as the person exists for the work.
+
+22 quotes

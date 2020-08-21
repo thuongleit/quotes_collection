@@ -1,0 +1,58 @@
+ - For good ideas and true innovation, you need human interaction, conflict, argument, debate.
+ - As long as they are well-intentioned, mistakes are not a matter for shame but for learning.
+ - In business, staying focused requires that you turn most opportunities down.
+ - You cannot fix a problem that you refuse to acknowledge.
+ - The cell phone has become the adult’s transitional object, replacing the toddler’s teddy bear for comfort and a sense of belonging.
+ - Openness isn’t the end; it’s the beginning.
+ - If you have never failed at anything, then you haven’t been trying hard enough, aren’t very imaginative, or have had such extraordinarily good luck that you have come to believe you are invincible.
+ - In our house, Mother’s Day is every day. Father’s Day, too. In our house, parents count. They do important work and that work matters. One day just doesn’t cut for us.
+ - We treasure what we can measure.
+ - Companies don’t have ideas. Only people do.
+ - British innovation in design, in the creative arts, in engineering and manufacturing is world class.
+ - We have to see conflict as thinking and then get really good at it.
+ - The truth won’t set us free – until we develop the skills and the habit and the talent and the moral courage to use it.
+ - Every organization has issues and concerns which are known about by many people who choose to remain silent.
+ - One of the sad truths about leadership is that, the higher up the ladder you travel, the less you know.
+ - The healthiest companies are always characterized by organic talent development.
+ - Words are how people think. When you misuse words, you diminish your ability to think clearly and truthfully.
+ - When we care about people, we care less about money, and when we care about money, we care less about people.
+ - Huge open source organizations like Red Hat and Mozilla manage the collaboration of hundreds of people who don’t know one another and have spent no time hanging around the water cooler.
+ - Certainty is no guarantor of correctness.
+ - Companies don’t have ideas. Only people do. And what motivates people are the bonds of loyalty and trust they develop around each other.
+ - We know – intellectually – that confronting an issue is the only way to resolve it. But any resolution will disrupt the status quo. Given the choice between conflict and change on the one hand, and inertia on the other, the ostrich position can seem very attractive.
+ - Silence is the language of inertia.
+ - Making those around you feel invisible is the opposite of leadership.
+ - Instead, we have found ourselves gasping for air in a sea of corruption, dysfunction, environmental degradation, waste, disenchantment and inequality – and the harder we compete, the more unequal we become.
+ - Phones and soundtracks and Muzak and fountains replace genuine and unpredictable human contact with a seamless soundtrack from a bad movie and a cliche that makes us believe we must all be happy.
+ - Those in powerless positions aren’t about to complain about bullying bosses, abusive supervisors or corrupt co-workers. There is no safe way to do so and no process that promises redress.
+ - Business is not a science; it is not susceptible to experiments that can be controlled and replicated. Everything in business is too unpredictable for that – every business, employee, product, market is different and keeps changing.
+ - I hate people walking down the street listening to the soundtrack of their lives which responds to them but not their setting. I hate the overspill of sound which metro and subway riders are oblivious to because they notice no one and nothing around them.
+ - All businesses and jobs depend on a vast number of people, often unnoticed and unthanked, without which nothing really gets done. They are all human and deserve respect and gratitude.
+ - The best remote companies I’ve seen do almost everything online, via email and telephone. But they also get together face to face on a regular basis.
+ - If the company depends entirely on you – your creativity, ingenuity, inspiration, salesmanship or charisma – nobody will want to buy it. The risk and the dependency are too great.
+ - Noise is a buffer, more effective than cubicles or booth walls.
+ - The biggest catastrophes that we’ve witnessed rarely come from information that is secret or hidden. It comes from information that is freely available and out there, but that we are willfully blind to.
+ - When we confront facts and fears, we achieve real power and unleash our capacity for change.
+ - As a mother, I work hard every day and I expect that work to be recognized and appreciated. Because I work for and with human beings, sometimes they’re grateful and sometimes they aren’t.
+ - If we aren’t going to be afraid of conflict, we have to see it as thinking.
+ - A fantastic model of collaboration: thinking partners who aren’t echo chambers.
+ - I don’t think a true company – one that builds sustainable value – can ever only exist online or remotely.
+ - There is no more powerful weapon for change than honesty.
+ - Most executives I know are so action-oriented, or action-addicted, that time for reflection is the first casualty of their success.
+ - Once you have power, you are inevitably surrounded by people who have their own agendas and will tell you whatever advances them.
+ - On overnight flights, I have trained myself to get to sleep almost instantly after takeoff. I always listen to the same audiobook on my iPod so my brain knows, regardless of time zone, that that voice means it’s time for bed.
+ - Bosses and leaders everywhere should cherish the people who bring them bad news, disappointing data or hard problems.
+ - Many CEOs and leaders think that silence is indeed golden, that consensus is bliss. It is – sometimes. But more often what it signifies is that there are no respected processes for surfacing concerns and dissent.
+ - Building businesses takes tremendous stamina, and success isn’t achieved without it.
+ - Any fool can buy talent; only real leaders develop it.
+ - Everyone I know feels harassed by email which has invaded their waking and sleeping hours.
+ - I don’t think you ever know anyone until you see them in action.
+ - It is nobody’s right to be waited on and nobody’s fate to do the waiting.
+ - Customers who have to come back and spend, or customers who just don’t want the hassle of leaving – those are the ones who are most worth attracting.
+ - Britain is famous for being great at inventing and poor at commercializing.
+ - Most people have their best ideas when they take their minds away from problems they’re trying to solve.
+ - What do you want your business to do? Make money, of course. To pay for people and supplies, to be able to grow.
+ - Making a company fit to sell may be the only way to ensure you never need a buyer.
+ - I regularly take my entrepreneurship students out walking because I want to get them in the habit of noticing and thinking about what they notice. They have to leave their phones behind to learn the basic lesson: Be where you are.
+
+56 quotes

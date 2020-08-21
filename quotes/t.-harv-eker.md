@@ -1,0 +1,160 @@
+ - How you do anything is how you do everything.
+ - Where attention goes, energy flows and results show.
+ - I will be rich or I will die trying.
+ - If you want to fly with the eagles, don’t swim with the ducks!
+ - Focus on what you want, not on what you don’t want.
+ - Every master was once a disaster.
+ - Keep your eye on the goal, keep moving toward your target.
+ - If you want to make a permanent change, stop focusing on the size of your problems and start focusing on the size of you.
+ - If you are willing to do only what’s easy, life will be hard. But if you are willing to do what’s hard, life will be easy.
+ - Successful people have fear, successful people have doubts, and successful people have worries. They just don’t let these feelings stop them.
+ - Happy people build their inner world; unhappy people blame their outer world.
+ - Thoughts lead to feelings. Feelings lead to actions. Action leads to results.
+ - You design the life you want to have.
+ - If you want to move to a new level in your life, you must break through your comfort zone and practice doing things that are not comfortable.
+ - The perfect time to start something never arrives START NOW!
+ - Energy is contagious: either you affect people or you infect people.
+ - Helping people grow and achieve their dreams is the fastest route to success.
+ - You become financially free when your passive income exceeds your expenses.
+ - Your outer world is a reflection of your inner world.
+ - My definition of financial freedom is simple: it is the ability to live the lifestyle you desire without having to work or rely on anyone else for money.
+ - If you want to change the fruits, you will first have to change the roots. If you want to change the visible, you must first change the invisible.
+ - It’s simple arithmetic: “Your income can grow only to the extent you do.”
+ - What you hear, you forget; what you see, you remember; what you do, you understand.
+ - Rich people constantly learn and grow. Poor people think they already know.
+ - If you shoot for the stars, you’ll at least hit the moon.
+ - Action is the ‘bridge’ between the inner world and the outer world.
+ - One step in the right direction is better than a hundred years of thinking about it.
+ - Action always beats inaction.
+ - If you are insecure, guess what? The rest of the world is too. Do not overestimate the competition and underestimate yourself. You are better than you think.
+ - Rich people see opportunities. Poor people see obstacles. Rich people see potential growth. Poor people see potential loss. Rich people focus on rewards. Poor focus on the risks.
+ - Rich people believe – I create my life; poor people believe – life happens to me.
+ - Rich people choose to get paid based on results. Poor people choose to get paid based on time.
+ - Today’s Declaration: I am courageous. I am willing to act in spite of fear.
+ - If a hundred-foot oak tree had the mind of a human, it would only grow to be ten feet tall!
+ - The only time you are actually growing is when you are uncomfortable.
+ - Consciousness is observing your thoughts and actions so that you can live from true choice in the present moment rather than being run by programming from the past.
+ - Your inner world reflects your outer world.
+ - Success is a learnable skill. You can learn to succeed at anything.
+ - Rich people are wiling to act in spite of fear. Poor people let fear stop them.
+ - If your goal is to be comfortable, chances are you’ll never get rich. But if your goal is to be rich, chances are you’ll end up mighty comfortable.
+ - Rich people think long-term. They balance their spending on enjoyment today with investing for freedom tomorrow.
+ - Focus on all four of your net worth factors: increasing your income, increasing your savings, increasing your investment returns, and decreasing your cost of living by simplifying your lifestyle.
+ - To get paid the best, you must be the best.
+ - Complaining is the absolute worst possible thing you could do for your health or your wealth. The worst!
+ - Becoming rich isn’t as much about getting rich financially as about whom you become, in character and mind, to get rich.
+ - No thought lives in your head rent-free. Each thought you have will either be an investment or a cost.
+ - It’s what’s invisible that creates what’s visible.
+ - It comes down to this: either you control money, or it controls you. To control money, you must manage it.
+ - Money will only make you more of what you already are.
+ - Rich people take advice from people who are richer than they are. Poor people take advice from their friends, who are just as broke as they are.
+ - It comes down to this: If not you, then who?
+ - It’s not enough to be in the right place at the right time. You have to be the right person in the right place at the right time.
+ - We need to practice acting in spite of fear, in spite of doubt, in spite of worry, in spite of uncertainty, in spite of inconvenience, in spite of discomfort, and even to practice acting when we’re not in the mood to act.
+ - You will be paid in direct proportion to the value you create in the marketplace.
+ - I observe my thoughts and entertain only those that empower me.
+ - Whenever you feel uncomfortable, instead of retreating back into your old comfort zone, pat yourself on the back and say, “I must be growing,” and continue moving forward.
+ - The single biggest difference between financial success and financial failure is how well you manage your money. It’s simple: to master money, you must manage money.
+ - The size of the problem is never the issue – what matters is the size of you!
+ - Rich people do not back away from problems, do not avoid problems, and do not complain about problems. Rich people are financial warriors.
+ - Training and managing your own mind is the most important skill you could ever own, in terms of both happiness and success.
+ - There is a secret psychology of money. Most people don’t know about it. That’s why most people never become financially successful. A lack of money is not the problem; it is merely a symptom of what’s going on inside of you.
+ - Never have a ceiling on your income.
+ - Everything happens for a reason and that reason is there to assist me.
+ - Think more like the rich if you want to create more wealth.
+ - The mark of true wealth is determined by how much one can give away.
+ - How do you want to live your life? How do you want to play the game? Do you want to play in the big leagues or in the little leagues, in the majors or the minors? Are you going to play big or play small? It’s your choice.
+ - Nobody ever died of discomfort, yet living in the name of comfort has killed more ideas, more opportunities, more actions, and more growth than everything else combined. Comfort kills!
+ - Think of yourself as a role model for others-showing that you can be kind, generous, loving, and rich!
+ - I act when I’m not in the mood.
+ - Part of your mission in life then must be to share your gifts with as many people as possible. That means being willing to play big.
+ - Live is meaningful only if you gave it a meaning.
+ - There is no such thing as a really rich victim.
+ - In my experience, getting rich takes focus, courage, knowledge, expertise, 100 percent of your effort, a never-give-up attitude and of course a rich mind-set.
+ - The first element of change is awareness. You can’t change something unless you know it exists.
+ - Your field of focus determines what you find in life.
+ - If you don’t have the money management skills yet, using a debit card will ensure you don’t overspend and rack up debt on a credit card.
+ - Practice being in the present. Do what you’re doing 100%.
+ - Make a decision that from now on, your thoughts do not run you, you run your thoughts. From now on, your mind is not the captain of your ship, you are the captain of the ship, and your mind works for you.
+ - Rich people are willing to promote themselves and their value. Poor people think negatively about selling and promotion.
+ - A lack of money is never, ever, ever a problem. A lack of money is merely a symptom of what is going on underneath.
+ - If you say you’re worthy, you are. If you say you’re not worthy, you’re not. Either way you will live into your story.
+ - Remember, your motto is, if they can do it, I can do it!
+ - When you’re engaged in what you love to do, it’s like driving in the fast lane. Time flies by and more roads open up to you, alternate routes you may not have even known existed.
+ - It all comes down to this: if your subconscious “financial blueprint” is not “set” for success, nothing you learn, nothing you know, and nothing you do will make much of a difference.
+ - The goal of truly rich people is to have massive wealth and abundance.
+ - How do rich people think and act?
+ - If your motivation for acquiring money or success comes from a non-supportive root such as fear, anger or the need to ‘prove’ yourself, your money will never bring you happiness.
+ - If you grow yourself to become a successful person, in strength of character and mind, you will naturally be successful in anything and everything you do.
+ - I promote my value to others with passion and enthusiasm.
+ - Rich people expect to succeed.
+ - For the rich, it’s not about getting more stuff. It’s about having the freedom to make almost any decision you want.
+ - Rich people believe in themselves. They believe in their value and in their ability to deliver it. Poor people don’t. That’s why they need “guarantees.”
+ - By unlinking your money motivation from anger, fear, and the need to prove yourself, you can install new links for earning your money through purpose, contribution, and joy.
+ - Try paying the bills with love. The idea I am trying to espouse is that you can have both love and money, and be rich and generous.
+ - The only way to earn what you’re really worth is to get paid based on your results.
+ - Rich people admire other rich and successful people. Poor people resent rich and successful people.
+ - You must acquire the habits and skills of managing a small amount of money before you can have a large amount.
+ - Leaders earn a heck of a lot more money than followers.
+ - I took his suggestion to heart and went from a “know-it-all” to a “learn-it-all.”
+ - Give me five minutes and I can predict your financial future for the rest of your life.
+ - I think big! I choose to help thousands and thousands of people!
+ - For every giver there must be a receiver, and for every receiver there must be a giver.
+ - Money is a result, wealth is a result, health is a result, illness is a result, your weight is a result. We live in a world of cause and effect.
+ - If you believe in your value, how could it possibly be appropriate to hide it from people who need it?
+ - Rich people collect land. Poor people collect bills.
+ - There’s nothing wrong with getting a steady paycheck, unless it interferes with your ability to earn what you’re worth. There’s the rub. It usually does.
+ - I ask you, what is the use of having your “cake” if you can’t eat it? What exactly are you supposed to do with it? Put it on your mantel and look at it? Cake is meant to be eaten and enjoyed.
+ - If you have a big problem in your life, all that means is that you are being a small person!
+ - Money is a big part of your life, and when you learn how to get your finances under control, all areas of your life will soar.
+ - Until you show you can handle what you’ve got, you won’t get any more!
+ - When you are not willing to fully receive, you are training the universe not to give to you! It’s simple: if you aren’t willing to receive your share, it will go to someone else who is.
+ - When the subconscious mind must chose between deeply rooted emotions and logic, emotions will almost always win.
+ - The bottom line is that if you become a master at handling problems and overcoming obstacles, what can stop you from success? The answer is nothing! And if nothing can stop you, you become unstoppable!
+ - Most people are so stuck in their egos that everything revolves around me, me, and more me. But if you want to be rich in the truest sense of the word, it can’t only be about you. It has to include adding value to other people’s lives.
+ - Let’s set the record straight. Money is important! To say that it’s not as important as any other things in life is ludicrous. What’s more important, your arm or your leg? Could it be that both are important?
+ - Poor people choose now. Rich people choose balance.
+ - What you cannot see in the world is far more powerful than anything you can see.
+ - Now more than ever is the time to really work on learning a money management system that can work, no matter how low things seem right now.
+ - Poor people either mismanage their money or they avoid the subject of money altogether.
+ - Rich people manage their money well. Poor people mismanage their money well.
+ - Rich people are almost always excellent promoters. They can are willing to promote their products, their services, and their ideas with passion and enthusiasm.
+ - Rich and successful people are solution-oriented; they spend their time and energy strategizing and planning the answers to challenges that come up, and creating systems to make certain that problem doesn’t occur again.
+ - You can be a victim or you can be rich, but you can’t be both. Listen up! Every time, and I mean every time, you blame, justify, or complain, you are slitting your financial throat.
+ - You can have all the knowledge and skills in the world, but if your money “blueprint” isn’t set for success, you’re financially doomed.
+ - You can choose to think in ways that will support you in your happiness and success instead of ways that don’t.
+ - One of the principles we teach in our programs is “If you shoot for the stars, you’ll at least hit the moon.” Poor people don’t even shoot for the ceiling in their house, and then they wonder why they’re not successful.
+ - Your wealth can only grow to the extent that you do!
+ - Research shows that the happiest people are those who use their natural talents to the utmost.
+ - You have to believe that you are the one who creates your success, that you are the one who creates your mediocrity, and that you are the one creating your struggle around money and success.
+ - I have found that the richest people I know are also the nicest.
+ - I don’t know about you, but where I went to school, Money Management 101 wasn’t offered. Instead we learned about the War of 1812, which of course is something I use every single day.
+ - Your play account is also designed to strengthen your “receiving” muscle.
+ - No thought lives in your head rent-free.
+ - The biggest obstacle to wealth is fear. People are afraid to think big, but if you think small, you’ll only achieve small things.
+ - Get really rich and then help the people who didn’t have the opportunity you did.
+ - Your world is one of cause and effect.
+ - What’s the problem you solve? Solve it for one person. Create a system to do it without you. Duplicate.
+ - Rich people are committed to enough to do whatever it takes. Period.
+ - Resenting promotion is one of the greatest obstacles to success. People who have issues with selling and promotion are usually broke.
+ - The by-product is that they more people you help, the “richer” you become, mentally, emotionally, spiritually, and definitely financially.
+ - For the next seven days, I challenge you not to complain at all.
+ - If you are not fully, totally, and truly committed to creating wealth, chances are you won’t.
+ - If you believe you are plenty, you will validate that belief and create plenty of abundance.
+ - Remember, either you control your money or it will control you.
+ - From now on, I want you to practice reframing other people’s negativity as a reminder of how not to be.
+ - If you want to create wealth, it is imperative that you believe that you are at the steering wheel of life, especially your financial life.
+ - Rich people see every dollar as a “seed” that can be planted to earn a hundred more dollars, which can then be replanted to earn a thousand more dollars.
+ - The reason or motivation you have for making money or creating success is vital.
+ - The more comfort becomes your priority, the more contracted you become with fear.
+ - Make it a policy to know your net worth to the penny.
+ - Either you’re a person who will be stopped, or you are a person who won’t be stopped. You choose.
+ - Saying “I’ll start managing my money as soon as I get caught up” is like an overweight person saying “I’ll start exercising and dieting as soon as I lose twenty pounds.”
+ - If a person weren’t failing in some way, shape or form, would he or she need to blame, justify, or complain? The obvious answer is no.
+ - If you have the wherewithal to have a lot of money, have it.
+ - Living based in security is living based in fear.
+ - I consider each of my dollars to be investment “soldiers,” and their mission is “freedom.”
+ - If you know it, but you’re not living it, you don’t own it.
+ - If you are not willing to receive, then you are “ripping off” those who want to give to you.
+
+158 quotes

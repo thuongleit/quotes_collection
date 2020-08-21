@@ -1,0 +1,59 @@
+ - Don’t be so hard on yourself, don’t put pressure on yourself, life is just a chain of experiments and results, and you’ll be perfect when you’re dead.
+ - Once upon a time, something happened, and it was better than something not happening. The end.
+ - Find your voice, shout it from the rooftops, and keep doing it until the people that are looking for you find you.
+ - What’s important is passion, investment, and people laughing out loud as they work.
+ - None of us are bad people. We float around and we run across each other and we learn about ourselves, and we make mistakes and we do great things. We hurt others, we hurt ourselves, we make others happy and we please ourselves. We can and should forgive ourselves and each other for that.
+ - You’ll be perfect when you’re dead.
+ - I’m from Wisconsin so I always feel a little nauseous about begging and trying to trick people into liking me.
+ - Whereas the health of an individual depends on the ego’s regular descent and return to and from the unconscious, a society’s longevity depends on actual people journeying into the unknown and returning with ideas.
+ - Good writers hate bad writing but hating bad writing doesn’t make you good. Writing badly does.
+ - You don’t give someone notes on their performance at a soup kitchen.
+ - There are no normal people, there are just different kinds of weird.
+ - Storytelling comes naturally to humans, but since we live in an unnatural world, we sometimes need a little help doing what we’d naturally do.
+ - I think thoughts in my head bounce around in my skull and, if they keep bouncing around in my skull, they get worse and worse. When they come out of my mouth, they make people happy.
+ - I don’t think it’s going to be possible for the next generation of writers to tell stories without telling stories about telling stories.
+ - Class clowns are never allowed to date anybody decent, but you don’t get beaten up, you’re invited to parties, and everybody likes you.
+ - I’ve never done well when I’ve been appreciated. I’ve done best when I’m targeted for death.
+ - I expect the audience to assume TV is stupid. I accept that it’s my job to overcome it.
+ - I love ‘30 Rock.’ It’s one of my favorite shows. It’s certainly the gold standard of comedy writing.
+ - I am a collaborator with everyone who agrees that I need to be in control. I happily collaborate with my loyalists.
+ - There’s the same percentage of genius happening in both genders, but there’s less women writing scripts and out there looking for the job.
+ - I wish that television would stop selling our hatred of ourselves, and start seducing us with our love of ourselves.
+ - Audiences, as they get smaller, can intensify their relationship with the product, and so can the creative relationship with the people that you are serving. The good news is that, the more shows there are, the less the conglomerates have to gain by breaking the will of each individual creative.
+ - Always hedge your bets. That’s how I do it. I lay all my bets on what I can contribute, and suffer no illusions that I’m generating stuff by myself.
+ - There’s a fine line between a stream of consciousness and a babbling brook to nowhere.
+ - I walk with God, and He protects me. That may very well be true. I don’t mean to make that sound like a joke, in case He is in charge.
+ - You have to just look at it like Titanic: I know the ship sinks, but this is a love story.
+ - Pretty sad. Pretty lonely. But that’s how I prefer it? I quess? I guess. It’s a good guess. It’s the best quess ever.
+ - I’d just love to sit at home, wake up at 10AM, go to my own office with my dog, and write a movie. I don’t know if I’m capable of doing that though. I think I’ll just end up playing Minecraft and self-destructing.
+ - I am absolutely and inherently self-destructive in that I am always making sure I’m doing what I want to do.
+ - When you are in the 8 o’clock position, you can either be a cultural phenomenon, or you’re endangered. It’s a tough time slot.
+ - Television is a populous, derivative, democratic medium.
+ - I grew up on network sitcoms. If those are gone when I’m 65 years old, I would never forgive myself for not stepping up to that plate, as often as possible. I’m already bummed out that DVDs are dying off because, in my 20s, those were a huge thing.
+ - TV tends to be like, if you’re lucky, it’s like Las Vegas. You can’t get out. There’s always another pitch meeting. They keep you on the casino floor. If I’m unlucky, if I’m lucky enough to be unlucky, I would love to write a movie.
+ - With an animated show you can make a banana purple. You can put three hats on a cowboy. That would require several days of stitching, in live-action, that you wouldn’t be able to afford. I mean, you can just do tons and tons and tons.
+ - Yoda is interesting because, in addition to being wise, he is two feet tall, and a Yoda.
+ - The concept of doing holiday episodes is a huge part of what’s fantastic about doing TV. And viewers agree; you see the numbers going up for holiday episodes.
+ - If somebody’s cat happens to turn on the TV, my numbers can double. It’s almost unrelated to what’s really happening.
+ - The public’s perception of your show is what it is, and you don’t get to complain how people perceive your show or talk about it.
+ - I say what’s in my head, and I’m on honest ground. That is worth so much, and I think it does make my job, as a writer, easier. It makes it possible for me to give people stuff that they like.
+ - Wake up in the morning and say, ‘I refuse to be a hack,’ and see what happens by the end of the day.
+ - It’s so difficult to write good music. It’s also really difficult to think about how to do it without violating the sanctity of the fourth wall.
+ - I feel like I am a good person and a professional, very able leader of men.
+ - I feel like my life has always been the ‘Hey Look at Me Show.’ I’m not apologetic about that.
+ - My cat brought me a toy. I thanked her and threw it. She sat there gave me a look that made me realize people and dogs are the crazy ones.
+ - I surround myself with loyalists and people that I would die for. I just would rather die than make bad stuff for people because I’m a terrible dishwasher and a terrible lover and a terrible pet owner.
+ - The most rewarding part of writing for TV is – a year ago I would have said it’s just watching it on TV, it’s just having been done with it and then collecting all that energy.
+ - Technology changes the medium. I grew up on watching a box in my living room that made my parents happy. After something is gone, the dust will settle and I’ll see what’s next.
+ - I really like performing for people.
+ - I wish people used wishes to modify themselves instead of others. Wish to be low maintenance. Wish to be autonomous, even.
+ - I was raised on NBC television.
+ - I’ve discovered a new video game called owning my home.
+ - I always try to use my medium, and if I get into a normal sitcom-writing contest with normal sitcom writers, I’m going to lose.
+ - If your ratings are high and there’s money being made, you’re allowed to be a perfectionist in television.
+ - I don’t really have a lot of appropriate feelings for people on an individual basis, but I’ve always wanted to make people happy.
+ - Everyone knows that there are more people watching any given show than is being registered by the Nielsen system.
+ - I was playing the game where I was going to be a great TV or film writer some day and there was nothing else that I thought about, including other people.
+ - It was never my direct intention to do anything particularly medium-defying.
+
+57 quotes

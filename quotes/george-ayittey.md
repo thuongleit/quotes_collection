@@ -1,0 +1,33 @@
+ - Socialism is always wrong.
+ - There’s a belief that since Africa got a raw deal from the colonial West, then the Chinese must be Africa’s best friend. But the evidence doesn’t show that, and the main criticism is that they are building infrastructure in exchange for Africa’s resources in deals that are structured to favor China.
+ - The ‘Cheetah Generation’ refers to the new and angry generation of young African graduates and professionals, who look at African issues and problems from a totally different and unique perspective.
+ - Africa’s salvation doesn’t lie in begging and begging for more aid, and as an African, I find it very, very humiliating.
+ - Africa is poor because she is not free.
+ - Western-style multi-party democracy is possible but not suitable for Africa.
+ - Africa has more dictators per capita than any other continent.
+ - The only good dictator is a dead one.
+ - You have to separate the humanitarian impulse from the record of aid itself. We all want to help. Many people would say that it’s the moral impulse of the rich to help the poor, but the record of aid has been terrible.
+ - The solutions to Africa’s problems lie in Africa, not in Live Aid concerts.
+ - Dictators are allergic to reform, and they are cunning survivors. They will do whatever it takes to preserve their power and wealth, no matter how much blood ends up on their hands. They are master deceivers and talented manipulators who cannot be trusted to change.
+ - If NATO goes in and solves the crisis in Darfur, when the next one comes along Africa’s leaders will just sit back.
+ - When Uganda got debt relief in 1999, the first item President Museveni bought was a presidential jacket for himself.
+ - The election of Senator Barack Obama brought jubilation across Africa, where millions celebrated him as ‘one of their own.’
+ - Virtually all of Africa’s civil wars were started by politically marginalized or excluded groups.
+ - In a banana republic, one might slip on a banana peel but things do work – now and then for the people, albeit inefficiently and unreliably.
+ - There was free trade in Africa. There was free enterprise in Africa before the colonialists came.
+ - What Africa needs to do is to grow, to grow out of debt.
+ - To be sure, dictators are crafty, evil geniuses with awesome firepower at their disposal. They are also brutally efficient at intimidation, terrorism, and mass slaughter. However, a force is able to dominate because the counterforce is either nonexistent or weak.
+ - Across Africa there is what I call a colonialist mentality or orthodoxy. Orthodoxy in the sense that a lot of things have gone wrong in Africa in the post-colonial period. And time and time again, any time something went wrong, the leadership claims that it was never their fault.
+ - Getting rid of the dictator is only a first step in establishing a free society. The dictatorship must also be disassembled.
+ - In the West, the basic economic and social unit is the individual; in Africa, it is the extended family or the collective.
+ - Back in the 1960s Africa not only fed itself, it also exported food. Not anymore.
+ - Look at the history of peace accords in Africa. They have a terrible record. They are shredded even before the ink on them is dry.
+ - Traditionally, Africans hate governments. They hate tyranny.
+ - Personally, I regard myself as an intellectual ‘rebel,’ kicking against the ‘old colonialism-imperialism paradigm’ which has landed Africa in a conundrum.
+ - African history is filled with experiences of people shooting their way to power and then splintering into factions, like in Somalia and Liberia.
+ - Hippos kill more people in Africa annually than any other wild animal.
+ - The richest persons in Africa are heads of state, governors and ministers. So every ‘educated’ African who wants to be rich – and there is nothing wrong with wanting to be rich – heads straight into government or politics.
+ - Dictators cause the world’s worst problems: all the collapsed states, and all the devastated economies. All the vapid cases of corruption, grand theft, and naked plunder of the treasury are caused by dictators, leaving in their wake trails of wanton destruction, horrendous carnage and human debris.
+ - Radio is the death and life of Africa.
+
+31 quotes

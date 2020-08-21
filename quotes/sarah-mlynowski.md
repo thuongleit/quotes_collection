@@ -1,0 +1,21 @@
+ - They write songs about California girls for a reason.
+ - I always work from an outline.
+ - No one was perfect. But we all did the best we could. I guessed you had to forgive when you could, move on when you couldn’t, and love your family and friends for who they were instead of punishing them for who they weren’t.
+ - We’re all crazy. What’s your specific form of crazy?
+ - I love you: You imagine hearing the words from someone not related to you, someone not your best friend, but when someone you love, someone you dream about, actually says them, it makes your body melt and your breath get caught in your chest.
+ - How much wood could a woodchuck chuck if a woodchuck could chuck chlamydia?
+ - Just because a relationship ends, it doesn’t mean it’s not worth having.
+ - When I get married I’m going to make the marriage work. Getting married is forever, no matter what my spouse does.
+ - She said people found running to something easier than running from something.
+ - Liking someone doesn’t make you weak.
+ - Dad? Um, listen. I have kind of a crazy story for you...
+ - Yup, believe it: I was born on March 28, yet my name is April.
+ - Sometimes you don’t need lightning to start a fire. Sometimes, it builds on its own.
+ - A guy who treats his mom well, treats his wife well.
+ - I wonder-maybe the key is balance. Maybe it’s about living in the moment while still keeping your eye on the big picture-on all the pictures.
+ - Funny how life messed with you.
+ - When you go on vacation with people, you learn a lot about them.
+ - You can tell a lot about a person not just by their successes, but by how they deal with their setbacks.
+ - Biological clock? I don’t even own a watch.
+
+19 quotes

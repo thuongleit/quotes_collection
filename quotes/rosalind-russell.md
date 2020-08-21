@@ -1,0 +1,21 @@
+ - Taking joy in living is a woman’s best cosmetic.
+ - Life is a banquet, and most poor suckers are starving to death.
+ - Success is a public affair. Failure is a private funeral.
+ - Acting is standing up naked and turning around very slowly.
+ - Flops are a part of life’s menu and I’ve never been a girl to miss out on any of the courses.
+ - Do you know what makes a movie work? Moments. Give the audience half a dozen moments they can remember, and they’ll leave the theatre happy.
+ - It had been an enormous, extraordinary, outrageous adventure. And it was deadly.
+ - The White House is one of the few places in downtown Washington where you can get something to eat after 11 o’clock at night.
+ - It’s fine to have talent, but talent is the last of it. In an acting career, as in an acting performance, you’ve got to have vitality. The secret of successful acting is identical with a woman’s beauty secret: joy in living.
+ - Seal my lips on aches and pains. They are increasing, and love of rehearsing them is becoming sweeter as the years go by.
+ - When something happens to you, you either let it defeat you, or you defeat it.
+ - Taste. You cannot buy such a rare and wonderful thing. You can’t send away for it in a catalogue. And I’m afraid it’s becoming obsolete.
+ - My mother was Irish and she was superstitious, if you’ll forgive the tautology.
+ - The only man who could make a love scene comfortable was Clark Gable. He was born graceful, he knew what to do with his feet and when he took hold of you, there was no fooling around.
+ - I was second in line of defence, behind Myrna Loy.
+ - In all those types of films I wore a tan suit, a grey suit, a beige suit and then a negligee for the seventh reel near the end when I would admit to my best friend on the telephone that what I really wanted was to become a little housewife.
+ - I’ll match my flops with anybody’s but I wouldn’t have missed ’em.
+ - Moments. A couple of moments that people remember, that they can take with them, is what makes a good movie.
+ - Where is there beauty when you see deprivation and starvation?
+
+19 quotes

@@ -1,0 +1,37 @@
+ - The important thing in life is not the triumph but the struggle.
+ - The most important thing in the Olympic Games is not winning but taking part; the essential thing in life is not conquering but fighting well.
+ - The important thing in life is not victory but combat; it is not to have vanquished but to have fought well.
+ - Swifter, higher, stronger.
+ - Winning medals wasn’t the point of the Olympics. It’s the participating that counts.
+ - Sport must be the heritage of all men and of all social classes.
+ - All sports must be treated on the basis of equality.
+ - Olympism seeks to create a way of life based on the joy found in effort, the educational value of a good example and respect for universal fundamental ethical principles.
+ - For each individual, sport is a possible source for inner improvement.
+ - The essential thing in life is not so much conquering as fighting well.
+ - Olympism is not a system – it is a state of mind. This state of mind has emerged from a double cult: that of effort and that of Eurythmy – a taste of excess and a taste of measure combined.
+ - All sports for all people.
+ - In the name of all competitors, I promise that we will take part in these Olympic Games, respecting and abiding by all the rules which govern them in the true spirit of sportsmanship, for the glory of sport and the honour of our teams.
+ - The Olympic Games are the quadrennial celebration of the springtime of humanity.
+ - Festival of the impassioned efforts and manifold ambitions of all forms of youthful activity of every generation springing from the threshold of life.
+ - A better world could be brought about only by better individuals.
+ - Sport is part of every man and woman’s heritage and its absence can never be compensated for.
+ - The Olympic Movement gives the world an ideal which reckons with the reality of life, and includes a possibility to guide this reality toward the great Olympic Idea.
+ - Holding an Olympic Games means evoking history.
+ - Olympism is a doctrine of the fraternity between the body and the soul.
+ - The Olympic Spirit is neither the property of one race nor of one age.
+ - Sport is the habitual and voluntary cultivation of intensive physical effort.
+ - In the Olympic Oath, I ask for only one thing: sporting loyalty.
+ - The important thing is that all stages from adolescent to mature man, work is done to spread the sporting spirit.
+ - The day when a sportsman stops thinking above all else of the happiness in his own effort and the intoxication of the power and physical balance he derives from it, the day when he lets considerations of vanity or interest take over, on this day his ideal will die.
+ - Success comprises in itself the seeds of its own decline and sport is not spared by this law.
+ - Sport must be accessible to working class youth.
+ - May joy and good fellowship reign, and in this manner, may the Olympic Torch pursue its way through ages, increasing friendly understanding among nations, for the good of a humanity always more enthusiastic, more courageous and more pure.
+ - The Olympic Games are for the world and all nations must be admitted to them.
+ - A country can truly call itself sporting when the majority of its people feel a personal need for sport.
+ - Racial distinctions should not play a role in sport.
+ - The strength of Olympism comes to it from that which is simply human, hence worldwide is its essence.
+ - The Olympic Games were created for the exhaltation of the individual athlete.
+ - I therefore think that I was right in trying from the outset of the Olympic revival to rekindle a religious awareness.
+ - In no way can sport be considered a luxury object.
+
+35 quotes

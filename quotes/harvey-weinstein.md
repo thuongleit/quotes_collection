@@ -1,0 +1,62 @@
+ - I’m the father of four daughters.
+ - I’m a benevolent dictator.
+ - Audiences want to see intelligent movies.
+ - I wanted to do something inspirational for my children.
+ - Knowing that Ricky Gervais will never work again means a lot to me. I’m going to make sure of it.
+ - There are two things that come very easily to me: rooting for New York sports teams and making mistakes.
+ - Like Rodgers and Hammerstein, I’m not afraid to deal with themes about the ups and downs of life, yet which are still entertaining, and you still feel these stories.
+ - Last year, when ‘Black Swan,’ ‘True Grit’ and ‘King’s Speech’ all grossed over $100 million, it gave studios and independent financiers the confidence to make daring movies and not do the same old you-know-what.
+ - To me, Romney is Our Idiot Brother, and Obama is The King’s Speech. You can spend all the money in the world. If you’ve got a bad product, it doesn’t matter.
+ - You know, I’m the tough guy with taste, good friends, you know, describe me that I’m the tough guy, period, the way others do. But, you know, I’ll tell you, I’m a complete wuss when it comes to my own kids.
+ - Some people handle sweets better.
+ - There is nothing like the way people feel after they’ve seen ‘The Intouchables.’ They feel amazing. The word of mouth on this film is incredible. It’s intelligent-feeling good. You’re not insulted by the low-browness or stupidity of some of the humor. It’s so smart and terrific.
+ - If we don’t get gun-control laws in this country, we are full of beans. To have the National Rifle Association rule the United States is pathetic. And I agree with Mayor Michael Bloomberg: It’s time to put up or shut up about gun control for both parties.
+ - It’s the golden age of French cinema again but it’s because Sarkozy had the guts to push through copyright law.
+ - We need Netflix. We in the independent sector more than anybody need Netflix, because they care about what we do.
+ - People want to see big, escapist fare. They don’t want to be challenged to think.
+ - Debt can be the most addictive thing in the universe, and it can kill you. You get used to living high off the hog. It was intoxicating.
+ - Margaret Thatcher made tough decisions. She put people out of work and she stood up to labor unions and she did a lot of things that I did not like.
+ - I must admit, even though I’m the product of two Jewish parents, I think the Irish temper got in there somewhere, so I’m going to check Mom’s genealogy.
+ - It’s always tough for me to make a movie, and then sit on an airplane and watch somebody watch it on their phone.
+ - All my movies got screwed up because of my personality.
+ - Roman Polanski is a man who cares deeply about his art and its place in this world. What happened to him on his incredible path is filled with tragedy, and most men would have collapsed. Instead, he became a great artist and continues to make great films.
+ - I just finished my homework fast, I was bored to death. There wasn’t 500 channels so there was a thing for a librarian to teach a kid like me about reading. I started reading early and I read all the time, because I love it.
+ - I saw ‘Tintin’ in Europe – it is ‘Indiana Jones’ on steroids. Unbelievable. What a fantastic movie. Steven Spielberg, you rock the house. And working with those young English guys like Edgar Wright, and also Peter Jackson; what a great combination.
+ - All my life, I have loved and been inspired by French cinema, and as a studio head it has been my pride and joy to have the ability to bring movies to audiences around the world.
+ - I think audiences can deal with these mature themes.
+ - George Clooney’s ‘Ides of March’ could be the most under-appreciated movie of the year. In 20 years they’re gonna go back and say, ‘Oh, that was American politics in that time period.’ I follow politics, I love it, and that movie is so authentic.
+ - First of all, I never make a movie for awards consideration.
+ - I’m sure the next time Piers Morgan asks me to host his show again I will ask President Obama to be my guest.
+ - People love a true story and especially a true story where two people from opposite worlds come together.
+ - As a young man, I went to Paris and soaked up many hours of film knowledge from Robert Hakim in my efforts to become a producer.
+ - I was a camp counselor for kids whose moms were on welfare, unfortunately, and right across the camp was the best, most pristine and preppy camp in the universe.
+ - I don’t know, I’ll probably make the first superhero movie that bombs.
+ - People know that I have a great love for cinema. Not just for commercial cinema, but for the ‘cinema d’auteur.’ But to me, two of the great ‘auteurs’ are actually actors and they both happen to be French. One is Alain Delon and the other is Jean-Paul Belmondo.
+ - I think we do have our true, original stories that work. I can tell you that ‘The King’s Speech,’ which we did, became a worldwide smash because people loved the personal story.
+ - I hope to continue my friendship with France and its filmmakers for many years to come.
+ - Obama’s not embarrassing. The country is embarrassing.
+ - I always find that when I do something that I like, from my heart, then it works.
+ - I think for us – the Weinstein name, the Miramax name – they’ve both become synonymous with brands. We have a real winning formula when it comes to championing a different kind of movie, and I think the audience trusts us.
+ - It’s hard to market a movie when you’re at the mercy of critics and journalists.
+ - We’ve been able to access deals that under our former relationship with Disney – with tax advantages and strategic partners – that we just weren’t able to do.
+ - I don’t have to agree with everything a candidate does to support him.
+ - The great thing that guys like Facebook’s Mark Zuckerberg and the Google guys have in common is they treat their technology like it’s art, and I suppose in the hands of virtuosos like them, it is.
+ - I’d never made a teen comedy in my life.
+ - I’ve had such a great track record in making a huge profit when the movies are smaller.
+ - When you have four daughters, you learn to lose early and often.
+ - I want to deal with somebody who comes from another country to the United States and has a family that comes. I don’t care if it’s a black family from Jamaica or a Hispanic family from Mexico. These issues need to be dealt with, but they need to be dealt with in the entertaining way.
+ - There’s something about the fashion world that I like, which is, I see a lot of the designers really have affection for other designers.
+ - You know, my movies are important on an economic basis, on an artistic basis.
+ - I learned what I really love is making films, not the film business. I want to be on the set, meeting with writers, I want that freedom. I love it now.
+ - I’ve been involved with violent movies, and then I’ve also said at a certain point, ‘I can’t take it anymore. Please cut it.’ You know, you’ve got to respect the filmmaker, and it’s a really tough issue.
+ - To have the National Rifle Association rule the United States of America is pathetic.
+ - Over the years with movies, I’ve given directors notes.
+ - You’re always fascinated by what you do, and how other people look at it.
+ - They keep the old business. We keep the ongoing business.
+ - The secret of making movies is having the strongest possible script.
+ - I’m probably the only person who goes to work and says ‘Wow, it’s really nice here and sweet,’ even in the competitive movie business.
+ - You know, for years I used to read about myself. They’d say, ‘He has a temper’ or ‘He’s a bully’ or something like that, and it always bothered me.
+ - When we talk about Oscars, it’s almost as a symbol of excellence, and the American public and the worldwide public accept that symbol.
+ - Everybody who’s played Marilyn Monroe before has gone down in flames. It’s impossible to capture Marilyn Monroe.
+
+60 quotes

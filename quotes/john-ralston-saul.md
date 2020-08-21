@@ -1,0 +1,56 @@
+ - All the lessons of psychiatry, psychology, social work, indeed culture, have taught us over the last hundred years that it is the acceptance of differences, not the search for similarities which enables people to relate to each other in their personal or family lives.
+ - Freedom – an occupied space which must be reoccupied every day.
+ - The Age of Reason has turned out to be the Age of Structure; a time when, in the absence of purpose, the drive for power as a value in itself has become the principal indicator of social approval. And the winning of power has become the measure of social merit.
+ - The acceptance of corporatism causes us to deny and undermine the legitimacy of the individual as citizen in a democracy. The result of such a denial is a growing imbalance which leads to our adoration of self-interest and our denial of the public good.
+ - Unregulated competition is a naive metaphor for anarchy.
+ - It is undoubtedly easier to believe in absolutes, follow blindly, mouth received wisdom. But that is self-betrayal.
+ - Democracy is the only system capable of reflecting the humanist premise of equilibrium or balance. The key to its secret is the involvement of the citizen.
+ - I have a theory of statistics: if you can double them or halve them and they still work, they are really good statistics.
+ - We all need a bit of self-delusion. It gets us over the difficult spots.
+ - The Unconscious Civilisation There is a certain terrifying dignity to the big ideologies. With the stroke of an intellectual argument the planet is put in its place. Only the bravest or the most foolish of individuals would not become passive before such awe inspiring destinies.
+ - Happy Hour: a depressing comment on the rest of the day and a victory for the most limited Dionysian view of human nature.
+ - There is something silly about grown men and women striving to reduce their vision of themselves and of civilization to bean counting.
+ - Pessimism: A valuable protection against quackery.
+ - In a society of ideological believers, nothing is more ridiculous than the individual who doubts and does not conform.
+ - World class is a phrase used by provincial cities and second-rate entertainment events, as well as a wide variety of insecure individuals, to assert that they are not provincial or second-rate, thereby confirming that they are.
+ - Elites quite naturally define as the most important and admired qualities for a citizen those on which they themselves have concentrated.
+ - Capitalism was reasonably content under Hitler, happy under Mussolini, very happy under Franco and delirious under General Pinochet.
+ - In all earlier civilizations, it should be remembered, commerce was treated as a narrow activity and by no means the senior sector in society.
+ - If allowed to run free of the social system, capitalism will attempt to corrupt and undermine democracy, which is after all not a natural state.
+ - The undoubted sign of a society well under control or in decline is that language has ceased to be a means of communication and has become instead a shield for those who master it.
+ - Which is ideology? Which not? You shall know them by their assertion of truth, their contempt for considered reflection, and their fear of debate.
+ - A foreigner is an individual who is considered either comic or sinister. When the victim of a disaster – preferably natural but sometimes political -the foreigner may also be pitied from a distance for a short period of time.
+ - Our belief in salvation through the market is very much in the Utopian tradition. The economists and managers are the servants of God. Like the medieval scholastics, their only job is to uncover the divine plan. They could never create or stop it. At most they might aspire to small alterations.
+ - In the humanist ideal, the mainstream is where interesting debate, the generating of new ideas and creativity take place. In rational society this mainstream is considered uncontrollable and is therefore made marginal. The centre ground is occupied instead by structures and courtiers.
+ - Canada is either an idea or it does not exist. It is either an intellectual undertaking or it is little more than a resource-rich vacuum lying in the buffer zone just north of a great empire.
+ - If economists were doctors, they would today be mired in malpractice suits.
+ - An individual who stands out, or disagrees or takes risks is a danger to such systems and is effortlessly and, unconsciously sidelined.
+ - As an inclusive quality, imagination is thus our primary force for progress, whatever progress is.
+ - Educating the masses was intended only to improve the relationship between the top and the bottom of society. Not for changing the nature of the relationship.
+ - We must discover how to ask simple questions of ourselves.
+ - Nothing is absolute, with the debatable exceptions of this statement and death.
+ - Myrmecophaga jubata: The anteater. The existence of this predator demonstrates that thinking 71 percent of the time, as ants do, won’t prevent you from being eaten. Thinking less than that, as humans do, will almost guarantee it.
+ - Everyone has an equal right to inequality.
+ - People cannot do what they cannot think, and they cannot think what they cannot say.
+ - Like all religions, Reason presents itself as the solution to the problems it has created.
+ - Bankers – pillars of society who are going to hell if there is a God and He has been accurately quoted.
+ - Humanism: an exaltation of freedom, but one limited by our need to exercise it as an integral part of nature and society.
+ - Venereal: From Venus, the goddess of love, this word refers to the reality of desire. With the rise of Protestantism and science, the word disease was tacked on in a revealing combination of categorization and moralizing. Which disease? The disease of love.
+ - Love: A term which has no meaning if defined.
+ - Armaments; extremely useful for fighting wars, a deadweight in any civil economy.
+ - Management cannot solve problems. Nor can it stir creativity of any sort. It can only manage what it is given. If asked to do more, it will deform whatever is put into its hands.
+ - Simplicity is no longer presented as a virtue. The value of complex and difficult language has been preached with such insistence that the public has begun to believe the lack of clarity must be a sign of artistic talent.
+ - The citizen’s job is to be rude – to pierce the comfort of professional intercourse by boorish expressions of doubt.
+ - A Big Mac – the communion wafer of consumption.
+ - Whenever governments adopt a moral tone – as opposed to an ethical one – you know something is wrong.
+ - McDonald’s is the ultimate symbol of passive conformity.
+ - Dictionary: Opinion presented as truth in alphabetical order.
+ - Freud, Sigmund: A man so dissatisfied with his own mother and father that he devoted his life to convincing everyone who would listen – or better still, talk – that their parents were just as bad.
+ - Faith: The opposite of dogmatism.
+ - There is no need to search for global solutions, apart from an absolute necessity to destroy the idea that such things exist.
+ - Marx was fortunate to have been born eighty years before Walt Disney. Disney also promised a child’s paradise and unlike Marx, delivered on his promise.
+ - If the technocratic class often invokes technology, it is because these inanimate objects can take on a trajectory of their own and so cover for the manager’s inability to give leadership.
+ - Only when God was said to have died did various leaders, professions and sectors risk pushing themselves forward as successors.
+ - United States:. A nation given either to unjustified over-enthusiasms or infantile furies.
+
+54 quotes

@@ -1,0 +1,51 @@
+ - Today is a very sad day, and there’s not alot we can do, except just to let you know, you are in our prayers and all our love and thoughts are with you.
+ - I raise a glass, to make a toast wishing everything good for you, so happy birthday for today and health and happiness too.
+ - We send our deepest sympathies, to you on this sad day, in your heart, is memories that you will treasure everyday.
+ - Today you’re full of pain and sorrow, and you feel your loss so much, but you know there are lots of tomorrows, when the pain won’t be so much, you’ll always have your memories you’ll always feel them near, they won’t be very far away, the love will be around you, soft and clear.
+ - Your presence we will always miss, but the memories I will treasure, we had some happy times dear friend knowing you was a gift of pleasure.
+ - Memories are always precious, they are memories which will stay, and even though the time goes by, they will never be taken away.
+ - At this time of sadness, there are no words to say, My heart is full of sympathy, for you and your family today.
+ - Memories last forever in those years you both shared, may you find peace and love and comfort from all those who care.
+ - Extra special birthday wishes are sent to you today, to wish you love and happiness in every single way.
+ - I have prayed to God that he give me the strength to survive each day and to face those times in my life that will be extremely painful. I have put my total faith in God, and he will take care of me.
+ - You’re faithful, amusing and considerate, so your Capricorn star sign says, you’re also reserved and disciplined, but let your hair down, Its your Birthday.
+ - I wanted to end my life so bad and was in my car ready to go down that ramp into the water, and I did go part way, but I stopped. I went again and stopped. I then got out of the car and stood by the car a nervous wreck.
+ - With this card comes words to say our love and thoughts are with you on this sad day.
+ - I want to find a quiet place, to sit with you a while, to talk about the happy times, and hope that makes you smile. Rest in Peace Darling.
+ - I had never felt so lonely and so sad in my entire life.
+ - My children deserve to have the best, and now they will.
+ - Its a wonderful special day, because its all about you, a day full of cards and wishes, to celebrate your birthday through.
+ - Wishing you a happy birthday with all those special things, the things which make memories and for all the happiness it brings.
+ - They will never be forgotten your heart aches while you’re apart, you’ll always feel them near you they will be forever in you heart.
+ - I know now that it is going to be a tough and long road ahead of me.
+ - I knew from day one, the truth would prevail, but I was so scared I didn’t know what to do.
+ - This special birthday greeting, is sent from me to you, you are a wonderful lady, hope all your wishes come true.
+ - Why was I feeling this way? Why was everything so bad in my life? I had no answers to these questions.
+ - I was in love with someone very much, but he didn’t love me and never would. I had a very difficult time accepting that. But I had hurt him very much, and I could see why he could never love me.
+ - As long as we have memories, you’ll never be apart, as long as we have memories, they will live on in your heart.
+ - This birthday verse is little and I want you to know and see, that you’re someone very special especially to me.
+ - Michael and Alex, I love you. And we’re going to have the biggest celebration when you get home.
+ - We’ve sent this message in this card to wish you a happy birthday, hope your day is a special one because you deserve it in every way.
+ - You’re passionate, energetic and forceful, so your star sign Aries says, so have a fun packed birthday, all our love is sent your way.
+ - The hardest part of this whole ordeal is not knowing if your children are getting what they need to survive.
+ - I dropped to the lowest point when I allowed my children to go down that ramp into the water without me.
+ - Sausages sizzling on the bar-b-cue the sun is shining bright, today’s your birthday, so we celebrate from morning, noon and night.
+ - Happy birthday greetings is being sent your way, with everything which is good, for your wonderful day.
+ - I felt I couldn’t be a good mom anymore, but I didn’t want my children to grow up without a mom. I felt I had to end our lives to protect us from any grief or harm.
+ - Its so very hard, to know just what to say, except that you are thought of, in our prayers and sympathy.
+ - I broke down on Thursday, Nov. 3, and told Sheriff Howard Wells the truth. It wasn’t easy, but after the truth was out, I felt like the world was lifted off my shoulders.
+ - This card comes to say, that we both have many thoughts, and that they are as sincere as can be, and are coming to you today, with my deepest sympathy.
+ - I am sorry for what has happened and I know that I need some help.
+ - It hurts real bad to have that protection barrier between parent and child.
+ - I don’t think I will ever be able to forgive myself for what I have done.
+ - We send these birthday wishes for your special day, one that brings a world of love and joy and happiness your way.
+ - My children, Michael and Alex, are with our Heavenly Father now, and I know that they will never be hurt again. As a mom, that means more than words could ever say.
+ - Happy birthday coz, you are the very best, I send this card, with lots and lots, of hugs, kisses and love.
+ - I love my children. That will never change. I have prayed to them for forgiveness and hope that they will forgive me. I never meant to hurt them!!
+ - Living in process is being open to insight and encounter. Creativity is becoming intensively absorbed in the process and giving it form.
+ - I have put my faith in the Lord, and I really believe He’s taking care of them. They’re too beautiful and precious that He’s not going to let anything happen to them.
+ - Hope your birthday, from morning to night is special for you, wonderful and bright.
+ - When I left home, I was going to ride around a little while and then go to my mom’s. As I rode and rode and rode, I felt even more anxiety coming upon me about not wanting to live.
+ - I don’t get to go out but an hour a day.
+
+49 quotes

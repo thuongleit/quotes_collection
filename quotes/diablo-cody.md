@@ -1,0 +1,128 @@
+ - In my opinon, the best thing you can do is find a person who loves you for exactly what you are. Good mood, bad mood, ugly, pretty, handsome, what have you, the right person will still think the sun shines out your ass. That’s the kind of person that’s worth sticking with.
+ - Juno MacGuff: I was out handling things way beyond my maturity level.
+ - And I think I’m an adrenaline junkie, and there’s nothing that will spike your adrenaline more than sitting in a theater and listen to an audience react to something you’ve written.
+ - I have a huge repertoire. I love karaoke.
+ - People don’t have these tidy little redemption arcs in reality the way they do in movies.
+ - He wasn’t a carrier of commitment-phobia or other notable boy diseases and he used expensive moisturizer. That’s about all it takes to bang my gong.
+ - I feel like I’m part of a generation of people who are stuck in the past and are really self-absorbed. I mean, we’re actually taking pictures of ourselves and posting them on Facebook, and keeping in touch with people that should have been out of our lives 15 years ago.
+ - There’s something about a roller coaster that triggers strong feelings, maybe because most of us associate them with childhood. They’re inherently cinematic; the very shape of a coaster, all hills and valleys and sickening helices, evokes a human emotional response.
+ - To enjoy being famous, you need to have a screw loose.
+ - Jeez banana! Shut your freaking gob!
+ - That’s also why comedy and horror are my two favorite genres of film to write, because you get these outbursts of emotion from people, laughter and shock, and it’s really thrilling, and I like to be thrilled.
+ - I’m glad that as a 33-year-old working mother, I can still choose to wear a Hello Kitty T-shirt or stay up late scrolling through the Twitter feed of my junior-high crush.
+ - Juno MacGuff: Wise move. I know this girl who had a huge crazy freakout because she took too many behavioral meds at once. She took off all her clothes and jumped into the fountain at Ridgedale Mall and she was like, “Blaaaaah! I’m a kraken from the sea!” Su-Chin: That was you.
+ - If a woman chooses to work, people say, “Oh it’s so sad that you’re not at home with your children.” But no one ever says that to a man because it’s assumed that the man is going to be the provider. There’s this double standard that exists and it really frustrates me.
+ - Here’s my unsolicited advice to any aspiring screenwriters who might be reading this: Don’t ever agonize about the hordes of other writers who are ostensibly your competition. No one else is capable of doing what you do.
+ - You make a first impression and people never forget it. If people want to think of me as the wacky ‘Juno’ lady forever, I could think of worse ways to be labeled.
+ - Love is mysterious and rad, like Steve Perry from Journey.
+ - Shoulda gone to China. They give away babies like free iPods. They put them in guns and shoot them out at sporting events.
+ - Bren MacGuff: Well, honey, doctors are sadists who like to play God and watch lesser people scream...
+ - I hear that 5 o’clock whistle in my mind like Fred Flintstone and I have to stop. I’m also not much of a morning writer. I have a sweet spot from about 11am to 4pm. But I really work during that time.
+ - I think sometimes people really require the satisfaction of closure.
+ - I spent a lot of time staring at the clock in school, so I have that kind of personality.
+ - You know, I did not like being famous. It was a stressful and ugly time, and I’m glad it’s over.
+ - I don’t know if I have some kind of defiance disorder or something, but if I’m hired to write something by “The Man,” or by a studio, for whatever reason, it’s really hard for me to finish. I inevitably wind up using that time to write something else.
+ - I just want to be able to keep my house and pay for my son’s school tuition in Los Angeles.
+ - Juno MacGuff: You can never have too many of your favorite one calorie breath mints.
+ - Speaking of Twitter, I don’t even know if I composed a blog entry in 2009, as I was too busy parceling my every thought into cute 140-character sound bites. I used to only worry about being pithy for a living; now some of my best lines are wasted on a free app!
+ - I am a karaoke purist and I don’t like that. I don’t think it’s enough for you to just be there with your friends singing. I think you need to be in front of a crowd of hostile strangers for it to truly count.
+ - People say ‘teenage girls aren’t so clever. Your characters should be less articulate to reflect our youth.’ People who say that aren’t spending time with teenagers.
+ - I’ve been told that I’m incompetent, socially retarded, maladjusted. I still know that I couldn’t function in reality. Los Angeles is a good place for me.
+ - I wrote a screenplay for a ‘Sweet Valley High’ adaptation, and it’s really amazing to me how many women who are my age have responded to the idea and are excited about the movie.
+ - I always say when you write a book, you’re a ‘one-man band.’ Whereas, when you finish a screenplay, it’s just a sketch.
+ - Put your blog out into the world and hope that your talent will speak for itself.
+ - I keep joking that I’m in Jason Reitman Film School, because I keep asking him questions every single day about directing and I have a list of things that he’s told me to do and not do and I definitely couldn’t learn from a better person.
+ - Everybody knows that I’m not a snob when it comes to pop culture, obviously. I love reality shows.
+ - When I do encounter young women or aspiring filmmakers who tell me that I’ve inspired them or that my work means something to them, that’s amazing. That’s really exciting!
+ - The fashion industry isn’t merely content to encase my meaty flanks in skintight denim. Oh, no! That denim also has to be white, a color that attracts ketchup, wine, garlic aioli, and any other foodstuffs I might otherwise be able to enjoy if I wasn’t wearing ridiculously tight pants.
+ - When you’re in a competitive environment, always give out the impression that you don’t care. It makes people want you more. If you act desperate, it’s over. I think a passive attitude is helpful. It comes naturally because I’m lazy.
+ - Nobody comes to Minnesota to take their clothes off, at least as far as I know.
+ - I don’t think coolness used to be such a commodity among adults. And now it is.
+ - Juno: Honest to blog?
+ - The stuff I write isn’t strictly autobiographical, but it’s personal, if that makes any sense. It draws all these little incidents and people out of my life and then contorts them.
+ - As a kid, I spent every summer bent over a stack of books, obsessively writing detailed reports on each one.
+ - My boyfriend is Italian and from New Jersey, so naturally he was thrilled to meet Joe Pesci.
+ - The fact is, when I wrote ‘Juno’ – and I think this is part of its charm and appeal – I didn’t know how to write a movie. And I also had no idea it was going to get made!
+ - Let it be said that the makeup artist at ‘90210’ made me look better for the fake red carpet than I’ve ever looked on an actual red carpet.
+ - Whether it’s a blatant homage or unconscious mimicry, the Rolling Stones have permanently, indelibly influenced how rock stars look and behave.
+ - I’ve been meaning to write about the Rolling Stones, but I am the furthest thing from a hipster rock journalist.
+ - I myself identify as a recovering Blockhead. You’d be surprised how many twenty- and thirty-something hipster chicks have the NKOTB skeleton in their closet, albeit artfully concealed by stacks of Ksubi skinny jeans and ironic Judas Priest T-shirts.
+ - I have never been an ambitious person, and my participation in this industry is a fluke, but only male writers can afford to be coy and self-deprecating.
+ - I think when you take people who are damaged and you give them money and freedom, it can be a toxic cocktail.
+ - Tabloid photos capture people at their most self-conscious and disoriented; in real life, Paris Hilton is like an elegant paper crane.
+ - He is the cheese to my macaroni.
+ - Honestly, this will never happen because she’s so much classier than me, but I would love to work with Sofia Coppola.
+ - I’m a pessimist by nature. I don’t think things are ever going to work out, I’m not particularly ambitious.
+ - I actually have two children now, and sometimes I wonder if that’s it. Because they do make writing and directing more complicated and more difficult, especially now that they’re very young.
+ - Stripping toughened my hide, but exposing myself as a writer has been a lot more brutal.
+ - I’m not an especially highbrow person, but I have always loved small, quirky, edgy movies.
+ - The Rolling Stones are so versatile, they’re like the band version of that Infinite Dress they sell on QVC.
+ - For me, writing essays, prose and fiction is a great way to be self-indulgent.
+ - I think I might be one of the only people in America, or at least the only person I know, who saw both ‘The Dark Knight’ and ‘Mamma Mia!’ on their shared opening weekend.
+ - The best thing you can do is find a person who loves you for exactly what you are.
+ - You definitely meet a lot of extremely powerful, successful, wealthy people in Hollywood who are extremely miserable.
+ - Unfortunately I don’t live by a Target now, so I just go to a regular Starbucks as opposed to a Starbucks nested inside a Target, which is my ideal situation. That works out for me. I like that white noise, those interruptions, and the people around me.
+ - I do a nice sloppy first draft like everybody else. And then just work at it and work at it and groom it. I get input from other people.
+ - The attitude toward women in this industry is nauseating. There are all sorts of porcine executives who are uncomfortable with a woman doing anything subversive. They want the movie about the beautiful girl who trips and falls, the adorable klutz.
+ - Now ‘90210’ is returning with an all-new cast of slightly more plausible teens. I’ll be honest: I wish the old cast was back. Ideally, this spin-off would be an Ice Storm-esque exploration of the West Beverly gang’s bleak adult lives.
+ - I had the experience last year of directing my first feature while I had a 1-year-old son and while I was also pregnant, so I am now well aware of the difficulties women who are rearing children face when they’re also trying to make headway in mainstream of film.
+ - If being an attractive woman got you attention for directing, then the entire ‘best director’ category would be comprised of models. To me, that is just the most ludicrous connection that you could make.
+ - Well, to aspiring writers, I would tell them that we live in a wonderful time where you’re able to make your work visible, easily.
+ - Personally, I consider ‘Titanic’ the most brilliant example of successful counterprogramming; the film actually countered itself by embedding an epic chick flick within a classic disaster movie.
+ - I grew up in the Midwest; you don’t know any screenwriters. It didn’t seem like a realistic career possibility.
+ - If this whole writing thing doesn’t work out, I’ll be getting right back on the pole.
+ - Juno MacGuff: I don’t know what kind of girl I am.
+ - I do not quote my own movies. I think I would be pretty insufferable if I did.
+ - I try to avoid Twitter. I occasionally can’t resist the siren call of email.
+ - When I was a kid, I attended a small Catholic school in a south suburb of Chicago.
+ - Somebody asked me earlier if I thought it was really important to tell stories about women’s struggles. And I said yes, but at the same time, it’s also important to tell stories about women’s triumphs, women being slackers, women being criminals, women being heroes.
+ - I normally ignore the History Channel.
+ - I absolutely relate to being alone in squalor, trying to come up with something adequate. I relate to that, and I’ve been known to crawl out of bed and drink out of a 2-liter bottle of Diet Coke.
+ - The things that I write are autobiographical in a surreal sense, like when you have a dream and you go to the doctor’s office, but then you turn around and it’s actually your childhood home and the doctor has turned into Ryan Reynolds.
+ - I’ve always been a writer, I’ve always been a storyteller, but I never thought about screenwriting.
+ - I know white clothing is supposed to enhance that summer glow, but writers don’t tan.
+ - I’ve been an avid consumer of young adult literature since I was one, and I think some people leave that stuff behind when they become old adults, but I never did. I was always interested in the fantasy world created in those novels.
+ - I think it’s great when writers get recognition; it doesn’t happen very often. I just don’t want that writer to be me. Let it be Aaron Sorkin or, you know, somebody good.
+ - If I want to get a taste of beach culture, I’ll fire up my season 2 DVD of ‘Beverly Hills, 90210.’
+ - A few months ago, I had the pleasure of actually visiting the Playboy Mansion. I saw the peacocks, fed grapes to the monkeys, and even braved the fabled Grotto. After seeing the estate, I understood why anyone would be reluctant to leave.
+ - Couture gowns are like gremlins; you can’t expose them to bright light or get them wet.
+ - I would never consent to a lame publicity stunt at a time when I already want to hide.
+ - In the past, I’ll admit, I’ve enjoyed being compared to the protagonists in my screenplays.
+ - I’ve never even seen a great set fight or a great set meltdown. I seem to always be on these incredibly relaxed sets.
+ - I’ve been so lucky – I worked with Jason Reitman twice, who has always been a really strong advocate for my voice, and has always really respected the scripts that I’ve brought him and is just the coolest.
+ - I just go about my life. I’m a mom, I drive an SUV, I go to the grocery store every day. I’m definitely not a celebrity. I always say that I’m a celebrity-adjacent.
+ - I didn’t even know how to talk to people, I didn’t know how to talk to the press. I was just a jester. And I still feel that way. But, I mean, what haven’t I learned? Everything that I know is new information because I was starting with nothing.
+ - I think it’s pretty obvious that women’s stories are not necessarily being told in Hollywood and women are not necessarily being put in the leadership positions they deserve in mainstream film.
+ - There’s probably no experience more alienating than fame, other than a terminal illness, where you actually find yourself in a situation that nobody around you can relate to.
+ - I had gone to the bookstore, and while I hadn’t bought any books on how to write a screenplay, I’d bought a couple of scripts so I could see how the formatting works. I just needed to know how a Hollywood screenplay looked on the page, which was something I was totally unfamiliar with.
+ - Ah, reality TV: where opportunists delight in exposing opportunism! It’s kind of like the indie music scene.
+ - This is for the writers. I want to thank all the writers. I especially want to thank my fellow nominees, because I worship you guys. I’m learning from you every day.
+ - It doesn’t matter if they’re in front of the camera or behind the camera. I know women who are producers who are surviving on nothing but juice and almonds.
+ - I’ve come to find more satisfaction and enjoyment in writing screenplays over the years because that’s what I do primarily now.
+ - I can’t write at night. For me, I’m programmed to believe that nighttime is for relaxation.
+ - I usually try not to think about actors while writing, because the odds of those stars aligning and you getting those specific people are so rare.
+ - Above the stage was a glass-floored second stage, which allowed customers to look up and watch another girl dancing overhead. This multidimensional display of poontang reminded me of the 3-D chessboard on Star Trek, which in turn reminded me that I was a huge nerd.
+ - Judy Blume excels at describing how it feels to be invisible. So how poetic is it that Blume herself is suddenly everywhere?
+ - I’ve been watching ‘American Idol’ since its debut season in 2002. Back then, America hadn’t yet evolved into a gladiatorial cybernation of bloggers, tweeters, and self-ordained voice coaches.
+ - The one thing I have found about Hollywood is it’s a town full of people who believe in themselves, often to a degree where they’re what you would call “delusional.”
+ - The public’s appetite for frothy, flippant blondes has waned, but Paris Hilton still fascinates me.
+ - These days, the Rolling Stones still have an edge, but that fangs-out ferocity has mellowed considerably.
+ - For me, stripping was an unusual kind of escape. I had nothing to escape but privilege, but I claimed asylum anyway. At twenty-four, it was my last chance to reject something and become nothing. I wanted to terrify myself. Mission accomplished.
+ - For me, I am a huge fan of Sofia Coppola and Lynn Shelton. I love Lena Dunham, like everybody else. I love Kathryn Bigelow.
+ - I don’t know why, but I’ve always been a sucker for roller coasters in movies.
+ - I write small and weird. Romcoms are not in my skill set.
+ - It’s possible that I’ve matured as a writer, and I hope I’ve matured emotionally, but I always find myself revisiting these adolescent scenes.
+ - People have always wanted to be recognized, and that’s human nature. But people used to want to be recognized for their accomplishments, and now they simply want to be visible.
+ - I don’t have a terrible singing voice, but I also wouldn’t call it ‘good.’ I can carry a tune.
+ - Even though I am in this weird position of being a semi-recognizable screenwriter, which isn’t that common, at the same time, I’m not an actress. I’m pretty isolated.
+ - People are more interested in being visible than they are in loving other people.
+ - Los Angeles is often described as the nadir of vapidity, a smog-choked space cradle.
+ - I really just love to open a blank document and spew, whereas with a screenplay I have to be more judicious.
+ - I am actually able to do other things. I’m not just this writer.
+ - I have a lot of screenwriter friends and many of them have had an experience where they aren’t even welcome on set during production.
+ - I want Maggie Gyllenhaal. I don’t know why. I don’t think she necessarily looks like me or acts like me, I just think she’s a cool actress and she could play me, so there you go.
+ - It’s actually much harder to develop a TV show than I had anticipated.
+ - Hollywood is a perpetual summerland, a temperate, godless yaw where the very word ‘season’ has been co-opted by television executives. There are few harbingers of winter here.
+ - The primary job for women in Hollywood is still super-attractive actress. That is the most high-profile women’s job in Hollywood.
+
+126 quotes

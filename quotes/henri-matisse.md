@@ -1,0 +1,163 @@
+ - There are always flowers for those who want to see them.
+ - Creativity takes courage. 
+ - An artist is an explorer.
+ - Creative people are curious, flexible, and independent with a tremendous spirit and a love of play.
+ - If I close my eyes, I see things better than with my eyes open.
+ - Creation begins with vision.
+ - Work cures everything.
+ - When you’re out of willpower you call on stubbornness, that’s the trick.
+ - The essential thing is to work in a state of mind that approaches prayer.
+ - Don’t wait for inspiration. It comes while one is working.
+ - Don’t try to be original. Be simple. Be good technically, and if there is something in you, it will come out.
+ - Much of the beauty that arises in art comes from the struggle an artist wages with his limited medium.
+ - What I dream of is an art of balance.
+ - Nothing can be accomplished without love.
+ - Precision is not reality.
+ - We ought to view ourselves with the same curiosity and openness with which we study a tree, the sky or a thought, because we too are linked to the entire universe.
+ - The artists must see all things as if he were seeing them for the first time. All his life he must see as he did when he was a child.
+ - The artist has to look at life as he did when he was a child. If he loses that faculty, he cannot express himself in an original, that is, a personal way.
+ - All that is not useful in a picture is detrimental. A work of art must be harmonious in its entirety; for superfluous details would, in the mind of the beholder, encroach upon the essential elements.
+ - Color was not given to us in order that we imitate Nature. It was given to us so that we can express our emotions.
+ - In love, the one who runs away is the winner.
+ - I’ve been forty years discovering that the queen of all colors is black.
+ - There’s nothing clinically wrong with me, only an emotional imbalance – I pass too quickly from the wildest enthusiasm to the blackest despair.
+ - Derive happiness in oneself from a good day’s work, from illuminating the fog that surrounds us.
+ - I wouldn’t mind turning into a vermilion goldfish.
+ - Drawing is of the spirit; color is of the senses.
+ - With color one obtains an energy that seems to stem from witchcraft.
+ - An artist must never be a prisoner. Prisoner? An artist should never be a prisoner of himself, prisoner of style, prisoner of reputation, prisoner of success, etc.
+ - You study, you learn, but you guard the original naivete. It has to be within you, as desire for drink is within the drunkard or love is within the lover.
+ - Fit the parts together, one into the other, and build your figure like a carpenter builds a house. Everything must be constructed, composed of parts that make a whole...
+ - Impressionism is the newspaper of the soul.
+ - Ever since there have been men, man has given himself over to too little joy. That alone, my brothers, is our original sin. I should believe only in a God who understood how to dance.
+ - I have always tried to hide my efforts and wished my works to have a light joyousness of springtime which never lets anyone suspect the labors it has cost me.
+ - You want to paint? First of all you must cut off your tongue because your decision takes away from you the right to express yourself with anything but your brush.
+ - All my efforts go into creating an art that can be understood by everyone.
+ - From the moment I held the box of colors in my hands, I knew this was my life. I threw myself into it like a beast that plunges towards the thing it loves.
+ - Above all, an artist must never be too easily satisfied with what he has done...
+ - The Barnes Foundation is the only sane place to see art in America.
+ - A certain blue enters your soul.
+ - What I dream of is an art of balance, of purity and serenity devoid of troubling or depressing subject matter – a soothing, calming influence on the mind, rather like a good armchair which provides relaxation from physical fatigue.
+ - When I paint green, it doesn’t mean grass; when I paint blue, it doesn’t mean sky.
+ - Truth and reality in art do not arise until you no longer understand what you are doing and are capable of but nevertheless sense a power that grows in proportion to your resistance.
+ - I dream of an art of balance, of quietness, something analogous to a good armchair.
+ - A certain blue enters your soul. A certain red has an effect on your blood-pressure.
+ - Color helps to express light, not the physical phenomenon, but the only light that really exists, that in the artist’s brain.
+ - I cannot copy nature in a servile way; I am forced to interpret nature and submit it to the spirit of the picture. From the relationship I have found in all the tones there must result a living harmony of colors, a harmony analogous to that of a musical composition.
+ - Hatred, rancor, and the spirit of vengeance are useless baggage to the artist. His road is difficult enough for him to cleanse his soul of everything which could make it more so.
+ - The effort to see things without distortion takes something like courage and this courage is essential to the artist, who has to look at everything as though he saw it for the first time.
+ - Whoever wishes to devote himself to painting should begin by cutting out his own tongue.
+ - Simple colours can affect the intimate feelings with all the more force because they are simple.
+ - Art should be something like a good armchair in which to rest from physical fatigue.
+ - Colours have their own distinctive beauty that you have to preserve, just as in music you try to preserve sounds. It is a question of organization, of finding the arrangement that will keep the beauty and freshness of the colour.
+ - Cezanne, you see, is a sort of God of painting.
+ - Drawing is like making an expressive gesture with the advantage of permanence.
+ - To draw is to make an idea precise. Drawing is the precision of thought.
+ - To look at something as though we had never seen it before requires great courage.
+ - The use of expressive colors is felt to be one of the basic elements of the modern mentality, an historical necessity, beyond choice.
+ - It is with color that you render light, though you must also feel this light, have it within yourself.
+ - I don’t paint things. I only paint the difference between things.
+ - Never ruin a good painting with the truth.
+ - My choice of colors does not rest on any scientific theory, it is based on observation, on feeling, on the experience of my sensibility.
+ - Color, even more than drawing, is a means of liberation.
+ - An artist must possess Nature. He must identify himself with her rhythm, by efforts that will prepare the mastery which will later enable him to express himself in his own language.
+ - Seek for the boldest color possible, content is irrelevant.
+ - I have to create an object which resembles the tree. The sign for a tree, and not the sign that other artists may have found for the tree.
+ - After a half-century of hard work and reflection the wall is still there.
+ - Hatred is a parasite that devours all. One doesn’t build upon hatred, but upon love.
+ - Exactitude is not truth.
+ - What’s so astonishing about not understanding? There are so many things in art, beginning with art itself, that one doesn’t understand. A painter doesn’t see everything that he has put in his painting.
+ - Would not it be best to leave room to mystery?
+ - You must forget all your theories, all your ideas before the subject. What part of these is really your own will be expressed in your expression of the emotion awakened in you by the subject.
+ - Do remember that one line does nothing; it is only in relation to another that it creates a volume.
+ - I would like to recapture that freshness of vision which is characteristic of extreme youth when all the world is new to it.
+ - Instinct must be thwarted just as one prunes the branches of a tree so that it will grow better.
+ - The importance of an artist is to be measured by the quantity of new signs which he has introduced to the language of art.
+ - One gets into a state of creativity by conscious work.
+ - A picture must possess a real power to generate light and for a long time now I’ve been conscious of expressing myself through light or rather in light.
+ - I am unable to make any distinction between the feeling I get from life and the way I translate that feeling into painting.
+ - To arrive is to be in prison.
+ - The model for me is a touchstone, it is a door which I must break open in order to reach the garden in which I am alone and feel good, even the model exists only for what use I can make of it.
+ - Perhaps I might be satisfied, momentarily, with a work finished at one sitting, but I would soon get bored looking at it; therefore, I prefer to continue working on it so that later I may recognize it as a work of my mind.
+ - I’m growing old, I delight in the past.
+ - For my part I have never avoided the influence of others. I would have considered it cowardice and a lack of sincerity toward myself.
+ - A young woman has young claws, well sharpened. If she has character, that is. And if she hasn’t so much the worse for you.
+ - When I eat a tomato I look at it the way anyone else would. But when I paint a tomato, then I see it differently.
+ - A young painter who cannot liberate himself from the influence of past generations is digging his own grave.
+ - It is not enough to place colors, however beautiful, one beside the other; colors must also react on one another. Otherwise, you have cacophony.
+ - Color exists in itself, possessing its own beauty.
+ - Jazz is rhythm and meaning.
+ - I was very embarrassed when my canvases began to fetch high prices. I saw myself condemned to a future of nothing but Masterpieces.
+ - I counted solely on the clarity of expression of my work to gain my ends.
+ - If my story were ever to be written truthfully from start to finish, it would amaze everyone.
+ - Beauty comes from the balance between two and three dimensions, between abstraction and representation – I seek the equilibrium behind changing appearances.
+ - An artist who wants to transpose a composition onto a larger canvas must conceive it over again in order to preserve its expression; he must alter its character and not just fill in the squares into which he has divided his canvas.
+ - A colourist makes his presence known even in a simple charcoal drawing.
+ - A rapid rendering of a landscape represents only one moment of its existence. I prefer, by insisting upon its essential character, to risk losing charm in order to gain greater stability.
+ - Cutting into color reminds me of the sculptor’s direct carving.
+ - The main function of color should be to serve expression.
+ - I never retouch a sketch: I take a canvas the same size, as I may change the composition somewhat. But I always strive to give the same feeling, while carrying it on further.
+ - A work should contain its total meaning within itself and should impress it on the spectator before he even knows the subject.
+ - The sign is determined at the moment I use it and for the object of which it must form a part. For this reason I cannot determine in advance signs which never change, and which would be like writing: that would paralyze the freedom of my invention.
+ - The sign for which I forge an image has no value if it doesn’t harmonize with other signs, which I must determine in the course of my invention and which are completely peculiar to it.
+ - The things that are acquired consciously permit us to express ourselves unconsciously with a certain richness.
+ - I do not literally paint that table, but the emotion it produces upon me.
+ - Truly, I’m not joking when I thank my lucky stars for the awful operation I had, since it has made me young again and philosophical which means that I don’t want to fritter away the new lease on life I’ve been given.
+ - The wall around the window does not create two worlds.
+ - The residuum of another’s expression can never be related to one’s own feeling.
+ - The truly original artist invents his own signs.
+ - The role of the artist, like that of the scholar, consists of seizing current truths often repeated to him, but which will take on new meaning for him and which he will make his own when he has grasped their deepest significance.
+ - Seeing is in itself a creative act which requires effort.
+ - Starting to paint, I felt gloriously free, quiet, and alone.
+ - There are wonderful things in Jazz, the improvisation, the liveliness, the being at one with the audience.
+ - What I am after, above all, is expression.
+ - Drawing is putting a line around an idea.
+ - Each work of art is a collection of signs invented during the picture’s execution to suit the needs of their position. Taken out of the composition for which they were created, these signs have no further use.
+ - A thimbleful of red is redder than a bucketful.
+ - Expression is not a matter of passion mirrored on the human face or revealed by a violent gesture. When I paint a picture, its every detail is expressive.
+ - With greater completeness and abstraction, I have attained a form filtered to its essentials.
+ - One must, of course, have one’s entire experience behind one and not have lost the freshness of instinct.
+ - When an artist or student draws a nude figure with painstaking care, the result is drawing, and not emotion.
+ - I want to reach that condensation of sensations that constitutes a picture.
+ - The whole arrangement of my picture is expressive. The place occupied by the figures or objects, the empty spaces around them, the proportions, everything plays a part.
+ - Did not the artists of the great age of Japanese art change names many times during their careers? I like that; they wanted to safeguard their freedom.
+ - The energy within you is stronger than ever for being held back, compressed, and said No to...
+ - I simply try to put down colors which render my sensation.
+ - It has always bothered me that I don’t paint like everyone else.
+ - In art, truth and reality begin when one no longer understands what one is doing or what one knows, and when there remains an energy that is all the stronger for being constrained, controlled and compressed.
+ - Creation is the artist’s true function; where there is no creation there is no art.
+ - All art worthy of the name is religious.
+ - What interests me most is neither still life nor landscape: it is the human figure.
+ - My models, my human figures, are never like extras in an interior. They are the main theme of my work. I depend absolutely on my model...
+ - Composition, the aim of which is expression, alters itself according to the surface to be covered. If I take a sheet of paper of given dimensions, I will jot down a drawing which will have a necessary relation to its format.
+ - What matters most to me? To work with my model until I have it enough in me to be able to improvise, to let my hand run free...
+ - A new painting is a unique event, a birth, which enriches the universe as it is grasped by the human mind, by bringing a new form into it.
+ - My curves are not crazy.
+ - A work of art must carry in itself its complete significance and impose it upon the beholder even before he can identify the subject-matter...
+ - There is no interruption between my older paintings and my cutouts. Just that with an increasing sense of the absolute, and more abstraction, I have achieved a form that is simplified to its essence.
+ - Modern art spreads joy around by its color, which calms us.
+ - I shan’t get free of my emotion by copying the tree faithfully, or by drawing its leaves one by one in the common language, but only after identifying myself with it.
+ - The essential thing is to spring forth, to express the bolt of lightning one senses upon contact with a thing. The function of the artist is not to translate an observation but to express the shock of the object on his nature; the shock, with the original reaction.
+ - In the beginning you must subject yourself to the influence of nature. You must be able to walk firmly on the ground before you start walking on a tightrope.
+ - I have been no more than a medium, as it were.
+ - The portrait is one of the most curious art forms. It demands special qualities in the artist, and an almost total kinship with the model.
+ - A certain color tones you up. It’s the concentration of timbres.
+ - An artist is an explorer. He has to begin by self-discovery and by observation of his own procedure. After that he must not feel under any constraint.
+ - I have simply wished to assert the reasoned and independent feeling of my own individuality within a total knowledge of tradition.
+ - He who loves, flies, runs, and rejoices; he is free and nothing holds him back.
+ - There is nothing more difficult for a truly creative painter than to paint a rose, because before he can do so he has first to forget all the roses that were ever painted.
+ - Time extracts various values from a painter’s work. When these values are exhausted the pictures are forgotten, and the more a picture has to give, the greater it is.
+ - From the first shock of the contemplation of a face depends the principal sensation which guides me throughout the entire execution of a portrait.
+ - When a painting is finished, it’s like a new born child, and the artist himself must have time for understanding. How then do you expect an amateur to understand that which the artist dos not yet comprehend.
+ - Art is an escape from reality.
+ - Put a colour upon a canvas – it not only colours with that colour the part of the canvas to which the colour has been applied, but it also colours the surrounding space with the complementary.
+ - It is only after years of preparation that the young artist should touch color – not color used descriptively, that is, but as a means of personal expression.
+ - An artist must not feel under any constraint.
+ - If drawing belongs to the world of spirit and color to that of the senses, you must draw first to cultivate the spirit.
+ - I am curious about color as one would be visiting a new country, because I have never concentrated so closely on color expression. Up to now I have waited at the gates of the temple.
+ - I don’t know whether I believe in God or not. I think, really, I’m some sort of Buddhist. But the essential thing is to put oneself in a frame of mind which is close to that of prayer.
+ - A distinction is made between artists who work directly from nature and those who work purely from imagination. Neither if these methods should be preferred to the exclusion of the other. Often both are used in turn by the same man...
+ - I do not repudiate any of my paintings but there isn’t one of them that I would not redo differently, if I had it to redo. My destination is always the same but I work out a different route to get there.
+ - It is through the human figure that I best succeed in expressing the nearly religious feeling that I have towards life.
+
+161 quotes

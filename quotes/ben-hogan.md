@@ -1,0 +1,49 @@
+ - The most important shot in golf is the next one.
+ - Every day you miss playing or practicing is one day longer it takes to be good.
+ - If you can’t outplay them, outwork them.
+ - Your name is the most important thing you own. Don’t ever do anything to disgrace or cheapen it.
+ - Every day that you don’t practice is one day longer before you achieve greatness.
+ - The greatest pleasure is obtained by improving.
+ - As you walk down the fairway of life you must smell the roses, for you only get to play one round.
+ - There are no shortcuts in the quest for perfection.
+ - Good golf begins with a good grip.
+ - The ultimate judge of your swing is the flight of the ball.
+ - There is no similarity between golf and putting; they are two different games, one played in the air, and the other on the ground.
+ - I always outworked everybody. Work never bothered me as it bothers some people.
+ - I dreamed one night that I had 17 holes-in-one and one two, and when I woke up I was so goddam mad.
+ - The only thing a golfer needs is more daylight.
+ - Golf was my life. I didn’t want to give it up. So I went to work!
+ - Golf is not a game of good shots. It’s a game of bad shots.
+ - Reverse every natural instinct and do the opposite of what you are inclined to do, and you will probably come very close to having a perfect golf swing.
+ - A shot that goes in the cup is pure luck, but a shot to within two feet of the flag is skill.
+ - I have found the game to be, in all factualness, a universal language wherever I traveled at home or abroad.
+ - May thy ball lie in green pastures, and not in still waters.
+ - I don’t like the glamour. I just like the game.
+ - I never played a round when I didn’t learn something new about the game.
+ - Golf is 20 percent talent and 80 percent management.
+ - I’m glad I brought this course, this monster, to its knees.
+ - I play golf with friends sometimes, but there are never friendly games.
+ - You only hit a straight ball by accident. The ball is going to move right or left every time you hit it, so you had better make it go one way or the other.
+ - I could not wait for the sun to come up the next morning so that I could get out on the course again.
+ - This is a game of misses. The guy who misses the best is going to win.
+ - If we could have just screwed another head on his shoulders, he would have been the greatest golfer who ever lived.
+ - I see no reason that a golf course cannot be played in 18 birdies. Just because no one has ever done that doesn’t mean it can’t be done.
+ - I hate a hook. It nauseates me. I could vomit when I see one. It’s like a rattlesnake in your pocket.
+ - Placing the ball in the right position for the next shot is eighty percent of winning golf.
+ - You never fight your eye when you look at a hole. If it looks one way, play it that way. Don’t make a big deal out of an easy shot.
+ - All other things being equal, greens break to the west.
+ - If a man can shoot 10 birdies, there’s no reason why he can’t shoot 18. Why can’t you birdie every hole on the course?
+ - People have always been telling me what I can’t do. I guess I have wanted to show them. That’s been one of my driving forces all my life.
+ - I don’t believe there is anything like a natural golf swing. A golf swing is an unnatural thing, and it has to be developed.
+ - Selecting a stroke is like selecting a wife. To each his own.
+ - You hear stories about me beating my brains out practising, but the truth is, I was enjoying myself. I couldn’t wait to get up in the morning, so I could hit balls. When I’m hitting the ball where I want, hard and crisply, it’s a joy that very few people experience.
+ - I have always felt and said that a man who can be a champion in one era could be a champion in any other era because he has what it takes to reach the top.
+ - If the Masters offered no money at all, I would be here trying just as hard.
+ - The average golfer’s problem is not so much the lack of ability as it is lack of knowledge about what he should be doing.
+ - Like most professional golfers, I have a tendency to remember my poor shots a shade more vividly than the good ones.
+ - When I practiced, I practiced to get it right.
+ - I liked to win, but more than anything, I loved to play the way I wanted to play.
+ - Relax? How can anybody relax and play golf? You have to grip the club, don’t you?
+ - Shoot a lower score than everybody else.
+
+47 quotes

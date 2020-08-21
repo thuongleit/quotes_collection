@@ -1,0 +1,22 @@
+ - Childhood is measured out by sounds and smells and sights, before the dark hour of reason grows.
+ - It’s strange that those we miss the most Are those we take for granted.
+ - History must not be written with bias, and both sides must be given, even if there is only one side.
+ - Hymn tunes are the nearest we’ve got to English folk music...
+ - Imprisoned in a cage of sound, even the trivial seems profound.
+ - Oh Wasn’t it naughty of Smudges? Oh, Mummy, I’m sick with disgust. She threww me in front of the judges, And my silly old collar-bone’s bust.
+ - And London shops on Christmas Eve Are strung with silver bells and flowers As hurrying clerks the City leave To pigeon-haunted classic towers, And marbled clouds go scudding by The many-steepled London sky.
+ - I am still reeling with delight at the soaring majesty of Norfolk.
+ - People’s backyards are much more interesting than their front gardens, and houses that back on to railways are public benefactors.
+ - And behind their frail partitions Business women lie and soak, Seeing through the draughty skylight Flying clouds and railway smoke. Rest you there, poor unbelov’d ones, Lap your loneliness in heat, All too soon the tiny breakfast, Trolley-bus and windy street!
+ - Gracious Lord, oh bomb the Germans. Spare their women for Thy Sake, And if that is not too easy, We will pardon Thy Mistake. But, gracious Lord, whate’er shall be, Don’t let anyone bomb me.
+ - I don’t think I am any good. If I thought I was any good, I wouldn’t be.
+ - Too many people in the modern world view poetry as a luxury, not a necessity like petrol. But to me it’s the oil of life.
+ - Hymns are the poetry of the people.
+ - And now, dear Lord, I cannot wait Because I have a luncheon date.
+ - I ought to warn you that my verse is of no interest to people who can think.
+ - And I think it was the outline of that church tower at Belaugh against the sky which gave me a passion for churches so that every church I’ve past since I’ve wanted to stop and look in.
+ - Lovers of Norfolk churches can never agree which is the best and I think one is either a Salle or a Cawston man.
+ - One mark of good verse is surprise.
+ - I have a Vision of the Future, chum. The workers flats in fields of soya beans tower up like silver pencils, score on score.
+
+20 quotes

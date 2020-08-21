@@ -1,0 +1,95 @@
+ - Hip-hop is a beautiful culture. It’s inspirational, because it’s a culture of survivors. You can create beauty out of nothingness.
+ - Focused. I’m a hustler. And my hustle is trying to figure out the best ways to do what I like without having to do much else.
+ - Don’t look down, it’s an impossible view; Fly like an eagle whatever you do.
+ - Fear not of men because men must die. Mind over matter and soul before flesh.
+ - If Islam’s sole interest is the welfare of mankind, then Islam is the strongest advocate of human rights anywhere on Earth.
+ - Man, I smashed her like an Idaho Potato.
+ - All the things that are worth doing, take time.
+ - That idea of peace and love toward humanity shouldn’t be nationalistic or denominational. It should be a chief concern for all mankind.
+ - My presence speaks volumes before I say a word.
+ - Make today’s solid ground out of yesterday’s quicksand.
+ - Young bloods can’t spell but they can rock you in Playstation.
+ - African art is functional, it serves a purpose. It’s not a dormant. It’s not a means to collect the largest cheering section. It should be healing, a source a joy. Spreading positive vibrations.
+ - My Umi said shine your light on the world, shine your light for the world to see.
+ - You have to experience life, make observations, and ask questions.
+ - You can positively affect and change a social circumstance with art, and it’s vital that a change happens now.
+ - At its heart, music is all higher mathematics.
+ - Live now for the promise of the Infinite.
+ - I don’t care about what brand you are, I’m concerned what type of man you are, what your principles and standards are.
+ - I ain’t no perfect man I’m tryna do the best that I can with what it is I have.
+ - I don’t hate nobody. I hate certain conditions that are inflicted upon the people – and they’re helpless with it.
+ - And remember don’t high post when you’re far from home, and high posting when you’re all alone.
+ - Speech is my hammer bang the world into shape now let it fall – HUNGH.
+ - They say that when a man faces his destiny, the destiny ends and he becomes the man that he really is.
+ - If it’s just fame for the sake of being famous, no one even cares about you – and you don’t even care about yourself because you’re like, “This is so ridiculous.”
+ - When people say, ‘I don’t see you enough,’ well just because you don’t see me don’t mean I don’t exist, or just ’cause you haven’t heard me don’t mean I haven’t been making noise. But if I keep making noise, you’ll pick up.
+ - Everything’s got space between it, the planets, trees, your eyes. Your eyes get too close together, it’s a whole different world. You can lose perspective.
+ - I’m an independent thinker. And I’m not the poster child for any movement. I’m trying to support whatever’s right no matter where it is.
+ - We blasted holes in the night until she bled sunshine.
+ - I’m doing exactly what I was supposed to do. Yeah. I didn’t exactly choose this. My own life, if it were up to me, would be very, very quiet. I’d be like a shopkeeper, a book collector, or something like that. I’m not like this. Myself as a performer and an artist is totally different from who I am.
+ - Good art provides people with a vocabulary about things they can’t articulate.
+ - You’re not gonna get through life without being worshipful or devoted to something. You’re either devoted to your job, or to your desires. So the best way to spend your life is to try to be devoted to prayer, to Allah.
+ - Bob Marley performed the ‘One Love Peace’ concert in Jamaica with the two different warring political sides. There’s always been that in black music and culture in general. It’s no surprise because black music is such a reflection of what’s going on in black life. It’s not unusual for hip-hop.
+ - I don’t want to waste anyone’s time or money. I want to give people some truth and positive heart lift.
+ - I’m not shy about heated debate or passionate discourse, but when people get crazy or rude, that’s a buzz kill. There’s got to be a better code of conduct, some basic etiquette.
+ - I like to read the ‘Financial Times’ when I’m traveling. ‘Economist.’ ‘Ad Busters.’
+ - The test in life nowadays is just trying to keep yourself charged up with enough good feeling. It’s like, “OK what am I going to do to feel really good today?” Not like, some chick or a drink...
+ - I can’t control what people think. I’m not trying to manipulate people’s thoughts or sentiments. I write all the time. You have to experience life, make observations, and ask questions. It’s machine-like how things are run now in hip-hop, and my ambitions are different.
+ - Hip-Hop went from selling crack to smoking it.
+ - You want to know how to rhyme, then learn how to add. It’s mathematics.
+ - I guess something that you love to do, you gotta ease up off it and give it a little space, come back and be fresh to it.
+ - It wouldn’t be fair to cast aspersions on an entire cultural movement based on the actions of a few. To quote my grandfather, ‘One bad apple don’t spoil the whole bunch.’
+ - I give a damn if any fan recalls my legacy, I’m trying to live life in the sight of GOD’s memory.
+ - I have no confidence issues with the impact or the quality of the music. No one in hip-hop, before this point and to this point, with all due respect, has done this.
+ - There are a lot of people who call themselves teachers or leaders, but they’re really just propagandists.
+ - I believe the projects were a social experiment; we were laboratory rats stacked on top of each other, and people just knew, inherently, that there was something wrong. There’s not a lot of regard for the property by the residents.
+ - I just don’t think it’s very dignified to ask people to like you. You can just wind up being somebody’s ottoman.
+ - There’s just some dysfunctionalism with artists.
+ - I don’t have advice for people on how to dress. People should dress based on what they find beautiful. My best advice: Keep your clothes clean.
+ - Hip-hop is the last true folk art.
+ - I don’t wanna get into that space where a lot of guys now, their solo album is like eight or 10 songs with other people, you don’t get an idea of who this guy is. I just wasn’t interested in that.
+ - We can be beautiful and feel beautiful about who we are everyday.
+ - I don’t mind being black. I’m black out loud. It’s more than the people that they are, it’s the condition that they represent.
+ - Mos Def is a name that I built and cultivated over the years it’s a name that the streets taught me a figure of speech that was given to me by the culture and by my environment and I feel I’ve done quite a bit with that name and it’s time to expand and move on.
+ - I thought everybody got into rock ‘n’ roll because they didn’t want to follow instructions.
+ - I want to be necessary and do good works. I ain’t here to waste nobody’s time, because I don’t want you to waste mine.
+ - I know what it feels like to have the door slammed firmly in my face, so I’m cool with that.
+ - I’m blacked than midnight on Broadway and Myrtle.
+ - I don’t rap like nobody, I don’t try to sound like nobody.
+ - I began to fear that Mos Def was being treated as a product, not a person, so I’ve been going by Yasiin since ’99. At first it was just for friends and family, but now I’m declaring it openly.
+ - That’s what I’ve been trying to strive for – to draw a clear picture, to open up a new dimension.
+ - With guys I revere, like Marcus Garvey or Malcolm X, their look is less about style than purpose and the expression of beauty. It wasn’t just about being noticed, you know?
+ - I’m growing as an individual, but your always growing. All of my albums are snapshots of where I am artistically.
+ - I’m trying to get low. People’s personalities can get in the way of their own work.
+ - To me, it’s like happiness is about happiness, but happiness is a fight.
+ - History has proven that it’s impossible to crush the artist. There’s always gonna be a need for somebody to write a poem or sing a song about something, about life – that makes it real. There’s the word that goes beyond the word.
+ - Every time you ask yourself where hip-hop’s going, ask yourself where you’re going; how are you doing?
+ - If you’re going to do Chuck Berry, you got to, you know, go all out, and the duck walk is just kind of you know, cursory. That’s like standing.
+ - I tell people all the time, I’ve always loved music and I love the language, which is a huge reason why I’m part of theater. But, I didn’t wanna do all of this. I would’ve been satisfied to do it, like, on the weekends among friends, and to have a regular job.
+ - To me, playing an instrument and singing, all of these different things are just as natural to me as rhyming.
+ - It’s possible and available to any artist to be himself or herself on their own terms, to be accepted and embraced by black people. You don’t have to be a thug to get love from black people.
+ - I’ve always loved rhyming. I love language.
+ - It’s one thing to be the greatest; it’s another thing to be necessary. The best are the most necessary: those who take less than they give and love more than they hate.
+ - In the early ’90s, when I really started to find my voice, I was reading a lot of books, and I was moved by the writers, like Chinua Achebe, and I wanted to be able to write rhymes that were as potent as what I was reading.
+ - Record companies are not necessarily interested in you realizing your artistic dream. The bottom line is that they got to sell records.
+ - I think hip-hop is actually one of the most challenging things that’s happened in music in a long time. The people who are in charge of what people see or hear are afraid. What you hear on top 40 or what you see on BET or MTV is not a fair representation of what is really going on.
+ - I’ve been fortunate with my acting career. A lot of scripts come to me. I don’t mind auditioning if something that requires that, but I haven’t had to in awhile, which is a nice place to be ’cause I’ve been on quite a lot of auditions in my life.
+ - I’m retiring the Mos Def name after 2011. I’m actually doing it.
+ - Reckless capitalism kills black people.
+ - I never had any ambitions of being a movie star or anything like that, but you know, this is nice.
+ - I got my first exposure to Islam when I was 13.
+ - I’ve always loved music and I love the language, which is a huge reason why I’m part of theater.
+ - Twitter freaks me out. You have followers? It feels so obsessive and proprietary.
+ - You’ve got to validate every day. There are those who just put a stamp on it and say, “This is gonna be a good day and I’m not gonna let anything else make it a bad day.”
+ - What I take from writers I like is their economy – the ability to use language to very effective ends. The ability to have somebody read something and see it, or for somebody to paint an entire landscape of visual imagery with just sheets of words – that’s magical.
+ - I feel like being into the beat of your own drum has become too prominent in the culture.
+ - To me, the job of the artist is to provide a useful and intelligent vocabulary for the world to be able to articulate feelings they experience everyday, and otherwise wouldn’t have the means to express in a meaningful and useful way.
+ - Fame is like getting across the street. It’s like, if there’s nothing to be across the street for, it’s a pointless destination.
+ - What I take from writers I like is their economy – the ability to use language to very effective ends.
+ - I get reminded a lot of the time that my life is a little bit different, but I’m just trying to keep it as regular as possible because I like it that way.
+ - But even creeps deserve to live someplace halfway decent.
+ - If ‘Life in Marvelous Times’ can’t get on the radio, then I don’t need to be on the radio.
+ - I’m inspired by playwrights, novelists, poets: The value of language has been a lifelong passion of mine. I enjoy it. I’m good at it.
+ - I’m a passionate person. I’m a lot of things, like most people are. Most people are dynamic. The focus is not on me though, I’m a screen. The aim is to always keep myself in the position where the screen is clear.
+
+93 quotes

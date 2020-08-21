@@ -1,0 +1,45 @@
+ - The brighter you are, the more you have to learn.
+ - Don’t ever slam a door, you might want to go back.
+ - Unhappiness is not knowing what we want and killing ourselves to get it.
+ - Work is the greatest thing in the world, so we should always save some of it for tomorrow.
+ - Be kind to dumb people.
+ - The beggar is the only person in the universe not obliged to study appearance.
+ - Intellectuals should never marry; they won’t enjoy it; and besides, they should not reproduce themselves.
+ - Interruptions are the spice of life.
+ - If I had my life to live over, I’d pick more daisies.
+ - Women give us solace, but if it were not for women we would never need solace.
+ - I wish I could stand on a busy corner, hat in hand and beg people to throw me all their wasted hours. If all you can see is your shadow, you’re blocking your own light. If I had my life to live over, I would perhaps have more actual troubles but I’d have fewer imaginary ones.
+ - I wish I were either rich enough or poor enough to do a lot of things that are impossible in my present comfortable circumstances.
+ - Babies are such a nice way to start people.
+ - If I had my life to live over, I would perhaps have more actual troubles but I’d have fewer imaginary ones.
+ - The mind of man has no defense To equal plain, old common sense. This homely virtue don’t despise, If you would be happy as well as wise.
+ - This is the greatest paradox: the emotions cannot be trusted; yet it is the emotions that tell us the greatest truths.
+ - It is a good thing that life is not as serious as it seems to a waiter.
+ - Moralizing and morals are two entirely different things and are always found in entirely different people.
+ - A woman’s hair net tangled in a man’s spectacles on top of the bedroom dresser.
+ - Gentlemen prefer blondes, but take what they can get.
+ - Conversation: The slowest form of human communication.
+ - There’s one thing about baldness, it’s neat.
+ - Nobody ever looked up and saw a good shot.
+ - Why resist temptation? There will always be more.
+ - A humorist is a person who feels bad, but who feels good about it.
+ - Comic-strip artists do not make good husbands, and God knows they do not make good comic strips.
+ - Golf may be a hussy, but I love her.
+ - Be kind and considerate to others, depending somewhat upon who they are.
+ - Golf is not sacred, and there is no use getting so gosh-darned solemn about it.
+ - About the time we get old enough to be as wicked as we want to be, we don’t want to be so very wicked after all.
+ - Poverty must have many satisfactions, else there would not be so many poor people.
+ - It takes a lot of things to prove you are smart, but only one thing to prove you are ignorant.
+ - An honourable agreement among men as to their conduct toward women, and it was devised by women.
+ - There is something distinctive about living in New York; over eight million other people are doing it.
+ - Very few people look the part and are it too.
+ - Some people have nothing but experience.
+ - A lot of men think that if they smile for a second, somebody will take advantage of them, and they are right.
+ - The chief trouble with jazz is that there is not enough of it; some of it we have to listen to twice.
+ - I had, out of my sixty teachers, a scant half dozen who couldn’t have been supplanted by phonographs.
+ - I do not believe in doing for pleasure things I do not like to do.
+ - Methods of locomotion have improved greatly in recent years, but places to go remain about the same.
+ - There is more sophistication and less sense in New York than anywhere else on the globe.
+ - In all systems of theology, the devil figures as a male person.
+
+43 quotes

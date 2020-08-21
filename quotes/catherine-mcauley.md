@@ -1,0 +1,25 @@
+ - We must strive to do ordinary things extraordinarily well.
+ - We should be shining lamps, giving light to all around us.
+ - A good beginning is of great importance.
+ - Let us take one day only in hands at a time. Resolve to do good today and better tomorrow.
+ - The simplest and most practical lesson I know is to resolve to be good today, but better tomorrow.
+ - The poor need help today, not next week.
+ - The tender Mercy of God has given us one another.
+ - I have great confidence in you to do what you think best. State your opinion and always act with courage.
+ - If the love of God really reigns in your heart, it will show itself in the exterior.
+ - No work of charity can be more productive of good to society than the careful instruction of women.
+ - We belong to God. All in us is His.
+ - Our Vocation is full of joy and peace in the Holy Spirit.
+ - No matter how small the gift, God gives the increase.
+ - Teach me to do your will, for you are my God.
+ - Show your instructions in actions as much as you can.
+ - Compassion should be our animating principle when undertaking instruction with children and adults, since they are made in God’s image.
+ - Oh may He look on us with love and pity and then we shall be able to do anything He wishes us to do, no matter how difficult to accomplish or painful to our feeling.
+ - We have one solid comfort amidst this little tripping about, our hearts can always be in the same place, centered in God, for whom alone we go forward or stay back.
+ - Our hearts can always be in the same place, centered on God.
+ - Each day is a step we make towards eternity and we shall continue thus to step from day to day until we take the last step, which will bring us into the presence of God.
+ - There has been a most Providential Guidance which the want of prudence, vigilance, or judgement has not impeded, and it is here that we can most clearly see the designs of God.
+ - We have now gone beyond 100 in number, and the desire to join seems rather to increase, though it was thought the foundations would retard it, it seems quite otherwise.
+ - A community in which this universal charity reigns, is capable of surmounting all difficulties.
+
+23 quotes

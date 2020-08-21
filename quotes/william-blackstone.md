@@ -1,0 +1,27 @@
+ - Man must necessarily be subject to the laws of his Creator. This will of his Maker is called the Law of Nature. This Law of Nature is superior to any other. No human laws are of any validity if contrary to this.
+ - Men was formed for society, and is neither capable of living alone, nor has the courage to do it.
+ - Upon these two foundations, the law of nature and the law of revelation, depend all human laws.
+ - The royal navy of England hath ever been its greatest defence and ornament; it is its ancient and natural strength, – the floating bulwark of our island.
+ - Gaming is a kind of tacit confession that the company engaged therein do in general exceed the bounds of their respective fortunes, and therefore they cast lots to determine upon whom the ruin shall at present fall, that the rest may be saved a little longer.
+ - The law rarely hesitates in declaring its own meaning; but the Judges are frequently puzzled to find out the meaning of others.
+ - The most universal and effectual way of discovering the true meaning of law, when the words are dubious, is by considering the reason and spirit of it; or the cause which moved the legislator to enact it. for when this reason ceased, the law itself ought likewise to cease with it.
+ - No outward doors of a man’s house can in general be broken open to execute any civil process; though in criminal cases the public safety supersedes the private.
+ - Punishments of unreasonable severity, especially where indiscriminately afflicted, have less effect in preventing crimes, and amending the manners of a people, than such as are more merciful in general, yet properly intermixed with due distinctions of severity.
+ - Law is the embodiment of the moral sentiment of the people.
+ - By marriage the husband and wife are one person in law, that is, the very being or legal existence of the woman is suspended during marriage.
+ - No enactment of man can be considered law unless it conforms to the law of God.
+ - The Bible has always been regarded as part of the Common Law of England.
+ - That the king can do no wrong is a necessary and fundamental principle of the English constitution.
+ - Free men have arms; slaves do not.
+ - The husband and wife are one, and that one is the husband.
+ - Every wanton and causeless restraint of the will of the subject, whether practiced by a monarch, a nobility, or a popular assembly, is a degree of tyranny.
+ - Time whereof the memory of man runneth not to the contrary.
+ - There is nothing which so generally strikes the imagination and engages the affections of mankind, as the right of property.
+ - In all tyrannical governments the supreme magistracy, or the right both of making and of enforcing the laws, is vested in one and the same man, or one and the same body of men; and wherever these two powers are united together, there can be no public liberty.
+ - Mankind will not be reasoned out of the feelings of humanity.
+ - The law, which restrains a man from doing mischief to his fellow citizens, though it diminishes the natural, increases the civil liberty of mankind.
+ - Herein indeed consists the excellence of the English government, that all parts of it form a mutual check upon each other.
+ - So great moreover is the regard of the law for private property, that it will not authorize the least violation of it; no, not even for the general good of the whole community.
+ - The sciences are of a sociable disposition, and flourish best in the neighborhood of each other; nor is there any branch of learning but may be helped and improved by assistance drawn from other arts.
+
+25 quotes

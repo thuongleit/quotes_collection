@@ -1,0 +1,29 @@
+ - I know not how to abstain from reading.
+ - Thanks be to God, since my leaving drinking of wine, I do find myself much better, and do mind my business better, and do spend less money, and less time lost in idle company.
+ - My wife, who, poor wretch, is troubled with her lonely life.
+ - Fight the good fight; and always call to mind that it is not you who are mortal, but this body of ours. For your true being is not discerned by perceiving your physical appearance. But ‘what a man’s mind is, that is what he is’ not that individual human shape that we identify through our senses.
+ - Strange to see how a good dinner and feasting reconciles everybody.
+ - It having been a very cold night last night I had got some cold, and so in pain by wind, and a sure precursor of pain is sudden letting off farts, and when that stops, then my passages stop and my pain begins.
+ - And it is a wonder what will be the fashion after the plagueisdoneastoperiwigs, fornobody will daretobuy any haire for fear of the infectionthat it had been cut off the heads of people dead of the plague.
+ - He that will not stoop for a pin will never be worth a pound.
+ - I find my wife hath something in her gizzard, that only waits an opportunity of being provoked to bring up; but I will not, for my content-sake, give it.
+ - Unlike God the artist does not start with nothing and make something of it. He starts with himself as nothing and makes something of the nothing with the things at hand.
+ - Strange to say what delight we married people have to see these poor fools decoyed into our condition.
+ - Mighty proud I am that I am able to have a spare bed for my friends.
+ - Before I went to bed, I sat up till 2 a-clock in my chamber, reading of Mr. Hooke’s Microscopical Observations, the most ingenious book that I ever read in my life.
+ - The best of a bad bargain.
+ - I did this night promise my wife never to go to bed without calling upon God, upon my knees, in prayer.
+ - At the Royall Oake Taverne, I drank a sort of French wine called Ho Bryan, that hath a good and most particular taste that I never met with.
+ - I went out to Charing Cross to see Major General Harrison hanged, drawn, and quartered; which was done there, he looking as cheerful as any man could in that condition.
+ - Music and woman I cannot but give way to, whatever my business is.
+ - Did satisfy myself mighty fair in the truth of the saying that the world do not grow old at all, but is in as good condition in all respects as ever it was.
+ - I do still see that my nature is not to be quite conquered, but will esteem pleasure above all things, though yet in the middle of it, it has reluctances after my business, which is neglected by my following my pleasure. However musique and women I cannot but give way to, whatever my business is.
+ - But it is pretty to see what money will do.
+ - I see it is impossible for the King to have things done as cheap as other men.
+ - As happy a man as any in the world, for the whole world seems to smile upon me!
+ - I went home and took my wife and went to my Cosen Tho. Pepys’s and found them just sat down to dinner, which was very good; only the venison pasty was palpable beef, which was not handsome.
+ - But Lord! To see the absurd nature of Englishmen that cannot forbear laughing and jeering at everything that looks strange.
+ - Now public business takes up so much of my time that I must get time a Sundays or a nights to look after my own matters.
+ - But me thought it lessened my esteem of a king, that he should not be able to command the rain.
+
+27 quotes

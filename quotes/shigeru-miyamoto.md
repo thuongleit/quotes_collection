@@ -1,0 +1,80 @@
+ - A delayed game is eventually good, but a rushed game is forever bad.
+ - A good idea is something that does not solve just one single problem, but rather can solve multiple problems at once.
+ - Video games are bad for you? That’s what they said about rock-n-roll.
+ - I think that inside every adult is the heart of a child. We just gradually convince ourselves that we have to act more like adults.
+ - Nintendo’s philosophy is never to go the easy path; it’s always to challenge ourselves and try to do something new.
+ - The obvious objective of video games is to entertain people by surprising them with new experiences.
+ - Players are artists who create their own reality within the game.
+ - A late game is only late until it ships. A bad game is bad until the end of time.
+ - Fortunately, because of the spread of smart devices, people take games for granted now. It’s a good thing for us, because we do not have to worry about making games something that are relevant to general people’s daily lives.
+ - Donkey Kong Country proves that players will put up with mediocre gameplay as long as the art is good.
+ - Throughout the Zelda series I’ve always tried to make players feel like they are in a kind of miniature garden. So, this time also, my challenge was how to make people feel comfortable and sometimes very scared at the same time. That is the big challenge.
+ - An adult is a child who has more ethics and morals.
+ - So you know cats are interesting. They are kind of like girls. If they come and talk to you it’s great. But if you try to talk to them it doesn’t always go so well.
+ - I always try and come up with a clear theme when I’m making a videogame.
+ - A great idea solves multiple problems at the same time.
+ - There are some ghost stories in Japan where – when you are sitting in the bathroom in the traditional style of the Japanese toilet – a hand is actually starting to grab you from beneath. It’s a very scary story.
+ - When I’m making video games today, I want people to be entertained. I am always thinking, How are people going to enjoy playing the games we are making today? And as long as I can enjoy something other people can enjoy it, too.
+ - Necessity is the mother of invention. I love solving things like that. Because there wasn’t enough memory, thinking of an economical way to make the movements look right was like solving a puzzle, and I had a lot of fun.
+ - Japan actually is an aging population, and so as the population has aged, they have had a lot more problems with health.
+ - This is the entertainment industry, so game designers have to have a creative mind and also have to be able to stand up against the marketing people at their company – otherwise they cannot be creative. There are not that many people who fit that description.
+ - Our job as the game creators or developers – the programmers, artists, and whatnot – is that we have to kind of put ourselves in the user’s shoes. We try to see what they’re seeing, and then make it, and support what we think they might think.
+ - The PSP will not be able to display anything that you cannot do on a current system.
+ - I don’t like all the attention. I think it’s better to let my work do the talking.
+ - Who knows how Mario will look in the future. Maybe he’ll wear metallic clothes!
+ - What comes next? Super Mario 128? Actually, that’s what I want to do.
+ - Anything that is impractical can be play. It’s doing something other than what is necessary to continue living as an animal.
+ - Game music has a purpose and it does incorporate sound effects.
+ - Controller is so intuitive, even your mum can play.
+ - Most people think video games are all about a child staring at a TV with a joystick in his hands. I don’t. They should belong to the entire family. I want families to play video games together.
+ - Of course, when it comes to Japanese role-playing games, in any role-playing game in Japan you’re supposed to collect a huge number of items, and magic, and you’ve got to actually combine different items together to make something really different.
+ - I don’t want to criticize any other designers, but I have to say that many of the people involved in this industry – directors and producers – are trying to make their games more like movies. They are longing to make movies rather than making videogames.
+ - When I’m working on games I don’t think necessarily about what the end benefit of the game is going to be. Typically I’m trying to think of: “What can I do that is going to find new ways to entertain and surprise people.”
+ - Actually, 3D is really the most normal thing because it’s how those of us with two eyes usually see the world. TVs are the unusual things in 2D!
+ - Of course, I have my own limits as to how much game software I can take care of at any one time.
+ - Japanese people have a funny habit of abbreviating names.
+ - There are big lines between those who play video games and those who do not. For those who don’t, video games are irrelevant. They think all video games must be too difficult.
+ - I could make Halo. It’s not that I couldn’t design that game. It’s just that I choose not to. One thing about my game design is that I never try to look for what people want and then try to make that game design. I always try to create new experiences that are fun to play.
+ - I know as a child, I was really interested in becoming a manga artist, to create my own stories and illustrate them and present something that people would be interested in reading and looking at as well.
+ - I think what’s really the most ideal thing is for the player themselves, within their own imagination, to carve out what they view as being the essence of the character.
+ - As a kid, I was a big comic fan and I liked foreign comics as well.
+ - I don’t think as a creator that I could create an experience that truly feels interactive if you don’t have something to hold in your hand, if you don’t have something like force feedback that you can feel from the controller.
+ - I used to draw cartoons. I’d just show them to some of my friends, expecting that they were going to appreciate them, that they were going to enjoy reading them.
+ - Well, for over a year now at my desk, a prototype program of Luigi and Mario has been running on my monitor. We’ve been thinking about the game, and it may be something that could work on a completely new game system.
+ - It isn’t about games, for me, personally, and it never really was. It was about creating something- anything- far bigger than yourself.
+ - Providing new means of entertainment is the important thing.
+ - Angry Birds is a very simple idea but its one of those games that I immediately appreciated when I first started playing, before wishing that I had been the one to come up with the idea first.
+ - To create a new standard, you have to be up for that challenge and really enjoy it.
+ - I think that the entertainment industry itself has a history of chasing success. Any time a hit product comes out, all the other companies start chasing after that success and trying to recreate it by putting out similar products.
+ - I think everyone can enjoy games.
+ - If it turns out that Mario doesn’t really fit into the type of game I want, I wouldn’t mind using Zelda as the basis of the new game.
+ - What I’m really excited about is that continued challenge to create things that gamers of all experiences can play.
+ - So, it’s important for us to acknowledge that we’re prone to be conservative, and in turn surround ourselves with individuals who will help break down our conservatism.
+ - I don’t really think of things in terms of legacy or where I stand in the history of Nintendo or anything like that.
+ - What I really want to do is be in the forefront of game development once again myself.
+ - My days all follow much the same pattern. They are structured and typical.
+ - I never really participated in specific sports or anything, but once I hit 40, I started to get a little bit more active and began swimming more.
+ - When I look back I can tell that after I started having a family, I certainly wanted to make games that could be played with all the family members.
+ - All the time, players are forced to do their utmost. If they are challenged to the limit, is it really fun for them?
+ - I made some games, but I’m pretending like I didn’t because they all turned out weird.
+ - I try not so much to create new characters and worlds but to create new game-play experiences.
+ - I think I can make an entirely new game experience, and if I can’t do it, some other game designer will.
+ - I believe that any sort of changes to interface that allows people to get into games and enjoy games is a great trend.
+ - Up until now, the biggest question in society about video games has been what to do about violent games. But it’s almost like society in general considers video games to be something of a nuisance, that they want to toss into the garbage can.
+ - What I found is that just in the lifestyle today, people have fewer and fewer opportunities to get exercise.
+ - Games have grown and developed from this limited in-the-box experience to something that’s everywhere now. Interactive content is all around us, networked, ready. This is something I’ve been hoping for throughout my career.
+ - I’m very impressed that there are so many fans – not just in Japan, but here in America – that are fond of the work that I’ve done. I’m actually kind of embarrassed by it all.
+ - I feel more reassured with physical media. Entertainment is something that will not just become digital.
+ - When we’re doing an action game, we make the second level first. We begin making level 1 once everything else is completed.
+ - I think when you talk about competing against others, the problem is that you refer to something that’s been done already and try to beat it.
+ - As long as I can enjoy something, other people can enjoy it, too.
+ - Nowadays I think it’s really important that designers are really unique and individual.
+ - You can use a lot of different technologies to create something that doesn’t really have a lot of value.
+ - I’d like to be known as the person who saw things from a different point of view to others.
+ - As I am ageing, naturally, how I want my videogames to be played must be changing.
+ - When I create a game, I try to focus more on the emotions that the player experiences during the game play.
+ - It would be a joy for me if someone who was working with me became a big success.
+ - I always try to create a new experiences that are fun to play.
+ - Originally, I wanted a machine that would cost $100. My idea was to spend nothing on the console technology so all the money could be spent on improving the interface and software. If we hadn’t used NAND flash memory and other pricey parts, we might have succeeded.
+
+78 quotes

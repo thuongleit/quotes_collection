@@ -1,0 +1,49 @@
+ - I want to inspire, and be inspired.
+ - Confidence is essential, but ego is not.
+ - You freeze with the number of opportunities given to you and just decide to do nothing at all.
+ - The importance of rehearsal is maybe you want to talk about how the scene’s going to be designed, how it’s going to be staged, all of those things. It’s all about preparation, and deciding what mutually you don’t want to do, rather than necessarily what you do.
+ - You’re in the lap of the gods. If people go, they go, and if they don’t.
+ - Now Im back home, living in London, running my theater. I just want to enjoy all that.
+ - Politicizing of kids starts with pregnancy, of course. You shouldn’t be drinking wine. You can’t be smoking, either. The poor woman is poked and prodded and touched and obsessed over.
+ - This is the first time in 10 years I don’t know what I’m doing next, and I’m rather enjoying it. Soon I’ll be climbing the walls no doubt, but right now, it’s not clear, I’m just enjoying the freedom.
+ - Truly great actors carry their characters in silence with them. They communicate without words the relationships that predate the movie.
+ - Thank God I don’t live in Los Angeles. I think if you’re there the whole time it just gets out of proportion and you lose touch completely with reality.
+ - Every Bond is different and every generation needs a different Bond and it’s been able to move with the times.
+ - Directing Skyfall was one of the best experiences of my professional life, but I have theatre and other commitments, including productions of Charlie And The Chocolate Factory and King Lear, that need my complete focus over the next year and beyond.
+ - I still can’t quite believe it. Although there was something about the fact that it was a first-time writer, a first-time producer, and a first-time director all at the same time.
+ - The characters are trapped within the lifestyle. It’s about what goes on before the movie starts.
+ - When I drive through a field, I want to see green grass sometimes, and I don’t want to see black and white.
+ - I’ve directed bits of action and so I know that it’s long and it’s very detailed. Editing action is a good deal more exciting than shooting action. Shooting action is very, very meticulous, it’s increments, tiny little pieces.
+ - The moment you have kids, you are prey to judgment, but you also become a judge. You find yourself going, “Can you believe what she did with such-and-such?” at school.
+ - You think about taking audiences on a journey.
+ - The joy of a road movie is its very simple narrative nature, which is that you know you’re going to go through different places and you’re going to meet new people. At the same time, you have to not make it feel too obvious and too crudely episodic.
+ - It took me a long time to film the plastic bag, and then I had to get the cut of the scene right. But if you find it as beautiful as the character does, then suddenly it becomes a different movie, and so did he as a character.
+ - I think movies are a director’s medium in the end. Theater is the actor’s medium. Theater is fast, and enjoyable, and truly rewarding. I believe in great live performance.
+ - You just never know when movies are going to take off or not. The lucky thing about this was that it didn’t cost a lot of money, and therefore there wasn’t loads of pressure on me.
+ - Listen, you make a big movie, you’re going into the Coliseum, and people are going to give you the thumbs up or the thumbs down. And that’s part of the game. It’s part of the fun as well.
+ - I think with Blair Witch and The Sixth Sense, people are much more open to something that is different.
+ - I deliberately, in a way, went for something that was a huge challenge and was a big period film. I was excited about the canvas on which I could tell the story as much as the story itself.
+ - All I know is that I operate by going out to each of them and trying to learn the territory in which they operate. My language to each of them has to suit their brain.
+ - You’ve got to work. You’ve got to want an audience to sit forward in their chairs sometimes, rather than sit back and be bombarded with images.
+ - The perceived wisdom is that people do not go in large numbers to black-and-white movies anymore – which is a great shame, but I’d love to make a black-and-white movie one day.
+ - I feel like the American years were my apprenticeship for doing a Bond movie.
+ - I’ve made movies that cost less than one car chase.
+ - Shooting action is very, very meticulous, it’s increments, tiny little pieces.
+ - As a first-time director in America, I feel I’ve been very fortunate.
+ - I suppose once in a while, a filmmaker makes a movie that’s more than just a sum of its parts, more than good acting or good filmmaking. It’s something else that has nothing to do with what you’ve done. This is in 1999, made by people in 1999 for people in 1999 about people in 1999.
+ - You’ve got to believe as a filmmaker that if a movie’s good enough, it’s going to survive; and if it’s not, well, it won’t.
+ - There’s one thing better than having a great actor, and that’s having a great actor who’s never done this kind of role before and is hungry to do it. They’re testing themselves every day. They want to get out of their trailer and get to work.
+ - I don’t think of it as a competition – which might surprise you, given the way movies are reported constantly.
+ - For me, certain shots or scenes are keys in the movie.
+ - I want to try and work in different genres with different types of actors, on small movies and big movies.
+ - Actors get pigeonholed very quickly, particularly movie actors. In the theater, one is more used to casting people against type and trusting that their talent and skill will get them through.
+ - If you lived through the shooting of Jaws, you can live through anything.
+ - I’ve made movies that cost less than one car chase. But that’s part of the pleasure of doing it, pushing yourself in new directions.
+ - One movie is only one movie. I want to have a lifetime of making films.
+ - Learn to say, “I don’t know the answer.” It could be the beginning of a very good day’s rehearsal.
+ - The movies that influenced me were movies that told their stories through pictures more than words.
+ - I don’t think good and evil are polarized.
+ - If you’re doing a classic play, where if you do a Chekhov, you do the words as written. You can’t do that with a novel; you have to do your version of the words as written.
+ - I like throwing snowballs at small children.
+
+47 quotes

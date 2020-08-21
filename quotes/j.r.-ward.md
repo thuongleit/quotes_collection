@@ -1,0 +1,190 @@
+ - I love you. You are my heart beating outside of my chest.
+ - I’m not broken, I’m ruined. Do you understand the difference? With broken maybe you can fix things. Ruined? All you can do is wait to bury me.
+ - I love you. And I’m going to keep loving you even after you don’t know I exist.
+ - I am barren of words. For no sounds from my mouth are worthy of your hearing.
+ - Pull up your big girl panties and just do it.
+ - Man, he wasn’t going to need a stress test anytime soon. If his heart could get through a kiss from her, he could probably run a marathon. While dragging a car behind him. Sideways to the road.
+ - You never knew the last time you were seeing someone. You didn’t know when the last argument happened, or the last time you had sex, or the last time you looked into their eyes and thanked God they were in your life. After they were gone? That was all you thought about. Day and night.
+ - Life is such a glorious trauma, is it not?
+ - She is more beautiful than I have words for. And last night, I was blessed beyond measure to serve her.
+ - You are a manipulator. I like to think of myself more as an outcome engineer.
+ - Besides, you think I’m not used to hurting? For me, it’s home sweet home, my brother.
+ - Say the word. Say the word and I won’t go. Say the word, Qhuinn. Do it and I’ll spend the night with you. Better yet, why don’t you just kiss me-.
+ - Stop it. Do not feel safe with him. The Stockholm Syndrome is not your friend.
+ - Terrific. A bisexual dominant vampire with kidnapping expertise.
+ - Welcome to the wonderful world of jealousy, he thought. For the price of admission, you get a splitting headache, a nearly irresistable urge to commit murder, and an inferiority complex. Yippee.
+ - I am very comfortable with conflict, be it of the legal or mortal kind. My father was a mediator, a bridge maker. I am a grave maker.
+ - You feel me?
+ - Well, duh. He was six feet, six inches tall and built like a brick shithouse.
+ - Perfect date material, she thought. A vampire with the social equivalent of road rage. – Beth about Wrath.
+ - There was both love and despair in his voice. He was truly handicapped when it came to emotions, and falling in love hadn’t changed that...
+ - Fine, dandy, she thought. Then lose the shirt, peel off those leather pants, and lie down on my tile. We’ll take turns being on the bottom.
+ - One shot. That was all you got. – Isaac.
+ - Sorry, you’re on the ride now, and there’s no getting off in the middle.
+ - If you eliminate all possible explanations, then the impossible is the answer.
+ - This was the gift of recovery, he thought. The ability to be here in this moment with the female he loved and be fully aware, fully awake, fully present. Undiluted.
+ - You are so beautiful, he mouthed. But of course she couldn’t see his lips. Guess he was going to have to show her.
+ - Some things are destined to be – it just takes us a couple of tries to get there.
+ - You never realized how thick your fog was until it lifted.
+ - People going in the wrong direction will get like that. Round pegs just don’t fit in square holes.
+ - An Active mind didn’t need distraction in its physical environment. It needed a collection of outstanding books and a good lamp. Maybe some cheese and crackers.
+ - Love can conquer everything but reality. Which will win every stinking time.
+ - Man, that did his ego good. Matter of fact, she hit him with anything like that again, he was going to feel like he could bench-press a city bus. With a jet plane on its roof.
+ - Written on the mirror, revealed by the steam, were the words, I love you, Jane.
+ - We don’t have to talk about Zsadist. That’s okay. He’s the most interesting part of me.
+ - Uh-huh, uh-huh, ohhhh, yeeeeeeeaaaah, who’s your daddy...
+ - Even when there were no more options for the body, the heart’s wishes find a way out, and as with all warmth, love rises. Besides, the will to fly was in the nature of the soul, so its home had to be up above.
+ - Sometimes your whole life could hinge on a fraction of an inch. Or the beat of a nanosecond. Or the knock on a door.
+ - When she orgasmed, she said his name. Twice. And didn’t it make him glad that even though he had no voice, his ears worked just fine. –JM.
+ - I’m on the benevolent side of antisocial. I don’t mind people, but I’d prefer not to have a lot of them around.
+ - Love was worth sacrificing for, he thought as he left his room. Even if it wasn’t yours. -Phury’s thoughts.
+ - Some bridges you crossed on your own, no matter who drove you to the edge.
+ - Falling into ruin was a bit like falling in love: Both descents stripped you bare and left you as you were at your core. And both endings are equally painful.
+ - He wanted to give her another word to say, something like luscious or whisper or strawberry. Hell, antidisestablishmentarianism would do it.
+ - Vengeance was one hell of a roommate.
+ - I’m going to love you so good and so long you’re gonna be convinced no earthly thing could have brought us together.
+ - He knew he was being overbearing as hell, but he couldn’t help it. He was a bonded male. With his pregnant female. There were few things on the planet more aggressive or dangerous. And those bastards were called hurricanes and tornadoes.
+ - To her, saving grace meant you got to live out your life like a normal person: You were healthy and strong, an the prospect of death was just some far-off, barely acknowledged hypothetical. A debt to be paid off in a future you couldn’t imagine.
+ - He tasted each one of them. The raw power and majesty of Wrath. The vast strength of Rhage. The burning, protective loyalty of Phury. The cold savagery of Zsadist. The sharp cunning of Vishous.
+ - A book unopened alters not the ink on it’s pages.
+ - Humans are threatened by anything different, and their response is to fight. They’re bullies, picking on the weak, cowering from the strong.
+ - Next time you think of me like that, say my name when you come. It’ll get you off even better.
+ - The half-human was the hottest thing he’d ever gotten anywhere near. And he’d cozied up to a lightning strike once or twice before.
+ - You’ve got nothing to worry about. The righteous do not always right, but their souls remain pure. -Lassiter the Angel.
+ - In the oh-my-God-this-has-to-be-Christmas silence that followed, he struggled to reorder the last six months, to catch up with this reality they’d somehow missed. He wanted her. She wanted him. Was it true?
+ - The smile he gave her was wistful, just a little lift to his mouth. “You are a fighter.” “”Yes. Always. And sometimes I’m a whole army.
+ - Vampire porn does not go out of style.
+ - He thought about all the holes in him, the blank places, the voids where others felt things. When it came down to it, he was really just a screen, more empty than solid, his emotions blowing through him, only angry catching and holding.
+ - If sex were food, Rhage would have been morbidly obese.
+ - It had been so good to see his enemy again. Positively heartwarming. Hallmark really needed to start up a line of revenge cards, the kind that let you reach out to those you were going to come after with a vengeance. – Lash.
+ - Too late Bella. Now, it’s too late. Show me.
+ - United by their clasped hands, they became again the two halves, the light and the dark. The Destroyer and the Savior. A whole.
+ - Even the powerful needed protection sometimes.
+ - Hello, Doctor. It’s your man.
+ - With his fantastic mane of multicoloured hair, Phury should have been in Hollywood’s league with the ladies, but he’d stuck with his vow of celibacy. There was room for one and only one love in his life, and it had been slowly killing him for years.
+ - Yeah, but going by that cold tone of voice, she had to wonder whether the best-laid plans of mice and vampires, blah, blah, blah...
+ - You are in a prison with no bars. I worry about you.
+ - Man, life was complicated. But the truth was simple. He was her home. He was where she belonged.
+ - I would hold you up. I will ever hold you up and hold you dear, lover mine.
+ - I could take you down on this sidewalk and be up that skirt of yours in a heartbeat. And you wouldn’t fight me, would you? No, she probably wouldn’t. Wrath and Beth.
+ - After a moment the king said, “So be it.” Zsadist cursed. Butch whistled low. Rhage bit into a Tootsie Pop.
+ - Next time say my name. You’ll come more.
+ - Love’em or hate’em, by blood or by heart, family was a kind of oxygen. Necessary for the living.
+ - V had a passing thought that she used the word “anyway” like an eraser on a crowded chalkboard. She said it whenever she needed to clear off the things she’d just shared to make room for more.
+ - Strong relationships are not rocked by a truth that is grounded by resolute monogamy.
+ - Indeed, the human mind appeared to suffer from a crippling need to fabricate in the absence of concrete proof.
+ - As always, Blay was the anchor who kept him from being swept away.
+ - Christ, don’t you ever knock? It’s Lassiter. L-A-S-S-I-T-E-R. How is it possible you’re still getting me confused with someone else? Do I need a nametag?
+ - Are you wet for me, Mary? I think you are. I think you’re covered with honey.
+ - When she didn’t say anything more, he frowned, thinking this was the pair of them in a nutshell: Standing three feet away from each other and being separated by miles.
+ - And as he held his first true lover against him, feeling that familiar difference in their heights and smelling that wonderful cologne, part of him wanted to debate this break up until they both gave in and kept trying. But that wasn’t fair.
+ - The Brotherhood was strong, a unit. a powerful force in their world for good. And so too were the females. Strong. A unit. A powerful force for good in their world.
+ - Rhage exhaled slowly, air easing out of his nose. As he sank into his skin, he reveled in the perfection of peace. The heavenly silence. The great roaring absence.
+ - Tore up from the floor up. Followed by a big outtie. John Mathew.
+ - It was a universal truth among males that anytime you saw a guy get it in the nuts, you experienced a shot of phantom pain in your own croquet set.
+ - As the vampire trailed a fingertip along the girl’s collarbone, she appeared to fall into a trance. It was not mind games on Zypher’s part. Females of both races couldn’t help themselves around him.
+ - But then, gifts are like beauty, are they not. It is in the eye of the recipient that they find their seat, not in the hand of the giver.
+ - As much as we have free choice, absolute destiny is immutable. What is meant to happen does, through one measure or another.
+ - As far as he was concerned, there were only two good positions for a human. A female on her back. And a male facedown not breathing.
+ - We also mark what’s ours. And as I’m not going to see you for twelve hours, I think I’ll leave a little more all over you.
+ - Gallows humor is part of having a doctor in the house. Deal with it.
+ - It finally happened, he thought as he burrowed under his shirt and took hold of his heavy cross. All his life he’d wondered why he’d never fallen in love, and now he knew: He’d been waiting for this moment, this woman, this time. The female is mine, he thought. – Manny.
+ - As her eyes scanned his face, he feared that she saw everything, right down t the core of him. Where his obsession with her was the strongest. -Butch and Marissa.
+ - Blay was the closest thing to an angel Qhuinn had ever come near.
+ - But every once in a while, from out of the blue, someone reaches the quiet place where you spend your private time and changes the way you see yourself.
+ - You are the sweetest thug I’ve ever known.
+ - That’s the problem with white horses. You have to pay for them yourself or you’ll always be using someone else’s reins.
+ - Otherwise, three little words would have leaked from his mouth. And undoubtedly doomed him in ways he couldn’t even guess at. Bad time. Bad place. For that kind of thing. Forever.
+ - It was right then and there that she’d realized there was no quota on misery for people, no quantifiable threshold that once reached, got you miraculously taken out of the distress pool.
+ - Jane: Focus is important. V: Only if you’re a microscope.
+ - Nothing that passes between us will ever be wrong. Come back to me.
+ - And God help them both, if it hadn’t been for Saxton, Qhuinn would have dropped the l-word right then and there, even though the timing was stupid.
+ - Butch didn’t live in his own place. He didn’t spend his own money. He had no job, no future. He was a well-kept pet, not a man.
+ - She was seriously staring. Which was what you did when you got a gander at a man who is hung like a Louisville Slugger.
+ - V shook his head. “Remember what you saw in that clearing, cop? How’d you like that anywhere near a female you loved?” Butch put down the Bud without drinking from it. His eyes traveled over Rhage’s body. “We’re going to need a shitload of steel,” the human muttered.
+ - Vishous, could you stop grinning like that? You’re beginning to freak me out.
+ - That human, he’s a lesser waiting to happen, in my opinion – nothing less, nothing more.
+ - There was a heavy, dark pause of vast significance. Which Jim broke by flashing his hands and belting out, “Booga-wooga!” At least Eddie laughed. Adrian flipped Jim the bird and headed to the fridge for another beer.
+ - She was staying. A little longer. V smiled to himself. So this was what winning the lottery felt like.
+ - Uh-huh, right. Let me count all the ways you and I aren’t going there.
+ - A hand landed on his shoulder like an anvil. “How’d you like to stay for dinner?” Butch looked up. The guy was wearing a baseball cap and had some kind of marking – was that a tattoo, on his face? “How’d you like to be dinner?” said another one, who looked like some kind of model.
+ - The guy in the Red Sox hat came in with an astonishingly beautiful blond woman at his side. He stood close to her, and though they weren’t touching, it was clear that they were a couple. They just belonged together.
+ - I don’t do farm animals. Can’t stand hay in your leathers? Or wool in my teeth.
+ - The pair of them were staring at the computer screen like two dogs watching animal planet: very focused, but incapable of turning up the volume or changing the channel. -Manny and Butch.
+ - I have no words. Sixteen languages, but no words. -Vishous.
+ - The weight of the dead was heavier than the pounds of the body.
+ - After all, tragedy didn’t discriminate, so everyone was subject to the same whims of fate.
+ - You want to poof it or ride back with me?
+ - Whoa. Fangs. She had fangs. She leaned in, prodded them a little. Eating with those puppies was going to take some getting used to, she thought. On impulse, she brought up her hands, turned her fingers into claws. Hissed. Cool.
+ - All kings are blind. The good ones see this and use more than their eyes to lead.
+ - That scent she threw off was not anything by Chanel. Unless they’d recently added a Tragedy line.
+ - The guy stroked his goatee. “What do you call twenty guys watching the world series?” “The New York Yankees,” Butch replied.
+ - Did television execs have souls? Now, that was an existential question and a half.
+ - In the center was a tiny handprint in red paint.
+ - God, he was probably too young to be this old, but life had a way of being about experience, rather than calendar days.
+ - The one good thing about the Angels was they always colored within the lines. They had to. Suckers.
+ - Course, I always knew you were a royal. Just didn’t know it went past the pain-in-the-ass part.
+ - You’re looking at that chick like you want to roll her up in a taco and put your hot sauce all over her.
+ - Payne nailing him in the face woke him up. George brought him back his independence. But Beth handed him his crown.
+ - Quick question. Does this magical skill with gray matter come with a total lack of compunction for your kind, or is it just you who were born without a conscience? V: I beg your pardon?
+ - She’d ended up passing out, and sometime later, John must have gotten up to use the loo and left the light on. Probably to make sure she didn’t feel lost if she woke up. Because that’s the kind of male he was.
+ - All right, then, her first rule for the rest of her days: no more looking outside for definitions. She might not have any clue who she was, but better to be lost and searching than shoved into a social box by someone else.
+ - Great rationalizations. All of which her adrenal gland middle-fingered and then carried right on.
+ - Hey, no offense, but do you mind if you put both your palms where I can see ’em?
+ - When Vishous pushed open the door to the exam room, he got a gander at the kind of seating arrangement that made him think fondly of castration.
+ - Those deep hazel eyes held his and didn’t blink. “You’d be amazed what I would do to keep you alive.” Abruptly, V’s mouth opened, his breath growing tight. And as the two of them stood chest-to-chest, he knew every inch of his body, felt it all at once.
+ - If you’re going to insist on being reasonable, I’m going to stop hanging with you.
+ - And bottom line, without John by her side, everything seemed to be just a big, resounding meh.
+ - You will not live through this if she does not.
+ - When I want you to beg, I’ll tell you.
+ - Hell, any plan that added “and then we pray” is not a trip to Disneyland.
+ - Nothing bubbled up from the depths. For once, the present was so alive and captivating that the past was not even an echo or a shadow-she was, in this moment, wiped clean.
+ - Neither said anything while they embraced. Sometimes words didn’t go far enough, the vessels of letters and the ladles of grammar incapable of holding the heart’s sentiments.
+ - And for all he had learned to bandage himself up on the outside, the wound remained just as bad and deep as the moment it had been made – when it became obvious that the one male he wanted above all others was never, ever going to be with him.
+ - Phury glanced at John and thought that sometimes it took only a hairbreadth between cars to avoid a mortal accident. Sometimes your whole life could hinge on a fraction of an inch. Or the beat of a nanosecond. Or the knock on a door. Kind of made a male believe in the divine.
+ - But Tudor mansions on manicured grounds didn’t look right with their grand front doors wide open to the night. It was like a debutante flashing her bra thanks to a wardrobe malfunction.
+ - You don’t know this yet. But you are Mine – Wrath.
+ - Without his mate to share his life, he was but a screen for events and circumstances to pass through. He was npt even empty, for he was no vessel to hold even the thinnest of air. He lived, though was not truly alive.
+ - You are the male I might have been. You are the potential I had and lost. You are the honor and the strength and the kindness she needs. You’ll take care of her. I want you to take care of her.
+ - Yanking his inner manwhore back to the land of polite conversating, he forced his hands to stop.
+ - The Destroyer has arrived and you are he.
+ - Besides, the mhis that surrounded the compound could scramble anything from GPS to Santa Claus.
+ - Man, it was a good thing vampires didn’t get cancer. Lately he’d been chain-smoking like a felon.
+ - For him, life was a coin that had disaster on one side and waiting for disaster on the other.
+ - Don’t think I was the only reason he healed. You’re his light, Marissa. Don’t ever forget that.
+ - Bad deeds like beauty, are in the eye of the beholder.
+ - In so many ways, he had wanted this his whole life – or at least ever since he’d survived his transition and had any sexual impulse at all. This moment was the culmination of countless daydreams and innumerable fantasies, his secret desire made manifest.
+ - It felt odd to realize she was frightened more by what he might know, and not of what he might be.
+ - Fear of change was a weakness.
+ - Man, some open doors were not welcoming, and that was so the case here – less hi-how’re-ya, more come-in-so-your-skin-can-be-used-to-make-a-super-hero-cape-for-one-of-Hannibal-Lecter’s-patients.
+ - Sometimes the only way to know how far you’d come was to return to where you once had been.
+ - Life has gotten in the way of our life.
+ - You’re not half the male you could be because of what was done to you. You’re twice what anyone else is because you survived.
+ - I always root for the monster.
+ - Qhuinn gave in immediately, as he was categorically incapable of denying the female anything – most certainly not one of her hugs. They were even better than her lasagna.
+ - To be denied was like getting shut out of a Public Park.
+ - When he frowned again, she was fairly sure that the nomenclature did not please him, and she found herself wishing she had been birthed to other syllables.
+ - John? As it was dark he whistled a what. You are such a male of worth, you know that. You really are.
+ - You know, you sound like birds when you do that chuckle thing. It’s nice. Over to the left, Vishous put his head in his hands.
+ - Often people with fine countenances and fit bodies were mistakenly assumed by others to have the brains to match.
+ - Chaos and love when hand in hand and oh, the glorious grace of the world because of it.
+ - When you were young, you thought time was a burden, something to be discharged as fast as possible so you could be grown-up. But it was such a bait-n-switch – when you were an adult, you came to realize that minutes and hours were the single most precious thing you had.
+ - All I see are ankles and wrists – and FYI, you’re pulling a Mileyfrickin’-Cyrus with that belly flash. Not attractive.
+ - It was hard to know what was worse: him being with her and all her sisters, or him being with none of them because his heart was held by another. -Cormia.
+ - You’ve won the evolutionary lottery: You’re a vampire. Let’s go to Disneyland!
+ - The quick and the dead are all the same. Everyone’s just looking for home.
+ - Among the problems with shame was that it in fact did not make you shorter or quieter or less visible. You just felt like you were.
+ - To his mind, free will was a privilege, not a right.
+ - Sometimes words were less valuable than the air that carried them when it came to getting close.
+ - Man, it was a good thing he fought like a nasty bastard or he might have been taken for a nancy.
+ - Turned out Qhuinn was a snuggler. Who knew – and how fabulous.
+ - Fine. If I can’t have you, then you do the taking. Have all of me, part of me, a small piece, whatever you want. Just please, have something.
+ - Mary frowned. A vampire doctor. Talk about exploring your alternative therapies.
+ - Because when I looked at you across that table at the diner, no one else existed. And whether or not anything happens between you and me, it took meeting you to show me what I was missing.
+ - Unfortunately, beer was only a short-term answer. And head transplants had yet to be approved by the FDA.
+ - No stonger allies no greater friends no bigger fighters of honor could a king behould then these assembled afore me mine brothers mine blood.
+ - She nodded, wondering why couldn’t she have been named Mary. Or Sue. Butno, she had to be nine-letter Elizabeth.
+ - But come on, like she hadn’t seen every aisle in his grocery store already?
+ - Look upon me, Mistress. Watch as I wither!
+
+188 quotes

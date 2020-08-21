@@ -1,0 +1,40 @@
+ - But to be the best, you must face the best. And to overcome your fear, you must deal with the best.
+ - I don’t know if the record is going to happen. I don’t really think about the record. There are other things I worry about.
+ - I like to be against the odds. I’m not afraid to be lonely at the top. With me, it’s just the satisfaction of the game. Just performance.
+ - Those boos really motivate me to make something happen.
+ - There is nothing better than walking out and hitting a home run.
+ - It’s called talent. I just have it. I can’t explain it. You either have it or you don’t.
+ - Age is how you feel. If you take care of yourself, you’ll be able to do the same things. You may not do it as often. But you can still do it.
+ - I’m clean, I’ve always been clean.
+ - I was born to hit a baseball. I can hit a baseball.
+ - I was a momma’s boy. I didn’t get anything from Dad, except my body and baseball knowledge. The only time I spent with him was at the ballpark.
+ - My life is in shambles. It is crazy. It couldn’t get any crazier. I’m just trying to stay sane.
+ - If you want to be on top, you’ve got to have broad shoulders, because as fast as you get there, the faster they try to knock you down.
+ - I like to be against the odds.
+ - Serra High school, to me, was my most enjoyable time for me in my entire life. That was the only time I was free. We just played baseball because it was fun.
+ - I think everyone needs to be a role model, period.
+ - I think some of the pressure comes from the expectations of other people. Like if your father played baseball, they expect you to be the big lifesaver or something when you play a sport.
+ - I’m a very private person. My life story isn’t for everybody.
+ - I don’t know what my future is.
+ - As an athlete, you only have so much time. The window only has so much time and then it closes. You have to take care of yourself the best you can.
+ - My career is an open book, but my life is not.
+ - It’s not the name that makes the player. It’s the player.
+ - I don’t sign for white people.
+ - When I finish playing, I think I’d like to coach college baseball.
+ - I never stop looking for things to try and make myself better.
+ - There’s not too many rich black people in this world.
+ - I don’t want to be a Major League coach.
+ - Every pitcher can beat you, it doesn’t matter how good you are.
+ - I think of myself as ‘catching’ the ball with my bat and letting the pitcher supply the power.
+ - Sometimes I surprise my own damn self.
+ - I know when I’m off alignment. I know when my body is out of adjustment. If your body is there, then mentally, you’ll be there. If your body feels good, then your mind feels good and your are going to feel better about your game.
+ - I don’t know what you guys say, but at home, life is way different from baseball.
+ - It’s a relief now to be able to stand next to my godfather and finally feel like I’ve accomplished something in the game of baseball.
+ - Young players need to know how to take care of themselves for life after baseball.
+ - I’d like to help educate kids about the Major Leagues – what to anticipate, what to expect, what they’ll need to do to prepare themselves.
+ - I could learn how to press ‘Record’ on a tape recorder and write for a newspaper or a magazine.
+ - Baseball is just my job.
+ - I have a chef who makes sure that I’m getting the right amounts of carbs, proteins and fats throughout the day to keep me at my max performance level.
+ - I don’t ever remember having any bad times here in Pittsburgh.
+
+38 quotes

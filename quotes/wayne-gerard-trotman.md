@@ -1,0 +1,48 @@
+ - People who repeatedly attack your confidence and self-esteem are quite aware of your potential, even if you are not.
+ - Instead of loving people and using money, people often love money and use people.
+ - The future begins today.
+ - The sad truth about bigotry is that most bigots either don’t realize that they are bigots, or they convince themselves that their bigotry is perfectly justified.
+ - Burying your head in the sand does not make you invisible it only leads to suffocation.
+ - Water – a thoroughly underrated drink.
+ - A steadfast heart does not stray from the path.
+ - A place without meaning is no place to be.
+ - What you call life is but a dream, and reality is relative.
+ - You must learn to control your dreams or your dreams will forever control you.
+ - Verily, a man without fear is either dead or happy to die.
+ - You crave winning and fear losing instead of just doing. To succeed you must remove your self-imposed limitations.
+ - Contentment comes from wanting what we need, not needing what we want.
+ - The eternal sea of politics is best left to politicians.
+ - Sometimes people with low self-esteem will try to punish you for caring about them.
+ - To try is to invite uncertainty. Where confidence goes, success usually follows.
+ - Helping people and putting smiles on their faces is a great, great thing. God only knows why more people don’t do it more often.
+ - I see you have returned, my love; and your mood is as dark as ever. Did your soldiers not adore you to your complete satisfaction?
+ - Envy suggests inferiority.
+ - Revenge can only be found on the road to self-destruction.
+ - Growth of consciousness does not depend on the might of the intellect but on the conviction of the heart.
+ - For most people, art is only valuable if other people say it is; and artists are only worthwhile if they are either rich and famous, or dead.
+ - It is impossible to be truly artistic without the risk of offending someone somewhere.
+ - Our perception of space-time can be thought of in terms of event coordinates relative to our current state of consciousness.
+ - Armon stared into the wild darkness of his opponent and saw a reflection of his own fall.
+ - I feel the deepest, heartfelt pity for any adult who has never been in love.
+ - Of what value is your life, unless you are willing to sacrifice it for those you love?
+ - Change. Adapt. Bend so as not to be broken. Let opportunity guide your actions.
+ - Fear sees, even when eyes are closed.
+ - The laws of men are not infallible.
+ - Modesty isn’t always a virtue; it can be a hindrance; a careful measure of personal pride builds confidence and ensures success.
+ - Today, I attended a friend’s birthday party dressed as a ninja. I soon discovered that ninjas are very misunderstood.
+ - Optimists are usually inexperienced.
+ - Often, what people don’t say tell you more about the nature of their insecurities than what they do say.
+ - Sometimes strange fiction, becomes grim reality.
+ - A gift involves sacrifice. If you give away something that you no longer value or want, it cannot be a gift. It is simply a discarded item.
+ - Only by fully experiencing fear, can you ever hope to control it.
+ - So often, the discarded love of youth is desperately yearned for in maturity.
+ - A true master will not deceive an able disciple. You are hampered by the limits you set and no limit can be set on skill.
+ - I don’t like zombie movies, they’re just plain silly.
+ - There are few things worse than mistaking an enemy for a friend.
+ - Verily, a man should not cling to those who have passed, for he will likely neglect service to the living.
+ - I’ve been told, by various people, that I think too much. This is incorrect! The truth is that I deliberately challenge people to think more than they would like to.
+ - I appreciated art, long before I could produce it.
+ - As long as the peace-makers are armed with assault rifles, it’s highly unlikely we’ll ever have peace.
+ - Lovers and warriors are not bound by the rules of fair play.
+
+46 quotes

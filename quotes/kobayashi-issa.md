@@ -1,0 +1,24 @@
+ - Never forget: we walk on hell, gazing at flowers.
+ - Summer night – even the stars are whispering to each other.
+ - O snail Climb Mount Fuji But slowly, slowly!
+ - Don’t weep, insects – Lovers, stars themselves, Must part.
+ - Where there are humans, You’ll find flies, And Buddhas.
+ - Reflected in the dragonfly’s eye – mountains.
+ - The world of dew is the world of dew. And yet, and yet –.
+ - In the cherry blossom’s shade there’s no such thing as a stranger.
+ - All the time I pray to Buddha I keep on killing mosquitoes.
+ - In spring rain a pretty girl yawning.
+ - There is no stranger under the cherry tree.
+ - Moon, plum blossoms, this, that, and the day goes.
+ - Listen, all creeping things, the bell of transience.
+ - Face of the spring moon- about twelve years old, I’d say.
+ - Even in warmest glow how cold my shadow.
+ - Even with insects – some can sing, some can’t.
+ - What a strange thing! to be alive beneath cherry blossoms.
+ - Here I’m here- the snow falling.
+ - Dry creek glimpsed by lightning.
+ - Not gifted with genius but honestly holding his experiences deep in his heart, he kept his simplicity and humanity.
+ - Red morning sky – snail, are you glad of it?
+ - Carrying a poppy he passes through the quarrel.
+
+22 quotes

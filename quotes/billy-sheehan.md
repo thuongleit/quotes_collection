@@ -1,0 +1,21 @@
+ - Music is always changing and the changes are unpredictable.
+ - I’ve been an amature inventor for a long time.
+ - It’s not art, it’s science.
+ - Be honest with yourself and the way you act when you hear music. That way, when people watch, they’ll see something from your heart and soul, and as a result will communicate your feeling and thought much better.
+ - I didn’t follow the standard rules of bass playing, and many musicians on many different instruments who became noteworthy for their unique or particular style did a very similar thing.
+ - I love a lot of reggae, but Ive never had the opportunity to play with any reggae guys.
+ - I gave up a lot of things in exchange for my success.
+ - It is never easy for anyone to have success in music.
+ - History has repeated itself many times througout the ages.
+ - I listened to many different types of instruments and music, and have always tried to look at the bass as an instrument as opposed to only a bass.
+ - It was also important for me to have a burning desire to achieve something worthwhile on that instrument, and I devoted many many many hours with little or no compensation to perfecting whatever I could, because I loved it so much.
+ - Very often I suspend my musical sensibilities to enjoy music as a fan.
+ - I’m a fan of many different styles of classical and symphonic music.
+ - I plan on doing a lot more work on my own, and discovering and doing more.
+ - I’m very honored and thankful if someone says something nice about my playing, but in general I’m very critical of what I do.
+ - I try to do my absolute best for the people who come see me play.
+ - As far as current inspiration, I’m listenting to a lot of flamenco, because the techniques used for flamenco can be adapted to playing bass.
+ - And no again: My studio is not a first or any step toward becoming any type of businessman on my part.
+ - I believe the best persona to be onstage is the one that comes naturally.
+
+19 quotes

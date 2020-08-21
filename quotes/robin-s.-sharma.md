@@ -1,0 +1,491 @@
+ - Your “I CAN” is more important than your IQ.
+ - Be the CEO of your life.
+ - We are all here for some special reason. Stop being a prisoner of your past. Become the architect of your future.
+ - Small daily improvements over time create stunning results.
+ - Never regret your past. Rather, embrace it as the teacher that it is.
+ - Ancient Rule of 21: if you do anything for 21 days in a row, it will be installed as a habit.
+ - Everything is created twice, first in the mind and then in reality.
+ - For your life to be great, your faith must be bigger than your fear.
+ - We grow fearless when we do the things we fear.
+ - Change is hardest at the beginning, messiest in the middle and best at the end.
+ - Daily ripples of excellence over time become a tsunami of success.
+ - Mistake is a mistake only if you make it twice.
+ - Investing in yourself is the best investment you will ever make. It will not only improve your life, it will improve the lives of all those around you.
+ - Big people don't make people feel small.
+ - Never overlook the power of simplicity.
+ - The mind is a wonderful servant, but a terrible master.
+ - The smallest of actions is always better than the noblest of intentions.
+ - Push yourself to do more and to experience more. Harness your energy to start expanding your dreams. Yes, expand your dreams. Don't accept a life of mediocrity when you hold such infinite potential within the fortress of your mind. Dare to tap into your greatness.
+ - There's a cure for aging that no one talks about. It's called learning.
+ - Sometimes success isn't about making the right decision, it's more about making some decision.
+ - The activity you’re most avoiding contains your biggest opportunity.
+ - Getting lost along your path is a part of finding the path you are meant to be on.
+ - Life's had to break you down so you could be rebuilt better.
+ - I once read that people who study others are wise but those who study themselves are enlightened.
+ - What gets measured gets improved.
+ - Success on the outside means nothing unless you also have success within.
+ - The purpose of life is the life of purpose.
+ - Awareness precedes choice and choice precedes results.
+ - Give out what you most want to come back.
+ - Worry drains the mind of its power and, sooner or later, it injures the soul.
+ - All great thinkers are initially ridiculed – and eventually revered.
+ - If your life is worth thinking about, it is worth writing about.
+ - Laughter opens your heart and soothes your soul. No one should ever take life so seriously that they forget to laugh at themselves.
+ - Greatness begins beyond your comfort zone.
+ - You can’t make someone feel good about themselves until you feel good about yourself.
+ - Dreamers are mocked as impractical. The truth is they are the most practical, as their innovations lead to progress and a better way of life for all of us.
+ - It's not what you will get out of the books that is so enriching - it is what the books will get out of you that will ultimately change your life.
+ - Failure is not having the courage to try, nothing more an nothing less.
+ - Want more credit for all you do and who you are? Be the one who gives credit to others.
+ - The doorway to success swings outward not inward.
+ - Make the work you are doing today better than the work you did yesterday.
+ - My love of books was all that saved me.
+ - You can’t win unless you first begin. So start now.
+ - Become one of the rare people who don’t know how to quit.
+ - Join The 5 am Club. Your most valuable hours are 5am-8am. They have the least interruptions.
+ - Dream Big. Start small. Act now.
+ - It is only when you have mastered the art of loving yourself that you can truly love others. It's only when you have opened your own heart that you can touch the hearts of others. When you feel centered and alive, you are in much better position to be a better person.
+ - A little bit of fragrance always clings to the hands that gives you roses.
+ - The greatest things in life all require commitment, sacrifice, some struggle and hardship. It’s not easy. But absolutely worth it.
+ - Don’t ask for respect. Earn it.
+ - Be slow to criticize. And fast to appreciate.
+ - Cut your excuses in half and double your actions around your goals.
+ - Fill your brain with giant dreams so it has no space for petty pursuits.
+ - Be the Mick Jagger of the Mailroom, the Warren Buffett of Bookkeeping and the Bono of stapler selling
+ - If people aren’t laughing at your dreams, your dreams aren’t big enough !
+ - What you focus on grows. What you concentrate on is what you see more of in your life.
+ - Being scared is part of being alive. Accept it. Walk through it.
+ - Criticism is the price of ambition.
+ - The thoughts you think today determine the results you’ll see tomorrow.
+ - You are much closer than you think to creating a life you adore.
+ - Victims recite problems, leaders provide solutions.
+ - The words you speak are powerful. Especially the words you speak to yourself.
+ - Life is short. Be of use.
+ - Your life is too important to give it to distractions.
+ - If you don’t act on life, life will act on you.
+ - Silence your critics. Ignore your haters. Delete your cynics.
+ - Persistence is the mother of personal change.
+ - Leave your ego at the door every morning, and just do some truly great work. Few things will make you feel better than a job brilliantly done.
+ - The Universe favors the brave. When you resolve to lift your life to its highest level, the strength of your soul will guide you to a magical place with magnificent treasures.
+ - If it is not a mess, it is not progress.
+ - A runner doesn’t just show up and win a race. He trains long and hard. Do you just show up every day and hope to win?
+ - In your quietest moments appear your most true thoughts.
+ - When your every thought and your every action is directed to your ultimate life goals, you become unstoppable and assured of great success and happiness.
+ - Shatter all your fear.
+ - No matter what you are experiencing in life right now, trust that all is unfolding in your best interests.
+ - Less gossiping, more learning. Less complaining, more excelling. Less walls, more bridges. Less fear, more courage.
+ - Lucky is where skill meets persistence.
+ - The real secret to a life of abundance is to stop spending your days searching for security and to start spending your time pursuing opportunity.
+ - Ordinary people have big TVs. Extraordinary people have big libraries.
+ - Commit to becoming breathtakingly great in all you do. And that’s what you’ll become.
+ - The only way to permanently install a new habit is to direct so much energy toward it that the old one slips away like an unwelcome house guest.
+ - Go where no one’s gone and leave a trail of excellence behind you.
+ - What makes the best the best is they never actually think they’re the best.
+ - Until our mission becomes our obsession, we’ll be chained to the realm of average.
+ - Model the behavior you wish more people would display. Lead first.
+ - Daily exercise is an insurance policy against future illness. The best Leaders Without Titles are the fittest.
+ - Challenge serves beautifully to introduce you to your best – and most brilliant – self.
+ - Small daily – seemingly insignificant – improvements and innovations lead to staggering achievements over time.
+ - The more you worry about being applauded by others and making money, the less you’ll focus on doing the great work that will generate applause. And make you money.
+ - Leadership is no longer about position – but passion. It’s no longer about image but impact. This is Leadership 2.0.
+ - Gratitude and fear can’t stand the sight of each other.
+ - Lasting happiness comes from steadily working to accomplish your goals and advancing in the direction of your life’s purpose.
+ - It wasn’t until I began to work on my inner life and know myself that my life changed. Success really does begin within. The size and quality of your outer life is only limited by the size and quality of your inner life.
+ - The person who makes promises to everyone ultimately pleases no one.
+ - Education is inoculation against disruption.
+ - Basically, to lead without a title is to derive your power within the organisation not from your position but from your competence, effectiveness, relationships, excellence, innovation and ethics.
+ - Dreaming is great, but thinking big thoughts alone will not build a business, pay your bills or make you into the person you know in your heart you can be.
+ - Success, like happiness, cannot be pursued. It must ensue.
+ - While victims condemn change, leaders grow inspired by change.
+ - The treasures of your life will present themselves to you only if you really are open to them.
+ - Every master was once a beginner. Every pro was once an amateur.
+ - Stop managing your time. Start managing your focus.
+ - What you focus on grows, what you think about expands, and what you dwell upon determines your destiny.
+ - Gratitude drives happiness. Happiness boosts Productivity. Productivity reveals mastery. And mastery inspires the world.
+ - Don’t LIVE the same year 75 times and call it a Life.
+ - Productivity is less about what you do with your time. And more about how you run your mind.
+ - Keep challenging yourself to think better, do better, and be better.
+ - Consistency is the DNA of mastery.
+ - Push YOURSELF to the edge of YOUR limits. That’s how they expand.
+ - Don’t confuse activity with productivity. Many people are simply busy being busy.
+ - Ideation without execution is delusion.
+ - A problem is only a problem when viewed as a problem. All change is hard at first, messy in the middle and gorgeous at the end.
+ - Simplicity is the trademark of GENIUS.
+ - There are no mistakes in life, only lessons. There is no such thing as a negative experience, only opportunities to grow, learn and advance along the road of self-mastery. From struggle comes strength. Even pain can be a wonderful teacher.
+ - An addiction to distraction is the end of your creative production.
+ - Great achievement always requires great sacrifice.
+ - The only failure is not trying.
+ - Leadership is not a title. It’s a behavior. LIVE it.
+ - Leadership is not about a title or a designation. It’s about impact, influence and inspiration. Impact involves getting results, influence is about spreading the passion you have for your work, and you have to inspire team-mates and customers.
+ - If you don’t make time for exercise, you’ll probably have to make time for illness.
+ - Bravery is the solution to regret.
+ - Run your own race. Who cares what others are doing? The only question that matters is ‘Am I progressing?’
+ - Victims make excuses. Leaders deliver results.
+ - The business of business is relationships; the business of life is human connection.
+ - Nothing can stop you until you choose to be stopped.
+ - Leaders don’t make excuses. They create results.
+ - Only those who seek shall find.
+ - It doesn’t matter where you start. Only that you begin.
+ - The bigger the dream, the more important to the team.
+ - The average are addicted to leisure. The exceptional are obsessed with learning.
+ - Run towards your fears. Embrace them. On the other side of your greatest fears lives your greatest life.
+ - Begin to live each day as if it was your last.
+ - The beautiful thing about TODAY is that you get the choice to make it better than YESTERDAY.
+ - The real value of setting and achieving goals lies not in the rewards you receive, but in the person you become as a result of reaching your goals.
+ - When we give up on our dreams, we die while still alive.
+ - Being humble is cooler than being famous.
+ - Dreams don’t “come true”. Dreams get “made true”. You have the power to get up, execute and make beautiful results happen, day by valuable day.
+ - Leadership is no longer about your position. It’s now more about your passion for excellence and making a difference You can lead without a title.
+ - Knowing what to do and not doing it is the same as not knowing what to do.
+ - Success is all about consistency around the fundamentals.
+ - The way we do small things determines the way we do EVERYTHING.
+ - The quickest way to grow the sales of your business is to grow your people.
+ - The real reward for doing your best work is not the money you make but the leader you become.
+ - Leadership is less about the position you hold than the influence you have. It’s about doing world-class work, playing at your peak, and leaving people better than you found them. It’s about Leading Without a Title.
+ - Time is your most precious commodity and yet most of us live our lives as if we have all the time in the world.
+ - Leadership is not a popularity contest; it’s about leaving your ego at the door. The name of the game is to lead without a title.
+ - No one will believe in you until you believe in you.
+ - Beneath every excuse lies a fear. Practice being fearless.
+ - Negative feedback can make us bitter or better.
+ - Other people’s opinions of you are none of your business.
+ - Say “thank you” when you’re grateful and “sorry” when you’re wrong.
+ - Do a few things at mastery versus many things at mediocrity.
+ - Don’t tolerate any form of average. Don’t accept Dis-excellence. Don’t stand for mediocre. If you’re going to settle, then please settle for the absolute best.
+ - Nothing works unless you do the work.
+ - What makes success is not your genius idea, but the execution and follow-through around it.
+ - To double your income, triple your investment in self-development.
+ - Kindness, quite simply, is the rent we must pay for the space we occupy on this planet.
+ - Become part of the solution rather than part of the problem.
+ - You can be a complainer. Or you can be an achiever. But you can’t be both.
+ - Success lies in a masterful consistency around a few fundamentals. It really is simple. Not easy. But simple.
+ - An extraordinary life is all about daily, continuous improvements in the areas that matter most.
+ - Discipline is built by consistently performing small acts of courage.
+ - Leadership is not about executive position or title. It is about connection and influence. At its highest, leadership is all about adding value to the world and blessing lives through the work you do.
+ - You’ll never go wrong in doing what is right.
+ - Your excuses are nothing more than the lies your fears have sold you.
+ - Words have power. Use the language of leadership versus the vocabulary of a victim.
+ - Mastery comes via a monomaniacal focus on simplicity versus an addiction to complexity.
+ - Doing the difficult things that you’ve never done awakens the talents you never knew you had.
+ - The respect you give others is a dramatic reflection of the respect you give yourself.
+ - Until your dream dominates your mindset, you’ll never wake up to your greatness.
+ - Spend time doing things that matter.
+ - We grow fearless by walking into our fears.
+ - Self respect beats social approval, every time.
+ - Do your best. And then let life do the rest.
+ - Writing in a journal reminds you of your goals and of your learning in life. It offers a place where you can hold a deliberate, thoughtful conversation with yourself.
+ - Your daily behavior reveals your deepest beliefs.
+ - To be a great leader, first become a great person.
+ - Success is nothing more than living your life according to your own truth and your own terms.
+ - Purpose is the most powerful motivator in the world. The secret of passion truly is purpose.
+ - Your life is a mirror. Life gives us not what we want. Life gives us who we are.
+ - Visionaries see the “impossible” as the inevitable.
+ - Hard work opens doors and shows the world that you are serious about being one of those rare – and special – human beings that uses the fullness of their talents for the highest and the very best.
+ - No kid is unsmart. Every kid’s a genius at something. Our job is to find it. And then encourage it.
+ - Until your mission is an obsession, nothing will change in your life.
+ - Take the road less travelled.
+ - The seduction of safety is always more dangerous than the illusion of uncertainty.
+ - You were born awesome. Please don’t die average.
+ - Please remember that your greatest talent is so much more powerful than your biggest fear.
+ - You can really Lead Without a Title.
+ - The value of travel is not just the travel but what the travel makes of you.
+ - Every person you meet has a lesson to teach, a story to tell and a dream to share.
+ - The real trick in life is to turn hindsight into foresight that reveals insight.
+ - Leave everyone you meet better than you found them. Become an encourager of potential versus a destroyer of confidence.
+ - At the heart of mastery lives consistency.
+ - Blaming others is nothing more than excusing yourself...
+ - The excuses we make destroy the results we deserve.
+ - To get Game-Changing results, start focusing on Game-Changing thoughts.
+ - Clarity breeds mastery. And the goals you set drive the actions you’ll take.
+ - What you resist will persist; what you befriend, you will transcend.
+ - The beautiful thing about setbacks is they introduce us to our strengths.
+ - Nothing fails like success. Because when you are at the top, it’s so easy to stop doing the very things that brought you to the top.
+ - The antidote to stagnation is innovation.
+ - Sometimes you have to get off track to discover a better track.
+ - Every minute spent worrying about ‘the way things were’ is a moment stolen from creating ‘the way things can be’
+ - All too often, we spend our days waiting for the ideal path to appear in front of us. We forget that paths are made by walking, not waiting.
+ - Clarity precedes success.
+ - The more time you spend in your discomfort zone, the more your comfort zone will expand.
+ - The best leaders lift people up versus tear people down.
+ - If you really want to be world class – to be the best you can be – it comes down to preparation and practice.
+ - Potential unexpressed turns to pain.
+ - Remember, there are no real failures in life, only results. There are no true tragedies, only lessons. And there are no problems, only opportunities waiting to be recognized as solutions by the person of wisdom.
+ - Treat people well on your way up and they’ll treat you well on your way down.
+ - The results of your life reflect the standards you’ve set.
+ - Focus is more valuable than IQ.
+ - Never sacrifice happiness for the sake of achievement. The real key to life is to happily achieve.
+ - To double your net worth, double your self-worth. Because you will never exceed the height of your self-image.
+ - Better to be an optimist who gets disappointed than a pessimist who has no hope.
+ - You’ll never change the world if you’re worried about being liked.
+ - The secret to genius is not genetics but daily practice married with relentless perseverance.
+ - Your limits are liars, you fears are thieves.
+ - Forget the economy. Just rewire your mentality. Then you’ll create your own economy.
+ - Each day life sends you chances to learn, grow and step into your best. Don’t miss them.
+ - Difficult times disrupt your conventional ways of thinking and push you to forge better habits of thought, performance and being.
+ - Slow, steady progress is better than fast, daily excuses.
+ - The deeper your relationship with others, the more effective will be your leadership. People will not follow you if they do not trust you, and before someone will lend you a hand, you must first touch their heart.
+ - When you fall, feel the pain. And then stand up. You were born for victory. And failure has no place in your world.
+ - The most successful people on the planet have failed more than ordinary ones.
+ - Anyone can lead when the plan is working. The best lead when the plan falls apart.
+ - Hard times produce your greatest gifts.
+ - Without the doing, the dreaming is useless.
+ - The best leaders blend courage with compassion.
+ - Measure your success by your inner scorecard versus an outer one.
+ - People who have achieved great success are not necessarily more skillful or intelligent than others. What separates them is their burning desire and thirst for knowledge. The more one knows, the more one achieves.
+ - You will never be able to hit a target that you cannot see.
+ - The secret of innovation is to see what all see but think what none think.
+ - The best Leaders Without a Title use their heads and listen to their hearts.
+ - Time slips through our hands like grains of sand, never to return again.
+ - Life management begins with mind management. The quality of your life is influenced by the quality of your thoughts. Your thoughts do form your world. Scarce thoughts create a life of scarcity. Thoughts of abundance lead to abundant circumstances.
+ - Making no decision is a decision. To do nothing. And doing nothing always brings you to nowhere.
+ - Your struggles have not been a waste. They’ve come to strengthen you. And grow your capacity to lead – and win.
+ - Everything that is now easy for you was once hard in the beginning.
+ - Unsuccessful people get jealous when they watch the Mastery of others. Successful people get inspired.
+ - The best leaders are the most dedicated learners. Read great books daily.
+ - A leadership culture is one where everyone thinks like an owner, a CEO or a managing director. It’s one where everyone is entrepreneurial and proactive.
+ - Just because you couldn’t do it yesterday doesn’t mean you can’t do it today.
+ - Have the guts to be true to yourself. Nothing more.
+ - Build your life around 5 key priorities: The Big 5. Any more and you’ll suffer from Broken Focus Syndrome.
+ - Success is created through the performance of a few small daily disciplines that stack up over time to produce achievements far beyond anything you could have ever planned for.
+ - Brilliant results don’t just show up by chance. The finest things in life take patience, focus and sacrifice.
+ - The best in business spend far more time on learning than in leisure.
+ - Sometimes, when everyone else is waiting for someone else to take the first step, you need to be the one to drive the change.
+ - While we cannot choose how we will die, we can always choose how we will live.
+ - Every great finish was once a simple beginning. Start now.
+ - To be successful in business and life, spot the possibilities while others look for problems.
+ - The most dangerous place is in your safety zone.
+ - A problem only becomes a problem when we choose to see it as a problem.
+ - See your life as a giant adventure. Keep pushing the envelope, and remember that every dream starts off small.
+ - No critic ever changed the world.
+ - We have a normal. As you move outside of your comfort zone, what was once the unknown and frightening becomes your new normal.
+ - Without patience, there can be no genius.
+ - The time you waste now you’ll wish you used well at the end.
+ - Your life on the Outside reflects your life on the Inside.
+ - Knowledge is potential power. It transforms itself into actual power the moment you decisively act on it.
+ - Why resist change when it’s the main source of your growth?
+ - The wisest among us – the genuine leaders – smile in the face of adversity.
+ - Our biggest enemy is our own self-doubt. We really can achieve extraordinary things in our lives. But we sabotage our greatness because of our fear.
+ - Stop complaining about having no time for yourself and get up an hour earlier. You have the option, why not exercise it?
+ - Its when the sun shines the brightest that our shadows appear the biggest.
+ - Where victims see adversity, extreme achievers see opportunity.
+ - Every second you dwell on the past you steal from your future. Every minute you spend focusing on your problems you take away from finding your solutions.
+ - The boundaries of your life are merely a creation of the self.
+ - If you inspire one person each day, you’re day hasn’t been a waste. It’s been a blessing.
+ - People do business with people who make them feel special.
+ - Gratitude is the antidote to fear.
+ - Life’s greatest setbacks reveal life’s biggest opportunities.
+ - Worrying about things beyond your control is a pretty good formula for illness.
+ - Truly enlightened people never seek to be like others. Rather, they seek to be superior to their former selves.
+ - Sometimes too much thinking leads to the Death of Doing.
+ - Every challenge is nothing more than a chance to make things better.
+ - When you see yourself as a powerful creator of your conditions, you’ll see opportunities to get to your goals – and dreams – all around you.
+ - You can do whatever you want to do as long as it is correct according to your conscience and heart.
+ - The way you begin each day defines how you’ll live each day.
+ - Clarity precedes mastery and the more clear you can get on what you want to create in life, the more focused you will be in your daily behaviors.
+ - Every person that you meet knows at least one thing that you don’t. Don’t let them leave without learning it.
+ - Success is the result of a delicate balance between making things happen and letting things happen.
+ - The secret of passion is purpose.
+ - If you’re not scared a lot you’re not doing very much.
+ - Your life is meant to be an epic story. How you think, perform and live today is part of that script.
+ - Devote yourself to learning something new about your field of mastery every day.
+ - The ordinary focus on what they’re getting. The extraordinary think about who they’re becoming.
+ - To breathe properly is to live properly.
+ - The best way to create spectacular results in the most important areas of your life is through daily practice.
+ - The strength and clarity of your vision will lift you out of the depth of any hardship.
+ - Doing great things for others is an awesome gift to give yourself.
+ - The only way to improve tomorrow is to know what you did wrong today.
+ - Having talent is fantastic. Having confidence is even more important.
+ - You’ll know you’re amazing when you get devoted to making other people amazing.
+ - When you got to where your fear lives, your freedom starts to display itself.
+ - Few things are as foolish as hoping old behaviors will somehow present new results.
+ - Your life was meant to be epic. Stand up for your best today.
+ - Focus on the impact you make versus the title you have.
+ - When we stop taking risks, we stop living.
+ - If you’re not thinking for yourself, then you’re following-not leading.
+ - No tactic will work until you have the guts to DO the work!
+ - For you to win, no one needs to lose.
+ - Don’t use the hardships of your past as excuses to deny the possibilities of your future.
+ - Better to have 3 real friends than 100,000 digital ones.
+ - First of all, begin to live out of the glory of your imagination, not your memory.
+ - Lives are mere blips on the canvas of eternity.
+ - I’ve had some wins. And been knocked down with defeats. Glimpsed views from the top of the mountain. And walked through the darkest of valleys. But through this entire ride called ‘a life’ – I’ve refused to give up.
+ - Mastery in work and in life is about committing yourself to being excellent in everything you do, no matter how small and no matter if no one is watching. Do you practice excellence in your most private moments?
+ - Laughing is medicine for the soul.
+ - People fear leaving their safe harbor of the known and venturing off into the unknown. Human beings crave certainty – even when it limits them.
+ - Life helps those who help themselves.
+ - Saying “I’ll try” really means “I’m not really committed.”
+ - Happiness is the DNA of pleasure. My point is simply this: Pleasure comes from something on the outside. Happiness comes from within. It’s a state you create by choice. It’s a decision. It’s an act of will.
+ - Success is never deserved. Success is always earned.
+ - Cell phones, mobile e-mail, and all the other cool and slick gadgets can cause massive losses in our creative output and overall productivity.
+ - The first move of leadership is learning to think for yourself.
+ - Mindsets are contagious. So choose the people you populate your life with extremely well.
+ - An exceptional life isn’t the result of lucky breaks but excellent choices.
+ - If you have never visited the valleys, the view from the mountain top is not breathtaking.
+ - A fear is just a lie that you’ve rehearsed so many times you believe it’s true.
+ - To have what few have, do what few do.
+ - If you don’t act on life, life has a habit of acting on you. You can’t have all that you want if you remain the person you are. To get more from life, you need to be more in life.
+ - Your environment influences your mindset.
+ - Fatigue dominates the lives of those who are living without direction and dreams.
+ - Become the most passionate person you know. It’ll be contagious.
+ - Be so good at what you do that no one else in the world can do what you do.
+ - If there is a lack in your life it is because there is a lack in your thoughts.
+ - People residing within the cult of average don’t like to see others rise. It threatens their security, and spotlights their low self-worth. Go for great, no matter what they say.
+ - Success is less about luck, and more about practice.
+ - We need to keep our ears open to the realities of life. If we don’t act on life and take action to make things happen, it will act on us and give us results we might not want.
+ - As a lawyer, money was my driving force. As the years passed, I accumulated more but was less happy.
+ - What the society thinks is of no interest to me. All that’s important is how I see myself. I know who who I am. I know the value of my work.
+ - Would you rather live your life according to the approval of others or aligned with your truth and your dreams?
+ - Who you are becoming is more important than what you are accumulating.
+ - There is no such thing as an unimportant day.
+ - You can’t stand in gratitude if you’re stuck in victimhood.
+ - To achieve the impossible, you need to first develop the mindset that it’s probable. Please don’t allow the current limits of your life define your future reality. You deserve so much better. And the world deserves your best.
+ - The conversations you are most resisting are the conversations you most need to be having.
+ - Be spectacularly great at what you do. Wear your passion on your sleeve and hold your heart in the palm of your hand. And work hard. Really hard.
+ - Leadership is a mindset that shifts from being a victim to creating results. Any one of us can demonstrate leadership in our work and within our lives.
+ - Reading a book by someone you respect allows some of their brilliance to rub off on you.
+ - Today’s a great day to change a life. Starting with yours.
+ - On the other side of the fear live your possibilities.
+ - Your genius will shine through, and happiness will fill your life, the instant you discover your higher purpose and direct all your energies towards it.
+ - Failure is nothing more than learning how to win.
+ - Money is a function of value creation. The more value you create for other people, the higher the sales of your organization.
+ - A ‘problem’ is nothing more than a gorgeous opportunity to discover an even better solution.
+ - Critics only speak up when they see someone shining. Average work doesn’t threaten them.
+ - Ask yourself this question every day: “How may I best serve the most people?”
+ - We live in a world where many of us have a lot of friends on Facebook but yet we have lost human connection.
+ - Best way to learn how life works is to have the guts to truly go out and live it!
+ - When you see an opportunity to change the world, get up and get the job done!
+ - Understand the acute difference between the cost of something and the value of something.
+ - Don’t surrender leadership of your life to your moods.
+ - To have the rewards that very few have, do the things that very few people are willing to do.
+ - Never get into the petty habit of measuring yourself worth against other people’s net worth.
+ - Too many among us are afraid to be ourselves. So we give up our dreams to follow the crowd.
+ - Sow a character, you reap your destiny.
+ - What you focus on always gets better.
+ - To become successful, first learn how to be happy. Too many think that the route to happiness is to get successful.
+ - From tonight onwards, take complete control of your life. Decide, once and for all, to be the master of your fate. Run your own race. Discover your calling and you will start to experience the ecstasy of an inspired life.
+ - There is but one failure in life and that is the failure to try.
+ - You are also what you say to yourself all day long.
+ - Success is beautiful and dangerous.
+ - An excuse is the tool our weak self uses to prevent our strongest self from reaching greatness.
+ - Great performers are preparing and practicing for a winning day while everyone else is still asleep.
+ - The average performer stops when they face fear. Iconic producer accelerates once they get frightened.
+ - Only those willing to do what the very few do will get the rewards that the very few get.
+ - The best way to honor your dreams is to get them done!
+ - The goals you don’t set reveal the dreams you don’t do.
+ - Never leave the site of a strong idea without doing something to execute around it.
+ - Never forget the importance of living with unbridled exhilaration.
+ - Alright, the secret of happiness is simple: find out what you truly love to do and then direct all of your energy towards doing it.
+ - Our minds are shaped by the books we read. Our characters, by the people we meet. Our spirits by the love we give.
+ - As you live your hours, so you create your years. As you live your days, so you craft your life.
+ - If your priorities don’t get scheduled into your planner, other people’s priorities will get put into your planner.
+ - To get all that life wants for you, apply what I call the Boomerang Effect: Give out what you most want to see come back.
+ - Be the master of your will but the servant of your conscience.
+ - You don’t get lucky. You create lucky.
+ - If you want to be deeply respected, deeply respect as many people as possible.
+ - Greatness comes by beginning something that doesn’t end with you.
+ - The moment I stopped spending so much time chasing the big pleasure of life. I began to enjoy the little ones, like watching the stars dancing in moonlit sky or soaking in the sunbeams of a glorious summer morning.
+ - Our wounds ultimately give us wisdom. Our stumbling blocks inevitably become our stepping stones. And our setbacks lead us to our strengths.
+ - The starting point of discovering who you are, your gifts, your talents, your dreams, is being comfortable with yourself. Spend time alone. Write in a journal. Take long walks in the woods.
+ - Life isn’t much more than a big dig through layers of doubt and fear into new levels of power and potential.
+ - If your outer life is really a reflection of the quality of your inner life, then it’s a brilliant move to spend at least an hour a day working on yourself.
+ - A life without impact and contribution is a very empty life, so use your life to make the world better.
+ - To lead is to be yourself in a world of clones.
+ - Every moment in front of a customer is a gorgeous opportunity to live your values.
+ - You would not have the wisdom and knowledge you now possess were it not for the setbacks you have faced, the mistakes you have made and the suffering you have endured.
+ - Hope looks good on paper. But what creates greatness is focus, dedication and hard work. Daily. Go do it. We deserve to see you fly in 2014.
+ - I love reading – inspirational books, leadership books, biographies. I exercise a lot and put on my audio book. Even If you would offer me a million dollars for my iPod I wouldn’t give it to you, because I have some great things on it.
+ - I had many of the trappings of success. I was a lawyer. I drove a nice car and I had nice things. But “things” don’t make a rich life.
+ - Start to see yourself for who you really are: a traveller, an explorer or on the path of life, confidently advancing along the path of enlightenment towards your destiny. Don’t lose sight of the things that are truly vital in your life.
+ - The person who experiences most wins.
+ - A timeless lesson for a deeply fulfilling life is to discover your calling, that special work or consuming occupation that fully engages your special talents with your passions.
+ - What you give away comes back to you in a river.
+ - He who serves the most, reaps the most, emotionally, physically, mentally and spiritually.
+ - The quality of success you will experience in your life ultimately depends upon the tiny choices you make every minute of every hour of every day.
+ - If at all possible, commune with nature daily.
+ - Great achievement often happens when our backs are up against the wall. Pressure can actually enhance your performance.
+ - Be kinder than expected.
+ - Fear is nothing more than a mental monster you have created, a negative stream of consciousness.
+ - Scared is the price brave people pay to enjoy lives that make history.
+ - Peak performers replace depletion with inspiration on a daily basis.
+ - The more fears we walk through, the more power we reclaim.
+ - No matter how big a house you have or how slick a car you drive, the only thing you can take with you at the end of your life is your conscience.
+ - The great danger of being around un-excellent people is that you start to become like them without even knowing it.
+ - If you want to put far more living in your life, start living every day as if it was your last.
+ - Self knowledge is the stepping stop to self mastery.
+ - It’s amazing how far you will get by just staying with something long enough. Most people give up too early.
+ - Know that the thing that is easiest to do is rarely the thing that is best to do.
+ - People will not lend you a hand until you first touch their hearts.
+ - To have everything you want, help as many people as you can possibly find get everything they want.
+ - Measure the success of your days by the lives touched vs the hours passed.
+ - The more you stop giving power to your excuses, the more you’ll send power to your dreams.
+ - The project you are most resisting carries your greatest growth.
+ - The most precious resource for businesspeople is not their time. It’s their energy. Manage it well.
+ - It takes a big person to avoid small worries.
+ - Everything that scares you is an opportunity to know your best self better.
+ - An amazing performance is always a reflection of awesome amounts of practice.
+ - Never miss a moment to encourage someone you work with.
+ - Making money isn’t a bad thing at all – it allows for a lot more freedom.
+ - Dedicate yourself to expressing your best.
+ - Giving with the intention of receiving really isn’t giving, it’s trading.
+ - Miss life’s simplest blessings and you’ll miss out on life’s greatest joys.
+ - You can’t become legendary if you have no energy.
+ - To triple the growth of your organization, triple the growth of your people.
+ - Your greatest asset is your learning ability. The ordinary stroke their egos – the exceptional polishes their craft.
+ - Aging only happens to people who lose their lust for getting better and disconnect from their natural base of curiosity.
+ - I believe we can accelerate our acumen, performance and success by leveraging our associations and spending time with people better than us.
+ - The fears you don’t face imprison you.
+ - Behave like the human being you wish all would be.
+ - Today, rather than looking for the worst in people, I encourage you to look for what’s best within them.
+ - Fearlessness isn’t a place your reach. It’s a commitment you make.
+ - Success isn’t something that occurs. Success is something that you create.
+ - What distinguishes success from failures is that the successes constantly thirst for new ideas and knowledge.
+ - Things are not as bad as it seems. The situations that cause us sorrow are the same ones that introduce us to the strength, power and wisdom that we truly are.
+ - Goal-getting matters. And writing down the brave acts and bold dreams you intend to accomplish will provide the spark to get them done.
+ - We become happier not by accumulating more things but by creating richer experiences.
+ - Take care of your dreams. Or your fears will care for them for you.
+ - If your in business your in show business. The moment you get to work your on stage. Give your performance of your life.
+ - Measure your net worth not by how much you have, but by many people you impact.
+ - The moment we think we’re masters of our crafts is the moment we’ve lost the hunger to become masters of our crafts.
+ - Some disappointment is always the price of brave dreaming.
+ - Fear only become powerful when you give it your power.
+ - When we waste our time, our time wastes us.
+ - We can Fire a missile across the world with pinpoint accuracy, but we trouble keeping a date with our children to go to the library.
+ - Excellence in one area is the beginning of excellence in every area.
+ - A strong foundation at home sets you up for a strong foundation at work.
+ - The true value of a big dream is who you must grow into to live that dream.
+ - Don’t just parent your kids, develop them.
+ - If you only take small risks, you are only entitled to a small life.
+ - The gift of achievement is not the things you get, but the person you become.
+ - If the world watched how you worked today, would the world rise to its feet and applaud?
+ - Happiness is the offspring of concentrated action. Excellence is achieved through the progressive realization of incremental goals along the path of your life’s mission.
+ - All of the great geniuses of the world were inspired and driven by their desire to enrich the lives of others.
+ - Once every seven days, do something that frightens you. Every time we do something that we resist and is frightening, we actually grow in our power.
+ - Your creativity comes from the universal source of all creation, the source of all intelligence and wisdom.
+ - As we each express our natural genius, we all elevate our world.
+ - Every great advancement was once nothing more than a dream in the mind of a visionary.
+ - To refuse to accept the call of your best life is to insult the force that created you.
+ - Money is the reward for risks taken, value delivered and promises kept.
+ - Before you can come to know your purpose, you must come to know yourself.
+ - You can’t get to genius on a platform of excuses.
+ - What this game’s really about is using each day as a platform to express your greatness.
+ - One of the primary tactics for enduring winning is daily learning.
+ - It generally takes about 10 years to become an overnight sensation.
+ - You must spend time every day, even if it is just a few minutes, in practice of creative envisioning.
+ - Every day can be a platform to get you closer to your mountaintop. And yet, too many people live life by accident.
+ - Either you set your goals and, in doing so, have your life governed by choice or you do nothing and have your life governed by chance.
+ - You were born into fearlessness, but the world may have taught you to fear.
+ - What makes us fully human is the relentless quest for making things a little bit better.
+ - The place where failure happens is also the place where courage lives.
+ - Few things feel as unbelievably great as working out hard.
+ - The purpose of fear is to determine how badly you want your dream.
+ - Accept your teammates for what they are and inspire them to become all they can be.
+ - Love what you have. And then go for what you want.
+ - The less you are like others, the less others will like you.
+ - Because the moment you stop doing the very things that got you to the top of the mountain is the very moment you begin the slid down to the valley.
+ - Books simply help you to see what is already within your self. That’s what enlightenment is all about.
+ - The more successful you and your organization become, the more humble and devoted to your customers you need to be.
+ - The most satisfied and enlightened people realize that successful and dynamic living starts from within. Before you can care for others, you must care for yourself.
+ - You can’t have all you want remaining who you currently are.
+ - All things being equal, the primary competitive advantage of your business will be your ability to grow Leaders Without Titles faster than your industry peers.
+ - The moment you conquer one fear is the minute you conquer many fears.
+
+489 quotes

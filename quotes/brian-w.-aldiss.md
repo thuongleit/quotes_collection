@@ -1,0 +1,34 @@
+ - Science fiction is for real, space opera is for fun.
+ - When childhood dies, its corpses are called adults and they enter society, one of the politer names of hell. That is why we dread children, even if we love them, they show us the state of our decay.
+ - Relax, enjoy yourself. Have another drink. It’s patriotic to overconsume.
+ - My briefest ever definition of science fiction is ‘Hubris clobbered by Nemesis.’
+ - There are two kinds of writer: those that make you think, and those that make you wonder.
+ - Civilization is the distance man has placed between himself and his excreta.
+ - It’s a national failing to think of politics as something that goes on in Parliament. It isn’t; it’s something that goes on inside us.
+ - The misfortune of a young man who returns to his native land after years away is that he finds his native land foreign; whereas the lands he left behind remain for ever like a mirage in his mind. However, misfortune can itself sow seeds of creativity. – – Afterword to “Hothouse” Brian Aldiss.
+ - Most of my poetry lies beyond the SF field, yet here I am corralled into ‘SF poetry’ as part of this poetry weekend. Of course, some might say, ‘you’ve made your own bed – now you must lie in it!’ But, while fully accepting that dictum, I’m not yet quite prepared to lie down...
+ - The prose poem Walk The Red Road is great stuff and deserves to be read aloud. It compares quite favorably to The Walls Of Emerald by Li Chiang Yen, a Chinese poet of the late Tang period.
+ - Fantasy is literature for teenagers.
+ - Science fiction is no more written for scientists than ghost stories are written for ghosts.
+ - I am a writer and always was; being a writer is an integral part of my identity. Being published, being well regarded, is a component of that identity.
+ - To be a standard shape is not all in life. To know is also important.
+ - However you envisage your role in life, all you can do is perform it as best you can.
+ - Whatever creativity is, it is in part a solution to a problem.
+ - Obeying an inalienable law, things grew, growing riotous and strange in their impulse for growth.
+ - The day of the android has dawned.
+ - The feat represents immense achievement for the neotenic ape, species Homo sapiens. But behind this lie twooldattributesoftheapetribalismandinquisitiveness.
+ - Most SF is about madness, or what is currently ruled to be madness; this is part of its attraction – it’s always playing with how much the human mind can encompass.
+ - What were several fewer species of animals compared with a hundred-mile advance and another medal on another general?
+ - When knowledge becomes formulated into a science, then it does take on a life of it’s own, often alien to the human spirit that conceived it.
+ - I’ve no objection to morality, except that it’s obsolete.
+ - Feedback is a pleasant thing. I get a lot of letters from unexpected people in unexpected places.
+ - If more people had put their fellow human beings before abstractions last century, we shouldn’t be where we are now.
+ - Why had I become a writer in the first place? Because I wasn’t fit for society; I didn’t fit into the system.
+ - The shuffle only demonstrated people’s fatuous belief in a political cure for a human condition.
+ - Man was an accident on this world or it would have been made better for him!
+ - I can’t help believing that these things that come from the subconscious mind have a sort of truth to them. It may not be a scientific truth, but it’s psychological truth.
+ - I have had wealth, rank and power, but, if these were all I had, how wretched I should be.
+ - I was hardly fit for human society. Thus destiny shaped me to be a science fiction writer.
+ - It is comparatively easy to become a writer; staying a writer, resisting formulaic work, generating ones own creativity – thats a much tougher matter.
+
+32 quotes

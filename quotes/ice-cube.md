@@ -1,0 +1,131 @@
+ - If the day did not require an AK then it was good.
+ - My problem is that I never get through the whole book. I skim through this one, that one, and then the other one.
+ - For my birthday, buy me a politician!
+ - I’m always happy. I’ve just got a mean face.
+ - Don’t worry about being a star, worry about doing good work, and all that will come to you.
+ - I think the worst thing you can do about a situation is nothing.
+ - With film, I have to be a team player; it’s a whole different thing. I can’t just be a one-man show. I have to learn how to use people to the best of their ability and motivate them to be as passionate about the project as I am.
+ - The hardest period for a writer is the period in-between writing. That’s when you can go crazy if you don’t allow the creative juices to flow.
+ - Truth is the ultimate power. When the truth comes around, all the lies have to run and hide.
+ - I think, to me, reality is better than being fake.
+ - I wake up at 5:30, 6 in the morning, but don’t head into the office right away. I like to hang out with my wife, talk about things, get some coffee, you know.
+ - Went to the shelf and dusted off the AK, cops gotta get pealed.
+ - Never question the size of Ice Cube’s balls!
+ - I think I’m unique to the game ’cause of my versatility.
+ - Rap is always evolving. It’s easy for the old school to hate the new school, but it’s a music that got a little stifled I think, by the Internet a little bit.
+ - Nobody I know got killed in South Central LA. Today was a good day.
+ - Rap is just somebody getting something off his chest. That’s all it is.
+ - When I was six, God was a white man with a big beard riding on a white cloud. That’s the image television pumps.
+ - I make a mean cup of coffee, if you give me the right ingredients.
+ - My worst ever car was a green Datsun B210, back when they called it ‘Datsun’ – now it’s ‘Nissan.’ Very unsexy, unattractive. Girls hated the car. I was embarrassed to even be in it but it was my transportation.
+ - I love music. It’s freedom, a way to deal with pent-up frustration.
+ - Humpty Dumpty sat on the wall with a joint, drinking some eight-ball.
+ - If you give anybody the chance, they can always make a decent human being out of themselves. It’s the people that don’t have a chance, that we look down at like they’re monsters or they’re animals or that they want something different than the rest of us.
+ - I’m not actually from Compton – I’m from South Central Los Angeles, and my father still lives in the same house I grew up in, so I’m there all the time.
+ - There’s never really been a real hood Christmas movie.
+ - I have a really beautiful life right now, so there is no reason to be hostile. I’m a husband, a father and a man who tries to do the right thing in life and in my work.
+ - Any time there’s racism somewhere in sports, we should get it out of there because sports is a place where everything’s supposed to be fair.
+ - You can do anything in the world if you say “Hey man, don’t blame me, the devil made me do it.” It’s an easy way to escape responsibility.
+ - If you born in the mud, you gonna be dirty, and people don’t understand that.
+ - Don’t talk about death, I’ve got too much life to live, To many orders to give.
+ - My son Darrel could recite ‘Straight Outta Compton’ at two years old. He loved it! You can expose your kids to anything as long as you sit there and explain it to them.
+ - Everybody who comes from the gangster life – they want what that man in the suburbs wants. Nice family. Nice house. Nice cars. Bills paid. Kids in school. Food on the table. Nothing more.
+ - I’ve done movies for certain reasons; I did ‘Anaconda’ because the black man lives. Simple. The black man isn’t dead in the first three pages, like Jurassic Park. It’s like, ‘The black man kills the snake with a Latino girl? Damn! I got to do this.’
+ - You like a woman, she’s got kids, it’s a package. You can’t just go in one-sided.
+ - Go down to the corner store and beat the Jap up, clean all the crap up.
+ - You wanna be remembered for making an impact and changing things. I guess for the good or for the bad, it don’t matter. But I guess you just wanna be remembered when it’s all said and done.
+ - We’ll burn your store right down to a crisp.
+ - I used to game a lot, you know, back in the day. My gaming time done got so short that my skills ain’t where they need to be to be online, you know what I’m saying? I just got that Xbox One. I gotta get my skills back, up the par to call myself a gamer.
+ - Get a grip, Oreo, and be true to the game.
+ - The moral is that a career can be gone in an instant. And all you have in this world are the people you love.
+ - You don’t wanna mess up what you’ve done. It’s like Jordan coming back: You’re scared to mess up the legacy.
+ - What I learned from architectural drafting is that everything has to have a plan to work. You just can’t wing it. I can’t get all the materials I need for a house and just start building. Whether it’s a career, family, life – you have to plan it out.
+ - My son, O’Shea. He looks like me, and he can rhyme.
+ - If it was all about me, I’d do a whole lot of pop records, make a whole lot of money, just rake in the dough. But it’s never been all about me. It’s all about being a voice for the voiceless. People who can’t speak for themselves, who don’t have a mic, don’t have a say.
+ - I’m not really into the political game as far as paying politicians and stuff like that, I’m not into that. You do your job, and I’ll do mine.
+ - Our records, if you have a dark sense of humor, were funny, but our records weren’t about comedy. They were about protests, fantasy, confrontation and all that.
+ - It’s funny how people who ain’t never been down there can think that America is so fair and that we should be alright. It’s funny that the people who have their foot on our neck are telling us, ‘Get up. What’s wrong with you?’
+ - I used to love to draw. I didn’t want to go to art class because I felt that would be too corny when I was young, but architectural drafting was the cool thing to do because there was more precision. It taught me a lot about building and structures and doorways and frames and windowsills.
+ - Gangsta to us didn’t have anything to do with Al Capone and stuff like that. It’s just about living your life the way you want to live it. And you’re not going to let nothing stop you.
+ - I want to do more drama. Comedy is the path of least resistance for my company. People know we can do them. People know they get a good response. People want to make them. Who am I to push up against that?
+ - South Central is just who I am.
+ - Don’t get a movie confused with real life. I’m a well-rounded human being like everyone else.
+ - I know that there are obstacles; I know that there are hills to climb, I know there were people before me that made my journey easier and there are people behind me that I have made the journey easier for.
+ - I’m a B-boy at heart. I still like rhyming. It’s just the radio game is like Chinese arithmetic. It’s hard to know what nuts to crack. But I still love music, been dropping music. Never stopped, really.
+ - I usually don’t mind movies that people think go overboard because that’s what art is all about. Art is about pushing us and making us examine ourselves.
+ - I’m trying to cut down a little on eating, on sodium, keep my blood pressure down, which is tough. Because I love food! I do, but it’s unfair how everything that’s bad for you tastes so good, and all the good stuff, veggies and green things, doesn’t match up.
+ - I think rap music is brought up, gangster rap in particular, as well as video games, every other thing they try to hang the ills of society on as a scapegoat.
+ - I have great people, smart people that are around me and we love the challenge. I guess it’s like climbing a mountain or building a building. It’s a challenge but you love every challenge that it brings or presents itself.
+ - I was ready to get out of the box and play something a little different than what everybody has seen.
+ - The best thing I’ve done with my money is buy a house for my family. You wake up to a house you love and you feel like somebody.
+ - I go light on breakfast. Sometimes it’s a yogurt, but a lot of times it’s leftovers from one of my wife’s dinners.
+ - I’m not trying to turn into Eddie Murphy, and just do kids movies the rest of my career. I’m going to still do a wide variety of movies, as well as do hardcore rap.
+ - When my nine goes buck, it will bust your head like a watermelon dropping 12 stories up.
+ - Some people have a taboo about doing advertising in the States. You know, where they kind of make their bread and butter. But to me, that’s crazy.
+ - If you really think back to the culture or just black America before rap music took off, New York could have been Paris.
+ - It’s easier for me to get comedies made because of my track record. Everybody needs to find their niche. I love dramas, but I understand that I am still just a young man in moviemaking. I know there will be some time to get back to that.
+ - The thing is with hip-hop, it has its waves and the waves crash against the beach and the new waves come in. So to stay relevant you have to roll with that.
+ - When you have a good movie, it’s hard to categorize it. It’s everything. It makes you laugh, makes you cry and makes you think.
+ - I figured, when I make a movie, especially earlier in my career, one thing I was going to make sure was that the movie doesn’t cost a lot and that it has potential to make a lot of money. That’s how you get respect in Hollywood.
+ - I really appreciate family. I really can’t imagine life without them!
+ - I’m a good counter comedian. I can just work it off with looks, or have something crazy to say back. That works for me.
+ - Sports without music is just a game. Music makes it entertaining.
+ - I was a very interested arts student, I was always into that part of school and when I got into high school I went into architectural drafting. It gave me an understanding of how to build things and it’s really helped me put things in perspective. With my music and my movies, to me it’s all art.
+ - Hollywood is obsessed with police stories.
+ - Sometimes when you’re relegated to your neighborhood, you forget that there’s more important things than your neighborhood going on out in the world.
+ - I’ve never really taken myself too serious. That’s everybody else, listening to the music or whatever. I’ve always said what I’ve felt, said what I thought was right, but I’ve always had a comedic bone.
+ - I always tell people that if you gave me a pen and a piece of paper when I was a teenager and said, “Write out how you’d like your career to go,” I would have probably short changed myself compared to what it’s been for real. I’m just extremely excited about what I’ve accomplished.
+ - To me, in a perfect world, you have the flavor and the magic of movies like 48 Hours, Lethal Weapon and Bad Boys.
+ - Obama reminds me of the black kid at a white school that don’t nobody want to play with.
+ - Anything that got to do with a pig, I ain’t eatin’.
+ - Early in my career, people wanted to hear music about protest, about trying to change things.
+ - The silver and black may have another home, but the Raiders will always belong to the people of Los Angeles.
+ - Ice Cube is the piece of me that I give away to the public.
+ - We don’t do movies for the industry. We do movies for the fans, for the people. If the industry give you a trophy or not, or pat you on the back or not, it’s nice, but it’s not something you should dwell on.
+ - I’m just an entertainer, man. I don’t like to pigeonhole myself to anything. I love to do it all.
+ - A bird in the hand is worth more than a Bush.
+ - My thing is, I know kids cuss, they do their thing, but I tell my kids, ‘Don’t do it in earshot of any adults, or you’re in trouble.’
+ - I’ve got a basketball signed by all the greats from Julius Irving to Oscar Robinson. It was at an All Star game I got them all to sign it. So that ain’t going nowhere. I’m going to die with that in my casket.
+ - Usually people who attack the rap are people who aren’t even fans.
+ - I always want to read the script before I totally commit.
+ - Music has done a lot to enhance the emotions of sports. It’s played in arenas. Whenever there is footage cut together they’re always using music. And it goes together, you know.
+ - We’re in this entertainment business really to give the audience what they want.
+ - To me, it’s my job not to laugh, no matter what’s said. By the time we shoot, I’m ready for all that’s coming. I probably do most of my breaking in rehearsals, when I know that I can.
+ - I don’t listen to nothing while I’m in the studio, because I don’t want to be influenced by anybody else.
+ - Snoop Dog is the Phil Jackson of youth football coaches. He ain’t going to accept nothing but a winner.
+ - Most actors have to sit by the phone and wait for somebody to call them up to audition and stuff. I don’t think I can exist in Hollywood just on that. I think I need to be proactive and making sure that things I really want to do are being developed to the point where somebody wants to make them.
+ - I know I ain’t too old. I always think of my fans about 10 years older and 10 years younger than me.
+ - I am only 33, I’ve got a lot to do. This is the first half of my career. I’m looking forward to the future and I’m proud about the past.
+ - Everybody that wants to be successful should always be careful of what you wish for. A lot of artists and entertainers want to put the genie back in the bottle and wish they could go back to being what they were.
+ - Doing it your own way, not having to go exactly by the book to be successful.
+ - I’m not the type of actor who is trying to do a whole bunch of different stuff, you know what I mean?
+ - I love any time you can enlighten people to mistakes, that’s how I started my career.
+ - It never gets old. Working with somebody like Kevin Hart is rejuvenating in a lot of ways. He’s such a pro. He’s so good.
+ - I think rap music is the sole reason for a lot of black acceptance in pop culture; because the music is very popular, it gets our image out in other ways than in movies.
+ - I think reading is important in any form. I think a person who’s trying to learn to like reading should start off reading about a topic they are interested in, or a person they are interested in.
+ - Should I peel a cap or should I let him survive?
+ - With comedies, I like to be a producer, because comedies can get corny and go off track real fast.
+ - I don’t get nothing but love. In every ghetto all over the world. Nothing but love. They respect that I came outta there and I’m doing it the right way. You can’t do nothing but respect that.
+ - A lot of people have a misconception of what the ghetto is all about. You know, it’s only a small percentage of the people that are bad. Everybody else is good.
+ - The creative process of making a movie really turned me on. I’d started getting behind the scenes with a camcorder and VHS tape when making music videos.
+ - I don’t do much cooking, but one of my favorite dishes to eat is my wife’s macaroni and cheese.
+ - I grew up in the seventies and disco was big. That influenced me the most.
+ - Rapping is talking and communicating, and that’s always good.
+ - People associate clothes with actual behavior, and it’s kind of crazy. If you get shot in some Levi’s you don’t go after Levi’s. It’s not the clothes. It’s always the people.
+ - Can’t step from one movie set to the next. Only Samuel L. Jackson can do that. All us mere mortals can’t do that!
+ - Creating is really what I like to do. The best thing in the world is to have an idea in the back of your head and then to make that idea into a movie and have people all over the world enjoy it.
+ - I still enjoy doing music. I’m not going to stop doing it, and doing it the way that I feel it should be done.
+ - Do I gotta go sell me a whole lotta crack for decent shelter and clothes on my back?
+ - Young people are dying for no reason all over the world that don’t know why. It’s ugly, everywhere.
+ - Most of the problems that we have are brought on by the government and not by music. Music is a mirror of what we’re going through, not the cause of what we’re going through.
+ - For me rappers and dancers are poets and artists and often times the most interesting performances are given by them.
+ - I’m always the “less is more” guy when it comes to a scene. So I’ma be the one who will keep it grounded. Even if I let it go off and go crazy, I’m still the voice of keeping things grounded in reality.
+ - You don’t have to be super clean to be a super star.
+ - I been all around the world and I haven’t found a city that I’d rather be from or rather come back to than Los Angeles.
+ - If you think about stuff that happened when you were young, it stays with you forever.
+ - I always say the movie came out good if they want another one. That always tells me that people really liked the movie.
+ - I definitely support cop acting more than cops, but all of them ain’t bad, just some of them.
+ - When people see the Cubevision logo, they should know it’s something good, something worth checking out.
+ - A lot of movies will deliver on the promotion but when you go see them, everything you laughed at was in the trailer.
+
+129 quotes

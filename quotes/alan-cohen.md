@@ -1,0 +1,228 @@
+ - All limits exist only in the mind, and it is only in the mind that they can be overcome.
+ - Personal growth is not a matter of learning new information but of unlearning old limits.
+ - Our history is not our destiny.
+ - There is virtue in work and there is virtue in rest. Use both and overlook neither.
+ - The more you let go, the faster you will move ahead.
+ - Life is a gift from God, an unlimited series of opportunities to find the good in ourselves and others. There is good in everything, if we are willing to see it.
+ - Be happy with what you have. Be excited about what you want.
+ - Do what is healing to your spirit and without effort you will bring the world healing in return.
+ - Joy is the wild card of life; it supersedes every other formula for success. If you can find a way to create joy, you can rise beyond all external factors. If you can play at whatever you are doing, you are the master of your life.
+ - Trust who and what you are, and the universe will support you in miraculous ways.
+ - The purpose of prayer is not to change God’s mind, which always knows your wholeness and your deservingness. The purpose of prayer is to change your mind so you can see through the eyes of God.
+ - Do not wait until the conditions are perfect to begin. Beginning makes the conditions perfect.
+ - Those who love you are not fooled by mistakes you have made or dark images you hold about yourself. They remember your beauty when you feel ugly; your wholeness when you are broken; your innocence when you feel guilty; and your purpose when you are confused.
+ - The road to enlightenment is paved with authenticity, not imitation.
+ - It is not selfish or narcissistic to love yourself. It is your first and foremost responsibility.
+ - It is not selfish to be happy. It is your highest purpose. Your joy is the greatest contribution you can make to life on the planet. A heart at peace with its owner blesses everyone it touches.
+ - The deeper you love yourself, the more the universe will affirm your worth.
+ - Humility is born of the spirit, humiliation of the ego.
+ - If you gave your inner genius as much credence as your inner critic, you would be light years ahead of where you now stand.
+ - If you want to find God, hang out in the space between your thoughts.
+ - In the end, we are not the roles we play. We are the light that animates every soul in the dance we call life.
+ - To love yourself right now, just as you are, is to give yourself heaven. Don’t wait until you die. If you wait, you die now. If you love, you live now.
+ - Don’t postpone joy until you have learned all of your lessons. Joy is your lesson.
+ - Less rules, more intuition.
+ - Quit planning your dream and start living it.
+ - Dance on the edge of mystery.
+ - To make the world a better place, see the world as a better place.
+ - It is not insult from another that causes you pain. It is the part of your mind that agrees with the insult. Agree only with the truth about you, and you are free.
+ - When you learn to say yes to yourself, you will be able to say no to others, with love.
+ - Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.
+ - Be a creator, not a reactor.
+ - Today I set my mind and heart on a new path. I focus my energy on love, appreciation, and my highest possibilities.
+ - Be kind to everyone, and don’t leave yourself out of the equation.
+ - A possibility thinker notices a problem just long enough to get excited about the solution.
+ - You are in integrity when the life you are living on the outside matches who you are on the inside.
+ - So money is not the answer to problems; wealth mentality is.
+ - To grow, you must be willing to let your present and future be totally unlike your past. Your history is not your destiny.
+ - There are two kinds of people in the world: those who make excuses and those who get results. An excuse person will find any excuse for why a job was not done, and a results person will find any reason why it can be done. Be a creator, not a reactor.
+ - Gratitude, like faith, is a muscle. The more you use it, the stronger it grows.
+ - Life does not require you to sacrifice or compromise your joy to get what you want. Joy is what you want, so when you choose in harmony with it, you are fulfilling your purpose in living.
+ - Busyness is not a reason for not getting other things done. It is an excuse for not claiming your true priorities.
+ - Sometimes when things seem to be going wrong, they are going right for reasons you are yet to understand.
+ - I claim my heart’s desire, and I choose my direction. I will attain my chosen goal.
+ - Life has meaning only if you do what is meaningful to you.
+ - Build your world around your dreams rather than trying to fit your dreams into the world you know.
+ - Everything will line up perfectly when knowing and living the truth becomes more important than looking good.
+ - Everything will change when your desire to move on exceeds your desire to hold on.
+ - Abundance is not a number or acquisition. It is the simple recognition of enoughness.
+ - Success in business depends more on relationships than spreadsheets.
+ - God is a frequency. Stay tuned.
+ - The spiritual path is not one of attainment, but of return.
+ - Every choice before you represents the universe inviting you to remember who you are and what you want.
+ - You weren’t born guilty. You were born bold and playful. Then you forgot who you are and what you deserve. When you remember who you were before you learned to apologize for asking, you’ll have everything you want.
+ - When you want what you want more than you fear what you want, you will have it.
+ - Take care what words you speak that follow “I am.” In so speaking you create your life.
+ - We attain freedom as we let go of whatever does not reflect our magnificence. A bird cannot fly high or far with a stone tied to its back. But release the impediment, and we are free to soar to unprecedented heights.
+ - Half of your power lies in your sameness with others. The other half lies in your uniqueness.
+ - You are doing better than you think you are.
+ - True progress comes not through action, but through awakening.
+ - The purpose of life is not to fight against evil and misfortune; it is to unveil magnificence.
+ - There is more security in the adventurous and exciting, for in movement there is life, and in change there is power.
+ - Don’t talk yourself out of following your heart. Talk yourself into it.
+ - If you sense there must be more, there is more.
+ - The first step to boosting your income is to identify where your passion lives and to be true to it.
+ - When you protect yourself from pain, be sure you do not protect yourself from love.
+ - The only thing more important than being good is being real. Authenticity is kinder than resignation without conviction. Truth leads to good faster than good leads to truth. Ultimately truth is good, but you have to live it from the inside out.
+ - Simply be who you are, do what you do best, be where you are called by joy, and let life work its magic on your behalf.
+ - Use pain as a stepping stone, not a camp ground.
+ - Forget what you’ve been taught so you can remember what you know.
+ - When your sense of worth exceeds your conditions, conditions will shift to match your vision.
+ - If you desire to know where your spiritual work lies, look to your emotional pain.
+ - To change your mind under the direction of the wisdom of the heart is a brush stroke on the masterpiece you are delivering to the world.
+ - The cause of poverty is not scarcity. It is fear and small thinking.
+ - We hurt ourselves not by what we ask for, but what we settle for.
+ - You cannot judge what should bring others joy, and others cannot judge what should bring you joy.
+ - The door you open to give love is the very one through which love arrives.
+ - Life’s gift to you is your unique vantage point. Your gift to life is expressing from it.
+ - True champions are team players.
+ - Scared and sacred are spelled with the same letters. Awful proceeds from the same root word as awesome. Terrify and terrific. Every negative experience holds the seed of transformation.
+ - The people who matter will recognize who you are.
+ - The best way to get what you want is to realize you already have it.
+ - Upgrade your past by seeing it with appreciation.
+ - You believe that a lover will bring you love, but it is your love that will bring you a lover.
+ - You have the power to take away someone’s happiness by refusing to forgive. That someone is you.
+ - Stay aligned with your intentions and your good will find you.
+ - Acts that proceed from your calm center are always more effective than acts that proceed from fear, guilt, or anger.
+ - What your heart desires is not too good to be true. It is good enough to be true.
+ - You can be helping many people, but if you are not helping yourself, you have missed the one person you were born to heal.
+ - Love is heaven and fear is hell. Where you place your attention is where you live.
+ - Everyone and everything that shows up in our life is a reflection of something that is happening inside of us.
+ - The point of life is not to be married or single – it is to be. We are human beings, or humans being. It does not matter so much what lifestyle we choose – it’s what we make of the opportunities to grow, that counts.
+ - Guilt: punishing yourself before God doesn’t.
+ - Be clear on where you are and where you want to go and you will get there. It can be the best year of your life.
+ - Money is but one venue for generosity. Kindness is an even more valuable currency.
+ - The more you invest in your happiness, the more happiness will invest in you.
+ - Your brilliance comes from your spirit. To deny it is arrogance. To accept it is humility.
+ - An authentic life does not require anyone else’s approval for your creative choices.
+ - The ego tells you to fill space. Your spirit tells you to let space fill you.
+ - You need not wrestle for your good. Your good flows to you most easily when you are relaxed, open, and trusting.
+ - Don’t try to lose weight. Take delight in gaining fitness.
+ - To be a miracle worker you do not have to get a doctoral degree, become a minister, eat a particular food, or be able to meditate for long hours. All you need to do is to begin to see beauty in your life and those around you.
+ - Truly creative people care a little about what they have done, and a lot about what they are doing. Their driving focus is the life force that surges in them now.
+ - Inner peace: Don’t leave home without it.
+ - Your thoughts do not create reality, but they do create your experience.
+ - Preparing to live your dream is postponing it. You are either living it, or not.
+ - If one person is happier because you have lived, it is all worth it. And if you are that person, God is well pleased.
+ - Work may be your dominant thought, and joy an afterthought. But joy is your true purpose, and work the afterthought.
+ - To be content means that you realize you contain what you seek.
+ - The spirit of love arranges all meetings in divine order for the highest good of all concerned.
+ - The people who are successful are those who are grateful for everything they have. Giving thanks for what we have always opens the door for more to come, and ungratefulness always closes the door.
+ - As you recognize that you already own the wholeness you seek, and no one outside you can give you more than you already are, dysfunctional situations will evaporate like bad dreams exposed to the morning sun.
+ - You are not a black hole that needs to be filled; you are a light that needs to be shined.
+ - Your life is not a problem to be solved, but an adventure to be enjoyed. You are doing better than you think.
+ - When you invest your time and energy in stuff that drags you down, you die a little bit every day.
+ - Do not resist events that move you out of your comfort zone, especially when your comfort zone was not all that comfortable.
+ - Only those who ask for more can get more and only those who know there is more, ask.
+ - You won’t be happy anywhere until you’re happy somewhere.
+ - Don’t use the past as an excuse to miss out on your future.
+ - The more you recognize the immense good within you, the more you magnetize immense good around you.
+ - Spirit Math: The quality of your life equals the ratio of appreciation to complaint.
+ - To think you know what is best for another person is an industrial-strength ego trip.
+ - If you have to have it, it’s ego. If you have to not have it, it’s ego. Hold life lightly and it will deliver what you need and release what you don’t.
+ - Keep memories of insult on a short leash, and memories of blessing on a long one.
+ - How would I be doing this differently if I were WILLING to let it be easy?
+ - While there seem to be many things to manage in the world, the most important thing to manage is your consciousness.
+ - One moment of true forgiveness can erase years of guilt, pain, or fear.
+ - Joy is not the result of getting what you want; it is the way to get what you want. In the deepest sense, joy is what you want.
+ - The difference between famous creators and struggling artists is that the creators know that improving the lives of others deserves the highest reward.
+ - People will pay me to feel the passion and energy I breathe into my career and creations.
+ - One of the best ways to realize that age is an illusion is to have your body get older and realize that you are who you always have been.
+ - Gratitude incorporates both the heart and mind, and instantly paves the shortest road to happiness.
+ - Happiness has little to do with what is going on around you, and a lot to do with what is going on inside you.
+ - The apparent goal of the journey is simply the carrot the universe dangles before you to get you to learn the lessons the adventure yields.
+ - It takes a lot of courage to release the familiar and seemingly secure, to embrace the new. But there is no real security in what is no longer meaningful.
+ - The only real knowledge is who you really are – a spiritual being created in the image in the likeness of a loving God. If you know that, everything you do will honor the wisdom and beauty you already own.
+ - The fire of purpose easily melts the icicles of obstacles.
+ - I’ve been a musician since I was nine. I think a ghost or goblin visited me in the night. Maybe aliens abducted me, or a divine figure sent me a spiritual memo. Who knows.
+ - Happy people do not demand a lot from the world because their happiness proceeds from a place deeper than the world can touch.
+ - Rules are the offspring of fear. If everyone trusted and followed their true inner spirit, the world would function flawlessly.
+ - Money is your friend. Your body is your friend. Life is your friend.
+ - Ask for peace first, and you will clearly see your next step.
+ - Revisit your past only to recognize how far you have come.
+ - Fantasy is often closer to reality than what most people accept as reality.
+ - You will find truth more quickly through delight than gravity. Let out a little more string on your kite.
+ - Give people permission to be who they are and they will love, thank, and respect you forever.
+ - To seek greatness outside yourself is turn your back on the treasure within.
+ - You are destined to become the peer of those you most respect because the greatness you perceive in them is your own.
+ - You give your power away when you make someone or something outside of you more important than what is inside of you.
+ - We can look at any experience in two ways: through the eyes of lack, or the eyes of plenty. Fear sees limits, while love sees possibilities. Each attitude will be justified by the belief system you cherish. Change your allegiance from fear to love, and love will sustain you wherever you walk.
+ - Our noblest purpose in life is to remember our spiritual nature in the face of suggestions that we are a material society.
+ - The words “genius” and “genuine” derive from the same root. The core of genius is authenticity.
+ - What a doctor or healer tells you is a reflection of the beliefs and expectations you hold. Change your beliefs and you change the prognosis. Who is the doctor? The mind of the patient.
+ - Because fear is insatiable, everything that is insatiable is born of fear.
+ - Keeping your commitment to your purpose does not depend on other people keeping theirs.
+ - If you are losing your peace in your quest for peace, you are not on the road to peace. The road to peace is peace.
+ - You own what you own not by money or force, but by your love for it and your inner connection to it.
+ - We attain freedom as we let go of whatever does not reflect our magnificence.
+ - A happy ending is always possible if you are willing to keep the story moving to get there.
+ - Anger is the ego’s way of cloaking fear to make what is frail seem formidable.
+ - Successful people pay more attention to their visions and goals than to history and the opinions of others.
+ - I give myself the kindness and forgiveness I would show others.
+ - When confronted with a situation that appears fragmented or impossible, step back, close your eyes, and envision perfection where you saw brokenness. Go to the inner place where there is no problem, and abide in the consciousness of well-being.
+ - Will you ever run out of creative ideas and expressions? Ha! The more creative ideas you have, the more you will discover. Creativity is a tree with countless branches that never stop blossoming.
+ - Enlightenment does not ask you to be perfect; it simply asks you to find perfection right where you stand.
+ - Great masters merit emulation, not worship.
+ - We learn early on that, in order to be a winner, you have to believe in yourself. You have to have the confidence to make things happen. And you have to have personal pride.
+ - I tend to write songs fast, so the process usually only lasts around 30 minutes. In the studio is where I really can artistically breathe, and let my ideas flow.
+ - Evaluate every act by whether it brings you greater life, or deadens you.
+ - The world would have you agree with its dismal dream of limitation. But the light would have you soar like the eagle of your sacred visions.
+ - No matter what has happened, let today be new.
+ - Anyone in a state of seeking can never be happy. Only those who are constantly finding are fulfilled. And finding is not something that happens to us – it is something we do.
+ - Your greatest contribution to helping other people live their destiny is for you to live your own.
+ - For everyone you create to be dependent on you, you are equally dependent on them. Neither relationship is healthy.
+ - There is no real security in what is no longer meaningful.
+ - Kindness to self will put you in the perfect attitude and position to be kind to others.
+ - What you go through is nothing compared to who you are.
+ - You can always tell what you believe by what you are getting.
+ - Those who do not forgive history are assigned to repeat it until compassion replaces judgment.
+ - Every experience empowers you twice: First when you enter into it with a whole heart, and again when you leave it with a whole heart.
+ - Abundance is not a situation- it is an attitude.
+ - Since you are the one who has to live with your choices, be sure they are your own.
+ - Every musician I have ever heard has influenced me. I often find I emulate micro-aspects of an artist, and combine it to form something new and unique.
+ - In the end, we shall recognize our song and sing it well. You may feel a little warbly at the moment, but so have all the great singers. Just keep singing and you’ll find your way home.
+ - Laughter lifts us over high ridges and lights up dark valleys in a way that makes life so much easier. It is a priceless gem, a gift of release and healing direct from Heaven.
+ - When we enter into any relationship with the premise that we are empty and the other person will fill us in, we are sure to fail. We can only win when we proceed from wholeness.
+ - Focus on the highest, clearest, and most meaningful teaching you can find, and let all else go.
+ - After you have made your commitment to say no to what no longer serves you, you will probably be invited to demonstrate that you really mean it.
+ - The difficulties of life do not keep you from greatness. They show you to its door.
+ - If you act anxiously to hasten your results, you delay their arrival. Calm poise reveals the shortest route home.
+ - Turmoil is a call for awakening. Every challenge, great or small, is moving you to look deeper and draw forth the highest in you. You’re never given a challenge beyond your ability to meet and master. You’ll rise above every circumstance because you’re greater than any circumstance.
+ - Put aside ambition for public recognition, and simply do what you do because it feels good inside.
+ - People who do not need to please are irresistible because they radiate wholeness, a rare delicacy in a world of hungry hearts.
+ - The universe always gives you more of what you are focusing on.
+ - The thoughts you think when you are happiest are the closest to the truth.
+ - Spirit is a more accurate measure of success than the ruler.
+ - You change the past when you change the way you see it.
+ - Mind is the cause; everything else is effect.
+ - The love affair you seek is with yourself.
+ - If you want peace, look for it where it is, not in conflict.
+ - Great masters neither want nor need your worship. Your greatest gift to them and yourself is to emulate their divinity by claiming it as your own.
+ - Eternity does not start after you die; it begins when you really live.
+ - Teach yourself freedom with the same zeal that the world has taught you limits.
+ - You can only see in someone else what you see in yourself.
+ - You cannot instill joy. You can only find where it lives and bring it forth.
+ - Nothing in the outer world makes you feel any way. You decide what you want to feel, and then use outer people and events as permission slips to execute your feeling agenda.
+ - Only the ego resists egos. The spirit may notice egos, but sees beyond them and does not engage with them.
+ - You always have energy to do what you are passionate about.
+ - All of your errors have not built a wall against your success. They have paved your way to it.
+ - The same source that gave you the idea, will give you the means to see it through.
+ - Appreciation empowers not just money transactions, but all interactions. Gratitude is one of the greatest meditations of a lifetime, the fastest attitude uplifter I know. Be grateful for all the good in your life and your good will only increase, along with your happiness.
+ - The more you live by external shoulds, the farther you drift from the power inherent in your own spirit.
+ - Everything that you need to succeed has been given to you.
+ - You do not need to import greatness from another; you just need to act on your own.
+ - Anger is a call for awareness.
+ - The people who are successful are those who are grateful for everything they have.
+ - Live your spirit’s dreams, not your mind’s.
+ - Anything you believe you have to do or become before you can be free is a denial and distraction from the truth that you are already free.
+ - What are you accepting that would not be a part of your ideal day?
+ - Whatever you think and talk about paves the runway for what you will create.
+ - No one can bother you unless you agree with them.
+ - Why wait for your ship to come in when you are already on it?
+ - As soon as you become aware that something is not working, immediately shift your focus to the desired result.
+ - Waiting does not exist in the experience of those who recognize the presence of love wherever they are.
+ - The world you see is less of an indication about the world and more of an indication about your seeing.
+ - Blessed are those who are so naive that they do not know what they cannot do.
+ - The freest people I know are those who have the least to hide, defend or protect. Naked is powerful.
+
+226 quotes

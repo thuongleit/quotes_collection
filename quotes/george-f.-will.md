@@ -1,0 +1,169 @@
+ - The future has a way of arriving unannounced.
+ - The nice part about being a pessimist is that you are constantly being either proven right or pleasantly surprised.
+ - Chicago Cubs fans are ninety percent scar tissue.
+ - Pettiness is the tendency of people without large purposes.
+ - Leadership is, among other things, the ability to inflict pain and get away with it – short-term pain for long-term gain.
+ - Modern man’s capacity for destruction is quixotic evidence of humanity’s capacity for reconstruction. The powerful technological agents we have unleashed against the environment include many of the agents we require for its reconstruction.
+ - All politics takes place on a slippery slope. The most important four words in politics are up to a point.
+ - Civilization depends on, and civility often requires, the willingness to say, ‘What you are doing is none of my business’ and ‘What I am doing is none of your business.’
+ - Sports serve society by providing vivid examples of excellence.
+ - I grew up in central Illinois midway between Chicago and St. Louis and I made an historic blunder. All my friends became Cardinals fans and grew up happy and liberal and I became a Cubs fan and grew up embittered and conservative.
+ - Political nature abhors a vacuum, which is what often exists for a year or two in a party after it loses a presidential election.
+ - National security rests on the credible threat of a form of warfare universally condemned since the Dark Ages, the wholesale slaughter of noncombatants.
+ - In democracy, as quaintly understood, voters pick their representatives. American democracy increasingly reverses that. Legislative districts are drawn to protect incumbents who, effectively, pick their voters.
+ - The cultivation – even celebration – of victimhood by intellectuals, tort lawyers, politicians and the media is both cause and effect of today’s culture of complaint.
+ - Conservatives define themselves in terms of what they oppose.
+ - In 1976, Jimmy Carter – peanut farmer; carried his own suitcase, imagine that – somewhat tapped America’s durable but shallow reservoir of populism. By 1980, ordinariness in high office had lost its allure.
+ - Freedom is the silence of the law.
+ - The future is usually just like the past- right up to the moment when it isn’t.
+ - Good biology without good philosophy will be a calamity.
+ - The essence of constitutionalism in a democracy is not merely to shape and condition the nature of majorities, but also to stipulate that certain things are impermissible, no matter how large and fervent a majority might want them.
+ - Baseball, it is said, is only a game. True. And the Grand Canyon is only a hole in Arizona. Not all holes, or games, are created equal.
+ - It is said that God gave us memory so we could have roses in winter. But it is also true that without memory we could not have self in any season. The more memories you have, the more you have. That is why, as Swift said, No wise man ever wished to be younger.
+ - If you seek Hamilton’s monument, look around. You are living in it. We honor Jefferson, but live in Hamilton’s country, a mighty industrial nation with a strong central government.
+ - A politician’s words reveal less about what he thinks about his subject than what he thinks about his audience.
+ - The Berlin Wall is the defining achievement of socialism.
+ - Baseball exemplifies a tension in the American mind, the constant pull between our atomistic individualism and our yearning for community.
+ - We know next to nothing about virtually everything. It is not necessary to know the origin of the universe; it is necessary to want to know. Civilization depends not on any particular knowledge, but on the disposition to crave knowledge.
+ - The unpleasant sound Bush is emitting as he traipses from one conservative gathering to another is a thin, tinny “arf” – the sound of a lap dog.
+ - Greek philosophers considered sport a religious and civic-in a word, moral-undertaking. Sport, they said, is morally serious because mankind’s noblest aim is the loving contemplation of worthy things, such as beauty and courage.
+ - We are suffering from a kind of slow-motion barbarization from within.
+ - Capital punishment, like the rest of the criminal justice system, is a government program, so skepticism is in order.
+ - Term limits would make Congress bolder, more independent, and less risk-averse.
+ - Nationalism is blamed for this century’s wars, but nationalism need not mean militarism. And the nation-state has been the laboratory of liberty.
+ - Football combines the two worst things about America: it is violence punctuated by committee meetings.
+ - One radical free spirit nonconformist is pretty much like another.
+ - Twenty years ago rooting for the Yankees was like rooting for IBM.
+ - Correct thinkers think that ‘baseball trivia’ is an oxymoron: nothing about baseball is trivial.
+ - I suppose there’s a melancholy tone at the back of the American mind, a sense of something lost. And it’s the lost world of Thomas Jefferson. It is the lost sense of innocence that we could live with a very minimal state, with a vast sense of space in which to work out freedom.
+ - I say statecraft is soulcraft. Just as all education is moral education because learning conditions conduct, most legislation is moral legislations because it conditions the action and the thought of the nation in broad and important spheres in life.
+ - They are supposed to be dispassionate dispensers of Pure Justice, icy islands of emotionless calculation. In short, umpires should be acute Republicans.
+ - Perhaps the soundest advice for parents is: Lighten up. People have been raising children for approximately as long as there have been people.
+ - The phrase ‘domestic cat’ is an oxymoron.
+ - The Holy Roman Empire was neither holy nor Roman nor an empire, the United Nations is a disunited collection of regimes, many of which do not represent the nations they govern.
+ - It is axiomatic: When there is no penalty for failure, failures proliferate.
+ - The almost erotic pleasure of spending money that others have earned and saved is one reason people put up with the tiresome aspects of political life.
+ - All children find chaos congenial. Any unruliness, even by nature, advances the child’s program of subverting authority.
+ - Baseball is Heaven’s gift to mortals.
+ - Taking offense has become America’s national pastime; being theatrically offended supposedly signifies the exquisitely refined moral delicacy of people who feel entitled to pass through life without encountering ideas or practices that annoy them.
+ - Popularity makes no law invulnerable to invalidation. Americans accept judicial supervision of their democracy – judicial review of popular but possibly unconstitutional statutes – because they know that if the Constitution is truly to constitute the nation, it must trump some majority preferences.
+ - The proof of liberal virtue is generousity with other people’s money.
+ - The business of America is not business. Neither is it war. The business of america is justice and securing the blessings of liberty.
+ - The Soviet Union tried for 70 years to plant Marxism with bayonets in Eastern Europe. Today there are more Marxists on the Harvard faculty than there are in Eastern Europe.
+ - It is extraordinary how extraordinary the ordinary person is.
+ - Creative semantics is the key to contemporary government; it consists of talking in strange tongues lest the public learn the inevitable inconveniently early.
+ - Remember Henry Adam’s jest that the succession of presidents from Washington to Grant disproved the theory of evolution?
+ - Americans are conservative. What they want to conserve is the New Deal.
+ - Fish have got to swim. Birds have got to fly, and Clintons have to run for office. It’s what they do. It’s a metabolic urge. That’s all they’ve done their entire life is borrow money from rich people to seek public office.
+ - It is no longer enough to be lusty. One must be a sexual gourmet.
+ - If your job is to leaven ordinary lives with elevating spectacle, be elevating or be gone.
+ - The case for democracy is not esthetic.
+ - The theory is that election to Congress is tantamount to being dispatched to Washington on a looting raid for the enrichment of your state or district, and no other ethic need inhibit the feeding frenzy.
+ - Sports is a moral undertaking because it requires of participants, and it schools spectators in the appreciation of, noble things – courage, grace under pressure, sportsmanship.
+ - Donald Trump is redundant evidence that if your net worth is high enough, your IQ can be very low and you can still intrude into American politics.
+ - The euro pleases dispirited people for whom European history is not Chartres and Shakespeare but the Holocaust and the Somme. The euro expresses cultural despair.
+ - The most important business of one generation is the raising of the next generation. Nothing else you do in life will be as deeply satisfying...
+ - I hear Democrats say, ‘The Affordable Care Act is the law,’ as though we’re supposed to genuflect at that sunburst of insight and move on. Well, the Fugitive Slave Act was the law, separate but equal was the law, lots of things are the law and then we change them.
+ - Baseball is a habit. The slowly rising crescendo of each game, the rhythm of the long season – these are the essentials and they are remarkably unchanged over nearly a century and a half. Of how many American institutions can that be said?
+ - Some parents say it is toy guns that make boys warlike. But give a boy a rubber duck and he will seize its neck like the butt of a pistol and shout ‘Bang!’
+ - Football brings out the sociologist that lurks in some otherwise respectable citizens. They say football is a metaphor for America’s sinfulness.
+ - The liberal agenda: Being good to liberals.
+ - Hyperbole expands in societies where articulateness atrophies.
+ - Revisiting the Revolutionary War is a bracing reminder that the fate of a continent, and the shape of the modern world, turned on the free choices of remarkably few Americans defying an empire.
+ - Politics should share one purpose with religion: the steady emancipation of the individual through the education of his passions.
+ - A society that thinks the choice between ways of living is just a choice between equally eligible ‘lifestyles’ turns universities into academic cafeterias offering junk food for the mind.
+ - Politics in a democracy is transactional: Politicians seek votes by promising to do things for voters, who seek promises in exchange for their votes.
+ - Voters don’t decide issues, they decide who will decide issues.
+ - We are given children to test us and make us more spiritual.
+ - I’ve lived in Washington now for 44 years, and that’s a lot of folly to witness up close. Whatever confidence and optimism I felt towards the central government when I got here on January 1, 1970 has pretty much dissipated at the hands of the government.
+ - Modern Americans travel light, with little philosophic baggage other than a fervent belief in their right to the pursuit of happiness.
+ - A decrease in the quantity of legislation generally means an increase in the quality of life.
+ - Society flourishes when and only when its molecular unit, the family, flourishes. We know that lasting improvement comes only in the small increments produced by individuals adhering to the simple rules of life...
+ - Well, you know, the definition of second marriage is the triumph of hope over experience.
+ - Liberalism is wrong because it doesn’t work. If a company is too big to fail, it is too big to exist.
+ - Overcriminalization has become a national plague.
+ - Long before Einstein told us that matter is energy, Machiavelli and Hobbes and other modern political philosophers defined man as a lump of matter whose most politically relevant attribute is a form of energy called self-interestedness. This was not a.
+ - Actually, there is only one first question of government, and it is How should we live? or What kind of people do we want our citizens to be?
+ - Money is time made tangible – the time invested in the earning of it. Taxation is the confiscation of the earner’s time. Although some taxation is necessary, all taxation diminishes freedom.
+ - A surreal and ultimately disgusting facet of the Iraq fiasco is the lag between when a fact becomes obvious and when the fiasco’s architects acknowledge that fact.
+ - Ronald Reagan has held the two most demeaning jobs in the country; President of the United States and radio broadcaster for the Chicago Cubs.
+ - No matter how deeply you distrust the government’s judgment, you are too trusting.
+ - As advertising blather becomes the nation’s normal idiom, language becomes printed noise.
+ - Jay Carney, whose unenviable job is not to explain but to explain away what his employers say, calls the IRS’s behavior “inappropriate. ” No, using the salad fork for the entree is inappropriate. Using the Internal Revenue Service for political purposes is a criminal offense.
+ - Man is messy, but any creature that can create space vehicles can probably cope.
+ - Hart is still like that little tub of vaguely milklike gunk that comes with airline coffee. It is labeled a “nondairy” product. Fine: we know what is is non, but what is it?
+ - The euro currency both presupposes and promotes a fiction – that ‘Europe’ has somehow become, against the wishes of most Europeans, a political rather than a merely geographic expression.
+ - Wars do not always begin with an abrupt, cymbal-crash rupture of conditions properly characterized as peace. There can be almost seamlessly incremental transitions.
+ - Even the continents drift.
+ - So the Clinton-Gore era culminates with an election as stained as the blue dress, a Democratic chorus complaining that the Constitution should not be the controlling legal authority, and Clinton’s understudy dispatching lawyers to litigate this: It depends on what the meaning of ‘vote’ is.
+ - The strongest continuous thread in America’s political tradition is skepticism about government.
+ - If those who wrote and ratified the 14th Amendment had imagined laws restricting immigration – and had anticipated huge waves of illegal immigration – is it reasonable to presume they would have wanted to provide the reward of citizenship to the children of the violators of those laws? Surely not.
+ - The English language is not always the President’s friend.
+ - On March 8 a poll showed Hart 9 points ahead of Reagan. So perhaps 60 million Americans, 55 million of whom had not heard of Hart a month ago, have suddenly decided thay want him to be leader of the free world. The public mind is not just soft wax, it’s runny.
+ - The average American expends more time becoming informed about choosing a car than choosing a candidate. But, then, the consequences of the former choice are immediate and discernible.
+ - Childhood is frequently a solemn business for those inside it.
+ - Voters cannot hold officials responsible if they do not know what government is doing, or which parts of government are doing what.
+ - The great task of life is transmission: the task of transmitting the essential tools and graces of life from our parents to our children.
+ - Today more Americans are imprisoned for drug offenses than for property crimes.
+ - Since 1946, the Cubs have had two problems: They put too few runs on the scoreboard and the other guys put too many. So what is the new management improving? The scoreboard.
+ - Night baseball isn’t an aberration. What’s an aberration is a team that hasn’t won a World Series since 1908. They tend to think of themselves as a little Williamsburg, a cute little replica of a major league franchise. Give me the Oakland A’s, thank you very much. People who do it right.
+ - The best use of history is as an inoculation against radical expectations, and hence against embittering disappointments.
+ - As Aristotle said, happiness is not a condition that is produced or stands on its own; rather, it is a frame of mind that accompanies an activity. But another frame of mind comes first. It is a steely determination to do well.
+ - Freedom means the freedom to behave coarsely, basely, foolishly.
+ - Disparagement of television is second only to watching television as an American pastime.
+ - It has made mincemeat of Barack Obama’s pose of thoughtfulness. It has demonstrated that he lacks even a rudimentary understanding of the most basic economic realities. It has dramatized environmentalism’s descent into infantilism.
+ - There may be more poetry than justice in poetic justice.
+ - I don’t think anyone has ever announced running for president that they want to change the Bill of Rights.
+ - Today it would be progress if everyone would stop talking about values. Instead, let us talk, as the Founders did, about virtues.
+ - Believing that a crisis is a useful thing to create, the Obama administration – which understands that, for liberalism, worse is better – has deliberately aggravated the fiscal shambles that the Great Recession accelerated.
+ - Baseball’s best teams lose about sixty-five times a season. It is not a game you can play with your teeth clenched.
+ - Corporations do not pay taxes, they collect them, passing the burden to consumers as a cost of production. And corporate taxation is a feast of rent-seeking – a cornucopia of credits, exemptions and other subsidies conferred by the political class on favored, and grateful, corporations.
+ - Obama, startled that components of government behave as interest groups, seems utterly unfamiliar with public choice theory. It demystifies and de-romanticizes politics by applying economic analysis – how incentives influence behavior – to government.
+ - The 1935 Social Security Act established 65 as the age of eligibility for payouts. But welfare state politics quickly becomes a bidding war, enriching the menu of benefits, so in 1956 Congress entitled women to collect benefits at 62, extending the entitlement to men in 1961.
+ - Baseball’s rich in wonderful statistics, but it’s hard to find one more beautiful than Stan Musial’s hitting record. He didn’t care where he was, he just hit.
+ - I am opposed to term limits because if we did not have seasoned professionals, we would not have the good government that we have.
+ - Most presidents come to Washington bright as freshly minted dimes and leave much diminished.
+ - Few things are as stimulating as other people’s calamities observed from a safe distance.
+ - In the lexicon of the political class, the word ‘sacrifice’ means that the citizens are supposed to mail even more of their income to Washington so that the political class will not have to sacrifice the pleasure of spending it.
+ - All I remember about my wedding day in 1967 is that the Cubs lost a double-header.
+ - When liberals advocate a value-added tax, conservatives should respond: Taxing consumption has merits, so we will consider it – after the 16th Amendment is repealed.
+ - Americans complain a lot about the government and they voice a generalized suspicion of the government, but they constantly clammer for more of it.
+ - Since the emergence of the Republican Party, only two Democratic presidents, Franklin Roosevelt and John Kennedy, have been followed by Democrats, and both FDR and JFK died in office, so their successors ran as incumbents.
+ - Stalin’s henchman Molotov, 96, died old and in bed, a privilege he helped to deny to millions.
+ - Big government inevitably drives an upward distribution of wealth to those whose wealth, confidence and sophistication enable them to manipulate government.
+ - The First Amendment is not a blanket freedom-of-information act. The constitutional newsgathering freedom means the media can go where the public can, but enjoys no superior right of access.
+ - I think if you’d had television cameras at Gettysburg, this would be two nations today. People would not have put up with that carnage if they saw it up close. We’d have elected McClellan in 1864.
+ - Democrats believe, plausibly, that middle-class entitlements are instantly addictive and, because there is no known detoxification, that class, when facing future choices between trimming entitlements or increasing taxes, will choose the latter.
+ - Geology has joined biology in lowering mankind’s self-esteem. Geology suggests how mankind’s existence is contingent upon the geological consent of the planet.
+ - She is so totally absorbed in a vocation – both a gift and a mastering passion – that she has no time to be absorbed with the self’s worries about itself. And that is the moral of the story: You can pursue happiness by wearing a torn jersey. You can catch it by being good at something you love.
+ - The pursuit of perfection prevents achievement of the satisfactory.
+ - All politicians are to some extent salesmen.
+ - The people who flood our living-rooms with a smorgasbord of commercial messages about fetid breath, moist underarms and troubled intestines know this: an appropriate time, place and manner to sell a product is any that sells the product.
+ - In the annals of American blunders, the Bay of Pigs may have been even more feckless, and the invasion of Iraq more costly, but we cannot yet calculate the cost of teaching Iran and others, by our role in the casual overthrow of Moammar Gaddafi, the peril of not having nuclear weapons.
+ - Only in football is long-term injury the result not of accidents but of the game played properly.
+ - Constitutional arguments that seem as dry as dust can have momentous consequences.
+ - The sequester has forced liberals to clarify their conviction that whatever the government’s size is at any moment, is the bare minimum neccessary to forestall intolerable suffering.
+ - Arizona’s law makes what is already a federal offense – being in the country illegally – a state offense. Some critics seem not to understand Arizona’s right to assert concurrent jurisdiction.
+ - Like a snail crossing a sidewalk, the Clinton Administration leaves a lengthening trail of slime, this time on America’s national honor.
+ - On a throne at the center of a sense of humor sits a capacity for irony. All wit rests on a cheerful awareness of life’s incongruities. It is a gentling awareness, and no politician without it should be allowed near power.
+ - It is no exaggeration to conclude that the Internet has achieved, and continues to achieve, the most participatory marketplace of mass speech that this country – and indeed the world – has yet seen.
+ - The realistic way to reduce the amount of money in politics is to reduce the amount of politics in money – the importance of government in allocating wealth and opportunity.
+ - Commercial society regards people as bundles of appetites, a conception that turns human beings inside out, leaving nothing to be regarded as inherently private.
+ - Being elected to Congress is regarded as being sent on a looting raid for one’s friends.
+ - We have far more to fear from swift than from torpid government.
+ - The more one works, the better one works and the more one wants to work.
+ - Politicians fascinate because they constitute such a paradox; they are an elite that accomplishes mediocrity for the public good.
+ - There is an aura of changelessness to sport. There is the flux of competition, but it occurs within the ordering confinement of clear rules.
+ - Freedom is not only the absence of external restraints. It is also the absence of irresistible internal compulsions, unmanageable passion, and uncensorable highlights.
+ - As has been said, standards are always out of date – that is why we call them standards.
+ - Still, it is not perverse to wonder whether the spectacle of America, currently learning a lesson – one that conservatives should not have to learn on the job – about the limits of power to subdue an unruly world, has emboldened many enemies.
+ - Americans are overreaching; overreaching is the most admirable and most American of the many American excesses.
+ - World War II was the last government program that really worked.
+ - For Conservatives, seeing is believing. For liberals, believing is seeing.
+ - This is an age in which one cannot find common sense without a search warrant.
+ - That is the crux of modern conservatism – government taking strong measures to foster the attitudes and aptitudes necessary for increased individual independence.
+ - When a politician says, concerning an issue involving science, that the debate is over, you may be sure the debate is rolling on and not going swimmingly for his side.
+ - Sports is the toy department of life.
+ - What the federal government does basically is borrow money from people and mail it to people.
+
+167 quotes

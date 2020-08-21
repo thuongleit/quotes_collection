@@ -1,0 +1,25 @@
+ - You don’t have to push or pull or fight or win, the struggle is illusory. Sometimes or rather, all times, you just have to be.
+ - The freeway is just like veins without a heart.
+ - I have found that searching for insight is more often than not a path to total darkness.
+ - The whole world, myself included, seem to have one thing in common; we’re just a crowd of people who don’t really fit in anywhere attempting to convince one another that we do. I guess I’ll put my sunglasses on and pretend, like everyone else, that I too belong here...
+ - The present’s just a pleasant interruption to the past.
+ - I don’t care what your politics are, but I do suggest you pay attention to the next election and go out and vote. It doesn’t matter; you can believe whatever you want to believe, but this is the time everybody should be paying a lot of attention.
+ - I can say for the first time that I am not afraid, and while this is a feeling that can undoubtedly change with time, I feel cradled by this universe and the immense love that comes from it.
+ - I think human beings make life beautiful. There’s a lot of beauty in everything. I think what makes life beautiful is the ability to acknowledge that.
+ - With each new day it becomes more apparent to me that everything and everyone in this world is connected in some beautiful and inexplicable way, and the more I accept that, the more my world seems to come together.
+ - This is to the world and how god damn beautiful it is.
+ - Things are fragile, but we’re all being carried and I think we’re all on our path in that sense. As fragile as things are, we’re still getting there.
+ - I have a really hard time connecting to music that doesn’t feel like I’m somehow solving a puzzle that applies to my life.
+ - And seemingly as winter has become spring, confusion has become insight.
+ - I think that’s the most important thing: when life kind of screws you over a little bit, you’ve got to learn from that experience.
+ - And when I got sick I felt confident that if it was the last thing I ever recorded before I left this earth, I would be really proud of it.
+ - You know, frankly, it’s like I sort of realized something about life in the past six or eight months – that taking things a day at a time is a blessing and it’s an honor and it’s something that makes the day that you’re living a lot more valuable.
+ - If you can drink beer while doing it, it’s not a sport.
+ - You’re gonna get thrown curve balls left and right, and that’s just the way it goes.
+ - No matter how solid or structured or set you think you are, there is, you know, a very thin line keeping us all from sort of chaos, in some perspective. And you know, I don’t view that really as a negative thing at all, but it just is the truth.
+ - There’s no certainty to the next couple of years, but people are paying attention now. And I want to put out a record when people are paying attention, because that’s when it has the best chance of being heard.
+ - I like to watch people have fun and then trip them while they’re doing so.
+ - I try not to release songs that I’m not proud of, and even songs that I don’t connect with.
+ - I’ve found that falling doesn’t always leave you fallen for.
+
+23 quotes

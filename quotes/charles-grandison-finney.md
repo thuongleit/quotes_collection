@@ -1,0 +1,42 @@
+ - Revival is a renewed conviction of sin and repentance, followed by an intense desire to live in obedience to God. It is giving up one’s will to God in deep humility.
+ - A revival is nothing else than a new beginning of obedience to God.
+ - Repentance is a change of willing, of feeling and of living, in respect to God.
+ - Effective prayer is prayer that attains what it seeks. It is prayer that moves God, effecting its end.
+ - Sin is the most expensive thing in the universe. Nothing else can cost so much.
+ - Revival comes from heaven when heroic souls enter the conflict determined to win or die – or if need be, to win and die! The kingdom of heaven suffereth violence, and the violent take it by force.
+ - Unless I had the spirit of prayer, I could do nothing.
+ - There is a fear of the Lord which is the beginning of wisdom, which is founded in love. There is also a slavish fear, which is a mere dread of evil, and is purely selfish.
+ - Ministers often preach about the Gospel instead of preaching the Gospel. They often preach about sinners instead of preaching to them.
+ - Every moment of your lives you are exerting a tremendous influence, that will tell on the immortal interests of souls around you. Are you asleep, while your conduct is exerting such an influence?
+ - Nothing tends more to cement the hearts of Christians than praying together. Never do they love one another so well as when they witness the outpouring of each other’s hearts in prayer.
+ - A state of mind that sees God in everything is evidence of growth in grace and a thankful heart.
+ - The reason why wicked men and devils hate God is, because they see Him in relation to themselves. Their hearts rise up in rebellion, because they see Him opposed to their selfishness.
+ - Every member must work or quit. No honorary members.
+ - When there is no offense I make no defense.
+ - If the presence of God is in the church, the church will draw the world in. If the presence of God is not in the church, the world will draw the church out.
+ - Prevailing prayer is that which secures an answer. Saying prayers is not offering prevailing prayer. The prevalence of prayer does not depend so much on quantity as on quality.
+ - I was like you once, long time ago. I believed in the dignity of man. Decency. Humanity. But I was lucky. I found out the truth early, boy. And what is the truth, Stark? It’s all very simple. There’s no such thing as the dignity of man. Man is a base, pathetic and vulgar animal.
+ - Often, without being at all aware of it, men judge themselves, not by God’s rule, but by their own.
+ - No man can possibly be benevolent or religious, to the full extent of his obligations, without concerning himself, to a greater or less extent, with the affairs of human government.
+ - There can be no revival when Mr. Amen and Mr. Wet-Eyes are not found in the audience.
+ - Understand now what lying is. Any species of designed deception. If the deception is not designed it is not lying. But if you design to make an impression contrary to the naked truth, you lie.
+ - No government is lawful or innocent that does not recognize the moral law as the only universal law, and God as the Supreme Lawgiver and Judge, to whom nations in their national capacity, as well as individuals, are amenable.
+ - Unless the will is free, man has no freedom; and if he has no freedom he is not a moral agent, that is, he is incapable of moral action and also of moral character.
+ - Some men will spin out a long prayer telling God who and what he is, or they pray out a whole system of divinity. Some people preach, others exhort the people, till everybody wishes they would stop, and God wishes so, too, most undoubtedly.
+ - It is the great business of every Christian to save souls.
+ - The obligation of human beings to support and obey human governments, while they legislate upon the principles of the moral law, is an unalterable as the moral law itself.
+ - When the church finds its members falling into gross and scandalous sins, then it is time for the church to awake and cry to God for a Revival of Religion.
+ - A revival may be expected when Christians have a spirit of prayer for a revival. That is, when they pray as if their hearts were set upon it. When Christians have the spirit of prayer for a revival. When they go about groaning out their hearts desire. When they have real travail of soul.
+ - There can be no higher enjoyment found in this world that is found in pulling souls out of the fire and bringing them to Christ.
+ - How often God visited the Jewish Church with judgments because they would not repent and be revived at the call of His prophets! How often have we seen Churches, and even whole denominations, cursed with a curse, because they would not wake up and seek the Lord...
+ - The moral law of God is the only law of individuals and of nations, and nothing can be rightful government but such as is established and administered with a view to its support.
+ - When sinners are careless and stupid, and sinking into hell unconcerned, it is time the church should bestir themselves. It is as much the duty of the church to awake, as it is for the firemen to awake when a fire breaks out in the night in a great city.
+ - Why will God’s creatures sin against his throne? Can there be such madness in beings gifted with reason’s light?
+ - A revival of religion presupposes a declension.
+ - The end for which Christ lives, and for which He has left His church in the world, is the salvation of sinners.
+ - When there is a spirit of controversy in the church or in the land, a revival is needful. The spirit of religion is not the spirit of controversy. There can be no prosperity in religion, where the spirit of controversy prevails.
+ - It is a mournful fact that most men, and indeed all men of worldly character, have so much regard to public opinion that they dare not act according to the dictates of their consciences when acting thus would incur the popular frown.
+ - In nearly all cases, if the people complain of the length of our sermons it is because we fail to interest them personally in what we have to say.
+ - If you do not make it a matter of study, how you may successfully act in building up the kingdom of Christ, you are acting a very wicked and absurd part as a Christian.
+
+40 quotes

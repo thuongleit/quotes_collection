@@ -1,0 +1,60 @@
+ - Once the travel bug bites there is no known antidote, and I know that I shall be happily infected until the end of my life
+ - Geography is the subject which holds the key to our future.
+ - Geography prepares for the world of work – geographers, with their skills of analysis are highly employable!
+ - Listen – strange women lying in ponds distributing swords is no basis for a system of government. Supreme executive power derives from a mandate from the masses, not from some farcical aquatic ceremony.
+ - Once the travel bug bites, there is no known antidote.
+ - I enjoy writing, I enjoy my house, my family and, more than anything I enjoy the feeling of seeing each day used to the full to actually produce something. The end.
+ - There are many ways of seeing the world. You can hang upside down from a meteor, volunteer to be the fourth stage of a three-stage rocket, or simply get in a balloon and keep going. But if it’s sheer, unadulterated discomfort you’re looking for, just stay on land.
+ - I know that we shall meet problems along the way, but I’d far rather see for myself what’s going on in the world outside, than rely on newspapers, television, politicians and religious leaders to tell me what I should be thinking.
+ - I am not a great cook, I am not a great artist, but I love art, and I love food, so I am the perfect traveller.
+ - Somewhere, a long way away, people are doing sensible things like mowing lawns and digging gardens.
+ - The Buddhist version of poverty is a situation where you have nothing to contribute.
+ - There are people who travel because they want to push themselves to physical limits, people who walk across deserts or cycle across the Antarctic – like Ranulph Fiennes, who just does it because it’s there. And then there are people like me, who are just genuinely curious about the world.
+ - I will die, but not retire.
+ - I always wanted to be an explorer, but – it seemed I was doomed to be nothing more than a very silly person.
+ - I think some of the best modern writing comes now from travellers.
+ - You can’t get a suit of armour and a rubber chicken just like that. You have to plan ahead.
+ - I got my first lifetime achievement award years ago, and I was very excited, but then I got a sense of: Well, can one get a second lifetime award?
+ - I wanted to be an explorer, but gradually found the world had been explored and that there was nowhere left, really. Once they climbed Everest in 1953, when I was 10 years old, I thought, ‘Well, that’s pretty much it now.’ But the idea of travelling and exploring and adventure was very strong.
+ - I’ve never particularly liked travelling with large groups or being told where to go by somebody else. I prefer to find out for myself.
+ - I would love to go to Iran. The island of Madagascar, everyone says is pretty exotic, or the wonderful Namibian desert.
+ - Contrary to what the politicians and religious leaders would like us to believe, the world won’t be made safer by creating barriers between people.
+ - I am restless. I don’t mind leaving this comfortable, static life. I could live a year on my own in a remote village.
+ - If I am seen as successful, it’s all the more reason not to change – not to lose track of friends, not to be driven everywhere, not to go and get away from the world. That, to me, is real success: enjoying what you do, but being the same person.
+ - I mistrust total competence. I’ve always felt life is a series of small disasters we try to get through.
+ - One of the most important days of my life was when I learned to ride a bicycle.
+ - People say the most stupid things on the spur of the moment that they then have to retract.
+ - I am very cautious of people who are absolutely right, especially when they are vehemently so.
+ - People are still crazy about Python after twenty-five years, which I find hard to believe.
+ - Now, what sort of person would write a scene where a young man stumbles upon a castle full only of beautiful young women? Answer: ME!
+ - The human race should just slow down and think about what it is doing.
+ - All I ask of food is that it doesn’t harm me.
+ - One of the difficult things of so much travelling is to say goodbye.
+ - If atheists are deaf to the word of God, then theists are blind to the ways of man.
+ - From my travels around the world I have seen how much damage and pollution is done by the careless disposal of waste. It is also evident that we in the West produce far more and throw away far more than the developing world, almost without thinking.
+ - I want people to know there is more to Somalia than looting and piracy.
+ - The trouble with travelling back later on is that you can never repeat the same experience.
+ - George Harrison’s passing was really sad, but it does make the afterlife seem much more attractive.
+ - I remember queuing around the block in Sheffield when I was growing up. At that time, going to the cinema was really something special – there was something about the style of the real thing that is immeasurable nicer than multiplexes.
+ - Armageddon is not around the corner. This is only what the people of violence want us to believe. The complexity and diversity of the world is the hope for the future.
+ - I don’t see why it should be remarkable that you can acquire a reputation for fairness and decency. Those are qualities shared by so many people. And the great majority of people I meet are decent people, just trying to navigate their way through the world without causing too much trouble.
+ - Despite having seen a fair amount of the world, I still love travelling – I just have an insatiable curiosity and like looking out of a window.
+ - In the absence of fear there is little faith.
+ - I am certainly more interested in interviewing than being interviewed. Sometimes you find yourself attacked from the start.
+ - I’m aware that, if you feel down, it can be strangely unrelated to circumstances around you. That’s just the way life is.
+ - The need to eat, sleep and dry out plays havoc with your sense of wonder.
+ - I’d got over playing a character. People accepted who I was, and if I was incompetent and useless, they felt quite endeared to me.
+ - It’s not a model if it’s full-size. It’s a ice-breaker!
+ - I cut down trees, I skip and jump, I like to press wild flowers. I put on women’s clothing and hang around in bars.
+ - There is nothing better than playing a scene with John Cleese or Maggie Smith. It’s electric. But I don’t think I’m the sort of person who needs to have an outer ego in order to produce something. I realised that through the travel programmes.
+ - My parents have been married forty-two years. I wonder how many of those were happy.
+ - My marriage has worked because I am not around much.
+ - I’ve been lucky to have made a number of travel programmes with the BBC, the object being to see places off the beaten track. As a result, I’ve often had a guide who’s been able to show me things that you wouldn’t see with a tour group.
+ - Ronnie Barker was a straightforward man who had this extraordinary ability to make the nation laugh.
+ - When in doubt, resort to animation.
+ - I have been unusually blessed in that I’ve been allowed to pursue two strands of a career that both delight me and seem to please the public.
+ - There is barely a country in the world where you will be completely safe.
+ - I can be me, and people seem quite happy with that.
+ - Please don’t ask which I enjoy more – acting or hosting – because I love them equally.
+
+58 quotes

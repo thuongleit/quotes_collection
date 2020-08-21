@@ -1,0 +1,67 @@
+ - They laugh at me because I'm different; I laugh at them because they're all the same.
+ - Nobody dies a virgin. Life fucks us all.
+ - I'd rather be hated for who I am, than loved for who I am not.
+ - It’s better to burn out than to fade away.
+ - Thank you for the tragedy. I need it for my art.
+ - Wanting to be someone else is a waste of the person you are.
+ - If my eyes could show my soul, everyone would cry when they saw me smile.
+ - Humans are stupid. I’m ashamed to be human.
+ - The worst crime is faking it.
+ - Dreaming of the person you want to be is wasting the person you already are.
+ - The duty of youth is to challenge corruption.
+ - I’m so happy. Cause today I found my friends. They’re in my head.
+ - Practice makes perfect, but nobody’s perfect, so why practice?
+ - A friend is nothing but a known enemy.
+ - Just because you’re paranoid doesn’t mean they aren’t after you.
+ - I’m worse at what I do best.
+ - If you ever need anything please don’t hesitate to ask someone else first.
+ - All In All Is All We Are.
+ - We have no right to express an opinion until we know all of the answers.
+ - With the lights out, It’s less dangerous. Here we are now, Entertain us. I feel stupid, And contagious. Here we are now. Entertain us.
+ - You can’t buy happiness.
+ - Here we are now, entertain us.
+ - Drugs are a waste of time. They destroy your memory and your self-respect and everything that goes along with your self esteem.
+ - In the sun I feel as one.
+ - I don’t care what you think unless it is about me.
+ - The finest day i ever had was when tomorrow never came.
+ - If you die you’re completely happy and your soul somewhere lives on. I’m not afraid of dying. Total peace after death, becoming someone else is the best hope I’ve got.
+ - I use bits and pieces of others personalities to form my own.
+ - Birds scream at the top of their lungs in horrified hellish rage every morning at daybreak to warn us all of the truth, but sadly we don’t speak bird.
+ - Rather be dead then cool.
+ - Rape is one of the most terrible crimes on earth and it happens every few minutes. The problem with groups who deal with rape is that they try to educate women about how to defend themselves. What really needs to be done is teaching men not to rape. Go to the source and start there.
+ - I like to make people feel happy and superior in their reaction towards my appearance.
+ - There are a lot of things I wish I would have done, instead of just sitting around and complaining about having a boring life.
+ - It’s okay to eat fish because they don’t have any feelings.
+ - Load up our guns Bring your friends It’s fun to lose and to pretend.
+ - My heart is broke, but I have some glue, help me inhale and mend it with you.
+ - I definitely feel closer to the feminine side of the human being than I do the male – or the American idea of what a male is supposed to be. Just watch a beer commercial and you’ll see what I mean.
+ - People ask me what’s like to hear our song on the radio. I don’t know, I don’t listen to the radio.
+ - If you’re really a mean person you’re going to come back as a fly and eat poop.
+ - People think of life as being so sacred and they feel like this is their only chance and they have to do something with their life and make an impact As far as I’m concerned, it’s just a pitstop for the afterlife. It’s just a little test to see how you can handle reality.
+ - I would like to get rid of the homophobes, sexists, and racists in our audience. I know they’re out there and it really bothers me.
+ - Forever in debt to your priceless advice.
+ - I had a really good childhood up until I was nine, then a classic case of divorce really affected me.
+ - Please read my diary, look through my things and figure me out.
+ - I mean I like to be passionate and sincere but I also like to have fun and act like a dork. Geeks unite.
+ - I was tired of pretending that I was someone else just to get along with people, just for the sake of having friendships.
+ - If you read, you’ll judge.
+ - If it’s illegal to rock and roll, then throw my ass in jail.
+ - I don’t need to be inspired any longer, just supported.
+ - I didn’t know how to deal with success. If there was a Rock Star 101, I would have liked to take it. It might have helped me.
+ - She eyes me like a pisces.
+ - I have very bad posture.
+ - I knew I was different. I thought that I might be gay or something because I couldn’t identify with any of the guys at all. None of them liked art or music. They just wanted to fight and get laid. It was many years ago but it gave me this real hatred for the average American macho male.
+ - We’re so trendy we can’t even escape ourselves.
+ - I’m a spokesman for myself. It just so happens that there’s a bunch of people that are concerned with what I have to say. I find that frightening at times because I’m just as confused as most people. I don’t have the answers for anything.
+ - I just hope I don’t become so blissful I become boring. I think I’ll always be neurotic enough to do something weird.
+ - Married, Married, Married! Buried! Yeah yeah yeah yeah.
+ - I started to be really proud of the fact I was gay even though I wasn’t.
+ - Life isn’t nearly as sacred as the appreciation of passion.
+ - I won’t eat anything green.
+ - Believe everything you read.
+ - Prefiero ser el peor de los mejores, que el mejor de los peores.
+ - Before I die many will die with me and they’ll deserve it. See you in Hell.
+ - I would love to be erased from our association with Pearl Jam or the Nymphs and other first time offenders.
+ - I only remember a few things about Jimmy Carter. He had big lips and liked peanuts. I now know that Jimmy Carter was and is a good man.
+
+65 quotes

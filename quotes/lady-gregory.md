@@ -1,0 +1,38 @@
+ - As to the old history of Ireland, the first man ever died in Ireland was Partholan, and he is buried, and his greyhound along with him, at some place in Kerry.
+ - If the past year were offered me again, And choice of good and ill before me set Would I accept the pleasure with the pain Or dare to wish that we had never met?
+ - There’s more learning than is taught in books.
+ - I feel more and more the time wasted that is not spent in Ireland.
+ - Everything that is bad, the falling sickness – God save the mark – or the like, should be at its worst at the full moon. I suppose because it is the leader of the stars.
+ - We would not give up our own country – Ireland – if we were to get the whole world as an estate, and the Country of the Young along with it.
+ - She is a girl and would not be afraid to walk the whole world with herself.
+ - What the Danes left in Ireland were hens and weasels. And when the cock crows in the morning, the country people will always say ‘It is for Denmark they are crowing. Crowing they are to be back in Denmark.’
+ - From the sons of Ith, the first of the Gael to get his death in Ireland, there came in the after time Fathadh Canaan, that got the sway over the whole world from the rising to the setting sun, and that took hostages of the streams and the birds and the languages.
+ - The first play I wrote was called ‘Twenty-five.’ It was played by our company in Dublin and London, and was adapted and translated into Irish and played in America.
+ - There is no sin coveting things are of no great use or profit, but would show out good and have some grandeur around them.
+ - Many a poor soul has had to suffer from the weight of the debts on him, finding no rest or peace after death.
+ - It takes madness to find out madness.
+ - It is better to be tied to any thorny bush than to be with a cross man.
+ - I’ll take no charity! What I get I’ll earn by taking it. I would feel no pleasure it being given to me, any more than a huntsman would take pleasure being made a present of a dead fox, in place of getting a run across country after it.
+ - Queen Victoria was loyal and true to the Pope; that is what I was told, and so is Edward the Seventh loyal and true, but he has got something contrary in his body.
+ - There is many a man without learning will get the better of a college-bred man, and will have better words, too.
+ - It was among farmers and potato diggers and old men in workhouses and beggars at my own door that I found what was beyond these and yet farther beyond that drawingroom poet of my childhood in the expression of love, and grief, and the pain of parting, that are the disclosure of the individual soul.
+ - Our curses on them that boil the eggs too hard! What use is an egg that is hard to any person on earth?
+ - It’s a grand thing to be able to take your money in your hand and to think no more of it when it slips away from you than you would a trout that would slip back into the stream.
+ - There is lasting kindness in Heaven when no kindness is found upon earth.
+ - Thomas Davis was a great man where poetry is concerned, and a better than Thomas Moore. All over Ireland his poetry is, and he would have done other things but that he died young.
+ - Well, there’s no one at all, they do be saying, but is deserving of some punishment from the very minute of his birth.
+ - Irish history having been forbidden in schools, has been, to a great extent, learned from Raftery’s poems by the people of Mayo, where he was born, and of Galway, where he spent his later years.
+ - In writing a little tragedy, ‘The Gaol Gate,’ I made the scenario in three lines, ‘He is an informer; he is dead; he is hanged.’ I wrote that play very quickly.
+ - It was at Inver Slane, to the north of Leinster, the sons of Gaedhal of the Shining Armour, the Very Gentle, that were called afterwards the Sons of the Gael, made their first attempt to land in Ireland to avenge Ith, one of their race that had come there one time and had met with his death.
+ - It is the old battle, between those who use a toothbrush and those who don’t.
+ - It is not always them that has the most that makes the most show.
+ - Every day in the year there comes some malice into the world, and where it comes from is no good place.
+ - Ah, I am thinking people put more in their prayers than was ever put in them by God.
+ - The way most people fail is in not keeping up the heart.
+ - The time the moon is going back, the blood that is in a person does be weakening, but when the moon is strong, the blood that moves strong in the same way. And it to be at the full, it drags the wits along with it, the same as it drags the tide.
+ - What are prophecies? Don’t we hear them every day of the week? And if one comes true there may be seven blind and come to nothing.
+ - It’s best make changes little by little, the same as you’d put clothes upon a growing child.
+ - Every trick is an old one, but with a change of players, a change of dress, it comes out as new as before.
+ - I don’t know in the world why anyone would consent to be a king, and never to be left to himself, but to be worried and wearied and interfered with from dark to daybreak and from morning to the fall of night.
+
+36 quotes

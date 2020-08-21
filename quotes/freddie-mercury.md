@@ -1,0 +1,88 @@
+ - Who wants to live forever?
+ - I want it all and I want it now.
+ - You can be anything you want to be, just turn yourself into anything you think that you could ever be.
+ - It’s a beautiful day, the sun is shining, I feel good, and no one’s gonna stop me now.
+ - I won’t be a rock star. I will be a legend.
+ - My soul has painted like the wings of butterflies, Fairy tales of yesterday will grow but never die, I can fly, my friends...
+ - The most important thing is to live a fabulous life. As long as it’s fabulous I don’t care how long it is.
+ - I was born to love you with every single beat of my heart. I was born to take care of you every single day of my life.
+ - If it’s planned, it’s boring.
+ - Don’t stop me now, I’m having such a good time, I’m having a ball.
+ - I’m just a musical prostitute, my dear.
+ - I love the fact that I can make people happy, in any form. Even if it’s just an hour of their lives, if I can make them feel lucky or make them feel good, or bring a smile to a sour face, that to me is worthwhile.
+ - Oh, I was not made for heaven. No, I don’t want to go to heaven. Hell is much better. Think of all the interesting people you’re going to meet down there!
+ - One year of love is better than a lifetime alone.
+ - I don’t talk to everybody, so they don’t really know the real me. I don’t think anybody will...
+ - When I’m dead who cares? I don’t...
+ - You can have everything in the world and still be the loneliest man. And that is the most bitter type of loneliness, success has brought me world idolisation and millions of pounds. But it’s prevented me from having the one thing we all need: A loving, ongoing relationship.
+ - I always knew I was a star, and now the rest of the world seems to agree with me.
+ - I’m a very emotional person, a person of real extremes, and that’s often destructive both to myself and others.
+ - Get on your bikes and ride!
+ - The bigger the better; in everything.
+ - Modern paintings are like women, you’ll never enjoy them if you try to understand them.
+ - I think Queen songs are pure escapism, like going to see a good film.
+ - I’m not afraid to speak out, and say things that I want to do, or do the things that I want to do, so um, I think in the end, being natural, and being, being actually genuine is what wins.
+ - I’m possessed by love – but isn’t everybody?
+ - I dress to kill, but tastefully.
+ - About ten years ago, I knew three chords on the guitar. Now, in 1982, I know three chords on the guitar.
+ - The reason we’re successful, darling? My overall charisma, of course.
+ - It’s boring to be 70, I don’t want to be there, I’ll be dead and gone, I don’t have any aspirations to be 70...
+ - When I’m dead, I want to be remembered as a musician of some worth and substance.
+ - Years ago, I thought up the name Queen. It’s just a name. But it’s regal, obviously, and -sounds splendid.
+ - Interview? Oh don’t be ridiculous.
+ - I have no aspirations of growing old and boring.
+ - I never thought of myself as the leader. The most important person, perhaps.
+ - I’m hopeless with money; I simply spend what I’ve got.
+ - You’re headed for disaster cos you never read the signs Too much love will kill you every time.
+ - No age is good to get married at. You got to be a fool to get married.
+ - Can you imagine how terrible it is when you’ve got everything and you’re still desperately lonely? That is awful beyond words.
+ - You know, I designed the Queen crest. I simply combined all the creatures that represent our star signs-and I don’t even believe in astrology.
+ - You either have the magic or you don’t. There’s no way you can work up to it.
+ - I have fun with my clothes onstage; it’s not a concert you’re seeing, it’s a fashion show.
+ - Money may not buy happiness, but it can damn well give it!
+ - I Want To Ride My Bicycle I Want To Ride My Bike I Want To Ride My bicycle I Want To Ride It Where I Like.
+ - Hey man, Jaws was never my scene, and i don’t like Star Wars.
+ - I think my melodies are superior to my lyrics.
+ - What you must understand is that my voice comes from the energy of the audience. The better they are, the better I get.
+ - I want to lead the Victorian life, surrounded by exquisite clutter.
+ - I like to be surrounded by splendid things.
+ - I am loved by thousands, but I feel like the loneliest man in the world.
+ - I’m so powerful in stage that I seem to have created a monster. When I’m performing I’m an extrovert, yet inside I’m a completely different man.
+ - Excess is part of my nature. Dullness is a disease. I really need danger and excitement. I’m never scared of putting myself out on a limb.
+ - When the whole point of Queen was to be original.
+ - Does it mean this, does it mean that, that’s all anybody wants to know. I’d say what any decent poet would say if anyone dared ask him to analyze his work: if you see it, darling, then it’s there!
+ - If i had to do it all over again? Why not, I would do it a little bit differently.
+ - We’re a very expensive group; we break a lot of rules. It’s unheard of to combine opera with a rock theme, my dear .
+ - In terms of love, you’re not in control and I hate that feeling. I seem to write a lot of sad songs because I’m a very tragic person. But there’s always an element of humour at the end.
+ - In the early days, we just wore black onstage. Very bold, my dear. Then we introduced white, for variety, and it simply grew and grew.
+ - I like people to go away from a Queen show feeling fully entertained, having had a good time.
+ - I never carry money, just like the real Queen. If I fancy something in a shop I always ask someone on our staff to buy it.
+ - One night Roger was in a foul mood and he threw his entire bloody drumset across the stage. The thing only just missed me – I might have been killed.
+ - A lot of my songs are fantasy. I can dream up all kinds of things. That’s the kind of world I live in. It’s very sort of flamboyant, and that’s the kind of way I write. I love it.
+ - The others don’t like my interviews. And frankly, I don’t care much for theirs.
+ - By the way, I do not wear a hose. My hose is my own. No coke bottle, nothing stuffed down there.
+ - Led Zeppelin is the greatest. Robert Plant is one of the most original vocalists of our time. As a rock band they deserve the kind of success they’re getting.
+ - Onstage, I am a devil. But I’m hardly a social reject.
+ - I am a romantic, but I do put up a barrier around myself, so it is hard for people to get in and to know the real me.
+ - It destroys the soul to hear that you’re all hype, that you have no talent, and that your whole career has been contrived.
+ - It’s not a question of money anymore. I spend money like it’s nothing. You know, I could be penniless tomorrow, but I’d get back, somehow.
+ - My songs are like Bic razors. For fun, for modern consumption. You listen to it, like it, discard it, then on to the next. Disposable pop.
+ - They wouldn’t let us into Russia. They thought we’d corrupt the youth or something.
+ - I guess I’ve always lived the glamorous life of a star. It ’s nothing new – I used to spend down to the last dime.
+ - We’ve gone overboard on every Queen album. But that’s Queen.
+ - A concert is not a live rendition of our album. It’s a theatrica! event.
+ - We’re a bit flashy, but the music’s not one big noise.
+ - I got my diploma from Ealing College of Art, in graphics and illustration.
+ - I’m not into business at all.
+ - The concept of Queen is to be regal and majestic. Glamour is part of us, and we want to be dandy.
+ - Robert Plant was always my favorite singer-and hes said nice things about me, you know.
+ - Is Billy Idol just doing a bad Elvis pout, or was he born that way?
+ - Jimi Hendrix is very important. He’s my idol. He sort of epitomizes, from his presentation on stage, the whole works of a rock star. There’s no way you can compare him. You either have the magic or you don’t. There’s no way you can work up to it. There’s nobody who can take his place.
+ - The lavish presentation appeals to me, and I’ve got to convince the others.
+ - Back in the old days, we were often compared to Led Zeppelin. If we did something with harmony, it was the Beach Hoys. Something heavy was Led Zeppelin.
+ - And, we have no such thing as a budget anymore. Our manager freaks when we show him the bill. We’re lavish to the bone, but all our money goes back into the product.
+ - If we’re weird onstage, I don’t know what you’d call the Tubes.
+ - I was never too keen on the British music press. They’ve called us a supermarket hype, and they used to suggest that we didn’t write our own songs.
+ - We were disliked by the press in the early days because they couldn’t put their finger on us, and that was the case with Zeppelin as well.
+
+86 quotes

@@ -1,0 +1,34 @@
+ - All writing is a form of manipulation, of course, but you realize that a plain sentence can actually do so much.
+ - I did think of becoming a priest quite late on, when other boys were thinking of knocking over fences and going out with girls. I would have made a very good bishop: nice housekeeper, nice clothes – god, the clothes.
+ - I wrote every day between the ages of 12 and 20 when I stopped because I went to Barcelona, where life was too exciting to write.
+ - I suppose one should have an integrated personality, but I’ve never really seen the point.
+ - If you have to read to cheer yourself up, read biographies of writers who went insane.
+ - The sentences I write have their roots in song and poetry, and take their bearings from music and painting, as much as from the need to impart mere information, or mirror anything. I am not a realist writer, even if I seem like one.
+ - Writing tends to be very deliberate. A novelist could probably run a military campaign with some success. They could certainly run a country.
+ - I was first in Sydney in 1993, and have been a few times since then. For someone who didn’t know Australia, it came as a shock how intelligent, interesting and funny the people were. If I lived there I might see it differently, but as a visitor it was a lot of fun.
+ - I’ve never put Northern Ireland into a novel because it’s not my territory. I come from the South, so my imaginative territory is very much the Republic of Ireland rather than the North. Even though, if I wrote a novel about the North, it might sell more.
+ - It may be enough to study history in all its nuance and ambiguity for its own sake. But there is no country free of the need to find new ways of reading the past as an inspiring way of thinking about everything else, including the present.
+ - You create a world away from home and make new rooms for yourself. But when you arrive back home in your old rooms, the world you’ve made for yourself ceases to be real. Everything seems to crumble. Anyone who’s been sent away to boarding school can understand that.
+ - Between the ages of 8 and 12 it was difficult to know what my father was saying, and he moved very slowly, and then he died.
+ - The Roman Catholic Church and its rituals were so much part of life that, although my parents would often question a small matter of dogma and none of us seemed more religious than anyone else, no one ever questioned the rituals or the basic tenets of belief.
+ - It really matters to writers to find and treasure readers, all the more when they’re on the other side of the world.
+ - I think fiction lends itself to messiness rather than the ideal, and plays well with the ironies surrounding what happens versus what should happen.
+ - I am violently untidy. My desk is overcrowded. I write my first drafts in longhand in a long notebook using a plastic throwaway fountain pen. Then I work on a word processor using a different desk and a different room.
+ - I have to write a first draft with a fountain pen before I type it up as a second.
+ - As I settled down to sleep in that new bed in the dark city, I saw that it was too late now, too late for everything. I would not be given a second chance. In the hours when I woke, I have to tell you that this struck me almost with relief.
+ - Anyone who works in the arts knows, if you’re writing a novel or a play or anything, you have to be ready for someone to say, ‘Your time is up.’
+ - She was lonely without Blunt, but she was lonelier at the idea that the world went on as though she had not loved him.
+ - Suffering is too strong a word, but writing is serious work. I pull the stuff up from me – it’s not as if it’s a pleasure.
+ - I think you can get a sort of intensity and an edginess offering nine stories in a book. Competing versions of things.
+ - While historians may go on attempting grand, sweeping and defining narratives, they work in a time when readers know that another narrative always lies in wait, and that the more intelligent an historian is, the more tentative and self-scrutinizing the tone.
+ - It is important to find a publisher and equally important not to be noticed until your third or fourth book.
+ - I work very deliberately, with a plan. But sometimes I come to a point that I planned as the end and it needs softening. Ending a novel is almost like putting a child to sleep – it can’t be done abruptly.
+ - Life has a funny way of becoming ordinary as soon as it can.
+ - Writer’s block! It doesn’t exist. You just long for ideas to go away so you have an idea of peace.
+ - I live in words. I like looking at things, but I don’t have a strong visual imagination.
+ - Three of my novels and a good number of my short stories are told from the point of view of men. I was brought up in a house of women.
+ - John McGovern taught me that it’s OK to write repeatedly about the same things.
+ - I write with a sort of grim determination to deal with things that are hidden and difficult, and this means, I think, that pleasure is out of the question. I would associate this with narcissism anyway, and I would disapprove of it.
+ - I first went to Barcelona in 1975 after university, and I stayed for three years. I learnt Catalan because that’s what everyone speaks in the mountains. They speak English to foreigners, but what people say to each other is much more important than what they say to you.
+
+32 quotes

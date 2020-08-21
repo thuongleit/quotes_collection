@@ -1,0 +1,23 @@
+ - The ratio of literacy to illiteracy is constant, but nowadays the illiterates can read and write.
+ - When you aren’t sincere you need to pretend, and by pretending you end up believing yourself; that’s the basic principle of every faith.
+ - It is what we are forced to do that forms our character, not what we do of our own free will.
+ - And we all know love is a glass which makes even a monster appear fascinating.
+ - An uncertain evil causes anxiety because, at the bottom of one’s heart, one goes on hoping till the last moment that it may not be true; a certain evil, on the other hand, instills, for a time, a kind of dreary tranquillity.
+ - Dictatorships are one-way streets. Democracy boasts two-way traffic.
+ - When I sit at my table to write, I never know what it’s going to be until I’m under way. I trust in inspiration, which sometimes comes and sometimes doesn’t. But I don’t sit back waiting for it. I work every day.
+ - Every true writer is like a bird; he repeats the same song, the same theme, all his life. For me, this theme as always been revolt.
+ - I don’t think it’s possible to write a good novel around a negative personality.
+ - Yes, one uses what one knows, but autobiography means something else. I should never be able to write a real autobiography; I always end by falsifying and fictionalizing – I’m a liar, in fact. That means I’m a novelist, after all. I write about what I know.
+ - The less one notices happiness, the greater it is.
+ - A writer survives in spite of his beliefs.
+ - I do not foresee a time when I shall feel that I have nothing to say.
+ - Modern man-whether in the womb of the masses, or with his workmates, or with his family, or alone-can never for one moment forget that he is living in a world in which he is a means and whose end is not his business.
+ - You can’t think on purpose about somebody or something. Either you think about them naturally or you don’t think at all.
+ - In life there are no problems, that is, objective and external choices; there is only the life which we do not resolve as a problem but which we live as an experience, whatever the final result may be.
+ - Good writers are monotonous, like good composers. They keep trying to perfect the one problem they were born to understand.
+ - The novel as we knew it in the nineteenth century was killed off by Proust and Joyce.
+ - Our ideals, laws and customs should be based on the proposition that each generation in turn becomes the custodian rather than the absolute owner of our resources – and each generation has the obligation to pass this inheritance on in the future.
+ - I like to compare my method with that of painters centuries ago, proceeding from layer to layer.
+ - This thought strengthened in me my belief that all men, without exception, deserve to be pitied, if only because they are alive.
+
+21 quotes

@@ -1,0 +1,27 @@
+ - The meat industry spends hundreds of millions of dollars lying to the public about their product. But no amount of false propaganda can sanitize meat. The facts are absolutely clear: Eating meat is bad for human health, catastrophic for the environment, and a living nightmare for animals.
+ - The only person stopping you from doing something is yourself, and looking for excuses all the time just gets in the way of obtaining your own goals. It’s like the writer who keeps getting up and straightening the pictures in the room.
+ - There are no real men.
+ - No amount of false propaganda can sanitize meat.
+ - One person can make all the difference in the world. For the first time in recorded human history, we have the fate of the whole planet in our hands.
+ - I feel displaced when I’m back in America, like a visitor. I feel like if I don’t get a cup of tea I’m going to lose my mind.
+ - In my experience lust only ever leads to misery. All that suspicion and jealousy and anguish it unleashes. I don’t want those things in my life.
+ - I was a single mom with two kids. What else was I going to do? It was either be in a band or be a waitress.
+ - All these fifty-year-old guys wearing baseball caps and shorts and acting like children. It winds me up. Men don’t have to take responsibility anymore. Most of the guys I know would punch me on the nose for saying this, but maybe we do have to bring back conscription.
+ - Don’t get a job in an abattoir. Don’t be a butcher. The idea that people have to do these jobs for a livelihood is ridiculous. They can get other jobs. Shoplift, man. Better to be a prostitute than cut an animal’s head off for a living.
+ - I don’t believe there is any justifiable reason for killing any animal unless perhaps if it’s killing you! That would be negotiable.
+ - A ballad once in a while doesn’t go amiss.
+ - The so-called feminist writers were disgusted with me. I did my thing, and so I guess by feminist standards I’m a feminist. That suits me fine.
+ - The Clash were innovative, radical and helped drive a change in music that was ground-breaking. In comparison to some of the music today they sounded like they meant it. I still listen to their music today to remind myself what music made with commitment sounds like.
+ - What characterized the whole punk scene for me in 1977 was there was no racism or sexism. It was an anarchy of -isms, and a matter of abolishing it all.
+ - I have no sense of patriotism, but I do have a sense of community.
+ - Songwriting is like working on a jigsaw puzzle, and it doesn’t make any sense until you find that last piece. It has to make sense or it doesn’t work.
+ - Being on tour sends me crazy, I drink too much and out comes the John Mcenroe in me.
+ - How much did you get for your soul?
+ - There’sthemeat eaters and there’sus. And that’stheway I look at the world.
+ - I don’t think it’s good to be sentimental, so I try not to be.
+ - You try to be arrogant in songs because you can’t be in real life.
+ - I preferred rock when it was in the dark, when it was a secret between me and the audience, when it wasn’t mainstream.
+ - Yeah, the industry has always been both the enemy and the best friend of the artist. They need each other. That’s the bottom line.
+ - I just want to play guitar and be in a band. Same as I always did.
+
+25 quotes

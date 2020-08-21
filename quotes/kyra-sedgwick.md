@@ -1,0 +1,32 @@
+ - I was always fraught with guilt, and it’s such a waste of an emotion. It keeps you out of the moment of being where you are.
+ - I think that certainly my choices empower me.
+ - He put a ring in the toe of a stocking. On Christmas Eve, we opened our stockings and it was there at the bottom of the toe. Then he got down on his knees and he was shaking.
+ - It’s not that I don’t see myself as hot and sexy. Don’t get me wrong. No, it’s not that.
+ - I feel my job as an actor is to explore all sides of humanity.
+ - Ever since I had my first child I have been passionate in my commitment to preserve our precious resources for my children and their children’s children. This is the obligation of all of us visiting this planet for a limited time.
+ - Hollywood movies are run on fear and they don’t want to make bold choices. They, generally, speaking want to keep things status quo. That’s not really interesting for me.
+ - I was very young when we got married and I don’t know why it worked out like it did or how I was smart enough to know that this was the right guy, but somehow I got lucky.
+ - I feel that our planet is in peril and that creating a sustainable planet for my children and my children’s children is the most important thing I can do in this lifetime.
+ - Global climate change is real. The legislative branch of our government is our last line of defense against pollution which is why I am so grateful to have the NRDC making our voice heard.
+ - Hollywood is sexist and age-ist, and that covers all the bases, I guess.
+ - Ultimately, you know, I’m a grown-up, I’ve been in this business a long time. I’ve got kids. I’ve got to do my stuff. But I also need to keep it there so I can bring it up again the next day at work or whatever.
+ - Some of the best roles are for women in these independent, smaller movies.
+ - I’ve always been able to let stuff go when I’m done with work.
+ - Shame is such an intense emotion. It just can drive you.
+ - Also everyone’s hearts are in the right place when you do a small movie. You’re not doing it for the money; you’re not doing it for the possibility of an Oscar nomination. You are doing it because you love the material.
+ - I have too much respect for the characters I play to make them anything but as real as they can possibly be. I have a great deal of respect for all of them, otherwise I wouldn’t do them. And I don’t want to screw them by not portraying them honestly.
+ - I think in this movie, every time I see his work, I’m blown away by it because he, to me, he really embodied the character so powerfully and so real, so truthfully to me.
+ - I do know that I have to work hard for every single thing that I get, really hard, and that’s okay.
+ - I think it’s important to do smaller films because I think that’s where a lot of new things are happening.
+ - I don’t know if you’re married, but sometimes there are times where one is really together with their partner. And then there are times when you’re both just in your own thing, but you’re there together.
+ - I do it because I want to exercise people’s compassion and I do it because I really believe that for some reason what I do is important and meaningful.
+ - I can’t get hired in a studio movie. Everything is so uphill.
+ - It’s easier in some ways being on the life raft and the other guy’s in the boat and you can row alongside and be supportive. In some ways, that’s an easier role.
+ - But when you’re in something together, it’s very hard to be objective and you’re very subjective.
+ - I’m not going to be remotely funny.
+ - While it is challenging working with a kid, because they’re so of the moment all the time. My acting style is to try to take something from my life that the character can relate to and that I can relate the character to.
+ - I think it’s important to do great work.
+ - After 14 years, it better be a real marriage, you know? We do have a great time together. We are really lucky.
+ - Whether it be in a small movie or a big movie, I would always be attracted to this role.
+
+30 quotes

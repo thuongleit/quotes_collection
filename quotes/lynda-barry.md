@@ -1,0 +1,53 @@
+ - No matter what, expect the unexpected. And whenever possible BE the unexpected.
+ - We don’t create a fantasy world to escape reality. We create it to be able to stay.
+ - We don’t create a fantasy world to escape reality, we create it to be able to stay. I believe we have always done this, used images to stand and understand what otherwise would be intolerable.
+ - Sometimes, I think the only art left for us is slowly peeling the label off a beer bottle while somebody tells you about a dream they had.
+ - If it is your time, love will track you down like a cruise missile.
+ - You’ll never call him Fifi again.
+ - The happy ending is hardly important, though we may be glad its there. The real joy is knowing that if you felt the trouble in the story, your kingdom isnt dead.
+ - Dear Anyone Who Finds This, Do not blame the drugs.
+ - These are very confusing times. For the first time in history a woman is expected to combine: intelligence with a sharp hairdo, a raised consciousness with high heels, and an open, nonsexist relationship with a tan guy who has a great bod.
+ - Love is an exploding cigar we willingly smoke.
+ - Love will make a way out of no way.
+ - In health we’re doing the digestive system. We each got assigned a topic for an oral report. I got the small intestine. I swear to god I hate my life.
+ - This ability to exist in pieces is what some adults call resilience. And I suppose in some way it is a kind of resilience, a horrible resilience that makes adults believe children forget trauma.
+ - Then how can you ever know about the beautiful goodness of Mud? How bad it wants to be things. How bad it wants to get on your legs and arms and take your footprints and handprints and how bad it wants you to make it alive! Mud is always ready to play with you. Seriously you should try it!
+ - The minute you understand racism, you’re responsible for being racist. It’s like eating from the tree of knowledge.
+ - The point of the daily diary exercise is not to record what you already know about what happened to you in the last 24 hours. Instead, it’s an invitation to the back of your mind to come forward and reveal to you the perishable images about the day you didn’t notice you noticed at all.
+ - The histories of vampires and people are not so different, really. How many of us can honestly see our own reflection?
+ - Flies die in so many lonely places. -Roberta Rohbeson.
+ - If I could only turn the etch-a-sketch of my life upside down.
+ - What is an idea made of? Of future, past and also meanwhile.
+ - When you start to think of the arts as not this thing that is going to get you somewhere in terms of becoming an artist or becoming famous or whatever it is that people do, but rather a way of making being in the world not just bearable, but fascinating, then it starts to get interesting again.
+ - You keep seeing your picture on posters that you are missing but you’re not. That’d be weird, right? Or say you look down at the sidewalk and earthworms are spelling your name. Or you open a peanut bag and the ‘hello’ is written in your writing on the inside of the shell. Would that weird ya?
+ - As I enter the small intestine I get squeezed by muscles. Its dark and the walls look like slimey crushed velvet theres pancreas juice on me help me I am disintigrating.
+ - I’ve gotten a lot of livid letters about the awfulness of my work. I’ve never known what to make of it. Why do people bother to write if they hate what I do?
+ - It is true that I am a person with black pockets of evil and hatred in my heart. There are underground places inside of me.
+ - I listen like mad to any conversation taking place next to me just trying to hear why this is funny. Women’s restrooms are especially great. I wash my hands twice waiting for people to come in and start talking.
+ - What year is it in your imagination?
+ - In life there are always these things happening if you can just get the joke.
+ - I used to live a very social life and never spend much solitary time looking at birds or reading.
+ - Always watch the hands. The hands will tell you everything you need to know.
+ - When you think about it, giving up your real personality is a small price to pay for the richness of living happily ever after with an actual man!
+ - I grew up in a house that had a whole lot of trouble. As much trouble as you could imagine.
+ - The thing I call ‘my mind’ seems to be kind of like a landlord that doesn’t really know its tenants.
+ - People think that whatever I put into strips has happened to me in my life.
+ - Race and class are the easiest divisions. It’s very stupid.
+ - Cartoonist was the weirdest name I finally let myself have. I would never say it. When I heard it I silently thought, what an awful word.
+ - At the center of everything we call ‘the arts,’ and children call ‘play,’ is something which seems somehow alive.
+ - You have to be willing to spend time making things for no known reason.
+ - There was a beautiful time in the beginning when I just did it and didn’t analyze the consequences, but I think that time ends in everyone’s work.
+ - When we finish a book, why do we hold it in both hands and gaze at it as if it were somehow alive?
+ - He’s picked clean! Eaten by cats!
+ - A man who has been dead for a week in a hot trailer looks more like a man than you would first expect.
+ - I think of images as an immune system and a transit system.
+ - You know that great car-stomach feeling when you fly over a hump? That was my whole body.
+ - But when the thing that is scaring you is already Jesus, who are you supposed to pray to?
+ - I go to work the minute I open my eyes.
+ - My goal on my bucket list is to write a romantic comedy movie.
+ - You may be a lady but you are still the man!
+ - You can’t know what a book is about until the very end. This is true of a book we’re reading or writing.
+ - The library was open for one hour after school let out. I hid there, looking at art books and reading poetry.
+ - I do dumb stuff, like playing my favorite dumb Barry White song and lip-synching into the mirror so it looks like his voice is coming out of my mouth.
+
+51 quotes

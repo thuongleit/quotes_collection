@@ -1,0 +1,32 @@
+ - If you learn a recipe, you can cook the recipe. If you learn the technique, you can cook anything.
+ - People complain that chefs aren’t at their restaurants anymore, but I don’t think that’s the case at all. You see them on TV and you assume they’re not working but they are.
+ - Hitler was a vegetarian.
+ - Because I’m so known as a meat-chef, when I talk about Meatless Monday some people look at me like I’ve lost my mind. I’m like, look, I’m not saying beef and pork is bad, I love it and I eat it six days a week.
+ - Bacon is like a good pair of Levi’s-it never goes out of style.
+ - I’m lucky that my restaurant partners are my wife Liz and Doug Petkovic. We opened our first restaurant over 15 years ago. And we didn’t open up our second restaurant for almost ten years. So that gave us a good foundation of employees.
+ - Eating chicken without skin is like riding a bike without wheels.
+ - Go to the grocery store and buy better things. Buy quality, buy organic, buy natural, go to the farmers market. Immediately that’s going to increase the quality of the food you make.
+ - Sitting down for dinner not only helps you learn, but also teaches you how to listen – which I feel is the most important skill to have. I remember as a kid going around the table listening to everyone’s day. It was hard to have the manners not to interrupt back then.
+ - The exposure from ‘Iron Chef’ has been helpful, but at the end of the day your product and your service determine whether you get customers or not. If people decide to eat out less during a recession, the first restaurants that they will cut out are the ones that don’t do a great job.
+ - It’s not always possible to sit down and eat at home in this day and age of fast-paced living, but if you are going to eat out, do so as a family and support all the great local places in your areas. I’ll still eat at the same diner I did as a kid with my parents.
+ - When I met my wife 20 plus years ago, she was a vegetarian, so I was the closest thing to the devil that she had ever met.
+ - My restaurants are never opened on Thanksgiving; I want my staff to spend time with their family if they can. My feeling is, if I can’t figure out how to make money the rest of the year so that my workers can enjoy the holidays, then I don’t deserve to be an owner.
+ - Every lesson I learned as a kid was at the dinner table. Being Greek, Sicilian and Ruthenian – we are an emotional bunch. It is where we laughed, cried and yelled – but most importantly, where we bonded and connected.
+ - You’ve always got to work to your highest ability level. When times are great and restaurants are jamming, that’s when some restaurants get sloppy and take things for granted. Never take things for granted.
+ - On ‘Chopped,’ the time goes down a bit and there are several ingredients, usually one that makes no sense whatsoever with the rest of the ingredients. So it gets you out of your culinary comfort zone a little bit. Like we had octopus and cheese paired up with each other.
+ - I always tell my employees, the busier it gets, the slower you should cook. When you run around like a crazy person, that’s when things go wrong.
+ - Whats more important than recipes is how we think about food, and a good cookbook should open up a new way of doing just that.
+ - I was lucky enough to have great mentors both in the culinary world and in the world of chefs who became celebrities. Bobby Flay is one of my dearest friends and a tremendous mentor for me. Mario Batali is the same way. They began doing TV a little before me and they showed me the way.
+ - My goal in ‘Live to Cook’ is to make great food more approachable for home cooks.
+ - People come up to me all the time and say, ‘Oh, I love to watch Food Network,’ and I ask them what they cook, and they say, ‘I don’t really cook.’ They’re afraid, they’re intimidated, they know all about food from eating out and watching TV, but they don’t know where to start in their own kitchen.
+ - I love doing demonstrations. I think to be a great chef you have to be a great teacher. I love doing classes with people who love food and enjoy food, bringing them all around one table so to speak.
+ - I’m a firm believer that all this packaged stuff that Americans are buying up in gobs is making them fatter.
+ - I don’t think any other holiday embraces the food of the Midwest quite like Thanksgiving. There’s roasted meat and mashed potatoes. But being here is also about heritage. Cleveland is really a giant melting pot – not only is my family a melting pot, but so is the city.
+ - With all the hybrid stuff and things like that, I think that’s a fabulous direction to go with cars in that sense. As someone who grew up around muscle cars, I’ll never not be able to not love a muscle car. Not that I don’t care about the environment, that’s not it. But I adore muscle cars.
+ - I make no bones about it. I have no understanding of pastry.
+ - When it comes to cooking and eating, I always try to preach that life is about moderation. Even if I’m having beef for dinner, it’s probably going to be a 3-4 ounce portion with heaps and heaps of vegetables.
+ - My father cried when I said I wanted to be a chef.
+ - For the longest time, chefs and restaurateurs were able to get products home cooks couldn’t get, but that’s not the case anymore.
+ - In Cleveland, I’m so fortunate that we’re surrounded by farms with an endless variety of beautiful vegetables. For me, I always eat very tightly with the season, even if the season is only six weeks.
+
+30 quotes

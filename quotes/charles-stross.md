@@ -1,0 +1,87 @@
+ - Well then. Will the naysayers please leave the universe?
+ - One ape’s hallucination is another ape’s religious experience – it just depends on which one’s god module is overactive at the time.
+ - Speech recognition is utterly crap for writing fiction. If you try reading a novel aloud you’ll soon figure out why – written prose style is utterly unlike the spoken word.
+ - I wrote two million words of crap. Maybe I’m just a slow learner .
+ - Life begets intelligence, intelligence begets smart matter and a singularity.
+ - Contract law is essentially a defensive scorched-earth battleground where the constant question is, “if my business partner was possessed by a brain-eating monster from beyond spacetime tomorrow, what is the worst thing they could do to me?”
+ - A dark-skinned human with four arms walks toward me across the floor of the club, clad only in a belt strung with human skulls.
+ - I’ve reached an age at which I’d rather pay more for something that “just works” than roll up my sleeves, reach for a spanner, and make it work. Time is money, and the older we get the less of it we’ve got left.
+ - Lawyers do not mix with diplomacy.
+ - Christmas: the one time of year when you can’t avoid the nuts in your family muesli.
+ - Humans: such a brilliant model of emotional self-awareness.
+ - The Magician’s Land is a triumphant climax to the best fantasy trilogy of the decade.
+ - Gene police! You! Out of the pool, now!
+ - Fatal accidents never happen because of just one mistake. It takes a whole chain of stupids lining up just so to put a full stop at the end of an epitaph.
+ - Time is a corrosive fluid, dissolving motivation, destroying novelty, and leaching the joy from life.
+ - Any civilization where the main symbol of religious veneration is a tool of execution is a bad place to have children.
+ - Idiots emit bogons, causing machinery to malfunction in their presence. System administrators absorb bogons, letting machinery work again.
+ - Humans are just barely intelligent tool users; Darwinian evolutionary selection stopped when language and tool use converged, leaving the average hairy meme carrier sadly deficient in smarts.
+ - Writing your own story around the same ideas is not plagiarism; at worst, it’s being unoriginal.
+ - I have time to write 1-2 novels per year, and get roughly novel-sized ideas every month. I have to perform triage on my own writing impulses.
+ - I’m told that a couple of my Russian translations are just plain terrible, though, and there may be others.
+ - I’m a fuzzy-headed warm-hearted liberal, and I think fuzzy-headed warm-hearted liberalism is an ideological stance that needs defending-if necessary, with a hob-nailed boot-kick to the bollocks of budding totalitarianism.
+ - All men are islands, surrounded by the bottomless oceans of unthinking night.
+ - My gut feeling is that SF as we know it today is actually a heavily propagandized field that grew out of a specific set of cultural trends running in the USA and Europe between 1918 and 1950, during the post-imperial modernization period.
+ - I’d like to be proven wrong firstly on the difficulty of building a self-sustaining closed circuit ecosystem in space that can support human life.
+ - I have a CS degree and a history that includes working as a software developer and being a computer magazine columnist back during the 1990s. I guess I simply paid attention to the social effects of the IT revolution as I lived through it.
+ - A religious college in Cairo is considering issues of nanotechnology: If replicators are used to prepare a copy of a strip of bacon, right down to the molecular level, but without it ever being part of a pig, how is it to be treated?
+ - Where would dictators be without our compliant amnesia? Make the collective lose its memory, you can conceal anything.
+ - Writing novels takes up about 100% of my available working time.
+ - The trouble is, if you go too far towards being polite, the label that applies is “doormat”.
+ - For a sampler, you could try my short story collection “Wireless”. Which contains one novella that scooped a Locus award, and one that won a Hugo, and covers a range of different styles.
+ - The problem with ebook filesharing is simply one of scale. But I think the “piracy” problem is massively over-rated.
+ - The late 90s were crazy science-fictional if you were inside the superheated steam bubble of the dot-com 1.0 industry.
+ - The dirty little secret of publishing is that, all along, each book sold has had an average of 5 readers. That’s an 80% “piracy” rate if you insist on looking at it in those terms.
+ - I’m trapped in a fun-house mirror reflection of a historical society where everyone was crazy by default, driven mad by irrational laws and meaningless customs.
+ - Most established novelists are writing books informed by experiences gained in their youth. Middle age is not the best time to be changing smartphones every six months or adopting new technology platforms – because we tend to get slower and less accommodating to change as we age.
+ - Steampunk is nothing more than what happens when Goths discover brown.
+ - I don’t do flash fiction.
+ - The one thing that does happen, every time, though, is that I never get to write a book until I’ve already been thinking about it for a period of months to years.
+ - You know, if I tried to change the minds of everyone who I thought needed changing, I’d never have time to do anything else.
+ - Starships are all work and no fun.
+ - The real world is devoid of narratives, after all. Narratives are just a thing that our brains do with facts in order to draw a line around the incomprehensible largeness of reality and wrestle it into something learnable and manipulable. Existence is devoid of plot, theme, and most of all moral.
+ - We’re currently living with a generation of established novelists who are embarrassingly out of date with respect to social networking, internet skills, and so on.
+ - Back before the internet we had a name for people who bought a single copy of our books and lent them to all their friends without charging: we called them “librarians”.
+ - People want to buy mp3s but can’t? Piracy ensues. Then Apple strong-arms the music studios into the iTunes store and music piracy drops somewhat. The same, I believe, is also happening with ebooks.
+ - The chip that functions abnormally will be desoldered, as they say.
+ - My agent is based in New York. And due to a historic accident, my publishing track is primarily American – I’m sold into the UK almost as a foreign import! So I’m quite out of touch with what’s going on in UK publishing.
+ - If an idea is compelling enough it’ll stick in my head until I am forced to write it. If it’s forgettable, who cares?
+ - You’ll still get guys with an array of badges to demonstrate their importance, but that just excludes people. I think fandom is more inclusive now.
+ - No two books come out the same way. Some I write by the seat of my pants; others are planned in minute detail.
+ - I grew up on second hand bookshops and libraries.
+ - Had enough of my poetry yet? That’s why they pay me to fight demons instead.
+ - In general, a little controversy isn’t harmful: if anything, it gets people interested.
+ - I’m not planning a kickstarter game. And I’m not really a game designer.
+ - If I forget, then it might as well never have happened. Memory is liberty.
+ - I have no policy, for or against: only a personal style. Which is to say, I use them when I think it’s appropriate to; for example, an internal monologue by a locquacious and verbose narrator is more likely to be larded with adverbs than an exchange of instant messages between cops at a crime scene.
+ - I was an early adopter: have been on the internet continuously since late 1989, barring a six-month loss of access in the early 90s.
+ - Book depository is nothing new; there’ve been outlets selling books internationally via mail order for many decades – the only change is that it’s now easier to find and use such services.
+ - Experiments in digitizing and running neural wetware under emulation are well established; some radical libertarians claim that, as the technology matures, death with its draconian curtailment of property and voting rights will become the biggest civil rights issue of all.
+ - I do not click on random youtube videos.
+ - Biggest influence: my mother.
+ - I began my first novel when I was 15. It went through three drafts, of around 40,000 words each. If I find it, I’ll burn it.
+ - If I was a Marxist I’d call it the crisis of capitalism. Even though I’m not a Marxist, that seems like a not unreasonable term for the widening gap between the rich and poor that we’re seeing...
+ - I have not watched the TV show. I do not generally watch TV sci-fi drama shows. They make me itch.
+ - The programmers have another saying: ‘The question of whether a machine can think is no more interesting than the question of whether a submarine can swim.’
+ - Humans are not as unsophisticated as mulch wrigglers, they can see the writing on the wall. Is it any surprise, that among the ones who look outward, the real debate is not over whether to run, but over how far and how fast?
+ - What I read: while I’m writing, I tend to go off reading fiction for relaxation – especially the challenging stuff. It’s too much like the day job.
+ - Unfortunately it’s also true to say that good management is a bit like oxygen – it’s invisible and you don’t notice its presence until it’s gone, and then you’re sorry.
+ - What I’m hoping for is something that goes much, much further than the conservative enablers of dog-eat-dog capitalism putting on a puppet show of cleaning house. But that’s probably not going to happen just yet...
+ - I write almost entlirely on Macs, because: Windows gives me hives.
+ - I don’t want to permanently damage myself! On the other hand, a couple of days off the keyboard tends to make things somewhat better.
+ - I don’t think most of my opinions, political or social, are so far outside of the mainstream that they’d cause massive outrage on a scale liable to provoke death threats or referrals to prosecutors for outraging public decency, so why worry?
+ - An important factor to note is that it’s rare for anyone to sell a first novel written before they turned 30-35; long-format fiction tends to require a bunch of experience of human life that takes time to acquire. So your average mid-career novelist is in their forties to fifties!
+ - More often than not, piracy is a symptom of an under-provisioned market.
+ - While writing a novel I almost completely stop reading books in the same sub-genre for the duration.
+ - Publishing is the final step in making a book; if I was afraid to publish one, I wouldn’t write it in the first place.
+ - It’s usually quite easy to shrug and write something else instead.
+ - If I write too much of anything for too long, I burn out on it. So it helps to vary my output from year to year.
+ - I like lassic British spy thrillers. Seriously. If the cold war was still on, that’s something I’d be writing.
+ - We are Bay Aryans from Berkeley: prepare to be reengineered in an attractive range of color schemes for your safety and comfort!
+ - I tend to think that immortal souls, invisible sky daddies, and Santa Claus all belong in the same basket. The disposition of that basket is left as an exercise for the reader.
+ - Can I remember “I remember lots,” I say. How much of what I remember is true is another matter.
+ - If I wanted to be in movies, I’d have gone into scriptwriting: the fact that I write novels should be a big hint about what I prefer to do!
+ - Personal pride is probably a bad guide to merit.
+ - What I’ve learned during my life is that the near future is 90% identical to the present – if you buy a new car today, it’ll probably still be on the road in 2022.
+
+85 quotes

@@ -1,0 +1,50 @@
+ - The final test of a gentleman is his respect for those who can be of no possible service to him.
+ - The highest happiness on earth is marriage. Every man who is happily married is a successful man even if he has failed in everything else.
+ - A well-ordered life is like climbing a tower; the view halfway up is better than the view from the base, and it steadily becomes finer as the horizon expands.
+ - I believe a knowledge of the Bible without a college course is more valuable than a college course without a Bible.
+ - Real happiness is not dependent on external things.
+ - Not doing more than the average is what keeps the average down.
+ - Whenever it is in any way possible, every boy and girl should choose as his life work some occupation which he should like to do anyhow, even if he did not need the money.
+ - A bibliophile of little means is likely to suffer often. Books don’t slip from his hands but fly past him through the air, high as birds, high as prices.
+ - At a certain age some people’s minds close up; they live on their intellectual fat.
+ - I divide all readers into two classes: those who read to remember and those who read to forget.
+ - The highest happiness on earth is the happiness of marriage.
+ - Those who decide to use leisure as a means of mental development, who love good music, good books, good pictures, good plays, good company, good conversation – what are they? They are the happiest people in the world.
+ - Real happiness is not dependent on external things. The pond is fed from within. The kind of happiness that stays with you is the happiness that springs from inward thoughts and emotions. You must cultivate your mind if you wish to achieve enduring happiness.
+ - The greatest of all the arts is the art of living together!
+ - God speaks to me not through the thunder and the earthquake, nor through the ocean and the stars, but through the Son of Man, and speaks in a language adapted to my imperfect sight and hearing.
+ - You can learn more about human nature by reading the Bible than by living in New York.
+ - To a man the greatest blessing is individual liberty; to a dog it is the last word in despair.
+ - Never try to outsmart a woman, unless you are another woman.
+ - My religious faith remains in possession of the field only after prolonged civil war with my naturally skeptical mind.
+ - Life, with all it’s sorrows, cares, perplexities and heart-breaks, is more interesting than bovine placidity, hence more desirable. The more interesting it is, the happier it is.
+ - Herein lies the real value of education. Advanced education may or may not make men and women more efficient; but it enriches personality, increases the wealth of the mind, and hence brings happiness.
+ - The teacher should make a concerted effort never to lose his temper in the presence of the class. If a man, he may take refuge in profane soliloquies. If a woman, she may follow the example of one sweet-faced tranquil girl who went out in the yard and gnawed a post.
+ - There is never much trouble in any family where the children hope someday to resemble their parents.
+ - If happiness truly consisted in physical ease and freedom from care the happiest, individual would not be either a man or a woman it; it would be, I think a cow.
+ - One of the secrets of life is to keep our intellectual curiosity acute.
+ - A student never forgets an encouraging private word, when it is given with sincere respect and admiration.
+ - One appreciates that daily life is really good when one wakes from a horrible dream, or when one takes the first outing after a sickness. Why not realize it now?
+ - Being educated means to prefer the best not only to the worst but to the second best.
+ - If at first you don’t succeed, find out if the loser gets anything.
+ - The happiest people in this world are those who have the most interesting thoughts.
+ - The fear of life is the favorite disease of the 20th century.
+ - There is a strange reluctance on the part of most people to admit that they enjoy life.
+ - Two persons who love each other are in a place more holy than the interior of a church.
+ - The amazing activity of the cat is delicately balanced by his capacity for relaxation. Every household should contain a cat, not only for decorative and domestic values, but because the cat in quiescence is medicinal to irritable, tense, tortured men and women.
+ - Every time you acquire a new interest, even more, a new accomplishment, you increase your power of life.
+ - I do not know how wicked American millionaires are, but as I travel about and see the results of their generosity in the form of hospitals, churches, public libraries, universities, parks, recreation grounds, art museums and theatres I wonder what on earth we should do without them.
+ - Why is it that so many people are afraid to admit they are happy?
+ - You can be deprived of your money, your job and your home by someone else, but remember that no one can ever take away your honor.
+ - In the whole story of Jesus Christ, the most important event is the resurrection.
+ - Honesty is not necessarily the best policy. The best policy would be to acquire a reputation for honesty and then to cheat at the psychological moment.
+ - The belief that youth is the happiest time of life is founded on fallacy. The happiest person is the person who thinks the most interesting thoughts, and we grow happier as we grow older.
+ - A middle-aged cat will often play as unreservedly as a kitten, though he knows perfectly well it is only a game.
+ - The kind of happiness that stays with you is the happiness that springs from inward thoughts and emotions.
+ - A cat pours his body on the floor like water. It is restful just to see him.
+ - How essential it is in youth to acquire some intellectual or artistic tastes, in order to furnish the mind, to be able to live inside a mind with attractive and interesting pictures on the walls.
+ - In a start-up company, you basically throw out all assumptions every three weeks.
+ - Unlimited power is worse for the average person than unlimited alcohol; and the resulting intoxication is more damaging for others. Very few have not deteriorated when given absolute dominion. It is worse for the governor than for the governed.
+ - Marriage is a fine and sacred thing if you make it so.
+
+48 quotes

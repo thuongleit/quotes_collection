@@ -1,0 +1,240 @@
+ - Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.
+ - Dance first. Think later. It’s the natural order.
+ - I can’t go on. I’ll go on.
+ - Fail, fail again, fail better.
+ - You’re on earth. There’s no cure for that.
+ - Don’t look for meaning in the words. Listen to the silences.
+ - Where am I, I don’t know, I’ll never know, in the silence, in the silence you don’t know, you must go on, I can’t go on, I’ll go on.
+ - What are we doing here, that is the question.
+ - Nothing is more real than nothing.
+ - Go on failing. Go on. Only next time, try to fail better.
+ - We all are born mad. Some remain so.
+ - Don’t touch me! Don’t question me! Don’t speak to me! Stay with me!
+ - What do we do now, now that we are happy?
+ - The sun shone, having no alternative, on the nothing new.
+ - He who has waited long enough, will wait forever. And there comes the hour when nothing more can happen and nobody more can come and all is ended but the waiting that knows itself in vain.
+ - Estragon: We always find something, eh Didi, to give us the impression we exist? Vladimir: Yes, yes, we’re magicians.
+ - How hideous is the semicolon.
+ - What are we doing here, that is the question. And we are blessed in this, that we happen to know the answer. Yes, in the immense confusion one thing alone is clear. We are waiting for Godot to come.
+ - That desert of loneliness and recrimination that men call love.
+ - Nothing happens. Nobody comes, nobody goes. It’s awful.
+ - Words are the clothes thoughts wear.
+ - God is love. Yes or no? No.
+ - People are bloody ignorant apes.
+ - Perhaps my best years are gone. When there was a chance of happiness. But I wouldn’t want them back. Not with the fire in me now. No, I wouldn’t want them back.
+ - The end is in the beginning and yet you go on.
+ - Any fool can turn a blind eye but who knows what the ostrich sees in the sand.
+ - They give birth astride of a grave, the light gleams an instant, then it’s night once more.
+ - There are two moments worthwhile in writing, the one when you start and the other when you throw it in the waste-paper basket.
+ - When a man in a forest thinks he is going forward in a straight line, in reality he is going in a circle, I did my best to go in a circle, hoping to go in a straight line.
+ - Every word is like an unnecessary stain on silence and nothingness.
+ - Sometimes I wonder if I’m in my right mind. Then it passes off and I’m as intelligent as ever.
+ - I am still alive then. That may come in useful.
+ - Vladimir: Did I ever leave you? Estragon: You let me go.
+ - If I was dead, I wouldn’t know I was dead. That’s the only thing I have against death. I want to enjoy my death.
+ - Make sense who may. I switch off.
+ - I tried to groan, Help! Help! But the tone that came out was that of polite conversation.
+ - Estragon: I’m like that. Either I forget right away or I never forget.
+ - If by Godot I had meant God I would have said God, and not Godot.
+ - I have my faults, but changing my tune is not one of them.
+ - All I want to do is sit on my ass and fart and think of Dante.
+ - Words are all we have.
+ - Imagination at wit’s end spreads its sad wings.
+ - But what matter whether I was born or not, have lived or not, am dead or merely dying. I shall go on doing as I have always done, not knowing what it is I do, nor who I am, nor where I am, nor if I am.
+ - Silence, yes, but what silence! For it is all very fine to keep silence, but one has also to consider the kind of silence one keeps.
+ - There is no escape from yesterday because yesterday has deformed us, or been deformed by us. The mood is of no importance. Deformation has taken place.
+ - I pause to record that I feel in extraordinary form. Delirium perhaps.
+ - Unfathomable mind: now beacon, now sea.
+ - James Joyce: His writing is not about something. It is the thing itself.
+ - No, I regret nothing, all I regret is having been born, dying is such a long tiresome business I always found.
+ - I use the words you taught me. If they don’t mean anything any more, teach me others. Or let me be silent.
+ - My mistakes are my life.
+ - ESTRAGON: I can’t go on like this. VLADIMIR: That’s what you think.
+ - To find a form that accommodates the mess, that is the task of the artist now.
+ - That’s what hell must be like, small chat to the babbling of Lethe about the good old days when we wished we were dead.
+ - That penny farthing hell you call your mind.
+ - There is man in his entirety, blaming his shoe when his foot is guilty.
+ - I write about myself with the same pencil and in the same exercise book as about him. It is no longer I, but another whose life is just beginning.
+ - I did not want to write, but I had to resign myself to it in the end.
+ - Love requited is a short circuit.
+ - I love order. It’s my dream. A world where all would be silent and still, and each thing in its last place, under the last dust.
+ - Habit is a great deadener.
+ - Success and failure on the public level never mattered much to me, in fact I feel more at home with the latter, having breathed deep of its vivifying air all my writing life up to the last couple of years.
+ - Sloth is all passions the most powerful.
+ - For in me there have always been two fools, among others, one asking nothing better than to stay where he is and the other imagining that life might be slightly less horrible a little further on.
+ - Do we mean love, when we say love?
+ - Not to want to say, not to know what you want to say, not to be able to say what you think you want to say, and never to stop saying, or hardly ever, that is the thing to keep in mind, even in the heat of composition.
+ - To be an artist is to fail, as no other dare fail, that failure is his world and the shrink from desertion, art and craft, good housekeeping, living.
+ - The only sin is the sin of being born.
+ - The sky sinks in the morning, this fact has been insufficiently observed.
+ - Dear incomprehension, it’s thanks to you I’ll be myself, in the end.
+ - What is that unforgettable line?
+ - That double-headed monster of damnation and salvation – Time.
+ - Estragon: What about hanging ourselves? Vladimir: Hmm. It’d give us an erection.
+ - All poetry, as discriminated from the various paradigms of prosody, is prayer.
+ - The essential doesn’t change.
+ - Art has nothing to do with clarity, does not dabble in the clear and does not make clear.
+ - Two in distressmake sorrow less.
+ - The reality of the individualis an incoherent reality and must be expressed incoherently.
+ - To think, when one is no longer young, when one is not yet old, that one is no longer young, that one is not yet old, that is perhaps something.
+ - If there is one question I dread, to which I have never been able to invent a satisfactory reply, it is the question what am I doing.
+ - Nothing is funnier than unhappiness, I grant you that. Yes, yes, it’s the most comical thing in the world.
+ - Silence and darkness were all I craved. Well, I get a certain amount of both. They being one.
+ - Ah, the old questions, the old answers, there’s nothing like them!
+ - Yes, in my life, since we must call it so, there were three things, the inability to speak, the inability to be silent, and solitude, that’s what I’ve had to make the best of.
+ - The old endless chain of love, tolerance, indifference, aversion and disgust.
+ - We spend our life, it’s ours, trying to bring together in the same instant a ray of sunshine and a free bench.
+ - The dust will not settle in our time. And when it does some great roaring machine will come and whirl it all skyhigh again.
+ - Over, over, there is a soft place in my heart for all that is over, no, for the being over, words have been my only loves, not many.
+ - We could have saved sixpence. We could have saved fivepence. But at what cost?
+ - There’s man all over for you, blaming on his boots the fault of his feet.
+ - In the landscape of extinction, precision is next to godliness.
+ - Words fail, there are times when even they fail.
+ - How time flies when one has fun!
+ - Estragon: Nothing to be done.
+ - Life is habit. Or rather life is a succession of habits.
+ - Our vulgar perception is not concerned with other than vulgar phenomena.
+ - God is a witness that cannot be sworn.
+ - My dear Tom, Delighted to get your letter. Do write again. This life is terrible and I don’t understand how it can be endured.
+ - Then I went back into the house and wrote, It is midnight. The rain is beating on the windows. It was not midnight. It was not raining.
+ - Dying for dark – the darker the worse. Strange.
+ - Love, that is all I asked, a little love, daily, twice daily, fifty years of twice daily love like a Paris horse-butcher’s regular, what normal woman wants affection?
+ - Art has always been this – pure interrogation, rhetorical question less the rhetoric – whatever else it may have been obliged by social reality to appear.
+ - Habit is the ballast that chains the dog to his vomit.
+ - It was the only way to progress, to stop.
+ - The fact is, it seems, that the most you can hope is to be a little less, in the end, the creature you were in the beginning, and the middle.
+ - My notes have a curious tendency, as I realize at last, to annihilate all they purport to record.
+ - If I had the use of my body, I would throw it out the window.
+ - Better hope deferred than none.
+ - Habit is a compromise effected between the individual and his environment, or between the individual and his own organic eccentricities, the guarantee of a dull inviolability, the lightning-conductor of his existence.
+ - Let me go to hell, that’s all I ask, and go on cursing them there, and them look down and hear me, that might take some of the shine off their bliss.
+ - Clear to me at last that the dark I have always struggled to keep under is in reality my most.
+ - And all these questions I ask myself. It is not in a spirit of curiosity. I cannot be silent. About myself I need know nothing. Here all is clear. No, all is not clear. But the discourse must go on. So one invents obscurities. Rhetoric.
+ - That’s the mistake I made, one of the mistakes, to have wanted a story for myself, whereas life alone is enough.
+ - I open the door of the cell and go. I am so bowed I only see my feet, if I open my eyes, and between my legs a little trail of black dust. I say to myself that the earth is extinguished, though I never saw it lit.
+ - The memory came faint and cold of the story I might have told, a story in the likeness of my life, I mean without the courage to end or the strength to go on.
+ - Hamm: There’s something dripping in my head. A heart, a heart in my head.
+ - Spend the years of learning squandering Courage for the years of wandering Through a world politely turning From the loutishness of learning.
+ - Humbly to ask a favour of people who are on the point of knocking your brains out sometimes produces good results.
+ - If you do not love me I shall not be loved If I do not love you I shall not love.
+ - Never but the one matter. The dead and gone. The dying and going. From the word go.
+ - There’s never an end for the sea.
+ - Personally I have no bone to pick with graveyards, I take the air there willingly, perhaps more willingly than elsewhere, when take the air I must.
+ - We have time to grow old. The air is full of our cries. But habit is a great deadener.
+ - You cried for night – it falls. Now cry in darkness.
+ - I know those little phrases that seem so innocuous, and, once you let them in, pollute the whole of speech. ‘Nothing is more real than nothing.’ They rise up out of the pit and know no rest until they drag you down into its dark.
+ - The tears of the world are a constant quality. For each one who begins to weep, somewhere else another stops. The same is true of the laugh.
+ - The day you die is just like any other, only shorter.
+ - Tears and laughter, they are so much Gaelic to me.
+ - To every man his little cross. Till he dies. And is forgotten.
+ - Words and images run riot in my head, pursuing, flying, clashing, merging, endlessly. But beyond this tumult there is a great calm, and a great indifference, never really to be troubled by anything again.
+ - The tears stream down my cheeks from my unblinking eyes. What makes me weep so? There is nothing saddening here. Perhaps it is liquefied brain.
+ - With all this darkness round me I feel less alone.
+ - Don’t wait to be hunted to hide, that was always my motto.
+ - The whisky bears a grudge against the decanter.
+ - Watt had watched people smile and thought he understood how it was done.
+ - To have been always what I am – and so changed from what I was.
+ - We lose our hair, our teeth! Our bloom, our ideals.
+ - In the name of Bacon will you chicken me up that egg. Shall I swallow cave-phantoms?
+ - Absolute virtue is as sure to kill a man as absolute vice is, let alone the dullness of it and the pomposities of it.
+ - Normally I didn’t see a great deal. I didn’t hear a great deal either. I didn’t pay attention. Strictly speaking I wasn’t there. Strictly speaking I believe I’ve never been anywhere.
+ - The bicycle is a great good. But it can turn nasty, if ill employed.
+ - To restore silence is the role of objects.
+ - It is better to adopt the simplest explanation, even if it is not simple, even if it does not explain very much. A bright light is not necessary, a taper is all one needs to live in strangeness, if it faithfully burns.
+ - If you don’t know where you are currently standing, you’re dead.
+ - What kind of country is this where a woman can’t weep her heart out on the highways and byways without being tormented by retired bill-brokers!
+ - Memories are killing. So you must not think of certain things, of those that are dear to you, or rather you must think of them, for if you don’t there is the danger of finding them, in your mind, little by little.
+ - I shall state silences more competently than ever a better man spangled the butterflies of vertigo.
+ - So all things limp together for the only possible.
+ - I don’t like animals. It’s a strange thing, I don’t like men and I don’t like animals. As for God, he is beginning to disgust me.
+ - It sometimes happens and will sometimes happen again that I forget who I am and strut before my eyes, like a stranger.
+ - Light black. From pole to pole.
+ - To him who has nothing it is forbidden not to relish filth.
+ - Hold the old holding hand. Hold and be held. Plod on and never recede. Slowly with never a pause plod on and never recede.
+ - Friendship, according to Proust, is the negation of that irremediable solitude to which every human being is condemned.
+ - Yes, light, there is no other word for it.
+ - I have nothing but wastes and wilds of self-translation before me for many miserable months to come.
+ - But I was not made for the great light that devours, a dim lamp was all I had been given, and patience without end, to shine it on the empty shadows.
+ - All I know is what the words know, and dead things, and that makes a handsome little sum, with a beginning and a middle and an end, as in the well-built phrase and the long sonata of the dead.
+ - Women are all the bloody sameyou can’t love for five minutes without wanting it abolished in brats and house bloody wifery.
+ - I say me, knowing all the while it’s not me.
+ - Yes, there were times when I forgot not only who I was but that I was, forgot to be.
+ - I, of whom I know nothing, I know my eyes are open, because of the tears that pour from them unceasingly.
+ - How can one better magnify the Almighty than by sniggering with him at his little jokes, particularly the poorer ones?
+ - What is this love that more than all the cursed deadly or any other of its great movers so moves the soul and soul what is this soul that more than by any of its great movers is by love so moved?
+ - All I say cancels out, I’ll have said nothing.
+ - What was God doing with himself before the creation?
+ - Reality, whether approached imaginatively or empirically, remains a surface, hermetic.
+ - Dublin university contains the cream of Ireland: Rich and thick.
+ - But I know what darkness is, it accumulates, thickens, then suddenly bursts and drowns everything.
+ - All the things you would do gladly, oh without enthusiasm, but gladly, all the things there seems no reason for your not doing, and that you do not do! Can it be we are not free? It might be worth looking into.
+ - Poets are the sense, philosophers the intelligence of humanity.
+ - Abode where lost bodies roam each searching for its lost one.
+ - Mysterious affair, electricity.
+ - I knew it would soon be the end, so I played the part, you know, the part of – how shall I say, I don’t know.
+ - Deplorable mania, when something happens, to inquire what.
+ - The search for the means to put an end to things, an end to speech, is what enables the discourse to continue.
+ - The creation of the world did not take place once and for all time, but takes place every day.
+ - Until the day when, your endurance gone, in this world for you without arms, you catch up in yours the first mangy cur you meet, carry it for the time needed for it to love it and you it, then throw it away.
+ - You are not satisfied unless form is so strictly divorced from content that you can comprehend the one without almost without bothering to read the other.
+ - Adulterers, take warning, never admit.
+ - Where you have nothing, there you should want nothing.
+ - Lick your neighbor as yourself!
+ - There is at least this to be said for mind, that it can dispel mind.
+ - They never lynch children, babies, no matter what they do they are whitewashed in advance.
+ - For to know nothing is nothing, not to want to know anything likewise, but to be beyond knowing anything, to know you are beyond knowing anything, that is when peace enters in, to the soul of the incurious seeker.
+ - Name, no, nothing is nameable, tell, no, nothing can be told, what then, I don’t know, I shouldn’t have begun.
+ - An imaginative adventure does not enjoy the same corsets as reportage.
+ - Decidedly it will never have been given to me to finish anything, except perhaps breathing. One must not be greedy.
+ - James Joyce was a synthesizer, trying to bring in as much as he could. I am an analyzer, trying to leave out as much as I can.
+ - But it seems impossible to speak and yet say nothing, you think you have succeeded, but you always overlook something.
+ - What is more true than anything else? To swim is true and to sink is true. One cannot speak any more of being, one must speak onlyof the mess.
+ - I am such a good man, at bottom, such a good man, how is it that nobody ever noticed it?
+ - To-morrow, when I wake, or think I do, what shall I say of to-day?
+ - I gave up before birth.
+ - Do you always believe in the life to come? Mine was always that.
+ - Enough of acting the infant who has been told so often how he was found under a cabbage that in the end he remembers the exact spot in the garden and the kind of life he led there before joining the family circle.
+ - It’s a rare thing not to have been bonny – once.
+ - As it is with the love of the body, so with the friendship of the mind, the full is only reached by admittance to the most retired places.
+ - Birth was the death of him.
+ - But at this place, at this moment of time, all mankind is us, whether we like it or not. Let us make the most of it, before it is too late!
+ - All mankind is us, whether we like it or not.
+ - Habit is a compromise effected between an individual and his environment.
+ - It was long since I had longed for anything and the effect on me was horrible.
+ - To what will love not stoop!
+ - The blind have no notion of time. The things of time are hidden from them too.
+ - I could not have gone through the awful wretched mess of life without having left a stain upon the silence.
+ - Personally I have no bone to pick with graveyards.
+ - There is no use indicting words, they are no shoddier than what they peddle.
+ - The only thing you must never speak of is your happiness.
+ - In my head there are several windows, that I do know, but perhaps it is always the same one, open variously on the parading universe.
+ - Yes, I dont know why, but I have never been disappointed, and I often was in the early days, without feeling at the same time, or a moment later, an undeniable relief.
+ - I marshalled the words and opened my mouth, thinking I would hear them. But all I heard was a kind of rattle, unintelligible even to me who knew what was intended.
+ - All has not been said and never will be.
+ - I want very much to be back in the caul, on my back in the dark forever.
+ - There’s no lack of void.
+ - What goes by the name of love is banishment, with now and then a postcard from the homeland, such is my considered opinion, this evening.
+ - My keepers, why keepers, I’m in no danger of stirring an inch, ah I see, it’s to make me think I’m a prisoner, frantic with corporeality, rearing to get out and away.
+ - You would do better, at least no worse, to obliterate texts than to blacken margins, to fill in the holes of words till all is blank and flat and the whole ghastly business looks like what it is, senseless, speechless, issueless misery.
+ - We are not saints, but we have kept our appointment. How many people can boast as much?
+ - Enough to know no knowing.
+ - It’s so nice to know where you’re going, in the early stages. It almost rids you of the wish to go there.
+ - I cannot explain my plays. Each must find out for himself what is meant.
+ - I had little talent for happiness.
+ - The loss of my sight was a great fillip. If I could go deaf and dumb I think I might pant on to be a hundred.
+ - How do you manage it, she said, at your age? I told her I’d been saving up for her all my life.
+ - Unhappy, but not unhappy enough.
+ - The end of a life is always vivifying.
+ - We should have thought of it when the world was young, in the nineties.
+ - The situation is that of him who is helpless, cannot act, in the event cannot paint, since he is obliged to paint. The act is of him who, helpless, unable to act, acts, in the event paints, since he is obliged to paint.
+ - Against the charitable gesture there is no defence.
+ - And what I have, what I am, is enough, was always enough for me, and as far as my dear little sweet little future is concerned I have no qualms, I have a good time coming.
+ - All that is active, all that is enveloped in time and space, is endowed with what might be described as an abstract, ideal and absolute impermeability.
+ - Suffering is the main condition of the artistic experience.
+ - Was I asleep? Had I slept?
+ - There is this to be said for Dachsunds of such length and lowness as Nelly, that it makes very little difference to their appearance whether they stand, sit or lie.
+ - That passed the time. It would have passed in any case. Yes, but not so rapidly.
+ - I don’t know why I told this story. I could just as well have told another. Perhaps some other time I’ll be able to tell another. Living souls, you will see how alike they are.
+ - Watt’s concern, deep as it appeared, was not after all what the figure was, in reality, but with what the figure appeared to be, in reality.
+
+238 quotes

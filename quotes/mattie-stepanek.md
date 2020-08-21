@@ -1,0 +1,36 @@
+ - If you have enough breath to complain about anything, you have more than enough reason to give thanks about something.
+ - Remember to play after every storm.
+ - We all have life storms, and when we get the rough times and we recover from them, we should celebrate that we got through it. No matter how bad it may seem, there’s always something beautiful that you can find.
+ - Even though the future seems far away, it is actually beginning right now.
+ - God gives me hope that there is something greater than us, something better and bigger than the here and now, that can help us live.
+ - Keep all special thoughts and memories for lifetimes to come. Share these keepsakes with others to inspire hope and build from the past, which can bridge to the future.
+ - Sometimes my body wakes me up and says ‘Hey, you haven’t had pain in a while. How about pain?’ And sometimes I can’t breathe, and that’s hard to live with. But I still celebrate life and don’t give up.
+ - It’s the song in your heart that wants you to help make yourself a better person, and to help other people do the same. Everybody has one.
+ - Do not breathe simply to exist.
+ - While we are living in the present, we must celebrate life every day, knowing that we are becoming history with every work, every action, every deed.
+ - I feel that God has given me a very special opportunity that I should not let go to waste. I use the gift he has given me.
+ - Sunset is still my favorite color, and rainbow is second.
+ - Sad things happen. They do. But we don’t need to live sad forever.
+ - Poetry is a beautiful way of expressing feelings – happy, sad, angry, caring. It’s also a way that we share with other people, to help them with those feelings.
+ - A heartsong doesn’t have to be a song in your heart. It doesn’t have to be talking about love and peace. It can just be your message. It can be your feeling. Some people might even call it a conscience, even though that’s not really what it is. It’s your message, what you feel like you need to do.
+ - We always have to choose to live our lives to the fullest. No one is better or worse than anyone else. We are different and beautiful.
+ - There can be many different views of what Heaven is like, because Heaven is whatever makes each person eternally and fully happy.
+ - I want to keep publishing books, and writing and spreading my heartsong through the world.
+ - I never question God. Sometimes I say, ‘Why me? Why do I have such a hard life? Why do I have this disease? Why do I have siblings who died?’ But then I think and say, ‘Why not me?’
+ - Remember to look at your glass half full and not half empty. A lot of my strength comes from God. God has given me a gift – the gift of life – and it’s amazing that I live each day.
+ - We’re divorced from my father because he did some mean and scary things to us.
+ - My life mission is to spread peace to the world.
+ - I choose to live until death, not spend the time dying until death occurs.
+ - Expressing my feelings and then the opportunity to share it with others is just such a gift.
+ - I do fear death. But what I actually fear is not dying. I mean, true, it will be sad. But I know that there is a better place waiting for me.
+ - Wars should be fought with words, not bombs, not weapons. And calm words. I think that wars should be fought over a chessboard and a cup of something to drink.
+ - I want to be remembered as a poet, a peacemaker, and a philosopher who played.
+ - I think that someone is watching out for me, God, my guardian angel, I’m not sure who that is, but they really work hard.
+ - Maybe I wanted to have kids because you want to leave behind lessons, leave behind everything that matters to you. That’s how you touch the world. But I have to reconsider what it’s like to leave a legacy.
+ - You can’t lie down in the ashes of another person’s life.
+ - Every year, once a year, in Maryland, I go for a week and overnight camp with about 50 to 60 kids with muscular dystrophy, all ages, seven to 21. And it is really fun. I have some great friends there and wonderful counselors.
+ - People are fighting over how our heartsongs are different. But they don’t need to be the same. That’s the beauty. We are a mosaic of gifts. Each of us has our inner beauty no matter how we look.
+ - You know, it’s kind of hard because I really – I see kids on their Rollerblades and their bikes, and just running around, climbing trees, and I used to do that. And I loved doing that.
+ - I’ve gotten books published. I’ve met famous people that are very nice. I look back and I say, ‘Wow. Thank you, God, for giving me this gift. And thank you for helping me to keep going.’
+
+34 quotes

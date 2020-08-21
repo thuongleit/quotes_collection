@@ -1,0 +1,38 @@
+ - I’d like to add that negotiating is not something to be avoided or feared – it’s an everyday part of life.
+ - Work needs to be a reflection of your social values. You are how you work!
+ - Challenge yourself, its fine not to be a totally finished person.
+ - People who have addictive problems usually have some subset of emotional difficulties that causes them to abuse substances.
+ - I try to live in the moment, every moment.
+ - Be open to the amazing changes which are occurring in the field that interest you.
+ - There’s never a benefit to bragging too much about a deal because the only sure thing is that I’m probably going to be dealing with that same general manager or that same person over and over again.
+ - So George Burns and my grandpa took me to my first baseball game.
+ - Never underestimate the capacity of another human being to have exactly the same shortcomings you have.
+ - In reality, we can prove that the incidents of drug, alcohol abuse and violence have dropped dramatically among professional athletes – but the problem is it would be impossible to convince than fans, because of what they read on the AP wire.
+ - We can always find creative ways to do things.
+ - I have to say that it was a very strange experience when, later in life, I represented Byron Scott and was negotiating with West – whose picture I used to have over my bed! That took some getting used to.
+ - The whole concept of negotiating is intimidating to many people.
+ - The NFL today has bigger, stronger, bodies than ever, moving faster than ever, hitting a stationary object harder than ever before – so the physics of the hit have changed.
+ - Very narrow areas of expertise can be very productive. Develop your own profile. Develop your own niche.
+ - It’s learning how to negotiate to keep both sides happy – whether it’s for a multi-million dollar contract or just which show to watch on TV, that determines the quality and enjoyment of our lives.
+ - We live in a niche world.
+ - When it comes to holdouts, there’s a presupposition that the player is some angry rebel who’s defying authority and only cares about the money.
+ - Then the Angels came in 1961, and I fell in love with them.
+ - I just knew that economics had never been my big motivation.
+ - A player cannot be part of the training camp experience as a rookie unless he is signed to a contract.
+ - The Super Bowl is like a movie, and the quarterback is the leading man.
+ - Now some alien force seems to have come and captured the Dodgers. I don’t know what happened to my Dodgers.
+ - I ran track, and basically played every sport.
+ - It is soooooo necessary to get the basic skills, because by the time you graduate, undergraduate or graduate, that field would have totally changed from your first day of school.
+ - Forty years ago the chances of journalists reporting – or the authorities even prosecuting – a pro athlete were practically nil.
+ - My grandfather was running Hillcrest Country Club, and that’s where a whole group of Hollywood comedians hung out.
+ - Cameron was able to get an inside look at professional football from the standpoint of athletes and agents and general managers that few people have ever seen.
+ - As I write in my book, there is a misnomer that destroying another person’s position is an effective and practical way to negotiate.
+ - But the truth is, growing up in California, we knew nothing about hockey.
+ - School gives you the freedom to explore different philosophies, religions, aspects of yourself, and subjects.
+ - When it came to football there was a certain age where I realized that my future in football was being a grease spot on the side of some bigger player.
+ - Well, my favorite sport as a kid was clearly baseball.
+ - But the equipment to protect the players hasn’t developed along with that, so now you have more players out with worse injuries, for longer periods of time.
+ - You know, we don’t look much alike, but Denzel Washington would make a great sports agent.
+ - Well, when you’ve had Tom Cruise play you, anything else is a comedown.
+
+36 quotes

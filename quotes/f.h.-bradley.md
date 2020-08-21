@@ -1,0 +1,32 @@
+ - The hunter for aphorisms on human nature has to fish in muddy water, and he is even condemned to find much of his own mind.
+ - There are those who so dislike the nude that they find something indecent in the naked truth.
+ - Where everything is bad it must be good to know the worst.
+ - The one self- knowledge worth having is to know one’s own mind.
+ - Religion is rather the attempt to express the complete reality of goodness through every aspect of our being.
+ - Our live experiences, fixed in aphorisms, stiffen into cold epigrams. Our heart’s blood, as we write it, turns to mere dull ink.
+ - Metaphysics is the finding of bad reasons for what we believe on instinct.
+ - The world is the best of all possible worlds, and everything in it is a necessary evil.
+ - True penitence condemns to silence. What a man is ready to recall he would be willing to repeat.
+ - An aphorism is true where it has fixed the impression of a genuine experience.
+ - I can myself conceive of nothing else than the experienced.
+ - One said of suicide, As long as one has brains one should not blow them out. And another answered, But when one has ceased to have them, too often one cannot.
+ - The secret of happiness is to admire without desiring. And that is not happiness.
+ - The Self has turned out to mean so many things, to mean them so ambiguously, and to be so wavering in its application, that we do not feel encouraged.
+ - Up to a certain point every man is what he thinks he is.
+ - The force of the blow depends on the resistance. It is sometimes better not to struggle against temptation. Either fly or yield at once.
+ - Adam knew Eve his wife and she conceived. It is a pity that this is still the only knowledge of their wives at which some men seem to arrive.
+ - Few people would not be the worse for complete sincerity.
+ - The man whose nature is such that by one path alone his chief desire will reach consummation will try to find it on that path, whatever it may be, and whatever the world thinks of it; and if he does not, he is contemptible.
+ - It is good to know what a man is, and also what the world takes him for. But you do not understand him until you have learnt how he understands himself.
+ - The deadliest foe to virtue would be complete self-knowledge.
+ - Another occupation might have been better.
+ - The propriety of some persons seems to consist in having improper thoughts about their neighbors.
+ - But when one has ceased to have them, too often one cannot.
+ - It is by a wise economy of nature that those who suffer without change, and whom no one can help, become uninteresting. Yet so it may happen that those who need sympathy the most often attract it the least.
+ - Eclecticism – every truth is so true that any truth must be false.
+ - His mind is so open – so open that ideas simply pass through it.
+ - I will begin with the self-styled “Christian” party, who profess to base their morality on the New Testament. But whether it is really more Christian to follow or to ignore the teachings of the Gospels I shall not discuss.
+ - Reason teaches us that what is good is good for something, and that what is good for nothing is not good at all.
+ - There are persons who, when they cease to shock us, cease to interest us.
+
+30 quotes

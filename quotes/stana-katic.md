@@ -1,0 +1,30 @@
+ - So roar be fearless, and go chase those dreams.
+ - Don’t wait until it’s too late to say I love you.
+ - Once you’re comfortable by yourself you learn to be more at ease with others.
+ - I don’t believe in weak women, I believe women in general are pretty powerful beings. I don’t know anything else.
+ - I like the concept that if you’re with someone, it’s for the long term.
+ - I don’t know how you can live on the planet and not care about the environment. It’s our globe, we share it.
+ - I was named for my grandmother. It’s an evil-eye name, to protect you from bad things.
+ - Men should never marry their muse. It ruins the illusion.
+ - My fans are the best fans, because they’re charming, they’re sweet and they’re super intelligent. Thank you guys so much!
+ - I think you pay people based on their work and not based on gender. It’s that simple.
+ - As an actor, I feel like youre asked to live life as vibrantly as possible.
+ - I try to get away. Its very unusual for me to be in one spot for so many months, which is one of the things Ive had to get used to for a television show. I enjoy going on adventures and seeing the planet.
+ - I will direct one day. I need some more life experience before I feel like I can do something like that comfortably. It’d be a feature, it’d be something maybe that I had in writing as well.
+ - I love accents; I would love to find more characters with a variety of vocal intonations. It creates a character. It’s like you’re singing a song. Some people find their character through walking or movement – for me, voice is one of the ways I find parts of the character.
+ - People ask ‘How do you get so eh-ish?’ I don’t know if it’s just because so much of my family still lives in Canada and I finished studies up there.
+ - Um, I think every role, whether in TV or film, has a part in building a career and relationships.
+ - People in life take on certain stories and say, ‘I’m going to be defined by this story and I’m going to live up to every inch of this story.’ Sometimes you realize the story isn’t fulfilling you and in fact you’re not living the life that you’re given.
+ - The crew and cast at Castle becomes more of a reality than the people I’ve known all my life.
+ - Maybe I’m naively romantic, but I do believe that spice and excitement doesn’t stop once a couple gets together.
+ - I have a lot of brothers. It’s easy for me to do physical stuff. I had to survive. I really love it, and I’d love to do more of it. I want to do action films. I want to go and hang off of wires, and jump off of bridges, and hang on bungee cords. I’ve always really loved it.
+ - I think ‘Game of Thrones’ was extraordinary. I want to do some period pieces. It would be lovely to tell great stories, that is my main ambition. And to be working with amazing creators.
+ - I read ‘Scarlett’ recently, and that was a killer comic book. The ‘Black Widow’ was pretty rockin’. There is a big list of killer chicks that are just rockin’.
+ - In talking with people that have experienced it, I learned that PTSD is something that a person in a position of authority sometimes thinks they’re not supposed to have. They don’t always have an avenue to personally address it or even discuss it.
+ - I just enjoy working with really wonderful actors and amazing creative people and I hope to keep doing that, no matter where.
+ - My parents were European immigrants. They came to the States with $1,500, two suitcases, and me, and they managed to build a business, a family, and a future for their family. They didn’t have any of the resources of people who have lived here for two or three generations.
+ - Any girl that’s in a professional setting has to have a certain amount of decorum, but there’s always a different story going on, when she goes home.
+ - Romance is diffcult for some celebrities. If the media finds out you’re dating Robert Pattinson, you’re screwed.
+ - I have to believe in the character to perform it.
+
+28 quotes

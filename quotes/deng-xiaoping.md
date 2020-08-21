@@ -1,0 +1,23 @@
+ - Observe calmly; secure our position; cope with affairs calmly; hide our capacities and bide our time; be good at maintaining a low profile; and never claim leadership.
+ - Keep a cool head and maintain a low profile. Never take the lead – but aim to do something big.
+ - Cross the river by feeling for stones.
+ - Seek truth from facts.
+ - It doesn’t matter if a cat is black or white, so long as it catches mice.
+ - Poverty is not socialism. To be rich is glorious.
+ - When our thousands of Chinese students abroad return home, you will see how China will transform itself.
+ - Black cat, white cat, what does it matter as long as the cat catches mice?
+ - Black cat or white cat: If it can catch mice, it’s a good cat.
+ - Reform is Chinas second revolution.
+ - If the masses feel some anger, we must let them express it.
+ - Do not debate! is one of my inventions.
+ - Let some people get rich first.
+ - A fundamental contradiction does not exist between socialism and a market economy.
+ - There is oil in the Middle East there is rare earth in China.
+ - We must firmly grasp management. Just making things isn’t enough. We need to raise the quality.
+ - The United States brags about its political system, but the President says one thing during the election, something else when he takes office, something else at midterm and something else when he leaves.
+ - Be reasonable with the students and make sure they see the logic in what we’re doing.
+ - Young leading cadres have risen up by helicopter. They should really rise step by step.
+ - Even if they’re functioning out of ignorance, they are still participating and must be suppressed. In China, even one million people can be considered a small sum.
+ - The minority yields to the majority!
+
+21 quotes

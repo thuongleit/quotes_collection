@@ -1,0 +1,22 @@
+ - And If our God is for us, then who could ever stop us, and if our God is with us, then what can stand against?
+ - Worship: Where God isn’t moved by the quality of our voice but by the condition of our hearts.
+ - Worship comes from a thankful heart.
+ - Jesus Messiah, name above all names, blessed Redeemer, Emmanuel, the rescue for sinners, the ransom from Heaven, Jesus Messiah, Lord of all.
+ - The worship leader God is after is the one whose heart is captured by Him.
+ - I lift my hands to believe again. You are my refuge. You are my strength. As I pour out my heart, these things I remember, You are faithful, God, forever.
+ - I am Loved by the King, and it makes my heart want to sing!
+ - Worship isn’t a feeling you wait for, it’s a choice you make.
+ - Music connects with the soul. I think it’s the quickest art form to the soul.
+ - Remember: In the end, you’re not living to impress your friends or your relatives or your coworkers. All of life is for Jesus.
+ - You lead me and keep me from falling. You carry me close to Your heart. And surely Your goodness and mercy will follow me.
+ - Could’ve come like a mighty storm. With all the strength of a hurricane. You could’ve come like a forest fire with the power of Heaven in Your flame. But You came like a winter snow, quiet and soft and slow. Falling from the sky in the night to the earth below.
+ - Don’t chase accomplishments, people or positions to find your worth. You’re already loved as you are by the Father.
+ - Could someone look at your life or look at my life and name me a Christian? A humbling thought for sure.
+ - When I write songs, I try to write in a way to reach as many people as I can, to be a lighthouse versus a flashlight.
+ - I think that deep inside, all of humanity knows there’s truth here, whether they want to admit it or not. There’s a joy that comes in Christmas. There’s a season of giving, so people feel this generosity.
+ - Humility is the key characteristic of a worship leader. Actually, the key for any great leader.
+ - I absolutely love everything about Christmas music.
+ - I played at my church every once in a while, but that’s not a good gauge, because everybody loves you at your church.
+ - I remember being in church. We would do the live nativity in my little town and I remember pulling the sheep. I was the shepherd, so I was pulling the sheep around town, down Main Street. I thought that was the most awesome, coolest thing ever.
+
+20 quotes

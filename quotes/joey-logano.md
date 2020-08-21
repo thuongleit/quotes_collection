@@ -1,0 +1,23 @@
+ - There’s always room for improvement.
+ - My friends and family and team know who I am, and they have my back. So I don’t let someone who doesn’t know me affect me.
+ - I believe 0% is luck. I think you create your own luck, so I don’t believe in luck.
+ - I don’t worry about anything but winning races.
+ - I have to win races. It’s not even an option.
+ - My reputation is different among different groups. You have your fans, your non-fans, your team, your crew, your family, your friends and then you have your peers. I think they’re all different and each of them have their separate opinions about you.
+ - You don’t go to a race track to finish second.
+ - Once the tires start to wear out the better car will prevail eventually. It might take a little bit of time, but eventually it will be the best. That’s why everyone is trying to make their car good on the long run.
+ - Obviously, the opinions that are most accurate are the ones that are closest to you – your crew, your friends, your family. Those people know who you are, and that’s accurate.
+ - It’s funny how the whole team gets quiet when you’re about to win a Daytona 500.
+ - Some of the fans look at me as a villain or not a nice guy for some reason. I don’t feel like that’s the case, personally.
+ - Just because I’m not coordinated doesn’t mean I can’t kick your ass.
+ - When you cross the line and you’ve won the race, to me, it’s an amazing feeling.
+ - If you don’t really know someone, everyone forms an opinion. That’s part of life.
+ - I have always tried to drive a car that was better than me, and race against people who were better than me. If you are surrounded by people who are as good as you, or not as good, how are you going to learn?
+ - You need to be sharp the whole race, and eventually you start getting mentally tired and make little mistakes over and over.
+ - There are certain racetracks where I feel like I could run 1,000 miles.
+ - Some fans understand who I am and why I do things, and then there are some fans that have formed an opinion that I don’t feel is who I am.
+ - I’m pretty conservative on a lot of things. I don’t want to get hurt.
+ - I enjoy doing autograph sessions because I’m a people-watcher. I’m the guy in the airport who likes to just sit and watch people go by. So I enjoy just meeting people and hearing their stories.
+ - I wash my cars and clean the garage a lot. That’s kind of my thing.
+
+21 quotes

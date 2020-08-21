@@ -1,0 +1,88 @@
+ - Be the flame, not the moth.
+ - I have loved women even to madness, but I have always loved liberty better.
+ - Marriage is the tomb of love.
+ - I don’t conquer, I submit.
+ - The sweetest pleasures are those which are hardest to be won.
+ - There is no such thing as destiny. We ourselves shape our lives.
+ - I am writing My Life to laugh at myself, and I am succeeding.
+ - Praise the beautiful for their intelligence and the intelligent for their beauty.
+ - I have always loved truth so passionately that I have often resorted to lying as a way of introducing it into the minds which were ignorant of its charms.
+ - Love is three quarters curiosity.
+ - It is only necessary to have courage, for strength without self-confidence is useless.
+ - Happy are those lovers who, when their senses require rest, can fall back upon the intellectual enjoyments afforded by the mind! Sweet sleep then comes, and lasts until the body has recovered its general harmony. On awaking, the senses are again active and always ready to resume their action.
+ - Nobody can deprive me of the fact that I had a good time.
+ - To Kiss : An attempt to absorb the essence of the other person.
+ - When a man gets it into his head to do something, and when he exclusively occupies himself in that design, he must succeed, whatever the difficulties. That man will become Grand Vizier or Pope.
+ - Those who do not love life do not deserve it.
+ - The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.
+ - Hatred, in the course of time, kills the unhappy wretch who delights in nursing it in his bosom.
+ - I have met with some of them – very honest fellows, who, with all their stupidity, had a kind of intelligence and an upright good sense, which cannot be the characteristics of fools.
+ - From that moment our love became sad, and sadness is a disease which gives the death-blow to affection.
+ - If you have not done things worthy of being written about, at least write things worthy of being read.
+ - A man who makes known his love by words is a fool.
+ - The man who forgets does not forgive, he only loses the remembrance; forgiveness is the offspring of a noble heart, of a generous mind, whilst forgetfulness is only the result of a weak memory, or of an easy carelessness.
+ - I will begin with this confession: whatever I have done in the course of my life, whether it be good or evil, has been done freely; I am a free agent.
+ - The same principle that forbids me to lie does not allow me to tell the truth.
+ - Should I perchance still feel after my death, I would no longer have any doubt, but I would most certainly give the lie to anyone asserting before me that I was dead.
+ - I saw that everything famous and beautiful in the world, if we judge by the descriptions and drawings of writers and artists, always loses when we go to see it and examine it closely.
+ - If you want to make people laugh, your face must remain serious.
+ - My errors will point to thinking men the various roads, and will teach them the great art of treading on the brink of the precipice without falling into it.
+ - Man is a free agent; but he is not free if he does not believe it, for the more power he attributes to Destiny, the more he deprives himself of the power which God granted him when he gave him reason.
+ - The thing is to dazzle.
+ - There is no honest woman with an uncorrupted heart whom a man is not sure of conquering by dint of gratitude. It is one of the surest and shortest means.
+ - After all, a beautiful woman without a mind of her own leaves her lover with no resource after he had physically enjoyed her charms.
+ - Cheating is a sin, but honest cunning is simply prudence. It is a virtue. To be sure, it has a likeness to roguery, but that cannot be helped. He who has not learned to practice it is a fool.
+ - As to the deceit perpetrated upon women, let it pass, for, when love is in the way, men and women as a general rule dupe each other.
+ - Real love is the love that sometimes arises after sensual pleasure: if it does, it is immortal; the other kind inevitably goes stale, for it lies in mere fantasy.
+ - God, great principle of all minor principles, God, who is Himself without a principle, could not conceive Himself, if, in order to do it, He required to know His own principle.
+ - If I had married a woman intelligent enough to guide me, to rule me without my feeling that I was ruled, I should have taken good care of my money, I should have had children, and I should not be, as now I am, alone in the world and possessing nothing.
+ - When you fool a fool you strike a blow for intelligence.
+ - They are the follies inherent to youth; I make sport of them, and, if you are kind, you will not yourself refuse them a good-natured smile.
+ - The man who has sufficient power over himself to wait until his nature has recovered its even balance is the truly wise man, but such beings are seldom met with.
+ - In fact, to gull a fool seems to me an exploit worthy of a witty man.
+ - Heart and head are the constituent parts of character; temperament has almost nothing to do with it, and, therefore, character is dependent upon education, and is susceptible of being corrected and improved.
+ - Worthy or not, my life is my subject, and my subject is my life.
+ - When a man is in love very little is enough to throw him into despair and as little to enhance his joy to the utmost.
+ - When a sonnet is mediocre it is bad, for it should be sublime.
+ - Enjoy the present, bid defiance to the future, laugh at all those reasonable beings who exercise their reason to avoid the misfortunes which they fear, destroying at the same time the pleasure that they might enjoy.
+ - I have lived as a philosopher and die as a Christian.
+ - Love is only a feeling of curiousity more or less intense, grafted upon the inclination placed in us by nature that the species may be preserved.
+ - Beauty without wit offers nothing but the enjoyment of its material charms, whilst witty ugliness captivates by the charms of the mind, and at last fulfils all the desires of the man it has captivated.
+ - The pleasure I gave my lovers was a four fifth of the pleasure I experienced.
+ - Hope is nothing but a deceitful flatterer accepted by reason only because it is often in need of palliatives.
+ - My success and my misfortunes, the bright and the dark days I have gone through, everything has proved to me that in this world, either physical or moral, good comes out of evil just as well as evil comes out of good.
+ - I always made my food congenial to my constitution, and my health was always excellent.
+ - In the mean time I worship God, laying every wrong action under an interdict which I endeavour to respect, and I loathe the wicked without doing them any injury.
+ - Desires are but pain and torment, and enjoyment is sweet because it delivers us from them.
+ - Love is a great poet, its resources are inexhaustible, but if the end it has in view is not obtained, it feels weary and remains silent.
+ - Man is free; yet we must not suppose that he is at liberty to do everything he pleases, for he becomes a slave the moment he allows his actions to be ruled by passion.
+ - You will be amused when you see that I have more than once deceived without the slightest qualm of conscience, both knaves and fools.
+ - As for myself, I always willingly acknowledge my own self as the principal cause of every good and of every evil which may befall me; therefore, I have always found myself capable of being my own pupil, and ready to love my teacher.
+ - I loved, I was loved, my health was good, I had a great deal of money, and I spent it, I was happy and I confessed it to myself.
+ - The man who seeks to educate himself must first read and then travel in order to correct what he has learned.
+ - I have often met with happiness after some imprudent step which ought to have brought ruin upon me, and although passing a vote of censure upon myself I would thank God for his mercy.
+ - By recollecting the pleasures I have had formerly, I renew them, I enjoy them a second time, while I laugh at the remembrance of troubles now past, and which I no longer feel.
+ - I learned very early that our health is always impaired by some excess either of food or abstinence, and I never had any physician except myself.
+ - The philosopher is a person who refuses no pleasures which do not produce greater sorrows, and who knows how to create new ones.
+ - The story she had told me was possible, but it was not believable.
+ - God ceases to be God only for those who can admit the possibility of His non-existence, and that conception is in itself the most severe punishment they can suffer.
+ - We ourselve are the authors of almost all our woes and griefs, of which we so unreasonably complain.
+ - I am bound to add that the excess in too little has ever proved in me more dangerous than the excess in too much; the last may cause indigestion, but the first causes death.
+ - To lead a blameless life you must curb your passions, and whatever misfortune may befall you cannot be ascribed by anyone to want of good luck, or attributed to fate; these words are devoid of sense, and all fault will rightly fall on your own head.
+ - We avenge intellect when we dupe a fool, and it is a victory not to be despised for a fool is covered with steel and it is often very hard to find his vulnerable part.
+ - The mind of a human being is formed only of comparisons made in order to examine analogies, and therefore cannot precede the existence of memory.
+ - Whether it is happy or unhappy, a man’s life is the only treasure he can ever possess.
+ - The raging fire which urged us on was scorching us; it would have burned us had we failed to restrain it.
+ - The spirit of rebellion is present in every great city, and the great task of wise government is to keep it dormant, for if it wakes it is a torrent which no dam can hold back.
+ - There is no such thing as a perfectly happy or perfectly unhappy man in the world. One has more happiness in his life and another more unhappiness, and the same circumstance may produce widely different effects on individuals of different temperaments.
+ - Thence, I suppose, my natural disposition to make fresh acquaintances, and to break with them so readily, although always for a good reason, and never through mere fickleness.
+ - We love without heeding reason, and cease to love in the same manner.
+ - I know that I have lived because I have felt, and, feeling giving me the knowledge of my existence.
+ - The reader of these Memoirs will discover that I never had any fixed aim before my eyes, and that my system, if it can be called a system, has been to glide away unconcernedly on the stream of life, trusting to the wind wherever it led.
+ - For my future I have no concern, and as a true philosopher, I never would have any, for I know not what it may be: as a Christian, on the other hand, faith must believe without discussion, and the stronger it is, the more it keeps silent.
+ - I leave to others the decision as to the good or evil tendencies of my character, but such as it is it shines upon my countenance, and there it can easily be detected by any physiognomist.
+ - I have had friends who have acted kindly towards me, and it has been my good fortune to have it in my power to give them substantial proofs of my gratitude.
+ - I have always had such sincere love for truth, that I have often begun by telling stories for the purpose of getting truth to enter the heads of those who could not appreciate its charms.
+ - I have felt in my very blood, ever since I was born, a most unconquerable hatred towards the whole tribe of fools, and it arises from the fact that I feel myself a blockhead whenever I am in their company.
+
+86 quotes

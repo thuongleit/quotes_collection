@@ -1,0 +1,43 @@
+ - Shaving is a way to start the workday by ritually not cutting your throat when you’ve the chance.
+ - What interests me about fiction is, in part, its flickering edge between realism and where a tear in the fabric of a story lets in some other sort of light.
+ - The scare quotes burn off like fog.
+ - When I was a kid and we played baseball we used to use that “eye black” stuff sometimes – that kind of grease you put under your eyes to reduce glare or something. We only used it, of course, to look cool; it’s not like we were any better prepubescent athletes for reducing glare.
+ - Every relationship can feel saturated by market logic or at best purchased at the price of the immiseration of others.
+ - The problem is that if you’re self-conscious about being a person on whom nothing is lost, isn’t something lost – some kind of presence? You’re distracted by trying to be totally, perfectly impressionable.
+ - The transpersonal is more awe-inspiring, more exciting than the thing we confuse it for.
+ - I came to realize that far more important to me than any plot or conventional sense was the sheer directionality I felt while reading prose, the texture of time as it passed, life’s white machine.
+ - I usually see the word “metafiction” applied to works that draw attention to their own devices, their own artificiality, in order to mock novelistic convention and show the impossibility of capturing a reality external to the text or whatever.
+ - I remember I had this recurring dream that we were playing a night game and instead of eye black we had mashed up the glowing bodies of fireflies and put that under our eyes. So our faces were glowing – a kind of night vision.
+ - Are there are fireflies on the West Coast? I never saw any when I lived in California.
+ - I wasn’t aware I’d write the novel when I wrote the New Yorker story either. And the narration of their construction in 10:04 is fiction, however flickering.
+ - Maggie Nelson cuts through our culture’s prefabricated structures of thought and feeling with an intelligence whose ferocity is ultimately in the service of love. No piety is safe, no orthodoxy, no easy irony. The scare quotes burn off like fog.
+ - I guess when I’m frightened or in pain or maybe very bored I’ve tried to hold myself together by imposing a narrative order on the experience as it happens.
+ - Few real people appear in my two novels, actually. “Ari” appears on the edge of this book a couple of times – but on the edge, she’s never in it, even if she’s a determining force from the outside. Everybody in the first book was basically made up, if never from scratch.
+ - Art has to offer something other than stylized despair.
+ - Fiction doesn’t appeal to me because it can describe physical appearances exhaustively or because it can offer access to the inner depths of an array of human characters – neither that kind of “realism” of bodily surfaces nor of individual psychologies seems particularly realistic to me.
+ - I was a violent, bipolar, compulsive liar. I was a real American.
+ - Maybe that’s the way I’m private – I respect the privacy of “my” characters? Anyway, we’re getting close to the whole “relatability” and “likability” thing.
+ - I think that sexual pleasure and the weird color of the sky after a storm or the stream of tail lights across the bridge or the way silence can thin or thicken before music starts – all these things have to be harnessed by the political. The libidinal has to be harnessed by the political.
+ - I think the anti-intellectualism of a lot of contemporary fiction is a kind of despairing of literature’s ability to be anything more than perfectly bound blog posts or transcribed sitcoms.
+ - Henry James claim that if you want to be a novelist you should be somebody on whom nothing is lost.
+ - When the narrator feels like an octopus, when he says his limbs are starting to multiply, he means he has inklings of orders of perception beyond his individual body.
+ - I think the parable is a peculiar way of saying that redemption is immanent whether or not it’s imminent, that the world to come is in a sense always already here, if still unavailable. I find this idea powerful for several reasons. For one thing, it’s an antidote to despair.
+ - Maybe now if you’re not an exhibitionist you’re private. Or maybe it’s just that for a lot of people – sometimes in interesting ways, sometimes in stupid ways – there’s no division between the art object and what surrounds it.
+ - I’m defending fiction as a human capacity more than as a popular or dying literary genre.
+ - I don’t think “I’m going to publish this as fiction” but I think “I’m going to tell this story to a friend” and then I start telling the story in my mind as the experience transpires as a way of pretending it’s already happened.
+ - I’ve been building a fiction in part around the Marfa poem since my brief residency there, which has kept it from receding into the past.
+ - Just in case God isn’t dead, our astronauts carry sidearms.
+ - I’ll work my way from irony to sincerity in the sinking city, a would-be Whitman of the vulnerable grid.
+ - My concern is how we live fictions, how fictions have real effects, become facts in that sense, and how our experience of the world changes depending on its arrangement into one narrative or another.
+ - The story and the poem are obviously changed by being placed in the novel, so in a sense they’re no longer the works that preceded the novel.
+ - I like to think – knowing that it’s an enabling fiction – of those moments as fragments from a world to come, a world where price isn’t the only measure of value.
+ - I’m trying to be somebody on whom the experience is lost by supplanting it with its telling. I definitely do that in medical contexts, even in trivial ones.
+ - If I was a poet, I had become one because poetry, more intensely than any other practice, could not evade its anachronism and marginality and so constituted a kind of acknowledgment of my own preposterousness, admitting my bad faith in good faith, so to speak.
+ - Most of us start from that position of irony now and what I wanted to do – really felt like I had to do if I was going to write another novel – was move towards something like sincerity.
+ - Anyway I read more contemporary poetry than contemporary fiction so my mind goes first to a kind of crass “conceptualism” that repeats vanguard gestures of the past minus the politics and historical context.
+ - I have no interest in artists who are purely affirmative, who’ve made a commercialized fetish of the culture’s stupidity.
+ - Many of the left thinkers that really matter to me – that formed a big part of my thinking about politics and art – emphasize how capitalism is a totality, how there’s no escape from it, no outside.
+ - Experiments with the “as if” of fiction are often more lively in poetry and criticism and other modes of writing than in weak short stories or novels.
+ - I didn’t want to write another book about fraudulence.
+
+41 quotes

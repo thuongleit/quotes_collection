@@ -1,0 +1,192 @@
+ - And how can man die better than facing fearful odds, for the ashes of his fathers, and the temples of his Gods?
+ - The measure of a man’s real character is what he would do if he knew he never would be found out.
+ - Half-knowledge is worse than ignorance.
+ - Everybody’s business is nobody’s business.
+ - Knowledge advances by steps, and not by leaps.
+ - How well Horatius kept the bridge In the brave days of old.
+ - Nothing except the mint can make money without advertising.
+ - A single breaker may recede; but the tide is evidently coming in.
+ - Western literature has been more influenced by the Bible than any other book.
+ - A good constitution is infinitely better than the best despot.
+ - I would rather be poor in a cottage full of books than a king without the desire to read.
+ - Finesse is the best adaptation of means to circumstances.
+ - Men are never so likely to settle a question rightly as when they discuss it freely.
+ - The perfect disinterestedness and self-devotion of which men seem incapable, but which is sometimes found in women.
+ - Politeness has been well defined as benevolence in small things.
+ - We cannot absolutely prove that those are in error who tell us that society has reached a turning point, that we have seen our best days. But so said all before us, and with just as much apparent reason.
+ - There is only one cure for the evils which newly acquired freedom produces, and that cure is freedom.
+ - I don’t mind your thinking slowly; I mind your publishing faster than you think.
+ - He was a rake among scholars, and a scholar among rakes.
+ - We deplore the outrages which accompany revolutions. But the more violent the outrages, the more assured we feel that a revolution was necessary.
+ - A page digested is better than a volume hurriedly read.
+ - By poetry we mean the art of employing of words in such a manner as to produce an illusion on the imagination; the art of doing by means of words, what the painter does by means of colors.
+ - The Puritan hated bear-baiting, not because it gave pain to the bear, but because it gave pleasure to the spectators.
+ - In perseverance, in self command, in forethought, in all virtues which conduce to success in life, the Scots have never been surpassed.
+ - With respect to the doctrine of a future life, a North American Indian knows just as much as any ancient or modern philosopher.
+ - Your Constitution is all sail and no anchor.
+ - As civilization advances, poetry almost necessarily declines.
+ - Perhaps no person can be a poet, or can even enjoy poetry, without a certain unsoundness of mind.
+ - Every generation enjoys the use of a vast hoard bequeathed to it by antiquity, and transmits that hoard, augmented by fresh acquisitions, to future ages.
+ - The good-humor of a man elated with success often displays itself towards enemies.
+ - Nothing is so galling to a people not broken in from birth as a paternal, or, in other words, a meddling government, a government which tells them what to read, and say, and eat, and drink and wear.
+ - A man who should act, for one day, on the supposition that all the people about him were influenced by the religion which they professed would find himself ruined by night.
+ - It is, I believe, no exaggeration to say that all the historical information which has been collected from all the books written in the Sanskrit language is less valuable than what may be found in the most paltry abridgement used at preparatory schools in England.
+ - The most beautiful object in the world, it will be allowed, is a beautiful woman.
+ - What proposition is there respecting human nature which is absolutely and universally true? We know of only one, – and that is not only true, but identical, – that men always act from self-interest.
+ - In after-life you may have friends – fond, dear friends; but never will you have again the inexpressible love and gentleness lavished upon you which none but a mother bestows.
+ - Logicians may reason about abstractions. But the great mass of men must have images. The strong tendency of the multitude in all ages and nations to idolatry can be explained on no other principle.
+ - No particular man is necessary to the state. We may depend on it that, if we provide the country with popular institutions, those institutions will provide it with great men.
+ - War is never lenient but where it is wanton; where men are compelled to fight in self-defence, they must hate and avenge. This may be bad, but it is human nature; it is the clay as it came from the hands of the Potter.
+ - A church is disaffected when it is persecuted, quiet when it is tolerated, and actively loyal when it is favored and cherished.
+ - Scotland by no means escaped the fate ordained for every country which is connected, but not incorporated, with another country of greater resources.
+ - Generalization is necessary to the advancement of knowledge; but particularly is indispensable to the creations of the imagination. In proportion as men know more and think more they look less at individuals and more at classes. They therefore make better theories and worse poems.
+ - Men naturally sympathize with the calamities of individuals; but they are inclined to look on a fallen party with contempt rather than with pity.
+ - The merit of poetry, in its wildest forms, still consists in its truth-truth conveyed to the understanding, not directly by the words, but circuitously by means of imaginative associations, which serve as its conductors.
+ - If anybody would make me the greatest king that ever lived, with palaces, and gardens and fine dinners, and wine, and coaches, and beautiful clothes, and hundreds of servants, on condition that I would not read books, I would not be a king.
+ - We are free, we are civilised, to little purpose, if we grudge to any portion of the human race an equal measure of freedom and civilisation.
+ - Even the law of gravitation would be brought into dispute were there a pecuniary interest involved.
+ - The real object of the drama is the exhibition of human character.
+ - Queen Mary had a way of interrupting tattle about elopements, duels, and play debts, by asking the tattlers, very quietly yet significantly, whether they had ever read her favorite sermon – Dr. Tillotson on Evil Speaking.
+ - Our estimate of a character always depends much on the manner in which that character affects our own interests and passions.
+ - Complete self-devotion is woman’s part.
+ - Highest among those who have exhibited human nature by means of dialogue stands Shakespeare. His variety is like the variety of nature, – endless diversity, scarcely any monstrosity.
+ - The English Bible – a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.
+ - That is the best government which desires to make the people happy, and knows how to make them happy.
+ - There was, it is said, a criminal in Italy who was suffered to make his choice between Guicciardini and the galleys. He chose the history. But the war of Pisa was too much for him; he changed his mind, and went to the oars.
+ - To sum up the whole, we should say that the aim of the Platonic philosophy was to exalt man into a god.
+ - People who take no pride in the noble achievements of remote ancestors will never achieve anything worthy to be remembered with pride by remote descendants.
+ - I have not the smallest doubt that, if we had a purely democratic government here, the effect would be the same. Either the poor would plunder the rich, and civilisation would perish; or order and property would be saved by a strong military government, and liberty would perish.
+ - The highest intellects, like the tops of mountains, are the first to catch and to reflect the dawn.
+ - The great cause of revolutions is this, that while nations move onward, constitutions stand still.
+ - Office of itself does much to equalize politicians. It by no means brings all characters to a level; but it does bring high characters down and low characters up towards a common standard.
+ - This is the highest miracle of genius, that things which are not should be as though they were, that the imaginations of one mind should become the personal recollections of another.
+ - With the dead there is no rivalry, with the dead there is no change.
+ - The hearts of men are their books; events are their tutors; great actions are their eloquence.
+ - I have long been convinced that institutions purely democratic must, sooner or later, destroy liberty or civilization, or both.
+ - We hold that the most wonderful and splendid proof of genius is a great poem produced in a civilized age.
+ - Nobles by the right of an earlier creation, and priests by the imposition of a mightier hand.
+ - The conformation of his mind was such that whatever was little seemed to him great, and whatever was great seemed to him little.
+ - If ever Shakespeare rants, it is not when his imagination is hurrying him along, but when he is hurrying his imagination along.
+ - The temple of silence and reconciliation.
+ - People crushed by law have no hopes but from power. If laws are their enemies, they will be enemies to laws.
+ - Every political sect has its esoteric and its exoteric school – its abstract doctrines for the initiated; its visible symbols, its imposing forms, its mythological fables, for the vulgar.
+ - The highest eulogy which can be pronounced on the Revolution of 1688 is this that this was our last Revolution.
+ - To that class we may leave it to refine the vernacular dialects of the country, to enrich those dialects with terms of science borrowed from the Western nomenclature, and to render them by degrees fit vehicles for conveying knowledge to the great mass of the population.
+ - The business of the dramatist is to keep himself out of sight, and to let nothing appear but his characters. As soon as he attracts notice to his personal feelings, the illusion is broken.
+ - She thoroughly understands what no other Church has ever understood, how to deal with enthusiasts.
+ - The English doctrine that all power is a trust for the public good.
+ - The passages in which Milton has alluded to his own circumstances are perhaps read more frequently, and with more interest, than any other lines in his poems.
+ - No man in the world acts up to his own standard of right.
+ - Turn where we may, within, around, the voice of great events is proclaiming to us, Reform, that you may preserve!
+ - There are countries in which it would be as absurd to establish popular governments as to abolish all the restraints in a school or to unite all the strait-waistcoats in a madhouse.
+ - Language is the machine of the poet.
+ - The effect of violent dislike between groups has always created an indifference to the welfare and honor of the state.
+ - Few of the many wise apothegms which have been uttered have prevented a single foolish action.
+ - He had a head which statuaries loved to copy, and a foot the deformity of which the beggars in the streets mimicked.
+ - And to say that society ought to be governed by the opinion of the wisest and best, though true, is useless. Whose opinion is to decide who are the wisest and best?
+ - In employing fiction to make truth clear and goodness attractive, we are only following the example which every Christian ought to propose to himself.
+ - The opinion of the great body of the reading public is very materially influenced even by the unsupported assertions of those who assume a right to criticize.
+ - Temple was a man of the world amongst men of letters, a man of letters amongst men of the world.
+ - Parent of sweetest sounds, yet mute forever.
+ - That wonderful book, while it obtains admiration from the most fastidious critics, is loved by those who are too simple to admire it.
+ - I have seen the hippopotamus, both asleep and awake; and I can assure you that, awake or asleep, he is the ugliest of the works of God.
+ - Even Holland and Spain have been positively, though not relatively, advancing.
+ - It is certain that satirical poems were common at Rome from a very early period. The rustics, who lived at a distance from the seat of government, and took little part in the strife of factions, gave vent to their petty local animosities in coarse Fescennine verse.
+ - In the modern languages there was not, six hundred years ago, a single volume which is now read. The library of our profound scholar must have consisted entirely of Latin books.
+ - There is surely no contradiction in saying that a certain section of the community may be quite competent to protect the persons and property of the rest, yet quite unfit to direct our opinions, or to superintend our private habits.
+ - Grief, which disposes gentle natures to retirement, to inaction, and to meditation, only makes restless spirits more restless.
+ - Beards in olden times, were the emblems of wisdom and piety.
+ - Sense can support herself handsomely in most countries on some eighteen pence a day; but for fantasy, planets and solar systems, will not suffice.
+ - History distinguishes what is accidental and transitory in human nature from what is essential and immutable.
+ - The knowledge of the theory of logic has no tendency whatever to make men good reasoners.
+ - The Life of Johnson is assuredly a great, a very great work. Homer is not more decidedly the first of heroic poets. Shakespeare is not more decidedly the first of dramatists, Demosthenes is not more decidedly the first of orators, than Boswell is the first of biographers. He has no second.
+ - A Grecian history, perfectly written should be a complete record of the rise and progress of poetry, philosophy, and the arts.
+ - The reluctant obedience of distant provinces generally costs more than it – The Territory is worth. Empires which branch out widely are often more flourishing for a little timely pruning.
+ - Free trade, one of the greatest blessings which a government can confer on a people, is in almost every country unpopular.
+ - The object of oratory alone in not truth, but persuasion.
+ - Byron owed the vast influence which he exercised over his contemporaries at least as much to his gloomy egotism as to the real power of his poetry.
+ - What a blessing it is to love books as I love them;- to be able to converse with the dead, and to live amidst the unreal!
+ - A history in which every particular incident may be true may on the whole be false.
+ - It may be laid as an universal rule that a government which attempts more than it ought will perform less.
+ - If any person had told the Parliament which met in terror and perplexity after the crash of 1720 that in 1830 the wealth of England would surpass all their wildest dreams, that the annual revenue would equal the principal of that debt which they considered an intolerable burden, that for one man of.
+ - Those who seem to load the public taste are, in general, merely outrunning it in the direction which it is spontaneously pursuing.
+ - History begins in novel and ends in essay.
+ - How it chanced that a man who reasoned on his premises so ably, should assume his premises so foolishly, is one of the great mysteries of human nature.
+ - Those who compare the age in which their lot has fallen with a golden age which exists only in imagination, may talk of degeneracy and decay; but no man who is correctly informed as to the past, will be disposed to take a morose or desponding view of the present.
+ - I shall cheerfully bear the reproach of having descended below the dignity of history if I can succeed in placing before the English of the nineteenth century a true picture of the life of their ancestors.
+ - Shakespeare has had neither equal nor second.
+ - The business of everybody is the business of nobody.
+ - Nothing is so useless as a general maxim.
+ - Power, safely defied, touches its downfall.
+ - The Church is the handmaid of tyranny and the steady enemy of liberty.
+ - In order that he might rob a neighbour whom he had promised to defend, black men fought on the coast of Coromandel and red men scalped each other by the great lakes of North America.
+ - There were gentlemen and there were seamen in the navy of Charles the Second. But the seamen were not gentlemen; and the gentlemen were not seamen.
+ - More sinners are cursed at not because we despise their sins but because we envy their success at sinning.
+ - I shall not be satisfied unless I produce something which shall for a few days supersede the last fashionable novel on the tables of young ladies.
+ - In Plato’s opinion, man was made for philosophy; in Bacon’s opinion, philosophy was made for man.
+ - In the plays of Shakespeare man appears as he is, made up of a crowd of passions which contend for the mastery over him, and govern him in turn.
+ - In that temple of silence and reconciliation where the enmities of twenty generations lie buried, in the great Abbey which has during many ages afforded a quiet resting-place to those whose minds and bodies have been shattered by the contentions of the Great Hall.
+ - We do not think it necessary to prove that a quack medicine is poison; let the vender prove it to be sanative.
+ - The maxim, that governments ought to train the people in the way in which they should go, sounds well. But is there any reason for believing that a government is more likely to lead the people in the right way than the people to fall into the right way of themselves?
+ - The chief-justice was rich, quiet, and infamous.
+ - Genius is subject to the same laws which regulate the production of cotton and molasses.
+ - A beggarly people, A church and no steeple.
+ - He who, in an enlightened and literary society, aspires to be a great poet, must first become a little child.
+ - We must succumb to the general influence of the times. No man can be of the tenth century, if he would; be must be a man of the nineteenth century.
+ - Our judgment ripens; our imagination decays. We cannot at once enjoy the flowers of the Spring of life and the fruits of its Autumn.
+ - The best portraits are those in which there is a slight mixture of caricature.
+ - The gallery in which the reporters sit has become a fourth estate of the realm.
+ - Then none was for a party; Than all were for the state; Then the great man helped the poor, And the poor man loved the great: Then lands were fairly portioned; Then spoils were fairly sold: The Romans were like brothers In the brave days of old.
+ - It is possible to be below flattery as well as above it. One who trusts nobody will not trust sycophants. One who does not value real glory will not value its counterfeit.
+ - Every sect clamors for toleration when it is down.
+ - The desire of posthumous fame and the dread of posthumous reproach and execration are feelings from the influence of which scarcely any man is perfectly free, and which in many men are powerful and constant motives of action.
+ - It has often been found that profuse expenditures, heavy taxation, absurd commercial restrictions, corrupt tribunals, disastrous wars, seditions, persecutions, conflagrations, inundation, have not been able to destroy capital so fast as the exertions of private citizens have been able to create it.
+ - Ye diners out from whom we guard our spoons.
+ - Satire is, indeed, the only sort of composition in which the Latin poets whose works have come down to us were not mere imitators of foreign models; and it is therefore the sort of composition in which they have never been excelled.
+ - A man possessed of splendid talents, which he often abused, and of a sound judgment, the admonitions of which he often neglected; a man who succeeded only in an inferior department of his art, but who in that department succeeded pre-eminently.
+ - We never could clearly understand how it is that egotism, so unpopular in conversation, should be so popular in writing.
+ - In every age the vilest specimens of human nature are to be found among demagogues.
+ - He had done that which could never be forgiven; he was in the grasp of one who never forgave.
+ - We know no spectacle so ridiculous as the British public in one of its periodical fits of morality.
+ - The whole history of Christianity proves that she has little indeed to fear from persecution as a foe, but much to fear from persecution as an ally.
+ - We must judge a government by its general tendencies and not by its happy accidents.
+ - So true it is, that nature has caprices which art cannot imitate.
+ - All the walks of literature are infested with mendicants for fame, who attempt to excite our interest by exhibiting all the distortions of their intellects and stripping the covering from all the putrid sores of their feelings.
+ - What society wants is a new motive, not a new cant.
+ - Great minds do indeed react on the society which has made them what they are; but they only pay with interest what they have received.
+ - A dominant religion is never ascetic.
+ - Boswell is the first of biographers.
+ - The upper current of society presents no pertain criterion by which we can judge of the direction in which the under current flows.
+ - Thus our democracy was from an early period the most aristocratic, and our aristocracy the most democratic.
+ - The Spartan, smiting and spurning the wretched Helot, moves our disgust. But the same Spartan, calmly dressing his hair, and uttering his concise jests, on what the well knows to be his last day, in the pass of Thermopylae, is not to be contemplated without admiration.
+ - I shall cheerfully bear the reproach of having descended below the dignity of history.
+ - The sweeter sound of woman’s praise.
+ - Both in individuals and in masses violent excitement is always followed by remission, and often by reaction. We are all inclined to depreciate whatever we have overpraised, and, on the other hand, to show undue indulgence where we have shown undue rigor.
+ - A few more years will destroy whatever yet remains of that magical potency which once belonged to the name of Byron.
+ - The Saviour of mankind Himself, in whose blameless life malice could find no act to impeach, has been called in question for words spoken.
+ - I wish I was as sure of anything as he is of everything.
+ - Many politicians are in the habit of laying it down as a self-evident proposition that no people ought to be free till they are fit to use their freedom. The maxim is worthy of the fool in the old story who resolved not to go into the water till he had learned to swim.
+ - Cut off my head, and singular I am, Cut off my tail, and plural I appear; Although my middle’s left, there’s nothing there! What is my head cut off? A sounding sea; What is my tail cut off? A rushing river; And in their mingling depths I fearless play, Parent of sweetest sounds, yet mute forever.
+ - Such night in England ne’er had been, nor ne’er again shall be.
+ - At present, the novels which we owe to English ladies form no small part of the literary glory of our country. No class of works is more honorably distinguished for fine observation, by grace, by delicate wit, by pure moral feeling.
+ - Reform, that we may preserve.
+ - Mere negation, mere Epicurean infidelity, as Lord Bacon most justly observes, has never disturbed the peace of the world. It furnishes no motive for action; it inspires no enthusiasm; it has no missionaries, no crusades, no martyrs.
+ - It is good to be often reminded of the inconsistency of human nature, and to learn to look without wonder or disgust on the weaknesses which are found in the strongest minds.
+ - If the Sunday had not been observed as a day of rest during the last three centuries, I have not the slightest doubt that we should have been at this moment a poorer people and less civilized.
+ - It is the age that forms the man, not the man that forms the age.
+ - A system in which the two great commandments are to hate your neighbor and to love your neighbor’s wife.
+ - To be a really good historian is perhaps the rarest of intellectual distinctions.
+ - The ascendency of the sacerdotal order was long the ascendency which naturally and properly belonged to intellectual superiority.
+ - There is no country in Europe which is so easy to over-run as Spain; there is no country which it is more difficult to conquer.
+ - The end of government is the happiness of the people.
+ - A kind of semi-Solomon, half-knowing everything, from the cedar to the hyssop.
+ - The history of nations, in the sense in which I use the word, is often best studied in works not professedly historical.
+ - Men of great conversational powers almost universally practise a sort of lively sophistry and exaggeration which deceives for the moment both themselves and their auditors.
+ - A government cannot be wrong in punishing fraud or force, but it is almost certain to be wrong if, abandoning its legitimate function, it tells private individuals that it knows their business better than they know it themselves.
+ - Only imagine a man acting for one single day on the supposition that all his neighbors believe all that they profess, and act up to all that they believe!
+ - In taste and imagination, in the graces of style, in the arts of persuasion, in the magnificence of public works, the ancients were at least our equals.
+ - The effective strength of sects is not to be ascertained merely by counting heads.
+ - In truth it may be laid down as an almost universal rule that good poets are bad critics.
+ - Man is so inconsistent a creature that it is impossible to reason from his beliefs to his conduct, or from one part of his belief to another.
+
+190 quotes

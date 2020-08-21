@@ -1,0 +1,75 @@
+ - That’s what fiction is for. It’s for getting at the truth when the truth isn’t sufficient for the truth.
+ - Fiction is the lie that helps us understand the truth.
+ - They carried all they could bear, and then some, including a silent awe for the terrible power of the things they carried.
+ - I’m not dead. But when I am, it’s likeI don’t know, I guess it’s like being inside a book that nobody’s reading.
+ - Stories are for joining the past to the future. Stories are for those late hours in the night when you can’t remember how you got from where you were to where you are. Stories ar for eternity, when memory is erased, when there is nothing to remember except the story.
+ - I was a coward. I went to the war.
+ - I survived, but it’s not a happy ending.
+ - Storytelling is the essential human activity. The harder the situation, the more essential it is.
+ - A true war story is never moral...
+ - The goal, I suppose, any fiction writer has, no matter what your subject, is to hit the human heart and the tear ducts and the nape of the neck and to make a person feel something about the characters are going through and to experience the moral paradoxes and struggles of being human.
+ - I’m skimming across the surface of my own history, moving fast, riding the melt beneath the blades, doing loops and spins, and when I take a high leap into the dark and come down thirty years later, I realize it is as Tim trying to save Timmy’s life with a story.
+ - Even then, at nine years old, I wanted to live inside her body. I wanted to melt into her bones – THAT kind of love.
+ - In war you lose your sense of the definite, hence your sense of truth itself, and therefore it’s safe to say that in a war story nothing is ever absolutely true.
+ - War is hell, but that’s not the half of it, because war is also mystery and terror and adventure and courage and discovery and holiness and pity and despair and longing and love. War is nasty; war is fun. War is thrilling; war is drudgery. War makes you a man; war makes you dead.
+ - Words, too, have genuine substance – mass and weight and specific gravity.
+ - It’s a hard thing to explain to somebody who hasn’t felt it, but the presence of death and danger has a way of bringing you fully awake. It makes things vivid.
+ - I want you to feel what I felt. I want you to know why story-truth is truer sometimes than happening-truth.
+ - What would you do? Would you jump? Would you feel pity for yourself? Would you think about your family and your childhood and your dreams and all you’re leaving behind? Would it hurt? Would it feel like dying? Would you cry, as I did?
+ - But this too is true: stories can save us.
+ - Imagination is a killer.
+ - Everything was such a damned nice idea when it was an idea.
+ - What sticks to memory, often, are those odd little fragments that have no beginning and no end...
+ - Writing doesn’t get easier with experience. The more you know, the harder it is to write.
+ - A giddy feeling, in a way, except there was the dreamy edge of impossibility to it – like running a dead-end maze – no way out – it couldn’t come to a happy conclusion and yet I was doing it anyway because it was all I could think of to do.
+ - A lie, sometimes, can be truer than the truth, which is why fiction gets written.
+ - The thing about a story is that you dream it as you tell it, hoping that others might then dream along with you, and in this way memory and imagination and language combine to make spirits in the head. There is the illusion of aliveness.
+ - The bad stuff never stops happening: it lives in its own dimension, replaying itself over and over.
+ - Once someone’s dead you can’t make them undead.
+ - With a hangover and with fear, it is difficult to put a helmet on your head.
+ - I’ll picture Rat Kiley face, his grief, and I’ll think, You dumb cooze. Because she wasn’t listening. It wasn’t a war story. It was a love story.
+ - A thing may happen and be a total lie; another thing may not happen and be truer than the truth.
+ - The world shrieks and sinks talons into our hearts. This we call memory.
+ - For Rat Kiley, I think, facts were formed by sensation, not the other way around, and when you listened to one of his stories, you’d find yourself performing rapid calculations in your head, subtracting superlatives, figuring the square root of an absolute and then multiplying by maybe.
+ - They carried the sky. The whole atmosphere, they carried it, the humidity, the monsoons, the stink of fungus and decay, all of it, they carried gravity.
+ - Let the story tell itself.
+ - But in a story, which is a kind of dreaming, the dead sometimes smile and sit up and return to the world.
+ - He wished he could’ve explained some of this. How he had been braver than he ever thought possible, but how he had not been so brave as he wanted to be. The distinction was important.
+ - If a story seems moral, do not believe it. If at the end of a war story you feel uplifted, or if you feel that some small bit of rectitude has been salvaged from the larger waste, then you have been made the victim of a very old and terrible lie.
+ - My life is storytelling. I believe in stories, in their incredible power to keep people alive, to keep the living alive, and the dead.
+ - In any war story, but especially a true one, it’s difficult to separate what happened from what seemed to happen.
+ - It was very sad, he thought. The things men carried inside. The things men did or felt they had to do.
+ - I live in my head all day long and the world is a little dreamy.
+ - There was the single abiding certainty that they would never be at a loss for things to carry.
+ - Did I choose this life of illusion? Don’t be mad. My bed was made, I just lied in it.
+ - But in a story I can steal her soul.
+ - All that peace, man, if felt so good it hurt. I want to hurt it back.
+ - It wasn’t a question of deceit. Just the opposite; he wanted to heat up the truth, to make it burn so hot that you would feel exactly what he felt.
+ - I guess we’re really brothers, aren’t we? Don’t know what that means, except it means that some of the same things we remember.
+ - What happened, and what might have happened?
+ - The presence of danger has a way of making you feel fully awake.
+ - There is always the threat of tomorrow’s treachery, or next year’s treachery, or the treachery implicit in all the tomorrows beyond that.
+ - If you don’t care for obscenity, you don’t care for the truth.
+ - A lot like yesterday, a lot like never.
+ - I cannot remember much, I cannot feel much. Maybe erasure is necessary. Maybe the human spirit defends itself as the body does, attacking infection, enveloping and destroying those malignancies that would otherwise consume us.
+ - It’s not just the embarrassment of tears. That’s part of it, no doubt, but what embarrasses me much more, and always will, is the paralysis that took my heart. A moral freeze: I couldn’t decide, I couldn’t act, I couldn’t comport myself with even a pretense of modest human dignity.
+ - Certain blood was being shed for uncertain reasons.
+ - Why do our politicians put warnings on cigarette packs and not on their own foreheads?
+ - Imagination, like reality, has its limits.
+ - We are fascinated, all of us, by the implacable otherness of others. And we wish to penetrate by hypothesis, by daydream, by scientific investigation those leaden walls that encase the human spirit, that define it and guard it and hold it forever inaccessible.
+ - And as a writer now, I want to save Linda’s life. Not her body – her life.
+ - A place where your life exists before you live it, and where it goes afterwards.
+ - Inside I feel much like a 12-year-old or a 17-year-old who knows big words.
+ - Can the foot soldier teach anything important about war, merely for having been there? I think not. He can tell war stories.
+ - Everyone acts stupid at some time in order to be loved.
+ - He had an opinion of himself, I think, that was too high for his own good. Or maybe it was the reverse. Maybe it was a low opinion that he kept trying to erase.
+ - Men killed, and died, because they were embarrassed not to.
+ - But I do like churches. The way it feels inside. It feels good when you just sit there, like you’re in a forest and everything’s really quiet, expect there’s still this sound you can’t hear.
+ - It’s very hard to articulate the things that are important about writing.
+ - Fiction, maybe art in general, is a tentative, uncertain enterprise; it’s not science, it’s an exploration, but you never find much in the way of answers.
+ - Laughter does not deny pain. Laughter – like a wail – acknowledges and replies to pain.
+ - Each of us, I suppose needs his illusions. Life after death. A maker of planets. A woman to love, a man to hate. Something sacred. But what a waste.
+ - Life is never all one thing. It bounces around. Certainly, my own life has.
+ - But the thing about remembering is that you don’t forget.
+
+73 quotes

@@ -1,0 +1,51 @@
+ - Good manners will open doors that the best education cannot.
+ - I tend to really be partial to Ayn Rand, and to The Fountainhead and Atlas Shrugged.
+ - If Congress can regulate this under the Commerce Clause, then it can regulate virtually anything-and the Federal Government is no longer one of limited and enumerated powers.
+ - And I thank God I believe in God, or I would probably be enormously angry right now.
+ - Today, now, it is time to move forward, a time to look for what is good in others, what is good in our country. It is time to see what we have in common, what we have to share as human beings and citizens.
+ - My grandfather was a man, when he talked about freedom, his attitude was really interesting. His view was that you had obligations or you had responsibilities, and when you fulfilled those obligations or responsibilities, that then gave you the liberty to do other things.
+ - I’d grown up fearing the lynch mobs of the Ku Klux Klan; as an adult I was starting to wonder if I’d been afraid of the wrong white people all along – where I was being pursued not by bigots in white robes, but by left-wing zealots draped in flowing sanctimony.
+ - The absolute worst I have ever been treated, the worst things that have been done to me, the worst things that have been said about me, are by northern liberal elites, not by the people of Savannah, Georgia.
+ - People get bent out of shape about the fact that when I was a kid, you could not drink out of certain water fountains. Well, the water was the same.
+ - It takes a person with a mission to succeed.
+ - I don’t believe in quotas. America was founded on a philosophy of individual rights, not group rights.
+ - I think segregation is bad, I think it’s wrong, it’s immoral. I’d fight against it with every breath in my body, but you don’t need to sit next to a white person to learn how to read and write. The NAACP needs to say that.
+ - To define each of us by our race is nothing short of a denial of our humanity.
+ - We’ve talked more about civil rights after the Civil Rights Act of 1964 than we talked about it before 1964.
+ - I was smart enough to use pot without getting caught, and now I’m on the Supreme Court. If you were stupid enough to get caught, that’s your problem. Your appeal is denied. This 40 year sentence just might teach you a lesson.
+ - While the romanticized ideal of universal public education resonates with the cognoscenti who oppose vouchers, poor urban families just want the best education for their children, who will certainly need it to function in our high-tech and advanced society.
+ - I don’t know one of my friends who is considered a conservative who has not had to go back and thoroughly think through everything. You do a lot of soul-searching – ’cause we are not going to win any popularity contests.
+ - Perhaps some are confused because they have stereotypes of how blacks should be and I respectfully decline, as I did in my youth, to sacrifice who I am for who they think I should be.
+ - The only people who have quick answers don’t have the responsibility of making the decisions.
+ - I grew up in a religious environment, and I’m proud of it.
+ - I have to admit that I’m one of those people that thinks the dishwasher is a miracle.
+ - The thing that bothered me when I was in college was that I saw myself rejecting the way of life that got me to where I was.
+ - A judge should be evaluated by whether he faithfully upholds his oath to God, not to the people, to the state or to the Constitution.
+ - In our society, marriage is not simply a governmental institution; it is a religious institution as well, today’s decision might change the former, but it cannot change the latter.
+ - Government cannot make us equal; it can only recognize, respect, and protect us as equal before the law.
+ - In my humble opinion, those who come to engage in debates of consequence, and who challenge accepted wisdom, should expect to be treated badly. Nonetheless, they must stand undaunted. That is required. And that should be expected. For it is bravery that is required to secure freedom.
+ - Religious liberty is about freedom of action in matters of religion generally, and the scope of that liberty is directly correlated to the civil restraints placed upon religious practice.
+ - You didn’t think of angels as white or black. They were angels.
+ - I think Juan stopped short – he got halfway to the destination and got off the train. He is certainly an excellent writer and a good person, but I’m not a nationalist.
+ - Unfortunately, the reality was that, for political reasons or whatever, there was a need to enforce antidiscrimination laws, or at least there was a perceived need to do that.
+ - My grandfather could barely read. My grandmother had a sixth-grade education. They were people who were industrious. They were frugal.
+ - The myths that are created about the South, about the way we grew up, about black people, are wrong.
+ - I do think that our freedoms are at risk.
+ - When I was a kid, we said that we were precluded from going to certain neighborhoods because of the color of our skin Now the neighborhoods are the neighborhoods of ideas, youre not supposed to be there because of the color of your skin.
+ - I’d been very partial to Malcolm X, particularly his self-help teachings.
+ - Any discrimination, like sharp turns in a road, becomes critical because of the tremendous speed at which we are traveling into the high-tech world of a service economy.
+ - You have a number of choices. You could continue to always fight against people who are really distractions. They’re people in the cheap seats of life. Or you can do what you went there to do.
+ - But I know that the vote of 9 out of 10 black Americans for the Democratic Party or for leftist kinds of policies just is not reflective of their opinions.
+ - The truth of the matter is we have become more interested in designer jeans and break dancing than we are in obligations and responsibilities.
+ - I certainly have some very strong libertarian leanings, yes.
+ - I was never a liberal. I was radical. I was cynical. I was negative. But, I was never a liberal. I always saw that as too lukewarm for me.
+ - Oh, I don’t think Tom Sowell would tell anybody to join the administration. That’s not his style. But I think his attitude has always been if it had to be done he’d prefer me to do it than somebody else.
+ - But what I believe is that if a person’s individual rights or right to be a part of our economic system is violated under statute, we aggressively go after it. But we don’t issue mandates to businesses that you’ve got to do this and you’ve got to do that.
+ - The White House said today that Judge Clarence Thomas, President Bush’s Supreme Court nominee, had smoked marijuana while in college.
+ - Even as someone who’s labeled a conservative – I’m a Republican I’m black, I’m heading up this organization in the Reagan administration – I can say that conservatives don’t exactly break their necks to tell blacks that they’re welcome.
+ - I was sympathetic to virtually all groups that wanted to get away from the old system.
+ - It really bugs me that someone will tell me, after I spent 20 years being educated, how I’m supposed to think.
+ - When you look at where the real problems are among minorities in our society, particularly blacks, it’s at the bottom. It’s the people who are in school systems that don’t educate, neighborhoods where there is a lot of crime, drugs, the whole bit.
+ - And I don’t think that government has a role in telling people how to live their lives. Maybe a minister does, maybe your belief in God does, maybe there’s another set of moral codes, but I don’t think government has a role.
+
+49 quotes

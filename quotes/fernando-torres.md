@@ -1,0 +1,29 @@
+ - If football was a drug, I would have died from overdose.
+ - Football is a team sport and not an individual sport. We win as a team, and every individual is better if we are part of the team.
+ - My son is a Liverpool fan, and he was already kicking a ball before he was one. He was born in the football city, he had no choice.
+ - I’ve always been a sad person. I’m a happy person too, but it’s a thing in my brain or my spirit or something, I’m just sad and really acutely aware of mortality and loss.
+ - At Liverpool, I had almost everything but titles. I felt like a king, but the team was falling apart.
+ - I was captain in Atletico at 19, playing in the same team as Demetrio Albertini, who won three Champions Leagues, and Sergi Barjuan from Barcelona, who had won everything, and they were 32, 33. I was a kid as captain, so I wasn’t the real captain, just a kid learning from them.
+ - I always live in the present. I never dream about what might happen. Why? It might not.
+ - I want to say thanks to the Chelsea fans because I have seen them very, very happy with me for joining Chelsea.
+ - Purpose without virtue is vanity.
+ - I like changing my hairstyle, much to my mother’s annoyance. It depends on my state of mind.
+ - Liverpool is a fundamental part of my life. They don’t remember me that way, but time will change that. I could not have chosen a better place to go when I left Atletico.
+ - Living in Brooklyn it’s a very fend-for-yourself place. Maybe it’s made me a little bit harsh but I don’t consider that to be pejorative.
+ - It’s not easy to come somewhere new and have to find your place. You might feel someone doesn’t like you, or you might need to find new friends. It’s not easy, and I don’t like this kind of thing. It’s not easy, so you want to protect the players who are alone.
+ - The songs can be dark, but the adrenaline doesn’t really change, regardless of what it is I’m singing, I still have the adrenaline, it’s still a high.
+ - Sometimes I’d like to have a conversation with a friend in a restaurant without feeling I’m being watched. At this rate I will have to go on holiday to Greenland. But maybe the Eskimos would know me.
+ - When I get to connect with people, I’m not in my head anymore and I like that, that’s nice.
+ - The live show allows me to transcend myself, because it’s not about me anymore. The writing process is very much about me but then the live show is not. They feel really different.
+ - The writing is therapeutic for me, it’s an introverted process, I’m really inside my head. It’s a really obsessive process. The live show, though, is the opposite. It’s an extroverted process. It pushes me to connect with people, and so it pulls me out of my head and just pulls me out of myself.
+ - You have to know what club you are playing for, or you just play for yourself. Every time I put on a Liverpool shirt, I know it is more than just a football game.
+ - Fitness is important, but the most important thing is how you adapt and the way you feel physically. To adapt to a new position. To try to change your game.
+ - When I retire, the only thing that concerns me is that no one can say that I was a bad team-mate or disrespectful or self-important.
+ - The Premier League is very difficult football and very different to when you play in Europe, but the player has to have experience to adapt, and this is the key point.
+ - Madrid is not as big as London, but it is true when you are coming from a big city like Madrid, nothing is going to surprise you, and I am very happy to move to a city like London. It is a big city, and you can do everything you want with the respect that the English people always have.
+ - I guess just personally I’ve become a bolder person in my day-to-day. I think a lot of it came from moving to Brooklyn. I just sort of became an adult and started speaking up for myself and not apologising for myself.
+ - The Champions League is a big ambition, and all the footballers want to play in it, it is a very important competition.
+ - If I score against Liverpool I will not celebrate.
+ - My head is in Liverpool and on helping save our season. I am professional and I always fulfil my deals. I haven’t considered leaving, although in football that depends on the club.
+
+27 quotes

@@ -1,0 +1,33 @@
+ - I wish I knew how to quit you.
+ - You should write because you love the shape of stories and sentences and the creation of different words on a page. Writing comes from reading, and reading is the finest teacher of how to write.
+ - Writing comes from reading, and reading is the finest teacher of how to write.
+ - You know, one of the tragedies of real life is that there is no background music.
+ - There was some open space between what he knew and what he tried to believe, but nothing could be done about it, and if you can’t fix it you’ve got to stand it.
+ - Develop craftsmanship through years of wide reading.
+ - In a rough way the short story writer is to the novelist as a cabinetmaker is to a house carpenter.
+ - If you get the landscape right, the characters will step out of it, and they’ll be in the right place.
+ - I find it satisfying and intellectually stimulating to work with the intensity, brevity, balance and word play of the short story.
+ - And it may be that love sometimes occurs without pain or misery.
+ - Change itself is what fascinates me. I am drawn, as a moth to the flame, by edge situations, by situations of metamorphosis.
+ - What we fear we often rage against.
+ - If you can’t fix it, you have to stand it.
+ - Ordinary parties, he thought, were subtle games of sexual and social badminton...
+ - And I think that’s important, to know how the water’s gone over the dam before you start to describe it. It helps to have been over the dam yourself.
+ - A spinning coin, still balanced on its rim, may fall in either direction.
+ - We’re all strange inside. We learn how to disguise our differences as we grow up.
+ - Everybody that went away suffered a broken heart. “I’m coming back some day,” they all wrote. But never did. The old life was too small to fit anymore.
+ - If you are looking for smart judging based on merit, skip the Academy Awards next year and pay attention to the Independent Spirit Awards.
+ - It is my feeling that a story is not finished until it is read, and that the reader finishes it through his or her life experience, prejudices, world view and thoughts.
+ - Their silence comfortable. Something unfolding. But what? Not love, which wrenched and wounded. Not love, which came only once.
+ - I think it’s important to leave spaces in a story for readers to fill in from their own experience.
+ - I would rather be dead than not read.
+ - But the only rhyme he could summon for ‘out’ was ‘sauerkraut,’ which lacked poetic glory. He let it go. The right line would come in time. That was the thing about poetry. It crept up through the draws and coulees of the brain.
+ - It’s easier to die if others around you are dying.
+ - Archie was an expert at dividing the affairs of life into men’s business and women’s business. An empty cupboard and a full plate were the man’s business, a full cupboard and an empty plate the concern of the woman.
+ - No wonder, he thought, that the panhandle people were a godly lot, for they lived in sudden, violent atmospheres. Weather kept them humble.
+ - If life was an arc of light that began in darkness, ended in darkness, the first part of his life had happened in ordinary glare. Here it was as though he had found a polarized lens that deepened and intensified all seen through it.
+ - Anyway, there’s something wrong with everybody and it’s up to you to know what you can handle.
+ - I am influenced by words and the chewiness of language.
+ - All the travelin I ever done is going around the coffeepot looking for the handle.
+
+31 quotes

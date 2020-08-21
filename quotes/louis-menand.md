@@ -1,0 +1,37 @@
+ - I think in general there’s no point in going into a field like English literature if you’re not going to have fun with it.
+ - If time is a staircase, reality is a Slinky.
+ - Basically what you want in any profession – I would say the same thing if I were a lawyer or a doctor – is you want bright undergraduates to look at your profession as something they would be interested in getting into.
+ - My own view is that the general education curriculum that a college picks has to be appropriate for the kind of student body that it has.
+ - I don’t think the same curriculum fits every student body.
+ - You want diversity in any intellectual organization. I mean, that’s how good ideas arise.
+ - I don’t think that you want to see universities in any way trying to have any kind of quota system about political views, or views in general. You want the market to work in the way the market works.
+ - Obviously input is helpful to faculty in trying to come up with a curriculum, but ultimately it’s the faculty’s job to know what students need to know. Make a decision about it and present it.
+ - I think our sensibility is not modernist anymore, that is, sensibility of people who are interested in art and literature.
+ - The difficulty with coming up with a curriculum is mainly that faculty aren’t trained to think in terms of general education. They’re trained to think in terms of their own discipline, or their specialty.
+ - Quotable quotes are coins rubbed smooth by circulation.
+ - The time between Bachelor’s degree and a PhD, the median time is over 11 years. So then you’re still only on a tenure ladder, you’re not tenured. So it generally takes 6 to 8 years after that to get tenure. So that’s a very long period of what’s essentially apprenticeship, of insecurity.
+ - We have much wisdom to gain by learning to understand other people’s cultures and permitting ourselves to accept that there is more than one version of reality.
+ - Cognitive science is a rapidly developing area, so it could be that there are some surprises around the corner. That does seem to be kind of where the trend line is leading.
+ - One of the functions of literary criticism, or reviewing, generally – and I, most of my reviews actually are not about literature – but one of the functions of that is basically the sort of Consumer Reports function of letting readers know whether this is something they want to read.
+ - A person whose financial requirements are modest and whose curiosity, skepticism and indifference to reputation are outsized is a person at risk of becoming a journalist.
+ - Public circulation is what renders something a quotation. It’s quotable because it’s been quoted, and its having been quoted gives it authority.
+ - If you write for the New Yorker, you always get people critiquing your grammar, you can count on it. So, because a lot of New Yorker readers are kind of, you know, amateur grammarians and so you do get a lot of that.
+ - There are limits, after all, to the idea of limits.
+ - I do worry a lot about the time it takes for people to get a PhD, about the difficulty of finding employment, about the difficulty of getting tenure, and generally about the perception that undergraduates have, that this is a very high-risk career to get started.
+ - Literature is being taught as though it were only political medicine or political poison-a view that is not only illiberal but illiterate.
+ - I don’t really usually push an agenda, and I don’t feel that my main job is to persuade people of something. My main job is to help them think about something.
+ - It’s generally sort of sociologically observed that the better educated people are, the more liberal they tend to be, which would suggest that professors are going to be more liberal than the general public.
+ - For the kind of places I’ve written for and the kind of writing that I’ve done, the general way to think about your audience is to think about somebody who’s like yourself, but in a completely different discipline.
+ - You have to have students wanting to take the courses, otherwise you’re not going, they’re not going to be very effective.
+ - I think that the idea that there’s such a thing as a national literature that’s somehow uniquely expressive of a national soul or culture or mentality is probably also something that nobody really believes in anymore.
+ - I don’t think that taste should be the decider of moral issues.
+ - Writers are not mere copyists of language; they are polishers, embellishers, perfecters. They spend hours getting the timing right so that what they write sounds completely unrehearsed.
+ - I suppose everybody does get attached to characters whether in movies or in stories, but I think that’s part of the reason you get involved with literature is because there’s somebody that grabs you about it and then you want to figure out why.
+ - Harvard has something that manages, I think, to provide a lot of options for students, but still fairly prescriptive about the kinds of subjects that the courses ought to cover.
+ - Diminished circumstances had no effect on his sense of what was honorable: after The Spectator sent him a check for a piece it had accepted but was unable to run for a lack of space, he refused to write for the magazine again.
+ - One of the good things about the profession of being a professor, is that you also have time to do what interests you and what you care about or what you’re good at.
+ - I don’t think people believe that any more, I don’t think people think that it really matters whether you appreciate Henry James more than Theodore Dreiser.
+ - Universities are set up to get people to work together by having them disagree with each other.
+ - One of the oddities about responses that you get to what you write, if you get a fair number of them, is that people have very different ideas of what you said.
+
+35 quotes

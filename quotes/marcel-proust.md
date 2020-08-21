@@ -1,0 +1,263 @@
+ - The real voyage of discovery consists not in seeking new landscapes, but in having new eyes.
+ - My destination is no longer a place, rather a new way of seeing.
+ - Let us be grateful to people who make us happy, they are the charming gardeners who make our souls blossom.
+ - We don’t receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
+ - Even though our lives wander, our memories remain in one place.
+ - When you work to please others you can’t succeed, but the things you do to satisfy yourself stand a chance of catching someone’s interest.
+ - We are healed from suffering only by experiencing it to the full.
+ - Always try to keep a patch of sky above your life.
+ - Remembrance of things past is not necessarily the remembrance of things as they were.
+ - Happiness is beneficial for the body, but it is grief that develops the powers of the mind.
+ - Do not wait for life. Do not long for it. Be aware, always and at every moment, that the miracle is in the here and now.
+ - When I am not too sad to listen, music is my consolation.
+ - Love is a striking example of how little reality means to us.
+ - The only true voyage would be not to travel through a hundred different lands, but to see the same land through a hundred different pairs of eyes.
+ - Reading is that fruitful miracle of a communication in the midst of solitude.
+ - Every reader finds himself. The writer’s work is merely a kind of optical instrument that makes it possible for the reader to discern what, without this book, he would perhaps never have seen in himself.
+ - Memory nourishes the heart, and grief abates.
+ - When we have passed a certain age, the soul of the child we were and the souls of the dead from whom we have sprung come to lavish on us their riches and their spells.
+ - We do not succeed in changing things according to our desire, but gradually our desire changes.
+ - No man is a complete mystery except to himself.
+ - The creation of the world did not occur at the beginning of time, it occurs every day.
+ - Often it is just lack of imagination that keeps a man from suffering very much.
+ - If a little dreaming is dangerous, the cure for it is not to dream less but to dream more, to dream all the time.
+ - We do not receive wisdom, we must discover it for ourselves, after a journey through the wilderness which no one else can make for us, which no one can spare us, for our wisdom is the point of view from which we come at last to regard the world.
+ - The heart does not lie.
+ - Like many intellectuals, he was incapable of saying a simple thing in a simple way.
+ - It has been said that beauty is a promise of happiness. Conversely, the possibility of pleasure can be a beginning of beauty.
+ - A language which we do not know is a fortress sealed.
+ - It is always during a passing state of mind that we make lasting resolutions.
+ - Even from the simplest, the most realistic point of view, the countries which we long for occupy, at any given moment, a far larger place in our actual life than the country in which we happen to be.
+ - Human altruism which is not egoism, is sterile.
+ - The fixity of a habit is generally in direct proportion to its absurdity.
+ - We must never be afraid to go too far, for truth lies beyond.
+ - Perhaps the immobility of the things that surround us is forced upon them by our conviction that they are themselves, and not anything else, and by the immobility of our conceptions of them.
+ - What we have not had to decipher, to elucidate by our own efforts, what was clear before we looked at it, is not ours. From ourselves comes only that which we drag forth from the obscurity which lies within us, that which to others is unknown.
+ - A change in the weather is sufficient to recreate the world and ourselves.
+ - We may have revolved every possible idea in our minds, and yet the truth has never occurred to us, and it is from without, when we are least expecting it, that it gives us its cruel stab and wounds us forever.
+ - If there is one thing more difficult than submitting oneself to a regime it is refraining from imposing it on other people.
+ - Habit is a second nature which prevents us from knowing the first, of which it has neither the cruelties nor the enchantments.
+ - Love is a reciprocal torture.
+ - There are perhaps no days of our childhood we lived so fully as those we spent with a favorite book.
+ - It comes so soon, the moment when there is nothing left to wait for.
+ - We are able to find everything in our memory, which is like a dispensary or chemical laboratory in which chance steers our hand sometimes to a soothing drug and sometimes to a dangerous poison.
+ - The particulars of life do not matter to the artist; they merely provide him with the opportunity to lay bare his genius.
+ - People do not die for us immediately, but remain bathed in a sort of aura of life which bears no relation to true immortality but through which they continue to occupy our thoughts in the same way as when they were alive. It is as though they were traveling abroad.
+ - It is always thus, impelled by a state of mind which is destined not to last, we make our irrevocable decisions.
+ - We ought at least, from prudence, never to speak of ourselves, because that is a subject on which we may be sure that other people’s views are never in accordance with our own.
+ - Laissons les jolies femmes aux hommes sans imagination. Leave the pretty women for the men without imagination.
+ - A little insomnia is not without its value in making us appreciate sleep, in throwing a ray of light upon that darkness.
+ - Griefs, at the moment when they change into ideas, lose some of their power to injure our heart.
+ - At the heart of our friendly or purely social relations, there lurks a hostility momentarily cured but recurring by fits and starts.
+ - Now are the woods all black, But still the sky is blue.
+ - When from a long distant past nothing subsists after the things are broken and scattered, the smell and taste of things remain.
+ - We think and name in one world, we live and feel in another.
+ - All the mind’s activity is easy if it is not subjected to reality.
+ - The highest praise of God consists in the denial of him by the atheist who finds creation so perfect that it can dispense with a creator.
+ - For every sin there is forgiveness, and especially for the sins of youth.
+ - People wish to learn to swim and at the same time to keep one foot on the ground.
+ - After a certain age, the more one becomes oneself, the more obvious one’s family traits become.
+ - People who are not in love fail to understand how an intelligent man can suffer because of a very ordinary woman. This is like being surprised that anyone should be stricken with cholera because of a creature so insignificant as the common bacillus.
+ - Time passes, and little by little everything that we have spoken in falsehood becomes true.
+ - May you always see a blue sky overhead, my young friend; and then, even when the time comes, as it has come for me now, when the woods are black, when night is fast falling, you will be able to console yourself, as I do, by looking up at the sky.
+ - There is no idea that does not carry in itself a possible refutation, no word that does not imply its opposite.
+ - There is not a woman in the world the possession of whom is as precious as that of the truths which she reveals to us by causing us to suffer.
+ - Indeed, among the lesser auxiliaries to success in love, an absence, the declining of an invitation to dinner, an unintentional, unconscious harshness are of more service than all the cosmetics and fine clothes in the world.
+ - To the pure all things are pure!
+ - Our memory is like a shop in the window of which is exposed now one, now another photograph of the same person. And as a rule the most recent exhibit remains for some time the only one to be seen.
+ - If we are to make reality endurable, we must all nourish a fantasy or two.
+ - But sometimes illumination comes to our rescue at the very moment when all seems lost; we have knocked at every door and they open on nothing until, at last, we stumble unconsciously against the only one through which we can enter the kingdom we have sought in vain a hundred years – and it opens.
+ - Desire makes everything blossom; possession makes everything wither and fade.
+ - The bonds that unite another person to our self exist only in our mind.
+ - The stellar universe is not so difficult to understand as the real actions of other people, especially of the people with whom we are in love.
+ - Instead of seeking new landscapes, develop new eyes.
+ - The inertia of the mind urges it to slide down the easy slope of imagination, rather than to climb the steep slope of introspection.
+ - Let us leave pretty women to men devoid of imagination.
+ - The time at our disposal each day is elastic; the passions we feel dilate it, those that inspire us shrink it, and habit fills it.
+ - If only for the sake of elegance, I try to remain morally pure.
+ - I have a horror of sunsets; they’re so romantic, so operatic.
+ - The only thing that does not change is that at any and every time it appears that there have been great changes.
+ - Love is an incurable malady like those pathetic states in which rheumatism affords the sufferer a brief respite only to be replaced by epileptiform headaches.
+ - I had come in time to learn that it was a mistake to smile a friendly smile when somebody made a fool of me.
+ - Just as those who practice the same profession recognize each other instinctively, so do those who practice the same vice.
+ - Our words are, as a general rule, filled by the people to whom we address them with a meaning which those people derive from their own substance, a meaning widely different from that which we had put into the same words when we uttered them.
+ - One cannot change, that is to say become a different person, while continuing to acquiesce to the feelings of the person one has ceased to be.
+ - We feel in one world, we think and name in another. Between the two we can set up a system of references, but we cannot fill in the gap.
+ - We have such numerous interests in our lives that it is not uncommon, on a single occasion, for the foundations of a happiness that does not yet exist to be laid down alongside the intensification of a grief from which we are still suffering.
+ - We shall see later on that the diversity of the forms of death that circulate invisibly is the cause of the peculiar unexpectedness of obituary notices in the newspapers.
+ - When I went to Venice I found that my dream had become-incredibly, but quite simply-my address.
+ - Time, which changes people, does not alter the image we have retained of them.
+ - There can be no peace of mind in love, since the advantage one has secured is never anything but a fresh starting-point for future desires.
+ - A powerful idea communicates some of its strength to him who challenges it.
+ - Love is not vain because it is frustrated, but because it is fulfilled. The people we love turn to ashes when we posess them.
+ - For each illness that doctors cure with medicine, they provoke ten in healthy people by inoculating them with the virus that is a thousand times more powerful than any microbe: the idea that one is ill.
+ - An hour is not merely an hour, it is a vase full of scents and sounds and projects and climates.
+ - Things don’t change, but by and by our wishes change.
+ - Our worst fears, like our greatest hopes, are not outside our powers, and we can come in the end to triumph over the former and to achieve the latter.
+ - La possession de ce qu’on aime est une joie plus grande encore que l’amour. Possessing what one loves is an even greater joy than love itself.
+ - A doctor who doesn’t say too many foolish things is a patient half-cured.
+ - A work should convey its entire meaning by itself, imposing it on the spectator even before he knows what the subject is.
+ - In love, happiness is an abnormal state.
+ - The features of our face are hardly more than gestures which force of habit made permanent. Nature, like the destruction of Pompeii, like the metamorphosis of a nymph into a tree, has arrested us in an accustomed movement.
+ - I should have been happy: I wasn’t.
+ - A cathedral, a wave of a storm, a dancer’s leap, never turn out to be as high as we had hoped.
+ - Conversation, which is friendship’s mode of expression, is a superficial digression which gives us nothing worth acquiring. We may talk for a lifetime without doing more than indefinitely repeat the vacuity of a minute.
+ - Our shadows, now parallel, now close together and joined, traced an exquisite pattern at our feet.
+ - There are optical illusions in time as well as space.
+ - The truth is that every morning war is declared afresh. And the men who wish to continue it are as guilty as the men who began it, more guilty perhaps, for the latter perhaps did not foresee all its horrors.
+ - We were resigned to suffering, thinking that we loved outside ourselves, and we perceive that our love is a function of our sorrow, that our love perhaps is our sorrow...
+ - How else learn the real, if not by inventing what might lie outside it?
+ - Existence is of little interest save on days when the dust of realities is mingled with magic sand.
+ - We can only be faithful to what we remember, and we remember only what we have known.
+ - Desire makes everything blossom.
+ - Dear Friend: I have nearly died three times since morning.
+ - We love only what we do not wholly possess.
+ - Beautiful books are always written in a sort of foreign language.
+ - A picture’s beauty does not depend on the things portrayed in it.
+ - The moments of the past do not remain still; they retain in our memory the motion which drew them towards the future, towards a future which has itself become the past, and draw us on in their train.
+ - Perfume is that last and best reserve of the past, the one which when all out tears have run dry, can make us cry again!
+ - Photography is the product of complete alienation.
+ - Habit is, of all the plants of human growth, the one that has the least need of nutritious soil in order to live, and is the first to appear on the most seemingly barren rock.
+ - Thanks to art, instead of seeing one world, our own, we see it multiplied and as many original artists as there are, so many worlds are at our disposal.
+ - That translucent alabaster of our memories.
+ - The sight of the little madeleine had recalled nothing to my mind before I tasted it...
+ - We are ordinarily so indifferent to people that when we have invested one of them with the possibility of giving us joy, or suffering, it seems as if he must belong to some other universe, he is imbued with poetry.
+ - Happiness serves hardly any other purpose than to make unhappiness possible.
+ - Le bonheur est dans l’amour un e tat anormal. In love, happiness is abnormal.
+ - We pack the physical outline of the creature we see with all the ideas we have already formed about him, and in the complete picture of him we compose in our minds those ideas have certainly the principal place.
+ - What a profound significance small things assume when the woman we love conceals them from us.
+ - Death is in truth an illness from which we recover.
+ - All our final decisions are made in a state of mind that is not going to last.
+ - One must never miss an opportunity of quoting things by others which are always more interesting than those one thinks up oneself.
+ - It is a mistake to speak of a bad choice in love, since, as soon as a choice exists, it can only be bad.
+ - We believe we can change things according to our wishes because that’s the only happy solution we can see. We don’t think of what usually happens and what is also a happy solution; things don’t change, but by and by our wishes change.
+ - Less disappointing than life, great works of art do not begin by giving us all their best.
+ - In reality, in love there is a permanent suffering which joy neutralizes, renders virtual delays, but which can at any moment become what it would have become long earlier if one had not obtained what one wanted – atrocious.
+ - A sort of egotistical self-evaluation is unavoidable in those joys in which erudition and art mingle and in which aesthetic pleasure may become more acute, but not remain as pure.
+ - We live not alone but chained to a creature of a different kingdom: our body.
+ - We are all of us obliged, if we are to make reality endurable, to nurse a few little follies in ourselves.
+ - Only by art can we get outside ourselves, instead of seeing only one world, our own, we see it under multiple forms.
+ - Illness is the doctor to whom we pay most heed; to kindness, to knowledge, we make promise only; pain we obey.
+ - The great quality of true art is that it rediscovers, grasps and reveals to us that reality far from where we live, from which we get farther and farther away as the conventional knowledge we substitute for it becomes thicker and more impermeable.
+ - Your soul is a dark forest. But the trees are of a particular species, they are genealogical trees.
+ - People don’t know when they are happy. They’re never so unhappy as they think they are.
+ - How paradoxical it is to search reality for the pictures that are stored in one’s memory.
+ - There is in this world in which everything wears out, everything perishes, one thing that crumbles into dust, that destroys itself still more completely, leaving behind still fewer traces of itself than Beauty: namely Grief.
+ - But to ask pity of our body is like discoursing in front of an octopus, for which our words can have no more meaning than the sound of the tides, and with which we should be appalled to find ourselves condemned to live.
+ - So long as I know what’s boiling in my pot I don’t bother my head about what’s in other people’s.
+ - Under each station of the real, another glimmers.
+ - Truth is a point of view about things.
+ - The only possible paradises are those we have lost.
+ - Everybody calls “clear” those ideas which have the same degree of confusion as his own.
+ - In a separation it is the one who is not really in love who says the more tender things.
+ - The world was not created once and for all time for each of us individually. There are added to it in the course of our life things of which we have never had any suspicion.
+ - Women who are to some extent resistant, whom one cannot possess at once, whom one does not even know at first whether one will ever possess, are the only interesting ones.
+ - There is no man, however wise, who has not at some period of his youth said things, or lived in a way the consciousness of which is so unpleasant to him in later life that he would gladly, if he could, expunge it from his memory.
+ - Like a kaleidoscope which is every now and then given a turn, society arranges successively in different orders elements which one would have supposed immutable, and composes a new pattern.
+ - Sometimes in this life, under the stress of an exceptional emotion, people do say what they think.
+ - Reality is never more than a first step towards an unknown on the road to which one can never progress very far.
+ - Nine tenths of the ills from which intelligent people suffer spring from their intellect.
+ - Masterpieces are no more than the shipwrecked flotsam of great minds.
+ - The opinions which we hold of one another, our relations with friends and kinsfolk are in no sense permanent, save in appearance, but are as eternally fluid as the sea itself.
+ - Le style, pour l’e crivain aussi bien que pour le peintre, est une question non de technique mais de vision. For the writer as well as for the painter, style is not a question of technique, but of vision.
+ - Our desires cut across one another, and in this confused existence it is rare for happiness to coincide with the desire that clamoured for it.
+ - No exile at the South Pole or on the summit of Mont Blanc separates us more effectively from others than the practice of a hidden vice.
+ - The charms of a passing woman are usually in direct relation to the speed of her passing.
+ - I had long since given up trying to extract from a woman as it were the square root of her unknown quantity, the mystery of which a mere introduction was generally enough to dispel.
+ - Man is the creature that cannot emerge from himself, that knows his fellows only in himself; when he asserts the contrary, he is lying.
+ - Neurosis has an absolute genius for malingering. There is no illness which it cannot counterfeit perfectly. If it is capable of deceiving the doctor, how should it fail to deceive the patient.
+ - Most of our faculties lie dormant because they can rely upon Habit, which knows what there is to be done and has no need of their services.
+ - No sooner had the warm liquid mixed with the crumbs touched my palate than a shudder ran through me and I stopped, intent upon the extraordinary thing that was happening to me.
+ - The facts of life do not penetrate to the sphere in which our beliefs are cherished; they did not engender those beliefs, and they are powerless to destroy them.
+ - Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.
+ - We strive all the time to give our life its form, but we do so by copying willy-nilly, like a drawing, the features of the person that we are and not of the person we should like to be.
+ - We must love men more than things, and I admire and weep more for the soldiers than for the churches which were only the recording of an heroic gesture which today is reenacted at every moment.
+ - The bonds that unite us to another human being are sanctified when he or she adopts the same point of view as ourselves in judging one of our imperfections.
+ - We construct our lives for one person, and when at length it is ready to receive her that person does not come; presently she is dead to us, and we live on, prisoners within the walls which were intended only for her.
+ - There’s nothing like desire to prevent the things one says from having any resemblance to the things in one’s mind.
+ - Proust was the greatest novelist of the twentieth century, just as Tolstoy was in the nineteenth.
+ - But sometimes the future is latent in us without our knowing it, and our supposedly lying words foreshadow an imminent reality.
+ - It is desire that engenders belief; if we fail as a rule to take this into account, it is because most of the desires that create beliefs end only with out own life.
+ - I wished to see storms only on those coasts where they raged with most violence...
+ - It is the tragedy of other people that they are to us merely showcases for the very perishable collections of our own mind.
+ - There are people whose faces assume an unaccustomed beauty and majesty the moment they cease to look out of their eyes.
+ - The loss of a sense adds as much beauty to the world as its acquisition.
+ - In reality, every reader is, while reading, the reader of his own self.
+ - Only through art can we emerge from ourselves and know what another person sees.
+ - The character we exhibit in the latter half of our life need not necessarily be, though it often is, our original character, developed further, dried up, exaggerated, or diminished. It can be its exact opposite, like a suit worn inside out.
+ - To a great extent, suffering is a sort of need felt by the organism to make itself familiar with a new state, which makes it uneasy, to adapt its sensibility to that state.
+ - Only imagination and belief can differentiate from the rest certain objects, certain people, and can create an atmosphere.
+ - Each reader reads only what is already within himself. The book is only a sort of optical instrument which the writer offers to the reader to enable the latter to discover in himself what he would not have found but for the aid of the book.
+ - Error, by force of contrast, enhances the triumph of Truth.
+ - I drank a second mouthful in which I find nothing more than in the first, then a third which gives me rather less than the second. It is time to stop; the potion is losing its magic.
+ - Even in the most insignificant details of our daily life, none of us can be said to constitute a material whole, which is identical for everyone, and need only be turned up like a page in an account-book or the record of a will; our social personality is created by the thoughts of other people.
+ - In his younger days a man dreams of possessing the heart of the woman whom he loves; later, the feeling that he possesses the heart of a woman may be enough to make him fall in love with her.
+ - You can’t learn the truth about a man’s intentions by asking him.
+ - One reads the papers as one wants to with a bandage over one’s eyes without trying to understand the facts, listening to the soothing words of the editor as to the words of one s mistress.
+ - The most powerful soporific is sleep itself.
+ - As soon as he ceased to be mad he became merely stupid. There are maladies we must not seek to cure because they alone protect us from others that are more serious.
+ - For, just as in the beginning it is formed by desire, so afterwards love is kept in existence only by painful anxiety.
+ - Nous sommes tous oblige s, pour rendre la re alite supportable, d’entretenir en nous quelques petites folies. We must all indulge in a few follies if we are to make reality bearable.
+ - Wars are fought for the benefit of oligarchs, triumphs bought with the blood of peons.
+ - Adultery breathes new life into marriages which have been left for dead.
+ - Like everybody who is not in love, he thought one chose the person to be loved after endless deliberations and on the basis of particular qualities or advantages.
+ - Nobility is often no more than the inner aspect which our egotistical feelings assume when we have not yet named and classified them.
+ - I believe that all true art is classic, but the dictates of the mind rarely permit of its being recognized as such when it first appears.
+ - We only really know what is new, what suddenly introduces to our sensibility a change of tone which strikes us, that for which habit has not yet substituted its pale fac-similes.
+ - Knowing does not always allow us to prevent, but at least the things that we know, we hold them, if not in our hands, but at leastin our thoughts where we may dispose of them at our whim, which gives us the illusion of power over them.
+ - For theories and schools, like microbes and corpuscles, devour one another and by their strife ensure the continuity of life.
+ - A man of letters, merely by reading a phrase, can estimate exactly the literary merit of its author.
+ - We are at times too ready to believe that the present is the only possible state of things.
+ - The past not merely is not fugitive, it remains present.
+ - A woman one loves rarely suffices for all our needs, so we deceive her with another whom we do not love.
+ - The real stars of society are tired of appearing there. He who is curious to gaze at them must often migrate to another hemisphere, where they are more or less alone.
+ - We become moral when we are unhappy.
+ - The sensitiveness claimed by neurotic is matched by their egotism: they cannot abide the flaunting by others of the sufferings to which they pay an even increasing amount of attention in themselves.
+ - Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.
+ - As to the pretty girls who went past, from the day on which I had first known that their cheeks could be kissed, I had become curious about their souls. And the Universe had appeared to me more interesting.
+ - Lies are essential to humanity. They are perhaps as important as the pursuit of pleasure and moreover are dictated by that pursuit.
+ - I was not at all worried about finding my doctor boring; I expected from him, thanks to an art of which the laws escaped me, that he pronounce concerning my health an indisputable oracle by consulting my entrails.
+ - Fashions, being themselves begotten of the desire for change, are quick to change also.
+ - Unkind people imagine themselves to be inflicting pain on someone equally unkind.
+ - I do my intellectual work inside myself, and once I am with my fellow creatures it is more or less a matter of indifference to me whether or not they are intelligent as long as they are kind, sincere, etc.
+ - The duty and the task of a writer are those of an interpreter.
+ - Everything that seems imperishable tends to extinguishment.
+ - The paradoxes of today are the prejudices of tomorrow, since the most benighted and the most deplorable prejudices have had their moment of novelty when fashion lent them its fragile grace.
+ - It is often hard to bear the tears that we ourselves have caused.
+ - It is not only by dint of lying to others, but also of lying to ourselves, that we cease to notice that we are lying.
+ - According to a charming law of nature which is evident even in the most sophisticated societies, we live in complete ignorance of whatever we love.
+ - Our intonations contain our philosophy of life, what each of us is constantly telling himself about things.
+ - Those whose suffering is due to love are, as we say of certain invalids, their own physicians.
+ - Most of the supposed expressions of our feelings merely relieve us of them by drawing them out of us in an indistinct form that does not teach us to know them.
+ - Three-quarters of the sicknesses of intelligent people come from their intelligence. They need at least a doctor who can understand this sickness.
+ - A man may have spent his life among the great ones of the earth, who to him have been merely boring relatives or tedious acquaintances because a familiarity engendered in the cradle had stripped them of all glamour in his eyes.
+ - What barrier is so insurmountable as silence?
+ - Our passions shape our books, repose writes them in the intervals.
+ - People who laugh so heartily at what they themselves have said, when it is not funny, dispense us accordingly, by taking upon themselves the responsibility for the mirth, from joining in it.
+ - Lies are essential to humanity.
+ - But when one believes in the reality of things, making them visible by artificial means is not quite the same as feeling that they are close at hand.
+ - It is not because other people are dead that our affection for them grows faint, it is because we ourselves are dying.
+ - The most familiar precepts are not always the truest.
+ - She’s got feet like boats, whiskers like an American, and her undies are filthy.
+ - It is only with the passions of others that we are ever really familiar, and what we come to discover about our own can only be learned from them.
+ - They like my books better in England than in France; a translation would be very successful there.
+ - Let a prize lower my position, if it causes me to be read; that I prefer immediately to all the honors.
+ - Certain favourite roles are played by us so often before the public and rehearsed so carefully when we are alone that we find it easier to refer to their fictitious testimony than to that of a reality which we have almost entirely forgotten.
+ - We see things but we don’t see them, like things that slid through the mind, one flowing into another.
+ - The artist who gives up an hour of work for an hour of conversation with a friend knows that he is sacrificing a reality for something that does not exist.
+ - The truth is that men can have several sorts of pleasure. The true pleasure is the one for which they abandon the other.
+ - A fashionable milieu is one in which everybody’s opinion is made up of the opinion of all the others. Has everybody a different opinion? Then it is a literary milieu.
+ - There are mountainous, arduous days, up which one takes an infinite time to climb, and downward-sloping days which one can descend at full tilt, singing as one goes.
+ - L’ide e qu’on mourra est plus cruelle que mourir, mais moins que l’ide e qu’un autre est mort. The idea of dying is worse than dying itself, but less cruel than the idea that another has died.
+ - What artists call posterity is the posterity of the work of art.
+ - As long as men are free to ask what they must, free to say what they think, free to think what they will, freedom can never be lost and science can never regress.
+ - That which we remember of our conduct is ignored by our closest neighbour; but that which we have forgotten having said, or even what we never said, will cause laughter even into the next world.
+ - A work in which there are theories is like an object which still has the ticket that shows its price.
+ - In theory one is aware that the earth revolves, but in practice one does not perceive it, the ground upon which one treads seems not to move, and one can live undisturbed. So it is with Time in one’s life.
+ - A photograph acquires something of the dignity which it ordinarily lacks when it ceases to be a reproduction of reality and shows us things that no longer exist.
+ - Aristocracy is a relative thing. And there are plenty of out-of-the-way places where the son of an upholsterer is the arbiter of fashion and reigns over a court like any young Prince of Wales.
+ - A woman whom we need and who makes us suffer elicits from us a whole gamut of feelings far more profound and vital than a man of genius who interests us.
+ - Pleasures are like photographs: in the presence of the person we love, we take only negatives, which we develop later, at home, when we have at our disposal once more our inner dark room, the door of which it is strictly forbidden to open while others are present.
+ - And so when studying faces, we do indeed measure them, but as painters, not as surveyors.
+
+261 quotes

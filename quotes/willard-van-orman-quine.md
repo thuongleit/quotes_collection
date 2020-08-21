@@ -1,0 +1,49 @@
+ - One man’s antinomy is another man’s falsidical paradox, give or take a couple of thousand years.
+ - To be is to be the value of a variable.
+ - Logic chases truth up the tree of grammar.
+ - Language is a social art.
+ - Set theory in sheep’s clothing.
+ - We cannot stem linguistic change, but we can drag our feet. If each of us were to defy Alexander Pope and be the last to lay the old aside, it might not be a better world, but it would be a lovelier language.
+ - The three main medieval points of view regarding universals are designated by historians as realism, conceptualism, and nominalism. Essentially these same three doctrines reappear in twentieth-century surveys of the philosophy of mathematics under the new names logicism, intuitionism, and formalism.
+ - Language is conceived in sin and science is its redemption.
+ - Wyman’s overpopulated universe is in many ways unlovely. It offends the aesthetic sense of us who have a taste for desert landscapes.
+ - Confusion of sign and object is original sin coeval with the word.
+ - It is within science itself, and not in some prior philosophy, that reality is to be identified and described.
+ - Life is what the least of us make the most of us feel the least of us make the most of.
+ - Logic is an old subject, and since 1879 it has been a great one.
+ - Creatures inveterately wrong in their inductions have a pathetic but praise-worthy tendency to die before reproducing their kind.
+ - The lore of our fathers is a fabric of sentences. A pale gray lore, black with fact and white with convention.
+ - Meaning is what essence becomes when it is divorced from the object of reference and wedded to the word.
+ - We can applaud the state lottery as a public subsidy of intelligence, for it yields public income that is calculated to lighten the tax burden of us prudent abstainers at the expense of the benighted masses of wishful thinkers.
+ - The familiar material objects may not be all that is real, but they are admirable examples.
+ - Irrefragability, thy name is mathematics.
+ - Implication is thus the very texture of our web of belief, and logic is the theory that traces it.
+ - No two of us learn our language alike, nor, in a sense, does any finish learning it while he lives.
+ - The word ‘definition’ has come to have a dangerously reassuring sound, owing no doubt to its frequent occurrence in logical and mathematical writings.
+ - Necessity resides in the way we talk about things, not in the things we talk about.
+ - Nonbeing must in some sense be, otherwise what is it that there is not? This tangled doctrine might be nicknamed Plato’s beard; historically it has proved tough, frequently dulling the edge of Occam’s razor.
+ - It is one of the consolations of philosophy that the benefit of showing how to dispense with a concept does not hinge on dispensing with it.
+ - To define an expression is, paradoxically speaking, to explain how to get along without it. To define is to eliminate.
+ - Yields falsehood when preceded by its quotation.
+ - Science is not a substitute for common sense, but an extension of it.
+ - We do not learn first what to talk about and then what to say about it.
+ - Different persons growing up in the same language are like different bushes trimmed and trained to take the shape of identical elephants. The anatomical details of twigs and branches will fulfill the elephantine form differently from bush to bush, but the overall outward results are alike.
+ - If there is a case for mental events and mental states, it must be that the positing of them, like the positing of molecules, hassome indirect systematic efficacy in the development of theory.
+ - Unscientific man is beset by a deplorable desire to have been right. The scientist is distinguished by a desire to be right.
+ - Our argument is not flatly circular, but something like it. It has the form, figuratively speaking, of a closed curve in space.
+ - Theory may be deliberate, as in a chapter on chemistry, or it may be second nature, as in the immemorial doctrine of ordinary enduring middle-sized physical objects.
+ - Students of the heavens are separable into astronomers and astrologers as readily as the minor domestic ruminants into sheep and goats, but the separation of philosophers into sages and cranks seems to be more sensitive to frames of reference.
+ - Our talk of external things, our very notion of things, is just a conceptual apparatus that helps us to foresee and control the triggerings of our sensory receptors in the light of previous triggering of our sensory receptors.
+ - Uncritical semantics is the myth of a museum in which the exhibits are meanings and the words are labels. To switch languages is to change the labels.
+ - Some may find comfort in reflecting that the distinction between an eliminative and an explicative physicalism is unreal.
+ - The scientist is indistinguishable from the common man in his sense of evidence, except that the scientist is more careful.
+ - I have been accused of denying consciousness but I am not conscious of having done so.
+ - Treating ‘water’ as a name of a single scattered object is not intended to enable us to dispense with general terms and plurality of reference. Scatter is in fact an inconsequential detail.
+ - How are we to adjudicate among rival ontologies? Certainly the answer is not provided by the semantical formula “To be is to be the value of a variable”; this formula serves rather, conversely, in testing the conformity of a given remark or doctrine to a prior ontological standard.
+ - An indirect quotation we can usually expect to rate only as better or worse, more or less faithful, and we cannot even hope for astrict standard of more and less; what is involved is evaluation, relative to special purposes, of an essentially dramatic act.
+ - Physics investigates the essential nature of the world, and biology describes a local bump. Psychology, human psychology, describes a bump on the bump.
+ - At root what is needed for scientific inquiry is just receptivity to data, skill in reasoning, and yearning for truth. Admittedly, ingenuity can help too.
+ - A curious thing about the ontological problem is its simplicity. It can be put into three Anglo-Saxon monosyllables: ‘What is there?’ It can be answered, moreover, in a word – ‘Everything’ – and everyone will accept this answer as true.
+ - Life is agid, life is fulgid. Life is what the least of us make most of us feel the least of us make the most of. Life is a burgeoning, a quickening of the dim primordial urge in the murky wastes of time.
+
+47 quotes

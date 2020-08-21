@@ -1,0 +1,55 @@
+ - I deeply regret using such a poor choice of words.
+ - They say you can never step in the same river twice. New water flows in, replacing the old and continually renewing the river. The Senate is the same.
+ - If you’re over age 50, the internet is something you’re just learning about.
+ - Simply put, music can heal people.
+ - The cold war was the longest war in United States history. Because of the nuclear capabilities of our enemy it was the most dangerous conflict our country ever faced. Those that won this war did so in obscurity. Those that gave their lives in the cold war have never been properly honored.
+ - So people have been hurting and I understand that. And it doesn’t give them comfort or solace for me to tell them, you know, but for me, we would be in a worldwide depression.
+ - Legislation is the art of compromise.
+ - I take the threat of terrorism very seriously, and no one is more committed to hunting down terrorists and bringing them to justice, wherever they live, than I am.
+ - Seniors love getting junk mail. It’s sometimes their only way of communicating or feeling like they’re part of the real world.
+ - The American people do not like privatization. They are afraid of the debt the president’s willing to do. And they don’t like benefit cuts. And everyone here should understand all 45 Senate Democrats are united. We are not going to let this happen.
+ - For senators to complain that they didn’t know this was happening, we had many, many meetings that have been both classified and unclassified that members have been invited to.
+ - American families cannot compete with billionaires. Our involvement in government should not be dependent on our bank account balances.
+ - You know with a bully you cannot let them slap you around, because they slap you around today, they slap you five or six times tomorrow. We are not going to be bullied.
+ - Coal makes us sick. Oil makes us sick. It’s global warming. It’s ruining our country. It’s ruining our world.
+ - There’s a lot we can do to improve American’s retirement security, but it’s wrong to replace the guaranteed benefit that Americans have earned with a guaranteed benefit cut of forty percent or more.
+ - They’ve lost their minds.
+ - This 21st century economy holds great promise for our people. But unless we give all Americans the skills they need to succeed, countries like India and China will take good-paying jobs that should be ours.
+ - They’re nothing more than domestic terrorists.
+ - Now that our troops are mired in a dangerous effort to defeat the insurgency and are also trying to help rebuild the country, Americans of all political persuasions simply want the United States to succeed and our troops to be as safe as possible.
+ - After I became an attorney, the mother of two girls I’d known in high school came to see me. She’d endured years of heinous abuse from her husband that nearly destroyed her. I’d never suspected a thing.
+ - My Republican friends are lamenting reconciliation. But I would recommend for them to go back and look at history.
+ - Now remember, we’ve already done more than a billion dollars worth of cuts. We’ve already done that. So we need to get some credit for that.
+ - Enforcement alone does not work. Unless we address the gap between our immigration laws and reality, illegal immigration will not stop and the situation on the border will continue to be chaotic.
+ - This nation has been through hard times. But those hard times have hardened our resolve. Im ready to do the difficult work ahead. But I want to do that work with Barack Obama, and not a Tea Party ideologue. We can move America forward, but we can only do it together.
+ - There is no entity in the world that controls our lives more than the Federal Reserve System.
+ - There is no more important task in Washington than cleaning up the culture of corruption. Yet the president – whose White House has become the cradle of Republican corruption – is not taking responsibility for the costs of that corruption.
+ - The man’s father is a wonderful human being. I think this guy is a loser.
+ - We all know if we change the bill, it’s gone.
+ - The Supreme Court would benefit from the addition of a justice who has real experience as a practicing lawyer. The current justices have all been chosen from the lower federal courts. A nominee with relevant non-judicial experience would bring a different and useful perspective to the court.
+ - I am convinced that I do not want to give up more power to the White House, whether it’s George Bush or Barack Obama. And I’m going to fight as hard as I can against President Obama on these earmarks and my Republican colleagues who hate to vote for them, but love to get them.
+ - We’re going to hear an earful, but it’s going to be an earful of wonderment and happiness that people waited for for a long time.
+ - Everybody else, including the rich people, are willing to pay more. They want to pay more.
+ - My staff tells me not to say this, but I’m going to say it anyway. In the summer because of the heat and high humidity, you could literally smell the tourists coming into the Capitol. It may be descriptive but it’s true.
+ - The National Endowment of the Humanities is the reason we have in northern Nevada every January a cowboy poetry festival. Had that program not been around, the tens of thousands of people who come there every year would not exist.
+ - We in the Senate refer to Sen. Gillibrand as the hottest member.
+ - So the next thing I assume I’ll be hearing from Republicans, they want to change rules some way, as they do on the House when you get a problem with ethics, they just change the rules.
+ - Men, when they’re out of work, tend to become abusive.
+ - Some said he couldn’t take on the insurance companies that were ripping us off. But President Obama made the tough and right call to save lives, save Medicare and ensure no one goes broke just because they get sick.
+ - We found ourselves in a hole that I didn’t dig, but I have dug, dug and dug to try to get out of that hole.
+ - The president is now having to deal with a Congress. He’s never had to do that before. The president in the past, he has just done whatever he wanted. He had a big rubberstamp here up on Capitol Hill, whatever he wanted, they stamped OK. That’s not the way it is now.
+ - I don’t know how anyone of Hispanic heritage could be a Republican.
+ - I think it would be interesting to know about the Federal Reserve. I think we should audit the Federal Reserve. It’s taxpayers money that is being used there.
+ - I was born and raised in the high desert of Nevada in a tiny town called Searchlight. My dad was a hard rock miner. My mom took in wash. I grew up around people of strong values – even if they rarely talked about them.
+ - Cut, Cap and Balance is worst legislation in history.
+ - It’s time that America’s government lived by the same values as America’s families. It’s time we invested in America’s future and made sure our people have the skills to compete and thrive in a 21st century economy. That’s what Democrats believe.
+ - This war is lost and the surge is not accomplishing anything.
+ - Social Security is not in crisis. It’s a crisis the president’s created, period.
+ - We can move America forward with a strong middle class. We can move America forward with a strong Democratic majority in the Senate. And together we can move America forward with Barack Obama in the White House.
+ - The modern day anarchists known as the Tea Party, they believe in no government.
+ - As far as I’m concerned there shouldn’t be a single boot on the ground. There’s enough American blood in Iraq that lasts forever.
+ - People in Nevada know me from the street to the ring to the Senate chambers. I’ve never had to prove my manhood to anyone.
+ - We focused attention on what some believe are the flaws in the process leading to Senate consideration of the bill and the flaws of the bill itself.
+ - Some said he shouldn’t save Detroit. But President Obama made the tough and right call to save more than a million American jobs in an important, iconic industry.
+
+53 quotes

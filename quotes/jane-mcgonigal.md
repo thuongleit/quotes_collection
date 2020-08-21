@@ -1,0 +1,53 @@
+ - Reality is broken. Game designers can fix it.
+ - Gamers always believe that an epic win is possible and that it’s always worth trying and trying now.
+ - Game design isn’t just a technological craft. It’s a twenty-first-century way of thinking and leading.
+ - Game developers know that people have more fun when they’re in large groups. They feel more fired up when the challenges are more epic.
+ - Compared with games, reality is disconnected.
+ - I want to see a game designer nominated for a Nobel Prize.
+ - Scientists have demonstrated that dramatic, positive changes can occur in our lives as a direct result of facing an extreme challenge – whether it’s coping with a serious illness, daring to quit smoking, or dealing with depression. Researchers call this ‘post-traumatic growth.’
+ - Games are unnecessary obstacles we volunteer to tackle.
+ - Games that make you feel good about yourself are good games to be playing.
+ - Clinically speaking, depression is a pessimistic sense of your own capabilities, and despondent lack of energy.
+ - Urgent optimism is the desire to act immediately to tackle an obstacle, combined with the belief that we have a reasonable hope of success.
+ - I’m not a fan of simulations. Where, ‘Oh, we’ll go play a simulation of world peace and figure out how to make peace’ and then somehow magically that will get translated into the real world. No, that’s not the kind of games that I make.
+ - If you make it a game, gamers will play it no matter what your motivation is in making it.
+ - There are people who are very dismissive of games and gamers.
+ - When we play a game, we tackle tough challenges with more creativity, more determination, more optimism, and we’re more likely to reach out to others for help.
+ - Every game we play activates our brain, and it’s the same brain we have in real life as we have in the game.
+ - A traumatic event doesn’t doom us to suffer indefinitely. Instead, we can use it as a springboard to unleash our best qualities and lead happier lives.
+ - The idea of the ‘lone gamer’ is really not true anymore. Up to 65 percent of gaming now is social, played either online or in the same room with people we know in real life.
+ - The more we consume, acquire, and elevate our status, the harder it is to stay happy.
+ - You can’t play the same game every day for years. New games are key.
+ - Games are work. There are economies popping up in games now because people value them.
+ - We can boost our immune systems by strengthening our social networks and decreasing stress.
+ - We’ve been playing games since humanity had civilization – there is something primal about our desire and our ability to play games. It’s so deep-seated that it can bypass latter-day cultural norms and biases.
+ - When you strip away the genre differences and the technological complexities, all games share four defining traits: a goal, rules, a feedback system, and voluntary participation.
+ - It seems like what happens when we play games is that we go into a psychological state called eustress, or positive stress. It’s basically the same as negative stress in the sense that we get our adrenaline up, you know, our breathing rate quickens, our pulse quickens.
+ - I see a future in which games once again are explicitly designed to improve quality of life, to prevent suffering, and to create real, widespread happiness.
+ - You need to develop mental habits that allow you to activate the same brain patterns we activate during gameplay.
+ - Every game designer should make one explicitly world-changing game. Lawyers do pro bono work, why can’t we?
+ - Things like depression and obesity are global challenges.
+ - What’s really amazing about games is how they change our emotional response to challenges.
+ - I worry a lot about people using games just for marketing, to get people to buy more stuff, which I think would be the worst possible use.
+ - When we’re in game worlds, we become the best version of ourselves, the most likely to help at a moment’s notice, the most likely to stick with a problem as long at it takes, to get up after failure and try again.
+ - When we know our strengths, we’re more likely to use them.
+ - When we play games, our brains respond differently to stress and obstacles. We’re better able to control our attention and ignore distractions.
+ - My mom is a public school teacher and works with third grade students.
+ - There is no problem that doesn’t have some underlying need for more optimism, stamina, resilience and collaboration. And games are, I believe, the best platform we have for providing that.
+ - Research shows that when we’re under stress or facing a major obstacle, we tend to focus on our weaknesses and what we’re afraid of.
+ - My goal for the next decade is to try to make it as easy to save the world in real life as it is to save the world in online games.
+ - Over time, the games we play can change how we think and what we’re capable of. And it’s easy to maximize the benefits so the changes are positive.
+ - I’ve been running since high school. My boyfriend was on the track team, and I’d run with him.
+ - We have to accept as a society that games are not escapist. They really do change us.
+ - I didn’t accomplish what I set out to do, but I realized I had set out to do the wrong things.
+ - It may have once been true that computer games encouraged us to interact more with machines than with each other. But if you still think of gamers as loners, then you’re not playing games.
+ - The single biggest misconception about games is that they’re an escapist waste of time.
+ - Games are providing rewards that reality is not.
+ - Any time I consider a new project, I ask myself, is this pushing the state of gaming toward Nobel Prizes? If it’s not, then it’s not doing anything important enough to spend my time.
+ - A dramatic decrease in oil availability is not at all far-fetched.
+ - Avatars are a way to express our true selves, our most heroic, idealized version of who we might become.
+ - Growing up, I was prone to anxiety.
+ - There is so much more knowledge than most people realize about how to maximize the benefits of play and minimize the potential harms.
+ - My favorite part of running is the thinking time.
+
+51 quotes

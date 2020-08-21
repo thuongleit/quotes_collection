@@ -1,0 +1,88 @@
+ - We’re all stories, in the end.
+ - Demons run when a good man goes to war Night will fall and drown the sun When a good man goes to war Friendship dies and true love lies Night will fall and the dark will rise When a good man goes to war Demons run, but count the cost The battle’s won, but the child is lost.
+ - I’ll be a story in your head. But that’s OK. We’re all stories, in the end. Just make it a good one, eh? Because it was, you know; it was the best.
+ - All lives end. All hearts are broken. Caring is not an advantage.
+ - Demons run when a good man goes to war.
+ - You want weapons? We’re in a library! Books! The best weapons in the world!
+ - Brainy’s the new sexy.
+ - The universe is big, its vast and complicated, and ridiculous. And sometimes, very rarely, impossible things just happen and we call them miracles. And that’s the theory. Nine hundred years, never seen one yet, but this would do me.
+ - There’s something that doesn’t make sense. Let’s go and poke it with a stick.
+ - I always rip out the last page of a book, then it doesn’t have to end. I hate endings.
+ - You don’t just give up. You don’t just let things happen. You make a stand! You say no! You have the guts to do what’s right, even when everyone else just runs away.
+ - The Doctor: Don’t blink. Don’t even blink. Blink and you’re dead. Don’t turn your back. Don’t look away. And don’t blink.
+ - Madness is just what a genius looks like to a tiny mind.
+ - You should always waste time when you don’t have any. Time is not the boss of you. Rule 408.
+ - An awful lot of storytelling isn’t really about making people understand – it’s about making people care.
+ - Never knowingly be serious. Rule 27.
+ - The Doctor: Doctor Song, you’ve got that face on again. River: What face? The Doctor: The “He’s hot when he’s clever” face. River: This is my normal face. The Doctor: Yes it is. River: Oh, shut up. The Doctor: Not a chance.
+ - Reinette: One may tolerate a world of demons for the sake of an angel.
+ - Never run when you’re scared. Rule 7.
+ - Rule 1: The Doctor lies.
+ - It’s a TV show. Only the emotional damage is real.
+ - Don’t play games with me! You just killed someone I like, that is not a safe place to stand! I’m the Doctor, and you’re in the biggest library in the Universe. Look me up.
+ - Everybody knows that everybody dies. But not every day. Not today. Some days are special. Some days are so, so blessed. Some days, nobody dies at all. Now and then, every once in a very long while, every day in a million days, when the wind stands fair and the Doctor comes to call, everybody lives.
+ - Never ignore a coincidence. Unless you’re busy, in which case, always ignore a coincidence.
+ - Fascinatingly confident, rude people are great.
+ - Time travel is always more magical somehow when you go into the past. Traveling into the future is something you do, every day. You’re just not going to get very far. So, I rather like the past travel.
+ - The Doctor: Just had a fall. All the way down there, right to the library. Heck of a climb back up. Amelia: You’re soaking wet. The Doctor: I was in the swimming pool. Amelia: You said you were in the library. The Doctor: So was the swimming pool.
+ - Kathy Nightingale: What’s good about sad? Sally Sparrow: It’s happy for deep people.
+ - Young Reinette: Monsieur, be careful! The Doctor: It’s just a nightmare, Reinette, don’t worry, everyone has nightmares. Even monsters under the bed have nightmares! Young Reinette: What do monsters have nightmares about? The Doctor: Me!
+ - Always take a banana to a party.
+ - Witty and mean is easy – but fond and funny is hard.
+ - River Song: Right then. I have questions, but number one is this – what in the name of sanity have you got on your head? The Doctor: It’s a fez. I wear a fez now. Fezzes are cool.
+ - Between the marriages, I shagged my way round television studios like a mechanical digger.
+ - It’s a fez. I wear a fez now. Fezes are cool.
+ - There’s something really cool about scaring children. Traumatize a generation, that’s what it’s all about.
+ - You have to take your own bold approach, and if you do you will be rewarded with success. Or calamitous failure. That can happen too.
+ - Though the man above might say hello, expect no love from the beast below.
+ - See the bowtie? I wear it and I don’t care. That’s why it’s cool.
+ - Bow ties are cool.
+ - I don’t want to think that the stories are finite; I want to feel that they can go on forever.
+ - What’s the point of being a grown-up if you don’t get to be immature?
+ - To me, a ‘brand’ sounds evil.
+ - I don’t think, generally speaking, people become writers because they were the really good, really cool, attractive kid in class. I’ll be honest. This is our revenge for people who were much better looking and more popular than us. I was a bit like that, I suppose.
+ - Well we’ve moved through the funfair a bit – we’ve done the rollercoaster, now we’re on the ghost train.
+ - So is this how it works Doctor? You never interfere with the affairs of other peoples or planets, unless there are children crying?
+ - If it’s time to go, remember what you’re leaving. Remember the best.
+ - You don’t want to take over the universe. You wouldn’t know what to do with it beyond shout at it.
+ - It’s been a long time since Sherlock Holmes jumped off that roof – it’s time to reveal the truth about what happened between him and the pavement.
+ - River Song? Amy Pond? Hardly weak women. It’s the exact opposite. You could accuse me of having a fetish for powerful, sexy women who like cheating people. That would be fair.
+ - Keep this straight in your head: we are not fighting an alien invasion we’re leading a revolution. And today the battle begins.
+ - Do you know how you make someone into a Dalek? Subtract Love, add Anger.
+ - You can be as beautiful and charming as you’d like, but if you’re not terrific at acting, it will mean nothing on the screen.
+ - I was called a misogynist because I was reducing women to mothers. ‘Reducing women to mothers’ – now there is possibly the most anti-women statement I’ve heard.
+ - I find it’s bizarre that science fiction is the one branch of television to push the idea of strong female characters. And I only call it bizarre because strong women aren’t fiction.
+ - I like that Helen Mirren has been saying the next doctor should be a woman. I would like to go on record and say that the queen should be played by a man.
+ - The Doctor: I’ve seen bigger. Clara: Really? The Doctor: Are you joking? It’s massive!
+ - If you don’t expect to like someone and then you do, that’s an incredibly exciting moment.
+ - When you’re surrounded by friends and exes, there’s a whole lot of stuff that starts crawling out. But however serious and traumatic those experiences may be to the participant, to the onlooker they’re hilarious.
+ - You’ll go out of business if you think people are stupid.
+ - I absolutely love television, and I don’t mean to be vulgar, but as I keep having to explain to people from the movie industry, I get more power and more money doing television, so why on earth would I do a film?
+ - I can say with pride verging on smugness that I’ve got two very successful shows that assume their audience is very smart.
+ - The way you get your script to the right people is that you put it in an envelope. It’s easy. The difficult bit is writing something that is so good people will take a punt on a brand new writer.
+ - Nothing can ever be a rule in drama, because then you’re saying certain things won’t ever happen, and that would be very boring.
+ - I don’t know. I can’t tell the future I just work there.
+ - I’d forgotten not all victories are about saving the universe.
+ - When writing comedy, you have to have the confidence to believe that there is only one type of relationship in the world, and we are all having it, that all men behave in the same way and so do all women.
+ - If you take most men aside when their wives are pregnant, most men are pretty frightened and worried and faintly disgusted by the whole experience.
+ - My priorities are where they should be, which is making really great, really exciting television.
+ - I think training in comedy, as it were, a history writing comedy, is a powerful tool for anyone.
+ - I think of myself as a writer with a sense of humour rather than a comedy writer. Happy to tell a story with lots of jokes in it – I wouldn’t know how to do jokes without the story.
+ - Writing for adults often means just increasing the swearing – but find an alternative to swearing and you’ve probably got a better line.
+ - Peter Capaldi and Jenna Coleman are back in Cardiff, back in the box, and back in action-for one of our scariest adventures yet!
+ - I always tend to favor the newer idea.
+ - The difference between a beautifully made failure and a beautifully made hit is who you’ve got playing the leads.
+ - I hope I won’t become hated by geeks everywhere, but I don’t really know comic books all that well.
+ - Being the only writer on a successful show is very rewarding.
+ - People don’t really have a relationship with great writing or great production or great art direction or great direction. They just sort of admire it.
+ - The trouble with a series as it gets older is it can feel like a tradition, and tradition is the enemy of suspense, and it’s the enemy of comedy. It’s the enemy of everything, really. So you have to shake it up.
+ - As we all know, it is the proper duty of every British subject to come to the aid of the TARDIS.
+ - Amy: I had something I wanted to tell him. Stuff always gets in the way. Canton: Stuff does that.
+ - Cinema is so slow and boring compared to television.
+ - My problem is that the audience is more fiction-literate than ever. In Shakespeare’s day, you probably expected to see a play once or twice in your life; today you experience four or five different kinds of fiction every day. So staying ahead of the audience is impossible.
+ - Like most writers, I write about what has happened to me as that involves the minimum amount of research.
+ - I can’t see what’s wrong about assuming intelligence in your audience and what’s bad news about being rewarded for assuming that.
+ - I never go online. The Internet stuff is bonkers. You must not look at it.
+ - Madame Kovarian: The anger of a good man is not a problem. Good men have too many rules. The Doctor: Good men don’t need rules. Today is not the day to find out why I have so many.
+
+86 quotes

@@ -1,0 +1,24 @@
+ - The smile is the dance of the face – the dance is the smile of the limbs.
+ - You can’t dance until you’ve learnt steps, the things your feet can do.
+ - Classical ballet will never die.
+ - Somebody must always be doing something new, or life would get very dull.
+ - No no, we ALL teach each other, whether it’s dancing, whether it’s singing, whether it’s talking, we all listen to each other. That’s progress.
+ - Also, if you have an accident, you can’t start to dance again at the top, you’re too weak; you start with the easy things – the way you did them when you were young, and come up up up, the way you did then.
+ - There’s nothing in the world that isn’t good, bad, and indifferent.
+ - God gave us all exactly the same fingers, arms, legs, and feet, but in our different countries we divided them all a little differently as we feel it, do you understand?
+ - There would never have been a British Ballet without Diaghilev. He had a wonderful influence.
+ - You cannot create genius. All you can do is nurture it.
+ - Nothing is done easily, first have the thing, then the thing has a success, then all sorts of difficulties arise through the success.
+ - It’s either not good enough and dies altogether, or it develops.
+ - Hardly any generation wants to take the whole of the last generation, it just wants to take its best bits.
+ - We are developing the other parts, and we can’t give quite all our attention to the upper part, but soon the lower parts will be developed, and the upper part and the lower part will become partners, that will be wonderful.
+ - The best way to study is to go to the Cecchetti method for about a year and draw onto all the highest points and then put that into the general method.
+ - Diaghilev was the first to notice good character dancers and that sort of thing.
+ - Nearly everything in life goes in threes and fours.
+ - You can’t stop what comes into a country, you can be influenced, but you can’t stop it, you shouldn’t, because it makes all the others interesting, we all get muddled up together, and produce something that belongs to everyone.
+ - All the children in the school should learn the steps of everything, before they learn the thing, then they know which step they’re doing better, because your voice is in certain steps and has to do most of the things that have been composed in those steps.
+ - As time goes on, all schools only get left alive if they have found something special themselves.
+ - And then you have the classical ballerinas, they’re like sopranos. Applied to the dance.
+ - First of all, the most important, that is to learn everything good that has survived from other times, and carefully to watch the bad – and throw it out.
+
+22 quotes

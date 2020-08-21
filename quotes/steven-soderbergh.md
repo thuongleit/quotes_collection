@@ -1,0 +1,120 @@
+ - I’m a grinder. I’ll beat you because I will not sleep.
+ - A Movie That Costs Only $1.6 Million Doesn’t Have to Be a Cultural Event to Turn a Profit.
+ - Never had a cup of coffee in my life. Dr Pepper is my caffeine delivery system of choice.
+ - You should never assume anything coming from a critical standpoint. You should go into everything assuming you’re going to get crushed.
+ - When things go right it’s hard to figure out why, but when things go wrong it’s really easy.
+ - If you’re sitting around thinking what other people think about your work, you’ll just become paralysed.
+ - The great thing about the business is how Darwinian it is. We have to swim or die – if you are found wanting over a period of time, you’ve either got to change what you’re doing or find something else to do.
+ - When a film like Chris Nolan’s Memento cannot get picked up, to me independent film is over. It’s dead.
+ - All human interaction, you can break it down to incentives. All relationships, at some level, are transactional. They’re fascinated with incentives.
+ - Ego is something that everybody, creative especially, has to grapple with. You need enough ego to keep going but not so much ego that you’re deaf or blind, that you’re making a mistake and can’t fix the course.
+ - If you’re not smart enough to know what Fidel meant during the Cuban revolution, that – when they were on the Granma – Fidel was already a rock star in Cuba, and how important that was to the indigenous population, then you’re not paying attention.
+ - There are three major social issues that this country is struggling with: education, poverty, and drugs. Two of them we talk about, and one of them we don’t.
+ - I’m not a snob. If I feel like there’s a star that’s the best person for that role, then that’s who I get.
+ - Everything had been done long before I started making movies. I mean, there’s nothing that Godard hasn’t already done. You can’t do a single thing that Godard hasn’t already thought of. And so you struggle to do something that is not predictable.
+ - Making a film that’s supposed to be fun to watch is really hard – that’s the weird irony of it.
+ - People like Chris Nolan are shooting isolated sequences in IMAX. Those cameras are the size of a Volkswagen.
+ - Truth and facts have to trump partisanship. There has to be something that’s true regardless of what your angle is on it.
+ - Traffic is about drugs. As detailed a portrait as I can muster about what is happening in the drug world, from top to bottom, from policy to how things move on the street.
+ - I like a lot of different kinds of movies, I like a lot of different kinds of paintings.
+ - In the land of ideas, you are always renting.
+ - The key is, if youre not monkeying around with the script, then everything usually goes pretty well.
+ - You can’t change who you are, so I think that the only thing you can do is just never talk to people about stuff and then hope that maybe does something.
+ - There is sadness of when you’re watching someone enjoy something that you think is substandard. The ineffable sadness when someone is happy and something is not as good as it should be.
+ - You’re supposed to expand your mind to fit the art, you’re not supposed to chop the art down to fit your mind.
+ - Never done an explosion, but I have had explosive diarrhea, and that was very, very real. Good thing I have my trailer.
+ - I guess I just look at talent as a very subjective thing. I mean, if you never tried playing an oboe, how do you know you’re not the most talented oboe player ever? The point is that if you don’t love it, then it doesn’t matter.
+ - I’m not precious about anything. The effort it took to get something means nothing to me in post. It means nothing to the audience. I’ll chop limbs off. I’ll put an arm where a leg should be. I’ll do anything.
+ - There’s definitely a way of thinking and a way of being in the South that has its advantages and disadvantages.
+ - People are sort of numb to watching violence, but sexual activity is still as strong as it ever was in terms of generating response.
+ - The brief flashbacks are sun-kissed, summery and optimistic. It’s the only place in the movie you will see red, yellow, orange, or any vibrant colors.
+ - I’m in the process of working out an arrangement to make some very, very, very small films in the midst of all these films and maybe that will help. But you get tired of talking. You just want to do it.
+ - I suppose I could try to be some avant-garde artist if I wanted to, but that doesn’t interest me as much.
+ - The ought to be a worldwide cultural taskforce that just stops you when you have ideas like combining The Red Desert with an armored car heist movie.
+ - I’m not going to spend two years of my life on something that I’m not excited about.
+ - Every time you make something that somebody likes, your impulse is to remind them that if you hadn’t made some of these other things that they hated, you wouldn’t have been able to make the thing that they liked.
+ - The traditional models for success are just also disappearing.
+ - Some filmmakers, you know, have their style and then they kind of go looking for the movie. I’m not like that. I don’t have one style that I want to take from movie to movie.
+ - Any time I think out loud, ‘I can’t believe this is my job,’ and remember I am a very lucky duck. Whether marshalling hundreds of zombies, doing crazy stunts or shooting big music numbers, I just feel fortunate to have made my passion my vocation.
+ - We’re all standing on the shoulders of what other people have done. But you’re supposed to take that and add your own sauce. It can be intimidating, believe me.
+ - I guess I didn’t feel confident enough to be searching in a big public way. I was very content at the time to toil in obscurity on things that I thought might point me in certain directions or teach me certain things – not knowing what that would be.
+ - I make every movie like it’s the last one. “If this was the last movie, what decision would I make?” That’s how I make my decisions.
+ - It’s pretty clear to me that working as a director for hire agrees with me. I like it. The films that have come out of that, I personally like better than the ones that didn’t.
+ - Surprisingly, I don’t throw away that much. I don’t move forward with a lot of things unless they’re going somewhere. You also have to remember that when you’re working with other artists, you have to be really careful about how you deal with that stuff.
+ - I was thinking that people have to believe you’re crazy in order to take you seriously as an artist. If you’re wandering the streets, talking in gibberish, nobody ever asks you to change anything about your art because there’s no context for people to look at what you do.
+ - Once I had a potentially heart attack-inducing eight double espressos in one day. I think my assistant secretly swaps my coffees for decaf as she doesn’t want me to die of caffeine overdose.
+ - Men tend to define themselves by what they do, and so if you’re dealing with a character who’s trying to figure that out, or multiple characters, then there’s something there for guys, too.
+ - To me the director’s job is to leave it in better shape than you found it, literally.
+ - I don’t consider myself to be particularly gifted in the way that other filmmakers are gifted.
+ - I actually didn’t find out about a lot of music until I was older. Some people have been listening to the Beatles their whole lives; I didn’t discover them until I was 18 years old.
+ - I’m sure some people will say, ‘Why do this?’ And my response is, ‘Why wouldn’t you?’ The film business in general is using a model that is outdated and, worse than that, inefficient.
+ - If you’re not flying people around on wires, and you’re only allowing them to do things that people can really do, it can’t go on for very long, because eventually somebody gets the drop on the other person and then it’s over.
+ - That’s why my attitude, even on my larger-scale movies, is to make them cheap. The less these things cost, the better for everybody.
+ - I grew up mostly in the South, and there’s definitely something about the South that’s different from the North. When people ask me where I’m from, I say Louisiana. I spent more years there than anywhere else.
+ - I was lucky that I was getting exposed to a lot of different kinds of films, and I was liking them all. So it seemed logical to me that you could – as in the style of the studio directors of the 30s and 40s – jump from one genre to the next, with the same satisfaction.
+ - We all get outraged by things and there are things that make us angry and maybe for a while we get angry enough to actually go do something about it.
+ - I think that music is a very difficult art form in which to be avant-garde. When we sit down to listen to a piece of music, I think our implicit hope is that we’re going to find it beautiful, or at least emotional, on some level.
+ - I feel I need to really think about whether there’s a way to use what skill I have to address things that outrage me, like the 13 year old girl getting stoned to death. Because I don’t think making a movie is going to help that, or change that.
+ - It’s a weird thing to say, but it would appear to me axiomatic that if you understood fully what I was doing and appreciated it, you would like it.
+ - A movie is something you see, cinema is something that’s made.
+ - I want to form a political party that’s based entirely on what music people listen to. To me, it’s a much better barometer of what they think and feel than their political stance.
+ - My father, who was the one who really got me hooked on movies, liked all kinds of films, and I saw all kinds of films at a very young age.
+ - Another thing that really excites me: I’d like to do multiple versions of the same film.
+ - I think I’m good at amplifying an actor’s strengths, and minimizing their weaknesses. And they all have strengths and weaknesses.
+ - If you’re going to make a movie for ten thousand you can talk everybody into doing it for free. You could make a really good-looking movie right for ten grand, if you have an idea.
+ - Anytime you’ve got something that can take you into the political realm then you’ve opened up the conversation a lot.
+ - Nobody’s talking about movies the way they’re talking about their favorite TV shows.
+ - I find myself in situations a lot where I have to say to someone, “This can be better,” and it’s hard to say that.
+ - In Full Frontal and K Street, I learned to take advantage of the mobility that digital provides.
+ - I have no shame in making music that maybe, if you listen to it long enough, you’ll realize you’ve heard this or that part of it before. I’m still very excited by an amazingly written song, so that’s really the thing that I work on when I make records with people.
+ - I think there are only two times that I’ve ever ended up paying somebody their quote. Like what they actually were worth in the marketplace.
+ - My first three movies, I didn’t start editing until we were finished shooting. That’s unthinkable to me now.
+ - What are the stories you want people to tell about you?
+ - There are people who are originals and the stuff they make really is new. It isn’t based on anything else. But I’ve decided I’m not that-I was never that. My abilities are to synthesize a wide range of references and ideas into something that feels relatively unified and coherent.
+ - I know why we can’t have a frank discussion with our policymakers – if you’re in the government or in law enforcement you cannot acknowledge that drugs are anything but inherently evil and morally wrong.
+ - Whenever you experiment with something, it’s very easy to take the emotion out of it. And going back and forth between wanting to be respected artistically and wanting to move people is its own challenge.
+ - Everything is the director’s fault – you can quote me on that. There are no excuses.
+ - I don’t have any kind of ideology that precludes me from moving in one direction or another. I just want creative autonomy and I want at least an opportunity that it’s going to be seen.
+ - But my sense in talking to people when I travel is that the film business is not that dissimilar from a lot of other businesses.
+ - I tend to be drawn more to people than pure story ideas.
+ - There’s a technical reason why I think that frame rate is weird and it has to with your brain’s ability to scan beyond a certain rate. The point is I find it looks weird.
+ - Maybe I’ll paint, do photography, just something else. I can see that.
+ - I’m still very affected and moved by their music – maybe in a way that’s different from someone who grew up around it.
+ - I’m always a little unnerved when I see a show that’s set in the past that implies in any way that things were nicer then.
+ - When I look around the world and think why is everything working or not working, it’s because it’s entrenched ideology. You can’t solve a problem if you’re sitting down with people who say, “All these ideas are off the table because of what I believe.”
+ - I always have a plan, but then I’m always ready to throw the plan out, and everyone’s ready to make a radical left turn if necessary.
+ - Lying is like alcoholism. You are always recovering.
+ - I had more fun making Traffic than either of the Ocean’s films.
+ - My working life is me doing what I want to do. This is that. I’ve made movies that people don’t go to see.
+ - I’m a big believer that if there’s something you really want to do, don’t walk away because of the deal.
+ - I recently decided that I’m not an originator. I’m a synthesist.
+ - I’m probably more character-driven than plot-driven. It’s rare for me to attach myself to an idea for a story.
+ - Your take on things is what is either going to make you somebody people talk about or no.
+ - In nature, if a cell gets too big, it divides. You can’t come up with a set of rules that’s going to work for 350 million people. You’re just not.
+ - Usually I’m thinking about the palette. I’m thinking about the color for the most part, then I’ll start thinking about composition and movement.
+ - I think the feeling that we’re going to work together again usually starts to come up before the first project’s even done. The Black Keys and I have already talked about starting on something new.
+ - I guess why the Ocean’s films are hard for me is because on the one hand you have to make sure the performances are there, but on the other hand it’s a film that demands, to my mind, a very layered and complex visual scheme. That takes a lot of time to figure out.
+ - I have a friend whose theory is that you’re from wherever you went to high school. I think that’s mostly true.
+ - A lot of people go to the movies wanting the movie to be about feelings, and it’s really not about that. Or rather it’s about feelings in the abstract.
+ - If you’re a painter and you want people to know who you are and recognize your work, you’ve got to build some long-term value.
+ - I just produced Criminal, this remake of Nine Queens, and one of the things that appealed to me about Nine Queens is that it was a performance piece, and that’s the most fun.
+ - I try to use other songs or bands as reference points – it seems like the easiest way to get across what are really differences of taste or opinion. If you know what kind of music somebody loves, then you can kind of figure out why they do what they do.
+ - Castro, without question, is one of the smartest politicians that’s ever walked.
+ - When we look at what’s going on in the world and we see the immense level of conflict that seems to always be happening – you can always trace it back to competing narratives.
+ - I come from a generation that was surrounded by popular music, but I don’t know if anybody’s ever going to move the ball forward as far and as fast as the Beatles did.
+ - I stopped reading reviews about my own movies. I read stuff about other people’s movies.
+ - It’s become absolutely horrible the way the people with the money decide they can fart in the kitchen.
+ - If you think that because you’re Che, when you go into Bolivia, when people find out it’s you, that they’re going to have the same kind of reaction that the Cubans had to Castro, then you’re high.
+ - A real explosion is not only much more fun to shoot, it also helps the actors and creates an energy on set and ultimately in the scene.
+ - I never leave the writer behind, because you rewrite the movie in post, or at least I do. I always do, and I feel like anybody who doesn’t at least explore that possibility is short-changing themselves. Editing is the most fun and most exciting part of the process.
+ - I like to make all kinds of movies. I’d do ‘Ocean’s Thirteen’ with the right script.
+ - Warner Bros. has talked about going out with low-cost DVDs simultaneously in China because piracy is so huge there. It will be a while before bigger movies go out in all formats; in five years, everything will.
+ - You got to deal with reviews the same way you deal with your views, which I a long time ago stopped reading because the point is if you believe the good ones you have to believe the bad ones. It’s kind of all or nothing.
+ - I look at other filmmakers and see skills in them that I wish I had but I know that I don’t. I feel like I have to work really hard to keep myself afloat, doing what I do. But I find it pleasurable.
+ - Reality shows are all the rage on TV at the moment, but thats not reality, its just another aesthetic form of fiction.
+ - I’m obviously really opinionated, but as a producer, you don’t necessarily want the person you’re working with to try to impress you – you want them to just be themselves.
+ - There’s a difference between failures and things that are bad.
+ - I can make a movie about Lee Harvey Oswald and make you feel what he feels and make you understand why he believes what he believes. That doesn’t mean I think you should go out and shoot JFK.
+ - You can’t get good at anything unless you do it day in and day out, over and over.
+
+118 quotes

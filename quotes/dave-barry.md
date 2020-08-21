@@ -1,0 +1,502 @@
+ - Never be afraid to try something new. Remember that a lone amateur built the Ark. A large group of professionals built the Titanic.
+ - A person who is nice to you, but rude to the waiter, is not a nice person.
+ - If you had to identify, in one word, the reason why the human race has not achieved, and never will achieve, its full potential, that word would be ‘meetings.’
+ - It is better to be rich and healthy than poor and sick.
+ - As a professional journalist, I am always looking for new ways to get paid for being motionless.
+ - People in the computer industry use the term ‘user,’ which to them means ‘idiot.’
+ - Proofread carefully to see if you any words out.
+ - It is inhumane, in my opinion, to force people who have a genuine medical need for coffee to wait in line behind people who apparently view it as some kind of recreational activity.
+ - I can win an argument on any topic, against any opponent. People know this, and steer clear of me at parties. Often, as a sign of their great respect, they don’t even invite me.
+ - You can only be young once. But you can always be immature.
+ - There comes a time when you should stop expecting other people to make a big deal about your birthday. That time is age 11.
+ - You should not confuse your career with your life.
+ - Everyone has a right to be stupid. Some just abuse the privilege.
+ - The one thing that unites all human beings, regardless of age, gender, religion or ethnic background, is that we all believe we are above-average drivers.
+ - The word user is the word used by the computer professional when they mean idiot.
+ - And that’s the wonderful thing about family travel: it provides you with experiences that will remain locked forever in the scar tissue of your mind.
+ - What women want: To be loved, to be listened to, to be desired, to be respected, to be needed, to be trusted, and sometimes, just to be held. What men want: Tickets to the World Series.
+ - Meetings are places where dead ideas rise from their graves and eat the brains of the living.
+ - Buying the right computer and getting it to work properly is no more complicated than building a nuclear reactor from wristwatch parts in a darkened room using only your teeth.
+ - Camping is nature’s way of promoting the motel business.
+ - Ask not what your country can do for you. Ask whether your country has been inhaling paint-thinner fumes.
+ - Nobody understands how hard it is, being a captain.
+ - There is a very fine line between hobby and mental illness.
+ - The Internet: transforming society and shaping the future through chat.
+ - Electricity is actually made up of extremely tiny particles called electrons, that you cannot see with the naked eye unless you have been drinking.
+ - Dating means doing a lot of fun things you will never do again if you get married. The fun stops with marriage because you’re trying to save money for when you split up your property.
+ - Fishing is boring, unless you catch an actual fish, and then it is disgusting.
+ - Never lick a steak knife.
+ - A perfect parent is a person with excellent child-rearing theories and no actual children.
+ - The real threat to whales is whaling, which has endangered many whale species.
+ - The four building blocks of the universe are fire, water, gravel and vinyl.
+ - It was not easy victory in the America Cup. Our boys spent years experimenting with different designs for their boat before they came up with the innovative idea of having a submerged nuclear submarine tow it.
+ - Murphy’s golden rule: Whoever has the gold, makes the rules.
+ - I can snap your spine like a toothpick.
+ - It is a well- known fact that although the public is fine when taken individually, when it forms itself into large groups, it tends to act as though it has one partially consumed Pez tablet for a brain.
+ - Long, long ago, before eruptions were invented, the molten lava had to be carried down the mountainside, bucket by bucket, and poured over the sleeping villagers. This took time.
+ - It always rains on tents. Rainstorms will travel thousands of miles, against prevailing winds for the opportunity to rain on a tent.
+ - To an adolescent, there is nothing in the world more embarrassing than a parent.
+ - Your hand and your mouth agreed many years ago that, as far as chocolate is concerned, there is no need to involve your brain.
+ - Magnetism is one of the Six Fundamental Forces of the Universe, with the other five being Gravity, Duct Tape, Whining, Remote Control, and The Force That Pulls Dogs Toward The Groins Of Strangers.
+ - I bought Windows 2.0, Windows 3.0, Windows 3.1415926, Windows 95, Windows 98, Windows ME, Windows RSVP, The Best of Windows, Windows Strikes Back, Windows Does Dallas, and Windows Let’s All Buy Bill Gates a House the Size of Vermont.
+ - For people who like peace and quiet: a phoneless cord.
+ - Do not spit gum in the drinking fountains.
+ - Unlike cats dogs never scratch you when you wash them. They just become very sad and try to figure out what they did wrong.
+ - Experts agree that the best type of computer for your individual needs is one that comes on the market about two days after you actually purchase some other computer.
+ - Florida’s number three industry, behind tourism and skin cancer, is voter fraud.
+ - You should never say anything to a woman that even remotely suggests that you think she’s pregnant unless you can see an actual baby emerging from her at that moment.
+ - Aside from Velcro, time is the most mysterious substance in the universe.
+ - Today, you’re 50. Now we can round your age up to 100! Happy 50th birthday!
+ - It is a scientific fact that your body will not absorb cholesterol if you take it from another person’s plate.
+ - Some archeologists believe that Stonehenge – the mysterious arrangement of enormous elongated stones in England – is actually a crude effort by the Druids to build a computing device.
+ - I have never had a point in my life to make. I’m just trying to entertain the reader.
+ - The best baby-sitters, of course, are the baby’s grandparents. You feel completely comfortable entrusting your baby to them for long periods, which is why most grandparents flee to Florida.
+ - A child can go only so far in life without potty training. It is not mere coincidence that six of the last seven presidents were potty trained, not to mention nearly half of the nation’s state legislators.
+ - Magnetism, as you recall from physics class, is a powerful force that causes certain items to be attracted to refrigerators.
+ - You will never find anybody who can give you a clear and compelling reason why we observe daylight savings time.
+ - Thanks to modern medical advances such as antibiotics, nasal spray, and Diet Coke, it has become routine for people in the civilized world to pass the age of 40, sometimes more than once.
+ - I recently had my annual physical examination, which I get once every seven years, and when the nurse weighed me, I was shocked to discover how much stronger the Earth’s gravitational pull has become since 1990.
+ - The population of earth has reached 7 billion people, every single one of whom send you irritating emails to join something called “LinkedIn.”
+ - Dogs do not grasp the concept of house cleaning.
+ - San Francisco leads the world in the category of Most People On The Sidewalk Holding Conversations With Purely Imaginary Companions.
+ - Without question, the greatest invention in the history of mankind is beer. Oh, I grant you that the wheel was also a fine invention, but the wheel does not go nearly as well with pizza.
+ - The Ford Falcon holds the proud title of Slowest Car Ever Built. In certain areas of the country you can go to a stoplight and find Falcon drivers who pressed down on their accelerators in 1963 and are still waiting for their cars to move.
+ - Winter’s here, and you feel lousy: You’re coughing and sneezing; your muscles ache; your nose is an active mucus volcano. These symptoms – so familiar at this time of year – can mean only one thing: Tiny fanged snails are eating your brain.
+ - As the saying goes: “If you’re not part of the solution, you’re a newspaper columnist.”
+ - DNA is an abbreviation for deoxyribonucleicantidisestablishmentarianism, a complex string of syllables.
+ - Although humans tend to view sex as mainly a fun recreational activity sometimes resulting in death, in nature it is a far more serious matter.
+ - Violence and smut are of course everywhere on the airwaves. You cannot turn on your television without seeing them, although sometimes you have to hunt around.
+ - A small deer came into my camp and stole my bag of pickles. Is there a way I can get reimbursed? Please call.
+ - Snowboarding is an activity that is very popular with people who do not feel that regular skiing is lethal enough.
+ - Are we ever going to have a federal tax system that regular people can understand?
+ - The great thing about golf – and this is the reason why a lot of health experts like me recommend it – you can drink beer and ride in a cart while you play.
+ - Recently I began to feel this void in my life, even after meals, and I said to myself, “Dave, all you do with your spare time is sit around and drink beer. You need a hobby.” So I got a hobby. I make beer.
+ - Nobody cares if you can’t dance well. Just get up and dance.
+ - Never under any circumstances take a sleeping pill and a laxative on the same night.
+ - Not all chemicals are bad. Without chemicals such as hydrogen and oxygen, for example, there would be no way to make water, a vital ingredient in beer.
+ - I really try to think cinematically, because that’s how people read. They create a theater in their minds.
+ - Microsoft has a new version out, Windows XP, which according to everybody is the ‘most reliable Windows ever.’ To me, this is like saying that asparagus is ‘the most articulate vegetable ever.’
+ - In fact, just about all the major natural attractions you find in the West- the Grand Canyon, the Badlands, the Goodlands, the Mediocrelands, the Rocky Mountains and Robert Redford- were caused by erosion.
+ - I say the American Medical Association ought to get the hell off the golf course and answer this question...
+ - If Mozart had power tools, there’s no telling how great his music might have been.
+ - As a child, I was more afraid of tetanus shots than, for example, Dracula.
+ - As Americans we must always remember that we all have a common enemy, an enemy that is dangerous, powerful, and relentless. I refer, of course, to the federal government.
+ - A secret society within a secret society.
+ - Your modern teenager is not about to listen to advice from an old person, defined as a person who remembers when there was no Velcro.
+ - I’m a big believer in anesthesia. I think it should be used for every medical procedure, indlucing routine physicals.
+ - It takes a minimum of six people, working in close harmony, to successfully flush a nautical toilet. That’s why those old ships carried such large crews.
+ - The doctor looked at my cardiogram and made that “hmmmm” noise that doctors are taught in medical school so they won’t come right out and say “UH-oh!”
+ - It may be meaningless, but at least it’s a gesture.
+ - Another well-known Paris landmark is the Arc de Triomphe, a moving monument to the many brave women and men who have died trying to visit it.
+ - The Internet is the most important single development in the history of human communication since the invention of call waiting.
+ - Guys care about sports teams. I’m not talking about simply rooting; I’m talking about a relationship that guys develop, a commitment to a sport team that guys take way more seriously than, for example, wedding vows.
+ - A printer consists of three main parts: the case, the jammed paper tray and the blinking red light.
+ - The most powerful force in the universe is gossip.
+ - You should definitely visit the Louvre, a world-famous art museum where you can view, at close range, the backs of thousands of other tourists trying to see the Mona Lisa.
+ - My point here, young couples, is that baby-having is extremely serious business, and you probably don’t have the vaguest idea what you’re doing, as is evidenced by the fact that you’re reading a very sloppy and poorly researched book.
+ - For Dad, the perfect Father’s Day would be one in which he didn’t even realize that it was Father’s Day, because nobody was making him appreciate gifts he didn’t want, or read greeting cards filled with lame Father’s Day poetry.
+ - Americans who travel abroad for the first time are often shocked to discover that, despite all the progress that has been made in the last 30 years, many foreign people still speak in foreign languages.
+ - The science fair has long been a favorite educational tool in the American school system, and for a good reason: Your teachers hate you.
+ - UNIVAC: a device, which contained 20,000 vacuum tubes, occupied 1,500 square feet and weighed 40 tons; there was also a laptop version weighing 27 tons.
+ - Humor is an escape, because you cannot think about your problems when you are trying to be funny; so, in essence, “being a humorist” gives you a valid excuse to hide from your pain.
+ - Technology is constantly improving our lives. Look at the cellular telephone. Just ten years ago, virtually nobody was able to get into a car crash caused by trying to steer and dial at the same time; today, people do this all the time.
+ - Spain travel tip: If bathroom genders are indicated by flamingos, the boy flamingo is the one with a hat. I learned this the hard way.
+ - If it weren’t for marriage, men and women would have to fight with total strangers.
+ - The world is full of strange phenomena that cannot be explained by the laws of logic or science. Dennis Rodman is only one example.
+ - Scientists tell us that the fastest animal in the world, with a speed of 120 mph, is a cow dropped out of a helicopter.
+ - Like many members of the uncultured, Cheez-It consuming public, I am not good at grasping modern art.
+ - If you asked me to name the three scariest threats facing the human race, I would give the same answer that most people would: nuclear war, global warming and Windows.
+ - No matter what happens, somebody will find a way to take it too seriously.
+ - When I’m writing columns, it’s – all I’m thinking about is jokes, joke, joke, joke, setup, punch line, joke, joke, joke. And I really don’t care where it goes.
+ - Roy Blount, who is the funniest person I know, journeys deep into the dark heart of humor and brings back a wonderfully insightful, superbly crafted song of the soul that had me laughing and crying too.
+ - One day soon the Gillette company will announce the development of a razor that, thanks to a computer microchip, can actually travel ahead in time and shave beard hairs that don’t even exist yet.
+ - On Valentine’s Day, millions of men give millions of women flowers, cards and candy as a heartfelt expression of the emotion that also motivates men to observe anniversaries and birthdays-fear.
+ - Washington is nicknamed “The Evergreen State” because it sounds better than “The Incessant Nagging Drizzle State.”
+ - Never board a commercial aircraft if the pilot is wearing a tank top.
+ - Once again, we come to the Holiday Season, a deeply religious time that each of us observes, in his own way, by going to the mall of his choice.
+ - Those who can’t laugh at themselves leave the job to others.
+ - Entire new continent can emerge from the ocean in the time it takes for a Web page to show up on your screen. Contrary to what you may have heard, the Internet does not operate at the speed of light; it operates at the speed of the DMV.
+ - I believe that we parents must encourage our children to become educated, so they can get into a good college that we cannot afford.
+ - When to arrive at the airport?: You should be at the airport already.
+ - What a crock. I could easily overemphasize the importance of good grammar. For example, I could say: Bad grammar is the leading cause of slow, painful death in North America, or Without good grammar, the United States would have lost World War II.
+ - First, a few words about this title. It isn’t easy, coming up with book titles. A lot of the really good ones are taken. Thin Thighs in 30 Days, for example. Also The Bible.
+ - Toaster: A gift that every member of the family appreciates. Automatically burns toast.
+ - Lobsters displays all three of the classic biological characteristics of an insect, namely: 1. It has way more legs than necessary. 2. There is no way you would ever pet it. 3. It does not respond to simple commands such as “Here, boy!”
+ - The best time to go to Disney World, if you want to avoid huge crowds, is 1962.
+ - Another important rule of affair-having: Never be discreet at the office.
+ - The ultimate camping trip was the Lewis and Clark expedition.
+ - If God had wanted us to be concerned for the plight of the toads, he would have made them cute and furry.
+ - We decide to start with the best-known sight of all, the one that, more than any other, exemplifies what the Big Apple is all about: the Islip Garbage Barge.
+ - There comes a time in a man’s life when he hears the call of the sea. If the man has a brain in his head, he will hang up the phone immediately.
+ - Too many bugs and leeches and spiders and spiderwebs. Please spray the wilderness to rid the area of these pests.
+ - This book is dedicated to Wilbur and Orville Wright, without whom air sickness would still be just a dream.
+ - Miami drivers will attempt to pass you inside a car wash.
+ - Spreadsheet: a kind of program that lets you sit at your desk and ask all kinds of neat “what if?” questions and generate thousands of numbers instead of actually working.
+ - Hobbies of any kind are boring except to people who have the same hobby. This is also true of religion, although you will not find me saying so in print.
+ - I love the Olympics, because they enable people from all over the world to come together and – regardless of their political or cultural differences – accuse each other of cheating.
+ - Remember: What dad really wants is a nap. Really.
+ - If Black Stache laughed, you laughed. If he snarled, you snarled. If he breathed in your direction, you ran for cover.
+ - I was reading this James Bond book, and right away I realized that, like most books, it had too many words.
+ - Today’s beauty ideal, strictly enforced by the media, is a person with the same level of body fat as a paper clip.
+ - A full-grown manatee, which can weigh more than 1,000 pounds, looks like the result of a genetic experiment involving a walrus and the Goodyear Blimp.
+ - Sharks are as tough as those football fans who take their shirts off during games in Chicago in January, only more intelligent.
+ - In foreign countries such as Italy, the government puts strict-looking speed limit signs everywhere, but nobody ever sees them because light does not travel fast enough to catch the Italian drivers.
+ - All other nations are drinking Ray Charles beer and we are drinking Barry Manilow.
+ - Database: the information you lose when your memory crashes.
+ - Rembrandt’s first name was Beauregard, which is why he never used it.
+ - I care about our young people, and I wish them great success, because they are our Hope for the Future, and some day, when my generation retires, they will have to pay us trillions of dollars in social security.
+ - Palestinian and Israeli leaders finally recover the Road Map to Peace, only to discover that, while they were looking for it, the Lug Nuts of Mutual Interest came off the Front Left Wheel of Accommodation, causing the Sport Utility Vehicle of Progress to crash into the Ditch of Despair.
+ - Black Stache had no love for the Queen, no love for women of any sort, except for his ma. He had a real soft spot for his ma, and was truly sorry for the time he’d marooned her.
+ - Ban walking sticks in wilderness. Hikers that use walking sticks are more likely to chase animals.
+ - In South Florida, we have industrial cockroaches that have to be equipped with loud warning beepers so you can get out of their way when they back up.
+ - The greatest Electrical Pioneer of them all was Thomas Edison Edison’s first major invention, in 1877, was the phonograph, which could soon be found in thousands of American homes, where it basically sat until 1923, when the record was invented.
+ - Love and pregnancy and riding on a camel cannot be hid.
+ - What I look forward to is continued immaturity followed by death.
+ - Your friends love you anyway.
+ - Your guess is as good as mine. Better probably, because you haven’t had four beers.
+ - And now, the Superstore – unequaled in size, unmatched in variety, unrivaled inconvenience.
+ - I think Superman should go on the Larry King show and announce that he would come back to life if people in all 50 states wanted him to.
+ - Skiing combines outdoor fun with knocking down trees with your face.
+ - Infiniti ads are part of an exciting new trend called “Advertising Whose Sole Purpose Is to Irritate You.”
+ - Dogs make good pets because they are very loyal.
+ - The nuclear generator of brain sludge is television.
+ - I never start a section of the story without knowing how it will end. I also consciously try to shape the story as though it were a movie.
+ - I haven’t been able to slam-dunk the basketball for the past five years. Or, for the thirty-eight years before that, either.
+ - Greyhound Bus Lines motto: “We Stop For Some Damn Thing Every 200 Yards.”
+ - Tokyo is huge. Something like 15 million people live there, and my estimate is that at any given moment, 14.7 million of them are lost.
+ - A gene can be either dominant or recessive, depending on which type of gene it is.
+ - Orangutan are very weird animals but they look very soulful.
+ - There shall be a National Anthem containing incomprehensible words and a high note that normal humans cannot hit without risk of hernia.
+ - The Japanese tend to communicate via nuance and euphemism, often leaving important things unsaid; whereas Americans tend to think they’re being subtle when they refrain from grabbing the listener by the shirt.
+ - My wife, like many women, actually LIKES wrapping things. If she gives you a gift that requires batteries, she wraps the batteries separately, which to me is very close to being a symptom of mental illness.
+ - Fortunately the boat we rented had a motor in it You will definitely want this feature on your sailboat too, because if you put up the sails, the boat tips way over, and you could spill your beer.
+ - The problem with winter sports is that – follow me closely here – they generally take place in winter.
+ - Cats are independent, by which I mean smart.
+ - Gravity is a contributing factor in nearly 73 percent of all accidents involving falling objects.
+ - Most American homes have alternating current, which means that the electricty goes in one direction for a while, then goes in the other direction. This prevents harmful electron buildup in the wires.
+ - The basic Roman ruin design is a pile of rocks with a little plaque saying “Roman Ruins” and a group of tourists frowning at it and wishing they were back at the hotel bar...
+ - We journalists make it a point to know very little about an extremely wide variety of topics; this is how we stay objective.
+ - If you want to give a man something practical, consider tires. More than once, I would have gladly traded all the gifts I got for a new set of tires.
+ - I do some of my best reading while seated in the bathroom.
+ - Thanks to my solid academic training, today I can write hundreds of words on virtually any topic without possessing a shred of information which is how I got a good job in journalism.
+ - There are no bad haircuts in cyberspace.
+ - It was Public Art, defined as art that is purchased by experts who are not spending their own personal money.
+ - Dogsled-riding is a sport that is relaxing as well as fragrant.
+ - Never assume that the guy understands that you and he have a relationship.
+ - The whole thing about whether you smoke marijuana or not is so ridiculous. That and whether you protested the Vietnam War. Give me a break. Especially the marijuana thing.
+ - Earnest is our dog. She senses instantly that something is wrong, and guided by that timeless and unerring nurturing instinct that all female dogs have, she tries to lick my ears off.
+ - Print neatly. That’s the kind of advice that the IRS considers a “dynamite” tax tip. If you ask them a real tax question, such as how you can cheat, they’re useless.
+ - When I write my annual tax column, some ex-IRS agent will complain, “There you go IRS bashing again.” They’re always saying that they’re just doing their job. Someone I know once said, “You could get another job.”
+ - We’ll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail.
+ - In Spain, attempting to obtain a chicken salad sandwich, you wind up with a dish whose name, when you look it up in your Spanish-English dictionary, turns out to mean: Eel with big abcess.
+ - What’s happened to marriage? The wedding-industrial complex. Brides get swept up in this world of obsession – it has to be your perfect day.
+ - Reflectors need to be placed on trees every 50 feet so people can hike at night with flashlights.
+ - We operate under a jury system in this country, and as much as we complain about it, we have to admit that we know of no better system, except possibly flipping a coin.
+ - Today’s scientific question is: What in the world is electricity? And where does it go after it leaves the toaster?
+ - Never have a dog. Let’s not beat around the bush here: dogs are morons.
+ - Eating rice cakes is like chewing on a foam coffee cup, only less filling.
+ - We believe that electricity exists, because the electric company keeps sending us bills for it, but we cannot figure out how it travels inside wires.
+ - Karate is a form of martial arts in which people who have had years and years of training can using only their hands and feet make some of the worst movies in the history of the world.
+ - Found a smoldering cigarette left by a horse.
+ - The taxpayers cannot be relied upon to support performing arts such as opera. As a taxpayer, I am forced to admit that I would rather undergo a vasectomy via Weed Whacker than attend an opera.
+ - In the Bowling Alley of Tomorrow, there will even be machines that wear rental shoes and throw the ball for you. Your sole function will be to drink beer.
+ - There’s only one way kids will wear helmets, and that’s if their parents are nagging them to. They will never wear helmets because some state passes a law requiring it.
+ - WARNING: This is assuming your spouse’s name is Margaret.
+ - Here’s a man who was twice elected to the most powerful position on Earth despite needing a TelePrompTer to correctly identify what year it was.
+ - He could even think about how fast he was thinking about things.
+ - If everybody were a guy, the human race could easily get by on less than one twentieth the current number of shoes.
+ - Mother Nature clearly intended for us to get our food from the “patty” group, which includes hamburgers, fish sticks, and McNuggets- foods that have had all of their organs safely removed.
+ - The question is: What can we, as citizens, do to reform our tax system? As you know, under our three-branch system of government, the tax laws are created by: Satan. But he works through the Congress, so that’s where we must focus our efforts.
+ - Your job is to give people a reason to keep reading.
+ - It was you readers who really came through, proving once again that when the American people decide to “get involved” in a problem, it is best not to let them have any sharp implements.
+ - Whatever the needs of the public are, the government responds to those needs by getting larger.
+ - Never allow a child to spend all of his allowance. Insist that he set aside a certain amount of money every week and put it in a safe place, where you can get it if you need to buy beer.
+ - All of us are born with a set of instinctive fears – of falling, of the dark, of lobsters, of falling on lobsters in the dark, of speaking before a Rotary Club, and of the words “Some Assembly Required”.
+ - I’ve never been struck by lightning as far as I know, so the Higher Power is treating me as well as even those people who love him very much.
+ - I hate rap music, which to me sounds like a bunch of angry men shouting, possibly because the person who was supposed to provide them with a melody never showed up.
+ - He felt a momentary pang of regret that he had not spent more time with his beloved wife. But it passed when he remembered that the reason he’d gone to sea in the first place was that he had never really liked his beloved wife.
+ - It’s income tax time again, Americans: time to gather up those receipts, get out those tax forms, sharpen up that pencil, and stab yourself in the aorta.
+ - I had no shoes and I pitied myself. Then I met a man who had no feet, so I took his shoes.
+ - We’re wild horses. We’re going to eat your food, knock down your tent and poop on your shoes. We’re protected by federal law, just like Richard Nixon.
+ - I would not know how I am supposed to feel about many stories if not for the fact that the TV news personalities make sad faces for sad stories and happy faces for happy stories.
+ - Although golf was originally restricted to wealthy, overweight Protestants, today it’s open to anybody who owns hideous clothing.
+ - By today’s beauty standards, of course, Marilyn Monroe was an oil tanker.
+ - AARP is a large and powerful organization, similar to the Mafia but more concerned about dietary fiber.
+ - Avoid the traffic by using one of the park’s shuttle buses and view the elk rut with a park ranger.
+ - He’s a boating enthusiast, although that phrase seems too weak to describe the level of his interest, kind of like describing someone as a heroin fancier.
+ - Eventually everyone has to die, except Elvis.
+ - I tried sniffing Coke once, but the ice cubes got stuck in my nose.
+ - The badness of a movie is directly proportional to the number of helicopters in it.
+ - The coyotes made too much noise last night and kept me awake. Please eradicate these annoying animals.
+ - I have been a gigantic Rolling Stones fan since approximately the Spanish-American War.
+ - It is a good idea to ‘shop around’ before you settle on a doctor. Ask about the condition of his Mercedes. Ask about the competence of his mechanic. Don’t be shy! After all, you’re paying for it.
+ - You cannot paint the exterior of your house. You have to take the paint chip down to show the paint-chip Nazis.
+ - A sense of humor is a measurement of the extent to which we realize that we are trapped in a world almost totally devoid of reason. Laughter is how we express the anxiety we feel at this knowledge.
+ - Unless you live in Indonesia, there should be several malls within five miles of your home. It makes no difference whatsoever which one you go to: Under federal law, all malls in the United States must have the same 42 chain stores.
+ - Once again we find ourselves enmeshed in the Holiday Season, that very special time of year when we join with our loved ones in sharing centuries-old traditions such as trying to find a parking space at the mall.
+ - Babies and Other Hazards of Sex: How to Make a Tiny Person in Only 9 Months, with Tools You Probably Have around the Home.
+ - The main accomplishment of almost all organized protests is to annoy people who are not in them.
+ - I now realize that the small hills you see on ski slopes are formed around the bodies of forty-seven-year-olds who tried to learn snowboarding.
+ - As a professional journalist, I have always been fascinated by people who appear to have even more spare time than I do.
+ - I suspect that LaGuardia is an elaborate prank, and New York has a real airport nearby that only locals know about.
+ - The books all say that barracuda rarely eat people, but very few barracuda can read.
+ - Nevada has a very dynamic economy, with gambling being the number-one industry, followed closely by blood donorship.
+ - Don’t you wish you had a job like mine? All you have to do is think up a certain number of words! Plus, you can repeat words! And they don’t even have to be true!
+ - I took an estimated two thousand years of high school French, and when I finally got to France, I discovered that I didn’t know one single phrase that was actually useful in a real-life French situation.
+ - The Spanish government, having run completely out of money, secretly sold the Pyrenees to China, and is now separated from France only by traffic cones.
+ - Granted, this system is insane, but we must not let sanity stand in the way of airport security.
+ - More and more products are coming out in fiercely protective packaging designed to prevent consumers from consuming them. These days you have to open almost every consumer item by gnawing on the packaging.
+ - Trails need to be reconstructed. Please avoid building trails that go uphill.
+ - Playing an unamplified electric guitar is like strumming on a picnic table.
+ - Technically, Windows is an “operating system,” which means that it supplies your computer with the basic commands that it needs to suddenly, with no warning whatsoever, stop operating.
+ - The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.
+ - People who want to share their religious views with you almost never want you to share yours with them.
+ - If a woman has to choose between catching a fly ball and saving an infant’s life, she will choose to save the infant’s life without even considering if there are men on base.
+ - Talking about golf is always boring. Playing golf can be interesting, but not the part where you try to hit the little ball; only the part where you drive the cart.
+ - After the war, Prohibition was passed, and with liquor no longer legally available the nation plunged headlong into the Great Depression.
+ - Sign outside a country shop: We buy junk and sell antiques.
+ - I hate to speak for the whole society, but I will. I’m a journalist, it’s my job. There’s been something of a reaction against political correctness. Needless to say, the government hasn’t caught up yet.
+ - The letters in ‘Brace Beemer’ can be arranged to spell ‘Embrace Beer.’
+ - I believe many Harley guys spend more time revving their engines than actually driving anywhere; I sometimes wonder why they bother to have wheels on their motorcycles.
+ - If Peter was nine, and a new boy came to St. Norbert’s Home for Wayward Boys who said he was ten, why, then, Peter would declare himself eleven. Also, he could spit the farthest. That made him the undisputed leader.
+ - I am not a violent person. I am a product of the Flower Power ’60s. I have actually worn bell-bottomed jeans.
+ - We’re deep into the holiday gift-giving season, as you can tell from the fact that everywhere you look, you see jolly old St. Nick urging you to purchase things, to the point where you want to slug him right in his bowl full of jelly.
+ - Because of the level of my chess game, I was able – even against a weak opponent, such as my younger brothers or the dog – to get myself checkmated in under three minutes. I challenge any computer to do it faster.
+ - Be advised that there is no parking in Europe.
+ - Spiders so large they appear to be wearing the pelts of small mammals.
+ - The bad news was that the yard contained a dog. A very, very large dog, wide and hairy, like a cross between a rottweiler and a Goodyear blimp.
+ - To enter Europe, you must have a valid passport with a photograph of yourself in which you look like you are being booked on charges of soliciting sheep.
+ - The easiest way to make a fruitcake is to buy a darkish cake, then pound some old, hard fruit into it with a mallet. Be sure to wear safety glasses.
+ - She goes to Frederick’s of Hollywood at the mall and purchases an explicit lingerie outfit so sheer that you could read an appliance warranty through it in an unlit closet.
+ - European toilet paper is made from the same material that Americans use for roofing, which is why Europeans tend to remain standing throughout soccer matches.
+ - I realize that I’m generalizing here, but as is often the case when I generalize, I don’t care.
+ - 2. The instant the doors open, you want to push forward as hard as possible, in an effort to get onto the train without letting anybody off. This is very important. If anybody does get off, it is legal to tackle him and drag him back on.
+ - If for some reason you are unsure where to go, all you have to do is stand there looking lost, and within seconds a helpful New Yorker will approach to see if you have any “spare” change.
+ - The major advantage of domestic travel is that, with a few exceptions such as Miami, most domestic locations are conveniently situated right here in the United States.
+ - The Republicans have a high Beady-Eyed Self-Righteous Scary Borderline Loon Quotient, as evidenced by Phyllis Schlafly, Pat Robertson, the entire state of Utah, etc.
+ - Remember how he handled the Iran-contra Never Ending Scandal from Hell? He went on national television, the President of the United States, and said it wasn’t his fault, because he was not aware, at the time, of what his foreign policy was.
+ - Sign at a Kentucky appliance store: Don’t kill your wife. Let our washing machine do the dirty work.
+ - In my experience, if you go to a hospital for any reason whatsoever, including to read the gas meter, they give you a tetanus shot.
+ - The Mollusks – generous hosts when they weren’t trying to kill you.
+ - Take out the fortune before you eat the cookie.
+ - The average tax payer is not a big voluntary supporter of the arts. The only art that the average taxpayer buys voluntarily either has a picture of Bart Simpson on it or little suction cups on its feet so you can stick it onto a car window.
+ - The first animals to be successfully domesticated were dogs, which were a big help because they would bark all night and fetch thrown sticks, thereby freeing humans from having to perform these tedious yet vital tasks.
+ - A short distance away is the Tidal Basin, ringed by cherry trees that every year produce flowers, an event to which Washingtonians react as though it were the Second Coming of Christ.
+ - The Sixties are now considered a historical period, just like the Roman Empire.
+ - This nation is so friendly that the leading cause of injury is getting passionately embraced by strangers.
+ - Dinner Special – Turkey $2.35; Chicken or Beef $2.25; Children $2.00.
+ - Childbirth, as a strictly physical phenomenon, is comparable to driving a United Parcel truck through an inner tube.
+ - Classical music gradually lost popularity because it is too complicated: you need twenty-five or thirty skilled musicians just to hum it properly. So people began to develop regular music.
+ - Newspaper readership is declining like crazy. In fact, there’s a good chance that nobody is reading my column.
+ - Happens if a big asteroid hits Earth? Judging from realistic simulations...
+ - My son wouldn’t go get heroin. If he did or didn’t, it wouldn’t have anything to do with whether it was legal or illegal.
+ - Trails need to be wider so people can walk while holding hands.
+ - What I need is a search engine that, no matter what I type in, comes back with GO BACK TO WORK.
+ - Airline food is not intended for human consumption. It’s intended as a form of in-flight entertainment, wherein the object is to guess what it is, starting with broad categories such as “mineral” and “linoleum.”
+ - If you were to open up a baby’s head – and I am not for a moment suggesting that you should – you would find nothing but an enormous drool gland.
+ - Auto racing is boring except when a car is going at least 172 miles per hour upside down.
+ - One key lesson of history is that virtually anything, including afternoon or evening thundershowers, causes Germany to invade Belgium.
+ - My problem with chess was that all my pieces wanted to end the game as soon as possible.
+ - She wanted to cry, but she did not want Peter to see her cry, and she especially did not want Teacher, with her flowing hair, to see her cry.
+ - When doctors describe pain as experiencing “discomfort,” it’s like saying Hiroshima experienced “urban renewal”.
+ - I’m afraid that, in this chapter we must talk about sex in a very explicit manner, because we want to expand the Frontiers of Human Understanding and also we want to sell as many books as possible to adolescent boys.
+ - People don’t think of writers as sex objects. The women who write to me and suggest that we ought to have sex usually turn out to be, like, eighty. And their letters always end with, “Just joking.”
+ - Your first job is to prepare the soil. The best tool for this is your neighbor’s garden tiller. If your neighbor does not own a garden tiller, suggest that he buy one.
+ - Instead of a permit system or regulations, the Forest Service needs to reduce worldwide population growth to limit the number of visitors to wilderness.
+ - It’s a real smug self-righteous punk kid saying nobody has the right to tell him what to do and how dare you put a sign up saying that I can’t go on your property?
+ - As sensitive and broad-minded humans, we must never allow ourselves to be in any way judgmental of the religious practices of other people, even when these people clearly are raving space loons.
+ - Famous designers think nothing of putting their names on your clothing, but would have the servants set the dogs on you if you ever tried to put your name on their clothing.
+ - Thus the metric system did not really catch on in the States, unless you count the increasing popularity of the nine-millimeter bullet.
+ - Modern cyberspace is a deadly festering swamp, teeming with dangerous programs such as ‘viruses,’ ‘worms,’ ‘Trojan horses’ and ‘licensed Microsoft software’ that can take over your computer and render it useless.
+ - There are two kinds of people in this world, and I am one of them.
+ - I’m not saying that women don’t think about sex also. I’m saying that women are capable, for at least brief periods of time, of not thinking about sex, and that most guys are not.
+ - The Japanese, implementing a complex, long-term, and ultimately successful strategy to dominate the U S consumer-electronics market, attacked Pearl Harbor.
+ - Aside from velcro, time is the most mysterious substance in the universe. You can’t see it or touch it, yet a plumber can charge you upwards of seventy-five dollars per hour for it, without necessarily fixing anything.
+ - The only kind of seafood I trust is the fish stick, a totally featureless fish that doesn’t have eyeballs or fins.
+ - Line printer paper is strongest at the perforations.
+ - When my generation was your age, we took crazy risks. The wildest thing was – prepare to be shocked – we deliberately ingested carbohydrates!
+ - Have you noticed that whatever sport you’re trying to learn, some earnest person is always telling you to keep your knees bent?
+ - Flying from the United States to Tokyo takes approximately as long as law school.
+ - The leading cause of death among fashion models is falling through street grates.
+ - The way this country deals with drugs is just not funny. What a waste of everyone’s time and effort. What a waste of a lot of people’s lives.
+ - As you know, birds do not have sexual organs because they would interfere with flight.
+ - The United States tried, by depressing the clutch of diplomacy and downshifting the gearshift lever of rhetoric, to remain neutral, but it became increasingly obvious that the nation was going to get into a war, especially since it was almost 1812.
+ - Without good grammar, the United States would have lost World War II.
+ - My current computer, in addition to ‘DOS,’ has ‘Windows,’ which is another invention of Bill Gates, designed as a security measure to thwart those users who are somehow able to get past DOS.
+ - It would be hard to conceive of any activity more useless than stamp collecting.
+ - I argue very well. Just ask any of my remaining friends.
+ - Chair lifts need to be in some places so that we can get to wonderful views without having to hike to them.
+ - What I like best about the telephone is that it keeps you in touch with people, particularly people who want to sell you magazine subscriptions in the middle of the night.
+ - The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs.
+ - Crabgrass can grow on bowling balls in airless rooms, and there is no known way to kill it that does not involve nuclear weapons.
+ - It is an inconvenience, being located in a city where taxes are ludicrously high, where you pay twice your annual income to rent an apartment that could easily be carried on a commercial airline flight.
+ - The hugely popular Windows 95 operating system revolutionized the software world thanks to its capability of accomplishing the seemingly impossible task of making Bill Gates even richer than he already was.
+ - People don’t like it when you make fun of a celebrity. When you make fun of a celebrity, you’ll hear from really loyal fans of that celebrity.
+ - Stache’s attack was perfectly timed, thanks to his veteran-pirate grasp tactics – and a big piece if luck.
+ - See, when the GOVERNMENT spends money, it creates jobs; whereas when the money is left in the hands of TAXPAYERS, God only knows what they do with it. Bake it into pies, probably. Anything to avoid creating jobs.
+ - There’s an old saying among scientific guys: “You can’t make an omelet without breaking eggs, ideally by dropping a cement truck on them from a crane.”
+ - I’ve noticed that one thing about parents is that no matter what stage your child is in, the parents who have older children always tell you the next stage is worse.
+ - Each year, millions of skiers come to Colorado to experience its superb emergency medical facilities.
+ - You should be prepared for anything during divorce proceedings – even the truth.
+ - Funny, isn’t it? The airlines go to all that trouble to keep you from taking a gun on board, then they just hand you a dinner roll you could kill a musk ox with.
+ - Epcot Center also features pavilions built by various foreign nations, where you can experience an extremely realistic simulation of what life in these nations would be like if they consisted almost entirely of restaurants and souvenir stores.
+ - I like golf because you can be really terrible at it, and still not look much dorkier than anybody else.
+ - Alan Zweibel is the funniest writer in the world. He might be even funnier when he’s naked, but I’m afraid to find out.
+ - Life is anything that dies when you stomp on it.
+ - Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.
+ - Why else do we have Miami, if not to give me material?
+ - Computers operate on simple principles that can be easily understood by anybody with some common sense, a little imagination, and an IQ of 750.
+ - This is true; virtually all edible substances, and many automotive products, are now marketed as being low-fat or fat-free. Americans are obsessed with fat content.
+ - I would rather undergo a vasectomy via Weed Whacker than attend an opera.
+ - Baby’s room should be close enough to your room so that you can hear baby cry, unless you want to get some sleep, in which case baby’s room should be in Peru.
+ - The porpoises said hello to Molly. She told them all her teeth were green.
+ - Genes are little items that are found in every living thing except Sen. Alfonse D’Amato.
+ - In my experience, you run into trouble when you ask a group of beer-drinking men to perform any task more complex than remembering not to light the filter ends of cigarettes.
+ - I’ve gained a few pounds around the middle. The only lower body garments I own that still fit me comfortably are towels.
+ - Another foreign-policy triumph for Reagan was his 1984 visit to China, where he met for more than three hours with Mao Zedong before realizing that Mao was dead.
+ - No man had ever knocked little Richard down. But of course Ammm was not a man.
+ - Sign at a New England church: Will the last person to leave please see that the perpetual light is extinguished?
+ - Millions of Americans own dogs, because they are good-natured, simple, and easily amused. I am referring here to the Americans. The dogs are not exactly Mensa members either, but they definitely make better pets than tropical fish.
+ - Reporters aren’t stupid. We were standing around talking about which of the 900 health-care proposals that nobody’s going to accept is that day’s hot news. They know how silly that is. But that’s what they do.
+ - When Prince Charles speaks, everybody pretends to be fascinated, even though he has never said anything interesting except in that intercepted telephone conversation wherein he expressed the desire to be a feminine hygeine product.
+ - Someone was tapping on the window.
+ - In 1765, Parliament passed the Stamp Act, which, as any American high school student can tell you, was an act that apparently had something to do with stamps.
+ - I become faint and nauseous during even very minor medical procedures, such as making an appointment by phone.
+ - Scientists now believe that the primary biological function of breasts is to make males stupid.
+ - In more than 20 years of opening beers with guys, I have NEVER seen the Swedish Bikini Team show up. Almost always, the teams that show up in beer drinking situations consist of guys who have been playing league softball and smell like bus seats.
+ - Elsewhere in Italy is the lovely city of Venice, which each year attracts millions of visitors despite the fact that it is basically an enormous open sewer...
+ - Smee! Raise the Ladies!
+ - As a taxpayer, you are required to be fully in compliance with the United States Tax Code, which is currently the size and weight of the Budweiser Clydesdales.
+ - Eugene is located in western Oregon, approximately 278 billion miles from anything.
+ - Skiers view snowboarders as a menace; snowboarders view skiers as Elmer Fudd.
+ - Sign at a Tennessee highway: When this sign is under water, this road is impassable.
+ - Big business never pays a nickel in taxes, according to Ralph Nader, who represents a big consumer organization that never pays a nickel in taxes.
+ - People – just weird people are attracted to Miami. And they come there not for serious reasons, usually.
+ - We don’t shoot somebody soon, I’m gonna forget how.
+ - If swimming is so good for your figure, how do you explain whales?
+ - What may seem depressing or even tragic to one person may seem like an absolute scream to another person, especially if he has had between four and seven beers.
+ - Geographically, Ireland is a medium-sized rural island that is slowly but steadily being consumed by sheep.
+ - If you have a big enough dictionary, just about everything is a word.
+ - I report as a machine; I write as a person. That clear dichotomy softens the transition.
+ - The fact that Gene Weingarten and I and Bathroom Inventory are now part of some kind of Matrix of Poop strongly suggests that the Pulitzer is not what it once was.
+ - When you say you don’t think we should have public schools, they can’t believe you mean that. You must mean that they should be smaller. But you can’t really mean no public schools.
+ - You know how on the evening news they always tell you that the stock market is up in active trading, or off in moderate trading, or trading in mixed activity, or whatever. Well, who gives a.
+ - This ball was so crowded that it took me – a trained professional journalist with vast experience in this area – forty five minutes to get a beer.
+ - Passing the SAT: My personal theory is that it has to do with how much money you send them in the mail. I think the amounts they tell you to send are actually just suggested minimum donations – if you get my drift.
+ - There are two distinctive classes of people today, those who have personal computers, and those who have several thousand extra dollars apiece.
+ - Megahertz: This is really, really big hertz.
+ - The story of the eighties will be the story of the Reagan administration and the many men and women who served in it, some of whom are already out on parole.
+ - Dogs need to sniff the ground; it’s how they keep abreast of current events. The ground is a giant dog newspaper, containing all kinds of late-breaking dog news items, which, if they are especially urgent, are often continued in the next yard.
+ - Nobody in the United States knows what either a “meter” or a “kilogram” is. The whole reason why we fought the Cold War was so we wouldn’t have to learn the metric system.
+ - Democracy: In which you say what you like and do what you’re told.
+ - You can, legally, possibly hit and kill a fellow golfer with a ball, and there will not be a lot of trouble because the other golfers will refuse to stop and be witnesses because they will want to keep playing.
+ - France: As a professional journalist, I like the idea of a society where it is considered an acceptable occupation to basically sit around and drink.
+ - The Romans spent the next 200 years using their great engineering skill to construct ruins all over Europe.
+ - The method preferred by most balding men for making themselves look silly is called the comb over.
+ - The question is, why are politicians so eager to be president? What is it about the job that makes it worth revealing, on national television, that you have the ethical standards of a slime-coated piece of industrial waste?
+ - The Internet is a giant international network of intelligent, informed computer enthusiasts, by which I mean, “people without lives.” We don’t care. We have each other...
+ - The Democrats believe that if God did not want them to raise taxes, He would not have created the Internal Revenue Service.
+ - The old system of having a baby was much better than the new system, the old system being characterized by the fact that the man didn’t have to watch.
+ - You don’t have to think really hard to get the joke. I think humor in general appeals to all people.
+ - In fact, when you get right down to it, almost every explanation Man came up with for anything until about 1926 was stupid.
+ - The IRS spends God knows how much of your tax money on these toll-free information hotlines staffed by IRS employees, whose idea of a dynamite tax tip is that you should print neatly.
+ - Congress shall also create a tax code weighing more than the combined poundage of the largest member of the House and the largest member of the Senate, plus a standard musk ox.
+ - Sailboats are the slowest form of transportation on Earth with the possible exeption of airline flights that go through O’Hare.
+ - The IRS wants you to use this form because it gets to keep most of your money. So unless you have pond silt for brains, you want the long form.
+ - What was life like in the colonies? Probably the best word to describe it would be “colonial”.
+ - Never trust anything you read in a travel article.
+ - We idolized the Beatles, except for those of us who idolized the Rolling Stones, who in those days still had many of their original teeth.
+ - There are a number of people without whom I could not have written this book, but I hope you don’t hold that against them. They are all fine people, and they had no idea how it would turn out.
+ - Do not put this product in a big vat and drop rats into it from a cat-walk.
+ - I want to gag sometimes when I see who “we” are recommending that people vote for, and not just as a libertarian.
+ - In modern America, food is abundant everywhere except aboard commercial airplanes.
+ - Your federal government needs your money so that it can perform vital services for you that you would not think up yourself in a million years.
+ - The best way to understand this whole issue is to look at what the government does: it takes money from some people, keeps a bunch of it, and gives the rest to other people.
+ - A hundred years ago, it could take you the better part of a year to get from New York to California; whereas today, because of equipment problems at O’Hare, you can’t get there at all.
+ - There is a breed of fashion models who weigh no more than an abridged dictionary.
+ - Today’s toys contain computer chips, so they can move and talk; this stimulates the mind of your child. Notice I say “your child.” MY child just wants to eat the toys.
+ - Always remember that if editors were so damned smart, they would know how to dress.
+ - Just get on any major highway, and eventually it will dead-end in a Disney parking area large enough to have its own climate, populated by large nomadic families who have been trying to find their cars since the Carter administration.
+ - England is a very popular foreign country to visit because the people there speak some English.
+ - I have read that, on the average, the Japanese are getting taller, but at the moment they seem to be about the same height as American junior-high-school students, only with fewer guns.
+ - We Americans live in a nation where the medical-care system is second to none in the world, unless you count maybe 25 or 30 little scuzzball countries like Scotland that we could vaporize in seconds if we felt like it.
+ - I don’t have any insight or understanding on anything about the government. All I think is that it’s stupid – which is the one perspective that’s almost completely lacking in Washington.
+ - If there really is a God who created the entire universe with all of its glories, and He decides to deliver a message to humanity, He will not use, as His messenger, a person on cable TV with a bad hairstyle.
+ - RAM: This gives guys a way of deciding whose computer has the biggest, studliest memory. That’s important, because the more memory a computer has, the faster it can produce error messages.
+ - For 41 years I have gone with a very natural hair “look” that was originally popularized by coconuts.
+ - Too many rocks in the mountains.
+ - Beneath their surface differences, there are a lot of deep, underlying differences.
+ - The Olympic movement simply cannot allow the Russians to become estranged, because Russia is a vital part of the world sports community, in the sense of having nuclear missiles.
+ - Panicky despair is an underrated element of writing.
+ - Eternal boyhood is the dream of a depressing percentage of American males, and the locker room is the temple where they worship arrested development.
+ - I also saw a huge expansion of the Internet, with many major corporations, afraid of being left behind, spending hundreds of millions of dollars to develop World Wide Web sites in a frantic scramble to reach the vast new consumer market of Web use.
+ - You have to be careful on the deck, because of the “hatches,” which are holes placed around a sailboat at random to increase the insurance rates.
+ - To people who make moving ads that block the view of websites: Not only will we not buy from you, but we want shrews to eat your liver.
+ - If you tell most people what libertarians think, they immediately assume that you cannot mean it all the way, that you’re really just taking a position for argument’s sake.
+ - If the people in Europe are SOOOOOO smart, how come so many of them can’t seem to locate the deodorant, huh?
+ - I do not mean to suggest for a moment that all it takes to be a top executive is a custom-tailored European suit. You also need the correct shirt and tie.
+ - American consumers have no problem with carcinogens, but they will not purchase any product, including floor wax, that has fat in it.
+ - I am not the only person who uses his computer mainly for the purpose of diddling with his computer.
+ - The places where trails do not exist are not well marked.
+ - As long as humanity has been human, it has looked toward the heavens and dreamed that some day, some way, there would be giant federal contracts involved.
+ - The Russians will never be able to get their missiles thought the dense protective layer of delayed flights circling over the United States in complex, puke-inducing holding patterns.
+ - I’m not the only taxpayer who has no idea what he’s sending to the IRS. This year, only 28 percent of all Americans will prepare their own tax returns, according to a voice in my head that invents accurate-sounding statistics.
+ - Canada, as you know, is a major important nation boasting a sophisticated, cosmopolitan culture that was tragically destroyed last week by beavers.
+ - But the feeling I have, you know, is that I’ll never come close to reading all, or even a thousandth- a billionth- of the books I’d probably love if I ever got to them.
+ - England manufactures most of the world’s airline food, as well as all the food you ever ate in your junior-high-school cafeteria.
+ - The problem with writing about religion is that you run the risk of offending sincerely religious people, and then they come after you with machetes.
+ - We should call editorials what they are: columns written by committees.
+ - I’ve never actually given birth to a child, but I suspect that going to a Justin Bieber concert with a child is close.
+ - What gets me is, I waited in line for an hour to do this. I could have experienced essentially the same level of enjoyment merely by sticking my finger down my throat.
+ - There was nowhere to sit except the bunk, which was covered with rotting food, and a wooden stool, upon which sat a large fur-covered lump – an old cheese, perhaps, or a dead cat.
+ - I will vote for the first candidate who promises to use nuclear missiles against LinkedIn.
+ - We kids feared many things in those days – werewolves, dentists, North Koreans, Sunday School – but they all paled in comparison with Brussels sprouts.
+ - Japan has a low crime rate, unless you count the fact that approximately every fifteen minutes the entire Cabinet gets indicted for taking bribes.
+ - I think I became funny because I grew up in the Bronx. I was small and weak and Jewish instead of large and fierce and Puerto Rican. You need something.
+ - I, alone, could never have produced this book. I say this mainly in case there are lawsuits.
+ - I’m always writing new books so I don’t dwell on the ones I’ve already done. I think that’s a habit from being a newspaper guy because you’re always writing columns and you can’t reflect on the ones you’ve already done.
+ - The Japanese tend to be far more co-operative and docile and group-oriented. It would be easier to get the entire population of Tokyo to wear matching outfits than to get any two randomly selected Americans to agree on pizza toppings.
+ - Is there a medical rule that requires doctors-office personnel to treat you as though you have the IQ of a Cheeto?
+ - If the security personnel do their job properly, they just might cause you to miss your plane, thereby possibly saving your life.
+ - Any parent that relies on any law to help him parent is an idiot.
+ - Hardware: This is the part of the computer that stops working when you spill beer on it.
+ - I have a friend named Doris who argues, on good authority, that the single biggest cause of global warming is menopause.
+ - Real cars were made here in America: Fords, Chevys, Plymouths. These were large chunks of Detroit iron – cars that had the size, weight, and handling characteristics of aircraft carriers but worse fuel efficiency.
+ - I watched as an extremely nerdy exhibitor – I’m talking about a guy who makes Bill Gates look like Brad Pitt...
+ - Never try to put all the chemicals in the entire world in your body at the same time.
+ - The most valuable function performed by the federal government is entertainment.
+ - Of course God enjoys a good prank as much as the next infallible deity.
+ - I don’t know what you can possibly do for less than $50 to have somebody come in your house.
+ - When I heated my home with oil, I used an average of 800 gallons a year. I have found that I can keep comfortably warm for an entire winter with slightly over half that quantity of beer.
+ - Miami, you can never run out of material. As long as you have Miami around you, you will never, never stop being amused.
+ - Congress, after years of stalling, finally got around to clearing the way for informal discussions that might lead to possible formal talks that could potentially produce some kind of tenative agreements...
+ - And, of course, you have the commercials where savvy businesspeople get ahead by using their MacIntosh computers to create the ultimate American business product: a really sharp-looking report.
+ - The other major kind of computer is the “Apple,” which I do not recommend, because it is a wuss-o-rama New-Age computer you basically just plug in and use.
+ - Before going on a diet you should consult your doctor, or at least send him some money.
+ - The major parties could conduct live human sacrifices on their podiums during prime time, and I doubt that anybody would notice.
+ - Many, many of you have written to me asking the following question: ‘Dave, have their been any new advancements in the field of artificial falcon insemination, and could these developments be used to improve the American electoral process?’
+ - Please try not to be such a wiener-head.
+ - Editorials are written by people who have agreed to have several strong opinions a day and to write them down, provided they do not have to sign their names.
+ - Dogs love to go for rides. A dog will happily get into any vehicle going anywhere.
+ - I liked making people laugh, and I decided I was an atheist early on. My Dad was all right with that. We argued about it all the time, but it was good-natured. He was the most open-minded human being I’ve ever known.
+ - For me, the worst part of playing golf, by far, has always been hitting the ball.
+ - I guess libertarianism is always considered so weird and fringe that people assume that you’re in the closet if you don’t go around talking about it.
+ - When I say ‘serve you better,’ I mean ‘increase our profits.’ We newspapers are very big on profits these days.
+ - He was distracted by a giggle, and turned to see a rare sight: a girl.
+ - The term SAT is a set of initials, or autonym, standing for Scholastic Attitude Treaty Organization.
+ - And so by the fifteenth century, on October 8, the Europeans were looking for a new place to try to get to, and they came up with a new concept: the West.
+ - There’s a test they can do to determine a baby’s gender ahead of time; I think they insert a tiny photo of Leonardo DiCaprio into the uterus, and if the baby punches it, it’s a boy.
+ - Derangement is the only possible explanation for owning a cat, an animal whose preferred mode of communication is to sink its claws three-quarters of an inch into your flesh.
+ - I had arrived at the airport one hour early so that, in accordance with airline procedures, I could stand around.
+ - When trouble arises and things look bad, there is always one individual who perceives a solution and is willing to take command. Very often, that individual is crazy.
+ - Hardware: where the people in your company’s software section will tell you the problem is. Software: where the people in your company’s hardware section will tell you the problem is.
+ - To better understand why you need a personal computer, let’s take a look at the pathetic mess you call your life.
+ - If you surveyed a hundred typical middle-aged Americans, I bet you’d find that only two of them could tell you their blood types, but every last one of them would know the theme song from the Beverly Hillbillies.
+ - I’m happy to start on one topic and end on another one entirely, as long as it’s funny.
+ - I can’t recall a story that played out exactly as I’d expected it to. That’s one of the thrills of journalism – being surprised, and learning new stuff, but it also poses the biggest challenge to a writer’s character.
+ - I was a middle-of-the-road Democrat more than anything else. I know I voted for Carter. Watergate taught me how bad the Republicans were.
+ - I was a young person once, shortly after the polar ice caps retreated, and I distinctly recall believing that virtually all adults were clueless goobers.
+ - The only really good place to buy lumber is at a store where the lumber has already been cut and attached together in the form of furniture finished and put inside boxes.
+ - The Democrats seem to be basically nicer people, but they have demonstrated time and again that they have the management skills of celery.
+
+500 quotes

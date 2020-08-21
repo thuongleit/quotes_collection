@@ -1,0 +1,43 @@
+ - The four sayings that lead to wisdom: I was wrong I’m sorry I don’t know I need help.
+ - Where there is love there is courage, where there is courage there is peace, where there is peace there is God. And when you have God, you have everything.
+ - Life is change. If you aren’t growing and evolving, you’re standing still, and the rest of the world is surging ahead.
+ - No good ever comes from putting up walls. What people mistake for safety is in fact captivity. And few things thrive in captivity.
+ - When someone stabs you it’s not your fault that you feel pain.
+ - What are you afraid of? I’m afraid of not recognizing Paradise.
+ - Fear lives in the head. And courage lives in the heart. The job is to get from one to the other.
+ - What people mistook for safety was in fact captivity.
+ - I went through a period in my life when I had no friends, when the phone never rang, when I thought I would die from loneliness. I know that the real blessing here isn’t that I have a book published, but that I have so many people to thank.
+ - Things are strongest where they’re broken.
+ - A good journalist, as you know, is a great listener. And so’s a good writer. And I got to listen to people for almost 20 years. That serves me well, I hope, when I try to understand how a character might be feeling, or how they might react.
+ - But, like peace, comfort didn’t come from hiding away or running away. Comfort first demanded courage.
+ - Or – perhaps – I should just worry about my own behavior and let others be who they are.
+ - The night is a strawberry.
+ - Life is choice. All day, everyday. Who we talk to, where we sit, what we say, how we say it. And our lives become defined by our choices. It’s as simple and as complex as that. And as powerful. so when I’m observing that’s what I’m watching for. The choices people make.
+ - Better to accept the wretched truth than struggle, twisting to make a wish a reality.
+ - The women in the room chatted about love, about childhood, about losing parents, about Mr. Spock, about good books they’d read. They mothered each other.
+ - The leaves had fallen from the trees and lay crisp and crackling beneath his feet. Picking one up he marveled, not for the first time, at the perfection of nature where leaves were most beautiful at the very end of their lives.
+ - Now here’s a good one: you’re lying on your deathbed. You have one hour to live. Who is it, exactly, you have needed all these years to forgive?
+ - How much more courage it took to be kind than to be cruel.
+ - Few things are better in the world than a room full of librarians. I consider them literary heroes. The keepers and defenders of the written word.
+ - I was tired of seeing the Graces always depicted as beautiful young things. I think wisdom comes with age and life and pain. And knowing what matters.
+ - Foolish people are never harmless. Stupidity accounts for as many crimes as anger and greed.
+ - Myrna could spend happy hours browsing bookcases. She felt if she could just get a good look at a person’s bookcase and their grocery cart, she’d pretty much know who they were.
+ - I had to learn compassion. Had to learn what it felt like to hate, and to forgive and to love and be loved. And to lose people close to me. Had to feel deep loneliness and sorrow. And then I could write.
+ - To be honest, the only thing I ever really wanted to be was a writer – since I read ‘Charlotte’s Web’ as a child.
+ - A journalist also needs to be disciplined, and so do I. I am, essentially, lazy. Without discipline I’d be just a mass of gummy bears on the sofa instead of on book tour with my eighth novel.
+ - I’m just like this. I have no talent for choosing my battles. Life seems, strangely, like a battle to me. The whole thing.
+ - It’s a shame that creativity and sloth look exactly the same.
+ - A good novel is a good novel, pointe finale. And I think what I’m writing is exactly that.
+ - Don’t mistake dramatics for a conscience.
+ - Aid workers, when handing out food to starving people, quickly learn that the people fighting for it at the front are the people who need it least. It’s the people sitting quietly at the back, too weak to fight, who need it the most. And so too with tragedy.
+ - I turned down all the requests for the rights to the books, for years, mostly because they wanted the rights to the characters, and to turn it into a TV series. This would have allowed them to do anything they wanted with the characters, and that just wasn’t an option for me.
+ - Every decade of my life I attempted to write a novel. But I had nothing to say. I was far too self-absorbed, and now I realize I was writing for others, so that they’d applaud me, see my genius, tell me how wonderful I am, or be jealous of my success.
+ - He tried to let her know it would be all right. Eventually. Life wouldn’t always be this painful. The world wouldn’t always be this brutal. Give it time, little one. Give it another chance. Come back.
+ - In winter the very ground seemed to reach up and grab the elderly, yanking them to earth as though hungry for them.
+ - Every year the hunters shot cows and horses and family pets and each other. And unbelievably, they sometimes shot themselves, perhaps in a psychotic episode where they mistook themselves for dinner.
+ - It is very, very dangerous to come between a person and their beliefs.
+ - Winning doesn’t mean my book is better than anyone else’s. It means I’m very fortunate. And I should be very, very aware of that. And grateful.
+ - I’ve seen enough successful writers who no longer seem to care when they are recognized with an award, and I think that’s just tragic.
+ - What did falling in love do for you? Can you ever really explain it? It filled empty spaces I never knew were empty. It cured a loneliness I never knew I had. It gave me joy. And freedom. I think that was the most amazing part. I suddenly felt both embraced and freed at the same time.
+
+41 quotes

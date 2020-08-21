@@ -1,0 +1,42 @@
+ - What you seek is seeking you. ~~Rumi
+ - How people treat you is their karma; how you react is yours. ~~Wayne W. Dyer
+ - You have to grow from the inside out. None can teach you, none can make you spiritual. There is no other teacher but your own soul. ~~Swami Vivekananda
+ - The cure for pain is in the pain. ~~Rumi
+ - Whatever happens, take responsibility. ~~Tony Robbins
+ - Meditation is not a way of making your mind quiet. It is a way of entering into the quiet that is already there – buried under the 50,000 thoughts the average person thinks every day. ~~Deepak Chopra
+ - When a train goes through a tunnel and it gets dark, you don’t throw away the ticket and jump off. You sit still and trust the engineer. ~~Corrie ten Boom
+ - Creativity requires the courage to let go of certainties. ~~Erich Fromm
+ - I once had a thousand desires. But in my one desire to know you, all else melted away. ~~Rumi
+ - It’s not the events of our lives that shape us, but our beliefs as to what those events mean. ~~Tony Robbins
+ - The spiritual journey is individual, highly personal. It can’t be organized or regulated. It isn’t true that everyone should follow one path. Listen to your own truth. ~~Ram Dass
+ - In today’s rush we all think too much, seek too much, want too much and forget about the joy of just Being. ~~Eckhart Tolle
+ - When you are offended at any man’s fault, turn to yourself and study your own failings. Then you will forget your anger. ~~Epictetus
+ - Faith is a passionate intuition. ~~William Wordsworth
+ - Study me as much as you like, you will not know me, for I differ in a hundred ways from what you see me to be. Put yourself behind my eyes and see me as I see myself, for I have chosen to dwell in a place you cannot see. ~~Rumi
+ - To love beauty is to see light. ~~Victor Hugo
+ - Dance, when you’re broken open. Dance, if you’ve torn the bandage off. Dance in the middle of the fighting. Dance in your blood. Dance when you’re perfectly free. ~~Rumi
+ - It is no measure of health to be well adjusted to a profoundly sick society. ~~Jiddu Krishnamurti
+ - But who prays for Satan? Who, in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most? ~~Mark Twain
+ - If I were not a physicist, I would probably be a musician. I often think in music. I live my daydreams in music. I see my life in terms of music. ~~Albert Einstein
+ - Never confuse a single defeat with a final defeat. ~~F. Scott Fitzgerald
+ - When you judge another, you do not define them, you define yourself. ~~Wayne W. Dyer
+ - Nothing ever goes away until it has taught us what we need to know. ~~Pema Chödrön
+ - Doing what you love is the cornerstone of having abundance in your life. ~~Wayne W. Dyer
+ - I offer you peace. I offer you love. I offer you friendship. I see your beauty. I hear your need. I feel your feelings. ~~Mahatma Gandhi
+ - Security is mostly a superstition. It does not exist in nature. ~~Helen Keller
+ - People only see what they are prepared to see. ~~Ralph Waldo Emerson
+ - Whatever relationships you have attracted in your life at this moment, are precisely the ones you need in your life at this moment. There is a hidden meaning behind all events, and this hidden meaning is serving your own evolution. ~~Deepak Chopra
+ - All I have seen teaches me to trust the creator for all I have not seen. ~~Ralph Waldo Emerson
+ - Expect great things from God, attempt great things for God. ~~William Carey
+ - The greatest day in your life and mine is when we take total responsibility for our attitudes. That's the day we truly grow up. ~~John C. Maxwell
+ - Work harder on yourself than you do on your job. ~~Jim Rohn
+ - We find comfort among those who agree with us – growth among those who don’t. ~~Frank A. Clark
+ - Come, come, whoever you are. Wanderer, worshiper, lover of leaving. It doesn’t matter. Ours is not a caravan of despair. come, even if you have broken your vows a thousand times. Come, yet again, come, come. ~~Rumi
+ - To go out of your mind at least once a day is tremendously important. By going out of your mind, you come to your senses. ~~Alan Watts
+ - There’s nothing sadder in this world than to awake Christmas morning and not be a child. ~~Erma Bombeck
+ - There is not one blade of grass, there is no color in this world that is not intended to make us rejoice. ~~John Calvin
+ - Preach the Gospel at all times and when necessary use words. ~~Francis of Assisi
+ - Faith is to believe what you do not see; the reward of this faith is to see what you believe. ~~Saint Augustine
+ - You may encounter many defeats, but you must not be defeated. In fact, it may be necessary to encounter the defeats, so you can know who you are, what you can rise from, how you can still come out of it. ~~Maya Angelou
+
+40 quotes

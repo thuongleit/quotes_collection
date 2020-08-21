@@ -1,0 +1,26 @@
+ - Flying is more than a sport and more than a job; flying is pure passion and desire, which fill a lifetime.
+ - It’s unbelievable what one squadron of twelve aircraft did to tip the balance.
+ - Only in the spirit of attack, born in a brave heart, will bring success to any fighter aircraft, no matter how highly developed it may be.
+ - During the Battle of Britain the question “fighter or fighter-bomber?” had been decided once and for all: The fighter can only be used as a bomb carrier with lasting effect when sufficient air superiority has been won.
+ - As a fighter pilot I know from my own experiences how decisive surprise and luck can be for success, which in the long run comes only to the one who combines daring with cool thinking.
+ - The colossus of World War II seemed to be like a pyramid turned upside down, and for the moment the whole burden of the war rested on the few hundred German fighter pilots on the Channel coast.
+ - An excellent weapon and luck had been on my side. To be successful, the best fighter pilot needs both.
+ - Of course, the outcome of the war would not have been changed. The war was lost perhaps, when it was started. At least it was lost in the winter of ’42, in Russia.
+ - The battle is tough but if you reach where you want to go, then at least in some sense it is worth it.
+ - To use a fighter as a fighter-bomber when the strength of the fighter arm is inadequate to achieve air superiority is putting the cart before the horse.
+ - Superior technical achievements – used correctly both strategically and tactically – can beat any quantity numerically many times stronger yet technically inferior.
+ - Many pilots of the time were the opinion that a fighter pilot in a closed cockpit was an impossible thing, because you should smell the enemy. You could smell them because of the oil they were burning.
+ - The German Luftwaffe always fought without any reserves. This is also the reason why we have pilots with extremely high numbers of victories.
+ - According to Goering and the Luftwaffe High Command, they were supposed to be the fighter elite.
+ - For the first time I was flying by jet propulsion. No engine vibrations. No torque and no lashing sound of the propeller. Accompanied by a whistling sound, my jet shot through the air. Later when asked what it felt like, I said, “It felt as though angels were pushing”.
+ - And most of these pilots were lost during the first five flights.
+ - I made a written report which is still today in existence. I have a photocopy of it, and I am saying that in production this aircraft could perhaps substitute for three propeller- driven aircraft of the best existing type. This was my impression.
+ - I would like to mention that I have flown the 262 first in May ’43. At this time, the aircraft was completely secret. I first knew of the existence of this aircraft only early in ’42 – even in my position. This aircraft didn’t have any priority in design or production.
+ - Nine g’s is good, if the pilot can stand it. We couldn’t stand it. Not in the airplanes of World War II.
+ - When I was fired from my post as General of the Fighter Arm, I was to give proof that this jet was a superior fighter. And that’s when we did it. I think we did it.
+ - Never abandon the possibility of attack. Attack even from a position of inferiority, to disrupt the enemy’s plans. This often results in improving one’s own position.
+ - I had to inspect all fighter units in Russia, Africa, Sicily, France, and Norway. I had to be everywhere.
+ - If we would have had the 262 at our disposal – even with all the delays – if we could have had in ’44, ah, let’s say three hundred operational, that day we could have stopped the American daytime bombing offensive, that’s for sure.
+ - We have built a total of about 1250 of this aircraft, but only fifty were allowed to be used as fighters – as interceptors. And out of this fifty, there were never more than 25 operational. So we had only a very, very few.
+
+24 quotes

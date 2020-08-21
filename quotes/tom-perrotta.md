@@ -1,0 +1,45 @@
+ - From a distance, it makes perfect sense that the people and the things you think will save you are the very ones that have the power to disappoint you most bitterly, but up close it can hit you as a bewildering surprise.
+ - They both seemed to understand that describing it was beyond their powers, the gratitude that spreads through your body when a burden gets lifted, and the sense of homecoming that follows, when you suddenly remember what it feels like to be yourself.
+ - When things don’t go well, it helps to think of yourself as a genius and the rest of the world as a bunch of idiots.
+ - Every minute we were together, I felt like I was wandering in the dark through a strange house, groping for a light switch. And then, whenever I found one and turned it on, the bulb was dead.
+ - If anything, he seemed a little lonely, all too ready to open his heart at the slightest sign of interst.
+ - To this day, she’s still sad. Because there’s not some finite amount of pain inside us. Our bodies and minds just keep manufacturing more of it. I’m just saying that I took the pain that was inside of her at that moment and made it my own. And it didn’t hurt me at all.
+ - Sooner or later we all lose our loved ones. We all have to suffer, every last one of us.
+ - Maybe that’s what we look for in the people we love, the spark of unhappiness we think we know how to extinguish.
+ - After all, what was adult life but one moment of weakness piled on top of another? Most people just fell in line like obedient little children, doing exactly what society expected of them at any given moment, all the while pretending that they’d actually made some sort of choice.
+ - It just took some people a little longer than others to realize how few words they needed to get by, how much of life they could negotiate in silence.
+ - Once you’d broken through that invisible barrier that separates one person from another, you were connected forever, whether you liked it or not.
+ - I read ‘The Great Gatsby’ in high school and was hypnotized by the beauty of the sentences and moved by the story about the irrevocability of lost love.
+ - It felt good, the whole family together on a sunny morning in a wholesome environment. If it hadn’t been for the warshiping God part, he would have happily attended church on a regular basis.
+ - Back then, when everybody thought the world would last forever, nobody had time for anything.
+ - It’s not the cheating. It’s the hunger for an alternative. The refusal to accept unhappiness.
+ - I write about kids growing up, I write a lot about schools and parents, and all of my experiences with those things have been suburban experiences.
+ - I find that even small changes sometimes jog you out of a mental rut.
+ - I no longer believe that just about everything is funny, if viewed from the proper angle.
+ - I’ve been a little bit obsessed with religion, without being a religious person, for about a decade.
+ - I think I’m fascinated by the power of religion in our culture. Like a lot of secular, liberal people, I ignored it for a long time. Lately, of course, just from a political perspective, it’s impossible to ignore.
+ - It’s like the human race has been programmed for misery.
+ - My wife and I left New York when she got pregnant – we just thought it would be really hard to stay in the city.
+ - I’m not sure that it’s possible to write a novel about people who don’t transgress or stumble, people who don’t surprise themselves with the things they do, people who can explain all their actions with perfect logical consistency. At least it’s not possible for me to write that sort of novel.
+ - When I was writing ‘The Abstinence Teacher,’ I really tried to immerse myself in contemporary American evangelical culture.
+ - I really wanted to be a musician, but it turned out I had no sense of time.
+ - I have actual dreams of Bruce Springsteen calling me up on stage to wear a bandanna and play rhythm guitar next to Little Steven.
+ - My mythic version of America is very much about parents and children, and in my experience, the suburban setting is where that particular drama plays out. Which isn’t to say that there aren’t parents and children in cities or on farms. I just don’t know them.
+ - The interesting part about the writing process is that you can never see all the way to the end, not if something is happening over the course of a year and a half, or two years.
+ - Because, really, what was worse than lying wide-awake in the dark, watching your life drip away, one irreplaceable minute after another?
+ - The lesson you have to learn as novelist is how to be collaborative, and how to say, “I don’t get to dictate this.”
+ - I was writing very early, like I was involved in our high school literary magazine, which was called ‘Pariah.’ The football team was the Bears, and the literary magazine was ‘Pariah.’ It was great. It was definitely a real sub-culture. But I wrote stories for them.
+ - I used to describe myself as a comic novelist, but my concerns seem to have darkened over the past few years.
+ - He made me think of all the books I hadn’t read, and all the ones I’d read but hadn’t fully understood.
+ - I was a garbage man in New Jersey in summers during college at Yale. Everybody else got to go to Switzerland and I got to go to the dump.
+ - I don’t really distinguish between sympathy and honesty when I’m writing. The two go together – I’m interested in inhabiting my characters, seeing the world through their eyes.
+ - She would be a mentor and an inspiration to girls like herself, the quiet ones who’d sleepwalked their way through high school, knowing nothing except that they couldn’t possibly be happy with any of the choices the world seemed to be offering them.
+ - I’m used to adapting my novels for feature film – it can be challenging to cut and compress three or four hundred pages into two hours of dramatic action.
+ - My novels are certainly more exciting than my own life.
+ - I did a lot of reading of the Bible and became fascinated with the idea of the Rapture. It’s pretty wild. I hadn’t heard of it until I was in college.
+ - Apparently even the most awful tragedies, and the people they’d ruined, got a little stale after a while.
+ - As for writing about temptation, there’s no drama without temptation, and no novel without drama.
+ - Nothing beats novel writing because it’s complete expression of you. You just control everything. Not even a movie director has that level of control.
+ - It just so happened that for most of my life I’ve lived in the suburbs.
+
+43 quotes

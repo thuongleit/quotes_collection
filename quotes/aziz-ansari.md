@@ -1,0 +1,85 @@
+ - Sometimes you gotta work a little, so you can ball a lot.
+ - When I bet on horses, I never lose. Why? I bet on all the horses.
+ - I’m like an elephant, ok? If I walk into a room, it’s like, OK, he’s in there.
+ - I have never taken the high road, but I tell other people to ’cause then there’s more room for me on the low road.
+ - Oh, am I wearing an ascot? I didn’t notice.
+ - If you believe that men and women have equal rights, if someone asks if you’re feminist, you have to say yes because that is how words work.
+ - One of the big things I miss about New York is not my friends so much; it’s Shake Shack, the burger place. I miss Shake Shack.
+ - If you look up feminist in the dictionary, it just means someone who believes men and women have equal rights...
+ - Others fear what the morrow may bring. I am afraid of what happened yesterday.
+ - I prefer being totally sober myself.
+ - When you meet someone you really like and connect with, I think that’s very special, and not to be taken for granted.
+ - I have no interest in art. Let me clarify – I have no interest in non-nude images.
+ - I just think it’s sad that the main places in our culture that we designate to meet new people are bars and nightclubs...
+ - I like going out and I like being single, but a growing part of me would rather just stay home, cook food with someone I really like, and do nothing.
+ - The four sweetest words in the English language – ‘You wore me down.’
+ - I’m so jealous of people who have crushes on people they go to school with, or work with. That’s such a blessing. You actually get to see them all the time and spend time with them.
+ - Fiddling knobs, touching keys, having fun with a full grown man.
+ - She broke up with me. Didn’t really tell me why. Luckily when you’re the guy, you can just tell people she’s crazy. ‘Hey, Tom, I heard you and Lucy broke up.’ ‘Yeah, man. Turns out, she’s crazy.’ That’s what they always do on Entourage.
+ - Everyone steals. My favorite movie is Love Don’t Cost a Thing with Nick Cannon. Which is based on Can’t Buy Me Love, which is based on Kramer vs. Kramer, or something, which I think was Shakespeare.
+ - My dad grew up basically in a hut in Taiwan without enough food to eat. And within one generation his son in America gets to do a comedy show about whatever he wants.
+ - One of my life goals is to be a best man. It’s a baller position. You get drunk, you make speeches, and you make love to the prettiest bridesmaid. Usually standing from behind.
+ - I guess my music taste is pretty predictable: I like new indie rock stuff, older stuff.
+ - Instead of yelling your opinion, or telling people to shut up, or engaging in this clickbait-internet culture, have a dialogue with someone and ask people questions and listen to what they have to say.
+ - Oh, what’s this in my shoe? Red carpet insole. Everywhere I go, I’m walking on red carpet.
+ - I strapped an MP3 player to one of those floor-cleaning robots. Call him DJ Roomba – little guy cruises around and plays music. What’s hot, DJ Roomba!
+ - At the risk bragging, one of the things I’m best at is riding coattails. Behind every successful man is me, smiling and taking partial credit.
+ - I’ve never done online dating.
+ - I like the brand Band of Outsiders. Their suits are cut really slim, for smaller framed gentlemen.
+ - I’m in a situation with this girl that’s as hopeless as overthrowing the Bush administration.
+ - You don’t know Jay-Z’s scedule. He’s a renaissance man.
+ - If thou canst walk on water, thou art no better than a straw. If thou canst fly in the air, thou art no better than a fly. Conquer thy heart that thou mayest become somebody.
+ - I can’t think of any bank robbery comedy where it’s about two normal guys. It’s kind of like Superbad meets Heat, which is a cool combo, and it’s just fun doing a normal guy that’s robbing a bank.
+ - Writing your own jokes, you just kind of keep working on something until you think it might work, and then you try it out and hope for the best.
+ - I’m an optimist – I feel like an amazing part of life is that at any moment.
+ - I think absurdist humor is funny...
+ - Come cook food with me and do nothing.
+ - Your favorite kind of cake can’t be birthday cake, that’s like saying your favorite kind of cereal is breakfast cereal.
+ - I have found that she is as kind and caring a person as she is hilarious. Simply put, Amy Poehler is my hero.
+ - A lot of people my age think stand up sucks.
+ - Why would anyone get married and have babies? That’s the dumbest idea I’ve ever heard in my life. Or the scariest thing I’ve ever heard in my life.
+ - It’s much more fun to share and laugh at the bad times and the frustrations. I find you get a much deeper connection with the audience that way.
+ - I write characters that are based on elements of people I know and experiences I’ve really had.
+ - Yeah, I’ve been a little down. Totally natural. I’m getting a divorce, but now I’m ready to pull myself up by some G-strings.
+ - Whats the worst that could happen?! The worst that could happen is he could cut off your legs and use them to make stilts that look like legs!
+ - Even in my stand-up, there’s a lot more positivity and enthusiasm rather than negative, I-hate-everything vibes.
+ - What if I couldn’t read? I wouldn’t be able to text my friends movie times or even order cheese biscuits from Red Lobster!
+ - I have a couple of ‘doing caps’ in my wallet. That’s what I call condoms.
+ - Come on, man, I got a full beard!
+ - Regardless of your ethnicity or anything, if you do great work, people will notice and you’ll get hired.
+ - I always have my setlist planned out, but the best moments are when the energy of the crowd just gets your mind working and you are able to come up with new tags for jokes and just riff off things in the room.
+ - I was 18 when I started. I was hanging out with some friends and they asked if I had tried stand-up before. I hadn’t, but I thought: ‘What the hell?’ So I went to an open mic night, and I liked it.
+ - In this era, we have more choice than any group of people ever. When you are out at night, anyone in the universe can contact you instantly. Think about how crazy that is compared to even a few decades ago.
+ - I’m the kind of person, if I see something, like a funny video, I want to share it. With Twitter and Tumblr you can do that on a mass scale, and people get to know your personality.
+ - Acting is a plum gig, and then animation is an even more plum gig.
+ - I was a dishwasher at one of those Japanese places that cook on your table. Not too fun.
+ - To be honest, I tend to romanticize the past, and though I appreciate all the conveniences of modern life, sometimes I yearn for simpler times.
+ - Most of my teachers when I grew up were like older white women. So, I couldn’t really channel them.
+ - Let’s have a moment of silence for all the chubby Asian dudes that are getting ‘Gangnam style!’ yelled at them by bros around the world.
+ - I guess after college, I just got really into food. I also think going on the road doing stand-up makes you more into food. Because when you travel like that, one of the things to do is find really good places to eat.
+ - No one’s trying to get with jugglers.
+ - It can take a few months to get a new 10 minutes. Usually it takes like 10 times of repeatedly trying different variations of a joke until I land on one I think is really good.
+ - Any jokes I make I try to make sure it’s on story and helps the characters and makes sense with the movie.
+ - I weirdly do consider myself an optimist about love.
+ - Do you realize how much better the world would be if we all just treated each other the same way black dudes treat magicians?
+ - I’m kind of obsessed with food. I like to eat.
+ - You should really treat stand-up like you would a play. It’s a one-man play.
+ - I was surprised to learn that research showed arranged couples tended to be happier in the long run.
+ - I’m kind of obsessed with food. I like to eat. When I tour, it’s like, well, like a food tour as much as a comedy tour.
+ - London seems to be a town with a lot of comedy fans and people that really enjoy stand-up.
+ - Comedians don’t have hits. You have to have a whole brand-new hour. You have no hits to rely on.
+ - The most influential thing was the two Chris Rock specials that came out when I was in high school. I was obsessed with that stuff.
+ - I’ve always tried to maintain that I don’t have any advice to give. I’m a curious observer.
+ - I have an amazing metabolism. I’m sure that’ll be gone one day. But I like to exercise, too, so I don’t think I’ll ever get really fat.
+ - What’s cool about Twitter is that you can make a joke about something very of-the-moment or random that I wouldn’t be able to joke about in stand-up.
+ - For the majority of the time, I may as well have been just a really tan white kid. You know, I may as well have just been, like, a fat kid.
+ - This is one of my favorite pick up strategies: I’m constantly giving women my keys. So far, none of them have shown up. Matter of time. And I’ve been robbed twice.
+ - With stand-up, it’s more interesting to hear about people’s failures than their successes.
+ - Stand-up comedy is a raunchy profession.
+ - I talk about stuff like my Blackberry, Lost, the internet, music, etc. so I guess that leads to the “nerd” moniker. But I don’t get it that much to be honest. I guess its better than being labeled a “racist” comedian.
+ - Being a rapper is about being cool, but being a comedian, you’re not supposed to be the coolest guy.
+ - I just didn’t want to be pigeonholed as an ‘ethnic comic’ or an ‘Asian comic.’ I just wanted to be on the same playing field as everyone else.
+ - Everyone’s first thought is “These women are going to take advantage of you” or “Someone’s only going to date you because you’re famous.” That stuff’s not really an issue because that’s super-easy to see through.
+ - It’s the hardest thing to come up with an hour of material that can consistently keep people laughing.
+
+83 quotes

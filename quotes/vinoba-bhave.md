@@ -1,0 +1,21 @@
+ - Politics And Religion Are Obsolete, The Time Has Come For Science And Spirituality.
+ - It is only when our life proceeds within bounds and in an accepted, disciplined way, that the mind can be free.
+ - We cannot fight new wars with old weapons.
+ - When a king speaks, the armies move. But when a wise man speaks, only the beard shakes.
+ - The river flows at its own sweet will, but the flood is bound in the two banks. If it were not thus bound, its freedom would be wasted.
+ - Though the names karma yoga and sannyasa are different, the truth at the heart of both is the same.
+ - If a man’s house is full of medicine bottles, we infer the man is an invalid. But if his house is full of books, we conclude he is intelligent.
+ - All revolutions are spiritual at the source. All my activities have the sole purpose of achieving a union of hearts.
+ - If you want to cut down a tree, it is no use to climb into its branches.
+ - When a thing is true, there is no need to use any arguments to substantiate it.
+ - The main reason why we look constantly to the Gita is that, whenever we need help, we may get it from the Gita. And, indeed, we always do get it.
+ - Life does not mean mere karma or mere bhakti or mere jnana.
+ - We have seen from experience that, if we are in the habit of walking regularly on the same road, we are able to think about other things while walking, without paying attention to our steps.
+ - If we could only snap the fetters of the body that bind the feet of the soul, we shall experience a great joy. Then we shall not be miserable because of the body’s sufferings. We shall become free.
+ - In this world of chance and change and mutability, the fulfillment of any resolve depends on the will of the Lord.
+ - Do not allow yourself to imagine that revolutionary thinking can be propagated by governmental power.
+ - We cannot even recollect the actions of our infancy, our childhood is like something written on a slate and rubbed off.
+ - Human life is full of the play of samskaras – tendencies developed by repeated actions.
+ - Innumerable actions are going on through us all the time. If we started counting them, we should never come to an end.
+
+19 quotes

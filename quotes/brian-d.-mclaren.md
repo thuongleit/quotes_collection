@@ -1,0 +1,24 @@
+ - It’s not about the church meeting your needs; it’s about joining the mission of God’s people to meet the world’s needs.
+ - I’m sure I am wrong about many things, although I’m not sure exactly which things I’m wrong about. I’m even sure I’m wrong about what I think I’m right about in at least some cases.
+ - Jesus doesn’t dominate the other, avoid the other, colonize the other, intimidate the other, demonize the other, or marginalize the other. He incarnates into the other, joins the other in solidarity, protects the other, listens to the other, serves the other, even lays down his life for the other.
+ - Jesus was short on sermons, long on conversations; short on answers, long on questions; short on abstraction and propositions, long on stories and parables; short on telling you what to think, long on challenging you to think for yourself.
+ - If your goal is to produce firefighters and rescue workers, you have to produce people willing to enter burning buildings.
+ - Too often we see the Bible through whatever lens we get from our culture.
+ - To be a Christian in a generously orthodox way is not to claim to have the truth captured, stuffed, and mounted on the wall.
+ - Our message and methodology have changed, do change, and must change if we are faithful to the ongoing and unchanging mission of Jesus Christ.
+ - Ultimately, I hope Jesus will save Buddhism, Islam and every other religion, including the Christian religion, which often seems to need saving about as much as any other religion does.
+ - The cross is almost a distraction and false advertisement for God.
+ - I love writers who are insightful enough to be cynical but choose not to be.
+ - When any sector of the Church stops learning, God simply overflows the structures that are in the way and works outside them with those willing to learn.
+ - That in itself is an act of peacemaking, because we’re seeking to align our wills with God’s will, our dreams with God’s dream.
+ - You know what, the thing that breaks my heart is that there’s no way I can answer it without hurting someone on either side.
+ - I had to face the possibility that the art of living in the way of Jesus was no longer carried on in a holistic way by any single tradition.
+ - The Church has little idea how unorthodox it is at any given moment. If a church can’t yet be perfectly orthodox, it can, with the Holy Spirit’s help and by the grace of God, be perpetually reformable.
+ - Joyfully celebrating the killing of a killer who joyfully celebrated killing carries an irony that I hope will not be lost on us. Are we learning anything, or simply spinning harder in the cycle of violence?
+ - Through its appropriation of “texts of terror” and especially through the application of those texts to the Jews, the Christian religion created the conditions for the oppression of Palestinians.
+ - So we must realize this: the suicidal framing story that dominates our world today has no power except the power we give it by believing it. Similarly, believing an alternative and transforming framing story may turn out to be the most radical thing any of us can ever do.
+ - This is why I believe that many of our current eschatologies, intoxicated by dubious interpretations of John’s Apocalypse are not only ignorant and wrong, but dangerous and immoral.
+ - Scripture is something God had ‘let be,’ and so it is at once God’s creation and the creation of the dozens of people and communities and cultures who produced it.
+ - We need not a new set of beliefs, but a new way of believing, not simply new answers to the same old questions, but a new set of questions.
+
+22 quotes

@@ -1,0 +1,26 @@
+ - Feet, what do I need you for when I have wings to fly?
+ - At the end of the day, we can endure much more than we think we can.
+ - Passion is the bridge that takes you from pain to change.
+ - Nothing is absolute. Everything changes, everything moves, everything revolves, everything flies and goes away.
+ - I drank to drown my sorrows, but the damned things learned how to swim.
+ - I paint flowers so they will not die.
+ - I am my own muse. I am the subject I know best. The subject I want to better.
+ - I don't paint dreams or nightmares, I paint my own reality.
+ - Nothing is worth more than laughter. It is strength to laugh and to abandon oneself, to be light. Tragedy is the most ridiculous thing.
+ - I paint myself because I am so often alone and because I am the subject I know best.
+ - I want a storm to come and flood us into a song that no one wrote.
+ - Everyone’s opinions about things change over time. Nothing is constant. Everything changes. And to hold onto some dogged idea forever is a little rigid and maybe naive.
+ - I love you more than my own skin and even though you don’t love me the same way, you love me anyways, don’t you? And if you don’t, I’ll always have the hope that you do, and i’m satisfied with that. Love me a little. I adore you.
+ - I hope the exit is joyful and i hope never to return.
+ - I think that little by little I’ll be able to solve my problems and survive.
+ - My painting carries with it the message of pain.
+ - I tried to drown my sorrows, but the bastards learned how to swim, and now I am overwhelmed by this decent and good feeling.
+ - Only one mountain can know the core of another mountain.
+ - Mankind owns its destiny, and its destiny is the earth. We are destroying it until we have no destiny.
+ - The only thing I know is that I paint because I need to, and I paint whatever passes through my head without any other consideration.
+ - They thought I was a Surrealist, but I wasn’t. I never painted dreams. I painted my own reality.
+ - The most important thing for everyone in Gringolandia is to have ambition and become ‘somebody,’ and frankly, I don’t have the least ambition to become anybody.
+ - No moon, sun, diamond, hands – fingertip, dot, ray, gauze, sea. pine green, pink glass, eye, mine, eraser, mud, mother, I am coming.
+ - There have been two great accidents in my life. One was the train the other was Diego. Diego was by far the worst.
+
+24 quotes

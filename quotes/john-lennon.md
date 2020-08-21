@@ -1,0 +1,443 @@
+ - Everything will be okay in the end. If it's not okay, it's not the end.
+ - A dream you dream alone is only a dream. A dream you dream together is reality.
+ - Time you enjoy wasting, was not wasted.
+ - A mistake is only an error. It becomes a mistake when you fail to correct it.
+ - Being honest may not get you a lot of friends but it’ll always get you the right ones.
+ - You may say I’m a dreamer, but I’m not the only one. I hope someday you’ll join us. And the world will live as one.
+ - There are no problems, only solutions.
+ - The more real you get the more unreal the world gets. 
+ - Count your age by friends, not years. Count your life by smiles, not tears.
+ - When I was 5 years old, my mother always told me that happiness was the key to life. When I went to school, they asked me what I wanted to be when I grew up. I wrote down ‘happy’. They told me I didn’t understand the assignment, and I told them they didn’t understand life.
+ - As usual, there is a great woman behind every idiot.
+ - Reality leaves a lot to the imagination.
+ - Part of me suspects that I’m a loser, and the other part of me thinks I’m God Almighty.
+ - Everything is clearer when you're in love.
+ - It’s weird not to be weird.
+ - When you do something noble and beautiful and nobody noticed, do not be sad. For the sun every morning is a beautiful spectacle and yet most of the audience still sleeps.
+ - Creativity is a gift. It doesn't come through if the air is cluttered.
+ - Love is the greatest refreshment in life.
+ - Love is like a flower – you’ve got to let it grow.
+ - Time wounds all heels.
+ - Living is easy with eyes closed.
+ - Don’t hate what you don’t understand!
+ - All you need is love.
+ - Nothing is real.
+ - Music is everybody’s business. It’s only the publishers who think people own it.
+ - Imagine all the people living life in peace...
+ - I get by with a little help from my friends.
+ - I believe in everything until it’s disproved. So I believe in fairies, the myths, dragons. It all exists, even if it’s in your mind. Who’s to say that dreams and nightmares aren’t as real as the here and now?
+ - You don’t need anybody to tell you who you are or what you are. You are what you are!
+ - We live in a world where we have to hide to make love, while violence is practiced in broad daylight.
+ - It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love.
+ - God is a concept by which we measure our pain.
+ - Everybody seems to think I’m lazy I don’t mind, I think they’re crazy. Running everywhere at such a speed Till they find there’s no need.
+ - Life is very short, and there’s no time for fussing and fighting my friends.
+ - The more I see, the less I know for sure.
+ - Nobody loves you when you’re down and out.
+ - There’s nowhere you can be that isn’t where you’re meant to be...
+ - Our society is run by insane people for insane objectives.
+ - How can I go forward when I don’t know which way I’m facing?
+ - I believe in God, but not as one thing, not as an old man in the sky. I believe that what people call God is something in all of us. I believe that what Jesus and Mohammed and Buddha and all the rest said was right. It’s just that the translations have gone wrong.
+ - Tame birds sing of freedom. Wild birds fly.
+ - Love is a promise, love is a souvenir, once given never forgotten, never let it disappear.
+ - Imagine there’s no heaven, it’s easy if you try. No hell below us, above us only sky. Imagine all the people living for today...
+ - There are places I’ll remember All my life though some have changed Some forever not for better Some have gone and some remain All these places have their moments With lovers and friends I still can recall Some are dead and some are living In my life I’ve loved them all.
+ - One thing you can’t hide – is when you’re crippled inside.
+ - I’m not going to change the way I look or the way I feel to conform to anything. I’ve always been a freak. So I’ve been a freak all my life and I have to live with that, you know. I’m one of those people.
+ - I still believe in peace, love, and understanding.
+ - When I cannot sing my heart, I can only speak my mind.
+ - Remember to let her into your heart.
+ - Love is like a precious plant. You can’t just accept it and leave it in the cupboard or just think it’s going to get on by itself. You’ve got to keep on watering it. You’ve got to really look after it and nurture it.
+ - When you cross the street, take my hand.
+ - Art is only a way of expressing pain.
+ - Tell the truth and make it rhyme.
+ - My role in society, or any artist’s or poet’s role, is to try and express what we all feel. Not to tell people how to feel. Not as a preacher, not as a leader, but as a reflection of us all.
+ - Please don’t spoil my day; I’m miles away and, after all, I’m only sleeping.
+ - If everyone demanded peace instead of another television set, then there’d be peace.
+ - If someone thinks that peace and love are just a cliche that must have been left behind in the 60s, that’s a problem. Peace and love are eternal.
+ - I was feeling insecure you might not love me anymore.
+ - I don’t believe in Beatles, I just believe in me.
+ - Living is easy with eyes closed Misunderstanding all you see It’s getting hard to be someone but it all works out It doesn’t matter much to me.
+ - I am a violent man who has learned not to be violent and regrets his violence.
+ - Money can’t buy me love.
+ - I’m not afraid of death because I don’t believe in it. It’s just getting out of one car, and into another.
+ - You can only breathe out if you breathe in.
+ - Limitless undying love which shines around me like a million suns it calls me on and on across the universe.
+ - When I was about twelve I used to think I must be a genius, but nobody’s noticed. If there is such a thing as a genius, I am one, and if there isn’t I don’t care.
+ - Instant Karma is going to get you.
+ - Whatever gets you through the night.
+ - Women should be obscene and not heard.
+ - Violence begets violence, you know. And you can’t kill off all the violent people or all the murderers. We’d have to kill off the government.
+ - Before Elvis there was nothing.
+ - There are only a few notes. Just variations on a theme.
+ - The thing the sixties did was to show us the possibilities and the responsibility that we all had. It wasn’t the answer. It just gave us a glimpse of the possibility.
+ - You either get tired fighting for peace, or you die.
+ - I don’t expect you to understand after you’ve caused so much pain, but then again-you’re not to blame; you’re just human-a victim of the insane.
+ - I believe that as soon as people want peace in the world they can have it. The trouble is they are not aware they can get it.
+ - I never went to high school reunions. My thing is, out of sight, out of mind. That’s my attitude toward life. So I don’t have any romanticism about any part of my past.
+ - For those of you in the cheap seats I’d like ya to clap your hands to this one; the rest of you can just rattle your jewelry!
+ - We’re more popular than Jesus Christ now.
+ - Nothing affected me until I heard Elvis. Without Elvis there would be no Beatles.
+ - I’ve always considered my work one piece and I consider that my work won’t be finished until I am dead and buried and I hope that’s a long, long time.
+ - In ‘Lucy in the Sky With Diamonds’ I was visualizing Alice in Wonderland, an image of this female who would come and save me – a girl with kaleidoscope eyes who would be the real love of my life. Lucy turned out to be Yoko.
+ - Nothing happened in the sixties except that we all dressed up.
+ - The only reason I went for that goal is that I wanted to say: ‘Now, mummy-daddy, will you love me?’
+ - You can manicure a cat but can you caticure a man?
+ - I only ever asked two people to work with me as a partner. One was Paul McCartney and the other Yoko Ono. Paul and me were the Beatles.
+ - I can’t play guitar, but I can sure make it howl.
+ - What Can I Tell You about Myself which You Have Not Already Found Out from Those Who Do Not Lie?
+ - When I started, rock and roll itself was the basic revolution to people of my age and situation. We needed something loud and clear to break through all the unfeeling and repression that had been coming down on us kids.
+ - A working class hero is something to be.
+ - Don’t believe that jazz about there’s nothing you can do, “turn on and drop out, man” – because you’ve got to turn on and drop in, or they’re going to drop all over you.
+ - It was my Fat Elvis period. I was eating and drinking like a pig. I was depressed and I was crying out for help. It’s real. And I meant it.
+ - There is nothing conceptually better than rock ‘n’ roll. No group, be it Beatles, Dylan or Stones, have ever improved on Whole Lot of Shaking for my money. Or maybe I’m like our parents: that’s my period and I dig it and I’ll never leave it.
+ - At Shea Stadium, I saw the top of the mountain.
+ - Possession isn’t nine-tenths of the law. It’s nine-tenths of the problem.
+ - The first drugs I ever took, I was still at art school, with the group – we all took it together – was Benzedrine from the inside of an inhaler.
+ - Mostly folk music is people with fruity voices trying to keep alive something old and dead. It’s all a bit boring, like ballet: a minority thing kept going by a minority group.
+ - I recently got into Haiku in Japan and I just think it’s fantastic. Obviously, when you get rid of a whole section of illusion in your mind you’re left with great precision.
+ - We’re crazy about this city. Los Angeles? That’s just a big parking lot where you buy a hamburger for the trip to San Francisco.
+ - Like Paul Kraston said, all I ask in life is a water bed, a TV and a typewriter. Well, I’ll just have an ordinary bed, a TV and a guitar.
+ - I’m not saying we’re better or greater, or comparing us with Jesus Christ as a person, or God as a thing, or whatever it is. I just said what I said, and it was wrong, or it was taken wrong. And now it’s all this.
+ - A Conspiracy of silence speaks louder than words.
+ - Make love, not war.
+ - The sun is up, the sky is blue It’s beautiful, and so are you.
+ - Peace in your mind, peace on earth, peace at work, peace at home, peace in the world.
+ - It seems that all revolutions end up with a personality cult – even the Chinese seem to need a father-figure.
+ - Happiness is a good vibe for peace.
+ - The people have the power. All we have to do is awaken the power in the people.
+ - Music is everybody’s possession. It’s only publishers who think that people own it. If you were going to give Rock ‘n’ Roll another name you might as well call it Chuck Berry. We’re more popular than Jesus now; I don’t know which will go first – Rock and Roll or Christianity.
+ - Elvis died the day he went into the army.
+ - Happiness is inside you, not with another person.
+ - Yeah we all shine on, like the moon, and the stars, and the sun.
+ - Turn off your mind, relax, and float downstream.
+ - If you want peace, you won’t get it with violence.
+ - Love is real, real is love.
+ - Come together, right now.
+ - All we are saying is give peace a chance.
+ - Life is what happens to you while you’re planning on doing something else.
+ - The dream is over. I gotta get down to reality. The good old days is garbage.
+ - When you’re drowning, you don’t say ‘I would be incredibly pleased if someone would have the foresight to notice me drowning and come and help me,’ you just scream.
+ - Life happens while we are making other plans.
+ - There are two basic motivating forces: fear and love. When we are afraid, we pull back from life. When we are in love, we open to all that life has to offer with passion, excitement, and acceptance.
+ - You can go to church and sing a hymn, Judge me by the colour of my skin, You can live a lie until you die, One thing you can’t hide is when you’re crippled inside.
+ - I want you to make love, not war, I know you’ve heard it before.
+ - Imagine no possessions; I wonder if you can.
+ - I am he as you are he as you are me and we are all together.
+ - Imagine.
+ - The establishment irritates you – pull your beard, flick your face – to make you fight because once they’ve got you violent they know how to handle you. The only thing they don’t know how to handle is non-violence and humour.
+ - We need to learn to love ourselves first, in all our glory and our imperfections. If we cannot love ourselves, we cannot fully open to our ability to love others or our potential to create.
+ - And So This Is Christmas; And What Have We Done? Another Year Over; A New One Just Begun; And So Happy Christmas; I Hope You Have Fun; The Near And The Dear Ones; The Old And The Young.
+ - Instant Karma’s gonna get you, gonna knock you right on the head.
+ - One day at a time is all we do. One day at a time is good for you.
+ - Happiness is a warm gun.
+ - Work is life, you know, and without it, there’s nothing but fear and insecurity.
+ - If I’d lived in Roman times, I’d have lived in Rome. Where else? Today America is the Roman Empire and New York is Rome itself.
+ - Don’t need a gun to blow your mind.
+ - What we’ve got to do is keep hope alive. Because without it we’ll sink.
+ - Nobody controls me. I’m uncontrollable. The only one who can control me is me, and even that’s barely possible.
+ - All I want is the truth, just give me some truth.
+ - Music touching my soul, the spirit dance was unfolding.
+ - We all have Hitler in us, but we also have love and peace. So why not give peace a chance for once?
+ - When I went to school, they asked me what I wanted to be when I grew up. I wrote down happy.
+ - Nobody Told Me There’d Be Days Like These.
+ - The magic of the music seems to light the way.
+ - You won’t get anything unless you have the vision to imagine it.
+ - Mother, you had me, but I never had you.
+ - You say you want a revolution? Well, you know. We all want to change the world.
+ - Imagine no possesions, I wonder if you can, No need for greed or hunger, A brotherhood of man. Imagine all the people Sharing all the world.
+ - When they’ve tortured and scared you for 20 odd years, then they expect you to pick a career.
+ - I don’t stand back and judge – I do.
+ - We’re trying to sell peace, like a product, you know, and sell it like people sell soap or soft drinks. And it’s the only way to get people aware that peace is possible, and it isn’t just inevitable to have violence. Not just war – all forms of violence.
+ - A day spent wasting time, that you enjoyed, is not time wasted...
+ - Am I crazy or am I a genius? I don’t think I’m either.
+ - The best things in life are free, but you can keep them for the birds and bees; I want money.
+ - We’re mostly macrobiotic, but sometimes I take the family out for a pizza.
+ - We are all Christ and Hitler. Yoko and I want Christ to win.
+ - Half of what I say is meaningless, but I say it just to reach you.
+ - We’re all God. I’m not a god or the God, but we’re all God and we’re all potentially divine-and potentially evil.
+ - It’s better to fade away like an old soldier than to burn out.
+ - I would like to say thank you on behalf of the group and ourselves and I hope we’ve passed the audition.
+ - Our society is run by insane people for insane objectives. I think we’re being run by maniacs for maniacal ends and I think I’m liable to be put away as insane for expressing that. That’s what’s insane about it.
+ - Why in the world are we here? Surely not to live in pain and fear. Why on earth are you there, when you’re everywhere-come and get your share.
+ - Trying to please everybody is impossible – if you did that, you’d end up in the middle with nobody liking you. You’ve just got to make the decision about what you think is your best, and do it.
+ - You’re born in pain and pain is what we’re in most of the time. And I think that the bigger the pain, the more gods we need.
+ - No longer riding on the merry-go-round, I just had to let it go.
+ - Pools of sorrow. Waves of joy.
+ - Happiness Is A Warm Gun not about heroin. A gun magazine was sitting there with a smoking gun on the cover and an article that I never read inside called ‘Happiness Is a Warm Gun.’ I took it right from there. I took it as the terrible idea of just having shot some animal.
+ - If there hadn’t been an Elvis, there wouldn’t have been the Beatles.
+ - When I hold you in my arms and I feel my finger on your trigger I know no one can do me no harm because happiness is a warm gun.
+ - Nothing you can know that isn’t known Nothing you can see that isn’t shown Nowhere you can be that isn’t where you’re meant to be It’s easy.
+ - I don’t know how much money I’ve got. I did ask the accountant how much it came to. I wrote it down on a bit of paper. But I’ve lost the bit of paper.
+ - Free all the prisoners everywhere, all they want is truth and justice, all they need is love and care.
+ - I am the eggman They are the eggmen! I am the walrus!
+ - Look, I wasn’t saying the Beatles are better than God or Jesus. I said ‘Beatles’ because it’s easy for me to talk about Beatles. I could have said TV or the cinema, motor cars or anything popular and I would have gotten away with it.
+ - They hit you at school, they hate you if your clever, and they despise a fool.
+ - Control yourself. You’ll spurt.
+ - Millions of mind guerrillas, raising the spirit of peace and love, not war.
+ - The trouble with government as it is, is that it doesn’t represent the people. It controls them.
+ - What I’m trying to do is to influence all the people I can influence. All those who are still under the dream and just put a big question mark in their mind. The acid dream is over, that is what I’m trying to tell them.
+ - No short-haired, yellow-bellied, son of tricky dicky Is gonna mother hubbard soft soap me With just a pocketful of soap.
+ - I’m cynical about society, politics, newspapers, government. But I’m not cynical about life, love, goodness, death. That’s why I really don’t want to be labeled a cynic.
+ - I am going into an unknown future, but I’m still all here, and still while there’s life, there’s hope.
+ - All music is rehash. There are only a few notes. Just variations on a theme. Try to tell the kids in the Seventies who were screaming to the Bee Gees that their music was just The Beatles redone. There is nothing wrong with the Bee Gees.
+ - I’ll probably be popped off by some loony.
+ - Listen, if anything happens to Yoko and me, it was not an accident.
+ - Surrealism to me is reality. Psychedelic vision is reality to me and always was.
+ - Evolution and all hopes for a better world rest in the fearlessness and open-hearted vision of people who embrace life.
+ - Strawberry Fields is anywhere you want to go.
+ - It’s like being possessed: like a psychic or a medium. I felt like a hollow temple filled with many spirits, each one passing through me, each inhabiting me for a little time and then leaving to be replaced by another.
+ - Don’t let them fool you with dope and cocaine, can’t do you know harm to feel your own pain.
+ - Pools of sorrow waves of joy are drifting thorough my open mind possessing and caressing m.
+ - It’s better to fade away like an old soldier than to burn out. I don’t appreciate worship of dead Sid Vicious or of dead James Dean or of dead John Wayne. It’s the same thing. Making Sid Vicious a hero, Jim Morrison – it’s garbage to me. I worship the people who survive. Gloria Swanson, Greta Garbo.
+ - You better get yourself together, darling, and join the human race.
+ - I can’t remember anything without a sadness so deep that it hardly becomes known to me, so deep that its tears leave me a spectator of my own stupidity.
+ - I’ll be a good boy, please make me well. I promise you anything, get me out of this hell. Cold turkey has got me on the run.
+ - Always remember this: ‘A kiss will never miss, and after many kisses a miss becomes a misses.’
+ - We had one thing in common – we were in love. But love is just a gift, and it doesn’t answer everything and it’s like a precious plant that you have to nurture and look after and all that.
+ - Laurel and Hardy, that’s John and Yoko. And we stand a better chance under that guise because all the serious people like Martin Luther King and Kennedy and Gandhi got shot.
+ - They told me I didn’t understand the assignment, I told them they didn’t understand life.
+ - Everybody’s talking about ministers, sinisters, banisters, and canisters, bishops, fishops, rabbis, and popeyes, bye-bye, bye-byes.
+ - You can’t give a child too much love and if you love somebody, you can’t be with them enough. There’s no such thing.
+ - Strawberry fields forever.
+ - It doesn’t matter how long my hair is or what colour my skin is or whether I’m a woman or a man.
+ - I mean People come up and ask for autographs or say hi but they wont bug you.
+ - It’s no good having, being with people you can dominate all the time. Or being with someone who can dominate you all the time. Because either one is boring.
+ - Guilt for being rich, and guilt thinking that perhaps love and peace isn’t enough and you have to go and get shot or something.
+ - Lack of feeling in an emotional sense is responsible for the way some singers do our songs. They don’t understand and are too old to grasp the feeling. Beatles are really the only people who can play Beatle music.
+ - I’ve withdrawn many times. Part of me is a monk, and part a performing flea! The fear in the music business is that you don’t exist if you’re not at Xenon with Andy Warhol.
+ - I really thought that love would save us all.
+ - When I was 5 years old, my mother always told me that happiness was the key to life.
+ - When I was a child I experienced moments of not wanting to see the ugliness, not wanting to see not being wanted. This lack of love went into my eyes and into my mind.
+ - Imagine all of us living in peace, it’s too beautiful to just be a dream.
+ - I once was the walrus, now I’m John.
+ - I just said what I said and it was wrong. Or it was taken wrong. And now it’s all this.
+ - When somebody is angry with us, we draw a halo around his or her head, in our minds. Does the person stop being angry then? Well, we don’t know! We know, though, that when we draw a halo around a person, suddenly the person starts to look like an angel to us.
+ - I’m not really a career person; I’m a gardener, basically.
+ - If somebody gives me a joint, I might smoke it, but I don’t go after it.
+ - It’s amazing how low you go to get high.
+ - There is an alternative to war. It’s staying in bed and growing your hair.
+ - You’re only awake when you realise you’re awake and when you’re dreaming, it is just as real, whatever happens is just as real – whether you actually do die in a dream or fulfil whatever you’re doing in a dream, it’s, there’s nobody to tell me it isn’t as real as this now, because how do you know?
+ - I’ve always been politically minded, you know, and against the status quo.
+ - Ringo isn’t the best drummer in the world. He isn’t even the best drummer in the Beatles.
+ - Man, you should have seen them kicking Edgar Allan Poe.
+ - The Beatles had gone beyond comprehension. We were smoking marijuana for breakfast. We were well into marijuana and nobody could communicate with us, because we were just glazed eyes, giggling all the time.
+ - You have to be a bastard to make it, and that’s a fact. And the Beatles are the biggest bastards on earth.
+ - You feel alone if you’re the only one thinking ‘wouldn’t it be nice if there was peace and nobody was getting killed.’ So advertise yourself that you’re for peace if you believe in it.
+ - Meanings of all songs come after they are recorded. Someone else has to interpret them.
+ - Surrealism had a great effect on me because then I realised that the imagery in my mind wasn’t insanity. Surrealism to me is reality.
+ - We’re not disinterested in politics. It’s just that politicians are disinteresting.
+ - If art were to redeem man, it could do so only by saving him from the seriousness of life and restoring him to an unexpected boyishness.
+ - The postman wants an autograph. The cab driver wants a picture. The waitress wants a handshake. Everyone wants a piece of you.
+ - What does it mean when a person is such a pacifist that they get shot? I can never understand that.
+ - In Baby You’re A Rich Man the point was, stop moaning, you’re a rich man and we’re all rich, heh heh, baby!
+ - You’re just left with yourself all the time, whatever you do anyway. You’ve got to get down to your own God in your own temple. It’s all down to you, mate.
+ - Nothing will stop me, and whether I’m here or wherever I may be, I’ll always have the same feelings, I’ll say what I feel.
+ - Life is what happens when we are busy doing other things. Peace is not something you wish for; it’s something you make, something you do, something you are and something you give away.
+ - I never listen to the radio. If it’s bad, I make fun of it, and if it’s good, I get jealous that I didn’t think of it.
+ - We were cowards when we sacked him.
+ - Leave a space and something will fill it.
+ - As I play the game of life, I try to make it better each and every day. And when I struggle in the night, The magic of the music seems to light the way.
+ - I wanna hold your gland.
+ - I’m a moldy moldy man I’m moldy thru and thru I’m a moldy moldy man You would not think it true I’m moldy til my eyeballs I’m moldy til my toe I will not dance I shyballs I’m such a humble Joe.
+ - One thing I can tell you is you have to be free. Come together, right now, over me.
+ - It’s alright all of us all living saying ‘oh well there’s enough of us so we won’t have anymore, don’t let anybody else live.’ I don’t believe in that.
+ - Happiness is just how you feel when you don’t feel miserable.
+ - I’ve never voted. I’ve never voted yet although I could have voted for the last ten years.
+ - The Beatles were just a band that made it very, very big, that’s all.
+ - You’d have to give people free rein to attack the local councils or to destroy the school authorities, like the students who break up the repression in the universities. It’s already happening, though people have got to get together more.
+ - My original idea for the cover was better – decapitate Paul – but he wouldn’t go along with it.
+ - I want it to sound like an orange.
+ - I just sat all night looking at him, saying, ‘Wow, it’s incredible.’ When Yoko woke up, I told her, ‘He’s fine,’ and we cried.
+ - The cross of the Legion of Honor has been conferred on me. However, few escape that distinction.
+ - Rituals are important. Nowadays it’s hip not to be married. I’m not interested in being hip.
+ - Without Jimmy Dean, the Beatles never would have existed.
+ - Songwriting is about getting the demon out of me. It’s like being possessed.
+ - Ringo is Ringo, that’s all there is to it. And he’s every bloody bit as warm, unassuming, funny and kind as he seems. He was quite simply the heart of the Beatles.
+ - In England, there are only two things to be, basically: You are either for the labor movement or for the capitalist movement. Either you become a right-wing Archie Bunker if you are in the class I am in, or you become an instinctive socialist, which I was.
+ - It came in a vision – a man appeared on a flaming pie and said unto them, ‘From this day forward you are Beatles with an A.’ Thank you Mister Man, they said, thanking him.
+ - I didn’t leave the Beatles. The Beatles have left the Beatles, but no one wants to be the one to say the party’s over.
+ - Everyone deserves to believe they are beautiful.
+ - Well, I don’t want to be king, I want to be real.
+ - I thought the original Communist revolutionaries coordinated themselves a bit better and didn’t go around shouting about it.
+ - Today’s folk song is rock and roll. Although it happened to emanate from America, that’s not really important in the end because we wrote our own music and that changed everything.
+ - You’re jeans are full of crap. You’re full of beans, you’re in you teens. You’ve lost your mama’s road map.
+ - I don’t want to grow up but I’m sick of not growing up -? that way. I’ll find a different way of not growing up. There’s a better way of doing it than torturing your body.
+ - Peace and love are eternal.
+ - One more stage, one more limo, one more run for your life.
+ - I’m not going to change the way I look or the way I feel to conform to anything.
+ - I thought I was painting in sound a picture of revolution – but I made a mistake, you know. The mistake was that it was anti-revolution.
+ - Without a job all there is to life is boredom and insecurity.
+ - The world is still spinning and so are we and so are you. When the spinning stops, that’ll be the time to worry. Not before.
+ - If you enjoyed the time you wasted, then it wasn’t wasted time.
+ - There’s nothing new under the sun. All the roads lead to Rome. And people cannot provide it for you. I can’t wake you up. You can wake you up. I can’t cure you. You can cure you.
+ - You don’t have to be a star to get a cheese sandwich. You just have to be first.
+ - Love is a promise; love is a souvenir...
+ - It was a choice of making it or still eating chicken onstage.
+ - The more reality we face, the more we realise that unreality is the main programme of the day. The more real we become, the more abuse we take, so it does radicalise us in a way, like being put in a corner. But it would be better if there were more of us.
+ - I used to think it was mere homesickness, then I started getting it at home.
+ - I can’t speak for George, but I pretty damn well know we got fed up of being sidemen for Paul.
+ - All this bit about angels and all the different religions, it’s based on something. I think anything’s possible. I believe in everything until it’s disproved.
+ - Getting out of one car and getting into another.
+ - After The Beatles came on the scene everyone started putting on a Liverpudlian accent.
+ - I started being me about the songs, not writing objectively, but subjectively. I think it was Dylan who helped me realize that – not by any discussion or anything, but by hearing his work.
+ - It was very romantic. It’s all in the song, The Ballad of John and Yoko. If you want to know how it happened, it’s in there. Gibraltar was like a little sunny dream. I couldn’t find a white suit -? I had sort of off-white corduroy trousers and a white jacket. Yoko had all white on.
+ - In one way, I was always hip. I was hip in kindergarten. I was different from the others. There was something wrong with me, I thought, because I seemed to see things people didn’t see. I always saw things in a hallucinatory way.
+ - Reporter lady: What’s that color? John: Hm. I’d call this a color!
+ - It’s pretty hard when you are Caesar and everyone is saying how wonderful you are and they are giving you all the goodies and the girls, it’s pretty hard to break out of that, to say ‘Well, I don’t want to be king, I want to be real.’
+ - Rituals are important.
+ - The world went mad and used us as an excuse.
+ - The Kingdom of Heaven is within you.
+ - Some people say it’s a when you get older fans the kids don’t like you. It’s true.
+ - Nothing really affected me until Elvis.
+ - We were always going to dump him when we found a decent drummer.
+ - I’ve always been politically minded and against the status quo. It’s pretty basic when you’re brought up, like I was, to hate and fear the police as a natural enemy and to despise the army as something that takes everybody away and leaves them dead somewhere.
+ - I felt an obligation even then to write a song that people would sing in the pub or on a demonstration. That is why I would like to compose songs for the revolution.
+ - I don’t purchase records. I do enjoy listening to things like Japanese folk music or Indian music.
+ - People like me are aware of their so-called genius at ten, eight, nine.
+ - It was like being in the eye of a hurricane. You’d wake up in a concert and think, Wow, how did I get here?
+ - I had a lot of it in my day, but I don’t like it. It’s a dumb drug. Your whole concentration goes on getting the next fix. I find caffeine easier to deal with.
+ - Love is the Answer. What was the Question?
+ - All the revolutions have happened when a Fidel or Marx or Lenin or whatever, who were intellectuals, were able to get through to the workers. They got a good pocket of people together and the workers seemed to understand that they were in a repressed state.
+ - Everything is as important as everything else.
+ - I believe Jesus was right, Buddha was right, and all of those people like that are right. They’re all saying the same thing -? and I believe it. I believe what Jesus actually said -? the basic things he laid down about love and goodness -? and not what people say he said.
+ - There are a lot of people walking around with long hair now and some trendy middle class kids in pretty clothes. But nothing changed except that we all dressed up a bit, leaving the same bastards running everything.
+ - Your inside is out and your outside is in.
+ - If I had the capabilities of being something other than I am, I would. It’s no fun being an artist. You know what it’s like, writing, it’s torture.
+ - Sarcasim is the lowest form of humor.
+ - Everything they told me as a kid has already been disproved by the same type of “experts” who made them up in the first place.
+ - I cannot be what I am not.
+ - It looks like I’m going to be 40 and life begins at 40 -? so they promise. And I believe it, too.
+ - I don’t miss it. I’m glad it happened, but I don’t miss it.
+ - The continual awareness of what was going on made me feel ashamed I wasn’t saying anything. I burst out because I could no longer play that game any more, it was just too much for me.
+ - My father and mother split and I never saw my father until I was 20, nor did I see much more of my mother.
+ - We were all on this ship in the sixties, our generation, a ship going to discover the New World. And the Beatles were in the crow’s nest of that ship.
+ - Music’s all right John, but you’ll never make a living out of it.
+ - I was a working-class macho guy who was used to being served and Yoko didn’t buy that. From the day I met her, she demanded equal time, equal space, equal rights.
+ - I think a lot of bad things have happened in the name of the church and in the name of Christ and therefore I shy away from church.
+ - I’ve never really been wanted.
+ - As someone from the working class I was always interested in Russia and China and everything that related to the working class, even though I was playing the capitalist game.
+ - As a child I did a lot of imaginary bits, you know. It depends on the individual, I enjoyed then knocking the nail in, I enjoy knocking nails in walls to hang pictures up, but I also enjoy thinking ‘I’m gonna do that’ but I actually won’t do it, I enjoy imagining doing things just as much.
+ - We gave up everything just to sit at your table.
+ - You know the way people begin to look like their dogs? Well, we’re beginning to look like each other.
+ - You don’t have to be some sort of freak to meditate.
+ - Music is everybody’s possession.
+ - The women are very important too, we can’t have a revolution that doesn’t involve and liberate women. It’s so subtle the way you’re taught male superiority.
+ - Slipping? We’re bigger than Jesus.
+ - I wouldn’t say I was a born writer; I’m a born thinker.
+ - I don’t mind looking to the camera -? it’s people that throw me.
+ - I just like TV. I think to me, it replaced the fireplace when I was a child. They took the fire away and they put a TV in instead and I got hooked on it.
+ - I didn’t really know that much about the Maoists, but I just knew that they seemed to be so few and yet they painted themselves green and stood in front of the police waiting to get picked off.
+ - I was trying to say something about Christianity, the idea that you have to be tortured to attain heaven. I didn’t believe that.
+ - People think the Beatles know what’s going on. We don’t. We’re just doing it.
+ - I feel now at 53 I have grown into a deeper understanding of what a human life is.
+ - My defenses were so great. The cocky rock and roll hero who knows all the answers was actually a terrified guy who didn’t know how to cry. Simple.
+ - The basic thing nobody asks is why do people take drugs of any sort? Why do we have these accessories to normal living to live? I mean, is there something wrong with society that’s making us so pressurized, that we cannot live without guarding ourselves against it?
+ - Of course it’s difficult to know what the workers are really thinking because the capitalist press always only quotes mouthpieces like Vic Feather anyway.
+ - How can you talk about power to the people unless you realise the people is both sexes.
+ - There was something wrong with me, I thought, because I seemed to see things other people didn’t see.
+ - There is not one thing that’s Beatle music. How can they talk about it like that? What is Beatle music? Walrus or Penny Lane? Which? It’s too diverse: I Want to Hold Your Hand or Revolution Number Nine?
+ - I was different, I was always different. Why didn’t anybody notice me?
+ - Everything is true and not true about everything. That’s one thing I’ve learned.
+ - There were very few real folk singers you know, though I liked Dominic Behan a bit and there was some good stuff to be heard in Liverpool. Just occasionally you hear very old records on the radio or TV of real workers in Ireland or somewhere singing these songs and the power of them is fantastic.
+ - Love is you, you and me. Love is knowing we can be.
+ - Love, Love, Love. All you need is love. Love is all you need.
+ - I enjoyed it when football crowds in the early days would sing ‘All together now’ – that was another one. I was also pleased when the movement in America took up ‘Give peace a chance’ because I had written it with that in mind really.
+ - I don’t believe in killing whatever the reason!
+ - I didn’t come after Elvis and Dylan, I’ve been around always. But if I see or meet a great artist, I love ’em.
+ - Mahatma Gandhi and Martin Luther King are great examples of fantastic nonviolents who died violently. I can never work that out. We’re pacifists, but I’m not sure what it means when you’re such a pacifist that you get shot. I can never understand that.
+ - In my case I’ve never not been political, though religion tended to overshadow it in my acid days.
+ - Why don’t people believe us when we say we’re simply in love?
+ - He didn’t come out of my belly, but my God, I’ve made his bones, because I’ve attended to every meal, and how he sleeps, and the fact that he swims like a fish because I took him to the ocean. I’m so proud of all those things. But he is my biggest pride.
+ - I believe in what I do, and I’ll say it.
+ - If we took over Britain, then we’d have the job of cleaning up the bourgeoisie and keeping people in a revolutionary state of mind.
+ - I’d always felt repressed. We were all so pressurised that there was hardly any chance of expressing ourselves, especially working at that rate, touring continually and always kept in a cocoon of myths and dreams.
+ - I’m always proud and pleased when people do my songs. It gives me pleasure that they even attempt them, because a lot of my songs aren’t that doable.
+ - It’s just natural, it’s not a great disaster. People keep talking about it like it’s The End of The Earth. It’s only a rock group that split up, it’s nothing important. You know, you have all the old records there if you want to reminisce.
+ - Well, I just want him to grow up happy. That’s the main thing.
+ - I realized that kids everywhere go for the same stuff; and seeing as we’d done it in England, there’s no reason why we couldn’t do it in America too.
+ - We’re playing those mind games together, pushing the barriers, planting seeds, playing the mind guerilla.
+ - We need to love ourselves first in All our glory and imperfections.
+ - Imagine there’s no varmints. It isn’t hard to do.
+ - I always read the papers, the political bits.
+ - All of us growing up have come to terms with too much pain. Although we repress it, it’s still there. The worst pain is that of not being wanted, of realising your parents do not need you in the way you need them.
+ - We were really professional by the time we got to the States; we had learned the whole game. When we arrived here we knew how to handle the press; the British press were the toughest in the world and we could handle anything. We were all right.
+ - They’ll never be able to forget us.
+ - Lots of people who complained about us receiving the MBE received theirs for heroism in the war -for killing people. We received ours for entertaining other people. I’d say we deserve ours more.
+ - Why is everyone telling me to do it? I already did it.
+ - It seems to me that the students are now half-awake enough to try and wake up their brother workers. If you don’t pass on your own awareness then it closes down again.
+ - I was a great one as a kid for standing and just looking out a window for hours and hours and hours. Now the TV does that for me, except for the view changes immensely.
+ - Everything I’ve ever done is out. I don’t have boxes of unreleased stuff. There’s nothing in the files. I can never keep anything unless I don’t like the sound of it or it didn’t work. If I can sing it to an engineer, I can sing it to anyone...
+ - People are just up tight because the kids are having fun and they didn’t have the same freedom.
+ - I’m not a god or the God, but we’re all God and we’re all potentially divine – and potentially evil. We all have everything within us and the Kingdom of Heaven is nigh and within us, and if you look hard enough you’ll see it.
+ - The artist’s role isn’t to tell people how to feel, but reflect.
+ - What I’d have liked would have been the money and the hit records without the fame.
+ - People asking questions, lost in confusion, well I tell them there’s no problem, only solutions.
+ - Love means having to say you’re sorry every fifteen minutes.
+ - I’ll give you everything I’ve got for a little peace of mind.
+ - As in a love affair, two creative people can destroy themselves trying to recapture that youthful spirit, at twenty-one or twenty-four, of creating without even being aware of how it’s happening.
+ - There’s room at the top they are telling you still, but first you must learn how to smile as you kill.
+ - Somehow the revolutionaries must approach the workers because the workers won’t approach them. But it’s difficult to know where to start; we’ve all got a finger in the dam. The problem for me is that as I have become more real, I’ve grown away from most working-class people.
+ - The greatest artists always come round to simplicity.
+ - I put things down on sheets of paper and stuff them in my pockets. When I have enough, I have a book.
+ - I am like a chameleon, influenced by whatever’s going on. If Elvis can do it, I can do it. If the Everly Brothers can do it, me and Paul can. Same with Dylan.
+ - We should be trying to reach the young workers because that’s when you’re most idealistic and have least fear.
+ - Once the new power has taken over they have to establish a new status quo just to keep the factories and trains running.
+ - Paul and I know each other on a lot of different levels that very few people know about.
+ - I think it’s false, shallow, to be giving to others when your own need is great. The idea is not to comfort people, not to make them feel better but to make them feel worse, to constantly put before them the degradations and humiliations they go through to get what they call a living wage.
+ - The idea of beetles came into my head. I decided to spell it BEATles to make it look like beat music, just a joke.
+ - Christianity will go. It will vanish and shrink. I needn’t argue with that; I’m right and I will be proved right. We’re more popular than Jesus now; I don’t know which will go first – rock and roll or Christianity.
+ - Sitting in an English garden waiting for the sun, and if the sun don’t come, we’ll be standing in the English rain.
+ - In the two books I wrote, even though they were written in a sort of Joycean gobbledegook, there’s many knocks at religion and there is a play about a worker and a capitalist. I’ve been satirising the system since my childhood. I used to write magazines in school and hand them around.
+ - I always like the studio best, once I got the hang of it and the control. I like it because it’s complete control.
+ - I’m an Elvis fan because it was Elvis who really got me out of Liverpool.
+ - I used to hide my real emotions in gobbledegook, like in In His Own Write. When I wrote teenage poems, I wrote in gobbledegook because I was always hiding my real emotions from Mimi.
+ - There are two basic motivating forces: fear and love.
+ - I once had a girl, or should I say she once had me.
+ - I resent performing for frisking idiots who don’t know anything.
+ - If you’re an unknown artist you’re lucky to get an hour in a studio – it’s a hierarchy and if you don’t have hits, you don’t get recorded again.
+ - I’d like to incite people to break the framework, to be disobedient in school, to stick their tongues out, to keep insulting authority.
+ - The second political thing I did was to say ‘The Beatles are bigger than Jesus.’ That really broke the scene, I nearly got shot in America for that. It was a big trauma for all the kids that were following us.
+ - I could still be forgotten when I’m dead. I don’t really care what happens when I’m dead.
+ - I began to realise that we are all oppressed which is why I would like to do something about it, though I’m not sure where my place is.
+ - Don’t underestimate the importance of happiness. As long as you’re happy, who cares what you do?
+ - If people take any notice of what we say, we say we’ve been through the drug scene, man, and there’s nothing like being straight.
+ - From this moment on I know exactly where my life will go: seems that all I really was doing was waiting for love.
+ - And Paul hits this chord and I turn to him and say, ‘That’s it! Do that again!’ In those days, we really used to absolutely write like that – both playing into each other’s noses.
+ - Wouldn’t it be interesting to take Elvis back to his Sun Records period? I don’t know. But I’m content to listen to his Sun Records. I don’t want to dig him up out of the grave.
+ - When I was singing about ‘All You Need Is Love’ I was talking about something I hadn’t experienced.
+ - I know I hurt you then But that was way back when.
+ - The whole thing died in my mind long before the rumpus started. We used to believe the Beatles myth just as much as the public and we were in love with them just the same way. But we were four individuals who eventually recovered our individualities after being submerged in a myth.
+ - I don’t intend to be a performing flea any more. I was the dreamweaver, but although I’ll be around I don’t intend to be running at 20,000 miles an hour trying to prove myself. I don’t want to die at 40.
+ - Why should The Beatles give more? Didn’t they give everything on God’s earth for ten years? Didn’t they give themselves?
+ - I keep on reading the Morning Star newspaper to see if there’s any hope, but it seems to be in the 19th century; it seems to be written for dropped-out, middle-aged liberals.
+ - I’m really very embarrassed about my guitar playing, in one way, because it’s very poor. I can never move but I can make a guitar speak.
+ - I believe in everything until it’s disproved.
+ - That’s part of our policy, is not to be taken seriously, because I think our opposition, whoever they may be, in all their manifest forms, don’t know how to handle humor.
+ - Only by trying on other people’s clothes do we find what size we are.
+ - There is no denying that we are still living in the capitalist world. I think that in order to survive and to change the world, you have to take care of yourself first. You have to survive yourself.
+ - We’d also have to infiltrate the army too, because they are well trained to kill us all.
+ - The pressures of being a parent are equal to any pressure on earth. To be a conscious parent, and really look to that little being’s mental and physical health, is a responsibility which most of us, including me, avoid most of the time because it’s too hard.
+ - It made me high. It really did.
+ - So long ago, was it in a dream, was it just a dream?
+ - I regret profoundly that I was not an American and not born in Greenwich Village. It might be dying, and there might be a lot of dirt in the air you breathe, but this is where it’s happening.
+ - But for me at any rate it was all part of dissolving the God trip or father-figure trip. Facing up to reality instead of always looking for some kind of heaven.
+ - We never write anything with themes. We just write the same rubbish all the time.
+ - I’ve had the boyhood thing of being Elvis. Now I want to be with my best friend and my best friend is my wife. Who could ask for anything more?
+ - I dream in colour, and its always very surreal. My dream world is complete Hieronymus Bosch and Dali. I love it, I look forward to it every night.
+ - I must say the more interesting songs to me were the black ones because they were more simple.
+ - I think middle-class people have the biggest trauma if they have nice imagey parents, all smiling and dolled up.
+ - We put a President up there, and then we set fire to him because he’s not solving all our problems.
+ - The reason why kids are crazy is because nobody can face the responsibility of bringing them up.
+ - Try to see it my way, only time will tell if I am right or I am wrong. While you see it your way, there’s a chance that we might fall apart before too long. We can work it out. W e can work it out.
+ - Now The Beatles are four separate people, we don’t have the impact we had when we were together.
+ - Jesus was all right, but his disciples were thick and ordinary. It’s them twisting it that ruins it for me.
+ - I found I was having continually to please the sort of people I’d always hated when I was a child. This began to bring me back to reality.
+ - I remember a time when everybody I loved hated me because I hated them.
+ - How poetry comes to the poet is a mystery.
+ - And so this is Xmas for black and for white, for yellow and red, let’s stop all the fight.
+ - The worst drugs are as bad as anybody’s told you. It’s just a dumb trip, which I can’t condemn people if they get into it, because one gets into it for one’s own personal, social, emotional reasons. It’s something to be avoided if one can help it.
+ - Sitting on a cornflake, waiting for the van to come.
+ - I think it’s the best thing I’ve ever done. I think it’s realistic, and it’s true to the me that has been developing over the years. I like first-person music.
+
+441 quotes

@@ -1,0 +1,53 @@
+ - Elegance is a question of personality, more than one’s clothing.
+ - I don’t like dreams or reality. I like when dreams become reality because that is my life.
+ - What is masculine and what is feminine, anyway?
+ - In America, women are powerful and strong, determined. If they want to be an object, they choose to be in control.
+ - People are fed up with something when it becomes more and more popular.
+ - My best experiences with movies have come when I didn’t know what to see.
+ - It is beautiful to be what you are.
+ - I love Madonna. She is the only woman I have asked to marry me. She refused, of course.
+ - It’s always the badly dressed people who are the most interesting.
+ - What is masculine and what is feminine, anyway? Why should men not show that they can be fragile or seductive? I am only happy when there is no discrimination.
+ - I was lucky to have parents who loved me.
+ - I don’t know exactly what is my impact, but I can say I am doing fashion my own way.
+ - When I started in fashion, I had already adopted the sailor-striped sweater as my uniform; that way, I wouldn’t have to drive myself crazy trying to figure out what to wear.
+ - Clothes are expensive. You have to buy them, and to buy them, you have to believe in them.
+ - I will stay in my bed!
+ - The great thing about American women is their energy and the way they love to dress. French women don’t really dress; they are too conservative, as it’s always a question of money. In America, women are powerful and strong, determined. If they want to be an object, they choose to be in control.
+ - In France, history is paralyzing.
+ - I am 1952. I masticate. I am like a big stomach.
+ - I would like to say to people, open your eyes and find beauty where you normally don’t expect it.
+ - Fashion is not art. Never.
+ - Dressing is a pleasure; clothes are not a joke.
+ - Do you know that cats can’t wear corsets? They can’t stand! Not at all! They just fall over. I know because I tried!
+ - When people have good energy, I feel it. And generally I feel that people do like me. And that makes me very happy.
+ - To show the relativity of what’s good taste and what’s not is something I like to play with.
+ - My eccentricity became direction.
+ - There are many kinds of beauty, and you can find it where you least expect.
+ - People are so codified – it’s sad.
+ - I am impressed by the way Annie Kevans captured the different types of beauties that have been my inspiration and my muses from my grandmother to artists like David Bowie and Boy George.
+ - You see me, I wanted to be fashion designer. I became fashion designer. So I think that everything is possible.
+ - My clothes have always been expensive. Even though I have had a few lower-priced lines over the years, little by little everything I do tends toward the luxury market.
+ - My only fashion school was what I saw in the newspapers and on television.
+ - People think that everyone wears black in France; in fact they all wear grey.
+ - I have loved corsets since I was small. When I was a child, my grandmother took me to an exhibition, and they had a corset on display. I loved the flesh color, the salmon satin, the lace.
+ - All of my life shown me that if you wanted something enough, if you were passionate enough, it would happen.
+ - I’m still astounded by some people’s reaction to things I consider quite normal.
+ - Always my collections are made of different influences.
+ - If it’s too fashiony, it’s not interesting to me.
+ - I could say that making clothes is my way of communicating, because I was always so shy.
+ - Doing fashion drawings was the only way I had to express myself when I was a teenager.
+ - Designers are to be in connection with what’s happening with the movement of society.
+ - Sometimes I have chosen to see films just by their posters.
+ - I start each collection thinking how I can refresh my classics.
+ - The great thing about American women is their energy and the way they love to dress.
+ - When I do my collection, it is in a way my own story.
+ - Clothes became my attraction and obsession early. I wasn’t so interested in dressing myself because I was not my object of desire.
+ - I take life as it happens. And I give myself a lot of freedom.
+ - I was fascinated by movies from age 12.
+ - I’ve always felt more at home in the UK than in France.
+ - I am very lucky because I am realizing my childhood dreams, and after presenting my shows it’s like a party.
+ - Fashion is about what you look like, which translates to what you would like to be like.
+ - The shock of the way I mix patterns and fabrics can be disconcerting, but what I am trying to do is provoke new ideas about how pieces can be put together in different ways. I think this is a more modern way to wear clothes that in themselves are fairly classic.
+
+51 quotes

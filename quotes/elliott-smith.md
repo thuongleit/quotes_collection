@@ -1,0 +1,58 @@
+ - Everything means nothing to me.
+ - Burning every bridge that I cross to find some beautiful place to get lost.
+ - They say that God makes problems just to see what you can stand, before you do as the devil pleases.
+ - Nothing’s gonna drag me down to a death that’s not worth cheating.
+ - I didn’t have a hard time making it. I had a hard time letting it go.
+ - Doing battle with themselves that way, every day, all the time and sometimes it sucks, but other times it results in people making sort of a dream comprehensible to someone else.
+ - If you play acoustic guitar you’re the depressed, sensitive guy.
+ - The devil’s script sells you the heart of a blackbird.
+ - People think they know all these things about other people, and if you ask them why they think they know that, it’d be hard for them to be convincing.
+ - All your secret wishes could right now be coming true.
+ - I don’t really think of time off as writing blocks. I think that’s a western notion of demonizing inactivity. When your imagination decides it needs to take a nap. maybe that’s what it needs to do.
+ - Somewhere where people aren’t so mad would be nice, but I don’t know if there is anywhere like that.
+ - Fights problems with bigger problems.
+ - I watched myself put my paw in the bear trap on that one because there was this clause about leaving members.
+ - I mean people just have a way of – y’know they’ll review your record in two sentences and put you in this little stupid box that you don’t want to be in.
+ - But I was also doing odd jobs around Portland, like spreading gravel and transplanting bamboo trees.
+ - There’s always that argument to make – that you’re in better company historically if people don’t understand what you’re doing.
+ - I actually don’t think that I’m gonna sell a lot of records.
+ - There’s lots of ways people can be dependent, on another person, or drugs...
+ - I truly hope the future will bring me something to feel nostalgic about, because there’s really nothing much so far I can remember fondly.
+ - I walked out and Jack Nicholson was sitting about six feet away, so I avoided that area and I looked up at the balcony in the back and sang the song.
+ - I went walking around the city some more, people watching with a cold, blank stare. And I saw your face in everyone, I swear.
+ - Static in my head, the reflected sound of everything, tried to go to where it led, but it didn’t lead to anything.
+ - My girlfriend at the time convinced me to send these songs to Cavity Search. When they wanted to put out my record I was totally shocked.
+ - A lot of people are kind of depressed. I’m happy some of the time, and some of the time I’m not.
+ - I see you’re leaving me and taking up with the enemy, the cold comfort of the in-between, a little less than a human being.
+ - You can take a picture of New York and one person looking at it will think it looks really depressing, frightening; and someone else will look at it and think of all the fun things you can do in New York. I think songs are kinda like that.
+ - I’m happy some of the time, and some of the time I’m not. But like when I see a movie, for example, that I really like, that moves me or whatever, it’s usually happy and sad at the same time.
+ - There are lots of things I like about playing in a band, the things I cant do by myself you know.
+ - I don’t think it’s important who I am. I really like playing music, but I don’t really want to be anything in particular.
+ - It’s a lot easier to tell the truth usually.
+ - I’m the wrong kind of person to be really big and famous.
+ - Certain songs just feel a way that’s hard to put into words and it’s not happy and it’s also not really sad but I couldn’t say what it is.
+ - So if somebody writes a song that appears to have some meaning then everybody thinks that it’s a really heavy song.
+ - I wondered if I would talk about drug use. But I guess, why hide it?
+ - It’s hard to represent chaos, or like an absence of something. It’s much easier to represent the presence of something or a situation.
+ - I’m just writing songs about how I feel or about how people I know feel.
+ - I can’t think of anything off the top of my head that seems more important than something designed to raise money to keep something going that keeps IV drug users from dying.
+ - It was kind of ridiculous to carry it up to a certain point and then drop the ball or the bomb, like quitting the band right after we had signed to Virgin.
+ - I rode on a float in one of the parades in Mississippi. It’s an experience.
+ - It was hard to sing like how I wanted to because playing live I had to just be at the top of my lungs all the time, and it made me sound like I had a really bad cold or something.
+ - I didnt know how many people knew who Ferdinand was.
+ - People can be chaos but it’s hard to fit it into some creative piece that you made. It’s hard.
+ - I think the suggestion that all my songs are personal is insulting because that assumes that I have a bunch of issues that I feel the need to unload on strangers. That is not the case. It also assumes that I just talk about myself the whole time which, again, is not true.
+ - I just wanted to move out of Portland to do something.
+ - You can’t get better at things you never play.
+ - I was trying to do the same thing that I always do which is make an interesting record.
+ - Well, I try not to think about the general public since I have no idea what the general public is and I don’t think anybody does.
+ - The band’s filter, but playing live is a lot of fun.
+ - It’s just that a lot of songs that are popular right now, they don’t have any meaning.
+ - He made his life a lie so he might never have to know anyone.
+ - It touches on drug use. I got caught up in that for almost two years.
+ - I didn’t think I was gonna be playing on the Oscars or anything.
+ - I don’t really like New York better than Portland. It’s just a different place.
+ - Music is worth doing just because. It doesn’t have to be justified by some political point of view, and it’s kind of insulting to the music to make it a tool for something else.
+ - I want to keep making records as long as I can and that’s the beginning and end of my concern about selling records.
+
+56 quotes

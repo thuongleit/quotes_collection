@@ -1,0 +1,34 @@
+ - Work hard, be yourself, and have fun!
+ - If you have nothing in life but a good friend, you’re rich.
+ - Skating is in my heart, not my head.
+ - Sometimes my body is aching, but I always think, ‘Why am I in this? Why do I love it so much?’ That’s what makes me persevere, that’s what makes me keep on going.
+ - Don’t focus on the negative things that can happen, just think about the positive things.
+ - I didn’t lose the gold. I won the silver.
+ - The one who wins all the time is great and powerful, but the one who had been trampled on and fallen is who I admire the most.
+ - To represent your country is an honor and a great experience.
+ - There’s a lot of emotions that always come out after a skate of a lifetime. I always start crying because there is so much buildup to that competition.
+ - Literally falling on the ice and having to pick yourself up in front of thousands of people is not an easy thing to do. The thing that you learn is to pick yourself back up, to learn from your mistakes.
+ - Winning is not about how many medals you get-it’s about accomplishing goals and just being the best you can be!
+ - You can always say, ‘I wish I had landed that triple flip better, or I wish I didn’t fall.’ They’re not regrets, just mistakes.
+ - When I feel like I’m in a rut, I remember it’s the little things in life that are important, like riding a bike with a friend or eating ice cream with my baby niece.
+ - As I’ve gotten older and grown more independent, I think for myself, and that’s how it should be.
+ - Skating takes up 70 percent of my time, school about 25 percent. Having fun and talking to my friends, 5 percent. It’s hard. I envy other kids a lot of things, but I get a guilt trip when I’m not training.
+ - I needed to turn off the negative voice in my head – I was psyching myself out.
+ - I don’t know secret to success, but I’m pretty sure the closest thing is preparation.
+ - I had dreamed of being at the Olympics since I was 7 years old.
+ - I don’t really remember a time younger than 5 years old that I didn’t have skates on because all I can remember is every day, tying up my skates and a big smile on my face, excited to go on the ice.
+ - When I look back at the world championships, I know there’s a lot of room for improvement, I’m always up for a challenge. The Olympics, they don’t define me, I’ve had some good and some bad. But it’s all about the Olympic experience.
+ - At 13, I was fearless. I looked at everything so positive. When you’re older and been through it all, you know how bad it can get. There is a fear of failing.
+ - And what is a gold medal? I’d never really thought about it before Nagano. Now I realize that it’s a dream to strive for. I love my silver medal, because it stands for all my dreams and all I’m still capable of fulfilling.
+ - I skated like it’s a sport, went for everthing and just gave it my best shot. It turned out freat. I had nothing to lose. You might be the best in your heart, but not in other people’s sight.
+ - I got a call this morning, and it was from Nancy Kerrigan, wishing me luck. She wished me luck and sent me all her good wishes.
+ - It’s incredible. Nine? Wow. I just remember winning my first one, getting the medal and the plate, the pin with the diamond for first place. My ninth title, I have no answer for that because I never thought it would be possible.
+ - I always thought after 2002 that I’d hang up my skates and turn professional and just go on tour and do shows. But I don’t know when it is enough. I mean, I still enjoy it. I’m the luckiest girl alive that I get to perform in front of thousands of people, do what I love doing.
+ - Skating has given me so much that it’s priceless.
+ - When I was younger, I always dreamed of being a legend, to be remembered in figure skating.
+ - As an athlete, I’ve always been very proud to represent the United States.
+ - I actually prefer soothing music – and maybe that’s the skater in me.
+ - I want to see how far I can train. I have to see how far my body will go.
+ - What I love the most is getting on the ice and just popping in a fabulous CD and skating – all by myself, the rink completely empty, just me and the music.
+
+32 quotes

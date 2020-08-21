@@ -1,0 +1,35 @@
+ - Death is not the end. Death is an ocean on all sides of our lives. Deep and dark and cold, and anything but empty.
+ - Judge if you want, we are all going to die. I intend to deserve it.
+ - You are never so low that you deserve to be lower.
+ - I’ve always known I’d be a bank robber. So judge all you want, ladies and gentlemen. Because you never did become an astronaut.
+ - Be the trouble you want to see in the world.
+ - We are terrible for each other, and, yes, we are a disaster. But tell me your heart doesn’t race for a hurricane or a burning building. I’d rather die terrified than live forever.
+ - I’d rather die terrified than live forever.
+ - I feel the way bank robbers must feel before they go out on that last job that ends up getting them all killed. That is to say, optimistic.
+ - I don’t fall in love very easily. It takes a long time, and then, when I have fallen in love, I’m still not sure. I’m suspicious of myself. What if tomorrow I don’t feel the same? I have to wait, to be sure. And I wait and wait.
+ - Art isn’t just paint and music, art is breaking glass and the sounds we make without realizing.
+ - It doesn’t matter if the glass is half full or half empty. I am gonna drink it through this crazy straw.
+ - Alzheimer’s disease is death before death, and I’m terrified of it.
+ - If we couldn’t carry our dead inside us, we would be empty.
+ - Being in love is totally punk rock.
+ - Memories are like everything else. They’re a trap.
+ - I never wanted anything to happen to my parents, but a hero needs an origin story.
+ - There are plenty of fish in the sea, if I run out of women.
+ - Depression is like slashing at ghosts. Of course it’s tempting to finally cut something real.
+ - Satellite images, maps and blueprints of the whole world, of every city. We could look it up and know what’s there in someone else’s words. Or we could get wicked drunk and just go.
+ - When the end comes, I hope it’s as strange as that. I hope that the sky tears open and the world is washed with colors that we’ve never seen before.
+ - Home is where the heart is, until we get a chance to bury it. Home is where the heart pulled the nails out of its feet, and fled.
+ - The family that prays together, still probably dies in the fire.
+ - Having all the answers just means you’ve been asking boring questions.
+ - I have a form of ESP that allows me to consistently pick losing lottery numbers, and generally make poor life choices.
+ - Well, it’s possible to be mentally ill and rational.
+ - Listening to music that I hate calms me down.
+ - Romance is all about making a story out of our love.
+ - There’s a romance to danger. There’s a romance to drinking, to drugs, to petty crime and to heartbreak and loneliness. All of those things can be used to make the STORY of our lives better.
+ - Kissing girls is easy, like breaking windows.
+ - And when our sun explodes and we are all destroyed, we’ll be rocks and chunks of I am not sure what, and maybe we’ll rain down on somewhere else.
+ - When I played doctor I played to win.
+ - I am writing to apply for the position of bookkeeper. Attached, you will find my list of qualifications. I have been keeping books for four years now, and I am never going to give them back.
+ - I want to make something, and I want people to know I made it.
+
+33 quotes

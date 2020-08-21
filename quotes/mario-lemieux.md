@@ -1,0 +1,37 @@
+ - Every day is a great day for hockey.
+ - I don’t order fries with my club sandwich.
+ - When someone screams at me to hurry up, I slow down.
+ - I can no longer play at a level I was accustomed to in the past.
+ - One thing I hate is people screaming at me. If you want me to do something, talk to me. When someone screams at me to hurry up, I slow down.
+ - I’m sorry I didn’t feel any better or play any better, but that’s what happens at the end of careers.
+ - Of course, my family has been a big reason for me to come back, especially my son who loves the game of hockey – he was a big reason for me coming back.
+ - Red wine is a great accompaniment to meat.
+ - When it comes to hockey, it’s been in my blood since I was 3 or 4 years old. I love coaching the kids, especially at that level.
+ - Oh, I did stop smoking a long time ago.
+ - My body’s feeling it a little bit. But one good thing, my back is in good shape, and that’s my main concern. I know that my legs are going to take awhile to get back to where I was a few years ago, but as long as my back is solid, I feel that I can play many years.
+ - I don’t try to match wine with food, I just drink what I like. And I think a lot of people are going towards that now, which never used to be in the past.
+ - He’s only 4 years old, so I don’t think he realized, you know, that I played so many years. Of course, we watch tapes here from the Stanley Cup years, but I don’t think he realized how many years I played.
+ - For as long as I can remember I wanted to be a professional hockey player.
+ - I’ve gone through back surgery a couple times, and of course, my radiation treatments for six weeks got me to the point where I was not able to play at the level that I was accustomed to.
+ - Hockey is a tough, physical game, and it always should be.
+ - Once I’m at the arena with the guys in the dressing room, and in the bus, and on the plane, I’m a player. And I sit in the back with the players and I play cards and try to take their money.
+ - I didn’t speak English until I came to Pittsburgh.
+ - Well, I think just a desire to come back and be a part of the game again.
+ - I have two main reasons for retiring. The first is I can no longer play at a level I was accustomed to in the past. That has been very, very frustrating to me throughout this past year. The second one is realizing my health, along with my family, is the most important thing in the world.
+ - Since the beginning, I always loved the game.
+ - Certainly we’re not satisfied with just winning games. We’ve been playing some pretty good hockey, but we think we can play much better.
+ - My son, he is the reason I got involved. It’s been a joy to be around him and teach him the stuff that I know, and to the other kids as well. When he started playing I wanted to be involved in his hockey career. It’s a lot of fun for both of us.
+ - Everybody I talked to – from my friends to my family and some of the players – really gave me a lot of support from the start. And that certainly made me feel good about trying to come back and be one of the best again.
+ - It was great to play with some of my old linemates.
+ - I think we have to show some pride in the jersey that we are wearing, and can’t quit.
+ - I think people in Montreal smoke a lot, and I used to smoke when I was 17-18, and just picked it up when I was playing juniors. But I think I stopped when I was 22, which was a big decision in my life.
+ - I think the game has opened up, and that’s why I decided to come back and try to be a part of it.
+ - Since the beginning, I always loved the game. When you grow up in Montreal, one day you want to be a professional hockey player. When I was six or seven, I knew that was what I wanted.
+ - The first few games that we played against some of the teams, the young guys, you know, want a stick sign or photo sign, and I think that they respect what I have achieved throughout my career.
+ - I think the lottery changed everything for us. Once we got Sidney, it helped us turn this franchise around overnight.
+ - I didn’t like the way the game was being played.
+ - All I can say to the young players is, enjoy every moment of it. Just enjoy every moment of it. Your career goes by very quickly.
+ - When I’m able to see the ice ahead of time when I get the puck, I’m able to make some pretty good plays.
+ - As I’ve said, in 2007, we’re free to go and we’ll just have to do what’s best for the business.
+
+35 quotes

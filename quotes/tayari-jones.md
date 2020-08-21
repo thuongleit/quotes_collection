@@ -1,0 +1,23 @@
+ - People say, That which doesn’t kill you makes you stronger. But they are wrong. What doesn’t kill you doesn’t kill you. That’s all you get. Sometimes, you just have to hope that’s enough.
+ - When I am writing a story it feels as real as the life I am experiencing off the page. It’s an emotional illusion, I guess.
+ - I do have a sister – I have two sisters.
+ - Dwelling on pain, spending too much time immersed in it, tasting its flavors, fingering its textures – this makes it only more potent.
+ - Remember that the writing itself is good for you. If your story is so close to home that you are afraid to write it, it probably means you need to write it.
+ - Abandonment doesn’t have the sharp but dissipating sting of a slap. It’s like a punch to the gut, bruising your skin and driving the precious air from your body.
+ - I guess this is how love is when it comes undone. No matter how tight you knit the stitches, a sharp tug on a loose thread will transform your warm sweater into a mangled heap of yarn that you can’t reuse or repair.
+ - The adolescent protagonist is one of the hallmarks of American literature.
+ - This is what I have come to know: Our past is never passed and there is no such thing as moving on. But there is this telling and there is such a thing as passing through.
+ - I was kind of an invisible girl when I was young.
+ - I am always urging my students to honor their writing practice, to set up a schedule.
+ - It’s funny how three or four notes of anger can be struck at once, creating the perfect chord of fury.
+ - Adolescence is a modern construct and very American in so many ways.
+ - My first novel, Leaving Atlanta, took at look at my hometown in the late 1970s, when the city was terrorized by a serial murderer that left at least 29 African-American children dead.
+ - I like straightforward names for my characters. When I get too symbolic with names or places, I start feeling like the characters and the story are less read, and I lose interest.
+ - When it comes to memoir, we want to catch the author in a lie. When we read fiction, we want to catch the author telling the truth.
+ - Secret families are really the bedrock issue of Western literature.
+ - I think the NAACP isn’t recognized enough for all of the work it does, especially in the field of law. They may have faded from view over the last couple of decades, but they are fighting the good fight.
+ - If there was ever a time to boil up some grits it is now.
+ - I take mentoring very seriously and as a result I hardly get any work done during the school year.
+ - When you write a novel, you make other people see your imaginary friends.
+
+21 quotes

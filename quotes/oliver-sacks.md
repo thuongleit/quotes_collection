@@ -1,0 +1,66 @@
+ - There is only one cardinal rule: One must always listen to the patient.
+ - In examining disease, we gain wisdom about anatomy and physiology and biology. In examining the person with disease, we gain wisdom about life.
+ - Every act of perception, is to some degree an act of creation, and every act of memory is to some degree an act of imagination.
+ - My religion is nature. That’s what arouses those feelings of wonder and mysticism and gratitude in me.
+ - Music can lift us out of depression or move us to tears – it is a remedy, a tonic, orange juice for the ear.
+ - We see with the eyes, but we see with the brain as well. And seeing with the brain is often called imagination.
+ - Sign language is the equal of speech, lending itself equally to the rigorous and the poetic, to philosophical analysis or to making love.
+ - Above all, I have been a sentient being, a thinking animal, on this beautiful planet, and that in itself has been an enormous privilege and adventure.
+ - We speak not only to tell other people what we think, but to tell ourselves what we think. Speech is a part of thought.
+ - Music evokes emotion and emotion can bring it’s memory.
+ - I regard music therapy as a tool of great power in many neurological disorders – Parkinson’s and Alzheimer’s – because of its unique capacity to organize or reorganize cerebral function when it has been damaged.
+ - Much more of the brain is devoted to movement than to language. Language is only a little thing sitting on top of this huge ocean of movement.
+ - The power of music and the plasticity of the brain go together very strikingly, especially in young people.
+ - Memory is dialogic and arises not only from direct experience but from the intercourse of many minds.
+ - Music, uniquely among the arts, is both completely abstract and profoundly emotional.
+ - It is up to me now to choose how to live out the months that remain to me.
+ - Music has a bonding power, it’s primal social cement.
+ - There is among doctors, in acute hospitals at least, a presumption of stupidity in their patients.
+ - In terms of brain development, musical performance is every bit as important educationally as reading or writing.
+ - Biologically, physiologically, we are not so different from each other; historically, as narratives – we are each of us unique.
+ - We have, each of us, a life story, whose continuity, whose sense, is our lives.
+ - I am a man of vehement disposition, with violent enthusiasms, and extreme immoderation in all my passions.
+ - People will make a life in their own terms, whether they are deaf or colorblind or autistic or whatever. And their world will be quite as rich and interesting and full as our world.
+ - I often feel that life is about to begin, only to realize it is almost over.
+ - If we have youth, beauty, blessed gifts, strength, if we find fame, fortune, favor, fulfillment, it is easy to be nice, to turn a warm heart to the world.
+ - I feel I should be trying to complete my life, whatever completing a life means.
+ - I am now face to face with dying. But I am not finished with living.
+ - I have to live in the richest, deepest, most productive way I can.
+ - Music is part of being human.
+ - We now know that memories are not fixed or frozen, like Proust’s jars of preserves in a larder, but are transformed, disassembled, reassembled, and recategorized with every act of recollection.
+ - If migraine patients have a common and legitimate second complaint besides their migraines, it is that they have not been listened to by physicians. Looked at, investigated, drugged, charged, but not listened to.
+ - Psychotic hallucinations, whether they are visual or vocal, they address you. They accuse you. They seduce you. They humiliate you. They jeer at you. You interact with them.
+ - A profound intriguing and compelling guide to the intricacies of the human brain.
+ - I think there is no culture in which music is not very important and central. That’s why I think of us as a sort of musical species.
+ - If a man has lost a leg or an eye, he knows he has lost a leg or an eye; but if he has lost a self – himself – he cannot know it, because he is no longer there to know it.
+ - When I was five, I am told, and asked what my favorite things in the world were, I answered, smoked salmon and Bach.
+ - I suspect that music has qualities both of speech and writing – partly built in, partly individually constructed – and this goes on all through one’s life.
+ - Studies by Andrew Newberg and others have shown that long-term practice of meditation produces significant alterations in cerebral blood flow in parts of the brain related to attention, emotion, and some autonomic functions.
+ - The miracle is that, in most cases, he succeeds – for the powers of survival, of the will to survive, and to survive as a unique inalienable individual, are absolutely, the strongest in our being: stronger than any impulses, stronger than disease.
+ - I have often seen quite demented patients recognize and respond vividly to paintings and delight in the act of painting at a time when they are scarcely responsive, disoriented, and out of it.
+ - I feel a sudden clear focus and perspective. There is no time for anything inessential.
+ - Fascinating, Doidge’s book is a remarkable and hopeful portrait of the endless adaptability of the human brain.
+ - It really is a very odd business that all of us, to varying degrees, have music in our heads.
+ - Language, that most human invention, can enable what, in principle, should not be possible. It can allow all of us, even the congenitally blind, to see with another person’s eyes.
+ - If a man with a dog sits quietly enjoying music and smiling, his dog might sit down beside him and smile, too. But who knows whether the dog is having a comparable experience or whether the dog is simply happy that his master is happy.
+ - The past which is not recoverable in any other way is embedded, as if in amber, in the music, and people can regain a sense of identity...
+ - The power of music, whether joyous or cathartic must steal on one unawares, come spontaneously as a blessing or a grace –.
+ - Waking consciousness is dreaming – but dreaming constrained by external reality.
+ - Creativity involves the depth of a mind, and many, many depths of unconsciousness.
+ - The same areas which are active in listening to music are also active when you imagine music, and this includes the motor areas, too. That explains why earlier, even though I was only thinking of the mazurka, I was thinking in terms of movement.
+ - I was always the youngest boy in my class at high school. I have retained this feeling of being the youngest, even though now I am almost the oldest person I know.
+ - First thing about being a patient-you have to learn patience.
+ - Very young children love and demand stories, and can understand complex matters presented as stories, when their powers of comprehending general concepts, paradigms, are almost nonexistent.
+ - In general, people are afraid to acknowledge hallucinations because they immediately see them as a sign of something awful happening to the brain, whereas in most cases theyre not.
+ - A disease is never a mere loss or excess. There is always a reaction on the part of the organism or individual to restore, replace or compensate for and to preserve its identity, however strange the means may be.
+ - Nature gropes and blunders and performs the crudest acts. There is no steady advance upward. There is no design.
+ - Although I think it is wonderful to have the whole world of music available in something that small and to have it conveyed with such fidelity almost straight into the brain, I think the technology is also a danger.
+ - Eccentricity is like having an accent. It’s what “other” people have.
+ - Elements and birthdays have been intertwined for me since boyhood, when I learned about atomic numbers.
+ - Music originally had a social function. You were in church, in a concert hall, a marching band; you were dancing. I’m concerned that music could be too separated from its roots and just become a pleasure-giving experience, like a drug.
+ - One might say that science itself, and civilization and art, are all about different orderings of the world – to contain it, and to make it in some sense intelligible, communicable. And bearable.
+ - My impression is that a sense of rhythm, which has no analog in language, is unique and that its correlation with movement is unique to human beings. Why else would children start to dance when they’re two or three? Chimpanzees don’t dance.
+ - I think there’s probably always been visions and voices, and these were variously ascribed to the divine or demonic or the muses. I think many poets still feel they depend on an inner voice, or a voice which tells them what to do.
+ - About 10 percent of the hearing impaired get musical hallucinations, and about 10 percent of the visually impaired get visual hallucinations.
+
+64 quotes

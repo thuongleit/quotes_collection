@@ -1,0 +1,23 @@
+ - Everybody knows something, and nobody knows everything.
+ - I’m a strong man, and usually I get over hurts and it makes me stronger when I come back.
+ - On-base percentage is great if you can score runs and do something with that on-base percentage. Clogging up the bases isn’t that great to me. The problem we have to address more than anything is the home run problem.
+ - I love sharing my knowledge of hitting with others. Now coaches and players at all levels can learn my systematic approach to hitting a baseball with more consistency, mental strength and accuracy.
+ - You can tell your uncle stuff that you could not tell your dad. That is kind of the role of an uncle. I feel very much like a father sometimes but sometimes I feel like a teammate.
+ - I love my daughter, but she had me on couscous and fixed me pastas and made me eat oatmeal every morning and what else, turkey burgers, turkey bacon, and that kind of stuff. So she wants her dad to live a long time, and I do, too.
+ - It’s like fishing – you got to get that first one in the boat. Once you get that first one, the skunk is off the boat and everything’s cool from then on. You’ve got to get that first one. Once he gets the first one, I know he’ll be fine.
+ - I have a lot of interests.
+ - You don’t want to get beat, number one, and you hate getting shutout, number two, and even worse, no hits.
+ - Managers are never 100 percent in control. You’re at the mercy of the players. When you’re a player, you’re driving. I’m the navigator. I hardly ever think about driving anymore, unless there’s two out in the bottom of the ninth.
+ - Everyone has a budget, I don’t care who you are. But they said if we are in a pennant race in the middle of the summer they are going to get some help with added payroll.
+ - The only people I ever felt intimidated by in my whole life were Bob Gibson and my Daddy.
+ - I think we match up with anybody because our pitching. In a short series you run your big three out there or four out there. That generally is what wins a series – pitching and defense. If we can catch the ball and not give away any runs like we do sometimes.
+ - The fundamentals of baseball haven’t changed, but how we can teach those fundamentals has. With an e-book, learning can be more rewarding and fun.
+ - Everyone has a budget, I don’t care who you are.
+ - Let them police themselves, and then it goes another step past them to my coaches and there a coach that is responsible for a different area and different category on the field.
+ - I’m not sure where my career is going here in Cincinnati.
+ - The only thing that’s in my control is to win ballgames and God is always taking care of me.
+ - So I let them be responsible for there particular areas. Then by the time it gets to me that means that there is a problem. I have my eyes open and I need to know something about every department but you don’t want to micro manage any particular department.
+ - I love watching American League games, you know what I mean?
+ - I’m not a guy that sits around and does nothing.
+
+21 quotes

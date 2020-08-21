@@ -1,0 +1,44 @@
+ - I like to travel and connect.
+ - Type a few lines of code, you create an organism.
+ - Librarian is a service occupation. Gas station attendant of the mind.
+ - Evil is the refusal to see one’s self in others.
+ - What I really like to learn how to do is to build sentences that are equal to mental states.
+ - Reading is the last act of secular prayer.
+ - I don’t mind arguing with myself. It’s when I lose that it bothers me.
+ - I write the way you might arrange flowers. Not every try works, but each one launches another. Every constraint, even dullness, frees up a new design.
+ - Only keep still, wait, and hear, and the world will open.
+ - The oldest principle of composition: repeat everything.
+ - When you’re sure of what you’re looking at, look harder.
+ - I really like science because it seems to be that place where you get the big picture, everything connects.
+ - Until I was 42, I could fit everything that I owned into two suitcases.
+ - Music forecasts the past, recalls the future. Now and then the difference falls away, and in one simple gift of circling sound, the ear solves the scrambled cryptogram. One abiding rhythm, present and always, and you’re free. But a few measures more, and the cloak of time closes back around you.
+ - The loneliness of writing is that you baffle your friends and change the lives of strangers.
+ - For me, university was just awful because it was closing one door after the other of all these candy shops of professional possibilities.
+ - This idea that a book can either be about character and feeling, or about politics and idea, is just a false binary. Ideas are an expression of the feelings and the intense emotions we hold about the world.
+ - We will live with racism for ever. But senses of self, senses of belonging, senses of us and of others? Those are up for grabs.
+ - My goal for technology has always been to reach a point where the technological mediation becomes invisible.
+ - Only white men have the luxury of ignoring race.
+ - The desire to live in our imagination is driven by this suspicion that we’re disembodied sensibilities cobbled into our bodies. That idea has infused most of human thought since the very beginning.
+ - Out of grad school, I worked as a tech writer for a while before going into computer coding for a living.
+ - The job of taste was to thin the insane torrent of human creativity down to manageable levels. But the job of appetite was never to be happy with taste.
+ - I keep a quotes journal – of every sentence that I’ve wanted to remember from my reading of the past 30 years.
+ - If you’re going to immerse yourself in a project for three years, why not stake out a chunk of the world that is completely alien to you and go traveling?
+ - The thing that makes reading and writing suspect in the eyes of the market economy is that it’s not corrupted.
+ - The Midwest is such a tabula rasa.
+ - In 25 years of writing novels, I’ve never had anything that felt like writer’s block.
+ - Science is not about control. It is about cultivating a perpetual condition of wonder in the face of something that forever grows one step richer and subtler than our latest theory about it. It is about reverence, not mastery.
+ - The web: yet another total disorientation that becomes status quo without anyone realizing it.
+ - We don’t consider the roles that we’re taking in making the world the way it is.
+ - The use of music is to remind us how short a time we have a body.
+ - I think that if the novel’s task is to describe where we find ourselves and how we live now, the novelist must take a good, hard look at the most central facts of contemporary life – technology and science.
+ - I used to work for 12 or 14 hours at a time but the digital age has made such happy immersions almost impossible.
+ - I’d like, each time out as a writer, to reinvent who I am and what I’m doing. That’s one of the great pleasures and rewards of the occupation.
+ - I would say the flip side to my fascination with systems is a fascination with components. So many of my books are dialogues between little and big.
+ - Everything interests me.
+ - The ‘information novel’ shouldn’t be a curiosity. It should be absolutely mainstream.
+ - All we can ever do is lay a word in the hands of those who have put one in ours.
+ - My dream has always been to suspend myself in space when I write, and lying horizontal in bed is the closest to doing that.
+ - All the different ways we know the world all come from the brain, and they all depend on each other to make sense.
+ - Maybe happiness is like a virus. Maybe it’s one of those bugs that sits for a long time, so we don’t even know that we are infected.
+
+42 quotes

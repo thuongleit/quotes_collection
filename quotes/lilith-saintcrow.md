@@ -1,0 +1,63 @@
+ - Better to be strong than pretty and useless.
+ - I’m getting really tired of bleeding. Someone stop the world, I want to get off.
+ - He stared at his hot chocolate like it held the secret to the universe.
+ - I was feeling safe. Not the kind of safe where you know there are still bad things howling outside the door waiting to get in. No, it was the kind of safe where you sink down in your bed at the end of the day and know you can go to sleep and everything is going to be the same tomorrow.
+ - Some days, a killing spree seems like a good idea.
+ - People don’t really want to know anything about you. They just want you to fit into their little predetermined slots. They decide what you are in the first two seconds, and they only get nervous or upset if you don’t live up to their snap judgments.
+ - It’s always difficult to say goodbye, especially when one has spent a long time – literally years, in the case of a series – inside a character or two, suffering and celebrating with them.
+ - Death did not play favorites – He loved all equally. What you cannot escape, you must fight; what you cannot fight, you must endure. The god’s voice – not quite words, just a thread of meaning laid in my receptive mind –.
+ - God, was I going to have another day of painful thoughts jumping me every time I relaxed? The obvious solution – to just not relax – was kind of sucking.
+ - No problem, Goth Boy. First one’s free.
+ - I don’t even have moderately big breasticles. They just look like – well, nevermind what they look like. At least they stay strapped down when I worm into a sports bra.
+ - His shoulder bumped mine again. “Can I ask you something?” I didn’t answer. He was going to ask me anyway. People don’t say that if they don’t want to pry something out of you.
+ - There was Kir, red hair combed back and That Expression on his sharp face. Even his freckles looked serious. I’d given up wondering how a freckle-faced teenager could look so much like a disapproving granny.
+ - Really, I scolded myself, you should have known that you’d end up in a stone dungeon with no facilities. That’s how these things always end up, isn’t it?
+ - Oh, the testosterone. You could have cut it with a cafeteria spoon.
+ - Graves: It’s going to snow. Dru Anderson: Thanks for the warning. Graves: Hey, no problem. First one’s free.
+ - I was always holding onto people, and they were always leaving.
+ - Boys always get the best eyelashes; it’s like some kind of cosmic law. And half-breed kids get some kind of extra help there from genetics, too.
+ - What you cannot escape, you must fight; what you cannot fight, you must endure.
+ - Sometimes, as much as writing saves one’s own life, you cannot imagine how it will save another’s. This is another reason why it is important to do the work, over and over again. It is food, the kind a soul needs.
+ - What you can’t run away from, you have to face.
+ - What do you say when someone takes on a really bad ass, murdering sucker for you? There just aren’t words for that.
+ - They all looked like a shampoo commercial, healthy and clear-skinned, perfectly proportioned, a group of handsome young men. Their clothes hung on them like they were glad to be gracing such supermodels.
+ - I looked like a ghost. And I should know. I’ve seen a few.
+ - White and scrubbed, antique brass fixtures and a skylight letting in a flood of sunshine. Wow. You could get a tan standing around in the shower, for Christ’s sake.
+ - It truly sucks to doubt your friends when you only have one or two of them, I realized.
+ - Graves: Are you skipping? Off to a good start. Dru Anderson: I don’t want to deal with it today. Graves: Okay. I know a place to go. You shoot pool? I’m Graves. Dru Anderson: I know. Dru. Graves: Dru. You’re new. Couple of weeks, right? Welcome to Foley.
+ - Besides, the normal people here wouldn’t see it. That was what “different” meant. It’s just another word for lonely.
+ - The only place their voices were left was in my head. It was better than being alone but it was so, so lonely.
+ - Oh God, Oh God we’re all gonna die doesn’t really fit the definition of banter, now does it?
+ - He was the only boy I’d found worth dating in God knows how many schools. I mean, ever since he’d been bitten by a werwulf he’d been rock-steady. The best thing about this totally effed-up situation.
+ - That’s the funny thing about old hurts- they just wait for new heartache to come along and then show up, just as sharp and horrible as the first day you woke up with the world changed all around you.
+ - You can’t ever stop thinking something quick enough. Something that hurts always gets the knife in too fast for you to slam a lid on it and shove it away.
+ - Next to her, even the prettiest djamphir boys looked gawky.
+ - Richelle Mead delivers sexy action and tongue-in-cheek hellish humor-if damnation is this fun, sign me up!
+ - I sensed him leaning forward. It’s weird to feel someone’s attention on you that way, like you’re the only thing in the world they’re listening to. Most of the time people are distracted, or just thinking about what they’re going to say next.
+ - The end of a gun looks very big and very back when it’s staring you in the face.
+ - I wasn’t sure if the word boys should mean dim or incomprehensible. I was hovering between the two, with a healthy dose of testosterone-poisoned.
+ - Are you listening, little bird?
+ - I guess since the groin is the center of a guy’s world, he rarely guesses it isn’t the center of yours.
+ - And you know, I believed him. What girl wouldn’t?
+ - Some of the djamphir are so pretty it almost hurts to look at them. And it was hard to look without feeling rumpled and messy in comparison.
+ - He’d pulled back a little, just with his lower half, and I was afraid the scorch in my cheeks would set fire to the rest of me, because I an idea why. Wow. Oh wow.
+ - His eyebrows drew together. He was perilously close to unibrow; I guess nobody had held him down and administered a good plucking to the caterpillar climbing across his forehead.
+ - He laughed. The laugh could strip the skin off an elephant in seconds.
+ - Would I be as strong as that once I did that thing Christophe was talking about? Blooming? Would I smell like a bakery item? Or was that just him? Did he use pie filling for cologne?
+ - I should start charging uncomfortable thoughts rent. Except what would they pay me in? Probably something even worse.
+ - Christophe’s smile was a marvel of edged sweetness. When he grinned like that he looked handsomer than ever, the hint of danger just about threatening to stop a girl’s heart.
+ - If something is visceral and unsettling for me, my job is to not look away, not to punk out. Sometimes the dark things come from places inside me, experiences Ive had, that need to be transformed.
+ - There was a hole inside her, and it twisted.
+ - First you find out what you have, Dad would say. Then you figure out how to make it work for what you need, ’cause you don’t get what you want. You get just what you have and no more.
+ - Christophe, with the careful tone of an adult telling a kid not to pet the nice foaming-rabid pooch.
+ - I don’t believe in getting clothes that just look pretty or that’ll fall apart – they have to stand up to a lot of abuse.
+ - Touch me again, and it will be your last act in life – Blue Eyes.
+ - He hadn’t told me everything, but I’d left him for dead. I guess we were just about even.
+ - And ordering me around is exactly the wrong way to make me do what you want.
+ - Who. Hit. You?
+ - He wiped away the tears, tenderly, and I forgot to weep as he told me silently everything I always wanted to hear.
+ - Someday, Dante, I will discover how your mind works.
+ - I’d kind of expected that kids who knew about the Real World wouldn’t act like jock dipwads. Guess I was wrong.
+ - I got the idea she’d done her makeup up special for this. Not that she needed much. She was utterly and completely beautiful, except for the hate shining in her eyes.
+
+61 quotes

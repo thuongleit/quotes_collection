@@ -1,0 +1,25 @@
+ - Things change, and not always for the better.
+ - Even in the most wretched life, there’s hope.
+ - After all, that’s why we read historical fiction-to be transported to another time, and to be astonished at ancient people’s lives and traditions, just as they would probably be astonished at ours.
+ - I held Nefertiti’s body closer to mine, trying to press her spirit into me, to bring it back. But the reign of Nefertiti was finished. She was gone from Egypt.
+ - I wonder if our names determine our destiny, or if destiny leads us to choose certain names.
+ - But that’s how the heart is. Stubborn and foolish.
+ - You want it to feel like a surprise. You want to keep him guessing whether he’ll make you smile entirely so that when you do, he will feel like he’s been given a gift.
+ - I always thought the purpose of time was to move forward, not backward.
+ - My love is unique an none can rival her. Just by passing, she has already stolen away my heart.
+ - You will never have to marry for money. You will never have to depend on anyne but yourself.
+ - This is how memories are; what seems so clear and unforgettable at one moment vanishes like steam the next.
+ - I don’t think unhappiness is fated.
+ - But we are all sorry when loss comes for us. The test of our character comes not in how many tears we shed but in how we act after those tears have dried.
+ - I’d always thought I would feel like an animal released from its cage when my student days were finished, I felt more like a bird that had been pushed from its nest and told it must fly.
+ - You can’t change the desert. You can only take the fastest course through it. Wishing it’s an oasis won’t make it so...
+ - Why does life carry some people on the crest of the wave while others drown beneath the water?
+ - Now you are no longer a giggling child, smiling at whoever comes along. You are a woman with power. Learn to control your smile, and you can control what men will think about you.
+ - There are natural and imprescriptible rights which an entire nation has no right to violate. – MARQUIS DE LAFAYETTE.
+ - And when that time comes, let’s hope your friends outnumber your enemies.
+ - What I think and what Iam prepared to say are entirely different things.
+ - You’ll know if he loves you by how long he’s willing to fight.
+ - I understand that you are still grieving. But we will always be grieving.
+ - Sometimes, it is not the kings and queen who make for the most fascinating history but the shadowy souls who happen to be in the right place at the right time.
+
+23 quotes

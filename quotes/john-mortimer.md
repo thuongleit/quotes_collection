@@ -1,0 +1,46 @@
+ - Like childhood, old age is irresponsible, reckless, and foolhardy. Children and old people have everything to gain and nothing much to lose. It’s middle-age which is cursed by the desperate need to cling to some finger-hold halfway up the mountain, to conform, not to cause trouble, to behave well...
+ - To escape jury duty in England, wear a bowler hat and carry a copy of the Daily telegraph.
+ - All the flower children were as alike as a congress of accountants and about as interesting.
+ - I had inherited what my father called the art of the advocate, or the irritating habit of looking for the flaw in any argument.
+ - What obsesses a writer starting out on a lifetime’s work is the panic-stricken search for a voice of his own.
+ - Never believe a rumour until you hear it officially denied.
+ - A war against terrorism is an impracticable conception if it means fighting terrorism with terrorism.
+ - I’d been told of all the things you’re meant to feel when your father dies. Sudden freedom, growing up, the end of dependence, the step into the sunlight when no one is taller than you and you’re in no one’s shadow. I know what I felt. Lonely.
+ - We may not be the creme de la creme, but we are the creme de la scum.
+ - Loyalty to the school to which your parents pay to send you seemed to me like feeling loyalty to Selfridges.
+ - I refuse to spend my life worrying about what I eat. There is no pleasure worth forgoing just for an extra three years in the geriatric ward.
+ - No brilliance is needed in the law. Nothing but common sense, and relatively clean finger nails.
+ - The freedom to make a fortune on the stock exchange has been made to sound more alluring than freedom of speech.
+ - Irritable Judges suffer from a bad case of premature adjudication.
+ - The law seems like a sort of maze through which a client must be led to safety, a collection of reefs, rocks, and underwater hazards through which he or she must be piloted.
+ - Farce is tragedy played at a thousand revolutions per minute.
+ - Marriage is like pleading guilty to an indefinite sentence. Without parole.
+ - The secret of good health and happiness is to have rather small illnesses throughout your life which you can rely on to stop you doing anything you don’t want to do.
+ - The shelf life of the modern hardback writer is somewhere between the milk and the yoghurt.
+ - Dying is a matter of slapstick and pratfalls. The ageing process is not gradual or gentle. It rushes up, pushes you over and runs off laughing. No one should grow old who isn’t ready to appear ridiculous.
+ - My father, to whom I owe so much, never told me the difference between right and wrong; now I think that’s why I remain so greatly in his debt.
+ - Check-ups are, in my experience, a grave mistake; all they do is allow the quack of your choice to tell you that you have some sort of complaint that you were far happier not knowing about.
+ - I suppose that writers should, in a way, feel flattered by the censorship laws. They show a primitive fear and dread at the fearful magic of print.
+ - I don’t think you ever feel a success really because everything could always be done better than you’ve done it...
+ - I don’t believe in children’s books. I think after you’ve read Kidnapped, Treasure Island, and Huckleberry Finn, you’re ready for anything.
+ - The people look forbidding, solemn, marked by that impossible ideal, Communism, which, like Christianity, seemed to demand too much of humanity and, falling into the wrong hands, led too easily to horrible brutality.
+ - People will go to endless trouble to divorce one person and then marry someone who is exactly the same, except probably a bit poorer and a bit nastier. I don’t think anybody learns anything.
+ - Never shake hands with colleagues in court; the customers think you’re making deals.
+ - There is always time for failure.
+ - There’s more of yourself in a book than a play. that’s why we know all about Dickens and not much about Shakespeare. Ben Jonson murdered people; Marlowe was a spy; Shakespeare just sat in the corner and took notes.
+ - I found criminal clients easy and matrimonial clients hard. Matrimonial clients hate each other so much and use their children to hurt each other in beastly ways. Murderers have usually killed the one person in the world that was bugging them and they’re usually quite peaceful and agreeable.
+ - We don’t know much about the human conscience, except that it is soluble in alcohol.
+ - It is desperately important to remember when enough is enough, when you’ve finished the scene.
+ - I knew nothing about farce until I read Puce a l’Oreille, and had no idea what a deadly serious business it is.
+ - The old middle-class prerogative of being permanently in a most filthy temper.
+ - No power on earth, however, can abolish the merciless class distinction between those who are physically desirable and the lonely, pallid, spotted, silent, unfancied majority.
+ - Hell must be a place where you are only allowed to read what you agree with.
+ - The worst fault of the working classes is telling their children they’re not going to succeed, saying: There is life, but it’s not for you.
+ - Do we want blanks, asterisks and exclamation marks which people can fill in with their own imaginations, or are we prepared and strong enough to tolerate, even if we do not approve, the strong Anglo-Saxon, realistic and vivid language?
+ - The only rule I have found to have any validity in writing is not to bore yourself.
+ - The point at which beliefs meet may be more significant, more useful to contemplate, than their sources.
+ - I suppose true sexual equality will come when a general called Anthea is found having an unwise lunch with a young, unreliable model from Spain.
+ - Success is good for the character.
+ - The greatest horrors of our world are committed by people who are totally sincere.
+
+44 quotes

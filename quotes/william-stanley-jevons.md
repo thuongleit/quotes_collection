@@ -1,0 +1,46 @@
+ - A little experience is worth much argument; a few facts are better than any theory.
+ - The theory which follows is entirely based on a calculus of pleasure and pain; and the object of economics is to maximize happiness by purchasing pleasure, as it were, at the lowest cost of pain.
+ - By a commodity we shall understand any object, substance, action or service, which can afford pleasure or ward off pain.
+ - As there are so many who talk prose without knowing it, or, again, who syllogize without having the least idea what a syllogism is, so economists have long been mathematicians without being aware of the fact.
+ - Repeated reflection and inquiry have led me to the somewhat novel opinion, that value depends entirely upon utility.
+ - An isolated man like Alexander Selkirk might feel the benefit of a stock of provisions, tools and other means of facilitating industry, although cut off from traffic, with other men.
+ - Fertility of imagination and abundance of guesses at the truth are among the first requisites of discovery.
+ - Science arises from the discovery of Identity amid Diversity.
+ - A correct theory is the first step towards improvement, by showing what we need and what we might accomplish.
+ - I feel quite unable to adopt the opinion that the moment goods pass into the possession of the consumer they cease altogether to have the attributes of capital.
+ - Value is the most invincible and impalpable of ghosts, and comes and goes unthought of, while the visible and dense matter remains as it was.
+ - Property is only another name for monopoly.
+ - Logic is not only an exact science, but is the most simple and elementary of all sciences; it ought therefore undoubtedly to find some place in every course of education.
+ - It is clear that economics, if it is to be a science at all, must be a mathematical science.
+ - The difficulties of economics are mainly the difficulties of conceiving clearly and fully the conditions of utility.
+ - Labour once spent has no influence on the future value of any article; it isgone and lost for ever. In commerce bygones are forever bygones; and we are alwaysstarting clearat each moment, judging the values of things with a view to future utility.
+ - The child which overbalances itself in learning to walk is experimenting on the law of gravity.
+ - We shall never have a science of economics unless we learn to discern the operation of law even among the most perplexing complications and apparent interruptions.
+ - In short, I do not write for mathematicians, nor as a mathematician, but as an economist wishing to convince other economists that their science can only be satisfactorily treated on an explicitly mathematical basis.
+ - As a general rule, it is foolish to do just what other people are doing, because there are almost sure to be too many people doing the same thing.
+ - There are many portions of economical doctrine which appear to me as scientific in form as they are consonant with facts.
+ - Economists can never be free of from difficulties unless they will distinguish between a theory and the application of a theory.
+ - I protest against deference to any man, whether John Stuart Mill, or Adam Smith, or Aristotle, being allowed to check inquiry. Our science has become far too much a stagnant one, in which opinions rather than experience and reason are appealed to.
+ - My principal work now lies in tracing out the exact nature and conditions of utility. It seems strange indeed that economists have not bestowed more minute attention on a subject which doubtless furnishes the true key to the problems of economics.
+ - One pound invested for five years gives the same result as five pounds invested for one year, the product being five pound years.
+ - It isrequisite from time to time to remind one generation of the experience which led a former generation to important legislative actions.
+ - In matters of philosophy and science authority has ever been the great opponent of truth. A despotic calm is usually the triumph of error. In the republic of the sciences sedition and even anarchy are beneficial in the long run to the greatest happiness of the greatest number.
+ - All classes of society are trade unionists at heart, and differ chiefly in the boldness, ability, and secrecy with which they pursue their respective interests.
+ - I consider that interest is determined by the increment of produce which it enables a labourer to obtain, and is altogether independent of the total return which he receives for this labour.
+ - The calculus of utility aims at supplying the ordinary wants of man at the least cost of labour.
+ - Capital simply allows us to expend labour in advance.
+ - Logic should no longer be considered an elegant and learned accomplishment; it should take its place as an indispensable study for every well-informed person.
+ - Over-production is not possible in all branches of industry at once, but it is possible in some as compared to others.
+ - What capital I give for the spade merely replaces what the manufacturer had already invested in the expectation that the spade would be needed.
+ - Some of the gold possessed by the Romans is doubtless mixed with what we now possess; and some small part of it will be handed down as long as the human race exists.
+ - The point of equilibrium will be known by the criterion that an infinitely small amount of commodity exchanged in addition, at the same rate, will bring neither gain nor loss of utility.
+ - A spade may be made of any size, and if the same number of strokes be made in the hour, the requisite exertion will vary nearly as the cube of the length of the blade.
+ - You will perceive that economy, scientifically speaking, is a very contracted science; it is in fact a sort of vague mathematics which calculates the causes and effects of man’s industry, and shows how it may be best applied.
+ - In any case I hold that there must arise a science of the development of economic forms and relations.
+ - One of the first and most difficult steps in a science is to conceive clearly the nature of the magnitudes about which we are arguing.
+ - The whole result of continued labour is not often consumed and enjoyed in a moment; the result generally lasts for a certain length of time. We must then conceive the capital as being progressively uninvested.
+ - Among minor alterations, I may mention the substitution for the name political economy of the single convenient term economics. I cannot help thinking that it would be well to discard, as quickly as possible, the old troublesome double-worded name of our science.
+ - There are a multitude of allied branches of knowledge connected with mans condition; the relation of these to political economy is analogous to the connexion of mechanics, astronomy, optics, sound, heat, and every other branch more or less of physical science, with pure mathematics.
+ - The whole value of science consists in the power which it confers upon us of applying to one object the knowledge acquired from like objects; and it is only so far, therefore, as we can discover and register resemblances that we can turn our observations to account.
+
+44 quotes

@@ -1,0 +1,51 @@
+ - To do meaningful work is to contribute – to create value in society.
+ - Embrace change. Envision what could be, challenge the status quo, and drive creative destruction.
+ - If you never failed, then you’re probably not doing very much.
+ - A classical liberal is someone who wants a society that maximizes peace, civility, tolerance, and well-being for everyone. One that opens opportunities for everyone to advance themselves.
+ - The only way you improve is to try new things.
+ - Hubris, arrogance, is just one step ahead of loss of integrity, because if you think you’re better than other people, you know more, then you’re going to think, as many leaders have, that the rules don’t apply to them – so they lose their integrity.
+ - We must measure what leads to results, not simply what is easy to measure.
+ - We try to evaluate how much value an employee is creating here and reward them accordingly.
+ - Our vision controls the way we think and, therefore, the way we act the vision we have of our jobs determines what we do and the opportunities we see or don’t see.
+ - I want my legacy to be greater freedom, greater prosperity and a better way of life for my family, our employees and all Americans. And I wish the same for every nation on earth.
+ - Citizens who over-rely on their government to do everything not only become dependent on their government, they end up having to do whatever the government demands. In the meantime, their initiative and self-respect are destroyed.
+ - To be happy you have to fulfill your nature. That’s what Aristotle taught so many centuries ago, that the road to happiness isn’t to go drink more or consume more. The road to happiness is to fully develop your abilities, and then apply them to do good.
+ - I’ve had the philosophy that John Adams expressed, in the kind of system that we’re trying to create in this country: that this is a system for moral people. It will work for no other.
+ - We try to reward people according to the value they create, value they create in society and for the company.
+ - The role of business is to provide products and services that make peoples lives better – while using fewer resources – and to act lawfully and with integrity.
+ - Success is one of the worst enemies of success, because success tends to breed complacency and lack of humility.
+ - Best part of my job is fulfillment. When I see that, that we’re creating value, that we’re helping improve people’s lives, and we benefit from it, so it’s a system of mutual benefit. Our philosophy’s working. That’s what turns me on. That’s what keeps me going.
+ - When you start attacking cronyism and peoples political interests, it gets nasty.
+ - Repeatedly asking for government help undermines the foundations of society by destroying initiative and responsibility. It is also a fatal blow to efficiency and corrupts the political process.
+ - Do you want to have your feelings hurt a little bit because you have some negative feedback, or do you want to continue down the disastrous track you’re on and have a huge disaster? Talk about a bruised ego. It may ruin your career.
+ - No centralized government, no matter how big, how smart or how powerful, can effectively and efficiently control much of society in a beneficial way. On the contrary, big governments are inherently inefficient and harmful.
+ - All of our policies are based on whether it will make – enable people to improve their lives or it will make their lives worse.
+ - Why I’ve never been that fond of politics and only got into it recently kicking and screaming, because I don’t think politicians are going to reverse the trajectory of this country. I think it’s going to depend on the American people understanding what is fair and what makes their lives better.
+ - I studied what principles under-laid peace and prosperity and concluded the only way to achieve societal well-being was through a system of economic freedom.
+ - To make a quick buck, but over time, if you’re not creating value for others, customers, society, isn’t going to let you be around.
+ - To end cronyism we must end government’s ability to dole out favors and rig the market.
+ - I have been a libertarian in my past but now I consider myself a classical liberal.
+ - We oppose all corporate welfare, whether we benefit or not. You will find that our policy positions mainly hurt our profitability rather than help it.
+ - Most power is power to coerce somebody. We don’t have the power to coerce anybody.
+ - The reason we tend to support Republicans is they’re taking us toward the cliff at only 70 miles per hour miles an hour and the Democrats are taking us 100 miles an hour.
+ - The easy way to make money is to get special political privilege. From the beginning of time, business has cozied up to government and gotten restrictions on competition and subsidies and stuff.
+ - For business to survive over a long period, it needs to be contributing to society and people’s well-being. Otherwise, who’s going to want it? Otherwise you end up like Enron or some of these other companies.
+ - I believe that cronyism is nothing more than welfare for the rich and powerful, and should be abolished.
+ - If there is wrong, you don’t say we have to get rid of it gradually. If injustice exists, you need to eliminate it immediately.
+ - The way – the principle way that human beings had gotten out of extreme poverty is free trade.
+ - Corporate welfare, I think, is a disaster for this country. It’s crippling our economy. It is contributing to a permanent underclass and corrupting the business community.
+ - Both my parents were a tremendous influence on me. My father’s influence came from – he decided well, probably before we were born that as he put it, ‘I’m not going to have any kids who are country club bums.’
+ - We are on dangerous terrain when government picks winners and losers in the economy by subsidizing favored products and industries.
+ - I believe my business and non-profit investments are much more beneficial to societal well-being than sending more money to Washington.
+ - When everyone gets something for nothing, soon no one will have anything, because no one will be producing anything.
+ - We have the best leaders and the most depth of leadership we’ve ever had. If I get hit by a truck, maybe it would get me out of the way and it would go better.
+ - My father wanted to instill the work ethic. And, because he knew if you don’t learn to work to be more productive to improve your efficiency, to cooperate with other people at an early age, you may never learn those habits.
+ - The poorest Americans use three time the energy as the percentage of their income as the average American does. This is going to disproportionately hurt the poor. It may make the whole electric grid unstable, depending on how it is enforced. And it does nothing for the climate.
+ - A lot of the Republican rhetoric better than the Democrats’. But when they’re in office, it’s pretty much the same thing. It’s serving their supporters, it’s corporate welfare, it’s cronyism which is so destructive, particularly to the disadvantaged.
+ - Far too many businesses have been all too eager to lobby for maintaining and increasing subsidies and mandates paid by taxpayers and consumers.
+ - The government is largely influenced by people who advocate corporate welfare and advocate these policies that create this two-tiered society.
+ - When currying favor with Washington is seen as a much easier way to make money, businesses inevitably begin to compete with rivals in securing government largess, rather than in winning customers.
+ - Many businesses with unpopular products or inefficient production find it much easier to curry the favor of a few influential politicians or a government agency than to compete in the open market.
+ - Years later, when I asked my father, I said ‘Pop, why were you so much harder on me than my younger brothers?’ he said, son, you plum wore me out.
+
+49 quotes

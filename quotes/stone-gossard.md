@@ -1,0 +1,38 @@
+ - Raising awareness, changing the marketplace, effecting spiritual change – whatever it is that you decide is your thing, go for it.
+ - Words can have the same kind of magic as riffs can.
+ - My methodology is not knowing what I’m doing and making that work for me.
+ - I think if you exercise, your state of mind – my state of mind – is usually more at ease, ready for more mental challenges. Once I get the physical stuff out of the way it always seems like I have more calmness and better self-esteem.
+ - I like rhythmic things that butt up against each other in a cool kind of way.
+ - A lot of fun stuff happens when you go out on a bike compared to when you’re in a car. You’re more in the environment. It’s enjoyable. Even when It’s raining It’s still fun.
+ - Politics is tricky; it cuts both ways. Every time you make a choice, it has unintended consequences.
+ - It’s a perfectly human instinct to want to be near water.
+ - Right, those relationships with your parents and family are the hardest to figure out, and the same patterns get carried into a band situation.
+ - I think it’s evident that expensive neighborhoods in Seattle are surrounded by natural beauty. That elevates city life. So if we can make cities more attractive in the long run, we can be smarter about issues like development, zoning and economics.
+ - I liked the banana-seat bikes with the high handlebars – maybe a card in the wheel could have been part of it.
+ - Call it holistic or holographic thinking, it’s been quite effective imagining the world’s problems are all right in front of you on a smaller scale with your band. You deal with those relationships, and that’s where real major change begins.
+ - I just know that I love to write songs, and I have for a long time.
+ - You know, at 35 or at 38 or 40 you really start to see what your body could look like if you just don’t do anything all winter long. So that’s another motivating factor, our vanity.
+ - A significant event for me was learning Hank Williams, reconnecting with his music’s simplicity, which inspired me to inhabit the same territory. It’s different, because I grew up on Led Zeppelin, The Stooges and punk, so in that sense I’m mutating country and folk more than a few degrees.
+ - I think people will always love a heavy Sabbath riff because it’s fundamental to rock.
+ - Dave played an important part in our growing, but change occurs.
+ - If you have a lot of nature in your city, it becomes a more enjoyable place. That’s my own feeling about it.
+ - I learn stuff from making music every time I go in the studio. I’m continuing to try to find new ways to play in a song or be in a song and have a positive impact on a song.
+ - Every year is filled with good times and fights and struggles and misunderstandings. All of it adds up to being in a band over a long time.
+ - I like myself. I think I’m cool. But I think when you’re in a band you take on a role within the band, and I think people over the course of years can identify those roles as almost being bigger than just the individual. I don’t know. It’s kind of hard to talk about.
+ - It’s a very complex scenario, and certainly Dave was, and is, not the only person in Pearl Jam with personality flaws. Everybody in this band exhibits some form of neurotic behavior. And we couldn’t find a balance, a mutual respect for each other.
+ - It’s really comforting for me and Jeff, at least, that after 12 years we finally feel we’ve reached a place where we can be more honest, real and loving with each other. And we’re finally in a band that we know is good, and deserves the credit it’s getting.
+ - I’ve seen neighborhoods that I would have never driven though because I’m riding my bike, because I’m looking for side roads, looking for maybe more hills or less hills depending if I’m exercising or not. You see a lot more, and you get the flow of a city a lot more.
+ - I walked to Seward School first through fourth grade. It’s just amazing to me now that we’d walk down 10th Avenue on Capitol Hill.
+ - I’ve always related music to those moments when someone turns you loose on something and they haven’t told you how to do it.
+ - We may take breaks and do other things, but we feel we’ll ultimately have Pearl Jam as a family.
+ - I think I have my own sort of distinctive swing, for sure. I think that’s something that comes really natural to me, to push against the beat and kind of explore a triplet feel behind everything just to see what that feels like.
+ - I picked up a guitar, and I knew what I wanted to do.
+ - Well, you go to Holland and everybody’s on a bike – nobody would think to have a car.
+ - I really enjoy not getting in a car and running errands on bikes.
+ - On some planet, I probably could have been a lawyer. On some planet, I could have been somebody in advertising.
+ - That’s not to say Eddie’s never done anything malicious. But he never grabbed power for power’s sake. His position was gained only because he has that energy, and that’s naturally where he ended up.
+ - I like to play music. I like projects. I like excuses to hang out with my friends and play music.
+ - As a songwriter, it’s kind of hard to listen to your own stuff with clarity.
+ - It would be great to take one city street and turn it into a pedestrian corridor and see what kind of effect it has on the businesses in that area – It’s the future I think.
+
+36 quotes

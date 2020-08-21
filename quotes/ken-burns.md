@@ -1,0 +1,51 @@
+ - Do not lose your enthusiasm. In its Greek etymology, the word enthusiasm means, “God in us.”
+ - It is the great arrogance of the present to forget the intelligence of the past.
+ - There is no communication in this world except between equals.
+ - Do something that will last and be beautiful. It doesn’t have to be a bridge-or a symphony or book or a business. It could be the look in the eye of a child you raise or a simple garden you tend. Do something that will last and be beautiful.
+ - The only art form that Americans have created that’s recognized around the world is jazz music born in a community that had the peculiar experience of being unfree in a free land.
+ - People tend to forget that the word “history” contains the word “story”.
+ - History isn’t really about the past – settling old scores. It’s about defining the present and who we are.
+ - Wynton told us that Miles sold out, just wanted to make more money, just wanted to sell more records. I don’t believe that Miles sold out but I’m not in a position to say.
+ - You can learn as much about the history from reading about the present as you can vice versa, that is learning about the present through history, which is what I do for a living.
+ - The flame is not out, but it is flickering.
+ - I never, ever want to apologize for a film. If it’s bad I’ll say it’s my fault. And that’s what I can say so far in all the films that I’ve done, that if you don’t like it, it’s entirely my fault.
+ - We strain to listen to the ghosts and echoes of our inexpressibly wise past, and we have an obligation to maintain these places, to provide these sanctuaries, so that people may be in the presence of forces larger than those of the moment.
+ - It follows the seasons, beginning each year with the fond expectancy of springtime and ending with the hard facts of autumn.
+ - There are no ordinary lives.
+ - I’m a filmmaker. I’m an artist. I’ve chosen to work in history the way someone might choose to work in still lifes or landscapes.
+ - I have made all my films for my children with the exception of my first film because my oldest daughter wasn’t born when I was making the film about the Brooklyn Bridge.
+ - Nothing in our daily life offers more of the comfort of continuity, the generational connection of belonging to a vast and complicated American family, the powerful sense of home, the freedom from time’s constraints, and the great gift of accumulated memory than does our National Pastime.
+ - The way I work, the interview never becomes larger than the person being interviewed.
+ - Civics is in fact politics, and politics is how things work not only in the political realm but in every other realm. It may be this simple mechanical glitch that unites everything. This is my philosophy.
+ - When a documentary filmmaker, working in the style that I do, suggests that there has been a shooting ratio of 40 hours to every one hour of finished film, that doesn’t mean that the other 39 are bad.
+ - Write: write letters. Keep journals. Besides your children, there is no surer way of achieving immortality.
+ - We all think that an exception is going to be made in our case and were going to live forever. Being a human is actually arriving at the understanding that thats not going to be. Story is there to remind us that its just OK.
+ - You know, you meet some people, and do a lot of interviews, and you come across a Buck O’Neill and you know you are going to know him for the rest of your life. The same thing happened with Curt Flood.
+ - You don’t work on something for six years and be blind to the myriad of other approaches.
+ - To say that an artist sells out means that an artist is making a conscious choice to compromise his music, to to weaken his music for the sake of commercial gain.
+ - When you are editing, the final master is Aristotle and his poetics. You might have a terrific episode, but if people are falling out because there are just too many elements in it, you have to begin to get rid of things.
+ - You need, as a historian, essential triangulation from your subject and the only way you get that triangulation is through time.
+ - Like a layer on a pearl, you can’t specifically identify the irritant, the moment of the irritant, but at the end of the day, you know you have a pearl.
+ - I read cover to cover every jazz publication that I could and in the New York Times, every single day reading their jazz reviews even though I didn’t put them in the films. I wanted to know what is going on.
+ - I enjoy total creative control right now. Nobody tells me to make it longer, shorter, better, sexier, more violent, whatever.
+ - I can understand why some of these drummers and bass players become cult figures with all of their equipment and the incredible amount of technique they have. But there’s very little that I think satisfies you intellectually or emotionally.
+ - I think the problem with a lot of the fusion music is that its extremely predictable, its a rock rhythm and the solos all play the same stuff and they play it over and over again and theres a certain musical virtuosity involved in it.
+ - History’s just been made for sale to an inside deal.
+ - By its very nature, no one person can ever be the center of Jazz.
+ - In most films music is brought in at the end, after the picture is more or less locked, to amplify the emotions the filmmaker wants you to feel.
+ - I wake the dead. I bring Jackie Robinson and the Roosevelts to life. Who do you think Im trying to wake up?
+ - I began to feel that the drama of the truth that is in the moment and in the past is richer and more interesting than the drama of Hollywood movies. So I began looking at documentary films.
+ - I don’t use composers. I research music the way I research the photographs or the facts in my scripts.
+ - I am passionately interested in understanding how my country works. And if you want to know about this thing called the United States of America you have to know about the Civil War.
+ - I have made a film about jazz that tries to look through jazz to see what it tells us about who we are as a people. I think that jazz is a spectacularly accurate model of democracy and a kind of look into our redemptive future possibilities.
+ - I think my expectations for myself are much more severe and much more direct. You can’t work on a film for six years without being your own toughest critic. So you can’t really be distracted by the expectations based on your previous performance.
+ - I treat the photograph as a work of great complexity in which you can find drama. Add to that a careful composition of landscapes, live photography, the right music and interviews with people, and it becomes a style.
+ - I grew up certain for a while that I was going to be an anthropologist, until film turned my head.
+ - Jazz is a very accurate, curiously accurate accompaniment to 20th century America.
+ - The stories from 1975 on are not finished and there is no resolve. I could spend 50 hours on the last 25 years of jazz and still not do it justice.
+ - One of the things I really like about Ford’s films is how there is always a focus on the way characters live, and not just the male heroes.
+ - I record all of my music with authentic instruments in a studio before we start editing, doing many, many versions. The music shapes the film as we edit so it has an organic relationship to the content.
+ - I don’t think that there has been a film that I’ve done that hasn’t been influenced by libraries and archives.
+ - A jazz beat is a dynamic changing rhythm.
+
+49 quotes

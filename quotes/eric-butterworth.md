@@ -1,0 +1,64 @@
+ - Don’t go through life; grow through life.
+ - The whole Universe is on your side. Life is forever biased on the side of healing, on the side of overcoming, on the side of success. When you get yourself centered in the Universal flow you become synchronized with this divine bias for good.
+ - As the Quakers say, “When you pray, move your feet.”
+ - Behind every brilliant performance there were countless hours of practice and preparation.
+ - We are human in expression, but divine in creation and limitless in potentiality.
+ - God can only do for you what He can do through you.
+ - Prosperity is a way of living and thinking, and not just money or things.
+ - A true desire is not to have but to be. We are whole creatures in potential, and the true purpose of desire is to unfold that wholeness, to become what we can be.
+ - Things may happen around you, and things may happen to you, but the only things that matter are the things that happen in you.
+ - You were born to achieve, to release your inner power, to fulfill your uniqueness.
+ - We don’t change what we are, we change what we think what we are.
+ - Attitudes are the forerunners of conditions.
+ - Where you are in consciousness has everything to do with what you see in experience.
+ - We can become bitter or better as a result of our experiences.
+ - Missing the mark is one of the ways in which we learn to hit the target.
+ - Happy relationships depend not on finding the right person, but on being the right person.
+ - God is in you as the ocean is in the wave.
+ - The one thing that a fish can never find is water; and the one thing that man can never find is God.
+ - Ask any great athlete or the concert pianist or the successful actor if they have arrived at the place where they need no further practice. They will tell you that the higher you climb in proficiency and public acceptance, the greater the need for practice.
+ - Your fortune is not something to find but to unfold.
+ - Prosperity is not just having things. It is the consciousness that attracts the things. Prosperity is a way of living and thinking, and not just having money or things. Poverty is a way of living and thinking, and not just a lack of money or things.
+ - Our job is not to set things right but to see them right.
+ - Faith is expectancy. You do not receive what you want; you do not receive what you pray for, not even what you say you have faith in. You will always receive what you actually expect.
+ - One of the best things to do sometimes is simply to be.
+ - On human levels of consciousness one may emphasize getting and having as the prime goals, in spiritual consciousness he seeks the way of giving and being.
+ - While many people are trying to be in tune with infinite, what they really are is in tune with the indefinite.
+ - I am receptive to the inflow and outpouring of the universe.
+ - God is the transcendent whole of things of which you are an individualized part.
+ - There is only one way in which you can “change your luck” and that is by altering your thoughts.
+ - There is no such thing as a lack of faith. We all have plenty of faith, it’s just that we have faith in the wrong things. We have faith in what can’t be done rather than what can be done. We have faith in lack rather than abundance but there is no lack of faith. Faith is a law.
+ - A committed giver is an incurably happy person, a secure person, a satisfied person, and a prosperous person.
+ - Faith simply tunes into and turns on the divine flow that has always been present.
+ - Under the sustaining influence of love, the physical body is always at its best. It is probably true that more people are sick from lack of love in their lives than from all other causes put together.
+ - The secret of achieving prosperity lies in so vividly keeping yourself centered in the inner focus of affluence that you literally exude the consciousness of it.
+ - Fundamentalists believe Jesus was God becoming man. I believe that Jesus was man becoming God.
+ - Your most important asset is the conscious control of your own life.
+ - I tell you and you forget. I show you and you remember. I involve you and you understand.
+ - Infinite Mind will put ideas into your mind, words into your mouth, creativity into your hands, boundless opportunity before you, and guiding light on your way.
+ - Religious teachings and teachers have conditioned us to think of faith as a magic catalyst that makes God work for us. In no way does faith make God work nor does it release some kind of miracle power. Faith simply tunes into and turns on the divine flow that has always been present.
+ - The ideal is not believing in, but believing from.
+ - You can have all you can expect and accept.
+ - Your true image is not something to get; it is a reality to discover.
+ - All things are possible to God and to you in God-consciousness.
+ - Evil, and evil spirits, devils and devil possession, are the outgrowth of man’s inadequate consciousness of God. We must avoid thinking of evil as a thing in itself-a force that works against man or, against God, if you will.
+ - The thing I fear comes upon me.
+ - More important than learning how to recall things is finding ways to forget things that are cluttering the mind.
+ - Love so that you may actually be what you innately are.
+ - If you are anxious about a business deal or worried about your job, you are seeing failure as a possibility. And having seen and felt the end, you have willed the means of realization of the end. It is a shocking truth we should never forget.
+ - And even one life that bears witness to the truth of the prosperity law will quicken the consciousness of the whole community.
+ - In studying mathematics or simply using a mathematical principle, if we get the wrong answer in sort of algebraic equation, we do not suddenly feel that there is an anti-mathematical principle that is luring us into the wrong answers.
+ - The genius does not differ from others in their access to the light within, only in their confident acceptance of its natural outstreaming.
+ - Most people show up for work being physically accoutered but mentally disheveled.
+ - Diligently practice identifying yourself as a limitless expression of an unliminted Universe.
+ - I am not what I think. I am thinking what I think.
+ - There is only one way by which you can achieve prosperity. It is to take charge of your mind.
+ - It is consciousness that sets all limits of life, if there are any limits.
+ - Act like the person you conceive yourself to be.
+ - Jesus clearly said that you can do all that he did if you can believe, if you can center yourself in the creative flow, as he was always centered.
+ - The goal should not be to make money or acquire things, but to achieve the consciousness through which the substance will flow forth when and as you need it.
+ - When your mind is functioning correctly, there is an out streaming of light from within in the form of inspiration, hunches, leadings, and intuitive flashes – trust this process of inspiration. “In the twinkling of an eye” ideas and plans may flow into your mind.
+ - Why be an average person? All the great achievements of history have been made by strong individuals who refused to consult statistics or to listen to those who could prove convincingly that what they wanted to do, and in fact ultimately did do, was completely impossible.
+ - SIN: Self-Inflicted Nonsense.
+
+62 quotes

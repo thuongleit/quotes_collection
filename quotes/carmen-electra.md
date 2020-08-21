@@ -1,0 +1,61 @@
+ - I know I’m not perfect.
+ - I love kids. I just love kids. They put you in a good mood and they are so full of life.
+ - A bad boy with a good heart, I think that would be perfect for me.
+ - Dinner is a great first date. Don’t believe that stuff about girls not wanting to eat on a first date – sharing a romantic meal is so sexy.
+ - Is there a rehab center for Coke drinkers? I drink six to eight cans a day.
+ - When people assume that you’re one way and you’re not that way at all, it’s hard.
+ - I hate my stomach. It’s impossible to get it flat, and the area around my belly button drives me crazy.
+ - Pole dancing really isn’t as easy as it looks.
+ - Other people’s perspective, just seeing the sexy image, might be that I take my sexuality very seriously. But I really don’t. I like being sexy. It’s fun, and I have had a nice little career off it.
+ - Everyone has different layers to who they are.
+ - I’m really into quantum physics. Some of my friends are into it, some of them aren’t, so I’m trying to get them excited about discovering all these interesting things about thoughts and the power of thoughts. It gives me chills thinking about it. It’s fun.
+ - Im more attracted to a stronger man rather than a feminine man. Someone who would just throw me down and take control. I love feeling helpless. I definitely like a man who is aggressive and confident.
+ - I want someone who can keep me on my toes, has a good sense of humor and a good heart.
+ - If you think about it now, it’s kind of ridiculous. All these hot girls on Baywatch in tiny little red bathing suits running around saving lives.
+ - People are surprised at how down-to-earth I am. I like to stay home on Friday nights and listen to ‘The Art of Happiness’ by the Dalai Lama.
+ - With Aerobic Strip Tease, you can do it at home – it makes it easier for women that don’t want to go to the gym.
+ - Honestly, in the beginning, it was really tough. Coming from Cincinnati, Ohio, I was just a girl who had a dream, which was to go to Los Angeles, have a career and to be able to support my family. To have a dream like that and, you know, you’re not ready.
+ - I never had my own name on a bathing suit on Baywatch. I was always given one that said Pamela or Yasmine. I earned my own suit, at the end of the season, which I now have framed.
+ - Am I still interested in a guy’s body? Now that I have grown up, I am much more of a ‘vibe’ kind of person! If a man has a good body, that is an added plus.
+ - I don’t find any presidents all that sexy. They’re not very rock’n’roll.
+ - As a dancer, I love music that makes me want to move.
+ - I love to go get fireworks, even though some of them are illegal.
+ - There’s moments when I think it’s kind of silly and I wish I would’ve just stayed natural.
+ - For some interesting reason, I also like a guy who has a littte bit of a belly. I think that’s really cute.
+ - Laughing makes everything easier.
+ - One of the big misconceptions about me is that I walk around in mini-skirts and high heels twenty-four seven and go to the gym in heels.
+ - For some reason I only crave fruit when I’m in a tropical place – if it’s really hot in the summer or if I go to a tropical island for work. But otherwise I really don’t crave it.
+ - I just want to entertain.
+ - I have wanted to have a baby since I was a teenager, but it frightens me. It is much easier to have a dog.
+ - I’ve chosen jobs that were sexy because I wanted to do them.
+ - When anything bad happens, my insecurities come flooding out.
+ - My mom was a seamstress, and I wish I’d learned to sew because I’m obsessed with ‘Project Runway!’
+ - If you don’t have a valentine, hang out with your girlfriends, don’t go looking for someone. When it’s right, they’ll come to you.
+ - No matter where I’ve been overseas, the food stinks, except in Italy.
+ - My mom was amazing. She believed in me and we were best friends.
+ - Being flirty is a way of letting a guy know you’re interested without making a fool out of yourself.
+ - I love a man who has lived a full life and lived on the edge.
+ - I love doing comedy – I get a laugh out of it, it’s not so serious.
+ - I was performing in this burlesque group, and we would go to dance rehearsals every day. You’d use every part of your body. Even though some of it is slow, it takes a lot of muscle to be able to dip down and come back up.
+ - I would love to do more music, definitely. That is my true passion. Dance is first and then music.
+ - For some reason if we hear 100 praises and one criticism, we focus on that one hurtful thing.
+ - I tell a lot of interesting stories and talk about my background and have a lot of fun. We have a lot of pictures. They actually came to my house and shot me painting my toenails and doing dishes. But I never really do the dishes...
+ - At 18, I was attracted to bad boys.
+ - I spend a lot of time in American Apparel.
+ - I like everything loud, over the top, dramatic.
+ - Guys can get bored easily.
+ - I went to the Performing Arts School and studied classical ballet. That attitude is something that’s put into your head. You are never thin enough.
+ - If you are thinking every day, ‘I have to get to the gym’ and ‘I have to lose this weight,’ and that’s all you think about and you obsess over it, it’s not healthy.
+ - I can’t say whether or not I’ll ever get married again, but I’m open to the possibility.
+ - I like to play video games like ‘Rock Band’ and ‘Guitar Hero.’
+ - People who know me know I have a sense of humor that can really push the envelope.
+ - I’m an eight hours kind of sleeper, so I definitely try to schedule that in.
+ - I have a constant sweet tooth, so I like anything from the bakery, like cupcakes, cookies.
+ - Dancing is my number one love. That was my first goal as a child. I would love to do stage, maybe do Chicago. I love being in front of an audience. It’s so stimulating. I also love to barbecue.
+ - You know criticism when you get into this business. You accept the bad with the good, the tabloids and the positive side of it.
+ - It’s always great to have a great mascara that makes your lashes look thick and full. That’s a definite must have.
+ - I think it’s sexy when someone makes a statement that says, ‘This is who I am. This is what I think is sexy.’
+ - It’s sad. That’s a living creature. We don’t have the right to take their life away for fashion.
+ - I guess I’ve always been attracted to people who stand out as individuals – people who are adventurous and take chances.
+
+59 quotes

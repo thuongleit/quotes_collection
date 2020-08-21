@@ -1,0 +1,228 @@
+ - If you’re presenting yourself with confidence, you can pull off pretty much anything.
+ - After a hurricane, comes a rainbow.
+ - Cause I am a champion, and you’re gonna hear me roar.
+ - I will love you unconditionally.
+ - I went from zero to my own hero.
+ - There’s a spark in you you’ve just gotta ignite the light and let it SHINE.
+ - Acceptance is the key to be truly free.
+ - I’m happy, I’m in a good place, I’m looking forward to my future.
+ - Baby you’re a firework, come on, let your colors burst!!
+ - So take a chance and don’t ever look back.
+ - Be yourself and you can be anything.
+ - If you can believe in something great, then you can achieve something great.
+ - No regrets, just love. We can dance until we die. You and I, we’ll be young forever!
+ - Maybe you’re reason why all the doors are closed, so you can open one that leads you to the perfect road.
+ - I can feel a phoenix inside of me. I can see the heavens but I still hear the flames calling out my name.
+ - I’m not defined by where I came from. I never took part in the rules and hatred that sometimes go along with religion. But if my parents are happy with what they believe, then I’m happy to stay out of their way. We agree to disagree.
+ - In another life, I would be your girl, we keep all our promises, the us against the world, In another life, I would make you stay, So I don’t have to say you were the one that got away the one that got away.
+ - You said move on, where do I go?
+ - Do you ever feel like a plastic bag Drifting throught the wind Wanting to start again Do you ever feel, feel so paper thin Like a house of cards One blow from caving in.
+ - Beautiful mind, tortured soul. I do have to figure out why I am attracted to these broken birds.
+ - All this money can’t buy me a time machine.
+ - I think you can have it all, you just have to work really hard because great things don’t come easily.
+ - I don’t need the Prince Charming to have my own happy ending.
+ - Throw your stick and stones, throw your bombs and your blows, but you’re not gonna break my soul.
+ - Find out what your gift is and nurture it.
+ - I fall in love every time. And I don’t really fall in love a lot, but when I do, I fall hard.
+ - Comparisons are easily done, once you’ve had a taste of perfection.
+ - Speaking in tongues is as normal to me as ‘Pass the salt’ It’s a secret, direct prayer language to God.
+ - Cause when I’m with him I am thinking of you.
+ - You change your mind Like a girl changes clothes.
+ - I just wanna throw my phone away and find out who is really there for me.
+ - I wish that I was looking into your eyes.
+ - Recycle those nerves and make them adreneline.
+ - People talk about bullying, but you can be your own bully in some ways. You can be the person who is standing in the way of your success, and that was the case for me.
+ - I’ll continue to try and balance like a circus act. And I will just fight to always tell the truth. Even if it’s difficult.
+ - I’m going to let love lead the way, always. And I was born with this blind – blind ambition, and it’s kind of gotten me here to this point. And I think that I’ll stick to it.
+ - You don’t have to feel like a waste of space, your original can not be replaced.
+ - I’m scared. I’m excited. I’m ready for whatever happens but I think that fame is what comes along with the territory when you open yourself up and become this story, this book for anyone to read.
+ - Talking about the future, like we had a clue. Never plans that one day, I’d be losing you.
+ - I’m just singing about my own life. Singing about all the little stories in my life and the things I’ve been through.
+ - Too many girl rush into relationships because of the fear of being single, then start making compromises and losing their identity. Don’t do that.
+ - I’m not ashamed, or embarrassed. I’m happy that I grew up listening to gospel music and came from where I came from. I feel like I have a history and a story. That’s what I am and that’s what I’ll always be from. I was never running away from it.
+ - Don’t care what people gonna think of you, do what you wanna do and seek just your happiness.
+ - You could travel the world, but nothing comes close to the golden coast. Once you party with us, you’ll be falling in love, Oooooh Oh Oooooh!
+ - I sacrifice in my love life and my social life, but those things will be there in three or four years. This is a really important time in my life. I can’t just be the girl who sang ‘I Kissed a Girl.’ I have to leave a legacy.
+ - All women are created equal Then some become marines.
+ - How do I get better once I’ve had the best?
+ - My fans are the best. I mean if there was a war, I think they’d definitely win just because they’d kill them with kindness.
+ - You dig deep beyond those scars and find that soft tissue again, and you massage and nurture it and bring it to life, little by little, through serving yourself well. I did it through hikes and vitamins and therapy and prayer and good friends.
+ - Im a good girl at heart who just wants to have fun.
+ - You know you’re living right when you wake up, brush your hair – and confetti falls out!
+ - Honesty has always worked for me.
+ - I’ve lived such a great, fantastic life already, but there’s still so much more.
+ - I am never usually taking myself too seriously and I think that people when they read stuff from me, they have to realise that I’m having fun.
+ - In another life, I would be your girl. Capable of making promises. We would rule the world.
+ - I’m either going to go completely mental, completely bankrupt, or have the best success of my life.
+ - Even if you actually have the good intent to do something creative or special with your life, it’s hard. I mean, look at the number of people who actually get the opportunity.
+ - I don’t care what people say about my relationship; I don’t care what they say about my boobs. People are buying my songs; I have a sold-out tour. I’m getting incredible feedback from my music.
+ - The past is like a handful of dust. It filters through your fingers, disappearing little by little. I wish, for one day, I could go back. In another life I would do things differently.
+ - Sometimes, you promise someone forever, but it doesn’t work that way...
+ - Sometimes if you want to achieve something great, there will be curveballs. You just have to dodge them every once in a while.
+ - If you are not happy with something, you should change it. So I went to a lot of therapy, and finally, I am able to speak up for myself: You are going to hear me roar!
+ - I was really sick and I walked outside of the bus and realised; oh no I’m not allowed to be sick. I’m not allowed to say; sorry no I can’t pose with you for a photo because I’m sick. I am a super human now, or I have to be one.
+ - I like to go out there looking like a strong woman, because I am strong. But I am also a woman who goes through all kinds of problems and highs and lows.
+ - I’m okay if everything is honest and truthful and relatable. If it’s fabricated and ill-motived, it’s not good.
+ - I think that maybe people comment on the internet because they never know if they’re going to be able to meet that one person and they want to have a say so, or what have-you.
+ - I’m every woman. It takes a village to make me who I am.
+ - My personality is up and down, sassy and cheeky.
+ - I have a soft spot for women, I’m not afraid of it, some women walk into the room, and they’re so beautiful and you’re like, ‘I wanna smell you’ you know?
+ - I never want to be just one thing – I want to be multidimensional.
+ - For a modern woman it is important to be supported and that there is equality in every aspect, and that it’s not two halves that make a whole – it’s two wholes that make a whole.
+ - For me especially, I always have a very cheery disposition and that’s how I’ve always come off. So I forget that doesn’t really allow me to have a bad mood.
+ - Not to sound overly cheesy but I really appreciate the freedom we have in America – especially as a female.
+ - I’m okay with having bad dance moves. I’m okay with having horrible lower teeth. That’s what makes me me, and for some reason it’s worked out all right.
+ - If you have a dream you gotta go on a journey to fulfill that dream.
+ - I unfortunately still crave chicken McNuggets and bacon, which is the meat candy of the world.
+ - I’ve done a lot of bad things. Use your imagination.
+ - I’ve just always been very aware and careful of everything, so that I can be ready for the perfect opportunities as they come. I don’t take anything for granted or wait for anything to come to me.
+ - I see everything through a spiritual lens.
+ - I have a second chance on life.
+ - I love hearing my song on the radio the first time, but when it comes on again, I change the station. I already have so much of the spotlight on me. I don’t need any more.
+ - Everybody wants to have a commentary on my life, like they are actually living it. Cool, comment all you want but I’m the one that’s living it.
+ - I think people appreciate a songwriter who shows different sides. The whole angst thing is cool, but if that’s all you’ve got, it’s just boring. Everything I write, whether it’s happy or sad, has a sense of humor to it.
+ - I got this Jesus tattoo on my wrist when I was 18 because I know that it’s always going to be a part of me. When I’m playing, it’s staring right back at me, saying, ‘Remember where you came from.’
+ - My parents were strict, but it was the world I lived in. I had no idea there was a world outside.
+ - I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don’t try to change them anymore, and I don’t think they try to change me. We agree to disagree.
+ - But of course I love my Japanese fans and the show must go on, no matter the daily aftershocks or husband kidnappings! It’s not right but it’s okay.
+ - Hollywood is so fake and people need to realize that people are just people, and you, too, don’t need to be born into something or have money or have whatever product someone is hawking on you.
+ - You think I’m pretty Without any make-up on You think I’m funny When I tell the puch line wrong I know you get me So I’ll let my walls come down, down.
+ - I remember really vividly kneeling by my bed as a nine-year-old, saying my prayers and asking God to give me boobs that were so big that if I laid on my back I wouldn’t be able to see my feet.
+ - I hate working out, but I love jumping rope. Theres a rhythm. It’s like dancing.
+ - I’m not coming out trying to prove anything to anyone, like, ‘Oh, I’m in assless chaps!’ or ‘I can’t be tamed!’ I’ve already been through that phase. I started at 23, you know?
+ - I’m a good girl because I really believe in love, integrity, and respect.
+ - Many people think I try to be like Lady Gaga but what they don’t know is that I’m a Britney Spears wanna be.
+ - I had this lump in my throat, but I couldn’t even cry. I thought, I shouldn’t have gotten my hopes up. I was just sitting there in my car that I was two months behind on payments for, knowing I didn’t have money for rent.
+ - I’m a romantic and I kinda believed in this fairy tale. And in some ways I think that’s always been to my advantage, because like if you can believe in something great, I feel like you can achieve something great.
+ - I grew up raised in church, my parents are both traveling ministers. They blocked out MTV which was fine, but I’d find myself figuring out who New Kids On The Block were.
+ - I like a good boy, but sometimes you get bored.
+ - I can’t rate myself, but if you ask Russell, I’m sure he’d give me a ten out of ten.
+ - I don’t feel like I’m very pop-star lame, but I’m definitely not hipster-cool.
+ - I missed out on the Spice Girls. I missed out on all those big pop phenomenon and missed out even on the Madonna records. It’s okay, cuz I’m playing catch-up on everything now.
+ - I don’t follow trends. I’m just not into what everyone else is wearing. I have my own look, which I call ‘Lolita Meets Old Hollywood Glam.’
+ - I’m an emotional person. I love music that moves me and makes the hair on my arms stand up. And I want the same thing in relationships. Either you can keep up or you can’t.
+ - Last Friday night; Yeah we danced on tabletops. And we took too many shots. Think we kissed, but I forgot?
+ - I feel like my secret magic trick that separates me from a lot of my peers is the bravery to be vulnerable and truthful and honest.
+ - I had no clue they would fall into my armpits eventually.
+ - I believe that I will be loved again, in the right way. I know I’m worth it.
+ - I can’t be the candy queen forever.
+ - I’m still driving along on the pop freeway of life. Thinking even further into the future, I definitely want to make an acoustic record. I want to try lots of different things.
+ - I’m on this extraordinary adventure, and if I have no one to talk to at the end of the night, I feel lonely.
+ - My mother is very emotional as well, but my dad is more of the guts of the family. He was the main preacher, so he kind of had this little Pentecostal flair, but they are born-again.
+ - You can’t be a full tranny every day of the week that’s an exaggerated part of my personality.
+ - Santa Barbara is my hood. I mean, it’s not much of a hood, but it is definitely like my hood. I claim Santa Barbara like I claim my family. I’m going to be married and buried there.
+ - My singing is really important to me, but when children come along they’ll be my main focus. I’d never put my career in front of my babies – it’d be a case of fitting jobs around them.
+ - I’m okay with having horrible lower teeth.
+ - Thank you for believing in my weirdness!
+ - You can get through it and you can land on your feet triumphantly and strong.
+ - I was never really attached to a clique, and I wanted to be in all the different groups; I was never a one-group kind of person. I think that’s still part of my personality today.
+ - I wanted to be that quirky girl who writes funny songs that still have meaning.
+ - I just like having fun. And, you know, sometimes I just like to present myself in that fun energy.
+ - The media, is media. You always have to take the media with a grain of salt. You can’t believe everything you read.
+ - I was a hop-around. I hung out with the rockabilly crew, the guys who were trying to be rappers, the funny kids.
+ - I came from a lot of intolerance and prejudice, which aren’t necessarily healthy to evolve as a human.
+ - I really love going to shows where I’m sandwiched between people, and you don’t know if the sweat on you is yours or the person’s next to you.
+ - You look at someone like Beyonce singing ‘Single Ladies,’ when we all know she’s married. Some of it is just for entertainment.
+ - Honey, I am the chief of my train. If critics want to hop on board, fantastic. There’s plenty of room. The KP train is fun.
+ - I really like to look like a history book. I can look 1940s, I can look 1970s hippie-chic, or sometimes I’ll pull that ’80s Brooklyn hip-hop kid with the door-knocker earrings.
+ - I’m like a fatter version of Amy Winehouse and a skinnier version of Lily Allen.
+ - I think you become more relatable when you’re vulnerable.
+ - I don’t have a Kate Moss body, but I’m very proud and happy with mine.
+ - I think when you put sex and spirituality in the same bottle and shake it up, bad things happen.
+ - I came from a different mind-set growing up, and my mind has changed.
+ - My whole thing is to agree to disagree and to have respect because nothing can really be changed and you wouldn’t want to ruin their happiness – even if that happiness is ignorance.
+ - It was so draining. Going to parties to rub elbows with so-and-so and act like it’s no big deal, when really all I was doing was hoping I’d have the success they had.
+ - I just want to make it very clear that I come from very humble beginnings, and I worked for everything!
+ - I think that you should definitely listen to what people say, because everyone says it: High school is not the real world.
+ - I am a pop girl! And I’m on a major label. I enjoy singing pop songs.
+ - I have a soft spot for musicians. If a man could ride this roller coaster with me and come out alive, then I guess we’d deserve each other’s company.
+ - I really wanted to call this album Teenage Wet Dream.
+ - Be yourself, that’s what makes the world go round!
+ - If people want a role model, they can have Miley Cyrus.
+ - I still want to be as approachable and relatable as possible – when I meet fans and they’re crying, I’ll say, ‘Calm down, there’s nothing to cry about.’
+ - I still have a spiritual base and a spiritual foundation. And my conversation with God is very open-ended. I pray for humility, honestly, because it’s very easy to be caught up in this world.
+ - I am so grateful for all the love and support I’ve had from people around the world.
+ - I’m competitive with myself, and that goes hand in hand with how I present myself. I’m not only trying to put one foot in front of the other, I’m trying to put my best foot forward.
+ - The records are black boxes for me. Like, if you want to know who I am, my views, my perspective, things I love, things I hate, my convictions, my anthems. I’ve never let people’s opinions affect the way I write.
+ - I am not a feminist, but I do believe in the strength of women.
+ - I always tell my fans that are closest to me, if it’s not coming from my mouth, my website, or my appointed person, then it’s generally not true. Or it’s an exaggeration.
+ - I get a lot of the ideas when I’m resting – either when I’m meditating or getting some kind of work done on my back, like physical therapy or acupuncture. That’s where I get my best ideas, maybe because I’m balancing my body.
+ - I’ve always been ambitious since I was nine years old and that was never going to change.
+ - I just changed as a person and have always been changing constantly from fifteen to twenty-three.
+ - I love what I do and when I don’t love what I do, I’ll make a change.
+ - I think Rihanna always looks so fresh and I’m like, “How do you do that? We all know how much pot you smoke!”
+ - I have multipersonality disorder – in a very good way, of course – when it comes to my fashion choices.
+ - Maybe I’m competitive. I just feel like I have this gift that I’ve been given. It’s like, “Someone unwrap it! Here it is!” That drive can’t be held down. I have a lot of ambition.
+ - You have to spend a lot to make a lot. It’s not like I’m sitting on top of a pile of money.
+ - One thing I can’t do, and I hope that there are other people out there that feel the same way, is climb a rope. Oh my gosh, it’s so hard to climb rope! It’s all about grip and arms.
+ - I’m definitely not trying to be, or am, a poster child for anything so structured. But I do have my own personal faith most definitely.
+ - I’m a woman who likes to be courted, strongly. Never say never, I guess you’d say. I’ll let love take the lead on that.
+ - They think that I was like Amy Grant, when actually no! The label went bankrupt and maybe sold a couple hundred records and that’s about it. I was just trying different things.
+ - I wanted it to be like Amy Grant, but it didn’t pan out that way. My label actually went bankrupt, and I was left without a home.
+ - Using blasphemy as entertainment is as cheap as a comedian telling a fart joke.
+ - I have a confidence because my research shows that I should just really trust my instincts.
+ - People tried to do a lot of stuff with me early in my career where they tried to shape me into one thing or another. They couldn’t just take the chance and go with my vision – which was just my intuition, really.
+ - I’m not defined by where I came from.
+ - I am a gay activist and I say that proudly. I voted no on Prop 8.
+ - I feel like I have a little bit of a fresh ear when creating music. I’m not trying to be like anything else, cuz I have no idea what anything else is like!
+ - I’m kinda saving myself for Miley Cyrus.
+ - My heart beat Beats me senselessly Why’s everything Gotta be so intense with me...
+ - People don’t want just vanilla. They want 31 flavors. I couldn’t do what Rihanna does. I couldn’t do what Gaga does. They can’t do what I do.
+ - There are times I go out and meet people and flirt, but it’s not really appropriate to have anything serious.
+ - I have a lot of ambition.
+ - What I wanted to be and who I am is a singer and a songwriter. I wanted to be onstage, and I wanted the world to hear my music. The product of that is fame and the disgusting celebrity that goes along with it. But celebrity does not equal creativity.
+ - I was raised in a super-sheltered atmosphere where we didn’t watch anything besides Trinity Broadcasting Network – which was called TBN – or the Fox News channel.
+ - I actually finally let the Light in and then I was able to create all these songs that were inspired by letting the Light in and doing some self-reflection and just kind of working on myself.
+ - In another life, I would be your belle.
+ - I think the world likes to pick apart different songs and play doctor with songs sometimes and make them into this big controversial thing.
+ - The internet is such a strange place. You can put up one thing on there like, Katy Perry was a taekwondo master of the black belt! When really all I did was one kickboxing class. That’s how I think my short time in doing my gospel record was like.
+ - I don’t want to completely self-sabotage everything that I’ve got and alienate everyone. But I definitely want to take some chances as I always have.
+ - If you like my music, great, and if you don’t, whatever. I’m going to keep making it either way.
+ - I’m really critical of my posture, it makes a big difference. And I try to suck my belly in. Everyone should do that whether you’re on a red carpet or not. Even if you’re just going out to dinner with your boyfriend you should try and suck it in.
+ - I still believe in love, most definitely. I’m just going to let that take the lead.
+ - When I was 13, I asked for a guitar. And that’s how I really started explaining my point of view.
+ - I can assure you, nothing in my performance will be deflated.
+ - I just feel like I’m going to be criticized regardless of what I do next, so I might as well do something that I feel really passionate about.
+ - I’d like to say I’d like to be as big as a Gwen or a Madonna, but I think those days of achieving that level are over. The media is bringing everybody down.
+ - This is the city that taught me how to write all of these cool songs. Yeah, you guys definitely need a royalty.
+ - My parents are very quirky, eccentric. They have their own world.
+ - I just have so much love for my record label.
+ - Cause in you’re eyes, I’d like to stay.
+ - I come from a very non-accepting family, but I’m very accepting.
+ - The first songs I wrote were catchy, but the subject matter was God.
+ - I’d never devote a whole record to heartbreak.
+ - I’ve actually always wanted to make something like an acoustic record.
+ - I did a lot of thrift and vintage. I would mix those pieces into some of the more inexpensive items from Express, Gap, Old Navy, and Clothestime.
+ - I’m really happy to be on the cover as a strong female who has created her own career.
+ - I wasn’t allowed to listen to a lot of music growing up. It wasn’t until I started to make my gospel record when I was around 14 or 15 that I started to be exposed to more outside influences.
+ - I can’t just be the girl who sang ‘I Kissed a Girl.’ I have to leave a legacy.
+ - Fame is, I think, just a disgusting by-product of what I do.
+ - I still want to make a pop record. I want to make a more sonically current pop record. I maybe want to make people move a little bit more.
+ - We’re technology obsessed. I think it’s easier to text than to actually say hi to someone.
+ - I consider myself a believer in something much bigger than myself, thank God.
+ - I grew up listening to gospel. That was the only thing that I had reference to because that was what my family was involved with.
+ - When I first started out, I was really attracted to having my own sense of style because I started swing dancing, lindy hop, and jitterbug.
+ - I have to be a ginger for 3 weeks.
+ - I didn’t come here to run for President. I really just came here to play rock and roll.
+ - I think it’s great to dress up and play on all the girly features.
+ - I did my gospel record, but there was nothing really of it. Maybe a hundred people bought it. But it’s one of those things on the internet that people find and they make into a big deal.
+ - I was not even allowed to mention the name Madonna in my household – just because I think the ’80s and ’90s were so Madonna-filled. She was going through so many evolutions at that time.
+ - Sometimes I can be distracted by the glamour and the fabulousness.
+ - I love those documentaries where everyone is fabulous and always perfect.
+ - I got a fantastic person to work me out and get me into really good shape.
+ - My job is for the people. It’s for the public. It’s for their consumption. So I’ve done a lot in that way, and I see that the hard work has finally paid off.
+ - A lot of the time people don’t even know what they want until they see something new.
+ - I’m a woman who likes to be courted – strongly.
+ - When I love somebody, I love somebody. Like, I want to marry them. I don’t date around. I haven’t been on a date.
+ - Unfortunately, I think a lot of people are affected more by the idea of fame than the actual work ethic involved. A lot of them just want to be reality TV-type people who don’t do anything.
+ - I still have a spiritual base and a spiritual foundation.
+ - I grew up not really having anything, so the idea that I can take care of my family and my friends now is a really cool bonus.
+ - With songs, I’ve always pledged to be honest. I write my songs because I’ve lived them.
+ - Touring is always important to me. It’s like a big IOU to my fans, because I know they are the reason I exist.
+ - The press is just not your friend when it comes to a marriage. That’s why we didn’t sell the pictures of our wedding, and we got offered millions of dollars for them, millions.
+ - I feel really blessed because of where I come from.
+ - My dad would give me $10, which is a lot of money when you’re 9, to sing at church, on tables at restaurants, at family functions, just about anywhere.
+ - My style icons were Gwen Stefani, when she was in No Doubt, and then Shirley Manson in Garbage.
+ - I just like having fun.
+
+226 quotes

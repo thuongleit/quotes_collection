@@ -1,0 +1,35 @@
+ - Due to budget cuts the light at the end of the tunnel has been turned off.
+ - I’M A HOPELESS ROMANTIC.
+ - I need to listen to chill music when I’m driving. It prevents road rage.
+ - I love cars, I have two classic cars of my own.
+ - The best way to watch Breaking Bad is in the fetal position, sobbing.
+ - I’ve grown so much, not just as an actor, but as a human being.
+ - Yeah, I left Idaho at 17. You know, I graduated high school a year early and just, you know, the typical story, packed up my car and moved out.
+ - I do tend to gravitate to the more dramatic side of things. I love feeling intense emotions when I’m acting. I just love characters and stories with conflict.
+ - I love stories that put you on the edge of your seat and make you feel something.
+ - I just don’t like to ask for things.
+ - That’s the wonder of the internet. It’s the power of numbers: get enough people to retweet something, someone might see it.
+ - There’s the really angry drunk, who’s just annoying to be around. I prefer the drunk who falls all over the place and is being completely inappropriate. Or the super-loud, happy drunk, which is evidentially what I am.
+ - I saw a lot of people have success handed to them that then exploited it. They didn’t protect it or cherish it.
+ - I’m obsessed with concerts.
+ - I’m a character actor.
+ - The first part of my career, how I was paying the bills was commercials. I was just doing tons of commercials.
+ - I grew up all over Idaho – I was born in Emmett, a very small town.
+ - I mean, I’ve never really had much security, to be honest.
+ - I’m not a leading man.
+ - When I was six all I could think about was ding-dongs and yo-yos.
+ - I don’t really seem to gravitate to romantic comedies.
+ - I never really thought of myself as being an action hero or a leading man, or any of that. I’m a character actor.
+ - I think by eighth grade I knew I wanted to be an actor. I’d done church plays and stuff, but my first actual acting class was in eighth grade. I was obsessed with it.
+ - I filmed myself drunk, just to see what I’m like. I watched so many funny videos of people drunk on YouTube.
+ - I would be lying if I didn’t admit there might be a scene in the movie where there might be alcohol in my system.
+ - When I first started, I just wanted to work. I wouldn’t necessarily do anything, but I’d pretty much almost do anything at the very beginning.
+ - Thank you, Hollywood, for allowing me to be part of your group.
+ - My end goal is just to do projects at the end of the day that I’m proud of.
+ - I think that for some people faith is good – they have something to draw to.
+ - I have 14 nieces and nephews.
+ - What’s so great about television. You’re able to tell a long story, where you couldn’t really do that in a film because you have to tell a story in an hour and a half or two hours.
+ - I love playing odd roles.
+ - Love love and cherish life. Also, just eat the cake.
+
+33 quotes

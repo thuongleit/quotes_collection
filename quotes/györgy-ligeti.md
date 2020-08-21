@@ -1,0 +1,35 @@
+ - First of all I listen to music. I like music.
+ - I continued to study Math and Physics on my own, but one and a half years later I realized that I did want to be a composer, and after that I never changed my mind.
+ - However, I began composing as soon as I started taking piano lessons.
+ - I listen to all kinds of music – new music, old music, music of my colleagues, everything.
+ - For the past ten years I have had no financial problems.
+ - In my piano concerto I developed this polyphony to much higher complexity.
+ - New York is the dream world, the center of jazz and rock.
+ - But if you go from Moscow to Budapest you think you are in Paris.
+ - Now there is no taboo; everything is allowed. But one cannot simply go back to tonality, it’s not the way. We must find a way of neither going back nor continuing the avant-garde. I am in a prison: one wall is the avant-garde, the other wall is the past, and I want to escape.
+ - I don’t read such boring things. Life is too short.
+ - When I was younger I was completely without money – when I was studying in Budapest, when I was a refugee.
+ - Perhaps the better word is emotional yes, I am an emotional man.
+ - But I do not want to use Hungarian verses for British people.
+ - There is a wonderful Hungarian literature, especially in lyric poetry.
+ - I lived under the Nazis and under the Communists.
+ - I only want to give a metaphysic for my music.
+ - Once, in London, the BBC asked me what was my favorite English book. I said Alice in Wonderland.
+ - It isn’t false modesty when I say this, but although I am supposed to be a famous person it doesn’t mean anything to me. I just sit at home and work.
+ - I know already the music I will write. But the words? I have not yet decided.
+ - I think a composer is always interested in his last work.
+ - I was fifteen years old, and I hardly knew how to play a simple Bach prelude on the piano when I began to compose music, and at the most advanced level. I had never studied such things as harmony.
+ - Then, after the war it was impossible to travel, after so many years of Hitler and Stalin.
+ - Well I live in Vienna with my wife and son, and I teach in Hamburg, there will be no changes in that respect.
+ - Stravinsky used Mother Goose. He was influenced by Mother Goose, indirectly, but very beautifully.
+ - I don’t use old music.
+ - People often thought Leopold Auer was Russian because he lived in St. Petersburg so long, almost fifty years.
+ - I write bars, for the musicians, because they have to be together.
+ - My grandfather was not a musician but he was an artist – a painter, a decorative painter.
+ - There was a very famous musician in our family. He was a great violinist, an internationally known teacher. He was Leopold Auer.
+ - In January 1944 I was called up by the Forced Labor Service, but I deserted on October 10, 1944.
+ - I think it was when I was nineteen, by that time the Jewish laws were already in force and the split was beginning to come about which isolated the Jewish culture.
+ - I like to stay home and listen to recordings.
+ - Yes, fractals are what I want to find in my music.
+
+33 quotes

@@ -1,0 +1,41 @@
+ - I hate to lose more than I love to win.
+ - I hate to lose more than I like to win. I hate to see the happiness on their faces when they beat me!
+ - I never lost a tennis match, I just ran out of time.
+ - Greatest thing in life: Winning a tennis match. Second greatest thing in life: Losing a tennis match.
+ - With everything else that would swirl around me when I got involved in it, tennis was my main concern.
+ - I’ve been kicked in the teeth more times in tennis than the law ought to allow.
+ - I was never part of the crowd.
+ - What works for the person you’re imitating may not work for you.
+ - The trouble with experience is that by the time you have it you are too old to take advantage of it.
+ - Tennis was never work for me, tennis was fun. And the tougher the battle and the longer the match, the more fun I had.
+ - I am not looking to be understood or liked. Like me or not, I don’t care. I am an outsider, that is the way I was brought up.
+ - I’m not begging to be remembered or whatever. I did my thing, and if you remember, that’s even better. But if you don’t, there’s so many other things going on.
+ - People don’t seem to understand that it’s a damn war out there.
+ - There is only one number one. It is a lonely spot but it has got the best view of all.
+ - Rather than viewing a brief relapse back to inactivity as a failure, treat it as a challenge and try to get back on track as soon as possible.
+ - Tennis was always there for me, which was lucky. I would go play baseball, basketball, football, hang with my brother, do whatever, and at the end of the day I’d come back and say, ‘Hey, Mom, would you hit 15 minutes worth of balls with me?’
+ - You have to remember that I played longer than anybody else on the main tour; I played until I was 40, and then played another six years or so on the seniors tour.
+ - Big money encourages tanking. In my opinion, tanking is going on even with a lot of the top guys today – it’s quite evident.
+ - Experience is a great advantage. The problem is that when you get the experience, you’re too damned old to do anything about it.
+ - I don’t go out there to love my enemy. I go out there to squash him.
+ - Nothing is like being out there and playing and performing and winning – nothing. But to have an interest in the player? The nerves and everything that goes with it? Seeing what he’s learned and how he’s done it? That’s the second best thing to playing. I think.
+ - Bjorn was a different breed, I threw my best material at him, but he would never smile, but that added to the charm when he played me and Mac. We were going nuts and losing our mind and he was sitting back like he was on a Sunday stroll.
+ - People don’t seem to understand that it’s a damn war out there. Maybe my methods aren’t socially acceptable to some, but it’s what I have to do to survive. I don’t go out there to love my enemy. I go out there to squash him.
+ - It was okay for Wayne Gretzky’s dad, for instance, to give him a hockey stick, or Joe Montana’s dad to give him a football, or Larry Bird’s dad to give him a basketball, but it wasn’t okay for Gloria Connors to give her son a tennis racquet.
+ - New Yorkers love it when you spill your guts out there. Spill your guts at Wimbledon and they make you stop and clean it up.
+ - For the last five or six years the most important thing in my life has been my family.
+ - From where we lived, to practise in St Louis was an hour-and-a-half drive each way, so that took a lot of the time. So really, our lives just took different paths.
+ - When you’re hot, anything can happen.
+ - Back in East St. Louis, tennis wasn’t the real thing. If you weren’t playing baseball, basketball, football, you were kind of on the outside.
+ - Playing in front of 25,000 people and millions more on television, and performing and doing what I worked so hard to try to accomplish was, in my opinion, the ultimate. Do I miss it? Of course I do.
+ - People say I’m around because I have a lot of heart, but I know all the heart in the world couldn’t have helped me if I wasn’t physically fit.
+ - Equality? They ought to play the women’s final on opening day. Everybody knows who’s going to be in it.
+ - But why should I read what somebody else thinks of my life when I know the real story?
+ - There was never anything I wanted to do more than play tennis. Never once walked out there and thought, ‘I wish I was doing something else.’ Not once.
+ - Tennis would be much more exciting if they had pitching machines firing Tennis was given to me to keep me off the street corners of east St. Louis.
+ - The minute you think you know everything about tennis is the minute your game starts going down the tubes.
+ - I always insist on my jeans being ironed. Is that a problem?
+ - No, like I said, my dad was never really part of the tennis. His involvement around what I did with the tennis and with my mom and my grandparents was really not a part of my life.
+ - I was raised by two women, and that laid the groundwork for the way I treat ’em: with the utmost respect and admiration.
+
+39 quotes

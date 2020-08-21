@@ -1,0 +1,31 @@
+ - The second advantage claimed for naturalism is that it is equivalent to rationality, because it assumes a model of reality in which all events are in principle accessible to scientific investigation.
+ - Evolutionary naturalism takes the inherent limitations of science and turns them into a devastating philosophical weapon: because science is our only real way of knowing anything, what science cannot know cannot be real.
+ - If modernist naturalism were true, there would be no objective truth outside of science. In that case right and wrong would be a matter of cultural preference, or political power, and the power already available to modernists ideologies would be overwhelming.
+ - As a theist I believe that God exists and that God creates.
+ - The Intelligent Design movement starts with the recognition that “In the beginning was the Word,” and “In the beginning God created.” Establishing that point isn’t enough, but it is absolutely essential to the rest of the gospel message.
+ - A constitutional democracy is in serious trouble if its citizenry does not have a certain degree of education and civic virtue.
+ - We’re not trying to prove the character of God through science. That’s a bad idea. What I’m trying to do is clear away the misunderstandings, the debris that prevent people from accepting that God who wants to accept them.
+ - The monopoly of science in the realm of knowledge explains why evolutionary biologists do not find it meaningful to address the question whether the Darwinian theory is true.
+ - No doubt it is true that science cannot study God, but it hardly follows that God had to keep a safe distance from everything that scientists want to study.
+ - Some theists in evolutionary science acquiesce to these tacit rules and retain a personal faith while accepting a thoroughly naturalistic picture of physical reality.
+ - In China we can criticize Darwin but not the government. In America you can criticize the government but not Darwin.
+ - The problem with allowing God a role in the history of life is not that science would cease, but rather that scientists would have to acknowledge the existence of something important which is outside the boundaries of natural science.
+ - In short, the proposition that God was in any way involved in our creation is effectively outlawed, and implicitly negated.
+ - Although I insist that God has always had the power to intervene directly in nature to create new forms, I am willing to be per-suaded that He chose not to do so and instead employed secondary natural causes like random mutation and natural selection.
+ - Evolutionary biologists have been able to pretend to know how complex biological systems originated only because they treated them as black boxes. Now that biochemists have opened the black boxes and seen what is inside, they know the Darwinian theory is just a story, not a scientific explanation.
+ - To philosophical materialists God is no more than an idea in the human mind, and not a very important idea.
+ - Truth as such is not a particularly important concept in naturalistic philosophy.
+ - In the most important sense a creationist is a person who believes in creation, and that includes people who believe that Genesis is a myth and that creation involved a process called evolution and consumed billions of years.
+ - Scientists have long known that Darwinism is false. They have adhered to the myth out of self-interest and a zealous desire to put down God.
+ - Materialism sets us free from sin-by proving that there is no such thing as sin. There’s just antisocial behavior, which we can control with measures like laws and educational programs.
+ - The assumption that nature is all there is, and that nature has been governed by the same rules at all times and places, makes it possible for natural science to be confident that it can explain such things as how life began.
+ - In short, it is not that evolutionary naturalists have been less brazen than the scientific creationists in holding science hostage, but rather that they have been infinitely more effective in getting away with it.
+ - All the most prominent Darwinists proclaim naturalistic philosophy when they think it safe to do so.
+ - First, Darwinian theory tells us how a certain amount of diversity in life forms can develop once we have various types of complex living organisms already in existence.
+ - Most importantly, I agree that the truth of these matters should be determined by interpretation of scientific evidence – experiments, fossil studies and the like.
+ - According to the scientific naturalist version of cosmic history, nature is a permanently closed system of material effects that can never be influenced by something from outside – like God, for example.
+ - The restriction of religion to private life therefore does not necessarily threaten the vital interests of the majority religion, if there is one, and it protects minority religions from tyranny of the majority.
+ - So one reason the science educators panic at the first sign of public rebellion is that they fear exposure of the implicit religious content in what they are teaching.
+ - Darwinism is not merely a support for naturalistic philosophy: it is a product of naturalistic philosophy.
+
+29 quotes

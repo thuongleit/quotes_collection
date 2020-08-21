@@ -1,0 +1,23 @@
+ - Can’t be touched, Can’t be stopped, Can’t be moved, Can’t be rocked, Can’t be shook.
+ - My first advice is to keep God first in everything you do. Second is stay in shape, stay ready and learn about the business because you don’t want to be in a business you know nothing about, because they will take advantage of you, in this business.
+ - There’s one thing I remember about Muhammad Ali. He said “I don’t like my condition, but if this is what the Good Lord has planned for me to deal with, I’m happy with that.” You have to understand, that comes from my idol, one of the guys that got me started in boxing.
+ - Boxing is not brutal, it’s an art – God has gifted me with incredible handspeed as a tool to be used – what else am I supposed to do but fight? There ain’t no hand-racing competitions.
+ - It was a tough situation. A fight that nobody expected to end so abruptly for him because he was really a great fighter. I felt sorry for him and I knew it could happen to anybody. And it could happen to any of us at any time. So when I was in a position to help him, I did what I could to help him.
+ - If it comes from Tom Hauser, it’s the truth.
+ - When I thought about it, I said “if you quit now, how you gonna explain to any other kid coming up that if something don’t go their way, they’re supposed to get up and go hard at it next time?” You can’t if you quit.
+ - I don’t know if I’m the best Pound-For-Pound fighter ever. I know I’m close. I gotta be Top 5.
+ - We’re in Madison Square Garden, I can’t let you beat me in Madison Square Garden, are you serious!?
+ - Sorry to disappoint you but I don’t even watch the Olympics no more.
+ - I think I might’ve turned 39, look like I turned 29, feel like I turned about 19.
+ - He don’t know what it is to lose, so I gotta teach him something that he doesn’t know yet.
+ - He just got his neck broke one time, I’m not tryna break his neck again, that’s not what I fight for. I fight to have fun, not to hurt nobody.
+ - I’m having a wonderful time in training. It’s so funny because you go through ups and you go through downs. People have to realize that my career started on a down. I got ripped off a Gold Medal at the Olympics but it didn’t stop me and it made me a better person.
+ - There’s no way a fighter should fight and put his life on the line, and a promoter makes more money than he makes.
+ - I was concerned about them. I mean, it feels good but I was concerned about them.
+ - I always feel like there’s no fighter that I can’t figure out.
+ - I can get a title shot any time I want to. They know I can beat 110% of the champions out there right now. I just have to be motivated. Most of them are going to be trying to not give me a shot.
+ - Every fighter should really do that if they can, because if you build a fan base at home first, then once they receive you at home, it’ll be easier to be received elsewhere.
+ - I hope that not one of them ever wanna even think about boxing.
+ - If they just reverse the division, ban the judges, and then it’ll discourage other judges from ever doing this.
+
+21 quotes

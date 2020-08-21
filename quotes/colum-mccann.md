@@ -1,0 +1,97 @@
+ - The world spins. We stumble on. It is enough.
+ - Literature can remind us that not all life is already written down: there are still so many stories to be told.
+ - Whatever you say, say nothing.
+ - There are moments we return to, now and always. Family is like water – it has a memory of what it once filled, always trying to get back to the original stream.
+ - The repeated lies become history, but they don’t necessarily become the truth.
+ - The thing about love is that we come alive in bodies not our own.
+ - Cynicism is easy. An optimist is a braver cynic.
+ - If they ask you to stand still, you should dance.
+ - I’m not interested in blind optimism, but I’m very interested in optimism that is hard-won, that takes on darkness and then says, ‘This is not enough.’ But it takes time, more time than we can sometimes imagine, to get there. And sometimes we don’t.
+ - He might have been naive, but he didn’t care; he said he’s rather die with his heart on his sleeve than end up another cynic.
+ - Even if you’re going to die, you might as well die pretty.
+ - I sit there thinking about how much courage it takes to live an ordinary life.
+ - She was tired of everyone wanting to go to heaven, nobody wanting to die. The only thing worth grieving over, she said, was that sometimes there was more beauty in this life than the world could bear.
+ - There’s a part of me that thinks perhaps we go on existing in a place even after we’ve left it.
+ - Good days, they come around the oddest corners.
+ - People are good or half good or a quarter good, and it changes all the time- but even on the best day nobody’s perfect.
+ - The real beauty in life is that beauty can sometimes occur.
+ - Long ago, long ago. The simple things come back to us. They rest for a moment by our ribcages then suddenly reach in and twist our hearts a notch backward.
+ - It is not fashionable anymore, I suppose, to have a regard for one’s mother in the way my brother and I had then, in the mid-1950s, when the noise outside the window was mostly wind and sea chime.
+ - There are rocks deep enough in this earth that no matter what the rupture, they will never see the surface. There is, I think, a fear of love. There is a fear of love.
+ - We stumble on, thinks Jaslyn, bring a little noise into the silence, find in others the ongoing of ourselves. It is almost enough.
+ - He said to me once that most of the time people use the word love as just another way to show off they’re hungry. The way he said it went something like: Glorify their appetites.
+ - Yet she likes complications. She wishes she could turn and say: I like people who unbalance me.
+ - Let this be a lesson to us all, said the preacher. You will be walking someday in the dark and the truth will come shining through, and behind you will be a life that you never want to see again.
+ - She wanted to tell him so mach, on the tarmac, the day he left. The world is run by brutal men and the surest proof is their armies. If they ask you to stand still, you should dance. If they ask you to burn the flag, wave it. If they ask you to murder, re-create.
+ - This is not my life. These are not my cobwebs. This is not the darkness I was designed for.
+ - She takes another long haul, lets the smoke settle in her lungs – she has heard somewhere that cigarettes are good for grief. One long drag and you forget how to cry. The body too busy dealing with the poison.
+ - Life must pass through difficulty in order to achieve any modicum of beauty.
+ - I gave them all the truth and none of the honesty.
+ - Things in life have no real beginning, though our stories about them always do.
+ - It had never occurred to me before but everything in New York is built upon another thing, nothing is entirely by itself, each thing as strange as the last, and connected.
+ - She was forever tilted sideways by the notion that pain was inevitable, chance was cruel, and all human ingenuity should go towards the making of a good cup of tea.
+ - You can count the dead, but you can’t count the cost. We’ve got no math for Heaven...
+ - The Irish are great for their tunes, but all their lovesongs are sad and their warsongs happy.
+ - He felt for a moment uncreated. Another kind of awake.
+ - Sometimes, in life, nothing happens. But, sometimes, nothing happens beautifully.
+ - With all respects to heaven, I like it here.
+ - The city was bigger than its buildings, bigger than its inhabitants too. It had its own nuances. It accepted whatever came its way, the crime and the violence and the little shocks of good that crawled out from underneath the everyday.
+ - The stars looked like nail heads in the sky – pull a few of them out and the darkness would fall.
+ - Nobody falls halfway.
+ - The world does not turn without moments of grace. Who cares how small.
+ - One small cloud, cast out by the herd, limps away to the west.
+ - Words are good for saying what things are, but sometimes they don’t function for what things aren’t.
+ - Every man with his own peculiar vice. His will hardly rock heaven or hell.
+ - There are no days more full than those we go back to.
+ - Memory has a heavy backspin, yet it’s still impossible to land exactly where we took off.
+ - One look at each other and it was immediately understood that they both needed a clean slate,,, The obliteration of memory.
+ - That’s what sons do: write to their mothers about recall, tell themselves about the past until they come to realize that they are the past.
+ - She likes the people with the endurance to tolerate the drudge, the ones who know that pain is a requirement, not a curse.
+ - So much of her time spent like this: dreaming up things to say and never quite saying them.
+ - What was a life anyway? An accumulation of small shelves of incident.
+ - He told me once that there was no better faith than a wounded faith and sometimes I wonder if that is what he was doing all along – trying to wound his faith in order to test it – and I was just another stone in the way of his God.
+ - How inevitable it is; we step into an ordinary moment and never come out again.
+ - The war was about vanity, he said. It was about old men who couldn’t look in the mirror anymore and so they sent the young out to die. Was was a get-together of the vain. They wanted it simple – hate your enemy, know nothing of him.
+ - It struck me that distant cities are designed precisely so you can know where you came from.
+ - I think the Northern Ireland accent is one of the most beautiful in the world.
+ - I don’t really know what an adverb is. A dangling participle? That sounds really rude. I don’t know what character is, really. Plot seems vaguely juvenile to me. It’s all about language, it’s all about how you apply it to the page.
+ - About 25 years ago, I took a bicycle across the United States. I soon found out that the greatest item of clothing was the trusty bandanna. There were dozens of uses for a bandanna – as a pot holder, a chain cleaner, a sun shield, a headband, a snot rag, a declaration of Kerouacian intent.
+ - Even if people laughed at the notion of goodness, if they found it sentimental, or nostalgic, it didn’t matter – it was none of those things, he said, and it had to be fought for.
+ - A book is completed only when it is finished by a reader.
+ - The luxury of age was the giving up of vanity.
+ - Everything was fabulous, even our breakdowns.
+ - People think they know the mystery of living in your skin. They don’t. There’s no one who knows except the person who carts it around her own self.
+ - He looks like the sort of man who can’t afford to leave, and doesn’t want to stay, and so he is doing both at once.
+ - She’s always thought that one of the beauties of New York is that you can be from anywhere and within moments of landing its yours.
+ - The contemporary American novelist benefits in a way from being ignored. It makes you angrier and makes you want to go into all of those places where you shouldnt.
+ - Pain is not wat you get, it is wat you give.
+ - Sometimes thinking back on things is a mistake arising out of pride, but I guess you live inside a moment for years, move with it and feel it grow, and it sends out roots until it touches everything in sight.
+ - I think one of the biggest political failures, and the biggest social failures, over the past few years has been the failure of empathy; not being able to look at the other person down the street.
+ - I don’t know of a greater privilege than being allowed to tell a story, or to listen to a story. They’re the only thing we have that can trump life itself.
+ - I write about what I know; and I write about things that are new to me, and that I didn’t know before.
+ - They told me Corrigan smashed all the bones in his chest when he hit the steering wheel. I thought, Well at least in heaven his Spanish chick’ll be able to reach in and grab his heart.
+ - I have the most charmed, most – I feel entirely blessed and lucky that I have the life that I have.
+ - I write articles, and I do profiles of members of organizations and associations.
+ - We have to admire the world for not ending on us.
+ - Let it be. Silly song, really. You let it be, it returns. There’s the truth. You let it be, it drags you to the ground. You let it be, it crawls up your walls.
+ - Part of me really wants to believe that hope is entirely available to all of us. We don’t have to embrace it. It would be sentimental and silly to say that we all need it, but it is absolutely available to all of us.
+ - Anakana Schofield is part of a new wave of wonderful Irish fiction-international in scope and electrically alive.
+ - Increasingly I think of myself as some strange and solitary conductor, introduced to a group of very dynamic musicians who happen to be my characters, and I have no idea how they are going to play together, and I have certainly no idea how I am going to put manners on them.
+ - And I suddenly think, as I look across the table at him, that these are the days as they will be. This is the future as we see it. The swerve and the static. The confidence and the doubt.
+ - The point of flight. To get rid of oneself. That was reason enough to fly.
+ - I grew up sort of middle class, safe and suburban.
+ - I guess this is what marriage is, or was, or could be. You drop the mask. You allow the fatigue in. You lean across and kiss the years because they’re the things that matter.
+ - I’m of the opinion that the real is imagined and the imagined is quite real. The real is imagined, in the sense that we shape our stories, so anything that even happens on the news gets shaped in a certain way and gets a texture, and that the imagined can be real.
+ - Pain’s nothing. Pain’s what you give, not what you get.
+ - He realized that he had thought only about the first step, never imagined the last.
+ - I think a good novel can be a doorstop to despair. I also think the real bravery comes with those who prepared to go through that door and look at the world in all its grime and torment, and still find something of value, no matter how small.
+ - There is always room for at least two truths.
+ - It was a silence that heard itself, awful and beautiful.
+ - The essence of intelligence was to know when, or if, to expose even the heart’s deep need for instruction.
+ - The person we know at first, she thinks, is not the one we know at last.
+ - Stories are the best democracy we have. We are allowed to become the other we never dreamed we could be.
+ - Where happiness was not a possibility, the illusion of it was always more important.
+ - I have different books for different times of the day, let alone different seasons of the year!
+ - The job of the writer is to look at where he is now and make some sort of emotional sense of it, not only for that moment but for years to come.
+
+95 quotes

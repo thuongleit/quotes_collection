@@ -1,0 +1,31 @@
+ - No love, no friendship, can cross the path of our destiny without leaving some mark on it forever.
+ - To love someone is to see a miracle invisible to others.
+ - We know well only what we are deprived of.
+ - If you would tell me the heart of a man, tell me not what he reads, but what he rereads.
+ - I love Germany so much I’m glad there are two of them.
+ - We are, all of us, molded and remolded by those who have loved us, and though that love may pass, we remain none the less their work – a work that very likely they do not recognize, and which is never exactly what they intended.
+ - Tell me what you read and I’ll tell you who you are is true enough, but I’d know you better if you told me what you reread.
+ - A man’s passion for the mountain is, above all, his childhood which refuses to die.
+ - What I fear is not being forgotten after my death, but, rather, not being enough forgotten. As we were saying, it is not our books that survive, but our poor lives that linger in the histories.
+ - God does not answer our desperate questionings; he simply gives us himself.
+ - Doubt is nothing but a trivial agitation on the surface of the soul, while deep down there is a calm certainty.
+ - A writer is essentially a man who does not resign himself to loneliness.
+ - Men resemble great deserted palaces: the owner occupies only a few rooms and has closed-off wings where he never ventures.
+ - Human love is often but the encounter of two weaknesses.
+ - There is no accident in our choice of reading. All our sources are related.
+ - The scapegoat has always had the mysterious power of unleashing man’s ferocious pleasure in torturing, corrupting, and befouling.
+ - Where does discipline end? Where does cruelty begin? Somewhere between these, thousands of children inhabit a voiceless hell.
+ - I write whenever it suits me. During a creative period I write every day; a novel should not be interrupted. When I cease to be carried along, when I no longer feel as though I were taking down dictation, I stop.
+ - If the flame inside you goes out, the souls that are next to you will die of cold.
+ - That is the mystery of grace: it never comes too late.
+ - The Eucharist engages us unreservedly; it is a pact of love, an alliance signed in the deeper recesses of our being. All our potentialities are called upon to warrant the protection and fulfillment of this pact.
+ - Let us be wary of ready-made ideas about cowardice and courage: the same burden weighs infinitely more heavily on some shoulders than on others.
+ - A good critic is the sorcerer who makes some hidden spring gush forth unexpectedly under our feet.
+ - Every novel worthy of the name is like another planet, whether large or small, which has its own laws just as it has its own flora and fauna.
+ - The grandeur of man lies in song, not in thought.
+ - The arrogance of poets is only a defense; doubt gnaws the greatest among them; they need our testimony to escape despair.
+ - This God who, as the psalmist said, built His tabernacles in the sun, now establishes Himself in the very core of the flesh and the blood.
+ - The temples of those who deny the Real Presence are like corpses. The Lord was taken away and we do not know where they have laid Him.
+ - A cemetery saddens us because it is the only place of the world in which we do not meet our dead again.
+
+29 quotes

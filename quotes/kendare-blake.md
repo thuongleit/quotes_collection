@@ -1,0 +1,32 @@
+ - She crossed over death to call me. I crossed through Hell to find her.
+ - But hey, at least we’ll have this strange story to tell, love and death and blood and daddy-issues. And holy crap, I’m a psychiatrist’s wet dream.
+ - You make me want things I can’t have.
+ - She’s like Bruce Lee, the Hulk and Neo from The Matrix all rolled in to one.
+ - I think of her again. Anna. Anna Dressed in Blood. I wonder what tricks she’ll try. I wonder if she’ll be clever. Will she float? Will she laugh or scream? How will she try to kill me?
+ - She’s my purpose and we’re going to save each other. We’re going to save everyone. And then I’m going to convince her that she’s supposed to stay here. With me.
+ - Move, hunt, kill. Like lather, rinse, and repeat.
+ - Every time I question him about the feasibility, he smiles at me like he’s Yoda and I’m just a dumbass without the Force.
+ - Anna, my strong, terrifying Anna.
+ - I can feel that photo of Anna staring at me from sixty years ago, and I can’t help myself from wanting to protect her, wanting to save her from becoming what she already is.
+ - Jesus. I have become the thing they call the third wheel.
+ - God, living people are irritating.
+ - She’s standing above me the goddess of death, black lips and cold hands.
+ - I peek over the back of the couch and there she is, my goddess of death, her hair snaking out in a great black cloud, her teeth grinding hard enough to make living gums bleed.
+ - I jerk my head toward Thomas and immediately curse myself for trying to be a smartass. My head is not healthy enough for smartassery.
+ - Yes. Smashing. You’ll be just like those four chaps in the movie. You know the one, with the oversized marshmallow.
+ - Four small flames ignite and illuminate our faces and chests, revealing expressions that are part wonder, part fear, and part feeling stupid.
+ - You’re sure you didn’t leave? Didn’t try to explore Thunder Bay again, maybe go down to the park and, I don’t know, dismember some poor jogger?
+ - If people knew what I was up to, they’d probably try to stop me. The idiots would take Casper’s side, and then I’d have to kill Casper and them after Casper bit their throats out. I’m no superhero.
+ - Girls on the other hand, have always come easy. I don’t know why that is, exactly. Maybe it’s the outsider vibe and a well-placed brooding look.
+ - I’ve been Obeahed by an Obeahman? Is this like how the Smurfs say they smurfing smurfed all the time?
+ - It feels so separate, like I’ve touched something that’s taken the color out of me. Or maybe I’m in color now and they’re in black and white.
+ - What luck. I chose the douche-y sounding one.
+ - I hit him with a board; of course he’s got a concussion. Don’t be an idiot.
+ - Stand my ground, is what I think. After this is over, I might puke. Assuming, of course, that I’m still alive.
+ - I’m dead. I can’t be all right any more than I can be not all right.
+ - The rhythm of the footsteps, the sound of whatever is coming down the ladder is driving both me and my mom steadily toward peeing our pants.
+ - They shouldn’t be allowed to teach math so early in the morning.
+ - I watch him with amusement. There’s a blue light special on territorial jocks in aisle four.
+ - Anna’s eyes soften, and the stubborn tears begin to recede. The way she stands, the way she breathes, I know she wants to come closer. New knowledge fills up the air between us and neither of us wants to breathe it in.
+
+30 quotes

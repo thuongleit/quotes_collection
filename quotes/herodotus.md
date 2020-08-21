@@ -1,0 +1,91 @@
+ - Very few things happen at the right time, and the rest do not happen at all. The conscientious historian will correct these defects.
+ - Great things are won by great dangers.
+ - Far better it is to have a stout heart always and suffer one’s share of evils, than to be ever fearing what may happen.
+ - It is better by noble boldness to run the risk of being subject to half of the evils we anticipate than to remain in cowardly listlessness for fear of what might happen.
+ - Of all possessions a friend is the most precious.
+ - Where wisdom is called for, force is of little use.
+ - In peace sons bury fathers, but war violates the order of nature, and fathers bury sons.
+ - It is better to be envied than pitied.
+ - A multitude of rulers is not a good thing. Let there be one ruler, one king.
+ - The most hateful grief of all human griefs is to have knowledge of a truth, but no power over the event.
+ - The secret of success is that it is not the absence of failure, but the absence of envy.
+ - The Colchians, Ethiopians and Egyptians have thick lips, broad nose, woolly hair and they are burnt of skin.
+ - Adversity has the effect of drawing out strength and qualities of a man that would have laid dormant in its absence.
+ - Of all men’s miseries the bitterest is this: to know so much and to have control over nothing.
+ - History is marked by alternating movements across the imaginary line that separates East from West in Eurasia.
+ - I know that human happiness never remains long in the same place.
+ - Force has no place where there is need of skill.
+ - All men’s gains are the fruit of venturing.
+ - If you have two loaves of bread, keep one to nourish the body, but sell the other to buy hyacinths for the soul.
+ - If a man insisted always on being serious, and never allowed himself a bit of fun and relaxation, he would go mad or become unstable without knowing it.
+ - The sun will not shine on any country that has borders with ours.
+ - In soft regions are born soft men.
+ - Mens fortunes are on a wheel, which in its turning suffers not the same man to prosper for ever.
+ - As the old saw says well: every end does not appear together with its beginning. It’s impossible for someone who is human to have all good things together, just as there is no single country able to provide all good things for itself.
+ - Men trust their ears less than their eyes.
+ - Haste in every business brings failures.
+ - All of life is action and passion, and not to be involved in the actions and passions of your time is to risk having not really lived at all.
+ - The ear is a less trustworthy witness than the eye.
+ - A man calumniated is doubly injured – first by him who utters the calumny, and then by him who believes it.
+ - Circumstances rule men; men do not rule circumstances.
+ - As the old saw says well: every end does not appear together with its beginning.
+ - Civil strife is as much a greater evil than a concerted war effort as war itself is worse than peace.
+ - Call no man happy before he dies.
+ - He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.
+ - God does not suffer presumption in anyone but himself.
+ - I never yet feared those men who set a place apart in the middle of their cities where they gather to cheat one another and swear oaths which they break.
+ - Where even a falsehood must be told, let it be told.
+ - It is sound planning that invariably earns us the outcome we want; without it, even the gods are unlikely to look with favour on our designs.
+ - We have two useless gods who never leave our island, but like to dwell in it constantly, Poverty and Helplessness.
+ - Some give up their designs when they have almost reached the goal; while others, on the contrary, obtain a victory by exerting, at the last moment, more vigorous efforts than ever before.
+ - Before a man dies, hold back and call him not happy but lucky.
+ - When life is so burdensome death has become a sought after refuge.
+ - Whatever comes from God is impossible for a man to turn back.
+ - Happiness is not fame or riches or heroic virtues, but a state that will inspire posterity to think in reflecting upon our life, that it was the life they would wish to live.
+ - Remember that with her clothes a woman puts off her modesty.
+ - Not snow, no, nor rain, nor heat, nor night keeps them from accomplishing their appointed courses with all speed.
+ - But this I know: if all mankind were to take their troubles to market with the idea of exchanging them, anyone seeing what his neighbor’s troubles were like would be glad to go home with his own.
+ - The most hateful human misfortune is for a wise man to have no influence.
+ - A woman takes off her claim to respect along with her garments.
+ - Illness strikes men when they are exposed to change.
+ - The wooden wall alone should remain unconquered.
+ - The Lacedaemonians fought a memorable battle; they made it quite clear that they were the experts, and that they were fighting against amateurs.
+ - It is the greatest and the tallest of trees that the gods bring low with bolts and thunder. For the gods love to thwart whatever is greater than the rest. They do not suffer pride in anyone but themselves.
+ - To think well and to consent to obey someone giving good advice are the same thing.
+ - One should always look to the end of everything, how it will finally come out. For the god has shown blessedness to many only to overturn them utterly in the end.
+ - It is clear that not in one thing alone, but in many ways equality and freedom of speech are a good thing.
+ - The gods loves to punish whatever is greater than the rest.
+ - The man of affluence is not in fact more happy than the possessor of a bare competency, unless, in addition to his wealth, the end of his life be fortunate. We often see misery dwelling in the midst of splendour, whilst real happiness is found in humbler stations.
+ - Dreams in general take their rise from those incidents which have most occupied the thoughts during the day.
+ - Let there be nothing untried; for nothing happens by itself, but men obtain all things by trying.
+ - There is nothing more foolish, nothing more given to outrage than a useless mob.
+ - How can a monarchy be a suitable thing, which allows a man to do as he pleases with none to hold him to account. And even if you were to take the best man on earth, and put him into a monarchy, you put outside him the thoughts that usually guide him.
+ - Many exceedingly rich men are unhappy, but many middling circumstances are fortunate.
+ - For as the body grows old, so the wits grow old and become blind towards all things alike.
+ - We are less convinced by what we hear than by what we see.
+ - These ‘messengers’ will not be hindered from accomplishing at their best speed the distance which they have to go, either by snow, or rain, or heat, or by the darkness of night.
+ - It is a law of nature that fainthearted men should be the fruit of luxurious countries, for we never find that the same soil produces delicacies and heroes.
+ - Love of honor is a very shady sort of possession.
+ - But I like not these great successes of yours; for I know how jealous are the gods.
+ - Envy is so natural to human kind, that it cannot but arise.
+ - Good masters generally have bad slaves, and bad slaves have good masters.
+ - Tell Greece that her spring has been taken out of her year.
+ - Great deeds are usually wrought at great risks.
+ - If someone were to put a proposition before men bidding them choose, after examination, the best customs in the world, each nation would certainly select its own.
+ - The worst pain a man can have is to know much and be impotent to act.
+ - But if you know that you are a man too, and that even such are those that rule, learn this first of all: that all human affairs are a wheel which, as it turns, does not allow the same men always to be fortunate.
+ - Soft men tend to be born from soft countries.
+ - The hastening of any undertaking begets error, from which great losses are wont to come.
+ - The trials of living and the pangs of disease make even the short span of life too long.
+ - When a woman removes her garment, she also removes the respect that is hers.
+ - My men have become women, but the women men.
+ - Those who are guided by reason are generally successful in their plans; those who are rash and precipitate seldom enjoy the favour of the gods.
+ - A general curiosity about the unknown sparked by the multicultural milieu in which I spent my formative years. There was a lot of unknown back then, too. I dare say it was easier to be an explorer then.
+ - Unless a variety of opinions are laid before us, we have no opportunity of selection, but are bound of necessity to adopt the particular view which may have been brought forward.
+ - I am bound to tell what I am told, but not in every case to believe it.
+ - If one is sufficiently lavish with time, everything possible happens.
+ - The king’s might is greater than human, and his arm is very long.
+ - The ears of men are lesser agents of belief than their eyes.
+ - The man who has planned badly, if fortune is on his side, may have had a stroke of luck; but his plan was a bad one nonetheless.
+
+89 quotes

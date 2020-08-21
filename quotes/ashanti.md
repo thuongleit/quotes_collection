@@ -1,0 +1,24 @@
+ - You must act as if it’s impossible to fail.
+ - By going and coming, a bird weaves its nest.
+ - I’m weak cause I believe you and I’m mad because I love.
+ - When I get the strength to leave, you always tell me that you need me. And I’m weak cause I believe you and I’m mad because I love you. So I stop and think that maybe you could learn to appreciate me, and it all remains the same that you ain’t never gonna change.
+ - Rivers of tear drops, these sharp pains in my heart, if this was the way that you love, you never should have loved me.
+ - Honey Boo Boo is a handful, baby. She says what she wants to say, does what she wants to do. Ive only seen, like, snippets, like one or two or three, you know, little shots of her, but yeah, shes a handful, baby.
+ - Music comes from the soul. It’s a way to express yourself, so we always, always need to save the music.
+ - Only when you have crossed the river can you say that the crocodile has a lump on his snout.
+ - It is a fool’s sheep that breaks loose twice.
+ - It’s pretty much, having everything on your shoulder versus depending on an entire team.
+ - A New Year’s resolution that I can never keep? To be able to make decisions.
+ - I am not a good decision maker; that’s one of the things I don’t like about myself.
+ - I think my motto is to always remain focused on what it is that youre trying to accomplish.
+ - No one tests the depth of a river with both feet.
+ - I have a tremendous amount of respect for military families. To have to worry about your loved ones and still try and live a normal life is extremely hard.
+ - I have always been able to write on the spot. It is a talent that I guess comes naturally.
+ - With the film, you have a bunch of executive producers, directors, writers, scripts. There’s, management, lighting, the union and etc. There are so many components a part of that game, so naturally it isn’t my world.
+ - As a new artist there are so many new ways to put music out there where you don’t necessarily need a label because now labels will have their hands in your pocket and leave you with less control.
+ - Its so important to never limit yourself, to find yourself in a box.
+ - Broadway is one of the hardest things I’ve ever done.
+ - I also like different records of mine for creative purposes and metaphorically wise.
+ - Roast something for the children that they might eat.
+
+22 quotes

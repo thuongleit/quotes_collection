@@ -1,0 +1,137 @@
+ - The past is always tense, the future perfect.
+ - The secret to editing your work is simple: you need to become its reader instead of its writer.
+ - Time is how you spend your love.
+ - I am the sole author of the dictionary that defines me.
+ - Every moment happens twice: inside and outside, and they are two different histories.
+ - The greatest lie ever told about love is that it sets you free.
+ - The very reason I write is so that I might not sleepwalk through my entire life.
+ - An essential part of power is the freedom not to think too deeply.
+ - Try to read your own work as a stranger would read it, or even better, as an enemy would.
+ - Pulchritude – beauty where you would least suspect it, hidden in a word that looked like it should signify a belch or a skin infection.
+ - The end is simply the beginning of an even longer story.
+ - I’m very attracted to exile literature – particularly Nabokov – exactly because the idea of being away from home for any serious length of time is so inconceivable to me.
+ - Tell the truth through whichever veil comes to hand – but tell it. Resign yourself to the lifelong sadness that comes from never being satisfied.
+ - If you’re going to write a good book, you have to make mistakes and you have to not be so cautious all the time.
+ - Cambridge was a joy. Tediously. People reading books in a posh place. It was my fantasy. I loved it. I miss it still.
+ - We cannot be all the writers all the time. We can only be who we are. Which leads me to my second point: writers do not write what they want, they write what they can.
+ - When I was 21, I wanted to write like Kafka. But, unfortunately for me, I wrote like a script editor for ‘The Simpsons’ who’d briefly joined a religious cult and then discovered Foucault. Such is life.
+ - I read Carver. Julio Cortazar. Amis’s essays. Baldwin. Lorrie Moore. Capote. Saramago. Larkin. Wodehouse. Anything, anything at all, that doesn’t sound like me.
+ - In the end, your past is not my past and your truth is not my truth and your solution – is not my solution.
+ - Greeting cards routinely tell us everybody deserves love. No. Everybody deserves clean water. Not everybody deserves love all the time.
+ - I am very selfish, really. I lived for love.
+ - You must live life with the full knowledge that your actions will remain. We are creatures of consequence.
+ - You can’t state difference and also state equality. We have to state sameness to understand equality.
+ - It’s such a confidence trick, writing a novel. The main person you have to trick into confidence is yourself. This is hard to do alone.
+ - You say you want to talk, But you don’t. You stonewall me.
+ - I find it impossible to experience either pride or shame over accidents of genetics in which I had no active part. I’m not necessarily proud to be female. I am not even proud to be human – I only love to be so.
+ - Make sure the lubricant is unscented. Don’t join fashionable ‘schools of thought.’ Read everything.
+ - Fate is a quantity very much like TV: an unstoppable narrative, written, produced and directed by somebody else.
+ - Step back from your Facebook Wall for a moment: Doesn’t it, suddenly, look a little ridiculous? Your life in this format?
+ - Don’t live in a way that makes you feel dead.
+ - Most of the cruelty in the world is just misplaced energy.
+ - A reality shaped around your own desires – there is something sociopathic in that ambition.
+ - When the male organ of a man stands erect, two thirds of his intelect go away. And one third of his religion.
+ - The world is now multicultural the same way the world is round. It’s not a selling point, it’s not a ‘quirky’ feature, it’s not a cynical marketing ploy, it’s not an artistic statement, it’s not even a plot device. It’s a fact, like seedless grapes.
+ - Sometimes you get a flash of what you look like to other people.
+ - But it makes an immigrant laugh to hear the fears of the nationalist, scared of infection, penetration, miscegenation, when this is small fry, peanuts, compared to what the immigrant fears – dissolution, disappearance.
+ - Protect the time and space in which you write. Keep everybody away from it, even the people who are most important to you.
+ - I like books that expose me to people unlike me and books that do battle against caricature or simplification. That, to me, is the heroic in fiction.
+ - I recognize myself to be an intensely naive person. Most novelists are, despite frequent pretensions to deep socio-political insight.
+ - We cannot love something solely because it has been ignored. It must also be worthy of our attention.
+ - I cannot believe homosexuality is that much fun. Heterosexuality certainly is not.
+ - It’s got two aspects. The bit that involves the public life I could not really tolerate and cannot really tolerate. I just can’t get used to the idea of being somebody unreal in people’s minds. I can’t live my life like that.
+ - Each couple is its own vaudeville act.
+ - People profess to have certain political positions, but their conservatism or liberalism is really the least interesting thing about them.
+ - The nineties, ecstatic decade!
+ - I often worry that my idea of personhood is nostalgic, irrational, inaccurate.
+ - Sometimes, one wants to have the illusion that one is making ones own life, out of ones own resources.
+ - When a human being becomes a set of data on a website like Facebook, he or she is reduced. Everything shrinks. Individual character. Friendships. Language. Sensibility.
+ - All tastes are expressions of belief.
+ - Can’t a rapper insist, like other artists, on a fictional reality, in which he is somehow still on the corner, despite occupying the penthouse suite?
+ - It made me feel that I had to work very hard, but I’ve always felt I had to work very hard to get my own approval.
+ - Any artist who aligns themselves with a politician is making a category error because what politicians do is not on a human scale, it is on a geopolitical scale.
+ - Full stories are as rare as honesty.
+ - It’s gotten to a point where everybody is concerned about their rights and nobody is concerned about their duties.
+ - The lack of alternatives to an illegal action does not legitimise that action.
+ - Any woman who counts on her face is a fool.
+ - The library was the place I went to find out what there was to know. It was absolutely essential.
+ - Your mid-thirties is a good time because you know a fair amount, you have some self-control.
+ - Women often have a great need to portray themselves as sympathetic and pleasing, but we’re also dark people with dark thoughts.
+ - Desperation, weakness, vulnerability – these things will always be exploited. You need to protect the weak, ring-fence them, with something far stronger than empathy.
+ - Novels are not about expressing yourself, they’re about something beautiful, funny, clever and organic. Self-expression? Go and ring a bell in a yard if you want to express yourself.
+ - Sometimes Allah punishes and sometimes men have to do it, and it is a wise man who knows if it’s Allah’s turn or his own.
+ - It’s easy to confuse a woman for a philosophy.
+ - I do my best work under pressure, so I’ll nick an artery, and my husband isn’t allowed to stanch the bleeding till I’ve banged out a chapter.
+ - She hopes for nothing except fine weather and a resolution. She wants to end properly, like a good sentence.
+ - No fiction, no myths, no lies, no tangled webs – this is how Irie imagined her homeland. Because homeland is one of the magical fantasy words like unicorn and soul and infinity that have now passed into language.
+ - They had nothing to say to each other. A five-year age gap between siblings is like a garden that needs constant attention. Even three months apart allows the weeds to grow up between you.
+ - And so it happened again, the daily miracle whereby interiority opens out and brings to bloom the million-petalled flower of being here, in the world, with other people. Neither as hard as she had thought it might be nor as easy as it appeared.
+ - Life’s not a video game, Felix- there aren’t a certain number of points that send you to the next level. There isn’t actually any next level. The bad news is that everybody dies at the end. Game Over.
+ - It’s a feeling of happiness that knocks me clean out of adjectives. I think sometimes that the best reason for writing novels is to experience those four and a half hours after you write the final word.
+ - Then he gave her a kiss on the forehead that felt like a baptism and she wept like a baby.
+ - In a whisper he began begging for – and, as the sun set, received – the concession people always beg for: a little more time.
+ - You don’t come to live here unless the delusion of a reality shaped around your own desires isn’t a strong aspect of your personality. A reality shaped around your own desires – there is something sociopathic in that ambition.
+ - Art is the Western myth, with which we both console ourselves and make ourselves.
+ - For ridding oneself of faith is like boiling seawater to retrieve the salt – something is gained but something is lost.
+ - I love to dance, and sing – in the shower, not in public. Im too old to go raving, but my fondest memories are of that kind of thing – dancing, with lots of people, outside if possible.
+ - First rule of writing: When still a child, make sure you read a lot of books. Spend more time doing this than anything else.
+ - It’s difficult to tell the truth about how a book begins. The truth, as far as it can be presented to other people, is either wholly banal or too intimate.
+ - When people use that stream of consciousness, it’s kind of just a term they use for anything that looks slightly different on the page.
+ - The idea that motherhood is inherently somehow a threat to creativity is just absurd.
+ - Anyone over the age of thirty catching a bus can consider himself a failure.
+ - This is what a woman is: unadorned, after children and work and age, and experience-these are the marks of living.
+ - You’re a library of me.
+ - It was a kiss from the past.
+ - I’m a writer who never writes about sex. It’s so far from my own fictional world.
+ - The lady was old, the lady was ill. It didn’t matter what the lady believed.
+ - You don’t have favourites among your children, but you do have allies.
+ - The ideal reader cannot sleep when holding the writer he was meant to be with.
+ - To a novelist, fluidity is the ultimate good omen; suddenly difficult problems are simply solved, intractable structural knots loosen themselves, and you come upon the key without even recognizing that this is what you hold.
+ - Under every friendship there is a difficult sentence that must be said, in order that the friendship can be survived.
+ - Revelation is where all crazy people end up. It’s the last stop on the nutso express.
+ - Rarely does one see a squirrel tremble.
+ - It’s a funny thing about rap, that when you say ‘I’ into the microphone, it’s like a public confession. It’s very strange.
+ - She loved you in the morning because the day was new.
+ - The object of the passion is just an accessory to the passion itself.
+ - She wore her sexuality with an older woman’s ease, and not like an awkward purse, never knowing how to hold it, where to hang it, or when to just put it down.
+ - World makers, social network makers, ask one question first: ‘How can I do it?’
+ - People don’t settle for people. They resolve to be with them. It takes faith. You draw a circle in the sand and agree to stand in it and believe in it.
+ - She did what girls generally do when they don’t feel the part: she dressed it instead.
+ - He had her in his heart, but not always in his mind.
+ - It reminds me that those of us who turn in disgust from what we consider an overinflated liberal-bourgeois sense of self should be careful what we wish for: our denuded networked selves don’t look more free, they just look more owned.
+ - Don’t we all know why nerds do what they do? To get money, which leads to popularity, which leads to girls.
+ - I’m not sure if you’re the person for me any more.
+ - English writing tends to fall into two categories – the big, baggy epic novel or the fairly controlled, tidy novel. For a long time, I was a fan of the big, baggy novel, but there’s definitely an advantage to having a little bit more control.
+ - English fiction was something I loved growing up, and it changed my life – it changed the trajectory of my life.
+ - Generally, women can’t do this, but men retain the ancient ability to leave a family and a past. They just unhook themselves, like removing a fake beard, and skulk discreetly back into society, changed men. Unrecognizable.
+ - I wouldn’t write about people who are living and who are close to me, because I think it’s a very violent thing to do to another person. And anytime I have done it, even in the disguise of fiction, the results have been horrific.
+ - Writing is my way of expressing – and thereby eliminating – all the various ways we can be wrong-headed.
+ - Don’t confuse honours with achievement.
+ - Learning how to be a good reader is what makes you a writer.
+ - But surely to tell these tall tales and others like them would be to spread the myth, the wicked lie, that the past is always tense and the future, perfect.
+ - I wrote ‘White Teeth’ in the late nineties. I didn’t really feel trepidatious about it. It was a different time.
+ - Nowadays, I know the true reason I read is to feel less alone, to make a connection with a consciousness other than my own.
+ - Jerome said, It’s like, a family doesn’t work anymore when everyone in it is more miserable than they would be if they were alone, You know?
+ - It’s still easier to find the correct Hoover bag than to find one pure person, one pure faith, on the globe.
+ - I lost many literary battles the day I read ‘Their Eyes Were Watching God.’ I had to concede that occasionally aphorisms have their power. I had to give up the idea that Keats had a monopoly on the lyrical.
+ - Oh, I know that. You know me, baby, I cannot be broken. Takes a giant to snap me in half.
+ - A writer’s duty is to register what it is like for him or her to be in the world.
+ - I don’t ask myself what did I live for, said Carlene strongly. That is a man’s question. I ask whom did I live for.
+ - English, as a subject, never really got over its upstart nature. It tries to bulk itself up with hopeless jargon and specious complexity, tries to imitate subjects it can never be.
+ - He did not consider if or how or why he loved them. They were just love: they were the first evidence he ever had of love, and they would be the last confirmation of love when everything else fell away.
+ - I never attended a creative writing class in my life. I have a horror of them; most writers groups moonlight as support groups for the kind of people who think that writing is therapeutic. Writing is the exact opposite of therapy.
+ - It was in the air, or so it seemed to Kiki, this hatred of women and their bodies- it seeped in with every draught in the house; people brought it home on their shoes, they breathed it in off their newspapers. There was no way to control it.
+ - This is what divorce is: taking things you no longer want from people you no longer love.
+ - I’m most honest about writing when I’m talking to family or friends, not to newspapers.
+ - I like books that don’t give you an easy ride. I like the feeling of discomfort. The sense of being implicated.
+ - All novels attempt to cut neural routes through the brain, to convince us that down this road the true future of the novel lies.
+ - The choices a writer makes within a tradition – preferring Milton to Moliere, caring for Barth over Barthelme – constitute some of the most personal information we can have about him.
+ - Without the balancing context of everyday life, all you have is the news, and news by its nature is generally bad.
+ - I don’t keep any copies of my books in the house – they go to my mum’s flat. I don’t like them around.
+ - 13.5 Mrs. Wolfe asks whether Mr. Iqbal expects her Susan to undertake compulsory headstands. 13.6 Mr. Iqbal infers that, considering Susan’s academic performance and weight problems, a headstand regime might be desirable.
+ - You become a different writer when you approach a short story. When things are not always having to represent other things, you find real human beings begin to cautiously appear on your pages.
+ - As far as I’m concerned, if you want to find out about the last day of WWII or the roots of the Indian Mutiny, get thee to a books catalogue.
+ - My short stories have always pushed twenty pages. That’s no length for a short story to be. You either do them short like Carver or you stop trying.
+ - He traced the genealogy of the feeling.
+
+135 quotes

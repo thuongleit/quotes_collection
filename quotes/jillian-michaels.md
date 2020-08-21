@@ -1,0 +1,93 @@
+ - Get comfortable with being uncomfortable.
+ - Unless you puke, faint or die, keep going.
+ - If you fail to plan, you pretty much plan to fail.
+ - It’s not about perfect. It’s about effort. And when you bring that effort every single day, that’s where transformation happens. That’s how change occurs.
+ - Feel the Fear. Do it anyway!
+ - Train insane or remain the same.
+ - Transformation isn’t a future event, it’s a present day activity.
+ - If you’re not failing, you’re not trying hard enough.
+ - Rejection is God’s protection.
+ - A bad day for your ego is a great day for your soul.
+ - At the end of the day, your health is your responsibility.
+ - Nobody is perfect, so get over the fear of being or doing everything perfectly. Besides perfect is boring.
+ - I believe in blood, sweat and tears.
+ - Transformation is not five minutes from now; it’s a present activity. In this moment you can make a different choice, and it’s these small choices and successes that build up over time to help cultivate a healthy self-image and self esteem.
+ - Your legs are not giving out. Your head is giving out. Keep going.
+ - Your destiny is just waiting for you to show up.
+ - Why choose to fail when success is an option?
+ - Be brave and be patient. Have faith in yourself; trust in the significance of your life and the purpose of your passion.
+ - You can look for external sources of motivation and that can catalyze a change, but it won’t sustain one. It has to be from an internal desire.
+ - Don’t blame anyone or anything for your situation or problems. When you do that, you are saying that you are powerless over your own life – which is utter crap. An empowering step to reclaiming your life is taking responsibility.
+ - There’s always room for improvement. I incorporate the lessons I learned from my mistakes and move forward.
+ - Be awesome. Live life to the fullest. Shoot for the stars and never settle.
+ - The way to get motivated and stay motivated is to identify, define, and emotionally connect to your dreams.
+ - If you focus on all the things that could go wrong, you miss the things that could go right.
+ - Don’t shut down your emotions. Embrace them. Your emotions are your internal compass telling you whether or not you are on track. Use them to help cultivate your passions or motivate you to change situations and circumstances that hold you back from achieving your goals.
+ - You need to WANT to change. You need to be willing to do the work.
+ - I am doing the best I can given what I have today.
+ - Here’s the thing: life is now. It’s not ten pounds from now, it’s not twenty pounds from now, it’s not a million dollars from now. It’s right now. And you just have to take a chance.
+ - There are things you think you cannot do. You have no idea how strong you are until you try.
+ - This is where it matters the most. This is where lives are made, in these moments when you can choose whether or not to say “I Can’t” or “I Can.” It is a choice that will either make or break you for life.
+ - The past doesn’t define you, your present does. It’s okay to create a vision of the future because it affects your behavior in the “now,” but don’t dwell on past mistakes. Learn from them and focus those lessons in the moment. That’s where change can really happen.
+ - No one but you can take your dreams away from you.
+ - I cant save you, you have to save yourself.
+ - All you need to do is workout, and eat right, shut up and listen to me.
+ - I want you to feel like you’re going to die.
+ - The past does not define, you the present does.
+ - Fitness isn’t about building a better body. It’s about building a better life.
+ - Life breaks us all, but you’re stronger in the places that were broken. Or you can essentially crumble, give up, and, you know, waste your life.
+ - There is no authentic goal you can set for yourself that can’t be reached, no dream that can’t be realized. It’s just a matter of learning HOW to achieve what you want.
+ - Parenting is not for sissies. You have to sacrifice and grow up.
+ - Whenever you’re making an important decision, first ask if it gets you closer to your goals or farther away.
+ - Think about how you are going to feel if you eat the healthy food, how you are going to look in a bikini next summer or in skinny jeans. Think about feeling strong, healthy, confident. You’ll be more confident in the bedroom, more confident at the office.
+ - At its core, health is simple: eat the right amount for your body, don’t ingest chemicals or fake foods, and move more.
+ - Selfish isn’t a dirty word. It means we take care of ourselves and are able to give back.
+ - If you want results, they don’t come for free.
+ - Never allow your fear to grow larger than your faith.
+ - Fat is merely stored energy. It is a physical state, nothing more and nothing less. It implies zero about your value as a person in this world.
+ - Fitness and proper nutrition truly go hand-in-hand. Focus on eating clean and filling your plate with veggies, fruits, whole grains and lean proteins. And, everyone hates to do it, but calorie counting is crucial to weight loss as well as maintaining a healthy physique.
+ - We all have to work for happiness. And you cannot listen to other people. That is the worst mistake you can make.
+ - Many different factors make up a fitness phenomenon, but the most critical are a sense of community, a ton of fun, a sense of accomplishment, and an empowering component that makes people feel they can become or do anything they want.
+ - Fitness to me isn’t about a crunch or a push up, it’s about taking your power back.
+ - Don’t repress your needs and feelings. They fester, becoming corrosive and destructive in your relationships. In a calm, loving way, tell the people in your life what you need. Don’t expect people to read your mind. It only leads to disappointment and frustration. Empower them to empower you!
+ - At some point you have to stop acting as though life is happening to you and acknowledge the ways you are happening to it. Once you take responsibility for your side of the street, you grant yourself the power to improve every aspect of your life by simply acting and behaving differently.
+ - I’ve always believed fitness is an entry point to help you build that happier, healthier life. When your health is strong, you’re capable of taking risks. You’ll feel more confident to ask for the promotion. You’ll have more energy to be a better mom. You’ll feel more deserving of love.
+ - Every human being has gone through a tragedy of sorts. And the idea is that you have two paths you can take, you can find that alchemy that turns lead into gold, find that magic where you can see the loss as an entry point for learning and grow from it and become wiser and stronger.
+ - You’re much more likely to reach your goals if they’re your goals, speaking to your desires, rather than the desires of outside influences. Goals that are meaningful to you will keep you inspired and driven towards success.
+ - The trick is not escaping your fear, but confronting it and allowing it to drive and teach you. Only by getting to the bottom of your fears can you find their valuable lessons and move forward stronger than before.
+ - My agenda is trying to help people live a better life.
+ - You need to find your OWN purpose. I cannot BUILD desire.
+ - Look. Listen. Learn. Stay open. Your destiny is awaiting you.
+ - Visualize what you want out of life and think big. Don’t feel undeserving. We’re all deserving of living our dreams – some of us realize it and some don’t. You’re not doing anyone any favors by living small. Embrace these truths and step up. The world is waiting.
+ - I just look at a bagel and my ass gets bigger!
+ - It’s impossible to put yourself first when you’re a mom.
+ - You’ve got to listen to the universe, to life, to God, whatever you want to call it. Because its going to speak to you.
+ - It’s important to stay true to yourself. You have to know your weaknesses and recruit support when and where you need it.
+ - Life has a way of working out the way it’s meant to.
+ - Ask yourself this: How much deprivation, how much self-effacement must you suffer through before you act on your desire for meaning and fulfillment? Before it’s your turn to thrive in your life, instead of barely surviving it? Some people live their dreams. Why not you?
+ - Both belly bulge and love handles are about excess body fat, not lack of muscle. Crunches and ab exercises are therefore not the solution. The best way to reduce these problem areas is to reduce your overall body fat percentage, and we all know that that requires diet and exercise.
+ - Most people who try those bizarre trends are looking for magic bullets. There’s usually a sexy promise attached to these trends – related to diet or fitness – that many people find too tempting to resist.
+ - I can always use a good chest fly in my life.
+ - When you do hit the gym, you should push yourself. This is what makes fitness phenomena so interesting.
+ - Witnessing the bond between a parent and their little ones firsthand really brought home to me how much I was missing.
+ - When friends tell you how awesome you look, drop the “I still have more to go” crap. You worked hard and you deserve the compliment!
+ - I used to tell moms that for the sake of their well-being they had to put themselves first. But I know now that’s not always possible.
+ - I only eat healthy food, and I only want healthy love!
+ - Let’s just say I believe in healthy love.
+ - You’re dealing with people who are suiciding slowly. You’ve got to get to the bottom of what is psychologically motivating them to self-destruct.
+ - You’ve already been at the bottom. Why don’t you go for the top?
+ - Showing you pity doesn’t do you any favors.
+ - You don’t have to be rich to be healthy. That’s such a misconception.
+ - For years, I always thought it was hilarious that I was this fitness guru, because fitness was just a tool I utilized to help people improve their confidence. For me, it’s never been about fitness. It’s always been about helping to empower people.
+ - Having the right to happiness means having the right to earn it, not having it given to you without effort and action on your part.
+ - Sometimes you’ve got to make your work and workouts co-exist.
+ - You know when transformation happens? Right now. It’s a present activity. Who is the new you? Show me the new you.
+ - I felt the calling to adopt. You just know in the deepest part of your being that you are meant to find this little soul and guide them through life.
+ - So when it comes down to it, a calorie is a calorie is a calorie: There is only one moral of the story: burn as many damn calories as possible whenever you work out.
+ - I completely appreciate the importance of fathers but millions of children are without loving homes. I think a child is lucky with one parent who truly loves her.
+ - When it comes to kids, it’s just not hard to get them healthy. I don’t find it hard and don’t understand why people find it hard.
+ - No one ever died from an open mind.
+ - The truth is that you are as unique on the inside as you are on the outside.
+ - The reality is that most of the time, the more bizarre the trend, the more bogus the results.
+
+91 quotes

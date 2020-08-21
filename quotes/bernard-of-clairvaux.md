@@ -1,0 +1,88 @@
+ - The measure of love is love without measure.
+ - What we love we shall grow to resemble.
+ - There are those who seek knowledge for the sake of knowledge; that is curiosity. There are those who seek knowledge to be known by others; that is vanity. There are those who seek knowledge in order to serve; that is Love.
+ - The Eucharist is that love which surpasses all loves in Heaven and on earth.
+ - Thus understanding and love, that is, the knowledge of and delight in the truth, are, as it were, the two arms of the soul, with which it embraces and comprehends with all the saints the length and breath, the height and depth, that is the eternity, the love, the goodness, and the wisdom of God.
+ - We find rest in those we love, and we provide a resting place in ourselves for those who love us.
+ - All things are possible to one who believes.
+ - What I know of the divine sciences and Holy Scriptures, I learned in woods and fields. I have no other masters than the beeches and the oaks.
+ - Action and contemplation are very close companions; they live together in one house on equal terms. Martha and Mary are sisters.
+ - Grace is necessary to salvation, free will equally so – but grace in order to give salvation, free will in order to receive it.
+ - How beautiful then is modesty and what a gem among virtues it is.
+ - Death is the gate of life.
+ - God will either give us what we ask, or what He knows to be better for us.
+ - Your actions in passing, pass not away, for every good work is a grain of seed for eternal life.
+ - The rivers of Grace cannot flow uphill, up the steep cliff of the proud man’s heart.
+ - What does God hate or punish except self-will? Let self-will cease, and there will be no hell. On what does that fire feed except on self-will?
+ - Among us on the earth there is His memory; but in the Kingdom of heaven His very Presence. That Presence is the joy of those who have already attained to beatitude; the memory is the comfort of us who are still wayfarers, journeying towards the Fatherland.
+ - There is no greater misery than false joys.
+ - First learn to love yourself, and then you can love me.
+ - Let us affectionately love His angels as counselors and defenders appointed by the Father and placed over us. They are faithful; they are prudent; they are powerful; Let us only follow them, let us remain close to them, and in the protection of the God of heaven let us abide.
+ - Spiritual life is like living water that springs up from the very depths of our own spiritual experience. In spiritual life everyone has to drink from his or her own well.
+ - Prayer is a wine which makes glad the heart of man.
+ - It was love that motivated His self-emptying, that led Him to become a little lower than angels, to be subject to parents, to bow His head beneath the Baptist’s hands, to endure the weakness of the flesh, and to submit to death even upon the cross.
+ - Inordinate love for the flesh is cruelty, because under the appearance of pleasing the body, we kill the soul.
+ - God will become visible as God’s image is reborn in you.
+ - A truly obedient man does not discriminate between one thing and another, since his only aim is to execute faithfully whatever may be assigned to him.
+ - True penance consists in regretting without ceasing the faults of the past, and in firmly resolving to never again commit that which is so deplorable.
+ - I know by myself how incomprehensible God is, seeing I cannot comprehend the parts of my own being.
+ - True love does not demand a reward, but it deserves one.
+ - The more I contemplate God, the more God looks on me. The more I pray to him, the more he thinks of me too.
+ - Hell is full of good wishes or desires.
+ - Love seeks no cause beyond itself and no fruit; it is its own fruit, its own enjoyment. I love because I love; I love in order that I may love.
+ - The three most important virtues are humility, humility, and humility.
+ - Many of those who are humiliated are not humble. Some react to humiliation with anger, others with patience, and others with freedom. The first are culpable, the next harmless, the last just.
+ - The spiteful tongue strikes a deadly blow at charity in all who hear him speak and, so far as it can, destroys root and branch, not only in the immediate hearers but also in all others to whom the slander, flying from lip to lip, is afterwards repeated.
+ - Learn the lesson that, if you are to do the work of a prophet, what you need is not a sceptre but a hoe.
+ - Who loves me will love my dog also.
+ - We are to love God for Himself, because of a twofold reason; nothing is more reasonable, nothing more profitable.
+ - Therefore gird yourselves manfully and take up joyful arms for the name of God.
+ - O Blessed Mary, whoever loves you honors God; whoever serves you pleases God; whoever invokes your holy name with a pure heart will infallibly receive the object of his petition.
+ - Vines and trees will teach you that which you will never learn from masters.
+ - Nothing can work me damage except myself.
+ - God has aroused the spirit of kings and princes to root up from the earth the enemies of the Christian name. Therefore gird yourselves manfully and take up joyful arms for the name of Christ.
+ - Whether we live or whether we die, we are the Lord’s.
+ - Jesus, what made You so small? LOVE!
+ - Humility in furs is better than pride in tunics.
+ - Theirs is an endless road, a hopeless maze, who seek for goods before they seek for God.
+ - Understanding is the sure and clear knowledge of some invisible thing.
+ - Let no one believe that he has received the divine kiss, if he knows the truth without loving it or loves it without understanding it. But blessed is that kiss whereby not only is God recognized but also the Father is loved; for there is never full knowledge without perfect love.
+ - The reason for our loving God is God.
+ - You wish to see; listen. Hearing is a step toward Vision.
+ - Persecution shows who is a hireling, and who a true pastor.
+ - If anyone makes himself his own master in the spiritual life, he makes himself scholar to a fool.
+ - It is no great thing to be humble when you are brought low; but to be humble when you are praised is a great and rare attainment.
+ - Believe one who has tried, you shall find a fuller satisfaction in the woods than in the books. The trees and the rocks will teach you that which you cannot hear from the masters.
+ - Action and contemplation are...
+ - It is a fault, not a virtue, to wish your humility recognized and applauded.
+ - Pride causes us to use our gifts as though they came from ourselves, not benefits received from God, and to usurp our benefactor’s glory.
+ - Have death always before your eyes as a salutary means of returning to God.
+ - From the best bliss that earth imparts, we turn unfilled to Thee again.
+ - As patience leads to peace, and study to science, so are humiliations the path that leads to humility.
+ - It’s not as if grace did one half of the work and free choice the other; each does the whole work, in its own peculiar contribution. Grace does the whole work, and so does free choice – with this one qualification: That whereas the whole is done in free choice, so is the whole done of grace.
+ - Let your prayer for temporal blessings be strictly limited to things absolutely necessary.
+ - What of the souls already released from their bodies? We believe that they are overwhelmed in that vast sea of eternal light and of luminous eternity.
+ - The peacemakers shall be called the sons of God, who came to make peace between God and man. What then shall the sowers of discord be called, but the children of the devil? And what must they look for but their father’s portion?
+ - Let us not imagine that we obscure the glory of the Son by the great praise we lavish on the Mother; for the more she is honored, the greater is the glory of her Son. There can be no doubt that whatever we say in praise of the Mother gives equal praise to the Son.
+ - Love is alone sufficient by itself, it pleases by itself and for it’s own sake. It is itself a merit, and itself it’s own recompense. It seeks neither cause, nor consequences beyond itself. It is its own fruit, its own object and usefulness. I love because I love you, I love that I may love.
+ - He rightly reads scripture who turns words into deeds.
+ - The tears of those repenting are the wine of angels.
+ - So far from being able to answer for my sins, I cannot even answer for my righteousness!
+ - To serve Mary is a mark of eternal salvation to come.
+ - Let us then cast ourselves at the feet of this good Mother, and embracing them let us not depart until she blesses us, and accepts us for her children.
+ - A pretext is never lacking to him who would break with a friend.
+ - Love of Mary and devotion to her are a sure sign of obtaining eternal salvation.
+ - Expect much of God, and he will do much for you.
+ - When God forgives a sinner who humbly confesses his sin, the devil loses his dominion over the heart he had taken.
+ - Pride only, the chief of all iniquities, can make us treat gifts as if they were rightful attributes of our nature, and, while receiving benefits, rob our Benefactor of His due glory.
+ - For I have learnt for a fact that nothing so effectively obtains, retains and regains grace, as that we should always be found not high-minded before God, but filled with holy fear.
+ - Slander is a poison which kills charity, both in the slanderer and the one who listens.
+ - Humility is, of all graces, the chiefest when it does not know itself to be a grace at all.
+ - He won me over entirely by giving Himself entirely to me.
+ - Prayer is a virtue that prevaileth against all temptations.
+ - There are three distinct comings of the Lord of which I know: His coming to men, His coming into men, and His coming against men.
+ - If you concentrate hard on the state you are in, it would be suprising if you have time for anything else.
+ - I have no other masters than the beeches and the oaks.
+ - If you would know whether you have made a good confession, ask yourself I you have resolved to abandon your sins.
+
+86 quotes

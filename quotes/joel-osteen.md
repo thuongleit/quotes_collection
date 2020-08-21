@@ -1,0 +1,502 @@
+ - Stay focused, ignore the distractions, and you will accomplish your goals much faster.
+ - People of excellence go the extra mile to do what’s right.
+ - Today is a new day, so rise up and move forward into the victory God has prepared for you!
+ - Every setback is a setup for a comeback!
+ - I’m getting better every day in every way.
+ - Be the one to stand out in the crowd.
+ - Don’t settle for mediocrity; never let good enough be good enough.
+ - Don’t waste your energy trying to convince people to understand you. Your time is too valuable to try to prove yourself to people.
+ - You cannot expect to live a positive life if you hang with negative people.
+ - God knows the dreams and desires in your heart; in fact, He gave them to you. He will order your steps and take you where you need to be.
+ - You must make a decision that you are going to move on. It wont happen automatically. You will have to rise up and say, ’I don’t care how hard this is, I don’t care how disappointed I am, I’m not going to let this get the best of me. I’m moving on with my life.
+ - We may get knocked down on the outside, but the key to living in victory is to learn how to get up on the inside.
+ - Crows can't hang with eagles.
+ - You cannot expect victory and plan for defeat.
+ - When you focus on being a blessing, God makes sure that you are always blessed in abundance.
+ - You may think there is a lot wrong with you, but there is also a lot right with you.
+ - When you keep God in first place, He will take you to places you’ve never dreamed of.
+ - If you cannot be positive, then at least be quiet.
+ - God would not have put a dream in your heart if He had not already given you everything you need to fulfill it.
+ - Don't do anything that you wouldn't feel comfortable reading about in the newspaper the next day.
+ - It’s always darkest before the dawn. The bigger your challenge, the closer you are to your victory.
+ - The greatest gift you can give someone is your time, your attention, your love, your concern.
+ - Sometimes you face difficulties not because you’re doing something wrong, but because you’re doing something right.
+ - Be a victor, not a victim.
+ - Don’t just accept whatever comes your way in life. You were born to win; you were born for greatness; you were created to be a champion in life.
+ - Make up your mind that no matter what comes your way, no matter how difficult, no matter how unfair, you will do more than simply survive. You will thrive in spite of it.
+ - Don’t use your energy to worry. Use your energy to believe.
+ - Instead of telling God how big your problems are, tell your problem how BIG your God is.
+ - Life’s too short to spend it trying to keep others happy. You can’t please everyone. To fulfill your destiny, stay true to your heart.
+ - Don’t just go through it; grow through it.
+ - Slow down and enjoy the journey right now. Take time for the people in your life. They won’t always be there.
+ - I believe God will fight my battles for me.
+ - It’s our faith that activates the power of God.
+ - Don’t allow negative people to steal your joy. When you lose your joy, you lose your strength.
+ - Today could be the start of something amazing.
+ - You’re going to go through tough times – that’s life. But I say, ‘Nothing happens to you, it happens for you.’ See the positive in negative events.
+ - To live your best life now, you must learn to trust God’s timing, you may not think He’s working, but you can be sure that right now, behind the scenes, God is arranging all the pieces to come together to work out His plan for your life.
+ - Do all you can to make your dreams come true.
+ - God knows your value; He sees your potential. You may not understand everything you are going through right now. But hold your head up high, knowing that God is in control and he has a great plan and purpose for your life.
+ - No matter what comes your way, shake it off and move forward. When you have a positive mindset, you can’t be defeated.
+ - Change the way you speak about yourself and you can change your life.
+ - You’ve got to believe that God is in control of your life. It may be a tough time but you’ve got to believe that God has a reason for it and he’s going to make everything good.
+ - I’m blessed to be a blessing to someone else.
+ - Your job isn’t to judge. – Your job isn’t to figure out if someone deserves something or decide who is right or wrong. – Your job is to lift the fallen, restore the broken, and heal the hurting.
+ - I want to challenge you today to get out of your comfort zone. You have so much incredible potential on the inside. God has put gifts and talents in you that you probably don’t know anything about.
+ - You spend your time like you spend money. You can waste it or invest it.
+ - Don’t make excuses, don’t blame the past. The rest of your life can be the best of your life!
+ - Whatever follows ‘I AM’ will always come looking for you!
+ - You will become what you believe. The truth is, I am what I am today because of what I believed about myself yesterday. And I will be tomorrow what I believe about myself right now.
+ - No matter what’s happening, choose to be happy. Don’t focus on what’s wrong. Find something positive in your life. Thank God for the small things.
+ - You have to turn it around and say God still has a great plan for my life. I may not understand things that happen, but faith is all about trusting when you don’t understand it.
+ - No matter what may be happening today, God has good things in store for your future! It may not be easy to see now, but God has already lined up a new beginning, new friendships and new opportunities for you.
+ - Your destiny is too great, your assignment too important, your time too valuable. Don’t let fear intimidate you.
+ - You may have had unfair things happen to you, but the depth of your pain is an indication of the height of your future.
+ - Life is short. Don’t miss opportunities to spend time with the people that you love.
+ - Life is going by. Don’t waste a minute being negative, offended, or bitter. Choose to be happy.
+ - You may be in a tough time but that setback is simply a setup for a greater comeback.
+ - Start calling yourself healed, happy, whole, blessed, and prosperous. Stop talking to God about how big your mountains are, and start talking to your mountains about how big your God is!
+ - Act like you’re blessed. Talk like you’re blessed. Walk like you’re blessed. Put actions behind your faith, and one day you will see it become a reality.
+ - You may not be where you want to be, but you can look back and be thankful you’re not where you used to be.
+ - You may have failed, but you are not a failure. That’s what you did. That’s not who you are.
+ - You are a person of destiny. You are not here by accident. There is no obstacle too big, no dream you can’t accomplish.
+ - No matter how many times you get knocked down, keep getting back up. God sees your resolve. He sees your determination. And when you do everything you can do, that’s when God will step in and do what you can’t do.
+ - It may look impossible, but God can do the impossible. Just because you don’t see anything happening doesn’t mean God is not working.
+ - There will always be somebody more successful, more beautiful, more talented. You have to realize, you’re not running their race. You’re running your race.
+ - When you serve others, when you make somebody else’s life better, when you lift up people, when you help heal those that are hurting, not only are they being blessed, but you’re being blessed.
+ - Every day, set your mind in the right direction. Find something to be grateful for.
+ - If you will transform your mind, God will transform your life.
+ - I believe if you keep your faith, you keep your trust, you keep the right attitude, if you’re grateful, you’ll see God open up new doors.
+ - This is my Bible. I am what it says I am. I have what it says I have. I can do what it says I can do.
+ - If you have your health, if you have people in your life to love, you are blessed. Slow down and enjoy the simple things in life.
+ - God wants you to be a winner, not a whiner.
+ - Your time is too valuable, your destiny is too great, and your future is too bright to waste a single moment. Be a now person.
+ - Quit worrying about people that are trying to hold you back. God knows how to move the wrong people out of your life and bring the right people in. He knows how to prepare you to Break Out.
+ - People can call you many different things, but you are not what people call you. You are what you answer to.
+ - God made you a masterpiece – be blessed, secure, disciplined and equipped.
+ - Today, use your words to lift up and bless the people around you.
+ - Difficult times don’t come your way just so you can survive them; God uses these times in your life to form and refine you.
+ - Before you leave the house, you need to make up your mind that you’re going to stay positive and enjoy the day no matter what comes your way. You have to decide ahead of time.
+ - Our words have creative power. With our words, we can speak blessings over our future or we can speak negative things over our future.
+ - Don’t use your words to describe the situation. Use your words to change the situation.
+ - Don’t get stuck where you are, keep growing. It’s a decision you have to make because it is easy to get stuck. Make a decision to develop better habits, to have better relationships and just to keep the enthusiasm for life.
+ - To reach up for the new, you must let go of the old. What lies behind you is not nearly as important as what lies in front of you.
+ - God’s way is better than your way. His plan is bigger than your plan. His dream for your life is more rewarding, more fulfilling, better than you’ve ever dreamed of. Now stay open and let God do it His way.
+ - God works where there’s an attitude of faith. I believe faith is all about hope.
+ - God has destined you to soar. You have victory, freedom and excellence on the inside.
+ - When you have a spirit of excellence, you do the right thing not because somebody is watching or making you do it; you do it because it’s the right thing to do.
+ - When you’re blessed, the haters come out. When you wear God’s blessings well, don’t be surprised if it draws jealousy out on people.
+ - If you truly want to become a better you, it is imperative that you learn to feel good about yourself.
+ - Don’t talk about the way you are. Talk about the way you want to be.
+ - People will try to label you not good enough, too slow, too old, too many mistakes. You can’t stop negative comments or prevent negative labels, but you can choose to not let them hold you back.
+ - Make the decision and say, “I’m not letting that worry in. I’m done being upset when my plans don’t work out. I’m not letting that stress in.” Negative thoughts will still come to your mind, but you don’t have to let them into your spirit.
+ - God will give you strength when you think you can’t go on. He will give you joy when you should be discouraged. He can make a way when it looks impossible.
+ - Take your dreams and the promises God has put in your heart, and every day declare that they will come to pass.
+ - God planted a dream in your heart for a reason. No one else can dream it for you. No one else will accomplish it for you.
+ - If you will focus on meeting other people’s needs, God will always make sure your needs are supplied. God will take care of your problems for you.
+ - You have greatness in you. The key is to get it out.
+ - You sacrifice the few to save the many.
+ - Choosing to be positive and having a grateful attitude is going to determine how you’re going to live your life.
+ - God is preparing you for greater things. He’s going to take you further than you thought possible, so don’t be surprised when He asks you to think better of yourself and to act accordingly.
+ - If you don’t set the tone for the day, the devil will set it for you.
+ - Don’t go into the new year holding a grudge from last year. Leave the hurts and disappointments behind.
+ - If you want to be happy, you have to be happy on purpose. When you wake up, you can’t just wait to see what kind of day you’ll have. You have to decide what kind of day you’ll have.
+ - No matter how dark it looks, no matter how long it’s been, no matter how many people are trying to push you down; if you will stay in faith, God will always take you from Friday to Sunday. He will always complete what He started in you!
+ - Every day is a gift from God. There’s no guarantee of tomorrow, so that tells me to see the good in this day to make the most of it.
+ - The more you talk about negative things in your life, the more you call them in. Speak victory not defeat.
+ - You were never created to live depressed, defeated, guilty, condemned, ashamed or unworthy. You were created to be victorious.
+ - When you face difficult times, know that challenges are not sent to destroy you. They’re sent to promote, increase and strengthen you.
+ - Sometimes, God uses difficult people, like sandpaper, to rub the rough edges off us.
+ - You can be committed to Church but not committed to Christ, but you cannot be committed to Christ and not committed to church.
+ - No matter how many times you get knocked down, keep getting back up.
+ - Keep honoring God with your life, stay in peace, trust His timing and God will open doors that no man can shut.
+ - When nobody else celebrates you, learn to celebrate yourself. When nobody else compliments you, then compliment yourself. It’s not up to other people to keep you encouraged. It’s up to you. Encouragement should come from the inside.
+ - Quit questioning God and start trusting Him!
+ - Let’s be the kind of people that do good for others whether we get paid back or not, whether they say thank you or not.
+ - Where God gives vision He always provides provision.
+ - At this very moment, God’s working behind the scenes in your life, arranging things in your favor. Stay in faith!
+ - Fear and faith have something in common. They both ask us to believe in something we cannot see.
+ - You’re not RESPONSIBLE for somebody else’s happiness. You’re responsible for your own HAPPINESS.
+ - Life is short. You can’t afford to put off what God has put in your heart. You don’t have time to live with things holding you back.
+ - There are some things you can only learn in a storm.
+ - The moment God put a dream in your heart, the moment the promise took root, God not only started it, but He set a completion date.
+ - Bottom line: God will not allow any person to keep you from your destiny. They may be bigger, stronger, or more powerful, but God knows how to shift things around and get you to where you’re supposed to be.
+ - Quit worrying about how everything is going to turn out. Live one day at a time; better yet, make the most of this moment.
+ - Learn to trust His timing. Don’t get in a hurry; don’t grow impatient; don’t try to force doors open. Don’t try to make things happen in your own strength. Let God do it His way.
+ - God will always bring the right people into your life, but you have to let the wrong people walk away.
+ - We live in a society that likes to kick people when they’re down. Don’t be a fair-weather friend. Stick with people. They need you more in the tough times than they do in the good times.
+ - When you face adversity, you need to remind yourself that whatever is trying to defeat you could very well be what God will use to promote you.
+ - Faith activates God – Fear activates the Enemy.
+ - The only difference between black coal and a precious diamond is the amount of pressure it endured.
+ - God’s got you in the palm of His hand. You won’t leave one second before your time. If God wants you to be here, then you’re going to be here.
+ - I struggled for a long time with survivin’, and no matter what, you keep finding something to fight for.
+ - God wants to increase you financially, by giving you promotions, fresh ideas and creativity.
+ - Faith is about trusting God when you have unanswered questions.
+ - You will never change what you tolerate.
+ - Wake up every morning with a thankful attitude. Expect something good to happen in your life today.
+ - It is your choice to be happy. Make up your mind to enjoy this day, to have a blessed, prosperous, victorious year. You may have some setbacks and your circumstances may change, but don’t let that change your mind. Keep it set to happiness.
+ - There’s a lot that is good in your life-don’t take it for granted. Don’t get so focused on the struggles that you miss the gift of today.
+ - A grateful heart is like a sponge that soaks up God’s goodness.
+ - When you smile and project an aura of warmth, kindness, and friendliness, you will attract warms, kindness, and friendliness. Happy people will be drawn to you.
+ - Keep on keeping on!!!
+ - You weren’t created to be unhappy in order to keep everyone else happy. Run your own race.
+ - Replace those thoughts of worry with thoughts of hope, faith, and victory.
+ - If you can see the invisible, God will do the impossible.
+ - You don’t have to fight every battle. You don’t have to respond to every critic. You don’t have to be offended because of what others say. You can rise above these things and soar.
+ - God loves to use ordinary people just like you and me, faults and all, to do extraordinary things.
+ - I mean we all need a second chance sometimes.
+ - Let go of yesterday. Let today be a new beginning and be the best that you can, and you’ll get to where God wants you to be.
+ - When you’re tempted to be upset, ask yourself ‘Is this worth giving up my joy?’
+ - Don’t put a question mark where God has put a period.
+ - To me, we’re marketing hope.
+ - Truth is, no two people are completely compatible. We have to learn to become one. That means we may have to make sacrifices; we may have to overlook some things. We must be willing to compromise for the good of the relationship.
+ - There may be times when you just have to love people from a distance.
+ - You cannot soar with the eagles as long as you hang out with the turkeys.
+ - You were created to excel. There’s no limit to how high you can go in life. Keep stretching to the next level.
+ - Keep a good attitude and do the right thing even when it’s hard. When you do that you are passing the test. And God promises you your marked moments are on their way.
+ - Often, out of our greatest rejection comes our greatest direction.
+ - God’s dream is that you have an abundance, that you be totally out of debt, pay your house off, pay your credit cards off, and have so much overflow that you can be a blessing to everyone around you!
+ - Too often we make the mistake of remembering what we should forget-our hurts, failures and disappointments -and we forget what we should remember-our victories, accomplishments and the times we have made it through.
+ - God can make greatness out of a great mess.
+ - Life’s a fight. It’s a good fight of faith.
+ - You are not defined by your past. You are prepared by your past.
+ - Marriage is a commitment, not a feeling.
+ - I will not talk to God about how big my problems are. I will talk to my problems about how big my God is. This is my declaration.
+ - You only have so much emotional energy each day. Don’t fight battles that don’t matter.
+ - Don’t focus on the adversity; focus on God. No matter what you go through, stay in faith, be your best each day and trust that God will use it to position you for greatness.
+ - Keep believing. You may be tired, discouraged, but don’t give up on your future.
+ - God didn’t make a mistake when He made you. You need to see yourself as God sees you.
+ - If you spend your life trying to please people or letting them control you, you may make them happy, but you’ll miss your destiny.
+ - When you get knocked down, don’t stay down; get back up again. Nothing good is going to happen as long as you’re down on yourself.
+ - If you develop an image of success, health, abundance, joy, peace, happiness, nothing on earth will be able to hold those things from you.
+ - God has put people in your life on purpose, Don’t live to get, live to give.
+ - True love turns words and feelings into actions.
+ - I think a big test we all face in life on a regular basis is that discouragement test. Life’s not always fair, but I believe if you keep doing the right thing, God will get you to where you are.
+ - The prerequisite to loving others is to love yourself. If you don’t have a healthy respect for who you are, and if you don’t learn to accept yourself faults and all, you will never be able to properly love other people.
+ - Love overlooks a person’s faults. That’s not always easy, but love believes the best in every person. Anybody can return evil for evil, but God wants His people to help heal wounded hearts.
+ - Failure is an event-it’s not who you are. Don’t let that label get stuck on you. If one dream dies, dream another dream.
+ - If you never feel like giving up, then your dreams are too small.
+ - Sometimes in life, a fog sets in and you don’t know which way is the right direction. Every voice may tell you it’s not going to happen, but God has placed a promise in your heart. Refuse to listen to those voices. Keep believing.
+ - I know what’s in my future is greater than what’s in my past so I am pressing forward in life.
+ - Faith is not in your head. Faith is in your heart. Sometimes you have to turn your mind off and listen to your heart.
+ - Associate with people of vision. Be around those who inspire you and motivate you to reach your dreams.
+ - God never said that we wouldn’t have unfair situations, that we wouldn’t experience loss. But He promised if we would stay in faith, He would restore everything that was stolen.
+ - You don’t have to tell people what they’re doing wrong. They already know. Your job is to love them.
+ - There are people in your path just so you can be a blessing to them. Anytime you do good for others, you are sowing a seed for God to be good to you.
+ - If you will keep being your best right where you are, you will come into more favor, promotion and opportunity than you ever imagined.
+ - You may think you’ve got a long way to go, but you need to look back at how far you’ve already come. You may not be everything you want to be but atleast you can thank God that you’re not what you used to be.
+ - If your dream dies, dream another one. If things don’t work out the way you’ve planned, God has a better plan for you.
+ - Nothing in life has happened to you. It’s happened for you. Every disappointment. Every wrong. Even every closed door has helped make you into who you are.
+ - No matter what comes your way, don’t lose your joy.
+ - To become a better you, you must be positive towards yourself, develop better relationships, embrace the place where you are.
+ - Just because we’re in a STRESSFUL situation doesn’t mean that we have to get stressed out. You may be in the storm. The key is, don’t let the storm get in YOU.
+ - You don’t have to live up to anyone’s expectations, just be the best you can be.
+ - Be a people builder. Look for opportunities to encourage others to bring out the best in them.
+ - It doesn’t matter who likes you or doesn’t like you, all that matters is that God likes you. He accepts you, he approves of you.
+ - This is a day that God has given me. It’s a gift. I can never relive this day. And I’m not going to live it angry, in unforgiveness, and mad at somebody. If I don’t get my way, I’m going to believe that God’s still in control.
+ - Heavenly Father, thank You for Your peace that rules my heart. I choose Your peace today and thank You for guiding my every step. I choose to be thankful today and bless You for Your faithfulness. In Jesus Name. Amen.
+ - Instead of focusing on how big your problems are, focus on how big your God is! He is everything you need. He is the Great I AM, and He is the one leading and guiding you into victory in every area of your life!
+ - Sometimes what works 40 years ago doesn’t work today.
+ - The greatest difficulty always comes right before the birth of a dream.
+ - Friend, there’s no greater investment in life than in being a people builder. Relationships are more important than our accomplishments.
+ - Not every person is going to understand you and that’s okay. They have a right to their opinion and you have every right to ignore it.
+ - Next time you’re tempted to be upset, frustrated, offended, remind yourself, it’s a part of that ten percent of things in life that you can’t control – but you can control how you respond.
+ - Quit worrying about what other people think and just be who God made you to be. If you will run your race, God will take care of your critics.
+ - I don’t have it in my heart to condemn people. I’m here to encourage them. I see myself more as a coach, as a motivator to help them experience the life God has for us.
+ - If youre alive and breathing, you can still become everything God has created you to be.
+ - Ask God to give you the strength to endure, and rest assured, He will take care of you.
+ - When someone is rude, keep a smile on your face. when you stay on the high road...
+ - Just because you’ve come to a dead end, it’s not time to give up. Find a different route and keep pressing forward.
+ - I don’t focus on the critics. Everyone who is making any difference in any field has critics. As long as I feel like I’m doing what I’m supposed to be doing, then I don’t worry about it.
+ - Being successful doesn’t necessarily make you great. What makes you great is when you reach back and help somebody else become great.
+ - Quit dwelling on the negative things people have said about you. You don’t have to have everyone’s approval. You have God’s approval.
+ - Sometimes you have to put your own dreams on hold temporarily so you can help release a dream in somebody else. What you make happen for others, God will make happen for you.
+ - My core message is that God has got a good plan for your lives, and we must trust Him, and let go of the past. That’s my main message.
+ - I don’t have to figure out how God is going to solve my problem. I don’t have to understand how He’s going to bring it to pass. That’s His responsibility. My job is to simply believe that He will.
+ - You can live your life angry, bitter, mad at somebody or even guilty, not letting go of your own mistakes, but you won’t receive the good things God has in store.
+ - He is still in control. He still has you in the palm of His hand.
+ - Every setback means you’re one step closer to seeing the dream come to pass.
+ - Life begins each morning.
+ - Don’t be intimidated by the size of your problem or the size of your dream. God will see to it that it is finished completely.
+ - Be careful what you say. You can say something hurtful in ten seconds, but ten years later, the wounds are still there.
+ - When things are difficult, smile by faith. Don’t wait until you feel better.
+ - Start announcing freedom from anything that’s holding you back. Freedom from addictions, freedom from loneliness, freedom from lack, freedom from struggle. You are prophesying your future. Your words are setting the direction for your life.
+ - Selfishness is weakness. But loving and caring for others is a position of power beyond anything we can possibly imagine.
+ - Your best days are still out in front of you.
+ - When you come to a dark valley, a difficult season or a sickness, don’t worry about it, God will give you the grace and strength you need.
+ - When you stir up the passion, your faith will allow God to do amazing things. If you want to remain passionate, you cannot let what once was a miracle become ordinary.
+ - Sometimes we look back and 10 years from now we think, ‘Boy, those were great old days.’ Well, you know, we’re living in the good old days.
+ - You can be in the storm, but don’t let the storm get in you.
+ - You have a destiny to fulfill, something greater than you’ve ever even imagined. But if you’re going to become all you were created to be, you’ve got to take off the “average” label.
+ - And afterward, I will pour out my Spirit on all people. Your sons and daughters will prophesy, your old men will dream dreams, your young men will see visions.
+ - Your enemies, your critics, the people that are trying to push you down-God can use them to push you up.
+ - When you go through enough dark places, you don’t complain about little things. You don’t lose your joy because you got stuck in traffic; you don’t get offended because a coworker was rude to you. You’ve been through too much to let that sour you.
+ - If you are against yourself, you will never reach your highest potential. And when you criticize yourself, you’re criticizing God.
+ - Rewards await you if you stay steadfast in your faith.
+ - If you’ll spend time praying for people instead of talking about them, you’ll get better results.
+ - Do yourself a favor; don’t wear yourself out trying to please everybody. Your time is too valuable.
+ - God doesn’t care what you’re not. He cares who you are. You are His, you come from the Master, and when He adds His extra to your ordinary and His super to your natural, nothing is impossible for you.
+ - I wouldn’t ever say if you’re having tough times then there must be something wrong with you or your attitude. Life’s a fight. It’s a good fight of faith. I encourage people to stay up, stay hopeful, stay faith-filled.
+ - Closed doors are a test of our faith. Keep moving forward, being your best, living with determination and faith. When you do, you’ll see amazing changes all around you.
+ - Don’t hold on to the old when you’re being led somewhere new. Come out of your comfort zone.
+ - The power to see change in your life can be found in the words you speak. You have the power to set the destiny for your life by what comes out of your mouth.
+ - You can have average talent, but when God breathes on your life, you will go further than people that have great talent. Don’t talk yourself out of it.
+ - Don’t just look for your miracle. Become someone else’s miracle.
+ - You can take pride in yourself without comparing yourself to anybody else. If you run your race and be the best that you can be, then you can feel good about yourself.
+ - Your life will follow your expectations. What you expect is what you will get. If you dwell on positive thoughts, you will move in that direction; if you continually think negative thoughts, you will live a negative life.
+ - God can cause opportunity to find you. He has unexpected blessings where you suddenly meet the right person, or suddenly your health improves, or suddenly you’re able to pay off your house. That’s God shifting things in your favor.
+ - At the start of each new day, remind yourself: I am talented. I am creative. I am greatly favored by God. I am equipped. I am well able. I will see my dreams come to pass.
+ - See, people are watching you. Especially your children. They’re taking in every single thing you do. They are like video cameras with legs. And they are always in the record mode. They learn more from what you do than from what you say.
+ - I believe the scripture says that being gay is a sin.
+ - Take time to make a difference. Don’t just obsess about how you can make your life better. Think about how you can make somebody else’s life better as well.
+ - God doesn’t ask you to figure it all out. He only asks you to believe.
+ - There’s a belief that you’re supposed to be poor, and suffering, and show your humility. I just don’t see the Bible that way. I see that God came and Jesus died so that we might live an abundant life and be a blessing to others.
+ - When you have big dreams, you’re going to have big challenges. If you were an average person you would have average problems.
+ - God honors obedience, and He has distinct plans for us. I think the dreams that God puts in our hearts, we can fulfill. He’s equipped us for that.
+ - Forgiveness is a choice, but it is not an option.
+ - If they left you, you didn’t need them. If they walked away, they weren’t part of your DESTINY.
+ - You need to get ready because I have explosive blessings coming your way.
+ - It’s amazing how people will give when you don’t ask. Many of them send money because they believe in the message.
+ - If one dream dies, dream another dream. If you get knocked down, get back up and go again.
+ - You’ll never rise any higher than the way you see yourself.
+ - God wants to use you in spite of your weaknesses. Of God chose to use perfect people only, He’d have no one to use.
+ - A victor’s mentality becomes a victor’s reality.
+ - Sometimes we focus on the mess or the broken dream, but in all the mess God sees greatness. He knows how to take your troubles and turn them into trophies, how to take the test and make it your testimony.
+ - Hard times may have held you down, but they will not last forever. When all is said and done, you will be increased.
+ - Take the limits off of yourself. You will never rise higher than your thinking. Create a great vision for your life.
+ - The people God put in your life are not there by accident. Don’t get so busy that you just give them your leftover time.
+ - Sometimes God will deliver you from the fire, and other times God will make you fireproof.
+ - When you get up and say, “God, I want to thank you for being alive, I’ve got family, I’ve got my health,” you’re going to draw in more of the good things from God.
+ - The greater the giving, the greater the living.
+ - You don’t know why God has put that person in your path. It’s not a coincidence. He’s strategically lined up every person, every detail and every step of your life. Now do your part – don’t miss an opportunity to do good for others.
+ - Happiness does not depend on your circumstances; it depends on your will. It’s a choice that you make.
+ - I think we should enjoy our families and everyone that we love right now, each day.
+ - The creator of the universe is lining up things in my favour.
+ - The moment you speak something out, you give birth to it. This is a spiritual principle, and it works whether what you are saying is good or bad, positive or negative.
+ - Program your mind with what God says about you and a transformation will take place.
+ - What you receive is directly connected to what you believe.
+ - When you center life around yourself, not only do you miss out on God’s best, but you rob other people of the joy and blessings that God wants to give them through you.
+ - Hold on to that new, enlarge vision of victory that God has given you. Start expecting things to change in your favor. Dare to boldly declare that you are standing strong against the forces of darkness.
+ - The dream in your heart may be bigger than the environment in which you find yourself. Sometimes you have to get out of that environment in order to see your dream fulfilled.
+ - This is not the time to shrink back in fear. Move forward in faith. Get up every morning knowing you are gifted.
+ - If you think you’re average, then you’ll be average. If you think you’re ordinary, then you’ll live ordinary. The truth is, there is nothing ordinary about you. You have something to offer that nobody else can offer.
+ - Shake off the self-pity, shake off the defeat and get ready for God to do something new. He is going to pay you back for every injustice.
+ - I think faith is incredible important because you will become overwhelmed with what’s happening and you will have waves of grief, but when you turn to your faith, I believe God will give you waves of grace to get through it.
+ - The main message of it is to not get stagnant and that God wants us to continue to grow and become a better person.
+ - Keep doing the right. God is building character in you, and you are passing that test. Remember, the greater the struggle, the greater the reward.
+ - You can’t think thoughts of mediocrity and expect to excel. The two don’t go together.
+ - Send your life to a whole new level! Zip up the negative words and start speaking faith and victory into your future.
+ - Put your shoulders back, hold your head up high knowing that the same power that raised Christ from the dead lives on the inside of you.
+ - God puts people in our lives on purpose so we can help them succeed and help them become all He created them to be. Most people will not reach their full potential without somebody else believing in them.
+ - It’s amazing what people will do when you see the best in them, when you honor them, when you respect them. It not only strengthens the relationship, but it will help that other person rise higher.
+ - Nobody owes me anything. I am not at a disadvantage. I am equipped, empowered, and anointed.
+ - I’m honest enough to say I don’t know everything. You know, I don’t. I don’t understand all of God. I don’t understand, you know, some kind of why bad things happen.
+ - When you are committed to doing what’s right, you are sowing seeds for God’s blessings. You will never go wrong by taking the high road and doing more that is required.
+ - Where you are now is not where you will always be. There are brighter days up ahead.
+ - There’s plenty about God that I don’t understand and can’t explain. But I come back to my core belief that God is good, that He’s for us.
+ - It is better to be lonely than allow people who are not going anywhere keep you from your destiny.
+ - Sometimes what we think is a disappointment, is really God getting us in position to go to a new level.
+ - God wants you to have a good life, a life filled with love, joy, peace, and fulfillment. That doesn’t mean it will always be easy, but it does mean that it will always be good.
+ - When God puts love and compassion in your heart toward someone, He’s offering you an opportunity to make a difference in that person’s life. You must learn to follow that love. Don’t ignore it. Act on it. Somebody needs what you have.
+ - Be sensitive to the needs of those around you. Live as a healer. Lift the fallen, restore the broken, and encourage the discouraged.
+ - Nothing can take your joy; you have to give it away. You’re in complete control of your happiness.
+ - If you give, you will be blessed.
+ - If you’ll dare to take your mind off your troubles, get your mind off your own needs and, instead, seek to be a blessing to other people, God will do more for you than you could even ask or think.
+ - I think sometimes the critics want me to beat people down, and that’s not in me. I want to lift people up.
+ - If you’re going to do anything great in life, there will be opposition, setbacks, delays and critics. When you have big dreams, you’re going to have big challenges.
+ - The ultimate connection is when you are connected to the creator of the universe.
+ - You will never go beyond the barriers in your own mind. If you think you can’t do something, then you never will.
+ - What you expect is what you will get.
+ - It’s vital that you accept yourself and learn to be happy with who God made you to be. If you want to truly enjoy your life, you must be at peace with yourself.
+ - Many times, we miss out on God’s best because we give up too soon. We don’t realize how close we are to victory.
+ - The marriage partner is not really the problem. No other person can ultimately make you happy. You must learn how to be happy within yourself.
+ - The main rule to me is to honor God with your life. To life a life of integrity. Not be selfish. You know, help others. But that’s really the essence of the Christian faith.
+ - Don’t settle in the land of barely enough. That is where you are, it is not who you are. That’s your location, it’s not your identity. No matter what it looks like, have an abundant mentality.
+ - Your situation may look impossible, but don’t ever rule out the favor of God.
+ - Keep in mind, just because you don’t know the answer doesn’t mean that one does not exist. You simply haven’t discovered it yet.
+ - The bigger your obstacle, the bigger your future. Don’t get discouraged, keep moving forward.
+ - True success is when you reach back and bring somebody along with you.
+ - You’re not really free until you’re free from trying to please everybody.
+ - I’m healthy as can be – not an ache or a pain. A lot of my prayer is thanking the Lord that I am healthy. I pray for long life and good health.
+ - You have to change on the inside before change will happen on the outside.
+ - Believe that God is in control. There is no need to be stressed out or worried.
+ - God made us for more than just barely getting by. We weren’t meant to sit on the sidelines of life because with God, we are on the winning team!
+ - The love of life is the root of all good.
+ - It doesnt matter how long it’s been or how impossible it looks, all the forces of darkness cannot stop what God wants to do.
+ - You’re never going to please everyone – you might as well be who God made you to be.
+ - Be glad, O people of Zion, rejoice in the Lord your God, for he has given you the autumn rains in righteousness. He sends you abundant showers, both autumn and spring rains, as before.
+ - Your past does not determine who you are. Your past prepares you for who you are to become.
+ - Why don’t you start believing that no matter what you have or haven’t done, that your best days are still out in front of you.
+ - Only God can look at somebody’s heart.
+ - Salvation and Christ’s love is a gift. You don’t earn it. You’ve got to receive that gift.
+ - That’s my thing – keep filled with faith. Keep doing what you can do and I believe God will do what you can’t do.
+ - I believe God gives you the grace to do what you need to do.
+ - Every twenty-four hours God has a fresh new supply of grace, of favor, of wisdom, of forgiveness.
+ - God’s desire is that we excel.
+ - You have excellence on the inside. It’s who you are. Now do your part. Bring out your excellence!
+ - I believe that God breathed life into every person and that every person is made in the image of God and you have accept them as they are, on their journey. I’m not here to preach hate or push people down.
+ - You can become all God created you to be even if you’ve had difficulties, even if you weren’t born into a good, loving family, God still has a plan for your life.
+ - Sometimes you have to smile by faith. If you’ll smile by faith, soon the joy will follow.
+ - I like to start my day off every morning, take the first half hour and just search my own heart, see if I’m on the right course, try to be honest with myself – am I doing this for the right reasons?
+ - The facts may tell you one thing. But, God is not limited by the facts. Choose faith in spite of the facts.
+ - God didn’t create you to be average. You were created to excel You have everything.
+ - The death of my father is probably the biggest thing that I ever faced. Daddy and I were best friends.
+ - When God puts something in your heart and deep down you know it’s a destiny moment, don’t wait for ten confirmations. Do what God is asking you to do now.
+ - You may think you’re getting the short end of the stick, but when it’s all said and done, God will make sure that you don’t lose anything truly valuable. Moreover, He’ll make sure you get your just reward. Your responsibility is to remain calm and peaceable even when those around you are not.
+ - If you don’t have the gift of a loving supportive family, be that gift for someone else. It doesn’t have to be a relative, just someone you know who is alone or hurting over the holiday.
+ - God has already lined up the right people for you, people that will inspire you, challenge you and motivate you. If you’ll let go of the wrong people, then the right people will show up.
+ - Let go of offence. Let go of fear. Let go of revenge. Don’t live angry, let go now!
+ - If you will lie about the little things, before long you’ll lie about bigger things.
+ - We live in a culture that relishes tearing others down. It’s ultimately more fulfilling, though, to help people reach their goals. Instead of feeling jealous, remember: If God did it for them, He can do it for you.
+ - No matter how dark and gloomy it looks in your life right now, if you’ll release the weight of those burdens, you will see the sun break forth.
+ - Don’t live worried, frustrated or upset because of what somebody did or what didn’t work out. Come back to a place of peace. It’s not going to work against you; it’s going to work for you.
+ - So many people are looking at what’s wrong, and I try to encourage them to look at what’s right in their life. A lot of people have it a lot worse than you do.
+ - It’s flattering to people who stop you and say that you’ve helped them and all. But, again, you know, you’ve got to stay humble because as quick as you came up, you can come down.
+ - People respond when you tell them there is a great future in front of you, you can leave your past behind.
+ - If Jesus were here today, he wouldn’t be riding around on a donkey. He’d be taking a plane, he’d be using the media.
+ - I believe God’s keeping the records and I believe you will be rewarded even in this life; somehow, some way God will make it up to you.
+ - If we’re going to bring out the best in people, we, too, need to sow seeds of encouragement.
+ - A lot of people have it a lot worse than you do.
+ - I made a decision when my father passed away that I was going to be who God made me to be and not try to preach like my father.
+ - I’m not the judge. You know, God didn’t tell me to go around judging everybody.
+ - Never let discouraging people and discouraging situations talk you out of your dream.
+ - If you want your life to get better, sometimes the best thing you can do is to help improve somebody else’s life.
+ - When people are around us, they should leave better off than they were previously. Rather than feeling discouraged or defeated, people should feel challenged and inspired after spending any time with you and me.
+ - You have to accept the fact that some people are never going to be for you. Treat them with respect, but you don’t need their approval to fulfill your destiny.
+ - Your life may have taken a detour, but God is still on the throne. He has brought you this far, and sooner or later, your peace will be restored.
+ - Just because something didn’t work out your way, or somebody disappointed you, that does not change who you are.
+ - I think God’s justice is making wrongs right.
+ - You don’t have to have a great gift for God to use it in a great way.
+ - We can all control our own destiny. And I think sometimes it’s a copout to say, “Well, it’s this person’s fault or another person’s fault.”
+ - I like to take every day just searching my own heart, making sure that I’m on course, and I’m doing what God wants me to do. I’m real good with not looking to the critics and looking straight ahead.
+ - I will pour out my spirit on all flesh.
+ - You are full of potential. You are overflowing with creativity. There’s nothing in your heart that you cannot accomplish.
+ - It’s God’s will for you to live in prosperity instead of poverty. It’s God’s will for you to pay your bills and not be in debt.
+ - I say, don’t try to fight your own battles because God will do it.
+ - When it’s all said and done, you may go through the fire, through the flood, through the famine, but you’ll come out standing strong.
+ - My biggest hobby is hanging out with my family and kids.
+ - Sometimes we look at gay being a bigger sin than being proud or not telling the truth. I don’t think God categorizes sins.
+ - Don’t focus on what’s wrong. Things may not be perfect, but be grateful for the opportunity to experience each day. Live each day like it could be your last.
+ - I don’t have all the answers.
+ - Some people keep God in a Sunday morning box and say, ‘Hey, I did my religious duty.’ That’s fine, but the scripture says to pray without ceasing. And I think that means all through the day you’re talking to God. Even if it’s in your thoughts.
+ - You must quit looking at what you don’t have and start believing that all things are possible.
+ - We need to show mercy. I mean, because as much mercy as you show people, that’s the mercy you’re going to be receiving.
+ - God is a good God, and that he’s on our side, and that he has great things in store and I believe that as we receive the forgiveness that Christ came and was born and died to give us, then we can live a great life.
+ - When we don’t forgive, we’re not hurting the other person. We’re not hurting the company that did us wrong. We’re not hurting God. We’re only hurting ourselves.
+ - You don’t know what’s on the inside until you put a demand on your potential.
+ - It’s better to become who God created you to be than to try to promote yourself to become something you’re not.
+ - When you release your faith in uncommon ways, youll see God do uncommon things.
+ - If you think your obstacles are too big, they will be. Don’t set limits on your life with your thinking.
+ - It’s better to please God and have a few people upset with you than to please people and have God upset with you.
+ - No matter how many mistakes you’ve made in the past, or what sort of difficulties you struggle with now, you are destined to live in victory.
+ - Smiling resets your mood.
+ - We can be civil. We can still be friends, and be Democrats and Republicans, and have different views.
+ - If you want to know where you’ll be five years from now, listen to what you’re saying about yourself today.
+ - Too often we judge people based on our own backgrounds and experiences, but when you understand people’s stories, it’s easier to understand their demeanor.
+ - If we don’t forgive ourselves for mistakes we’ve made-and everybody’s made their choices, some worse than others-we’ll never experience the good life God has in store.
+ - There is a winner in you. You were created to be successful, to accomplish your goals, to leave your mark on this generation. You have greatness in you. The key is to get it out.
+ - Seeds of discouragement cannot take root in a grateful heart.
+ - Be careful with whom you associate, especially when you feel emotionally vulnerable, because negative people can steal the dream right out of your heart.
+ - Don’t confuse small with insignificant.
+ - You words affect generations after you. Speak blessings and favor over them.
+ - It’s easy to see the negative, but every person has something great about them. Develop a habit of looking for the good.
+ - We’ve got to give people room to have a bad day.
+ - I’m trying to throw a big broad net to try to get people interested in God and believe that He’s for them and has a purpose.
+ - We have to remember, when we forgive we’re not doing it just for the other person, we’re doing it for our own good. When we hold on to unforgiveness and we live with grudges in our hearts, all we’re doing is building walls of separation.
+ - Other people’s opinions do not determine your potential.
+ - If you don’t let people flourish in their jobs, why are they going to stay?
+ - Stones of judgment, discouragement or doubt may be thrown at you. You can’t stop them, but you can make the choice to keep your walls up and not let them affect you.
+ - That’s what I feel like I’m called to do – to plant a seed of hope in people’s hearts.
+ - It’s in the difficult times that we’re growing and you can’t just rebuke everything hard. We’ve got to endure it and fight the good fight of faith and pass the test.
+ - God wants us to live consistently, He wants us to enjoy every single day of our lives.
+ - The older I get, the better I understand that every day is a gift.
+ - Some things you can only learn in the struggle. When it’s easy, when everything is going your way, that doesn’t take any faith.
+ - I’m going to let God be the judge of who goes to heaven and hell.
+ - God wants us to prosper financially, to have plenty of money, to fulfill the destiny He has laid out for us.
+ - Whether a person is straight or gay, Republican, Democrat, good person, not a good person, they’re all welcome, because to me, church is a place you’re supposed to get healed and whole and loved.
+ - What others say and do cannot stop you from fulfilling your destiny. Your destiny was handed down by Almighty God.
+ - There is a place that God has specifically designed for you where all your needs will be supplied, where you’ll be happy and fulfilled, and where you’ll be using your gifts and talents to the full.
+ - Nothing in life has happened to you, it’s happened FOR You!
+ - No bad break, no disappointment, no accident can shorten one second of my divine destiny.
+ - Stop focusing on what you cant do, focus on what God can do.
+ - I’m not leading them to some false God or something like that.
+ - Again I think my gift is bringing hope to everybody, and I don’t want someone to look at me and say, “I would listen to him, I like what he’s saying, but he’s this or that politically and that turns me off.”
+ - When you give up yourself, that’s when you will feel the true spirit of Christmas. And that’s giving that’s serving others and that’s when you feel fulfilled.
+ - You cannot wait until everything becomes better before you decide to have a good attitude. You have to be the best you can be right where you are.
+ - I would rather believe for something great and receive half of it, than to believe for nothing and receive all of it!
+ - You see somebody down, that’s lonely, take them to lunch. Encourage them.
+ - On Sundays when I speak, I hopefully give somebody something that they can use the next day at work or at home.
+ - We are set in our ways, bound by our perspectives and stuck in our thinking.
+ - Listen carefully to the words and tone of voice you use with your spouse. Are you complaining all the time and telling her what she’s not doing right? Or are you doing like Solomon-blessing, encouraging, and uplifting that woman?
+ - I try to teach people that I believe God wants us to be positive toward ourselves, meaning that, you know what, I like the way I look, I like the way I sound, I’m happy with what I’m doing in my career – and not always be beating ourselves down.
+ - If it’s not meeting a need, turn it into a seed. Remember, we will reap what we sow. When you do good for other people, that’s when God is going to make sure that His abundant blessings overtake you.
+ - When you go through a loss, a disappointment or a bad break up, don’t expect to come out the same. Expect to come out better off than you were before.
+ - Resist discouragement by speaking His Word over your future. Keep standing. Keep hoping; keep believing because He is working behind the scenes. He’s going to accelerate your times and lead you into the life of victory He has for you.
+ - You’re not better than anybody else, but you’re not less than anybody else. You’re a child of the Most High God.
+ - Don’t focus on the good old days, look forward towards the good new days.
+ - It’s not who you are, but whose you are that counts. Because God is your heavenly Father, doors of opportunity will open for you.
+ - I don’t know what can be so dangerous about giving people hope. Causing people to have better relationships. I’m not leading them to some false God or something like that.
+ - You can’t talk mediocrity and expect to have victory. You are prophesying your future. If you want a shift to occur, you’ve got to think positive.
+ - You may have made a lot of wrong choices, but you’ve also made a lot of choices that were right. Focus on your good qualities. Focus on your victories. Get off the treadmill of guilt.
+ - As long as you have breath, someone needs your talents.
+ - So many people talk about themselves: “I’m unattractive, my mind’s so slow, and I can’t do this.” And you know what I tell them? “God didn’t make a mistake when He made you. You need to see yourself as God sees you.”
+ - I always try to put a seed of hope into people’s hearts. I’m not there to teach them doctrine necessarily, but to let them know that God is a good God, and has a plan for their lives. Hopefully, that will restore their faith, or draw them into faith.
+ - Invite good things into your life. When you confess good things based on what God is saying, you’ll begin to see more favor!
+ - Don’t think small when you pray. God has a way to bring your dreams to pass if you’ll dare to be bold enough to ask.
+ - One of the main reasons that we lose our enthusiasm in life is because we become ungrateful; we take for granted what God has done for us. We let what once was a miracle become common to us. We get so accustomed to goodness, it becomes routine; it doesn’t really excite us anymore.
+ - When you allow what someone says or does to upset you, you’re allowing them to control you.
+ - Check your spiritual birth certificate, you were made in the mighty image of God.
+ - If you want to rear financial blessings, you have to sow financially.
+ - Most people already know what they’re doing wrong. When I get them to church I want to tell them that you can change.
+ - Encouragement to others is something everyone can give. Somebody needs what you have to give. It may not be your money; it may be your time. It may be your listening ear. It may be your arms to encourage. It may be your smile to uplift. Who knows?
+ - It is a hard thing to let go of mistakes we’ve made and sins. God wants us to do that because He knows the guilt and the condemnation will keep us from becoming who He has created us to be.
+ - You need to take pride in what God has given you.
+ - Appreciation – Learn to give flowers while people are still living.
+ - We deal with people that are going through divorces and that are facing life-threatening illnesses, and I’m giving them hope. And to me, I don’t think there’s anything “lite” about that.
+ - Your destiny is not cancelled because of a mistake, because of a failure. Get back up and go again.
+ - When you acknowledge God, He will go before you and make the crooked places straight.
+ - People in tough times – it doesn’t mean they don’t have a great attitude.
+ - Don’t spend all your time trying to win over your critics. Just run your own race.
+ - My friends and I had fun together, but I was more reserved, not at all the life of the party. I would just be the quiet one in the room.
+ - I’ve always been – you know, my personality is motivating and encouraging. And so I’m just being who God made me to be.
+ - When I grew up, the Devil was a reason why I had a headache or the Devil was the reason I got mad today. We always blamed the Devil. I think today when I say the Enemy, I like to make it broader. Sometimes the Enemy can be our own thoughts.
+ - The question is not, ‘Do you have a problem?’ The question is, ‘Does the problem have you?’
+ - A merry heart is good like a medicine.
+ - We minister the Word of God. The proclamation of the Gospel comes after individuals have opened their hearts to God and turned from themselves to others. Only then are they truly ready to hear and benefit fully from the Word of the Lord.
+ - Don’t be so shortsighted that if it doesn’t happen right now, you’re not going to be happy. You are sowing seeds that will reap a great harvest for generations to come.
+ - When you believe, it activates God’s power.
+ - You need to follow your own heart in light of God’s word and do what you feel is right and good for you.
+ - I’m not trying to follow a set of rules and stuff. I’m just living my life.
+ - But I want to motivate. I wanna motivate every person to leave here to be a better father, a better husband, to break addictions to come up higher in their walk with the Lord.
+ - You won’t be free from guilt if you are constantly replaying the negative memories of your past. If you’re going to replay anything, replay your victories!
+ - I’m not perfect, but I think that I’ve done good to stay focused on what I’m called to do.
+ - You know, there is always times where you feel discouraged and things coming against you, but I don’t know if I ever wanted to throw in the towel.
+ - Happiness is always a choice. You can’t wait for circumstances to get better. You have to create your own good fortune. So look for ways to be happy every day.
+ - I think sometimes you just lose your focus, and I think that’s easy to do when you start getting more fame, more money, more power.
+ - When things gets difficult, and it seems like the intensity has been turned up, that’s a sign you are close to your victory.
+ - Certainly there are times in all of our lives when bad things happen, or things don’t turn out as we had hoped. But that’s when we we must a decision that we’re going to be happy inspite of our circumstances.
+ - I want to be blessed so I can build orphanages. Blessed so I can build hospitals and do other things with our finances.
+ - Opposition is not there to stop you, it’s there to establish you.
+ - We don’t have to talk about faith and family at dinner-we just show it.
+ - I encourage people in a lot of my messages that you’ve got to make the most of every day.
+ - When my dad founded our church, he used either a globe or a map of the world behind him. It was symbolic of what Christ said: to go forth and preach hope to the world. We believe in the cross, but we just continued with the globe.
+ - Your problems are not there to defeat you, they are there to increase you.
+ - Today, decide not to speak negatively about yourself. When you criticize yourself, you are criticizing God’s very own creation.
+ - We live in a day that nobody’s lived in before: where you can touch more people. The message I’ll speak tonight and the message that I speak at home, people in India will hear. It’s just an amazing day.
+ - Don’t use your faith to try to get rid of problems. Use your faith to remain calm in the midst of your problems.
+ - When I hear Mitt Romney say that he believes that Jesus is the Son of God, that He’s the Christ, raised from the dead, that He’s his savior – that’s good enough for me.
+ - I always want to listen to people and receive good criticism, but I just don’t have to answer to them; I have to answer to God.
+ - Our whole message is it’s easy to just keep preaching to the church and people that already come.
+ - No matter what you’ve gone through in the past, no matter how many setbacks you’ve suffered or who or what has tried to thwart your progress, today is a new day, and God wants to do a new thing in your life.
+ - When we focus on or disappointments, we stop God from ringing fresh new blessing into our lives.
+ - I’m not. I don’t – I don’t dislike anybody. Gays are some of the nicest, kindest, most loving people in the world. But my faith is based on what I believe the scripture says, and that’s the way I read the Scripture.
+ - I believe that when you think of the negative, and you get up discouraged – ‘There’s nothing good in my future’ – I really believe it almost ties the hands of God. God works where there’s an attitude of faith. I believe faith is all about hope.
+ - To me, it’s OK to have differences. But we don’t have to be mad about it. You know? And I think that’s where sometimes we get so passionate that we – you know, it turns into anger.
+ - Strive to make every person feel special. After all, every person you meet is made in the image of God.
+ - My message is that God is a good God.
+ - I see people – they won’t be negative toward other people, but inside they’re negative toward themselves, and I think that holds us back.
+ - I like to think my dad was easygoing and kind, and I think some of those things have been passed down. I am like him in a sense of being positive and hopeful. He was compassionate, and I’ve got a lot of that in me as well.
+ - My actions will follow my expectations.
+ - You may never get to that perfect world that you’re waiting for where everything’s going to be perfect and you got that much money and your house paid off.
+
+500 quotes

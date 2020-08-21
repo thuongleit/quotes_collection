@@ -1,0 +1,42 @@
+ - If wars can be started by lies, they can be stopped by truth. ~~Julian Assange
+ - The cunning of the fox is as murderous as the violence of the wolf. ~~Thomas Paine
+ - If not us, who? And if not now, when? ~~Ronald Reagan
+ - If we don’t end war, war will end us. ~~H. G. Wells
+ - Right is right, even if everyone is against it, and wrong is wrong, even if everyone is for it. ~~William Penn
+ - Make time for planning: Wars are won in the general’s tent. ~~Stephen R. Covey
+ - Conflict is inevitable but combat is optional. ~~Max Lucado
+ - Show me who makes a profit from war, and I’ll show you how to stop the war. ~~Henry Ford
+ - War is peace. Freedom is slavery. Ignorance is strength. ~~George Orwell
+ - The supreme art of war is to subdue the enemy without fighting. ~~Sun Tzu
+ - Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. ~~Sun Tzu
+ - Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. ~~Ronald Reagan
+ - Generally speaking, the Way of the warrior is resolute acceptance of death. ~~Miyamoto Musashi
+ - First feelings are always the most natural. ~~Louis XIV
+ - Polish your wisdom: learn public justice, distinguish between good and evil, study the ways of different arts one by one. ~~Miyamoto Musashi
+ - We shall never surrender. ~~Winston Churchill
+ - It is imperative to master the principles of the art of war and learn to be unmoved in mind even in the heat of the battle. ~~Miyamoto Musashi
+ - There is no flag large enough to cover the shame of killing innocent people. ~~Howard Zinn
+ - I have not yet begun to fight! ~~John Paul Jones
+ - Everybody knows that the dice are loaded, Everybody rolls with their fingers crossed, Everybody knows that the war is over, Everybody knows the good guys lost. ~~Leonard Cohen
+ - The best way to keep one's word is not to give it. ~~Napoleon
+ - There is no avoiding war; it can only be postponed to the advantage of others. ~~Niccolò Machiavelli
+ - War doesn’t determine who’s right, it determines who’s left. ~~Eddie Vedder
+ - Peace is more than just an absence of war. True peace is justice, true peace is freedom, and true peace dictates the recognition of human rights. ~~Ronald Reagan
+ - Only the dead have seen the end of war. ~~Plato
+ - The harder the conflict, the more glorious the triumph. ~~Thomas Paine
+ - A new consciousness is developing which sees the earth as a single organism and recognizes that an organism at war with itself is doomed. We are one planet. ~~Carl Sagan
+ - Historically, the most terrible things – war, genocide, and slavery – have resulted not from disobedience, but from obedience. ~~Howard Zinn
+ - Those who are at war with others are not at peace with themselves. ~~William Hazlitt
+ - War is what happens when language fails. ~~Margaret Atwood
+ - I hear the birds on the summer breeze, I drive fast I am alone in the night Been trying hard not to get into trouble, but I I’ve got a war in my mind So, I just ride. ~~Lana Del Rey
+ - To abolish war it is necessary to abolish patriotism, and to abolish patriotism it is necessary first to understand that it is an evil. Tell people that patriotism is bad and most will reply, ‘Yes, bad patriotism is bad, but mine is good patriotism.’ ~~Leo Tolstoy
+ - In all history there is no war which was not hatched by the governments, the governments alone, independent of the interests of the people, to whom war is always pernicious even when successful. ~~Leo Tolstoy
+ - Character is much easier kept than recovered. ~~Thomas Paine
+ - The worst evils which mankind has ever had to endure were inflicted by bad governments. ~~Ludwig von Mises
+ - He who wishes to be a surgeon should go to war. ~~Hippocrates
+ - No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. ~~Niccolò Machiavelli
+ - Our Generation has had no Great war, no Great Depression. Our war is spiritual. Our depression is our lives. ~~Chuck Palahniuk
+ - With men, the state of nature is not a state of peace, but war. ~~Immanuel Kant
+ - War is the only proper school of the surgeon. ~~Hippocrates
+
+40 quotes

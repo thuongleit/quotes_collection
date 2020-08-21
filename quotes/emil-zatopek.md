@@ -1,0 +1,25 @@
+ - If you want to run, run a mile. If you want to experience a different life, run a marathon.
+ - It’s at the borders of pain and suffering that the men are separated from the boys.
+ - Men, today we die a little.
+ - A runner must run with dreams in his heart.
+ - I was unable to walk for a whole week after that, so much did the race take out of me. But it was the most pleasant exhaustion I have ever known.
+ - Why should I practice running slow? I already know how to run slow. I want to learn to run fast.
+ - Great is the victory, but the friendship of all is greater.
+ - If one can stick to the training throughout the many long years, then will power is no longer a problem. It’s raining? That doesn’t matter. I am tired? That’s besides the point. It’s simply that I just have to.
+ - When a person trains once, nothing happens. When a person forces himself to do a thing a hundred or a thousand times, then he certainly has developed in more ways than physical. Is it raining? That doesn’t matter. Am I tired? That doesn’t matter either. Then willpower will be no problem.
+ - Try for a goal that’s reasonable, then gradually raise it.
+ - An athlete cannot run with money in his pockets. He must run with hope in his heart and dreams in his head.
+ - I was not talented enough to run and smile at the same time.
+ - Is it raining? That doesn’t matter. Am I tired? That doesn’t matter, either. Then willpower will be no problem.
+ - There is a great advantage in training under unfavorable conditions. It is better to train under bad conditions, for the difference is then a tremendous relief in a race.
+ - If you come to think of it, you never see deer, dogs and rabbits worrying about their menus and yet they run much faster than humans.
+ - My running was very simple; it was out of myself.
+ - You can’t climb up to the second floor without a ladder. When you set your aim too high and don’t fulfill it, then your enthusiasm turns to bitterness. Try for a goal that’s reasonable, and then gradually raise it.
+ - If I can get better, why not?
+ - By a persistent effort of will it is possible to change the whole body. The athlete must always keep in mind this concept of change and progression. He must never accept his limitations as being permanent, because they are not.
+ - To boast of a performance which I cannot beat is merely stupid vanity. And if I can beat it that means there is nothing special about it. What has passed is already finished with. What I find more interesting is what is still to come.
+ - It is not necessary to smile and make a wonderful impression on the judges.
+ - The athlete of today is not an athlete alone. He’s the center of a team – doctors, scientists, coaches, agents and so on.
+ - Sri Chinmoy brings Heaven to me. He inspires everyone to be happy. He deserves the biggest gold medal.
+
+23 quotes

@@ -1,0 +1,26 @@
+ - How to be happy: Ignore people who think they know more about you than you do.
+ - I used to work in a hospital, in a laboratory doing phlebotomy. I was a vampire.
+ - The bonds of love are what connect us to the other side.
+ - One does not deceive oneself about the consequences of one’s acts; one deceives oneself about the ease with which one can live with those consequences.
+ - My uncle died in 1987. I unfortunately – I saw it happen before it happened, which was really, really hard because I was 16 years old and I thought, like, Well, I’m seeing this. I’m supposed to stop this. And I couldn’t.
+ - My preparation is always mediation and deep breathing. And the rubbing of my hands together just gets my energy going.
+ - Even more precious is his Edward writes, I’m always saying that it is not the spirits who are getting it wrong; it’s more likely that I am misinterpreting their messages.
+ - Keep a journal, and learn how to see how you as an individuals sees information so you can learn your own sign language. Meditate and practice psychic self defense and surrounding yourself with prayer.
+ - The process of receiving information for me is seeing, hearing, and feeling their energy in my frame of reference. That doesn’t mean I see the individual, unfortunately.
+ - I think that the majority of messages are validating messages to confirm the survival of conscious. And many times that validation message is negative or sad.
+ - In my experience victims are more concerned with helping their families understand that they are still connected to them. In some rare experiences information comes through that helps understand what happened.
+ - My process of preparing for any type of psychic work is to meditate and pray the rosary.
+ - Information comes through to me in 3 basic ways seen, hearing, and feeling the energy of the person that’s crossed over. In which it is a symbolic type of language.
+ - My view of the afterlife is that it’s made of different levels, depending on how spiritual a life we live.
+ - I went to see ‘Listen to My Heart: The Songs of David Friedman.’ I have been a fan of his music for years, and I was invited to opening night because I know one of the producers.
+ - When you take the U out of mourning, it’s a brand new day!
+ - I believe it is wrong, in a country of such wealth and prosperity, to have 36 million Americans living in poverty.
+ - Altho that is so, Ireland has always denied and Ireland still denies that the Union was binding upon her either legally or morally. And here on this historic occasion we have assembled to renew our protest and to place it upon record.
+ - But will this attention to poverty be sustained or transient? That depends on our leaders – whether we step up and sustain our moral commitment as the country’s conscience would naturally want us to do.
+ - I don’t look at this as a religious based thing. To me this is energy based.
+ - People are people, and they want to know about their own experiences.
+ - While we fight poverty in the Gulf, we also have to fight poverty across America. We should begin by returning to a promise once kept and now broken: If you work full-time, you shouldn’t have to raise your children in poverty.
+ - Please do not put earthly expectations on a heavenly experience.
+ - I believe that before anybody makes the journey to the other side, we have to know on a soul level that we are leaving, whether it’s an accident or illness, and we prepare ourselves to a certain degree that we won’t be there in the future.
+
+24 quotes

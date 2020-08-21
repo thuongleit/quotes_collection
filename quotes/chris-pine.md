@@ -1,0 +1,59 @@
+ - The only thing you sometimes have control over is perspective. You don’t have control over your situation. But you have a choice about how you view it.
+ - The customer is not always right.
+ - Ignore the naysayers. Really the only option is, head down and focus on the job.
+ - It’s not always the case that things will fall into your lap or that life will be great, but it’s all about perspective and having a positive outlook. If something goes wrong you say: “That happened for a reason, what can I learn from that and how can I grow?”
+ - I believe in luck and fate and I believe in karma, that the energy you put out in the world comes back to meet you.
+ - I think that when you let go and “throw it all away” and stop getting attached and say “whatever happens, happens”, you don’t invest too much in anything particular, and things work out.
+ - My nipples could cut glass.
+ - One thing that I do find really sexy is a girl who’s good at crossword puzzles.
+ - I do like dating cynics – they tend to be incredibly funny.
+ - I was a shy kid, a late bloomer. At 22, I was probably 16 emotionally.
+ - It opens Wednesday or Friday.
+ - Women think that men don’t talk about their feelings with guys. We do talk to friends about relationships, but it’s succinct – 10 minutes, then we move on.
+ - I definitely have a spiritual outlook. I don’t usually read self-help books, but I read a great book by a guy called Wayne Dyer, The Power of Intention, which I loved. I’m not a religious guy, in fact I’m probably agnostic but I thought what this writer had to say was really powerful.
+ - When you want something enough, it brings out primal emotions. You get into this place of ‘must happen, must happen.’
+ - As an actor it’s easy to be so self-critical, saying to yourself: “Am I good enough? Am I good looking enough? Am I smart enough?” Yet here I am, so I’m lucky.
+ - Whether you’re scared of getting into a relationship; or taking the new job; or a confrontation – you have to size fear up.
+ - After many years of self-flagellation, I’ve realised that beating myself up doesn’t get me anywhere.
+ - My touchstone is just fear and anxiety and I know a lot about those two awful emotions.
+ - I had horrible acne when I was a kid. I felt like a complete and utter ne’er do well and someone who didn’t fit in and wasn’t handsome. So, I understand implicitly, and with a great amount of empathy, a man or human being that feels that way.
+ - I’m more cerebral than I want to be.
+ - Dating someone on the opposite end of the happy spectrum teaches you an incredible amount of patience.
+ - I’m so envious of that genetic wiring that immediately puts a smile on your face. My genetic wiring just puts creases in my eyebrows.
+ - I don’t know any kid that’s not afraid at some point going to bed with the lights off, totally. That’s why they make nightlights.
+ - I think the most dangerous word in the English language is ‘should.’ ‘I should have done this.’ Or ‘I should do that.’ ‘Should’ implies responsibility. It connotes demand. Which is just not the case. Life ebbs and flows.
+ - Not a fan of spiders. I saw the movie ‘Arachnophobia,’ which was single-handedly rated in the top three worst choices of my life.
+ - We tell each other stories so we can understand the world better and there’s catharsis and we understand the models of what a hero could be and what the hero’s journey as a human being is all about. But unfortunately, I think sometimes those stories too can be very prohibitive and confining.
+ - Fear runs our lives a lot of the time. You can face it head-on, or you can hide in your bunker.
+ - Theater will always be a huge part of my life. The high I get from doing theater is not, quite honestly, matched by many things. I like the fact that when you step out on the stage, for that given night, for better or for worse, you are the master of the boards. I love it to death.
+ - Theatre is so much fun because you do theatre and you have a month of working it out on your own, and then a month of rehearsal, so by the time you get to stage I know where I’m failing and I know where I’m succeeding and your boundaries are pretty concrete.
+ - Even now, I’m better around people who are uncomfortable with themselves, the misfits.
+ - My fans have designated themselves the, uh, ‘Pine Nuts.’ They’re a nutty bunch.
+ - I had a job at this French restaurant, and I hated it. I don’t like serving; I don’t like getting people ketchup.
+ - My nana was an actress, my mom was an actress, and my sister, too. So because I was surrounded by it, it really came naturally.
+ - The more you are positive and say, I want to have a good life, the more you build that reality for yourself by creating the life that you want.
+ - Ever since I saw sexy Beast I’ve been trying to get the cockney thing down.
+ - Work takes up a lot of my brain space. So when I work, it’s one thing. I don’t have a lot of time to think about dating.
+ - Anybody who’s gone through puberty has understood what it feels like to be an outcast and alone.
+ - I love the stories that have come before, that we know of. I think for me it’s always more interesting to start from square one and you take the fundamental pillars of the character and, around that, try to create something new and different.
+ - I think the first thing that I saw on IMAX was ‘The Avengers.’ The scope and the size of it are pretty neat, I will say that.
+ - For me growing up, Christmas time was always the most fantastic, exciting time of year, and you’d stay up until three in the morning. You’d hear the parents wrapping in the other room but you knew that also, maybe, they were in collusion with Santa Claus.
+ - When I was 18 I was an emotional wreck and I couldn’t imagine having to deal with some kind of fame.
+ - It’s the fear of not being as good as you want to be. If you give over to that fear, it will sabotage you. As much as I can, I try to use that fear to guide me.
+ - I performed and sang at school but as a child it was never anything I was interested in doing professionally.
+ - I find it really hard to even read another script while shooting.
+ - My brain’s not sharp enough to come up with a witty comment.
+ - Generally speaking, the more money that’s involved in anything, the more people are expecting and hoping that it’s not going to fail.
+ - I don’t actually drive trains. I’m an actor.
+ - The great thing about theater is that you have so much time to prepare, and to fail, before presenting it to the public. In film, the high-wire act seems to be that much farther up, and the net seems to be less there.
+ - I don’t need to worry about that, that’s always there on a slow simmer. The muscle I have to work on is being more present.
+ - With film, oftentimes you work in a vacuum and then you get on a high wire and then you try it and then the day’s over and that piece of film exists somewhere in a vault for 1000,000 years and that’s it.
+ - I think it’s not fair to the uniqueness and wonderfulness of the individuals, that we can complement one another greatly, but we are not the source of each other’s happiness, especially if you don’t know who the hell you’re talking to.
+ - No matter how bad the individual, everybody has reasons for why they do what they do.
+ - I work out because that’s my job, but what I enjoy about it, beyond the vanity, is the Zen of it. I like getting out of my head, and one great way to do that is to sweat your face off. And to know that, if you’re thinking of anything else, you’re not working intensely enough.
+ - I think it’s a very healthy thing to learn from what’s happened in the past. But only if you look at what happened and think, ‘How could I have dealt with that differently?’ Then let it go.
+ - I talk to myself, especially in the car.
+ - I still have anonymity, which is great. I can go out anywhere I want and no one ever recognizes me.
+ - My grandmother was an actress too. In the thirties and forties she was under contract with Universal Studios. Crazy credits, lots of them. My dad was also under contract with Universal Studios. And my first film was shot on the same stage they both worked on at Universal.
+
+57 quotes

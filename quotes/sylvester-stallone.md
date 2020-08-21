@@ -1,0 +1,260 @@
+ - You, me, or nobody is gonna hit as hard as life. But it ain’t about how hard you hit. It’s about how hard you can get hit and keep moving forward.
+ - Every champion was once a contender that refused to give up.
+ - Going that one more round when you don’t think you can – that’s what makes all the difference in your life.
+ - I am not the richest, smartest or most talented person in the world, but I succeed because I keep going and going and going.
+ - When you're scared, when you're hanging on, when life is hurting you, then you're going to see what you're really made of.
+ - Every time I've failed, people had me out for the count, but I always come back.
+ - I believe any success in life is made by going into an area with a blind and furious optimism.
+ - Now, if you know what you’re worth, then go out and get what you’re worth. But you gotta be willing to take the hits, and not pointing fingers saying you ain’t where you wanna be because of him, or her, or anybody. Cowards do that and that ain’t you. You’re better than that!
+ - I take rejection as someone blowing a bugle in my ear to wake me up and get going, rather than retreat.
+ - Success is usually the culmination of controlling failures.
+ - There’s a natural law of karma that vindictive people, who go out of their way to hurt others, will end up broke and alone.
+ - I learned the real meaning of love. Love is absolute loyalty. People fade, looks fade, but loyalty never fades. You can depend so much on certain people, you can set your watch by them. And that's love, even if it doesn't seem very exciting.
+ - Don’t discuss your dreams. Pursue them!
+ - Now if you know what you’re worth. Then go out and get what you’re worth.
+ - When I was in junior high school, the teacher voted me the student most likely to end up in the electric chair.
+ - The world meets nobody halfway. When you want something, you gotta take it.
+ - Dreams cost nothing. They are free. The hard part is just keeping them going.
+ - Every rep I did on chin-ups, on squats with 500 pounds, I never said, to myself, ‘Oh, my God, another rep.’ I said, ‘Yes, another rep, because that will make my dream turn into a reality.’
+ - Ya gotta do what ya gotta do.
+ - Plan B. You’ve always got to have a Plan B.
+ - I’d rather do something I love badly than to feel bad about not doing something I love.
+ - The older I get the more things I gotta leave behind.
+ - Nothing is real if you don’t believe in who you are!
+ - Love is absolute loyalty. People fade, looks fade, but the loyalty never fades.
+ - Don’t be gullible, use life before it uses you. Understand there are no free lunches, and for every action you take, there’s a reaction.
+ - You have to be really loyal to the people that supported you when you were coming up.
+ - I think there comes a time when you realize that you need God in your life, God’s Word, and the spiritual guidance that only He can give.
+ - Life is more than sunglasses and hit movies. Reality – that’s the main event.
+ - The church is the gym of the soul.
+ - You have to grab life by the throat and squeeze before it grabs you by your neck and breaks it. Own your destiny.
+ - When you’re pushed killing is as easy as breathing.
+ - When life hits you pretty hard, you can go into a dark corner.
+ - The character of Rocky was built on the idea that he was chosen to do something. That’s why the first image in Rocky is the picture of Christ.
+ - Gangster is the truest friend I can ever ask for.
+ - I’m not right wing, I’m not left wing. I love my country.
+ - Clothing is the first step to building a character.
+ - If I’d succeeded right away at acting I wouldn’t have sought out writing.
+ - Once in one’s life, for one mortal moment, one must make a grab for immortality; if not, one has not lived.
+ - Every morning, I crawl out of bed. I sit there and think, ‘Do I really need this?’ And I drag myself to the gym in my garage. It’s not fun. I hate it. I work out alone. Weights.
+ - Study people’s success stories hard. Study their failures even harder.
+ - I thought I had reached a point in life where everything would be smooth. But it is not. It just gets more jagged and pitted and filled with turns that take you into the dark recesses of your mind. It never seems to get easy.
+ - If you think people are inherently good, you get rid of the police for 24 hours – see what happens.
+ - When boxers are in the ring, they’re simple. It’s when the fight is over, that’s when the other fight, the real fight, begins. That’s the problem.
+ - You’re a disease. And I’m the cure.
+ - I’m usually taken for a non-intellectual, a person of limited intelligence. I don’t know why, but I figure it’s because physically I don’t look intelligent.
+ - In the movies, I kill guys with an axe. In real life, I can’t control a nine-year-old girl.
+ - Movies are the work of a collective conscious. It takes 500-800 people on a movie to complete a vision.
+ - Through failure, I found different ways to reverse my problems and get into the mainstream of Hollywood.
+ - Back there I could fly a gunship, I could drive a tank, I was in charge of million dollar equipment, back here I can’t even hold a job PARKING CARS!
+ - If bad decorating was a hanging offense, there’d be bodies hanging from every tree!
+ - To me, the most perfect screenplay ever written will be one word, when you finally reduce it down to that. Until then, writing will be an imperfect form of communication.
+ - When crossing someone’s borders you have to be prepared to engage in a war that is far more brutal than if it were to take place on neutral territory.
+ - You can actually alter a person’s perception when they’re that young. I mean, it can affect them in a very positive way.
+ - I feel that America is like a child that grew up so strong and so fast and so tall that it became self-conscious about its size and started to stoop over so as not to offend anyone.
+ - I have all kinds of chest injuries; I tore my vein during ‘Rocky II’ and had 60 stitches. If you’ve seen ‘Rocky Balboa,’ you’ll know how bad they look.
+ - I thought marriage was tough. Golf’s like going over Niagara Falls in a barrel! It’s a psychological game that gets into your blood.
+ - I have great expectations for the future, because the past was highly overrated.
+ - The phenomenal thing that happened to me is that I was able to create two memorable men: one is the ultimate optimist, Rocky, and then you have Rambo, the ultimate pessimist. You’re going to always be remembered for them, no matter what you do.
+ - When I was a kid, my mother used to feed me mashed-potato sandwiches, brussel sprout sandwiches; my brain cells were starving from lack of food. I’ll eat anything. I’ll eat dirt.
+ - When you are young, you often think that the world spins around you. You think you can do anything, can take the world on your shoulders.
+ - The trouble with remakes is that people fall in love with the original. It’s like peanut butter. If you try to change the taste of peanut butter, you’re in trouble.
+ - Rocky would definitely run for councilman. Maybe mayor. But these people are actually most effective in the family unit. That’s where they shine.
+ - In Philadelphia, there’s no delineation, they address me as Rocky, for real. They’ll say things like: “Rocky, do you like this coat?” Or: “Rock, say hi to my sister.” Or: “Yo Rock, I know a great restaurant.” There’s no Sylvester. Even the Mayor goes: “It’s good to have Rocky here today.”
+ - I abused my body so much throughout my career that I am literally held together by glue. The stuff I took thickens the bones and reinforces the tendons.
+ - Sometimes I write with music on, and if I’m in a good flow, I don’t even hear it.
+ - The men in Vietnam weren’t allowed to fight the war with any kind of concern to win by the government. It was like a war of attrition.
+ - I’m a patriot of the heart.
+ - I was an ambitious child and I tended to be scatterbrained. If I was at school and saw a bird outside the window I wanted to follow it. I was adventurous.
+ - In fact, every day I’ll read a chapter of some art book. I don’t know why. It’s just a habit.
+ - Training and working in Philadelphia is a very unusual situation because that city does believe that Rocky is real. No one calls me Sylvester, it’s Rocky.
+ - I love art more than anything in the world except for my family.
+ - For ‘Rocky II,’ I got a torn pectoral muscle, I got all beat up inside, I had to have an operation to splice things back together.
+ - You know you’ve been around when they start to remake your own movies when you’re still alive.
+ - My favorite snack would have to be Fritos, no doubt about it. Fritos and mayonnaise. I know. Really healthy, isn’t it?
+ - Nothing’s harder than writing. There’s no comparison. With directing, you can bounce a lot of ideas around. There’s tremendous support – you’ve got editors and sound mixers. With writing, it’s all you, and it’s just crippling when people tear up your pages.
+ - When I’m doing a movie, I eat the same thing every day. For lunch, it’s tuna salad or chicken salad and cole slaw. That’s it. For dinner it’s either veal and rice, fish and rice or steak and rice. It gets boring; boy, does it get boring.
+ - I guess the best thing I do of all is ride. Horsemanship, I have a natural flair for it.
+ - I have two lovely sons and some good memories, but I’ve had a rather tumultuous personal life. It hasn’t been dull; I’ve been the Hiroshima of love.
+ - To know that the odds are so high that only through the perishing of your life will the minions survive, that’s love. That’s heroism.
+ - Voices are like fingerprints, from Cagney to Bogart. They never lost it. My voice is instrumental in categorizing me.
+ - Action film is really easy to do, you just get in a car and smash through things and it’s called action. The real key is what happens between the action when it’s quiet. Loud is easy. Quiet, real hard.
+ - I really have very little aspirations about acting because I think that probably the best things have come and gone. I would like to focus on writing and directing. I love writing and directing even though writing can be incredibly painful and lonely. I get great satisfaction from doing it.
+ - I just fight in my movies, never in real life.
+ - Action is always seen as the bottom rung of thespian endeavour, that’s just the way it is.
+ - I was on cruise control from ’85 to ’95, and it was my fault. There were a lot of self-inflicted wounds, when I was not doing any original material. I wasn’t directing. I wasn’t writing. That’s not who I am.
+ - I think that’s become passe, but if you can surround yourself with a kind of monument to yourself and your family – a statement – and you can afford it, then that’s a noble project.
+ - Certain characters, mostly heroes, have to be the straight silent type; that is part of the make-up.
+ - I’ve always boxed a certain way. But with Rocky, the character himself had to be kind of awkward. So I had to learn to fight that way.
+ - Until America, door to door, takes every handgun, this is what you’re gonna have. It’s pathetic. It really is pathetic. It’s sad. We’re living in the Dark Ages over there.
+ - I think there’s a kind of built-in arrogance to anyone who considers themself an artist. They want to feel as though like they can run the whole spectrum. “I can do it all. I can do minimalism, and I can do classical art.” Well, that’s not true.
+ - To be really artful, though, you have to be subjective and so singular.
+ - I would never run for president.
+ - Movies are a whole different ball-game, now. It’s much more of a business – very scientific.
+ - I do believe that American should deal from strength.
+ - There aren’t a lot of opportunities for that rite of passage that makes you a man. War is one of them, and violent sports are another.
+ - Often people going into directing want to learn as much as they possibly can about “technique.” And I say the hell with that.
+ - People asked if I could have played the Terminator. Are you kidding? Not a chance, I never could have played the Terminator.
+ - There’ll never be a ‘Rocky IV.’ You gotta call a halt.
+ - I want to turn my attention to movies about love relationships. Exploring the female psyche – there ought to be some interesting discoveries there. Love stories. If you do it right, people want to hear romantic dialog.
+ - I think I came along at an opportune time. I don’t know if that would happen anymore, because the whole way of doing business in Hollywood has changed.
+ - I’m always looking for a new challenge. There are a lot of mountains to climb out there. When I run out of mountains, I’ll build a new one.
+ - When you find the right components in your life, the right people, that gel with you, then you feel as though you’re invincible. It may be a fallacy, but you at least feel as though you can take all that life has to dish out.
+ - If you don’t have a mountain, build one and then climb it. And after you climb it, build another one; otherwise you start to flatline in your life.
+ - If you look back at life, I bet you will regret about 80% of your actions. But life consists of all mistakes.
+ - You are what you leave behind.
+ - I really am a manifestation of my own fantasy.
+ - Usually whenever you’re scared of something, do it. If you’re not afraid of it, don’t do it.
+ - I have a lack of fear, whereas in the past the fear of failure was a powerful motivator. Anyway, I have great expectations for the future, but I just don’t know if I’m the monarch of all I survey.
+ - I’m perceived to be this solitary character, but nothing could be further from the truth.
+ - A lot of actors, and artists in general, never feel secure in love. They always feel everything’s going to be taken away from them, professionally and personally; they’re extremely emotional and volatile.
+ - At the very end, the one person who Rambo should kill, he doesn’t kill. He lets it live. Because you can’t kill that kind of hypocritical bureaucracy. It goes on forever.
+ - I think kids growing up, if they were picked on and feeling inferior at 12, they’re going to feel that way at 72. You just deal with it better. I’m serious.
+ - Playing polo is like trying to play golf during an earthquake.
+ - The man who can best gets along with women, is the man who can get along without them.
+ - A lot of guys have muscles. A lot of strong men in this world. I think it’s important to show that even under all this strength there’s a fragile side, a side that can be affected.
+ - Time is truly the great enemy. It’s not the great healer, it’s the great stealer.
+ - Sometimes when I don’t want to cry, I cry. And when I want to I can’t. It’s subconscious. Like sexual performance.
+ - The problem is, your ego sometimes tells you that you can do many things. But sometimes it’s best to stay focused and be honest with yourself.
+ - I just want to say that, all you do, no matter how bad your diet is, for the first six months or year, I just reduce the amount, even if it’s horrible stuff. That you can deal with it.
+ - I’ve kind of fashioned my life after a Slinky. Bend me in a million shapes, and eventually I’ll spring back to what I originally was.
+ - Some people maybe try to justify their laziness. You take out what you put in and the more I go to church and the more I turn myself over to the process of believing in Jesus, and to listening to his word and have him guide my hand I feel the pressure’s off me.
+ - I was an insecure kid. Once I saw ‘Hercules’ with Steve Reeves, it completely changed my life. If I had never gone to that film, I wouldn’t be here today.
+ - I know I’m incredibly unpredictable, and that’s the only thing I’m sure of.
+ - I’ve always said that the artist dies twice. And the first death is the hardest which is the career death, the creative death. The physical death is an inevitability.
+ - I respect a woman too much to marry her.
+ - I’m not handsome in the classical sense. The eyes droop, the mouth is crooked, the teeth aren’t straight, the voice sounds like a Mafioso pallbearer, but somehow it all works.
+ - Real love is when you become selfless and you are more concerned about your mate’s or children’s egos than your own. You’re now a giver instead of a taker.
+ - The only happy artist is a dead artist, because only then you can’t change. After I die, I’ll probably come back as a paintbrush.
+ - You’ve got to show your soul otherwise you’re just a piece of equipment.
+ - Your spiritual sense will make you either a winner or a loser.
+ - Rambo isn’t violent. I see Rambo as a philanthropist.
+ - I realized, the older I get, the more difficult life becomes. It’s not easier, it’s more difficult.
+ - Boxing is a great way to vent. I don’t know if there is a better way, I think for women too. There is something so primal about it and it’s the best exercise in the world, even if you don’t ever get in the ring.
+ - When people meet me, they’re often surprised – I talk a great deal.
+ - That’s what Rocky is all about: pride, reputation, and not being another bum in the neighborhood.
+ - Polo is like tennis – you literally have to live it.
+ - You cannot train yourself. I feel the same way about Christianity and about what the church is: The church is the gym of the soul.
+ - I have a fear of heights that borders on mania.
+ - It would be great to be able to pass on to someone all of the successes, the failures, and the knowledge that one has had. To help someone, avoid all the fire, pain and anxiety would be wonderful.
+ - I tend to think of action movies as exuberant morality plays in which good triumphs over evil.
+ - I wish my daughters would box. I’m so worried about the guys coming up to them. I would love them to be able to smack a guy right off a bar stool.
+ - I tell people diets don’t work. And I don’t care what they say. I have tried them all.
+ - I wanted to show I had balls at age 60.
+ - My life has always been chaotic. From the time I got dressed in the back of a deflated, flat-tired, fish-smelling station wagon for Rocky. It’s always been do it yourself, kind of like paper-clip it together.
+ - Crunches are much more effective than regular sit-ups because they specifically target your upper abdominal muscles rather than your hip muscles. If you’re not used to them, they can cause soreness a day or two later, but it’s a ‘cool’ soreness. A badge of honor.
+ - I could start a war in 30 seconds. But some countries spend 100 years trying to find peace. Just like good manners, peace has to be learned.
+ - When you’re on top and you lead the parade, everyone’s there throwing lilies and lilac water on your head. But when those parades have gone by and there’s a storm in your heart, there are very few people that are going to sit there and listen to you bemoan life.
+ - I’ve been involved in something which was chaotic and insane. All I can say now is that I am, and intend to stay, a single man.
+ - With writing, I think you have to be honest with yourself. I have a certain kind of writing; that is, I like to really embellish the human spirit. You have to write about something you have a feel for.
+ - And if I look at my icebox, there’s no way I’m sitting there looking like Gandhi. I mean, I don’t have crickets in there and little green rice. No, I mean it’s a pretty liberal icebox. It’s all in there.
+ - I was very much into buying contemporary art, but I’ve just decided I want to get rid of it all. Not that it’s not great art, but all of a sudden my mood has changed, and I want to go back to seventeenth- and eighteenth-century masters.
+ - I’ve done my “mind over matter” movies, and I think probably that people aren’t really interested in seeing me do that anymore. I think I’m kind of past my prime to do dramatic films. I think it’d become kind of like almost a pathetic cry out to be recognized as a serious drama actor.
+ - That’s the hardest thing about doing sequels – you’ve lost the element of surprise.
+ - Early on everyone should do, every time they do a big film, they should do a little film. It really does keep you grounded.
+ - Like I said, I’ve got too much respect for women to marry them, but that doesn’t mean you can’t support them emotionally and financially.
+ - What I’m trying to do now in my life – not just with the building, but with everything – is to construct things that will have enduring qualities, and won’t just be ephemeral flashes in the pan.
+ - I used to tweet, but it’s an act of futility. You’re not really making any impact, and if you find yourself in a mood when you wanna be a bit controversial and you post something, you suddenly realise, ‘Oh my God!’ because you’ve opened yourself up to a bunch of criticism from strangers.
+ - I try to tell people that just because you’re buff and cut doesn’t mean you’re healthy.
+ - When you’re an actor, you’re a slave to other people’s visions.
+ - I’m not just painting for painting’s sake. I want to be truthful.
+ - If you express yourself too much, you’re considered weak.
+ - The body needs to rest. It needs a lot less exercise than you think.
+ - I’m not a genetically superior person. I built my body.
+ - When I saw ‘Hercules,’ my mind just exploded because I was extremely thin; I was insecure. I literally ran out of the theatre and started lifting things, anything I could think of – milk crates. I’m still lifting things. It changed my life.
+ - A lot of women read male magazines. Of course, a lot of guys read female magazines, but they’ve got another issue to deal with. But a lot of women read men’s magazines and think, ‘Oh, this is what these guys are thinking? Studying up on the enemy here.’
+ - Rocky is a very predictable movie. The ending is a foregone conclusion.
+ - All young men want to prove themselves.
+ - Age is a state of old mind. It gets to a point where if you get old enough, you forget how old you are, and that’s the best thing. And then you walk around kind of like in a fog.
+ - I’d live in a museum if I could. I used to spend hours and hours in the Museum of Modern Art.
+ - There are endless exercises for arms, but the basics are best-chinups and pushups.
+ - There is an age-old proverb that really does hold true in every area of life – in relations between nations and right down to the most subtle and sophisticated or must unstable and unsophisticated relations between lovers – and it is this: they took “kindness” for “weakness.”
+ - Painting is as close as a person can get to actually capturing the heat of the moment.
+ - When I tried to branch out into comedy, I didn’t do very well at it, so I went back to doing what I do naturally well, or what the audience expects from me – action pictures.
+ - Boxing is the only sport where you have the audience coming right up to you and saying, “You Stink.” And you got to deal with that. It’s like being in front of the lions.
+ - Good action films – not crap, but good action films – are really morality plays. They deal in modern, mythic culture.
+ - Children are the first thing I see in the morning and the last thing I see at night. It hurts me to be away from them for a few hours. It really does. I love them and they’re girls, so they know how to push my buttons. But I’ve learned a lot and I have to thank my wife for that.
+ - We do two things in life: We race the clock and everything is a struggle. One way or not, it’s a metaphorical battle all of the time.
+ - There’s no one in the world close to Arnold Schwarzenegger. He is a phenomenon. He’s brilliant. Just because his physique belies that, don’t underestimate him.
+ - Today’s action hero, his skills are through technology. He can fly, he can throw a bolt of lightning, he can freeze people.
+ - Lighting can bring out certain contours in the body, in the face, in the eyes, that otherwise flat lighting couldn’t.
+ - I don’t fall into the physical manifestation of a man of letters. So I guess people assume the scripts are delivered to me under the door.
+ - I’m a big believer that, in life, we can’t succeed in everything. Most times, we lose.
+ - Most of the films I myself like don’t do very well. Every director, he has a choice, whether to go for subtlety and try to articulate every minute detail, or to go for the broad strokes and hope that the people will fill in between the lines. I tend to go for the broader strokes.
+ - When I tried to play characters that strayed from who I am it ended in disaster. People didn’t expect me in comedies or musicals.
+ - I’m astounded by people who take eighteen years to write something. That’s how long it took that guy to write Madame Bovary, and was that ever on the best-seller list?
+ - I believe an artist dies twice. The first time, it’s just terrible – I’ve been there when the phone isn’t ringing for years.
+ - I wish I had thought of Velcro muscles myself. I didn’t have to go to the gym for all those years, all the hours wedded to the iron game, as we call it.
+ - I think I’m a much better painter than an actor.
+ - Once I stopped trying to always do everything my way, and once I asked for God’s help, things have truly gone a different direction.
+ - I think everyone has questions in their mind. Did they do their very best?
+ - I think people of all occupations, whether it’s the camera – puller or the man who’s doing the catering, they can identify with Rambo’s frustrations, with the veteran’s frustrations.
+ - I’m the Hiroshima of love.
+ - A lot of time people are like, “oh my God, you’re stereotyped.” Good, then you’re known for something.
+ - I wanted to show I had balls at age 60. Just because society says I’m old, doesn’t mean that I am. I’m pursuing happiness, even if it makes the people around me unhappy.
+ - Characters I’ve played, they used to impact my paintings, like 80 percent of the time, and especially when I was doing an action film.
+ - I have tons of regrets, but I think that’s one of the reasons that push people to create things. Out of their angst, their regret, comes the best from artists, painters and writers.
+ - I’m more focused and have a greater sense of challenge, because I constantly feel the weight of time.
+ - On the sequel, you’ve lost the element of surprise. Usually, on the first one you may not go very, very deep into character; the second one you start to explore the character a bit more.
+ - Suddenly I’ve got an overwhelming desire to surround myself with the aura of classical and Romantic art.
+ - If you come into my house, I’m going to fight much more viciously to get you out than if we were on a neutral piece of land.
+ - The champion’s management says let’s do this for real, for charity. Rocky says no but decides to be true to himself even though he’s going to be berated by everyone. Just to compete, not to win.
+ - Boxing is sort of an inevitability. We know they are going to be pounding each other.
+ - A lot of guys don’t want to admit that they have a propensity for generosity and for violence.
+ - It’s great the way the old-time directors used to manipulate the hell out of you. You see someone dying and all of a sudden a ghost would come out and they go walking hand in hand up the stairway.
+ - I made some truly awful movies. ‘Stop! Or My Mom Will Shoot’ was the worst. If you ever want someone to confess to murder just make him or her sit through that film. They will confess to anything after 15 minutes.
+ - If you look at people that have survived crashing in the mountains and lived up in the snow for 40 days – it’s possible to do extraordinary feats.
+ - The one thing in my films, I only kill people who need to be killed, or killers killing killers. And I believe that the violence is very justifiable.
+ - Theater is like boxing – having the audience ringside. It’s instant gratification. Or horrification.
+ - Artists die twice. First creatively. Then physically. The second one is the easiest.
+ - Some actors are brilliant character guys. They submerge.
+ - In a contest between me and a bulldog, you would say the bulldog is cuter.
+ - If you’re gonna be a failure, at least be one at something you enjoy.
+ - I love being verbal in films.
+ - Eventually writing became more interesting to me than acting.
+ - I never started out to be an action actor. I was an ensemble actor.
+ - Racing’s very much like the world of acting. You have your front runners and you have guys that are there for the long race, and you have other guys that block for other people, that are called supporting and character actors. It’s all the same kind of situation.
+ - Whenever I don’t get injured, the film is a dud. I didn’t bleed on ‘Rhinestone.’ I didn’t bleed on ‘Stop! Or My Mom will Shoot.’
+ - The action movies changed radically when it became possible to Velcro your muscles on. It was the beginning of a new era. The visual took over. The special effects became more important than the single person. That was the beginning of the end.
+ - Every generation, including mine, has to find their own heroes.
+ - No one’s life is totally morbid. Even on a subtle scale there’s little flashes of enlightenment and of happiness and joy.
+ - It took me a long time to be convinced that marriage was right for me because I’ve come from a long line of broken marriages. My parents divorced, and I had two broken marriages myself.
+ - People assume that ‘The Expendables’ is old school, but it’s only old school because that’s the way I know how to make an action film. It’s pretty real.
+ - If you’re willing to take the humiliation of sticking your head above the crowd, maybe it’s, you know, the pleasure will be worth the pain.
+ - People think retiring is fun. Well, maybe, but if you have a certain kind of fire inside, there is no end in sight.
+ - You know what I think happened? After ‘Rocky,’ I was almost set up in the eyes of the media to make a flop.
+ - With a lot of comedians, one of their major attributes is that they look comedic, with a certain hangdog or manic expression. I look like the neighborhood bully. That doesn’t elicit laughter.
+ - I never quite understood these actors – though I envy them sometimes – who can lie out for a year or two. I feel as though time is a real pressing issue, and I want to get as much work done in the time that I have left.
+ - I consider myself something of a raconteur. I have a rather audacious sense of humour.
+ - I try to combine in my paintings cinematic feeling, emotional feeling, and sometimes actually writing on the page to combine all the different elements of communication.
+ - I think there’s something about being a neophyte that’s refreshing and hard to duplicate; it brings about real innovation. Innovation usually comes about through blind ignorance.
+ - I try to eliminate as much dialogue as possible, and I guess Rambo is my really best experiment with how to eliminate dialogue.
+ - I am a sensitive writer, actor and director. Talking business disgusts me. If you want to talk business, call my disgusting personal manager.
+ - Now it really is, believe it or not, 90% of the films are green lit, not by the studio heads, but by the marketing department.
+ - The way to be successful in Hollywood is to be as obnoxious as the next guy.
+ - People don’t realize that when they ‘throw out’ their back, it’s often because of weak abs. These muscles are essential for lower-back strength and good posture.
+ - I know I can’t play funny roles in movies. I tried, and it didn’t work.
+ - I think everyone has a certain kind of formula in their life. When you deviate from that formula, you’re going to fail big or you’re gonna win big.
+ - Making a movie is the same as an orchestra; it’s moving all the different instruments and the sounds, the kinetic and the auditory and the visual all together. I’m probably the trombone.
+ - Movies are a collective art. Art by proxy.
+ - For every guy, there is an opportunity to be a lot better than he thought he could be. We can’t all be the star of the team, but we can be a star in our life. That’s where you set your goal.
+ - Everyone has this conjecture that action films are somewhat less prestigious than dramatic films. Nothing could be further from the truth. I’ve done them both and this is hard and dangerous.
+ - When I’m on a location, I pick a restaurant that’s close and private and eat all my meals there.
+ - The biggest and most interesting crisis in the world is the human crisis, and it never gets boring. It goes back to Shakespeare. You don’t need a gimmick; it’s just man against man and their intolerance of each other.
+ - If it’s not broken, break it. That’s how new discoveries are made. That’s why everything that changes life is called a breakthrough.
+ - I’ve made a lot of career mistakes. A lot. Actually, a lot of personal ones, too.
+ - I think audiences have hit the wall with CGI and special effects. They have seen so many over-the-top events that they can’t suspend disbelief.
+ - I watch a lot of news, and I watch musical shows because I think the music of the young people is really their news reports. They let you know how their country is going through their eyes, and about their experiences in the everyday shock of growing up.
+ - If I’d made it right away as an actor, I would’ve stopped at a certain level and stayed there, probably as a character actor.
+ - Everybody has anger or regret in them one way or another. They all try different things to get it out. Some people go to psychiatrists. Some paint pictures. Some people talk it out.
+ - I believe there’s an inner power that makes winners or losers. And the winners are the ones who really listen to the truth of their hearts.
+ - At the end of the day, ‘Rocky’ is a love story, and he could never have reached the final bell without Adrian.
+ - Years ago I was diagnosed with a condition, and my doctors prescribed human growth hormone and testosterone for its treatment. Under medical supervision, I have continued to use both medications.
+ - I love being so tight on people in close-ups that the veins in their eyes look like the Mississippi River.
+ - Art is the ability to communicate through an intermediary and to convey one’s feelings through an isolated object. It’s inspiration and incubation. Putting my subjective feelings into an objective form and then on to you for a subjective interpretation.
+ - All good actors are unpredictable, and a little crazy in a good way, because they feel more secure playing other people than themselves.
+ - I’ve had a lot of operations. I’m kind of like Franken-actor.
+ - Testosterone to me is so important for a sense of well-being when you get older.
+ - When I was cognizant of the war, I was very angry at the street-corner liberals who were trying to defame the footsoldier. Because there was a man who had no choice. He was a cog in the wheel, just trying to survive. I was always aware of that.
+
+258 quotes

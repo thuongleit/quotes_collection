@@ -1,0 +1,43 @@
+ - Reality is hard. It is no walk in the park, this thing called life.
+ - My recovery from manic depression has been an evolution, not a sudden miracle.
+ - We have developed this unbelievable ability to deny. We have to. If we didn’t, we’d go crazy.
+ - When I’m 80 and sitting in a rocking chair listening to the Rolling Stones, there is absolutely no way I’m going to feel old or forget my younger days.
+ - Women who put on a few pounds after starting lithium sometimes say the cure is worse than the disease. The weight gain shoots them straight into depression.
+ - I’m living out a childhood fantasy. Our house is in a historic district of a small town that I used to read about in storybooks.
+ - I can’t tell you what I had for breakfast, but I can sing every single word of rock and roll.
+ - The mania started with insomnia and not eating and being driven, driven to find an apartment, driven to see everybody, driven to do New York, driven to never shut up.
+ - I tell people to monitor their self-pity. Self-pity is very unattractive.
+ - I knew from a very young age that there was something very wrong with me.
+ - It’s toughest to forgive ourselves. So it’s probably best to start with other people. It’s almost like peeling an onion. Layer by layer, forgiving others, you really do get to the point where you can forgive yourself.
+ - Human beings have speculated about the relationship between inspiration and insanity for centuries.
+ - I joke around a lot about the manic times because they’re funny. We manics do outrageous things and it is part of our colorful nature.
+ - I had been very close to Anne Bancroft when we worked together in The Miracle Worker.
+ - Actors take risks all the time. We put ourselves on the line. It is creative to be able to interpret someone’s words and breathe life into them.
+ - From the moment we walk out the door until we come back home our sensibilities are so assaulted by the world that we have to soak up as much love as we can get, simply to arm ourselves.
+ - I’ve come to believe that whoever I am didn’t start on December 14, 1946, and isn’t going to end on whatever that mysterious date is in the future.
+ - If I have any message for others, it is to go for help early and not to be a resistant patient.
+ - I never did quite fit the glamour mode. It is life with my husband and family that is my high now.
+ - No matter what your laundry list of requirements in choosing a mate, there has to be an element of good luck and good fortune and good timing.
+ - I have two books that were published quite some time ago. I start to read about three sentences. I have to close it. I am so self-conscious. Who did I think I was?
+ - I know that without treatment I would not have never been able to harness my creativity in such a successful way.
+ - I have been afraid all my life that I am going to die. All my life it has been stuffed in my imagination.
+ - All I will tell you is that I play a small role in someone’s happily ever after.
+ - We call that Sean’s little independent movie.
+ - I’m not sure I want all my neuroses cleared up.
+ - I kind of like the position of being the fair-haired savior of my mother.
+ - I can’t even remember how many times I tried to kill myself.
+ - You can have manic depression without having an ounce of creativity.
+ - The panic attacks – I still have them. They started when I was around 8. They always have to do with my death.
+ - I think my real depressions started when I was about 16 and doing The Patty Duke Show. I would go to bed at about 10 o’clock on a Friday night and not get up again until 6:30 Monday morning.
+ - The Eleanor Roosevelt Award that I received for women’s rights activities is one I treasure.
+ - When I don’t know what the music is going to be for a scene, I imagine some sort of orchestration going on and damned if they don’t usually come up with a similar kind of thing.
+ - I believe that all the important people in my life prior to 1982 were victimized by my illness.
+ - I have a picture of myself in my mind as I walk around every day, until I look in the mirror-and then I’m stunned.
+ - One of the things I’ve discovered in general about raising kids is that they really don’t give a damn if you walked five miles to school.
+ - I still have highs and lows, just like any other person. What’s missing is the lack of control over the super highs, which became destructive, and the super lows, which are immediately destructive.
+ - Sometimes it is the simplest, seemingly most inane, most practical stuff that matters the most to someone.
+ - I’m going to be 58, and I’m a woman. In this business, that seems to be a bigger crime than being mentally ill.
+ - The doctors must tell you that one of the risks of surgery is that you might die. This poor doctor was talking to an actress. It was very dramatic to me. To him, it was just a thing he had to say.
+ - I was just sort of moving through time.
+
+41 quotes

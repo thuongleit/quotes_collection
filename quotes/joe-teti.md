@@ -1,0 +1,99 @@
+ - My motto is to keep it simple stupid, work smart not hard.
+ - Dude, sometimes it works, sometimes it doesn’t.
+ - It’s alright if you lose a few battles, but as long as you win the war, that’s all that matters.
+ - Hiking up a hill is an ass kicker, going downhill is a little easier.
+ - I like the way you hustle man.
+ - It’s darker than a well diggers ass.
+ - If you ever heard that old saying, where there’s smoke there’s fire; well that’s a load of bull.
+ - It’s a game changer, not a game ender.
+ - Move with a purpose dude.
+ - Stay in the game and stay alive.
+ - You know what, I’ll suffer in silence.
+ - It’s beautiful, it’s poetry in motion.
+ - You have got to control your fear, get in control of your emotions.
+ - This is teamwork; this is what it’s all about.
+ - That’s a great golden nugget that’s going in my tactical toolbox.
+ - What do you say to a guy that says a tree’s sexy.
+ - Right now, in my mind, this is nothing but grip strength and focus.
+ - You don’t have to be a rocket science to know that if Joe Teti has a rifle, and a round to go with it. I’m going hunting.
+ - I’m gonna see how this works out, but I think it’s a bad idea.
+ - You’ve always got to have a plan B. You’ve got to be able to shift gears and find a new course of action.
+ - The faster you can signal for rescue, the faster you get out of that situation.
+ - Sometimes you have to take the harder course of action.
+ - Surviving a tough situation means staying in the fight and maintaining a warrior’s mindset.
+ - One thing you can never underestimate is the power of water.
+ - Apparently Matts been busier than a centipede at a toe counting contest.
+ - Getting lost in a place like this you can almost guarantee that you aren’t going to make it out here.
+ - You’ve got to think outside the box. If you can’t, that’s going to put you behind the power curve in a big way.
+ - Clear water is always suspect.
+ - Mother Nature is a relentless ruthless killer. She don’t give a damn if you get home to your family.
+ - If you’re rushing around like a chicken with its head cut off you’re probably going to get hurt.
+ - Shirts don’t grow on trees.
+ - In any survival situation, you need to weigh the risk and the reward.
+ - At the top of my list for terrain that I hate navigating through, it is definitely the mangrove.
+ - Now that this torch is lit, we do not have time to dilly dally around...
+ - Usually guys with your skill set like to eat bugs; I don’t get that dude.
+ - We cannibalized this bike as much as we could’ve.
+ - Everywhere you go, mother nature’s throwing some curve-ball at you.
+ - This suntan lotion acts as an accelerator and an extender, meaning that this fire will burn brighter and longer.
+ - You know this is a dicey situation anyway you look at it.
+ - After 20 years in special operations trust me, I know my body.
+ - We’ve got a lot to gain and nothing to lose.
+ - I see smoke, smoke means fire, fire means people, people means we get the hell out of here.
+ - Everyone knows the rules of three’s, you can survive three weeks without food, but not in this environment.
+ - I’m a combat diver, I’ve never done something like this.
+ - The same water that will kill you, drown you, give you hypothermia is the same water that will help you survive.
+ - It kind of sounds like the noise a goat would make if you punched it in the face.
+ - One long step there and you’re gonna die.
+ - Three fires is the international distress signal.
+ - Let’s go Matt; we aren’t strolling through Central Park here.
+ - We’ll stay warm tonight even if we have to sit by each other and snuggle.
+ - If you don’t have your game-face on, you’re going to go home either to a hospital or to a casket.
+ - If you fall from here, if you’re not dead you’re gonna wish you were.
+ - I don’t know about you, but rattlesnake sounds pretty damn good right now.
+ - It’s mistakes that get you killed.
+ - Yet again, Matt pulled another rabbit out of his hat and got a fire for us.
+ - Sandals are made out of rubber, and when lit on fire burn black.
+ - I’m not much of a beer drinker, you know what I drink? Peach wine coolers.
+ - All this is, is a nine hundred dollar hammer.
+ - The decided to go exploring, be Indiana Jones they don’t have a light they don’t have a map you’re a screwed with a capital S.
+ - Survival protocol says follow water out, and that’s exactly what we’re going to do.
+ - This place has a one, two knockout punch.
+ - It’s probably one of the worst places I’ve been...
+ - This is looking tasty.
+ - Altitude sickness is gonna put the screws on you.
+ - Putting us in risk is just plain stupid.
+ - The moon just crapped the bed.
+ - If I gave this guy more time, there would be a swimming pool and rattan furniture.
+ - Where I come from, the attitude to have is to not quit.
+ - I’m normally not at a loss of words but I am a little taken aback by what you’re wearing; it’s a little different.
+ - This is like being in the super bowl. It’s first down, you’re on the one yard line, You either make a touchdown or you’re hosed.
+ - I ran across a rattlesnake once in New Mexico, you know what I did with it, chopped its head off and we ate it.
+ - This is a way you can learn about someone through very stressful situations. That is when a person is either gonna shine or falter.
+ - What I envisioned to see was a group of guys drinking beer...
+ - The terrain is thinner, the vegetation is greener, that’s a good sign we’re getting close to the coast.
+ - I think every minute you’re in a situation like this, your clock is ticking.
+ - Looking good Matt, you look like a money.
+ - For us to get to those huts and no one’s home, it’s going to be a kick to the nuts.
+ - Most of my hunting experiences has been in tree stands. I’ve never called deer.
+ - This is the first time I’ve done something like this and I’m really hoping this will work.
+ - If you choose to get off the beaten path here, you’ll find yourself in a situation where everything looks the same.
+ - I know this guy is a musician so I hope he can play us a tune that could get us the hell out of here.
+ - That’s a huge part foul man; that’s just not cool.
+ - Dude that was bad ass.
+ - I’m very confident that if I get close to one of these pigs, i could put the smack down on it.
+ - I’m in the woods with Dr. Doolittle.
+ - So far he’s bringing his A-game.
+ - My whole philosophy in survival is to take down brush as soon as you get in a situation.
+ - That’s a bust your ass shot through and through.
+ - It drops down to a place I ain’t going.
+ - What you don’t want to do is dig around here like a groundhog on crack.
+ - I club the thing over the head and that’s the end of it.
+ - His first instinct was to help me, not sit like a deer in headlights, I now know that Matt isn’t one to panic.
+ - We can navigate by looking at ant mounds.
+ - I have to take off my hat to Matt, he’s trying crazy hard to get this fire started.
+ - Dude, that was a knuckle buster brother.
+ - Here’s the bottom line, we’re either going or not.
+ - It’s always good to give yourself the advantage.
+
+97 quotes

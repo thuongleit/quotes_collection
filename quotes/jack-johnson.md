@@ -1,0 +1,79 @@
+ - Don’t let your dreams be dreams.
+ - We’ve got everything we need right here, and everything we need is enough.
+ - Slow down, everyone. You’re moving too fast.
+ - Going far beyond that call of duty, doing more than others expect, this is what excellence is all about! And it comes from striving, maintaining the highest standards, looking after the smallest detail, and going the extra mile. Excellence means doing your very best. In everything! In every way.
+ - I can change the world with my own two hands.
+ - Plato’s cave is full of freaks.
+ - But you’re so busy changing the world Just one smile can change all of mine.
+ - You better hope you’re not alone.
+ - You and your heart shouldn’t feel so far apart.
+ - We’re all related. We’re all a family.
+ - I want to turn the whole thing upside down I’ll find the things they say just can’t be found I’ll share the love I find with everyone We’ll sing and dance to Mother Nature’s song I don’t want this feeling to go away.
+ - It’s always better when we’re together, somewhere in between together.
+ - Love is when you find that thing, when you want to give more than you want to take. When you find the things that you love the most and you want to give those away, that’s love. It’s when you want somebody to be happier than yourself, but then once you make them happy, it makes you happier.
+ - Most importantly fighters in my day knew the most important art in boxing – feinting.
+ - What about your mind, does it shine?
+ - Home is wherever we are if there’s love here too.
+ - Love is the answer At least for most of the questions in my heart Why are we here and where do we go And how come it’s so hard.
+ - We could park the van and walk to town, find cheapest bottle of wine that we could find. And talk about the road behind, how getting lost is not a waste of time.
+ - The wisdom’s in the trees not the glass windows.
+ - Our dreams are made of real things, like a shoebox full of photographs.
+ - Supporting local food production is so much healthier for people. It’s better for the local economy, and it’s a lot of fun.
+ - When you move like a jellyfish, rhythm is nothing. You go with the flow. You don’t stop.
+ - The possession of muscular strength and the courage to use it in contests with other men for physical supremacy does not necessarily imply a lack of appreciation for the finer and better things of life.
+ - Can’t you see that it’s just raining? There ain’t no need to go outside.
+ - Fact is only what you believe and fact and fiction work as a team.
+ - The horizon has been defeated by the pirates of the new age.
+ - Go to the east shore of any of the Hawaiian Islands, and that’s a pretty big lesson on how much plastic is ending up in the ocean. Basically, the Hawaiian Islands act as a filter out in the middle of the Pacific.
+ - Love is when you find that thing, when you want to give more than you want to take.
+ - Careful living and correct training methods aided me a great deal, but I would say straight punching was the foundation of all my success.
+ - Found my foundation it was underneath me all along. On this path I’m on I never walk alone.
+ - I eat cold eels and think distant thoughts.
+ - Every time I get a chance to be out in the ocean, it’s like hitting a reset button for me where I just feel alive again, in perfect balance. Music can give me that, as well, but not as easily. The ocean is the way I know how to find it almost daily.
+ - If I had eyes in the back of my head, I would have told you you looked good as I walked away.
+ - There were so many fewer questions when stars were still just the holes to heaven...
+ - People are lonely, and only animals with fancy shoes.
+ - Future complications in the strings between the cans. But no prints can come from fingers, if machines become our hands.
+ - Plexi, plexi, bend don’t shatter. Once you’re broken, shape won’t matter.
+ - She barely understands her dreams of belly button rings and other kind of things. Symbolic of change, but the thing that is strange, it that the changes occur, and now she’s just a part of the herd.
+ - I finish a lot of lyrics while I’m in the water and it’s always pretty constructive for me to get out in the water. I’m not actually writing the words down, but I have time to think about words, and doing a lot of surfing usually gives me a little space and peace of mind to finish things up.
+ - Sometimes, the simple messages are the best thing music can do, really. Sometimes, songs can stir people up, motivate them to make change.
+ - People don’t know anything about themselves because they’re all worried about everybody else.
+ - Lookin at herself, but wishing she was someone else because the body of the doll that don’t look like hers at all. So she straps it on, she sucks it in, she throws it up and gives a grin.
+ - We’ve all got the blood on our hands, we only receive what we demand.
+ - I think it’s really important with kids just to show them the beauty of nature and teach them a profound respect for nature.
+ - Sure, the killer was my son, but I didn’t teach him to pull the trigger of the gun. It’s the killer on this TV screen, you can’t blame me, it’s the images he sees.
+ - I made a lot of mistakes out of the ring, but I never made any in it.
+ - My friend told me later he got the chicken pox. I told him I caught politics and never got over it.
+ - I think there’s a really great amount of potential for Hawaii to become an example of what’s possible with renewable energy because there are so many renewable resources here: energy, solar energy, and wind energy. There’s so much potential here.
+ - He gets his courage from the can, it makes him feel like a man.
+ - I never took singing lessons. I guess, I feel comfortable with it, but I do not feel like a singer. I never want to sing without a guitar in my hand. I consider myself more of a songwriter, rather than a singer. I could never be in a wedding band and just sing Marvin Gaye songs.
+ - To be part of a community feels really good – to be among people who have similar feelings and want to share thoughts. It’s a nice feeling.
+ - The bitter attacks I faced were far worse than any fighter I ever faced in the ring. The caustic remarks, the threats to injure me, the shots at my character-fighting those were my toughest battle.
+ - I can go for a week without a guitar, but it’s not even funny if I don’t get to surf for a month.
+ - I can never tell what’s going to end up being on an album until it’s all finished. I’m reading the news everyday, and sometimes I just have to be away from it. And that ends up writing the songs for me a little bit.
+ - The words are all around but the words are only sounds and no one ever seems to listen.
+ - I won from Mr. Jeffries because I outclassed him in every department of the fighting game. Before I entered the ring I was certain I would be the victor. I never changed my mind at any time.
+ - Dreams are like commercials, but her dreams are picture perfect...
+ - All caught up in the trends, well the truth began to bend.
+ - When I vote for a candidate I always try to learn as much as I can about them, but I guess I focus a lot on environmental issues, and I tend to vote along those lines.
+ - When I do these interviews, I get really nervous. And when I get nervous, it comes off as mellow for some reason.
+ - Sometimes I’ll write a song. When I’ve gone through something really hard in my life, sometimes it’s other people’s music. Other times it’s actually writing the songs and getting out of mind and into the song.
+ - I think that if everybody changed and tried to make their music political, it’d be kind of a bummer.
+ - I get nervous when I fly; I’m used to walking with my feet.
+ - If it seems like you are playing around and not practicing, that’s when you know you really love it.
+ - A billion people died on the news tonight.
+ - You need aspiration if you want to really achieve greatness in this world.
+ - It might sound silly to some people, but if anybody wants to spend time to go out and glide on waves, it just feels like they have an appreciation for the joy of life and must be an okay person.
+ - It’s as simple as something that nobody knows.
+ - I would turn on the TV, but its so embarassing.
+ - Some fighter’s waist a lot of their energy. Wait for your opportunity and when it comes, avail yourself of it. The idea of boring in and throwing punches helter skelter without reason doesn’t amount to a row of pins. Every time you miss a swing it is worse than being hit.
+ - I love playing my music and I love sharing the music with people. But at the same time, it is pretty taxing.
+ - I have dashed across continents and oceans as a fugitive and have matched my wits with the police and secret agents seeking to deprive me of one of the greatest blessings man can have-liberty.
+ - It takes a long, hard effort and sustained determination to reduce crime. We will stay the course and we are confident that the numbers will continue to go down.
+ - Guys who do a lot of running and jumping around cannot get themselves set to throw a hard punch.
+ - His dreams are like commercials.
+ - I never doubted the issue from the beginning. I knew I was too good for Burns. I have forgotten more about fighting than Burns ever knew.
+ - Schedules are impossible to me. I am excited to be on tour, but there are instances when I wish that I wasn’t managed. The shows are fun, but six hour drives burn me out.
+
+77 quotes

@@ -1,0 +1,21 @@
+ - I love my brother. I miss my brother.
+ - Honestly, it was pretty challenging working with a talking raccoon.
+ - I would not do anything to besmirch my reputation any further than it has already been.
+ - I love playing characters that are bigger than life and maybe have a darker side that they present to the world. Those are good characters.
+ - My finances have been decimated by a group of people, such as my ex-attorney, my ex-business manager, and an estate planner, specifically. And they have conspired together to – to co-op my corporations, put in trustees without my knowledge.
+ - What I wish more than anything is that I could start getting press about my work as an actor. That is what I do. I’m not a criminal.
+ - I just always wanted to be left alone to go into a creative space.
+ - It’s possible for people to gain control of every facet of your life.
+ - I’m not crazy. I play a lot of crazy characters, but I’m an actor.
+ - When I was a kid and the carnival would come to the shopping centre, I’d go down and talk to all the people running the rides. I like that whole lifestyle, moving from town to town in a nomadic existence.
+ - Just about every actor wants to be a Disney cartoon voice at some point.
+ - It was real for me and that’s all that matters.
+ - I don’t trust Santa Barbara as far as I can spit. I am afraid that if I went back there, it’s possible that I could be run through their system, their judicial system, and wind up in some county jail where I could be killed and I’m not gonna take that chance.
+ - Acting’s more of a business for me now.
+ - I would never walk off any show.
+ - I’ve been racketeered on.
+ - I went through this delayed-adolescence thing. I didn’t want to be tied down to a family.
+ - I already did everything one time and that makes that one time stick out.
+ - Now with the Internet, a celebrity is fair game, and it’s all designed to sell advertising space.
+
+19 quotes

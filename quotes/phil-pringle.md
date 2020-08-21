@@ -1,0 +1,28 @@
+ - Faith is a spirit. It is an attitude. It is confidence in the heart.
+ - When we have no room for the Word of God in our lives we have no room for success.
+ - The source of faith is the Word of God.
+ - Once the vision of the fulfillment of your dream has been planted in your mind, bring it in to your prayer life. Each time you pray the picture to mind and meditate on it. Pray over it. See it happening. Destroy all the images of failure. Replace them with the image of success.
+ - The promises of God become the power of God when they are believed and acted upon.
+ - Faith is a creative force. When we operate by faith, we employ the creative power of God.
+ - Faith is the collateral of heaven. It is what you use to trade with in heaven.
+ - Image promises much but produces litte. Integrity, however, never disappoints. For me, integrity means living it myself before leading others to live it.
+ - Goal setting is another integral part of achieving any dream. It is what takes a supernatural vision into the material realm where we can see it being accomplished.
+ - If a man knows what he wants, then he is in a position to decide that he will get it. This is faith. The determined decision of a man with desire.
+ - A vision is something worth living for, and it is something worth dying for. In fact, if it is not worth dying for, it is not worth living for. Brave, godly martyrs throughout history have proven time and again that what we as Christians live for is worth dying for.
+ - Good leaders hold positive, views of the future. We believe God fulfills our dreams, and our dreams are enlarged. Our desires exceed what we currently have and where we currently are.
+ - Remember, Those who have the gift of faith are growth-oriented, goal-oriented, optimistic, and confident. – C. Peter Wagner.
+ - No matter what the realm of leadership – the home, the workplace, the church, or the community – the vision is crucial. Leaders must funnel their faith into action so that life-changing results.
+ - When we withhold the tithe we bring upon ourselves a curse.
+ - Leaders are creators. They bring their visions to fruitition through the creative process.
+ - People can become anything under the right conditions.
+ - If we cannot serve a person who we can see, how can we serve a God whom we cannot see? Some just have to have their own thing and be the “boss”. I grieve for these people who have become the King of their own tiny mound, when they could have been a Prince in a major organization.
+ - Another faculty has released this knowledge: our spirit. It is God’s Word in our spirit. It creates a reality that registers in our spirit. We live by this spiritual knowledge and walk in its light.
+ - I know that there are some people who are perpetually negative. I sincerely believe that if you want to fly with the eagles you cannot afford to walk with the turkeys. I will walk away from those people when they start to attack the vision.
+ - What we preach is what we get. We are farmers sowing seed. If we are unhappy with the harvest we’re reaping, we should sow different seed. If we want different results, we preach different messages.
+ - Whoever buys into the vision God has for the congregation develops an affinity for all that is going on.
+ - For the provision of God constantly to be at work in our lives we must activate the laws of God.
+ - Faith is knowing something that no-one else does.
+ - The main point here is that we are to desire something before faith can come into play. Our desires are of value to God. It’s His will to fulfill our dreams. When we are delighting in the Lord, our dreams and desires are formed in His Spirit, timing and purpose.
+ - Visions possess greater significance than just entertainment! Visions have power.
+
+26 quotes

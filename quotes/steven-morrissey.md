@@ -1,0 +1,227 @@
+ - It’s so easy to laugh It’s so easy to hate It takes guts to be gentle and kind.
+ - It takes strength to be gentle and kind.
+ - Everyday is like Sunday Everyday is silent and grey.
+ - Shyness is nice, but shyness can stop you from doing all the things in life that you’d like to.
+ - I still don’t belong to anyone – I am mine.
+ - It was probably nothing but it felt like the world.
+ - Life is very long, when you’re lonely.
+ - I was wasting my time, praying for love. For a love that never comes, from someone who does not exist.
+ - When I’m lying in my bed I think about life and I think about death and neither one particularly appeals to me.
+ - Tried living in the real world instead of a shell, but I was bored before I even began.
+ - Eating meat is the most disgusting thing I can think of. It’s like biting into your grandmother.
+ - I am the son and the heir of a shyness that is criminally vulgar.
+ - The more you ignore me, the closer I get; you’re wasting your time.
+ - Close your eyes, and think of someone you physically admire, and let me kiss you.
+ - I was happy in the haze of a drunken hour, but heaven knows I’m miserable now.
+ - Last night I dreamt that somebody loved me. No hope, no harm; just another false alarm.
+ - If a double decker bus Crashes into us To die by your side Oh the pleasure, the prvilige is mine.
+ - There are some bad people on the rise; they’re saving their own skins by ruining people’s lives.
+ - Age shouldn’t affect you. It’s just like the size of your shoes – they don’t determine how you live your life! You’re either marvellous or you’re boring, regardless of your age.
+ - I think flowers are very beautiful things. Very nice and innocent things. They don’t harm anybody.
+ - Music is like a drug, but there are no rehabilitation centres.
+ - There’s more to life than books, you know. But not much more.
+ - You made me feel less alone; you made me feel not quite so deformed, uninformed and hunchbacked.
+ - I wear black on the outside, because black is how I feel on the inside.
+ - Doing nothing gives me great pleasure. And believe me, I succeed wonderfully in it.
+ - I lie a lot – it’s really useful.
+ - You don’t like me, but you love me; either way, you’re wrong.
+ - So the life I have made May seem wrong to you But, I’ve never been surer It’s my life to ruin My own way...
+ - To me you are a work of art, and I would give you my heart – that’s if I had one.
+ - I am hated for loving. I am haunted for wanting.
+ - If you respect or love animals you could never eat them. It’s that simple.
+ - Even I, as sick as I am, I would never be you. Even I, sick and depraved, a traveler to the grave, I would never be you.
+ - This world, I am afraid, is designed for crashing bores.
+ - Life’s full of tricky snakes and ladders.
+ - Nature is a language – can’t you read?
+ - You either approve of violence or you don’t, and nothing on earth is more violent or extreme than the meat industry.
+ - There is no such thing in life as normal.
+ - I called to wish you an unhappy birthday because you’re evil and you lie and if you should die I may feel slightly sad, but I won’t cry.
+ - Does the body rule the mind or does the mind rule the body? I dunno...
+ - I see the world, it makes me puke, But then I look at you and know, that somewhere there’s a someone who can soothe me.
+ - I don’t dream about anyone – except myself.
+ - America is not the world.
+ - I lost myself to music at a very early age, and I remained there.
+ - I am human and I need to be loved, just like everybody else does.
+ - Oh yes, you can kick me And you can punch me And you can break my face But you won’t change the way i feel ’cause i love you.
+ - Women don’t go to war to kill other women. Wars and armies and nuclear weapons are essentially heterosexual hobbies.
+ - Long hair is an unpardonable offense which should be punishable by death.
+ - Robert Smith is a whingebag.
+ - I left my fingerprints somewhere – that’s good enough. I am my own person – that’s good enough. I stand my ground – that’s good enough.
+ - Now this might disturb you, but I find I’m OK by myself; and I don’t need you or your benevolence to make sense.
+ - I don’t mind if you forget me. Having learned my lesson, I never left an impression on anyone.
+ - You may not realize this, but people have the power to change the world.
+ - In my life why do I smile at people I’d rather kick in the eye?
+ - Madonna reinforces everything absurd and offensive. Desperate womanhood. Madonna is closer to organized prostitution than anything else.
+ - I can’t believe I’m 29. Where did the years go? Why did the years go?
+ - The rhino is now more or less extinct, and it’s not because of global warming or shrinking habitats. It’s because of Beyonce’s handbags.
+ - All human activity is fruitless when pitted against the girls and boys singing on pop television, for they have found the answer as the rest of us search for the question. I will sing, too. If not, I will have to die.
+ - The sorrow of the IRA Brighton bombing is that Thatcher escaped unscathed.
+ - It doesn’t stop. It really doesn’t stop. It’s the way I live every single day. I don’t do anything else. I have no other interest other than music. At all.
+ - We Hate William and Kate.
+ - And if you ever need self-validation, Just meet me in the alley by the railway station.
+ - I can chase you, and I can catch you, but there is nothing I can do to make you mine.
+ - Each year of life brings us nearer to our decline, but I will continue to seek a listener until I’m dead in a ditch.
+ - Most people keep their brains between their legs.
+ - Why pamper life’s complexities when the leather runs smooth on the passenger seat?
+ - And if I seem a little strange Well, that’s because I am.
+ - I would rather eat my own testicles than reform The Smiths, and that’s saying something for a vegetarian.
+ - Disappointment came to me, and booted me, and bruised and hurt me, but that’s how people grow up.
+ - Rejection is one thing – but rejection from a fool is cruel.
+ - Humans are not really very humane.
+ - Life would be so colourful if only I had a drink problem.
+ - I do maintain that if your hair is wrong, your entire life is wrong.
+ - I’ve never intended to be controversial but it’s very easy to be controversial in pop music because nobody ever is.
+ - When you sleep I will creep Into your thoughts Like a bad debt That you can’t pay Take the easy way and give in!
+ - The solo years have been more meaningful to the audiences than the Smiths years, but the press in England only write about me in relation to the Smiths era.
+ - I have an unswayable obsession with death. If there was a magical pill that one could take that would retire you from the world, I would take it.
+ - Letting cats and dogs have litters is tantamount to shooting shelter animals in the head since it kills their chances of adoption. Please do the right thing and spay or neuter your animals.
+ - I don’t perform. Seals perform.
+ - Whenever I go past McDonalds I get very, very angry.
+ - I believe the NME have deliberately tried to characterise me as a racist in a recent interview in order to boost their circulation. I abhor racism and cruelty of any kind and will not let this pass.
+ - Finally, I can get on with someone.
+ - Smiths songs certainly have an astonishing afterlife.
+ - Whoever says The Smiths have split shall be severely spanked by me with a wet plimsoll.
+ - They said they respect me, which means, their judgment is crazy.
+ - I decree today that life is simply taking and not giving, England is mine and it owes me a living.
+ - You can’t help but feel that the Chinese people are a subspecies.
+ - And though I walk home alone, my faith in love is still devout.
+ - I don’t like myself very much as a person, but I’m proud of what I create.
+ - I always thought my genitals were the result of some crude practical joke.
+ - The fire in the belly is essential, otherwise you become Michael Buble – famous and meaningless.
+ - God, come down, if you’re really there – Well, you’re the one who claims to care!
+ - Whether it be Beyonce or Justin Bieber, we see singers who have absolutely nothing to offer anyone as they walk off stage clutching three Grammys in each hand.
+ - Life is a very serious business for the simple reason that nobody dies laughing.
+ - I was wasting my life, always thinking about myself.
+ - One day I decided to try to have a complete day without tea. I was quite shaken. I was quite disturbed.
+ - I have so much pride and love for the songs of The Smiths. However, I must ask you, if you come across any Smiths CDs, don’t buy them, because all the money goes to that wretched drummer.
+ - My love, wherever you are – whatever you are – don’t lose faith. I know it’s gonna happen someday to you.
+ - Nothing is important, so people, realising that, should get on with their lives, go mad, take their clothes off, jump in the canal, jump into one of those supermarket trolleys, race around the supermarket and steal Mars bars and kiss kittens.
+ - I have no love for myself as a human being, but I have immense pride in the music I make, and I believe it has an important place. Others do, too, and the thousands of people with Morrissey tattoos certainly proves something.
+ - I smoke ’cos I’m hoping for an early death and I need to cling to something.
+ - Hold on to your friends. Resist – or move on Be mad, be rash Smoke and explode Sell all of your clothes Just bear in mind: There just might come a time When you need some friends.
+ - Jesus made me, so he should save me from pity, sympathy and idiots discussing me.
+ - I would never, ever do anything as vulgar as having fun.
+ - Sing your life; any fool can think of words that rhyme.
+ - I was driving my car, I crashed and broke my spine. So yes there are things worse in life than never being someone’s sweetie.
+ - There are more than enough to fight and oppose; why waste good time fighting the people you like?
+ - I’m not very good at being dull.
+ - The monarchy is foremost a business, and it’s important to them that the British public continue to finance the excessive luxurious lifestyles of the now quite enormous, wasteful and useless ‘royal’ family. I find it very sad.
+ - I’m just happy being dumpy. Dumpy, fat and middle-aged.
+ - Bob Geldof is a nauseating character. Band Aid was the most self-righteous platform ever in the history of popular music.
+ - The word ‘indie’ is meaningless now. It’s so over-used that people think it simply means green hair.
+ - It’s the refuge for the mentally deficient. It’s made by dull people for dull people.
+ - But sometimes I’d feel more fulfilled making Christmas cards with the mentally ill. I want to live and I want to love. I want to catch something that I might be ashamed of.
+ - What’s the first thing I do when I wake up in the morning? Wish I hadn’t.
+ - Boot the grime of this world in the crotch dear.
+ - I know by now you think I should have straightened myself out – Thank you, drop dead!
+ - Don’t leave it all unsaid, somewhere in the wasteland of your head.
+ - I see myself rather like an old discarded dishrag.
+ - Well, I am an extremely beautiful person.
+ - Rush to danger; wind up nowhere.
+ - People like me prove that you can survive without romance, even though you end up a bit unbalanced and you tend to argue with your own reflection.
+ - War, I thought, was the most negative aspect of male heterosexuality. If more men were homosexual, there would be no wars, because homosexual men would never kill other men, whereas heterosexual men love killing other men.
+ - There’s so much destruction all over the world – and all you can do is complain about ME!
+ - When they bury me in a church and chuck earth on my grave, I’d like the words ‘Well, at least he tried’ engraved on my tombstone.
+ - It’s always nice to receive a compliment.
+ - I think I must be, absolutely, a total sex object. In every sense of the word.
+ - Satan rejected my soul; as low as he goes, he never quite goes this low.
+ - Congratulations to Prince Charles for banning foie gras from all his functions.
+ - I’ve gone through managers like people go through shredded wheat. Nobody looks after you.
+ - Although I don’t have anything against people from other countries, the higher the influx into England the more the British identity disappears.
+ - These tears I’m wailing, I spill not without reason. Remove them, my dearest love. Take me to the place I’ve been dreaming of, where the grotesquely lonely meet the grotesquely lonely and they whisper, just very softly, Please be mine, Dearest Love.
+ - The Smiths was an incredibly personal thing to me. It was like launching your own diary to music.
+ - A heartless hand on my shoulder A push and it’s over Alabaster crashes down Six months is a long time Tried living in the real world Instead of a shell But before I began I was bored before I even began.
+ - If met Vic Reeves, I’d have no desire other than to smack him in the face.
+ - Sometimes I wish I was just a simple drunkard.
+ - Young bones groan And the rocks below say, “Throw your white body down!” But I’m going to meet the one I love At last.
+ - I have no love for myself as a human being, but I have immense pride in the music I make.
+ - Again, I lay awake, and I cried because of waste.
+ - I first bought a Buffy Sainte-Marie record when I was 12, and her music has always remained with me. In the 1960s, as a political activist, Buffy’s lyrics were fearless, and I’m very grateful for all the risks that she took.
+ - Even now – in the final hour of my life – I’m falling in love again.
+ - I am stuck in the dream of an album that sells well not because of marketing, but because people like the songs.
+ - I wish that Prince Charles had been shot. I think it would have made the world a more interesting place.
+ - The Royal family to me are not England, and they are not the flag.
+ - Can you squeeze me into an empty page of your diary and psychologically save me?
+ - If you travel to Germany, it’s still absolutely Germany. If you travel to Sweden, it still has a Swedish identity.
+ - I hated the royal wedding.
+ - I find shoes difficult to be ethical about...
+ - I can get incredibly erotic about blotting paper.
+ - Even though I’ve been reasonably well known for quite a long time, I still can’t get a record on daytime radio or on MTV.
+ - The Brits are ghastly. I never would accept a Brit. It would be like Laurence Olivier being happy getting a TV Times award.
+ - I am still my teenage self. If you think that we all step through a door marked Adult, or that we sign a Grown-Up Document, you’re quite wrong. We remain as we always were, and that, alas, is one of life’s many nasty tricks.
+ - I find Christmas very difficult.
+ - I avoid people who I actually like. I suppose that’s a phobia but also a habit.
+ - With the world’s fate resting on your shoulder – you’re gonna need someone on your side. You can’t do it by yourself any longer – you’re gonna need someone on your side.
+ - Work is a four-letter word.
+ - I’ve always done quite well as far as the charts are concerned. And yet I always felt I conveyed the spirit of the music I love, which didn’t have any chart success.
+ - I don’t want to get too involved in marketing budgets, online promotions and download set-ups because it would be a bit like Gertrude Stein mapping out a TV campaign. I want to sing. I want visibility. I am essentially Al Martino, not Seymour Stein.
+ - He is pushing his face in all the time and telling us about his private life. Nobody’s interested. He should just go away.
+ - My parents were worried about me, certainly when I became so deeply interested in music and people like the New York Dolls who, at the time, were very peculiar indeed.
+ - You are bound to pick up influences.
+ - My childhood is streets upon streets upon streets upon streets. Streets to define you and streets to confine you, with no sign of motorway, freeway or highway.
+ - The Queen is the ultimate dictator.
+ - I normally live in Los Angeles, if you can call it normal living.
+ - And make no mistake, my friend, your pointless life will end; but before you go, can you look at the truth?
+ - I have found the best way to avoid ending your life as a bitter wreck is to start out as one.
+ - Animals are nicer than humans and they’re conscious beings. If you stick your grandmother in an oven, she will probably be tasty. But is that any reason to eat your grandmother?
+ - With no reason to hide these words I feel, and no reason to talk about the books I read, but still, I do.
+ - One can have great concern for the people of Ethiopia, but it’s another thing to inflict daily torture on the people of England.
+ - If you love animals, obviously it doesn’t make sense to hurt them.
+ - We hate it when our friends become successful.
+ - I began to go to concerts when I was 12 years old.
+ - I have seen one or two psychiatrists. They just sit and nod and doodle.
+ - I’d rather produce art than become art.
+ - Now I know how Joan of Arc felt.
+ - Racism is beyond common sense and has no place in our society.
+ - In England, pop music seems now to be exclusively for children. If an artist is no good, why is it necessary to have that artist repeatedly rammed in our face?
+ - I’m dramatically underexposed. I demand more attention!
+ - I’ve been dreaming of a time when The English are sick to death of Labour and Tories And spit upon the name Oliver Cromwell and denounce this royal line that still salutes him And will salute him forever.
+ - I’m not an anarchist, but I believe that people don’t want the royal family – the so-called royal family.
+ - I still prefer horses to human beings.
+ - I just feel that when all is said and done, I am not insane.
+ - That was the problem with the ‘celibate’ word because they don’t consider for a moment that you’d rather not be, but you just are. I was never a sexual person.
+ - It could be construed that the reason I wouldn’t wish to live in England is the immigration explosion. And that’s not true at all.
+ - Not everybody is absolutely stupid. Why on earth would I be racist, what would I be trying to achieve?
+ - It’s so shameful of me: I like you.
+ - Anything is hard to find when you will not open your eyes.
+ - Pass the pub that wrecks your body And the church, all they want is your money.
+ - I think the pop chart today is entirely market-driven. And it has nothing to do with public taste. And it has nothing to do with moving music forward. It’s simply a market chart.
+ - Any criticism of Thatcher throws a dangerously absurd light on the entire machinery of British politics. Thatcher’s name must be protected, not because of all the wrong that she had done, but because the people around her allowed her to do it.
+ - That’s why I do this music business thing, it’s communication with people without having the extreme inconvenience of actually phoning anybody up.
+ - Artists aren’t really people. And I’m actually 40 per cent papier mache.
+ - Denmark is sadly a hellish place if you happen to be a pig, but the brioche and fruits that tower on the table before me have me hastily attaching a feedbag.
+ - I do think it’s possible to go through life and never fall in love, or find someone who loves you.
+ - Oh, I can’t help quoting you, because everything that you said rings true.
+ - I used to dream, and I used to vow; I wouldn’t dream of it now.
+ - On the day that your mentality Decides to catch up with your biology, Come ’round.
+ - You are a work of art.
+ - I think perhaps I touch on a different passion in people. It’s not simple the passion of rock ‘n’ roll rebellion – it’s more romantic than sexual.
+ - It’s so tedious that everyone must be defined.
+ - Lots of people make the stage and it can seem very violent and over the top, but it’s not really. It’s always a kind of gentle ballet.
+ - Pop music has progressed. The singing voice has changed dramatically in pop music, and people now just sing the way they want to, in their speaking voice, instead of putting on some great transatlantic rock and roll sneer.
+ - I’m fascinated by people in their eighties and nineties. Especially those who are still creating and living in an interesting way. I am fascinated by them because they have so much to say now that they’ve lived for so long.
+ - No British politician has ever been more despised by the British people than Margaret Thatcher.
+ - Those Catholics, they really nab you when you’re young.
+ - The Smiths are never, ever, ever, ever, ever, ever, ever, ever going to reunite – ever.
+ - I don’t want to go on much longer, really. I think that would suggest a lack of imagination. A certain lack of dignity also.
+ - All of us, ultimately, we’re not that interesting, when it comes down to it.
+ - The only thing that could possibly save British politics would be Margaret Thatcher’s assassin.
+ - I don’t think I’ve ever made a conscious effort to alter the sound. I don’t see the point. I have to remain true to how I sing. I’m perfectly happy with what I am. Whatever that is.
+ - I never imagined I’d be a solo artist. And now I couldn’t imagine being part of a group.
+ - I have forgiven Jesus for all of the love he placed in me, when there’s no one I can turn to with this love.
+ - I like to think that there is a clear majority of people who’s be supportive of the idea, It does save the existing industry. It does provide hundreds of millions of dollars for the Commonwealth.
+ - I’ve only been to Ireland once, and I felt I would wake up with voices in my head, almost like music, and that if I were a songwriter, I would be very inspired.
+ - I didn’t really see the British punk movement, if that’s what it was, as wildly original, because I had been listening so intently to all the New York music since 1973, really.
+ - Well, I’m a Catholic by birth and you can never shed it.
+ - I think we were all initially swept along with the Obama win, but he’s proven to be simply a set of teeth, and useless in every other regard.
+ - How can anybody say they know how I feel? The only one around here who is me, is ME.
+ - The Internet has obviously wiped music off the human map – killed the record shop, and killed the patience of labels who consider debut sales of 300,000 to not be good enough.
+ - Yes I have had a tan, actually. I went to Los Angeles and got one there, but it didn’t make it back to Britain. You’re not allowed to come through customs with a tan.
+ - I don’t even know if I exist offstage.
+ - The heart has a heart of its own.
+ - You have to, at least from a distance, look as if you know what you’re doing, and I can manage that.
+ - I don’t iron anything. Never have and never will.
+ - I always seem to be singing against the grain.
+ - Now I know how Joan of Arc felt, As the flames rose to her Roman nose And her Walkman started to melt...
+
+225 quotes

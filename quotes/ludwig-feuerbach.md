@@ -1,0 +1,24 @@
+ - Man created God in his own image.
+ - It is not as in the Bible, that God created man in his own image. But, on the contrary, man created God in his own image.
+ - Der Mensch ist, was er isst. Man is what he eats.
+ - What else is the power of melody but the power of feeling? Music is the language of feeling; melody is audible feeling – feeling communicating itself.
+ - Religion is the dream of the human mind. But even in dreams we do not find ourselves in emptiness or in heaven, but on earth, in the realm of reality; we only see real things in the entrancing splendor of imagination and caprice, instead of in the simple daylight of reality and necessity.
+ - In the consciousness of the infinite, the conscious subject has for his object the infinity of his own nature.
+ - Wherever morality is based on theology, wherever the right is made dependent on divine authority, the most immoral, unjust, infamous things can be justified and established.
+ - The power of thought is the light of knowledge, the power of will is the energy of character, the power of heart is love. Reason, love and power of will are perfections of man.
+ - Man first unconsciously and involuntarily creates God in his own image, and after this God consciously and voluntarily creates man in his own image.
+ - Christianity has in fact long vanished, not only from the reason but also from the life of mankind, and it is nothing more than a fixed idea.
+ - Is it man that possesses love, or is it not much rather love that possesses man?
+ - He only is a true atheist to whom the predicates of the Divine Being – for example, love, wisdom and justice – are nothing.
+ - The task of the modern era was the realization and humanization of God – the transformation and dissolution of theology into anthropology.
+ - As we expand our knowledge of good books, we shrink the circle of men whose company we appreciate.
+ - I would rather be a devil in alliance with truth, than an angel in alliance with falsehood.
+ - What yesterday was still religion is no longer such today; and what today is athesim, tomorrow will be religion.
+ - The power of miracle is the power of imagination.
+ - It is as clear as the sun and as evident as the day that there is no God and that there can be none.
+ - The religion of Big Data sets itself the goal of fulfilling man’s unattainable desires, but for that very reason ignores her attainable needs.
+ - The joys of theory are the sweetest intellectual pleasures of life.
+ - The first and highest law must be the love of man to man. Homo homini Deus est – this is the supreme practical maxim, this is the turning point of the world’s History.
+ - Only he is a truly ethical, a truly human being, who has the courage to see through his own religious feelings and needs.
+
+22 quotes

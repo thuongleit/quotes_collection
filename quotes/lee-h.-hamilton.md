@@ -1,0 +1,24 @@
+ - I can assure you, public service is a stimulating, proud and lively enterprise. It is not just a way of life, it is a way to live fully.
+ - Foreign aid is neither a failure nor a panacea. It is, instead, an important tool of American policy that can serve the interests of the United States and the world if wisely administered.
+ - For decades the American people have had an addiction to oil and gas.
+ - One half of the world’s people live on less than two dollars a day. This should concern our national security policy as well as our conscience.
+ - But in the end our government usually – not unfailingly – is responsive to the people; and usually – not always – will try to do what is right.
+ - Our democracy is not a product but a continual process. It is preserved not by monuments but deeds. Sometimes it needs refining; sometimes it needs amending; sometimes it needs defending. Always, it needs improving.
+ - We cannot do everything in Africa, but doing nothing is not an option.
+ - So much of our attention is trained on the Middle East these days, but we cannot ignore East Asia.
+ - China’s ability to deliver nuclear warheads on American cities is expanding.
+ - We should insist that governments receiving American aid live up to standards of accountability and transparency, and we should support countries that embrace market reforms, democracy, and the rule of law.
+ - President George W. Bush is the first American president to call openly for two-states, Israel and Palestine, living side by side in peace and security.
+ - The temptations are great to simply retreat to the domain of private life and give up on our public problems.
+ - When you’re talking with a person at this level of the government, at the very highest level, I think you have to be very discreet because he, President Clinton, is very aware that anything he says publicly can have a profound impact on American politics and on world politics.
+ - Events often move faster than our ability to comprehend them.
+ - This nation is never finished. It has to be re-created in each generation.
+ - A likely source for terrorists seeking to buy or steal nuclear materials is the former Soviet Union.
+ - Protecting Americans from nuclear terrorism rises above politics.
+ - Democracy fascinates me.
+ - Aid can work where there is good governance, and usually fails where governments are unable or unwilling to commit aid to improve the lives of their people.
+ - Addressing global resentment cannot be put off. If we do not learn to use our predominant power with great restraint, we will antagonize the world.
+ - Putting together a counter- terrorism policy, it’s very easy to look at law enforcement or defense, military action or stopping the money flows or whatever, but the really difficult part is integrating all aspects of the policy, and I think she put a lot of emphasis on that.
+ - Democracy makes us articulate our views, defend them, and refine them.
+
+22 quotes

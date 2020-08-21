@@ -1,0 +1,42 @@
+ - There are really only two ways to approach life – as victim or as gallant fighter – and you must decide if you want to act or react, deal your own cards or play with a stacked deck. And if you don’t decide which way to play with life, it always plays with you.
+ - Cynicism is a form of cowardice, a failure of courage to hope.
+ - If there are no endings, there are no beginnings and you see no new lands, so for everything that’s lost, there is usually something gained.
+ - One can never change the past, only the hold it has on you, and while nothing in your life is reversible, you can reverse it nevertheless.
+ - Each of us is a seed, a silent promise, and it is always Spring.
+ - The roots of love sink down and deep and strike out far, and they are arteries that feed our lives, so we must see that they get the water and sun they need so they can nourish us. And when you put something good into the world, something good comes back to you.
+ - Men who take advantage of one woman take advantage of them all...
+ - Love is short, forgetting is long, and understanding longer still.
+ - Loving can cost a lot but not loving always costs more, and those who fear to love often find that want of love is an emptiness that robs the joy from life.
+ - Loving someone means helping them to be more themselves, which can be different from being what you’d like them to be, although often they turn out the same.
+ - Friends are people who help you be more yourself, more the person you are intended to be.
+ - The best kind of men have a certainty in themselves that isn’t done in when countered by a certainty in their women, and they are much adored.
+ - No marriage is one person’s failure any more than it’s one person’s success, so it works best to see a marriage that has ended simply as something that didn’t work out.
+ - Life is like fording a river, stepping from one slippery stone to another, and you must rejoice every time you don’t lose your balance, and learn to laugh at all the times you do.
+ - Perhaps the old view of ‘Me breadwinner, you hausfrau’ worked for our grandparents, when people obligingly popped off before boring each other to death, but it won’t work any longer because we are living too long and divorce is needed today to do what death acomplished more economically before.
+ - It takes a lot of mulch, love does, to create a froth.
+ - We marry to grow up, to escape our parents and to inherit our share of the world, not knowing who we are and who we will become, so it is left to marriage to make it clear which ones of us are growing in the same directions and which are ships meant to have passed in the night.
+ - It takes great generosity to accept generosity.
+ - Feelings take you into uncharted territory from time to time it’s true, but you almost always benefit from the journey one way or the other. We tend to think of the rational as a higher order, but it is the emotional that marks our lives.
+ - But who would rush at a benighted man, and give him two black eyes for being blind?
+ - One can never change the past, only the hold it has on you.
+ - Friends are like windows through which you see out into the world and back into yourself. If you don’t have friends you see much less than you otherwise might.
+ - There are some decisions in life that only you can make.
+ - The conflict between what one is and who one is expected to be touches all of us. And sometimes, rather than reach for what one could be, we choose the comfort of the failed role, preferring to be the victim of circumstance, the person who didn’t have a chance.
+ - Most women would rather have someone whisper their name at optimum moments than rocket with contractions to the moon.
+ - The answer doesn’t lie in learning how to protect ourselves from life-it lies in learning how to become strong enough to let a bit more of it in.
+ - One often learns more from ten days of agony than from ten years of contentment.
+ - There are no perfect men of course, but some are more perfect than others, and we can use all of those we can get.
+ - One can’t run in a park without a dog or make angels in the snow without a child and there are things one can’t do without a lover, so the loss of the lover is like an amputation and the patient goes into shock.
+ - Marriage is supposed to do everything, like Duz, which is more than half its problem. It is said to save us, define us, give us purpose, keep us from loneliness, and incidentally balance our diet and wash our socks, and when it doesn’t, we get divorced.
+ - Some men are more perfect than others.
+ - The day you spend hoping, the day you spend waiting, the day you spend in despair, is a day in your life as much as the tomorrow you hope for, but which may never come, so betting today on tomorrow is always a bad bet.
+ - Compassion is the thing that leads you gently back to yourself.
+ - The older I get, the clearer it becomes to me that no one is cheated in this world, unless it’s by himself.
+ - You can tell a lot about what a man lacks by watching what he is cynical about, and many of us are cynical about love.
+ - Our strength is in our dreams, and those who do not dare to dream damn themselves.
+ - Until you divest yourself of the notion that you are a collection of needs, an empty vessel that someone else must fill up, there will be no safe place to harbor yourself, no safe shore to reach. As long as you think mostly of getting, you will have nothing real to give.
+ - The act is unjustifiable that either begs for a blessing, or, having succeeded gives no thanksgiving.
+ - There are many pages in the book, many kinds of lives we each can live, many ways to be rich, and even more to be poor.
+ - Loving can cost a lot but not loving always cost more.
+
+40 quotes

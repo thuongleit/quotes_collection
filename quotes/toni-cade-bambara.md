@@ -1,0 +1,25 @@
+ - Revolution begins with the self, in the self.
+ - The role of the artist is to make the revolution irresistible.
+ - The dream is real, my friends. The failure to make it work is the unreality.
+ - And what is religion, you might ask. It’s a technology of living.
+ - Writing is one of the ways I participate in transformation.
+ - Not all speed is movement.
+ - One monkey don’t stop no show. Not one, not six. The struggle continues.
+ - An artist represents an oppressed people and makes revolution irresistible.
+ - When you dream, you dialogue with aspects of yourself that normally are not with you in the daytime and you discover that you know a great deal more than you thought you did.
+ - We have not been scuffling in this waste-howling wildness for the right to be stupid.
+ - Words are to be taken seriously. I try to take seriously acts of language. Words set things in motion. I’ve seen them doing it. Words set up atmospheres, electrical fields, charges.
+ - What is happening to the daughters of the yam? Seem like they just don’t know how to draw up the powers from the deep like before. Not full sunned and sweet anymore.
+ - The only proper mask to wear in life is your own damn face.
+ - My responsibility to myself, my neighbors, my family and the human family is to try to tell the truth.
+ - Write a lot and hit the streets. A writer who doesn’t keep up with what’s out there ain’t gonna be out there.
+ - Writing is a legitimate way, an important way, to participate in the empowerment of the community that names me.
+ - It’s a dismally lonely business, writing.
+ - Our lives preserved. How it was; and how it be. Passing it along in the relay. That is what I work to do: to produce stories that save our lives.
+ - People have to be given permission to write, and they have to be given space to breathe and stumble. They have to be given time to develop and to reveal what they can do.
+ - Old folks are the nation.
+ - When we ever invited the beast to dinner he didn’t come in and swipe the napkins and start taking notes on the tablecloth ’bout how to take over the whole house?
+ - Medication without explanation is obscene.
+ - The story is a piece of work. The novel is a way of life.
+
+23 quotes

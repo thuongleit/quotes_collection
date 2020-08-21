@@ -1,0 +1,42 @@
+ - Improve quality, you automatically improve productivity. ~~W. Edwards Deming
+ - Cost is more important than quality but quality is the best way to reduce cost. ~~Genichi Taguchi
+ - Quality in a service or product is not what you put into it. It is what the client or customer gets out of it. ~~Peter F. Drucker
+ - Always fight for quality, whether giving or receiving. ~~Walt Disney
+ - Customers want high quality at low prices and they want it now. ~~Bill Gates
+ - The race for Quality has no finish line – so technically, it’s more like a death march. Efficiency is doing things right; effectiveness is doing the right things. ~~Peter F. Drucker
+ - You need to surround yourself with quality human beings that are intelligent and have a vision. ~~Vince McMahon
+ - If you want a quality, act as if you already had it. ~~William James
+ - Empathy is a quality of character that can change the world. ~~Barack Obama
+ - My success is due more to my ability to work continuously on one thing without stopping than to any other single quality. ~~Thomas A. Edison
+ - The mind is the source of all experience, and by changing the direction of the mind, we can change the quality of everything we experience. ~~Yongey Mingyur Rinpoche
+ - Buy less. Choose well. Make it last. Quality, not quantity. Everybody’s buying far too many clothes. ~~Vivienne Westwood
+ - Quality questions create a quality life. ~~Tony Robbins
+ - Your manners will depend very much upon the quality of what you frequently think on; for the soul is as it were tinged with the colour and complexion of thought. ~~Marcus Aurelius
+ - Perhaps, the problem is not the intensity of your love, but the quality of the people you are loving. ~~Warsan Shire
+ - It wasn’t until I began to work on my inner life and know myself that my life changed. Success really does begin within. The size and quality of your outer life is only limited by the size and quality of your inner life. ~~Robin S. Sharma
+ - We think in language. The quality of our thoughts and ideas can only be as good as the quality of our language. ~~George Carlin
+ - Above all, try always to be able to feel deeply any injustice committed against any person in any part of the world. It is the most beautiful quality of a revolutionary. ~~Ernesto Che Guevara
+ - Steadfastness is a noble quality, but unguided by knowledge or humility, it becomes rashness, or obstinacy. ~~Aaron Swartz
+ - There’s a certain delusional quality that all successful people have to have. ~~Will Smith
+ - Quality involves living the message of the possibility of perfection and infinite improvement, living it day in and day out, decade by decade. ~~Tom Peters
+ - To be successful, you have to have quantity of quality. ~~Mark Frauenfelder
+ - Popularity is not a gurantee of quality. ~~Indira Gandhi
+ - It was one of those rare smiles with a quality of eternal reassurance in it, that you may come across four or five times in life. ~~F. Scott Fitzgerald
+ - I’m on a mission to help people grow and give. The more they grow the more they can give, the more life they build, the greater the quality of their life. ~~Tony Robbins
+ - If you permit your thoughts to dwell on evil you yourself will become ugly. Look only for the good in everything so you absorb the quality of beauty. ~~Paramahansa Yogananda
+ - The only thing that matters, at the end of a stay on earth, is how well did we love, what was the quality of our love? ~~Richard Bach
+ - The quality of your life is directly related to how much uncertainty you can comfortably handle. ~~Tony Robbins
+ - I think honesty is the most heroic quality one can aspire to. ~~Daniel Radcliffe
+ - Quantity produces quality. If you only write a few things, you’re doomed. ~~Ray Bradbury
+ - You’re so square, baby, I don’t care. ~~Elvis Presley
+ - Inclusive, good-quality education is a foundation for dynamic and equitable societies. ~~Desmond Tutu
+ - The world is a hellish place, and bad writing is destroying the quality of our suffering. ~~Tom Waits
+ - Associate with men of good quality if you esteem your own reputation. ~~Barack Obama
+ - We need the iron qualities that go with true manhood. We need the positive virtues of resolution, of courage, of indomitable will, of power to do without shrinking the rough work that must always be done. ~~Theodore Roosevelt
+ - There is an indomitable quality within the human spirit that cannot be destroyed; a face deep within the human personality that is impregnable to all assaults. ~~Chester Himes
+ - The woman I love she got a prize fighter nose, cauliflower ears and a run in her hose. ~~Bob Dylan
+ - The finest qualities of our nature, like the bloom on fruits, can be preserved only by the most delicate handling. Yet we do not treat ourselves nor one another thus tenderly. ~~Henry David Thoreau
+ - I suppose the one quality in an astronaut more powerful than any other is curiosity. They have to get some place nobody’s ever been. ~~John Glenn
+ - Nature is full of wonders; every atom is a standing miracle, and endowed with such qualities, as could not be impressed on it by a power and wisdom less than infinite. ~~Joseph Addison
+
+40 quotes

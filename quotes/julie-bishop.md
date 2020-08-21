@@ -1,0 +1,23 @@
+ - Prevention is one of the few known ways to reduce demand for health and aged care services.
+ - Synergy and serendipity often play a big part in medical and scientific advances.
+ - Advances in science and medical research and public health policies have meant that life expectancy for Australians is one of the highest in the world.
+ - Australia has an increasingly multicultural society.
+ - Greater public recognition will also be critical in encouraging prevention and early intervention, and more generally in building public support to meet the challenges of dementia.
+ - Dementia is not exclusively a problem of the developed world.
+ - I call on the Australian Government to set out the conditions upon which they will provide a taxpayer funded backing for wholesale term funding for Australian deposit taking institutions. I call on the Government it make clear the conditions upon which taxpayer funds will be used in this way.
+ - We know we are entering a period of transformation in aged care.
+ - The message from the United States and Europe is that governments must live within their means.
+ - The Gillard government must give up its addiction to wasteful spending borrowing and taxing.
+ - Ageing means a loss of a number of skills over time.
+ - Tobacco companies are legally operating entities in Australia. If the Government thinks that they should not make donations to political parties, well then they should ban them operating as legally structured entities in Australia.
+ - We are already seeing older people wanting greater choice in how, when and where they receive care.
+ - Today it has been estimated that the average 70 year old has four chronic conditions and consumes an average of 35 PBS scripts per year for those conditions.
+ - Well they’re very, very genuine concerns at present as to the status of the 800 people who are to be sent by Australia to Malaysia. There’s concern about the status of asylum seekers in Malaysia generally, but there’s concern about the status of the 800 to be sent.
+ - The strongest initiative that government can take to ensure Australia is prepared for population ageing, is to maintain a strong economy, and a secure nation.
+ - We know that so many of the conditions and diseases that we associate with ageing can often be prevented or in fact their onset delayed if we just took preventative steps earlier in our lives.
+ - Australia is already a world leader in dementia research, treatment and care.
+ - Community care is a fundamental, an essential, an enduring part of our aged care system.
+ - There are genuine concerns about the status of children to be sent to Malaysia and also there are genuine concerns about the human rights record in Malaysia.
+ - When the Australian Government looked at how to meet the challenges, and the opportunities, presented by our ageing population, it saw that an all-encompassing approach was a prerequisite.
+
+21 quotes

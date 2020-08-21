@@ -1,0 +1,27 @@
+ - Sustained motivation is essential to achieving your potential.
+ - I am a private person and that has always been my personality.
+ - When I came to New York in 1978, I was a full-time school teacher and track runner, and determined to retire from competitive running. But winning the New York City Marathon kept me running for another decade.
+ - In terms of fitness and battling through cancer, exercise helps you stay strong physically and mentally.
+ - The worst injury I ever had was a stress fracture from running.
+ - There is something about the ritual of the race – putting on the number, lining up, being timed – that brings out the best in us.
+ - I’m never going to run this again.
+ - Some people feel ‘transformed’ from the first day they begin running; others feel that it’s just plain hard work. Most of us realize it is both. I know how great running can feel, but I also know it can feel not so great, even downright awful! It can be fun, but it takes work to have that fun.
+ - Every day I spend time on the treadmill. I am walking faster, stronger and harder than I was two months ago.
+ - One day you are happy and laughing and the next you are crying.
+ - You’ve got to look for tough competition. You’ve got to want to beat the best.
+ - I tried to keep it secret, but the story got into the newspapers. It was more difficult for my family, who couldn’t understand why the media wouldn’t leave me in peace.
+ - To suddenly be a hero on a world basis was hard for me to understand. God gave me a gift. I got the chance to use it. I didn’t think I deserved what people were saying. My talent is just more visible than theirs.
+ - For every finish-line tape a runner breaks – complete with the cheers of the crowd and the clicking of hundreds of cameras – there are the hours of hard and often lonely work that rarely gets talked about.
+ - My basic philosophy can be summed up by an expression we use in Norwegian: hurry slowly. Get there, but be patient.
+ - For a couple of days after chemotherapy, food tastes really bland, even the best foods. I haven’t been sick, but have been a little tired. I haven’t lost any weight.
+ - Spend at least some of your training time, and other parts of your day, concentrating on what you are doing in training and visualizing your success.
+ - Another inspiration that has helped me get through has been Lance Armstrong’s story. My cancer is not nearly as bad as his, but I believe in staying motivated and keeping as fit as you can.
+ - I don’t think I would have been such a good runner if I hadn’t enjoyed it.
+ - I am living in Norway, where I am under the care of the best cancer doctor in Norway and I can be closer to my family.
+ - What spurs a person to get more serious is highly individual, but I have found that no matter what a person’s level of ability, motivation must come from within, or it will not last.
+ - You go into the disease as one person and come out of it as a different person. It has changed my perspective on everything. Things that used to upset me no longer do.
+ - I am about to get involved with the biggest cancer hospital in Norway. They are building a fitness center to work with patients. I will be a consultant.
+ - My goal has always been to introduce other people to running. They might accomplish something they never thought they could.
+ - What Fred Lebow went through was an inspiration for me. You have to set goals for yourself.
+
+25 quotes

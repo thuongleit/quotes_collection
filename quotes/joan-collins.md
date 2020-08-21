@@ -1,0 +1,123 @@
+ - I’m extremely happy in my life. I consider myself to be very blessed.
+ - Show me a person who has never made a mistake and I’ll show you someone who has never achieved much.
+ - Loneliness is the universal problem of rich people.
+ - The secret of having a personal life is not answering too many questions about it.
+ - I don’t look my age, I don’t feel my age and I don’t act my age. To me age is just a number.
+ - Age is just a number. It’s totally irrelevant unless, of course, you happen to be a bottle of wine.
+ - The endless bonking was exhausting me.
+ - Life is a predator: you have to eat it before it eats you.
+ - Only fine cigars are worth smoking and only men who smoke fine cigars are worth kissing.
+ - I’ve never yet met a man who could look after me. I don’t need a husband. What I need is a wife.
+ - It’s no one’s fault to be born ugly, but, honestly, must it be worn as a symbol of pride?
+ - I never think about age. I believe your age is totally how you feel. I’ve seen women of thirty-five who are old and people of seventy-five who are young. As long as I look after myself physically, mentally and emotionally, I’ll stay young.
+ - I’ve always maintained that there is a very fine line between a daring, sexy older woman and mutton dressed as lamb.
+ - Love may be a dream but marriage is a nightmare.
+ - I think bare legs in winter are idiotic. Unless your naked pins are toned, tanned and veinless, it’s best to cover up. There is nothing more elegant in winter than dark tights worn with matching knee-length boots and a belted trench coat.
+ - The problem with beauty is that it’s like being born rich and getting poorer.
+ - The body is like a car: the older you become the more care you have to take care of it – and you don’t leave a Ferrari out in the sun.
+ - Most ankle strap shoes are seriously unattractive, cutting the line of the leg as well as cutting off the circulation! Try dancing in them – your feet will look like a pair of overdone hotdogs afterwards.
+ - I was voted the most beautiful girl in the world in 1958, and courted by every young, available man in Los Angeles, most of whom I didn’t go out with, by the way.
+ - I was so fortunate to work closely with the designer Nolan Miller whilst on ‘Dynasty’ to create the wardrobe for Alexis Carrington Colby, and we had great fun sourcing outfits.
+ - I think it has something to do with being British. We don’t take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously; I find that a very tedious attitude.
+ - My grandmother spoiled my father rotten, and he grew up expecting women to do whatever he wanted. When he married my beautiful mother, Elsa, he expected her to give up her career as a champion ballroom dancer and become a good wife and mother, which she dutifully did.
+ - All of a sudden I found myself with the reputation of being a swinger and a home-wrecker. Beverly Hills wives were supposed to live in fear in case I cast my green orbs in the direction of their men. Ninety-nine per cent of this was total fabrication.
+ - Doing 20 minutes of stretching, light weights and floor exercises three times a week takes the same amount of time as a long coffee break – and eating a tuna fish salad, sardines on toast or scrambled eggs is surely preferable to a Big Mac or KFC.
+ - After a certain age you get the face you deserve.
+ - I loathe conflict, and I loathe not getting along well with people, so I always try very hard to be on the best terms with the people I work with.
+ - I’m a woman for all seasons. I mix ‘n’ match, do designer and high street – keep all my good pieces. I design all my evening and cocktail dresses most of the time as I dislike what is out there.
+ - Jennifer Aniston is cute, but I wouldn’t call her beautiful. I think that is why Cheryl Cole is so popular, because she is just so pretty and the public are starved of gorgeous people. When I was young, everybody on screen was gorgeous.
+ - Botox, I think, is poison, I would never put it into my face, and I’m needle-phobic. I spend a lot of time keeping my face out of the sun and taking care of my skin and wearing make-up.
+ - If you feel well and happy, your face will reflect this, but if you are down in the dumps and having a miserable time, your face will soon show this, too. In fact, you get the face you deserve by the time you’re forty, and one of the keys to looking and feeling younger is being active.
+ - If you eat junk, you look like junk. People say, ‘It’s not my fault, it’s my glands.’ It’s not; it’s greed!
+ - However much some journalists may criticize me, I know that I look, feel, and behave several decades younger than my actual age, and much of that is because I believe you are what you think you are. This is called positive affirmation, and it’s a really strong tool.
+ - I’ve said no to ‘Celebrity Big Brother,’ ‘Strictly,’ and the American one, ‘Dancing With The Stars.’ I don’t feel it’s right for me. I’ve been asked to do reality TV a zillion times. No way. No way. Nobody’s going to get into my living room and see me there.
+ - My mother was a domestic goddess and Mother Earth figure. She was sweet and placid – just what the perfect wife was supposed to be and I was determined not to be.
+ - Yes, I remember the bombings. Yes, I remember, because – yes, I remember being in air raid shelters. Even though I was evacuated because I was very young, I remember being in air raid shelters and the tremendous feeling of compatibility with everybody.
+ - Hair, in fact, is probably the bane of most women’s lives.
+ - I mean, even my dressing room at the studio has candles and cushions and cashmere rugs and things.
+ - I don’t buy into you’re on the slag heap when you’re 40 or 50 or 60 or 70 or whatever.
+ - If life throws you a lemon – make lemonade.
+ - Basically, though, I believe in eating well, not eating too much but eating a variety of foods.
+ - The cosmetics industry has much to answer for. It’s a multi-million- pound confidence trick based on giving women endless hope, courtesy of overpriced little pots.
+ - Making each day a mini lifetime – to achieve something and to enjoy something.
+ - Dynasty was the opportunity to take charge of my career rather than waiting around like a library book waiting to be loaned out.
+ - I used to not be confident. My father certainly didn’t add to my confidence. When I was 17 or 18, I was voted the most beautiful girl in England by the association of press photographers. When they called Daddy for a comment, he said, ‘I’m amazed. She’s a nice looking girl, but nothing special.’
+ - I think it is shocking that 15- and 16-year-olds leave school unable to add up and with the reading ability of a four-year-old.
+ - I have a lot of male friends.
+ - I have a lot of male friends that I go the cinema with and movie and shopping. A lot of men friends I know love shopping.
+ - I like to remember phone numbers because it keeps your brain active. If you don’t use it, you lose it.
+ - I say, ‘Use it or lose it.’ I have my own fitness regime, which is centred around stretching, free-weights and fast walking. I also have a trainer half of the year, as I spend my summers in the south of France where I swim a lot.
+ - My parents instilled in me that life was going to be very difficult and that I’d have to work for everything.
+ - I was a pin-up girl. I did it for 30 years and, quite frankly, it gets a bit boring.
+ - When I was 49, I posed for Playboy – I was very flattered to be asked. I was quite honoured, really, considering that most of the models they feature are in their twenties.
+ - If I need to cheer myself up, I will put on some fabulous ’40s musical on video. But I’m very lucky; I seldom get depressed. Without question, I’m a ‘glass half full’ person. In fact, it’s three-quarters full!
+ - I’ve made no secret of the fact that I often wear wigs and have in fact launched my own ‘Dynasty’ range, named after various characters. I find this saves a ton of time – as well as my own hair.
+ - I’m a bit shy, I suppose, and a bit lazy.
+ - I received an OBE from the Queen, which probably doesn’t mean anything in America but is quite nice in England – the Order of the British Empire for services to drama.
+ - I don’t believe in eating junk and I protect my face all the time from the sun, even in the winter with base and makeup.
+ - If I hear the word ‘retire,’ it makes me want to throw up. And then do what? Sit around all day watching television?
+ - When I was at school, I was terrible at algebra and arithmetic, but I was always the best at English and literature. And acting, of course.
+ - I have never been the mousy, stand-two-paces-behind, obedient ‘little woman’ type.
+ - My father is Jewish, and I look exactly like him My mother is British, but she’s of French extraction.
+ - I think dieting is bad for you.
+ - I consider you as old as you look and feel. And in that case I feel – I feel I’m about 39, like Jack Benny.
+ - I don’t believe in vitamin pills. I swear by men, darling-and as many as possible.
+ - Every woman should wear make-up. It takes years off. I’m wearing lots of false eyelashes today, and to me, lipstick is the best cosmetic that exists.
+ - I blame my grandmother for encouraging me to become an actress.
+ - I have the absolute utmost respect for soap opera actors now. They work harder than any actor I know in any other medium. And they don’t get very much approbation for it.
+ - So-called designer bags are useless, and most are also ugly, faddish and overpriced. Pared down and sleek is always best.
+ - The easiest way to convince my kids that they don’t really need something is to get it for them.
+ - Of course it does on opening night, but I’ve never had that devastating stage fright that some people get, but apparently, you can develop it.
+ - I mean, I’m a war baby, and we had rationing, and we didn’t have sugar and sweets, which is very good for you in actual fact. Because when we had a piece of fruit, we’d gulp it down. It was just great.
+ - One of the rules about being an actor or an actress is that you never diss other actors or actresses, particularly when you don’t know them.
+ - I really feel now like a native New Yorker. And I’m very happy here.
+ - I’ve spent years when I’ve not been in the limelight at all and I’m perfectly happy living my life without being swooped on by paparazzi.
+ - Most of the time we’ve been living in England and now we’ve bought an apartment in New York which we absolutely love.
+ - There are very few designers in Hollywood today who know how to really flatter a woman’s body, and Mark Zunino is at the top of my list.
+ - The clothes were a huge part of what made ‘Dynasty’ fun.
+ - And then I wrote my first autobiography when I – well, it was 23 years ago. And since then I’ve written about one book every two years.
+ - And I used to write novels and little stories and compositions and I – but I put them away because I started acting when I was 17. So there wasn’t much time.
+ - I’ve fallen in love maybe five times in my life. But it’s a long life. I do get crushes. Whether it’s men or women or babies.
+ - In fact, the 20th century I think was the most fascinating century and the whole of man civilization because so much happened.
+ - I do all my own make-up, it takes me 10 minutes.
+ - Gone are the days when a gentleman lightly took your hand in his and brushed his lips across it, or tipped his hat to acknowledge you as he chivalrously stepped aside to let you pass.
+ - When I finish dressing before a night out and have put on all the accessories, I usually look at myself in the mirror long and hard and then end up removing something. Whether it’s a belt, bracelet or a bauble, less is always more.
+ - There are some brilliant designers but their clothes only really suit 6 foot 20-year-olds.
+ - I have to say that those nine years were full of turmoil and drama and trauma to me, in actual fact.
+ - And we have not found any generational gap at all. If he wants to go a football game, he goes. If I want to go to a fashion show, I go. We don’t have to do everything together. But we like doing most things together.
+ - I’ve become totally hooked on Cellex-C. It’s an anti-ageing serum and is fantastic. I use it morning and evening and even on my hands, where it has faded those dark spots.
+ - Of course it’s true: the public want to see young people – young people are the people who go to the cinema. It’s a sad fact of life, but you’ve got to accept it and not whine about it.
+ - I don’t use e-mail; I phone and fax. I think people who are hunched over their computer screens all day should get a life.
+ - Well, it is quite daunting, but I made my first appearance on the stage when I was nine, because I went to a theatrical school, because I wanted to be an actress since I was eight.
+ - And I have a special cream that I use that I made myself that I invented, that I put on at night and during the day.
+ - I’ve three children, three grandchildren, I work, I travel, and I’m very happily married. I’m very satisfied and happy with my life and there really isn’t anything I want.
+ - And I think of that again as I’ve written in several of my beauty books, a lot of health comes from the proper eating habits, which are something that – you know, I come from a generation that wasn’t – didn’t have a lot of food.
+ - Life is not life unless you make mistakes.
+ - I don’t seek to be in the tabloids but I suppose sometimes I go out and I’m wearing something and they take a picture and it’s in.
+ - I think health is another exceedingly important thing.
+ - I do it because I love acting, I love working, and whether it’s radio, television, films, theater, I don’t care as long as I can get out there and do it.
+ - I don’t believe in dieting.
+ - Every time an article is written about me or any of my contemporaries who’s had the fortune and discipline to look good at a certain age, I am struck by the tone of astonishment, and the certainty that something is being done secretively to beat the devil.
+ - I was thinking, who of the English actresses in the last 30 or 40 years have achieved as much as I have?
+ - I don’t know why people are so obsessed with age anyway. I mean, 90 is the new 70 70 is the new 50 and 50 is the new 40 so the whole act-your-age thing? Only up to a point.
+ - No, that’s what I think God does to you. He gives you some great gig in which you make a whole heap of money, and you’re just on top of the world and on every magazine cover, but your personal life is miserable. And for most of that time, I have to say, my personal life was pretty miserable.
+ - You can’t help getting older, but you can help yourself from becoming old and infirm, in mind as well as body.
+ - Yes, I love playing cartoony characters. Been known for that.
+ - My mother use to call me ‘Miss Perpetual Motion’ because I rarely keep still.
+ - I think, Larry, one of the things is I’m a very active person.
+ - I am a fan of marriage and a fan of being committed to the right person.
+ - The sad truth is that most of my husbands turned out to be convincing liars.
+ - I have always tried to live my life with enthusiasm and pleasure.
+ - And I kissed a lot of frogs as well, but no, I kissed a lot of frogs and now I’ve found my prince.
+ - I’m older than my sister so I started writing first. I started writing at school. I was always top of my class in composition, essays, English Lit and all of that.
+ - Isn’t three quarters of life a guilty pleasure?
+ - I think you always have to use certain parts of yourself in any role.
+ - I’ve never chased fame. I came into this business to be a theatre actress. I was nine when I first appeared on stage. But I can’t say I would turn my back on fortune. I’m someone who enjoys the benefits of money.
+ - And sometimes when I would get in the morning, when we’d go out – we’d see shrapnel and bits of stuff in the streets and bombed buildings, and – but I was evacuated a lot. Every time the blitz got heavy, my parents would take us off to the country.
+ - It’s just something that I like, and I also don’t buy into the ageism theory.
+ - Well I’ve written four beauty books as well.
+ - I have girlfriends who’ve had Botox and been left with lumps in their faces. And the lips, don’t even get me started.
+ - And the truth is I’ve always taken very good care of my skin, and always, always worn make-up.
+ - But I have had to give up certain things in my life. One is shopping. Two is lunch with the girls. Three is cocktail parties, and four is studying my lines.
+
+121 quotes

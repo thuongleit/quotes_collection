@@ -1,0 +1,56 @@
+ - It is well, when in difficulties, to say never a word, neither black nor white. Speech is silver but silence is golden.
+ - One’s prime is elusive. You little girls, when you grow up, must be on the alert to recognize your prime at whatever time of your life it may occur. You must then live it to the full.
+ - Beware the ire of the calm.
+ - These years are still the years of my prime. It is important to recognise the years of one’s prime, always remember that.
+ - To me education is a leading out of what is already there in the pupil’s soul.
+ - I’m old-fashioned beyond my years.
+ - Being in love is something like poetry. Certainly, you can analyze and expound its various senses and intentions, but there is always something left over, mysteriously hovering between music and meaning.
+ - The sacrifice of pleasures is of course itself a pleasure.
+ - You look for one thing and you find another.
+ - I see no reason to keep silent about my enjoyment of the sound of my own voice as I work.
+ - Final perseverance is the doctrine that wins the eternal victory in small things as in great.
+ - Beware of men bearing flowers.
+ - Parents learn a lot from their children about coping with life.
+ - She wasn’t a person to whom things happen. She did all the happenings.
+ - A rebellion against a tyrant is only immoral when it hasn’t got a chance.
+ - Art and religion first; then philosophy; lastly science. That is the order of the great subjects of life, that’s their order of importance.
+ - Frankness is usually a euphemism for rudeness.
+ - Allow me, in conclusion, to congratulate you warmly upon your sexual intercourse, as well as your singing.
+ - One should only see a psychiatrist out of boredom.
+ - It is one of the secrets of Nature in its mood of mockery that fine weather lays heavier weight on the mind and hearts of the depressed and the inwardly tormented than does a really bad day with dark rain sniveling continuously and sympathetically from a dirty sky.
+ - Goodness, Truth and Beauty come first.
+ - Ridicule is the only honorable weapon we have left.
+ - The word “education” comes from the root e from ex, out, and duco, I lead. It means a leading out. To me education is a leading out of what is already there in the pupil’s soul.
+ - It isn’t necessarily the great and famous beauty spots we fall in love with. As with people, so with places. Love is unforeseen, and we can all find ourselves affectionately attached to the minor and the less obvious.
+ - Looking forward to going home, I was necessarily looking backward.
+ - It is impossible to persuade a man who does not disagree, but smiles.
+ - Fiction to me is a kind of parable. You have got to make up your mind it’s not true. Some kind of truth emerges from it, but it’s not fact.
+ - So great was the noise during the day that I used to lie awake at night listening to silence.
+ - Give me a girl at an impressionable age and she is mine for life.
+ - Death, when it approaches, ought not to take one by surprise. It should be part of the full expectancy of life. Without an ever-present sense of death life is insipid.
+ - If you choose the sort of life which has no conventional pattern you have to try to make an art of it, or it is a mess.
+ - I often wonder if we were all characters in one of God’s dreams.
+ - It is difficult for people of advanced years to start remembering they must die. It is best to form the habit while young.
+ - Let us run up debts. One is nobody without debts.
+ - It’s a whydunnit in q-sharp major and it has a message: never talk to the sort of girls that you wouldn’t leave lying about in your drawing-room for the servants to pick up.
+ - I was just as anxious to prevent injustice as to cause justice.
+ - We often laughed at others in our house, and I picked up the craft of being polite while people were present and laughing later if there was anything to laugh about.
+ - People who quoted the Scriptures in criticism of others were terrible bores and usually they misapplied the text. One could prove anything against anyone from the Bible.
+ - New York, home of the vivisectors of the mind, and of the mentally vivisected still to be reassembled, of those who live intact, habitually wondering about their states of sanity, and home of those whose minds have been dead, bearing the scars of resurrection.
+ - I am a hoarder of two things: documents and trusted friends.
+ - I never trust the airlines from those countries where the pilots believe in the afterlife. You are safer when they don’t.
+ - The one certain way for a woman to hold a man is to leave him for religion.
+ - Contradictions in human character are one of its most consistent notes...
+ - Neurotics are awfully quick to notice other people’s mentalities...
+ - If you’re going to do a thing, you should do it thoroughly. If you’re going to be a Christian, you may as well be a Catholic.
+ - There was altogether too much candor in married life; it was an indelicate modern idea, and frequently led to upsets in a household, if not divorce...
+ - The words of the double-tongued are as if they were harmless, but they reach even to the inner part of the bowels. Praise be to the Lord, who distinguishes our cause and delivers us from the unjust and deceitful man.
+ - Nothing can be more puritanical in application than the virtues.
+ - Interviews can be stimulating. It depends on the intelligence of the interviewer.
+ - I have a great desire to make people smile – not laugh. Laughter is too aggressive. People bare their teeth.
+ - No medicine man these days can afford to be without a portable tape recorder. Without the aid of this modern device, which may be easily concealed in the undergrowth of the jungle, the old tribal authority will rapidly become undermined by the mounting influenece of modern skepticism.
+ - No mind should submit their mind to another mind He that complies against his will is of his own opinion still – that’s my motto. I won’t be brainwashed.
+ - I wouldn’t take the Pope too seriously. He’s a Pole first, a pope second, and maybe a Christian third.
+ - The true novelist is one who understands the work as a continuous poem, is a myth-maker, and the wonder of the art resides in the endless different ways of telling a story.
+
+54 quotes

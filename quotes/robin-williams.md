@@ -1,0 +1,289 @@
+ - I used to think the worst thing in life is to end up all alone. It’s not. The worst thing in life is to end up with people who make you feel all alone.
+ - No matter what anybody tells you, words and ideas can change the world.
+ - You're only given a little spark of madness. Don't lose it.
+ - You will have bad times, but they will always wake you up to the stuff you weren't paying attention to.
+ - Seize the day. Make your life extraordinary.
+ - Don’t associate yourself with toxic people. It’s better to be alone and love yourself than surrounded by people that make you hate yourself.
+ - Please, don’t worry so much. Because in the end, none of us have very long on this Earth. Life is fleeting.
+ - Make your life spectacular, I know I did.
+ - If you listen real close, you can hear them whisper their legacy to you. Go on, lean in. Listen, you hear it? Carpe diem, seize the day boys, make your lives extraordinary.
+ - Don’t mess with me, man, I’m a lawyer!
+ - There’s no shame in failing. The only shame is not giving things your best shot.
+ - You treat a disease, you win, you lose. You treat a person, I guarantee you, you’ll win, no matter what the outcome.
+ - There are no rules. Just follow your heart.
+ - Comedy is acting out optimism.
+ - But poetry, beauty, romance, love, these are what we stay alive for.
+ - Cocaine is God’s way of telling you you are making too much money.
+ - Kid, if You Need Booze or Drugs to Enjoy Your Life to the Fullest, You’re Doing It Wrong.
+ - The things we fear the most have already happened to us.
+ - The human spirit is more powerful than any drug and THAT is what needs to be nourished: with work, play, friendship, family. THESE are the things that matter.
+ - I’m sorry, if you were right, I’d agree with you.
+ - But only in their dreams can men be truly free. It was always thus and always thus will be.
+ - If we’re going to fight a disease, let’s fight one of the most terrible diseases of all, indifference.
+ - You know what music is? God’s little reminder that there’s something else besides us in this universe; harmonic connection between all living beings, every where, even the stars.
+ - I’m history! No, I’m mythology! Nah, I don’t care what I am, I’m free!
+ - Our job is improving the quality of life, not just delaying death.
+ - Real loss is only possible when you love something more than you love yourself.
+ - Self-reliance is the key to a vigorous life. A man must look inward to find his own answers.
+ - If you’re that depressed, reach out to someone. And remember, suicide is a permanent solution, to a temporary problem.
+ - I always thought the idea of education was to learn to think for yourself.
+ - Avoid using the word ‘very’ because it’s lazy. A man is not very tired, he is exhausted. Don’t use very sad, use morose. Language was invented for one reason boys – to woo women – and in that endeavor, laziness will not do.
+ - Seize the day. Because, believe it or not, each and every one of us in this room is one day going to stop breathing, turn cold, and die.
+ - We don’t read and write poetry because it’s cute. We read and write poetry because we are members of the human race.
+ - The Statue of Liberty is no longer saying, ‘Give me your poor, your tired, your huddled masses.’ She’s got a baseball bat and yelling, ‘You want a piece of me?’
+ - I stand upon my desk to remind myself that we must constantly look at things in a different way.
+ - Politics: Poli a Latin word meaning many and tics meaning bloodsucking creatures.
+ - She is not perfect. You are not perfect. The question is whether or not you are perfect for each other.
+ - I try to make sense of things. Which is why, I guess, I believe in destiny. There must be a reason that I am as I am. There must be.
+ - Good people end up in Hell because they can’t forgive themselves.
+ - There’s a time for daring and there’s a time for caution, and a wise man understands which is called for.
+ - My favorite thing to do is ride a bicycle. I ride road bikes. And for me, it’s mobile meditation.
+ - There’s a world out there. Open a window, and it’s there.
+ - Change is not popular; we are creatures of habit as human beings. ‘I want it to be the way it was.’ But if you continue the way it was there will be no ‘is.’
+ - For a while you get mad, then you get over it.
+ - Boys, you must strive to find your own voice, because the longer you wait to begin the less likely you are to find it at all.
+ - We were romantics. We didn’t just read poetry. We let it drip from our tongues like honey. Spirits soared. Women swooned, and gods were created, gentlemen. Not a bad way to spend an evening, eh?
+ - The truth is, if anything, I’m probably addicted to laughter.
+ - You don’t need cocaine! There’s another way to get real high, and really mess your mind up, it’s called marathon running!
+ - Texting and driving at the same time is like jerking off and juggling at the same time. Too many balls in the air, if you catch my drift.
+ - Nobody takes a picture of something they want to forget.
+ - When you create you get a little endorphin rush. Why do you think Einstein looked like that?
+ - What’s right is what’s left if you do everything else wrong.
+ - When my friends and I played cowboys and Indians, I was always the Chinese railroad worker.
+ - What’s true in our minds is true, whether some people know it or not.
+ - I thought lacrosse was what you find in la church.
+ - What some folks call impossible is just stuff they haven’t seen before.
+ - If women ran the world we wouldn’t have wars, just intense negotiations every 28 days.
+ - Mr. Keating: Carpe Diem! Sieze the day!
+ - You have to break in half to love somebody.
+ - If I could light my own farts I could fly to the moon or at least Uranus.
+ - Sometimes it’s more noble to tell a small lie than to deliver a painful truth.
+ - All you have to do is think one happy thought, and you’ll fly like me.
+ - I know size can be daunting but don’t be afraid.
+ - If you don’t keep pushing the limits, you wake up one day and you’re the “center square to block.”
+ - Terrible wars have been fought where millions have died for one idea – freedom. And it seems that something that means so much to so many people would be worth having.
+ - All the new people you meet, it’s pretty amazing. The vampire needs new blood. And there is still a lot to learn and there is always great stuff out there. Even mistakes can be wonderful.
+ - Be prepared for luck.
+ - I’m looking for Miss Right, or at least Miss Right Now.
+ - Why do they call it rush hour when nothing moves?
+ - Freud: If it’s not one thing, it’s your mother.
+ - Comedy can be a cathartic way to deal with personal trauma.
+ - My childhood was really nice. My parents never forced me to do anything; it was always, “If you want to do that, fine.” When I told my father I was going to be an actor, he said, “Fine, but study welding just in case.”
+ - They say our mothers really know how to push our buttons – because they installed them.
+ - No man is an island; but some are peninsulas.
+ - I was once on a German talk show, and this woman said to me, ‘Mr. Williams, why do you think there is not so much comedy in Germany?’ And I said, ‘Did you ever think you killed all the funny people?’
+ - Reality: What a concept!
+ - We used to be hunter-gatherers, now we’re shopper-borrowers.
+ - I had sex with a prostitute when I was 21, I was so bad, she gave me a refund.
+ - Go pump some neurons. Expand your craniums.
+ - I’m an Episcopal, which is Catholic Lite. It’s like same religion, half the guilt.
+ - People say satire is dead. It’s not dead; it’s alive and living in the White House.
+ - To be acknowledged for who and what I am, no more, no less. Not for acclaim, not for approval, but, the simple truth of that recognition. This has been the elemental drive of my existence, and it must be achieved, if I am to live or die with dignity.
+ - People say that I’m a tree hugger, but I do a lot more than hug trees. I like having my drinking water without faecal matter, that’s really nice. Or acceptable levels of strychnine. I’m an air breather, I’ve gotten used to that over the years.
+ - You appreciate little things, like walks on the beach with a defibrillator.
+ - The little idiosyncrasies that only I know about: that’s what made her my wife. Oh she had the goods on me too, she knew all my little peccadilloes. People call these things imperfections, but they’re not. Ah, that’s the good stuff!
+ - I went to rehab for alcoholism in wine country, just to keep my options open.
+ - Canada is like a loft apartment over a really great party.
+ - You’re going to the cemetery with your toothbrush. How Egyptian.
+ - The sort of liveliness which increases with age is not far distant from madness.
+ - They’re talking about partial nuclear disarmament, which is also like talking about partial circumcision – you either go all the way or forget it.
+ - There are times when life’s just real quiet and simple. I sometimes get tired of people saying, “Well, what are you really like?”
+ - When I’m riding my bicycle I feel like a Buddhist who is happy just to enjoy his mundane existence.
+ - Improv. Sometimes it works, sometimes it doesn’t, but when it does, it’s like open-field running.
+ - Being in the same room with people and creating something together is a good thing.
+ - Reality is just a crutch for people who can’t cope with drugs.
+ - It’s hotter than a snake’s ass in a wagon rut.
+ - In England, if you commit a crime, the police don’t have a gun and you don’t have a gun. If you commit a crime, the police will say ‘Stop, or I’ll say stop again.’
+ - Carpe per diem – seize the check.
+ - Mickey Mouse to a three-year-old is a six-foot-tall RAT!
+ - You know what music is – a harmonic connection between all living beings.
+ - Spring is nature’s way of saying, ‘Let’s party!’
+ - Whenever a big white man picks up a banjo, my cheeks tighten.
+ - Shakespeare said, “Kill all the lawyers.” There were no agents then.
+ - It’s a wonderful feeling when your father becomes not a god but a man to you – when he comes down from the mountain and you see he’s this man with weaknesses. And you love him as this whole being, not as a figurehead.
+ - With a bike you go from zero to a hundred in terms of mobility.
+ - I had to stop drinking alcohol because I used to wake up nude in front of my car with my keys in my ass.
+ - When I was growing up they used to say, “Robin, drugs can kill you.” Now that I’m 58 my doctor’s telling me, “Robin, you need drugs to live.” I realize now that my doctor is also my dealer...
+ - As an alcoholic, you will violate your standards quicker than you can lower them.
+ - Golf is a game where white men can dress up as black pimps and get away with it.
+ - In the dictionary under redundant it says see redundant.
+ - Taking Viagra after open heart surgery is like a Civil War re-enactment with live ammo. Not good.
+ - Cricket is basically baseball on valium.
+ - Women are wonderful. They’re amazing creatures. You can never learn enough! They’re addicting in the most amazing sense.
+ - You need a touch of madness, just enough that you don’t become stupid!
+ - Gentlemen, haven’t we learned anything from the music of John Lennon? All we need is love.
+ - Sucking the marrow out of life doesn’t mean choking on the bone.
+ - Never pick a fight with an ugly person, they’ve got nothing to lose.
+ - I stopped drinking when I had children because I wanted to be awake and aware. I did not want to be going, you know, daddy loves you and then drop my head on the table. I do not want to miss anything that they do or say. It is important to me.
+ - Being a famous print journalist is like being the best-dressed woman on radio.
+ - Being alone onstage is like legalized insanity.
+ - I don’t have a college degree, and my father didn’t have a college degree, so when my son, Zachary, graduated from college, I said, “My boy’s got learnin’!”
+ - I only ever play Vegas one night at a time.
+ - Sometimes you got to specifically go out of your way to get into trouble. It’s called fun.
+ - Three wishes – no substitutes, exchanges or refunds.
+ - In America, they really do mythologize people when they die.
+ - Ballet: men wearing pants so tight that you can tell what religion they are.
+ - There’s three things in this world that you need: Respect for all kinds of life, a nice bowel movement on a regular basis, and a navy blazer.
+ - Look at the walls of Pompeii. That’s what got the internet started.
+ - The great thing about marriage is the idea of really getting to know someone. And really getting to know a woman is a life long task.
+ - Never go to Pluto, it’s a Mickey Mouse planet.
+ - Compassionate conservative, that’s like having a gun rack on a Volvo.
+ - I couldn’t imagine living the way I used to live. Now people come up to me from the drug days and go, ‘Hi, remember me?’ And I’m going, ‘No, did I have sex with you? Did I take a dump in your tool box?’
+ - See what I mean? You gotta be crazy. Ain’t no time to be sane.
+ - If you can remember the sixties, you weren’t there.
+ - We’re not laughing at you – we’re laughing near you.
+ - Divorce is expensive. I used to joke they were going to call it ‘all the money,’ but they changed it to ‘alimony.’ It’s ripping your heart out through your wallet.
+ - It’s cheaper to keep her.
+ - Come on now! You kick out the gooks, the next thing you know, you have to kick out the chinks, the spicks, the spooks, the kikes and all that’s going to be left is a couple of brain-dead rednecks.
+ - A human life is just a heartbeat in heaven.
+ - Friends come in all sizes, take it from me! Golly gee, size doesn’t matter, when you want some friendly patter from a pal who is true.
+ - You might say he was one taco short of a combination platter.
+ - If you want to die, don’t make a mistake and not quite kill yourself because the medical bills in America are hideous.
+ - You’d think all of these “atypical” somethings would add up to a typical something.
+ - I was an only child. I did have kind of like a lonely existence.
+ - Men may have wars, but women have their period. Men go off and kill each other, but women say nasty things, which is even better.
+ - Even mistakes can be wonderful.
+ - There was an old, crazy dude who used to live a long time ago. His name was Lord Buckley. And he said, a long time ago, he said, ‘People – they’r e kinda like flowers, and it’s been a privilege walking in your garden.’ My love goes with you.
+ - We had gay burglars the other night. They broke in and rearranged the furniture.
+ - You know the difference between a tornado and divorce in the south? Nothing! Someone is losing a trailer.
+ - Is it rude to Twitter during sex? To go “omg, omg, wtf, zzz”? Is that rude?
+ - How much more can you give? Other than, literally, open-heart surgery onstage? Not much. But the only cure you have right now is the honesty of going, this is who you are. I know who I am.
+ - Keith Richards is the only man who can make the Osbournes look Amish.
+ - The French don’t have a baseball team. And if they did, there’d only be a left field, and no one would be safe.
+ - Death – to blink for an exceptionally long period of time.
+ - 2020. There’ll be cold fusion. We’ll actually be able to power our cars with our own feces. That’s right. The emissions problem will be a little intense, but just light a match.
+ - A woman would never make a nuclear bomb. They would never make a weapon that kills, no, no. They’d make a weapon that makes you feel bad for a while.
+ - I was a serious method actor until I visited this site.
+ - My father retired to San Francisco, and I got a chance to know him and be around him. It’s always been someplace where everything changed for the better. It’s always been a home for me.
+ - Clouds are like boogers hanging on the nostrils of the moon.
+ - Cocaine for me was a place to hide. Most people get hyper on coke. It slowed me down. Sometimes it made me paranoid and impotent, but mostly it just made me withdrawn.
+ - The Second Amendment says we have the right to bear arms, not to bear artillery.
+ - I do believe in love; it’s wonderful – especially love third time around, it’s even more precious; it’s kind of amazing.
+ - If I ever asked you about love, you’d probably quote me a sonnet. But you’ve never looked a woman and been totally vulnerable.
+ - We’ve had cloning in the South for years. It’s called cousins.
+ - The meek may inherit the earth, but they don’t get in to Harvard.
+ - My battles with addiction definitely shaped how I am now. They really made me deeply appreciate human contact. And the value of friends and family, how precious that is.
+ - Even evangelicals realize that Pinocchio’s father was a carpenter too. That’s the old joke.
+ - I like my wine like my women – ready to pass out.
+ - What kind of man gives cigarettes to trees.
+ - Do you get the feeling with Sarah Palin, in high school, she was voted least likely to write a book and most likely to burn one?
+ - My favorite is when you go to Afghanistan and you meet the special forces guys, and they look like these heavily armed surfers. These guys are the best. You see guys dressed as full Afghans, but then wearing a Yankees hat.
+ - Just now when I said, “I have a crush on you,” you didn’t say, “no way loser”. I’d rather have a lobotomy by a leper. That means something.
+ - In down times I do things like go for a long bike ride or run. The other thing I’m doing in that quiet time is just observing.
+ - Crying never helped anybody do anything, okay? You have a problem you face it like a man.
+ - I feel like I’m a big human snot.
+ - Sometimes you can have a whole lifetime in a day and never notice that this is a beautiful as it gets.
+ - I play a lot of computer games. I love computer graphics. I’ve had Pixar in me for a long time.
+ - Shooting in New York is the shiznit, if I may be so bold. It was great. New York is a character. People who live here know that.
+ - I don’t do well with snakes and I can’t dance.
+ - Gradual school is where you go to school and you gradually find out you don’t want to go to school anymore.
+ - Being a functioning alcoholic is kind of like being a paraplegic lap dancer – you can do it, just not as well as the others, really.
+ - The Chinese had accused the Tibetans of being terrorists, which is weird. A Tibetan terrorist is like an Amish hacker. It just doesn’t fit.
+ - I met Jonah Lomu. I never knew how huge he was. I felt like a peasant in a Godzilla movie. ‘Quickly! Tell the other villagers! We go now!’
+ - My mother’s idea of natural childbirth was giving birth without makeup. She was hyper-positive – the world is a wonderful place, rainbows and unicorns. If you said anything contrary to her, you were basically exiled.
+ - On stage you’re free. You can say and do things that if you said and did any place else, you’d be arrested.
+ - The Russians love Brooke Shields because her eyebrows remind them of Leonid Brezhnev.
+ - I think it’s great when stories are dark and strange and weirdly personal.
+ - Comedy is there to basically show us we fart, we laugh, to make us realize we still are part animal.
+ - The dramas for me allow me to explore more behavioral, deeper psychological things. But the comedies obviously allow me to explore the idea of really working off other people. I’m having more fun doing that.
+ - The only weapon we have is comedy.
+ - Bicycles are pieces of art. You get that combination of kinetic engineering, but then, besides the welds, the paint jobs, the kind of the sculpture of it all is quite beautiful. Bikes have such great lines, and all different styles.
+ - Acting is different from stand-up. It gives you this ability to enter into another character, to create another person.
+ - I love being backstage, or doing littler things like Blame Canada.
+ - And some people say Jesus wasn’t Jewish. Of COURSE he was Jewish! 30 years old, single, lives with his parents, come on! He works in his father’s business, his mom thought he was God’s gift, he’s Jewish! Give it up!
+ - I’m a very tolerant man, except when it comes to holding a grudge.
+ - When the Williams sisters play tennis, it gets pretty hot. When they start grunting, I’m in.
+ - It was kind of a decompression – from straight alcohol to mixed drinks to wine to spritzers – and then you’re out.
+ - When you look at Prince Charles, don’t you think that someone in the Royal family knew someone in the Royal family?
+ - The idea of having a steady job is appealing.
+ - That’s the formaldehyde. That’s why Granny’s so well-preserved.
+ - I used food to make myself feel better, but I felt worse when I ate.
+ - I always wanted to play a big, black man, but that would cost too much make-up.
+ - If there was a pill that allowed you to drink and not get drunk, an alcoholic would go What happens if you take two?
+ - Canadian money is also called the loony. How can you take an economic crisis seriously?
+ - My religious background is that my mother is a Christian Dior Scientist.
+ - I have no desire to go anywhere near drugs. People say, “Aren’t you tempted?” No, because of the ridiculousness of it.
+ - What is this demilitarized zone? Whatever it is, I like it! Gets you on your toes better than a strong cup of cappuccino.
+ - You have this idea that you’d better keep working otherwise people will forget. And that was dangerous. And then you realize, no, actually if you take a break people might be more interested in you.
+ - It’s frightening and exhilarating. It’s like combat. Look at the metaphors: You kill when it works; you die when it doesn’t.
+ - Okra is the closest thing to nylon I’ve ever eaten. It’s like they bred cotton with a green bean. Okra, tastes like snot. The more you cook it, the more it turns into string.
+ - You’re best when you’re not in charge. The ego locks the muse.
+ - My comedy is like emotional hang-gliding.
+ - It doesn’t matter who you are, if you’ve got the legs, you can hang with them.
+ - Stand-up is the place where you can do things that you could never do in public.
+ - If heaven exists, to know that there’s laughs, that would be a great thing...
+ - I learned that by being entertaining you make a connection with another person.
+ - You’re still young. Being a true loser takes years of inaptitude.
+ - Women have so many levels. There’s the physical level, which is a lot of fun. There’s this emotional level, which is extremely mercurial.
+ - Ronald Reagan is the world’s largest Muppet.
+ - Politics is so personal, vicious and immediate, how are you going to get anything done? Even the local politics where I live have gotten so ugly.
+ - It’s always great when you want scientific fact to get a really good science fiction writer to talk to you about it.
+ - It’s that idea that you can have one drink – and no you can’t. Within a week I was drinking heavily. It was so quick that even I was like, ‘Wow.’
+ - There’s no question this is where I want to live. Never has been.
+ - If you’re going to do a movie about the Village, it’s pretty nice to shoot in the village and not be in Toronto.
+ - It is hard to find something where you can go off as much as I do in stand-up, but I think stand-up allows me that freedom where you can really go off and have a good time.
+ - I can be trained, I can actually show you how intelligent I am, I can use a word like delicatessen and know what it means.
+ - I love to ride my bike, which is great aerobics, but also just a great time for me to think, so it’s like this terrific double bill.
+ - Dreams don’t deal in time. Time doesn’t count.
+ - I don’t practice anything. I spend time looking over ideas and then just get out and do it.
+ - His golf bag does not contain a full set of irons.
+ - A woman wouldn’t make a bomb that kills you. A woman would make a bomb that makes you feel bad for a while. That’s why there should be a woman President. There’d never be any wars, just every twenty-eight days there’d be very intense negotiations.
+ - With mountain biking, it’s always that constant thing, negotiating singletrack, which I like, but for a road ride that rhythm is really Buddhist. When you get a good pedal stoke, it’s that thing of everything works.
+ - Sometimes with a comedy it’s just having the instinct of how real you play it and what level you want it.
+ - I never performed on drugs. That’d be stupid. It’s the same thing with athletes. They can’t perform when they have cocaine problems.
+ - I enjoy that, and the idea of doing small things over a period of time. I think there are certain things you can do for water control in America, because that will be our most precious resource. In America, you pay more for water than you do for gas.
+ - Jamie Kilstein is amazing and I will be spreading the word. He has the spark that energized my conscience. We need more comedians kicking it hard the way he does every night.
+ - It never fails – you get in the bath and there’s a rub at the lamp.
+ - In California, we are a sixty percent Hispanic state, we elected an Austrian governor. Even old Nazis are going That’s weird.
+ - If we were interested in making money, we wouldn’t have become teachers.
+ - Cable is not bound because people pay for it. It’s literally a choice, that’s the operative word. If you don’t like the language, if cocksucker offends you, then turn it off.
+ - A place where we all go can’t be bad.
+ - When the media ask George W. Bush a question, he answers, ‘Can I use a lifeline?’
+ - My first day as a woman and I am already having hot flushes.
+ - Women are incredibly intuitive. If anybody on the planet is going to evolve to the next level, that telekinetic thing, women will.
+ - I prefer to be handcuffed at home. The idea of voice work to me is great fun, especially when it’s a chance to do two different voices.
+ - I’ve always improvised, and stand-up was this great release. All of a sudden, it was just me and the audience.
+ - I love kids, but they are a tough audience.
+ - My God, look at the size of this man! Quick! Tell the other villagers we’re going back to the boats!
+ - My children give me a great sense of wonder. Just to see them develop into these extraordinary human beings.
+ - My preference is live performance, because you get the feedback. There’s an energy. It’s live theater. That’s why I think actors like that.
+ - I just want to do movies, and I want to sell them. I don’t want to link up with some product.
+ - Anything that is not funny at a certain point will be funny.
+ - You’ll notice that Nancy Reagan never drinks water when Ronnie speaks.
+ - The entire world will be in nuclear war, and only the Swiss will be going, ‘what’s that noise?’
+ - I’ve actually gone to the zoo and had monkeys shout to me from their cages, “I’m in here when you’re walking around like that?”
+ - People would say I never censor. As Billy Crystal says, ‘I don’t have that button.’
+ - What’s my credibility? Why are they looking to me for advice? Isn’t there someone more qualified?
+ - Humor is a great defense, and an offense too. Usually the recipient isn’t too happy about it, but the people around are laughing.
+ - I want everyone out there in TV land to touch the TV. Touch the back of the TV and get a shock for Jesus.
+ - Gentiles are people who eat mayonnaise for no reason.
+ - Most of all, I want to thank my father, up there, the man who when I said I wanted to be an actor, he said, ‘Wonderful. Just have a back-up profession like welding.’
+ - You can start any ‘Monty Python’ routine and people finish it for you. Everyone knows it like shorthand.
+ - Women! Can’t live with ’em, can’t live with ’em!
+ - Comedy pays the bills if I can’t find a film.
+ - When you have a great audience, you can just keep going and finding new things.
+ - Incoming is not the thing you want to hear at Christmas.
+ - Explore an idea until you’ve exhausted it, really go to all the different parameters of it.
+ - Stand-up is the place where you can do things that you could never do in public. Once you step on stage you’re licensed to do that. It’s an understood relationship. You walk on stage – it’s your job.
+ - Before the Web, there was just one guy running around saying ‘I KNOW!’
+ - I’ve never had a “hankering” to direct. I can perform, but I can’t write on that level. I tend to go off on tangents. Directing also requires a kind of specificity and I don’t have it.
+ - Even when I did my Broadway show, I did 15 minutes no one had seen before, because that was the night that Michael Jackson protested about Al Sharpton bailing on him. I said, “Wow, if that man bails on you, this must be really a lost cause.”
+ - The first time I tried organic wheat bread, I thought I was chewing on roofing material.
+ - Along with the Oscars, the Academy is giving out a green card.
+ - We have a president for whom English is a second language. He’s like ‘We have to get rid of dictators,’ but he’s pretty much one himself.
+ - I want to do a movie, but it has to be the right movie, whether it’s independent or a studio movie. I’m much more open to being a supporting actor. At the age of 60, I’ll be second fiddle. Fine. I’m happy to do it.
+ - You have an internal critic, an internal drive that says, ‘OK, you can do more.’ Maybe that’s what keeps you going.
+ - Having George W. Bush giving a lecture on business ethics is like having a leper give you a facial, it just doesn’t work!
+ - I started doing comedy because that was the only stage that I could find. It was the pure idea of being on stage. That was the only thing that interested me, along with learning the craft and working, and just being in productions with people.
+ - To make fun of an administration, to make fun of anything, Mark Twain said, is the last defense of democracy.
+ - Montovani? They play Montovani to insomniacs that don’t respond to strong drugs.
+ - The idea of being a character who is kind of isolated, I can relate to that.
+ - When I find out a hotel doesn’t have a DSL, it’s like “What? There’s no toilet?” Once you get used to high speed you ain’t going back.
+ - I love doing live action movies, but there’s a great job in doing animation, especially one with music.
+ - As intellectual as we think we are, you still trip, we still have human foibles, sexuality, all the different things to still make you aware of your humanity.
+ - When you really do find a new idea or you’re in and it’s all working, that’s the gift. It’s like a musician when they hit a riff, that’s when you’re like all right, it’s mellow. You back off and just ride it.
+ - It’s the same sex all the time.
+ - If it’s the Psychic Network why do they need a phone number?
+ - Some are born great. Some achieve greatness. Some get it as a graduation gift.
+
+287 quotes

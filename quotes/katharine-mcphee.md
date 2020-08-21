@@ -1,0 +1,35 @@
+ - I truly believe that God provides.
+ - Your traditions change from when you a child to when you become an adult.
+ - I think we all depend on a significant other, and we think if they leave me, I’ll die. But that’s not true. We’re all much stronger than we think we are.
+ - Everyone has that inner voice, the one that’s a Negative Nancy. I’d say to ignore that voice and to be confident and follow your heart.
+ - I was a competitive swimmer in middle school and high school.
+ - I love listening to classical music.
+ - Apply loose powder on top of the foundation under your eyes, so if a little shadow spills, it’s easier to wipe off.
+ - I’m really more of a jeans and T-shirt kind of a girl.
+ - I don’t have to be a ‘gazillionaire;’ what’s important to me is to just being able to work.
+ - I don’t really dress up for Halloween.
+ - I love the spirit of Halloween and the energy that comes with it.
+ - I feel like I’ll always be a brunette, that’s just who I am, but I love that I can switch it up and be whatever I want to be.
+ - The reason I haven’t had kids yet is because I was so focused on my acting career, hoping I could get something to break.
+ - I have an amazing relationship with food.
+ - If you deprive yourself of something, you’re going to want it more.
+ - Entertainment is such a non-reality.
+ - You know I don’t have any gimmicks really. I don’t have any silly things that I say; I don’t know, I guess I’m just going to have a really hot dress and a nice pair of shoes and just go out there and look fabulous and try to sing my best.
+ - I’m a horrible drawer. I have no artistic ability in my hands.
+ - My fondest memories are generally the day after Thanksgiving. I get the total decorating Christmas itch.
+ - I get the celebrity game now – you can go from being hot to fighting to be seen.
+ - Broadway is a definite symbol of New York. It’s classic New York.
+ - I have always loved the Summer Olympics.
+ - I grew up in dance class, so I was looking in mirrors all day.
+ - I am just the person who didn’t want to settle for not having everything I dreamed of.
+ - Marriage gives you a new respect for a person.
+ - One thing I learned about people is that they love to give their opinions about things.
+ - Christmas is a time of year that’s so romantic.
+ - I have family members who live in Africa. Because of the family that lives there, I know what is happening in these countries, and it seems so silly to me that diseases like malaria are so prevalent when they are entirely preventable. Yet children are still dying every 35 seconds.
+ - America is a country with so much opportunity. I’m living the blessings of what this country offers.
+ - I’m not one to go on blogs and things like that, but we do have our own personal Twitter profiles, so we get a lot of tweets, and they are pretty passionate. It’s fun. I like it.
+ - The thing is, work is the thing I love the most.
+ - Even if I weren’t in Hollywood, I would feel pressure to look a certain way.
+ - I wish I could wear clothes straight off the runway.
+
+33 quotes

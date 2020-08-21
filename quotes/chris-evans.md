@@ -1,0 +1,49 @@
+ - I decided to make ‘Captain America’ because I realized I wasn’t doing the film because it terrified me. You can’t make decisions based on fear.
+ - I’m reminded of who I am, who I was, and who I’m supposed to be.
+ - The point is that when I see a sunset or a waterfall or something, for a split second it’s so great, because for a little bit I’m out of my brain, and it’s got nothing to do with me.
+ - I emote. I love things so much.
+ - For the youth, the indignation of most things will just surge as each birthday passes.
+ - Lost luggage is just an opportunity to start afresh.
+ - I swear to God, if you saw me when I am by myself in the woods, I’m a lunatic. I sing, I dance.
+ - I like girls who are self-deprecating. I like girls who make fun of themselves. If you can’t poke fun at yourself, what are you? I just want someone with a good soul. That’s about it. The rest I’m really flexible on.
+ - If I do cardio I’ll disappear.
+ - I am single and not looking to be in a relationship.
+ - I’m a big fan of working out on my own. I put my headphones on and I’m pretty good at self-motivating. At the end of the day, I enjoy it. Once I’m there and once I get going, I tend to love it, and I feel good.
+ - If women feel they are able to go from partner to partner without feeling emotionally invested and ultimately hurt, they should go for it.
+ - I always say that the times in my life when I’ve been happiest are the times when I’ve seen, like, a sunset.
+ - I weep at everything. I love things so much – I just never want to dilute that.
+ - You know, the reward for ‘Captain America’ is amazing. It’s always fun to see a giant spectacle film and see the fun stuff – the special effects.
+ - I can handle the craziness some of the time, maybe most of the time. But I know I can’t handle it all of the time.
+ - I don’t know any form of art or entertainment that can affect people the way movies can. I know it sounds ridiculous, but they can change your world. They can change your views.
+ - For a long time all I wanted for Christmas were books about outdoor survival. I was convinced that the woods were calling me. I camped a lot, I took classes. At 18, I told myself if I don’t live in the woods by myself by the time I’m 25, I have failed.
+ - If you want to be around in 10 years you’ve got to do something to differentiate yourself from the pack.
+ - What if I couldn’t handle people’s opinions of me? I know that shouldn’t dictate a person’s degree of peace or happiness in life, but the problem is, I chose a business saturated in judgment.
+ - Every guy I know has some sort of freak injury in their body.
+ - I’ve managed to do movies and still keep a lifestyle where I can go to ballgames, go to a grocery store like everybody else.
+ - I can’t believe I was almost too chicken to play Captain America.
+ - I wish you could see some of the girls I have genuinely had crushes on in my life. They’re not the girls you would assume.
+ - I’ve been lucky enough – well, maybe unlucky enough – to have had a lot of friends who have had their ups and downs. And for an actor, that’s good. Life experience in any regard is good. So I’ve seen a lot and I’ve had my own experiences.
+ - When you do one movie at a time, if one goes crazy and becomes successful, your life changes. But you can step back and catch your breath.
+ - Ferraris are art, but they love being driven.
+ - What does a woman want? More.
+ - The Internet is a big place where a lot of people can voice their opinions, and my mother chooses to pick fights with random people from all over the world who don’t have the nicest things to say about me.
+ - It seems like the studios are either making giant blockbusters, or really super-small indies. And the mid-level films I grew up on, like ‘Back to the Future’ and all those John Hughes movies, the studios aren’t doing. It’s hard to get them on their feet.
+ - I didn’t realize – you think you are doing a movie but then you realize it’s a Columbia Pictures movie so it’s probably going to have some publicity. Then you see a billboard and it’s like, ‘God! I’m on a billboard!’ It doesn’t hit all at once, it kind of unravels itself and it’s still unraveling.
+ - I’m not that great with press sometimes.
+ - I don’t keep a journal.
+ - Men and women aren’t too dissimilar.
+ - Look at pictures of me growing up. It wasn’t always the way it is now. It was a bumpy road for me.
+ - I weep at everything.
+ - I had no idea there were so many ways you could burn yourself out.
+ - Anyone who’s had a tattoo knows once you get your first one, as you’re walking out the door, you’re planning the next.
+ - I used to be in love with Sandra Bullock when I was growing up. Sandy B. was my girl. I remember seeing Speed when I was in seventh grade and just thinking, ‘That’s her.’
+ - I am just enjoying my youth but I want to settle down eventually.
+ - I like wet hair and sweatpants. I like sneakers and ponytails.
+ - Dressing a baby is like putting an octopus into a string bag, making sure none of the arms hang out.
+ - But my happiness in this world – my level of peace – is never going to be dictated by acting.
+ - I can’t see myself pursuing acting strictly outside of what I’m contractually obligated to do.
+ - The comic book world is so dangerous, you know what I mean? You say one thing and people – they’re ravenous – they are very opinionated fans. But they’re great fans.
+ - If your goal is to be the biggest movie star in the world, a 10-movie contract is gold. It was never my goal.
+ - All my good movies, nobody sees.
+
+47 quotes

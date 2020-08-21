@@ -1,0 +1,53 @@
+ - Anytime you see a turtle up on top of a fence post, you know he had some help.
+ - Nobody can do for little children what grandparents do. Grandparents sort of sprinkle stardust over the lives of little children.
+ - Either you deal with what is the reality, or you can be sure that the reality is going to deal with you.
+ - In all of us there is a hunger, marrow-deep, to know our heritage, to know who we are and where we came from.
+ - Racism is taught in our society, it is not automatic. It is learned behavior toward persons with dissimilar physical characteristics.
+ - I wasn’t going to be one of those people who died wondering what if? I would keep putting my dreams to the test – even though it meant living with uncertainty and fear of failure. This is the shadowland of hope, and anyone with a dream must learn to live there.
+ - Racism and hatred are synonymous.
+ - When you start about family, about lineage and ancestry, you are talking about every person on earth.
+ - Beginning writers must appreciate the prerequisites if they hope to become writers. You pay your dues – which takes years.
+ - Every time an old person dies, it’s like a library burning down.
+ - Unless we learn from history, we are destined to repeat it. This is no longer merely an academic exercise, but may contain our worlds fate and our destiny.
+ - You’re always being judged. No matter what you do, it’s not the right thing. If you didn’t become successful, then you’d be pointed at as one of those creatures down their who didn’t take advantage of this or that, who didn’t climb and rise and so forth.
+ - In every conceivable manner, the family is link to our past, bridge to our future.
+ - Your attitude is everything. Believe in yourself and trust your material. To be a successful writer, write every single day where you feel like it or not. Never, never give up, and the world will reward you beyond your wildest dreams.
+ - In my writing, as much as I could, I tried to find the good, and praise it.
+ - I tell younger writers that indeed it is devastating to be rejected. You feel like the bottom dropped out of your world.
+ - We all suffer. If a man’s wise, he learns from it.
+ - The main thing you got to remember is that everything in the world is a hustle.
+ - In all of us there is a hunger, marrow-deep, to know our heritage- to know who we are and where we have come from. Without this enriching knowledge, there is a hollow yearning. No matter what our attainments in life, there is still a vacuum, an emptiness, and the most disquieting loneliness.
+ - When you clench your fist, no one can put anything in your hand.
+ - Early in the spring of 1750, in the village of Juffure, four days upriver from the coast of The Gambia, West Africa, a manchild was born to Omoro and Binta Kinte.
+ - Most of us prefer to be as quiet as possible about giving, because every time it’s publicized that we do something, if it’s something of the nature of giving, we’ll be doubly besieged, and you really get sick of being always criticized no matter what you do.
+ - I can’t feel Irish to save my soul, but it’s a fact.
+ - I think one of the most fascinating things you can do after you learn about your own people is to study something about the history and culture of other people.
+ - My fondest hope is that ‘Roots’ may start black, white, brown, red, yellow people digging back for their own roots. Man, that would make me feel 90 feet tall.
+ - Raw, naked truth exchanged between the black man and the white man is what a whole lot more of is needed in this country – to clear the air of the racial mirages, cliches, and lies that this country’s very atmosphere has been filled with for four hundred years.
+ - Every death is like the burning of a library.
+ - You don’t spend twenty years of your life in the service and not have a warm, nostalgic feeling left in you. It’s a small service, and there’s a lot of esprit de corps.
+ - I think most people when you say slavery tend to see a group of anonymous people pulling cotton sacks in great plantation fields, and that is largely true.
+ - That’s what happens with writing. Ingredients bubble and cook. Material becomes substance.
+ - Roots is not just a saga of my family. It is the symbolic saga of a people.
+ - I look at my books the way parents look at their children. The fact that one becomes more successful than the others doesn’t make me love the less successful one any less.
+ - You have to deal with the fact that your life is your life.
+ - In the bush, trust no one you don’t know.
+ - The way to succeed is never quit. Thats it. But really be humble about it.
+ - Brown people wouldn’t speak to someone who was black.
+ - My parents were teachers and they went out of their way to see to it that I had books. We grew up in a home that was full of books. And so I learned to read. I loved to read.
+ - I don’t know anywhere in the world where there is not racism against somebody.
+ - If you go back to before mankind came out of the cave, there was hatred.
+ - I get interviewed a lot, and I found myself listening to what the interviewer is asking me, I’m analyzing what I’m being asked more than my response.
+ - The anti-blackness has generated new forms of youth involvement in anti-whiteness, which in some cases is appalling.
+ - If you need to know history, the real story of those before you, then you should go to the library and read newspaper clippings of someone like Muhammad Ali every day, then it might giver you some understanding of the man.
+ - Never completely encircle your enemy. Leave him some escape, for he will fight even more desperately if trapped.
+ - Indeed optimists rather than defeatists have produced the results for which serious genealogical research is best known.
+ - You can never enslave somebody who knows who he is.
+ - Tying the little folks with the older folks is a great and powerful tool to preserve and to protect the family and the individual.
+ - Most of the things that are asked of me as a representative black person, would suggest never are we equal Americans.
+ - It’s an hour during the week where you can just slow down.
+ - I know that statistically, it has been proven that there is a tremendous amount of black on black crime within the inner cities.
+ - But then, as far as I know, as far as I’ve studied or heard or picked up, it seems that this type of thing is a curse against mankind.
+ - There was a great deal of inbreeding between the Indians and the slaves. Genetically speaking, black people are some part black, some part European.
+
+51 quotes

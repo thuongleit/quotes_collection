@@ -1,0 +1,198 @@
+ - What makes you different or weird, that’s your strength.
+ - The minute you start caring about what other people think, is the minute you stop being yourself.
+ - Guard your good mood.
+ - If you have a brain, you are obliged to use it.
+ - True freedom is understanding that we have a choice in who and what we allow to have power over us.
+ - The formula of happiness and success is just, being actually yourself, in the most vivid possible way you can.
+ - You don’t have to be famous. You just have to make your mother and father proud of you.
+ - My advice: Don’t waste so much time worrying about your skin or your weight. Develop what you do, what you put your hands on in the world.
+ - The great gift of human beings is that we have the power of empathy, we can all sense a mysterious connection to each other.
+ - I want to feel my life while I’m in it.
+ - The work will stand, no matter what.
+ - I think the best role models for women are people who are fruitfully and confidently themselves, who bring light into the world.
+ - It’s amazing what you can get if you quietly, clearly and authoritatively demand it.
+ - It’s so much easier to be happy. It’s so much easier to choose to love the things that you have, instead of always yearning for what you’re missing, or what it is that you’re imagining you’re missing. It is so much more peaceful.
+ - Empathy is at the heart of the actor’s art.
+ - I believe in a world of opposites and that’s why I avoid people with rigid and inflexible personalities.
+ - There are some days when I, myself, think I’m overrated.
+ - Sometimes you look out the window and you look at all the windows, and think inside very single one of them is somebody with some huge, weird, terrible problem, some great jokes.
+ - Put blinders on to those things that conspire to hold you back, especially the ones in your own head.
+ - You can be afraid in a press conference, nervous, sweaty, but you can’t be afraid when you do your work because it doesn’t work that way.
+ - If you make the tough decisions, people will hate you today. But they will thank you for generations.
+ - I’ve thought a lot about the power of empathy. In my work, it’s the current that connects me and my actual pulse to a fictional character in a made up story, it allows me to feel, pretend feelings and sorrows and imagined pain.
+ - You can’t get spoiled if you do your own ironing.
+ - We need art as much as we need good works. You need it like food. You need it for inspiration, to keep going on the days that you’re low. We need each other in that way.
+ - Motherhood has a very humanizing effect. Everything gets reduced to essentials.
+ - You have to embrace getting older. Life is precious, and when you’ve lost a lot of people, you realize that each day is a gift.
+ - Every easy choice will have its consequence tomorrow.
+ - Being an actor lets me be a million different things.
+ - The idea that people do very bad things for sometimes very good reasons, feels reasons.
+ - Listening is everything. Listening is the whole deal. That’s what I think. And I mean that in terms of before you work, after you work, in between work, with your children, with your husband, with your friends, with your mother, with your father. It’s everything. And it’s where you learn everything.
+ - There’s no road map on how to raise a family: it’s always an enormous negotiation.
+ - The work itself is the reward, and if I choose challenging work, it’ll pay me back with interest. At least I’ll be interested, even if nobody else is.
+ - Acting is not about being someone different. It’s finding the similarity in what is apparently different, then finding myself in there.
+ - I think your self emerges more clearly over time.
+ - I’m curious about other people. That’s the essence of my acting. I’m interested in what it would be like to be you.
+ - The thing that you have to fight the most when you lose is you feel like the biggest failure in the world.
+ - The greatest gift given to man by God – is the ability to empathize.
+ - You’re not supposed to speak ill of the dead, but Earl Blackwell finally died, and I was on his blacklist every year for being the worst dressed person.
+ - I once read that in any good marriage, one partner is the gardener and the other is the garden. We take it in turns to be either.
+ - When criticism comes your way as an actor they are not criticizing your writing or your painting or your piece, they are criticizing you! It is hard to put that away in a place where you are not hurt.
+ - In other characters, it’s driven by insecurity, or it’s driven by fear, or – there’s always a driver. And all the physical manifestations, you need your way in.
+ - We all make the mistake thinking that how you look makes you more worthy of love.
+ - My feeling about fears is, if you voice your fears, they may come true. I’m superstitious enough to believe that.
+ - It’s bizarre that the produce manager is more important to my children’s health than the pediatrician.
+ - Having wrinkles is at once strange and exciting.
+ - Everyone is interesting. Everyone has something unexpected to offer and the job of acting is to pull it out of each other.
+ - I have a theory that movies operate on the level of dreams, where you dream yourself.
+ - As there begins to be less time ahead of you, you want to be exactly who you are, without making it easier for everyone else.
+ - You have been told that Real Life is not like college, and you have been correctly informed. Real Life is more like high school.
+ - Instant gratification is not soon enough.
+ - Acting is my way of investigating human nature and having fun at the same time.
+ - You didn’t have to work to keep your fear up, your energy up, or your anxiety. It is all kind of built into the process.
+ - Everyone tries to look a cookie-cutter kind of way, and actually the people who look different are the ones who get picked up.
+ - Life is all about making choices and I’m very happy with mine. I have had a wonderful time raising four children and I’ve also been lucky to have the support of a wonderful husband.
+ - Having been let out of the barn once, I know I wouldn’t be happy if I were home all the time.
+ - You can’t sing when you’re upset. You can’t sing when you’re crying. You get all congested and disgusting.
+ - I get nervous the more time I have to think about something so I deliberately don’t give myself too much time between jobs. I take a big break and then I start working again usually.
+ - I feel much more comfortable dressed in jeans and a T-shirt. “Devil Wears Prada” did not make me change my style. But it has made me appreciate the people who do this every morning in a serious way, get dressed up and really put together that look. I mean, wow. It’s amazing.
+ - Some men can maintain cragginess and weary masculinity. Women just get old.
+ - People say, When you have children, everything changes. But maybe things are awakened that were already there.
+ - I’m thrilled when I get nominated. I don’t count how many and I don’t remember how many I’ve had. I just know it’s a lot.
+ - I just take every day is a miracle and I’m really glad that I’m still working and that people are not sick of me, even though even I’m sick of me a little bit.
+ - Expensive clothes are a waste of money.
+ - What led me to that was I have never – I mean, I watch movies and I don’t care who is the protagonist. I feel what that guy is feeling. You know, if it’s Tom Cruise leaping over a building – I want to make it, you know? And I’m going to – yes, I made it. And yeah, so I get that.
+ - I have always regarded myself as the pillar of my life.
+ - The key to every actor is deep, deep insecurity.
+ - You have to embrace getting older.
+ - I separated myself in Prada because I didn’t want to have fun. They were all having a lot of fun – Emily Blunt and Stanley Tucci – and they were a little coterie of laughs.
+ - That consciousness of quality, and the need to demand it can galvanize your energies, not just in your work, but in a rigorous exercise of mind and heart in every aspect of your life.
+ - Pretending is a very valuable life skill.
+ - Fear focuses the mind.
+ - I need to go where people are serious about acting.
+ - I love acting, of course, but being with my husband and my children always brought me the greatest joy and happiness in life.
+ - Singing and acting are very similar. Singing makes you reach into your deepest feelings. Singing is an extension of everything that you do when you’re acting.
+ - I believe in imagination. I did Kramer vs. Kramer before I had children. But the mother I would be was already inside me.
+ - Pretending is not just play. Pretending is imagined possibility. Pretending, or acting, is a very valuable life skill and we do it all the time.
+ - I never look a gift horse in the mouth. And I’ve been really, really lucky. My career has been given to me by the people I’ve worked with. The actors, the directors, the cinematographers, the writers, all of whom gave me the opportunity to work in the way that I have and I’m really grateful.
+ - I don’t really talk about my process very much, because I feel like if I give something away, it might not come back.
+ - Some people hold themselves above the fashion business but are still complicit and fall prey to it.
+ - America doesn’t reward people of my age, either in day-to-day life or for their performances.
+ - Sometime really good writing does you a disservice as an actor. Because you can get lazy. It’s doing a lot of the work for you. I guess that’s good. But at the same time with material that’s not so good, you have to be more inventive, because no thought has been applied to it.
+ - I couldn’t care less about fashion. If I had taken any clothes home, they would have remained in my closet for the rest of their existence.
+ - It’s harder for men to imagine themselves as the girl in the movies than it is for me to imagine myself as Daniel Craig bringing down the building.
+ - Some people are filled by compassion and a desire to do good, and some simply don’t think anything’s going to make a difference.
+ - Acting is being susceptible to what is around you, and it’s letting it all come in. Acting is a clearing away of everything except what you want and need – and it’s wonderful in that way. And when it’s right, you’re lost in the moment.
+ - If you have been touched by the success fairy, people think you know why. People think success breeds enlightenment and you are duty-bound to spread around like manure. Fertilize those young minds!
+ - I’m a pain in the ass to all of the costume designers with whom I work because I have very strong feelings about the subject.
+ - I didn’t have any confidence in my beauty when I was young. I felt like a character actress, and I still do.
+ - I would like Martin Scorsese to be interested in a female character once in a while, but I don’t know if I’ll live that long.
+ - I have a very good life – I’m lucky enough not to be deprived.
+ - I think the most liberating thing I did early on was to free myself from any concern with my looks as they pertained to my work.
+ - What’s worse than brutality that dehumanizes women? Tolerance and indifference towards it.
+ - Obsession is an attractive thing. People who are really, really interested and good at one thing and smart are attractive, if they’re men.
+ - If everybody that had two cars had a Prius instead of an SUV, we wouldn’t be in the Middle East right now.
+ - All that attention to the perfect lighting, the perfect this, the perfect that, I find terribly annoying.
+ - That is the simple secret. Always take your heart to work.
+ - I feel very strongly that we make decisions about what we’re giving to the world, what we’re withholding from the world, by virtue of what we put on our bodies.
+ - I am not always happy. I am happy in front of the press. I can be extremely grumpy, ask my husband.
+ - I can’t stand most things that I see.
+ - Tonight we light these candles to honor the value and the work of Jyoti Singh’s short, promising life, she was India’s daughter. Tonight she’s our daughter too.
+ - I have a very busy life, and not many people who have a career and four kids go out a lot to the movies.
+ - There are wonderfully talented actresses. It’s a really rich field. There isn’t as rich a field of material.
+ - I’m all over the place.
+ - So it’s not a thing that’s a struggle. It’s work, but it’s not a struggle. It’s fun. And she had a very particular way of emphasizing points and making her point, and that had to do with bringing out a word that you didn’t normally think was the most important word in the sentence.
+ - We are who we’re going to be when we’re very old, and when we’re very old we are who we were when we were 8.
+ - I have a lot of people to thank and I’m going to be one of those people that tries to mention a lot of names, because I know just two seconds ago my mother and father went completely berserk and I’d like to give some other mothers and fathers that same opportunity.
+ - I have a lot to say about the world, clearly. I can’t put together a clear sentence about it all, but through the work I can say what I think.
+ - People want what they want. Sometimes you just have to walk in defiance of it and just be yourself.
+ - Acting has to reach everybody on some level – it’s a communication of feeling – but as far as judging the work is concerned, it is, I think, something that actors know about.
+ - My mother was someone that walked into a room and lit it up. She made friends easily and she communicated her enthusiasms with great joy. I always wanted to be more like my mother than I am. I loved and admired her very deeply.
+ - How you first meet the public is how the industry sees you. You can’t argue with them. That’s their perception.
+ - Most of the great practitioners of the art of acting know exactly what they’re doing; even in the best, most successful moments, when they let go of the awareness of what they are doing, they still, somewhere deep inside their body, know what they’re doing. There is a craft.
+ - When my children were very young and I was working I had someone cooking for me. I don’t have a cook now, I haven’t had one for a number of years and I do it myself. But when they were all little it was hard to pay attention to everyone’s homework at the end of the day and make dinner.
+ - Women are better at acting then men. Why? Because we have to be. If successfully convincing someone bigger than you are of something he doesn’t want to know is a survival skill, this is how women have survived through the millennia.
+ - It’s sort of my fun to sing along with records and imitate people who are on the telephone that have different ways of speaking.
+ - I get a trickling few scripts that I’m lucky enough that some of them are great. I don’t get loads of scripts.
+ - I found it unbearable when I allow the song to meet the music, to allow the story to meet the music.
+ - I always feel like I can’t do it, that I can’t go through with a movie. But then I do go through with it after all.
+ - Young people who learn the arts do better in every phase of their lives.
+ - I really worked very hard to bring my voice back because I used to have a good voice, and to try to do my exercises that I remember from Yale and all the things in the olden days, clearing your sinuses and all that.
+ - My own sense of well-being and purpose in the world. That comes from studying the world feelingly, with empathy in my work. It comes from staying alert and alive and involved in the lives of the people that I love and the people in the wider world who need my help.
+ - They filled our lives so much, the films they were in made us laugh, think and cry. Through their work they shared a piece of our soul. We will miss them with the sadness with which we miss an old friend.
+ - We change who we are to fit the exogenous of our time, and not just strategically or to our own advantage, sometimes sympathetically without our even knowing it for the betterment of the whole group.
+ - Everything we say signifies; everything counts, that we put out into the world. It impacts on kids, it impacts on the zeitgeist of the time.
+ - I guess a normal woman would find it extremely enjoyable to wear fancy clothes. For me, I didn’t enjoy it. It felt like a straight jacket.
+ - I’m never so sure as I was in my mid-20s.
+ - Let’s face it, we were all once three-year-olds who stood in the middle of the living room and everybody thought we were so adorable. Only some of us grow up and get paid for it.
+ - My job is usually to express emotion as freely as possible.
+ - I get nervous calling myself an artist. I feel I’m more like an interpreter or a violinist, you know.
+ - I do honestly think that if women were running the world there would be more investment in peace, because basically as women we do not want to see our children killed. Maybe I am completely idealistic, but until we see women in equal positions of power in the world, I just think that we are doomed.
+ - One must be brave if one is to take the wheel.
+ - I like who I am now. Other people may not. I’m comfortable. I feel freer now. I don’t want growing older to matter to me.
+ - Teachers perform major miracles in America, daily.
+ - Well, I got better after this, and my entire family really did appreciate it. Usually, they’re resentful of movies that I go off and make, but this one had a bonus attached. But yeah, she had no breath.
+ - On every film, the clothes are half the battle in creating the character. I have a great deal of opinion about how my people are presented. We show a great deal by what we put on our bodies.
+ - For me, clothes are kind of character; I don’t follow fashion or understand trends.
+ - Chris Cooper is one of my favorite actors in the world. I’ve seen him in most everything he’s done.
+ - I’ve been making a lot of pasta. It’s easy. There are unusual tastes that you can combine. I cook because my kids like a certain kind of thing and then they want it over and over.
+ - The progression of roles you take strings together a portrait of an actor, but it’s a completely random process.
+ - The work is the most fun; it seems illicit how much fun it is.
+ - All an actor has is their blind faith that they are who they say they are today, in any scene.
+ - There are improbable things suspended in space, like the earth.
+ - If I am not confident that I can portray the character perfectly on screen, I won’t even try.
+ - Enough people write about me every day without even interviewing me.
+ - When I was in – at Vassar, and I came from a public high school in New Jersey, there was – that class still existed. I think it’s pretty much gone, but there was a way of talking that the private school girls had that was different than the way I talked from New Jersey.
+ - I don’t have time to read a lot. And when I do, I read things that have just the facts.
+ - Show business has been really, really good to me because I can work and take a lot of time off, and I’m extremely undisciplined person.
+ - You just have to keep on doing what you do. It’s the lesson I get from my husband; he just says, Keep going. Start by starting.
+ - The interesting thing about being a mother is that everyone wants pets, but no one but me cleans the kitty litter.
+ - I’m older. There’s some sort of seniority. As a matter of fact, the seniority ebbs as you get older.
+ - This is your time and it feels normal to you, but really, there is no normal. There’s only change and resistance to it and then more change.
+ - I don’t like to be gone all weekend and at night too. Because for 20 years, I’ve had children who are in school.
+ - Sometimes with my children, I remember exactly how I felt as the child in this situation, not just how it feels to be me.
+ - When I was younger I spent way too much time thinking about me being too fat. So stupid.
+ - In my own life, I have noticed when I have been meeting directors, that the same sentence with the same inflection can be said by a man, like: “Get me this.” But if the same thing is said by a woman, it’s seen as harsh and unacceptable. That always fascinates me.
+ - There have been directors that I did not enjoy working with, but for the most part I realize that I have been unbelievably spoiled in my career because I have worked with some of the greatest, greatest directors ever.
+ - Anyone who wants to achieve something, needs a lot of work.
+ - My success has depended wholly on putting things over on people, so I’m not sure that I’m that great a role model. I am, however, an expert on pretending to be an expert on pretending to be an expert.
+ - I have a holistic need to work and to have huge ties of love in my life. I can’t imagine eschewing one for the other.
+ - I don’t have a favorite director just like I don’t have a favorite color or I don’t have a favorite food. I like everything.
+ - I never give any character I play less respect than I give my own life.
+ - I follow no doctrine. I don’t belong to a church or a temple or a synagogue or an ashram.
+ - You win an Oscar, it can double the audience that you had before.
+ - It is interesting how fashion filters down and we discover in the “Devil Wears Prada” that we’re all prey to trends, even if we think we are not.
+ - I don’t think we can say that all working women will get divorced – it’s so dangerous to make these things emblematic of anything – but having said that, every person who has a big, important job and tries to have a family, has to make decisions every single minute.
+ - Being a celebrity has taught me to hide, but being an actor has opened my soul.
+ - A man has always been seen as someone who works hard and has a full-time occupation. I think women should have the same opportunity and not have any stigma attached to them if they choose to pursue their careers.
+ - I have four to five months, tops, per year to give to my acting work.
+ - I thought, “Why? and how did we evolve with this weak, and useless passion in tact within the deep heart’s core?” And the answer as I’ve formulated it to myself is that empathy is the engine that powers all the best in us.
+ - It is well that the earth is round that we do not see too far ahead.
+ - I can become you for a second and you can become me and this lifts us up.
+ - Women are the last group anyone cares about in Hollywood.
+ - I feel like I run a business although I haven’t one. It’s planning, planning, and planning.
+ - While I am overwhelmingly proud of work that I, believe me, did not do on my own, I can assure you that awards have very little bearing on my own personal happiness, my own sense of well-being and purpose in the world.
+ - I had a number of great teachers and the ones that really were the strongest influences on me were women. They were really, really smart and interesting women.
+ - Integrate what you believe in every single area of your life. Take your heart to work and ask the most and best of everybody else, too.
+ - My family really does come first. It always did and always will.
+ - The best thing about acting is when you’re playing a scene and you actually become your character and lose yourself in that moment. That’s when you know you’ve been succeeded at what you’ve worked very hard to accomplish in your profession. Those are the truly thrilling moments.
+ - Every single decision I make about what material I do, what I’m putting out in the world, is because of my children.
+ - It’s hard to negotiate the present landscape with a brain and a female body.
+ - I wonder which of the megaton bombs Jesus, our President’s personal savior, would have personally dropped on the sleeping families of Baghdad?
+ - Interestingly, young people don’t come to you for advice. Especially the ones who are related to you.
+ - People have to make their own decisions about their lives.
+ - Sometimes it’s easier for people who are in authority to be authoritarian, because people know where you stand.
+ - We are the choices we have made.
+ - The career I chose was a drama major in college, at Yale, when I played a 90-year-old woman. One of my most celebrated roles. Then I played a really fat person. I played a lot of different things. That’s how I thought I loved to wrangle my talent, my need to express myself. I like to do it that way.
+ - I don’t know why I don’t watch a lot of movies; I can barely keep up with the things my friends are in. There isn’t enough time in life.
+ - Personality is immediately apparent, from birth, and I don’t think it really changes.
+ - When you’re an actor and there’s no music, you have to sort of bring it all yourself.
+ - I think it is typical for many men to have problems when their wives make more money then they do, or when their wives are higher on the corporate ladder than they find themselves. I think that often is an issue.
+ - I never thought I was somebody that would be on the cover of magazines in fashions, wearing fashions. It’s like not me. But that is what movie stardom entails.
+ - I think that we pay much more attention to fashion and our hair, skin and foreheads, our abdominal muscles and shoes than what is happening in the world. We willingly take that ‘drug’ and go along with that.
+ - For me, clothes are kind of a character. They’re more interesting in those terms.
+ - I had this sort of idolatry for certain actors who preceded me, people who inspired me, so I’m honored to be that way for young actors.
+ - I do think sometimes when scrolling through the TV and there’s something on and I look at it and I think oh, my god. I thought I was fat? What is my problem?
+ - The reason I chose the movies that I did was based on where they were being filmed.
+
+196 quotes

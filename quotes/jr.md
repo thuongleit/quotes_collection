@@ -1,0 +1,21 @@
+ - The more social media we have, the more we think we’re connecting, yet we are really disconnecting from each other.
+ - Nobody gives you power. Real power is something you take.
+ - Don’t forgive and never forget; Do unto others before they do unto you; and third and most importantly, keep your eye on your friends, because your enemies will take care of themselves!
+ - I’m waiting for the king to arrive.
+ - Revenge is the single most satisfying feeling in the world!
+ - Art is not supposed to change the world, to change practical things, but to change perceptions. Art can change the way we see the world. Art can create an analogy.
+ - When your holding a double barrel shotgun use both barrels.
+ - An artist should be taking risks. That’s the whole idea of being an artist.
+ - To change the way you see things is already to change things themselves.
+ - Anything worth having is worth going for- all the way.
+ - I never forget those who do me a favor, and I never forget those who don’t!
+ - The city’s the best gallery I could imagine. I would never have to make a book and then present it to a gallery and let them decide if my work was nice enough to show it to people. I would control it directly with the public in the streets.
+ - Art isn’t supposed to change the world, but it can.
+ - Like my daddy always said, where there’s a way, there’s a will.
+ - I want to create the largest-ever participatory art project and highlight the concept of Shadow Philanthropy, where people help others create work without taking credit for it – through this we can really change the world.
+ - A conscience is like a boat or a car. If you feel you need one, rent it.
+ - When I was little, I didn’t really travel – from the suburbs to Paris was already a journey. I had a foreigner’s eye on the city, and I still enjoy that point of view. Then there’s the fact that one of the things that touches me most is injustice.
+ - I grew up in the suburbs, a calm suburb, without tension, with working-class and middle-class people mixed together.
+ - The real art is in the street, is making the artwork, and for that you have to involve people. The action is actually the artwork.
+
+19 quotes

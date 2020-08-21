@@ -1,0 +1,43 @@
+ - True friends share everything, except the past before they met.
+ - Everything is change; and you cannot step twice into the same river.
+ - In hatred as in love, we grow like the thing we brood upon. What we loathe, we graft into our very soul.
+ - I was a king and a king’s heir and now I am a slave.
+ - How can people trust the harvest, unless they see it sown?
+ - In all men is evil sleeping; the good man is he who will not awaken it, in himself or in other men.
+ - One must live as if it would be forever, and as if one might die each moment. Always both at once.
+ - Alexander, of whom men tell many legends, lived by his own. Achilles must have Patroklos. He might love his Briseis; but Patroklos was the friend till death. At their tombs in Troy, Alexander and Hephaistion had sacrificed together. Wound Patroklos, and Achilles will have your blood.
+ - A man is at his youngest when he thinks he is a man, not yet realizing that his actions must show it.
+ - Never destroy without thought your enemy’s pretences; they are usually your best weapon against him.
+ - There is only one kind of shock worse than the totally unexpected: the expected for which one has refused to prepare.
+ - It is bitter to lose a friend to evil before one loses him to death.
+ - Longing performs all things.
+ - It is better to learn war early from friends, than late from enemies.
+ - Half the world’s troubles come from men not being trained to resent a fallacy as much as an insult.
+ - Love is a boaster at heart, who cannot hide the stolen horse without giving a glimpse of the bridle.
+ - Miss Searle had always considered boredom an intellectual defeat.
+ - The rightness of a thing isn’t determined by the amount of courage it takes.
+ - To hate excellence is to hate the gods.
+ - One might have supposed that the true act of love was to lie together and talk.
+ - There is nothing like despair to make one throw oneself upon the gods.
+ - There is madness in youth, but sometimes a god inspires it.
+ - What keeps the democracy alive at all but the hatred of excellence; the desire of the base to see no head higher than their own?
+ - Go with your fate, but not beyond. Beyond leads to dark places.
+ - An audience of twenty thousand, sitting on its hands, could not have produced such an echoing silence.
+ - Tell a man what he may not sing and he is still half free; even all free, if he never wanted to sing it. But tell him what he must sing, take up his time with it so that his true voice cannot sound even in secret – there, I have seen is slavery.
+ - Clouds of black birds rose up wailing and screaming, like the thoughts of my heart.
+ - By her shining and her power he knew her.
+ - I thought, There goes my lord, whom I was born to follow. I have found a King. And, I said to myself, looking after him as he walked away, I will have him, if I die for it.
+ - It is better to believe in men too rashly, and regret, than believe too meanly. Men could be more than they are, if they would try for it. He has shown them that.
+ - Power is the test. Some, once they have it, are content to buy the show of liking, and punish those who withhold it; then you have a despot. But some keep a true eye for how they seem to others, and care about it, which holds them back from much mischief.
+ - It is something, I thought, when a king can put a courtesan to the blush.
+ - It gives me no joy to be praised at the expense of a better artist, by someone who does not know the difference or who thinks me too vain to be aware of it myself.
+ - Often beauty grows dull or common when speech breaks the mask...
+ - But courage without conduct is the virtue of a robber, or a tyrant.
+ - When we serve the great, they are our destiny.
+ - We Persians have a saying that one should deliberate serious matters first drunk, then sober.
+ - But it is not for the perfect vase or the polished gem to choose their owners.
+ - All men seek esteem; the best by lifting themselves, which is hard to do, the rest by shoving others down, which is much easier.
+ - You can make an audience see nearly anything, if you yourself believe in it.
+ - The perpetual stream of human nature is formed into ever-changing shallows, eddies, falls and pools by the land over which it passes. Perhaps the only real value of history lies in considering this endlessly varied play between the essence and the accidents.
+
+41 quotes

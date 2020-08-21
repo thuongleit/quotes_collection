@@ -1,0 +1,117 @@
+ - It’s not the end of the world to lose.
+ - Prayer is not monologue, but dialogue; God’s voice is its most essential part. Listening to God’s voice is the secret of the assurance that He will listen to mine.
+ - The man who mobilizes the Christian church to pray will make the greatest contribution to world evangelization in history.
+ - Do not strive in your own strength; cast yourself at the feet of the Lord Jesus, and wait upon Him in the sure confidence that He is with you, and works in you. Strive in prayer; let faith fill your heart-so will you be strong in the Lord, and in the power of His might.
+ - O, let the place of secret prayer become to me the most beloved spot on earth.
+ - I’ll be supporting anyone but England.
+ - Prayer is reaching out after the unseen; fasting is letting go of all that is seen and temporal. Fasting helps express, deepen, confirm the resolution that we are ready to sacrifice anything, even ourselves to attain what we seek for the kingdom of God.
+ - Give it everything you’ve got. Leave nothing out there.
+ - Let us thank God heartily as often as we pray that we have His Spirit in us to teach us to pray. Thanksgiving will draw our hearts out to God and keep us engaged with Him; it will take our attention from ourselves and give the Spirit room in our hearts.
+ - Beware in your prayers, above everything else, of limiting God, not only by unbelief, but by fancying that you know what He can do. Expect unexpected things above all that we ask or think.
+ - The coming revival must begin with a great revival of prayer. It is in the closet, with the door shut, that the sound of abundance of rain will first be heard. An increase of secret prayer with ministers will be the sure harbinger of blessing.
+ - My fitness trainer’s English, my physio’s English, some of my friends are English. I don’t have a problem with English people at all.
+ - I don’t play any tournaments to come second best.
+ - If the spiritual life be healthy, under the full power of the Holy Spirit, praying without ceasing will be natural.
+ - The one thing He commands us as His branches is to bear fruit. Let us live to bless others, to testify of the life and the love there is in Jesus. Let us in faith and obedience give our whole life to that which Jesus chose us for and appointed us to-fruit-bearing.
+ - A believer may pass through much affliction, and yet secure very little blessing from it all. Abiding in Christ is the secret of securing all that the Father meant the chastisement to bring us.
+ - I’ve realised over the years I play my best when I have time to prepare for each tournament as best as possible.
+ - Shut the world out, withdraw from all worldly thoughts and occupations, and shut yourself in alone with God, to pray to Him in secret. Let this be your chief object in prayer, to realize the presence of your heavenly Father.
+ - One of the worst things sin did for man was to make him selfish, for selfishness cannot love.
+ - I’m a global ambassador for the World Wildlife Fund and United for Wildlife and I am also a Unicef UK ambassador. It’s important to me to support charities. I never want to take my wealth for granted.
+ - We Scots have a fierce pride in the things we do that others can never appreciate. I am the British No. 1, but I would prefer to be the British No. 1 from Scotland every time.
+ - Prayer is the natural and joyous breathing of the spiritual life by which the heavenly atmosphere is inhaled and then exhaled in prayer.
+ - I’ve been asked a lot lately if tennis is clean or not. I don’t know any more how you judge whether a sport is clean. If one in 100 players is doping, in my eyes that isn’t a clean sport.
+ - Abide in Jesus, the sinless One – which means, give up all of self and its life, and dwell in God’s will and rest in His strength. This is what brings the power that does not commit sin.
+ - I’m definitely open to change, but at the same time I am quite stubborn.
+ - When I’m training in December, I have to eat like 6,000 calories a day to maintain my weight. It’s a bit tiring.
+ - Through His Spirit, the Spirit of prayer, our life may be one of continual prayer. The Spirit of prayer will help you become an intercessor, asking great things of God for those around you.
+ - It’s always nice to get good feedback, and a bit of encouragement can go a long way.
+ - Normally I sleep for 9, 10 hours a night.
+ - As soon as I walk through the door and see my family and the dogs, I feel relaxed.
+ - When a lot of things are going the wrong way for a country, for a people, when you can’t really think of anything worse than a war, you always try to take life on the brighter side and that’s how I grew up with my parents.
+ - Learn to worship God as the God who does wonders, who wishes to prove in you that He can do something supernatural and divine.
+ - It’s difficult to relax on tournaments, even in posh hotels, because you don’t know how long you will be there – whether you’ll lose a match on the first day and leave or whether you’ll stay for longer.
+ - Of my investments that have been realised, buying my first house turned out to be a pretty good move, which I didn’t really realise at the time.
+ - To be honest, I think bananas are a pathetic fruit.
+ - It’s hard because you want to be able to just, okay, focus your energy on trying to win the match, but you need to then have tactics as to how you’re going to deal with how you’re feeling.
+ - We are to be shut out from men, and shut in with God.
+ - Owning a property is great as that’s my base and the centre of my family life.
+ - My girlfriend thinks I look like a reptile – it’s not the best.
+ - You can be careful as far as you can, but you never know when you’re going to fall over and break your ankle. It’s like when you drive a car, you don’t think about crashing, do you?
+ - Abiding fully means praying much.
+ - When I’m in Miami I like to go and watch basketball, the Miami Heat.
+ - Tennis is an individual sport, and I am quite a self-conscious person.
+ - Faith in a prayer-hearing God will make a prayer-loving Christian.
+ - For me, by far, the Olympics is the biggest sporting event in the world.
+ - I don’t want a flashy car, just something that would allow me to stop using the Tube. And it would be good not to have to rely on my mum all the time, particularly when I have to listen to her singing in her car.
+ - I play fantasy basketball and fantasy football, soccer.
+ - Not to be occupied with your sin, but to be occupied with God brings deliverance from self.
+ - Nowhere can we get to know the holiness of God, and come under His influence and power, except in the inner chamber. It has been well said: “No man can expect to make progress in holiness who is not often and long alone with God.”
+ - The enemy uses all his power to lead the Christian, and above all the minister, to neglect prayer. He knows that however admirable the sermon may be, however attractive the service, however faithful the pastoral visitation, none of these things can damage him or his kingdom if prayer is neglected.
+ - I like to think I have a good few years left of my career yet, as long as I stay fit and healthy. However, it’s always good to have a backup plan, which is why I have been working hard to build my business portfolio outside tennis.
+ - Like most guys, I’ve always liked watches. I can always check the time on my phone, but having a watch is so much better.
+ - Having a normal knee would make life a lot easier.
+ - Obviously you try to keep as much of your private life as private as you can.
+ - Winning Wimbledon, I can’t get my head around that. I still can’t believe it’s happened.
+ - If you want a player to serve and volley more, you need to teach them to do that more, how to move at the net.
+ - Contrary to my image, I do have a sense of humour.
+ - We must make humility the chief thing we admire in Him.
+ - I was playing in the juniors at Wimbledon I forgot to turn my mobile phone off. It was lying there in my bag and it rang in the middle of a match, and it was one of my friends from school saying, ‘Murray, you’re on the telly!’ I learnt from that. After that I always put my phone on silent.
+ - A lot of athletes use sports psychologists.
+ - Boxing, mixed martial arts and tennis are the hardest sports to train for.
+ - Every week I’ll be spending money on flights, accommodation, stringing and even things as simple as taxis, meals out and, of course, paying the other members of my team. I’m still very careful, though, with what I’m spending.
+ - I’ve had an entrepreneurial mindset from a young age and I’ve been interested in companies and products that are a little bit different.
+ - I am Scottish. I am also British.
+ - There is a fear of emotion in tennis.
+ - I am not anti-English, and I never was.
+ - I believe you should give 100% on the court, so I chase every ball.
+ - You are always talking about yourself and tennis and how you are feeling. I try to avoid it when I don’t have to.
+ - While others still slept, He went away to pray and to renew His strength in communion with His Father. He had need of this, otherwise He would not have been ready for the new day. The holy work of delivering souls demands constant renewal through fellowship with God.
+ - For me the most important thing has always been tennis, and that’s what I want to get across the image I want to portray is a hard-working tennis player.
+ - I’m incredibly fortunate and it’s important to me to make sure that I give back where I can.
+ - Everybody always talks about the pressure of playing at Wimbledon, how tough it is, but the people watching make it so much easier to play.
+ - I am not stroppy at all.
+ - When I’m frustrated that I’m not doing well in a tournament I cut my own hair, just lop it all off. I’ve probably made a right mess of it, but luckily I wear a cap when I play.
+ - I tend not to argue about things that I don’t believe in.
+ - I think it’s sensible to plan for the future now I’m a father and a husband.
+ - I’ve never felt nervous in front of big crowds and in big stadiums.
+ - I never read. The paper or anything. I watch a lot of movies, and TV series and stuff. But I never, never read.
+ - Some people pray just to pray and some people pray to know God.
+ - The only humility that is really ours is not that which we try to show before God in prayer, but that which we carry with us in our daily conduct...
+ - Jesus has no tenderness toward anything that is ultimately going to ruin a man in service to Him. If God brings to your mind a vese which hurts you, you may be sure that there is something He wants to hurt.
+ - It becomes tricky, and you start to think about the cramps rather than just actually what you’re trying to do on the court, which is obviously win the match.
+ - Everything in tennis is so neat and nice but boxing has sport down to its essence; it is very pure and I like that.
+ - I didn’t practise it loads when I was at the academy in Spain, but when I got on the ATP Tour it’s something I dedicated a lot of time to.
+ - I am still been pumped to train and get myself ready for the biggest events.
+ - In tennis, it is not the opponent you fear, it is the failure itself, knowing how near you were but just out of reach.
+ - I’m on the road so much that I don’t get to spend as much time there as I would like.
+ - When I started to do quite well on the tour I thought I’d treat myself to a bright red Ferrari. I had always had a soft spot for them as a car brand and, when I was in the position to afford one, I decided to go for it.
+ - You can’t focus on other people’s careers. Everybody is different.
+ - This will be my first Grand Slam final without Roger Federer or Novak Djokovic on the other side of the net, but I don’t think being the more experienced player will make much difference to my approach.
+ - I can’t worry about match too much. There’s nothing I can do.
+ - I don’t actually go to that many concerts.
+ - I’ve always been lucky enough to just play tennis, so I never actually had a job when I was growing up.
+ - I’ve always been pretty careful at keeping track of my spending, so using my debit card is often the easiest way of doing that.
+ - This is the shape I’m in for the tournament. I feel or I felt extremely good before the match, and I did train very, very hard to get ready for the tournament.
+ - I first had money for investment just at the time of the 2008 crisis and shares have been highly volatile since then. So I do have shares in my pension but I have tended to invest in specific projects that include property and private companies that have been very well researched by my advisers.
+ - I fully understand that not all of the companies will succeed and that there will be losses along the way, but this is very much the norm with early stage investment.
+ - I’ve always been a good returner since my junior days – I don’t know why that was.
+ - I’ll never pay above the odds for something if there’s a more cost-effective alternative, so I guess that’s where the saver in me shines through.
+ - It would have been better if I had won, but reaching the final was perfect.
+ - I love music. I listen to a lot of it.
+ - I wouldn’t say I’m a spender in the sense that I’m going out on huge spending sprees. However, to be able to function at the top of your game on the professional tennis circuit often requires an element of frequent spending.
+ - Well, my mum’s been a tennis coach – she coached me till I was 12.
+ - I decided at the outset to invest in a fairly broad range of businesses, as I didn’t want to get pigeonholed into one sector.
+ - Since there are a wide range of entrepreneurs fundraising at any given time, I looked at each opportunity as it has arisen and on its own merits. Then I’ve sat down with my financial advisers, we’ve looked at the numbers and gone for the businesses I believe have real potential.
+ - I was pretty young when I bought my first place, and at that time didn’t really view it as an investment. After living there for a few years I decided to move out of London, so I decided to rent it out for a few years. Then, as the property market continued to rise, I made the decision to sell.
+ - Coaches need to have a vision.
+ - You have to go into each match believing you can beat all of the players.
+ - Sometimes you’re looking to play perfect tennis but it’s not going to happen all the time and you have to accept it.
+ - I’m not allowed to make a joke. It is a bit unfair how I’m treated. I thought it was a joke. I got calls and messages. I would rather not to have to worry about things like that. It is disappointing.
+ - Christ will always accept the faith that puts its trust in Him.
+ - It’s safe to say that the value of the property had shot up considerably and in the end I made a pretty satisfying profit.
+ - Let it be your business every day, in the secrecy of the inner chamber, to meet the holy God. You will be repaid for the trouble it may cost you. The reward will be sure and rich.
+ - However well I return, opportunities will probably be few and far and I need to be ruthless.
+ - I’d have loved to have been a footballer. I was always playing football and I enjoyed it much more than tennis to begin with. It’s more fun to play in a team, all the parents are there cheering you on.
+
+115 quotes

@@ -1,0 +1,23 @@
+ - We need happy, productive citizens on our planet for us to survive.
+ - I live a very joyful life, with a lot of laughter and good times.
+ - I watched Westerns from the time I was a girl. My dad was a big Western fan. I always loved Clint Eastwood movies and Westworld, where the guy gets trapped in a western-themed amusement park. The western motif was fascinating to me.
+ - Thankfully, I was given a strong base by my parents, an understanding of who I was and my strength.
+ - I am actually very in touch with all of my emotions, from joy to pain, and I am free with them.
+ - I don’t want kids to be distracted by pipe dreams.
+ - A solid sense of self will help a person to lead a full and happy life.
+ - I love seeing my mom and my daughter embrace their natural hair. I’m glad I’ve embraced it, too.
+ - I’m very free with all my emotions, whether it’s happy, sad, mad, glad, whatever.
+ - Hollywood is so governed by the ego, and I never wanted to fall into that trap.
+ - I can be dramatic. I can be funny. I can be sexy. I can be sad. I can be glad.
+ - I grew up an athlete. Track and field and dance. In track, I actually went to the Junior Olympics. I’ve always been very athletic.
+ - I think it’s always nice to have a film where the underdog comes out on top, doing their best, and surpasses everybody’s expectations.
+ - I’m happy when people come up and say how they feel about what your character went through, you know, I went through and it’s helping me deal with it. I get to see the movie through the audience’s eyes and that’s really gratifying.
+ - I decided to start embracing and wearing my natural hair, but there was only one problem; I didn’t know what to do with it or how to style it. Growing up, all I knew was my relaxed, processed hair, so I had to go through this learning phase.
+ - Making ‘Beloved’ was an awesome experience.
+ - I don’t have to be glamorous all the time.
+ - I’m definitely in a place where I’m looking for different than what I’ve done in the past, just so I can go to work and do something I haven’t done before.
+ - I believe in getting a good education to be able to go out into the world and make a difference.
+ - I have a lot of compassion for human beings in life experiences, so I allow myself to feel what these characters are feeling and don’t have a problem accepting that.
+ - Unfortunately, when you’re an actor you’re like ‘Ah, if the only knew.’
+
+21 quotes

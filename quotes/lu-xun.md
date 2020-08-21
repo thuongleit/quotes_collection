@@ -1,0 +1,42 @@
+ - Hope is like a path in the countryside. Originally, there is nothing – but as people walk this way again and again, a path appears.
+ - Lies written in ink cannot disguise facts written in blood.
+ - You have to reform yourself before reforming society and the world.
+ - I thought: hope cannot be said to exist, nor can it be said not to exist. It is just like roads across the earth. For actually the earth had no roads to begin with, but when many men pass one way, a road is made.
+ - I have a dream that I will fulfill. And nothing else will distract me from my path.
+ - Trust only him who doubts.
+ - But if a few awake, you can’t say there is no hope of destroying the iron house.
+ - Like students going to school, the planes on their bombing missions fly over Beijing each morning. And each time I hear their engines attack the air I feel a certain slight tension, as if I were witnessing the invasion of Death, though this heightens my consciousness of the existence of Life.
+ - Despair is as hollow and deceptive as hope!
+ - The ability to forget the past enables people to free themselves gradually from the pain they once suffered; but it also often makes them repeat the mistakes of their predecessors.
+ - When the Chinese suspect someone of being a potential troublemaker, they always resort to one of two methods: they crush him, or they hoist him on a pedestal.
+ - Why should young people look for guides who hang out gided placards to advertise themselves? They would do better to look for friends, unite with them, and advance together towards some quarter where it seems possible to survive.
+ - I could not blot out hope, for hope belongs to the future.
+ - To protect myself from the rear, I have to stand slantwise.
+ - Hope is like a path in the countryside...
+ - As long as there shall be stones, the seeds of fire will not die.
+ - The most painful thing in life is to wake up from a dream and find no way out. Dreamers are fortunate people. If no way out can be seen, the important thing is not to awaken the sleepers.
+ - Women have a mother-nature and a daughter-nature; there are no women with a wife-nature. The quality of wife is an acquired character; it is a combination of mother and daughter.
+ - A woman has so many parts to her body, life is very hard indeed.
+ - Since someone ate crabs, others must have eaten spiders as well. However, they were not tasty. So afterwards, people stopped eating them. These people also deserve our heartfelt gratitude.
+ - True, we must dare look things in the face before we dare think, speak, act, or assume responsibility. If we dare not even look, what else are we good for?
+ - Discontent is the wheel that moves people forward.
+ - The world is changing from day to day; it is high time for our writers to take off their masks, look frankly, keenly, and boldly at life, and write about real flesh and blood. It is high time for a brand-new arena for literature, high time for some bold fighters to charge headlong into battle!
+ - The most horrible thing is not a government that stages public executions, but a government that secretly disposes of its victims.
+ - Creation, even when it is a mere outpouring from the heart, wishes to find a public. By definition, creation is sociable. Yet it can be satisfied with merely one single reader: an old friend, a lover.
+ - If there are still men who really want to live in this world, they should first dare to speak out, to laugh, to cry, to be angry, to accuse, to fight-that they may at least cleanse this accursed place of its accursed atmosphere!
+ - It is in the nature of things that some people should be unlucky enough to get their heads chopped off.
+ - When a great man has become petrified, and everyone begins to proclaim his greatness, he has already turned into a puppet.
+ - In China, especially in the cities, if someone fainted on the streets, or if someone was knocked over by a car, you’ll find lots of gawkers and gloaters, but rarely will you find someone willing to extend a helping hand.
+ - But anyone who thinks themselves genuinely unbiased is bound to be taken in.
+ - But a people unable to reform will not be able to preserve its old culture either.
+ - I entreat fresh visions from the painters. Be lavish with your vermilion to portray the mountains in the spring.
+ - To be suspicious is not a fault. To be suspicious all the time without coming to a conclusion is the defect.
+ - Though love is instinctive, it cannot develop without a certain stimulus and use.
+ - If men refuse to be kindled, sparks can only burn themselves out, just as paper images and carriages burn out on the street during funerals.
+ - Whoever thinks he is objective must already be half drunk.
+ - Though science has given us many marvels, it has also spoiled many of our pleasant dreams.
+ - If we want to work out a policy for the present, we must examine the past and prepare for the future, discard the material and elevate the spirit, rely on the individual and exclude the mass.
+ - Men who have not known the horror of death are not likely to be awed by it.
+ - All who have read a few old books have picked up the old tactics of considering every new idea a ‘heresy’ which must be rooted out.
+
+40 quotes

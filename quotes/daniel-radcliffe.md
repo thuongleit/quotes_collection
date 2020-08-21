@@ -1,0 +1,199 @@
+ - Working hard is important. But there is something that matters even more, believing in yourself.
+ - Personally, I prefer the dark side.
+ - Don’t try too hard to be something you’re not.
+ - You don’t have to be gay to be a supporter- you just have to be a human.
+ - There’s no shame in enjoying the quiet life.
+ - I think honesty is the most heroic quality one can aspire to.
+ - If I die on a film set when I’m 80, I’ll be happy with that.
+ - People tell me I look mournful. They say, ‘Cheer up, Dan, it’s not that bad!’ Sometimes I just look into space, which freaks people out. If I was ever required to do anything other than look haunted, I could. I’m a happy person.
+ - Go boldly and honestly through the world. Learn to love the fact that there is nobody else quite like you.
+ - I will never, ever do a film as successful as the Harry Potter series. But neither will anyone else.
+ - Some people think I am gay, which I think is awesome.
+ - There’s never enough time to do nothing!
+ - I’m very proud of being Jewish. It means I have a good work ethic, and you get Jewish humour and you’re allowed to tell Jewish jokes.
+ - England is my home. London is my home. New York feels like, if I have to spend a year living in an unfamiliar city, this is a pretty lovely one to spend a year in, but I will be going home at the end of it, certainly.
+ - I think Harry Potter’s very important. Every opportunity I will get for the rest of my life, I would not have got if it wasn’t for Harry Potter. And it would be height of ingratitude if I was ever anything but proud to be associated with these films.
+ - I was very sad to leave Harry Potter but equally there will be an element of excitement about the idea that a script might come in and I don’t have to go: “I’m sorry, I’m kind of busy for the next four years.” The idea of that is quite exciting.
+ - Though I am not religious in the least, I am very proud to be Jewish.
+ - I’m not clumsy, I’m just accident prone.
+ - I was very much a product of the public-school system. There was only one other kid in my class who had parents not involved in the stock market or law.
+ - The best thing I’ve learned is, if you’re going out, never go out alone – you leave yourself vulnerable. If you’ve got someone else there you trust, they can say, be wary of that person. I probably used to be too trusting of people.
+ - What I love about the gay thing is that every single person I type into Google, it doesn’t matter if it’s Florence Welch, anybody, if you are not being called gay you don’t have a career. That’s my theory!
+ - I have a very busy personality.
+ - I’m an atheist, and a militant atheist when religion starts impacting on legislation.
+ - I feel very English in a suit. There’s something about being in a suit abroad, particularly in America, that feels empowering.
+ - There are two types of poets: People who write poetically about their lives, and poets that live poetically and write about it.
+ - I’m not an easy person to love. There are lots of times when I’m a very good boyfriend, but there are times when I’m useless. I mean, I’m a mess around the house. I talk nonstop. I become obsessed with things.
+ - The Master and Margarita is my favorite. To me it’s the greatest exploration of the human imagination.
+ - Being in Harry Potter is like being in the Mafia. Once you are in, you are never really out.
+ - People do incredible things for love, particularly for unrequited love.
+ - There is something inherently valuable about being a misfit. It’s not to say that every person who has artistic talent was a social outcast, but there is definitely a value for identifying yourself differently and being proud that you are different.
+ - Yes, gay marriage is about symbolically blessing a relationship, but the larger issue is about transmitting a fundamental message about equality. Gay people should have equality in law everywhere.
+ - Poetry is something I love to do. Good poetry has an amazing ability to be communicative before it’s even understood. I get emotional just from the beauty of words.
+ - I’m very comfortable discussing my personal life, because it’s so boring.
+ - I know me, and I know that I’m not somebody that particularly merits a lot of screaming and shouting. And there’s nothing special about me as opposed to hundreds of thousands of other people everywhere.
+ - Being self-critical is good; being self-hating is destructive. There’s a very fine line there somewhere, and I walk it carefully.
+ - I know I’m not a coal miner, but I do long hours and I never complain, and there is nowhere else I’d rather be. So, yeah, that’s how I’d define myself. I want to do it right, and prove people wrong once and for all about the myth of child stars.
+ - I definitely think that theatre is something I’ll keep coming back to in my career for as long as I can. I also think theatre’s something you have to be very fit to do. I am fairly fit, but I don’t think I could do it all the time.
+ - A friend often says I’m an old man in a young man’s husk. I like that. I am old-fashioned in some ways.
+ - I’m a serial monogamist. I’m not one of those people that can date loads of people at the same time, it’s all too complicated.
+ - I think I’m a tiny bit like Harry ’cos I’d like to have an owl. Yeah, that’s the tiny bit, actually.
+ - When you’re seventeen to early twenties, that’s the time you’re trying to work out who you are. If you’re trying to make some kind of artistic or creative impact, that’s the age when you start to figure out how to do that.
+ - My idea of relaxation is not lying down by a beach. I have to move around, do stuff. Though I’m a massive quiz show person.
+ - There’s no blueprint for where I should be. I see myself as a young, good actor who still has a lot to learn. There’s nobody at any point in their career who is the finished article.
+ - I’m also a fan of ridiculously coloured and patterned socks.
+ - When you’re in the position I’m in, you have two options: you can either shut yourself off from everybody, from the world, and not live a full life. Or you welcome everybody into your life and occasionally somebody will try to take advantage.
+ - I’m not much of a cake person.
+ - How irritating it must be for people, to be bombarded with me!
+ - Some people are asking me questions like this is a more shocking subject, which is so strange.
+ - I think it’s useful, as a famous person, to have as little separation between the perception of you and how you really are – because otherwise I’d be sitting here thinking I’m keeping secrets, and wondering when you’re going to find out.
+ - I have no idea how much money I’ve got.
+ - Because I’m short and slim, I can identify with somebody who’s an unlikely fit for something and desperately wants to be part of it.
+ - I’m sure when I have a nostalgic, teary moment in 10 years time, I’ll try to put the glasses when I was 10 on and cry to myself in front of the mirror.
+ - The nerds are the ones that make the films and do loads of other really cool stuff in their life.
+ - I absolutely don’t relate to being beaten down my whole life – I had amazing opportunities at a young age – but there is still in many, many people’s minds the notion that I’ll never be able to escape Harry Potter.
+ - I get constantly mistaken for Elijah Wood. I was in Japan and someone held out a photo of him for me to sign.
+ - It’s important to say that the more challenging a scene is, in a way, the more fun it is because the more of my job I get to do.
+ - If I was left to my own devices, you would see about ten T-shirts in rotation with maybe a few nice pairs of jeans – but I also like to look good. I like feeling really well put together, I just don’t have the aptitude and the knowledge to do that.
+ - I think I tried to steal a Mars bar once from a shop but then I went and put it back.
+ - I always saw Michael Gambon wearing madly psychedelic socks, and I always thought that’s it is one of the few areas where men can really express colour and have a bit of a dandyish quality to their outfit.
+ - I have described myself as being ‘gently eccentric.’
+ - I get constantly mistaken for Elijah Wood.
+ - Some actresses are just insane. I’ve never worked with a nasty actress – they’re all absolutely delightful. But completely barking.
+ - I don’t want anyone to ever say that I don’t belong where I am.
+ - Every job I do, I like to think it makes me better or I learn things. It’s all about how much something’s going to stretch me or test me.
+ - Religion leaves no room for human complexity.
+ - I’d love to play Puck in ‘A Midsummer Night’s Dream.’
+ - With any kind of artistic thing, it’s a muscle, like any athlete, and the moment you’re not doing it, you lose all confidence. That’s why I’m terrible with down time.
+ - My preparation is mainly just knowing the lines and getting in and knowing where your character is, knowing what it’s about and having ideas that you can put in on the day.
+ - I want to prove to people that I’m an actor and not just a character.
+ - I’ve never been one of the cool people at school, but then again, I don’t get the people who are cool. It’s not that I don’t like them, it’s just that they don’t interest me.
+ - I’m a huge fan of Brad Pitt. He could have done rom-coms his entire career, but he took it in a different direction.
+ - I’m very interested in religion as something to study, but I’m not a religious person in the slightest.
+ - I’ve always had a slightly overactive imagination.
+ - I’ve not got a girlfriend at the moment. Somebody said, ‘Do you worry girls are just giving you attention because of who you are?’ I was like, ‘I’m 17, it’s wonderful.’
+ - Also I just think I’ve been lucky enough to have great parents, and I’ve had good people around me who have always been honest with me, who would give me a purely metaphorical slap if I ever got too big for my boots.
+ - This is only going to add fuel to the fire that I’m gay. I don’t really care. I’m so past the point of caring. I really don’t. But I looked fantastic in Fleur’s outfit!
+ - I was in the bath at the time, and my dad came running in and said, ‘Guess who they want to play Harry Potter!?’ and I started to cry. It was probably the best moment of my life.
+ - I haven’t always been thrilled with my work. But the fear of not proving the people wrong who think you can’t emerge from a franchise and do well, that’s a very strong driving force.
+ - I’m not a religious person. My mom was of Jewish blood and my dad was Protestant.
+ - The art world can be very intimidating because it’s just so vast. You talk to people who are really clued in to all the young artists and coming into it you’re never going to be able to catch up immediately, even though there’s pressure to.
+ - I like science and I love gym. Oh, and I like art, but I’m really bad at it. I’m just a terrible drawer. I can’t draw a circle. Even with a ruler, I can’t draw a straight line.
+ - There’s no shame in enjoying a quiet life. And that’s been the realization of the past few years for me.
+ - My friends have always called me ‘Mr. Thorough,’ in that when I get into something, I become obsessed with it.
+ - My dad grew up in Banbridge, Northern Ireland, desperate to get to London. I grew up in London, so I don’t know what it’s like to yearn for the big city from a small town.
+ - My dad believes in God, I think. I’m not sure if my mom does. I don’t.
+ - I’m 5-foot-5, and I’ll wear a big parka and put the hood up, and nobody gives me a second glance.
+ - I had one relative who passed away but fortunately none others. So my sort of experience of it is quite limited, thankfully.
+ - I think part of me would love to play a drag queen, just because it would be an excuse to wear loads of eye makeup.
+ - I think I have just always had an awareness that when you go to a premiere and people start cheering and shouting your name and stuff, they are shouting at a perception of you that they have.
+ - I wasn’t the most popular kid in school.
+ - I don’t want to say I’ll never play someone with a cockney accent, but I think I would be irritated by me doing it.
+ - If you’re having a bad day, get on with your job, because you having a bad day can affect everyone around you.
+ - Stage is much more intimidating than going before the cameras, because you can really screw up, and can’t do a retake.
+ - A lot of modern horror can leave me cold, and I’m not good with blood and gore and all that stuff. It’s not fun for me. There’s nothing entertaining about watching a film like that.
+ - I meet hundreds of people, and I’m not going to remember them. But every single one of them will remember their interaction with me.
+ - When you get as lucky as I got, you have to work as hard as possible to earn that luck.
+ - I’ve always thought that as long as directors and casting directors don’t see me as just Harry Potter, I’ll be OK. People have shown a lot of faith in me, and I owe them a huge debt. They’re letting me prove that I’m serious about this.
+ - I’m certainly lucky to have got famous through something that was so well liked, generally speaking.
+ - I think of myself as being Jewish and Irish, despite the fact that I’m English.
+ - I’m getting better now, but I used to be incredibly awkward with girls. I think any guy who says ‘I’ve never had an awkward moment with a girl’ is a liar.
+ - I am a frighteningly thorough person.
+ - I just want to keep working, really. I just want to keep acting. Playing one part for a very long time builds up in you a desire to play as many different things as you can.
+ - When I get into trouble at school I’d like to take an invisibility cloak, drape it over me and sneak out the door. Or I’d like to have a 3 headed-dog because then no one would argue with me.
+ - The stories I’m interested in are challenging ones, and maybe that requires a little bit more of you. I love my job and I want to earn the right to do it every single day.
+ - The sixth Harry Potter film – I don’t like my performance in that film at all.
+ - A gay murder movie is never going to be, like, breaking box office records.
+ - I like the idea of not having to do stuff for the money, and if I want to, I can pick indie projects for the rest of my life and be quite happy doing that.
+ - I grew up listening to show tunes in the back of the car.
+ - In terms of drama school, what that will give you that you won’t necessarily learn on a film set is the technical ability – ie, projecting your voice and stage craft.
+ - I think pressure is a good thing and it’s good to be able to feel it and use it and experience the feeling of it and especially if you can get past it.
+ - My mom and dad were actors when they were younger and had a horrible experience of it. My dad became a literary agent and my mom a casting director.
+ - I’m an atheist, but I’m very relaxed about it. I don’t preach my atheism, but I have a huge amount of respect for people like Richard Dawkins who do.
+ - I’ve learnt a lot about certain things but you also learn through your own experience.
+ - Ironing boards are a classic example of something I find horrible about modern society: the excitementation, for want of a better word, of mundane things.
+ - I take things in better when I’m allowed to talk, and respond, and engage and move around a bit.
+ - Well, I think I’m a feminist, just by the virtue of the fact that I believe in equal rights for everyone.
+ - My parents were what I like to call proper musical fans. Lots of Sondheim was played in the car.
+ - For ages, in my lunch hours, I would just go round and choreograph fight scenes. For fun. So now I’m very good at being thrown around. I bounce, in the words of my friends.
+ - I didn’t have that normal teenage period when you build up your friends in your area and you have a social circle.
+ - I basically have the diet of a 19th-century Irish navy, apart from the litre of stout a day. It’s meat and potatoes and bread and cheese: those are my four food groups.
+ - It’s very rare that I get stopped or get asked for an autograph or anything – none of which I mind – but people don’t really care that much.
+ - Shyness displays itself differently in me. I think it’s more an awkwardness.
+ - I was worried on a personal level because I wanted to be slightly taller than I am, ideally. But I’ve now accepted it. Basically, I came to the conclusion a while ago that you can either be really bitter about it or you can make loads of funny jokes.
+ - I’m possibly a very morbid person but I think about death a lot.
+ - The thought of dancing scared me. A lot. Because I have absolutely no aptitude for it.
+ - And the people I’m best friends with on the films are not generally the actors.
+ - I love Steve Carell and Will Ferrell – they’re my heroes.
+ - I’ll say American for now. I really have no preference, though. Nationality is nothing. It’s all about the girl – but she has to be curvy!
+ - Both of my parents have been actors; there were a lot of show tunes on in the car all of the time. I grew up with that.
+ - I’m thrilled of the acceptance I get abroad. The people are so hearty, warm and grateful and I feel privileged having seen so many countries and some of the greatest monuments.
+ - I don’t know why that is, but English politics is just so overly white. It’s very much about the class structure.
+ - What I learned is that acting is to a large extent about trying to stave off self-doubt long enough to be natural and real onstage.
+ - If you like the book, you’ll hate the movie.
+ - Fans are really important for me. And if they take pains to write me, it’s the minimum that I answer myself.
+ - I still have issues around forgetting that it’s my life and if I want to do something, I can do it.
+ - I think any actor worth their salt wants to show as much versatility as they possibly can.
+ - I would like to initiate an initiative – the Broadway Annoying Audience Member Relocation Programme.
+ - I might like to be an actor, but there are loads of other things I’m interested in as well, like music and writing and sports. I want to keep my options open.
+ - I always feel that if you put me in a room with a director and a writer and let me talk about the script, I can give a good account of myself.
+ - I enjoy any type of physical transformation. I enjoy working with the hair and makeup department and I enjoy watching people be very good at their jobs.
+ - I just have this fear that I’ll get on stage and there’ll be that brief moment of adrenalin and I’ll forget my line.
+ - I love coming home to somebody, I love being in a relationship.
+ - People who have car collections – I never understood that. I always thought that was unnecessary. It’s not beautiful, it’s not creative. It’s just showing how much money you’ve got.
+ - In my experience of doing physical scenes, half of your energy is spent on trying to get the other actor to enter into it physically with you. Most actors don’t want to hurt each other.
+ - Acting is really instinctual and I think you can overanalyse what you’re doing. A lot of it has to be based on instinct.
+ - I mean I’ve seen 3D films so far and I think it’s a long way to go before they replace actors. It’s a funny thing with 3D, I haven’t quite got it yet. Yet.
+ - I just moved into the world of Xbox Live. And I’ve discovered that everyone on the Internet is a lot better than me. I spent half an hour the other day designing a boxer, and I got knocked out twice in the first round.
+ - My dad’s got a brilliant eye for scripts ’cos he’s a literary agent. He and my agent read a load of scripts and filter them.
+ - I’ve worked every day since I was 10. I don’t know how to do anything else. There is nothing else I’d rather be doing.
+ - I think being on a film set for such a long time made me a technical actor without realizing it.
+ - I don’t really care about how I look.
+ - There’s an incredible comfort level that I have on film sets because it’s where I’ve grown up.
+ - It’s interesting because people assume that because I’m famous I know all famous people.
+ - Because of the life I’ve had, I’d grown up quicker than most people.
+ - I played bass for a year, but I wasn’t getting better at it, so I decided to stop so I could see my friends.
+ - I definitely want to go on acting for as long as I can find employment. I’m never happier than when I’m on a film set. I just want to keep working.
+ - Part of an actor’s job is to find correlations between your own life and the life of the person you are playing.
+ - You pick projects for the part, the director, and the script. I just want to do different, interesting stuff.
+ - I’ve been working since I was 9, and I’ve never known a life without a film set.
+ - I’ve always had, like, from the age of about 11, I’ve had such an intolerance for bad behaviour of actors that I don’t think I was ever going to be that person.
+ - I think that the process of making a film is an underrated factor in how that film turns out.
+ - There were a few years there when I was just so enamored with the idea of living some sort of famous person’s lifestyle that really isn’t suited to me.
+ - I used to joke I was a point-and-click actor. My whole process has been about trusting your instincts and hitting your mark.
+ - I seem to be a long-term relationship kinda guy.
+ - Franchises aren’t to be avoided. They can be exciting, and they give you opportunities to do other films.
+ - I Google myself to see what come up when you Google Daniel Radcliffe because that’s always amusing.
+ - The American version of ‘The Office’ is fantastic.
+ - I know it wouldn’t seem like I’ve had a lot of failure in my career, but there are things that I regard as failures, when I look at certain performances and go, ‘That’s not good enough.’
+ - I could never do stand-up because it’s that thing of having to get up on stage. And out of every 10 jokes you tell, nine of them have to get a really good response.
+ - I want to write and direct, but I don’t think if I did it for 100 years I would ever come close to putting something out there that gives a feeling of all-encompassing and joyous.
+ - I would love to work in America. I wouldn’t love to live there, but I’d love to experience working there.
+ - I certainly want to establish myself as an actor in my own right, rather than being just the actor who plays Harry Potter.
+ - Dane DeHaan, certainly, is kind of the best friend I’ve made through acting, in terms of another actor. He’s fantastic.
+ - I’m the only kid in the world who doesn’t want an eighth Harry Potter book.
+ - My taste in the films I’ve taken as an actor is similar to what I’d do a director or writer: all quite odd, challenging stuff, slightly off-the-wall.
+ - That’s what fame does to you. You acquire another self.
+ - I met Elijah Wood once, I met Peter Jackson, I met Orlando Bloom, and they’re all really cool.
+ - If you spent a proper amount of time with me, you would probably wonder if I was on drugs – I’m not. I’m just incredibly hyperactive and manic. I can be quiet and serious at the same time.
+ - Potter for me is something that’s been giving me these amazing opportunities to start a career and learn while I’m doing, which is the best way to learn.
+ - One of the things that I cannot fathom is young actors who will not audition and won’t read.
+ - I thought I was an actor playing a wizard. But really, I was a wizard playing an actor.
+ - I would consider doing any part as long as the script is good and the film has an interesting director.
+ - You have to find out who you are aside from what the media say you are. If you’ve become reliant on them for kind of a sense of self, then you’re really screwed.
+ - Obviously, I’ve been very lucky in general in my career, but I feel that I’ve been very lucky in terms of having directors come along at the right times who have taken me to the next level of where I needed to be.
+ - Maybe it’s a compliment to the film that you can’t do that with it, that it can’t be explained in 15 seconds.
+ - I have quite a rich inner life, and I’m constantly looking for a way to express that. I haven’t found it yet in acting. When you’re playing a character, you’re only going to find outlets for very specific parts of your inner world.
+ - I like the idea of being a youngish parent. So I’ve got energy to play football even though they’ll be better than me by the time they’re four.
+ - I’m somebody who is very, very proud to have been a part of the British film industry all my life and to have kind of been involved with a very important piece of British film history.
+ - I’m never going to be in something as commercially successful as ‘Harry Potter’ ever again. It’s impossible. So that gives me incredible freedom to go off and make the slightly off-the-wall films that I want to make.
+ - I don’t know where my romanticism comes from. My mom and dad would read to me a lot. ‘Treasure Island,’ ‘Robinson Crusoe,’ tales of chivalry and knights, things like that. Those are the stories I loved growing up.
+ - And well historically it’s never been a good thing to compare yourself to biblical characters.
+ - And I’m slightly in love with Scarlett Johansson: she’s just stunning. And she’s bright, which is incredibly sexy.
+ - The real challenge of acting for me, I suppose, is just getting to know a character very, very well and just applying what I know about them to every single scene. That’s what it can be broken down to.
+ - Normally I sit there in the films really hating watching myself. Loving watching the films, hating watching myself.
+ - Fame is damaging when people become reliant on it for their sense of self, and their identity, when fame is linked to how you see yourself.
+ - I’m not clean or even vaguely pleasant to be around in a domestic situation.
+ - It’s almost a problem how much I enjoy my work.
+
+197 quotes

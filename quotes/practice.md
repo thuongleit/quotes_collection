@@ -1,0 +1,42 @@
+ - Practice every time you get a chance. ~~Bill Monroe
+ - If you want to move to a new level in your life, you must break through your comfort zone and practice doing things that are not comfortable. ~~T. Harv Eker
+ - Practice makes perfect. After a long time of practicing, our work will become natural, skillfull, swift, and steady. ~~Bruce Lee
+ - Study hard, practice hard, play ferociously. ~~John Kessel
+ - People are rewarded in public for what they practice for years in private. ~~Tony Robbins
+ - Do your practice and all is coming. ~~K. Pattabhi Jois
+ - It’s not about the number of hours you practice, it’s about the number of hours your mind is present during the practice. ~~Kobe Bryant
+ - It’s a funny thing, the more I practice the luckier I get. ~~Arnold Palmer
+ - Programming is a skill best acquired by practice and example rather than from books. ~~Alan Turing
+ - To practice any art, no matter how well or badly, is a way to make your soul grow. So do it. ~~Kurt Vonnegut
+ - Do not entertain hopes for realization, but practice all your life... ~~Milarepa
+ - Authenticity is the daily practice of letting go of who we think we’re supposed to be and embracing who we are. ~~Brené Brown
+ - One conscious breathe in and out is a meditation. ~~Eckhart Tolle
+ - You always have to be on edge. You always have to take every practice, every game, like it is your last. ~~Kobe Bryant
+ - I’ve always considered myself to be just average talent and what I have is a ridiculous insane obsessiveness for practice and preparation. ~~Will Smith
+ - If you practice gratitude a little, your life will change a little. If you practice gratitude a lot every day, your life will change dramatically and in ways that you can hardly imagine. ~~Rhonda Byrne
+ - Practice the philosophy of continuous improvement. Get a little bit better every single day. ~~Brian Tracy
+ - By the practice of meditation, you will find that you are carrying within your heart a portable paradise. ~~Paramahansa Yogananda
+ - See to it that you temper yourself with one thousand days of practice, and refine yourself with ten thousand days of training. ~~Miyamoto Musashi
+ - There is timing in everything. Timing in strategy cannot be mastered without a great deal of practice. ~~Miyamoto Musashi
+ - Knowledge without practice is useless. Practice without knowledge is dangerous. ~~Confucius
+ - Do something you hate every day, just for the practice. ~~John C. Maxwell
+ - Success has to do with deliberate practice. Practice must be focused, determined, and in an environment where there’s feedback. ~~Malcolm Gladwell
+ - Change your thinking. Change your life! Your thoughts create your reality. Practice positive thinking. Act the way you want to be, and soon you will be the way you act. ~~Les Brown
+ - Mind is there, in front of you. Don’t log in. ~~Mooji
+ - Knowledge is of no value unless you put it into practice. ~~Anton Chekhov
+ - Too many people want the appearance of winning rather than the practices and hard work that create a true champion. ~~T.D. Jakes
+ - You can practice shooting eight hours a day, but if your technique is wrong, then all you become is very good at shooting the wrong way. Get the fundamentals down and the level of everything you do will rise. ~~Michael Jordan
+ - Knowledge that is not put into practice is like food that is not digested. ~~Sathya Sai Baba
+ - A society grows great when old men plant trees whose shade they know they shall never sit in. An ounce of practice is worth more than tons of preaching. ~~Mahatma Gandhi
+ - To cultivate equanimity we practice catching ourselves when we feel attraction or aversion, before it hardens into grasping or negativity. ~~Pema Chödrön
+ - Difficult times are the greatest opportunities in disguise. When we face difficult times we have to put in determined work to get ourselves into joy. Difficult times are your greatest opportunity to practice yourself into joy! ~~Rhonda Byrne
+ - Practice moderation in all things except love. ~~Gary Zukav
+ - Practice sharing the fullness of your being, your best self, your enthusiasm, your vitality, your spirit, your trust, your openness, above all, your presence. Share it with yourself, with your family, with the world. ~~Jon Kabat-Zinn
+ - Here is a new spiritual practice for you: don’t take your thoughts too seriously. ~~Eckhart Tolle
+ - If you can’t meditate in a boiler room, you can’t meditate. ~~Alan Watts
+ - Spiritual practices help us move from identifying with the ego to identifying with the soul. Old age does that for you too. It spiritualizes people naturally. ~~Ram Dass
+ - All spiritual practices are illusions created by illusionists to escape illusion. ~~Ram Dass
+ - Live with intention. Walk to the edge. Listen hard. Practice wellness. Play with abandon. Laugh. Choose with no regret. Appreciate your friends. Continue to learn. Do what you love. Live as if this is all there is. ~~Mary Anne Radmacher
+ - People often say that humans have always eaten animals, as if this is a justification for continuing the practice. According to this logic, we should not try to prevent people from murdering other people, since this has also been done since the earliest of times. ~~Isaac Bashevis Singer
+
+40 quotes

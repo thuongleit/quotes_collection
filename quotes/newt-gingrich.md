@@ -1,0 +1,170 @@
+ - Perseverance is the hard work you do after you get tired of doing the hard work you already did.
+ - And my point was one I think that you’d agree with, which is there’s no room in America for a black racist, a Latino racist, or a white racist, or an Asian racist, or a Native American racist. Now, we’re either color blind or we’re not color blind.
+ - If you’re not brave, you’re not going to be free.
+ - I will continue to find ways to help poor people find a job, get a job, and learn someday to own the job.
+ - On the battlefield of ideas, winning requires moving toward the sound of the guns.
+ - Imagine a judicial nominee said ‘my experience as a white man makes me better than a Latina woman.’ Wouldn’t they have to withdraw? New racism is no better than old racism.
+ - Now, I know among the politically correct, you’re not supposed to use facts that are uncomfortable.
+ - The bigotry question goes both ways. There’s a lot more anti-Christian bigotry today than there is concerning the other side. None of it gets covered by the news media.
+ - The most powerful force changing our society is the information revolution.
+ - Really poor children in really poor neighborhoods have no habits of working and have nobody around them who works. So they literally have no habit of showing up on Monday. They have no habit of staying all day. They have no habit of ‘I do this and you give me cash’ unless it’s illegal.
+ - The most important social welfare program in America is a job.
+ - It’s a normal way of doing business.
+ - I discourage a cult of personality.
+ - As an American I am not so shocked that Obama was given the Nobel Peace Prize without any accomplishments to his name, America gave him the White House based on the same credentials.
+ - Rethink every aspect of bureaucracy.
+ - We have got to get beyond this political bologna. I’m not allowed to say anything positive about Hillary Clinton because then I’m not a loyal Republican, and she’s not allowed to say anything positive about me because then she’s not a loyal Democrat. What a stupid way to run a country.
+ - To the degree I was too brash, Too self-confident or too pushy, I apologize.
+ - If you go to the Lincoln Memorial, the Second Inaugural is probably the most religious speech ever given by an American President. In its 732 words, it references God 14 times and has two verses of the Bible.
+ - When you have a 12-minute debate over whether lipstick on a pig refers to a demeaning comment about the vice presidential candidate, you know we’re not talking about health reform, we’re not talking about energy policy, we’re not talking about balancing the budget. And you know, it’s fairly stupid.
+ - I think one of the great problems we have in the Republican Party is that we don’t encourage you to be nasty. We encourage you to be neat, obedient, loyal and faithful and all those Boy Scout words, which would be great around a campfire but are lousy in politics.
+ - I don’t care who you are, I care who you want to be.
+ - I think the destructive, vicious, negative nature of much of the news media makes it harder to govern this country, harder to attract decent people to run for public office.
+ - The secular socialist machine represents as great a threat to America as Nazi Germany or the Soviet Union once did.
+ - It is perfectly American to be wrong.
+ - I will go to the NAACP convention, and explain to the African-American community why they should demand paychecks instead of food stamps.
+ - Is capitalism really about the ability of a handful of rich people to manipulate the lives of thousands of people and then walk off with the money?
+ - Only the elites despise earning money.
+ - What’s the job of the candidate in this world? The job of the candidate is to raise the money to hire the consultants to do the focus groups to figure out the 30-second answers to be memorized by the candidate. This is stunningly dangerous.
+ - Have you heard a single national figure tell you all of the crises of the recent past are not economic, they’re cultural?
+ - You want to be a country that creates food stamps? In which case, frankly, Obama is an enormous success the most successful food stamp president in American history. Or do you want to be a country that creates jobs?
+ - In every election in American history both parties have their cliches. The party that has the cliches that ring true wins.
+ - Established systems are inherently hostile to change.
+ - The mother killing her two children in South Carolina vividly reminds every American how sick the society is getting and how much we have to have change. I think people want to change and the only way you get change is to vote Republican.
+ - Military tribunals to lock people up the way Lincoln did.
+ - Heterosexual marriage is the heart of our civilization.
+ - It is impossible to maintain civilization with 12-year-olds having babies, with 15-year-olds killing each other, with 17-year-olds dying of AIDS and with 18-year-olds getting diplomas they can’t read.
+ - 1995 government shutdown from GOP underestimating Clinton.
+ - What I said was: We want everybody to learn English because we don’t want – I didn’t use the word ‘Spanish.’
+ - I love the environment, but I’m cheap on the environment.
+ - I’m not a natural leader. I’m too intellectual; I’m too abstract; I think too much.
+ - ACLU has become eccentric and destructive.
+ - The left-wing Democrats will represent the party of total hedonism, total exhibitionism, total bizarreness, total weirdness, and the total right to cripple innocent people in the name of letting hooligans loose.
+ - Without Jimmy Carter we might not have gotten Ronald Reagan, without Ronald Reagan there would probably still be a Soviet Union.
+ - Even if Iraq IS a civil war, people have won civil wars.
+ - I have enormous personal ambition. I want to shift the entire planet. And I’m doing it. I am now a famous person. I represent real power.
+ - I’m opposed to giving people money for doing nothing.
+ - I’m going to be the nominee. It’s very hard not to look at the recent polls and think that the odds are very high I’m going to be the nominee.
+ - EITC is an invitation to fraud.
+ - We do agree that our country must take action to address climate change.
+ - I don’t see how the party that says it’s the party of the family is going to adopt an immigration policy which destroys families that have been here a quarter century.
+ - I think Jefferson and George Washington would strongly discourage you from growing marijuana, and their tactics to stop you would be more violent than they would be today.
+ - We should end the Environmental Protection Agency’s war against American oil and gas.
+ - Convert to IRA-based system.
+ - Criminals thrive on society’s understanding.
+ - I do not believe that the people of the United States are going to take people who have been here a quarter century, who have children and grandchildren, who are members of the community, who may have done something 25 years ago, separate them from their families, and expel them.
+ - I think the very concept of an elite commission deciding for the American people who deserves to be heard is profoundly wrong.
+ - We have to pull back, and we have to recognize it.
+ - Part of why the Tea Party so deeply threatened the elite media is the tea party looked around and suddenly realized, there are more of us than there are of them.
+ - We are going to have the candidate of food stamps, the finest food-stamp president in the American history, in Barack Obama, and we are going to have a candidate of paychecks.
+ - The sacrament of marriage is based on a man and woman.
+ - There’s no question at times of my life, partially driven by how passionately I felt about this country, that I worked far too hard and things happened in my life that were not appropriate.
+ - The secular elites are so terrified of telling the truth about radical Islam. When you talk about the radical Islamists, we have got to get straight and get serious and talk about it in the right way.
+ - You can’t flip-flop and be commander-in-chief.
+ - It was an enormous mistake for us to try to occupy that country after June of 2003. We have to pull back, and we have to recognize it.
+ - If the Soviet empire still existed, I’d be terrified. The fact is, we can afford a fairly ignorant presidency now.
+ - Show true cost of FICA-double what is shown on paychecks.
+ - What is the primary purpose of a political leader? To build a majority. If voters care about parking lots, then talk about parking lots.
+ - Deadline for Iraqi withdrawal is legislating defeat.
+ - Polls are biased left; GOP wins on the issues.
+ - If you’ve been here 15 years and you’ve got three kids and grandkids and you’ve been paying taxes and obeying the law, you belong to a local church, I don’t think we’re going to separate you from your family, uproot you forcefully and kick you out.
+ - Reagan believed the power of truth restated the world and re framed the world. I am a Reaganite. I’m proud to be a Reaganite. I will tell the truth, even if it’s at the risk of causing some confusion sometimes with the timid.
+ - The Republican brand has been so badly damaged that if Republicans try to run an anti-Obama, anti-Rev. Wright or, if Sen. Clinton wins, anti-Clinton campaign, they are simply going to fail. This model has already been tested with disastrous results.
+ - Those of us who believe in free markets and those of us who believe that in fact the whole goal of investment is entrepreneurship and job creation, we find it pretty hard to justify rich people figuring out clever legal ways to loot a company, leaving behind 1,700 families without a job.
+ - President Obama is a president so weak that he makes Jimmy Carter look strong.
+ - We’re at the crossroads. Down one road is a European centralized bureaucratic socialist welfare system in which politicians and bureaucrats define the future. Down the other road is a proud, solid, reaffirmation of American exceptionalism.
+ - Authorize the exploration of proven energy reserves to reduce our dependence on foreign energy sources from unstable countries and reduce regulatory barriers.
+ - The Congressional Budget Office is a reactionary socialist institution which does not believe in economic growth, does not believe in innovation, and does not believe in data that it has not internally generated.
+ - We should replace bilingual education with immersion in English so people learn the common language of the country and they learn the language of prosperity, not the language of living in a ghetto.
+ - An energy tax punishes senior citizens, it punishes rural Americans, if you use electricity it punishes you. This bill will increase your cost of living and may kill your job.
+ - Baby Boomers becoming Republicans while Dems become outdated.
+ - It is false to suggest that Thomas Jefferson or any other Founding Father believed in a legal barrier to God in the public square.
+ - The time has come to tell the truth about the corruption of the government employee unions in this country.
+ - Frankly, Governor Romney in his career has created more jobs than the entire Obama cabinet combined, so he could actually talk about it.
+ - I will not rest until I have transformed the landscape of American politics.
+ - As a citizen, I would rather have a President McCain that we fight with 20% of the time, than a President Clinton or a President Obama that we fight with 90% of the time.
+ - I would just say that if Governor Romney would like to give back all the money he’s earned from bankrupting companies and laying off employees over his years at Bain that I would be glad to then listen to him. I’ll bet you $10, not $10,000, that he won’t take the offer.
+ - I think we’ve had an invented Palestinian people who are in fact Arabs, and who were historically part of the Arab community.
+ - The long experiment with professional politicians and professional government is over, and it failed.
+ - Drill here, drill now, pay less.
+ - I will focus on being substantive and I will focus on Barack Obama.
+ - I balanced the budget for four straight years, paid off $405 billion in debt – pretty conservative. The first entitlement reform of your lifetime – in fact, the only major entitlement reform to now is welfare.
+ - The problem isn’t too little money in political campaigns, but not enough.
+ - Press plays “gotcha”; limit press briefings.
+ - Governor Romney may be running for CEO, I’m running for President.
+ - Being Americans, we prosecute wars to win them, not to have reasonable response, not to have appropriate levels of retaliation. Our theory is you start bombing our cities; we’re going to defeat you and make it impossible.
+ - Ongoing battle against liberals nationalizing healthcare.
+ - Support charters; insist on change for failing schools.
+ - The fact is that a liberal Democrat doesn’t want to talk about ideology because they don’t want to explain publicly what they’re really doing.
+ - If you want to see why President Obama is worried this November, watch The Hope and the Change.
+ - Private scholarships for students at hopeless schools.
+ - Politics and war are remarkably similar situations.
+ - Gingrich – Primary mission, Advocate of civilization, Definer of civilization, Teacher of the rules of civilization, Leader of the civilizing forces.
+ - Bowing to the Saudi king is not an energy policy.
+ - President Obama has created at least three jobs that I know of – Bob McDonnell, Chris Christie, and Scott Brown.
+ - 1994 GOP victory destroyed bipartisanship.
+ - Liberals exploit weakness; conservatives offer strength.
+ - Go get a job after you take a bath.
+ - Public Broadcasting is a sandbox for the rich. The NEA and the HEH are simply enclaves of the left using your money to propagandize your children against your values.
+ - You can’t trust anybody with power.
+ - Give the park police more ammo.
+ - What more do I need to say? Conservative books sell. I can’t help it if liberal books don’t sell.
+ - Personal responsibility extends to the purchase of health insurance. Citizens should not be able to cheat their neighbors by not buying insurance, particularly when they can afford it, and expect others to pay for their care when they need it.
+ - We tried to have diplomas without learning, we tried to have jobs without work, we tried to have houses without savings, we tried to have government without responsibility.
+ - I want to make sure every House Republican is protected from some kind of dishonest Democratic ad. So let me say on the record, any ad which quotes what I said on Sunday is a falsehood.
+ - I believe we are now in a struggle over whether or not we are going to save America.
+ - All of us have a responsibility to help pay for health care.
+ - To have a major breakthrough in policy, you have to be able to stop and think.
+ - White man racist nominee would be forced to withdraw. Latina woman racist should also withdraw.
+ - A mere forty years ago, beach volleyball was just beginning. No bureaucrat would have invented it, and that’s what freedom is all about.
+ - Oh, he was asking to have an open marriage and I refused.
+ - So I’d be quite happy to have a three-hour Lincoln-Douglas-style debate with Barack Obama. I’d let him use a teleprompter. I’ll just rely on knowledge. We’ll do fine.
+ - My theme is going to be: Together we can win the future. The right policies lead to the right results. And I’m going to argue that President Obama will lose the future because the wrong policies lead to the wrong results.
+ - The evidence is sufficient that we should move towards the most effective possible steps to reduce carbon loading of the atmosphere.
+ - I think to close half of Magic Kingdom for the purpose of a White House invitation town hall meeting on a phony main street on behalf of a phony president just strikes me as weird.
+ - GOP represents people, but Dems communicate better.
+ - That will change over time the entire flow of information and the entire quality of knowledge in the country and it will change the way people will try to play games in the legislative process.
+ - Defeating Barack Obama becomes, in fact, a duty of national security. Because the fact is, he is incapable of defending the United States.
+ - People like me are what stand between us and Auschwitz.
+ - The Congress is pretty powerful if it wants to be.
+ - You have to give the press confrontations. When you give them confrontations, you get attention; when you get attention, you can educate.
+ - Now, we don’t get rid of it in round one because we don’t think that that’s politically smart, and we don’t think that’s the right way to go through a transition. But we believe it’s going to wither on the vine because we think people are voluntarily going to leave it – voluntarily.
+ - It may just be because I get homesick, but I have concluded Washington’s cherry blossoms are just plain overrated.
+ - We have to frankly break the back of the secular-socialist machine, elect people committed to representing the American people, and then methodically rip the system apart.
+ - Somebody ought to have the courage to tell the truth. These people are terrorists.
+ - If the Obama administration is this afraid of Glenn Beck, how do they deal with the Iranians?
+ - We in this House are role models. People all over the world watch us and study us. When we fall short, they lose hope. When we fail, they despair.
+ - The idea that a congressman would be tainted by accepting money from private industry or private sources is essentially a socialist argument.
+ - Input of public judgement for any major tax reform.
+ - We need a dramatically expanded use of statecraft.
+ - There’s a large part of me that’s four years old. I wake up in the morning and I know that somewhere there’s a cookie. I don’t know where it is but I know it’s mine and I have to go find it. That’s how I live my life. My life is amazingly filled with fun.
+ - It is time we passed a balanced budget amendment and return this government to limited spending.
+ - In the middle of a recession no tax increase is justified because it kills jobs, and any tax increase is a job-killing measure and should be defeated.
+ - I think every religious person should have a deep sense of respect for other people’s religious documents and religious symbols just as we were deeply opposed to the Taliban destroying the two historic buddhas which they blew up. So I think we ought to all oppose burning the Koran.
+ - Surely the President can agree with us, that theft from government is not good. I know it’s bold. It’s out on the edge. I know from a Chicago-Springfield background it’s hard to fully grasp that honesty could be part of government.
+ - When a court goes too far, it actually weakens our respect for judicial institutions.
+ - I have six times as many Twitter followers as all the other candidates combined, but it didn’t count because if it counted I’d still be a candidate; since I can’t be a candidate that can’t count.
+ - We don’t we agree that litigation reform to lower the cost of healthcare would be a good starting point?
+ - All unemployment compensation should be tied to a job training requirement. Now the fact is, 99 weeks is an associate degree.
+ - My strength and my weakness is that I see normally impersonal events vividly and personally.
+ - Government should take management lesson from private sector.
+ - Focus on prevention; would save $14B with diabetes.
+ - I don’t understand why they call it public broadcasting. As far as I am concerned, there’s nothing public about it; it’s an elitist enterprise. ‘Rush Limbaugh’ is public broadcasting.
+ - Anyone who would understand the Reagan victory of 1980 and the movement that eliminated the Soviet Union and revitalized America must read-indeed must study-Craig Shirley’s brilliant, comprehensive work.
+ - Would you pick me? I am so much my own agent, it would be – its inconceivable.
+ - President Obama is the most successful food stamp president in American history. I would like to be the most successful paycheck president in American history.
+ - The America in which we grew up is vastly different from the America the secular-socialist Left want to create. And that’s why saving America is the fundamental challenge of our time. The secular-socialist machine represents as great a threat to America as Nazi Germany or the Soviet Union once did.
+ - By the end of my second term, we will have the first permanent base on the moon, and it will be American.
+ - Should the Catholic Church find itself discriminated against by the Obama administration on key delivery of services because of the bias and the bigotry of the administration?
+ - Stop costly new regulations that would increase unemployment, raise consumer prices, and weaken the nation’s global competitiveness with virtually no impact on global temperatures.
+ - Maybe Governor Romney in the spirit of openness should tell us how much money he’s made off of how many households that have been foreclosed by his investments.
+ - It is time to know more about would-be terrorists, to profile for terrorists and to actively discriminate based on suspicious terrorist information.
+ - Book cover, ‘Reefer Club’ Totalitarianism is when people believe they can punish their way to perfection.
+ - I think Ron Paul’s views are totally outside the mainstream of virtually every decent American.
+ - I believe we will elect a new President in 2012.
+ - Opposing taxes is a key conservative value.
+ - Nazis don’t have the right to put up a sign next to the Holocaust Museum in Washington. We would never accept the Japanese putting up a site next to Pearl Harbor. There’s no reason for us to accept a mosque next to the World Trade Center.
+ - Elected on anti-corruption platform in 1978.
+ - It doesn’t matter what I do. People need to hear what I have to say. There’s no one else who can say what I can say. It doesn’t matter what I live.
+
+168 quotes

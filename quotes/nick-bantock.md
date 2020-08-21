@@ -1,0 +1,22 @@
+ - Letter writing is an excellent way of slowing down this lunatic helterskelter universe long enough to gather one’s thoughts.
+ - You cannot separate art from life or spirituality. They are bound together in a single unit.
+ - Art becomes a spiritual process depending upon the degree of commitment that you bring to it. Every experience becomes direct food for your art. Then your art teaches you about life.
+ - I don’t think I am scared of intimacy, but I am frightened of making a mistake. offering more than I have, or expecting more than you can give. – Matt Sedon.
+ - I like it that my career has all the predictability and continuity of a children’s nonsense rhyme.
+ - She who licks her lips knows the taste of her lover’s desires.
+ - Our old experiences, memories and fears guide us down the present path. It’s not so much that you are the artist; you are the conduit.
+ - For me, synchronicity is a way of confirming the rightness of action. It is only in its absence that I realize I’m out of kilter with, for want of a better term, the collective unconscious.
+ - Pain and beauty, our constant bedfellows.
+ - Growing up in England, people told you why you couldn’t do things. Suddenly, I had a publisher banging on my door, and was given the creative green light to simply make.
+ - Art is like therapy; what comes up is what comes up. It may be dark, but that’s what comes up. You may want to keep some of it in a drawer but never judge it.
+ - The telephone is a great knee-jerk machine, but if you really want to tell someone how you feel, you need the slowness of the letter. In a society where everything is fast, it’s like going out in the country and looking up at the stars.
+ - I was frightened to go forward, but I was even more frightened of going back.
+ - An idea or an insight doesn’t come from a single happening, it requires a meeting to alter a perspective. Often it takes a while for the events to collide, but when they do it is inevitable that a change will follow.
+ - I have no idea of what it’s going to look like when I start a piece. Making art is like having a relationship. You want to bring in some ideas, but if you don’t allow it to develop naturally and speak to you as it develops, you end up imposing and projecting upon it.
+ - Every one of us sees ‘green’ differently. So everything is an approximation of understanding.
+ - It’s the nasty and the accident that form the foundation for elegance that comes later.
+ - The threads of circumstance that lead to tomorrow are so tenuous that all the fussing and worrying about decisions is futile compared to the pure randomness of existence.
+ - I do what I want to do. I see where my enthusiasm is. Over the years, my techniques expanded. That’s how the writing came out.
+ - I had never read in public, never given an interview. I was doing it all and trying to produce the next book and raise three young kids and had another child on the way.
+
+20 quotes

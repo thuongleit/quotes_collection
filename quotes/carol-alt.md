@@ -1,0 +1,32 @@
+ - Society says that men need to be bigger and stronger, and they must protect their women and so on.
+ - If you have a moral compass, and you stay with it, people will always gravitate towards you...
+ - I’m not a fast driver. I’ve seen what speed can do.
+ - I’m not a vegetarian.
+ - Sometimes fact is stranger than fiction.
+ - I am thrilled to be able to bring my vision of beauty to others who may be inspired by it.
+ - It doesn’t matter what age you are. You can look sexy and feel great, and that doesn’t have to be a gift only for the young. It can be a gift for any age, even the old, whatever that is nowadays.
+ - I was diagnosed with hypoglycemia, an abnormal decrease of sugar in the blood. Eventually I learned to eat five small meals a day. Now if I’m making a movie and get hungry, I call time out to eat some crackers.
+ - I didn’t think there was life after modelling, believe me. It’s a hit to the ego when you are not the diva on the set any more. But I think what keeps me going are challenges. I love when people tell me I can’t do something.
+ - I don’t eat celery. I eat raw milk, cheeses.
+ - I never thought I was the most beautiful model out there or the most sexy woman, but I was a hard worker.
+ - Elle MacPherson is absolutely amazing; she is just so beautiful.
+ - I went along doing the one-salad-a-night routine for a year. And I remember feeling so tired and depressed and irritable. I had no personal life. I was always flying someplace – weekends, holidays, vacations. Dinners at night were no fun because I couldn’t eat.
+ - When somebody gives you a sexy look, you know they’re trying. It’s terrible! But when you smile, it’s so much sexier!
+ - Food should be raw, just the way God intended it!
+ - It’s not about failure; it’s about trying something and risking something for attaining your goal.
+ - I run like an electric golf cart. Now I look at eating as a way to feed my body and keep me younger. It’s not about starving your body, but treating your body like a Ferrari. You don’t put in the crappiest gas you can find. You use supreme. In the long term, you’ll run clean.
+ - I never drank except a couple sips of wine at Thanksgiving.
+ - I have a sentimental feeling for my very first cover I was on – it was ‘Bazaar’ Magazine.
+ - Because I was the first super-elite, the press caught on and started calling me a supermodel. So in that sense, I guess I’m the first. But, in my opinion, there were girls that could have been called supermodels before that, if the term was in existence.
+ - If you could sit down with Jesus, you wouldn’t need anybody else. He could answer all of your questions. Instead of Einstein and Louis Pasteur and Madame Curry, you could just have Jesus and he could answer for all of them.
+ - There was a point in time when I was in dire need of changing the way the model agency was working.
+ - Becoming an actress takes a lot longer than being a star. I don’t want to be a star. I want to be an actress. I want to build a career.
+ - I think that what scares me more than getting fat during pregnancy is the responsibility of a child.
+ - The sexiest thing about a women is her health. When you feel good, everyone is attracted to you. But if you look sick, they’ll steer a wild path around you.
+ - Everybody’s eating all my – brownies, granola, anything you eat cooked, I can find you raw.
+ - If you can eat 70 percent raw or introduce raw into your diet, it will help your health.
+ - I found my prince – he’s a hockey player and we met at an NHL event, the last place I’d ever expect to meet someone, but there he was.
+ - Sometimes I get so wrought up being brushed, poked and pinned all day.
+ - If I’m making a movie and get hungry, I call time-out and eat some crackers.
+
+30 quotes

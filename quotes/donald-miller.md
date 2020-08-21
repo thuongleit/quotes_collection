@@ -1,0 +1,195 @@
+ - When you stop expecting people to be perfect, you can like them for who they are.
+ - In the age of information, ignorance is a choice.
+ - Moral #1: "If you work hard, stay focused, and never give up, you will eventually get what you want in life." Moral #2: "Sometimes the things we want most in life are the things that will kill us."
+ - Fear is a manipulative emotion that can trick us into living a boring life.
+ - The most difficult lie I have ever contended with is this: life is a story about me.
+ - All the trees are losing their leaves, and not one of them is worried.
+ - Dying for something is easy because it is associated with glory. Living for something is the hard thing. Living for something extends beyond fashion, glory, or recognition. We live for what we believe.
+ - Everybody has to leave, everybody has to leave their home and come back so they can love it again for all new reasons.
+ - When something happens to you, you have two choices in how to deal with it. You can either get bitter, or get better.
+ - Your life is a blank page. You write on it.
+ - People want to join a great story. If you want to lead, tell one with your life.
+ - She knows who she is. She just forgot for a little while.
+ - There is something beautiful about a billion stars held steady by a God who knows what He is doing.
+ - And once you live a good story, you get a taste for a kind of meaning in life, and you can’t go back to being normal; you can’t go back to meaningless scenes stitched together by the forgettable thread of wasted time.
+ - Being a Christian is more like falling in love than understanding a series of ideas.
+ - If you don’t feel free and be yourself, you can’t connect. Find people who accept your quirks. They’ll heal your soul.
+ - Every human being is searching for a deep sense of meaning, and yet we’re all chasing success. We’ve confused one for the other.
+ - We don’t think of our flaws as the glue that binds us to the people we love, but they are. Grace only sticks to your imperfections.
+ - If honesty is the key to intimacy, it means we don’t have to be perfect and we don’t have to pretend to be perfect.
+ - A story is based on what people think is important, so when we live a story, we are telling people around us what we think is important.
+ - Grace only sticks to our imperfections. Those who can’t accept their imperfections can’t accept grace either.
+ - Every day you live is a page. Every year, a chapter. Your life, a book. What is it about?
+ - It occurs to me it is not so much the aim of the devil to lure me with evil as it is to preoccupy me with the meaningless.
+ - The mountains themselves call us into greater stories.
+ - Sometimes the story we’re telling the world isn’t half as endearing as the one that lives inside us.
+ - I think each of us can, through our writing, discover our super power.
+ - No love is conditional. If love is conditional, it’s just some sort of manipulation masquerading as love.
+ - A story is a character who wants something and overcomes conflict to get it.
+ - You can’t tell a good story without conflict – the story can’t be beautiful or meaningful. We’re taught to run from conflict, and it’s robbing us of some really good stories.
+ - We shouldn’t be afraid to embrace whimsy, that nagging idea that life could be magical; it could be special if we were only willing to take a few risks.
+ - I believe the greatest trick of the devil is not to get us into some sort of evil but rather have us wasting time. This is why the devil tries so hard to get Christians to be religious. If he can sink a man’s mind into habit, he will prevent his heart from engaging God. I was into habit.
+ - Most great art is freedom within form. Without form, we are amateurs, without freedom, we are robots.
+ - Good stories must travel through conflict. And in epic stories, the conflict must become unbearable.
+ - There’s a genius part of you that wants to create. That part of you wants to talk to God. Get out of the way.
+ - Be encouraged. Your heart is writing a poem on the world and it’s being turned into a thousand songs.
+ - Nothing is going to change in congo until you and i figure out what is wrong with the person inside the mirror.
+ - The early bird catches the worm. But I have never been one for worms. I am not sure what the late bird catches but I will feast with him today. Probably porridge.
+ - There are two types of men in this world – one is looking for a woman to make his life complete and the other is looking for a woman to join his complete life.
+ - We don’t know how much we are capable of loving until the people we love are being taken away, until a beautiful story is ending.
+ - I’m just trying to make the point that the story we’re telling ourselves is often very different from the story we’re telling the people around us.
+ - He said to me I was a tree in a story about a forest, and that it was arrogant of me to believe any differently. And he told me the story of the forest is better than the story of the tree.
+ - For me, the beginning of sharing my faith with people began by throwing out Christianity and embracing Christian spirituality, a nonpolitical mysterious system that can be experienced but not explained.
+ - I want to keep walking away from the person I was a moment ago, because a mind was made fo figure things out, not to read the same page recurrently.
+ - When I was in love there was somebody in the world who was more important than me, and that, given all that happened at the fall of man, is a miracle, like something God forgot to curse.
+ - And when you find love, or when you are mature enough to understand it, the feeling you get is gratitude.
+ - If you aren’t telling a good story, nobody thinks you died too soon; they just think you died.
+ - Good writers show rather than tell. Stories are told in action. Life stories are no different.
+ - The human body essentially recreates itself every six months. Nearly every cell of hair and skin and bone dies and another is directed to its former place. You are not who you were last November.
+ - Suffering ceases to be suffering when you have a redemptive perspective.
+ - Passion about nothing is like pouring gasoline in a car without wheels. It isn’t going to lead anybody anywhere.
+ - In exchange for our humility and willingness to accept the charity of God, we are given a kingdom. And a beggar’s kingdom is better than a proud man’s delusion.
+ - I have sometimes wondered if the greatest desire of man is to be known and loved anyway.
+ - I think life is staggering and we’re just too used to it.
+ - If we are not willing to wake up in the morning and die to ourselves, perhaps we should ask ourselves whether or not we are really following Jesus.
+ - Telling the truth is the slow, mundane, difficult route to a meaningful life. Anything else is cheating.
+ - We don’t naturally want to take responsibility for our lives. We want to give the responsibility to someone else. We blame them when our lives aren’t good.
+ - Truth grew in my mind like a fungus, and though I tried to sleep it out, there was no resisting the epiphanies.
+ - I had always suspected language was quite limited in its ability to communicate the intricate mysteries of truth.
+ - Without a positive male role model in your life, it is extremely difficult to become a man who benefits his family and benefits society.
+ - God made a whole beautiful earth and decided to put you in it, to experience all of this beauty. You can’t do that watching television all the time.
+ - Sunday morning church service is not an enormous priority; spending time with other believers is.
+ - It is always the simple things that change our lives. And these things never happen when you are looking for them to happen. Life will reveal answers at the pace life wishes to do so. You feel like running, but life is on a stroll. This is how God does things.
+ - When we do what God wants us to do, we are blessed, we are spiritually healthy.
+ - Let’s show up to life. Let’s prove how beautiful it can really be. Let’s face the conflict, redeem it, conquer it, and allow it to mold our character. Let’s participate in what God is doing in the world.
+ - I think our society puts too much pressure on romantic love, and that is why so many romances fail. Romance can’t possibly carry all that we want it to.
+ - Let probability and sample size do the heavy lifting.
+ - I need for there to be something bigger than me. I need someone to put awe inside me; I need to come second to someone who has everything figured out.
+ - I can no more understand the totality of God than the pancake I made for breakfast understands the complexity of me.
+ - How disappointing would it be get to heaven and find out God created life to be enjoyed while all we did was worry?
+ - I took William Zinsser’s advice that you write to yourself and you hope that there are people out there who are like you.
+ - Great stories move through fear.
+ - I often learn more about myself from listening to the life story of a friend than I do reflecting on my own story.
+ - I’m the kind of person who wants to present my most honest, authentic self to the world, so I hide backstage and rehearse honest and authentic lines until the curtain opens.
+ - When we think too much about the opinions of others, we are letting them edit a book God has written.
+ - There are things you cannot understand, and you must learn to live with this. Not only must you learn to live with this, you must learn to enjoy this.
+ - By accepting God’s love for us, we fall in love with Him, and only then do we have the fuel we need to obey.
+ - I asked God to help me understand the story of the forest and what it means to be a tree in that story.
+ - I stay away from churches in which I feel like I have to pretend I’m a better person than I am. That sort of thing moves my faith backwards.
+ - All this beauty exists so you and I can see His glory, His artwork. It’s like an invitation to worship Him, to know Him.
+ - People love to have lived a great story, but few people like the work it takes to make it happen.
+ - I once listened to an Indian on television say that God was in the wind and the water, and I wondered at how beautiful that was because it meant you could swim in Him or have Him brush your face in a breeze.
+ - How many people have damaged their own lives by mistaking enablement for grace?
+ - I love to give to charity, but I don’t want to be charity. This is why I have so much trouble with grace.
+ - It wasn’t necessary to win for the story to be great, it was only necessary to sacrifice everything.
+ - I think understanding your life as a story is a really terrific way of kind of knowing where you are and knowing who you are.
+ - You cannot be a Christian without being a mystic.
+ - I am something of a recluse by nature. I am that cordless screwdriver that has to charge for twenty hours to earn ten minutes use. I need that much downtime.
+ - I don’t read a lot of inspirational books for life. But for writing, I think the two best books are The War of Art and William Zinsser’s On Writing Well. I read a lot of classics;.
+ - I am human because God made me. I experience suffering and temptation because mankind chose to follow Satan. God is reaching out to me to rescue me. I am learning to trust Him, learning to live by His precepts that I might be preserved.
+ - If what you are doing is important, you will encounter resistance. If what you are doing isn’t important it will be easy.
+ - Humans are designed to seek comfort and order, and so if they have comfort and order, they tend to plant themselves, even if their comfort isn’t all that comfortable. And even if they secretly want for something better.
+ - One of the things I associate with God is a sunrise. How many sunrises have you missed over the years, and God created that?
+ - The very scary thing about religion, to me, is that people actually believe God is who they think He is.
+ - I can’t do it. It would be like, say, trying to fall in love with somebody, or trying to convince yourself that your favorite food is pancakes. You don’t decide those things, they just happen to you. If God is real, He needs to happen to me.
+ - Too much of our time is spent trying to chart God on a grid, and too little is spent allowing our hearts to feel awe. By reducing Christian spirituality to formula, we deprive our hearts of wonder.
+ - I always thought the Bible was more of a salad thing, you know, but it isn’t. It’s a chocolate thing.
+ - Christians might say that you can’t live a more meaningful life without Jesus. Well, that’s absolutely not true. You can. You can enjoy a sunrise whether you know Jesus or not.
+ - I think writers can get a little melodramatic sometimes about their work, and it helps me not to do that, to just say, “Well, this is how I make a living, and I need to become a very good craftsman.”
+ - I think it’s very hard for us, for Christians, to understand that it’s okay to read a book, for instance, on how to manage your time. There’s nothing wrong with that.
+ - It confuses me that Christian living is not simpler. The gospel, the very good news, is simple.
+ - We have to have positive male role models.
+ - People are lonely. They want company and your book can provide them company and a little bit of hope. And there’s nothing wrong with that.
+ - Self-discipline will never make us feel righteous or clean; accepting God’s love will.
+ - If we knew how much God loved us and was for us, we’d talk to Him all day long.
+ - I tend to write first drafts that are incredibly cognitive, very rational, very boring. They come off as justification. Like, ‘This is my idea and here’s all the reasons that it’s right.’ It doesn’t make for very compelling reading.
+ - Even our beliefs have become trend statements. We don’t even believe things because we believe them anymore. We only believe things because they are cool things to believe.
+ - I know, from the three visits I made to him, the blended composite of love and fear that exists only in a boy’s notion of his father.
+ - I want to start replacing my “fix” response with an “enjoy” response and just let people be themselves.
+ - If a piece of genius comes, it comes, and it if doesn’t, it doesn’t.
+ - The sexual conquest is huge with men in terms of affirming themselves and their feelings of masculinity. That’s a misguided kind of affirmation. That is not helpful, but that stuff happens.
+ - Christian spirituality was not a children’s story. It wasn’t cute or neat. It was mystical and odd and clean, and it was reaching into dirty. There was wonder in it and enchantment.
+ - Imagine, a Being with a mind as great as God’s, with feet like trees and a voice like rushing wind, telling you that you are His cherished creation.
+ - I think, in the grand epic, Jesus is the hero of our stories. And our stories, as they were, are subplots in a grand epic and our job is not to be the hero of any story. Our job is to be a saint in a story that he is telling.
+ - We don’t need as much as we have. Hardly any of us need as much money as we have. It’s true what they say about the best things in life being free.
+ - The truth is, if what we choose to do with our lives won’t make a story meaningful, it won’t make a life meaningful either.
+ - Don’t let go of your strength or your beauty. It was given to you by God.
+ - I heard once that real love doesn’t ask what is in it for me; it just gives unconditionally. It just tries to take the weight out of somebody else’s pack, lessen his load, and if it gets reciprocated, that’s great, but that isn’t what you did it for.
+ - True intimacy, the exchange of affection between two people who are not lying, is transforming.
+ - God doesn’t give us crying, pooping children because he wants to advance our careers.
+ - Most of us are waiting. We’re waiting for something interesting to happen. And I think we’re going to wait forever if we don’t do something more interesting with our lives.
+ - Our lives have a countdown clock that we can’t see. Mine reminds me to only do work that matters.
+ - I could not have known then that everybody, every person, has to leave, has to change like seasons; they have to or they die. The seasons remind me that I must keep changing.
+ - When we talk about the decline of the American family, I think we have to go back to the Industrial Revolution.
+ - If you have a beautiful story, it has to have conflict. If you don’t have conflict, it can’t be a good story.
+ - If the point of life is the same as the point of a story, the point of life is character transformation.
+ - Sometimes you have to watch somebody love something before you can love it yourself. It is as if they are showing you the way.
+ - Lets choose to do something really difficult, something that saves lives, and let’s do that thing with people we love.
+ - What I believe is not what I say I believe; what I believe is what I do.
+ - I’m not a pastor; I’ve never been on staff at a church.
+ - I think that’s the true litmus test for someone who has become closer to Jesus: their heart is more loving, accepting, childlike, less believing that they have all the answers and more believing in Him.
+ - I used love like money, but love doesn’t work like money. It is not a commodity. When we barter with it, we all lose. When the church does not love it’s enemies, it fuels their rage. It makes them hate us more.
+ - What do markets do? They consolidate, they breakout, they extend, they overextend, they back and fill, they consolidate, and repeat the process. That’s all you need to know about the markets.
+ - One of the things I love about our source text as Christians, the Bible, is that it teaches us not to avoid conflict. And it teaches us that before the fall of man, in Paradise, there was conflict. God wants conflict to be a part of your life.
+ - And so I have come to understand that strength, inner strength, comes from receiving love as much as it comes from giving it.
+ - My Sunday school teachers had turned Bible narrative into children’s fables. They talked about Noah and the ark because the story had animals in it. They failed to mention that this was when God massacred all of humanity.
+ - Job found contentment and even joy, outside the context of comfort, health or stability. He understood the story was not about him, and he cared more about the story then he did about himself.
+ - Meaning is something we experience more than we attain. It’s like finding a nice, easy current in a river that carries you through life.
+ - I love writing books – I really do. If I could just quit everything and work on a book every day, I would love that most.
+ - Without the Christian explanation of original sin, the seemingly silly story of Adam and Eve and the tree of the knowledge of good and evil, there was no explanation of conflict. At all.
+ - Meaningful stories have lots and lots of conflict. If we avoid conflict, our stories won’t be meaningful.
+ - Flattery has a short battery life, but reminding people they are amazing and precious and wanted and works of art can truly change their lives.
+ - There are about 360,000 churches in America, so we could mentor a million kids within a short period of time if everyone signed on, which, of course, is a pipedream, but we’re going to reach toward that.
+ - It is no coincidence that Jesus talks endlessly about love. Free love. Unconditional love.
+ - When one of my friends becomes a Christian, which happens about every 10 years because I am a sheep about sharing my faith, the experience is euphoric. I see in their eyes the trueness of the story.
+ - The greatest stories go to those who don’t give in to fear.
+ - We believe we will be made whole by our accomplishments, our possessions, or our social status. It’s written in the fabric of our DNA that life used to be beautiful and now it isn’t, and if only this and only that, it would be beautiful again.
+ - I never liked jazz music because jazz music doesn’t resolve. But I was outside the Bagdad Theater in Portland one night when I saw a man playing the saxophone. I stood there for fifteen minutes, and he never opened his eyes.
+ - All relationships are living and alive and moving and becoming something.
+ - The economy is turning around, so that’s going to help a little bit.
+ - The people I used to be surrounded by are getting along without me. Somehow, that really bugs me.
+ - If you want to bond with your friends, do something very hard with them, something that you won’t be able to do alone.
+ - It was a haunting feeling, the sort of sensation you get when you wonder whether you are two people, the other of which does things you can’t explain, bad and terrible things.
+ - I think the things we want most in life, the things we think will set us free, are not the thing we need.
+ - You never question the truth of something until you have to explain it to a skeptic.
+ - Everybody wants to be somebody fancy. Even if they’re shy.
+ - If the abortion issue is important to me, this is how you tackle that issue.
+ - Nobody will listen to you unless they sense that you like them.
+ - I have friends who are writers, but we don’t tend to talk about literature very much. It’s just not part of my process; I tend to be pretty secretive about what I’m working on.
+ - Most great art is created when the artist feels they are channeling something rather than trying to communicate something.
+ - To change the world you’ll need a pen.
+ - It blew my mind that what I was thinking was actually applicable to people’s lives, and it certainly revolutionized family.
+ - The more I try to impress people, the more I separate myself from them. Vulnerability attracts love.
+ - The times in my life when I have been most happy haven’t been the times when I have had the most money or the most freedom or the most anything, but rather when I’ve been in love or in community or right with people.
+ - If I use the Bible to prove I am right, I have yet to be humbled by the beautiful truths of the Bible.
+ - It is worthy of note that the Chinese and Japanese characters for money and gold are the same.
+ - I started ‘Storyline’ after I’d accomplished all my goals and still wasn’t happy. I’d become a ‘New York Times’ bestselling author, which was my goal from high school, and yet I was less happy after accomplishing my goals than I was before.
+ - If you buy the website, maybe you’ll do something with it. But so far I haven’t; we’ll see.
+ - The most important thing that happens within Christian spirituality is when a person falls in love with Jesus.
+ - People who live great stories know failure isn’t a judgment, it’s an education.
+ - I used to write when I was in the mood or felt inspired. Anymore, I write whether I feel inspired or not. It’s a discipline. So that’s definitely different. It’s part of maturing as a person and as a professional.
+ - Instead of asking what it feels like to follow God or be used by God, we should be asking who God is, and whether we really know Him. Everything else will take care of itself.
+ - There’s a lot of letters, and a lot of people come say “hi” at book signings, but I’m amazed at how normal everybody is.
+ - When a relationship is right, it is no more possible to wake up and want out of the marriage than it is to wake up and stop believing in God. What is, is what is.
+ - It made me wonder if the reasons our lives seem so muddled is because we keep walking into scenes in which we, along with the people around us, have no clear idea what we want.
+ - The heart responds to the conflict within a story.
+ - I posted the first three chapters and I had enough people say that chapter two was dragging that I cut it out just before the book went to press. And I’m glad I did. The book is a lot better without it.
+ - Believing in God is as much like falling in love as it is making a decision. Love is both something that happens to you and something you decide upon.
+ - Great writers know what to cut out. It’s the same in life. Clear ambitions. Clear relationships. This is the stuff of good story.
+ - The ambitions we have will become the stories we live.
+ - Even our beliefs have become trend statements.
+ - The reason I like writing a memoir is because it isn’t preachy.
+ - I loved the fact that it wasn’t my responsibility to change somebody, that it was God’s, that my part was just to communicate love and approval.
+ - The most attractive characteristic in a person is the story they are telling the world. We stop and stare at stories.
+ - The downside of being a writer is you get plenty of time to overthink your life.
+ - All my books have been titled based on a piece of the prose from inside the book.
+ - Today I wonder why it is God refers to Himself as ‘Father’ at all. This, to me, in light of the earthly representation of the role, seems a marketing mistake.
+ - We live on top of the created world, I think to myself, not in it.
+ - There’s no authoritarian structure at Reed College, but the education is conservative. So what you have is a lot of students who are very authentically looking for truth.
+ - I don’t find anyone more noble than Jesus.
+ - It’s possible to do both as a writer – to engage and have a family and all that good stuff – and I chose not to for the sake of the career.
+ - Relationships unlock certain parts of who we are supposed to be.
+ - Other people keep our souls alive, just like food and water does with our body.
+ - Half the time I pick up a book, that’s what I’m trying to get.
+
+193 quotes

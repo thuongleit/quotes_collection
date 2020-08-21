@@ -1,0 +1,28 @@
+ - I really do see the good in people, and I don’t want to change that.
+ - I love In-N-Out Burgers!
+ - In life, there are those relationships where you really love someone, but they’re just not right for you and there’s a little bittersweet feel to it.
+ - If someone’s lying about something small, you don’t know what else they’re lying about. I’m a big girl, I can handle the truth – even if it’s not good news.
+ - I drink coconut water before my workouts. It has just the right amount of calories and electrolytes to get me going. My body has actually started craving it.
+ - We’re in a time now where technology is such that we can create anything, and that’s what’s new about television and film these days.
+ - That’s why you call it a budget. You set it and you don’t budge.
+ - Yoga probably makes me a better person.
+ - I discovered what is and isn’t important to me. I decided I really wanted to enjoy life with someone fun, who can make the best out of any situation – whatever it is we’re doing.
+ - Cleaning is my favorite way to relax. I clear things out and get rid of the stuff I don’t need. When the food pantry and the refrigerator are organized, I feel less stressed.
+ - I like when a guy wears a T-shirt, and you can see a little curve of the muscle sticking out. That’s sexy!
+ - The longer I’m alive, the more I realize how little I know. Pretending that you know everything about every topic, and being very vocal about it? That’s an instant turnoff.
+ - A great pickup line is one I don’t even notice. It has me connecting with you, laughing, having a good time. And that definitely gets my attention.
+ - I feel like a Mac store! I have a Canadian iPhone, an American iPhone and an iPad. I’m constantly downloading music to iTunes.
+ - I have seven scars from having moles removed. One was a melanoma, six were precancerous. Get your moles checked!
+ - I keep my diet simple by sticking to mostly fruits and vegetables all day and then having whatever I want for dinner. I end up making healthy choices, like sushi or grilled fish, because I feel so good from eating well.
+ - Unite has a great dry shampoo called 7Seconds. After a hot yoga class, when I’m super sweaty I spray this on and my hair comes back to life. Miraculous!
+ - I always have my passport on me, as well as two currencies.
+ - I’m trying to incorporate colour into my life. Until recently, everything in my closet was black, white, grey, navy or olive.
+ - The big scandal was when I was in seventh grade and I modeled a bathing suit. Everybody freaked out!
+ - As an actor what you’re always looking for is a character that is going to grow and change especially on television. I feel incredibly lucky to be working on a television shows where the writing is always geared towards us growing and changing.
+ - I adore Smashbox lip stains. I carry a natural color for daytime and a berry shade for going out at night.
+ - I got my SAG card when I was 10 by starring in a Beenie Weenie’s commercial.
+ - I buy tons of magazines. They’re a big part of how I research characters. And I keep them around and go back to them years later. I just have stacks.
+ - I would have to say that working on ‘Warrior’ felt more like working on a play than any other film I’ve ever done.
+ - I’m a sucker for giving people money on the street. I don’t know if it’s a good or a bad thing, but I can’t help myself.
+
+26 quotes

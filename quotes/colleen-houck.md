@@ -1,0 +1,63 @@
+ - Your heart knows. Your soul remembers.
+ - You must learn to take a step back and visualize the whole piece. If you focus only on the thread given to you, you lose sight of what it can become.
+ - Bad things sometimes happen to good people; the key to happiness is try to make the best of, and be thankful for the hand we’re dealt.
+ - Was it too much to ask you to wait for me? To believe in me? Don’t you know how much I love you?
+ - I once told Ren our story wasn’t over. And it’s not. Not yet.
+ - And yes, I’ll admit, I am jealous. I’m jealous of every minute you spend with him, of every concerned expression you send his way, of every tear shed, of every glance, every touch, and every thought. I want to rip him to pieces and purge him from your mind and from your heart. But I can’t.
+ - He seemed very pleased with himself for surviving a near-death experience. I could practically hear him chanting to himself: I overcame. I conquered. I’m a man etc etc.
+ - Falling for him would be like cliff diving. It would be either the most exhilarating thing that ever happened to me or the stupidest mistake I’d ever make.
+ - You think I wanted to fall for you? I stayed away from you! I gave him the chance to be with you! But there’s another part of me that asks what if? What if you’re not supposed to be with Ren? What if you were supposed to be the answer to my prayers? Not his!
+ - I don’t mind being alone either. The only problem is that if you’re always alone, you get lonely.
+ - The dangerous one was Ren. Innocent though the white tiger he appeared to be, he was a compelling predator. Utterly irresistible – like a Venus flytrap. So alluring, so tempting, so deadly. Everything he did was seductive and possibly hazardous to my health.
+ - One’s enemy is often the best teacher of tolerance.
+ - Okay, then I’ll just say I love you. There is nothing in this world more important to me than you are. I’m only content when you’re near. My whole purpose is to be what you need me to be. It’s not poetry, but it’s from my heart. Will that do?
+ - Shhh Kelsey. I’m here. I’m not leaving you priya. Hush now. Mein aapka raksha karunga. I will watch over you priyatama.
+ - Mae West, a famous vaudeville actress, once said, “A man’s kiss is his signature.” I grinned to myself. If that was true, then Ren’s signature was the John Hancock of kisses.
+ - You are my home, Kelsey. Wherever you are is where I belong.
+ - I could still feel the ghost of him hovering in the quiet, dark recess of my heart. It was as if he was just waiting for me to be lonely, or to let my guard down, so that he could surface and fill my mind again with thoughts of him.
+ - You know you are in love when you see the world in her eyes, and her eyes everywhere in the world.
+ - I am as wrapped up in her as a vine that clings to a tree seeking for sustenance. She’s tied me to her for eternity. She’s my home. She’s my reason for being. To win and hold her heart is my only purpose.
+ - You were on the other side of the world, but I often woke with the scent of you surrounding me. I ached for you, Kells. No matter how much Kishan thrashed me, it couldn’t diminish the pain of losing you. I’d dream of you and reach out to touch you, but you were always just out of reach.
+ - Saying his name stabbed my heart, like someone had ripped through my carefully stitched up world and exposed the infected, pulsing red tissue that I thought was healing.
+ - Don’t allow yourself to become disheartened when the thread doesn’t suit or seems unsightly to you. Wait and watch. Be patient and devoted. As the threads twist and turn, you will begin to understand, and you will see the pattern finally materialize in all its splendor.
+ - A wise man sees the path all must walk and embraces the free will of humankind, even if to watch it unfold causes him pain.
+ - I could feel the warmth of his presence as if a soft blanket had been wrapped around my soul, around my heart. It held me and protected me. It sheltered me and I knew I wasn’t alone anymore.
+ - You don’t take away my choices. You are my choice.
+ - Oregon welcomed me like a beloved child, enfolded me in her cool arms, shushed my turbulent thoughts, and promised peace through her whispering pines.
+ - I spent the rest of that day brainstorming. How do you catch a very old, very alert tiger by surprise? Use his weaknesses: food, feminine wiles, poetry, and over-protectiveness. The poor guy didn’t stand a chance.
+ - Why does everything so bad for you always taste so dreamy?
+ - Hard work keeps you grounded.
+ - Now turn around and go to sleep. I’m warning you that I plan to sleep with you in my arms all night long.
+ - Long dormant feelings poured through my dried-up limbs and wound through me, slowly filling the emptiness. Like an irrigated field, I felt myself blossom and grow with new vigor. He was the sun, and the tenderness he showed me was life-giving water.
+ - Okay. So, apparently I find burly Indian men attractive. What’s wrong with that?
+ - Just so you know, I hate camping. I’m not so much appreciating the fact that there’s no bathroom out here. ‘Nature calls’ while walking in nature is on my list of least favorite things. You tigers, and men in general, have it so much easier than us girls.
+ - He looks like a runway model. How in the world am I going to be able to reject that? The world is so unfair. Seriously, it’s like turning Brad Pitt down for a date. The girl who could actually do it should win an award for idiot of the century.
+ - How do I get past my fears? Make a life for myself? Risk loving someone? When death is all that waits for you, what’s the point in trying to have a life?
+ - We throw away what we could have been and waste our opportunities. We each have a purpose, a destiny, and to realize it, we must reach beyond what we think we are capable of.
+ - Holy Hannah, that man is dangerous!
+ - I was dying. I knew it. At least the pain was gone. I wanted to tell him that I loved him. Then darkness overtook me...
+ - A quiet but indomitable voice behind me said, “I believe this is my dance.” It was him. I could feel his presence. The warmth of him seeped into my back, and I quivered all over like spring leaves in a warm breeze.
+ - I’ve been working hard to become the kind of man she needs, the kind of man she already believes me to be.
+ - It’s about bloody time, woman.
+ - A girl can still admire, can’t she? Even those who can’t afford to go in the store can still window-shop. Right? Knowing he wasn’t for me didn’t mean I couldn’t covet the merchandise.
+ - Because I’ve died many deaths, mostly over you, and I’m still alive. Trying to have a relationship with you is like trying to rescue someone from Hades. Only a fool would keep going back to get a woman who fights him every step of the way.
+ - I don’t want you to see only a tiger when you look at me. I want you to see me. The man.
+ - He was like a drug and what did you do with drugs You pushed them as far away as possible.
+ - A young man who doesn’t have the foresight to seek out the girl he wants to be with and actively pursue her, doesn’t deserve her.
+ - Tarzan-like men are my weakness, apparently.
+ - He was my ultimate present my own personal miracle and I’d blown it. I’d given him away. It was like winning backstage passes to meet the rock star of your dreams and donating the tickets to charity. It sucked. Big time.
+ - A life with Ren was harder to picture. We didn’t look as if we belonged together. It was like matching up Ken with Strawberry Shortcake. He needed Barbie.
+ - I don’t understand how I could have believed you were a warm, affectionate, and tenderhearted person! You’re obviously as prickly as a porcupine and any man who comes close to you will end up with a face full of quills!
+ - Promise you’ll be happy.
+ - He kissed me fiercely, with an utter abandon that I could no more put a halt to than I could stop an avalanche.
+ - Kishan kept his distance, but his come-hither eyes made my face burn.
+ - Vampire sea horse monkeys? Are you serious?
+ - A happy ending was promised, and a happy ending was delivered.
+ - What would Ren do in Oregon? Would he get a job? What would he put on his resume? High Protector and former Prince of India?
+ - You look about as trapped as a piglet at a baby back ribs cookoff.
+ - Don’t you see, Ren? That’s exactly why I have to go. You need to know that you can survive without me. That’s there’s more to life than just me. You need to see this world that’s opened up to you and know that you have choices. I refuse to be your cage- Kelsey, pg. 401.
+ - I knew then that my future had always been Ren.
+ - What is real and what is not is for your heart to decide and for your heart to know.
+ - Regrets are only felt by those who do not understand life’s purpose.
+
+61 quotes

@@ -1,0 +1,33 @@
+ - My job now is to work hard and learn all I can.
+ - I like writing letters and receiving letters. It’s a shame that we’ve lost the art of letter-writing and saving correspondence. I mourn that.
+ - We lack rituals in this modern world.
+ - Now we have to contend with overstimulation and too many opportunities all the time, and too many decisions all the time.
+ - By definition, an actor’s life is a recipe for regret. There are always roads you could have taken. But I’ve lived long enough to realise that each road has its own rewards.
+ - I’ve raised daughters who are English, and I’m American, so they’re culturally different to me, which is an unusual situation.
+ - To me, the lyrics of the song define the kind of style it is.
+ - In today’s world, we all live with the burden of feeling that anything is possible if we’re only clever enough, smart enough, work hard enough.
+ - Well, I have a band, Sadie and the Hotheads, and we have an album that is already out that is available on our website.
+ - I wasn’t ecstatic about being pregnant – I wasn’t somebody who actively wanted kids. Certainly there were no fantasies about nappy-changing.
+ - England as a culture has endured so much more than America has as a culture, so it’s given them a different perspective.
+ - The way it works in Hollywood is that if you’re hot it doesn’t matter if you’re right for the part or not, you’re just offered it.
+ - My father was an academic, an eccentric. He was a lecturer.
+ - I miss sometimes the buzz of America. A sense that anything can change at the drop of a hat. In a way, it’s an exhausting thing to live with.
+ - I’ve found acting on stage much more challenging than on screen.
+ - I don’t believe in villains – just people who channel their energy in the wrong way.
+ - I can’t just sit around thinking how lucky I am.
+ - It’s peaceful for people to know how their lives are going to be, pretty much.
+ - I’ve got my private life – that’s sacred – and I didn’t have that before.
+ - It’s very tough when two creative people are together.
+ - My family were all into classical music, and I found that very intimidating.
+ - If I feel I can play a part I do everything in my power to try to play it.
+ - I have a terrible sense of direction.
+ - I had reconciled myself to being happily out to pasture, a bit.
+ - That feeling of being 19 or 20 and ‘hot’ in Hollywood was so intense.
+ - I’ve been in things that have impressed people and they’ve come up to congratulate you but in a kind of, you-must-think-you’re-really-special way.
+ - In London, I take the Tube everywhere.
+ - Most people grow up dreaming of going to Hollywood and some of them work and work and work and finally end up in Hollywood.
+ - There is nothing in my life where I view myself as a 1920s person.
+ - I turned down the opportunity to be in some films that went on to be blockbusters.
+ - I’m someone who’s done the opposite of whatever the received wisdom is, to keep your career going into your 50s.
+
+31 quotes

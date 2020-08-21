@@ -1,0 +1,43 @@
+ - Clarity in language depends on clarity in thought.
+ - History is, indeed, an argument without end.
+ - The genius of impeachment lay in the fact that it could punish the man without punishing the office.
+ - Those who are convinced they have a monopoly on The Truth always feel that they are only saving the world when they slaughter the heretics.
+ - The very discovery of the New world was the by-product of a dietary quest.
+ - Brave men earn the right to shape their own destiny.
+ - History is full of surprises.
+ - All wars are popular for the first 30 days.
+ - Honest history is the weapon of freedom.
+ - Problems will always torment us because all important problems are insoluble: that is why they are important. The good comes from the continuing struggle to try and solve them, not from the vain hope of their solution.
+ - The passion for tidiness is the historian’s occupational disease.
+ - The basic human rights documents-the American Declaration of Independence and the French Declaration of the Rights of Man-were written by political, not by religious, leaders.
+ - The broad liberal objective is a balanced and flexible “mixed economy,” thus seeking to occupy that middle ground between capitalism and socialism whose viability has so long been denied by both capitalists and socialists.
+ - Santayana’s aphorism must be reversed: too often it is those who can remember the past who are condemned to repeat it.
+ - Righteousness is easy in retrospect.
+ - In view of the tide of religiosity engulfing a once secular republic it is refreshing to be reminded by Freethinkers that free thought and skepticism are robustly in the American tradition. After all the Founding Fathers began by omitting God from the American Constitution.
+ - I trust that a graduate student some day will write a doctoral essay on the influence of the Munich analogy on the subsequent history of the twentieth century. Perhaps in the end he will conclude that the multitude of errors committed in the name of Munich may exceed the original error of 1938.
+ - What we need is a rebirth of satire, of dissent, of irreverence, of an uncompromising insistence that phoniness is phony and platitudes are platitudinous.
+ - Excellence is the eternal quest. We achieve it by living up to our highest intellectual standards and our finest moral intuitions. In seeking excellence, take life seriously-but never yourself!
+ - Expelled from individual consciousness by the rush of change, history finds its revenge by stamping the collective unconsciousness with habits and values.
+ - For most Americans the Constitution had become a hazy document, cited like the Bible on ceremonial occasions but forgotten in the daily transactions of life.
+ - Every President reconstructs the Presidency to meet his own psychological needs.
+ - The first rule of democracy is to distrust all leaders who begin to believe their own publicity.
+ - If we are to survive, we must have ideas, vision, and courage. These things are rarely produced by committees. Everything that matters in our intellectual and moral life begins with an individual confronting his own mind and conscience in a room by himself.
+ - People who claw their way to the top are not likely to find very much wrong with the system that enabled them to rise.
+ - Troubles impending always seem worse than troubles surmounted, but this does not prove that they really are.
+ - For history is to the nation as memory is to the individual.
+ - Anti-intellectualism has long been the anti-Semitism of the businessman.
+ - Man generally is entangled in insoluble problems; history is consequently a tragedy in which we are all involved, whose keynote is anxiety and frustration, not progress and fulfilment.
+ - The only President who clearly died of overwork was Polk, and that was a long time ago. Hoover, who worked intensely and humorlessly as President, lived for more than thirty years after the White House; Truman, who worked intensely and gaily, lived for twenty.
+ - Politics in a democracy is, at the end, an educational process.
+ - History, in the end, becomes a form of irony.
+ - There is far less to the Presidency, in terms of essential activity, than meets the eye.
+ - The use of history as therapy means the corruption of history as history.
+ - There is no more dangerous thing for a democracy than a foreign policy based on presidential preventive war.
+ - Few secret undertakings ever did any nation any good.
+ - Television has spread the habit of instant reaction and stimulated the hope of instant results.
+ - I don’t think I have made as much of my life as I should have. I should have written more books.
+ - Almost all important questions are important precisely because they are not susceptible to quantitative answer.
+ - What higher obligation does a President have than to explain his intentions to the people and persuade them that the direction he wishes to go is right?
+ - Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
+
+41 quotes

@@ -1,0 +1,27 @@
+ - Lose your mind and come to your senses.
+ - I do my thing and you do your thing. I am not in this world to live up to your expectations, And you are not in this world to live up to mine. You are you, and I am I, and if by chance we find each other, it’s beautiful. If not, it can’t be helped.
+ - Awareness in itself is healing.
+ - Fear is excitement without the breath.
+ - We live in a house of mirrors and think we are looking out the windows.
+ - Nothing changes until it becomes what it is.
+ - If you are bored, you are not paying attention.
+ - The person most in control is the person who can give up control.
+ - I believe that any single dream contains the essential message about our existence.
+ - Our dependency makes slaves out of us, especially if this dependency is a dependency of our self-esteem. If you need encouragement, praise, pats on the back from everybody, then you make everybody your judge.
+ - Anxiety is the gap between now and later.
+ - If you take responsibility for what you are doing to yourself, how you produce your symptoms, how you produce your illness, how you produce your existence-the very moment you get in touch with yourself-growth begins, integration begins.
+ - To mature means to take responsibility for your life, to be on your own. Psychoanalysis fosters the infantile state by considering that the past is responsible for the illness.
+ - Those that fight don’t listen, those that listen don’t fight.
+ - I am not in this world to live up to other people’s expectations, nor do I feel that the world must live up to mine.
+ - The only difference between a wise man and a fool is that the wise man knows he’s playing.
+ - I have one aim only: to impart a fraction of the meaning of the word now.
+ - I wonder why people use only walls for hanging pictures.
+ - It feels much nobler to feel guilty than resentful, and it takes more courage to express resentment than guilt. With expressing guilt you expect to pacify your opponent; with expressing resentment you might stir up hostility in him.
+ - You cannot achieve happiness. Happiness happens and is a transitory stage. Imagine how happy I felt when I got relief from bladder pressure. How long did that happiness last?
+ - You cannot achieve happiness. Happiness happens and is a transitory stage.
+ - So if you find out how you prevent yourself from growing, from using your potential, you have away of increasing this, making life richer, making you more and more capable of mobilizing yourself. And our potential is based upon a very peculiar attitude: to live and review every fresh second.
+ - Teaching means to show a person that something is possible.
+ - Humans don’t really improve on our own functioning, we only interfere with it, distort it, and disguise it.
+ - Have a dialogue between the two opposing parts and you will find that they always start out fighting each other until we come to an appreciation of difference.
+
+25 quotes

@@ -1,0 +1,24 @@
+ - Nothing is so soothing to our self-esteem as to find our bad traits in our forebears. It seems to absolve us.
+ - How delightful is the company of generous people, who overlook trifles and keep their minds instinctively fixed on whatever is good and positive in the world around them.
+ - No one is fit to judge a book until he has rounded Cape Horn in a sailing vessel, until he has bumped into two or three icebergs, until he has been lost in the sands of the desert, until he has spent a few years in the House of the Dead.
+ - The creative impulses of man are always at war with the possessive impulses.
+ - Genius and virtue are to be more often found clothed in gray than in peacock bright.
+ - No man should ever publish a book until he has first read it to a woman.
+ - Longfellow is to poetry what the barrel-organ is to music.
+ - Once you have a point of view all history will back you up.
+ - Earnest people are often people who habitually look on the serious side of things that have no serious side.
+ - The writer is important only by dint of the territory he colonizes.
+ - As against having beautiful workshops, studies, etc., one writes best in a cellar on a rainy day.
+ - If men were basically evil, who would bother to improve the world instead of giving it up as a bad job at the outset?
+ - Those of our writers who have possessed a vivid personal talent have been paralyzed by a want of social background.
+ - The American mind, unlike the English, is not formed by books, but, as Carl Sandburg once said to me, by newspapers and the Bible.
+ - The man who has the courage of his platitudes is always a successful man.
+ - Better the fragrant herb of wit and a little cream of affability than all the pretty cups in the world.
+ - It is not that the French are not profound, but they all express themselves so well that we are led to take their geese for swans.
+ - Never forget that it is we New Yorkers and New Englanders who have the monopoly of whatever oxygen there is in the American continent.
+ - There is no stopping the world’s tendency to throw off imposed restraints, the religious authority that is based on the ignorance of the many, the political authority that is based on the knowledge of the few.
+ - The instructed man is ashamed to pronounce in an Orphic manner what everybody knows, and because he is silent people think he is making fun of them.
+ - No one in this country has any root anywhere; we don’t live in America, we board here, we are like spiders that run over the surface of the water.
+ - Nothing is sadder than having worldly standards without worldly means.
+
+22 quotes

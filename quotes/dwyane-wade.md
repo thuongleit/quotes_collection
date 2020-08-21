@@ -1,0 +1,123 @@
+ - No team works out teamwork.
+ - My belief is stronger than your doubt.
+ - The biggest thing is to let your voice be heard, let your story be heard.
+ - Never give up and take nothing for granted in life.
+ - We live in the moment. We’re not thinking about the future right now. We’re not thinking about the past, you know. We’re living in this moment right here and it’s a sweet moment to live in.
+ - My kids motivate me to keep moving forward. My kids are my everything.
+ - I understand that I’m not perfect. I made mistakes and I had a hand in everything that’s happened to me, good and bad.
+ - Success means being satisfied with what you do every day. It’s being proud of the better person you are becoming.
+ - I live by the motto, ‘To whom much is given, much is required.’ I know that people are counting on me. That’s why I have to keep working hard.
+ - Guys who might not be superstars but because of their hustle, because of the little things they do, these are the guys who can really mean the difference between winning and losing.
+ - I think you really have to become a parent to understand what you will endure to be there for your kids.
+ - I’ve struggled in my life. I’ve had hard times, but I kept pressing on.
+ - You’ve got to respect the game and you’ve got to respect what the people that have played have done for the game.
+ - I’m a firm believer in God and I don’t think he’d want me acting a certain way.
+ - Fatherhood, to me, isn’t something you do for awards or acclaim. It’s a privilege and a huge responsibility.
+ - I am very happy to be here in the NBA.
+ - Every time I look at my children, they remind me to work harder and become a better man.
+ - When I’m designing I try to think about what I like to see on other people.
+ - When people say that a certain sport is not a sport – have them play that sport and see if they can do it. Golf is one of the hardest sports you’ve ever played. Bowling is all about concentration, it’s all about focus, it’s all about aim.
+ - I always remind my kids that hard work pays off. That’s how I got to where I am right now because of sacrifice and the work I put into it.
+ - My name is very important to me. I’m representing the Wade name. I’ve got the name on the back of my jersey when I play. I walk around with that name. That’s my family name, the name my son will grow up with. So it’s very important to me to keep the level of maturity that I have.
+ - All children need their fathers, but boys especially need fathers to teach them how to be men.
+ - I think everything happens as it’s supposed to. I don’t want to force anything. I want it to be so authentic that it’s seamless.
+ - When you have kids, they are the consistent things in your life. They don’t change no matter what’s going on. They love you. They are more honest than anybody will be.
+ - I’ve stuck by being modest, honest and humble, because I think you’ll get more appreciated that way and we all want to be appreciated in this world.
+ - I grew up in the inner city of Chicago, and then I moved to Robbins, and it kind of raised me. When I was in college, I actually had them change the starting lineup to say ‘from Robbins, Illinois’ instead of ‘Chicago, Illinois.’
+ - I’m just showing my personality in my clothing.
+ - I’ll always be a Golden Eagle.
+ - With the way I dress, I think my personality shows, so I don’t always have to talk. Someone can see what I’m wearing, see what socks I’m wearing, and see what my vibe is, what kind of person I am.
+ - I’ve learned great lessons from my parents for things on the court and off. I really look up to them.
+ - Everybody was calling. I think everybody called every player in the league. Thats history right there.
+ - I’m going forward with my plans for life. I’m looking at things not only basketball-wise, but personal-wise.
+ - From the start to the end it was ugly and a painful game to watch.
+ - I’m always telling my kids to be themselves and let their personalities show in other ways than with their mouths.
+ - I look forward to the challenge, but most importantly, I look forward to the opportunity to do what hasn’t been done that often, in a sense. Michael Jordan obviously has done it, but that’s it.
+ - I wanted to be a football player. Football is a sport that I love, but the more I started playing basketball, the more I started dreaming of playing in the NBA.
+ - It’s about taking advantage of the opportunities you have right now, and right now we’re in a position where you call somebody and they’re willing to pick up and take the call because they’re a fan, you have to take advantage of that and have a chance to capitalize on your ideas.
+ - I always remind my kids that hard work pays off. They see that I take nothing for granted in life. It helps them stay grounded.
+ - My job, my whole life, I’ve always had that kind of doubter, people have always doubted me. And I don’t know how I would succeed without it. So I welcome it, and it gives me a challenge, and I will see if I can live up to my challenge.
+ - A turtleneck is about sophistication.
+ - The thing is, I don’t do these things for recognition, being a good teammate, being a positive member of the community. I do them because those things make me whole and complete.
+ - You know, 10 years ago I never thought I’d be in this position. It’s a dream and I don’t even know if I dreamed this big.
+ - Always be involved in your children’s lives. Life gets hectic but we have to find a way to always stay connected and let our kids know that they are loved.
+ - Whenever I feel like I’m getting too far away from where I need to be, I think about my sons and the legacy I have to leave for them – and it always brings me back to reality.
+ - I’ve played for the Miami Heat my whole career under Pat Riley. Mr. GQ himself. So when I pick out my outfits before a game, I’m already feeling confident. And some of that swagger stays with me when I take the court.
+ - I’m happy that I can focus on my body a little bit. I’m not happy to get surgery, but I’m happy that I can focus on getting better.
+ - Nobody knows that they’re going to be Champions – you have to work to get there.
+ - I want to continue to take steps forward.
+ - Shooting is a lost art, but nobody wants to see nobody shoot all day. You want to see somebody break somebody off the dribble. That’s today game, and that’s what I try to do.
+ - You play a certain way for so long, and change is good. So I look forward to change, and I look forward to playing with the proper talent that we were able to put together.
+ - I would have to name two people – my parents. I’ve seen them come through adversity and work hard to create the best life for me and my siblings. Although I don’t remember them together as a couple, I remember the love they had for their children.
+ - I love football. I’ll watch the NFL before I watch any NBA.
+ - Being a father is an everyday challenge. It goes on and on.
+ - I realize that you have to be careful sometimes what you wish for.
+ - My will is to always be better and better and better. I’ve got the will to want to be the best.
+ - I got a rhythm going. The guys just did a good job of putting the ball in my hands.
+ - I’m the kind of parent who asks my kids questions like, ‘What would be your ideal thing to do in the summer?’
+ - There is only a relationship between music and sports because all athletes want to be rappers and all rappers want to be athletes.
+ - You have to remember that you only want to use your dunks at the right time. If you do it at the right time, you can wake up everybody and change the whole momentum of the game. It can get the crowd up, get your teammates up. It can wake up yourself, too, if you’re not shooting well.
+ - Fashion is more than just how many colors and patterns you can put on at once. Being a great dresser is not necessarily about the colors you put on. It’s about putting things together in the right way and then trying different things.
+ - I’m scared of needles.
+ - My biggest achievement – besides being drafted into the NBA – was becoming a father. Being a father has made me experience things that have contributed to my maturity and personal growth.
+ - To wear a gray tweed suit, you have to be mature and confident in yourself. Some people can’t pull it off.
+ - For home games, I bring my clothes to the arena. I bring two different outfits that I can pick after the game. Road game, I got to wear what I walk in with.
+ - Yeah, I play a lot of point guard. LeBron plays a lot of point guard. A lot of people are thinking too much on positions.
+ - Wherever you go, things change you. I mean, obviously moving to Miami and becoming part of the NBA has given me a different perspective on style than I had when I lived in Chicago or Milwaukee.
+ - I’ve been blessed to be one of those guys who’s looked at as a fashion-forward type of guy.
+ - The Miami Heat floor is great, but a lot of them are not.
+ - The biggest surprise has been making the adjustment after losing a game. In the NBA you could lose tonight and you have to put that game behind you because you have another game the next night.
+ - Yes, it’s true – I love the roar of the crowd. When the fans are with you, their voices come together in a big booming rush of sound that you can actually feel in your body – almost like a wave that lifts you and carries you past your own limits.
+ - Growing up, I always dreamed of winning an NBA championship, never a gold. A gold was something that never crossed my mind.
+ - I think this is where we’re trying to get to eventually as a league too hopefully. To have an opportunity to represent and be a leader of a global brand, for me, it was a great decision.
+ - Places you go in life – it opens your eyes up and you kind of understand who you are.
+ - If someone wears something you like, you make comments on it. And if someone wears something we don’t like, we make comments on it, too. That’s just what guys do, what teammates do. Besides that, we don’t really compete in that space.
+ - Man, anytime the ball goes through the basket. It doesn’t matter if it’s a jumper or a drive. Any time the ball goes through the basket, and it’s going through consistently, it’s demoralizing for any opponent.
+ - I think people have had the understanding for many years that whatever happens with the separation of parents, that the kids automatically go to the mother. The fathers don’t know their rights.
+ - A Tom Ford three-piece makes you feel so confident, it’s bananas.
+ - Fatherhood is the best thing that could happen to me, and I’m just glad I can share my voice.
+ - The biggest thing is to make sure that when something comes out about you that is false that you prove it’s not true.
+ - People don’t need to necessarily see me in the jersey to understand who I am and what message I’m trying to get across with the things that I’m marketing.
+ - Being a leader is one thing I’ve never felt comfortable with. It’s not my nature.
+ - I don’t think the world focuses on the positive things enough.
+ - The biggest thing, and what I told some of the partners in the summit, was me thanking them for their constant support with everything that I’ve been through the last couple years on and off the court.
+ - I think that work has been the key for me. Just like they say shooting will become easy if you just keep working at it, well, I love the dribble game-that brings excitement to the game.
+ - Whenever there is a big game and people don’t think I can do it, I always play my hardest, and now it has become a part of me.
+ - Players are ready to play, We’re not on strike. It’s a lockout.
+ - I think the main thing for kids is to have them believe in themselves.
+ - When I got my first check I was thinking my mother and father didn’t make this probably in their lifetime. It’s real amazing that some of us are just blessed.
+ - I’m an athlete, so I can dress down with the best of them. I can throw on t-shirts and sweats with the best of them.
+ - I’ve decided to listen to my doctors and get the procedure I need on my knee. USA Basketball said I had to do what was best for me. They want me to be obviously as healthy as possible so I can continue to play this game at a high level.
+ - We play the whole summer. I do think guys should be compensated. Just like I think college players should be compensated as well. Unfortunately, it’s not there. But I think it should be something, you know, there for it.
+ - My upbringing involves individuals who helped me along the way. I don’t think I would be here today without that support.
+ - It’s always a dream to be on the cover, it’s one of the things an athlete always aspires to do, to be on the cover of a videogame, but I never thought I would get to do it this quick.
+ - Yeah, at first people were talking about me. But now everyone is wearing their clothes more fitted.
+ - As long as you put on a jersey, no matter what kind of jersey it is, as long as you’re supporting the game of basketball, I enjoy it.
+ - Immediately after games, we’re talking about what we need to do for the next game. We’re not satisfied in the moment that we’re in.
+ - I’m a playmaker, and I’m going to score. At the end of the day, my job is to put the ball in the basket.
+ - He’s going to learn the hard way. Hopefully he changes his mentality quick.
+ - I think the biggest thing I’ve learned is to not really worry what people will say or think about what you wear. You have to wear what feels good on you, what you feel comfortable in. And I’ve just learned to not really care.
+ - When I first got into the league, I tried to fit in. Now I don’t care.
+ - I was probably a terrible husband, but I pride myself on being a good dad.
+ - Before even Court Grip, I just wanted to be a part of a brand that I felt that listened to the athlete and really catered to the athlete, and gave us what we were looking for.
+ - Our goal is to be the best team in the NBA at the end of the year.
+ - The locker room has to be right. We’ve got to be patient to build this team.
+ - I’ve been successful in different areas, but nothing brings a smile to my face more than my oldest son, Zaire, and my second son, Zion, saying the kind word of ‘Dad.’
+ - When I come home, I’m not a basketball player, but “dad”. While everyone sees me as an NBA player, to my boys, I’m just “dad” and that’s very important.
+ - Every morning when I wake and every night when I go to sleep, I’m thinking about what I can do to become a better father and a better person.
+ - Anytime an artist puts your name in a song, it’s unbelievable. It never gets old.
+ - I’m on a team with LeBron James and Chris Bosh, and they both dress well. It gets competitive. If I don’t bring my A game, they’re going to outshine me.
+ - We’re focusing on what we need to do. The only attention we’re thinking about is giving each other the attention that we need as a team, and making sure that everyone in here knows how they important they are to our success.
+ - I’m just a kid in a candy store right now, trying to have fun. I’m getting a chance to show my ability and my talent.
+ - I understand being the villain is what people like. People play to that. They want to know about the villain.
+ - Most days I am in public. If I go to the store, with social media, I’m in public. It might as well be a press conference.
+ - I like playing against LeBron more than anybody else in the league. He brings out the best in me, and I bring out the best in him.
+ - I grew up in Chicago, and I understand what Michael Jordan symbolizes.
+ - Over my career, I’ve had to adjust my game.
+ - An athlete needs to read situations before they happen.
+ - Fashion’s about taking chances, it’s about taking risks, and just doing it the way you feel comfortable doing it. If you do that, people will respect it more.
+ - One night I’m going to have a big night scoring; some nights I’m going to have a big night doing other things. Just doing whatever it takes to win the ballgame, not necessarily sitting up here worrying about scoring 30 points.
+ - People are still trying to figure out who I am. Most people just say I play the game the right way.
+ - I’ve always cared about my personal style and the way people perceive me. I know a lot of times people don’t get the opportunity to talk to me, so they’re just going to see what I wear, see how I’m dressed, see how I present myself.
+
+121 quotes

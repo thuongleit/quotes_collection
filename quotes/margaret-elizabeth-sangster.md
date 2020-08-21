@@ -1,0 +1,22 @@
+ - No one should teach who is not in love with teaching.
+ - Love is like fire, a dangerous thing to play with, although the best of friends and the most loyal of servants when rightly handled.
+ - Our daughters are the most precious of our treasures, the dearest possessions of our homes and the objects of our most watchful love.
+ - Mind does dominate body. We are superior to the house in which we dwell.
+ - Every child’s birthright is a happy home.
+ - In home life contentment is an essential to daily comfort. One discontented person in the house creates an atmosphere fatal to tranquillity.
+ - Kindness is the truest wisdom of life and we cannot go far without it.
+ - In the whole round of human affairs little is so fatal to peace as misunderstanding.
+ - Love turns all the wheels of human industry, is the motive power under the world’s machinery, makes worthwhile every enterprise on the earth, is coequal with life, outlasts death, and reaches onward into heaven.
+ - In very truth it is the unattained which gives zest to the commonplace and brims the cup of our daily life with keenest joy.
+ - My own opinion is that youthfulness of feeling is retained, as is youthfulness of appearance, by constant use of the intellect.
+ - Out of the chill and the shadow, into the thrill and the shine. Out of the dearth and the famine, into the fulness divine.
+ - I would not, if I could, give up the memory of the joy I have had in books for any advantage that could be offered in other pursuits or occupations. Books have been to me what gold is to the miser, what new fields are to the explorer.
+ - One of the first things to be noted in business life is its imperialism. Business is exacting, engrossing, and inelastic.
+ - A letter is the most imperishable thing on earth.
+ - Broadly speaking, nervous women may be divided into two classes – those who are really nervous, and those who imagine themselves to be so.
+ - The people who dream are very often the people who see, and dreaming and seeing precede doing.
+ - I think that the Almighty gave springtime to a tired world so that its peoples might know rest. I think that He gave it to a troubled world so that the world’s inhabitants might find peace. I think He gave it to a discouraged world so that hope and faith might be reborn!
+ - Books have been to me what gold is to the miser, what new fields are to the explorer.
+ - Memory is a trustworthy servant as long as it is made to serve.
+
+20 quotes

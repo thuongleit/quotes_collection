@@ -1,0 +1,35 @@
+ - Life is way too short to be focused on scales, weight and cellulite. If you can look in the mirror and know that you’re a beautiful, loving, friendly person who’s good to people, that’ll ultimately make you shine on the outside.
+ - The nerds are my favourite sort of boys – any guy with a passion – whether it be physics or film or writing or poetry even, I think it’s super sweet and it’s very attractive for a female.
+ - There aren’t a lot of movie star males around my age that I can play opposite.
+ - I’m a workaholic, I always try to fill my time with projects.
+ - I love to challenge myself.
+ - I was thrown in the deep end at 18 when I got cast in a movie that I didn’t audition for. The director just sort of found me and put me in a film, so the decision was really made for me.
+ - I came from rather humble beginnings.
+ - In real life, I’m always in tracksuits, and I never wear makeup.
+ - I know my parents are really proud of me, and they think I’ve become successful, so that’s nice, but there’s still so much I want to achieve in my life.
+ - I always have those feelings – lucky and blessed – and I don’t know if they’ll ever go away. I really hope they don’t, as I think it keeps you grounded. That’s how I feel about every film I do.
+ - I’m very much into animal welfare.
+ - I think, for me anyway, music and film is where you can really transport yourself to another universe.
+ - I love being able to help and encourage my friends and I try to inspire them as they do me.
+ - I think Aussies try to stay humble.
+ - I haven’t met everyone from all different cultures, but I do know Aussies are very tough.
+ - I’ve been incredibly blessed.
+ - I can walk around relatively anonymously.
+ - I love zombie films like Danny Boyle’s ‘28 Days Later’ – I thought it was so brilliantly done and so grounded in reality. I was definitely thrust into the zombie world watching that film.
+ - I think that Americans find the Australian humour and the energy of Australians very refreshing – we are quite self-deprecating, we’re light-hearted and can have a laugh.
+ - As a producer you have creative control, and that’s what is so exciting about it. At the end of the day, if you have made a film it’s totally your responsibility, and if it works it’s your responsibility and if it doesn’t it’s also your responsibility.
+ - If you are having fun on screen, it shows.
+ - Kids are really cruel.
+ - I do like fantasy films.
+ - I have to not take myself too seriously and I have to realise that if it is meant to be, it will be.
+ - My parents don’t really watch movies at all.
+ - I can’t speak for anyone else, but in my case, I sort of fell into acting.
+ - I’d always dreamt of acting but, in Adelaide, we don’t have exposure to the opportunities that make stardom a possibility.
+ - I feel like if I ever got into some sort of rumble on the street, I will actually be able to defend myself.
+ - Obviously I don’t have a stylist for everyday stuff, but for a premiere or something usually the studio will hire someone.
+ - I try to get back to Australia as much as possible.
+ - As actors we give so much of ourselves away so I like to keep my personal life to myself.
+ - I was so dorky up until I was about 14 or 15 and started to get a little bit cooler, but I was a socks and sandals girl. I would wear big frilly socks with sandals and all the kids would tease me.
+ - I had the best of both worlds when I was a kid. I’d spend a quiet week with my mum, then I’d go to my dad’s property in the Adelaide Hills, where there were all these kids and animals running around.
+
+33 quotes

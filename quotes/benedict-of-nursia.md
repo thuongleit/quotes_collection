@@ -1,0 +1,24 @@
+ - Listen and attend with the ear of your heart.
+ - Be careful to be gentle, lest in removing the rust, you break the whole instrument.
+ - Idleness is an enemy of the soul.
+ - And let them first pray together, that so they may associate in peace.
+ - Whenever you begin any good work you should first of all make a most pressing appeal to Christ our Lord to bring it to perfection.
+ - Prayer ought to be short and pure, unless it be prolonged by the inspiration of Divine grace.
+ - The first degree of humility is prompt obedience.
+ - Run while you have the light of life!
+ - It is time now for us to rise from sleep.
+ - He who labors as he prays lifts his heart to God with his hands.
+ - The sleepy like to make excuses.
+ - He should first show them in deeds rather than words all that is good and holy.
+ - Idleness is the enemy of the soul; and therefore the brethren ought to be employed in manual labor at certain times, at others, in devout reading.
+ - The first step of humility is unhesitating obedience which comes naturally to those who cherish Christ above all.
+ - There is nothing better to display the truth in an excellent light, than a clear and simple statement of facts.
+ - He who has ears for hearing, let him listen.
+ - Listen carefully, my child, to your master’s precepts, and incline the ear of your heart. Receive willingly and carry out effectively your loving father’s advice, that by the labor of obedience you may return to Him from whom you had departed by the sloth of disobedience.
+ - Before all, and above all, attention shall be paid to the care of the sick, so that they shall be served as if they were Christ Himself.
+ - The prophet shows that, for the sake of silence, we are to abstain even from good talk. If this be so, how much more needful is it that we refrain from evil words, on account of the penalty of the sin!
+ - To attribute to God, and not to self, whatever good one sees in oneself; but to recognize always that the evil is one’s own doing, and to impute it on one’s self.
+ - It is useless to subdue the flesh by abstinence, unless one gives up his irregular life, and abandons vices which defile his soul.
+ - Then are they truly monks when they live by the labor of their hands.
+
+22 quotes

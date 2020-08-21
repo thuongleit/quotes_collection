@@ -1,0 +1,34 @@
+ - I’m terribly nostalgic, but I’m with the Elizabethans who thought nostalgia was a disease. It’s a dangerous place to be because you can get caught up in it.
+ - It’s a cliche, but it’s true that all the fun lies in baddies, grotesques and comic roles.
+ - They are called ‘Emos’ now, and before that they were ‘Goths.’ They didn’t have a name for it when I was one, but I was that black-wearing teenager and yes, I wore a little eyeliner.
+ - I think a lot of people who say they are bisexual aren’t.
+ - When I was your age – about, ooh, a thousand years ago – I loved a good bedtime story. The Three Little Sontarans. The Emperor Dalek’s New Clothes. Snow White and the Seven Keys to Doomsday, eh? All the classics.
+ - Fear is an underrated emotion. And that’s why I think it’s very dangerous to try and cosset children from it. A healthy scare is as good as as a healthy laugh. In fact, they’re two sides of the same coin. There is a desire to shield from the knocks and bumps of reality.
+ - One man’s fish is another man’s poisson.
+ - Even when I was a child, I always wanted to be older. I realised just in time that it’s a mistake and to enjoy my youth while I had it.
+ - I don’t care what other people think any more about me writing my own parts.
+ - I love the Shakespeare history plays; I love the struggle for the crown as a plot.
+ - The thing is, horror is a big part of ‘Sherlock Holmes.’ Doyle also wrote a lot of great horror stories, so there’s a lot more horror in ‘Holmes’ that people possibly think of. There’s a lot of curses and mysticism and real scares.
+ - When I was seven or eight, I was bought a fantastic book called ‘The Movie Treasury of Horror Movies’ by Alan G. Frank; it became my bible. It’s packed full of the most amazing photos and is still fantastic to look at.
+ - I prefer sneaking in the back door.
+ - I had a girlfriend before I ever had a boyfriend, but it was just a phase.
+ - I always compare reading anything on the Internet to listening at doors. If you don’t want to hear anything bad about yourself, you should never do it.
+ - If not exactly raging against the dying of the light, I was at least a little cross with it.
+ - All films speak to their times. It becomes obvious only after.
+ - Europe is so much the home of Horror, with its myths of vampires, werewolves, witchcraft and the undead, yet it’s like those myths were exported to Hollywood, leaving Europe the room to develop a new tradition as a way of processing its traumas, particularly the two world wars.
+ - I grew up with low self-esteem. I didn’t think I was very pretty. I had glasses, red hair and was generally quite a spod.
+ - It was all quite ghastly and I was very fond of it.
+ - All pleasure should be a little bent, don’t you think?
+ - I’m a great believer in the beauty and the power of surprise.
+ - My dad was quite a forbidding figure. I realise now that that was mainly because he worked so hard. He wasn’t unkind, but he was a presence.
+ - I love going to galleries, particularly the National Portrait Gallery.
+ - Slightly forgettable movies can sometimes make great musicals.
+ - I always wanted to do Restoration comedy. It seems like so much fun.
+ - The first film I can remember seeing on TV was ‘The Brides of Dracula.’ I was instantly hooked.
+ - Sci-fi and fantasy used to be a TV staple throughout my childhood. Then it just stopped dead. It was seen as culty, a minority interest.
+ - I used to go to the gym regularly and swim an awful lot, but that was when I was unemployed and knew leisure intimately.
+ - I’m an actor and a writer, that’s how I think of myself. Sometimes my time is divided equally, sometimes less equally, but that’s what I do.
+ - Benedict is bumbly, sweet, affable; the nicest man you’ve met.
+ - At school I briefly wanted to be a palaeontologist, but I was no good at chemistry and physics.
+
+32 quotes

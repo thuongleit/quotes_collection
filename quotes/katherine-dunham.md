@@ -1,0 +1,30 @@
+ - Go within every day and find the inner strength so that the world will not blow your candle out.
+ - We weren’t pushing Black is beautiful. We just showed it.
+ - In knowing how to overcome little things, a centimeter at a time, gradually when bigger things come, you’re prepared.
+ - I had certain physical limitations that made me change the choreography for myself or made me more interested in choreography only rather than dancing. I have never been a person who wanted to just dance. I have always been interested in developing for other people.
+ - You dance because you have to. Dance is an essential part of life that has always been with me.
+ - I wasn’t concerned about the hardships because I always felt I was doing what I had to do, what I wanted to do and what I was destined to do.
+ - If you dance, you dance because you have to. Every dancer hurts, you know.
+ - Haiti itself was also photographed, some of the streets, some of the mountains, rivers, streams, etc. were photographed before talking with me about how I felt about Haiti. Then the camera went to our voodoo temple and saw a serious ceremony, a real ceremony.
+ - I am happy to know that my husband regards me as a woman and a person.
+ - I really think that aside from admiring my talent you really admire me as a person and as a woman.
+ - So many dancers paint. I used to paint. I started again recently. While I was dancing, I was very busy with my career. Start something else that makes use of your creative ability because if you don’t you will die inside as a person.
+ - When you have faith in something, it’s your reason to be alive and to fight for it.
+ - I used to want the words ‘She tried’ on my tombstone. Now I want ‘She did it.’
+ - Black people should have recognition for themselves and their backgrounds and their relationships with other people in the world and thus lose some of their alienation. This museum has certainly stood for that in this town.
+ - We have a group of friends of the museum who try to raise, if they can, periodically something to help us. Of course, the main thing about a building like this is its upkeep. It needs central heating and it needs central air conditioning.
+ - I always believed that if you set out to be successful, then you already were.
+ - Sometimes I have given my husband a manuscript to read that has turned out to have fantastic rave reviews and he’ll tell me it is no good. Well, if I didn’t know him as well as I know him I would be terribly depressed.
+ - For the kind of thing that we were showing, the budget was sufficient. As we were speaking of in Haiti, we had not done that before in exactly this form and we had to have costumes for it.
+ - My work has been much more Caribbean and eclectic. I am interested in people, and where they come from happens to have fallen within an area of Africa.
+ - I certainly feel my career was a great career because it inspired so many many people, literally hundreds of people to follow a new kind of life and to realize that they could make out and advance their own professional and private and social lives.
+ - I could never live a nonproductive life and I feel that I have lived a productive life as far as I want to in terms of this company that I have for so many years.
+ - A creative person has to create. It doesn’t really matter what you create. If such a dancer wanted to go out and build the cactus gardens where he could, in Mexico, let him do that, but something that is creative has to go on.
+ - I don’t think Ed Sullivan had anything to do with Carib Song.
+ - Frequently producers have partners that they never let the public know about.
+ - Don’t think you are going to go on forever because you are not and begin to plan something that will compensate as you reduce your capacities to leap or turn on this or that or the other, begin thinking of something else.
+ - Without my husband’s costumes I wouldn’t have known how to accomplish what I saw in my own mind’s eyes for choreography. And then seeing our choreography and knowing the background of it I am sure helped my husband a great deal with what he designed for us.
+ - I have actually five honorary degrees.
+ - We don’t intend to always keep this necessarily African oriented. Originally I had hoped to have African American Indian of this area, and the Appalachian of this area, but at the same time, just as we have the Haitian room, we will always have room for another exhibit.
+
+28 quotes

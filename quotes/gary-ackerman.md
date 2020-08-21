@@ -1,0 +1,22 @@
+ - Sometimes in order to make progress and move ahead, you have to stand up and do the wrong thing.
+ - It used to be you had real friends on the other side of the aisle. Its not like that anymore. Society has changed. The public is to blame as well. I think the people have gotten dumber.
+ - India is a regional power. It does not need anything to establish it.
+ - And it’s absolutely hypocritical for the political party that talks about states rights, to suddenly ignore states rights, that say that the federal government or federalism has no business in this kind of business.
+ - We have to have some rules and regulations in America, or the world would empty out here.
+ - I’ve had meetings with Fidel Castro. I’ve had meetings with Kim Il-Sung. I’ve had meetings with other dictators. I’ve met with the Butcher of Beijing. You know, I think it’s important to hear, you know, each other’s perspective.
+ - I’ve personally demanded that tyrants let their people go. I’ve tried to feed the hungry, clothe the poor, protect the elderly and infirm, and defend the needy from the aggressively greedy. I’ve led a blessed life. What a kick for a kid from the projects.
+ - Every gun sold should require a background check, period.
+ - Whether rich people make money or lose money, they get no sympathy from the public.
+ - I’m in favor of immigration but we also need rules.
+ - If a jerk burns the flag, America is not threatened, democracy is not under siege, freedom is not at risk.
+ - Sometimes people who are Jewish are held to a higher standard which sometimes we take great pride in.
+ - Telling people not to have children is unthinkable and inhumane.
+ - We’re not looking at banning all weapons.
+ - The media’s gotten lazy. They don’t check anything out. You report what he reports.
+ - Using official government resources to help bankroll an explicit political agenda – whether on the right or left – is flat out wrong.
+ - The ability to convince people of the wackiest notions – and both parties can do it – it’s part of the dumbing down of America that’s really highly problematic.
+ - Patriots don’t let their nation default.
+ - I am always fascinated by India.
+ - Politics was my third act. But I could have a fourth. I don’t know what that will be yet, but there will be one.
+
+20 quotes

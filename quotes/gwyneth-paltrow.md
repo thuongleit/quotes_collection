@@ -1,0 +1,180 @@
+ - The best way to mend a broken heart is time and girlfriends.
+ - We’re human beings and the sun is the sun-how can it be bad for you? I don’t think anything that’s natural can be bad for you.
+ - Invest in what’s real. Clean as you go. Drink while you cook. Make it fun. It doesn’t have to be complicated. It will be what it will be.
+ - Sometimes Harvey Weinstein will let me use the Miramax jet if I’m opening a supermarket for him.
+ - Taking care of yourself is being there for your kids, like how on a plane, they tell you to put on your oxygen mask first.
+ - I love the English way, which is not as capitalistic as it is in America. People don’t talk about work and money. They talk about interesting things at dinner parties.
+ - What I’ve learned is I want to enjoy my life, and food is a big part of it.
+ - Religion is the cause of all the problems in the world. I don’t believe in organized religion at all. It’s what separates people. One religion just represents fragments, it causes war. More people have died because of religious conflict than any other reason.
+ - Unfortunately, most products are full of plastic and silicones and parabens and things that are really not good for us but they give that silky finish.
+ - My father, he was like the rock, the guy you went to with every problem.
+ - To be a woman in your forties, I think it’s a fantastic decade.
+ - Beauty, to me is about being comfortable in your own skin.
+ - There are makeup artists sometimes that have a jade face roller. If you’re really tired those are really good.
+ - I never knew I could suffer so much. And then, at the same time, you think, now I’m ready to open myself up to life in another way, to make it worth something and make it about the right things and not waste time.
+ - I know people that I respect and admire and look up to who have had extra-marital affairs.
+ - My life comes down to three moments: the death of my father, meeting my husband, and the birth of my daughter. Everything I did previous to that just doesn’t seem to add up to very much.
+ - We have always conducted our relationship privately, and we hope that as we consciously uncouple and coparent, we will be able to continue in the same manner.
+ - I’ll never forget it. I was starting to hike up the red rocks, and honestly, it was as if I heard the rock say, ‘You have the answers. You are your teacher.’ I thought I was having an auditory hallucination.
+ - I believe in holistic medicine, yoga, Pilates and so on. But I also believe in banana split sundaes once in a while.
+ - I think the most important beauty lesson I’ve learned from my mom is to be happy in what you do.
+ - I personally believe in some sort of divine order – or energy. I do believe that everything happens for a reason. I do think that when something bad happens to someone it’s with the purpose of awakening them. I do think there is some force behind that. I don’t think there are accidents.
+ - She’s French, so she’s teaching them French, and their previous nanny was Spanish, so they’re fluent in Spanish.
+ - I’m just like any other regular mum; cooking, cleaning, wiping butts, picking up after kids, being a wife and helping the kids with their homework. Mind you, I’m terrible at maths. I can’t even do my six-year-old’s maths homework with her.
+ - I’ve learned so much from being a mom about the kind of person I want to be, the kind of woman I want to be. Motherhood has taught me mindfulness. If you just parent on instinct, you’ll screw your kid up for life. You have to be so mindful.
+ - You’ll never be happy if you can’t figure out that loving people is all there is. And that it’s more important to love than be loved. Because that is when you feel love, by loving somebody.
+ - I do really believe that beauty comes from within, mostly how you feel about yourself and how you express love of yourself, but also in the form of nutrition.
+ - I love men, even though they’re lying, cheating scumbags.
+ - If we were living in ancient Rome or Greece, I would be considered sickly and unattractive. The times dictate that thin is better for some strange reason, which I think is foolish.
+ - Sometimes when things you love get really commercial, you end up feeling betrayed by it.
+ - Much the way I want to know if my food is farm-raised, or wild, or if my orange juice is fresh or from concentrate. I also believe I have the right, and we as Americans all have the right to know what’s in our food.
+ - It’s so much easier to sit home and not exercise and criticize other people. What I love is inspiring people. People come up to me and say, ‘I want to have two kids and wear a bathing suit and not feel terrible about myself. I see how hard you work and it makes me feel like I can do that too.’
+ - I’m superstitious. Before I start a movie, I always kill a hobo with a hammer.
+ - When I pass a flowering zucchini plant in a garden, my heart skips a beat.
+ - Some days I feel like everyone in my world has plugged themselves into my kidneys. I’m so tired.
+ - I sort of look at some peers of mine and I think, ‘No, you’ve got it all wrong!’ I just want to tell them all to have babies and be happy and not get sucked into that Hollywood thing.
+ - One evening when I had my wood-burning stove going I realized I hadn’t thought of dessert.
+ - It is with hearts full of sadness that we have decided to separate.
+ - I had my first bowl of gazpacho when I was fifteen in Spain, and the impression it made was a lasting one.
+ - If you have a very hot experience then shock yourself with cold water, it’s very very good for the nervous system.
+ - One cold wintry day in London, I was dreaming about salad nicoise – one of my favorites.
+ - When I venture out to eat, I like to go to places with food that I don’t know how to make. So my favorites are Japanese and Indian. Indian food has so much layering of flavor, and the dishes go together so harmoniously.
+ - The older I get, the more open-minded I get, the less judgmental I get.
+ - I don’t want to be rich and I don’t want to be famous.
+ - On daughter Apple’s accent: She says Mummy instead of Mommy, I don’t mind that. I will if she starts saying basil and pasta the English way, as that really drives me nuts.
+ - My one light American Spirit that I smoke once a week, on Saturday night.
+ - I think that women, especially women in my job, come to me because they know I’m very loving and nonjudgmental and I’m not competitive, and I’ve been through a lot.
+ - I’m a bit traditional in the way that I think that a woman draws her energy from the house. Food is a really nice way of expressing that energy and love, and doing something with care and putting time into it and nourishing your family.
+ - I do 45 minutes of cardio five days a week, because I like to eat. I also try for 45 minutes of muscular structure work, which is toning, realigning and lengthening. If I’m prepping for something or I’ve been eating a lot of pie, I do two hours a day, six days a week for two weeks.
+ - Every time I have a bikini wax, Cameron Diaz holds me down.
+ - I really am a smoothie person. I love making a morning smoothie and then will drink some coffee and will not eat at all before lunch.
+ - I’m hard on myself, so I’m working on shifting perspective toward self-acceptance, with all my flaws and weaknesses.
+ - I don’t mind girls or boys. My mother gets upset when I say I want all girls because Apple is so fabulous.
+ - I try to do one thing at a time to utilise my time well.
+ - I started boxing one day a week to experience aggression, which has been really interesting.
+ - I realised Life is so short and precious, you should do things that make you feel inspired, that push you and teach you something. I’d rather not have a big house, a huge closet of clothes, diamonds and a private plane, and instead a body of work that I’m proud of...
+ - We feel it’s unacceptable to be fat, when it has nothing to do with who the person actually is.
+ - I’m a real blue jeans girl, I wear jeans all the time and I couldn’t live without them. Jeans and blazers.
+ - It changed me more than anything else. You don’t want to get to that place where you’re the adult and you’re palpably in the next generation. And, this shoved me into that.
+ - I was having such a hard time when I made Sylvia. I gave everything I had for that role. It’s one or two or three things I’m most proud of in terms of my work. But it was very dark.
+ - When you’re so out there in the public eye, people are constantly criticizing every aspect about you.
+ - Brits are far more intelligent and civilised than Americans. I love the fact that you can hail a taxi and just pick up your pram and put in the back of the cab without having to collapse it. I love the parks and places I go for dinner and my friends.
+ - I use omega-3 oil. I love light oil on my skin. It’s one of my favorite feelings in the world.
+ - There’s a group I’ve been close to, since childhood. We spend a lot of time together.’.
+ - I just look for interesting supporting-biggish supporting parts, and try to do one a year, and that’s my limit. Some women can do it and that’s fantastic, but I can’t. You make choices as a wife and mother, don’t you? You can’t have it all. I don’t care what it looks like.
+ - Even actresses that you really admire, like Reese Witherspoon, you think, ‘Another romantic comedy?’ You see her in something like ‘Walk the Line’ and think, ‘God, you’re so great!’ And then you think, ‘Why is she doing these stupid romantic comedies?’ But of course, it’s for money and status.
+ - I’m just a normal mother with the same struggles as any other mother who’s trying to do everything at once and trying to be a wife and maintain a relationship. There’s absolutely nothing perfect about my life, but I just try hard.
+ - I moved to New York from California when I was 11, so initially I was seen as the California person for a while. I didn’t feel like I was popular, but I did feel confident.
+ - There’s something that sort of weirds me out about actors who want to be rock stars, and the other way around too.
+ - I’ll take my wrinkles. I don’t like the Botox thing.
+ - I am very passionate about non-toxic food and beauty and home.
+ - I don’t eat red meat, but sometimes a man needs a steak.
+ - I have a very highly developed sense of denial.
+ - I would be scared to go under the knife, but you know, talk to me when I’m 50. I’ll try anything. Except I won’t do Botox again, because I looked crazy. I looked like Joan Rivers!
+ - Be really, really true to yourself. That to me, has been key to me in understanding how I want to live the second half of my life.
+ - I was very much a tomboy for a long time, but as I start to get older, I realize I better actually try to preserve what I have and I better be a little conscientious about my regime.
+ - My playground was the theatre. I’d sit and watch my mother pretend for a living. As a young girl, that’s pretty seductive.
+ - Luckily, my children love broccoli, and although we sometimes enter into UN-like negotiations about how many ‘trees’ they need to eat before they can partake of ice cream, it is a vegetable that they tend to embrace.
+ - When I had kids I sort of went into a hole for a few years and I think when I came out of that, I started to really become myself and know what works on me.
+ - I like to dry brush which is really detoxifying for the skin. Exercise is also really important for me for balance and to get those endorphins going.
+ - I’ve learned a lot about genuinely not caring what strangers think about me. It’s very liberating.
+ - When I turned 40 I thought, ‘I have to really make sure I have time to myself,’ because it’s very overwhelming to be taking care of so many people.
+ - I’m not sure how healthy bacon is in general, but I know it’s incredibly delicious.
+ - The work gets more difficult as you get older. You learn more and you gather more experiences, there is deeper pain and higher highs.
+ - During the strict macrobiotic chapter of my life, I ate miso soup every day for breakfast and sometimes with dinner as well.
+ - People have become inappropriate. People have pushed too far. People have climbed one too many fences. I’m just tired of it.
+ - The Jewish part of me is superstitious.
+ - Women were real box office stars in the ’40s, more so than men. People loved to see women’s films. I think it was better then, except for the studio system.
+ - One year I was given a birthday present I’ll never forget – a cooking lesson from Jamie Oliver.
+ - I cook and I really believe in the family dinner, I think that’s a nice time to bring the family together.
+ - Could I use some butter and cheese and eggs in my cooking without going down some kind of hippie shame spiral? Yes. Of course I could.
+ - My actual beauty routine is pretty simple, I try and have a facial once in a while. I’m not a huge products girl. I have so much going on with work and kids, I just use moisturiser basically.
+ - I understand what it feels like not to like aspects of yourself. There have been times that I have felt really terrible about the way I look. I have the seed of that feeling.
+ - I can do short jobs. If I was still starring in three movies every year, there’s no way that I’d be the person my kids want when they fall down.
+ - I do 45 minutes of cardio five days a week, because I like to eat. I do Tracy Anderson’s dance aerobics classes.
+ - I think my favourite thing is understanding the responsibility of raising two human beings and putting them into the world.
+ - After I had the kids, I took a break from work, and all my creativity went into my kitchen. I like experimenting.
+ - You can call me a lot of things, but you can’t call me complacent!
+ - Cameron Diaz is probably my biggest beauty mentor of my friends. She knows how to do her own hair and makeup; she’s really good at it.
+ - I love film. After a yummy meal for the whole family and some truly great friends, we often go out to see something beautiful and unique.
+ - As I absorbed life here and understood it better, I just completely fell in love with England.
+ - My hair is pretty wavy. And it’s coarse and color-treated so I’m big on conditioner and conditioning masks.
+ - I wasn’t the high-school play queen or anything. And my parents would let not me act until I graduated from college.
+ - I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it’s still a fantastic, amazing place.
+ - Jessica Seinfeld made a toast. She turned to the assembled guests. ‘And you are all so lucky to be part of Gwyneth’s world. Because this is the real deal. And she’s invited all of you good people in here. I would never do that.’
+ - If I’m lucky, I can do a facial once a month.
+ - As you go through life you realize that the love that you have for the people in your life and their love for you is all that matters. It’s really about how you regard them and how they regard you.
+ - I would rather die than let my kid eat Cup-a-Soup.
+ - If you read something bad about yourself and it stings you, I’ve learned that somewhere that’s a judgment I’m holding about myself, so I’ll try to work through that.
+ - In the theater, you go from point A to point Z, building your performance as the evening progresses. You have to relinquish that control on a film.
+ - I think so many people give us ideas of what we are. I think as women especially, because we’re sensitive by nature, we’re more vulnerable, we absorb other people’s ideas about what we’re supposed to think or who we’re supposed to be and how we’re supposed to act.
+ - If you carve out what you expect, that’s how you end up getting disappointed, not living fully in the present.
+ - I’m not great about putting on make-up, I look like a wreck half the time.
+ - I think that the process of figuring out what kind of leader I wanted to be was challenging, because as an actor, you work alone, really.
+ - Beauty fades! I just turned 29, so I probably don’t have that many good years left in me.
+ - I personally think fitness is a very important part of skincare and overall health and wellness and beauty. I think that the skin is our largest organ.
+ - I try as best I can to really put all I can into what I’m doing. A lot of days I fail and there’s too much to do. I do think it’s really important to have time to yourself, whether that’s reading something interesting when the kids are in bed or even having a dog.
+ - I don’t really understand the concept of having a career, or what agents mean when they say they’re building one for you. I just do things I think will be interesting and that have integrity. I hate those tacky, pointless, big, fluffy, unimportant movies.
+ - I really don’t like drunk women; I think it is such a bad look. I think it’s very inappropriate and I don’t like it. I don’t really have drunk friends.
+ - Mornings and afternoons are my family time and I’m lucky that I can drop the kids off at school, I don’t have to be at the office or anything.
+ - Is it better not to drink alcohol and eat fried food and not have cheese and never have a cigarette at a party? Of course, but that’s just not life.
+ - I say what I think, and I stand behind what I say.
+ - My perfect plan is to do one movie every nine months.
+ - I am convinced that by eating biological foods it is possible to avoid a tumor.
+ - Physically, it completely changed me. I found strength that I never thought I had. And mentally, I mean, it’s taught me just patience and letting go, and it’s really changed my whole psychological outlook, I think.
+ - In my 20s because I was working on films so much and travelling so much and doing press, I was single with no kids and I think that’s the time when not only are you trying on looks, but you’re trying on personalities – you’re still really forming.
+ - I think part of a beauty routine is how you feel and checking in with your inner self, and so I made that commitment to myself to do that.
+ - I don’t eat four-legged animals, but I eat birds, I eat cheese, I eat dessert. I eat everything.
+ - I’ve had a very interesting career. I get to do amazing things and work with amazing people and travel and learn languages – things most people don’t get the opportunity to do.
+ - I love being. There’s so much wisdom in it. You wake up in the morning and you think, Hey, isn’t it great just being?
+ - For the most part, I try to be healthy and eat good things, but if you give me a baguette and some Camembert, I’m gonna eat it.
+ - I don’t have time to devote to putting outfits together before picking up the kids. I’m a creature of habit and in that way, I tend to just go towards what works for me and what’s comfortable. It’s really important to be comfortable when you’re running around after kids.
+ - There’s a portion of the movie where something bad happens to me, and I lose my clothes along the way, so essentially I’m wearing a bra and trousers. There are certain requirements, but luckily I have a good base because I work out often.
+ - I wouldn’t say I’m a mummy’s girl, but I have grown to have a tremendous appreciation of her as a woman. I was very much a daddy’s girl.
+ - We’ve been married for more than eight years now and we’re still into it. I think you do fall in and out of love and you just keep going, and every time you go through a really difficult phase, you rediscover something new and it just gets better.
+ - The simpler things are, the happier they are.
+ - I first had a version of this at a Japanese monastery during a silent retreat-don’t ask, it’s a long story.
+ - I’m sort of getting into the idea of nourishing your inner aspect and doing that by investing in your family and making a meal and creating time together.
+ - I really worry about the state of the planet and I wish everyone would make a concerned effort not to trash it.
+ - Doubt, not self-reflection, comes from a destructive energy, and when it rears its head, I talk to it like a lunatic.
+ - The adrenaline of a live performance is unlike anything in film or theater. I can see why it’s so addictive.
+ - I think my days of trying outrageous things are over. I’m not looking for trends, I just want to be the best version of myself.
+ - I really wanted my creams to feel luxurious and have a beautiful finish, and it’s harder to do that with natural ingredients.
+ - I’m looking forward to becoming older and quieter.
+ - I’m very, very lucky in that I have a partner who is willing to do it with me in a really collaborative way. Fortunately, even though we couldn’t stay in a romantic relationship, our values are very much around the importance of family and the importance of those relationships.
+ - I love to cook and feed people. I cook every day.
+ - Why I enjoyed doing Iron Man because it opened me up to this new world where fans are so passionate.
+ - You have to know why you’re rushing about. It’s OK to rush about but it’s important to know what’s driving you, the positives of it and the negatives of it.
+ - I really like where Tony Robbins says that we’re all hypnotized to see beauty this one specific way, and it’s true.
+ - There have been countless times where I’ve worked out with my kids crawling around all over the place. You just make it work.
+ - I understand that if you set out to be a celebrity, then you asked for it, but all I wanted to be was an actor.
+ - I always knew I wanted to act, but my parents neverencouraged me. If I was talentless, they didn’t want me to be heartbroken.
+ - When I was pregnant, I couldn’t wear fragrance. I couldn’t smell anything. I couldn’t smell flowers, I was very sensitive to everything. I could smell orange juice from across the room and I remember thinking, ‘I will throw up.’
+ - I made a pact with myself that I’d rather have less money than be embarrassed.
+ - If I could just walk around and light the candles with my finger, that would be kind of cool.
+ - I wouldn’t say I’m a very original thinker, but if I have a good experience with something, I’ll want to take it further or adapt it in some way.
+ - My life is good because I am not passive about it. I invest in what is real. Like real people, to do real things, for the real me.
+ - I try to take care of my hair because it sort of has to withstand a lot of blowdrying and ironing.
+ - If you go in in the morning and have had a rough night, dunking your face in ice water is really good.
+ - Are you crazy? I don’t want to wear ideas. I don’t want to have all these complicated thing.
+ - Because I was newly pregnant, I was sick as a dog, yet I knew all my lines from a year before.
+ - I’m never going again. It was so un-fun. It was boiling. It was too crowded. I did not enjoy it at all.
+ - I never thought that I’d be considered to have a good body. I was bony up top and kind of dumpy on the bottom.
+ - I try to remember, as I hear about friends getting engaged, that it’s not about the ring. It’s a grave thing, getting married.
+ - I just had a baby. I’m not going to work unless it’s something really special and meaningful, because I can’t imagine missing all that time with my daughter.
+ - We’ve got a wood-burning pizza oven in the garden – a luxury, I know, but it’s one of the best investments I’ve ever made.
+ - I don’t know who decided that skinny was more appealing than not skinny. It seems arbitrary.
+ - Our marriage is between us. If we decide to continue being together or not, it’s our business.
+ - My dad always said he couldn’t remember a time when I did not want to act.
+ - I am who I am. I can’t pretend to be somebody who makes $25,000 a year.
+ - I eat whatever I want. I like bread and cheese and wine, and that makes my life fun and enjoyable.
+ - It’s a waste of time for people to say things they think other people want to hear, or try and come off in a certain way. I try to be as honest as I can.
+ - I’m an artist, and the need to get inside myself and be creative and be other people is a part of who I am. I don’t imagine I’ll abandon that completely.
+ - For me when I was growing up, some of the happiest times were when we went to a small island called Nantucket off Massachusetts.
+ - I was so bad with the food and alcohol in Nashville. If you saw me naked compared to what I looked like when I did Iron Man 2, when I was exercising every day – I’ll get it back together, but I’ve never eaten so much fried food and white flour in my life, ever.
+ - I’m a lot more selective with work these days. My perfect plan is to do one movie every nine months. It would have to be a project that I found inspiring. It would also have to include other actors and a director I am inspired to work with.
+ - I try to avoid barbecue potato chips. They’re my weakness.
+ - I try to do things where I’m going to feel challenged in some way. I only really do one movie a year.
+ - I think the most clear, direct way to empowerment is to really know yourself and to really use your voice and to not be afraid of other people’s reactions.
+
+178 quotes

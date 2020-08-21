@@ -1,0 +1,22 @@
+ - Doctors take the Hippocratic Oath too seriously, as an imperative to do everything for the patient regardless of the cost or effects on others.
+ - Physician-assisted suicide and euthanasia have been profound ethical issues confronting doctors since the birth of Western medicine, more than 2,000 years ago.
+ - I guess, as an Emanuel, I have a voice that carries.
+ - Childhood vaccines are one of the great triumphs of modern medicine. Indeed, parents whose children are vaccinated no longer have to worry about their child’s death or disability from whooping cough, polio, diphtheria, hepatitis, or a host of other infections.
+ - Vaccines are the most cost-effective health care interventions there are. A dollar spent on a childhood vaccination not only helps save a life, but greatly reduces spending on future healthcare.
+ - Medical school education and post graduate education emphasize thoroughness.
+ - We’re all on a continuous journey to try and fix our mistakes and flaws. And, believe me, I’ve got plenty of them.
+ - An obvious example is not guaranteeing health services to patients with dementia.
+ - I’m the son of a pediatrician, and I do believe that the most important resource we have is our kids. And I think the most important thing for America’s future is to invest more in our children.
+ - Americans tend to endorse the use of physician-assisted suicide and euthanasia when the question is abstract and hypothetical.
+ - Patients who are being kept alive by technology and want to end their lives already have a recognized constitutional right to stop any and all medical interventions, from respirators to antibiotics. They do not need physician-assisted suicide or euthanasia.
+ - We don’t have enough solid organs for transplantation; not enough kidneys, livers, hearts, lungs. When you get a liver and you have three people who need it, who should get it? We tried to come up with an ethically defensible answer. Because we have to choose.
+ - Guilt. It comes naturally to me as a Jew and a Liberal.
+ - I am not sure precisely why we need to have privacy, but everyone knows for sure that we need to relax and not have to put on our social, outwardly looking face all of the time.
+ - My father always has been attractive because of his energy, warmth, charm, and talent for finding some connection with people from all cultures and walks of life. He rarely observed social formalities and niceties – something he has passed on to his boys.
+ - Having been an oncologist and having cared for scores, if not hundreds, of dying patients, when you don’t have a treatment that can shrink the tumor and the patient will die, it’s a very difficult conversation. It’s emotionally draining.
+ - Services provided to individuals who are irreversibly prevented from being or becoming participating citizens are not basic and should not be guaranteed. An obvious example is not guaranteeing health services to patients with dementia.
+ - The situation around Terri Schiavo was a deeply held conflict over what to do if someone isn’t going to return to consciousness or competence. Who will decide? Even there, where we had settled legal rules, we still had disagreement. We’re torn about these things.
+ - Anyone who lives in Washington and has an official position viscerally understands the cost of a lack of privacy. Every dinner – especially ones with a journalist in attendance – is preceded by the mandatory, ‘This is off the record.’ But everyone also knows, nothing is really ’off the record.
+ - When my children were growing up, we began every family meal – which included breakfast and dinner every day – with a prayer. We are Jewish and so it was the prayer over bread, when we were having bread, or the catch-all prayer for everything when we weren’t.
+
+20 quotes

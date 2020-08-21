@@ -1,0 +1,26 @@
+ - Silence is the deadliest weapon of mass destruction.
+ - We are way more powerful when we turn to each other and not on each other, when we celebrate our diversity, focus on our commonality, and together tear down the mighty walls of injustice.
+ - I can’t be calm when I drive through sections of Atlanta that look more like Kinshasa, Democratic Republic of Congo, than America.
+ - Americans are gathering the courage to just say no. We are saying no to addictive consumer lifestyles. We are saying no to wars and corporate takeover and the IMF loans that gobble up people and their resources.
+ - Yes, the Green Party is committed to a healthy environment. But the Green Party is not solely committed to just that.
+ - We don’t really know who killed Martin Luther King. We don’t really know who killed Bobby Kennedy. We don’t really know who killed John Kennedy. We don’t really know who killed Tupac Shakur.
+ - If deliberate distortion of reality by corporate media could be effectively prosecuted in the United States, the entire industry would be behind bars.
+ - Well, I am not afraid of the word ‘liberal.’
+ - The American people might have a criminal syndicate running their government.
+ - Ever since I came to Congress in 1992, there are those who have been trying to silence my voice. I’ve been told to “sit down and shut up” over and over again. Well, I won’t sit down and I won’t shut up until the full and unvarnished truth is placed before the American people.
+ - To any honest observer, Zimbabwe’s sin is that it has taken the position to right a wrong, whose resolution has been too long overdue – to return its land to its people.
+ - There are people, particularly in the United States with which I am most familiar, who would say how ironic that Tehran would be the sponsor of an anti-terrorism conference, because there are people who say that Iran is a state sponsor of terrorism.
+ - African Americans have always known that a little bit of paranoia was healthy for us.
+ - It is at this moment, when things appear so bleak that we must redouble our efforts and not give up. We must believe that we can remake the world in a more peaceful reality.
+ - How is it that we can entrust the solutions for the problems that confront our country today to those who are complicit in their creation?
+ - Eight generations of African-Americans are still waiting to achieve their rights – compensation and restitution for the hundreds of years during which they were bought and sold on the market.
+ - Voter caging and voter ID laws exist to disfranchise voters.
+ - The situation in the United States is becoming more dire for average ordinary Americans and the last thing we need to do is to spend money on death, destruction and war.
+ - It’s clear that the United States has more to give the world than military bases.
+ - The Greens have never been on the ballot in Georgia because of restrictive ballot access laws.
+ - I believe that when it comes to major foreign policy issues, many prefer to have black people seen and not heard.
+ - There’s been a long-standing relationship between me and individual members of the Green Party.
+ - Every dollar that is printed should not represent a debt to private bankers. It should represent an investment potential in the common good, in the common needs of our country.
+ - It now becomes clear why the Bush Administration has been vigorously opposing congressional hearings. The Bush Administration has been engaged in a conspiracy of silence.
+
+24 quotes

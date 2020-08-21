@@ -1,0 +1,120 @@
+ - A man is like a cat; chase him and he will run – sit still and ignore him and he’ll come purring at your feet.
+ - After marriage, a woman’s sight becomes so keen that she can see right through her husband without looking at him, and a man’s so dull that he can look right through his wife without seeing her.
+ - True love isn’t the kind that endures through long years of absence, but the kind that endures through long years of propinquity.
+ - Life begins at 40 – but so do fallen arches, rheumatism, faulty eyesight, and the tendency to tell a story to the same person, three or four times.
+ - A good woman inspires a man, a brilliant woman interests him, a beautiful woman fascinates him, but a sympathetic woman gets him.
+ - Nobody is quite so blase and sophisticated as a boy of nineteen who is just recovering from a baby grand passion.
+ - The woman who appeals to a man’s vanity may stimulate him, the woman who appeals to his heart may attract him, but it is the woman who appeals to his imagination who gets him.
+ - A bachelor never quite gets over the idea that he is a thing of beauty and a boy forever.
+ - Why does a man take it for granted that a girl who flirts with him wants him to kiss her – when, nine times out of ten, she only wants him to want to kiss her?
+ - Kissing a smoker is like licking an ashtray.
+ - A man never knows how to say goodbye; a woman never knows when to say it.
+ - When two people decide to get a divorce, it isn’t a sign that they ‘don’t understand’ one another, but a sign that they have, at last, begun to.
+ - To be happy with a man you must understand him a lot and love him a little. To be happy with a woman you must love her a lot and not try to understand her at all.
+ - Woman’s love – a mirror in which a man beholds himself glorified, magnified and deified.
+ - The hardest task of a girl’s life, nowadays, is to prove to a man that his intentions are serious.
+ - The feminine vanity-case is the graveyard of masculine illusions.
+ - The follies which a man regrets the most in his life are those which he didn’t commit when he had the opportunity.
+ - A bride at her second marriage does not wear a veil. She wants to see what she is getting.
+ - Home is any four walls that enclose the right person.
+ - Better a lively old epigram than a deadly new one.
+ - Nowadays love is a matter of chance, matrimony a matter of money and divorce a matter of course.
+ - Jealousy is the tie that binds, and binds, and binds.
+ - In olden times sacrifices were made at the altar – a practice which is still continued.
+ - When you see what some girls marry, you realize how they must hate to work for a living.
+ - Marriage is the only thing that affords a woman the pleasure of company and the perfect sensation of solitude at the same time.
+ - Flirting is the gentle art of making a man feel pleased with himself.
+ - A bachelor gets tangled up with a lot of women in order to avoid getting tied up to one.
+ - In love, somehow, a man’s heart is always either exceeding the speed limit, or getting parked in the wrong place.
+ - A wise woman puts a grain of sugar into everything she says to a man, and takes a grain of salt with everything he says to her.
+ - A widow is a fascinating being with the flavor of maturity, the spice of experience, the piquancy of novelty, the tang of practiced coquetry, and the halo of one man’s approval.
+ - Love is a matter of give and take – marriage, a matter of misgive and mistake.
+ - Before marriage, a man will lie awake thinking about something you said; after marriage, he’ll fall asleep before you finish saying it.
+ - Marriage: a souvenir of love.
+ - A man loses his illusions first, his teeth second, and his follies last.
+ - Marriage is the operation by which a woman’s vanity and a man’s egotism are extracted without an anaesthetic.
+ - A man always mistakes a woman’s clinging devotion for weakness, until he discovers that it requires the strength of Samson, the patience of Job, and the finesse of Solomon to untwine it.
+ - Eternity: The interval between the time when a woman discovers that a man is in love with her and the time when he finds it out himself and tells her about it.
+ - To a man, marriage means giving up four out of five of the chiffonier drawers; to a woman, giving up four out of five of her opinions.
+ - Love: woman’s eternal spring and man’s eternal fall.
+ - Love, the quest; marriage, the conquest; divorce, the inquest.
+ - Telling lies is a fault in a boy, an art in a lover, an accomplishment in a bachelor, and second-nature in a married man.
+ - Going through life without love is like going through a good dinner without an appetite – everything seems so flat and tasteless.
+ - A man’s desire for a son is usually nothing but the wish to duplicate himself in order that such a remarkable pattern may not be lost to the world.
+ - Never trust a husband too far, nor a bachelor too near.
+ - When perfect frankness comes in at the door love flies out of the window.
+ - When a man spends his time giving his wife criticism and advice instead of compliments, he forgets that it was not his good judgment, but his charming manners, that won her heart.
+ - Love, like a chicken salad or restaurant hash, must be taken with blind faith or it loses its flavor.
+ - Some widowers are bereaved – others, relieved.
+ - When a girl marries she exchanges the attentions of many men for the inattention of one.
+ - A woman’s flattery may inflate a man’s head a little; but her criticism goes straight to his heart, and contracts it so that it can never again hold quite as much love for her.
+ - A man’s heart may have a secret sanctuary where only one woman may enter, but it is full of little anterooms which are seldom vacant.
+ - A man snatches the first kiss, pleads for the second, demands the third, takes the fourth, accepts the fifth – and endures all the rest.
+ - Ever since Eve started it all by offering Adam the apple, woman’s punishment has been to supply a man with food then suffer the consequences when it disagrees with him.
+ - A bachelor has to have an inspiration for making love to a woman – a married man needs only an excuse.
+ - Love is woman’s eternal spring and man’s eternal fall. It is a game at which men must play against stacked cards, and without the slightest inkling of the trump.
+ - Some women blush when they are kissed, some call for the police, some swear, some bite. But the worst are those who laugh.
+ - The chief excitement in a woman’s life is spotting women who are fatter than she is.
+ - A man falls in love through his eyes, a woman through her imagination, and then they both speak of it as an affair of ’the heart.
+ - For repeating themselves from the first kiss to the last sigh, the average man’s love affairs have History blushing with envy.
+ - Never worry for fear you have broken a man’s heart; at the worst it is only sprained and a week’s rest will put it in perfect working condition again.
+ - True Love can be no deeper than your capacity for friendship, no higher than your ideals, and no broader than the scope of your vision.
+ - There are many times where a woman would gladly drop her husband if she did not feel morally certain that some other woman would come right along and pick him up.
+ - A fool and her money are soon courted.
+ - Verily, the best of husbands hath many raw edges, and many unnecessary pleats in his temper, and many wrinkles in his disposition, which must be removed.
+ - A man may talk inspiringly to a woman about love in the abstract – but the look in his eyes is always perfectly concrete.
+ - A woman flees from temptation, but a man just crawls away from it in the cheerful hope that it may overtake him.
+ - A man can become so accustomed to the thought of his own faults that he will begin to cherish them as charming little ‘personal characteristics.’
+ - A man’s ideal woman is the one he couldn’t get.
+ - One man’s folly is another man’s wife.
+ - A Bachelor of Arts is one who makes love to a lot of women, and yet has the art to remain a bachelor.
+ - There are only two kinds of men; the dead and the deadly.
+ - The honeymoon is not actually over until we cease to stifle our sighs and begin to stifle our yawns.
+ - The tenderest spot in a man’s make-up is sometimes the bald spot on top of his head.
+ - Before marriage, when a woman speaks to a man in an undertone, he calls it “cooing”; after marriage, he calls it nagging.
+ - There is a vast difference between the savage and the civilized man, but it is never apparent to their wives until after breakfast.
+ - Flattery is like wine, which exhilarates a man for a moment, but usually ends by going to his head and making him act foolishly.
+ - Marriage is a bargain, and somebody has to get the worst end of the bargain.
+ - Don’t waste time trying to break a man’s heart; be satisfied if you can just manage to chip it in a brand new place.
+ - And verily, a woman need know but one man well, in order to understand all men; whereas a man may know all women and understand not one of them.
+ - It is easier to keep half a dozen lovers guessing than to keep one lover after he has stopped guessing.
+ - Marriage is the miracle that transforms a kiss from a pleasure into a duty.
+ - Marriage is like twirling a baton, turning hand springs or eating with chopsticks. It looks easy until you try it.
+ - Honeymoons are the beginning of wisdom – but the beginning of wisdom is the end of romance.
+ - Every man wants a woman to appeal to his better side, his nobler instincts, and his higher nature – and another woman to help him forget them.
+ - There are more ways of killing a man’s love than by strangling it to death, but that’s the usual way.
+ - Falling in love consists merely in uncorking the imagination and bottling the common sense.
+ - A husband is what is left of a lover, after the nerve has been extracted.
+ - It isn’t tying himself to one woman that a man dreads when he thinks of marrying; it’s separating himself from all the others.
+ - When you see a married couple walking down the street, the one that’s a few steps ahead is the one that’s mad.
+ - It is as hard to get a man to stay at home after you’ve married him as it was to get him to go home before you married him.
+ - No girl who is going to marry need bother to win a college degree; she just naturally becomes a “Master of Arts” and a “Doctor of Philosophy” after catering to an ordinary man for a few years.
+ - Variety is the spice of love.
+ - Some women can be fooled all of the time, and all women can be fooled some of the time, but the same woman can’t be fooled by the same man in the same way more than half of the time.
+ - No man can understand why a woman shouldn’t prefer a good reputation to a good time.
+ - Matrimony is the price of love – divorce, the rebate.
+ - There are people whose watch stops at a certain hour and who remain permanently at that age.
+ - A good woman is known by what she does; a good man by what he doesn’t.
+ - There’s so much saint in the worst of them, and so much devil in the best of them, that a woman who’s married to one of them, has nothing to learn of the rest of them.
+ - An optimist is merely an ex-pessimist with his pockets full of money, his digestion in good condition, and his wife in the country.
+ - Some men are born for matrimony, some achieve matrimony – but most of them are merely poor dodgers.
+ - Soft, sweet things with a lot of fancy dressing – that’s what a little boy loves to eat and a grown man prefers to marry.
+ - Nothing annoys a man as to hear a woman promising to love him “forever” when he merely wanted her to love him for a few weeks.
+ - When a man makes a woman his wife, it’s the highest compliment he can pay her, and it’s usually the last.
+ - The dollar sign is the only sign in which the modern man appears to have any real faith.
+ - What a man calls his ‘conscience’ is merely the mental action that follows a sentimental reaction after too much wine or love.
+ - Alas, why will a man spend months trying to hand over his liberty to a woman – and the rest of his life trying to get it back again?
+ - Woman: the peg on which the wit hangs his jest, the preacher his text, the cynic his grouch and the sinner his justification.
+ - Estimated from a wife’s experience, the average man spends fully one-quarter of his life in looking for his shoes.
+ - Changing husbands is about as satisfactory as changing a bundle from one hand to the other; it gives you only temporary relief.
+ - Fortunately for women, most men mistake loneliness for love before marriage, and habit for happiness afterward.
+ - To make a man perfectly happy tell him he works too hard, that he spends too much money, that he is misunderstood or that he is different; none of this is necessarily complimentary, but it will flatter him infinitely more that merely telling him that he is brilliant, or noble, or wise, or good.
+ - Wedding: the point at which a man stops toasting a woman and begins roasting her.
+ - France may claim the happiest marriages in the world, but the happiest divorces in the world are ‘made in America.’
+ - A man seldom thinks of marrying when he meets his ideal woman; he waits until he gets the marrying fever and then idealizes the first woman he happens to meet.
+ - Love will never be ideal until man recovers from the illusion that he can be just a little bit faithful or a little bit married.
+ - A man marries one woman to escape from many others, and then chases many others to forget he’s married to one.
+ - Between lovers a little confession is a dangerous thing.
+ - Before marriage, a man declares that he would lay down his life to serve you; after marriage, he won’t even lay down his newspaper to talk to you.
+
+118 quotes

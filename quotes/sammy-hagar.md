@@ -1,0 +1,41 @@
+ - Every year on your birthday, you get a chance to start new.
+ - Stop looking out, start looking in. Be your own best friend. Stand up and say, hey, this is mine!
+ - Yes, I’m looking at you, looking at me, looking at you, looking at me, looking back at you.
+ - Dave was great in Van Halen. No question about it. He was one of the best at being Mr. Rock Star. But it’s sickening to see a guy still trying to be that with a wig on 20 years later.
+ - I can be singing about cat food and I’ll make you think that I mean it.
+ - Write me up for 125, poster my face wanted dead or alive. Take my license all that jive, I can’t drive 55.
+ - If you don’t ever stop singing, your voice stays in shape. It’s like the marathon runner. You’ve got to run, run, run to stay in shape.
+ - The good thing about breaking up is that you have nothing else to lose.
+ - The reason I didn’t fly over from Maui at their beck and call is my wife was about to have a baby at any time. Those guys knew that. These guys would not compromise and meet me halfway.
+ - Sometimes you’re afraid to fall in love with a chick, but she sucks you in anyway.
+ - I’ve been drinking tequila for a long time now, and it’s never been about drinking to get drunk. I don’t do that. I never drink tequila during the day, and I don’t drive at night.
+ - I had written lyrics to a song called The Silent Extreme, which Alex later renamed Humans Being.
+ - It’s hard to say this about a guy like Eddie Van Halen, one of the greatest guitar players who ever lived, but he’s really limited to a style and they’re locked into it.
+ - I see couples fighting about the stupidest things. You just have to rise above everything.
+ - If I would go up on a high note, Eddie would want a low one. That’s how petty the situation had become.
+ - I don’t want to talk about negative, dark things. The only thing I’ve got against stuff like Marilyn Manson is, they make unbelievable videos and unbelievable images.
+ - I was loud and electric at night, got all shook up with Elvis.
+ - I had a solo career before Van Halen. My fan base filtered through Van Halen with me and came right on out the other side with me.
+ - So many things can get you high, I’m gonna try them all just once before I die.
+ - When we were on the road, I found out that my greatest hits album went Gold. They freaked out. Things really came to a head when we started arguing about a Van Halen greatest hits package.
+ - I’m still raising kids myself, so I don’t feel like a grandpa.
+ - I wasn’t writing the music. Ed would write a piece of music. I’d listen to it and come up with a melody and then we would arrange it. We’d put it together and I would write lyrics to my melodies.
+ - I looked at Mick Jagger and Keith Richards and the boys up there thinking, I want to be that.
+ - When I left Van Halen, I went in the studio and made a CD called Marching to Mars with all studio musicians. I did it immediately. With the disappointment riding on my shoulders of the breakup of the band.
+ - We needed time off from each other after our last tour because there was a lot of personal stuff we had to take care of. Eddie needed hip replacement surgery. Al needed his back worked on. And I was going to have a baby.
+ - If I would have ever dreamed that I wouldn’t be in Van Halen anymore and was going to have resume my solo career again, I would have never contributed anything towards my own greatest hits package.
+ - It’s a good thing I don’t read everything Eddie says, or I’d be up in arms and not enjoying my life.
+ - All he cares about is going out there with his Jack Daniels bottle. Nothing has changed. That’s kind of sad. If David was doing better than he used to be, then that would be different. But it was a joke and he made it that way.
+ - I’m John Lee Hooker in the sense that he was a blues man and he played blues his whole life. I’m a rock guy and I’m going to play rock music my whole life.
+ - I think all the bad blood started when Geffen released a greatest hits package of my solo stuff.
+ - I’ve never done a box set, and Eddie’s full of it if he says otherwise.
+ - I didn’t think I’d be around 30 years later.
+ - Yeah, yeah, I’ve been Beatled, I’ve been Rolling Stoned.
+ - Overall, we had about 50 meetings where the brothers would say that I couldn’t do any solo records, I couldn’t write for other people, I couldn’t do this and I couldn’t do that. These guys were trying to nail my feet to the ground.
+ - I’ve never met or spoken to David Lee Roth, yet it’s rather ironic that even he’s saying Eddie’s lying about things. I’m saying he’s not telling the truth, yet Eddie insists that the two of us are lying! You be the judge.
+ - Everything that Eddie has said about me is the total opposite of what really happened. Eddie says I wanted to be a solo artist. No, Eddie wanted to be a solo artist.
+ - In Van Halen there were moments, like in some of the ballads, I put my heart and soul into those records. Those lyrics when I sang ’em, I gave myself goosebumps.
+ - The reason my voice is sounding more passionate is because I’m singing directly from the heart.
+ - I would like to enlighten people.
+
+39 quotes

@@ -1,0 +1,73 @@
+ - Once you have commitment, you need the discipline and hard work to get you there.
+ - When you run the marathon, you run against the distance, not against the other runners and not against the time.
+ - I’m a runner first before anything else.
+ - I love running and I will always run.
+ - You need three things to win: discipline, hard work and, before everything maybe, commitment. No one will make it without those three. Sport teaches you that.
+ - When you promise something, you must fulfill it.
+ - For me a day without training is like a day without eating.
+ - First, do enough training. Then believe in yourself and say: I can do it. Tomorrow is my day. And then say: the person in front of me, he is just a human being as well; he has two legs, I have two legs, that is all. That is mentally how you prepare.
+ - You lose the speed before the stamina.
+ - That is not enough. Sport has been great for me, a great learning place that if you want to achieve you can, even if you are from the poorest part of Africa.
+ - Athletics is in my blood.
+ - Always, if you win mentally, you can win physically as well.
+ - My school was six miles away from where I lived on the farm. I had to walk and run, there and back every day, through gorges and over rivers. If I was late, there was a very big stick waiting for me.
+ - He was not a runner, my father, but he was quick. I always remember it was very difficult to escape from him when he was angry. If he wanted to beat us he would always catch us. Even me, he could always catch me.
+ - Life is a kind of struggle. Life is a sort of fight.
+ - I will always listen to my coaches. But first I listen to my body. If what they tell me suits my body, great. If my body doesn’t feel good with what they say, then always my body comes first.
+ - In the rainy season, sometimes to get to the first lesson we had to run really quick, because we had to cross the river to school and we’d have to go up and down the bank to find a place to cross because there is no bridge.
+ - Eradicate poverty. This is all that matters in my country. When I am out training I think about this a lot; when I am running it is going over in my mind. As a country we cannot move forward until we eradicate poverty.
+ - If you’re planning only to make money and nothing else, you’ll be broke.
+ - The more you are getting older, you lose a little something. Of course there is another advantage, because of your long experience you can use it.
+ - I find the business world hard.
+ - The marathon always starts after 30K. That’s where the problems start. You start without any problems, without any pain. All the pain comes after 30K. Sometimes, it’s possible to have pain even in the finger.
+ - I think if you come first with a new world record, that is the best.
+ - When you talk about world record times, you have to understand that everything must be perfect the weather, the course, the temperature. It is not always enough to be in good shape.
+ - My father thought sport was something fun – he didn’t know it was a way to make money.
+ - All athletes need three things: commitment, discipline and hard work. Without that it’s hard to keep running.
+ - It is not my duty to spend my money in my country, but it is what I want to do. There is nowhere else I would like to invest.
+ - I can’t change everything by myself but I can be one of the people who are trying to change the situation.
+ - My father didn’t think running was sensible. He told me running is just wasting time.
+ - If your body is damaged, wounded, it can be fixed, but if inside, mentally, you are wounded you cannot fix it, it’s hard.
+ - You know the marathon in my country is just exceptional. It’s like soccer in England. If England win the world cup and Ethiopia win the marathon – it’s the same.
+ - I feel a social responsibility. We need to open people’s eyes. There is a lack of education in Ethiopia.
+ - You know, I want to help my country. Definitely I can help them, simply by winning races. Sure, they can follow my path to a good career. But for me it is not enough. I want to be more than that. In everything I want to be a role model.
+ - When I run in Ethiopia, I look out and see eucalyptus trees and rivers.
+ - Why should I say I will retire in three or four years? You retire the very moment you utter those words.
+ - I want to go down in history.
+ - When I wake up at 5 in the morning is it just to jog? Definitely not, I give it all of my efforts.
+ - You know for me when I promise something I want to deliver. If you don’t, you have to disappear.
+ - When I had no shoes I was comfortable – I used to run barefoot. When I wore shoes it was difficult. To run in shoes was ok, but at the beginning of my career it was hard.
+ - I was the kind of child who worked hard every day with the cows and sheep – I was a very aggressive boy.
+ - In the marathon a crazy athlete can just keep pushing from the beginning, at a championship you don’t need a time just to win the race.
+ - Since I achieved something, running has exploded in my country. For me sometimes it is difficult even to know who the athletes are who are competing at the highest level. There are thousands.
+ - At the moment I am a little bit politician, yes. I think that could be my next step. It is not because I want power, it is because of what I think I could do for the people.
+ - I’m lucky. The best possible place in the world for training is Addis Ababa, so I am home all the time except when I am racing. I like to be there, near my family, my kids, also the real estate business I run with my wife.
+ - Many people know that Ethiopia is poor. When I break a world record, maybe people get to know something else about Ethiopia, something good. We can’t make planes or cars, we don’t have the materials. We do what we can.
+ - In my life I do a lot of things but I never forget my training.
+ - If I don’t train enough, of course I’m nervous.
+ - I have seen things few of my countrymen have. The first time I went on an aeroplane I couldn’t work out how the lavatories worked up in the sky.
+ - I want to avoid injuries by running only road.
+ - This hand is not very active always, because it was in this hand that I carried my books. My carrying hand was always my strongest. Now I think my other hand has developed more muscles from signing all those autographs.
+ - What can you do if a part of it is uphill? You can’t work out another route. You’ve just got to run the one they give you. But they tell me London is a nice course. Even the cobbles, I hope, are not very much of a problem for me.
+ - If you are a really good marathoner, you have to run New York.
+ - At the end of the day, people want to see how fast you run.
+ - Like some high official, you have to tell your brain: ‘Do it. Come on. I have to do it.’
+ - You must do as your people do. If my people are poor, I must be poor. People ask me, ‘Why don’t you find a personal coach or a private car?’ I can’t. Then I won’t be part of my people.
+ - What is important is to win.
+ - I remember in particular my first victory when I achieved a very fast time in what were perfect conditions but since then the wind has always been a factor against me.
+ - Athletes have to be confident and I am thinking like that.
+ - I always tell young athletes the same thing, ‘Wherever you go, whatever you do, what must your top priority be? Running.’
+ - I have to change a lot of things before I become a good marathon runner.
+ - I haven’t done a marathon for a long time. So we’ll see. I will need good luck.
+ - Age for me is just a number.
+ - I used to run to school, 10k every day. And this at altitude, perfect preparation, really.
+ - Since I achieved something, running has exploded in my country.
+ - I wanted to be famous. I wanted people to talk about me.
+ - I know what I want when I start a marathon: to win! But what do you want? Make sure you’re clear in advance and don’t go out too fast.
+ - Being a great athlete is something that requires a lot of training and dedication, it does not come as easily as some people may think.
+ - Schooling is so important.
+ - I wanted to experience New York, to look up and see buildings.
+ - Considering that the race is star-studded no runner will be willing to set the pace for the others. This is why a record will be almost impossible.
+ - This is what I wanted. They tell me that London is the best field in history. I wanted to be part of that. Because everyone will be there it will be a wonderful challenge for me. You can see the best runners, how they look, how they run. For me to beat the best is what counts.
+
+71 quotes

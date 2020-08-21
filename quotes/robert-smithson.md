@@ -1,0 +1,45 @@
+ - One’s mind and the earth are in a constant state of erosion, mental rivers wear away abstract banks, brain waves undermine cliffs of thought, ideas decompose into stones of unknowing, and conceptual crystallizations break apart into deposits of gritty reason.
+ - Painting, sculpture and architecture are finished, but the art habit continues.
+ - Nature is never finished.
+ - Museums are tombs, and it looks like everything is turning into a museum.
+ - Art’s development should be dialectical and not metaphysical.
+ - A vacant white room with lights is still a submission to the neutral. Works of art seen in such spaces seem to be going through a kind of esthetic convalescence.
+ - Visiting a museum is a matter of going from void to void.
+ - The slurbs, urban sprawl, and the infinite number, of housing developments of the postwar boom have contributed to the architecture of entropy.
+ - Photographs are the results of a diminution of solar energy, and the camera is an entropic machine for recording gradual loss of light.
+ - Mistakes and dead-ends often mean more to these artists than any proven problem.
+ - Instead of causing us to remember the past like the old monuments, the new monuments seem to cause us to forget the future.
+ - Language operates between literal and metaphorical signification.
+ - Cultural confinement takes place when a curator imposes his own limits on an art exhibition, rather than asking an artist to set his limits.
+ - Words for mental processes are all derived from physical things.
+ - Establish enigmas, not explanations.
+ - The museums and parks are graveyards above the ground- congealed memories of the past that act as a pretext for reality.
+ - Parks are idealizations of nature, but nature in fact is not a condition of the ideal.
+ - Noon-day sunshine cinema-ized the site, turning the bridge and the river into an over-exposed picture. Photographing it with my Instamatic 400 was like photographing a photograph. The sun became a monstrous light-bulb that projected a detached series of stills through my Instamatic into my eye.
+ - As long as cameras are around no artist will be free of bewilderment.
+ - History is a facsimile of events held together by finally biographical information.
+ - Art history is less explosive than the rest of history, so it sinks faster into the pulverized regions of time.
+ - Abstraction is everybody’s zero but nobody’s nought.
+ - Language should find itself in the physical world, and not end up locked in an idea in somebody’s head.
+ - An emotion is suggested and demolished in one glance by certain words.
+ - A camera is wild in just about anybody’s hands, therefore one must set limits. But cameras have a life of their own. Cameras care nothing about cults or isms. They are indifferent mechanical eyes, ready to devour anything in sight. They are lenses of the unlimited reproduction.
+ - Let’s face it, the human eye is clumsy, sloppy, and unintelligible when compared to the camera’s eye.
+ - I am for an art that takes into account the direct effect of the elements as they exist from day to day apart from representation.
+ - Nature does not proceed in a straight line, it is rather a sprawling development.
+ - Language thus becomes monumental because of the mutations of advertising.
+ - History is representational, while time is abstract; both of these artifices may be found in museums, where they span everybody’s own vacancy.
+ - When a finished work of 20th century sculpture is placed in an 18th century garden, it is absorbed by the ideal representation of the past, thus reinforcing political and social values that are no longer with us.
+ - Banal words function as a feeble phenomena that fall into their own mental bogs of meaning.
+ - The scenic ideals that surround even our national parks are carriers of a nostalgia for heavenly bliss and eternal calmness.
+ - Some artists imagine they’ve got a hold on this apparatus, which in fact has got a hold of them. As a result, they end up supporting a cultural prison that is out of their control.
+ - The memory of what is not may be better than the amnesia of what is.
+ - Objects in a park suggest static repose rather than any ongoing dialectic. Parks are finished landscapes for finished art .
+ - From the top of the quarry cliffs, one could see the New Jersey suburbs bordered by the New York City skyline.
+ - Language should be an ever developing procedure and not an isolated occurrence.
+ - A work of art when placed in a gallery loses its charge, and becomes a portable object or surface disengaged from the outside world.
+ - Artists themselves are not confined, but their output is.
+ - The museum spreads its surfaces everywhere, and becomes an untitled collection of generalizations that mobilize the eye.
+ - Artists are expected to fit into fraudulent categories.
+ - Questions about form seem as hopelessly inadequate as questions about content.
+
+43 quotes

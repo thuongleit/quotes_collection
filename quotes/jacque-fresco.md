@@ -1,0 +1,126 @@
+ - If you think we can’t change the world, It just means you’re not one of those that will.
+ - Merely complaining without proposing an alternative offers nothing.
+ - If you love someone and they want to leave, you help them pack. That’s love.
+ - We don’t know how to live together on Earth, how the hell are we going to live together on Mars?
+ - I don’t want you to trust me, I want you to question everything I say.
+ - Creativity is taking known elements and putting them together in unique ways.
+ - There are no good or bad people, humans are shaped by culture.
+ - War, poverty, corruption, hunger, misery, human suffering will not change in a monetary system. That is, there will be very little significant change. It’s going to take the redesign of our culture and values.
+ - If technology does not liberate all people for the pursuit of higher aspirations in human achievement, then all its technical potential will be meaningless.
+ - It’s your own expectations that hurt you. Not the world you live in. Whatever happens in the world is real. What you think should happen is unreal. So people are hurt by their expectations. You know, you’re not disappointed by the world, you are disappointed by your own projections.
+ - The Venus Project is a translation of all religions: The end of war, the end of poverty, the brotherhood of humanity. If that isn’t spiritual, like I’ve said before, I don’t know what is.
+ - No one is born with greed, prejudice, bigotry, patriotism and hatred; these are all learned behavior patterns.
+ - Wiser, never wise. Smarter, never smart.
+ - The Venus Project is not about new cities or new architecture. It’s about a way of thinking.
+ - Politics is an obsolete way of doing things. Although it was good a hundred years ago, it has no place in today’s high tech society.
+ - The intelligent use of science and technology are the tools with which to achieve a new direction.
+ - When education and resources are available to all without a price tag, there will be no limit to the human potential.
+ - Whatever happens in the world is real, what one thinks should have happened is projection. We suffer more from our fictitious illusion and expectations of reality.
+ - Our customs, behaviors, and values are byproducts of our culture.
+ - Opinions are very dangerous, because they aren’t based on scientific studies.
+ - I don’t get upset if people think I’m crazy. If you go to a mental hospital and someone calls you a name, would you get upset? Of course not. Well, that’s the way I think about the world. They don’t know any better.
+ - Don’t forget – you’re dealing with aberrated people. They’re not responsible for their answers. They’re victims of culture. That means they have been influenced by their culture.
+ - As long as superstition and ignorance prevail, humanity will fall short of eradicating war, poverty, and hunger.
+ - As long as there are prisons, police, armies, navies; we are not civilized. When the Earth joins together and uses the Earth intelligently, that will be the beginning of civilization.
+ - We are not taught to be thinkers, but reflectors of our culture. Let’s teach our children to be thinkers.
+ - People will continue to search for answers to universal and perplexing problems. But to find meaningful answers, one must first know what questions to ask.
+ - Take off all the masks, manners, fancy clothes, all the devices you use, and be the most honest person you can be with yourself. Then, whatever love you get then is real. All the false approaches, like trying to be a player, only bring false results.
+ - If you took the profit out of war, there would be no war. What the hell do you think war is? You think we go to another country to bring democracy? We go there ’cause there’s oil, resources or something we need.
+ - During the thousands of years of monetary system, most workers have been paid just enough to make it necessary that they return to work, even when higher wages have been possible. How else can the wage-payer keep the workers coming back?
+ - It’s hard in a monetary system to trust people.
+ - If you make a movie of the present day culture, in the future it’ll be a horror film.
+ - The Venus Project presents a bold, new direction for humanity that entails nothing less than the total redesign of our culture.
+ - To be human is to care for your fellow human beings and protecting the environment.
+ - You really don’t want a job. What you want is access to those things you’d like to have.
+ - We live in a world where our social system is old, our language is old, the way we acquire goods and services is outdated, our cities are detrimental to our health, chaotic and a tremendous waste of resource, and most of all our politics and values no longer serve us.
+ - The entire money structure and materialistic society is a false society...
+ - Armies are created to protect an established system, not people. In the future, an educated humanity will not stand for war.
+ - If you’re shipwrecked on an island with 10 million dollars and your wife has gold and diamonds, but there’s no water, no arable land, no fish, you have nothing. Money is a ‘nothing’ thing.
+ - The difference between a serial killer and a saint is environment. That’s a very hard thing to accept because that raises a lot of questions.
+ - Every action and decision we take – or don’t – ripples into the future. For the first time we have the capability, the technology, and the knowledge to direct these ripples.
+ - We must stop constantly fighting for human rights and equal justice in an unjust system, and start building a society where equal rights are an integral part of the design.
+ - People say that the monetary system produces incentive. This may be true in limited areas, but it also produces greed, embezzlement, corruption, pollution, jealousy, anger, crime, war, poverty, tremendous scarcity, and unnecessary human suffering. You have to look at the entire picture.
+ - You don’t need to get rid of religion; you have to outgrow the need for it. In other words, instead of hoping for the good life, you make the good life.
+ - War is the supreme failure of bridging the differences between nations.
+ - There are no bad people, there are people with insufficient information to make appropriate decisions.
+ - There’s no such thing as designing the perfect utopian city. Everything is subject to change. There are no final frontiers.
+ - So, “normal” is really what society dictates as normal and if we’re born in that world, we would see that as normal. But if you think about it for a second, is it really?
+ - LOVE is to stop making demands on people and give them room to grow.
+ - So your having trouble with your partner. Well ask yourself, if you were in a relationship with a replica of yourself how long would it last?
+ - We can work out anything if we put our mind to it, study it, do hard work instead of finding simple answers.
+ - Science and education, when devoid of a social conscience or environmental and human concern, are meaningless.
+ - Anthropology studies different cultures; mainly primitive, but it doesn’t think its own culture is primitive, unfortunately. There is no field that you can study today that isn’t trapped in the culture in some way. It’s hard to escape your culture.
+ - We are all an integral part of the chain of life.
+ - The way we use technology is completely wasteful. We duplicate many vacuum cleaners, tools; In the future we will make the best of equipment and make it available to everyone.
+ - It is not enough to criticize society without offering a workable alternative.
+ - The more intelligent our children, the better our lives and the richer our culture will be.
+ - The system you’re brought up under tries to make you like the people that succeeded in that system.
+ - In the future, in a saner system, we would design products not to wear out and break down; to last as long as possible, so that the responsibility of the service sector would not be overloaded.
+ - The teachings or the information in the Venus project is not what Jacque Fresco dictates. It’s first doing a survey of the carrying capacity of a given environment and maintaining a population in accordance of the Earth’s resources, not Fresco’s opinion.
+ - You don’t see the plug connected to the environment, so it looks like we’re free, wandering around. Take the oxygen away, we all die immediately. Take plant life away, we die. And without the sun, all the plants die. So we are connected.
+ - It takes a different value system if you wish to change the world.
+ - We could either develop paradise on Earth or oblivion; wipe ourselves out, only the future will tell. It’s what you do to make the future.
+ - If your values are not related to the Earth or realistic, you’ll believe in things that aren’t so, which will hurt you in the long run, and as a species, too.
+ - We’re not sane enough yet to enter space until we learn to live together in peace on Earth.
+ - The only limitations are those which we impose upon ourselves.
+ - Notions of Good and Evil depend entirely on social context. It is not that people are good or bad, they are raised in an aberrant or twisted environment.
+ - If nations join together now, before the big collapse and share their resources, they can maintain a level of sustainability. Sustain the people that is, and not banks and businesses.
+ - Politics was good a hundred years ago. Today, politicians have no ability to solve any problems because they are not students of behavior. They are not students of agriculture, oceanography – they know nothing about the factors that operate the world.
+ - The Venus Project is a concept that could happen today but it is not up to me, it depends on what others do to help bring it about.
+ - Lack of education turns soldiers into killing machines.
+ - If our system continues without modification involving environmental and social concern, we will face an economic and social break down.
+ - Earth is abundant with plentiful resources. Our practice of rationing resources through monetary control is no longer relevant and is counter-productive to our survival.
+ - Very few people can communicate with one another. The only language that’s not subject to interpretation is mathematics, chemistry, basic science, engineering principles, and applied agriculture. But other than that, many systems today are subject to interpretation.
+ - We have to learn how scientists arrive at decisions. Once you use the scientific method, it doesn’t mean that your decisions will be perfect. They’ll be far more accurate than just opinions.
+ - We found out that you can’t pass on acquired things like bigotry, prejudice, greed. That’s all learned in your culture or your sub-culture.
+ - There isn’t anything that is said that ‘someone’ won’t take issue with.
+ - It’s hard to be decent in a money world. We want to shut down all repetitious jobs, automate it, free people.
+ - War represents the supreme failure of nations to resolve their differences. From a strictly pragmatic standpoint, it is the most inefficient waste of lives and resources ever conceived.
+ - If all things keep changing, how can you become sane?
+ - We have more than enough to take care of everybody on earth at this time. If we have a shortage of anything, it’s very easy for science to make a substitute material. There’s no shortage of anything except brains in Washington.
+ - Today we have access to highly advanced technologies. But our social and economic system has not kept up with our technological capabilities that could easily create a world of abundance, free of servitude and debt.
+ - We have more than enough resources in the world. The only thing we don’t have is brains in Washington.
+ - Our universities today are better equipped than ever, and the wars keep getting worse.
+ - And you can’t find “love” because in order to find “love” you have to be capable of dishing it out. In order to be capable of giving “love”, your own life has to be in harmony with everything else, and that’s not attainable...
+ - Our problems are technical, not political.
+ - You cannot advocate decency and ethics, you must design the conditions that eliminate the problems. In scarcity, people will tend to steal. If you make things available, people tend not to steal.
+ - We will never know what anyone is really like, until everyone has economic security and doesn’t have to answer to anyone else.
+ - When you live in a false society, that bases its wealth upon money, then that society itself will collapse eventually. Not because I say so, because it’s not based on physical reference.
+ - I am afraid to live in the society we live in today. Our society cannot be maintained by this type of incompetency.
+ - You know that you can’t go out there and change the world tomorrow morning. It just takes time, and the realization of that does not produce frustration. What produces frustration, is when you expect the world to join with your cause it’s so reasonable. It is not reasonable to unreasonable people.
+ - This is not a dictatorship, this is based upon scientific evidence to support a given project. If you want to put up a building, say half a mile high, the material has to be available. Using statistics is not a dictatorship. It’s a method of getting the most from existing resources.
+ - The only hope for developing a new civilization is to accept responsibility for improving our lives through knowledge, understanding, and a deeper comprehension of humanity’s relationship to natural processes of evolution. Our future is determined by effort we put forth to achieve this transition.
+ - We have the technology to build a global paradise on earth, and at the same time, we have the power to end life as we know it. I am a futurist. I cannot predict the actual future – only what it can be if we manage the earth and its resources intelligently.
+ - Much of a behavior acceptable today would be socially offensive in a saner or more logical arrangement.
+ - Our times demand the declaration of the world’s resources as the common heritage of all people.
+ - We must look at alternatives objectively, and not try to fit the future into our present social mould.
+ - Man, in the collective sense, is the hero of science. Man, in the collective sense, is the hero of Earth.
+ - If you remain conventional and don’t change, you’ll get along. You’ll get along in the limited forms of insanity that exist out there. You’ll never be able to keep a marriage together, you’ll never be able to keep anything together, because the whole goddamn thing isn’t together.
+ - The original intent of laws was to get the masses of people to accept the limitations superimposed upon them as being the result of their own misbehavior.
+ - We accept, without sufficient consideration, a system that breeds inefficiencies and actually encourages the creation of shortages.
+ - The Venus Project is neither Utopian nor Orwellian, nor does it reflect the dreams of impractical idealists. Instead, it presents attainable goals requiring only the intelligent application of what we already know. The only limitations are those which we impose upon ourselves.
+ - Working with drug addicts, alcoholics, and so-called juvenile delinquents in New York City convinced me that instead of working with individuals, more effective methods would deal with the societal conditions that create dysfunctional behaviors in the first place.
+ - We have to ask ourselves what kind of world we want to live in.
+ - If you had a free society you couldn’t get people to go to war, if you had an intelligent type of upbringing in ones children. They would say; There must be many other ways of solving problems other then killing people.
+ - The question is not whether there is intelligent life out there, the question is, whether there is intelligent life down here. As long as you have war, police, prisons, crime, you are in the early stages of civilization.
+ - As we begin to plan for a new human society, we need to foster common values about clean air, water, and other elements of self-sustenance. These, along with a complete inventory of Earth’s resources, will form the basis for a holistic approach to cybernated decision-making.
+ - When somebody asks, ‘Whats the answer to all of these questions?’ that’s absurd. There is no answer, there are answers, along the way.
+ - Instead of a pentagon, you have a lot of people that are trained in bridging the difference between nations. The pentagon would serve as an intermediate organization to bridge the difference between cultures.
+ - When biological technology becomes further advanced, human beings as we know them, will become a modified species. If we as human beings fail to include the possibility of this development in our overall, social evolution we will witness the decline of our species.
+ - If we really wish to put an end to our ongoing international and social problems we must eventually declare Earth and all of its resources as the common heritage of all the world’s people.
+ - You can either have one guy lifting a billion pounds by himself, and it takes many years of planning and preparation – or you can have a billion people, each lifting one pound, and it takes a mere moment. This is the power of unity.
+ - Let’s teach our children to be thinkers.
+ - Truly free people do not need to be told they are free.
+ - There’s no way to design a society that’s optimal or utopian. It’s better than the one that was. Systems always undergo change.
+ - In our search for more, we have blinded ourselves to our personal responsibility for challenging these absurdities. A resource-based society considers us all equal shareholders of Earth. We are responsible both for the planet and for our relationship with each other.
+ - Youre a rich man, why arent you smart?
+ - Only when science and technology are used with human concern in a world in which all of the earth’s resources are held as the common heritage of all of the earth’s people can we truly say that there is intelligent life on Earth.
+ - We are all victims of culture.
+ - You cannot approach people who think differently with reason and logic if they don’t know what that means. First, you have to appeal to their values to start with. If you attack them, you lose them.
+ - The government means industry, if you know what I mean.
+ - As long as you have war, police, prisons, crime, you are in the early stages of civilization.
+ - Love is a fluxuating thing, not a fixed thing. That’s why we don’t understand what’s happening.
+ - It is not that people are evil or greedy. The conditions that socially support the system force us to behave in socially offensive ways.
+ - All the world’s people should share all the world’s resources.
+
+124 quotes

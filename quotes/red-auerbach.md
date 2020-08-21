@@ -1,0 +1,41 @@
+ - All records are made to be broken.
+ - If you want to be a Champion, you’ve got to feel like one, you’ve got to act like one, you’ve got to look like one.
+ - Winners train, losers complain. Give me twelve players that want to win and they will find a way to win.
+ - The Boston Celtics are not a basketball team, they are a way of life.
+ - If they think we’ve got an edge, we’ve got an edge.
+ - Take pride in what you do. The kind of pride I’m talking about is not the arrogant puffed-up kind; it’s just the whole idea of caring – fiercely caring.
+ - Basketball is like war in that offensive weapons are developed first, and it always takes a while for the defense to catch up.
+ - The most important thing in coaching is communication. It’s not what you say as much as what they absorb.
+ - And I have been very blessed, having coached some of the greatest that have ever played the game. But if I had to start a team today, the greatest player and the one guy I would take would be Larry Bird.
+ - If you’re keeping score, win!
+ - Many, many times, the kids with the less talent become the better athletes because they’re more dedicated to achieving their full potential.
+ - I never had a set of rules. Every situation is different.
+ - Strategy is something anyone can learn. But not all coaches take the time to understand a man’s personality.
+ - An acre of performance is worth a whole world of promise.
+ - They said you have to use your five best players but I found you win with the five who fit together the best.
+ - To a father, when a child dies, the future dies; to a child when a parent dies, the past dies.
+ - You don’t win games as a coach during games. You win games as a coach before games. Players win during games, not coaches.
+ - Everyone is born with a certain potential. You may never achieve your full potential, but how close you come depends on how much you want to pay the price.
+ - I don’t believe in statistics. There are too many factors that can’t be measured. You can’t measure a ballplayer’s heart.
+ - Wilt Chamberlain had a great deal to do with the success of the NBA. His dominance, power, demeanor and the rivalry with Bill Russell says it all. He will be sorely missed by myself and everyone in the basketball community. Wilt was a great performer and a great athlete.
+ - You’ve got to avoid overcoaching. You’ve got to avoid talking too much. You’ve got to avoid showing players that you’re the boss every time. You don’t have to do that. They know you’re in charge.
+ - You can’t win without the ball.
+ - It’s not what you tell your players that counts. It’s what they hear.
+ - I’ve turned down a lot of trades where I might have gotten a better player, but I wasn’t totally sure of the chemistry of that new player coming in. Even though he might possess golden ability, his personality and the way he gets along with teammates might be things you just don’t want to cope with.
+ - I have two college degrees, but the only way I could make a living was by showing kids how to put a ball in a hole.
+ - I have two college degrees, four honorary doctorate degrees, and am in three Halls of fame, and the only thing I know how to do is teach tall people how to put a ball in the hole.
+ - The best way to forget ones self is to look at the world with attention and love.
+ - Look after your people.
+ - Just do what you do best.
+ - Any coach needs talent. You start with talent. Without talent, we’re all in the soup.
+ - Stand up for your players. Show them you care on and off the court.
+ - I can’t stand a ballplayer who plays in fear.
+ - If I’m going to coach the players, I want some say on who they’re going to be.
+ - Everything can happen in the playoffs.
+ - The coach should be the absolute boss, but he still should maintain an open mind.
+ - I never took a position we were going to be a good ball club. I took the position we were going to be a winning ball club.
+ - He who believes in nobody knows that he himself is not to be trusted.
+ - You handle animals. You deal with people.
+ - He has the players too happy.
+
+39 quotes

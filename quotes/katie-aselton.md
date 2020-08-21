@@ -1,0 +1,48 @@
+ - Everything was a constant battle. My first film was beautiful. I got an amazing cast. That worked out great. Everything else was like murphy’s law. Everything that could go wrong, did go wrong.
+ - If people want to talk about anything I do, they can give it any name they want. As long as they’re talking about it, I think it’s great.
+ - You can’t sit there and feel bad for yourself and say, “But, it’s just not coming to me.” That’s an instinctual thing to do because that’s the way the business normally works. But, when you’ve got a good brain on your shoulders, I think you can make it happen.
+ - The director of 500 Days of Summer is doing the Spider-Man movie. That’s not necessarily the movies I want to make, but it’s all about the story, and if you connect to the story, and you feel you can tell that story better than anyone else, then great. Jon Favreau killed Iron Man, I loved it.
+ - I don’t know what’s wrong with me, but like, the second I stop working, I have a panic attack, so it’s good for me to be thinking of projects ahead of time and lining things up.
+ - I really want women to throw their shoulders back and stand up straight and use their big girl voices and not feel like they’re compromising their femininity to be strong and smart.
+ - I think a lot of times, when you’re working in this business, and you’re both actors or somehow involved in the industry, you can get torn in different directions and be on completely opposite schedules.
+ - You put three girls in a house, and all of a sudden before you know it, youre talking about boys and drinking whiskey, and things go down and you get deep real quick.
+ - The story of survival is a nice metaphor for our experience making this movie, finding your inner strength and powering through and getting to the endpoint alive.
+ - By the time you are in your thirties, most of the time, you’ve got a job, you can pay for your rent, you can create this nice world around you. And still, you’re only in your thirties – you’re not that far away from your twenties, which is when you’re making all of your stupid mistakes.
+ - Okay, sense of humor: plus one. Being able to laugh at yourself: plus one. Being able to laugh at other people without being mean: plus one. Vanity: minus one.
+ - I love sports. I was an athlete in high school, and my school was so small we didn’t have a football team, so it’s the one sport I didn’t bother to learn the rules to because I never went to game.
+ - I get very nostalgic for times and places and experiences, but I have a wonderful group of core friends and family who I love and adore, so I don’t mourn the loss of any particular friendship. I think they’re all part of a path, and the ones that really mean something are still important in my life.
+ - There is something really nice about learning that you can take the reins of your life and your career.
+ - The thriller genre in general, it’s total foreign ground for me.
+ - I love profanity, but I think if its used too much, it just sounds a little trashy. I think its more effective when its dropped intelligently. I like intelligent profanity.
+ - I think the idea that women can stand up and be strong and still be seen as beautiful and sexual is kind of cool, and I would like to see more of that.
+ - That one thing you do give up when you get married is that magic moment of meeting someone, and the sparks and the spontaneity.
+ - I have always had this secret fantasy of being a Bourne girl or Bond girl, and I’ve never even gotten called in on one of those roles.
+ - I’m kinda doing a lot of stuff;.
+ - I am a very talented belcher. Very deep and bassy.
+ - When you’re generating your own stuff, you can never have too much money around, because you’ve already sacrificed so much and cut your budget so much that everything’s taking a hit.
+ - Everyone grows and changes. It’s not even to say that you become a better person than you were, but you’re morphing. This whole thing is just a weird river that we’re on.
+ - Whole class of filmmakers, they’re all graduating to a new level of filmmaking, which I think is awesome.
+ - It’s not rocket science to make a movie.
+ - There is something really nice about learning that you can take the reins of your life and your career. There are a lot of times, doing what we do, that you feel no control and get very panicky feeling. It’s nice to know that you are able to do it on your own.
+ - One of the reasons why I had such a horrible draft is that I hosted an eight-hour pool party before the draft. and so I wasn’t quite in my perfect drafting form.
+ - I love the studio system. Love that studio system and all their money. They’re great; I think they’re fabulous. You know, what it is right now is I feel like I’m still learning as a filmmaker, I’m still starting out.
+ - I don’t love horror movies with something surreal happening. That doesn’t work for me. What’s terrifying is something that could actually happen to me and what I would do. I don’t know how to throw a punch, and I’ve never had to do it.
+ - I finished The Freebie, which was a small relationship “talky” movie, and I was like, “I just want to get out of the house! And I want there to be some action, and I want some tension in there!”
+ - There are certain tenets set in place for all different types on genres. For thrillers, women usually die first.
+ - I will never be a skinny waif as I am physically unable to say “no” to free booze and snacks. Oh well.
+ - I have a very hard time picturing myself in a room with some type of goo oozing out of an air vent and killing me; that doesn’t really scare me because I don’t think that’s going to happen to me.
+ - I think I’m still trying to find my voice as a filmmaker and finding stories to tell.
+ - I’ve got a couple of full-time jobs, since I’m raising a kid, so it’s a lot.
+ - There was no glam squad, whatsoever. There were no dressing rooms. There were no bathrooms. Let’s start at our base level. We didn’t have toilet paper. We went to the woods to use the bathroom.
+ - Steve Rannazzisi, Nick Kroll, Paul Scheer, Jon Lajoie – and they’re such funny guys that they bring their own sort of twist to it all.
+ - I think part of what makes someone a great actor is being able to walk into a situation emotionally available and open, and have all your guards down, and just have that level of trust and security in yourself to know that you could walk out on that limb with someone else and be safe.
+ - If you’re a woman, just make a freaking good movie. I don’t believe in the women who say, ‘It’s too hard, I’m getting shot down.’
+ - It’s cool to get some more energy going and more interest. It’s definitely more than it was, still not as much as I’d love it to be, but things are picking up and interesting projects are coming my way, and I love that.
+ - I would like to get jobs doing other things that aren’t necessarily always with my husband. I’d like to show range – and kiss another guy.
+ - If you can throw $5 back in the crafty, we’ll take it, because it just means another meal, which is nice.
+ - I really like oysters, and I won’t eat them alone. They’re just a weird thing to eat by yourself.
+ - I don’t think I’m going to go into Iron Man. I mean, I can’t say that I won’t go into something like an Iron Man franchise.
+ - I worked with the same producer from The Freebie, my cinematographer was one of my shooters from The Freebie. I was really aiming to tackle a genre, but sorta tackle it in my own way, and put my stamp on it, and the way that I like to see movies made.
+ - I’d like to get something small and self-generated in before Black Rock has whatever life that it has.
+
+46 quotes

@@ -1,0 +1,21 @@
+ - Clear language engenders clear thought, and clear thought is the most important benefit of education.
+ - Far from failing in its intended task, our educational system is in fact succeeding magnificently, because its aim is to keep the American people thoughtless enough to go on supporting the system.
+ - An education that does not teach clear, coherent writing cannot provide our world with thoughtful adults; it gives us instead, at the best, clever children of all ages.
+ - Who speaks reason to his fellow man bestows it upon them.
+ - When we find ourselves wondering about the meaning of conditions and events, its always useful to ask, who profits?
+ - The feelings, sentiments, values and responses of our children, or of any citizen, are none of the government’s damned business. That we must support a government agency that gives itself to the emotional and ideological manipulation of citizens is infamous.
+ - If you want to predict the future of our land, go to school and look around.
+ - Educationists are entertaining. We can always find a good laugh in their prose, with its special, ludicrous combination of ignorance and pretentiousness.
+ - People who cannot put strings of sentences together in good order cannot think. An educational system that does not teach the technology of writing is preventing thought.
+ - If you cannot be the master of your language, you must be its slave. If you cannot examine your thoughts, you have no choice but to think them, however silly they may be.
+ - Here is a truth that most teachers will not tell you, even if they know it: Good training is a continual friend and a solace; it helps you now, and assures you of help in the future. Good education is a continual pain in the neck, and assures you always of more of the same.
+ - Education, I am convinced, must be nothing more than this: The journey toward the limits of Reason, if any there be.
+ - There is no other way to judge the work of a mind except through its words.
+ - His jargon conceals, from him, but not from us, the deep, empty hole in his mind. He uses technological language as a substitute for technique.
+ - You can shoot the tiger, or stay out of his way, but you cannot pronounce him a vegetarian.
+ - Thought control, like birth control, is best undertaken as long as possible before the fact.
+ - Where once a tyrant had to wish that his subjects had but one common neck that he might strangle them all at once, all he has to do now is to ‘educate the people’ so that they will have but one common mind to delude.
+ - Some minds, at some point, discover that they can not make sense of their own predications without attention to grammar, although they do not ordinarily think of what they are doing as an exercise in grammar.
+ - If you cannot be the master of your language, you must be its slave.
+
+19 quotes

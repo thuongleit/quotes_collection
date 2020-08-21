@@ -1,0 +1,27 @@
+ - The past always seems better when you look back on it than it did at the time. And the present never looks as good as it will in the future.
+ - Without sharks, you take away the apex predator of the ocean, and you destroy the entire food chain.
+ - If man doesn’t learn to treat the oceans and the rain forest with respect, man will become extinct.
+ - Oceanography is a terrific career because gradually we seem to be coming around to realize that we had better become as acquainted with the seventy percent of our planet that is covered by water as we are with the dark side of the moon.
+ - The great fish moved silently through the night water.
+ - No, the shark in an updated JAWS could not be the villain; it would have to be written as the victim, for, worldwide, sharks are much more the oppressed than the oppressors.
+ - You’re gonna need a bigger boat.
+ - I know now that the mythic monster I created was largely a fiction.
+ - Since writing JAWS, I’ve been lucky enough to do close to forty television shows about wildlife in the oceans, and yes, I have been attacked by sea creatures once in a while.
+ - Just when you thought it was safe to go back in the water...
+ - There’s nothing in the sea this fish would fear. Other fish run from bigger things. That’s their instinct. But this fish doesn’t run from anything. He doesn’t fear.
+ - Sharks don’t target human beings, and they certainly don’t hold grudges.
+ - I guess I’m a hopeful optimist, because to be a pessimist is to be suicidal.
+ - Look, Chief, you can’t go off half-cocked looking for vengeance against a fish. That shark isn’t evil. It’s not a murderer. It’s just obeying its own instincts. Trying to get retribution against a fish is crazy.
+ - I don’t believe in blaming inanimate objects for anything.
+ - I’ve never been hurt by a sea creature, except for jellyfish and sea urchins.
+ - The fish was an enemy. It had come upon the community and killed two men, a woman, and a child. The people of Amity would demand the death of the fish. They would need to see it dead before they could feel secure enough to resume their normal lives.
+ - Without the oceans there would be no life on Earth.
+ - Reputations rise and fall almost as regularly as the tides.
+ - Fascinations breeds preparedness, and preparedness, survival.
+ - Twenty-five years ago nobody knew much about white sharks.
+ - I’m a babe in the woods when it comes to the Internet.
+ - Writing is sweat and drudgery most of the time. And you have to love it in order to endure the solitude and the discipline.
+ - I read very widely, both non-fiction and fiction, so I don’t think there’s a single writer who influences me.
+ - I dive as much as I can.
+
+25 quotes

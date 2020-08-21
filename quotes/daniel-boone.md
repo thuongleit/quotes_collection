@@ -1,0 +1,22 @@
+ - It isn’t how you die. It’s what you live for.
+ - Heaven must be a Kentucky kind of place.
+ - I’m going now. My time has come.
+ - Having an exciting destination is like setting a needle in your compass. From then on, the compass knows only one point – its ideal. And it will faithfully guide you there through the darkest nights and fiercest storms.
+ - I was never lost in the woods in my whole life, though once I was confused for three days.
+ - The religion I have to love and fear God, believe in Jesus Christ, do all the good to my neighbor, and myself that I can, do as little harm as I can help, and trust on God’s mercy for the rest.
+ - Lightning does not often strike twice in the same place.
+ - Have I made my peace with God? I didn’t know we’d quarreled!
+ - No, I never did get lost, but I was bewildered for three days once.
+ - Curiosity is natural to the soul of man and interesting objects have a powerful influence on our affections.
+ - Felicity, the companion of content, is rather found in our own breasts than in the enjoyment of external things; and I firmly believe it requires but a little philosophy to make a man happy in whatever state he is.
+ - I was happy in the midst of dangers and inconveniences.
+ - In this time the enemy began to undermine our fort, which was situated sixty yards from Kentucky River.
+ - In this situation I was constantly exposed to danger and death.
+ - Fear is the spice that makes it interesting to go ahead.
+ - I wouldn’t give a tinker’s damn for a man who isn’t sometimes afraid. Fear’s the spice that makes it interesting to go ahead.
+ - Most of the memorable events I have myself been exercised in; and, for the satisfaction of the public, will briefly relate the circumstances of my adventures, and scenes of life, from my first movement to this country until this day.
+ - I had gained the summit of a commanding ridge, and, looking round with astonishing delight, beheld the ample plains, the beauteous tracts below.
+ - I’ve opened the way for others to make fortunes, but a fortune for myself was not what I was after.
+ - Many heroic exploits and chivalrous adventures are related to me which exist only in the regions of fancy. With me the world has taken great liberties, and yet I have been but a common man.
+
+20 quotes

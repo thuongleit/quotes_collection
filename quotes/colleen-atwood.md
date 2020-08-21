@@ -1,0 +1,29 @@
+ - Every project starts with a story.
+ - Costumes are the first impression that you have of the character before they open their mouth-it really does establish who they are.
+ - Inspiration comes from everywhere: books, art, people on the street. It is an interior process for me.
+ - I think the silhouette of the kimono costume will become engraved in people’s minds. I do think there’ll be lots of red accents in the near future. For me personally, I can’t see myself flaunting around in a geisha uniform but it’ll make me smile when I see what others do with it.
+ - Sometimes you have dreams about the day or something like that. But, for the story, it’s just present and what you have left ahead of you to do and how things look that day that you reflect on. It’s just there until you’re done.
+ - I always carry pictures of my children and grandchildren, which is what makes it all worthwhile. It’s great fun that my grandkids get to see the costumes in Alice in Wonderland or a doll with grandma’s dress.
+ - I always have a moment when I know I’m designing the last costume that gets made for a movie and it’s always been floating up there but it’s kind of the last one. That’s always probably the hardest one for me.
+ - I like the architecture of lingerie.
+ - If you want someone to feel warm, you dress them in a warm color and put a warm light on them and you get the picture. Sometimes, all that needs pushing a little bit to help tell the story.
+ - Be really good with budgets because they keep getting smaller.
+ - Every story is different, so what is a detail in one might not be in something else. Diversity is something I embrace and love about my work.
+ - Chicago is partly a fairy tale because it’s inside one person’s head, so that part of it’s made up and the rest of it is reality.
+ - Be able to take any job that gives you experience on a film. Don’t just think that you have to be in one department or the other, because through working on one and seeing what other people do in the movie makes you realize what your role is if you become a costume designer.
+ - I’d seen the current stage production and the 1975 production of Chicago. I liked them both very much, but I didn’t use them necessarily as inspiration.
+ - If I’m doing something contemporary, for sure I’m very aware of what’s going on. Personally, I like fashion trends, but when I’m doing a movie, it doesn’t affect what I do particularly at all. I don’t relate to it in that way.
+ - I’ve always loved movies, art and clothes.
+ - I have assistants that use the internet a lot more than I do. I use the internet for photo research, but for me personally, probably just because of my age, I’m not that mechanically inclined.
+ - Sleepy Hollow had a lot of action in it, even though it was a fairy-tale movie.
+ - I had to work out that it was something that could move, without having everybody in spray painted leotards.
+ - I think what’s fun about the fairytales is just seeing what everybody interprets them as, which comes from the different directors and what they want to do with them.
+ - As a designer, you have to solve a lot of problems. Even though people are wearing clothes that are supposed to look beautiful, they’ll have to do all kinds of things.
+ - I don’t design my own clothes. It’s so not what I think about.
+ - The reward is that you can actually create a world separate from reality with a story, actors, music, and camera design. When it works it can entertain, move people and teach us all.
+ - Each simian had a much different body suit, so besides trying to define class across species, there was a definite attempt to dress each group in different styles.
+ - Planet of the Apes was a gigantic challenge, making the clothes work so people could do stunts and action in the clothes. I really learned a lot about that in that movie.
+ - In real life, a lot of people at that level will have their kimonos made especially for them.
+ - On Planet of the Apes, I had a very knowledgeable team who knew good materials, but I had one main source person who worked online and on the street continually looking for the proper materials.
+
+27 quotes

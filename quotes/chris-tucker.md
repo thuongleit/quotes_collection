@@ -1,0 +1,45 @@
+ - Just believe in yourself and work really hard. And when doors open, take advantage of every opportunity you can.
+ - I am now half Asian. I have learned all the ancient teachings of Buddi.
+ - You don’t know who you messing with man, I slap people for fun. That’s what I do man! You wanna play rough, huh, I kill for fun!
+ - So I kept it to myself. Then some of my classmates started to come down to the comedy club, taking a girl out, and they started finding out I was a stand-up comedian.
+ - I am Jewish. My real name is Chris Tuckenberg. A lot of people don’t know about that.
+ - Day-to-day life is a lot of work. I work a lot on stand-up stuff, and then day-to-day life and, you know, just living. It’s always different. Try to work out, try to stay in shape, and try to have some fun.
+ - I couldn’t tell people what I wanted to do because I was from Atlanta. You don’t tell people you’re gonna be a comedian in Atlanta. That means you ain’t gonna do nothing.
+ - I love to talk about people I’ve met being an entertainer. All my encounters in life – I roll it all into an hour and 30 minutes.
+ - You got to control your own destiny. You got to keep writin different stuff. Keep switchin up and never do the same thin too many times.
+ - That’s the last time I let Wesley Snipes help me out with my taxes!
+ - One thing about me, when I make a decision about something, I realize when you make choices in life, that dictates your life.
+ - I think my life is a movie and your life reflects your work.
+ - It takes intelligence to make real comedy, and it takes a reality base to create all that little stuff I like to do that makes you giggle inside.
+ - I love traveling. It not only opens my mind up, but it also allows me to use my fame in another way through humanitarian works and stuff, and being an influence around the world.
+ - It was like a family reunion, watching the movie. It’s always a good feeling when I can get a screening for my family.
+ - I told a joke and people laughed and it was the best feeling. I knew I wanted to do this as a career. I never knew I could get such a high from telling a joke. There’s something so extraordinary about having people listening to you and hanging onto your words – it’s a great feeling.
+ - I want to do movies that mean something, that make people laugh and cry great movies, period-piece movies and work with the best people out there, who bring the best out of me.
+ - My mom raised me to never have anything control me.
+ - I travel. I do a lot of traveling around the world.
+ - Making people laugh is giving, and it’s healing, too, when people can go up to the movies and forget about their problems. It’s a good thing. That’s why I want to work.
+ - I couldn’t imagine not having clean water.
+ - Being a big star and being known, making movies and a lot of money – that really doesn’t interest me.
+ - I get on stage and talk about different stuff in my life and what I’ve been through and what I think about the world. It’s picking out highlights of things and how I became who I am and how my daddy raised me.
+ - I really loved what I was doing being creative and being funny as a stand-up comedian.
+ - It’s crazy because people expect you to be funny all the time and every day is not a funny day. I go to funerals and people are like ‘tell a joke’ and ‘say one of your lines in a movie.’ It’s a funeral, man!
+ - I think real life reflects your movies. In your life, you pick stuff that influences what movie roles you wanna pick. I think if you’ve got an interesting life, you wanna do interesting movies about interesting things.
+ - A lot of directors, they’re creative, but they’re different.
+ - I’ve lived a little bit and traveled the world and experienced a lot of things that I can play any role, and I think I can get into stuff that people never thought I would ever do because of my experiences and growth as a person.
+ - I’ve got a big closet of scripts, and a big stack of scripts on the side of my desk, because you get a whole bunch. Nothing’s going to be perfect, and I realize that; but I am a perfectionist, so you go through a lot of stuff.
+ - I will always do stand-up, even if my acting career takes off. Stand-up is my life.
+ - Comedy comes from a place of hurt. Charlie Chaplin was starving and broke in London, and that’s where he got his character ‘the tramp’ from. It’s a bad situation that he transformed into comedic one.
+ - I think you’ve got to have a depth, a deeper depth to take stand-up into acting, but I think it really helps you as a stand-up to home into different characters and stuff easily.
+ - Everybody goes through a lot of the same things, and I talk about those, and that’s the key. You have to connect with your audience, and I might take them on a trip with me, tell them I went here and I went there and they’ll go with me, you know, to hear the stories.
+ - I’ve actually tried to give Brett Ratner dance lessons, but he thinks he already knows how to.
+ - I think all the knowledge and all the travels that I’ve done, I’m going to do a lot of great work in the future.
+ - What!? You tell people that, I won’t get no more black movies?
+ - I want to keep working, I want to keep doing my humanitarian stuff around the world, shining light on different places that have problems. Keep making movies, make people laugh.
+ - I reenact everything. I love to paint a picture for my audience. I’m a lot like Richard Pryor in that aspect. I do a lot of acting on stage, acting out and visualizing stuff. I love to do that. I’m into it so much, it just comes out of me.
+ - A lot of lines in movies were written, but I’m always improvising. Once you get into the scene, it just comes to me.
+ - I tell people that stand-up’s like golf: you gotta do it every day to get it down – or at least three times a week to get it down.
+ - When you’re first starting out, you want to keep making good movies. When you’re young and you’re black, you do a bad movie and you’re through.
+ - I feel like every time I go out I want to do a good job. I want people to say that he’s just as good at stand-up as he is in some of the movies I’ve seen him in, so I try to do the best every time I go out there.
+ - Georgia was a great place to live, but I wanted to get out because I knew the opportunities for what I was doing – stand-up comedy and eventually acting – were in Los Angeles.
+
+43 quotes

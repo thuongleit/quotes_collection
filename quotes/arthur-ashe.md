@@ -1,0 +1,48 @@
+ - Start where you are, use what you have.
+ - From what we get, we can make a living; what we give, however, makes a life.
+ - You’ve got to get to the stage in life where going for it is more important than winning or losing.
+ - Life is like a tennis game. You can’t win without serving.
+ - I take the good with the bad, and I try to face them both with as much calm and dignity as I can muster.
+ - Fear isn’t an excuse to come to a standstill. It’s the impetus to step up and strike.
+ - Do not feel sorry for me if I am gone.
+ - It doesn’t have to glitter to be gold.
+ - If I don’t ask “Why me?” after my victories, I cannot ask “Why me?” after my setbacks and disasters.
+ - Every time you win, it diminishes the fear a little bit. You never really cancel the fear of losing; you keep challenging it.
+ - Sometimes, a defeat can be more beautiful and satisfying than certain victories. The English have a point in insisting that it matters not who won or lost, but how you played the game.
+ - Wherever I am when you feel sick at heart and weary of life, or when you stumble and fall and don’t know if you can get up again, think of me. I will be watching and smiling and cheering on.
+ - Racism is not an excuse to not do the best you can.
+ - Someone once told me that God figured that I was a pretty good juggler. I could keep a lot of balls in the air at one time. So He said, “Let’s see if he can juggle another one.”
+ - I guess I started too early because I just thought it was something fun to do.
+ - You’ve got to make a lot of sacrifices and spend a lot of time if you really want to achieve with this sport, or in any sport, or in anything truly worthwhile.
+ - It’s an abnormal world I live in. I don’t belong anywhere. It’s like I’m floating down the middle. I’m never quite sure where I am.
+ - Regardless of how you feel inside, always try to look like a winner.
+ - You come to realize that life is short, and you have to step up. Don’t feel sorry for me. Much is expected of those who are strong.
+ - Throughout my formal education I spent many, many hours in public and school libraries. Libraries became courts of last resort, as it were. The current definitive answer to almost any question can be found within the four walls of most libraries.
+ - We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
+ - In America you’re conditioned to regard everything as a contest. You have to make the Ten Best Dressed List, win this, win that. It drives me nuts sometimes. Who cares, for Christ’s sake?
+ - Always have the situation under control, even if losing. Never betray an inward sense of defeat.
+ - If one’s reputation is a possession, then of all my possessions, my reputation means most to me.
+ - I know I could never forgive myself if I elected to live without humane purpose, without trying to help the poor and unfortunate, without recognizing that perhaps the purest joy in life comes with trying to help others.
+ - A couple of times a day I sit quietly and visualize my body fighting the AIDS virus. It’s the same as me sitting and seeing myself hit the perfect serve. I did that often when I was an athlete.
+ - We must believe in the power of education. We must respect just laws. We must love ourselves, our old and or young, our women as well as our men.
+ - You really are never playing an opponent. You are playing yourself.
+ - You learn about equality in history and civics, but you find out life is not really like that.
+ - When we were together, I loved you deeply and you gave me so much happiness I can never repay you.
+ - I have tried to keep on with my striving because this is the only hope I have of ever achieving anything worthwhile and lasting.
+ - I have become convinced that we blacks spend too much time on the playing field and too little time in libraries.
+ - Having grown up in a segregated environment in the south I know what it’s like to be stepped on, I know what it’s like also to see some black hero do well in the face of adversity.
+ - Let me put it this way: I think Republicans tend to keep the ball in play, Democrats go for broke.
+ - I have always tried to be true to myself, to pick those battles I felt were important. My ultimate responsibility is to myself. I could never be anything else.
+ - I strongly believe the black culture spends too much time, energy and effort raising, praising, and teasing our black children about the dubious glories of professional sports.
+ - Drummed into me, above all, by my dad, by the whole family, was that without your good name, you would be nothing.
+ - It is not just the more talented player who wins. Some players may try a little harder.
+ - With what we give, we make a life.
+ - I may not be walking with you all the way, or even much of the way, as I walk with you now.
+ - If I didn’t play tennis I probably would have to see a psychiatrist.
+ - Seven out of 10 black faces you see on television are athletes. The black athlete carries the image of the black community. He carries the cross, in a way, until blacks make inroads in other dimensions.
+ - My humanity, in common with all of God’s children, gives the greatest flight to my full range of my possibilities.
+ - Later, I discovered there was a lot of work to being good in tennis.
+ - Clothes and manners do not make the...
+ - Martina’s like the old Green Bay Packers. You know exactly what she’s going to do, but there isn’t a thing you can do about it.
+
+46 quotes

@@ -1,0 +1,218 @@
+ - Whatever is destined not to happen will not happen, try as you may. Whatever is destined to happen will happen, do what you may to prevent it. This is certain. The best course, therefore, is to remain silent.
+ - The question ‘Who am I?’ is not really meant to get an answer, the question ‘Who am I?’ is meant to dissolve the questioner.
+ - Your own Self-Realization is the greatest service you can render the world.
+ - Happiness is your nature. It is not wrong to desire it. What is wrong is seeking it outside when it is inside.
+ - Thoughts come and go. Feelings come and go. Find out what it is that remains.
+ - Silence is truth. Silence is bliss. Silence is peace. And hence Silence is the Self.
+ - Engage yourself in the living present. The future will take care of itself.
+ - You are already that which you seek.
+ - As you are, so is the world.
+ - If one’s mind has peace, the whole world will appear peaceful.
+ - Peace is your natural state. It is the mind that obstructs the natural state.
+ - Silence is most powerful. Speech is always less powerful than silence.
+ - How to get rid of the mind? Is it the mind that wants to kill itself? The mind cannot kill itself. So your business is to find the real nature of the mind. Then you will know that there is no mind. When the Self is sought, the mind is nowhere. Abiding in the Self, one need not worry about the mind.
+ - Pleasure and pain are only aspects of the mind. Our essential nature is happiness.
+ - If the ego rises, all else will also rise; if it subsides, all else will also subside.
+ - Correcting oneself is correcting the whole world. The Sun is simply bright. It does not correct anyone. Because it shines, the whole world is full of light. Transforming yourself is a means of giving light to the whole world.
+ - The degree of freedom from unwanted thoughts and the degree of concentration on a single thought are the measures to gauge spiritual progress.
+ - The Self alone exists. When you try to trace the ego, which is the basis of the perception of the world and everything else, you find the ego does not exist at all and neither does all this creation that you see.
+ - When one makes the mind stick to one thought, the mind becomes rock-steady and the energy is conserved.
+ - You are all searching for the silence of the mountain. But you’re looking for something outside. This silence is accessible to you right now, inside the center of your own being.
+ - Grace is ever present. All that is necessary is that you surrender to it.
+ - Self-inquiry is the process and the goal also. ‘I am’ is the goal and the final reality. To hold to it with effort is self-inquiry. When spontaneous and natural it is realization.
+ - He who thinks he is the doer is also the sufferer.
+ - Realisation is not acquisition of anything new nor is it a new faculty. It is only removal of all camouflage.
+ - Silence is also conversation.
+ - The thing to do is to concentrate on the seer and not on the seen, not on the objects, but on the Light which reveals them.
+ - That which is not present in deep dreamless sleep is not real.
+ - The world is not outside you.
+ - The fact is that the mind is only a bundle of thoughts. The mind is fattened by new thoughts rising up. Therefore it is foolish to attempt to kill the mind by means of the mind. The only way of doing it is to find its source and hold on to it. The mind will then fade away of its own accord.
+ - Your duty is to be, and not to be this or that. I Am That I Am sums up the whole truth; the method is summarized in Be Still.
+ - The inquiry “who am I” turns the mind introvert and makes it calm.
+ - Why should you trouble yourself about the future? You do not even properly know about the present. Take care of the present, the future will take care of itself.
+ - The end of all wisdom is love, love, love.
+ - Calmness is the criterion of spiritual progress. Plunge the purified mind into the Heart. Then the work is over.
+ - You and I are the same. What I have done is surely possible for all. You are the Self now and can never be anything else. Throw your worries to the wind, turn within and find Peace.
+ - There is nothing wrong with God’s creation. Mystery and Suffering only exist in the mind.
+ - When there are thoughts, it is distraction: when there are no thoughts, it is meditation.
+ - To ask the mind to kill itself is like making the thief the policeman. He will go with you and pretend to catch the thief, but nothing will be gained. So you must turn inward and see where the mind rises from, and then it will cease to exist.
+ - Forgetfulness of your real nature is true death; remembrance of it is rebirth.
+ - In truth, you are spirit. The body has been projected by the mind, which itself originates from Spirit.
+ - I see only what you see, but I notice what I see.
+ - The ultimate truth is so simple. It is nothing more than being in the pristine state. This is all that needs to be said. Only mature minds can grasp the simple truth in all its nakedness.
+ - When the mind is left without anything to cling to, it becomes still.
+ - The place where even the slightest trace of the ‘I’ does not exist, alone is Self.
+ - There is neither creation nor destruction, neither destiny nor free will, neither path nor achievement. This is the final truth.
+ - Aim high, aim at the highest, and all lower aims are thereby achieved. It is looking below on the stormy sea of differences that makes you sink. Look up, beyond these and see the One Glorious Real, and you are saved.
+ - True Silence is really endless speech.
+ - The state we call realization is simply being oneself, not knowing anything or becoming anything.
+ - Reality is simply the loss of ego. Destroy the ego by seeking its identity. Because the ego is no entity it will automatically vanish and reality will shine forth by itself.
+ - Have faith in God and in yourself; that will cure all. Hope for the best, expect the best, toil for the best and everything will come right for you in the end.
+ - The very fact that we wish for liberation shows that freedom from all bondage is our real nature. It is not to be freshly acquired. All that is necessary is to get rid of the false notion that we are bound.
+ - Doubts arise because of an absence of surrender.
+ - Mind is consciousness which has put on limitations. You are originally unlimited and perfect. Later you take on limitations and become the mind.
+ - We dig a well and create a huge pit. The space in the pit or well has not been created by us. We have just removed the earth which was filling the space there. The space was there then and is also there now.
+ - Wanting to reform the world without discovering one’s true self is like trying to cover the world with leather to avoid the pain of walking on stones and thorns. It is much simpler to wear shoes.
+ - Turn your vision inward and the whole world will be full of supreme spirit.
+ - The main factor in meditation is to keep the mind active in its own pursuit without taking in external impressions or thinking of other matters.
+ - Realisation is nothing new to be acquired. It is already there, but obstructed by a screen of thoughts. All our attempts are directed to lifting this screen and then realisation is revealed.
+ - The more you prune a plant, the more it grows. So too the more you seek to annihilate the ego, the more it will increase. You should seek the root of the ego and destroy it.
+ - The grace of the Guru is like an ocean. If one comes with a cup he will only get a cupful. It is no use complaining of the niggardliness of the ocean. The bigger the vessel the more one will be able to carry. It is entirely up to him.
+ - Does one require proof of one’s own being? Only remain aware of yourself and all else will be known.
+ - Peace can reign only where there is no disturbance, and disturbance is due to thoughts that arise in the mind.
+ - Mind is but a poor reflection of the radiant Heart.
+ - All are seeing God always. But they do not know it.
+ - There is neither past nor future. There is only the present. Yesterday was the present to you when you experienced it, and tomorrow will be also the present when you experience it. Therefore, experience takes place only in the present, and beyond experience nothing exists.
+ - Pure Consciousness, which is the Heart, includes all, and nothing is outside or apart from it. That is the ultimate Truth.
+ - The ultimate truth is so simple; it is nothing more than being in one’s natural, original state.
+ - Beyond the belief that something can be lost, there is nothing to lose.
+ - Without knowing the Knower, all the knowledge that one gathers cannot be valid.
+ - If you go on working with the light available, you will meet your Master, as he himself will be seeking you.
+ - Nobody doubts that he exists, though he may doubt the existence of God. If he finds out the truth about himself and discovers his own source, this is all that is required.
+ - Unless one is happy, one cannot bestow happiness on others.
+ - Bliss is a thing which is always there and is not something which comes and goes. That which comes and goes is a creation of the mind.
+ - It is within our competence to think and become bound, or to cease thinking and thus be free.
+ - Time is only an idea. There is only the Reality. Whatever you think it is, it looks like that.
+ - Surrender is to give oneself up to the original cause of one’s being.
+ - To the extent we behave with humility, to that extent good will result.
+ - Realization consists of getting rid of the false idea that one is not realized.
+ - Whatever be the means adopted, you must at last return to the Self, so why not abide as the Self here and now?
+ - Without seeing the origin of light, the true form of one’s Self, the ordinary man sees by the mind different things and is deluded.
+ - Meditation depends upon the strength of mind. It must be unceasing even when one is engaged in work. Particular time for it is meant for novices.
+ - There is no seeing. Seeing is only being.
+ - Truth burns up all karma and frees you from all births.
+ - The solution to your problem is to see who has it.
+ - When your real, effortless, joyful grateful nature is realized, it will not be inconsistent with the ordinary activities of life.
+ - One must realise his Self in order to open the store of unalloyed happiness.
+ - The seat of Realization is within and the seeker cannot find it as an object outside him. That seat is bliss and is the core of all beings. Hence it is called the Heart.
+ - The world is illusory, Only Brahman is real, Brahman is the world.
+ - See who is in the subject. The investigation leads you to pure consciousness beyond the subject.
+ - An unawakened person sees only his mind, which is merely a reflection of the light of pure consciousness arising from the Heart.
+ - Then all this earth shines like one house.
+ - Food affects the mind. For the practice of any kind of yoga, vegetarianism is absolutely necessary since it makes the mind more pure and harmonious.
+ - The self is known to every one but not clearly. You always exist.
+ - Suffering is the way for Realization of God.
+ - Once the current of awareness of the self is set afoot, it becomes everlasting and continuous by intensification.
+ - You do not like to suffer yourself. How can you inflict suffering on others?
+ - Good thoughts keep off bad thoughts. They must themselves disappear before the state of realization.
+ - He that sees the Lord in the temple, the living body, by seeking Him within, can alone see Him, the Infinite, in the temple of the universe, having become the Endless Eye.
+ - Even the structure of the atom has been found by the mind. Therefore the mind is subtler than the atom. That which is behind the mind, namely the individual soul, is subtler than the mind.
+ - There must be a subject to know the good and evil. Thatsubject is the ego.
+ - If you observe awareness steadily, this awareness itself becomes the Guru that will reveal the Truth.
+ - The experience of silence alone is the real and perfect knowledge.
+ - God’s grace consists in the fact that He shines in the heart of every one as the Self; that power of grace does not exclude any one, whether good or otherwise.
+ - All unhappiness is due to the ego. With it comes all your trouble. If you would deny the ego and scorch it by ignoring it you would be free.
+ - Let what comes come, let what goes go.
+ - Call it by any name, God, Self, the Heart, or the Seat of Consciousness, it is all the same.
+ - Because truth is exceedingly subtle and serene, the bliss of the Self can manifest only in a mind rendered subtle and steady by assiduous meditation.
+ - Knowing the Self, God is known.
+ - Love is verily the heart of all religions.
+ - Is it the world that says I am real, or is it you?
+ - If you make the thief the policeman there will be lots of investigation but no arrests will ever be made.
+ - If you approach the ocean with a cup, you can only take away a cupful; if you approach it with a bucket you can take away a bucketful.
+ - You have to ask yourself the question ‘Who am I?’ This investigation will lead in the end to the discovery of something within you which is behind the mind. Solve that great problem and you will solve all other problems.
+ - The Self is the one Reality that always exists, and it is by the light of the Self that all other things are seen.
+ - Peace is the inner nature of humankind. If you find it within yourself, you will then find it everywhere.
+ - The enemy hates the ego, which the seeker wants to kill; thus, like the anvil to the goldsmith, he is actually a friend.
+ - By constantly keep one’s attention on the Source, the ego is dissolved in that Source like a salt-doll in the sea.
+ - The Self is the heart, self-luminous. Illumination arises from the heart and reaches the brain, which is the seat of the mind. The world is seen with the mind; so you see the world by the reflected light of the Self.
+ - Meditation is sticking to one thought. That single thought keeps away other thoughts; distraction of mind is a sign of its weakness; by constant meditation it gains strength.
+ - Of all the thoughts that rise in the mind, the thought ‘I’ is the first thought.
+ - Transforming yourself is a means of giving light to the whole world.
+ - When one remains without thinking one understands another by means of the universal language of Silence.
+ - You are the Supreme Being, and yet thinking yourself to be separate from it, you strive to become united with it. What is stranger than this?
+ - Turn the mind inward and cease thinking of yourself as the body; thereby you will come to know that the self is ever happy. Neither grief nor misery is experienced in this state.
+ - Self-reform automatically brings about social reform.
+ - Peace is for the purification of one’s mind. Power is for the growth of the community. Having established the community with power, one should then establish supreme peace.
+ - There is a state when words cease and silence prevails.
+ - Misery does not exist in reality but only in mere imagination.
+ - We are always peace. To get rid of the idea that we are not peace is all that is required.
+ - What message is needed when heart speaks to heart?
+ - The activity affected by causes like fainting, sleep, excessive joy, grief, possession by spirits, fear etc goes to the heart, its own place.
+ - 3. It is said that the I-activity is the root of all activities. From where the I-thought emerges, that in short is the heart.
+ - There is no Truth. There is only the truth within each moment.
+ - There are no impediments to meditation. The very thought of such obstacles is the greatest impediment.
+ - The greatest obstacle to enlightenment is getting past your delusion that you are not already enlightened.
+ - You impose limits on your true nature of infinite being. Then you get displeased to be only a limited creature. Then you begin spiritual practices to transcend these non-existing limits. But if your practice itself implies the existence of these limits, how could they allow you to transcend them.
+ - There is no greater mystery than this, that we keep seeking reality though in fact we are reality.
+ - The body dies, but the spirit that transcends it cannot be touched by death.
+ - This perception of division between the seer and the object that is seen, is situated in the mind. For those remaining in the heart, the seer becomes one with the sight.
+ - The source of the ego is God.
+ - Silence is never-ending speech. Vocal speech obstructs the other speech of silence. In silence one is in intimate contact with the surroundings. Language is only a medium for communicating one’s thoughts to another. Silence is ever speaking.
+ - For those who have obtained unobstructed knowledge of Self, the world is seen merely as a bondage causing imagination.
+ - God illumines the mind and shines within it. One cannot know God by means of the mind. One can but turn the mind inwards and merge it in God.
+ - The Higher Power knows what to do and how to do it. Trust it.
+ - Seeing God without seeing the Self, one sees only mental image. Only he who has seen Himself has seen God, since he has lost individuality, and now sees nothing but God.
+ - The Sage has no thinking mind and therefore there are no ‘others’ for him.
+ - What comes will also go. What always is will alone remain.
+ - Non-action is unceasing activity. The sage is characterized by eternal and intense activity. His stillness is like the apparent stillness of a fast rotating gyroscope.
+ - Meditation applies the brakes to the mind.
+ - A realized one sends out waves of spiritual influence in his aura, which draw many people towards him. Yet he may sit in a cave and maintain complete silence.
+ - The explorers seek happiness in finding curiosities, discovering new lands and undergoing risks in adventures. They are thrilling. But where is pleasure found? Only within. Pleasure is not to be sought in the external world.
+ - Let knowledge be guessed by the sign of equality to all beings.
+ - Such happiness is relative and is better called pleasure or satisfaction.
+ - When we turn the mind inwards, God manifests as the inner consciousness.
+ - The pure mind is itself Brahman; it therefore follows that Brahman is not other than the mind of the sage.
+ - Grace is within you. Grace is your self. Grace is not something to be acquired from others. If it is external, it is useless. All that is necessary is to know its existence is in you. You are never out of its operation.
+ - Remain still, with the conviction that the Self shines as everything yet nothing, within, without, and everywhere.
+ - We loosely talk of Self-realization, for lack of a better term. But how can one realize that which alone is real? All we need to do is to give up our habit of regarding as real that which is unreal. All religious practices are meant solely to help us do this.
+ - The Seeker himself becomes the knower. The thing to be known is already there. There is nothing to be known afresh. More-over there are no two things. There is only the seer, the knower.
+ - The self cannot be found in books. You have to find it for yourself, within yourself.
+ - Whatever is done lovingly, with righteous purity and with peace of mind, is a good action. Everything which is done with the stain of desire and with agitation filling the mind is classified as a bad action.
+ - Take no notice of the ego and its activities, but see only the light behind.
+ - The normal self is the mind. The mind is with limitations. But pure Consciousness is beyond limitations, and is reached by investigation into the “I.”
+ - Nearly all mankind is more or less unhappy because nearly all do not know the true Self. Real happiness abides in Self-knowledge alone. All else is fleeting. To know one’s Self is to be blissful always.
+ - All activities and events that a body is to go through are determined at the time of conception.
+ - If there is anything besides the Self there is reason to fear? Who sees the second? First, the ego arises and sees objects as external. If the ego does not rise, the Self alone exists and there is no second.
+ - Meditation helps concentration of the mind. Then the mind is free from thoughts and is in the meditated form.
+ - If you go the way of your thoughts you will be carried away by them and you will find yourself in an endless maze.
+ - The Self is here and now, it is the only Reality. There is nothing else.
+ - When the mind, one-pointed and fully focused, knows the supreme silence in the Heart, this is true learning.
+ - To know one’s Self is to be blissful always.
+ - Mind is a wonderful force inherent in the Self.
+ - Actions themselves form no bondage. Bondage is only the false belief,“I am the do-er.”
+ - You need not aspire for or get any new state. Get rid of your present thoughts, that is all.
+ - Discover your undying Self and be immortal and happy.
+ - That alone is Real which exists by itself, which reveals itself by itself and which is eternal and unchanging.
+ - Sense-perceptions can only be indirect knowledge, and not direct knowledge. Only one’s own awareness is direct knowledge.
+ - The macrocosm is in its entirety in the body. The body is in its entirety in the heart. Therefore heart is the summarised form of all the macrocosm.
+ - The life of action need not be renounced. If you meditate for an hour or two every day you can then carry on with your duties. If you meditate in the right manner then the current of mind induced will continue to flow even in the midst of your work.
+ - Apart from the body does the world exist? Has anyone seen the world without the body?
+ - Whenever a thought arises, instead of trying even a little either to follow it up or to fulfil it, it would be better to first enquire, “To whom did this thought arise?”
+ - Concentration of the mind is in a way common to both Knowledge and Yoga. Yoga aims at union of the individual with the universal, the Reality. This Reality cannot be new. It must exist even now, and it does exist.
+ - The deeply learned ones know the mind as the directly expressed meaning of the supreme knowledge. The heart is the meaning aimed at. The Supreme is none other than the heart.
+ - Liberation exists- and you will never be liberated.
+ - Grace is always present. You imagine it as something high in the sky, far away, something that has to descend. It is really inside you, in your heart. When the mind rests in its source, grace rushes forth, sprouting as from a spring within you.
+ - You know that you know nothing. Find out that knowledge.
+ - Our identification with the mind and body is the chief reason for our failure to know our self as we truly are.
+ - One should remain as a witness to whatever happens, adopting the attitude, ‘Let whatever strange things that happens happen, let us see!’ This should be one’s practice. Nothing happens by accident in the divine scheme of things.
+ - If a person realises his position and stays in his own self, things that are to happen will happen. Things that are not to happen will not happen. The shakti that is in the world, is only one. All these troubles arise if we think that we are separate from that shakti.
+ - It is said that the heart is in the microcosm just as the orb of the sun in the macrocosm. The mind in Sahasrara is like the disc of the moon.
+ - He whose pure mind turns inward and searches whence does this ‘I’ arise, knows the Self and merges in You, the Lord, as a river into the sea.
+ - See what helps you to keep away all other thoughts and adopt that method for your meditation.
+ - Instead of indulging in mere speculation, devote yourself here and now to the search for the Truth that is ever within you.
+ - Even in intake, the one steadfast thought is said to be the natural state. Nirvikalpa Samadhi will result when the sensory objects are not present.
+ - All bad qualities centre round the ego. When the ego is gone, Realisation results by itself. There are neither good nor bad qualities in the Self. The Self is free from all qualities. Qualities pertain to the mind only.
+ - Your duty is to Be, and not to be this or that.
+ - Realization is our true nature. It is nothing new to be gained. What is new cannot be eternal. Therefore there is no need to be doubting whether we would gain or lose the self.
+ - Your true nature is that of infinite spirit. The feeling of limitation is the work of the mind.
+ - The state of self-realization, as we call it, is not attaining something new or reaching some goal which is far away, but simply being that which you always are and which you always have been.
+ - Guru, God and Self are One.
+ - There is no mind to control if you realise the self. The mind having vanished, the self shines forth. In the realised man, the mind may be active or inactive, the self remains for him.
+ - We are in our Self. We are not in the world.
+ - There is nothing new to gain. On the other hand a man must lose his ignorance. That is all.
+ - See who is the doubter, who is the thinker. It is the ego. Hold it; the other thoughts will die away – the ego will be left pure. See the source from where the ego arises and abide in it. That is pure consciousness.
+ - That is the ego which rises and sinks periodically. But you exist always. That which lies beyond the ego is consciousness – the Self.
+ - Having set one’s family in consonance with the community, he should make his family prosperous to ensure the prosperity of the community.
+ - The mind is only a bundle of thoughts. The thoughts have their root in the I-thought. Whoever investigates the True “I” enjoys the stillness of bliss.
+ - Consciousness is indeed always with us. Everyone knows ‘I am!’ No one can deny his own being.
+ - The man who has the sense of the body being himself cannot possibly worship God as formless; whatever worship he makes will be worship in form alone, not otherwise.
+ - Grace is within you. If it were external, it would be useless.
+ - The “I” thought is said to be the sum total of all thoughts. The source of the “I” thought has to be inquired into.
+ - He who has realized the Self in the Heart has transcended the dualities and is never perplexed.
+ - Happiness is not to be sought in solitude or in busy centers. It is in the Self.
+ - Even the structure of the atom has been found by the mind.
+ - The Self does not move. The world moves in it.
+ - All that one gives to others one gives to one’s self. If this truth is understood, who will not give to others?
+
+216 quotes

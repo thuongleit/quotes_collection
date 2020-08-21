@@ -1,0 +1,41 @@
+ - Nothing is inevitable in life. People make choices, and those choices have results, and we all live with the results.
+ - The past is a source of knowledge, and the future is a source of hope. Love of the past implies faith in the future.
+ - History is everything that has ever happened.
+ - In the 19th century, we devoted our best minds to exploring nature. In the 20th century, we devoted ourselves to controlling and harnessing it. In the 21st century, we must devote ourselves to restoring it.
+ - The Holocaust was the most evil crime ever committed.
+ - We know how to win wars. We must learn now to win peace...
+ - It would not be possible to praises nurses too highly.
+ - When Hitler declared war on the United States, he was betting that German soldiers, raised up in the Hitler Youth, would always out fight American soldiers, brought up in the Boy Scouts. He lost that bet. The Boy Scouts had been taught how to figure their way out of their own problems.
+ - In one of his last newsletters, Mike Ranney wrote: “In thinking back on the days of Easy Company, I’m treasuring my remark to a grandson who asked, ‘Grandpa, were you a hero in the war?’ No,‘” I answered, ’but I served in a company of heroes.
+ - It is through history that we learn who we are and how we got that way, why and how we changed, why the good sometimes prevailed and sometimes did not.
+ - At the core, the American citizen soldiers knew the difference between right and wrong, and they didn’t want to live in a world in which wrong prevailed. So they fought, and won, and we all of us, living and yet to be born, must be forever profoundly grateful.
+ - You don’t hate history, you hate the way it was taught to you in high school.
+ - The war in Vietnam I thought a dreadful mistake.
+ - Nixon regarded himself as having been cheated by life. He never got my vote.
+ - There are many rules of good writing, but the best way to find them is to be a good reader.
+ - Within Easy Company they had made the best friends they had ever had, or would ever have. They were prepared to die for each other; more important, they were prepared to kill for each other.
+ - American is the first democratic nation-state.
+ - We are part of a country that outshines those that have gone before us and most of those in existence today.
+ - Reading your own material aloud forces you to listen.
+ - The great wars of the 20th Century made it into the worst Century ever.
+ - Jefferson owned slaves. He did not believe that all were created equal. He was a racist.
+ - I think that the opportunity to improve race relations in the United States has been put off temporarily.
+ - Eisenhower had the clearest blue eyes. He would fix them on you. In my every interview with him, he would lock his eyes on to mine and keep them there.
+ - My favorite book is the last one printed, which is always better than those that were published earlier.
+ - Writing is not the easiest way to make a living. Your work long hours, usually all by yourself. It is not a way to make money.
+ - Neighbors are far better acoustic analyzers for determining the quality of their life versus any acoustic instrument left unattended by an expert.
+ - Like their predecessors, the Presidents of today just throw up their hands.
+ - Almost everything Truman did in foreign affairs I approve of.
+ - Washington’s character was rock solid. He came to stand for the new nation and its republican virtues, which was why he became our first President by unanimous choice.
+ - American corporations hate to give away money.
+ - As to the Indians, the guiding principle was, promise them anything just so long as they get out of the way.
+ - My first book was the book that changed my life.
+ - Trial by jury. Live wherever you can make a living. How could a government based on such principles fail?
+ - Lieutenant Welsh remembered walking around among the sleeping men, and thinking to himself that ’they had looked at and smelled death all around them all day but never even dreamed of applying the term to themselves. They hadn’t come here to fear. They hadn’t come to die. They had come to win.
+ - Oftentimes the fascinating thing is that people who are seen as commanding figures at the moment that they were considered for President and did not run turned out to be treated by history as much more minor figures politically.
+ - There are many more want-to-be writers out there than good editors.
+ - The Canadians have managed to live peacefully with their Indians. It is disgrace that the United States has not done the same.
+ - Washington, not Jefferson, freed his slaves upon his death.
+ - Who today is willing to say that Texas and California and the remainder of the Southwest would be better off if they were governed by Mexico?
+
+39 quotes

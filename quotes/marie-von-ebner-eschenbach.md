@@ -1,0 +1,142 @@
+ - In youth we learn; in age we understand.
+ - As far as your self-control goes, as far goes your freedom.
+ - Deep learning doesn’t shine.
+ - Even a stopped clock is right twice every day. After some years, it can boast of a long series of successes.
+ - We don’t believe in rheumatism and true love until after the first attack.
+ - There is only one proof of ability – action.
+ - Happy slaves are the bitterest enemies of freedom.
+ - Pain is the great teacher of mankind. Beneath its breath souls develop.
+ - To be content with little is difficult; to be content with much, impossible.
+ - An aphorism is the last link in a long chain of thought.
+ - To have and not to give is often worse than to steal.
+ - How wise must one be to be always kind.
+ - Grace is the outcome of inward harmony.
+ - If there be a faith that can move mountains, it is faith in one’s own power.
+ - Even a stopped clock is right twice a day.
+ - Not what we experience, but how we perceive what we experience, determines our fate.
+ - Do not consider yourself deprived because your dreams were not fulfilled; the truly deprived have never dreamed.
+ - Fear not those who argue but those who dodge.
+ - I regret nothing, says arrogance; I will regret nothing, says inexperience.
+ - What delights us in visible beauty is the invisible.
+ - Who doesn’t know anything, has to believe everything.
+ - We should always forgive. We should forgive the repentant for their sake, the unrepentant for our sake.
+ - In this world, all power rests upon force.
+ - You stay young as long as you can learn, acquire new habits, and suffer contradictions.
+ - Those whom we support hold us up in life.
+ - Most imitators attempt the inimitable.
+ - Calmness is the graceful form of Confidence.
+ - Misanthropy is a suit of armor lined with thorns.
+ - The greatest enemy of justice is privilege.
+ - Privilege is the greatest enemy of right.
+ - In meeting again after a separation, acquaintances ask after our outward life, friends after our inner life.
+ - We usually learn to wait only when we have no longer anything to wait for.
+ - Without imagination, there is no goodness, no wisdom.
+ - Nowadays people are born to find fault. When they look at Achilles, they see only his heel.
+ - Many a truth is the result of an error.
+ - People more easily tolerate opposition than a contradiction.
+ - He who believes in freedom of the will has never loved and never hated.
+ - Little evil would be done in the world if evil never could be done in the name of good.
+ - A man with lofty ideas is an uncomfortable neighbor.
+ - Passion is always suffering, even when gratified.
+ - When curiosity turns to serious matters, it’s called research.
+ - Age either transfigures or petrifies.
+ - Pity is love in undress.
+ - However much you paid for a beautiful illusion, you got a bargain.
+ - Unattainable wishes are often “pious.” This seems to indicate that only profane wishes are fulfilled.
+ - Wit is an intermittent fountain; kindness is a perennial spring.
+ - The manuscript in the drawer either rots or ripens.
+ - There are very few honest friends – the demand is not particularly great.
+ - There are times when to be reasonable is to be cowardly.
+ - Distrust your judgment the moment you can discern the shadow of a personal motive in it.
+ - Only the thinking man lives his life, the thoughtless man’s life passes him by.
+ - That bad manners are so prevalent in the world is the fault of good manners.
+ - An opinion may be controverted; a prejudice, never.
+ - None are so inconsiderate as those who demand nothing of life other than their own personal comfort.
+ - Origins are of the greatest importance. We are almost reconciled to having a cold when we remember where we caught it.
+ - Be the first to say something obvious and achieve immortality.
+ - The insignificant labor; the great create.
+ - There is something so beautiful in trust that even the most hardened liar need feel a certain respect for those who confide in him.
+ - Kindness which is not inexhaustible does not deserve the name.
+ - Genius points the way, talent takes it.
+ - We are valued wither too highly or not high enough; we are never taken at our real worth.
+ - Morals refine manners, as manners refine morals.
+ - Nothing makes us more cowardly and unconscionable than the desire to be loved by everyone.
+ - Nothing is so often and so irrevocably missed as the opportunity which crops up daily.
+ - Whenever two good people argue over principles, they are both right.
+ - You can sink so fast that you think you are flying.
+ - One thought cannot awake without awakening others.
+ - Only those few people who practice it believe in goodness.
+ - To accept reason is impossible if you don’t already possess it.
+ - The incurable ills are the imaginary ills.
+ - One has to do good in order for it to exist in the world.
+ - A book cannot easily be too bad for the general public, but may easily be too good.
+ - Indifference of every kind is reprehensible, even indifference towards one’s self.
+ - The believer who has never doubted will hardly convert a doubter.
+ - Oh happy pessimists! What a joy it is to them to be able to prove again and again that there is no joy.
+ - They understand but a little who understand only what can be explained.
+ - The poor never estimate as a virtue the generosity of the rich.
+ - Even virtue is an art; and even its devotees are divided into those who practise it and those who are merely amateurs.
+ - Not every great man is a grand human being.
+ - What you wish to do you are apt to think you ought to do.
+ - Blessed is trust, for it blesses both those who have it to give and those who receive it.
+ - Conquer but never triumph.
+ - One of the main goals of self-education is to eradicate that vanity in us without which we would never have been educated.
+ - Where would the power of women be, were it not for the vanity of men?
+ - Do not fear the ones who argue, but rather those who are evasive.
+ - To be young is delightful; to be old is comfortable.
+ - The little bit of truth contained in many a lie is what makes them so terrible.
+ - Hatred is a prolific vice; envy, a barren vice.
+ - The understanding of some men is clear, that of others brilliant. The former illumines its surroundings; the latter obscures them.
+ - Our greatest indulgence towards a man springs from our despair of him.
+ - Fools usually know best that which the wise despair of ever comprehending.
+ - Imaginary evils are incurable.
+ - There are more truths in a good book than its author meant to put in it.
+ - Many think that when they have confessed a fault there is no need of correcting it.
+ - We can be wise from goodness and good from wisdom.
+ - When art find no temple open, it takes refuge in the workshop.
+ - We are not always even what we are most.
+ - Since the well-known victory over the hare by the tortoise, the descendants of the tortoise think themselves miracles of speed.
+ - Never strive, O artist, to create what you are not irresistibly impelled to create!
+ - He who has trusted where he ought not will surely mistrust where he ought not.
+ - Have patience with the quarrelsomeness of the stupid. It is not easy to comprehend that one does not comprehend.
+ - A defeat borne with pride is also a victory.
+ - Many priceless things can be bought.
+ - Those who cannot remember clearly their own childhood are poor educators.
+ - With our parents we bury our past, with our children our future.
+ - When the time comes in which one could, the time has passed in which one can.
+ - It’s bad enough when married people bore one another, but it’s much worse when only one of them bores the other.
+ - The wise man is seldom prudent.
+ - The poor man wishes to conceal his poverty, and the rich man his wealth: the former fears lest he be despised, the latter lest he be plundered.
+ - Believe flatterers and you’re lost; believe your enemies and you despair.
+ - So soon as a fashion is universal, it is out of date.
+ - Authors from whom others steal should not complain, but rejoice. Where there is no game there are no poachers.
+ - Accident is veiled necessity.
+ - Nobody knows enough, but many know too much.
+ - Beware of the virtue which a man boasts is his.
+ - He who says patience, says courage, endurance, strength.
+ - Parents forgive their children least readily for the faults they themselves instilled in them.
+ - The world belongs to those who possess it, and is scorned by those to whom it should belong.
+ - Exceptions are not always the proof of the old rule; they can also be the harbinger of a new one.
+ - Never expect women to be sincere, so long as they are educated to think that their first aim in life is to please.
+ - If you have one good idea, people will lend you twenty.
+ - Between being able to and actually doing something lies an ocean, and on its bottom rests all too often the wreck of willpower.
+ - The simplest and most familiar truth seems new and wonderful the instant we ourselves experience it for the first time.
+ - Enthusiasm does not always speak for those who arouse it, but always for those who experience it.
+ - One can acquire some virtues by feigning them for a long time.
+ - No one is so eager to gain new experiences as he who doesn’t know how to make use of the old ones.
+ - Generosity, to be perfect, should always be accompanied by a dash of humor.
+ - All that is due to us will be paid, although not perhaps by those to whom we have lent.
+ - Nothing is less promising than precocity. A young thistle is more like a future tree than is a young oak.
+ - New happiness too must be learned to bear.
+ - The sympathy of most people consists of a mixture of good-humour, curiosity, and self-importance.
+ - Consider well before you immerse yourself in solitude whether your own company will be good for you.
+ - The moral code which was good enough for our fathers is not good enough for our children.
+ - Not reading a beautiful book again because you’ve already read it, that is, as if you were not visiting a dear friend again because you know him already.
+ - There are women who love their husbands as blindly, as enthusiastically, and as enigmatically as nuns their cloister.
+ - It is unfortunate that superior talent and superior men are so seldom united.
+ - Many think they have a kind heart who have only weak nerves.
+ - The mediocre always feel as if they’re fighting for their lives when confronted by the excellent.
+ - Runners are poor walkers.
+ - We are so vain that we even care for the opinion of those we don’t care for.
+
+140 quotes

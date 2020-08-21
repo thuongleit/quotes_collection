@@ -1,0 +1,90 @@
+ - If you believe in yourself enough and know what you want, you’re gonna make it happen.
+ - After every storm, if you look hard enough, a rainbow appears.
+ - No stress, no fights. I’m leaving it all behind. No tears, no time to cry. Just making the most of life.
+ - You really have to look inside yourself to find your inner strength.
+ - There’s a hero if you look inside your heart. You don’t have to be afraid of what you are.
+ - If you just believe in me. I will love you endlessly.
+ - Never listen to anybody who try to discourage you.
+ - Them chickens is ash and I’m lotion.
+ - I just want one day off when I can go swimming and eat ice cream and look at rainbows.
+ - Lord knows dreams are hard to follow, but don’t let anyone tear them away.
+ - Everyday is a holiday with me.
+ - Stay triumphant, keep on living. Stay on your toes, get off the ropes. Don’t let ’em ever count you out.
+ - If you look inside yourself, and you believe, you can be your own hero.
+ - All I want for Christmas is you.
+ - Something in your eyes captured my soul, and every night I see you in my dreams. You’re all I know. I can’t let go.
+ - Cause there’s a light in me that shines brightly. They can try, but they can’t take that away from me.
+ - I know you’re shining down on me from Heaven, like so many friends we’ve lost along the way. And I know eventually we’ll be together, one sweet day.
+ - I can’t wear flat shoes. My feet repel them. I was in agony. My high heels had left my feet bleeding. Laugh all you want, my feet hurt.
+ - Only once in a lifetime love rushes in, changing you with the tide.
+ - Once I was a prisoner lost inside myself with the world surrounding me, wandering through the misery, but now I am free. Free to love, free to laugh, free to soar, free to shine, free to give.
+ - I am thinking of you in my sleepless solitude tonight.
+ - It’s kinda like being on a roller coaster. If you don’t get on the ride, you won’t experience the adventure.
+ - I’m the queen of festivities, that’s all I can say.
+ - In this world, I call the shots and I think I know best.
+ - Being a mother is probably the hardest job in the world. I feel like, in a lot of ways, children come into the world to teach us.
+ - Apparently I don’t do stairs, I won’t walk on carpet and I refuse to walk on grass. How do I do to get around, hover?
+ - I’m proud of what I am and who I am, and I’m just going to be myself.
+ - I don’t want a boyfriend just for the sake of it. I don’t trust most people out there. There’s too much at risk and I don’t need to be a notch on somebody’s bedpost. I’ll flirt with you all night long, but then it’s buh, bye!
+ - I really haven’t paid attention to Madonna since about like 7th or 8th grade when she used to be popular.
+ - She smiles through a thousand tears, and harbors adolescent fears. She dreams of all that she can never be, she wades in insecurity.
+ - It’s a long road when you face the world alone, when no one reaches out a hand for you to hold. You can find love if you search within your soul, and the emptiness you felt will disappear.
+ - When I saw you, when I saw you I could not breathe, I fell so deep. When I saw you, when I saw you I’d never be, I’d never be the same.
+ - You really just want to know that somebody loves you for you. Sometimes you feel like an ATM machine with a wig on it.
+ - I can’t wear flat shoes. My feet repel them.
+ - It’s not easy that everything you do, everybody has to come in and critique it and give their opinion. Sometimes it does help me and sometimes it hurts me as a person. That’s life. I have feelings.
+ - Don’t you know that you’re blowing my mind? What you do to me I can’t describe. Baby, I can’t hold back anymore. I just can’t conceal it. You’re the one I really adore.
+ - I started writing poetry when I was six. I had this teacher who didn’t believe the poems I’d bring in were mine because they were dark and sad. But I wrote about what I experienced in my childhood.
+ - Losing my mind From this hollow in my heart.
+ - I love “Frosty the Snowman.” My family and I like to go on a sleigh ride with a two-horse sleigh in Aspen, so we all scream different songs at the top of our lungs. I hope it doesn’t scare the horses.
+ - We’ve been expected to be perfect but we aren’t. We’re still human.
+ - You talk to people and they seem really nice and then you read what they write and it’s very disillusioning. You have to deal with how people let you down in terms of that. Because I think I’m basically a nice person and I think I’m a real person, and a lot of people aren’t.
+ - Right now Jack lives with me. Jack is my Jack Russell. I also have a Yorkie named Ginger, but Jack and Ginger can’t be in the same place at the same time because she is very jealous. Even if Jack’s not in the same state, she would growl if she heard his name.
+ - I’m so thankful that I’ve received The answer that heaven has sent down to me You treated me kind Sweet destiny And I’ll be eternally grateful.
+ - There’s an answer, if you reach into your soul, and the sorrow that you know will melt away.
+ - I really rebel against authority.
+ - You can’t live with regrets. It’s about the journey.
+ - I know I can be diva-ish sometimes, but I have to be in control. The nature of my life, the nature of what I do, is divadom, it really is.
+ - I think one of the reasons I pushed myself so hard and worked so hard is because I never felt special.
+ - Sometimes it’s tough because I’ve got to sleep 15 hours to sing the way I want to. It’s not easy because my vocal chords are different than most people’s.
+ - I love all holiday music. My two favorites would probably be Donny Hathaway’s “This Christmas” and Nat King Cole’s “The Christmas Song.” They epitomize Christmas for me. Those two recordings will never be touched. That’s why I’ve never redone them.
+ - Whatever you’re going through in your life, don’t ever give up.
+ - I’m very hard on myself and I have too many issues.
+ - If critics have problems with my personal life, it’s their problem. Anybody with half a brain would realize that it’s the charts that count.
+ - True diva could not live without smart remark every now and then, a good sip of water.
+ - I’m really fortunate. I’m really happy, and I’m really really lucky to be where I am.
+ - People are always asking, ‘Is everything ok?’ Look, I was not depressed, ok? I was just freaking exhausted.
+ - Since having the babies, I realize that 90 percent of losing weight is my diet.
+ - I listen to older music a lot more than new singers. I listen to whatever’s on the radio, but when I want to listen to something that moves me I put on a Stevie Wonder record.
+ - My heart has never been broken, I’ve never broken anyone else’s.
+ - If two people want to get married, it’s their prerogative – we hope. Everybody should be able to do what they want to do and be in the pursuit of happiness.
+ - We have to go through certain things in order to appreciate life and learn lessons.
+ - We’re all a little wacko sometimes, and if we think we’re not, maybe we are more than we know.
+ - I’m not a subscriber to walking into large corporate entities that I have to walk into and be waiting in line, because then I have to stand there.
+ - You don’t have to be doing vocal acrobatics or singing all over the scale to have soul.
+ - See, I’m looking for a man that’ll rub me slow, make me sing real high when he goes down low.
+ - Nothing that’s ever happened has taken away the optimist in me. It’s always, “Whatever-let’s go to Disneyland.” Yes, I have my bleak, tortured-artist moments, but you have to hold on to what’s positive.
+ - It’s hard to be someone that people talk about and write about, you know? They don’t know me.
+ - One doesn’t remain a teenager forever.
+ - It’s in my genes. My mother was an opera singer. I’m clearly dramatic.
+ - I can do a reddish-brown or brown lip, but not a bright red. I just don’t look good in it. Over the years you learn certain things that don’t look good on you, and that’s one of them for me.
+ - I don’t go out much. I’m also not promiscuous. If I went out with everyone the press said I did, I’d never have time to write or sing.
+ - I prayed very hard for this to happen and it happened. I don’t even think about what I’ve achieved, I haven’t focused on it and I wish I had, because I really want to enjoy it, and I don’t know if I am enjoying it, because I am going through my life like a bulldozer. I still haven’t marvelled at it.
+ - I definitely feel more complete than before. There’s a void you have when you don’t feel you’ve found the other part of who you are, so I’m in a different place now and that’s nice to experience.
+ - The best part of making music, for me, is collaborating and working with new people and fresh sounds and all those things that get people excited to continue in this business that we all love so much.
+ - I understand people want to hold on to their roots.
+ - The international music scene has grown so much, and America is sort of following that.
+ - When it comes to lingerie, I know what I’m doing.
+ - Especially since I stared studying acting, I feel like I’m always super-aware of my emotions and my feelings and what’s going on with me at every moment.
+ - Pregnancy was probably the best and the hardest thing I’ll ever go through. I know for a lot of women, it can be wonderful and relatively easy.
+ - The minute I started addressing my feelings, I actually came out of very negative situations.
+ - I’m not great at putting my hair into a bun, but I’ll do it if I have to.
+ - I loved Jordan. He was one of the greatest athletes of our time.
+ - I think that for me personally, a lot of my choices have been to do with my own issues of not feeling safe as a child and feeling a sense of stability.
+ - I’m experimenting with my voice. Every day I do different things with it, and if I feel it’s appropriate I do it on the record.
+ - Sipping Bailey’s Cream by the stereo, trying to find relief on the radio. I’m suppressing the tears.
+ - Heartbroken and in tears over the shocking death of my friend, the incomparable Ms. Whitney Houston. My heartfelt condolences to Whitney’s family and to all her millions of fans throughout the world. She will never be forgotten as one of the greatest voices to ever grace the earth.
+ - I have memories of Australia that I’ll just never ever get over.
+ - I don’t think anyone knows as much about what’s right for me as I do.
+
+88 quotes

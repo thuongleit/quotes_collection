@@ -1,0 +1,67 @@
+ - I love football, football is my life.
+ - I am mentally strong.
+ - I just hate losing and that gives you an extra determination to work harder.
+ - The important thing is to be there, score when needed. It’s better if the goals are beautiful, better still if they are important.
+ - I train as hard as I can every time I train and I do extra training every day and I’ve done that since I was a young boy.
+ - I’ve trained all my life. I’ve always been one who enjoys training so it’s not something that I think I can just stop doing. It might not be as regular but I want to keep training.
+ - Those who said I’m not an out-and-out goal-scorer are probably right. I always feel I could score more.
+ - Becoming a dad means you have to be a role model for your son and be someone he can look up to.
+ - I listen to 50 Cent, Jay-Z, Stereophonics, Arctic Monkeys; also the musical Oliver – I can sing every tune.
+ - I love playing football but I am like everyone else, I hate losing and love winning.
+ - Don’t call me a Postmodern!
+ - Everyone who watches me play knows I am an honest player. play the game as honestly as I can. If the referee gives a penalty there is nothing you can do.
+ - I grew up an Everton fan, my whole family are Everton fans and I grew up hating Liverpool. And that hasn’t changed.
+ - Part of my preparation is I go and ask the kit man what colour we’re wearing – if it’s red top, white shorts, white socks or black socks. Then I lie in bed the night before the game and visualise myself scoring goals or doing well.
+ - There are many ways to grow football-wise. You go slow or are pushed to go faster, otherwise you get left behind. For me, there would be trouble in stopping learning.
+ - Perfect partners don’t exist. Perfect conditions exist for a limited time in which partnerships express themselves best.
+ - Becoming a dad was the proudest moment of my life. Playing football does not even compare.
+ - When you are 16 there is no fear whatsoever. As you get older you play in more important games and that is when you start thinking about what will happen if you win or lose.
+ - I’m proud I’m English and I’m passionate about my country.
+ - You’re trying to put yourself in that moment and trying to prepare yourself, to have a ’memory before the game. I don’t know if you’d call it visualising or dreaming, but I’ve always done it, my whole life.
+ - Growing up, watching the Premier League as far back as I can remember, feeling the trophy and having the medal around my neck was an unbelievable feeling.
+ - Football’s about the young players, bringing youth team players through to the first team and hopefully getting the best out of them so they can go on to play for their country.
+ - The lifestyle I lead as a footballer means I am always in the spotlight.
+ - I’m only a human being.
+ - You can learn more from the lows than the highs. The highs are great but the lows make you really look at things in a different way and want to improve. Every player will have both in their careers and I have, but what you get is that experience which is so important to perform at your best.
+ - I’d have to say Thierry Henry. From the ages of ten to 16, watching him in the Premier League was amazing and he scored all different types of goals – free-kicks, volleys, left foot, right foot. He was entertaining. He’s probably the best centre-forward, I think, to play in the Premier League.
+ - I love football so when I finish playing I would like to still be involved in it somehow and a manager would be my first choice.
+ - I want to score in every game and win things. That’s the most important thing.
+ - Football is made up of all kinds of conflict. In a dressing room, between players, between us and the manager, between us and loads of people who don’t seem to matter. It’s constant and harsh sometimes.
+ - If I’m staying in a hotel or I’m sleeping on my own I have the hairdryer on.
+ - I’m not really that bothered by appearance. I know a few players who go off doing stuff in the mirror ages before they go out to play a game, but I’m not really interested in that.
+ - I love football, I’ve never really taken an interest in anything else.
+ - Nice to see your own fans booing you.
+ - When I was younger, I used to visualise myself scoring wonder goals, stuff like that.
+ - When famous people come up to you it’s a bit weird, but it’s an honour, really, when they recognise you and want to chat to you for a bit.
+ - If you look at my bookings, they’ve gone down each season. That’s something I’m trying to keep improving. On the pitch you don’t want any silly bookings.
+ - For me, Scholesy’s the best footballer England has produced in my time. The way he controlled games, passed the ball, saw things that other players didn’t see; it was a pleasure to play with him and United were lucky to have him for so long.
+ - There’s a lot more pressure on me at United. There are people out there trying to shoot you down.
+ - If you’re not scoring the frustrations build up.
+ - Unlike others who have been caught swearing on camera, I apologised immediately. And yet I am the only person banned for swearing. That doesn’t seem right.
+ - Everyone who watches me play knows I am an honest player.
+ - I’ll keep doing my training and I’m sure the goals will come.
+ - I’ve learnt that it is important not to go over the top with aggression, because then either you are going to miss a lot of games, or you are not going to be concentrating on the game you are playing.
+ - I love Barbados, it’s really relaxing.
+ - I don’t think I look up to any players. Obviously you respect everyone.
+ - I am not the first player to have sworn on TV and I won’t be the last.
+ - Diving has been in the game for years. Probably the coverage the game gets now, with all the cameras around, it gets highlighted a bit more. But it hasn’t got any worse.
+ - I might have faults but I’m not a big head.
+ - If you don’t score, and you have chances, you are disappointed.
+ - I’m just a normal young lad who plays football.
+ - When I was about 16, I got my ball taken off me by the police for playing in the street – which is pathetic really.
+ - We’re going to do it. We’re going to get to the World Cup.
+ - I’ve matured since joining United, on and off the field.
+ - I’ve started doing my coaching badges, I’d like to be a manager one day.
+ - I think the fans are going to expect a lot from me, as they should.
+ - It’s strange but I suppose I’m one of those senior players now and I’ll be helping the young players as much as I can.
+ - If we’re on long-haul flights I’ve been known to sleep on the floor so I hear the engine.
+ - I don’t normally cook, but if I did it probably would be beans, sausage, bacon and eggs. I never really get to eat that to be honest.
+ - I am as passionate about the England team as anyone.
+ - Early on in my career I had a lot of bad press about my temperament, but I was only a young lad then.
+ - I like musicals and I love music.
+ - To me, Paul Scholes was in a class of his own.
+ - Just to confirm to all my followers I have had a hair transplant. I was going bald at 25 why not.
+ - Some players don’t like training and I’ve seen some players who aren’t bothered if they play or not. But I want to play every game. Sometimes you have to rest in certain games, but I want to play in every game.
+ - Pulling on your country’s shirt is the greatest honour a footballer can have. It’s what I always dreamed of as a kid and I get a buzz every time.
+
+65 quotes

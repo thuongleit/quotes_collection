@@ -1,0 +1,22 @@
+ - Cause I’m a redneck woman.
+ - Well I’m an eight ball shooting, double-fisted drinking son of a gun.
+ - I think music can heal your soul if you’ll let it. It can also bring you up if you’re down. It can also bring you down if you’re too up. It’s a mood thing.
+ - To me, redneck is a sense of self and a way of life.
+ - My daughter is a redneck woman, she’s a redneck girl.
+ - People ask me where I go to get away and I say, ‘home’
+ - I don’t want to be ignorant in my daughter’s eyes.
+ - Let me get a big ‘hell yeah’ from the redneck girls like me, hell yeah.
+ - I don’t know if I’ll ever get used to hearing my name being mentioned alongside all these other legendary artists that have come before me.
+ - I got to where I couldn’t listen to country radio. Country music is supposed to have steel and fiddle. When I hear country music, it should be country.
+ - I don’t really think about having had a hard life. It was just my life, and it’s all I knew. It made me who I am – all the good and bad – and it’s where all of the songs on Here For The Party came from. I’ve lived them all.
+ - What I’m doing is a dream come true but at the same time its work. It’s like anything else. The only time it doesn’t really feel like work to me is when I’m on stage and doing what I’ve prepared myself for my whole life which is to stand out in front of a crowd and sing.
+ - It became apparent to me really fast that I wasn’t going to be able to make a living and pay my bills playing on Broadway.
+ - Today, if you were to look at my CD collection, it might scare some people.
+ - All my life, I just felt that I should have finished my education.
+ - Good music is good music.
+ - I’ve always been the kind of woman who had a man in her life even when he was the wrong man.
+ - I just like Raisin Bran – it keeps me regular.
+ - Mothers and daughters have that rivalry thing.
+ - I’m a mom first, a singer second.
+
+20 quotes

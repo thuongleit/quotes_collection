@@ -1,0 +1,29 @@
+ - News is the first draft of history.
+ - As long as a journalist tells the truth, in conscience and fairness, it is not his job to worry about consequences. The truth is never as dangerous as a lie in the long run. I truly believe the truth sets men free.
+ - You never monkey with the truth.
+ - In the perfect world every source could be identified, but like the man said, “It’s not a perfect world.”
+ - Nothing’s riding on this, except the First Amendment to the Constitution, freedom of the press and maybe the future of the country. Not that any of that matters, but if you guys f-k up again, I’m gonna get mad.
+ - There is nothing like daily journalism! Best damn job in the world!
+ - Maybe some of today’s papers have too many ‘feel-good’ features, but there is a lot of good news out there.
+ - It changes your life, the pursuit of truth, if you know that you have tried to find the truth and gone past the first apparent truth towards the real truth. It’s very, it’s very exciting.
+ - Everybody who talks to a newspaper has a motive. That’s just a given. And good reporters always, repeat always, probe to find out what that motive is.
+ - Sure, some journalists use anonymous sources just because they’re lazy, and I think editors ought to insist on more precise identification even if they remain anonymous.
+ - Sometimes I am convinced there is nothing wrong with this country that couldn’t be cured by the magical implantation of ethical standards on us all – leaders and followers. Until that becomes doable, the Center for Public Integrity is just about the best thing we have going for us.
+ - It is my experience that most claims of national security are part of a campaign to avoid telling the truth.
+ - I do worry about how newspapers respond to falling circulation figures. I’m not sure that the answer is for newspapers to try to cater to whatever seems to be the fad of the day.
+ - Hire people smarter than you are and encourage them to bloom.
+ - To hell with news! I’m no longer interested in news. I’m interested in causes. We don’t print the truth. We don’t pretend to print the truth. We print what people tell us. It’s up to the public to decide what’s true.
+ - I don’t want to disappoint too many people, but the number of interesting political, historical conversations we had, you could stick in your ear, it wasn’t that many. We talked about friends, family and of course girls.
+ - The history of American politics is littered with bodies of people who took so pure a position that they had no clout at all.
+ - If an investigative reporter finds out that someone has been robbing the store, that may be ‘gotcha’ journalism, but it’s also good journalism.
+ - As a child, one looks for compliments. As an adult, one looks for evidence of effectiveness.
+ - The biggest difference between Kennedy and Nixon, as far as the press is concerned, is simply this: Jack Kennedy really liked newspaper people and he really enjoyed sparring with journalists.
+ - I think he had a strange, passionate devotion to the truth and a horror at what he saw going on.
+ - There will always be leaks; in Washington, everywhere.
+ - I never believed that Nixon could fully resurrect himself. And the proof of that was in the obits.
+ - Generals who can write always make me nervous.
+ - The Nixon administration really put a lot of pressure on CBS not to run the second broadcast.
+ - It’s very hard to stand up to the government which is saying that publication will threaten national security. People don’t seem to realize that reporters and editors know something about national security and care deeply about it.
+ - The champagne was flowing like the Potomac in flood.
+
+27 quotes

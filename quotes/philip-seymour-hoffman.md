@@ -1,0 +1,119 @@
+ - Don’t let people treat you like a cigarette, they only use you when they’re bored and step on you when they’re done. Be like drugs, let them die for you.
+ - The film is made in the editing room...
+ - The only true currency in this bankrupt world is what you share with someone else when you’re uncool.
+ - Was I happy? Or was I just not aware?
+ - Creating something is all about problem-solving.
+ - Success isn’t what makes you happy. It really isn’t. Success is doing what makes you happy and doing good work and hopefully having a fruitful life. If I’ve felt like I’ve done good work, that makes me happy. The success part of it is all gravy.
+ - I would definitely say pleasure is not happiness. Because I think I kill pleasure. Like I take too much of it in, and therefore make it un-pleasurable, like too much coffee, and you’re miserable.
+ - When you become a parent, you look at your parents differently. You look at being a child differently. It’s an awakening, a revelation that you have.
+ - Life is short. Time is short. As we get older, time does quicken. It’s long, and it’s long pertaining to that thought, that the past is not done with you because you can’t rid of it.
+ - Sometimes it’s hard to say no. Ultimately, if you stick to your guns, you have the career that you want. Don’t get me wrong. I love a good payday and I’ll do films for fun. But ultimately my main goal is to do good work. If it doesn’t pay well, so be it.
+ - Study, find all the good teachers and study with them, get involved in acting to act, not to be famous or for the money. Do plays. It’s not worth it if you are just in it for the money. You have to love it.
+ - There is no pleasure that I haven’t actually made myself sick on.
+ - You know the circus performer who spins the plates in the air you know, and he’ll spin six or seven plates in the air? Acting sometimes is kind of that guy spinning all those plates in the air but in your head and in your body.
+ - If you get a chance to act in a room that somebody else has paid rent for, then you’re given a free chance to practice your craft.
+ - I think therapy is a helpful thing. I think everyone knows it. You do it for your life, you do it for yourself, because you want to explore some things, and get at the bottom of some things. It’s about your life, the quality of your life.
+ - One person’s religion is another person’s cult.
+ - I think you should be serious about what you do because this is it. This is the only life you’ve got.
+ - I got into plays in high school then I ended up going to college for it.
+ - My girlfriend’s a costume designer in the theater.
+ - I think good art, if I could be pretentious enough to say, I think good art deals with the micro to explain the macro.
+ - I know I wasn’t as handsome as some other guys, but I was OK with that.
+ - Actors are responsible to the people we play. I don’t label or judge. I just play them as honestly and expressively and creatively as I can.
+ - Films are always a fiction, not documentary. Even a documentary is a kind of fiction.
+ - Actors are responsible to the people we play.
+ - I have so much empathy for these young actors that are 19 and all of a sudden they’re beautiful and famous and rich. I’m like, ‘Oh my God, I’d be dead.’
+ - Well, I think everyone struggles with self-love.
+ - When you see the carrot at the end of the stick, what do you do to get it? These kinds of things that come up, that come up in the story of Capote writing “In Cold Blood,” and when you see the movie, you’ll see what I’m talking about.
+ - If I’m directing actors, I learn about acting that way. If I’m acting, I learn about directing that way. Producing is just something that’s come about because there’s projects I find interesting that I would like to help get done.
+ - I’ve never been on a cruise.
+ - I got sober when I was 22 years old.
+ - Creating anything is hard.
+ - Sometimes I’m uncomfortable with the level of fame I’ve got! It all depends on the day and what’s going on. I don’t desire any more fame. I don’t need it.
+ - I had insecurities and fears like everybody does, and I got over it. But I was interested in the parts of me that struggled with those things.
+ - I didn’t go out looking for negative characters; I went out looking for people who have a struggle and a fight to tackle. That’s what interests me.
+ - I have three children and I think I’m happy when I’m with them and they’re okay. When I see them enjoying each other in front of me, and then they let me enjoy them in turn. That brings a feeling which I would say is happiness.
+ - I do feel like all the people I meet, all the people I’m in discussions with, if I’m working with somebody, I sense the same energy that everybody is suffering from the same predicament.
+ - There are a lot of things going on with my life right now that don’t just have to do with career. So I have a hard time making decisions about work. That’s really a luxury problem.
+ - Being with a kid always takes you to being a kid somehow, and they really are showing me a childhood I might not have had in some way.
+ - When you read, you think, and when you smoke, you think. It’s a pleasurable thing, and not a duty.
+ - I don’t want to repeat myself.
+ - I think I would have drank myself to death, literally, if I didn’t just stop, once and for all when I did. I am not ever going to preach to anyone about drugs or drinking. But, for me, when they were around, I had no self control.
+ - My mum’s name is Marilyn O’Connor. She’s here tonight and I would like if you see her for you to congratulate her because she brought up four kids alone and she deserves congratulations for that.
+ - Sometimes I take a temperature of things just because everyone else does. Especially when I’m doing a play. I want to know what people are thinking, positive or negative.
+ - Vanity is something that will only get in the way of doing your best work, and ultimately if you’re truly vain you care more about your work than how you look in your work. I actually consider myself a pretty vain guy when it comes to that.
+ - If you’re a human being walking the earth, you’re weird, you’re strange, you’re psychologically challenged.
+ - I think Magnolia is one of the best films I’ve ever seen and I can say that straight and out and anybody that disagrees with me I’ll fight you to the death. I just think it is one of the greatest films I’ve ever been in and ever seen.
+ - Plays never feel like the right thing to do at the time.
+ - The drama nerd comes out in me when I’m in a theater.
+ - Why you do something is always kind of a mystery to me.
+ - To be loved, I think, is the thing that gets you up in the morning.
+ - I try to live my life in such a way that I don’t have any regrets. That’s probably why I work so much. I don’t want to feel I missed something important.
+ - Ultimately, I think writing is a mixture of craft, inspiration, and being incredibly, courageously explorative with yourself – and being brutally honest, too.
+ - I like so many different kinds of music just because all I did was listen to the radio as a kid.
+ - I work constantly but I work at a lot of different things. You know, I run a theater company in New York, I direct plays, act in plays, in movies, so I try to keep it eclectic.
+ - I have an awful memory, and I have a great memory. Meaning that, if I’m trying to remember something, I can’t remember it. But my recall is fantastic.
+ - People aren’t going to throw the kind of money at certain people that they used to.
+ - My love for the theater has always been a priority. That hasn’t changed. I got into acting that way. The film work that came up was really a surprise.
+ - Acting’s difficult for me because I think you have to be passionately involved in what you’re doing.
+ - All over the world, young men and young women will always dream dreams.
+ - I’m probably more personal when I’m acting than at any other time. More open, more direct. Because it allows me to be something that I can’t always feel comfortable with when I’m living my own life, you know? Because it’s make- believe.
+ - Sometimes I have a great day of filming and sometimes the theater strikes me better. It just depends.
+ - To act well isn’t an easy thing.
+ - I’ve seen a lot of friends who have a lot of great projects, whether it’s a script or a play or whatever, and it is a great project and they have great people involved, and they can’t make it.
+ - I don’t know, I was young, I drank too much, you know, so I stopped. You know what I mean, it’s not really complicated. I had no interest in drinking in moderation. And I still don’t. Just because all that time’s passed doesn’t mean maybe it was just a phase. That’s you know, that’s who I am.
+ - I know some really great actors who are pretty judgmental people, pretty critical people. But they’re great actors. When they’re acting, that’s the craft.
+ - You can look at anything as a cult. Churches are cults in their own way.
+ - There’s something in the very small minutia of life that tells us something about the big, big picture that we see every day all over the place, and so I think the more specific and creative and revelatory you are in the micro, the more powerful the macro will be.
+ - Great talent admits shortcomings.
+ - I think directors should be confident in their leadership capabilities. I think directors should be confident in what they want to do.
+ - No one wants to be pretentious about what they do or take it seriously, because that is just weird.
+ - I didn’t have any idea that I would be able to have a career in film.
+ - If I was a little bit younger I would worry more. I’d want to do one thing at a time but now I try to do a bunch of different things at a time if I can.
+ - I know that obviously, that if you want to get the story, if you want to get close to somebody, if you want to find out what is really the truth or what’s really interesting, you have to create a trust between these two things, between the journalist and the subject.
+ - I always thought I’d be a New York theater actor, riding my bicycle to rehearsal. That was all I ever wanted.
+ - I was probably finding my feet more than anybody. I really have to say I was more obsessed with myself faltering than anybody else.
+ - I have a fine level of recognition in the business and among the acting community now, so I consider myself one of the lucky ones. If I didn’t think that, there would be something wrong with me. I’m grateful and thankful for what I’ve got.
+ - Well, in the theater, I think you’re actually more responsible for what is going on onstage as a director than you are in film.
+ - You have to understand that crew members make movies so they’re seeing a lot of actors all the time in their career acting.
+ - Yeah, writers do hate writing.
+ - I had a father who was a traveling salesman.
+ - You have all the influence you choose to have.
+ - Bob Glaudini, the writer, he’s a wonderfully talented man and all his plays and his screenplays, they all have sense of something bigger, even though you’re looking at something very simple.
+ - Directing is a really kind of amazing thing, because you’re helping others and, in the middle of that, you have to worry about yourself.
+ - When you have a child, as anyone knows who has them, that’s basically all you want to talk about.
+ - For me, acting is torturous, and it’s torturous because you know it’s a beautiful thing. I was young once, and I said, that’s beautiful and I want that. Wanting it is easy, but trying to be great – well, that’s absolutely torturous.
+ - I’ve worked with a lot of characters that are unhinged. I’ve played characters that are unhinged. That’s, like, my job.
+ - There’s nothing risky in talking about your personal life. People do it all the time.
+ - Good work is the only thing that would make me feel jealous or envious.
+ - People used to be funny about approaching me, but now they seem to think I’m as sane as anyone who’s done what I’ve done in movies can be.
+ - I’ve grown to really love musicals, you know?
+ - I try not to plan that too much.
+ - I didn’t really buy LPs or go to concerts.
+ - I’ve had to make the transition from sweeping in for 15 minutes, doing my stuff and clearing out, to carrying a movie for the duration – in a dress.
+ - I think I’m less anonymous than I was.
+ - Film’s hard when you don’t have any relationship with the director at all and you just show up. Then you really are just a gun for hire.
+ - Being unemployed is not good for an actor. No, it isn’t, no matter how unsuccessful you are. Because you always remember getting fired from all the restaurants. You remember that stuff very, very strongly.
+ - I would never not work on the part without it playing. That’s what being an actor is. You use everything that’s influenced you to help you get out of yourself or be more creative.
+ - Life’s pretty funny when you’re objectively on the outside looking at it.
+ - Ultimately what I’ll do next is up in the air for me.
+ - You have to have a personal connection. You have to really want to do it, because if you don’t, investing yourself personally, your thoughts, your emotions, yourself into a part, is something you’re not going to want to do as much.
+ - My mum is incredibly intelligent.
+ - I feel like I made a little bit of difference.
+ - I think you gotta have an honesty and a humility about human nature and that it’s not about you at the end of the day.
+ - There are characters in movies who I call ‘film characters.’ They don’t exist in real life. They exist to play out a scenario. They can be in fantastic films, but they are not real characters; what happens to them is not lifelike.
+ - It’s important to say that actors can’t act alone, it’s impossible. What we have to do is support each other.
+ - In life, do you ever really know if you’re missing an opportunity? No, you really don’t.
+ - I like to come to the set with very strong ideas and strong opinions about how to do things. And I like also dealing with somebody who’s like that.
+ - I think you ultimately have to love who you’re playing. You have to have that kind of feeling. You have to have passion for the person.
+ - The foibles of my body are pretty much out there in the work I do.
+ - My soul is in good shape.
+ - The weight comes off, you know? If you stop with the bread and the pie, it really does. It really works.
+ - When you’re playing someone who really lived, you carry a burden, a burden to be accurate. But it’s one that you have to let go of ultimately.
+ - In film, you have to let go sometimes.
+ - I feel like the need to want to create and make something is stronger than the difficulties are going through.
+ - My ideal weight is 205, actually.
+ - I don’t get nervous when I’m directing a play. It’s not like acting.
+ - People actually live with their id exposed. They’re not good at concealing what’s going on inside.
+
+117 quotes

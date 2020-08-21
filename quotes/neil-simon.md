@@ -1,0 +1,47 @@
+ - There’s no such thing as a sure thing. That’s why they call it gambling.
+ - I understand. You work very hard two days a week and you need a five-day weekend. That’s normal.
+ - Give your mind a chance to travel through foreign languages.
+ - Never underestimate the stimulation of eccentricity.
+ - Talent is the gift plus the passion – a desire to succeed so intense that no force on earth can stop it.
+ - It’s always painful when you’re writing memoirs because you’ve got to go through the dark places, but it gives you a chance to find out the person you really are, not the person you thought you were.
+ - When its 100 degrees in New York, it’s 72 in Los Angeles. When its 30 degrees in New York, in Los Angeles it’s still 72. However, there are 6 million interesting people in New York, and only 72 in Los Angeles.
+ - I was constantly being dragged out of movies for laughing too loud.
+ - If no one ever took risks, Michaelangelo would have painted the Sistine floor.
+ - If you can go through life without experiencing pain you probably haven’t been born yet.
+ - Don’t listen to those who say, you taking too big a chance. Michelangelo would have painted the Sistine floor, and it would surely be rubbed out by today.
+ - Once you start compromising your thoughts, you’re a candidate for mediocrity.
+ - There are two million interesting people in New York and only seventy-eight in Los Angeles.
+ - I don’t like dating or just living with a woman. I like to create a relationship, a marriage. And almost all of my marriages have involved children, so I’m really a family man as well.
+ - Sports is the only entertainment where, no matter how many times you go back, you never know the ending.
+ - Writers feel like a middleman, standing with pen in hand over the page. A force greater than me stands above telling me what to write. That may sound romantic, but that’s how it feels.
+ - I love living. I have some problems with my life, but living is the best thing they’ve come up with so far.
+ - Standing on a ledge again. Everyone laughs at dancing monkey with the typewriter. Not for long, though.
+ - All humor is based on hostility – that’s why World War Two was funny.
+ - How long do you want to wait until you start enjoying life? When you’re sixty-five you get social security.
+ - It looks different when you’re sober; I thought I had twice as much furniture.
+ - Goldie Hawn is funny, sexy, beautiful, talented, intelligent, warm, and consistently sunny. Other than that, she doesn’t impress me at all.
+ - Writing is an escape from a world that crowds me. I like being alone in a room. It’s almost a form of meditation- an investigation of my own life.
+ - A lot of your personality is formed before you’re 12, obviously, but only a few of my plays use characters from my childhood. The more mature plays are affected only by my adult experiences.
+ - He’s too nervous to kill himself. He wears his seat belt in a drive-in movie.
+ - New York is not Mecca. It just smells like it.
+ - Everyone thinks they can write a play; you just write down what happened to you. But the art of it is drawing from all the moments of your life.
+ - Money brings some happiness. But after a certain point, it just brings more money.
+ - Take care of him. And make him feel important. And if you can do that, you’ll have a happy and wonderful marriage. Like two out of every ten couples.
+ - You get attached to the way you write, and I’m attached to notebooks. That’s where I really write the plays. Just two or three pages at a time, then I transfer to the typewriter and rewrite while I type.
+ - I don’t like writing for comedians. I like writing for actors. The best comedians are the best actors.
+ - I got brown sandwiches and green sandwiches. Its either very new cheese or very old meat. – Oscar Madison, from The Odd Couple.
+ - You must realize that honorary degrees are given generally to people whose SAT scores were too low to get them into schools the regular way. As a matter of fact, it was my SAT scores that led me into my present vocation in life, comedy.
+ - I go to see plays all the time, and whenever I see Chekhov, I’m amazed at how this Russian play strikes home to me living 100 years later in New York City. I’m drawn to him because of his way with characters and their relationships with each other.
+ - I feel like writing about a time when I was probably, and think all of us are, the happiest before the obligations start in.
+ - Baptists are only funny underwater.
+ - Gee, what a terrific party. Later on we’ll get some fluid and embalm each other.
+ - I don’t want to restrict the life of a play to a particular production. The original actors might leave after the first six months, and I want the play to last 30 or 40 years. You write for the character, not the actor on the stage.
+ - I much prefer writing an original movie with the screen in mind to transferring a play to the screen.
+ - People with honorary awards are looked upon with disfavor. Would you let an honorary mechanic fix your brand-new Mercedes?
+ - I never write a play with an eye to film.
+ - Evan Handler’s new book is simply wonderful. He pulls you inside his life, and you come out his very close friend.
+ - The first book was my first attempt at writing full-length prose.
+ - Sudden money is going from zero to two hundred dollars a week. The rest doesn’t count.
+ - Once you’ve opened yourself up, it’s best to go all the way.
+
+45 quotes

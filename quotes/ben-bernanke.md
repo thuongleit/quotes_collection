@@ -1,0 +1,63 @@
+ - Nobody likes to fail but failure is an essential part of life and of learning. If your uniform isn’t dirty, you haven’t been in the game.
+ - The more important reason is that the research itself provides an important long-run perspective on the issues that we face on a day-to-day basis.
+ - Economics is a very difficult subject. I’ve compared it to trying to learn how to repair a car when the engine is running.
+ - I am very proud of my nerd-dom.
+ - Speaking as somebody who has been happily married for 35 years, I can’t imagine any choice more consequential for a lifelong journey than the choice of a traveling companion.
+ - I’d throw dollars out of helicopters if I had to, to stimulate the economy.
+ - Our mission, as set forth by the Congress is a critical one: to preserve price stability, to foster maximum sustainable growth in output and employment, and to promote a stable and efficient financial system that serves all Americans well and fairly.
+ - If you want to understand geology, study earthquakes. If you want to understand the economy, study the Depression.
+ - The people who best use their advantages, or overcome adversity, and work honestly are those most worthy of admiration.
+ - Life is amazingly unpredictable; any 22-year-old who thinks they know where they will be in 10 years, much less in 30, is simply lacking imagination.
+ - One might as well try to perform brain surgery with a sledgehammer.
+ - We’ve never had a decline in house prices on a nationwide basis. So, what I think what is more likely is that house prices will slow, maybe stabilize, might slow consumption spending a bit. I don’t think it’s going to drive the economy too far from its full employment path, though.
+ - Economics is a highly sophisticated field of thought that is superb at explaining to policymakers precisely why the choices they made in the past were wrong. About the future, not so much.
+ - The economist John Maynard Keynes said that in the long run, we are all dead. If he were around today he might say that, in the long run, we are all on Social Security and Medicare.
+ - Investment banks manage to go bankrupt through their investment-banking activities, commercial banks manage to go bankrupt through their commercial-banking activities.
+ - The financial crisis appears to be mostly behind us, and the economy seems to have stabilized and is expanding again.
+ - The economic repercussions of a stock market crash depend less on the severity of the crash itself than on the response of economic policymakers, particularly central bankers.
+ - We do not expect significant spillovers from the subprime market to the rest of the economy or to the financial system.
+ - Importantly, in the 1930s, in the Great Depression, the Federal Reserve, despite its mandate, was quite passive and, as a result, financial crisis became very severe, lasted essentially from 1929 to 1933.
+ - I don’t fully understand movements in the gold price.
+ - Not all information is beneficial.
+ - In fact, the world needs more nerds.
+ - Both humanity’s capacity to innovate and the incentives to innovate are greater today than at any other time in history.
+ - I think one of the lessons of the Depression – and this is something that Franklin Roosevelt demonstrated – was that when orthodoxy fails, then you need to try new things. And he was very willing to try unorthodox approaches when the orthodox approach had shown that it was not adequate.
+ - Education – lifelong education for everyone – from toddlers to workers well advanced in their careers – is indeed an excellent investment for individuals and society as a whole.
+ - Although low inflation is generally good, inflation that is too low can pose risks to the economy – especially when the economy is struggling.
+ - Under a cold turkey strategy, at each policy meeting the Federal Open Market Committee would make its best guess about where it ultimately wants the funds rate to be and would move to that rate in a single step.
+ - The amount of currency in circulation is not changing. The money supply is not changing in any significant way.
+ - The risk exists that, with aggregate demand exhibiting considerable momentum, output could overshoot its sustainable path, leading ultimately in the absence of countervailing monetary policy action to further upward pressure on inflation.
+ - Monetary policy cannot do much about long-run growth, all we can try to do is to try to smooth out periods where the economy is depressed because of lack of demand.
+ - I think that having good data, good statistics-and the United States generally has better macroeconomic statistics than most countries-and having good economists to interpret those data and present the policy alternatives, has a substantially beneficial effect on policymaking in the United States.
+ - I come from Main Street, from a small town that’s really depressed.
+ - It must be awfully frustrating to get a small raise at work and then have it all eaten by a higher cost of commuting.
+ - I and others were mistaken early on in saying that the subprime crisis would be contained. The causal relationship between the housing problem and the broad financial system was very complex and difficult to predict.
+ - The more guidance a central bank can provide the public about how policy is likely to evolve the greater the chance that market participants will make appropriate inferences.
+ - A money-financed tax cut is essentially equivalent to Milton Friedman’s famous ‘helicopter drop’ of money.
+ - The GSEs are adequately capitalized. They are in no danger of failing.
+ - The impact on the broader economy and financial markets of the problems in the subprime markets seems likely to be contained.
+ - It’s the price of success: people start to think you’re omnipotent.
+ - It is not the responsibility of the Federal Bank – nor would it be appropriate – to protect lenders and investors from the consequences of their decisions.
+ - With respect to their safety, derivatives, for the most part, are traded among very sophisticated financial institutions and individuals who have considerable incentive to understand them and to use them properly.
+ - The Fed is totally open.
+ - The risk that the economy has entered a substantial downturn appears to have diminished over the past month or so.
+ - The benefit of appointing a hawkish central banker is the increased inflation-fighting credibility that such an appointment brings.
+ - I am confident that we will meet whatever challenges the future may bring.
+ - To avoid large and unsustainable budget deficits, the nation will ultimately have to choose among higher taxes, modifications to entitlement programs such as Social Security and Medicare, less spending on everything else from education to defense, or some combination of the above.
+ - House prices have risen by nearly 25 percent over the past two years. Although speculative activity has increased in some areas, at a national level these price increases largely reflect strong economic fundamentals.
+ - Indeed, in general, healthy investment returns cannot be sustained in a weak economy, and of course it is difficult to save for retirement or other goals without the income from a job.
+ - It’s true that the Federal Reserve faces a lot of political pressure and is unpopular in many circles.
+ - If you are not happy with yourself, even the loftiest achievements won’t bring you much satisfaction.
+ - I generally leave the details of fiscal programs to the Administration and Congress. That’s really their area of authority and responsibility, and I don’t think it’s appropriate for me to second guess.
+ - The best approach here if at all possible is to use supervisory and regulatory methods to restrain undue risk-taking and to make sure the system is resilient in case an asset price bubble bursts in the future.
+ - If Wall Street crashes, does Main Street follow? Not necessarily.
+ - The central bank needs to be able to make policy without short term political concerns.
+ - The Federal Reserve will not monetize the debt.
+ - In the future, my communications with the public and with the markets will be entirely through regular and formal channels.
+ - How much would you pay to avoid a second Depression?
+ - If you are asking me if I would advocate that the Chinese go to greater flexibility in their exchange rate, I certainly would.
+ - Under current law, on January 1st, 2013, there is going to be a massive fiscal cliff of large spending cuts and tax increases.
+ - It takes about two and a half percent growth just to keep unemployment stable.
+ - The American people are among the most productive in the world. We have the best technologies. We have great universities. We have entrepreneurs.
+
+61 quotes

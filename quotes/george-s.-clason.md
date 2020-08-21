@@ -1,0 +1,44 @@
+ - I found the road to wealth when I decided that a part of all I earned was mine to keep.
+ - Where the determination is, the way can be found.
+ - It costs nothing to ask wise advice from a good friend.
+ - Luck has a peculiar habit of favoring those who do not depend on it.
+ - Opportunity is a haughty goddess who wastes no time with those who are unprepared. a.
+ - Money is plentiful for those who understand the simple laws which govern its acquisition.
+ - Men of action are favored by the Goddess of luck.
+ - Proper preparation is the key to our success. Our acts can be no wiser than our thoughts. Our thinking can be no wiser than our understanding.
+ - Advice is one thing that is freely given away, but watch that you only take what is worth having.
+ - Wealth is power. With wealth many things are possible.
+ - Seek advice from those who are competent through their own experience and success to give it.
+ - Wealth that stays to give enjoyment and satisfaction to its owner comes gradually, because it is a child born of knowledge and persistent purpose.
+ - Our acts can be no wiser than our thoughts.
+ - Wealth, like a tree, grows from a tiny seed.
+ - Remember, work, well done, does good to the man who does it. It makes him a better man.
+ - Will power is but the unflinching purpose to carry the task you set for yourself to fulfillment.
+ - Action will lead you forward to the success you desire.
+ - In those things toward which we exerted our best endeavors we succeeded.
+ - It is true that money cannot buy happiness but it does make it possible for you to enjoy the best that the world has to offer.
+ - Our prosperity as a nation depends upon the personal financial prosperity of each of us as individuals.
+ - Each man has to work out his own understanding of what needs to be done, and then prepare himself to take advantage of the opportunity to succeed in a big way.
+ - Deride not what I say because of its simplicity. Truth is always simple.
+ - Without wisdom, gold is quickly lost by those who have it.
+ - He who spends more than he earns is sowing the winds of needless self-indulgence from which he is sure to reap the whirlwinds of trouble and humiliation.
+ - The reason why we have never found measure of wealth. We never sought it.
+ - Wealth that comes quickly, goeth the same way.
+ - A lean purse is easier to cure than to endure.
+ - The hungrier one becomes, the clearer one’s mind works – also the more sensitive one becomes to the odors of food.
+ - As for time, all men have it in abundance.
+ - If I set for myself a task, be it so trifling, I shall see it through. How else shall I have confidence in myself to do important things?
+ - You’ve learned the lessons well. You first learned to live on less than you earn. Next you learned to seek advice from those who are competent. Lastly, you’ve learned to make gold work for you.
+ - Advice is one thing that is freely given away, but watch that you take only what is worth having. He who takes advice about his savings from one who is inexperienced in such matters, shall pay with his savings for proving the falsity of their opinions.
+ - Gold cometh gladly and in increasing quantity to any man who will put by not less than one-tenth of his earnings to create an estate for his future and that of his family.
+ - Preceding accomplishment must be desire. Thy desires must be strong and definite.
+ - Desires must be simple and definite. They defeat their own purpose should they be too many, too confusing, or beyond a man’s training to accomplish.
+ - One may not condemn a man for succeeding financially because he knows how. Neither may one with justice take away for a man what he has fairly earned, to give to men of less ability.
+ - Learning was of two kinds: the one being the things we learned and knew, and the other being the training that taught us how to find out what we did not know?
+ - Budget thy expenses that thou mayest have coins to pay for thy necessities, to pay for thy enjoyments, and to gratify thy worthwhile desires without spending more than nine-tenths of thy earnings.
+ - We are more apt to change our minds when right than wrong.
+ - If you desire to help thy friend, do so in a way that will not bring thy friend’s burdens upon thyself.
+ - The more wisdom we know the more we may earn. Those who seek to learn more of their craft shall be richly rewarded.
+ - It was apparent that no one could do for the scribe what the scribe had done for himself.
+
+42 quotes

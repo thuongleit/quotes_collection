@@ -1,0 +1,114 @@
+ - A land without memories is a people without liberty.
+ - Wisdom is nothing more than healed pain.
+ - Duty, then is the sublimest word in our language. Do your duty in all things. You cannot do more; you should never wish to do less.
+ - You must be careful how you walk and where you go, for there are those following you who will set their feet where yours are set.
+ - The enemy never sees the backs of my Texans!
+ - I was too weak to defend, so I attacked.
+ - I would rather die a thousand deaths than surrender.
+ - All I ever wanted was a Virginia farm, no end of cream and fresh butter and fried chicken – not one fried chicken, or two, but unlimited fried chicken.
+ - Private and public life are subject to the same rules-truth and manliness are two qualities that will carry you through this world much better than policy or tact of expediency or other words that were devised to conceal a deviation from a straight line.
+ - A nation which does not remember what it was yesterday does not know where it is today.
+ - The dominant party cannot reign forever, and truth and justice will prevail at last.
+ - All this has been my fault.
+ - I can only say that I am nothing but a poor sinner, trusting in Christ alone for salvation.
+ - In all my perplexities and distresses, the Bible has never failed to give me light and strength.
+ - I like whiskey. I always did, and that is why I never drink it.
+ - Every student must be a gentleman.
+ - Remember, we are all one country now. Dismiss from your mind all sectional feeling, and bring them up to be Americans.
+ - Never do a wrong thing to make a friend – or to keep one.
+ - You must study to be frank with the world: frankness is the child of honesty and courage. Say just what you mean to do on every occasion, and take it for granted that you mean to do right.
+ - We have but one rule here, and that is that every student must be a gentleman.
+ - What a cruel thing is war: to separate and destroy families and friends, and mar the purest joys and happiness God has granted us in this world; to fill our hearts with hatred instead of love for our neighbors, and to devastate the fair face of this beautiful world.
+ - I cannot trust a man to control others who cannot control himself.
+ - We have only one rule here – to act like a gentleman at all times.
+ - There are few, I believe, in this enlightened age, who will not acknowledge that slavery as an institution is a moral and political evil.
+ - There are things in the Old Book which I may not be able to explain, but I fully accept it as the infallible Word of God, and receive its teachings as inspired by the Holy Spirit.
+ - My experience through life has convinced me that, while moderation and temperance in all things are commendable and beneficial, abstinence from spirituous liquors is the best safeguard of morals and health.
+ - No day should be lived unless it was begun with a prayer of thankfulness and an intercession for guidance.
+ - My chief concern is to try to be an humble, earnest Christian.
+ - Get correct views of life, and learn to see the world in its true light. It will enable you to live pleasantly, to do good, and, when summoned away, to leave without regret.
+ - The biggest mistake of my life was taking a military education.
+ - The enemy is here, and if we do not whip him, he will whip us.
+ - I am now considered such a monster, that I hesitate to darken with my shadow, the doors of those I love, lest I should bring upon them misfortune.
+ - We cannot afford to be idle, and though weaker than our opponents in men and military equipments, must endeavor to harass, if we cannot destroy them.
+ - The education of a man is never completed until he dies.
+ - I think it better to do right, even if we suffer in so doing, than to incur the reproach of our consciences and posterity.
+ - My heart bleeds at the death of every one of our gallant men.
+ - It is glorious to see such courage in one so young.
+ - All military history records the triumphs of discipline and courage far more frequently than numbers and resources.
+ - I have fought against the people of the North because I believed they were seeking to wrest from the South dearest rights. But I have never cherished toward them bitter or vindictive feelings. And have never seen the day when I did not pray for them.
+ - It is history that teaches us to hope.
+ - All that the South has ever desired was that the Union, as established by our forefathers, should be preserved, and that the government as originally organized should be administered in purity and truth.
+ - He has lost his left arm, but I my right.
+ - Teach him to deny himself.
+ - Alabama soldiers, all I ask of you is to keep up with the Texans!
+ - We must forgive our enemies. I can truly say that not a day has passed since the war began that I have not prayed for them.
+ - Let us go home and cultivate our virtues.
+ - There is a true glory and a true honor: the glory of duty done – the honor of the integrity of principle.
+ - The consolidation of the states into one vast empire, sure to be aggressive abroad and despotic at home, will be the certain precursor of ruin which has overwhelmed all that preceded it.
+ - We made a great mistake in the beginning of our struggle, and I fear, in spite of all we can do, it will prove to be a fatal mistake. We appointed all our worst generals to command our armies, and all our best generals to edit the newspapers.
+ - Abandon your animosities and make your sons Americans!
+ - Our country demands all our strength, all our energies. To resist the powerful combination now forming against us will require every man at his place. If victorious, we will have everything to hope for in the future. If defeated, nothing will be left for us to live for.
+ - With all my devotion to the Union, and the feeling of loyalty and duty of an American citizen, I have not been able to make up my mind to raise my hand against my relative, my children, my home. I have, therefore, resigned my commission in the Army...
+ - I believe it to be the duty of everyone to unite in the restoration of the country and the reestablishment of peace and harmony.
+ - Without music, we wouldn’t have an Army.
+ - I can anticipate no greater calamity for the country than the dissolution of the Union. It would be an accumulation of all the evils we complain of, and I am willing to sacrifice everything but honor for its preservation.
+ - There is nothing left for me to do but to go and see General Grant and I would rather die a thousand deaths.
+ - Sir, if you ever presume again to speak disrespectfully of General Grant in my presence, either you or I will sever his connection with this university.
+ - We failed, but in the good providence of God apparent failure often proves a blessing.
+ - The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.
+ - Keep steady in the view of the great principles for which you contend. The safety of your homes and the lives of all you hold dear depend upon your courage and exertions. Let each man resolve to be victorious, and that the right of self government, liberty and peace shall find him a defender.
+ - To be a good soldier, you must love the army. To be a good commander, you must be willing to order the death of the thing you love.
+ - I did only what my duty demanded. I could have taken no other course without dishonor.
+ - It is easier to make our wishes conform to our means than to make our means conform to our wishes.
+ - What a glorious world Almighty God has given us. How thankless and ungrateful we are, and how we labor to mar his gifts.
+ - The time is not come for impartial history. If the truth were told just now, it would not be credited.
+ - Death, in its silent sure march is fast gathering those whom I have longest loved, so that when he shall knock at my door, I will more willingly follow.
+ - Any victory would be dear at such a price.
+ - A true man of honor feels humbled himself when he cannot help humbling others.
+ - The devil’s name is dullness.
+ - We must forgive our enemies.
+ - Obedience to lawful authority is the foundation of manly character.
+ - You see what a poor sinner I am, and how unworthy to possess what was given me; for that reason it has been taken away.
+ - I will attack no matter what and win the war!
+ - Go home all you boys who fought with me and help build up the shattered fortunes of our old state.
+ - Lee tells his troops. After four years of arduous service marked by unsurpassed courage and fortitude the Army of Northern Virginia has been compelled to yield to overwhelming numbers and resources.
+ - But what a cruel thing is war to separate and destroy families and friends.
+ - Read history, works of truth, not novels and romances.
+ - Duty is the sublimest work in the English language.
+ - Live in the world you inhabit. Look upon things as they are. Take them as you find them. Make the best of them. Turn them to your advantage.
+ - It is well that war is so terrible. We should grow too fond of it.
+ - Postal officials say that before Christmas they receive tons of letters written to Santa Claus, but after Christmas how few letters of thanks are sent to him! From childhood onward, human beings seem to be characterized by thanklessness.
+ - You cannot barter manhood for peace.
+ - As a general principle you should not force young men to do their duty, but let them do it voluntarily and thereby develop their characters.
+ - Act with a determination not to be turned aside by thoughts of the past and fears of the future.
+ - We have fought this fight as long, and as well as we know how. We have been defeated. For us as a Christian people, there is now but one course to pursue. We must accept the situation.
+ - We must enlist our own snake and strike like a cobra against their vitals with an attack on Washington.
+ - A Union that can only be maintained by swords and bayonets, and in which strife and civil war are to take the place of brotherly love and kindness, has no charm for me.
+ - I tremble for my country when I hear of confidence expressed in me. I know too well my weakness, that our only hope is in God.
+ - True patriotism sometimes requires of men to act exactly contrary, at one period, to that which it does at another, and the motive which impels them the desire to do right is precisely the same.
+ - I have never witnessed on any previous occasion such entire disregard of the usage of civilized warfare and the dictates of humanity.
+ - We must look to the rising generation for the restoration of the country.
+ - You have only always to do what is right. It will become easier by practice, and you enjoy in the midst of your trials the pleasure of an approving conscience.
+ - What a beautiful world God, in His loving kindness to His creatures, has given us! What a shame that men endowed with reason and knowledge of right should mar His gifts...
+ - There is always hazard in military activity, but we must decide between the positive loss of inactivity and the risk of action.
+ - The real honest man is honest from conviction of what is right, not from policy.
+ - My trust is in the mercy and wisdom of a kind Providence, who ordereth all things for our good.
+ - There is no more dangerous experiment than that of undertaking to be one thing before a man’s face and another behind his back.
+ - You cannot be a true man until you learn to obey.
+ - I endeavored to give thanks to our Heavenly Father for all his mercies to me, for his preservation of me through all the dangers I have passed, and all the blessings which he has bestowed upon me, for I know I fall far short of my obligations.
+ - We must expect reverses, even defeats. They are sent to teach us wisdom and prudence, to call forth greater energies, and to prevent our falling into greater disasters.
+ - If we do not do this our churches will lighthouses without light, wells without water, dumb witnesses, sleeping watchmen, silent trumpets, messengers without tidings, a comfort for infidels, jubilant joys to the devil, and an offense to God.
+ - Ideas are easy to conceive, less easy to execute.
+ - I have been up to see the Congress and they do not seem to be able to do anything except to eat peanuts and chew tobacco, while my army is starving.
+ - I should NOT be trading on the blood of my men.
+ - I believe I may so, looking into my own heart, and speaking as in the presence of God, that I have never know one moment of bitterness or resentment.
+ - We poor sinners need to come back from our wanderings to seek pardon through the all-sufficient merits of our Redeemer. And we need to pray earnestly for the power of the Holy Spirit to give us a precious revival in our hearts and among the unconverted.
+ - For I consider the character of no man affected by a want of success, provided he has made an honest effort to succeed.
+ - Whither shall I flee? To no country on earth that I know of where there is as much liberty as yet remains to me even in Virginia.
+ - I consider the proper education of our youths one of the most important objects now to be attained and one from which the greatest benefits may be expected.
+ - I am as willing to serve now as in the beginning in any capacity and at any post where I can do good. The lower the position, the more suitable to my ability and the more agreeable to my feelings.
+ - A man may manifest and communicate his joy, but he should conceal and smother his grief as much as possible.
+ - There is scarcely anything that is right that we cannot hope to accomplish by labor and perseverance. But the first must be earnest and the second unremitting.
+
+112 quotes

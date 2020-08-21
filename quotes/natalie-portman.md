@@ -1,0 +1,136 @@
+ - I don’t love studying. I hate studying. I like learning. Learning is beautiful.
+ - We live in a real world. Come back to it.
+ - But I love you I’m totally and completely in love with you and I don’t care if you think it’s too late. I’m telling you anyway.
+ - When you get older, you realize it’s a lot less about your place in the world but your place in you. It’s not how everyone views you, but how you view yourself.
+ - I’m going to college. I don’t care if it ruins my career. I’d rather be smart than a movie star.
+ - Awards are so unnecessary because I think we get so much out of our work just by doing it. The work is a reward in itself.
+ - Microcredit is about giving hope.
+ - I’m tough on myself in terms of the standards I want to live up to, but that’s also part of my pleasure: Knowing you are being your fullest self. Being your fullest self is a lot of work.
+ - If you can’t laugh at yourself, life is going to seem a whole lot longer than you’d like.
+ - I’m a Gemini, so I change my mind every day.
+ - Accept your lack of knowledge and use it as your asset.
+ - I mean the Internet is like the luckiest thing – we have everything at our fingertips right now.
+ - Our generation has the ability and the responsibility to make our ever-more connected world a more hopeful, stable and peaceful place.
+ - I really hate being self-conscious – and being conscious of being self-conscious.
+ - I don’t believe in the afterlife. I believe this is it, and I believe it’s the best way to live.
+ - I think the New York Public Library is so, so amazing. It’s literally the coolest place – It’s good shelter from the sun and it’s the most beautiful building. It’s really, really fun.
+ - I studied psychology in school, and the best psychology is in literature. It’s so much easier to understand a character than a theory. You can recognize yourself – or other people – in a different way.
+ - I’m not a perfectionist but I’m definitely, or well, I like discipline. I’m obedient. I’m not a perfectionist.
+ - I am more a teenager than anyone else I know. One minute I feel really adult and the next minute I say, ‘Let’s play hide-and-seek.’
+ - I speak fluent Hebrew and even dream in Hebrew when we visit there, once or twice a year.
+ - Committing yourself to one person is sacred.
+ - I love being a mum, but it’s much more intensive work than being an actress – going to work feels like you’ve got a day off. Not that I want a day off from being a mum; it’s just perhaps I had this impression before that mums don’t work. But they work more than anyone.
+ - It doesn’t matter if you mean to do the right thing – if you only do bad things. You need to learn how to do right things. Doing is what affects people...
+ - We live in a small world, and we all are affected by everything that happens everywhere. And to look at it less selfishly, we also need to be grateful for the luck of where we’re born and how we ended up where we ended up.
+ - I don’t know if acting is what I want to do for the rest of my life, it’s just what I’ve, you know, ended up doing when I was little, and I’ve kinda grown up with it.
+ - I just stay away from the news and try and find people around me who are doing positive things and look to them.
+ - I’ve been really, lucky and sometimes you think, ‘Why? How did this happen to me – what did I do to deserve this?’ And you realize how much it’s just luck. And then you see that there’s a lot of people who are not as lucky as you are, and I want to like share that luck, you know?
+ - No one will ever love you as much as I do. Why isn’t love enough?
+ - I think losing a child is unimaginable. It’s every person’s worst nightmare. It’s unimaginably difficult. It shakes your faith in the world. It tests your optimism.
+ - I’m afraid of everything. But maybe when you’re afraid of everything, it sort of seems like you’re scared of nothing.
+ - Smart women love smart men more than smart men love smart women.
+ - I don’t mean to criticize anyone in any way that I wouldn’t criticize myself. I think people should have fun, and have a good time, and enjoy the luck that we have to be lazy and dwell in consumerism. But I think that it’s a balance. And our job as actors is empathy.
+ - There’s always pressure, from other people and yourself. If you’re happy with the looks you’re born with, then what are you going to do your whole life? We keep thinking up new things and finding better ways of doing things because we’re not happy with what we’re given.
+ - Jasmine is just the most delicate and beautiful scent.
+ - Lying is the most fun a woman can have without taking her clothes off.
+ - I’d rather be smart than a movie star.
+ - I’m really good at mini-golf. You know, maybe not big person golf, but little person golf.
+ - As I look back on it, I’m glad that I had this false image. I was who everyone else – my parents, my friends, society – wanted me to be. I was a pleaser, someone who wanted to make everyone happy, to not let anyone down. Now, I’m not like that.
+ - Use Starbucks mints for every occasion – they’re the strongest.
+ - I love stoner comedies. I smoked weed in college, but I haven’t smoked in years.
+ - I love milk so much! I make a point of drinking a glass of milk every day. So now anyone who did those milk ads with the milk mustaches, they’re my heroes.
+ - I’ve always tried to separate my looks from all the other aspects of myself. I think girls are taught so much to focus on their looks that they tend to have their personality and intelligence develop slower than boys.
+ - People who take everything to heart trivia – the most capable of genuinely love.
+ - I do think there is a sort of natural balance in nature between men and women, and that it’s being thrown off-balance by the social and economic inequities between men and women.
+ - Pointe shoes are torture devices. I mean, ballerinas get used to it, but it was definitely a new experience for me. They feel medieval. I was very happy to stop wearing them.
+ - I can sleep a whole day. If no one woke me up, I would sleep for 24 hours. I think it’s a combination of my age and my appreciation for sleep. Sleep is so wonderful. Sometimes you can oversleep and feel like you’ve waster your time, but I think it’s one of the bestways to spend your time.
+ - Actually I want to scare away method actors because it’s a pain. It’s like, ‘Come on, what are you doing? It’s not real. What are you doing? Oh, you’re really brooding. Okay, good. Go to your trailer. I’ll see you in an hour.’
+ - I wonder how people decided that women were supposed to shave their legs and armpits.
+ - I get freaked out by pills. Everyone I know is always like, “I’m just going to take a Valium or an Ambien on the plane.” But I can’t do any of that stuff – it scares me.
+ - I am not someone who sacrifice all for the cinema, my life will be always more important.
+ - Sure. I’ve never dated a woman of anything like that, But, I mean, I think it’s much more the person that you fall in love with – and why would you close yourself off to fifty percent of the people?
+ - I don’t want to sound superficial, but when I go see a movie myself, I’d rather look at Tom Cruise than some shmo with a beer belly.
+ - I’ve wanted to be an astronaut, a doctor, a vet – these are things I’ve said in interviews. Before that, I wanted to be a mermaid and a fairy.
+ - I always find it a little scary to say that I’m like a character.
+ - I think school is so much harder than real life. People are so much more accepting when they are adults.
+ - I was like a total cliched ’80s child. I had Barbies, obviously, as well as My Little Ponies and Cabbage Patch Kids, but I used to destroy them. I used to draw all over their faces and cut off their hair.
+ - And then there is Cate Blanchett. She is different all the time.
+ - I’d like it if people thought I was Jewish looking.
+ - Really, really obscene hip-hop. I love it so much. It makes me laugh and then it makes me want to dance.
+ - I had danced when I was younger, until I was about 12, and I always idealized it, as most young girls do, as the most beautiful art. It’s an expression without words.
+ - I was really excited to get to shave my head – it’s something I’d wanted to do for a while and now I had a good excuse. It was nice to shed that level of vanity.
+ - I usually run three or four times a week now. Pretty boring, but it’s so worth is. It’s done wonders for my mood.
+ - The good news is we have the technology and the tools to alleviate poverty on a global scale. All that is standing in our way is education and will.
+ - People are just funny sometimes if you find the right character.
+ - Point shoes are torture devices.
+ - Cute is when your personality shines through your looks.
+ - It’s always interesting to step into the enemy’s shoes, and figure out what they’re like.
+ - As someone who was born in Israel, you’re put in a position of defending Israel because you know how much is at stake.
+ - The best part about being friends with your parents is that no matter what you do, they have to keep loving you.
+ - I’m always on the phone because I’m usually not with the people I want to be with.
+ - I was really into dancing, taking six classes a week, and my real dream was to be in a Broadway show.
+ - The best thing you can hope for, when you make a movie and you put your soul into it, is that people respond to it well.
+ - Cute is when your personality shines through your looks. Like, when you see someone’s personality in the way they walk and you just feel like hugging them every time you see them.
+ - There is a lot lacking on the intellectual side and on the values side when being an actor.
+ - I’m not really much of a genre guy. I think that audiences don’t need that anymore where you just need a very specific genre. Audiences are very sophisticated, and as long as it’s fun, it’s okay and entertaining.
+ - Love is very much perceived as “I couldn’t control myself; it’s love.” But you can. Everything you do in response is a choice.
+ - Social networking is playing a huge role in creating awareness and mobilizing support for all kinds of common interests. What better way to use this remarkable tool than to change the world?
+ - I’d basically have trouble with any job that doesn’t require me to wear silly clothes and talk in funny voices.
+ - I grew up in the classic American-Jewish suburbia, which has a whole different sense of what it means to be Jewish than anywhere else in the world.
+ - I don’t have a normal job, so I really appreciate having friends who are writers and artists. It’s fun to have a group of people you can call in the middle of the day to go for a hike.
+ - Ballet really lends itself to that because there’s such a sense of ritual, with wrapping the shoes every day and preparing new shoes for every performance. It’s such a process. It’s almost religious, in nature.
+ - I loved school so much that most of my classmates considered me a dork.
+ - I also feel I’m a positive role model by not putting my education on hold.
+ - I’ve stood up to producers before, and even a director. I saw them being abusive. A lot of people on the set are scared to say stuff when they’re not being treated right.
+ - I like acting for now. But after seeing Apollo 13, what I really want to do is to be an astronaut. I’m dying to go to a space camp next summer!
+ - Going to a party, for me, is as much a learning experience as, you know, sitting in a lecture.
+ - The more money a woman has, the more educated she is, and the more educated she is, the more she knows about how to prevent pregnancy, and also has more reproductive control – she feels a greater ability to say no to a man when she doesn’t have to depend on him for money.
+ - If I had known my own limitations, I never would have taken the risk, and the risk led to one my greatest artistic and personal experiences.
+ - When I was in nursery school, the teachers asked me, y’know, ‘What does your dad do for a living?’ So I said ‘He helps women get pregnant!’ They called my mom and they were like, ‘What exactly does your husband do?’
+ - My response was that more than half of Israelis are of Sephardic origin. Many of these Jews come from Arab lands and share the same physical skin color.
+ - When I was growing up, my mom told me every story that was happening to her. Most of the stories that come to me are through a female voice in my head. My stories seem to naturally be about females.
+ - It scares me to think that one day I’m not going to be in school anymore.
+ - I’m pretty hard on myself in general.
+ - Grab the good people around you. Don’t let them go.
+ - Your director is your everything and you devote yourself to them and you want to help create their vision.
+ - I’m trying to use whatever attention is focused on me and divert it to something that really deserves the attention and try and sort of stay out of the way of the rest of the stuff.
+ - My father has a general rule. He says if I haven’t done it in real life I shouldn’t do it on-screen.
+ - I learned to observe other people – that’s sort of what it teaches you. To pay attention. Which can also be a really natural human skill.
+ - There’s so much else to do in the world. To just be interested in doing films would limit my life.
+ - I tend to lean toward strong female stories. I want to make things that don’t already exist out there.
+ - A movie about a weak, vulnerable woman can be feminist if it shows a real person that we can empathize with.
+ - When I was 7 years old, I put on shows for everyone at my grandpa’s funeral. I was always the little entertainer.
+ - There are still vestiges of societal limitations on women. I tend to think that has to do with opportunities that are available – it says a lot that it’s still sometimes the best opportunity for a woman to be able to advance herself.
+ - One of the most exiting things about being pregnant is that I just am accepting the complete unknown; it’s a complete mystery and miracle.
+ - I’m very interested in people who seem very negative and nasty and to go inside their world and see why they get that way. It makes you a little more sympathetic to them, even though I really don’t want to be around those people.
+ - I couldn’t be anorexic because I like food too much, and I couldn’t be bulimic because I hate throwing up too much.
+ - I’m pretty immature and get pretty embarrassed easily. I would check out once in a while certain shots to make sure that I felt OK because sometimes once you see it you realize it is fine.
+ - If you’re an actress or a musician, everyone thinks you’re hot.
+ - I have nice ears. I have no lobes, which was disappointing for a while, but I’ve gotten over it and learned to love them. Being lobeless isn’t the end of the world.
+ - My dad’s a doctor, and when I was 8, I went to one of his medical conferences where they were demonstrating laser surgery on a chicken. I was so mad that a chicken had to die, I never ate meat again.
+ - I usually dress very casual. Whenever I go out with my friends, I’m always like, ‘Can’t I just wear sweatpants?’
+ - I know a famous violinist who told me he can’t compose because he knows too many pieces. So, when he starts thinking of a note, an existing piece immediately comes to mind. Just starting out, one of your biggest strengths is not knowing how things are supposed to be.
+ - There are movies where we are interested in seeing people’s lives without agreeing with what they’re doing.
+ - It really wasn’t my thing. It still isn’t my thing, the whole science-fiction action thing. I prefer simpler, character-based movies.
+ - I don’t think I’ve ever been in love, I’m sure I will be some day. I’ve had enormous crushes, although I’ve never been into the Brad Pitt thing.
+ - I want every version of a woman and a man to be possible. I want women and men to be able to be full-time parents or full-time working people or any combination of the two.
+ - When a guy tells me I’m cute, it’s not something desirable. Cute is more like what you want your pet to be.
+ - I think all girls in the world wish they were a Parisian girl – that sort of effortless chic confidence and comfort in their own skin.
+ - Ninety per cent of how you learn is watching great people. When you are surrounded by good actors it lifts your performance.
+ - The fact that audiences have come away moved, excited, entertained and stimulated by the film is extraordinarily flattering.
+ - I’m not a perfectionist, but I like discipline. I’m obedient, but I’m not a perfectionist. I think it’s important to work your hardest and be as kind as possible to everyone you work with. The goal, every day, is keeping focused on that.
+ - I’ve dealt with a few method actors, and I don’t know if should say this, but I think it’s a bunch of nonsense. I think it’s film acting and you just have to be on when the camera is rolling.
+ - I think that most women know what happens that leads you to a point where you’re not even looking for intimacy anymore. You’re just looking for the physical side of it and not the emotional side of it.
+ - As I get older, I’m more relaxed and less concerned with what people think of me.
+ - You know, I get much more Jewish in Israel because I like the way that religion is done there.
+ - Everyone dreams of living in Paris.
+ - It’s a big honour to have people be excited about a movie that you make. That’s the one thing that you want.
+ - Part of my reason for being vegetarian was because it practices respect and love for life all through the day, so three times a day, you make a decision to eat things that have not been killed.
+ - Small loans can transform lives, especially the lives of women and children. The poor can become empowered instead of disenfranchised. Homes can be built, jobs can be created, businesses can be launched, and individuals can feel a sense of worth again.
+ - I always ask myself, would I want someone to do something that wasn’t comfortable for them just to please me? And the answer is no.
+ - I think the opportunities are all over the place – around your corner or in more exotic locales. But everyone finding their own interest – sometimes it’s hard to know what you’re interested in, I think.
+ - The moment you buy into the idea that you’re above anyone else, is the moment you need to be slapped in the face.
+ - If we can find ways to love life and be joyful without being wasteful or destructive – that’s what’s important.
+ - Breast implants gross me out. I don’t think they’re attractive at all.
+
+134 quotes

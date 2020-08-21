@@ -1,0 +1,134 @@
+ - I can take any truth; just don’t lie to me.
+ - Stay true to yourself. People respond to authenticity.
+ - I’m a work in progress.
+ - I’m not weird, just different from people who aren’t different.
+ - You have got to discover you, what you do, and trust it.
+ - It is every woman’s dream to be some man’s dream woman.
+ - There is nothing more important in life than love.
+ - Life’s too short. Start with Dessert!
+ - Art does not exist only to entertain, but also to challenge one to think, to provoke, even to disturb, in a constant search for truth.
+ - I need instant gratification.
+ - Love comes from the most unexpected places.
+ - Doubt can motivate you, so don’t be afraid of it. Confidence and doubt are at two ends of the scale, and you need both. They balance each other out.
+ - I love things that are indescribable, like the taste of an avocado or the smell of a gardenia.
+ - Believe in the power of your voice! Be yourself. Everyone is unique.
+ - The artist as citizen is here to stay.
+ - I like simple things. Elastic waists, so I can eat.
+ - To have ego means to believe in your own strength. And to also be open to other people’s views. It is to be open, not closed. So, yes, my ego is big, but it’s also very small in some areas. My ego is responsible for my doing what I do – bad or good.
+ - You have to live life in the moment and get the most out of it.
+ - I think of myself as a girl from Brooklyn.
+ - I don’t feel like a legend. I feel like a work in progress.
+ - When I sing, people shut up.
+ - I can’t stand to see red in my profit-or-loss column. I’m Taurus the bull, so I react to red. If I see it, I sell my stocks quickly.
+ - I was a personality before I became a person – I am simple, complex, generous, selfish, unattractive, beautiful, lazy and driven.
+ - Sometimes, when you work with mediocre talents, they feel entitled. They act like stars. Genuinely talented people don’t.
+ - Art transcends politics this weekend.
+ - Why does a woman work ten years to change a man, then complain he’s not the man she married?
+ - If a man wants to get it right, he’s looked up to and respected. If a woman wants to get it right, she’s difficult or impossible. If he acts, produces and directs, he’s called multitalented. If she does the same thing, she’s called vain and egotistical.
+ - The moral immune system of this country has been weakened and attacked, and the AIDS virus is the perfect metaphor for it. The malignant neglect of the last twelve years has led to breakdown of our country’s immune system, environmentally, culturally, politically, spiritually and physically.
+ - My nose was part of my heritage, and if I had talent to sing and to act, why wasn’t that enough?
+ - New York critics – I hear when one of them watched “A Star Is Born”, he talked back to the screen.
+ - The idea of a liberal media bias is simply a myth. If only it were true, we might have a more humane, open-minded, and ultimately effective public debate on the issues facing the country.
+ - I’m sure that I don’t know everything I want to know. I have so much more to learn.
+ - I don’t care what you say about me. Just be sure to spell my name wrong.
+ - As a young woman, I wanted nothing more than to see my name in lights.
+ - Oh God, don’t envy me, I have my own pains.
+ - I got sent to a health camp when I was about 6 years old, and we all had to wear the same starchy blue uniform. The lady who took care of me after school knit me a burgundy sweater. It was the only thing that gave me any individuality.
+ - I am a nice person. I care about my driver having lunch, you know...
+ - What does it mean when people applaud? Should I give ’em money? Say thank you? Lift my dress? The lack of applause – that I can respond to.
+ - The dream – you never achieve it. The excitement of life lies in the hope, in the striving for something rather than the attainment.
+ - I hate tooting my own horn, but after Steven Spielberg saw Yentl, he said: “I wish I could tell you how to fix your picture, but I can’t. It’s the best film I’ve seen since Citizen Kane”.
+ - I don’t like talking about myself and I don’t like talking about the work.
+ - Art is the signature of a generation; artists have a way of defining the times.
+ - I arrived in Hollywood without having my nose fixed, my teeth capped, or my name changed. That is very gratifying to me.
+ - I don’t enjoy public performances and being up on a stage. I don’t enjoy the glamour. Like tonight, I am up on stage and my feet hurt.
+ - Sometimes you resent the people you love and need the most. Love is so fascinating in all its forms, and I think everyone who has ever been a mother will relate to this.
+ - I was kind of a wild child. I wasn’t taught the niceties of life.
+ - A human being is only interesting if he’s in contact with himself. I learned you have to trust yourself, be what you are, and do what you ought to do the way you should do it. You have got to discover you, what you do, and trust it.
+ - I do have friends that are Republicans, and we have very spirited conversations on a whole range of issues. I am often baffled by why they are Republicans, but I enjoy the dialogue and can move beyond politics to find common ground in my personal relationships.
+ - I hated singing. I wanted to be an actress. But I don’t think I’d have made it any other way.
+ - A man who graduated high in his class at Yale Law School and made partnership in a top law firm would be celebrated. A man who invested wisely would be admired, but a woman who accomplishes this is treated with suspicion.
+ - I’ll see a celadon green room in an 18th century New Hampshire house and just fall in love. Colors stay in my head.
+ - How I wish we lived in a time when laws were not necessary to safeguard us from discrimination.
+ - There’s a part of you that always remains a child, no matter how mature you get, how sophisticated or weary.
+ - I’ve been called many names like perfectionist, difficult and obsessive. I think it takes obsession, takes searching for the details for any artist to be good.
+ - Why don’t you have a cup of coffee at least? I, um, I’m a little low in sugar and I don’t have any cream, but it’s real coffee.
+ - Myths are a waste of time. They prevent progression.
+ - Art finds a way to be constructive. It becomes heat in cold places; it becomes light in dark places.
+ - My friend Quincy Jones says we won our first Grammys together in 1963. I have no recollection. I don’t even remember the room. When he showed me the picture, I remembered what I wore. But it’s like awards don’t mean anything.
+ - The audience is the best judge of anything. They cannot be lied to. Truth brings them closer. A moment that lags – they’re gonna cough.
+ - I love road trips! My husband and I love that. We bought a truck with a bench seat so we could put the dog in the middle.
+ - Being a celebrity is a no-win situation. If you get along with your co-star you’re having an affair, if you don’t you’re having a feud.
+ - When I was a teenager in New York, I was buying antique clothes. I still am.
+ - A large part of me is pure nebbish – plain, dull, uninteresting. There’s a more flamboyant part, too. Obviously.
+ - Just like my father, I’ve always loved education. In school I was a member of the honor society.
+ - I worked in a Chinese restaurant.
+ - Everyone has a right to love and be loved, and nobody on this earth has the right to tell anyone that their love for another human being is morally wrong.
+ - I was raised on the streets, in hot, steamy Brooklyn, with stifled air.
+ - Success to me is having ten honeydew melons and eating only the top half of each slice.
+ - It’s like an American tradition. A person gets successful and then he’s supposed to change for the worse. It’s silly.
+ - You know, I can’t remember my good reviews. I remember negative ones. They stay in my mind.
+ - I never liked stardom. It’s weird to me. I only like the creative process. I only like the work.
+ - I’m tired of malicious articles slandering me.
+ - We cannot let the right wing roll back more than thirty years of social progress.
+ - The audience is the barometer of the truth.
+ - On a very basic level, many people think celebrities have too much already, so we shouldn’t be entitled to our political opinions.
+ - We have a president who stole the presidency through family ties, arrogance and intimidation, employing Republican operatives to exercise the tactics of voter fraud by disenfranchising thousands of blacks, elderly Jews and other minorities.
+ - Marlon Brando. The finest actor who ever lived. He was my idol when I was 13. He’s done enough work to last two lifetimes. Everything I do, I think: Can Brando play this with me?
+ - A human being is only interesting if he’s in contact with himself.
+ - I must have got my detailed, obsessive streak from my father, who was an English teacher, because my mother wasn’t like me at all.
+ - I don’t read music. Not even essentially. Not even nonessentially.
+ - Moviemakers can be late to a subject, or afraid, but often they are brave and ahead of their time.
+ - It always gave me the creeps when I saw performers who desperately wanted the audience to like them. That’s not what I’m about.
+ - I’m interested in the truth, and unauthorized biographies are not. Yes, I would like to correct those errors someday.
+ - It takes me about 10 years to appreciate what it is I’ve done.
+ - Why is it people who want the truth never believe it when they hear it?
+ - My mother told me I should be a secretary, but I wanted to be an actress from when I was very young.
+ - When I was working a lot, I felt guilty as a parent. I couldn’t pick up my son every day from school, bake him cookies and that kind of thing.
+ - It’s not a date. We’re just agreeing to eat at the same table.
+ - I go by instinct – I don’t worry about experience.
+ - If I hear a record once, I usually never listen to it again. I rarely listen to music – unless it’s Billie Holiday.
+ - I don’t think I’m tough in a so called tough way. I’m tough on myself.
+ - Why am I so famous? What am I doing right? What are the others doing wrong?
+ - I’d rather not talk about money. It’s kind of gross.
+ - It’s very often the artist who gives a voice to the voiceless by speaking up when no one else will.
+ - I like to stay home a lot. I like to do other things too, like decorate or build.
+ - I want the best product for my audience, and if I don’t care 100%, who will? It’s my name, my likeness that goes out there.
+ - I’ve always liked working really hard and then doing nothing in particular. So, consequently, I didn’t overexpose myself; I guess I maintained a kind of mystery. I wasn’t ambitious.
+ - I just don’t want to be hampered by my own limitations.
+ - I just became a singer, because I could never get work as an actress.
+ - Issues of foreign policy have a place in every election for President.
+ - I wish I could be like Shaw who once read a bad review of one of his plays, called the critic and said: ‘I have your review in front of me and soon it will be behind me.’
+ - I remember when I was 5 living on Pulaski Street in Brooklyn, the hallway of our building had a brass banister and a great sound, a great echo system. I used to sing in the hallway.
+ - Why is it men are permitted to be obsessed about their work, but women are only permitted to be obsessed about men?
+ - I started going to acting school when I was 14, and I would always have my own take on things.
+ - I prefer things that are private, so I love recording and I love making films, as a filmmaker, because it uses every bit of what you have experienced or know, whether it’s graphics composition, decorating, psychology, storytelling, or whatever it is. It’s a wonderful thing.
+ - I still like my antique clothes.
+ - Being a woman in music was fine, but when I wanted to direct, I was poking my head into a man’s world.
+ - I’m a terrible lip-syncer anyway because I have to be in the moment, and I can’t lip-sync to something I recorded three months before.
+ - They’re called ‘angels’ because they’re in heaven until the reviews come out.
+ - When I was maybe 5 or 6 years old, the neighborhood girls would sit on the stoop and sing. I was known as the kid who had a good voice and no father.
+ - I knew that with a mouth like mine, I just hadda be a star or something.
+ - Directing is so interesting. You know, it just sort of encompasses everything that you see, that you know, that you’ve felt, that you have observed.
+ - Performing, for me, has always been a very inner process.
+ - Everybody’s frightened a bit. But how many of us just go through the fear and do it anyway?
+ - Part of our society kills what it loves, despises what it’s created. It really hates success.
+ - I’d started going to acting classes at 14, played ‘Medea’ at 15 and really wanted to be a classical actress.
+ - Eighteenth century American furniture and the design of the architects Greene and Greene are my special love.
+ - I was a personality before I became a person.
+ - I’m not that ambitious any more. I just like my privacy. I wish I really wasn’t talked about at all.
+ - I don’t know why it is that we need to denigrate, to knock down. It’s so unhealthy for the culture. It’s so sick.
+ - I think when I was younger, I wanted to be a star, until I became a star, and then it’s a lot of work. It’s work to be a star. I don’t enjoy the stardom part. I only enjoy the creative process.
+ - I never sing in the shower either.
+ - Most awards, you know, they don’t give you unless you go and get them – did you know that? Terribly discouraging.
+ - I wasn’t supported, I wasn’t given any self-esteem.
+ - In the music business, we all do different things, but we sit there and admire other people who can write a song differently or sing differently. It’s not so competitive.
+ - Around people I don’t know, I’m totally at a loss.
+ - We elected a President, not a Pope.
+ - I hear these melodies. I hear horn lines and string lines. That’s what’s fun about recording with an orchestra.
+ - I’ve considered having my nose fixed. But I didn’t trust anyone enough. If I could do it myself with a mirror.
+ - My mother never really thought I could become anything.
+ - It’s true that I have a very healthy ego; anybody who creates does.
+ - When they tried me out as a host on TV, I found that I just couldn’t be that gregarious person. I was stranger than that.
+
+132 quotes

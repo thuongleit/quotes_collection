@@ -1,0 +1,48 @@
+ - Everyone is entitled to his own opinion, but not to his own facts.
+ - To be Irish is to know that in the end the world will break your heart.
+ - If the newspapers of a country are filled with good news, the jails of that country will be filled with good people.
+ - What is not discussed, will not be advanced.
+ - The great corporations of this country were not founded by ordinary people. They were founded by people with extraordinary intelligence, ambition, and aggressiveness.
+ - When a person goes to a country and finds their newspapers filled with nothing but good news, he can bet there are good men in jail.
+ - Stubborn opposition to proposals often has no other basis than the complaining question, ‘Why wasn’t I consulted?’
+ - We’ve come full circle but the best remains the heart of the city, the greatest center of the greatest city, our Acropolis, where our Christmas tree is lighted.
+ - Secrecy is for losers. For people who do not know how important the information really is.
+ - The amount of violations of human rights in a country is always an inverse function of the amount of complaints about human rights violations heard from there. The greater the number of complaints being aired, the better protected are human rights in that country.
+ - No one is innocent after the experience of governing. But not everyone is guilty.
+ - I can live with the robber barons, but how do you live with these pathological radicals?
+ - The liberal left can be as rigid and destructive as any force in American life.
+ - Am I embarrassed to speak for a less than perfect democracy? Not one bit. Find me a better one. Do I suppose there are societies which are free of sin? No, I don’t. Do I think ours is, on balance, incomparably the most hopeful set of human relations the world has? Yes, I do.
+ - If you don’t have 30 years to devote to social policy, don’t get involved.
+ - People who pierce the veil of money rarely return with their faculties altogether intact.
+ - The single most exciting thing you encounter in government is competence, because it’s so rare.
+ - The central conservative truth is that it is culture, not politics, that determines the success of a society. The central liberal truth is that politics can change a culture and save it from itself.
+ - Government cannot provide values to persons who have none, or who have lost those they had. It cannot provide inner peace. It can provide outlets for moral energies, but it cannot create those energies.
+ - A commonplace of political rhetoric has it that the quality of a civilization may be measured by how it cares for its elderly. Just as surely, the future of a society may be forecast by how it cares for its young.
+ - Things become complicated if there are enough people to complexify them.
+ - The atmosphere in which social legislation is considered is not a friend of truth.
+ - Pandaemonium was inhabited by creatures quite convinved that the great Satan had their best interests at heart. Poor little devils.
+ - What the press never does say is who the leaker is and why he wants the story leaked. Yet, more often than not, this is the more important story: What policy wins if the one being disclosed loses?
+ - To strip our past of glory is no great loss, but to deny it honor is devastating.
+ - Secrecy is for losers.
+ - The issue of race could benefit from a period of benign neglect.
+ - The US wished things to turn out as they did, and worked to bring this about. The department of state desired that the UN prove utterly ineffective in whatever measures it undertook. This task was given to me, and I carried it forward with no inconsiderable success.
+ - A responsible government does not triple the national debt in eight years.
+ - Citizen participation is a device whereby public officials induce nonpublic individuals to act in a way the officials desire.
+ - The American Constitution was designed to make it hard to have too much government.
+ - The status quo is working.
+ - Somehow liberals have been unable to acquire from life what conservatives seem to be endowed with at birth: namely, a healthy skepticism of the powers of government agencies to do good.
+ - As the family goes, so go the children.
+ - At 14 you are still in most respects a dependent youth, in some respects a child. At 24 you are an adult. In between, extraordinary turbulences take place.
+ - The world’s largest debtor is a distinction of sorts, but not the one we like having...
+ - The nature of the new world system was not so different from the old. It was for the moment more stable, but a reasonable forecast would be that Africa in particular had a century of border wars ahead of it.
+ - There is one unmistakable lesson in American history: A community that allows a large number of young men to grow up in broken families, dominated by women, never acquiring any stable relationship to male authority, never acquiring any set of rational expectations about the future.
+ - It has proved politically wiser to set goals than to start programs.
+ - In too many cases, if our Government had set out determined to destroy the family, it couldn’t have done greater damage than some of what we see today.
+ - The United States in the 1980s may be the first society in history in which children are distinctly worse off than adults.
+ - The Lord looks after drunks and Americans.
+ - It is perhaps common in the world for individuals and nations to suffer for their noble qualities more than for their ignoble ones. For nobility is an occasion for pride, the most treacherous of sentiments.
+ - Irresponsibility breeds irresponsibility. The finances of government are so central. You’d think that would be pretty obvious.
+ - If we get into the mind-set where the good becomes the enemy of the best, we will get nothing.
+ - I’m a Democrat, and there are an important group of things only the government can do. But let us be clear that for most of the world, what they most need is less government.
+
+46 quotes

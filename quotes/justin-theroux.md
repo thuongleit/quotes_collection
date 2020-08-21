@@ -1,0 +1,34 @@
+ - I’ve always liked boots. I always think it’s better to wear a boot, not a shoe.
+ - I devoured TV – everything from Super Friends in the morning to Dukes of Hazzard and The Love Boat and Fantasy Island at night. I watched it all. There were only four channels, so you could actually consume all of television if you were good at changing the channel.
+ - It’s like, once you’ve seen Tom Hanks win the Golden Globes, the Oscars, you’ve seen his wife, what kind of car he drives, when you watch his movies, you can’t fully get really lost in them.
+ - I always try to do the most interesting, fun thing for me.
+ - There was a time when doing “Zoolander 2” that I was literally flying between the “Zoolander” shoot and “The Leftovers” in Texas and at that point, I was getting comedy whiplash. It was a relief, though, to get to Rome and be like, “Oh my God, I get to laugh on set.”
+ - I was always acting. I was doing after-school plays and stuff like that. But I wasn’t doing well in any of the schools, so by ninth or tenth grade, I ended up going to a boarding school.
+ - Though there is something cruel about being in Hawaii and you have a computer in front of you the whole time.
+ - After my parents got divorced, I had to go right into public school in the fourth grade. The Steiner school had never really taught me how to read, so it was a rude awakening. I was playing catch-up the whole time.
+ - In New York, you can bump into someone on the street and go to a thing, go get coffee real quick.
+ - Actually, I’m reading a lot of my scripts. When I’m working on something, it’s hard to find time. You’re always prepping new material. You don’t want to be buried in a book. It splits your focus a little bit.
+ - I haven’t had a chance to pick up a good book in a long time, because I’ve been either reading scripts or learning them or writing them. And so, by the time the day is done, I usually just want to click on The Bachelor and fall asleep. But I gravitate toward biographies and things like that.
+ - I don’t miss much about my childhood. I lived in a good neighborhood, a wacky neighborhood. It was a very boy-heavy neighborhood – kind of Lord of the Flies-y. So many weird things happened, funny things.
+ - There’s a logic to dreams that doesn’t necessarily follow linear narrative. You don’t know why things happen, it’s your subconscious pushing you, to give you information.
+ - Fame is something I think happens as a result of trying to do good work. If you’re trying to be famous, your work usually suffers.
+ - I always go to bed thinking I’m the luckiest guy in the world.
+ - I stole a lot from Gary Oldman. I stole the hairdo from his incarnation of Dracula. We cheated it just enough, so we couldn’t get accused of copyright infringement.
+ - I hate when people make a really good product and then stop making it. I get annoyed.
+ - I mean the good thing about Marvel is that they’re really good about reading what they call the shareholders – the fans. Because they really are the keepers of what keeps these movies going, you know?
+ - Unless you hit your television with a sledgehammer, you’re not going to be able to be an individual.
+ - There was a moment, late into the season, where I was noticing I was darkening a little bit at night. I was like, ‘It will be nice when the show is over for the season. I need a vacation.’
+ - In the ’90s, there was a big bell-bottom craze. Everyone was wearing grungy bell-bottoms. It was so repugnant to me.
+ - Normally when you’re promoting something a lot, sometimes you get tired.
+ - Being a fan of comedy, it’s so unique, in their own voice. I was really stoked to be able to participate. They’re so great at just coming up with stuff on the fly and making stuff funny.
+ - I’ve always been pretty happy with my style. I’ve been wearing tapered jeans since 1980 something.
+ - I’ve never been shocked by anything on television, except the news.
+ - I’ve never been the guy who’s like, ‘I take it home with me.’
+ - It’s the fun part ’cause you don’t have any of the real heavy-lifting to do. You just come in and shout and chew scenery, and just be awful and say a few jokes, and you don’t have to carry the romantic storyline or the quest part of the story. You just pop up, every now and again.
+ - I think we need to tell stories that reflect our world.
+ - I was always acting. I was doing after-school plays and stuff like that.
+ - If I was roped into a seven-year TV contract I’d probably hang myself.
+ - You can get stuff done in New York that you can’t in Los Angeles. If you wanted to get some milk and get your shoes repaired and drop something off at the dry cleaner, that’s an all-day adventure in Los Angeles. In New York, you can bang that out in half an hour.
+ - I feel more comfortable writing firmly comedic or slightly comedic stuff.
+
+32 quotes

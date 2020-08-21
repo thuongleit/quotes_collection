@@ -1,0 +1,31 @@
+ - I’m a drummer. I can count to four and repeat.
+ - I’d probably be a burglar, I’d burgle people.
+ - I caught on fire twice on the stage, but I was promptly put out. It was just my leg.
+ - It’s not how you pick your nose, it’s where you put that booger that counts.
+ - Life is like breakfast: you just mix all ingredients ’cause in your stomach it will all come together.
+ - I’ve matured, maybe, but not grown up.
+ - I’m like a sack of potatoes, to be abused at will.
+ - I’ve never been beaten up! I’m a black belt in Run-Fu.
+ - The one thing about Billie is he will snap and rip your head off if you point anything out at all other than how beautiful he is and how nice he looks today.
+ - I never completed high school and I am very rich and very successful.
+ - I wish people would turn off their computers, go outside, talk to people, touch people, lick people, enjoy each other’s company and smell each other on the rump.
+ - I’ve played on literally every brand of US drums out there, and I’ve finally found my home. I’ve been looking for drums like these my whole life. True American hot rod custom kits. From the look and sound to the service and attention, it’s good to now be a part of the SJC family.
+ - I get mad when people are against pot.
+ - I used to drink beer and smoke pot before I played. Now I drink tequila and smoke pot. So it’s a little different.
+ - I like Fisher Price music, nursery rhymes, and the alphabet song.
+ - I’m not exactly sure how many kids I have, but yes, I do miss them officially, for the record. In case any of them are listening, I love you.
+ - You just can’t pull out the gun and blow the TV away anymore ’cause the baby might be sleeping.
+ - Yeah, I’m going to learn. I’m going to learn to skate really good, and if I can’t, I’m going to get hurt doing it.
+ - I’ve been working on my relationship with my parents and my sister over the years.
+ - I didn’t have a normal childhood by any means. But it was what it was, and I appreciate what my parents did for me.
+ - Prosthetic head is better than no head in the morning.
+ - I didn’t have a normal childhood by any means.
+ - The album was very agressive. It kicks you right in the balls.
+ - We’re Green Day. We can do whatever we want.
+ - Music has never been at a better time then it is right now, we’re really lucky to be a part of this wonderful thing called music.
+ - I wanna survive an avalanche. I wanna be one of those people a dog finds buried under a ton of snow, almost dying of starvation.
+ - I had trouble fitting in, in a musical sense. A lot of drummers get sidetracked by the instrument. It can engulf you.
+ - I’m the greatest rock and roll drummer on the planet and you suck.
+ - Punk rock has become another viable art form. It always was. But now it’s like everyone’s doing it.
+
+29 quotes

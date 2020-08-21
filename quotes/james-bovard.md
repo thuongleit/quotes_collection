@@ -1,0 +1,52 @@
+ - Democracy must be something more than two wolves and a sheep voting on what to have for dinner.
+ - America needs fewer laws, not more prisons.
+ - The more powerful government becomes, the more abuses it commits and the more lies it must tell.
+ - Freedom is whatever the president says it is, pending revision.
+ - People are so docile right now. It is almost as if good government means when the politicians lie to us for our own good, for the public good, and bad government is when politicians lie for their own selfish interests.
+ - It is absurd to expect governments to descend gradually, step-by-step into barbarism – as if there was a train schedule to political hell and people could get off at any stop along the way.
+ - A democratic government that respects no limits on its power is a ticking time bomb, waiting to destroy the rights it was created to protect.
+ - For the average person walking down a dark street late at night, a promise from a politician is worth far less than a .38 Special.
+ - Governments and citizens blend together only in the imaginations of political theorists. Government is, and always will be, an alien power over private citizens. There is no magic in a ballot box that makes government any less coercive.
+ - There is no safe political refuge for those afraid to take responsibility for their own lives.
+ - As soon as people drop the reins on government, government will leash the people.
+ - Freedom to vote is valuable primarily as a means to safeguard other freedoms.
+ - Liberty is a political firewall that limits the damage government can do to the individual.
+ - If citizens wish to retain their liberty, they cannot assume that those who seek power over them are honest. Skepticism of government is one of the most important-and most forgotten-bulwarks of freedom.
+ - Voting is no substitute for the eternal vigilance that every friend of freedom must demonstrate towards government. If our freedom is to survive, Americans must become far better informed of the dangers from Washington – regardless of who wins the Presidency.
+ - The sheer number of government employees and welfare recipients effectively transforms the purpose of government from maintaining order to confiscating as much as possible from vulnerable taxpayers.
+ - America needs fewer laws, not more prisons. By trying to seize far more power than is necessary over American citizens, the federal government is destroying its own legitimacy. We face a choice not of anarchy or authoritarianism, but a choice of limited government or unlimited government .
+ - The government’s appearing to be a necessary evil does not oblige people to trust it. We face a choice of trusting government or trusting freedom-trusting overlords who have lied and abused their power or trusting individuals to make the most of their own lives.
+ - It is hard to know how many people do, but given that the people are so docile towards the rulers, nowadays, very few Americans show the passion for freedom that our forefathers had.
+ - Rather than a democracy, we increasingly have an elective dictatorship. People are merely permitted to choose who will violate the laws and the Constitution.
+ - The key question for many voters is: How much is the candidate offering for my vote?
+ - The more people expect from government, the more biased they become against limiting government power.
+ - Politicians as a class are dangerous, that people who are seeking power over us are not, by definition, our friends.
+ - Once a person becomes a government dependent, his moral standing to resist the expansion of government power is fatally compromised.
+ - We are asking the wrong question. The issue is not who should be trusted with all the power of the Presidency. Instead, we must ask how much power any candidate can be trusted with.
+ - Dependency is the highest political good – at least for politicians. Since the 1930s, politicians have striven to leave no vote unbought.
+ - Foreign aid breeds kleptocracies, or governments of thieves.
+ - American democracy is capsizing as a result of the vast increase in the number of government dependents and government employees.
+ - Once freedom is equated with a certain material standard of living, confiscation becomes the path to liberation.
+ - Some politicians are aware of the Bill of Rights. It seems that the opposition party is far more likely to invoke it, to wave it in the air, this is what we saw from a lot of republicans during the Clinton Administration, and we are seeing the same from Democrats under Bush.
+ - The more that voting is glorified as a panacea, the more lackadaisical people become about preserving their constitutional rights.
+ - The first step in saving our liberty is to realize how much we have already lost, how we lost it, and how we will continue to lose it unless fundamental political changes occur.
+ - If so many Americans are looking for the government to save them, then it is hard to have a dignified search for a shepherd in chief.
+ - As we learned from the Clinton administration and much of the media, a machine gun in the hands of a federal agent is now a symbol of benevolence and concern for a child’s well-being.
+ - Well, one of the first things is to restore the rule of law, to place the government back under the cage of law. Another thing is to stop falling for the myth of democracy.
+ - It is one of the great tragedies of the US, that most learn most of what they know about the government from the government.
+ - It has been surprising to me that so few conservatives have voiced concern over the precedence that are being set in favor of suppression by this so-called conservative administration.
+ - Entire generations of Americans have come of age since the ancient time when the president’s power was constrained by a duty of candor to the American people.
+ - I was amazed at how easy it was for the Clinton Administration to basically cover what they did at Waco in the fog of lies and avoid any responsibility for it.
+ - The more freedoms Americans lose, the more dangerous government becomes.
+ - The only things government can do are regulate and redistribute, prohibit and penalize, confiscate and command. Are these the things that liberty is made of? Somebody else’s money and an endless list of Thou Shalt Nots?
+ - Politicians nowadays treat Americans like medical orderlies treat Alzheimer’s patients, telling them anything that will keep them subdued. It doesn’t matter what untruths the people are fed because they will not long remember. But in politics, forgotten falsehoods almost guarantee new treachery.
+ - The more government dependents, the more likely that democracy will become a conspiracy against self-reliance.
+ - The more expansive government is, the more perils people face in daily lives, be it from IRS agents or from child support services, or from other agencies that often have little or no legal restraints on their power.
+ - Some of the folks on both sides might be sincere, but it does seem as if it is only the opposition that cares about the Bill of Rights most of the time.
+ - It is amazing to think after all that has happened in this country in the last few years, the last few decades, that so many people have this blind faith that government is our friend and therefore, we don’t need protections against it.
+ - There has been so much power concentrated. There is no leash on that power anymore and Americans face the situation that this power is getting momentum with each passing year with each presidency.
+ - Not only has the number of government employees multiplied in recent decades, but the rise of government unions further stacks the political odds against private citizens.
+ - Throughout history, politicians have used other people’s property to buy themselves power. That is the primary achievement of the welfare state.
+ - If an election is simply a one-day snapshot of transient mass delusions, then this is not a very noble form of government.
+
+50 quotes

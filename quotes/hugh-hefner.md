@@ -1,0 +1,96 @@
+ - Life is too short to be living somebody else’s dream.
+ - If you let society and your peers define who you are, you’re the less for it.
+ - My life is an open book. With illustrations.
+ - One of the sad things, I think, about the younger generation, quite frankly, is they have less sense of yesterday. And if you don’t know who you were, you don’t really know who you are.
+ - I’m never going to grow up. Staying young is what it is all about for me.
+ - In my wildest dreams, I could not have imagined a sweeter life.
+ - Living in the moment, thinking about the future, and staying connected to the past: That’s what makes me feel whole.
+ - Follow your own particular dreams. We are handed a life by peers, parents and society, you can do that or follow your own dreams. Life is short, be a dreamer but be a practical person.
+ - We’re separated by our myths.
+ - Because of the nature of my life, it’s difficult for people to recognize that a person can live a full life, and maybe an unorthodox life, and still be on the side of the angels.
+ - You know, from my point of view, I’m the luckiest cat on the planet.
+ - You stay in touch with the boy who dreamed impossible dreams.
+ - There are many roads to Mecca.
+ - I have no plans to retire. It’s the perfect combination of work and play that keeps you young. If I quit work it would be the beginning of the end for me.
+ - I didn’t want to repeat my parents life. I saw in their lives a routine and a lack of dreaming, a lack of the possibilities, a lack of passion. And I didn’t want to live without passion.
+ - I think that I am the luckiest cat on the planet and I’m living out my own dreams and fantasies and have been for a number of years and to remain at this stage of my life, you know, so alive and things have never been better.
+ - Publishing a sophisticated men’s magazine seemed to me the best possible way of fulfilling a dream I’d been nurturing ever since I was a teenager: to get laid a lot.
+ - I’m very comfortable with the nature of life and death, and that we come to an end. What’s most difficult to imagine is that those dreams and early yearnings and desires of childhood and adolescence will also disappear. But who knows? Maybe you become part of the eternal whatever.
+ - Picasso had his pink period and his blue period. I am in my blonde period right now.
+ - It’s good to be selfish. But not so self-centered that you never listen to other people.
+ - Part of the sexual revolution is bringing rationality to sexuality – because when you don’t embrace sexuality in a normal way, you get the twisted kinds, and the kinds that destroy lives.
+ - Smoking helped put me in touch with the realm of the senses.
+ - I am not primarily an entrepreneurial businessman. I’m primarily a playboy philosopher.
+ - I think that sexual oppression and dictatorship go hand in hand.
+ - The whole 1950s notion was find the right girl, get married, move to the suburbs and then hang out with the guys while she stayed home with the babies. I felt that was sort of sad.
+ - People project their own dreams, fantasies, and prejudices onto my life. So people are either fans, or jealous, or disagree. Everybody marches to a different drummer.
+ - Retirement is unthinkable to me. The future is bright and very exciting and I’m looking forward to playing a part in it.
+ - Life is bittersweet. Inside our heads, if we’re lucky, we’re the same kids as we were when we were young.
+ - I dreamed impossible dreams. And the dreams turned out beyond anything I could possibly imagine. You know, from my point of view, I’m the luckiest cat on the planet.
+ - I think that the major message of my life and what I hope to be remembered for is someone who managed to change the social sexual values of his time absolutely.
+ - Several girlfriends are easier to handle than one wife.
+ - The Puritans thought they could simply repress man’s sexual nature, and they reaped a whirlwind as a result. Their code of sexual morality – which became America’s – was nothing more than a set of rules laid down by people who believed that all pleasure was suspect.
+ - You really don’t create an authoritarian society unless you control the personal choices including the sexual choices of the people.
+ - Being attacked by right-wing Christians did not bother me. Being attacked by liberal feminists did.
+ - They must be doing something right up there in Canada.
+ - People get their information in different ways now. And we are a little poorer for it, because the way you get information affects what you learn.
+ - One of the problems with organized religion is that it has always kept women in a second-class position. They have been viewed as the daughters of Eve.
+ - In my own words, I played some significant part in changing the social-sexual values of our time. I had a lot of fun in the process.
+ - I got married before I found myself. People should find themselves before they get married.
+ - What surprises me about getting older is that I remain so young.
+ - The people who had the most impact on me when I was young were Freud and Darwin, but growing up I also had my film idols.
+ - I think that from the very beginning it wasn’t simply, what made Playboy so popular was not simply the naked ladies, what made the magazine so popular was, there was a point of view in the magazine, that you couldn’t run nude pictures without some kind of rational that they were art.
+ - I truly believe that age – if you’re healthy – age is just a number.
+ - If Playboy ever loses its editorial balls, then it will deserve to be knocked over by a younger, more vigorous magazine in the coming generation. But that won’t happen so long as I’m alive, I can promise you that.
+ - I looked back on the roaring Twenties, with its jazz, ‘Great Gatsby’ and the pre-Code films as a party I had somehow managed to miss.
+ - I think the Playboy philosophy is very, very connected to the American dream.
+ - My first wife was a brunette, and Barbi Benton, my major romantic relationship of the early 1970s, was a brunette. But since the end of my marriage, all of my girlfriends have been blonds.
+ - Power has not corrupted me. I have not become jaded. I wake up every day well aware of my good fortune, loving the work I do, loving my life, realizing that life is a crapshoot and I’m on a roll second to none.
+ - Surrounding myself with beautiful women keeps me young.
+ - I am in very good health. I’ve never felt better.
+ - Could I be in a better place and happier than I am today? I don’t think so.
+ - The Westwood Cemetery is just a few blocks from my home, and a number of my very dear friends are buried there.
+ - I think that retirement is the first step towards the grave.
+ - The difference between Marilyn Monroe and the early Pamela Anderson is not that great.
+ - I felt quite frankly having been raised during the depression and looking back at the roaring twenties, the jazz age, which was a very magic timer in my mind because it was something that I had missed.
+ - I’m actually a very moral guy.
+ - It’s hard to really compare new love and old love.
+ - I would like to think that I will be remembered as someone who had some positive impact on the sociosexual values of his time. And I think I’m secure and happy in that.
+ - Did you know that I almost called the magazine Stag Party and the symbol was originally going to be a stag? I changed my mind just before we went to press, thank God. Somehow, it wouldn’t have been the same. Can you imagine a chain of key clubs staffed by beautiful girls wearing antlers?
+ - I don’t have dinner parties – I eat my dinner in bed.
+ - I always say now that I’m in my blonde years. Because since the end of my marriage, all of my girlfriends have been blonde.
+ - Loneliness doesn’t have much to do with where you are.
+ - Historically the Puritans left England to escape religious persecution, and they promptly turned around and started persecuting the people they didn’t agree with – the scarlet letter A, and the stocks and the dunking board came from that. That puritanism is still there.
+ - There were chunks of my life when I was married, and when I was married I never cheated. But I made up for it when I wasn’t married. You have to keep your hand in.
+ - I was a very idealistic, very romantic kid in a very typically Midwestern Methodist repressed home. There was no show of affection of any kind, and I escaped to dreams and fantasies produced, by and large, by the music and the movies of the ’30s.
+ - I guess you could say, I’m just a typical Methodist kid at heart.
+ - For some people, there is no succession plan. They just leave, and there’s no getting over it.
+ - I’m not putting myself up as the epitome of virtue. I certainly am living a non-traditional life. But it is also a loving life and a very supportive one. I think that both in this, and the previous relationship, I think that I’ve been doing the best I can.
+ - The difference between Marilyn Monroe and the early Pamela Anderson is not that great. What’s amazing is that the taste of American men and international tastes in terms of beauty have essentially stayed the same. Styles change, but our view of beauty stays the same.
+ - My parents are wonderful people and they instilled in me an idealism for which I’m grateful.
+ - For me, the magazine was always the heart of what my life was all about, and the other half was living the life.
+ - At a very early age I started a cartoon scrapbook, actually when I was in high school. And it became, in turn, a scrapbook of my life. And there are about 2,000 volumes.
+ - One of the things I’ve tried to do with my life is redefine the boundaries that I think are very limiting. I’m not suggesting that everybody should have three girlfriends, or necessarily have girlfriends living with them. I think there are many, many options to living your life.
+ - Since time immemorial, youth has set the universal standard of physical beauty, and the reason is simply that a shapely firm young face and body are more attractive sexually and aesthetically than bulges, sags and wrinkles.
+ - The business end of business has never interested me.
+ - I think being connected to younger people helps to keep you young and gives you a young attitude.
+ - I think getting married was a mistake along the way, but at the same time I wouldn’t have the wonderful children I have if I didn’t get married.
+ - Creating my own world in a comic or selling my first penny newspaper aged nine was a way of gaining recognition and acceptance by my peers.
+ - My folks were raised pure prohibitionist. They were very good people, with high moral standards – but very repressed. There was no hugging and kissing in my home.
+ - We have a tremendous opportunity to try to start solving some of our overwhelming problems with population related environment, related to the hatred that exists between countries and religions, so we have a tremendous opportunity, but the dangers are very clearly there.
+ - There’s always been a little bit of the crusader in me, and you need dragons to slay, without the conflict and the controversy I think that what I managed to do less, and I take a great deal of pride in the accomplishment.
+ - I have very strong theories about magazine publishing. And I think that it is the most personal form of journalism. And I think that a magazine is an old friend.
+ - I’ve had death threats, but I’ve never been fearful for my life. Although I have traveled with security since the ’60s.
+ - I have about 100 pairs of pajamas. I like to see people dressed comfortably.
+ - I think age, if you are healthy, I think age is largely a number. My mother lived to be 101. So I’m planning on another quarter century.
+ - I guess I’m the most successful man I know. I wouldn’t trade places with anybody in the world.
+ - I was very influenced by the musicals and romantic comedies of the 1930s. I admired Gene Harlow and such, which probably explains why, since the end of my marriage, I’ve dated nothing but a succession of blondes.
+ - I have been married twice, and those were not the happiest times of my life. Part of the problem, quite frankly, is that when you get married, the romance disappears and the children arrive and the love is transferred. It shouldn’t be that way, but too often it is transferred to the children.
+ - The phenomena there is something in us that on the one hand bonds us with like people but somehow makes us suspicious of other people.
+ - As Ray Bradbury – a longtime contributor to Playboy – said a long time ago, a lot of people, when they’re talking about the contents of the magazine, they don’t see the forest. People don’t see the other part of my life because they’re too fascinated with the girls.
+ - The interesting thing is how one guy, through living out his own fantasies, is living out the fantasies of so many other people.
+ - I was fortunate enough to be raised in a, in a very romantic time in terms of music, and the music itself simple reflected the much more romantic time.
+ - I always think, quite frankly that pop culture is a lot more important than a lot of people realize.
+ - I urge one and all to live this life as if there is no reward in the afterlife and to do it in a moral way that makes it better for you and for those around you, and that leaves this world a little better place than when you found it.
+
+94 quotes

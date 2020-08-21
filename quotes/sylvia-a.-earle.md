@@ -1,0 +1,92 @@
+ - With every drop of water you drink, every breath you take, you’re connected to the sea. No matter where on Earth you live.
+ - No water, no life. No blue, no green.
+ - There’s plenty of water in the universe without life, but nowhere is there life without water.
+ - I suggest to everyone: Look in the mirror. Ask yourself: Who are you? What are your talents? Use them, and do what you love.
+ - Many of us ask what can I, as one person, do, but history shows us that everything good and bad starts because somebody does something or does not do something.
+ - If the sea is sick, we’ll feel it. If it dies, we die. Our future and the state of the oceans are one.
+ - With respect to the ocean being the heart of our blue planet: We are often asked, ‘How much protection is enough?’ We can only answer with another question: How much of your heart is worth protecting?
+ - The oceans deserve our respect and care, but you have to know something before you can care about it.
+ - Places change over time with or without oil spills, but humans are responsible for the Deepwater Horizon gusher – and humans, as well as the corals, fish and other creatures, are suffering the consequences.
+ - Our past, our present, and whatever remains of our future, absolutely depend on what we do now.
+ - Even if you never have the chance to see or touch the ocean, the ocean touches you with every breath you take, every drop of water you drink, every bite you consume. Everyone, everywhere is inextricably connected to and utterly dependent upon the existence of the sea.
+ - Every time I slip into the ocean, it’s like going home.
+ - Earth as an ecosystem stands out in the all of the universe. There’s no place that we know about that can support life as we know it, not even our sister planet, Mars, where we might set up housekeeping someday, but at great effort and trouble we have to recreate the things we take for granted here.
+ - Everyone has power. But it doesn’t help if you don’t use it.
+ - Far and away, the greatest threat to the ocean, and thus to ourselves, is ignorance. But we can do something about that.
+ - The diversity of life on Earth, generally, is astonishing. But despite those large numbers, it’s also important to recognize that every species, one way or another, is vulnerable to extinction. And in our time on Earth our impact on the diversity of life has been profound.
+ - Humans are the only creatures with the ability to dive deep in the sea, fly high in the sky, send instant messages around the globe, reflect on the past, assess the present and imagine the future.
+ - We need to respect the oceans and take care of them as if our lives depended on it. Because they do.
+ - It doesn’t matter where on Earth you live, everyone is utterly dependent on the existence of that lovely, living saltwater soup. There’s plenty of water in the universe without life, but nowhere is there life without water.
+ - Great attention gets paid to rainforests because of the diversity of life there. Diversity in the oceans is even greater.
+ - The most important part is to take on the challenge of protecting the ocean as if your life depends on it-because it does.
+ - When I first ventured into the Gulf of Mexico in the 1950s, the sea appeared to be a blue infinity too large, too wild to be harmed by anything that people could do.
+ - Forty percent of the United States drains into the Mississippi. It’s agriculture. It’s golf courses. It’s domestic runoff from our lawns and roads. Ultimately, where does it go? Downstream into the gulf.
+ - By the end of the 20th century, up to 90 percent of the sharks, tuna, swordfish, marlins, groupers, turtles, whales, and many other large creatures that prospered in the Gulf for millions of years had been depleted by overfishing.
+ - I want everybody to go jump in the ocean to see for themselves how beautiful it is, how important it is to get acquainted with fish swimming in the ocean, rather than just swimming with lemon slices and butter.
+ - When I arrived on the planet, there were only two billion. Wildlife was more abundant, we were less so; now the situation is reversed.
+ - The sudden release of five million barrels of oil, enormous quantities of methane and two million gallons of toxic dispersants into an already greatly stressed Gulf of Mexico will permanently alter the nature of the area.
+ - We’ve got to somehow stabilize our connection to nature so that in 50 years from now, 500 years, 5,000 years from now there will still be a wild system and respect for what it takes to sustain us.
+ - If you think the ocean isn’t important, imagine Earth without it. Mars comes to mind. No ocean, no life support system.
+ - Nothing has prepared sharks, squid, krill and other sea creatures for industrial-scale extraction that destroys entire ecosystems while targeting a few species.
+ - Ice ages have come and gone. Coral reefs have persisted.
+ - I hope for your help to explore and protect the wild ocean in ways that will restore the health and, in so doing, secure hope for humankind. Health to the ocean means health for us.
+ - Sharks are beautiful animals, and if you’re lucky enough to see lots of them, that means that you’re in a healthy ocean. You should be afraid if you are in the ocean and don’t see sharks.
+ - I find the lure of the unknown irresistible.
+ - My parents moved to Florida when I was 12, and my backyard was the Gulf of Mexico.
+ - There’s something missing about how we’re informing the youngsters coming along about what matters in the world. We teach them the numbers and the letters, but we fail to communicate the importance of our connection to the living world.
+ - Just as we have the power to harm the ocean, we have the power to put in place policies and modify our own behavior in ways that would be an insurance policy for the future of the sea, for the creatures there, and for us, protecting special critical areas in the ocean.
+ - Why is it that scuba divers and surfers are some of the strongest advocates of ocean conservation? Because they’ve spent time in and around the ocean, and they’ve personally seen the beauty, the fragility, and even the degradation of our planet’s blue heart.
+ - The Exxon Valdez spill triggered a swift and strong response that changed policies about shipping, about double-hulled construction. A number of laws came into place.
+ - Look at the bark of a redwood, and you see moss. If you peer beneath the bits and pieces of the moss, you’ll see toads, small insects, a whole host of life that prospers in that miniature environment. A lumberman will look at a forest and see so many board feet of lumber. I see a living city.
+ - I love music of all kinds, but there’s no greater music than the sound of my grandchildren laughing; my kids, too.
+ - I am not in any hurry to grow up.
+ - The best scientists and explorers have the attributes of kids! They ask question and have a sense of wonder. They have curiosity. ‘Who, what, where, why, when, and how!’ They never stop asking questions, and I never stop asking questions, just like a five year old.
+ - We have become frighteningly effective at altering nature.
+ - Scientists never stop asking. They’re little kids who never grew up.
+ - Health to the ocean means health for us.
+ - Any astronaut can tell you you’ve got to do everything you can to learn about your life support system and then do everything you can to take care of it.
+ - Most of life on Earth has a deep past, much deeper than ours. And we have benefited from the distillation of all preceding history, call it evolutionary history if you will.
+ - I hope that someday we will find evidence that there is intelligent life among humans on this planet.
+ - People still do not understand that a live fish is more valuable than a dead one, and that destructive fishing techniques are taking a wrecking ball to biodiversity.
+ - America gains most when individuals have great freedom to pursue personal goals without undue government interference.
+ - As a child, I was aware of the widely-held attitude that the ocean is so big, so resilient that we could use the sea as the ultimate place to dispose of anything we did not want, from garbage and nuclear wastes to sludge from sewage to entire ships that had reached the end of their useful life.
+ - I’m haunted by the thought of what Ray Anderson calls ‘tomorrow’s child,’ asking why we didn’t do something on our watch to save sharks and bluefin tuna and squids and coral reefs and the living ocean while there still was time. Well, now is that time.
+ - We have been far too aggressive about extracting ocean wildlife, not appreciating that there are limits and even points of no return.
+ - If Darwin could get into a submarine and see what I’ve seen, thousand of feet beneath the ocean, I am just confident that he would be inspired to sit down and start writing all over again.
+ - This much is certain: We have the power to damage the sea, but no sure way to heal the harm.
+ - I actually love diving at night; you see a lot of fish then that you don’t see in the daytime.
+ - What we once used as weapons of war, we now use as weapons against fish.
+ - If we have a hope of really understanding our place in nature and of carving out a place for ourselves that is sustainable, it’s primarily because of the new level of communication. It used to be, ‘What you don’t have in your mind, you have on your shelf.’ But now we have the Web.
+ - I’ve always said, ‘Underwater or on top, men and women are compatible.’
+ - You don’t have to touch the ocean for the ocean to touch you.
+ - It’s mainly the high-end luxury market now that drives much of the fishing in the sea. It’s not feeding the starving millions. It’s feeding a luxury market.
+ - If somebody dumps something noxious in my back yard, the dumper is the last one I would call on to repair the damage.
+ - Success underwater depends mostly on how you conduct yourself. Diving can be the most relaxing experience in the world. Your weight seems to disappear. Space travel will be available only to a few individuals for some time, but the oceans are available to almost everyone – now.
+ - The Arctic is an ocean. The southern pole is a continent surrounded by ocean. The North Pole is an ocean, or northern waters. It’s an ocean surrounded by land, basically.
+ - Like a shipwreck or a jetty, almost anything that forms a structure in the ocean, whether it is natural or artificial over time, collects life.
+ - Our insatiable appetite for fossil fuels and the corporate mandate to maximize shareholder value encourages drilling without taking into account the costs to the ocean, even without major spills.
+ - All through college, I had frequently been the only girl in a science class – which wasn’t such a bad deal.
+ - In terms of personal choices, let’s all think more carefully about where we get our protein from.
+ - Meat reared on land matures relatively quickly, and it takes only a few pounds of plants to produce a pound of meat.
+ - Nearly all of the major kinds of life, divisions of life, phyla of animals, occur in the sea. Only about half of them can make it to land or freshwater.
+ - The concept of ‘peak oil’ has penetrated the hearts and minds of people concerned about energy for the future. ‘Peak fish’ occurred around the end of the 1980s.
+ - It has taken these many hundreds of millions of years to fine-tune the Earth to a point where it is suitable for the likes of us.
+ - Since the middle of the 20th century, more has been learnt about the ocean than during all preceding human history; at the same time, more has been lost.
+ - When I write a scientific treatise, I might reach 100 people. When the ‘National Geographic’ covers a project, it communicates about plants and fish and underwater technology to more than 10 million people.
+ - Rather than be afraid of evolution and try to stifle inquiry, people should revel in the joys of knowing and find a serenity and a joy in being a part the rest of life on Earth. Not apart from it, but a part of it.
+ - There is an enormous amount to be learned about the sea; like most wildernesses, it has great potential.
+ - The observations that have developed over the years have given us perspective about where we fit in. We are newcomers, really recent arrivals on a planet that is four and a half billion years old.
+ - I have lots of heroes: anyone and everyone who does whatever they can to leave the natural world better than they found it.
+ - I want to get out in the water. I want to see fish, real fish, not fish in a laboratory.
+ - Photosynthetic organisms in the sea yield most of the oxygen in the atmosphere, take up and store vast amounts of carbon dioxide, shape planetary chemistry, and hold the planet steady.
+ - I’m not against extracting a modest amount of wildlife out of the ocean for human consumption, but I am really concerned about the large-scale industrial fishing that engages in destructive practices like trawling and longlining.
+ - Some experts look at global warming, increased world temperature, as the critical tipping point that is causing a crash in coral reef health around the world. And there’s no question that it is a factor, but it’s preceded by the loss of resilience and degradation.
+ - I personally have stopped eating seafood.
+ - Evolution is not something to be feared. It’s to be celebrated, embraced, and understood.
+ - It’s a fact of life that there will be oil spills, as long as oil is moved from place to place, but we must have provisions to deal with them, and a capability that is commensurate with the size of the oil shipments.
+ - The end of commercial fishing is predicted long before the middle of the 21st century.
+ - Protecting vital sources of renewal – unscathed marshes, healthy reefs, and deep-sea gardens – will provide hope for the future of the Gulf, and for all of us.
+ - I’ve had the joy of spending thousands of hours under the sea. I wish I could take people along to see what I see, and to know what I know.
+ - We are all together in this, we are all together in this single living ecosystem called planet earth.
+
+90 quotes

@@ -1,0 +1,125 @@
+ - Another world is not only possible, she is on her way. On a quiet day, I can hear her breathing.
+ - If you’re happy in a dream, does that count?
+ - The trouble is that once you see it, you can’t unsee it. And once you’ve seen it, keeping quiet, saying nothing, becomes as political an act as speaking out. There’s no innocence. Either way, you’re accountable.
+ - Use your art to fight.
+ - Things can change in a day.
+ - D’you know what happens when you hurt people?’ Ammu said. ‘When you hurt people, they begin to love you less. That’s what careless words do. They make people love you a little less.
+ - That’s what careless words do. They make people love you a little less.
+ - Literature is the opposite of a nuclear bomb.
+ - And the air was full of Thoughts and Things to Say. But at times like these, only the Small Things are ever said. Big Things lurk unsaid inside.
+ - Change is one thing. Acceptance is another.
+ - Nationalism of one kind or another was the cause of most of the genocide of the twentieth century. Flags are bits of colored cloth that governments use first to shrink-wrap people’s minds and then as ceremonial shrouds to bury the dead.
+ - People always loved best what they identified most with.
+ - Empathy may be the single most important quality that must be nurtured to give peace a fighting chance.
+ - Non-violence is a piece of theatre. You need an audience. What can you do when you have no audience?
+ - One beach-colored. One brown. One Loved. One Loved a Little Less.
+ - The only dream worth having, I told her, is to dream that you will live while you’re alive and die only when you’re dead.
+ - It was a time when the unthinkable became the thinkable and the impossible really happened.
+ - Humans are animals of habit.
+ - Wars are never fought for altruistic reasons. They’re usually fought for hegemony, for business. And then of course there’s the business of war.
+ - What came for them? Not death. Just the end of living.
+ - She wore flowers in her hair and carried magic secrets in her eyes. She spoke to no one. She spent hours on the riverbank. She smoked cigarettes and had midnight swims...
+ - India lives in several centuries at the same time. Every night outside my house I pass a road gang of emaciated laborers digging a trench to lay fiber optic cables to speed up digital revolution. They work by the light of a few candles.
+ - The American way of life is not sustainable. It doesn’t acknowledge that there is a world beyond America.
+ - Her grief grieved her. His devastated her.
+ - The mullahs of the Islamic world and the mullahs of the Hindu world and the mullahs of the Christian world are all on the same side. And we are against them all.
+ - If we were to lose the ability to be emotional, if we were to lose the ability to be angry, to be outraged, we would be robots. And I refuse that.
+ - Terrorism is the symptom, not the disease.
+ - Pointed in the wrong direction, trapped outside their own history and unable to retrace their steps because their footprints had been swept away.
+ - I do what I do, and write what I write, without calculating what is worth what and so on. Fortunately, I am not a banker or an accountant. I feel that there is a time when a political statement needs to be made and I make it.
+ - Is globalization about ‘the eradication of world poverty,’ or is it a mutant variety of colonialism, remote controlled and digitally operated?
+ - The way her body existed only where he touched her. The rest of her was smoke.
+ - As a woman who grew up in a village in India, I’ve spent my whole life fighting tradition. There’s no way that I want to be a traditional Indian housewife.
+ - Fascism itself can only be turned away if all those who are outraged by it show a commitment to social justice that equals the intensity of their indignation.
+ - I think that I was quite a grown-up child, and I have been a pretty childish adult.
+ - Either way, change will come. It could be bloody, or it could be beautiful. It depends on us.
+ - The crisis of modern democracy is a profound one. Free elections, a free press and an independent judiciary mean little when the free market has reduced them to commodities available on sale to the highest bidder.
+ - Ammu said that human beings were creatures of habit, and it was amazing the kind of things one could get used to.
+ - Little events, ordinary things, smashed and reconstituted. Suddenly, they become the bleached bones of a story.
+ - Poverty is a crime and the poor are terrorists.
+ - Smells, like music, hold memories. She breathed deep, and bottled it up for posterity.
+ - If he touched her, he couldn’t talk to her, if he loved her he couldn’t leave, if he spoke he couldn’t listen, if he fought he couldn’t win.
+ - Of course, there’s an alternative to terrorism: it’s called justice.
+ - The NGO-ization of politics threatens to turn resistance into a well-mannered, reasonable, salaried, 9-to-5 job. With a few perks thrown in. Real resistance has real consequences. And no salary.
+ - I am completely a loner. In my head I want to feel I can be anywhere. There is a sort of recklessness that being a loner allows me.
+ - NGOs are dangerous. They do what the missionaries used to do in Colonial times. They are Trojan Horses. The worse the situation, the more the NGOs.
+ - To annihilate indigenous populations eventually paves the way to our own annihilation. They are the only people who practice sustainable living. We think they are relics of the past, but they may be the gatekeepers to our future.
+ - Railing against the past will not heal us. History has happened. It’s over and done with. All we can do is to change its course by encouraging what we love instead of destroying what we don’t.
+ - Fiction is truth. I think fiction is the truest thing there ever was. My whole effort is to remove that distinction. The writer is the midwife of understanding. It’s very important for me to tell politics like a story, to make it real.
+ - Flat muscled and honey coloured. Sea secrets in his eyes. A silver raindrop in his ear.
+ - Here they learned to Wait. To Watch. To think thoughts and not voice them.
+ - People rarely win wars, governments rarely lose them. People get killed. Governments moult and regroup, hydra-headed. They use flags first to shrink-wrap people’s minds and smother thought, and then as ceremonial shrouds to bury their willing dead.
+ - Insanity hovered close at hand, like an eager waiter at an expensive restaurant.
+ - To stay quiet is as political an act as speaking out.
+ - In a country like India, the British were only able to rule the country because it had completely co-opted the elite of the country, who did their work for them.
+ - Madness slunk in through a chink in History. It only took a moment.
+ - We need a new kind of politics. Not the politics of governance, but the politics of resistance. The politics of opposition. The politics of joining hands across the world and preventing certain destruction.
+ - Wars are never fought for altruistic reasons.
+ - Sometimes there’s truth in old cliches. There can be no real peace without justice. And without resistance there will be no justice.
+ - Some things come with their own punishments.
+ - He folded his fear into a perfect rose. He held it out in the palm of his hand. She took it from him and put it in her hair.
+ - Nationalism of one kind or another was the cause of most of the genocide of the twentieth century.
+ - That it really began in the days when the Love Laws were made. The laws that lay down who should be loved, and how. And how much.
+ - Dams are the temples of secular India and almost worshipped. They are huge, wet cement flags that wave in our minds. They’re the symbol of nationalism to many.
+ - There is a war that makes us adore our conquerors and despise ourselves.
+ - Many people have accused me of having a romantic view, whereas I personally I feel sorry for those who have lost romance in their lives.
+ - NGOs have a complicated space in neoliberal politics. They are supposed to mop up the anger. Even when they are doing good work, they are supposed to maintain the status quo. They are the missionaries of the corporate world.
+ - This was the trouble with families. Like invidious doctors, they knew just where it hurt.
+ - The only good thing about nuclear war is that it is the single most egalitarian idea that man has ever had. On the day of reckoning, you will not be asked to present your credentials. The devastation will be indiscriminate.
+ - And there it was again. Another religion turned against itself. Another edifice constructed by the human mind, decimated by human nature.
+ - It is true that success is the most boring thing, it is tinny and brittle, failure runs deeper. Success is dangerous. I have a very complicated relationship with that word.
+ - I am a Maoist sympathiser. I’m not a Maoist ideologue, because the communist movements in history have been just as destructive as capitalism.
+ - It is after all so easy to shatter a story. To break a chain of thought. To ruin a fragment of a dream being carried around carefully like a piece of porcelain. To let it be, to travel with it, as Velutha did, is much the harder thing to do.
+ - Nothing mattered much. Nothing much mattered. And the less it mattered the less it mattered. It was never important enough. Because Worse Things had happened. In the country that she came from poised forever between the terror of war and the horror of peace Worse Things kept happening.
+ - I’m not ambitious. I don’t want to get anywhere, I don’t want anything more. I sometimes think that for me that is the real freedom, that I don’t want anything. I don’t want money or prizes. I want people to know that a war is going to be fought.
+ - Excitement always leads to tears.
+ - When she listened to songs that she loved on the radio, something stirred inside her. A liquid ache spread under her skin, and she walked out of the world like a witch.
+ - People who promote the free market and growth are far more romantic, and far more ideologically driven and blinded by their vision than somebody who goes in and comments about the beauty of a forest or the stars in the sky.
+ - Old. A viable die-able age.
+ - Nilekani’s technocratic obsession with gathering data is consistent with that of Bill Gates, as though lack of information is what is causing world hunger.
+ - There’s no division on my bookshelf between fiction and nonfiction. As far as I’m concerned, fiction is about the truth.
+ - The fact is that America’s weapons systems have made it impossible for anybody to confront it militarily. So, all you have is your wits and your cunning, and your ability to fight in the way the Iraqis are fighting.
+ - Sometimes I think the world is divided into those who have a comfortable relationship with power and those who have a naturally adversarial relationship with power.
+ - Let’s leave one alive so that it can be lonely.
+ - The American people ought to know that it is not them, but their government’s policies, that are so hated.
+ - He could do only one thing at a time. If he held her, he couldn’t kiss her. If he kissed her, he couldn’t see her. If he saw her, he couldn’t feel her.
+ - You begin to realize that hypocrisy is not a terrible thing when you see what overt fascism is compared to sort of covert, you know, communal politics which the Congress has never been shy of indulging in.
+ - Humbling was a nice word, Rahel thought. Humbling along without a care in the world.
+ - Heaven opened and the water hammered down, reviving the reluctant old well, greenmossing the pigless pigsty, carpet bombing still, tea-colored puddles the way memory bombs still, tea-colored minds.
+ - He held her as though she was a gift. Given to him in love. Something still and small. Unbearably precious.
+ - I feel ashamed that the new, nuclear, neo-liberal India thinks of itself as a ‘natural ally’ of Israel. Ever since India began to call itself an emerging superpower, it has become a slavish, groveling satellite state of the US.
+ - Being with him made her feel as though her soul had escaped from the narrow confines of her island country into the vast, extravagant spaces of his. He made her feel as though the world belonged to them - as though it lay before them like an opened frog on a dissecting table, begging to be examined.
+ - When she looked at him now, she couldn’t help thinking that the man he had become bore so little resemblance to the boy he had been. His smile was the only piece of baggage he had carried with him from boyhood into manhood.
+ - Margaret Kochamma’s tiny, ordered life relinquished itself to this truly baroque bedlam with the quiet gasp of a warm body entering a chilly sea.
+ - It is curious how sometimes the memory of death lives on for so much longer than the memory of the life that is purloined.
+ - My writing is translated into every Indian language, it’s distributed in pamphlets, in little private video things, it’s everywhere. So it’s a lovely pastime for the middle class to think of itself as the whole nation.
+ - Fiction is the most joyous, beautiful, sophisticated, wonderful thing in the world.
+ - There are things that you can’t do – like writing letters to a part of yourself. To your feet or hair. Or heart.
+ - So here we have it. The equivocating distinction between civilisation and savagery, between the “massacre of innocent people” or, if you like, “a clash of civilisations” and “collateral damage”. The sophistry and fastidious algebra of infinite justice.
+ - By then Esthappen and Rahel had learned that the world had other ways of breaking men. They were already familiar with the smell. Sicksweet. Like old roses on a breeze.
+ - When you say things like, ‘We have to wipe out the Taliban,’ what does that mean? The Taliban is not a fixed number of people. The Taliban is an ideology that has sprung out of a history that, you know, America created anyway.
+ - The strange thing about Roman soldiers in the comics was the amount of trouble they took over their armor and their helmets, and then, after all that, they left their legs bare. It didn’t make any sense at all. Weatherwise or otherwise.
+ - Acceptance spells death to a writer.
+ - But can we, should we, let apprehensions about the future immobilize us in the present?
+ - His gratitude widened his smile and bent his back.
+ - The Congress has historically played covert communal politics in order to create what in India we call vote banks where you pit one community against another and so on in order to secure votes.
+ - It is such a supreme folly to believe that nuclear weapons are deadly only if they’re used.
+ - Fiction and non-fiction are only different techniques of story telling. For reasons I do not fully understand, fiction dances out of me. Non-fiction is wrenched out by the aching, broken world I wake up to every morning.
+ - The UID is a corporate scam which funnels billions of dollars into the IT sector.
+ - She viewed ethnic cleansing, famine and genocide as direct threats to her furniture.
+ - Making bombs will only destroy us. It doesn’t matter whether we use them or not. They will destroy us either way.
+ - The world’s ‘freeest’ country has the highest number in prison.
+ - I am an artist and a writer, and I do think that one always places oneself in the picture to see where one fits.
+ - They looked at each other. They weren’t thinking anymore. The time for that had come and gone. Smashed smiles lay ahead of them. But that would be later. Lay Ter.
+ - Torture has been privatized now, so you have obviously the whole scandal in America about the abuse of prisoners and the fact that, army people might be made to pay a price, but who are the privatized torturers accountable to?
+ - Have we raised the threshold of horror so high that nothing short of a nuclear strike qualifies as a ‘real’ war? Are we to spend the rest of our lives in this state of high alert with guns pointed at each other’s heads and fingers trembling on the trigger?
+ - You have come to a stage where you almost have to work on yourself. You know, on finding some tranquility with which to respond to these things, because I realize that the biggest risk that many of us run is beginning to get inured to the horrors.
+ - If you’re not religious, then look at it this way. This world of ours is four thousand, six hundred million years old. It could end in an afternoon.
+ - The people who created the crisis will not be the ones that come up with a solution.
+ - With the certitude of a true believer, Vellya Paapen had assured the twins that there was no such thing in the world as a black cat. He said that there were only black cat chaped holes in the universe.
+ - Going to Oxford didn’t necessarily make a person clever.
+ - I really worry about these political people that have no personal life. If there’s nothing that’s lovely, and if there’s nothing that’s just ephemeral, that you can just lie on the floor and bust a gut laughing at, then what’s the point?
+ - All my books are accidental books – they come from reacting to things and thinking about things and engaging in a real way. They are not about, ‘Oh, did it get a good review in the Guardian?’ I don’t care.
+ - I think many people were surprised by the victory of the Congress, because it was really hard to see beyond the sort of haze of hatred that the Hindu nationalists had been spreading.
+
+123 quotes

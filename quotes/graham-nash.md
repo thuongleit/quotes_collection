@@ -1,0 +1,38 @@
+ - There really is a kind of insane beauty around us all the time. It’s just a question of learning to slow down, take a deep breath and meet the moment.
+ - Life is not perfect. It never will be. You just have to make the very best of it, and you have to open your heart to what the world can show you; and sometimes it’s terrifying, and sometimes it’s incredibly beautiful, and I’ll take both. Thanks.
+ - Let me in, immigration man, can I cross the line and pray, I can stay another day? Won’t you let me in, immigration man? I won’t toe your line today, I can’t see it anyway.
+ - Rules and regulations, who needs them. Open up the door, we can change the world.
+ - If every human being disappeared off the face of the earth in an instant, the earth would still keep spinning and the planet would develop new life forms.
+ - You know, every year has been fantastic for me, I’m still here, I’m still alive and it’s been fantastic.
+ - All the signs were right. And when I mean all the sings were right, the only signs that we care about when we start a project of making a record is, do we have the songs – it’s that simple.
+ - There is a great correlation between music and images.
+ - Teach your children well, so they don’t live in off-campus group houses and throw loud parties while I’m trying to sleep.
+ - I don’t have to ask anyone’s permission to do anything. It’s nice not have to get decisions out of three, sometimes four people, which can be like pulling teeth. So the amount of control that I have over what I’m doing is better for me as a solo artist.
+ - I’m curious about life, period.
+ - This digital world is completely fascinating to me.
+ - When I was born in 1942, World War II was still going. And I began to realize when I became a young adult that if we don’t teach our kids a better way of relating to their fellow human beings, the very future of humanity on the planet is in jeopardy.
+ - I only do solo albums when songs are screaming at me to be let out of my mind.
+ - The Hollies, after I left in 1968, had the audacity, the gall, to have three number one records after I left. Thanks a lot, guys.
+ - Just with the basic one guitar, one piano and one vocal and an audience, I think that the intimacy comes through more. People feel much more connected to the song because there’s nothing in the way, and I actually enjoy doing that.
+ - One can’t deny what has happened to us in the past. The secret is to enjoy and be proud of the music we’ve created and the people with whom we have been linked. It’s all a long chain of involvement in the world, and we are proud to be yet another link in this chain.
+ - I wasnt thinking of the longevity of any of my songs, but I am extremely pleased with the lasting effect.
+ - We can’t forget what happened on May 4th, 1970, when four students gave up their lives because they had the American constitutional right of peaceful protest. They gave up their lives. And to sing that song in that spot on that anniversary was very emotional for us.
+ - I’m not so sure that people consider homelessness to be as important as, say, the Vietnam War. One should never even try to equate them because, of course, they’re tragedies on both sides of the coin.
+ - I began to realize that photographs, these still images, have a tremendous power to move your soul. They can change your life by what you choose to get out of them, and I started to collect photographs.
+ - If I read or listened to critics of our music. I’d have been discouraged a long time ago.
+ - My parents recognized something in me that they encouraged instead of deflated, and I’ll always be grateful to them for that.
+ - After six or seven performances of any song, you begin to perform it rather than feel it.
+ - There are always new things to experience, internalize then write about. This process is ongoing with me. It never stops. The opportunity to reach new audiences with all of the music that we have made is thrilling.
+ - People like Beck and Shawn Colvin are some of the people I listen to lately.
+ - Being in a different band always brings great musical experiences to be able to draw on.
+ - Generally, my writing is influenced by living, by absorbing everything that happens to me and my actions.
+ - I’ve been listening to a lot of Hollies stuff lately, and it’s beginning to sound pretty good to me.
+ - Wealth and fame can only be so important in the face of musical magic.
+ - I find it somewhat difficult to write with other people, although it has happened occasionally.
+ - I mean, there’s times to rock and roll, and I love that too. But I think my first love is acoustic music.
+ - Do you know anybody under 25 that gives a damn whether you marry a man if you’re a man or if you marry a woman if you’re a woman? No.
+ - I don’t shoot kittens with balls of wool. I don’t shoot sunsets. What draws me? Ironic, surreal, unexplained, timely moments.
+ - I still have an insane drive to create and express myself, and it’ll never stop because I don’t know how to stop it.
+ - I fail to see the issue that will shock the people of this great country of ours into some decisive action.
+
+36 quotes

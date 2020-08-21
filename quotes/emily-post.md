@@ -1,0 +1,54 @@
+ - Manners are a sensitive awareness of the feelings of others.
+ - Good manners reflect something from inside-an innate sense of consideration for others and respect for self.
+ - Whenever two people come together and their behavior affects one another, you have etiquette.
+ - Nothing is less important than which fork you use. Etiquette is the science of living. It embraces everything. It is ethics. It is honor.
+ - A gentleman does not boast about his junk.
+ - If you are hurt, whether in mind or body, don’t nurse your bruises. Get up and light-heartedly, courageously, good temperedly get ready for the next encounter. This is the only way to take life – this is also ‘playing’ the game!
+ - Never think, because you cannot write a letter easily, that it is better not to write at all. The most awkward note imaginable is better than none.
+ - Etiquette requires the presumption of good until the contrary is proved.
+ - Alas! it is true: “Be polite to bores and so shall you have bores always round about you.”
+ - Never so long as you live, write a letter to a man – no matter who he is – that you would be ashamed to see in a newspaper above your signature.
+ - A little praise is not only merest justice but is beyond the purse of no one.
+ - To do exactly as your neighbors do is the only sensible rule.
+ - The eleventh commandment, “Thou shalt not be found out” is despicable, but nevertheless, it is the one thing you can never get away from.
+ - No rule of etiquette is of less importance than which fork we use.
+ - To the old saying that man built the house but woman made of it a ‘home’ might be added the modern supplement that woman accepted cooking as a chore but man has made of it a recreation.
+ - Never say “Au revoir” unless you have been talking French, or are speaking to a French person.
+ - Jealousy is the suspicion of one’s own inferiority.
+ - The natural impulses of every thoroughbred include his sense of honor; his love of fair play and courage; his dislike of pretense and of cheapness.
+ - The honor of a gentleman demands the inviolability of his word, and the incorruptibility of his principles. He is the descendent of the knight, the crusader; he is the defender of the defenseless and the champion of justice – or he is not a gentleman.
+ - Ideal conversation must be an exchange of thought, and not, as many of those who worry most about their shortcomings believe, an eloquent exhibition of wit or oratory.
+ - Nothing appeals to children more than justice, and they should be taught in the nursery to “play fair” in games, to respect each other’s property and rights, to give credit to others, and not to take too much credit to themselves.
+ - Never take more than your share – whether of the road in driving your car, of chairs on a boat or seats on a train, or food at the table.
+ - Courtesy demands that you, when you are a guest, shall show neither annoyance nor disappointment – no matter what happens.
+ - To tell a lie in cowardice, to tell a lie for gain, or to avoid deserved punishment – are all the blackest of black lies.
+ - Any child can be taught to be beautifully behaved with no effort greater than quiet patience and perseverance, whereas to break bad habits once they are acquired is a Herculean task.
+ - To make a pleasant and friendly impression is not only good manners, but equally good business.
+ - There is a big deposit of sympathy in the bank of love, but don’t draw out little sums every hour or so – so that by and by, when perhaps you need it badly, it is all drawn out and you yourself don’t know how or on what it was spent.
+ - The good guest is almost invisible, enjoying him or herself, communing with fellow guests, and, most of all, enjoying the generous hospitality of the hosts.
+ - Manner is personality – the outward manifestation of one’s innate character and attitude toward life.
+ - The most vulgar slang is scarcely worse than the attempted elegance which those unused to good society imagine to be the evidence of cultivation.
+ - An overdose of praise is like 10 lumps of sugar in coffee; only a very few people can swallow it.
+ - In popular houses where visitors like to go again and again, there is always a happy combination of some attention on the part of the hostess and the perfect freedom of the guests to occupy their time as they choose.
+ - Elbows are never put on the table while one is eating.
+ - A gentleman should never take his hat off with a flourish.
+ - The letter we all love to receive is one that carries so much of the writer’s personality that she seems to be sitting beside us, looking at us directly and talking just as she really would, could she have come on a magic carpet, instead of sending her proxy in ink-made characters on mere paper.
+ - The joy of joys is the person of light but unmalicious humor.
+ - Training a child is exactly like training a puppy; a little heedless inattention and it is out of hand immediately; the great thing is not to let it acquire bad habits that must afterward be broken.
+ - Manners are made up of trivialities of deportment which can be easily learned if one does not happen to know them.
+ - A lady never asks a gentleman to dance, or to go to supper with her.
+ - The attributes of a great lady may still be found in the rule of the four S’s: Sincerity, Simplicity, Sympathy, and Serenity.
+ - The fault of bad taste is usually in over-dressing. Quality not effect, is the standard to seek for.
+ - It is impossible for a hatless woman to be chic.
+ - Houses without personality are a series of walled enclosures with furniture standing around in them. Other houses are filled with things of little intrinsic value, even with much that is shabby and yet they have that inviting atmosphere...
+ - Unconsciousness of self is not so much unselfishness as it is the mental ability to extinguish all thought of one’s self – exactly as one turns out the light.
+ - Custom is a mutable thing; yet we readily recognize the permanence of certain social values. Graciousness and courtesy are never old-fashioned.
+ - Rather be frumpy than vulgar! Much. Frumps are often celebrities in disguise – but a person of vulgar appearance is vulgar all through.
+ - Bread is like dressed, hats and shoes – in other words, essential!
+ - The only occasion when the traditions of courtesy permit a hostess to help herself before a woman guest is when she has reason to believe the food is poisoned.
+ - If God had intended for women to wear slacks, He would have constructed them differently.
+ - Golf is a particularly severe strain upon the amiability of the average person’s temper, and in no other game, except bridge, is serenity of disposition so essential.
+ - Excepting a religious ceremonial, there is no occasion where greater dignity of manner is required of ladies and gentlemen both, than in occupying a box at the opera. For a gentleman especially no other etiquette is so exacting.
+ - Never do anything that is unpleasant to others.
+
+52 quotes

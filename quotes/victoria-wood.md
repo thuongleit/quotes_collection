@@ -1,0 +1,31 @@
+ - Radio killed variety and TV killed radio, and the internet will kill television and it will go on and on.
+ - Life’s not fair, is it? Some of us drink champagne in the fast lane, and some of us eat our sandwiches by the loose chippings on the A597.
+ - If God had meant men to have children, he would have given them a PVC apron.
+ - Jogging is for people who aren’t intelligent enough to watch television.
+ - If God had meant them to be lifted and separated, He would have put one on each shoulder.
+ - Well, I think there’s not much of a chance for me finding somebody of my age. Gentlemen of my age are dropping down 30 years to find girlfriends.
+ - All my friends started getting boyfriends, but I didn’t want a boyfriend, I wanted a thirteen-colour biro.
+ - On a train, why do I always end up sitting next to the woman who’s eating the individual fruit pie by sucking the filling out through the hole in the middle?
+ - My mother, she didn’t believe in praise. She’d never say anything was great. I think that’s quite Northern, to not make people feel too good. I didn’t mind if she was proud of me or not, it didn’t bother me. I was never trying to please her.
+ - If you behave normally, people treat you normally. It’s only when you act as if you’re someone special that they feel obliged to stand on ceremony.
+ - You know daytime television? You know what it’s supposed to be for? It’s to keep unemployed people happy. It’s supposed to stop them running to the social security demanding mad luxuries like cookers and windows.
+ - A man is designed to walk three miles in the rain to phone for help when the car breaks down – and a woman is designed to say, ‘you took your time’ when he comes back dripping wet.
+ - Music is an element that should be part and parcel of every child’s life via the education system.
+ - In my 20s I was going round seeing agents who were patronising because I was fat and a girl, which was a double whammy. I knew what it was to feel out-of-the-loop.
+ - I haven’t got a waist. I’ve just got a sort of place, a bit like an unmarked level crossing.
+ - I like writing a lot more than I used to. I used to find it scary but now I’ve got used to it once it gets going. I used to find it hard to start. Fear of the blank page. The first thing you write down won’t bear any relation to what’s in your head and that’s always disappointing.
+ - I sometimes think that being widowed is God’s way of telling you to come off the Pill.
+ - Music enriches people’s lives in the same way paintings and literature do. Everybody deserves that.
+ - I’ve never understood the point of ecstasy. I think if I wanted to get dehydrated and jump about with a load of people I’ve never met before I could go to a Methodist barn dance.
+ - In Russia, show the least athletic aptitude and they’ve got you dangling off the parallel bars with a leotard full of hormones.
+ - I used to make my own food and ate on my own in my room.
+ - I can remember when pants were pants. You wore them for twenty years, then you cut them down for pan scrubs. Or quilts.
+ - I have stayed true to that first idea that people can have a day in their lives that is very important and if they can reconnect with that day, reconnect with the people they were then, they can suddenly revive their emotions.
+ - I know I’ve got a degree. Why does that mean I have to spend my life with intellectuals? I’ve got a lifesaving certificate but I don’t spend my evenings diving for a rubber brick with my pyjamas on.
+ - Acting is not my favourite thing. I don’t like wearing costumes and wigs.
+ - A lot of panel programmes rely on men topping each other, or sparring with each other, which is not generally a very female thing.
+ - In London it’s easy not to be the focus of attention, especially when Sting lives in the house just behind you.
+ - I once went to one of those parties where everyone throws their car keys into the middle of the room. I don’t know who got my moped, but I drove that Peugeot for years.
+ - People always think I hate doing interviews. I don’t. I wouldn’t do them if I didn’t like them.
+
+29 quotes

@@ -1,0 +1,21 @@
+ - The Force is neither light nor dark, master nor slave, but a balance between extremes.
+ - Humans crave knowledge, and when that craving ends, we are no longer human.
+ - Hate misleads, fear distorts and love blinds.
+ - Between a gasp and a sigh, a life can change forever.
+ - Love is harsh, and it consumes. And more than anything, it demands sacrifice.
+ - Dreams are life, real life, not simply reflections. Dreams are honest.
+ - At the heart of any poor soul not at one with the Force, there is only void.
+ - I like to think I’m positive and optimistic about things generally, but what I write does tend towards the darker end of the spectrum.
+ - Love is a warm brain, not a leaping heart.
+ - If you do not fear God, then fear your dreams, because they’re how He talks to you.
+ - Do you have to feel something for it to be real or mean anything? Can you touch your dreams, taste your imagination.
+ - The reaction to death is sometimes as violent as death itself. Shock throws a cautious coolness over your senses, but your stomach still has knots, your skin stings as if the Reaper is glaring at you as well.
+ - Voyaging great distances – through forests, from island to island, across plains and into the mountains – is all about finding ourselves.
+ - Nature is a big influence on my work. That’s where the cosmic element comes in, an awareness of the relevance of what we do as a species, why we do it, and its implications.
+ - Get an agent. Seriously, submitting stuff unagented means it will end up on the slush pile. An agent is the first quality filter, and a good agent is worth his or her weight in gold, as they’ll often know the editors on a personal level and will be able to talk to them directly about the project.
+ - To the discovered, the discoverer can be a god.
+ - Real fear is like intense pain. It’s there to warn you something’s truly wrong.
+ - Your life is a blank, and you’re barely a shade across it.
+ - Any writer takes inspiration from what they read and watch, and over their career works on forming their own voice. I think it was probably Stephen King who made me want to become a writer.
+
+19 quotes

@@ -1,0 +1,76 @@
+ - Liberals are Nazis, and Nazis are liberals. And if you don’t agree with me, you’re a Nazi too.
+ - A rising economic tide is bad for people who live off of the poverty of others.
+ - Cultures grow on the vine of tradition.
+ - The white male is the Jew of liberal fascism.
+ - I think there needs to be a meeting to set an agenda for more meetings about meetings.
+ - I like vengeance as much as the next guy, if the next guy likes vengeance a whole lot...
+ - When I see hipsters wearing Mao hats or Lenin T-shirts, I’m grateful. It’s like truth-in-labeling. For now I know you are: Woefully ignorant, morally stunted, purposively asinine, or all three.
+ - You know those Navy SEALs, they weren’t Democrats and Republicans. They were just doing what was best for America. Wouldn’t that be a great country if all of you Americans were just like that? You followed orders, you marched in step and you followed my agenda.
+ - Our country, if you read the ‘Federalist Papers,’ is about disagreement. It’s about pitting faction against faction, divided government, checks and balances. The hero in American political tradition is the man who stands up to the mob – not the mob itself.
+ - The Mars Polar Lander cost the average American the price of half a cheeseburger. A human lander would cost the average American more – perhaps even ten cheeseburgers! So be it. That is no great sacrifice.
+ - I’ve just returned from my daughter’s Halloween parade at grade school. She was supergirl – and she was perfect. And, even better, she still considers boys to be made of kryptonite.
+ - Simply because the nanny-state wants to hug you doesn’t mean it’s not tyrannical if you don’t want to be hugged.
+ - We’re all born idiots, and we only get over that condition as we get less young.
+ - Capitalism is the greatest system ever created for alleviating general human misery, and yet it breeds ingratitude.
+ - The search for a moral equivalent of war continues to define American liberalism to this day.
+ - When activists say we need to move past the partisan divide, what they mean is: Shut up and get with my program. Have you ever heard anyone say, “We need to get past all of this partisan squabbling and name-calling. That’s why I’m going to abandon all my objections and agree with you”?
+ - But this is the kind of ass-clownery that stems from the fact that all philosophy looks weird when you don’t have one.
+ - Keep Hope alive, particularly if Hope is the name of a very cute puppy and not some ill-defined abstraction that is in fact code for big government.
+ - And in the minds of progressives you are free to live anyway you want so long as it’s progressive.
+ - Are you a producer or a looter? If diversity were always and everywhere good we would be clamoring for more midgets in the NBA.
+ - America’s political system used to be about the pursuit of happiness. Now More and more of us want to stop chasing it and have it delivered.
+ - The Founders understood that democracy was important, but if you didn’t filter it through a republican system you’d be just as likely to end up with a tyranny of the majority as you would with a healthy society. Don’t worry, I won’t quote the Federalist Papers, but trust me, it’s in there.
+ - The more you socialize the costs of personal liberty, the more license you give others to regulate it.
+ - As we all know, the most effective lies are the ones sprinkled with the most actual truths.
+ - There’s nothing within science per se that says medical researchers must not experiment on human subjects; it is the imposition of ethical dogma that constrains the scientist.
+ - Progressivism was a sister movement of fascism, and today’s liberalism is the daughter of Progressivism.
+ - There is no – let me repeat – no example in the last quarter-century of a large, complex economy that has been successful with high taxes.
+ - I am just mystified by these people telling me I would think Obama was doing a great job if his skin contained less melanin.
+ - The government cannot love you, and any politics that works on a different assumption is destined for no good.
+ - You can see why the Marxist left would resist the idea that Hitler was a revolutionary. Because if he was, then either Hitler was a force for good, or revolutions can be bad.
+ - Facts are mere speed bumps on the road to lefty moral outrage.
+ - Science is wonderful at explaining what science is wonderful at explaining, but beyond that it tends to look for its car keys where the light is good.
+ - The premise of my book is that everyone is a bit ideological to some extent. Everyone comes from a ideological perspective.
+ - Dissent is morally neutral. You can correctly call yourself a dissident because you like to kick puppies, but at the end of the day, you’re just a jerk who likes to kick puppies.
+ - Someone once noted that a ‘gaffe’ in Washington is when a politician accidentally tells the truth.
+ - Progressivism, liberalism, or whatever you want to call it has become an ideology of power. So long as liberals hold it, principles don’t matter.
+ - Pragmatism is the disguise progressive and other ideologues do when they want to demonize competing ideologies.
+ - Today’s unions are less Mobbed-up than those of yesteryear to be sure, but they’re hardly above tactics that would be considered intimidating and coercive.
+ - In crude Marxist terms, liberals have a theory of infallible government that is constantly at war with the reality of life.
+ - Tip to all British tabloids: Do Not Hack Amy Winehouse’s Phone. I repeat: Do Not Hack Amy Winehouse’s Phone.
+ - If we say that anyone who ‘moralizes’ must be perfect morally then we are in effect saying no one can moralize.
+ - There was no intellectual movement in American history called social Darwinism. The people who were supposedly the leaders of the social Darwinist movement never embraced something called social Darwinism. It didn’t exist.
+ - Public unions are the country’s foremost advocates for increased taxes at all levels of government.
+ - One of the things that really drove me crazy was the way in which college kids, in particular, are educated to think that ideology is dangerous and bad.
+ - Joe Biden says the Wall Street crisis is the result of George W. Bush’s tax cuts, which makes as much sense as blaming the rising price of fairy dust. But as a wise man once asked, Who gives a rat’s patoot what Joe Biden thinks?
+ - Fascism isn’t a libertarian doctrine! It just isn’t, never will be and it can’t be cast as one.
+ - Obama did inherit a deficit when he came into office. Why this fact justifies racking up vastly more debt and bigger deficits is a logical mystery.
+ - Getting the support of Syria is the moral equivalent of winning the Klan’s endorsement – it might be useful but it doesn’t necessarily speak well of you.
+ - The truth is France has been the chief Western advocate of normalizing relations with Iraq – one of its largest trading partners – for years, partly because France holds billions in IOUs from Iraq that wouldn’t be redeemable by a new regime.
+ - But if the choice is a cool president and 8 or 10 percent unemployment in a declining economy and a country that seems to be going in the wrong direction and structural unemployment for young people at 50 percent, I’d rather have a dorky president who fixed those problems.
+ - Government money only pays for the “liberties” the government thinks you should have, and therefore it can determine how you exercise them. That turns liberties into privileges dispensed at the whim of the state.
+ - The problem with the United Nations is that while democracy within nations is the best available form of government, democracy among nations can be a moral disaster – especially if some nations are not democracies.
+ - Our fear of hypocrisy is forcing us to live in a world where gluttons are fine, so long as they champion gluttony.
+ - Tom Friedman says China is so awesome they make kosher pigs.
+ - And, of course, liberals see no problem with using the government to impose their cultural beliefs on others; they just won’t admit that’s what they’re doing.
+ - If you spend any time in Washington you’ll find nerds. What happens is most of them sublimate their fixations with comics, or baseball cards, or 1960s British comedies to policy minutiae and political arcana. But, like Christians in ancient Rome, you can still spot them if you know the signals.
+ - I think as – all in all, it’s better to have a cool president than a not cool president.
+ - Republican politics have been off-kilter for several years now because a large segment of the conservative base does not look back fondly on the Bush presidency.
+ - In Europe and America alike, voters increasingly recognize that the benefits of the green revolution aren’t worth the costs, particularly when the revolutionaries don’t have a clue what they’re doing.
+ - Seriously, in 2008 we elected a community organizer, state senator, college instructor first term senator over a guy who spent five years in a Vietnamese prison. And now he’s lecturing us about how America’s gone “soft”? Really?
+ - We are a species that must try to impose and find systems – systems of thought, ways of organizing and categorizing reality.
+ - I would also say Barack Obama has spent much, much, much, much more money than the Republicans.
+ - Social distinctions tend to matter only at your own level and above.
+ - Despite what you may have been taught about Indians or Africans or ancient Celts, poor people are terrible stewards of their environment. For instance, if my kid were starving to death, I would happily feed her fresh panda.
+ - Of course, it’s a mystery to me why any American who can’t be bothered to pay attention to politics unless Pamela Anderson is discussing it should be welcome in that conversation.
+ - Yes, I know liberals are more empirical because Jonathan Chait says they are, but my empirical studies of liberal empiricism keep spitting out contradictory findings.
+ - If you think shrinking government and getting it less involved in your life is a hallmark of tyranny it is only because you are either grotesquely ignorant or because you subscribe to a statist ideology that believes the expansion of the state is the expansion of liberty.
+ - The progressive notion of the state as a loving, caring parent is becoming a bipartisan affair.
+ - I suppose in John Kerry’s world good diplomacy lets the boys in the bar finish raping the girl for fear of causing a fuss. Okay, that was unfair.
+ - The GOP needs to figure out a way to become more appealing to new constituencies.
+ - If you write for the critics, only the critics will read you.
+ - Champions of Liberty get called Fascists by Champions of Statism.
+ - John Kerry is a sphincter. Okay, that’s a bit juvenile.
+ - Americans are very smart about the things they care about, and ignorant about the things they don’t.
+
+74 quotes

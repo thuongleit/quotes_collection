@@ -1,0 +1,502 @@
+ - No such thing as spare time, no such thing as free time, no such thing as down time. All you got is life time. Go.
+ - Change is hard, but change is good.
+ - I have found the Iron to be my greatest friend. It never freaks out on me, never runs. Friends may come and go. But two hundred pounds is always two hundred pounds
+ - I don’t have talent. I have tenacity.
+ - Strength is the product of struggle, you must do what others don’t to achieve what others won’t.
+ - Don’t think about it. Do it. Don’t talk about it. Do it.
+ - I’ll never forget how the depression and loneliness felt good and bad at the same time. Still does.
+ - Keep your blood clean, your body lean, and your mind sharp.
+ - I believe that when the body is strong, the mind thinks strong thoughts.
+ - You need a little bit of insanity to do great things.
+ - What goes best with a cup of coffee? Another cup.
+ - In winter, I plot and plan. In spring, I move.
+ - You must never lower yourself to being a person you don’t like.
+ - Loneliness adds beauty to life. It puts a special burn on sunsets and makes night air smell better.
+ - Pizza makes me think that anything is possible.
+ - I like how I write better than how I speak.
+ - It’s sad when someone you know becomes someone you knew.
+ - I love capitalism. It rewards me for being brave – it awards me for being innovative and thinking out of the box.
+ - You always know the mark of a coward. A coward hides behind freedom. A brave person stands in front of freedom and defends it for others.
+ - I can die anytime I want. I wish I could do the same with life.
+ - We know that in September, we will wander through the warm winds of summer’s wreckage. We will welcome summer’s ghost.
+ - A great way to learn about your country is to leave it.
+ - I got my heart broken. My spirit got shattered and mutilated. I will not be coming back from this. I don’t want to.
+ - If I lose the light of the sun, I will write by candlelight, moonlight, no light. If I lose paper and ink, I will write in blood on forgotten walls. I will write always. I will capture nights all over the world and bring them to you.
+ - Youth is fleeting and life is short, you might as well strike hard. Anything else is just average.
+ - My optimism wears heavy boots and is loud.
+ - I’m constantly around people that talk a lot but say nothing. A sad case.
+ - Respect is not a one way street.
+ - Scar tissue is stronger than regular tissue. Realize the strength, move on.
+ - The more you own, the more it owns you.
+ - Discipline is money in the bank. A real friend, true strength.
+ - I will never say the things that I want to say to you. I know the damage it would do. I love you more than I hate my loneliness and pain.
+ - Muscle mass does not always equal strength. Strength is kindness and sensitivity. Strength is understanding that your power is both physical and emotional. That it comes from the body and the mind. And the heart.
+ - The prison-industrial complex and the military-industrial complex are here with us and are multi-billion dollar enterprises. We can make more money off the kid in Compton if he’s a criminal instead of a scholar. It’s business.
+ - Without an education, you won’t have a future.
+ - No time for drug addiction, no time for smoke or booze. Too strong for a shortened life span, I’ve got no time to lose.
+ - The Iron is the best antidepressant I have ever found.
+ - Live music is the cure for what ails ya.
+ - We all learn lessons in life. Some stick, some don’t. I have always learned more from rejection and failure than from acceptance and success.
+ - Don’t push me I’ve got a corner at my back I’ve nowhere to go except over you.
+ - Books are cool, but knowledge without mileage doesn’t mean anything to me.
+ - I am primarily a loner. I don’t go to clubs. I don’t hang out with people. I don’t know many people. It’s just the way it ended up. It’s not a sob story; it’s fine for me.
+ - Do it or don’t. It’s amazing how many things in life are that easy.
+ - Yes, I guess you could say I am a loner, but I feel more lonely in a crowed room with boring people than I feel on my own.
+ - Love heals scars love left.
+ - Music keeps you young. Having music in your life keeps you open to things.
+ - Keep me preoccupied Keep me busy, busy, busy So I won’t have to think I don’t want to think Because it only brings me pain I just keep running away from My problems Keep me busy Give me a million things to do So I can keep running away from myself.
+ - The average is the borderline that keeps mere men in their place. Those who step over the line are heroes by the very act. Go.
+ - I think it is incumbent on anyone who can to lift human dignity to the highest possible levels, maintaining one’s own and helping to raise that of others.
+ - Life is death in slow motion.
+ - When you start to doubt yourself the real world will eat you alive.
+ - I continually remind myself to live by a code. It’s very important to me. I’ve got a bad temper.
+ - My feelings for you shame me into silence.
+ - Keep walking. Hot night right now, right here. All you have is what you are. All you want is much too much. All you get is so much less. All you feel is nothing. All you see is darkness. All you know is senseless and all you can do about it is ride.
+ - To justify being listened to, I try to be as well informed as I can. Hence, the travel. Reading is good too. Reading gets you part way there, and I do read pretty voraciously for a guy who’s trying to write so much.
+ - The scars will take me far, they always do.
+ - Friends come and go but 200lbs is always 200lbs.
+ - I don’t believe in fate or destiny. I believe in various degrees of hatred, paranoia, and abandonment. However much of that gets heaped upon you doesn’t matter – it’s only a matter of how much you can take and what it does to you.
+ - I believe that one defines oneself by reinvention. To not be like your parents. To not be like your friends. To be yourself. To cut yourself out of stone.
+ - Kids need parents who love and support them unconditionally, full stop.
+ - Somewhere someone is thinking of you. Someone is calling you an angel. This person is using celestial colors to paint your image. Someone is making you into a vision so beautiful that it can only live in the mind.
+ - The month of November makes me feel that life is passing more quickly. In an effort to slow it down, I try to fill the hours more meaningfully.
+ - Hating someone is giving them too much, just leave them alone.
+ - I’m a liar. I’ll rip your mind up. I’ll burn your soul, I’ll turn you in to me.
+ - Hope is the last thing a person does before they are defeated.
+ - I want a soul mate who can sit me down, shut me up, tell me ten things I don’t already know, and make me laugh. I don’t care what you look like, just turn me on.
+ - When the Iron doesn’t want to come off the mat, it’s the kindest thing it can do for you. If it flew up and went through the ceiling, it wouldn’t teach you anything.
+ - I’d like to rid myself of writing, to surrender, to release the venom. And hopefully at some point, I’ll be a happy, well-adjusted guy and I’ll have no need for all that ‘art.’
+ - To hate is to show you still care, who needs that, focus on what’s really important.
+ - It’ll destroy you if you try to make it mean anything to anyone but yourself.
+ - I want you bad like a natural disaster. You are all I see. You are the only one I want to know.
+ - Sitting in a room, alone, listening to a CD is to be lonely. Sitting in a room alone with an LP crackling away, or sitting next to the turntable listening to a song at a time via 7-inch single is enjoying the sublime state of solitude.
+ - I just get things done instead of talking about getting them done. I don’t go out and party. I don’t smoke, drink or do drugs and I’m not married, that leaves a lot of time for my work.
+ - I’m a recognizable person and some people feel the need for some reason to take me to task. You’re really messing with the wrong person on that one.
+ - Creating problems is easy. We do it all the time. Finding solutions, ones that last and produce good results, requires guts and care.
+ - I beg young people to travel...
+ - Don’t do anything by half. If you love someone, love them with all your soul.
+ - Smart people make good choices. They dig science and say ‘no’ to the invasion of sovereign nations for the pleasure of corporations.
+ - The world’s a better place since I chose music.
+ - War is very sad and small life is pathetically fragile at times.
+ - It’s not lost on me that everyone dies, but some people have a kind of immortality about them, and you can’t imagine that they will ever be gone.
+ - If I hear, ‘Be afraid of Tehran,’ I’m like, ‘I’d better go to Tehran.’
+ - Everyone who knows me knows that I’m a hopeless romantic who listens to love ballads and doo-wop songs all the time.
+ - In my world there would be as many public libraries as there are Starbucks.
+ - For me, speaking to anyone – on a stage, in an elevator – I am looking for impact and connection. The same goes for writing.
+ - The blues is losing someone you love and not having enough money to immerse yourself in drink.
+ - Girls aren’t beautiful, they’re pretty. Beautiful is too heavy a word to assign to a girl. Women are beautiful because their faces show that they know they have lost something and picked up something else.
+ - If the Constitution was a movie, the Preamble would be the trailer, the First Amendment the establishing shot, the 13th the crowd pleaser and the 14th the ultimate hero scene.
+ - I’m a professional food eater.
+ - I listen to blues music a lot and that’s a good person feeling bad and celebrating that pain by releasing it in that kind of joyous fashion.
+ - All by yourself, unable to express the pain of your distress with your deeper inside. You alienate yourself and everybody else.
+ - I’m 36 and if I met a woman of my own age and married her, I’d also be marrying her former life, her past. It might be OK for some people – I don’t want to judge it or anything – but it’s not for me. It would destroy my creativity.
+ - You don’t make me feel like you used to. That’s why I’m leaving That’s why people leave each other They come to their senses and get selfish again.
+ - The Civil Rights Act of 1964 was vigorously and vociferously opposed by the Southern states. President Lyndon B. Johnson signed it into law nonetheless.
+ - Always knowing you’re going to die And until then knowing you’ve got to live.
+ - I would like to be able to gently drift in and out of existence when I wanted to.
+ - The destructive power of a lie is stronger than the truth.
+ - I travel because I want to know. Books and documentaries will only get you so far. If you want to know, you will have to go.
+ - We came to the end, we found nothing. Nothing!!! And we cursed because we were hoping for so much less.
+ - It is impossible, after a certain point, to go back to a previous way of life, a previous way of thinking.
+ - There is no better way to fight weakness than with strength. Once the mind and body have been awakened to their true potential, it’s impossible to turn back.
+ - So I’m more at home with my backpack, sleeping in a hotel room or on a bus or on an airplane, than I am necessarily on a bed. It’s weird being here. It feels like I’m standing next to my real life.
+ - I’ll be here tomorrow If I can make it through today.
+ - The history of apartheid-era South Africa is incredibly sad and at times infuriatingly incomprehensible.
+ - I love being a storyteller. I love telling stories.
+ - Thank you for touching me. Some of the only moments worth living were spent with you. Not you especially, the collective you.
+ - I’ve always seen it as the role of an artist to drag his inside out, give the audience all you’ve got. Writers, actors, singers, all good artists do the same. It isn’t supposed to be easy.
+ - Luckily for me, I genuinely like my audience. They really are a good bunch.
+ - We are occupants. No one has any lasting purchase on life or on the planet.
+ - In blues music, there’s a lot of borrowing, so it’s often difficult to identify the originator of a song.
+ - I don’t have many friends so the phone doesn’t ring and no one’s asking me to go out and go dancing with them.
+ - I don’t try to be angry to prove something. I wouldn’t try to intimidate you for any reason unless you were trying to intimidate me, and then I would show you that you can’t do that to me.
+ - Weakness is what brings ignorance, cheapness, racism, homophobia, desperation, cruelty, brutality, all these things that will keep a society chained to the ground, one foot nailed to the floor.
+ - I think about the meaning of pain. Pain is personal. It really belongs to the one feeling it. Probably the only thing that is your own. I like mine.
+ - Joe Strummer, Johnny Rotten, and Ian MacKaye were all people who really made me see things differently.
+ - I feel pain everyday of my life. When you see me perform, it’s that pain you’re seeing coming out. I put all my emotions, all my feelings, and my body on the line. People hurt me, I hurt myself – mentally, physically.
+ - There’s one thing about Black Sabbath which should not be understated: If Black Sabbath is missing any one of its members it’s no longer Black Sabbath.
+ - My love runs deeper than the wounds.
+ - The best revenge is to always survive yourself.
+ - There’s a lot of mountain climbers trapped inside of bodies of people behind the counter at Kinko’s.
+ - I like people. Rightwingers don’t. They like business, they don’t care about people. I like education, they seem not to care much about it.
+ - Sometimes the truth hurts. And sometimes it feels real good.
+ - I’m packed with broken glass and memories and it all hurts.
+ - I am an employment hyena. I am happy to make a meal of what the lions leave behind.
+ - I can’t imagine being sixty years of age and playing music I wrote when I was in my twenties. I would rather sail the sea of consequence to new lands. Laps around the shallow end of the pool, not for me.
+ - I think self-reliance and self-responsibility and self-accountability will help you as a parent, a teacher, as a citizen as a friend.
+ - I prefer to work out alone. It enables me to concentrate on the lessons that the Iron has for me.
+ - I have to keep moving I don’t want to think I’m going to work all day today I don’t want to stop Don’t want to let my brain catch up my thoughts How will I be able to tell them that I’m a shadow A grey patch of cold rotting life.
+ - I just travel the world with my backpack and my cameras and a bunch of Clif bars.
+ - Best not to mix the past with the present. The present paints the past with gold. The past paints the present with lead.
+ - We are misery-making machines! Homo sapiens has perfected the art of causing suffering. Pain is humankind’s collective GDP.
+ - If American forces leave Afghanistan, the Taliban is going to do what to America? Don’t say you’re worried about what they will do to the Afghan people. If that was America’s concern, America’s operational presence there would be much different.
+ - I warn people, your 40s will require massive amounts of humor and humility.
+ - I believe that contentment or any sustained period of joy that doesn’t inspire thought that leads to action almost immediately is useless.
+ - Music to me is mankind’s greatest possible achievement because look at all the good it does.
+ - I am basically working 7 days a week. When I am not eating, sleeping, or working out, I am working on one of projects which I am just damned determined to finish.
+ - If you hate your parents, the man or the establishment, don’t show them up by getting wasted and wrapping your car around a tree. If you really want to rebel against your parents, out-learn them, outlive them, and know more than they do.
+ - I don’t really have any women in my life, actually those two – the women in my life are two married women who work at my office.
+ - Nothing brings people together more, then mutual hatred.
+ - Voting is completely important. People in America think democracy is a given. I think of it as an ecosystem, and what gets in the way of it is politicians and apathy.
+ - I am too far gone to be rehabilitated.
+ - No child asks to get born, so when they are here, they should be shielded from any possible horror.
+ - I believe that one defines oneself by reinvention.
+ - I know you’ll never love me but maybe you’ll stay for awhile.
+ - There is no place in the world like Australia. Not even its beautiful neighbor New Zealand.
+ - Don’t let despair mutate your flesh Look at my twisted stumps of thought See the fingers, listen to the voice I am slowly becoming the end of the line.
+ - I think of the thrill of an intelligent woman talking just to me.
+ - There’s tons of junk food for your mind on the Internet. You can sit there for three or 10 or 20 hours a day getting in online arguments with other people who also choose to waste their time.
+ - Being an artist is dragging your innermost feelings out, giving a piece of yourself, no matter in which art form, in which medium.
+ - I don’t think you’ll ever have a perfect world because we humans are prone to error, and so we’re always in search of an upgrade.
+ - You can’t get your head around something if you’re yelling.
+ - Between the Dinosaur Jr. albums and his recent solo albums, ‘Several Shades of Why’ and ‘Heavy Blanket,’ J Mascis is emerging as one of the last men from all that ’80s indie madness, still writing songs that you want to listen to over and over.
+ - I am well protected Too locked up Inside myself To get free.
+ - Pride is not a word or sentiment I can ascribe to anything I have done or do. As far as regret, it is a luxury I can not afford. Anything I did, that was bad or wrong or regretful, I stand accused, I am guilty and I’m ready to serve my time.
+ - I have no pride about anything I have done. It’s just not the way I think about things. I do the work, always, as hard as I can, to the point of pain, injury, exhaustion, if that is what it takes. Once I am done, I move on.
+ - Cynicism is only intellectual sloth.
+ - Desperation is the secret to my steady employment. I am not interested in downtime. I really like to keep working all the time and I always feel like I’m in the mail room of life; working up.
+ - The public library system of the United States is worth preserving.
+ - If there was a god, he wouldn’t let a guy walk right up and shoot you in the face now would he? That’s right, now you get the picture. Truth burns doesn’t it?
+ - You can still function as a living ruin.
+ - I have always identified with Joan Didion’s depiction of Los Angeles and Southern California, ever since reading ‘Play It As It Lays,’ ‘Slouching Towards Bethlehem’ and ‘The White Album.’
+ - Dinosaur Jr. in their live capacity are a band that put me in a state of such overwhelming rock that it often takes quite a while to come down.
+ - Now and then, someone is able to look at an empty space, conclude it would be a great place to start a revolution, and bravely go forward.
+ - When she comes She pulls you close She breathes in short bursts Her eyes close Her head tilts back Her mouth opens slightly Her thighs turn to steel, and then melt She is perfect And you feel like you are everything.
+ - I want to learn more about the world. It makes me want to get up and go.
+ - I have to do things for myself, and if those standards are set high, then it’s up to me to pass or fail.
+ - The bible saw that can get a lot of people killed, so let’s try and steer people away from that. I am not an expert on the bible. I am just saying.
+ - We’re at peak oil, peak water, peak resources, and so either we figure it out and let science lead or we head down a very bad, dark trail to where a lot of people aren’t going to make it.
+ - Like a lot of inwardly drawn young people, I spent a lot of time in libraries. At my high school, I often spent my lunch breaks there.
+ - I definitely learned a lesson this time. I know that I can be broken. I am not as tough as I thought. I see it now. At this point, it’s the only thing good that came out of all of this. I know myself better now and know what I have to do.
+ - Collecting records is, for many, beyond a hobby.
+ - An appreciation of animals is good for a human, it can lead to a better understanding and respect for all living things.
+ - We city dwellers, we residents of Los Angeles and the surrounding areas, are for the most part urbanized to some extent. We know deadlines, start times and traffic.
+ - I’d love to talk to Janeane Garafalo or Randi Rhodes or Stephanie Miller from Air America. I’m an Air American junkie; I listen to them every day.
+ - I’m terrified of motorcycles. I’ve been on one a couple of times. I did not like it.
+ - I don’t mind bees and think we are all the better for having them around. I like the taste of honey.
+ - As miserable as life may be I hold it pretty precious.
+ - You want to meet a bunch of really friendly people? Go to a Slayer concert. There’ll be some real psychos there, but most of those people will take care of each other.
+ - I’m so burned out, the only person I can stand is myself. I’m the only one I would put through this. Wheels and wings, The ride is everything. I’m all I’ve got. I’m all I can take. Another day has destroyed a part of me. So far so good.
+ - When you hear about what someone else is going through, and you are unable to distance yourself from it or in any way muzzle your empathy and are inspired to actually do something, these are moments to learn from.
+ - I get tired of talking when I want to be silent.
+ - August brings into sharp focus and a furious boil everything I’ve been listening to in the late spring and summer.
+ - Once you say something, it stays said. I apologized to anyone who may have been hurt by what I said, and I really meant it. I am absolutely not interested in hurting anyone, or being mean or insensitive.
+ - It’s easy for me to play bad guys because it’s a very linear acting. Bad guys aren’t empathetic. Being a bad guy is great because you’re not friendly and you don’t have to do much with your face.
+ - It’s so painful to be next to someone you feel strongly about and know you can’t say the things you want to.
+ - I never thought about getting any tattoos removed.
+ - There’s got to be someone for me. It’s not too much to ask. Just someone to be with. Someone to love. Someone to give everything to. Someone.
+ - My fear is naked, I’m naked and fearless, and my fear is naked!
+ - Death metal uses a lot of white face paint and black hair dye to make its point. I quite enjoy this genre for its intensity, extremism and underlying irony: You have to be alive to play it and listen to it.
+ - Disappointment always arrives before hope and the darkness of night comes before the dawn. Don’t lose hope now because things will brighter with the new day.
+ - To combat the confusion and depression that assault me when I come off the road in the middle of a tour, I seek the most oblivionated music possible. When it’s the ‘way out there’ that I seek, I go right to my stash of amazing music from Japan.
+ - Break from self rejection, try some introspection.
+ - August, the summer’s last messenger of misery, is a hollow actor.
+ - I like it better that people aren’t throwing stuff at my face and trying to fight me on stage. Like in the ’80s, it was just aggravating all the time. I have scars from cigars and cigarettes on me, Bic pens, burns from cigarette lighters, all that.
+ - I could fall in love with a cruel desert that kills without passion, a canyon full of scorpions, one thousand blinding arctic storms, a century sealed in a cave, a river of molten salt flowing down my throat. But never with you.
+ - When I read that Malaysia Airlines flight MH370 had disappeared – a state-of-the-art Boeing 777, said to be an incredibly safe way to travel – I waited patiently for the chance to learn what happened.
+ - I didn’t want to work at Pizza Hut and I didn’t want to join the Army. So I just decided to go out and be awesome.
+ - For many years, I tried to make New Year’s resolutions. I made lists and shot for great heights: I would show altruism and exert moral strength, patience and all those other great attributes.
+ - How memories lie to us. How time coats the ordinary with gold. How it breaks the heart to go back and attempt to re-live them. How crushed we are when we discover that the gold was merely gold-plating thinly coated over lead, chalk and peeling paint.
+ - I do my best to limit the amount of compromise in my life so I have more time to do what I want. Not hanging out with many people really helps. I am not a people person and I spend a great deal of time on my own and in this environment, I get a lot done.
+ - I am neither pro- nor anti-gun. I am gun-conscious.
+ - I don’t hate people – not remotely other than they make you crazy in traffic, but as I get older I kind of see more and more why people do what they do.
+ - I’m usually busy – if you call me at the house, I get about four phone calls there a year – I’m usually running around the house with a pen in my mouth holding onto something, folding it, or doing something to it, and it’s always a bad time.
+ - I’d defend myself. But I don’t go around shoving people around; that’s not me at all – that’s for a cop. I’m not into that type of behavior at all.
+ - There’s no such thing as an ex-junkie.
+ - Misery, depression, elation all mine, refine confinement all my design.
+ - I believe in North, South, East, West, The seasons, life and death, geography. That which is provable, absolute and most of all, functional. I believe in things that can kill me.
+ - Is it a shame that I can’t accept love? Am I too burned out to move towards what will keep me alive or too smart to get pulled into someone else’s world?
+ - We spend millions of dollars to remove pain from our lives. It’s why so many people get hooked on painkillers. The body becomes addicted to painlessness. That tells you a lot.
+ - When I die, the world dies with me. I’d really like to leave it better than how I found it and I’m doing what I can to effect that.
+ - When I am in Africa, I always have the feeling that it’s where everything started. When I am in New York, I know it is where everything ended up.
+ - I will do my best to dodge tonight’s depression Hide in sleep Damage myself in dreams Wake up older, slightly more used.
+ - South Sudan is one of the most hard-put places in the world.
+ - Bono actually gets a lot of substantial work done. The guy really does put a lot of things together and, while I’m not a fan of his music, I greatly applaud his humanitarian efforts.
+ - Every politician, every president gets votes by getting people that don’t like him to like him. That’s why politicians are slippery: because they talk out of both sides of their mouth.
+ - When Black Flag and DOA and all those bands were touring in the early 80s, it was kind of a forest and you just kind of got your way through it. Now it’s like a six lane highway with Starbucks every twenty meters. That’s just civilization.
+ - I see violence in myself; I’ve done some pretty violent things in my lifetime and I’ve been around some pretty severe violence all the way up to homicide.
+ - There is not one single police officer in America that I am not afraid of and not one that I would trust to tell the truth or obey the laws they are sworn to uphold. I do not believe they protect me in any way.
+ - I don’t want to pass through life like a smooth plane ride.
+ - Retirement in another country is your body is too racked with pain and your hands are too arthritic from the life in the rice patty fields, so you can’t work anymore.
+ - Every summer, around late July and into August, I find myself in Europe, performing at any festival that will have me.
+ - Life is a hurdle and you’ll never clear it. Death is the end of the ride and you fear it.
+ - Love is self deception. I am a living creature. Hate is only self love. I am a double feature.
+ - You are the untold story. You are the impassioned truth wanting to scream its existence, to be forever trapped by a strong hand clapped firmly over the mouth of my soul.
+ - I’m not artistic nor am I all that creative.
+ - Here in this moment we are beautiful, nocturnal creatures and our thoughts and words are jewels guarded by the moon.
+ - Help me to withstand your beauty as it stands out of reach. Give me the capacity to forget ever having felt your touch.
+ - I’m mellower now, I’m over 50. But I don’t think I’m too mellow. I’m still angry at a lot of things.
+ - I’m not a thrill seeker. I’m not looking to get kidnapped. I’m not looking to get a shot at. I’ve been shot at. I didn’t like it.
+ - I think more tolerance, more people having more access to a chance to be literate, and a chance to stay healthy makes for a more peaceful planet.
+ - Life will not break your heart. It’ll crush it.
+ - Anyone who wants to help me doesn’t. Anyone who wants to kill me might. Anyone who wants to love me better not.
+ - I am a veteran of the War on Christmas. I am just emerging from a battlefield strewn with dead trees and torn shreds of brightly colored wrapping paper.
+ - Am I self-righteous? Why not? It’s not like I can count on you to be righteous for me.
+ - A rose trapped inside a fist.
+ - Football is at least as ‘gay’ as rugby, Greco-Roman wrestling and the film ‘300.’
+ - The material you work with is that which you will come to resemble. That which you work against will always work against you, including yourself.
+ - I used to sit on the roof of the apartment where Jim Morrison used to write his early lyrics.
+ - Entertainment’s hard on the ego. I see why actors are so psycho now. Because there’s so much ‘we don’t want you’ going on in acting. Even big people get rejected but the smaller people – they really get rejected. Trust me – I know.
+ - Maybe I’m ego-tripping, but I don’t find myself a particularly horrible person, so I don’t think I need to hold back anything I think or feel.
+ - In fact, every place I’ve been to in Africa has a nice part, but you see the downside. Calcutta, parts of Central and South America, I’ve seen a lot of dead bodies and a lot of sad poverty and just obliteration.
+ - Some soldier will say, ‘You know, sir, you and I have some political disagreements, but I’m glad you came all the way out here.’ And you know, you say, ‘Well, maybe one day you’ll see the light but I’m glad to be out here with you.’
+ - Whenever I write lyrics, in the back of my mind I always see a guy driving to work, driving to a really bad job, one of those horrible institutions, or one of those low squat buildings in Los Angeles. I write with that person in my mind.
+ - Sarah Palin embarrasses herself almost immediately upon opening her mouth to speak or upon moving her fingers to send messages to her dull flock.
+ - Consumerism is at once the engine of America and simultaneously one of the most revealing indicators of our collective shallowness.
+ - If you’re crazy enough to put your hat into the ring of speculation and punditry, you’re going to get some turbulence. But if it’s coming from some journalist with a comfortable degree of body fat, I’m not losing any sleep over it.
+ - I feel like a visitor that got left behind by his ride.
+ - You don’t have to twist my arm to work.
+ - Black Sabbath – one of the world’s universal language of music. I felt proud, for three or four minutes of my life combining my voice with Tony Iommi’s guitar sound.
+ - The best compliment I get every year is that a band will write me and say, ‘We were just on tour, and we had people coming to our show saying they had never heard us before they heard us on your show.’
+ - The Ruts were a great punk rock band from England whose songs were as excellent as their time together was short.
+ - I contribute a large amount of money to the Southern Poverty Law Center, so I’m on their mailing list for all their Klan Watch newsletters. I’m very well aware of White Power movements in America.
+ - Somewhere, someone isn’t impressed by your looks. Not all men jump through the hoops of your fire. You’re unbelievably boring to more people than you’ll ever know.
+ - Anywhere you hang yourself is home.
+ - My love is a thousand French poets puking black blood on your Cure CD collection.
+ - Now, if someone wants to spit on me, I just roll up the window of my BMW 540i.
+ - I don’t have a crystal ball, but I’m willing to bet one of my arms right now that as long as there’s electricity, Ramones music is going to be relevant.
+ - I was raised in Washington, DC, very violent place. I grew up with violence. My introduction to music was violent. The years I’ve spent on tours, some of that was extremely violent.
+ - Questioning anything and everything, to me, is punk rock.
+ - I’m not harmful, just introspective. You can probably think I’m weird, but it’s not harmful weird.
+ - Love beyond the damage.
+ - My first visit to West Berlin was in February 1983. The drive through East Berlin, the fact that West Berlin was surrounded by a wall that was more than 100 miles long – the absurdity and intensity of it really knocked me out.
+ - I think that Goldman Sachs and the Pentagon determine more of America’s outcome then any president or any congress, that sounds a bit cynical, but I think I am right.
+ - I’m not like paparazzi. I never force myself on anyone. I always ask, and some places offer money. And so I try and get these photos to give you, the viewer, a real look at what I was seeing.
+ - The only difference between me and others is that they think they can change something with cute little poems, nice cards or embracing trees and being nice to little lapdogs.
+ - My first introduction to African music was by my mother, who bought the ‘Pata Pata’ album by the great Miriam Makeba when it came out. Now that is an album. What a voice.
+ - Will punk rock ever die? Pal, if you have to ask it’s dead to you.
+ - When I see the hatred exacted at Mr. Obama – you know, he lowered your taxes, killed your number one bad guy and got your guys out of Iraq – I don’t understand why he seems to inflame people so much. You know, unless, unless there’s a race problem.
+ - I’m most in my element on tour, with a gig that day, like today. I’m on the road where I am supposed to be. I will be where I’m supposed to be at nighttime, on stage, in front of people, doing my thing.
+ - The ones who don’t do anything are always the ones who try to pull you down.
+ - A lot of Americans don’t have a passport, never will have a passport. Not only will they not travel, they don’t want to travel.
+ - I can deal with people who watch me on stage but I am not good in communicating with people any other way than through my work.
+ - In many ways, America is on the receiving end of a pendulum that has been swung with great force, and for a long time, outward into the world. The impact is a wake-up call on every level.
+ - But can a song stop a war? If Bob Marley and Bob Dylan couldn’t do it, it can’t be done.
+ - I lack the skill to hold a story line for the length required for a novel or even a short story. I have never had an idea that could withstand a hundred thousand words, or even ten thousand words of rubber meeting the road.
+ - With any advent in technology, any technological innovation, there is the good and the bad.
+ - Fish is the only kind of respirating thing that I consume. Everything else I don’t want any part of.
+ - A gun in your hand makes a fool out of you. A gun in your hand makes a target out of me.
+ - Young, gay and stuck in Arkansas? Sounds like a horror flick.
+ - When people hold you in high esteem, it’s very delicate relationship. When they meet you they’re putting all their chips up. It’s make or break.
+ - There’s nothing new about the government protecting corporations and calling it the freeing of the world or bringing democracy to bereft nations.
+ - One of the odd enjoyments in life is to be alone in a room full of people. To have them there as unknowing human filler in your wide shot.
+ - Having an identity is one thing. Being born into an identity is quite a different matter.
+ - And I love the hate mail I get, the unsigned, misspelled letters I get telling me to go back to Russia or wherever.
+ - I spend a lot of time alone so I get a lot done. I don’t do much else but work, check things out.
+ - There’s always going to be a need for activism; there’s always going to be a need for you and me doing the right thing, being very Lincoln-sonian in looking out for each other.
+ - I do a lot of stuff for free anyway. Like a lot of people who you see who don’t need money. Mick Jagger – he needs money? He just likes to go sing Satisfaction every night. If I wrote that song I probably would do it too.
+ - I see walking bombs on the street Hearts not beating, but ticking.
+ - There is no heaven for me and no hell. And certainly not any Karma.
+ - I’m trying to be confrontational and direct. If I lack directness then I only have myself to blame because I lack the skills to make my point clear.
+ - Spring and fall, those are very inspiring times of the year for me.
+ - For myself, I can’t understand a life without a job. I don’t know what I would do without employment. Retirement is out of the question for me.
+ - Airports in major cities, like LAX, are trippy environments. It is at once a national and international gathering of those in transition: The euphoric, emerging from planes, their journey at an end, and the determined, about to depart.
+ - In the late summer of 1986, the band I had been in for five years stopped playing. Suddenly, I was on my own. This new state of bandlessness was, at first, traumatic. When your group breaks up, a lot of broken parts hit the ground.
+ - I live my life by the numbers. Not only am I an American, I am an Americanist.
+ - If you really want a true confrontation, you treat your opponent with respect.
+ - It is amazing to hear grown-up people rationalize homophobia and discrimination. The lengths they go to trying to prove their points take reason to its breaking point.
+ - I get angry about stuff, I get very emotionally intense about stuff and that’s how I get it out – with books, with the band, on my own onstage, but it’s always kind of a wail.
+ - I don’t cuss in songs. It’s too easy.
+ - To our enemies all over the world who plan America’s demise, please take my advice. Give up now. No matter what, you will lose. You will lose it all.
+ - I think it’s important to have some documentation of the past.
+ - Why do you think the old stories tell of men who set out on great journeys to impress the gods? Because trying to impress people just isn’t worth the time and effort.
+ - Too bad that Paul Ryan confessed to being a fan of Rage Against The Machine. By doing so, he not only begged for a bucketing by many of their fans but actually got one from the band’s guitar player, Tom Morello.
+ - Imagine a 15-year-old kid saying, ‘I have two moms – it’s cool.’ I don’t fear that at all.
+ - Americans are poorly served by their media, you know, for the war machine and propaganda machine and the global empire and they’re poorly served by what they are being told is representative government.
+ - Horror jolts me when I look at one of you and see a pair of beautiful eyes that make me think your mind might contain a world that could hold me as the bolts shake loose and fly from my frame.
+ - Rush Limbaugh makes money getting simpleminded people to feel good about their intellectually undernourished brain spasms. He’s very good at it, and I scarcely believe a fraction of what he says.
+ - I was in Pakistan in Islamabad when Bhutto was assassinated, and the next day, you know, there’s just plumes of smoke everywhere. I mean, Islamabad is on fire.
+ - I hate it when men go to strip bars. It lowers the rest of us that know if a man has to pay to see a woman naked, he is a loser and probably should get weeded out.
+ - Well, there’s Katrina, but you can go through lots of Kurdistan and it looks like Katrina was just there but there’s people living in it.
+ - I’m not exactly ambitious as much as I have a very good realization of what I am and what I am capable of.
+ - It’s hard to get along with people. As much as you try to like them and accept them as individuals, it becomes difficult because they keep getting out of line and wasting your time.
+ - In the worst of times the best among us never lose their moral compass, and that is how they emerge relatively unscathed.
+ - I would like to become a better photographer. I’m working on that.
+ - I take the work seriously, just not myself in it.
+ - Whenever any great song or album gets lost in the ether, someone is deprived of the joy of hearing it, and the great effort of those who created and recorded the work is damaged.
+ - In my many trips to South Africa, I have met and spoken to a lot of people there, and they all seem to find apartheid as repellent as you would.
+ - I don’t have a wife, I don’t have any kids, I don’t have any addictions that keep me drooling on the couch, and I’m kind of target oriented.
+ - I have been curious about Haiti for many years. The history of the country is as fascinating as it is turbulent.
+ - Someone like Ashlee Simpson, she lip-synchs on ‘Saturday Night Live,’ gets totally called out la Milli Vanilli, and no one really cares that much. It doesn’t make me hate Ashlee; she’s just taking instructions.
+ - I mean Black Flag happened. I was lucky. I don’t think I could have put together something with one percent of that oomph on my own.
+ - The Wacken festival started more than 20 years ago with just a few hundred people in attendance. Tickets now sell out before the lineup is announced.
+ - Don’t go to summer camp. Bury your parents in the backyard and have the place to yourself.
+ - Early spring is the time for vigorous change, a preparation for the heat-driven oppression that is to come.
+ - I like the idea of someone else’s love safely sealed in a song or a book.
+ - My understanding of first-degree murder is that premeditation needs to be proven.
+ - When you are young, there is so much ahead of you, it’s like the Saharan desert. You can’t even see across it.
+ - I like the idea of going out with a woman and not doing anything, and just eating dinner and talking, and that’s cool, too. So, someone might look at me and say, “No way, man. He’s just banging strippers.” And I do that, but not all the time.
+ - The easy solution isn’t the solution, it’s the problem.
+ - One of the most insane environments I have ever spent time in is a gun range. There we are, all in a line, armed to the teeth, firing away.
+ - Can you imagine telling a woman she can’t vote!? The women I hang out with would be going home with parts of your anatomy swinging from their rearview.
+ - I don’t know if music has ever achieved anything past appealing to the people that it appeals to. If a song could stop a war, then Bob Marley and Bob Dylan songs would have stopped one or two.
+ - To get a human through a life, lives of broken bones, knock-me-over-with-a-feather susceptibility to myriad viruses, and whatever else might befall someone will cost money.
+ - In the summer of ’84, you just couldn’t escape the Born in the USA record.
+ - Do you know why Albert Camus was so prolific? He wrote to keep from screaming.
+ - Before the Civil War, the Southern states were selling a lot of cotton to England and didn’t seem to mind British occupation. By and large, the Revolutionary War wasn’t at all great for business.
+ - To anger female voters in America is to tread on the tiger’s tail. Women turn out in huge numbers, and they are well aware of how their bodies work and what they need.
+ - I tend to gravitate to the darkest or most obscure part of any venue in an effort to have my own space to experience the music on my own, free from unwanted conversations and other distractions.
+ - Being unique is never easy, and often, by the time culture catches up with you, there are only a few people who notice.
+ - I’ve been on ‘Jay Leno,’ and everyone likes Jay, but being on that show is a really boring afternoon. I sincerely like Jay, but I wouldn’t want his job, because I’d have to interview Kathy Ireland, and there’s nothing there I’d want to know.
+ - In the city of Pyongyang, you don’t have to look very far to see an image of the Great Leader, Kim Il Sung. They love the guy. He is responsible for the wonder that is North Korea.
+ - But I have a good life. I enjoy what I do. I am married to work.
+ - If people are being upstanding citizens of the Republic, then you have to widen the net to incarcerate them. This explains why America’s prisons are full of nonviolent offenders – a perfect example of American exceptionalism.
+ - I don’t want to go with the smooth skin and the calm brow. I hope I end up a blithering idiot cursing the sun – hallucinating, screaming, giving obscene and inane lectures on street corners and public parks.
+ - All of the jobs have gone away to satisfy the stockholders, so that’s where the economy has gone. These major multinational corporations do not see their futures in America.
+ - If you listen to ‘The Revolution Will Not Be Televised,’ by Gil Scott-Heron, that album is dripping with rage.
+ - I’ve made some great mistakes in my life, but, you know, they were honest mistakes.
+ - One person’s roar is another’s whine, just as one person’s music is another’s unendurable noise.
+ - I always found the Chicago audience to be a smart, fast-moving, violent and cheerful lot, and it’s always good to be back.
+ - Ramones music has a Pavlovian effect on me – the song starts, and the world blurs around the sound.
+ - You can’t right the wrongs because you’ll never understand the cause and you’ll be too busy dodging the effect.
+ - When you’re going into an employment environment that looks pretty scary, it is easy to lose your moral compass, your decency, your sense of civility and your sense of community.
+ - All I can do is just do stuff while I am alive and hopefully that track record will speak for itself.
+ - There’s nothing funny about, ‘Yeah, I took a First Class plane ticket and I went to some designer beach and made out with a Laotian slave girl.’ Who cares?
+ - A text conversation is a short exchange of often grossly truncated language that corresponds to a thought made all the more shallow by the process.
+ - I plan to be a part of Haiti’s reconstruction and future.
+ - I cling to my memories of glorious desperation.
+ - I still have dreams about CBGB’s. I still miss the place.
+ - The Internet, the camera cellphone and the like have not only sped up the world’s information uptake, but they have cheapened that which they capture.
+ - I can tell you exactly where the economy is going. It’s going to China, Honduras, Guatemala, Cambodia, Vietnam, Cipan, and any other place where you can pay people peanuts and have them work like dogs.
+ - I like the sound of my voice, doesn’t mean it’s any good but I like it. The joke is that “all good singers like the sound of their own voice” so we’ll go with that.
+ - As long as I tell the truth I feel that nobody can touch me.
+ - Before any American points a finger at President Putin and calls him nasty names, they should recognize that a lot of Americans agree with Putin on his stance against homosexual and transgender people.
+ - Never once have I thought that Social Security would be something that would ever be available to me.
+ - To this day, my haircut is the number two clippers, which I apply to myself every month.
+ - If I were a doctor, I would prescribe that you addict yourself deeply and irrevocably to music and never, ever seek cure outside of more music. It really is the best drug available.
+ - I think I am the most impressed with writing styles that defy category, like Kharms or Selby, Breton or Jarry, where you become as interested in the writer as much as the writing itself. It’s all these things that make reading so appealing to me.
+ - Your commander would never lie to you. That’s the vice president’s job.
+ - There’s no retirement, there’s just a few years of non-work by the fire with someone bringing you some tea and relative peace and playing with the grandchildren.
+ - Americans should demand real news, more transparency and more truth.
+ - The arts in America exist in spite of America, not because of America.
+ - Where there is young people and vitality, you’re going to find punk rock.
+ - To see change in your own area code is very powerful. There’s a little orphanage down the street from my company, and we donate $1 from the sale of each CD we sell to the orphanage.
+ - Seasonal change in Los Angeles is often a very subtle thing. It’s not as if we finally stop having to shovel the snow out of our driveways and can put our parkas back in the closet.
+ - I wonder if it is Australia’s great distance from more populated land masses that allows its inhabitants to be left to their own devices, to be incredibly creative and, at times, to be wonderfully weird.
+ - Most of the people who call me a sellout were 7 when I was down face-first in the punk trenches.
+ - I would hate to think that some people have found themselves in a musical cul-de-sac and have ceased to explore new music, or at least music that is new to them, because they are so glued to the past.
+ - The kid who throws his spaghetti from the high chair onto his father’s face, he’s pushing back. He’s sticking it to the man as he sees it. I like that. So that is punk.
+ - Basically, men are afraid of women and can’t handle the fact that they came out of the same thing they spend the rest of their lives trying to get back into.
+ - It took me until my teenage years to realize that I was medicating with music. I was pushing back against my stupid school uniform, instructors who called me by my last name and my classmates, who, while friendly enough, were not at all inspiring.
+ - When I am in Africa, I realize I don’t know much, have not seen much, and there’s a lot to be done.
+ - Watching a documentary with people hacking their way through some polar wasteland is merely a visual. Actually trying to deal with cold that can literally kill you is quite a different thing.
+ - I got three letters today telling me that I’m god. Why can’t I pay the rent?
+ - What if Americans were all judged by the actions of the Bush administration and people did not know the truth? That America is full of people who are, at present, poorly represented and poorly catered to by the media.
+ - People are best on records and books because you can turn them off or put them back on the shelf.
+ - I’m not into fame. I’m not into making money, outside of financing my books. I’m not into status. My thing is basically about time – not wasting it.
+ - For me, jazz will always be the soundtrack of the civil rights movement.
+ - I have built my life to pursue the new. I don’t have family, don’t know many people and I am usually ready to leave within an hour.
+ - My father did not rock. He just earned and hated. Don’t end up like this man.
+ - When you start thinking as far as what’s a good photo, unfortunately everything starts looking like a good photo.
+ - When you title yourself, you immediately lend yourself to all kinds of pretension.
+ - There are religions and social and moral awareness in any society that gets passed immediately. Those human truths. All cultures address them.
+ - I’m always looking, people are always presenting and I have found that every year of my life there’s been great bands. All over the world, all the time. So when someone goes, “Music sucks now!” I’ll go, “I don’t think so. Not over at my house.”
+ - The scarcity of the music not only makes the music itself enjoyable but it also gives the collector a strange sense of superiority.
+ - I’m not a singer. If you’ve heard any of my records, that’s not singing. I have no vocal qualities whatsoever. I’ve got a lot of enthusisam and I go to the cross, but there’s no skill going on there. It’s more just intuitiveness.
+ - If it’s a man’s world, as they say, then men, your world is a poorly run carnage fest.
+ - I’ve been in Iraq, and it never occurred to me to go, ‘Hey, this war is bogus,’ to some guy who’s 24 hours a day trying not to get shot at or blown up.
+ - Rarely do I do film press because I’m so low on the food chain of the movie, and for me it’s just this thing I did for four weeks before the next tour started.
+ - Life is weird, great and dangerous.
+ - We Californians can watch the Weather Channel for images of winter’s brutality unleashed upon our fellow Americans and thank our lucky stars we don’t have to contend with it.
+ - Russia is tough. The history, the land, the people – brutal.
+ - It’s hard to keep your backbone straight in America. It’s easy to turn into that which you hate, and to get smashed.
+ - I’m pessimistic. I don’t think that justice always gets the right person.
+ - I’m just shallow and self-interested, and don’t get out much because I’m afraid of real commitments.
+ - I’m not interested in censorship. I like the First Amendment very much.
+ - I like boring black and white films with subtitles. I’m basically a drip.
+ - The first Van Halen album makes Johnny Rotten out to be what he really was and still is: a hairdresser.
+ - I need to do things on my own, need to be left alone.
+ - Here you can be a billionaire, like Mark Zuckerberg rich, but you are going to die and you are here for a while and ultimately all of your stuff is kind of like a rental.
+ - There is no way you are going to be forgiven for blowing up a village and killing a bunch of people.
+ - I never think of what it’s going to be like later. I only think in the present tense. The only time I think backwards is when I have to reissue something.
+ - I’m disappointed by bands left and right, every day.
+ - I guess I am famous in a way. I would rather consider it recognizable – I think that is more logical. I don’t feel famous.
+ - It’s hard to judge literary merit.
+ - When I write lyrics, it’s only when I’m angry or hurt or sad. So lyrically it’s never really easy going. And the music is always really intense.
+ - I really like older writers, perhaps because they take me out of my element. I don’t have a great deal of interest in reading a fictionalized present as it’s pretty insane as it is.
+ - You can pass all the gun legislation you want. None of it will make me feel any more or less safe than I do right at this moment.
+ - Of course same sex marriage is constitutional! The right to be yourself, to pursue life, liberty, and property, is protected several ways over several amendments. John Boehner should know this.
+ - I think Americans suffer for their lack of travel, awareness of the world. It has horribly warped our sense of place in the scheme of things.
+ - Without the blues, modern music would be nothing like it is now – not remotely.
+ - Trayvon Martin did not need to die.
+ - It is only our humanity that can deliver us from the brutality of our achievements.
+ - I was very lucky to have had the opportunity to tour with the Beastie Boys and watched almost every set they played on all those dates. Why not? You do your set and then you get to see the Beasties play? Best deal in town.
+ - I’d like to talk to Arnold Schwarzenegger, ’cause I live in California and I just want to see that canned, chemical filled body in my office.
+ - If there is one set of laws, one Constitution for every citizen, its protections hopefully applied equally to all, then why do the results seem to differ so radically? What do you call that? Look around – you’re living in it.
+ - I’m not much of an improv guy. That’s a talent I don’t have.
+ - Castle Face Records, run by The Oh Sees main man, Johnny Dwyer is always worth checking in with.
+ - If you think about it, every single species is endangered. Homo sapiens at the front of the line, mosquitoes and lawyers at the back.
+ - The world’s a better place since I chose music. I like the physical aspect of it, the volume and the intensity of it. It’s loud and hard. I like all that because inside me I feel like screaming.
+ - I think young people should travel and travel often to other countries like I do.
+ - For the last 30-plus years, I have been doing one long, uninterrupted improv.
+ - Motivation has always been a fascinating factor when considering a touring artist, especially when the years stack up. What keeps one out there year after year?
+ - I once asked Ozzy Osbourne, truly one of my favorite people in the world, if he was cool with singing Black Sabbath songs year after year, whether he was performing with Black Sabbath or out on a solo tour. He said it was great.
+ - I’m of the opinion that the Democrats have the ideas I agree with more often than not. Reenergizing the middle class and giving people a break.
+ - I can only write about personal stuff, about my point of view.
+ - With a book, there’s no volume to turn up. You’re very naked with a book.
+ - You know, we are one nation under a god. Yes, you were right. An angry, crack slinging god who decorates with bullets and spent condoms.
+ - I mean I appreciate fan mail and that the people like what I am doing but I can’t answer it. If I would answer 25 letters a day I would be just a guy answering mail and not an artist anymore.
+ - The only safety is in the middle of total misunderstanding and deception.
+ - This sounds really corny, but I am a slave to my work, a workaholic, and glad of it. I like what I do; this is my place, my little universe, one of them.
+ - I work pretty much every day. I can’t really separate it from life, so I guess the work is my life.
+ - Life forgets me but will not let me forget Holds me down and tells me that I’m free.
+ - I’ve never heard Daft Punk; I’ve never heard a track of theirs in my life. They’re the two guys with motorcycle helmets on?
+ - If the death of Osama Bin Laden brings any peace to those who lost loved ones on that awful day in September 2001, that is a great thing. It is more likely, however, just a painful reminder of what was lost.
+ - Technically speaking, there is no music whatsoever on a CD. Lots of information, but no music.
+ - It is our destiny to be born beautiful into an ugly age.
+ - You can find me in the frozen mood section.
+ - The tasks I set out for myself are what I do to beat the perfect pointlessness of life.
+ - I have healthy disagreements with political parties I’m not aligned with, but I don’t think it should be to the point where we’re cursing and trying to strangle each other.
+ - Every single record I have is a fossil.
+ - As so much music is listened to via MP3 download, many will never experience the joy of analog playback, and for them, I feel sorry. They are missing out.
+ - Trying to write music, be in a band and keep it all happening is one of the hardest, morale-destroying, heartbreaking things you will ever try to do – and that’s when it’s going well.
+ - Half of life is up – the other half is dealing with it.
+ - I guess, topic to topic, you could consider me a left-leaning person.
+ - For me the music is not so much anger as much as it is of passion. And I’ve always associated that kind of intense emotional output with music just because the nature of the music that’s attracted me as far as live.
+ - I was never told to “Get up, get out there, get a job.” It was never a thing either parent ever said I had to do. It was what I wanted to do. I think I was very interested in being away from them as much as possible. Employment was great for that.
+ - I think more airtime should be given to Donald Trump and Orly Taitz. They should run for office together. They should open for Charlie Sheen.
+ - I consider any gun that can chamber a round and send a projectile down its barrel at a high rate of speed into my body – causing me injury or death – to be an assault weapon.
+ - Citizens United didn’t work. Hey, Koch brothers, Karl Rove, Shellgame Adelson: Democracy trumps money sometimes.
+ - As far as what people think of me, maybe my stuff should just be put online for free downloads when I’m gone.
+ - For many years, my favorite director has been the Japanese giant Akira Kurosawa.
+ - I can’t remember that I ever had just a minute of stage fright.
+ - You’ll never know that just sitting across a room full of people, I have transformed you into a goddess. A destroyer of despair.
+ - Every year, August lashes out in volcanic fury, rising with the din of morning traffic, its great metallic wings smashing against the ground, heating the air with ever-increasing intensity.
+ - Sometimes when you meet a musician you are a fan of, and he or she isn’t the friendliest person, you walk away from the experience wondering if you will ever be able to listen to their music again.
+ - To burn a CDR of music you like to give as a gift to someone you wish to become closer to is a cold, moist-palmed, mouth-breathing bummer.
+ - I live my life through the prism of capitalism and physiological limits and eventualities.
+ - In the theory of evolution there is no talk of God and no Bibles are used. They’re not looking for higher powers, extraterrestrials, or anything else that could be found in the science fiction section, because they are not dealing with fiction.
+ - I was at the first Minor Threat show, and you could tell, ‘This band is going to be the king of the town.’ It was obvious. They were so good.
+ - The number of people who are actual supporters of Mr. Romney could very well be less than the Donner Party, whose members they sadly resemble in many ways.
+ - I would like go to Palestine and interview people there about what their lives are like; same thing in Iran.
+ - My acting range is incredibly limited and narrow, but I’m a good heavy. I’m a good authoritarian figure; I don’t know why. “Can you be a cop?” Sure. “Can you be a Marine?” Absolutely. Well, at least in a movie.
+ - I think Perry Ferrell put independent music on a very good path with Lollapalooza.
+ - I don’t need music for the good times. I don’t have that kind of need. Music doesn’t serve me like that.
+ - People like Jefferson, Lincoln, Susan B. Anthony and M. L. K. are larger than life to me. I find myself staring at photographs of Lincoln almost in disbelief that he was a man who walked the earth and not merely some fiction writer’s creation.
+ - The truth is an anti-war statement in itself.
+ - If some band sucks, you’re going to have to find out about it for yourself, because I don’t have the interest in issuing warnings.
+ - If I had to perform in a comedy club I would bomb; I would be trying too hard.
+ - We occupy the planet with a vengeance. We seek to dominate it.
+ - For me, returning to Los Angeles annihilates the memories of where I have just been with an astonishing speed.
+ - When I think of Mick Jagger still singing that he can’t get any satisfaction in over forty years of being in the Rolling Stones, I have to conclude that he’s either lying or not all that bright.
+ - All of the things that the bible warns you of being: jealous, covetous, murderous, selfish, etc., that’s kind of how humans are.
+ - I’ve got a knife and I want to talk to you I’ve got a prayer and I want to carve it to you I’ve got no chance, that’s why I’m looking to you O Lord, ride with me.
+ - If it were a choice between me getting killed or one of my friend’s kids, I would happily take the shot.
+ - I’m a big Germs fan; most people are.
+ - I’m most comfortable on stage.
+ - While I have not ruled out the possibility of doing music, what I don’t want to do is go onstage and perform old songs. I do, all the time, but I don’t think it is artistically brave.
+ - I think hip-hop has definitely brought the black experience to white kids more than the civil rights movement did and more than any teacher’s well-intentioned lecture on Martin Luther King did.
+ - The only thing worse than the Pastor Terry Jones scheduled Koran burning is the fact that he canceled the proposed event.
+ - Scott Asheton was a brilliant drummer, a natural musician.
+ - I’d rather work on my radio show, which no one hears but I put about eight hours of programming and writing into it for those 30 people who do tune in.
+ - I wonder if the guy at the gun store would give me a discount on the bullets I’ll need if I told him what I was up to.
+ - Most Americans are very cool people.
+ - Canadians are often a friendly bunch.
+ - Shirley Sherrod seems like a good and dedicated person.
+ - I feel close to people like Jimi Hendrix because I connect with his music. Not the man but what he did.
+ - Those who seek to profit by division don’t stand a chance.
+ - I don’t get a rush from anything. I did music as hard as I could. Acting for me at least, is a far more restrained performance than music. It requires a lot of skill and discipline. I’m not any good at it but I enjoy trying to be good at it.
+ - When you see the Escalades and the Hummers driving down the street, at least in Los Angeles, this dry, flat desert with shopping malls, when you see someone driving one of those through this you’re like, ‘You are definitely part of the problem.’
+ - So many Americans, for one reason or another, they watch the news and it doesn’t really give them the idea of the world. Or they don’t read or travel. They have no idea that America is part of the world and not the world itself.
+
+500 quotes

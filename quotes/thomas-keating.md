@@ -1,0 +1,55 @@
+ - God’s first language is Silence. Everything else is a translation.
+ - The root of prayer is interior silence.
+ - Silence is God’s language, and it’s a very difficult language to learn.
+ - In human relationships, as mutual love deepens, there comes a time when two friends convey their exchanges without words. They can sit in silence sharing an experience or simply enjoying each other’s presence without saying anything.
+ - If you accept the belief that baptism incorporates us in the mystical body of Christ, into the divine DNA, then you might say that the Holy Spirit is present in each of us, and thus we have the capacity for the fullness of redemption, of transformation.
+ - Centering prayer is a training in letting go.
+ - God will bring people and events into our lives, and whatever we may think about them, they are designed for the evolution of His life in us.
+ - The chief thing that separates us from God is the thought that we are separated from God.
+ - In centering prayer, the sacred word is not the object of the attention but rather the expression of the intention of the will.
+ - Lent is a time to renew wherever we are in that process that I call the divine therapy. It’s a time to look what our instinctual needs are, look at what the dynamics of our unconscious are.
+ - For human beings, the most daunting challenge is to become fully human. For to become fully human is to become fully divine.
+ - While doing centering prayer, the practice is to let go of any thought or perception. The priority is to be as silent as possible and when that is not possible to let the noise of the thoughts be the sacred symbol for a while, without analyzing them.
+ - Humility is the forgetfulness of self.
+ - By deepening the spiritual dialogue between the spiritual traditions of the various religions in a spirit of friendship, one begins to understand just what the classical terms of the various spiritual traditions really mean.
+ - It is essential for world peace that the world religions make peace with each other. If they don’t, we can hardly expect the nations of the world to lay down their arms.
+ - The word “emptiness” for example, is a very important word both in Christianity and in Buddhism. It has shades of meaning however, that are different in the respective traditions.
+ - The capacity for emotional sobriety belongs to everybody in the human family and leads to a fully human response to the adventure and goodness of the gift of human life.
+ - If one completes the journey to one’s own heart, one will find oneself in the heart of everyone else.
+ - One of the great purposes of religion itself is being hindered by an exclusive-ism that doesn’t take into account the common elements and values that we actually share.
+ - Divine life is basically the inner freedom to choose the right and the good spontaneously.
+ - In the Christian perspective, the love of God and of all other human beings invites us to share and enjoy not just the best of the human potential as it evolves, but participation in the divine life itself.
+ - The complementary movement towards divine love is growth in humility which is the acceptence of the reality about ourselves, our own weakness and limitations.
+ - The best way to understand another person’s religion is to listen to the story of what particular practices helped them to deepen and to embody their religion, especially its spirituality.
+ - We may experience moments of profound inner peace, a sense of oneness with nature, or a sense of something that is more important that we’re not reaching by the usual goals of human society. Perhaps we could say there’s a common heart to all the religions.
+ - Union with God is really possible. Unity with God I presume, is what is meant by Heaven, but that too is available in this life for the humble of heart.
+ - Finding out what particular insights mean to people in other traditions enables us not only to respect but to love the wisdom of other religions.
+ - As the years go by, I find myself experiencing God’s extraordinary concern, consideration, healing, and what I call in my books, the divine therapy.
+ - What I really wanted was to fall in love with God. It’s amazing what obstacles there are within us, or at least in me, that seem to slow this process.
+ - Science and technology have been embarrassed by two world wars, many smaller ones, and the spread of weapons that could destroy humanity. As a result, there is some loss of confidence in the great achievements of technology.
+ - We rarely think of the air we breathe, yet it is in us and around us all the time. In similar fashion, the presence of God penetrates us, is all around us, is always embracing us.
+ - Technology isn’t fulfilling its promise of unlimited progress and solving every problem through technology. With the Enlightenment and its aftermath, there already was a general loss of confidence in the Western religions.
+ - Perhaps the shortest and most powerful prayer in human language is help.
+ - To see everything in God and to see God in everything normally takes a lifetime of practice.
+ - Your relationship with God, others, yourself, and all creation keeps changing for the better. Most of the world’s religions have developed maps to describe this process.
+ - The divine therapy helps us integrate our animal nature with the new possibilities of rational consciousness.
+ - Science and technology has tried to offer an alternative to religion by making a god out of human reason, but that didn’t work out too well.
+ - God seems willing to act as the most sublime psychologist, psychotherapist, or even psychiatrist if we are willing.
+ - The wisdom of all religions has to be respected. The discoveries of science are also essential for our time and the future.
+ - Psychotherapy is what God has been secretly doing for centuries by other names; that is, he searches through our personal history and heals what needs to be healed – the wounds of childhood or our own self-inflicted wounds.
+ - The acceptance of all that God has given us and the willingness to let it go – to give it back to him at a moment’s notice – that’s true human freedom.
+ - For us to remain in this world, our animal brain has to be there to support us.
+ - Over time we are able to undermine habitual modes of thinking formed by our self-made self in early childhood, which tries to squeeze happiness from the gratification of our desires for the symbols in our culture of survival and security, power and control, and affection and esteem.
+ - Every time you have a major breakthrough in self-knowledge, and see the way the divine works within your own psyche, external events, and interior experiences of the divine, you are transformed in some degree.
+ - All religions proclaim the advantages of peace, loving one another, and “doing to others what we would like them to do to us.”
+ - Only when we can accept God as he is can we give up the desire for spiritual experiences that we can feel.
+ - I venture to say that it’s not enough to respect and tolerate religions other than our own.
+ - We need to develop the intuitive capacities of the brain that some geniuses have manifested over humanity’s lengthy history.
+ - The whole immigration issue suggests the inevitability of people in our time seeking economic security that they can’t find at home, which usually involves bringing their religion with them. One’s children are going to be married to people outside their religious traditions as well as inside.
+ - God is a tremendous supporter of creation, especially of all living beings.
+ - It’s obvious that humanity continues to be torn by religious violence.
+ - Just by the very nature of our birth, we are on the spiritual journey.
+ - Religions have a special responsibility to encourage and inspire people to love planet earth, which as far as we know, is the only place in the cosmos that works in such a harmonious way that it can support intelligent life.
+ - Becoming fully rational is not enough anymore; evidently it can lead to distortions of all the great human possibilities.
+
+53 quotes

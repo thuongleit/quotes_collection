@@ -1,0 +1,27 @@
+ - I am a queen, and I demand to be treated like a queen.
+ - Love is like a roller coaster. It can take you to the highest, most spectacular heights or drop you to bottom in seconds. However, even with the risks, love is undoubtedly worth it in the end.
+ - Today, we have two Vietnams, side by side, North and South, exchanging and working. We may not agree with all that North Vietnam is doing, but they are living in peace. I would look for a better human rights record for North Vietnam, but they are living side by side.
+ - I happen to represent Enron here in Houston. We have many good corporate citizens here in Houston. Enron happened to have been one.
+ - Maybe the word welfare should be changed to something of, ‘a transitional living fund.’ For that is what it is – for people to be able to live.
+ - Don’t condemn the gangbangers, they’ve got guns that are trafficked, that are not enforced, that are straw purchased and they come into places even that have strong gun laws. Why? Because we don’t have sensible gun legislation.
+ - People have been turned away from hospitals simply because they have no insurance. People have been put out of hospitals because they have reached the lifetime caps.
+ - I disagree that our border is in devastating condition.
+ - It’s all right to agree or disagree on the balanced budget amendment. It’s all right to talk about how we’re going to appropriate.
+ - By virtually any measure, the record of the Republican Majority is an appalling failure.
+ - I am about the people of the United States of America and the people of Houston, Texas.
+ - Millions of Americans find community, comfort and support in their faith.
+ - What am I a prostitute? Am I your prostitute? You can’t prostitute me.
+ - The greatness of Americans is that we are mosaic – we are diverse.
+ - My town hall meetings are with friends and neighbors, fellow Americans. We engage.
+ - America, I am not ignoring you.
+ - Anything my staff does in my office is pursuant to congressional rules.
+ - As Members of Congress, we should not be using public office for private gain.
+ - Today we have two Vietnams, side by side, north and south.
+ - We have not won the battle against drug trafficking.
+ - I took and received campaign donations under the existing laws.
+ - I think the Justice Department needs to be the final protector of the people of the United States of America.
+ - The minority must have involvement in society. You can have different cultural practices that you accept. But if you are going to adopt democracy in government, then the government itself must allow the minority to be heard.
+ - Many of us in Congress have been calling on the Administration to articulate a bold mission for NASA. It seems that the President is answering that call. I wholeheartedly support his vision for going back to the moon, and from there to worlds beyond.
+ - Marching with over a million women in support of our reproductive rights was one of the most empowering things I have done, both as a woman and as a Member of Congress.
+
+25 quotes

@@ -1,0 +1,51 @@
+ - When you play, never mind who listens to you.
+ - Talent works, genius creates.
+ - My whole life has been a struggle between Poetry and Prose, or call it Music and Law.
+ - To send light into the darkness of men’s hearts – such is the duty of the artist.
+ - The principal mark of genius is not perfection, but originality.
+ - We may be sure that a genius like Mozart, were he born today, would write concertos like Chopin and not like Mozart.
+ - In order to compose, all you need to do is remember a tune that nobody else has thought of.
+ - That first concept is alway the most naturally and best. The mind errs, the emotion never.
+ - You write to become immortal, or because the piano happens to be open, or you’ve looked into a pair of beautiful eyes.
+ - Music owes as much to Bach as religion to its founder.
+ - Play always as if in the presence of a master.
+ - Let your intimate friends be chosen from such as are better informed than yourself.
+ - I am so fresh in soul and spirit that life gushes and bubbles around me in a thousand springs.
+ - We have learned to express the more delicate nuances of feeling by penetrating more deeply into the mysteries of harmony.
+ - Does it not seem as if Mozart’s works become fresher and fresher the oftener we hear them?
+ - I was a God-fearing child, innocent and physically attractive.
+ - Perhaps only a Genius can truly understand Genius.
+ - If we were all determined to play the first violin we should never have an ensemble. therefore, respect every musician in his proper place.
+ - People compose for many reasons, to become immortal; because the piano happens to be open; because they want to become a millionaire; because of the praise of friends; because they have looked into a pair of beautiful eyes; or for no reason whatsoever.
+ - An evil fate has deprived me of the full use of my right hand, so that I am not able to play my compositions as I feel them. The trouble with my hand is that certain fingers have become so weak, probably through writing and playing too much at one time, that I can hardly use them.
+ - The flame that is naturally clear always gives the most light and heat. If I could blend my talent for poetry and music into one, the light would burn still clearer, and I might go far.
+ - I feel so entirely in my element with a full orchestra; even if my mortal enemies were marshalled before me, I could lead them, master them, surround them, or repulse them.
+ - We shouldn’t repeat the same for ages on end, but look into the new as well.
+ - Music induces nightingales to sing, pug dogs to yelp.
+ - Endeavour to play easy pieces well and with elegance; that is better than to play difficult pieces badly.
+ - To compose is to remember music that has never been written.
+ - You should neither play bad compositions, nor, unless compelled, listen to them.
+ - The poet sees better than other mortals. I do not see things as they are, but according to my own subjective impression, and this makes life easier and simpler.
+ - A fiery, good beginner always stands higher than a master in mediocrity...
+ - Only when the form grows clear to you, will the spirit become so too.
+ - When you play, do not trouble yourself as to who is listening. Yet always play as though a master listened to you.
+ - The aesthetic principle is the same in every art, only the material differs.
+ - Believe me, were I ever to accomplish anything, it would be in music, which has always attracted me; and, without overestimating myself, I am conscious of possessing a certain creative faculty.
+ - From a pound of iron, that costs little, a thousand watch-springs can be made, whose value becomes prodigious. The pound you have received from the Lord, – use it faithfully.
+ - Thus it is ever in life. The aims we once pursued no longer satisfy us; we aim, we strive, we aspire, until sight fails, and mind and body find rest in the grave.
+ - Art was not created as a way to riches. Strive to become a true artist; all else will take care of itself.
+ - For me, music is always the language which permits one to converse with the Beyond.
+ - Nothing right can be accomplished in art without enthusiasm.
+ - Music – so different from painting – is the art which we enjoy most in company with others. A symphony, presented in a room with one other listener, would please him but little.
+ - You will be most readily cured of vanity or presumption by studying the history of music, and by hearing the master pieces which have been produced at different periods.
+ - Remember, there are more people in the world than yourself. Be modest! You have not yet invented nor thought anything which others have not thought or invented before. And should you really have done so, consider it a gift of heaven which you are to share with others.
+ - Think it a vile habit to alter works of good composers, to omit parts of them, or to insert new-fashioned ornaments. This is the greatest insult you can offer to Art.
+ - I sometimes lack confidence in public, although I am proud enough inwardly.
+ - It is the curse of talent that, although it labors with greater steadiness and perseverance than genius, it does not reach its goal, while genius already on the summit of the ideal, gazes laughingly about.
+ - Can that which has cost the artist days, weeks, months and even years of reflection be understood in a flash by a dilettante?
+ - Mendelssohn I consider the first musician of the day; I doff my hat to him as my superior. He plays with everything, especially with the grouping of the instruments in the orchestra, but with such ease, delicacy and art, with such mastery throughout.
+ - My indifference to money and my spendthrift ways are disgraceful. You have no idea how reckless I am; how often I practically throw money out of the window. I am always making good resolutions, but the next minute I forget and give the waiter eightpence.
+ - Without enthusiasm nothing great can be effected in art.
+ - When young, one learns his craftsmanship, may become a young master, and it is youth that is most auspicious for developing certain skills.
+
+49 quotes

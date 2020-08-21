@@ -1,0 +1,22 @@
+ - I’m paying for a mistake I made.
+ - That’s the mentality – don’t just play it, win it.
+ - Gabriel Batistuta. He was a spectacular No 9 – great at finding space, shooting from outside the box, good in the air. He was always a reference for me and I used to watch the way he played.
+ - At first I didn’t think I was going to fit into Barcelona’s way of playing. There was a lot of tiki-taka and I was thinking that without a lot of space to play in, I’d find it more difficult. I worried about that.
+ - I worry when I can’t help the team with everything I have to offer.
+ - Look, there’s no rule in soccer against biting your opponent. There’s not even a rule against eating your opponent. The only rule in soccer is that you can’t use your hands.
+ - There is always a chance to get even and I’m proud of the fact that for all the blows I always got back up again. That’s what makes me most content.
+ - I lost my balance, making my body unstable and falling on top of my opponent. At that moment I hit my face against the player leaving a small bruise on my cheek and a strong pain in my teeth.
+ - Everything you see comes from inside. People don’t see it but inside the dressing room we laugh and joke a lot so it’s not just for the cameras. It’s the way things are off the pitch too. We are happy for each other, it is all natural.
+ - I never told you this but I always thought the club should have recognised you far more when you retired. For the career that you had, one of Liverpool’s greatest players, you should have had a much bigger and better send-off in your final match. That’s just what I felt.
+ - It’s a huge honour to wear No 7 at Liverpool. I think about the legends: Dalglish, Keegan and that Australian guy.
+ - My desire at Liverpool was to help get the club playing in the elite because they had been five years without it. We used to talk about it in the dressing room. If Liverpool are not in the Champions League, it is difficult to get the best players to come to the club.
+ - I swear on my children’s lives that I never look at the statistics or look at beating anyone’s records. All I do is look to improve but not compete against any record. I want to win trophies and score goals because that’s my job as a forward.
+ - You just can’t believe how quickly things happen in football and the way life turns. I went from being the bad guy, the worst player who gets all the criticism, to being the player who makes the difference and scores the important goals.
+ - Steven Gerrard is the best player I’ve ever played with.
+ - We don’t even get food for 2 times a day, still I didn’t give up and continued to play football.
+ - I know what my strengths are and what theirs are and what the three of us do is play for the good of the team.
+ - It was a dream to arrive at Liverpool but I never wanted to just settle for what I had achieved. I wanted more.
+ - In Latin America the border between soccer and politics is vague. There is a long list of governments that have fallen or been overthrown after the defeat of the national team.
+ - In the Premier League you never really know what is going to happen. There is very little between the teams.
+
+20 quotes

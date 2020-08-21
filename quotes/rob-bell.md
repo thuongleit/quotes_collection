@@ -1,0 +1,140 @@
+ - Agape doesn’t love somebody because they’re worthy. Agape makes them worthy by the strength and power of its love. Agape doesn’t love somebody because they’re beautiful. Agape loves in such a way that it makes them beautiful.
+ - The moment God is figured out with nice neat lines and definitions, we are no longer dealing with God.
+ - That breath that you just took, that’s a gift!
+ - On the Sabbath- we are reminded that we are not human doings, but human beings.
+ - Two of the most powerful words you can hear someone say are ‘me too.’
+ - This breath, and this moment, and this life is a gift and we are all in this together. We all have countless choices every day to close down or stand up straight and open up, and take a big breath and say YES to the gift.
+ - If your faith is threatened by something that’s true, then it wasn’t much of a faith to begin with, was it?
+ - When you forgive somebody, when you are generous, when you withhold judgment, when you love and when you stand up to injustice, you are, in that moment, bringing heaven to earth.
+ - I believe that God is love. I believe that Jesus came to show us this love, to give us this love, to teach us about this love, so that we could live in this love and extend it to others.
+ - The Christian faith is mysterious to the core. It is about things and beings that ultimately can’t be put into words. Language fails. And if we do definitively put God into words, we have at that very moment made God something God is not.
+ - The cross is God taking on flesh and blood and saying, Me too.
+ - Because with every action, comment, conversation, we have the choice to invite Heaven or Hell to Earth.
+ - No one has the last word other than God.
+ - My experience is that lots of people go to church, sing the songs, tell the story, etc but have profound ambivalence about God.
+ - Often times when I meet atheists and we talk about the god they don’t believe in, we quickly discover that I don’t believe in that god, either.
+ - You’re here, you’re breathing, you are the recipient of an extraordinary act of generosity called life.
+ - Creating and sharing beautiful things has provided me with the inspiration that we can do things we never thought we could do and that we will get to see wonderful things we never thought we would see.
+ - Many of the most significant moments in our lives come not because it all went right but because it all fell apart.
+ - Love is giving up control. It’s surrendering the desire to control the other person. The two – love and controlling power over the other person – are mutually exclusive. If we are serious about loving someone, we have to surrender all the desires within us to manipulate the relationship.
+ - Freedom is not having everything we crave, it’s being able to go without the things we crave and being OK with it.
+ - Suffering, it turns out, demands profound imagination. A new future has to be conjured up because the old future isn’t there anymore.
+ - Every generation has to ask difficult questions about what does it mean to follow Jesus.
+ - Well, I affirm orthodox Christian faith. I affirm the Nicene Creed. I don’t think I’m doing anything terribly new.
+ - To elevate abstract doctrines and dogmas over living, breathing, embodied experiences of God’s love and grace, then, is going the wrong direction. It’s taking flesh and turning it back into words.
+ - What we do comes out of who we believe we are.
+ - When we get to what happens when we die, we don’t have any video footage. So let’s at least be honest that we are speculating, because we are.
+ - What you believe about the future shapes, informs, and determines how you live now.
+ - One truth is that suffering raises profound questions with the universe. The other truth is that grace, gift and generosity also raise profound questions.
+ - The Bible tells a story. A story that isn’t over. A story that is still being told. A story that we have a part to play in.
+ - The best team does not always win, it’s the team that plays the best.
+ - If the gospel isn’t good news for everybody, then it isn’t good news for anybody.
+ - Your deepest, darkest sins and your shameful secrets are simply irrelevant when it comes to the counterintuitive, ecstatic announcement of the gospel. So are your goodness, your rightness, your church attendance, and all of the wise, moral, mature decisions you have made and actions you have taken.
+ - You can set your intention to better understand your soul, your spirit, through daily practices like prayer, yoga and meditation, etc.
+ - I believe our world desperately needs Good News.
+ - Salvation is the entire universe being brought back into harmony with its maker.
+ - The world is desperately in need of people who will break themselves open and pour themselves out for the reconciliation of all things- that’s what the world needs.
+ - We can choose the way of compassion, the way of forgiveness, the way of generosity. Or we can choose other paths and those have very real consequences in the world. This is absolutely crucial.
+ - Suffering is traumatic and awful and we get angry and we shake our fists at the heavens and we vent and rage and weep. But in the process we discover a new tomorrow, one we never would have imagined otherwise.
+ - I live with the understanding that truth is bigger than any religion and the world is God’s and everything in it...
+ - What’s interesting is, if you take the scientists and the theologians, the really good ones, they end up both filled with this wide-eyed sense of wonder and awe about look at this world we live in.
+ - We live in the midst of a creation that is groaning.
+ - The cross is Gods way of taking away all of our accusations, excuses, and arguments.
+ - Often the people most concerned about others going to hell when they die seem less concerned with the hells on earth right now, while the people most concerned with the hells on earth right now seem the least concerned about hell after death.
+ - Why blame the dark for being dark? It is far more helpful to ask why the light isn’t as bright as it could be.
+ - Whether we are reading the Bible for the first time or standing in a field in Israel next to a historian and an archaeologist and a scholar, the Bible meets us where we are. That is what truth does.
+ - It often takes suffering and lost in order to remind us of how precious life is.
+ - Christian is a great noun and a poor adjective.
+ - I do a meet and greet after every show in which I tell the audience that I would love to thank every single one of them for coming. Which a lot of people take me up on! So I get to meet hundreds and hundreds of people every night, night after night.
+ - When we deny the spiritual dimension to our existence, we end up living like animals. And when we deny the physical, sexual dimension to our existence, we end up living like angels. And both ways are destructive, because God made us human.
+ - Questions are not scary. What is scary is when people don’t have any. What is tragic is faith that has no room for them.
+ - The thought of the word church and the word marketing in the same sentence makes me sick.
+ - The life that you want begins the moment you embrace the life you have because all of it is a miracle.
+ - Love frees us to embrace all of our history, the history in which all things are being made new.
+ - At the center of the Christian tradition since the first church have been a number who insist that history is not tragic, hell is not forever, and love, in the end, wins and all will be reconciled to God.
+ - I like to say that I practice militant mysticism. I’m really absolutely sure of some things that I don’t quite know.
+ - Jesus is God’s way of refusing to give up his dream for the world.
+ - Love demands freedom. It always has, and it always will. We are free to resist, reject, and rebel against God’s ways for us. We can have all the hell we want.
+ - We embrace truth wherever we find it from whoever says it however we come across it. It’s a big beautiful exotic heartbreaking mysterious world we live in and it’s our home and we get to explore and learn and affirm truth wherever we find it.
+ - The resurrection confronts our world with wonder, mystery, and miracles.
+ - Many people need a new rewiring of their heart and mind.
+ - Doctrine is a wonderful servant and a horrible master.
+ - I’m interested in painting the most beautifully compelling pictures and images and metaphors and stories and explanations possible that will put Jesus in language for a world that desperately needs to hear it.
+ - I got into pastoring because of the art form. I started a church, but I felt the art form needed to be freed for all people. A particular religion over others was never interesting to me. I wanted to talk to people about what it means to be alive and what it means to be human.
+ - We shape our God, and then our God shapes us.
+ - We’re rediscovering Christianity as an Eastern religion, as a way of life.
+ - The hardness of the human heart makes no sense.
+ - I believe God gives people the right to say no, to resist, to refuse, to reject, to cling to their sins, to cling to their version of their story.
+ - The joy is in the creation. So I’ve never had a target audience, it’s always been about being true to the work as it emerges.
+ - Your life is a gift and how you respond to it – what you do with it matters. That’s where I start.
+ - The great German scholar Helmut Thielicke once said that a person who speaks to this hour’s need will always be skirting the edge of heresy, but only the person who risks those heresies can gain the truth.
+ - For many, ‘desire’ is a bad word, something we’re supposed to ‘give up for God.’ That kind of thinking can be really destructive because it teaches people to deny their hearts, their true selves.
+ - Look at the size of the universe and look at what we’re discovering about string theory. There’s a wide-eyed sense of we’re just getting started here.
+ - We need to return to the simplicity that God is love.
+ - God is bigger than the Christian faith.
+ - Enjoy mystery and speculation, but don’t drift into dogma.
+ - The fact that we are loved and accepted and forgiven in spite of everything we have done is simply too good to be true.
+ - The danger is that in reaction to abuses and distortions of an idea, we’ll reject it completely. And in the process miss out on the good of it, the worth of it, the truth of it.
+ - Resurrection is a belief and hope in restoring this world.
+ - If we are serious about loving someone, we have to surrender all the desires within us to manipulate the relationship.
+ - There are moments when we have to return to our roots.
+ - There’s way too much wonder and mystery all around us to not stay open to more that’s going on here. You can wake up, and sense and feel and taste and hear a whole world right here within this one, right here in this breath you’re about to take.
+ - People have a view of a God who is terrible that they can’t even imagine being loving or wanting anything to do with.
+ - Being a pastor for 20 years I realized that the labels, agnostic, atheist, believer, everybody’s human and everybody wants to know what kind of universe we’re living in, and everybody’s living according to a story.
+ - To be honest with you, I am passionate about all the people out there who want to know Jesus, they want to know God, and they are sick of a system that is hung up on a bunch of things that have nothing to do with the love of God.
+ - Swords appear strong, but they’re actually quite weak. Jesus appears weak, but he’s actually quite strong.
+ - As a pastor, you get invited into the most poignant moments of people’s lives. Whether it’s a wedding or a funeral or a hospital visit, you get invited into the center of the event, whether or not you know the people.
+ - My interest is in what’s true, where is the life, where is the heart and what inspires.
+ - We often rush through the experiences that have the greatest shift.
+ - You can be living in a big house, driving a nice car, going on exotic vacations and still be empty inside, crippled with fear and dread.
+ - A good sermon is going to disturb the comfortable and comfort the disturbed. It inspires you. It provokes you. It should make your soul soar.
+ - Grace is when you know you’re loved exactly as you are.
+ - If there’s any place where you would express your deepest doubts, it would be church.
+ - Everybody is following somebody. Everybody has faith in something and somebody. We are all believers.
+ - I think that at the core of faith is trust.
+ - I believe that God is with you, that there is a presence. I believe this God is for you. I don’t think the universe is a cold, dead place that is indifferent.
+ - My parents were both very intellectually honest, straightforward, and for them, faith meant that you were fully engaged.
+ - Something is profoundly wrong and we are desperate for justice, for restoration and for somebody somewhere to do something about this.
+ - You want people who are both great fans and supporters and believers of your work and people who are also ruthlessly honest. People who will tell you the truth about it. Over the years I’ve picked up some friends and I know who to show what to and they’ll give me the proper read.
+ - I thought that Christian was a noun, a person looking for authenticity. I never understood that idea that a band could be Christian or something could be Christian. But it just can be and is.
+ - I feel like I’ve gotten an extraordinary opportunity to experience a sort of collective humanity. If you hug many people in such a short period of days you pick up on a communal energy, almost like feeling a giant heartbeat that everyone is beating together.
+ - For many people, God is primitive, behind, trying to drag everything back to some prehistoric era as opposed to spirit, force, love, drawing us into a better future, which to me is – that story has done something in me and I’ve seen it do things in other people.
+ - People received, affirmed and experienced grace in many different forms.
+ - Fear wants us to become obsessed with some event or person in the future, a year, a month, even a day. It also wants us to look backwards not at our successes, but our short-comings and our failures. Fear losses it’s grip when we stay in the now.
+ - It’s absolutely crucial that we come face to face with the power of our choices.
+ - Before anything else, you have received breath – the gift of life itself. The first word about you is GIFT.
+ - I have been told that I need to believe in Jesus. Which is a good thing. But what I am learning is that Jesus believes in me.
+ - I am for marriage. I am for fidelity. I am for love, whether it’s a man and woman, a woman and a woman, a man and a man.
+ - When the female voice is repressed and stifled, the entire community can easily find themselves cut off from the sacred feminine, depriving themselves of the full image of god.
+ - I think what’s happened in the modern world, there’s a lot of people that sound very smart and it’s very compelling and alluring, but it leaves you empty.
+ - I get ideas about things I want to make and then I throw myself into it with everything I have.
+ - Celebrity seems totally at odds with authentic community and honest, real sorts of relationships.
+ - You turn the light on, you get all kinds of bugs.
+ - The lesson that has been hardest for me to learn: there is nothing to prove.
+ - God has spoken, and everything else is commentary.
+ - I’m very comfortable in a room with thousands of people.
+ - We all want to make a difference, to live in peace, to have joy each morning that we get to live this day and see what it brings.
+ - I actually think there is hell because we see hell every day.
+ - Your job is the relentless pursuit of who God made you to be. And anything else you do is sin and you need to repent of it.
+ - The interactions I have are with people who are very kind and very grateful and they say very overwhelming things to me. Somebody who doesn’t like what I do or doesn’t understand it, then it wasn’t for them.
+ - I think the church needs – I think this is the world we are living in and we need to affirm people wherever they are.
+ - Like a mirror, God appears to be more and more a reflection of whoever it is that happens to be talking about God at the moment.
+ - Sociologically, large groups of people don’t generally have massive changes in their belief instantaneously.
+ - For a lot of people in our world today, God has become about believing the right stuff so you don’t get in trouble.
+ - It is such a letdown to rise from the dead and have your friends not recognize you.
+ - What we believe about heaven and hell is incredibly important because it exposes what we believe about who God is and what God is like.
+ - To me some of the greatest writing is when somebody puts something in words that you felt and experienced and you go, that’s it.
+ - The vibrant, real historic Christian faith is very wide and leaves lots and lots of room for varying perspectives. It’s very diverse and wide, that’s part of it’s strength, life and vibrancy.
+ - If anybody didn’t have a messiah complex, it was Jesus.
+ - This is why for thousands of years Christians have found the cross to be so central to life. It speaks to us of God’s suffering, God’s pain, God’s broken heart. It’s God making the first move and then waiting for our response.
+ - I think that grace and love always rattle people.
+ - Many in the modern world fell for the myth that we’re living in a static, fixed, flat reality of just material things.
+ - Many people confuse religion with God and walk away from them both. The point isn’t Christianity, the point is being a Christian.
+ - That may sound a big vague, but what has struck me in city after city is that despite our differences and diversity, there’s a common humanity we all share. In many ways we’re all searching and longing for the same things...
+ - I embrace the term ‘evangelical,’ if by that we mean a belief that we together can actually work for change in the world, caring for the environment, extending to the poor generosity and kindness, a hopeful outlook. That’s a beautiful sort of thing.
+ - It is better to be fully present and rested and engaged for one thing than rushed, distracted, and scattered for ten.
+ - If it is true, if it is beautiful, if it is honorable, if it is right, then claim it. Because it is from God. And you belong to God.
+ - The first word about you is that you received this life...
+ - Faith can take many different forms and expressions.
+
+138 quotes

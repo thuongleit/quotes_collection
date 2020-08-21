@@ -1,0 +1,31 @@
+ - I understand I can’t have you. But I want to know you’re in the world with me.
+ - And the rest is happily ever After.
+ - Love isn’t something you have to deserve.
+ - I am full of fear.
+ - Yeah, I understood that last night at the wreck. Nothing says I love you like a dead body.
+ - The TV said you should ignore bullies and they would stop harassing you. In practice this worked about half the time. The other half, you ended up with two tall boys shadowing you through a trailer park, their fingers taking little nips at your clothes, like dogs.
+ - You’ve gone far away to a place with no horses and very little grass, and you’re studying how to write a story with a happy ending. If you can write that ending for yourself, maybe you can come back.
+ - But you can’t live your life worried about dying all the time. If you do, you’re dead already.
+ - I knew exactly what you’d done. I know that feelings. You have to do something. You have to change something radically, because you can’t stay like you are for another second, or you’re going to explode.
+ - I swear, Tiff, if my ass made good grades, you’d want to date my ass.
+ - Boys are two years behind girls in maturity level.
+ - Or that I couldn’t stand to watch anything bad happen to you, because it was like it was happening to me too. Is that love?
+ - Did you alltake your pants off? The swim team really knows how to throw a party.
+ - The nurse knocked softly on the door of the examining room and wheeled in a shiny silver tray displaying neatly arranged instruments of torture.
+ - Your lot in life? A lot is something you draw, like straws. It’s chance. You didn’t get this life by chance. You chose it on purpose. If you’re dissatisfied from it, you can change it.
+ - Love hurt. Honesty made it hurt worse, and I could hardly stand it.
+ - That’s stupid. I said no because you don’t love me. – John.
+ - I should have run away from you and started college and gone on without you. But I would always have regretted it if I didn’t give this a shot. – Tiffany.
+ - I guess we both understood that our relationship was built entirely on witty repartee, and neither of us thought we could be witty on four hours of shut-eye.
+ - But you are right, being stupid is not illegal. Otherwise half this town would be behind bars.
+ - When something awful happens, sometimes people get stuck.
+ - You can’t tell a seventeen-year-old anything. They think they’re immortal. They don’t listen. Seventeen-year-olds have to see it for themselves.
+ - Yes, I was good at reading people. I studied them so I could put them in my novels.
+ - How did we get to this place where we had to be tough all the time and never said how much we loved each other?
+ - What happened was, I told you I loved you.
+ - Sarcasm was a weapon for children.
+ - No. I just don’t want to be a detective. They figure out what happened after the fact, when it’s too late. I want to prevent it from happening.
+ - It was better that we never apologized to each other. Then we’d be admitting that we were wrong and we owed each other something. That’s where people got into trouble.
+ - Waiter, this is not the policeman I ordered. I wanted one with a lot less sauce.
+
+29 quotes

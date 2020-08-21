@@ -1,0 +1,24 @@
+ - Grace cannot forgive unconfessed sin.
+ - And when you can’t do nothing else – pray.
+ - God loves to hear your singing – so sing.
+ - We have to take the biblical truth and start applying it in the statehouse, the schoolhouse, and the marketplace.
+ - Tradition is the thief of power. There is no area of our lives where that theft is more evident than in the area of divine healing.
+ - God has more for you in your future than you could ever dream of in your present and he’s already seen you in it.
+ - We draw our strength from the battle. From our greatest conflicts come our greatest victories.
+ - To reap a perpetual harvest you need to sow a perpetual seed. I got a need for seed.
+ - At Calvary, there was a great healing transfer where the responsibility for healing was switched from God giving it, to you receiving it.
+ - The baptism of the spirit will do for you, what a phone booth did for Clark Kent, it will change you into a different being.
+ - The secular world looks to the church and to its chagrin, finds no love, no life, no laughter, no hope and no happiness.
+ - There is always death at the end of your plan and life at the end of God’s plan.
+ - We must accept all of Gods will for us, not just those portions that happen to appeal and bring instant gratification and pleasure to us.
+ - Jesus Christ accomplished everything that God the Father started at the creation, and that includes total health.
+ - I like to say I’m not a Republican or a Democrat, I’m a Christ-o-crat.
+ - God’s plan makes you sing about resurrection when your hanging on a cross.
+ - Gay sexuality inevitably involves brutal physical abusiveness and the unnatural imposition of alien substances into internal organs, orally and anally, that inevitably suppress the immune system and heighten susceptibility to disease.
+ - When you’re really filled with the Holy Ghost it is impossible for those around you not to know it.
+ - Grace cannot wipe out the law of sewing and reaping.
+ - No secular state ever existed and none would exist until the end of the French Revolution, and so we understand that America was built on the Judeo-Christian ethic and we believe that this nominee is going to see to it that those truths are upheld.
+ - If America is ever going to be saved, it will be through a church flowing both in the message of the cross and the miracle of the resurrection.
+ - The left has chosen the courts as a major battlefield over social issues.
+
+22 quotes

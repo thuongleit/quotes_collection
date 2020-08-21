@@ -1,0 +1,60 @@
+ - In today’s competitive economy, to stand still is to die.
+ - Anyone who thinks they have a monopoly on truth, and there is only one way to see the world, always gets us into trouble.
+ - If we say the Geneva Convention is obsolete, then what do others who have our soldiers say?
+ - I’d like to see the health care professionals making decisions, not some bureaucrat in Indianapolis working for an insurance company.
+ - Bigotry has always been the poison of America, and we oughta do everything to eradicate it with no excuses or explanations.
+ - Candidates With Deeply Held Christian Beliefs Are Unfit and Disqualified From Serving As A Federal Judge.
+ - When Mitt Romney says he wants to reform the tax code, hold onto your wallets.
+ - We’re going to hammer guns on the anvil of relentless legislative strategy! We’re going to beat guns into submission!
+ - In a brave new world, a post-September 11 world, anyone is going to make certain mistakes. The mistakes that have been made on homeland security, on protecting our Nation from another terrorist attack, are mistakes of omission. We are simply not doing enough.
+ - All we ask for is registration, just like we do for cars.
+ - Inaction is perhaps the greatest mistake of all.
+ - Democrats don’t relate to middle-class people.
+ - There are two tests in life, more important than any other test. On Monday morning, when you wake up, do you feel in the pit of your stomach you can’t wait to go to work? And when you’re ready to go home Friday afternoon, do you say, ‘I can’t wait to go home?’
+ - Giving up even an ounce of precious freedom is a very serious thing to do.
+ - When someone takes a private photo, on a private cell phone, it should remain just that: private.
+ - As long as the Palestinians send terrorists onto school buses and to nightclubs to blow up people, Israel has no choice but to build the fence.
+ - We’re here to tell the NRA their nightmare is true...
+ - When Mitt Romney says he wants to reform the tax code, hold on to your wallets. We know Mitt Romney never met a tax haven he didn’t like. But his new favorite tax haven is actually not the Cayman Islands – its Paul Ryan’s budget.
+ - I basically believe that until China stop stealing our intellectual property, and until they stop keeping our companies out that do good things, the amount we will gain from export jobs is minimized, and the amount we lose in middle class incomes is maximized.
+ - I’m strongly for a patient Bill of Rights. Decisions ought to be made by doctors, not accountants.
+ - Soft money will find its way and seep into the political system and corrode it, unless we plug every hole.
+ - Arafat was a barrier to peace.
+ - I made education the highest priority of my campaign – actually education and jobs – and the reason is a simple one: I think the future of America depends on it.
+ - I went to the public schools myself. And they were great for me.
+ - I want to attract the best people into teaching.
+ - A devastating commentary on the war in Iraq is that we have been unable to spend money on infrastructure.
+ - When one has success, the answer is not to undo that success. It is to continue what has been done.
+ - I think we could be at a tipping point.
+ - You can set up whatever negotiations or structure you want, but until the Palestinians are willing to accept the fact, as the majority of Israelis do, that there should be two states between the Jordan and the Mediterranean, we won’t have peace.
+ - The export market is based, on high-paying jobs. I’ve seen statistics that show that people make over 88 a year generally benefit from this because these are export jobs.
+ - So I want my kids to go to public schools because I think it’s a better education overall.
+ - America is a place where we all come together. It is a place of consensus.
+ - I respect people who feel things passionately. I do. But when someone is a judge, that is not what they should bring to the bench. It is not really passion, except in rare instances, that serves the bench well. It is, rather, an ability to understand the law and follow it.
+ - But I don’t think the Democratic Party is at eye level with the middle class.
+ - You do have to change things as warfare changes.
+ - The companies move labor to the lowest-cost markets. And so I don’t – I used to support these agreements. In the Congress, I lost the AFL-CIO endorsement a few years because I supported them. But when middle class incomes are declining, these agreements don’t work well for America.
+ - Let me say this, to all of the chattering class that so much focuses on those little tiny, yes, porky amendments – the American people really don’t care.
+ - I feel very strongly that we need to change the way we do trade because it has been one of the major factors that lead to decline of middle class incomes.
+ - I’m totally opposed to vouchers. I will fight them tooth and nail.
+ - Palestinians don’t really believe in a state of Israel. They, unlike a majority of Israelis, who have come to the conclusion that they can live with a two-state solution to be determined by the parties, the majority of Palestinians are still very reluctant, and they need to be pushed to get there.
+ - I think on this issue more than any other we’re going to see sort of a bipartisan longing to get something done, and hopefully you’re not going to find the fisticuffs that you would find on lots of other issues. I think you’ll be able to glean a sense of progress without us revealing the specifics.
+ - I believe the war on terror is the vital discussion of this decade and of our generation, probably. To win the war on terror, you need a good offense and a good defense. On defense, I regret to say, basically, this administration has not come close to doing what is necessary.
+ - The bottom line is very simple. You negotiate on this, they will up the ante for the debt ceiling.
+ - We need to make sure middle-class people are able to pay the bills. We need to make sure that poor people don’t starve. Those are values, too.
+ - Biking through New York’s boroughs in 2005, I thought about some old friends, Joe and Eileen Bailey. Though they are imaginary, I frequently talk to them.
+ - The currency bill we have would finally do something for China’s rapacious policies.
+ - Do not let arguments of expediency persuade you. That is the slow road to oblivion. That is the tortured path to undoing step by step, bit by bit, as the river creates a canyon, the way of life that we love.
+ - Well, I think it’s too early to call Fallujah a failure.
+ - Unfortunately, the administration’s plan is an ounce of cure for a pound of problems.
+ - If we are going to stay a great power and I hope and pray we will we need the truth. We need to know what is going right and we need to know what is going wrong. There is no greater time than now.
+ - The greatest problem America faces is the decline of middle class incomes.
+ - But these days there are a lot of younger people who would like to go into teaching but don’t because the economic opportunities are sometimes elsewhere.
+ - We tend to talk, Democrats, as a party, in legislative terms.
+ - I think teaching should be an exalted profession, not a picked-on profession.
+ - It is essential that all Americans take the time to honor and remember those individuals who gave their lives in defense of our liberty.
+ - Ideological warriors whether from the Left or the Right are bad news for the bench. They tend to make law, not interpret law. And that’s not what any of us should want from our judges.
+ - Obviously, there are conservatives who are in the mainstream and conservatives who would take people’s rights away.
+ - There are many reasons why Mitt Romney should not become president, but perhaps the most important of all is the narrowness of his experience, perspective and vision.
+
+58 quotes

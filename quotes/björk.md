@@ -1,0 +1,70 @@
+ - There are certain emotions in your body that not even your best friend can sympathize with, but you will find the right film or the right book, and it will understand you.
+ - I miss you, but I haven’t met you yet!
+ - I’m a whisper in water.
+ - You shouldn’t let poets lie to you.
+ - If you want to make something happen that hasn’t happened before, you’ve got to allow yourself to make a lot of mistakes.
+ - I have to re-create the universe every morning when I wake up, and kill it in the evening.
+ - If I had a philosophy, it’s that I support the beautiful side of anarchy.
+ - I find it so amazing when people tell me that electronic music has no soul. You can’t blame the computer. If there’s no soul in the music, it’s because nobody put it there.
+ - Create a paradise anywhere you go.
+ - There’s more to Life than this.
+ - It takes a long time to fully become who you are.
+ - I’m a fountain of blood. In the shape of a girl.
+ - For a person as obsessed with music as I am, I always hear a song in the back of my head, all the time, and that usually is my own tune. I’ve done that all my life.
+ - If you can make nature and technology friends, then you can make everyone friends; you can make everyone intact. That’s what women do a lot – they’re the glue between a lot of things.
+ - I don’t really have an ego. I’m not that bothered.
+ - Love is a two way dream.
+ - But I’m not interested in politics. I lose interest the microsecond it ceases to be emotional, when something becomes a political movement. What I’m interested in is emotions.
+ - I’m self-sufficient. I spend a lot of time on my own and I shut off quite easily. When I communicate, I communicate 900 per cent, then I shut off, which scares people sometimes.
+ - If travel is searching and home what’s been found, I’m not stopping. I’m going hunting.
+ - Being a musician is very easy. My house is full of musical instruments. There’s a lot of music, always.
+ - Declare independence, don’t let them do that to you!
+ - People are always going to need physicality; they’re going to want to meet other people even more. I’ve got faith in the physical angle. People have their needs. They won’t forget about them.
+ - Over the last 10 years, there have been so many incredible albums created in bedrooms by people who never would’ve gotten an album deal.
+ - I have written most of my melodies walking and I feel it is definitely one of the most helpful ways of sewing all of the different things in your life together and seeing the whole picture.
+ - Solar power, wind power, the way forward is to collaborate with nature – it’s the only way we are going to get to the other end of the 21st century.
+ - I get obsessed by little nerdy things in my corner that no one else is interested in.
+ - I definitely can feel the third or fourth feminist wave in the air, so maybe this is a good time to open that Pandora’s box a little bit and air it out.
+ - When I was 18, science, physics, and math were my favorite. I was a bit of a nerd – the only girl with a lot of boys at chess championships.
+ - I love England. It’s no coincidence it’s the first place I moved to for a more cosmopolitan life, which is the only thing Iceland lacks.
+ - Usually when you see females in movies, they feel like they have these metallic structures around them, they are caged by male energy.
+ - I want to support young girls who are in their 20s now and tell them: You’re not just imagining things. It’s tough. Everything that a guy says once, you have to say five times.
+ - If nothing else, I have money.
+ - I think choosing between men and women is like choosing between cake and ice cream. You’d be daft not to try both when there are so many different flavors.
+ - You’re a coward if you don’t stand up. Not for you, but for women. Say something.
+ - How could I be so immature to think you could replace the missing elements in me. How extremely lazy of me.
+ - Compared to America or Europe, God isn’t a big part of our lives here. I don’t know anyone here who goes to church when he’s had a rough divorce or is going through depression. We go out into nature instead.
+ - Americans are so dumb!
+ - Feminists bore me to death. I follow my instinct and if that supports young girls in any way, great. But I’d rather they saw it more as a lesson about following their own instincts rather than imitating somebody.
+ - I’m going to prove the impossible really exists.
+ - It’s invisible, what women do. It’s not rewarded as much.
+ - The relationship changes as you learn more about people, and the work sort of takes on its own life. I enjoy this very much.
+ - Everything that a guy says once, you have to say five times.
+ - I just feel like making things solar-powered and wind-powered should be as easy as using an iPad.
+ - People from the rock and roll world have felt for years that electronic music had no soul, but now electronic music can not only have soul but have all the shapes in the world.
+ - Believe it or not, I’m a bit clumsy with technology. It’s probably why I’m so excited about the touchscreen – even an idiot can use it!
+ - I get highs, to be totally honest, in second-hand shops. My hunting instinct, I expect, really kicks in.
+ - It’s a sign that you have a good work relationship if you don’t have to analyze. That’s usually a good sign within creative work.
+ - Maybe I’ll be a feminist in my old age.
+ - Formats are just illusions, and it’s about the relationship between the person that makes music and the person that listens to music. Every time there’s a new format, the iron is hot, and you can mold it.
+ - I have always had a certain song in my head, a certain chemistry of sounds.
+ - Sometimes, when I have a lot of ideas and I want to do a lot of things, or when I’m traveling, I lose energy and I can’t do as many things as I want. So I have to plan days when I’m not doing anything. I find that a bit boring, but it’s necessary.
+ - People that complete other people’s vision are understated.
+ - When I was 20, political music was the uncoolest thing on earth. But when Bush got elected, that was the first time I started actually reading the news.
+ - Today has never happened and it doesn’t frighten me.
+ - What probably confuses people is they know a lot about me, but it quite pleases me that there’s more they don’t know.
+ - I don’t like records that are the same from beginning to end, that are too styled and slick. Everything is so designed and airbrushed and Botoxed, it makes us think, ‘Oh, everybody’s perfect except me. Everything’s smooth except me.’ But nothing is smooth.
+ - I’m not that keen on fierce dictatorship. I think that sort of the point of working with somebody is them coming up with stuff and feeling free to do that.
+ - I never want to know the range of my voice. It has to be impulsive, and I don’t want to kill the mystery.
+ - The English can be a very critical, unforgiving people, but criticism can be good. And this is a country that loves comedy.
+ - National Geographic contacted me about getting on their label, and I was like, ‘Wow, I want to be label mates with the sharks and lemurs!’
+ - I learned what a lot of women have to do is make the guys in the room think it was their idea, and then you back them up.
+ - People ask me questions like, “Oh, you look so theatrical in your photographs. Is that what you’re like when you walk down the street?” It’s like, “Of course not.” It’s such a silly question – it’s like being theatrical is a crime.
+ - In 2008, I was more just thinking about using the touchscreen for writing the songs. From there I started thinking about how I visualised music.
+ - I’m not going to talk like I know about politics, because I’m a total amateur, but maybe I can be a spokesperson for people who aren’t normally interested in politics.
+ - Seventy per cent humidity is ideal for vocal cords.
+ - I was very aware when I went to the Academy Awards that it would probably be my first and last time. So I thought my input should really be about fertility, and I thought I’d bring some eggs.
+ - I do try and wear stuff by unknown designers, and I make sure I pay because if nothing else I have money.
+ - Pedaling through the dark currents, I find an accurate copy. A blue print of the pleasure in me.
+
+68 quotes

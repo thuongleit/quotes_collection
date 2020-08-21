@@ -1,0 +1,75 @@
+ - You can cut all the flowers but you cannot keep spring from coming.
+ - I want to do to you what spring does with the cherry trees.
+ - If nothing saves us from death, at least love should save us from life.
+ - I love you as certain dark things are to be loved, in secret, between the shadow and the soul.
+ - Laughter is the language of the soul.
+ - As if you were on fire from within. The moon lives in the lining of your skin.
+ - Someday, somewhere – anywhere, unfailingly, you’ll find yourself, and that, and only that, can be the happiest or bitterest hour of your life.
+ - Poetry is an act of peace.
+ - Love is so short, forgetting is so long.
+ - We must dream our way.
+ - In one kiss, you’ll know all I haven’t said.
+ - Let us forget with generosity those who cannot love us.
+ - I need the sea because it teaches me.
+ - For me writing is like breathing. I could not live without breathing and I could not live without writing.
+ - In what language does rain fall over tormented cities?
+ - Love is not about property, diamonds and gifts. It is about sharing your very self with the world around you.
+ - I love you without knowing how, or when, or from where, I love you simply, without problems or pride: I love you in this way because I don’t know any other way of loving.
+ - To feel the love of people whom we love is a fire that feeds our life.
+ - All paths lead to the same goal: to convey to others what we are.
+ - I love you without knowing how, or when, or from where. I love you straightforwardly, without complexities or pride; so I love you because I know no other way than this: where I does not exist, nor you, so close that your hand on my chest is my hand, so close that your eyes close as I fall asleep.
+ - Quiero hacer contigo lo que la primavera hace con los cerezos.
+ - I can write the saddest poem of all tonight. I loved her, and sometimes she loved me too.
+ - Then love knew it was called love. And when I lifted my eyes to your name, suddenly your heart showed me my way.
+ - At night I dream that you and I are two plants that grew together, roots entwined, and that you know the earth and the rain like my mouth, since we are made of earth and rain.
+ - A child who does not play is not a child, but the man who doesn’t play has lost forever the child who lived in him and who he will miss terribly.
+ - It was my destiny to love and say goodbye.
+ - Your wide eyes are the only light I know from extinguished constellations.
+ - Every day you play with the light of the universe.
+ - Love is a clash of lightnings.
+ - But I love your feet only because they walked upon the earth and upon the wind and upon the waters, until they found me.
+ - Of all the fires, love is the only inexhaustible one.
+ - In the eyes of mourning the land of dreams begins.
+ - Green was the silence, wet was the light, the month of June trembled like a butterfly.
+ - Everything is ceremony in the wild garden of childhood.
+ - My soul is an empty carousel at sunset.
+ - The books that help you most are those which make you think the most. The hardest way of learning is that of easy reading; but a great book that comes from a great thinker is a ship of thought, deep freighted with truth and beauty.
+ - I got lost in the night, without the light of your eyelids, and when the night surrounded me I was born again: I was the owner of my own darkness.
+ - You are like nobody since I love you.
+ - Each hour, Each day.
+ - And that’s why i have to go back to so many places there to find myself and constantly examine myself with no witness but the moon and then whistle with joy, ambling over rocks and clods of earth, with no task but to live, with no family but the road.
+ - About me, nothing worse they will tell you, my love, than what I told you.
+ - While I’m writing, I’m far away; and when I come back, I’ve gone.
+ - And one by one the nights between our separated cities are joined to the night that unites us.
+ - It was at that age that poetry came in search of me.
+ - In this part of the story I am the one who dies, the only one, and I will die of love because I love you, because I love you, Love, in fire and in blood.
+ - Love is the mystery of water and a star.
+ - I crave your mouth, your voice, your hair. Silent and starving, I prowl through the streets. Bread does not nourish me, dawn disrupts me, all day I hunt for the liquid measure of your steps.
+ - Give me your hand out of the depths sown by your sorrows.
+ - I love you only because it’s you the one I love; I hate you deeply, and hating you Bend to you, and the measure of my changing love for you Is that I do not see you but love you blindly.
+ - Bitter love, a violet with it’s crown of thorns in a thicet of spiky passions, spear of sorrow, corolla of rage: how did you come to conquer my soul? What brought you?
+ - I have slept with you all night long while the dark earth spins with the living and the dead, and on waking suddenly in the midst of the shadow my arm encircled your waist. Neither night nor sleep could separate us.
+ - If suddenly you do not exist, If suddenly you are not living, I shall go on living. I do not dare, I do not dare to write it, if you die. I shall go on living.
+ - There were thirst and hunger, and you were the fruit. There were grief and the ruins, and you were the miracle.
+ - I am no longer in love with her, that’s certain, but maybe I love her. Love is so short, forgetting is so long.
+ - I should like to sleep like a cat, with all the fur of time, with a tongue rough as flint, with the dry sex of fire; and after speaking to no one, stretch myself over the world, over roofs and landscapes, with a passionate desire to hunt the rats in my dreams.
+ - Love! Love until the night collapses!
+ - I hunger for your sleek laugh and your hands the color of a furious harvest. I want to eat the sunbeams flaring in your beauty.
+ - And I watch my words from a long way off. They are more yours than mine. They climb on my old suffering like ivy.
+ - I want to see thirst In the syllables, Tough fire In the sound; Feel through the dark For the scream.
+ - We the mortals touch the metals, the wind, the ocean shores, the stones, knowing they will go on, inert or burning, and I was discovering, naming all the these things: it was my destiny to love and say goodbye.
+ - Give me, for my life, all lives, give me all the pain of everyone, I’m going to turn it into hope. Give me all the joys, even the most secret, because otherwise how will these things be known? I have to tell them, give me the labors of everyday, for that’s what I sing.
+ - Who writes your name in letters of smoke among the stars of the south? Oh let me remember you as you were before you existed.
+ - From sorrow to sorrow love crosses its islands and establishes roots that are watered by weeping.
+ - I have forgotten your love, yet I seem to glimpse you in every window.
+ - When I got the chance I asked them a slew of questions. They offered to burn me; it was the only thing they knew.
+ - I don’t want to go on being a root in the dark, vacillating, stretched out, shivering with sleep, downward, in the soaked guts of the earth, absorbing and thinking, eating each day.
+ - Like a jar you housed infinite tenderness And the infinite tenderness shattered you like a jar.
+ - I grew up in this town, my poetry was born between the hill and the river, it took its voice from the rain, and like the timber, it steeped itself in the forests.
+ - On our earth, before writing was invented, before the printing press was invented, poetry flourished. That is why we know that poetry is like bread; it should be shared by all, by scholars and by peasants, by all our vast, incredible, extraordinary family of humanity.
+ - How you must have suffered getting accustomed to me, my savage, solitary soul, my name that sends them all running. So many times we have seen the morning star burn, kissing our eyes, and over our heads the grey light unwinds in turning fans.
+ - And the verse falls to the soul like dew to the pasture.
+ - Tell me, is the rose naked or is that her only dress? Why do trees conceal the splendor of their roots? Who hears the regrets of the thieving automobile? Is there anything in the world sadder than a train standing in the rain?
+ - Where were you then? Who else was there? Saying what? Why will the whole of love come on me suddenly when I am sad and feel you are far away?
+
+73 quotes

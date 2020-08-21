@@ -1,0 +1,37 @@
+ - If it weren’t for book tours, I would never leave my house.
+ - My theory is that you find out who your true friends are when something good happens to you, not when something bad happens to you. Everybody loves you when something bad happens to you. Then you’re easy to love.
+ - I love the dignity in the name Philadelphia, but at heart, we’re Philly.
+ - I am an open book, literally. I don’t mind if people know way too much about me.
+ - Nobody was ever replaced in life, no hole completely filled or loss totally healed. You didn’t need a medical degree to know that the human body really wasn’t stronger in the broken places. Like any bone, the cracks would always show if you looked hard enough.
+ - The thing about love is that we can’t control whether we get it, but we can control whether we give it. And each feels as good as the other. Your heart doesn’t know if it’s loving a man, a book, or a puppy. If your heart were that smart, it would be your brain.
+ - I love everything about Philadelphia, and its food is like the city itself: real-deal, hearty, and without pretension. Weve always had an underdog vibe as a city, but that just makes us try harder, and I love our scrappiness and scruffiness.
+ - I still think I’m writing Nancy Drew with a mortgage.
+ - And when I look at my mother, I reflect on her strength and endurance. She’s cranky sometimes, but she is lovable and loving. I’d be happy to be there at 86.
+ - I love my job, and I love books. I read anything, including cereal boxes. I care deeply about what people think of my books, and I memorize my reviews. I love to hear from my readers.
+ - It’s the Snickers bars. Snickers equal romance.
+ - But the fact is, I’m not work-identified. I’m not a lawyer or a writer. I’m a mom, and I’m a woman, and that’s the kind of people I want to see in books in the starring role.
+ - Ellen had long ago stopped being embarrassed by temper tantrums. She flipped it and wore it like a badge of honor. A temper tantrum was a sign that a mom said no when it counted.
+ - Any middle-aged woman knows that our feet are not for the faint of heart, especially in midwinter. I wear clogs, so it’s actually like my feet are wooden now.
+ - Likewise, I would never be so rude as to not interrupt a friend. How else would she know I was listening?
+ - Do you know what they call people who hoard books? Smart.
+ - If you cant be brave then be determined. And you will end up in the same place.
+ - Truly I never thought of myself as writing legal thrillers, and I still don’t think I do. I write stories about women.
+ - Let’s talk about a decision that women have to make every morning- Big purse or little purse?
+ - Even if it’s not what you planned, you can make a life for yourself on your own and be happy.
+ - Truth is, every writer has to be a good editor, and you have to edit yourself. It’s a skill every writer has to acquire.
+ - We can’t control what people do or say, even if it’s dumb.
+ - And wouldn’t we be better off if every New Year’s, we thought about the things we did right and we resolved to keep doing them, no matter how wacky they were.
+ - Everybody hates lawyers, but they don’t realize judges are just lawyers with a promotion. Think about it.
+ - I like terrific writing, but I also like a terrific story. My favorite books have both, and they’re by contemporary, commercial American writers.
+ - Testosterone should be a controlled substance.
+ - I read, therefore, I matter.
+ - I am really, I think, truly an easygoing, positive, fun person.
+ - There was no known cure for a Catholic education.
+ - Women shouldn’t iron, ever. It’s our wrinkles that make us interesting.
+ - Even people who counted their blessings never counted them in the morning. For one thing, there wasn’t time.
+ - The truth is that every writer, whether it’s fiction or nonfiction, is trying to write something truly original and that’s what I think I’m doing.
+ - Because the thing about love is that we can’t control whether we get it, but we can control whether we give it.
+ - People project all sorts of emotions onto their cats, and cats like it that way.
+ - You can really help support a character if you understand the setting. So for that reason I generally write about Philadelphia.
+
+35 quotes

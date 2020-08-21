@@ -1,0 +1,22 @@
+ - Trust is the fruit of a relationship in which you know you are loved.
+ - Don’t ever discount the wonder of your tears. They can be healing waters and a stream of joy. Sometimes they are the best words the heart can speak.
+ - So many believe that it is love that grows, but it is the knowing that grows and love simply expands to contain it.
+ - All I want from you is to trust me with what little you can, and grow in loving people around you with the same love I share with you. It’s not your job to change them, or to convince them. You are free to love without an agenda.
+ - Life takes a bit of time and a lot of relationship.
+ - I don’t need to punish people for sin. Sin is its own punishment, devouring you from the inside. It’s not my purpose to punish it; it’s my joy to cure it.
+ - Forgiveness in no way requires that you trust the one you forgive.
+ - You can kiss your family and friends good-bye and put miles between you, but a the same time you carry them with you in your heart, your mind your stomach, because you do not just live in a world but a world lives in you.
+ - I don’t just want a piece of you and a piece of your life. Even if you were able, which you are not, to give me the biggest piece, that is not what I want. I want all of you and all of every part of you and your day.
+ - I am especially fond of you.
+ - Love is not the limitation; love is the flying.
+ - Grace doesn’t depend on suffering to exist, but where there is suffering you will find grace in many facets and colors.
+ - Forgiveness is not about forgetting. It is about letting go of another person’s throat.
+ - If a rainbow makes a sound, or a flower as it grows, that was the sound of her laughter.
+ - Relationships are never about power, and one way to avoid the will to power is to choose to limit oneself- to serve.
+ - You don’t play a game or color a picture with a child to show your superiority. Rather, you choose to limit yourself so as to facilitate and honor that relationship.
+ - I suppose that since most of our hurts come through relationships so will our healing, and I know that grace rarely makes sense for those looking in from the outside.
+ - Let me say for now that we knew once the Creation was broken, true fathering would be much more lacking than mothering. Don’t misunderstand me, both are needed- but an emphasis on fathering is necessary because of the enormity of its absence.
+ - Authority, as you usually think of it, is merely the excuse the strong use to make others conform to what they want.
+ - You cannot produce trust just like you cannot ‘do’ humility. It either is or is not.
+
+20 quotes

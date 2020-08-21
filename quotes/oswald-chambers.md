@@ -1,0 +1,502 @@
+ - Worship is giving God the best that He has given you.
+ - Spiritual maturity is not reached by the passing of the years, but by obedience to the will of God.
+ - The remarkable thing about God is that when you fear God, you fear nothing else, whereas if you do not fear God, you fear everything else.
+ - Prayer does not fit us for the greater work; prayer is the greater work.
+ - Trust God, and do the next thing.
+ - God is the Great Engineer, creating circumstances to bring about moments in our lives of divine importance, leading us to divine appointments.
+ - We tend to use prayer as a last resort, but God wants it to be our first line of defense.
+ - Faith never knows where it is being led, but it loves and knows the One who is leading.
+ - Beware of anything that competes with your loyalty to Jesus Christ...
+ - Don’t forget to pray today because God did not forget to wake you up this morning.
+ - When you fear God you fear nothing else!
+ - Go therefore and make disciples of all the nations.
+ - Holiness, not happiness, is the chief end of man.
+ - No healthy Christian ever chooses suffering; he chooses God’s will, as Jesus did, whether it means suffering or not.
+ - Sincerity means that the appearance and the reality are exactly the same.
+ - All our fret and worry is caused by calculating without God.
+ - If through a broken heart God can bring His purposes to pass in the world, then thank Him for breaking your heart.
+ - Sanctification is not my idea of what I want God to do for me; sanctification is God’s idea of what He wants to do for me.
+ - When we no longer seek God for His blessings, we have time to seek Him for Himself.
+ - Trust yourself in God’s hands. Maintain your relationship to Jesus Christ by the patience of faith. ‘Though He slay me, yet will I trust in Him.’
+ - We have to pray with our eyes on God, not on the difficulties.
+ - God is my Father, He loves me, I shall never think of anything He will forget. Why should I worry?
+ - A life of intimacy with God is characterized by joy.
+ - Perseverance is more than endurance. It is endurance combined with absolute assurance and certainty that what we are looking for is going to happen.
+ - The love of God is not created- it is His nature.
+ - Forgiveness is the divine miracle of grace. The cost to God was the Cross of Christ.
+ - God speaks in the language you know best – not through your ears, but through your circumstances.
+ - When Jesus Christ shed his blood on the cross, it was not the blood of a martyr; or the blood of one man for another; it was the life of God poured out to redeem the world.
+ - There is nothing attractive about the gospel to the natural man; the only man who finds the gospel attractive is the man who is convicted of sin.
+ - The good is always the enemy of the best.
+ - To say that ‘prayer changes things’ is not as close to the truth as saying, ‘prayer changes me and then I change things.’ God has established things so that prayer, on the basis of redemption, changes the way a person looks at things.
+ - The true expression of Christian character is not in good-doing but in God-likeness.
+ - God gives us the vision, then he takes us down to the valley to batter us into the shape of the vision, and it is in the valley that so many of us faint and give way. Every vision will be made real if we will have patience.
+ - When we preach the love of God there is a danger of forgetting that the Bible reveals not first the love of God but the intense, blazing holiness of God, with His love at the center of that holiness.
+ - We are only what we are in the dark; all the rest is reputation.
+ - The dearest friend on earth is a mere shadow compared to Jesus Christ.
+ - The Sermon on the Mount is not a set of principles to be obeyed apart from identification with Jesus Christ. The Sermon on the Mount is a statement of the life we will live when the Holy Spirit is getting his way with us.
+ - Beware of harking back to what you once were when God wants you to be something you have never been.
+ - An unguarded strength is a double weakness.
+ - Have you been asking God what He is going to do? He will never tell you. God does not tell you what He is going to do; He reveals to you Who He is.
+ - Prayer imparts the power to walk and not faint.
+ - Every element of our own self-reliance must be put to death by the power of God.
+ - God does not exist to answer our prayers, but by our prayers we come to discern the mind of God.
+ - The real business of your life as a saved soul is intercessory prayer.
+ - Sanctification means more than being freed from sin. It means the deliberate commitment of myself to the God of my salvation, and being willing to pay whatever it may cost.
+ - God does not give us overcoming life; He gives us life as we overcome.
+ - The knowledge that God has loved me beyond all limits will compel me to go into the world to love others in the same way.
+ - Not every man can carry a full cup. Sudden elevation frequently leads to pride and a fall. The most exacting test of all to survive is prosperity.
+ - Measure your growth in grace by your sensitiveness to sin.
+ - We tend to set up success in Christian work as our purpose, but our purpose should be to display the glory of God in human life, to live a life “hidden with Christ in God” in our everyday human conditions.
+ - Obedience to the call of Christ nearly always costs everything to two people- the one who is called, and the one who loves that one.
+ - At times God puts us through the discipline of darkness to teach us to heed Him. Song birds are taught to sing in the dark, and we are put into the shadow of God’s hand until we learn to hear Him.
+ - I have never met the man I could despair of after discerning what lies in me apart from the grace of God.
+ - No love of the natural heart is safe unless the human heart has been satisfied by God FIRST.
+ - Faith is deliberate confidence in the character of God whose ways you may not understand at the time.
+ - If I obey Jesus Christ, the redemption of God will flow through me to the lives of others, because behind the deed of obedience is the reality of Almighty God.
+ - Faith is unutterable trust in God, trust which never dreams that He will not stand by us.
+ - We look for visions of heaven and we never dream that all the time God is in the commonplace things and people around us.
+ - Get into the habit of dealing with God about everything.
+ - Be relentless and hard on yourself if you are in the habit of talking about the experiences you have had. Faith based on experience is not faith; faith based on God’s revealed truth is the only faith there is.
+ - Jesus Christ carries on intercession for us in heaven; the Holy Ghost carries on intercession in us on earth; and we the saints have to carry on intercession for all men.
+ - Before God can use a man greatly he must wound him deeply.
+ - When God gets us alone through suffering, heartbreak, temptation, disappointment, sickness, or by thwarted friendship – when He gets us absolutely alone, and we are totally speechless, unable to ask even one question, then He begins to teach us.
+ - We can all see God in exceptional things, but it requires the culture of spiritual discipline to see God in every detail.
+ - Angels cannot preach the gospel, only beings such as Paul and you and I can preach the gospel.
+ - The greatest word of Jesus to His disciples is abandon.
+ - Live in a constant state of expectancy, and leave room for God to come in as He decides.
+ - We are not responsible for the circumstances we are in, but we are responsible for the way we allow those circumstances to affect us; we can either allow them to get on top of us or we can allow them to transform us into what God wants us to be.
+ - My unrestrained commitment of myself to God gives the Holy Spirit the opportunity to grant to me the holiness of Jesus Christ.
+ - Seeing is never believing: we interpret what we see in the light of what we believe. Faith is confidence in God before you see God emerging, therefore the nature of faith is that it must be tried.
+ - We are not to preach the doing of good things; good deeds are not to be preached, they are to be performed.
+ - Worship and intercession must go together, the one is impossible without the other. Intercession means that we rouse ourselves up to get the mind of Christ about the one for whom we pray.
+ - We should always choose our books as God chooses our friends, just a bit beyond us, so that we have to do our level best to keep up with them.
+ - In a conflict of loyalty, obey Jesus at all costs.
+ - When you meet a man or woman who puts Jesus Christ first, knit that one to your soul.
+ - Certainty is the mark of the commonsense life-gracious uncertainty is the mark of the spiritual life.
+ - Whenever the insistence is on the point that God answers prayer, we are off the track. The meaning of prayer is that we get hold of God, not of the answer.
+ - There is no condition of life in which we cannot abide in Jesus. We have to learn to abide in Him wherever we are placed.
+ - When God gives you a vision and darkness follows, wait. God will bring the vision He has given you to reality in your life if you will wait on His timing. Never try to help God fulfill His word.
+ - Faith never knows where it is being led, it knows and loves the One Who is leading. Faith is not resignation to a power we do not know; faith is committal to One Whose character we do know because it has been revealed to us in Jesus Christ.
+ - Be rightly related to God, find your joy there, and out of you will flow rivers of living water.
+ - Sin is blatant mutiny against God.
+ - Take care lest you play the hypocrite by spending all your time trying to get others right before you worship God yourself.
+ - Having the reality of God’s presence is not dependent on our being in a particular circumstance or place, but is only dependent on our determination to keep the Lord before us continually.
+ - We are not sent to do battle for God, but to be used by God in His battles.
+ - Holiness is the balance between my nature and the law of God as expressed in Jesus Christ.
+ - At His Ascension our Lord entered Heaven, and He keeps the door open for humanity to enter.
+ - It must be God first, God second, and God third.
+ - Faith for my deliverance is not faith in God. Faith means, whether I am visibly delivered or not, I will stick to my belief that God is love.
+ - You may often have to watch Jesus Christ wreck a life before He saves it.
+ - Narrow all your interests until the attitude of mind and heart and body is concentration on Jesus Christ.
+ - The height of the mountaintop is measured by the drab drudgery of the valley.
+ - Prayer is the vital breath of the Christian; not the thing that makes him alive, but the evidence that he is alive.
+ - The great enemy of the life of faith in God is not sin, but the good which is not good enough. The good is always the enemy of the best.
+ - Leave the Irreparable Past in His hands, and step out into the Irresistible Future with Him.
+ - God makes us as broken bread and poured-out wine to please Him. Beware of competing calls once the call of God grips you.
+ - Never say you will pray about a thing; pray about it.
+ - We are in danger of being stern where God is tender, and of being tender where God is stern.
+ - Prayer is not a preparation for work, it IS work. Prayer is not a preparation for the battle, it IS the battle. Prayer is two-fold: definite asking and definite waiting to receive.
+ - We shall find that the spheres God brings us into are not meant to teach us something but to make us something.
+ - We give credit to human wisdom when we should give credit to the divine guidance of God being exhibited through childlike people who were “foolish” enough to trust God’s wisdom and His supernatural equipment.
+ - Jesus Christ reveals, not an embarrassed God, not a confused God, not a God who stands apart from the problems, but One who stands in the thick of the whole thing with man.
+ - The great thing about faith in God is that it keeps a man undisturbed in the midst of disturbance.
+ - Our work begins where God’s grace has laid the foundation; we are not to save souls, but to disciple them.
+ - Remember Whose you are and Whom you serve.
+ - Solitude with God repairs the damage done by the fret and noise and clamour of the world.
+ - It is not what a man does that is of final importance, but what he is in what he does. The atmosphere produced by a man, much more than his activities, has the lasting influence.
+ - Disillusionment means having no more misconceptions, false impressions, and false judgments in life; it means being free from these deceptions. Refusing to be disillusioned is the cause of much of the suffering of human life.
+ - There is only One Being who can satisfy the last aching abyss of the human heart, and that is the Lord Jesus Christ.
+ - Whenever the conviction of God’s Spirit comes there is the softening of the whole nature to obey; but if the obedience is not instant there will come a metallic hardening and a corrupting of the guidance of God.
+ - Eternal life is not a gift from God; eternal life is the gift OF GOD.
+ - We pray when there’s nothing else we can do, but God wants us to pray before we do anything at all.
+ - There is no need to get to a place of prayer; pray wherever you are.
+ - My worth to God in public is what I am in private.
+ - There is a call to spiritual perseverance. A call not to hang on and do nothing, but to work deliberately, knowing with certainty that God will never be defeated.
+ - The characteristic of the new birth is that I yield myself so completely to God that Christ is formed in me.
+ - Self pity is of the devil, and if I wallow in it, I cannot be used by God for his purpose in the world.
+ - Prayer is the answer to every problem there is.
+ - The whole point of getting things done is knowing what to leave undone.
+ - Get to the end of yourself where you can do nothing, but where He does everything.
+ - Obey Him with glad reckless joy.
+ - If God has made your cup sweet, drink it with grace; if He has made it bitter, drink it in communion with Him.
+ - God’s training ground, where the missionary weapons are found, is the hidden, personal, worshiping life of the saint.
+ - Only one in a thousand sits down in the midst of it all and says – I will watch my Father mend this. God must not be treated as a hospital for our broken “toys,” but as our Father.
+ - Many people have turned back because they are afraid to look at things from God’s perspective. The greatest spiritual crisis comes when a person has to move a little farther on in his faith than the beliefs he has already accepted.
+ - When you are in the dark, listen, and God will give you a very precious message.
+ - You must learn to wrestle against the things that hinder your communication with God.
+ - Keep your life in its constant contact with God that his surprising power may break out on the right hand and on the left. Always be in a state of expectancy, and see that you leave room for God to come in as he likes.
+ - It is impossible to get exhausted in work for God. We get exhausted because we try to do God’s work in our own way.
+ - All Christians have the Spirit of Christ, but not all Christians have the mind of Christ.
+ - The central point of the Kingdom of Jesus Christ is a personal relationship with Him, not public usefulness to others.
+ - Happiness depends on what happens; joy does not.
+ - The great paralysis of our heart is unbelief.
+ - Too often we treat prayer as the preparation for the work of the church. Do you not see? Prayer IS the work of the church.
+ - By the supernatural miracle of God’s grace I stand justified, not because I am sorry for my sin, not because I have repented, but because of what Jesus has done.
+ - God never gives us discernment in order that we may criticize, but that we may intercede.
+ - Confidence in the natural world is self-reliance; in the spiritual world, it is God-reliance.
+ - Temptations in the life of faith are not accidents; each temptation is part of a plan, a step in the progress of faith.
+ - We are built for the valley, for the ordinary stuff we are in, and that is where we have to prove our mettle.
+ - If we obey God it is going to cost other people more than it costs us, and that is where the sting comes in. If we are in love with our Lord, obedience does not cost us anything, it is a delight, but it costs those who do not love Him a good deal.
+ - When obedience is in the ascendant, He will tax the remotest star and the last grain of sand to assist you with all His Almighty power.
+ - The life of faith is not a life of mounting up with wings, but a life of walking and not fainting.
+ - The best measure of a spiritual life is not its ecstasies but its obedience.
+ - Quit praying about yourself and spend your life for the sake of others as the bondservant of Jesus. That is the true meaning of being broken bread and poured-out wine in real life.
+ - The moral miracle of redemption is that God can put a new nature into me through which I can live a totally new life.
+ - Never water down or minimise the mighty Gospel of God by considering that people may be misled by certain statements. Present the Gospel in all its fullness and God will guard His own truth.
+ - The root of all sin is the suspicion that God is not good.
+ - Never run before God gives you His direction. If you have the slightest doubt, then He is not guiding. Whenever there is doubt-wait.
+ - If we think of prayer as the breath of our lungs and the blood from our hearts, we think rightly. The blood flows and the breathing continues – we are not conscious of it but it is always going on.
+ - If a man cannot prove his religion in the valley, it is not worth anything.
+ - God’s purpose is not to perfect me to make me a trophy in His showcase; He is getting me to the place where He can use me. Let Him do what He wants.
+ - The real attitude of sin in the heart towards God is that of being without God; it is pride, the worship of myself, that is the great atheistic fact in human life.
+ - Spend plenty of time with God; let other things go, but don’t neglect Him. We are not here to do work for God, we are here to be workers with Him, those through whom He can do His work.
+ - Beware of reasoning about God’s Word – obey It.
+ - We must learn to live in the ordinary ‘gray’ day according to what we saw on the mountain.
+ - Do not have as your motive the desire to be known as a praying man. Get an inner chamber in which to pray where no one knows you are praying, shut the door, and talk to God in secret.
+ - The battle is lost or won in the secret places of the will before God, never first in the external world.
+ - One man or woman called of God is worth a hundred who have elected to work for God.
+ - All of God’s people are ordinary people who have been made extraordinary by the purpose He has given them.
+ - No power on earth or in hell can conquer the Spirit of God in a human spirit.
+ - Our spiritual life cannot be measured by success as the world measures it, but only by what God pours through us- and we cannot measure that at all.
+ - Trust no one, not even the finest saint who ever walked this earth, ignore him, if he hinders your sight of Jesus Christ.
+ - The moment we recognize our complete weakness and our dependence upon Him will be the very moment that the Spirit of God will exhibit His power.
+ - Am I becoming more and more in love with God as a holy God, or with the conception of an amiable Being who says, “Oh well, sin doesn’t matter much”?
+ - We have become so self-centered that we go to God only for something from Him, and not for God Himself.
+ - Never focus your eyes on the obstacle or the difficulty. The obstacle will be a matter of total indifference to the river that will flow steadily through you if you will simply remember to stay focused on the Source.
+ - We look upon prayer simply as a means of getting things for ourselves, but the biblical purpose of prayer is that we may get to know God Himself.
+ - Sanctification means being made one with Jesus so that the disposition that ruled Him will rule us. It will cost everything that is not of God in us.
+ - Trust completely in God, and when He brings you to a new opportunity of adventure, offering it to you, see that you take it.
+ - If God allows you to be stripped of the exterior portions of your life, He means for you to cultivate the interior.
+ - Intercession means that we deliberately substitute God’s interests in others for our natural sympathy with them.
+ - Let the consequences of your obedience be left up to God.
+ - God answers prayer on the ground of Redemption and on no other ground.
+ - Every man is made to reach out beyond his grasp.
+ - You say, “But He has not answered.” He has, He is so near to you that His silence is the answer. His silence is big with terrific meaning that you cannot understand yet, but presently you will.
+ - The only right a Christian has is the right to give up his rights.
+ - Watch the things you say you can’t believe, and then recall the things you accept without thinking, like your own existence.
+ - Grapes become wine only when they have been squeezed.
+ - Faith that is sure of itself is not faith; faith that is sure of God is the only faith there is.
+ - Tell God you are ready to be offered, and God will prove Himself to be all you ever dreamed He would be.
+ - There is nothing more certain in Time or Eternity than what Jesus Christ did on the Cross.
+ - The greatest answer to prayer is that I am brought into a perfect understanding with God, and that alters my view of actual things.
+ - There is always one fact more in every man’s case about which we know nothing.
+ - It is not true to say that God wants to teach us something in our trials. Through every cloud He brings our way, He wants us to unlearn something...
+ - Jesus Christ became Incarnate for one purpose, to make a way back to God that man might stand before Him as He was created to do, the friend and lover of God Himself.
+ - God will never reveal more truth about himself until you have obeyed what you know already.
+ - God expects no complaining on our part and offers no explanation on His part.
+ - God’s grace turns out men and women with a strong family likeness to Jesus Christ, not milksops.
+ - Every God-given vision will become real if we will only have patience.
+ - The peace that Jesus gives is never engineered by circumstances on the outside.
+ - Jesus Christ can afford to be misunderstood; we cannot. Our weakness lies in always wanting to vindicate ourselves.
+ - Christianity is not consistency to conscience or to convictions; Christianity is being true to Jesus Christ.
+ - When I see Jesus Christ I simply want to be what He wants me to be.
+ - We are here for God’s designs, not for our own.
+ - The Bible does not thrill; the Bible nourishes. Give time to the reading of the Bible and the recreating effect is as real as that of fresh air physically.
+ - Sin is not wrong doing, it is wrong BEING, deliberate and emphatic independence of God.
+ - When we are abandoned to God, He works through us all the time.
+ - If we rely on the Holy Spirit, we shall find that our prayers become more and more inarticulate; and when they are inarticulate, reverence grows deeper and deeper.
+ - The people who influence us are those who have stood unconsciously for the right thing. They are like the stars and the lilies, and the joy of God flows through them all the time.
+ - No matter who or what we are, God restores us to right standing with Himself only by means of the death of Jesus Christ.
+ - Satan does not tempt us just to make us do wrong things- he tempts us to make us lose what God has put into us through regeneration, namely, the possibility of being of value to God.
+ - We must keep ourselves in touch, not with theories, but with people, and never get out of touch with human beings, if we are going to use the word of God skilfully amongst them.
+ - Sorrow burns up a great amount of shallowness.
+ - Begin to know Him now, and finish never.
+ - The proof that our relationship is right with God is that we do our best whether we feel inspired or not.
+ - The most important aspect of Christianity is not the work we do, but the relationship we maintain and the surrounding influence and qualities produced by that relationship. That is all God asks us to give our attention to, and it is the one thing that is continually under attack.
+ - As soon as we abandon ourselves to God and do the task He has placed closest to us, He begins to fill our lives with surprises.
+ - One of the most amazing revelations of God comes to us when we learn that it is in the everyday things of life that we realize the magnificent deity of Jesus Christ.
+ - Don’t plan without God. God seems to have a delightful way of upsetting the plans we have made, when we have not taken Him into account.
+ - God does not further our spiritual life in spite of our circumstances, but in and by our circumstances.
+ - When you have learned to walk in the light of the Lord, bitterness and contention are impossible.
+ - The call of God is not a reflection of my nature; my personal desires and temperament are of no consideration. As long as I dwell on my own qualities and traits and think about what I am suited for, I will never hear the call of God.
+ - Beware of bartering the Word of God for a more suitable conception of your own.
+ - God can never make us wine if we object to the fingers He uses to crush us with.
+ - One life totally devoted to God is of more value to Him than one hundred lives which have been simply awakened by His Spirit.
+ - The Christian Church should not be a secret society of specialists, but a public manifestation of believers in Jesus.
+ - Faith is the inborn capacity to see God behind everything.
+ - Get alone with Jesus and either tell Him that you do not want sin to die out in you – or else tell Him that at all costs you want to be identified with His death.
+ - If I obey Jesus Christ in the seemingly random circumstances of life, they become pinholes through which I see the face of God.
+ - God has one destined end for mankind – holiness! His one aim is the production of saints. God is not an eternal blessing-machine for men. He did not come to save men out of pity. He came to save men because He had created them to be holy.
+ - Living a life of faith means never knowing where you are being led.
+ - God nowhere tells us to give up things for the sake of giving them up. He tells us to give them up for the sake of the only thing worth having – viz., life with Himself. It is a question of loosening the bonds that hinder the life...
+ - It is better to run the risk of being considered indecisive, better to be uncertain and not promise, than to promise and not fulfill.
+ - Every time we pray our horizon is altered, our attitude to things is altered, not sometimes but every time, and the amazing thing is that we don’t pray more.
+ - Do you believe that God can change bitter circumstances into sweet blessing? Are you willing to let Him?
+ - Doubt is not always a sign that a man is wrong; it may be a sign that he is thinking.
+ - Never make a principle out of your experience. Allow God to be as creative with others as He is with you.
+ - We must build our faith not on fading lights but on the Light that never fails.
+ - It is impossible to conduct your life as a disciple without definite times of secret prayer.
+ - Our ordinary abilities will never worship God unless they are transformed by the indwelling Son of God.
+ - There is no greater threat to our devotion to Christ than our service for Christ.
+ - The one thing for which we are all being disciplined is to know that God is real. As soon as God becomes real, other people become shadows. Nothing that other saints do or say can ever perturb the one who is built on God.
+ - God is patient with the process! Think of the enormous leisure of God! He is never in a hurry.
+ - The deadliest Pharisaism today is not hypocrisy, but unconscious unreality.
+ - The golden rule for understanding spiritually is not intellect, but obedience. If a man wants scientific knowledge, intellectual curiosity is his guide; but if he wants insight into what Jesus Christ teaches, he can only get it by obedience.
+ - Grace is the overflowing favor of God, and you can always count on it being available to draw upon as needed.
+ - It is much easier to do something than to trust in God. That is why there are so few fellow workers with God and so many workers for Him. We would far rather work for God than believe in Him.
+ - The Christian life is one of spiritual courage and determination lived out in our flesh.
+ - Our natural virtues can never come anywhere near what Jesus Christ wants.
+ - We actually slander and dishonor God by our very eagerness to serve Him without knowing Him.
+ - When we say “Thy will be done,” do we say it with a sigh? If so, we have never realized that the character of God is holy love; nothing can ever happen outside His purposeful will.
+ - The battle of prayer is against two things in the earthlies: wandering thoughts and lack of intimacy with God’s character as revealed in His word. Neither can be cured at once, but they can be cured by discipline.
+ - The sympathy which is reverent with what it cannot understand is worth its weight in gold.
+ - The greatest competitor of devotion to Jesus is service for Him.
+ - Death is God’s delightful way of giving us life.
+ - If we are abandoned to Jesus we have no ends of our own to serve.
+ - People pour themselves into their own doctrines, and God has to blast them out of their preconceived ideas before they can become devoted to Jesus Christ.
+ - Whenever you get a blessing from God, give it back to Him as a love gift.
+ - In times of prosperity we are apt to forget God; we imagine it does not matter whether we recognise Him or not. As long as we are comfortably clothed and fed and looked after, our civilisation becomes an elaborate means of ignoring God.
+ - Anything that belittles or obliterates the holiness of God by a false view of the love of God, is untrue to the revelation of God given by Jesus Christ.
+ - The institutions of Churchianity are not Christianity. An institution is a good thing if it is second; immediately an institution recognizes itself it becomes the dominating factor.
+ - We must learn to tell ourselves the truth on the basis of God’s Word.
+ - Beware of any belief that makes you self-indulgent; it came from the pit, no matter how beautiful it sounds.
+ - Prayer is the supreme activity of all that is noblest in our personality, and the essential nature of prayer is faith.
+ - Our Lord did not say it was wrong to pray in the corners of the street, but He did say it was wrong to have the motive to “be seen of men”.
+ - Prayer is not only asking, it is an attitude of heart that produces an atmosphere in which asking is perfectly natural, and Jesus says, “every one that asketh receiveth.”
+ - There is no joy in the soul that has forgotten what God prizes.
+ - Never be hurried out of the relationship of abiding in Him.
+ - We preach to men as if they were conscious they were dying sinners, they are not; they are having a good time.
+ - God does not expect us to imitate Jesus Christ; He expects us to allow the life of Jesus to be manifested in our moral flesh.
+ - When we discern that people are not going on spiritually and allow the discernment to turn to criticism, we block our way to God. God never gives us discernment in order that we may criticize, but that we may intercede.
+ - God can do nothing for me until I recognize the limits of what is humanly possible, allowing Him to do the impossible.
+ - The Bible talks plentifully about joy, but it nowhere talks about a ‘happy Christian.’ Happiness depends on what happens; joy does not. Remember, Jesus Christ had joy, and He prayed ‘that they might have my joy fulfilled in themselves.’
+ - A saint is never consciously a saint- a saint is consciously dependent on God.
+ - Spiritual lust causes me to demand an answer from God, instead of seeking God Himself who gives the answer.
+ - To wait is not to sit with folded hands, but to learn to do what we are told.
+ - Sin is not weakness, it is a disease; it is red-handed rebellion against God and the magnitude of that rebellion is expressed by Calvary’s cross.
+ - Tolerating a wrong attitude toward another person causes you to follow the spirit of the devil, no matter how saintly you are.
+ - We have to keep letting go, and slowly and surely the great full life of God will invade us in every part, and men will take knowledge of us that we have been with Jesus.
+ - Depression tends to turn us away from the everyday things of God’s creation. But whenever God steps in, His inspiration is to do the most natural, simple things- things we would never have imagined God was in, but as we do them we find Him there.
+ - When it is a question of God’s almighty Spirit, never say, ‘I can’t.’
+ - Joy comes from seeing the complete fulfillment of the specific purpose for which I was created and born again, not from successfully doing something of my own choosing.
+ - Our understanding of God is the answer to prayer; getting things from God is God’s indulgence of us. When God stops giving us things, He brings us into the place where we can begin to understand Him.
+ - The people who influence us most are not those who buttonhole us and talk to us, but those who live their lives like the stars in heaven and the lilies in the field, perfectly simply and unaffectedly. Those are the lives that mould.
+ - The purpose of prayer is to reveal the presence of God equally present, all the time, in every condition.
+ - It is perilously possible to make our conceptions of God like molten lead poured into a specially designed mould, and when it is cold and hard we fling it at the heads of the religious people who don’t agree with us.
+ - The crisis will reveal whether we have been practicing or not.
+ - Faith is not intelligent understanding, faith is deliberate commitment to a Person where I see no way.
+ - We are not meant to be seen as God’s perfect, bright-shining examples, but to be seen as the everyday essence of ordinary life exhibiting the miracle of His grace.
+ - Prayer is simple, prayer is supernatural, and to anyone not related to our Lord Jesus Christ, prayer is apt to look stupid.
+ - Never be diplomatic and careful about the treasure God gives. This is poverty triumphant.
+ - The greatest test of a man’s character is his tongue.
+ - We always know when Jesus is at work because He produces in the commonplace something that is inspiring.
+ - All heaven is interested in the cross of Christ, all hell terribly afraid of it, while men are the only beings who more or less ignore its meaning.
+ - The truth is we have nothing to fear and nothing to overcome because He is all in all and we are more than conquerors through Him.
+ - It is in the middle that human choices are made; the beginning and the end remain with God. The decrees of God are birth and death, and in between those limits man makes his own distress or joy.
+ - The way to grow strong in Christ is to become weak in yourself.
+ - A private relationship of worshiping God is the greatest essential element of spiritual fitness.
+ - Our Lord’s conception of discipleship is not that we work for God, but that God works through us.
+ - The Spirit is the first power we practically experience, but the last power we come to understand.
+ - We look upon the enemy of our souls as a conquered foe, so he is, but only to God, not to us.
+ - It is a great thing to see physical courage, and greater still to see moral courage, but the greatest to see of all is spiritual courage; oh, to see a person who will stand true to the integrity of Jesus Christ no matter what he or she goes through!
+ - So long as there is a human being who does not know Jesus Christ, I am his debtor to serve him until he does.
+ - To choose suffering makes no sense at all; to choose God’s will in the midst of our suffering makes all the sense in the world.
+ - Conscience is the internal perception of God’s Moral Law.
+ - Temptation is a suggested short cut to the realization of the highest at which I aim – not towards what I understand as evil, but towards what I understand as good.
+ - Faith must be tested, because it can be turned into a personal possession only through conflict.
+ - The one true mark of a saint of God is the inner creativity that flows from being totally surrendered to Jesus Christ.
+ - The test of the life of a saint is not success, but faithfulness in human life as it actually is.
+ - There is actually only one thing you can dedicate to God, and that is your right to yourself. If you will give God your right to yourself, He will make a holy experiment out of you – and His experiments always succeed.
+ - Watch where Jesus went. The one dominant note in His life was to do His Father’s will. His was not the way of wisdom or of success, but the way of faithfulness.
+ - When the truth is preached, the Spirit of God brings each person face to face with God Himself.
+ - Never look for justice in this world, never cease to give it.
+ - The center of salvation is the Cross of Jesus, and the reason it is so easy to obtain salvation is because it cost God so much.
+ - Christianity is not devotion to work, or to a cause, or a doctrine, but devotion to a Person, the Lord Jesus Christ.
+ - Readiness for God means that we are ready to do the tiniest little thing or the great big thing, it makes no difference.
+ - Never run away with the idea that it doesn’t matter much what we believe or think; it does. What we believe and think, we are; not what we say we believe and think, but what we really do believe and think, we are; there is no divorce at all.
+ - As we go forth into the coming year, let it not be in the haste of impetuous, forgetful delight, nor with the quickness of impulsive thoughtlessness. But let us go out with the patient power of knowing that the God of Israel will go before us.
+ - A river reaches places its source never knows.
+ - Never make the blunder of trying to forecast the way God is going to answer your prayer.
+ - If we were never depressed we should not be alive; it is the nature of a crystal never to be depressed.
+ - When once you realize all that it cost God to forgive you, you will be held as in a vice, constrained by the love of God.
+ - It is a joy to Jesus when a person takes time to walk more intimately with Him. The bearing of fruit is always shown in scripture to be a visible result of an intimate relationship with Jesus Christ.
+ - Prayer is the exercise of drawing on the grace of God.
+ - You will never cease to be the most amazed person on earth at what God has done for you on the inside.
+ - It’s one thing to go through a crisis grandly, yet quite another to go through every day glorifying God when there is no witness, no limelight, and no one paying even the remotest attention to us.
+ - The God who guides the stars, unhasting and unresting, will as assuredly fulfill what He has promised.
+ - The entrance into the Kingdom is through the panging pains of repentance crashing into a man’s respectable goodness; then the Holy Ghost, who produces these agonies begins the formation of the Son God in the life.
+ - Service is the overflow which pours from a life filled with love and devotion. But strictly speaking, there is no call to that. Service is what I bring to the relationship and is the reflection of my identification with the nature of God.
+ - The majority of us do not enthrone God, we enthrone common sense. We make our decisions and then ask the real God to bless our God’s decision.
+ - Make the determination to abide in Jesus wherever you are now or wherever you may be placed in the future.
+ - The only way we can be of use to God is to let Him take us through the crooks and crannies of our own characters.
+ - It is much easier to do something than to trust in God; we mistake panic for inspiration.
+ - To be obsessed by God is to have an effective barricade against all the assaults of the enemy.
+ - Never forget that our capacity and capability in spiritual matters is measured by, and based on, the promises of God.
+ - The strain of life is what builds our strength. If there is no strain, there will be no strength.
+ - God never fits His word to suit me; He fits me to suit His word.
+ - To identify with the death of Jesus Christ means that we must die to everything that was never a part of Him.
+ - Our circumstances are the means God uses to exhibit just how wonderfully perfect and extraordinarily pure His Son is.
+ - It is by no haphazard chance that in every age men have risen early to pray. The first thing that marks decline in spiritual life is our relationship to the early morning.
+ - If a crisis has come to you on any front, surrender your will to Jesus absolutely and irrevocably.
+ - If we are going to live as disciples of Jesus, we have to remember that all noble things are difficult.
+ - It is a tremendous freedom to get rid of all self-considerat ion and learn to care about only one thing-the relationship between Christ and ourselves.
+ - Never try to help God fulfill His word.
+ - Our prayers are heard, not because we are in earnest, not because we suffer, but because Jesus suffered.
+ - The whole idea of the prayers of the saints is that God’s holiness, God’s purpose, God’s ways may be brought about irrespective of who comes or goes.
+ - Don’t waste time asking God to keep you from doing things. Don’t do them.
+ - God always ignores the present perfection for the ultimate perfection.
+ - Once the call of God comes to you, start going and never stop.
+ - If we are obsessed by God, nothing else can get into our lives – not concerns, nor tribulation, not worries.
+ - At the back of it there lies the central citadel of obstinacy: I will not give up my right to myself – the thing God intends you to give up if ever you are going to be a disciple of Jesus Christ.
+ - Intercession means raising ourselves up to the point of getting the mind of Christ regarding the person for whom we are praying.
+ - Prayer is simple, as simple as a child making known its wants to it parents.
+ - God’s end is to enable me to see that he can walk on the chaos of my life just now.
+ - God is not saving the world; it is done. Our business is to get men and women to realize it.
+ - If we believe in Jesus, it is not what we gain but what He pours through us that really counts. God’s purpose is not simply to make us beautiful, plump grapes, but to make us grapes so that He may squeeze the sweetness out of us.
+ - Dreaming about a thing in order to do it properly is right; but dreaming about it when we should be doing it is wrong.
+ - The author who benefits you most is not the one who tells you something you did not know before, but the one who gives expression to the truth that has been dumbly struggling in you for utterance.
+ - We think we understand another person’s struggle until God reveals the same shortcomings in our lives.
+ - No man has ever gone through the crisis of deliberately making Jesus Lord and found Him to be a failure.
+ - Are you willing to give and be poured out until you are used up and exhausted-not seeking to be ministered to, but to minister?
+ - There are many things that are perfectly legitimate, but if you are going to concentrate on God you cannot do them.
+ - I have no right to say I believe in God unless I order my life as under His all-seeing Eye.
+ - The secret of Christian quietness is not indifference, but the knowledge that God is my Father, He loves me, I shall never think of anything He will forget, and worry becomes an impossibility.
+ - Intercession is about putting ourselves in other’s shoes or having sympathy with others. But intercessions are about having the mind of God and see things through His perspective.
+ - The thing that awakens the deepest fountain of gratitude in a human being is that God has forgiven his sin.
+ - The lasting value of our public service for God is measured by the depth of the intimacy of our private times of fellowship and oneness with Him.
+ - Happiness is not a sign that we are right with God; happiness is a sign of satisfaction, that is all, and the majority of us can be satisfied on too low a level.
+ - If you will receive yourself in the fires of sorrow, God will make you nourishment for other people.
+ - When I was born again, I received the very life of the risen Lord from Jesus Himself.
+ - Be persistent with your disturbance until you get face to face with the Lord himself. Don’t deify common sense.
+ - We say, sorrow, disaster, calamity. God says, chastening and it sounds sweet to him though it is a discord to our ears. Don’t faint when you are rebuked, and don’t despise the chastening of the Lord. In your patience possess your souls.
+ - Watch your motive before God; have no other motive in prayer than to know Him.
+ - If sin rules in me, God’s life in me will be killed; if God rules in me, sin in me will be killed.
+ - God never gives strength for tomorrow, or for the next hour, but only for the strain of the minute.
+ - Is He going to help Himself to your life, or are you taken up with your conception of what you are going to do? God is responsible for our lives, and the one great keynote is reckless reliance upon Him.
+ - A saint realizes that it is God who engineers his circumstances; consequently there are no complaints, only unrestrained surrender to Jesus.
+ - Thoughts about myself hinder my usefulness to God.
+ - Our Lord’s teaching is always anti-self-realization. His purpose is not the development of a man; His purpose is to make a man exactly like Himself, and the characteristic of the Son of God is self-expenditure.
+ - Very few of us know anything about loyalty to Christ – For My Sake. It is that which makes the iron saint.
+ - God places His saints where they will bring the most glory to Him, and we are totally incapable of judging where that may be.
+ - The saint is hilarious when he is crushed with difficulties because the thing is so ludicrously impossible to anyone but God.
+ - It never cost a disciple anything to follow Jesus; to talk about cost when you are in love with anyone is an insult.
+ - Refusing to be disillusioned is the cause of much of the suffering of human life.
+ - Never allow anything that divides or destroys the oneness of your life with Christ to remain in your life without facing it.
+ - We must get to the place of real solitude with Christ. He is our mountain-height and our sea-calm.
+ - A heartless Christian must be a terrible grief to our Lord.
+ - Sometimes there is nothing to obey, the only thing to do is to maintain a vital connection with Jesus Christ, to see that nothing interferes with that.
+ - I have to learn that the aim in life is God’s, not mine.
+ - Jesus Christ founded His Kingdom on the weakest link of all-a Baby.
+ - It is easy for us to tarnish God’s character because He never argues back; He never tries to defend or vindicate himself.
+ - What is the sign of a friend? Is it that he tells you his secret sorrows? No, it is that he tells you his secret joys. Many people will confide their secret sorrows to you, but the final mark of intimacy is when they share their secret joys with you.
+ - Abandonment to God is of more value than personal holiness!
+ - It is inbred in us that we have to do exceptional things for God: but we have not. We have to be exceptional in the ordinary things, to be holy in mean streets, among mean people, and this is not learned in five minutes.
+ - Do not expect God always to give you His thrilling minutes, but learn to live in the domain of drudgery by the power of God.
+ - The voice of the Spirit is as gentle as a zephyr, so gentle that unless you are living in perfect communion with God, you never hear it.
+ - We impoverish God in our minds when we say there must be answers to our prayers on the material plane; the biggest answers to our prayers are in the realm of the unseen.
+ - But God is the God of our yesterdays, and He allows the memory of them to turn the past into a ministry of spiritual growth for our future. God reminds us of the past to protect us from a very shallow security in the present.
+ - We trample the blood of the Son of God underfoot if we think we are forgiven because we are sorry for our sins.
+ - If our hopes are being disappointed just now, it means they are being purified.
+ - Prayer is not getting things from God. That is a most initial stage; prayer is getting into perfect communion with God: I tell Him what I know He knows in order that I may get to know it as He does.
+ - If we have never had the experience of taking our commonplace religious shoes off our commonplace religious feet, and getting rid of all the undue familiarity with which we approach God, it is questionable whether we have ever stood in his presence.
+ - Never allow the thought, ‘I am of no use where I am.’ You are certainly of no use where you’re not.
+ - For one man who can introduce another to Jesus Christ by the way he lives and by the atmosphere of his life, there are a thousand who can only talk jargon about him.
+ - The whole meaning of prayer is that we may know God.
+ - Never take your obedience as the reason God blesses you; obedience is the outcome of being rightly related to God.
+ - Fretting springs from a determination to get our own way.
+ - Prayer is not logical, it is a mysterious moral working of the Holy Spirit.
+ - Living a life of faith means never knowing where you are being led – but it does mean loving and knowing the One who is leading. It is literally a life of FAITH, not of understanding and reason- – a life of knowing Him who calls us to go.
+ - Worship God in the difficult circumstances, and when He chooses, He will alter them in two seconds.
+ - Service is the overflow which pours from a life filled with love and devotion.
+ - Never become attached to anything that continues to hurt God. For you to be free of it, God must be allowed to hurt whatever it may be.
+ - Today Jesus Christ is being dispatched as the Figurehead of a Religion, a mere example. He is that, but he is infinitely more; He is salvation itself, He is the Gospel of God.
+ - The more you fulfill yourself, the less you will seek God.
+ - The vision that God gives is not some unattainable castle in the sky, but a vision of what God wants you to be down here.
+ - The well of your incompleteness runs deep, but make the effort to look away from yourself and to look toward Him.
+ - How many people have you made homesick for God?
+ - Now is the time for us to stop seeking our own satisfaction and to pour out our lives before HIM.
+ - To silence the Voice of God is damnation in time!
+ - The men with God’s ‘go’ in them have these three characteristics-a saving experience, the evidence of supernatural power at work, and the spiritual efficacy of success in prayer.
+ - Keep your soul fit to manifest the life of the Son of God. Never live on memories; let the word of God be always living and active in you.
+ - God rarely allows a person to see how great a blessing he is to others.
+ - Continually revise your relationship to God until the only certainty you have is not that you are faithful, but that He is.
+ - Some of us are like the Dead Sea, always taking in but never giving out, because we are not rightly related to the Lord Jesus.
+ - Prayer is God’s answer to our poverty, not a power we exercise to obtain an answer.
+ - With Christ, it is not how much we give, but what we do not give that is the real test.
+ - It is a trap to presume that God wants to make us perfect specimens of what He can do – God’s purpose is to make us one with Himself.
+ - The inattentive, slovenly way we drift into the presence of God is an indication that we are not bothering to think about Him. Whenever our Lord spoke of prayer, He said, “Ask.” It is impossible to ask if you do not concentrate.
+ - The greatest test of Christianity is the wear and tear of daily life; it is like the shining of silver: the more it is rubbed the brighter it grows.
+ - The aim of the missionary is to do God’s will, not to be useful, not to win the heathan; he is useful and does win the heathen, but that is not his aim. His aim is to do the will of his Lord.
+ - We think of prayer as a preparation for work, or a calm after having done work, whereas prayer is the essential work.
+ - It is the unseen and the spiritual in people that determines the outward and the actual.
+ - Discipleship is based solely on devotion to Jesus Christ, not on following after a particular belief or doctrine.
+ - Earnestness is not by any means everything; it is very often a subtle form of pious pride because it is obsessed with the method and not with the Master.
+ - We are not built for ourselves, but for God. Not for service for God, but for God.
+ - When a man gets to despair he knows that all his thinking will never get him out. He will only get out by the sheer creative effort of God. Consequently he is in the right attitude to receive from God that which he cannot gain for himself.
+ - Adam was created to be the friend and companion of God, he was to have dominion over all the life in the air and earth and sea, but one thing he was not to have dominion over, and that was himself.
+ - Character in a saint means the disposition of Jesus Christ persistently manifested.
+ - Do we so appreciate the marvelous salvation of Jesus Christ that we are our utmost for His highest?
+ - Our Lord’s first obedience was to the will of his Father, not to the needs of men; the saving of men was the natural outcome of his obedience to the Father.
+ - Beware of making a fetish of consistency to your convictions instead of being devoted to God.
+ - Nothing in our lives is a mere insignificant detail to God.
+ - When the darkness of dismay comes, endure until it is over, because out of it will come that following of Jesus which is an unspeakable joy.
+ - Beware of any work for God that causes or allows you to avoid concentrating on Him. A great number of Christian workers worship their work. The only concern of Christian workers should be their concentration on God.
+ - God’s silences are His answers. If we only take as answers those that are visible to our senses, we are in a very elementary condition of grace.
+ - Reflected peace is the proof that you are right with God because you are at liberty to turn your mind to Him.
+ - The marvelous thing about spiritual wealth is that when we take our part in that, everyone else is blessed; whereas if we refused to be partakers, we hinder others from entering into the riches of God.
+ - The measure of the worth of our public activity for God is the private profound communion we have with Him...
+ - Yielding to Jesus will break every form of slavery in any human life.
+ - God does not make us holy in the sense of character; He makes us holy in the sense of innocence, and we have to turn that innocence into holy character by a series of moral choices.
+ - We can never be like lillies in the garden unless we have spent time as bulbs in the dark, totally ignored.
+ - It is not the thing on which we spend the most time that moulds us, but the thing that exerts the greatest power. Five minutes with God and His Word is worth more than all the rest of the day.
+ - The characteristic of a disciple is not that he does good things, but that he is good in his motives, having been made good by the supernatural grace of God.
+ - If you are going through a time of discouragement, there is a time or great personal growth ahead.
+ - Am I always in contact with Reality, or do I only pray when things have gone wrong, when there is a disturbance in the moments of my life?
+ - We are in danger of forgetting that we cannot do what God does, and that God will not do what we can do.
+ - Human nature, if healthy, demands excitement; and if it does not obtain its thrilling excitement in the right way, it will seek it in the wrong. God never makes bloodless stoics; He makes no passionless saints.
+ - Peace is the deepest thing a human personality can know; it is almighty.
+ - It is better to enter into life maimed but lovely in God’s sight than to appear lovely to man’s eyes but lame to God’s.
+ - It is misleading to imagine that we are developed in spite of our circumstances, for we are developed because of them. It is mastery in circumstances that is needed, not mastery over them.
+ - When we become advocates of a creed, something dies; we do not believe God, we only believe our belief about Him.
+ - Our Lord never lays down the conditions of discipleship as the conditions of salvation.
+ - One of the greatest strains in life is the strain of waiting for God.
+ - A hypocrite is one who plays two parts consciously for his own ends. When we find fault with other people we may be quite sincere, and yet Jesus says in reality we are frauds.
+ - Keep your life so constantly in touch with God that His surprising power can break through at any point.
+ - If I am going to know who Jesus is, I must obey Him. The majority of us don’t know Jesus because we have not the remotest intention of obeying Him.
+ - Be exhausted for God, but remember that your supply comes from Him. ‘All my fresh springs shall be in thee.’
+ - There is nothing to be valued more highly than to have people praying for us; God links up His power in answer to their prayers.
+ - Once we see Jesus, the impossible things He does in our lives become as natural as breathing.
+ - The degree of panic activity in my life is equal to the degree of my lack of personal spiritual experience.
+ - Our salvation comes to us so easily because it cost God so much.
+ - Take yourself by the scruff of the neck and shake off your incarnate laziness.
+ - We have to take the first step as though there were no God. It is no use to wait for God to help us, He will not: but immediately we arise we find He is there.
+ - When someone thinks that to develop a holy life he must always be alone with God, he is no longer of any use to others.
+ - The passion of Christianity comes from deliberately signing away my own rights and becoming a bondservant of Jesus Christ. Until I do that, I will not begin to be a saint.
+ - The spirit of God has the habit of taking the words of Jesus out of their scriptural setting and putting them into the setting of our personal lives.
+ - God’s “nothings” are His most positive answers. We have to stay on God and wait. Never try to help God to fulfill His word.
+ - Our Lord never referred to unanswered prayer; he taught that prayers are always answered. He ever implied that prayers were answered rightly because of the Heavenly Father’s wisdom.
+ - God judges us on the basis of the miraculous atonement by the Cross of Christ.
+ - There are certain things we must not pray about – moods, for instance. Moods never go by praying, moods go by kicking.
+ - Realize that the Lord is here now, and the freedom you receive is immediate.
+ - Paul welcomed hearbreak, disillusionment and tribulation for only one reason – – these things kept him immovable in his devotion to the gospel of God.
+ - Never believe that the so-called random events of life are anything less than God’s appointed order. Be ready to discover His divine designs anywhere and everywhere.
+ - God will turn the might have been into a wonderful culture for the future.
+ - We lean to our own understanding, or we bank on service and do away with prayer, and consequently by succeeding in the external we fail in the eternal, because in the eternal we succeed only by prevailing prayer.
+ - When we touch the foundation of the reality of the good news of God, we will never bother Him anymore with little personal complaints.
+ - Don’t read to remember; read to realize.
+ - When we pray “in the Name of Jesus” the answers are in accordance with His nature, and if we think our prayers are unanswered it is because we are not interpreting the answer along this line.
+ - A man ceases to be an honest doubter the moment he refuses one way of getting at the truth because he does not like that way.
+ - The nature of faith is that it must be tried.
+ - I cannot give up my will – I must exercise it, putting it into action.
+ - Our Lord was 30 years preparing for 3 years of service. The modern stamp is to spend 3 hours preparing for 30 years of service.
+ - No matter what changes God has performed in you, never rely on them. Build only on a Person, the Lord Jesus Christ, and on the Spirit He gives.
+ - We read some things in the Bible three hundred and sixty-five times and they mean nothing to us, then all of a sudden we see what God means, because in some particular we have obeyed God, and instantly His nature is opened up.
+ - Has it ever dawned on you that you are responsible spiritually to God for other people?
+ - The disciple is rich not in possessions, but in personal identity.
+ - Are you learning to say things after listening to God, or are you saying things and trying to make God’s word fit in?
+ - One great effect of prayer is that it enables the soul to command the body. By obedience I make my body submissive to my soul, but prayer puts my soul in command of my body.
+ - The main characteristic which is the proof of the indwelling Spirit is an amazing tenderness in personal dealing, and a blazing truthfulness with regard to God’s Word.
+ - If in preaching the gospel you substitute your knowledge of the way of salvation for confidence in the power of the gospel, you hinder people from getting to reality.
+ - Satan tried to put Jesus Christ on the way to becoming King of the world and Savior of men in a way other than that predetermined by God.
+ - Many of us have a mental conception of what a Christian should be, and the lives of the saints become a hindrance to our concentration on God.
+ - It is perilously easy to have amazing sympathy with God’s truth and remain in sin.
+ - Beware of the inclination to dictate to God what consequences you would allow as a condition of your obedience to Him.
+ - The Cross is the central event in time and eternity, and the answer to all the problems of both.
+ - Pray because you have a Father, not because it quietens you, and give Him time to answer.
+ - The only basis on which to work for God is an esteemed appreciation of his deliverance.
+ - Never consider whether you are of use; but ever consider that you are not your own but His.
+ - The Holy Ghost is the only One who can detect the temptations of Satan, neither our common sense nor our human wisdom can detect them as temptations.
+ - When we see Him, we will wonder that we ever could have disobeyed Him.
+
+500 quotes

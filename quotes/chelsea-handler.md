@@ -1,0 +1,171 @@
+ - Don’t take ‘no’ for an answer. Keep knocking down walls until someone says ‘yes.’
+ - You should always speak your mind, and be bold, and be obnoxious, and do whatever you want and don’t let anybody tell you to stop it.
+ - Laugh loudly, laugh often, and most important, laugh at yourself.
+ - A hotel room all to myself is my idea of a good time.
+ - First of all, who cares if people hate you? There’s always a guarantee that certain people will dislike you. There’s never any guarantee that anyone will like you. So if anyone likes you at all, you’ve already won.
+ - You know what they say, when one door closes, another Belvedere opens.
+ - No one tells me what to do – in any capacity.
+ - Don’t choose the better guy, choose the guy that’s gonna make you the better girl.
+ - I don’t like people who drink decaf coffee it’s like what. Why you drinking it? Like it taste so good? That’s like drinking non alcoholic vodka.
+ - I have no idea why gay men love me, but I would have to assume it’s because they know how much I love the gays! Everyone needs a good gay man in their life.
+ - When you see the veins popping out of my neck, that’s an exclamation point.
+ - It’s been my experience that people who make proclamations about themselves are usually the opposite of what they claim to be.
+ - The important thing is to be drunk.
+ - I want to start saying bad words all the time!
+ - I had sex with a couple guys but it wasn’t a baseball team. I saved that for my twenties.
+ - I hate that people assume guys are the only ones to want sex. Girls want sex, too, and that shouldn’t be a problem.
+ - I like to stay at home and sit on my ass.
+ - I had to feign interest in all this nonsense until I could ask when I could come over and sit on his face. I didn’t say that out loud, of course. I never say the things I really want to. If I did, I’d have no friends.
+ - There are no warning signs on the trampoline. The warning is the trampoline.
+ - Men don’t realize that if we’re sleeping with them on the first date, we’re probably not interested in seeing them again either.
+ - There are two kinds of people I don’t trust: people who don’t drink and people who collect stickers.
+ - Obviously, if I was serious about having a relationship with some one long-term, the last people I would introduce him to would be my family.
+ - When I don’t know what to do, I just open my mouth. Why won’t anyone date me?
+ - Maybe they should name more drugs cute things. I don’t do meth, but maybe if they called meth ‘Stefanie’ I would!
+ - I love people who have such passion for complete nonsense.
+ - I don’t think the problem is telling people you’re on a diet. The problem is eating ice cream for breakfast.
+ - I understand that if you’re a kid in Indonesia, you need to smoke because you just got off work at the Nike factory.
+ - My father has a high opinion of his opinion.
+ - There’s a reason you never see anyone’s house with a Beware of Cat sign. Because they’re not even worth mentioning.
+ - My tendency to make up stories and lie compulsively for the sake of my own amusement takes up a good portion of my day and provides me with a peace of mind not easily attainable in this economic climate.
+ - Paula Abdul’s really impatient to start a family. She says if she has to wait much longer she’s going to go crazy-er.
+ - I have been on a life-long search of how to stay in shape without putting any effort into it whatsoever.
+ - If you want to have sex with strangers, you have to do it the old fashion way and become a prostitute.
+ - If diamonds are a girl’s best friend, I wonder if blood diamonds are a girl’s best friend 5 days out of the month?
+ - Christina Aguilera finally announced her pregnancy. Thanks for waiting until your third trimester to get the word out – why not just wait until you’re crowning?
+ - There’s tons of information on the Internet, so if you type in cancer, they’ll give you 15, 000 different options to get involved with cancer. It’s very easy to get involved if you want to get involved, especially to volunteer your time.
+ - I think the people I talk about are generally so stupid that they don’t even know I’m saying bad things about them. I’ve run into Paris Hilton and she’s like, Oh, I love your show. And I’m like, You can’t love my show if you can hear.
+ - I had an abortion when I was 16. Because that’s what I should have done. Otherwise I would now have a 20-year-old kid. Anyway, those are things that people shouldn’t be dishonest about it.
+ - The only thing worse than dating a single mom is dating a single mom that won’t put out.
+ - I have a question. Do you guys think it’s OK to drink while you’re pregnant if you’re planning on giving the baby up for adoption?
+ - My relationship with my father had been on the proverbial fritz since the time I was fifteen and called the police to report him for child molesting. He had never molested me, but I wanted to have a party that weekend and needed him out of the house.
+ - I would never get married while my father is still alive because I wouldn’t want him to walk me down the aisle.
+ - If someone took the ‘F’ letter off me, I’d be ucked.
+ - Everyone is coming from a place of fear and my feeling is stop being so afraid. If something doesn’t work then that’s fine at least then you know it doesn’t work. Don’t worry so much about it not working, you can always fix that.
+ - Shamu and I have arrived safely in Costa Rica. He was stopped by airport security because he carries enough artillery in his pants pockets to construct a sawed-off shotgun. Evidently, he though we were headed to Iraq.
+ - I think we can all agree that sleeping around is a great way to meet people.
+ - Angelina Jolie’s older brother James Haven, the one she made out with, has a license plate on his SUV that reads Shiloh. Maybe it’s not that weird. After all, he could be the father.
+ - A Catholic priest who’s been sending threatening notes to Conan O’Brien was charged with stalking in the fourth degree. It just goes to show you that people can become obsessed with redheads.
+ - If you judge a person by the company they keep, then I’m retarded.
+ - I can’t be skinny all the time. I like to drink and I like to eat. I like burgers and bagels.
+ - It’s a dream come true to have someone else portray me. Because I’ve been living this life for a long time, and I’m over myself.
+ - I try to not overthink anything. I don’t understand why nipples are nudity. Who cares? Men can show their nipples but if we have breasts we can’t show them?
+ - Kristen Stewart always looks like she’s posing for pictures taken in a basement by her creepy uncle.
+ - My mother told me that life isn’t always about pleasing yourself and that sometimes you have to do things for the sole benefit of another human being. I completely agreed with her, but reminded her that that was what blow jobs were for.
+ - The last time a straight man worked in the fashion industry, we got a fanny pack.
+ - I was in a tailspin of confusion I hadn’t experienced since the first time I heard George W. Bush speak.
+ - I like to laugh. It’s kind of escapism. I like to make people laugh. And I kind of like people just to have to not think about anything.
+ - I got a vibrator that needed two nine volt batteries. What am I – R2D2? I don’t know what to do with that.
+ - Boy George has been charged with falsely imprisoning a man who’d gone to his apartment to pose for photographs. Going to Boy George’s house to get your picture taken is like going to David Copperfield’s island for a radio opportunity.
+ - It’s hard on an all-gay softball team because no one knows if they want to be a pitcher or a catcher.
+ - Then a homeless man with a dog approached us and put his hand out. This happens to be something that I have a real problem with: homeless people with pets who approach you for food when they have a perfectly delicious dog standing right there?
+ - Amy Winehouse’s mother wrote an open letter to the News of the World newspaper telling Amy she’s worried about her and to please call her. I doubt this is the best way to communicate with Amy – she should try spelling it out in lines of cocaine.
+ - Women don’t have to be jealous of other women.
+ - Even if times are tough and you’re enduring a terrible heartache, it’s important to focus your anger on a vibrator, not another person.
+ - I tried to put myself up for adoption several times.
+ - According to the New York Post, Lance Armstrong and Ashley Olsen are dating. They must be getting serious – Lance gave Ashley his yellow Live Strong bracelet. She wears it as a belt.
+ - I’m a ridiculous person. If you take anything any comedian says seriously, then you’re stupid.
+ - Paris Hilton has launched a new champagne in a can called Rich Prosecco. For the ad campaign Paris posed wearing nothing but gold paint. That’s a unique way to cover up herpes.
+ - Thanksgiving is coming. I wonder what the holiday will be like at Dog the Bounty Hunter’s house – obviously, they’ll have a turkey with all-white meat.
+ - Everyone knows if you’re going to take weed to school, you put it in your trapper keeper to keep it fresh.
+ - A Muslim allowed a topless Jew to sit on his camel. And we say we can’t live side by side? I say we try and we can and we will. And you don’t even have to be topless. L’chaim.
+ - I would never sell my dog for a man. I’d sell the man.
+ - It’s hard to tell these days what gender people are. You don’t know if they’re gay, if they’re straight, or Bruce Jenner.
+ - Lydia was the kind of friend whom people referred to as a ‘party favor’ – always fun to be around but she doesn’t have any patience for suffering unless it’s her own.
+ - I don’t understand what apps are on my phone. Why do they ask for passwords? Why do they all ask for different passwords? It’s so frustrating that I end up just reading a book every time I try to go online.
+ - Good Luck Chuck, a comedy starring Dane Cook and Jessica Alba, opened today, and critics are saying it has all the belly laughs you’ve come to expect from Jessica Alba.
+ - I know they don’t recommend Ibuprofen during pregnancy, but you needed something fast for the hangovers.
+ - It’s a pleasure to play my sister because everything I’ve accused her of my whole life, I can now re-enact before her eyes.
+ - Hulk Hogan’s wife has filed for divorce. This is the most devastating breakup since Pam Anderson and Tommy Lee. And then Pam Anderson and Kid Rock. And soon, Pam Anderson and Rick Salomon.
+ - Getting rewarded for being pregnant when you’re a teenager? Are you serious? I mean, that makes me want to kill somebody.
+ - I don’t like people who have babies and act like they did something that the rest of us can’t figure out. Anybody can have one, OK? I could have had three if I had gone through with any of my pregnancies.
+ - My mom was kinda like a cat. She slept a lot.
+ - If you do talk dirty, make sure that you enunciate because there’s nothing more embarrassing than having to repeat yourself.
+ - Is Heather McDonald your best friend? You better get a new one.
+ - That’s Al Qaeda’s new plan: to destroy America one period at a time.
+ - We women have to stick together.
+ - I was tortured, and probably half of it was deserved, but I was bullied – so much so that there were days when I was like, ‘I can’t go to school today.’ I was too scared.
+ - No one has ever said to me ‘go home and make a baby.’ I have been told several times to go to Planned Parenthood and make the baby go away. Happy Hannukah.
+ - I have more respect for somebody who’s like, ‘Yeah I like to party, so screw off,’ then for Tara, who talks about not partying and ends up passed out underneath a Subway, not a subway station, but the actual sandwich shop – two days later.
+ - Obviously its nice to give your time and especially when there is money being raised. It’s rewarding.
+ - I met my first midget in Mexico, and he was a waiter with a sombrero on his head, filled with chips and salsa. Like I was gonna let that guy get away – I don’t think so.
+ - A federal grand jury is investigating allegations that David Copperfield raped, assaulted and threatened a woman he took to his private island in the Bahamas in July. What happened to the good old days when a guy would just saw you in half?
+ - It’s true what they say about patience being a virtue; it just happens to be a virtue that I choose not to pursue.
+ - That’s what my perfume would smell like, margarita and vodka.
+ - To always trust my instincts, to always believe I have something to offer – no matter how meaningless or stupid it may be – and to never listen to anyone who tells you ‘no.’
+ - But then, like George Michael in a men’s bathroom, I got cocky.
+ - You don’t mess with janitors, first of all, they have like 40 keys, and 1 is to a closet you don’t want to be inside of.
+ - Can you imagine getting a gun for a secret Santa? That is especially not a good idea if you work in a post office.
+ - David Hasselhoff was hospitalized after falling off the wagon again. He probably got used to drinking too much, because for years he never had to worry about driving anywhere – his car drove itself.
+ - My life and my legs have been an open book.
+ - I think it’s important to be involved with charities that don’t necessarily reflect what you’re dealing with in your life.
+ - I’m very much about letting other people shine, because it makes us all shine brighter.
+ - If you have to work at McDonald’s, good for you. But on a side note, good luck with the rest of your life.
+ - You know you’re a hot mess when the only person buying you drinks all night is yourself.
+ - In a statement to the Associated Press earlier in the year, Jamie Lynn said she didn’t have a boyfriend. She said, ‘I’m keeping my options open.’ And by options, she meant legs.
+ - Kiefer Sutherland has agreed to serve 48 days in jail for his DUI convictions. That’s 245 months in Jack Bauer years.
+ - The whole thing about my books and my life is that I create drama’s always around me.
+ - I’m always happy to pitch in and do something. Everybody needs to be laughing a little.
+ - A lot of people think that keying a car isn’t the right way to get back at a guy. I disagree.
+ - It became clear when I got in my car that Persians are only really good for two things. Oil and hummus.
+ - I probably do the most for the gay and lesbian community, or LGBT, but I don’t have one that I focus on. I just try and kind of do a lot for different charities.
+ - Mexico’s a great place to overcome a drug addiction.
+ - If you can’t trust your coke dealer, who can you trust?
+ - I find it very annoying when people want to sit next to each other at a booth.
+ - I’m a worker. I like to work and I like to provide work for other people. I like to put people on my show who normally would never have a chance at being on television.
+ - My whole life is reading tabloid magazines. It’s really sad, because that’s what my show is all about – what is going on with celebrities. So I have to know everything.
+ - I’m not graceful either. I have no rhythm, I’m never on top.
+ - I think bullying of anybody, whether they’re gay or straight or anything in high school is unbearable.
+ - My negotiation skills are are on par with George Bush’s reading ability. And just like Dubya, every time I’ve tried to put forth an effort, I am reminded that my only true strength lies in drinking.
+ - In these tough economic times, everybody has to cut back. I am down to three tabs of ecstasy a day.
+ - The only people I owe an apology to are my dead parents. Except my father because he’s still alive.
+ - Most republicans are against contraception because they don’t care about it. You can’t get pregnant anally anyway.
+ - We usually have margaritas on Thursdays but since it’s Tuesday I’ll make an exception.
+ - I’ve never made love to a ghost but I have made love to men who are a few years away from becoming a ghost.
+ - You don’t give something away because it’s fat. You take it and you look at it.
+ - I’ll always be doing stand-up as long as people are still interested in seeing me.
+ - I look hot and, most of all, skinny. I love the day after throwing up. I felt like a feather.
+ - Paris Hilton is one of the hosts for Nicole Richie’s baby shower, and they’re serving sushi. Awesome, Paris – sushi, the one thing pregnant women are forbidden to eat. Thanks for the mercury.
+ - Pam Anderson and Rick Salomon just got themselves a marriage license. I think before she gets married again Pam needs to slow down and think about whether this is really the man she wants to spend three or four months of her life with.
+ - Hispanics still have the highest rate amongst teens with babies so at least the future housekeeping is secure.
+ - I never say the things I really want to. If I did, I’d have no friends.
+ - Why he would agree to install an eight-by-eight-foot fish tank and then not fill it with a single dolphin made me want to burn his eyebrows off.
+ - Every time John Travolta assaults a masseur, a scientologist gets their wings.
+ - Having a baby, it’s like a five year commitment.
+ - They travel in groups. You never see an Asian by their self.
+ - The only reason I think I would marry a foreigner would be to have kids with weird accents.
+ - I went out with a guy who once told me I didn’t need to drink to make myself more fun to be around. I told him, I’m drinking so that you’re more fun to be around.
+ - Paris Hilton is going on a goodwill mission to Rwanda. It’s the first time an entire Third World country will have to get immunizations for a visitor.
+ - I love a stupid joke, something that doesn’t make any sense.
+ - I don’t know what it is about accents that makes me want to get undressed and high-five myself.
+ - I’m actually pretty good at tennis. Well, if I’m in the Special Olympics or something.
+ - Have you ever been to an AA meeting? No wonder these people are alcoholics – I’ve never needed a drink more badly in my life.
+ - People confuse the fact that I discuss drinking openly with the idea that I’m a heavy drinker. I don’t want girls at my show wasted, screaming and yelling out and vomiting.
+ - If you wait too long in Vegas, you end up with a chicken finger in your underwear.
+ - ONE OF MY girlfriends was getting married. This was becoming an annoying pattern.
+ - You get photographed together when there’s 25 people with you and people assume that you’re having sex, which is definitely not the case.
+ - If you get into a customer service fight with a hooker, even if you’re in the right, you’re in the wrong.
+ - You got married recently to a rapper. It doesn’t take them long to impregnate women.
+ - We spend so much money on these dresses that are terrible. And what do we get out of it? Nothing – a piece of chicken and a roll in the hay with her hillbilly cousin – no thank you. My family’s very close; I can do that at home.
+ - Who’s the president on the $100 bill? I don’t know. I don’t need to know because I don’t use cash. I only use travelers checks.
+ - It’s good that people don’t like you. That’s good. It means that you are doing something interesting.
+ - Anyone who is friends with Bill Clinton shouldn’t be telling their wife about it.
+ - Whoever calls and asks me to do stuff and obviously, with having your own TV show, people want you to get involved. They know you’re a stand-up comedian so they’re always looking for somebody funny to host an event.
+ - The challenge is to keep it fresh. If you’re talking about Britney Spears over and over, it’s very hard to keep that interesting.
+ - I wish it was that easy to get turned on for me – at this point, I need a bottle of Belevere and a fighterjet.
+ - When I look at all the people that I have working for me and the company I’ve started and all the people that benefit from it and have a living because of it, it’s very motivating to continue to do it.
+ - Along with the 97 percent of women who can see, I have never been a fan of redheaded men.
+ - He laid into me with the same gusto as a right-wing political pundit on the O’Reilly Factor defending President’s Bush right to vacation six days out of the week.
+ - I didn’t become a comedian to work this hard.
+ - Why would you go out and not drink? Just stay home and sit there.
+ - Sometimes, Chelsea, I wonder, how you get by from day to day. It’s a good thing you’re so voluptuous.
+ - I’ve always been exactly who I am on TV. I’m not playing a role.
+ - Vomit and feces are two reason I have decided not to procreate.
+ - Ivory’s the kind of girl who gets drunk and immediately starts slurring. I have a lot of friends like that, and I think it’s because it makes me look ’more together.
+ - Nothing is more American than stuffing your face with loaded potato skins while drinking loaded mudslides.
+ - A lot of amazing comedians that I’ve worked with just really follow their instincts and you can’t really teach someone comedic timing. And you just kind of have it.
+ - I’m into politics, and I love watching the heavier news magazine shows.
+ - It always freaks me out when I go to a sushi place and there’s a Mexican.
+ - I think they should make Twilight closets and all the cast members can walk out of them.
+
+169 quotes

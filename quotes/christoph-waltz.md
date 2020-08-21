@@ -1,0 +1,38 @@
+ - Facts can be so misleading, where rumors, true or false, are often revealing.
+ - Ten flashing lights are a nuisance but 500 are fantastic.
+ - You can’t always do the extraordinary, in between you have to do the ordinary. Because if you didn’t, what would constitute the extraordinary?
+ - I’m not really all that familiar with comic book culture. Not because I’m such a high brow intellectual and bloody European. But it’s just something that I was never into. Not because of any superiority. I don’t know why.
+ - I’m very bad with improvisation. I hate it.
+ - I’m open to working anywhere, but not on anything.
+ - If the shoe fits, you must wear it.
+ - Becoming an actor is like becoming a father. It’s not hard to become one. Making a life of it is the challenge.
+ - I only do what I like to do.
+ - I have my brain switched on and I might be thinking something else but we’ve come to an arrangement. That sort of play is maybe easier with someone who also thinks that way. But that is not necessarily a national thing, but maybe a little bit of a cultural thing.
+ - It’s a wonderful narrative device to bring someone from the outside and look through his eyes if you want to describe the absurdity and preposterous reality that is accepted amongst the ones who are inside.
+ - You know, I don’t support esoteric approaches to acting.
+ - You need the villain. If you don’t have a villain, the good guy can stay home.
+ - Stephen Sondheim I am in awe of.
+ - I don’t say things straight into the other person’s face. I kind of like to make a joke or a remark and make it digestible or just give a little comment that voices my concern, but is not meant to be a critique, but just a comment so that he understands that I am thinking.
+ - I worked next to an elephant. And considering that she could step on your toes, it’s a good idea to keep a certain distance. It’s also a good idea to befriend the trainer.
+ - I think in Europe, movies are made like a commodity and then sold as art.
+ - By looking into more details of American history, we can make more sense of what’s happening today.
+ - Comedy is the result of what’s happening, not what people are doing. Because if people are doing comedy. It’s embarrassing. The individual elements have to be straight-faced, serious, realistic with a firm basis. What makes it comedy is a somewhat shifted way to put it together.
+ - I used to hate exposure situations. What is generally referred to as ‘red carpet.’
+ - I’m not into weapons. I’m not into cars. I’m not into explosions. I’m scared of all of that.
+ - I had to learn how to drive a cement truck because there is a whole car chase with cement trucks, so I had to learn how to drive a cement truck. I don’t like these things, but I’m not an idiot. I can do it.
+ - I’m trying to be very aware of not repeating myself.
+ - My agent is the quickest, sharpest man on earth.
+ - I don’t like to read novelizations of movies.
+ - I think Stephen Sondheim is a – and I hardly ever use this word – but this is as close as it gets to a genius.
+ - You know, I don’t talk about the characters that I play. Years ago, I was a little timid about it and I kind of squirmed when I was asked, ‘Could you tell us something about your character.’ Now with a little self-confidence that comes with the grey beard, I just flatly refuse.
+ - Mine is studying script and being very academic and trying to be important.
+ - There are plenty of people over there who understand the difference. And there are plenty of people over here who understand the difference. It’s still one world and it has been for a long time.
+ - I have always been so interested in film as a medium.
+ - For a while, I couldn’t decide whether or not I should pursue singing in the opera or acting. And I’m glad that I chose the latter because I wasn’t a very good singer.
+ - I’m not really all that familiar with comic book culture.
+ - It’s the economics, that’s why opera is not dying but gets more and more difficult to put on.
+ - I have nothing to do with comics. I know nothing about comics. I am aware of the importance of comics, but they’re not within my world. Not because I feel that I’m above it, but just that micro-surgery is not in my world either. Is that a deficit or is that an advantage?
+ - I take praise as not just a reward and a result but also as the beginning of a new process.
+ - You’re always being cast for what you’ve been in last.
+
+36 quotes

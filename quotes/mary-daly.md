@@ -1,0 +1,25 @@
+ - It’s like you learn to swim by swimming. You learn courage by couraging.
+ - Tokenism does not change stereotypes of social systems but works to preserve them, since it dulls the revolutionary impulse.
+ - I know that I will be punished just as much for being an itty-bitty feminist as for going the whole way. And so I go the whole way.
+ - I urge you to sin. But not against these itty-bitty religions, Christianity, Judaism, Islam, Hinduism, Buddhism-or their secular derivatives, Marxism, Maoism, Freudianism and Jungianism-whic h are all derivatives of the big religion of patriarchy. Sin against the infrastructure itself!
+ - If life is to survive on this planet, there must be a decontamination of the Earth. I think this will be accompanied by an evolutionary process that will result in a drastic reduction of the population of males.
+ - If God is male, then male is God. The divine patriarch castrates women as long as he is allowed to live on in the human imagination.
+ - If God is male, then the male is God.
+ - What the women do is become caretakers for the men. In those circumstances, I decided, and many others have, that there’s a reality called women’s space. There has to be a separate space for women.
+ - Male religion entombs women in sepulchres of silence in order to chant its own eternal and dreary dirge to a past that never was.
+ - It is the creative potential itself in human beings that is the image of God.
+ - We will look upon the earth and her sister planets as being with us, not for us.
+ - Why indeed must ‘God’ be a noun? Why not a verb – the most active and dynamic of all.
+ - Women have had the power of naming stolen from us. We have not been free to use our own power to name ourselves, the world, or God.
+ - The liberation of language is rooted in the liberation of ourselves...
+ - Courage to be is the key to revelatory power of the feminist revolution.
+ - Every woman who has come to consciousness can recall an almost endless series of oppressive, violating, insulting, assaulting acts against her Self. Every woman is battered by such assaults – is on a psychic level, a battered woman.
+ - I had explained that a woman’s asking for equality in the church would be comparable to a black person’s demanding equality in the Ku Klux Klan.
+ - Women have had the power of naming stolen from us.
+ - You guard against decay, in general, and stagnation, by moving, by continuing to move.
+ - Goddess is the deep Source of creating integrity and the Self-affirming be-ing of women.
+ - Few gynecologists recommend to their heterosexual patients the most foolpoof of solutions, namely, misterectomy.
+ - There are and will be those who think I have gone overboard. Let them rest assured that this assessment is correct, probably beyond their wildest imagination, and that I will continue to do so.
+ - Work is a substitute religious experience for many workaholics.
+
+23 quotes

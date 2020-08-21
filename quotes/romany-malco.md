@@ -1,0 +1,40 @@
+ - Education, introspection, self-love and excellence are the only ways to overcome the wrath of ignorance.
+ - The Universe responds to specificity.
+ - I learned early in life that laughter is a great way to diffuse and uncomfortable situation, so I began to use that as a tool, throughout my life.
+ - Consciously or subconsciously, we become slaves to debt and social obligation. As a result, we end up more committed to the minutia and less in tune with the bigger picture: our deepest sense of purpose.
+ - I’m one of those people for whom success is one thing, but significance is another. If I can have both, I’m living the dream.
+ - When faced with emotional pain, I become still for hours, sometimes days, doing absolutely nothing. It helps me get to the truest source of my suffering.
+ - Stillness empowers. Being able to detach from all external stimulants – social media, social engagements, TV, alcohol, food, etc. – and face our own silence is an enormous luxury that should not be taken for granted. The most rewarding moments in my life have stemmed from such stillness.
+ - Pain is inevitable. It is actually a great opportunity for growth, but when we blame or fail to take responsibility for our suffering, the pain becomes stagnant, and stagnant pain can have a compounding effect if left unchecked.
+ - I worked for this company that repossessed cars. Sure enough, the day after I quit, they repossessed my car, but that would probably be my strangest job to date. You have to work your way up to become a hardcore repo man.
+ - Hollywood is running out of money and in order to keep geetting a third financed, you have to rely on overseas funding, and in order to do that, you have to get recognizable names.
+ - For my lifestyle, I believe in living 10 times below my means. As a result of that, I have the luxury of working only when I’m inspired.
+ - I feel comfortable working with people who are secure in themselves and confident in what they do.
+ - My goal in life is to bring to the screen really believable depictions that make you think, “Damn, I have to look within myself.”
+ - I’d like to change the depictions of life, love, and adventure under what’s known as the typical, overused backdrop of Hollywood.
+ - It will be difficult if people can’t get past their prejudices; I don’t mean Black and White; I mean people automatically assume because a film has a predominantly Black cast, that it is a particular quality of film.
+ - I have the appetite to do different roles that have different backdrops. I’d like to show that there’s more to people sitting in cars for reasons other than being police officers.
+ - Because I came into acting late, my references come from real life. That’s my biggest inspiration. It’s probably the reason I moved back to New York. I’m just a lot more inspired by real life than I am by depictions of real life.
+ - If you are courageous enough to be still, you are a step closer to becoming empowered.
+ - For me, comedy and drama are all the same thing.
+ - Wanting an honest opinion about my art from someone whose opinion I respect makes me feel vulnerable. It’s a great space to be in.
+ - The only difference between comedy and drama is that, in comedy, I’m going to utilize the tool of creating laughter to deflect discomfort and, in drama, I won’t use a tool, but we’re going to actually deal with the discomfort and see what comes out of it.
+ - I do not have a daily routine, but each morning, I try to spend an hour in bed, visualizing positive outcomes for my life, health, and career.
+ - One of my biggest lessons in life is, we heal at the speed of our forgiveness.
+ - An unresolved past erodes beauty in the present.
+ - I’m taking the indie filmmaker’s approach to building my career and that approach is developing a relationship with the fans.
+ - Being able to engage my creativity in a way that makes a difference inspires me more than anything.
+ - I don’t want every fan; I’m interested in fans interested in quality work, authentic archetype depictions.
+ - Writing a funny story is one thing. But writing a funny story that inspires others to venture beyond their level of comfort in pursuit of their greater good is what makes me come alive.
+ - I come from the best era of film I believe; when people were taking chances on films. It’s time for us to bring more truth to the story and not necessarily carry a torch for every Black person in America; just tell a story, and a good one too.
+ - I’m not really volunteering for no family films. I really like the sweet spot of being able to be edgy and controversial.
+ - For me, comedy and drama are all the same thing. How the comedy ever even started in my life was that moments got uncomfortable and I felt uncertain of what the outcome was going to be, so I found a way to deflect what I was feeling, or what everyone else was feeling, by creating laughter.
+ - I don’t drive an Escalade; I’ve never lived on a mansion; I live in a townhouse. Even with my internet business, when I was making just shy of a million and a half a year, I lived in the same house.
+ - I’ve lived in Paris. I’ve lived in the Slovak Republic. I’ve spent extensive time in England, and I’ve traveled all over Europe.
+ - I always try to get as personal as I can with the characters that I play, which is a reason why I don’t play a lot of characters.
+ - I haven’t really been auditioning. For me is about finding quality work versus finding work. I get a considerable amount of offers everyday.
+ - My experience in the music industry made me very thick-skinned. Your art is something very personal and there’s never a shortage of critics when it comes to art.
+ - I had a grandmother who would always encourage me to learn about theater and film.
+ - It’s extremely difficult to come across quality material. It’s a competitive world.
+
+38 quotes

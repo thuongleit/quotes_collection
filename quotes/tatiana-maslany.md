@@ -1,0 +1,61 @@
+ - Have fun, be yourself, enjoy life and stay positive.
+ - I love people, watching people interact. It’s a lot of psychology. We learn about ourselves by watching other people’s lives on the screen.
+ - Trust your gut. You know yourself, so don’t let somebody else tell you who you are.
+ - So much of how you look at yourself in the mirror reflects how you feel about yourself, and how you comport yourself.
+ - You’re hot for two seconds, and you’re struggling to get work again. If it were easy, I don’t think that’s a good place for an artist to work from.
+ - It’s the reason we go to films and watch television: to escape the mundane nature of life and see another world and see ourselves in that other world. I think that’s what sci-fi does so well.
+ - I love nerdy work. I love writing notes. I try to go back, as much as I can, to feed what happens and why they do what they do.
+ - I’m attracted to stories that excite my imagination, stories that, as I’m reading the script, I feel it, I can see it, I can hear the characters. I’m attracted to characters that are real, that tap into something inside me that I haven’t explored yet.
+ - I’m fascinated with psychology, and with why a person walks the way they walk or why they walk into a room the way they do or why we are the way we are, and it’s not exclusive to the psychology of a character.
+ - You’re revealing something about yourself in a more exaggerated, more fleshed-out way, and it awakens something in you that maybe you didn’t know you had.
+ - Sometimes I’ll go into a shop and speak in a different accent to see if I can pull it off. But then somebody will be like, ‘Where did you say you were from again?’ And then I panic, and my accent dissolves, and I pretend like I wasn’t doing it in the first place.
+ - I started out as a dancer as a kid; I’ve been dancing since I was 4. So performing was always part of what I was.
+ - We do long-form-style improv. Our focus was characters and telling a long arc story over about an hour and a half. It was closer to a one-act play than one-off sketches.
+ - My brothers and I always did improv stuff in our basement with our friends; we’re super nerds, and that was our way of spending a Friday night.
+ - We’re living in a world where the response is really instantaneous, even though it’s delayed by a few months. It comes at you pretty fast.
+ - The way people love sci-fi is how I love cartoons.
+ - It’s wild to be seen differently and have more visibility, but it’s rewarding.
+ - I have trouble sleeping, at the end of the night. There’s a lot of stimulus and my brain is processing a lot of different arcs and personalities. I’m always processing things, so I don’t sleep.
+ - I’m incredibly close to my family. I have two younger brothers; they’re both artists and actors, and their work and the way they see the world inspires me.
+ - My mom’s a translator, my dad’s a woodworker; that’s the world I grew up in, that’s the world I’m most comfortable in. The whole idea of Hollywood or any of that other stuff that unfortunately goes along with film, that wasn’t part of my upbringing, thankfully.
+ - Those darker sides, the things that we don’t want to admit about ourselves – that’s what excites me.
+ - For me, comedy literally is way more terrifying than doing drama, so it’s always about stretching what I think I can do and putting myself out there in different context.
+ - Going back is a nice way to give definition to each of the characters because they are so vastly different. I would never want them to get blended together.
+ - I fell in love with ‘Star Trek’ after J. J. Abrams’s movie. I’m so into that.
+ - There’s something really unique about ‘Orphan Black’ is that it has a lot of female leads, so it’s about a lot of women’s stories, but it’s not women’s stories in terms of trying to find a guy or keep a guy; it’s about entirely other things.
+ - I love hip-hop; I love Sleigh Bells. I also love classical music and musical theater.
+ - I’m so inspired and stimulated by the work that it doesn’t ever feel like work.
+ - There’s something about music that makes me feel like a different person, that feels like an escape.
+ - As a kid, I wanted to be a boy because I equated that with strength. There’s a problem with that. It’s only growing into my own womanhood that I realize how warped that is that I was attributing strength to male qualities.
+ - Going to set, every day, and working with the incredible actors I get to work with is fulfilling. I’ve been doing this since I was nine years old, so it’s always been something that I’ve been passionate about. It’s always fed me.
+ - As an actor, you’re listening to the other person and always trying to be present and take everything they’re giving you, but when they’re not there, you have to produce that yourself.
+ - I would love to work with Gena Rowlands. I just don’t know in what capacity. I’d play her daughter or granddaughter, or whatever. I would just love to work with her, in whatever capacity.
+ - I’m an actor and I like having attention. There’s a reason I like being on stage and in front of the camera, and it’s that interaction.
+ - I like ‘Futurama.’ That’s kind of the only thing that’s my sci-fi thing, although I was big into zombies for a time.
+ - Just to be on set with Amy Poehler, who’s one of my heroes, was a total dream come true.
+ - Young women are now looking at me for cues. That’s definitely been a responsibility. But I feel like I was ready to take on something like this because I wanted to be challenged and I wanted to be afraid, and that’s definitely what it’s done for me.
+ - I wanted to get everything right. I was super nerdy and academic. I got so much satisfaction out of getting good grades.
+ - I think being idle is quite hard for me to do.
+ - Clothing and makeup and hair and all of that so much indicates the kind of person you are inside and the person you are presenting on the outside. Sometimes they are in conflict, and sometimes they are the same. That psychology of the exterior informing the interior is just so interesting.
+ - I’ve learned a lot about the limits of what I can do, as an artist, or what I’m willing to do. It’s a lot of responsibility to carry a show and to speak to people on different levels.
+ - Auditions are not a natural environment, and you feel judged, even though everyone is just excited to find the right person.
+ - My mom taught me German before I knew English. And I went to French immersion school.
+ - Film has always been where my heart is.
+ - I’ve worked on shows where the lead actor doesn’t know their lines, doesn’t care, and it affects everybody – the crew, the director, the other actors. It’s definitely a responsibility.
+ - I’m a huge ‘Futurama’ fan, so that’s my closest sci-fi tendency.
+ - I haven’t really done a lot of comedy. It’s something that terrifies me.
+ - As artists, you always want to push yourself. There’s always new territory.
+ - The most bizarre demographics come up to me. Men in their 50s come up to me and are like, “Alison is my favorite. I hated her at first, and now I love her.” I don’t know what that says about people’s psychology.
+ - It’s always been my dream to just continually do really cool indie movies – character-driven stuff.
+ - How you go about moving within the world you live in says so much about who you are.
+ - For me, comedians are like the epitome for everything great, and they terrify me. I just want to be them. I want to be like them.
+ - I’m running on adrenalin when we’re shooting. It’s non-stop. As soon as I have time to sit down, then I fall asleep.
+ - Dance has always been a really important thing for me, so being able to physically express the characters through music and dance is like another layer to things.
+ - You learn from the actors that you’re working with.
+ - I grew up in Canada, man – we all had rinks in our backyards because we’d ice down the grass with a hose and build a skating rink.
+ - I try to get roles that challenge me in what I can do and who I think I can portray. For me, it’s about creating characters with really fascinating stories, because that’s what I like to watch on TV.
+ - I’m at the transition place myself, still playing high school girls but moving to a stage when I’m playing older roles and going to the places of stillness and wisdom and knowledge and weight. It’s exciting and scary.
+ - I was in a Nativity play as a kid. Back then, I played the donkey.
+ - I’m excited to work on something where I have a bit more time with it, to explore one personality. That’s definitely exciting to me.
+
+59 quotes

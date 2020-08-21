@@ -1,0 +1,41 @@
+ - Fear is the lock and laughter the key to your heart.
+ - Wouldn’t it be amazing, getting up everyday and playing; doing something that you love to do?
+ - People are going to have their opinions. Whether it’s good or bad, I don’t really think about it either way.
+ - Dreams are so important. You need to have big goals and expect a lot of yourself but you have to enjoy the ride too.
+ - Whether youre trying to learn in hockey or trying to learn in life, Ive always tried to be observant and tried to learn more, tried to evolve, whether its as a hockey player or as a person. With each year, I try to do that.
+ - I promise to play for the logo on the front, not the name on the back.
+ - I don’t think you’re human if you don’t get nervous.
+ - I don’t think there’s ever a time where I step back and say I wish I was something different. I’m doing what I love to do.
+ - Chestnut brown canary, ruby throated sparrow, sing a song, don’t be long, thrill me to the marrow.
+ - I’m most comfortable definitely when I’m on the ice. I love to play. It’s something that I just love to do.
+ - Individual honors and scoring championships are great, but my No. 1 goal is to win the Stanley Cup.
+ - I want to be the best player possible.
+ - Teach your parents well.
+ - Breakaway goals are fun.
+ - It’s really football, tennis, and golf that I watch other than hockey.
+ - It seems like yesterday I was up there watching my first NHL game, and I was skating on the ice this time. It brings back memories, but at the same time it’s something I’ll remember forever.
+ - It didn’t feel like it was anything too major, but if you had to look at one hit that would be it.
+ - Love isn’t lying, it’s loose in a lady who lingers, saying she is lost, and choking on hello.
+ - When I saw that goal, the first thing I said was, ‘You won’t see a goal like that ever again.’ It’s one thing to have second effort but, on top of that, the athleticism he showed. It’s just an example of the talent that he has.
+ - Growing up in Canada, I didn’t watch football much.
+ - It is so important to me to have my time away from hockey. Obviously, hockey is my passion; I love it. But definitely for me, time away from the rink and time when my mind isn’t thinking about hockey is important.
+ - For me, I’ve learned that the best thing is to focus on the team you play for and yourself and what you need to do.
+ - I’d never complain about the attention – ever. I feel very fortunate to be doing what I love to do. Not everyone gets that chance every day. This is just part of it, and it comes down to managing my time to make sure I concentrate on my passion, which is the hockey, and have time away from hockey.
+ - I am doing what I love to do.
+ - I’ll be the first one to admit my first couple of years I was pretty hard on the refs.
+ - It’s not that hard to stay grounded. It’s the way I was brought up.
+ - I am putting pressure on myself to do my best and perform to my potential.
+ - I want to be the best. So whatever comes with that, I have to accept it.
+ - I don’t have one favourite band. I like everything.
+ - I want to reward this city. Pittsburgh is a great hockey town.
+ - I try to stay pretty level-headed and just do what I have to do.
+ - My dad introduced me to the game, gave me a stick. Since then I’ve had a passion for it.
+ - It’s been really slow obviously, but I’m not worried about that. I feel like from where I was a couple months ago, things are a lot better. Just being able to skate and stuff was encouraging. Hopefully the next step doesn’t have any hurdles.
+ - I need to work on defensive play and being consistent.
+ - The more you hesitate in a game, the more your chance of getting hit. Your focus isn’t there. When you hesitate, usually you’re in trouble.
+ - I always wanted to be the best and to get the most out of myself.
+ - For every whack I’ve given, I’ve gotten four or five.
+ - There’s no doubt I’m emotional.
+ - The best way for me to lead is through my game.
+
+39 quotes

@@ -1,0 +1,79 @@
+ - The earth we abuse and the living things we kill will, in the end, take their revenge; for in exploiting their presence we are diminishing our future.
+ - It’s never what you say, but how you make it sound sincere.
+ - The sign of an intelligent people is their ability to control their emotions by the application of reason.
+ - Self-restraint may be alien to the human temperament, but humanity without restraint will dig its own grave.
+ - The curse of the romantic is a greed for dreams, an intensity of expectation that, in the end, diminishes the reality.
+ - The right to choose death when life no longer holds meaning is not only the next liberation but the last human right.
+ - The great omission in American life is solitude; not loneliness, for this is an alienation that thrives most in the midst of crowds, but that zone of time and space, free from the outside pressures, which is the incubator of the spirit.
+ - The more people are reached by mass communication, the less they communicate with each other.
+ - Is there no end to this escalation of desire?
+ - The greatest miracle of all, the human being.
+ - Infants are interesting only to their parents.
+ - In aid, the proper attitude is one omitting gratitude.
+ - A high standard of living is usually accompanied by a low standard of thinking.
+ - Borders are scratched across the hearts of men By strangers with a calm, judicial pen, And when the borders bleed we watch with dread The lines of ink across the map turn red.
+ - Know the difference between Giant and Jumbo? Between two-ounce and a big two-ounce? Between a quart and a full quart? What’s a tall 24-inch? What does Extra Long mean? Who’s kidding who?
+ - Women are repeatedly accused of taking things personally. I cannot see any other honest way of taking them.
+ - People on horses look better than they are. People in cars look worse than they are.
+ - Lie down and listen to the crabgrass grow.
+ - In an age where the lowered eyelid is just a sign of fatigue, the delicate game of love is pining away. Freud and flirtation are poor companions.
+ - An American who can make money, invoke God, and be no better than his neighbor, has nothing to fear but truth itself.
+ - No man is a Christian who cheats his fellows, perverts the truth, or speaks of a “clean bomb” yet he will be the first to make public his faith in God.
+ - You cannot throw words like heroism and sacrifice and nobility and honor away without abandoning the qualities they express.
+ - Slowly the wasters and despoilers are impoverishing our land, our nature, and our beauty, so that there will not be one beach, one hill, one lane, one meadow, one forest free from the debris of man and the stigma of his improvidence.
+ - In the race for money some men may come first, but man comes last.
+ - What is asserted by a man is an opinion; what is asserted by a woman is opinionated. A woman with ideas and the ability to express them is something of a social embarrassment, like an unhousebroken pet.
+ - The world of sight is still limitless. It is the artist who limits vision to the cramped dimensions of his own ego.
+ - Hoary idea, in any case, expecting a woman to surrender her name to her husband’s in exchange for his. Why? Would any man submerge his identity and heritage to the woman he wed?
+ - There is nothing harder to come by than detachment and solitude; and nothing more important.
+ - To be at peace with self, to find company and nourishment in self-this would be the test of the free and productive psyche.
+ - The process of maturing is an art to be learned, an effort to be sustained...
+ - To be successful in the world of art you must, of course, have talent, although very small talents have gone very far in this age. Just as the microphone gave volume to voices that had none, so does the science of press-agentry magnify limited skills into highly saleable properties.
+ - When women can cherish the vulnerability of men as much as men can exult in the strength of women, a new breed could lift a ruinous yoke from both.
+ - The suppression of civil liberties is too many less a matter for horror than the curtailment of the freedom to profit.
+ - If American men are obsessed with money, American women are obsessed with weight. The men talk of gain, the women talk of loss, and I do not know which talk is the more boring.
+ - Until we know what motivates the hearts and minds of men we can understand nothing outside ourselves, nor will we ever reach fulfillment as that greatest miracle of all, the human being.
+ - In our society those who are in reality superior in intelligence can be accepted by their fellows only if they pretend they are not.
+ - Advertisers in general bear a large part of the responsibility for the deep feelings of inadequacy that drive women to psychiatrists, pills, or the bottle.
+ - The process of maturing is an art to be learned, an effort to be sustained. By the age of fifty you have made yourself what you are, and if it is good, it is better than your youth.
+ - Nobody objects to a woman being a good writer or sculptor or geneticist if at the same time she manages to be a good wife, a good mother, good-looking, good-tempered, well-dressed, well-groomed, and unaggressive.
+ - It is television’s primary damage that it provides ten million children with the same fantasy, ready-made and on a platter.
+ - A man at his desk in a room with a closed door is a man at work. A woman at a desk in any room is available.
+ - You mix the affluence of the white and the poverty of the black and you do not get a civilized society. Integration on an equal level is one thing. Mixing on an unequal level is another.
+ - The barbarian weapon is fission: the splitting asunder. It has been perfected for death. Our only weapon is fusion: an imperfect process still, though designed for life.
+ - Minds are cluttered from the age of six with the values of others-values which bear little relation to their own private capacities, needs and desires.
+ - Ribbons a-flutter and orchids a-tremble, Yearly the vigilant Daughters assemble, Affirming in fervid and firm resolutions Their permanent veto on all revolutions.
+ - Good-fellowship, unflagging, is the prime requisite for success in our society, and the man or woman who smiles only for reasons of humor or pleasure is a deviate.
+ - I don’t think it’s possible to write a good play or paint a good picture and be a good Republican.
+ - To know the good is to react against the bad. Indifference is the mark of deprivation.
+ - The faucet leak, and learn to leave them so.
+ - Flirtation is merely an expression of considered desire coupled with an admission of its impracticability.
+ - Everybody likes to see somebody else get caught for the vices practiced by themselves.
+ - It is a marvellous thing to be physically a woman if only to know the marvels of a man.
+ - All people talk of money sometimes, everywhere. But not for all people, everywhere, is money the addiction, the obsession, the stimulant, that it seems to be in New York. It is a large part of the clamor, and it is the voice – quite literally – of the man in the street.
+ - It is privilege of living to be acutely, agonizingly conscious of the moment that is always present and always passing.
+ - A candidate for office can have no greater advantage than muddled syntax; no greater liability than a command of language.
+ - In our long and obsessive passion for youth, we have – more than any other modern society – avoided direct approach to age and to dying by denying them in word, in fact, and – above all – in worth.
+ - The ultimate cynicism is to suspend judgment so that you are not judged.
+ - The real demon is success-the anxieties engendered by this quest are relentless, degrading, corroding. What is worse, there is no end to this escalation of desire.
+ - Art can excite, titillate, please, entertain, and sometimes shock; but its ultimate function is to ennoble.
+ - Surely the hold of great music on the listener is precisely this: that the listener is made whole; and at the same time part of an image of infinite grace and grandeur which is creation.
+ - Republicans seems to me to be chiefly concerned with holding on to what they have: in society, it’s position, or respectability, or what you will; in business, of course, it’s profit.
+ - The New York voice reflects its diversity, its foreignness, and, inevitably, the sense of superiority New Yorkers feel or come to feel. It says, without saying, We Know.
+ - Generosity with strings is not generosity: it is a deal.
+ - I don’t think the advertisers have any real idea of their power not only to reflect but to mould society.
+ - Timing and arrogance are decisive factors in the successful use of talent.
+ - All great lovers are articulate, and verbal seduction is the surest road to actual seduction.
+ - It is not enough to show people how to live better; there is a mandate for any group with enormous powers of communication to show people how to be better.
+ - For every five well-adjusted and smoothly functioning Americans, there are two who never had the chance to discover themselves. It may well be because they have never been alone with themselves.
+ - I would call an intellectual one whose instrument of work – his mind – is also his major source of pleasure; a man whose entertainment is his intelligence.
+ - Artists never make wars. They are too busy making life out of the matter of their visions.
+ - We pity or condemn the communist peoples of the world for being bound in the chains of doctrine. So are we. Our doctrine runs as follows: Our Way is the Only Way.
+ - Revelation is the marriage of knowing and feeling.
+ - One is as one is, and the love that can’t encompass both is a poor sort of love.
+ - Money is not an aphrodisiac: the desire it may kindle in the female eye is more for the cash than the carrier.
+ - Human progress had so often been checked by those who were afraid of losing what they had.
+ - You cannot know what you do not feel.
+ - A seventeenth-century painting can be “modern” because the living eye finds it fresh and new. A “modern” painting can be outdated because it was a product of the moment and not of time.
+
+77 quotes

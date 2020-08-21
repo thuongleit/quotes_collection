@@ -1,0 +1,185 @@
+ - The less men think, the more they talk.
+ - The tyranny of a prince in an oligarchy is not so dangerous to the public welfare as the apathy of a citizen in a democracy.
+ - The deterioration of every government begins with the decay of the principles on which it was founded.
+ - There is no crueler tyranny than that which is perpetuated under the shield of law and in the name of justice.
+ - Law should be like death, which spares no one.
+ - The love of democracy is that of equality.
+ - To become truly great, one has to stand with people, not above them.
+ - Political liberty is to be found only in moderate governments.
+ - An empire founded by war has to maintain itself by war.
+ - Trade is the best cure for prejudice.
+ - A really intelligent man feels what other men only know.
+ - Coffee renders many foolish people temporarily capable of wise actions.
+ - I have never known any distress that an hour’s reading did not relieve.
+ - Power ought to serve as a check to power.
+ - I should like to abolish funerals; the time to mourn a person is at his birth, not his death.
+ - No kingdom has shed more blood than the kingdom of Christ.
+ - The law of nations is naturally founded on this principle, that different nations ought in time of peace to do one another all the good they can, and in time of war as little injury as possible, without prejudicing their real interests.
+ - There is as yet no liberty if the power of judging be not separated from legislative power and the executrix.
+ - A rational army would run away.
+ - When virtue is banished, ambition invades the minds of those who are disposed to receive it and avarice possesses the whole community.
+ - You have to study a great deal to know a little.
+ - Man is a social animal formed to please in society.
+ - Democracy is corrupted not only when the spirit of equality is corrupted, but likewise when they fall into a spirit of extreme equality.
+ - An injustice committed against anyone is a threat to everyone.
+ - There is no nation so powerful, as the one that obeys its laws not from principals of fear or reason, but from passion.
+ - If I knew something that would serve my country but would harm mankind, I would never reveal it; for I am a citizen of humanity first and by necessity, and a citizen of France second, and only by accident.
+ - The prejudices of superstition are superior to all others, and have the strongest influence on the human mind.
+ - If one only wished to be happy, this could be easily accomplished; but we wish to be happier that other people, and this is always difficult, for we believe others to be happier than they are. you are comparing your lot with an ideal which is of course better and therefore you feel worse.
+ - The incomparable stupidity of life teaches us to love our parents; divine philosophy teaches us to forgive them.
+ - Law in general is human reason, inasmuch as it governs all the inhabitants of the earth: the political and civil laws of each nation ought to be only the particular cases in which human reason is applied.
+ - Political liberty in a citizen is that tranquillity of spirit which comes from the opinion each one has of his security, and in order for him to have this liberty the government must be such that one citizen cannot fear another citizen.
+ - To succeed in the world we must look foolish but be wise.
+ - An author is a fool who, not content with boring those he lives with, insists on boring future generations.
+ - The Ottoman Empire whose sick body was not supported by a mild and regular diet, but by a powerful treatment, which continually exhausted it.
+ - If triangles had a god, he would have three sides.
+ - A good writer does not write as people write, but as he writes.
+ - We receive three educations, one from our parents, one from our school-masters, and one from the world. The third contradicts all that the first two teach us.
+ - Slavery, properly so called, is the establishment of a right which gives to one man such a power over another as renders him absolute master of his life and fortune.
+ - The less luxury there is in a republic, the more it is perfect.
+ - For a country, everything will be lost when the jobs of an economist and a banker become highly respected professions.
+ - The wickedness of mankind makes it necessary for the law to suppose them better than they really are.
+ - It is not the young people that degenerate; they are not spoiled till those of mature age are already sunk into corruption.
+ - Europe is a state with several provinces.
+ - The coffee is prepared in such a way that it makes those who drink it witty: at least there is not a single soul who, on quitting the house, does not believe himself four times wittier that when he entered it.
+ - Luxury ruins republics; poverty, monarchies.
+ - Honor is unknown in despotic states.
+ - There are only two cases in which war is just: first, in order to resist the aggression of an enemy, and second, in order to help an ally who has been attacked.
+ - The majority of men are more capable of great actions than of good ones.
+ - When a government lasts a long while, it deteriorates by insensible degrees. Republics end through luxury, monarchies through poverty.
+ - Virtue in a republic is the love of one’s country, that is the love of equality.
+ - In the infancy of societies, the chiefs of state shape its institutions; later the institutions shape the chiefs of state.
+ - There are three species of government: republican, monarchical, and despotic.
+ - A fondness for reading changes the inevitable dull hours of our life into exquisite hours of delight.
+ - Each particular society begins to feel its strength, whence arises a state of war between different nations.
+ - The English are busy; they don’t have time to be polite.
+ - Man, as a physical being, is like other bodies governed by invariable laws.
+ - Laws, in their most general signification, are the necessary relations derived from the nature of things.
+ - When the savages of Louisiana wish to have fruit, they cut the tree at the bottom and gather the fruit. That is exactly a despotic government.
+ - Those who have few affairs to attend to are great speakers. The less men think, the more they talk.
+ - There is no one, says another, whom fortune does not visit once in his life; but when she does not find him ready to receive her, she walks in at the door, and flies out at the window.
+ - Slowness is frequently the cause of much greater slowness.
+ - In the matter of dress one should always keep below one’s ability.
+ - Wonderful maxim: not to talk of things any more after they are done.
+ - When the legislative and executive powers are united in the same person, or in the same body of magistrates, there can be no liberty; because apprehensions may arise, lest the same monarch or senate should enact tyrannical laws, to execute them in a tyrannical manner.
+ - Laws undertake to punish only overt acts.
+ - Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.
+ - One more organ or one less in our body would give us a different intelligence. In fact, all the established laws as to why our body is a certain way would be different if our body were not that way.
+ - Better it is to say that the government most comfortable to nature is that which best agrees with the humor and disposition of the people in whose favor it is established.
+ - The history of commerce is that of the communication of the people.
+ - Peace is a natural effect of trade.
+ - There are bad examples which are worse than crimes; and more states have perished from the violation of morality than from the violation of law.
+ - In bodies moved, the motion is received, increased, diminished, or lost, according to the relations of the quantity of matter and velocity; each diversity is uniformity, each change is constancy.
+ - Wherever I find envy I take a pleasure in provoking it: I always praise before an envious man those who make him grow pale.
+ - Mediocrity is a hand-rail.
+ - Countries are well cultivated, not as they are fertile, but as they are free.
+ - I never listen to calumnies, because if they are untrue I run the risk of being deceived, and if they be true, of hating persons not worth thinking about.
+ - At our coming into the world we contract an immense debt to our country, which we can never discharge.
+ - In constitutional states, liberty is compensation for heavy taxes; in dictatorships, the subsititue is light taxes.
+ - It is rare to find learned men who are clean, do not stink and have a sense of humour.
+ - Laws, in their most general signification, are the necessary relations arising from the nature of things. In this sense all beings have their laws: the Deity His laws, the material world its laws, the intelligences superior to man their laws, the beasts their laws, man his laws.
+ - There is a very good saying that if triangles invented a god, they would make him three-sided.
+ - Not to be loved is a misfortune, but it is an insult to be loved no longer.
+ - I shall be obliged to wander to the right and to the left, that I may investigate and discover the truth.
+ - I like peasants-they are not sophisticated enough to reason speciously.
+ - I have ever held it as a maxim never to do that through another which it was impossible for me to execute myself.
+ - Men in excess of happiness or misery are equally inclined to severity. Witness conquerors and monks! It is mediocrity alone, and a mixture of prosperous and adverse fortune that inspire us with lenity and pity.
+ - Study has been for me the sovereign remedy against all the disappointments of life. I have never known any trouble that an hour’s reading would not dissipate.
+ - Oh, how empty is praise when it reflects back to its origin!
+ - There are countries where a man is worth nothing; there are others where he is worth less than nothing.
+ - As men are affected in all ages by the same passions, the occasions which bring about great changes are different, but the causes are always the same.
+ - Certain kinds of foolishness are such that a greater foolishness would be better.
+ - When we seek after wit, we discover only foolishness.
+ - The reason the Romans built their great paved highways was because they had such inconvenient footwear.
+ - I suffer from the disease of writing books and being ashamed of them when they are finished.
+ - It is difficult for the united states to be all of equal power and extent.
+ - Thus the creation, which seems an arbitrary act, supposes laws as invariable as those of the fatality of the Atheists. It would be absurd to say that the Creator might govern the world without those rules, since without them it could not subsist.
+ - Human laws made to direct the will ought to give precepts, and not counsels.
+ - In a republic there is no coercive force as in other governments, the laws must therefore endeavor to supply this defect.
+ - To lend money without interest, is certainly an action laudable and extremely good; but it is obvious, that it is only a counsel of religion, and not a civil law.
+ - A man who writes well writes not as others write, but as he himself writes; it is often in speaking badly that he speaks well.
+ - Liberty itself has appeared intolerable to those nations who have not been accustomed to enjoy it.
+ - Politics are a smooth file, which cuts gradually, and attains its end by slow progression.
+ - Raillery is a mode of speaking in favor of one’s wit at the expense of one’s better nature.
+ - When God endowed human beings with brains, He did not intend to guarantee them.
+ - Men, who are rogues individually, are in the mass very honorable people.
+ - The state is the association of men, and not men themselves; the citizen may perish, and the man remain.
+ - I shall ever repeat it, that mankind are governed not by extremes, but by principals of moderation.
+ - Life was given to me as a favor, so I may abandon it when it is one no longer.
+ - Vanity and pride of nations; vanity is as advantageous to a government as pride is dangerous.
+ - It is clear that in a monarchy, where he who commands the exceution of the laws generally thinks himself above them, there is lessneed of virtue than in a popular government, where the person entrusted with the execution of the laws is sensible of his being subject to their direction.
+ - We ought to be very cautious and circumspect in the prosecution of magic and heresy. The attempt to put down these two crimes may be extremely perilous to liberty.
+ - This punishment of death is the remedy, as it were, of a sick society.
+ - There is something in animals beside the power of motion. They are not machines; they feel.
+ - There is still another inconvenieney in conquests made by democracies; their government is ever odious to the conquered states. It is apparently monarchical, but in reality it is more oppressive than monarchy, as the experience of all ages and countries evinces.
+ - Republics end through luxury; monarchies through poverty.
+ - The power of divorce can be given only to those who feel the inconveniences of marriage, and who are sensible of the moment when it is for their interest to make them cease.
+ - The pagan religion, which prohibited only some of the grosser crimes, and which stopped the hand but meddled not with the heart, might have crimes that were inexplicable.
+ - It is necessary from the very nature of things that power should be a check to power.
+ - When one wants to change manners and customs, one should not do so by changing the laws.
+ - The severity of the laws prevents their execution.
+ - If you run after wit, you will succeed in catching folly.
+ - It is requisite the government be so constituted as one man need not be afraid of another.
+ - If you would be holy, instruct your children, because all the good acts they perform will be imputed to you.
+ - Very good laws may be ill timed.
+ - Nature is just to all mankind, and repays them for their industry. She renders them industrious by annexing rewards in proportion to their labor.
+ - In the birth of societies it is the chiefs of states who give it its special character; and afterward it is this special character that forms the chiefs of state.
+ - Passion makes us feel, but never see clearly.
+ - When a government is arrived to that degree of corruption as to be incapable of reforming itself, it would not lose much by being new moulded.
+ - People here argue about religion interminably, but it appears that they are competing at the same time to see who can be the least devout.
+ - The success of most things depends upon knowing how long it will take to succeed.
+ - The public business must be carried on with a certain motion, neither too quick nor too slow.
+ - Honor sets all the parts of the body politic in motion, and by its very action connects them; thus each individual advances the public good, while he only thinks of promoting his own interest.
+ - Do you think that God will punish them for not practicing a religion which he did not reveal to them?
+ - Virtue has needs of limits.
+ - Sometimes a man who deserves to be looked upon because he is a fool is despised only because he is a lawyer.
+ - But constant experience shows us that every man invested with power is apt to abuse it, and to carry his authority as far as it will go.
+ - Every man who has power is impelled to abuse it.
+ - The state of slavery is in its own nature bad.
+ - Solemnity is the shield of idiots.
+ - That anyone who possesses power has a tendency to abuse it is an eternal truth. They tend to go as far as the barriers will allow.
+ - The sublimity of administration consists in knowing the proper degree of power that should be exerted on different occasions.
+ - As soon as man enters into a state of society he loses the sense of his weakness; equality ceases, and then commences the state of war.
+ - The Christian religion is a stranger to mere despotic power. The mildness so frequently recommended in the Gospel is incompatible with the despotic rage.
+ - Happy the people whose annals are tiresome.
+ - The alms given to a naked man in the street do not fulfil the obligations of the state, which owes to every citizen a certain subsistence, a proper nourishment, convenient clothing, and a kind of life not incompatible with health.
+ - In every government there are three sorts of power: the legislative; the executive in respect to things dependent on the law of nations; and the executive in regard to matters that depend on the civil law.
+ - Useless laws weaken the necessary laws.
+ - Lunch kills half of Paris, supper the other half.
+ - Liberty is the right to do what the law permits.
+ - As virtue is necessary in a republic, and honor in a monarchy, fear is what is required in a despotism. As for virtue, it is not at all necessary, and honor would be dangerous there.
+ - Experience constantly proves that every man who has power is impelled to abuse it; he goes on till he is pulled up by some limits. Who would say it! virtue even has need of limits.
+ - A nation may lose its liberties in a day and not miss them in a century.
+ - Knowledge humanizes mankind, and reason inclines to mildness; but prejudices eradicate every tender disposition.
+ - We must have constantly present in our minds the difference between independence and liberty. Liberty is a right of doing whatever the laws permit, and if a citizen could do what they forbid he would no longer be possessed of liberty.
+ - In republican governments, men are all equal; equal they are also in despotic governments: in the former, because they are everything; in the latter, because they are nothing.
+ - Men should be bewailed at their birth, and not at their death.
+ - Talent is a gift which God has given us secretly, and which we reveal without perceiving it.
+ - The mood and temper of the public in regard to the treatment of crime and criminals is one of the most unfailing tests of the civilisation of any country.
+ - False happiness renders men stern and proud, and that happiness is never communicated. True happiness renders them kind and sensible, and that happiness is always shared.
+ - What unhappy beings men are! They constantly waver between false hopes and silly fears, and instead of relying on reason they create monsters to frighten themselves with, and phantoms which lead them astray.
+ - There have never been so many civil wars as in the Kingdom of Christ.
+ - Never create by law what can be accomplished by morality.
+ - Christianity stamped its character on jurisprudence; for empire has ever a connection with the priesthood.
+ - It is always the adventurers who do great things, not the sovereigns of great empires.
+ - Democracy has two excesses to avoid: the spirit of inequality, which leads to an aristocracy, or to the government of a single individual; and the spirit of extreme equality, which conducts it to despotism, as the despotism of a single individual finishes by conquest.
+ - The love of study is in us the only lasting passion. All the others quit us in proportion as this miserable machine which holds them approaches its ruins.
+ - Love of reading enables a man to exchange the weary hours, which come to every one, for hours of delight.
+ - What orators lack in depth they make up for in length.
+ - I have read descriptions of Paradise that would make any sensible person stop wanting to go there.
+ - What cowardice it is to be dismayed by the happiness of others and devastated by there good fortune.
+ - The false notion of miracles comes of our vanity, which makes us believe we are important enough for the Supreme Being to upset nature on our behalf.
+ - The culminating point of administration is to know well how much power, great or small, we ought to use in all circumstances.
+ - Great commanders write their actions with simplicity; because they receive more glory from facts than from words.
+ - Each citizen contributes to the revenues of the State a portion of his property in order that his tenure of the rest may be secure.
+ - Society is the union of men and not the men themselves.
+ - The crime against nature will never make any great progress in society unless people are prompted to it by some particular custom.
+ - With truths of a certain kind, it is not enough to make them appear convincing: one must also make them felt. Of such kind are moral truths.
+ - When the body of the people is possessed of the supreme power, it is called a democracy.
+ - The spirit of moderation should also be the spirit of the lawgiver.
+ - They who assert that a blind fatality produced the various effects we behold in this world talk very absurdly; for can anything be more unreasonable than to pretend that a blind fatality could be productive of intelligent beings.
+ - Friendship is an arrangement by which we undertake to exchange small favors for big ones.
+ - I acknowledge that history is full of religious wars: but we must distinguish; it is not the multiplicity of religions which has produced wars; it is the intolerant spirit animating that which believed itself in the ascendant.
+ - Fain would I glide down a gentle river, but I am carried away by a torrent.
+
+183 quotes

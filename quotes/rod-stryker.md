@@ -1,0 +1,38 @@
+ - Your long-term happiness and fulfillment depend on your ability to fulfill your soul’s unique purpose and to fill the place in the world that only you can fill, making the contribution that only you can make.
+ - Do yoga in order to know what to do when you’re not doing yoga.
+ - When yoga is understood in its totality, it is neither a form of exercise, nor is it an esoteric philosophy or religion; it is a practical and comprehensive science for realizing life’s ultimate aims.
+ - It is attachment to desire, not desire itself, that is the underlying cause of practically all of our pain and suffering.
+ - Stop trying to distinguish the joy of meditation from the messiness of life. Begin to see the divine in everything. She is in the joy just as much as the misery.
+ - From a yogic perspective, stillness, coupled with expanded awareness, is by far the most powerful medium by which you can affect your destiny.
+ - In the end, yoga has less to do with what you can do with your body and more to do with the happiness that unfolds from realizing your full potential.
+ - I am grateful for the unending hunger to rest in the mind of Buddha, the heart of Krishna, a domain where all yogis, sages, and saints abide, waiting for those whose real self has emerged from the searing pilgrimage of Spirit’s flames.
+ - There is no doubt that the foundation of being a great yoga teacher is being a great yoga student.
+ - The yoga tradition provides one of humankind’s most effective systems for achieving enrichment and happiness in every aspect of life.
+ - I am moved by the desire to see and to be seen, to grow and to unveil the mysteries of life and, at the same time, by the aspiration that life will continue to reveal new mysteries and new possibilities.
+ - In fact, many people, including some who practice yoga, assume that yoga is nothing more than a form of exercise, or they believe that only the physical aspects of yoga have relevance to their lives. Nothing could be farther from the truth.
+ - If you make time for silence, the sacred will unfold.
+ - Yoga is about life, this means all of life, not just part of it.
+ - The more you insist on improving who and what you are, the more you become master of your destiny.
+ - Of course, not all desires lead to happiness. Desires can and do lead to pain and frustration.
+ - Looking back, I see that I was born with the subtle sense that material treasures alone, no matter how grand, would never be enough to satisfy the longing in my heart to see the light, to know the truth.
+ - In the same way that the physical practice of yoga so effectively benefits your body and mind, the larger science of yoga is similarly powerful in unlocking the vast potentials of your body, mind and spirit to help you achieve your best life imaginable.
+ - Despite its widespread acceptance and the number of lives it has improved, what most of us in the West commonly associate with yoga represents only the tip of the iceberg that is yoga, a tiny fraction of what is a vast and profound science.
+ - Once you know yourself as a genuine seeker, and when your own inner chamber is quite enlightened, then comes the natural unfoldment of pure love and compassion and a genuine desire to serve others.
+ - The yoga tradition addresses how to live and how to shape your life with a commanding sense of purpose, capacity and meaning.
+ - When it comes to desire, it’s not a matter of avoiding desire, but rather learning to discern those desires that are helpful and necessary for your growth – those that serve your soul and help you continue to thrive – from those that do not.
+ - Aligning yourself with the intelligence of the universe means coming to understand your life’s purpose and applying it fearlessly to life’s circumstances.
+ - Desire, instead of being an obstacle to an inspired and fulfilled life, is the very thing that propels you toward it.
+ - Yoga’s most sublime objective is to awaken an exalted state of spiritual realization; however, the tradition also recognizes that this state does not exist in absolute isolation from the world and worldly matters.
+ - It’s vital to understand that while you are alive, there is no end to desire, since the seed of your every thought and your every action is a desire.
+ - Learning to honor all four of your soul’s desires compels you to thrive at every level, leads to lasting happiness as well as a complete and balanced life.
+ - Beautiful women, wealth, sensations, celebrity, substances capable of distorting my perception, and even forcing my body into positions ready for the covers of important yoga magazines – I pursued them all, some wholeheartedly, but none would satisfy my real longing.
+ - Clear perception is the cornerstone and an absolute necessity for living your best life – and that’s exactly what the focus of a yoga practice should be all about.
+ - We are already complete. All we need is the clarity to recognize the wholeness that is us.
+ - Few things are more powerful than learning to trust that your path to a fulfilled life – and the glorious destiny that you are meant to share with the world – is part of your soul’s blueprint.
+ - I came into this world restless despite many appearances to the contrary. Does that make me unique? I doubt it.
+ - The quality of your practice is ultimately measured by its effect on the quality of your life. In other words, mastery in yoga is mastery of life.
+ - The yoga tradition asserts that lasting happiness is dependent on prospering both materially and spiritually.
+ - I am passionate about learning to most fully embody the spark that is the source of life, the hidden glory of the Creator.
+ - Your soul is boundlessly impassioned and always prepared to impart to you whatever you need to thrive.
+
+36 quotes

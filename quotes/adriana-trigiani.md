@@ -1,0 +1,72 @@
+ - There’s nothing an artist needs more – even more than excellent tools and stamina – than a deadline.
+ - Life is a mystery to be lived, not a problem to be solved.
+ - Let life unfold, say what you mean. You can’t always think about what you’ve lost, or what you don’t have, or what you didn’t get. Because when you do that, you’re missing out on the now. You can’t know if you’ll be here tomorrow or a year from now.
+ - I like it when my mother smiles. And I especially like it when I make her smile.
+ - It’s the secret to happiness, you know. Only take what you need.
+ - That’s when you know for sure somebody loves you. They figure out what you need and they give it to you – without you asking.
+ - Moments are history. If you have enough of them, they become a story.
+ - A practical girl never pines; she takes action.
+ - Food is so important – it sustains us, it provides a social focal point, and it is fun. I cannot unravel the difference between love in my family and the preparation of food because they are so closely woven.
+ - Relief is a wonderful emotion, highly underrated. In fact, I prefer it to elation or joy. Relief lets the air out of the Tire of Pain.
+ - We hang out, we help one another, we tell one another our worst fears and biggest secrets, and then just like real sisters, we listen and don’t judge.
+ - Mama always said a good family has one heartbeat. No one knows you like the people you live with, and no one will take up your cause to the outside world quite like your blood relatives.
+ - A good mother is irreplaceable.
+ - When people are filled to the brim with love, they are their most beautiful.
+ - For a woman, love is the highest dream, and if a man promises to build a ladder tall enough to reach it, she believes him, hikes up her skirt, and follows him to the stars.
+ - The intimacy. The deepest level of love. The knowledge that someone understands you, is rooting for you, is sharing your life.
+ - Motherhood changes everything.
+ - Love has a funny way of showing up when you aren’t looking for it and didn’t plan on it.
+ - I will probably always cry myself to sleep, but knowing this, someday the tears won’t be sad, or filled with regret. Maybe they will be joyful.
+ - But a child’s joy is doubled for the mother, and the sound of her son’s laughter began to her heart, a feat she had never believed possible.
+ - All the things I thought I was – simple and plain and sometime funny – are very small words. They do not begin to describe me. They do not begin to express what is inside of me. I have value, and I have worth. I cannot be replaced like old shoes or taken for granted like tap water.
+ - Art makes the spirit soar. And when the spirit is lifted, life follows.
+ - I love actors and I love to create an environment where they feel safe to connect and thrive and try things, to fail and succeed and flourish and fly.
+ - The wedding vows are a license to be a complete jerk, with full knowledge that the person you married has agreed, no matter how large a horse’s ass you are, to stay by your side until death. A fool could tell you this is a bad deal.
+ - The good things that happen to us were meant to happen, and the bad things that happen are lessons meant to teach us to be better.
+ - But the most precious research to me came from the paperwork filed on behalf of my grandparents and great-grandfather. The ship’s manifest showed that they could read and write. I am still emotional when I look at those boxes checked yes.
+ - I look at my roommates who are so proud of me that it makes me proud.
+ - I even love the smell of books.
+ - This is where men and women are different, we can put aside petty competition for relationships – they can’t. It interferes.
+ - Maybe a first love exists to reaffirm the best parts of yourself, the choices you made when you didn’t worry about the consequences. Maybe a first love exists to remind you to be brave in the moment, to stand up for your feelings, instead of shrinking back in the face of potential loneliness.
+ - Anything you ever make that matters takes a long time. Some artists never see their work in front of an audience, so for them 15 years is a blink of an eye. I am nothing but grateful.
+ - I’ve learned one important lesson in my life, and I’m going to share it with you. Don’t worry about bad things that haven’t happened yet. It will save you a lot of anxiety.
+ - I have held the following jobs: office temp, ticket seller in movie theatre, cook in restaurant, nanny, and phone installer at the Super Bowl in New Orleans.
+ - I don’t use a crap camera, I don’t eat junk, and I’m not going to a dance where the boys are bores.
+ - Beware the things of this world that can mean everything or nothing.
+ - Looking back, now, I realize that you only ever need one person who lights up that way when you enter a room. One person is all it takes to give a kid confidence.
+ - There are two kinds of people in this world. Those who want to know the facts, and those who want to make up a nice story to feel better. I wish I was the kind who made up stories.
+ - Sometimes we get our hearts broken, only to have the right person come along to mend them.
+ - People have often told me that one of their strongest childhood memories is the scent of their grandmother’s house. I never knew my grandmothers, but I could always count of the Bookmobile.
+ - I don’t settle in any other area of my life when it comes to excellence, so why should I lower my standards when it comes to boys?
+ - Writing comedy is the greatest spiritual gift you can give to anybody anytime.
+ - I am in total silence when I write – I don’t even like the sound of the dryer going – I like the quiet.
+ - And when you clear away the cobwebs of the description of every job in the world, at the bottom of that job is service. It’s service. And I took that ethic and applied it to my writing craft.
+ - All you needed is what every girl needs, a good friend. Someone to talk to, to share with, to run things by...
+ - Book clubs are the best thing that has happened to the world of publishing.
+ - But what Mom never told me is that along the way, you find sisters, and they find you. Girls are cool that way.
+ - Isn’t this the truth of any good mother? That in all of our lives. We worry only about those we brought into this world, regardless of whether they loved us back or treated us fairly or understood our shortcomings.
+ - Money doesn’t have anything have anything to do with the magnificence of a person. It doesn’t. What matters is what you make. Whether it’s a cake for bingo night or a costume for a saint or a wall of water-whatever you pour into this life is what makes you rich.
+ - Two different things. Work is survival, and love sustains you. You have work anytime. But love? Not always.
+ - When a girl is beautiful, she gets to pick – she never has to wait for someone to choose her.
+ - You never know when some small thing will lead to a big idea. Travel is very inspirational – but it’s in the ordinary that I find my themes of love and work and family.
+ - This is one of those times when explaining a feeling cannot measure up to actually having the feeling.
+ - This should tell you everything you need to know about guys. They only go after what they know they can get. We girls, on the other hand, aim really high. We take a leap...
+ - Everything has to be clean and orderly when I sit down to write. I have candles going, and small objects that remind me of what I am working on, or bring me into the world of the character.
+ - I’m writing novels because I found something I love because I tried it. Don’t be afraid to shake it up.
+ - Women move through the world never knowing their power.
+ - And so, when I was a young writer I always worked hard on imagery, and I knew that the roots of imagery were the senses – and that if my readers could feel, taste and see what I was talking about, I would be able to tell them a story.
+ - I used to believe my art had to be about the things that brought me joy and gave me hope. But I learned that art can be found in all of life, even in pain.
+ - My mother was an avid readerShe loved books about romance. Books that took place in faraway places and times. Stories with costumes.
+ - A library is a home filled with our stories. On every shelf, we see ourselves, experience our collective conscious, describe our dreams and our great longing for times that have passed, the sterling moment of the present and the glorious future known only in our imaginations.
+ - I loved to read, still do, and it seemed that the writing was a result of the love of books and reading and libraries.
+ - Our faces will become works of art that our grandchildren will treasure.
+ - If only men came made to order. It’s so hard to find a decent fellow.
+ - Having a purpose is the little secret of the nonpretties. Something to do always beats something to look at.
+ - I’m very organized – and the best thing – when you love your work, you don’t mind putting in 15 hour days. It’s joyful.
+ - The only urgent thing in life is the pursuit of love. You get that one right, and you’ve solved the mystery.
+ - Food was celebration, conversation, and nourishment. The table is where the big decisions of the family are made and all the arguing takes place.
+ - If there is one thing I hope my books do always and forever, its that they honor working people.
+ - I have been a joy to live with all spring: Upbeat, warm and tender, uncomplicated, and loving. I am no trouble at all. You could press me into dough and make sugar cookies out of me, I’ve been so sweet.
+ - If a man walks in beauty, he will create, and when he creates, he prospers.
+
+70 quotes

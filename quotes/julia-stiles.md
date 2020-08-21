@@ -1,0 +1,47 @@
+ - Make yourself useful, not just on a day to day basis, but as a lifetime thing.
+ - Seeing other people in pain causes me pain.
+ - I’ve really turned a corner recently in terms of not taking work too seriously, so it is much easier for me to not take my work home.
+ - I always feel like a goofy little kid.
+ - I think that ultimately I just have to be myself. You know, I don’t do anything that outlandish anyway.
+ - Theater is like going to the gym for actors.
+ - I’m not good at keeping secrets. If I’m entrusted with a secret from a friend, I can do that because I’m a good friend, but I don’t like having secrets, it makes me nervous.
+ - Yoga has stopped me from destroying my joints after running. It slows me down. My brain and body can go into overdrive – yoga teaches me to focus on the moment and not get ahead of myself.
+ - Of course my family and friends are incredibly valuable to me. They keep me sane, they teach me things and I love spending time with them. I think that ranking what you value is a sort of western and linear way of looking at things.
+ - I took the role of Ophelia in Hamlet because she is so naive, loving, and innocent.
+ - I think I was born an artist. But the key is that I have a mom that encouraged and supported my artistic side. She still has the stick-figure drawings framed.
+ - I’m going to Columbia University but I’m trying to keep that low-profile because I don’t want weird people following me there. I want the experience of normal college life.
+ - If I’m gong out to a club I like to have fun with it. I’ll use blue or red sparkly eyeliners and glittery eye shadows. Then I’ll put on some blue mascara. I focus on the eyes.
+ - I know it sounds earnest, but I do really feel in my bones that acting is just a small part of the equation when you are making a movie. The director really is in charge. Actors are as important or unimportant as the rest of the people around them.
+ - I am forever grateful that I got some training in the theater – it reduces performance anxiety.
+ - I always loved how people like Jon Voight and Laurence Olivier shocked you every time they came on-screen. They were so different each time. That’s what I hope to do with acting – be the chameleon and not get stuck in a type.
+ - In my worst moments, I try to think about loving instead of hating. Creation versus destruction, know what I’m sayin’?
+ - I like analyzing human behavior. It’s complex. That’s what keeps me going.
+ - I think women get caught up too much in having a plan – ‘I’m going to get married at this age I’m going to have a kid at this age’ – and then they just try to find a guy who will fit into that picture. I don’t want my life to be based on that.
+ - I am forever a romantic. I try to bring that into my work. I try not to be fooled by romance. Or work.
+ - Fundamentally women and men are different.
+ - I pretty much grew up in public.
+ - I really like Shakespeare a lot. The characters that he writes for females, I think, are really great and a lot more compelling than what modern writers write, which is weird because they didn’t have actresses then.
+ - There are a handful of actors who sustain interest because it’s exciting to watch them get better at what they do. I want to be one of those actors.
+ - Sometimes I have these abstract ideas and then lose track of myself.
+ - I wear everything from hip-hop baggy pants to beautiful Armani dresses. I also like to mix vintage clothing with designer pieces.
+ - I tend to gravitate toward the more powerful roles. As opposed to the doe-eyed girl who bats her eyelashes and runs around in towels, you now what I mean? Because that kind of makes me want to vomit.
+ - I met this homeless man who had never owned a shirt in his life. He had taken his pants and worn them as a shirt and I thought it was so creative. He was liberated from the conventions of fashion.
+ - Even after such milestones as Kathryn Bigelow winning an Oscar, there still seem to be few women in leadership roles.
+ - The only thing that gets me through any type of pain, emotional or physical, is to make it worthwhile by putting it into my work.
+ - As an actor, you’re only one little piece of the puzzle; you’re fulfilling someone else’s vision. If you’re involved earlier on, you’re kind of creating your own.
+ - So I am happy to have fans, especially if it enables me to keep working. And I am really grateful when people respond to my work.
+ - We can become very short-sighted in terms of objectives. The first thing to go during times of economic crisis and budget cuts is funding for things that are essential and not-quantifiable, like the arts. Save Big Bird.
+ - Yoga has stopped me from destroying my joints after running. It slows me down.
+ - It’s fun to stay at the Y! M! C! A!
+ - My regular school didn’t know what to do with me!
+ - It’s actually really great to be a student and an actor, because I get to do this job that I love, then just when I think my head might explode, I get to go to school where they don’t really care about what magazine cover I’m on.
+ - I worked regularly from very early on, and some of it was probably a bit premature.
+ - Being an actor is looked at like a prolonged game of dress-up. America puts movie stars on pedestals. In college, it’s the flip side. I sometimes have to justify my job to my professors because they’re focused on intellect and ideas.
+ - I never think of myself as an actor who takes work home with them.
+ - I used to struggle a lot with dwelling on how the day at work was, and I would dwell on my performance. Now, I’m like, “Well, that’s over and done with, and I can’t control the outcome, so move on.” I just remember that it’s entertainment I am making.
+ - Theater makes working in movies or TV seem like a cake-walk.
+ - I am a big fan of horror movies but I had never thought that I had wanted to act in one because I don’t think that actors get to do much in them. They’re usually just reacting.
+ - It’s not my job to critique the writing. I’m there to serve it. I had to figure out a way to make it work.
+ - Education is huge for me. I went to public school until I turned thirteen, and was lucky enough to afford college once I became successful as an actress.
+
+45 quotes

@@ -1,0 +1,55 @@
+ - That’s just a much more enjoyable and motivating experience for me, when I can see people who are just as obsessed with the idea as I am.
+ - I’m awkward around girls.
+ - Any time you can completely immerse yourself in something it’s fun.
+ - I’ll tell you what I hate – bands like My Chemical Romance.
+ - When you have a child, you are just immediately changed forever. You put yourself second. Your child comes first, and everything that you do is with them in mind.
+ - It’s a difficult position. Do you endanger your child to fight for the right thing, or do you keep your mouth shut and let your child grow up in a world where their natural rights are stripped away from them?
+ - New York is full of crazy people, and I like that.
+ - If you’re living two lives and you’re lying to everyone, you’re bound to slip up, in some way, you’re bound to get something wrong, and you’re bound to get found out.
+ - I think a mantra I always told myself is, “No matter how many times somebody pitches the ball at you, if you swing every time, eventually one of them is going to connect.” Being yourself and persistence are two things that became my daily mantras, I suppose.
+ - Sometimes great things come from doing things quickly and not over-thinking stuff.
+ - I never had a father figure so I never missed it.
+ - I think documentary filmmaking is a braver way to make films because it’s real, and you’re really there.
+ - I had teen angst for a while, but I think every teenager has the angst.
+ - I’m a hard-mouthed north-eastern lad. That’s me – the Eminem of Northeast England.
+ - Dancing is like riding a bike.
+ - Saying “muff” to someone and trying to be romantic is incredibly difficult.
+ - It’s hard to define somebody by one movie. I mean, unfortunately, my entire life was basically made by Billy Elliot. It was kind of created by that one catalytic moment.
+ - I don’t take any photographs. I travel a lot by myself, and I feel weird taking photos on my own.
+ - I’m no good at the one-liner thing. It’s just not me.
+ - I’m very good at meeting people, very outgoing.
+ - I excelled in English while I was at school.
+ - The complexity of the situation of having a war going on around you and what that delivers to you is that you have to figure out which side to take.
+ - I look at my contemporaries, and we’re all at different stages and levels, and all choosing different routes, different ways to do things.
+ - I don’t think many people can say they’ve been the lead in a Spielberg film and still been able to live their normal life that they had before.
+ - I think I have much more appreciation for directing and movies overall versus a performance or an actor. Their body of work is more interesting.
+ - I think it was the sense that Turn is a spy thriller, and that’s a genre that really fascinates me, in general.
+ - I actually don’t mind rats at all. I kind of think they’re quite cute, but that’s just me.
+ - I never realised that the Edinburgh skyline was so interesting – it’s gothic and very urban and there’s a lot of church spires and old brownstone buildings.
+ - I remember when I first came to America and I saw posters for TV shows and I was like, “What?! Why does a television show deserve space on a billboard?”
+ - I’m just a small guy so if I’d dropped any more weight it would have been a bit ridiculous.
+ - I sympathize with every kitchen porter.
+ - I think as English people, we don’t want to be reminded that at one point we ruled three-quarters of the globe, and now we’re a very small country that doesn’t own three-quarters of the globe.
+ - When I see people talking about TV, they’re way more animated, way more passionate than when they talk about films.
+ - I think everyone still thinks I’m 13.
+ - TV is a big business. In some ways, it’s surpassed films, in terms of the way people invest in these shows and invest in these characters, and give up so much of their time to follow these people’s stories.
+ - I have, I think, eight mentors. It’s crazy, but I need them. They are all really important to me. They keep me grounded and advise me.
+ - As a kid I never had the impulse to climb anything. I think that most kids who live in small towns or rural areas outside of the city, that’s what they do – climb walls, or trees, or whatever. To me, it was more dance classes and not being very boyish.
+ - The reason I do small, independent movies is because I want to keep my soul intact and maintain some kind of integrity within this industry.
+ - I don’t think there’s a lot of actors out there right now who really know what they’re doing at all.
+ - If you have created an image of yourself at 13 and it is still with you at 17, it needs to be dropped.
+ - I think movie making can sometimes make you lazy in your approach. Occasionally you’ll be shooting a scene and it’s not even your coverage but you’ll catch yourself slipping away and you’ll see your mind going somewhere else. But you just can’t afford to do that on stage.
+ - I’m still pretty terrified of heights.
+ - I’m proud of my works. But there’s not one thing that I can put my finger on and say, “That is my greatest achievement. That’s my proudest moment.” That’s so tricky to me.
+ - I have a problem with heights in general – and climbing!
+ - If the right thing came along at the right time, it would be an enormous kind of challenge.
+ - I wanted to be a journalist for a long time.
+ - I love anything that kind of removes me from myself and employs something else. So, I love accents and I love pretending.
+ - New York is great for people watching and there’s a bunch of amazing rooftops.
+ - Wherever the good work is I’ll go.
+ - AMC is a fantastic network that does diverse programming, and does it at a really good level and of great quality.
+ - It must be hard to be a female in a David Mackenzie movie. I feel like women in his films are portrayed a certain way – like broken people.
+ - Let’s say that you commit a crime, you get caught, you might get sent to prison. It’s going to be bad. But if you get caught spying, you’re literally hanged the next morning.
+ - I’ve got lots of weird illustrations of me from Japanese fans.
+
+53 quotes

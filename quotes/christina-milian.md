@@ -1,0 +1,37 @@
+ - Love yourself for who you are. You are beautiful inside and out, and nobody can take that away from you.
+ - Take everything to the next level and have fun doing it. No limits, no rules!
+ - The sun won’t shine since you went away, seems like the rain’s falling every day. There’s just one heart, where there once was two; that’s the way it’s gotta be until I get over you.
+ - I enjoy being happy every day, and hopefully you can hear my happiness in my music. Life is beautiful.
+ - It wasn’t until I was about 17 or 18 years old that I got into music.
+ - Even in relationships, I don’t get my hopes up or anything, especially not right now because I know I’m young and I’ve got plenty of time later in the future.
+ - Never give up. Never stop being creative in finding ways to get exposure. Also, prepared anytime and all the time. You never know who you will run into.
+ - I am not greedy, so I would gladly give a song to someone else to sing if it makes more sense.
+ - I also have two dogs, a Chihuahua and a Yorkshire terrier, so if they like him, that’s a good sign.
+ - My advice to someone to follow in my footsteps is to have patience. I’ve been doing this for twelve years.
+ - I am also a hard worker and people are sometimes surprised to see that as well.
+ - Well, Tommy Lee Jones is a little bit more intimidating. He’s definitely a cowboy. He’s from Texas.
+ - You have to be a strong person to be in music, especially.
+ - Because I get nervous all the time. It’s weird but I think it’s fun and it’s refreshing. It’s always good to be that way. That keeps me appreciative of everything.
+ - I did a theatrical musical, Annie Warbucks, when I was 11. We did a tour and we stopped by Los Angeles.
+ - That’s my fun time so, to me, doing my homework, studying on what I do, watching the movies, listening to music, all that inspires me so I focus a lot on that and practice.
+ - I enjoy my fun time and everything like that but I love what I do.
+ - I felt like a dork growing up.
+ - I signed to Def Jam and within two months, I heard that Ja Rule was looking for someone to do a song with.
+ - Living in Maryland, I saw that the opportunities were far greater in California than back home.
+ - I would love to do some kind of mystery movie, or an action flick, something with that combination.
+ - Also, my mom and family are very important to me and I know that this is not expected.
+ - Even if I don’t have the money to take vocal lessons, I’ll practice in the house by myself singing out loud.
+ - I have to have a little bit of time to myself right before whatever it is that I have to do because most of the time I’m sitting in my head convincing myself to calm down, all right, show down.
+ - I like doing arts and crafts, so I would probably go to one of those fun little ceramic places and go paint some plates and do something fun like that.
+ - For one year I did go to Performing Arts School, and I had very weird friends.
+ - I would just love to do something where I’d have to train and work really hard and do one of those types of action movies, which a lot of women are doing now.
+ - Being in the music business is a totally different industry right there.
+ - When I meet somebody, I hang out with them, and it’s all good, but I don’t take it too seriously.
+ - But people who do not know me are surprised to see me as a real person I guess.
+ - I had actually been on tour in Japan and I had my own world tour that I was doing. I was used to doing a show for an hour, so I was always learning choreography.
+ - I was living in Maryland and my first week was dreadful. My first week I actually got into a fight at school.
+ - I moved here to California when I was 13 to pursue my acting career.
+ - When we were doing the cheerleading for this, I was excited about doing it because I always wanted to be a cheerleader. I always wanted to but I didn’t get to because I was working.
+ - Still, to this day I go back and listen to music that inspires me to write now.
+
+35 quotes

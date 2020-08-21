@@ -1,0 +1,29 @@
+ - Everything changes when you start to emit your own frequency rather than absorbing the frequencies around you, when you start imprinting your intent on the universe rather than receiving an imprint from existence.
+ - Your power ends where your fear begins.
+ - When you buy into any version of fear, it can become your experience because your molecules are intelligent and your energy responds to the predominant feeling in your being. The focus of your mind is exactly what gives the orders to create what you experience.
+ - Only in the shattering can the rebuilding occur.
+ - Opening your chakras and allowing cosmic energies to flow through your body will ultimately refresh your spirit and empower your life.
+ - Every act of kindness and consideration changes and enhances the course of life.
+ - You are water, you understand – electrified water. The elements and balance of ocean water match the blood in your human body. Humans were made from the ocean. This is one of the greatest secrets of creation.
+ - You must learn to end the wars in your world by ending them in your minds.
+ - It is important to speak your truth, not to convince anyone else of it. Everyone must make up their own minds.
+ - How have you arrived at your thinking? Where do your ideas and knowledge come from, and why do you credit some knowledge and discredit others?
+ - The Earth is alive and contains the knowledge you seek. It is your consciousness that determines what it reveals. How to access this knowledge? And where are the keys to open it and make it yours? The Earth speaks. Love her, honor and respect her and she will reveal her secrets.
+ - Love and a good sense of humour strengthen the entire body; remember your cells respond to your input.
+ - Sometimes the darkest challenges, the most difficult lessons, hold the greatest gems of light.
+ - Those who choose love – daring to feel to the depths of being, accepting responsibility for their actions, and seeking a purpose in life – will find that the world of significant living will unfold its cleverly concealed presence.
+ - Feelings are your guide. Trust your feelings and learn to express them, and do not blame anyone for how you feel. Be yourself, observe yourself. Look to understand any crisis you have been in or will be in.
+ - The history of your world is filled with the voice of the victor, the voice of power, although it was not always a voice of sanity, by any means.
+ - The Quality of Love or Fear you Carry into each Moment determines which Road you Travel.
+ - Trust that whatever you are dealing with, whatever doorway to crisis you experience, it is leading you to a greater lesson in liwing where ideally the power of love is what you learn. Forgive, and broadcast your excitement to be alive.
+ - Animals can always read your vibration, and if you are intent on empowering your life, they will often gift you by making special melodies of sound to balance your chakras and tune up your body.
+ - When truthsayers have the courage to say the emperor is wearing no clothes, whether you agree with their point of view or not, send them love. They are to be acknowledged for speaking their truth.
+ - When you laugh with good-hearted innocence at your own creations, you are free.
+ - Wonder opens and unravels reality.
+ - You are living in a time when opportunities for self-empowerment, expanded awareness and spiritual growth appear to be unlimited.
+ - When you manage people, you must first convince them they need managing. So you create the problems and then let the people cry for solutions.
+ - For those who confuse you, recognize that their confusion is theirs and your clarity is yours.
+ - What do I want? I want to accelerate my personal evolution. I want Spirit to assist me in a greater capacity. I want my body to regenerate itself. I want to emanate health. I am willing to give up difficulty so that I can be a living example of what humanity can be.
+ - No one is ever a victim, although your conquerors would have you believe in your own victimhood. How else could they conquer you?
+
+27 quotes

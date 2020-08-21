@@ -1,0 +1,106 @@
+ - If you do not believe you can do it then you have no chance at all.
+ - I take pride in the fact that people go home having felt that for 90 minutes today, life is beautiful – and that’s it, basically. That’s why professional football exists.
+ - When you look at people who are successful, you will find that they aren’t the people who are motivated, but have consistency in their motivation.
+ - To achieve great things you have first to believe it.
+ - A football team is a like a beautiful woman, when you do not tell her, she forgets she is beautiful.
+ - I believe the target of anything in life should be to do it so well that it becomes an art.
+ - You build a player like you build a house. You start with the foundations. The fundamentals.
+ - Nobody has enough talent to live on talent alone. Even when you have talent, a life without work goes nowhere.
+ - No matter how much money you earn, you can only eat three meals a day and sleep in one bed.
+ - I believe one of the best things about managing people is that we can influence lives in a positive way. That’s basically what a manager is about. When I can do that, I am very happy.
+ - Football is an art, like dancing is an art – but only when it’s well done does it become an art.
+ - I’m not scared to spend money. If you go out with me one night, you will understand that.
+ - For me, motivation is a person who has the capability to recruit the resources he needs to achieve a goal.
+ - When you give success to stupid people, it makes them more stupid sometimes and not more intelligent.
+ - Nobody will finish above us in the league. It wouldn’t surprise me if we were to go unbeaten for the whole of the season.
+ - Who is the Best Player in the World? Leo Messi. Who is the Best Player Ever? Leo Messi!
+ - My job is to give people who work hard all week something to enjoy on Saturdays and Wednesdays.
+ - I’m French. I have not become an Englishman. I have the impression of living on an island called Arsenal. If you fancy a sightseeing tour of London, don’t ask me. You would get lost.
+ - Messi is a Playstation.
+ - Everyone thinks they have the prettiest wife at home.
+ - Any man who concentrates his energies totally on one passion is, by definition, someone who hurts the people close to him.
+ - Private life is private life. Off the pitch, there is private life, and the rest is social life, where of course you have to behave responsibly.
+ - Gerard is an open-minded and passionate man. I am the opposite: stubborn and stupid. But sometimes stupid behaviour makes you win.
+ - In my job, you expect to suffer. That’s why when I go to hell one day, it will be less painful for me than you, because I’m used to suffering.
+ - If you eat caviar every day it’s difficult to return to sausages.
+ - You weren’t world-class when Arsenal signed you.
+ - Ferguson’s out of order. He has lost all sense of reality. He is going out looking for a confrontation, then asking the person he is confronting to apologise. He’s pushed the cork in a bit far this time.
+ - What makes daily life interesting is that we try to transform it to something that is close to art.
+ - It’s like you wanting to marry Miss World and she doesn’t want you, what can I do about it? I can try to help you, but if she does not want to marry you what can I do?
+ - The moral values I’ve learnt in my life I’ve learnt through football.
+ - Their diet is basically boiled vegetables, fish and rice. No fat, no sugar. You notice when you live there that there are no fat people.
+ - Messi’s like a PlayStation. He can take advantage of every mistake we make. He made the impossible possible. He has something exceptional. He has six or seven years in front of him, touchwood that nothing happens to him, and he can reach unbelievable levels.
+ - I think training of better Youth Coaches is essential.
+ - When I arrive at the gates of Heaven the Good Lord will ask ‘what did you do in your life?’ I will respond ‘I tried to win football matches.’ He will say: ‘Are you certain that’s all?’ But, well, that’s the story of my life.
+ - I’ve told him to cut off his ponytail. I think it makes him less aerodynamic.
+ - Some are wrong because they are not strong enough to fight temptation and some some are wrong because they do not know.
+ - Everybody has a different opinion in this league and nobody is a prophet. I personally don’t know who will win the league. I managed 1,600 games so, if Nani knows, he must be 1,600 times more intelligent than I am.
+ - When I first came to Arsenal, I realised the back four were all university graduates in the art of defending. As for Tony Adams, I consider him to be a doctor of defence. He is simply outstanding.
+ - English players are as easy to coach. The problem is that the Premier League has the best players in the world, and statistically not all of them can be born in England. But we don’t have enough English players: we are working very hard on it.
+ - At some clubs success is accidental. At Arsenal it is compulsory.
+ - It’s like a child who is used to having ice cream whenever he wants. When it doesn’t come when he asks he tends to get confused and nervous.
+ - The biggest things in life have been achieved by people who, at the start, we would have judged crazy. And yet if they had not had these crazy ideas the world would have been more stupid.
+ - I am not against being pragmatic, because it is pragmatic to make a good pass, not a bad one. If I have the ball, what do I do with it? Could anybody argue that a bad solution like just kicking it away is pragmatic just because, sometimes, it works by accident?
+ - In a competitive world, not everybody can follow the pace; you will leave people out. We now accept that we must take care of these people. You cannot let them die in the streets; people will not accept it. And that is right, too.
+ - Sometimes you have to swallow the unswallowable.
+ - It’s silly to work hard the whole week and then spoil it by not preparing properly before the game.
+ - We do not buy superstars. We make them.
+ - When you’re dealing with someone who only has a pair of underpants on, if you take his underpants off, he has nothing left – he’s naked. You’re better off trying to find him a pair of trousers to complement him rather than change him.
+ - When you represent a club it’s about values and qualities, not about passports.
+ - I think we live in a very competitive world, and I love competition.
+ - I am still hopeful we can go through the season unbeaten – a frightening thought.
+ - If somebody stamps on your head in that way, you wouldn’t say, ‘thank you very much’ and turn the other cheek. Only Jesus Christ did that.
+ - Fair play is an English word. It is not a French word, and it has been copied all over the world. Unfortunately, it does not function any more here.
+ - What motivates me is an ideal of thinking about how football should be. And to try to get near this way of playing. And to try to improve all aspects of my personality that can help me get near this ideal way of playing football.
+ - As far as I’m concerned, this guy should never play football again. The answer you normally get after a tackle like that is ‘he is not the type of guy who does that.’ It’s like a guy who kills one time in his life – it’s enough. You have a dead person. This tackle is absolutely horrendous.
+ - I think in England you eat too much sugar and meat and not enough vegetables.
+ - Of the nine red cards this season we probably deserved half of them.
+ - As a non-Arsenal player I would say Ryan Giggs is my Premier League player of the decade because he has combined style with winning. Also I feel sorry he could never attend the World Cup, somewhere where people get a lot of compliments when they do well.
+ - As a coach you can influence the diet of your players. You can point out what is wrong.
+ - Unfortunately apparently I am to blame because I don’t produce enough English players.
+ - We played a whole season unbeaten but you did not see me every week jumping on the tables. Once it’s over it’s over and you do in the next one as well as you can. Plenty of managers who have won the Champions League will not be considered great managers.
+ - The real revelation of a player’s character is not in his social life but in how he plays. In my social life I can hide my real personality.
+ - I am supposed to take the bullets and absorb them. Like a bear. A polar bear.
+ - In England, football is important for everybody.
+ - I am in a job where you always look in front of you. Unfortunately, the older you get, the less distance there is in front of you.
+ - I do not think about the national team too much because footballistically it is not of too much interest.
+ - If you want to win a horse race, you need your horse to be 100%.
+ - I believe in work, in connections between the players, I think what makes football great is that it is a team sport. You can win in different ways, by being more of a team, or by having better individual players. It is the team ethic that interests me, always.
+ - I believe I do my job the way I have to do it.
+ - I have been accused of not taking seriously the FA Cup on Saturday. I have won four times the FA Cup. Who has won it more? Give me one name.
+ - I don’t kick dressing room doors, or the cat – or even journalists.
+ - A company works best when everybody does the job he is paid to do.
+ - You cannot play for Arsenal and give up, no matter what the score is.
+ - In England you have a good phrase. It is ’to bring the game into disrepute.
+ - The score is high and very brutal but does not reflect what we saw on the pitch. The first shot on goal was a goal. The second was an own goal. The third was straight after half-time. They defend like mad and they catch us on the break.
+ - I think generally the Japanese players have more intensity in practice but generally I do the same things.
+ - Sol has experience, pace and physical power, which nobody else has together.
+ - We have tried to get closer to them, but we never copied anybody, we always tried to play our football.
+ - It’s a strange atmosphere always over there, it is darker and less glamorous, and you don’t feel as high. It is a different kind of test – can you raise your level in a less exciting environment and perhaps still a very difficult one?
+ - If I give you a good wine, you will see how it tastes and after you ask where it comes from.
+ - You cannot say that you are happy when you don’t win.
+ - Work on your strong points because they are what made you.
+ - The best football players in the world still earn very little money compared to people who really earn money.
+ - Spare me the articles about how nice Shawcross is because that was a horrendous tackle. People say we don’t fancy the physical side of it, but this is the result. If you see a player getting injured like that, it’s not acceptable.
+ - Thierry Henry could take the ball in the middle of the park and score a goal that no one else in the world could score.
+ - I have only been here since 1996 but between 1966 and 1996 England had thirty years without foreign players and didn’t win any more competitions in that time.
+ - Of course, we also have the responsibility to win games and the difficulty in the job is to combine both.
+ - The background looks like a lot of red cards.
+ - Sometimes now, when I watch continental games on television, I’m a bit bored. I ask, ‘where is the intensity?’
+ - I would be much more annoyed if we hadn’t won the game. As a manager, you have to see the positives and I think Pires has a vaccine for the rest of his life.
+ - If you buy a man who is half dead, everybody may be happy off the field, but on the field you’ll have major problems.
+ - What makes him special? He has a mixture of physical talent and technical ability, as well as remarkable intelligence and above all a great passion for the game.
+ - Everyone plays the ball over the top and, at the moment, we only concede goals from crosses or balls over the top. I feel we will adapt to that.
+ - I am, of course, delighted but there was never any doubt about Sol staying.
+ - People who work make the world live better and to reward these people well is normal. Yet they are not the people who are the wealthiest.
+ - It is always a danger when you have a big game ahead, but there is only one way to prepare well for our Champions League game – and that is to do well tomorrow. Therefore, I feel there is a lot at stake for us tomorrow. It is a massive game for us.
+ - I know how important it is to have a helping hand.
+ - I think in the future we need to look at our youth department to provide more players for the first team think it is important for a club to have a good amount of players that have roots with the club and region.
+ - In some ways England is more liberal than France, but I also find it more intrusive. But when you go abroad you have to accept the ways of where you live. I have to respect that.
+ - The communist model does not work economically, we all realised that, but the capitalist model in the modern world also looks to be unsustainable.
+ - If I left I would feel a deserter – like the guy who walks away from the army once there is a war. I am highly committed to this club. I love what I do here and love the spirit of the team.
+ - I didn’t know the English were good at swimming. I have been in this country for 12 years and I haven’t seen a swimming pool.
+ - If I were going to war I would want to be alongside an Englishman not a Frenchman. The Frenchman would think too much.
+ - A manager is a guide. He takes a group of people and says, ‘With you I can make us a success; I can show you the way.’
+
+104 quotes

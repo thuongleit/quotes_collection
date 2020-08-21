@@ -1,0 +1,44 @@
+ - God releases more of His power and presence according to the measure of our hunger for Him.
+ - With the same intensity that the Father loves Jesus, He loves you.
+ - I don’t want to be the biggest or the best, I want to be faithful.
+ - Your capacity to receive is based on your hunger to pursue.
+ - God gives salvation to the needy, but gives the deep things of His heart to the hungry who refuse to live without them.
+ - I’m not looking for Bible verses to back up a lifestyle of passiveness. I’m looking for Bible verses and life experiences to teach me to live more radically for Christ.
+ - Being a person of prayer is the most important calling in one’s life.
+ - Understanding God’s great love for undeserving people such as us, gives us insight into His great majesty. As beauty is in the eyes of the beholder, so great love reveals the nature of the One who loves deeply.
+ - Humility is the ultimate standard of greatness in the Kingdom of God.
+ - Our work for God is to flow from loving God; thus, we work with Him instead of for Him.
+ - Our emotions are not transformed by trying harder, but by seeing more clearly.
+ - Worship is not a twenty minute period during a church service, but a lifestyle of relating to God in a particular way.
+ - Jesus is never bored in his relationship with you.
+ - God wants us to respond in wholehearted love because it is who He is and who He created us to be.
+ - Jesus wants us to love Him in a way that gives Him full leadership over our lives.
+ - If you are too busy for prayer, you are too busy for a relationship with God.
+ - Find your security, success, and peace in God. Then, and only then, can it never be taken from you.
+ - Radical Christianity is not going on a missions trip or a big conference. Radical Christianity is staying steady for decades.
+ - We love God with our mind by taking the time to fill our mind with the Word.
+ - Any who love Jesus will love others much more.
+ - The small prayers of weak and broken people move the heart of God.
+ - Grace does not cancel out our responsibility or accountability for the things God has given us to do.
+ - Don’t evaluate yourself, don’t evaluate others. Just keep going after it.
+ - Jesus called us to abide in Him. The foundation of this reality means to talk with Him.
+ - We offer our prayers in weakness but they ascend in power because of the blood of Jesus.
+ - God doesn’t love you more when you obey, you experience Him more!
+ - The power of God tenderizes and changes us, not spiritual disciplines. Spiritual disciplines only position us to receive.
+ - Demons don’t move because we complain. They move because we speak the name of Jesus.
+ - People will give themselves to prayer for numerous reasons, but at the core of it all is a God, raging with zealous desire.
+ - The Lord calls each one of His children, no matter what his occupation-lawyer, doctor, maintenance man, carpenter, accountant, athlete, musician, teacher, homeschooling mom, and so on-to have a real prayer life.
+ - It won’t matter who my friends were; it won’t matter my endorsements; what matters is my heart’s response to him.
+ - We will all be far better spouses, parents, and leaders as we take time to grow in prayer.
+ - The enemy works overtime to keep us in shame. He knows if he can keep us in shame, he can minimize our intimacy with God.
+ - There’s no Biblical definition of contemplative prayer.
+ - The essence of how God thinks and feels is wholehearted love.
+ - Radical isn’t about how high you jump in a worship service, its about how you walk when you come down.
+ - We will never have more affection or passion for God than we understand He has for us. We will never be more committed to God than our understanding of His commitment to us.
+ - One of the greatest hinderances of abiding in God is the lack of ability to say NO to people and opportunities.
+ - The Second Coming will probably happen within the lifetime of people living today.
+ - Smiling in Heaven isn’t required – it’s inevitable.
+ - Almost every Spirit filled believer is able to prophesy on an inspirational level.
+ - If the eternal King started in Bethlehem, so will anyone who follows Him.
+
+42 quotes

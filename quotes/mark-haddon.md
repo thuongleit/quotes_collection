@@ -1,0 +1,97 @@
+ - Reading is a conversation. All books talk. But a good book listens as well.
+ - Prime numbers are what is left when you have taken all the patterns away. I think prime numbers are like life. They are very logical but you could never work out the rules, even if you spent all your time thinking about them.
+ - Find the extraordinary inside the ordinary.
+ - Sometimes we get sad about things and we don’t like to tell other people that we are sad about them. We like to keep it a secret. Or sometimes, we are sad but we really don’t know why we are sad, so we say we aren’t sad but we really are.
+ - If you enjoy math and you write novels, it’s very rare that you’ll get a chance to put your math into a novel. I leapt at the chance.
+ - I find people confusing.
+ - I want my name to mean me.
+ - All the other children at my school are stupid. Except I’m not meant to call them stupid, even though this is what they are.
+ - Family, that slippery word, a star to every wandering bark, and everyone sailing under a different sky.
+ - I like dogs. You always know what a dog is thinking. It has four moods. Happy, sad, cross and concentrating. Also, dogs are faithful and they do not tell lies because they cannot talk.
+ - I thought Bill Bryson’s ‘A Short History of Nearly Everything’ was remarkable. Managing to be entertaining while still delivering all that hard science was a pretty good trick to pull off.
+ - My book has a very simple surface, but there are layers of irony and paradox all the way through it.
+ - The one thing you have to do if you write a book is put yourself in someone else’s shoes. The reader’s shoes. You’ve got to entertain them.
+ - I suffer depression only in the sense that I am a writer. We don’t have proper jobs to go to. We are on our own all day. Show me a writer who doesn’t get depressed: who has a completely stable mood. They’d be a garage mechanic or something.
+ - And this shows that sometimes people want to be stupid and they do not want to know the truth.
+ - And it occurred to him that there were two parts to being a better person. One part was thinking about other people. The other part was not giving a toss what other people thought.
+ - I do not like strangers because I do not like people I have never met before. They are hard to understand.
+ - I read very, very little fiction as a kid. All the books I can remember are junior science books.
+ - No one wants to know how clever you are. They don’t want an insight into your mind, thrilling as it might be. They want an insight into their own.
+ - Bore children, and they stop reading. There’s no room for self-indulgence or showing off or setting the scene.
+ - Every life is narrow. Our only escape is not to run away, but to learn to love the people we are and the world in which we find ourselves.
+ - I do not tell lies. Mother used to say that this was because I was a good person. But it is not because I am a good person. It is because I do not tell lie.
+ - You could ask for hugs if you were feeling sad or you’d hurt yourself, but when it happened spontaneously it made you feel warm inside.
+ - But in life you have to take lots of decisions and if you don’t take decisions you would never do anything because you would spend all your time choosing between things you could do. So it is good to have a reason why you hate some things and you like others.
+ - Being clever was when you looked at how things were and used the evidence to work out something new.
+ - But I don’t feel sad about it. Because Mother is dead. And because Mr. Shears isn’t around anymore. So I would be feeling sad about something that isn’t real and doesn’t exist. And that would be stupid.
+ - Most murders are committed by someone who is known to the victim. In fact, you are most likely to be murdered by a member of your own family on Christmas day.
+ - On the fifth day, which was a Sunday, it rained very hard. I like it when it rains hard. It sounds like white noise everywhere, which is like silence but not empty.
+ - And what he meant was that maths wasn’t like life because in life there are no straightforward answers in the end.
+ - Metaphors are lies.
+ - Lots of things are mysteries. But that doesn’t mean there isn’t an answer to them. It’s just that scientists haven’t found the answer yet.
+ - I think people believe in heaven because they don’t like the idea of dying, because they want to carry on living and they don’t like the idea that other people will move into their house and put their things into the rubbish.
+ - Mother used to say it meant Christopher was a nice name because it was a story about being kind and helpful, but I do not want my name to mean a story about being kind and helpful. I want my name to mean me.
+ - What I love about the theatre is that it’s always metaphorical. It’s like going back to being a kid again, and we’re all pretending in a room. Sometimes, when the pretending really works, I find it much, much more moving than something on film.
+ - Everyone has learning difficulties, because learning to speak French or understanding relativity is difficult.
+ - I think most writers feel like they’re on the outside looking in much of the time. All of us feel, to a certain extent, alienated from the stuff going on around us.
+ - A lot of roles for people with disabilities are quite patronising. It’s a real pity when they are just used to give dull PC kudos to a drama, or when they’re wheeled on in a tokenistic way without any real involvement in the plot.
+ - The secret of contentment lay in ignoring many things completely.
+ - I went to boarding school, and then I went to Oxford, and I know how easy it is for certain groups of people to become wholly insulated from ordinary life.
+ - As a teenager, I was always this strange mixture of kind of vice-captain of the rugby team and sensitive artist type the rest of the time. I was sent away to this public school in the middle of nowhere, and I think we managed to completely miss out on normal youth culture.
+ - Use your imagination, and you’ll see that even the most narrow, humdrum lives are infinite in scope if you examine them with enough care.
+ - I was born too late for steam trains and a lazy eye meant I’d never be an astronaut.
+ - The way of creating believable characters is not by conforming to a set of PC rules.
+ - I am atheist in a very religious mould. I’m always asking myself the big questions. Where did we come from? Is there a meaning to all of this? When I find myself in church, I edit the hymns as I sing them.
+ - Usually people look at you when they’re talking to you. I know that they’re working out what I’m thinking, but I can’t tell what they’re thinking. It is like being in a room with a one-way mirror in a spy film.
+ - And then I thought that I had to be like Sherlock Holmes and I had to detach my mind at will to a remarkable degree so that I did not notice how much it was hurting inside my head.
+ - At twenty life was like wrestling an octopus. Every moment mattered. At thirty it was a walk in the country. Most of the time your mind was somewhere else. By the time you got to seventy, it was probably like watching snooker on the telly.
+ - I better make the plot good. I wanted to make it grip people on the first page and have a big turning point in the middle, as there is, and construct the whole thing like a roller coaster ride.
+ - But I said that you could still want something that is very unlikely to happen.
+ - Jane Austen was writing about boring people with desperately limited lives. We forget this because we’ve seen too many of her books on screen.
+ - I like having my back pressed against a wall and being made to work harder so I don’t embarrass myself.
+ - How pleased we are to have our eyes opened but how easily we close them again.
+ - Siobhan said that when you are writing a book you have to include some descriptions of things. I said that I could take photographs and put them in the book. But she said the idea of a book was to describe things using words so that people could read them and make a picture in their own head.
+ - Then he asked if I didn’t like things changing. And I said I wouldn’t mind things changing if I became an astronaut, for example, which is one of the biggest changes you can imagine, apart from becoming a girl or dying.
+ - I have very fond memories of swimming in Walden Pond when we lived in Boston. You’d swim past a log and see all these turtles sunning themselves. Slightly disturbing if you thought about how many more were swimming around your toes, but also rather wonderful.
+ - Most adults, unlike most children, understand the difference between a book that will hold them spellbound for a rainy Sunday afternoon and a book that will put them in touch with a part of themselves they didn’t even know existed.
+ - I knew there was a story; once you find a dog with a fork through it, you know there’s a story there.
+ - Writing for children is bloody difficult; books for children are as complex as their adult counterparts, and they should therefore be accorded the same respect.
+ - I like poetry when I don’t quite understand why I like it. Poetry isn’t just a question of wrapping something up and giving it to someone else to unwrap. It just doesn’t work like that.
+ - For me, disability is a way of getting some extremity, some kind of very difficult situation, that throws an interesting light on people.
+ - I could invent another world. I’m not terribly keen on this one.
+ - Children simply don’t make the distinction; a book is either good or bad. And some of the books they think are good are very, very bad indeed.
+ - There was a time in my life when I was going in and out of houses that were extraordinarily different – from a working-class terrace in Northampton to the homes of friends who were really very wealthy. It was quite an odd position to be in, I realise looking back, and quite a nice one.
+ - Madness doesn’t happen to someone alone. Very few people have experiences that are theirs alone.
+ - It exasperated her sometimes. The way men could be so sure of themselves. They put words together like sheds or shelves and you could stand on them they were so solid. And those feelings which overwhelmed you in the small hours turned to smoke.
+ - You make a film you feel is as real as possible and hope people react as though it were real.
+ - When I was writing for children, I was writing genre fiction. It was like making a good chair. It needed four legs of the same length, it had to be the right height and it had to be comfortable.
+ - I think one of the things you have to learn if you’re going to create believable characters is never to make generalizations about groups of people.
+ - When I was 13 or 14, I started devouring novels; literature took quite a while to take me over, but it caught up just in time to save me from becoming a mathematician.
+ - Show me the artist anywhere who’s had an utterly stable mental life, and I’ll buy you hot dinners for the rest of your life.
+ - You love someone, you’ve got to let something go.
+ - Appalling things can happen to children. And even a happy childhood is filled with sadnesses.
+ - If one book’s done this well, you want to write another one that does just as well. There’s that horror of the second novel that doesn’t match up.
+ - The most difficult book I wrote was the fourth in a series of linked children’s books. It was like pulling teeth because the publisher wanted exactly the same but completely different. I’d much rather just do something completely different, even if there’s a risk of it going wrong.
+ - He really did not care whether he survived or not, so long as it rendered him unconscious and absolved him of responsibility.
+ - Jane Austen writes about these humdrum lives with such empathy that they seem endlessly fascinating.
+ - With English literature, if you do a bit of shonky spelling, no one dies, but if you’re half-way through a maths calculation and you stick in an extra zero, everything just crashes into the ravine.
+ - If kids like a picture book, they’re going to read it at least 50 times. Read anything that often, and even minor imperfections start to feel like gravel in the bed.
+ - I’ve come to realize that most good ideas are precisely the ones you can’t describe.
+ - And because there is something they can’t see people think it has to be special, because people always think there is something special about what they can’t see, like the dark side of the moon, or the other side of a black hole, or in the dark when they wake up at night and they’re scared.
+ - I am really interested in eccentric minds. It’s rather like being fascinated by how cars work. It’s really boring if your car works all the time. But as soon as something happens, you get the bonnet up. If someone has an abnormal or dysfunctional state of mind, you get the bonnet up.
+ - At 20, 25, 30, we begin to realise that the possibilities of escape are getting fewer. We have jobs, children, partners, debts. This is the part of us to which literary fiction speaks.
+ - Things can be funny when people are uneasy. It softens them up and stops them falling asleep on the sofa. I like those moments where people half-smile and half-wince.
+ - I’ve worked in television long enough to know that when you stop enjoying that type of thing you go home and do something else.
+ - I started writing books for children because I could illustrate them myself and because, in my innocence, I thought they’d be easier.
+ - I’ve written 16 children’s books and five unpublished novels. Some of the latter were breathtakingly bad.
+ - As a kid, I didn’t read a great deal of fiction, and I’ve forgotten most of what I did read.
+ - From a good book, I want to be taken to the very edge. I want a glimpse into that outer darkness.
+ - It wasn’t about believing this or that, it wasn’t even about good and evil and right and wrong, it was about finding the strength to bear the discomfort that came with being in the world.
+ - I think I’ve learnt that there is no character so strange that you haven’t shared their experience in some small way.
+ - Indeed, I am repeatedly astonished by the number of really good writers who understand human beings so well on paper but don’t know how to deal with them in real life.
+ - I think good books have to make a few people angry.
+ - Fiction that responds to recent world events is a hostage to fortune, because all momentous events look very different a year, two years, three years later.
+ - I don’t mean that literary fiction is better than genre fiction, On the contrary; novels can perform two functions and most perform only one.
+ - Payments to the disabled are getting slashed and people like me are getting a tax cut. Who could possibly think that is a good thing?
+
+95 quotes

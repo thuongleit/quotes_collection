@@ -1,0 +1,199 @@
+ - In God we trust; all others bring data.
+ - Quality is everyone’s responsibility.
+ - Improve quality, you automatically improve productivity.
+ - A bad system will beat a good person every time.
+ - If you can’t describe what you are doing as a process, you don’t know what you’re doing.
+ - Innovation comes from people who take joy in their work.
+ - Manage the cause, not the result.
+ - Quality is pride of workmanship.
+ - Quality comes not from inspection, but from improvement of the production process.
+ - There is no substitute for knowledge.
+ - A goal without a method is nonsense.
+ - Eighty-five percent of the reasons for failure are deficiencies in the systems and process rather than the employee. The role of management is to change the process rather than badgering individuals to do better.
+ - Uncontrolled variation is the enemy of quality.
+ - Without questions, there is no learning.
+ - Put a good person in a bad system and the bad system wins, no contest.
+ - We should work on our process, not the outcome of our processes.
+ - Understanding variation is the key to success in quality and business.
+ - We are here to learn, to make a difference and to have fun.
+ - Survival is optional. No one has to change.
+ - The ultimate purpose of collecting the data is to provide a basis for action or a recommendation.
+ - Each system is perfectly designed to give you exactly what you are getting today.
+ - Quality starts in the boardroom.
+ - Nobody should try to use data unless he has collected data.
+ - It is not necessary to change. Survival is not mandatory.
+ - Inspection with the aim of finding the bad ones and throwing them out is too late, ineffective, and costly. Quality comes not from inspection but from improvement of the process.
+ - When we cooperate, everybody wins.
+ - The biggest cost of poor quality is when your customer buys it from someone else because they didn’t like yours.
+ - Quality begins with the intent, which is fixed by management.
+ - Transformation is not automatic. It must be learned; it must be led.
+ - Management by results – like driving a car by looking in rear view mirror.
+ - A leader is a coach, not a judge.
+ - Nothing happens without personal transformation.
+ - To manage one must lead. To lead, one must understand the work that he and his people are responsible for.
+ - Defects are not free. Somebody makes them, and gets paid for making them.
+ - If you do not know how to ask the right question, you discover nothing.
+ - You cannot inspect quality into the product; it is already there.
+ - People are entitled to joy in work.
+ - Management is prediction.
+ - People are born with intrinsic motivation, self-esteem, dignity, curiosity to learn, joy in learning.
+ - Just because you can measure everything doesn’t mean that you should.
+ - Nobody goes to work to do a bad job.
+ - Rational behavior requires theory. Reactive behavior requires only reflex action.
+ - Information is not knowledge. Let’s not confuse the two.
+ - We are here to make another world.
+ - There must be consistency in direction.
+ - What we need to do is learn to work in the system, by which I mean that everybody, every team, every platform, every division, every component is there not for individual competitive profit or recognition, but for contribution to the system as a whole on a win-win basis.
+ - Everyone is a customer for somebody, or a supplier to somebody.
+ - Divide responsibility and nobody is responsible.
+ - The most important things cannot be measured.
+ - Learning is not compulsory; it’s voluntary. Improvement is not compulsory; it’s voluntary. But to survive, we must learn.
+ - Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them.
+ - 3% of the problems have figures, 97% of the problems do not.
+ - Improve constantly and forever the system of production and service, to improve quality and productivity, and thus constantly decrease costs.
+ - Monetary rewards are not a substitute for intrinsic motivation.
+ - Meeting specifications is not enough.
+ - The customer is the most important part of the production line.
+ - Stamping out fires is a lot of fun, but it is only putting things back the way they were.
+ - A leader knows who is outside of the system and needs special help.
+ - New product and new types of service are generated, not by asking the consumer, but by knowledge, imagination, innovation, risk, trial and error on the part of the producer, backed by enough capital to develop the product or service and to stay in business during the learn months of introduction.
+ - Does experience help? NO! Not if we are doing the wrong things.
+ - Without theory, there are no questions.
+ - Lack of knowledge – that is the problem.
+ - Sub-optimization is when everyone is for himself. Optimization is when everyone is working to help the company.
+ - You can only elevate individual performance by elevating that of the entire system.
+ - We must understand variation.
+ - Confusing common causes with special causes will only make things worse.
+ - You can expect what you inspect.
+ - Competition should not be for a share of the market-but to expand the market.
+ - To optimize the whole, we must sub-optimize the parts.
+ - You must have a supplier relationship of constant improvement.
+ - We cannot rely on mass inspection to improve quality, though there are times when 100 percent inspection is necessary. As Harold S. Dodge said many years ago, ‘You cannot inspect quality into a product.’ The quality is there or it isn’t by the time it’s inspected.
+ - The main difference between service and manufacturing is the service department doesn’t know that they have a product.
+ - Scrap doesn’t come for free, we pay someone to make it.
+ - Change the rule and you will get a new number.
+ - A leader’s job is to help his people.
+ - A system must be managed. It will not manage itself. Left to themselves in the Western world, components become selfish, competitive. We cannot afford the destructive effect of competition.
+ - It is wrong to suppose that if you can’t measure it, you can’t manage it – a costly myth.
+ - The only useful function of a statistician is to make predictions, and thus to provide a basis for action.
+ - Eliminate numerical quotas, including Management by Objectives.
+ - The result of long-term relationships is better and better quality, and lower and lower costs.
+ - The process is not just the sum of its parts.
+ - A system must have an aim. Without the aim, there is no system.
+ - Plants don’t close from poor workmanship, but from poor management.
+ - Many people in management are being paid to produce waste.
+ - Whenever there is fear, you will get wrong figures.
+ - If you destroy the people of a company, you do not have much left.
+ - We must satisfy our customers.
+ - You can not plan to make a discovery. You do not plan innovation.
+ - People need to know what their jobs are.
+ - All anyone asks for is a chance to work with pride.
+ - The worker is not the problem. The problem is at the top! Management!
+ - To copy is to invite disaster.
+ - There is no economy in having one operation produce a part and another separate the good ones from the bad ones.
+ - A man who knows not his limitations is of no use to anyone.
+ - Forces of Destruction: grades in school, merit system, incentive pay, business plans, quotas.
+ - I should estimate that in my experience most troubles and most possibilities for improvement add up to the proportions something like this: 94% belongs to the system responsibility of management 6% special.
+ - I am not reporting things about people. I am reporting things about practices.
+ - You should not ask questions without knowledge.
+ - Failure of management to plan for the future and to foresee problems has brought about waste of manpower, of materials, of the machine-time, of all which raise the manufacturer’s cost and price that the purchaser must pay.
+ - No one can measure the loss of business that may arise from a defective item that goes out to a customer.
+ - You have to manage a system. The system doesn’t manage itself.
+ - All models are wrong; some models are useful.
+ - Zero defects is a super highway going down the tube.
+ - Cease dependence on inspection to achieve quality. Eliminate the need for inspection on a mass basis by building quality into the product in the first place.
+ - A rational prediction has an explanation based on theory.
+ - A system is a network of interdependent components that work together to try to accomplish the aim of the system. A system must have an aim. Without the aim, there is no system.
+ - A leader must have knowledge. A leader must be able to teach.
+ - Let us ask our suppliers to come and help us to solve our problems.
+ - One need not be eminent in any part of profound knowledge in order to understand it and to apply it. The various segments of the system of profound knowledge cannot be separated. They interact with each other. For example knowledge about psychology is incomplete without knowledge of variation.
+ - Management’s job is to know which systems are stable and which are not.
+ - Retroactive management emphasizes the bottom line.
+ - Management of outcomes may not be any more than a skill. It does not require knowledge.
+ - The moral is that it is necssary to innovate, to predict the needs of the customers, and give him more. He that innovates and is lucky will take the market.
+ - The individual has been crushed by our style of management today.
+ - When asked what single event was most helpful in developing the Theory of Relativity, Albert Einstein replied, “Figuring out how to think about the problem”.
+ - Any manager can do well in an expanding market.
+ - We want best efforts guided by theory.
+ - When a worker has reached a stable state, further training will not help him.
+ - Innovation comes from the producer – not from the customer.
+ - It only takes a little innovation.
+ - It’s management’s job to know.
+ - It does not happen all at once. There is no instant pudding.
+ - Quality is made in the board room. A worker can deliver lower quality, but she cannot deliver quality better than the system allow.
+ - The most valuable “currency” of any organization is the initiative and creativity of its members. Every leader has the solemn moral responsibility to develop these to the maximum in all his people. This is the leader’s highest priority.
+ - Shrink, shrink variation, to reduce the loss.
+ - Judging people does not help them.
+ - The transformation will come from leadership.
+ - There is no knowledge without theory.
+ - Management’s job is to optimize the whole system.
+ - The greatest losses are unknown and unknowable.
+ - You do not install quality; you begin to work at it.
+ - To successfully respond to the myriad of changes that shake the world, transformation into a new style of management is required. The route to take is what I call profound knowledge, knowledge for leadership of transformation.
+ - The system that people work in and the interaction with people may account for 90 or 95 percent of performance.
+ - What makes a scientist great is the care that he takes in telling you what is wrong with his results, so that you will not misuse them.
+ - A manager of people needs to understand that all people are different. This is not ranking people. He needs to understand that the performance of anyone is governed largely by the system that he works in, the responsibility of management.
+ - Mere allocation of huge sums of money for quality will not bring quality.
+ - Hold everybody accountable? Ridiculous!
+ - Does the customer invent new product or service? The customer generates nothing. No customer asked for electric lights. There was gas and gas mantles, which gave good light.
+ - Managing by results only makes things worse.
+ - The aim should be to work on the method of management.
+ - If you wait for people to come to you, you’ll only get small problems. You must go and find them. The big problems are where people don’t realize they have one in the first place.
+ - The most basic problem is that performance appraisals often don’t accurately assess performance.
+ - Research shows that the climate of an organization influences an individuals contribution far more than the individual himself.
+ - Knowledge is theory. We should be thankful if action of management is based on theory. Knowledge has temporal spread. Information is not knowledge. The world is drowning in information but is slow in acquisition of knowledge. There is no substitute for knowledge.
+ - Don’t expect smart people to listen to you without proof.
+ - Long-term commitment to new learning and new philosophy is required of any management that seeks transformation. The timid and the fainthearted, and the people that expect quick results, are doomed to disappointment.
+ - You must not run your Organization as a functional hierarchy. You must understand it as a System.
+ - Experience by itself teaches nothing.
+ - A system must be managed. It will not manage itself.
+ - It would be a mistake to export western management to a friendly country.
+ - Knowledge needs to be a verb.
+ - Managers don’t like giving appraisals, and employees don’t like getting them. Perhaps they’re not liked because both parties suspect what the evidence has proved for decades: Traditional performance appraisals don’t work.
+ - He that would run his company on visible figures alone will in time have neither company nor figures.
+ - People care more for themselves when they contribute to the system.
+ - We should be guided by theory, not by numbers.
+ - The prevailing style of management must undergo transformation. A system can not understand itself. The transformation requires a view from outside.
+ - People work in the system. Management creates the system.
+ - It is important that an aim never be defined in terms of a specific activity or method. It must always relate to a better life for everyone.
+ - The principles and methods for improvement are the same for service as for manufacturing. The actual application differs, of course, from one product to another, and from one type of service to another.
+ - Hard work and best efforts will not by themselves dig us out of the pit.
+ - Any two people have different ideas of what is important.
+ - The job can’t be finished only improved to please the customer.
+ - It is not enough that top management commit themselves for life to quality and productivity. They must know what it is that they are committed to – that is, what they must do. These obligations cannot be delegated. Support is not enough; action is required.
+ - When people try to do what they can not do, they wish to give up.
+ - You do not find knowledge in a dictionary, only information.
+ - There is very little evidence that we give a hoot about profit.
+ - Anybody can achieve gains in quality by slowing down production. That is not what we are talking about.
+ - People learn in different ways: reading, listening, pictures, watching.
+ - You can not hear what you do not understand.
+ - No requirement of industry is so much neglected as operational definitions.
+ - You can not define being exactly on time.
+ - The aim of education should be to preserve and nurture the yearning for learning that a child is born with.
+ - I think that people here expect miracles. American management thinks that they can just copy from Japan-but they don’t know what to copy!
+ - Choice of aim is clearly a matter of clarification of values, especially on the choice between possible options.
+ - The most important figures for management of any organization are unknown and unknowable.
+ - A manager of people knows that in this stable state it is distracting to tell the worker about a mistake.
+ - The customer invents nothing. New products and new services come from the producer.
+ - Profit in business comes from repeat customers.
+ - Eighty percent of American managers cannot answer with any measure of confidence these seemingly simple questions: What is my job? What in it really counts? How well am I doing?
+ - Learn the basics of analytics and people will love you. If you don’t have time to learn, hire someone.
+ - A rule should suit the purpose.
+ - We know what we told him, but we don’t know what he heard.
+ - The emphasis should be on why we do a job.
+ - When a system is stable, telling the worker about mistakes is only tampering.
+ - People copy examples and then they wonder what is the trouble. They look at examples and without theory they learn nothing.
+ - It is a mistake to assume that if everybody does his job, it will be all right. The whole system may be in trouble.
+ - If someone can make a contribution to the company he feels important.
+ - The average American worker has fifty interruptions a day, of which seventy percent have nothing to do with work.
+ - You can not achieve an aim unless you have a method.
+ - A system can not understand itself.
+ - The aim proposed here for any organization is for everybody to gain – stockholders, employees, suppliers, customers, community, the environment – over the long term.
+ - We have to bring back the individual. Management has smothered the individual.
+ - We are being ruined by the best efforts of people who are doing the wrong thing.
+ - Management does not know what a system is.
+ - Management by results is confusing special causes with common causes.
+ - The problem is that most courses teach what is wrong.
+ - You can see from a flow diagram who depends on you and whom you can depend on. You can now take joy in your work.
+
+197 quotes

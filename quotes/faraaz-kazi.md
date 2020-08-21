@@ -1,0 +1,37 @@
+ - Eye contact is way more intimate than words will ever be.
+ - Walking alone is not difficult but when we have walked a mile worth a thousand years with someone then coming back alone is what is difficult.
+ - Some people are going to leave, but that’s not the end of your story. That’s the end of their part in your story.
+ - I wish there was a word more than ‘love’ itself to convey what I feel for you.
+ - No matter how bad your heart is broken, the world doesn’t stop for your grief.
+ - The most difficult aspect of moving on is accepting that the other person already did.
+ - Sometimes your eyes are not the only place the tears fall from.
+ - There is no home as comfortable as your father’s arms and no bed as soft as your mother’s lap.
+ - Remember, someone, somewhere in some corner of this somewhat big world, is out there crying if you’re unhappy and is happy if you are! And you know who that someone is!
+ - It’s love when someone can touch you without using their hands.
+ - Rahul had wondered how someone could love their beloved so much that their dedication to them became one of the wonders of the world.
+ - I inhale loneliness like it is the sweet smell of virgin earth conquered by fiery rain drops. Within me, I’m a thousand others.
+ - It was going to be a long, dark night but not quite as dark as it was in the abyss of his heart where there was nothing but hollowness, yet it felt heavy, almost as if someone still resided there.
+ - Love me, even if it’s a lie. Leave me yet never say goodbye.
+ - The growth of my love story had been gradual but my success had always existed and both coupled together formed a deadly combination that was detrimental to our love. I wanted people to love me. She wanted them to leave her alone.
+ - Whenever the cloud of ego threatens to engulf me, I remind myself of my roots. It helps keeping my feet on the ground.
+ - Love? he asked himself, giving no sense of recognition for that word in the dictionary of his mind. It was the only battle he had lost in life, the only thing that had been snatched away from him, before he could even claim it.
+ - But when nothing in your life happens in a positive frame, it is difficult to think positively and hope for the best.
+ - The tears of my eyes watered your heart but failed to evoke a response from the barren grounds of what beats in you. They will still come and I will welcome them because they contain you.
+ - I could take back those moments that snatched you away from me or maybe just wipe away those ten minutes when you came to me for the first time and I looked into your eyes to realise what love is.
+ - Never carry the baggage of your past relationships on the honeymoon of your future relationships.
+ - I wonder if I could take back every ‘I love you’ ever said to you, would I do it?
+ - It was not one folly that Shakespeare talked about. If Love truly is but a myriad of follies then I have committed them all, that can mean only one thing – I loved her truly, madly, deeply!
+ - Who would have listened to his tales of woe when his love was the flickering lamp over his own decaying tomb?
+ - Love, he told himself, was open to interpretation like any other abstract indulgence but followed the same principles everywhere, irrespective of everything else. One, either won or lost in love, there was no bridge in between, and he decided he had lost, lost to himself, if not to her.
+ - I eyed her like a thirsty traveler in the desert looks at a pail of water.
+ - One of the symptoms of having a broken-heart is the fact that even ghosts will give up on the hope of scaring you as you have already lived through your worst fear.
+ - His mind scolded him for his stupidity and urged him to forget her but his heart had no justifications for its stand. It remained unmoved, its solidarity unaffected, its arrogance still holding.
+ - Grief embraced him and welcomed him back, showering tears upon his arrival.
+ - It was like watching a movie being played on the blank screen of his mind; the only difference was that he did not get bored, no matter how many times he watched it.
+ - Not watching the path where his legs took him, he walked on because he knew he had to walk ahead, leaving his past behind.
+ - That night it did not rain as much in the sky as it did in his heart.
+ - Competition was as much as respecting your opponent’s work as introspecting on your own.
+ - Perhaps that is the real surprise of love; it exists, but one may not attribute causes and effects to it. The existence may appear to be a mere fallacy to the minds of some, and by the time they realise what hit them, they would already be down and dead.
+ - Our love is the reason romance was created.
+
+35 quotes

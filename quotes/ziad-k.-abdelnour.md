@@ -1,0 +1,54 @@
+ - Life is like photography. You need the negatives to develop.
+ - A negative mind will never give you a positive life.
+ - Life is like a camera. Focus on what’s important. Capture the good times. And if things don’t work out, just take another shot.
+ - Be strong enough to stand alone, smart enough to know when you need help, and brave enough to ask for it.
+ - Don’t promise when you’re happy, Don’t reply when you’re angry, and don’t decide when you’re sad.
+ - Be careful who you trust, the devil was once an angel.
+ - A truly rich man is one whose children run into his arms when his hands are empty.
+ - Maturity comes with experience, not age.
+ - Trust is earned, respect is given, and loyalty is demonstrated. Betrayal of any one of those is to lose all three.
+ - I’m strong because I know my weaknesses. I’m wise because I’ve been foolish. I laugh because I’ve known sadness.
+ - One of the hardest decisions you’ll ever face in life is choosing whether to walk away or try harder.
+ - Seek respect, not attention. It lasts longer.
+ - There’s a story behind every person. There’s a reason why they’re the way they are. Think about that before you judge anyone.
+ - Time decides who you meet in life, your heart decides who you want in your life, and your behavior decides who stays in your life.
+ - Life is like an elevator. On your way up, sometimes you have to stop and let some people off.
+ - Smart people think. Brave people talk. Great people act.
+ - Chase your dreams but always know the road that will lead you home again.
+ - Life is all about moments of impact and how they change our lives forever.
+ - Don’t turn around. Don’t look back. Keep moving forward. Keep pushing. The pot of gold is at the end of the rainbow, not the beginning.
+ - The odds will always favor the man with a plan.
+ - If someone is going out of his way to ignore you, he is not ignoring you, he is obsessed by you.
+ - There are two things you should never waste your time on: things that don’t matter and people that think you don’t matter.
+ - The real world doesn’t reward perfectionists. It rewards people who get things done.
+ - Sometimes you just need to distance yourself from people. If they care, they’ll notice. If they don’t, you know where you stand.
+ - May my haters live very long to see my continued success and make their lives miserable.
+ - I learned over the years never to correct a fool or he will hate you; correct a wise man, and he will appreciate you.
+ - Fake people talk about other people being fake. Real people worry about their business, and no one else’s.
+ - Until you are broken, you don’t know what you’re made of.
+ - When life gives you lemons, order the lobster tail.
+ - Excuses are useless. Results are priceless.
+ - Don’t wait for miracles. Your whole life is a miracle. Live it up and dare to leave an impact. There is no rehearsal.
+ - You can’t make people work harder. People have to want to work hard and make a difference. Purpose matters.
+ - Sometimes being too nice is dangerous, you have to show your mean side once in a while to avoid getting hurt.
+ - Listen to what people say when they are mad, that’s when the truth comes out.
+ - Success is not found in what you have achieved but rather in who you have become.
+ - Challenge conventional wisdom. There is almost always a better way.
+ - I believe the best gift you could ever give a woman is your time.
+ - It’s not rocket science. Hong Kong has 95% tax compliance, because it’s code is only 4 pages long with a 15% flat tax.
+ - Make your money on the buy, not the sell; this is true in any investment whether it’s real estate, business, or the stock market.
+ - Money is a tool that can either fix or damage your life. Use it wisely.
+ - We’re taught by repetition but great innovators need to be great at doing the different.
+ - Time is a currency you can only spend once.
+ - Nations with too many laws, endless regulations, just cannot grow or generate enough jobs. Wake up...
+ - Never erase your past. It shapes who you are today and will help you to be the person you’ll be tomorrow.
+ - People with higher ratios of positive to negative emotions are more likely to flourish in life.
+ - Successful entrepreneurs figure out when to drive their ideas forward and when to listen to constructive criticism.
+ - If everybody followed the rules, nothing would ever change. Without change there would be no progress.
+ - Only idiots get bored when we’ve all got handheld devices containing infinite knowledge at our fingertips.
+ - Age is just reality we create for ourselves.
+ - There’s a huge misconception that innovation is mostly about inventing or coming up with cool new things. More often than not, innovation is about figuring out what people really need or want but can’t have or afford.
+ - Earning an education is not the same as gaining a skill set.
+ - Never accept conventional wisdom when it comes to finance. If others keep failing, why do you want to follow them?
+
+52 quotes

@@ -1,0 +1,74 @@
+ - Why does tragedy exist? Because you are full of rage. Why are you full of rage? Because you are full of grief.
+ - The words we read and words we write never say exactly what we mean. The people we love are never just as we desire them. The two symbola never perfectly match. Eros is in between.
+ - One of the principle qualities of pain is that it demands an explanation.
+ - Sometimes I dream a sentence and write it down. It’s usually nonsense, but sometimes it seems a key to another world.
+ - Reality is a sound, you have to tune in to it not just keep yelling.
+ - Sometimes a journey makes itself necessary.
+ - Give me a world, you have taken the world I was.
+ - It is easier to tell a story of how people wound one another than of what binds them together.
+ - I’ve come to understand that the best one can hope for as a human is to have a relationship with that emptiness where God would be if God were available, but God isn’t.
+ - Words bounce. Words, if you let them, will do what they want to do and what they have to do.
+ - To be running breathlessly, but not yet arrived, is itself delightful, a suspended moment of living hope.
+ - Aristotle says that metaphor causes the mind to experience itself in the act of making a mistake.
+ - Desire is no light thing.
+ - Could you visit me in dreams? That would cheer me. Sweet to see friends in the night, however short the time.
+ - At least half of your mind is always thinking, I’ll be leaving; this won’t last. It’s a good Buddhist attitude. If I were a Buddhist, this would be a great help. As it is, I’m just sad.
+ - We participate in the creation of the world by decreating ourselves.
+ - Philosophers say man forms himself in dialogue.
+ - Here we go mother on the shipless ocean. Pity us, pity the ocean, here we go.
+ - Beauty spins and the mind moves. To catch beauty would be to understand how that impertinent stability in vertigo is possible. But no, delight need not reach so far. To be running breathlessly, but not yet arrived, is itself delightful, a suspended moment of living hope.
+ - Each night about this time he puts on sadness like a garment and goes on writing.
+ - Myths are stories about people who become too big for their lives temporarily, so that they crash into other lives or brush against gods. In crisis their souls are visible.
+ - Consider incompleteness as a verb.
+ - The self forms at the edge of desire, and a science of self arises in the effort to leave that self behind.
+ - When I desire you a part of me is gone...
+ - Desire doubled is love and love doubled is madness.
+ - To live past the end of your myth is a perilous thing.
+ - Love is a good place to situate our distrust of fake women.
+ - When an ecstatic is asked the question, What is it that love dares the self to do? she will answer: Love dares the self to leave itself behind, to enter into poverty.
+ - It takes practice to shave the skin off the light.
+ - Madness and witchery as well as bestiality are conditions commonly associated with the use of the female voice in public.
+ - Under the seams runs the pain.
+ - There is something about the way that Greek poets, say Aeschylus, use metaphor that really attracts me. I don’t think I can imitate it, but there’s a density to it that I think I’m always trying to push towards in English.
+ - Maybe I could have been good as a drawer if I had done it as much as I did writing, but it’s more scary to draw. It’s more revealing. You can’t disguise yourself in drawing.
+ - Simply do something else and return to it later to find the problem wasn’t a problem at all. Ruptures almost always lead to a stronger project.
+ - They were two superior eels at the bottom of the tank and they recognized each other like italics.
+ - The man has a theory. The woman has hipbones. Here comes Death.
+ - Caught between the tongue and the taste.
+ - Those nights lying alone are not discontinuous with this cold hectic dawn. It is who I am.
+ - I am a drop of gold he would say I am molten matter returned from the core of earth to tell you interior things-.
+ - A man moves through time. It means nothing except that, like a harpoon, once thrown he will arrive.
+ - All myth is an enriched pattern, a two-faced proposition, allowing its operator to say one thing and mean another, to lead a double life.
+ - Love dares the self to leave itself behind, to enter into poverty.
+ - You doubt God? Well more to the point I credit God with the good sense to doubt me. What is mortality after all but divine doubt flashing over us? For an instant God suspends assent and poof! we disappear.
+ - Time isn’t made of anything. It is an abstraction. Just a meaning that we impose upon motion.
+ - What is the fear inside language? No accident of the body can make it stop burning.
+ - All human desire is poised on an axis of paradox, absence and presence its poles, love and hate its motive energies.
+ - A refugee population is hungry for language and aware that anything can happen.
+ - He came after Homer and before Gertrude Stein, a difficult interval for a poet.
+ - You used to say. “Desire doubled is love and love doubled is madness.” Madness doubled is marriage I added when the caustic was cool, not intending to produce a golden rule.
+ - I do think I have an ability to record sensual and emotional facts and factoids, to construct a convincing surface of what life feels like, both physical life and emotional life.
+ - What would it be like to live in a library of melted books. With sentences streaming over the floor and all the punctuation settled to the bottom as a residue. It would be confusing. Unforgivable. A great adventure.
+ - I am kind of a curmudgeonly person, so I don’t gravitate to groups or traditions, which is probably just pretentious of me.
+ - We’re talking about the struggle to drag a thought over from the mush of the unconscious into some kind of grammar, syntax, human sense; every attempt means starting over with language. starting over with accuracy.
+ - Up against another human being one’s own procedures take on definition.
+ - Small, red, and upright he waited, gripping his new bookbag tight in one hand and touching a lucky penny inside his coat pocket with the other, while the first snows of winter floated down on his eyelashes and covered the branches around him and silenced all trace of the world.
+ - A page with a poem on it is less attractive than a page with a poem on it and some tea stains.
+ - Life pulls softly inside your bindings. The pod glows – dear stench.
+ - What makes life life and not a simple story? Jagged bits moving never still, all along the wall.
+ - Existence will not stop until it gets to beauty.
+ - There is no person without a world.
+ - Everything depends on liking the people and trusting the people. You have to assume that whatever they do will be as good as you want the thing to be and just go ahead with that.
+ - The beloved’s innocence brutalizes the lover. As the singing of a mad person behind you on the train enrages you, its beautiful animal-like teeth shining amid black planes of paint. As Helen enrages history. Senza uscita.
+ - I started to learn Greek when I was in high school, the last year of high school, by accident, because my teacher knew Greek and she offered to teach me on the lunch hour, so we did it in an informal way, and then I did it at university, and that was the main thing of my life.
+ - No one will ever make necessity not happen.
+ - I don’t know that we really think any thoughts; we think connections between thoughts. That’s where the mind moves, that’s what’s new, and the thoughts themselves have probably been there in my head or lots of other people’s heads for a long time.
+ - He was trying to fit this Herakles onto the one he knew.
+ - I don’t read reviews and I don’t know what to do with opinions, so I just lose them. They take up space, they become a process of manufacturing a persona, which I want to avoid.
+ - M: Is he smart I: She yes very smart sees right through me M: In my day we valued blindness rather more.
+ - When I began to be published, people got the idea that I should ‘teach writing,’ which I have no idea how to do and don’t really believe in.
+ - Blessed be they whose lives do not taste of evilbut if some god shakes your houseruin arrivesruin does not leaveit comes tolling over the generationsit comes rolling the black night salt up from the ocean floorand all your thrashed coasts groan.
+ - You can get used to eating breakfast with a man in a fedora. You can get used to anything, my mother was in the habit of saying.
+ - Lava bread makes you passionate.
+
+72 quotes

@@ -1,0 +1,23 @@
+ - The most important things in life happen over conversations while eating.
+ - Determine who you are and what your brand is, and what youre not. The rest of it is just a lot of noise.
+ - I love hospitality, and I love cooking. The kitchen is where I feel most at ease and where I feel most like myself.
+ - I don’t enjoy eating humble pie.
+ - When I step into the kitchen in the morning, I go for the scrambled eggs with pine nuts and minced lamb. When I finish at night, it is hard to resist the burger.
+ - I like old fashioned things. We have these old wine buckets at the restaurant and none of them match.
+ - My mother’s blueberry pie from scratch was amazing. I still make it today.
+ - Everyone could use instructions on every aspect of cooking: pantry, storage, refrigeration, cooking, what to buy. Everyone that I come into contact with could use help.
+ - It’s really an honor to be included in such an incredible lineup of chefs. The team Borgata has assembled is by far one of the best on the East Coast.
+ - Confit is not something that comes to mind for summer. Usually it means duck confit, made by cooking the legs and thighs in duck fat to preserve them for winter.
+ - I’ll transform anything as long as it’s edible.
+ - If you give a discount there’s a desperation there and I like to substitute desperation with service and real quality. And the desperation goes away.
+ - Everybody these days wants to be a star, including myself. Don’t get me wrong, I’m a chef but you want to market yourself and your projects.
+ - Days off are few and far between in the restaurant business. But on an hour off, I like to have a glass of wine with my wife.
+ - I’ve been working in boutique hotels my whole life.
+ - I’m very active. I’ve got two small daughters and four restaurants in three cities. I’m busy.
+ - I really don’t limit myself in any way. I just search for great flavors and marriages wherever they come from.
+ - The worst day is just that I did not enter the culinary world sooner. And the best day was seeing the reaction of my one year old daughter when she tasted her first crisp apple!
+ - A plate of food has to have balance. For example, a mild fish like skate mustnt be overwhelmed by the side dishes. They should have personality and color, but they also have to be subtle.
+ - I begin my day online and end my day online. I like to prepare myself for the next day and have a sense of closure before I go to bed.
+ - Chestnuts are my favorite ingredient to use in the fall, especially for the holidays. I always find that they are meaty, hearty and have a mysterious refinement when cooked or roasted over sea salt.
+
+21 quotes

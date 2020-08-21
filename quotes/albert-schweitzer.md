@@ -1,0 +1,249 @@
+ - Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+ - If you love something so much let it go. If it comes back it was meant to be; if it doesn’t it never was.
+ - The purpose of human life is to serve, and to show compassion and the will to help others.
+ - Happiness is the only thing that multiplies when you share it.
+ - The thinking person must oppose all cruel customs, no matter how deeply rooted in tradition and surrounded by a halo. When we have a choice, we must avoid bringing torment and injury into the life of another.
+ - Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.
+ - In everyone’s life, at some time, our inner fire goes out. It is then burst into flame by an encounter with another human being. We should all be thankful for those people who rekindle the inner spirit.
+ - Example is not the main thing in influencing others. It is the only thing.
+ - The only escape from the miseries of life are music and cats.
+ - The greatest thing is to give thanks for everything. He who has learned this knows what it means to live. He has penetrated the whole mystery of life: giving thanks for everything.
+ - Example is leadership.
+ - There can be no Kingdom of God in the world without the Kingdom of God in our hearts.
+ - Every patient carries her or his own doctor inside.
+ - At times our own light goes out and is rekindled by a spark from another person. Each of us has cause to think with deep gratitude of those who have lighted the flame within us.
+ - The path of awakening is not about becoming who you are. Rather it is about unbecoming who you are not.
+ - Until he extends his circle of compassion to include all living things, man will not himself find peace.
+ - The only thing of importance, when we depart, will be the traces of love we have left behind.
+ - Life becomes harder for us when we live for others, but it also becomes richer and happier.
+ - A good example has twice the value of good advice.
+ - Pain is a more terrible lord of mankind than even death itself.
+ - Do something wonderful, people may imitate it.
+ - The doctor of the future will be oneself.
+ - To me, good health is more than just exercise and diet. Its really a point of view and a mental attitude you have about yourself.
+ - I don’t know what your destiny will be, but one thing I know: the only ones among you who will be really happy are those who will have sought and found how to serve.
+ - At that point in life where your talent meets the needs of the world, that is where God wants you to be.
+ - If you own something you cannot give away, then you don’t own it, it owns you.
+ - Happiness is nothing more than good health and a bad memory.
+ - Sometimes our light goes out, but is blown again into instant flame by an encounter with another human being.
+ - The tragedy of life is what dies inside a man while he lives.
+ - If you study life deeply, its profundity will seize you suddenly with dizziness.
+ - Ethics is nothing else than reverence for life.
+ - Wherever you turn, you can find someone who needs you. Even if it is a little thing, do something for which there is no pay but the privilege of doing it. Remember, you don’t live in a world all of your own.
+ - One person can and does make a difference.
+ - Animal protection is education to the humanity.
+ - No ray of sunlight is ever lost, but the green which it awakes into existence needs time to sprout, and it is not always granted to the sower to see the harvest. All work that is worth anything is done in faith.
+ - There is no higher religion than human service.
+ - Do not lose heart, even if you must wait a bit before finding the right thing. Be prepared for disappointment also, but do not abandon the quest.
+ - There slowly grew up in me an unshakable conviction that we have no right to inflict suffering and death on another living creature, unless there is some unavoidable necessity for it.
+ - Think occasionally of the suffering of which you spare yourself the sight.
+ - Train yourself never to put off the word or action for the expression of gratitude.
+ - When people have light in themselves, it will shine out from them. Then we get to know each other as we walk together in the darkness, without needing to pass our hands over each other’s faces, or to intrude into each other’s hearts.
+ - If you truly desire happiness, seek and learn how to serve.
+ - Be faithful to your love and you mill be recompensed beyond measure.
+ - Any religion or philosophy which is not based on a respect for life is not a true religion or philosophy.
+ - It’s supposed to be a secret, but I’ll tell you anyway. We doctors do nothing. We only help. And encourage the doctor within.
+ - Do something for somebody everyday for which you do not get paid.
+ - Not only is example the best way to teach, it is the only way.
+ - Knowing all truth is less than doing a little bit of good.
+ - No man need fear death, he need fear only that he may die without having known his greatest power: the power of his free will to give his life for others.
+ - The first step in the evolution of ethics is a sense of solidarity with other human beings.
+ - Don’t let your hearts grow numb. Stay alert. It is your soul which matters.
+ - Man must cease attributing his problems to his environment, and learn again to exercise his will – his personal responsibility in the realm of faith and morals.
+ - Seek always to do some good, somewhere. Every man has to seek in his own way to realize his true worth. You must give some time to your fellow man. For remember, you don’t live in a world all your own. Your brothers are here too.
+ - To educate yourself for the feeling of gratitude means to take nothing for granted...
+ - It is not enough to merely exist. It’s not enough to say, ‘I’m earning enough to live and support my family. I do my work well. I’m a good parent.’ That’s all very well. But you must do something more.
+ - You must learn to understand the secret of gratitude. It is more than just so-called virtue. It is revealed to you as a mysterious law of existence. In obedience to it we have to fulfill our destiny.
+ - Man has lost the capacity to foresee and to forestall. He will end by destroying the earth.
+ - Let your life be your argument.
+ - Therapy is the boat across the river, but most don’t want to get off. Don’t blame, forgive, All healing is self-healing.
+ - Even if it is a little thing, do something for those who have need of help.
+ - Help me to fling my life like a flaming firebrand into the gathering darkness of the world.
+ - Your soul suffers if you live superficially.
+ - The true worth of a man is not to be found in man himself, but in the colours and textures that come alive in others.
+ - It is through the idealism of youth that man catches sight of truth, and in that idealism he possesses a wealth which he must never exchange for anything else.
+ - To work for the common good is the greatest creed.
+ - Don’t blame, forgive, All healing is self-healing.
+ - Only those who respect the personality of others can be of real use to them.
+ - We must all die. But that I can save him from days of torture, that is what I feel as my great and ever new privilege. Pain is a more terrible lord of mankind than even death itself.
+ - The the question whether I am a pessimist or an optimist, I answer that my knowledge is pessimistic, but my willing and hope are optimistic.
+ - My life is full of meaning to me. The life around me must be full of significance to itself. If I am to expect others to respect my life, then I must respect the other life I see.
+ - Good is that which promotes life, evil is that which destroys life.
+ - Only through love can we obtain communion with God.
+ - For those who sincerely seek the truth should not fear the outcome.
+ - Man’s ethics must not end with man, but should extend to the universe. He must regain the consciousness of the great Chain of Life from which he cannot be separated.
+ - We should all be thankful for those people who rekindle the inner spirit.
+ - The quiet conscience is an invention of the devil.
+ - Aim for service and success will follow!
+ - Humanitarianism consists in never sacrificing a human being to a purpose.
+ - Man is a clever animal who behaves like an imbecile.
+ - World-view is a product of life-view, not vice versa.
+ - Reverence for life is the highest court of appeal.
+ - The ethic of Reverence for Life is the ethic of Love widened into universality.
+ - We all owe to others much of the gentleness and wisdom that we have made our own; and we may well ask ourselves what will others owe to us.
+ - The fellowship of those who bear the mark of pain: who are the members of this Fellowship? Those who have learnt by experience what physical pain and bodily anguish mean, belong together all the world over; they are united by a secret bond.
+ - The Bhagavad-Gita has a profound influence on the spirit of mankind by its devotion to God which is manifested by actions.
+ - Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
+ - I always think that we live, spiritually, By what others have given us in the significant hours of our life. These significant hours do not announce themselves as coming, but arrive unexpected.
+ - You don’t live in a world all alone. Your brothers are here too.
+ - The gratitude ascending from man to God is the supreme transaction between heaven and earth.
+ - Whoever is spared personal pain must feel himself called to help in diminishing the pain of others. We must all carry our share of the misery which lies upon the world.
+ - Love is the only thing that increases twofold every time it is shared.
+ - A man is truly ethical only when he obeys the compulsion to help all life which he is able to assist, and shrinks from injuring anything that lives.
+ - By having a reverence for life, we enter into a spiritual relation with the world By practicing reverence for life we become good, deep, and alive.
+ - I am life that wants to live, in the midst of life that wants to live.
+ - Renunciation of thinking is a declaration of spiritual bankruptcy.
+ - I look back upon my youth and realize how so many people gave me help, understanding, courage – very important things to me – and they never knew it. They entered into my life and became powers within me.
+ - Set a great example. Someone may imitate it.
+ - It’s not enough merely to exist. Every man has to seek in his own way to make his own self more noble and to relize his own true worth.
+ - The disastrous feature of our civilization is that it is far more developed materially than spiritually. Its balance is disturbed.
+ - By ethical conduct toward all creatures, we enter into a spiritual relationship with the universe.
+ - I must forgive without noise or fuss.
+ - The highest knowledge is to know that we are surrounded by mystery.
+ - It doesn’t matter if an animal can reason. It matters only that it is capable of suffering and that is why I consider it my neighbor.
+ - There is so much coldness because we do not dare to be as cordial as we are.
+ - Jesus as a concrete historical personality remains a stranger to our time, but His spirit, which lies hidden in His words, is known in simplicity, and its influence is direct.
+ - Joy, sorrow, tears, lamentation, laughter – to all these music gives voice.
+ - Search and see if there is not some place where you may invest your humanity.
+ - Every kind of service necessary to the public good becomes honorable by being necessary.
+ - Ethics, too, are nothing but reverence for life. This is what gives me the fundamental principle of morality, namely, that good consists in maintaining, promoting, and enhancing life, and that destroying, injuring, and limiting life are evil.
+ - It is a man’s sympathy with all creatures that first makes him truly a man.
+ - Anyone who proposes to do good must not expect people to roll stones out of his way, but must accept his lot calmly, even if they roll a few stones upon it.
+ - You ask me for a motto. Here it is: SERVICE.
+ - The most difficult thing I have ever had to do is follow the guidance I prayed for.
+ - A man is ethical only when life, as such, is sacred to him, that of plants and animals as that of his fellow men, and when he devotes himself helpfully to all life that is in need of help.
+ - Ethics is in its unqualified form extended responsibility to everything that has life.
+ - Think with great gratitude of those who have lighted the flame within us.
+ - Man can no longer live for himself alone. We must realize that all life is valuable and that we are united to all life. From this knowledge comes our spiritual relationship with the universe.
+ - Don’t stop to ask whether the animal or plant you meet deserves your sympathy, or how much it feels, or even whether it can feel at all: respect it and consider all life sacred.
+ - Reincarnation contains a most comforting explanation of reality by means of which Indian thought surmounts difficulties which baffle the thinkers of Europe.
+ - A man does not have to be an angel in order to be saint.
+ - One truth stands firm. All that happens in world history rests on something spiritual. If the spiritual is strong, it creates world history. If it is weak, it suffers world history.
+ - Let me give you a definition of ethics: It is good to maintain and further life it is bad to damage and destroy life.
+ - The only way out of today’s misery is for people to become worthy of each other’s trust.
+ - Ethics is the activity of man directed to secure the inner perfection of his own personality.
+ - Truth has not special time of its own. Its hour is now – always and, indeed then most truly, when it seems unsuitable to actual circumstances.
+ - We ought all to make an effort to act on our first thoughts and let our unspoken gratitude find expression. Then there will be more sunshine in the world, and more power to work for what is good.
+ - Thought is the strongest thing we have.
+ - A man who possesses a veneration of life will not simply say his prayers. He will throw himself into the battle to preserve life, if for no other reason than that he himself is an extension of life around him.
+ - What has been presented as Christianity during these nineteen centuries is only a beginning, full of mistakes, not full blown Christianity springing from the spirit of Jesus.
+ - The great enemy of morality is indifference.
+ - In the hopes of reaching the moon men fail to see the flowers that blossom at their feet.
+ - We are all so much together, but we are all dying of loneliness.
+ - Man can hardly even recognize the devils of his own creation.
+ - At 20 everyone has the face that God gave them, at 40 the face that life gave them, and at 60 the face they earned.
+ - One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+ - Hear our humble prayer, O God. Make us, ourselves, to be true friends to the animals.
+ - Do not let Sunday be taken from you. If your soul has no Sunday, it becomes an orphan.
+ - Bach is thus a terminal point. Nothing comes from him; everything merely leads to him.
+ - Just as white light consists of colored rays, so reverence for life contains all the components of ethics: love, kindliness, sympathy, empathy, peacefulness and power to forgive.
+ - Within every patient there resides a doctor, and we as physicians are at our best when we we put our patients in touch with the doctor inside themselves.
+ - The African is my brother but he is my younger brother by several centuries.
+ - It is not always granted to the sower to see the harvest.
+ - Because I have confidence in the power of truth, and of the spirit, I have confidence in the future of mankind.
+ - In case my life should end with the cannibals, I hope they will write on my tombstone, ‘We have eaten Dr. Schweitzer. He was good to the end.’
+ - Those who thank God much are the truly wealthy. So our inner happiness depends not on what we experience but on the degree of our gratitude to God, whatever the experience.
+ - In the same way as the tree bears the same fruit year after year, but each time new fruit, all lastingly valuable ideas in thinking must always be reborn.
+ - We are compelled by the commandment of love contained in our hearts and thought, and proclaimed by Jesus, to give rein to our natural sympathy for animals. We are also compelled to help them and spare them suffering.
+ - From naive simplicity we arrive at more profound simplicity.
+ - To the truly ethical man, all of life is sacred, including forms of life that from the human point of view may seem lower than ours.
+ - Compassion, in which all ethics must take root, can only attain its full breadth and depth if it embraces all living creatures and does not limit itself to mankind.
+ - Cold completely introspective logic places a philosopher on the road to the abstract. Out of this empty, artificial act of thinking there can result, of course, nothing which bears on the relation of man to himself, and to the universe.
+ - Profound love demands a deep conception and out of this develops reverence for the mystery of life. It brings us close to all beings, to the poorest and smallest as well as all others.
+ - Jesus means something to our world because a mighty spiritual force streams forth from him and flows through our being also. This fact can neither be shaken nor confirmed by any historical discovery. It is the solid foundation of Christianity.
+ - As we acquire knowledge, things do not become more comprehensible, but more mysterious.
+ - In resigning ourselves to our fate without a struggle, we are guilty of inhumanity.
+ - The deeper we look into nature, the more we recognize that it is full of life, and the more profoundly we know that all life is a secret and that we are united with all life that is in nature.
+ - The awareness that we are all human beings together has become lost in war and through politics.
+ - Our age is bent on trying to make the barren tree of skepticism fruitful by tying the fruits of truth on its branches.
+ - If a man loses his reverence for any part of life, he will lose his reverence for all of life.
+ - The Christ of Theology is not alive for us today. He is wrapped in the grave cloths of dogma.
+ - Let us rejoice in the truth, wherever we find its lamp burning.
+ - My life carries its own meaning in itself.
+ - Just as the wave cannot exist for itself, but is ever a part of the heaving surface of the ocean, so must I never live my life for itself, but always in the experience which is going on around me.
+ - All work that is worth anything is done in faith.
+ - Anyone who has accustomed himself to regard the life of any living creature as worthless is in danger of arriving also at the idea of worthless human lives.
+ - Constant Kindness can accomplish much.
+ - Grow into your ideals so that life cannot rob you of them.
+ - The result of the voyage does not depend on the speed of the ship, but on whether or not it keeps a true course.
+ - The harvested fields bathed in the autumn mist speak of God and his goodness far more vividly than any human lips.
+ - Not one of us knows what effect his life produces, and what he gives to others; that is hidden from us and must remain so, though we are often allowed to see some little fraction of it, so that we may not lose courage.
+ - Any profound view of the world is mysticism. It has, of course, to deal with life and the world, both of which are nonrational entities.
+ - Thought is the strongest thing we have. Work done by true and profound thought – that is a real force.
+ - As soon as man does not take his existence for granted, but beholds it as something unfathomably mysterious, thought begins.
+ - The future of civilisation depends on our overcoming the meaninglessness and hopelessness that characterizes the thoughts of men today.
+ - The highest proof of the spirit is love. Love the eternal thing which can already on earth possess as it really is.
+ - Every person I have known who has been truly happy has learned how to serve others.
+ - All the kindness which a man puts out into the world works on the heart and thoughts of mankind.
+ - The great secret of success is to go through life as a man who never gets used to failing.
+ - O heavenly Father, protect and bless all things that have breath: guard them from all evil and let them sleep in peace.
+ - I have always held firmly to the thought that each one of us can do a little to bring some portion of misery to an end.
+ - Each act of unfaithfulness toward our inner being is a blot on our souls. If we continue to be unfaithful, our souls are eventually torn apart and we slowly bleed to death.
+ - A heavy guilt rests upon us for what the whites of all nations have done to the colored peoples. When we do good to them, it is not benevolence – it is atonement.
+ - Reverence for life brings us into a spiritual relation with the world which is independent of all knowledge of the universe.
+ - By respect for life we become religious in a way that is elementary, profound and alive.
+ - Most men are scantily nourished on a modicum of happiness and a number of empty thoughts which life lays on their plates. They are kept in the road of life through stern necessity by elemental duties which they cannot avoid.
+ - An idea is, in the end, always stronger than circumstances.
+ - That’s my private ant. You’re liable to break its legs.
+ - The friend of nature is the man who feels himself inwardly united with everything that lives in nature, who shares in the fate of all creatures, helps them when he can in their pain and need, and as far as possible avoids injuring or taking life.
+ - A thinking man feels compelled to approach all life with the same reverence he has for his own.
+ - Day by day we should weigh what we have granted to the spirit of the world against what we have denied to the spirit of Jesus, in thought and especially in deed.
+ - The only ones who will find real happiness are those who find a way to serve.
+ - It is only through love that we can attain to communion with God. All living knowledge of God rests upon this foundation: that we experience him in our lives as Will-to-love.
+ - We all know how important love is, yet how often is it really emoted or exhibited? What so many sick people in this world suffer from-loneliness, boredom and fear-can’t be cured with a pill.
+ - When we observe contemporary society one thing strikes us. We debate but make no progress. Why? Because as peoples we do not yet trust each other.
+ - Ethics are complete, profound and alive only when addressed to all living beings. Only then are we in spiritual connection with the world. Any philosophy not representing this, not based on the indefinite totality of life, is bound to disappear.
+ - Nature compels us to recognize the fact of mutual dependence, each life necessarily helping the other lives who are linked to it. In the very fibers of our being, we bear within ourselves the fact of the solidarity of life.
+ - We are gripped by God’s will of love, and must help carry out that will in this world, in small things as in great things, in saving as in pardoning. To be glad instruments of God’s love in this imperfect world is the service to which we are called.
+ - I am certain and have always stressed that the destination of mankind is to become more and more humane. The ideal of humanity has to be revived.
+ - Affirmation of the world, which means affirmation of the will-to-live that manifests itself around me, is only possible if I devote myself to other life.
+ - Very little of the great cruelty shown by men can really be attributed to cruel instinct. Most of it comes from thoughtlessness or inherited habit. Extract from ‘Memories of childhood and youth.’
+ - Wherever a man turns he can find someone who needs him.
+ - He who does not reflect his life back to God in gratitude does not know himself.
+ - Only an ethical movement can rescue us from barbarism, and the ethical comes into existence only in individuals.
+ - The destiny of man is to be more and more human.
+ - I can do no other than be reverent before everything that is called life. I can do no other than to have compassion for all that is called life. That is the beginning and the foundation of all ethics.
+ - Only when an ideal of peace is born in the minds of the peoples will the institutions set up to maintain this peace effectively fulfill the function expected of them.
+ - Living truth is that alone which has its origins in thinking. Just as a tree bears year after year the same fruit which is each year new, so must all permanently valuable ideas be continually born again in thought.
+ - Impart as much as you can of your spiritual being to those who are on the road with you, and accept as something precious what comes back to you from them.
+ - Sincerity is the foundation of the spiritual life.
+ - I too had thoughts once of being an intellectual, but I found it too difficult.
+ - Faith which refuses to face indisputable facts is but little faith. Truth is always gain, however hard it is to accommodate ourselves to it. To linger in any kind of untruth proves to be a departure from the straight way of faith.
+ - The interior joy we feel when we have done a good deed is the nourishment the soul requires.
+ - The gratitude that we encounter helps us believe in the goodness of the world, and strengthens us thereby to do what’s good.
+ - No one may shut his eyes to think the pain, which is therefore not visible to him, is non-existent.
+ - Reverence for life affords me my fundamental principle of morality.
+ - All people are endowed with the faculty of compassion, and for this reason can develop the humanitarian spirit.
+ - The great fault of all ethics hitherto has been that they believed themselves to have to deal only with the relations of man to man. In reality, however, the question is what is his attitude to the world and all life that comes within his reach.
+ - I wanted to be a doctor that I might be able to work without having to talk because for years I had been giving myself out in words.
+ - In modern European thought a tragedy is occurring in that the original bonds uniting the affirmative attitude towards the world with ethics are, by a slow but irresistible process, loosening and finally parting. Out of my life and Thought.
+ - It is the fate of every truth to be an object of ridicule when it is first acclaimed.
+ - The spirit of the age is filled with the disdain for thinking.
+ - Does my behavior in respect of love affect nothing? That is because there is not enough love in me.
+ - Where principles and heart stand in conflict with each other, let us make the law of the spirit free from the law of principles.
+ - Ideals are thoughts. So long as they exist merely as thoughts, the power in them remains ineffective.
+ - There is within each of us a modulation, an inner exaltation, which lifts us above the buffetings with which events assail us. Likewise, it lifts us above dependence upon the gifts of events for our joy.
+ - Those who experiment on animals should never be able to quiet their own conscience by telling themselves that these cruelties have a worthy aim.
+ - A man can do only what he can do. But if he does that each day he can sleep at night and do it again the next day.
+ - The greatest living person in the world is some individual who at this very moment has gone in love to help another.
+ - Our degeneration, when it is traced back to its origin in our view of the world really consists in the fact that true optimism has vanished unperceived from our midst.
+ - Mysticism occurs whenever a human being sees the separation between the natural and the supernatural, between the temporal and the eternal, as overcome.
+ - We are united with all life that is in nature. Man can no longer live his life for himself alone.
+ - Preservation of life is the only true joy.
+ - Everything deep is also simple and can be reproduced simply as long as its reference to the whole truth is maintained. But what matters is not what is witty but what is true.
+ - The stronger the reverence for natural life, the stronger grows also that for spiritual life.
+ - Serious illness doesn’t bother me for long because I am too inhospitable a host.
+ - The city of truth cannot be built on the swampy ground of skepticism.
+ - We need a boundless ethics which will include animals also.
+ - Who shall enumerate the many ways in which that costly piece of fixed capital, a human being, may be employed! More of him is wanted everywhere! Hunt, then, for some situation in which your humanity may be used.
+ - The man who has become a thinking being feels a compulsion to give every will-to-live the same reverence for life that he gives to his own. He experiences that other life in his own.
+ - It seemed to me a matter of course that we should all take our share of the burden of pain which lies upon the world.
+ - For us the great men are not those who solved the problems, but those whodiscovered them.
+ - A man is ethical only when life, as such, is sacred to him.
+ - We cannot possibly let ourselves get frozen into regarding everyone we do not know as an absolute stranger.
+ - The last fact which knowledge can discover is that the world is a manifestation, and in every way a puzzling manifestation, of the universal will to live.
+ - We cannot abdicate our conscience to an organization, nor to a government.
+ - Every start on an untrodden path is a venture which only in unusual circumstances looks sensible and likely to succeed.
+ - Not less strong than the will to truth must be the will to sincerity. Only an age, which can show the courage of sincerity, can possess truth, which works as a spiritual force within it.
+
+247 quotes

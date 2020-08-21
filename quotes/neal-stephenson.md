@@ -1,0 +1,85 @@
+ - Software development, like professional sports, has a way of making thirty-year-old men feel decrepit.
+ - To condense fact from the vapor of nuance.
+ - Well, all information looks like noise until you break the code.
+ - Unix is not so much an operating system as an oral history.
+ - I use emacs, which might be thought of as a thermonuclear word processor.
+ - When you are wrestling for possession of a sword, the man with the handle always wins.
+ - Boredom is a mask frustration wears.
+ - I don’t even want you to nod, that’s how much you annoy me. Just freeze and shut up.
+ - It was, of course, nothing more than sexism, the especially virulent type espoused by male techies who sincerely believe that they are too smart to be sexists.
+ - What’s hard, in hacking as in fiction, is not writing, it’s deciding what to write.
+ - Emacs is written in Lisp, which is the only computer language that is beautiful.
+ - I think visual literacy and media literacy is not without value, but I think plain old-fashioned text literacy and mathematical literacy are much more powerful and flexible ways to organize your mind.
+ - Interesting things happen along borders – transitions – not in the middle where everything is the same.
+ - The story is everything, so it always begins with a story. Research is a kind of scaffolding built underneath the story as I go along. My enjoyment level varies, but in general, I’m writing about topics I find interesting, so I can’t gripe too much.
+ - The sight of the bare katana inspires everyone to a practically Nipponese level of politeness.
+ - Most Kabbalists were theorists who were interested only in pure meditation. But there were so-called ‘practical Kabbalists’ who tried to apply the power of the Kabbalah in everyday life.
+ - Nothing is more important than that you see and love the beauty that is right in front of you, or else you will have no defense against the ugliness that will hem you in and come at you in so many ways.
+ - How could your cover be blown in Canada? Why even bother going dark there? How could you tell?
+ - So, you’re worried that a pink dragon will fly over the concent and fart nerve gas on us?
+ - Humans needed water or they would die, but dirty water killed as surely as thirst. You had to boil it before you drank it. This culture around tea was a way of tiptoeing along the knife edge between those two ways of dying.
+ - Clearly Mr. Drkh has had a long career of being the weirdest person in any given room, but he’s about to go down in flames.
+ - They knew many things but had no idea why. And strangely this made them more, rather than less, certain that they were right.
+ - One of the problems, hanging out with me, is that I can turn any topic into a toxic horror story. I’ve lost two girlfriends and a job by reading an ingredients label out loud, with annotations, at the wrong time.
+ - Constable Moore had reached the age when men can subject their bodies to the worst irritations – whisky, cigars, woolen clothes, bagpipes – without feeling a thing or, at least, without letting on.
+ - Arguing with anonymous strangers on the Internet is a sucker’s game because they almost always turn out to be – or to be indistinguishable from – self-righteous sixteen-year-olds possessing infinite amounts of free time.
+ - Gold is the corpse of value...
+ - Wired people should know something about wires.
+ - Jack the sound barrier. Bring the noise.
+ - She’s not afraid. She’s wearing a dentata.
+ - Two tires fly. Two Wail. A bamboo grove, all chopped down From it, warring songs.
+ - She looked at me like I was crazy. Most of my lovers do, and that’s partly why they love me, and partly why they leave.
+ - The difference between stupid and intelligent people – and this is true whether or not they are well-educated – is that intelligent people can handle subtlety.
+ - Ask a Soviet engineer to design a pair of shoes and he’ll come up with something that looks like the boxes that the shoes came in; ask him to make something that will massacre Germans, and he turns into Thomas “Fscking” Edison.
+ - I just assume I’m not invisible. I assume I’m wearing fluorescent clothes, and there’s a million-dollar bounty going to the first driver who manages to hit me. And I ride on that assumption.
+ - The full cosmos consists of the physical stuff and consciousness. Take away consciousness and it’s only dust; add consciousness and you get things, ideas, and time.
+ - It is exciting to discover electrons and figure out the equations that govern their movement; it is boring to use those principles to design electric can openers. From here on out, it’s all can openers.
+ - We see everything from the narrator’s point of view, so exposition about the world is limited to what impinges directly on him and the story he’s telling. Considering how old the world is, we learn very little about its history, which I think is a good thing.
+ - Middle class prosperity is lapidary; the flow of cash rounds and smooths a person like water does riverbed stones.
+ - This is one of the two great labyrinths into which human minds are drawn: the question of free will versus predestination.
+ - I don’t like sewing machines. I don’t understand how a needle with a thread going through the tip of it can interlock the thread by jamming itself into a little goddamn spool. It’s contrary to nature and it irritates me.
+ - Jad said, “The leakage was forcing choices, the making of which in no way improved matters.” Okay. So we were, in effect, locked in a room with a madman sorcerer. That clarified things a little.
+ - I am on an expense account that would blow your mind.
+ - Hiro watches the large, radioactive, spear-throwing killer drug lord ride his motorcycle into Chinatown. Which is the same as riding it into China, as far as chasing him down is concerned.
+ - In the room where I work, I have a chalkboard, and as I’m going along, I write the made-up words on it. A few feet from that chalkboard is a copy of the full 20-volume Oxford English Dictionary, to which I refer frequently as a source of ideas and word roots.
+ - The best way to know someone is to have a conversation with them.
+ - This made him a grad student, and grad students existed not to learn things but to relieve the tenured faculty members of tiresome burdens such as educating people and doing research.
+ - In trying to understand the Linux phenomenon, then, we have to look not at a single innovator but to a sort of bizarre Trinity : Linus Torvalds, Richard Stallman, and Bill Gates. Take away any of these three and Linux would not exist.
+ - The science fiction approach doesn’t mean it’s always about the future; it’s an awareness that this is different.
+ - Supposing that originally there was nothing but one creator, how could ordinary binary sexual relations come into being?
+ - Whenever serious and competent people need to get things done in the real world, all considerations of tradition and protocol fly out the window.
+ - Crappy old OSes have value in the basically negative sense that changing to new ones makes us wish we’d never been born.
+ - If the Coastal Republic had believed in the existence of virtue, it could at least have aspired to hypocrisy.
+ - Most countries are static, all they need to do is keep having babies. But America’s like this big old clanking smoking machine that just lumbers across the landscape scooping up and eating everything in sight.
+ - Talent was not rare; the ability to survive having it was.
+ - It is easy to look at these waves, accomplishing so little and to think that no matter what efforts we put forth in our lives, all we’re really doing is rearranging the sand grains in a beach that in essence never changes.
+ - This is exactly how the World Wide Web works: the HTML files are the pithy description on the paper tape, and your Web browser is Ronald Reagan.
+ - All people have religions. It’s like we have religion receptors built into our brain cells, or something, and we’ll latch onto anything that’ll fill that niche for us.
+ - Any property that’s open to common use gets destroyed. Because everyone has incentive to use it to the max, but no one has incentive to maintain it.
+ - The difference between ignorant and educated people is that the latter know more facts. But that has nothing to do with whether they are stupid or intelligent.
+ - Southern California doesn’t know whether to bustle or just strangle itself on the spot.
+ - It is commonly the case with technologies that you can get the best insight about how they work by watching them fail.
+ - One of the most frightening things about your true nerd, for may people, is not that he’s socially inept – because everybody’s been there – but rather his complete lack of embarrassment about it.
+ - And it happened all the time that the compromise between two perfectly rational alternatives was something that made no sense at all.
+ - That’s funny because if anyone actually did prove the existence of God we’d just tell him ‘nice proof, Fraa Bly’ and start believing in God.
+ - I’m strictly a one-project-at-a-time kind of guy. If I came up with a compelling idea for a different book while working on a project, I’d probably abandon the first project and go with the new idea.
+ - If you sincerely believed in God, how could you form one thought, speak one sentence, without mentioning Him?
+ - Once a person has all the things they need to live, everything else is entertainment.
+ - Most of the brain’s work is done while the brain’s owner is ostensibly thinking about something else, so sometimes you have to deliberately find something else to think and talk about.
+ - That we occasionally violate our own stated moral code does not imply that we are insincere in espousing that code.
+ - Lawrence immediately saw that it was a trick question. You would have to be some kind of idiot to make the facile assumption that the current would add or subtract 5 miles per hour to or from the speed of the boat.
+ - Men who believe that they are accomplishing something by speaking speak in a different way from men who believe that speaking is a waste of time.
+ - I think that this vein is close to being mined out already, but I’ll say that my knowledge of and talent for linguistics are quite limited and I’m not aware of being a hell of a lot more interested in that topic than I am in others.
+ - A few dud universes can really clutter up your basement.
+ - Of persons I will say this: it is difficult to tell when they are running aright but easy to see when something has gone awry.
+ - Leibniz is at the disadvantage of not having seen it. Or perhaps we should count this as an advantage, for anyone who sees it is dumbfounded by the brilliance of the geometry, and it is difficult to criticize a man’s work when you are down on your knees shielding your eyes.
+ - The imperative to develop new technologies and implement them on a heroic scale no longer seems like the childish preoccupation of a few nerds with slide rulers – It’s the only way for the human race to escape from its current predicaments – Too bad we’ve forgotten how to do it.
+ - As convenient as it is for information to come to us, libraries do have a valuable side effect: they force all of the smart people to come together in one place where they can interact with one another.
+ - Technically, of course, he was right. Socially, he was annoying us.
+ - They went inside. The young ones shuffled to a stop as their ironic sensibilities, which served them in lieu of souls, were jammed by a signal of overwhelming power.
+ - A lot of secular, modern people claim to be disillusioned whenever they learn that any smart person is religious. That’s applicable to Newton as it is to any other religious smart person.
+ - Can’t you see that everyone is buying station wagons?
+ - It is the fate of operating systems to become free.
+ - I feel that I am entitled to trample all other considerations into the dirt in my pursuit of a satisfying pun.
+
+83 quotes

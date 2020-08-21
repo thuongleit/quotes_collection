@@ -1,0 +1,27 @@
+ - The heart of God loves a persevering worshipper who, though overwhelmed by many troubles, is overwhelmed even more by the beauty of God.
+ - Christian worship must contain both the cross and the crown. Sing of majesty, and sing of mercy.
+ - God first seeks devotion to Him in the hidden place–worship when no one else is watching.
+ - In some of the best worship songs we bring our praises to God – yet at the same time also end up preaching to ourselves.
+ - And on that day when my strength is failing; the end draws near and my time has come. Still my soul will sing Your praise unending ten thousand years and then forevermore.
+ - May I never loose the Wonder, Oh the Wonder of Your Mercy! May I sing Your Hallelujah, Hallelujah, Amen!
+ - The revelation of God is the fuel for the fire of our worship.
+ - Worship songs can’t just be rooted in culture – they won’t be deep enough. They have to be rooted in scripture.
+ - We are to live in eager expectation of our heavenly inheritance.
+ - We can always find a reason to praise. Situations change for better and for worse, but God’s worth never changes.
+ - Singing is easy. The proof is always in the living.
+ - Information may inform the mind, but revelation sets a heart on fire.
+ - One of the most encouraging things is to see that so many of these young musicians and worship leaders are really concerned with doing a good job representing the truth of Jesus in their songs, and not just concerned with creative and musical progression.
+ - I love the intensity of the Psalms. No-one ever sounds bored about God or about life in the Psalms.
+ - Praise is a contradiction of pride. Pride says ‘looks at me,’ but praise longs for people to see Jesus.
+ - For when our hearts were far away, Your love went further still, yes Your love goes further still!
+ - As we gaze upon the wonders of creations, we look up towards the heights of a God who is merciful in His ways and magnificent in His deeds. The life of worship always points us upwards.
+ - Most songs come from being attentive. Attentive to life, attentive to scripture, attentive to your heart. Pay attention!
+ - One thing it makes me realize is just how similar we all are, around the globe. The details may be different, but every human heart is touched by themes like hope, comfort and mercy.
+ - I thought a lot about how the way we perceive Jesus affects the way we live, and how expectantly we face our daily lives. If we have a huge and uncompromising view of Him, it’ll lead to adventurous and exciting lives of faith.
+ - The church has been under-fathered and over-mothered.
+ - Anthony Skinner has a fire in his heart to worship God, and to encourage and equip others to do the same.
+ - The sense of being alone is a huge issue for so many people in this world. As a worshipper of Jesus, there’s a very real sense that we are always seen, held and known.
+ - In heaven we will sing free of all the shame, sickness and sorrow that we encounter in the here and now.
+ - As we begin to face up to the holiness of God, our lives resound with that very same anthem, here and now upon the earth.
+
+25 quotes

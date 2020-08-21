@@ -1,0 +1,33 @@
+ - A goal without a plan is just a wish.
+ - Outsourcing and globalization of manufacturing allows companies to reduce costs, benefits consumers with lower cost goods and services, causes economic expansion that reduces unemployment, and increases productivity and job creation.
+ - Lower taxes, less government spending on domestic programs and fewer regulations mean a better economy for everybody.
+ - Optimism. It’s not just a mind-set, it is behavior.
+ - The welfare state is an assault on families.
+ - People-to-people charity is more efficient, less costly, more human and compassionate, and more likely to inspire change and self-sufficiency in the beneficiary.
+ - My dad was a Marine. He was one of the Montford Point Marines. Those are the equivalent of the Tuskegee Airmen for Marines. He’s a tough, tough guy.
+ - Studies show that children of divorced parents can have outcomes as positive as those coming from intact homes, provided the father remains financially supportive and active in his children’s lives.
+ - Raised by an irresponsible mother during the Great Depression in the Jim Crow south, my father was on his own from the age of 13.
+ - This battle for ‘common-sense’ gun control laws pits emotion and passion against logic and reason. All too often in such a contest, logic loses. So, expect more meaningless, if not harmful, ‘gun control’ legislation. Good news – if you’re a crook.
+ - A woman who demands further gun control legislation is like a chicken who roots for Colonel Sanders.
+ - If anybody had a reason to become a delinquent, to become a criminal, to be angry at the man, to be angry at the white man, to be angry at America, it’s my dad, but he did not feel that way at all.
+ - The No. 1 cause of preventable death for young black men is not auto accidents or accidental drowning, but homicide.
+ - According to the Social Security Administration, in 1945, 41.9 workers supported each individual retiree, while today only 3.3 workers support each retiree. This system cannot continue.
+ - Conservatives consider liberals well-intentioned, but misguided. Liberals consider conservatives not only wrong, but really, really bad people.
+ - Individuals can spend their money more wisely, efficiently and more humanely than can government.
+ - People value and spend their money more wisely when they acquire it by their own efforts – also known as work.
+ - The formula for achieving middle-class success is simple: Finish high school; don’t have a child before the age of 20; and get married before having the child.
+ - Whatever happened to Warren Buffett, the world’s their-richest man? Guilt, a feeling of being blessed by luck, forgotten lessons – who knows? In any case, Buffett now believe that government should redistribute the wealth earned by others to those who did not earn it.
+ - Rent-control laws disproportionately benefit the non-poor because the elite pull strings, work the system and are better connected than the non-poor.
+ - Welfare distorts behavior, makes one less personally responsible and reduces the role of private charity. This principle applies to corporate welfare.
+ - My mom and my dad were married 56 years, and the fact that I reconciled with my dad I think made their marriage a little bit better as well.
+ - In the last 1,000 years, the Arabs have translated as many books as Spain translates in just one year.
+ - Nobody ever worked as hard as my father. My father averaged maybe four hours of sleep at night, and when you’re a kid, you don’t realize that.
+ - Only in Washington does a decrease in the proposed increase equal a spending cut.
+ - Raising a child is an on-the-job kind of thing. There arent a whole lot of manuals for that.
+ - The war on drugs is wrong, both tactically and morally. It assumes that people are too stupid, too reckless, and too irresponsible to decide whether and under what conditions to consume drugs. The war on drugs is morally bankrupt.
+ - Doing what you want to do is easy. Doing what you have to do is hard.
+ - To bring a child into the world that you cannot feed, clothe, house, and educate is the moral equivalent, in my opinion, of a drive-by shooting.
+ - Because Fox News is allegedly biased in favor of conservatives, critics whine like children whose lunch money got snatched. Conservatives have been pummeled for decades. Now that Fox News and conservative talk radio give people alternatives, critics squeal as if being sodomized.
+ - Most people work for the private sector, which cannot exist without profit.
+
+31 quotes

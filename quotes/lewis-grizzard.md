@@ -1,0 +1,32 @@
+ - The game of life is a lot like football. You have to tackle your problems, block your fears, and score your points when you get the opportunity.
+ - There’s no such thing as being too Southern.
+ - In the south there’s a difference between ‘Naked’ and ‘Nekkid.’ ‘Naked’ means you don’t have any clothes on. ‘Nekkid’ means you don’t have any clothes on and you’re up to somethin’.
+ - Life is a sexually transmitted terminal disease.
+ - If I Ever Get Back to Georgia, I’m Gonna Nail My Feet to the Ground.
+ - Spring time is the land awakening.
+ - I’d much rather sit next to a smoker in a restaurant than a nose-blower.
+ - I know lots of people who are educated far beyond their intelligence.
+ - Life is like a dogsled race. If you ain’t the lead dog, the scenery never changes.
+ - It’s difficult to think anything but pleasant thoughts while eating a homegrown tomato.
+ - The idiot who invented instant grits also thought of frozen fried chicken, and they ought to lock him up before he tries to freeze-dry collards.
+ - Baptists never make love standing up. They’re afraid someone might see them and think they’re dancing.
+ - I finally figured it out, I finally figured out how to find some peace and happiness. I sure would hate for the man upstairs to take me now. But at least I did figure it out.
+ - Let’s all start walking more and driving less.
+ - You call to a dog and a dog will break its neck to get to you. Dogs just want to please. Call to a cat and its attitude is, ‘What’s in it for me?’
+ - The only way that I could figure they could improve upon Coca-Cola, one of life’s most delightful elixirs, which studies prove will heal the sick and occasionally raise the dead, is to put bourbon in it.
+ - On a New York subway you get fined for spitting, but you can throw up for nothing.
+ - Money doesn’t grow on trees, and if it did, someone else would own the orchard.
+ - God bless Merle Haggard. He did all the things that Johnny Cash was supposed to have done.
+ - They tore out my heart and stomped that sucker flat.
+ - Yankees don’t understand that the Southern way of talking is a language of nuance. What we can do in the South is we can take a word and change it just a little bit and make it mean something altogether different.
+ - If soccer was an American soft drink, it would be Diet Pepsi.
+ - Today’s sensitive male has learned to share in open frank discussions about relationships like, “Where the hell did you get a crazy idea like that? You been reading Redbook again?”
+ - Instead of getting married again, I’m going to find a woman I don’t like and give her a house.
+ - Mama had an appreciation of the language. She taught me a love of words, of how they should be used and how they can fill a creative soul with a passion and lead to a life’s work.
+ - There is something wrong when you wait in line thirty minutes to get a hamburger that was cooked for ninety seconds an hour ago.
+ - It’s better to have died a small child than to be a politician who gets caught in a scandal during a slow news month.
+ - I get letters from people who say, ‘What have you got against women?’ What could I possibly have against women? I’ve married three of them.
+ - Elvis is dead and I don’t feel good for myself.
+ - I came from a big family. As a matter of fact, I never got to sleep alone until I was married.
+
+30 quotes

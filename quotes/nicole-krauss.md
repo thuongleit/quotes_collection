@@ -1,0 +1,106 @@
+ - Better to try and fail than not to try at all.
+ - Once upon a time there was a boy who loved a girl, and her laughter was a question he wanted to spend his whole life answering.
+ - What is literature, really? Boiled down to a single sentence, I’d say it’s this: an endless conversation about what it means to be human. And to read literature is to engage in that conversation.
+ - When will you learn that there isn’t a word for everything?
+ - The accolades, just like the scrapes and bruises, fade in the end, and all you’re left with is your ambition.
+ - We move through the day like two hands of a clock: sometimes we overlap for a moment, then come apart again, carrying on alone. Everyday exactly the same: the tea, the burnt toast, the crumbs, the silence.
+ - I used to think that if I had a choice between writing well and living well, I would choose the former. But now I think that’s sheer lunacy. Writing weighs so much less, in the great cosmic equation, than living.
+ - At night the sky is pure astronomy.
+ - It’s one of those unforgettable moments that happen as a child, when you discover that all along the world has been betraying you.
+ - Then he almost but didn’t say the two sentence he’d been meaning to say for years: part of me is made of glass, and also, I love you.
+ - When the word ‘nostalgia’ was coined in the 18th century, it was used to describe a pathology – not so much a sense of lost time, but a severe homesickness.
+ - All the times I have suddenly realized that my parents are dead, even now, it still surprises me, to exist in the world while that which made me has ceased to exist.
+ - Because you can get free of everything except the space where things have been.
+ - I like to think the world wasn’t ready for me, but maybe the truth is that I wasn’t ready for the world. I’ve always arrived too late for my life.
+ - Because of the illusion. You fall in love, it’s intoxicating, and for a little while, you actually feel like you’ve become one with the other person, merged souls and so on. You think you’ll never be lonely again.
+ - Even among the angels, there is the sadness of division.
+ - At the end, all that’s left of you are your possessions. Perhaps that’s why I’ve never been able to throw anything away. Perhaps that’s why I hoarded the world: with the hope that when I died, the sum total of my things would suggest a life larger than the one I lived.
+ - You can’t imagine how hard I am on myself. Nothing pummels me like my own doubts, the feeling of how far I still have to go.
+ - I scowled at the world. And the world scowled back. We were locked in a stare of mutual disgust.
+ - No, what I felt was the torment of waiting, stuck between the end of one sentence and the beginning of the next which might or might not bring a hail storm, plane crash, poetic justice, or a miraculous reversal.
+ - To hike out alone in the desert; to sleep on the valley floor on a night with no moon, in the pitch black, just listening to the boom of silence: you can’t imagine what that’s like.
+ - We search for patterns, you see, only to find where the patterns break. And it’s there, in that fissure, that we pitch our tents and wait.
+ - If the book is a mystery to its author as she’s writing, inevitably it’s going to be a mystery to the reader as he or she reads it.
+ - I want to say somewhere: I’ve tried to be forgiving. And yet. There were times in my life, whole years, when anger got the better of me. Ugliness turned me inside out. There was a certain satisfaction in bitterness. I courted it. It was standing outside, and I invited it in.
+ - Sometimes I thought about nothing and sometimes I thought about my life. At least I made a living. What kind of living? A living. It wasn’t easy. I found out how little is unbearable.
+ - When you’re younger, it’s all theoretical. It’s all potential. As you get older, it becomes actual, and your life gets filled with unexpected complexity; some of it asked for, and some of it not. It becomes richer, I find.
+ - I know there is a moral to this story, but I don’t know what it is.
+ - Sometimes I get the feeling that we’re just a bunch of habits. The gestures we repeat over and over, they’re just our need to be recognized. Without them, we’d be unidentifiable. We have to reinvent ourselves every minute.
+ - All I want is not to die on a day when I went unseen.
+ - No, I don’t harbor any mystical ideas about writing, Your Honor, it’s work like any other kind of craft; the power of literature, I’ve always thought, lies in how willful the act of making it is.
+ - When at last I came upon the right book, the feeling was violent: it blew open a hole in me that made life more dangerous because I couldn’t control what came through it.
+ - Life in general in my experience gets deeper and deeper, more and more profound, more and more complex, the older one gets.
+ - How was it possible to wake up every day and be recognizable to another when so often one was barely recognizable to oneself?
+ - Alone in my room, wrapped in a blanket, I whimpered and talked aloud to myself, recalling the lost glory of my youth when I considered myself, and was considered by others, a bright and capable person. It seemed that was all gone now.
+ - It is impossible to distrust one’s writing without awakening a deeper distrust in oneself.
+ - I read like an animal. I read under the covers, I read lying in the grass, I read at the dinner table. While other people were talking to me, I read.
+ - I think of novels as houses. You live in them over the course of a long period, both as a reader and as a writer.
+ - The truth is the thing I invented so I could live.
+ - The more freedom I allow myself as a writer to wander, become lost and go into uncertain territory – and I am always trying to go to the more awkward place, the more difficult place – the more frightening it is, because I have no plan.
+ - Part of me is made of glass, and also, I love you.
+ - He died alone because he was too embarrassed to phone anyone.
+ - Later – when things happened that they could never have imagined – she wrote him a letter that said: When will you learn that there isn’t a word for everything.
+ - The truth is that she told me she couldn’t love me. When she said goodbye, she was saying goodbye forever. And yet. I made myself forget. I don’t know why. I keep asking myself. But I did.
+ - Perhaps that is what it means to be a father-to teach your child to live without you.
+ - And if the man who once upon a time had been a boy who promised he’d never fall in love with another girl as long as he lived kept his promise, it wasn’t because he was stubborn or even loyal. He couldn’t help it.
+ - If it weren’t for her, there would never have been an empty space, or the need to fill it.
+ - There are times when the kindness of strangers only makes things worse because one realizes how badly one is in need of kindness and that the only source is a stranger.
+ - One is always changing. I don’t want to write the same book and I couldn’t, because I’m a different person.
+ - That’s what I do. Watch movies and read. Sometimes I even pretend to write, but I’m not fooling anyone. Oh, and I go to the mailbox.
+ - The oldest emotion in the world may be that of being moved; but to describe it-just to name it-must have been like trying to catch something invisible.
+ - There are moments when a kind of clarity comes over you, and suddenly you can see through walls to another dimension that you’d forgotten or chosen to ignore in order to continue living with the various illusions that make life, particularily life with other people, possible.
+ - After she left everything fell apart. No Jew was safe. There were rumors of unfathomable things, and because we couldn’t fathom them we failed to believe them, until we had no choice and it was too late. p 8.
+ - Wittgenstein once wrote that when the eye sees something beautiful, the hand wants to draw it. I wish I could draw you.
+ - Bruno, my old faithful. I haven’t sufficiently described him. Is it enough to say he is indescribable? No. Better to try and fail than not to try at all.
+ - Loneliness: there is no organ that can take it all.
+ - I have always written about characters who fall somewhere in the spectrum between solitary and totally alienated.
+ - There’s no match for the silence of GOD.
+ - Empty teacups gathered around her and dictionary pages fell at her feet.
+ - Every year, the memories I have of my father become more faint, unclear, and distant. once they were vivid and true, then they became like photographs, and now they are more like photographs of photographs.
+ - So many words get lost. They leave the mouthand lose their courage, wandering aimlessly until they are swept into the gutter like dead leaves. On rainy days you can hear their chorus rushing past.
+ - I smiled back, the importance of manners, my mother always said, is inversely related to how inclined one is to use them, or, in other words, sometimes politeness is all that stands between oneself and madness.
+ - The price we paid for the volumes of ourselves that we suffocated in the dark.
+ - My first novel, ‘Man Walks Into a Room,’ is about a man who’s lost his memory and has to start a second life. On one level, it’s about how we create a coherent sense of self.
+ - There was no one to call me to bed, no one to demand that the rhythms of my life operate in a duet.
+ - I wished to punish her for her intolerable stoicism, which made it impossible for me to ever be truly needed by her in the most profound ways a person can need another, a need that often goes by the name of love.
+ - I was never a man of great ambition I cried too easily I didn’t have a head for science Words often failed me While others prayed I only moved my lips.
+ - Holding hands, for example, is a way to remember how it feels to say nothing together.
+ - Sometimes no length of string is long enough to say the thing that needs to be said. In such cases all the string can do, in whatever its form, is conduct a person’s silence.
+ - She struggled with her sadness, but tried to conceal it, to divide it into smaller and smaller parts and scatter these in places she thought no one would find them.
+ - I always wrote little things when I was younger. My first opus was a book of poems put down in a spiral notebook at five or six, handsomely accompanied by crayon illustrations.
+ - After all who doesn’t wish to make a spectacle of their loneliness.
+ - I try to make a point of being seen. Sometimes when I’m out, I’ll buy a juice even when I’m not thirsty. If the store is crowded I’ll even go so far as dropping change all over the floor, nickels and dimes skidding in every direction. All I want is not to die on a day I went unseen.
+ - At first Babel longed for the use of just two words: Yes and No. But he knew that just to utter a single word would be to destroy the delicate fluency of silence.
+ - He learned to live with the truth. Not to accept it, but to live with it.
+ - There are so many ways to be alive, but only one way to be dead.
+ - When I got older I decided I wanted to be a real writer. I tried to write about real things. I wanted to describe the world, because to live in an undescribed world was too lonely.
+ - I’m very interested in structure, how multiple stories are assembled in different ways; that is what memory does as well.
+ - I have realised just how important it is to readers to feel that fictional stories are based on reality.
+ - Sometimes I forget that the world is not on the same schedule as I. That everything is not dying, or that if it is dying it will return to life, what with a little sun and the usual encouragement.
+ - I’ve reached the age where bruises are formed from failures within rather than accidents without.
+ - In life we sit at the table and refuse to eat, and in death we are eternally hungry.
+ - The malpractice for advice-giving is like five times as much as a craniotomy.
+ - She was gone, and all that was left was the space where you’d grown around her, like a tree that grows around a fence.
+ - In one’s youth, one has tremendous access to one’s feelings. And as one gets older, some of those feelings kind of drift away. But so much more happens to you. There’s more at stake in life.
+ - The unique thing that literature provides is to be able to step so fully into another situation and condition.
+ - I opened my mouth, but nothing came out. It took seven languages to make me; it would be nice if I could have spoken just one.
+ - I take almost no notes when I write. I have one notebook – this old green leather notebook that my dad gave me a decade ago.
+ - The moment had passed, the door between the lives we could have led and the lives we led had shut in our faces.
+ - When we went into the ocean, I watched his body as he dove into the waves, and it gave me a feeling in my stomach that wasn’t an ache but something different.
+ - To me, this is the singular privilege of reading literature: we are allowed to step into another’s life.
+ - I have a very strong sense of architecture in my novels. But at first it’s sometimes like building a doorknob before you have a door, and a door before you have a room.
+ - What interests me very much as a writer is the ability for writing to have our lives to be occupied so vividly by others. I think that’s what we long for as writers.
+ - I am always coming up with architectural metaphors when I think about writing. But I think one of the things that draw us to literature is that it gives us this very attractive illusion that there is meaning in the world – things connect.
+ - It’s strange what the heart can do when the mind is giving the directions.
+ - To walk into a modern-day bookstore is a little bit like studying a single photograph out of the infinite number of photographs that cold be taken of the world: It offers the reader a frame.
+ - Part of the work of writing a novel is to uncover the symmetries or connections that make it whole, which might not reveal itself at first.
+ - And so he did the hardest thing he’d ever done in his life: he picked up his hat and walked away.
+ - I do realize that the reader needs some form of resolution. Sometimes I think of it almost like writing a musical score where things have to harmonize and certain lines have to come to a close.
+ - There were many things they simply didn’t talk about: between them, silence was not so much a form of evasion as a way for solitary people to exist in a family.
+ - Only now that my son was gone did I realize how much I’d been living for him. When I woke up in the morning it was because he existed, and when I ordered food it was because he existed, and when I wrote my book it was because he existed to read it.
+ - I finally understood that no matter what I did, or who I found, I-he-none of us-would ever be able to win over the memories she had of Dad, memories that soothed her even while they made her sad, because she’d built a world out of them she knew how to survive on even if no one else could.
+ - What interests me in writing a novel is taking really remote voices, characters, and stories and beginning to create some kind of web.
+ - I forced myself to picture the last moments. The penultimate breath. A final sigh. And yet. It was always followed by another.
+ - We met each other when we were young, before we knew enough about disappointment, and once we did we found we reminded each other of it.
+
+104 quotes

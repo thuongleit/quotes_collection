@@ -1,0 +1,25 @@
+ - Photographs open doors into the past, but they also alloq a look into the future.
+ - Photographs supplant and corrupt the past, all the while creating their own memories.
+ - There are a number of things that set Southern artists apart from anyone else. Their obsession with place and their obsession with family.
+ - Unless you photograph what you love, you’re not going to make good art.
+ - These dog bones are just making art the way art should be made, without any overarching reference. Just for fun, if you can imagine that-art for fun.
+ - As an artist your trajectory just has to keep going up. the thing that subverts your next body of work is the work you’ve taken before.
+ - To be able to take my pictures, I have to look, all the time, at the people and places I care about. And I must do so with both ardor and cool appraisal, with the passions of eye and heart, but in that ardent heart there must also be a splinter of ice.
+ - I think truth is a layered phenomenon. There are many truths that accumulate and build up. I am trying to peel back and explore these rich layers of truth. All truths are difficult to reach.
+ - I like to make people a little uncomfortable. It encourages them to examine who they are and why they think the way they do.
+ - Sometimes I think the only memories I have are those that I’ve created around photographs of me as a child. Maybe I’m creating my own life. I distrust any memories I do have. They may be fictions, too.
+ - When the good pictures come, we hope they tell truths, but truths ‘told slant,’ just as Emily Dickinson commanded.
+ - What is truth in photography? It can be told in a hundred different ways. Every thirtieth of a second when the shutter snaps, its capturing a different piece of information.
+ - If it doesn’t have ambiguity, don’t bother to take it. I love that, that aspect of photography – the mendacity of photography – it’s got to have some kind of peculiarity in it or it’s not interesting to me.
+ - I wish I could be a better writer, but writing is so difficult. I get seduced by visual aesthetics. Because I just like making beautiful pictures, sometimes I wander away from making a clear statement.
+ - It is easier for me to take ten good pictures in an airplane bathroom than in the gardens at Versailles.
+ - I don’t see many artists who are not trying to bring their work to the public – -to the contrary I see artists nearly desperate to get attention for their art and, failing that, often for themselves.
+ - I have nothing but respect for people who travel the world to make art and put exotic Indians in front of linen backdrops, but it’s always been my philosophy to try to make art out of the everyday and ordinary.
+ - Sometimes, when I get a good picture, it feels like I have taken another nervous step into increasingly rarified air. Each good-news picture, no matter how hard-earned, allows me only a crumbling foothold on this steepening climb – an ascent whose milestones are fear and doubt.
+ - Like all photographers, I depend on serendipity I pray for what might be referred to as the angel of chance.
+ - One of the things my career as an artist might say to young artists is: The things that are close to you are the things you can photograph the best. And unless you photograph what you love, you are not going to make good art.
+ - All the good pictures that came so easily now make the next set of pictures virtually impossible in your mind.
+ - I’m past photographing to see what things look like photographed.
+ - My main interest was finding boyfriends. I’d park myself in the bookstore and read with one eye on everyone coming in.
+
+23 quotes

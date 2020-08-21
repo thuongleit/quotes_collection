@@ -1,0 +1,64 @@
+ - In eternity everything is just beginning.
+ - Relearn astonishment.
+ - Learning is the art of ignoring.
+ - There is no such thing as an ugly language. Today I hear every language as if it were the only one, and when I hear of one that is dying, it overwhelms me as though it were the death of the earth.
+ - You draw closer to truth by shutting yourself off from mankind.
+ - All the things one has forgotten scream for help in dreams.
+ - Every decision is liberating, even if it leads to disaster.
+ - Death is a scandal. The machine is functioning, we are all hostages.
+ - It is always the enemy who started it, even if he was not the first to speak out, he was certainly planning it; and if he was not actually planning it, he was thinking of it; and, if he was not thinking of it, he would have thought of it.
+ - Speak as though it were the last sentence allowed you.
+ - In five minutes the earth would be a desert, and you cling to books.
+ - Understanding, as we understand it, is misunderstanding.
+ - A person often falls very ill in order to become someone else and then returns to health much disappointed.
+ - One should not confuse the craving for life with endorsement of it.
+ - Rulers who want to unleash war know very well that they must procure or invent a first victim.
+ - Whether or not God is dead: it is impossible to keep silent about him who was there for so long.
+ - I want to keep smashing myself until I am whole.
+ - There is nothing that man fears more than the touch of the unknown. He wants to see what is reaching towards him, and to be able to recognize or at least classify it. Man always tends to avoid physical contact with anything strange.
+ - People’s fates are simplified by their names.
+ - Of all the words in all languages I know, the greatest concentration is in the English word I.
+ - Explain nothing. Put it there. Say it. Leave.
+ - Whenever you observe an animal closely, you feel as if a human being sitting inside were making fun of you.
+ - His head is made of stars, but not yet arranged into constellations.
+ - The act of naming is the great and solemn consolation of mankind.
+ - Everything one records contains a grain of hope, no matter how deeply it may come from despair.
+ - The self-explorer, whether he wants to or not, becomes the explorer of everything else.
+ - There is no doubt: the study of man is just beginning, at the same time that his end is in sight.
+ - There emanates from superlatives a destructive force.
+ - I cannot become modest; too many things burn in me; the old solutions are falling apart; nothing has been done yet with the new ones. So I begin, everywhere at once, as if I had a century ahead of me.
+ - Travelling, one accepts everything; indignation stays at home. One looks, one listens, one is roused to enthusiasm by the most dreadful things because they are new. Good travellers are heartless.
+ - People love as self-recognition what they hate as an accusation.
+ - There can be no Creator, simply because his grief at the fate of his creation would be inconceivable and unendurable.
+ - The fear of burglars is not only the fear of being robbed, but also the fear of a sudden and unexpected clutch out of the darkness.
+ - It doesn’t matter how new an idea is: what matters is how new it becomes.
+ - The process of writing has something infinite about it. Even though it is interrupted each night, it is one single notation.
+ - Slumbering in every human being lies an infinity of possibilities, which one must not arouse in vain. For it is terrible when the whole man resonates with echoes and echoes, none becoming a real voice.
+ - Someone who always has to lie discovers that every one of his lies is true.
+ - There is nothing that man fears more than the touch of the unknown.
+ - He who is obsessed by death is made guilty by it.
+ - A ‘modern’ man has nothing to add to modernism, if only because he has nothing to oppose it with. The well-adapted drop off the dead limb of time like lice.
+ - The great writers of aphorisms read as if they had all known each other well.
+ - The planet’s survival has become so uncertain that any effort, any thought that presupposes an assured future amounts to a mad gamble.
+ - You have but to know an object by its proper name for it to lose its dangerous magic.
+ - When you write down your life, every page should contain something no one has ever heard about.
+ - The self- explorer, whether he wants to or not, becomes the explorer of everything else. He learns to see himself, but suddenly, provided he was honest, all the rest appears, and it is as rich as he was, and, as a final crowning, richer.
+ - Success is the space one occupies in the newspaper. Success is one day’s insolence.
+ - The paranoiac is the exact image of the ruler. The only difference is their position in the world. One might even think the paranoiac the more impressive of the two because he is sufficient unto himself and cannot be shaken by failure.
+ - It is important to say all the great thoughts again, without knowing that they have already been said.
+ - History portrays everything as if it could not have come otherwise. History is on the side of what happened.
+ - One should use praise to recognize what one is not.
+ - Beauty always has something remote.
+ - Almost Kien was tempted to believe in happiness, that contemptible life-goal of illiterates. If it came of itself, without being hunted for, if you did not hold it fast by force and treated it with a certain condescension, it was permissible to endure its presence for a few days.
+ - One has a prejudice wherever one fears a transformation.
+ - It is important what a man still plans at the end. It shows the measure of injustice in his death.
+ - The profoundest thoughts of the philosophers have something trickle about them. A lot disappears in order for something to suddenly appear in the palm of the hand.
+ - He would like to start from scratch. Where is scratch?
+ - Success listens only to applause. To all else it is deaf.
+ - Most religions do not make men better, only warier.
+ - Words are not too old, only people are too old if they use the same words too frequently.
+ - The first effect of adjusting to other people is that one becomes boring.
+ - Pessimists are not boring. Pessimists are right. Pessimists are superfluous.
+ - As if one could know the good a person is capable of, when one doesn’t know the bad he might do.
+
+62 quotes

@@ -1,0 +1,92 @@
+ - A hero is one who knows how to hang on one minute longer.
+ - Poetry heals the wounds inflicted by reason.
+ - To romanticize the world is to make us aware of the magic, mystery and wonder of the world; it is to educate the senses to see the ordinary as extraordinary, the familiar as strange, the mundane as sacred, the finite as infinite.
+ - Knowledge is only one half. Faith is the other.
+ - The poem of the understanding is philosophy.
+ - Only an artist can interpret the meaning of life.
+ - We are more closely connected to the invisible than to the visible.
+ - In a work of art, chaos must shimmer through the veil of order.
+ - The world must become romanticized, and in that way we find again its original meaning for us.
+ - Man is lyrical, woman epic, marriage dramatic.
+ - Nature is an aeolian harp, a musical instrument whose tones are the re-echo of higher strings within us.
+ - Hypotheses are nets: only he who casts will catch.
+ - Many things are too delicate to be thought; many more, to be spoken.
+ - Love works magic. It is the finalpurpose of the world story, the Amen of the universe.
+ - The badge of honesty is simplicity.
+ - Philosophy is properly home-sickness; the wish to be everywhere at home.
+ - Life must not be a novel that is given to us, but one that is made by us.
+ - Building worlds is not enough for the deeper urging mind; but a loving heart sates the striving spirit.
+ - Christianity is the root of all democracy, the highest fact in the rights of men.
+ - We are on a mission: we are called to the cultivation of the earth .
+ - Where are we really going? Always home.
+ - Every disease is a musical problem; every cure is a musical solution.
+ - The highest purpose of intellectual cultivation is to give a man a perfect knowledge and mastery of his own inner self.
+ - Humanity is the higher meaning of our planet, the nerve that connects this part of it with the upper world, the eye it raises to heaven.
+ - You are alone with everything you love.
+ - There is but one temple in the world, and that is the body of man. Nothing is holier than this high form. Bending before men is a reverence done to this revelation in the flesh. We touch heaven when we lay our hand on a human body.
+ - We touch heaven when we lay our hand on a human body!
+ - Life is the beginning of death. Life is for the sake of death. Death is at once the end and the beginning – at once separation and closer union of the self. Through death the reduction is complete.
+ - Fate and temperament are the names of a concept.
+ - I was still blind, but twinkling stars did dance Throughout my being’s limitless expanse, Nothing had yet drawn close, only at distant stages I found myself, a mere suggestion sensed in past and future ages.
+ - Perceptibility is a kind of attentiveness.
+ - It is certain my belief gains quite infinitely the very moment I can convince another mind thereof.
+ - Prayer is to religion what thinking is to philosophy. To pray is to make religion.
+ - The artist belongs to his work, not the work to the artist.
+ - One should, when overwhelmed by the shadow of a giant, move aside and see if the colossal shadow isn’t merely that of a pygmy blocking out the sun.
+ - To become properly acquainted with a truth, we must first have disbelieved it, and disputed against it.
+ - Man is a sun, his senses are the planets.
+ - To get to know a truth properly, one must polemicize it.
+ - The art of writing books is not yet invented. But it is at the point of being invented. Fragments of this nature are literary seeds. There may be many an infertile grain among them: nevertheless, if only some come up!
+ - We never completely comprehend ourselves, but we can do far more than comprehend.
+ - What delights, what pleasures does your life offer you that outweigh the raptures of death?
+ - Man has his being in truth – if he sacrifices truth he sacrifices himself. Whoever betrays truth betrays himself. It is not a question of lying – but of acting against one’s conviction.
+ - The true Poet is all-knowing; he is an actual world in miniature.
+ - Not only England, but every Englishman is an island.
+ - Every disease is a musical problem. Its cure a musical solution. The more rapid and complete the solution, the greater the musical talent of the doctor.
+ - The mysterious path goes inward. It is in us, and not anywhere else, where the eternity of the worlds, the past and the future are found.
+ - Character is perfectly educated will.
+ - Nature is a petrified magic city.
+ - Every beloved object is the center point of a paradise.
+ - Character and fate are two words for the same thing.
+ - If the world is a precipitation of human nature, so to speak, then the divine world is a sublimation of the same. Both occur in one act. No precipitation without sublimation. What goes lost there in agility, is won here.
+ - To philosophize means to make vivid.
+ - I often feel, and ever more deeply I realize, that fate and character are the same conception.
+ - Learning is pleasurable but doing is the height of enjoyment.
+ - Every stage of education begins with childhood. That is why the most educated person on earth so much resembles a child.
+ - The seat of the soul is where the inner world and the outer world meet. Where they overlap, it is in every point of the overlap.
+ - We are near waking when we dream we are dreaming.
+ - Doing philosophy is only a threefold or double kind of waking – being awake – consciousness.
+ - Darwin remarks that we are less dazzled by the light at waking, if we have been dreaming of visible objects. Happy are those who have here dreamt of a higher vision! They will the sooner be able to endure the glories of the world to come.
+ - Everywhere we seek the Absolute, and always we find only things.
+ - Before abstraction everything is one, but one like chaos; after abstraction everything is united again, but this union is a free binding of autonomous, self-determined beings. Out of a mob a society has developed, chaos has been transformed into a manifold world.
+ - Where children are, there is the golden age.
+ - The normal present connects the past and the future through limitation. Contiguity results, crystallization by means of solidification. There also exists, however, a spiritual present that identifies past and future through dissolution, and this mixture is the element, the atmosphere of the poet.
+ - The ideal of morality has no more dangerous rival than the ideal of highest strength, of most powerful life. It is the maximum of the savage.
+ - A certain degree of solitude seems necessary to the full growth and spread of the highest mind; and therefore must a very extensive intercourse with men stifle many a holy germ, and scare away the gods, who shun the restless tumult of noisy companies and the discussion of petty interests.
+ - When you understand how to love one thing, then you also understand how to love everything.
+ - The Bible begins gloriously with Paradise, the symbol of youth, and ends with the everlasting kingdom, with the holy city. The history of every man should be a Bible.
+ - The individual soul should seek for an intimate union with the soul of the universe.
+ - Friendship, love, and piety ought to be handled with a sort of mysterious secrecy; they ought to be spoken of only in the rare moments of perfect confidence, to be mutually understood in silence. Many things are too delicate to be thought; many more, to be spoken.
+ - Our bodies are molded rivers.
+ - Accident is simply unforeseen order.
+ - Play is experimenting with chance.
+ - There is but one temple in the universe, and that is the body of man.
+ - Friends, the soil is poor, we must sow seeds in plenty for us to garner even modest harvests .
+ - All power appears only in transition. Permanent power is stuff.
+ - One can not understand language because language cannot understand itself; does not want to understand.
+ - Mathematics is the Life of the Gods.
+ - Only the most perfect human being can design the most perfect philosophy.
+ - Nothing is more indispensable to true religiosity than a mediator that links us with divinity.
+ - Genius in general is poetic. Where genius has been active it has been poetically active. The truly moral person is a poet.
+ - All the events of our life are materials of which we can make what we will.
+ - There is an energy which springs from sickness and debility: it has a more powerful effect than the real, but, sadly, expires in an even greater infirmity.
+ - How do we see physically? No differently that we do in our consciousness – by means of the productive power of imagination. Consciousness is the eye and ear, the sense for inner and outer meaning.
+ - In cheerful souls there is no wit. Wit shows a disturbance of the equipoise.
+ - The brains -the thinking organs- are the world producers -nature’s genitals.
+ - The artist stands on the human being as a statue does on a pedestal.
+ - Only as far as a man is happily married to himself is he fit for married life and family life in general.
+ - Many books are longer than they seem. They have indeed no end. The boredom that they cause is truly absolute and infinite.
+ - The history of every individual man should be a Bible.
+ - Humanity is a comic role.
+
+90 quotes

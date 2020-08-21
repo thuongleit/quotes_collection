@@ -1,0 +1,26 @@
+ - It’s fine to live in the now. But the best thing about now is that there’s another one tomorrow. I’m going to start making them count.
+ - To hell with tomorrow. To hell with all problems and barriers. Nothing matters but the Spectacular Now.
+ - Just remember this- weird’s good. Embrace the weird, dude. Enjoy it because it’s never going away.
+ - Boredom is only for boring people with no imagination.
+ - Besides, it doesn’t matter if it’s real. It never does with dreams. They aren’t anything anyway but lifesavers to cling to so you don’t drown. Life is an ocean, and most everyone’s hanging on to some kind of dream to keep afloat.
+ - Life is spectacular. Forget the dark things. Take a drink and let time wash them away to where ever time washes away to.
+ - She’s drenched and bedraggled, but I’ve never loved anyone as much as I love her right now. That’s how I know I’ll have to give her up.
+ - Goodbye, I say, goodbye, as I disappear little by little into the middle of the middle of my own spectacular now.
+ - Life is an ocean, and most everyone’s hanging on to some kind of dream to keep afloat.
+ - She might be the only girl I’ve ever met who still hasn’t learned to sacrifice bodily comfort for fashion’s sake.
+ - They’ve drummed the miraculous out of you, but you don’t want it to be like that. You want the miraculous. You want everything to still be new.
+ - That’s how it is with legends. The greater they sound, the more must’ve got left out.
+ - You think, ‘Here’s something I can hold on to,’ but it always slips away.
+ - You’re nothing but a product. And what’s this product called? Emptiness, dude, that’s what it’s called. And for the rest of your life, they sell you over and over, right to the end when they package you one last time and plant you in the ground.
+ - Have you ever started to wave at someone and then realized they weren’t really waving at you, so you abort and go for a head scratch instead? That’s how I felt.
+ - Childhood was a fantastic country to live in.
+ - I like to think there’s more to a person than just one thing.
+ - The only way you’re going to get something to last in this world is to work at it.
+ - See, I do have a future to give her after all, just not one that includes me.
+ - That’s how it is online – there’s no time in cyberspace. It’s almost like everything physical evaporates, and it’s just your mind and the different sites floating in a void.
+ - That’s how our system works. It’s a giant con game. One thing gets old, then you have to buy the next thing that gets old, then the next thing. Our whole society’s a training ground for addicts.
+ - Our whole society’s a training ground for addicts.
+ - Books seem a little old-fashioned, but hey, I can do old-fashioned if it’s good.
+ - It’s more like I was daydreaming when the Supreme Being told me what I should do with my life, and it’s too late to ask what it was.
+
+24 quotes

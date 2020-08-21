@@ -1,0 +1,49 @@
+ - No matter the situation, never let your emotions overpower your intelligence.
+ - Change the story and you change perception; change perception and you change the world.
+ - I am ready for the rest of my life to rise.
+ - We all have the extraordinary coded within us, waiting to be released.
+ - The soul is the lure of our becoming.
+ - The ecological crisis is doing what no other crisis in history has ever done – challenging us to a realization of a new humanity.
+ - Human connections are deeply nurtured in the field of shared story.
+ - You are not an encapsulated bag of skin dragging around a dreary little ego. You are an evolutionary wonder, a trillion cells singing together in a vast chorale, an organism – environment, a symbiosis of cell and soul.
+ - The illuminated ones can take any form – a man, a woman, a child, an elder, or even a dog. It is not inconsequential that the English language allows for the dyslexia of the spelling of the word dog: God spelled backward.
+ - At the height of laughter, the universe is flung into a kaleidoscope of new possibilities.
+ - Laughter is the loaded latency given us by nature as part of our native equipment to break up the stalemates of our lives and urge us on to deeper and more complex forms of knowing.
+ - Occasionally we will be overwhelmed, but mostly we will be enchanted.
+ - Your brain has one function-to do exactly what you tell it to do.
+ - We tend to think of the Faustian man, the one who fabricates, manipulates, seduces and ends up destroying. But the new image will be man the creator, the artist, the player.
+ - Stories are living and dynamic. Stories exist to be exchanged. They are the currency of Human Growth.
+ - Bangladesh is a world of metaphor, of high and low theater, of great poetry and music. You talk to a rice farmer and you find a poet. You get to know a sweeper of the streets and you find a remarkable singer.
+ - You are not a passive observer in the cosmos. The entire universe is expressing itself through you at this very moment.
+ - As you allow the beloved to grow within you, you will discover a steadfastness to the spiritual journey.
+ - The world needs the sense that we are all in it TOGETHER!
+ - There is something else that is trying to come through – that lure of becoming – and it does come from the realm of spirit, it does come from the quantum universe, it does come from the great spark that is the threshold of time and history trying to emerge and electrify us.
+ - I often wonder if you wrote your memoir today, if your life story would be lived on the edge of possibility, if you held wonder in one hand and courage in the other and truly believed that anything was possible.
+ - Pathos activates the eyes and ears to see and hear. At times of pathos, illness opens doors to a reality which is closed to a healthy point of view.
+ - Our senses are indeed our doors and windows on this world, in a very real sense the key to the unlocking of meaning and the wellspring of creativity.
+ - Now is the time when we must renew ourselves and live as if we and all of life is sacred, and as if everything we do makes a difference.
+ - Try to spend a few moments each day holding a picture of your body and your mind in a state of splendid health.
+ - We live in a description of reality.
+ - The ideas are secondary to the primary premise of people’s potential. I’m always in wonder and astonishment.
+ - Laughter lifts our spirits, surprises and sometime shocks our expectations, allows us to cross boundaries, reorders our priorities, and gives us access to ideas and associations we rarely ever thought to have.
+ - Engaging it produces an intense force, which in turn produces a mutation in consciousness. You become who you really are...
+ - I don’t think that any great issue ever gets resolved. I think we outgrow them.
+ - Just as you would not neglect seeds that you planted with hope that they will bear vegetables and fruits and flowers, so must you attend to nourish the garden of your becoming.
+ - I firmly believe that all human beings have access to extraordinary energies and powers. Judging from accounts of mystical experience, heightened creativity, or exceptional performance by athletes and artists, we harbor a greater life than we know.
+ - Ironically, we are all too often educated out of rather than in to an awareness of the body.
+ - If you keep telling the same sad small story. You will keep living the same sad small life.
+ - The tendrils of a new, deeper form of spirituality are growing. It’s the greening under the surface crust of consciousness and social paradigm.
+ - When we are calling forth the depth and genius of the other, then we grow.
+ - We cannot embrace the New Mind by just sitting around and talking about it. It demands that we alter not just our thinking, but our way of living down to the smallest details.
+ - A myth is something that never was but that is always happening.
+ - Patricia Sun is a solar light of consciousness whose wisdom rays cover the world. Everywhere I travel through out the earth, I find people whose lives have been enhanced and transformed by her luminous work.
+ - Around my eighth or ninth year I became interested in the world’s religions. I was mathematically retarded but theologically precocious. I began to correspond with seikhs in India. After about the third letter they would ask about job opportunities in America.
+ - A normal person is someone that you don’t know very well.
+ - We are sitting on a cornucopia of knowing that we had no way to access as a democracy. We couldn’t get the democratization of the human capacity before our time.
+ - Wth subtly developed body awareness, it is possible for the individual to become the conscious orchestrator of health.
+ - Paul Brunton was a great original and got to a place of personal evolution that illumines the pathways of a future humanity.
+ - Education and the process of educating is a total integral, contextual situation which includes students, teachers, parents, administration and environment.
+ - Development involves giving up a smaller story in order to wake up to a larger story.
+ - I think civilization is going to get to a point where we suddenly become responsible, stewards of the whole evolutionary process. This requires domains of consciousness, not just levels and frequencies.
+
+47 quotes

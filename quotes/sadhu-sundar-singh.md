@@ -1,0 +1,21 @@
+ - Every selfish man, strangely enough, becomes a self slayer.
+ - Prayer does not mean asking God for all kinds of things we want, it is rather the desire for God Himself, the only Giver of Life.
+ - Those who determine not to put self to death will never see the will of God fulfilled in their lives.
+ - From my many years experience I can unhesitatingly say that the cross bears those who bear the cross.
+ - The true Christian is like sandalwood, which imparts its fragrance to the axe which cuts it, without doing any harm in return.
+ - Prayer is continual abandonment to God.
+ - He who searches for Divine Reality with all his heart and soul and finds it, becomes aware that, before he began to seek God, God was seeking him, in order to draw him into the joy of fellowship with Him, into the peace of His Presence.
+ - If true happiness depended on the thoughts of man, then all philosophers and deep thinkers would be filled to overflowing with it.
+ - Those who determine not to put self to death will never see the will of God fulfilled in their lives. Those who ought to become the light of the world must necessarily burn and become less and less. By denying self, we are able to win others.
+ - Should I worship Him from fear of hell, may I be cast into it. Should I serve Him from desire of gaining heaven, may He keep me out. But should I worship Him from love alone, He reveals Himself to me, that my whole heart may be filled with His love and presence.
+ - Salt, when dissolved in water, may disappear, but it does not cease to exist. We can be sure of its presence by tasting the water. Likewise, the indwelling Christ, though unseen, will be made evident to others from the love which he imparts to us.
+ - God’s patience is infinite. Men, like small kettles, boil quickly with wrath at the least wrong. Not so God. If God were as wrathful, the world would have been a heap of ruins long ago.
+ - Some people become tired at the end of ten minutes or half an hour of prayer. What will they do when they have to spend Eternity in the presence of God? We must begin the habit here and become used to being with God.
+ - If we do not bear the cross of the Master, we will have to bear the cross of the world, with all its earthly goods. Which cross have you taken up? Pause and consider.
+ - The cross is like a walnut whose outer rind is bitter, but the inner kernel is pleasant and invigorating. So the cross does not offer any charm of outward appearance, but to the cross-bearer its true character is revealed, and he finds in it the choicest sweets of spiritual peace.
+ - During an earthquake it sometimes happens that fresh springs break out in dry places which water and quicken the land so that plants can grow. In the same way the shattering experiences of suffering can cause the living water to well up in a human heart.
+ - People would never begin to pray if they could not ask for earthly things like riches and health and honours; He says to Himself: If they ask for such things the desire for something better will awaken in them, and finally they will only care about the higher things.
+ - Prayer is not a painful effort to gain from God help in the varying needs of life. Prayer is the desire to possess God Himself.
+ - Many people despise those who spend their health, strength and money for the salvation of others, and call them mad. And yet it is they who will save many and be saved themselves.
+
+19 quotes

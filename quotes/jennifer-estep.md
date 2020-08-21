@@ -1,0 +1,65 @@
+ - My name is Gin, and I kill people.
+ - I did not glow with the thrill of battle. Cringe, yes. Glow, no.
+ - I eat haughty, arrogant, manipulative, self-important bitches like you for breakfast, sugar. And then I go back for seconds.
+ - I’m crazy about you, Spartan.
+ - Always take the most unexpected route.
+ - It’ll be okay, I promise. No matter what I see or feel. You’ll still be Logan and I’ll still be your Gypsy girl.
+ - Come on, Gypsy girl. I’m bleeding to death here, in case you haven’t noticed. At least make it worth my while and kiss me before I die.
+ - You bruised my ego, you see, and there’s just not enough money in the world to soothe my ego when it gets bruised.
+ - Kiss me or let me go. I don’t care anymore.
+ - Rage filled me at her words – cold, black, unending rage. Whatever happened to me, Mab would not hurt my sister again. She would not.
+ - I was so getting tired of fighting for my life in the library.
+ - Her touch was as soft as a snowflake falling onto my skin.
+ - I’m a figment of your imagination. You’re only imagining that I’m sitting here eating with you. Because I’m just so freaking awesome that people daydream about being seen with me.
+ - They’d played “Sweet Home, Alabama” so many times I wanted to crash the party, kill the radio, and knife whoever was selecting the music.
+ - I don’t judge you for what you’ve done, Gin. Why are you judging me for another man’s mistakes?
+ - Emotions were for those too weak to turn them off.
+ - Art should look like art, trees and flowers and people, not weird shapes and splotches of color all smeared together.
+ - I’m going to untangle her deadly scheme, even if it leaves my love affair hanging by a thread.
+ - All I’m saying is that I understand if the novelty’s worn off and you want to get off the carousel ride now before it kills you.
+ - What was it with people always trying to kill me in the library? Nickamedes so needed to put up warning signs. Danger: Working here could be hazardous to your health.
+ - What did you expect? That he’d send you flowers and write you bad poetry? That dead Nemean prowler is pretty much as close to a stuffed animal as you’re ever going to get from a Spartan like Logan Quinn.
+ - Donovan Caine wanted me, but he wasn’t strong enough to accept me. Not my past, not my strength, not the woman I was. Bitter disappointment filled me, replacing my rage, but I forced myself to ask the final question I wanted an answer to...
+ - Oh yes. You’ve caught me. I confess. My sole purpose in life is to gleefully, willfully, maniacally destroy all of your precious chrome babies.
+ - He gave me his word. That means something to a man like Donovan Caine. Yeah, it means you’ll realize he’s an exceptionally good liar when you’re clutching your intestines and choking on your own blood on his living room floor.
+ - Killing people was far easier than making polite chitchat.
+ - Still, I’d do anything for him. Even smear his clotting blood inside the vehicle of his choosing.
+ - I’d be damned if I let him see the tears in my eyes.
+ - My heart lifted, and a matching grin curved my lips. He wanted to see me again. Maybe he really did like me after all. I felt like doing a happy dance, but of course, I was way too cool for that. I’d at least wait until I got back to my hotel room, alone, where no one would see.
+ - Finn did what he always did when confronted by an angry woman – he checked out her boobs.
+ - Moonlight slipped in through the lace curtains, slicing everything with its sliver cracks. That’s how I felt right now – cold and cracked and hollow and empty.
+ - Instead, I cut him. Not deep, but there was enough of a sting in the wound to remind him of what I’d done to the dwarven mobsters in the parking lot – and that I wasn’t just some chick with a knife who looked good in black.
+ - Just another part of that Spartan killer instinct. I can slay the ladies just as well as I can reapers.
+ - I used to murder people for money, but these days it’s more of a survival technique.
+ - I didn’t know what would take my mind off the sexy Spartan, except for maybe a total lobotomy.
+ - Don’t make it a challenge. You know how much I like those.
+ - How had I ever thought he was cute? He so needed to be locked up in an insane asylum somewhere. Too bad Batman wasn’t here to come and drag his ass off to Arkham.
+ - Are you coming along peaceful-like, or am I going to have to hog-tie you and put you in the car?
+ - I’d come to terms with what I did long ago. The bodies, the blood, the tears of those left behind. Even the fact I was probably going to burn in hell didn’t bother me. Much.
+ - It didn’t take long for the anger to put the happiness in a headlock.
+ - Finn regarded pesky little things like wedding bands, engagement rings, and jealous, hulking menfolk more as amusing challenges than immovable obstacles that could be hazardous to his health.
+ - The band geek has liquor?
+ - And that’s when I snapped up my left hand and smashed him in the face with the hammer I’d grabbed.
+ - Logan Quinn was the kind of guy who could stab me in the eye with a freaking Twizzler.
+ - Too bad the smile was on the face of the wrong man.
+ - Easy was for people too weak to suck it up and do what needed to be done. And I wasn’t weak. Not anymore.
+ - But I’d much rather face a dozen assassins like LaFleur any night than deal with something as tricky, convoluted, and fragile as my feelings.
+ - You can work with me – or you can wade through the blood and bodies after I’m done.
+ - Did she just call me a bleeding toothpick? Kill her! Kill her now!
+ - I pulled the trigger twice, cutting off his protests, and Finn joined my lover on the floor.
+ - Etiquette? What kind of etiquette was there in someone trying to murder me?
+ - Don’t you agree, fuzzball?
+ - What are you smiling at?’ – ‘Oh, nothing much. Just my hero.
+ - One by one, the others all nodded their heads again, as if we were talking about having a spring picnic instead of going up against the deadliest woman in Ashland and all of her men.
+ - It was better to know what people were really like than put your trust in someone who just wanted to hurt you in the end.
+ - I wouldn’t say hate, exactly. You’re kind of like fungus, Gwen. After a while, you just start growing on people.
+ - And I was stuck here at Warrior Freaks R Us.
+ - I might be an assassin, but never let it be said I wasn’t as gracious a hostess as the next gal.
+ - He realized something was going on between Logan and me. I wish he’d clue me in on exactly what it was, because I had no idea.
+ - Hope. An emotion that always kept suckering me in, time after time, despite my supposed retirement from the assassin business. Hope. The one thing that always seemed to get me into more trouble than just killing people for money ever had. Ah, hope. Sometimes, I really hated it.
+ - Since coming to Mythos, I’d almost been run through with a sword and mauled to death by a killer kitty cat. Dirty looks didn’t faze me anymore.
+ - You’ve got a thing for Donovan Caine. You have ever since you killed Ingles, his partner, and he went all dogged and determined on you.
+ - Oh, baby. You have no idea what I’d do to get through those layers and down to the good stuff.
+ - I didn’t know if he really meant talk, make out, or something else completely, but I’d be happy with any of them.
+
+63 quotes

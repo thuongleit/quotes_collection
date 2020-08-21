@@ -1,0 +1,28 @@
+ - Don’t go to the grave with life unused.
+ - The greatest mistake is to continue to practice a mistake.
+ - There’s only about 6 inches that turns that halo into a noose.
+ - Integrity makes my job easier. It’s deception and dishonesty that requires so much diligent effort.
+ - That boy don’t know the meaning of the word fear. In fact, I just saw his grades, and that boy don’t know the meaning of a lot of words.
+ - If short hair and good manners won football games, Army and Navy would play for the national championship every year.
+ - Son, you’ve got a good engine, but your hands aren’t on the steering wheel.
+ - Discipline to me is sacrifice; it’s willingness to give up something you want to do, so you can better yourself.
+ - I learned a long time ago that you don’t have to go around using bad language and trying to hurt people to show how macho you are. That stuff won’t get you anywhere, it just shows lack of vocabulary and character.
+ - I’m not too proud to change. I like to win too much.
+ - I am not happy with moral victories. Those things are forgotten.
+ - A better ending could not have been scripted. Of course, if we had won, that would have been better.
+ - Somehow, I went from being too young, to being too old. Somewhere in there I must have been just right.
+ - Courage is doing something you need to do that might get you hurt.
+ - I learned more from the mistakes than from the good things.
+ - He who gets the best players usually wins.
+ - People that are brilliant and successful, we think they’ve just always been that way. That’s not the case. Most of them have had some tough adversity in their life. It’s prepared them. I’ve never felt like you could develop character without adversity.
+ - I’m praying for a misdemeanor.
+ - When I go after something, I go after it hard. It has always been that way. I don’t know. It’s in my blood.
+ - Something has to happen that you can’t coach.
+ - If their IQ’s where five points lower they’d be geraniums.
+ - Sportsmanship to me is going out and playing as hard as you can within the rules.
+ - I guess I’ll retire someday if I live that long.
+ - He died right after he retired, and seeing that made me feel more conscious of a man needing a motive to live. If I ever got out of coaching, I would have to get a job somewhere, or I’m afraid I’d wilt on the vine, too.
+ - I’ve always said it takes more courage to stand back there and throw a ball knowing you’re fixing to get drilled than anything I can think of in football.
+ - I suppose I’m like most coaches now, standing on the sideline hoping somebody asks them a question.
+
+26 quotes

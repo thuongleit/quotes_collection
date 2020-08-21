@@ -1,0 +1,260 @@
+ - A goal without a plan is just a wish.
+ - If you want to build a ship, don’t drum up the men to gather wood, divide the work, and give orders. Instead, teach them to yearn for the vast and endless sea.
+ - Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away.
+ - Make your life a dream, and a dream a reality.
+ - Love does not consist in gazing at each other, but in looking outward together in the same direction.
+ - The time for action is now. It’s never too late to do something.
+ - And now here is my secret, a very simple secret; it is only with the heart that one can see rightly, what is essential is invisible to the eye.
+ - Of course I’ll hurt you. Of course you’ll hurt me. Of course we will hurt each other. But this is the very condition of existence. To become spring, means accepting the risk of winter. To become presence, means accepting the risk of absence.
+ - It is the time you have wasted for your rose that makes your rose so important.
+ - As for the future, your task is not to foresee it, but to enable it.
+ - What makes the desert beautiful,? said the little prince, ’is that somewhere it hides a well...
+ - You become responsible, forever, for what you have tamed.
+ - Every person that comes into our life comes for a reason; some come to learn and others come to teach.
+ - But if you tame me, then we shall need each other. To me, you will be unique in all the world. To you, I shall be unique in all the world.
+ - What saves a man is to take a step. Then another step.
+ - But eyes are blind. You have to look with the heart.
+ - True love begins when nothing is looked for in return.
+ - I am who I am and I have the need to be.
+ - The arms of love encompass you with your present, your past, your future, the arms of love gather you together.
+ - Only the unknown frightens men. But once a man has faced the unknown, that terror becomes the known.
+ - When you give yourself, you receive more than you give.
+ - I know but one freedom, and that is the freedom of the mind.
+ - You’re beautiful, but you’re empty. No one could die for you.
+ - Let your dream devour your life, not your life devour your dream.
+ - When one is building a ship, one does not begin with gathering timber and cutting planks, but rather by arousing in people the yearning for the great wide sea.
+ - It is in your act that you exist, not in your body. Your act is yourself, and there is no other you.
+ - If you want to build a boat, do not instruct the men to saw wood, stitch the sails, prepare the tools and organize the work, but make them long for setting sail and travel to distant lands.
+ - To live is to be slowly born.
+ - Once you are my friend, I am responsible for you.
+ - True love is visible not to the eyes but to the heart, for eyes may be deceived...
+ - If you love a flower that lives on a star, it is sweet to look at the sky at night. All the stars are a-bloom with flowers...
+ - One cannot build life from refrigerators, politics, credit statements and crossword puzzles. That is impossible. Nor can one exist for any length of time without poetry, without color, without love.
+ - That is the hardest thing of all. It is much harder to judge yourself than to judge others. If you succeed in judging yourself, it’s because you’re truly a wise man.
+ - And the fox said to the little prince: men have forgotten this truth, but you must not forget it. You become responsible, forever, for what you have tamed.
+ - The thing that is important is the thing that is not seen.
+ - I have no right to say or do anything that diminishes a man in his own eyes. What matters is not what I think of him but what he thinks of himself. Hurting a man in his dignity is a crime.
+ - The one thing that matters is the effort.
+ - Living is being born slowly. It would be a little too easy if we could borrow ready-made souls.
+ - It is such a mysterious place, the land of tears.
+ - The essential is invisible to the eyes.
+ - Grown-ups never understand anything by themselves, and it is tiresome for children to be always and forever explaining things to them.
+ - In every crowd are certain persons who seem just like the rest, yet they bear amazing messages.
+ - Intelligence is not creative; judgment is not creative. If a sculptor is nothing but skill and mind, his hands will be without genius.
+ - It is not for us to forecast the future, but to shape it.
+ - Straight ahead you can’t go very far.
+ - Tell me who admires and loves you, and I will tell you who you are.
+ - But if you come at just any time, I shall never know at what hour my heart is to be ready to greet you.
+ - To forget a friend is sad. Not everyone has had a friend.
+ - I have always loved the desert. One sits down on a desert sand dune, sees nothing, hears nothing. Yet through the silence something throbs, and gleams...
+ - I remembered the fox. One runs the risk of crying a bit if one allows oneself to be tamed.
+ - But if you tame me, my life will be filled with sunshine. I’ll know the sound of footsteps that will be different from all the rest. Others send me back underground. Yours will call me out of my burrow like music.
+ - To become a man is to be responsible; to be ashamed of miseries that you did not cause.
+ - Life has meaning only if one barters it day by day for something other than itself.
+ - When the body sinks into death, the essence of man is revealed. Man is a knot, a web, a mesh into which relationships are tied. Only those relationships matter. The body is an old crock that nobody will miss. I have never known a man to think of himself when dying. Never.
+ - I was too young to know how to love her.
+ - What does tamed mean? It’s something that’s been too often neglected. It means to create ties.
+ - Well, I must endure the presence of a few caterpillars if I wish to become acquainted with the butterflies.
+ - In giving you are throwing a bridge across the chasm of your solitude.
+ - No individual is isolated. He who is sad, saddens others.
+ - The house, the stars, the desert – what gives them their beauty is something that is invisible!
+ - Cries of despair, misery, sobbing grief are a kind of wealth.
+ - One man may hit the mark, another blunder; but heed not these distinctions. Only from the alliance of the one, working with and through the other, are great things born.
+ - You cannot plant an acorn in the morning, and expect that afternoon to sit in the shade of an oak.
+ - Language is the source of misunderstandings.
+ - We live not by things, but by the meaning of things. It is needful to transmit the passwords from generation to generation.
+ - If I were to command a general to turn into a seagull, and if the general did not obey, that would not be the general’s fault. It would be mine.
+ - I have always learned to distinguish the important from the urgent.
+ - No truth is proved, no truth achieved, by argument, and the ready-made truths men offer you are mere conveniences or drugs to make you sleep.
+ - Prison is not a mere physical horror. It is using a pickaxe to no purpose that makes a prison.
+ - He who bears in his heart a cathedral to be built is already victorious. He who seeks to become sexton of a finished cathedral is already defeated.
+ - The field of consciousness is tiny. It accepts only one problem at a time. Get into a fist fight, put your mind on the strategy of the fight, and you will not feel the other fellow’s punches.
+ - Where I live, everything is very small.
+ - Each man must look to himself to teach him the meaning of life. It is not something discovered: it is something molded.
+ - Sometimes, there is no harm in putting off a piece of work until another day.
+ - Men have no more time to understand anything. They buy things all ready made at the shops. But there is no shop anywhere where one can buy friendship, and so men have no friends any more. If you want a friend, tame me...
+ - Man is but a network of relationships and these alone matter to him.
+ - Sorrow is one of the vibrations that prove the fact of living.
+ - Look at the sky. Ask yourselves: Has the sheep eaten the flower, yes or no? And you will see how everything changes...
+ - He who would travel happy must travel lite.
+ - I have lived a great deal among grown-ups. I have seen them intimately, close at hand. And that hasn’t much improved my opinion of them.
+ - True happiness comes from the joy of deeds well done, the zest of creating things new.
+ - Transport of the mails, transport of the human voice, transport of flickering pictures-in this century as in others our highest accomplishments still have the single aim of bringing men together.
+ - One is a member of a country, a profession, a civilization, a religion. One is not just a man.
+ - We are prudent people. We are afraid to let go of our petty reality in order to grasp at a great shadow.
+ - Nothing can match the treasure of common memories, of trials endured together, of quarrels and reconciliations and generous emotions. It is idle, having planted an acorn in the morning, to expect that afternoon to sit in the shade of the oak.
+ - Treason implies responsibility for something, control over something, influence upon something, knowledge of something. Treason in our time is a proof of genius. Why, I want to know, are not traitors decorated?
+ - An administration, like a machine, does not create. It carries on.
+ - If a composer suffers from loss of sleep and his sleeplessness induces him to turn out masterpieces, what a profitable loss it is!
+ - We do not pray for immortality, but only not to see our acts and all things stripped suddenly of all their meaning; for then it is the utter emptiness of everything reveals itself.
+ - Demagoguery enters at the moment when, for want of a common denominator, the principle of equality degenerates into the principle of identity.
+ - Life always bursts the boundaries of formulas.
+ - No single event can awaken within us a stranger whose existence we had never suspected. To live is to be slowly born.
+ - But the conceited man did not hear him. Conceited people never hear anything but praise.
+ - Whoever loves above all the approach of love will never know the joy of attaining it.
+ - I fly because it releases my mind from the tyranny of petty things.
+ - The one thing that matters is the effort. It continues, whereas the end to be attained is but an illusion of the climber, as he fares on and on from crest to crest; and once the goal is reached it has no meaning.
+ - Only the children know what they are looking for.
+ - The dignity of the individual demands that he be not reduced to vassalage by the largesse of others.
+ - One must require from each one the duty which each one can perform. Accepted authority rests first of all on reason.
+ - One can be a brother only in something. Where there is no tie that binds men, men are not united but merely lined up.
+ - To be a man is, precisely, to be responsible. It is to feel shame at the sight of what seems to be unmerited misery. It is to take pride in a victory won by one’s comrades. It is to feel, when setting one’s stone, that one is contributing to the building of the world.
+ - Loneliness is bred of a mind that has grown earth-bound.
+ - A man has many parts, he is virtually everything, and you are free to select in him that part which pleases you.
+ - Horror causes men to clench their fists, and in horror men join together.
+ - The notion of looking on at life has always been hateful to me. What am I if I am not a participant? In order to be, I must participate.
+ - And that heart which was a wild garden was given to him who only loved trim lawns. And the imbecile carried the princess into slavery.
+ - I still fall for your everyday.
+ - How could drops of water know themselves to be a river? Yet the river flows on.
+ - And the little prince broke into a lovely peal of laughter, which irritated me very much. I like my misfortunes to be taken seriously.
+ - Water, thou hast no taste, no color, no odor; canst not be defined, art relished while ever mysterious. Not necessary to life, but rather life itself, thou fillest us with a gratification that exceeds the delight of the senses.
+ - The tender friendships one gives up, on parting, leave their bite on the heart, but also a curious feeling of a treasure somewhere buried.
+ - To love is not to look at one another: it is to look, together, in the same direction.
+ - No one is ever satisfied where he is.
+ - Experience will guide us to the rules. You cannot make rules precede practical experience.
+ - For, to conceited men, all other men are admirers.
+ - It is always in the midst, in the epicenter, of your troubles that you find serenity.
+ - It is as a soldier that you make love and as a lover that you make war.
+ - You’ll be bothered from time to time by storms, fog, snow. When you are, think of those who went through it before you, and say to yourself, ‘What they could do, I can do.’
+ - It is in the compelling zest of high adventure and of victory, and in creative action, that man finds his supreme joys.
+ - The only things you learn are the things you tame.
+ - If you are to be, you must begin by assuming responsibility. You alone are responsible for every moment of your life, for every one of your acts.
+ - Let a man in a garret but burn with enough intensity and he will set fire to the world.
+ - The meaning of things lies not in the things themselves, but in our attitude towards them.
+ - Attitude is a paintbrush. It colors everything!
+ - It is only with the heart that one can see rightly.
+ - To be a man is to feel that one’s own stone contributes to building the edifice of the world.
+ - Freedom and constraint are two aspects of the same necessity, which is to be what one is and no other.
+ - I saw the sunset forty-four times!
+ - To be a man is, precisely, to be responsible.
+ - The Beauty of the Mountain is hidden for all those who try to discover it from the top, supposing that, one way or an other, one can reach this place directly. The Beauty of the Mountain reveals only to those who climbed it...
+ - She knew this man’s smile, his gentle ways of love, but not his godlike fury in the storm. She might snare him in a fragile net of music, love and flowers, but, at each departure, he would break forth without, it seemed to her, the least regret.
+ - Vain is the hope of finding pleasure in that which one has hitherto disdained; as when the warrior hopes to find pleasure in the joys of the sedentaries.
+ - The magic of the craft has opened for me a world in which I shall confront, within two hours, the black dragons and the crowned crests of a coma of blue lightnings, and when night has fallen I, delivered, shall read my course in the starts.
+ - Behind all seen things lies something vaster; everything is but a path, a portal or a window opening on something other than iteself.
+ - You see, one loves the sunset when one is so sad.
+ - Confuse not love with the raptures of possession, which bring the cruellest of sufferings. For, notwithstanding the general opinion, love does not cause suffering: what causes it is the sense of ownership, which is love’s opposite.
+ - A sky as pure as water bathed the stars and brought them out.
+ - He fell as gently as a tree falls. There was not even any sound...
+ - There is no hope of joy except in human relations.
+ - The tree is more than first a seed, then a stem, then a living trunk, and then dead timber. The tree is a slow, enduring force straining to win the sky.
+ - Night, when words fade and things come alive.
+ - You risk tears if you let yourself be tamed.
+ - We don’t ask to be eternal beings. We only ask that things do not lose all their meaning.
+ - Pure logic is the ruin of the spirit.
+ - If you tame me, it would be as if the sun came to shine on my life.
+ - Grown ups are certainly very strange.
+ - The essential things in life are seen, not with the eyes but with the heart.
+ - One must observe the proper rites.
+ - All of us have had the experience of a sudden joy that came when nothing in the world had forewarned us of its coming – a joy so thrilling that if it was born of misery we remembered even the misery with tenderness.
+ - Love, like a carefully loaded ship, crosses the gulf between the generations.
+ - I believe that for his escape he took advantage of the migration of a flock of wild birds.
+ - When one wishes to play the wit, he sometimes wander a little from the truth.
+ - Charity never humiliated him who profited from it, nor ever bound him by the chains of gratitude, since it was not to him but to God that the gift was made.
+ - What he had yearned to embrace was not the flesh but a down spirit, a spark, the impalpable angel that inhabits the flesh.
+ - The proof that the little prince existed is that he was charming, that he laughed, and that he was looking for a sheep. If anybody wants a sheep, that is a proof that he exists.
+ - The seed haunted by the sun never fails to find its way between the stones in the ground. And the pure logician, if no sun draws him forth, remains entangled in his logic.
+ - War is not an adventure. It is a disease. It is like typhus.
+ - Night, when words fade and things come alive. When the destructive analysis of day is done, and all that is truly important becomes whole and sound again.
+ - I don’t believe you! Flowers are weak creatures. They are naive. They reassure themselves as best they can. They believe that their thorns are terrible weapons...
+ - It is the duty of the ship’s captain to make port, cost what it may.
+ - Flying is a man’s job and its worries are a man’s worries.
+ - They never say to you, ‘What does his voice sound like? What games does he love best? Does he collect butterflies?’ Instead, they demand ‘How old is he? How many brothers has he? How much money does his father make?’ Only from these figures do they think they have learned anything about him.
+ - When faith burns itself out, ’tis God who dies and thenceforth proves unavailing.
+ - We say nothing essential about the cathedral when we speak of its stones. We say nothing essential about Man when we seek to define him by the qualities of men.
+ - The important thing is to strive toward a goal which is not immediately visible. That goal is not the concern of the mind, but of the spirit.
+ - The airplane has unveiled for us the true face of the earth.
+ - Truth is not that which is demonstrable but that which is ineluctable.
+ - When a mystery is too overpowering, one dare not disobey.
+ - It is the missed opportunity that counts, and in a love that vainly yearns from behind prison bars you have perchance the love supreme.
+ - If it is true that wars are won by believers, it is also true that peace treaties are sometimes signed by businessmen.
+ - It is the savor of bread broken with comrades that makes us accept the values of war.
+ - The friend within the man is that part of him which belongs to you and opens to you a door which never, perhaps, is opened to another. Such a friend is true, and all he says is true; and he loves you even if he hates you in other mansions of his heart.
+ - What value has compassion that does not take its object in its arms?
+ - The meaning of things lies not in the things themselves, but in our attitude towards them in particular caused by what we compare it to: something worse and we feel grateful for what we have; something better and we feel somehow let down.
+ - There is nothing that can equal the treasure of so many shared memories.
+ - Perhaps creativity is fumbling that dance step, or driving the chisel the wrong way into the stone.
+ - The tree is a slow, enduring force straining to win the sky.
+ - It’s useful because it’s beautiful.
+ - Of what worth are convictions that bring not suffering?
+ - Navigating by the compass in a sea of clouds over Spain is all very well, it is very dashing, but – you want to remember that below the sea of clouds lies eternity.
+ - Trying to be witty leads to lying, more or less.
+ - Sometimes we behave as though there was something more important than life. But what?
+ - What torments me is not the humps nor hollows nor the ugliness. It is the sight, a little bit in all these men, of Mozart murdered.
+ - Man’s progress is but a gradual discovery that his questions have no meaning.
+ - If I had fifty-three minutes to spend as I liked, I should walk at my leisure toward a spring of fresh water.
+ - More wisdom is latent in things as they are than in all the words men use.
+ - The strong are strengthened by reverses; the trouble is that the true meaning of events scores next to nothing in the match we play with men. Appearances decide our gains or losses and the points are trumpery. And a mere semblance of defeat may hopelessly checkmate us.
+ - If France is to be judged, judge her not by the effects of her defeat but by her readiness to sacrifice herself.
+ - Even though human life may be the most precious thing on earth, we always behave as if there were something of higher value than human life.
+ - But games always cover something deep and intense, else there would be no excitement in them, no pleasure, no power to stir us.
+ - Truths may clash without contradicting each other.
+ - It is not a question of living dangerously. That formula is too arrogant, too presumptuous. I don’t care much for bull-fighters. It’s not the danger I love. I know what I love. It is life itself.
+ - It was the contemplation of God that created men who were equal, for it was in God that they were equal.
+ - What sets us against one another is not our aims-they all come to the same thing-but our methods, which are the fruit of our varied reasoning.
+ - The soldier’s body becomes a stock of accessories that are not his property.
+ - Once we are bound together to our brothers by a common good that is outside us, then we can breathe. Experience teaches us that love is not to gaze at one another but to gaze in the same direction. There is no comradeship except through unity on the same rope, climbing towards the same peak.
+ - Action and personal happiness have no truck with each other; they are eternally at war.
+ - A child is not frightened at the thought of being patiently transmuted into an old man.
+ - You do not explain the tree by telling of the water it has drunk, the minerals it has absorbed, and the sunlight that strengthened it.
+ - What was my body to me? A kind of flunkey in my service. Let but my anger wax hot, my love grow exalted, my hatred collect in me, and that boasted solidarity between me and my body was gone.
+ - Man is a knot into which relationships are tied.
+ - To grasp the meaning of the world of today we use a language created to express the world of yesterday. The life of the past seems to us nearer our true natures, but only for the reason that it is nearer our language.
+ - That’s the way they are. You must not hold it against them. Children should be very understanding of grown-ups.
+ - It is much more difficult to judge oneself than to judge others.
+ - You’re not a man, you’re a mushroom!
+ - If Someone wants a sheep, then that means that he exists.
+ - Nobody grasped you by the shoulder while there was still time. Now the clay of which you were shaped has dried and hardened, and naught in you will ever awaken the sleeping musician, the poet, the asronomer that possibly inhabited you in the beginning.
+ - Only he can understand what a farm is, what a country is, who shall have sacrificed part of himself to his farm or country, fought to save it, struggled to make it beautiful. Only then will the love of farm or country fill his heart.
+ - I shall never again admire a merely brave man.
+ - Only the children know what they are looking for. They waste their time over a rag doll and it becomes very important to them; and if anybody takes it away from them, they cry...
+ - You will have five hundred million little bells, and I shall have five hundred million springs of fresh water...
+ - A civilization is built on what is required of men, not on that which is provided for them.
+ - I was wrong to grow older. Pity. I was so happy as a child.
+ - A rock pile ceases to be a rock pile the moment a single man contemplates it, bearing within him the image of a cathedral.
+ - The wind in the grain is the caress to the spouse; it is the hand of peace stroking her hair.
+ - Peace is present when things form part of a whole greater than their sum, as the diverse minerals in the ground collect to become the tree.
+ - Peace dies when the framework is ripped apart. When there is no longer a place that is yours in the world. When you know no longer where your friend is to be found.
+ - What do we mean by setting a man free? You cannot free a man who dwells in a desert and is an unfeeling brute.
+ - When you tame someone they become unique to you in all the world.
+ - And at night I love to listen to the stars. It is like five hundred million little bells...
+ - For there is but one problem – the problem of human relations. We forget that there is no hope or joy except in human relations.
+ - No single event can awaken within us a stranger totally unknown to us. To live is to be slowly born. It would be a bit too easy if we could go about borrowing ready-made souls.
+ - He who never says “no” is no true man.
+ - A civilization is a heritage of beliefs, customs, and knowledge slowly accumulated in the course of centuries, elements difficult at times to justify by logic, but justifying themselves as paths when they lead somewhere, since they open up for man his inner distance.
+ - A chief is a man who assumes responsibility. He says ‘I was beaten,’ he does not say ‘My men were beaten.’
+ - A man’s age represents a fine cargo of experiences and memories.
+ - But certainly, for us who understand life, figures are a matter of indifference.
+ - How could there be any question of acquiring or possessing, when the one thing needful for a man is to become – to be at last, and to die in the fullness of his being.
+ - He who has gone, so we but cherish his memory, abides with us, more potent, nay, more present than the living man.
+ - Surely a man needs a closed place wherein he may strike root and, like the seed, become. But also he needs the great Milky Way above him and the vast sea spaces, though neither stars nor ocean serve his daily needs.
+ - I am very fond of sunsets. Come, let us go look at a sunset.
+ - Love does not cause suffering: what causes it is the sense of ownership, which is love’s opposite.
+ - No destiny attacks us from outside. But, within him, man bears his fate and there comes a moment when he knows himself vulnerable; and then, as in a vertigo, blunder upon blunder lures him.
+ - The machine does not isolate man from the great problems of nature but plunges him more deeply into them.
+ - What sets men at variance is but the treachery of language, for always they desire the same things.
+ - Nothing comes of severity if there be no leanings towards a change of heart. And if there be natural leanings towards a change of heart, what need for severity?
+ - True love is inexhaustible; the more you give, the more you have.
+ - Each man carries within him the soul of a poet who died young.
+ - One’s suffering disappears when one lets oneself go, when one yields – even to sadness.
+ - Man is, above all, he who creates.
+ - Once men are caught up in an event, they cease to be afraid. Only the unknown frightens men.
+ - He had taken seriously words which were without importance, and it made him very unhappy.
+ - It’s hard luck always having to be a judge.
+ - The flower you single out is a rejection of all other flowers; nevertheless, only on these terms is it beautiful.
+ - We must not subject him who creates to the desires of the multitude. It is, rather, his creation that must become the multitude’s desire.
+ - When I find a woman attractive, I have nothing at all to say. I simply watch her smile. Intellectuals take apart her face in order to explain it bit by bit, but they no longer see the smile.
+ - On ne sait jamais! One never knows!
+ - True, it is evil that a single man should crush the herd, but see not there the worse form of slavery, which is when the herd crushes out the man.
+ - You give birth to that on which you fix your mind.
+ - Defeat is a thing of weariness, of incoherence, of boredom, and above all futility.
+ - Defeat may prove to have been the only path to resurrection, despite its ugliness.
+ - In order to cure a feeling of malaise, you have to throw light on it.
+ - Even our misfortunes are a part of our belongings.
+ - One only really sees with the heart.
+ - Mad is the man who is forever gritting his teeth against that granite block, complete and changeless, of the past.
+ - The field of consciousness is tiny. It accepts only one problem at a time.
+ - Truth, for any man, is that which makes him a man.
+ - I showed the grown ups my maasterpiece, andI asked them if my drawing scared them. They answered why be scared of a hat? My drawing was not a picture of a hat. It was a picture of a boa constrictor digesting an elephant.
+
+258 quotes

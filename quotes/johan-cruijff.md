@@ -1,0 +1,64 @@
+ - Playing football is very simple, but playing simple football is the hardest thing there is.
+ - If you can’t win, make sure you don’t lose.
+ - Technique is not being able to juggle a ball 1000 times. Anyone can do that by practicing. Then you can work in the circus. Technique is passing the ball with one touch, with the right speed, at the right foot of your team mate.
+ - It is better to fail with your own vision than to fail with another man’s vision.
+ - Soccer is simple, but it is difficult to play simple.
+ - Every disadvantage has its advantage.
+ - If you play on possession, you don’t have to defend, because there’s only one ball.
+ - Coincidence is logical.
+ - If I wanted you to understand it, I would have explained it better.
+ - Football is a game of mistakes. Whoever makes the fewest mistakes wins.
+ - Why couldn’t you beat a richer club? I’ve never seen a bag of money score a goal.
+ - You have got to shoot, otherwise you can’t score.
+ - In a way I’m probably immortal.
+ - Before I make a mistake, I don’t make that mistake.
+ - In my teams, the goalie is the first attacker, and the striker the first defender.
+ - If you want to play quicker you can start running faster, but it’s the ball that decides the speed of the game.
+ - Football is simple, you’re either on time, or you’re too late. If you’re too late then you have to leave earlier.
+ - I find it terrible when talents are rejected based on computer stats. Based on the criteria at Ajax now I would have been rejected. When I was 15, I couldn’t kick a ball 15 meters with my left and maybe 20 with my right. My qualities technique and vision, are not detectable by a computer.
+ - If you have the ball you must make the field as big as possible, and if you don’t have the ball you must make it as small as possible.
+ - Footballers from the street are more important than trained coaches.
+ - There’s only one moment in which you can arrive in time. If you’re not there, you’re either too early or too late.
+ - Football is simple but the hardest thing to do is play simple football.
+ - Without the ball, you can’t win.
+ - Players that aren’t true leaders but try to be, always bash other players after a mistake. True leaders on the pitch already assume others will make mistakes.
+ - Speed is often confused with insight. When I start running earlier than the others, I appear faster.
+ - To win you have to score one more goal than your opponent.
+ - Football is a simple game. It’s just very hard to play it simple.
+ - Sometimes something’s got to happen before something is going to happen.
+ - There is only one ball, so you need to have it.
+ - For the world of football, Messi is a treasure because he is role model for children around the world.
+ - Football is a game you play with your brain.
+ - I look at Messi, and he makes me laugh. A beautiful footballer who is still like a kid. A world superstar, but still a kid. Innocent, you know. He just plays.
+ - I still have a lot of room for improvement.
+ - I’m not religious. In Spain all 22 players make the sign of the cross before they enter the pitch. If it works all matches must therefore end in a draw.
+ - When you’re playing against a team that has two great central defenders, the best option is to play without a striker.
+ - Players today can only shoot with their laces. I could shoot with the inside, laces, and outside of both feet. In other words, I was six times better than today’s players.
+ - Ronaldo is better than George Best and Denis Law, who were two brilliant and great players in the history of United.
+ - One trophy is good, but two are better. That way, when a hero wears his medals on his chest, at least his steps are level as he walks by.
+ - I’m ex-player, ex-technical director, ex-coach, ex-manager, ex-honorary president. A nice list that once again shows that everything comes to an end.
+ - Surviving the first round is never my aim. Ideally, I’d be in one group with Brazil, Argentina and Germany. Then I’d have lost two rivals after the first round. That’s how I think. Idealisitic.
+ - Eric Cantona is a great player, but he’s not as good as Ryan Giggs.
+ - The difference between right and wrong is often not more than five metres.
+ - We must make sure their worst players get the ball the most. You’ll get it back in no time.
+ - The ball is an essential part of the game.
+ - There are very few players who know what to do when they’re not marked. So sometimes you tell a player: that attacker is very good, but don’t mark him.
+ - Mourinho is a coach of titles, not football. Or rather, not a football coach if we understand the sport is a spectacle or entertainment for those who watch it, either at home or live in the stadium.
+ - After you’ve won something, you’re no longer 100 percent, but 90 percent. It’s like a bottle of carbonated water where the cap is removed for a short while. Afterwards there’s a little less gas inside.
+ - I don’t make a lot of mistakes, because it’s hard for me to be wrong.
+ - Football is about having the best offensive play possible. I always like to play offensive football, and nobody will convince me otherwise.
+ - Often you see people who move there and then, once they have arrived, the ball moves here after which they also come here, but then the ball goes there again. I say: just stay where you are, then you are in any case at the right place half of the time.
+ - I felt sorry for the match ball – it came off the pitch crying.
+ - To play well, you need good players, but a good player almost always has the problem of a lack of efficiency. He always wants to do things prettier than strictly necessary.
+ - In small space a player has to be capable of acting quickly. A good player who needs too much time can suddenly become a poor player.
+ - Actually I never make a mistake, because it takes a huge effort for me to make a mistake.
+ - Someone who has juggled the ball in the air during a game, after which four defenders of the opponent get the time to run back, that’s the player people think is great. I say he has to go to a circus.
+ - Every professional golfer has a separate coach for his drives, for approaches, for putting. In football we have one coach for 15 players. This is absurd.
+ - Italians can’t win the game against you, but you can lose the game against the Italians.
+ - I don’t want to be a thief of my own wallet.
+ - I always threw the ball in, because then if I got the ball back, I was the only player unmarked.
+ - He deserves ten out of ten for doing what he does. He is a sensation, but still he can improve. He must know when to move the ball on quickly and when to try the impossible mission. When he learns this, he won’t win a single Golden Ball, but an entire collection.
+ - The most difficult thing about an easy match is to make a weak opponent play bad football.
+ - Playing against 10 is harder than playing against 11 players. You know why? The team with 11 will think “ok, we can take it easy now”, while the team with 10 will think “We really have to work hard now.”
+
+62 quotes

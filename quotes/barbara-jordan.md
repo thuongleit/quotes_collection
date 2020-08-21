@@ -1,0 +1,65 @@
+ - How do we create a harmonious society out of so many kinds of people? The key is tolerance – the one value that is indispensable in creating community.
+ - We, as human beings, must be willing to accept people who are different from ourselves.
+ - What the people want is very simple – they want an America as good as its promise.
+ - I live a day at a time. Each day I look for a kernel of excitement. In the morning, I say: ‘What is my exciting thing for today?’ Then, I do the day. Don’t ask me about tomorrow.
+ - If the society today allows wrongs to go unchallenged, the impression is created that those wrongs have the approval of the majority.
+ - Education remains the key to both economic and political empowerment.
+ - Do not call for black power or green power. Call for brain power.
+ - A nation is formed by the willingness of each of us to share in the responsibility for upholding the common good.
+ - We call ourselves public servants but I’ll tell you this: we as public servants must set an example for the rest of the nation. It is hypocritical for the public official to admonish and exhort the people to uphold the common good.
+ - Just remember the world is not a playground but a schoolroom. Life is not a holiday but an education. One eternal lesson for us all: to teach us how better we should love.
+ - A good compromise, a good piece of...
+ - Today, I am an inquisitor. I shall not sit here and be an idle spectator to the diminution, the subversion, the destruction of the Constitution.
+ - If you are dissatisfied with they way things are, then you have got to resolve to change them.
+ - Credibility in immigration policy can be summed up in one sentence: Those who should get in, get in; those who should be kept out, are kept out; and those who should not be here will be required to leave.
+ - One thing is very clear: Illegal immigrants are not entitled to benefits.
+ - I get from the soil and spirit of Texas the feeling that I, as an individual, can accomplish whatever I want to, and that there are no limits, that you can just keep going, just keep soaring. I like that spirit.
+ - Americanization means the process of becoming an American. It means civic incorporation, becoming a part of the polity – becoming one of us. But that does not mean conformity. We are more than a melting pot, we are a kaleidoscope, where every turn of history refracts new light on the old promise.
+ - It is reason, and not passion, which must guide our deliberations, guide our debate, and guide our decision.
+ - I believe that women have a capacity for understanding and compassion which a man structurally does not have, does not have it because he cannot have it. He’s just incapable of it.
+ - We must exchange the philosophy of excuse – what I am is beyond my control for the philosophy of responsibility.
+ - But this is the great danger America faces. That we will cease to be one nation and become instead a collection of interest groups: city against suburb, region against region, individual against individual. Each seeking to satisfy private wants.
+ - We are a party of innovation. We do not reject our traditions, but we are willing to adapt to changing circumstances, when change we must. We are willing to suffer the discomfort of change in order to achieve a better future.
+ - We have a positive vision of the future founded on the belief that the gap between the promise and reality of America can one day be finally closed. We believe that.
+ - The Supreme Court has always been the last bastion of the protection of our freedoms.
+ - More is required of public officials than slogans and handshakes and press releases. More is required. We must hold ourselves strictly accountable. We must provide the people with a vision of the future.
+ - A government is invigorated when each of us is willing to participate in shaping the future of this nation.
+ - It is a privilege to serve people, a privilege that must be earned, and once earned, there is an obligation to do something good with it.
+ - I felt somehow for many years that George Washington and Alexander Hamilton just left me out by mistake. But through the process of amendment, interpretation, and court decision, I have finally been included in ‘We, the people.’
+ - For our immigration policy to make sense, it is necessary to make distinctions between those who obey the law, and those who violate it.
+ - It is both a right and a responsibility of a democratic society to manage immigration so that it serves the national interest.
+ - Let each person do his or her part. If one citizen is unwilling to participate, all of us are going to suffer. For the American idea, though it is shared by all of us, is realized in each one of us.
+ - We cannot improve on the system of government handed down to us by the founders of the Republic. There is no way to improve upon that. But what we can do is to find new ways to implement that system and realize our destiny.
+ - We are a people in a quandary about the present. We are a people in search of our future. We are a people in search of a national community.
+ - What we have to do is strike a balance between the idea that government should do everything and the idea, the belief, that government ought to do nothing. Strike a balance.
+ - A spirit of harmony can only survive if each of us remembers, when bitterness and self-interest seem to prevail, that we share a common destiny.
+ - There is no obstacle in the path of young people who are poor or members of minority groups that hard work and preparation cannot cure.
+ - We want to be in control of our lives. Whether we are jungle fighters, craftsmen, company men, gamesmen, we want to be in control. And when the government erodes that control, we are not comfortable.
+ - In other times, I could stand here and give this kind of exposition on the beliefs of the Democratic Party and that would be enough. But today that is not enough. People want more.
+ - I think it no accident that most of those emigrating to America in the 19th century identified with the Democratic Party. We are a heterogeneous party made up of Americans of diverse backgrounds.
+ - I never wanted to be run of the mill.
+ - The citizens of America expect more. They deserve and they want more than a recital of problems.
+ - The imperative is to define what is right and do it.
+ - Think what a better world it would be if we all, the whole world, had cookies and milk about three o’clock every afternoon and then lay down on our blankets for a nap.
+ - If we promise as public officials, we must deliver. If we as public officials propose, we must produce.
+ - Let’s all understand that these guiding principles cannot be discarded for short-term political gains. They represent what this country is all about. They are indigenous to the American idea. And these are principles which are not negotiable.
+ - Even as I stand here and admit that we have made mistakes I still believe that as the people of America sit in judgment on each party, they will recognize that our mistakes were mistakes of the heart. They’ll recognize that.
+ - We believe that the people are the source of all governmental power; that the authority of the people is to be extended, not restricted.
+ - We can certainly defuse the intensity of the anti-immigrant feeling if we can bring some reality to the discussion by showing that they are not using that many resources.
+ - Things which matter cost money, and we’ve got to spend the money if we do not want to have generations of parasites rather than generations of productive citizens.
+ - If youre going to play the game properly, youd better know every rule.
+ - There is no executive order; there is no law that can require the American people to form a national community. This we must do as individuals and if we do it as individuals, there is no President of the United States who can veto that decision.
+ - Justice of right is always to take precedence over might.
+ - Let there be no illusions about the difficulty of forming this kind of a national community. It’s tough, difficult, not easy. But a spirit of harmony will survive in America only if each of us remembers that we share a common destiny.
+ - I have confidence that we can form this kind of national community.
+ - We must not become the new puritans and reject our society. We must address and master the future together. It can be done if we restore the belief that we share a sense of national community, that we share a common national endeavor. It can be done.
+ - Throughout out history, when people have looked for new ways to solve their problems, and to uphold the principles of this nation, many times they have turned to political parties. They have often turned to the Democratic Party.
+ - The earth is bread we take and eat.
+ - We are a heterogeneous party made up of Americans of diverse backgrounds.
+ - I have faith in young people because I know the strongest emotions which prevail are those of love and caring and belief and tolerance.
+ - Our concept of governing is derived from our view of people. It is a concept deeply rooted in a set of beliefs firmly etched in the national conscience, of all of us.
+ - When do any of us ever do enough?
+ - The majority of the American people still believe that every single individual in this country is entitled to just as much respect, just as much dignity, as every other individual.
+ - Let us heed the voice of the people and recognize their common sense. If we do not, we not only blaspheme our political heritage, we ignore the common ties that bind all Americans.
+
+63 quotes

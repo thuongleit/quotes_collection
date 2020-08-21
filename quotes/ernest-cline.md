@@ -1,0 +1,44 @@
+ - No one in the world gets what they want and that is beautiful.
+ - Being human totally sucks most of the time. Videogames are the only thing that make life bearable.
+ - Going outside is highly overrated.
+ - One person can keep a secret, but not two.
+ - You’d be amazed how much research you can get done when you have no life whatsoever.
+ - Whenever I saw the sun, I reminded myself that I was looking at a star. One of over a hundred billion in our galaxy. A galaxy that was just one of billions of other galaxies in the observable universe. This helped me keep things in perspective.
+ - A river of words flowed between us.
+ - You were born at a pretty crappy time in history. And it looks like things are only gonna get worse from here on out.
+ - I felt like a kid standing in the world’s greatest video arcade without any quarters, unable to do anything but walk around and watch the other kids play.
+ - I never ran out of ammo, because each time I fired a round, a new round was teleported into the bottom of the clip. My bullet bill this month was going to be huge.
+ - I was obsessed. I wouldn’t quit. My grades suffered. I didn’t care.
+ - Continue your quest by taking the test. Yes, but what test? What test was I supposed to take? The Kobayashi Maru? The Pepsi Challenge? Could the clue have been any more vague?
+ - I was one of the boys who made passes at girls who wore glasses. Any girl who was smarter than me – that was a huge turn-on.
+ - I watched a lot of YouTube videos of cute geeky girls playing ’80s cover tunes on ukuleles. Technically, this wasn’t part of my research, but I had a serious cute-geeky-girls-playing-ukuleles fetish that I can neither explain nor defend.
+ - For one quarter, Black Tiger lets me escape from my rotten existence for three glorious hours. Pretty good deal.
+ - It’s so much better to hand over a finished book than having all these people waiting.
+ - You’re probably wondering what’s going to happen to you. That’s easy. The same thing is going to happen to you that has happened to every other human being who has ever lived. You’re going to die. We all die. That’s just how it is.
+ - Everybody uses pop culture as a shorthand.
+ - Video games paid for my house. What am I saying? Go ahead and keep playing!
+ - In the far reaches of the world, under a lost and lonely hill, lies the TOMB OF HORRORS. This labyrinthine crypt is filled with terrible traps, strange and ferocious monsters, rich and magical treasures, and somewhere within rests the evil DemiLich.
+ - I have a thing for evil bald bad guys. The Kurgan is too sexy.
+ - I burned through all of my extra lives in a matter of minutes, and my two least-favorite words appeared on the screen: GAME OVER.
+ - I don’t know if the ’80s were unique, but we certainly got original, groundbreaking stuff at the time with movies like ‘Back to the Future’ and ‘Star Wars’ – movies that became classics.
+ - The clans began to bombard the outer force field with rockets, missiles, nukes, and harsh language.
+ - I was 7 years old when the ’80s began and 17 years old when they ended, so it was an incredibly formative decade for me.
+ - Everybody uses pop culture as a shorthand. You might make an obscure reference to Monty Python or Iron Eagle that only some people will get, but if they do it conveys a world of meaning.
+ - I wanted to be able to write in the voice that I talk to my friends and assume that everybody would know what I was talking about.
+ - I notice when I’m at a party where I don’t know anybody – even if I have nothing in common with somebody – we can still talk because we were raised by the same TV and cartoons and movies.
+ - As far as my house, I have a ton of video games and three or four old consoles.
+ - Everybody has this fond association with the car from Back to the Future, but most people have never seen one. I’ve seen people drive off the berm trying to take pictures. It ends up being dangerous.
+ - My characters are all kind of geek archetypes of people I’ve encountered at gaming and comic book conventions.
+ - I’d designed my avatar’s face and body to look, more or less, like my own. My avatar had a slightly smaller nose than me, and he was taller. And thinner. And more muscular. And he didn’t have any teenage acne. But aside from these minor details, we looked more or less identical.
+ - I think it’s a bit silly to brand the Internet as the ‘downfall of youth.’
+ - I’ve retroactively made all that wasted time rotting my brain into research. It makes me a hypocrite when I try to tell my own daughter, “I don’t know, I think we’ve played a little too much Mario.”
+ - I was just starting out, trying to become a screenwriter, and I became the Austin slam champion three times. For a nerdy, kind of a socially awkward guy, that did wonders for my self esteem.
+ - I’ve wanted to own a DeLorean since I was 10 years old, but it always seemed like a silly daydream. Like owning the ‘A-Team’ van or something.
+ - I was watching a collection of vintage ’80s cereal commercials when I paused to wonder why cereal manufacturers no longer included toy prizes inside every box. It was a tragedy, in my opinion. Another sign that civilization was going straight down the tubes.
+ - I’ve never really collected anything other than old Atari cartridges. I only had, like, 12 Atari games as a kid, so at some point in my 20s I decided I was going to own all of them.
+ - I’ve heard Stephen King say that when you write a novel you end up revealing everything about yourself.
+ - Cops pull me over just to get a better look. They never give me a ticket, even if I’m speeding, but they will ask to take pictures.
+ - I’m incredibly nostalgic for the ’80s, because I think that’s when Geek Culture really kicked in to high gear.
+ - I’ve been invited to speak at about 20 colleges. There’s always this moment when I’m having dinner with the college president: ‘Ernie, where’d you go to school?’
+
+42 quotes

@@ -1,0 +1,108 @@
+ - Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.
+ - You can't wait for inspiration. You have to go after it with a club.
+ - I would rather be ashes than dust.
+ - The proper function of man is to live, not to exist. I shall not waste my days in trying to prolong them. I shall use my time.
+ - Kill or be killed, eat or be eaten, was the law; and this mandate, down out of the depths of Time.
+ - I do not live for what the world thinks of me, but for what I think of myself.
+ - The function of man is to live, not to exist.
+ - I’d rather sing one wild song and burst my heart with it, than live a thousand years watching my digestion and being afraid of the wet.
+ - The Wild still lingered in him and the wolf in him merely slept.
+ - The most beautiful stories always start with wreckage.
+ - Not all the monsters have fangs.
+ - But I am I. And I won’t subordinate my taste to the unanimous judgment of mankind.
+ - My life shall be free and broad and great, and I will not be the slave to the sense delights which chained my ancient ancestry. I reject the heritage. I break the entail. And who are you to say I am unwise?
+ - Desire is a pain which seeks easement through possession.
+ - White Fang knew the law well: to oppress the weak and obey the strong.
+ - Alcohol tells truth, but its truth is not normal.
+ - I would rather that my spark should burn out in a brilliant blaze than it should be stifled by dry-rot.
+ - Show me a man with a tattoo and I’ll show you a man with an interesting past.
+ - The game of life is good, though all of life may be hurt, and though all lives lose the game in the end.
+ - He was a killer, a thing that preyed, living on the things that lived, unaided, alone, by virtue of his own strength and prowess, surviving triumphantly in a hostile environment where only the strong survive.
+ - The Stone the Builders Rejected.
+ - There is an ecstasy that marks the summit of life, and beyond which life cannot rise. And such is the paradox of living, this ecstasy comes when one is most alive, and it comes as a complete forgetfulness that one is alive.
+ - The word is too weak. There is no word in the language strong enough to describe my feelings.
+ - Fear urged him to go back, but growth drove him on.
+ - A human life the treasure of the world cannot buy; nor can it redeem one which is misspent; nor can it make full and complete and beautiful a life which is dwarfed and warped and ugly.
+ - Life is so short. I would rather sing one song than interpret the thousand.
+ - Don’t loaf and invite inspiration; light out after it with a club, and if you don’t get it you will nonetheless get something that looks remarkably like it.
+ - You look back and see how hard you worked and how poor you were, and how desperately anxious you were to succeed, and all you can remember is how happy you were.
+ - And at the instant he knew, he ceased to know.
+ - As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt.
+ - The ghostly winter silence had given way to the great spring murmur of awakening life.
+ - Affluence means influence.
+ - A bone to the dog is not charity. Charity is the bone shared with the dog, when you are just as hungry as the dog.
+ - He was mastered by the sheer surging of life, the tidal wave of being, the perfect joy of each separate muscle, joint, and sinew in that it was everything that was not death, that it was aglow and rampant, expressing itself in movement, flying exultantly under the stars.
+ - I would rather be a superb meteor, every atom of me in magnificent glow, than a sleepy and permanent planet.
+ - It’s better to stand by someone’s side than by yourself.
+ - Limited minds can recognize limitations only in others.
+ - There are things greater than our wisdom, beyond our justice. The right and wrong of this we cannot say, and it is not for us to judge.
+ - My mistake was in ever opening the books.
+ - Love is the sum of all the arts, as it is the reason for their existence.
+ - I believe that when I am dead, I am dead. I believe that with my death I am just as much obliterated as the last mosquito you and I squashed.
+ - Food and fire, protection and companionship, were some of the things he received from the god. In return, he guarded the god’s property, defended his body, worked for him, and obeyed him.
+ - He was always striving to attain it. The life that was so swiftly expanding within him, urged him continually toward the wall of light. The life that was within him knew that it was the one way out, the way he was predestined to tread.
+ - This expression of abandon and surrender, of absolute trust, he reserved for the master alone.
+ - He was a silent fury who no torment could tame.
+ - You stand on dead men’s legs. You’ve never had any of your own. You couldn’t walk alone between two sunrises and hustle the meat for your belly.
+ - Love, genuine passionate love, was his for the first time.
+ - To be able to forget means sanity.
+ - Mercy did not exist in the primordial life. It was misunderstood for fear, and such misunderstandings made for death.
+ - Go strip off your clothes that are a nuisance in this mellow clime. Get in and wrestle with the sea; wing your heels with the skill and power that reside in you, hit the sea’s breakers, master them, and ride upon their backs as a king should.
+ - There is such a thing as anesthesia of pain, engendered by pain too exquisite to be borne.
+ - Intelligent men are cruel. Stupid men are monstrously cruel.
+ - Ever bike? Now that’s something that makes life worth living!
+ - Man is a flux of states of consciousness, a flow of passing thoughts, each thought of self another self, a myriad thoughts, a myriad selves, a continual becoming but never being, a will-of-the-wisp flitting of ghosts in ghostland.
+ - His bondage had softened him. Irresponsibility had weakened him. He had forgotten how to shift for himself. The night yawned about him.
+ - One cannot violate the promptings of one’s nature without having that nature recoil upon itself.
+ - I was jealous; therefore I loved.
+ - Man rarely places a proper valuation upon his womankind, at least not until deprived of them.
+ - A man with a club is a law-maker.
+ - The Law is a lie, and through it men lie most shamelessly.
+ - For the pride of trace and trail was his, and sick unto death, he could not bear that another dog should do his work.
+ - The greatest of the arts is the conquering of men.
+ - I did not begin when I was born, nor when I was conceived. I have been growing, developing, through incalculable myriads of millenniums. All my previous selves have their voices, echoes, promptings in me. Oh, incalculable times again shall I be born.
+ - He was justifying his existence, than which life can do no greater; for life achieves its summit when it does to the uttermost that which it was equipped to do.
+ - Denied the outlet, through play, of his energies, he recoiled upon himself and developed his mental processes. He became cunning; he had idle time in which to devote himself to thoughts of trickery.
+ - I remembered my days and nights of sunshine and starshine, where life was all a wild sweet wonder, a spiritual paradise of unselfish adventure and ethical romance. And I saw before me, ever blazing and burning, the Holy Grail.
+ - Some sorts of truth are truer than others.
+ - Out of this pack-persecution he learned two important things: how to take care of himself in a mass-fight against him; and how, on a single dog, to inflict the greatest amount of damage in the briefest space of time.
+ - Buck did not read the newspapers, or he would have known that trouble was brewing, not alone for himself, but for every tide-water dog, strong of muscle and with warm, long hair, from Puget Sound to San Diego.
+ - The scab is a traitor to his God, his mother, and his class.
+ - Somehow, the love of the islands, like the love of a woman, just happens. One cannot determine in advance to love a particular woman, nor can one so determine to love Hawaii.
+ - Strength is an empty shell.
+ - He was sounding the deeps of his nature, and of the parts of his nature that were deeper than he, going back into the womb of Time.
+ - So that was the way. No fair play. Once down, that was the end of you.
+ - Men do not knowingly drink for the effect alcohol produces on the body. What they drink for is the brain-effect; and if it must come through the body, so much the worse for the body.
+ - Life, in a sense, is living and surviving. And all that makes for living and surviving is good. He who follows the fact cannot go astray, while he who has no reverence for the fact wanders afar.
+ - San Francisco is gone. Nothing remains of it but memories.
+ - It is so much easier to live placidly and complacently. Of course, to live placidly and complacently is not to live at all.
+ - Too much is written by the men who can’t write about the men who do write.
+ - Cruelty, as a fine art, has attained its perfect flower in the trained-animal world.
+ - But under it all they were men, penetrating the land of desolation and mockery and silence, puny adventurers bent on colossal adventure, pitting themselves against the might of a world as remote and alien and pulseless as the abysses of space.
+ - He was not immoral, but merely unmoral.
+ - The human race is doomed to sink back farther and farther into the primitive night ere again it begins its bloody climb upward to civilization.
+ - In a saturated population life is always cheap.
+ - Pursuit and possession are accompanied by states of consciousness so wide apart that they can never be united.
+ - A good joke will sell quicker than a good poem, and, measured in sweat and blood, will bring better remuneration.
+ - Age is never so old as youth would measure it.
+ - If cash comes with fame, come fame; if cash comes without fame, come cash.
+ - Of her own experience she had no memory of the thing happening; but in her instinct, which was the experience of all mothers of wolves, there lurked a memory of fathers that had eaten their new-born and helpless progeny.
+ - The loneliness of the man is slowly being borne in upon me. There is not a man aboard but hates or fears him, nor is there a man whom he does not despise.
+ - She was thrilling to a desire that urged her to go forward, to be in closer to that fire, to be squabbling with the dogs, and to be avoiding and dodging the stumbling feet of men.
+ - The aim of life was meat. Life itself was meat. Life lived on life. There were the eaters and the eaten.
+ - It is good that man should accept at face value the cheats of sense and snares of flesh, and through the fogs of sentiency pursue the lures and lies of passion.
+ - Don’t write too much. Concentrate your sweat on one story, rather than dissipate it over a dozen.
+ - I was five years old the first time I got drunk.
+ - Having no new companions, nothing remained for him but to read.
+ - Where others have hearts, he carries a tumor of rotten principles.
+ - Thus it was that in obedience to the law laid down by his mother, and in obedience to the law of that unknown and nameless thing, fear, he kept away from the mouth of the cave.
+ - If a company is distributing images and video then obviously they need bandwidth solutions. But if they are looking to the mass market then they must develop WAP sites.
+ - Then one can’t make a living out of poetry? Certainly not. What fool expects to? Out of rhyming, yes.
+ - They were not half living, or quarter living. They were simply so many bags of bones in which sparks of life fluttered faintly.
+ - Socialism, when the last word is said, is merely a new economic and political system whereby more men can get food to eat.
+ - The man, with his brain, can pierce the intoxicating mirage of things and contemplate a frozen universe in the most perfect indifference to him and his dreams.
+ - And how have I lived? Frankly and openly, though crudely. I have not been afraid of life. I have not shrunk from it. I have taken it for what it was at its own valuation. And I have not been ashamed of it. Just as it was, it was mine.
+ - I write for no other purpose than to add to the beauty that now belongs to me.
+ - It was the worst hurt he had ever known.
+
+106 quotes

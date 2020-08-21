@@ -1,0 +1,46 @@
+ - A government is an institution that holds a monopoly on the legitimate use of violence.
+ - Charisma is the gift from above where a leader knows from inside himself what to do.
+ - The decisive means for politics is violence.
+ - Power is the chance to impose your will within a social context, even when opposed and regardless of the integrity of that chance.
+ - The fate of our times is characterized by rationalization and intellectualization and, above all, by the disenchantment of the world.
+ - Precision, speed, unambiguity, knowledge of files, continuity, discretion, unity, strict subordination, reduction of friction and of material and personal costs – these are raised to the optimum point in the strictly bureaucratic administration.
+ - In a democracy the people choose a leader in whom they trust. Then the chosen leader says, ‘Now shut up and obey me.’ People and party are then no longer free to interfere in his business.
+ - Either one lives for politics or one lives off politics.
+ - Not everyone realises that to write a really good piece of journalism is at least as demanding intellectually as the achievement of any scholar.
+ - The Truth is the Truth.
+ - Politics is a strong and slow boring of hard boards.
+ - It is not true that good can only follow from good and evil only from evil, but that often the opposite is true.
+ - Ideas come when we do not expect them, and not when we are brooding and searching at our desks. Yet ideas would certainly not come to mind had we not brooded at our desks and searched for answers with passionate devotion.
+ - All the analysis of infinite reality which the finite human mind can conduct rests on the tacit assumption that only a finite portion of this reality constitutes the object of scientific investigation, and that only it is ‘important’ in the sense of being ’worthy of being known.
+ - Certainly all historical experience confirms the truth – that man would not have attained the possible unless time and again he had reached out for the impossible.
+ - Politics means striving to share power or striving to influence the distribution of power, either among states or among groups within a state.
+ - Within the confines of the lecture hall, no other virtue exists but plain intellectual integrity.
+ - Laws are important and valuable in the exact natural sciences, in the measure that those sciences are universally valid.
+ - Puritanism carried the ethos of the rational organization of capital and labor. It took over from the Jewish ethic only what was adapted to this purpose.
+ - All research in the cultural sciences in an age of specialization, once it is oriented towards a given subject matter through particular settings of problems and has established its methodological principles, will consider the analysis of the data as an end in itself.
+ - Man does not by nature wish to earn more and more money.
+ - Nothing is worthy of man as man unless he can pursue it with passionate devotion.
+ - All knowledge of cultural reality, as may be seen, is always knowledge from particular points of view.
+ - Causal analysis provides absolutely no value judgment, and a value judgment is absolutely not a causal explanation.
+ - The fully developed bureaucratic apparatus compares with other organisations exactly as does the machine with the non-mechanical modes of production.
+ - The experience of the irrationality of the world has been the driving force of all religious revolution.
+ - The primary task of a useful teacher is to teach his students to recognize ‘inconvenient’ facts – I mean facts that are inconvenient for their party opinions.
+ - Every scientific fulfillment raises new questions; it asks to be surpassed and outdated.
+ - The purely emotional form of Pietism is, as Ritschl has pointed out, a religious dilettantism for the leisure class.
+ - Only by strict specialization can the scientific worker become fully conscious, for once and perhaps never again in his lifetime, that he has achieved something that will endure. A really definitive and good accomplishment is today always a specialized act.
+ - One cannot with impunity try to transfer this task entirely to mechanical assistants if one wishes to figure something, even though the final result is often small indeed.
+ - The ethic of conviction and the ethic of responsibility are not opposites. They are complementary to one another.
+ - It is not astonishing that there are many journalists who have become human failures and worthless men. Rather, it is astonishing that, despite all this, this very stratum includes such a great number of valuable and quite genuine men, a fact that outsiders would not so easily guess.
+ - Social economic problems do not exist everywhere that an economic event plays a role as cause or effect – since problems arise only where the significance of those factors is problematical and can be precisely determined only through the application of methods of social-economics.
+ - A highly developed stock exchange cannot be a club for the cult of ethics.
+ - The so-called materialistic conception of history, with the crude elements of genius of the early form which appeared, for instance, in the Communist Manifesto, still prevails only in the minds of laymen and dilettantes.
+ - Only on the assumption of belief in the validity of values is the attempt to espouse value-judgments meaningful. However, to judge the validity of such values is a matter of faith .
+ - No sociologist should think himself too good, even in his old age, to make tens of thousands of quite trivial computations in his head and perhaps for months at a time.
+ - The nation is burdened with the heavy curse on those who come afterwards. The generation before us was inspired by an activism and a naive enthusiasm, which we cannot rekindle, because we confront tasks of a different kind from those which our fathers faced.
+ - Every type of purely direct concrete description bears the mark of artistic portrayal.
+ - Daily and hourly, the politician inwardly has to overcome a quite trivial and all-too-human enemy: a quite vulgar vanity.
+ - Whenever known and sufficient causes are available, it is anti-scientific to discard them in favour of a hypothesis that can never be verified.
+ - One can say that three pre-eminent qualities are decisive for the politician: passion, a feeling of responsibility, and a sense of proportion.
+ - Only he has the calling for politics who is sure that he will not crumble when the world from his point of view is too stupid or base for what he wants to offer. Only he who in the face of all this can say In spite of all! has the calling for politics.
+
+44 quotes

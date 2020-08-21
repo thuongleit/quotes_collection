@@ -1,0 +1,52 @@
+ - You create your own reality.
+ - SETH said: When the intellect is used properly, it thinks of a goal and automatically sets the body in motion toward it, and automatically arouses the other levels of communication unknown to it, so that all forces work together toward the achievement.
+ - Suffering is not good for the soul, unless it teaches you how to stop suffering. That is its purpose.
+ - The dreamer dreams, and the dreamer within the dream dreams.
+ - By going along with feelings, you unify your emotional, mental and bodily states. When you try to fight or deny them, you divorce yourself from the reality of your being.
+ - You must begin to trust yourself. If you do not then you will forever be looking to others to prove your own merit to you, and you will never be satisfied. You will always be asking others what to do, and at the same time, resenting those from whom you seek such aid.
+ - The Point of Power Is in the Present.
+ - You change the most permanent-seeming conditions of your life constantly through the varying attitudes you have toward them.
+ - The imagination, backed by great expectations, can bring about almost any reality within the range of probalities.
+ - I stand upon a block of stillness. It is more secure than any sidewalk. I bring with me my own sidewalk.
+ - You are in physical existence to learn and understand that your energy, translated into feelings, thoughts and emotions, causes all experience. There are no exceptions.
+ - The human personality has no limitations except those which it accepts.
+ - Beneath words and logic are emotional connections that largely direct how we use our words and logic.
+ - If the world was taking care of women, women would take care of the world.
+ - Yours is the energy that makes your world. There are no limitations to the self except those you believe in.
+ - The detective and his criminal wear versions of the same mask.
+ - You each have the same energy and it sings within you. You need not be shy of it, it is your own. You need not look to gurus, or Gods, or Seths. It dwells within your own being.
+ - There seems to be no unexpressed self in animals, as if they are as fully themselves in flesh as possible, with no lag of consciousness to fill up, while we keep trying to grow into something else.
+ - Believe, then, that you are a being unlimited by nature, born into flesh to materialize as best you can the great joy and spontaneity of your nature.
+ - Dreaming or awake, we perceive only events that have meaning to us.
+ - Dreams are one of your greatest natural therapies, and one of your most effective assets as connectors between the interior and exterior universes.
+ - You, being yourself, help others be themselves. Because you recognize your own uniqueness you will not need to dominate others, nor cringe before them.
+ - You are given the gifts of the gods; you create your reality according to your beliefs.
+ - One of these days, you’re going to fall in love with some guy, and you’re not going to know what to do with yourself.
+ - By accepting yourself and being fully what you are, your presence can make others happy.
+ - The channels of intuitive knowledge are opened according to the intensity of individual need.
+ - You cannot will yourself to be happy while believing that you have no right to happiness, or that you are unworthy of it. You cannot tell yourself to release aggressive thoughts if you think it is wrong to free them, so you must come to grips with your beliefs in all instances.
+ - And, if you believe, in very simple terms, that people mean you well, and will treat you kindly, they will. And, if you believe that the world is against you, then so it will be in your experience. And, if you believe that you will begin to deteriorate at age 22, then so you shall.
+ - Each of us seems to have a main focus, a particular idea of practicality – a concept of ‘what we want out of life’ against which we judge our experiences.
+ - I kept looking for a logic that would explain life. It never occurred to me that instead love is the vital synthesis.
+ - The easiest time to cure an illness is before it is accepted as a part of the self-image.
+ - I will be unneeded, and gladly so, when you realize that the vitality and reinforcement and joy are your own, and rise from the fountain of your own beings; when you realize that you do not need me for protection, for there is nothing you need protect yourself against.
+ - Personally, I am convinced the human personality does survive the change which we call death. Although we have no scientific evidence of this at present, there is no reason to suppose it will always be lacking.
+ - You are never bereft of your inner guidance.
+ - Within your physical atoms the origins of all consciousness still sings.
+ - In terms of earthly life as you understand it, it is overly optimistic to imagine that eventually all illnesses will be conquered, all relationships be inevitably fulfilling, or to foresee a future in which all people on earth are treated with equality and respect.
+ - Your desire or beliefs will literally be reaching back into time, teaching the nerves new tricks. Definite reorganizations in that past will occur in your present, allowing you to behave in entirely new fashions. Learned behavior therefore alters not only present and future but also past conduct.
+ - You should tell yourself frequently ‘I will only react to constructive suggestions.’ This gives you positive ammunition against your own negative thoughts and those of others.
+ - The flesh is as spiritual as the soul, and the soul is as natural as the flesh.
+ - When you affirm your own Tightness in the universe, then you co operate with others easily and automatically as part of your own nature. You, being yourself, help others be themselves.
+ - If toes had eyes, then I could see how my feet know where to go, but toes are blind. And how is it that my tongue speaks words it cannot hear? Because for all its eloquence, the tongue itself is deaf, and flaps in soundlessness.
+ - To make sense to us as physical creatures, any ‘truth’ must undergo transformations, be couched in certain terms or we couldn’t understand it.
+ - When we give way to joy, we do not feel that we have lost control, but gained freedom.
+ - If it is finally accepted that the personality in whole or part survives death – and I believe that it will be – then such a belief will be considered as modern as a belief in spaceships and rockets.
+ - Each mental act opens up a new dimension of actuality. In a manner of speaking, your slightest thought gives birth to worlds.
+ - The old beliefs, of course, and the rational approach, are everywhere reinforced, and so it does have a great weight. The magical approach has far greater weight, if you use it and allow yourselves to operate in that fashion, for it has the weight of your basic natural orientation.
+ - You create your life through the inner power of your being, whose source is within you and yet beyond the selves that you know. Use those creative abilities with understanding abandon. Honor yourselves and move through the godliness of your being.
+ - Hate is love looking for itself everyplace but where love is.
+ - Dreams can be like charades in which we act out words rather than see or speak them.
+ - When every young man refuses to go to war, you will have peace. You do not defend any idea with violence.
+
+50 quotes

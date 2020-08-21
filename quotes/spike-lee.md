@@ -1,0 +1,106 @@
+ - It has been my observation that parents kill more dreams than anybody.
+ - I ain’t Martin Luther King. I don’t need a dream. I have a plan.
+ - Power is knowing your past.
+ - When you love something it’s not a job anymore.
+ - If we became students of Malcolm X, we would not have young black men out there killing each other like they’re killing each other now. Young black men would not be impregnating young black women at the rate going on now. We’d not have the drugs we have now, or the alcoholism.
+ - Those that’ll tell don’t know, and those that know won’t tell.
+ - I give interracial couples a look. Daggers. They get uncomfortable when they see me on the street.
+ - I’ve never seen black men with fine white women. They be ugly. Mugly dogs.
+ - First of all, what in this world does not revolve around money? But money is a big part of film, unlike a lot of other art forms.
+ - I miss my brother. Prince was a funny cat. Great sence of humor.
+ - My grandmother lived to be 100 years old. Her grandmother was a slave, yet she was a college graduate in the Spellman class of 1917. She taught art for 50 years and she saved her Social Security checks for her children’s education.
+ - It gets dangerous when you start allowing people to validate your work...
+ - I may have been born yesterday, but I stayed up all night.
+ - We grew up in a very creative environment and were exposed to the arts at a very young age, so it’s not a surprise that all of us are in some form of the arts.
+ - Don’t think that because you haven’t heard from me for a while that I went to sleep. I am still here, like a spirit roaming the night. Thirsty, hungry, seldom stopping to rest.
+ - American slavery was not a Sergio Leone Spaghetti Western. It was a holocaust. My ancestors are slaves. Stolen from Africa. I will honor them.
+ - Cause mo better makes it mo better.
+ - I had a great education. From kindergarten to John Dewey High School in Coney Island, I am public-school educated.
+ - It is really important that young people find something that they want to do and pursue it with passion. I’m very passionate about filmmaking. It’s what I love to do.
+ - Critics like to build you up, tear you down, and then, if you’re lucky, build you up again.
+ - Music is, for me, a great tool of a filmmaker, the same way cinematography, the acting, editing, post-production, the costumes are. You know, to help you tell a story.
+ - I think black people have to be in control of their own image because film is a powerful medium. We can’t just sit back and let other people define our existence.
+ - What’s the difference between Hollywood characters and my characters? Mine are real.
+ - I think my work shows that I love women. I understand where these types of criticisms are coming from because black people have been so dogged out in the media, they’re just extra sensitive.
+ - I used the principles of Kickstarter to make ‘She’s Gotta Have It.’ We filmed that in 1985 to 1986. The final cost was $175,000. I didn’t have that money. It was friends, grants, donations. We saved our bottles for the nickel deposit.
+ - I don’t think my films are going to get rid of racism or prejudice. I think the best thing my films can do is provoke discussion.
+ - I like to work with the same people when I can, and you want to get people with the same interests that you have, and the same aesthetic.
+ - All directors are storytellers, so the motivation was to tell the story I wanted to tell. That’s what I love.
+ - America doesn’t have the moral right to tell other people what to do. To say the whole world has to fall into line is you-know-what. I hope more people will rise up.
+ - I am trying to stay away from this position of me “returning to my roots.” As if my roots are that I’m only comfortable working on low-budget, small films. That’s not the case at all.
+ - I don’t see any negativity with what Brad Pitt is doing with his Make It Right Foundation, or what Sean Penn is trying to do in Haiti.
+ - A lot of times, we censor ourselves before the censor even gets there.
+ - I’m just trying to tell a good story and make thought-provoking, entertaining films. I just try and draw upon the great culture we have as a people, from music, novels, the streets.
+ - We’ve got to turn this backward thinking around where ignorance is championed over intelligence. Young black kids being ridiculed by their peers for getting A’s and speaking proper English: that’s criminal.
+ - I’ve got “Sometimers.” Sometimes I remember and sometimes I forget.
+ - I’ll be vilified if I shoot a film in Toronto for New York. And rightfully so!
+ - I really don’t deal with hypotheticals.
+ - I live in New York City, the stories of my films take place in New York; I’m a New York filmmaker.
+ - As a writer I want everybody to get a chance to voice their opinions. If each character thinks that they’re telling the truth, then it’s valid. Then at the end of the film, I leave it up to the audience to decide who did the right thing.
+ - I like people to look like they’re floating.
+ - Surprises are good. I’m not of the thinking where you tell the audience everything. Sometimes I don’t even want to see the trailers. You see the trailer, you’ve seen the movie.
+ - Our greatness, our talent has never been the question. It’s been a matter of grappling for control over what we do.
+ - One of the great things about African-Americans is that we’ve always had this attitude: We make do with what we got. It comes from our ancestors being slaves.
+ - There’s a lot of Americans, black and white, who think that we’ve arrived where we need to be and nothing else needs to be done and affirmative action needs to be dismantled.
+ - A lot of times you get credit for stuff in your movies you didn’t intend to be there.
+ - I respect the audience’s intelligence a lot, and that’s why I don’t try to go for the lowest common denominator.
+ - I am a hybrid. I do independent films and also do Hollywood films – I love them both.
+ - If you can’t take a hit, you’re not going to last long, that’s for sure.
+ - I’d like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.
+ - I’ve been blessed with the opportunity to express the views of black people who otherwise don’t have access to power and the media. I have to take advantage of that while I’m still bankable.
+ - A spine to my films that’s become more evident to me is that many are about the choices people make, and the reverberations of those choices. You go this way, or that way, and either way, there’s going to be consequences.
+ - My cousin Malcolm Lee is also a filmmaker.
+ - I am very fortunate I can send my kids to private school, but everybody does not have the money. If you cannot get your kid in a good school today, your kids are going to be behind the eight ball.
+ - As a people we do not need anyone else’s stamp of approval.
+ - The truth is I’ve been doing Kickstarter before there was Kickstarter; there was no Internet. Social Media was writing letters, making phone calls, beating the bushes.
+ - I don’t get tripped up in technology. I use technology as a tool. ‘Oldboy’ we shot Two Pro 35mm. For ‘Da Blood of Jesus,’ we shot digitally. We shot the new Sony F55. It’s a 4K camera.
+ - There’s an unwritten law that you cannot have a Jewish character in a film who isn’t 100 percent perfect, or you’re labeled anti-Semitic.
+ - People of color have a constant frustration of not being represented, or being misrepresented, and these images go around the world.
+ - My people, my people, what can I say; say what I can. I saw it but didn’t believe it; I didn’t believe what I saw. Are we gonna live together? Together are we gonna live?
+ - I get offered to do stuff where the money’s nice but it’s not something I want to do – I get offered a lot of commercials too.
+ - I never understood the concept of showing everything in the trailer. Why go to a movie if there’s no surprise? I can’t do it like that.
+ - It comes down to this: black people were stripped of our identities when we were brought here, and it’s been a quest since then to define who we are.
+ - He revolutionized music videos. Before Michael Jackson, MTV refused to play African-American artists.
+ - I think it is very important that films make people look at what they’ve forgotten.
+ - There’s always been this hocus-pocus or magical, mystical thing associated with the making of film that sort of psyches people out and makes them think that this cannot be done; that this is a craft that cannot be learned.
+ - People sometimes forget all the films that we’ve done. They remember the likes of ‘Malcolm X’ and ‘Do the Right Thing.’ But I’ve been working since 1986. From the beginning, I was determined to not just be a flash in the pan. I’ve got to keep up with Woody Allen. He’s lapping me.
+ - I’m very careful about how I portray violence in my films. I do believe that violence, especially violent video games, are not a good thing for young kids.
+ - We’re the most violent nation on earth. There’s no getting away from that. But you’ve got to look at it on a broader level.
+ - I’m always open to new, innovative stuff and people trying to do stuff in a different way. I knew that the theatrical release would be like getting on the launch pad for Amazon Prime but I was okay with that because I think what Jeff Bezos and Ted Hope are doing is innovative.
+ - I collect names for characters. Names are valuable; they can be your first source of insight into a character.
+ - I tend to favour films that have multiple plot and story lines, multiple characters and ensemble pieces.
+ - Since the days of slavery, if you were a good singer or dancer, it was your job to perform for the master after dinner.
+ - I want to tell stories, I don’t really try to get boxed in by a specific genre.
+ - You have to do the research. If you don’t know about something, then you ask the right people who do.
+ - When I went to school, you had to take art, you had to play an instrument. You had to play an instrument. But it’s all degraded since then. I do not know what kind of nation we are that is cutting art, music, and gym out of the public-school curriculum.
+ - I’m not the go-to guy. Everybody is trying to tell their story and have different ways of telling it.
+ - I always give the example, if you turn on the radio today, black radio, Lenny Kravitz is not black. Bob Marley wasn’t black: in the beginning, only white college stations played Bob Marley.
+ - I consider Madonna a friend, and she sure knows how to work the publicity machine. Of course, I don’t have breasts. If I did have, I’d be in the number one spot over Madonna.
+ - Any time you talk about the look of the film, it’s not just the director and the director of photography. You have to include the costume designer and the production designer.
+ - Amongst black people, you have always heard it said that once a black man reaches a certain level, especially if you are an entertainer, you get a white trophy woman. I didn’t make that up.
+ - For me, I believe in God, God is real.
+ - Violence is a part of America. I don’t want to single out rap music. Let’s be honest. America’s the most violent country in the history of the world, that’s just the way it is. We’re all affected by it.
+ - I’m surprised that Hollywood and networks have not been diverse as other industries.
+ - Right now a lot of people are still choosing to go to Toronto instead of shooting in New York City, something I haven’t done and something I hope I’ll never have to do.
+ - I don’t dictate, you don’t dictate to Stevie Wonder, not successfully.
+ - I don’t think I’m a total pessimist, so I think you can find hope in all my films.
+ - Stick around long enough, you’ll get some grace.
+ - If you have a talented family, you should be shot if you don’t use them.
+ - I’m an independent filmmaker with complete creative control of my films. I hire who I want. I have final cut. But at the same time, I go directly to Hollywood for financing and distribution. I find it’s best for me to work within the Hollywood system.
+ - I don’t like acting; not in front of the camera.
+ - I don’t really analyze my stuff when I write. I write about stuff that I’m interested in, that I’m feeling at that particular time. When I stand back and look at the complete work, I might see themes that run through the whole film, but I’m not really conscious of it when I’m doing it.
+ - And one thing Hollywood does well is sequels.
+ - Making films has got to be one of the hardest endeavors known to humankind.
+ - I think if people looked at my body of work, they’d see a great breadth of work.
+ - A woman who is very secure in herself, what she’s about, what she wants to do, who probably figures that she’s a prize catch-sooner or later he’s going to come around.
+ - I knew I was never going to play professional sport, but I loved playing and I went to all the games I could afford to.
+ - I think it would be very boring dramatically to have a film where everybody was a lawyer or doctor and had no faults. To me, the most important thing is to be truthful.
+ - I’ve always tried to – when I’ve been able to – support young artists, no matter what medium.
+ - Everything I do is always scrutinised. But that’s all I’ll say about that.
+ - I’m a storyteller, and there’s some genres I like. I don’t think I’m ever going to do science fiction, but I want to do a musical one day. I want to tell stories, I don’t really try to get boxed in by a specific genre.
+ - Most human beings will not stand in front of a stage and tell you about the bad things they did.
+ - Fight the power that be. Fight the power.
+ - I think people who have faults are a lot more interesting than people who are perfect.
+ - As we move toward the millennium, the year 2000, the most powerful nations are not those that have nuclear bombs, but those that control the media. That’s where the battle is being fought; that is how you control people’s minds.
+
+104 quotes

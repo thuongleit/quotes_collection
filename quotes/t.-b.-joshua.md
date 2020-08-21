@@ -1,0 +1,155 @@
+ - Better is not good enough; the best is yet to come!
+ - Every day, God has something to say to you. Even when He seems to be quiet, God is still saying something.
+ - Your success and happiness depend on your willingness to help others solve their problems.
+ - A man’s life is what he thinks about all day long.
+ - Jesus Christ said, ‘I pray your faith will not fail.’ This means your faith will be tested. What is testing your faith right now?
+ - Your hands may be full of money and your brain full of information but if your heart is empty, your life is very empty.
+ - God is Spirit – without the Holy Spirit you cannot relate to Him.
+ - Love looks around to see who is in need.
+ - Never doubt God’s desire or ability to help you.
+ - The Lord has given an overcoming victory to every person who is born again.
+ - Forgiveness of sin strikes the root of all pain.
+ - See your weakness as a reason to pray the more, it should not be the reason for sadness or to abandon your post.
+ - Every Word of God is Spirit and life. When you receive and obey the Word of God, the power of God works in you.
+ - God alone can deliver us from a life of meaningless activities.
+ - Put on the new man by renewing your mind with God’s Word and submitting your body to the authority of that Word.
+ - Your mind must be at its best for God before it becomes His dwelling place.
+ - Sit and reflect on life itself and you would discover that nothing happens by chance.
+ - Worrying about next, tomorrow cripples our ability to think, act and exercise faith in the present and the present only is ours.
+ - Your troubles may point you to death and destruction, but God’s Word points you to life.
+ - Those who overcome satan will be required to use the power of the spoken Word.
+ - You are because I am and I am because you are. We are one another’s strength.
+ - Education is not success but it is to help us succeed.
+ - The way of obedience is the way of blessing.
+ - God speaks to us, through His Word by His Spirit.
+ - Jesus is all the world to me my life, my joy, my all. He is my strength from day to day Without Him, I would fall.
+ - The age of miracles has not past. The Miracle Worker is still ALIVE. His name is Jesus Christ!
+ - Faith does not ask for possible things; it demands impossible.
+ - Don’t murmur and rebel in your hour of adversity. Trust in God in every trial.
+ - There is never a sickness Jesus cannot heal and never a disease Jesus cannot cure. To God’s power, nothing is impossible!
+ - In the mighty name of Jesus, all knees shall bow; all tongues shall confess! Now, in the name of Jesus, you are released!
+ - Let us learn to dream again. To learn to dream again is to have big plans. To learn to dream again is to readjust, to look to God.
+ - In order not to end up like the masses out there who are merely wandering and unsure of their goals and dreams, your objective must be clear. When your purpose is clear, your life will have meaning.
+ - If gold must be gold, it must pass through the furnace.
+ - For everything that happens to a Christian, God is aware.
+ - As we struggle to overcome our troubles, we are making history and fulling our destiny. Keep pressing!
+ - If you can believe, worry and anxiety will vanish.
+ - When satan wants you to cry and you laugh, you defeat him.
+ - If you turn to God once, He will turn to you a million times.
+ - Pastors are sent to utter the deep things of God for the conviction of sin, and for edification and comfort.
+ - You are who you are by virtue of the company you keep.
+ - We only have victory over satan when we walk in the Spirit in Christ Jesus.
+ - The blessing of God enriches the soul for eternity while that given by the world enriches the body temporarily.
+ - Your prayers, effort and fasting for many years are not lost. This is the time you have been praying for. Breakthrough!
+ - Our position in Christ Jesus is enhanced each time we help someone in trouble.
+ - When you are wired to God in a unique way, nothing can separate you from the love of God.
+ - Jesus never consults your past to determine your present.
+ - The power that flows from His name, the name Jesus, will be in proportion to our love for His Word.
+ - True humility means total dependence on God for everything.
+ - We are one another’s strength.
+ - A man of purpose focuses on his destination, not his situation. Don’t let your situation mislead you!
+ - If you have not tasted poverty, you will not be able to manage blessing when it comes. If you have not tasted humiliation, you will not be able to manage honour when it comes.
+ - Your weakness can be turned to strength for God’s glory.
+ - Each day has its own destiny. Yesterday is history, today is opportunity while tomorrow is mystery.
+ - God’s Word refreshes our mind and God’s Spirit renews our strength.
+ - Don’t doubt your faith; doubt your doubts for they are unreliable.
+ - Everyone makes mistakes – mistakes are correctable.
+ - Don’t misinterpret God’s silence as rejection.
+ - It is not possible to heal people and collect money. That gift is not for sale. When it is time to heal, it is time to give what God has given us.
+ - The peace of the world concerns only body and time but the peace, the joy, that Christ gives enriches the soul for eternity.
+ - The evidence of Jesus Christ is lives changed.
+ - In the heart of man, there is a constant conflict between the flesh and the spirit.
+ - To the man of faith, there is always a future.
+ - Viewers all over the world, my prayer partners, whatever situation you are in, be delivered in the mighty name of Jesus Christ! Those who wait upon the LORD shall be delivered!
+ - The purpose of life is to glorify God in both good and hard times alike.
+ - A look of faith knows what God says about a situation – and what God says is final.
+ - Trials are the soil in which faith flourishes.
+ - A joyful congregation is an attractive congregation.
+ - When your situation has gone beyond the power of nature, it has become a curse. Who can remove a curse but Jesus Christ?
+ - As Christians, though there may be reasons to be troubled, there are greater reasons not to be.
+ - Do not think that your crying and complaints can force Jesus to become sentimental and then give Himself out so cheaply.
+ - Lord Jesus, bring comfort to all those who mourn and peace of heart to those under pressure and tension, in Jesus Christ’s name.
+ - Giving offers us the opportunity to reshape our destiny. When you give, you are reshaping your destiny.
+ - There is something far more important than your present situation – your dream and your goal.
+ - If you don’t have a vision, you can never be focused in a direction.
+ - As for me and my house, I have no other refuge than this command of Jesus, ‘Only believe’ that is my refuge.
+ - They that wait upon the Lord shall renew their strength, shall be healed, delivered and set free. Be set free, in the name of Jesus Christ!
+ - Let us leave tomorrow’s trouble for the One who bore our troubles on the cross.
+ - One thing is clear – demons know they must submit to the superior authority in the name of Jesus Christ!
+ - No matter how fast a lie runs, the truth will someday overtake it.
+ - If you are in a hurry to get money, you will be in a hurry to spend it. Anything that starts dubiously will surely end dubiously.
+ - Your confession must absolutely agree with the Word of God!
+ - Every time you speak right, you are training yourself to think right and act right.
+ - Genuine faith can find encouragement, even in that which is discouraging and get nearer to God.
+ - In mercy, God has called you and saved, healed, blessed and delivered you.
+ - If you are worshipping God without depending on the Spirit of God, you are serving a god you do not know.
+ - Be sure that those in whom you trust are led by God each day.
+ - I agree with God’s Word; I disagree with any condition, situation or circumstance contrary to that Word.
+ - What can separate us from the love of God? An attempt to separate us by death simply releases us from the imprisonment of this world.
+ - It is better to live poorly upon the fruits of God’s goodness than live plentifully upon the products of our own sin.
+ - A new year is a gift from God, a part of the Divine nature of God.
+ - Be patient. Let God answer your question on His schedule, not yours.
+ - If you have truly been born again, it was the Holy Spirit who convicted you of sin and drew you into a relationship with Jesus.
+ - You will begin to succeed with your life when the pains and problems of others matter to you.
+ - Many store the Bible on their shelves; the best store it in their hearts.
+ - For you to have any relationship with God, it must be through His Word by His Spirit.
+ - The way and manner God executes His plan in our lives differs.
+ - As a Christian, when your trial is getting hotter, you are getting closer to your breakthrough! Keep pressing!
+ - While we are on the go, we need to stop between steps, to refocus on the Word and the will of God.
+ - Of all graces, faith honours Christ the most; of all graces, Christ honours faith the most.
+ - Jesus wants to express Himself and carry out His mission of love to others through you.
+ - Your greatest mistakes will happen because of impatience.
+ - Asking God for a specific thing will amount to limiting God to a specific answer.
+ - You must embrace the Word of God as the most effective instrument for change.
+ - Relax in the precious arms of the Holy Spirit.
+ - You have the right to claim blessing, healing, protection, freedom, deliverance, because He was unjustly nailed to a cross so you could have a life that is fulfilling.
+ - Nothing will carry you through hardship like a sincere devotion to Christ.
+ - Where there is unconditional love, the wound of one is the wound of all.
+ - The multitude of people fail because they talk failure.
+ - If we spoke less and sang songs of faith more, the world would be more Heavenly.
+ - Don’t wait for a more convenient day to discipline your mind!
+ - Weeping must not hinder worship.
+ - I believe the prayers of 30 years ago are not lost. We may not see the results of our labour or sacrifice immediately, but in due time they will produce much fruit.
+ - Jesus Christ had a sense of destiny.
+ - Whatever I am today is a product of that conviction that victory through Christ is victory indeed. The rest is history.
+ - If your actions are motivated by selfish interests rather than God, you are mortgaging tomorrow’s joy.
+ - Ask God for the grace to live for Him and continue to live in Him. Right now, surrender it all to Him.
+ - No trouble, no matter how great the trouble is, should prevent you from praying.
+ - Crises can never break the one who relies on God’s strength.
+ - Pardoning mercy makes way for healing mercy.
+ - As we live in the Spirit, we live in the process of God’s mind.
+ - Your situation does not embarrass God because He has solution.
+ - What is possible for you in Christ Jesus depends on your capacity to believe.
+ - Trouble comes not because we have taken any wrong step but because we are in a complex and contradictory world.
+ - As Christians, we say what God has said over and over until the thing promised in His Word and desired in our hearts is fully manifested in our lives.
+ - It is praiseworthy when you give not only to your power but beyond your power.
+ - A beautiful life does not just happen; it is built.
+ - If we fail to see that there are powers that cause people to be bowed down in bondage, we are fighting the wrong battle.
+ - God is building Himself in to us, making Himself part of us as the Word rules, dominates and sanctifies our spirit nature.
+ - The real things about man are not his body...
+ - If we make mistakes, as we all do – don’t run from God, run to Him.
+ - I can see you being set free, saved, healed, blessed – in the name of Jesus Christ!
+ - Discovery is for forward lookers.
+ - If you decide on your direction, God will give you the energy for the distance.
+ - If we make God our heart’s delight, we shall have our heart’s desire.
+ - When God has not taken away our trouble or temptation yet, with His grace in our lives, we are content.
+ - Don’t envy those who make their wealth in an ungodly way. The wicked SEEM to prosper now and live without a care but they will spend eternity in terror and despair.
+ - Avoid the trap of looking back unless it is to glorify God for what He has done.
+ - Heal me, oh Lord, I will be healed. Save me, oh Lord, I will be saved. Bless me, oh Lord, I will be blessed. Free me, oh Lord, I will be free.
+ - A beggar always remains a beggar. Africa, stop begging – you have what it takes to solve your problem.
+ - You are responsible for what you give your attention to.
+ - Life is too short to waste time on things that have no lasting significance.
+ - It is not possible for a single person to be working outstanding miracles, signs and wonders which millions of other Nigerians cannot do and for such a person to be an agent of Satan. They – the God’s generals – should combine forces and deliver such a satanic person or get rid of him.
+ - When discouragement comes, don’t stop. Dig deep and fight it through!
+ - Your career you will only hear the drum of setback but it is time to shine! Whatever situation you have been facing – this is the time you have been praying for to shine, to move, to overcome, in the mighty name of Jesus Christ!
+ - Faith is a channel through which the anointing flows.
+ - Jesus, deliver me from the spirit of witchcraft!
+ - There is no one and there will never be anyone like you.
+ - In the university of God, however brilliant you may be, you will not be given double promotion. You must take every course, because each course serves a purpose.
+ - Whatever situation you are in – be it familiar spirit, generational curses or infirmity – be released, in the name of Jesus!
+ - I have never seen where hatred overcomes love. When you love, you overcome. Love is the most powerful weapon.
+ - Read the Bible for the salvation of your soul, not the solution to your problem.
+ - If there is any trouble within your heart – be free, in the name of Jesus Christ.
+ - The first step in our walk of faith is to stop our own works and rest in God’s love, wisdom and power.
+
+153 quotes

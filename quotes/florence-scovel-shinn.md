@@ -1,0 +1,74 @@
+ - No man is your enemy, no man is your friend, every man is your teacher.
+ - The game of life is a game of boomerangs. Our thoughts, deeds and words return to us sooner or later with astounding accuracy.
+ - Infinite Spirit, open the way for my great abundance. I am an irresistible magnet for all that belongs to me by Divine Right.
+ - If you do not run your subconscious mind yourself, someone else will run it for you.
+ - Gratitude is the law of increase, and complaint is the law of decrease.
+ - I have a magical work in a magical way. I give magical service for magical pay.
+ - Words and thoughts are a tremendous vibratory force, ever moulding man’s body and affairs.
+ - Behold, I make all things new.
+ - There is a supply for every demand.
+ - We must stop planning, plotting and scheming, and let Infinite Intelligence solve the problem in its own way.
+ - Nothing on earth can resist an absolutely non-resistant person.
+ - The subconscious mind has no sense of humor and people often joke themselves into unhappy experiences.
+ - There is a place that you are to fill and no one else can fill, something you are to do, which no one else can do.
+ - Every person is a golden link in the chain of my good.
+ - Today is a day of completion; I give thanks for this perfect day, miracle shall follow miracle and wonders shall never cease.
+ - Intuition is a spiritual faculty and does not explain, but simply points the way.
+ - Man can only be what he sees himself to be, and only attain what he sees himself attaining.
+ - What is really yours? The blessings you bring to yourself, through your spoken or silent word, the things you see with your inner eye.
+ - Perfect self-expression will never be labor, but of such absorbing interest that it will seem almost like play.
+ - The first start toward success is to be glad you are yourself.
+ - I look with wonder at that which is before me.
+ - Unexpected doors fly open, unexpected channels are free, and endless avalanches of abundance are poured out upon me, under grace in perfect ways.
+ - Man’s word is his wand filled with magic and power! Man comes into the world financed by God, with all that he desires or requires already on his pathway. This supply is released through faith and the Spoken Word. If thou canst believe, all things are possible.
+ - Change your thoughts, and in the twinkling of an eye, all your conditions change. Your world is a world of crystallized ideas, crystallized words. Sooner or later, you reap the fruits of your words and thoughts.
+ - Giving opens the way for receiving.
+ - You must live fully in the now to make your dreams come true.
+ - There is no separation in Divine Mind, therefore, I cannot be separated from the love and companionship which are mine by divine right.
+ - One’s ships come in over a calm sea.
+ - Unforgiveness is the most prolific cause of disease. It will harden arteries or liver, and affect the eye-sight. In its train are endless ills.
+ - Every great work, every big accomplishment, has been brought into manifestation through holding to the vision, and often just before the big achievement, comes apparent failure and discouragement.
+ - I do not limit God by seeing limitation in myself. With God and myself all things are possible.
+ - When you send out real love, real love will return to you.
+ - Happiness and health must be earned by absolute control of the emotional nature.
+ - If one asks for success and prepares for failure, one will get the situation one has prepared for.
+ - All that is mine by Divine Right is now released and reaches me in great avalanches of abundance, under grace in miraculous ways.
+ - There are no lost opportunities in Divine Mind, as one door shuts another door is opened.
+ - You will be a failure, until you impress the subconscious with the conviction you are a success. This is done by making an affirmation which ‘clicks.’
+ - What man condemns in others, he attracts to himself.
+ - All obstacles now vanish from my pathway. Doors fly open, gates are lifted and I enter the kingdom of fulfillment, under grace.
+ - Owing to the vibratory power of words, whatever man voices, he begins to attract.
+ - Anger without power is folly.
+ - If thou canst believe, all things are possible.
+ - The Chinese say that water is the most powerful element, because it is perfectly nonresistant. It can wear away a rock, and sweep all before it.
+ - Children are sensitive and receptive to the thoughts of others about them, and often outpicture the fears of their parents.
+ - Man can only receive what he sees himself receiving.
+ - Most people consider life a battle, but it is not a battle, it is a game.
+ - Endless good now comes to me in endless ways.
+ - The trouble with most people is that they want to know the way and the channels beforehand. They want to tell Supreme Intelligence just how their prayers should be answered. They do not trust the wisdom and ingenuity of God.
+ - I have a wonderful joy in a wonderful way and my wonderful joy has come to stay.
+ - My good now flows to me in a steady, unbroken, ever-increasing stream of success, happiness and abundance.
+ - Fear and impatience demagnetize. Poise magnetizes.
+ - We must substitute fear for faith, for fear is only inverted faith; it is faith in evil instead of good.
+ - When man can “wish away worrying,” every desire will be instantly fulfilled.
+ - Never do today what intuition says to do tomorrow.
+ - You may think that all your happiness depends upon obtaining one particular thing in life; later on, you praise the Lord that you didn’t get it.
+ - Man can change his conditions by changing his words.
+ - There is no there – there is only here.
+ - No man is a success in business unless he loves his work.
+ - So long as man resists a situation, he will have it with him.
+ - People little dream of how their affairs react on the body. There is a mental correspondence for every disease.
+ - Through his spoken word, man is continually making laws for himself.
+ - After man knows the truth, he cannot be too careful of his words.
+ - Ye have no need to fight, stand ye still and see the salvation of the Lord.
+ - When one has made his demands upon the Universal, he must be ready for surprises. Everything may seem to be going wrong, when in reality, it is going right.
+ - Bills should be paid cheerfully, all money should be sent forth fearlessly and with a blessing.
+ - We prove God by showing active faith, which puts to flight all adverse appearances.
+ - The Light of the Christ within now wipes out all fear, doubt, anger and resentment. God’s love pours through me, an irresistible magnetic current. I see only perfection and draw to me my own.
+ - Although some people think that life is a battle, it is actually a game of giving and receiving.
+ - Whatever man feels deeply or images clearly, is impressed upon the subconscious mind, and carried out in minutest detail.
+ - A harmonious person is never vibrating at the same rate as a germ.
+ - I knew a woman who went about bragging of her troubles, so, of course, she always had something to brag about.
+ - It would not be necessary to make an affirmation more than once if one had perfect faith.
+
+72 quotes

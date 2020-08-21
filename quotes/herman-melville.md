@@ -1,0 +1,385 @@
+ - I would prefer not to.
+ - It is better to fail in originality than to succeed in imitation.
+ - It is better to fail in originality, than to succeed in imitation. He who has never failed somewhere, that man can not be great. Failure is the true test of greatness.
+ - God’s one and only voice is silence.
+ - I know not all that may be coming, but be it what it will, I’ll go to it laughing.
+ - It is not down in any map; true places never are.
+ - Call me Ishmael.
+ - The eyes are the gateway to the soul.
+ - Ah, Bartleby! Ah, humanity!
+ - Life’s a voyage that’s homeward bound.
+ - We cannot live only for ourselves. A thousand fibers connect us with our fellow men; and among those fibers, as sympathetic threads, our actions run as causes, and they come back to us as effects.
+ - Of all the preposterous assumptions of humanity over humanity, nothing exceeds most of the criticisms made on the habits of the poor by the well-housed, well- warmed, and well-fed.
+ - There’s magic in the water that draws all men away form the land, that leads them over hills, down creeks and streams and rivers to the sea.
+ - Beneath those stars is a universe of gliding monsters.
+ - Who in the rainbow can draw the line where the violet tint ends and the orange tint begins? Distinctly we see the difference of the colors, but where exactly does the one first blendingly enter into the other? So with sanity and insanity.
+ - To the last, I grapple with thee; From Hell’s heart, I stab at thee; For hate’s sake, I spit my last breath at thee.
+ - A smile is the chosen vehicle of all ambiguities.
+ - For as this appalling ocean surrounds the verdant land, so in the soul of man there lies one insular Tahiti, full of peace and joy, but encompassed by all the horrors of the half known life.
+ - Only the man who says no is free.
+ - Stay true to the dreams of thy youth.
+ - Dream tonight of peacock tails, Diamond fields and spouter whales. Ills are many, blessing few, But dreams tonight will shelter you.
+ - I love to sail forbidden seas, and land on barbarous coasts.
+ - Death is only a launching into the region of the strange Untried; it is but the first salutation to the possibilities of the immense Remote, the Wild, the Watery, the Unshored.
+ - Friendship at first sight, like love at first sight, is said to be the only truth.
+ - No philosophers so thoroughly comprehend us as dogs and horses.
+ - We Americans are the peculiar, chosen people – the Israel of our time; we bear the ark of the liberties of the world.
+ - We should, if possible, prove a teacher to posterity, instead of being the pupil of by-gone generations. More shall come after us than have gone before; the world is not yet middle-aged.
+ - I try all things, I achieve what I can.
+ - Ah, happiness courts the light so we deem the world is gay. But misery hides aloof so we deem that misery there is none.
+ - Failure is the true test of greatness.
+ - All wars are boyish, and are fought by boys.
+ - The path to my fixed purpose is laid with iron rails whereon my soul is grooved to run.
+ - Talk not to me of blasphemy, man; I’d strike the sun if it insulted me.
+ - Yea, foolish mortals, Noah’s flood is not yet subsided; two thirds of the fair world it yet covers.
+ - There are certain queer times and occasions in this strange mixed affair we call life when a man takes his whole universe for a vast practical joke.
+ - All Profound things, and emotions of things are preceded and attended by Silence.
+ - Where lies the final harbor, whence we unmoor no more?
+ - He piled upon the whale’s white hump the sum of all the general rage and hate felt by his whole race from Adam down; and then, as if his chest had been a mortar, he burst his hot heart’s shell upon it.
+ - There is no quality in this world that is not what it is merely by contrast. Nothing exists in itself.
+ - To produce a mighty book, you must choose a mighty theme. No great and enduring volume can ever be written on the flea, though many there be that have tried it.
+ - Niggards are oftentimes neat.
+ - But I shall follow the endless, winding way, – the flowing river in the cave of man; careless whither I be led, reckless where I land.
+ - I rejoice in my spine, as in the firm audacious staff of that flag which I fling half out to the world.
+ - Youth is immortal; Tis the elderly only grow old!
+ - As with ships, so with men; he who turns his back to his foe gives him an advantage.
+ - But oh! shipmates! on the starboard hand of every woe, there is a sure delight; and higher the top of that delight, than the bottom of the woe is deep.
+ - A beautiful woman is born Queen of men and women both, as Mary Stuart was born Queen of Scots, whether men or women.
+ - There never was a great man yet who spent all his life inland.
+ - Let me look into a human eye; it is better than to gaze into sea or sky; better than to gaze upon God.
+ - The food of thy soul is light and space; feed it then on light and space. But the food of thy body is champagne and oysters; feed it then on champagne and oysters; and so shall it merit a joyful resurrection, if there is any to be.
+ - There is no dignity in wickedness, whether in purple or rags; and hell is a democracy of devils, where all are equals.
+ - A good laugh is a mighty good thing, a rather too scarce a good thing.
+ - They talk of the dignity of work. The dignity is in leisure.
+ - Leviathan is not the biggest fish; – I have heard of Krakens.
+ - I am madness maddened! That wild madness that’s only calm to comprehend itself.
+ - Whatever my fate, I’ll go to it laughing.
+ - He says NO! In thunder; but the Devil himself cannot make him say yes.
+ - Both the ancestry and posterity of Grief go further than the ancestry and posterity of Joy.
+ - Book! You lie there; the fact is, you books must know your places. You’ll do to give us the bare words and facts, but we come in to supply the thoughts.
+ - In this world, shipmates, sin that pays its way can travel freely, and without passport; whereas Virtue, if a pauper, is stopped at all frontiers.
+ - A whale ship was my Yale College and my Harvard.
+ - There are two places in the world where men can most effectively disappear – the city of London and the South Seas.
+ - Our souls are like those orphans whose unwedded mothers die in bearing them: the secret of our paternity lies in their grave, and we must there to learn it.
+ - In one word, Queequeg, said I, rather digressively; hell is an idea first born on an undigested apple-dumpling; and since then perpetuated through the hereditary dyspepsias nurtured by Ramadans.
+ - He who has never failed somewhere, that man can not be great.
+ - Poor people make a very poor business of it when they try to seem rich.
+ - I am, as I am; whether hideous, or handsome, depends upon who is made judge.
+ - God is liberal of color; so should man be.
+ - Woe to him who seeks to please rather than appall.
+ - In childhood, death stirred me not; in middle age, it pursued me like a prowling bandit on the road; now, grown an old man, it boldly leads the way, and ushers me on.
+ - Better to sleep with a sober cannibal than a drunken Christian.
+ - To know how to grow old is the master work of wisdom, and one of the most difficult chapters in the great art of living.
+ - The consciousness of being deemed dead, is next to the presumable unpleasantness of being so in reality. One feels like his own ghost unlawfully tenanting a defunct carcass.
+ - If you are poor, avoid wine as a costly luxury; if you are rich, shun it as a fatal indulgence. Stick to plain water.
+ - To produce a mighty book, you must choose a mighty theme.
+ - See how elastic our prejudices grow when once love comes to bend them.
+ - If you can get nothing better out of the world, get a good dinner out of it, at least.
+ - We cannot live for ourselves alone.
+ - Much of a man’s character will be found betokened in his backbone. I would rather feel your spine than your skull, whoever you are. A thin joist of a spine never yet upheld a full and noble soul.
+ - Old age is always wakeful; as if, the longer linked with life, the less man has to do with aught that looks like death.
+ - Genius, all over the world, stands hand in hand, and one shock of recognition runs the whole circle round.
+ - All deep, earnest thinking is but the intrepid effort of the soul to keep the open independence of her sea, while the wildest winds of heaven and earth conspire to cast her on the treacherous, slavish shore.
+ - Let faith oust fact; let fancy oust memory; I look deep down and do believe.
+ - Roll on, thou deep and dark blue ocean, roll! Ten thousand blubber-hunters sweep over thee in vain.
+ - There is a savor of life and immortality in substantial fare. Like balloons, we are nothing till filled.
+ - Implacable I, the implacable Sea; Implacable most when most I smile serene- Pleased, not appeased, by myriad wrecks in me.
+ - Who in the rainbow can draw the line where the violet tint ends and the orange tint begins?
+ - At sea a fellow comes out. Salt water is like wine, in that respect.
+ - Nothing so aggravates an earnest person as a passive resistance.
+ - Forty years after a battle it is easy for a non-combatant to reason about how it ought to have been fought. It is another thing personally and under fire to direct the fighting while involved in the obscuring smoke of it.
+ - A noble craft, but somehow a most melancholy! All noble things are touched with that.
+ - A man thinks that by mouthing hard words he understands hard things.
+ - We may have civilized bodies and yet barbarous souls.
+ - And yet self-knowledge is thought by some not so easy. Who knows, my dear sir, but for a time you may have taken yourself for somebody else? Stranger things have happened.
+ - O Nature, and O soul of man! how far beyond all utterance are your linked analogies; not the smallest atom stirs or lives on matter, but has its cunning duplicate in mind.
+ - Queequeg was a native of Kokovoko, an island far away to the West and South. It is not down in any map; true places never are.
+ - Honor lies in the mane of a horse.
+ - What like a bullet can undeceive!
+ - The starred and stately nights seemed haughty dames in jewelled velvets, nursing at home in lonely pride, the memory of their absent conquering Earls, the golden helmeted suns!
+ - Let us only hate hatred; and once give love a play, we will fall in love with a unicorn.
+ - Top-heavy was the ship as a dinnerless student with all Aristotle in his head.
+ - I’ll try a pagan friend, thought I, since Christian kindness has proved but hollow courtesy.
+ - The great God absolute! The centre and circumference of all democracy! His omnipresence, our divine equality!
+ - Personal prudence, even when dictated by quite other than selfish considerations, surely is no special virtue in a military man; while an excessive love of glory, impassioning a less burning impulse, the honest sense of duty, is the first.
+ - Out of the trunk, the branches grow; out of them, the twigs. So, in productive subjects, grow the chapters.
+ - But the might-have-been is but boggy ground to build upon.
+ - God help thee, old man, thy thoughts have created a creature in thee; and he whose intense thinking thus makes him a Prometheus; a vulture feeds upon that heart for ever; that vulture the very creature he creates.
+ - The sea had jeeringly kept his finite body up, but drowned the infinite of his soul.
+ - The Past is the textbook of tyrants; the Future is the Bible of the Free.
+ - Surely a gentle sister is the second best gift to a man; and it is first in point of occurrence; for the wife comes after.
+ - Thinking is, or ought to be, a coolness and a calmness; and our poor hearts throb, and our poor brains beat too much for that.
+ - Think not, is my eleventh commandment; and sleep when you can, is my twelfth.
+ - Were this world an endless pain, and by sailing eastward we could forever reach new distances, and discover sights more sweet and strange than any Cyclades or Islands of King Solomon, then there were promise in the voyage.
+ - Better be an old maid, a woman with herself as a husband, than the wife of a fool; and Solomon more than hints that all men are fools; and every wise man knows himself to be one.
+ - Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope.
+ - Hell is an idea first born on an undigested apple dumpling.
+ - Human madness is oftentimes a cunning and most feline thing. When you think it fled, it may have but become transfigured into some still subtler form.
+ - I never fancied broiling fowls; – though once broiled, judiciously buttered, and judgmatically salted and peppered, there is no one who will speak more respectfully, not to say reverentially, of a broiled fowl than I will.
+ - One trembles to think of that mysterious thing in the soul, which seems to acknowledge no human jurisdiction, but in spite of the individual’s own innocence self, will still dream horrid dreams, and mutter unmentionable thoughts.
+ - There is one knows not what sweet mystery about this sea, whose gently awful stirrings seem to speak of some hidden soul beneath.
+ - There is something wrong about the man who wants help. There is somewhere a deep defect, a want, in brief, a need, a crying need, somewhere about that man.
+ - Until we understand that our grief outweighs a thousand joys, we will never understand what Christianity is all about.
+ - Be sure of this, O young ambition, all mortal greatness is but disease.
+ - Amity itself can only be maintained by reciprocal respect, and true friends are punctilious equals.
+ - All visible objects, man, are but as pasteboard masks. But in each event – in the living act, the undoubted deed – there, some unknown but still reasoning thing puts forth the mouldings of its features from behind the unreasoning mask.
+ - Where do murderers go, man! Who’s to doom, when the judge himself is dragged to the bar?
+ - For in tremendous extremities human souls are like drowning men; well enough they know they are in peril; well enough they know the causes of that peril; – nevertheless, the sea is the sea, and these drowning men do drown.
+ - Man is a money-making animal, which propensity too often interferes with his benevolence.
+ - We become sad in the first place because we have nothing stirring to do.
+ - Genius is full of trash.
+ - Truth uncompromisingly told will always have its ragged edges.
+ - Hope is the struggle of the soul, breaking loose from what is perishable, and attesting her eternity.
+ - Are there no Moravians in the Moon, that not a missionary has yet visited this poor pagan planet of ours, to civilise civilisation and christianise Christendom?
+ - Immortality is but ubiquity in time.
+ - Wag the world how it will, Leaves must be green in Spring.
+ - I cherish the greatest respect towards everybody’s religious obligations, no matter how comical.
+ - The symmetry of form attainable in pure fiction can not so readily be achieved in a narration essentially having less to do with fable than with fact. Truth uncompromisingly told will always have its ragged edges...
+ - The man that has anything bountifully laughable about him, be sure there is more in that man than you perhaps think for.
+ - When among wild beasts, if they menace you, be a wild beast.
+ - The Past is the textbook of tyrants; the Future the Bible of the Free. Those who are solely governed by the Past stand like Lot’s wife, crystallized in the act of looking backward, and forever incapable of looking before.
+ - He who goes oftenest round Cape Horn goes the most circumspectly.
+ - For though consciences are as unlike as foreheads, every intelligence, not including the Scriptural devils who “believe and tremble” has one.
+ - I am a man who, from his youth upwards, has been filled with a profound conviction that the easiest way of life is the best.
+ - Familiarity with danger makes a brave man braver, but less daring. Thus with seamen: he who goes the oftenest round Cape Horn goes the most circumspectly.
+ - The sailor is frankness, the landsman is finesse. Life is not a game with the sailor, demanding the long head.
+ - Strange as it may seem, there is nothing in which a young and beautiful female appears to more advantage than in the art of smoking.
+ - No town-bred dandy will compare with a country-bred one- I mean a downright bumpkin dandy- a fellow that, in the dog-days of summer, will mow his two acres in buckskin gloves for fear of tanning his hands.
+ - Heaven have mercy on us all – Presbyterians and Pagans alike – for we are all somehow dreadfully cracked about the head, and sadly need mending.
+ - Beware the People weeping When they bare the iron hand.
+ - Great towers take time to construct.
+ - When beholding the tranquil beauty and brilliancy of the ocean’s skin, one forgets the tiger heart that pants beneath it; and would not willingly remember that this velvet paw but conceals a remorseless fang.
+ - Give me a condor’s quill! Give me Vesuvius crater for an inkstand!
+ - Truth is in things, and not in words.
+ - Real strength never impairs beauty or harmony, but it often bestows it, and in everything imposingly beautiful, strength has much to do with the magic.
+ - True Work is the necessity of poor humanity’s earthly condition. The dignity is in leisure. Besides, 99 hundredths of all the work done in the world is either foolish and unnecessary, or harmful and wicked.
+ - The most mighty of nature’s laws is this, that out of Death she brings Life.
+ - Of the quaking recruit, three pitched battles make a grim grenadier; and he who shrank from the muzzle of a cannon, is now ready to yield his mustache for a sponge.
+ - Faith and philosophy are air, but events are brass.
+ - The shadows of things are greater than themselves; and the more exaggerated the shadow, the more unlike the substance.
+ - It is hard to be finite upon an infinite subject, and all subjects are infinite.
+ - An utterly fearless man is a far more dangerous comrade than a coward.
+ - Though amid all the smoking horror and diabolism of a sea-fight, sharks will be seen longingly gazing up to the ship’s decks, like hungry dogs round a table where red meat is being carved, ready to bolt down every killed man that is tossed to them.
+ - I am past scorching; not easily can’st thou scorch a scar.
+ - There’s something ever egotistical in mountain tops and towers, and all things grand and lofty.
+ - Thrusted light is worse than presented pistols.
+ - Those of us who always abhorred slavery as an atheistical iniquity, gladly we join in the exulting chorus of humanity over its downfall.
+ - In a multitude of acquaintances is less security, than in one faithful friend.
+ - Evil is the chronic malady of the universe, and checked in one place, breaks forth in another.
+ - In truth, a mature man who uses hair oil, unless medicinally, that man has probably got a quoggy spot in him somewhere.
+ - There is no life in thee, now, except that rocking life imparted by a gently rolling ship; by her, borrowed from the sea; by the sea, from the inscrutable tides of God.
+ - In what rapt ether sails the world, of which the weariest will never weary?
+ - Nobody is so heartily despised as a pusillanimous, lazy, good-for-nothing, land-lubber; a sailor has no bowels of compassion for him.
+ - Aye, aye! and I’ll chase him round Good Hope, and round the Horn, and round the Norway Maelstrom, and round perdition’s flames before I give him up.
+ - You cannot hide the soul.
+ - Will you, or will you not, quit me? I now demanded in a sudden passion, advancing close to him. “I would prefer not to quit you”, he replied, gently emphasizing the not.
+ - All wars are boyish, and are fought by boys, The champions and enthusiasts of the state: Turbid ardors and vain joys Not barrenly abate – Stimulants to the power mature, Preparatives of fate.
+ - I feel that the Godhead is broken up like the bread at the Supper, and that we are the pieces. Hence this infinite fraternity of feeling.
+ - Thou wine art the friend of the friendless, though a foe to all.
+ - When the passage “All men are born free and equal,” when that passage was being written were not some of the signers legalised owners of slaves?
+ - There is a woe that is wisdom, a woe that is madness.
+ - There is nothing so slipperily alluring as sadness; we become sad in the first place by having nothing stirring to do; we continue in it, because we have found a snug sofa at last.
+ - A true military officer is in one particular like a true monk. Not with more self-abnegation will the latter keep his vows of monastic obedience than the former his vows of allegiance to martial duty.
+ - Toil is man’s allotment; toil of brain, or toil of hands, or a grief that’s more than either, the grief and sin of idleness.
+ - The Navy is the asylum for the perverse, the home of the unfortunate. Here the sons of adversity meet the children of calamity, and here the children of calamity meet the offspring of sin.
+ - All the world over, the picturesque yields to the pocketesque.
+ - Delight, – top-gallant delight is to him, who acknowledges no law or lord, but the Lord his God, and is only a patriot to heaven.
+ - The American, who up to the present day, has evinced, in Literature, the largest brain with the largest heart, that man is Nathaniel Hawthorne.
+ - A hermitage in the forest is the refuge of the narrow-minded misanthrope; a hammock on the ocean is the asylum for the generous distressed.
+ - We talk of the Turks, and abhor the cannibals; but may not some of them, go to heaven, before some of us?
+ - There are some enterprises in which a careful disorderliness is the true method.
+ - Father Mapple uplifted his closed eyes, and offered a prayer so deeply devout that he seemed to be kneeling at the bottom of the sea.
+ - Why, ever since Adam, who has got to the meaning of this great allegory – the world? Then we pygmies must be content to have out paper allegories but ill comprehended.
+ - There are some persons in this world, who, unable to give better proof of being wise, take a strange delight in showing what they think they have sagaciously read in mankind by uncharitable suspicions of them.
+ - Appalling is the soul of a man! Better might one be pushed off into the material spaces beyond the uttermost orbit of our sun, than once feel himself fairly afloat in himself.
+ - Are not half our lives spent in reproaches for foregone actions, of the true nature and consequences of which we were wholly ignorant at the time?
+ - And tell him to paint me a sign, with-no suicides permitted here, and no smloing in the parlor; might as well kill both birds at once.
+ - Courage is the most common and vulgar of the virtues.
+ - The grand points in human nature are the same to-day they were a thousand years ago. The only variability in them is in expression, not in feature.
+ - The sweetest joys of life grow in the very jaws of its perils.
+ - For whatever is truly wondrous and fearful in man, never yet was put into words or books.
+ - Indolence is heaven ’s ally here, And energy the child of hell : The Good Man pouring from his pitcher clear But brims the poisoned well.
+ - Truth is ever incoherent, and when the big hearts strike together, the concussion is a little stunning.
+ - To be hated cordially, is only a left-handed compliment.
+ - Human madness is oftentimes a cunning and most feline thing.
+ - But when a man suspects any wrong it sometimes happens that if he be already involved in the matter he insensibly strives to cover up his suspicions even from himself. And much this way it was with me. I said nothing and tried to think nothing.
+ - There seems no reason why patriotism and narrowness should go together, or why intellectual fairmindedness should be confounded with political trimming, or why serviceable truth should keep cloistered because not partisan.
+ - It is the easiest thing in the world for a man to look as if he had a great secret in him.
+ - Madman! Look through my eyes if thou hast none of thine own.
+ - The easiest way of life is the best.
+ - All things that God would have us do are hard for us to do – remember that – and hence, he oftener commands us than endeavours to persuade.
+ - What is an atheist, but one who does not, or will not, see in the universe a ruling principle of love; and what a misanthrope, but one who does not, or will not, see in man a ruling principle of kindness?
+ - The lightning flashes through my skull; mine eyeballs ache and ache; my whole beaten brain seems as beheaded, and rolling on some stunning ground.
+ - Surrounded as we are by the wants and woes of our fellow-men, and yet given to follow our own pleasures, regardless of their pains, are we not like people sitting up with a corpse, and making merry in the house of the dead?
+ - That mortal man who hath more of joy than sorrow in him, that mortal man cannot be true – not true, or undeveloped.
+ - So long as a man-of-war exists, it must ever remain a picture of much that is tyrannical and repelling in human nature.
+ - It is plain and demonstrable, that much ale is not good for Yankee, and operates differently upon them from what it does upon a Briton; ale must be drank in a fog and a drizzle.
+ - The dinner-hour is the summer of the day: full of sunshine, I grant; but not like the mellow autumn of supper.
+ - Love is both Creator’s and Saviour’s gospel to mankind; a volume bound in rose-leaves, clasped with violets, and by the beaks of humming-birds printed with peach-juice on the leaves of lilies.
+ - All truth is profound.
+ - In armies, navies, cities, or families, in nature herself, nothing more relaxes good order than misery.
+ - My body is but the lees of my better being.
+ - You must have plenty of sea-room to tell the truth in.
+ - Lo! ye believers in gods all goodness, and in man all ill, lo you! see the omniscient gods oblivious of suffering man; and man, though idiotic, and knowing not what he does, yet full of the sweet things of love and gratitude.
+ - The drama’s done. Why then here does any one step forth? – Because one did survive the wreck.
+ - If Shakespeare has not been equalled, he is sure to be surpassed, and surpassed by an American born now or yet to be born.
+ - Doesn’t the devil live forever; who ever heard that the devil was dead? Did you ever see any person wearing mourning for the devil?
+ - That great America on the other side of the sphere, Australia.
+ - War being the greatest of evils, all its accessories necessarily partake of the same character.
+ - The world’s a ship on its voyage out, and not a voyage complete; and the pulpit is its prow.
+ - The phantom-host has faded quite, Splendor and Terror gone – Portent or promise – and gives way To pale, meek Dawn.
+ - None but a good man is really a living man, and the more good any man does, the more he really lives. All the rest is death, or belongs to it.
+ - A book in a man’s brain is better off than a book bound in calf – at any rate it is safer from criticism.
+ - An intense copper calm, like a universal yellow lotus, was more and more unfolding its noiseless measureless leaves upon the sea.
+ - Nothing can lift the heart of man like manhood in a fellow man.
+ - Art is the objectification of feeling.
+ - Mystery is in the morning, and mystery in the night, and the beauty of mystery is everywhere; but still the plain truth remains, that mouth and purse must be filled.
+ - My means are sane, my motives and my object mad.
+ - A ship is a bit of terra firma cut off from the main; it is a state in itself; and the captain is its king.
+ - This divineness had that in it which, though commanding worship, at the same time enforced a certain nameless terror.
+ - Man and boy, I have lived ever since I can remember.
+ - He pressed his forehead against mine, clasped me around my waist, and said henceforth we were married.
+ - We are not a nation, so much as a world; for unless we claim all the world for our sire, like Melchisedec, we are without father or mother.
+ - Bachelors alone can travel freely, and without any twinges of their consciences touching desertion of the fire-side.
+ - If a well-constituted individual refrains from blazoning aught amiss or calamitous in his family, a nation in the like circumstance may without reproach be equally discreet.
+ - Know, thou, that the lines that live are turned out of a furrowed brow.
+ - You know nothing till you know all; which is the reason we never know any thing.
+ - Nature has not implanted any power in man that was not meant to be exercised at times, though too often our powers have been abused.
+ - How feeble is all language to describe the horrors we inflict upon these wretches, whom we mason up in the cells of our prisons, and condemn to perpetual solitude in the very heart of our population.
+ - Of all nature’s animated kingdoms, fish are the most unchristian, inhospitable, heartless, and cold-blooded of creatures.
+ - Of all human events, perhaps, the publication of a first volume of verses is the most insignificant; but though a matter of no moment to the world, it is still of some concern to the author.
+ - All round and round does the world lie as in a sharp-shooter’s ambush, to pick off the beautiful illusions of youth, by the pitiless cracking rifles of the realities of age.
+ - It is upon record, that three centuries ago the tongue of the Right Whale was esteemed a great delicacy in France, and commanded large prices there.
+ - Thus it often is, that the constant friction of illiberal minds wears out at last the best resolves of the more generous.
+ - We cannibals must help these Christians.
+ - Aid my disillusionment, my friend!
+ - Nothing may help or heal While Amor incensed remembers wrong.
+ - What plays the mischief with the truth is that men will insist upon the universal application of a temporary feeling or opinion.
+ - And the visible world seems formed in love, the invisible spheres were formed in fright.
+ - Some years ago – never mind how long precisely – having little or no money in my purse, and nothing particular to interest me on shore, I thought I would sail about a little and see the watery part of the world.
+ - In time of peril, like the needle to the loadstone, obedience, irrespective of rank, generally flies to him who is best fitted to command.
+ - If you begin the day with a laugh, you may, nevertheless, end it with a sob and a sigh.
+ - Struck dead by an angel of God! Yet the angel must hang!
+ - Boy, take my advice, and never try to invent any thing but – happiness.
+ - Let America add Mexico to Texas, and pile Cuba upon Canada; let the English overswarm all India, and hang out their blazing banner from the sun; two thirds of this terraqueous globe are the Nantucketer’s. For the sea is his; he owns it.
+ - Warmest climes but nurse the cruellest fangs: the tiger of Bengal crouches in spiced groves of ceaseless verdure. Skies the most effulgent but basket the deadliest thunders: gorgeous Cuba knows tornadoes that never swept tame northern lands.
+ - To a sensitive being, pity is not seldom pain.
+ - Do not presume, well-housed, well-warmed, and well-fed, to criticize the poor.
+ - There is a touch of divinity even in brutes, and a special halo about a horse, that should forever exempt him from indignities.
+ - What troops Of generous boys in happiness thus bred Saturnians through life’s Tempe led, Went from the North and came from the South, With golden mottoes in the mouth, To lie down midway on a bloody bed.
+ - Of all insults, the temporary condescension of a master to a slave is the most outrageous and galling. That potentate who most condescends, mark him well; for that potentate, if occasion come, will prove your uttermost tyrant.
+ - Better be secure under one king, than exposed to violence from twenty millions of monarchs, though oneself be one of them.
+ - The Marquesan girls dance all over; not only do their feet dance, but their arms, hands, fingers, ay, their very eyes seem to dance in their heads.
+ - This whole act’s immutably decreed. ‘Twas rehearsed by thee and me a billion years before this ocean rolled. Fool! I am the Fates’ lieutenant; I act under orders.
+ - The fact is, that among his hunters at least, the whale would by all hands be considered a noble dish, were there not so much of him; but when you come to sit down before a meat-pie nearly one hundred feet long, it takes away your appetite.
+ - Meditation and water are wedded for ever.
+ - What man who carries a heavenly soul in him, has not groaned to perceive, that unless he committed a sort of suicide as to the practical things of this world, he never can hope to regulate his earthly conduct by that same heavenly soul?
+ - There is sorrow in the world, but goodness too; and goodness that is not greenness, either, no more than sorrow is.
+ - Give not thyself up, then, to fire, lest it invert thee, deaden thee, as for the time it did me. There is a wisdom that is woe; but there is a woe that is madness.
+ - Stripped of the cunning artifices of the tailor, and standing forth in the garb of Eden – what a sorry set of round-shouldered, spindle-shanked, crane-necked varlets would civilized men appear!
+ - Charity, like poetry, should be cultivated, if only for its being graceful.
+ - If not against us, nature is not for us.
+ - Ah! the best righteousness of our man-of-war world seems but an unrealized ideal, after all; and those maxims which, in the hope of bringing about a Millennium, we busily teach to the heathen, we Christians ourselves disregard.
+ - At banquets surfeit not, but fill; partake, and retire; and eat not again till you crave.
+ - In their precise tracings-out and subtle causations, the strongest and fieriest emotions of life defy all analytical insight.
+ - He who is ready to despair in solitary peril, plucks up a heart in the presence of another. In a plurality of comrades is much countenance and consolation.
+ - Nature is nobody’s ally.
+ - Ladies are like creeds; if you cannot speak well of them, say nothing.
+ - War should be carried on like a monsoon; one changeless determination of every particle towards the one unalterable aim.
+ - It is only when caught in the swift, sudden turn of death, that mortals realise the silent, subtle, ever-present perils of life.
+ - True places are not found on maps.
+ - When a companion’s heart of itself overflows, the best one can do is to do nothing.
+ - The only ugliness is that of the heart, seen through the face. And though beauty be obvious, the only loveliness is invisible.
+ - To be a born American citizen seems a guarantee against pauperism; and this, perhaps, springs from the virtue of a vote.
+ - Our souls belong to our bodies, not our bodies to our souls.
+ - Any appellative at all savouring of arbitrary rank is unsuitable to a man of liberal and catholic mind.
+ - There are times when even the most potent governor must wink at transgression, in order to preserve the laws inviolate for the future.
+ - Can it be, that the Greek grammarians invented their dual number for the particular benefit of twins?
+ - Civilization has not ever been the brother of equality. Freedom was born among the wild eyries in the mountains; and barbarous tribes have sheltered under her wings, when the enlightened people of the plain have nestled under different pinions.
+ - Soldier or sailor, the fighting man is but a fiend; and the staff and body-guard of the Devil musters many a baton.
+ - Students of history are horror-struck at the massacres of old; but in the shambles, men are being murdered to-day.
+ - The entire merit of a man can never be made known; nor the sum of his demerits, if he have them. We are only known by our names; as letters sealed up, we but read each other’s superscriptions.
+ - The march of conquest through wild provinces, may be the march of Mind; but not the march of Love.
+ - Let us speak, though we show all our faults and weaknesses, – for it is a sign of strength to be weak, to know it, and out with it – not in a set way and ostentatiously, though, but incidentally and without premeditation.
+ - Let us be Christians toward our fellow-whites, as well as philanthropists toward the blacks our fellow-men. In all things, and toward all, we are enjoined to do as we would be done by.
+ - The names of all fine authors are fictitious ones, far more so than that of Junius, – simply standing, as they do, for the mystical, ever-eluding Spirit of all Beauty, which ubiquitously possesses men of genius.
+ - There are hardly five critics in America; and several of them are asleep.
+ - Poor fish of Rodondo! in your victimized confidence, you are of the number of those who inconsiderately trust, while they do not understand, human nature.
+ - If some books are deemed most baneful and their sale forbid, how then with deadlier facts, not dreams of doting men? Those whom books will hurt will not be proof against events. Events, not books should be forbid.
+ - In thoughts of the visions of the night, I saw long rows of angels in paradise, each with his hands in a jar of spermaceti.
+ - Many sensible things banished from high life find an asylum among the mob.
+ - O Death, the Consecrator! Nothing so sanctifies a name As to be written – Dead. Nothing so wins a life from blame, So covers it from wrath and shame, As doth the burial-bed.
+ - It is with fiction as with religion: it should present another world, and yet one to which we feel the tie.
+ - There is all of the difference in the world between paying and being paid.
+ - Youth is the time when hearts are large.
+ - While nature thus very early and very abundantly feeds us, she is very late in tutoring us as to the proper methodization of our diet.
+ - The poor man wants many things; the covetous man, all.
+ - The only true infidelity is for a live man to vote himself dead.
+ - It is not the purpose of literature to purvey news. For news consult the Almanac de Gotha.
+ - Were civilization itself to be estimated by some of its results, it would seem perhaps better for what we call the barbarous part of the world to remain unchanged.
+ - Surely no mere mortal who has at all gone down into himself will ever pretend that his slightest thought or act solely originates in his own defined identity.
+ - Is there some principal of nature which states that we never know the quality of what we have until it is gone?
+ - Traveling takes the ink out of one’s pen as well as the cash out of one’s purse.
+ - Is he mad? Anyway there’s something on his mind, as sure as there must be something on a deck when it cracks.
+ - Tis no dishonor when he who would dishonor you, only dishonors himself.
+ - The worst of our evils we blindly inflict upon ourselves; our officers cannot remove them, even if they would.
+ - One of the coolest and wisest hours a man has, is just after he awakes in the morning.
+ - Praise when merited is not a boon: yet to a generous nature, is it pleasant to utter it.
+ - The terrors of truth and dart of death To faith alike are vain.
+ - Yet habit – strange thing! what cannot habit accomplish?
+ - Man, in the ideal, is so noble and so sparkling, such a grand and glowing creature, that over any ignominious blemish in him all his fellows should run to throw their costliest robes.
+ - He knows himself, and all that’s in him, who knows adversity.
+ - Though the ancients were ignorant of the principles of Christianity there were in them the germs of its spirit.
+ - Thou hast evoked in me profounder spells than the evoking one, thou face! For me, thou hast uncovered one infinite, dumb, beseeching countenance of mystery, underlying all the surfaces of visible time and space.
+ - We die, because we live.
+ - Zeal is not of necessity religion, neither is it always of the same essence with poetry or patriotism.
+ - Prayer draws us near to our own souls.
+ - Benevolent desires, after passing a certain point, can not undertake their own fulfillment without incurring the risk of evils beyond those sought to be remedied.
+ - To treat of human actions is to deal wholly with second causes.
+ - It is a thing which every sensible American should learn from every sensible Englishman, that glare and glitter, gimcracks and gewgaws, are not indispensable to domestic solacement.
+ - To be called one thing, is oftentimes to be another.
+ - In our own hearts, we mold the whole world’s hereafters; and in our own hearts we fashion our own gods.
+ - Fame is an accident; merit a thing absolute.
+ - Our institutions have a potent digestion, and may in time convert and assimilate to good all elements thrown in, however originally alien.
+ - At length I fell asleep, with the volume in my hand; and never slept so sound before.
+ - We die of too much life.
+ - Not one man in five cycles, who is wise, will expect appreciative recognition from his fellows, or any one of them.
+ - Whenever we discover a dislike in us, toward any one, we should ever be a little suspicious of ourselves.
+ - Some dying men are the most tyrannical; and certainly, since they will shortly trouble us so little for evermore, the poor fellows ought to be indulged.
+ - As in digging for precious metals in the mines, much earthy rubbish has first to be troublesomely handled and thrown out; so, in digging in one’s soul for the fine gold of genius, much dullness and common-place is first brought to light.
+ - Where does any novelist pick up any character? For the most part, in town, to be sure.
+ - And what is it, thought I, after all! It’s only his outside; a man can be honest in any sort of skin.
+ - Everyone knows that in most people’s estimation, to do anything cooly is to do it genteelly.
+ - It is impossible to talk or to write without apparently throwing oneself helplessly open.
+ - In metropolitan cases, the love of the most single-eyed lover, almost invariably, is nothing more than the ultimate settling of innumerable wandering glances upon some one specific object.
+ - It is not for man to follow the trail of truth too far, since by so doing he entirely loses the directing compass of his mind.
+ - Time is made up of various ages; and each thinks its own a novelty.
+ - All we discover has been with us since the sun began to roll; and much we discover, is not worth the discovering.
+ - I do not think I have any uncharitable prejudice against the rattlesnake, still, I should not like to be one.
+ - Never joke at funerals, or during business transactions.
+ - Thou saw’st the locked lovers when leaping from their flaming ship; heart to heart they sank beneath the exulting wave; true to each other, when heaven seemed false to them.
+ - Because no man can ever feel his own identity aright except his eyes be closed; as if darkness were indeed the proper element of our essences, though light be more congenial to our clayey part.
+ - In some things, we Americans leave to other countries the carrying out of the principle that stands at the head of our Declaration of Independence.
+ - People seem to have a great love for names. For to know a great many names seems to look like knowing a good many things.
+ - Men there are, who having quite done with the world, all its merely worldly contents are become so far indifferent, that they carelittle of what mere worldly imprudence they may be guilty.
+ - I will live and die by this testimony: that I loved a good conscience; that I never invaded another man’s liberty; and that I preserved my own.
+ - A man can be honest in any sort of skin.
+ - I have written a wicked book, and feel spotless as the lamb.
+ - If there be any thing a man might well pray against, that thing is the responsive gratification of some of the devoutest prayers of his youth.
+ - One would like to know, what were foes made for except to be used?
+ - There is something in us, somehow, that, in the most degraded condition, we snatch at a chance to deceive ourselves into a fanciedsuperiority to others, whom we suppose lower in the scale than ourselves.
+ - We are only what we are; not what we would be; nor every thing we hope for. We are but a step in a scale, that reaches further above us than below.
+ - We are off! The courses and topsails are set: the coral-hung anchor swings from the bow: and together, the three royals are given to the breeze, that follows us out to sea like the baying of a hound.
+ - It may seem strange that of all men sailors should be tinkering at their last wills and testaments, but there are no people in the world more fond of that diversion.
+ - It is against the will of God that the East should be Christianized.
+ - There are doubts, sir, which, if man have them, it is not man that can solve them.
+ - To certain temperaments, especially when previously agitated by any deep feeling, there is perhaps nothing more exasperating, andwhich sooner explodes all self-command, than the coarse, jeering insolence of a porter, cabman, or hack-driver.
+ - For God’s sake, be economical with your lamps and candles! not a gallon you burn, but at least one drop of man’s blood was spilled for it.
+ - A thing may be incredible and still be true; sometimes it is incredible because it is true.
+ - No mercy, no power but its own controls it. Panting and snorting like a mad battle steed that has lost its rider, the masterless ocean overruns the globe.
+ - Youth is the time when hearts are large, And stirring wars Appeal to the spirit which appeals in turn To the blade it draws.
+ - Think of it. To go down to posterity as a ‘man who lived among the cannibals.’
+ - That immaculate manliness we feel within ourselves, so far within us, that it remains intact though all the outer character seem gone; bleeds with keenest anguish at the undraped spectacle of a valor-ruined man.
+ - There is nothing namable but that some men will, or undertake to, do it for pay.
+
+383 quotes

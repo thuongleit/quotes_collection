@@ -1,0 +1,68 @@
+ - People leave managers, not companies.
+ - You will excel only by maximizing your strengths, never by fixing your weaknesses.
+ - Focusing on strengths is the surest way to greater job satisfaction, team performance and organizational excellence.
+ - Always work hard. Intensity clarifies. It creates not only momentum, but also the pressure you need to feel either friction, or fulfillment.
+ - The difference between a pebble and a mountain lies in whom you ask to move it.
+ - Remember, what you focus on expands; results follow focus.
+ - Authenticity is your most precious commodity as a leader.
+ - Discover what you don’t like doing and stop doing it.
+ - Great leaders rally people to a better future.
+ - Talent is the multiplier. The more energy and attention you invest in it, the greater the yield. The time you spend with your best is, quite simply, your most productive time.
+ - Clarity is the preoccupation of the effective leader. If you do nothing else as a leader, be clear.
+ - The best way to find out whether you’re on the right path? Stop looking at the path.
+ - Strengths are not activities you’re good at, they’re activities that strengthen you. A strength is an activity that before you’re doing it you look forward to doing it; while you’re doing it, time goes by quickly and you can concentrate; after you’ve done it, it seems to fulfill a need of yours.
+ - We’re all filled with naturally recurring patterns that make us unique – they’re called talents. And our charge is to bloody well use them.
+ - Don’t waste time trying to put in what was left out. Try to draw out what was left in.
+ - Companies don’t have one culture. They have as many as they have supervisors or managers. You want to build a strong culture? Hold every manager accountable for the culture that he or she builds.
+ - A strength is what you do that makes you feel strengthened.
+ - The talented employee may join a company because of its charismatic leaders, its generous benefits, and its world-class training programs, but how long that employee stays and how productive he is while he is there is determined by his relationship with his immediate supervisor.
+ - Many of us feel stress and get overwhelmed not because we’re taking on too much, but because we’re taking on too little of what really strengthens us.
+ - Clarity is the answer to anxiety. Effective leaders are clear.
+ - Teach your children how to identify their own strengths and challenge them to contribute these strengths to others.
+ - Define excellence vividly, quantitatively. Paint a picture for your most talented employees of what excellence looks like. Keep everyone pushing and pushing toward the right-hand edge of the bell curve.
+ - CEOs hate variance. It’s the enemy. Variance in customer service is bad. Variance in quality is bad. CEOs love processes that are standardized, routinized, predictable. Stamping out variance makes a complex job a bit less complex.
+ - You cannot learn very much about excellence from studying failure.
+ - You can find energizing moments in each aspect of your life, but to do so you must learn how to catch them, hold on to them, to feel the pull of their weight and allow yourself to follow where they lead.
+ - The true genius of a great manager is his or her ability to individualize. A great manager is one who understands how to trip each person’s trigger.
+ - I think a good business book has one coherent idea that is richly played out.
+ - I do still get extremely nervous before speeches. My biggest fear is that I’ll be standing there in front of hundreds of people and be incapable of talking. I’m afraid that I’ll make a complete fool of myself and be unable to go on.
+ - Your strongest life is built through a continuous practice of designing moment by moment.
+ - Innovation and best practices can be sown throughout an organization – but only when they fall on fertile ground.
+ - Everyone can probably do at least one thing better than ten thousand other people.
+ - We dream of having a clean house – but who dreams of actually doing the cleaning? We don’t have to dream about doing the work, because doing the work is always within our grasp; the dream, in this sense, is to attain the goal without the work.
+ - Passion isn’t something that lives way up in the sky, in abstract dreams and hopes. It lives at ground level, in the specific details of what you’re actually doing every day.
+ - The corporate world is appallingly bad at capitalizing on the strengths of its people.
+ - It’s a special person – and personality – who can lead a start-up to soaring success and sustain that success for the long term. Apple co-founder Steve Jobs and Facebook’s Mark Zuckerberg are star examples.
+ - Women have lives that become increasingly empty. They’re doing more and feeling less.
+ - Life’s tricky for women because they have to make more choices than men. And yes, choice is good, but boy, you better be an expert choice-maker.
+ - In a war, no matter the outcome of a certain skirmish or battle, the winner is the party whose attitudes, behaviors and preoccupations come to dominate the postwar landscape. By this measure, the outcome of the gender wars, if wars they were, is clear: women won.
+ - The opposite of a leader isn’t a follower. The opposite of a leader is a pessimist.
+ - If we have to know without a doubt that the choices we are making are the perfect ones, we risk never making any choices at all.
+ - Gen Y is really quite distinct from Gen X; it’s really self-involved and very narcissistic – their cameras are filled with pictures of themselves; Facebook, it’s about me. It’s a generation that’s been pampered by their parents and their schools, given prizes for just taking part.
+ - The secret to living a strong life is right in front of you, calling to you every day. It can be found in your emotional reaction to specific moments in your life.
+ - The best strategy for building a competitive organization is to help individuals become more of who they are.
+ - American culture is CEO obsessed. We celebrate the hard-charging heroes and mythologize the iconoclastic visionaries. Those people are important.
+ - You won’t find a CEO who doesn’t talk about a ‘powerful culture’ as a source of competitive advantage. At the same time, you’d be hard-pressed to find a CEO who has much of a clue about the strength of that culture.
+ - There has to be a way to redirect employee’s driving ambition and to channel it more productively. There is. Create heroes in every role. Make every role, performed at excellence, a respected profession.
+ - Convey your passion and link your strengths to measurable results. Employers and interviewers love concrete data.
+ - We need to say goodbye to the traditional methodologies of corporate universities.
+ - Great managers know they don’t have 10 salespeople working for them. They know they have 10 individuals working for them. A great manager is brilliant at spotting the unique differences that separate each person and then capitalizing on them.
+ - True individuality can be lonely.
+ - If you want to be clear, act.
+ - Sustained success means making the greatest possible impact over the longest period of time.
+ - No idea will work if people don’t trust your intentions toward them.
+ - It’s odd that I’m a big name in America and not known in Britain.
+ - In most cases, no matter what it is, if you measure it and reward it, people will try to excel at it.
+ - You will learn and grow the least in your areas of weakness.
+ - Every company wants to know how to find and keep highly talented women in the workplace.
+ - What do we know to be important but are unable to measure?
+ - When you feel as though you can’t do something, the simple antidote is action: Begin doing it. Start the process, even if it’s just a simple step, and don’t stop at the beginning.
+ - If you want execution, hail only success. If you want creativity, hail risk, and remain neutral about success.
+ - In the minds of great managers, consistent poor performance is not primarily a matter of weakness, stupidity, disobedience, or disrespect. It is a matter of miscasting.
+ - Americans just love convening. They are a convention-happy country and they love to get together to talk.
+ - We live with them every day, and they come so easily to us that they cease to be precious.
+ - Google and Facebook, each in their own way, have revolutionized the delivery of advertising based on search and social networking, creating a sort of anti-Spam: targeted, relevant ads that a consumer might actually welcome rather than spurn.
+ - Every time you make a rule you take away a choice, and choice, with all of its illuminating repercussions, is the fuel for learning.
+ - Most of my work has been in corporations, studying how you build an organization that helps people to identify and work to their strengths.
+
+66 quotes

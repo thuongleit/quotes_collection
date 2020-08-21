@@ -1,0 +1,42 @@
+ - Play is the work of childhood. ~~Jean Piaget
+ - Every time we teach a child something, we keep him from inventing it himself. On the other hand, that which we allow him to discover for himself will remain with him visible for the rest of his life. ~~Jean Piaget
+ - Childhood is the one story that stands by itself in every soul. ~~Ivan Doig
+ - In that world, you’ll be able to rise in the morning with the spirit you had known in your childhood: that spirit of eagerness, adventure and certainty which comes from dealing with a rational universe. ~~Ayn Rand
+ - Before you judge me, ask me about my childhood. And I will ask you about yours. ~~Michael Jackson
+ - Let your old age be childlike, and your childhood like old age; that is, so that neither may your wisdom be with pride, nor your humility without wisdom. ~~Saint Augustine
+ - The childhood of today is the manhood of tomorrow. ~~William Wordsworth
+ - One should never count the years – one should instead count one’s interests. I have kept young trying never to lose my childhood sense of wonderment. I’m glad I still have a vivid curiosity about the world I live in. ~~Helen Keller
+ - The goal of early childhood education should be to activate the child’s own natural desire to learn. ~~Maria Montessori
+ - Childhood memories are sometimes covered and obscured beneath the things that come later, like childhood toys forgotten at the bottom of a crammed adult closet, but they are never lost for good. ~~Neil Gaiman
+ - For all its material advantages, the sedentary life has left us edgy, unfulfilled, even after 400 generations in villages and cities, we haven’t forgotten: The open road still softly calls like a nearly forgotten song of childhood. ~~Carl Sagan
+ - I let go of childhood fears. I am a secure, empowered human being. ~~Louise Hay
+ - Grown up, and that is a terribly hard thing to do. It is much easier to skip it and go from one childhood to another. ~~F. Scott Fitzgerald
+ - Religion is an illusion of childhood, outgrown under proper education. ~~Auguste Comte
+ - Childhood has it’s own way of seeing, thinking, and feeling, and nothing is more foolish than to try to substitute ours for theirs. ~~Jean-Jacques Rousseau
+ - Childhood obesity issue is critically important to me because it’s critically important to the health and success of our kids, and of this nation, ultimately. ~~Michelle Obama
+ - What was wonderful about childhood is that anything in it was a wonder. It was not merely a world full of miracles; it was a miraculous world. ~~Gilbert K. Chesterton
+ - Childhood decisions do not have to define you. ~~Selena Gómez
+ - Grown ups are complicated creatures, full of quirks and secrets. ~~Roald Dahl
+ - What one loves in childhood stays in the heart forever. ~~Mary Jo Putney
+ - The death of childhood is the beginning of poetry. ~~Andrei Tarkovsky
+ - There’s something about childhood friends that you just can’t replace. ~~Lisa Whelchel
+ - Genius is nothing more nor less than childhood recaptured at will. ~~Charles Baudelaire
+ - All of us are products of our childhood. ~~Michael Jackson
+ - There are perhaps no days of our childhood we lived so fully as those we spent with a favorite book. ~~Marcel Proust
+ - You are not responsible for the programming you picked up in childhood. However, as an adult, you are one hundred percent responsible for fixing it. ~~Ken Keyes Jr.
+ - We should not moor a ship with one anchor, or our life with one hope. ~~Epictetus
+ - Quit thy childhood, my friend, and wake up! ~~Jean-Jacques Rousseau
+ - Childhood is not from birth to a certain age and at a certain age. The child is grown, and puts away childish things. Childhood is the kingdom where nobody dies. ~~Edna St. Vincent Millay
+ - Genius is the recovery of childhood at will. ~~Arthur Rimbaud
+ - I had this rare privilege of being able to pursue in my adult life, what had been my childhood dream. ~~Andrew Wiles
+ - The day we fret about the future is the day we leave our childhood behind. ~~Patrick Rothfuss
+ - There are a lot of children in Afghanistan, but little childhood. ~~Khaled Hosseini
+ - I grew up in Cambridge in England, and my love of mathematics dates from those early childhood days. ~~Andrew Wiles
+ - In early childhood you may lay the foundation of poverty or riches, industry or idleness, good or evil, by the habits to which you train your children. Teach them right habits then, and their future life is safe. ~~Lydia Sigourney
+ - Playing with Queen was the biggest moment of my career. It was like living a childhood fantasy. ~~George Michael
+ - Genius is nothing more or less than childhood recovered by will, a childhood how equipped for self-expression with an adult’s capacities. ~~Charles Baudelaire
+ - Writing was not a childhood dream of mine. I do not recall longing to write as a student. I wasn’t sure how to start. ~~John Grisham
+ - I had a really good childhood up until I was nine, then a classic case of divorce really affected me. ~~Kurt Cobain
+ - Unhappy is he to whom the memories of childhood bring only fear and sadness. ~~H.P. Lovecraft
+
+40 quotes

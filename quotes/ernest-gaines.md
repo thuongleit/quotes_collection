@@ -1,0 +1,45 @@
+ - Words mean nothing. Action is the only thing. Doing. That’s the only thing.
+ - I had to see and feel and be with the thing that I wanted to write about.
+ - Question everything. Every stripe, every star, every word spoken. Everything.
+ - Today I must write a paragraph or a page better than I did yesterday.
+ - The Six Golden Rules of Writing: Read, read, read, and write, write, write.
+ - You’ve got to bend with the wind or you’re broken.
+ - I have no more to say except this: We must live with our own conscience.
+ - Sometimes you got to hurt something to help something. Sometimes you have to plow under one thing in order for something else to grow.
+ - I want you to show them the difference between what they think you are and what you can be.
+ - When I’m sitting in the church alone, I can hear singing of the old people. I can hear their singing and I can hear their praying, and sometimes I hum one of their songs.
+ - Nietzsche said without music, life would be a mistake. To me, without books, life would be a mistake.
+ - We all have much more in common than we have difference. I would say that about people all over the world. They don’t know how much in common that they have.
+ - Why is it that, as a culture, we are more comfortable seeing two men holding guns than holding hands?
+ - I think I’m a very religious person. I think I believe in God as much as any man does. I don’t only believe in God, I know there’s God.
+ - What I miss today more than anything else – I don’t go to church as much anymore – but that old-time religion, that old singing, that old praying which I love so much. That is the great strength of my being, of my writing.
+ - I still don’t even know if the sheriff will let me see him. And suppose he did; what then? What do I say to him? Do I know what a man is? Do I know how a man is supposed to die? I’m still trying to find out how a man should live. Am I supposed to tell someone how to die who has never lived?
+ - He told us that most of us would die violently, and those who did not would be brought down to the level of beasts.
+ - Now, about that mulatto teacher and me. There was no love there for each other. There was not even respect. We were enemies if anything. He hated me, and I knew it, and he knew I knew it. I didn’t like him, but I needed him, needed him to tell me something that none of the others could or would.
+ - The sharecropper may lower his eyes, but not because he’s less of a man. That’s just a condition of society that such things exist.
+ - There will always be men struggling to change, and there will always be those who are controlled by the past.
+ - In all my stories and novels, no one ever escapes Louisiana. Maybe that is because my soul never left Louisiana, although my body did go to California.
+ - I write to try to find out who I am. One of my main themes is manliness. I think I’m trying to figure out what manliness really is.
+ - The mark of fear is not easily removed.
+ - The artist must be like a heart surgeon. He must approach something with sympathy, but with a sort of coldness and work and work until he finds some kind of perfection in his work. You can’t have blood splashing all over the place. Things must be done very cleanly.
+ - And that’s all we are Jefferson, all of us on this earth, a piece of drifting wood. until we – each of us, individually- decide to become something else. I am still that piece of drifting wood, and those out there are no better. But you can be better.
+ - A myth is an old lie that people believe in. White people believe that they’re better than anyone else on earth – and that’s a myth.
+ - Anytime a child is born, the old people look in his face and ask him if he’s the One.
+ - I believe that the writer should tell a story. I believe in plot. I believe in creating characters and suspense.
+ - We looked at each other, and I could see in those big reddened eyes that he was not going to scream. He was full of anger – and who could blame him? – but he was no fool. He needed me, and he wanted me here, if only to insult me.
+ - There will always be men struggling...
+ - If I were to give one piece of advice, I would say to never accept anything that you hear or see at face value. As a general rule of thumb, then the more you question, the better.
+ - I suppose I started writing seriously at 16 years old. I thought I wrote a novel at 16 and sent it to New York! They sent it back because it wasn’t novel.
+ - How do people come up with a date and a time to take life from another man? Who made them God?
+ - Only when the mind is free has the body a chance to be free. Yes, they must believe, they must believe. Because I know what it means to be a slave. I am a slave.
+ - I have learned as much about writing about my people by listening to blues and jazz and spirituals as I have by reading novels.
+ - I try to write something that would interest anybody and keep them turning the page. You must have a plot and good storyline.
+ - I wanted to be a writer. I wanted to say something about home.
+ - Everything’s been said, but it needs saying again.
+ - I like the sound of people’s voices, and I think what a man says can very well tell what he’s thinking, whether he’s lying or not.
+ - I write with as much objectivity as I can.
+ - We wait till now? Now, when we’re old men, we get to be brave?
+ - All writers write about the past, and I try to make it come alive so you can see what happened.
+ - I knew I wanted to be a writer and I knew if I had a wife and family, I would neglect something, and I was afraid it wouldn’t be the writing.
+
+43 quotes

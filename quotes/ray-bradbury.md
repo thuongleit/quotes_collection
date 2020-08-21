@@ -1,0 +1,502 @@
+ - Don’t think. Thinking is the enemy of creativity. It’s self-conscious and anything self-conscious is lousy. You can’t try to do things. You simply must do things.
+ - You don’t have to burn books to destroy a culture. Just get people to stop reading them.
+ - You fail only if you stop writing.
+ - I know you’ve heard it a thousand times before. But it’s true – hard work pays off. If you want to be good, you have to practice, practice, practice. If you don’t love something, then don’t do it.
+ - Don’t think about things, just do them; don’t predict them, just make them.
+ - Jump, and you will find out how to unfold your wings as you fall.
+ - Write a short story every week. It’s not possible to write 52 bad short stories in a row.
+ - Don’t talk about it; write.
+ - Stuff your eyes with wonder, live as if you’d drop dead in ten seconds. See the world. It’s more fantastic than any dream made or paid for in factories.
+ - Love. Fall in love and stay in love. Write only what you love, and love what you write. The key word is love. You have to get up in the morning and write something you love, something to live for.
+ - Without libraries what have we? We have no past and no future.
+ - Life is about trying things to see if they work.
+ - You must stay drunk on writing so reality cannot destroy you.
+ - Time is so strange and life is twice as strange.
+ - Let the world burn through you. Throw the prism light, white hot, on paper.
+ - Just write every day of your life. Read intensely.
+ - Don’t ask for guarantees. And don’t look to be saved in any one thing, person, machine, or library. Do your own bit of saving, and if you drown, at least die knowing you were heading for shore.
+ - Just write every day of your life. Read intensely. Then see what happens. Most of my friends who are put on that diet have very pleasant careers.
+ - Write. Don’t think. Relax.
+ - If you write a hundred short stories and they’re all bad, that doesn’t mean you’ve failed. You fail only if you stop writing.
+ - Libraries are the center of our lives. There’s no use going to a university if you don’t live at the library.
+ - You have to know how to accept rejection and reject acceptance.
+ - If you did not write every day, the poisons would accumulate and you would begin to die, or act crazy or both-you must stay drunk on writing so reality cannot destroy you.
+ - There’s no use going to school unless your final destination is the library.
+ - Love what you do and do what you love. Don’t listen to anyone else who tells you not to do it. You do what you want, what you love. Imagination should be the center of your life.
+ - Do what you love and love what you do. Don’t do anything for money. Everything should be for love.
+ - Love is the answer to everything. It’s the only reason to do anything.
+ - Self-consciousness is the enemy of all art, be it acting, writing, painting, or living itself, which is the greatest art of all.
+ - I have never listened to anyone who criticized my taste in space travel, sideshows or gorillas. When this occurs, I pack up my dinosaurs and leave the room.
+ - You can make yourself happy or miserable – it’s the same amount of effort.
+ - Looking back over a lifetime, you see that love was the answer to everything.
+ - I define science fiction as the art of the possible. Fantasy is the art of the impossible.
+ - I don’t know anything anymore.
+ - See the world. It’s more fantastic than any dream.
+ - But you can’t make people listen. They have to come round in their own time, wondering what happened and why the world blew up around them. It can’t last.
+ - Don’t worry about things. Don’t push. Just do your work and you’ll survive. The important thing is to have a ball, to be joyful, to be loving and to be explosive. Out of that comes everything and you grow.
+ - We travel, initially, to lose ourselves, and we travel, next, to find ourselves. We travel to open our hearts and eyes. And we travel, in essence, to become young fools again – to slow time down and get taken in, and fall in love once more.
+ - Your intuition knows what to write, so get out of the way.
+ - I don’t need an alarm clock. My ideas wake me.
+ - Forget them. Burn all, burn everything. Fire is bright and fire is clean.
+ - Write 1000 words a day. That’s only about four pages, but force yourself to do it. Put your finger down your throat and throw up. That’s what writing’s all about.
+ - The magic is only in what books say, how they stitched the patches of the universe together into one garment for us.
+ - Beware the autumn people.
+ - A book has got smell. A new book smells great. An old book smells even better. An old book smells like ancient Egypt.
+ - First, find out what your hero wants, then just follow him.
+ - And what, you ask, does writing teach us? First and foremost, it reminds us that we are alive and that it is a gift and a privilege, not a right.
+ - Insanity is relative. It depends on who has who locked in what cage.
+ - Video games are a waste of time for men with nothing else to do.
+ - Quantity produces quality. If you only write a few things, you’re doomed.
+ - Living at risk is jumping off the cliff and building your wings on the way down.
+ - I’m not a serious person, and I don’t like serious people.
+ - Action is hope. There is no hope without action.
+ - That’s the good part of dying; when you’ve nothing to lose, you run any risk you want.
+ - A book is a loaded gun.
+ - Every story I’ve written was written because I had to write it. Writing stories is like breathing for me; it is my life.
+ - You must never name the goal. You must never tell us the target you’re hitting for. You must automatically go toward it without ever naming it.
+ - I don’t talk things, sir. I talk the meaning of things.
+ - It was a pleasure to burn.
+ - In that film Love Story, there’s a line, “Love means never having to say you’re sorry.” That’s the dumbest thing I ever heard. Love means saying you’re sorry every day for some little thing or other.
+ - The good writers touch life often. The mediocre ones run a quick hand over her. The bad ones rape her and leave her for the flies.
+ - A reason I became a writer was to escape the hopelessness and despair of the real world and enter the world of hope I could create with my imagination.
+ - To everything there is a season. Yes. A time to break down, and a time to build up. Yes. A time to keep silence and a time to speak. Yes.
+ - If you hide your ignorance, no one will hit you and you’ll never learn.
+ - Too late, I found you can’t wait to become perfect, you got to go out and fall down and get up with everybody else.
+ - We need not to be let alone. We need to be really bothered once in a while. How long is it since you were really bothered? About something important, about something real?
+ - Science-fiction balances you on the cliff. Fantasy shoves you off.
+ - If God treats you well by teaching you a disastrous lesson, you never forget it.
+ - Do what you love, don’t do anything else.
+ - We must all be alike. Not everyone born free and equal, as the Constitution says, but everyone made equal. Each man the image of every other; then all are happy, for there are no mountains to make them cower, to judge themselves against.
+ - Space travel is life-enhancing, and anything that’s life-enhancing is worth doing. It makes you want to live forever.
+ - People ask me to predict the future, when all I want to do is prevent it.
+ - We are cups, constantly and quietly being filled. The trick is, knowing how to tip ourselves over and let the beautiful stuff out.
+ - Everything is generated through your own will power. You don’t have to do anything you don’t want to do. This is a democracy. You go where you want to go and do what you want to do.
+ - That country whose people are autumn people, thinking only autumn thoughts.
+ - Live as if you’d drop dead in ten seconds.
+ - Digression is the soul of wit.
+ - If you love people you criticize them, and if you don’t love them you don’t criticize them, you let them go to hell, don’t you? To help any kind of friendship, your marriage, your children, you criticize because you love.
+ - The only science fiction I have written is Fahrenheit 451. It’s the art of the possible. Science fiction is the art of the possible. It could happen. It has happened.
+ - Love is the answer to everything. It’s the only reason to do anything. If you don’t write stories you love, you’ll never make it. If you don’t write stories that other people love, you’ll never make it.
+ - I believe in creative failing – to contine to write poems that fail and fail and fail until a day comes when you’ve got a thousand poems behind you and you’re relaxed and you finally write a good poem.
+ - We earth men have a talent for ruining big, beautiful things.
+ - Those who don’t build must burn. It’s as old as history and juvenile delinquents.
+ - An athlete may run ten thousand miles in order to prepare for one hundred yards. Quantity gives experience.
+ - You grow ravenous. You run fevers. You know exhilarations. You can’t sleep at night, because your beast-creature ideas want out and turn you in your bed. It is a grand way to live.
+ - All education is self-discovery.
+ - Sometimes I think I understand everything. Then I regain consciousness.
+ - Stuff your eyes with wonder.
+ - Every morning I jump out of bed and step on a landmine. The landmine is me. After the explosion, I spent the rest of the day putting the pieces together.
+ - We can’t live alone in any society. But the best way to help a society or group, is to be the best individual in it that we can be.
+ - Work is the only answer. I have three rules to live by. One, get your work done. If that doesn’t work, shut up and drink your gin. And when all else fails, run like hell!
+ - Libraries are absolutely at the center of my life. Since I couldn’t afford to go to college, I attended the library three or four days a week from the age of eighteen on, and graduated from the library when I was twenty-eight.
+ - The minute you get a religion you stop thinking. Believe in one thing too much and you have no room for new ideas.
+ - In your reading, find books to improve your color sense, your sense of shape and size in the world.
+ - We travel for romance, we travel for architecture, and we travel to be lost.
+ - I don’t believe in being serious about anything. I think life is too serious to be taken seriously.
+ - Love is easy, and I love writing.
+ - People try to force things. It’s disastrous. Just leave your mind alone. Your intuition knows what it wants to write, so get out of the way.
+ - There is more than one way to burn a book. And the world is full of people running about with lit matches.
+ - Science is no more than an investigation of a miracle we can never explain, and art is an interpretation of that miracle.
+ - And I saw then and there you take a man half-bad and a women half-bad and put their two good halves together and you got one human all good to share between.
+ - Any carefully planned thing destroys the creativity. You can’t think your way through a story; you have to live it. So, you don’t build a story; you allow it to explode.
+ - We are an impossibility in an impossible universe.
+ - If you enjoy living, it is not difficult to keep the sense of wonder.
+ - The Internet is a big distraction. It’s distracting, it’s meaningless; it’s not real. It’s in the air somewhere.
+ - Some people turn sad awfully young. No special reason, it seems, but they seem almost to be born that way. They bruise easier, tire faster, cry quicker, remember longer and, as I say, get sadder younger than anyone else in the world. I know, for I’m one of them.
+ - Life shoould be touched, not strangled. You’ve got to relax, let it happen at times, and at other move forward with it.
+ - The gift of life is so precious that we should feel an obligation to pay back the universe for the gift of being alive.
+ - So few want to be rebels anymore. And out of those few, most, like myself, scare easily.
+ - We do need knowledge. And perhaps in a thousand years we might pick smaller cliffs to jump off. The books are to remind us what asses and fools we are.
+ - I have two rules in life – to hell with it, whatever it is, and get your work done.
+ - Ask no guarantees, ask for no security, there never was such an animal. And if there was it would be related to the great sloth which hangs upside down in a tree all day every day, sleeping its life away.
+ - I think the only way we can grow and get on in this world is to accept the fact we’re not perfect and live accordingly.
+ - In science fiction, we dream. In order to colonize in space, to rebuild our cities, which are so far out of whack, to tackle any number of problems, we must imagine the future, including the new technologies that are required.
+ - Reading is at the center of our lives. The library is our brain. Without the library, you have no civilization.
+ - I discovered me in the library. I went to find me in the library.
+ - If you don’t like what you’re doing, then don’t do it.
+ - We cannot tell the precise moment when friendship is formed. As in filling a vessel drop by drop, there is at last a drop which makes it run over; so in a series of kindnesses there is at last one which makes the heart run over.
+ - Don’t write for money. Write because you love to do something. If you write for money, you won’t write anything worth reading.
+ - You don’t have to worry about the future, you don’t worry about the past – you just explode.
+ - Anything you dream is fiction, and anything you accomplish is science, the whole history of mankind is nothing but science fiction.
+ - I don’t write science fiction. I’ve only done one science fiction book and that’s Fahrenheit 451, based on reality. Science fiction is a depiction of the real. Fantasy is a depiction of the unreal.
+ - You can’t try to do things; you simply must do them.
+ - Journalism keeps you planted in the earth.
+ - A life’s work should be based on love.
+ - The things that you do should be things that you love, and things that you love should be things that you do.
+ - Man has always been half-monster, half-dreamer.
+ - There must be something in books, something we can’t imagine, to make a woman stay in a burning house; there must be something there. You don’t stay for nothing.
+ - I think the sun is a flower, That blooms for just one hour.
+ - Treasure this day and Treasure yourself, truly, neither will ever happen again.
+ - Creativity is a continual surprise.
+ - Monday burn Millay, Wednesday Whitman, Friday Faulkner, burn ’em to ashes, then burn the ashes. That’s our official slogan.
+ - When they give you lined paper, write the other way.
+ - We should go to the moon and prepare a base to fire a rocket off to Mars and then go to Mars and colonize Mars. Then when we do that, we will live forever.
+ - Get rid of those friends of yours who make fun of you and don’t believe in you. And when you leave here tonight, go home, make a phone call and fire them. Anyone that doesn’t believe in you and your future, to hell with them.
+ - Collecting facts is important. Knowledge is important. But if you don’t have an imagination to use the knowledge, civilization is nowhere.
+ - When the wind is right, a faint odor of kerosene is exhaled from Senator McCarthy.
+ - Lone at night, when I was twelve years old, I looked at the planet Mars and I said, ‘Take me home!’ And the planet Mars took me home, and I never came back. So I’ve written every day in the last 75 years. I’ve never stopped writing.
+ - A conglomerate heap of trash, that’s what I am. But it burns with a high flame.
+ - You will have to write and put away or burn a lot of material before you are comfortable in this medium. You might as well start now and get the work done. For I believe that eventually quantity will make for quality.
+ - But souls can’t be sold. They can only be lost and never found again.
+ - I’m seventeen and I’m crazy. My uncle says the two always go together. When people ask your age, he said, always say seventeen and insane.
+ - Learning to let go should be learned before learning to get. Life should be touched, not strangled.
+ - I don’t believe in government. I hate politics. I’m against it. And I hope that sometime this fall, we can destroy part of our government, and next year destroy even more of it. The less government, the happier I will be.
+ - This is the emotional thing, you see – you must galvanize people, so they want to be completely alive and live forever, or the next thing to it. And out of that comes art, then, and survival through emotion.
+ - When you reach the stars, boy, yes, and live there forever, all the fears will go, and Death himself will die.
+ - Kill two birds with one stone, feed the homeless to the hungry.
+ - You’re not like the others. I’ve seen a few; I know. When I talk, you look at me. When I said something about the moon, you looked at the moon.
+ - Friendship is an island that you retreat to and you all fall on the floor and laugh at all the other ninnies that don’t have enough brains to have your good taste.
+ - Half the fun of the travel is the esthetic of lostness.
+ - Science and religion have to go hand in hand with the mystery, because there’s a certain point beyond which you say, “There are no answers.”
+ - If you learn only methods, you’ll be tied to your methods, but if you learn principles you can devise your own methods.
+ - If you don’t want a man unhappy politically, don’t give him two sides to a question to worry him; give him one. Better yet, give him none.
+ - Do you understand now why books are hated and feared? Because they reveal the pores on the face of life. The comfortable people want only the faces of the full moon, wax, faces without pores, hairless, expressionless.
+ - It could reach up and grab the moon.
+ - There is no future for e-books, because they are not books. E-books smell like burned fuel.
+ - If someone sends you a love letter you’ve got to answer back.
+ - It was only the other night everything was fine and the next thing I know Im drowning. How many times can a man go down and still be alive? I can’t breathe.
+ - I wonder how many men, hiding their youngness, rise as I do, Saturday mornings, filled with the hope that Bugs Bunny, Yosemite Sam and Daffy Duck will be there waiting as our one true always and forever salvation?
+ - Science Fiction has always been and will always be a fable teacher of morality.
+ - I came on the old and best ways of writing through ignorance and experiment and was startled when truths leaped out of brushes like quail before gunshot.
+ - I love the musical form of books. It’s a different way of doing things, it’s very beautiful. You’re able to sing things instead of saying them. So what the heck – why not do them?
+ - Plot is no more than footprints left in the snow after your characters have run by on their way to incredible destinations.
+ - If teachers and grammar school editors find my jawbreaker sentences shatter their mushmilk teeth, let them eat stale cake dunked in weak tea of their own ungodly manufacture.
+ - Beer’s intellectual. What a shame so many idiots drink it.
+ - Life should be touched, not strangled.
+ - We must move into the universe. Mankind must save itself. We must escape the danger of war and politics. We must become astronauts and go out into the universe and discover the God in ourselves.
+ - You’ve been put on the world to love the act of being alive.
+ - We have everything we need to be happy, but we aren’t happy. Something’s missing.
+ - I love you and I forgive you. I am like you and you are like me. I love all people. I love the world. I love creating. Everything in our life should be based on love.
+ - From now on I hope Always to stay Alert, to educate myself as best I can. But lacking this, in Future I will relaxedly turn back to my secret mind to see what it has observed when I thought I was sitting this one out. We never sit anything out.
+ - I have something to fight for and live for; that makes me a better killer. I’ve got what amounts to a religion, now .
+ - Those who don’t build must burn.
+ - First of all, it was October, a rare month for boys.
+ - A good night sleep, or a ten minute bawl, or a pint of chocolate ice cream, or all three together, is good medicine.
+ - We need our Arts to teach us how to breathe.
+ - You’ve got to love libraries. You’ve got to love books. You’ve got to love poetry. You’ve got to love everything about literature. Then, you can pick the one thing you love most and write about it.
+ - Time was a film run backward. Suns fled and ten million moons fled after them.
+ - To solve the drug problem, we have to start at the root – first grade. If a boy has all the toys in his head that reading can give him, and you hook him into science fiction, then you’ve got the future secured.
+ - Love is easy, and I love writing. You can’t resist love. You get an idea, someone says something, and you’re in love.
+ - Teachers are to inspire; librarians are to fulfill.
+ - It’s not going to do any good to land on Mars if we’re stupid.
+ - If you have to ask yourself whether or not you love a girl or you love a boy, forget it. You don’t.
+ - When a man talks from his heart, in his moment of truth, he speaks poetry.
+ - And when he died, I suddenly realized I wasn’t crying for him at all, but for the things he did. I cried because he would never do them again...
+ - You can write a short story in two hours. Two hours a day, you have a novel in a year.
+ - Ah, art! Ah, life! The pendulum swinging back and forth, from complex to simple, again to complex. From romantic to realistic, back to romantic.
+ - We’re all watching each other, so there’s no chance for censorship. The main problem is the idiot TV. If you watch local news, your head will turn to mush.
+ - We Earth Men have a talent for ruining big, beautiful things. The only reason we didn’t set up hot-dog stands in the midst of the Egyptian temple of Karnak is because it was out of the way and served no large commercial purpose.
+ - The stars are yours, if you have the head, the hands, and the heart for them.
+ - Television is very dangerous. Because it repeats and repeats and repeats our disasters, instead of our triumphs.
+ - I don’t try to describe the future. I try to prevent it.
+ - Putting out the stars and extinguishing the sun.
+ - I spent three days a week for 10 years educating myself in the public library, and it’s better than college.
+ - The best scientist is open to experience and begins with romance – the idea that anything is possible.
+ - I’m not really dying today. No person ever died that had a family. I’ll be around a long time. A thousand years from now, a whole township of my offspring will be biting sour apples in the gumwood shade.
+ - I just want someone to hear what I have to say. And maybe if I talk long enough, it’ll make sense.
+ - The books leapt and danced like roasted birds, their wings ablaze with red and yellow feathers.
+ - The automobile is the most dangerous weapon in our society – cars kill more than wars do.
+ - I laugh until I weep And weep until I smile.
+ - He says I’m a regular onion! I keep him busy peeling away the layers.
+ - We have too many cellphones. We’ve got too many internets. We have got to get rid of those machines. We have too many machines now.
+ - The television, that insidious beast, that Medusa which freezes a billion people to stone every night, staring fixedly, that Siren which called and sang and promised so much and gave, after all, so little.
+ - I don’t like the kind of writer who’s out to change the world and beat up on people for their own good. Stalin did that and Hitler did that, and to hell with them.
+ - The moon is a good, solid base to build a space travel organization in the community.
+ - Men read science fiction to build the future. Women don’t need to read it. They are the future.
+ - The home environment can undo a lot you try to do at school.
+ - My stories are warnings; they’re not predictions. If they were predictions, I wouldn’t do them. Because then I’d be part of the doom-ridden psychology. But every time I name a problem, I try to give a solution.
+ - Do three things each night before you go to bed: read a poem, read a short story, read an essay.
+ - Every day is Christmas Day to a dog.
+ - You let the story cool off and then, instead of rewriting it, you relive it.
+ - I shall remain on Mars and read a book.
+ - I’m not a science-fiction writer. I’ve only written one book that’s science fiction, and that’s Fahrenheit 451. All the others are fantasy.
+ - I have total recall. I remember being born. I remember being in the womb, I remember being inside. Coming out was great.
+ - Writing can be described in two verbs: Throw up and clean up.
+ - How working for the wrong motives poisons our creativity and warps our ideas of success and failure.
+ - Surprise is where creativity comes in.
+ - The father hesitated only a moment. He felt the vague pain in his chest. If I run, he thought, what will happen? Is Death important? No. Everything that happens before Death is what counts. And we’ve done fine tonight. Even Death can’t spoil it.
+ - I don’t have a computer. A computer’s a typewriter. I already have a typewriter.
+ - I’m being ironic. Don’t interrupt a man in the midst of being ironic, it’s not polite. There!
+ - We have our Arts so we won’t die of Truth.
+ - Get the big truth first. If you get the big truth, the small truths will accumulate around it.
+ - The Universe has shouted itself alive. We are one of the shouts.
+ - When you grow up in science fiction you grow up in everything! It’s the greatest and only field worth growing up in. It’s the total field.
+ - With school turning out more runners, jumpers, racers, tinkerers, grabbers, snatchers, fliers, and swimmers instead of examiners, critics, knowers, and imaginative creators, the word ‘intellectual,’ of course, became the swear word it deserved to be.
+ - Really knowing is good. Not knowing, or refusing to know, is bad, or amoral, at least. You can’t act if you don’t know. Acting without knowing takes you right off the cliff.
+ - At the top of your lungs, shout and listen to the echoes. You must live life at the top of your voice!
+ - The average TV commercial of sixty seconds has one hundred and twenty half-second clips in it, or one-third of a second. We bombard people with sensation. That substitutes for thinking.
+ - Oh God, the terrible tyranny of the majority. We all have our harps to play. And it’s up to you to know with which ear you’ll listen.
+ - I don’t tell anyone how to write and no one tells me.
+ - So in sum, what are we? We are the creatures that know and know too much. That leaves us with such a burden again we have a choice, to laugh or cry. No other animal does either. We do, depending on the season and the need.
+ - It didn’t come from the Government down. There was no dictum, no declaration, no censorship, to start with, no! Technology, mass exploitation, and minority pressure carried the trick, thank God.
+ - The terrible tyranny of the majority.
+ - I believe in Darwin and God together.
+ - When I graduated from high school I couldn’t go to college, so I went to the library 3 days a week for 10 years.
+ - What’s the point of having a library full of books you’ve already read?
+ - The history of science fiction started in the caves 20,000 years ago. The ideas on the walls of the cave were problems to be solved. It’s problem solving. Primitive scientific knowledge, primitive dreams, primitive blueprinting: to solve problems.
+ - Fire the doubters out of your life.
+ - Now that I have you thoroughly confused, let me pause to hear your own dismayed cry.
+ - I want your loves to be multiple. I don’t want you to be a snob about anything. Anything you love, you do it.
+ - You should love literature. You should live in the library. Forget about films.
+ - There are a lot of wonderful women writers who would be good influences on writers. You’ve got to spread yourself out and educate yourself with all kinds of stories.
+ - Ideas excite me, and as soon as I get excited, the adrenaline gets going and the next thing I know I’m borrowing energy from the ideas themselves.
+ - Everything is generated through your own will power.
+ - Far away, in the meadow, shadows flickered in the Mirror’s Maze, as if parts of someone’s life, yet unborn, were trapped there, waiting to be lived.
+ - To feed your Muse, then, you should always have been hungry about life since you were a child. If not, it is a little late to start.
+ - Write what you love and love what you write.
+ - See the world. It’s more fantastic than any dream made or paid for in factories. Ask for no guarantees, ask for no security.
+ - Long before you knew what death was you were wishing it on someone else.
+ - We are living in a time when flowers are trying to live on flowers, instead of on good rain and black loam.
+ - I’m numb and I’m tired. Too much has happened today. I feel as if I’d been out in a pounding rain for forty-eight hours without an umbrella or a coat. I’m soaked to the skin with emotion.
+ - Why the Egyptian, Arabic, Abyssinian, Choctaw? Well, what tongue does the wind talk? What nationality is a storm? What country do rains come from? What color is lightning? Where does thunder goe when it dies?
+ - Mysteries abound where most we seek for answers.
+ - I’m not anyone, I’m just myself; whatever I am, I am something, and now I’m something you can’t help.
+ - Hold summer in your hand, pour summer in a glass, a tiny glass of course, the smallest tingling sip, for children; change the season in your veins by raising glass to lip and tilting summer in.
+ - The books are to remind us what asses and fools we are.
+ - I hate all politics. I don’t like either political party. One should not belong to them – one should be an individual, standing in the middle. Anyone that belongs to a party stops thinking.
+ - You don’t question Providence. If you can’t have the reality, a dream is just as good.
+ - Science fiction is really sociological studies of the future, things that the writer believes are going to happen by putting two and two together.
+ - I’ll hold on to the world tight some day. I’ve got one finger on it now; that’s a beginning.
+ - Marriage made people old and familiar, while still young.
+ - My personal telephone book is a book of the dead now. I’m so old. Almost all of my friends have died, and I don’t have the guts to take their names out of the book.
+ - It is good to renew one’s wonder, said the philosopher. Space travel has again made children of us all.
+ - Writing is like sex. You have to save your love for the love object. If you go around spouting about your idea, there’ll be no “charge” left. You can’t father children that way.
+ - He raged for hours. And the skeleton, ever the frail and solelmn philosopher, hung quietly inside, saying not a word, suspended like a delicate insect within a chrysalis, waiting and waiting.
+ - My religion encompasses all religions. I believe in God, I believe in the universe. I believe you are god, I believe I am god; I believe the earth is god and the universe is god. We’re all god.
+ - Into the air, over the valleys, under the stars, above a river, a pond, a road, flew Cecy. Invisible as new spring winds, fresh as the breath of clover rising from twilight fields, she flew.
+ - There was always a minority afraid of something, and a great majority afraid of the dark, afraid of the future, afraid of the past, afraid of the present, afraid of themselves and shadows of themselves.
+ - Kids love me because I write stories that tell them about their capacity for evil. I’m one of the few writers who lets you cleanse yourself that way.
+ - God, how we get our fingers in each other’s clay. That’s friendship, each playing the potter to see what shapes we can make of each other.
+ - I don’t think the robots are taking over. I think the men who play with toys have taken over. And if we don’t take the toys out of their hands, we’re fools.
+ - Bees do have a smell, you know, and if they don’t they should, for their feet are dusted with spices from a million flowers.
+ - From the outer edge of his life, looking back, there was only one remorse, and that was only that he wished to go on living.
+ - If you’re reluctant to weep, you won’t live a full and complete life.
+ - Thinking little at all about nothing in particular.
+ - The real fear isn’t rejection, but that there won’t be enough time in your life to write all the stories that you have in you.
+ - I like to watch people. Sometimes I ride the subway all day and look at them and listen to them. I just want to figure out who they are and what they want and where they’re going.
+ - Melt all the guns, I thought, break the knives, burn the guillotines-and the malicious will still write letters that kill.
+ - The great fun in my life has been getting up every morning and rushing to the typewriter because some new idea has hit me.
+ - Men throw huge shadows on the lawn, don’t they? Then, all their lives, they try to run to fit the shadows. But the shadows are always longer.
+ - The first thing you learn in life is you’re a fool. The last thing you learn in life is you’re the same fool.
+ - Remember, Montag, we’re the happiness boys. We stand against the small tide of those who want to make everyone unhappy with conflicting theory and thought.
+ - It’s lack that gives us inspiration. It’s not fullness.
+ - You ask Why to a lot of things and you wind up very unhappy indeed, if you keep at it. The poor girl’s better off dead.
+ - Don’t let people interfere with you. Boot ’em out, turn off the phone, hide away, get it done. If you carry a short story over to the next day you may overnight intellectualize something about it and try to make it too fancy, try to please someone.
+ - The trouble with Jim was he looked at the world and could not look away. And when you never look away all your life, by the time you are thirteen you have done twenty years taking in the laundry of the world.
+ - Venice was and is full of lost places where people put up for sale the last worn bits of their souls, hoping no one will buy.
+ - Why live? Life was its own answer. Life was the propagation of more life and the living of as good a life as possible.
+ - It takes writing a billion bad words before you get to the good ones.
+ - Through lack of education, we’re not teaching kids to read and write. So there is the danger that you raise up a generation of morons.
+ - Men are nuts. Young men are crazy. We all love toys. I’m toy oriented. I write about toys. I’ve got a lot of toys. Hundreds of things. But computers are toys, and men like to mess around with smart dumb things. They feel creative.
+ - I often wonder if God recognizes His own son the way we’ve dressed him up, or is it dressed him down?
+ - I don’t decide. My secret self decides. I just go with my subconscious. If it wants to do a poem, I do a poem, and if it wants to do a play, I do a play. So I’m not in charge, I’m not in control.
+ - No person ever died that had a family.
+ - When I was a young writer if you went to a party and told somebody you were a science-fiction writer you would be insulted. They would call you Flash Gordon all evening, or Buck Rogers.
+ - So while our art cannot, as we wish it could, save us from wars, privation, envy, greed, old age, or death, it can revitalize us amidst it all.
+ - Most of my stories are ideas in action. In other words, I get a concept, and I let it run away. I find a character to act out the idea. And then the story takes care of itself.
+ - Tell us again, for we forget, that work done without love is stillborn, mindless, and lost in the very hour of its deliverance.
+ - Way out in the country tonight he could smell the pumpkins ripening toward the knife and the triangle eye and the singeing candle.
+ - I like to smell things and look at things, and sometimes stay up all night, walking, and watch the sun rise.
+ - That’s the wonderful thing about man; he never gets so discouraged or disgusted that he gives up doing it all over again, because he knows very well it is important and WORTH the doing.
+ - The beginning of wisdom, as they say. When you’re seventeen you know everything. When you’re twenty-seven if you still know everything you’re still seventeen.
+ - Poverty made a sound like a wet cough in the shadows of the room.
+ - Our civilization is flinging itself to pieces. Stand back from the centrifuge.
+ - Life is like underwear, should be changed twice a day.
+ - When rivers flooded, when fire fell from the sky, what a fine place the library was, the many rooms, the books. With luck, no one found you. How could they! – when you were off to Tanganyika in ’98, Cairo in 1812, Florence in 1492!?
+ - The zipper displaces the button and a man lacks just that much time to think while dressing at dawn, a philosophical hour, and thus a melancholy hour.
+ - Out of the nursery into the college and back into the nursery; there’s your intellectual pattern for the past five centuries or more.
+ - He wore his happiness like a mask and the girl had run off across the lawn with the mask and there was no way of going to knock on her door and ask for it back.
+ - But remember that the Captain belongs to the most dangerous enemy to truth and freedom, the solid unmoving cattle of the majority.
+ - The ability to fantasize is the ability to survive, and the ability to fantasize is the ability to grow.
+ - The gods had gone away, and the ritual of the religion continued senselessly, uselessly.
+ - You can’t learn to write in college. It’s a very bad place for writers because the teachers always think they know more than you do-and they don’t. They have prejudices.
+ - We meet on the common ground of an uncommon age and share out our gifts of dark and light, good and bad, simple joy and not so simple sorrow.
+ - In our time the search for extraterrestrial life will eventually change our laws, our religions, our philosophies, our arts, our recreations, as well as our sciences. Space, the mirror, waits for life to come look for itself there.
+ - Each person was himself one alone. One oneness, a unit in a society, but always afraid, always alone. If I should scream, if I should call for help, would anyone hear would it even matter?
+ - Suddenly the day was gone, night came out from under each tree and spread.
+ - Heaven is a house with porch lights.
+ - All of us, no matter how we look born into this world, feel something like the Hunchback. It doesn’t matter if you have a beautiful face or not.
+ - I don’t believe in colleges and universities. I believe in libraries because most students don’t have any money. When I graduated from high school, it was during the Depression and we had no money. I couldn’t go to college, so I went to the library three days a week for 10 years.
+ - What are the best things and the worst things in your life, and when are you going to get around to whispering or shouting them?
+ - Death doesn’t exist. It never did, it never will. But we’ve drawn so many pictures of it, so many years, trying to pin it down, comprehend it, we’ve got to thinking of it as an entity, strangely alive and greedy. All it is, however, is a stopped watch, a loss, an end, a darkness. Nothing.
+ - My job is to help you fall in love.
+ - The human race likes to give itself airs. One good volcano can produce more greenhouse gases in a year than the human race has in its entire history.
+ - And besides, I like to cry. After I cry hard it’s like it’s morning again and I’m starting the day over.
+ - He felt his smile slide away, melt, fold over and down on itself like a tallow skin, like the stuff of a fantastic candle burning too long and now collapsing and now blown out.
+ - It was in their friendship they just wanted to run forever, shadow and shadow.
+ - Touch a scientist and you touch a child.
+ - I’m the thing you most desire, you represent the thing I least desire, death. It’s just the opposite of love.
+ - I have four daughters and eight grandchildren. My soul lives on in them. That’s immortality. That’s the only immortality I care about.
+ - Evil has only the power we give it.
+ - The faster you blurt, the more swiftly you write, the more honest you are.
+ - I am madness maddened when it comes to books, writers, and the great granary silos where their wits are stored.
+ - I’m inclined to believe you need the psychiatrist.
+ - Impossible; for how many people did you know who refracted your own light to you?
+ - We’ve let too much time go by. We’ve been busy with war instead of being busy with peace. And that’s what space travel is all about. It’s all about peace and exploration and wonder and beauty.
+ - Writing is not a serious business. It’s a joy and a celebration. You should be having fun with it.
+ - Writing is supposed to be difficult, agonizing, a dreadful exercise, a terrible occupation.
+ - And suddenly everything, absolutely everything, was there.
+ - Find out what your hero or heroine wants, and when he or she wakes up in the morning, just follow him or her all day...
+ - I feel I’m doing what I should’ve done a lifetime ago. For a little while I’m not afraid. Maybe it’s because I’m doing the right thing at last. Maybe it’s because I’ve done a rash thing and don’t want to look the coward to you.
+ - We’ve got to reinvest in space travel. We should have never left the moon.
+ - That’s the great secret of creativity. You treat ideas like cats: you make them follow you.
+ - All you umpires, back to the bleachers. Referees, hit the showers. It’s my game. I pitch, I hit, I catch. I run the bases. At sunset, I’ve won or lost. At sunrise, I’m out again, giving it the old try.
+ - Can’t you recognize the human in the inhuman?
+ - We are anthill men upon an anthill world.
+ - The jungle looked back at them with a vastness, a breathing moss-and-leaf silence, with a billion diamond and emerald insect eyes.
+ - I discovered very early on that if you wanted a thing, you went for it – and you got it. Most people never go anywhere, or want anything – so they never get anything.
+ - Miraculously, smoke curled out of his own mouth, his nose, his ears, his eyes, as if his soul had been extinguished within his lungs at the very moment the sweet pumpkin gave up its incensed ghost.
+ - There’s no reason to burn books if you don’t read them.
+ - You either have an imaginative mind or you don’t. All of my writing is God-given. I don’t write my stories – they write themselves.
+ - Only if the third necessary thing could be given us. Number one, as I said: quality of information. Number two: leisure to digest it. And number three: the right to carry out actions based on what we learn from the interaction of the first two.
+ - I have my favorite cat, who is my paperweight, on my desk while I am writing.
+ - The Greek philosophies teach us that we are a combination of dark and light, good and evil, and murderer and savior, hmm? And until we know this completely about ourselves we cannot love well, and we cannot forgive ourselves.
+ - Don’t think. Thinking is the enemy of creativity.
+ - Acting without knowing takes you right off the cliff.
+ - Go out and make your own speeches. People need you. Go on TV. It can be done. After you speak up a few times, people say, “Hey, we got a crazy man in the community,” and they’ll begin talking to you.
+ - He knew what the wind was doing to them, where it was taking them, to all the secret places that were never so secret again in life.
+ - You’d type like hell. I spent $9.80 and in nine days I had Fahrenheit 451.
+ - They whispered to Caesar that he was mortal, then sold daggers at half-price in the grand March sale.
+ - Notoriety and a fat bank balance must come after everything else is finished and done.
+ - When you write – explode – fly apart – disintegrate! Then give time enough to think, cut, rework, and rewrite.
+ - Mars is empty now. Five hundred years from now, it’ll be full of people.
+ - Ours is a culture and a time immensely rich in trash as it is in treasures.
+ - Memory is an illusion, nothing more. It is a fire that needs constant tending.
+ - Sometimes you have intuitive insight about how you think things are going to be, and you write that. Other times you fantasize completely, which has nothing to do with predicting the future.
+ - How do you get so empty? Who takes it out of you?
+ - My goal is to entertain myself and others.
+ - I was only kicking down the Christmas tree to get the star on top.
+ - All silence is. All emptiness. And now: The dawn.
+ - I can write faster on a typewriter than you can on a computer. I do 120 words a minute, and you can’t do that on a computer.
+ - I believe the universe created us we are an audience for miracles. In that sense, I guess, I’m religious.
+ - You have to learn to take rejection not as an indication of personal failing but as a wrong address.
+ - Everything that happens before Death is what counts.
+ - You don’t have to turn on the TV set. You don’t have to work on the Internet. It’s up to you.
+ - Poetry expands the senses and keeps them in prime condition. It keeps you aware of your nose, your eye, your ear, your tongue, your hand.
+ - A day without writing was a little death.
+ - Remember, the firemen are rarely necessary. The public itself stopped reading of its own accord.
+ - The sun burnt every day. It burnt time.
+ - May you be in love every day for the next 20,000 days. And out of that love, remake a world.
+ - Digression is the soul of wit. Take the philosophic asides away from Dante, Milton or Hamlet’s father’s ghost and what stays is dry bones.
+ - What is The Subconscious to every other man, in its creative aspect becomes, for writers, The Muse.
+ - Books are flesh-and-blood ideas and cry out, silently, when put to the torch.
+ - I was one of Them: the Strange Ones. The Funny People. The Odd Tribes of autograph collectors and photographers. The Ones who waited through long days and nights, who used other people’s dreams for their lives.
+ - There is more than one way to burn a book.
+ - And the odd think in Dad’s voice was the sound truth makes being said.
+ - We are the miracle of force and matter making itself over into imagination and will.
+ - I love writing, it’s the center of my life. If you don’t love what you do, you’d better find something else to love. Otherwise, you don’t have a reason for living.
+ - How to feel your way toward something honest, hidden under the trapdoor on the top of your skull.
+ - But no man’s a hero to himself.
+ - Ideas and philosophies change just as machines do. Religions changed because of the birth control pill. Politics changes because of the hydrogen bomb. All because of science fictional inventions.
+ - You must live feverishly in a library. Colleges are not going to do any good unless you are raised and live in a library everyday of your life.
+ - Somewhere in him, a shadow turned mournfully over. You had to run with a night like this so the sadness could not hurt.
+ - Do you know that books smell like nutmeg or some spice from a foreign land? I loved to smell them when I was a boy. Lord, there were a lot of lovely books once, before we let them go.
+ - I’ve grown up on a diet of metaphors. If young writers would find those writers who can give them metaphors by the bushel and the peck, then they’ll become better writers – to learn how to capsualize things and present them in metaphorical form.
+ - A book has got to smell. You have to hold it in your hands and pray to it.
+ - We are the miracle of force and matter making itself over into imagination and will. Incredible. The Life Force experimenting with forms. You for one. Me for another. The Universe has shouted itself alive. We are one of the shouts.
+ - Hollywood was a good influence because I was madly in love with films, and the films had a direct influence on me.
+ - How long has it been since you wrote a story where your real love or your real hatred somehow got onto the paper? When was the last time you dared release a cherished prejudice so it slammed the page like a lightning bolt?
+ - I’m trying to teach people of all ages to, number one: how to criticize, how to offer creative analysis on top of that, how to try to build things in a new direction and how to compliment people when the thing gets done.
+ - I believe in having fun first, and along the way, if you teach people, if you influence people, well and good.
+ - I’m ALIVE. Thinking about it, noticing it, is new. You do things and don’t watch. Then all of a sudden you look and see what you’re doing and it’s the first time, really.
+ - Sniff books like perfumes and wear books like hats upon your crazy heads.
+ - If we try to deny the darkness in our souls then we’ll become completely dark.
+ - It’s rare you get an idea from a dream. I can’t really recall a story that ever worked out that way. I think in 35 years of writing, that I’ve ever had a dream that held up. They’re much too dislocated.
+ - Fame and money are gifts given to us only after we have gifted the world with our best, our lonely, our individual truths.
+ - I want to feel all there is to feel, he thought. Let me feel tired, now, let me feel tired. I mustn’t forget, I’m alive, I know I’m alive, I mustn’t forget it tonight or tomorrow or the day after that.
+ - I love all of the arts. I love motion pictures. I love stage. I love theater.
+ - There is only one type of story in the world-your story.
+ - Good to evil seems evil.
+ - Your mind’s always juggling, isn’t it?-mirrors, torches, plates.
+ - All isn’t well with the world.
+ - My characters talk to one another, and when it reaches a certain pitch of excitement I jump out of bed and run and trap them before they are gone.
+ - So there you have it, a lifetime of first smelling the books, they all smell wonderful, reading the books, loving the books, and remembering the books.
+ - A story should be like a river, flowing and never stopping, your readers passengers on a boat, whirling downstream through constantly refreshing and changing scemery.
+ - He stood breathing, and the more he breathed the land in, the more he was filled up with all the details of the land. He was not empty. There was more than enough here to fill him. There would always be more than enough.
+ - Screenplays are not writing. They’re a fake form of writing. It’s a lot of dialogue and very little atmosphere. Very little description. Very little character work. It’s very dangerous. You’ll never learn to write.
+ - You can’t learn to write that way – by writing directly for the screen. Wait until you’re 30. But in the meantime write 200 short stories. You’ve got to learn how to write!
+ - The important thing is to be in love with something.
+ - A science fiction story is just an attempt to solve a problem that exists in the world, sometimes a moral problem, sometimes a physical or social or theological problem.
+ - Old men only lie in wait for people to ask them to talk. Then they rattle on like a rusty elevator wheezing up a shaft.
+ - And they were all, when their souls grew warm, poets.
+ - I believe in libraries because most students don’t have any money.
+ - I am not a science fiction writer. I am a fantasy writer. But the label got put on me and stuck.
+ - We should have stayed on the moon. We should have made moon the base, instead of building space stations, which are fragile and which fly apart.
+ - A single face turned upward toward all Time One flesh, one ecstasy, one peace.
+ - They stood there, King of the Hill, Top of the Heap, Ruler of All They Surveyed, Unimpeachable Monarchs and Presidents, trying to understand what it meant to own a world and how big a world really was.
+ - The library is the biggest cracker box factory in the world. The more you eat, the more you want.
+ - Maybe the books can get us half out of the cave. They just might stop us from making the same damm insane mistakes!
+ - God, here and there, makes madness a calling.
+ - The train skimmed on softly, slithering, black pennants fluttering, black confetti lost on its own sick-sweet candy wind, down the hill, with the two boys pursuing, the air was so cold they ate ice cream with each breath.
+ - Is it true, the world works hard and we play? Is that why we’re hated so much?
+ - We’re going to become the martians when we land there. When we explore and build communities, we become the martians. That’s a wonderful destiny for all of us.
+ - Sandwich outdoors isn’t a sandwich anymore. Tastes different than indoors, notice? Got more spice. Tastes like mint and pinesap. Does wonders for the appetite.
+ - Those who live in the best cliffs think they are better than us. That is always man’s attitude when he has power.
+ - When I started writing seriously, I made the major discovery of my life – that I am right and everybody else is wrong if they disagree with me. What a great thing to learn: Don’t listen to anyone else, and always go your own way.
+ - The world, like a great iris of an even more gigantic eye, which has also just opened and stretched out to encompass everything, stared back at him.
+ - I’m not in control of my muse. My muse does all the work.
+ - I’ve learned that by doing things, things get done.
+ - Write a thousand words a day and in three years you’ll be a writer!
+ - Don’t try to write a novel. Write short stories and then figure out how to connect them.
+ - I have fun with ideas; I play with them.
+ - But with the library, it’s like catnip, I suppose: you begin to run in circles because there’s so much to look at and read.
+ - Ideas result from the collision of metaphors inside the head.
+ - The first stories I wrote when I was 12 were about Mars and landing on Mars.
+ - My gosh, if you’re going away, we got a million things to talk about! All the things we would’ve talked about next month, the month after! Praying mantises, zeppelins, acrobats, sword swallowers!
+ - The one sure way I can dishonor myself is by worrying about my reputation.
+ - I did what most writers do at their beginnings: emulated my elders, imitated my peers, thus turning away from any possibility of discovering truths beneath my skin and behind my eye.
+ - Facts are not interesting to me.
+ - We’re a free society; we’ve got television. We have radio. We have newspapers. We have the videocassette, which is coming into play. These are new freedoms.
+ - The local TV news is the greatest danger in your life. It’s all crap.
+ - I’m really alive! he thought. I never knew it before, or if I did I don’t remember!
+ - If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you.
+ - They are so confident that they will run on forever. But they won’t run on. They don’t know that this is all one huge big blazing meteor that makes a pretty fire in space, but that some day it’ll have to hit.
+ - Without the library, you have no civilization.
+ - This was all he wanted now. Some signs that the immense world would accept him and give him the long time he needed to think all the things that must be thought.
+ - Are you happy?
+ - Joy is the grace we say to God.
+ - You knew the sweetness of now, now, TONIGHT! who cares for tomorrow, tomorrow is nothing, yesterday is over and done, tonight live, tonight!
+ - I don’t write things to benefit the world. If it happens that they do, swell. I didn’t set out to do that. I set out to have a hell of a lot of fun.
+ - With a book tucked in one hand, and a computer shoved under my elbow, I will march, not sidle, shudder or quake, into the twenty-first century.
+ - I don’t like to go to theaters, because I don’t like the way most people behave in theaters.
+ - All of my writing is God-given.
+ - I don’t understand this whole thing about computers and the superhighway. Who wants to be in touch with all of those people?
+ - Remember, with writing, what you’re looking for is just one person to come up and tell you, ‘I love you for what you do.’
+ - The purpose of fiction is not to nail you to the ground as facts do, but to take you to the edge of the cliff and kick you off so you build your wings on the way down.
+ - Thus through half-belief, we are often doomed to repeat that very past we should have learned from.
+ - Those women like to see their tongues dance.
+ - How many times can a man go down and still be alive?
+ - What church could compete with the fireworks of the pure soul?
+ - I’ll be damned if death wears my sadness as glad rags.
+ - I’m interested in having fun with ideas, throwing them up in the air like confetti and then running under them.
+ - My stories run up and bite me on the leg – I respond by writing down everything that goes on during the bite. When I finish, the idea lets go and runs off.
+ - In order to be creative, you don’t have to be original.
+ - First grade is very cheap. It’s the later grades where you have to spend a lot of money if you don’t do it right.
+ - I was partially raised by an aunt who was a dress designer, so I was around her studio all of my early life. I know materials. I can look through Harper’s Bazaar and decide what works and what doesn’t, or any other magazine, Seventeen if you wish.
+ - Why would you clone people when you can go to bed with them and make a baby? C’mon, it’s stupid.
+ - You take the books, you lie there in the pools of light and you drink life. That is how intensely I have loved libraries.
+ - Americans are far more remarkable than we give ourselves credit for. We’ve been so busy damning ourselves for years. We’ve done it all, and yet we don’t take credit for it.
+ - You don’t pay any attention to anything anyone else says, no opinions. The important thing is to explode with a story, to emotionalize a story, not to think it. You start thinking – the story’s going to die on its feet.
+ - I feel like I’ve been saving up a lot of things, and I don’t know what.
+ - I felt a bit bookish, cut off from life.
+ - I feel like I own all the kids in the world because, since I’ve never grown up myself, all my books are automatically for children.
+ - For about 150 days a year in Venice, the sun doesn’t show through the mist until noon.
+ - My business is to prevent the future.
+ - It was a great place to write a novel about book burning, in the library basement.
+ - I think the reason my stories have been so successful is that I have a strong sense of metaphor.
+ - I decided that was the greatest idea I had ever heard. I started writing every day. I never stopped.
+ - It is a lie to write in such way as to be rewarded by fame offered you by some snobbish quasi-literary groups in the intellectual gazettes.
+ - The river was mild and leisurely, going away from the people who ate shadows for breakfast and steam for lunch and vapors for supper.
+ - When I graduated from high school, it was during the Depression and we had no money.
+ - All of the good, weird stories I’ve written are based on things I’ve dredged out of my subconscious. That’s the real stuff. Everything else is fake.
+ - Not to write, for many of us, is to die.
+ - A library is all the university you will ever need.
+ - We all are rich and ignore the buried fact of accumulated wisdom.
+ - I take this continent with me into the grave.
+ - Why go to a machine when you could go to a human being?
+ - I don’t believe in colleges and universities.
+ - If you have moved over vast territories and dared to love silly things, you will have learned even from the most primitive items collected and put aside in your life.
+ - You don’t read in your own field. You read in that field when you’re young, so that you can learn.
+ - You’re either in love with what you do, or you’re not in love.
+
+500 quotes

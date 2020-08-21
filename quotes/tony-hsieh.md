@@ -1,0 +1,70 @@
+ - Whatever you’re thinking, think bigger.
+ - Chase the vision, not the money. The money will end up following you.
+ - Stop chasing the money and start chasing the passion.
+ - Your culture is your brand.
+ - Customer service shouldn’t just be A department, it should be the entire company.
+ - Learn by doing. Theory is nice, but nothing replaces actual experience.
+ - Envision, create, and believe in your own universe, and the universe will form around you.
+ - Your personal core values define who you are, and a company’s core values ultimately define the company’s character and brand. For individuals, character is destiny. For organizations, culture is destiny.
+ - Zappos is a customer service company that just happens to sell shoes.
+ - For individuals, character is destiny. For organizations, culture is destiny.
+ - Just figure out what your personal values are then just make those the corporate values.
+ - Don’t be cocky. Don’t be flashy. There’s always someone better than you.
+ - Open, honest communication is the best foundation for any relationship, but remember that at the end of the day it’s not what you say or what you do, but how you make people feel that matters the most.
+ - Get the culture right, and everything else just falls into place.
+ - Problems are just mile markers. Each one we pass means we’ve gotten better.
+ - A great brand is a story that never stops unfolding.
+ - Help shape the stories that people are telling about you.
+ - Without conscious and deliberate effort, inertia always wins.
+ - Most companies are very quick to hire and slow to fire, when really it should be the other way around.
+ - Our belief is that if you get the culture right, most of the other stuff, like great customer service, or building a great long-term brand or empowering passionate employees and customers, will happen on its own.
+ - Don’t play games that you don’t understand, even if you see lots of other people making money from them.
+ - Never accept or be too comfortable with the status quo, because the companies that get into trouble are historically the ones that aren’t able to adapt to change and respond quickly enough.
+ - I thought about how easily we are all brainwashed by our society and culture to stop thinking and just assume by default that more money equals more success and more happiness, when ultimately happiness is really just about enjoying life.
+ - Most innovation comes from outside your industry applied to your own.
+ - There’s a big difference between motivation and inspiration: Inspire through values and motivation takes care of itself.
+ - The best businesses are really ones that can combine passion, profits, and purpose.
+ - The brand is just a lagging indicator of a company’s culture.
+ - Zappos uses call center technology to track average call time per agent. But the goal isn’t to reduce this average – it’s more important that we make an emotional connection with the customer, rather than just quickly getting them off the phone.
+ - I’d rather spend money on things that improve the customer experience than on marketing.
+ - Having a higher purpose is more than just about profits. You actually end up making more profits in the long run because employees really are a lot more engaged and customers see the higher purpose in the company.
+ - What’s the best way to build a brand for the long term? In a word: culture.
+ - We decided that if we get the culture right, most of the stuff, like building a brand around delivering the very best customer service, will just take care of itself.
+ - To never forget that the most important thing in life is the quality of life we lead.
+ - The ultimate definition of success is: you could lose everything that you have and truly be okay with it. Your happiness isn’t based on external factors.
+ - A bigger business is like a cruise ship: There are lots of amenities and you can go a lot further, but it’s harder to turn quickly.
+ - To WOW, you must differentiate yourself, which means do something a little unconventional and innovative. You must do something that’s above and beyond what’s expected. And whatever you do must have an emotional impact on the receiver.
+ - It doesn’t cost anything to say hi when you pass someone else in the hallway, whereas, most corporations if you pass you avoid eye contact.
+ - Every employee can affect your company’s brand, not just the front-line employees that are paid to talk to your customers.
+ - Have fun. The game is a lot more enjoyable when you’re trying to do more than just make money.
+ - I think the most important thing is just if you hire people whose personal values match the corporate core values – and not just the stated ones.
+ - Businesses often forget about the culture, and ultimately, they suffer for it because you can’t deliver good service from unhappy employees.
+ - The problem when someone feels burned out, bored, unchallenged, or stifled by their work is not the job itself but rather the environment and playground rules given to them to do the job at hand.
+ - Business is all about learning to balance the short-term, medium-term and long-term and I think it’s when things are going well it covers up a lot of mistakes and bad decisions because you’re growing so quickly...
+ - I view my role more as trying to set up an environment where the personalities, creativity and individuality of all the different employees come out and can shine.
+ - Our society in general has is more money equals more happiness and all the research has shown that that’s true up to a point, up until you can get your basic needs met, but then really there is other stuff that has a much bigger impact on your happiness besides just money.
+ - Good businesses generate missions to drive their profits. Great businesses generate profits to drive their missions.
+ - Hopefully 10 years from now people won’t even realize we started out selling shoes. They will just think about Zappos as a place to get the best customer service.
+ - A lot of people realize “I don’t have to work in this job that I’m miserable at every year, or every day, and I don’t have to live in, for example, New York City where it’s super expensive and if I live somewhere else that is less expensive and could pursue my passion like, I can afford to do that.”
+ - If you’re worried about putting food on the table or putting a roof over your head, that stress is definitely will contribute to unhappiness, but once you have your basic needs met then incremental money.
+ - SEO expertise is a core need for today’s online businesses.
+ - If there are too many competitors, even if you’re the best it’s a lot harder to win.
+ - Twitter is like hugging. Just because it’s hard to measure the return on investment doesn’t mean there isn’t value there.
+ - We asked ourselves what we wanted this company to stand for. We didn’t want to just sell shoes. I wasn’t even into shoes – but I was passionate about customer service.
+ - Instead of getting an iPad, I now use my iPhone with a giant magnifying glass attached to my face.
+ - For me, my role is about unleashing what people already have inside them that is maybe suppressed in most work environments.
+ - Your brand is your culture.
+ - You’ve gotta love the game. To become really good, you need to live it and sleep it.
+ - Our customers call and e-mail us to say that’s how it feels when a Zappos box arrives. And that’s how we view this company.
+ - I believe that there’s something interesting about anyone and everyone – you just have to figure out what that something is.
+ - Launching a business is kind of like a motorboat: You can go very quickly and turn fast.
+ - Rather than focus on trying to get a lot of customers to market yourself, really focus more on the actual product or service itself and existing users to, like, what would make them happier, what would make them come back more and more times or in our case buy more often.
+ - If I was going to go into an office I wanted it to be with people I would choose to be around even if we didn’t have to work together and so that was one of the major reasons why I decided out of all the different companies we invested in to work with Zappos.
+ - Studies find top 3 most stressful moments in people’s lives: death, divorce, and properly pronouncing “Worcestershire sauce.”
+ - Usually my ‘a-ha’ moments are when I’m not trying to think of how to solve a particular problem.
+ - If you’re focused on the friendship as its own reward, serendipitous stuff just happens. I know that sounds weird, but I can tell you for our 12 years of existence, it’s actually how a lot of stuff happens.
+ - If someone is self-aware, then they can always continue to grow. If they’re not self-aware, I think it’s harder for them to evolve or adapt beyond who they already are.
+ - Be true to yourself. If you follow that principle, a lot of decisions are actually pretty easy.
+ - I think everyone should get a little exposure to computer science because it really forces you to think in a slightly different way, and it’s a skill that you can apply in life in general, whether you end up in computer science or not.
+
+68 quotes

@@ -1,0 +1,84 @@
+ - Fantasy is hardly an escape from reality. It’s a way of understanding it.
+ - We learn more by looking for the answer to a question and not finding it than we do from learning the answer itself.
+ - Keep reading. It’s one of the most marvelous adventures that anyone can have.
+ - Books can truly change our lives: the lives of those who read them, the lives of those who write them. Readers and writers alike discover things they never knew about the world and about themselves.
+ - Seize the day, whatever’s in it to seize, before something comes along and seizes you.
+ - We hold each other’s lives in our open hands, not in clenched fists.
+ - If writers learn more from their books than do readers, perhaps I may have begun to learn.
+ - The dear girl, I fear, may be contemplating some alarming, disruptive perhaps dangerous project. In which case, I would naturally do all in my power to keep her from any such rash or foolhardy enterprise – unless she wished me to accompany her.
+ - Are you slow-witted? I’m so sorry for you. It’s terrible to be dull and stupid.
+ - Trust your luck, Taran Wanderer. But don’t forget to put out your nets!
+ - Child, child, do you not see? For each of us comes a time when we must be more than what we are.
+ - Who but lovers dream alike?
+ - The only thing a cat worries about is what’s happening right now. As we tell the kittens, you can only wash one paw at a time.
+ - Two cats can live as cheaply as one, and their owner has twice as much fun.
+ - That is why your sacrifice was all the more difficult. You chose to be a hero not through enchantment but through your own manhood.
+ - How easy it is to think well of ourselves. Until the moment is upon us, we can never be certain.
+ - If the pull of the outside world is strong, there is also a pull towards the human. The cat may disappear on its own errands, but sooner or later, it returns once again for a little while, to greet us with its own type of love.
+ - Every man is a hero if he strives more for others than for himself alone.
+ - For Wayfarers still journeying, for Wanderers at rest.
+ - Story, finally, is humanity ’s autobiography .
+ - I only suggest to you: Will you dwell on killing this man? You wish for revenge? If you do, he has already killed you by slow poison. So, let it go. Why waste your time? His life will see to his death.
+ - All agreed that Quickset was the cleverest cat in the world. And, since Quickset had the same opinion, it was surely true.
+ - I can’t stand people who say ‘I told you so.’ That’s worse than somebody coming up and eating your dinner before you have a chance to sit down.
+ - Using the device of an imaginary world allows me in some strange way to go to the central issues – it’s one of many ways to express feelings about real people, about real human relationships.
+ - She had no particular breed in mind, no unusual requirements. Except the special sense of mutual recognition that tells dog and human they have both come to the right place.
+ - My concern is how we learn to be genuine human beings.
+ - Behind one truth there is always yet another.
+ - There is more honor in a field well plowed than in a field steeped in blood.
+ - Even in a fantasy realm, growing up is accomplished not without cost.
+ - My family pleaded with me to forget literature and do something sensible, such as find some sort of useful work.
+ - For the deeds of a man, not the words of a prophecy, are what shape his destiny.
+ - The muse in charge of fantasy wears good, sensible shoes.
+ - Craftsmanship isn’t like water in an earthen pot, to be taken out by the dipperful until it’s empty. No, the more drawn out the more remains.
+ - The Prydain Companion is more than a quick reference or handy glossary, though it is all of that as well. Instructive, certainly. But, like any good companion, a pleasure to be with over a long period of time.
+ - A taste for adventure is by no means a masculine monopoly.
+ - Draw Dyrnwyn, only thou of noble worth, to rule with justice, to strike down evil. Who wields it in good cause shall slay even the Lord of Death.
+ - Dealing with the impossible, fantasy can show us what may be really possible. If there is grief, there is the possibility of consolation; if hurt, the possibility of healing; and above all, the curative power of hope. If fantasy speaks to us as we are, it also speaks to us as we might be.
+ - Stale water is a poor drink. Stale skill is worse. And the man who walks in his own footsteps only ends where he began.
+ - If life is a loom, the pattern you weave is not so easily unraveled.
+ - Do you not believe that animals know grief and fear and pain? The world of men is not an easy one for them.
+ - There’s this huge number of desperate people.
+ - This much have I learned: A man’s life weighs more than glory, and a price paid in blood is a heavy reckoning.
+ - What you may seek and what you may find are not always one.
+ - Shakespeare, Dickens, Mark Twain, and so many others were my dearest friends and greatest teachers.
+ - And thus did an Assistant Pig-Keeper become High King of Prydain.
+ - For man to be worthy of any rank, he must strive first to be a man.
+ - She has given you something of value: the truth in her heart.
+ - I intend to follow the path of virtue. It will not be overcrowded.
+ - True allegiance is only given willingly.
+ - Once you have courage to look upon evil, seeing it for what it is and naming it by its true name, it is powerless against you, and you can destroy it.
+ - What seems to be love beyond any question is usually a simple case of indigestion.
+ - Evil cannot be conquered by wishing.
+ - Most of us are called on to perform tasks far beyond what we can do. Our capabilities seldom match our aspirations, and we are often woefully unprepared. To this extent, we are all Assistant Pig-Keepers at heart.
+ - Just because you’ve seen something doesn’t mean you’ll stop looking. There’s always something you didn’t see before.
+ - Most of my books have been written in the form of fantasy.
+ - It is harsh enough for each man to bear his own wound. But he who leads bears the wounds of all who follow him.
+ - No matter what has happened, you’re not a pig-boy; you’re an Assistant Pig Keeper!
+ - You know how chickens are, imagining the world coming to an end one moment, then pecking corn the next.
+ - In the race of men is much greed and envy; but of truth, little.
+ - I have never known courage to be judged by the length of a man’s hair. Or, for the matter of that, whether he has any hair at all.
+ - Thinking is a bit uncomfortable, but you’ll get used to it. A matter of time and practice.
+ - If I fret over tomorrow, I’ll have little joy today.
+ - Count the deed, not the thought.
+ - Any fool can tell a story. Take a few odds and ends of things that happen to you, dress them up, shuffle them about, add a dash of excitement, a little color, and there you have it.
+ - Indeed, the more we find to love, the more we add to the measure of our hearts.
+ - My parents were horrified when I told them I wanted to be an author.
+ - Find what you want. I will find you.
+ - When I was discharged, I attended the University of Paris and met a beautiful Parisian girl, Janine. We soon married and eventually returned to the States.
+ - I loved all the world’s mythologies.
+ - A crown is a pitiless master, harsher than the staff of a pig-keeper; while a staff bears up, a crown weighs down, beyond the strength of any man to wear it lightly.
+ - If you want truth you should begin by giving it.
+ - There is truth in all things, if you understand them well.
+ - Is there worse evil than that which goes in the mask of good?
+ - Eventually, I was sent to Wales and Germany, and after the war, to Paris.
+ - After I saved some money, I quit work and went to a local college.
+ - King Constantine IX of Regia had been killed three times and was bored with it. He wanted a bath.
+ - If a storyteller worried about the facts – my dear Lucian, how could he ever get at the truth?
+ - If I do find pride, I’ll not find it in what I was or what I am, but what I may become. Not in my birth, but in myself.
+ - The destinies of men are woven one with the other, and you can turn aside from them no more than you can turn aside from your own.
+ - A man who claims to be fearless is an idiot or a liar.
+ - After seven years of writing – and working many jobs to support my family – I finally got published.
+ - All that writers can do is keep trying to say what is deepest in their hearts.
+
+82 quotes

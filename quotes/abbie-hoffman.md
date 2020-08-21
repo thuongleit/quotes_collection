@@ -1,0 +1,49 @@
+ - Today is the first day of the rest of your life.
+ - Maintain a sense of humor. People who take themselves too seriously are power-crazy. If they win it will be haircuts for all. Beware of power freaks.
+ - Nostalgia is a form of depression both for a society and an individual.
+ - Structure is more important than content in the transmission of information.
+ - Smoking dope and hanging up Che’s picture is no more a commitment than drinking milk and collecting postage stamps.
+ - My critique of democracy begins and ends with this point. Kids must be educated to disrespect authority or else democracy is a farce.
+ - Democracy is not something you believe in or a place to hang your hat, but it’s something you do. You participate. If you stop doing it, democracy crumbles.
+ - Action is the only reality; not only reality, but morality as well.
+ - The idea that media is there to educate us, or to inform us, is ridiculous because that’s about tenth or eleventh on their list.
+ - The best way to educate oneself is to become part of the revolution.
+ - You measure a democracy by the freedom it gives its dissidents, not the freedom it gives its assimilated conformists.
+ - Every rock or molotov cocktail thrown should make a very obvious political point. Random violence produces random propaganda results. Why waste even a rock?
+ - Free speech means the right to shout ‘theatre’ in a crowded fire.
+ - Fantasy is the only truth.
+ - The only reason you should be in college is to destroy it.
+ - I believe in compulsory cannibalism. If people were forced to eat what they killed, there would be no more wars.
+ - There is absolutely no greater high than challenging the power structure as a nobody, giving it your all, and winning!
+ - Revolution is not something fixed in ideology, nor is it something fashioned to a particular decade. It is a perpetual process embedded in the human spirit.
+ - What if when they called a war, no one went?
+ - Never impose your language on people you wish to reach.
+ - Peace is a very complicated concept. When the lion gobbles up the lamb and wipes his lips, then there’s peace. Well, I ain’t for that peace at all.
+ - I learned one thing; you never do anything for fame or money. You only do things ’cause they’re fun or good. If you can combine the two at the same time, you can make a contribution to the world and have a lot of happiness.
+ - Avoid all needle drugs, the only dope worth shooting is Richard Nixon.
+ - It’s going to be a combination Scopes trial, revolution in the streets, Woodstock Festival and People’s Park, all rolled into one.
+ - The only way to support a revolution is to make your own.
+ - The key to organizing an alternative society is to organize people around what they can do, and more importantly, what they want to do.
+ - To steal from a brother or sister is evil. To not steal from the institutions that are the pillars of the Pig Empire is equally immoral.
+ - I think we are constantly faced with the same decision. The decision to be blindly obedient to authority versus the decision to try and change things by fighting the powers that be is always, throughout history, the only decision.
+ - Become an internationalist and learn to respect all life. Make war on machines. And in particular the sterile machines of corporate death and the robots that guard them.
+ - When decorum is repression, the only dignity free men have is to speak out.
+ - I just want to do what has to be done so much. I’ll never understand why everyone else doesn’t feel this way.
+ - I think the greatest legacy of the 1960s was the general feeling that not only can you fight the powers that be, but you can win.
+ - The first duty of a revolutionary is to get away with it.
+ - Life actors never rehearse and need no script. A life actor uses only what is available, nothing more, nothing less.
+ - The work that the kids saw around them was so odious, so boring, so worthless that they came to regard WORK as the only dirty four-letter word in the English language.
+ - It’s too late. We can’t win, they’ve gotten too powerful.
+ - Random political acts produce random political results. Why waste even a rock?
+ - When I appear in the Chicago courtroom, I want to be tried not because I support the NLF – which I do – but because I have long hair.
+ - Wouldn’t you want to be indicted by the govenment for a high crime? It’s a great thrill. It’s an honor. It’s a compliment. It’s fun. I’m enjoying every minute of it!
+ - Sacred cows make the tastiest hamburger.
+ - Understand that legal and illegal are political, and often arbitrary, categorizations; use and abuse are medical, or clinical, distinctions.
+ - Expedience, not justice, is the rule of contemporary American law.
+ - I was probably the only revolutionary referred to as cute.
+ - Hep is a very dangerous disease that can cause a number of permanent conditions, including death, which is extremely permanent.
+ - In this state, dig it, you get twenty years for sale of dope to a minor. You only get five to ten for manslaughter. So like, the thing is, if you’re selling to a kid and cops come, shoot the kid real quick!
+ - Once you get the right image the details aren’t that important.
+ - A modern revolutionary group heads for the television station.
+
+47 quotes

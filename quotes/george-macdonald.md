@@ -1,0 +1,295 @@
+ - To be trusted is a greater compliment than being loved.
+ - To give truth to him who loves it not is but to give him more plentiful material for misinterpretation.
+ - The Son of God suffered unto death, not that men might not suffer, but that their sufferings might be like His.
+ - Never tell a child ‘you have a soul.’ Teach him, you are a soul; you have a body.
+ - I would rather be what God chose to make me than the most glorious creature that I could think of; for to have been thought about, born in God’s thought, and then made by God, is the dearest, grandest and most precious thing in all thinking.
+ - Attitudes are more important than facts.
+ - If we knew as much about heaven as God does, we would clap our hands every time a Christian dies.
+ - Obedience is the key to every door.
+ - I want to help you grow as beautiful as God meant you to be when he thought of you first.
+ - Do not measure God’s mind by your own.
+ - I dare not say with Paul that I am the slave of Christ, but my highest aspiration and desire is to be the slave of Christ.
+ - All things are possible with God, but all things are not easy.
+ - Past tears are present strength.
+ - In whatever man does without God, he must fail miserably, or succeed more miserably.
+ - When I can no more stir my soul to move, and life is but the ashes of a fire; when I can but remember that my heart once used to live and love, long and aspire- O, be thou then the first, the one thou art; be thou the calling, before all answering love, and in me wake hope, fear, boundless desire.
+ - If God were not only to hear our prayers, as he does ever and always, but to answer them as we want them answered, he would not be God our Saviour but the ministering genius of our destruction.
+ - Seeing is not believing – it is only seeing.
+ - This is a wise, sane Christian faith: that a man commit himself, his life, and his hopes to God; that God undertakes the special protection of that man; that therefore that man ought not to be afraid of anything.
+ - A man’s real belief is that which he lives by. What a man believes is the thing he does, not the thing he thinks.
+ - It is our best work that God wants, not the dregs of our exhaustion. I think he must prefer quality to quantity.
+ - Work is not always required. There is such a thing as sacred idleness.
+ - The love of our neighbor is the only door out of the dungeon of self.
+ - It is the heart that is not sure of its God that is afraid to laugh in His presence.
+ - All love will, one day, meet with its return. All true love will, one day, behold its own image in the eyes of the beloved, and be humbly glad.
+ - Never be discouraged because good things get on so slowly here; and never fail daily to do that good which lies next to your hand.
+ - No man ever sank under the burden of the day. It is when tomorrow’s burden is added to the burden of today that the weight is more than a man can bear.
+ - And so all growth that is not towards God Is growing towards decay.
+ - Free will is not the liberty to do whatever one likes, but the power of doing whatever one sees ought to be done, even in the very face of otherwise overwhelming impulse. There lies freedom, indeed.
+ - Love loves unto purity. Love has ever in view the absolute loveliness of that which it beholds. Therefore all that is not beautiful in the beloved, all that comes between and is not of love’s kind, must be destroyed. And our God is a consuming fire.
+ - The kingdom of heaven is not come even when God’s will is our law; it is fully come when God’s will is our will.
+ - A perfect faith would lift us absolutely above fear.
+ - Forgiveness unleashes joy. It brings peace. It washes the slate clean. It sets all the highest values of love in motion.
+ - Alas, how easily things go wrong! A sigh too much, a kiss too long And there follows a mist and a weeping rain And life is never the same again.
+ - You must learn to be strong in the dark as well as in the day, else you will always be only half brave.
+ - Truth is truth, whether from the lips of Jesus or Balaam.
+ - We die daily. Happy those who daily come to life as well.
+ - The mind of the many is not the mind of God.
+ - I came from God, and I’m going back to God, and I won’t have any gaps of death in the middle of my life.
+ - I am an optimistic fatalist. This world and all its beginnings will pass on into something better.
+ - The whole trouble is that we won’t let God help us.
+ - Beauty and sadness always go together. Nature thought beauty too rich to go forth Upon the earth without a meet alloy.
+ - Her face was fair and pretty, with eyes like two bits of night sky, each with a star dissolved in the blue.
+ - It matters little where a man may be at this moment; the point is whether he is growing.
+ - Half of the misery in the world comes from trying to look, instead of trying to be, what one is not.
+ - No, there is no escape. There is no heaven with a little of hell in it – no plan to retain this or that of the devil in our hearts or our pockets. Out Satan must go, every hair and feather!
+ - To have what we want is riches; but to be able to do without is power.
+ - Where did you come from, baby dear? Out of the everywhere and into here.
+ - Good souls many will one day be horrified at the things they now believe of God.
+ - The miracles of Jesus were the ordinary works of his Father, wrought small and swift that we might take them in.
+ - As in all sweetest music, a tinge of sadness was in every note. Nor do we know how much of the pleasures even of life we owe to the intermingled sorrows. Joy cannot unfold the deepest truths, although deepest truth must be deepest joy.
+ - He who is faithful over a few things is a lord of cities. It does not matter whether you preach in Westminster Abbey or teach a ragged class, so you be faithful. The faithfulness is all.
+ - Nothing makes one feel so strong as a call for help.
+ - Not even nothingness preceded life. Nothingness owes its very idea to existence.
+ - Come, then, affliction, if my Father wills, and be my frowning friend. A friend that frowns is better than a smiling enemy.
+ - God’s finger can touch nothing but to mold it into loveliness.
+ - The first thing a kindness deserves is acceptance, the second, transmission.
+ - But more impressive than the facts and figures as to height, width, age, etc., are the entrancing beauty and tranquility that pervade the forest, the feelings of peace, awe and reverence that it inspires.
+ - It is not in the nature of politics that the best men should be elected. The best men do not want to govern their fellowmen.
+ - Age is not all decay; it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.
+ - If instead of a gem, or even a flower, we should cast the gift of a loving thought into the heart of a friend, that would be giving as the angels give.
+ - One of the good things that come of a true marriage is, that there is one face on which changes come without your seeing them; or rather there is one face which you can still see the same, through all the shadows which years have gathered upon it.
+ - This is and has been the Father’s work from the beginning-to bring us into the home of His heart.
+ - All those evil doctrines about God that work misery and madness have their origin in the brains of the wise and prudent, not in the hearts of children.
+ - Man finds it hard to get what he wants, because he does not want the best; God finds it hard to give, because He would give the best, and man will not take it.
+ - When we are out of sympathy with the young, then I think our work in this world is over.
+ - The first thing in all progress is to leave something behind.
+ - I find that doing of the will of God leaves me no time for disputing about His plans.
+ - The principle part of faith is patience.
+ - Cleverness is cheap. It is faith that He praises.
+ - I watched her departure, as one watches a sunset. She went like a radiance through the dark wood, which was henceforth bright to me, from simply knowing that such a creature was in it.
+ - As many as received Him, to them gave He power to become the sons of God.
+ - As you grow ready for it, somewhere or other you will find what is needful for you in a book.
+ - Division has done more to hide Christ from the view of men than all the infidelity that has ever been spoken.
+ - Fear is faithlessness.
+ - I firmly believe people have hitherto been a great deal too much taken up about doctrine and far too little about practice. The word “doctrine,” as used in the Bible, means teaching of duty, not theory.
+ - Forgiveness is the giving, and so the receiving, of life.
+ - When I look like this into the blue sky, it seems so deep, so peaceful, so full of a mysterious tenderness, that I could lie for centuries and wait for the dawning of the face of God out of the awe-inspiring loving-kindness.
+ - How strange this fear of death is! We are never frightened at a sunset.
+ - In low theologies, hell is invariably the deepest truth, and the love of God is not so deep as hell.
+ - The best thing you can do for your fellow, next to rousing his conscience, is – not to give him things to think about, but to wake things up that are in him; or say, to make him think things for himself.
+ - In the midst of death we are in life. Life is the only reality; what men call death is but a shadow...
+ - Oh, I believe that there is no away; that no love, no life, goes ever from us; it goes as He went, that it may come again, deeper and closer and surer, and be with us always, even to the end of the world.
+ - We can walk without fear, full of hope and courage and strength to do His will, waiting for the endless good which He is always giving as fast as He can get us able to take it in.
+ - I am so tried by the things said about God. I understand God’s patience with the wicked, but I do wonder how he can be so patient with the pious!
+ - I am an emptiness for Thee to fill; my soul a cavern for Thy sea.
+ - Better to have the poet’s heart than brain, Feeling than song.
+ - In moments of doubt I cry, ‘Could God Himself create such lovely things as I dreamed?’ ‘Whence then came thy dream?’ answers Hope.
+ - God left the world unfinished for man to work his skill upon. He left the electricity still in the cloud, the oil still in the earth.
+ - You’ve got to save your own soul first, and then the souls of your neighbors if they will let you; and for that reason you must cultivate, not a spirit of criticism, but the talents that attract people to the hearing of the Word.
+ - Things come to the poor that can’t get in at the door of the rich. Their money somehow blocks it up. It is a great privilege to be poor – one that no man covets, and brat a very few have sought to retain, but one that yet many have learned to prize.
+ - I repent me of the ignorance wherein I ever said that God made man out of nothing: there is no nothing out of which to make anything; God is all in all, and he made us out of himself.
+ - We are all very anxious to be understood, and it is very hard not to be. But there is one thing much more necessary.? What is that, grandmother?? To understand other people.? Yes, grandmother. I must be fair – for if I’m not fair to other people, I’m not worth being understood myself. I see.
+ - Primarily, God is not bound to punish sin; he is bound to destroy sin. The only vengeance worth having on sin is to make the sinner himself its executioner.
+ - Joy cannot unfold the deepest truths. Cometh white-robed Sorrow, stooping and wan, and flingeth wide the door she must not enter.
+ - As Christ is the blossom of humanity, so the blossom of every man is Christ perfected in him.
+ - God is the God of the animals in a far lovelier way, I suspect, than many of us dare to think, but he will not be the God of a man by making a good beast of him.
+ - To cease to wonder is to fall plumb-down from the childlike to the commonplace – the most undivine of all moods intellectual. Our nature can never be at home among things that are not wonderful to us.
+ - The seed dies into a new life, and so does man.
+ - A man must learn to love his children, not because they are his, but because they are children, else his love will be scarcely a better thing at last than the party-spirit of the faithful politician.
+ - In the hearts of witches, love and hate lie close together and often tumble over each other.
+ - The direst foe of courage is the fear itself, not the object of it; and the man who can overcome his own terror is a hero and more.
+ - It may be infinitely worse to refuse to forgive than to murder, because.
+ - In Giving, a man receives more than he gives; and the more is in proportion to the worth of the thing given.
+ - A man may sink by such slow degrees that, long after he is a devil, he may go on being a good churchman or a good dissenter and thinking himself a good Christian.
+ - The time for speaking seldom arrives, the time for being never departs.
+ - Afflictions are but the shadows of God’s wings.
+ - When we understand the outside of things, we think we have them. Yet the Lord puts his things in subdefined, suggestive shapes, yielding no satisfactory meaning to the mere intellect, but unfolding themselves to the conscience and heart.
+ - I believe that no hell will be lacking which would help the just mercy of God to redeem his children.
+ - A man is as free as he chooses to make himself, never an atom freer.
+ - No; but you came, and found the riddles waiting for you! Indeed you are yourself the only riddle. What you call riddles are truths, and seem riddles because you are not true.
+ - Forgiveness is the giving and so the receiving of life. the latter may be an impulse of a moment of heat; whereas the former is a cold and deliberate choice of the heart.
+ - As cold as everything looks in winter, the sun has not forsaken us. He has only drawn away for a little, for good reasons, one of which is that we may learn that we cannot do without him.
+ - Philosophy is really homesickness.
+ - As to the pure all things are pure, so the common mind sees far more vulgarity in others than the mind developed in genuine refinement.
+ - I am sometimes almost terrified at the scope of the demands made upon me, at the perfection of the self-abandonment required of me; yet outside of such absoluteness can be no salvation.
+ - People must not choose their neighbors; they must take the neighbors that God sends them. The neighbor is just the person who is next to you at the moment, the person with whom any business has brought you into contact.
+ - When a feeling was there, they felt as if it would never go; when it was gone, they felt as if it had never been; when it returned, they felt as if it had never gone.
+ - To try to be brave is to be brave.
+ - Timely service, like timely gifts, is doubled in value.
+ - She would wonder what had hurt her when she found her face wet with tears, and then would wonder how she could have been hurt without knowing it.
+ - The best preparation for the future is the present well seen to, and the last duty done.
+ - Why should my love be powerless to help another?
+ - A true friend is forever a friend.
+ - Many a life has been injured by the constant expectation of death. It is life we have to do with, not death. The best preparation for the night is to work diligently while the day lasts. The best preparation for death is life.
+ - They will pressure you into doing things that may be unsafe, use your good judgment, and remember, ‘I would rather be laughed at, than cried for.’
+ - Doubt may be a poor encouragement to do anything, but it is a bad reason for doing nothing.
+ - A Baby Sermon- The lighting and thunder, they go and they come: But the stars and the stillness are always at home.
+ - Annihilation itself is no death to evil. Only good where evil was, is evil dead. An evil thing must live with its evil until it chooses to be good. That alone is the slaying of evil.
+ - I rose as from the death that wipes out the sadness of life, and then dies itself in the new morrow.
+ - God Himself – His thoughts, His will, His love, His judgments are men’s home. To think His thoughts, to choose His will, to judge His judgments, and thus to know that He is in us, with us, is to be at home.
+ - Many a thief is a better man than many a clergyman, and miles nearer to the gate of the kingdom.
+ - I saw thee ne’er before; I see thee never more; But love, and help, and pain, beautiful one, Have made thee mine, till all my years are done.
+ - Trust to God to weave your thread into the great web, though the pattern shows it not yet.
+ - But we believe – nay, Lord we only hope, That one day we shall thank thee perfectly For pain and hope and all that led or drove Us back into the bosom of thy love.
+ - My prayers, my God, flow from what I am not; I think thy answers make me what I am.
+ - Anything big enough to occupy our minds is big enough to hang a prayer on.
+ - People must believe what they can, and those who believe more must not be hard upon those who believe less. I doubt if you would have believed it all yourself if you hadn’t seen some of it.
+ - The part of the philanthropist is indeed a dangerous one; and the man who would do his neighbour good must first study how not to do him evil, and must begin by pulling the beam out of his own eye.
+ - What a man is lies as certainly upon his countenance as in his heart, though none of his acquaintances may be able to read it. The very intercourse with him may have rendered it more difficult.
+ - I begin indeed to fear that I have undertaken an impossibility, undertaken to tell what I cannot tell because no speech at my command will fit the forms in my mind.
+ - God hides nothing. His very work from the beginning is revelation – a casting aside of veil after veil, a showing unto men of truth after truth. On and on from fact Divine He advances, until at length in His Son Jesus He unveils His very face.
+ - There is no cheating in nature and the simple unsought feelings of the soul. There must be a truth involved in it, though we may but in part lay hold of the meaning.
+ - To say on the authority of the Bible that God does a thing no honourable man would do, is to lie against God; to say that it is therefore right, is to lie against the very spirit of God.
+ - Light-leaved acacias, by the door, Stood up in balmy air, Clusters of blossomed moonlight bore, And breathed a perfume rare.
+ - Her heart – like every heart, if only its fallen sides were cleared away – was an inexhaustible fountain of love: she loved everything she saw.
+ - Oh the folly of any mind that would explain God before obeying Him! That would map out the character of God instead of crying, Lord, what wouldst thou have me to do?
+ - The holy spirit of the Spring Is working silently.
+ - Whose work is it but your own to open your eyes? But indeed the business of the universe is to make such a fool out of you that you will know yourself for one, and begin to be wise.
+ - To receive honestly is the best thanks for a good thing.
+ - The possession of wealth is, as it were, prepayment, and involves an obligation of honor to the doing of correspondent work.
+ - It is when people do wrong things wilfully that they are the more likely to do them again.
+ - No story ever really ends, and I think I know why.
+ - You doubt because you love truth.
+ - But there is no veil like light – no adamantine armor against hurt like the truth.
+ - Faith is obedience, not compliance.
+ - And her life will perhaps be the richer, for holding now within it the memory of what came, but could not stay.
+ - If both Church and fairy-tale belong to humanity, they may occasionally cross circles, without injury to either.
+ - Were I asked, what is a fairytale? I should reply, Read Undine: that is a fairytale.
+ - You can’t live on amusement. It is the froth on water – an inch deep and then the mud.
+ - It may be an infinitely less evil to murder a man than to refuse to forgive him. The former may be the act of a moment of passion: the latter is the heart’s choice.
+ - One thing is clear to me, that no indulgence of passion destroys the spiritual nature so much as respectable selfishness.
+ - Only he knew that to be left alone is not always to be forsaken.
+ - Where did you get your eyes so blue? Out of the sky as I came through.
+ - Somehow, I can’t say how, it tells me that all is right; that it is coming to swallow up all cries.
+ - By all means rid yourself of an impoverished faith.
+ - If you will not determine to be pure, you will grow more and more impure.
+ - The Root of All Rebellion: It is because we are not near enough to Thee to partake of thy liberty that we want a liberty of our own different from thine.
+ - It needs brains to be a real fool.
+ - The ideal is the only absolute real; and it must become the real in the individual life as well, however impossible they may count it who never tried it.
+ - To love righteousness is to make it grow, not to avenge it. Throughout his life on earth, Jesus resisted every impulse to work more rapidly for a lower good.
+ - I am perplexed at the stupidity of the ordinary religious being. In the most practical of all matters he will talk and speculate and try to feel, but he will not set himself to do.
+ - It’s right to trust in God; but, if you don’t stand to your halliards your craft’ll miss stays, and your faith’ll be blown out of the bolt-ropes in the turn of a marlinspike.
+ - The word doctrine, as used in the Bible, means teaching of duty, not theory.
+ - One chief cause of the amount of unbelief in the world is tha tthose who have seen something of the glory of Christ set themselves to theorize concerning him rather than to obey him.
+ - God will not take shelter behind a jugglery of logic or metaphysics. He is neither a schoolman nor theologian, but our Father in Heaven.
+ - The Bible is to me the most precious thing in the world just because it tells me the story of Jesus.
+ - Come, come to Him who made thy heart; Come weary and oppressed; To come to Jesus is thy part; His part, to give thee rest.
+ - There are women who fly their falcons at any game, little birds and all.
+ - In joy or sorrow, feebleness or might, Peace or commotion, be thou, Father, my delight.
+ - Difficulty adds to result, as the ramming of powder sends the bullet the further.
+ - To judge religion we must have it – not stare at it from the bottom of a seemingly interminable ladder.
+ - No one is likely to remember what is entirely uninteresting to him.
+ - It is to the man who is trying to live, to the man who is obedient to the word of the Master, that the word of the Master unfolds itself.
+ - But there are victories far worse than defeats; and to overcome an angel too gentle to put out all his strength, and ride away in triumph on the back of a devil, is one of the poorest.
+ - I wondered over again for the hundredth time what could be the principle which, in the wildest, most lawless, fantastically chaotic, apparently capricious work of Nature, always kept it beautiful.
+ - Friends, if we be honest with ourselves, we shall be honest with each other.
+ - What distressed me most – more even than my own folly – was the perplexing question, How can beauty and ugliness dwell so near?
+ - There is no inborn longing that shall not be fulfilled. I think that is as certain as the forgiveness of sins.
+ - Common people, whether lords or shop-keepers, are slow to understand that possession, whether in the shape of birth or lands or money or intellect, is a small affair in the difference between men.
+ - Not only then has each man his individual relation to God, but each man has his peculiar relation to God.
+ - Beauty and sadness always go together.
+ - The doing of things from duty is but a stage on the road to the kingdom of truth and love.
+ - Religion is life essential.
+ - No man can make haste to be rich without going against the will of God, in which case it is the one frightful thing to be successful.
+ - I say again, if I cannot draw a horse, I will not write THIS IS A HORSE under what I foolishly meant for one.
+ - Ah, what is it we send up thither, where our thoughts are either a dissonance or a sweetness and a grace?
+ - For this, deep waters whelm the fruitful lea, Wars ravage, famine wastes, plague withers, nor Shall cease till men have chosen the better part.
+ - The greatest forces lie in the region of the uncomprehended.
+ - As no scripture is of private interpretation, so is there no feeling in a human heart which exists in that heart alone – which is not, in some form or degree, in every human heart...
+ - There is but one thing that can free a man from superstition, and that is belief. All history proves it. The most sceptical have ever been the most credulous.
+ - All haste implies weakness.
+ - For that great Love speaks in the most wretched and dirty hearts; only the tone of its voice depends on the echoes of the place in which it sounds.
+ - Endurance must conquer, where force could not reach.
+ - It is not the cares of today, but the cares of tomorrow, that weigh a man down.
+ - But there are not a few who would be indignant at having their belief in God questioned, who yet seem greatly to fear imagining Him better than He is.
+ - What I would say is this, that the light is not blinding because God would hide, but because the truth is too glorious for our vision.
+ - A fairytale is not an allegory. There may be allegory in it, but it is not an allegory.
+ - A voice is in the wind I do not know A meaning on the face of the high hills Whose utterance I cannot comprehend. A something is behind them: that is God.
+ - It is a happy thing for us that this is really all we have to concern ourselves about – what to do next. No man can do the second thing. He can do the first.
+ - Remember, then, that whoever does not mean good is always in danger of harm. But I try to give everybody fair play, and those that are in the wrong are in far more need of it always than those who are in the right: they can afford to do without it.
+ - The purposes of God point to one simple end-that we should be as he is, think the same thoughts, mean the same things, possess the same blessedness.
+ - If we do not die to ourselves, we cannot live to God, andhe that does not live to God, is dead.
+ - We are dwellers in a divine universe where no desires are in vain – if only they be large enough.
+ - The region of the senses is the unbelieving part of the human soul.
+ - Where there is no choice, we do well to make no difficulty.
+ - Love is the opener as well as closer of eyes.
+ - God never gave man a thing to do concerning which it were irreverent to ponder how the Son of God would have done it.
+ - Every soul has a landscape that changes with the wind that sweeps the sky, with the clouds that return after its rain.
+ - Our life is no dream; but it ought to become one, and perhaps will.
+ - No man has the mind of Christ, except him who makes it his business to obey him.
+ - Alas! this time is never the time for self-denial, it is always the next time. Abstinence is so much more pleasant to contemplate upon the other side of indulgence.
+ - In short, a man must be set free from the sin he is, which makes him do the sin he does .
+ - There are thousands willing to do great things for one willing to do a small thing.
+ - But for money and the need of it, there would not be half the friendship in the world. It is powerful for good if divinely used. Give it plenty of air and it is sweet as the hawthorn; shut it up and it cankers and breeds worms.
+ - A beast does not know that he is a beast, and the nearer a man gets to being a beast, the less he knows it.
+ - We must do the thing we must Before the thing we may; We are unfit for any trust Till we can and do obey.
+ - I believe in fate, never in chance.
+ - There is no strength in unbelief. Even the unbelief of what is false is no source of might. It is the truth shining from behind that gives the strength to disbelieve.
+ - Moderation is the basis of justice.
+ - Will is not unfrequently weakness.
+ - We are often unable to tell people what they need to know, because they want to know something else, and would therefore only misunderstand what we said.
+ - To be humbly ashamed is to be plunged in the cleansing bath of truth.
+ - God chooses that men should be tried, but let a man beware of tempting his neighbor.
+ - Above all things, I delight in listening to stories, and sometimes in telling them.
+ - Blessed be the true life that the pauses between its throbs are not death!
+ - Any faith in Him, however small, is better than any belief about Him, however great.
+ - Only because uplifted in song, was I able to endure the blaze of the dawn.
+ - Alas! how easily things go wrong!
+ - A man is in bondage to whatever he cannot part with that is less than himself.
+ - There is little hope of the repentance and redemption of certain some until they have committed one or another of the many wrong things of which they are daily, through a course of unrestrained selfishness, becoming more and more capable.
+ - It is simply absurd to say you believe, or even want to believe, in Him, if you do not do anything He tells you.
+ - There is an aching that is worse than any pain.
+ - If there be music in my reader, I would gladly wake it.
+ - But words are vain; reject them all – They utter but a feeble part: Hear thou the depths from which they call, The voiceless longing of my heart.
+ - To try too hard to make people good is one way to make them worse. The only way to make them good is to be good, remembering well the beam and the mote.
+ - Two people may be at the same spot in manners and behaviour, and yet one may be getting better, and the other worse, which is the greatest of differences that could possibly exist between them.
+ - You would not think any duty small, If you yourself were great.
+ - It is by loving and not by being loved that one can come nearest to the soul of another.
+ - But when we are following the light, even its extinction is a guide.
+ - They are not the best students who are most dependent on books. What can be got out of them is at best only material; a man must build his house for himself.
+ - Love makes everything lovely; hate concentrates itself on the one thing hated.
+ - As I said to Speedicut, it’s hell in the diplomatic.
+ - We profess to think Jesus the grandest and most glorious of men, yet hardly care to be like him. When we are offered his Spirit, that is, his very nature within us, for the asking, we will hardly take the trouble to ask for it.
+ - There are things that must be done in faith, else they never have being.
+ - He who seeks the Father more than anything He can give, is likely to have what he asks, for he is not likely to ask amiss.
+ - But I begin to think the chief difficulty in writing a book must be to keep out what does not belong to it.
+ - Man’s rank is his power to uplift.
+ - A condition which of declension would indicate a devil, may of growth indicate a saint.
+ - I do not myself believe there is any misfortune. What men call such is merely the shadowside of a good.
+ - For the greatest fool and rascal in creation there is yet a worse condition; and that is, not to know it, but to think himself a respectable man.
+ - There is no slave but the creature that wills against its Creator.
+ - All that is not God is death.
+ - We have to do with God, to whom no one can look without the need of being good waking up in his heart; to think about God is to begin to be good.
+ - There is this difference between the growth of some human beings and that of others: in the one case it is a continuous dying, in the other a continuous resurrection.
+ - We are not made for law, we are made for love.
+ - Which of us is other than a secret to all but God!
+ - You will be dead so long as you refuse to die.
+ - I learned that he that will be a hero will barely be a man; that he that will be nothing but a doer of his work is sure of his manhood.
+ - It is only by loving a thing that you can make it yours.
+ - Every truth must be accompanied by some corresponding act.
+ - One of the grandest things in having rights is, that though they are your rights you may give them up.
+ - If we will but let our God and Father work His will with us, there can be no limit to His enlargement of our existence.
+ - Well, perhaps; but I begin to think there are better things than being comfortable.
+ - The birds, the poets of the animal creation – what though they never get beyond the lyrical! – awoke to utter their own joy, and awake like joy in others of God’s children.
+ - We should teach our children to think no more of their bodies when dead than they do of their hair when cut off, or of their old clothes when they have done with them.
+ - Until a man has love, it is well he should have fear. So long as there are wild beasts about, it is better to be afraid than secure.
+ - I don’t know how to thank you.? Then I will tell you. There is only one way I care for. Do better, and grow better, and be better.
+ - Books are but dead bodies to you, and a library nothing but a catacomb!
+ - Never was there a more injurous mistake than to say it was thebusiness only of the clergy to care for souls.
+ - I know my Easts and Tom Brown, you see, and they’re never happy unless their morality is being tried in the furnace and they can feel they are doing the right Christian thing and never mind the consequences to anyone else.
+ - Life and religion are one, or neither is any thing.
+ - Real good-breeding is independent of the forms and refinements of what has assumed to itself the name of society.
+ - Those that hope little cannot grow much.
+ - I tell you, there are more worlds, and more doors to them, than you will think of in many years!
+ - What would the Living One have me do?
+ - To be kind neither hurts nor compromises.
+ - If there be a God and one has never sought him, it will be small consolation to remember that one could not get proof of his existence.
+ - If those who had set themselves to explain the various theories of Christianity had set themselves instead to do the will of the Master, how different the world would be now!
+ - But it is not the rich person only who is under the domination of things; they too are slaves who, having no money, are unhappy from the lack of it.
+ - Few delights can equal the presence of one whom we trust utterly.
+ - Now and then, when I look round on my books, they seem to waver as if a wind rippled their solid mass, and another world were about to break through.
+ - All is loss that comes between us and Christ.
+ - What can money do to console a man with a headache?
+
+293 quotes

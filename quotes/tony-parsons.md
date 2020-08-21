@@ -1,0 +1,41 @@
+ - My principal motivation is supporting my family, which is not a bad reason for getting up in the morning. That’s always been my motivation – to take care of the people who rely on me.
+ - Love means knowing when to let go.
+ - Learn to trust your instincts. Only something dead goes with the tide. Only something living can go against it.
+ - Home is oneness, home is my original nature. It is right here, simply in what is. There is nowhere else I have to go, and nothing else I have to become.
+ - I am all for cracking down on inappropriate digital behaviour. Too often the connected world is an excuse for some coward hiding behind a keyboard to bully someone else.
+ - When you are a journalist in the music business, as I was, you end up dying or going to the gym – I chose the gym.
+ - I have found having my dad as my North Star has worked well for me.
+ - My parents have been dead for many years, and when your folks are gone there is nobody standing between you and eternity.
+ - My parents gave up a lot to bring me up in the little house on the prairie, and I wasn’t prepared to make those sacrifices, nor was the generation before me and the generation after.
+ - People are always surprised at what a nice guy I am.
+ - I’ve been visiting Thailand for more than 20 years but didn’t fall in love with it until I visited Phuket Town in Phuket. The northern part of Phuket is one of the most fascinating places I’ve ever been, and largely unspoilt and unknown.
+ - If someone does something illegal on Twitter – like incite hatred, or make racist remarks, or threaten to rip someone’s intestines out if they insult Justin Bieber – then there has to be some way of censuring them.
+ - I once read somewhere that, in any relationship, the one who cares the least is the one with all the power.
+ - I hate Nassau and the Bahamas. It’s one of those places I’d always wanted to visit since reading Ian Fleming but it was full of casinos with Americans in shorts.
+ - It’s painful and it’s messy. But sometimes you just have to make the break and start again.
+ - And so we stayed out in the garden of the old house until we couldn’t kick a ball, laughing in the gathering twilight, making the most of the good weather and all the days that were left, our little game watched only by next door’s cat, and every star in the heavens.
+ - I feel like the only person in the world who sees David Beckham modelling his swimming pants on the cover of Elle magazine and thinks – oh, how much better a handsome guy like you would look, David, without all those dumb ink stains stitched into your skin.
+ - When you have a kid, money matters.
+ - I do tend to look back to my parents generation and think wow! what a great way to be, to live with one person for a lifetime, to bring your kids up in these really solid families.
+ - When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.
+ - The British – who rarely start a fight, but always know how to finish it – have nothing to be ashamed of.
+ - It felt natural. That is what I remember most about becoming a father halfway through my 20s. As if Mother Nature was giving me the big thumbs up.
+ - Tattoos are so widespread, so ugly and so very, very permanent. You can, in theory, have them removed – but a large chunk of your living flesh will go with it.
+ - There are a handful of barbecue seafood shacks on the beach at Hat Nai Yang, which is a fabulous place to have dinner. It’s very much run for locals and they serve the catch of the day, which might be lobster, white snapper or squid. It’s ridiculously reasonable, too.
+ - My teenage years were spent trying to look like Rod Stewart – I ended up looking like Dave Hill from Slade.
+ - The thing I care about is my weight – I’m as fanatical about it as a member of Girls Aloud. I weigh myself every morning. I know exactly what I want to be – 82kg – and I try to stick to it.
+ - You have to give kids from ordinary families a ladder. You have to show them theres a way out.
+ - Grammar schools are public schools without the sodomy.
+ - Sometimes we are only aware of how happy we are when the moment has passed. But now and again, if we are very lucky, we are aware of happiness when it is actually happening.
+ - The most convincing argument against early parenthood is that you are in a relationship that is likely to fall apart before that child grows up.
+ - The thing to remember about Phuket is it’s very beach-oriented and relaxed. The trendiest beach is Koh Sirey, which is full of groovy places to have a cocktail and watch the sun go down.
+ - I can’t think of a bigger waste of police time than chasing somebody who has said something offensive on Twitter.
+ - A tattoo doesn’t make you look like an individual.
+ - The tattooed nation will live to regret this voluntary disfigurement.
+ - It can’t always be a honeymoon.
+ - The dream we are living has absolutely no purpose other than our awakening.
+ - I box for four hours a week and my diet is pretty healthy.
+ - I don’t think much of anything I wrote before the age of 30.
+ - I am a sweet old softy, but it took toughness to get through what I went through.
+
+39 quotes

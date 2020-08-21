@@ -1,0 +1,100 @@
+ - The only way to grow is to challenge yourself.
+ - I never give up on things.
+ - People see me as cute, but I’m so much more than that.
+ - Music and fashion inspire each other.
+ - I hope to inspire people, influence people.
+ - I love being home at Christmastime.
+ - I can take a week’s vacation – maybe a week and a half – but after that, I’m itching to go back to work.
+ - I text a lot people, because it’s how I stay connected with all my family and friends when I’m on set and traveling.
+ - I want people to know that I’m a real person, and that I’ve been through normal situations, like crushes and heartbreaks.
+ - Now before I work out, I think, ‘I love exercise,’ and it works.
+ - I don’t drink, and I don’t smoke. It’s a personal preference. My mom has never drunk or smoked. I look up to my mom.
+ - I feel like people expect a lot out of girls, like you’re supposed to know who you are and what you want out of life right now. Some girls know. I did. But lots of people don’t know. You have to try a lot of things and not worry about what people are thinking.
+ - I used to hate looking in the mirror. I’ve grown up into myself and now I’m happy with the way I look.
+ - I’m very sassy. I want to show people in my album I’m not like my characters on TV.
+ - Sometimes, girls focus too much on relationships – like, “I need a boyfriend!” But you should really just focus on yourself. But it will all come together when you least expect it.
+ - I’m so grateful for what Disney gave me and the experiences that I got, but at the end of the day, I can do so much more than what I did on that channel and in those movies.
+ - The ‘believe’ tattoo is because my mom always told me to believe.
+ - I actually liked Rise of the Planet of the Apes. I remember just watching it and being pleasantly surprised with that movie. I didn’t think it would be as good as it was, so I love that movie.
+ - I’m a strong person. I’m also very sassy and a little bit angsty sometimes.
+ - I want to be with someone who wants to work as much as I do and who respects me like I respect him.
+ - In high school, it was all about popularity, being with the boyfriend and all the girls thinking he’s cute.
+ - I have always been really scared of scary movies just because I live by myself – and then seeing something, then having a big imagination and then like thinking you see it in the middle of the night. So I’ve never been really into them.
+ - I know I come off like a very outgoing person, and yeah, I’m outgoing, but there’s also a part of me that still likes to be in my little shell sometimes.
+ - My family belongs to a tennis club in Valencia, California, so I always go there. I play a lot of tennis with my dad and swim. And I like to go to the gym there.
+ - I’m not into clubbing. I want to be known for my work.
+ - Zac Efron would make us feel guilty for eating big dinners. He’d say, ‘Do you really want to eat those carbs?’ It was like, ‘Thanks a lot!’
+ - I’m a big romantic, so I love guys who are romantic too.
+ - I love Kelly Clarkson.
+ - I love shopping, but I can find something to buy wherever I go! London is great for shopping, as is Los Angeles and New York – but I can find a good shop in the middle of nowhere!
+ - I’m a confident person. I just try to be me. I like to make people laugh, I am a comedienne – so if people find me sexy, that’s awesome.
+ - I’m happy that I was able to experience a normal life besides show business, because it gives you something to draw from.
+ - I’m living out my dreams and I love what I do.
+ - I love clothes and I love fashion.
+ - My look is a very individual look. I love Pink, but I don’t really dress like Pink.
+ - I remember seeing Airplane, and even Mel Brooks movies like History of the World Part I, and just really loving that style of movies that make fun of movies. I think it needs to be done. All of these movies are ripe for being poked at.
+ - I’m not just the young girl everybody thinks I am. I’m actually a woman.
+ - Communication is so key.
+ - I have a sexy side to me, but it’s more of a fun sexy.
+ - When I was little, I saw the play ‘Les Miserables’ on Broadway, I thought it was the most amazing thing I have ever seen.
+ - I’m not trying to run away from my fans at all. I want them to grow with me.
+ - I’m definitely the kind of person to wear underwear all the time.
+ - I was always superthin, too skinny, actually. I felt like someone could break me in half. I realize now that being a bit more curvy and toned is so much more beautiful.
+ - I don’t mind being a Disney girl.
+ - When fans come up to me and Vanessa, they’re really sweet and ask for autographs – but once they see the guys, the girls tend to scream.
+ - Producing is just a big learning experience.
+ - I’ve always been able to keep my private life separate from my business.
+ - I love pancakes, and I actually do love healthy stuff. Like, I love gluten-free or whole-wheat pancakes. Breakfast is my favorite meal.
+ - It’s important to have girlfriends, because guys tend to come and go.
+ - I love Christmas, not just because of the presents but because of all the decorations and lights and the warmth of the season.
+ - I think it’s so important, as young women, to have relationships, especially when you’re in your early 20s. But it’s always so important to focus on yourself.
+ - I don’t go clubing. So, I don’t smoke or drink.
+ - My agent didn’t want me on Disney because I’m older. But honestly, I’m not ready for older roles yet, or even the things older girls do. I am still young.
+ - I definitely think cheerleaders have no fear. When I took the Hellcats job I was like whoa, this is a sport. Cheerleaders deserve a lot of respect for what they do.
+ - Zac Efron is like a brother who’s just goofy and crazy. He plays a lot of practical jokes.
+ - I like to do a lot of cardio.
+ - I realized just how much exercise and eating right make a difference in how you feel now and when you get older.
+ - If I like you, I’ll confront you and be open about it. Then I expect you to come after me.
+ - You can be plain and smart, or pretty and smart. You can even be plain and dumb! You just have to be yourself.
+ - I just loved playing the mean girl. When you’re not like a character, it’s kind of fun to play.
+ - If I feel like someone’s trying to bring me down, I just walk away from it.
+ - An ‘OMG’ of mine would probably be speaking on stage and performing in front of thousands of people!
+ - I give dating advice on a regular basis. It’s not that I’m any expert, but it’s always nice to share that with your friends.
+ - I love to work out and do cardio and have a healthy, active lifestyle, but I also am not going to, like, freak out over food.
+ - I’m not someone who likes to be in the whole Hollywood tabloids.
+ - I love to sing! To be in a movie with musical number is the coolest thing ever!
+ - I feel like when I went back to my original hair color, a little bit of an edgier side came out.
+ - I don’t really believe in rules, but I do like old-fashioned dating where you don’t call the guy until he calls you. I don’t think it’s like he’s got to do this and that’s the rule.
+ - I like to have fun but my fun is different from other people’s fun.
+ - I love pink, it’s so girly!
+ - I’ve had a normal life, but I have struggled to get here. It hasn’t been handed to me and it hasn’t been easy.
+ - I think whenever any guys come along they’re intimidated, and they don’t really talk that much unless I talk to them.
+ - I think fame can come and go.
+ - I can’t watch scary movies right now, because living on my own, it kind of freaks me out.
+ - Cheerleaders deserve a lot of respect for what they do.
+ - I’ve loved Michael Jackson, his music, his music videos.
+ - I definitely think cheerleaders have no fear.
+ - Don’t let anyone, or any rejection, keep you from what you want.
+ - I like someone I can have fun with and who can be more laid-back than I am, because it calms me down.
+ - I think nothing ever ends on Disney Channel. They keep playing it.
+ - I grew up on movies like Airplane! and The Naked Gun. You probably saw it more recently, but as a kid I grew up on them so I loved those kinds of movies.
+ - Hey, it isn’t bad that I look young.
+ - With every character, I just bring something that I can make my own.
+ - I’ve always wanted to be sure my parents approve of what I do.
+ - I’m in love with ‘Bravo.’ Me and my girlfriends love ‘Bravo-ing,’ which doesn’t necessarily mean watching ‘Bravo.’ It’s when you’re a bum and you’re on your couch watching reality shows.
+ - I never really looked up to celebrities when I was young.
+ - I know I have pretty good instincts.
+ - Growing up I always knew I had a deviated septum on the right side of my nose, which caused trouble breathing. The older I got, the worse it got.
+ - I’m always surrounded by good-looking guys, like Zac Efron, so I have to be with someone who’s not going to get jealous about any of that, or when I’m kissing somebody in a scene.
+ - I look at Jessica Alba and think she’s got a great body. I think that’s what women are supposed to look like.
+ - My sister is totally my dad’s daughter because she loves sports.
+ - I grew up in the business since I was three years old so I’ve always kind of been in front of the camera and grew up in commercials and I knew that I wanted to do it no matter what, I just loved it.
+ - I feel like every project I’ve ever done has had music involved in it somehow.
+ - I’m actually most comfortable when I’m in a bikini, running around on the beach, like, no makeup. It’s really free-feeling, whereas I’m always having to get dressed up and putting makeup on.
+ - My mom is very confident and she was always a role model of mine.
+ - Once in high school, I completely over plucked my left eyebrow all the way up to where you’re not supposed to. I had no idea what I was doing and it looked terrible! My mom was like ‘What did you do to yourself?’ I was so embarrassed.
+ - I’d love to do more action stuff, in the future.
+ - I did find some time to go to a record store and check out “Headstrong” actually in the racks. It was pretty cool; I never thought I’d see my own CD sitting there with everyone else’s. I made my Mom take lots of pics!
+ - I love keeping a connection with everyone I’ve worked with.
+
+98 quotes

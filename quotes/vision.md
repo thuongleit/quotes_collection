@@ -1,0 +1,42 @@
+ - Vision without execution is delusion. ~~Thomas A. Edison
+ - Create a vision of who you want to be, and then live into that picture as if it were already true. ~~Arnold Schwarzenegger
+ - Vision is a picture of the future that produces passion. ~~Bill Hybels
+ - You need to surround yourself with quality human beings that are intelligent and have a vision. ~~Vince McMahon
+ - Have a vision. Be demanding. ~~Colin Powell
+ - Vision without passion is a picture without possibilities. ~~John C. Maxwell
+ - When you believe in your dream and your vision, then it begins to attract its own resources. No one was born to be a failure. ~~Myles Munroe
+ - I would rather gamble on our vision than make a ‘me, too’ product. ~~Steve Jobs
+ - A vision without a strategy remains an illusion. ~~Lee Bolman
+ - A job is how you make money. A career is how you make your mark. A calling is how you acknowledge a higher vision, whatever it may be. ~~Deepak Chopra
+ - Failed plans should not be interpreted as a failed vision. Visions don’t change, they are only refined. Plans rarely stay the same, and are scrapped or adjusted as needed. Be stubborn about the vision, but flexible with your plan. ~~John C. Maxwell
+ - Microsoft was founded with a vision of a computer on every desk, and in every home. We’ve never wavered from that vision. ~~Bill Gates
+ - Global vision, local win. ~~Jack Ma
+ - A dream is your creative vision for your life in the future. ~~Denis Waitley
+ - A goal casually set and lightly taken is freely abandoned at the first obstacle. ~~Zig Ziglar
+ - It is a terrible thing to see and have no vision. ~~Helen Keller
+ - No dream is ever just a dream. ~~Tom Cruise
+ - Having just the vision’s no solution, everything depends on execution. ~~Stephen Sondheim
+ - If you want to be rich, you need to develop your vision. You must be standing on the edge of time gazing into the future. ~~Robert T. Kiyosaki
+ - One’s destination is never a place but rather a new way of looking at things. ~~Henry Miller
+ - Vocabulary enables us to interpret and to express. If you have a limited vocabulary, you will also have a limited vision and a limited future. ~~Jim Rohn
+ - A leader without the vision, to strive to improve things, is no good. Then you will just stay put, you won’t progress. ~~Lee Kuan Yew
+ - Vision without execution is daydreaming. ~~Bill Gates
+ - Without a vision the people perish. ~~Ronald Reagan
+ - Take the limits off of yourself. You will never rise higher than your thinking. Create a great vision for your life. ~~Joel Osteen
+ - If you had all the money and all the time in the world, what would you do?! ~~Deepak Chopra
+ - The motors I build there were exactly as I imagined them. I made no attempt to improve the design, but merely reproduced the pictures as they appeared to my vision and the operation was always as I expected. ~~Nikola Tesla
+ - It is today that we create the world of the future. ~~Eleanor Roosevelt
+ - I prefer to be a dreamer among the humblest, with visions to be realized, than lord among those without dreams and desires. ~~Khalil Gibran
+ - When you lose your vision, you lose contact with things. When you lose your hearing, you lose contact with people. ~~Helen Keller
+ - You want to set a goal that is big enough that in the process of achieveing it you become someone worth becoming. ~~Jim Rohn
+ - Success Procedure: Run your day by the clock and your life with a vision. ~~Zig Ziglar
+ - Learn to see, and then you’ll know that there is no end to the new worlds of our vision. ~~Carlos Castaneda
+ - Real life was something happening in her peripheral vision. ~~Rainbow Rowell
+ - The bravest are surely those who have the clearest vision of what is before them, glory and danger alike, and yet notwithstanding go out to meet it. ~~Thucydides
+ - You are not wrong who deem That my days have been a dream; Yet if hope has flown away In a night, or in a day, In a vision, or in none, Is it therefore the less gone? All that we see or seem Is but a dream within a dream. ~~Edgar Allan Poe
+ - We do not need more intellectual power, we need more spiritual power. We do not need more of the things that are seen, we need more of the things that are unseen. ~~Calvin Coolidge
+ - Young lovers see a vision of the world redeemed by love. That is the truest thing they ever see, for without it life is death. ~~Wendell Berry
+ - We must be global Christians with a global vision because our God is a global God. ~~John R.W. Stott
+ - Dreams feel real while we’re in them. It’s only when we wake up that we realize something was actually strange. ~~Leonardo DiCaprio
+
+40 quotes

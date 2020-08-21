@@ -1,0 +1,51 @@
+ - Joy is peace dancing and peace is joy at rest.
+ - The greatest tragedy of life is not unanswered prayer, buy unoffered prayer.
+ - Prayer is an exchange. We leave our burdens, worries and sin in the hands of God. We come away with oil of joy and the garment of praise.
+ - As we pour out our bitterness, God pours in his peace.
+ - Unbelief puts our circumstance between us and God, but faith puts God between us and our circumstances.
+ - Watch the morning watch. Do not see the face of man until you have seen the face of God. Before you enter on the day with its temptations, look up into His face and hide His Word in your heart.
+ - Fall on your knees and grow there. There is no burden of the spirit but is lighter by kneeling under it. Prayer means not always talking to Him, but waiting before Him till the dust settles and the stream runs clear.
+ - If you’re not willing to give up everything for Christ, are you willing to be made willing?
+ - Do not look down, brooding over your weakness! Do not look back upon your past, strewn with failure! Look up to the living Christ!
+ - When we want to know God’s will, there are three things which always concur: the inward impulse, the Word of God and the trend of circumstances. Never act until these three things agree.
+ - Go on day by day fulfilling the task of the day, and leaving the results with God.
+ - Though justification costs us nothing but the sacrifice of our pride, it has cost Christ His blood.
+ - The love of God toward you is like the Amazon River flowing down to water a single daisy.
+ - Consecration is only possible when we give up our will about EVERYTHING.
+ - I can’t say I’m willing, Lord, but I’m willing to be made willing.
+ - God is down in front. He is in the tomorrows. It is tomorrow that fills men with dread. God is there already. All the tomorrows of our life have to pass Him before they can get to us.
+ - God incarnate is the end of fear; and the heart that realizes that, realizes that he is in the midst, that takes heed to the assurance of his loving presence, will be quiet in the midst of alarm.
+ - The man who prays grows, and the muscles of the soul swell from this whipcord to iron bands.
+ - There is nothing the Church of today needs so much as Spiritual Power; and there is nothing which we can have so easily, if only we are prepared to pay the price.
+ - Habits of prayer need careful cultivation.
+ - How often God takes away our consolations, that we may only love Him for Himself; and reveals our sinfulness, that we may better appreciate the completeness of his salvation!
+ - How many of us, who are engaged in the Lord’s holy service, are secretly cherishing some proud purpose of excelling other men, of making a name, of securing money and applause.
+ - Consecration is not the act of our feelings but of our WILL.
+ - The passing of the years awakens in our hearts the cry for permanence.
+ - There is nothing, indeed, which God will not do for a man who dares to step out upon what seems to be the mist; though as he puts his foot down he finds a rock beneath him.
+ - The church which is not a missionary church will be a missing church when Jesus comes.
+ - There is no burden of the spirit but is lighter by kneeling under it.
+ - God does not fill with His Holy Spirit those who believe in the fullness of the Spirit, or those who desire Him, but those who obey Him.
+ - He is the richest man in the esteem of the world who has gotten the most. He is the richest man in the esteem of Heaven who has given the most.
+ - If I had my ministry over again, I would devote far more time to the ministry of comfort and encouragement.
+ - The quiet life is by no means the greatest life. Some characters can only reach the highest standard of spirituality by the disturbings or displacings in the order of God’s providence.
+ - Christ’s work needs no repetition. It is final because it is perfect.
+ - There is no sin so profound, no despondency so low, no misery so abject, but the love of Christ is deeper.
+ - God has a purpose in every life, and when the soul is completely yielded and acquiescent, He will certainly realize it. Blessed is he who has never thwarted the working of the divine ideal.
+ - We must be still before God.
+ - Purity of heart means the control of the imagination and the rigorous care of the affections.
+ - The certainty of our salvation rests on the character of God.
+ - When a man is right with God, God will freely use him.
+ - God is love; to do his will is to scatter love in handfuls of blessing on a weary world.
+ - We never get so near God as when we plead for others.
+ - The flesh lusts against the Spirit, and the Spirit against the flesh.
+ - The spirit of the gospel is in absolute disagreement with the spirit of the world.
+ - The one thing that hinders God is our unbelief.
+ - Our God is Jehovah of hosts, who can summon unexpected reinforcements at any moment to aid His people. Believe that He is there between you and your difficulty, and what baffles you will flee before Him, as clouds before the gale.
+ - Yours will be the wings of an eagle’s flight, the soaring of a lark, sunward, heavenward, Godward! But you must take time to be holy – in meditation, in prayer, and especially in the use of the Bible.
+ - To be strong, to steer straight onward, to dare to praise God, to sit alone and keep silence because He has laid it upon us, to put our mouths in the dust, if so be there may be hope – here is fortitude indeed.
+ - I believe that if there is one thing which pierces the Master’s heart with unutterable grief, it is not the world’s iniquity, but the Church’s indifferences.
+ - When the Bible itself becomes irksome, inquire whether you have not been spoiling your appetite by sweetmeats and renounce them; and believe that the Word is the wire along which the voice of God will certainly come to you if the heart is hushed and the attention fixed.
+ - What a comfort it is to feel that amid the chaos and anarchy which sweep the surface, God is holding fast the foundations on which we build.
+
+49 quotes

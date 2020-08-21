@@ -1,0 +1,53 @@
+ - Ayurveda is a sister philosophy to yoga. It is the science of life or longevity and it teaches about the power and the cycles of nature, as well as the elements.
+ - I sincerely feel that beauty largely comes from within.
+ - Pranayama is the practice of breath control. The word prana refers not only to breath, but also to air and life itself.
+ - Yoga is an integral part of my daily routine. That definitely helps me approach all aspects of my life from a place of mindfulness and clarity, through the meditation that usually accompanies this practice.
+ - I strongly believe that each preventable death is one death too many.
+ - Yoga has brought me closer to myself. It’s helped me realize the interconnectedness of the mind, body and spirit, in the Buddhist sense of the word.
+ - Parents should not smoke in order to discourage their kids from smoking. A child is more likely to smoke when they have been raised in the environment of a smoker.
+ - You can usually tell when I’m happy by the fact that I’ve gained weight.
+ - When you are balanced and when you listen and attend to the needs of your body, mind, and spirit, your natural beauty comes out.
+ - Participating in a sisterhood with other women is hugely important in my life and a source of joy.
+ - Yoga is so universal in its principles and so holistically beneficial, it is possible for any person, young or old, religious or agnostic, to embrace and enjoy a practice.
+ - I am passionate about any effort to achieve social justice and equality, particularly for women.
+ - Sacred spaces can be created in any environment.
+ - A lot of people have questioned how yoga and their own spiritual beliefs can come together. Yoga actually pre-dates religion.
+ - I’d rather go naked than wear fur.
+ - That’s a girl’s life for the rest of her days- somewhere between a lollipop and shots.
+ - Yoga gave me the ability to calm down.
+ - So much of religion is exegesis. I would rather follow in the footprints of Christ than all of the dogma.
+ - Yoga is about compassion and generosity towards others. It means being mindful of the world around us.
+ - People always think that if you eat anything as a model, it’s amazing. I used to tease them and say, you know I’m going to throw up afterwards.
+ - Nicotine is both a stimulant and a depressant, so that can make one feel quite imbalanced.
+ - Parents should be the most important examples for their children.
+ - Yoga is not a religion to me.
+ - I was never directly pressured by peers, but by surrounding myself with others who were experimenting with smoking provided a certain false comfort.
+ - Yoga has reinforced and grounded my own spiritual beliefs.
+ - I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone – when the time was right for me.
+ - The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.
+ - Any spirituality can be enhanced with the practice or study of yoga.
+ - I never understand why people have children and then insist on living as though nothing has shifted.
+ - It is better to not even try it than to endure the ramifications of either quitting smoking or dying.
+ - All women deserve access to care that can save their lives.
+ - I think most people are curious about what it would be like to be able to meet yourself – -it’s eerie.
+ - I love fashion, but I’m not obsessed with it.
+ - We should all reevaluate advertising that contradicts what we know to be the truth; especially when the ads are harmfully manipulative.
+ - Modeling is a profession where your worth is tied up with looks.
+ - Now every model wants to be an actress.
+ - I’m flattered by the offers I receive, but there’s no real strategy to the way I choose what to do these days. If I’m in a good mood and have the time, I’m more likely to consider it. Often the photographer and team are important factors, too.
+ - It is possible to experience an awakening in this life through realising just how precious each moment, each mental process, and each breath truly is.
+ - I have lots of other mountains that I would like to climb. I have no dream of Everest, but there are some, like Mount Fuji, I’d like to do.
+ - I would be very proud to have influenced anyone that I know or don’t know to quit smoking.
+ - I really wanted to share with people the day-to-day joys that yoga can bring into one’s life-not just the physical aspects.
+ - Yoga has brought me to the part of religion I really like – the positive sides of religion, the parts we all share, rather than the things that create separation.
+ - I’m not entirely comfortable with myself in underwear.
+ - Most of us harbour a significant amount of subconscious fear about death, and act out of this fear in our daily lives.
+ - I started practicing Yoga at about 18. I had a friend who was doing it and was incredibly disciplined and meditated all the time.
+ - As long as I was breathing with the contractions and not pushing against them, I felt better. That idea is fundamental-to feel pain and not to resist; to go towards it. It is an incredibly spiritual practice.
+ - I don’t think that artists of any kind would or could sacrifice their artistic freedom by being more responsible with their influence on people, especially young people.
+ - For me, true beauty really does begin within and when it comes to skincare that means Imedeen.
+ - It is education that will arm us with the tools that will enable us to succeed and put a stop to the rising rates of preventable death.
+ - I like the big questions.
+ - Being of service to others daily makes me feel alive.
+
+51 quotes

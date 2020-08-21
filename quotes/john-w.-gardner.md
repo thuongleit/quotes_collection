@@ -1,0 +1,68 @@
+ - Life is the art of drawing without an eraser.
+ - Life is an endless process of self-discovery.
+ - There is no learning without some difficulty and fumbling. If you want to keep on learning, you must keep on risking failure-all your life.
+ - The society which scorns excellence in plumbing as a humble activity and tolerates shoddiness in philosophy because it is an exalted activity will have neither good plumbing nor good philosophy: neither its pipes nor its theories will hold water.
+ - True happiness involves the full use of one’s power and talents.
+ - The ultimate goal of the educational system is to shift to the individual the burden of pursuing his education.
+ - Whoever I am, or whatever I am doing, some kind of excellence is within my reach.
+ - Leaders come in many forms, with many styles and diverse qualities. There are quiet leaders and leaders one can hear in the next county. Some find strength in eloquence, some in judgment, some in courage.
+ - Political extremism involves two prime ingredients: an excessively simple diagnosis of the world’s ills, and a conviction that there are identifiable villains back of it all.
+ - A prime function of a leader is to keep hope alive.
+ - We cannot have islands of excellence in a sea of slovenly indifference to standards.
+ - To sensible men, every day is a day of reckoning.
+ - All excellence involves discipline and tenacity of purpose.
+ - Mastery is not something that strikes in an instant, like a thunderbolt, but a gathering power that moves steadily through time, like weather.
+ - One of the reasons people stop learning is that they become less and less willing to risk failure.
+ - If you have some respect for people as they are, you can be more effective in helping them to become better than they are.
+ - I am entirely certain that twenty years from now we will look back at education as it is practiced in most schools today and wonder that we could have tolerated anything so primitive.
+ - Much education today is monumentally ineffective. All too often we are giving young people cut flowers when we should be teaching them to grow their own plants.
+ - Creativity requires the freedom to consider ‘unthinkable’ alternatives, to doubt the worth of cherished practices. Every organization, every society is under the spell of assumptions so familiar that they are never questioned, least of all by those most intimately involved.
+ - All that we know about the interaction between leaders and constituents or followers tells us that communication and influence flow in both directions; and in that two-way communication, nonrational, nonverbal, and unconscious elements play their part.
+ - We pay a heavy price for our fear of failure.
+ - Excellence implies striving for the highest standards in every phase of life.
+ - We get richer and richer in filthier and filthier communities until we reach a final state of affluent misery – crocus on a garbage heap.
+ - Renewal is not just innovation and change. It is also the process of bringing the results of change into line with our purposes.
+ - When hiring key employees, there are only two qualities to look for: judgement and taste. Almost everything else can be bought by the yard.
+ - Americans have always believed that-within the law-all kinds of people should be allowed to take the initiative in all kinds of activities. And out of that pluralism has come virtually all of our creativity. Freedom is real only to the extent that there are diverse alternatives.
+ - Men of integrity, by their very existence, rekindle the belief that as a people we can live above the level of moral squalor. We need that belief; a cynical community is a corrupt community.
+ - The best kept secret in America today is that people would rather work hard for something they believe in than live a life of aimless diversion.
+ - Some people have greatness thrust upon them. Very few have excellence thrust upon them.
+ - What leaders have to remember is that somewhere under the somnolent surface is the creature that builds civilizations, the dreamer of dreams, the risk taker. And remembering that, the leader must reach down to the springs that never dry up, the ever-fresh springs of the human spirit.
+ - The creative individual is particularly gifted in seeing the gap between what is and what could be.
+ - All of us celebrate our values in our behavior.
+ - The cynic says, “One man can’t do anything”. I say, “Only one man can do anything.”
+ - America’s greatness has been the greatness of a free people who shared certain moral commitments. Freedom without moral commitment is aimless and promptly self-destructive.
+ - Nothing can be more readily disproved than the old saw, “You can’t keep a good man down.” Most human societies have been beautifully organized to keep good men down.
+ - Leaders develop their styles as they interact with their constituencies. They move toward the style that seems most effective in dealing with the mixture of elements that make up their constituencies.
+ - Creativity requires the freedom to consider unthinkable alternatives, to doubt the worth of cherished practices.
+ - Josh Billings said, It is not only the most difficult thing to know oneself, but the most inconvenient one, too. Human beings have always employed an enormous variety of clever devices for running away from themselves, and the modern world is particularly rich in such stratagems.
+ - An excellent plumber is infinitely more admirable than an incompetent philosopher.
+ - The individual who has become a stranger to himself has lost the capacity for genuine self-renewal.
+ - The creative individual has the capacity to free himself from the web of social pressures in which the rest of us are caught. He is capable of questioning the assumptions that the rest of us accept.
+ - The man who once cursed his fate, now curses himself – and pays his psychoanalyst.
+ - Some people strengthen the society just by being the kind of people they are.
+ - The ultimate goal of the educational system is to shift to the individual the burden of pursing his own education. This will not be a widely shared pursuit until we get over our odd conviction that education is what goes on in school buildings and nowhere else.
+ - Paralysis of leadership is due in part to the unseen grip of the special interests.
+ - It is hard to feel individually responsible with respect to the invisible processes of a huge and distant government.
+ - One generalization that is supported both by research and experience is that effective two-way communication is essential to proper functioning of the leader-follower relationship.
+ - If the modern leader doesn’t know the facts, he is in grave trouble, but rarely do the facts provide unqualified guidance.
+ - The hallmark of our age is the tension between aspirations and sluggish institutions.
+ - The play of conflicting interests in a framework of shared purposes is the drama of a free society. It is a robust exercise, and often a noisy one. It is not for the faint-hearted, or the tidy-minded.
+ - History never looks like history when you are living through it.
+ - In the artist’s recreation of the world we are enabled to see the world.
+ - If one defines the term ‘dropout’ to mean a person who has given up serious effort to meet his responsibilities, then every business office, government agency, golf club and university faculty would yield its quota.
+ - It is one of the ironies of history that reformers so often misjudge the consequences of their reforms.
+ - Our problem is not to find better values but to be faithful to those we profess.
+ - If our society continues at its present rate to become less livable as it becomes more affluent, we promise all to end up in sumptuous misery.
+ - The idea for which this nation stands will not survive if the highest goal free man can set themselves is an amiable mediocrity. Excellence implies striving for the highest standards in every phase of life.
+ - In the United States, to an unprecedented degree, the individual’s social role has come to be determined not by who he is but by what he can accomplish.
+ - All laws are an attempt to domesticate the natural ferocity of the species.
+ - One man interacting creatively with others can move the world.
+ - The ablest and most effective leaders do not hold to a single style; they may be highly supportive in personal relations when that is needed, yet capable of a quick, authoritative decision when the situation requires it.
+ - One exemplary act may affect one life, or even millions of lives. All those who set standards for themselves, who strengthen the bonds of community, who do their work creditably and accept individual responsibility, are building the common future.
+ - We have to face the fact that most men and women out there are more stale than they know, more bored than they care to admit.
+ - It is not easy to be crafty and winsome at the same time, and few accomplish it after the age of six.
+ - For every talent that poverty has stimulated it has blighted a hundred.
+ - The world loves talent but pays off on character.
+
+66 quotes

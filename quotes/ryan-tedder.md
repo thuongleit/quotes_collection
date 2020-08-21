@@ -1,0 +1,30 @@
+ - Everything that kills me, makes me feel alive.
+ - When you’re around enormously successful people you realise their success isn’t an accident – it’s about work.
+ - I’m actually introverted and shy.
+ - The cool thing about writing music, writing anything, is that once you publish it, it’s there forever.
+ - Honest always sells. Always has, always will.
+ - Im not interested in fad songs.
+ - I would rather put out two year-defining songs a year than flood the market with eight or nine songs.
+ - So for every day that you’re on this earth, for every minute that you have, the whole idea is doing nothing less than exactly what you feel you’re supposed to do and squeezing every last drop out of life every day, regardless of the difficulties or trials that you face.
+ - The Beatles are the most credible band in the history of music.
+ - I have a theory that you can decide to make whatever day it is a good day.
+ - With iPhones, nobody has an excuse for writer’s block. If you’re at Whole Foods getting your green tea extract and you have a melody, you just drop it into your voice memo and save it for later.
+ - I think often times if a guitar riff is centered around the chorus or if it follows the chorus, then it often times turns into the actual hook.
+ - Melody is the single most important thing to any song, period. I don’t care what anybody says, it trumps everything. Not because that’s my opinion but because I think it’s actually indisputable fact. The human brain retains melody easier than it retains words. It’s that simple.
+ - I grew up listening to English music.
+ - As for me, the only stuff I’ve ever had success with is when I’m trying to be completely original and not thinking about mirroring what else is out there.
+ - I think the best songs are being written by the very under-stated, under-appreciated indie artists. The thing that separates them from mainstream success is they either consciously or unknowingly refuse to deliver on a big chorus.
+ - Crowds respond to anthemic choruses.
+ - I live in Los Angeles, which is the second most polluted city in the world, and I wake up in the morning to dirt all over my window.
+ - I’m a sucker for pop melodies, things you can’t get out of your head.
+ - I started selling corn dogs, ended up in the music industry. That’s how it all started.
+ - Nobody works harder than Lady Gaga. Nobody. She is unbelievable. I don’t know how she sleeps, or when or if.
+ - I am not opposed to doing a side project, like Death Cab for Cutie, where it’s completely different from my own band.
+ - Writing songs is about trying to connect with people on a deeper spiritual level – but I’m not a fan of contemporary Christian music.
+ - I wish people would spend their money on hybrid cars.
+ - I’m terribly forgetful. I’ve lost laptops, cell-phones.
+ - I’m a huge Lady GaGa fan – she makes the world a more incredible place.
+ - I’m just a regular guy, but if you cross me it will get physical.
+ - I think the true test of a pop song, for me, and I’ve talked to a lot of other writers about this, is you take your demo, you pop it in your car and you drive down Sunset Blvd. to Santa Monica, and that’s the Hollywood car test.
+
+28 quotes

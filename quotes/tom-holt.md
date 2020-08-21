@@ -1,0 +1,25 @@
+ - Human beings can get used to virtually anything, given plenty of time and no choice in the matter whatsoever.
+ - Telling lies is a bit like tiling bathrooms – if you don’t know how to do it properly, it’s best not to try.
+ - Love is an optical illusion that makes you believe the object of your affection is the most beautiful person in the world.
+ - Not only had he lost the only girl he’d ever loved, he’d lost her in duplicate, like some heartbroken but highly efficient civil servant.
+ - Mostly I sit at home in the evenings watching the box and hoping that one day I’ll evolve into plankton.
+ - There’s all sorts of things I was always meaning to get around to – learning to play the flute, calculating the square root of nought, going mad – but I just didn’t have the time.
+ - In spite of really intense competition for the job, I’m still my own worst enemy.
+ - American-style iced tea is the perfect drink for a hot, sunny day. It’s never really caught on in the UK, probably because the last time we had a hot, sunny day was back in 1957.
+ - Genies rarely have nightmares, for the same reason that elephants don’t usually worry about being trampled underfoot. With the possible exception of bottles, there’s nothing in the cosmos large enough or malicious enough to frighten them, or stupid enough to try.
+ - New technology is useful, but it’s inefficient and ugly; it knows it’ll be obsolete by lunchtime tomorrow, so it has no incentive to be anything else.
+ - After all, what else is scientific enquiry of any sort other than a controlled version of banging one’s head against the universe until something gives?
+ - Lawyers are predators in grey worsted.
+ - It was irritating to have one’s physical shortcomings pointed out quite so plainly twice in one evening, once by a beautiful girl and once by a dying badger.
+ - The best definition of an immortal is someone who hasn’t died yet.
+ - I don’t read the Sunday papers; or the dailies, either.
+ - Poetry is one of the few nasty childhood habits I’ve managed to grow out of.
+ - There’s nothing bad about reincarnation per se, it’s basically a very good system, cost-effective and ecologically friendly.
+ - At any given time, ninety-nine-point-nine-five per cent of the human race are a confounded nuisance.
+ - American-style iced tea is the perfect drink for a hot.
+ - I try and do 2,500 words a day, every day of the year.
+ - There is that within a man that drives him ever onwards, just as the power of the seasons drives the roots of flowers into the hard earth; and so he decided, against his better judgment, to open his eyes and find out what was going to happen to him next.
+ - Everything is out there if you know how to find it, and have the patience. I don’t and haven’t, but that’s my problem.
+ - Luck, like a Russian car, generally only works if you push it.
+
+23 quotes

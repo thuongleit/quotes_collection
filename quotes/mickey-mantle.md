@@ -1,0 +1,100 @@
+ - It’s unbelievable how much you don’t know about the game you’ve been playing all your life.
+ - A team is where a boy can prove his courage on his own. A gang is where a coward goes to hide.
+ - Hey man! Get away from me!
+ - During my 18 years I came to bat almost 10,000 times. I struck out about 1,700 times and walked maybe 1,800 times. You figure a ballplayer will average about 500 at bats a season. That means I played seven years without ever hitting the ball.
+ - I don’t care who you are, you hear those boos.
+ - My biggest regret was letting my lifetime average drop below .300. I always felt I was a .300 hitter, and if I could change one thing that would be it.
+ - After I hit a home run I had a habit of running the bases with my head down. I figured the pitcher already felt bad enough without me showing him up rounding the bases.
+ - You don’t realize how easy this game is until you get up in that broadcasting booth.
+ - Watch the old man. Watch how the old man keeps the guys who aren’t playing happy.
+ - To get a better piece of chicken, you’d have to be a rooster.
+ - Stay away from drugs and alcohol. Listen to your moms and dads. In this great country of ours you do whatever you set your mind to. Make us proud of you.
+ - He who has the fastest golf cart never has a bad lie.
+ - The greatest thing I ever saw was Roger Maris breaking Babe Ruth’s record.
+ - I thought I raised a ballplayer. You’re nothing but a coward and a quitter.
+ - When I first came to Yankee Stadium I used to feel like the ghosts of Babe Ruth and Lou Gehrig were walking around in there.
+ - Thank God for baseball.
+ - I expected him to say, ‘Hang in there’ or something like that. It took me an hour to talk him into giving me another chance!
+ - If you want to know who was better, me or Willie Mays, you have to look at our career stats. And Willie’s bottom line was better.
+ - Not after all the time my dad spent teaching me to switch-hit.
+ - I guess you could say I’m what this country is all about.
+ - Bravery is a complicated thing to describe. You can’t say it’s three feet long and two feet wide and that it weighs four hundred pounds or that it’s colored bright blue or that it sounds like a piano or that it smells like roses. It’s a quality, not a thing.
+ - Butcher boy, damn it, butcher boy.
+ - There are two kinds of people. There are leaders and there are followers. And I’m a follower.
+ - This year I’d rather lead the league in home runs, runs batted in and hitting.
+ - If I were playing today I’d do what Joe DiMaggio said. I’d go knock on the door at Yankee Stadium and when George Steinbrenner answered I’d say, ‘Howdy, pardner.’
+ - They should have come out of the dugout on tippy-toes, holding hands and singing.
+ - To play 18 years in Yankee Stadium is the best thing that could ever happen to a ballplayer.
+ - It gave me a second chance. I’d like everybody to have a second chance if they need it, so I’m trying to let people know how important it is to become an organ donor.
+ - As far as he knew, I was dying.
+ - I had it all and blew it.
+ - I can’t play any more. I can’t hit the ball when I need to. I can’t steal second when I need to. I can’t go from first to third when I need to. I can’t score from second when I need to. I have to quit.
+ - Heroes are people who are all good with no bad in them. That’s the way I always saw Joe DiMaggio. He was beyond question one of the greatest players of the century.
+ - Hitting the ball was easy. Running around the bases was the tough part.
+ - His fielding leaves you wondering. Then he steps up to hit and all doubts start to fade.
+ - Roger Maris was as good a man and as good a ballplayer as there ever was.
+ - I never saw him fight. I never saw Billy fight.
+ - The hardest thing to do in sports, I think, is to hit a home run.
+ - Casey wanted us to stay loose. That didn’t mean clowning around. He just meant we should be confident and relaxed. We shouldn’t feel that one strikeout was going to end the season for us.
+ - I’ll play baseball for the Army or fight for it, whatever they want me to do.
+ - Casey didn’t easily forgive a guy who got doubled up on a hit-and-run play. He didn’t see any reason why the runner couldn’t take a quick glance back toward the plate to make sure the ball was hit safely.
+ - We know you can bunt, Mick. You’re not down here to bunt. You’re here to get some hits and get your swing back.
+ - It looked like Roy Rogers rode through on Trigger, and Trigger kicked the guy in the face.
+ - I always loved the game, but when my legs weren’t hurting it was a lot easier to love.
+ - I don’t care what the situation was, how high the stakes were – the bases could be loaded and the pennant riding on every pitch, it never bothered Whitey. He pitched his game. Cool. Craft. Nerves of steel.
+ - The biggest game I ever played in was probably Don Larsen’s perfect game.
+ - Well, baseball was my whole life. Nothing’s ever been as fun as baseball.
+ - I leaned on him for support when I got out of the cab, and he just crumpled to the ground. That’s how we found out.
+ - Those people don’t know how tough that really was.
+ - My dad taught me to switch-hit. He and my grandfather, who was left-handed, pitched to me every day after school in the back yard. I batted lefty against my dad and righty against my granddad.
+ - I’ve often wondered how a man who knew he was going to die could stand here and say he was the luckiest man on the face of the earth, but now I guess I know how he felt.
+ - If the World Series was on the line and I could pick one pitcher to pitch the game, I’d choose Whitey Ford every time.
+ - When I’m hitting, I’d play for nothing. When I’m not, any kind of money I receive makes me feel as if I’m stealing.
+ - Hey Mantle, you win. You’re the worst.
+ - Don’t do as I did. I’m living proof of how not to live.
+ - Billy copied Casey to a ‘T.’
+ - I wanted to throw my glass at the TV.
+ - Hey Yog, what time is it? You mean right now?
+ - I’ve heard about you. I’ve heard about you, too.
+ - No man in the history of baseball had as much power as. No man.
+ - It’s what you’re worth.
+ - If I send the ball home, I know what will happen to it. My twin brothers will take it out on the lot, like any 20-cent rocket.
+ - The only thing I can do is play baseball. I have to play ball. It’s the only thing I know.
+ - There were things that would irritate Casey, but trying too hard or getting mad at sitting on the bench weren’t among them.
+ - He said to play louder. He can’t hear you.
+ - I hated to bat against Drysdale. After he hit you he’d come around, look at the bruise on your arm and say, ‘Do you want me to sign it?’
+ - You never have to wait long, or look far, to be reminded of how thin the line is between being a hero or a goat.
+ - A body came flying out and landed at my feet. At first I thought it was Billy so I picked him up. But when I saw it wasn’t I dropped him back down.
+ - It was the single greatest feat I ever saw.
+ - Because the players knew that if Billy asked them to jump off a roof, he’d jump off with them.
+ - Somebody once asked me if I ever went up to the plate trying to hit a home run. I said, ‘Sure, every time.’
+ - He foresaw the platooning that managers like Casey Stengel used years before it happened. He told me I had to be a switch-hitter if I was going to play.
+ - In 1960 when Pittsburgh beat us in the World Series, we outscored them 55-27. It was the only time I think the better team lost. I was so disappointed I cried on the plane ride home.
+ - As far as I’m concerned, Aaron is the best ball player of my era. He is to baseball of the last fifteen years what Joe DiMaggio was before him. He’s never received the credit he’s due.
+ - Of course, I didn’t tell you about all the times I said I was going to hit one and it didn’t happen.
+ - I played seven years without ever hitting the ball.
+ - The thing I really liked about Mickey was the way he treated everyone the same.
+ - He can run, steal bases, throw, hit for average, and hit with power like I’ve never seen. Just don’t put him at shortstop.
+ - Sometimes I think if I had the same body and the same natural ability and someone else’s brain, who knows how good a player I might have been.
+ - I never got to see the ’27 Yankees. Everyone says that was the greatest team ever. But I think it would’ve been a great series if we’d have had the chance to play them.
+ - You might as well go in and start getting dressed. I’m going to hit his first pitch for a home run.
+ - The best hitter I ever saw was Ted Williams.
+ - All I have is natural ability.
+ - When I hit a home run I usually didn’t care where it went. So long as it was a home run was all that mattered.
+ - After they remodeled Yankee Stadium I didn’t feel that the ghosts were there anymore. It just wasn’t the same.
+ - My views are just about the same as Casey’s.
+ - I think the best all-round baseball player ever was Joe DiMaggio.
+ - The biggest thrill I ever had was in 1969, when they held day at Yankee Stadium.
+ - The best team I ever saw, and I really mean this, was the ’61 Yankees.
+ - What did you say, Joe?
+ - At my best I was as good as anyone.
+ - It was all I lived for, to play baseball.
+ - You hit .350 you’re a leader. You hit .250 and you’re not.
+ - I don’t know why, but for some reason I seem to be more popular now than when I was playing.
+ - Before you go, would you sign that case of balls for me?
+ - You don’t have to talk to me about pensions. I won’t be around long enough to collect one.
+ - All the ballparks and the big crowds have a certain mystique. You feel attached, permanently wedded to the sounds that ring out, to the fans chanting your name, even when there are only four or five thousand in the stands on a Wednesday afternoon.
+ - Well, I beat my man. Now it’s up to you to beat yours.
+ - Today’s Little Leaguers, and there are millions of them each year, pick up how to hit and throw and field just by watching games on TV. By the time they’re out of high school, the good ones are almost ready to play professional ball.
+
+98 quotes

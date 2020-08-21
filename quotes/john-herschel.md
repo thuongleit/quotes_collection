@@ -1,0 +1,24 @@
+ - Self-respect is the cornerstone of all virtue.
+ - Geology, in the magnitude and sublimity of the objects of which it treats, undoubtedly ranks, in the scale of the sciences, next to astronomy.
+ - Humans always have fear of an unknown situation – this is normal. The important thing is what we do about it. If fear is permitted to become a paralyzing thing that interferes with proper action, then it is harmful. The best antidote to fear is to know all we can about a situation.
+ - To the natural philosopher, there is no natural object unimportant or trifling. From the least of Nature’s works he may learn the greatest lessons.
+ - The stars are the land-marks of the universe.
+ - No doubt the testimony of natural reason, on whatever exercised, must, of necessity, stop short of those truths which it is the object of revelation to make known; still it places the existence and personal attributes of the Deity on such grounds as to render doubts absurd and atheism ridiculous.
+ - Every student who enters upon a scientific pursuit, especially if at a somewhat advanced period of life, will find not only that he has much to learn, but much also to unlearn.
+ - The novel, in its best form, I regard as one of the most powerful engines of civilization ever invented.
+ - All human discoveries seem to be made only for the purpose of confirming more strongly the truths come from on high, and contained in the sacred writings.
+ - There is a gentle, but perfectly irresistible coercion in a habit of reading well directed, over the whole tenor of a man’s character and conduct, which is not the less effectual because it works insensibly, and because it is really the last thing he dreams of.
+ - The barrier has begun to yield.
+ - What God sends is welcome.
+ - Were I to pray for a taste which should stand me in good stead under every variety of circumstances and be a source of happiness and a cheerfulness to me during life and a shield against its ills, however things might go amiss and the world frown upon me, it would be a taste for reading.
+ - The besetting evil of our age is the temptation to squander and dilute thought on a thousand different lines of inquiry.
+ - There is a pinciple in the heart of music which has yet to be discovered.
+ - Speculations apparently the most unprofitable have almost invariably been those from which the greatest practical applications have emanated.
+ - God knows how ardently I wish I had ten lives.
+ - It can hardly be pressed forcibly enough on the attention of the student of nature, that there is scarcely any natural phenomenon which can be fully and completely explained, in all its circumstances, without a union of several, perhaps of all, the sciences.
+ - Occurrences which according to received theories ought not to happen, are the facts which serve as clues to new discoveries.
+ - Man is constituted as a speculative being; he contemplates the world, and the objects around him, not with a passive indifferent eye, but as a system disposed with order and design.
+ - Johann Wolfgang von Goethe.
+ - A mind which has once imbibed a taste for scientific enquiry, and has learnt the habit of applying its principles readily to the cases which occur, has within itself an inexhaustible source of pure and exciting contemplations.
+
+22 quotes

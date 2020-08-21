@@ -1,0 +1,273 @@
+ - Not everything that is faced can be changed, but nothing can be changed until it is faced.
+ - I can’t believe what you say, because I see what you do.
+ - I love America more than any other country in this world, and, exactly for this reason, I insist on the right to criticize her perpetually.
+ - The paradox of education is precisely this – that as one begins to become conscious one begins to examine the society in which he is being educated.
+ - The most dangerous creation of any society is the man who has nothing to lose.
+ - To be black and conscious in America is to be in a constant state of rage.
+ - Love does not begin and end the way we seem to think it does. Love is a battle, love is a war; love is a growing up.
+ - It is certain, in any case, that ignorance, allied with power, is the most ferocious enemy justice can have.
+ - Those who say it can’t be done are usually interrupted by others doing it.
+ - The role of the artist is exactly the same as the role of the lover. If I love you, I have to make you conscious of the things you don’t see.
+ - Know from whence you came. If you know whence you came, there are absolutely no limitations to where you can go.
+ - It took many years of vomiting up all the filth I’d been taught about myself, and half-believed, before I was able to walk on the earth as though I had a right to be here.
+ - You have to go the way your blood beats. If you don’t live the only life you have, you won’t live some other life, you won’t live any life at all.
+ - Artists are here to disturb the peace.
+ - Children have never been very good at listening to their elders, but they have never failed to imitate them.
+ - I’ve always believed that you can think positive just as well as you can think negative.
+ - The challenge is in the moment; the time is always now.
+ - Freedom is not something that anybody can be given. Freedom is something people take, and people are as free as they want to be.
+ - You think your pain and your heartbreak are unprecedented in the history of the world, but then you read.
+ - I imagine one of the reasons people cling to their hates so stubbornly is because they sense, once hate is gone, they will be forced to deal with pain.
+ - A civilization is not destroyed by wicked people; it is not necessary that people be wicked but only that they be spineless.
+ - We are responsible for the world in which we find ourselves, if only because we are the only sentient force which can change it.
+ - You have to decide who you are and force the world to deal with you, not with its idea of you.
+ - Love takes off masks that we fear we cannot live without and know we cannot live within.
+ - I can’t be a pessimist, because I am alive.
+ - Anyone who has ever struggled with poverty knows how extremely expensive it is to be poor.
+ - Recognizing a problem doesn’t always bring a solution, but until we recognize that problem, there can be no solution.
+ - You cannot fix what you will not face.
+ - Talent is insignificant. I know a lot of talented ruins. Beyond talent lie all the usual words: discipline, love, luck, but, most of all, endurance.
+ - People can cry much easier than they can change.
+ - For these are all our children, we will all profit by or pay for whatthey become.
+ - If I am not what you say I am, then you are not who you think you are.
+ - American history is longer, larger, more various, more beautiful, and more terrible than anything anyone has ever said about it.
+ - The great force of history comes from the fact that we carry it within us, are unconsciously controlled by it in many ways, and history is literally present in all that we do.
+ - Writing is a political instrument.
+ - The purpose of art is to lay bare the questions that have been hidden by the answers.
+ - I am what time, circumstance, history, have made of me, certainly, but I am also, much more than that. So are we all.
+ - We do not trust educated people and rarely, alas, produce them, for we do not trust the independence of mind which alone makes a genuine education possible.
+ - Precisely at the point when you begin to develop a conscience you must find yourself at war with your society.
+ - In order to have a conversation with someone you must reveal yourself.
+ - If we do not now dare everything, the fulfillment of that prophecy, re-created from the Bible in song by a slave, is upon us: God gave Noah the rainbow sign. No more water, fire next time.
+ - The victim who is able to articulate the situation of the victim has ceased to be a victim: he or she has become a threat.
+ - Hatred is always self hatred, and there is something suicidal about it.
+ - You want to write a sentence as clean as a bone. That is the goal.
+ - Trust life, and it will teach you, in joy and sorrow, all you need to know.
+ - People who shut their eyes to reality simply invite their own destruction, and anyone who insists on remaining in a state on innocence long after that innocence is dead turns himself into a monster.
+ - Love is like the lightning, and your maturity is signaled by the extent to which you can accept the dangers and the power and the beauty of love.
+ - Yr crown has been bought and paid for. All you have to do is put it on yr head.
+ - The moment we break faith with one another, the sea engulfs us and the light goes out.
+ - To be a Negro in this country and to be relatively conscious is to be in a rage almost all the time.
+ - The world is before you and you need not take it or leave it as it was when you came in.
+ - What passes for identity in America is a series of myths about one’s heroic ancestors.
+ - The sea rises, the light fails, lovers cling to each other, and children cling to us. The moment we cease to hold each other, the moment we break faith with one another, the sea engulfs us and the light goes out.
+ - You don’t need numbers; you need passion, and this is proven by the history of the world!
+ - The wretched of the earth do not decide to become extinct, they resolve, on the contrary, to multiply: life is their weapon against life, life is all that they have.
+ - Experience, which destroys innocence, also leads one back to it.
+ - If you think too far ahead, if you even try to think too far ahead, you’ll never make it.
+ - People don’t have any mercy. They tear you limb from limb, in the name of love. Then, when you’re dead, when they’ve killed you by what they made you go through, they say you didn’t have any character. They weep big, bitter tears – not for you. For themselves, because they’ve lost their toy.
+ - If you are going to be a writer there is nothing I can say to stop you; if you’re not going to be a writer nothing I can say will help you. What you really need at the beginning is somebody to let you know that the effort is real.
+ - You’ve got to tell the world how to treat you. If the world tells you how you are going to be treated, you are in trouble.
+ - A liberal: someone who thinks he knows more about your experience than you do.
+ - Any real change implies the breakup of the world as one has always known it, the loss of all that gave one an identity, the end of safety.
+ - To ask questions of the universe, and then learn to live with those questions, is the way he achieves his own identity.
+ - The American idea of racial progress is measured by how fast I become white.
+ - Passion is not friendly. It is arrogant, superbly contemptuous of all that is not itself, and, as they very definition of passion implies the impulse to freedom, it has a might intimidiating power. It contains a challenge. It contains an unspeakable hope.
+ - But, when the chips are down, its better to be furious with someone you love, or frightened for someone you love, than be put through the merciless horror of being ashamed of someone you love.
+ - The real victim of bigotry is the white man who hides his weakness under his myth of superiority.
+ - God be thanked for books! They are the voices of the distant and the dead.
+ - There is never time in the future in which we will work out our salvation. The challenge is in the moment; the time is always now.
+ - For, while the tale of how we suffer, and how we are delighted, and how we may triumph is never new, it always must be heard. There isn’t any other tale to tell, it’s the only light we’ve got in all this darkness.
+ - It demands great spiritual resilience not to hate the hater whose foot is on your neck, and an even greater miracle of perception and charity not to teach your child to hate.
+ - Perhaps home is not a place but simply an irrevocable condition.
+ - The place in which I’ll fit will not exist until I make it.
+ - An identity is questioned only when it is menaced, as when the mighty begin to fall, or when the wretched begin to rise, or when the stranger enters the gates, never, thereafter, to be a stranger.
+ - The impossible is the least that one can demand.
+ - People can’t, unhappily, invent their mooring posts, their lovers and their friends, anymore than they can invent their parents. Life gives these and also takes them away and the great difficulty is to say Yes to life.
+ - The hope of the world lies in what one demands, not of others, but of oneself.
+ - Neither love nor terror makes one blind: indifference makes one blind.
+ - When a man asks himself what is meant by action he proves that he isn’t a man of action. Action is a lack of balance. In order to act you must be somewhat insane. A reasonably sensible man is satisfied with thinking.
+ - It is very nearly impossible to become an educated person in a country so distrustful of the independent mind.
+ - I will no longer take anyone’s word for my experience.
+ - You know, it’s not the world that was my oppressor, because what the world does to you, if the world does it to you long enough and effectively enough, you begin to do to yourself.
+ - I prefer sinners and madmen, who can learn, who can change, who can teach-or people like myself, if I may say so, who are not afraid to eat a lobster alone as they take on their shoulders the monumental weight of thirty years.
+ - People who shut their eyes to reality simply invite their own destruction.
+ - There was no room in God’s army for the coward heart, no crown awaiting him who put mother or father, sister or brother, sweetheart or friend above God’s will. Let the church cry amen to this!
+ - An identity would seem to be arrived at by the way in which the person faces and uses his experience.
+ - The betrayal of a belief is not the same thing as ceasing to believe. If this were not so there would be no moral standards in the world at all.
+ - You don’t have a home until you leave it and then, when you have left it, you never can go back.
+ - Remember, to hate, to be violent, is demeaning. It means you’re afraid of the other side of the coin – to love and be loved.
+ - And love will simply have no choice but to go into battle with space and time, and furthermore, to win.
+ - James Joyce is right about history being a nightmare – but it may be that nightmare from which no one can awaken. People are trapped in history and history in trapped in them.
+ - People are trapped in history and history is trapped in them.
+ - Be careful what you set your heart upon – for it will surely be yours.
+ - Nobody is more dangerous than he who imagines himself pure in heart; for his purity, by definition, is unassailable.
+ - All art is a kind of confession, more or less oblique. All artists, if they are to survive, are forced, at last, to tell the whole story; to vomit the anguish up.
+ - One day, to everyone’s astonishment, someone drops a match in the powder keg and everything blows up.
+ - The price one pays for pursuing any profession, or calling, is an intimate knowledge of its ugly side.
+ - Nothing is more desirable than to be released from an affliction, but nothing is more frightening than to be divested of a crutch.
+ - The world tends to trap you in the role you play and it is always extremely hard to maintain a watchful, mocking distance between oneself as one appears to be and oneself as one actually is.
+ - People pay for what they do, and still more for what they have allowed themselves to become. And they pay for it very simply; by the lives they lead.
+ - It is astonishing the lengths to which a person, or a people, will go in order to avoid a truthful mirror.
+ - When you’re writing, you’re trying to find out something which you don’t know. The whole language of writing for me is finding out what you don’t want to know, what you don’t want to find out. But something forces you to anyway.
+ - To be sensual, I think, is to respect and rejoice in the force of life, of life itself, and to be present in all that one does, from the effort of loving to the making of bread.
+ - When human rights are abused on a grand scale, the broth of purity boils and feeds the rebellion of a new order.
+ - If the concept of God has any validity or any use, it can only be to make us larger, freer, and more loving. If God cannot do this, then it is time we got rid of Him.
+ - The South is very beautiful but its beauty makes one sad because the lives that people live here, and have lived here, are so ugly.
+ - The interior life is a real life, and the intangible dreams of people have a tangible effect on the world.
+ - To defend oneself against a fear is simply to insure that one will, one day, be conquered by it; fears must be faced.
+ - Our dehumanization of the Negro then is indivisible from our dehumanization of ourselves; the loss of our own identity is the price we pay for our annulment of his.
+ - Whatever you describe to another person is also a revelation of who you are and who you think you are. You can not describe anything without betraying your point of view, your aspirations, your fears, your hopes. Everything.
+ - Because I was raised in a Christian culture I never considered myself to be a totally free human being.
+ - We can make America what America must become.
+ - Being in the pulpit, was like being in the theatre; I was behind the scenes and knew how the illusion worked.
+ - Nakedness has no color: this can come as news only to those who have never covered, or been covered by, another naked human being.
+ - Everybody’s journey is individual. If you fall in love with a boy, you fall in love with a boy. The fact that many Americans consider it a disease says more about them than it does about homosexuality.
+ - Fires can’t be made with dead embers, nor can enthusiasm be stirred by spiritless men. Enthusiasm in our daily work lightens effort and turns even labor into pleasant tasks.
+ - Love him and let him love you. Do you think anything else under heaven really matters?
+ - It is a very rare man who does not victimize the helpless.
+ - Everything in life depends on how that life accepts its limits.
+ - If the relationship of father to son could really be reduced to biology, the whole earth would blaze with the glory of fathers and sons.
+ - Pessimists are the people who have no hope for themselves or for others. Pessimists are also people who think the human race is beneath their notice, that they’re better than other human beings.
+ - To act is to be committed, and to be committed is to be in danger.
+ - You write in order to change the world.
+ - The questions which one asks oneself begin, at least, to illuminate the world, and become one’s key to the experience of others.
+ - Not only was I not born to be a slave; I was not born to hope to become the equal of the slave master.
+ - Society is held together by our need; we bind it together with legend, myth, coercion, fearing that without it we will be hurled into that void, within which, like the earth before the Word was spoken, the foundations of society are hidden.
+ - The power of the white world is threatened whenever a black man refuses to accept the white world’s definitions.
+ - Societies never know it, but the war of an artist with his society is a lover’s war, and he does, at his best, what lovers do, which is to reveal the beloved to himself and, with that revelation, to make freedom real.
+ - One can only face in others what one can face in oneself.
+ - History is not a procession of illustrious people. It’s about what happens to a people. Millions of anonymous people is what history is about.
+ - If you’re afraid to die, you will not be able to live.
+ - People who believe that they are strong-willed and the masters of their destiny can only continue to believe this by becoming specialists in self-deception.
+ - To be with God is really to be involved in some enormous, overwhelming desire, and joy, and power which you cannot control, which controls you.
+ - Whose little boy are you?
+ - I think white gay people feel cheated because they were born, in principle, in a society in which they were supposed to be safe. The anomaly of their sexuality puts them in danger, unexpectedly.
+ - I’m beginning to think that maybe everything that happens makes sense. Like, if it didn’t make sense, how could it happen?
+ - Every legend, moreover, contains its residuum of truth, and the root function of language is to control the universe by describing it.
+ - Man cannot live by profit alone.
+ - It was as though we were a picture, trapped in time: this had been happening for hundreds of years, people sitting in a room, waiting for dinner, and listening to the blues.
+ - The past is what makes the present coherent, and the past will remain horrible for exactly as long as we refuse to assess it honestly.
+ - Color is not a human or a personal reality it is a political reality.
+ - I really do believe in the New Jerusalem. I really do believe that we can all become better than we are. I know we can. But the price is enormous and people are not yet willing to pay it.
+ - It is a terrible, an inexorable law that one cannot deny the humanity of another without diminishing one’s own: in the face of one’s victim, one sees oneself.
+ - Life is more important than art; that’s what makes art important.
+ - Whoever debases others is debasing himself.
+ - Education is indoctrination if you’re white – subjugation if you’re black.
+ - I conceive of God, in fact, as a means of liberation and not a means to control others.
+ - I met a lot of people in Europe. I even encountered myself.
+ - Sentimentality, the ostentatious parading of excessive and spurious emotion, is the mark of dishonesty, the inability to feel.
+ - Whoever is born in New York is ill-equipped to deal with any other city: all other cities seem, at best, a mistake, and, at worst, a fraud. No other city is so spitefully incoherent.
+ - But the relationship of morality and power is a very subtle one. Because ultimately power without morality is no longer power.
+ - I am aware that no man is a villain in his own eyes.
+ - Rage cannot be hidden, it can only be dissembled. This dissembling deludes the thoughtless, and strengthens rage and adds, to rage, contempt.
+ - The white man discovered the Cross by way of the Bible, but the black man discovered the Bible by way of the Cross.
+ - Money, it turned out, was exactly like sex, you thought of nothing else if you didn’t have it and thought of other things if you did.
+ - Please try to remember that what they believe, as well as what they do and cause you to endure does not testify to your inferiority but to their inhumanity.
+ - After my best friend jumped off the bridge, I knew that I was next. So-Paris. With forty dollars and a one-way ticket.
+ - People who treat other people as less than human must not be surprised when the bread they have cast on the waters comes floating back to them, poisoned.
+ - When one begins to live by habit and by quotation, one has begun to stop living.
+ - Then I buckled up my shoes, and I started.
+ - To accept one’s past – one’s history – is not the same thing as drowning in it; it is learning how to use it. An invented past can never be used; it cracks and crumbles under the pressures of life like clay in a season of drought.
+ - No people come into possession of a culture without having paid a heavy price for it.
+ - It is perfectly possible to be enamoured of Paris while remaining totally indifferent or even hostile to the French.
+ - Life is tragic simply because the earth turns and the sun inexorably rises and sets, and one day, for each of us, the sun will go down for the last, last time.
+ - A ghetto can be improved in one way only: out of existence.
+ - The question of sexual dominance can exist only in the nightmare of that soul which has armed itself, totally, against the possibility of the changing motion of conquest and surrender, which is love.
+ - People can cry much easier than they can change, a rule of psychology people like me picked up as kids on the street.
+ - A society must assume that it is stable, but the artist must know, and he must let us know, that there is nothing stable under heaven.
+ - Do I really want to be integrated into a burning house?
+ - He may be a very nice man. But I haven’t got the time to figure that out. All I know is, he’s got a uniform and a gun and I have to relate to him that way. That’s the only way to relate to him because one of us may have to die.
+ - If the word integration means anything, this is what it means that we, with love, shall force our brothers to see themselves as they are, to cease fleeing from reality and begin to change it.
+ - If one cannot risk oneself, then one is simply incapable of giving. And, after all, one can give freedom only be setting someone free.
+ - What passes for identity in America is a series of myths about one’s heroic ancestors. It’s astounding to me, for example, that so many people really seem to believe that the country was founded by a band of heroes who wanted to be free.
+ - Confusion is a luxury which only the very, very young can possibly afford and you are not that young anymore.
+ - One is responsible to life: It is the small beacon in that terrifying darkness from which we come and to which we shall return.
+ - There are few things more dreadful than dealing with a man who knows he is going under, in his own eyes, and in the eyes of others. Nothing can help that man. What is left of that man flees from what is left of human attention.
+ - Negro servants have been smuggling odds and ends out of white homes for generations, and white people have been delighted to have them do it, because it has assuaged a dim guilt and testified to the intrinsic superiority of white people.
+ - There are so many ways of being despicable it quite makes one’s head spin. But the way to be really despicable is to be contemptuous of other people’s pain.
+ - Allegiance, after all, has to work two ways; and one can grow weary of an allegiance which is not reciprocal.
+ - For nothing is more unbearable, once one has it, than freedom.
+ - All over Harlem, Negro boys and girls are growing into stunted maturity, trying desperately to find a place to stand; and the wonder is not that so many are ruined but that so many survive.
+ - Drive to the heart of every answer and expose the question the answer hides.
+ - All art is a kind of confession.
+ - I was guilty and irritated and full of love and pain. I wanted to kick him and I wanted to take him in my arms.
+ - Voyagers discover that the world can never be larger than the person that is in the world; but it is impossible to foresee this, it is impossible to be warned.
+ - I want to be an honest man and a good writer.
+ - After departure, only invisible things are left, perhaps the life of the world is held together by invisible chains of memory and loss and love. So many things, so many people, depart! And we can only repossess them in our minds.
+ - Rage can only with difficulty, and never entirely, be brought under the domination of the intelligence, and therefore is not susceptible to any arguments whatsoever.
+ - The establishment of democracy on the American continent was scarcely as radical a break with the past as was the necessity, which Americans faced, of broadening this concept to include black men.
+ - Those kids aren’t dumb. But the people who run these schools want to make sure they don’t get smart: they are really teaching the kids to be slaves.
+ - The noblest spirit is most strongly attracted by the love of glory.
+ - A child cannot be taught by anyone who despises him, and a child cannot afford to be fooled.
+ - People who cling to their illusions find it difficult, if not impossible, to learn anything worth learning: a people under the necessity of creating themselves must examine everything, and soak up learning the way the roots of a tree soak up water.
+ - People are too various to be treated so lightly. I am too various to be trusted.
+ - There are people in the world for whom “coming along” is a perpetual process, people who are destined never to arrive.
+ - Any writer, I suppose, feels that the world into which he was born is nothing less than a conspiracy against the cultivation of his talent.
+ - The determination to outwit one’s situation means that one has no models, only object lessons.
+ - It was books that taught me that the things that tormented me most were the very things that connected me with all the people who were alive, or who had ever been alive.
+ - No one can possibly know what is about to happen: it is happening, each time, for the first time, for the only time.
+ - A man’s balance depends on the weight he carries between his legs.
+ - The greatest significance of the present student generation is that it is through them that the point of view of the subjugated is finally and inexorably being expressed.
+ - At bottom, to be colored means that one has been caught in some utterly unbelievable cosmic joke, a joke so hideous and in such bad taste that it defeats all categories and definitions.
+ - When the South has trouble with its Negroes when the Negroes refuse to remain in their “place” it blames “outside agitators” and “Northern interference.” When the nation has trouble with the Northern Negro, it blames the Kremlin.
+ - It is a great shock at the age of five or six to find that in a world of Gary Coopers you are the Indian.
+ - If you really want to know something about solitude, become famous.
+ - Everything depends on how relentlessly one forces from experience the last drop, sweet or bitter, it can possibly give.
+ - Freaks are called freaks and are treated as they are treated – in the main, abominably – because they are human beings who cause to echo, deep within us, our most profound terrors and desires.
+ - All of Africa will be free before we can get a lousy cup of coffee.
+ - I don’t know, now, when I first looked at Hella and found her stale, found her body uninteresting, her presence grating. It seemed to happen all at once – I suppose that only means that it had been happening for a long time.
+ - We take our shape, it is true, within and against that cage of reality bequeathed us at our birth; and yet it is precisely through our dependence on this reality that we are most endlessly betrayed.
+ - There are too many things we do not wish to know about ourselves.
+ - Experience is a private, very largely speechless affair.
+ - There are few things under heaven more unnerving than the silent, accumulating contempt and hatred of a people.
+ - There is a ‘sanctity’ involved with bringing a child into this world: it is better than bombing one out of it.
+ - The only thing that white people have that black people need, or should want, is power-and no one holds power forever.
+ - Christianity has operated with an unmitigated arrogance and cruelty – necessarily, since a religion ordinarily imposes on those who have discovered the true faith the spiritual duty of liberating the infidels.
+ - There is no way of conveying to the corpse the reasons you have made him one – you have the corpse, and you are, thereafter, at themercy of a fact which missed the truth, which means that the corpse has you.
+ - The relatively conscious whites and the relatively conscious blacks, who must, like lovers, insist on, or create, the consciousness of the others in order to end the racial nightmare and acheive our country.
+ - Great art can only be created out of love.
+ - The future is like heaven-everyone exalts it but no one wants to go there now.
+ - The writer’s only real task: to recreate out of the disorder of life that order which is art.
+ - Everyone wishes to be loved, but in the event, nearly no one can bear it. Everyone desires love but also finds it impossible to believe that he deserves it.
+ - Whatever white people do not know about Negroes reveals, precisely and inexorably, what they do not know about themselves.
+ - You took the best, so why not take the rest?
+ - The American ideal is, after all, that everyone should be as much alike as possible.
+ - The making of an American begins at the point where he himself rejects all other ties, any other history, and himself adopts the vesture of his adopted land.
+ - At four o’clock in the morning, when everyone is drunk enough, then extraordinary things can happen.
+ - It is said that the camera cannot lie, but rarely do we allow it to do anything else, since the camera sees what you point it at: the camera sees what you want it to see.
+ - This is the charged, the dangerous moment, when everything must be re-examined, must be made new, when nothing at all can be taken for granted.
+ - It is impossible to pretend that you are not heir to, and therefore, however inadequately or unwillingly, responsible to, and for, the time and place that give you life – without becoming, at very best, a dangerously disoriented human being.
+ - Unless a writer is extremely old when he dies, in which case he has probably become a neglected institution, his death must always seem untimely.
+ - The responsibility of a writer is to excavate the experience of the people who produced him.
+ - If all you want to do is make money, the very last thing you need is imagination.
+ - And I was yet aware that this was only a moment, that the world waited outside, as hungry as a tiger, and that trouble stretched above us, longer than the sky.
+ - The occurrence of an event is not the same thing as knowing what it is that one has lived through.
+ - You don’t realize that you’re intelligent until it gets you into trouble.
+ - There is something terribly radical about believing that one’s own experience and images are important enough to speak about, much less to write about and to perform.
+ - The face of a lover is an unknown, precisely because it is invested with so much of oneself. It is a mystery, containing, like all mysteries, the possibility of torment.
+ - It is dangerous to be an American Negro male. America has never wanted its Negroes to be men, and does not, generally, treat them as men. It treats them as mascots, pets, or things.
+ - Employment is my right my destiny.
+ - The male cannot bear very much humiliation; and he really cannot bear it, it obliterates him.
+ - I began plotting novels at about the time I learned to read. The story of my childhood is the usual bleak fantasy, and we can dismiss it with the restrained observation that I certainly would not consider living it again.
+ - The writer’s greed is appalling. He wants, or seems to want, everything and practically everybody, in another sense, and at the same time, he needs no one at all.
+ - Hatred destroys the person who hates.
+ - An American Negro, however deep his sympathies, or however bright his rage, ceases to be simply a black man when he faces a black man from Africa.
+ - There is a fearful splendor in absolute desolation.
+ - I often wonder what I’d do if there weren’t any books in the world.
+ - I think Americans are terrified of feeling anything. I never met a people more infantile in my life.
+ - It is astonishing that in a country so devoted to the individual, so many people should be afraid to speak.
+ - When the book comes out it may hurt you – but in order for me to do it, it had to hurt me first. I can only tell you about yourself as much as I can face about myself.
+ - It is only because the world looks on his talent with such a frightening indifference that the artist is compelled to make his talent important.
+ - This world is white no longer, and it will never be white again.
+ - If you’re treated a certain way you become a certain kind of person. If certain things are described to you as being real they’re real for you whether they’re real or not.
+ - Heavenly witnesses are a tricky lot, to be used by whoever is closest to Heaven at the time. And legend and theology, which are designed to sanctify our fears, crimes, and aspirations, also reveal them for what they are.
+ - The reason people think it’s important to be white is that they think it’s important not to be black.
+ - A real writer is always shifting and changing and searching.
+ - We have all had the experience of finding that our reactions and perhaps even our deeds have denied beliefs we thought were ours.
+ - All I know about music is that not many people ever really hear it.
+ - It is hard for anyone under twenty to realise that death has already assigned them a number, which is going to come up one day.
+ - A writer has to take all the risks of putting down what he sees.
+ - The artistic image is not intended to represent the thing itself, but, rather, the reality of the force the thing contains.
+ - All racists are irresponsible.
+ - I am certainly convinced that it is one of the greatest impulses of mankind to arrive at something higher than a natural state.
+ - Most of us are about as eager to be changed as we were to be born, and go through our changes in a similar state of shock.
+ - Confronted with the impossibility of remaining faithful to one’s beliefs, and the equal impossibility of becoming free of them, one can be driven to the most inhuman excesses.
+ - Freedom lurked around us and I understood, at last, that he could help us be free if we would listen, that he would never be free until we did.
+ - The primary distinction of the artist is that he must actively cultivate that state which most men, necessarily, must avoid: the state of being alone.
+ - She was twenty and had come to realize that, though she had a voice, she wasn’t a singer; that to endure and embrace the life of a singer demands a whole lot more than a voice.
+ - When you’re writing you’re trying to find out something which you don’t know.
+ - The young think that failure is the Siberian end of the line, banishment from all the living, and tend to do what I then did – which was to hide.
+ - We cannot discuss the state of our minorities until we first have a sense of what we are, who we are, what our goals are, and what we take life to be.
+
+271 quotes

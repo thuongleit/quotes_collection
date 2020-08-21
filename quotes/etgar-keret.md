@@ -1,0 +1,95 @@
+ - Translators are like ninjas. If you notice them, they’re no good.
+ - When I was a kid, I wanted to make my parents happy. I’d always say to them, “What do you want me to do? Do sports? Be rich? Be funny?” My mother would say, “Whatever we want from you, you already gave us – we wanted you to be alive, and you made it.”
+ - I think tone gives birth to the story.
+ - If someone gives you a piece of advice that sounds right and feels right, use it. If someone gives you a piece of advice that sounds right and feels wrong, don’t waste so much as a single second on it. It may be fine for someone else, but not for you.
+ - Sometimes the stories are smarter than me, and suddenly these things start to make sense.
+ - The reason I write is that I’m not in dialogue with my emotions; writing puts me in touch with myself.
+ - According to Gur’s theory of boredom, everything that happens in the world today is because of boredom: love, war, inventions, fake fireplaces – ninety-five percent of all that is pure boredom.
+ - I think that, in Hebrew, it’s like the language creates a more unique and specific universe even before the story.
+ - My stories are very compact. I want them to say the most complex things in the simplest way.
+ - In America, where writers are preoccupied with the craft of writing, I always try to introduce this concept of the badly written good story. Turning the hierarchy around and putting passion on top and not craft, because when you just focus on craft, you can write something that is very sterile.
+ - Maybe in the general scheme of things he couldn’t find any meaning in life, but on a smaller scale it was okay. Not always, but a lot of the time.
+ - Often in writing programs, articulation and clarity are more important than what you actually say.
+ - During the war, there were people wishing me death, wishing my son death, wishing my wife death in very graphic ways. In the past, I would go overseas and I would say, “Israel is like my family: we disagree, but we’re all brothers.” I can’t say that anymore, because life proves me wrong.
+ - You’ll never know what’s happening inside the heads of other people.
+ - My father – I once asked him what was his greatest achievement. He said his greatest achievement was that he fought in five wars in the infantry, always on the front line, and never hurt anybody.
+ - Etgar means “challenge.” And my family name is Keret, which means “urban.” So my name is “urban challenge.” My joke is, it’s a good description of a birth but a strange name for a human being.
+ - As the son of Holocaust survivors, this is life – you’re put in a corner, and you have to get out. I believe that you can always get out.
+ - Being published in Arabic is a strong and consistent wish I have. I live in the Middle East and want to be in some sort of an unpragmatic dialogue with my neighbors.
+ - If we’re a family and your brother wishes you death, it’s not a very happy family.
+ - For three months, a person sits and looks at you, imagining a kiss.
+ - I often give this metaphor where I say that writing short fiction is like surfing, while writing a novel is like navigating with your car. So when you navigate with your car, you want to get somewhere. When you surf, you don’t want to get somewhere, you just don’t want to fall off your board.
+ - In the last war, people became vocal from the right-wing point of view: if you’re liberal, then you’re a traitor.
+ - For my mother, having a family was the most important thing in her life. In the Second World War, it was a challenge – surviving physically and mentally and finding somebody who you loved and who was willing to be with you.
+ - Being ambivalent doesn’t mean that you’re a relevatist, that anything goes; it just means that you show the complexity of life. Life is always complex.
+ - Collaborating with your wife is amazing because you are doing something together with a person you truly love and know and discover things about her in that process which you have never had discovered on other circumstances.
+ - I see creative-writing classes as some sort of AA meeting. It is more of a support group for people who write than an actual course in which you learn writing skills. This support group is extremely important because there is something very lonely about writing.
+ - There are two kinds of people, those who like to sleep next to the wall, and those who like to sleep next to the people who push them off the bed.
+ - The one who swallows cactuses with spines should not complain about hemorrhoids.
+ - I usually start writing stories from tone and not from content – kind of like people who create music and invent the lyrics later on.
+ - Life is one heck of an invention. It is better than the iPhone 4S and Coke Zero combined.
+ - His whole body was completely still, except the wings, which were still fluttering a little, like when someone dies. That’s when he finally understood that of all the things the angel had told him, nothing was true. That he wasn’t even an angel, just a liar with wings.
+ - I’m not saying that I don’t experience people in life as evil, but writing is not a place of alienation; writing is the place where we can try to be human.
+ - The fact is that everything I have in my pockets is carefully chosen so I’ll always be prepared. Everything is there so I can be at an advantage at the moment of truth. Actually, that’s not accurate. Everything’s there so I won’t be at a disadvantage at the moment of truth.
+ - If you scare somebody enough, they stop being rational.
+ - It’s kind of a reflex for me to ignore my own wishes and think about other people first.
+ - I was first introduced to Kafka’s writing during my compulsory army-service basic training. During that period, Kafka’s fiction felt hyperrealistic.
+ - Sometimes, when you are in a really constrained situation, it makes you more focused about what you want to say and where you’re heading. The most beautiful love poems that were ever written are sonnets, composed in a very constraining form.
+ - Most of the Jewish writer friends I have are American, and I feel closer to them because they’re always obsessed with one issue – identity: what does it mean to be an American Jew?
+ - I think when you write, you should call it a “writing spree.” I don’t write every day, and I don’t write regularly.
+ - When my books were translated, it was always about the characters, because the unique language aspect was lost in translation.
+ - Apparently, I’m very, very popular in jails. They often ask me to come and speak.
+ - I never know the endings when I write. It’s a turnoff when you know the ending. You lose much of your incentive to write when you already know. It’s like seeing a movie a second time.
+ - My mother, for example, told the German officer not to kill her. She’d make it worth his while. And then, when they were doing it, she pulled a knife out of her belt and sliced open his chest, just like she used to open chicken breasts to stuff with rice for the Sabbath meal.
+ - All my writing-life people kept telling me that I should stop writing short stories and start writing novels: my agent, my Israeli publisher, my foreign ones, my bank manager – they all felt and keep feeling that I’m doing something wrong here.
+ - I really believe hatred is not a primal emotion, in that you can’t find it in nature. It’s basically some kind of distortion of fear.
+ - When you work on a graphic novel or a film with people you’ve been together through a lot and you’ve exposed your secrets and weaker sides to each other.
+ - I think there are some artists whose works are misanthropic.
+ - When I say a spoken Hebrew sentence, half of it is like the King James Bible and half of it is a hip-hop lyric. It has a roller-coaster effect.
+ - I used to feel that if I say something’s wrong, I have to say how it could be made right. But what I learned from Kurt Vonnegut was that I could write stories that say I may not have a solution, but this is wrong – that’s good enough.
+ - I like smoking pot, but I’m not the kind of guy who smokes every day.
+ - There were lots of lies along the way in life. Lies without arms, lies that were ill, lies that did harm, lies that could kill. Lies on foot, or behind the wheel, black-tie lies, and lies that could steal.
+ - What you experience in the army, aged 18 to 21, is what you take through all your life. You cross invisible lines: you shoot someone, get shot, break into people’s houses. It’s naive to think you won’t carry anything into your life.
+ - Hebrew is this unique thing that you cannot translate to any other language. It has to do with its history.
+ - Writing is a way of living other lives. It is a way of expanding your life. It’s not actually living a different life, it just means that you’re hungry for life. There are so many things you want to do.
+ - My first and biggest love was always fiction writing. But it is a very lonely pastime.
+ - You don’t need to use the language of God to ask where the restrooms are.
+ - Life keeps being a beautiful and frustrating experience.
+ - In Israel, the role of the writer is dictated by the language in which you write. Writers see themselves as cultural prophets.
+ - I think that, in Israel, the greatest fear that people have, and I have it, too, is fear of genocide.
+ - This idea where, in this safe haven for Jews, Jews will threaten to kill other Jews, it wasn’t in the brochure.
+ - Even as a very young man, I knew that my family is like a plant. Uproot it, and it will wilt. Pluck away at it, and it will die. But leave it to thrive in the soil, untouched, and it will weather both gods and winds. It is born with the soil, and it will live so long as the soil shall live.
+ - In the army you feel violated – there’s no private space. Writing was a life-saver, a way of recovering private territory.
+ - I don’t like the expression “writer’s block” because I think it presupposes that you have a problem with your plumbing. I really think it’s the other way around.
+ - In Israel, there is this reduction of the political discourse to something that is very limited. It’s as if you have that pitch that only dogs can hear. Sometimes I feel I speak at such a pitch that very few people around me communicate with what I’m saying.
+ - I rarely return to characters. My characters, at least most of them, are much more a part of that superorganism that is the story than separate and independent creatures.
+ - What connects me so strongly to Israel is the fact that I’m second generation.
+ - I think the typical way is that usually Holocaust survivors are known to be very quiet and full of anxiety, many of them don’t like life, don’t trust people. But my parents were children during the Holocaust. And my father was very optimistic.
+ - Often, the stories are very much like trust falls. You fall, and you hope the story’s going to catch you.
+ - He felt full of a dense and sour substance that was blocking his chest, and it wasn’t grief. After all those years, life now seemed like no more than a trap, a maze, not even a maze, just a room that was all walls, no door.
+ - I always have a story in my head that needs to be written, or at least I think I do. But I usually can’t find the time to write it.
+ - You take a book, and what can you do with a book? Can you cook an egg on a book? No. Can you dig a hole? No. Is it a good weapon? No. The fact that it’s good for nothing kind of makes it almost all-important.
+ - As a monogamous creature, I feel sometimes that it fills up a function that affairs have in married people’s life.
+ - I don’t have Facebook or Twitter accounts yet. Being a compulsive storyteller, I always make up for myself discouraging stories about how such accounts will get me into embarrassing and time-consuming situations.
+ - I think living in Israel and wanting to change reality is the best prescription for never-ending writer’s block.
+ - Writing is very castrating in the moment. Fiction in general, it has no function, nobody asks for it.
+ - The amazing thing about an artistic collaboration is that it is as intense and intimate as a romantic one. Sometimes even more so.
+ - Nobody else in the world would look at writing as craftsmanship – it’s totally this Protestant hardworking ethic. You go into this kind of infinite space of imagination and you fence yourself in with all kinds of laws.
+ - Before I started to make films, I didn’t give much thought to the way the characters were physically positioned in the story world.
+ - I write in a slangy colloquial speech that has not been common in the Israeli tradition of writing, and that is one of the things that gets lost a little in translation.
+ - When I started writing my stories, I thought that not only nobody outside my language, but nobody outside my neighbourhood would get them.
+ - Hebrew was frozen, like frozen peas, fresh out of the Bible.
+ - It’s funny, but I think my stories – the good ones – they’re much smarter than I am.
+ - As a child, I never wanted my parents to be unhappy, which meant that I would always contemplate what would make them happy.
+ - The best stories you usually hear are stories that people feel some type of urgency about.
+ - Rabbits are played. Nowadays it’s all about the turtles. Tell them it’s a ninja, they’ll freak.
+ - Writing a story is kind of like surfing, as opposed to the novel, where you use a GPS to get somewhere. With surfing, you kind of jump.
+ - Making up characters and places and plots, unlike fixing your plumbing or doing dishes, is anything but practical or rational. I write what needs to be written the way that seems genuinely right.
+ - In my stories I can kiss the girls I want to kiss and punch the girls I want to punch. Nobody pays a price for it.
+ - Generally, all my life, I have had strong friction with life – I was a problematic soldier, I was kicked out of the army, I was in fights. There was something about writing that was a way of experimenting with this emotion.
+ - It took a lot to understand that the interest in both writing a story and reading it is not in the objective dangers someone takes. You don’t have to fight snakes or wake up in a strange apartment to have a story; it’s about what goes on inside your mind and soul.
+ - I write what needs to be written the way that seems genuinely right. If what comes out of it are stories, then it is my vocation to believe in them and in the fact that they’ll interest people and maybe affect their lives.
+ - For me taking a pragmatic decision when it comes to art is almost an oxymoron. The reason I first picked up a pen and wrote a story had nothing pragmatic in it.
+ - If you want to learn how to be happy, you have to know what is sadness first.
+
+93 quotes

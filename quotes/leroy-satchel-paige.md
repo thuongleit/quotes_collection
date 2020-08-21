@@ -1,0 +1,48 @@
+ - Work like you don’t need the money. Love like you’ve never been hurt. Dance like nobody’s watching.
+ - How old would you be if you didn’t know how old you are?
+ - Never let your head hang down. Never give up and sit down and grieve. Find another way.
+ - Sometimes I sit and think and other times I just sit.
+ - You win a few, you lose a few. Some get rained out. But you got to dress for all of them.
+ - Don’t look back. Something might be gaining on you.
+ - Don’t pray when it rains if you don’t pray when the sun shines.
+ - The only change is that baseball has turned Paige from a second class citizen to a second class immortal.
+ - Sometimes you win, sometimes you lose, sometimes you get rained out.
+ - Not to be cheered by praise, not to be grieved by blame, but to know thoroughly one’s own virtues or powers are the characteristics of an excellent man...
+ - When a batter swings and I see his knees move, I can tell just what his weaknesses are then I just put the ball where I know he can’t hit it.
+ - If you tell a lie, always rehearse it. If it don’t sound good to you, it won’t sound good to anybody.
+ - If a man can beat you, walk him.
+ - If your stomach disputes you, lie down and pacify it with cool thoughts.
+ - Baseball is the most perfect of games, solid, true, pure and precious as diamonds. If only life were so simple. Within the baselines anything can happen. Tides can reverse; oceans can open. That’s why they say, we don’t stop playing because we get old. We get old because we stop playing.
+ - Keep the juices flowing by jangling around gently as you move...
+ - I’ve said it once and I’ll say it a a hundred times, I’m forty-four years old.
+ - Go light on the vices, such as carrying on in society. The social life ain’t restful. Avoid running at all times. Don’t look back. Something may be gaining on you.
+ - I used to feel so bad before I got to the clubhouse, I didn’t know what to do. But when I put that ballsuit on, I don’t know where I got the spark to save my life.
+ - I was born in August, no July, 1908.
+ - Airplanes may kill you, but they ain’t likely to hurt you.
+ - Nobody likes the ball low and away, but that’s where you’re going to get it from me. I been pitching it there 50 years, away from them. That way they can’t hurt you. You keep the ball in the park.
+ - I never rush myself. See, they can’t start the game without me.
+ - I got a curve so sneaky it might be your daddy.
+ - Smile well and often, it makes people wonder what you’ve been up to.
+ - When they treat you bad, you just got to take care of your pride, no matter what.
+ - With women you don’t have to talk your head off. You just say a word and let them fill in from there.
+ - Just take the ball and throw it where you want to. Throw strikes. Home plate don’t move.
+ - I don’t know how old I am because a goat ate the Bible that had my birth certificate in it. The goat lived to be twenty-seven.
+ - Money and women. They’re two of the strongest things in the world. The things you do for a woman you wouldn’t do for anything else. Same with money.
+ - They said I was the greatest pitcher they ever sawI couldnt understand why they couldnt give me no justice.
+ - My pitching philosophy is simple – keep the ball way from the bat.
+ - It’s funny what a few no-hitters do for a body.
+ - I don’t generally like running. I believe in training by rising gently up and down from the bench.
+ - Avoid running at all times.
+ - I never threw an illegal pitch. The trouble is, once in a while I toss one that ain’t never been seen by this generation.
+ - My feet ain’t got nothing to do with my nickname, but when folks get it in their heads that a feller’s got big feet, soon the feet start looking big.
+ - Avoid fried foods, which angry up the blood.
+ - One time I snuck a ball on with me and when I went to winding up, I threw one of them balls to first and one to second. I was so smooth I picked off both runners and fanned the batter without that ump or the other team even knowing it.
+ - You gotta keep the ball off the fat part of the bat.
+ - There never was a man on earth who pitched as much as me. But the more I pitched, the stronger my arm would get.
+ - I ain’t ever had a job, I just always played baseball.
+ - The Crawfords played everywhere, in every ballpark. And we won, won like we invented the game.
+ - I may not be the bestest pitcher in the world, but I sure out-cutes ’em.
+ - I use my single windup, my double windup, my triple windup, my hesitation windup, my no windup. I also use my step-n-pitch-it, my submariner, my sidearmer and my bat dodger. Man’s got to do what he’s got to do.
+ - Don’t go to college, unless to get knowledge.
+
+46 quotes

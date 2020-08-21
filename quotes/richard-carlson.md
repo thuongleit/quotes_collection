@@ -1,0 +1,35 @@
+ - Reflection is one of the most underused yet powerful tools for success.
+ - Ask yourself this question, will this matter a year from now?
+ - You are what you practice most.
+ - The key to a good life is this: If you’re not going to talk about something during the last hour of your life, then don’t make it a top priority during your lifetime.
+ - Choose to be kind over being right and you’ll be right everytime.
+ - Meanwhile, life keeps moving forward. The truth is, there’s no better time to be happy than right now. If not now, when?
+ - Life is a process – just one thing after another. When you lose it, just start again.
+ - Retirement can and will be a glorious time in your life. You’ll love the freedom and ability to try new things. It’s a new phase of life; a chance to be a beginner again.
+ - If someone throws you the ball, you don’t have to catch it.
+ - Make living your life with absolute integrity and kindness your first priority.
+ - The old adage, ‘If it sounds too good to be true, it probably is’ isn’t always correct. In fact, the suspicion, cynicism, and doubt that are inherent in this belief can and does keep people from taking advantage of excellent opportunities.
+ - What interferes with this peaceful feeling is our expectation of reciprocity.
+ - If we would just slow down, happiness would catch up to us.
+ - Stress is nothing more than a socially acceptable form of mental illness.
+ - The next time you find yourself in an argument, rather than defend your position, see if you can see the other point of view first.
+ - You can’t have a better past.
+ - Children listen best with their eyes. What you do is what they hear.
+ - The first step to becoming a more peaceful person is to have the humility to admit that, in most cases, you’re creating your own emergencies. Life will usually go on if things don’t go according to plan. It’s helpful to keep reminding yourself and repeating the sentence, “Life isn’t an emergency”.
+ - Learning to stop sweating the small stuff involves deciding what things to engage in and what things to ignore. From a certain perspective, life can be described as a series of mistakes, one right after another with a little space in between.
+ - Reading is a gift. It’s something you can do almost anytime and anywhere. It can be a tremendous way to learn, relax, and even escape. So, enough about the virtues of reading. Time to read on.
+ - Life isn’t all it’s cracked up to be. Nothing is ever good enough the way it is.
+ - One of the most dynamic and significant changes you can make in your life is to make the commitment to drop all negative references to your past, to begin living now.
+ - We deny the parts of ourselves that we deem unacceptable rather than accepting the fact that we’re all less than perfect.
+ - Ironically, when you surrender your need to hog the glory, the attention you used to need from other people is replaced by a quiet inner confidence that is derived from letting others have it.
+ - Effective listening is more than simply avoiding the bad habit of interrupting others while they are speaking or finishing their sentences. It’s being content to listen to the entire thought of someone rather than waiting impatiently for your chance to respond.
+ - Even though we often mess up, most of us are doing the best that we know how with the circumstances that surround us.
+ - It’s the recognition that other people’s problems, their pain and frustrations, are every bit as real as our own – often far worse. In recognizing this fact and trying to offer some assistance, we open our hearts and greatly enhance our sense of gratitude.
+ - Every day, tell at least one person something you like, admire, or appreciate about them.
+ - Try to maintain the perspective that, in time, everything disintegrates and returns to its initial form.
+ - Rather than being afraid to ask for help, remember this: When you ask someone to help you, you are actually doing them a tremendous favor by giving them an opportunity to feel needed.
+ - It seems that we have it backward in our society. We tend to look up to people who are under a great deal of stress, who can handle loads of stress, and those who are under a great deal of pressure.
+ - Many people spend their entire lifetimes wishing that other people would acknowledge them. They feel this especially about their parents, spouses, children, and friends.
+ - People who live the most fulfilling lives are the ones who are always rejoicing at what they have.
+
+33 quotes

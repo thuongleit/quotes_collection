@@ -1,0 +1,45 @@
+ - The difficult I’ll do right now. The impossible will take a little while.
+ - Somebody once said we never know what is enough until we know what’s more than enough.
+ - I’m always making a comeback but nobody ever tells me where I’ve been.
+ - Them that’s got shall get, Them that’s not shall lose. So the Bible says, And it still is news. Mama may have, Papa may have, But God bless the child that’s got his own.
+ - In this country, don’t forget, a habit is no damn private hell. There’s no solitary confinement outside of jail. A habit is hell for those you love. And in this country it’s the worst kind of hell for those who love you.
+ - The whole basis of my singing is feeling. Unless I feel something, I can’t sing.
+ - When Lester plays, he almost seems to be singing; one can almost hear the words.
+ - Don’t threaten me with love, baby. Let’s just go walking in the rain.
+ - A kiss that is never tasted, is forever and ever wasted.
+ - When you sing, always tell the truth.
+ - Don’t be in such a hurry.
+ - If I’m going to sing like someone else, then I don’t need to sing at all.
+ - I joined Count Basie’s band to make a little money and to see the world. For two years I didn’t see anything but the inside of a Blue Goose bus, and I never got to send home a quarter.
+ - If you think dope is for kicks and for thrills, you’re out of your mind. There are more kicks to be had in a good case of paralytic polio or by living in an iron lung.
+ - I hate straight singing. I have to change a tune to my own way of doing it. That’s all I know.
+ - God has blessed you when he lets you believe in somebody.
+ - I never sing a song the same way twice.
+ - The only reason they’re out there is to see me fall into the damn orchestra pit.
+ - Mom and Pop were just a couple of kids when they got married. He was eighteen, she was sixteen and I was three.
+ - I don’t think I ever sing the same way twice. The blues is sort of a mixed-up thing. You just have to feel it. Anything I do sing is part of my life.
+ - I’ve been told that nobody sings the word ‘hunger’ like I do.
+ - Lust may be in the heart, though it be not seen by others; as guests may be in the house, though they look not out at the windows.
+ - And when you’re poor, you grow up fast.
+ - I never had a chance to play with dolls like other kids. I started working when I was six years old.
+ - Love is like a faucet, it turns off and on.
+ - If you copy, it means you’re working without any real feeling. No two people on earth are alike, and it’s got to be that way in music or it isn’t music.
+ - I can’t stand to sing the same song the same way two nights in succession. If you can, then it ain’t music, it’s close order drill, or exercise or yodeling or something, not music.
+ - If I don’t have friends, then I ain’t nothing.
+ - One day a whole damn song fell into place in my head.
+ - They think they can make fuel from horse manure – now, I don’t know if your car will be able to get 30 miles to the gallon, but it’s sure gonna put a stop to siphoning.
+ - You can’t copy anybody and end with anything. If you copy, it means you’re working without any real feeling.
+ - You can be up to your boobies in white satin, with gardenias in your hair and no sugar cane for miles, but you can still be working on a plantation.
+ - You’ve got to have something to eat and a little love in your life before you can hold still for any damn body’s sermon on how to behave.
+ - I can only sing songs my way. I don’t know any other way.
+ - I try to improvise like Les Young, Louis Armstrong or someone else I admire. What comes out is what I feel.
+ - I never hurt nobody but myself and that’s nobody’s business but my own.
+ - New Orleans is the only city in the world you go in to buy a pair of nylon stockings they want to know your head size.
+ - People don’t understand the kind of fight it takes to record what you want to record the way you want to record it.
+ - In this country kings or dukes don’t amount to nothing. The greatest man around then was Franklin D. Roosevelt, and he was the President; so I started calling Lester the President. It got shortened to Pres.
+ - There’s no damn business like show business – you have to smile to keep from throwing up.
+ - Singing songs like ‘The Man I Love’ or ‘Porgy’ is no more work than sitting down and eating Chinese roast duck, and I love roast duck.
+ - Sometimes it’s worse to win a fight than to lose.
+ - Dope never helped anybody sing better or play music better or do anything better. All dope can do for you is kill you – and kill you the long, slow, hard way.
+
+43 quotes

@@ -1,0 +1,68 @@
+ - Making a living and making a life sometimes point in opposite directions.
+ - And if travel is like love, it is, in the end, mostly because it’s a heightened state of awareness, in which we are mindful, receptive, undimmed by familiarity and ready to be transformed. That is why the best trips, like the best love affairs, never really end.
+ - In an age of speed, I began to think nothing could be more exhilarating than going slow. In an age of distraction, nothing can feel more luxurious than paying attention. And in an age of constant movement, nothing is more urgent than sitting still.
+ - Home is not just the place where you happen to be born. Its the place where you become yourself.
+ - Travel is not really about leaving our homes, but leaving our habits.
+ - A person susceptible to “wanderlust” is not so much addicted to movement as committed to transformation.
+ - In an age of constant movement, nothing is more urgent than sitting still.
+ - We travel, initially, to lose ourselves; and we travel, next to find ourselves.
+ - Going nowhere isn’t about turning your back on the world; it’s about stepping away now and then so that you can see the world more clearly and love it more deeply.
+ - Writing is, in the end, that oddest of anomalies: an intimate letter to a stranger.
+ - We travel to open our hearts and eyes and learn more about the world than our newspapers will accommodate.
+ - And it’s only by going nowhere – by sitting still or letting my mind relax – that I find that the thoughts that come to me unbidden are far fresher and more imaginative than the ones I consciously seek out.
+ - Its no coincidence that the word holiday suggests a holy day, or that the longest book in the Torah concerns the Sabbath. If you wish to advance in any sphere, the best way is to take a retreat.
+ - For more and more of us, home has less to do with a piece of soil than a piece of soul.
+ - For me the first great joy of traveling is simply the luxury of leaving all my beliefs and certainties at home, and seeing everything I thought I knew in a different light, and from a crooked angle.
+ - It so often happens that somebody says ‘change your life’ and you repaint your car rather than re-wire the engine.
+ - We travel, in essence, to become young fools again – to slow time down and get taken in, and fall in love once more.
+ - My Christmas present to myself each year is to see how much air travel can open up the world and take me to places as far from sheltered California and Japan as possible.
+ - The beauty of being foreign is that it snaps you awake.
+ - Every day there are small moments when we have a choice: will we take in more stuff, or just clear our minds out for a bit?
+ - Like the moon on the water, in a way. When you confront a Zen master, what you’re really seeing are not his limitations but yours.
+ - For centuries, Cubas greatest resource has been its people.
+ - In the past, Ive visited remote places – North Korea, Ethiopia, Easter Island – partly as a way to visit remote states of mind: remote parts of myself that I wouldnt ordinarily explore.
+ - Suffering is a privilege. It moves us toward thinking of essential things and shakes us out of complacency. Calamity cracks you open, moves you to change your ways.
+ - Movement is a fantastic privilege but it ultimately only has meaning if you have a home to go back to.
+ - American dreams are strongest in the hearts of those who have seen America only in their dreams.
+ - Serendipity was my tour guide, assisted by caprice.
+ - All good trips are, like love, about being carried out of yourself and deposited in the midst of terror and wonder.
+ - Hello Kitty will never speak.
+ - Movement is only as good as the sense of stillness that you can bring to it to put it into perspective.
+ - Traveling is a way to reverse time, to a small extent, and make a day last a year – or at least forty-five hours – and traveling is an easy way of surrounding ourselves, as in childhood, with what we cannot understand.
+ - In our appetite for gossip, we tend to gobble down everything before us, only to find, too late, that it is our ideals we have consumed, and we have not been enlarged by the feasts but only diminished.
+ - The Australians, it seems to me, thrive on their remoteness from the world and see it as a way of keeping up a code of “No worries, mate,” while peddling their oddities to visitors: nonconformity is at once a fact of life for many, and a selling point.
+ - But it’s only by having some distance from the world that you can see it whole, and understand what you should be doing with it.
+ - The open road is the school of doubt in which man learns faith in man.
+ - So it is that Lonely Places attract as many lonely people as they produce, and the loneliness we see in them is partly in ourselves.
+ - Comedy is nothing more than tragedy deferred.
+ - Travel spins us round in two ways at once: It shows us the sights and values and issues that we might ordinarily ignore; but it also, and more deeply, shows us all the parts of ourselves that might otherwise grow rusty.
+ - You rebel against your parents until you become them. One day you look in the mirror and you see your father’s face.
+ - Travel is an act of humility.
+ - Lonely Places, then are the places that are not on international wavelengths, do not know how to carry themselves, are lost when it comes to visitors. They are shy, defensive, curious places; places that do not know how they are supposed to behave.
+ - For more and more of us, home has really less to do with a piece of soil than, you could say, with a piece of soul. If somebody suddenly asks me, Wheres your home? I think about my sweetheart or my closest friends or the songs that travel with me wherever I happen to be.
+ - Finding a sanctuary, a place apart from time, is not so different from finding a faith.
+ - To step away from the world isn’t to draw back; it’s actually a way to tune in.
+ - The more we run from a problem, the more we’re actually running into it.
+ - The central paradox of the machines that have made our lives so much brighter, quicker, longer and healthier is that they cannot teach us how to make the best use of them; the information revolution came without an instruction manual.
+ - The average American teenager sends or receives 75 text messages a day, though one girl in Sacramento managed to handle an average of 10,000 every 24 hours for a month.
+ - Destinations are less important than the spirit you bring to them.
+ - So travel for me is an act of discovery and of responsibility as well a grand adventure and a constant liberation.
+ - Writing of every kind is a way to wake oneself up and keep as alive as when one has just fallen in love.
+ - The more ways we have to connect, the more many of us seem desperate to unplug.
+ - We have more and more ways to communicate, as Thoreau noted, but less and less to say.
+ - I exult in the fact I can see everywhere with a flexible eye; the very notion of home is foreign to me, as the state of foreignness is the closest thing I know to home.
+ - Perhaps the greatest danger of our global community is that the person in LA thinks he knows Cambodia because he’s seen The Killing Fields on-screen, and the newcomer from Cambodia thinks he knows LA because he’s seen City of Angels on video.
+ - A holy day, after all, is a day for considering everything you otherwise think too little about.
+ - I suddenly realized I was racing around so much, I could never catch up with my life.
+ - Death undoes us less, sometimes, than the hope that it will never come.
+ - Gandhi or Bishop Tutu or the Dalai Lama. I think they’re really embodiments of what we aspire to and, by keeping them in our heads, we’re reminding ourselves of who we could be. That’s what we’re hoping to climb up towards.
+ - Technology, in short, cannot teach me how to do without technology.
+ - Everyone is a Wordsworth in certain moods, and every traveler seeks out places that every traveler has missed.
+ - The less conscious one is of being a writer, the better the writing.
+ - For citizens who think themselves puppets in the hands of their rulers, nothing is more satisfying than having rulers as puppets in their hands.
+ - None of the things in life – like love or faith – was arrived at by thinking; indeed, one could almost define the things that mattered as the ones that came as suddenly as thunder.
+ - One curiosity of being a foreigner everywhere is that one finds oneself discerning Edens where the locals see only Purgatory.
+ - As Thoreau famously sead, it doesn’t matter where or how far you go – the farther commonly the worse – the important thing is how alive you are. Writing of every kind is a way to wake oneself up and keep as alive as when one has just fallen in love.
+ - As soon as I’m on the road, I see, often palpably, that I know nothing at all, which is always a great liberation.
+
+66 quotes

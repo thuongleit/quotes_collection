@@ -1,0 +1,34 @@
+ - I think coercive taxation is theft, and government has a moral duty to keep it to a minimum.
+ - Natural resources are so vast that no single individual or business is going to protect them; they don’t have an incentive to.
+ - Micro managing anything is not a great role for government.
+ - Government has a role as well in what is referred to as redistributive justice.
+ - There’s no Walter Cronkite to give you the final word each evening.
+ - The best preparation for work is not thinking about work, talking about work, or studying for work: it is work.
+ - In the nineteenth century, slavery was the greatest wrong, and government never stood so tall as when it was redressing that wrong.
+ - The system that had grown up in most states is that wealthy districts with an affluent population can afford to spend a lot more on their public school systems than the poorer districts.
+ - I dare say that a majority of the American people think that having a fair hearing on an issue of importance in our relations with Mexico is extremely important to our national interest, as well as theirs.
+ - The unemployment rate is still twice as high for blacks as for whites.
+ - Do we believe that there is equal economic opportunity out there in the real world, right now, for each and every one of these groups? If we believed in the tooth fairy, if we believed in the Easter Bunny, we might well believe that.
+ - It’s not good for government to tell people that the world owes them a living and that things are free.
+ - One of the functions of government is to act as a safeguard not just of property but of our liberties.
+ - I think government has a major role to play in helping us with the pursuit of happiness.
+ - Opposing the free flow of goods or people is a bad idea.
+ - I have come to realize that Jesse Helms stands for everything in politics that is anathema to me.
+ - I think the dignity of Congress and the dignity of the country demands something more than merely censure here.
+ - Before my tenure, people didn’t seem to think that citizens had a right to limit the size of their government.
+ - Much is forgiven anyone who relieves the desperate boredom of the working press.
+ - So government acts as a safeguard of our property.
+ - Speaking of tax fairness, it was Senator Kerry who voted to increase the income tax on senior citizens on Social Security, earning as little as $32,000 a year.
+ - If we have major geographic areas within our continent that have a tremendous lack of economic opportunity, we found that that is going to produce instability economic, political and social.
+ - It’s healthy for government to be a kind of moral catalyst, using the bully pulpit of high office.
+ - I think transportation and corrections are not the first two areas that I would go looking for massive change.
+ - The courts are truly the least dangerous of the three branches of our government.
+ - There are several such issues where I have departed radically from the Republican orthodoxy.
+ - My slogan when I ran was that there is no such thing as government money, there is only taxpayer’s money, and that cut pretty deep.
+ - Liberals often don’t see the problems, and conservatives don’t see the promise, of government.
+ - We need a complete ban on soft money, which is sort of an enveloping problem, and a ceiling on the amount of money that can be spent on a given race.
+ - Government is never so noble as when it is addressing wrongs.
+ - Government can contribute to a shared sense of purpose on the part of the citizenry; that’s its highest and best application.
+ - I suggest to you that increasing the size of America’s economic pie – which can be achieved only if everybody has a seat at the table – is the most important challenge facing our country today.
+
+32 quotes

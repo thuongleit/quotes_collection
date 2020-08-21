@@ -1,0 +1,28 @@
+ - May all your troubles last as long as your New Year’s resolutions.
+ - Stay with me; I want to be alone.
+ - A psychiatrist asks a lot of expensive questions your wife asks for nothing.
+ - A genius is one who can do anything except make a living.
+ - Marriage is give and take. You’d better give it to her or she’ll take it anyway.
+ - Bankruptcy is a legal proceeding in which you put your money in your pants pocket and give your coat to your creditors.
+ - It just gets frustrating playing the girlfriend, It’s just this awful feeling, sitting in your house, waiting for a script to come. I like to be more proactive.
+ - The most popular labor-saving device today is still a husband with money.
+ - Most people play a fair game of golf – if you watch them.
+ - My life isn’t that dramatic. My dad really loves me, he just can’t talk on the phone. He’s too crippled and shy, and that’s almost harder. He’s there and he loves me, and I try and try and try, it’s just impossible to have a relationship.
+ - No one was jumping up and saying, ‘Yeah, let me give you money.’ I had never held a camera in my hand – a home video camera, nothing. I had not directed.
+ - I don’t think I was fully satisfied acting. You know, the girlfriend role or the best friend role, and that wasn’t enough for me.
+ - If you break 100, watch your golf. If you break 80, watch your business.
+ - For women in their 30s, it’s so hard to get good parts.
+ - Definition of an independent film is torture with less money and time.
+ - A teacher is a person who used to think he liked children.
+ - The toughest thing about homework is getting mom and pop to agree on the same answer.
+ - I like decorative, functional things that I feel comfortable in.
+ - Education is wonderful – it helps you worry about things all over the world.
+ - My relationship with my father is pretty non-existent.
+ - It’s not like you can wake up and realize, ‘Oh, I want intimacy,’ and then it happens that day.
+ - I think, ultimately, looking back now, acting wasn’t satisfying me 100%.
+ - In life, it’s not who you know that’s important, it’s how your wife found out.
+ - There were days that I literally had no reason to get out of bed. It just was so destructive for me.
+ - I am one of the few actresses who isn’t recognized by the way she looks. I’m recognized by the way I talk.
+ - I was never one of those people who thought, ‘What I really want to do is direct.’ It never occurred to me.
+
+26 quotes

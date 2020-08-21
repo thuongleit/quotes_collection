@@ -1,0 +1,119 @@
+ - Sometimes I miss the old me.
+ - Don’t let them see you weak.
+ - It’s what you do that counts, not what you consider doing.
+ - Sometimes when you meet someone, there’s a click. I don’t believe in love at first sight but I believe in that click. Recognition.
+ - He has to take me as I am, broken bits and all.
+ - Once exposed, a secret loses all its power.
+ - Possessiveness isn’t love. I’m not even sure it qualifies as an emotion.
+ - I never belonged anywhere until I met you.
+ - There were different kinds of strength. I knew that now. It didn’t always come from a knife or a willingness to fight. Sometimes it came from endurance, where the well ran deep and quiet. Sometimes it came from compassion and forgiveness.
+ - You ever have that feeling? Like you’ve known someone your whole life but you don’t know them at all.
+ - If you don’t tell me what’s on your mind, I can’t guess.
+ - People grew lazy. They knew too many blessings, and so lost the ability to appreciate what they had.
+ - Beautiful. And ugly. The world is always both.
+ - I don’t like anyone knowing anything about me that I didn’t choose to tell them.
+ - More than most, I know the pain of surviving.
+ - I’ve lost so many people. Some I left on purpose and never looked back. Some were taken from me, and I never said good-bye.
+ - I know just how he feels that it’s come to this. Sometimes, love isn’t enough, even when it’s all you have.
+ - This is not a love story. It is my life, and as such, there is love, loss, war, death, and sacrifice. It’s about things that needed to be done and choices made. I regret nothing.
+ - How can you miss someone who’s right beside you?
+ - Show, not tell, right? Action, not words. You don’t want to hear how sorry I am or how things will be different this time. You want to see it with your own eyes. And until I can show you that, you won’t tell me what I want to hear.
+ - A divided heart offers a strange sensation.
+ - Sometimes it felt as if all happiness came at a price. You could never, ever, have perfection. Life gave you beauty so you could bear the pain.
+ - Is that love? It seems like a pale word, too easily tossed about by people who don’t know the meaning of it, who twist it for their own ends. I’m afraid of it now, right up there with clowns, close spaces, and open flames.
+ - Sometimes the past needed to stay buried; it was the only way you could move on. And sometimes you had to dig it up, because that too was the only way.
+ - In the enclave, the strong and the physically perfect survived, but if you were strong, you protected the weak until they had an opportunity to grow into their own power.
+ - I’ll always want him. Until every sun goes dark in every sky, until I am nothing more than long-forgotten cosmic dust, I will want him. And even then I suspect my particles will long for his.
+ - He’s worth fighting for, but I won’t change who I am for any man. No more than he should alter himself to suit me.
+ - Don’t worry he tells me tenderly. It doesn’t matter who you’ve been, who you are, or who you become. I’m with you every step of the way.
+ - You don’t know what it’s like to be alone until you’ve had someone inside your head.
+ - Caring too much could be dangerous; I saw that now. But the alternative was no better.
+ - For I need this scar over my heart to remind me. Crazy as it sounds, if I can bear the wound on my body, it lessens what I must carry on my soul. How he knew that about me, I cannot fathom.
+ - Here in the enclave, one didn’t prosper by demonstrating too much independent thought.
+ - They say funerals are not for the dead but for the living. Those rites are what permit you to move on, so if you don’t deal with the remains, you can never deal with the memories. That might be true; we may have walked in their dust down on Venice Minor, but it’s not the same as a proper good-bye.
+ - As I dive between the legs of a big Gunnar, I see Mair wind up and slam her shockstick hard as she can between the V of another guy’s thighs. Falling, he makes a noise that I can’t say I’ve heard a human utter before, sort of like I imagine a puppy would sound being put through a juicer.
+ - I have had passionate kisses and fierce ones, kisses so sweet they tasted like pure honey and kisses that cut like knives, but until this moment, I’ve never had one that said both hello and good-bye.
+ - He’d said the sun could burn me. It certainly looked angry enough, all orange and glowing mad.
+ - Sometimes I could almost hate you because you don’t understand how much you mean to me, how dark and empty I was before. Solnyshko moyo.
+ - I always have someplace else I’d rather be, even if I don’t know where that is, yet.
+ - He’s never going to sit at my feet and write me poems, which is good because I hate poetry, except dirty ones that rhyme.
+ - After people have gone, you forget their faults, and you recall the ideal more than the person.
+ - He was the heat of a fire and the sweetness of the moon I’d only just met.
+ - People stay together and stay true only as long as they both want to. And all the promises in the world don’t change the length of time. Nothing comes with a guarantee.
+ - You could miss someone, but it did no good to fixate on loss. I wished I had the ready words of a Breeder or the ability to comfort with a soft touch. I didn’t. Instead I had daggers and determination. That would have to do.
+ - But the world moves on, even when you don’t want it to, even when change feels like the end of everything. It never stops.
+ - With my partner beside me, I fear nothing, not even death.
+ - My body was a machine, plain and simple. I worked it to stay strong; I fed it to keep it running.
+ - Men can be very stupid. We cease to value what we have until it’s gone, and only then do we realize the gold we glimpsed in distant hills pales as dross compared to treasure we had in hand.
+ - I couldn’t help what I’d done before I learned it was wrong. I could only do better in the future.
+ - Nobility and self-sacrifice sound wonderful in theory, but now he’s seen how it feels. A dead hero is still dead at the end of the day, and you’re still alone.
+ - Yet sometimes being a friend meant letting people do things that hurt, like putting distance between you, just because it made them happy.
+ - I think my head’s a minefield strewn with triggers, and maybe if I survive each explosion, what emerges from the wreckage will be me, really, truly me.
+ - Now I know there are ways to belong to someone that don’t take anything away. A relationship shouldn’t impose limits – and if it does, then it’s wrong. A lover should help you exceed your potential, not clip your wings.
+ - We stand a professional distance apart, as if I can’t feel his pain screaming in my head. Mine amplifies his; they share a joint sound – that of glass breaking – until they swell to a crescendo that deafens.
+ - A good huntress respected her partners instincts, even if he was socially ignorant.
+ - Most people can’t stomach silence; it provides too much opportunity to think about things they prefer to avoid.
+ - Like most, I was a mix of good and bad, anger and protectiveness, kindness and pride. But right now, I had only strangled fear and the promise of revenge.
+ - It’s only a sure defeat when you stop trying.
+ - We’re broken in complementary ways, thus rendering our damage comprehensible to each other.
+ - My heart shifted a little in my chest; it seemed to swell and beat against my bones until I couldn’t hear.
+ - My heart should be breaking, too, but there comes a point when you’re so inured to loss that you no longer feel the lash.
+ - Brown bird welcomes white wave. Wander no more, dear traveler.
+ - I swept down the stairs to find Fade waiting for me at the bottom. His dark eyes widened, and for the first time since I’d known him, he was speechless. He stared up at me like I was everything he ever wanted.
+ - Sometimes broken things heal crooked. The pieces didn’t fit anymore.
+ - No matter how interminable something feels, there is always, always an ending. Sometimes that’s good, and sometimes it’s bad; sometimes it’s a matter of indifference, and sometimes it’s heartbreaking, and your life is never the same thereafter.
+ - Sometimes you find your heroes in the unlikeliest places.
+ - His reply offers infinite solace in a single word. Always.
+ - For love to flourish there has to be trust. Promises don’t matter as much as personal choice.
+ - I shake my head, but I can’t change this. I can only bear the scars, as I have always done, as I ever do.
+ - I imagine the ones we’ve lost as ghosts who prowl about the edges of the light, waiting for us to join them. Sometimes that’s terrifying, and sometimes it’s reassuring, a promise of homecoming.
+ - His face held a certain impassivity; you see it in all waiters and valets. They might want to jam a knife through your left eye socket, but you’d never know it from their expression. Working retail, I’ve acquired a similar look myself.
+ - But it was like a dance across a field strewn with razors, and I bled with every step I took.
+ - There are quiet ways to die where the body just doesn’t notice that the heart is gone.
+ - A huntress never stabbed anything she didn’t want to.
+ - But wishes were empty thoughts, cast down a dark hole. They didn’t come true unless you worked for them. I’d learned that about the world, if nothing more.
+ - A curve of silver hung amid the brighter specks; it looked to me like a curved dagger, pretty but deadly, as if it might slice the sky in two.
+ - He would bear scars because of me, as I carried them for him.
+ - He went in, lean and deadly, and ended the creature with a lightning-fast spike of his blade. It shrieked, likely altering the rest. The death call carried like a mournful song.
+ - Most people weren’t aware enough to fear the things that could really hurt them.
+ - Because it takes more courage to heal the world’s hurts than to inflict them.
+ - If there had been another female for him since we arrived in Salvation, I needed to cut off all her hair and beat her half to death. The strength of that impulse scared me, and I took a step back. Deuce the girl was every bit as vicious as the Huntress, it seemed.
+ - I think people can be trusted to know what makes them unhappy. Maybe we don’t always know what we want exactly, but we can usually say what we don’t with a fair amount of specificity.
+ - I’m as forgiving as the wall you hit at two hundred kilometers an hour.
+ - But courage wasn’t an absence of fear; it was fighting despite the knot in your stomach.
+ - While sight may deceive you, touch rarely does.
+ - If so, I couldn’t imagine how the opposite gender managed to get out of bed in the morning. They might be lovely to look at, but clear thinking wasn’t their strong point.
+ - We stood back-to-back, blocking and striking in harmony; sometimes it felt like his arms and legs were an extension of me. I could count on him to keep them off me from behind.
+ - For peace to take hold, one person must first stop fighting.
+ - He’s earned a lifetime of peace and happiness, but some people never get what they deserve. That’s why there are saints in gutters and sadists in palaces.
+ - She carries chaos like an overcoat.
+ - Maybe I was just one of those people who couldn’t rest easy unless things went catastrophically wrong.
+ - We’re bound by chains of love, but they don’t weigh us down. Instead, they allow us to be bigger and better than we are.
+ - Then in the interest of full honesty, I really wish you’d kiss me right now.
+ - My skill didn’t lie in planning battles, only in fighting them.
+ - Beyond, the unknown lay before us once more, and another impossible task. The four of us emerged from the earth and turned our steps west, toward the last hope for Salvation.
+ - I’d never known it was possible to love as he did – with complete devotion yet devoid of promises.
+ - It’s easy to do right when everything goes right. But let everything go wrong, and see how difficult it becomes.
+ - But I miss the woman I was, even as I learn to accept the new creature I’ve become.
+ - We find heroes, not on battlefields, but in hospitals that tend the injured. Sometimes I think it’s easier to fight than it is to heal.
+ - I felt like the blonde in every horror movie who hears a noise in the basement and goes to investigate alone. Sometimes you smell the stupid all around you, but you step in it anyway.
+ - What was the good of having such a fine home if you weren’t willing to fight for it?
+ - Men always want to be remembered whereas women realize that requires being dead.
+ - There’s a hollow where he used to be, and it echoes with self-imposed loss.
+ - Each love is unique. Special. Giving to one never takes away from another.
+ - Love can make us do dreadful things.
+ - Every army has a beginning, no matter how humble.
+ - I wanted proof, not promises.
+ - Not just when its easy. All the time.
+ - I’m sick of asking questions everyone else already knows the answers to.
+ - Dying isn’t like living; it requires no effort at all.
+ - I’m Sirantha Jax, and I have had enough.
+ - Survival feels like cowardice.
+ - There’s a reason I hate jigsaw puzzles. I don’t have the patience to find all the border pieces, especially when they’re all the same shade of gray.
+ - I admired Stalkers style. He was incredibly fast using two small blades strapped to the backs of his hands. Slash slash slash. Fighting him you wouldn’t die of one great wound but instead bleed out slowly surprised to find yourself weak and dying after a thousand cuts.
+ - Time is fluid, so the moments where everything feels perfect pass in a wink, and those where you’re on your knees in despair drag on like the death of a thousand cuts.
+ - Love sounded terrible if it made you so weak, you couldn’t survive with out it.
+ - The whole world is like Whitewall’s razors I burst out. It cuts us, and we bleed but there’s no purpose to it.
+ - I never knew I had the power to hurt him, only that he possessed the power to hurt me.
+
+117 quotes

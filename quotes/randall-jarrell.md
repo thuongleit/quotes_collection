@@ -1,0 +1,60 @@
+ - You give me the feeling that the universe Was made by something more than human For something less than human. But I identify myself, as always, With something that there’s something wrong with, With something human.
+ - A person is a process, one that leads to death...
+ - Human life without some form of poetry is not human life but animal existence.
+ - The dark, uneasy world of family life – where the greatest can fail and the humblest succeed.
+ - The ways we miss our lives are life.
+ - One of the most obvious facts about grownups to a child is that they have forgotten what it is like to be a child.
+ - Kenneth Burke calls form the satisfaction of an expectation; The Man Who Loved Children is full of such satisfactions, but it has a good deal of the deliberate disappointment of an expectation that is also form.
+ - Art is long, and critics are the insects of a day.
+ - A poet is a man who manages, in a lifetime of standing out in thunderstorms, to be struck by lightning five or six times.
+ - Art matters not merely because it is the most magnificent ornament and the most nearly unfailing occupation of our lives, but because it is life itself.
+ - Say what you like, but such things do happen – not often, but they do happen.
+ - If we were in the habit of reading poets their obscurity would not matter; and, once we are out of the habit, their clarity does not help.
+ - And the world said, Child, you will not be missed. You are cheaper than a wrench, your back is a road; Your death is a table in a book. You had our wit, our heart was sealed to you: Man is the judgment of the world.
+ - If you look at the world with parted lips and a pure heart, and will the good, won’t that make a true and beautiful poem? One’s heart tells one that it will; and one’s heart is wrong. There is no direct road to Parnassus .
+ - The people who live in a golden age usually go around complaining how yellow everything looks.
+ - Read at whim! Read at whim!
+ - The climate of our culture is changing. Under these new rains, new suns, small things grow great, and what was great grows small; whole species disappear and are replaced.
+ - The best of causes ruins as quickly as the worst; and the road to Limbo is paved with writers who have done everything I am being sympathetic, not satiric for the very best reasons.
+ - The novel is a prose narrative of some length that has something wrong with it.
+ - We died like aunts of pets or foreigners.
+ - When you call people we you find it easy to be unfair to them, since you yourself are included in the condemnation.
+ - Christina Stead has a Chinese say, “Our old age is perhaps life’s decision about us” or, worse, the decision we have made about ourselves without ever realizing we were making it.
+ - I see at last that all the knowledge I wrung from the darkness – that darkness flung me – Is worthless as ignorance: nothing comes from nothing The darkness from the darkness. Pain comes from the darkness And we call it wisdom. It is pain.
+ - It is always hard for poets to believe that one says their poems are bad not because one is a fiend but because their poems are bad.
+ - The safest way to avoid the world is through art; and the safest way to be linked to the world is through art.
+ - A correct answer is like an affectionate kiss, Goethe said; a correct answer, Gertrude would have said, is like a slap in the face.
+ - The real war poets are always war poets, peace or any time.
+ - One Whitman is miracle enough, and when he comes again it will be the end of the world.
+ - Carl Becker has defined a professor as a man who thinks otherwise; a scholar is a man who otherwise thinks.
+ - Most people don’t listen to classical music at all, but to rock-and-roll or hillbilly songs or some album named Music To Listen To Music By...
+ - Our universities should produce good criticism; they do not or, at best, they do so only as federal prisons produce counterfeit money: a few hardened prisoners are more or less surreptitiously continuing their real vocations.
+ - If wishes were stories, beggars would read...
+ - How can we expect novelists to be moral, when their trade forces them to treat every end they meet as no more than an imperfect means to a novel?
+ - Except from the Americans – but every pearl has its oyster.
+ - An author frequently chooses solemn or overwhelming subjects to write about; he is so impressed at writing about Life and Death that he does not notice that he is saying nothing of the slightest importance about either.
+ - Reality is what we want it to be or what we do not want it to be, but it is not our wanting or our not wanting that makes it so.
+ - When you’re young you try to be methodical and philosophical, but reality keeps breaking in.
+ - I think that one possible definition of our modern culture is that it is one in which nine- tenths of our intellectuals can’t read any poetry.
+ - If you’ve been put in your place long enough you begin to act like the place.
+ - We always tend to distrust geniuses about genius, as if what they say didn’t arouse much empathy in us, or as if we were waiting till some more reliable source of information came along...
+ - We are all so to speak intellectuals about something.
+ - We can’t tell our life from our wish.
+ - More and more people think of the critic as an indispensable middle man between writer and reader, and would no more read a book alone, if they could help it, than have a baby alone.
+ - Is an institution always a man’s shadow shortened in the sun, the lowest common denominator of everybody in it?
+ - It is better to entertain an idea than to take home to live with you for the rest of your life.
+ - The usual criticism of a novel about an artist is that, no matter how real he is as a man, he is not real to us as an artist, since we have to take on trust the works of art he produces.
+ - People had always seemed to Gertrude rather like the beasts in Animal Farm : all equally detestable, but some more equally detestable than others...
+ - If we meet an honest and intelligent politician, a dozen, a hundred, we say they aren’t like politicians at all, and our category of politicians stays unchanged; we know what politicians are like.
+ - The Southern past, the Southern present, the Southern future, concentrated into Gertrude’s voice, became one of red clay pine-barrens, of chain-gang camps, of housewives dressed in flour sacks who stare all day dully down into dirty sinks.
+ - Doesn’t the world need the painter’s praise anymore?
+ - The usual bad poem in somebody’s Collected Works is a learned, mannered, valued habit, a habit a little more careful than, and little emptier than, brushing one’s teeth.
+ - I simply don’t want the poems mixed up with my life or opinions or picture or any other regrettable concomitants. I look like a bear and live in a cave; but you should worry.
+ - To Americans, English manners are far more frightening than none at all.
+ - One of the most puzzling things about a novel is that “the way it really was” half the time is, and half the time isn’t, the way it ought to be in the novel.
+ - In Heaven all reviews will be favorable; here on earth, the publisher realizes, plausibility demands an occasional bad one, some convincing lump in all that leaven, and he accepts it somewhat as a theologian accepts Evil.
+ - If you never look just wrong to your contemporaries you will never look just right to posterity every writer has to try to be, to some extent, sometimes, a law unto himself.
+ - I decided that Europeans and Americans are like men and women: they understand each other worse, and it matters less, than either of them suppose.
+ - Pain comes from the darkness. And we call it wisdom. It is pain.
+
+58 quotes

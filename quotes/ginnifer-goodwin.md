@@ -1,0 +1,65 @@
+ - I’m a one-man kind of girl, and I only want a man who’s a one-woman man.
+ - I really am super lazy and doing long hair, especially mine, is a big pain in the butt. It’s filled with cowlicks and kinks and curls and frizz – and it was taking too much time in the morning.
+ - Halloween is my favorite holiday, and I always go all-out with my costumes.
+ - They say men and women can’t be friends, but that’s not true.
+ - I’m for all the actor’s struggle, the self-indulgent, painful journey, but I would rather have fun.
+ - But I love being scared. I think you’re brave only when you do things that scare you. I’ve always used fear as a motivator. I’m not sure why.
+ - The horizon is an imaginary line that recedes as you approach it.
+ - Nudity is for my boyfriend or my doctor.
+ - I’m so an all-or-nothing person in dating, always. I’m big on not wasting time. And so, yeah, if something’s not working, it’s time to not hold people back.
+ - I have very curly hair and I straighten it every day – it takes maybe two minutes. I can’t imagine anyone having a bigger challenge than I do in the kinkiness that is my crazy ‘fro.’
+ - Everything goes with short hair. It’s bananas.
+ - Oh my gosh, I’d give so much advice to a younger version of myself. I would say it really does get better as you get older. The things that mean so much, the things that seem like, you know, it’s going to cause the end of the world, are all things that I’ve already forgotten.
+ - It took me realizing that a broken heart has never actually killed anyone to find the courage to ask for what I want, in just about every situation. That was part of my own growing up.
+ - I’m insanely girly. I like having the door opened for me. I want to cook dinner for my boyfriend. And I can’t wait to have babies.
+ - I express myself through clothes, but clothes don’t define me.
+ - I’m desperate to have children. I am chomping at the bit. It’s a problem. I can’t imagine that I will not be a mother.
+ - I’ve never smoked crack. I’ve never done most things, drug-wise. But I assume that the experience I had watching Lost is the experience that crack addicts have smoking crack.
+ - Jennifer Morrison is the person I want to spend the rest of my life with, in a foreign country.
+ - I think the noblest thing you can do is ask for help. And I mean that about therapy. I mean that about dieting.
+ - My grandmother lives on a farm. And growing up, I assumed that the animals that I was eating and the animals that I was wearing all came from farms like my grandmother’s. They all had names, they were all smothered with love, and they all lived to be very old.
+ - You know, one of my biggest dreams in life is to play a Disney princess.
+ - I don’t know why anyone would want to ask an actor for dating advice. We are not the poster children for healthy relationships.
+ - I don’t diet. There’s going to be barbecues and macaroni and cheese – but I’ll have broccoli and salad the next day.
+ - I think of clothes a lot like costumes. I think of what I wear in real life as being my real life character’s costume.
+ - I’m a Southern lady that almost never leaves the house without makeup on.
+ - As long as I can wear a wig I can be any character, and in real life I can be myself.
+ - I started reading and learned that we don’t need any of it – meat, dairy products. We get everything we need without those things – except maybe B12, but there’s this whole controversy that maybe we’re only getting B12 because the animals are being fed B12 supplements.
+ - No matter how much love is there, these aren’t two people who are actually good for each other. They don’t help each other grow. They stifle each other’s growth.
+ - My day-to-day wardrobe, I do mix it up. I’ll wear something from Target along with something by YSL. It’s about finding the right items that make you happy.
+ - I was like ‘No!’ I’ve never had body issues, I’ve never had an eating disorder. I’ve never had to go on a diet and that’s because of Weight Watchers.
+ - I hardly ever work out.
+ - In real life, people don’t try to live dramatically, people try to live in a light way. People try to laugh.
+ - Growing up in Memphis, I have always admired St. Jude’s for the magnificent work they do.
+ - But often times, I feel like I’m so blessed, it’s not fair. That what I’m doing is not contributing to the good of the world.
+ - I only wear heels when a stylist puts me in them.
+ - I will end up with someone in the arts. I am positive. I eat, breathe and sleep acting. And I’ll end up with someone who is happy staying at home and having me cook supper. But I also really need to be intellectually challenged and stimulated. I want someone bookish, and someone who is passionate.
+ - Why do only boys get to chase? Nuh-uh! If anything, I think this whole sitting back and waiting thing can be self-sabotaging. We have to send up flares. We have to let guys know we’re open for business.
+ - I’ve done some movies because I would regret them if I didn’t, but other projects I’ve done because they’ve scared me or if I felt I needed to do a big romantic comedy to help me professionally. Then I’ll take a teeny movie when I need to work on myself and become a better actor.
+ - I come from theater, and doing period stuff is so whimsical and imaginative and so outside any frame of reference than I have ever had so I prefer that just in terms of fun factor.
+ - I want to work endlessly and tirelessly until I’m an old, old lady.
+ - Romcoms are challenging, but I’m hungry for drama.
+ - I don’t ever want to be in a hurry. I want to enjoy the moments.
+ - At 9 years old I weighed about 10 lbs. less than what my weight is at 32. I needed to get help.
+ - Unfortunately, as obsessed as I am with all of those Grimm’s slash Disney princesses, I do think women have evolved socially in so many ways.
+ - People always say a script will be ‘brought to life in a magical way,’ but for me that has been proven wrong time and time again.
+ - I was hoping to be a healthy example, because we can’t all look like all of these actresses and the models you see on the covers of magazine. And they aren’t doing it healthfully anyway, I promise you.
+ - One should not google oneself. My mother lets me know when I’m being followed by paparazzi.
+ - I perpetuate rumors that I’ve dated people that I’ve never actually dated.
+ - I can safely say that other than macaroni and cheese, there’s no processed food in my life. There’s no inorganic food in my life these days. There’s no junk food. There’s not a lot of sugar. There’s no soy. I mean, really everything that’s going into my body is pretty pure.
+ - Forget what you are supposed to do, do what you want to do.
+ - It’s a challenge to work a character’s arc into a format in which you only have a very limited amount of time to grow and develop a character.
+ - I am much more open to plural marriage than I was before, and I now support it in certain situations. I do believe it is right for some people. But our example in America today is gross abuse – I can’t support it in fundamentalist compounds.
+ - I’ve always been sort of addicted to genre-jumping. I’ve never been in the mood to do the same thing I did last time. Hence, me going from ‘Big Love’ to romantic comedy, to period film I can’t sit still.
+ - One time I had too many Heinekens and I googled myself and realized that that was a very, very bad combination.
+ - One night I’d had some beers, and then I Googled myself and spent the night in tears.
+ - After spending time with the rescued turkeys at Farm Sanctuary’s shelter and seeing how similar they are to my furry companion animals at home, I knew I needed to do everything in my power to protect these friendly and curious birds from the daily pain and suffering they endure on factory farms.
+ - Oh my gosh, I feel like I’m really obsessive about anything dealing with my health.
+ - Couldn’t start the morning without caffeine.
+ - The second you go back to eating right, you’re going to put that weight on. You eat one piece of bread and you are screwed, lady!
+ - I think most people know inherently that good wins.
+ - I love Valentine’s Day! I love it, I love it, I love it. I like having doors opened for me. My favorite romantic comedy is ‘When Harry Met Sally.’
+ - I cherish all of the times I’ve fallen on my face and made mistakes, because those experiences have made me who I am.
+ - Oh, my, yes. I was raised in this Southern culture where if a guy was sarcastic, that just meant he didn’t know how to show his love – but secretly he cared! I completely bought that. The men I chased and the things I put up with – it was criminal.
+
+63 quotes

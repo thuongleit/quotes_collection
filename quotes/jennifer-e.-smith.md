@@ -1,0 +1,39 @@
+ - He’s like a song she can’t get out of her head.
+ - He’s like a song she can’t get out of her head. Hard as she tries, the melody of their meeting runs through her mind on an endless loop, each time as surprisingly sweet as the last, like a lullaby, like a hymn, and she doesn’t think she could ever get tired of hearing it.
+ - Love is the strangest, most illogical thing in the world.
+ - She hates the fact that she won’t know. It’s feels like the last day of school, the final night at summer camp, like everything is coming to an abrupt and dizzying end.
+ - Love isn’t supposed to make sense. It’s completely illogical.
+ - Is it better to have had a good thing and lost it, or never to have had it?
+ - There was no point in waiting for someone who hadn’t asked, and there was no point in wishing for something that would never happen.
+ - That’s the thing about flying: You could talk to someone for hours and never even know his name, share your deepest secrets and then never see them again.
+ - But there’s no such thing as a completely fresh start. Everything new arrives on the heels of something old, and every beginning comes at the cost of an ending.
+ - But just as she turns to walk away she hears him behind her, the word like the opening of some door, like an ending and a beginning, like a wish. “Wait,” he says, and so she does.
+ - It’s not the changes that will break your heart; it’s that tug of familiarity.
+ - It’s one thing to run away when someone’s chasing you. It’s entirely another to be running all alone.
+ - You know what they say, if you love something, set it free.
+ - People who meet in airports are seventy-two percent more likely to fall for each other than people who meet anywhere else.
+ - You can’t know the answer until you ask the question.
+ - I like how you’re neither here nor there. And how there’s nowhere else you’re meant to be while waiting. You’re just sort of suspended.
+ - Look what a hard time I’ve given him. But no matter how many times I’ve pushed him away, he always comes back around again. And I wouldn’t want it any other way.
+ - There’s a formula for how long it takes to get over someone, that it’s half as long as the time you’ve been together.
+ - Nothing’s all that scary if you can see it coming.
+ - The geography of the thing wasn’t the point; it didn’t matter where they were: there was still too much space between them.
+ - Who would have guessed that four minutes could change everything?
+ - Cheerfulness and contentment are great beautifiers.
+ - Maybe growing up was really nothing more than growing away: from your old life, from your old self, from all those things that kept you tethered to your past.
+ - Not everyone makes it fifty-two years, and if you do, it doesn’t matter that you once stood in front of all those people and said that you would. The important part is that you had someone to stick by you all that time. Even when everything sucked.
+ - He hadn’t realized how much it could mean, having someone to talk to like that; he hadn’t realized that it could be a kind of lifeline, and that without it, there would be nobody to save you if you started to drown.
+ - Did you know that people who meet at least three different times within twenty-four hour period are ninety-eight percent more likely to meet again?
+ - Looks like the wrong kind of bait can get you the right kind of fish.
+ - No matter how long it’s been or how far you’ve drifted, no matter how unknowable you might be, there were at least two people in the world whose job it was to see you, to find you, to recognize you and reel you back in. No matter what.
+ - She’s four minutes late, which doesn’t seem like all that much when you think about it’s a commercial break, the period within classes, the time it takes to cook a microwave meal. Four minutes is nothing.
+ - He was a professor, a lover of stories, and he was building her a library in the same way other men might build their daughters houses.
+ - Well, I guess we all can’t have epic loves at such a young age.
+ - Hadley didn’t know it was possible to miss someone who’s only a few feet away, but there it is.
+ - It seemed to Ellie that you could tell a lot about someone by the way they carried a secret – by how safe they kept it, how soon they told, the way they acted when they were trying to keep it from spilling out.
+ - There’s always a gap between the burn and the sting of it, the pain and the realization.
+ - Airports are torture chambers if you’re claustrophobic.
+ - Is it possible not to ever know your type-not to even know you have a type-until quite suddenly you do?
+ - It was exactly as he’d thought it would be, like the first time and the millionth time all at once, like being wide awake, like losing his balance. Only this time, it wasn’t just him; this time, they were losing their balance together.
+
+37 quotes

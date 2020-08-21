@@ -1,0 +1,21 @@
+ - The measure of who we are is how we react to something that doesn’t go our way.
+ - It’s not about any one person. You’ve got to get over yourself and realize that it takes a group to get this thing done.
+ - No one is bigger than the team. If you can’t do things our way, you’re not getting time here and we don’t care who you are.
+ - We believe in people executing their role and caring about the team more than anything individually.
+ - It’s never been my goal to be king of the prom. It’s been my goal to do the right thing and get the job done.
+ - Stop by stop by stop. Play aggressively. Sprint back on ‘D’ and pay attention to how we’re supposed to guard as a team.
+ - Basketball is a pretty simple game. What wins is consistency and competitiveness.
+ - I can’t make every decision for you. I don’t have 14 timeouts. You guys got to get together and talk.
+ - Nothing. I was confused for two years. I didn’t understand anything and I’m still confused.
+ - I’m not one to blow smoke at my players. They kicked our butts on the offensive boards. And it’s not just because the ball came their way.
+ - We would have two less championships here if it was not for Manu Ginobili. In my eyes, he’s the stud of the world.
+ - I asked them if it wasn’t too much trouble, if I wasn’t being too pushy, if they could execute what we were trying to do. And if it didn’t make them too angry, if they also wanted to play some defense on the other end, that would be great.
+ - You have to make shots to win basketball games and we didn’t do that. You also have to get back on defense, so it was a double-whammy.
+ - They won’t choose Joakim Noah as the MVP, but I think it’s great that he’s in the conversation and he should be. But it’s just not the way it works, from my experience. It’s got to go in the basket for you guys to pay attention to somebody. But he’s pretty damn valuable in my opinion.
+ - I don’t think we’ll shoot 76 percent in a half ever again. That’s crazy.
+ - I’m pleased that they performed as well as they did while we’ve been in Miami and that’s about as far as it goes. Now, we’ve got to go home and play as well or better.
+ - Timmy, he’s the beginning of it. He doesn’t have to be the end all the time now.
+ - In Phil’s case, I was personally thrilled he came back, because I think it’s huge for the league. When you think about what he’s done and how many championships he’s won, there’s always drama when he comes back in.
+ - A reporter started off: “I know a lot of this is kind of speculation.” Popovich interupting: “You’re going to ask me anyway.” Reporter: “And you’re going to shoot it down.” Popovich replied: “Next question.”
+
+19 quotes

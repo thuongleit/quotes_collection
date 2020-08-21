@@ -1,0 +1,22 @@
+ - Part of recovery is relapse. I dust myself off and move forward again.
+ - Loud is a way of life.
+ - I look in the mirror and see a few scars, but I like myself.
+ - My health is wonderful. I work out. I’m working. Playing music. I have a beautiful wife, a nice home, a nice car, I got money in the bank. I got three beautiful dogs that love me. Like I said, I’m blessed. I survived.
+ - There are so many Al Anon fans and friends who have shown me wonderful love, prayers, thoughts! I thank everyone for this. It feels great to have wonderful people behind you, pushing and praying for you. Mostly, I don’t want to let myself down, but they encourage me not to let them down.
+ - I thank God, Jesus, and my Grandmother for being able to support myself and my family.
+ - I’m very influenced by jazz drummers. I always liked drummers like Roger Taylor, Keith Moon, Ian Paice, John Densmore. I just learned from playing to those drummers.
+ - The only thing I want to be satisfied in life is to do one reunion tour with Guns N Roses. I would like to finish what I started with them.
+ - I just had lunch with Slash two days ago. He loves Axl. He holds no grudges towards him. Twenty years of great music wasn’t created because of some stupid grudge. That’s a shame.
+ - The golden rule of drums is hands clapping and feet tapping, and when you are in and out of consciousness, you can’t do that to best of your ability.
+ - I have to say, the coolest person I ever met in my whole life is John Mellencamp. I never met a person who was more secure about himself and his person.
+ - I’ve been blessed. I grew up and played and worked and created with the Freddie Mercury, the Jimi Hendrix, the Keith Richards, the John Paul Jones of my generation.
+ - It’s hard to find five musicians who know what the other is going to do before they do it. And that’s what we had in GN’R.
+ - Don’t try to follow any trends, just concentrate on writing great songs and knowing your instrument. All the other stuff will fall into place.
+ - People fight, they get angry, they do drugs, and they do crazy things.
+ - You figure that time could heal all wounds, but some people just really hold a crazy grudge.
+ - Every musician, their goal in life is to play music that people love, and I’ve accomplished my goal. I was inducted into the Rock and Roll Hall of Fame and left that chapter of my life and those people in the past. Good and bad, I’ve loved and am thankful for that chapter.
+ - I wasn’t able to make the full commitment until I met ‘Celebrity Rehab’s’ Dr. Drew.
+ - I used to wake up in the morning and say, ‘Oh, God.’ Now I wake up in the morning and look forward to life.
+ - Every 15, 20, 25 years, a new rock and roll record needs to come out and a new rock and roll band needs to come out.
+
+20 quotes

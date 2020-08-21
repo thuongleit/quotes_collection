@@ -1,0 +1,31 @@
+ - War is fear cloaked in courage.
+ - We have reached an important point when the end begins to come into view.
+ - Television is an instrument which can paralyze this country.
+ - I’ve made this statement many times: If I would have to do it over again, I would have made known the forthcoming Tet Offensive.
+ - President Johnson did not want the Vietnam War to broaden. He wanted the North Vietnamese to leave their brothers in the South alone.
+ - Without censorship, things can get terribly confused in the public mind.
+ - This was a type of war that we’d had no experience with before. Some of our policies were kind of trial and error in character.
+ - The military don’t start wars. Politicians start wars.
+ - They’re asking women to do impossible things. I don’t believe women can carry a pack, live in a foxhole, or go a week without a bath.
+ - We were succeeding. When you looked at specifics, this became a war of attrition. We were winning.
+ - Militarily, we succeeded in Vietnam. We won every engagement we were involved in out there.
+ - My wife was my greatest asset. I didn’t marry her until after World War II, but she has complemented me in every job I’ve ever had.
+ - When the soldiers came home from Vietnam, there were no parades, no celebrations. So they built the Vietnam Memorial for themselves.
+ - The last man in the world who should have been criticized was the American soldier. They should have criticized me.
+ - We’ll blast them back into the stone ages!
+ - The Vietnam memorial is a masterpiece. The names of the dead are listed there, chronologically. Just the names.
+ - When I took command in Vietnam, I gave great emphasis to food and medical care – and to the mail.
+ - I do not believe that the men who served in uniform in Vietnam have been given the credit they deserve. It was a difficult war against an unorthodox enemy.
+ - The military lead turbulent lives, but they are people like everybody else.
+ - As the senior commander in Vietnam, I was aware of the potency of public opinion – and I worried about it.
+ - It became very clear that Hanoi was in effect strategically running the Viet Cong operation.
+ - I don’t take criticism lying down.
+ - Anytime it was advertised that I was going to be at a particular place, the radicals would be there, the cameras with TV news.
+ - By the end of the summer of 1973 I thought it was virtually impossible for South Vietnam to survive. How in the heck could they?
+ - In the end, we lost IndoChina to the communists. But we did not lose Southeast Asia.
+ - I see battlefields that are under 24-hour real or near-real time surveillance of all types. I see battlefields on which we can destroy anything we can locate through instant communications and almost instantaneous application of highly lethal firepower.
+ - I was participating in my own lynching, but the problem was I didn’t know what I was being lynched for.
+ - I don’t think I have been loved by my troops, but I think I have been respected.
+ - I haven’t yet figured out how I was made first captain, because I was not an outstanding student. I was an adequate student.
+
+29 quotes

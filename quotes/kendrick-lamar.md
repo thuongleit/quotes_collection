@@ -1,0 +1,85 @@
+ - Build your own pyramids, write your own hieroglyphs.
+ - If I told you that a flower bloomed in a dark room, would you trust it?
+ - My rights, my wrongs, I write ’til I’m right with God.
+ - If I’m gonna tell a real story, I’m gonna start with my name.
+ - Life Will Put Many Red Lights In Front Of You, But Sometimes We Must Push On The Gas And Trust God.
+ - So next time you feel like your world is about to end, I hope you studied because He’s testing your faith again.
+ - I’d rather not live like there isn’t a God Then die and find out there really is Think about it.
+ - I learned, when I look in the mirror and tell my story, that I should be myself and not peep whatever everybody is doing.
+ - I’m standing on a field full of landmines doing the moonwalk hoping i blow up in time.
+ - What is love? Love to me is god.
+ - Hip-hop is not the problem, our reality is the problem.
+ - We hurt people that love us, love people that hurt us.
+ - The Universe energy doesn’t lie.
+ - Since day one, since the first time I touched the pen, I wanted to be the best at what I do.
+ - It’s easy to forget who you are.
+ - Don’t you know your imperfections is a wonderful blessing, from heaven is where you got it from.
+ - My mind is living on cloud 9 and this 9 is never on vacation.
+ - The one in front of the gun lives forever.
+ - It’s the beauty in her, But when the makeup occur, I don’t see it, All i see is a blur.
+ - You really can’t categorize my music, it’s human music.
+ - God to me is love. It’s the ruler of all things, whether it’s with a person or with music or with your TV. I feel like it’s this energy. God is energy, love is energy.
+ - Just let me be me, That’s the only way I know.
+ - The message I’m sending to myself – I can’t change the world until I change myself first.
+ - Although the butterfly and the caterpillar are completely different, they are one and the same.
+ - I think my worst problem is actually living in the moment and understanding everything that’s going on. I feel like I’m in my own bubble.
+ - I stole a Bible, is that a sin?
+ - The opposite of love? Vice. Temptation. The negative influences that we have. The bad energy that comes around us and makes us do certain things. To me, it’s always been a war between the two.
+ - As long as my music is real, it’s no limit to how many ears I can grab.
+ - I’m constantly thinking.
+ - Consequences from evil will make your past haunt you.
+ - We all get distracted, the question is, would you bounce back or bounce backwards?
+ - I don’t vote. I don’t do no voting.
+ - I want you to recognize that I’m a proud monkey.
+ - Found myself screaming in a hotel room. I didn’t want to self-destruct.
+ - Eventually you get to this point where you understand what you want to do and get across and sound like.
+ - My lyrics say I have morals, I have confidence, I have weaknesses, I have strong points, that I am a human being.
+ - Whatever pressure I feel all comes from me, from within. I always was that person who was hard on myself and challenged myself no matter what I was doing, whether it was passing third grade or playing basketball.
+ - I don’t talk about these things if I haven’t lived them, and I’ve hurt people in my life. It’s something I still have to think about when I sleep at night.
+ - Groups break up because they never got across what they wanted to do personally, and they have creative differences, and egos start to clash.
+ - I see conflict. But the conflict is what makes it relatable. I’m conflicted; you’re conflicted. I’m not perfect – nobody is. I’m just blessed to be able to express my conflict through song.
+ - My whole thing is to inspire, to better people, to better myself forever in this thing that we call rap, this thing that we call hip hop.
+ - Once I looked in the mirror and decided this is who I am, and I’m not scared of who I am, and I’m not scared that I can’t be like you, and I’m good with just doing me, that’s when I found myself, as a man.
+ - A dollar might turn to a million and we all rich that’s just how i feel.
+ - You can’t change where you from. You can’t take a person out of their zone and expect them to be somebody else now that they in the record industry. It’s gonna take years. Years of travelling. Years of meeting people. Years of seeing the world.
+ - At first, I was scared to show fear because you can never be sure how people will perceive you. But I dared myself to do that, to stand out. Now I’ll talk about being beaten up or robbed or making a stupid decision because of a girl or whatever.
+ - I knew I was blessed with a gift of having both parents.
+ - I think my vice would be outdoing myself.
+ - I like to let things breathe.
+ - You don’t hear no artists from Compton showing vulnerability.
+ - The worst part of success is, to me, adapting to it. It’s scary.
+ - What separated me from all my homeboys is the fact that I didn’t get caught inside the reality. I was always dreaming about doing something else or going somewhere else.
+ - I was a black sheep, but now I’m just a goat.
+ - While you have people who are actually fronting for your needs and wants, sometimes your needs and wants may not be right for you. The people around you are just trying to keep their jobs.
+ - Brother Kendrick Lamar: he’s not a rapper, he’s a writer, he’s an author. And if you read between the lines, we’ll learn how to love one another. But you can’t do that, I said you can’t do that, without loving yourself first.
+ - I always tell people that if I move anywhere it would be Toronto.
+ - I cut off my ears before i hear your advice and vice versa.
+ - I’ve got an extra-specific story about Dr. Dre. I saw him when I was 9 years old in Compton – him and Tupac. They were shooting the second ‘California Love’ video. My pops had seen him and ran back to the house and got me, put me on his neck, and we stood there watching Dre and Pac in a Bentley.
+ - I penetrate the hearts of good kids and criminals.
+ - I always thought money was something just to make me happy. But I’ve learned that I feel better being able to help my folks, ’cause we never had nothing. So just to see them excited about my career is more of a blessing than me actually having it for myself.
+ - My folks ain’t graduated from high school or nothing like that, so we always had to struggle in the family – and I come from a big family.
+ - I’m Machiavelli’s offspring, I’m the king of New York, king of the coast, one hand, I juggle them both.
+ - I aint a drinker Im a thinker, call it what you want.
+ - A lot of incredible rap albums over the past couple of decades have deserved Album of the Year. To Pimp a Butterfly is an extension of those albums.
+ - My mom’s one of 13 siblings, and they all got six kids, and till I was 13 everybody was in Compton.
+ - Hip-hop and being a pro athlete go hand in hand. When they come together, it’s a win, not just for your business brand but also for culture.
+ - Being able to tell one from start to finish, and making that puzzle come together at the end. That’s the art for me.
+ - The best thing is to always keep honest people around, because when you have a bunch of yes men around that know that you’re making a mistake but let you go on with it, that’s when it ruins your mind state as an artist.
+ - The moment I made that decision to get in the studio and actually work and study the culture of hip-hop, then everything just started to open up and blossom for me.
+ - My pops and my mom started playing Marvin Gaye and the Isley Brothers and all these people, but at the same time, they always had Snoop on right behind it in the same mix.
+ - I was raised inside the gang culture.
+ - When you go on your Twitter or look down your Timeline and it’s all great positivity – I love that. But at the same time, it can really divert you from what your purpose is or what you’re trying to do. And I’ve seen artists get caught up in that.
+ - It’s a great, great experience to finally get the reception that you know you rightfully deserve.
+ - You can have the platinum album, but when you still feel like you haven’t quite found your place in the world – it kind of gives a crazy offset.
+ - I probably spent more time listening to albums than writing songs. But I think that gave me all the tricks in terms of wordplay, from how I pronounced my words to the actual delivery.
+ - How am I influencing so many people on this stage rather than influencing the ones that I have back home?
+ - I don’t really believe in the type of pressure that people are wanting to put on the type of music that I make.
+ - There’s a lot of other artists doing things outside of that depth that I enjoy – that music that I can actually have fun to, and not be in depth and think about, then I appreciate that.
+ - People gonna be they own individuals and have they own worlds and I can’t knock it.
+ - The ultimate thing I want to do in making music is to be able to inspire somebody else.
+ - The thing about hip-hop is they always want to classify you as one particular artist, but hip-hop is about going outside the box and expressing yourself however you want to.
+ - I always felt like there was a certain standard of music that I had to do from the beginning, even when I didn’t have the recognition that I have now.
+ - Teenagers expressing this on a daily basis in the middle of the streets – you can’t help but believe we are in the mind state of taking our losses and changing people’s perceptions of us and our community. We are strong. Our families are tired of being hurt.
+ - I had to come from something, come from a place that was negative and positive but the majority of it is a negative place.
+
+83 quotes

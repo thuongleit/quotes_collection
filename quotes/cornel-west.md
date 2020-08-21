@@ -1,0 +1,223 @@
+ - We have to recognise that there cannot be relationships unless there is commitment, unless there is loyalty, unless there is love, patience, persistence.
+ - Never forget that justice is what love looks like in public.
+ - You can’t lead the people if you don’t love the people. You can’t save the people if you don’t serve the people.
+ - There is a price to pay for speaking the truth. There is a bigger price for living a lie.
+ - A rich life consists fundamentally of serving others, trying to leave the world a little better than you found it.
+ - Education is soul crafting.
+ - You can’t move forward until you look back.
+ - I cannot be an optimist but I am a prisoner of hope.
+ - You’ve got to be a thermostat rather than a thermometer. A thermostat shapes the climate of opinion; a thermometer just reflects it.
+ - To be an intellectual really means to speak a truth that allows suffering to speak.
+ - You can’t have a high-quality relationship without time and without trust.
+ - Courage is being true to yourself, true to a sense of integrity.
+ - The condition of truth is to allow suffering to speak, it means then that if you have a prophetic sensibility, you are committed to loving others and if you love others, you hate injustice.
+ - Anger can be a bitterness that devours your soul while righteous indignation is morally driven, it’s ethically driven.
+ - As long as hope remains and meaning is preserved, the possibility of overcoming oppression stays alive.
+ - I always felt called to serve, to empower and ennoble as many people as I could, teaching, truth-telling, exposing lies, bearing witness, and being willing to live and die for something bigger than yourself.
+ - Optimism is evidence-based.
+ - I loathe nationalism. It is a form of tribalism – the idolatry of the 20th century.
+ - Too many young folk have addiction to superficial things and not enough conviction for substantial things like justice, truth and love.
+ - Love is fundamentally a death of an old self that was isolated and the emergence of a new self now entangled with another self, the self that you fall in love with.
+ - The powerful have no monopoly on greed, hatred, fear, or ignorance.
+ - Courage is the enabling virtue for any philosopher – for any human being, I think, in the end. Courage to think, courage to love, courage to hope.
+ - Every empire suffers from hubris, arrogance and condescension, and therefore a moral blindness. That’s true of the American empire, it was true of the British Empireearlier, and it will certainly be true of the Chinese Empire in the future.
+ - And as a Christian, I got something the world didn’t give me, the world can’t take away, so I find joy that can never be reduced to anything.
+ - Empathy is not simply a matter of trying to imagine what others are going through, but having the will to muster enough courage to do something about it. In a way, empathy is predicated upon hope.
+ - To be human, at the most profound level, is to encounter honestly the inescapable circumstances that constrain us, yet muster the courage to struggle compassionately for our own unique individualities and for more democratic and free societies.
+ - To be human you must bear witness to justice.
+ - I’ve been blessed, I think, to have tremendous joy in my life in pursuing my vocation, my calling.
+ - Love and trust and justice, concern for the poor, that’s being pushed to the margins, and you can see it.
+ - A fully functional multiracial society cannot be achieved without a sense of history and open, honest dialogue.
+ - We have a market-driven society so obsessed with buying and selling and obsessed with power and pleasure and property.
+ - We are who we are because somebody loved us.
+ - The problem is not just affirmative action, though. The problem is poor people, working people and their children, and affirmative action for the most part doesn’t even apply to them.
+ - I have tried to be a man of letters in love with ideas in order to be a wiser and more loving person, hoping to leave the world just a little better than I found it.
+ - All individuals have the same value, not to be determined by market price. They’re made in the image and likeness of God.
+ - It takes more courage to examine the dark corners of your own soul than it does for a soldier to fight on the battlefield.
+ - Faith is stepping out on nothing and landing on something.
+ - We have to be militants for kindness, subversive for sweetness and radicals for tenderness.
+ - It takes tremendous discipline, takes tremendous courage, to think for yourself, to examine yourself.
+ - It’s a spiritual malnutrition tied to a moral constipation, where people have a sense of what’s right and what’s good. It’s just stuck, and they can’t get it out because there’s too much greed. There’s too much obsession with reputation and addiction to narrow conceptions of success.
+ - Be willing to learn, because none of us know the truth.
+ - It is very difficult to sustain a high-quality relationship that has the kind of mutual intensity, that has a kind of mutual respect, without putting in time.
+ - There is something about boldness and fearlessness and being free enough to speak what is on one’s mind that warrants freedom.
+ - The paradox of race in America is that our common destiny is more pronounced and imperiled precisely when our divisions are deeper.
+ - John Coltrane was an addict; Billie Holiday was an addict; Eugene O’Neill was an addict. What would America be without addicts and post-addicts who make such grand contributions to our society?
+ - When ordinary people wake up, elites begin to tremble in their boots.
+ - The white backlash has been at work for a long time. It’s been part and parcel of the Republican Party for the last 25 years or so, and it’s been highly successful up until Barack Obama was ingeniously able to come up with strategies to deal with it.
+ - All you have is a gift a to give.
+ - I’m a bluesman moving through a blues-soaked America, a blues-soaked world, a planet where catastrophe and celebration – joy and pain – sit side by side.
+ - The black church is dormant, much of the community is dormant. If the black church is leaning toward the right, much of the community is leaning toward the right. If it is leaning in the left wing direction having repercussions.
+ - I take my fundamental cue from John Coltrane that says there must be a priority of integrity, honesty, decency, and mastery of craft.
+ - White supremacy is so deep-seated that it’s hard to see it eliminated. But we could definitely push it back.
+ - To be great in our times too often means to have great prosperity and no moral magnanimity at all.
+ - As human beings, everyone has stuff coming at them, and a certain kind of fear.
+ - The rage is still there but I found the right kind of channel, because it’s tied to a love, it’s tied to a struggle for justice. And most importantly, for me, it’s tied to a recognition that I am a cracked vessel.
+ - The evil is so ubiquitous in terms of objectification of all of us, that one can say that almost about any TV and even radio show.
+ - Part of the challenge of the Barack Obama campaign was to try to neutralize that white backlash, and of course, he was masterful in doing that.
+ - The greatest gift you can give someone is the gift of inspiration.
+ - Aesthetics have substantial political consequences. How one views oneself as beautiful or not beautiful or desirable or not desirable has deep consequences in terms of one’s feelings of self-worth and one’s capacity to be a political agent.
+ - Music is what we need when language fails us, but we cannot remain silent.
+ - Racism is a moral catastrophe, most graphically seen in the prison industrial complex and targeted police surveillance in black and brown ghettos rendered invisible in public discourse.
+ - There is no fundamental social change by being simply of individual and interpersonal actions. You have to have organizations and institutions that make a fundamental difference.
+ - I believe that all of us have gangster proclivities and greedy orientations that need accountability. That’s why democracies are necessary. We have to have institutions to try to curtail the use of arbitrary power so that our greedy orientations and gangster-like proclivities don’t get out of hand.
+ - There’s a certain pleasure of the life of the mind that cannot be denied. There’s a certain pleasure about being around people who enact a playfulness when it comes to the world of ideas.
+ - We’re talking about a prison-industrial complex. We’re talking about a war on drugs that’s generating unprecedented levels of incarcerated folk. We’re talking about dilapidated housing. We’re talking about joblessness and underemployment.
+ - He who learns death unlearns slavery.
+ - When you place a high value on truth, you have to think for yourself.
+ - For me music is central, so when one’s talking about poetry, for the most part Plato’s talking primarily about words, where I talk about notes, I talk about tone, I talk about timbre, I talk about rhythms.
+ - To live is to wrestle with despair, yet never allow despair to have the last word.
+ - Does he have a double standard for black critics as opposed to white critics?
+ - This book is the best treatment of the best American Marxist philosopher-and the best philosopher to emerge from American slums. Young Sidney Hook is essential reading for anyone interested in democratic theory and practice in America.
+ - Life is such a mysterious thing that you are up one day; you are down the next day. A lot of the homeless brothers and sisters who were a success ten years ago, they are now on the street. Maybe ten years later they will be a success, but the crucial question is what is the quality of their life.
+ - Music is the very cement that has not just held the black community together but holds black selves together in a fundamental sense.
+ - I’m actually with the classics in general in terms of understanding truth in an existential mode. Therefore, philosophy becomes more a way of life as opposed to simply a mode of discourse.
+ - The only countervailing force against organized money at the top, is organized people at the bottom.
+ - Homophobia is very, very difficult to root out, to extricate. That’s why we have to bear witness. That’s why we have to be so public about it, and that’s why we can’t just play footsie with it.
+ - We’re all vanishing organisms and disappearing creatures in space and time – that death sentence in space in time that Kafka talked about with such profundity.
+ - I am not optimistic, but I’ve never been optimistic about humankind or America. The evidence never looks good in terms of forces for good actually becoming prominent.
+ - There are three dominant tendencies in a neoliberal society: financialized, privatized, militarized. And when it comes to black poor people, we get all three.
+ - We’re learning lessons from Africa. And the lesson that we need to learn is, how do we straighten our backs up in the face of these oligarchs and plutocrats who are trying to snatch the best of our democracy away?
+ - Jesus loves a free black man.
+ - We will not allow this day of the Martin Luther King, Jr. Memorial to go without somebody going to jail.
+ - When you think of 244 years of slavery and 81 years of that finally you are going to be allowed to be part of the pool from which people choose jobs. That’s not a substantive kind of move, but it was very important.
+ - I like to be multi-contextual, which is much more important than being multicultural.
+ - We want an economic team, Paul Krugman and Robert Kuttner, Joseph Steiglitz’s people and others, who say, you know what? We’re sophisticated economists but we’re concerned about poor and working people.
+ - Pleasure, no matter how desirable, is never innocent: it’s always presupposing and assuming a certain kind of social order, one usually shot through structures of domination.
+ - The wonderful thing about the black church for me is that it forces you to come to terms with the centrality of love in the world.
+ - Part of the popularity with Louis Farrakhan has less to do with the content of his message and more to do with the form that he portrays himself – as being a free, black person who speaks what is on his mind with boldness and fearlessness. Who is willing to pay the consequences.
+ - We want to bear witness today that we know the relation between corporate greed and what goes on too often in the Supreme Court decisions.
+ - Every president needs to deal with the permanent government of the country, and the permanent government of the country is Wall Street oligarchs and corporate plutocrats and the questions becomes what is the relationship between that president and Wall Street.
+ - I think, Tom Friedman is right, and I think that we have to – we have to have a serious public dialogue to try to shift public policy in that regard.
+ - We had a much deeper sense of community in ’67 than we do in ’97. This is important to say that not in a nostalgic way because it’s not as if ’67 was a time when things were so good.
+ - The question is really how do we think seriously about this mechanism called a market. It ought to be determining not values but prices.
+ - Being a Christian is not a political orientation for the president, but he is a centrist.
+ - Reelection ought not to be the primary preoccupation of any politician. It ought to be standing up for truth and justice.
+ - I try to, in my own fallible way, speak the truth.
+ - Prophetic pragmatism attempts to keep alive the sense of alternative ways of life and of struggle based on the best of the past. In this sense, the praxis of prophetic pragmatism is tragic action with revolutionary intent, usually reformist consequences and always visionary outlook.
+ - It’s just that the churches have been sleeping for a long time. A lot of people argue that the churches are even dead. I don’t believe they’re dead, but they’ve been sleeping, but they, I hope, will wake up, and that’s one of my tasks is to make sure they wake up as much as they do before I die.
+ - No community dictates to any individual how to live their lives. You can criticize and you can push but people freely choose.
+ - There’s no doubt that many of the mainstream white institutions tend to be cosmetic and symbolic when it comes to including African-Americans, whereas we black folk tend to be much more sensitive about embracing others, and we have a long history of that.
+ - Black people have always been America’s wilderness in search of a promised land.
+ - I must feel the fire of my soul so my intellectual blues can set others on fire.
+ - When it comes to our precious poor children of all colors, maybe disproportionally in percentage black and white and red, but all colors, yellow as well as white, we need to push toward integrated schools.
+ - We live in a predatory capitalist society in which everything is for sale. Everybody is for sale, so there is ubiquitous commodification – be it of music, food, people, or parking meters.
+ - For most of the history of the American empire, government has been a tool for preserving and furthering the power and might of white male corporate elites...
+ - For me, musicians are poets. Beethoven describes himself as a poet of tones, just like Coltrane’s a poet of tempo.
+ - I’m a bluesman, which means that I put an emphasis on the minor keys.
+ - The capacity to produce social chaos is the last resort of desperate people.
+ - When you love people, you give them a priority. You have a sense of urgency about their pain.
+ - The condition of truth is to allow suffering to speak – that gives it an existential emphasis.
+ - The blues aren’t pessimistic. We’re prisoners of hope but we tell the truth and the truth is dark.
+ - There’s simply no philosophizing without a love of wisdom, absolutely.
+ - It’s fashionable to be indifferent to other people’s suffering.
+ - You must let suffering speak, if you want to hear the truth.
+ - It’s impossible to translate Wall Street greed into one or two demands.
+ - Rap is just a movement within the larger culture of hip-hop.
+ - You see it even in our educational systems, where the market model becomes central. It’s a matter of just gaining a skill or gaining access to a job to live in some vanilla suburb, as opposed to becoming a critical citizen concerned with public interest and common good.
+ - As long as you’re scared you’re on the plantation.
+ - Black people have been working hard for decades.
+ - There is always a very delicate interplay between individual actions and institutional conditions.
+ - If the churches don’t move, much of the community won’t move. We’ve got a situation in which a black church is still a major institution in the black community where 55 percent of the black folk attend and over 75 pass through its doors.
+ - For me the prophetic has to do with mustering the courage to love, to empathize, to exercise compassion, and to be committed to justice.
+ - Clever gimmicks of mass distraction yield a cheap soulcraft of addicted and self-medicated narcissists.
+ - Poor people and working people have not been the focus of the Obama administration. That for me is not just a disappointment but a kind of betrayal.
+ - The most important assets we have are our bodies and our energy which can be put to good use as resources in political activism for poor and working people.
+ - The problem is that in America is that the nation state has been so weak when it comes to the history of big markets the history of big business in a way so we have a very weak welfare state compared to European nation states.
+ - It’s so easy to begin to demonize someone you think is so far removed and as the demonization begins to expand, it ends up being everybody but your friends. After a while everybody else but you. That is a slippery slope that is so easy to slide down, and that’s what is dangerous.
+ - It’s no accident that most of the great black spokespersons and leaders understood the centrality of self-affirmation, self-respect and self-love.
+ - This is what it is for Asians to be part of – support affirmative action, even though it may be against their interest, but they feel it’s a matter of justice.
+ - I remind young people everywhere I go, one of the worst things the older generation did was to tell them for twenty-five years “Be successful, be successful, be successful” as opposed to “Be great, be great, be great”. There’s a qualitative difference.
+ - If you are always trying to do something for a cause bigger than you – connected with serving others – then it is hard to be guilty.
+ - There are various forms of weaponry, intellectual weaponry, spiritual weaponry, political weaponry, economic weaponry. Because we are on the battlefield, and there are bullets flying, some symbolic, some literal and the life of the mind is a crucial place where the battle goes on.
+ - The conversation with the dead is one of the great pleasures of life. Somebody who is sitting reading Chekhov, Beckett, reading Toni Morrison – you are not in any way dead, in many ways you are intensely alive.
+ - I do believe that not just the churches but strong communities, strong trade unions, strong families can make a difference in terms of producing persons much more virtuous than what one usually finds in a gangster culture.
+ - I’m not saying that President Obama should be exempt from criticism, nor do I believe it is some act of racial treason for a black person to hold our president accountable for his actions.
+ - The most dangerous thing in American society is a self-respecting and self-loving black person, because they’re on the road to freedom and that means they’re gonna run up against the powers that be.
+ - I’m black, so, you know, I’m again with black folk, but it’s a love that spills over to vanilla suburbs and red reservations and brown barrios and yellow slices.
+ - We are a democracy and we don’t believe in just hunting down gangsters and killing them. We believe in trying to find the gangsters and bring them back for trial, and give them a trial under rule of law. That’s what democracies do.
+ - A black agenda is jobs, jobs, jobs, quality education, investment in infrastructure and strong democratic regulation of corporations. The black agenda, at its best, looks at America from the vantage point of the least of these and asks what’s best for all.
+ - Isabel Wilkerson’s book is a masterful narrative of the rich wisdom and deep courage of a great people. Don’t miss it!
+ - I don’t know of a great artist who did not sacrifice and thereby have to wrestle with the depths of loneliness and sadness.
+ - We can’t have a freedom struggle without free choice.
+ - American mainstream is obsessed with black creative genius – be it music, walk, style – but at the same time puts a low priority on the black social misery which is the very context out of which that creativity flows.
+ - You can see it in terms of the obsession on Wall Street with not just profits but greed, more profit, more profit.
+ - Drew Dellinger is one of the most creative, courageous and prophetic poets of his generation. I love his spirit. Don’t miss him!
+ - I’m not romanticizing black people, because we’ve got gangsters like everybody else.
+ - One is that I am a regular, everyday person, you know what I mean. I feel that wherever I am, I really am.
+ - To be a Christian is to live dangerously, honestly, freely – to step in the name of love as if you may land on nothing, yet to keep on stepping because the something that sustains you no empire can give you and no empire can take away.
+ - Philosophy is in fact a quest for wisdom based in sophia; that quest for wisdom has everything to do with a love of wisdom.
+ - Interrogate yours hidden assumptions.
+ - My dear brother Barack Obama has a certain fear of free black men. As a young brother who grows up in a white context, brilliant African father, he’s always had to fear being a white man with black skin. All he has known culturally is white. He has a certain rootlessness, a deracination.
+ - Frederick Douglas’s agenda was an agenda, not for black people to get out of slavery. It was for America to become a better democracy. And it’s spilt over for women’s rights; it’s split over for worker’s rights and so forth.
+ - I think we must never, ever demonize one another. That’s true not just black people to black people; that’s human being to human being.
+ - The aim is not for me to be right. The aim is to make sure that we keep the focus on the people who are suffering. That’s what we’re here for.
+ - You can’t talk about truth unless you talk about yourself.
+ - It would just be nice if we had leaders in Washington who could unequivocally take a stand on behalf of democratic movements in other parts of the world. And even this is true for even Brother Barack Obama.
+ - I would say you have to fight in the life of the mind as well as fight in the streets, as well as fight in the courts, as well as fight in congress and the White House. Every site is a sight of contestation.
+ - To me, healing means you have to recognize there is a wound and you try to understand what the sources of the wound are, which means you try to tell a story about how it came to be. So you have to engage in some historical interpretation.
+ - I love the academy in terms of the life of the mind and the world of ideas. I also love the streets. I love the churches and mosques and synagogues. I love the trade union centers. I love the community centers. I speak regularly at prisons and so forth.
+ - If the Kingdom of God is in you, you should leave a little bit of heaven wherever you go.
+ - You can’t talk about truth without talking about learning how to die because it’s precisely by learning how to die, examining yourself and transforming your old self into a better self, that you actually live more intensely and critically and abundantly.
+ - Patriarchy is a disease and we are in perennial recovery and relapse. So you have to get up every morning and struggle against it.
+ - I think anytime we talk about transforming in capitalist society, we are talking about a process not a particular event so you can’t talk about a socialist revolution.
+ - Hey, you got something going here. I think we’ve got a chance for some progressive policy that actually focuses on poor and working people.
+ - Try to just be true to ourselves, whoever we are, but willing to grow, even as we’re true to ourselves.
+ - Fantasies are real. They have effects on your soul, even though, as I was too young to really step forward.
+ - You’ve got to love yourself enough, not only so that others will be able to love you, but that you’ll be able to love others.
+ - There is no organizations and institutions that are worthwhile in terms of fighting for and dying for unless there is some individual integrity and character and virtue that is at work within various individuals in those institutions especially their leaders.
+ - Addiction is the dominant form of a culture that suffers from a superficial spectacle and celebrity-connectivity at its center. It’s a form of spiritual emptiness.
+ - For me, music is in no way ornamental or decorative, it’s constitutive of who I am.
+ - Truth is fine. Absolutely.
+ - Our politicians have sacrificed their principles on the altar of special interests; our corporate leaders have sacrificed their integrity on the altar of profits; and our media watchdogs have sacrificed the voice of dissent on the altar of audience competition.
+ - There ought to be a robust, uninhibited conversation in black America with different black ideological perspectives.
+ - Anytime I look at a president, I don’t care what color he is.
+ - When you are fundamentally committed to something that is right, you just decide to go down fighting. Period.
+ - A philosopher’s a lover of wisdom.
+ - We must never so thoroughly disrespect someone that they are beyond the pale and, therefore, have no possibility of being changed.
+ - When ordinary people wake up, elites begin to tremble in their boots. They can’t get away with their abuse. They can’t get away with subjection. They can’t get away with subjugation. They can’t get away with exploitation. They can’t get away with domination. It takes courage for folk to stand up.
+ - Sometime you just need to be silent, have a drink and crack a smile or somethin’, because the human condition, in general, is just overwhelming in so many ways.
+ - In situations of sparse resources along with degraded self-images and depoliticized sensibilities, one avenue for poor people is in existential rebellion and anarchic expression. The capacity to produce social chaos is the last resort of desperate people.
+ - Affirmative action is something that I think is very crucial and necessary.
+ - I’m not a pacifist at all; I think there is a notion of “just war” that can be persuasively argued. I think in the face of Nazis, in the face of apartheid, that I would have joined those armies. But that’s the last, last resort.
+ - We’ve got the wrong vision, the wrong values, the wrong priority, and as the great prophetic figure Marian Edelman Wright puts it, we have been AWOL when it comes to poor people and poor children.
+ - When black America is on the move, America is on the move.
+ - There is no such thing as institutional conditions without any individual actions and no such thing as individual action without institutional conditions. So there is always personal responsibility.
+ - Larry Summers, I think, he had a long history of arrogance and relative ignorance about poor people’s culture and working people’s culture and so forth.
+ - I was blessed to be part of a commercial, pushing for this energy bill, but we’ve been unsuccessful.
+ - I would want to conceive of philosophy as grounded in the very long humanist tradition that is the best of the West, which is open to the East and North and South.
+ - Context shapes who you are.
+ - Hatred of injustice is not the same thing as a love for everyday people.
+ - The important thing for me as an educator is how to – how do we unsettle the minds and touch the souls of significant numbers of young people who don’t read texts or don’t read my texts.
+ - If you view life as a gold rush, you’re going to end up worshiping a golden calf.
+ - There’s a number of hip-hop artists who are highly talented but politically retrograde.
+ - We’ve been talking about this for a good while, the immorality of drones, dropping bombs on innocent people. It’s been over 200 children so far. These are war crimes.
+ - I am excited to have a black president because white supremacy is real and it needs to be shattered.
+ - Philosophy is fundamentally about how you come to terms with living your life and trying to do it in a wise manner, and, for me, that means decently and compassionately and courageously and so forth.
+ - There used to be corporations that produced products. Now there are just banks that produce deals, hedge-fund-driven banks and derivatives and those things.
+ - If you can’t have a good time and smile and relate to people across race and class, then the success that you have ultimately is just sounding brass and tinkling symbol.
+ - And when I talk about love, I’m talking about something that’s great, though, brother. I’m talking about something that will sustain you.
+ - The black agenda, from Frederick Douglas to Ida B. Wells to Martin King, has always been the most broad, deep, inclusive, embracing agenda of the nation.
+ - Death is always a constant possibility and probability and of course an inevitability, as well.
+ - The courage to be is the most difficult thing for any human being.
+ - The challenge artists face today is whether to be an underground, unheard genius, or to dilute their art for the marketplace.
+ - It’s true that you might be socially isolated because you’re reading in the library, at home and so on, but you’re intensely alive. In fact you’re much more alive than these folk walking the streets of New York in crowds, with no intellectual interrogation and questioning going at all.
+ - Playboy has a long history of high-quality interviews along with the objectification of women, and so I think she does have a point there. I don’t think that the words are necessarily nullified. It’s just that that context is something you ought to be suspicious of.
+ - I think that when we talk about education I was also blessed to talk with my dear brother Arne Duncan. I had never met him, the secretary of Education. We had a wonderful talk. And I had told him quite explicitly education is a right, it’s not a race to the top.
+ - I have a whole lot of fun in trying to serve others and just keeping it funky, trying to keep it real, trying to ensure that we are able to be ourselves and get beyond these deodorized discourses and deodorized spaces that put on masks.
+ - We are intent on building a movement. The next step is grassroots town meetings. We must keep alive the dialogue around the covenants.
+ - You’re going to end up with a government in Egypt that is concerned about the precious Palestinians, the same way we ought to be concerned about both precious Palestinians and precious Jews.
+ - The women can always choose the patriarchal models, and you end up with a Margaret Thatcher.
+ - I had a passion and love of learning and wisdom that was inseparable from a love of music and the arts. I’ve never viewed them in any way as being separable.
+ - I think philosophy is all about lived experience, which is to say life in the streets, life in a variety of different contexts.
+ - Michael Jackson was part of that tremendous wave in the ocean of human expression and it happened to be located first and foremost in Gary, Indiana, working class.
+ - We have to be self-critical even in context that we might be critical of, even as we – our pieces appear in it.
+ - Success is such a relative thing for me. I’m fundamentally a Christian which means that ultimately all of the penultimate titles and things you just had to wear with a loose garment. Really.
+ - Why I can’t stand this phrase about I don’t have any permanent enemies, any permanent friends, only permanent interests. I can’t stand that. It’s a matter of principles. What kind of integrity, what kind of morality do you have?
+ - Rage is fine as long as it doesn’t deteriorate into bitterness.
+ - We need to put strong Democratic pressure on President Obama in the name of poor and working people.
+ - Poor people can be greedy, too. It’s just that they don’t have any material resources. We need shaping of the souls as well as shaping of our institutions.
+ - If we can’t get back to principles and integrity and it’s reduced just the interest of calculation and Machiavellian manipulation, we are in deep trouble.
+ - You’re trying to just leave the world a little better.
+
+221 quotes

@@ -1,0 +1,45 @@
+ - I do my best, and that’s all I can do.
+ - I just go out there and fight for every point, and then we see how far I can go.
+ - I’m thankful to be able to team up with a company like USANA that cares about my well-being and I know we can do great things together.
+ - I just like being around people, especially nice people, and there are a lot of nice girls on tour.
+ - There are a lot of things to my game I can still improve, but everyone can.
+ - I love winning. I don’t like losing.
+ - I never give up. Doesn’t matter what the score is.
+ - You feel better about yourself when you do something with yourself. You also feel more confident.
+ - I have proven people wrong so many times. I was told when I was younger there is no chance I will make the top 100, top 50, top 30. Every time I have proven them wrong. It’s kind of nice.
+ - I feel like everything is possible.
+ - The only one I feel pressure from is myself to go and give my all for every match and, obviously, I’m a competitor.
+ - I try to be myself and, of course, be a good role model. I don’t really find it hard, but you think about what you do and that other people look up to you.
+ - I have a really wide range of interests and I’ve still got time to work out my exact direction.
+ - I’m just taking one match at a time.
+ - As long as I win I’m doing something right.
+ - I think I’m a really tough player.
+ - I have nothing to lose and think that it’s a positive thing that I am young and playing on a good level.
+ - I like to be with my friends and my family, listen to music and read books. Things like that relax me.
+ - My dad has always been my coach. And I’ve spent so much time with him. So he’s one of my best friends. And I can talk to him about everything.
+ - One day my dad would say, ‘OK, if you want to play tennis I can help you out.’ And that’s how it started. And I had a goal. I wanted to beat my mom first. And my parents and my brother. And that was the ultimate goal.
+ - You can’t dwell in your past but move forward, look forward. That’s it.
+ - I don’t really spend money like crazy. I buy what I need and what I really want, and if I’m buying expensive things I do think about the purchase many times before I buy it.
+ - There are so many tough opponents out there and tough competitors so I’ve never liked to look ahead.
+ - My parents just always taught me to be reasonable.
+ - I think that’s my personality, to have a good laugh and not to take myself too seriously. And of course I have my things on the court but when I’m off the court I just like to have fun.
+ - On grass, it can be the small things that decide a match.
+ - The fact is I still have quite a few good years in front of me. I still improve.
+ - It’s very expensive to be a professional tennis player with all the travel and the flights and the hotels and everything.
+ - I have a very close relationship with my parents.
+ - In Denmark lots of people come up to me for autographs.
+ - I start laughing every time because the media talks to me like I’m finishing my career and I only have one year left and time is running out.
+ - Golf can be tougher than tennis when things go wrong, because you can’t explain things by saying that your opponent played better than you. It’s a cruel sport in that way.
+ - Young players are starting to come up as well and they will see me as one of the older, experienced ones.
+ - I’d like to do a lot of things – whether in design or architecture or business.
+ - I like Twitter a lot. It is a great way to get the fans knowing another side of you.
+ - I don’t know, I always get the question ‘how do you feel after the game today?’ and, of course, if you’re winning you feel great and if you lose you don’t feel good. I think that’s a pretty obvious question.
+ - I’m the type of player I am.
+ - My mom was always the support. I can always go out to her and she’ll always find the positive in things.
+ - There’s just nothing like playing on Arthur Ashe Stadium. It’s truly amazing.
+ - My parents paid me small amounts for cleaning my room or cleaning the dishes and stuff, but I never really had a real job before I started on my professional tennis career.
+ - I believe the best in people. I believe if you need a bathroom break you go to the bathroom. If you need treatment, you get treatment. I don’t think any rules should be changed.
+ - To be the world No. 1 has always been a dream for me.
+ - I used to always be the young one playing without pressure, but I am just happy to be where I am and enjoying my time.
+
+43 quotes

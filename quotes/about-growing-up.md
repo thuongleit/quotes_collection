@@ -1,0 +1,43 @@
+ - Pain is a part of growing-up. It is how we learn... ~~Dan Brown
+ - Don’t waste your youth growing up. ~~Pablo Picasso
+ - Too many people grow up. That’s the real trouble with the world, too many people grow up. They forget. They don’t remember what it’s like to be 12 years old. They patronize, they treat children as inferiors. Well I won’t do that. ~~Walt Disney
+ - You grow up the day you have the first real laugh at yourself. ~~Ethel Barrymore
+ - Growing up is hard. Otherwise everyone would do it. ~~Kim Harrison
+ - The wisest are the most annoyed at the loss of time. ~~Dante Alighieri
+ - I believe in humanity. We are an incredible species. We’re still just a child creature, we’re still being nasty to each other. And all children go through those phases. We’re growing up, we’re moving into adolescence now. When we grow up – man, we’re going to be something! ~~Gene Roddenberry
+ - Through education comes understanding. Through understanding comes true appreciation. All children are artists. The problem is how to remain an artist once he grows up. ~~Pablo Picasso
+ - May you grow up to be righteous, may you grow up to be true. May you always know the truth and see the lights surrounding you. May you always be courageous, stand upright and be strong. May you stay forever young. ~~Bob Dylan
+ - The mark of the immature man is that he wants to die nobly for a cause, while the mark of the mature man is that he wants to live humbly for one. ~~J.D. Salinger
+ - I am Peter Pan. He represents youth, childhood, never growing up, magic, flying. ~~Michael Jackson
+ - A child born today will grow up with no conception of privacy at all. ~~Edward Snowden
+ - If you didn’t grow up like I did then you don’t know, and if you don’t know it’s probably better you don’t judge. ~~Junot Díaz
+ - Children learn about the nature of the world from their family. They learn about power and about justice, about peace and about compassion within the family. Whether we oppress or liberate our children in our relationships with them will determine whether they grow up to oppress and be oppressed or to liberate and be liberated. ~~Desmond Tutu
+ - I don’t know the answer. Maybe no one knows. Maybe when you grow up, you’ll be the first to find out. ~~Carl Sagan
+ - Life would be infinitely happier if we could only be born at the age of eighty and gradually approach eighteen. ~~Mark Twain
+ - The question isn’t so much, Are you parenting the right way? as it is: Are you the adult you want your child to grow up to be? ~~Brené Brown
+ - Yes. Growing up is highly overrated. Just be an author. ~~Neil Gaiman
+ - I played futsal growing up in Baurd. In futsal you need to think quick and play quick so its easier for you when you move to normal football. ~~Pelé
+ - And Sam Vimes thought: Why is Young Sam’s nursery full of farmyard animals anyway? Why are his books full of moo-cows and baa-lambs? He is growing up in the city. He will only see them on a plate! They go sizzle! ~~Terry Pratchett
+ - God’s ultimate goal for your life on earth is not comfort, but character development. He wants you to grow up spiritually and become like Christ. ~~Rick Warren
+ - These young people naturally grow up with ideas different from ours, for they are born for times when we shall no longer be here. ~~Émile Zola
+ - The greatest day in your life and mine is when we take total responsibility for our attitudes. That's the day we truly grow up. ~~John C. Maxwell
+ - Growing old is mandatory; growing up is optional. ~~Chili Davis
+ - The old believe everything, the middle-aged suspect everything, the young know everything. ~~Oscar Wilde
+ - A diplomat is a man who always remembers a woman's birthday but never remembers her age. ~~Robert Frost
+ - We didn’t grow up with the sense that where we were was where we were gonna be. We grew up with the sense that where we were almost didn’t matter, because we will be becoming something greater. ~~Will Smith
+ - Values hold the team together, provide stability for the team to grow upon, measure the team’s performance, give direction and guidance and attract like-minded people. ~~John C. Maxwell
+ - Growing up is important, and I’ve got to do that gracefully, but also keep myself at a good pace. ~~Miley Cyrus
+ - You get on with your own life. Lettie gave it to you. You just have to grow up and try and be worth it. ~~Neil Gaiman
+ - I’ve grown up, everyone’s got to grow up. But there’s something inside me, I’m always going to have that little sort of – how do you say? – child streak. ~~Prince
+ - I’m a strong supporter of comfort breeds complacency. Growing up poor I wasn’t comfortable, my mom had to work so hard and I woke up one day and decided I was not going to come home until I could help her pay the bills. ~~Farrah Gray
+ - In a democracy, every little wrong idea may grow up to become national policy. ~~Ashleigh Brilliant
+ - When we were kids growing up in Liverpool, all we ever wanted to be was Elvis Presley. ~~Paul McCartney
+ - Gospel music was the thing that inspired me as a child growing up on a cotton farm, where work was drudgery and it was so hard that when I was in the field I sang all the time. Usually gospel songs because they lifted me up above that black dirt. ~~Johnny Cash
+ - I wasn’t aware that the world thought I was so weird and bizarre. But when you grow up, like I did, in front of 100 million people since the age of 5, you’re automatically different. ~~Michael Jackson
+ - There needs to be more variety on television so young girls growing up don’t feel pressured to look one specific way. Tall, thin, curvy, short, whatever you are, you are beautiful. ~~Demi Lovato
+ - It’s not a question of God ‘sending’ us to Hell. In each of us there is something growing up which will of itself be Hell unless it is nipped in the bud. ~~C. S. Lewis
+ - When I was younger, I could remember anything, whether it had happened or not; but my faculties are decaying now and soon I shall be so I cannot remember any but the things that never happened. It is sad to go to pieces like this but we all have to do it. ~~Mark Twain
+ - That’s the real trouble with the world. Too many people grow up. ~~Walt Disney
+ - Love does not begin and end the way we seem to think it does. Love is a battle, love is a war; love is a growing up. ~~James Baldwin
+
+41 quotes

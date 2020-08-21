@@ -1,0 +1,34 @@
+ - Education brings about opportunity, and in turn inspiration.
+ - Every child should have the opportunity to receive a quality education.
+ - The African-America n experience is one of the most important threads in the American tapestry.
+ - September 11 impressed upon us that life is a precious gift. Every life has a purpose. And I think we all have a duty to devote at least a small portion of our daily lives to ensuring that neither America nor the world ever forgets September 11.
+ - America has the best doctors, the best nurses, the best hospitals, the best medical technology, the best medical breakthrough medicines in the world. There is absolutely no reason we should not have in this country the best health care in the world.
+ - The notion that you have a blind trust but you can tell your trustee when to sell stock in it just doesn’t make any sense. It means you have a seeing eye trust and not a blind trust. It’s ridiculous.
+ - Individuals by themselves can make a difference. And by making a difference, you can improve the world.
+ - I am pro-life. I believe human life begins at conception. I also believe that embryonic stem cell research should be encouraged and supported.
+ - We are a strong, robust, and prosperous nation. Optimism is the essence of our success. It drives our creativity and emboldens our entrepreneurial spirit. It is what makes us invest in the future and accomplish our highest aims.
+ - The enemies of freedom will not prevail.
+ - Personal savings accounts to me are one of the most powerful things, not necessarily in saving, solvency, or bankruptcy of the program, but in guaranteeing, the words I used a few minutes ago, a safe and secure retirement for our seniors.
+ - America is moving forward and gaining strength. We have been tested, and we have proven ourselves to be a tough, resilient and resourceful nation.
+ - From blood banking to the modern subway, from jazz to social justice, the contributions of African Americans have shaped and molded and influenced our national culture and our national character.
+ - The United States has put more money on HIV, AIDS, malaria and tuberculosis than any country in the world and it’s having an impact real quick.
+ - Voluntary personal savings accounts would enable future retirees to harness the power of the marketplace when saving for their retirements.
+ - The American people expect and deserve a government that works and leaders who work together.
+ - It is our duty and our privilege to keep America moving forward.
+ - America enjoys the best health care in the world, but the best is no good if folks can’t afford it, access it and doctor’s can’t provide it.
+ - Social Security, a critically important, great program which does serve as the cornerstone of support for senior citizens, now faces challenges that threaten its long-term stability and well-being. The facts are there. The facts are crystal clear.
+ - This legislation confronts the human truth that the need for clean water knows no borders, and proper management and intervention can be a currency for peace and international cooperation.
+ - When we talk about safety and security of the American people, politics falls aside pretty quickly.
+ - We have determined enemies who will use any means available to take the lives of as many Americans as possible. They cheered when the Twin Towers fell. They dream of even larger calamities. They must be stopped. And that requires an intelligence system that finds them, before they harm us.
+ - Congress should be forward thinking in the policies we set, instead of waiting until catastrophe looms.
+ - In the wake of this disaster, the people of Louisiana, Mississippi, Alabama and Florida should know that the United States Congress stands ready to help them in their time of need,.
+ - Our top focus – protecting our Nation – must go beyond homeland preparedness; America will only be secure if we deal with threats before they happen, not just after they happen.
+ - The number one killer of children in Rwanda is malaria. Since the United States of America stood up and working with Rwandans, we have been able to cut those deaths by two-thirds.
+ - It is very important that the president thematically shows where we’re going in terms of the vision and an agenda.
+ - Space offers extraordinary potential for commerce and adventure, for new innovations and new tests of will. As Americans, we can’t help but reach for the stars. It’s our nature. It’s our destiny.
+ - The survival of liberty in our land increasingly depends on the success of liberty in other lands. The best hope for peace in our world is the expansion of freedom in all the world.
+ - I am troubled that someone would sell a book, trading on their service as a government insider with access to our nation’s most valuable intelligence, in order to profit from the suffering that this nation endured on September 11, 2001.
+ - Sound science must be a basis to governing our trade relations around the globe.
+ - Just two weeks ago, millions of Iraqis defied the threats of terrorists and went to the polls to determine their own future. I congratulate the Iraqi people for the courage they’ve shown in making these elections so successful.
+
+32 quotes

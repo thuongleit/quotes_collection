@@ -1,0 +1,353 @@
+ - Patience is not passive; on the contrary, it is active; it is concentrated strength.
+ - Music, once admitted to the soul, becomes a sort of spirit, and never dies.
+ - Revolutions are not made with rosewater.
+ - A fool flatters himself, a wise man flatters the fool.
+ - To be happy, you must learn to forget yourself.
+ - Ambition has no rest.
+ - Business first, then pleasure.
+ - Patience is the courage of the conqueror, the strength of man against destiny.
+ - Power is so characteristically calm, that calmness in itself has the aspect of strength.
+ - Personal liberty is the paramount essential to human dignity and human happiness.
+ - Archaeology is not only the hand maid of history, it is also the conservator of art.
+ - Nothing is so contagious as enthusiasm.
+ - We are born for a higher destiny than that of earth; there is a realm where the rainbow never fades, where the stars will be spread before us like islands that slumber on the ocean, and where the beings that pass before us like shadows will stay in our presence forever.
+ - To find what you seek in the road of life, the best proverb of all is that which says: Leave no stone unturned.
+ - A pipe is the fountain of contemplation, the source of pleasure, the companion of the wise; and the man who smokes, thinks like a philosopher and acts like a Samaritan.
+ - Reading without purpose is sauntering not exercise.
+ - What’s money without happiness?
+ - A good cigar is as great a comfort to a man as a good cry to a woman.
+ - Genius is but fine observation strengthened by fixity of purpose.
+ - The circle of life is cut up into segments. All lines are equal if they are drawn from the centre and touch the circumference.
+ - What ever our wandering our happiness will always be found within a narrow compass, and in the middle of the objects more immediately within our reach.
+ - Enthusiasm is the genius of sincerity and truth accomplishes no victories without it.
+ - Talk not of genius baffled. Genius is master of man. Genius does what it must, and Talent does what it can.
+ - The true spirit of conversation consists in building on another man’s observation, not overturning it.
+ - You know There are moments when silence, prolonged and unbroken, More expressive may be than all words ever spoken.
+ - Common sense is only a modification of talent. Genius is an exaltation of it. The difference is, therefore, in degree, not nature.
+ - There is nothing so agonizing to the fine skin of vanity as the application of a rough truth.
+ - Midnight, and love, and youth, and Italy!
+ - The mate for beauty should be a man and not a money chest.
+ - Labour is the purgatory of the erring.
+ - A friend who stands with you in pressure is more valuable than a hundred ones who stand with you in pleasure.
+ - Love is the business of the idle, but the idleness of the busy.
+ - Love sacrifices all things to bless the thing it loves.
+ - The veil which covers the face of futurity is woven by the hand of mercy.
+ - In the lexicon of youth which fate reserves for a bright manhood, there is no such word as fail.
+ - We lose the peace of years when we hunt after the rapture of moments.
+ - Punctuality is a virtue, If you don’t mind being lonely.
+ - Every street has two sides, the shady side and the sunny. When two men shake hands and part, mark which of the two takes the sunny side; he will be the younger man of the two.
+ - Power is so characteristically calm that calmness in itself has the aspect of power, and forbearance implies strength. The orator who is known to have at his command all the weapons of invective is most formidable when most courteous.
+ - It is destiny phrase of the weak human heart! ‘It is destiny’ dark apology for every error! The strong and virtuous admit no destiny.
+ - Give, and you may keep your friend it you lose your money; lend, and the chances are that you lose your friend if ever you get back your money.
+ - Love like Death,, Levels all ranks, and lays the shepherd’s crook Beside the scepter.
+ - Emotion, whether of ridicule, anger, or sorrow, – whether raised at a puppet show, a funeral, or a battle, – is your grandest of levellers. The man who would be always superior should be always apathetic.
+ - Beautiful eyes in the face of a handsome woman are like eloquence to speech.
+ - Good humor is the sunshine of the mind.
+ - If a good face is a letter of recommendation, a good heart is a letter of credit.
+ - To dispense with ceremony is the most delicate mode of conferring a compliment.
+ - All doubt is cowardice – all trust is brave.
+ - Man must be disappointed with the lesser things of life before he can comprehend the full value of the greater.
+ - Love is rarely a hypocrite; but hate – how detect and how guard against it! It lurks where you least expect it; it is created by causes that you can the least foresee; and civilization multiplies its varieties, whilst it favors its disguise.
+ - Love creates, love cements, love enters and harmonizes all things.
+ - Men who make money rarely saunter; men who save money rarely swagger.
+ - Remorse is the echo of a lost virtue.
+ - What is human is immortal!
+ - We love the beautiful and serene, but we have a feeling as deep as love for the terrible and dark.
+ - Sharp is the kiss of the falcon’s beak.
+ - Husband and wife have so many interests in common that when they have jogged through the ups and downs of life a sufficient time, the leash which at first galled often grows easy and familiar.
+ - The man who wants his wedding garments to suit him must allow plenty of time for the measure.
+ - He who doth not smoke hath either known no great griefs, or refuseth himself the softest consolation, next to that which comes from heaven.
+ - The more a man desirous to pass at a value above his worth can contrast, by dignified silence, the garrulity of trivial minds, the more the world will give him credit for the wealth which he does not possess.
+ - Our ideas, like orange-plants, spread out in proportion to the size of the box which imprisons the roots.
+ - Self-confidence is not hope; it is the self-judgment of your own internal forces in their relation to the world without, which results from the failure of many hopes and the non-realization of many fears.
+ - There is no such thing as luck. It’s a fancy name for being always at our duty, and so sure to be ready when good time comes.
+ - Hobbies should be wives, not mistresses. It will not do to have more than one at a time. One hobby leads you out of extravagance; a team of hobbies you cannot drive till you are rich enough to find corn for them all. Few men are rich enough for that.
+ - Kindness like light speaks in the air it gilds.
+ - There is no man so friendless but that he can find a friend sincere enough to tell him disagreeable truths.
+ - Every great man exhibits the talent of organization or construction, whether it be in a poem, a philosophical system, a policy, or a strategy. And without method there is no organization nor construction.
+ - When you talk to the half-wise, twaddle; when you talk to the ignorant, brag; when you talk to the sagacious, look very humble and ask their opinion.
+ - The man who smokes, thinks like a sage and acts like a Samaritan.
+ - The same refinement which brings us new pleasures exposes us to new pains.
+ - The best teacher is the one who suggests rather than dogmatizes, and inspires his listener with the wish to teach himself.
+ - The desire of excellence is the necessary attribute of those who excel. We work little for a thing unless we wish for it.
+ - Jewelry and profuse ornaments are unmistakable evidences of vulgarity.
+ - Whenever man commits a crime heaven finds a witness.
+ - Tell me, sweet eyes, from what divinest star did ye drink in your liquid melancholy?
+ - Castles in the air cost a vast deal to keep up.
+ - To how many is the death of the beloved the parent of faith!
+ - Genius has no brother.
+ - The strong and virtuous admit no destiny.
+ - In other countries poverty is a misfortune – with us it is a crime.
+ - Fate! There is no fate. Between the thought and the success God is the only agent. Fate is not the ruler, but the servant of Providence.
+ - The food of hope is meditative action.
+ - The cleverness of avarice is but the cunning of imbecility.
+ - Come, Death, and snatch me from disgrace.
+ - Happy indeed the poet of whom, like Orpheus, nothing is known but an immortal name! Happy next, perhaps, the poet of whom, like Homer, nothing is known but the immortal works. The more the merely human part of the poet remains a mystery, the more willing is the reverence given to his divine mission.
+ - Only by the candle, held in the skeleton hand of Poverty, can man read his own dark heart.
+ - Time, O my friend, is money! Time wasted can never conduce to money well managed.
+ - Art employs method for the symmetrical formation of beauty, as science employs it for the logical exposition of truth; but the mechanical process is, in the last, ever kept visibly distinct, while in the first it escapes from sight amid the shows of color and the curves of grace.
+ - Love is on the verge of hate each time it stoops for pardon.
+ - Money never can be well managed if sought solely through the greed of money for its own sake. In all meanness there is a defect of intellect as well as of heart. And even the cleverness of avarice is but the cunning of imbecility.
+ - The real truthfulness of all works of imagination, sculpture, painting, and written fiction, is so purely in the imagination, that the artist never seeks to represent positive truth, but the idealized image of a truth.
+ - Life is short – while we speak it flies; enjoy, then, the present, and forget the future; such is the moral of ancient poetry, a graceful and a wise moral – indulged beneath a southern sky, and all deserving, the phrase applied to it – the philosophy of the garden.
+ - Remedy your deficiencies, and your merits will take care of themselves. Every man has in him good and evil. His good is his valiant army, his evil is his corrupt commissariat; reform the commissariat and the army will do its duty.
+ - Read to live, not live to read.
+ - We are not such fools as to pay for reading inferior books, when we can read superior books for nothing.
+ - Life, that ever needs forgiveness, has, for its first duty, to forgive.
+ - In every civilized society there is found a race of men who retain the instincts of the aboriginal cannibal and live upon their fellow-men as a natural food.
+ - Fortune is said to be blind, but her favorites never are. Ambition has the eye of the eagle, prudence that of the lynx; the first looks through the air, the last along the ground.
+ - What a rare gift, by the by, is that of manners! how difficult to define, how much more difficult to impart! Better for a man to possess them than wealth, beauty, or talent; they will more than supply all.
+ - Strive, while improving your one talent, to enrich your whole capital as a man. It is in this way that you escape from the wretched narrow-mindedness which is the characteristic of every one who cultivates his specialty alone.
+ - Youth is in danger until it learns to look upon debts as furies.
+ - There is certainly something of exquisite kindness and thoughtful benevolence in that rarest of gifts, – fine breeding.
+ - A man is arrogant in proportion to his ignorance. Man’s natural tendency is to egotism. Man, in his infancy of knowledge, thinks that all creation was formed for him.
+ - There are two avenues from the little passions and the drear calamities of earth; both lead to the heaven and away from hell-Art and Science. But art is more godlike than science; science discovers, art creates.
+ - The poet in prose or verse – the creator – can only stamp his images forcibly on the page in proportion as he has forcibly felt, ardently nursed, and long brooded over them.
+ - And, of all the things upon earth, I hold that a faithful friend is the best.
+ - A reform is a correction of abuses; a revolution is a transfer of power.
+ - Law dies, books never.
+ - I believe that there is much less difference between the author and his works than is currently supposed; it is usually in the physical appearance of the writer, – his manners, his mien, his exterior, – that he falls short of the ideal a reasonable man forms of him – rarely in his mind.
+ - Chance happens to all, but to turn chance to account is the gift of few.
+ - Dandies, when first-rate, are generally very agreeable men.
+ - He who sees his heir in his own child, carries his eye over hopes and possessions lying far beyond his gravestone, viewing his life, even here, as a period but closed with a comma. He who sees his heir in another man’s child sees the full stop at the end of the sentence.
+ - Ere yet we yearn for what is out of our reach, we are still in the cradle. When wearied out with our yearnings, desire again falls asleep; we are on the death-bed.
+ - Man hazards the condition and loses the virtues of a freeman, in proportion as he accustoms his thoughts to view without anguish or shame, his lapse into the bondage of debtor.
+ - It is a very high mind to which gratitude is not a painful sensation. If you wish to please, you will find it wiser to receive, solicit even, favors, than accord them; for the vanity of the obligor is always flattered, that of the obligee rarely.
+ - It is an error to suppose that courage means courage in everything.
+ - The learned compute that seven hundred and seven millions of millions of vibrations have to penetrate the eye before the eye can distinguish the tints of a violet.
+ - Earnest men never think in vain, though their thoughts may be errors.
+ - There are two lives to each of us, the life of our actions, and the life of our minds and hearts. History reveals men’s deeds and their outward characters, but not themselves. There is a secret self that has its own life, unpenetrated and unguessed.
+ - To the thinker, the most trifling external object often suggests ideas, which, like Homer’s chain, extend, link after link, from earth to heaven.
+ - Nothing so good as a university education, nor worse than a university without its education.
+ - Genius, the Pythian of the beautiful, leaves its large truths a riddle to the dull.
+ - The mind profits by the wrecks of every passion.
+ - If thou be industrious to procure wealth, be generous in the disposal of it. Man never is so happy as when he giveth happiness unto another.
+ - There is one form of hope which is never unwise, and which certainly does not diminish with the increase of knowledge. In that form it changes its name, and we call it patience.
+ - The man who has acquired the habit of study, though for only one hour every day in the year, and keeps to the one thing studied till it is mastered, will be startled to see the way he has made at the end of a twelvemonth.
+ - A woman is seldom merciful to the man who is timid.
+ - To mourn deeply for the death of another loosens from myself the petty desire for, and the animal adherence to life. We have gained the end of the philosopher, and view without shrinking the coffin and the pall.
+ - In life, as in whist, hope nothing from the way cards may be dealt to you. Play the cards, whatever they be, to the best of your skill.
+ - Rarest of all things on earth is the union in which both, by their contrasts, make harmonious their blending; each supplying the defects of the helpmate, and completing, by fusion, one strong human soul.
+ - The prudent person may direct a state, but it is the enthusiast who regenerates or ruins it.
+ - Fiction may be said to be the caricature of history.
+ - As the films of clay are removed from our eyes, Death loses the false aspect of the spectre, and we fall at last into its arms as a wearied child upon the bosom of its mother.
+ - Though Hope be a small child, she can carry a great anchor!
+ - Bu is a word that cools many a warm impulse, stifles many a kindly thought, puts a dead stop to many a brotherly deed. No one would ever love his neighbor as himself if he listened to all the Buts that could be said.
+ - The heart of a girl is like a convent – the holier the cloister, the more charitable the door.
+ - Rank is a great beautifier.
+ - Earnestness is the best gift of mental power, and deficiency of heart is the cause of many men never becoming great.
+ - What men want is not talent, it is purpose; in other words, not the power to achieve, but the will to labor.
+ - Agreeable surprises are the perquisites of youth.
+ - The magic of the tongue is the most dangerous of all spells.
+ - Character is money; and according as the man earns or spends the money, money in turn becomes character. As money is the most evident power in the world’s uses, so the use that he makes of money is often all that the world knows about a man.
+ - Every man who observes vigilantly, and resolves steadfastly, grows unconsciously into genius.
+ - A woman too often reasons from her heart; hence two-thirds of her mistakes and her troubles.
+ - Two lives that once part are as ships that divide.
+ - Better than fame is still the wish for fame, the constant training for a glorious strife.
+ - Youth, with swift feet, walks onward in the way; the land of joy lies all before his eyes.
+ - At court one becomes a sort of human ant eater, and learns to catch one’s prey by one’s tongue.
+ - Not in the knowledge of things without, but in the perfection of the soul within, lies the empire of man aspiring to be more than man.
+ - Money is a terrible blab; she will betray the secrets of her owner, whatever he do to gag her. His virtues will creep out in her whisper; his vices she will cry aloud at the top of her tongue.
+ - Evening is the delight of virtuous age; it seems an emblem of the tranquil close of busy life – serene, placid, and mild, with the impress of its great Creator stamped upon it; it spreads its quiet wings over the grave, and seems to promise that all shall be peace beyond it.
+ - Man only of all earthly creatures, asks, Can the dead die forever? – and the instinct that urges the question is God’s answer to man, for no instinct is given in vain.
+ - Nothing ages like laziness.
+ - A prudent consideration for Number One.
+ - Birds sing in vain to the ear, flowers bloom in vain to the eye, of mortified vanity and galled ambition. He who would know repose in retirement must carry into retirement his destiny, integral and serene, as the Caesars transported the statue of Fortune into the chamber they chose for their sleep.
+ - What is past is past, there is a future left to all men, who have the virtue to repent and the energy to atone.
+ - The fewer blows, the better. Brave men fight if they must; wise men never fight if they can help it.
+ - When one is in a good sound rage, it is astonishing how calm one can be.
+ - Irony is to the high-bred what billingsgate is to the vulgar; and when one gentleman thinks another gentleman an ass, he does not say it point-blank, he implies it in the politest terms he can invent.
+ - It is a glorious fever, desire to know.
+ - Vanity, indeed, is the very antidote to conceit; for while the former makes us all nerve to the opinion of others, the latter is perfectly satisfied with its opinion of itself.
+ - Trees that, like the poplar, lift upward all their boughs, give no shade and no shelter, whatever their height. Trees the most lovingly shelter and shade us, when, like the willow, the higher soar their summits, the lower drop their boughs.
+ - Expression is the mystery of beauty.
+ - In belief lies the secret of all valuable exertion.
+ - A gentleman’s taste in dress is upon principle, the avoidance of all things extravagant. It consists in the quiet simplicity of exquisite neatness; but, as the neatness must be a neatness in fashion, employ the best tailor; pay him ready money, and, on the whole, you wi11 find him the cheapest.
+ - Imitation, if noble and general, insures the best hope of originality.
+ - In science, address the few, in literature the many. In science, the few must dictate opinion to the many; in literature, the many, sooner or later, force their judgement on the few.
+ - Grief alone can teach us what is man.
+ - There is an ill-breeding to which, whatever our rank and nature, we are almost equally sensitive, the ill-breeding that comes from want of consideration for others.
+ - There is but one philosophy and its name is fortitude! To bear is to conquer our fate.
+ - If you wish to be loved, show more of your faults than your virtues.
+ - As the excitement of the game increases, prudence is sure to diminish.
+ - It is often the easiest move that completes the game.
+ - Fate whirls on the bark, and the rough gale sweeps from the rising tide the lazy calm of thought.
+ - He whom God hath gifted with a love of retirement possesses, as it were, an extra sense.
+ - A man’s own conscience is his sole tribunal, and he should care no more for that phantom “opinion” than he should fear meeting a ghost if he crossed the churchyard at dark.
+ - A man’s heart must be very frivolous if the possession of fame rewards the labor to attain it. For the worst of reputation is that it is not palpable or present – we do not feel or see or taste it.
+ - A fresh mind keeps the body fresh.
+ - Tears are akin to prayer – Pharisees parade prayers, imposters parade tears.
+ - In how large a proportion of creatures is existence composed of one ruling passion, the most agonizing of all sensations – fear.
+ - Dream manfully and nobly, and thy dreams shall be prophets.
+ - People praise us behind our backs, but we hear them not; few before our faces, and who is not suspicious of the truth of such praise?
+ - Days are like years in the love of the young, when no bar, no obstacle, is between their hearts, – when the sun shines, and the course runs smooth – when their love is prosperous and confessed.
+ - Political freedom is, or ought to be, the best guaranty for the safety and continuance of spiritual, mental, and civil freedom. It is the combination of numbers to secure the liberty to each one.
+ - Shame is like the weaver’s thread; if it breaks in the net, it is wholly imperfect.
+ - Real philosophy seeks rather to solve than to deny.
+ - A mind once cultivated will not lie fallow for half an hour.
+ - There are times when the mirth of others only saddens us, especially the mirth of children with high spirits, that jar on our own quiet mood.
+ - Keep unscathed the good name; keep out of peril the honor without which even your battered old soldier who is hobbling into his grave on half-pay and a wooden leg would not change with Achilles.
+ - Thought is valuable in proportion as it is generative.
+ - It is not by the gray of the hair that one knows the age of the heart.
+ - Men of strong affections are jealous of their own genius. They fear lest they should be loved for a quality, and not for themselves.
+ - A man is already of consequence in the world when it is known that we can implicitly rely upon him. Often I have known a man to be preferred in stations of honor and profit because he had this reputation: When he said he knew a thing, he knew it, and when he said he would do a thing, he did it.
+ - I was always an early riser. Happy the man who is! Every morning day comes to him with a virgin’s love, full of bloom and freshness. The youth of nature is contagious, like the gladness of a happy child.
+ - The grave is, I suspect, the sole commonwealth which attains that dead flat of social equality that life in its every principle so heartily abhors.
+ - How little praise warms out of a man the good that is in him, as the sneer of contempt which he feels is unjust chill the ardor to excel.
+ - It is difficult to say who do you the most mischief: enemies with the worst intentions or friends with the best.
+ - What mankind wants is not talent; it is purpose.
+ - The commerce of intellect loves distant shores. The small retail dealer trades only with his neighbor; when the great merchant trades he links the four quarters of the globe.
+ - Poets alone are sure of immortality; they are the truest diviners of nature.
+ - Beside one deed of guilt, how blest is guiltless woe!
+ - When you borrow on your character, it is your character that you leave in pawn.
+ - Books are but waste paper unless we spend in action the wisdom we get from thought.
+ - Fine natures are like fine poems; a glance at the first two lines suffices for a guess into the beauty that waits you if you read on.
+ - Poverty is relative, and, therefor not ignoble.
+ - Master books, but do not let them master you.
+ - I did not fall into love – I rose into love.
+ - We tell our triumphs to the crowds, but our own hearts are the sole confidants of our sorrows.
+ - O woman! woman! thou shouldest have few sins of thine own to answer for! Thou art the author of such a book of follies in a man that it would need the tears of all the angels to blot the record out.
+ - My father died shortly after I was twenty-one; and being left well off, and having a taste for travel and adventure, I resigned, for a time, all pursuit of the almighty dollar, and became a desultory wanderer over the face of the earth.
+ - The first essential to success in the art you practice is respect for the art itself.
+ - We must remember how apt man is to extremes – rushing from credulity and weakness to suspicion and distrust.
+ - The curse of the great is ennui.
+ - It is, the most beautiful truth in morals that we have no such thing as a distinct or divided interest from our race. In their welfare is ours, and by choosing the broadest paths to effect their happiness we choose the surest and the shortest to our own.
+ - Happiness and virtue rest upon each other; the best are not only the happiest, but the happiest are usually the best.
+ - The Italians have voices like peacocks – German gives me a cold in the head – and Russian is nothing but sneezing.
+ - Some have the temperament and tastes of genius, without its creative power. They feel acutely, but express tamely.
+ - The worst part of an eminent man’s conversation is, nine times out of ten, to be found in that part by which he means to be clever.
+ - In science, read, by preference, the newest works; in literature the oldest.
+ - There is no policy like politeness; and a good manner is the best thing in the world either to get a good name, or to supply the want of it.
+ - Why should the soul ever repose? God, its Principle, reposes never.
+ - The object of ambition, unlike that of love, never being wholly possessed, ambition is the more durable passion of the two.
+ - There is no man so great as not to have some littleness more predominant than all his greatness. Our virtues are the dupes, and often only the plaything of our follies.
+ - Oratory, like the drama, abhors lengthiness; like the drama, it must keep doing. It avoids, as frigid, prolonged metaphysical soliloquy. Beauties themselves, if they delay or distract the effect which should be produced on the audience, become blemishes.
+ - Faith builds in the dungeon and lazarhouse its sublimest shrines; and up, through roofs of stone, that shut out the eye of heaven, ascends the ladder where the angels glide to and fro, – prayer.
+ - Whatever you lend let it be your money, and not your name. Money you may get again, and, if not, you may contrive to do without it; name once lost you cannot get again.
+ - But never yet the dog our country fed, Betrayed the kindness or forgot the bread.
+ - The world thinks eccentricity in great things is genius, but in small things, only crazy.
+ - Fate is not the ruler, but the servant of Providence.
+ - Death is the only monastery; the tomb is the only cell, and the grave that adjoins the convent is the bitterest mock of its futility.
+ - Love thou rose, yet leave it on its stem.
+ - The affections are immortal! They are the sympathies which unite the ceaseless generations.
+ - Philosophers have done wisely when they have told us to cultivate our reason rather than our feelings, for reason reconciles us to the daily things of existence; our feelings teach us to yearn after the far, the difficult, the unseen.
+ - The faults of a brilliant writer are never dangerous on the long run; a thousand people read his work who would read no other; inquiry is directed to each of his doctrines; it is soon discovered what is sound and what is false; the sound become maxims, and the false beacons.
+ - Business dispatched is business well done, but business hurried is business ill done.
+ - The great secrets of being courted are, to shun others, and seem delighted with yourself.
+ - People who are very vain are usually equally susceptible; and they who feel one thing acutely, will so feel another.
+ - A good heart is better than all the heads in the world.
+ - No author ever drew a character consistent to human nature, but he was forced to ascribe to it many inconsistencies.
+ - Men never forgive those in whom there is nothing to pardon.
+ - Every man loves and admires his own country because it produced him.
+ - In one of the Welsh counties is a small village called A – –. It is somewhat removed from the high road, and is, therefore, but little known to those luxurious amateurs of the picturesque, who view nature through the windows of a carriage and four.
+ - Keep we to the broad truths before us; duty here; knowledge comes alone in the Hereafter.
+ - Every man of sound brain whom you meet knows something worth knowing better than yourself. A man, on the whole, is a better preceptor than a book. But what scholar does not allow that the dullest book can suggest to him a new and a sound idea?
+ - Bright and illustrious illusions! Who can blame, who laugh at the boy, who not admire and commend him, for that desire of a fame outlasting the Pyramids by which he insensibly learns to live in a life beyond the present, and nourish dreams of a good unattainable by the senses?
+ - Women love energy and grand results.
+ - Never, be argued out of your soul, never be argued out of your honor, and never be argued into believing that soul and honor do not run a terrible risk if you limp into life with the load of a debt on your shoulders.
+ - The bold sympathize with the bold; and in great hearts, there is always a certain friendship for a gallant foe.
+ - The frenzy of nations is the statesmanship of fate.
+ - A sense of contentment makes us kindly and benevolent to others; we are not chafed and galled by cares which are tyrannical because original. We are fulfilling our proper destiny, and those around us feel the sunshine of our own hearts.
+ - Let youth cherish sleep, the happiest of earthly boons, while yet it is at its command; for there cometh the day to all when “neither the voice of the lute nor the birds” shall bring back the sweet slumbers that fell on their young eyes as unbidden as the dews.
+ - In life, as in art, the beautiful moves in curves.
+ - The conscience is the most flexible material in the world. Today you cannot stretch it over a mole hill; while tomorrow it can hide a mountain.
+ - To judge human character rightly, a man may sometimes have very small experience, provided he has a very large heart.
+ - One of the sublimest things in the world is plain truth.
+ - Patience is a good palfrey, and will carry us a long day.
+ - If aught be worse than failure from overstress of a life’s prime purpose, it is to sit down content with a little success.
+ - Success never needs an excuse.
+ - Our very wretchedness grows dear to us when suffering for one we love.
+ - He who esteems trifles for themselves is a trifler; he who esteems them for the conclusions to be drawn from them, or the advantage to which they can be put, is a philosopher.
+ - More bounteous run rivers when the ice that locked their flow melts into their waters. And when fine natures relent, their kindness is swelled by the thaw.
+ - What, after all, is heaven, but a transition from dim guesses and blind struggling with a mysterious and adverse fate to the fullness of all wisdom – from ignorance, in a word, to knowledge, but knowledge of what order?
+ - A man’s ancestry is a positive property to him.
+ - Say what we will, we may be sure that ambition is an error. Its wear and tear on the heart are never recompensed.
+ - Could we know by what strange circumstances a man’s genius became prepared for practical success, we should discover that the most serviceable items in his education were never entered in the bills which his father paid for.
+ - Wrap thyself in the decent veil that the arts or the graces weave for thee, O human nature! It is only the statue of marble whose nakedness the eye can behold without shame and offence!
+ - He who seeks repentance for the past, should woo the angel virtue for the future.
+ - If you are in doubt whether to write a letter or not, don’t. And the advice applies to many doubts in life besides that of letter writing.
+ - I would rather have five energetic and competent enemies than one fool friend.
+ - Never get a reputation for a small perfection if you are trying for fame in a loftier area. The world can only judge by generals, and it sees that those who pay considerable attention to minutiae seldom have their minds occupied with great things.
+ - Toil to some is happiness, and rest to others. This man can only breathe in crowds, and that man only in solitudes.
+ - The Management of money is, in much, the management of self. If heaven allotted to each man seven guardian angels, five of them, at least, would be found night and day hovering over his pockets.
+ - He that fancies himself very enlightened, because he sees the deficiencies of others, may be very ignorant, because he has not studied his own.
+ - It is the glorious doom of literature that the evil perishes and the good remains. Even when the original author of some healthy and useful truth is forgotten, the truth survives, transplanted to works more calculated to purify it from error, and perpetuate it to our benefit.
+ - Whatever the number of a man’s friends, there will be times in his life when he has one too few; but if he has only one enemy, he is lucky indeed if he has not one too many.
+ - Refuse to be ill. Never tell people you are ill; never own it to yourself. Illness is one of those things which a man should resist on principle at the onset.
+ - It is an error to suppose that courage means courage in everything. Most people are brave only in the dangers to which they accustom themselves, either in imagination or practice.
+ - O be very sure That no man will learn anything at all, Unless he first will learn humility.
+ - Childhood and genius have the same master organ in common – inquisitiveness.
+ - Prudence, patience, labor, valor; these are the stars that rule the career of mortals.
+ - In all cases of heart-ache, the application of another man’s disappointment draws out the pain and allays the irritation.
+ - It is the misfortune of all miscellaneous political combinations, that with the purest motives of their more generous members are ever mixed the most sordid interests and the fiercest passions of mean confedes.
+ - If there is a virtue in the world at which we should always aim, it is cheerfulness.
+ - Debt is to man what the serpent is to the bird; its eye fascinates, its breath poisons, its coil crushes sinew and bone, its jaw is the pitiless grave.
+ - Bright and illustrious illusions!
+ - One vice worn out makes us wiser than fifty tutors.
+ - Julius Caesar owed two millions when he risked the experiment of being general in Gaul. If Julius Caesar had not lived to cross the Rubicon, and pay off his debts, what would his creditors have called Julius Caesar?
+ - Of all the virtues necessary to the completion of the perfect man, there is none to be more delicately implied and less ostentatiously vaunted than that of exquisite feeling or universal benevolence.
+ - Curse away! And let me tell thee, Beausant, a wise proverb The Arabs have,-“Curses are like young chickens, And still come home to roost.”
+ - There is no past, as long as books shall live. Books make the past our heritage and our home.
+ - In the hour of strait and need, we measure men’s stature not by the body, but the soul!
+ - When the soul communes with itself the lip is silent.
+ - In solitude the passions feed upon the heart.
+ - Anger ventilated often hurries towards forgiveness; anger concealed often hardens into revenge.
+ - When the world frowns, we can face it; but let it smile, and we are undone.
+ - Ah, what without a heaven would be even love! – a perpetual terror of the separation that must one day come.
+ - Despair makes victims sometimes victors.
+ - There is in the heart of woman such a deep well of love that no age can freeze it.
+ - A life of pleasure makes even the strongest mind frivolous at last.
+ - Punctuality is the stern virtue of men of business, and the graceful courtesy of princes.
+ - Each man forms his duty according to his predominant characteristic; the stern require an avenging judge; the gentle, a forgiving father. Just so the pygmies declared that Jove himself was a pygmy.
+ - Fame confers a rank above that of gentleman and of kings. As soon as she issues her patent of nobility, it matters not a straw whether the recipient be the son of a Bourbon or of a tallow-chandler.
+ - In families well ordered, there is always one firm, sweet temper, which controls without seeming to dictate. The Greeks represented Persuasion as crowned.
+ - In beginning the world, if you don’t wish to get chafed at every turn, fold up your pride carefully, put it under lock and key, and only let it out to air upon grand occasions. Pride is a garment all stiff brocade outside, all grating sackcloth on the side next to the skin.
+ - The secret of fashion is to surprise and never to disappoint.
+ - Science is an ocean. It is as open to the cockboat as the frigate. One man carries across it a freightage of ingots, another may fish there for herrings.
+ - Philosophy, while it soothes the reason, damps the ambition.
+ - Happy is the man who hath never known what it is to taste of fame -to have it is a purgatory, to want it is a Hell!
+ - The astronomer who catalogues the stars cannot add one atom to the universe; the poet can call an universe from the atom.
+ - Centuries roll, customs change, but, ever since the time of the earliest mother, woman yearns to be the soother.
+ - He who writes prose builds his temple to Fame in rubble; he who writes verses builds it in granite.
+ - Alas! innocence is but a poor substitute for experience.
+ - Nothing can constitute good-breeding that has not good-nature for its foundation.
+ - In these days half our diseases come from neglect of the body in overwork of the brain.
+ - Nothing really immoral is ever permanently popular.
+ - It is the glorious doom of literature that the evil perishes and the good remains.
+ - It may, indeed, be said that sympathy exists in all minds, as Faraday has discovered that magnetism exists in all metals; but a certain temperature is required to develop the hidden property, whether in the metal or the mind.
+ - Vanity calculates but poorly on the vanity of others; what a virtue we should distil from frailty, what a world of pain we should save our brethren, if we would suffer our own weakness to be the measure of theirs.
+ - Writers are the main landmarks of the past.
+ - Poverty has strange bedfellows.
+ - Art does not imitate nature, but founds itself on the study of nature, takes from nature the selections which best accord with its own intention, and then bestows on them that which nature does not possess, viz: The mind and soul of man.
+ - Revenge is a common passion; it is the sin of the uninstructed.
+ - A man who cannot win fame in big own age will have a very small chance of winning it from posterity. True, there are some half-dozen exceptions to this truth among millions of myriads that attest it; but what man of common sense would invest any large amount of hope in so unpromising a lottery?
+ - When a man is not amused, he feels an involuntary contempt for those who are.
+ - The more the merely human part of the poet remains a mystery, the more willing is the reverence given to his divine mission.
+ - There is no tongue that flatters like a lover’s; and yet, in the exaggeration of his feelings, flattery seems to him commonplace. Strange and prodigal exuberance, which soon exhausts itself by flowing!
+ - When a person is down in the world, an ounce of help is better than a pound of preaching.
+ - We cannot of ourselves estimate the degree of our success in what we strive for.
+ - Honest men are the gentlemen of nature.
+ - The easiest person to deceive is one’s self.
+ - Alone!-that worn-out word, So idly spoken, and so coldly heard; Yet all that poets sing and grief hath known Of hopes laid waste, knells in that word ALONE!
+ - The night is past,-joy cometh with the morrow.
+ - The brave man wants no charms to encourage him to his duty, and the good man scorns all warnings that would deter him from fulfilling it.
+ - It is often the easiest move that completes the game. Fortune is like the lady whom a lover carried off from all his rivals by putting an additional lace upon his liveries.
+ - That man will never be a perfect gentleman who lives only with gentlemen. To be a man of the world we must view that world in every grade and in every perspective.
+ - The higher the rank the less pretence, because there is less to pretend to.
+ - A man of genius is inexhaustible only in proportion as he is always renourishing his genius.
+ - One of the surest evidences of friendship that one individual can display to another is telling him gently of a fault. If any other can excel it, it is listening to such a disclosure with gratitude, and amending the error.
+ - The law is a gun, which if it misses a pigeon always kills a crow; if it does not strike the guilty, it hits someone else. As every crime creates a law, so in turn every law creates a crime.
+ - How many of us have been attracted to reason; first learned to think, to draw conclusions, to extract a moral from the follies of life, by some dazzling aphorism.
+ - The public man needs but one patron, namely, the lucky moment.
+ - No reproach is like that we clothe in a smile, and present with a bow.
+ - Men are valued, not for what they are, but for what they seem to be.
+ - I have wrought great use out of evil tools.
+ - The classic literature is always modern.
+ - They have written volumes out of which a couplet of verse, a period in prose, may cling to the rock of ages, as a shell that survives a deluge.
+ - Art is the effort of man to express the ideas which nature suggests to him of a power above nature, whether that power be within the recesses of his own being, or in the Great First Cause of which nature, like himself, is but the effect.
+ - Of all the weaknesses little men rail against, there is none that they are more apt to ridicule than the tendency to believe. And of all the signs of a corrupt heart and a feeble head, the tendency of incredulity is the surest. Real philosophy seeks rather to solve than to deny.
+ - More is got from one book on which the thought settles for a definite end in knowledge, than from libraries skimmed over by a wandering eye.
+ - The Almighty proves his existence by creating.
+ - A fresh mind keeps the body fresh. Take in the ideas of the day, drain off those of yesterday.
+
+351 quotes

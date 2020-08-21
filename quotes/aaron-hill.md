@@ -1,0 +1,29 @@
+ - Don’t call the world dirty because you forgot to clean your glasses.
+ - Mischief and malice grow on the same branch of the tree of evil.
+ - There is no merit where there is no trial; and till experience stamps the mark of strength, cowards may pass for heroes, and faith for falsehood.
+ - Art, however innocent, looks like deceiving.
+ - Courage is poorly housed that dwells in numbers; the lion never counts the herd that are about him, nor weighs how many flocks he has to scatter.
+ - Deceit is the false road to happiness; and all the joys we travel through to vice, like fairy banquets, vanish when we touch them.
+ - Oh, treacherous night thou lendest thy ready veil to every treason, and teeming mischief’s beneath thy shade.
+ - Letters, from absent friends, extinguish fear, Unite division, and draw distance near; Their magic force each silent wish conveys, And wafts embodied though, a thousand ways: Could souls to bodies write, death’s pow’r were mean, For minds could then meet minds with heav’n between.
+ - Man is the circled oak; woman the ivy.
+ - Customs form us all, our thoughts, our morals, our most fixed beliefs; are consequences of our place of birth.
+ - Union of hearts, not hands, does a marriage make, and sympathy of mind keeps love awake.
+ - She who means no mischief does it all.
+ - Hide not thy tears; weep boldly, and be proud to give the flowing virtue manly way; it is nature’s mark to know an honest heart by.
+ - The man with but one idea in his head is sure to exaggerate that to top-heaviness, and thus he loses his equilibrium.
+ - Birth is a shadow. Courage, self-sustained, outlords succession’s phlegm, and needs no ancestors.
+ - Youth is ever apt to judge in haste, and lose the medium in the wild extreme.
+ - Shame on those breasts of stone that cannot melt in soft adoption of another’s sorrow.
+ - O marriage! marriage! what a curse is thine, Where hands alone consent and hearts abhor.
+ - When Christ at Cana’s feast by pow’r divine, Inspir’d cold water, with the warmth of wine, See! cry’d they while, in red’ning tide, it gush’d, The bashful stream hath seen its God and blush’d.
+ - The man who pauses on the paths of treason, Halts on a quicksand, the first step engulfs him.
+ - Shun fear, it is the ague of the soul! a passion man created for himself – for sure that cramp of nature could not dwell in the warm realms of glory.
+ - Law that shocks equity is reason’s murderer.
+ - First, then, a woman will, or won’t, – depend on’t; If she will do’t, she will; and there’s an end on’t. But, if she won’t, since safe and sound your trust is, Fear is affront: and jealousy injustice.
+ - Order, thou eye of action.
+ - Reason gains all people by compelling none.
+ - Joys, which we do not know, we do not wish.
+ - Servile doubt argues an impotence of mind, that says we fear because we dare not meet misfortunes.
+
+27 quotes

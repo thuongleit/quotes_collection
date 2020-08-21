@@ -1,0 +1,23 @@
+ - Bulls don’t read. Bears read financial history. As markets fall to bits, the bears dust off the Dutch tulip mania of 1637, the Banque Royale of 1719-20, the railway speculation of the 1840s, the great crash of 1929.
+ - Life without oil, in fact, would be so different that it is frightening to contemplate. We are addicted, and it is no comfortable addiction.
+ - When William the Conqueror commissioned a great survey of his English realm at Gloucester in 1085, the result was a work so thorough, fair, dispassionate, and wide-ranging that it seemed to the succeeding generations to have come from another world.
+ - Up until the Depression, recession had a moral character: it was supposed to purge the body economic of the greed and excess that attends a business expansion.
+ - Ever since the destruction of Baghdad by the Mongols in 1258, the Muslim world has been in slow decline relative to the west. With Napoleon’s invasion of Egypt and the creeping British annexation of Muslim India, that decline took on a malign aspect.
+ - To make a love story, you need a couple of young people, but to reflect on the nature of love, you’re better off with old ones. That is a fact of life and literature – and of the novel ever since it fell in love with love in the 18th century.
+ - Liberty in Islam is the liberty to be a Muslim, democracy likewise, individualism likewise.
+ - By pouring money and goods into devastated regions, foreign aid workers sometimes compound the disruption and debauch the survivors.
+ - The dividing line between wish and need was never clear.
+ - Saudi Arabia operates according to the belief that God made young men and women so utterly and completely without self-control that they must be physically segregated every moment of the day and night.
+ - Economists, like royal children, are not punished for their errors.
+ - The prevailing ideology of the modern west – which is political economy – is in the doghouse. Having failed to notice atmospheric pollution, the economists then frightened themselves with the sort of financial crisis they said they had abolished.
+ - Losing your capital is like losing your trousers. It is a real humiliation, and one not to be soon repeated.
+ - Were there peace and justice in the Middle East, the Arabs would no more need their tinhorn dictators than they would their corpulent princes.
+ - We read too much Shakespeare at school, and view our parliamentary politics as dynastic drama, in which an impatient crown prince frets at his long subordination and begins to scheme for the throne he knows he merits, was promised and has earned.
+ - Because bankers measure their self-worth in money, and pay themselves a lot of it, they think they’re fine fellows and don’t need to explain themselves.
+ - One of the consequences of the Iranian revolution has been an explosion of history. A country once known only from British consular reports and intrepid travelogues is now awash with historical documents, letters, diaries, grainy video, weblogs and secret police files of questionable authenticity.
+ - Cause and effect, the riddle of all history, is a particular devil in financial history; and never more so than today, where entire classes of security are collapsing not on public exchanges and stock-tickers but because there are no markets to establish prices this side of nothing.
+ - Any new financial order for the world must tackle the three chief challenges of our age.
+ - Even before he came to power in 1997, Gordon Brown promised to change the accounts to parliament from simple litanies of cash in and cash out, to a more commercial system that took notice of the public property the departments were using. This system is known as resource accounting.
+ - Almost all novels are improved by cutting from the top. On their first pages, authors parade those favourite effects which disgust the impartial reader.
+
+21 quotes

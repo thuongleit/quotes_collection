@@ -1,0 +1,23 @@
+ - You must pay for everything in this world one way and another. There is nothing free except the Grace of God. You cannot earn that or deserve it.
+ - I would not put a thief in my mouth to steal my brains.
+ - I know what they said even if they would not say it to my face. People love to talk. They love to slander you if you have any substance.
+ - There is no knowing what is in a man’s heart.
+ - Time just gets away from us.
+ - Listen, here’s what I’d like to do: I’d like to live in a trailer and play records all night.
+ - What have you done when you have bested a fool?
+ - The wicked flee when none pursueth.
+ - It was old President Diaz who said that nothing ever happens in Mexico until it happens. Things rock along from day to day, and then all at once you are caught up in a rush of unforeseen events.
+ - My Master of Arts degree means nothing at all to these monkeys and I have come to share their indifference.
+ - One time you smash a bug with no mercy. Another time you find one helpless on his back with his legs flailing the air, and you flip him over and let him go on his way. The struggle that touches the heart.
+ - Mexican homes as a rule are closed off to the world by high blank walls of yellowish masonry, topped with broken glass to discourage escaladores, or climbing burglars. The gardens and fountains and other delights are hidden, as in an Arab city.
+ - As he drank, little brown drops of coffee clung to his mustache like dew. Men will live like billy goats if they are let alone.
+ - Nothing I like to do pays well.
+ - I always go backwards when I am backing up.
+ - Nothing is too long or too short either if you have a true and interesting tale and what I call a “graphic” writing style combined with educational aims.
+ - I have known some horses and a good many more pigs who I believe harbored evil intent in their hearts. I will go further and say all cats are wicked, though often useful. Who has not seen Satan in their sly faces?
+ - But I had not the strength nor the inclination to bandy words with a drunkard. What have you done when you have bested a fool?
+ - In the Anthropology Club, as I understood it, you were permitted, if not required, to despise only one thing, and that was your own culture, that of the West.
+ - We must each of us bear our own misfortunes.
+ - If you want anything done right you will have to see to it yourself every time.
+
+21 quotes

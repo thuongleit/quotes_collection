@@ -1,0 +1,55 @@
+ - All gods are one god.
+ - There is no such thing as a true tale. Truth has many faces and the truth is like to the old road to Avalon; it depends on your own will, and your own thoughts, whither the road will take you.
+ - Never name the well from which you will not drink.
+ - And so, perhaps, the truth winds somewhere between the road to Glastonbury, Isle of the Priests, and the road to Avalon, lost forever in the mists of the Summer Sea.
+ - The road that is built in hope is more pleasant to the traveler than the road built in despair, even though they both lead to the same destination.
+ - But this is my truth; I who am Morgaine tell you these things, Morgaine who was in later days called Morgan le Fay.
+ - And I must believe that man has the power to know the right, to choose between good and evil and know that his choice has made a difference...
+ - There’s no “magic secret”; writing is like everything else; ten percent inspiration or talent, and ninety percent hard work. Persistence; keeping at it till you get there. As Agnes de Mille said, it means working every day – bored, tired, weary, or with a fever of a hundred and two.
+ - I should know, for I am Morgaine le Fay, priestess of the Isle of Avalon, where the ancient religion of the Mother Goddess is born.
+ - Flowers and fruit are only the beginning. In the seed lies the life and the future.
+ - There is no sorrow like the memory of love and the knowledge that it is gone forever.
+ - There are ignorant priests and ignorant people, who are all too ready to cry sorcery if a woman is only a little wiser than they are!
+ - I’ve been a schoolteacher. I always try to get the kids to finish talking before the next one starts.
+ - I have called on the Goddess and found her within myself.
+ - I never left you; I never will leave you. While life lasts, and beyond, I am here.
+ - Remain true to yourself, child. If you know your own heart, you will always have one friend who does not lie.
+ - All the tears women shed, they leave no mark on the world...
+ - Darling, I wish I could help you. Try to remember this: to live, you need every experience. Some will come in glory and in beauty, and some in pain and what seems like ugliness. But – they are. Life consists of opposites in balance.
+ - Love is the only prayer I know.
+ - A babe at the breast is as much pleasure as the bearing is pain.
+ - The Goddess has a fourth face. It is secret, and you should prey, as I do, as I do Igraine, that Morgause will never wear that face.
+ - Fear is a way of not allowing yourself to choose freely what you will do next; a way of letting your body’s reflexes, not the needs of your mind, choose for you.
+ - A priestess of Avalon does not lie. But I am cast out of Avalon, and for this, and unless it is all to be for nothing, I must lie, and lie well and quickly.
+ - Arthur, their young king, like a hero out of legend.
+ - Some knowledge and some song and some beauty must be kept for those days before the world again plunges into darkness.
+ - Morgaine laughed and mocked, but when it was a real trouble, no one could be kinder.
+ - I know all about endings. It is beginnings that elude me.
+ - I have neither talent or taste for kingship, cousin. I am a warrior, and to dwell always in one place and live at court would weary me to death!
+ - The truth is not so good a story.
+ - I am dedicated to the belief that it is God’s will that all men should strive for wisdom in themselves, not look to it from some other. Babes, perhaps, must have their food chewed for them by a nurse, but men may drink and eat of wisdom for themselves.
+ - A woman is never free to bear a child unless she is also free to abort it.
+ - Without a dream to light your way, the word is a very dark place.
+ - If you listen to dogs barking you will go deaf without learning anything.
+ - To know you are ignorant is the beginning of wisdom.
+ - The older I grow the more I become certain that it makes no difference what words we use to tell the same truths.
+ - For there is no higher religion than the Truth.
+ - Speak not against anyone whose burden you have not weighed yourself.
+ - I never thought that I was very intelligent.
+ - Magic is a matter of focusing the disciplined will. But sometimes the will must be abandoned. The secret lies in knowing when to exercise control, and when to let go.
+ - One of the earliest lessons I learned was not to read my reviews. Weigh them.
+ - The visible world was only an imperfect reflection of the Ideal, which the Philosopher sought to transcend.
+ - A friend of ours has a hobby doing genealogy, and we found out that we were cousins in the ninth degree, that we had a common ancestor on the Mayflower.
+ - If you own a machine, you are in turn owned by it, and spend your time serving it...
+ - Well, so it must be, for as man saw reality, so it became.
+ - What wise God would consign a man to Hell for ignorance, instead of teaching him better in the afterlife?
+ - By what men think, we create the world around us, daily new.
+ - Knowledge was like a mouthful of dust.
+ - Light flared through every limb, a force far too great to be contained in any human frame; but for that moment she was the Great Mother, giving birth to the world.
+ - I wasn’t a child at 13, were you?
+ - Of all things we mortals are called upon to do, the most difficult is forgiveness; in order to truly do it, you will probably have to behave as if you already have forgiven for quite a while before you have actually done so.
+ - The Goddess does not shower her gifts on those who reject them.
+ - On one occasion I shared a bed with about seven other people, but we were all having a party overnight.
+ - No man or woman can live another’s fate.
+
+53 quotes

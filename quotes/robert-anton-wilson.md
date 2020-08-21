@@ -1,0 +1,147 @@
+ - You are precisely as big as what you love and precisely as small as what you allow to annoy you.
+ - Any model we make does not describe the universe it describes what our brains are capable of saying at this time.
+ - Most people live in a myth and grow violently angry if anyone dares to tell them the truth about themselves.
+ - What the thinker thinks, the prover proves.
+ - The fear of death is the beginning of slavery.
+ - You should view the world as a conspiracy run by a very closely-knit group of nearly omnipotent people, and you should think of those people as yourself and your friends.
+ - We are all giants, raised by pygmies, who have learned to walk with a perpetual mental crouch.
+ - Belief is the death of intelligence.
+ - We all see only that which we are trained to see.
+ - Of course I’m crazy, but that doesn’t mean I’m wrong.
+ - Bad critics judge a work of art by comparing it to pre-existing theories. They always go wrong when confronted with a masterpiece because masterpieces make their own rules.
+ - Only the madman is absolutely sure.
+ - I think I got off on the wrong planet. Beam me up Scotty, there’s no rational life here.
+ - The normal is that which nobody quite is. If you listen to seemingly dull people very closely, you’ll see that they’re all mad in different and interesting ways, and are merely struggling to hide it.
+ - Show me a movement that doesn’t hate somebody and I will join it at once.
+ - The function of Theology? The recitation of the incomprehensible by the unspeakable to pick the pockets of the unthinking.
+ - In order to eat, you have to be hungry. In order to learn, you have to be ignorant. Ignorance is a condition of learning. Pain is a condition of health. Passion is a condition of thought. Death is a condition of life.
+ - We live in an age of artificial scarcity, maintained by ignorance and fear.
+ - On a planet that increasingly resembles one huge Maximum Security prison, the only intelligent choice is to plan a jail break.
+ - The rapists of the intellectual world become politicians; the seducers become artists.
+ - The ultimate weapon isn’t this plague out in Vegas, or any new super H-bomb. The ultimate weapon has always existed. Every man, every woman, and every child owns it. It’s the ability to say No and take the consequences.
+ - It’s not true unless it makes you laugh, but you don’t understand it until it makes you weep.
+ - If you want to be happy, practise it every day.
+ - The Right’s view of government and the Left’s view of big business are both correct.
+ - In conlusion, there is no conclusion. Things will go on as they always have, getting weirder all the time.
+ - My goal is to try to get people into a state of generalized agnosticism, not agnosticism about God alone, but agnosticism about everything.
+ - Certitude is seized by some minds, not because there is any philosophical justification for it, but because such minds have an emotional need for certitude.
+ - A Discordian is someone who sees windmills and thinks they might be giants.
+ - We have been told over and over that “you can’t change human nature”, but the study of emic realities shows quite the contrary, that almost anything can become “human nature” if society defines it as such.
+ - The easiest way to get brainwashed is to be born. All of the above principles then immediately go into action, a process which social psychologists euphemistically call socialization.
+ - It is a great privilege to be conscious in this universe. Those who understand, shine like stars.
+ - Communication is only possible between equals.
+ - My own opinion is that belief is the death of intelligence. As soon as one believes a doctrine of any sort, or assumes certitude, one stops thinking about that aspect of existence.
+ - People’s belief in their own local reality-tunnels keep us all far stupider than we ought to be...
+ - Disobedience was man’s Original Virtue.
+ - If it’s true that we are here to help others, then what exactly are the others here for?
+ - I really dread serious people. Especially serious, dogmatic people. I regard them as sort of what Reich called the emotional plague. I regard them as very dangerous.
+ - The final war will be between Pavlov’s dog and Schoedinger’s Cat.
+ - Accuracy of signal and free flow of information define sanity in my epistemology.
+ - Nobody sees the obvious, nobody observes the ordinary. There are more miracles in a square yard of earth than in all the fables of the Church.
+ - The web of life is a beautiful and meaningless dance. The web of life is a process with a moving goal. The web of life is a perfectly finished work of art right where I am sitting now.
+ - Creativity has a touch of the bizarre.
+ - I read everything, including the labels on canned food. I’m a hopeless print addict, a condition alleviated only by daily meditation which breaks the linear-Aristotelian trance. National Lampoon, Scientific American are what I read most obsessively.
+ - If one can only see things according to one’s own belief system, one is destined to become virtually deaf, dumb, and blind.
+ - Most of our ancestors were not perfect ladies and gentlemen. The majority of them weren’t even mammals.
+ - Ye have locked yerselves up in cages of fear and, behold, do ye now complain that ye lack FREEDOM!
+ - We live in our fantasies and endure our realities.
+ - You can “prove” anything on the verbal level, just be accepting the necessary axioms at the beginning.
+ - Like what you like, enjoy what you enjoy, and don’t take crap from anybody.
+ - It only takes 20 years for a liberal to become a conservative without changing a single idea.
+ - Groups are grammatical fictions; only individuals exist, and each individual is different.
+ - There is absolutely nothing that can be taken for granted in this world.
+ - We can’t run out of resources. Resources exist when the human mind sees how to use something.
+ - I don’t believe anything, but I have many suspicions.
+ - We say seeing is believing, but actually, we are much better at believing than at seeing. In fact, we are seeing what we believe all the time and occasionally seeing what we can’t believe.
+ - A true initiation never ends.
+ - Every war results from the struggle for markets and spheres of influence, and every war is sold to the public by professional liars and totally sincere religious maniacs, as a Holy Crusade to save God and Goodness from Satan and Evil.
+ - And as a matter of fact, governments don’t act, governments only react. The bankers make the decisions, and then governments decide how are we going to adjust to this. Government can’t do anything unless the bank gives them the money to do it.
+ - Perhaps the final secret of the Illuminati is that you don’t know you’re a member until it’s too late to get out.
+ - The only intelligent way to discuss politics is on all fours.
+ - Human society as a whole is a vast brainwashing machine whose semantic rules and sex roles create a social robot.
+ - The variables vary too much and the constants aren’t as constant as they seem.
+ - The abandoned infant’s cry is rage, not fear.
+ - An Enlightened Master is ideal only if your goal is to become a Benighted Slave.
+ - The totally convinced and the totally stupid have too much in common for the resemblance to be accidental.
+ - Voting wouldn’t excite me unless it included electing the directors of the big banks and corporations, who make the real decisions that affect our lives. It’s hard to get excited about the trained seals in Washington.
+ - The longer one is alone, the easier it is to hear the song of the earth.
+ - Having a spine is overrated. If everybody squealed and ran away, there’d be no more wars.
+ - I regard belief as a form of brain damage.
+ - Size is not a reality, but a construct of the mind; and space a construct to contain constructs.
+ - History, sociology, economics, psychology et al. confirmed Joyce’s view of Everyman as victim.
+ - People who’ve been through our educational system, they think they’re thinking, when they’re just repeating like parrots.
+ - There are periods of history when the visions of madmen and dope fiends are a better guide to reality than the common-sense interpretation of data available to the so-called normal mind. This is one such period, if you haven’t noticed already.
+ - My early work is politically anarchist fiction, in that I was an anarchist for a long period of time. I’m not an anarchist any longer, because I’ve concluded that anarchism is an impractical ideal. Nowadays, I regard myself as a libertarian.
+ - The border between the Real and the Unreal is not fixed, but just marks the last place where rival gangs of shamans fought each other to a standstill.
+ - The secret to my success has been optimism tempered by anger.
+ - Obviously, the faster we process information, the more rich and complex our models or glosses – our reality-tunnels – will become.
+ - Horror is the natural reaction to the last 5,000 years of history.
+ - Beyond a certain point, the whole universe becomes a continuous process of initiation.
+ - All Chaos was once yer kingdom; verily, held ye dominion over the entire Pentaverse, but today ye was sore afraid in dark coners, nooks, and sink holes.
+ - Hippies generally aren’t busy with anything except feeling sorry for themselves.
+ - The devil is only a convenient myth invented by the real malefactors of our world.
+ - When the rose and the cross are united the alchemical marriage is complete and the drama ends. Then we wake from history and enter eternity.
+ - The worst that can happen under monarchy is rule by a single imbecile, but democracy often means the rule by an assembly of three or four hundred imbeciles.
+ - Reality is the temporary resultant of continuous struggles between rival gangs of programmers.
+ - The function of law and theology are the same: to keep the poor from taking back by violence what the rich have stolen by cunning.
+ - A monopoly on the means of communication may define a ruling elite more precisely than the celebrated Marxian formula of monopoly in the means of production.
+ - Pregnancy is a kind of miracle. Especially so in that it proves that a man and woman can conspire to force God to create a new soul.
+ - We’re living on the Planet of the Apes. Is that funny or serious?
+ - The Bible tells us to be like God, and then on page after page it describes God as a mass murderer. This may be the single most important key to the political behavior of Western Civilization.
+ - No wife, no horse, no mustache.
+ - Ego is a social fiction for which one person at a time gets all the blame.
+ - There are gods, but there is no God; and all gods become devils eventually.
+ - Are traditional schools very much like mini-prisons? Do they stifle imagination, cramp the child physically and mentally, and run on various forms of overt or covert terrorism? Of course, the answer is an unambiguous YES.
+ - There is one universal sex law: Sex shall not be unregulated.
+ - There’s a seeker born every minute.
+ - Ye have cast out yer brothers for devils and now complain ye, lamenting, that ye’ve been left to fight alone.
+ - Entropy requires no maintenance.
+ - The land monopoly always starts with conquest. Shot and shell are the coins of purchase, as Herbert Spencer said. Except by force of arms, nobody “owns” the earth, anymore than the moon, the planets, the stars themselves.
+ - Philadelphia merely seems dull because it’s next to exciting Camden, New Jersey.
+ - Conspiracy is just another name for coalition.
+ - Everyone look around and see if you can spot the NARCS. They’re the ones who look like hippies.
+ - The future is up for grabs. It belongs to any and all who will take the risk and accept the responsibility of consciously creating the future they want.
+ - Taxation is robbery based on monopoly of weapons.
+ - The individual act of obedience is the cornerstone not only of the strength of authoritarian society but also of its weakness.
+ - Consciousness itself is an infinite regress. This explains coincidences.
+ - All phenomena are real in some sense, unreal in some sense, meaningless in some sense, real and meaningless in some sense, unreal and meaningless in some sense, and real and unreal and meaningless in some sense.
+ - I’m the kind of anarchist whose chief objection to the State is that it kills so many people. Government is the epitome of the deathist philosophy I reject.
+ - The path up is the path down. The way forward is the way back. The universe inside is outside but the universe outside is inside.
+ - Artistic judgments are silly if expressed as dogmas, at least until we get an “artometer” which can measure objectively how many micro-michelangelos or kilo-homers of genius a given artifact has in it.
+ - O how the darkness do crowd up, one against the other, in ye hearts! What fear ye more that what ye have wroughten?
+ - I will do anything, including highway robbery and murder, to avoid leaving my children in poverty.
+ - Blue uniforms are real. Cops are a social fiction.
+ - I regard morality and ideology as the chief cause of human misery.
+ - Hysteria is a chaotic and irrational emotional state caused by seeing how the world really operates.
+ - I look forward without dogmatic optimism but without dread.
+ - The things that hinder me are opportunities to learn more and develop further.
+ - Existence is larger than any model that is not itself the exact size of existence...
+ - Stupidity is like bumping into a wall all the time. After a while you get tired of it and try to look the situation over and see if there’s a doorway somewhere. I think most people eventually do look for the doorway and stop bumping into the wall.
+ - Nothing of any importance can be taught. It can only be learned, and with blood and sweat.
+ - You simply cannot invent any conspiracy theory so ridiculous and obviously satirical that some people somewhere don’t already believe it.
+ - The novels that get praised in the NY Review of Books aren’t worth reading. Ninety-seven percent of science fiction is adolescent rubbish, but good science fiction is the best and only literature of our times.
+ - I’m not an anarchist any longer, because I’ve concluded that anarchism is an impractical ideal.
+ - Here’s to the good Nuns for telling me what books NOT to read!
+ - The easiest way to get brainwashed is to be born.
+ - To work for libertarianism – to oppose the growth of government and aid the liberation of the individual – used to be an idealistic choice taken for purely idealistic reasons. Now it is an act of intelligent and almost desperate self-defense.
+ - Animals outline their territories with their excretions, humans outline their territories by ink excretions on paper.
+ - He who lives happiest has forgotten most.
+ - The minority who actually loves its work seems to be made up chiefly of the writers, dancers, actors and other artists, most scientists above the technician-troll level, computer freaks, and the righteous dope-dealers of California.
+ - The Grail is the womb of the beloved.
+ - If you don’t laugh at all, you’ve missed the point. If you only laugh, you’ve missed your chance from illumination.
+ - I have never experienced another human being. I have experienced my impressions of them.
+ - Stupidity is a blockage in the ability to receive, integrate and transmit new signals.
+ - Since things are moving faster and faster, we cannot afford the amount of stupidity that we used to be able to tolerate.
+ - Anyone in the United States today who isn’t paranoid must be crazy.
+ - Robert A. Heinlein has been an idol to me for more than 20 years. He can do no wrong, no matter how much he loves wars and hates pacifists.
+ - Once something becomes discernible, or understandable, we no longer need to repeat it. We can destroy it.
+ - I find the universe so staggering that I just don’t have any faith in my ability to grasp it.
+ - Each mans spills the drink he loves.
+ - Editors always amputate the brain first and preserve a good-looking corpse.
+ - I’m using myself as a typical 20th century model as I’m trying to make sense out of the world around me.
+ - Certitude belongs exclusively to those who only look in one encyclopedia.
+ - The Constitution admittedly has a few defects and blemishes, but it still seems a hell of a lot better than the system we have now.
+ - You know what family values means, that’s hating the same people your grandfather hated.
+ - There is no complete theory of anything.
+
+145 quotes

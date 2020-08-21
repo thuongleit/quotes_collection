@@ -1,0 +1,55 @@
+ - Hang in there. It is astonishing how short a time it can take for very wonderful things to happen.
+ - I am a princess. All girls are. Even if they live in tiny old attics. Even if they dress in rags, even if they aren’t pretty, or smart, or young. They’re still princesses.
+ - At first people refuse to believe that a strange new thing can be done, then they begin to hope it can be done, then they see it can be done – then it is done and all the world wonders why it was not done centuries ago.
+ - Everything’s a story – You are a story -I am a story.
+ - I am sure there is Magic in everything, only we have not sense enough to get hold of it and make it do things for us.
+ - She made herself stronger by fighting with the wind.
+ - To let a sad thought or a bad one get into your mind is as dangerous as letting a scarlet fever germ get into your body. If you let it stay there after it has got in, you may never get over it as long as you live.
+ - Two things cannot be in one place. Where you tend a rose, my lad, a thistle cannot grow.
+ - And the secret garden bloomed and bloomed and every morning revealed new miracles.
+ - Somehow, something always happens just before things get to the very worst. It is as if Magic did it. If I could only just remember that always. The worse thing never quite comes.
+ - So long as I know what’s expected of me, I can manage.
+ - She liked books more than anything else, and was, in fact, always inventing stories of beautiful things and telling them to herself.
+ - When a man looks at the stars, he grows calm and forgets small things. They answer his questions and show him that his earth is only one of the million worlds. Hold your soul still and look upward often, and you will understand their speech. Never forget the stars.
+ - If you look the right way, you can see that the whole world is a garden.
+ - If you fill your mind with a beautiful thought, there will be no room in it for an ugly one. – King Amor.
+ - Everything is made out of Magic, leaves and trees, flowers and birds, badgers and foxes and squirrels and people. So it must be all around us. In this garden-in all the places.
+ - You either build up or you tear down. You either keep in the light where you can see, or you stand in the dark and fight everything that comes near you, because you can’t see and you think it’s an enemy.
+ - My mother always says people should be able to take care of themselves, even if they’re rich and important.
+ - People never like me and I never like people.
+ - There’s nothing so strong as rage, except what makes you hold it in – that’s stronger. It’s a good thing not to answer your enemies. I scarcely ever do.
+ - One of the strange things about living in the world is that it is only now and then one is quite sure one is going to live forever and ever and ever.
+ - Mistress Mary Quite Contrary.
+ - She looked into the staring glass eyes and complacent face, and suddenly a sort of heartbroken rage seized her. She lifted her little savage hand and knocked Emily off the chair, bursting into a passion of sobbing- Sara who never cried.
+ - Two worst things as can happen to a child is never to have his own way – or always to have it.
+ - You can lose a friend in springtime easier than any other season if you’re too curious.
+ - To speak robin to a robin is like speaking French to a Frenchman.
+ - The mug from the washstand was used as Becky’s tea cup, and the tea was so delicious that it was not necessary to pretend that it was anything but tea.
+ - All women are princesses, it is our right.
+ - She says it has nothing to do with what you look like, or what you have. It has only to do with what you think of and what you do.
+ - As she came closer to him she noticed that there was a clean fresh scent of heather and grass and leaves about him, almost as if he were made of them. She liked it very much and when she looked into his funny face with the red cheeks and round blue eyes she forgot that she had felt shy.
+ - The Magic in this garden has made me stand up and know I am going to live to be a man.
+ - But I suppose there might be good in things, even if we don’t see it.
+ - As long as you have a garden you have a future and as long as you have a future you are alive.
+ - It made her think that it was curious how much nicer a person looked when he smiled. She had not thought of it before.
+ - Their eyes met with a singular directness of gaze. Between them a spark passed which was not afterwards to be extinguished, though neither of them knew the moment of its kindling...
+ - Of course there must be lots of Magic in the world, but people don’t know what it is like or how to make it.
+ - Perhaps there is a language which is not made of words and everything in the world understands it.
+ - The robin flew from his swinging spray of ivy on to the top of the wall and he opened his beak and sang a loud, lovely trill, merely to show off. Nothing in the world is quite as adorably lovely as a robin when he shows off – and they are nearly always doing it.
+ - It’s so easy that when you begin you can’t stop. You just go on and on doing it always.
+ - One marvel of a day he had walked so far that when he returned the moon was high and full and all the world was purple shadow and silver.
+ - Much more surprising things can happen to anyone who, when a disagreeable or discouraged thought comes into his mind, just has the sense to remember in time and push it out by putting in an agreeable, determinedly courageous one. Two things cannot be in one place.
+ - What you have to do with your mind, when your body is miserable, is to make it think of something else.
+ - Her affection for everything she could love increased.
+ - I am writing in the garden. To write as one should of a garden one must write not outside it or merely somewhere near it, but in the garden.
+ - That’s what I look at some people for. I like to know about them. I think them over afterward.
+ - When a man is overcome by anger, he has a poisoned fever. He loses his strength, he loses his power over himself and over others. He throws away time in which he might have gained the end he desires. The is no time for anger in the world. – The Ancient One.
+ - She wished she could talk as he did. His speech was so quick and easy. It sounded as if he liked her and was not the least afraid she would not like him, though he was only a common moor boy, in patched clothes and with a funny face and a rough, rusty-red head.
+ - If Sara had been a boy and lived a few centuries ago, her father used to say, ’she would have gone about the country with her sword drawn, rescuing and defending everyone in distress. She always wants to fight when she sees people in trouble.
+ - She did not care very much for other little girls, but if she had plenty of books she could console herself.
+ - Children’s as good as ‘rithmetic to set you findin’ out things.
+ - Things happen to people by accident.
+ - There is naught a man or woman can not learn who hath the wit.
+ - Whatever comes cannot alter one thing.
+
+53 quotes

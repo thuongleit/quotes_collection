@@ -1,0 +1,35 @@
+ - The real is what resists symbolization absolutely.
+ - What does it matter how many lovers you have if none of them gives you the universe?
+ - Love means giving something you don’t have to someone who doesn’t want it.
+ - All sorts of things in this world behave like mirrors.
+ - I always speak the truth. Not the whole truth, because there’s no way, to say it all. Saying it all is literally impossible: words fail. Yet it’s through this very impossibility that the truth holds onto the real.
+ - I think where I am not, therefore I am where I do not think. I am not whenever I am the plaything of my thought; I think of what I am where I do not think to think.
+ - Love makes the Real of desire accessible without its tragic dimension.
+ - I am there where it is spoken that the universe is a defect in the purity of non-being.
+ - The unconscious is structured like a language.
+ - Meaning is produced not only by the relationship between the signifier and the signified but also, crucially, by the position of the signifiers in relation to other signifiers.
+ - The only thing of which one can be guilty is of having given ground relative to one’s desire.
+ - The I is always in the field of the Other.
+ - In other words, the man who is born into existence deals first with language; this is a given. He is even caught in it before his birth.
+ - The best image to sum up the unconscious is Baltimore in the early morning.
+ - The reason we go to poetry is not for wisdom, but for the dismantling of wisdom.
+ - Writings scatter to the winds blank checks in an insane charge. And were they not such flying leaves, there would be no purloined letters.
+ - Symptoms, those you believe you recognize, seem to you irrational because you take them in an isolated manner, and you want to interpret them directly.
+ - For the signifier is a unit in its very uniqueness, being by nature symbol only of an absence.
+ - What could be more convincing, moreover, than the gesture of laying one’s cards face up on the table?
+ - Obsessional does not necessarily mean sexual obsession, not even obsession for this, or for that in particular; to be an obsessional means to find oneself caught in a mechanism, in a trap increasingly demanding and endless.
+ - Psychoanalysis is a terribly efficient instrument, and because it is more and more a prestigious instrument, we run the risk of using it with a purpose for which it was not made for, and in this way we may degrade it.
+ - The Mirror Stage as formative in the function of the I as revealed in psychoanalytic experience.
+ - The sufferings of neurosis and psychosis are for us a schooling in the passions of the soul, just as the beam of the psychoanalytic scales, when we calculate the tilt of its threat to entire communities, provides us with an indication of the deadening of the passions in society.
+ - The knowledge that there is a part of the psychic functions that are out of conscious reach, we did not need to wait for Freud to know this!
+ - The narration, in fact, doubles the drama with a commentary without which no mise en scene would be possible.
+ - If psychoanalysis clarifies some facts of sexuality, it is not by aiming at them in their own reality, not in biological experience.
+ - Yet, analytical truth is not as mysterious, or as secret, so as to not allow us to see that people with a talent for directing consciences see truth rise spontaneously.
+ - My thesis is that the moral law is articulated with relation to the real as such, to the real insofar as it can be the guarantee of the Thing.
+ - The sentence completes its signification only with its last term.
+ - Since Freud, the center of man is not where we thought it was; one has to go on from there.
+ - Aside from that reservation, a fictive tale even has the advantage of manifesting symbolic necessity more purely to the extent that we may believe its conception arbitrary.
+ - As is known, it is in the realm of experience inaugurated by psychoanalysis that we may grasp along what imaginary lines the human organism, in the most intimate recesses of its being, manifests its capture in a symbolic dimension.
+ - We emphasize that such a form of communication is not absent in man, however evanescent a naturally given object may be for him, split as it is in its submission to symbols.
+
+33 quotes

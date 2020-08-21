@@ -1,0 +1,59 @@
+ - Curiosity killed the cat, and satisfaction brought it back.
+ - None of us can help the things life has done to us. They’re done before you realize it, and once they’re done they make you do other things until at last everything comes between you and what you’d like to be, and you’ve lost your true self forever.
+ - There is no present or future-only the past, happening over and over again-now.
+ - We fought so long against small things that we became small ourselves.
+ - Man is born broken. He lives by mending. The Grace of God is glue.
+ - The sea hates a coward.
+ - Why am I afraid to dance, I who love music and rhythm and grace and song and laughter? Why am I afraid to live, I who love life and the beauty of flesh and the living colors of the earth and sky and sea? Why am I afraid to love, I who love love?
+ - Obsessed by a fairy tale, we spend our lives searching for a magic door and a lost kingdom of peace.
+ - It was a great mistake, my being born a man, I would have been much more successful as a seagull or a fish. As it is, I will always be a stranger who never feels at home, who does not really want and is not really wanted, who can never belong, who must be a little in love with death!
+ - The lie of a pipe dream is what gives life to the whole misbegotten mad lot of us, drunk or sober.
+ - Writing is my vacation from living.
+ - I will be an artist or nothing!
+ - I knew it. I knew it. Born in a hotel room – and God damn it – died in a hotel room.
+ - We talk about the American Dream, and want to tell the world about the American Dream, but what is that Dream, in most cases, but the dream of material things? I sometimes think that the United States for this reason is the greatest failure the world has ever seen.
+ - Curiosity killed the cat.
+ - Life is a solitary cell whose walls are mirrors.
+ - Happiness hates the timid. So does science.
+ - We are where centuries only count as seconds, and after a thousand lives, our eyes begin to open.
+ - We are such things as rubbish is made of, so let’s drink up and forget it.
+ - Those who succeed and do not push on to greater failure are the spiritual middle-classers.
+ - Man’s loneliness is but his fear of life.
+ - Life is perhaps best regarded as a bad dream between two awakenings.
+ - Dalmatians are not only superior to other dogs, they are like all dogs, infinitely less stupid than men.
+ - To hell with the truth! As the history of the world proves, the truth has no bearing on anything. It’s irrelevant and immaterial, as the lawyers say. The lie of a pipe dream is what gives life to the whole misbegotten mad lot of us, drunk or sober.
+ - One should be either sad or joyful. Contentment is a warm sty for eaters and sleepers.
+ - What beastly incidents our memories insist on cherishing, the ugly, and the disgusting; the beautiful things we have to keep diaries to remember.
+ - The only living life is in the past and future – the present is an interlude – strange interlude in which we call on past and future to bear witness that we are living.
+ - Everything looked and sounded unreal. Nothing was what it is. That’s what I wanted – to be alone with myself in another world where truth is untrue and life can hide from itself.
+ - If a person is to get the meaning of life he must learn to like the facts about himself – ugly as they may seem to his sentimental vanity – before he can learn the truth behind the facts. And the truth is never ugly.
+ - Irish as a Paddy’s pig.
+ - When men make gods, there is no God!
+ - Suppose I was to tell you that it’s just beauty that’s calling me, the beauty of the far off and unknown, the mystery and spell which lures me, the need of freedom of great wide spaces, the joy of wandering on and on – -in quest of the secret which is hidden over there – -beyond the horizon?
+ - Our lives are merely strange dark interludes in the electric display of God the Father.
+ - The past is the present, isn’t it? It’s the future too.
+ - Two days ago we waded through the mud out to this grave beneath the pines at the foot of the hill to place a Christmas wreath on it, hoping he would look down from the Paradise of Ten Billion Trees and Unrationable Dog Biscuits and pity us.
+ - You seem to be going in for sincerity today. It isn’t becoming to you, really – except as an obvious pose. Be as artificial as you are, I advise. There’s a sort of sincerity in that, you know. And, after all, you must confess you like that better.
+ - How thick the fog is. I can’t see the road. All the people in the world could pass by and I would never know. I wish it was always that way. It’s getting dark already. It will soon be night, thank goodness.
+ - No dog is as well bred or as well mannered or as distinguished and handsome.
+ - I spent a year in Professor Baker’s famous class at Harvard. There, too, I learned some things that were useful to me-particularly what not to do. Not to take ten lines, for instance, to say something that can be said in one line.
+ - When you’re 50 you start thinking about things you haven’t thought about before. I used to think getting old was about vanity – but actually it’s about losing people you love. Getting wrinkles is trivial.
+ - While you are still beautiful and life still woos, it is such a fine gesture of disdainful pride to jilt it.
+ - The old – like children – talk to themselves, for they have reached that hopeless wisdom of experience which knows that though one were to cry it in the streets to multitudes, or whisper it in the kiss to one’s beloved, the only ears that can ever hear one’s secrets are one’s own!
+ - Life is a long drawn out lie, with a sniffling sigh at the end of it.
+ - Take some wood and canvas and nails and things. Build yourself a theater, a stage, light it, learn about it. When you’ve done that you will probably know how to write a play.
+ - Age’s terms of peace, after the long interlude of war with life, have still to be concluded-Youth must keep decently away-so many old wounds may have to be unbound, and old scars pointed to with pride, to prove to ourselves we have been brave and noble.
+ - Critics? I love every bone in their heads.
+ - You said they had found the secret of happiness because they had never heard that love can be a sin.
+ - One may not give one’s soul to a devil of hate – and remain forever scatheless.
+ - It is Mystery – the mystery any one man or woman can feel but not understand as the meaning of any event – or accident – in any life on earth...
+ - The child was diseased at birth, stricken with a hereditary ill that only the most vital men are able to shake off. I mean poverty-the most deadly and prevalent of all diseases.
+ - A game of secret, cunning stratagems, in which only the fools who are fated to lose reveal their true aims or motives – even to themselves.
+ - The devil! what beastly things our memories insist on cherishing!
+ - What’s the use coming home to get the blues over what can’t be helped.
+ - When I was a kid I used to get fun out of my horrors.
+ - We need above all to learn again to believe in the possibility of nobility of spirit in ourselves.
+ - Drunken with what? With wine, with poetry, or with virtue, as you will. But be drunken.
+ - It’s a great game – the pursuit of happiness.
+
+57 quotes

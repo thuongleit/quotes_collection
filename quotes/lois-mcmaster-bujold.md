@@ -1,0 +1,139 @@
+ - Aim high. You may still miss the target, but at least you won’t shoot your foot off.
+ - Reputation is what other people know about you. Honor is what you know about yourself.
+ - When you choose an action, you choose the consequences of that action. When you desire a consequence you had damned well better take the action that would create it.
+ - The dead cannot cry out for justice; it is a duty of the living to do so for them.
+ - A tactical retreat is not a bad response to a surprise assault, you know. First you survive. Then you choose your own ground. Then you counterattack.
+ - No battle plan survives first contact with the enemy. Not when the enemy is me.
+ - Forward momentum only worked as a strategy if one had correctly identified which way was forward.
+ - Don’t wish to be normal. Wish to be yourself. To the hilt. Find out what you’re best at, and develop it, and hopscotch your weaknesses. Wish to be great at whatever you are.
+ - I’ve got forward momentum. There’s no virtue in it. It’s just a balancing act. I don’t dare stop.
+ - If you want to catch something, running after it isn’t always the best way.
+ - My home is not a place, it is people.
+ - Guard your honor. Let your reputation fall where it will. And outlive the bastards.
+ - If you can’t be seven feet tall, be seven feet smart.
+ - A weapon is a device for making your enemy change his mind.
+ - If you’re trying to take a roomful of people by surprise, it’s a lot easier to hit your targets if you don’t yell going through the door.
+ - The will to be stupid is a very powerful force, but there are always alternatives.
+ - On the sixth day God saw He couldn’t do it all, so He created ENGINEERS.
+ - It’s an ancient and honorable term for the final step in any engineering project. Turn it on, see if it smokes.
+ - I need words that mean more than they mean, words not just with height and width, but depth and weight and, and other dimensions that I cannot even name.
+ - Since no one is perfect, it follows that all great deeds have been accomplished out of imperfection. Yet they were accomplished, somehow, all the same.
+ - Exile, for no other motive than ease, would be the last defeat, with no seed of future victory in it.
+ - Escapist literature gets a bad rap. But I think escape is important for a lot of people in a lot of places.
+ - I’ve always thought tests are a gift. And great tests are a great gift. To fail the test is a misfortune. But to refuse the test is to refuse the gift, and something worse, more irrevocable, than misfortune.
+ - Never argue with a pedant over nomenclature. It wastes your time and annoys the pedant.
+ - Power is better than revenge. Power is a live thing, by which you reach out to grasp the future. Revenge is a dead thing, reaching out from the past to grasp you.
+ - Endure pain, find joy, and make your own meaning, because the universe certainly isn’t going to supply it.
+ - I don’t want power. I just object to idiots having power over me.
+ - I don’t duel, boy. I kill as a soldier kills, which is as a butcher kills, as quickly, efficiently, and with as least risk to myself as I can arrange.
+ - The good face pain. But the great? They embrace it.
+ - You can say a lot in a little time, if you stick to words of one syllable.
+ - An honor is not diminished for being shared.
+ - Some people grow into their dreams, instead of out of them.
+ - It is always easier to get forgiveness than permission.
+ - Adversity does teach who your real friends are.
+ - When the time comes to leap in faith whether you have your eyes open or closed or scream all the way down or not makes no practical difference.
+ - There is no more hollow feeling than to stand with your honor shattered at your feet while soaring public reputation wraps you in rewards. That’s soul-destroying. The other way around is merely very, very irritating.
+ - When you choose an action, you choose the consequences of that action.
+ - Not that I haven’t leaped up into the blinding light of competence now and then. It’s sustaining the altitude that defeats me.
+ - You should have fallen in love with a happy man, if you wanted happiness. But no, you had to fall for the breathtaking beauty of pain.
+ - All true wealth is biological.
+ - Like integrity, love of life was not a subject to be studied, it was a contagion to be caught. And you had to catch it from someone who had it.
+ - You have to be careful who you let define your good.
+ - I’m very interested in the impact of biotechnology on the way people live.
+ - If power was an illusion, wasn’t weakness necessarily one also?
+ - If the truth doesn’t save us, what does that say about us?
+ - The gods give no gifts without hooks embedded.
+ - Too late, he recalled Miles’s dictum that the reward for a job well done was usually a harder job.
+ - Children might or might not be a blessing, but to create them and then fail them was surely damnation.
+ - A hundred objective measurements didn’t sum the worth of a garden; only the delight of its users did that.
+ - Some prices are just too high, no matter how much you may want the prize. The one thing you can’t trade for your heart’s desire is your heart.
+ - If you can’t do what you want, do what you can.
+ - Miles added it to his life’s lessons list. Call it Rule 27B. Never make key tactical decisions while having electro-convulsive seizures.
+ - Events may be horrible or inescapable. Men have always a choice – if not whether, then how, they may endure.
+ - The world is made by the people who show up for the job.
+ - Hi, I’m a hero, but I can’t tell you why. It’s classified.
+ - I have a catch-phrase to describe my plot-generation technique – ‘What’s the worst possible thing I can do to these people?’
+ - For a while, I thought I was going mad. At last, I became reconciled to my despair. The medications helped, too, I thought, sir.
+ - Growing up, I have discovered over time, is rather like housework: never finished.
+ - Anything worth achieving is worth overachieving.
+ - It was never what I wanted to buy that held my heart’s hope. It was what I wanted to be.
+ - Never do yourself, what you can con professionals into doing for you.
+ - Surely only correct understanding could lead to correct action.
+ - I am who I choose to be. I have always been what I chose, though not always what I pleased.
+ - How could you be a Great Man if history brought you no Great Events, or brought you to them at the wrong time, too young, too old?
+ - His outflung hands traced over the threads of his rug, passed loop by loop through some patient woman’s hands. Or maybe she hadn’t been patient. Maybe she’d been tired, or irritated, or distracted, or hungry, or angry. Maybe she had been dying. But her hands had kept moving, all the same.
+ - I’m sorry. I can love you. I can grieve for you, or with you. I can share your pain. But I cannot judge you.
+ - Whether you function as welders or inspectors, the laws of physics are implacable lie-detectors. You may fool men. You will never fool the metal.
+ - I am an atheist, myself. A simple faith, but a great comfort to me, in these last days.
+ - Poets speak of hope in ladies smiles, but give me a smirk any day, I say.
+ - We should have taken our chances back then, when we were young and beautiful and didn’t even know it.
+ - People give themselves to you, in their talking, and in other ways, if you are quiet and patient and let them, and not in such a damned rush to give yourself to them you go bat-blind and deaf.
+ - When I go down into the ground at last, as God is my judge, I pray my best-beloved may have better to say of me than, “He didn’t hit me.”
+ - A good friend of my son’s is a son to me.
+ - Any communitys arm of force – military, police, security – needs people in it who can do necessary evil, and yet not be made evil by it. To do only the necessary and no more. To constantly question the assumptions, to stop the slide into atrocity.
+ - One of the best things about writing is how it redeems, not to mention recycles, all of one’s prior experiences, including or perhaps especially the failures.
+ - Any man can be kind when he is comfortable. I’d always thought kindness a trivial virtue, therefore. But when we were hungry, thirsty, sick, frightened, with our deaths shouting at us, in the heart of horror, you were still as unfailingly courteous as a gentleman at ease before his own hearth.
+ - All the geniuses I ever met were so just part of the time. To qualify, you only have to be great once, you know. Once when it matters.
+ - Second sight is redundant to reason anyway.
+ - Your father calls you to his court. You need not pack. You go garbed in glorious raiment. He waits eagerly by his palace doors to welcome you, and has prepared a place at the high table, by his side, in the company of the great-souled, honored, and best-beloved.
+ - War is not its own end, except in some catastrophic slide into absolute damnation. It’s peace that’s wanted. Some better peace than the one you started with.
+ - For me, writing is more a process of discovering the book than planning it.
+ - If you ever have to make a choice between learning and inspiration, choose learning. It works most of the time.
+ - One corner of his mouth crooked up, then the quirk vanished in a thoughtful pursing of his lips. “He’s bisexual, you know.” He took a delicate sip of his wine. “Was bisexual,” she corrected absently, looking fondly across the room. “Now he’s monogamous.” Vordarian choked, sputtering.
+ - There is a sad disconnectedness that overcomes a library when its owner is gone.
+ - I think 99 percent of women’s lib comes from technology making different kinds of lives possible, and then the social adjustment follows the technology – it doesn’t precede it.
+ - I spent my 20s working in patient care at a large university hospital, an experience that has informed all my work and has given me a lot of human observation to draw on.
+ - I’ve always tried to write the kind of book I most loved to read: character-centered adventure.
+ - One learns better than to hand one’s choices to fear. With age, with every wound and scar, one learns.
+ - The most important thing about quests, he decided, was not in finding what you went looking for, but in finding what you never could have imagined before you ventured forth.
+ - From fried witchetty grubs to gold-plated turnips, when you’re a writer you never know what’s going to appear on your plate next. It keeps a woman alert, it does.
+ - Wikipedia is so dangerous.
+ - Honesty is the only way with anyone, when you’ll be so close as to be living inside each other’s skins.
+ - I take it as a man’s duty to restrain himself.
+ - Only the saints would joke so about the gods, because it was either joke or scream, and they alone knew it was all the same to the gods.
+ - History does not so much repeat as echo, I suppose.
+ - Some men just aren’t cut out for paternity. Better they should realize it before and not after they become responsible for a son.
+ - Colonel Otto, do you have a, perhaps, fuller and more detailed account than your preliminary one of why my Imperial Security building is now largely an underground installation? From a technical perspective.
+ - You try to give away what you want yourself.
+ - Your Reverence, I do not hate any man in this world enough to inflict the results of my prayers upon him.
+ - Bleeding ulcers run in my family, we give them to each other.
+ - I am not a fate worse than death, dammit!
+ - I do think, half of what we call madness is just some poor slob dealing with pain by a strategy that annoys the people around him.
+ - One foot in front of the other, wasn’t that the grownup way of solving problems? Surely he ought to be a grownup at his age.
+ - Seems like half my anxiety dreams are about airports.
+ - Most people go through their whole lives without killing anybody. False argument.
+ - I am increasingly convinced that technological culture is the entire root of women’s liberation.
+ - The principle difference between heaven and hell is the company you keep there.
+ - I miss it every minute, and I have no wish at all to go back.
+ - Read, or you will be missing something extraordinary.
+ - Utterly bleak and black is not the sum of realism. All the other colors are real, too.
+ - There was no limit to what one man might do, if he gave all, and held back nothing.
+ - The world demands I make good choices on no information, and then blames my maidenhood for my mistakes, as if my maidenhood were responsible for my ignorance. Ignorance is not stupidity, but it might as well be. And I do not like feeling stupid.
+ - All the worry people expend over not existing after they die, yet nary a one ever seems to spare a moment to worry about not having existed before they were conceived. Or at all. After all, one sperm over and we would have been our sisters, and we’d never have been missed.
+ - Ignorance is not stupidity, but it might as well be. And I do not like feeling stupid.
+ - If you make it plain you like people, it’s hard for them to resist liking you back.
+ - Experience suggests it doesn’t matter so much how you got here, as what you do after you arrive.
+ - I wanted to give you a victory. But by their essential nature triumphs can’t be given.
+ - I’ve described my usual writing process as scrambling from peak to peak on inspiration through foggy valleys of despised logic. Inspiration is better when you can get it.
+ - Mia Maz glanced aside in concern at his muffled snort. “Are you all right?” “Yes. Sorry,” he whispered. “I’m just having an attack of limericks.” Her eyes widened, and she bit her lip; only her deepening dimple betrayed her. “Shhh,” she said, with feeling.
+ - A true Vor, Miles told himself severely, does not bury his face in his liegewoman’s breasts and cry – even if he is at a convenient height for it.
+ - Women do desperately need models for power other than the maternal.
+ - When you can’t do something truly useful, you tend to vent the pent up energy in something useless but available, like snappy dressing.
+ - I’d storm heaven for you, if I knew where it was.
+ - Suicidal glory is the luxury of the irresponsible.
+ - I began my writing career in a very isolated place and time.
+ - Well, what is a blessing but a curse from another point of view?
+ - When you give each other everything, it becomes an even trade. Each wins all.
+ - The Imperial Service could win a war without coffee, but would prefer not to have to.
+ - If there’s no game, isn’t winning a pretty meaningless concept?
+ - Do it for yourself. The universe will be around to collect its cut later.
+ - There are always survivors at a massacre. Among the victors, if nowhere else.
+ - Good soldiers never pass up a chance to eat or sleep. They never know how much they’ll be called on to do before the next chance.
+ - You couldn’t be that good and not know it, somewhere in your secret heart, however much you’d been abused into affecting public humility.
+ - A stunning first impression was not the same thing as love at first sight. But surely it was an invitation to consider the matter.
+ - If you desire a man to tell you comfortable lies about your prowess, and so fetter any hope of true excellence, I’m sure you may find one anywhere. Not all prisons are made of iron bars. Some are made of feather beds.
+ - This wasn’t prayer anyway, it was just argument with the gods. Prayer, he suspected as he hoisted himself up and turned for the door, was putting one foot in front of the other. Moving all the same.
+ - As the week wore on, Ivan contemplated the merits of inertia as a problem-solving technique with growing favor.
+
+137 quotes

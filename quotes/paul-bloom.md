@@ -1,0 +1,49 @@
+ - What I mean by “empathy” is putting yourself in other people’s shoes, feeling what they feel.
+ - And empathy is narrow; it connects us to particular individuals, real or imagined, but is insensitive to numerical differences and statistical data.
+ - I think empathy can serve as a moral spark, motivating us to do good things. But anything can be a moral spark.
+ - We are constituted so that simple acts of kindness, such as giving to charity or expressing gratitude, have a positive effect on our long-term moods. The key to the happy life, it seems, is the good life: a life with sustained relationships, challenging work, and connections to community.
+ - By “empathy,” some people mean everything that is good – compassion, kindness, warmth, love, being a mensch, changing the world – and I’m for all of those things. I’m not a monster.
+ - I’m not a pacifist. I think the suffering of innocent people can be a catalyst for moral action. But empathy puts too much weight on the scale in favor of war. Empathy can really lead to violence.
+ - We don’t just respond to things as we see them, or feel them, or hear them. Rather, our response is conditioned on our beliefs, about what they really are, what they came from, what they’re made of, what their hidden nature is.
+ - Every president, Democratic or Republican, simply works on the supposition that it’s better to keep jobs in America than let them go to Mexico.
+ - When people want to inspire you to turn against some group of people, they’ll often use empathy.
+ - Because of empathy, stories of the suffering of one person could lead us into a war that could kill millions of people.
+ - I draw a lot from Buddhism, which focuses on compassion and kindness, loving kindness, as they call it, but rejects empathy because it’s a poor moral guide. And I think there’s a lot of evidence suggesting that they’re right.
+ - I’m really interested in the pleasure we get from stories and the pleasure we get from movies, and certainly the pleasure we get from virtual experiences. My complaint is against empathy as a moral guide. But as a source of pleasure, it can’t be beat.
+ - Empty heads, cognitive science has taught us, learn nothing. The powerful cultural and personal flexibility of our species is owed at least in part to our starting off so well-informed; we are good learners because we know what to pay attention to and what questions are the right ones to ask.
+ - Some people think that without that spark of empathy we would do nothing, but that’s just flat-out wrong. You could feel compassion for somebody without the spark of empathy.
+ - It’s hard to pull apart empathy from compassion. What is really clear is that we innately care for other people at least to some extent.
+ - Traditionally, psychology has been the study of two populations: university freshmen and white rats.
+ - I think if we could turn the dial a bit, and try to take what the philosopher Henry Sidgwick called “the point of view of the universe”, and look from above, and realize that we are not special, none of us are, I think it would just cause a transformation.
+ - A religion such as Judaism or Catholicism might survive even if it comes to reject a literal account of God creating man and animals. But it cannot survive the rejection of an immaterial soul.
+ - I think there’s some evidence that we’re empathic by nature. There is some evidence from studies of babies and young children that they resonate with the pain of others, and there’s some work by Frans de Waal that other primates also resonate with the pain of others.
+ - I kind of like social media, and I like hearing from people. I don’t like the ugly stuff, but there are some people – smart people – who have a very different perspective, and I’ll get a backlash from them. And this isn’t necessarily a bad thing.
+ - I am never going to write about dogs again. You can write about Islam, you can write about sexuality, but no, not dogs.
+ - Because of empathy, we care more for, and devote far more resources to, someone who is familiar, from our country or our group, than a stranger.
+ - When I write I’ll sometimes say things which are somewhat controversial – not because I’m seeking out controversy for its own sake, but if I don’t have anything to say which is different, why am I bothering to write stuff down in the first place?
+ - Something as important and central and encompassing as empathy can’t be all bad. I think empathy plays a role in intimate relationships, where you might want your partner not just to care about you or understand you but to feel what you feel.
+ - You might argue on utilitarian grounds that the best way for the world to work is for everybody to take care of themselves first. And people have made that argument. But I just think we would be so much better off if we could care for distant others even a little bit more.
+ - Empathy zooms you in on an individual and, as a result, it’s narrow, it’s innumerate, it’s racist, it’s very biased.
+ - It has been a period where people have been far nicer to one another in every possible way. I’m not saying it’s because we’re dropping our empathy that we’re nicer to each other, just that the drop doesn’t seem to be causing any harm.
+ - I think we should really discourage this sort of empathic engagement when it comes to making moral decisions. I think we should focus on something like compassion, on getting people to care more for others without putting ourselves in their shoes.
+ - The effects of Twitter and Facebook and all those things on people’s psychologies is a really interesting question to which nobody knows the answer.
+ - I have two teenage sons, and they’re both surviving, thriving, and having a great time, and they’re always on social media.
+ - Families survive the terrible twos because toddlers aren’t strong enough to kill with their hands and aren’t capable of using lethal weapons.
+ - Nobody uses email anymore. I’m this old fogie with my email. I don’t know what I’m supposed to communicate with now – SnapChat?
+ - Individuals differ in how empathic they are. Some people would really flinch if they watched me hitting my hand with a hammer, and other people would just not care.
+ - In my own life, I do not live like an effective altruist. An effective altruist would really disapprove of my life. I don’t give enough to charity and I still have both my kidneys.
+ - When you start writing things to try to persuade someone who’s not already part of your guild or your profession that something is interesting, it forces you to ask yourself, “Well, why is this interesting?”
+ - If you like somebody, they look better to you. This is why spouses in happy marriages tend to think that their husband or wife looks much better than anyone else thinks that they do.
+ - I’m very interested in why we do good things, or bad things, and where moral judgments come from.
+ - Philosophers have often looked for the defining feature of humans – language, rationality, culture, and so on. I’d stick with this: Man is the only animal that likes Tabasco sauce.
+ - Stories turn anonymous strangers into people who matter.
+ - I think Americans are always going to care more about Americans than about Mexicans.
+ - I love teaching. I wouldn’t take a job that didn’t include it.
+ - Even the charities I give to are related to things that touch my life, like the Special Olympics. I’m not fully rational; I’m swayed by my biases and my emotions.
+ - People differ in where they direct their empathy and their compassion. Many people are intensely concerned about the suffering of non-human animals, and some do not care at all. There are cultural differences.
+ - That something can be used for good isn’t necessarily a knockdown argument for it.
+ - I have huge admiration for people who think like the effective altruist, who try to rationally think about how they can change the world for the better, and who try not to be swayed by irrational considerations, such as skin color or whether or not someone lives in the same neighborhood.
+ - I argue that we should be kind, we should be compassionate, and we should definitely be reasonable and rational, but that empathy leads us astray.
+ - I think empathy is really important for pleasure.
+
+47 quotes

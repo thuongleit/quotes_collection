@@ -1,0 +1,42 @@
+ - When you’re happy you enjoy the music, but when you’re sad you understand the lyrics. ~~Frank Ocean
+ - Tears are words the heart can’t express. ~~Gerard Way
+ - It was sad music. But it waved its sadness like a battle flag. It said the universe had done all it could, but you were still alive. ~~Terry Pratchett
+ - The sadness will last forever. ~~Vincent van Gogh
+ - Its good to leave each day behind, like flowing water, free of sadness. Yesterday is gone and its tale told. Today new seeds are growing. ~~Rumi
+ - If you came to see the truth, the purity, it’s here inside a lonely heart. ~~Michael Jackson
+ - There is a sadness at the back of life which some people do not attempt to mitigate. Entirely aware of their own standing in the shadow, and yet alive to every tremor and gleam of existence, there they endure. ~~Virginia Woolf
+ - The point is not that this world is too sad to love or too glad not to love; the point is that when you do love a thing, its gladness is a reason for loving it, and its sadness a reason for loving it more. ~~Gilbert K. Chesterton
+ - I wanna outrace the speed of pain. ~~Marilyn Manson
+ - I felt like crying but nothing came out. it was just a sort of sad sickness, sick sad, when you can’t feel any worse. I think you know it. I think everybody knows it now and then. but I think I have known it pretty often, too often. ~~Charles Bukowski
+ - When you feel like you’ve had it up to here, and you’re mad enough to scream, but you’re sad enough to tear, that’s rock bottom. ~~Eminem
+ - Sky of blackness and sorrow, sky of love, sky of tears. Sky of glory and sadness, sky of mercy, sky of fear. ~~Bruce Springsteen
+ - Experiencing sadness and anger can make you feel more creative, and by being creative, you can get beyond your pain or negativity. ~~Yoko Ono
+ - The only real sadness, the only real failure, the only great tragedy in life, is not to become a saint. ~~Léon Bloy
+ - Beware of sadness It can hit you It can hurt you Make you sore and what is more That is not what you are here for. ~~George Harrison
+ - Keep busy at something: a busy person never has time to be unhappy. ~~Robert Louis Stevenson
+ - There is no joy for the one who does not bear sadness, there is no sweetness for the one who does not have patience, there is no delight for the one who does not suffer, and there is no relaxation for the one who does not endure fatigue. ~~Ibn Qayyim Al-Jawziyya
+ - I wear my crown of thorns on my liars chair, full of broken thoughts I cannot repair, beneath the stain of time the feelings disappears. What have I become, my sweetest of friends? ~~Johnny Cash
+ - A rose looks grey at midnight, but the flame is just asleep. And steel is strong because it knows the hammer and white heat. ~~Johnny Cash
+ - In deep sadness there is no place for sentimentality. It is as final as the mountains: a fact. There it is. When you realize it you cannot complain. ~~William S. Burroughs
+ - Boredom, anger, sadness, or fear are not ‘yours,’ not personal. They are conditions of the human mind. They come and go. Nothing that comes and goes is you. ~~Eckhart Tolle
+ - Deep in the heart of the infinite darkness, a tiny blue marble is spinning through space. Born in the splendor of God’s holy vision, and sliding away like a tear down his face. ~~Johnny Cash
+ - Feel no sadness because of evil thoughts: it only strengthens them. ~~Nachman of Breslov
+ - There is not enough darkness in all the world to put out the light of even one small candle. ~~Robert Alden
+ - Let there be sunshine, let there be rain, let the broken hearted love again. ~~Bruce Springsteen
+ - Don’t let the sadness from the past and fear of the future ruin the happiness of the present. ~~Kid Cudi
+ - Was it the infinite sadness of her eyes that drew him or the mirror of himself that he found in the gorgeous clarity of her mind? ~~F. Scott Fitzgerald
+ - But now the joy is gone and the sadness is back, the sadness feels like something deserved, the price of some not-quite-forgotten betrayal. ~~Stephen King
+ - There is no hatred in my love for you. Only a sadness I feel all the more strongly for my inability to explain or describe it. ~~David Foster Wallace
+ - For a human being, sadness is as powerful as terror. Sadness makes a warrior shed tears of blood. ~~Carlos Castaneda
+ - What a sad business is being funny! ~~Charlie Chaplin
+ - This genuine heart of sadness can teach us great compassion. It can humble us when we’re arrogant and soften us when we are unkind. ~~Pema Chödrön
+ - In the presence of nature, a wild delight runs through the man, in spite of real sorrows. ~~Ralph Waldo Emerson
+ - Life is but a sleep disturbed by dreaming, prompted by the will; the saddened soul with sadness hides it’s secrets, and the gay, with thrill. ~~Khalil Gibran
+ - Often we see a couple who has separated or divorced and look with sadness at the ‘failure’ of their relationship. But if both people learned what they were meant to learn, then that relationship was a success. ~~Marianne Williamson
+ - In the valley of sorrow, spread your wings. ~~Susan Sontag
+ - Unhappy is he to whom the memories of childhood bring only fear and sadness. ~~H.P. Lovecraft
+ - To finish is a sadness to a writer – a little death. He puts the last word down and it is done. But it isn’t really done. The story goes on and leaves the writer behind, for no story is ever done. ~~John Steinbeck
+ - A ship in dock, surrounded by quays and the walls of warehouses, has the appearance of a prisoner meditating upon freedom in the sadness of a free spirit put under restraint. ~~Joseph Conrad
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. ~~Isaac Asimov
+
+40 quotes

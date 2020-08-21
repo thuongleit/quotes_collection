@@ -1,0 +1,51 @@
+ - There’s nothing more badass than being who you are.
+ - Hope for everything, expect nothing.
+ - People fall in love with a person, not a gender.
+ - I always shoot for the moon in my work, so that I’m happy when I land on the roof.
+ - Broadway is not just the song and the shows; it’s the individual performers and the community.
+ - I never let my politics supersede my manners.
+ - My name’s Darren. I’m a musician, part time idiot. That’s a full time job actually.
+ - As a composer and as a musician I’m a true believer – and this is not to be overly diplomatic – I’m a believer that there’s artistry in everything from a lawn gnome to a desk chair to a symphony to an Andy Warhol painting. There’s art in absolutely everything.
+ - Im like any other composer. If you give me five years to write a symphony, Im still going to be asking for more time two days before its due.
+ - The first time you do anything, people always take a minute to try to figure it out, but once you witness it in person, the word starts to spread and it gains momentum year after year.
+ - As a musician, I hear the harmonic value of everything – I just enjoy music.
+ - I don’t believe in guilty pleasures. If I like it, I don’t feel guilty about it.
+ - I’m very specific and ambitious in plotting out my goals and never take no for an answer – so it’s not like things just fall in my lap.
+ - I like orange and blue together, but I would never wear them.
+ - I was consumed by my love for Chris Colfer, and I just couldn’t hold it in any longer.
+ - No one’s tried to stab me. That’s cool. I enjoy not being stabbed.
+ - I’m this goofball. I look at myself in the mirror, and the person that I know doesn’t match up to what I think people love to perceive me as.
+ - I’m super annoying, I’m the kind of guy that if there’s no recycling bins around I hoard plastic bottles, put them in my bag and I bring them home. If I can afford it I want to put solar panels in.
+ - My biggest fear? My biggest fear would be turning into an inanimate object.
+ - I’m ambitious in the sense that I raise the bar high for myself.
+ - Fashion is about owning whatever you’re wearing, regardless of if it’s a high fashion statement or not.
+ - It’s been a secret too long, but I’m actually a straight male.
+ - I don’t take breaks, man, I’m always doing something.
+ - I’ve always loved fairytales, and I’ve loved the concept of, um, some of the best parts of a lot of stories are the beginning.
+ - Never let what is popular actually define your taste or interests.
+ - I’m in a real minority as far as having really supportive parents in regards to the arts. They never batted an eye as far as not letting me do that stuff. That’s invaluable. I can’t believe how unabashedly supportive they were about everything, between music and acting.
+ - The power of a smile goes a long way. My mom taught me that.
+ - There’s not a damn thing that I do on my own that’s not for my fans or for people that have supported me. So I don’t really care about my agenda, I wanna be on yours.
+ - Glee is more then just a show now. It’s become a wonderful culture celebrating the underdog and glorifying individuality.
+ - Challenge is good for any relationship.
+ - I have an unabashed adoration of cheesy pop music.
+ - All my aunts in the Phillipines, they look at me and say ‘Darreeeeeen! You so thin! Eat!’
+ - Sometimes I pretend to be an octopus. But then people are like ‘Darren what’re you doing?’ And I just sit there and laugh because they’re not cool enough to be an octopus and I’m just like ‘Hah you’re just jealous because you’re not an octopus.’
+ - Please don’t kill me, I’m nice.
+ - I never thought I would meet Mariah Carey, but I really never thought I’d be introduced to her by Whitney Houston. She’s like, ‘Hey, baby, this is Mariah.’ I’m like, ‘I know. I’m Darren. I don’t know what I’m doing here.’
+ - I know. I’m Darren. I don’t know what I’m doing here.
+ - I think people love to attach themselves to the idea of an overnight success. That may be true about me.
+ - For me, I think everybody with half a heart tries to do their best to do their part of good during the holiday season.
+ - I just hope I can continue to do work that matters to me, I’m not interested in being any kind of superstar or anything I’m not. I’m just a dude who got lucky and an artist who cares about the work that I do.
+ - I would be the worst president in the history of the United States. Unless you want the apocalypse to happen really soon then yes, I’ll run for president.
+ - I mean, part of me would love to be a fat tenured professor of theater someday.
+ - I’m always just waiting for someone to cut me off; I’m a chatty guy.
+ - I’ve always been the annoying kid who sang.
+ - I wish I was old Hollywood.
+ - No matter how much we’re on our phones, going to the show is the goal – you look at things online and watch videos and read blogs and comment, all so that you can go in person and see it yourself, and meet these people in real life, and then so you can go home and talk about it again on your screen.
+ - Its always important to recognize your situation and not take it for granted.
+ - I’d like to be writing songs for other people – I just like writing songs.
+ - I play mostly guitar, and I played drums in my brother’s band for a while growing up.
+ - Guys I’m kind of nutty, but you have to understand that that’s all just me being myself.
+
+49 quotes

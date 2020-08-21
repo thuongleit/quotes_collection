@@ -1,0 +1,110 @@
+ - Won’t you come into the garden? I would like my roses to see you.
+ - Never say more than is necessary.
+ - Be just before you are generous.
+ - Self confidence is the ground stone of success.
+ - An oyster may be crossed in love.
+ - The surest way not to fail is to determine to succeed.
+ - I had rather follow you to your grave than see you owe your life to any but a regular-bred physician.
+ - There is not a passion so strongly rooted in the human heart as envy.
+ - Our ancestors are very good kind of folks; but they are the last people I should choose to have a visiting acquaintance with.
+ - She’s as headstrong as an allegory on the banks of the Nile.
+ - Through all the drama – whether damned or not -Love gilds the scene, and women guide the plot.
+ - My valour is certainly going! – it is sneaking off! – I feel it oozing out as it were at the palms of my hands!
+ - Tale-bearers are as bad as the tale-makers.
+ - Madam, a circulating library in a town is as an evergreen tree of diabolical knowledge; it blossoms through the year. And depend on it that they who are so fond of handling the leaves, will long for the fruit at last.
+ - He is the very pineapple of politeness.
+ - When delicate and feeling souls are separated, there is not a feature in the sky, not a movement of the elements, not an aspiration of the breeze, but hints some cause for a lover’s apprehension.
+ - An unforgiving eye, and a damned disinheriting countenance!
+ - I hate to see prudence clinging to the green suckers of youth; ’tis like ivy round a sapling, and spoils the growth of the tree.
+ - I own the soft impeachment.
+ - If I reprehend anything in this world, it is the use of my oracular tongue, and a nice derangement of epitaphs!
+ - We will not anticipate the past; so mind, young people,-our retrospection will be all to the future.
+ - An aspersion upon my parts of speech!
+ - Mr. Speaker. I said the honorable member was a liar it is true and I am sorry for it. The honorable member may place the punctuation where he pleases.
+ - A life spent worthily should be measured by a nobler line,-by deeds, not years.
+ - I would by no means wish a daughter of mine to be a progeny of learning.
+ - A wise woman will always let her husband have her way.
+ - Illiterate him, I say, quite from your memory.
+ - It is not my interest to pay the principal, nor my principle to pay the interest.
+ - There’s no possibility of being witty without a little ill-nature – the malice of a good thing is the barb that makes it stick.
+ - Many a wretch has rid on a hurdle who has done less mischief than utterers of forged tales, coiners of scandal, and clippers of reputation.
+ - There’s only one truth about war: people die.
+ - To smile at the jest which plants a thorn in another’s breast is to become a principal in the mischief.
+ - Modesty is a quality in a lover more praised by the women than liked.
+ - A circulating library in a town is as an evergreen tree of diabolical knowledge.
+ - Humanity always becomes a conqueror.
+ - A bumper of good liquor Will end a contest quicker Than justice, judge or vicar.
+ - Believe that story false that ought not to be true.
+ - Wit loses its point when dipped in malice.
+ - Prudence, like experience, must be paid for.
+ - I leave my character behind me.
+ - The silver ore of pure charity is an expensive article in the catalogue of a man’s good qualities.
+ - Happiness is an exotic of celestial birth.
+ - There is no trusting appearances.
+ - Steal! to be sure they may; and, egad, serve your best thoughts as gypsies do stolen children,-disfigure them to make ’em pass for their own.
+ - The number of those who undergo the fatigue of judging for themselves is very small indeed.
+ - I open with a clock striking, to beget an awful attention in the audience – it also marks the time, which is four o clock in the morning, and saves a description of the rising sun, and a great deal about gilding the eastern hemisphere.
+ - Men seldom think deeply on subjects in which they have no choice of opinion: they are fearful of encountering obstacles to their faith – as in religion – and so are content with the surface.
+ - A man may surely be allowed to take a glass of wine by his own fireside.
+ - Though I never scruple a lie to serve my Master, it hurts one’s conscience to be found out!
+ - For in religion as in friendship, they who profess most are ever the least sincere.
+ - A tale of scandal is as fatal to the credit of a prudent lady as a fever is generally to those of the strongest constitutions. But there is a sort of puny, sickly reputation, that is always ailing, yet will wither the robuster characters of a hundred prudes.
+ - The most threatened group in human societies as in animal societies is the unmated male: the unmated male is more likely to wind up in prison or in an asylum or dead than his mated counterpart. He is less likely to be promoted at work and he is considered a poor credit risk.
+ - I’m called away by particular business – but I leave my character behind me.
+ - That old man dies prematurely whose memory records no benefits conferred. They only have lived long who have lived virtuously.
+ - There are a set of malicious, prating, prudent gossips, both male and female, who murder characters to kill time; and will rob a young fellow of his good name before he has years to know the value of it.
+ - Fertilizer does no good in a heap, but a little spread around works miracles all over.
+ - There never was a scandalous tale without some foundation.
+ - The quarrel is a very pretty quarrel as it stands – we should only spoil it by trying to explain it.
+ - A progeny of learning.
+ - Here is the whole set! a character dead at every word.
+ - Easy writings curse is hard reading.
+ - A fluent tongue is the only thing a mother don’t like her daughter to resemble her in.
+ - You write with ease, to show your breeding, But easy writing’s vile hard reading.
+ - Soft pity never leaves the gentle breast where love has been received a welcome guest.
+ - Fame, the sovereign deity of proud ambition.
+ - I’ll make my old clothes know who’s master. I shall straightaway cashier the hunting-frock, and render my leather breeches incapable. My hair has been in training some time.
+ - Pity those who nature abuses; never those who abuse nature.
+ - A man may think an untruth as well as speak one.
+ - There ’s nothing like being used to a thing.
+ - The newspapers! Sir, they are the most villainous – licentious -abominable – infernal – Not that I ever read them – No – I make it a rule never to look into a newspaper.
+ - There needs no small degree of address to gain the reputation of benevolence without incurring the expense.
+ - Date not the life which thou hast run by the mean of reckoning of the hours and days, which though hast breathed: a life spent worthily should be measured by a nobler line, – by deeds, not years...
+ - Egad, I think the interpreter is the hardest to be understood of the two!
+ - There is nothing on earth so easy as to forget, if a person chooses to set about it. I’m sure I have as much forgot your poor, dear uncle, as if he had never existed; and I thought it my duty to do so.
+ - A readiness to resent injuries is a virtue only in those who are slow to injure.
+ - I was struck all on a heap.
+ - Wine does but draw forth a man’s natural qualities.
+ - Humanity is composed but of two categories, the invalids and the nurses.
+ - Nothing keeps me in such awe as perfect beauty; now, there is something consoling and encouraging in ugliness.
+ - I loved him for himself alone.
+ - An apothecary should never be out of spirits.
+ - The Right Honourable gentleman is indebted to his memory for his jests, and to his imagination for his facts.
+ - Ay, ay, the best terms will grow obsolete: damns have had their day.
+ - Sheer necessity,-the proper parent of an art so nearly allied to invention.
+ - The throne we honour is the people’s choice.
+ - If the thought is slow to come, a glass of good wine encourages it; and when it does come, a glass of good wine rewards it.
+ - Certainly nothing is unnatural that is not physically impossible.
+ - If it is abuse, – why one is always sure to hear of it from one damned goodnatured friend or another!
+ - Had I a heart for falsehood framed, I ne’er could injure you.
+ - Women govern us; let us render them perfect: the more they are enlightened, so much the more shall we be. On the cultivation of the mind of women depends the wisdom of men. It is by women that nature writes on the hearts of men.
+ - In all cases of slander currency, whenever the forger of the lie is not to be found, the injured parties should have a right to come on any of the indorsers.
+ - Death’s a debt; his mandamus binds all alike- no bail, no demurrer.
+ - Our memories are independent of our wills.
+ - Whena scandalousstory isbelieved againstone, thereis certainly no comfort like the conscience of having deserved it.
+ - Where they do agree on the stage, their unanimity is wonderful.
+ - No scandal about Queen Elizabeth, I hope?
+ - Satires and lampoons on particular people circulate more by giving copies in confidence to the friends of the parties, than by printing them.
+ - It is by women that nature writes on the hearts of men.
+ - If Parliament were to consider the sporting with reputation of as much importance as sporting on manors, and pass an act for the preservation of fame as well as game, there are many who would thank them for the bill.
+ - Conscience has no more to do with gallantry than it has with politics.
+ - I ne’er could any luster seeIn eyes that would not look on me.
+ - A practitioner in panegyric, or, to speak more plainly, a professor of the art of puffing.
+ - Give them a corrupt House of Lords, give them a venal House of Commons, give they a tyrannical Prince, give them a truckling court, and let me have but an unfettered press. I will defy them to encroach a hair’s breadth upon the liberties of England.
+ - As there are three of us come on purpose for the game, you won’t be so cantankerous as to spoil the party by sitting out.
+ - O Lord, Sir – when a heroine goes mad she always goes into white satin.
+ - They only have lived long who have lived virtuously.
+ - Those that vow the most are the least sincere.
+ - You shall see them on a beautiful quarto page where a neat rivulet of text shall meander through a meadow of margin.
+
+108 quotes

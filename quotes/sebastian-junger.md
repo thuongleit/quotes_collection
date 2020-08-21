@@ -1,0 +1,36 @@
+ - If you get an infection, you get a fever; the fever is your body dealing with the infection. If you get traumatized, your mind and your brain have a reaction to that trauma. If you’re not dreaming about it, something’s probably wrong.
+ - Each Javelin round costs $80,000, and the idea that it’s fired by a guy who doesn’t make that in a year at a guy who doesn’t make that in a lifetime is somehow so outrageous it almost makes the war seem winnable.
+ - Maybe the ultimate wound is the one that makes you miss the war you got it in.
+ - Of the primary emotions, fear is the one that bears most directly on survival. Children show fear. Adults try not to, maybe because it’s shameful, or, in some circumstances, dangerous. The fear response is automatic, though, and your body runs through its reflexes whether you want it to or not.
+ - Who wants a life of ease? And who wants a life in the office that you hate, and who wants to play golf?
+ - There’s no reason to do anything twice, and certainly no reason to do something that almost killed you.
+ - How do men act on a sinking ship? Do they hold each other? Do they pass around the whisky? Do they cry?
+ - War is life multiplied by some number that no one has ever heard of.
+ - I hope I get married one day.
+ - My wife, Daniela, and I live in an old house from 1810 with three fireplaces at the end of a dead-end dirt road on Cape Cod, so I turn the trees into firewood for us and a friend of mine sells the rest.
+ - The only thing that makes battle psychologically tolerable is the brotherhood among soldiers. You need each other to get by.
+ - Combat isn’t where you might die – though that does happen – it’s where you find out whether you get to keep on living. Don’t underestimate the power of that revelation. Don’t underestimate the things young men will wager in order to play that game one more time.
+ - No matter how many people you kill, using a machine gun in battle is not a war crime because it does not cause unnecessary suffering; it simply performs its job horrifyingly well.
+ - The cause doesn’t have to be righteous and battle doesn’t have to be winnable; but over and over again throughout history, men have chosen to die in battle with their friends rather than to flee on their own and survive.
+ - The army consists of the first infantry division and eight million replacements.
+ - An adventure is a situation where the outcome is not entirely within your control. It is up to fate, in other words.
+ - At 19, your brain hasn’t finished wiring itself. So the first time you have a good friend die, most people don’t go through that at 19. Soldiers do. They’re facing life in this accelerated, compressed form, and a lot of times, they’re not ready for it.
+ - Bad news is dramatic. It makes good TV. If there’s a firefight on the same day that a school opens up, the media will show the firefight even though the school is way more important and will affect the community for much longer.
+ - No one will remember that President Obama supported the Arab Spring if it eventually fails and the region collapses back into the political Dark Ages. If we actively engage these movements with advice, with money, and, when necessary, with military force, then we get a vote in how it all turns out.
+ - A grenade launcher will easily take out a tank; a Molotov cocktail placed in its air intake will destroy one as well.
+ - I don’t think journalists in World War II were objective about the Nazis, and I don’t think they should have been.
+ - Traditional Albanian society was based on a clan system and was further divided into brotherhoods and bajraks. The bajrak system identified a local leader, called a bajrakar, who could be counted on to provide a certain number of men for military duty.
+ - Firemen don’t talk about whether a burning warehouse is worth saving.
+ - I’m a good liberal, and I grew up in a very liberal family and had very strongly held beliefs.
+ - All journalists hope that their work will inspire a broader conversation. I think that’s just what journalism is.
+ - When you’re scared, you’re still hanging on to life. When you’re ready to die, you let it go. A sort of emptying out occurs, a giving up on the world that seems oddly familiar even if you’ve never done it before.
+ - I think objectivity is like this strange myth that people think you’re supposed to achieve, but actually, the dirty little secret is that it’s not attainable any more than pure justice is attainable by the courts.
+ - I was surprised how open and unguarded the military was. I expected more scrutiny, more supervision from command.
+ - I think, unfortunately, we live in a world where people attack other people and I think a legitimate rationale for war is the saving of human life, the saving of lives of people who cannot defend themselves.
+ - People who do really dangerous tasks can’t afford to sit around and discuss the merits of what they’re doing.
+ - If you shell a military base and happen to kill civilians, you have not committed a war crime; if you deliberately target cities and towns, you have.
+ - In some ways, risk-taking is the ultimate act of self-indulgence, an obscene insult to the preciousness of life. And yet, how can one dismiss something that persists despite every reasonable theory that it shouldn’t?
+ - I’ve stopped war reporting. I realized that I’d answered all of my questions about war and about myself.
+ - It’s fun to have money, but the more money I get, the less interesting it becomes. If you don’t have very much, you have to think about it. If you are starving, you become interested in food. If you are struggling to pay the bills, money becomes tragically important.
+
+34 quotes

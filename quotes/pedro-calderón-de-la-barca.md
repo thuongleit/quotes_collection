@@ -1,0 +1,33 @@
+ - Green is the prime color of the world, and that from which its loveliness arises.
+ - In this treacherous world Nothing is the truth nor a lie. Everything depends on the color Of the crystal through which one sees it.
+ - When love is not madness it is not love.
+ - All life is a dream, and all dreams are dreams.
+ - For man’s greatest crime is to have been born.
+ - Never confide your secrets to paper; it is like throwing a stone in the air; and if you know who throws the stone, you do not know where it may fall.
+ - Even in dreams doing good is not wasted.
+ - And yet, and yet, in these our ghostly lives, Half night, half day, half sleeping, half awake, How if our waking life, like that of sleep, Be all a dream in that eternal life To which we wake not till we sleep in death.
+ - But whether it be dream or truth, to do well is what matters. If it be truth, for truth’s sake. If not, then to gain friends for the time when we awaken.
+ - The fox is very cunning, but he is more cunning who catches the fox.
+ - One may know how to gain a victory, and know not how to use it.
+ - How surely a knowledge of the world hardens the heart!
+ - Great events have sent before them their announcements.
+ - No virtue can be real that has not been tried. The gold in the crucible alone is perfect; the loadstone tests the steel, and the diamond is tried by the diamond, while metals gleam the brighter in the furnace.
+ - To the King, one must give his possessions and his life; but honour is a possession of soul, and the soul is only God’s.
+ - No windows give a better view than those a man brings with him in his head, not asking for tickets of admission, since at all functions, festivals, or feasts he looks out with the same nice self-composure.
+ - A friar who asks alms for God’s sake begs for two.
+ - All must yield to the weight of years; conquest is not difficult for time.
+ - Restless sunflower; cease to move.
+ - The dower of great beauty has always been misfortune, since happiness and beauty do not agree together.
+ - A woman needs a stronger head than her own for counsel – she should marry.
+ - Tis not where we lie but whence we fell; the loss of Heaven’s the greatest pain in Hell.
+ - Dreams are rough copies of the waking soul Yet uncorrected of the higher will, So that men sometimes in their dreams confess An unsuspected, or forgotten, self; -Since Dreaming, Madness, Passion, are akin In missing each that salutory rein Of reason, and the grinding will of man.
+ - The heart is an astrologer that always divines the truth.
+ - All just laws condemn cruelty.
+ - Grief has been compared to a hydra; for every one that dies, two are born.
+ - If a pretty woman only knew how anger improved her beauty! Her complexion needs no other paint than indignation.
+ - They say that the best counsel is that of woman.
+ - At the point when affection is not frenzy, it is not adore.
+ - Our treasures trifles seem, and all our life is dreaming, and the dreams themselves are dreams.
+ - Speak no evil of women; I tell thee the meanest of them deserves respect; for of women do we not all come?
+
+31 quotes

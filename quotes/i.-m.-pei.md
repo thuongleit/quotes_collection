@@ -1,0 +1,22 @@
+ - Life is architecture and architecture is the mirror of life.
+ - Success is a collection of problems solved.
+ - Stop worrying about missed opportunities and start looking for new ones.
+ - Be the best, not necessarily the original.
+ - You cannot defend your design without knowing what you’re designing for.
+ - Great artists need great clients.
+ - I want to bring out the best in a community and contribute something of permanent value.
+ - I believe that architecture is a pragmatic art. To become art it must be built on a foundation of necessity.
+ - Let’s do it right. This is for the ages.
+ - It is not an individual act, architecture. You have to consider your client. Only out of that can you produce great architecture. You cannot work in the abstract.
+ - I travel to the Middle East, I travel to China, I travel to Europe. It’s all very rewarding – the only problem is the travel is getting more and more difficult for me now. Ten years ago I would have enjoyed it a lot more.
+ - Many of the projects I’m most proud of are tall buildings, especially the housing projects. In New York I have two: one in Kips Bay and one at New York University. At that time, those projects were most challenging.
+ - I was born in Suzhou, a city not very far from Shanghai. It’s a very interesting town – there is a long artist’s tradition there, especially during the Ming and Ching dynasties, which produced many, many scholars and painters and so forth. That’s where my family lived for 600, 700 years.
+ - I didn’t want to think about a project that I couldn’t finish. That’s a kind of temptation. One has to realize one’s limitations. Why kid yourself?
+ - For Kips Bay, I had a wonderful client, William Zeckendorf, who was willing to gamble with me on using concrete and not brick for a high-rise apartment building. That was very innovative at the time.
+ - Contemporary architects tend to impose modernity on something. There is a certain concern for history but it’s not very deep. I understand that time has changed, we have evolved. But I don’t want to forget the beginning. A lasting architecture has to have roots.
+ - I cannot work and listen to Wagner at the same time, nor Mahler, nor Beethoven’s late quartets. I enjoy listening to Chopin’s piano music when I work.
+ - At home, I have a wife, fortunately, and my children are all grown, and I have many grandchildren. I spend weekends with my grandchildren; I adore them.
+ - I haven’t taken any new projects in the past years – I told myself, if I cannot live long enough to finish it, I don’t want it.
+ - I know something about the civilization of China, with my background, obviously, and I think I know something about American history. But that’s about all. And I’ve traveled all over the world, and for a long time I didn’t know very much about it, really.
+
+20 quotes

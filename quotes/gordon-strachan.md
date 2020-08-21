@@ -1,0 +1,36 @@
+ - You need responsibility in life.
+ - Do I miss football in Scotland? It keeps you really alive, that’s for sure. Your heartbeat fluctuates. I’m flatlining at the moment which is actually quite nice but you need to go up and down to stay alive.
+ - Fitness is a curve. You can be Lance Armstrong, or you can be really out of shape at the opposite end. People enter the curve wherever they are and then they can move up the curve, by better nutrition and better exercise.
+ - If you keep asking me questions, I will continue to find excuses.
+ - It wasn’t an easy decision to leave out Bobo, because I could have done that with two or three from the back four. But there’s a limit to the players you have and the changes you can make. The reality is we’re not defending well enough. But we just have to plug on. There’s no magic formula.
+ - People talk about how you make team spirit – is it golf days or going out drinking together? That doesn’t count. When you drink, you just tell lies to each other anyway and talk rubbish.
+ - Paul Scholes has been the best England midfield player for 30-odd years. You’d probably have to go back to Bobby Charlton to find someone who could do as much as Scholes. When the ball arrives at his feet he could tell you where every player on that pitch is at that moment. His awareness is superb.
+ - Sometimes to go forward you’ve got to go to the depths of your own personal despair and claw yourself back. From that point, no matter what happens, you know you can do it.
+ - I’m going to miss his childlike laugh. I’ll forget the goals but I’ll never forget that laugh.
+ - Arsene Wenger was talking about comparisons with Johan Cruyff, a player who only comes around every 10 years and Thierry Henry is definitely one of those.
+ - I’ve had to take a lot of stick down the years but the one thing that really got to me was when someone questioned my integrity. It’s the one thing that really grates with you.
+ - Thomas Gravesen thinks he’s broke his hand, but I told him that you play football with your feet and not your hand.
+ - The reason I became a manager was to have full control over training. If you are a coach, you are bound by what the manager wants you to coach. The other reason is that I just like the company of football people.
+ - I want players who are always striving to improve.
+ - I think if you’ve managed Celtic or Rangers you can go on to be Prime Minister of Great Britain, it’s that hard.
+ - Are there Martians out there? I haven’t got a clue. Is there life out there? I have no idea.
+ - I like to be able to control which players I’m working with. Because it doesn’t matter how good a coach you are if the guys you’re working with think they already know it all. You need a response, you need to feel they’re trying. I want players who are always striving to improve.
+ - If I was English I’d kill myself.
+ - I’m a better coach now than when I joined Celtic. The longer you stay in any job, the better you become. If you lose your drive, your enthusiasm, your imagination, that experience is no good.
+ - The world looks a totally different place after two wins. I can even enjoy watching Blind Date or laugh at Noel’s House Party.
+ - People talk about footballers and they get a bad press when not all of them deserve it.
+ - Believe me, you need good people if you want to make good players.
+ - I did think there were one or two referees who had a personal thing against me. It wasn’t them versus Celtic – it was them against me! I just think they wanted to take me on.
+ - Everybody at Barcelona loves Messi. They can’t speak highly of him.
+ - I’ve been in football a long time and people have problems through debt, drugs, drink and family.
+ - Good players win you games, good formations stop you losing them.
+ - I think what I’ve actually achieved as a manager does sometimes get a bit overlooked, because all people think about is the media side of things. They tend to forget I’ve not done so bad.
+ - I tried to talk to the ref but it is easier to get to see the Pope. If I’m in London again and I get mugged I hope the same number of people turn up to protect me. There were six police, four stewards and even a UN peace observer out there.
+ - I’m just going to crumble like a wreck. I’ll go home, become an alcoholic and maybe! jump of a bridge.
+ - All the really good players I know, they all knew right from wrong. So many of them don’t learn that at home nowadays.
+ - I get the feeling a lot of politicians are there to help themselves financially, first and foremost. I don’t really need to do that, and I thought if I could do something for sport in Scotland, that would be really fulfilling.
+ - It took me 35 years of being involved at a decent level of football to become manager at a great club like Celtic.
+ - It’s an incredible rise to stardom. At 17 you’re more likely to get a call from Michael Jackson than Sven Goran Eriksson.
+ - He could have done one of three things. He didn’t do either.
+
+34 quotes

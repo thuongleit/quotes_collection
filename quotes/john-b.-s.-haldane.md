@@ -1,0 +1,55 @@
+ - The world shall perish not for lack of wonders, but for lack of wonder.
+ - Reality is the cage of those who lack imagination.
+ - God has an inordinate fondness for beetles.
+ - If one could conclude as to the nature of the Creator from a study of creation it would appear that God has an inordinate fondness for stars and beetles.
+ - I will give up my belief in evolution if someone finds a fossil rabbit in the Precambrian.
+ - Shelley and Keats were the last English poets who were at all up to date in their chemical knowledge.
+ - The wise man regulates his conduct by the theories both of religion and science. But he regards these theories not as statements of ultimate fact but as art-forms.
+ - The conservative has but little to fear from the man whose reason is the servant of his passions, but let him beware of him in whom reason has become the greatest and most terrible of the passions. These are the wreckers of outworn empires and civilisations, doubters, disintegrators, deicides.
+ - Teleology is like a mistress to a biologist: he cannot live without her but he’s unwilling to be seen with her in public.
+ - I have come to the conclusion that my subjective account of my motivation is largely mythical on almost all occasions. I don’t know why I do things.
+ - I will jump into the river to save two brothers or eight cousins.
+ - You can drop a mouse down a thousand-yard mine shaft and, on arriving at the bottom, it gets a slight shock and walks away. A rat would probably be killed, though it can fall safely from the eleventh story of a building, a man is broken, a horse splashes.
+ - The advance of scientific knowledge does not seem to make either our universe or our inner life in it any less mysterious.
+ - Would I lay down my life to save my brother? No, but I would to save two brothers or eight cousins.
+ - A fairly bright boy is far more intelligent and far better company than the average adult.
+ - Science is vastly more stimulating to the imagination than the classics.
+ - There is no great invention, from fire to flying, which has not been hailed as an insult to some god.
+ - Haldane was engaged in discussion with an eminent theologian. “What inference,” asked the latter, “might one draw about the nature of God from a study of his works?” Haldane replied: “An inordinate fondness for beetles.”
+ - So far from being an isolated phenomenon the late war is only an example of the disruptive result that we may constantly expect from the progress of science.
+ - An ounce of algebra is worth a ton of verbal argument.
+ - It wasn’t until I had performed by first autopsy that I realized that even the drabest human exteriors could contain the most beautiful viscera. After that, I would console myself for the plainness of my fellow bus-riders by dissecting them in my imagination.
+ - Now, if the cooperation of some thousands of millions of cells in our brain can produce our consciousness, a true singularity, the idea becomes vastly more plausible that the cooperation of humanity, or some sections of it, may determine what Comte calls a Great Being.
+ - This is my prediction for the future: Whatever hasn’t happened will happen, and no one will be safe from it.
+ - We do not know, in most cases, how far social failure and success are due to heredity, and how far to environment. But environment is the easier of the two to improve.
+ - There can be no truce between science and religion.
+ - An attempt to study the evolution of living organisms without reference to cytology would be as futile as an account of stellar evolution which ignored spectroscopy.
+ - If materialism is true, it seems to me that we cannot know that it is true. If my opinions are the result of the chemical processes going on in my brain, they are determined by the laws of chemistry, not those of logic.
+ - Until politics are a branch of science, we shall do well to regard political and social reforms as experiments rather than short-cuts to the millennium.
+ - There are 400,000 species of beetles on this planet, but only 8,000 species of mammals.
+ - I think, however, that so long as our present economic and national systems continue, scientific research has little to fear.
+ - I do not believe in the commercial possibility of induced radioactivity.
+ - While I do not suggest that humanity will ever be able to dispense with its martyrs, I cannot avoid the suspicion that with a little more thought and a little less belief their number may be substantially reduced.
+ - I am quite sure that our views on evolution would be very different had biologists studied genetics and natural selection before and not after most of them were convinced that evolution had occurred.
+ - So many new ideas are at first strange and horrible though ultimately valuable that a very heavy responsibility rests upon those who would prevent their dissemination.
+ - Christianity is haunted by the theory of a God with a craving for bloody sacrifices.
+ - To the biologist the problem of socialism appears largely as a problem of size.
+ - The conclusion forced upon me in the course of a life devoted to natural science is that the universe as it is assumed to be in physical science is only an idealized world, while the real universe is the spiritual universe in which spiritual values count for everything.
+ - It was a reaction from the old idea of “protoplasm”, a name which was a mere repository of ignorance.
+ - You can analyze a glass of water and you’re left with a lot of chemical components, but nothing you can drink.
+ - In fact, words are well adapted for description and the arousing of emotion, but for many kinds of precise thought other symbols are much better.
+ - The future will be no primrose path. It will have its own problems. Some will be the secular problems of the past, giant flowers of evil blossoming at last to their own destruction. Others will be wholly new.
+ - Capitalism, though it may not always give the scientific worker a living wage, will always protect him, as being one of the geese which produce golden eggs for its table.
+ - We must learn not to take traditional morals too seriously. And it is just because even the least dogmatic of religions tends to associate itself with some kind of unalterable moral tradition, that there can be no truce between science and religion.
+ - If human beings could be propagated by cutting, like apple trees, aristocracy would be biologically sound.
+ - The extreme socialists desire to run every nation as a single business concern.
+ - The Creator, if He exists, has a special preference for beetles.
+ - Science is as yet in its infancy, and we can foretell little of the future save that the thing that has not been is the thing that shall be; that no beliefs, no values, no institutions are safe.
+ - And if we must educate our poets and artists in science, we must educate our masters, labour and capital, in art.
+ - Einstein – the greatest Jew since Jesus. I have no doubt that Einstein’s name will still be remembered and revered when Lloyd George, Foch and William Hohenzollern share with Charlie Chaplin that ineluctable oblivion which awaits the uncreative mind.
+ - Money can buy a fine dog but it is kindness that makes him wag his tail.
+ - I have never yet met a healthy person who worried very much about his health, or a really good person who worried much about his own soul.
+ - Every Christian church has tried to impose a code of morals of some kind for which it has claimed divine sanction. As these codes have always been opposed to those of the gospels a loophole has been left for moral progress such as hardly exists in other religions.
+ - Man armed with science is like a baby with a box of matches.
+
+53 quotes

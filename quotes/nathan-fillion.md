@@ -1,0 +1,91 @@
+ - It costs nothing to say something kind. Even less to shut up altogether.
+ - I’ve got a fantastic life. I enjoy what I do for a living. I see the blessings; I’m not blind.
+ - My brain is like a hard drive. Once you start adding new information, you start cutting off old information.
+ - I was attending the University of Alberta. I was going to be a high school teacher, like my parents. I failed – no, I didn’t fail a class, I just barely passed. I really didn’t try. It was Canadian history, through the plays of the time. My God, those were boring plays.
+ - I want my job to include a little adventure, a little more of a heightened reality than what I’m actually living.
+ - I’m comfortable only when there’s a mutual attraction. That’s what anyone wants. If I find out she’s not attracted to me, it brings down my level of attraction to her. If I’m interested and find out she’s not, I tend to cool off.
+ - I love hiking in the hills not far from my house. I’m invested in my hikes. Sometimes kids go up there and spray-paint over the signs; I’ve found a biodegradable paint cleaner, and I’ll scrub the signs so they’re nice and clean.
+ - My worst day is still a really good day. I complain, but I catch myself and count my blessings. I am truly blessed.
+ - The trick is, when you grow up, find work that feels like play.
+ - What I know of Steve Trevor is everything that I learned from ‘Wonder Woman,’ the television series with Lynda Carter. And I don’t remember much. I do remember his uniform, though.
+ - The nature of the beast is, art needs finance. That’s how this industry works.
+ - I love when a TV show, or entertainment in general, makes me feel something; be it positive, be it negative, be it happiness, be it awkward, uncomfortable if it can make me feel, it’s done it’s job.
+ - I like doing things where I can get dirty, work with my hands, and use power tools. Last weekend, I did some grouting.
+ - There are people who have energy that say ‘don’t come near me, don’t get too close.’ There’s people like Adrienne Shelley who have the energy of ‘come over here and give me a hug and if you’re around me you’re going to be happy about it.’
+ - I like to say there’s certain things you can’t take back: One of them is ‘I love you,’ and one of them is bullets.
+ - Whatever our bedtime was as kids, we could stay up an extra half hour if we were reading. My parents didn’t care as long as I was under the spell of a Stephen King or a Douglas Adams. Now I read in bed. I read at work. I read standing in line. It’s like, ‘Hello, my name is Nathan and I am a reader.’
+ - I’ll never look down on and I love running into actors who say ‘Oh yeah, I did a soap.’ I say ‘Tell me which one!’ It’s like being a member of a secret society.
+ - I’ve got a full plate, yes I do. That iPod, that’s nice. A phone recorder? Nicely done. All right I’m a bit of a tech geek. I have a subscription to Popular Science and I keep up on all this stuff.
+ - Somebody told me long ago that in acting, it’s okay to steal, just steal from the best.
+ - Oh, boy. I’m still in touch with about 90 percent of my exes. They would describe me as being unlucky in love.
+ - I like making sci-fi movies because I like watching sci-fi movies. I like watching horror. I like being in a horror movie. I’m a fan. My perspective’s a little different just because I get to participate as well as spectate.
+ - It’s a thrill to be a fan amongst fans.
+ - I think maybe, if I could be a Canadian super hero, I’d have some kind of freezing power and some sort of maple syrup weapon. Could be a little sticky.
+ - Saw a little girl touch a big bug and shout, “I conquered my fear! YES!” and calmly walk away. I was inspired.
+ - The Incredibles was the best movie ever made. Ever. Made. BSTL.
+ - You can’t embarrass Joss Whedon, he’s got no pride! He fully admits it. ‘Oh, it’s me. I’m little and goofy.’ You can’t wound his pride. He’s too self-deprecating.
+ - My mother always tells me, ‘Nathan, you’re very much a geek, but your strength is that you look mainstream. So no one can tell just by looking at you.’ I think this is true.
+ - I don’t spend a lot of time online.
+ - People keep inviting me back. It’s nice to work with the same people when you’ve had a good time previously, and this is one of those cases.
+ - I consider ‘Dr. Horrible’ a tremendous success. The fact that it won an Emmy I just think lends validity to what we were doing and the point we were trying to make: taking the power into someone else’s hands and changing the world.
+ - I slowly came to realize that this job of being an actor, you spend most of your time looking for work. That is your job. Your job is auditioning. You spend very little of your time actually working.
+ - I still buy actual books. The smell, having it in your hands – there’s really no substitute.
+ - I had an Indiana Jones fedora that I loved. I don’t know what happened to it. I don’t know where it went. Wish I had it back. Whoever’s got it, you suck.
+ - I think I’ve been really good at surrounding myself with really talented people. I’ve picked the right coattails to ride on.
+ - I love what I do. And why not be nice? I mean, I’ve seen people who work and they’re apparently not enjoying it, and they’re making sure everybody knows it.
+ - I don’t expect anybody to know who I am.
+ - I have a lightsaber at my front door for home protection. I have an 800-watt electric skateboard that I use to run errands in my neighborhood. It can go about six, seven miles, so depending on how much time I have, and how much I have to carry home, I’ll take it really far. I love that thing.
+ - I relate to those characters – and any character I play – in as much as I put myself in their positions and feel how I would personally deal with their experiences.
+ - I’m not a big prop actor.
+ - Basically, after an ABC sitcom I did, I ended up with a holding deal with 20th Century Fox. Absolutely cool. It pays you to be unemployed. And the bigger the entity that gives you the deal, the better.
+ - When you work on a soap opera, that’s three years of you working every day. There was no time to do anything other than the soap opera – you’re locked in.
+ - You know, I endeavor to be more like my older brother. He’s very magnetic. He’s actually very much like ‘Castle’ in that people are attracted to him, and just want to be near him. You want to know where my brother is in a crowded room? He’s the guy with the crowd around him.
+ - I think about my own daily choices every day in terms of how to find happiness.
+ - I think that acting can be a very pressurized existence. So when I’m not working, I spend very loose and un-pressurized time and I like to meet people who have a similar attitude.
+ - When you slick back your hair, you get a really good idea of just how melon-like your head actually is.
+ - Do something today you’ve been afraid to do. A decision based on fear is the wrong decision.
+ - I think TV has been a little bit irresponsible in how they portray these people because homicide detectives are not brooding, tortured souls who are stained with the stink of the city and who have blood on their hands. They are real, live people that are incredibly entertaining.
+ - I was shy. I was painfully shy, until fifth grade when I transferred to another school and befriended the class clown. And one day he was sick and I kinda stepped in for the class clown and I said, ‘Wow, this is exciting, I’m a little bit nervous.’
+ - I am one of the lucky few who is successful in their career, and I’m really enjoying myself.
+ - I have jobs that I’ve preferred more than others simply because I’ve gotten to meet and make friends with great people. I’ve pulled at least one very close friend from every project I’ve done.
+ - Improv as an actor makes you present in the moment. You listen, you’re attentive. You’re not acting so much as reacting, which is what you’re doing in life all the time.
+ - I want to be a working actor; I want to do jobs that excite me and challenge me, and I want to something fun.
+ - I’m a plethora of stolen jokes and kitschy references.
+ - I’ve always fantasized about being on TV. And I was. Then I fantasized about being in the movies. What could be better than captain of a space ship? I get to ride horses, shoot guns, have adventures.
+ - No one wants to see a person on TV who’s super-ultra-cool. That’s Superman, that’s a thing of the past. Heroes are now flawed, and have terrible tempers, you know? They’re real people.
+ - It’s hard to shake a stick at success.
+ - I don’t have 4 or 5 projects in front of me and an offer on every one saying ‘what one would you like to do?’ Things come along one at a time.
+ - I want my job to include a little adventure, a little more of a heightened reality than what I’m actually living. And ‘Castle’ has that. He gets this opportunity to tail these homicide detectives, and he’s driven by that. He’s a little immature, but he’s obviously loving life.
+ - I’ll tell you what I really enjoy. We all go to the movies, we all watch television, we know what they’re about, how they work. When the main character is a cop or a spy, it’s very exciting, but I also very much enjoy when the main characters are nobodies – a trucker.
+ - It’s so great in Hollywood now. You have people past 40 sitting and talking about serious stuff, writing and making movies and TV, but there’s laser pistols and superheroes and alien monsters involved. It’s viable and mainstream.
+ - My job changes very little because I’ve found that the more you try to be funny, the less funny you become.
+ - You have a dramatic portion of your television program and you treat it dramatically, and then you have a comedic portion of your program, and you treat it differently. Why do you change who are between the two pieces? You’re the same person. Just go.
+ - I think people imagine that I have about five scripts sitting in front of me and I say, ‘I think I’m going to go with the super hero thing and after that I’ll wrap it up with some more sci-fi and then do a romantic comedy.’ But it doesn’t quite work out that way.
+ - I’m the biggest geek of all. Adventure, fantasy, comic books – I can’t get enough.
+ - When people embrace character, there’s latzie. It’s the stuffing of a scene that’s not written. It’s not in the stage direction and it’s not in the words. When people embrace character, it informs their living, breathing moments in a scene so well.
+ - Somebody once said that you can never act and be another person; you’re only acting facets of yourself. I think there’s a lot of truth in that.
+ - I have a cat. I’m not a cat-person, but she came with the house that I’m renting. I don’t know how many hundreds of dollars worth of bump removals, teeth removals, cleanings and vet fees I’ve been through since then. But of course I love her and she’s worth it.
+ - I realized, dumb people don’t know they’re dumb. When people try to make me laugh and they try to be funny, that’s when they lose me. I find a lot of comedy in honesty.
+ - When I was a waiter I was fired twice from the same restaurant. I guess I was that good of an actor but that bad of a waiter.
+ - I told myself a while back, ‘Love what you do, but don’t fall in love with what you do.’ That way you won’t be brokenhearted if ever it gets canceled five episodes in – which has happened to me.
+ - There’s only one spot in history for the first ever of anything.
+ - With scheduling and the way projects come up, I take the first thing that interests me and that moves me. If it’s going to be fun, if I’m going to have a good time, and I’m going to enjoy the people I’m with, then that’s a good enough reason to do it.
+ - I’m not a famous celebrity of any kind. I’m a guy from Edmonton who’s got a great job and I’m loving it.
+ - I kind of fell backwards into acting. I was studying to be a high school teacher. I look now and I understand completely, or actually barely, how much work it is to be a teacher. It’s an incredible amount of work.
+ - Never trust a southerner. No, I’m kidding. They’re wonderful. You want to believe in his niceness and his charm, but he’s an evil kind of crazy man who’s righteous. Fear the righteous.
+ - Thank God there is a such thing as hiatus. We got the first ‘Dr. Horrible’ done in six days, we banged it out.
+ - The secret to comedy is not playing the comedy, but actually playing the situation, playing the drama of it.
+ - I’m living in Los Angeles, I’m in films and I’m on television, and I’m working with actors and telling stories. I’m living the fantasy. My worst day is a great day.
+ - When I go to a sci-fi convention, oh God, it’s the closest thing to being a rock star I will ever know in this life. I want to be a rock star, don’t you? It’s a good thing to be, a rock star.
+ - What draws me to roles, I think, are moments – moments that define character, where so much more of the story is told in just a moment – a look, a line, a short scene, but something that speaks a volume, something that speaks to me.
+ - Karaoke is something that’s near and dear and very close to my heart. I was a karaoke host when I was working my way through university. I was a full-time student and karaoke was my night job.
+ - I’ve had a long line of failed television programs, pilots that were never picked up, series that didn’t go very long. I’ve learned that there’s really nothing you can do. If it’s not in my control, I try not to worry about it.
+ - What turned me on to comedy was – well, first of all, I like being able to laugh, I like people who can make me laugh.
+ - I enjoy the art, and I enjoy drawing. I think my printing to this day looks like the printing right out of a comic book.
+ - When people embrace character, it informs their living, breathing moments in a scene so well.
+ - In all my characters, I try to find an iota of myself, and in Castle, I found a lot. He gets away with a lot, so that’s fun.
+ - When I watch TV I can tell when someone is punching the joke and telling me when to laugh. I’ll decide when to laugh, thank you very much.
+ - My first Comic-Con was when I first met Joss Whedon: He introduced me to that world and I’d never been to a convention before that. He and a bunch of the ‘Buffy’ and ‘Angel’ writers were all going down in a big van and he invited me along.
+ - I live in Los Angeles and I like to do a lot of hiking. I live a very relaxed life.
+
+89 quotes

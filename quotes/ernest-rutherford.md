@@ -1,0 +1,30 @@
+ - All science is either physics or stamp collecting.
+ - Physics is the only real science. The rest are just stamp collecting.
+ - All of physics is either impossible or trivial. It is impossible until you understand it, and then it becomes trivial.
+ - Gentlemen, we have run out of money. It is time to start thinking.
+ - The more physics you have the less engineering you need.
+ - A theory that you can’t explain to a bartender is probably no damn good.
+ - If your experiment needs statistics, you ought to have done a better experiment.
+ - Now I know what the atom looks like.
+ - We haven’t got the money, so we’ve got to think.
+ - Splitting the atom is like trying to shoot a gnat in the Albert Hall at night and using ten million rounds of ammunition on the off chance of getting it. That should convince you that the atom will always be a sink of energy and never a reservoir of energy.
+ - Never say, “I tried it once and it did not work.”
+ - It was almost as incredible as if you fired a 15-inch shell at a piece of tissue paper and it came back to hit you.
+ - The only possible conclusion the social sciences can draw is: some do, some don’t.
+ - That which is not measurable is not science. That which is not physics is stamp collecting.
+ - All scientific men will be delighted to extend their warmest congratulations to Tesla and to express their appreciation of his great contributions to science.
+ - I must confess it was very unexpected and I am very startled at my metamorphosis into a chemist.
+ - The energy produced by the breaking down of the atom is a very poor kind of thing. Anyone who expects a source of power from the transformation of these atoms is talking moonshine.
+ - We are rather like children, who must take a watch to pieces to see how it works.
+ - Gentlemen, now you will see that now you see nothing. And why you see nothing you will see presently.
+ - A good scientific theory should be explicable to a barmaid.
+ - Every good laboratory consists of first rate men working in great harmony to insure the progress of science; but down at the end of the hall is an unsociable, wrong-headed fellow working on unprofitable lines, and in his hands lies the hope of discovery.
+ - You should never bet against anything in science at odds of more than about 10-12 to 1.
+ - Should a young scientist working with me come to me after two years of such work and ask me what to do next, I would advise him to get out of science. After two years of work, if a man does not know what to do next, he will never make a real scientist.
+ - Don’t let me catch anyone talking about the Universe in my department.
+ - You know, I am sorry for the poor fellows that haven’t got labs to work in.
+ - If, as I have reason to believe, I have disintegrated the nucleus of the atom, this is of greater significance than the war.
+ - It is essential for men of science to take an interest in the administration of their own affairs or else the professional civil servant will step in – and then the Lord help you.
+ - I have to keep going, as there are always people on my track. I have to publish my present work as rapidly as possible in order to keep in the race. The best sprinters in this road of investigation are Becquerel and the Curies...
+
+28 quotes

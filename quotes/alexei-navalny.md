@@ -1,0 +1,33 @@
+ - Stupidity is not a crime.
+ - People don’t believe in positive changes anymore.
+ - In Russia an authoritarian leader is running the country. You can’t fight Putin with elections because he controls them. That’s why demonstrations are the most effective approach. Unfortunately Russia has sunk to this primitive level.
+ - People hate politicians. And I can understand why.
+ - Life makes no sense if you have to tolerate endless lies. I will never accept this system, which is built on lies, i will not stop my fight against this junta.
+ - I’m concerned with protecting the legal system.
+ - I am not ready to back away from my views.
+ - I’ve been reading this little book. It’s called the Russian constitution. And it says that the only source of power in Russia is the people. So I don’t want to hear those who say we’re appealing to the authorities. Who’s the power here?
+ - Consistency for me is everything.
+ - Everyone says corruption is everywhere, but for me it seems strange to say that and then not try to put the people guilty of that corruption away.
+ - Certain people have wanted to put me behind bars for a long time now. That’s part of my work. If I were afraid, I couldn’t do what I do.
+ - Everyone needs to understand that my work addresses existing problems, and one of the crucial problems in Russia today is corruption.
+ - I’m on the very blackest part of the black list.
+ - When men are arrested without any legal basis and for political reasons, it’s merely a routine, everyday occurrence in Russia, and hardly anyone has any sympathy.
+ - Xenophobia is fairly widespread in Russia.
+ - I think very poorly of United Russia. United Russia is the party of corruption, the party of crooks and thieves. And it is the duty of every patriot and citizen of our country to make sure that this party is destroyed.
+ - I really hate the people in power. I hate them with every fiber of my being. That is what drives me in almost everything I do.
+ - Nobody wants a political prisoner, but a political emigrant is no problem.
+ - People aren’t really afraid of my views. They are just afraid of the word ‘nationalism.’
+ - We’ve grown accustomed to injustice in Russia. People are constantly being arrested unlawfully.
+ - Since Russia has the largest number of illegal immigrants, second only to the US, and immigrants from Central Asia bring in drugs, I’m calling for a visa requirement for all those wonderful people from Tajikistan and Uzbekistan.
+ - Anyone who commits a xenophobic crime has to be brought to justice.
+ - I don’t know why, but Putin has made a ritual out of humiliating Medvedev. Sometimes I even feel sorry for the prime minister.
+ - Putin has reversed all the liberalizing reforms carried out by his predecessor.
+ - I’m only sort of a politician.
+ - Politics is traditionally a male domain in Russia.
+ - I’m not going to appeal to violence or aggression – of course not.
+ - Politics is traditionally a male domain in Russia. Until now, women have only been accessories. Now, female protest groups are emerging – not because men came up with the idea, but through their own efforts. That’s something new for Russia.
+ - Our political leaders often talk about Russia taking an independent path, but they like to live like people in the West.
+ - Foreign countries should impose sanctions against Putin’s corrupt network.
+ - Without any doubt, I am striving for power.
+
+31 quotes

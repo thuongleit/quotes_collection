@@ -1,0 +1,38 @@
+ - A life truly lived constantly burns away veils of illusion, burns away what is no longer relevant, gradually reveals our essence, until, at last, we are strong enough to stand in our naked truth.
+ - But if you travel far enough, one day you will recognize yourself coming down to meet yourself. And you will say – yes.
+ - Having a body that is like a musical instrument, open enough to be able to resonate, literally resonate with what is coming both from the inside and from the outside, so that one is able to surrender to powers greater than oneself.
+ - At the very point of vulnerability is where the surrender takes place-that is where the god enters. The god comes through the wound.
+ - This is your body, your greatest gift, pregnant with wisdom you do not hear, grief you thought was forgotten, and joy you have never known.
+ - An addiction is anything we do to avoid hearing the messages that body and soul are trying to send us.
+ - Instead of transcending ourselves, we must move into ourselves.
+ - It is amazing that our souls – our eternal essences, with all their hopes and dreams and visions of an eternal world – are contained within these temporal bodies. No wonder suffering is part of the human condition...
+ - Most of us are dragged toward wholeness.
+ - It is our very fear of the future that distorts the now that could lead to a different future if we dared to be whole in the present.
+ - The mystery of God touches us – or does not – in the smallest details: giving a strawberry, with love; receiving a touch, with love; sharing the snapdragon red of an autumn sunset, with love.
+ - To love unconditionally requires no contracts, bargains or agreements.
+ - The healing of ourselves as healers has to take place first. Bringing ourselves to wholeness, we become more sensitive to other people. In the change of consciousness that happens within us, we bring about change of consciousness in those around us and in the planet itself.
+ - Once we get used to listening to our dreams, our whole body responds like a musical instrument.
+ - There is no sense talking about “being true to yourself” until you are sure what voice you are being true to. It takes hard work to differentiate the voices of the unconscious.
+ - We all experience ‘soul moments’ in life-when we see a magnificent sunrise, hear the call of the loon, see the wrinkles in our mother’s hands, or smell the sweetness of a baby. During these moments, our body, as well as our brain, resonates as we experience the glory of being a human being.
+ - The more you work with your dreams and your unconscious, and honor it, the more you understand it and it understands you. When you develop a relationship with your psyche this way, you begin to carry that energy into life and your relationships.
+ - Transition begins in forgiveness.
+ - A life that is truly lived is constantly burning away the veils of illusion, gradually revealing the essence of the individual.
+ - The longing for sweets is really a yearning for love or ’sweetness.
+ - Many people can listen to their cat more intelligently than they can listen to their own despised body. Because they attend to their pet in a cherishing way, it returns their love. Their body, however, may have to let out an earth-shattering scream in order to be heard at all.
+ - It takes great courage to break with one’s past history and stand alone.
+ - The images we eat are as important as the food we eat. Think of that in terms of television, and a lot of the movies we watch.
+ - To strive for perfection is to kill love because perfection does not recognize humanity.
+ - Rage and bitterness do not foster femininity. They harden the heart and make the body sick.
+ - The harder we look at our aches and ailments, the more we will be startled by the painful truths they are trying to convey about our dangerously disembodied way of life.
+ - What analysis is all about is for one hour a week, you sit and hope that for a flash of a moment you will experience connectedness.
+ - If we could allow the pace of our meetings to slow down to the pace of our hearts, we might find genuine understanding.
+ - Consciousness will not always solve the problem, but it may make the suffering meaningful.
+ - Storytelling is at the heart of life. As a child, I was never bored because I could always get on with my story.
+ - The body is like an elaborate metaphor. One may be able to taste and not swallow, like the anorexic, or to swallow and not integrate, like the bulimic or obese.
+ - Without an understanding of myth or religion, without an understanding of the relationship between destruction and creation, death and rebirth, the individual suffers the mysteries of life as meaningless mayhem alone.
+ - My soul is the bridge between spirit and body and, as such, is a uniter of opposites. Without soul at center, I would either transcend into spirit or become mired in matter.
+ - Often the wisdom of the body Clarifies the despair of the spirit.
+ - The connection between conscious and unconscious poses particular problems in the dancer because the body is the soul of action.
+ - The healing of ourselves as healers has to take place first.
+
+36 quotes

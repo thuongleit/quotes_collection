@@ -1,0 +1,60 @@
+ - In this life, you have to risk big to win big.
+ - All women are goddesses, and it’s just a matter of letting that goddess-power shine – and if you don’t try to be the biggest and baddest damn goddess you can be, you are selling yourself short.
+ - Always dress like you’re going to see your worst enemy.
+ - Life is a series of adjustments; You can make changes along the way, but if you dodn’t start moving forward you’ll never get anywhere!
+ - Live honestly to a higher note. Life is too short. So, do the best you can and live your life to a higher note.
+ - You should aspire to a level of personal excellence – to be the best you can be. You should aspire to have the richest life you can get in terms of fulfillment, happiness and peace.
+ - Fabulosity. It’s a state of being.
+ - Relationships do change throughout the course of your life, and I always think in terms of relationships changing and evolving rather than starting and stopping.
+ - For me it’s always God, family, and then my work.
+ - You can never control other people. You can only control yourself. I have definitely learned that.
+ - You can do anything you put your mind to, and you can do it in stilettos.
+ - Yes, Im quirky, loud and crazy.
+ - I don’t apologize for my diamonds, Rolls-Royce, Range Rover, or anything. Look, Queen Elizabeth has more diamonds than me. Why don’t people attack her for it?
+ - I’m fiercely protective of my children even though we are on TV.
+ - We as women analyze every little thing that comes out of men’s mouths, but sometimes you’ve got to just pay their craziness no heed. Just pretend it’s their “time of the month” and think about the dry-cleaning you’ve got to pick up.
+ - Be stingy with your money! Don’t splurge at the mall – and definitely don’t give it to your boyfriend!
+ - If you’re shy, get the hell over it: You’re slamming the door in your own face.
+ - Live life on your own path. Everybody’s got something different. You can’t keep up with all those people, so you better keep up with yourself.
+ - No matter what your goals are, you’ve got to bring other people onto your team. For one thing, if you surround yourself with people who want to be successful, you become successful.
+ - I tell young girls all the time: “Go for the guys who are more serious, distinguished”. The hot-model types, they’re too pretty, and too wet behind the ears. Besides, do you want a guy who takes longer to get ready than you?
+ - Everyone has an opinion; the question is which opinions are actually relevant to your journey and which are just static in the air?
+ - I think one great tip is that you should always love yourself. If you don’t love yourself, take care of yourself, cater to yourself and that little inner voice, you will really not be very worthy of being with someone else, because you won’t be the best version of you.
+ - It’s about prioritizing. Just take it one step at a time. Do the best that you can. I’m a mom and I have two husbands – an ex husband and a next husband. It’s a blended family and it’s very hard to keep things together, but we’re happy and we live in love. Djimon and I are so happy.
+ - Without aspirations for a better existence, you’re stuck in the mud and going nowhere.
+ - I’m very determined, honest, open and definitely very energetic. I expect a lot as a boss and I’m very demanding, but I ask that of myself too.
+ - I try to do everything from the viewpoint of what’s best for my kids. I have three kids and two great dads and it’s not always easy, but you have to try to be a little selfless and we manage just fine.
+ - I look forward to spring cleaning and putting things in their place. It’s therapeutic for me.
+ - All of us are selling ourselves, every single minute of every single dayeach one of us is building our own ‘brand of me’ and saying ‘buy into me, put your faith into me, give me this shot, I will make it happen.’
+ - You can be rich and not be famous. You can be famous and not be rich. But to be rich and famous is a special category all by itself.
+ - You never want to do anything that you don’t want your mother to see, because it will haunt you and eventually come back to bite you!
+ - It’s not always what you know, but who you know. Get out and meet people.
+ - Nobody automatically believes in your dream. Nobody! You have to turn it into reality through your own sheer grit, bullheadedness and persistence.
+ - All children can do things to help, whether how big or small – by donating toys or lending a hand in the community.
+ - A woman may be a mother, a sister, a business woman, or she may own a business. Woman do many things, and it is important that we do it with grace and style.
+ - I have a really big mouth, I have a lot of opinions and I will be heard.
+ - I’m a girl’s girl. I’m a woman’s woman. I’m a cool girl.
+ - People should know whatever it is you love to do. I am a living testament to the fact that you can do it. You can do whatever it is you put your mind to and you can do it in stilettos.
+ - I’m much more into old-world, intimate conversations on the phone. I like to write letters.
+ - Being a working mom, you want to make a difference in our schools, which is making a difference in our children and ultimately it’s making a difference in our community.
+ - I have a lot of hang-ups in life with men. I’m not very trusting.
+ - I try not to be neurotic; I try to create and present healthy body image.
+ - There’d never been a clothing line made by a young woman like me: a multiethnic woman who has one foot in Gucci and one foot in the ghetto.
+ - Difficulties are not interruptions to our journey; they are part of it, as if they’re part of the weave of the cloth of our lives. They weave in and become an essential part of the whole. Because the more challenges we face, the more capable we realize we are and the less there is to fear.
+ - I don’t believe that fashion should exclude people – I have always been about making it accessible to everyone.
+ - I love when people walk into my house and start grinning: “This is too much – this is so you!” Why give people brown cardboard when you can give them embroidered, crystal-flecked organza?
+ - Very few people know this, but I love organizational products and tools. One of my favorite places to shop are container stores where you can get bins, boxes and crates to organize your life.
+ - You don’t have to dumb down – you just have to find a clever, good, secure man. I’ve found a couple – I’ve been lucky – but it’s probably hard for everybody to find that true love of a good man.
+ - Be a gold-medal multitasker. You should be able to discuss the new Ludacris video while correcting the merchandising spreadsheets, picking the right shade of snakeskin for next season’s mini-purses and catching the dog at the same time!
+ - I feel like I’m a good motivator; I’m very determined.
+ - Be true to yourself, and stick with who you are through thick and thin without letting anyone dilute your essence.
+ - No matter where you are in the game, no matter how successful you might be, there will always be others out there who are more talented or more beautiful or more connected than you. Get used to it! If you start dwelling on everybody else’s genius, it’ll become a huge wave of doubt.
+ - Fabulous is as fabulous does.
+ - I wanted my closet to look like a boutique.
+ - I represent luxury, and that’s what I love.
+ - I am not the kind of girl that gets in trouble.
+ - I think my customers, my fans are really like my family now – it’s like a movement of fabulosity.
+ - In almost any situation, it is far more devastating to keep your icy cool while the other person gets herself in a flush-cheeked, teary-eyed hot mess yelling in your face.
+ - The greasier, the better...
+
+58 quotes

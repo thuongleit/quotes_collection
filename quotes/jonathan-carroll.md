@@ -1,0 +1,58 @@
+ - Sometimes you have to give up on people. Not because you don’t care, but because they don’t.
+ - The fact that I’m silent doesn’t mean I have nothing to say.
+ - The only two important things in life are real love and being at peace with yourself.
+ - You know people don’t get better as we get older- we just get more of who we are.
+ - I feel like a cliche.
+ - The first great real intimacy between two people begins when secrets are told.
+ - You have to walk carefully in the beginning of love; the running across fields into your lover’s arms can only come later when you’re sure they won’t laugh if you trip.
+ - Everything you want in life has teeth.
+ - Writing a short story is like having a short intense affair, whereas writing a novel is like a long rich marriage.
+ - Real love is always chaotic. You lose control; you lose perspective. You lose the ability to protect yourself. The greater the love, the greater the chaos. It’s a given and that’s the secret.
+ - Although our emotions sometimes behave like spoiled, selfish children, unfortunately we cannot send them to their room or tell them to stop screaming.
+ - Death doesn’t make you sad- it makes you empty. That’s what’s so bad about it. All of your charms and beliefs and funny habits fall fast through a big black hole, and suddenly you know they’re gone because just as suddenly, there’s nothing left at all inside.
+ - For an adult, eating alone at McDonald’s is admitting a kind of defeat.
+ - Its easy to lose sight of what you want when you think you want everything.
+ - Some people are like blue jeans- the older and more beat up they get, the better they look.
+ - Lying is too much trouble. You have to make sure to taste each word before letting it off your tongue. I hate that. It’s hard enough making people understand without lying.
+ - Most men think they are good drivers. Most women think they are good in bed. They aren’t.
+ - I forgive nothing. If you stole my orange crayon in the fifth grade, you’re still on my hit list, buddy.
+ - I would have given him everything. I would have pulled down planets to make our life work.
+ - Just write about what bites you and damn the rest.
+ - The problem with waiting for someone, whether that wait is an hour or a lifetime, is everyone’s ‘clock’ is different. So what you might consider forever is only a little while to them, or vice versa.
+ - Dogs are minor angels, and I don’t mean that facetiously. They love unconditionally, forgive immediately, are the truest of friends, willing to do anything that makes us happy.
+ - One of the saddest realities is that we never know when our lives are at their peak. Only after it is over and we have some kind of perspective do we realize how good we had it a day, a month, five years ago.
+ - Learn to wait; invariably either things will change or your heart will.
+ - Sometimes it is the smallest thing that saves us: the weather growing cold, a child’s smile, and a cup of excellent coffee.
+ - Yo can always take back the lost parts of yourself if you can find and recognize them.
+ - The keys that unlock the heart are made of funny materials: a disarming phrase that comes out of the blue, nowhere, a certain sexy walk that sends you reeling, the way someone hums when she is alone. My father said it was the way my mother danced with him.
+ - People who truly love us can be divided into two categories: those who understand us, and those who forgive us our worst sins. Rarely do you find someone capable of both.
+ - Your boyfriend had a dream about potatoes and you’re asking me to interpret it? I’m just old. Being old doesn’t mean you know more; it means you ate enough fiber.
+ - If you are very lucky, you’re allowed to be in certain places during just the right season of your life: by the sea for the summer when you’re seven or eight and full of the absolute need to swim until dark and exhaustion close their hands together, cupping you in between.
+ - Fear pounds on the door to our heart demanding to be let in. Joy is modest and often comes into our lives like a shy person entering a room; it can take a while to even notice it’s there.
+ - How easily we ignore or forget the small kindnesses and considerations in life which are really the only everyday magic we witness on a regular basis. Just think- to make happiness out of nothing more than a few kind words or a generous gesture.
+ - Time talks behind our back. To our face it’s friendly and logical, never hesitating to give more of itself. But when we’re not looking, it steals our lives and says bad things about us to the parts of us it’s stolen.
+ - If it was as logical as that, I wouldn’t continue to feel as bad as I do. I know what you’re saying, and you’re absolutely right in a way. But logic and rationality only go so far. Then you know what happens? Ha! Then your heart adds its two cents and everything reasonable goes right-out-the-window.
+ - Everyone coming out of a perfume store is smelling the back of their hand.
+ - Coffee on an airplane always smells bad. Whenever it is served, suddenly the whole cabin stinks of it.
+ - Kids own nothing. Everything is either promised, borrowed, longed for or exaggerated.
+ - Old people are often impatient, but for what?
+ - When I was in college, I was the editor of the literary magazine and insisted neither the editors nor the writers be specifically identified-only our student numbers appeared on the title page. I love that idea and still do.
+ - Dogs are here to remind us life really is a simple thing. You eat, sleep, take walks, and pee when you must. That’s about all there is. They are quick to forgive trespasses and assume strangers will be kind.
+ - Even the handsomest men do not have the same momentary effect on the world as a truly beautiful woman does.
+ - If I don’t feel like writing today or for a few days, I don’t. And I don’t think about it. It is not an obligation-it is the greatest privilege.
+ - There’s almost always a point in a book where something happens that triggers the rest of the plot.
+ - I have never heard anyone say This is it. I know right now is the high point of my life. It will never get any better. Only in retrospect do we recognize the best times and of course then it is too late.
+ - Most men, no matter how well or badly dressed, carry overstuffed, beat up wallets that should have been replaced years ago. Why is that? Every time I see a guy take out a wallet anywhere, it looks like a piece of old melted chocolate cake-with strings.
+ - Fear’s greatest weapon is its ability to blind one to anything. In its presence, we forget there are others to consider, things to save besides ourselves.
+ - I write about what interests me. It’s very dangerous when you try to satisfy an audience.
+ - Far more disturbing than any spook house at an amusement park is a ride through the old hometown if you’ve been away for years.
+ - People are always waiting to be discovered.
+ - Very often I’ll find out at the end of a book what I put in at the beginning. A sort of process of elimination and discovery in one.
+ - Ive never seen myself as a fantasy writer-ever.
+ - I had always liked blind dates. If nothing else, it was an interesting way of discovering what people thought of you.
+ - I find you write with one person in mind. Usually for me that one person is my wife, because she’s my most severe critic and understands best what I’m trying to do.
+ - I started a short story but it was so dreary that even my pen threw up.
+ - The Viennese wash everything. Where else in the world does the government hire public servants to wash public telephone booths and the glass over traffic lights? Every time I see someone doing these things, I smile like a child.
+ - At a Boston signing, someone from the audience asked why I was so obsessed with furniture in my books. The question rattled around in my head. I had no idea that I was obsessed with furniture.
+
+56 quotes

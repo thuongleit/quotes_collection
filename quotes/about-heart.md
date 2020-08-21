@@ -1,0 +1,42 @@
+ - Having a rough day? Place your hand over your heart. Feel that? It’s called purpose. You’re alive for a reason. Don’t give up. ~~Joyce Meyer
+ - Have the courage to follow your heart and intuition. ~~Steve Jobs
+ - Our heart is restless until it rests in You. ~~Saint Augustine
+ - Always listen to your heart, because even though it’s on your left side, it’s always right. ~~Nicholas Sparks
+ - God knows the dreams and desires in your heart; in fact, He gave them to you. He will order your steps and take you where you need to be. ~~Joel Osteen
+ - Music is my contribution to life. I have my heart in it. ~~Michael Jackson
+ - Be humble, believe in yourself, and have the love of the world in your heart. ~~Michael Jackson
+ - The time has come to turn your heart into a temple of fire. Your essence is gold hidden in dust. To reveal its splendor you need to burn in the fire of love. ~~Rumi
+ - The only lasting beauty is the beauty of the heart. ~~Rumi
+ - Your heart is the size of an ocean. Go find yourself in its hidden depths. ~~Rumi
+ - Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life’s search for love and wisdom. ~~Rumi
+ - Your heart and my heart are very, very old friends. ~~Hafez
+ - Just as man cannot live without dreams, he cannot live without hope. If dreams reflect the past, hope summons the future. ~~Elie Wiesel
+ - One of the hardest things in life is having words in your heart that you can’t utter. ~~James Earl Jones
+ - Be silent, Only the Hand of God Can remove The burdens of your heart. ~~Rumi
+ - God would not have put a dream in your heart if He had not already given you everything you need to fulfill it. ~~Joel Osteen
+ - Everyone, deep in their hearts, is waiting for the end of the world to come. ~~Haruki Murakami
+ - Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. ~~Paramahansa Yogananda
+ - Every heart sings a song, incomplete, until another heart whispers back. Those who wish to sing always find a song. At the touch of a lover, everyone becomes a poet. ~~Plato
+ - Do what you feel in your heart to be right – for you’ll be criticized anyway. ~~Eleanor Roosevelt
+ - Christmas is a season for kindling the fire for hospitality in the hall, the genial flame of charity in the heart. ~~Washington Irving
+ - Be brave enough to break your own heart. ~~Cheryl Strayed
+ - Kill your darlings, kill your darlings, even when it breaks your egocentric little scribbler’s heart, kill your darlings. ~~Stephen King
+ - Don’t run with your legs, run with your heart. ~~Dean Karnazes
+ - The magic, the wonder, the mystery and the innocence of a child’s heart are the seeds of creativity that will heal the world. ~~Michael Jackson
+ - As long as I live, I’ll hear waterfalls and birds and winds sing. I’ll interpret the rocks, learn the language of flood, storm, and the avalanche. I’ll acquaint myself with the glaciers and wild gardens, and get as near the heart of the world as I can. ~~John Muir
+ - The heart will break, but broken live on. ~~Lord Byron
+ - Keep close to Nature’s heart... and break clear away, once in awhile, and climb a mountain or spend a week in the woods. Wash your spirit clean. ~~John Muir
+ - Spiteful words can hurt your feelings but silence breaks your heart. ~~C. S. Lewis
+ - To celebrate the heart of Christmas is to forget ourselves in the service of others. ~~Henry C. Link
+ - There comes a time when the world gets quiet and the only thing left is your own heart. So you’d better learn the sound of it. Otherwise you’ll never understand what it’s saying. ~~Sarah Dessen
+ - Do not give in too much to feelings. A overly sensitive heart is an unhappy possession on this shaky earth. ~~Johann Wolfgang von Goethe
+ - I don’t go by the rule book. I lead from the heart, not the head. ~~Princess Diana
+ - Our happiness depends on the habit of mind we cultivate. So practice happy thinking every day. Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. ~~Norman Vincent Peale
+ - Christmas is for children. But it is for grownups too. Even if it is a headache, a chore, and nightmare, it is a period of necessary defrosting of chill and hide bound hearts. ~~Lenora Mattingly Weber
+ - Boys will break your heart. Real men will pick up the pieces. ~~Drake
+ - Never give up. And most importantly, be true to yourself. Write from your heart, in your own voice, and about what you believe in. ~~Louise Brown
+ - The joy of brightening other lives, bearing each others’ burdens, easing other’s loads and supplanting empty hearts and lives with generous gifts becomes for us the magic of Christmas. ~~William Carey Jones
+ - Beauty isn’t about having a pretty face it’s about having a pretty mind, a pretty heart, and a pretty soul. ~~Drake
+ - I was never really insane except upon occasions when my heart was touched. ~~Edgar Allan Poe
+
+40 quotes

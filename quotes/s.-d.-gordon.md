@@ -1,0 +1,23 @@
+ - Joy is distinctly a Christian word and a Christian thing. It is the reverse of happiness. Happiness is the result of what happens of an agreeable sort. Joy has its springs deep down inside. And that spring never runs dry, no matter what happens. Only Jesus gives that joy.
+ - The greatest thing anyone can do for God or man is pray.
+ - You can do more than pray after you have prayed, but you cannot do more than pray until you have prayed.
+ - Steadfastness, that is holding on; patience, that is holding back; expectancy, that is holding the face up; obedience, that is holding one’s self in readiness to go or do; listening, that is holding quiet and still so as to hear.
+ - If there are two persons praying, there are three. If three meet to pray, there are four praying. There is always one more than you can see.
+ - Prayer is partnership with God in His planet-sized purposes, and includes the “all things” beside, as an important detail of the whole.
+ - Easter spells out beauty, the rare beauty of new life.
+ - Prayer strikes the winning blow; service is simply picking up the pieces.
+ - It takes power for the man of God in the pulpit to speak plainly about particular sins before the faces of those who are living in them; and still more power to do it with the rare tactfulness and tenderness of the Galilean preacher.
+ - Prayer wonderfully clears the vision; steadies the nerves; defines duty; stiffens the purpose; sweetens and strengthens the spirit.
+ - The way from God to a human heart is through a human heart.
+ - Shoes divide men into three classes. Some men wear their father’s shoes. They make no decisions of their own. Some are unthinkingly shod by the crowd. The strong man is his own cobbler. He insists on making his own choices. He walks in his own shoes.
+ - Jesus is God spelling Himself out in language that men can understand.
+ - One should never initiate anything that he cannot saturate with prayer.
+ - The real victory in all service is won in secret beforehand by prayer.
+ - God’s greatest agency; man’s greatest agency, for defeating the enemy and winning men back is intercession.
+ - If we lose the spirit of ‘go,’ we have lost the very Christian spirit itself. A disobedient church will become a dead church. It will die of heart failure.
+ - Prayer does not influence God. Prayer surely does influence God. It does not influence His purpose. It does influence His action.
+ - The men who seem to know most of God’s power have had great, unspeakable longings, at times, for a fresh consciousness of that power.
+ - No man’s hand has ever yet reached up to take as much as the Pierced Hand is reaching down to give.
+ - Ideals are like tuning forks: sound them often to bring your life up to standard pitch.
+
+21 quotes

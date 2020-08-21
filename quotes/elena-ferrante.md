@@ -1,0 +1,28 @@
+ - I am the queen of spades, I am the wasp that stings, I am the dark serpent. I am the invulnerable animal who passes through fire and is not burned.
+ - It’s the people who love us or hate us – or both – who hold together the thousands of fragments we are made of.
+ - The circle of an empty day is brutal and at night it tightens around your neck like a noose.
+ - Is it possible that even happy moments of pleasure never stand up to a rigorous examination? Possible.
+ - As a girl-twelve, thirteen years old-I was absolutely certain that a good book had to have a man as its hero, and that depressed me.
+ - Writing for me is a dragnet that carries everything away with it: expressions and figures of speech, postures, feelings, thoughts, troubles. In short, the lives of others.
+ - Women, in all fields – whether mothers or not – still encounter an extraordinary number of obstacles. They have to hold too many things together and often sacrifice their aspirations in the name of affections.
+ - I no longer protect myself from the world I grew up in. Rather, today I try to protect the feelings I have for that world, the emotional space where my desire to write first took hold, and still grows.
+ - Competition between women is good only if it does not prevail; that is to say if it coexists with affinity, affection, with a real sense of being mutually indispensable, with sudden peaks of solidarity in spite of envy, jealousy and the whole inevitable cohort of bad feelings.
+ - I have always paid careful attention to social and economic conflicts, to the dialectic – if we can call it that – between high and low. Maybe it’s because I was not born or brought up in affluence.
+ - At most, I may write when I am disturbed by something. I have recently discovered the pleasure of finding written answers to written questions.
+ - We lie in order to tolerate our existence and, most of all, we lie to ourselves.
+ - Existence is this, I thought, a start of joy, a stab of pain, an intense pleasure, veins that pulse under the skin, there is no other truth to tell.
+ - I believe that books, once they are written, have no need of their authors.
+ - There was something unbearable in the things, in the people, in the buildings, in the streets that, only if you reinvented it all, as in a game, became acceptable. The essential, however, was to know how to play, and she and I, only she and I, knew how to do it.
+ - Elena Ferrante is the author of several novels. There is nothing mysterious about her, given how she manifests herself – perhaps even too much – in her own writing, the place where her creative life transpires in absolute fullness.
+ - The rules say that to tell a story you need first of all a measuring stick, a calendar, you have to calculate how much time has passed between you and the facts, the emotions to be narrated.
+ - I had to discover very quickly that class origins cannot be erased, regardless of whether we climb up or down the sociocultural ladder.
+ - I don’t have any special passion for politics, it being a never-ending merry-go-round of bosses big and small, all generally mediocre. I actually find it boring.
+ - The fictional treatment of biographical material – a treatment that for me is essential – is full of traps.
+ - Anonymity lets me concentrate exclusively on writing.
+ - In order not to cut out a large part of one’s private life, the creative work should not swallow up every other form of self-expression. But that is the most complicated thing.
+ - My work stops at publication. If the books don’t contain in themselves their reasons for being – questions and answers – it means I was wrong to have them published.
+ - Climbing the economic ladder has been very hard for me; I still feel a great deal of guilt towards those I left behind.
+ - I think our sexuality is all yet to be recounted and that the rich male literary tradition constitutes a huge obstacle.
+ - He was going through one of those moments that you read about in books, when a character reacts in an unexpectedly extreme way to the normal discontents of living.
+
+26 quotes

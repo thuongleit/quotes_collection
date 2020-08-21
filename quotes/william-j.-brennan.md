@@ -1,0 +1,39 @@
+ - We must meet the challenge rather than wish it were not before us.
+ - The quest for freedom, dignity, and the rights of man will never end.
+ - If the right to privacy means anything, it is the right of the individual, married or single, to be free from unwarranted governmental intrusion.
+ - The genius of the Constitution rests not in any static meaning it might have had in a world that is dead and gone, but in the adaptability of its great principles to cope with current problems and current needs.
+ - Religious conflict can be the bloodiest and cruelest conflicts that turn people into fanatics.
+ - It is tempting to pretend that minorities on death row share a fate in no way connected to our own, that our treatment of them sounds no echoes beyond the chambers in which they die. Such an illusion is ultimately corrosive, for the reverberations of injustice are not so easily confined.
+ - If there is a bedrock principle underlying the First Amendment, it is that the government may not prohibit the expression of an idea simply because society finds the idea itself offensive or disagreeable.
+ - The calculated killing of a human being by the state involves, by its very nature, an absolute denial of the executed person’s humanity. The most vile murder does not, in my view, release the state from constitutional restraint on the destruction of human dignity.
+ - Perhaps the bleakest fact of all is that the death penalty is imposed not only in a freakish and discriminatory manner, but also in some cases upon defendants who are actually innocent.
+ - Authoritative interpretations of the First Amendment guarantees have consistently refused to recognize an exception for any test of truth whether administered by judges, juries, or administrative officials and especially one that puts the burden of proving truth on the speaker.
+ - We do not consecrate the flag by punishing its desecration, for in doing so, we dilute the freedom this cherished emblem represents.
+ - The Constitution was framed fundamentally as a bulwark against governmental power, and preventing the arbitrary administration of punishment is a basic ideal of any society that purports to be governed by the rule of law.
+ - We look to the history of the time of framing and to the intervening history of interpretation. But the ultimate question must be, what do the words of the text mean in our time.
+ - Law cannot stand aside from the social changes around it.
+ - We hold that the Constitution does not forbid the states minor intrusions into an individual’s body under stringently limited conditions.
+ - Consequences flow from a justice’s interpretation in a direct and immediate way. A judicial decision respecting the incompatibility of Jim Crow with a constitutional guarantee of equality is not simply a contemplative exercise in defining the shape of a just society. It is an order.
+ - Death is not only an unusually severe punishment, unusual in its pain, in its finality and in its enormity, but is serves no penal purpose more effectively than a less severe punishment.
+ - No longer is the female destined solely for the home and the rearing of the family and only the male for the marketplace and the world of ideas.
+ - It is difficult to understand precisely what the state hopes to achieve by promoting the creation and perpetuation of a subclass of illiterates within our boundaries, surely adding to the problems and costs of unemployment, welfare and crime.
+ - If a policeman must know the Constitution, then why not a planner?
+ - The principle inherent in the clause that prohibits pointless infliction of excessive punishment when less severe punishment can adequately achieve the same purposes invalidates the punishment.
+ - There is no such thing as a false idea.
+ - The law is not an end in itself, nor does it provide ends. It is preeminently a means to serve what we think is right.
+ - The framers knew that liberty is a fragile thing, and so should we.
+ - The door of the Free Exercise Clause stands tightly closed against any government regulation of religious beliefs as such. Government may neither compel affirmation of a repugnant belief, nor penalize or discriminate against individuals or groups because they hold views abhorrent to the authorities.
+ - We cannot let colorblindness become myopia which masks the reality that many “created equal” have been treated within our lifetimes as inferior both by the law and by their fellow citizens.
+ - The public schools are supported entirely, in most communities, by public funds-funds exacted not only from parents, nor alone from those who hold particular religious views, nor indeed from those who subscribe to any creed at all.
+ - Clerks get into the damnedest wrangles – which is the way they help me.
+ - The Bill of Rights never gets off the page and into the lives of most Americans.
+ - Whether to the average person, applying contemporary community standards, the dominant theme of the material taken as a whole appeals to prurient interest.
+ - We current justices read the Constitution in the only way that we can: as 20th-century Americans.
+ - If our free society is to endure, and I know it will, those who govern must recognize that the Framers of the Constitution limited their power in order to preserve human dignity and the air of freedom which is our proudest heritage.
+ - Our statute books gradually became laden with gross, stereotyped distinctions between the sexes and, indeed, throughout much of the 19th century the position of women in our society was, in many respects, comparable to that of blacks under the pre-Civil War slave codes.
+ - After each perceived security crisis ended, the United States has remorsefully realized that the abrogation of civil liberties was unnecessary.
+ - If we are to be as a shining city upon a hill, it will be because of our ceaseless pursuit of the constitutional ideal of human dignity.
+ - At bottom, the battle has been waged on moral grounds. The country has debated whether a society for which the dignity of the individual is the supreme value can, without a fundamental inconsistency, follow the practice of deliberately putting one of its members to death.
+ - Punishing desecration of the flag dilutes the very freedom that makes this emblem so revered.
+
+37 quotes

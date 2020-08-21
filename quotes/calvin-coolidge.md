@@ -1,0 +1,219 @@
+ - Nothing in this world can take the place of persistence. Talent will not; nothing is more common than unsuccessful people with talent. Genius will not; unrewarded genius is almost a proverb.
+ - Persistence and determination alone are omnipotent.
+ - Christmas is not a time nor a season, but a state of mind. To cherish peace and goodwill, to be plenteous in mercy, is to have the real spirit of Christmas.
+ - It takes a great man to be a good listener.
+ - All growth depends upon activity. There is no development physically or intellectually without effort, and effort means work.
+ - We cannot do everything at once, but we can do something at once.
+ - Nothing in the world can take the place of persistence.
+ - It has been my observation in life that, if one will only exercise the patience to wait, his wants are likely to be filled.
+ - No person was ever honored for what he recieved. Honor has been the reward for what he gave.
+ - There is no dignity quite so impressive, and no independence quite so important, as living within your means.
+ - Doubters do not achieve; skeptics do not contribute; cynics do not create.
+ - Don’t expect to build up the weak by pulling down the strong.
+ - The final solution for unemployment is work.
+ - School is not the end but only the beginning of an education.
+ - Any reward that is worth having only comes to the industrious. The success which is made in any walk of life is measured almost exactly by the amout of hard work that is put into it.
+ - In life there is nothing more common than talent and intelligence. What is missing is passion, persistence, commitment, and dedication.
+ - I have found it advisable not to give too much heed to what people say when I am trying to accomplish something of consequence. Invariably they proclaim it can’t be done. I deem that the very best time to make the effort.
+ - The nation which forgets its defenders will be itself forgotten.
+ - Silence can never be misquoted.
+ - If we judge ourselves only by our aspirations and everyone else only their conduct we shall soon reach a very false conclusion.
+ - The business of America is business. 
+ - The slogan ‘press on’ has solved and always will solve the problems of the human race.
+ - No one ever lost his job by listening too much.
+ - No man ever listened himself out of a job.
+ - Heroism is not only in the man, but in the occasion.
+ - The best help that benevolence and philanthropy can give is that which induces everybody to help himself.
+ - If you see ten troubles coming down the road, you can be sure that nine will run into the ditch before they reach you.
+ - Liberty is not collective, it is personal. All liberty is individual liberty.
+ - Wealth comes from industry and from the hard experience of human toil. To dissipate it in waste and extravagance is disloyalty to humanity.
+ - Prosperity is only an instrument to be used, not a deity to be worshipped.
+ - I have noticed that nothing I have never said ever did me any harm.
+ - The world is full of educated derelicts.
+ - We do not need more intellectual power, we need more spiritual power. We do not need more of the things that are seen, we need more of the things that are unseen.
+ - The only way I know to drive out evil from the country is by the constructive method of filling it with good.
+ - Civilization and profits go hand in hand.
+ - Work is not a curse; it is the prerogative of intelligence, the only means to manhood, and the measure of civilization.
+ - Those who trust to chance must abide by the results of chance.
+ - Faith is the great motive power, and no man realizes his full possibilities unless he has the deep conviction that life is eternally important and that his work well done is a part of an unending plan.
+ - There’s more, much more, to Christmas Than candlelight and cheer; It’s the spirit of sweet friendship That brightens all year. It’s thoughtfulness and kindness, It’s hope reborn again, For peace, for understanding, And for goodwill to men!
+ - After all, the chief business of the American people is business. They are profoundly concerned with producing, buying, selling, investing and prospering in the world.
+ - Never go out to meet trouble. If you just sit still, nine cases out of ten, someone will intercept it before it reaches you.
+ - Self-government means self support.
+ - Money will not purchase character or good government.
+ - You can’t increase prosperity by taxing success.
+ - Teaching is one of the noblest of professions. It requires an adequate preparation and training, patience, devotion, and a deep sense of responsibility. Those who mold the human mind have wrought not for time, but for eternity.
+ - Your ability to face setbacks and disappointments without giving up will be the measure of your ability to succeed.
+ - Changing a college curriculum is like moving a graveyard-you never know how many friends the dead have until you try to move them!
+ - Nature is inexorable. If men do not follow the truth they cannot live.
+ - What the end of the carnage of World War II meant to those who remember it, can never be forgotten, but to all those who don’t, its meaning can never be fully understood!
+ - They criticize me for harping on the obvious; if all the folks in the United States would do the few simple things they know they ought to do, most of our big problems would take care of themselves.
+ - The only difference between a mob and a trained army is organization.
+ - Don’t hesitate to be as revolutionary as science. Don’t hesitate to be as reactionary as the multiplication table.
+ - You can’t know too much, but you can say too much.
+ - Whenever I indulge my sense of humor, it gets me into trouble.
+ - There is new life in the soil for every man. There is healing in the trees for tired minds and for our overburdened spirits, there is strength in the hills, if only we will lift up our eyes. Remember that nature is your great restorer.
+ - To live under the American Constitution is the greatest political privilege that was ever accorded to the human race.
+ - Human nature provides sufficient distrust of all that is alien, so that there is no need of any artificial supply.
+ - There is no surer road to destruction than prosperity without character.
+ - The most common commodity in this country is unrealized potential.
+ - The fundamental precept of liberty is toleration.
+ - Industry cannot flourish if labor languish.
+ - What we need in appointive positions is men of knowledge and experience who have sufficient character to resist temptations.
+ - Men do not make laws. They do but discover them.
+ - I am for economy. After that I am for more economy. At this time and under present conditions that is my conception of serving all the people.
+ - I want the people of America to be able to work less for the government, and more for themselves.
+ - Wherever we look, the work of the chemist has raised the level of our civilization and has increased the productive capacity of the nation.
+ - We need more of the Office Desk and less of the Show Window in politics. Let men in office substitute the midnight oil for the limelight.
+ - A government which lays taxes on the people not required by urgent public necessity and sound public policy is not a protector of liberty, but an instrument of tyranny. It condemns the citizen to servitude.
+ - Education should be the handmaid of citizenship.
+ - When people are bewildered they tend to become credulous.
+ - Character is the only secure foundation of the state.
+ - One of the first lessons a president has to learn is that every word he says weighs a ton.
+ - Four-fifths of all our troubles would disappear, if we would only sit down and keep still.
+ - History reveals no civilized people among whom there was not a highly educated class and large aggregations of wealth. Large profits mean large payrolls.
+ - I did not see the sense in chasing a little white ball around a field.
+ - There is far more danger of harm than there is hope of good in any radical changes.
+ - I guess I am not naturally energetic. I like to sit around and talk.
+ - Ultimately property rights and personal rights are the same thing.
+ - It is only when men begin to worship that they begin to grow.
+ - It is a great advantage to a President, and a major source of safety to the country, for him to know he is not a great man.
+ - The two great political parties of the nation have existed for the purpose, each in accordance with its own principles, of undertaking to serve the interests of the whole nation. Their members of the Congress are chosen with that great end in view.
+ - I always figured the American public wanted a solemn ass for president, so I went along with them.
+ - We do not need to import any foreign economic ideas or any foreign government. We had better stick to the American brand of government, the American brand of equality, and the American brand of wages. America had better stay American.
+ - The strength of a country is the strength of its religious convictions.
+ - Honorable Senators: My sincerest thanks I offer you. Conserve the firm foundations of our institutions. Do your work with the spirit of a soldier in the public service. Be loyal to the Commonwealth and to yourselves and be brief; above all be brief.
+ - The words of the President have an enormous weight and ought not to be used indiscriminately.
+ - American ideals do not require to be changed so much as they require to be understood and applied.
+ - What men owe to the love and help of good women can never be told.
+ - There is no right to strike against the public safety by anybody, anywhere, any time.
+ - Industry, thrift and self-control are not sought because they create wealth, but because they create character.
+ - As I went about with my father, when he collected taxes, I knew that when taxes were laid someone had to work hard to earn the money to pay them.
+ - No enterprise can exist for itself alone.
+ - The American Revolution represented the informed and mature convictions of a great mass of independent, liberty-loving, God-fearing people who knew their rights, and possessed the courage to dare to maintain them.
+ - The door of opportunity swings wide open in our country. Through it, in constant flow, go those who toil. America recognizes no aristocracy save those who work. The badge of service is the sole requirement for admission to the ranks of our nobility.
+ - One of the greatest favors that can be bestowed upon the American people is economy in government.
+ - One with the law is a majority.
+ - Collecting more taxes than is absolutely necessary is legalized robbery.
+ - Advertising is the most potent influence in adapting and changing the habits and modes of life affecting what we eat, what we wear, and the work and play of a whole nation.
+ - We are too solicitous for government intervention, on the theory, first, that the people themselves are helpless, and second, that the Government has superior capacity for action. Often times both of these conclusions are wrong.
+ - The government can supply no substitute for enterprise.
+ - The presidency does not yield to definition. Like the glory of a morning sunrise, it can be experienced.
+ - A colored man is precisely as much entitled to submit his candidacy in a party primary, as is any other citizen. The decision must be made by the constituents to whom he offers himself, and by nobody else.
+ - No nation ever had an army large enough to guarantee it against attack in time of peace, or ensure it of victory in time of war.
+ - Theodore Roosevelt was always getting himself in hot water by talking before he had to commit himself upon issues not well-defined.
+ - The country is not in good condition.
+ - Men speak of natural rights, but I challenge any one to show where in nature any rights existed or were recognized until there was established for their declaration and protection a duly promulgated body of corresponding laws.
+ - What we need is not more Federal government, but better local government.
+ - If you can get enough votes so that mine will make a majority, you can have it.
+ - Nobody will ever forget what I’ve accomplished.
+ - I do not want to see any of the people cringing supplicants for the favor of the Government, when they should all be independent masters of their own destiny.
+ - Government price-fixing once started, has alike no justice and no end. It is an economic folly from which this country has every right to be spared.
+ - The government of a country never gets ahead of the religion of a country. There is no way by which we can substitute the authority of the law for the virtues of men.
+ - Freedom is not only bought with a great price; it is maintained by unremitting effort.
+ - Nothing is more common than unsuccessful people with talent.
+ - Patriotism is easy to understand in America. It means looking out for yourself by looking out for your country.
+ - Little progress can be made by merely attempting to repress what is evil. Our great hope lies in developing what is good.
+ - Governments do not make ideals, but ideals make governments.
+ - There is only one form of political strategy in which I have any confidence, and that is to try to do the right thing and sometimes be able to succeed.
+ - All growth depends upon activity.
+ - Any man who does not like dogs and want them about does not deserve to be in the White House.
+ - I want taxes to be less, that the people may have more.
+ - I should think that an ordinary copy of the King James version would have been good enough for those Congressmen.
+ - The danger to America is not in the direction of the failure to maintain its economic position, but in the direction of the failure to maintain its ideals.
+ - It would be difficult to conceive a finer example of true sport.
+ - It has become the custom in our country to expect all Chief Executives, from the President down, to conduct activities analogous to an entertainment bureau. No occasion is too trivial for its promoters to invite them to attend and deliver an address.
+ - Business will be either better or worse.
+ - There is no escaping the fact that when the taxation of large incomes is excessive, they tend to disappear.
+ - Why don’t we just buy one airplane and let the pilots take turns flying it.
+ - The only hope of a short war is to prepare for a long one.
+ - The man who builds a factory builds a temple, that the man who works there worships there, and to each is due, not scorn and blame, but reverence and praise.
+ - It would be folly to argue that the people cannot make political mistakes. They can and do make grave mistakes. They know it, they pay the penalty, but compared with the mistakes which have been made by every kind of autocracy they are unimportant.
+ - It is much more important to kill bad bills than to pass good ones.
+ - This country would not be a land of opportunity, America could not be America, if the people were shackled with government monopolies.
+ - The foundations of our society and our government rest so much on the teachings of the Bible that it would be difficult to support them if faith in these teachings would cease to be practically universal in our country.
+ - Inflation is repudiation.
+ - Look well to the hearthstone; therein all hope for America lies.
+ - Our country represents nothing but peaceful intentions toward all the earth, but it ought not to fail to maintain such a military force as comports with the dignity and security of a great people.
+ - Perhaps one of the most important accomplishments of my administration has been minding my own business.
+ - If we expect others to rely on our fairness and justice we must show that we rely on their fairness and justice.
+ - The Jews themselves, of whom a considerable number were already scattered throughout the colonies, were true to the teachings of their prophets. The Jewish faith is predominantly the faith of liberty.
+ - I shouldn’t want you to be surprised, or to draw any particular inference from my making speeches, or not making speeches, out there. I don’t recall any candidate for President that ever injured himself very much by not talking.
+ - War is the rule of force, and peace is the reign of law.
+ - You know, I have found out in the course of a long public life that the things I did not say never hurt me.
+ - I have never been hurt by what I have not said.
+ - No method of procedure has ever been devised by which liberty could be divorced from local self-government. No plan of centralization has ever been adopted which did not result in bureaucracy, tyranny, inflexibility, reaction, and decline.
+ - Nordics deteriorate when mixed with other races.
+ - Works which endure come from the soul of the people. The mighty in their pride walk alone to destruction. The humble walk hand in hand with providence to immortality. Their works survive.
+ - We must have no carelessness in our dealings with public property or the expenditure of public money. Such a condition is characteristic either of an undeveloped people, or of a decadent civilization. America is neither.
+ - Mass demand has been created almost entirely through the development of advertising.
+ - Everyone has an influence on public affairs if he will take the trouble to exert it.
+ - The collection of taxes which are not absolutely required, which do not beyond reasonable doubt contribute to public welfare, is only a species of legalized larceny. Under this Republic the rewards of industry belong to those who earn them.
+ - The centralization of power in Washington, which nearly all members of Congress deplore in their speech and then support by their votes, steadily increases.
+ - Our doctrine of equality and liberty and humanity comes from our belief in the brotherhood of man, through the fatherhood of God.
+ - Baseball is our national game.
+ - In other periods of depression, it has always been possible to see some things which were solid and upon which you could base hope, but as I look about, I now see nothing to give ground to hope-nothing of man.
+ - The right thing to do never requires any subterfuge, it is always simple and direct.
+ - No matter what anyone may say about making the rich and the corporations pay taxes, in the end they come out of the people who toil.
+ - America has but one main problem – the character of the men and women it shall produce.
+ - Wherever despotism abounds, the sources of public information are the first to be brought under its control.
+ - Few people are lacking in capacity, but they fail because they are lacking in application.
+ - Advertising is the life of trade.
+ - In the discharge of the duties of this office, there is one rule of action more important than all others. It consists in never doing anything that someone else can do for you.
+ - A lost article invariably shows up after you replace it.
+ - There is no justification for public interference with purely private concerns.
+ - Economy is the method by which we prepare today to afford the improvements of tomorrow.
+ - Despotism has forever had a powerful hold upon the world. Autocratic government, not self-government, has been the prevailing state of mankind. The record of past history is the record, not of the success of republics, but of their failure.
+ - I favor the policy of economy, not because I wish to save money, but because I wish to save people.
+ - In a republic the first rule for the guidance of the citizen is obedience of the law.
+ - It is very difficult to reconcile the American ideal of a sovereign people capable of owning and managing their own government with an inability to own and manage their own business.
+ - I do not choose to run for President in 1928.
+ - The man who builds a factory, builds a temple.
+ - I think the Senate ought to realize that I have to have about me those in whom I have confidence; and unless they find a real blemish on a man, I do not think they ought to make partisan politics out of appointments to the Cabinet.
+ - These things do not happen by chance. There is much less luck in public affairs than some suppose.
+ - Can those entrusted with the gravest authority set any example save that of the sternest obedience to the law?
+ - You don’t have to explain something you never said.
+ - We have got so many regulatory laws already that in general I feel that we would be just as well off if we didn’t have any more.
+ - A government which requires of the people the contribution of the bulk of their substance and rewards cannot be classed as a free government...
+ - We want wealth, but there are many other things we want very much more. Among them are peace, honor, charity, and idealism.
+ - I sometimes wish that people would put a little more emphasis upon the observance of the law than they do upon its enforcement.
+ - Anytime you don’t want anything you get it.
+ - When a great many people are unable to find work, unemployment results.
+ - We need not concern ourselves much about rights of property if we faithfully observe the rights of persons.
+ - It is characteristic of the unlearned that they are forever proposing something which is old, and because it has recently come to their own attention, supposing it to be new.
+ - Prosperity cannot be divorced from humanity.
+ - We have too much legislating by clamor, by tumult, by pressure. Representative government ceases when outside influence of any kind is substituted for the judgment of the representative.
+ - A display of reason rather than a threat of force should be the determining factor in the intercourse among nations.
+ - The attempt to regulate, control, and prescribe all manner of conduct and social relations is very old. It was always the practice of primitive peoples.
+ - After order and liberty, economy is one of the highest essentials of a free government.
+ - You have to stand every day three or four hours of visitors. Nine-tenths of them want something they ought not to have. If you keep dead-still they will run down in three or four minutes. If you even cough or smile they will start up all over again.
+ - Coolidge expressed his “sympathy with the deep and intense longing which finds such fine expression in the Jewish National Homeland in Palestine.”
+ - If I had permitted my failures, or what seemed to me at the time a lack of success, to discourage me I cannot see any way in which I would ever have made progress.
+ - Eat it up, make it do, wear it out.
+ - Christmas is not a time or a season but a state of mind.
+ - Unless we lay our course in accordance with this principle, the great power for good in the world with which we have been intrusted by a Divine Providence will be turned to a power for evil.
+ - We cannot permit any inquisition either within or without the law or apply any religious test to the holding of office. The mind of America must be forever free.
+ - We do not need more knowledge, we need more character!
+ - It is not easy to conceive of anything that would be more unfortunate in a community based upon the ideals of which Americans boast than any considerable development of intolerance as regards religion.
+ - It is difficult for men in high office to avoid the malady of self-delusion.
+ - It seems to me probable that of all our economic life the element on which we are inclined to place too low an estimate is advertising.
+ - We draw our Presidents from the people. It is a wholesome thing for them to return to the people. I came from them. I wish to be one of them again.
+ - It is not the enactment, but the observance of laws, that creates the character of a nation.
+ - One of the greatest perils to an extensive republic is the disregard of individual rights.
+ - The government of the United States is a device for maintaining in perpetuity the rights of the people, with the ultimate extinction of all privileged classes.
+ - Workmen’s compensation, hours and conditions of labor are cold consolations, if there be no employment.
+ - There have been great men with little of what we call education. There have been many small men with a great deal of learning. There has never been a great people who did not possess great learning.
+ - No enterprise can exist for itself alone. It ministers to some great need, it performs some great service, not for itself, but for others; or failing therein, it ceases to be profitable and ceases to exist.
+ - To expect to increase prices and then to maintain them at a higher level by means of a plan which must of necessity increase production while decreasing consumption is to fly in the face of an economic law as well established as any law of nature.
+ - There is no force so democratic as the force of an ideal.
+ - The Constitution is the sole source and guaranty of national freedom.
+ - Because of what America is and what America has done, a firmer courage, a higher hope, inspires the heart of all humanity.
+ - I always enjoy animal acts.
+ - The benefit of one is the benefit of all, and the neglect of one is the neglect of all.
+ - When a man begins to feel that he is the only one who can lead in this republic, he is guilty of treason to the spirit of our institutions.
+ - The property of the people belongs to the people. To take it from them by taxation cannot be justified except by urgent public necessity. Unless this principle be recognized our country is no longer secure, our people no longer free.
+ - It is difficult for men in high office to avoid the malady of self-delusion. They are always surrounded by worshipers. They are constantly, and for the most part sincerely, assured of their greatness.
+ - That man has offered me unsolicited advice for six years, most of it bad.
+ - Man everywhere has an unconquerable desire to be the master of his own destiny.
+
+217 quotes

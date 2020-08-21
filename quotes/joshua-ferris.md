@@ -1,0 +1,32 @@
+ - To conform is to lose your soul.
+ - It is really irritating to work with irritating people.
+ - Things could be worse and things could be so much better.
+ - I don’t write directly on to the computer because I don’t think well facing forward with fingers on a keyboard. I think better looking down holding a pen. And the concentration quotient of pen and paper is higher than when I’m moving words around on screen.
+ - I come from a very illustrious line of divorces. We love to get divorced in my family. My mother and father have been married four times each – eight ceremonies with the best of intentions.
+ - You think I alienate myself from society? Of course I alienate myself from society. It’s the only way I know of not being constantly reminded of all the ways I’m alienated from society.
+ - The office is a romantic enabler because you’re always around the person you have a crush on. There’s no escape from, and maybe no desire to escape from, those pressure-cooker conditions. And there’s an automatic series of things you have to talk about all the time.
+ - After I left college I thought, very naively, that either you became someone interesting – an artist – or you went into academia. If you ended up in an office you were dull and lacking. And I ended up in an office.
+ - Without work, so much of one’s identity just evaporates.
+ - My first job is to write a book that I believe is compelling and deserves the long sustained attention that any novel requires, and to worry about the commerce only late in the game.
+ - If you can get by with quotes from The Godfather and nothing you say matters, that’s pretty bleak, don’t you think? Don’t we want what we say to matter?
+ - All broken hearts are circumstantial. Every lovelorn jerk is the victim of bad timing, good intentions, and someone else’s poor decision making.
+ - It is forgivable to say nothing out of ignorance; it’s inexcusable to remain silent once awareness dawns.
+ - We were fractious and overpaid. Our mornings lacked promise. At least those of us who smoked had something to look forward to at ten-fifteen.
+ - We told him to get on with it. We liked wasting time, but almost nothing was more annoying than having our wasted time wasted on something not worth wasting it on.
+ - We suffered failures of imagination just like everyone else, our daring was wanting, and our daily contentment too nearly adequate for us to give it up.
+ - Everyone desires relationships and community. Most people want to belong to a cohesive, like-minded group. It staves off loneliness. It promotes identity. These are natural and very human instincts.
+ - We loved killing time and had perfected several ways of doing so. We wandered the hallways carrying papers that indicated some mission of business when in reality we were in search of free candy.
+ - Every time you hear someone read your book and liked your book, you’re never sure whether that’s going to follow with a similar remark from someone else. Perhaps I have low expectations, but whenever I hear someone say, ‘I liked your book,’ I don’t know if it’s going to happen again.
+ - We had the great good fortune and shortcomings of character that marked every generation that had never seen war.
+ - I’ve always thought things were absurd. It would take a lot more effort for me to see things as reasonable.
+ - The main questions of everyday life are too enormous to answer in any definitive sense.
+ - One thing that I discovered about myself is I really don’t like traveling. I feel like it’s a terrible personal failing, but I was so satisfied to arrive at the conclusion.
+ - We found ourselves wanting to hurry time along, which was not in the long run good for our health. Everybody was trapped in this contradiction but nobody ever dared to articulate it.
+ - Some days felt longer than other days. Some days felt like two whole days. Unfortunately those days were never weekend days. Our Saturdays and Sundays passed in half the time of a normal workday. In other words, some weeks it felt like we worked ten straight days and had only one day off.
+ - I think it’s a very bad idea for someone to start writing for a readership.
+ - I have never stopped considering not becoming a writer.
+ - I know what to do with my life. I just don’t know what to do with this one night.
+ - A multifaceted writer, very easy on the surface to pin down but incredibly difficult once you actually read him with any depth.
+ - Everything was always something but something – and here was the rub – could never be everything.
+
+30 quotes

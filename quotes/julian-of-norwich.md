@@ -1,0 +1,74 @@
+ - All shall be well, and all shall be well and all manner of thing shall be well.
+ - As truly as God is our Father, so truly God is our Mother.
+ - The fullness of Joy is to behold God in everything.
+ - Everything has being through the love of God.
+ - Between God and the soul there is no between.
+ - He did not say: You will not be assailed, you will not be belabored, you will not be disquieted, but he did said: You will not be overcome.
+ - Pray inwardly, even if you do not enjoy it. It does good, though you feel nothing. Yes, even though you think you are doing nothing.
+ - Truth sees God, and wisdom contemplates God, and from these two comes a third, a holy and wonderful delight in God, who is love.
+ - My, how busy we become when we lose sight of how God loves us.
+ - Our life is all grounded and rooted in love, and without love we may not live.
+ - For in the Third Showing when I saw that God does all that is done, I saw no sin: and then I saw that all is well. But when God showed me for sin, then said He: All SHALL be well.
+ - The greatest honor we can give Almighty God is to live gladly because of the knowledge of his love.
+ - Cheerful givers do not count the cost of what they give. Their hearts are set on pleasing and cheering the person to whom the gift is given.
+ - Be a Gardener. Dig a ditch. Toil and sweat. And turn the earth upside down. And seek the deepness. And water plants in time. Continue this labor. And make sweet floods to run, and noble and abundant fruits to spring. Take this food and drink, and carry it to God as your true worship.
+ - Every act of kindness and compassion done by any man for his fellow Christian is done by Christ working within him.
+ - But Jesus, who in this Vision informed me of all that is necessary for me, answered and said: It was necessary that there should be sin; but all shall be well, and all shall be well, and all manner of thing shall be well.
+ - God is nearer to us than our own spirit.
+ - Prayer unites the soul to God.
+ - God loved us before he made us; and his love has never diminished and never shall.
+ - Pray, even if you feel nothing, see nothing. For when you are dry, empty, sick or weak, at such a time is your prayer most pleasing to God, even though you may find little joy in it. This is true of all believing prayer.
+ - We are kept all as securely in Love in woe as in weal, by the Goodness of God.
+ - That love of God is hard and marvelous. It cannot and will not be broken because of our sins.
+ - Where do we begin? Begin with the heart.
+ - Love was without beginning, is, and shall be without ending.
+ - The Enemy is overcome by the blessed Passion and Death of our Lord Jesus Christ.
+ - Our Lord is the ground from whom our prayer grows and in his love and grace he himself gives us our prayers.
+ - Prayer is a new, gracious, lasting will of the soul united and fast-bound to the will of God by the precious and mysterious working of the Holy Ghost.
+ - Prayer is the deliberate and persevering action of the soul. It is true and enduring, and full of grace. Prayer fastens the soul to God and makes it one with God’s will.
+ - He that made all things for love, by the same love keepeth them, and shall keep them without end.
+ - For we are so preciously loved by God that we cannot even comprehend it.
+ - Cheerful givers do not count the cost of what they give.
+ - As we know, our own mother bore us only into pain and dying. But our true mother, Jesus, who is all love, bears us into joy and endless living. Blessed may he be.
+ - God, of thy goodness, give me Thyself; for Thou art enough for me, and I can ask for nothing less that can be full honor to Thee. And if I ask anything that is less, ever Shall I be in want, for only in Thee have I all.
+ - God willeth that we endlessly hate the sin and endlessly love the soul, as God loveth it.
+ - Love and Dread are brethren, and they are rooted in us by the Goodness of our Maker, and they shall never be taken from us without end. We have of nature to love and we have of grace to love: and we have of nature to dread and we have of grace to dread.
+ - Until I am essentially united with God, I can never have full rest or real happiness.
+ - The Lord looks on his servants with pity and not with blame. In God’s sight we do not fall; in our sight, we do not stand. Both of these are true, but the deeper insight belongs to God.
+ - The fruit and the purpose of prayer is to be oned with and like God in all things.
+ - God is our clothing, that wraps, clasps and encloses us so as to never leave us.
+ - In God’s sight we do not fall: in our own we do not stand.
+ - That which is impossible to thee is not impossible to me: I shall save my word in all things and I shall make all things well.
+ - Peace and love are ever in us, being and working; but we be not alway in peace and in love.
+ - When we, by the working of mercy and grace, be made meek and mild, we are fully safe; suddenly is the soul oned to God when it is truly peaced in itself: for in Him is found no wrath.
+ - If any such lover be in earth which is continually kept from falling, I know it not: for it was not shewed me. But this was shewed: that in falling and in rising we are ever preciously kept in one Love.
+ - For our soul is so preciously loved of him that is highest, that it over-passeth the knowing of all creatures.
+ - Charity keepeth us in Faith and Hope, and Hope leadeth us in Charity. And in the end all shall be Charity.
+ - The love that made Him to suffer passeth as far all His pains as Heaven is above Earth.
+ - We are in God and God whom we do not see is in us.
+ - Our Lord God shewed that a deed shall be done, and Himself shall do it, and I shall do nothing but sin, and my sin shall not hinder His Goodness working.
+ - He willeth to be perceived; and His appearing shall be swiftly sudden; and He willeth to be trusted. For He is full gracious and homely: Blessed may He be!
+ - All that is contrary to love and peace is of the Fiend and of his part.
+ - God willeth to be seen and to be sought: to be abided and to be trusted.
+ - Wherefore me behoveth needs to grant that all-thing that is done, it is well-done: for our Lord God doeth all.
+ - He shall appear suddenly and blissfully to all that love Him.
+ - It is most impossible that we should beseech mercy and grace, and not have it.
+ - A great thing shall I make hereof in Heaven of endless worship and everlasting joys.
+ - He that is highest and worthiest was most fully made-nought and most utterly despised.
+ - Our Savior is our true Mother in whom we are endlessly born and out of whom we shall never come.
+ - When I was thirty years old and a half, God sent me a bodily sickness, in which I lay three days and three nights; and on the fourth night I took all my rites of Holy Church, and weened not to have lived till day.
+ - But for I am a woman should I therefore live that I should not tell you the goodness of God?
+ - Anything less then God, ever me wanteth.
+ - It is easy to understand that the best deed is well done: and so well as the best deed is done – the highest – so well is the least deed done; and all thing in its property and in the order that our Lord hath ordained it to from without beginning. For there is no doer but He.
+ - We give our intent to love and meekness, by the working of mercy and grace we are made all fair and clean.
+ - Here saw I a great oneing betwixt Christ and us, to mine understanding: for when He was in pain, we were in pain.
+ - God is all that is good, as to my sight, and the goodness that each thing hath, it is He.
+ - The ground of mercy is love, and the working of mercy is our keeping in love. And this was shewed in such manner that I could not have perceived of the part of mercy but as it were alone in love; that is to say, as to my sight.
+ - It needeth us to have knowing of the littleness of creatures and to hold as nought all-thing that is made, for to love and have God that is unmade.
+ - But for failing love on our part, therefore is all our travail.
+ - The ground of mercy is love, and the working of mercy is our keeping in love.
+ - Because of the Shewing I am not good but if I love God the better: and in as much as ye love God the better, it is more to you than to me.
+ - For in every soul that shall be saved is a Godly Will that never assented to sin, nor ever shall.
+ - The age of every man shall be acknowledged before him in Heaven, and every man shall be rewarded for his willing service and for his time.
+
+72 quotes

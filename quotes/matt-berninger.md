@@ -1,0 +1,33 @@
+ - Live on coffee and flowers. Try not to worry what the weather will be.
+ - A person with grace is somebody who’s socially graceful or is a classy person, but sometimes you just feel the opposite of that, and you just feel like a jerk and a loser and a weirdo.
+ - You gotta lean towards the things that make you like yourself. Forget everything else.
+ - A different drumbeat or some vocal overdub could completely transform the song.
+ - Music has got a community vibe to it that pulls people together, and those communities are different in different places.
+ - I have pit bulls barking at me on half of the love songs.
+ - The song ‘Humiliation’ is kind of about what if, outside of a dinner party or something, I was blown up by a drone missile, out by the pool. What an embarrassing way to go.
+ - I drink wine on stage to sort of loosen my grip on reality a little.
+ - Getting on stage and performing and standing under lights is such an unsettling experience – in a good and bad way – but it’s the only place I can go to feel comfortable.
+ - It’s not hard to connect with the music on an emotional level and get inside the songs. It’s odd, very vulnerable, and slightly embarrassing to be standing and singing and playing music in front of a bunch of strangers.
+ - My parents know that I have always been sort of a dark melodramatic kid, so they were never concerned.
+ - A song is a song and, if I am emotionally connected to do it, whether it is sad or not sad, I am going to chase that song.
+ - I’m not saying I’m not a moody guy sometimes, but I think I have a pretty normal balance.
+ - I usually always think of characters and sometimes the characters are a little bit invented, so it’s nice to give these invented, blurry, personas an actually name. It makes me get closer to them or something like that. But they’re not all real, they’re weird amalgamations of reality.
+ - It is the melody and the rhythm that are by far the most important and then words and imagery and stuff, story bits will start to stick to a melody and that is the way I write.
+ - I never sit and fill a journal with lyrics. Most of the time I’m trying to write a feeling, not a story. I’m not necessarily trying to describe the details of a place or event so much as the feeling of the thing. It is a kind of weird alchemy that is elusive until it feels right.
+ - I don’t want somebody telling my daughter who she can marry, or what she can do with her body. That’s what was at stake.
+ - I’m trying to figure out how to record at home because I have a tiny house and a seven-year-old and my wife also works at home. So I can’t work in the house because she’s trying to write, so I pitched a tent in the backyard. I’m literally trying to record in the tent.
+ - I’m doing a little freelance work, and I think everybody’s trying to take their minds off rock and roll for a little while and get some perspective.
+ - Somehow, you realize you can kind of do anything in music. You don’t have to be good at a certain thing; you can just do whatever you want.
+ - I became at peace with the darkness or the personality that I have. I am usually pretty funny and happy.
+ - The last thing you want to do is write songs about being in a band.
+ - I think most people start rock bands in their early twenties or teens, but I was almost thirty at the time when the band started really doing anything and it took another several years before people started caring about us.
+ - I actually don’t go to shows anymore. Rock concerts have lost their appeal for me.
+ - I can never turn a tour into a vacation.
+ - Maybe because I have spent too much of my life in rock clubs. I don’t really go to parties anymore either. I’ll usually be in the bus by 11:30 after a show.
+ - Not all the songs are real events, but I do write about stuff that is close to my heart and it comes out one way or another.
+ - Lyrics need to be good, but they don’t need to be obvious right away.
+ - Trying to make it and get people to respect your band, being a cool band-all of that stuff-I think we’ve arrived at a place where we have kids and everything is in perspective and it doesn’t matter.
+ - I’ve never had so much fun being back at my job sitting in front of my computer. Compared to 10 months on the road, going home and sleeping in my own bed every night is really nice.
+ - I focus on the words and then I have fun putting together the music after.
+
+31 quotes

@@ -1,0 +1,371 @@
+ - Great minds discuss ideas. Average minds discuss events. Small minds discuss people.
+ - Do one thing every day that scares you.
+ - The future belongs to those who believe in the beauty of their dreams.
+ - You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. You are able to say to yourself, 'I have lived through this horror. I can take the next thing that comes along.' You must do the thing you think you cannot do.
+ - No one can make you feel inferior without your consent.
+ - Do what you feel in your heart to be right – for you’ll be criticized anyway.
+ - Many people will walk in and out of your life, but only true friends will leave footprints in your heart.
+ - Power corrupts. Knowledge is power. Study hard. Be evil.
+ - Happiness is not a goal; it is a by-product.
+ - True hospitality consists of giving the best of yourself to your guests.
+ - You must do the things you think you cannot do.
+ - The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience.
+ - Poor minds talk about people. Average minds talk about events. Great minds talk about ideas.
+ - You wouldn’t worry so much about what others think of you if you realized how seldom they do.
+ - A woman is like a tea bag; you never know how strong it is until it's in hot water.
+ - Do one thing everyday that scares you. Those small things that make us uncomfortable help us build courage to do the work we do.
+ - Today is the oldest you’ve ever been, and the youngest you’ll ever be again.
+ - Absence makes the heart grow fonder.
+ - To handle yourself, use your head; to handle others, use your heart.
+ - It takes as much energy to wish as it does to plan.
+ - With the new day comes new strength and new thoughts.
+ - Tomorrow is a mystery. Today is a gift. That is why it is called the present.
+ - I am who I am today because of the choices I made yesterday.
+ - All human beings are born free and equal in dignity and rights...
+ - Life is what you make it. Always has been, always will be.
+ - You’ll be damned if you do, and damned if you don’t.
+ - I can’t tell you how to succeed, but I can tell you how to fail: Try to please everybody.
+ - America is all about speed. Hot, nasty, bad-ass speed.
+ - The choices we make are ultimately our responsibility.
+ - The destiny of human rights is in the hands of all our citizens in all our communities.
+ - People grow through experience if they meet life honestly and courageously. This is how character is built.
+ - Anger is one letter short of danger.
+ - Surely, in the light of history, it is more intelligent to hope rather than to fear, to try rather than not to try. For one thing we know beyond all doubt: nothing has ever been achieved by the person who says: it can’t be done.
+ - Great leaders inspire people to have confidence in themselves.
+ - Human resources are the most valuable assets the world has. They are all needed desperately.
+ - It is today that we create the world of the future.
+ - No matter how plain a woman may be, if truth and honesty are written across her face, she will be beautiful.
+ - Beautiful young people are accidents of nature, but beautiful old people are works of art.
+ - All of life is a constant education.
+ - You can often change your circumstances by changing your attitude.
+ - The Marines I have seen around the world have the cleanest bodies, the filthiest minds, the highest morale, and the lowest morals of any group of animals I have ever seen. Thank God for the United States Marine Corps!
+ - Be flexible, but stick to your principles.
+ - In the long run, we shape our lives, and we shape ourselves. The process never ends until we die. And the choices we make are ultimately our own responsibility.
+ - The greatest gift you can give a child is an imagination.
+ - It is not fair to ask of others what you are not willing to do yourself.
+ - A stumbling block to the pessimist is a stepping-stone to the optimist.
+ - Where, after all, do universal human rights begin? In small places, close to home.
+ - You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give.
+ - If you lose money you lose much, If you lose friends you lose more, If you lose faith you lose all.
+ - Some people are going to leave a mark on this world, while others will leave a stain.
+ - Understanding is a two-way street.
+ - The future is literally in our hands to mold as we like. But we cannot wait until tomorrow. Tomorrow is now.
+ - If someone betrays you once, it’s their fault; if they betray you twice, it’s your fault.
+ - Life is meant to be lived.
+ - Develop a skin as thick as a rhinoceros hide!
+ - Never allow a person to tell you no who doesn’t have the power to say yes.
+ - Education is the cornerstone of liberty.
+ - Do not stop thinking of life as an adventure. You have no security unless you can live bravely, excitingly, imaginatively; unless you can choose a challenge instead of competence.
+ - Light a candle instead of cursing the darkness.
+ - Character building begins in our infancy and continues until death.
+ - Life is like a parachute jump, you’ve got to get it right the first time.
+ - The giving of love is an education in itself.
+ - We all create the person we become by our choices as we go through life. In a real sense, by the time we are adults, we are the sum total of the choices we have made.
+ - All the water in the world cannot drown you unless it gets inside of you.
+ - What could we accomplish if we knew we could not fail?
+ - Nobody else is going to do the things which are yours to be done in the world.
+ - Courage is more exhilarating than fear, and in the long run, it is easier.
+ - When you have decided what you believe, what you feel must be done, have the courage to stand alone and be counted.
+ - Do the things that interest you and do them with all your heart. Don’t be concerned about whether people are watching you or criticizing you. The chances are that they aren’t paying attention to you.
+ - Happiness is not a goal, it is a by-product. Paradoxically, the one sure way not to be happy is deliberately to map out a way of life in which one would please oneself completely and exclusively.
+ - Life’s not about expecting, hoping and wishing. It’s about doing, being and becoming. It’s about t Learn from the mistakes of others. You can’t live long enough to make them all yourself.
+ - About the only value the story of my life may have is to show that one can, even without any particular gifts, overcome obstacles that seem insurmountable if one is willing to face the fact that they must be overcome.
+ - Poverty is an expensive luxury. We cannot afford it.
+ - Philosophy is not best expressed in words; it is expressed in the choices one makes.
+ - Each generation supposes that the world was simpler for the one before it.
+ - Happiness is not a goal, it is a by-product. For what keeps our interest in life and makes us look forward to tomorrow is giving pleasure to other people.
+ - Justice cannot be for one side alone, but must be for both.
+ - In business courtesy and efficiency have a symbiotic relationship.
+ - Since everybody is an individual, nobody can be you. You are unique. No one can tell you how to use your time. It is yours. Your life is your own. You mold it. You make it.
+ - If we do not pay for children in good schools, then we are going to pay for them in prisons and mental hospitals.
+ - Everyone has the right to rest and leisure, including reasonable limitation of working hours and periodic holidays with pay.
+ - It isn’t enough to talk about peace. One must believe in it. And it isn’t enough to believe in it. One must work at it.
+ - When will our consciences grow so tender that we will act to prevent human misery rather than avenge it?
+ - A great deal of fear is a result of just “not knowing.” We do not know what is involved in a new situation. We do not know whether we can deal with it. The sooner we learn what it entails, the sooner we can dissolve our fear.
+ - No leader can be too far ahead of his followers.
+ - If life were predictable it would cease to be life, and be without flavor.
+ - Your ambition should be to get as much life out of living as you possibly can, as much enjoyment, as much interest, as much experience, as much understanding. Not simply be what is generally called a ‘success.’
+ - We are afraid to care too much, for fear that the other person does not care at all.
+ - It’s your life-but only if you make it so.
+ - Pit race against race, religion against religion, prejudice against prejudice. Divide and conquer! We must not let that happen here.
+ - Life must be lived and curiosity kept alive. One must never, for whatever reason, turn his back on life.
+ - Success must include two things: the development of an individual to his utmost potentiality and a contribution of some kind to one’s world.
+ - Since you get more joy out of giving joy to others, you should put a good deal of thought into the happiness that you are able to give.
+ - Somehow we must be able to show people that democracy is not about words, but action.
+ - An economic policy which does not consider the well-being of all will not serve the purposes of peace and the growth of well-being among the people of all nations.
+ - I think, at a child’s birth, if a mother could ask a fairy godmother to endow it with the most useful gift, that gift should be curiosity.
+ - In our country we must trust the people to hear and see both the good and the bad and to choose the good.
+ - Staying aloof is not a solution, it is a cowardly evasion.
+ - It is a brave thing to have courage to be an individual; it is also, perhaps, a lonely thing. But it is better than not being an individual, which is to be nobody at all.
+ - I think that somehow, we learn who we really are and then live with that decision.
+ - It is not more vacation we need – it is more vocation.
+ - For our own success to be real, it must contribute to the success of others.
+ - Freedom makes a huge requirement of every human being. With freedom comes responsibility. For the person who is unwilling to grow up, the person who does not want to carry is own weight, this is a frightening prospect.
+ - I never waste time looking back.
+ - Women are like tea bags: put them in hot water and they get stronger.
+ - I could not at any age be content to take my place in a corner by the fireside and simply look on.
+ - Nothing has ever been achieved by the person who says, ‘It can’t be done.’
+ - If quitting smoking seems hard right now, it is exactly what you should start doing.
+ - Lest I keep my complacent way I must remember somewhere out there a person died for me today. As long as there must be war, I ask and I must answer was I worth dying for?
+ - Everyone has the right to work, to free choice, to employment, to just and favorable conditions of work and to protectior against unemployment.
+ - Never mistake knowledge for wisdom. One helps you make a living; the other helps you make a life.
+ - It takes courage to love, but pain through love is the purifying fire which those who love generously know.
+ - The basis of world peace is the teaching which runs through almost all the great religions of the world. Love thy neighbor as thyself.
+ - Enjoy every minute you have with those you love, my dear, for no one can take joy that is past away from you. It will be there in your heart to live on when the dark days come.
+ - Life has got to be lived – that’s all there is to it. At seventy, I would say the advantage is that you take life more calmly. You know that ‘this, too, shall pass!’
+ - The basis of all good human behavior is kindness.
+ - The most important word in the English language is hope.
+ - No writing has any real value which is not the expression of genuine thought and feeling.
+ - More people are ruined by victory, I imagine, than be defeat.
+ - What one has to do usually can be done.
+ - What you don’t do can be a destructive force.
+ - Do the things that interest you and do them with all your heart.
+ - When you cease to make a contribution, you begin to die.
+ - We have to face the fact that either all of us are going to die together or we are going to learn to live together, and if we are to live together we have to talk.
+ - Terrific minds focus on tips; average minds go over activities; little minds talk about people today.
+ - One thing life has taught me: if you are interested, you never have to look for new interests. They come to you. When you are genuinely interested in one thing, it will always lead to something else.
+ - Losing money is a big loss, losing friends is greater than the loss, also lost all faith is lost.
+ - Sailors have the cleanest bodies and the filthiest minds.
+ - A guest is really good or bad because of the host or hostess who makes being a guest an easy or a difficult task.
+ - Nothing we learn in this world is ever wasted.
+ - Life has got to be lived – that’s all there is to it.
+ - Be confident, not certain.
+ - Remember always that you not only have the right to be an individual, you have an obligation to be one.
+ - I can not believe that war is the best solution. No one won the last war, and no one will win the next war.
+ - We face the future fortified with the lessons we have learned from the past. It is today that we must create the world of the future.
+ - You achieve strength, braveness and confidence by each experience in which you really halt to search dread during the deal with.
+ - Caring comes from being able to put yourself in the position of the other person.
+ - I have spent many years of my life in opposition, and I rather like the role.
+ - Never be bored, and you will never be boring.
+ - To undo mistakes is always harder than not to create them originally, but we seldom have foresight. Therefore, we have no choice but to try to correct our past mistakes.
+ - The important thing is neither your nationality nor the religion you professed, but how your faith translated itself in your life.
+ - A democratic form of government, a democratic way of life, presupposes free public education over a long period; it presupposes also an education for personal responsibility that too often is neglected.
+ - What we must learn to do is to create unbreakable bonds between the sciences and the humanities. We cannot procrastinate. The world of the future is in our making. Tomorrow is now.
+ - I learned then that practically no one in the world is entirely bad or entirely good, and that motives are often more important than actions.
+ - I believe that anyone can conquer fear by doing the things he fears to do, provided he keeps doing them until he gets a record of successful experience behind him.
+ - We stand today at the threshold of a great event both in the life of the United Nations and in the life of mankind, that is the approval by the General Assembly of the Universal Declaration of Human Rights.
+ - I have never felt that anything really mattered but knowing that you stood for the things in which you believed and had done the very best you could.
+ - I have a great objection to seeing anyone, particularly anyone whom I care about, lose his self-control.
+ - Make the most of What you have, When you have it, Where you are.
+ - Government exists for one purpose: to make things better for all people.
+ - Have convictions. Be friendly. Stick to your beliefs as they stick to theirs. Work as hard as they do.
+ - The hard part of loving is that one has to learn so often to let go of those we love, so they can do things, so they can grow, so they can return to us with an even richer, deeper love.
+ - Before we can make friends with anyone else, we must first make friends with ourselves.
+ - The family is the natural and fundamental group unit of society and is entitled to protection by society and the State.
+ - I have learned long ago to possess my soul in patience and accept the inevitable.
+ - Friendship with ones self is all important, because without it one cannot be friends with anyone else in the world.
+ - We do not have to become heroes overnight. Just a step at a time, meeting each thing that comes up, seeing it as not as dreadful as it appears, discovering that we have the strength to stare it down.
+ - No human being can ever “own” another, whether in friendship, love, marriage or parenthood. Many human relationships have been ruined and happiness far too often changed to misery by a failure to understand this.
+ - Nearly all great civilizations that perished did so because they had crystallized, because they were incapable of adapting themselves to new conditions, new methods, new points of view. It is as though people would rather die than change.
+ - Anyone who has gone through great suffering is bound to have a greater sympathy and understanding of the problems of mankind.
+ - The war for freedom will never really be won because the price of freedom is constant vigilance over ourselves and over our Government.
+ - Change means the unknown.
+ - Curiously enough, it is often the people who refuse to assume any responsibility who are apt to be the sharpest critics of those who do.
+ - I am convinced that every effort must be made in childhood to teach the young to use their own minds. For one thing is sure: If they don’t make up their minds, someone will do it for them.
+ - Some friends leave footprints in your heart.
+ - Only a man’s character is the real criterion of worth.
+ - Every time you meet a situation you think at the time it is an impossibility and you go through the tortures of the damned, once you have met it and lived through it, you find that forever after you are freer than you were before.
+ - No, I have never wanted to be a man. I have often wanted to be more effective as a woman, but I have never felt that trousers would do the trick!
+ - A day out-of-doors, someone I loved to talk with, a good book and some simple food and music – that would be rest.
+ - Work is always an antidote to depression.
+ - We must be willing to learn the lesson that cooperation may imply compromise, but if it brings a world advance it is a gain for each individual nation.
+ - If you can develop this ability to see what you look at, to understand its meaning, to readjust your knowledge to this new information, you can continue to learn and to grow as long as you live and you’ll have a wonderful time doing it.
+ - The only advantage of not being too good a housekeeper is that your guests are so pleased to feel how very much better they are.
+ - The things you refuse to meet today always come back at you later on, usually under circumstances which make the decision twice as difficult as it originally was.
+ - Everybody wants something.
+ - In the long run there is no more liberating, no more exhilarating experience than to determine one’s position, state it bravely, and then act boldly.
+ - The purpose of life afterall is to live it.
+ - There never has been security. No man has ever known what he would meet around the next corner; if life were predictable it would cease to be life, and be without flavor.
+ - The only things one can admire at length are those one admires without knowing why.
+ - Unused ability, like unused muscles, will atrophy.
+ - It is curious how much more interest can be evoked by a mixture of gossip, romance and mystery than by facts.
+ - Most women, I think, though they may complain a little about this, would agree that meeting the needs of others is not a real burden; it is what makes life worth living. It is probably the deepest satisfaction a woman has.
+ - Nothing alive can stand still, it goes forward or back. Life is interesting only as long as it is a process of growth; or, to put it another way, we can only grow as long as we are interested.
+ - Hate and force cannot be in just a part of the world without having an effect on the rest of it.
+ - You do the things that need to be done according to priority.
+ - You get strength and courage, when you stop to look fear in the face.
+ - Most of the work that’s done in the world gets done by people who weren’t feeling all that well at the time that they did it.
+ - I know that we will be the sufferers if we let great wrongs occur without exerting ourselves to correct them.
+ - As for accomplishments, I just did what I had to do as things came along.
+ - Strength that goes wrong is even more dangerous than weakness that goes wrong.
+ - No one from the beginning of time has had security.
+ - We do not move forward by curtailing people’s liberty because we are afraid of what they may do or say.
+ - You can’t move so fast that you try to change the mores faster than people can accept it.
+ - What I have learned from my own experience is that the most important ingredients in a child’s education are curiosity, interest, imagination, and a sense of the adventure of life.
+ - The word liberal comes from the word free. We must cherish and honor the word free or it will cease to apply to us.
+ - If you approach each new person you meet in a spirit of adventure, you will find yourself endlessly fascinated by the new channels of thought and experience and personality that you encounter.
+ - Will people ever be wise enough to refuse to follow bad leaders or to take away the freedom of other people?
+ - Marriage and the up-bringing of children in the home require as well-trained a mind and as well-disciplined a character as any other occupation that might be considered a career.
+ - If you prepare yourself at every point as well as you can, with whatever means you may have, however meager they may seem, you will be able to grasp opportunity for broader experience when it appears. Without preparation you cannot do it.
+ - It is a curious thing in human experience, but to live through a period of stress and sorrow with another person, creates a bond which nothing seems able to break.
+ - The freedom of man, I contend, is the freedom to eat.
+ - There is nothing to regret – either for those who go or for those who are left behind.
+ - I’m so glad I never feel important, it does complicate life!
+ - If we want a free and peaceful world, if we want to make the deserts bloom and man grow to greater dignity as a human being – we can do it.
+ - After the discovery in 1918 of love letters revealing that Franklin was involved with Lucy Mercer: The bottom dropped out of my own particular world, I faced myself, my surroundings, my world, honestly for the first time.
+ - Feelings, too, are facts. Emotion is a fact. Human experience is a fact. It is often possible to gain more real insight into human beings and their motivation by reading great fiction than by personal acquaintance.
+ - My experience has been that work is almost the best way to pull oneself out of the depths.
+ - The word communist, of course, has become a rallying cry for certain people here just as the word Jew was in Hitler’s Germany, a way of arousing emotion without engendering thought.
+ - This is not a time when women should be patient. We are in a war and we need to fight it with all our ability and every weapon possible. Women pilots, in this particular case, are a weapon waiting to be used.
+ - It seems to me of great importance to teach children respect for life.
+ - Beautiful old people are works of art.
+ - Do not be afraid of mistakes, provided you do not make the same one twice.
+ - All wars eventually act as boomerangs and the victor suffers as much as the vanquished.
+ - When it’s better for everyone, it’s better for everyone.
+ - In all our contacts it is probably the sense of being really needed and wanted which gives us the greatest satisfaction and creates the most lasting bond.
+ - I could never say in the morning, “I have a headache and cannot do thus and so”. Headache or no headache, thus and so had to be done.
+ - I used to tell my husband that, if he could make me ‘understand’ something, it would be clear to all the other people in the country.
+ - No man is defeated without until he has first been defeated within.
+ - I think that if the atomic bomb did nothing more, it scared the people to the point where they realized that either they must do something about preventing war or there is a chance that there might be a morning when we would not wake up.
+ - You can never really live anyone else’s life, not even your child’s. The influence you exert is through your own life, and what you’ve become yourself.
+ - No one is all-knowing and therefore all of us need both love and charity.
+ - Once your children are grown up and have children of their own, the problems are theirs and the less the older generation interferes the better.
+ - Furnish an example, stop preaching, stop shielding, don’t prevent self-reliance and initiative, allow your children to develop along thier own lines.
+ - If we fail to meet our problems here, no one else in the world will do so. If we fail, the heart goes out of progressives throughout the world.
+ - If everything was in your favor, if you did not have to surmount any great mountains, then you have nothing to be proud of. But if you feel that you have special difficulties, then you must indeed be proud of your achievement.
+ - A candle can bring light to a dungeon but it can also be used to light a deadly marijuana cigarette.
+ - We have reached a point today where labor-saving devices are good only when they do not throw the worker out of his job.
+ - Spiritual leadership should remain spiritual leadership and the temporal power should not become too important in any church.
+ - Choose a challenge instead of competence.
+ - It seems to me that I cannot afford, as a self-respecting individual, to refuse to do a thing merely because it will make me disliked or bring down a storm of criticism on my head.
+ - The constant pressure to bring about conformity is a dangerous thing.
+ - If anyone were to ask me what I want out of life I would say- the opportunity for doing something useful, for in no other way, I am convinced, can true happiness be attained.
+ - There are practical little things in housekeeping which no man really understands.
+ - There is a desire for progress in the hearts of all men, and it is the sense of frustration and inability to move forward that brings violent revolution.
+ - It is very difficult to have a free, fair and honest press anywhere in the world. In the first place, as a rule, papers are largely supported by advertising, and that immediately gives the advertisers a certain hold over the medium they use.
+ - The motivating force of the theory of a Democratic way of life is still a belief that as individuals we live cooperatively, and, to the best of our ability, serve the community in which we live...
+ - You rarely achieve finality. If you did, life would be over, but as you strive new visions open before you, new possibilities for the satisfaction of living.
+ - Usefulness, whatever form it may take, is the price we should pay for the air we breathe and the food we eat and the privilege of being alive.
+ - Remember, no one can make you feel inferior without being related to you and repeatedly questioning why you’re in nonprofit.
+ - To be a citizen in a democracy, a human being must be given a healthy start.
+ - The mobilization of world opinion and methods of negotiation should be developed and used by every nation in order to strengthen the United Nations.
+ - To some of us, hunger was more academic than real, but we must try to develop the ability to feel the urgency of such a situation.
+ - The will of the people shall be the basis of the authority of government...
+ - Love can often be misguided and do as much harm as good, but respect can do only good. It assumes that the other person’s stature is as large as one’s own, his rights as reasonable, his needs as important.
+ - The battle for the individual rights of women is one of long standing and none of us should countenance anything which undermines it.
+ - The trouble is that not enough people have come together with the firm determination to live the things which they say they believe.
+ - The very next thing you need to be doing is the thing that terrifies you the most.
+ - One should always sleep in all of one’s guest beds, to make sure that they are comfortable.
+ - So, after all, we are but puppets, creatures of our fate, not commanding it but being molded by it.
+ - Perhaps nature is our best assurance of immortality.
+ - Sometimes I wonder if we shall ever grow up in our politics and say definite things which mean something, or whether we shall always go on using generalities to which everyone can subscribe, and which mean very little.
+ - Ambition is pitiless. Any merit that it cannot use it finds despicable.
+ - It is impossible to be a cynic if you live a good deal with young people. Fundamentally, every young person has a feeling that the future is going to hold something of value.
+ - We must know what we think and speak out, even at the risk of unpopularity.
+ - Obedience may have its uses, but it is no substitute for willing, uncoerced co-operation.
+ - The more we simplify our material needs the more we are free to think of other things.
+ - We will never have peace without friendship around the world.
+ - Because they have so little, children must rely on imagination rather than experience.
+ - The kind of man who thinks that helping with the dishes is beneath him will also think that helping with the baby is beneath him, and then he certainly is not going to be a very successful father.
+ - When life is too easy for us, we must beware or we may not be ready to meet the blows which sooner or later come to everyone, rich or poor.
+ - I found that almost everyone had something interesting to contribute to my education.
+ - The economy of communism is an economy which grows in an atmosphere of misery and want.
+ - A respect for the rights of other peoples to determine their forms of government and their economy will not weaken our democracy. It will inevitably strengthen it.
+ - If the use of leisure time is confined to looking at TV for a few extra hours every day, we will deteriorate as a people.
+ - It seems to me that it is the basic right of any human being to work.
+ - I once had a rose named after me and I was very flattered. But I was not pleased to read the description in the catalogue: no good in a bed, but fine up against a wall.
+ - The people who came to New England, came for freedom of religion. The problem is, freedom of religion to them meant freedom for only their religion.
+ - If you have to compromise, be sure to compromise up.
+ - It is so much easier to be enthusiastic than to reason!
+ - One of the blessings of age is to learn not to part on a note of sharpness, to treasure the moments spent with those we love, and to make them whenever possible good to remember, for time is short.
+ - There is nothing to fear except fear it’s self.
+ - To leave the world richer – that is the ultimate success.
+ - To tell the people in the West not to use their cars means that these people may never see another soul for weeks and weeks nor have a way of getting a sick person to a doctor.
+ - I have a great belief in spiritual force, but I think we have to realize that spiritual force alone has to have material force with it so long as we live in a material world. The two together make a strong combination.
+ - Anyone who knows history, particularly the history of Europe, will, I think, recognize that the domination of education or of government by any one particular religious faith is never a happy arrangement for the people.
+ - There are three fundamentals for human happiness – love and faith, and work which will produce at least a minimum of material security. These things must be made possible for all human beings, men and women alike.
+ - Keep us at tasks too hard for us that we may be driven to Thee for strength.
+ - People who ‘view with alarm’ never build anything.
+ - I have often felt that I cheated my children a little. I was never so totally theirs as most mothers are. I gave to audiences whatbelonged to my children, got back from audiences the love my children longed to give me.
+ - Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president.
+ - Courage is exhilarating.
+ - Every day do something that frightens you.
+ - Long ago, I made up my mind that when things were said involving only me, I would pay no attention to them, except when valid criticism was carried by which I could profit.
+ - There are no have-to’s, just choices.
+ - How can we be such fools as to go on senselessly taking human life in this way? Why the women in every nation do not rise up and refuse to bring children into a world of this kind is beyond my understanding.
+ - I think we ought to impress on both our girls and boys that successful marriages require just as much work, just as much intelligence and just as much unselfish devotion, as they give to any position they undertake to fill on a paid basis.
+ - I think it is impossible for one human being really to know another without first knowing and being at peace with himself.
+ - The Bible illustrated by Dore occupied many of my hours – and I think probably gave me many nightmares.
+ - Each time you learn something new you must readjust the whole framework of your knowledge.
+ - There is not human being from whom we cannot learn something if we are interested enough to dig deep.
+ - For instance, it is certain that women do not want a woman for President. Nor would they have the slightest confidence in her ability to fulfill the functions of that office.
+ - You always admire what you really don’t understand. – Eleanor Roosevelt.
+ - Anyone who thinks must think of the next war as they would of suicide.
+ - It is equality of monotony which makes the strength of the British Isles.
+ - You should always own a black dress because no one ever remembers a black dress.
+ - It is a rather curious thing to have to divide one’s life into personal and official compartments and temporarily put the personal side into its hidden compartment to be taken out again when one’s official duties are at an end.
+ - It is not that you set the individual apart from society but that you recognize in any society that the individual must have rights that are guarded.
+ - Too often the great decisions are originated and given form in bodies made up wholly of men, or so completely dominated by them that whatever of special value women have to offer is shunted aside without expression.
+ - Get out of the way as quickly as you’re not needed.
+ - Of course, I do not believe in having everyone who is a liberal called a communist, or everyone who is conservative called a fascist.
+ - The labor movement has a great role to play in our country today.
+ - Friendship with oneself is all important.
+ - Sometimes it is extremely good for you to forget that there is anything in the world which needs to be done, and to do some particular thing that you want to do. Every human being needs a certain amount of time in which he can be peaceful.
+ - How hard it is to project oneself into the future. We are always prone to think of the conditions which are with us today as being permanent conditions.
+ - One thing is for sure-none of the arts flourishes on censorship and repression. And by this time it should be evident that the American public is capable of doing its own censoring.
+ - I have often thought that less is expected of the president of a great corporation than of an American wife.
+ - Every woman wants to be first to someone sometime in her life and that desire is the explanation for many strange things women do.
+ - I consider those are rich who are doing something they feel worthwhile and which they enjoy doing.
+ - We need emotional outlets in this country, and the more artistic people we develop the better it will be for us as a nation.
+ - I’m sure that all the drivers and motorcycle police had once been racing drivers and were eager to get back to that profession.
+ - Manipulate the situation to create the reality of your desire.
+ - No human being can ever ‘own’ another, whether in friendship, love, marriage, or parenthood.
+ - One of the first things we must get rid of is the idea that democracy is tantamount to capitalism.
+ - Curiosity must be kept alive.
+ - We need our radicals.
+ - The mind must be trained, rather than the memory.
+ - We must want for others, not ourselves alone.
+ - We must preserve our right to think and differ.
+ - The reason that fiction is more interesting than any other form of literature, to those who really like to study people, is that in fiction the author can really tell the truth without humiliating himself.
+ - To most teenagers, life is a strange uncharted land filled with a mixture of new joys, intensely felt, and painful confusions for which they know no anodyne.
+ - We are given in our newspapers and on TV and radio exactly what we, the public, insist on having, and this very frequently is mediocre information and mediocre entertainment.
+ - Democracy cannot be static. Whatever is static is dead.
+ - When you know to laugh and when to look upon things as too absurd to take seriously, the other person is ashamed to carry through even if he was serious about it.
+ - I think if the people of this country can be reached with the truth, their judgment will be in favor of the many, as against the privileged few.
+ - If you have any interests you can gain a wider audience for those interests while the goldfish bowl is yours!
+ - As life developed, I faced each problem as it came along. As my activities and work broadened and reached out, I never tried to shirk. I tried never to evade an issue. When I found I had something to do – I just did it.
+ - So I took an interest in politics, but I don’t know whether I enjoyed it! It was a wife’s duty to be interested in whatever interested her husband, whether it was politics, books, or a particular dish for dinner.
+ - Every age is an unknown country.
+ - We cannot exist as a little island of well-being in a world where two-thirds of the people go to bed hungry every night.
+ - I never thought of achievement. I just did what came along for me to do – the thing that gave me the most pleasure.
+ - All big things in human history have been arrived at slowly and through many compromises.
+ - You never know anyone until you marry them.
+ - I believe that it is essential to our leadership in the world and to the development of true democracy in our country to have no discrimination in our country whatsoever. This is most important in the schools of our country.
+ - Actors are one family over the entire world.
+ - A number of people still think of the United States as being overwhelmingly English, Protestant, and white. This erroneous idea influences their whole outlook.
+ - Men have to be reminded that women exist.
+ - One has to live in Washington to know what a city of rumors it is.
+ - Autobiographies are only useful as the lives you read about and analyze may suggest to you something that you may find useful in your own journey through life.
+ - If man is to be liberated to enjoy more leisure, he must also be prepared to enjoy this leisure fully and creatively.
+ - Our obligation to the world is, primarily, our obligation to our own future. Obviously, we cannot develop beyond a certain point unless other nations develop, too.
+ - This living in a democracy is a problem, isn’t it?
+ - I wonder if one of the penalties of growing older is that you become more and more conscious that nothing is very permanent.
+ - Perhaps the basic thing which contributes to charm is the ability to forget oneself and be engrossed in other people.
+ - I have always felt that it was important that everyone who was a worker join a labor organization.
+ - It is our freedom to progress that makes us all want to live and to go on.
+ - I believe that all that we go through here must have some value.
+ - Think as little as possible about yourself and as much as possible about other people.
+ - What we apparently have failed to grasp is that, in this new world in which we live, the collective hunger of great masses of people, wherever they may be, will affect our long-range welfare, just as though they were our own people.
+ - On the whole our armed services have been doing pretty well in the way of keeping us defended, but I hope our State Department will remember that it is really the department of achieving peace.
+ - It has been a long fight to put the control of our economic system in the hands of the government.
+ - Perhaps in His wisdom the Almighty is trying to show us that a leader may chart the way, may point out the road to lasting peace, but that many leaders and many peoples must do the building.
+ - At any age it does us no harm to look over our past shortcomings and plan to improve our characters and actions in the coming year.
+ - We will have to want peace, want it enough to pay for it, before it becomes an accepted rule.
+ - I do not think I will ever become deadened, because I live in other people’s lives, I must admit there are times when it weighs medown because I can’t do some of the things I want.
+ - I would not be happy unless I had some regular work to do every day and I imagine that I will always feel that way no matter how old I am.
+ - If it’s a man’s game so decidedly that a woman would be soiled by entering it, then there is something radically wrong with the American game of politics.
+ - Whatever come we have to meet it.
+ - I often wonder how we can make the more fortunate in this country fully aware of the fact that the problem of the unemployed is not a mechanical one. It is a problem alive and throbbing with human pain.
+ - When all is said and done, and statesmen discuss the future of the world, the fact remains that people fight these wars.
+ - When you build a memorial, you build it not because the person wanted it, but for the future – for generations who didn’t know the man and didn’t know the era in which he lived.
+ - There is a widespread understanding among the people of this nation, and probably among the people of the world, that there is no safety except through the prevention of war.
+ - A trait no other nation seems to possess in quite the same degree as we do namely, a feeling of almost childish injury and resentment unless the world as a whole recognizes how innocent we are of anything but the most generous and harmless intentions.
+ - I believe that it is a great mistake not to stand up for people, even when you differ with them, if you feel that they are trying to do things that will help our country.
+ - Old age has deformities enough of its own. It should never add to them the deformity of vice.
+ - I do not want church groups controlling the schools of our country. They must remain free.
+ - A little simplification would be the first step toward rational living, I think.
+ - The leisure class is one in which individuals have sufficient economic security and sufficient leisure to find opportunity for a variety of satisfactions in life.
+ - One of the best ways of enslaving a people is to keep them from education.
+ - As with all children, the feeling that I was useful was perhaps the greatest joy I experienced.
+
+369 quotes

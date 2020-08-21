@@ -1,0 +1,40 @@
+ - You never want to rest on your laurels. You want to keep doing things that terrify you.
+ - I do Pilates, and hike with my dog.
+ - I’m pregnant with triplets now and I feel really good.
+ - I second-guess myself all the time. I make a decision and then wonder if I made the wrong choice.
+ - My mom, she’s a breast cancer survivor and because of that I had started getting mammograms once a year, starting at age 30.
+ - Even when I lived in Chicago and I didn’t have any family there, I would just go like I would be a guest and have dinner with a bunch of friends and do potluck or something. So I think that’s it, just finding people that you love that love you and hang out with them.
+ - Age is just a number. Unless, that is, you live in Hollywood, where there’s this notion that if you haven’t hit it big by your 20s, you may as well hit the road.
+ - My mother is Italian and my dad’s Irish. In my family, we’re expressive. Nobody holds back.
+ - Despite all those years of abusing your lungs, your kidneys, your liver the only thing you’ve had removed is your kids.
+ - I don’t need someone with a hot body. He can be fat or overweight and have a belly. It’s very much about style and substance and humor, interest, curiosity and really being smart.
+ - People always say you can’t do a red lip if you have red hair but I’ve never shied away from it. I think you can absolutely do that. It’s more about hair colour and complexion.
+ - I love to kind of people watch; that’s part of what I do as an actor and creative person and sort of step back and watch others.
+ - I’ve learned over and over that life happens on its own terms, not mine.
+ - Acting was all I ever really wanted to do.
+ - I’ve done every diet there is.
+ - I’m not a clean freak. My house is a mess.
+ - When everyone’s kind of watching you when you’re out and about, it makes it hard.
+ - I’m lucky. I’ve got pretty good genes.
+ - Sometimes I hope that through osmosis I might get a workout – just by wearing the clothes.
+ - My very first job was a cashier at Burger King in Tucson, Arizona. And I occasionally worked the drive-thru. Id go wherever I was needed! My second job was at Dairy Queen. I stayed in the fast food royalty.
+ - I think as much as we’re cyber connecting it’s really nice to just sit and talk, and have that ritual.
+ - I have a lot to be grateful for. I really do kind of get into the holiday spirit and try to find something to be grateful for anyway but this is the time of year so.
+ - I don’t think anyone gets married thinking that they will get divorced.
+ - I like to eat right and in moderation, but give myself treats and kind of have everything.
+ - I still like to make crank calls.
+ - I loved campaigning for Obama.
+ - Everything also calms down with the influx of social media, there’s so much happening all the time.
+ - I would definitely love to be a parent.
+ - I feel so lucky that I’ve been on shows that have been by and large critically acclaimed and that audiences like it.
+ - I used to skip breakfast, but eating gets my metabolism going, so I burn more calories all day.
+ - I love cooking but I still always go and sneak a little bit of sides from Boston Market, and it’s so good. They’re so good.
+ - I try to cook dinner, but it’s difficult when I’m working.
+ - For me, my 20s were all about reaching for the brass ring of work in theater, television, and film, surviving in between by waiting tables, painting houses, serving coffee, and temping.
+ - I’ve got four roommates and they all have fur and tails.
+ - I don’t like to take a lot of stuff since I’m really sensitive to medications.
+ - I think a lot of people just aren’t aware how young you can be and be diagnosed with breast cancer.
+ - I have always been the girl who keeps on trying. I try! I try!
+ - I think it’s also different when you’re younger, too and your whole life is exposed. You know, it is probably exhausting and a little spiritually depleting, but you just find ways to fill up and do things For me it’s simple things.
+
+38 quotes

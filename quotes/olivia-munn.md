@@ -1,0 +1,28 @@
+ - Being a geek just means that you’re passionate about something.
+ - The word ‘geek’ today does not mean what it used to mean. A geek isn’t the skinny kid with a pocket protector and acne. There can be computer geeks, video game geeks, car geeks, military geeks, and sports geeks. Being a geek just means that you’re passionate about something.
+ - I have a dark sense of humor.
+ - I want you to like me, but I don’t care if you don’t.
+ - For ‘Iron Man’ I had to improv with Robert Downey Jr., which is like going up against LeBron in basketball. At one point he stopped and said, ‘Can we give a round of applause to Olivia, because she’s rocking it right now.’
+ - I’m easy to hate. I get it.
+ - I think it’s always funny when somebody thinks you’re going to do something super sexy and then you don’t.
+ - I just broke up with my boyfriend, so I’m officially single. But one thing I find unbelievably annoying is all these guys in my life who want to save me.
+ - I think women should start to embrace their age. What’s the alternative to getting older? You die. I can’t change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.
+ - Live the Life you’d be envious of if you saw someone else living it.
+ - I realize my arms aren’t as toned as Halle Berry’s but I don’t want them to be.
+ - I love horror movies and I love being scared, but I don’t like them, if they’re not based on a true story. It’s like knowing how the sausage is made.
+ - Know what the best thing about insomnia is? That I get to stay up all night figuring it out.
+ - I love dressing up in superhero outfits and in fact, when I dress up as Wonder Woman, I actually think that I’m more powerful.
+ - I got to play with Nintendo’s Wii, yes it’s a funny name and not very revolutionary but it was fun whipping your arms around.
+ - How many of you have had a crush on a teacher? I mean, remember that Physics professor? Law One is so steamy, I’m getting worked up just thinking about it: Every object in a state of uniform motion tends to remain in that state of motion unless an external force is applied to it. Mee-yow.
+ - If you stand up for women, then don’t bash me.
+ - I hate running. I know I’m curvier – I know I’m small, but I’m not ripped. But I make a choice to be that way. I realize my arms aren’t as toned as Halle Berry’s but I don’t want them to be.
+ - I’m really sarcastic. Not Morgan Webb sarcastic. She’s dry, 100%. I’m different from her.
+ - I was in a military family, so by the time I was 13 I’d lived in six different places.
+ - If you think something’s funny, go with that. Most comedians pull jokes from a place of honesty.
+ - Everyone’s so timid and afraid to insult anybody, but in the end, it’s like we’re all trying to please everyone. In the end, we please no one.
+ - I literally hate working out.
+ - Jon Stewart hires people that he thinks are funny. That’s it. That’s the only requirement.
+ - I grew up in a military family. I was moved around from school to school, so people aren’t always the most welcoming to new girls in school.
+ - I remember reading these articles when I was younger, and I just felt like, well, in order to look like that, you have to have some secret, magical unicorn blood that makes carbs disappear as they go into your body. I prefer the truth.
+
+26 quotes

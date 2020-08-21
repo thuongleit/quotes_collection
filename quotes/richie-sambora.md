@@ -1,0 +1,28 @@
+ - Dare to fail. If you never fail, you’re never taken risks and that’s no way to take on this life.
+ - Seize every opportunity you have to learn. Keep your eyes and ears wide open and seize life – don’t let the moments slip through your fingers like a fistful of sand. Be your own teacher. Let life write your textbook.
+ - Somehow, you need to cling to your optimism. Always look for the silver lining. Always look for the best in people. Try to see things through the eyes of a child. See the wonder in the simplest things. Never stop dreaming. Believe anything is possible.
+ - Be your own teacher. Let life write your textbook.
+ - I’m on a search for my future ex-wife.
+ - Embrace every challenge you have, every person you meet, every place you visit, every task you succeed at, and especially those at which you fail. You will learn from them all. You’ll learn about the world at large and about other people but most important, you’ll learn about yourself.
+ - Don’t look over your shoulder and don’t use or abuse others to get ahead. Keep your eyes focused on your goals and keep working for what you believe in and what you want to accomplish.
+ - Rock and roll is a contact sport. I enjoy playing the tunes that really get the people going.
+ - There’s nothing like a love for our children. I love being a papa, and that’s the truth.
+ - Going through the grief period of my dad and losing him – that was the worst thing because you know when you get that call. When you are seven, eight years old, you have that almost vision in your mind of what that’s going to be like and what your going to feel like and it doesn’t prepare you.
+ - You know, no matter what I am or what I do for a living, I’m still, you know, the husband and the dad and the protector of the house, and I have to be conscientious about that.
+ - For me, success is being able to give back to your friends, your family, your community, those in need and the world entire.
+ - I just want to thank everyone for their support. Sometimes friends need the help of their friends to get by.
+ - I taught myself how to play the guitar, so I basically learned by a system of making mistakes.
+ - I’m all for sharing music, but when people can download a whole record and pay nothing for it and then they share it with 100,000 other people, it’s breaking down the whole business.
+ - Learning about all those different things psychologically – about grief and my own addictions and problems and stuff like that, and really getting an education on it, I think it was part of the process of it, learning about it and trying to lick it.
+ - As a musician and a guitar player, I can noodle as well as anybody. But from my background as a session musician, I always try to play what is called for by the lyric and listening to the song. As a writer, that’s what I do, too.
+ - I know Mick Jagger wouldn’t tour without Keith Richards and call it the Rolling Stones.
+ - I try to look at most of my solos as a musical piece within the song, not, say, showing off.
+ - Stand on the stage in front of 15 people or 15,000. Have them look up to you and tell you how wonderful you are, and if you don’t think that’s a great feeling, okay, then you’re unlike me.
+ - I’ve spent a lot of Thanksgivings on the road with my band, so anytime that I can spend Thanksgiving with my family in a traditional aspect, eating sweet potatoes and cranberries and stuffing and all the trappings of Thanksgiving and then get on a treadmill the next day extra long, I’m happy.
+ - You know, when you’re an actor, you want to go to Hollywood. When you’re a musician, you want to go to Nashville.
+ - We’ve been around for almost three decades now – there’s about three generations of Bon Jovi fans.
+ - I love being a dad. I’d have more kids if I could. I’d take a couple more, one or two more before I croak.
+ - A man can never have too many pairs of sunglasses or too many guitars.
+ - I’m a lucky guy. I don’t take for granted, for one minute, what I do.
+
+26 quotes

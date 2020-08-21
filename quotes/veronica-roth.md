@@ -1,0 +1,473 @@
+ - Fear doesn’t shut you down; it wakes you up.
+ - Becoming fearless isn’t the point. That’s impossible. It’s learning how to control your fear, and how to be free from it.
+ - I want to be brave, and selfless, and smart, and kind, and honest.
+ - Change, like healing, takes time.
+ - I’m not Dauntless – I’m Divergent. I am whatever I choose to be.
+ - But I will find new habits, new thoughts, new rules. I will become something else.
+ - Sometimes pain is for the greater good.
+ - Since I was young, I have always known this: Life damages us, every one. We can’t escape that damage. But now, I am also learning this: We can be mended. We mend each other.
+ - I’m Divergent. And I can’t be controlled.
+ - Honesty leads to peace.
+ - What makes you different, makes you dangerous.
+ - I belong to the people I love, and they belong to me – they, and the love and loyaty I give them, form my identity far more than any word or group ever could.
+ - I have a theory that selflessness and bravery aren’t all that different.
+ - I’ll say it one last time: Be brave.
+ - I am selfish. I am brave.
+ - Who cares about pretty? I’m going for noticeable.
+ - I don’t know what world you live in, but in mine, people only do things for you for one of two reasons. The first is if they want something in return. And the second is if they feel like they owe you something.
+ - I try to leave some space in my mind for things to surprise me or change my mind, I think that’s important.
+ - We believe in ordinary acts of bravery, in the courage that drives one person to stand up for another.
+ - Sometimes drastic change requires drastic measures.
+ - You know, there’s a word for big, strong men who attack women, and it’s coward.
+ - If you actually succeed in creating a utopia, you’ve created a world without conflict, in which everything is perfect. And if there’s no conflict, there are no stories worth telling – or reading!
+ - One choice can transform you. One choice can destroy you. Once choice will define you.
+ - The truth has a way of changing people’s plans.
+ - Faction before blood.
+ - I do like to hit people-I like the explosion of power and energy, and the feeling that I am untouchable because I can hurt people. But I hate that part of myself, because it is the part of me that is the most broken.
+ - I wonder if fears ever really go away, or if they just lose their power over us.
+ - Being honest doesn’t mean you say whatever you want, wherever you want. It means that what you choose to say is true.
+ - Thank you for your honesty.
+ - We share a common enemy, but does that make us friends?
+ - Politeness is deception in pretty packaging.
+ - Then I realize what it is. It’s him. Something about him makes me feel like I am about to fall. Or turn to liquid. Or burst into flames.
+ - Evil depends on where you’re standing.
+ - We believe in shouting for those who can only whisper, in defending those who cannot defend themselves.
+ - Sometimes I feel like there is so much to be afraid of, and sometimes I feel like there is nothing left to fear.
+ - Sometimes crying or laughing are the only options left, and laughing feels better right now.
+ - Sometimes people just want to be happy, even if it’s not real.
+ - It must require bravery to be honest all the time.
+ - Like a wild animal, the truth is too powerful to remain caged.
+ - Valuing knowledge above all else results in a lust for power, and that leads men into dark and empty places.
+ - People, I have discovered, are layers and layers of secrets. You believe you know them, that you understand them, but their motives are always hidden from you, buried in their own hearts. You will never know them, but sometimes you decide to trust them.
+ - I suppose a fire that burns that bright is not meant to last.
+ - But I think that no matter how smart, people usually see what they’re already looking for, that’s all.
+ - I am his, and he is mine, and it has been that way all along.
+ - You know I’m getting a little tired of waiting for you to catch on.
+ - We both have war inside us. Sometimes it keeps us alive. Sometimes it threatens to destroy us.
+ - He stares at me, and I don’t look away. He isn’t a dog, but the same rules apply. Looking away is submissive. Looking him in the eye is a challenge. It’s my choice.
+ - Human reason can excuse any evil.
+ - I would rather be dead than empty.
+ - Writing means not just staring ugliness in the face, but finding a way to embrace it.
+ - Sometimes, the best way to help someone is just to be near them.
+ - Dead people can be our heroes because they can’t disappoint us later; they only improve over time, as we forget more and more about them.
+ - I have discovered that sitting still leaves little spaces for the grief to get in, so I stay busy.
+ - My mother told me once that we can’t survive alone, but even if we could, we wouldn’t want to. Without a faction we have no purpose and no reason to live.
+ - I have your back. I didn’t mean only when it’s easy. All the time.
+ - Some things are hard to let go of.
+ - Do it fast, you pansycake.
+ - My heart beats so hard it hurts, and I can’t scream and I can’t breathe, but I also feel everything, every vein and every fiber, every bone and every nerve, all awake and buzzing in my body as if charged with electricity. I am pure adrenaline.
+ - Maybe there’s more we all could have done, but we just have to let the guilt remind us to do better next time.
+ - I fell in love with him. But I don’t just stay with him by default as if there’s no one else available to me. I stay with him because I choose to, every day that I wake up, every day that we fight or lie to each other or disappoint each other. I choose him over and over again, and he chooses me.
+ - Peace is restrained; this is free.
+ - No matter how long you train someone to be brave, you never know if they are or not until something real happens.
+ - Cruelty does not make a person dishonest, the same way bravery does not make a person kind.
+ - Reading is such a huge part of my life.
+ - I ignore my fear. When I make decisions, I pretend it doesn’t exist.
+ - I have done bad things. I can’t take them back, and they are part of who I am. Most of the time, they seem like the only thing I am.
+ - I think about pressing myself against him, but I can’t, because all our secrets would keep a space between us.
+ - Those who seek peace above all else, they say, will always deceive to keep the water calm.
+ - It reminds me why I chose Dauntless in the first place: not because they are perfect, but because they are alive. Because they are free.
+ - I love ‘Harry Potter.’ I’m a huge nerd – I would dress up if I could.
+ - The battle we are fighting is not against a particular group. It is against human nature – or at least what it has become.
+ - I could never hurt him enough to make his betrayal stop hurting. And it hurts, in every part of my body.
+ - I feel empty, not because of sadness, but because of relief, all the tension flowing out of me.
+ - I laugh, and it’s laughter, not light, that casts out the darkness building within me, that reminds me I am still alive, even in this strange place where everything I’ve ever known is coming apart.
+ - I feel like myself, strong and weak at once – allowed, at least for a little while, to be both.
+ - Grief is not as heavy as guilt, but it takes more away from you.
+ - Human reason can excuse any evil; that is why it’s so important that we don’t rely on it.
+ - I think we cry to release the animal parts of us without losing our humanity.
+ - What is wrong with you?? I shake my head. ‘Pull it together.’ And that’s what it feels like: pulling the different parts of me up and in like a shoelace. I feel suffocated, but at least I feel strong.
+ - Learning how to think in the midst of fear is a lesson that everyone needs to learn.
+ - A chasm reminds us that there is a fine line between bravery and idiocy.
+ - She taught me all about real sacrifice. That it should be done from love, not misplace disgust for another person’s genetics.
+ - I feel bare. I didn’t realize I wore my secrets as armor until they were gone and now everyone sees me as I really am.
+ - It’s not a perfect situation. But when you have to choose between two bad options, you pick the one that saves the people you love and believe in most. You just do. Okay?
+ - We believe in the ordinary acts of bravery.
+ - Do remember, though, that sometimes the people you oppress become mightier than you would like.
+ - I respect you more than anyone. But right now I’m wondering what bothers you more, that I made a stupid decision or that I didn’t make your decision.
+ - Arrogance is one of the flaws in the Erudite heart – I know. It is often in mine.
+ - Human beings as a whole cannot be good for long before the bad creeps back in and poisons us again.
+ - It reminds me that no embrace will ever feel the same again, because no one will ever be like her again, because she’s gone. She’s gone, and crying feels so useless, so stupid, but it’s all I can do.
+ - You don’t believe things because they make your life better, you believe them because they’re true.
+ - Two things you should know about me; The first is that I am deeply suspicious of people in general. It is my nature to expect the worst of them. And the second is that I am unexpectedly good with computers.
+ - Sometimes I see him as just another person, and sometimes I feel the sight of him in my gut, like a deep ache.
+ - We are not people who touch each other carelessly; every point of contact between us feels important, a rush of energy and relief.
+ - I want to break something, or hit something, but I am afraid to move, so I start crying instead.
+ - It’s Not sacrifice if it’s someone else’s life you’re giving away, it’s just evil.
+ - How is it I know this little about the boy who says he loves me – the boy whose real name is powerful enough to keep us alive in a train car full of enemies?
+ - If Eric thinks I did something right, I must have done it wrong.
+ - She has been to the compound before. She remembered this hallway. She knows about the initiation process. My mother was Dauntless.
+ - I do trust you, is what I want to say. But it isn’t true – I didn’t trust him to love me despite the terrible things I had done. I don’t trust anyone to do that, but that isn’t his problem; it’s mine.
+ - Nothing else is alright. But we are. -Tobias.
+ - I feel like someone breathed new air into my lungs. I am not Abnegation. I am not Dauntless. I am Divergent.
+ - Being selfless is not that different from being brave. It is when you are selfless that you are the bravest.
+ - But when you kill someone you love, the hard part is never over. It just gets easier to distract yourself from what you’ve done.
+ - I started writing because I decided I was too old to play pretend in the backyard. Then I found that I could create those imaginary worlds on the page.
+ - She is well practiced in the art of losing herself.
+ - Nature is neutral. Nature doesn’t care how much money a person makes.
+ - I know that change is difficult, and comes slowly, and that it is the work of many days strung together in a long line until the origin of them is forgotten.
+ - The official strategy is defensive pessimism, always.
+ - Everything inside me screams for just one more kiss, one more word, one more glance, one more.
+ - He told me once to be brave, and though I have stood still while knives spun toward my face and jumped off a roof, I never thought I would need bravery in the small moments of my life. I do.
+ - It’s strange how a word, a phrase, a sentence, can feel like a blow to the head.
+ - There is a reason you don’t know all the things I know. -Marcus Eaton.
+ - I think you’re still the only person sharp enough to sharpen someone like me.
+ - I do know who you are. I just needed to be reminded.
+ - But now, I am also learning this: WE can be mended. We mend each other.
+ - It’s when you’re acting selflessly that you are at your bravest.
+ - There is power in controlling something that can do so much damage – in controlling something, period.
+ - The first step to loving someone else is to recognize the evil in ourselves, so we can forgive them.
+ - Inquisitiveness is self-serving, Johanna. -Marcus Eaton.
+ - I choose him over and over again, and he chooses me.
+ - Leaving us with Eric is like hiring a babysitter who spends his time sharpening knives.
+ - That’s what love does. When it’s right, it makes you more than you were, more than you thought you could be.
+ - Don’t confuse your grief with guilt.
+ - In our factions, we find meaning, we find purpose, we find life.
+ - Four: Be brave Tris. The first time is always the hardest.
+ - Part of me wonders if this is a suicide mission disguised as a game.
+ - It isn’t right to wish pain on other people just because they hurt me first.
+ - A brave man acknowledges the strength of others.
+ - And I’m the kind of person who does not let inconsequential things like boys and near death experiences stop her.
+ - I was so afraid that we would just keep colliding over and over again if we stayed together, and that eventually the impact would break me. But now I know I am like the blade and he is like the whetstone- I am too strong to break so easily, and I become better, sharper, every time I touch him.
+ - Humans can’t tolerate emptiness for long.
+ - And sometimes, if you want the truth, you have to demand it.
+ - Lies require commitment.
+ - Pride blinds people to the truth of what they are.
+ - And is it selfish of me to crave victory, or is it brave?
+ - But Christina and I are not people who cry together; we’re people who fight together. SO I hold my tears in.
+ - About when to let others sacrifice themselves for you, even if its selfish. They say that if the sacrifice is the ultimate way for that person to show you that they love you, let them do it.
+ - That you’re whole, that you’re worth loving, that you’re the best person I’ve ever known.
+ - Half of bravery is perspective.
+ - My father says that those who want power and get it live in terror of losing it. That’s why we have to give power to those who do not want it.
+ - A Dauntless Ferris wheel wouldn’t have cars. You would just hang on tight with your hands, and good luck to you.
+ - Chaos and destruction do tend to take away a person’s dating possibilities.
+ - Sarcasm is always at someone’s expense.
+ - I like to think I’m helping them by hating them. I’m reminding them that they aren’t God’s gift to humankind.
+ - The cruelty of fate is that I must travel with the people I hate when the people I love are dead behind me.
+ - Did you just call me BEATRICE?
+ - Take a person’s memories, and you change who they are.
+ - I am a child. I am two feet tall, and asking if she loves me.
+ - Insurgent, he says. Noun. A person who acts in opposition to the established authority, who is not necessarily regarded as a belligerent.
+ - I used to think that when people fell in love, they just landed where they landed, and they had no choice in the matter afterward. And maybe that’s true of beginnings, but it’s not true of this, now.
+ - No factions? A world in which no one knows who they are or where they fit? I can’t even fathom it. I imagine only chaos and isolation.
+ - I know that I’ll be writing for young adults for a long time. Mostly because I just love the readers and the teachers and librarians that I interact with.
+ - What good is a prepared body if you have a scattered mind?
+ - But maybe what I saw as fearless was actually fear under control.
+ - Hearing him talk about his mother, about his intact family, makes my chest hurt for a second, like someone pierced it with a needle.
+ - Every tattoo I got with them is a mark of their friendship, and almost every time I have laughed in this dark place was because of them. I don’t want to lose them. But I feel like I have already.
+ - I would be shocked by the lack of security if we were not at Amity headquarters. They often straddle the line between trust and stupidity.
+ - I am still the person who would have died rather than kill you.
+ - Why do people want to pretend that death is sleep? It isn’t. It isn’t.
+ - The Candor sing the praises of the truth, but they never tell you how much it costs.
+ - How can you fail a test you aren’t allowed to prepare for?
+ - The opinions of others cannot damage you.
+ - We believe that preparation eradicates cowardice, which we define as the failure to act in the midst of fear.
+ - One choice can transform you!
+ - We are not the same. But we are, somehow, one.
+ - My first instinct is to push you until you break just to see how hard I have to press.
+ - You are holding a loaded gun, you idiot. Act like it.
+ - An artist gives. Gives visually, gives through courses, or with free advice, through generosity of spirit and through a need to share.
+ - I can’t leave now. I like her too much. There, I said it. But I won’t say it again.
+ - I tell myself, as sternly as possible, that is how things work here. We do dangerous things and people die. People die, and we move on to the next dangerous thing. The sooner that lesson sinks in, the better chance I have at surviving initiation.
+ - I always appreciate people’s opinions, but sometimes I have to take a step back and remember why I’m writing and what I want to do with it. Shutting out the voices is difficult but it’s been good for me.
+ - Be brave, Beatrice. I love you.
+ - If we stay together, I’ll have to forgive you over and over again, and if you’re still in this, you’ll have to forgive me over and over again too. So forgiveness isn’t the point. What I really should have been trying to figure out is whether we were still good for each other or not.
+ - I stare at him. I feel my heartbeat everywhere, even in my toes. I feel like doing something bold, but I could just as easily walk away. I am not sure which option is smarter, or better. I am not sure that I care.
+ - I keep finding myself stifled by the company of others and then crippled by loneliness when I leave them. I am terrified and I don’t even know of what, because I have lost everything already.
+ - You nearly died today,? he says. ‘I almost shot you. Why didn’t you shoot me, Tris?’ ‘I couldn’t do that,’ I say. ‘It would have been like shooting myself.’ He looks pained and leans closer to me, so his lips brush mine when he speaks.
+ - Desperation can make a person do surprising things.
+ - Suicide to them is an act of selfishness. Someone who is truly selfless does not think of himself often enough to desire death.
+ - I also don’t believe that whatever come after life depends on my correctly reciting a list of my transgressions-that sounds too much like an Erudite afterlife to me, all accuracy and no feeling.
+ - What’s worse: to be idle while someone dies, or to be exiled and empty-handed?
+ - My dear girl. I am his family. I am permanent. You are only temporary.
+ - No selfishness or insecurity kept him from seeing the full extent of her goodness, as it so often does with the rest of us. That kind of love may only be possible in Abnegation. I do not know.
+ - I have never had parents who set good examples, parents whose expectations were worth living up to, but she did. I can see them within her, the courage and the beauty they pressed into her like a handprint.
+ - He touches my face, covering my cheeks with his hands, sliding his fingertips down my neck, fitting his fingers to the slight curve of my hips. I can’t stop.
+ - I laugh, mirthless, a mad laugh. I savor the scowl on her face, the hate in her eyes. She was like a machine; she was cold and emotionless, bound by logic alone. And I broke her.
+ - Tricking someone into grief is one of the cruelest tricks a person can play, and its been played on me twice.
+ - To me, when someone wrongs you, you both share the burden of that wrongdoing – the pain of it weighs on both of you. Forgiveness, then, means choosing to bear the full weight all by yourself.
+ - My parents did love each other. Enough to forsake plans and factions. Enough to defy “faction before blood.” Blood before faction – no, love before faction, always. – Tris Prior.
+ - I am better off doing as abnegation taught me: turning away from myself, projecting always outward, and hoping that in whatever is next, I will be better than I am now.
+ - You’re not a coward just because you don’t want to hurt people.
+ - Maybe forgiveness is just the continual pushing aside of bitter memories, until time dulls the hurt and anger, and the wrong is forgotten.
+ - His hand touches my waist, steadies me. The touch sends a shock through my body, and all my insides burn like his fingers ignited them. I pull close to him, pressing my body against his, and lift my head to kiss him.
+ - I have a theory that selflessness and bravery aren’t all that different. All your life you’ve been training to forget yourself, so when you’re in danger, it becomes your first instinct.
+ - Because life is not fair, Albert. And the world is conspiring against you.
+ - You know what mom told me once? She said that everyone has some evil inside them, and the first step to loving anyone is to recognize the same evil in ourselves, so we’re able to forgive them.
+ - It’s stupid to miss a thing when there are so many people to miss instead, but I miss this train already, and all the others that carried me through the city, my city, after I was brave enough to ride them. I brush my fingers over the car wall, just once, and then jump.
+ - I wish I could say I felt guilty for what I did. I don’t.
+ - Now she looks pale and small, but her eyes make me think of wide- open skies that I have never actually seen, only dreamed of.
+ - I never thought I would need bravery in the small moments of my life. I do.
+ - He is not sweet or gentle or particularly kind. But he is smart and brave, and even though he saved me, he treated me like I was strong. That is all I need to know.
+ - Can you tell me where to find Tobias’? I ask. When I imagine his face, affection for him bubbles up inside of me and all I want to do is kiss him. ‘Four, I mean. He’s so handsome, isn’t he? I don’t really understand why he likes me so much. I’m not very nice, am I?’ -Tris.
+ - I’m sick of doing bad things and liking it and then wondering what’s wrong with me. I want it to be over. I want to start again.
+ - It would be stupid to confide your entire plan to one person. It’s infinitely smarter to give little pieces of it to each person working with you. That way, if someone betrays you, the loss isn’t too great.
+ - I read somewhere, once, that crying defies scientific explanation. Tears are only meant to lubricate the eyes. There is no real reason for tear glands to overproduce tears at the behest of emotion. I think we cry to release the animal parts of us without losing our humanity.
+ - I wipe my face with my sleeve, laughing so hard my stomach hurts. If my entire life is like this, loud laughter and bold action and the kind of exhaustion you feel after a hard but satisfying day, I will be content.
+ - Eric called Al’s suicide brave, and he was wrong. My mother’s death was brave. I remember how calm she was, how determined. It isn’t just brave that she died for me; it is brave that she did it without announcing it, without hesitation, and without appearing to consider another option.
+ - Some people will always fear change. But we can’t indulge them.
+ - A breeze blows through the alley, pushing me to one side, and I think of scaling the Ferris wheel with Tobias. He kept me steady then. There is no one left to keep me steady now.
+ - I don’t need to relive my fears anymore. All I need to do now is try to overcome them.
+ - I reach out and take his hand. His fingers slide between mine. I can’t breathe.
+ - They try to make you think they care about what you do but they don’t. They don’t want you to act a certain way. So you’re easy to understand. So you won’t pose a threat to them.
+ - You don’t have to tell me everything right away, but I have to tell you everything right away? Can’t you see how stupid that is?
+ - I am too strong to break so easily, and I become better, sharper, every time I touch him.
+ - I am proud. It will get me into trouble someday, but today it makes me brave.
+ - I hold the gun out from my body, my arms straight, just as Four taught me, when that was his only name. I used a gun like this to defend my father and brother from simulation-bound Dauntless. I used it to stop Eric from shooting Tobias in the head. It is not inherently evil. It is just a tool.
+ - Soon I will honor my parents by dying as they died. and if all they believed about death was true, soon I will join them in whatever comes next.
+ - I feel like someone is pressing me into a mold that does not fit my body, forcing me intothe wrong shape.
+ - I get the strange urge to hit my head against the wall. Other people’s sobs make me feel uncomfortable.
+ - I look up, and stop breathing. Eyes glitter in the darkness. Dark shapes sit in the car, more numerous than we are. The factionless.
+ - I feel a thread tugging me again, but this time I know that it isn’t some sinister force dragging me toward death. This time I know it’s my mother’s hand, drawing me into her arms. And I go gladly into her embrace.
+ - I never used to understand why people bothered to hold hands as they walked, but then he runs one of his fingertips down my palm, and I shiver and understand it completely.
+ - Our eyes meet. I hear a train horn, so faint it could be wind whistling through an alleyway. But I know it when I hear it. It sounds like the Dauntless, calling me to to them.
+ - We kiss again and this time, it feels familiar. I know exactly how we fit together, his arm around my waist, my hands on his chest, the pressure of his lips on mine. We have each other memorized.
+ - His absence will haunt their hallways, and he will be a space they can’t fill. And then time will pass, and the hole will be gone, like when an organ is removed and the body’s fluids flow into the space it leaves. Humans can’t tolerate emptiness for long.
+ - Maybe time would not feel as heavy if I didn’t have this guilt – the guilt of knowing the truth and stuffing it down where no one can see it, not even Tobias. Maybe I should not be so afraid of saying anything, because honesty will make me feel lighter.
+ - I can’t answer either question. But the look she gives me reminds me of the look in the attack dog’s eyes in the aptitude test – a vicious, predatory stare. She wants to rip me to pieces. I can’t lie down in submission now. I have become an attack dog too.
+ - No need to continually insist upon your unshakable masculinity.
+ - But when I do feel all the strength go out of me, and I fall to my knees beside the table and I think I cry, then, or at least I want to, and everything inside me screams for just one more kiss, one more word, one more glance, one more.
+ - That is how it feels. Like everything between us is twisted together, friendship and love and family, so I cant tell the difference between any of them.
+ - He is strong, and lithe, and certain. And he is mine.
+ - I am a naturally curious person. -Tris.
+ - I close my eyes. I don’t expect Four to reassure me, and he makes no effort to, but I feel better standing here than I did out there among the people who are my friends, my faction.
+ - We don’t need you as an ally. We’re Dauntless. -Tori.
+ - It will be difficult to break the habits of thinking Abnegation instilled in me, like tugging a single thread from a complex work of embroidery. But I will find new habits, new thoughts, new rules. I will become something else.
+ - You are far less likely to soil your pants and cry for your mother if you’re prepared to defend yourself.
+ - I feel myself acting like a lunatic, but I can’t stop. It would be like refusing to breathe.
+ - That said, in the two weeks before I leave for the Dark Days tour, I am going radio silent, which means I will be avoiding the Internet at all costs in order to revise, revise, revise. I will miss you. Tris says hi, though.
+ - Why is your heart racing Tris?
+ - I guess I always knew there was something wrong with me, but I thought it was because of my father, or my mother, and the pain they bequeathed to me like a family heirloom, handed down from generation to generation. – Tobias Eaton.
+ - There’s really no way to be perfect. Perfectionism is a silly trait to have, so in a lot of ways that inspired the world of ‘Divergent,’ in which everyone is striving toward that ideal and falling short of it.
+ - All I want to say is that when you stop being delusional and start feeling desperate because you’re too inept to figure this out on your own, you know who to come to.
+ - I liked some things and hated some things. And there were some things I didn’t know I had until I lost them.
+ - People talk about the pain of grief, but I don’t know what they mean. To me, grief is a devastating numbness, every sensation dulled.
+ - You don’t always have to smack people in the face with how strong you are.
+ - I pause a second. He doesn’t look at me the way Will, Christina, and Al sometimes do – like I am too small and too weak to be of any use, and they pity me for it.
+ - Noise and activity are the refuges of the bereaved and the guilty.
+ - Blood is a strange color. It’s darker than you expect it to be.
+ - I kiss him as the train slides into unlit, uncertain land. I kiss him for as long as I want, for longer than I should, given that my brother sits three feet away from me.
+ - Not like Tobias, who is almost shy when he smiles, like he is surprised you bothered to look at him in the first place.
+ - Sometimes, all it takes to save people from a terrible fate is one person willing to do something about it. Even if that “something” is a fake bathroom break.
+ - Maybe it’s a little depressing to think that my vision of a perfect world is actually so messed up, but I think it means that I don’t really understand what ‘perfect’ is.
+ - I slowly realized that perfectionism just not that important. What’s more important is to try to love the people around you. Whatever that means at a particular time is the best you can do.
+ - For a few minutes we kiss, deep in the chasm, with the roar of water all around us. And we rise, hand in hand, I realize that if we had both chosen differently, we might have ended up doing the same thing, in a safer place, in gray clothes instead of black ones.
+ - I expect to weave through the crowd, dodging elbows and muttering “excuse me” the way I always do, but there is no need. Becoming Dauntless has made me noticable.
+ - Few people who are born into Abnegation choose to leave it. When they do, we remember.
+ - Or maybe we’ll make a home somewhere inside ourselves, to carry with us wherever we go- which is the way I carry my mother now.
+ - Sometimes it isn’t fighting that’s brave, its facing the death you know is coming.
+ - How have I never realized before that for all the strong, kind parts of him, there are also hurting, broken parts?
+ - We can’t be confined to one way of thinking, and that terrifies our leaders. It means we can’t be controlled. And it means that no matter what they do, we will always cause trouble for them.
+ - I know some things – I know that I’m not alone, that I have friends, that I’m in love. I know that I don’t want to die, and for me that’s something – more than I could have said a few weeks ago.
+ - I am no longer Tris, the selfless, or Tris, the brave. I suppose that now, I must become more than either.
+ - My Tris should look pale and small – she is pale and small, after all – but instead the room is full of her.
+ - What irritates me most about him is his natural goodness, his inborn selflessness.
+ - Caleb runs up to me and folds me carefully in his arms. I breathe a sigh of relief. I thought I had gotten to the point where I didn’t need my brother anymore, but I don’t think such a point actually exists.
+ - Pride is what killed Al, and it is the flaw in every Dauntless heart. It is in mine.
+ - Sometimes all I want is to be a few inches taller so the world does not look like a dense collection of torsos.
+ - Not writing is as important as writing – go out into the world and remember how interesting it, and the people in it, are.
+ - I want people to come away from my book with questions. Questions about virtue and goodness. Not answers.
+ - Dauntless: being brave in the midst of fear.
+ - Ingenuity requires creativity.
+ - Scrubbing the floor when no one else wanted to was something that my mother would have done. If I can’t be with her, the least I can do is act like her sometimes.
+ - A lot can happen to a person’s appearance in three months.
+ - Four grabs a bar with each hand and pulls himself up, easy, like he’s sitting up in bed. But he is not comfortable or natural here – every muscle in his arm stands out. it is a stupid thing for me to think when I am one hundred feet off the ground.
+ - That night we push our cots just a little closer together, and look into each other’s eyes in the moments before we fall asleep. When he finally drifts off, our fingers are twisted together in the space between the beds. I smile a little, and let myself go.
+ - How strange that something so simple could have been instrumental in my decision to ruin one of my most relationships and friendships, and damage another.
+ - One thing I know: For helping me forget how awful the world is, I prefer her to alcohol.
+ - Life damages us, every one. We can’t escape that damage.
+ - I will be my undoing If I become my obsession.
+ - You’re the one who has to live with your choice, everyone else will get over it, move on, no matter what you decide. But you never will.
+ - So you’re her brother? Says Linn. I guess we know who got the good genes.
+ - I was still afraid of him, I knew, but in a different way – I was no longer a child, afraid of the threat my terrifying father posed to my safety. I was a man, afraid of the threat he posed to my character, to my future, to my identity.
+ - To me there’s a difference between not being afraid and acting in spite of fear, as he does.
+ - He leans his face close to mine and wraps his fingers around my chin. His hand smells like metal. When was the last time he held a gun, or a knife?
+ - He seems designed specifically for speed and deadly accuracy. But not strength, not particularly-he is smart, but not strong. Only strong enough to carry me.
+ - Just as I have insisted on his worth, he has always insisted on my strength, insisted that my capacity is greater than I believe. And I know, without being told, that’s what love does, when it’s right-it makes you more than you were, more than you thought you could be. This is right.
+ - In order to have peace, we must first have trust.
+ - All I can do is stand still- I feel like if I just stand still, I can stop it from being true, I can pretend that everything is all right.
+ - It’s strange how time can make a place shrink, make its strangeness ordinary.
+ - Seeing people who are actually reading your book and listening to the wide variety of reactions they have to it, is really special.
+ - Instead I just let the silence stretch out between us. It’s the only adequate response to what he just told me, the only that does the tragedy any justice instead of patching it hastily and moving on.
+ - I have to face the fear. I have to take control of the situation and find a way to make it less frightening.
+ - It happened. It was awful. You aren’t perfect. That’s all there is. Don’t confuse your grief with guilt.
+ - The person you became with her is worth being.
+ - In some parts of the ancient world, the hawk symbolized the sun. Back when I got this, I figured if I always had the sun on me, I wouldn’t be afraid of the dark.
+ - I watch her blond head until it disappears around the bend, and I feel bare, like there’s nothing left to protect me against pain. Her absence stings worst of all.
+ - You chose us. Now we have to choose you.
+ - He smiles in my memory. A curled lip. Straight teeth. Light in his eyes. Laughing, teasing, more alive in memory than I m in reality. It was him or me. I chose me. But I feel dead too.
+ - I feel like what I have become is halfway between my mother and my father, violent and impulsive and desperate and afraid. I feel like I have lost control of what I have become.
+ - Little girl, he called me. A little girl who is stressed out to the point of paranoia. That is not me, but now, it’s who the Candor think I am.
+ - He kisses me again, more insistent this time, his hands squeezing my waist. His breaths, his body, my body, we are so close there is no difference.
+ - The fire, the fire. It rages within, a campfire and then an inferno, and my body is its fuel. I feel it racing through me, eating away at the weight. There is nothing that can kill me now; I am powerful and invincible and eternal.
+ - By the time we leave, I have red lips and curled eyelashes, and I’m wearing a bright red dress. And there’s a knife strapped to the inside of my knee. This all makes perfect sense.
+ - It’s like he knows, he knows I have a thing for her.
+ - You need to be passionate about the creative work that you’re doing, but you need to be kind of emotionally separated from how people react to it or how it does. Those things should be secondary, and primary should be your love of the creative act.
+ - I didn’t know that idiocy caused people to just start spontaneously bleeding from the nose.
+ - I glance at Tris. She grins at me, then leans in to whisper something to Christina. “Are you here to help or what, Stiff?” I say.
+ - Don’t tell me you’re going to eat a mashed-potato sandwich.
+ - You sadistic pansycake.
+ - I have realized that part of being Dauntless is being willing to make things more difficult for yourself in order to be self-sufficient.
+ - If you are really one of us, it won’t matter to you that you might fail. And if it does, you are a coward.
+ - That’s one way of looking at it. I prefer to look at it another way – which is that if they are persistent enough, even tiny drops of water, over time, can change the rock forever. And it will never change back.
+ - It is a gift. You cannot earn it, or it ceases to be a gift.
+ - His fingers slide into my hair, and I hold on to his arms to stay steady as we press together like two blades at a stalemate. He is stronger than anyone I know, and warmer than anyone else realizes; he is a secret that I have kept, and will keep for the rest of my life.
+ - There are so many ways to be brave in this world. Sometimes it involves giving up everything you have ever known, or everyone you have ever loved for the sake of something greater.
+ - Beatrice. We should think of our family. But. But we must also think of ourselves.
+ - It doesn’t take skill to stand in a place were no bullets find you, or to fire into the dark and hit a man you didn’t see.
+ - I hear my heartbeat. I have been looking at him too long, but then, he has been looking back, and I feel like we are both trying to say something the other can’t hear, though I could be imagining it. Too long – and now even longer, my heart even louder, his tranquil eyes swallowing me whole.
+ - It’s not often real that you encounter the real person behind a good-natured mask, the darkest part of someone. It’s not comfortable what you do.
+ - Peter leans forward and looks into my eyes. “The serum will go into effect in one minute,” he says. “Be brave, Tris.” My heart begins to race. Why would Peter tell me to be brave? Why would he offer any kind words at all?
+ - Looking at her is like waking up.
+ - Some people believe that I will go nowhere, and maybe they’re right, but maybe they’re not.
+ - You die, I die too.
+ - It doesn’t prove anything except that you’re bullying us. Which, as I recall, is a sign of cowardice.
+ - I’m going to shoot a muffin off Marlene’s head.
+ - I have to admit that Christina is good – though I don’t like giving credit to Candor smart-mouths – and so is Peter – though I don’t like giving credit to future psychopaths.
+ - Just do what you’re supposed to.
+ - Lynn smacks Uriah hard in the back of the head, Christina says, “Hey Tris!” and Uriah cries, “Ow! How on earth do you make a pillow hurt, Lynn?” “My exceptional strength,” she says.
+ - It is amazing how pretending to be in a different faction changes everything – even the way I walk. That must be why it’s so strange that I could easily belong in three of them.
+ - I get up, because I’m supposed to, but if it were up to me, I’d stay in my seat for the rest of time.
+ - She tips her chin up and looks at me with that Abnegation stubbornness I know so well. She may have left them, but they are what’s making her strong.
+ - I came here so that no one else would die. I came here to protect as many people as I could. And I care more about Tobias’s safety than anyone else’s. So why am I here, if he’s here? What’s the point?
+ - I forget that he is another person; instead it feels like he is another part of me, just as essential as a heart or an eye or an arm.
+ - Independent and uninvolved. Must be nice. -Tris.
+ - I should wonder what courage – which is the virtue they most value – has to do with a metal ring through your nostril.
+ - The reason the factions were evil is because there was no way out of them. They gave us the illusion of choice without actually giving us a choice.
+ - We believe that peace is hard-won, That sometimes it is necessary to fight for peace. But more than that, we believe that Justice is more important than peace.
+ - If someone offer you an opportunity to get closer to your enemy, you always take it.
+ - As a teenager, I put a lot of pressure on myself, and a lot of that, for me, was about finding a moral high ground. As I’ve grown up, I’ve decided to abandon that because it made me judgmental and also stressed me out.
+ - Can I be forgiven for all I’ve done to get here? I want to be. I can. I believe it.
+ - It’s easy to be brave when they’re not my fears.
+ - We believe in bravery. We believe in taking action. We believe in freedom from fear and in acquiring the skills to force the bad out of our world so that the good can prosper and thrive. If you also believe in those things, we welcome you.
+ - I note how calm she looks and how focused she is. She is well-practiced in the art of losing herself. I can’t say the same of myself.
+ - This was the first place I everfelt strong. Every time I breathe this air I feel it again.
+ - God Tris, are you even human?
+ - I decide to do what I always do when I’m not sure what’s going on: I act like everyone else.
+ - I don’t really control the story. I just let it go where it wants to go. I have no idea what’s going to happen in the end or who’s going to live, so it’s kind of like me saying, “I don’t know, guys! Just wait.” That’s what I’m doing!
+ - Stiff. That’s why you’re strong, get it? – Tobias Eaton.
+ - My problem might be that even if I did go home, I wouldn’t belong there, among people who give without thinking and care without trying.
+ - Living without virtues is to live divorced from society, separated from the most important thing in life, community.
+ - He pulls me over the railing and against his chest, gathering me into his arms, easing an arm under my knees. I press my face into his shoulder, and there is a sudden, hollow silence.
+ - Sometimes I still forget to look for the gentler parts of her. For so long all I saw was the strength, standing out like the wiry muscles in her arms or the black ink marking her collarbone with flight.
+ - Maybe I was afraid to trust him with something so personal as my devotion.
+ - I wonder how I seem to them. They must see someone I don’t see. Someone capable and strong. Someone I can’t be; someone I can be.
+ - No one is fearless, that’s impossible. But learning how to control your fear, that’s something even your Stif family should learn how to do.
+ - Sometimes I forget that I can hurt you. That you are capable of being hurt.
+ - I traded cowardice for cruelty; I traded weakness for ferocity.
+ - She wanted us to have more than five choices. Now we have none.
+ - Who cares about everyone? What about me?
+ - I know that I am birdlike, made narrow and small as if for taking flight, built straight-waisted and fragile. But when he touches me like he can’t bear to take his hand away, I don’t wish I was any different.
+ - They all laugh. We all laugh. And it occurs to me that I might be meeting Tobias’s true faction. They are not characterized by a particular virtue. They claim all colors, all activities, all virtues, and all flaws as their own.
+ - He holds my face in both hands and kisses me back. I press into the distance between us until it is gone, crushing the secrets we have kept and the suspicions we have harbored-for good, I hope.
+ - That our world is so massive that it is completely out of our control, that we cannot possibly be as large as we feel.
+ - The floor is solid metal in some places and metal grating in others. Everything smells like rotting garbage and fire. “Don’t say I never took you anywhere nice,” Peter says. “Wouldn’t dream of it,” I say.
+ - There are no safe rooms, no safe truths, no safe secrets to tell.
+ - Caleb and Tris exchange a look. The skin on his face and on her knuckles is nearly the same colour, purple-blue-green, as if drawn with ink. This is what happens when siblings collide – they injure each other in the same way.
+ - I didn’t realize until that moment that Dauntless initiation had taught me an important lesson: how to keep going.
+ - My skepticism is strong, but my curiosity is stronger.
+ - Relax Beatrice, I’ve driven a car before.? MARCUS ‘I’ve done a lot of things before, but that doesn’t mean I’m any good at them!’ TRIS.
+ - This is what I wanted most to avoid: for my rises and falls to become Tobias’s rises and falls. That’s why I can’t let him step in to defend me now.
+ - Resisting is worth doing.
+ - I realize that the decision might be simple. It will require a great act of selflessness to choose Abnegation, or a great act of courage to choose Dauntless, and maybe just choosing one over the other will prove that I belong.
+ - I think they’re going to force us to eat lots of cake and then take an unreasonably long nap.
+ - In that moment I know exactly what I want; I want to peel away all the layers of clothing between us, strip away everything that separates us, the past and the present and the future.
+ - Christina,’i say,’The factionless have all the guns.
+ - I have never been carried around by a large boy, or laughed until my stomach hurt at the dinner table, or listened to the clamor of a hundred people all talking at once. Peace is restrained; this is free.
+ - Oh for god’s sake. I’ll just carry you.
+ - You can’t be fearless, remember? Because you still care about things. About your life.
+ - Grabbing hold of facts in the midst of shock is very Erudite of him.
+ - I wonder if this is how is is with all evil men, that to someone, they look just like good men, talk like good men, are just as likable as good men.
+ - I used to think about giving my life up for things, but I didn’t understand what ‘giving your life’ really was until it was right there, about to be taken from me.
+ - I am wearing a gray shirt, blue jeans, black shoes – new clothes, but beneath them, my Dauntless tattoos. It is impossible to erase my choices. Especially these.
+ - I confessed to Tobias, soon after that, that I had lost my entire family. And he assured me that he was my family now. -Tris Prior.
+ - I don’t believe it is more important to move forward than to know the truth.
+ - So how can I hold Tobias’s desperation against him, like I’m better than him, like I’ve never let my own brokenness blind me?
+ - The division is based on knowledge, based on qualifications – but as I learned from the factionless, a system that relies on a group of uneducated people to do its dirty work without giving them a way to rise is hardly fair.
+ - I am collecting the lessons each faction has to teach me, and storing them in my mind like a guidebook for moving through the world. There is always somthing to learn, always somthing that is important to understand.
+ - She must love me, to worry about me. She must still be capable of love.
+ - He should be the one to die, part of me thinks. I don’t want to lose him, another part argues. I don’t know which part to believe.
+ - I don’t want to stop you. I want you to stop yourself.
+ - It was him or me. I chose me. But I feel dead too.
+ - Eric walks toward me, and I back away by instinct. I try not to be afraid of him, but I know how smart he is and that if I’m not careful he’ll notice that I keep staring at her, and that will be my undoing.
+ - The theory is that if you spill all your secrets, you’ll have no desire to lie about anything, ever again. Like the worst about you is already in the open, so why not just be honest?
+ - I don’t have a bullet in my head, do I? So I’m fine.
+ - I don’t see any elderly people in the crowd. Are there any old Dauntless? Do they not last that long, or are they just sent away when they can’t jump off moving trains anymore?
+ - From one tyrant to another. That is the world we know, now.
+ - Candor does not provide us with protection, sustenance, or technological innovation. Therefore you are expendable to us.
+ - If I let a little of the emotion out, all of it will come out, and it will never end.
+ - There is a difference between admitting and confessing. Admitting involves softening, making excuses for things that cannot be excused; confessing just names the crimes at its full severity.
+ - I used to go outside every day and invent these elaborate worlds and scenarios in my head, and when I grew too old for playing pretend, I started to write everything down instead.
+ - Which means that in order to defeat her, I have to think of a way to defeat myself. And how can I be a better fighter than myself, if she knows the same strategies I know, and is exactly as resourceful and clever as I am?
+ - Our ability to know about ourselves and the world is what makes us human.
+ - I’ve done without doing things, like sleeping and eating, but I need to write.
+ - I brought you the truth about our city and the reason we are in it. If you aren’t thanking me for it, you should at least do something about it instead of sitting here on this mess you made, pretending it’s a throne!
+ - I wake wondering how I did not notice, every day I sat across from her at the breakfast table, that she was full to bursting with Dauntless energy. Was it because she hid it well? Or was it because I wasn’t looking?
+ - At first Eric stares at Four in silence. Four stares back.
+ - Where’s Marcus, Destroyer of Lives, going to meet us?
+ - I shift from one foot to the other, trying to get a good look at him. When I finally do, I look away. His eyes were already on me, probably drawn by my nervous movement.
+ - I suppose everything is bound to look different when you aren’t on your way to die.
+ - It’s time to be with my brother now.
+ - All that land is filled with people, every one of them different, and the things they do to each other matter.
+ - I think it’s a human tendency that’s been around for a while to try to be as good as possible to prove your worth.
+ - It’s not that I ever sat down and outlined a trilogy, but I always have a sense of what size an idea is when I start it.
+ - I feel acutely aware of how young I am. In a way that is good. It’s productive. It makes me realise that I should be growing as a writer and a person.
+ - There is always somthing to learn, always somthing that is important to understand.
+ - People are supossed to aspire to become their fathers, not shudder at the thought.
+ - It is impossible to erase my choices.
+ - That quality frightens me now, because I know what he told me: that I was broken, that I was worthless, that I was nothing. How many of those things did he make me believe?
+ - What do I believe? I do not know; I do not know; I do not know.
+ - How is it I know this little about the boy who says he loves me-.
+ - Since he saved me from the attack, I have associated his smell with safety, so as long as I focus on it, I feel safe now.
+ - It’s strange to see people you don’t know well in the morning, with sleepy eyes and pillow creases in their cheeks.
+ - Before she got here everything had stalled inside me, and every morning I was just moving toward nighttime.
+ - I want to cry because something terrible happened, and I saw it, and I could not see a way to mend it.
+ - It’s then that I realize: Of course Tris would go into the Weapons Lab instead of Caleb. Of course she would.
+ - If you see someone in trouble, you should help them. Experiment or not.
+ - Why do you say vague things if you don’t want to be asked about them?
+ - I frown at him. How does he know all this information? And why, after two years of avoiding becoming a Dauntless leader at all costs, is he suddenly acting like one?
+ - And I provide much- needed eye candy.
+ - If utopian fiction became the new trend, I wouldn’t read it.
+ - He moves his thumb in a slow circle over the back of my hand. It is meant to comfort me, but it frustrates me instead. I need to talk to him. I need to look at him.
+ - I’ll have to keep looking for more of them, more brief moments of freedom in a world that refuses to allow it.
+ - Trust me when I tell you, Eaton boy, that resisting is worth doing.
+ - Life’s something we already understand. Death is a mystery.
+ - She believes that Tobias belongs to her now. She doesn’t know the truth, that he belongs to himself.
+ - The gun goes off. I fall.
+ - And then the screaming begins.
+ - Just because they didn’t shoot you all in the head doesn’t mean their intentions were somehow honorable. Why do you think they came here? Just to run through your hallways, knock you conscious, and leave?
+ - I understand why she did it this way, face-first – it was because it made her feel like she was flying, like she was a bird.
+ - If they told us what to believe, and we didn’t come to it on our own, is it still true?
+ - I understand why she did all those things, but that doesn’t mean we aren’t still broken.
+ - Please. They’re like the Cult of Four.
+ - It would be nice if life worked this way, stripping the dirt from our lives and sending us back out into the world clean. But some dirt is destined to lingered.
+ - I take a deep breath. I’m not sure where that swell of desperation came from, but know that I’ve acknowledge it, it’s impossible to ignore, like a living thing has awakened from a long sleep inside me. It writhes in my stomach and throat. I need to leave. I need the truth.
+ - She can’t possibly be me, though she moves when I move.
+ - Everyone has to blame something for the way the world is.
+ - He looks like a man who has spent most of his life frowning.
+ - I’d rather eat out of a can than be strangled by a faction.
+ - I love the Wikipedia link chain because it has led me into some strange articles. Wikipedia is one of my favorites.
+ - Awkwardness aside, it’s nice to be liked.
+ - We may both be bad, but there’s a huge difference between us – I’m not content with being this way.
+ - You always look like someone’s sucked the life right out of you when something fascinates you. -Tris.
+ - Cowardice is how you decide to be in real life.
+ - To find that place between what I want and what I think is wise.
+ - I point at a window to my left, and it explodes. Particles of glass rain over us. ‘You’ll have to do better than that,’ I say.
+ - Someone shouts, “Enough!” and I think too much and nothing at all.
+ - It seems like the rebellions never stop, in the city, in the compound, anywhere. There are just breaths between them, and foolishly, we call those breaths “peace”.
+ - I can’t tell him I need him. I can’t need him, period – or really, we can’t need each other, because who knows how long either of us will last in this war?
+ - It’s not cruelty, maybe, but a desire to understand that motivates them.
+ - I am afraid of her, afraid of what she says-and thrilled by it too, because it means I don’t have to accept that I am smaller than I once believed.
+ - In the days that follow, it’s movement, not stillness, that helps to keep the grief at bay.
+ - I need the protection of seeming weak.
+ - That’s the first time I’ve ever said those words out loud, and now I hear how strange they are. How many young men fear that there is a monster instead them? People are supposed to fear others, not themselves.
+ - Courageous? Courageous would have been admitting weakness and leaving Dauntless, no matter what shame accompanied it. Pride is what killed Al, and it is the flaw in every Dauntless heart. It is in mine.
+ - In ‘Insurgent’ we realise how large the world really is.
+ - I notice, however, that Peter only pretends to inject himself – when he presses the plunger down, the fluid runs down his throat, and he wipes it casually with a sleeve. I wonder what it feels like to volunteer to forget everything.
+ - I should probably be afraid. But instead a hysterical laugh bubbles inside me, because I just remembered something: Maybe I can’t hold a gun. But I have a knife in my back pocket.
+ - Because even a sliver of distance between us is infuriating.
+ - I settle into their pace. The uniform pounding of feet in my ears and the homogeneity of the people around me makes me believe that I could choose this. I could be subsumed into Abnegation’s hive mind, projecting always outward.
+ - But there’s so much that was a lie, it’s hard to figure out what was true, what was real, what matters.
+ - I am fed up. I am fed up with tears and weakness. But there isn’t much I can do to stop them.
+
+471 quotes

@@ -1,0 +1,43 @@
+ - Trust that little voice in your head that says ‘Wouldn’t it be interesting if...’; And then do it.
+ - Even in the deepest love relationship – when lovers say ‘I love you’ to each other – we don’t really know what we’re saying, because language isn’t equal to the complexity of human emotions.
+ - Taking photographs and writing is my way of saying I was here, I saw this, I felt this, I heard this.
+ - Don’t try to be an artist. Find the thing within you that needs to be expressed. You might find it is art.
+ - The majority of photographers focus on the obvious. They believe and accept what their eyes tell them, and yet eyes know nothing.
+ - Most photographs, to me, are description, but they lack insight.
+ - We live in a culture where the one who shouts the loudest gets the most attention. It’s not in the vulgar, it’s not in the shock that one finds art. And it’s not the excessively beautiful. It’s in between; it’s in nuance.
+ - I believe in the imagination. What I cannot see is infinitely more important than what I can see.
+ - I’m a terrible punster. And I love to rhyme. I just can’t help myself.
+ - Most portraits are lies. People are rarely what they appear to be, especially in front of a camera. You might know me your entire lifetime and never reveal yourself to me. To interpret wrinkles as character is insult not insight.
+ - Photography deals exquisitely with appearances, but nothing is what it appears to be.
+ - You can’t teach art, so ART SCHOOL is a contradiction in terms.
+ - I think photographs should be provocative and not tell you what you already know. It takes no great powers or magic to reproduce somebody’s face in a photograph. The magic is in seeing people in new ways.
+ - I am interested in the nature of things. The nature of something is quite different from the way it looks.
+ - Photography does deal with ‘truth’ or a kind of superficial reality better than any of the other arts, but it never questions the nature of reality – it simply reproduces reality. And what good is that when the things of real value in life are invisible?
+ - And in not learning the rules, I was free. I always say, you’re either defined by the medium or you redefine the medium in terms of your needs.
+ - To photograph reality is to photograph nothing.
+ - I don’t get straight people, but I understand what they look like.
+ - I believe in invisible; I do not believe in visible.
+ - I am an expressionist and by that I mean that I’m not a photographer or a writer or a painter or a tap dancer, but rather someone who expresses himself according to his needs.
+ - Art is not fashionable. That’s why fashion and art are two different things. Fashion can never be art because fashion deals with whim, what is temporary, what changes, what is transient, what is now and not now. Art has to deal with issues that are timeless, that never change.
+ - All good work has magic in it, and addresses the mind in a subtle way.
+ - A photograph of a woman crying tells me nothing about grief. Or a photograph of a woman ecstatic tells me nothing about ecstasy. What is the nature of these emotions? The problem with photography is that it only deals with appearances.
+ - Art is really whispering, not shouting.
+ - In the West, people tend to look at life as spectators, but in the East, people are the thing.
+ - Taking the photograph is the easiest part for me.
+ - I often try to photograph things about a person that are not visible.
+ - Art has to address eternal issues.
+ - I’m very hard on the art world just being a big business.
+ - To fulfil a fantasy is the quickest way to destroy it.
+ - I write in order to express what the photo itself cannot say. A photograph of my father doesn’t tell me what I thought of him, which for me is much more important than what the man looked like.
+ - I think photographers are too polite. There is not enough anger in photography; it’s pretty much trivialized.
+ - I never photograph sunsets and I never photograph moonrises. I’m not interested in what things look like.
+ - Usually when painters use photographs, they enlarge and copy them and simply make a large, boring painting of a large, boring photograph.
+ - I got a lot of flak originally for writing with photographs, because the great cliche in photography is that one photograph is worth a thousand words, and photographers are usually dodo birds anyway.
+ - My work is about my life as an event, and I find myself to be very temporal, transient.
+ - Photography is very presumptuous. Photographers are always photographing other people’s lives – something they know nothing about – and drawing great inferences into it.
+ - One of the marvelous things about film is that if you expose it long enough you’re going to get a picture.
+ - The question of truth is forever in the air, and people look for it with particular fervor in art.
+ - Flowers construct the most charming geometries: circles like the sun, ovals, cones, curlicues and a variety of triangular eccentricities, which when viewed with the eye of a magnifying glass seem a Lilliputian frieze of psychedelic silhouettes.
+ - I already know what things look like – I don’t want description. People believe in appearances, and I don’t believe in appearances at all.
+
+41 quotes

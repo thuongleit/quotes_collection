@@ -1,0 +1,22 @@
+ - Don’t trust anyone over thirty.
+ - Until you’re prepared to kill your parents, you’re not really prepared to change the country because our parents are our first oppressors.
+ - The backseat produced the sexual revolution.
+ - I’m famous. That’s my job.
+ - Politics is how you live your life, not whom you vote for.
+ - We create revolution by living it.
+ - I am a child of America. If ever I’m sent to Death Row for my revolutionary ‘crimes,’ I’ll order as my last meal: a hamburger, french fries, and a coke.
+ - High school studfents are the largest oppressed minority in America.
+ - Our parents are our first oppressors.
+ - The capitalist imperialism is gonna be destroyed.
+ - Every person on the streets of New York is a type. The city is one big theater where everyone is on display.
+ - The problem with fame is that you get frozen in one frame and nothing you can do can alter the nature.
+ - A lot of these industries are having difficulty finding reliable workers with the skills they require.
+ - We had a sense of importance that would have led us to risk our lives for our rhetoric.
+ - The individual who signs the check has the ultimate power.
+ - American youth is looking for a reason to die.
+ - The jobs are there, but, particularly for working adults, traditional education just isnt going to cut it. New ways for training that meet the real-life requirements for adults are critically important.
+ - I would be copping out if I stayed in the myth of the ’60s.
+ - Our strategy was to give Judge Hoffman a heart attack. We gave the court system a heart attack, which is even better.
+ - Some of the greatest social reformers of our time were wealthy.
+
+20 quotes

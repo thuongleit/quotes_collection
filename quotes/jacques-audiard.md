@@ -1,0 +1,25 @@
+ - Do we root for Michael Corleone in the ‘Godfather’ films? I think so, even if he is a monster.
+ - The most heroic thing you can do is tell someone that you love them.
+ - Cinema for me only has meaning when it has a relationship with what I see outside on the street.
+ - Used properly, cinema is the coolest thing in the world.
+ - When you’re a kid and your father is an engineer, he goes to the office. I saw my father get up and go to the office in the house and write. But I don’t see any similarities.
+ - When things aren’t working out, we have a tendency to say, ‘Go do other things,’ but you shouldn’t do other things. You need to stay at your desk and continue to try to write. You need to insist on it.
+ - The cinema that interests me departs from realism.
+ - Film is abstract, not definite. It is a dream.
+ - The cinema, as literature, as all the plastic arts, do not exist outside of a critical system that allows us to study them.
+ - Beauty is subjective: Bette Davis wasn’t beautiful, but she was more than beautiful.
+ - Cool? Am I cool? I don’t know, but I hope my characters are cool, in the sense of iconic. That’s my job, at its very essence.
+ - When someone is punched in the face, you find out what they are made of.
+ - What interests me about genre is that the public connects immediately with it, it has certain rules, certain codes the audience recognizes. I can use that to create something very big.
+ - An archetypal gangster is always at a remove. We can’t get into his mindset.
+ - In movies, it’s so easy to have this ‘boom,’ to kill, and I think that’s inhumane.
+ - If you look at American studios, the big productions have nothing to do with reality.
+ - For me, there was no great myth around the movies when I was a young child. My father was very simple about the whole thing. He did not consider cinema an art. Cinema was entertainment. Literature and music were art.
+ - If I ask my actors to bare themselves, to reveal themselves as almost naked, I have to bare myself, expose myself as well. That’s what creates excitement.
+ - The so-called “remake” is simply a commercial formulation of a much deeper exchange which accounts for the way cinema is what it is.
+ - I don’t feel comfortable with violence, and I’m not sure that I film violent scenes properly, and it’s something I’m reticent to do, and yet violence is sort of in all of my films.
+ - It’s truly gratifying to see my films reach beyond a familiar public, to get a chance to move new audiences. It’s nuts. It’s extraordinary.
+ - I think that cinema has always progressed through exchanges.
+ - I really believe the form of the film must be in the scenario; cinema is not just added value to the scripting. I believe in it as a totality.
+
+23 quotes

@@ -1,0 +1,178 @@
+ - When I dare to be powerful – to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+ - Caring for myself is not self-indulgence, it is self-preservation, and that is an act of political warfare.
+ - I am not free while any woman is unfree, even when her shackles are very different from my own.
+ - It is not our differences that divide us. It is our inability to recognize, accept, and celebrate those differences.
+ - Your silence will not protect you.
+ - When we speak we are afraid our words will not be heard or welcomed. But when we are silent, we are still afraid. So it is better to speak.
+ - I am deliberate and afraid of nothing.
+ - I have come to believe that caring for myself is not self-indulgent. Caring for myself is an act of survival.
+ - The master’s tools will never dismantle the master’s house. They may allow us temporarily to beat him at his own game, but they will never allow us to bring about genuine change.
+ - Self-care is not about self-indulgence, it is about self-preservati on.
+ - Life is very short and what we have to do must be done in the now.
+ - There is no thing as a single-issue struggle because we do not live single-issue lives.
+ - You cannot use someone else’s fire. You can only use your own. And in order to do that, you must first be willing to believe that you have it.
+ - The true focus of revolutionary change is never merely the oppressive situations that we seek to escape, but that piece of the oppressor which is planted deep within each of us.
+ - If you can’t change reality, change your perceptions of it.
+ - Nothing I accept about myself can be used against me to diminish me. I am who I am, doing what I came to do, acting upon you like a drug or a chisel to remind you of your me-ness, as I discover you in myself.
+ - If I didn’t define myself for myself, I would be crunched into other people’s fantasies for me and eaten alive.
+ - Poetry is not a luxury.
+ - I have come to believe over and over again that what is most important to me must be spoken, made verbal and shared, even at the risk of having it bruised or misunderstood.
+ - Without community, there is no liberation.
+ - My anger has meant pain to me but it has also meant survival, and before I give it up I’m going to be sure that there is something at least as powerful to replace it on the road to clarity.
+ - Women are powerful and dangerous.
+ - I write for those women who do not speak, for those who do not have a voice because they were so terrified, because we are taught to respect fear more than ourselves. We’ve been taught that silence would save us, but it won’t.
+ - Tomorrow belongs to those of us who conceive of it as belonging to everyone; who lend the best of ourselves to it, and with joy.
+ - Even the smallest victory is never to be taken for granted. Each victory must be applauded...
+ - The erotic is a measure between the beginnings of our sense of self and the chaos of our strongest feelings.
+ - Divide and conquer must become define and empower.
+ - You are the one that you are looking for.
+ - I am on the cusp of change and the curve is shifting fast.
+ - I started writing because I had a need inside of me to create something that was not there.
+ - We tend to think of the erotic as an easy, tantalizing sexual arousal. I speak of the erotic as the deepest life force, a force which moves us toward living in a fundamental way.
+ - Revolution is not a one time event.
+ - It is axiomatic that if we do not define ourselves for ourselves, we will be defined by others-for their use and to our detriment.
+ - I am a reflection of my mother’s secret poetry as well as of her hidden angers.
+ - The transformation of silence into language and action is an act of self-revelation .
+ - Next time, ask: What’s the worst that will happen? Then push yourself a little further than you dare.
+ - Our feelings are our most genuine paths to knowledge.
+ - So it is better to speak, remembering we were never meant to survive.
+ - When we define ourselves, when I define myself, the place in which I am like you and the place in which I am not like you, I’m not excluding you from the joining – I’m broadening the joining.
+ - If I cannot air this pain and alter it, I will surely die of it. That’s the beginning of social protest.
+ - I am my best work – a series of road maps, reports, recipes, doodles, and prayers from the front lines.
+ - Nothing I accept about myself can be used against me to diminish me.
+ - Pain is important: how we evade it, how we succumb to it, how we deal with it, how we transcend it.
+ - Anger is loaded with information and energy.
+ - The master’s tools will never dismantle the master’s house.
+ - Poetry is not only dream and vision; it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.
+ - The fact that we are here and that I speak these words is an attempt to break that silence and bridge some of those differences between us, for it is not difference which immobilizes us, but silence. And there are so many silences to be broken.
+ - And this is a grave responsibility, projected from within each of us, not to settle for the convenient, the shoddy, the conventionally expected, nor the merely safe.
+ - What woman here is so enamored of her own oppression that she cannot see her heel print upon another woman’s face?
+ - What I most regretted were my silences. Of what had I ever been afraid?
+ - For women, then, poetry is not a luxury. It is a vital necessity of our existence.
+ - Our visions begin with our desires.
+ - Poetry is the way we help give name to the nameless so it can be thought. The farthest horizons of our hopes and fears are cobbled by our poems, carved from the rock experiences of our daily lives.
+ - All writers have periods when they stop writing, when they cannot write, and this is always painful and terrible because writing is like breathing...
+ - We are all in the process of becoming.
+ - Those of us forged in the crucibles of difference know that survival is not an academic skill.
+ - I want to live the rest of my life, however long or short, with as much sweetness as I can decently manage, loving all the people I love, and doing as much as I can of the work I still have to do.
+ - Sometimes we are blessed with being able to choose the time, and the arena, and the manner of our revolution, but more usually we must do battle where we are standing.
+ - I am a Black Lesbian Feminist Warrior Poet Mother, stronger for all my identities, and I am indivisible.
+ - I am still learning – how to take joy in all the people I am, how to use all my selves in the service of what I believe, how to accept when I fail and rejoice when I succeed.
+ - For women, the need and desire to nurture each other is not pathological but redemptive, and it is within that knowledge that our real power is rediscovered. It is this real connection, which is so feared by a patriarchal world...
+ - Guilt and defensiveness are bricks in a wall against which we all flounder; they serve none of our futures.
+ - I am a bleak heroism of words that refuse to be buried alive with the liars.
+ - To encourage excellence is to go beyond the encouraged mediocrity of our society.
+ - What are the words you do not yet have? What do you need to say? What are the tyrannies you swallow day by day and attempt to make your own, until you will sicken and die of them, still in silence.
+ - I realize that if I wait until I am no longer afraid to act, write, speak, be, I’ll be sending messages on a Ouija board, cryptic complaints from the other side.
+ - When you reach out and touch other human beings, it doesn’t matter whether you call it therapy or teaching or poetry.
+ - We are powerful because we have survived.
+ - If they cannot love and resist at the same time, they probably will not survive.
+ - I was going to die, if not sooner, then later, whether or not I had ever spoken myself. My silences had not protected me. Your silence will not protect you.
+ - The sharing of joy, whether physical, emotional, psychic, or intellectual, forms a bridge between the sharers which can be the basis for understanding much of what is not shared between them, and lessens the threat of their difference.
+ - Because the machine will try to grind you into dust anyway, whether or not we speak.
+ - Battling racism and battling heterosexism and battling apartheid share the same urgency inside me as battling cancer.
+ - Silence has never brought us anything of worth.
+ - In the recognition of loving lies the answer to despair.
+ - There is no Hierarchy of Oppressions.
+ - The learning process is something you can incite, literally incite, like a riot.
+ - Art is not living. It is the use of living.
+ - Anger, used, does not destroy. Hatred does.
+ - It is not the destiny of Black America to repeat white America’s mistakes. But we will, if we mistake the trappings of success in a sick society for the signs of a meaningful life.
+ - Hatred is a death wish for the hated, not a life wish for anything else.
+ - I have died too many deaths that were not mine.
+ - Every Black woman in America lives her life somewhere along a wide curve of ancient and unexpressed angers.
+ - Wherever the bird with no feet flew, she found trees with no limbs.
+ - Institutionalized rejection of difference is an absolute necessity in a profit economy which needs outsiders as surplus people.
+ - There are no new ideas. There are only new ways of making them felt.
+ - I am not only a casualty, I am also a warrior.
+ - I have no creative use for guilt, yours or my own. Guilt is only another way of avoiding informed action, of buying time out of the pressing need to make clear choices, out of the approaching storm that can feed the earth as well as bend the trees.
+ - In our work and in our living, we must recognize that difference is a reason for celebration and growth, rather than a reason for destruction.
+ - Each time you love, love as deeply as if it were forever.
+ - I soon discovered that if you keep your mouth shut, people are apt to believe you know everything, and they begin to feel freer and freer to tell you anything, anxious to show that they know something, too.
+ - Anger is an appropriate reaction to racist attitudes, as is fury when the actions arising from those attitudes do not change.
+ - I cannot shut you out the way I shut the others out, so maybe I can destroy you. Must destroy you?
+ - The love expressed between women is particular and powerful because we have had to love in order to live; love has been our survival.
+ - For those of us who write, it is necessary to scrutinize not only the truth of what we speak, but the truth of that language by which we speak it.
+ - We must recognize and nurture the creative parts of each other without always understanding what will be created.
+ - Poetry is the way we help give name to the nameless so it can be thought.
+ - You will never be able to defend your city while shouting.
+ - We have too often been expected to speak all things to all people and speak everyone else’s position but our own.
+ - What is there possibly left for us to be afraid of, after we have dealt face to face with death and not embraced it? Once I accept the existence of dying as a life process, who can ever have power over me again?
+ - We have to consciously study how to be tender with each other until it becomes a habit because what was native has been stolen from us, the love of Black women for each other.
+ - Learning not to crumple before these uncertainties fuels my resolve to print myself upon the texture of each day fully rather than forever.
+ - What I leave behind has a life of its own.
+ - I learned so much from listening to people. And all I knew was, the only thing I had was honesty and openness.
+ - Unless one lives and loves in the trenches, it is difficult to remember that the war against dehumanization is ceaseless.
+ - We have been raised to fear the yes within ourselves, our deepest cravings.
+ - Guilt is not a response to anger; it is a response to one’s own actions or lack of action.
+ - Some words live in my throat breeding like adders. Others know sun seeking like gypsies over my tongue to explode through my lips.
+ - The strongest lesson I can teach my son is the same lesson I teach my daughter: how to be who he wishes to be for himself.
+ - The difference between poetry and rhetoric is being ready to kill yourself instead of your children.
+ - How much of this truth can I bear to see and still live unblinded? How much of this pain can I use?
+ - There are many lesbians and gay men trapped by their fear into silence and invisibility, and they exist in a dim valley of terror wearing nooses of conformity.
+ - The oppression of women knows no ethnic nor racial boundaries, true, but that does not mean it is identical within those boundaries.
+ - Attend me, hold me in your muscular flowering arms, protect me from throwing any part of myself away.
+ - I am Black because I come from the earth’s inside now take my word for jewel in the open light.
+ - I am a Black Feminist. I mean I recognize that my power as well as my primary oppressions come as a result of my blackness as well as my womaness, and therefore my struggles on both of these fronts are inseparable.
+ - Part of the lesbian consciousness is an absolute recognition of the erotic within our lives and, taking that a step further, dealing with the erotic not only in sexual terms.
+ - We recognize that all knowledge is mediated through the body and that feeling is a profound source of information about our lives.
+ - I am a post-mastectomy woman who believes our feelings need voice in order to be recognized, respected, and of use.
+ - The fear that we cannot grow beyond whatever distortions we may find within ourselves keeps us docile and loyal and obedient, externally defined, and leads us to accept many facets of our own oppression as women.
+ - Raising Black children-female and male-in the mouth of a racist, sexist, suicidal dragon is perilous and chancy. If they cannot love and resist at the same time, they will probably not survive.
+ - The erotic has often been misnamed by men and used against women. It has been made into the confused, the trivial, the psychotic, the plasticized sensation.
+ - The white fathers told us: I think, therefore I am. The black goddess within each of us – the poet – whispers in our dreams: I feel, therefore I can be free.
+ - There are no honest poems about dead women.
+ - Afraid is a country with no exit visas...
+ - In order to perpetuate itself, every oppression must corrupt or distort those various sources of power within the culture of the oppressed that can provide energy for change.
+ - Somedays, if bitterness were a whetstone, I could be sharp as grief.
+ - Differences must be not merely tolerated, but seen as a fund of necessary polarities between which our creativity can spark like a dialectic.
+ - Some women wait for themselves around the next corner and call the empty spot peace but the opposite of living is only not living and the stars do not care.
+ - I have suckled the wolf’s lip of anger and I have used it for illumination, laughter, protection, fire in places where there was no light, no food, no sisters, no quarter.
+ - I can’t really define it in sexual terms alone although our sexuality is so energizing why not enjoy it too?
+ - And where the words of women are crying to be heard, we must each of us recognize our responsibility to seek those words out, to read them and share them and examine them in their pertinence to our lives.
+ - I do not want to be tolerated, or misnamed. I want to be recognized.
+ - I am not just a lesbian. I am not just a poet. I am not just a mother. Honor the complexity of your vision and yourselves.
+ - If our history has taught us anything, it is that action for change directed against the external conditions of our oppressions is not enough.
+ - I remember how being young and black and gay and lonely felt. A lot of it was fine, feeling I had the truth and the light and the key, but a lot of it was purely hell.
+ - I find I am constantly being encouraged to pluck out some one aspect of myself and present this as the meaningful whole, eclipsing or denying the other parts of self.
+ - For we have been socialized to respect fear more than our own needs for language and definition, and while we wait in silence for that final luxury of fearlessness, the weight of that silence will choke us.
+ - Hatred is the fury of those who do not share our goals, and its object is death and destruction. Anger is a grief of distortions between peers, and its object is change.
+ - But, on the other hand, I get bored with racism too and recognize that there are still many things to be said about a Black person and a White person loving each other in a racist society.
+ - But the true feminist deals out of a lesbian consciousness whether or not she ever sleeps with women.
+ - I believe one of the hardest things you can do is conquer your fears, but if you have a goal, then it’s your job to open up and let it be real no matter how scary it seems.
+ - It’s a struggle but that’s why we exist, so that another generation of Lesbians of color will not have to invent themselves, or their history, all over again.
+ - Black women sharing close ties with each other, politically or emotionally, are not the enemies of Black men.
+ - Every woman I have ever known has made a lasting impression on my soul.
+ - We are all more blind to what we have than to what we have not.
+ - My fear of anger taught me nothing.
+ - We must constantly encourage ourselves and each other to attempt the heretical actions that our dreams imply and so many of our old ideas disparage.
+ - The failure of academic feminists to recognize difference as a crucial strength is a failure to reach beyond the first patriarchal lesson. In our world, divide and conquer must become define and empower.
+ - Guilt is only another way of avoiding informed action.
+ - What do we want from each other after we have told our stories.
+ - The quality of light by which we scrutinize our lives has direct bearing upon the product which we live, and upon the changes which we hope to bring about through those lives.
+ - Art is not living. It is a use of living. The artist has the ability to take that living and use it in a certain way, and produce art.
+ - When I hear the deepest truths I speak coming out of my mouth sounding like my mother’s, even remembering how I fought against her, I have to reassess both our relationship as well as the sources of my knowing.
+ - It’s possible to take that as a personal metaphor and then multiply it to a people, a race, a sex, a time. If we can keep this thing going long enough, if we can survive and teach what we know, we’ll make it.
+ - When you are a member of an out-group, and you challenge others with whom you share this outsider position to examine some aspect of their lives that distorts differences between you, then there can be a great deal of pain.
+ - It does not pay to cherish symbols when the substance lies so close at hand.
+ - Black women are programmed to define ourselves within this male attention and to compete with each other for it rather than to recognize and move upon our common interests.
+ - But the question is a matter of the survival and the teaching. That’s what our work comes down to. No matter where we key into it, it’s the same work, just different pieces of ourselves doing it.
+ - Out of my flesh that hungers and my mouth that knows comes the shape I am seeking for reason.
+ - The sixties were characterized by a heady belief in instantaneous solutions.
+ - I am very, very happy for Alice Walker.
+ - We’re supposed to see “universal” love as heterosexual. What I insist upon in my work is that there is no such thing as universal love in literature.
+ - Only by learning to live in harmony with your contradictions can you keep it all afloat.
+ - Women on trains have a life that is exactly livable the precision of days flashing past.
+ - One pays a lot, we all pay a lot, for awareness.
+ - When we create out of our experiences, as feminists of color, women of color, we have to develop those structures that will present and circulate our culture.
+ - Hopefully, we can learn from the 60s that we cannot afford to do our enemies work by destroying each other.
+ - I train myself for triumph by knowing it is mine no matter what.
+ - Say what you have to say now! Don’t wait until you’re sending blips from the other side.
+ - We cannot settle for the pretenses of connection, or for the parodies of self-love.
+ - You’d better name yourself, because, if you don’t others will do it for you.
+ - Who I am is what fulfills me and fulfills the vision I have of the world.
+ - In other words, I would be giving in to a myth of sameness which I think can destroy us.
+ - Change is the immediate responsibility of each of us, wherever and however we are standing, in whatever arena we choose.
+ - In discussions around the hiring and firing of Black faculty at universities, the charge is frequently heard that Black women are more easily hired than are Black men.
+
+176 quotes

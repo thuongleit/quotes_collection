@@ -1,0 +1,45 @@
+ - When you hold resentment toward another, you are bound to that person or condition by an emotional link that is stronger than steel. Forgiveness is the only way to dissolve that link and get free.
+ - The forgiving state of mind is a magnetic power for attracting good.
+ - I give thanks that I am now rich, well and happy and that my financial affairs are in divine order. Every day in every way I am growing richer and richer.
+ - Every day in every way I am growing more prosperous, successful, victorious. I am made for peace, health, and plenty, and I am now experiencing them in ever-increasing degrees of good.
+ - Realise that your dreams of financial independence have already come true on the mental plane, by the time you desire them or become aware of them.
+ - Let there be peace within my walls and prosperity within my palaces.
+ - I now let go of worn out things, worn out conditions, and worn out relationships. Divine order is now established and maintained in me and in my world.
+ - All financial doors are open; all financial channels are free, and endless bounty now comes to me.
+ - What you radiate outward in your thoughts, feelings, mental pictures and words, you attract into your life.
+ - Why settle for so little in life when you can have so much just by daring to be different in your thinking.
+ - One positive statement of good is more powerful than 1,000 negative thoughts; and two positive statements of good are more powerful than 10,000 negative thoughts.
+ - When people bother you in any way, it is because their souls are trying to get your divine attention and your blessing.
+ - I give thanks for ever increasing health, youth and beauty.
+ - If you have unfilled dreams and visions of greater prosperity and success tucked in a corner of your mind, don’t keep them there any longer. Dare to bring them out and dust them off.
+ - Often, failure is success trying to be born in a bigger way, and persistence helps you to experience that greater result.
+ - Whatever your problem, it is but a test in love. If you meet that test through love, your problem will be solved. If you do not meet that test through love, your problem will continue until you do! Your problem is your initiation in love.
+ - If outer doors close seem to close to you, do not hesitate. Perist in inner preparations. The inner realm of thought controls all outer action. When you get the right attitude, the outer world of results and personalities must conform to it. That is the law of mind-action.
+ - Just as it is necessary to breathe out regularly in order to receive fresh air into the lungs, so it is necessary to give regularly if we wish to receive regularly.
+ - What you praise you increase.
+ - Failure is nothing but success trying to be born in a bigger way. Most seeming failures are just installments toward victory!
+ - Giving is only one-half of the law of increase. Receiving is the other half. We can give and give but we may unbalance the law unless we also expect to receive.
+ - I have unshakeable faith in the perfect outcome of every situation in my life, for God is in absolute control.
+ - If you want greater prosperity in your life, start forming a vacuum to receive it.
+ - The desire to be self-supporting and financially independent is a divine desire.
+ - I rejoice in the bounty of God, constantly manifesting as overflowing supply here and now.
+ - Your giving is sacred and therefore should be kept secret. It is wise to give quietly with no strings attached.
+ - Your ships come in only after you have sent them out.
+ - Thoughts of your mind have made you what you are and thoughts of your mind will make you what you become from this day forward.
+ - Some authorities believe that one prosperous thought is more powerful than a thousand failure thoughts; and that two prosperous attitudes steadily held and expressed are more powerful than ten thousand failure attitudes!
+ - If people only knew the healing power of laughter and joy, many of our fine doctors would be out of business. Joy is one of nature’s greatest medicines. Joy is always healthy. A pleasant state of mind tends to bring abnormal conditions back to normal.
+ - If you think a complimentary thought about someone, don’t just think it. Dare to compliment people and pass on compliments to them from others.
+ - Poverty is a form of hell caused by man’s blindness to God’s unlimited good for him. You should be prosperous, well supplied and have abundance of good because it is your divine heritage. Your creator wants you that way.
+ - Mental and spiritual laws are so powerful that they can be used to multiply, neutralize, or even reverse natural laws!
+ - Nature does abhor a vacuum, and when you begin moving out of your life what you do not want, you automatically are making way for what you do want. By letting go of the lesser, you automatically make room for your greater good to come in.
+ - Persistence is a characteristic to which success invariably surrenders.
+ - A complete revaluation takes place in your physical and mental being when you’ve laughed and had some fun.
+ - Forgiveness is all-powerful. Forgiveness heals all ills.
+ - We should praise the qualities we would like to see in others, declare that others possess them already, and then watch how quickly these persons will respond.
+ - Through persistence, you can be one of those happy, victorious people who not only chases dreams, but who catches them! The persistent man also perseveres long enough for his dreams to catch up with him!
+ - It is through the imagination that the formless takes form.
+ - Everything in your world is filled with intelligence, even the so-called inanimate objects. Treat them intelligently if you wish to obtain intelligent, harmonious results.
+ - Whatever the mind is taught to expect, that it will build, produce, and bring forth for you.
+ - It has been said that work is the highest form of play.
+
+43 quotes

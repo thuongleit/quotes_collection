@@ -1,0 +1,43 @@
+ - My life has been a tapestry of rich and royal hue, an everlasting vision of the ever changing view.
+ - Way over yonder is a place I have seen In a garden of wisdom from some long ago dream.
+ - I still believe that everyone is beautiful in some way and by seeing the beauty in others we make ourselves more beautiful.
+ - Do the things you believe in, in the name of love. And know that, you aren’t alone. We all have doubts and fears.
+ - You’re beautiful as you feel.
+ - Now and forever, I’ll remember all the promises still unbroken and think about all the words between us that never needed to be spoken.
+ - Doesn’t anybody stay in one place any more?
+ - Today’s records, even though they may be lyrically repetitive and not saying anything particularly heavy, they have energy.
+ - Once the inspiration comes, that directs where the perspiration goes.
+ - Now my tapestry’s unraveling.
+ - I just want to give it all that I got. I just don’t want to waste it...
+ - Traveling around sure gets me down and lonely, nothing else to do but close my mind. I sure hope the road don’t come to own me, there’s so many dreams I’ve yet to find. But you’re so far away.
+ - I’m like a plant, I reach for the sun...
+ - Not only do you want to leave the audience wanting more, you want to leave yourself wanting more.
+ - You make me feel like a natural man.
+ - The writing of You’ve Got a Friend was one of the most incredible experiences because it was mostly inspiration. It just came to me almost as we hear it.
+ - Eric Clapton is my dream guitarist.
+ - One of the things that I try to be conscious about in crafting a song is the concept of bringing it home. I like to bring it somewhere familiar, someplace that people feel it’s resolved, it’s settled.
+ - I just sort of try to be a good person; try to write music that lifts people and makes me feel good to sing.
+ - I love that I wrote with all kinds of different people.
+ - When I was younger, I was kind of fearless. I think it takes more courage to do things when you know more. I was completely naive, and I was like, why can’t I do anything I want to do? You know, go for it.
+ - In my career I have never felt that my being a woman was an obstacle or an advantage. I guess I’ve been oblivious.
+ - I listen to both oldies and contemporary stations. I enjoy listening to current stuff because there’s an energy to it that’s inspiring.
+ - It’s a very worthy cause. This should happen, and I do believe that tenacity counts. Not going away matters.
+ - I’m really getting better at guitar. I’m not trapped behind a piano. You can get out and move with a guitar and still direct the band.
+ - Sometimes I get a lyric, and the lyric, you know, comes off the page, and goes into my brain and comes out with a melody. Other times, I may create a melody first.
+ - I didn’t want to be an artist.
+ - Sensitive, humbug. Everybody thinks I’m sensitive. Wait until they hear my new album.
+ - It is very common with artists who are of a generation that has already gone by to get overly concerned with, Oh my God I have to sell to the younger generation.
+ - I went to London and performed in Eric Clapton’s concert at the Royal Albert Hall. I’ll work with him any time he asks me.
+ - I went to the High School for Performing Arts in New York for acting. I’ve studied it on and off for years and have done some theater and film.
+ - I think Madonna has a great deal of intelligence and capability. I have a lot of respect for her. She’s taken her career and maximized it with intelligence and creativity.
+ - I’d like to know that your love Is love I can be sure of...
+ - I write heavily under the influence of James Taylor.
+ - The downside of videos is that it will put my vision in front of other people, so they might not get the chance to create their own.
+ - That’s one of the things I love about being a songwriter first, last and always, because whether I do it or not, if someone does a great job on it, my work is done.
+ - I used to hate the sound of my voice.
+ - I’m a songwriter first.
+ - It’s very difficult for me to evaluate my own stuff.
+ - Scary in the idea it could be a little overwhelming to have 70 or 100 clowns in a public space. Intriguing in that it could be something interesting. I’m up for any kind of public art.
+ - You can’t talk to a man, with a shotgun in his hand.
+
+41 quotes

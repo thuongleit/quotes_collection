@@ -1,0 +1,131 @@
+ - In every encounter we either give life or we drain it; there is no neutral exchange.
+ - You will trust God to the degree you know you are loved by Him.
+ - Define yourself radically as one beloved by God. This is the true self. Every other identity is illusion.
+ - The greatest single cause of atheism in the world today is Christians, who acknowledge Jesus with their lips and walk out the door, and deny Him by their lifestyle. That is what an unbelieving world simply finds unbelievable.
+ - God loves you unconditionally, as you are and not as you should be, because nobody is as they should be.
+ - In a futile attempt to erase our past, we deprive the community of our healing gift. If we conceal our wounds out of fear and shame, our inner darkness can neither be illuminated nor become a light for others.
+ - I could more easily contain Niagara Falls in a teacup than I can comprehend the wild, uncontainable love of God.
+ - A ragamuffin knows he’s only a beggar at the door of God’s mercy.
+ - Our identity rests in God’s relentless tenderness for us revealed in Jesus Christ.
+ - Lord, when I feel that what I’m doing is insignificant and unimportant, help me to remember that everything I do is significant and important in your eyes, because you love me and you put me here, and no one else can do what I am doing in exactly the way I do it.
+ - My deepest awareness of myself is that I am deeply loved by Jesus Christ and I have done nothing to earn it or deserve it.
+ - In Love’s service, only wounded soldiers can serve.
+ - Letting ourselves be loved by God is more important than loving God.
+ - Craving clarity, we attempt to eliminate the risk of trusting God.
+ - The Christian with depth is the person who has failed and who has learned to live with it.
+ - I have been seized by the power of a great affection.
+ - The Good News of the gospel of grace cries out: We are all, equally, privileged but unentitled beggars at the door of God’s mercy!
+ - The temptation of the age is to look good without being good.
+ - We are made for God, and nothing less will ever satisfy us.
+ - That which is denied cannot be healed.
+ - To live by grace means to acknowledge my whole life story, the light side and the dark. In admitting my shadow side I learn who I am and what God’s grace means.
+ - Suffering, failure, loneliness, sorrow, discouragement, and death will be part of your journey, but the Kingdom of God will conquer all these horrors. No evil can resist grace forever.
+ - Real freedom is freedom from the opinions of others. Above all, freedom from your opinions about yourself.
+ - The litmus test of our love for God is our love of neighbor.
+ - The deepest desire of our hearts is for union for God. God created us for union with himself. This is the original purpose of our lives.
+ - In human beings, love is a quality, a high-prized virtue; in God, love is His identity.
+ - The ancient spiritual tradition is that God gives himself fully to us in silence and solitude.
+ - God is enough. That is the root of peace. When we start seeking something besides Him, we lose it.
+ - Hope knows that if great trials are avoided great deeds remain undone and the possibility of growth into greatness of soul is aborted.
+ - There is an essential connection between experiencing God, loving God, and trusting God. You will trust God only as much as you love him. And you will love him to the extent you have touched him, rather that he has touched you.
+ - How glorious the splendor of a human heart that trusts that it is loved!
+ - The ragamuffin who sees his life as a voyage of discovery and runs the risk of failure has a better feel for faithfulness than the timid man who hides behind the law and never finds out who he is at all.
+ - There is a beautiful transparency to honest disciples who never wear a false face and do not pretend to be anything but who they are.
+ - Grace is sufficient even though we huff and puff with all our might to try and find something or someone that it cannot cover. Grace is enough.
+ - Craving clarity, we attempt to eliminate the risk of trusting God. Fear of the unknown path stretching ahead of us destroys childlike trust in the Father’s active goodness and unrestricted love.
+ - Accepting the reality of our sinfulness means accepting our authentic self. Judas could not face his shadow; Peter could. The latter befriended the impostor within; the former raged against him.
+ - To lend each other a hand when we’re falling, perhaps that’s the only work that matters in the end.
+ - Faith will become vision, hope will become possession, but the love of Jesus Christ that is stronger than death endures forever. In the end, it is the only thing you can hang onto.
+ - I asked for wonder, and He gave it to me.
+ - We should be astonished at the goodness of God, stunned that He should bother to call us by name, our mouths wide open at His love, bewildered that at this very moment we are standing on holy ground.
+ - Genuine self-acceptance is not derived from the power of positive thinking, mind games or pop psychology. IT IS AN ACT OF FAITH in the God of grace.
+ - Our hearts of stone become hearts of flesh when we learn where the outcast weeps.
+ - A saint is not someone who is good but who experiences the goodness of God.
+ - The ragamuffin gospel says we can’t lose, because we have nothing to lose.
+ - The god who exacts the last drop of blood from his Son so that his just anger, evoked by sin, may be appeased, is not the God revealed by and in Jesus Christ. And if he is not the God of Jesus, he does not exist.
+ - Hope your wildest hopes, dream your maddest dreams, imagine your most fantastic fantasies. Where your hopes and your dreams and your imagination leave off, the love of my Heavenly Father only begins.
+ - Our culture says that ruthless competition is the key to success. Jesus says that ruthless compassion is the purpose of our journey.
+ - Jesus comes not for the super-spiritual but for the wobbly and the weak-kneed who know they don’t have it all together, and who are not too proud to accept the handout of amazing grace.
+ - Authentic Christianity should lead to maturity, personality, and reality. It should fashion whole men and women living lives of love and communion.
+ - We even refuse to be our true self with God- and then wonder why we lack intimacy with him.
+ - Ruthless trust ultimately comes down to this: faith in the person of Jesus and hope in his promise.
+ - The only kind of love that helps anyone grow is unconditional love.
+ - When a man or woman is truly honest, it is virtually impossible to insult them personally.
+ - Prayer is first and foremost an act of love.
+ - Being the beloved is our identity, the core of our existence. It is not merely a lofty thought, an inspiring idea, or one name among many. It is the name by which God knows us and the way He relates to us.
+ - I believe that the real difference in the American church is not between conservatives and liberals, fundamentalists and charismatics, nor between Republicans and Democrats. The real difference is between the aware and the unaware.
+ - God not only loves me as I am, but also knows me as I am. Because of this I don’t need to apply spiritual cosmetics to make myself presentable to Him. I can accept ownership of my poverty and powerlessness and neediness.
+ - The unwounded life bears no resemblance to the Rabbi.
+ - Today on planet Earth, may you experience the wonder and beauty of yourself as Abba’s Child and temple of the Holy Spirit through Jesus Christ.
+ - Do the truth quietly without display.
+ - Faithfulness requires the courage to risk everything on Jesus, the willingness to keep growing, and the readiness to risk failure throughout our lives.
+ - Anyone we come in contact with, we either offer them life, or we drain them.
+ - The gospel declares that no matter how dutiful or prayerful we are, we can’t save ourselves. What Jesus did was sufficient.
+ - A trusting heart is forgiven and, in turn, forgives.
+ - Trust is that rare and priceless treasure that wins us the affection of our heavenly Father.
+ - Faith means wanting God and wanting to want nothing else.
+ - For me the most radical demand of Christian faith lies in summoning the courage to say yes to the present risenness of Jesus Christ.
+ - God is loving us – you and me – this moment, just as we are and not as we should be.
+ - I knew there was only one place to go. I sank down into the center of my soul, grew still, and listened to the Rabbi’s heartbeat.
+ - Without exposure to potential failure, there is no risk.
+ - I am wonderfully content with a God who does not deal with me as my sins deserve.
+ - The gospel will persuade no one unless it has so convicted us that we are transformed by it.
+ - Though it is true that the church must always dissociate itself from sin, it can never have any excuse for keeping any sinner at a distance.
+ - The secret of the mystery is: God is always greater. No matter how great we think Him to be, His love is always greater.
+ - The ragamuffin gospel reveals that Jesus forgives sins, including the sins of the flesh; that He is comfortable with sinners who remember how to show compassion; but that He cannot and will not have a relationship with pretenders in the Spirit.
+ - The cultural propaganda embodied in two liquor advertisements, “Living well is the best revenge” and “Sip it with arrogance,” have a curious, perhaps demonic appeal. Consumerism indeed has its own spirituality.
+ - My trust in God flows out of the experience of his loving me, day in and day out, whether the day is stormy or fair, whether I’m sick or in good health, whether I’m in a state of grace or disgrace. He comes to me where I live and loves me as I am.
+ - Those who have the disease called Jesus will never be cured.
+ - Trust is our gift back to God, and he finds it so enchanting that Jesus died for love of it.
+ - The men and women who are truly filled with light are those who have gazed deeply into the darkness of their own imperfect existence.
+ - If in our hearts we really don’t believe that God loves us as we are, if we are still tainted by the lie that we can do something to make God love us more, we are rejecting the message of the cross.
+ - A man doesn’t grow old because he has lived a certain number of years. A man grows old when he deserts his ideal. The years may wrinkle his skin, but deserting his ideal wrinkles his soul.
+ - The first step in faith is to stop thinking about God at the time of prayer.-.
+ - Our huffing and puffing to impress God, our scrambling for brownie points, our thrashing about trying to fix ourselves while hiding our pettiness and wallowing in guilt are nauseating to God and are a flat denial of the gospel of grace.
+ - All that is good is ours not by right but by the sheer bounty of a gracious God.
+ - Do you honestly believe God likes you, not just loves you because theologically God has to love you?
+ - Only reckless confidence in a Source greater than ourselves can empower us to forgive the woulds inflicted by others.
+ - The dominant characteristic of an authentic spiritual life is the gratitude that flows from trust.
+ - When being is divorced from doing, pious thoughts become an adequate substitute for washing dirty feet.
+ - The spirituality of wonder knows the world is charged with grace, that while sin and war, disease and death are terribly real, God’s loving presence and power in our midst are even more real.
+ - Troubadours have always been more important and influential than theologians and bishops.
+ - What makes a genius? The ability to see. To see what? The butterfly in a caterpillar, the eagle in an egg, the saint in a selfish person, life in death, unity in separation, God in the human and human in God and suffering as the form in which the incomprehensibility of God himself appears.
+ - False gods – the gods of human understanding – despise sinners, but the Father of Jesus loves all, no matter what they do. But of course this is almost too incredible for us to accept.
+ - The way you are with others every day, regardless of their status, is the true test of faith.
+ - Childlike in faith means the daily acknowledgment of utter dependence and that I owe my life and being to another.
+ - Without fear I can acknowledge that the authentic Christian tension is not between life and death, but between life and life.
+ - When absolute control and rigid obedience pose as love within the family and the local faith-community, we produce trained cowards rather than Christian persons.
+ - Too many Christians are living in a house of fear and not in the house of love.
+ - No man can adequately reach and explain a single word of God with all his words.
+ - Shame – what happened when my mother, the dragon, huffed and puffed and blew my self down.
+ - The Word we study has to be the Word we pray.
+ - I you think you’ve done it, then you’re wrong. Because you’re not finished until you have achieved everything that you never thought you could.
+ - Whatever we have done in the past, be it good or evil, great or small, is irrelevant to our stance before God today. It is only NOW that we are in the presence of God.
+ - At Sunday worship, as in every dimension of our existence, many of us pretend to believe we are sinners. Consequently, all we can do is pretend we have been forgiven. As a result, our whole spiritual life is pseudo-repentance and pseudo-bliss.
+ - By and large, the gospel of grace is neither proclaimed, understood, nor lived.
+ - Silent solitude makes true speech possible and personal. If I am not in touch with my own belovedness, then I cannot touch the sacredness of others. If I am estranged from myself, I am likewise a stranger to others.
+ - When our inner child is not nurtured and nourished, our minds gradually close to new ideas, unprofitable commitments and the surprises of the Spirit.
+ - On the last day, Jesus will look us over not for medals, diplomas, or honors, but for scars.
+ - When we wallow in guilt, remorse, and shame over real or imagined sins of the past, we are disdaining God’s gift of grace.
+ - Stop comparing or boast at your victories. He was referring to enormous vitality and strength of God of Jesus seeking union with us. The living acts of a Christian become somehow the acts of Christ.
+ - In my experience, self-hatred is the dominant malaise crippling Christians and stifling their growth in the Holy Spirit.
+ - Jesus reveals a God who does not demand but who gives; who does not oppress but who raises up; who does not wound but who heals; who does not condemn but forgives.
+ - Don’t try to understand it. You won’t succeed. Don’t try to see it. You can’t. Try to live it, and you will be living out of the center.
+ - The life of Jesus suggests that to be like Abba is to show compassion.
+ - Childlike surrender and trust, I believe, is the defining spirit of authentic discipleship.
+ - God is a kooky God who can scarcely bear to be without us.
+ - Tragedy is that our attention centers on what people are not, rather than on what they are and who they might become.
+ - Reality, truth, and Jesus Christ are incredibly open-ended.
+ - We are enveloped in peace, whether or not we feel ourselves to be at peace. By that I mean the peace that passes understanding is not a subjective sensation of peace; if we are in Christ, we are in peace even when we feel no peace.
+ - It is for the inconsistent, unsteady disciples whose cheese is falling off their cracker.
+ - One of my realizations in such an earthy atmosphere was that many of the burning theological issues in the church were neither burning nor theological.
+ - There is the “you” that people see and then there is the “rest of you”. Take some time and craft a picture of the “rest of you.” This could be a drawing, in words, even a song. Just remember that the chances are good it will be full of paradox and contradictions.
+ - The trouble with our ideals is that if we live up to all of them, we become impossible to live with.
+ - What makes the Kingdom come is heartfelt compassion: a way of tenderness that knows no frontiers, no labels, no compartmentalizing, and no sectarian divisions.
+ - We have been given God in our souls and Christ in our flesh. We have the power to believe where others deny, to hope where others despair, to love where others hurt.
+ - Put bluntly, the American church today accepts grace in theory but denies it in practice. We say we believe that the fundamental structure of reality is grace, not works – but our lives refute our faith.
+ - The loss of transcendence has left in its wake the flotsam of distrustful, cynical Christians, angry at a capricious God, and the jetsam of smug bibilolatrists who claim to know precisely what God is thinking and exactly what he plans to do.
+ - Jesus was victorious not because he never flinched, talked back, or questioned, but having flinched, talked back, and questioned, he remained faithful.
+ - There is an extraordinary power in storytelling that stirs the imagination and makes an indelible impression on the mind.
+
+129 quotes

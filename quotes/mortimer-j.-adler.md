@@ -1,0 +1,59 @@
+ - True freedom is impossible without a mind made free by discipline.
+ - The person who says he knows what he thinks but cannot express it usually does not know what he thinks.
+ - All genuine learning is active, not passive.
+ - Reading is a basic tool in the living of a good life.
+ - In the case of good books, the point is not to see how many of them you can get through, but rather how many can get through to you.
+ - All genuine learning is active, not passive. It involves the use of the mind, not just the memory. It is a process of discovery, in which the student is the main agent, not the teacher.
+ - The great authors were great readers, and one way to understand them is to read the books they read.
+ - To agree without understanding is inane. To disagree without understanding is impudent.
+ - All books will become light in proportion as you find light in them.
+ - Philosophy is everybody’s business.
+ - Ultimately, we wish the joy of perfect union with the person we love.
+ - If you never ask yourself any questions about the meaning of a passage, you cannot expect the book to give you any insight you do not already possess.
+ - The ultimate end of education is happiness or a good human life, a life enriched by the possession of every kind of good, by the enjoyment of every type of satisfaction.
+ - The truly great books are the few books that are over everybody’s head all of the time.
+ - Ultimately there can be no disagreement between history, science, philosophy, and theology. Where there is disagreement, there is either ignorance or error.
+ - Love can be unselfish, in the sense of being benevolent and generous, without being selfless.
+ - One reader is better than another in proportion as he is able of a greater range of activity in reading and exerts more effort.
+ - Erotic or sexual love can truly be love if it is not selfishly sexual or lustful.
+ - The materialist assumption that spiritual substances do not exist is as much an act of faith as the religious belief in the reality of angels.
+ - My chief reason for choosing Christianity was because the mysteries were incomprehensible. What’s the point of revelation if we could figure it out ourselves? If it were wholly comprehensible, then it would just be another philosophy.
+ - More consequences for thought and action follow the affirmation or denial of God than from answering any other basic question.
+ - Education is the sum total of one’s experience, and the purpose of higher education is to widen our experiences beyond the circumscribed existence or our own daily lives.
+ - Political democracy cannot flourish under all economic conditions. Democracy requires an economic system which supports the political ideals of liberty and equality for all. Men cannot exercise freedom in the political sphere when they are deprived of it in the economic sphere.
+ - Freud’s view is that all love is sexual in its origin or its basis. Even those loves which do not appear to be sexual or erotic have a sexual root or core. They are all sublimations of the sexual instinct.
+ - Wonder is the beginning of wisdom in learning from books as well as from nature.
+ - The ability to retain a child’s view of the world with at the same time a mature understanding of what it means to retain it, is extremely rare – and a person who has these qualities is likely to be able to contribute something really important to our thinking.
+ - It is love rather than sexual lust or unbridled sexuality if, in addition to the need or want involved, there is also some impulse to give pleasure to the persons thus loved and not merely to use them for our own selfish pleasure.
+ - You have to allow a certain amount of time in which you are doing nothing in order to have things occur to you, to let your mind think.
+ - Work that is pure toil, done solely for the sake of the money it earns, is also sheer drudgery because it is stultifying rather than self improving.
+ - Unless we love and are loved, each of us is alone, each of us is deeply lonely.
+ - Too many facts are often as much of an obstacle to understanding as too few. There is a sense in which we moderns are inundated with facts to the detriment of understanding.
+ - First, an angel is spiritually present at whatever place in physical space happens to be occupied by the body on which it acts. It can be present at that place without leaving Heaven which is its spiritual residence...
+ - Habits are formed by the repetition of particular acts. They are strengthened by an increase in the number of repeated acts. Habits are also weakened or broken, and contrary habits are formed by the repetition of contrary acts.
+ - Teachers may think they are stuffing minds, but all they are ever affecting is the memory. Nothing can ever be forced into anyone’s mind except by brainwashing, which is the very opposite of genuine teaching.
+ - The philosopher ought never to try to avoid the duty of making up his mind.
+ - If your friend wishes to read your ‘Plutarch’s Lives,’ ‘Shakespeare,’ or ‘The Federalist Papers,’ tell him gently but firmly, to buy a copy. You will lend him your car or your coat – but your books are as much a part of you as your head or your heart.
+ - The teacher’s role in discussion is to keep it going along fruitful lines – be moderating, guiding, correcting and arguing like one more students.
+ - There are genuine mysteries in the world that mark the limits of human knowing and thinking. Wisdom is fortified, not destroyed, by understanding its limitations. Ignorance does not make a fool as surely as self-deception.
+ - Angels are able to know and understand better than the human intellect can, precisely because such knowledge and understanding comes to them by way of ideas infused in them by God...
+ - The love which moves the world, according to common Christian belief, is God’s love and the love of God.
+ - Imaginative literature primarily pleases rather than teaches. It is much easier to be pleased than taught, but much harder to know why one is pleased. Beauty is harder to analyze than truth.
+ - The dictionary also invites a playful reading. It challenges anyone to sit down with it in an idle moment. There are worse ways to kill time.
+ - I suspect that most of the individuals who have religious faith are content with blind faith.
+ - The tragedy of being both rational and animal seems to consist in having to choose between duty and desire rather than in making any particular choice.
+ - One of the aims of sexual union is procreation – the creation by reproduction of an image of itself, of the union.
+ - The complexities of adult life get in the way of the truth.
+ - If one wants another only for some self-satisfaction, usually in the form of sensual pleasure, that wrong desire takes the form of lust rather than love.
+ - Theories of love are found in the works of scientists, philosophers, and theologians.
+ - A lecture has been well described as the process whereby the notes of the teacher become the notes of the student without passing through the mind of either.
+ - Sometimes it feels like I’m thinking against the wind.
+ - Love wishes to perpetuate itself. Love wishes for immortality.
+ - There is no more irritating fellow than the man who tries to settle an argument about communism, or justice, or liberty, by quoting from Webster.
+ - I wonder if most people ever ask themselves why love is connected with reproduction. And if they do ask themselves about this, I wonder what answer they give.
+ - Only hidden and undetected oratory is really insidious. What reaches the heart without going through the mind is likely to bounce back and put the mind out of business.
+ - Books are absent teachers.
+ - Friendship is a very taxing and arduous form of leisure activity.
+ - Is it too much to expect from the schools that they train their students not only to interpret but to criticize; that is, to discriminate what is sound from error and falsehood, to suspend judgement if they are not convinced, or to judge with reason if they agree or disagree?
+
+57 quotes

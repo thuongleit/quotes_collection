@@ -1,0 +1,120 @@
+ - Life is a fashion show, the world is your runway.
+ - Let’s do what we love and do a lot of it.
+ - To me, clothing is a form of self-expression – there are hints about who you are in what you wear.
+ - To me, beauty and makeup and color is like the finishing touch on everything.
+ - I like people who have a sense of individuality. I love expression and anything awkward and imperfect, because that’s natural and that’s real.
+ - The Louis Vuitton woman is more about a quality – a quality within some women that needs to come forward, to be noticed and recognised.
+ - I’m not good at hiding my feelings. I’m also not good at lying. I’m very open about everything.
+ - Makeup is the finishing touch, the final accessory.
+ - Marc Jacobs is full of creative people and Louis Vuitton is again a name on the door, a name that has existed for many years but I’m a collaborator there and I bring in other people, other artists and I work with a great creative design team.
+ - Change is a great and horrible thing, and people love it or hate it at the same time. Without change, however, you just don’t move.
+ - To be useful to others and to be useful to myself is definitely a better place to be.
+ - Clothes mean nothing until someone lives in them.
+ - A sellout is putting your name on any piece of crap and then expecting people to buy it because it’s got your name on it. That’s what a sellout is to me.
+ - I used to buy good shoes, now I buy good bags. They make me feel more confident.
+ - I always find beauty in things that are odd and imperfect – they are much more interesting.
+ - There is never a wrong time for a polka dot.
+ - I like the sort of ‘nothingness’ of the jeans and the T-shirt. I feel that’s about as close as I can get to the future because it seems like something so old that will always be, so I feel it’s a safe bet for the future.
+ - Sometimes, you just have to clear your head and get out to see other things. It is very important to be nourished. I love to go to museums and galleries, I like to see theatre, film, dance – anything creative. It doesn’t promise you inspiration, but it nourishes your creative soul, and that’s good.
+ - I envy the people who go to Paris the first time.
+ - I find people sexy, and I find personalities fascinating and sexy and appealing and charming. So a sexy girl wrapped in a sheet is a sexy girl, and an un-sexy girl in a low-cut dress is still an un-sexy girl.
+ - I’m useless at staring at a piece of white paper. But if you put a piece of white paper with a black line on it in front of me, I’ll say no that black line should be red and it should go this way or that way.
+ - Grunge is a hippied romantic version of punk.
+ - I never cared about buying things for myself, like clothes. And then all of a sudden I realized how great it is to be very precise about the shirts that I wear and all the things that are a part of my closet. So the ritual of fashion and shopping became very personal to me.
+ - Staring up at the sky on a bright, sunny day makes me dream and gives me ideas.
+ - I empathize with women in their high heels so I’ll be there in my kilt and T-shirt and I’ll walk around all day just to prove that if I can wear the shoes for 36 hours then certainly our customer can wear them.
+ - Even mistakes can get you one step further.
+ - I love my life. I can’t believe I work in New York and Paris. That I work for Louis Vuitton. That I work for Marc Jacobs. It seems really weird every time I say my full name – like, that’s me, and every time I hear the receptionist say my name, it’s still weird.
+ - It’s sometimes said that I’m rebellious and I do things to push people’s buttons, but I just like the challenge.
+ - I still appreciate individuality. Style is much more interesting than fashion, really.
+ - I don’t want to sound too silly or pretentious about this, but, you know, I love being in Paris. I love working at Louis Vuitton. I love fashion. That’s why I do it. No one’s forcing me to do this. And nobody forces anyone to buy it. It’s a real love affair.
+ - But the customer is the final, final filter. What survives the whole process is what people wear. I’m not interested in making clothes that end up in some dusty museum.
+ - I remember walking the dog one day, I saw a car full of teenage girls, and one of them rolled down the window and yelled, ‘Marc Jacobs!’ in a French accent.
+ - I think scent is sensual. I guess evoking a mood or a spirit is key, and I think with the women’s fragrances we have evoked different types, moods or sensibilities of a woman – whether it’s Daisy with the sweetness and the innocence or Lola which is more provocative, sexy and sultry.
+ - Any opportunity to adorn oneself is human, and accessories are an easy way to do it.
+ - But I’m blessed to work with great people. I collaborate with brilliant stylists both here and in Paris. I work with a great design team. I really allow everyone to bring their ideas. I almost rely on them to inspire me.
+ - I don’t believe in fashion dictatorship, and I find that anybody who follows the dictates of fashion is a bit lost. I’m excited by style, not so much by fashion.
+ - Innovation is an evolutionary process, so it’s not necessary to be radical all the time.
+ - Fashion isn’t a necessity. It pulls at your heart. It’s a whim. You don’t need it. You want it.
+ - I’d like to believe that the women who wear my clothes are not dressing for other people, that they’re wearing what they like and what suits them. It’s not a status thing.
+ - My mind absorbs things in a funny way. I’m on planes quite a bit and I always take stacks and stacks of magazines and I go through them and tear pages out and fold them up, and they get stuck at the bottom of my backpack or whatever.
+ - Yes, I always remember my dad’s, mom’s and my grandma’s perfumes.
+ - I have a lot of tattoos. My first tattoo I had when I was a teenager was just a little heart. I am very friendly with a great artist, Scott Campbell, and I started going to him to get tattoos. I’m very spontaneous about what I get.
+ - I think there is something about luxury – it’s not something people need, but it’s what they want. It really pulls at their heart.
+ - What’s worked for me is not quitting and being passionate about what I do and not giving up – and when I don’t believe in myself, turning to others who believe in me.
+ - It’s quite nice to see that I didn’t have to change who I was to reach two very different types of people.
+ - I wouldn’t know how to find eBay on the computer if my life depended on it.
+ - Luxury is about pleasing yourself, not dressing for other people.
+ - I think of many people and no one as a muse. I love the way Sofia looks always, and I love the way Kim looks always. Fashion may be part of their world, but it’s not their whole life. It’s not everything.
+ - I always wanted to be a fashion designer so I just have to remember that as long as I’m doing it I’m living the dream.
+ - There is a small world of people who are very interested in contemporary art and a slightly bigger world of people who look at contemporary art. But then there is a much larger world that doesn’t realise how influential art is on things that they actually look at.
+ - You can never please everyone, and I think it’s best not to.
+ - I think beauty is youth; it’s energy. I’m attracted to imperfection, style, confidence, and experimentation. So beauty, to me, is really a lot of things. It’s kind of unexpected-what surprises you.
+ - I’d like to be invisible. To be anonymous and see things for what they really are. The truth may be painful but it’s probably useful!
+ - When you design a dress you ask yourself, would woman like it or no. It’s much more of a creative process, not a research or trying to make somethings that sells or appeals. I hope that it will appeal to somebody, but it isn’t what drives me.
+ - I love to design for women, it’s really open and very free. I always think of my friends. I think of both fictitious characters, real people from the past and the present. I am not a woman, but I find women so beautiful and so fascinating.
+ - I like spending time at home. In Paris, people drop by and have a bite to eat, or they drop by and watch Friends on TV. I take my dog to the office there, and I walk to work sometimes.
+ - For so many years, I felt so insecure, so inferior, and I still have those moments, but I have a newfound confidence since I got in shape and changed my diet.
+ - Sofia is so active, and she made The Virgin Suicides, which I thought was great – all these things are inspiring to me, not in terms of creating a particular dress, but just in terms of knowing that there is this type of woman out there.
+ - I’m a designer. I make clothes and bags and shoes. I have a job that involves making creative choices, but I’m not a divinely inspired human being like an artist!
+ - Sometimes there are two very opposite directions, and we go with the stronger one at the end. It’s an impulse thing, like, ‘Oh, I love both so much, but it’s got to be one or the other because the two don’t work together.’
+ - I don’t throw cell phones. I don’t hurt people, I only hurt myself.
+ - I love the gym, but I still want to look a bit awkward at it. I don’t want to look too on top of it, you know?
+ - I don’t find clothes sexy at all. I find people sexy.
+ - We don’t need fashion to survive, we just desire it so much.
+ - I don’t know the history of art, but I got over intimidation from the art world when I realized that I was allowed to feel whatever I want and like whatever I want.
+ - Fashion is just something money can buy. People who are stylish are free and have no fear in staying true to themselves. Plus, style is infinitely more interesting.
+ - I think journalists have the right to their opinions but I think their opinions should be based on history and what they see, not what they feel, how long they’ve been waiting or whether it’s raining or it’s snowing or whatever.
+ - I always find it kind of embarrassing, kind of funny, and kind of exciting. In New York I’m recognized a lot, although nobody says anything. You know, they stare at you just a second too long. But in Paris it’s not as commonplace to be recognized.
+ - I love to take things that are everyday and comforting and make them into the most luxurious things in the world.
+ - My grandmother was amazing. She completely believed in me and was very encouraging. She would go to the supermarket or the butcher or wherever and tell people, ‘My grandson is going to be the next Calvin Klein.’
+ - I always say I lived my life with my grandmother. She was emotionally stable, and she was very encouraging to me.
+ - I don’t see myself as being as big of an influence as other people seem to think.
+ - I guess when I look over my shoulder at other designers, I feel like people are so definitive. It’s so clear to me what their aesthetic is, what they’re projecting. And I look at my own work and I think, Who could ever decipher what the hell is going on?
+ - I don’t think, ‘Gee, I’d like to dress this person.’ There was a picture in Us magazine. It was a jersey dress, and Courtney Love was wearing it. I have this thing about Courtney Love, this funny worship.
+ - I like characters. I like spirited characters whether they exist in fiction or real life. Whether they’re the invention of artistic people or directors, musicians. I think music and art and fashion designers inspire me and I like characters.
+ - Without any kind of real ego on my part, I just thought, I’m going to approach the people I admire and see if they want to do something together.
+ - I am a perfect being in a perfect world.
+ - I go to the gym every morning for a couple of hours, then I come to work, whatever is on the plate for the day, I do it. I don’t ask many questions, I go where I am told to.
+ - The thing I most love and hate about fashion is that it changes all the time. But I don’t think I or anyone else can singlehandedly get rid of hooker style. Popular taste isn’t great by definition. It’s just popular.
+ - Design is a series of creative choices – it’s a collaborative effort, an evolutionary process. You choose your fabrics depending upon what you want to say, then you work with mills to get those fabrics. Through the process, you realize what you want it to be.
+ - The red carpet doesn’t interest me. I think people become all the same; it’s like everyone posing from the three-quarter angle in some low-cut, fitted dress; it’s all the same.
+ - I’m not a model, so the idea of modelling a suit or clothes is weird in itself.
+ - Fashion is such a fairytale and it is such a fantasy. And it’s about metamorphosis and sort of changing yourself and playing a part that you want people to see.
+ - That was a time when I did love music, I couldn’t get enough of what was going on. Maybe it was Nirvana that brought me back. I guess it was a comfort because something that sounded so right – and non-commercial – had become so influential, so immediately.
+ - As far back as I can remember, I had an interest in fashion. I used to go to sleepaway camp, and they’d provide a list of things that you had to bring, and I always wanted to be a bit more creative than the list allowed. Like, if they required chinos, I wanted to hand-paint them.
+ - The best dresses are like t-shirts – you just put them on and forget about them.
+ - You don’t have the same reaction to a girl walking around the street today in a nightgown and a vintage coat and sneakers, that you did six years ago.
+ - Both my partner and I did not get into cooking so that we could wear ugly chef’s coats and stuff. We dress sexy in the kitchen.
+ - I always say that I’m not the director, I’m part of the team.
+ - I do think that in order for a company to be interesting to the investment community, there needs to be a plan; there needs to be a bigger retail footprint. There needs to be this idea – DNA, lifestyle, words I hate.
+ - Art critics are like every other critic.
+ - One thing that is exciting about fashion is the surprise element. People don’t know what they want. They just know when they see it.
+ - We live in a world where people are really hungry for information, and they’re not hungry for information on subjects that they’re not interested in.
+ - Awkwardness gives me great comfort.
+ - I really do believe that art changes the landscape of the world.
+ - I believe that anything can be for men or women. I mean, I’ve worn a lace dress before!
+ - I think when I started to get in shape and spend time at the gym, I could be better to other people and be better to myself and get back to loving fashion and experience it myself. I started to wear kilts and lace dresses.
+ - The attention toward me is basically because of what we’ve built as a company. If we built a pile of crap then nobody would care what I ate for lunch.
+ - I like to make things. I like making choices, choosing colours, evoking a spirit, a change.
+ - I think it’s an old fashioned notion that fashion needs to be exclusive to be fashionable.
+ - But in another, I think a woman’s going to go into a shop to find a coat or a jacket and I just don’t think she’s not going to go into a shop because of a bad review she probably didn’t even read.
+ - Part of the talent of any company is to surround yourself with people who have good spirit and help you do more and more things.
+ - I said, ‘Okay, it’s the year 2000, I’m getting a computer and a Palm Pilot.’ I know how to check my e-mail, and I’ve listed some phone numbers on it. Half the time the battery has gone out so I can’t use it.
+ - I am Marc Jacobs by birth, but we are Marc Jacobs by the company that we built.
+ - Awkwardness gives me great comfort. I’ve never been cool, but I’ve felt cool. I’ve been in the cool place, but I wasn’t really cool – I was trying to pass for hip or cool. It’s the awkwardness that’s nice.
+ - It’s the things that aren’t accepted as conventionally beautiful that I find more attractive.
+ - I have no problem going on record with this and probably have gone on record with this before, there aren’t that many people who I respect. There just aren’t.
+ - I value very much the time before the show, when there is nothing else but to concentrate on the show, and it’s just purely design.
+ - We’re developing things, but I don’t know what we’ll go with for the show, so I don’t like to talk about it.
+ - Sometimes I miss hamburgers, I should say that. I miss the tuna pizzas at Mercer Kitchen.
+ - I’m someone who came to Paris as a teenager, and I dreamed of coming back to Paris as a visitor. I never dreamed of having a job at the biggest luxury house in Paris and, you know, 15 odd years later, I’m still here.
+ - Happy, happy fashion. There is not much more to it than that.
+ - Sephora’s business is really smart and clever – I’m all for anything that gets people up and out and into the social experience of shopping.
+ - I’ve learned a lot about doing accessories and making shoes and handbags. I don’t think my perspective has really changed. The subtlety of understanding yarns, what makes a fabric what it is – I’ve learned technical skills and more about the craft.
+ - I go through phases where I buy only Speed Stick and Axe, and Noxzema shaving cream.
+ - Basically, I’m in a kilt and a white shirt every day. So, you know, I don’t have a lot of scope, and I’m really picky about what I wear. Even if it’s weird, it’s very particular to me. And you can’t make a business out of what I would wear. We’d be out of business.
+ - I am really glad to be working at the profession that I love.
+ - Sephora is a mecca for cosmetics, and it supports what I enjoy: You go into the store, and touch it, and try it, and love it. I’ve never bought anything on the Internet. I like experience.
+
+118 quotes

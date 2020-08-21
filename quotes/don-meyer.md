@@ -1,0 +1,87 @@
+ - Proper prior planning prevents pitiful poor performance.
+ - Shout praise and whisper criticism.
+ - It doesn’t cost nothing to be nice to people.
+ - We can always do it better.
+ - The key to success is to do the next right thing right.
+ - To be a team, you must be a family.
+ - When you watch the game, be a student of the game.
+ - To those who much has been given, much is expected.
+ - Shared suffering makes a team a team.
+ - Complacency is the forerunner of mediocrity. You can never work too hard on attitudes, effort and technique.
+ - I have learned that peace is not the absence of trial, trouble, or torment but the presence of calm in the midst of them.
+ - To win it all, winners have to be obsessive about the fundamentals and doing the little things right.
+ - There’s only one thing we can control, and that is how hard we play.
+ - Time doesn’t fly when you are not happy.
+ - Every day you teach attitude.
+ - Go from good to great because good is the enemy of great.
+ - Successful programs consist of people working hard, working together, while never worrying about who gets the credit.
+ - Habits are critical for players. They cannot think and play well at the same time.
+ - Administrators are like pigs; don’t wrestle with a pig because you both get dirty and the pig likes it.
+ - It is foolish to expect a young man to follow your advice and to ignore your example.
+ - It doesn’t matter where you coach, it matters why you coach.
+ - If you can do something and not blow your own horn, it sure sounds a lot better.
+ - Plays are not as important as players, and players are not as important as teammates.
+ - What you accept in victory, you must accept in defeat.
+ - We always need to be prepared and work hard in practice so we can be just like the farmer who has put that fourth cutting of hay in the barn. After he does that, he can feel good about what is going to happen the rest of the winter.
+ - Have character, don’t be one.
+ - You can pick captains, but you can’t pick leaders. Whoever controls the locker room controls the team.
+ - Ten minutes after you lose that last game, you start working on next season.
+ - Discover your gift, develop your gift and then give it away every day.
+ - A coach who is not teaching leads to the worst thing in a program – players not learning.
+ - We have to get a lot tougher. If you get involved in a street fight, you can’t lay down in the street and act like you’re dead because they will kill you for sure. You might as well get up and fight.
+ - Anytime you get an award as a coach, you’ve got to be the ultimate fool to think it wasn’t your assistant coaches and all the players responsible for the award.
+ - The team is an extension of the coach.
+ - You aren’t going to win championships unless you make layups and free throws.
+ - Positioning, anticipation and technique create quickness. Therefore, you can always get quicker.
+ - Discipline and demand without being demeaning.
+ - The ability to rebound is in inverse proportion to the distance your house is from the nearest railroad tracks.
+ - Shared suffering: one guy messes up and everyone runs. One guy does well and everyone benefits.
+ - If you want to thank me, go do something for somebody else.
+ - Tough minded enough to do the necessary things – this is the epitome of what a team is.
+ - Make the practices like games and the games like practices.
+ - We have 2,500 students and an 8,000-seat basketball arena. You do the math on how important basketball is in Aberdeen.
+ - Parents would rather have their son get all-state than his team win the state championship.
+ - Recognize and reward players who put the team first, not just the gifted ones.
+ - Let your players know that you love them.
+ - Simplify the game as much as possible. When you add, you must subtract.
+ - The worst day coaching is better than the best day doing anything else.
+ - We sure didn’t play great, but we played hard. And I can live with that.
+ - The only thing success should do is make you more humble.
+ - If a farmer and his family can get up at 5:30 every morning to milk cows, surly we can get up at that time to practice basketball.
+ - Quickness more than anything else should determine your amount of pressure on the ball.
+ - You never realize the value of coaching until your children play for a coach.
+ - We had 10 turnovers tonight. Each one gets worse as you go. It is like prior arrests: the 10th one may not have been that bad, but when you have had nine prior ones, it looks pretty bad.
+ - Players who are late say that their time is more important than the team.
+ - When you get to be my age, you don’t buy green bananas because you may not be around to eat them.
+ - Defense involves three things: courage, energy, intelligence.
+ - Be what ya is, ’cause if ya be what you ain’t, ya ain’t what ya is.
+ - Your program must have an overriding purpose which is clearly visible and which teaches lessons beyond winning.
+ - Study people who can teach you how to deal with people.
+ - Coach like the coach you want to be ten years from now.
+ - When I go in for heart surgery, I want a full-time surgeon. I don’t want some guy who just does it part-time between rounds of golf. You want a guy who is doing it all the time and is always reading and learning about the most recent techniques.
+ - If you are a good team, your offense is born on the defensive end.
+ - In practice, don’t just run basketball drills, teach the players how to play basketball.
+ - Winning a postseason game is like winning five regular season games. There is just no feeling like it. Everything is magnified. Every free throw, turnover, shot and play.
+ - There is a lot of difference at McDonald’s between the guy in the back making the fries and the manager up front who is running the place.
+ - It is not what you teach, but what you emphasize.
+ - Players must do what you want them to do in pressure situations.
+ - As a coach, you’re just trying to figure out how to keep a team on edge. You’ve got to find that edge.
+ - You have to learn to play with what you’ve got.
+ - In the end, what your own troops do is more important than who they are marching against.
+ - You build your program from the ideas of great coaches.
+ - Don’t be in a hurry to change during the season.
+ - Nobody travels better than Northern State fans and nobody knows the game better than Northern State fans. If I’d die and went to heaven and I was coaching, it would be at Wachs Arena.
+ - When the legs go, the heart and the head follow quickly behind.
+ - Only run special plays for special players; find plays that fit your players.
+ - If I cover my head with my hands, it means deny the ball to the opponent’s ball handler.
+ - If it comes down to you or the program that decision was made long ago.
+ - Successful basketball coaches are those that subscribe to a system that is based on sound fundamental teachings.
+ - We painted a beautiful picture, but we just didn’t finish it. Finishing is the difference between a beautiful picture and a masterpiece.
+ - If you have to ‘try hard’ to ’try hard, you are already beaten.
+ - Sometimes the best recruits are the ones you don’t get.
+ - You have to clean out the pig barn every week because you know your pigs are in there doing their jobs every day.
+ - Put your two best players away from the ball and bring it back to them.
+ - Can your player make a curl cut and score in the lane? If so, he is the cutter.
+ - Good shooters take the shots; best shooters take most of the shots.
+
+85 quotes

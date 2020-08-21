@@ -1,0 +1,36 @@
+ - Remember this: For all the ugliness in the world there is far more beauty. For all the cruelty there is far more kindness. And remember one more thing: Those who remind you of this simple fact-keep them close.
+ - Better a broken heart than a hardened one.
+ - I am very grateful for the opportunities I have been afforded.
+ - We don’t want to bury our heads in the sand about serious issues.
+ - Muslims are the primary victims of ISIS. Muslims are the ones who want to do the most to defeat this ideology. It’s important that we don’t do their propaganda for them, by giving them the legitimacy that they crave.
+ - We build buildings based on the false assumption that women go to mosques half as much as they actually do. In fact, the US is the only country in the world where women and men report that they attend the mosque in equal numbers, but our institutions aren’t representing this reality.
+ - People are so complex and multidimensional that raising someone to ‘hero’ status is too great a simplification.
+ - How women view religion’s role in society is shaped more by their own country’s culture and context than one monolithic view that religion is simply bad for women.
+ - We have to be concerned about the gun killing that people who are Americans, who are Irish, and who are English, who are all around the country.
+ - I don’t say anything wacky about women. I have more respect for women than anybody would understand and I’m going to give people jobs and I’m going to protect people.
+ - I’m hearing here that this Muslim movement, well, for women, is what we have to focus on. And women have been doing, I think, the right thing. Having the conversations, talking to people about that.
+ - Everything I have experienced in my life helps form who I am today, and I would not change or forget any of it.
+ - Human development, not secularization, is what’s key to women’s empowerment in the transforming Middle East.
+ - Muslims have a right to every other people, like everybody, to come to the United States.
+ - If you want to beat Donald Trump – then you need to be the candidate that is not the establishment in your thinking, in the way you’re presenting yourself.
+ - They’re still out there talking about gun control measures, as if somehow terrorists care about what our gun laws are.
+ - ISIS simply do not have ideological, theological, or popular support. And this is a criminal organization that is funding their criminality with things like drug trade and selling oil.
+ - I think the blood is spilling in Syria and it’s mostly Muslims.
+ - The establishment Republicans are beginning to say on the record what they had been whispering about in private for months: that Donald Trump at the top of the ticket could mean an electoral wipeout down the ballot.
+ - I have to say that I saw terrorists in 2002, went to Islamabad, Pakistan, and met women who were supporting this ideology. I call them the Taliban Ladies Auxiliary back then.
+ - Folks in the media ask at the behest of Democrats, “isn’t it insensitive for us to do a Second Amendment rally following this terror attack?” Let me tell you something. I really don’t view our job as being sensitive to Islamic terrorists.
+ - I think what speaks loudest and what speaks to your point is the blood that’s spilling from Australia, to now California. I mean, how much blood has to be spilled until we recognize inside of a Muslim community that with do have an ideological problem?
+ - As Donald Trump continues to dominate the 2016 field, the Republican establishment’s low-grade anxiety is becoming an all-out panic.
+ - I admire many people, but I am not sure that I have any ‘heroes.’
+ - If no one can do that, yeah, Donald Trump better man the lifeboats, because there’s some significant chance he’ll win the nomination.
+ - If you look at Paris, they didn’t have guns and they were slaughtered. If you look at what happened in California, they didn’t have guns, they were slaughtered. They could’ve protected themselves if they had guns.
+ - I hate this idea that we, as Americans, are going to say we’re going to have a sense at the border, someplace else, that – to figure out whether or not Muslims can come to the United States.
+ - I think the guy who gets the least chatter, given how high his chances are of winning the nomination, is Ted Cruz.
+ - I don’t think there’s any clever way for the establishment to take Donald Trump down. It’s very simple. Another candidate is going to have to find a way either to out-maneuver him, or to just frankly beat him in the argument.
+ - I’m not in the business of changing policies. I hope to inform, not form, decisions.
+ - What have we heard from Republican voters? They want somebody that’s new, they want somebody that’s fresh. They don’t want an establishment.
+ - I had actually, after the Paris attacks in this country, we all patted ourselves on the back and said, “Well, we have a much more assimilated Muslim population here than they do in Europe.”
+ - I think it’s important to understand that ISIS’s biggest enemy are ordinary Muslims. That’s why they’re fleeing.
+ - Like one of any minority, I have experienced prejudice.
+
+34 quotes

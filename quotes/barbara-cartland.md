@@ -1,0 +1,24 @@
+ - You become what you think. You are what you eat.
+ - A man will teach his wife what is needed to arouse his desires. And there is no reason for a woman to know any more than what her husband is prepared to teach her. If she gets married knowing far too much about what she wants and doesn’t want then she will be ready to find fault with her husband.
+ - A woman should say: ‘Have I made him happy? Is he satisfied? Does he love me more than he loved me before? Is he likely to go to bed with another woman?’ If he does, then it’s the wife’s fault because she is not trying to make him happy.
+ - When you get past fifty, you have to decide whether to keep your face or your figure. I kept my face.
+ - My heroines are always virgins. They never go to bed without a ring on their fingers; not until page 118 at least.
+ - A historical romance is the only kind of book where chastity really counts.
+ - I’ll keep going till my face falls off.
+ - Good must triumph over evil. It usually does in life and in any case it’s bad for young people to believe it doesn’t.
+ - A woman asking ‘Am I good? Am I satisfied?’ is extremely selfish. The less women fuss about themselves, the less they talk to other women, the more they try to please their husbands, the happier the marriage is going to be.
+ - I have always found women difficult. I don’t really understand them. To begin with, few women tell the truth.
+ - To sleep around is absolutely wrong for a woman; it’s degrading and it completely ruins her personality. Sooner or later it will destroy all that is feminine and beautiful and idealistic in her.
+ - People don’t roll around naked in my books. I do allow them to go to bed if they’re married, but it’s all very wonderful and the moon beams.
+ - Every woman dreams of love. When she is young she prays she will find it. When she is middle aged she hopes for it and when she is old she remembers it.
+ - Love is next to Godliness with certain safeguards.
+ - The reason why Englishmen are the best husbands in the world is because they want to be faithful. A Frenchman or an Italian will wake up in the morning and wonder what girl he will meet. An Englishman wakes up and wonders what the cricket score is.
+ - France is the only place where you can make love in the afternoon without people hammering on your door.
+ - As long as the plots keep arriving from outer space, I’ll go on with my virgins.
+ - I always wear boot polish on my eyelashes, because I am a very emotional person and it doesn’t run when I cry.
+ - The right diet directs sexual energy into the parts that matter.
+ - The great majority of people in England and America are modest, decent and pure-minded and the amount of virgins in the world today is stupendous.
+ - After forty a woman has to choose between losing her figure or her face. My advice is to keep your face, and stay sitting down.
+ - Every man has been brought up with the idea that decent women don’t pop in and out of bed; he has always been told by his mother that “nice girls don’t.” He finds, of course, when he gets older that this may be untrue-but only in a certain section of society.
+
+22 quotes

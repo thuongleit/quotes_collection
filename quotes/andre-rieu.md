@@ -1,0 +1,26 @@
+ - I was the black sheep of the family, and my mother never really understood me.
+ - Critics or musicians who attack me are jealous of my success and the fact that I make people feel so happy.
+ - I am travelling half the year around the world, every year, so coming home is one of the most beautiful things.
+ - I make music to touch the souls of people as it’s a language we all can speak.
+ - The waltz is a very important part of my life. It’s a very important way for me to express my positiveness, bringing humor to the world.
+ - Now, I’ve changed my life to make sure I work only on what I love.
+ - I know that when I like music, when it touches my heart, that it will touch your heart, too. That, I think, is the secret to my success.
+ - I was a fat child and loved cake, perhaps because it was the only sweet thing in my life.
+ - I believe that music in itself heals and that everything is about the power of the mind. I thought if you are happy, you don’t get ill. Your health is in your head. When you are satisfied with your work, you don’t get ill.
+ - I admire Johann Strauss a lot. I believe he was a genius of his time.
+ - Mozart composed his music not for the elite, but for everybody.
+ - I have two speeds, nothing and full pelt.
+ - When I’m not on tour, I love to have a long breakfast at home in my garden.
+ - I love reading but I never last very long because I fall asleep right away.
+ - We should make decisions in life with our hearts, not our brains, not only in music but in daily life.
+ - For me, I always like to get up bright and early.
+ - It is my personality alone that has brought back the waltz and made it a global craze.
+ - It is a real piece of art if you can make a waltz sound like it is the easiest piece of music to play, because it’s really not.
+ - I’m an un-healable positive optimist.
+ - I am a showman in the traditional sense, but modern, too. I like to use sets and lighting to create magic.
+ - I first picked up a violin aged five – I just assumed everyone played.
+ - The waltz can be sad and at the same time uplifting. You have to see life from both sides, and the waltz encapsulates that. If you’re in my audience you give yourself to me and the waltz will grab you.
+ - Contrary to popular opinion, classical music does not have to be enjoyed amid exclusive circles, there need not be any snobbishness attached to it. It’s there for everyone. I play for the people.
+ - The classical music world is so snobbish.
+
+24 quotes

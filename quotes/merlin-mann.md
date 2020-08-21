@@ -1,0 +1,40 @@
+ - I’m a project manager, not a magician. Magicians have way cooler hats.
+ - Priorities Are Like Arms; If You Think You Have More Than A Couple, You’re Either Lying Or Crazy.
+ - Feeling creative produces great work in approximately the same way that “feeling like a doctor” makes you a gifted thoracic surgeon.
+ - Although your time and attention are finite, the demands on your time and attention are infinite.
+ - The mindless junk of your past crowds out opportunities and sets pointless limitations. Move out the junk, and you create room for the rest of your life. Ultimately, it’s not just a question of tidying your house; it’s a question of liberating your heart.
+ - You got to be careful to not get too comfortable with incremental improvement. I think sometimes you just got to jump off a ledge.
+ - People either make things or they don’t. Inspiration is a poster.
+ - Creative work only seems like a magic trick to people who don’t understand that it’s ultimately still work.
+ - A lot of the best work I’ve ever done started out as something completely different because I gave myself permission to have space around my time and expectations.
+ - Don’t just play with your phone: go out and produce something.
+ - Everything takes more time than you thought, everything costs more money than you thought, and almost everything turns out not quite as cool as you expected.
+ - All self-help is Buddhism with a service mark.
+ - Workflow is understanding your job, understanding your tools, and then not thinking about it any more.
+ - A priority is observed, not manufactured or assigned. Otherwise, it’s necessarily not a priority.
+ - It’s just that it’s mind-boggling to me how many people I encounter every day who are struggling to subsist on a diet of bad advice about fake solutions to nonexistent problems.
+ - If you want to make a chili, you’re going to break some cows.
+ - When you die, no one’s going to remember what iPhone you had.
+ - Never let the guy with the broom decide how many elephants can be in the parade.
+ - People with tiny glasses and costly shoes can always find a couple of hours to explain how you did it all wrong.
+ - Typing in all lowercase is popular among young people, SMS users, and anyone who feels literacy has become too time-consuming.
+ - People will always despise you if you end up doing less stupid BS than they choose to suffer.
+ - Being consistent is WAY less interesting than being yourself. And if you’re not interesting? Good luck with your Big Consistency Project.
+ - Make the time to be scared of more interesting things.
+ - Distractions have never prevented a Writing Writer Who Writes from writing; distractions are an excuse proffered by Non-Writing Non-Writers Who are Not-Writing for why they are not writing.
+ - Stop. I’m not going to take any more input until I’ve made something with what I got.
+ - Come back, paragraphs. America needs you.
+ - Joining a Facebook group about creative productivity is like buying a chair about jogging.
+ - Go a little easier on yourself, and in so doing, be prepared to make and do things that might seem silly at first. Just keep moving: don’t ruminate and stare at the wall. Don’t just play with your phone: go out and produce something.
+ - Thinking can really be the enemy of action, and thinking can be the enemy of reality.
+ - If you need to appear on an internet list to know whether you’re someone’s friend, you may have problems a computer can’t solve.
+ - Everything you agree to do is other things you can’t do.
+ - Personally, it’s changed my game – it’s how I think now. Can’t imagine writing more than a paragraph in anything that doesn’t do MMD.
+ - Like tornadoes and cold sores, good work happens with total disregard to whether I’m ‘into it.’
+ - By my reckoning, I only need about 200 more takeout coffee cups to complete my bitterly ironic mosaic of Al Gore.
+ - I think all of the best nonfiction that has ever been made comes from the result of someone who can’t stop thinking about a certain topic – a very specific aspect of a certain topic in some cases. And second, they got really good at figuring out what they had to say about it.
+ - Where you allow your attention to go ultimately says more about you as a human being than anything that you put in your mission statement.
+ - My narrative is that I’ve never known what’s coming next-I still don’t. I fell down the right set of stairs and have been surrounded by people who have picked me up and said, “Let’s try this again.” It’s been one anxious block of uncertainty after another.
+ - Creative work, summarized: In the time you set aside each day to work your ass off, ignore anything that makes you consider stopping.
+
+38 quotes

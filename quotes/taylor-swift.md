@@ -1,0 +1,502 @@
+ - Just be yourself, there is no one better.
+ - Happiness and confidence are the prettiest things you can wear.
+ - People haven’t always been there for me but music always has.
+ - This is a new year. A new beginning. And things will change.
+ - If you're lucky enough to be different, never change.
+ - Never believe anyone who tells you that you don't deserve what you want.
+ - Giving up doesn't always mean your weak . Sometimes you're just strong enough to let go.
+ - If somebody hurts you, it's okay to cry a river. Just remember to build a bridge and get over it.
+ - No matter what happens in life, be good to people. Being good to people is a wonderful legacy to leave behind.
+ - Being fearless is having a lot of fears, but you jump anyway.
+ - I'm intimidated by the fear of being average.
+ - Don't ever regret being honest. Period.
+ - You have to write 100 songs before you write the first good one.
+ - I am smart unless I am really, really in love, and then I am ridiculously stupid.
+ - I think every girl's dream is to find a bad boy at the right time, when he wants to not be bad anymore.
+ - I think I fell in love with words before I fell in love with music.
+ - Life isn’t how to survive the storm, it’s about how to dance in the rain.
+ - I miss you more than the sun misses the sky at night.
+ - A letdown is worth a few songs. A heartbreak is worth a few albums.
+ - Every one of my regrets has produced a song I'm proud of. 
+ - If they don’t like you for being yourself, be yourself even more.
+ - If you're horrible to me, I'm going to write a song about it, and you won't like it. That's how I operate.
+ - Be that strong girl that everyone knew would make it through the worst, be that fearless girl, the one who would dare to do anything, be that independent girl who didn’t need a man; be that girl who never backed down.
+ - We should love, not fall in love, because everything that falls, gets broken.
+ - There's more to life than dating the boy on the football team.
+ - People are going to judge you anyway, so you might as well do what you want.
+ - I’m only me when I’m with you.
+ - People throw rocks at things that shine.
+ - It’s hard to fight when the fight ain’t fair.
+ - Don’t worry. You may think you’ll never get over it. But you also thought it would last forever.
+ - Being FEARLESS isn’t being 100% Not FEARFUL, it’s being terrified but you jump anyway...
+ - In life and love, you learn that there comes a time to let go and move on.
+ - Words can break someone into a million pieces, but they can also put them back together. I hope you use yours for good, because the only words you’ll regret more than the ones left unsaid are the ones you use to intentionally hurt someone.
+ - You can’t have a better tomorrow, if you keep thinking about yesterday.
+ - Sometimes the person you’d take a bullet for is the person behind the trigger.
+ - Here I was again tonight forcing laughter, faking smiles Same old tired, lonely place.
+ - I don’t think you should wait. I think you should speak now.
+ - I don’t know if you know who you are, until you lose who you are.
+ - Be the fearless girl that everyone knows would dare to do anything.
+ - The way you walk, way you talk, way you say my name; it’s beautiful, wonderful, don’t you ever change.
+ - Why leave when you can stay, why stay if you have to go.
+ - Anytime someone tells me that I can’t do something, I want to do it more.
+ - And I’m dying to know, is it killing you like it’s killing me? And the story of us looks a lot like a tragedy now.
+ - Keeping your emotions all locked up is something that’s unfair to you. When you clearly know how you feel. You should say it.
+ - There are two different categories of love. The first category is called a fairytale. The second category of love is called just another lesson.
+ - The lesson I’ve learned the most often in life is that you’re always going to know more in the future than you know now.
+ - Let go of people who bring you down, and surround yourself with those who bring out the best in you.
+ - Happiness can be reached by choice and how you look at life.
+ - I’ve found time can heal most anything and you just might find who you’re supposed to be.
+ - Just being a human being, I’ve realized that before every big problem you create for yourself, before every huge mess you have to clean up, there was a crucial moment where you could’ve just said no.
+ - And the haters gonna hate, hate, hate, hate, hate.
+ - To me, Fearless is not the absense of fear. It’s not being completely unafraid. To me, Fearless is having fears. Fearless is having doubts. Lots of them. To me, Fearless is living in spite of those things that scare you to death.
+ - It’s a love story, baby, just say, Yes.
+ - Now stand in the corner, and think about what you’ve done!
+ - I never want to change so much that people can’t recognize me.
+ - The term trying to forget someone is so awful because you’ll never forget someone if you’re trying to forget them.
+ - There is a time for silence. There is a time for waiting you turn. But if you know how you feel and you so clearly know what you need to say you’ll know it. I don’t think you should wait. I think you should speak now.
+ - Give me something that’ll haunt me when you’re not around...
+ - She can’t see the way your eyes will light up when you smile...
+ - I’ve apparently been the victim of growing up, which apparently happens to all of us at one point or another.
+ - So watch me strike a match on all my wasted time. As far as I’m concerned you’re just another picture to burn.
+ - I’m captivated by you, baby, like a firework show.
+ - I think it’s important that you know that I will never change. But I’ll never stay the same either.
+ - When you are missing someone, time seems to move slower, and when I’m falling in love with someone, time seems to be moving faster.
+ - Never forget the essence of your spark!
+ - Turns out freedom ain’t nothing but missing you...
+ - I’d like to be my old self again but I’m still trying to find it.
+ - You made a rebel of a careless man’s careful daughter. You are the best thing that’s ever been mine.
+ - You can write a book on how to ruin someone’s perfect day.
+ - You learn lessons. A lot of them the hard way.
+ - It’s alright, just wait and see, your string of lights is still bright to me. Who you are is not where you’ve been. You’re still an innocent. It’s okay life is a tough crowd, 32 is still growing up now.
+ - Sometimes bravery is as simple as following your gut.
+ - My ultimate goal is to end up being happy. Most of the time.
+ - In high school, I used to think it was like sooooo cool if a guy had an awesome car. Now none of that matters. These days I look for character and honesty and trust.
+ - At some point you have to forget about grudges because they only hurt.
+ - The world doesn’t owe you anything. You have to work for everything you get and you have to appreciate every bit of success the world gives you.
+ - I’m shining like fireworks over your sad, empty town.
+ - But you held your pride like you should’ve held me.
+ - Heartbreak is the national anthem. We sing it proudly.
+ - You’ll always know more in the future than you know now.
+ - Romeo save me, I’ve been feeling so alone. I keep waiting for you, but you never come. Is this in my head? I don’t know what to think.
+ - I’ve wanted one thing for me whole life and I’m not going to be that girl who wants one thing her whole life then gets it and complains.
+ - The only one who’s got enough of me to break my heart.
+ - You can’t be in love with a Google search.
+ - But no matter what love throws at you, you have to believe in it. You have ot believe in love stories and prince charmings and happily ever after. That’s why I write these songs. Because I think love is FEARLESS.
+ - To truly love is to have the courage to walk away and let the other person who wishes to be free go no matter how much it hurts.
+ - You can spend so much time wanting someone and they can have absolutely no idea.
+ - Music is my shining light, my favorite thing in the world. T get me to stop doing it for one second would be difficult!
+ - Bring on all the pretenders!
+ - Real love still happens sometimes. It’s not just something we make up when you’re nine. I have to believe that. You do too.
+ - My parents taught me never to judge others based on whom they love, what color their skin is, or their religion.
+ - Just because as human beings, what we can’t have is what we reply in our head over and over again before we go to sleep.
+ - I suffer from girlnextdooritis where the guy is friends with you and that’s it.
+ - I took a chance, I took a shot And you may think I’m bullet-proof, but I’m not. You took a swing, I took it hard. And down here from the ground I see who you are.
+ - If you can figure out how you’re feeling, then maybe you have a chance of getting over it.
+ - My attitude has always been if you get better and you see success, that should motivate you to even work harder, so that’s kinda how I approach everything.
+ - If something happens to me, you’re going to hear about it. I only know how to write songs about my life.
+ - I still love sparkles and grocery shopping and really old cats that are only nice to you half the time. I still love writing in my journal and wearing dresses all the time and staring at chandeliers.
+ - Cause for a moment a band of theives in ripped up jeans got to rule the world!
+ - Appreciate what you have while you have it.
+ - Band-Aids don’t fix bullet holes. You say sorry just for show. You live like that, you live with ghosts.
+ - We don’t need to share the same opinions as others, but we need to be respectful.
+ - Fearless is not the absence of fear. Fearless is living in spite of those things that scare you.
+ - At a certain point, if you chase two rabbits, you lose them both.
+ - Be yourself and the right people will love you.
+ - All I know since yesterday is everything has changed.
+ - We learned more from a 3 minute record than we ever learned in school.
+ - I’m a Sagittarius, and one of our major qualities is that we’re blindly optimistic.
+ - I’ve been my mom’s kitchen helper since I was a little kid.
+ - People say you don’t know what you’ve got till it’s gone, but the truth is you just never thought you’d ever lose it.
+ - You can never forget the people who were always there for you from the beginning.
+ - People put you down because you’re above them.
+ - Darling I’m a nightmare dressed like a daydream.
+ - Life is like walking you take one step at a time.
+ - Got a long list of ex-lovers, they’ll tell you I’m insane. But I got a blank space baby, and I’ll write your name.
+ - Everything will be alright if we just keep dancing like we’re 22...
+ - In life, you learn lessons. And sometimes you learn them the hard way. Sometimes you learn them too late.
+ - You can stay the same person you’ve always been even if everything around you changes.
+ - Don’t find love, let it find you. It’s called falling in love because you don’t force yourself to fall, you just do.
+ - I don’t think you should ever take life so serious that you forget to play.
+ - Your feelings so are important to write down, to capture, and to remember because today you’re heartbroken, but tomorrow you’ll be in love again.
+ - There are so many emotions that you’re feeling, you can get stifled by them if you’re feeling them all at once. What I try to do is take one moment – one simple, simple feeling – and expand it into three-and-a-half minutes.
+ - We’re in our twenties and we don’t know anything and it’s awesome.
+ - In the middle of the night When I’m in this dream It’s like a million little stars Spelling out your name.
+ - Love will find you when you least expect it.
+ - People don’t take you seriously if you scream, if you raise your voice, especially when you’re a 19-year-old girl.
+ - People have only two or three adjectives to describe people in the public eye. And that’s okay. As long as those adjectives aren’t train wreck, mess, terrible.
+ - I try to prepare for everything beyond the extent of preparation.
+ - I don’t think it’s the most important thing in life to fit it. I think it’s the most important thing in life to dance to the beat of your own drum and to look like you’re having more fun than the people who look cool like they fit in.
+ - I never expected anything to be given to me.
+ - Fixing your heartbreak by getting into another relationship is not the way to live your life – you need to live it on your terms for a while.
+ - I know that a Christmas tree farm in Pennsylvania is about the most random place for a country singer to come from, but I had an awesome childhood.
+ - I’m always going to be a hopeless romantic. Always.
+ - The past is the past. Don’t let it kill you.
+ - Letting go is fearless. Then, moving on and being alright, that’s fearless too.
+ - You can be obsessed with the bad things people say and the good things; either way, you’re obsessed with yourself, and I’m not – you can become unhinged so easily.
+ - Be yourself, chase your dreams, and just never say never. That’s the best advice I could ever give someone.
+ - I think the perfection of love is that it’s not perfect.
+ - You’ve got every right to a beautiful life.
+ - You have to stop looking in the mirror and realize that your living for yourself, not other people.
+ - Live your life like you are 80 years old looking back on your teenage years.
+ - People like you always want back the love they pushed aside. But people like me are gone forever when you say goodbye.
+ - Silence speaks so much louder than screaming tantrums. Never give anyone an excuse to say that you’re crazy.
+ - Money can’t buy you back the love that you had then.
+ - Other women who are killing it should motivate you, thrill you, challenge you and inspire you.
+ - Songs are my diaries; they always have been. You have to put your trust in everyone because putting down those real, personal details and thoughts that make a song authentic also opens you right up. I am constantly misunderstood; a lot of people just don’t get me.
+ - When I figured out how to work my grill, it was quite a moment. I discovered that summer is a completely different experience when you know how to grill.
+ - I don’t believe in endorsing a product that you don’t want to endorse.
+ - It took a while to understand the beauty of just letting go.
+ - No amount of vintage dresses gives you dignity.
+ - Believe in everything you do. Believe in your mistakes and grow from them.
+ - It’s possible to climb to the top without stomping on other people.
+ - Seems like the only one who doesn’t see your beauty is the face in the mirror looking back at you.
+ - I do explore the emotion every once in a while. I’d like to think you don’t stop being creative once you get happy. My ultimate goal is to end up being happy. Most of the time.
+ - Here’s what I’ve learned about deal-breakers. If you have enough natural chemistry with someone, you overlook every single thing that you said would break the deal.
+ - Vanity can apply to both insecurity and egotism.
+ - A good relationship is all about balance and chemistry.
+ - I want to make people feel things when they hear my music I want to give a song to someone who is going through a break up, I want to give a song to someone who loves someone and can’t tell them. A song for someone who has just fallen in love and a song for just people who are living their lives.
+ - Wasn’t it beautiful when you believed in everything?
+ - I haven’t had that one great love, which is good. I don’t want that to be in the past – I want it to be in the future.
+ - She’s not a saint, and she’s not what you think She’s an actress, whoa She’s better known for the things that she does on the mattress.
+ - Once you think about it, aren’t the people who are living their lives without worrying about other people’s opinions having more fun than those judging them?
+ - Mom is a planner, an organizer. She’s very strong and practical. She’s the person that’ll tell me if I ever start to change my personality. The balance of the two of them created my personality.
+ - Fighting with him was like trying to solve a crossword and realizing there’s no right answer.
+ - All of my songs are autobiographical.
+ - I can imagine it’s hard to make a relationship last. I wouldn’t know.
+ - The most miraculous process is watching a song go from a tiny idea in the middle of the night to something that 55,000 people are singing back to you.
+ - There are beautiful things about both being in love and being out of love. I just think you have to find those things.
+ - Red is such an interesting color to correlate with emotion, because it’s on both ends of the spectrum. On one end you have happiness, falling in love, infatuation with someone, passion, all that. On the other end, you’ve got obsession, jealousy, danger, fear, anger and frustration.
+ - In a relationship each person should support the other; they should lift each other up.
+ - Fearless is falling madly in love again, even though you’ve been hurt before.
+ - When you say ‘control freak’ and ‘OCD’ and ‘organized,’ that suggests someone who’s cold in nature, and I’m just not. Like, I’m really open when it comes to letting people in. But I just like my house to be neat, and I don’t like to make big messes that would hurt people.
+ - Promise me this, that you’ll stand by me forever. But if God forbid Fate should step in and force us into a goodbye. If you have children someday, when they point to the pictures please tell them my name. Tell them how the crowd went wild, tell them how I hope they shine.
+ - You only get so many firsts, each one is a blessing.
+ - It’s the most maddening, beautiful, magical, horrible, painful, wonderful joyous thing in the world, love.
+ - I want to build a life with someone that’s based on their dreams as well as my dreams. I think that the idea of finding another person to share with is the most fascinating, beautiful quest you could ever be on in life.
+ - Happiness isn’t a constant. You get fleeting glimpses. You have to fight for those moments, but they make it all worth it.
+ - Different phases of your life have different levels of deep, traumatizing heartbreak, and in this period of my life, my heart was not irreparably broken. So it’s not as boy-centric of an album, because my life hasn’t been boy-centric.
+ - I never give advice unless someone asks me for it. One thing I’ve learned, and possibly the only advice I have to give, is to not be that person giving out unsolicited advice based on your own personal experience.
+ - I love the scents of winter! For me, it’s all about the feeling you get when you smell pumpkin spice, cinnamon, nutmeg, gingerbread and spruce.
+ - I’ve been giving out chances every time and all you do is let me down.
+ - Sometimes the people you thought would be there forever somehow aren’t.
+ - Loving him was like driving a new Maserati down a dead end street; faster than the winds, passionate as sin, ending so suddenly.
+ - The longer you’re with the wrong person, you could be completely overlooking the chance to meet the right person.
+ - Everytime you smile, I smile And everytime you shine, I’ll shine for you.
+ - You are the only one who gets to decide what you will be remembered for.
+ - I’m not that complicated. My complications come out in my songs. All you need to do to be my friend is like me.
+ - Every day was a struggle. Forget making plans for life – we were just trying to make it to next week.
+ - Just because you make a good plan, doesn’t mean that’s what’s gonna happen.
+ - I don’t like it when people who are young act like they’re 40. That’s taking too much on. Putting up a shield and trying to act like you’re so mature or whatever – I don’t try to act mature. Some people might say I’m mature for my age, but it’s not something I’m trying to do, you know? I’m just me.
+ - We were built to fall apart and fall back together.
+ - My first memory of loving music happened so early. We would always go to the beach in the summer and I would run from blanket to blanket, from family to family and just sing Lion King songs acapella.
+ - I’d rather be at home and eat ice cream than go out and get wasted.
+ - I don’t drink much alcohol. If it doesn’t taste like candy or sparkles, I usually don’t drink it.
+ - We don’t wish for the easy stuff. We wish for big things. Things that are ambitious, out of reach.
+ - Music is art, and art is important and rare. Important, rare things are valuable. Valuable things should be paid for.
+ - If guys don’t want me to write bad songs about them, they shouldn’t do bad things.
+ - I don’t compare myself to anyone else; I don’t make comments about anyone else because they do what feels right for them, and that’s okay by me.
+ - Music can take you back in time to that place when you first fell in love and really haunt you.
+ - Be careful with what you say. A girl remembers everything.
+ - The drought was the very worst when the flowers that we’d grown together died of thirst.
+ - I will always believe in love and I don’t care what happens to me or how many times I get my heart broken, or how many breakup songs I write, I’m always going to believe that someday I am going to meet somebody who is actually right for me and he’s going to be wonderful and it’s going to work out.
+ - I still like to live in a whimsical world that seems more romantic and fantasy-related because real life seems so hard.
+ - All those emotions spanning from intense love, intense frustration, intense jealously, all those feelings are red.
+ - Most of us fear reaching the end of our life regretting moments when we didn’t speak up, say I love you, or say I’m sorry.
+ - I got to play Kim in Bye Bye Birdie, Sandy in Grease, and Maria in The Sound of Music. And it was so much fun for me, but the thing that I looked forward to the most was at the cast parties. After the shows they had karaoke machines set up and that’s when I could sing country music.
+ - I don’t compete with other people in the industry, I compete with myself.
+ - At 24 I decided that my life is enough for me, and I stopped looking for some other piece to complete it. I also learned how to needlepoint ironic cross-stitches of rap lyrics and gave them to my friends as presents. I’ll let you decide which is the more important revelation.
+ - If you go too far down the rabbit-hole of what people think about you, it can change everything about who you are.
+ - When we meet someone and we fall in love we don’t ever imagine that it’s going to end.
+ - You realize the bad guy isn’t wearing a black cape or easy to spot; he’s funny, makes you laugh, and has perfect hair.
+ - My dad is adorably optimistic, positive, pie-in-the-sky. He thinks every new song I write is my best. He sells T-shirts at my merchandise stands and hands out guitar picks to fans.
+ - I’m the girl who – I call it girl-next-door-itis – the hot guy is friends with and gets all his relationship advice from but never considers dating.
+ - Went to get coffee today-opened my change purse. Sea shells fell out. Barista goes “Sorry, we only take cash or credit.” So there’s that.
+ - You will never be able to find happiness if you stay attached to the wrong person and don’t move on.
+ - I only sing in my church choir. Except the other night, I stole the show at karaoke night.
+ - Autumn leaves falling down like pieces into place, and I can picture it after all these days.
+ - I’m gonna find someone someday who might actually treat me well.
+ - Some of the most beautiful people in the whole world wake up some days and they don’t think that they’re pretty.
+ - Relationships are like traffic lights. And I just have this theory that I can only exist in a relationship if it’s a green light.
+ - Words can break someone into a million pieces, but they can also put them back together.
+ - There is nothing wrong with avoiding people who hurt you.
+ - You get to a point where it’s like you can’t really do anything right, and people will pick on you for whatever decisions you make, so I just try and take no notice and get on with my music.
+ - My dad is a Chatty Cathy, the social butterfly; friendly; knows everybody in the whole world by six degrees; tells me that every performance is the greatest he’s ever seen, every new outfit is the coolest. Constant cheerleader.
+ - People like music when they’re in love, but they don’t need it as much. You need music when you’re missing someone or you’re pining for someone or you’re forgetting someone or you’re trying to process what just happened.
+ - I am completely fascinated by the differences and comparisons between real life and fairy tales because we’re raised as little girls to think that we’re a princess and that Prince Charming is going to sweep us off our feet.
+ - I slept in castles and fell in love because I was taught to dream.
+ - Sometimes in love it just gets to the point where I have to give up. I have to give up trying and I have to give up believing because I know things won’t change. To me, giving up isn’t being weak. Giving up is being strong enough to let go.
+ - Be friends first when you’re dating. If it turns into something more, that’s awesome, and if not you have another friend.
+ - Be grateful more than anything in your life. If you have to put a priority on something, put a priority on what your thankful for and the people in your life that you’re grateful for.
+ - Love tends to end in a very painful goodbye.
+ - The thing about life is, every time you learn a lesson, another is waiting right at the corner. You never know everything.
+ - All of my favorite people – people I really trust – none of them were cool in their younger years.
+ - To me fearless isn’t not having fears, it’s not that you’re not afraid of anything. I think that being fearless is having a lot of fears, but you jump anyway.
+ - If you’re yelling you’re the one who’s lost control of the conversation.
+ - I think I have a big fear of things spiraling out of control. Out of control and dangerous and reckless and thoughtless scares me, because people get hurt.
+ - When I was in high school, I remember seeing girls crying in the bathroom every Monday about what they did that weekend. I never wanted to be that girl crying in the bathroom.
+ - It’s important to be self-aware about what people are saying about you, but even more so, be very aware of who you actually are, and to have that be the main priority.
+ - Even if a relationship is breakable, it doesn’t mean it isn’t worthwhile, beautiful, and all the things that we look for.
+ - On ‘Grey’s Anatomy’ I wouldn’t care what I was playing – I would play a corpse, ’cause I love it that much. It is deep true love, and it will never die.
+ - I don’t have big security guards. I don’t have an entourage.
+ - My friends tease me about the fact that if someone seems bad or shady or like they have a secret, I find them incredibly interesting.
+ - The words you’ll most regret Are the ones that are left unsaid.
+ - You have to believe in love stories and prince charming and that eventually you’ll find your own happily ever after.
+ - Once a relationship is done, it’s done. You can’t do that back and forth thing.
+ - My imagination is a twisted place.
+ - My style advice to other girls is to be experimental but always have a ‘home base’ and stick with your comfort style.
+ - There’s a general rule that I always go by, and it’s that you fall for who you fall for. Whatever small issue you get hung up on, whether it’s because they’re shorter than you, younger than you or they live far away – if you really are crazy about someone, none of that matters.
+ - I know my flaws before other people point them out to me.
+ - There are no rules when it comes to love.
+ - There are two ways love can go. You can be good to each other or you could not play fair.
+ - I can’t deal with someone wanting to take a relationship backward or needing space or cheating on you.
+ - I love my fans, I could not be able to do it without you and I would not be here.
+ - The little I am exposed to hurts my feelings. The only things I can really control are my songs and my behavior. The rest? If I focused on it, that would lead to insanity.
+ - I’ve come to a wonderful realization that is fascinating: I have no idea what I’m doing when it comes to love. No one does!
+ - Every time i try and wink at someone, I mess it up and end up scaring people.
+ - I have this really high priority on happiness and finding something to be happy about.
+ - I wish all teenagers can filter through songs instead of turning to drugs and alcohol.
+ - Life is a ruthless game unless you play it good and right.
+ - You never imagine that when you say hello to someone and you fall in love, that some day you’ll have to say goodbye.
+ - Sitting on a bedroom floor crying is something that makes you feel really alone. If someone’s singing about that feeling, you feel bonded to that person.
+ - We need music the most when we’re feeling things really intensely. I think the most intense times in your life are when you’re either falling in love or losing it.
+ - At some point, you grow out of being attracted to that flame that burns you over and over and over again.
+ - I never get tired of signing autographs ’cause I used to do it so much in class dreaming about the day that it might mean something to somebody.
+ - I could get drunk and run around Nashville naked. But I won’t because I want to set a good example for my fans. I think they deserve to have a role model.
+ - I think the worst part about a breakup sometimes, if one could choose a worst part, would possibly be if you get out of a relationship, and you don’t recognize yourself because you changed a lot about you.
+ - Love is the one wild card.
+ - I’ve never gotten thick skin. If you close yourself off and you get this protective armor, there is a price you pay with that – of not feeling. And feeling is important when you are a songwriter.
+ - Even if you’re happy with the life you’ve chosen, you’re still curious about the other options.
+ - Some days I totally appreciate everything that’s happening to me, and some days I feel everyone’s waiting for me to mess up.
+ - You better lose yourself in the music.
+ - It’s okay to wonder how you could try so hard and still get stomped all over. Just don’t let them change you.
+ - There are times when you get frustrated, but the one thing you always focus on is treating people well. You just cannot storm off and freak out.
+ - Unique and different is the next generation of beautiful.
+ - When I meet my fans, it’s not like meeting a stranger. It’s like saying hello to someone that I already know.
+ - But then you make eye contact with someone across the room and it clicks and you’re right there in love again.
+ - I always aspire to just be really nice to people. To be kind.
+ - People don’t usually compliment your character.
+ - It can be heartbreaking when you find out that your fairytale image of the world doesn’t match the reality.
+ - Maybe you’re not meant to fit in. maybe you’re supposed to stand out.
+ - I feel like my dating life has become a national pastime, and Im not comfortable providing that entertainment anymore.
+ - Feel good about being someone who loves selflessly. I think someday you’ll find someone who loves you the exact same way.
+ - I never read one hateful thing said about me by some 12-year-old. So I got to live an actual life. And I’ve kept that mentality. Just because there’s a hurricane going on around you doesn’t mean you have to open the window and look at it.
+ - Sophistication isn’t what you wear and who you know.
+ - I think that it’s okay to be mad at someone who hurt you. This isn’t about, like, the pageantry of trying to seem like nothing affects you.
+ - When I am talking to people who I feel don’t like me or are mean, I get really shy, and I kind of curl up personality wise.
+ - I have so many indie bands on my iPod. What I don’t really understand is the attitude that if a band is unknown, they’re good, and if they get fans, then you move on to the next band.
+ - When you strategize a relationship too much, like, “We’re not gonna be public about it, and we’re gonna say this in interviews,” when you think it all out, I think that complicates the relationship and I think that’s unfair for the relationship.
+ - Seems like there’s always someone who disapproves. They’ll judge it like they know about me and you.
+ - My definition of country music is really pretty simple. It’s when someone sings about their life and what they know, from an authentic place.
+ - I dream about finding an exception and finding someone who would make me believe in love and realize that it can work out.
+ - Love is unpredictable and it’s frustrating and it’s tragic and it’s beautiful.
+ - I realized that I have very long arms so I can take the perfect arm-length picture with fans.
+ - I spend a lot of time balancing between faith and disbelief.
+ - In my mind, I see all of my passionate memories in bright, burning Red.
+ - In my opinion, the only way to conquer stage fright is to get up on stage and play. Every time you play another show, it gets better and better.
+ - You have people come into your life shockingly and surprisingly. You have losses that you never thought you’d experience. You have rejection and you have learn how to deal with that and how to get up the next day and go on with it.
+ - I think love is one of those things that it’s only really bad because it was once good. You can’t miss something that was never amazing. So, what I’ve learned is that even if it ends badly, it’s worth it if it made you feel something, if it taught you something.
+ - It feels kinda weird being back in a high school cause I haven’t been in a high school for about a year. So um, it’s kinda interesting coming back, and y’know seeing the lockers, with all the signs, the handmade signs, so being in high school again is a little bit strange but in a good way.
+ - Fearless is knowing that someday things will change.
+ - I’m Taylor, I’m 11 and I want a record deal.
+ - I don’t drink to get drunk. That’s just not cute.
+ - I think about food literally all day every day. It’s a thing.
+ - Growing up is scary because it happens without you knowing it.
+ - I think your life is full of first loves because every time you love someone new, you love them in a different way.
+ - If there’s a pregnancy rumor, people will find out it’s not true when you wind up not being pregnant, like nine months from now, and if there’s a house rumor, they’ll find out it’s not true when you are actively not ever spotted at that house.
+ - I don’t ever feel like the cool kid at the party, ever. It’s like, ‘Smile and be nice to everybody, because you were not invited to be here.’
+ - I think people inspire me the most. If I meet a person who is incredibly complex, and all of a sudden, I start thinking in rhymes, that person could be a muse.
+ - I think allowing yourself to cry on the bathroom floor is FEARLESS.
+ - The only way I hear gossip is if it’s big enough and loud enough for my friends to bring it up to me. Or if it’s, like, a big untrue ordeal from my publicist – and she hates making that phone call!
+ - Even if something really hurt you, if it made you feel something it was worth it.
+ - It’s so much easier to like people, and to let people in, to trust them until they prove that you should do otherwise. The alternative is being an iceberg.
+ - You realize who you’re in love with is fading fast. You don’t know what to do, but in that period time moves so slowly.
+ - I don’t have any interest in going out to clubs. I love people, and I love socializing, I just don’t have any interest in being drunk.
+ - My mom and I have always been really close. She’s always been the friend that was always there. There were times when, in middle school and junior high, I didn’t have a lot of friends. But my mom was always my friend. Always.
+ - Sometimes when relationships end, you write an e-mail and say everything you wish you said. Sometimes you don’t push send.
+ - I feel the emotion that life conjures up and the songs I write get me closer to my feelings and realising who I am. It’s a natural process.
+ - I keep one eye on the path I didn’t choose every day.
+ - I’ve stopped reading the comments below news articles and on gossip blogs because those are the ones that’ll ruin your day in a second.
+ - A song is a favorite song, not because the singer can hit and hold a high note, but because of the words, their meaning.
+ - For everything I do, I think about a 6-year-old girl and her mom that I saw at my concert last night. I think about what those two individuals would think if I were at a club last night. I never want to be arrested, and I never want to get a DUI, those are my moral values.
+ - Love is one of those things that should be so simple. You don’t need to think about it and over analyze it when it’s good.
+ - Through it all nobody gets me like you do.
+ - Writing ‘We Are Never Getting Back Together’ was one of the most hilarious experiences I have ever had in the studio because it just happened so naturally.
+ - You will always be criticized and teased and bullied for things that make you different, but usually those things will be what set you apart. The things that set you apart from the pack, the things that you once thought were your weaknesses will someday become your strengths.
+ - So many girls come up and say to me, ‘I have never listened to country music in my life. I didn’t even know my town had a country-music station. Then I got your record, and now I’m obsessed.’ That’s the coolest compliment to me.
+ - I didn’t want to just be another girl singer. I wanted there to be something that set me apart.
+ - I think everyone should approach relationships from the perspective of playing it straight and giving someone the benefit of the doubt. Until he establishes that this is a game. And if it’s a game, you need to win. The best thing to do is just walk away from the table.
+ - I don’t need to edit names out of songs and I don’t need to edit details out of my songs because I’ve always been able to be honest with my music. That’s the one place where I’m never ever going to change how I do things.
+ - I’ve seen my friends take someone back after they’ve cheated because they fit perfectly.
+ - Getting a great idea with song writing is a lot like love. You don’t know why this one is different, but it is. You don’t know why this one is better, but it is. It sticks in your head, and you can’t stop thinking about it.
+ - Don’t you ever grow up, it could stay this simple.
+ - I love Karlie Kloss. I want to bake cookies with her!
+ - I feel like my music has become a lot of things. It’s hard to label the evolution, but I like there to be an evolution. I just like to paint with all different kinds of colors.
+ - Well, you stood there with me in the doorway, my hands shake, I’m not usually this way. But you pull me in and I’m a little more brave. It’s the first kiss, it’s flawless, really something, it’s fearless.
+ - I like to write about love and love lost because I feel like there are so many different subcategories of emotions that you can possibly delve into.
+ - As I grow up, the lessons I learn in love and relationships and how we treat each other are hopefully maturing – hopefully.
+ - I go to Wal-Mart all the time. The one in my hometown of Hendersonville, Tenn., is open 24 hours, so I go there a lot to buy DVDs and stuff like that.
+ - I keep going back to love when I write songs because I can’t figure it out.
+ - When I was a teenager I felt like we were always being stereotyped as being really intense and dramatic and passionate and hopelessly romantic and excitable, now in retrospect I think I need to let you know those things are amazing. I hope you never lose those things.
+ - Don’t ever call a guy first. The thing they want the most is whatever they can’t have. It sounds really juvenile, but it works.
+ - I try to read as much as I can. I try to read an informative article every day. I try to stay read up on our world issues.
+ - I’m interested in Jackson Pollock’s kind of art, where art is beautiful, but it’s nothing, and yet it’s incredible.
+ - I think that growing up is something that you should do gradually.
+ - Everybody has a list of 100 things they would like to change about themselves. But it’s all about focusing on the good things.
+ - Sparks Fly whenever you smile!
+ - The things that make me cry are when the people I love have gone through pain and I’ve seen it.
+ - I’m so lucky that my songs are basically my diary put to music.
+ - A great song will say how you feel better than you ever could.
+ - One element of Madonna’s career that really takes center stage is how many times she’s reinvented herself. It’s easier to stay in one look, one comfort zone, one musical style. It’s inspiring to see someone whose only predictable quality is being unpredictable.
+ - I’ve written all my songs on every single one of my records, and that’s what’s been fun about looking back.
+ - I’m a crumbled up piece of paper lying here, ’cause I remember it all too well.
+ - Ryan Seacrest: Trouble, trouble trouble. So why do girls go for the bad guys, what is it Taylor Swift? Why? Taylor Swift: Because maybe we could change them! Everybody wants to like tame a lion.
+ - I know what it’s like to pine away for that summer romance you just can’t get back.
+ - That’s always the hardest thing when someone completely has you fooled so much, that you think they’re just never going to hurt you, then they do. That’s when you get the worst heartbreak.
+ - I’ve always loved Def Leppard, ever since I was little.
+ - Factoring in millions of people when I’m writing a song is not a good idea. I don’t ever do it.
+ - There’s something to be said for being young and needing someone so badly that you jump in headfirst without looking.
+ - What I’ve learned is not to change who you are, because eventually you’re going to run out of new things to become.
+ - I’ve never been shy or secretive with the fact that if you walk into my life, you may be walking onto a record.
+ - If you are lucky enough to find something that you love, and you have a shot at being good at it, don’t stop, don’t put it down.
+ - I’m never in the same place for more than, like, three days at a time. Things can change from one minute to the next.
+ - It was the night things changed, can you see it now? These walls that they put up to hold us back fell down It’s a revolution, throw your hands up, ’cause we never gave in.
+ - It doesn’t bother me when people try to deconstruct my songs – because at least they’re looking at the lyrics, and paying attention to the way the story is told.
+ - I’ve always been really, really aware of my insecurities – really, really aware. I never developed that thick skin that keeps you from letting things get to you.
+ - I created my MySpace page in eighth grade, because that’s how all my friends talked to each other, so I made one, too. Then, all of a sudden, my friends started putting my songs on their profiles, and then their relatives, their friends in different states did.
+ - When I’m 40 and nobody wants to see me in a sparkly dress anymore, I’ll be like: ‘Cool, I’ll just go in the studio and write songs for kids.’
+ - There’s a kind of bad that gets so overpowering you can’t even talk about it.
+ - I write songs that are like diary entries. I have to do it in order to feel sane.
+ - When you say, ‘I spent my summers at the Jersey Shore,’ people always say, ‘Oh, really?’ They think of the TV show. So I just say, ‘A cute little harbor town in New Jersey.’
+ - Never regret your past. You have to move on and learn from it.
+ - Right now I’m just single, but I’m really looking forward to the day when I’m happily single.
+ - I’ve always felt music is the only way to give an instantaneous moment the feel of slow motion. To romanticise it and glorify it and give it a soundtrack and a rhythm.
+ - When you see something bad happening out in the world, you should try to help in whatever way you can.
+ - I’ve been careful in love. I’ve been careless in love. And I’ve had adventures I wouldn’t trade for anything.
+ - I like things that make me feel seven again. I don’t ever look down on people for the way they choose to have fun; it’s just not necessarily the way I like to have fun.
+ - I think my favorite thing about seasons changing is the opportunity to look different.
+ - Faith Hill is a big role model.
+ - Never compare yourself to beautiful girls.
+ - Misogyny is ingrained in people from the time they are born. So to me, feminism is probably the most important movement that you could embrace, because it’s just basically another word for equality.
+ - Words, how little they mean when they are too late.
+ - You can make a board for all the goals you want in your life with the pictures on it, and that’s great, daydreaming is wonderful, but you can never plan your future.
+ - I like the app where you can make your own memes. I make memes all the time and send them to my friends.
+ - I don’t like to feel like I’m in a club when I’m in my car and I turn on the radio. Anything that ceases to be a song and just sounds like house music kind of stresses me out.
+ - I believe when it comes to love, there’s something intangible about who we are attracted to, and I don’t think I have a pattern.
+ - I do not need some guy around in order to get inspiration, in order to make a great record, in order to live my life, in order to feel okay about myself. And I wanted to show my fans the same thing.
+ - When I hear that high-pitched sound of all those people screaming together, it’s like, I want to get on stage right now. It’s the most amazing feeling.
+ - I have always felt a little strange about it being so unique that I’m not a train wreck. Like, this weird fluke that I’m not – partying all the time.
+ - I’m the girl who still believes prince charming exists somewhere out there.
+ - I’ve always written songs the same way. You learn different tricks – you learn craft, you learn structure, all that – as you go.
+ - I know that if things hadn’t gone the way they did then I wouldn’t be where I am now.
+ - I love trying to beat what I’ve done so far.
+ - The beginning of love is all about the butterflies, but the end of it is when you can’t get out of bed in the morning.
+ - My level of awkward makes everyone else feel normal.
+ - I’m the type of person, I have to study to get an A on the test.
+ - My experience with songwriting is usually so confessional, it’s so drawn from my own life and my own stories.
+ - There are certain people who elicit a really passionate response. It’s crazy. That’s my Alexander Wang theory.
+ - I think, as far as branching out with acting, it would take something really right on the mark to distract me from music, because music is everything to me.
+ - I think that there’s a difference between getting your heart broken and getting let down.
+ - There’s so much about Dolly Parton that every female artist should look to, whether it’s reading her quotes or reading her interviews or going to one of her live shows. She’s been such an amazing example to every female songwriter out there.
+ - I’ve made sure that in any situation and with any record label, I’m allowed to write my own music.
+ - I leave the genre labeling to other people. I really do. If I were to think too hard about it, that would stifle you creatively. If you think too hard about who other people want you to be as an artist, it stops you from being who you want to be as an artist.
+ - They can say whatever they want about my personal life because I know what my personal life is, and it involves a lot of TV and cats and girlfriends.
+ - I think the first thing you should know is that nobody in country music ‘made it’ the same way. It’s all different. There’s no blueprint for success, and sometimes you just have to work at it.
+ - I don’t know if I could do this with the same energy, and in the same way – all the costume changes and glitter and hair and makeup – all the time. When I’m in my 50s, I kind of think I’ll want to be in a garden.
+ - But I say to Apple with all due respect, we don’t ask you for free iPhones. Please don’t ask us to provide you with our music for no compensation.
+ - Talk to the man with the reasons why.
+ - I have an excellent father, his strength is making me stronger.
+ - And, honestly, if somebody wants to criticize me for not being a trainwreck, that’s fine with me!
+ - It’s true that I’ve never had a burning desire to rebel against my parents.
+ - Being a powerful woman who also exhibits great warmth is an incredible feat because people think that to be powerful you have to be cold, and you don’t.
+ - As you experience love and relationships, you start to realize that love tends to end in a very painful goodbye.
+ - You need to be happy with yourself or you’ll never be able to be happy in a relationship.
+ - One of the most important things about social media is knowing when to put the phone down and experience your life.
+ - I think that as you grow up, as you get older, we can’t get bitter, we can’t get jaded.
+ - I remember auditioning for record labels and having them tell me, ‘Well, the country-radio demographic is the thirty-five-year-old female housewife. Give us a song that relates to the thirty-five-year-old female, and we’ll talk.’
+ - I could make the bad guys good for a weekend.
+ - Anything you put your mind to and add your imagination into can make your life a lot better and a lot more fun.
+ - I’m so lucky that I get to write my own music and write my own stories, so every single time I look down in the audience and I see somebody singing the words back to me, it makes it all worth it.
+ - If you have something about yourself that’s different, you’re lucky. It’s not a curse.
+ - So there are different examples of fairy tales, and sometimes I believe in them and sometimes I don’t.
+ - The words. I love words. I love to write. Being an artist is what I love.
+ - Seeing a live Kenny Chesney show, you know what you’re going to get. You know it’s going to be an all-day party.
+ - I began absolutely non-stop tormenting my parents, begging them on a daily basis to move there.
+ - Anything that encourages people to pick up an instrument and play, I’m fully behind.
+ - I have an obsession with knowing the answers to things. When I don’t know what happened, it just bothers me, gets under my skin, and I need to write about it.
+ - I’m intrigued and drawn to people who know exactly who they are, who know what they want, who live life on their own terms.
+ - I approach love differently now that I know it’s hard for it to work out.
+ - When I get to tell a story through music videos or TV, it’s all about finding the story that I want to tell, so I’m definitely open to acting roles, it just depends on the story.
+ - When you run into someone that you used to be in love with, all that you have is drama, desperation and not know what to do.
+ - Nashville is my home, and the reason why I get to do what I love.
+ - I put out one album one week, and I’m already worried about the next one. I feel a lot of emotion throughout the course of a day. But not to the point where you need to be worried about me.
+ - I discover poetry when I was in elementary school and I was so fascinated by it. Because I realised if you get the right amount of syllables and the right amount of words, in the right rhyme scheme and you put it all together. You make words just bounce of a page.
+ - I love it when people say things to me in public and want to meet me, because I want to meet them! Early on, my manager told me, ‘If you want to sell 500,000 records, then go out there and meet 500,000 people.’
+ - Be good to people. Be good to every single person you come into contact with. My best friends are great musicians. But more than that, they’re great people.
+ - One of my big fears is people saying my songs are all starting to sound the same.
+ - I’m a songwriter. Everything affects me.
+ - Nothing we say is gonna save us from the fall out.
+ - I became a people-watcher when I lost all my friends when I was 12.
+ - I’ve gotten into this nasty habit of running away from love, but maybe one day I can find the exception to that.
+ - I am getting to the point where the only love worth being in is the love worth singing about.
+ - I like shirts and sweaters that fall off the shoulder or plaid button-ups.
+ - I can say I’d honestly rather be happy than have 30 to 40 songs that I’ve written about these thrilling, exciting, horrible, unhappy times.
+ - Most of the time, songs that I write end up being finished in 30 minutes or less.
+ - Nothing ruins your day more than getting a bad review.
+ - Fans are my favourite thing in the world.
+ - I think that what people always want is what they don’t have a lot of.
+ - Never let a boy be your life. They can live in your world, but never make a guy your world.
+ - I’d like to think you don’t stop being creative once you get happy.
+ - I’ve always strived to be successful, not famous.
+ - I’ve never been fascinated by the party lifestyle. Penciling in a night to get wasted is not something I want to do.
+ - Ever since I was a little kid I’ve been so glad to be from America and so glad to live here.
+ - I really like Lady GaGa and everything she is for her fans.
+ - I have to believe in fairy tales and I have to believe in love.
+ - Some combinations of people are toxic, you know? You have to find the right one that isn’t just going to explode into fiery ash and destruction.
+ - My parents have always been very respectful of me so I’ve always been really respectful of them. My worst fear is to let them down so that’s why I don’t misbehave.
+ - Your success, your life, your happiness. Don’t let mean people bring that down.
+ - Being excited about stuff on a daily basis, I’m so excited by it.
+ - Words are everything to me. Words can build you up and feel so good. On the flip side, words can absolutely demolish you.
+ - I wouldn’t wear tiny amounts of clothing in my real life so I don’t think it’s necessary to wear that stuff in photo-shoots.
+ - I go back to December, turn around and make it alright I go back to December, turn around and change my own mind I go back to December all the time.
+ - When I’m in management meetings when we’re deciding my future, those decisions are left up to me. I’m the one who has to go out and fulfill all these obligations, so I should be able to choose which ones I do or not. That’s the part of my life where I feel most in control.
+ - When I was 9 or 10, I used to get all the lead roles because I was the tallest person. But my interest in music soon drew me to country music. I was infatuated with the sound, with the storytelling. I could relate to it. I can’t really tell you why. With me, it was just instinctual.
+ - It was a time of great loneliness. He had a group of friends, and suddenly I had no one and did not understand why. I felt excluded. Some days, the majority was in high school and did not know who to talk to. And that is something really terrible when you’re twelve years old.
+ - I don’t think I’d ever make an album of just covers because I love writing my own music.
+ - I’d like to do a completely off-the-wall collaboration. I would like one of my songs to be the hook to a rap song. That would be so much fun!
+ - I get so excited when a song I wrote that’s very personal to me goes No. 1 and I look down and see people singing the words back to me.
+ - There are no rules when it comes to love, I just try to let love surprise me because you never know who you’re going to fall in love with.
+ - I’m very aware and very conscious of the path I chose in life, and very aware of the path I didn’t choose.
+ - I have this fear of falling in front of large groups of people. That’s why I tend not to wear heels.
+ - As soon as I accomplish one goal, I replace it with another one. I try not to get too far ahead of myself. I just say to myself, ‘All right, well, I’d like to headline a tour,’ and then when I get there, we’ll see what my next goal is.
+ - Your eyes wider than distance, this life is sweeter than fiction.
+ - I think the words you stop yourself from saying are the ones that will haunt you the longest.
+ - I have a lot of friends who do what I do. Either they’re actresses or singers or things like that.
+ - A lot of people have pretty little heads, but it’s difficult to find a pretty little mind.
+ - I don’t really think you can ever stop making new friends or learning about as many new things as possible.
+ - Being single is wonderful and I love it. I don’t ever have a morning where I wake up and say, ‘I really need to find a boyfriend today.’
+ - In fairy tales the bad guy is very easy to spot. The bad guy is always wearing a black cape so you always know who he is.
+ - I base a lot of decisions on my gut, and going with an independent label was a good one.
+ - I’ve just tried to grow up in the most natural and gradual process that I possibly can and make choices I feel are right for me and my fans.
+ - All of my walls are covered with framed pictures of my friends.
+ - I don’t know how to have a normal relationship because I try to act normal and love from a normal place and live a normal life, but there is sort of an abnormal magnifying glass, like telescope lens, on everything that happens.
+ - The business aspect is one of the most important things about having a music career, because every choice you make in a management meeting affects your life a year-and-a-half from now.
+ - People say that about me, that I apparently buy houses near every boy I like – that’s a thing that I apparently do. If I like you I will apparently buy up the real-estate market just to freak you out so you leave me.
+ - There’s no regimen. There’s no personal trainer. I love to go hiking because it’s an experience. If I need to gain stamina for a tour, I will run every single night on the treadmill, but I don’t necessarily like being at the gym.
+ - Part of me feels you can’t say you were truly in love if it didn’t last. If I end up getting married and having kids, that’s when I’ll know it’s real – because it lasted.
+ - The one place where I’m allowed to rebel, and the one place where I’m allowed to not worry about censoring myself is my music.
+ - I like organizing things. I like organizing my closets, so that I know where everything is. And and I used to color code it.
+ - Love always ends differently and it always begins differently – especially with me.
+ - My fans don’t feel like I hold anything back from them. They know whatever I’m going through now, they’ll hear about it on a record someday. They’ll hear the real story. There’s a little bit of lag time. It’s not as instant as going on a gossip blog. But it’s much more accurate.
+ - There’s a lot of pressure putting an album out all over the world and hoping people everywhere like it.
+ - Country radio is much more like a family than any other group of people that I’ve met.
+ - You pay for good days by then having bad days. You pay for joy with pain.
+ - My parents moved across the country so I could pursue a dream.
+ - I was the girl who didn’t get invited to parties.
+ - It’s human nature to not say everything that’s on your mind at the time you think it. Because we fear saying something that people will laugh at, people will think is dumb. We’re afraid of being embarrassed.
+ - Remember we were sitting there by the water.
+ - I think Kenny Chesney or Garth Brooks would be the coolest duet partners. I look up to them so much for their work ethics.
+ - I think I’ve developed, as many people do, this sense of, ‘Don’t say the wrong thing, or else people will point at you and laugh.’
+ - For me, genres are a way for people to easily categorize music. But it doesn’t have to define you. It doesn’t have to limit you.
+
+500 quotes

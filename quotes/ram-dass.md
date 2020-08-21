@@ -1,0 +1,147 @@
+ - Be here now.
+ - The quieter you become, the more you can hear.
+ - We’re all just walking each other home.
+ - Information is just bits of data. Knowledge is putting them together. Wisdom is transcending them.
+ - Suffering only shows where you are attached. That is why, to those on the path, suffering is grace.
+ - Don’t compare your path with anybody else’s. Your path is unique to you.
+ - The dark night of the soul is when you have lost the flavor of life but have not yet gained the fullness of divinity. So it is that we must weather that dark time, the period of transformation when what is familiar has been taken away and the new richness is not yet ours.
+ - As you dissolve into love, your ego fades. You’re not thinking about loving; you’re just being love, radiating like the sun.
+ - The spiritual journey is individual, highly personal. It can’t be organized or regulated. It isn’t true that everyone should follow one path. Listen to your own truth.
+ - I would like my life to be a statement of love and compassion – and where it isn’t, that’s where my work lies.
+ - The game is not about becoming somebody, it’s about becoming nobody.
+ - Emotions are like waves. Watch them disappear in the distance on the vast calm ocean.
+ - Don’t think about the past. Just be here now.
+ - Unconditional love really exists in each of us. It is part of our deep inner being. It is not so much an active emotion as a state of being. It’s not ‘I love you’ for this or that reason, not ‘I love you if you love me.’ It’s love for no reason, love without an object.
+ - You have all the time in the world, but don’t waste a moment.
+ - Within the spiritual journey you understand that suffering becomes something that has been given to you to show you where your mind is still stuck. It’s a vehicle to help you go to work. That’s why it’s called grace.
+ - There is only one of us. One consciousness manifesting into different forms.
+ - Now is now. Are you going to be here or not?
+ - There are no accidents whatsoever in the universe.
+ - The shadow is the greatest teacher for how to come to the light.
+ - Suffering is part of our training program for becoming wise.
+ - I see my life as an unfolding set of opportunities to awaken.
+ - Don’t take yourself so personally.
+ - Healing does not mean going back to the way things were before, but rather allowing what is now to move us closer to God.
+ - This is the pathless path. Where the journey leads is to the deepest truth in you. It is really just returning to where you were initially before you got lost.
+ - You are loved just for being who you are, just for existing.
+ - Compassion refers to the arising in the heart of the desire to relieve the suffering of all beings.
+ - A feeling of aversion or attachment toward something is your clue that there’s work to be done.
+ - Be patient. You’ll know when it’s time for you to wake up and move ahead.
+ - All spiritual practices are illusions created by illusionists to escape illusion.
+ - Turn your melodrama into a mellow drama.
+ - If I’m going to die, the best way to prepare is to quiet my mind and open my heart. If I’m going to live, the best way to prepare for it is to quiet my mind and open my heart.
+ - When we see the Beloved in each person, it’s like walking through a garden, watching flowers bloom all around us.
+ - Our whole spiritual transformation brings us to the point where we realize that in our own being, we are enough.
+ - The sooner one develops compassion in this journey, the better. Compassion lets us appreciate that each individual is doing what he or she must do, and that there is no reason to judge another person or oneself. You merely do what you can to further your own awakening.
+ - If you feel a sense of social responsibility, first of all keep working on yourself. Being peaceful yourself is the first step if you want to live in a peaceful universe.
+ - The ego is a tool. You don’t separate it. It’s a tool for the spirit.
+ - Creativity springs from the yearning to be the fullness of who you are.
+ - Everything changes once we identify with being the witness to the story, instead of the actor in it.
+ - One of the ego’s favorite paths of resistance is to fill you with doubt.
+ - If you meditate regularly, even when you don’t feel like it, you will make great gains, for it will allow you to see how your thoughts impose limits on you. Your resistances to meditation are your mental prisons in miniature.
+ - Most of us are convinced that we are our egos, which is who we think we are. The ego is part of our incarnation. It dies with the body, which is why we are so afraid of death. Death scares the hell out of who you think you are, especially if you think you are this body.
+ - Look at the people you don’t love and see them as an exercise for you to open your heart.
+ - It is important to expect nothing, to take every experience, including the negative ones, as merely steps on the path, and to proceed.
+ - The reality we live in is selected by our conceptual definitions. You and I may be in the same physical space, but each of us will see it as entirely different.
+ - External silence can be the doorway to inner silence.
+ - The way we regard death is critical to the way we experience life. When your fear of death changes, the way you live your life changes.
+ - Our thinking minds deprive us of the happiness that comes when we are living fully in the moment.
+ - The thinking mind is what is busy. You have to stay in your heart. You have to be in your heart. Be in your heart. The rest is up here in your head where you are doing, doing, doing.
+ - The art of life is to stay wide open and be vulnerable, yet at the same time to sit with the mystery and the awe and with the unbearable pain – to just be with it all.
+ - Compassion and pity are very different. Whereas compassion reflects the yearning of the heart to merge and take on some of the suffering, pity is a controlled set of thoughts designed to assure separateness. Compassion is the spontaneous response of love; pity, the involuntary reflex of fear.
+ - Only that in you which is me can hear what I’m saying.
+ - As long as you have certain desires about how it ought to be you can’t see how it is.
+ - In most of our human relationships, we spend much of our time reassuring one another that our costumes of identity are on straight.
+ - The gift you offer another person is just your being.
+ - Working on our own consciousness is the most important thing that we are doing at any moment, and being love is a supreme creative act.
+ - Thoughts are going by like a river; awareness simply is.
+ - You and I are the force for transformation in the world. We are the consciousness that will define the nature of the reality we are moving into.
+ - When you see the beloved all around you, everyone is family and everywhere is love.
+ - Who you think you are will always be frightened of change. But it doesn’t make any difference to who you truly are.
+ - We’re fascinated by the words – but where we meet is in the silence behind them.
+ - Our interactions with one another reflect a dance between love and fear.
+ - Gratitude opens your heart, and opening your heart is a wonderful and easy way for God to slip in.
+ - Spiritual practices help us move from identifying with the ego to identifying with the soul. Old age does that for you too. It spiritualizes people naturally.
+ - It’s only when caterpillarness is done that one becomes a butterfly. That again is part of this paradox. You cannot rip away caterpillarness. The whole trip occurs in an unfolding process of which we have no control.
+ - In meditation we can watch the itch instead of scratching it.
+ - You can’t build joy on a feeling of self-loathing.
+ - If you think you are free, there is no escape possible.
+ - Learn to watch your drama unfold while at the same time knowing you are more than your drama.
+ - Love flows. Love doesn’t know boundaries. The mind creates boundaries. The mind creates the boundary of separate me and you. The heart just keeps embracing and opening out.
+ - I like to look at a tree and see that it’s love. Don’t you?
+ - As one individual changes, the system changes.
+ - If you want oneness in society, you have to teach people to go inside instead of going outside, because if they want peace, they need to find it within.
+ - The soul is not ruled by time and space. The soul is infinite. It blends with the One in infinity.
+ - If you want to cure the world, don’t emanate fear – emanate love.
+ - We’ve gotten lost in our Ego and have forgotten that our Soul’s only motive is to merge with the Beloved.
+ - We are all affecting the world every moment, whether we mean to or not. Our actions and states of mind matter, because we are so deeply interconnected with one another.
+ - All that you seek is already within you. In Hinduism it is called the Atman, in Buddhism the pure Buddha-Mind. Christ said, ‘the kingdom of heaven is within you.’ Quakers call it the ‘still small voice within.’ This is the space of full awareness that is in harmony with all the universe, and thus is wisdom itself.
+ - Inspiration is God making contact with itself.
+ - I am not this body. I am in this body, and this is part of my incarnation and I honor it but that isn’t who I am.
+ - Treat everyone you meet like God in drag.
+ - We’re sitting under the tree of our thinking minds, wondering why we’re not getting any sunshine!
+ - Faith is what is left after all your beliefs have been blown to hell.
+ - The soul is not part of the incarnation. It comes into the incarnation. And the soul is not afraid of death because it has done it so many times.
+ - The person who says, ‘I’m enlightened’ probably isn’t.
+ - If you rest in the silence inside, all those you meet will have their spiritual hearts resuscitated.
+ - Until we know that we can bear the unbearable, we’re always running scared.
+ - Our culture’s zeal for longevity reveals our incredible collective fear of death.
+ - Across planes of consciousness, we have to live with the paradox that opposite things can be simultaneously true.
+ - Every religion is the product of the conceptual mind attempting to describe the mystery.
+ - I love everybody and they, in turn, love everybody, and that’s spreading love heart to heart to heart. That’s my approach of my work.
+ - Let’s trade in all our judging for appreciating. Let’s lay down our righteousness and just be together.
+ - When you are completely identified with your thinking mind you are totally separate from everything else in the universe.
+ - Nature is really important because it’s a manifestation of love that hasn’t been run through human minds.
+ - Each of us finds his unique vehicle for sharing with others his bit of wisdom.
+ - I’ve got to love the souls of people. Because I can’t love every incarnation. To love their souls, I have to identify with my own soul.
+ - We kill each other over which name to call the Nameless.
+ - Wisdom is one of the few things in human life that does not diminish with age.
+ - As you look at many people’s lives, you see that their suffering is in a way gratifying, for they are comfortable in it. They make their lives a living hell, but a familiar one.
+ - I don’t really believe anything I say. Because the nature of my work concerns the spaces between the words, rather than the words themselves.
+ - When the heart is open, it’s easier for the mind to be turned toward God.
+ - To him who has had the experience no explanation is necessary, to him who has not, none is possible.
+ - Your problem is you are too busy holding on to your unworthiness.
+ - When we’re identified with Awareness, we’re no longer living in a world of polarities. Everything is present at the same time.
+ - When someone we love dies, we get so busy mourning what died that we ignore what didn’t.
+ - It’s very hard to grow, because it’s difficult to let go of the models of ourselves in which we’ve invested so heavily.
+ - I think that people will find a tremendous joy and fulfillment in service to other human beings, and that often this is what is missing in their lives.
+ - Give it all up and you can have it all.
+ - I’m not interested in being a “lover.” I’m interested in only being love.
+ - Institutions don’t change the world in fundamental ways. The way the world changes is heart to heart to heart by individuals, not by institutions.
+ - The intellect is a beautiful servant but a terrible master. Intellect is the power tool of our separateness. The intuitive, compassionate heart is the doorway to our unity.
+ - The next message you need is always right where you are.
+ - The offering up or cleaning up ego stuff is called purification. Purification is the act of letting go. This is done out of discriminative awareness. That is, you understand that you are an entity passing through a life in which the entire drama is an offering for your awakening.
+ - What you meet in another being is the projection of your own level of evolution.
+ - Real happiness lies in that which never comes nor goes, but simply is.
+ - We’re being trained through our incarnations – trained to seek love, trained to seek light, trained to see the grace in suffering.
+ - Birth, death, and suffering all bring us to the very edge of what our minds can understand.
+ - We are all affecting the world every moment, whether we mean to or not.
+ - If you keep examining your mind, you’ll come to see that thoughts of who you are and how it all is are creating the reality you’re experiencing.
+ - Suffering is the sandpaper of our incarnation. It does its work of shaping us.
+ - The richness of a moment comes when it’s both full and empty at the same time. The truth is, we live simultaneously in time and timelessness.
+ - When our hearts open, when we know that we are in fact the world, when we experience the pain of others in our own blood and muscle, we are feeling compassion.
+ - We’re here to awaken from the illusion of separateness.
+ - The minute you don’t want power, you’ll have more than you ever dreamed possible.
+ - The dance goes from realizing that you’re separate (which is the awakening) to then trying to find your way back into the totality of which you are not only a part, but which you are.
+ - Behind everyone’s learned behaviors and odd eccentricities lurks a soul, ready to make contact if only coaxed out through a crack in the ego.
+ - Death has such great importance in this society that it affects everything. I learned from my guru that death is not the enemy, I see it as another moment. Yet it’s the end of an incarnation and means going on to other incarnations.
+ - If you think you are enlightened; go home for Thanksgiving.
+ - Everything in your life is there as a vehicle for your transformation. Use it!
+ - The Ego is an exquisite instrument. Enjoy it, use it – just don’t get lost in it.
+ - Allowing dying to be so intensely present enriches both the preciousness of each moment and our detachment from it.
+ - Our plans never turn out as tasty as reality.
+ - There is a larger frame to the painting than the one that bounds our life’s events.
+ - Our souls are evolving towards becoming the one. That’s what we’re doing and we’re using our incarnations as teaching devices.
+ - When you want to become free, your righteousness and anger are much less interesting than they used to be.
+ - You see that who you are isn’t moving in time. Time is describing the incarnations, the packing changes.
+ - The heart surrenders everything to the moment. The mind judges and holds back.
+ - By acting compassionately, by helping to restore justice and to encourage peace, we are acknowledging that we are all part of one another.
+ - There’s much more in any given moment than we usually perceive, and that we ourselves are much more than we usually perceive. When you know that, part of you can stand outside the drama of your life.
+ - It’s very different because the Indians live as if they are their souls and Americans live as if they are their egos.
+ - The way you come to fully appreciate the infusion of the Spirit is to more and more come fully into the moment, where this moment is enough.
+ - Each person tells you who they think they are, and who they think you are.
+ - Being in love means seeing the Beloved all around me.
+ - Compassion is the ability to see how it all is.
+ - All you can do for another person is be an environment in which if they wanted to come up for air, they could.
+
+145 quotes

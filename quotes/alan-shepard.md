@@ -1,0 +1,50 @@
+ - When I first looked back at the Earth, standing on the Moon, I cried.
+ - I realized up there that our planet is not infinite. It’s fragile. That may not be obvious to a lot of folks, and it’s tough that people are fighting each other here on Earth instead of trying to get together and live on this planet. We look pretty vulnerable in the darkness of space.
+ - Whether you are an astronomer or a life scientist, geophysicist, or a pilot, you’ve got to be there because you believe you are good in your field, and you can contribute, not because you are going to get a lot of fame or whatever when you get back.
+ - It’s a very sobering feeling to be up in space and realize that one’s safety factor was determined by the lowest bidder on a government contract.
+ - We’re going to see passengers in space stations in 15 years, who will be able to buy a ticket and spend a weekend in space.
+ - I must admit, maybe I am a piece of history after all.
+ - Why don’t you fix your little problem and light this candle?
+ - You’ve done it in the simulator so many times, you don’t have a real sense of being excited when the flight is going on. You’re excited before, but as soon as the liftoff occurs, you are busy doing what you have to do.
+ - Roger, liftoff, and the clock is started.
+ - I think about the personal accomplishment, but there’s more of a sense of the grand achievement by all the people who could put this man on the moon.
+ - You know, being a test pilot isn’t always the healthiest business in the world.
+ - We worked with the engineers in the design and construction and testing phases in those various areas, then we would get back together at the end of the week and brief each other as to what had gone on.
+ - The excitement really didn’t start to build until the trailer – which was carrying me, with a space suit with ventilation and all that sort of stuff – pulled up to the launch pad.
+ - Al is on the surface. And it’s been a long way, but we’re here.
+ - Obviously I was challenged by becoming a Naval aviator, by landing aboard aircraft carriers and so on.
+ - You have to be there not for the fame and glory and recognition and being a page in a history book, but you have to be there because you believe your talent and ability can be applied effectively to operation of the spacecraft.
+ - I know you’re all saying I can go to the moon but I can’t find Pasadena.
+ - Unfortunately, the suit is so stiff, I can’t do this with two hands, but I’m going to try a little sand-trap shot here.
+ - If somebody’d said before the flight, ‘Are you going to get carried away looking at the Earth from the Moon?’ I would have say, ‘No, no way.’ But yet when I first looked back at the Earth, standing on the Moon, I cried.
+ - We need a continuing presence in space.
+ - Got more dirt than ball. Here we go again.
+ - Of course, in our grade school, in those days, there were no organized sports at all. We just went out and ran around the school yard for recess.
+ - Later, in the early teens, I used to ride my bike every Saturday morning to the nearest airport, ten miles away, push airplanes in and out of the hangars, and clean up the hangars.
+ - The fact that every part of this ship was built by the low bidder.
+ - I think all of us certainly believed the statistics which said that probably 88% chance of mission success and maybe 96% chance of survival. And we were willing to take those odds.
+ - Then I thought, with the same clubhead speed, the ball’s going to go at least six times as far. There’s absolutely no drag, so if you do happen to spin it, it won’t slice or hook ’cause there’s no atmosphere to make it turn.
+ - I woke up an hour before I was supposed to, and started going over the mental checklist: where do I go from here, what do I do? I don’t remember eating anything at all, just going through the physical, getting into the suit. We practiced that so much, it was all rote.
+ - There’s no question that all the generations got excited about the first flights, with Kennedy’s inspiration to go to the moon, leaving the planet for the first time, and fortunately coming back.
+ - We also knew it would be difficult, because of the financial condition of the family, for me to go to college.
+ - I’d like to say I was smart enough to finish six grades in five years, but I think perhaps the teacher was just glad to get rid of me.
+ - The suit was so clumsy, being pressurized, it was impossible to get two hands comfortably on the handle and it’s impossible to make any kind of a turn. It was kind of a one-handed chili-dip.
+ - We had some adverse conditions in the ’60s, in the ’70s and the ’80s. The agency has risen above that in the past and will rise above that again.
+ - I can hit it farther on the moon. But actually, my swing is better here on Earth.
+ - I just wanted to be the first one to fly for America, not because I’d end up in the pages of history books.
+ - I didn’t mind studying. Obviously math and the physical science subjects interested me more than some of the more artistic subjects, but I think I was a pretty good student.
+ - Of course I was delighted the flight was over, but I still had to worry about cleaning up inside the cabin, I had to worry about the hatch, how to get in the sling, and so on.
+ - I think the sense of family and family achievement, plus the discipline which I received there from that one-room school were really very helpful in what I did later on.
+ - The pilot looked at his cues of attitude and speed and orientation and so on and responded as he would from the same cues in an airplane, but there was no way it flew the same. The simulators had showed us that.
+ - So everything turned out fine, and we were given the opportunity to go to Washington and be briefed on the project of man in space, and given the opportunity to choose whether we wanted to get involved or not.
+ - Because of the suit I was wearing, I couldn’t make a good pivot on the swing. And I had to hit the ball with one hand.
+ - The first plane ride was in a homemade glider my buddy and I built. Unfortunately we didn’t get more than four feet off the ground, because it crashed.
+ - The same way people are now paying a couple thousand dollars to fly to other parts of the world, people will be paying $50,000 to spend a weekend on a space station.
+ - And I think that still is true of this business – which is basically research and development – that you probably spend more time in planning and training and designing for things to go wrong, and how you cope with them, than you do for things to go right.
+ - Miles and miles and miles.
+ - But when I was selected, after my very first tour of squadron duty, to become one of the youngest candidates for the test pilot school, I began to realize, maybe you are a little bit better.
+ - We wanted to be in great shape, we wanted to be able to cope with zero gravity, we wanted to be able to cope with accelerations and decelerations and so on. So all of us trained so that we were probably in the best physical condition we had ever been in up until that point.
+ - You may not have any extra talent, but maybe you are just paying more attention to what you are doing.
+ - Then there was the challenge to keep doing better and better, to fly the best test flight that anybody had ever flown. That led to my being recognized as one of the more experienced test pilots, and that led to the astronaut business.
+
+48 quotes

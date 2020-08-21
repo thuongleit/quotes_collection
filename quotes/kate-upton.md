@@ -1,0 +1,40 @@
+ - You find your strengths and play them up.
+ - I want to enjoy life, and I can’t if I’m not eating and miserable.
+ - I hate exercising self-control.
+ - I love my body. It’s what God gave me.
+ - I’m hoping they slow down a little bit with technology, because I’m just trying to keep up.
+ - I think twerking is overrated.
+ - I don’t ever want to be a person that I’m not. A lot of girls fall into the trap where they are trying to impress other people, and that’s the time when they lose themselves.
+ - I love my curves. You know, I’m healthy and I think thats what Sports Illustrated represents: healthy, confident women who love their bodies.
+ - I think it’s very hard to find a good friend. That’s why I’m so lucky to have two sisters, because they’re my best friends, and they have to be with me forever. They’re stuck with me.
+ - People deal with models like they are children. They think they can pull one over on you. It’s actually funny. I’m always like, I’m about to pull something on you, and you’re so focused on thinking I’m dumb you’re not even going to know.
+ - So if I get pegged as a bikini girl, that’s fine, and that can still translate into acting or other areas. But, no, I don’t wanna be doing bikini shoots my whole life.
+ - I like my bikinis very small, and I also like, uh, nude-colored bikinis because people double-take – they think I’m naked on the beach.
+ - I feel confident with myself, and if that inspires other women to feel confident with their bodies, great.
+ - I’m a horseback rider. I know how to use a whip.
+ - My dream was always to be on the cover of ‘Sports Illustrated.’
+ - I’m pretty competitive. I talk a big game – even when I’m going to lose.
+ - Normally, when you go to a beach, everybody is wearing bikinis, but on a film, you’re the only one. There’s like 60 people staring at you. They’re doing their jobs, but they’re still staring at you.
+ - You have to think hard with a tattoo. ‘What will I love for the rest of my life?’
+ - It definitely happens more often than you would think when someone comes up and you’re like: “He’s really attractive and seems really nice,” and it just doesn’t work if he smells bad.
+ - If I can help and influence girls who are going through body-image issues then I think that’s amazing.
+ - I just think that pick-up lines in general are horrible. None of them work.
+ - Anywhere in life, for girls there’s pressure to keep your weight and to keep yourself feeling and looking good.
+ - I want to be able to sing well, but I have the worst voice in the world.
+ - I grew up in Florida riding horses, so for the majority of my life I was either in boots and jeans or a bathing suit.
+ - I’m sure every designer has a certain person in mind who they would ideally like to wear their clothes, but the problem is that a lot of the time that person doesn’t actually exist, unless she is a 15-year-old model.
+ - I’m actually an equestrian, and I showed in the American Paint Horse Association and competed for top 20 in the nation.
+ - I always had career goals. And I figured out a path I wanted to take to accomplish those goals. If that meant calling the best modeling agency in the world, that’s what it meant.
+ - I understand why my male followers like me.
+ - I would love to have my own lingerie line.
+ - I never deprive myself. If I’m craving something once a week, then Ill go have it Ice cream or whatever, I just eat the foods I like.
+ - I think as long as you look like your having a good time, I’m impressed. Because I have a lot of energy, and I like being around it all the time. If you’re just sitting in the corner, I probably won’t notice you.
+ - I have a paralyzing fear of snakes.
+ - I like to laugh. I like to have a good time. I don’t like to be so serious about things, so I would want a guy who would want to laugh and have a good time, too.
+ - I think the fame aspect, there was definitely a period when I had to get used to it. My family had to get used to it, too. It’s exciting.
+ - I can never find the right bras.
+ - I’ve always loved fashion, but it’s not what I set out to do.
+ - So, I have my own horse and two ponies. I grew up around horses, and that really is my passion.
+ - My mom played every sport possible. My dad is ‘extremely’ competitive. You can’t even play Ping-Pong with him.
+
+38 quotes

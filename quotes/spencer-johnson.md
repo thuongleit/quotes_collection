@@ -1,0 +1,34 @@
+ - Better late than never.
+ - Between Peaks There Are Always Valleys. How You Manage Your Valley Determines How Soon You Reach Your Next Peak.
+ - Integrity is telling myself the truth. And honesty is telling the truth to other people.
+ - Change happens when the pain of holding on becomes greater than the fear of letting go.
+ - When you move beyond your fear, you feel free.
+ - If you do not change, you can become extinct !
+ - Look at what happened in the Past. Learn something valuable from it. Do things differently in the present.
+ - When you stop being afraid you feel good.
+ - You have more fun and enjoy more financial success when you stop trying to get what you want and start helping other people get what they want.
+ - The quicker you let go of old cheese, the sooner you find new cheese.
+ - What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists.
+ - It Is Natural For Everyone Everywhere To Have Peaks And Valleys At Work And In Life.
+ - Life moves on and so should we.
+ - Smell the cheese often so you know when it is getting old.
+ - See what you’re doing wrong, laugh at it, change and do better.
+ - A change imposed is a change opposed.
+ - Only when you stop doing what doesn’t work, can things get better.
+ - It is safer to search in the maze than to remain in a cheeseless situation.
+ - The biggest inhibitor to change lies within yourself.
+ - Movement in new direction helps find new cheese.
+ - Finding inner success is the best, easiest and infact the only way to achieve and enjoy everything else in life.
+ - The More Important Your Cheese Is To You The More You Want To Hold On To It.
+ - Noticing small changes early helps you adapt to the bigger change that are to come.
+ - He knew sometimes some fear can be good. When you are afraid things are going to get worse if you don’t do something, it can prompt you into action. But it is not good when you are afraid that it keeps you from doing anything.
+ - Sometimes, Hem, things change and they are never the same again. This looks like one of those times. That’s life! Life moves on. And so should we.
+ - The man realized that what counted was not where a person lived, but how a person lived.
+ - I was taking myself very seriously when I was going through life changes. And I realized that I needed to laugh at myself, particularly at my mistakes.
+ - He asked himself those some questions too many times and felt the fears again that kept him where he was.
+ - Being in the uncomfortable zone is much better than staying in the cheese-less situation .
+ - I guess we resist changing, because we are afraid of change.
+ - I think you have to be much more secure and much less angry to trust the simple. You’ve got to be in a pretty good place to trust those simple, obvious answers and, most important, to use them.
+ - Pain is the difference between what is and what I want it to be.
+
+32 quotes

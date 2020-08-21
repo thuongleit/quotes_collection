@@ -1,0 +1,75 @@
+ - Winning is like shaving – you do it every day or you wind up looking like a bum.
+ - Every team requires unity. A team has to move as one unit, one force, with each person understanding and assisting the roles of his teammates. If the team doesn’t do this, whatever the reason, it goes down in defeat. You win or lose as a team, as a family.
+ - Economic growth doesn’t mean anything if it leaves people out.
+ - Conservatives define compassion not by the number of people who recieve some kind of government aid but rather by the number of people who no longer need it.
+ - There’s only one race – it’s human. We are all brothers and sisters.
+ - There are no limits to our future if we don’t put limits on our people.
+ - I think it is important for all those young out there, who someday hope to play real football, where you throw it and kick it and run with it and put it in your hands, a distinction should be made that football is democratic, capitalism, whereas soccer is a European socialist sport.
+ - We must win the war on poverty by enlisting the greatest weapon ever invented – free enterprise.
+ - Our goals for this nation must be nothing less than to double the size of our economy and bring prosperity and jobs, ownership and equality of opportunity to all Americans, especially those living in our nation’s pockets of poverty.
+ - If we are to change America, we must change the United States Congress.
+ - The power of one man or one woman doing the right thing for the right reason, and at the right time, is the greatest influence in our society.
+ - I can’t hide my feelings.
+ - He’ll call that trickle-down. I call it Niagara Falls.
+ - With the end of the cold war, all the ‘isms’ of the 20th century – Fascism, Nazism, Communism and the evil of apartheid-ism – have failed. Except one. Only democracy has shown itself true the help of all mankind.
+ - My wife had a miscarriage. We have rarely talked about it. It did make me more aware of the sanctity of human life, how precious every child is.
+ - I would be a fool to put my feet down in a position where I can’t accommodate metamorphoses.
+ - In America, we tax work, investment, employment, savings, and production, while we subsidize non-work, consumption, and debt. It’s time we reverse this trend.
+ - In a recent fire Bob Dole’s library burned down. Both books were lost. And he hadn’t even finished coloring one of them.
+ - Councils of war breed timidity and defeatism.
+ - Affirmative action based on quotas is wrong – wrong because it is antithetical to the genius of the American idea: individual liberty.
+ - Football is a metaphor for the kind of country we want to create. It’s based on merit.
+ - I can’t help but care about the rights of the people I used to shower with.
+ - The only law we broke was the Brezhnev doctrine that once a country is in the Soviet bloc it cannot be overthrown.
+ - When people lack jobs, opportunity, and ownership of property they have little or no stake in their communities.
+ - I have come to think that capital punishment should be abolished.
+ - Quarterbacks are always ready.
+ - The zeitgeist is for cutting spending and balancing the budget. But I do not want the Republican Party to be perceived as putting the budget ahead of people, jobs and education.
+ - We don’t need to bring down the rich folk to help the poor.
+ - Democracy without morality is impossible.
+ - The only thing I can do is tell the truth as I see it and let the chips fall where they may.
+ - There’s no limit to what free men and free women in a free market with free enterprise can accomplish when people are free to follow their dream.
+ - I never met a poor person who wanted to soak the rich; they want to get rich.
+ - People want opportunity so they can earn security.
+ - The leaders of the Democratic Party aren’t soft on Communism. They’re soft on Democracy.
+ - Health care amounts to l4% of our GNP-a lot of money. It is the size of the Italian economy. And the president turned it over to his wife.
+ - I’ve been a kind of a wildcatter. I’ve been able to say anything I wanted.
+ - The Soviet Union represents a threat in terms of might. It is a joke in terms of its economy and what it has to offer the Third World – a laughingstock to countries that are looking for an economic-development model.
+ - Of course, every job I ever had I thought I was born for.
+ - There ought to be a thoughtful welfare-reform debate that doesn’t turn into something that could be called scapegoating.
+ - The only way to oppose a bad idea is to replace it with a good idea.
+ - We want peace with all our hearts. But peace cannot be achieved through weakness.
+ - Lately the First Amendment has been interpreted to deny equal protection of the law to those who believe in God. The Constitution established freedom for religion, not freedom from religion!
+ - Ladies and gentlemen, communism didn’t fall. It was pushed.
+ - When democratic governments create economic calamity, free markets get the blame.
+ - The real problem is deflation. That is the opposite of inflation but equally serious to the borrower.
+ - I think Bush understands the Internet and the incredible expansion of global e-commerce.
+ - Some people have theorized that I lurched to prove myself intellectually. But it was not any lurch. It was more a kind of awakening.
+ - Democracy is not a mathematical deduction proved once and for all time. Democracy is a just faith fervently held, commitment to be tested again and again in the fiery furnace of history.
+ - The problem is that the economy isn’t growing fast enough to accommodate the level of spending produced through the democratic process.
+ - There really has not been a strong Republican message to either the poor or the African American community at large.
+ - All too often the Democratic Party has taken the black vote for granted, and all too often the Republican Party has written it off.
+ - I unabashedly, unashamedly, unequivocally support the explosion of entrepreneurs in the capitalist system.
+ - Pro football gave me a good sense of perspective to enter politics: I’d already been booed, cheered, cut, sold, traded and hung in effigy.
+ - Taxes on capital, taxes on labor, inflation, bureaucratic regulation, minimum wage laws, are all – to different degrees – unnecessary slices of the wedge that stand between an individual’s effort and reward for that effort.
+ - I learned about the market’s power when I was traded to the Buffalo Bills for $100.
+ - There’s always cause for concern if bad policies are pursued.
+ - My passion for ideas is not matched with a passion for partisan or electoral politics.
+ - The chance to own a home; chance to own an education; chance to get access to capital. This is the real civil rights battle of the twenty-first century.
+ - There is a kind of victory in good work, no matter how humble.
+ - You cannot create employees without first creating employers.
+ - I think I’ve advanced my views with compassion and tolerance.
+ - The Democratic Party is the party of the status quo.
+ - We are going to make sure that America is open to legal immigration because that is wealth and the talent and the entrepreneurial skills for the 21st Century.
+ - There are a lot of grotesqueries in politics, not the least of which is the fund-raising side.
+ - I think the American people want to see the interactivity between candidates and audiences, and tough questions posed by people and how you handle them under fire.
+ - Republicans many times can’t get the words ‘equality of opportunity’ out of their mouths. Their lips do not form that way.
+ - I can’t understand why the Democratic parties seem so hostile to economic growth and business.
+ - American society as a whole can never achieve the outer-reaches of potential, so long as it tolerates the inner cities of despair.
+ - I am not antigovernment. I would not run a campaign against government.
+ - You don’t boo at a Kemp rally. You boo at football games.
+ - I don’t use labels a lot.
+ - Its no secret that I’ve never liked tax credits.
+ - I am shocked that Republicans can’t explain why our technological and economic advantages are the result of sound monetary and economic policy.
+
+73 quotes

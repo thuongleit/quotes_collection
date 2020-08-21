@@ -1,0 +1,85 @@
+ - Man plans. God laughs.
+ - Memories, you see, hurt. The good ones most of all.
+ - You bring your own weather to the picnic.
+ - Sometimes the loudest cries for help are silent.
+ - Years fly by, but the heart stays in the same place.
+ - The ugliest truth, in the end, was still better than the prettiest of lies.
+ - I love stories. When I’m writing, what I pretend subconsciously is that we’re cavemen, we’re sitting around the fire, and I’m telling you stories. If I bore you, you’re probably going to pick up a big club and hit me over the head.
+ - No, I don’t live in heartache. I don’t cry myself to sleep or any of that. I am, I tell myself, over it. But I do feel a void, icky as that sounds. And – like it or not – I still think about her every single day.
+ - This is the price you pay for having a great father. You get the wonder, the joy, the tender moments – and you get the tears at the end, too.
+ - Genius is a curse. That’s how I look at it. Some think that the brilliant comprehend the universe in a way the rest of us can’t. They see the world how it truly is – and that reality is so horrible the lose their minds. Clarity leads to insanity.
+ - When you like something and you’re pretty good at it and you can make a living doing it, you don’t ask why. You just count your blessings and go with it.
+ - I’m thinking of taking up golf, but the idea of spending time with golfers frightens me.
+ - Hope is cruel. Hope reminds me of what almost was. Hope makes the physical ache return.
+ - Life may not always fall into neat chapters, and you may not always get the satisfying ending you’re looking for, but sometimes a good explanation is all the rewrite you need.
+ - And I love the twist. I love to fool you once, I love to fool you twice, and on the very last page, quite often – very last paragraph sometimes – I like to just play with your perception one more time in a way that makes everything that came before just a little bit different.
+ - I like to see the difference between good and evil as kind of like the foul line at a baseball game. It’s very thin, it’s made of something very flimsy like lime, and if you cross it, it really starts to blur where fair becomes foul and foul becomes fair.
+ - Painful memories didn’t just ease back in-they shoved the door open hard, all of them and all at once.
+ - There are few times that I feel more at peace, more in tune, more Zen, if you will, than when I force myself to unplug.
+ - There is the old catch-22 line that a mentally unstable person can’t know, as per their illness, that they are unstable. But that was wrong. You can and do have the insight to see your own crazy.
+ - Trust is like that. You can break it for a good reason. But it still remains broken.
+ - Amazing what we can self-rationalize when we really want something.
+ - In real life, coincidences happen all the time. In novels, they are leapt upon with fury.
+ - I still try to make the “next” book my “best” book. I want to grip and move you in unexpected ways.
+ - Im 48 years old, not a kid anymore by any definition, but here is a universal truth that every adult at some point will realize: We are all always 17 years old, waiting for our lives to begin.
+ - I pretty much only wear Lilly Pulitzer ties because my best friend owns the company.
+ - Sure, on a larger scale, it was healthy to have people out there you cared about more than yourself. She knew that. But then there was the abject fear you would lose it. They say possessions own you. Not so. Loved ones own you. You are forever held hostage once you care so much.
+ - Kids don’t do what their parents say-they do what they see their parents do. So who was to blame here?
+ - My house has too many distractions. There’s the email. There’s checking my Amazon ranking. I know I’m the only author who’s ever done that, ever. There’s the fax. Too many distractions. I like to go out and write.
+ - Part of the human condition is that we all think that we are uniquely complex while everyone else is somewhat simpler to read. That is not true, of course. We all have our own dreams and hopes and wants and lust and heartaches. We all have our own brand of crazy.
+ - When I was seventeen, I worked as a counsellor at a co-ed sleep-away camp for eight weeks. I loved it but it could be harrowing – it was far too much responsibility for someone my age.
+ - Its funny how you can let yourself forget for seconds, how even in the heat of the horrible, you can have moments when you fool yourself into thinking it might all be okay.
+ - Being a parent is not for the faint of heart. I may joke about knowing fear, but the fact is, the first time I ever knew real fear was the day Charlotte, my first child, was born. Suddenly there is someone in the world you care about more than anything.
+ - Hope can be the most wonderful thing in the world or it can crush your heart like an eggshell.
+ - Tragedy is a hell of a teacher. It’s much too strict, but it’s a hell of a teacher.
+ - I love to make even villains people you can relate to. When you find out who did it, I think you almost like the person, which is not easy to do.
+ - I try to stress to my children that buying something never leads to true happiness.
+ - The first sip of beer on a hot day is like that first finger-dip when you open a new jar of peanut butter.
+ - You can’t have an up without a down, a right without a left, a back without a front – or a happy without a sad.
+ - I don’t necessarily love the sports per se, I love the stories behind them. Also in a kind of perverse way I like to study what it does to us, why we care so much. It’s caring about something that’s utterly meaningless.
+ - We’re called New Jersey but we’re actually the suburbs of New York.
+ - You want this so badly – this second chance, this chance at real redemption – that you can’t see the truth.
+ - I once worked as a tour guide in the Costa del Sol of Spain.
+ - Only bad writers think they’re good.
+ - William Goldman’s Marathon Man was a novel that taught me about suspense. I was maybe 16 years old when I read it and I remember thinking, “You could put a gun to my head and I wouldn’t put this book down.” I loved that feeling – and want to give it others.
+ - A novel is like a sausage. You might like the final taste but you don’t want to see how it was made.
+ - That’s the problem with falling in love. It makes you start talking like a bad country song.
+ - You don’t worry about happiness and fulfilment when you’re starving.
+ - In the end, we know what makes us happy. We also know what makes us unhappy. That’s the irony. We know and yet we still mess it up. That’s part of the human condition, no, and why we need to work on it.
+ - We all think that we are uniquely complex, that no one can see what we are thinking – yet we also believe that we have the rare ability to read others. This fascinates me at the moment.
+ - Frankly I’m fairly boring or fairly busy. Between writing and family, I have little time for anything else.
+ - Writing a novel in general is like trying to reach a mountain top you’ll never quite reach – so you try again and maybe get a little closer.
+ - The readers are the ones who let us live our dreams. I try to write books which are really compelling – that you’d take on vacation and rather than going out, you’d read in your hotel room because you had to find out what happened. Hopefully that’s what readers are responding to.
+ - A dancer on break approached him. She smiled. Each tooth was angled in a different direction, as if her mouth were the masterwork of a mad orthodontist. “Hi,” she said. “Hi.” “You’re really cute.” “I don’t have any money.” She spun and walked away. Ah, romance.
+ - I’m a little bit of a control freak.
+ - The most annoying and full- of- crap thing a writer says is, I write only for myself, I don’t care if anyone reads it. A writer without a reader doesn’t exist.
+ - The actual writing time is a lot shorter than the thinking time. I don’t do too many notes. I keep it mostly in my head. I usually start writing a new book around January, and it’s due October 1.
+ - I always think the insecurity is going to go away, but it’s always there. Only bad writers think they’re good.
+ - Let me back up a little and tell you why I prefer writing to real life: You can rewrite. A novel, for example, can be cleaned up, altered, trimmed, improved. Life, on the other hand, is one big messy rough draft.
+ - I am very lucky that I get to tell stories for a living. I love being able to grab people’s attention, to keep them turning the pages, to make them stay awake all night. I want to stir the pulse, yes, but also to stir the heart. I hope ‘The Woods’ does that.
+ - No characters in ‘Stay Close,’ including the leads, are black and white. I want them to be grey. I think that makes for a much more interesting reading experience, something that will stay with you a little bit longer.
+ - Kate Atkinson is an absolute must-read. I love everything she writes.
+ - The book I always say that influenced me, subconsciously, because at the time I didn’t know I wanted to be a writer, was William Goldman’s ‘Marathon Man.’ That was the first adult thriller that I loved. I read it when I was 15 or so, when my father gave it to me.
+ - The preparation for building a series of thrillers based on a single character is kind of like the preparation for becoming a parent: The best part is the idea – wink, wink.
+ - In short, the satisfaction of creating, not necessarily the process, always lifts my heart.
+ - I’ve never chased the dollar, I’ve always chased the reader’s heart. I love having more readers. The more people who read it, the more thrilled I am.
+ - There is a certain fate to the universe and a certain randomness.
+ - I’m the Jerry Lewis of crime fiction.
+ - That’s what a good crime novelist – any good novelist – should do with you: play with your perceptions while showing you everything in plain sight.
+ - I’m also inspired by anything that I consider great. It makes me want to raise my game too – Hitchcock movies, Hopper paintings, Springsteen concerts.
+ - I like to go out and write. So I’ll often go to a Starbucks or a local coffee bar, and I’ll sit there and I’ll write. I can write pretty much anywhere.
+ - I always say three things make a writer: inspiration, obviously; perspiration, doing the work. But the third is desperation. I’m not really fit for anything else, or to have a real job. That fear drives me. The pressure has always been self inflicted.
+ - The actual writing time is a lot shorter than the thinking time.
+ - A trial is two narratives competing for your attention.
+ - I don’t find any real rivalries with crime and thriller writers anyway. That might sound a little Pollyanna, but for the most part the writers I compete with, if you want to use that word, it’s a pretty friendly rivalry. I think we all realise that the boat rises and sinks together.
+ - I would rather raise certain topics and maybe let you ruminate on them. I’m not big on answering them.
+ - So basically your plan is to flail about helplessly.
+ - Writers always say, ‘I always knew I wanted to be a writer; when I was a three-month-old foetus a pen formed in my hand and I began to scratch my first story on the inside of my mother’s womb.’ I started later, in my early twenties.
+ - An hour before his world exploded like a ripe tomato under a stiletto heel, Myron bit into a fresh pastry that tasted suspiciously like urinal cake.
+ - This was a place where tattoos outnumbered teeth.
+ - I would never write a memoir, because it would be too boring.
+ - I am, after all, a thriller writer. I routinely delve into the darkest chambers of the human heart. I’ve written about murder, kidnapping, depravity, horror, violence, and disfigurement.
+ - There are three things that make a person a writer: inspiration, perspiration and desperation.
+ - I’d never had money growing up, and it’s never been that important to me, except maybe to take our kids on a nice vacation or something like that.
+
+83 quotes

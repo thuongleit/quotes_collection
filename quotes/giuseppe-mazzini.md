@@ -1,0 +1,47 @@
+ - The religion of humanity is love.
+ - Constancy is the complement of all other human virtues.
+ - Music is the harmonious voice of creation; an echo of the invisible world.
+ - The family is the country of the heart.
+ - Labor is the divine law of our existence.
+ - Poetry is enthusiasm with wings of fire; it is the angel of high thoughts, that inspires us with the power of sacrifice.
+ - God holds with the strong.
+ - Art does not imitate, but interpret.
+ - Ideas grow quickly when watered with the blood of martyrs.
+ - Love your country. Your country is the land where your parents sleep, where is spoken that language in which the chosen of your heart, blushing, whispered the first word of love; it is the home that God has given you that by striving to perfect yourselves therein you may prepare to ascend to him.
+ - Love and respect woman. Look to her not only for comfort, but for strength and inspiration and the doubling of your intellectual and moral powers. Blot out from your mind any idea of superiority; you have none.
+ - The mother’s first kiss teaches the child love; the first holy kiss of the woman he loves teaches man hope and faith in life.
+ - Every nation is destined, by the law of God and humanity, to form a free and equal community of brothers.
+ - No nation deserves freedom or can long retain it which does not win it for itself. Revolutions must be made by the people and for the people.
+ - Every mission constitutes a pledge of duty. Every man is bound to consecrate his every faculty to its fulfilment. He will derive his rule of action from the profound conviction of that duty.
+ - Good council has no price.
+ - Without Country you have neither name, token, voice, nor rights, no admission as brothers into the fellowship of the Peoples.
+ - Liberty and equality – lovely and sacred words!
+ - Great revolutions are the work rather of principles than of bayonets, and are achieved first in the moral, and afterwards in the material sphere.
+ - To be mistaken is a misfortune to be pitied; but to know the truth and not to conform one’s actions to it is a crime which Heaven and Earth condemn.
+ - In ourselves, rather than in material nature, lie the true source and life of the beautiful. The human soul is the sun which diffuses light on every side, investing creation with its lovely hues, and calling forth the poetic element that lies hidden in every existing thing.
+ - So long as you are ready to die for humanity, the life of your country is immortal.
+ - Art does not imitate, but interpret. It searches out the idea lying dormant in the symbol, in order to present the symbol to men in such form as to enable them to penetrate through it to the idea. Were it otherwise, what would be the use or value of art?
+ - What is the most important duty? One’s duty toward one’s parent.
+ - A Country is not a mere territory; the particular territory is only its foundation. The Country is the idea which rises upon that foundation; it is the sentiment of love, the sense of fellowship which binds together all the sons of that territory.
+ - God has given you your country as cradle, and humanity as mother; you cannot rightly love your brethren of the cradle if you love not the common mother.
+ - Insurrection by means of guerrilla bands is the true method of warfare for all nations desirous of emancipating themselves from a foreign yoke. It is invincible, indestructible.
+ - Hope nothing from foreign governments. They will never be really willing to aid you until you have shown that you are strong enough to conquer without them.
+ - The great men of the earth are but the marking-stones on the road of humanity; they are the priests of its religion.
+ - Pardon is the virtue of victory.
+ - A nation isthe universality of citizens speaking the same tongue.
+ - The theory of rights enables us to rise and overthrow obstacles, but not to found a strong and lasting accord between all the elements which compose the nation.
+ - Sorrow is not evil, since it stimulates and purifies.
+ - The republic, as I at least understand it, means association, of which liberty is only an element, a necessary antecedent. It means association, a new philosophy of life, a divine Ideal that shall move the world, the only means of regeneration vouchsafed to the human race.
+ - Music is the fragrance of the universe.
+ - Tradition and conscience are the two wings given to the human soul to reach the truth.
+ - Liberty, understood by materialists as the right to do or not to do anything not directly injurious to others, we understand as the faculty of choosing, among the various modes of fulfilling duty, those most in harmony with our own tendencies.
+ - Nations, like individuals, live and die; but civilization cannot die.
+ - Shakespeare’s personages live and move as if they had just come from the hand of God, with a life that, though manifold, is one, and, though complex, is harmonious.
+ - Men of great genius and large heart sow the seeds of a new degree of progress in the world, but they bear fruit only after many years.
+ - The honor of a country depends much more on removing its faults than on boasting of its qualities.
+ - The obscurest sayings of the truly great are often those which contain the germ of the profoundest and most useful truths. Genius rapidly traverses the living present to bury itself in the deepest mysteries of the universe; often making the grandest discoveries at a single glance.
+ - The epoch of individuality is concluded, and it is the duty of reformers to initiate the epoch of association. Collective man is omnipotent upon the earth he treads.
+ - Slumber not in the tents of your fathers. The world is advancing.
+ - Each of us brings with him an element, more or less important, of the life of humanity to come.
+
+45 quotes

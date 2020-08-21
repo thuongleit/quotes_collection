@@ -1,0 +1,42 @@
+ - The best way out is always through. ~~Robert Frost
+ - Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. ~~Samuel Beckett
+ - Perseverance, secret of all triumphs. ~~Victor Hugo
+ - Nothing is more beautiful than a smile that has struggled through tears. ~~Demi Lovato
+ - If you don’t value your time, neither will others. Stop giving away your time and talents- start charging for it. ~~Kim Garst
+ - When life knocks you down, try to land on your back. Because if you can look up, you can get up. Let your reason get you back up. ~~Les Brown
+ - Action is the foundational key to all success.  ~~Pablo Picasso
+ - If I can’t make it through one door, I’ll go through another door- or i’ll make a door. Something terrific will come no matter how dark the present. ~~Rabindranath Tagore
+ - Never allow a person to tell you no who doesn’t have the power to say yes. ~~Eleanor Roosevelt
+ - Courage isn’t having the strength to go on - it is going on when you don’t have strength. ~~Napoleon
+ - Most humans are never fully present in the now, because unconsciously they believe that the next moment must be more important than this one. But then you miss your whole life, which is never not now. ~~Eckhart Tolle
+ - Turn you situation over to God because He can do more in a moment than you can do in a lifetime. ~~Joyce Meyer
+ - The greater the difficulty the more glory in surmounting it. Skillful pilots gain their reputation from storms and tempests. ~~Epictetus
+ - An expert is a man who has made all the mistakes which can be made, in a narrow field. ~~Niels Bohr
+ - You never know how close you are to a breakthrough. It may be right around the corner. Don’t quit! ~~Joyce Meyer
+ - Autumn is a second spring when every leaf is a flower. ~~Albert Camus
+ - Take calculated risks. That is quite different from being rash. ~~George S. Patton Jr.
+ - Flatter me, and I may not believe you. Criticize me, and I may not like you. Ignore me, and I may not forgive you. Encourage me, and I will not forget you. Love me and I may be forced to love you. ~~William Arthur Ward
+ - If you don’t pay appropriate attention to what has your attention, it will take more of your attention than it deserves. ~~David Allen
+ - It is by going down into the abyss that we recover the treasures of life. Where you stumble, there lies your treasure. ~~Joseph Campbell
+ - Never become so much of an expert that you stop gaining expertise. View life as a continuous learning experience. ~~Denis Waitley
+ - Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure. It is our light, not our darkness that most frightens us. ~~Marianne Williamson
+ - Don’t live down to expectations. Go out there and do something remarkable. ~~Wendy Wasserstein
+ - Above all, be the heroine of your life, not the victim. ~~Nora Ephron
+ - Be not afraid of life. Believe that life is worth living, and your belief will help create the fact. ~~William James
+ - I haven’t been everywhere, but it’s on my list. ~~Susan Sontag
+ - Trust yourself, you know more than you think you do. ~~Benjamin Spock
+ - Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. ~~Dale Carnegie
+ - Faith is the bird that feels the light when the dawn is still dark. ~~Rabindranath Tagore
+ - Failure will never overtake me if my determination to succeed is strong enough. ~~Og Mandino
+ - You don’t learn to walk by following rules. You learn by doing and falling over. ~~Richard Branson
+ - Just as despair can come to one only from other human beings, hope, too, can be given to one only by other human beings. ~~Elie Wiesel
+ - Never confuse a single defeat with a final defeat. ~~F. Scott Fitzgerald
+ - Problems are not stop signs, they are guidelines. ~~Robert H. Schuller
+ - Never give up, for that is just the place and time that the tide will turn. ~~Harriet Beecher Stowe
+ - All great achievements require time. ~~Maya Angelou
+ - Great spirits have always encountered violent opposition from mediocre minds. ~~Albert Einstein
+ - A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. ~~Muhammad Ali
+ - Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ~~Marie Curie
+ - I can accept failure, everyone fails at something. But I can't accept not trying. ~~Michael Jordan
+
+40 quotes

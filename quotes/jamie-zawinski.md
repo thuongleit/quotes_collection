@@ -1,0 +1,35 @@
+ - Linux is only free if your time has no value.
+ - Don’t do drugs, kids. Stay in school.
+ - If you give a hacker a new toy, the first thing he’ll do is take it apart to figure out how it works.
+ - Software Engineering might be science; but that’s not what I do. I’m a hacker, not an engineer.
+ - The universe tends toward maximum irony. Don’t push it.
+ - And when the time comes to replace the O2 I have today, maybe my next machine will run Linux.
+ - I think Linux is a great thing, in the big picture. It’s a great hacker’s tool, and it has a lot of potential to become something more.
+ - You can’t take a dying project, sprinkle it with the magic pixie dust of “open source,” and have everything magically work out.
+ - If you want to do something that’s going to change the world, build software that people want to use instead of software that managers want to buy.
+ - One of the best programmers I ever hired had only a High School degree; he’s produced a lot of great software, has his own news group, and made enough in stock options to buy his own nightclub.
+ - I think Linux is a great thing, because Linux is an alternative to Windows, and because, of all the operating systems that are at all relevant today, Unix is the best of a bad lot.
+ - To a database person, every nail looks like a thumb. Or something like that.
+ - Mostly I use the O2 as an X terminal, however, running my apps on Linux and displaying remotely.
+ - See, unlike most hackers, I get little joy out of figuring out how to install the latest toy.
+ - My one purpose in life is to serve as a warning to others.
+ - It combines the power of C with the readability of PostScript.
+ - Your “use case” should be, there’s a 22 year old college student living in the dorms. How will this software get him laid?
+ - You can always affect things – so can you change it in a way that will make you as happy with it in the future as you were in the past? Maybe it won’t be the same, but it might be something else you also like.
+ - Your needs are big because the Internet is big.
+ - Of course, all of the software I write runs on Linux; that’s the beauty of standards, and of cross-platform code. I don’t have to run your OS, and you don’t have to run mine, and we can use the same applications anyway!
+ - Any time someone says “that’s it, I’m leaving” I ask them whether they’d prefer to live under US domestic policy, or US foreign policy. As bad as things get inside an empire, they’re usually worse in the protectorates.
+ - I use a really simple calendar program on my computer.
+ - Every program attempts to expand until it can read mail. Those programs which cannot so expand are replaced by ones which can.
+ - I eat and drink at my desk, but I’m a tidy eater.
+ - The real bug here is that the design of the system even permits this class of bug. It is unconscionable that someone designing a critical piece of security infrastructure would design the system in such a way that it does not fail safe.
+ - There is a lot of money to be made in the business of secrets, of course.
+ - C has all the expressive power of two dixie cups and a string.
+ - Why should someone have to retrain themselves to use a new application that does the same basic thing as the old application, just because something as trivial as the operating system changed out from under them?
+ - Our focus in the client group had always been to build products and features that people wanted to use. That we wanted to use. That our moms wanted to use.
+ - Because, you see, what I want to do is to commoditize the OS. I want to have access to all the applications that I need to do the things that I need to do, regardless.
+ - On the other hand, there would be some value in different folks getting together to share expertise and technology; but to the listener, it wouldn’t necessarily seem like a single station in the traditional sense.
+ - Nothing stands still. The real question is can you change it?
+ - You can divide our industry into two kinds of people: those who want to go work for a company to make it successful, and those who want to go work for a successful company.
+
+33 quotes

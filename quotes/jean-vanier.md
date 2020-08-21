@@ -1,0 +1,70 @@
+ - To love someone is to show to them their beauty, their worth and their importance.
+ - In any case, community is not about perfect people. It is about people who are bonded to each other, each of whom is a mixture of good and bad, darkness and light, love and hate.
+ - When we begin to believe that there is greater joy in working with and for others, rather than just for ourselves, then our society will truly become a place of celebration.
+ - Growth begins when we start to accept our own weakness.
+ - Community is not an ideal; it is people. It is you and I. In community we are called to love people just as they are with their wounds and their gifts, not as we want them to be.
+ - A growing community must integrate three elements: a life of silent prayer, a life of service and above all of listening to the poor, and a community life through which all its members can grow in their own gift.
+ - The strong need the weak as much as the weak need the strong.
+ - In the end, the most important thing is not to do things for people who are poor and in distress, but to enter into relationship with them, to be with them and help them find confidence in themselves and discover their own gifts.
+ - A community which refuses to welcome – whether through fear, weariness, insecurity, a desire to cling to comfort, or just because it is fed up with visitors – is dying spiritually.
+ - Peace is the fruit of love, a love that is also justice. But to grow in love requires work – hard work. And it can bring pain because it implies loss – loss of the certitudes, comforts, and hurts that shelter and define us.
+ - Love doesn’t mean doing extraordinary or heroic things. It means knowing how to do ordinary things with tenderness.
+ - Each person is sacred, no matter what his or her culture, religion, handicap, or fragility. Each person is created in God’s image; each one has a heart, a capacity to love and to be loved.
+ - When we judge, we are pushing people away; we are creating a wall, a barrier. When we forgive we are destroying barriers, we come closer to others.
+ - I am struck by how sharing our weakness and difficulties is more nourishing to others than sharing our qualities and successes.
+ - Community means caring: caring for people. Dietrich Bonhoeffer says: “He who loves community destroys community; he who loves the brethren builds community.” A community is not an abstract ideal.
+ - To be lonely is to feel unwanted and unloved, and therefor unloveable. Loneliness is a taste of death. No wonder some people who are desperately lonely lose themselves in mental illness or violence to forget the inner pain.
+ - Wisdom is something that comes, little by little, through a lot of listening.
+ - Every child, every person needs to know that they are a source of joy; every child, every person, needs to be celebrated. Only when all of our weaknesses are accepted as part of our humanity can our negative, broken self-images be transformed.
+ - The belly laugh is the best way to evacuate anguish.
+ - One of the marvelous things about community is that it enables us to welcome and help people in a way we couldn’t as individuals.
+ - Love is an act of endless forgiveness.
+ - Many people are good at talking about what they are doing, but in fact do little. Others do a lot but don’t talk about it; they are the ones who make a community live.
+ - Jesus is the starving, the parched, the prisoner, the stranger, the naked, the sick, the dying. Jesus is the oppressed, the poor. To live with Jesus is to live with the poor. To live with the poor is to live with Jesus.
+ - Every human being is a mixture of light and darkness, trust and fear, love and hate.
+ - A community that is growing rich and seeks only to defend its goods and its reputation is dying. It has ceased to grow in love. A community is alive when it is poor and its members feel they have to work together and remain united, if only to ensure that they can all eat tomorrow!
+ - Community is a sign that love is possible in a materialistic world where people so often either ignore or fight each other. It is a sign that we don’t need a lot of money to be happy – in fact, the opposite.
+ - When children are loved, they live off trust; their bides and hearts open up to those who respect and love them, who understand and listen to them.
+ - We have to remind ourselves constantly that we are not saviours. We are simply a tiny sign, among thousands of others, that love is possible, that the world is not condemned to a struggle between oppressors and oppressed, that class and racial warfare is not inevitable.
+ - Love is to recognize that the other person is a person, is precious, is important and has value.
+ - The cry for love and communion and for recognition that rises from the hearts of people in need reveals the fountain of love in us and our capacity to give life.
+ - To invite others to live with us is a sign that we aren’t afraid, that we have a treasure of truth and of peace to share.
+ - It is only when we stand up, with all our failings and sufferings, and try to support others rather than withdraw into ourselves, that we can fully live the life of community.
+ - Prayer is like a secret garden made up of silence and rest and inwardness. But there are a thousand and one doors into this garden and we all have to find our own.
+ - When we love and respect people, revealing to them their value, they can begin to come out from behind the walls that protect them.
+ - Envy comes from people’s ignorance of, or lack of belief in, their own gifts.
+ - There is nothing stronger than a heart which loves and is freely given.
+ - I have discovered the value of psychology and psychiatry, that their teachings can undo knots in us and permit life to flow again and aid us in becoming more truly human.
+ - Community begins in mystery and ends in administration. Leaders move away from people and into paper.
+ - So many in our world today are suffering from isolation, war and oppression. So much money is spent on the construction of armaments. Many, many young people are in despair because of the danger...
+ - People are longing to rediscover true community. We have had enough of loneliness, independence and competition.
+ - We don’t know what to do with our own pain, so what to do with the pain of others? We don’t know what to do with our own weakness except hide it or pretend it doesn’t exist. So how can we welcome fully the weakness of another if we haven’t welcomed our own weakness?
+ - Life is a succession of crises and moments when we have to rediscover who we are and what we really want.
+ - Communion is mutual trust, mutual belonging; it is the to-and-fro movement of love between two people where each one gives and each one receives. Communion is not a fixed state, it is an...
+ - Our danger is to think that happiness will come from outside of us, from the things we possess or the power of our group, and not from within us, from the inner sanctuary of our being.
+ - We all know well that we can do things for others and in the process crush them, making them feel that they are incapable of doing things by themselves. To love someone is to reveal to them their capacities for life, the light that is shining in them.
+ - Stop looking for peace. Give yourselves where you are. Stop looking at yourselves, look instead at your brothers and sisters in need. Ask how you can better love your brothers and sisters. Then you will find peace.
+ - To live with Jesus is to live with the poor. To live with the poor is to live with Jesus.
+ - Those we most often exclude from the normal life of society, people with disabilities, have profound lessons to teach us.
+ - The friend of time doesn’t spend all day saying: ‘I haven’t got time.’ He doesn’t fight with time. He accepts it and cherishes it.
+ - We work for peace every time we exercise authority with wisdom and authentic love.
+ - Look at your own poverty welcome it cherish it don’t be afraid share your death because thus you will share your love and your life.
+ - A Christian community should do as Jesus did: propose and not impose. Its attraction must lie in the radiance cast by the love of brothers.
+ - It is difficult to make people understand that the ideal doesn’t exist, that personal equilibrium and the harmony they dream of come only after years and years of struggle, and that even then they come only as flashes of grace and peace.
+ - Put on light-coloured clothes and some perfume, take care of your body and do everything you can to fight against the forces of darkness. It is not an easy struggle, but it is worthwhile.
+ - All of us have a secret desire to be seen as saints, heroes, martyrs. We are afraid to be children, to be ourselves.
+ - Every human activity can be put at the service of the divine and of love. We should all exercise our gift to build community.
+ - We cannot grow spiritually if we ignore our humanness, just as we cannot become fully human if we ignore our spirituality.
+ - This evolution towards a real responsibility for others is sometimes blocked by fear. It is easier to stay on the level of a pleasant way of life in which we keep our freedom and our distance. But that means that we stop growing and shut ourselves up in our own small concerns and pleasures.
+ - He who is or has been deeply hurt has a RIGHT to be sure he is LOVED.
+ - Avoid the poison in your life that brings you turmoil.
+ - True peace can rarely be imposed from the outside; it must be born within and between communities through meetings and dialogue and then carried outward.
+ - People may come to our communities because they want to serve the poor; they will only stay once they have discovered that they themselves are poor.
+ - If we are to grow in love, the prisons of our egoism must be unlocked. This implies suffering, constant effort and repeated choices.
+ - Power always has a direction. It is always downward, towards the weak but power is often confused with what is right.
+ - People cannot accept their own evil if they do not at the same time feel loved, respected and trusted.
+ - So we need places, laboratories, the creation of places which could be each one of our homes, where we invite people who are different, and we listen to each other, people of different class groups.
+ - We discover that we are at the same time very insignificant and very important, because each of our actions is preparing the humanity of tomorrow; it is a tiny contribution to the construction of the huge and glorious final humanity.
+ - A tension or difficulty can signal the approach of a new grace of God. But it has to be looked at wisely and humanly.
+
+68 quotes

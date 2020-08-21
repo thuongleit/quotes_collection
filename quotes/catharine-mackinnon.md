@@ -1,0 +1,26 @@
+ - Power is being able to say complete and utter nonsense and have it be believed, powerlessness is where no matter how much cogent evidence and proof one has, to not be believed.
+ - Women and men are divided by gender, made into the sexes as we know them, by the social requirements of heterosexuality, which institutionalizes male sexual dominance and female sexual submission.
+ - It’s particularly hard to take being stabbed in the back close to home. There’s always a feeling of betrayal when people of your own group oppose you.
+ - Women are socially disadvantaged in controlling sexual access to their bodies through socialization to customs that define a woman’s body as for sexual use by men. Sexual access is regularly forced or pressured or routinized beyond denial.
+ - You grow up with your father holding you down and covering your mouth so another man can make a horrible searing pain between your legs.
+ - Feminism is built on believing women’s accounts of sexual use and abuse by men.
+ - If pornography is part of your sexuality, then you have no right to your sexuality.
+ - Sexuality is to feminism what work is to Marxism...
+ - Postmodernism is an academic theory, originating in academia with an academic elite, not in the world of women and men, where feminist theory is rooted.
+ - In a society in which equality is a fact, not merely a word, words of racial or sexual assault and humiliation will be nonsense syllables.
+ - The arena of logic was made by men for men; it was expressly founded on the exclusion of what is not male, as well as what is not Greek, not Christian, nor Western, not Aryan.
+ - The unnamed should not be mistaken for the nonexistent.
+ - So the idea that there is nothing essential, in the sense that there are no human universals, is dogma. Ask most anyone who is going to be shot at dawn.
+ - In my opinion, no feminism worthy of the name is not methodologically post-marxist.
+ - People can find eroticism in relations with people whom they respect and whom they see as equals.
+ - Law in the United States is at once a powerful medium and a medium for power.
+ - It’s mainly a few elite women who benefit greatly from standing with the forces that keep women down.
+ - If you want to know who is being hurt in this society, go see what is being done and to whom in pornography and then go look for them other places in the world.
+ - What postmodernism gives us instead is a multicultural defense for male violence – a defense for it wherever it is, which in effect is a pretty universal defense.
+ - Can postmodernism hold the perpetrators of genocide accountable?
+ - In not having an appointment at Harvard, I’m in the company of a great many people whose work I admire tremendously, in particular women of color.
+ - An individual’s treatment and alternatives in life may depend as much on the reputation of the group to which that person belongs as on their own merit.
+ - To be a prisoner means to be defined as a member of a group for whom the rules of what can be done to you, of what is seen as abuse of you, are reduced as part of the definition of your status.
+ - Instead of being lionized and admired for her genius, instead of being able to earn a decent living as a writer, Andrea Dworkin was misrepresented and demonized.
+
+24 quotes

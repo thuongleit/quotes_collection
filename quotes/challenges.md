@@ -1,0 +1,42 @@
+ - Don’t limit your challenges; challenge your limits. Each day we must strive for constant and never ending improvement. ~~Tony Robbins
+ - Keep challenging yourself to think better, do better, and be better. ~~Robin S. Sharma
+ - Every change is a challenge to become who we really are. ~~Marianne Williamson
+ - I challenge you. Be obsessed with improvement! ~~Eric Thomas
+ - The key of success is for you to set one big, challenging goal and then to pay any price, overcome any obstacle and persist through any difficulty until you finally achieve it. ~~Brian Tracy
+ - I want to challenge you today to get out of your comfort zone. You have so much incredible potential on the inside. God has put gifts and talents in you that you probably don’t know anything about. ~~Joel Osteen
+ - It’s always darkest before the dawn. The bigger your challenge, the closer you are to your victory. ~~Joel Osteen
+ - Challenge everything, assume nothing. ~~Sergio Zyman
+ - The challenges we face in life are always lessons that serve our soul’s growth. ~~Marianne Williamson
+ - In a growth mindset, challenges are exciting rather than threatening. So rather than thinking, oh, I’m going to reveal my weaknesses, you say, wow, here’s a chance to grow. ~~Carol S. Dweck
+ - When you first start off trying to solve a problem, the first solutions you come up with are very complex, and most people stop there. But if you keep going, and live with the problem and peel more layers of the onion off, you can often times arrive at some very elegant and simple solutions. ~~Steve Jobs
+ - I challenge you to be the best you can be! I challenge you to behave in ways you’ve never behaved. ~~Eric Thomas
+ - I accept any challenge. ~~Jennifer Hudson
+ - We choose to go to the moon in this decade and do the other things. Not because they are easy, but because they are hard. ~~John F. Kennedy
+ - The big challenge is to become all that you have the possibility of becoming. You cannot believe what it does to the human spirit to maximize your human potential and stretch yourself to the limit. ~~Jim Rohn
+ - I like to set myself a new adventure challenge at least once or twice a year because I love that side of my life. I love getting fit and training for it. ~~Richard Branson
+ - It’s the lack of faith that makes people afraid of meeting challenges, and I believe in myself. He who is not courageous enough to take risks will accomplish nothing in life. I figured that if I said it enough, I would convince the world that I really was the greatest. ~~Muhammad Ali
+ - Preservation of our environment is not a liberal or conservative challenge, it’s common sense. ~~Ronald Reagan
+ - All the poems have wolves in them. All but one. The most beautiful one of all. She dances in a ring of fire and throws off the challenge with a shrug. ~~Jim Morrison
+ - I don’t just try to score. The challenge is elevating my teammates to be able to win a championship. ~~Kobe Bryant
+ - The longer we dwell on our misfortunes, the greater is their power to harm us ~~Voltaire
+ - Suffering presents us with a challenge: to find our goals and purpose in our lives that make even the worst situation worth living through. ~~Viktor E. Frankl
+ - If you aren’t in over your head, how do you know how tall you are? ~~T. S. Eliot
+ - The greatest challenge to any thinker is stating the problem in a way that will allow a solution. ~~Bertrand Russell
+ - The challenge of modernity is to live without illusions and without becoming disillusioned. ~~Antonio Gramsci
+ - Winning does not tempt that man. This is how he grows: by being defeated, decisively, by greater and greater beings. ~~Rainer Maria Rilke
+ - Throughout the centuries there were men who took first steps, down new roads, armed with nothing but their own vision. ~~Ayn Rand
+ - If the challenge we face doesn’t scare us, then it’s probably not that important. ~~Tim Ferriss
+ - The most rewarding things you do in life are often the ones that look like they cannot be done. ~~Arnold Palmer
+ - The great challenge is to refuse to let the bad things that happen to us do bad things to us. That is the crucial difference between adversity and tragedy. ~~Neal A. Maxwell
+ - You just never give up, no matter how hard the challenges are, and observe this world with a healthy dose of criticism and don’t just follow the herd like somebody else might do. ~~Renny Harlin
+ - Some of the best people with whom you can have a relationship are the people who challenge your thinking. ~~T.D. Jakes
+ - The biggest challenge you have is to challenge your own self doubt and your laziness. It is your self doubt and your laziness that defines and limit who you are. ~~Robert T. Kiyosaki
+ - The challenge before us is to savor the unknown and delight in the taste of possibility. ~~Mary Anne Radmacher
+ - Real patriotism is a willingness to challenge the government when it’s wrong. ~~Ron Paul
+ - If you face a challenging task from God today, ask yourself, “How would Jesus handle this?” Then go and do the same. ~~David Jeremiah
+ - I challenge anyone to understand Islam, its spirit, and not to love it. It is a beautiful religion of brotherhood and devotion. ~~Yann Martel
+ - We must turn the greatest collective challenge facing humankind today, climate change, into the greatest opportunity for common progress towards a sustainable future. ~~Ban Ki-Moon
+ - The duty of youth is to challenge corruption. ~~Kurt Cobain
+ - Everything negative – pressure, challenges – is all an opportunity for me to rise. ~~Kobe Bryant
+
+40 quotes

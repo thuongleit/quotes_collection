@@ -1,0 +1,28 @@
+ - After all, when you come right down to it, how many people speak the same language even when they speak the same language?
+ - The things that matter don’t necessarily make sense.
+ - A family is everybody all together.
+ - I’d always assumed I was the central character in my own story, but now it occured to me I might in fact be only a minor character in someone else’s.
+ - The zoo is a prison for animals who have been sentenced without trial and I feel guilty because I do nothing about it. I wanted to see an oyster-catcher, so I was no better than the people who caged the oyster-catcher for me to see.
+ - But when I don’t smoke I scarcely feel as if I’m living. I don’t feel as if I’m living unless I’m killing myself.
+ - A map is the dead body of where you’ve been. A map is the unborn baby of where you’re going. There are no maps. Maps are pictures of what isn’t.
+ - And now it seems she’s on my wavelength. That’s all I need. My mind isn’t much of a comfort to me but at least I thought it was private.
+ - More and more I’m aware that the permutations are not unlimited.
+ - Explorers have to be ready to die lost.
+ - Sometimes I think that the biggest difference between men and women is that more men need to seek out some terrible lurking thing in existence and hurl themselves upon it. Women know where it lives but they can let it alone.
+ - If reality had a stage door I’d hang around there to see what comes out after the show.
+ - Nothing to be done really about animals. Anything you do looks foolish. The answer isn’t in us. It’s almost as if were put here on earth to show how silly they aren’t.
+ - Fidelity is a matter of perception; nobody is unfaithful to the sea or to mountains or to death: once recognized they fill the heart.
+ - Words have a life; without response they die.
+ - Life is a process of one goneness after another.
+ - Me, what’s that after all? An arbitrary limitation of being bounded by the people before and after and on either side. Where they leave off I begin, and vice versa.
+ - It’s almost as if we’re put here on earth to show how silly they aren’t.
+ - Sometimes there’s nothing but Sundays for weeks on end. Why can’t they move Sunday to the middle of the week so you could put it in the OUT tray on your desk?
+ - I have no wisdom and nothing useful to tell you – I only mentioned this because it came into my head.
+ - An idea is an eye given by God for the seeing of God. Some of these eyes we cannot bear to look out of; we blind them as quickly as possible.
+ - I believe that most of us would like to be thought well of by horses.
+ - There are situations in life to which the only satisfactory response is a physically violent one. If you don’t make that response, you continually relive the unresolved situation over and over in your life.
+ - There must be a lot of people in the world being wondered about by people who don’t see them anymore.
+ - Is there an existence that is only mine?
+ - My generation was somewhat between things, neither free nor much supported by whatever held us in.
+
+26 quotes

@@ -1,0 +1,105 @@
+ - Live today like there’s no tomorrow!
+ - Why fit in when you’re born to stand out?
+ - Live today. Not yesterday. Not tomorrow. Just today. Inhabit your moments. Don’t rent them out to tomorrow.
+ - Star people are rare.
+ - I have to tell you I love living in a world without clocks. The shackles are gone. I’m a puppy unleashed in a meadow of time. – Stargirl.
+ - When a stargirl cries, she sheds not tears but light.
+ - Don’t confine yourself to a select group of friends, often known as a clique. Cliques by definition leave people out. Lock yourself into one, and you’ll never know how many terrific friendships you may be missing.
+ - The trouble with miracles is, they don’t last long.
+ - Who are you if you lose your favorite person? Can you lose your favorite person without losing yourself? I reach for Stargirl and she’s gone. I’m not me anymore.
+ - The golden rule of writing is to write what you care about. If you care about your topic, you’ll do your best writing, and then you stand the best chance of really touching a reader in some way.
+ - Each night I lie down in a graveyard of memories. Moonlight spins a shroud about me.
+ - Home is everything you can walk to.
+ - Amanda took the torn page from Maniac. To her, it was the broken wing of a bird, a pet out in the rain.
+ - When you own nothing, it’s easy to let things go.
+ - She was elusive. She was today. She was tomorrow. She was the faintest scent of a cactus flower, the flitting shadow of an elf owl. We did not know what to make of her. In our minds we tried to pin her to a cork board like a butterfly, but the pin merely went through and away she flew.
+ - And smiles to go before I weep, And Smiles to go before I weep.
+ - I’m Sorry are two of the most powerful words in our language, especially when they are not flipped blithely over the shoulder but spoken from the heart. They help restore order, balance, harmony. They reduce pain. They heal broken friendship. If they were medecine, they’d be called a miracle.
+ - She dreams a lot. She dreams of Ondines and falling maidens and houses burning in the night. But search her dreams all you like and you’ll never find Prince Charming. No knight on a white horse gallops into her dreams to carry her away. When she dreams of love, she dreams of smashed potatoes.
+ - I have a curious background for someone who turns out to be a writer.
+ - Events become feelings, feelings become events.
+ - This was the ghetto: where children grow down instead of up.
+ - Nothing’s more fun than being carried away.
+ - Peer pressure is just that: pressure.
+ - She laughed, and the desert sang.
+ - Beware of solipsism Funny word. Sounds like it means “love of melons” or something. I looked it up. It means believing that “the self is the only reality.” Am I solipsist?
+ - Everybody has an angel hiding inside. When you die, your angel comes out. You can die, but not your angel. Your angel never dies.
+ - She was bendable light: she shone around every corner of my day.
+ - The earth is speaking to us, but we can’t hear because of all the racket our senses are making. Sometimes we need to erase them, erase our senses. Then – maybe – the earth will touch us. The universe will speak. The stars will whisper.
+ - A strong relationship is an honest relationship, and no honest relationship is all peaches and cream. Love is the key. Where love abides, anger is but a passing visitor.
+ - I’m not my name. My name is something I wear, like a shirt. It gets worn. I outgrow it, I change it.
+ - Heart and head are contrary historians.
+ - She taught me to revel. She taught me to wonder. She taught me to laugh. My sense of humor had always measured up to everyone else’s; but timid introverted me, I showed it sparingly: I was a smiler. In her presence I threw back my head and laughed out loud for the first time in my life.
+ - He tapped my chest. ‘Happy is here.’ He tapped his own chest. ‘Here.’ I looked down past my chin. ‘Inside?’ ‘Inside.’ It was getting crowded in there. First angel. Now happy. It seemed there was more to me than cabbage and turnips.
+ - You be you and I’ll be me, today and today and today, and let’s trust the future to tomorrow. Let the stars keep track of us. let us ride our own orbits and trust that they will meet. May our reunion be not a finding but a sweet collision of destinies! Love and Love and Love Again, Stargirl.
+ - His smile was so wide he’d have had to break it into sections to fit it through a doorway.
+ - He said even if it’s too cloudy to see, the sun will still rise, it will still be there. “But that’s the whole point,” I said. “Seeing it.” “Is it?” he said.
+ - You’ll know her more by your questions than by her answers. Keep looking at her long enough. One day you might see someone you know.
+ - We wanted to define her, to wrap her up as we did each other, but we could not seem to get past “weird” and “strange” and “goofy.” Her ways knocked us off balance.
+ - Friendship isn’t always sunnyside up.
+ - I had never realized how much I needed the attention of others to confirm my own presence.
+ - I feel like I’m playing chess underwater. The pieces keep floating away. I don’t know where things are. I can’t figure out tomorrow.
+ - Cross the creek on the stepping stones of your failures.
+ - I felt alone on the planet, drifting through the cosmos. With both hands I reached out to the night. There was no answer. Or maybe I just couldn’t hear it.
+ - Because that’s what you do, you stand up for your best friend. And you eat lunch with him and talk with him and share secrets and laugh a lot and go places and do stuff, and when you wake up in the morning, he’s the first person you think of.
+ - I went to Gettysburg College, where the famous Civil War battle was fought. I majored in English. I would’ve liked to major in writing, but they didn’t offer a major in that.
+ - If we are destined to be together again, be happy to know you’ll be getting the real me, not some blubbering half me.
+ - She was elusive. She was today. She was tomorrow.
+ - Of course, all of their words for a thousand years could not fill the hole left by his mother, but they could raise a loving fence around it so he didn’t keep falling in.
+ - In our minds we tried to pin her to a corkboard like a butterfly, but the pin merely went through and away she flew.
+ - I’ll still be missing you as much as ever. I’l still smile at the memory of you. I’ll still be – Okay, I’ll say it again – loving you, but I won’t abandon myseld for you. I cannot be faithful to you without being faithful to myself.
+ - Every name is real. That’s the nature of names.
+ - Be very, very careful not to let the facts get mixed up with the truth.
+ - I didn’t realize we were being watched. We were all being watched.
+ - Angels and crows passed each other, one leaving, the other coming.
+ - He’s so cute, I can’t help myself.
+ - A baseball bat could not have hit me harder than that smile did. I was sixteen years old. In that time, how many thousands of smiles had been aimed at me? so why did this one feel like the first?
+ - She laughed when there was no joke. She danced when there was no music. She had no friends, yet she was the friendliest person in school.
+ - In that moonlit hour, I acquired a sense of the otherness of things. I liked the feeling the moonlight gave me, as if it wasn’t the opposite of day, but its underside, its private side, when the fabulous purred on my snow-white sheet like some dark cat come in from the desert.
+ - I became a children’s author by accident.
+ - It’s really hard to do nothing totally. Even just sitting here, like this, our bodies are churning, our minds are chattering. There’s a whole commotion going on inside us.
+ - Disagreement is not necessarily a reason to head for Splitsville. In fact, a relationship without disagreement is probably too brittle to last. Some of the best human bonds are forged in the fire of disagreement.
+ - It was different with you, Leo. In the eyes and ears of my heart, you and the magic are one and the same.
+ - Peace and harmony do not require perfection. Thank goodness for that – because life so often seems to be an itch here, a glitch there, a mess waiting to happen. Harmony is flexible. It bends with imperfection. So should you.
+ - Best friends are always together, always whispering and laughing and running, always at each other’s house, having dinner, sleeping over. They are practically adopted by each other’s parents. You can’t pry them apart.
+ - And the more you love someone, the safer it is to be mad at them. Love can handle mad, no problem.
+ - Write what you care about. If you do that, you stand the best chance of doing your best writing.
+ - When bad things turn good, the reason can usually be found in the human heart – sometimes in the hearts of great masses of people, sometimes in the heart of a solitary soul.
+ - They say talk is cheap. Maybe so. But kindness is even better – it’s free! Free to give. Free to receive. Makes you wonder why there’s not more of it, huh?
+ - Life is populated with scarecrows – all those people and things that seem so scary and trouble our sleep. Isn’t it nice to know that most of them turn out to be made of nothing but straw?
+ - Maybe it was the angle, but her fawn’s eyes, looking up at me, seemed larger than ever. I had to make an effort to keep my balance lest I fall into them.
+ - How much better might human communication be if words were as precious as diamonds? If each of us were allotted only 100 words per day?
+ - Nobody told me how hard it was going to be to get published. I wrote four novels that nobody wanted, sent them out all over, collected hundreds and hundreds of rejection slips.
+ - We long to be found, hoping our searchers have not given up and gone home.
+ - You haven’t lived until you’ve basked in the adoration of people.
+ - You are truly focused when you’re so focused that you don’t know you’re focused.
+ - Letter from Mr. B: Why does a back scratch feel better coming from somebody else than if you do it yourself?
+ - This was the start of a period that blurs as I try to recall it. Incidents seem to cascade and merge. Events become feelings, fellings become events. Head and heart are contrary historians.
+ - Every child’s bedroom is as important as a telescope orbiting the planet earth or a philosopher’s study.
+ - Today the mockingbird does not sound very happy. It sounds if it is coming apart. As of the very heart of itself-its song-is breaking into pieces and flying off in a hundred directions.
+ - Nobody has the time, the time cannot be owned. The time is free to everyone.
+ - He doesn’t think. He just does. A nonthinking doer.
+ - She might be pointing to a doorway, or a person, or the sky. But such things were so common to my eyes, so undistinguished, that they would register as “nothing” I walked in a gray world of nothing.
+ - I seem to have a natural tendency to want to share my own observations and feelings with other people, and writing seems to be the way I’m best equipped to do that.
+ - No one’s hurt is too small, no worry too removed, no blessing so elusive that it cannot be seen by the eyes in the back of the human heart.
+ - Kids still can be said to live in their own little world. Even if their parents are helicoptering around them, assigning play dates and so forth, I think they’re still living in some sense of their own little perceptual worlds.
+ - I love surprises! That’s what is great about reading. When you open a book, you never know what you’ll find.
+ - I grabbed her, right there outside the lunch room in the swarming mob. I didn’t care if others were watching. In fact, i hoped they were. I grabbed her and squeezed her. I had never been so happy and so proud in my life.
+ - I faced the gaudy sunflower on her canvas bag – it looked hand-painted and at last my eyes fell into hers. I said, ‘Thanks for the card.’ Her smile put the sunflower to shame. She walked off.
+ - Let’s just be fabulously where we are and who we are. You be you and I’ll be me, today and today and today, and let’s trust the future to tomorrow.
+ - Because life doesn’t always happen according to a timetable or calendar. And feelings can’t be scheduled.
+ - Now I don’t really write for adults or kids – I don’t write for kids, I write about them. I think you need to do that, otherwise you end up preaching down.
+ - The kids who leave their favorite authors behind do not in fact leave us utterly abandoned, but in due time drive children of their own to the bookstore and the post office.
+ - Many girls have been romanced under the moon, and I don’t mean to say moonlight is overrated, but few I think have known the magic of a sunrise kiss.
+ - If I get a new idea today – or any day – I won’t run from it. I won’t trash it. If it’s something I really want to do – I’ll do it.
+ - He was the Grand Marshall of our Everyday Parade.
+ - The blanket was there, but it was the boy’s embrace that covered and warmed him.
+ - Hey, this is it – right now! – the time when you find out who you are and what you can do. And how will you ever know if you don’t try new stuff?
+ - In my mind, I’m writing for everybody.
+ - Usually it takes me about nine to 12 months to write a book.
+ - As we approached each other, the noise and the students around us melted away and we were utterly alone, passing, smiling, holding each other’s eyes, floors and walls gone, two people in a universe of space and stars.
+ - Or maybe you’re merely uncomfortable with uncertainty. Like the rest of the human race.
+ - Whom do I write for? I write for the story. Each story, it seems to me, knows best how it should be told. As I once put my ear to the railroad track, I listen now for the voice of my story.
+ - Love is big. Love makes room for conflicting feelings.
+
+103 quotes

@@ -1,0 +1,60 @@
+ - Love is when you give someone else the power to destroy you, and you trust them not to do it.
+ - We are liars. We are beautiful and privileged. We are cracked and broken.
+ - Silence is a protective coating over pain.
+ - Be a little kinder than you have to.
+ - I’ll be fine, they tell me. I won’t die. It’ll just hurt a lot.
+ - She is sugar, curiosity, and rain.
+ - The island is ours. Here, in some way, we are young forever.
+ - What if we could stop being different colors, different backgrounds, and just be in love?
+ - Never take a seat in the back of the room. Winners sit up front.
+ - The universe is seeming really huge right now. I need something to hold on to.
+ - See the world as it is, not as you wish it would be.
+ - It shattered something inside me that hadn’t been broken before.
+ - She will not be simple and sweet. She will not be what people tell her she should be.
+ - The problem is I can think whatever I think but I still feel the way I feel.
+ - Because on some level, even though it never turns out to be true, and even though I should know better, I still expect life to be like the movies.
+ - When you hate someone you used to love, and you think he’s done something awful – he probably has.
+ - There is not even a Scrabble word for how bad I feel.
+ - My heart spasmed among the peonies like a trout.
+ - I sit around too much, waiting for other people to do stuff and angsting about stuff they’ve done, without doing anything myself.
+ - He was contemplation and enthusiasm. Ambition and strong coffee. I could have looked at him forever.
+ - And this is my life, getting dumped with no warning. Or liking people who don’t like me back, or who don’t like me enough, or not as much as they like someone else.
+ - Be sad, be sorry-but don’t shoulder it.
+ - If you want to live where people are not afraid of mice, you must give up living in palaces.
+ - 8. Fact: It is a bad idea to date a known cheater, because even if he doesn’t cheat on you, you will always know he’s capable of it and will never fully trust him. Then you will become even more insecure and neurotic than you already are.
+ - If you don’t want to be in an argument with someone, it is probably best to try to solve the problem, rather than lying around hoping the other person will do it for you.
+ - I say, thirteen is too many dogs for good mental health. Five is pretty much the limit. More than five dogs and you forfeit your right to call yourself entirely sane. Even if the dogs are small.
+ - But the thing that makes me really messed up is the contradiction: when I’m not hating myself, I feel righteous and victmized. Like the world is so unfair.
+ - I suffer migraines. I do not suffer fools.
+ - Maybe a friend is someone who wants your updates. Even if they’re boring. Or sad. Or annoyingly cutesy. A friend says “Sign me up for your boring crap, yes indeed”-because he likes you anyways. He’ll tolerate your junk.
+ - A tomato may be a fruit, but it is a singular fruit. A savory fruit. A fruit that has ambitions far beyond the ambitions of other fruits.
+ - There’s something about seeing a guy’s feelings written down, something about him taking that risk and committing that heart to paper, that means so much more than anything he could just say.
+ - Secrets are more powerful when people know you’ve got them.
+ - Love is when you have a really amazing piece of cake, and it’s the very last piece, but you let him have it.
+ - She doesn’t feel like crying anymore.
+ - We should not accept an evil we can change.
+ - You can’t have an ending. It’s impossible. Because unlike in the movies, life goes on. You’re never at the end until you die.
+ - Sex Ed – when I finally got to take it – was all about biology and birth control and nothing about anything that actually goes on between people.
+ - Don’t call me Alessandro, or this could get ugly. Oh, then may I call you Alice?
+ - Someone once wrote that a novel should deliver a series of small astonishments. I get the same thing spending an hour with you.
+ - How was I supposed to concentrate on my mental health when my therapist was encased in orange sparkle madness?
+ - He was a person who couldn’t fake a smile but smiled often.
+ - If those are your friends, you’ve got no need for enemies.
+ - She had been nobody and he had been golden.
+ - Sometimes it’s a good idea to think about what you want from a situation, and try to get it, rather than just blurt out the first thing that comes into your head.
+ - I swear, I have no understanding of other human beings.
+ - I looked at her. my lovely, tall mother with her pretty coil of hair and her hard, bitter mouth. Her veins were never open. Her heart never leapt out to flop helplessly on the lawn. She never melted into puddles. She was normal. Always. At any cost.
+ - Do not think about guys who have broken your heart six ways. It is mentally deranged to chase after heartbreak.
+ - My problem is I can think whatever I think – girl power, solidarity, Gloria Steinem rah rah rah – but I still feel the way I feel. Which is jealous. And pissy about little things.
+ - Everything doesn’t seem like anything when you love someone. Especially when you’re young.
+ - We can’t know or say what other people do. You have to think what you want to do to get the situation where you want it to be.
+ - Frankie appreciated both the accolades and the rejections equally, because both meant she’d had an impact. She wasn’t a person who needed to be liked so much as she was a person who liked to be notorious.
+ - Dances are generally more fun to think about and get ready for than they actually are when you get there.
+ - Absorbing the fact that sometimes, people do cut you slack and forgive you and want you anyway. Sometimes they do. And when they do, even if it’s not a happy ending, it is delicious.
+ - Get over it, Roo. If you have friends who actually like you, you’re popular enough.
+ - I don’t know if there is a one for me. I think I might like variety.
+ - There was nothing I could say in retaliation except something that would confuse her.
+ - They do sometimes go crazy, these people, because the world is telling them not to want the things they want. It can seem saner to give up-But then one goes insane from giving up.
+ - These guys, they were so sure of their places in life – so deeply confident of their merit and their future – they didn’t need any kind of front at all.
+
+58 quotes

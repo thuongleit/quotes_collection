@@ -1,0 +1,30 @@
+ - A mother never realizes that her children are no longer children.
+ - Just spunk won’t be enough; you’ve got to have gumption.
+ - Truth lies within a little and certain compass, but error is immense.
+ - The camera seems to me, next to unassisted and weaponless consciousness, the central instrument of our time.
+ - The goal is the same: life itself; and the price is the same; life itself.
+ - I’m very anxious not to fall into archaism or ‘literary’ diction. I want my vocabulary to have a very large range, but the words must be alive.
+ - It is the middle and pure height and whole of summer and a summer night, the held breath, of a planet’s year; high shored sleeps the crested tide: what day of the month I do not know, which day of the week I am not sure, far less what hour of the night.
+ - You’ve got to bear it in mind that nobody that ever lived is specially privileged; the axe can fall at any moment, on any neck, without any warning or any regard for justice.
+ - It is clear enough by now to most people that the camera never lies is a foolish saying. Yet it is doubtful whether most people realize how extraordinarily slippery a liar the camera is.
+ - As a whole part of “psychological education” it needs to be remembered that a neurosis can be valuable; also that “adjustment” to a sick and insane environment is of itself not “health” but sickness and insanity.
+ - Of those that are drawn away, each is drawn elsewhere toward another: once more a man and a woman, in a loneliness they are not liable at that time to notice, are tightened together upon a bed: and another family has begun.
+ - I believe that every human being is potentially capable within his ‘limits’ of fully ‘realizing’ his potentialities; that this, his being cheated and choked of it, is infinitely the ghastliest, commonest, and most inclusive of all the crimes of which the human world can assure itself.
+ - This continent, an open palm spread frank before the sky.
+ - All of consciousness is shifted from the imagined, the revisive, to the effort to perceive simply the cruel radiance of what is.
+ - I prefer a little free speech to no free speech at all; but how many have free speech or the chance or the mind for it; and is not free speech here as elsewhere clamped down on in ratio of its freedom and danger?
+ - Some people get where they hope to in this world. Most of us don’t.
+ - The camera is just a machine, which records with impressive and as a rule very cruel faithfulness.
+ - Isn’t every human being both a scientist and an artist; and in writing of human experience, isn’t there a good deal to be said for recognizing that fact and for using both methods?
+ - As small, quick, foolproof cameras became generally available, moreover, the camera has been used so much and so flabbily by so many people that it has acted as a sort of contraceptive on the ability to see.
+ - Children, taught either years beneath their intelligence or miles wide of relevance to it, or both: their intelligence becomes hopelessly bewildered, drawn off its centers, bored, or atrophied.
+ - One thing I feel is this: that a great deal of poetry is the product of adolescence-or of an emotionally adolescent frame of mind: and that as this state of mind changes, poetry is likely to dry up.
+ - A girl’s brain is mysterious, but only in a superficial way-a way very exasperating to me.
+ - It is a peculiar part of the good photographer’s adventure to know where luck is most likely to lie in the stream, to hook it, and to bring it in without unfair play and without too much subduing it.
+ - Well, now, some people learn a little quicker than others. It’s nice to learn fast but it’s nice to take your time too.
+ - It’s kind of a test, Mary, and it’s the only kind that amounts to anything. When something rotten like this happens, then you have your choice. You start to really be alive, or you start to die. That’s all.
+ - I know the most important faculty to develop is one for hard, continuous and varied work and living; but the difference between knowing this and doing anything consistent about it is often abysmal.
+ - It is probably well on the conservative side to estimate that during the past ten to fifteen years the camera has destroyed a thousand pairs of eyes, corrupted ten thousand, and seriously deceived a hundred thousand, for every one pair that it has opened, and taught.
+ - I’ll do what little I can in writing. Only it will be very little. I’m not capable of it; and if I were, you would not go near it at all. For if you did, you would hardly bear to live.
+
+28 quotes

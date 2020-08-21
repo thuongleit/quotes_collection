@@ -1,0 +1,25 @@
+ - My vanity and narcissism will never let me go too far.
+ - No one has a resume that they are 100% comfortable with, nor does anyone have a life that they are 100% comfortable with.
+ - Long before I ever started acting, believe it or not, I always knew I wanted to be a director.
+ - I think sports makes for good drama because it has all the same ingredients as anything worth reading or listening to or watching. Conflict, desire, heartbreak – it’s all there.
+ - Montreal is a great town. There’s equal parts blue-collar town.
+ - I notice the older I get, the more my speaking voice turns people around. Even if they have no idea who I am, they know they’ve heard this weird nasal disaster somewhere before.
+ - The hockey I was raised on, the hockey I understand, the hockey that my dad taught me about when I was a boy was intrinsically connected with fighting. I grew up in a house where we revered tough guys.
+ - For every big American movie I’ve done where I was the supporting guy, I’ve gone back home to Canada to do supporting movies where I was the lead.
+ - There’s a chunk of myself in every part I play.
+ - I am a proud Montrealer. Jobs will take me where they take me, but nothing will ever be able to convince me to leave my home.
+ - I like writing strong women, because as a straight male, there’s nothing more attractive to me than a strong girl.
+ - I enjoy acting, and it’s given me a ton of happiness and it’s affected my life and my family’s lives in ways that we just can’t imagine.
+ - I have a maple leaf tattoo over my heart, quite literally, and my two favorite things on Earth are being in Canada and making movies.
+ - Rigidity is the enemy of acting. And I think that people who stay up all night focusing on every beat they’re going to do the next day always end up getting screwed.
+ - You grow up skinny in Canada; in working-class Montreal, you’re definitely the underdog.
+ - I’m a chronic ad-libber. So whoever hires me, often to their chagrin, should know that I will be talking a bunch of smack.
+ - I’m a massive movie nerd. That being said, I could retire tomorrow because I wrote this movie ‘Goon’ and it came out, and it connected and it’s a wonderful flick that I think is beautiful and then it had this wonderful life and it means a lot to a lot of people.
+ - I guess I always have sort of general ideas, but the best stuff would be the stuff that comes to you in the moment, always.
+ - In the best-case scenario, the audience sees themselves in your shoes. The only way you can do that is if you try to play it as if it was happening to you.
+ - I’d say that the No. 1 attribute you need as an actor is to be malleable. You need to be able to change and tailor what you’re doing to what the situation dictates.
+ - If it were up to me, every job would be somewhere in Canada.
+ - I don’t work in movies and TV because I adore acting, it’s because I adore movies and TV.
+ - I would say that since I was nine years old I’ve always wanted to write and direct horror movies and action movies. There’s never been a time in my life where that wasn’t all I wanted to do.
+
+23 quotes

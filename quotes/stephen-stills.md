@@ -1,0 +1,21 @@
+ - Love the one you’re with.
+ - One thing the blues ain’t, is funny.
+ - Neil Young and Barry Friedman had stolen a Buffalo Springfield sign off the steamroller for Barrys house. They put it up. We all looked at it on the wall and a light went off. That’s how we came up with the name.
+ - But it’s as big as the promise, the promise of a coming day.
+ - I spent my last year of high school in Latin America, and there’s a edge of salsa under all of my rhythms.
+ - God forbid if David Crosby gets sick again and I can’t tour anymore, or something happens where I can’t get around, what am I going to live on? I’m going to be living on mechanicals. So I don’t want to hear it.
+ - An artist cannot be responsible for what people make of their art. An audience loathe giving up preconceived images of an artist.
+ - The only albatross is the hurt you divine from what people say about your art.
+ - There are three things men can do with women: love them, suffer for them, or turn them into literature.
+ - Speak out. You’ve got to speak out against the madness.
+ - David knew everyone because he’s such a social butterfly.
+ - I have my ship, and all her flags are a-flying. She is all that I have left, and music is her name.
+ - Sometimes I get a little drunk, sometimes I get a little out of it, sometimes I get out of tune onstage, but that’s something that shouldn’t be dissected.
+ - I got hooked into folk music by accident, because that’s what white college kids liked when I was a child.
+ - Once you decide that it is the art that is important and not how popular and well received you are, you no longer have an albatross.
+ - I much prefer the road. My thing is getting live in front of people. There is a sterile environment to a studio that doesnt make me let go.
+ - Yeah; I’m a much better blues player than anybody knows, but being in the kind of group I’m in, we were always trying to make popular records.
+ - There were times I thought I was going to turn to the blues, but then I’d hear better blues players.
+ - I feel like I’m just learning how to play the guitar. I mean, really learning to play the guitar.
+
+19 quotes

@@ -1,0 +1,53 @@
+ - I had some dreams, they were clouds in my coffee.
+ - Don’t mind if I fall apart. There’s more room in a broken heart.
+ - A really strong woman accepts the war she went through and is ennobled by her scars.
+ - Everyone has problems, and learning to share them is essential. Hiding pain requires an enormous amount of energy; sharing it is liberating.
+ - You’re so vain. I bet you think this song is about you.
+ - I’ve learned that nobody’s perfect, and I don’t expect myself to be perfect anymore.
+ - I used the physical scar of my breast cancer operation, the scar that I have across my chest as a metaphor for all kinds of scars.
+ - The sound of birds stops the noise in my mind.
+ - Anticipation is making me late, it’s keeping me waiting.
+ - My scar is beautiful. It looks like an arrow.
+ - I’ve gone through the village of my songwriting and my artistry, and I’ve gone through lots of different phases, including one where it has been very quiet and abandoned me for a few years.
+ - I haven’t got time for the pain.
+ - But I’m lost when it comes to you.
+ - Life is a dream even in its most painful moments, it’s a dream that we can dance to.
+ - You know, people want to honor me, and on the one hand I just don’t want to be a poster child; but on the other, I want to do something classy and great – something where the residuals will go to the cause.
+ - There was a French singer, Francoise Hardy – I used to look at her pictures and try to dress like her.
+ - I had this terrible stammer, so I couldn’t really speak properly until I was 16 or 17.
+ - I just want to show off my scar proudly and not be afraid of it.
+ - Being in this business for as long as I’ve been in it, it’s sort of like living in a town or a city before the war and then after the war and then during the reconstruction and then during the time that it sprawls out to the malls.
+ - It’s like The Mold in Dr. Florey’s Coat, about the discovery of penicillin. Out of these strange accidents come huge discoveries. A certain purple bleeds into red and all of a sudden you have something unexpected.
+ - Worrying too much about other people’s ears and not my own, I lost my way.
+ - Undoubtedly, Patsy Cline was a trailblazer and in that respect, all women who are singular in a man’s field have a special power.
+ - We need role models who are going to break the mold.
+ - My father was a classical pianist, and my mother was a singer of just about everything.
+ - It didn’t matter as much because I’m a singer, not an actress, but my face is more acceptable in a way now than when I first came on the scene, because I’m part black.
+ - One of the things that has always motivated me to write is the desire to get it out and look at it in an objective way, so that it doesn’t cause me any serious pain by staying inside.
+ - I’ve always thought of myself as being a warrior. When you actually have a battle, it’s better than when you don’t know who to fight.
+ - We went to see all the shows. American musical theater and jazz were very big.
+ - You know, when I was diagnosed with breast cancer in 1997 I realized I had spent too long arranging my attitude.
+ - I took it to heart that in order to be a good person; you never said anything mean about anybody.
+ - We change our opinions of ourselves so often. What the outside world thinks is only a small part of our image.
+ - My look was even more solidified when I started singing in Greenwich Village with my sister Lucy. We wore matching dresses as the Simon Sisters.
+ - I had a mastectomy in 1998, and then chemo.
+ - You say we’ll soar like two birds through the clouds, but soon you’ll cage me on your shelf. I’ll never learn to be just me, first by myself.
+ - You know when you take the paint off an old canvas and you discover that something’s been painted underneath it? That’s what I feel like – that part of the old is coming through the new.
+ - I always think it’s interesting to dig a little bit deeper every time you go to someplace that seems like a revelation or a strong connection to an emotional truth.
+ - We are in this period now where we all are trying to be in shape physically and deny ourselves any pleasure.
+ - Then I went through a big Peggy Lee stage, then I became Annie Ross, then Judy Collins.
+ - The models for me were more the folk-rock singers of the ’60s and ’70s.
+ - Well, I make every song I sing personal. I’ve never chosen a song that wasn’t.
+ - You usually can’t tell what’s inspiring until you look back on it.
+ - I always sang standards because the songs I wrote for myself weren’t as easy to sing.
+ - So many artists who came out during that time, including myself, were able to get on radio. New forms of singer-songwriters developed out of that.
+ - I try to get to those peculiar and particular things that you never think of to say.
+ - I’m still more comfortable with standards than with my own songs.
+ - I remember being onstage once when I didn’t have fear: I got so scared I didn’t have fear that it brought on an anxiety attack.
+ - I think that I’ve got some pretty bad reviews on albums or songs that later proved themselves.
+ - So I suppose this slightly mature fashion sense happened because of what I had.
+ - The advancements that women have made are very threatening to men in the job place. There haven’t been that many women in politics. If you look at the conventions, it’s kind of pathetic how many men are the heads of companies. On the other hand, I’m not sure what the reality should be.
+ - As a singer I tried on all these hats, these voices, these clothes, and eventually out came me.
+ - Do you know how many concerts I’ve done in my whole life, in more than 35 years of performing? Sixty-four.
+
+51 quotes

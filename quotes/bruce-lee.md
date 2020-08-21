@@ -1,0 +1,414 @@
+ - Do not pray for an easy life, pray for the strength to endure a difficult one.
+ - The successful warrior is the average man, with laser-like focus.
+ - If you love life, don’t waste time, for time is what life is made up of.
+ - Be happy, but never satisfied.
+ - Preparation for tomorrow is hard work today.
+ - If you spend too much time thinking about a thing, you’ll never get it done.
+ - I fear not the man who has practiced 10,000 kicks once, but I fear the man who has practiced one kick 10,000 times.
+ - Knowing is not enough, we must apply. Willing is not enough, we must do.
+ - As you think, so shall you become.
+ - Don't fear failure. Not failure, but low aim, is the crime. In great attempts it is glorious even to fail.
+ - You must be shapeless, formless, like water. When you pour water in a cup, it becomes the cup. When you pour water in a bottle, it becomes the bottle. When you pour water in a teapot, it becomes the teapot. Water can drip and it can crash. Become like water, my friend.
+ - Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
+ - Long-term consistency trumps short-term intensity.
+ - Defeat is not defeat unless accepted as a reality in your own mind.
+ - Mistakes are always forgivable, if one has the courage to admit them.
+ - If you always put limits on everything you do, physical or anything else, it will spread into your work and into your life. There are no limits. There are only plateaus, and you must not stay there, you must go beyond them.
+ - To hell with circumstances; I create opportunities.
+ - Adapt what is useful, reject what is useless, and add what is specifically your own.
+ - A wise man can learn more from a foolish question than a fool can learn from a wise answer.
+ - The key to immortality is first living a life worth remembering.
+ - Be self aware, rather than a repetitious robot.
+ - A goal is not always meant to be reached, it often serves simply as something to aim at.
+ - It's not the daily increase but daily decrease. Hack away at the unessential.
+ - Real living is living for others.
+ - Empty your cup so that it may be filled; become devoid to gain totality.
+ - The great mistake is to anticipate the outcome of the engagement; you ought not to be thinking of whether it ends in victory or defeat. Let nature take its course, and your tools will strike at the right moment.
+ - Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
+ - Be like water, my friend.
+ - Use only that which works, and take it from any place you can find it.
+ - Make at least one definite move daily toward your goal.
+ - Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
+ - Boards don’t hit back.
+ - Empty your mind, be formless, shapeless – like water.
+ - Simplicity is the key to brilliance.
+ - I’m not in this world to live up to your expectations and you’re not in this world to live up to mine.
+ - Either push your limits or die.
+ - Water can flow, or it can crash. Be water, my friend.
+ - The spirit of the individual is determined by his dominating thought habits.
+ - Concentration is the root of all the higher abilities in man.
+ - A quick temper will make a fool of you soon enough.
+ - Showing off is the fool’s idea of glory.
+ - Defeat is a state of mind; no one is ever defeated until defeat has been accepted as a reality.
+ - People fear what they do not understand.
+ - Practice makes perfect. After a long time of practicing, our work will become natural, skillfull, swift, and steady.
+ - A good teacher protects his pupils from his own influence.
+ - Get maximum effect from minimum effort.
+ - For it is easy to criticize and break down the spirit of others, but to know yourself takes a lifetime.
+ - Now I see that I will never find the light Unless, like the candle, I am my own fuel, Consuming myself.
+ - Without frustration you will not discover that you might be able to do something on your own. We grow through conflict.
+ - The doubters said, “Man can not fly,” The doers said, “Maybe, but we’ll try,” and finally soared in the morning glow while non-believers watched from below.
+ - To spend time is to pass it in a specified manner. To waste time is to expend it thoughtlessly or carelessly. We all have time to either spend or waste and it is our decision what to do with it. But once passed, it is gone forever.
+ - Take things as they are. Punch when you have to punch. Kick when you have to kick.
+ - Stop wasting time in playing a role or a concept. Instead, learn to ACTUALIZE YOURSELF, your potential.
+ - Success means doing something sincerely and wholeheartedly.
+ - To become a champion requires a good mental attitude toward preparation. You have to accept the most tedious task with pleasure.
+ - Be a practical dreamer backed by action.
+ - Be like water making its way through cracks. Do not be assertive, but adjust to the object, and you shall find a way round or through it. If nothing within you stays rigid, outward things will disclose themselves.
+ - Ever since I was a child I have had this instinctive urge for expansion and growth. To me, the function and duty of a quality human being is the sincere and honest development of one’s potential.
+ - Ultimately the greatest help is self-help.
+ - Using no way as a way, having no limitation as limitation.
+ - To me defeat in anything is merely temporary. Defeat simply tells me that something is wrong in my doing; it is a path leading to success and truth.
+ - You will never get any more out of this life than you expect.
+ - Many people dedicate their lives to actualizing a concept of what they should be like, rather than actualizing themselves. This difference between self-actualization and self-image actualization is very important. Most people live only for their image.
+ - Sorrows are our best educator. A man can see further through a tear than a telescope.
+ - Only the self-sufficient stand alone – most people follow the crowd and imitate.
+ - If there is a God, he is within. You don’t ask God to give you things, you depend on God for your inner theme.
+ - Fear comes from uncertainty; we can eliminate the fear within us when we know ourselves better.
+ - Out of chaos, find simplicity, From discord, find harmony.
+ - Loneliness is only an opportunity to cut adrift and find yourself. In solitude you are least alone.
+ - Self-knowledge involves relationship. To know oneself is to study one self in action with another person. Relationship is a process of self evaluation and self revelation. Relationship is the mirror in which you discover yourself – to be is to be related.
+ - Do not allow negative thoughts to enter your mind for they are the weeds that strange confidence.
+ - Time means a lot to me because you see I am also a learner and am often lost in the joy of forever developing.
+ - Low aim, not failure, is the crime.
+ - Live a life worth remembering.
+ - All knowledge, is ultimately, self knowledge.
+ - Not being tense but ready. Not thinking but not dreaming. Not being set but flexible. Liberation from the uneasy sense of confinement. It is being wholly and quietly alive, aware and alert, ready for whatever may come.
+ - We are told that talent creates opportunity, yet it is desire that creates talent.
+ - The meaning of life is that it is to be lived.
+ - A self-willed man has no other aim than his own growth.
+ - Art calls for complete mastery of techniques, developed by reflection within the soul.
+ - Like everyone else, you want to learn the way to win, but never to accept the way to lose – to accept defeat. To learn to die is to be liberated from it. So when tomorrow comes you must free your ambitious mind and learn the art of dying!
+ - Things live by moving and gain strength as they go.
+ - Take what’s useful, discard what is not.
+ - Learning is never cumulative, it is a movement of knowing which has no beginning and no end.
+ - Pessimism blunts the tools you need to succeed.
+ - Do not have an attitude, open yourself and focus yourself and express yourself. Reject external form that fails to express internal reality.
+ - The idea is that flowing water never goes stale, so just keep on flowing.
+ - Learning is definitely not mere imitation, nor is it the ability to accumulate and regurgitate fixed knowledge. Learning is a constant process of discovery – a process without end.
+ - Independent inquiry is needed in your search for truth, not dependence on anyone else’s view or a mere book.
+ - To change with change is the changeless state.
+ - What is true stillness? Stillness in movement.
+ - It is better to live as a broken piece of jade, than to live as a useless clay.
+ - If every man would help his neighbor, no man would be without help.
+ - Flow in the living moment – We are always in a process of becoming and nothing is fixed.
+ - By adopting a certain physical posture, a resonant chord is struck in spirit.
+ - It is the man that has nothing to lose or is willing to lose everything to beat you that I am afraid of. If a man is willing to lose his life to bite off my nose then I don’t care how good I am or what I do to him- he’s gonna get my nose.
+ - The deluded mind is the mind affectively burdened by intellect. Thus, it cannot move without stopping and reflecting on itself. This obstructs its native fluidity.
+ - Instead of dedicating your life to actualize a concept of what you should be like, actualize yourself.
+ - Jeet Kune Do: it’s just a name; don’t fuss over it. There’s no such thing as a style if you understand the roots of combat.
+ - To realize freedom the mind has to learn to look at life, which is a vast movement, without the bondage of time, for freedom lies beyond the field of consciousness care for watching, but don’t stop and interpret “I am free,” then you’re living in a memory of something that has gone before.
+ - Knowledge will give you power, but character respect.
+ - You must be shapeless, formless, like water. When you pour water in a cup, it becomes the cup.
+ - Remember, success is a journey not a destination. Have faith in your ability. You will do just fine.
+ - Learning is a constant process of discovery – a process without end.
+ - One does not accumulate but eliminate. It is not daily increase but daily decrease. The height of cultivation always runs to simplicity.
+ - The More we value things, the less we value ourselves.
+ - Emotion can be the enemy, if you give into your emotion, you lose yourself. You must be at one with your emotion, because the body always follows the mind.
+ - Those who are unaware they are walking in darkness will never seek the light.
+ - The usefulness of the cup is its emptiness.
+ - Your state of mind is everything.
+ - It’s the law of averages: put in more, come out with more.
+ - Life is wide, limitless. There is no border, no frontier.
+ - If I should die tomorrow, I will have no regrets. I did what I wanted to do. You can’t expect more from life.
+ - Optimism is a faith that leads to success.
+ - Cease negative mental chattering. If you think a thing is impossible, you’ll make it impossible. Pessimism blunts the tools you need to succeed.
+ - The less effort, the faster and more powerful you will be.
+ - Do not run away; let go. Do not seek; for it will come when least expected.
+ - The mind is like a fertile garden in which anything that is planted, flowers or weeds, will grow.
+ - I am not teaching you anything. I just help you to explore yourself.
+ - True refinement seeks simplicity.
+ - If you want to learn to swim jump into the water. On dry land no frame of mind is ever going to help you.
+ - A teacher is never a giver of truth; he is a guide, a pointer to the truth that each student must find for himself.
+ - I am not afraid of a person who knows 10000 kicks. But I am afraid of a person who knows one kick but practices it for 10000 times.
+ - If I tell you I’m good, probably you will say I’m boasting. But if I tell you I’m not good, you’ll know I’m lying.
+ - Art requires imagination. It requires Creativity. Creativity requires experience and experience comes from your life. And your life is expressed in your art.
+ - Fluidity is the way to an empty mind. You must free your ambitious mind and learn the art of dying.
+ - You have to create your own luck. You have to be aware of the opportunities around you and take advantage of them.
+ - Let nature take its course and your tools will strike at the right moment.
+ - If you don’t want to slip up tomorrow, speak the truth today.
+ - The consciousness of self is the greatest hindrance to the proper execution of all physical action.
+ - Action is a high road to self-confidence and esteem. Where it is open, all energies flow toward it. It comes readily to most people, and its rewards are tangible.
+ - Learn it all, then forget it all.
+ - Training for strength and flexibility is a must. You must use it to support your techniques. Techniques alone are no good if you don’t support them with strength and flexibility.
+ - The stillness in stillness is not the real stillness; only when there is stillness in movement does the universal rhythm manifest.
+ - Concepts vs. self-actualization. – Instead of dedicating your life to actualize a concept of what you should be like, ACTUALIZE YOURSELF. The process of maturing does not mean to become a captive of conceptualization. It is to come to the realization of what lies in our innermost selves.
+ - In order to control myself I must first accept myself by going with and not against my nature.
+ - I am learning to understand rather than immediately judge or to be judged.
+ - I am learning to understand rather than immediately judge or to be judged. I cannot blindly follow the crowd and accept their approach. I will not allow myself to indulge in the usual manipulating game of role creation. Fortunately for me, my self-knowled.
+ - Obey the principles without being bound by them.
+ - Belts are only good for holding up your pants.
+ - We should devote ourselves to being self-sufficient and must not depend upon the external ratings by others for our happiness.
+ - Taoist philosophy is essentially monistic. Matter and energy, Yang and Yin, heaven and earth, are conceived of as essentially one or as two coexistent poles of one indivisible whole.
+ - In order to realize our true self we must be willing to live without being dependent upon the opinion of others.
+ - Like a cobra, your strike should be felt before it is seen.
+ - Never waste energy on worries or negative thoughts, all problems are brought into existence -drop them.
+ - Give recognition where it is due. Compliments stimulate more effort and desire to improve. Be generous with honest praising.
+ - Probably the most badass guy who ever lived on this planet!
+ - Be a calm beholder of what is happening around you.
+ - A good martial artist does not become tense, but ready. Not thinking, yet not dreaming. Ready for whatever may come. When the opponent expands, I contract; and when he contracts, I expand. And when there is an opportunity, “I” do not hit, “it” hits all by itself.
+ - The height of cultivation always runs to simplicity.
+ - Believe me that in every big thing or achievement there are always obstacles-big or small- and the reaction one shows to such obstacles is what counts, not the obstacle itself.
+ - If you want to learn to swim you have to throw yourself in the water.
+ - Running water never grows stale.
+ - If nothing within you stays rigid, outward things will disclose themselves. Moving, be like water. Still, be like a mirror. Respond like an echo.
+ - When one has reached maturity in the art, one will have a formless form. It is like ice dissolving in water. When one has no form, one can be all forms; when one has no style, he can fit in with any style.
+ - Every man today is the result of his thoughts yesterday.
+ - All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
+ - The highest technique is to have no technique. My technique is a result of your technique; my movement is a result of your movement.
+ - If you knew you had to fight for your life tomorrow, would you change your training today?
+ - Remember my friend to enjoy your planning as well as your accomplishment, for life is too short for negative energy.
+ - When finger point at moon, don’t look at finger or you’ll miss the moon.
+ - Emptiness the starting point. – In order to taste my cup of water you must first empty your cup. My friend, drop all your preconceived and fixed ideas and be neutral. Do you know why this cup is useful? Because it is empty.
+ - The moment is freedom. – I couldn’t live by a rigid schedule. I try to live freely from moment to moment, letting things happen and adjusting to them.
+ - Remember no man is really defeated unless he is discouraged.
+ - Life itself is your teacher, and you are in a state of constant learning.
+ - Let the spirit out – Discard all thoughts of reward, all hopes of praise and fears of blame, all awareness of one’s bodily self. And, finally closing the avenues of sense perception, let the spirit out, as it will.
+ - The possession of anything begins in the mind.
+ - Self-Conquest is the greatest of victories. Mighty is he who conquers himself.
+ - It’s not what you give, it’s the way you give it.
+ - What you habitually think largely determines what you will ultimately become.
+ - You will never learn anything new unless you are ready to accept yourself with your limitations. You must accept the fact that you are capable in some directions and limited in others, and you must develop your capabilities.
+ - I refer to my hands, feet and body as the tools of the trade. The hands and feet must be sharpened and improved daily to be efficient.
+ - The knowledge and skills you have achieved are meant to be forgotten so you can float comfortably in emptiness, without obstruction.
+ - I think of myself as a human being.
+ - Understanding requires not just a moment of perception, but a continuous awareness, a continuous state of inquiry without conclusion.
+ - The past is an illusion. You must learn to live in the present and accept yourself for what you are now. What you lack in flexibility and agility you must make up with knowledge and constant practice.
+ - Recognizing that the power of will is the supreme court over all other departments of my mind, I will exercise daily when I need the urge to act for any purpose; and I will form habits designed to bring the power of my will into action at least once daily.
+ - The past is no more; the future not yet. Nothing exists except the here and now. Our grand business is not to see what lies dimly at a distance, but to do what lies clearly at our hands.
+ - There is no love without friendship. Passion alone does not form relationships of value.
+ - The highest art is no art. The highest form is no form.
+ - The word “superstar” is an ilusion.
+ - Persistence, persistence, and persistence. The Power can be created and maintained through daily practice – continuous effort.
+ - Humility forms the basis of honor, just as the low ground forms the foundation of a high elevation.
+ - Learn the principle, abide by the principle, and dissolve the principle. In short, enter a mold without being caged in it. Obey the principle without being bound by it. Learn, master, and achieve.
+ - There will be calmness, tranquility, when one is free from external objects and is not perturbed.
+ - Put ‘going the extra mile’ to work as part of one’s daily habit.
+ - Don’t get set into one form, adapt it and build your own, and let it grow, be like water.
+ - When you point to the moon, what do you see in front of your finger; Your task is to feel, not to think, when you can understand that the lesson will be learned.
+ - Everyone wants to learn how to win, but no one wants to learn how to accept defeat.
+ - The unconditioned mind intuits truth.
+ - One great cause of failure is lack of concentration.
+ - To understand your fear is the beginning of really seeing.
+ - Practice all movements slow and fast, soft and hard; the effectiveness of Jeet Kune-Do depends on split-second timing and reflexive action, which can be achieved only through repetitious practice.
+ - Life is never stagnation. It is constant movement, un-rhythmic movement, as we as constant change. Things live by moving and gain strength as they go.
+ - The essence of fighting is the art of moving at the right time.
+ - Martial arts, like any art, is an unrestricted athletic expression of an individual soul.
+ - From form to formless and from finite to infinite.
+ - The change is from inner to outer. We start by dissolving our attitude not by altering outer conditions.
+ - The reward is found in the work.
+ - The future looks extremely bright indeed, with lots of possibilities ahead – big possibilities. Like the song says, We’ve just begun.
+ - Open yourself and flow, my friend. Flow in the total openness of the living moment.
+ - Even today, I dare not say that I have reached a state of achievement. I’m still learning, for learning is boundless.
+ - Dedication, absolute dedication, is what keeps one ahead!
+ - Man, the living creature, the creating individual, is always more important than any established style or system.
+ - Don’t ignore the five senses in search of a sixth.
+ - Evaluation by others is not a guide for me.
+ - Take no thought of who is right or wrong or who is better than. Be not for or against.
+ - Don’t be forecasting evil unless it is what you can guard against. Anxiety is good for nothing if we can’t turn it into a defense.
+ - With every adversity comes a blessing because a shock acts as a reminder to oneself that we must not get stale in routine.
+ - I have always been a martial artist by choice, an actor by profession, but above all, am actualising myself to be an artist of life.
+ - We do not become. We simply are.
+ - A fight is not won by one punch or kick. Either learn to endure or hire a bodyguard.
+ - All goals apart from the means are illusions; becoming is a denial of being.
+ - Before me now there is only one real fact – Death. The truth I have been seeking – this truth is Death. Yet Death is also a seeker. Forever seeking me. So – we have met at last. And I am prepared. I am at peace. Because I will conquer death with death.
+ - An intelligent mind is an inquiring mind. It is not satisfied with explanation, with conclusions. Nor is it a mind that believes, because belief is again another form of conclusion.
+ - A man strikes you, make him bleed. He makes you bleed, you break his bones. He breaks your bones, kill him. Being hit is inevitable, strike back twice as hard.
+ - Zen is not “attained” by mirror-wiping mediation, but by “self-forgetfulness in the existential ‘present’ of life here and now.” We do not “come”, we “are.” Don’t strive to become, but be.
+ - Forget about winning and losing, forget about pride and pain.
+ - If people say Jeet Kune Do is different from this or from that, then let the name of Jeet Kune Do be wiped out, for that is what it is, just a name. Please don’t fuss over it.
+ - In order to taste my cup of water you must first empty your cup.
+ - To reach me, you must move to me. Your attack offers me an opportunity to intercept you.
+ - If you follow the classical pattern, you are understanding the routine, the tradition, the shadow – you are not understanding yourself.
+ - Since life is an ever evolving process, one should flow in this process and discover how to actualize and expand oneself.
+ - It is compassion rather than the principle of justice which can guard us against being unjust to our fellow men.
+ - Do not deny the classical approach, simply as a reaction, or you will have created another pattern and trapped yourself there.
+ - To live is to express, and to express you have to create. Creation is never merely repetition. To live is to express oneself freely in creation.
+ - When we hold to the core, the opposite sides are the same if they are seen from the center of the moving circle. I do not experience; I am experience. I am not the subject of experience; I am that experience. I am awareness. Nothing else can be I or can exist.
+ - In building a statue, a sculptor doesn’t keep adding clay to his subject. Actually, he keeps chiseling away at the nonessentials until the truth of his creation is revealed without obstruction.
+ - A man must constantly exceed his level.
+ - When you feel pain, you know that you are still alive.
+ - The martial arts are ultimately self-knowledge. A punch or a kick is not to knock the hell out of the guy in front, but to knock the hell out of your ego, your fear, or your hang-ups.
+ - To me, ultimately, martial arts means honestly expressing yourself.
+ - In Buddhism, there is no place for using effort. Just be ordinary and nothing special. Eat your food, move your bowels, pass water and when you’re tired go and lie down. The ignorant will laugh at me, but the wise will understand.
+ - Self-knowledge is the basis of jeet kune do because it is effective not only for the individual’s martial art but also for his life as a human being.
+ - My strength comes from my abdomen. It’s the center of gravity and the source of real power.
+ - You must accept the fact that there is no help but self-help. I cannot tell you how to gain freedom since freedom exists within you.
+ - Do not be tense, just be ready, not thinking but not dreaming, not being set but being flexible.
+ - I personally do not believe in the word style. Why? Because, unless there are human beings with three arms and four legs, unless we have another group of human beings that are structually different from us, there can be no different style of fighting.
+ - Effort within the mind further limits the mind, because effort implies struggle towards a goal and when you have a goal, a purpose, an end in view, you have placed a limit on the mind.
+ - The best fighter is not a Boxer, Karate or Judo man. The best fighter is someone who can adapt on any style. He kicks too good for a Boxer, throws too good for a Karate man, and punches too good for a Judo man.
+ - The more aware you become, the more you shed from day to day what you have learned so that your mind is always fresh and uncontaminated by previous conditioning.
+ - If you want to do your duty properly, you should do just a little more than that.
+ - I am happy because I am growing daily and I am honestly not knowing where the limit lies. To be certain, every day there can be a revelation or a new discovery. I treasure the memory of the past misfortunes. It has added more to my bank of fortitude.
+ - One must be truthful and honest in his approach; a constant independent inquiry and not blindly following a certain blue print laid down by others.
+ - You must have complete determination. The worst opponent you can come across is one whose aim has become an obsession.
+ - Satori – in the awakening from a dream. Awakening and self-realization and seeing into one’s own being – these are synonymous.
+ - Because one does not want to be disturbed, to be made uncertain, he establishes a pattern of conduct, of thought, a pattern of relationship to man etc. Then he becomes a slave to the patter and takes the pattern to be the real thing.
+ - A martial artist has to take responsibility for himself and accept the consequences of his own doing.
+ - Where there is no style, there is no slave. Martial Arts mean honestly expressing yourself. No style. No slave.
+ - We have great work ahead of us, and it needs devotion and much, much energy. To grow, to discover, we need involvement, which is something I experience every day – sometimes good, sometimes frustrating. No matter what, you must let your inner light guide you out of the darkness.
+ - The second-hand artist blindly following his sensei or sifu accepts his pattern. As a result, his action is and, more importantly, his thinking become mechanical. His responses become automatic, according to set patterns, making him narrow and limited.
+ - True observation begins when devoid of set patterns; freedom of expression occurs when one is beyond system.
+ - If you make an ass out of yourself, there will always be someone to ride you.
+ - Never trouble trouble till trouble troubles you. I’ll not willingly offend, nor be easily offended.
+ - The timeless moment. – The “moment” has no yesterday or tomorrow. It is not the result of thought and therefore has no time.
+ - Know the difference between a catastrophe and an inconvenience. – To realize that it’s just an inconvenience, that it is not a catastrophe, but just an unpleasantness, is part of coming into your own, part of waking up.
+ - All martial arts is simply an honest expression of one’s body – with a lot of deception in between.
+ - Voidness is that which stands right in the middle between this and that.
+ - You cannot force the Now. – But can you neither condemn nor justify and yet be extraordinarily alive as you walk on? You can never invite the wind, but you must leave the window open.
+ - The truth is outside of all fixed patterns.
+ - Art is never decoration, embellishment; instead, it is work of enlightenment. Art, in other words, is a technique for acquiring liberty.
+ - Turn your sparring into play – but always play seriously.
+ - To know oneself is to study oneself in action with another person.
+ - Art reaches its greatest peak when devoid of self-consciousness. Freedom discovers man the moment he loses concern over what impression he is making or about to make.
+ - False teachers of the Way of life use flowery words.
+ - Every morning like a scholar at his first class I prepare a blank mind for the day to write upon.
+ - Jeet Kune Do does not beat around the bush. It does not take winding detours. It follows a straight line to the objective. Simplicity is the shortest distance between two points.
+ - If one loves, one need not have an ideology of love.
+ - My style? You can call it the art of fighting without fighting.
+ - The happiness that is derived from excitement is like a brilliant fire- soon it will go out.
+ - Observe what is with undivided awareness.
+ - When one has no form, one can be all forms.
+ - I hope martial artists are more interested in the root of martial arts and not the different decorative branches, flowers or leaves. It is futile to argue as to which leaf, which design of branches, or which attractive flower you like; when you understand the root, you understand all its blossoming.
+ - The aim of art is to project an inner vision into the world, to state in aesthetic creation the deepest psychic and personal experiences of a human being. It is to enable those experiences to be intelligible and generally recognized within the total framework of an ideal world.
+ - One rule is to not use complicated techniques unless they are necessary to achieve your goal. First, use simple movements, and if they don’t work, then introduce the more complex ones.
+ - It is not a shame to be knocked down by other people. The important thing is to ask when you’re being knocked down, ‘Why am I being knocked down?’ If a person can reflect in this way, then there is hope for this person.
+ - It is true that the mental aspect of kung-fu is the desired end; however, to achieve this end, technical skill must come first.
+ - Don’t indulge in any unnecessary, sophisticated moves.
+ - I’ve come to understand that life is best lived, not conceptualized.
+ - The founder of any branch must be more ingenious than the common man. However, if his achievement is not carried on by disciples of the same ingenuity, then things will only become formalized and get stuck in a cul-de-sac; whereby breakthrough and progress will be almost impossible.
+ - To tell the truth, I could beat anybody in the world.
+ - Have no rigid system in you, and you’ll be flexible to change with the ever changing.
+ - More and more I believe in the fact that you have two hands and two legs, and the thing is how to make good use of yourself – and that’s about it.
+ - Know the difference between a catastrophe and an inconvenience.
+ - Are you going to let the obstacles in your life be stumbling blocks or stepping stones? Choose the positive. You are the master of your attitude.
+ - I have the absolute confidence not to be number two, but then I have enough sense to realize that there can be no number one.
+ - I’m not a master. I’m a student-master, meaning that I have the knowledge of a master and the expertise of a master, but I’m still learning. So I’m a student-master. I don’t believe in the word ‘master.’ I consider the master as such when they close the casket.
+ - It is useless to try to stir the dirt Out of the muddy water, As it will become murkier. But leave it alone, And if it should be cleared; It will become clear by itself.
+ - The three most difficult things in life are: 1. To keep a secret. 2. To forget an injury. 3. To make good use of leisure.
+ - Seek freedom from the conformity of styles.
+ - The intangible represents the real power of the universe. It is the seed of the tangible.
+ - A kung fu man who was really good was not proud at all. Pride emphasizes the superiority of one’s status. There has to be fear and insecurity in pride, because when you aim at being highly esteemed and achieve such status, you automatically start to worry about losing status.
+ - Endurance is lost rapidly if one ceases to work at its maximum.
+ - People try to hold onto the sameness. This holding onto prevents growth.
+ - The measure of the moral worth of a man is his happiness. The better the man, the more happiness. Happiness is the synonym of well-being.
+ - As long as we separate this oneness into two we won’t achieve realization.
+ - There are lots of guys around the world that are lazy. They have big fat guts. They talk about chi power and things they can do, but don’t believe it.
+ - The more relaxed the muscles are, the more energy can flow through the body. Using muscular tensions to try to ‘do’ the punch or attempting to use brute force to knock someone over will only work to opposite effect.
+ - Nothingness cannot be defined; the softest thing cannot be snapped.
+ - Success is not in reaching the destination, but in making the journey.
+ - If your opponent is at a distance, kick him in the groin. If he gets close, poke him in the eyes, bring up your knee, pop him with an elbow, dig a corkscrew punch to his stomach.
+ - Maturation is the development from environmental support to self-support.
+ - Man, he is constantly growing and when he is bound by a set pattern of ideas or way of doing things, that’s when he stops growing.
+ - Truth comes when your mind and heart are purged of all sense of striving and you are no longer trying to become somebody; it is there when the mind is very quiet, listening timelessly to everything.
+ - Love is like a friendship caught on fire.
+ - The success of an assailant’s attack depends on surprise, and if you’re sufficiently alert to prevent a surprise, your counterattack is already halfway to being successful.
+ - To tolerate is to insult.
+ - We have great work ahead of us, and it needs devotion and much, much energy. To grow, to discover, we need involvement.
+ - I’m a philosophy major. That means I can think deep thoughts about being unemployed.
+ - Jeet Kune Do favors formlessness so that it can assume all forms and since Jeet Kune Do has no style, it can fit in with all styles. As a result, Jeet Kune Do utilizes all ways and is bound by none and, likewise, uses any techniques which serve its end.
+ - One should be in harmony with, not in opposition to, the strength and force of the opposition. This means that one should do nothing that is not natural or spontaneous; the important thing is not to strain in any way.
+ - To be what I term a ‘quality’ human being one has to be transparently real and have the courage to be what he is.
+ - Give up thinking as though not giving it up. Observe techniques as though not observing.
+ - To be bound by traditional martial art style or styles is the way of the mindless, enslaved martial artist. But to be inspired by the traditional martial art and to achieve further heights is the way of genius.
+ - When you’re talking about fighting, as it is, with no rules, well then, baby you’d better train every part of your body!
+ - There’s only one basic principle of self-defense- you must apply the most effective weapon, as soon as possible, to the most vulnerable target.
+ - A self-willed man obeys a different law, the one law I, too, hold absolutely sacred the human law in himself, his own individual will.
+ - Since weight training involves repetitions, a great deal of energy must be exerted. Therefore, weight training should be practiced only every other day.
+ - There is no mystery about my style. My movements are simple, direct and non-classical. The extraordinary part of it lies in its simplicity. Every movement in Jeet Kune-Do is being so of itself. There is nothing artificial about it. I always believe that the easy way is the right way.
+ - I don’t want to do anything halfway. It has to be perfect.
+ - Truth cannot be structured or confined.
+ - We shall find the answer when we examine the problem, the problem is never apart from the answer, the problem IS the answer, understanding the problem dissolves the problem.
+ - Efficiency is anything that scores.
+ - A kung fu man lives without being dependant on the opinions of others, and a master, unlike the beginner, holds himself in reserve. He is quiet and unassuming, with no desire to show off.
+ - If there is always light, you don’t experience light anymore. You have to have the rhythm of light and darkness.
+ - Prosperity is apt to prevent us from examining our conduct; but adversity leads us to think properly of our state, and so is beneficial to us.
+ - Ever since I was a child I have had this instinctive urge for expansion and growth.
+ - Genius: The capacity to see and to express what is simple, simply!
+ - To see is to be decieved. To hear is to be lied to. To FEEL is to believe.
+ - The point is the doing of them rather than the accomplishments. There is no actor but the action; there is no experiencer but the experience.
+ - The martial arts are based upon understanding, hard work and a total comprehension of skills. Power training and the use of force are easy, but total comprehension of all of the skills of the martial arts is very difficult to achieve.
+ - Circumstances hell! I make circumstances!
+ - When you fight, if it is a real fight, use every tool that you have, use your whole body. Use your fists, your legs, your fingers, your head if you have to, and hit them in every vulnerable spot, the balls, the eyes etc. to win.
+ - To live is to express oneself freely.
+ - Once I slow down because I think I have reached my peak, then my skills will go nowhere but down.
+ - Reality is apparent when one ceases to compare.
+ - Do not like, do not dislike; all will then be clear. Make a hairbreadth difference and heaven and earth are set apart.
+ - Conditioning obstructs our view of reality. We do not see IT in its suchness because of our indoctrination, crooked and twisted.
+ - I don’t believe in different ways of fighting now. I mean, unless human beings have 3 arms and 3 legs, then we will have a different way of fighting. But basically we all have two arms and two legs so that is why I believe there should be only one way of fighting and that is no way.
+ - Simplicity of expression rather than complexity of form.
+ - Take inventory of everyone with whom you have contact.
+ - The best form of endurance exercise is the performance of the event.
+ - Unfortunately, now in boxing people are only allowed to punch. In Judo, people are only allowed to throw. I do not despise these kinds of martial arts. What I mean is, we now find rigid forms which create differences among clans, and the world of martial art is shattered as a result.
+ - A good martial artist does not become tense, but ready.
+ - Understanding comes about through feeling, from moment to moment in the mirror of relationship.
+ - I have come to understand that life is best to be lived and not to be conceptualized. I am happy because I am growing daily and I am honestly not knowing where the limit lies.
+ - The more complicated and restricted the method, the less opportunity for expression of one’s original sense of freedom.
+ - A quality martial artist is always ready for any move, and trains oneself invincible.
+ - Self-will seems to be the only virtue that takes no account of man-made laws.
+ - Either you understand or you don’t, and that is that.
+ - You and your opponent are one. There is a coexisting relationship between you. You coexist with your opponent and become his complement, absorbing his attack and using his force to overcome him.
+ - True thusness is the substance of thought, and thought is the function of true thusness. There is no thought except that of true thusness. Thusness does not move, but its motion and function are inexhaustible.
+ - The core of understanding lies in the individual mind, and until that is touched everything is uncertain and superficial. Truth cannot be perceived until we come to fully understand our potential and ourselves. After all, knowledge in the martial arts ultimately means self-knowledge.
+ - What can you take from me which is not already yours?
+ - The aim of art is to project an inner vision into the world.
+ - Art is the way to the absolute and to the essence of human life.
+ - An instructor should exemplify the things he seeks to teach. It will be of great advantage if you yourself can do all you ask of your students and more.
+ - Through my own observations. I am convinced that an absolutely honest and direct inquiry into oneself will lead to understanding.
+ - There’s so much myth and baloney. Like a 80-year-old man able to manhandle a 300-pounder with his little finger. Ridiculous. Or this matter of breaking bricks and boards wth the edge of your hand. Now I ask you, did you ever see a brick or a board pick a fight with anybody?
+ - In life, what more can you ask for than to be real?
+ - When you freely express, you are the total style.
+ - To be honest to oneself, and that is very hard to do.
+ - The world is full of people who are determined to be somebody or to give trouble. They want to get ahead, to stand out. Such ambition has no use for a gung fu man, who rejects all forms of self-assertiveness and competition.
+ - Understand your limitations and capitalize on them.
+ - For something that is static, fixed, dead, there can be a way or a definite path; but not for anything that is moving and living.
+ - In combat, spontaneity rules; rote performance of technique perishes.
+ - There are too many stars and too few actors.
+ - I did what I came here to do. What I’ve done I’ve done with sincerity and to the best of my ability. You can’t expect much more from life.
+ - I don’t believe in getting something for nothing.
+ - The abdominal and waist region coordinate all parts of the body and act as the center or generator. Therefore, you can promote the ability to control the body’s action and master your will more easily.
+ - What Is, is more important than What Should Be.
+ - Defense is attack, attack is defense, each being the cause and result of the other.
+ - The principle of martial arts is not a thing that can be learned, like a science, by fact-finding and instruction in facts. It has to grow spontaneously, like a flower, in a mind free from emotions and desires.
+ - Let yourself go with dis-ease, be with it, and keep it company. This is the way to be rid of it.
+ - If mere mechanical efficiency can make everyone a martial artist, then all is well. Unfortunately, combat, like freedom, is something that can not be preconceived.
+ - Everybody has to think for himself. A right way for a big man may not be a right way for a small man. A right way for someone who is slow may not be a right way for someone who is quick. Each person must understand his weaknesses and his strengths.
+ - Art reaches its greatest peak when devoid of self-consciousn ess.
+ - Use karate, judo, aikido, or any style to build your counter-offensive. It will be interesting!
+ - It is not what happens that is success or failure, but what it does to the heart of man.
+ - Faith is a state of mind that can be conditioned through self-discipline. Faith will accomplish.
+ - Knowledge, surely, is always of time, whereas knowing is not of time. Knowledge is from a source, from accumulation, from conclusion, while knowing is a movement.
+ - When you say that something is impossible, you have made it impossible.
+ - To me, the extraordinary aspect of martial arts lies in its simplicity. The easy way is also the right way, and martial arts is nothing at all special; the closer to the true way of martial arts, the less wastage of expression there is.
+ - When there is freedom from mechanical conditioning, there is simplicity.
+ - Bring the mind into sharp focus and make it alert so that it can immediately intuit truth, which is everywhere. The mind must be emancipated from old habits, prejudices, restrictive thought processes and even ordinary thought itself.
+ - To be certain, every day there can be a revelation or a new discovery.
+ - The primary Reality is not what I think, but that I live, for those also live who do not think.
+ - To take responsibility for one’s own actions, good and bad, is something else.
+ - There is “what is” only when there is no comparing and to live with “what is” is to be peaceful.
+ - Choose the positive. You have choice, you are master of your attitude, choose the positive, the constructive. Optimism is a faith that leads to success.
+ - Can you look at a situation without naming it? Naming it, making it a word, causes fear.
+ - You just wait. I’m going to be the biggest Chinese Star in the world.
+ - A person cannot forget someone who is good to them.
+ - He who wants to succeed should learn how to fight, to strive and to suffer. You can acquire a lot in life, if you are prepared to give up a lot to get it.
+ - The man who is really serious, with the urge to find out what truth is, has no style at all. He lives only in what is.
+ - Relationship is the mirror in which you discover yourself – to be is to be related.
+ - You know what I want to think of myself? As a human being. Because, I mean I don’t want to be like As Confucius say, but under the sky, under the heavens there is but one family. It just so happens that people are different.
+ - Faith makes it possible to achieve that which man’s mind can conceive and believe.
+ - We have more faith in what we imitate than in what we create.
+ - Willing is not enough, one must apply.
+ - The Now is indivisible. Completeness, the now, is an absence of the conscious mind to strive to divide that which is indivisible. For once the completeness of things is taken apart it is no longer complete.
+ - Training is one of the most neglected phases of athletics. Too much time is given to the development of skill and too little to the development of the individual for participation.
+ - The meaning of life is that it is to be lived, and it is not to be traded and conceptualized and squeezed into a patter of systems.
+ - Any technique, however worthy and desirable, becomes a disease when the mind is obsessed with it.
+ - A good fighter must sense rather than perceive his chance to strike.
+ - To develop the creative attitude, analyze and focus on the wanted SOLUTION; seek out and fill your mind with the FACTS; write down ideas, both sensible and seemingly wild; let the facts and ideas simmer in your mind; evaluate, recheck, settle on the creative ideas.
+ - To contemplate a thing implies maintaining oneself OUTSIDE it, resolved to keep a distance between it and ourselves.
+ - Art lives where absolute freedom is because when it is not, there can be no creativity.
+ - Awareness is without choice, without demand, without anxiety; in that state of mind, there is perception.
+ - Put every great teacher in a room, and they’d agree about everything, but put their disciples in there and they’d argue about everything.
+ - Linda and I aren’t one and one. We are two halves that make a whole – two halves fitted together are more efficient than either half would ever be alone!
+ - What we are after is the root and not the branches. The root is the real knowledge; the branches are surface knowledge. Real knowledge breeds ‘body feel’ and personal expression; surface knowledge breeds mechanical conditioning and imposing limitation and squelches creativity.
+
+412 quotes

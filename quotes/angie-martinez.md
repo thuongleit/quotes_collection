@@ -1,0 +1,22 @@
+ - Do you. Just focus on being the best version of yourself that you can be every day, and don’t compare yourself to anyone else or worry about what they’re doing.
+ - Always keep things in perspective.
+ - Go with the flow, but pray God keeps you afloat.
+ - We have to remember that no matter how much hardship we go through in our life, there is always going to be that fragile place in our heart.
+ - I’ve been doing a lot of yoga to help with my running, recovery, and mental clarity. It works great for me.
+ - I’m on the radio because I love hip-hop. I represent that community, but there are so many other aspects to who I am as a person.
+ - It’s amazing what you can accomplish when you really strive to be better.
+ - The people I chose to work with me on this album are there because I have a personal relationship with them.
+ - Every weekend we’ve been trying to go out of town, to let people know about this album. I’ve been trying to host parties. It’s hard, because it’s a lot of work to do both.
+ - I was hanging out with some of what my mother would consider the wrong kind of kids. With no direction, no motivation. I would hang out in the lunchroom all day, or the handball courts.
+ - After you date a player or two it’s nice to just chill with a guy that can keep it basic.
+ - I got my bearings, I began to focus. My mother was very supportive. When I came back to New York I landed a job at Hot 97.
+ - I went to night school and summer school, I made that whole year up and I actually graduated on time. Also, I got a part-time job at the radio station.
+ - I love what I do because I get to talk to the people who change the game: the influencers, visionaries who make things happen in music and culture. That’s inspiring to me.
+ - The projects I’m working on are all diverse, but each represents a different passion for me. I’m constantly looking to stretch myself.
+ - I’m excited to join Power 105.1 in New York and The Beat in Miami and expand my brand even further in the coming months.
+ - Back then, Lisa Lisa was somebody that I liked. She was Puerto Rican, and I related to her somewhat. I was a little bit of a fan.
+ - Imagine the first time you are about to rap in a studio and you find yourself in a booth with Redman and KRS!
+ - I am going to do as much as I can do, because I hate to do anything and not give my all.
+ - I knew that when it came time for me to finally make my own album, it wasnt going to be about being a jock. It had to be more personal and intimate.
+
+20 quotes

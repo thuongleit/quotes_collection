@@ -1,0 +1,127 @@
+ - Paying tax is not a punishment. It’s a responsibility.
+ - The president of the United States, whoever it is, deserves a certain level of reverence and respect just because of the office he holds.
+ - If you want to play a game, go to where it’s played and find a way to get in. Things happen when you get in the game.
+ - Unity is the most important thing on the road to stamping out terror. You need global rules of law and order, and they have to be enforced. Start with that principle.
+ - While we may not mind being used, we resent deeply being made to feel discarded.
+ - When lightning strikes you want to be there, right there in the room. You, not everybody’s going to say yes to you. Just don’t ever say no to yourself, ever.
+ - I don’t believe he had a responsibility to even answer that question – you have no responsibility to answer personal questions that people have no right to ask you.
+ - You don’t say, like the Bush crowd, ‘I got this guy over here and I don’t like him and I’m gonna get him, whether you back me or not.’
+ - To become a saint in the Catholic Church, the normal procedure is, beatification, requiring one miracle in your name, then canonization, roughly in five years or longer, to become a saint, a second miracle.
+ - Eleanor Roosevelt said, always do what you’re afraid to do.
+ - People do have a – people, unlike politicians, are allowed to change their minds. People are allowed to look back and say, you know what, all things considered, I don’t think that was the smart move.
+ - I know, when I look into the eyes of my own children, the look of wonder when I speak of life back in the ’60s. That’s why the Rolling Stones are such a hit even in their 60s, why Dennis Hopper is so compelling, even when he’s making pitches for something unhip as long-term financial planning.
+ - Isn’t it odd that the guy was politically correct in one particularly weird way. Bill Clinton never lit a cigar.
+ - While Jeb Bush finds himself mired in the muck of an intramural fight in his own party over his remarks about the Iraq War, Hillary Clinton is sticking to the low-key strategy, and it looks like it’s working.
+ - You can be Mitt Romney with three marriages and a disastrous speakership, kicked out of the speakership, being reprimanded by the House of Representatives and fined and all that stuff, it doesn’t matter if you sing the right tune with the right tone these days.
+ - I don’t know why his lawyers didn’t tell him, ‘You don’t have to answer any questions about your private life, Mr. President. Let them sue you. Take the heat. You don’t have to answer.’
+ - It was like an aphrodisiac. Actors would say let’s have another cigarette on that great scenes, and they’d blow smoke in each other’s face.
+ - Right now, the old guys, the old farts, if you will, are still running the show, and the women haven’t gotten their place yet at all.
+ - You can’t be loved for long if you’re not feared.
+ - I love what Joe Eszterhas written about Bill Clinton. It’s hilarious, Clinton as a rock star, which is the way we should remember him.
+ - We in America count on the profit motive to get people to do the right thing. That’s our basic American notion when it comes to business.
+ - A new poll out taken by a Republican group that shows most Democrats prefer socialism to capitalism. Those terms don’t mean what they did maybe 40, 50 years ago.
+ - I tell my staff, we’re riding a tour bus around, and we’re going to stop and look at some weird stuff – but we’re taking our viewers around safely. They’re just looking out the window at it. I’m trying to create a sense of comfort for my center audience.
+ - Whether the Bushes, or whoever they are, they always end up in the end with the money and the ability to really blow away anybody who dares challenge them.
+ - Medicare, getting through that in the ’60s, after Kennedy’s assassination, where there was such an emotional desire to do something to carry on his agenda.
+ - We’ve always had a dual role in the region – friend of Israel, and honest broker. We’ve given up the honest broker role completely.
+ - I’ll make it official. I care about Don Draper and what happens to him and I’m not the only one who does.
+ - I do think that Hillary Clinton risks looking like she’s imitating Elizabeth Warren when she starts doing it. She’ll look like Elizabeth the Second. And nobody is electing anybody a second of anything.
+ - In life, as in death, Pope John Paul II was one of the most visible people on Earth.
+ - Natural-born American means you don’t have to be naturalized. You were born to an American mother, like President Obama, no matter where you were born.
+ - The big lie is that the people who make a lot of money were the only ones that worked hard.
+ - Just look at who won the third debate between Bush and Gore. I knew Bush won, because people liked him more. People just didn’t like Gore. But all the journalists thought Gore won big, he cleaned the guy’s clock.
+ - America’s the one country in the world where anybody who comes here does better than where they came from.
+ - Nothing is as important as the biggest day in your life.
+ - Everything he’s done is clean as a whistle. He’s never not only broken any law, he’s never done anything wrong.
+ - Most politicians have to find a way past that allergy. They have to find a way to go door to door, person to person, or else they don’t win.
+ - The overall campaign launch is designed to break through the clutter and reach out to consumers. At the end of the day, consumers are the ones who benefit from the convenience and value never before seen in a free checking account.
+ - The fact that younger people are more inclined to socialism may well come with the fact that so many young people’s first experience with capitalism is as a debtor.
+ - What happens to conservatives when they get near the White House? How come they only seem to be talking the good talk at, say, the Senate level, when they don’t have to run the show?
+ - I’m not just gonna go after the black Jesse Jackson they all want to make fun of, but I know the wrong people are gonna laugh at that. I don’t want to play to that crowd. I don’t.
+ - Pope John Paul II spoke with a lot of clarity and consistency. But he always spoke with immense compassion. He’s the one who said the best way to love somebody is to tell them the truth. So, he did that well.
+ - I mean, if somebody said to me, junior year of college, you can go anywhere, your old man’s paying for it, I’d have been gone in a flash. But I had to work. Every summer my mother would say, ‘Get that job and hold on to it until August 30.’
+ - It’s a fact of life that positive reasons don’t always get people to vote. You need some negative reasons.
+ - And then there’s Israel – a lot of people support Israel, and it’s important to Israel to take out Iraq. So it’s all mixed together. It’s a combination of motives.
+ - Isn’t Hollywood – and I love movies – a lot of it about a big lie?
+ - I’m impressed that people out there in Pennsylvania, deer hunter country, have had it with these stupid wars, that they don’t go along with the neocon theology, they don’t go along with the big money people or the evangelicals that always seem to want to fight, especially in the Middle East.
+ - People – Hollywood doesn’t talk about how bad cigarette smells when it smells like they wake up in bed with somebody who has been smoking the night before.
+ - While I have questions about the language used in describing the two economic systems, I think people have fairly good gut sense of the difference between socialism and capitalism.
+ - I mean, the idea that Bar could have sent him off on a Grand Tour. But he wasn’t the least bit interested. Why? Why isn’t he interested in the world? Because here’s the bad news for him: He’s in the world now.
+ - I truly believe that America’s greatness and billions and billions of dollars of our wealth flows away because China doesn’t treat us fairly.
+ - There ought to be an onus on the people that want a law, rather than people that don’t need a new law.
+ - I’m center left, but I think – most things, left on some, center on some, right on very few.
+ - Jeb Bush has being slammed by his own party for a very messy response to questions about his brother’s war in Iraq. He should have been ready for this one.
+ - If you think what you see on TV is prejudiced, it is. Follow your instincts.
+ - You don’t know whether he’s thought through how this is going to affect the Middle East.
+ - The Indians are still winning the battle against the white men, but sooner or later, the white guy will win.
+ - I think the Clintons are going to make their decision based on the merits. And their focus, like mine, is on middle class jobs. We’re in a different world than 1994. The China we dealt with in 1994 is a lot different than the China today in 2015.
+ - In the world of late-night comics, Letterman made us feel any hometown boy from Indianapolis could poke fun at celebrities and politicians and do it right to their faces.
+ - I know one thing: There are a billion Islamic people in the world today, and there will be about 2 billion by the time we’re dead. They’re not going to give up their religion.
+ - Rush Limbaugh is beginning to look more and more like Mr. Big, and at some point somebody’s going to jam a CO2 pellet into his head and he’s going to explode like a giant blimp. That day may come. Not yet, but we’ll be there to watch.
+ - Someone needs to talk sense to the president. But these people are not world travelers. This president, much as I like him, had all the opportunities in the world.
+ - People in a state like Pennsylvania, especially in the middle of the state, as you say, want the focus on repairing the state. Pennsylvania is a mess in terms of infrastructure. They don’t want to blow up bridges over there. They want to build them here.
+ - John Paul II spoke to the commoner and to the king, to the tyrant and to the democrat in that same language of freedom.
+ - My, I felt this thrill going up my leg. I mean, I don’t have that too often.
+ - Ben Carson’s not really a factor anymore. I hate to say that of anybody, but he isn’t a factor anymore.
+ - Canonization in modern times is a very, almost scientific process.
+ - Sarah Palin – now don’t laugh – is writing a book. Not just reading a book, writing a book. Actually, in the word of the publisher, she’s ‘collaborating’ on a book. What an embarrassment! It’s one of these ‘I told you,’ books that jocks do.
+ - I’m reading Joe Eszterhas biography; it’s fabulous. Every time he made a movie, he fought with the director or the producer over the ending.
+ - Hillary Clinton does very well in Pennsylvania generally. I think she connects with the working white people and all kinds of people that normally would have a problem with the modern Democratic Party.
+ - Bill Clinton was for NAFTA. I heard him over in Tokyo he came out all said it was a great bill. Secretary Clinton was for it. She called it the gold standard when she was secretary of state.
+ - The whole reason we organize grassroots is, we think any politician that gets elected needs to be held accountable 365 days a year.
+ - Once it was suggested that Saddam Hussein might give his weaponry to terrorists, or might use weapons himself in the region, then it became hard for the Democrats to say, ‘Well, that can’t happen.’
+ - Hillary Clinton follows a cardinal rule in politics – don’t commit to a decision before you have to.
+ - I think also people in states like Pennsylvania know that a lot of money and effort and time needs to be spent on knitting America back together, on the bridges and the roads and the infrastructure and the education.
+ - The holy father John Paul II made a profound impact wherever he went. And, of course, his trip to Boston was one of the earliest ones. But I must say every time that I met the holy father and mentioned Boston, he would immediately say, rain. So, it made quite an impact on him, too.
+ - Sarah Palin is an empty vessel ready to be filled by ideology that she doesn’t even understand, and that is really scary. Nothing is more frightening than an empty vessel in power.
+ - Five years from now, 10 years from now, there’s going to be a huge Islamic population in the world, they’re going to be nationalistic, they’re going to be religious, and they’re going to be militant.
+ - Public opinion aside, it will be up to the future pope to continue John Paul II’s journey to sainthood. Many of the late pope’s followers believe he is already there.
+ - Presidents aren’t supposed to spit, at least not obviously.
+ - I think, internally, we Catholics have known this for a long time. I think we’re just thrilled and grateful that the rest of the world now is sharing in the esteem and gratitude that we’ve had for Pope John Paul II for 26 and a half years.
+ - The more failure you can accept, the greater your chance of success.
+ - My audience is much more center right, or centrist.
+ - Republicans woke up Sunday with an undeniable reality. Donald Trump’s the clear front-runner now for their party’s nomination. Trump, celebrated, of course, his big win in South Carolina.
+ - Why are some people like Chuck Schumer, who’s probably going to be leader of the Senate, why is he switching from a big city financial center pro-trader to being an anti-trader? Is that because of upstate New York? What’s going on? I can’t figure this out.
+ - Stop calling me communist. Stop calling the rest of us communists. You’ve got to stand up for what you believe should be the American government’s spirit, not what you’re just attacking people’s credibility.
+ - Keep you enemies in front of you.
+ - And on the war, I think my numbers would be a lot higher if I were out there beating the drum for this war. In fact, I don’t think it, I know it. But I can’t be for the war.
+ - All Hollywood endings – the bad endings have to be the bad guys to be falling about 50 stories to his death and you have to see his eyeballs as he goes to his doom.
+ - I think in places like Pennsylvania, there’s folks who want our next president to talk like a hawk, but fly like a dove.
+ - Pope John Paul II is the great. Only two other popes had that title. Does that suggest there is going to be a move for canonization?
+ - I think a lot it was the theology, that the road to Jerusalem runs through Baghdad, that somehow if we broke apart the rejectionist states, like Iraq, then the whole Middle East would reconfigure itself into a more favorable environment for democracy and Israel and us.
+ - I had the good fortune of living in Rome for seven years, from 1994 to 2001. So, I kind of saw firsthand the impact that Pope John Paul II had on people.
+ - The last person to be beatified by Pope John Paul II was Mother Teresa of Calcutta in 2003.
+ - I’m surprised people are that hopeful about what government can do, because if you believe in socialism, society can run a pretty decent government, it can provide services, it can regulate the economy effectively.
+ - Once having said no to Donald Trump, Mitt Romney can’t go back and say, I changed my mind, I’m bowing to the pressure from you.
+ - I never know what all of these guys are thinking, but Marco Rubio sounded desperate, like, We’ve got a leak in the dike, we got to stop this thing.
+ - Bernie Sanders even reminded me of the way I felt at parties over the years. You go to a party, you don’t know anybody, you sort of wander around. You hold a drink in your hand, you don’t know what to do. This poor guy Bernie, he was at a loss with this group of people he didn’t know.
+ - I am no longer going to go along with this idea that we’re going to keep spending and borrowing and taking over and raising taxes, that I’m going to do everything I can to change things.
+ - It looks to me like the Republican Party’s in no mood to give them a reasonable choice with this clown show going on right now from the likes of, well, Newt Gingrich and Donald Trump. What a duo.
+ - Let’s not forget, Sarah Palin may not have a golden touch, but, she gave Christine O’Donnell candidate a big touch that got her over the top.
+ - People don’t like getting dirty or living in an environment that’s been contaminated and is covered in hazardous waste.
+ - The reason I had unfaithfulness in one of my marriages is because I was too patriotic.
+ - Then the administration tied it in to the regional dispute between Israel and its enemies, as if that’s about international terrorism. No, it’s not.
+ - That is the voice of God because its the voice of truth and experience.
+ - In light of Jeb Bush’s recent fumbles on Iraq, maybe the Clinton campaign is making the smart move here by not saying.
+ - Over the last 2,000 years, 10,000 saints have been named, among them, 78 popes. At the time of his death, Pope John Paul II had the distinction of naming 482 saints, more than all of his predecessors combined.
+ - Hillary Clinton did better among working-class whites when she’s running against Barack Hussein Obama. How is she doing now against an older, a professor type, who seems very unthreatening, very likable.
+ - When I hear Rand Paul, who is much younger, saying wars are verkakte, I agree with him.
+ - The pope has been called many things, historic figure, spiritual leader, moral force. But a growing chorus of voices has begun to refer to him as John Paul II the Great, in other words, as a saint.
+ - It doesn’t serve an American interest. It really doesn’t really serve Israeli interests – it serves the interests of the political party that’s getting the votes of the settlers on the West Bank.
+ - Any jackass can talk about bombing Iran.
+ - I think, like Ronald Reagan, in another way, in a secular way, John Paul II was a great communicator, but he was also a man of deep conviction.
+ - The Republican Party, which I’ve been watching all my life. They always seem to win. I mean, there was the exception, of course, with Goldwater back in ’64, which turned out to be a catastrophe. But it always seems that the Mitt Romneys and the East Coast types always end up winning the fights.
+ - I used to love hand raising.
+ - Every party and every movement tends to need a hero.
+ - We’ve got to recognize that when we march into Iraq, we’re setting up the card tables in front of every university in the Arab world, the Islamic world, to recruit for al-Qaida.
+ - I thought, giving Jeb Bush the benefit of the doubt all these years, that he was sitting, saying, what a numbnut, what an idiot. My brother’s a fool. He’s listening to these neocons that talked him into this war. Dad would have never done this.
+ - Being a little older is not going to win election. Being a little younger might, especially if the older candidates, Hillary Clinton included, can’t make the case that they have learned something that the younger crowd doesn’t know.
+ - Around the globe, millions more are mourning the death and celebrating the life of Pope John Paul II. Could any other world leader have drawn so many people to one place?
+ - I’m so glad we had that storm last week.
+ - Here’s our policy. It’s Unite the world against terrorism.
+ - The difference between me and them is that I’ll look at Jesse Jackson and I’ll see four Jesse Jacksons, and they’ll just see one, the clown ambulance chaser.
+ - Those who saw Pope John Paul II either in person or through the mass media glimpsed a man who millions of Catholics believe may be one of the greatest popes in the history of the church.
+ - If Bernie Sanders hasn’t been able to draw a contrast with Hillary Clinton, why is he doing so well, a guy – most people never heard of this fellow before.
+ - Even if you’re not a Catholic, even if you’re not a Christian, in fact even if you have no religious faith at all, what people could see in Pope John Paul was a man of true and profound spiritual faith.
+
+125 quotes

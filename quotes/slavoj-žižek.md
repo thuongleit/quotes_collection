@@ -1,0 +1,67 @@
+ - Humanity is OK, but 99% of people are boring idiots.
+ - The threat today is not passivity, but pseudo-activity, the urge to “be active”, to “participate”, to mask the Nothingness of what goes on.
+ - We feel free because we lack the very language to articulate our unfreedom.
+ - What if the way we perceive a problem is already part of the problem?
+ - I already am eating from the trash can all the time. The name of this trash can is ideology. The material force of ideology makes me not see what I am effectively eating.
+ - If you have reasons to love someone, you don’t love them.
+ - Cinema is the ultimate pervert art. It doesn’t give you what you desire – it tells you how to desire.
+ - Thinking begins when you ask really difficult questions.
+ - Beyond the fiction of reality, there is the reality of the fiction.
+ - The problem for us is not are our desires satisfied or not. The problem is how do we know what we desire.
+ - We need useless theory more than ever today.
+ - Often, the worst way to become prisoner of a system is to have a dream that things may turn better, there is always the possibility of change. Because it is precisely this secret dream that keeps you enslaved to the system.
+ - The horror of Communism, Stalinism, is not that bad people do bad things – they always do. It’s that good people do horrible things thinking they are doing something great.
+ - Atheism is not the denial of the existence of God, but having doubts as to whether God is conscious.
+ - Love feels like a great misfortune, a monstrous parasite, a permanent state of emergency that ruins all small pleasures.
+ - The true ethical test is not only the readiness to save the victims, but also – even more, perhaps – the ruthless dedication to annihilating those who made them victims.
+ - You could say, in a vulgar Freudian way, that I am the unhappy child who escapes into books. Even as a child, I was most happy being alone. This has not changed.
+ - Global capitalism is simply accepted as a fact that you cannot do anything about. The only question is, Will you accommodate yourself to it, or will you be dismissed and excluded?
+ - But in a radically atheist universe, you are not only responsible for doing your duty, You are also responsible for deciding what is your duty.
+ - Without the communist oppression, I am absolutely sure I would now be a local stupid professor of philosophy in Ljubljana.
+ - The ultimate lesson of The Interpretation of Dreams: reality is for those who cannot sustain the dream.
+ - As soon as we renounce fiction and illusion, we lose reality itself; the moment we subtract fictions from reality, reality itself loses its discursive-logical consistency.
+ - I think that the task of philosophy is not to provide answers, but to show how the way we perceive a problem can be itself part of a problem.
+ - My big fear is that if I act the way I am, people will notice that there is nothing to see. So I have to be active all the time, covering up.
+ - It’s bad if we are controlled, but if we’re not, it can be even worse.
+ - Who dares to strike today, when having the security of a permanent job is itself becoming a privilege?
+ - Ideology today is unfreedom which you sincerely personally experience as freedom.
+ - I secretly think reality exists so we can speculate about it.
+ - Why are so many problems today perceived as problems of intolerance, rather than as problems of inequality, exploitation, or injustice? Why is the proposed remedy tolerance, rather than emancipation, political struggle, or even armed struggle?
+ - I agree with Sophocles: the greatest luck is not to have been born – but, as the joke goes on, very few people succeed in it.
+ - When I really love someone, I can only show it by making aggressive and bad-taste remarks.
+ - It is more satisfying to sacrifice oneself for the poor victim than to enable the other to overcome their victim status and perhaps become even more succesfull than ourselves.
+ - A typical guy who buys organic food doesn’t really buy it in order to be healthy; he buys it to regain a kind of solidarity as the one who really cares about nature. He buys a certain ideological stance.
+ - As a Marxist, let me add: if anyone tells you Lacan is difficult, this is class propaganda by the enemy.
+ - What if culture itself is nothing but a halt, a break, a respite, in the pursuit of barbarity?
+ - What we philosophers can do is just correct the questions.
+ - We have all the freedoms we want. But what we are missing is red ink: the language to articulate our non-freedom. The way we are taught to speak about freedom- war on terror and so on-falsifies freedom.
+ - Postcolonialism is the invention of some rich guys from India who saw that they could make a good career in top Western universities by playing on the guilt of white liberals.
+ - My instinct as a philosopher is that we are effectively approaching a multicentric world, which means we need to ask new, and for the traditional left, unpleasant questions.
+ - Our biological body itself is a form of hardware that needs re-programming through tantra like a new spiritual software which can release or unblock its potential.
+ - Come on. I don’t have any problem violating my own insights in practice.
+ - Liberal democracy – as you know, in the old days, we were saying we want socialism with a human face. Today’s left effectively offers global capitalism with a human face, more tolerance, more rights and so on. So the question is, is this enough or not? Here I remain a Marxist: I think not.
+ - The minimum necessary structuring ingredient of every ideology is to distance itself from another ideology, to denounce its other as ideology.
+ - In Fascism, if you were a Jew, you were simply killed. Nobody had the idea of arresting Jews and torturing them to confess the Jewish plot. Because in Fascism, you are guilty for your whole being.
+ - True universalists are not those who preach global tolerance of differences and all-encompassing unity, but those who engage in a passionate struggle for the assertion of the Truth which compels them.
+ - You can be an extreme materialist, thinking that economic development ultimately determines everything; then you are truly ideological.
+ - The problem for me is not that Schwarzenegger is governor, but the extent to which even politicians who are not actors are functioning like actors.
+ - In order effectively to liberate oneself from the grip of existing social reality, one should first renounce the transgressive fantasmatic supplement that attaches us to it.
+ - For the multiculturalist, white Anglo-Saxon Protestants are prohibited, Italians and Irish get a little respect, blacks are good, native Americans are even better. The further away we go, the more they deserve respect. This is a kind of inverted, patronising respect that puts everyone at a distance.
+ - The more opera is dead, the more it flourishes.
+ - For me, ideology is defined only by how the coordinates of your meaningful experience of the world, and your place within society, relate to the basic tensions and antagonisms of social orders.
+ - I – and I still consider myself, I’m sorry to tell you, a Marxist and a Communist, but I couldn’t help noticing how all the best Marxist analyses are always analyses of a failure.
+ - We Slovenians are even better misers than you Scottish. You know how Scotland began? One of us Slovenians was spending too much money, so we put him on a boat and he landed in Scotland.
+ - You can be a fanatical millennialist religious mystic, and you are, in a certain way, not outside of ideology. Your position can be that of perfectly describing the data and nonetheless your point is ideological.
+ - Fascism is relatively easy to explain. It is a reactionary phenomenon. Nazism was some bad guys having some bad ideas and unfortunately succeeding in realizing them.
+ - In Stalinism, everybody was potentially a victim in a totally contingent way.
+ - While just looking, we are always hunting among objects, looking for what we desire or fear, endeavoring to recognize some pattern; on the other hand, objects themselves always “stare back,” vie for our attention, throw at us their lures and endeavor to entrap us.
+ - I may still be a kind of a Marxist but I’m very realistic, I don’t have these dreams of revolutionists around the corner.
+ - Those who were still able to write beautiful melodies were kitsch composers like Tchaikovsky. Tchaikovsky approaches true art not in his numerous beautiful melodies, but when a melodic line is thwarted.
+ - We usually speak of the Jewish-Christian civilization perhaps, the time has come, especially with regard to the Middle East conflict, to talk about the Jewish-Muslim civilization as an axis opposed to Christianity.
+ - The force of universalism is in you Basques, not in the Spanish state.
+ - The duty of a politician for me is to be a representative: a politician is not an expert, experts are experts, hired for their expertise.
+ - The fantasy which serves as a support for the figure of the Stalinist Communist is therefore exactly the same as the fantasy which is at work in the Tom and Jerry cartoons.
+ - I am what you might call abstractly anti-capitalist. For instance, I am suspicious of the old leftists who focus all their hatred on the United States. What about Chinese neo-colonialism? Why are the left silent about that? When I say this, it annoys them, of course. Good!
+ - Did Wagner really accomplish the first step towards the kitschy ‘fetishization’ of music that reaches its apogee in classical Hollywood?
+
+65 quotes

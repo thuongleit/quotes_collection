@@ -1,0 +1,61 @@
+ - The answer to crime is not gun control, it is law enforcement and self-control.
+ - Freedom does not mean doing what you can get away with, doing what you please. It means, instead, having the opportunity to do what you ought to do – for family and for community and for humanity as a whole.
+ - Our success or failure is not in the hands of our leaders. It is in our hands.
+ - There can be no self-government without self-discipline. There can be no self-government without self-control. There can be no liberty unless it is grounded in moral discipline and the ability to do what is right.
+ - Harden our hearts to the innocents in the womb, and we have hardened our hearts to the need for compassion, and mercy, and fellow-feeling, and charity, and decency in this world.
+ - Preferential affirmative action patronizes American blacks, women, and others by presuming that they cannot succeed on their own. Preferential affirmative action does not advance civil rights in this country.
+ - The travesty of slavery wasn’t physical abuse. It was the moral abuse of looking at a human being as if they are an animal.
+ - You can’t build marriage on a foundation of selfish hedonism, because that would be to promise people only roses, and marriage is also thorns.
+ - Do we really think that a government-dominated education is going to produce citizens capable of dominating their government, as the education of a truly vigilant self-governing people requires?
+ - A callous disregard for the claims of innocent human life is the heart and soul of the evil of terrorism.
+ - It’s in the private places of the heart that freedom is made or unmade by the discipline we create there.
+ - There is a difference between constitutional government and judicial dictatorship. And I think it’s time we remembered that our Constitution was not put together in order to establish the sovereignty of the judges, it was framed in order to guarantee the sovereignty of the people.
+ - The money we spend on education should follow the choice of the parents, not the choice of educrats, bureaucrats, politicians, who, unfortunately, have been manipulating this process in their own career interests, not in the interests of our young people.
+ - The act of voting is one opportunity for us to remember that our whole way of life is predicated on the capacity of ordinary people to judge carefully and well.
+ - When we surrender moral government to the courts, we have surrendered the very essence of freedom, we have surrendered its only real meaning – and we will not be free again until we get it back.
+ - Every leader, and every regime, and every movement, and every organization that steps across the line to terrorism must be banished from the discourse of civilized human life.
+ - Bureaucracies are inherently antidemocratic. Bureaucrats derive their power from their position in the structure, not from their relations with the people they are supposed to serve. The people are not masters of the bureaucracy, but its clients.
+ - The flag that was the symbol of slavery on the high seas for a long time was not the Confederate battle flag, it was sadly the Stars and Stripes.
+ - Our leaders will serve the common good with better laws and better actions only when we serve it first, by casting better votes.
+ - Christ is the very epitome of innocence, and without the blood of Christ, shed on Calvary, God’s plan of salvation would not have been fulfilled.
+ - I want to see my party achieve victory based on what we have to offer this country and our ability to offer it with integrity. I don’t want to see us achieve victory based on the fact that we are better at rigging the game than other people.
+ - At the root of the assault on our liberties is, in fact, an assault on our character – an assault that assumes that we are not good enough to be free, and that aims to make sure that we are no longer strong enough, courageous enough, disciplined enough to be a free people.
+ - The gospel of licentiousness, of selfishness, of blaming all the difficulties of life on external factors – these are the things that are killing people today in ways that the slave whips and the overseers couldn’t.
+ - The Declaration of Independence summarizes the civic principles of American life. It agrees with this biblical perspective when it affirms that we are all created equal and endowed by the Creator, God, with our unalienable rights.
+ - When we, through our educational culture, through the media, through the entertainment culture, give our children the impression that human beings cannot control their passions, we are telling them, in effect, that human beings cannot be trusted with freedom.
+ - It is not for us to calculate our victory or fear our defeat, but to do our duty and leave the rest in God’s hands.
+ - Our founders understood that divine authority was necessary in order to establish a ground on which the weak, the defenseless, the powerless, the poor and the wretched would be able to stand, in the face of every human power whatsoever, and demand respect for their human rights and dignity.
+ - We must teach our children that the preservation of liberty, and of an order of society conducive to human dignity, requires that a free people retain the moral and material means to discipline its own government, should the temptation to tyranny take root.
+ - Family life is the normal context in which we can learn that a life filled with thinking about others instead of ourselves is the sure road to the most fulfilling joys and satisfactions.
+ - You can’t have it both ways. Either our rights come from God, as our Declaration of Independence says, or they come from human choice. If they come from human choice, then our whole way of life is meaningless, it has no foundation.
+ - I deeply resent the destruction of federalism represented by Hillary Clinton’s willingness to go into a state she doesn’t even live in and pretend to represent the people there. So I certainly wouldn’t imitate it.
+ - Without the basis in written law, and without the basis in our Constitution ratified by the people, judges can’t make laws. And if we accept the notion that their dictates are law, then we have not only submitted to tyranny, we have abandoned a republican form of government.
+ - Politics must be founded on the solid faith of God almighty.
+ - In the great Declaration of our principles, it didn’t say that all men are created equal ‘if you so choose.’ It said that all are created equal by the power and the will of God, and that we must respect their rights as we respect that will.
+ - The First Amendment isn’t about free thought and free opinion and free belief. The First Amendment is about free exercise – the carrying into practice of religious principles, and beliefs, and convictions.
+ - The income tax is a twentieth-century socialist experiment that has failed. Before the income tax was imposed on us just 80 years ago, government had no claim to our income. Only sales, excise, and tariff taxes were allowed.
+ - It’s like the neighborhood I would have grown up in, I think, if I had have grown up here.
+ - That is one of the reasons I oppose this whole Affirmative Action business. We are not supposed to be judged based on what our ancestors did or suffered. We are supposed to be judged as individuals, based on what we are able to achieve.
+ - I personally do not owe the debt that was owed by the campaign.
+ - Rights come from God and only from God.
+ - We must take away the government’s credit card. With limits on both tax revenue and borrowing, the Federal government would finally be forced to get serious about spending cuts.
+ - Increasingly, I wonder if there are any outrages that would be sufficiently ominous in their effects upon liberty and unequivocal in their moral perversity to awaken the American people to the tyrannical spirit that envelopes the Clinton White House.
+ - We have created an educational system, funded throughout the country by taxpayer dollars, that systematically turns our children away from the truth that makes them free.
+ - Rights don’t come from human documents. The very idea is only worthy of contempt. Human documents are nothing but pieces of paper, they are nothing but words – until by will, and conscience, and courage, and commitment, human beings turn them into reality.
+ - If we accept the logic of the Declaration, reverence for God is not just a matter of religious faith, it is the foundation of justice and citizenship in our republic.
+ - Anything the government gives you is just another link in the chains that destroy your liberty.
+ - A nation of character is filled with citizens who gradually build lives based on the living awareness that their deeds are judged by eyes of unchanging truth, by a will that is the real measure of what is right, and therefore of what is good.
+ - I will stand against those who see terrorism when Americans die, but who see suicide bombers who kill Israelis and believe that that is just part of the negotiating process.
+ - Christians belong in American politics because there is not and cannot be a fundamental separation between our moral vocation and our citizenship.
+ - How does it secure the blessings of liberty to our posterity, to those generations yet unborn, to kill them, aborting them in the womb?
+ - The heart of government, coated with whatever velvet gloves you want to put on it, is a mailed fist of force and coercion.
+ - The fundamental premise of liberalism is the moral incapacity of the American people.
+ - Nothing is so opportune for tyrants as a people tired of its liberty.
+ - We must reject dictatorship in whatever form it takes – and especially when it rears its head in our own midst on the bench.
+ - Our first responsibility is not to ourselves. Our first responsibility is to our country and to our God.
+ - The question isn’t whether you have a good master or a bad master. It’s to be your own master. That is the dignity of humanity.
+ - It is the absence of bars that makes a beast free – but only the truth can make a man free.
+ - Freedom is first of all a responsibility before the God from whom we come.
+ - There’s not a single thing on offer in this all-too-temporary world for which you should ever sell your soul.
+
+59 quotes

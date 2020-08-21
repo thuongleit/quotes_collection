@@ -1,0 +1,36 @@
+ - Every god is a jealous god after the breakdown of the bicameral mind.
+ - The vestiges of the bicameral mind do not exist in any empty psychological space.
+ - The bicameral mind with its controlling gods was evolved as a final stage of the evolution of language. And in this development lies the origin of civilization.
+ - Include the knower in the known.
+ - It is by metaphor that language grows.
+ - Consciousness is always open to many possibilities because it involves play. It is always an adventure.
+ - One does one’s thinking before one knows what one is to think about.
+ - The legend of the parting of the Red Sea probably refers to tidal changes in the Sea of Reeds related to the Thera eruption.
+ - Abstract words are ancient coins whose concrete images in the give and take of talk have worn away with use.
+ - Poetry, from describing external events objectively, is becoming subjectified into a poetry of personal conscious expression.
+ - Our sense of justice depends on our sense of time. Justice is a phenomenon only of consciousness, because time spread out in a spatial succession is its very essence. And this is possible only in a spatial metaphor of time.
+ - I shall state my thesis plain. The first poets were gods. Poetry began with the bicameral mind.
+ - There is no such thing as a complete consciousness.
+ - Poetry begins as the divine speech of the bicameral mind. Then, as the bicameral mind breaks down, there remain prophets.
+ - Civilization is the art of living in towns of such size the everyone does not know everyone else.
+ - The changes in the Catholic Church since Vatican II can certainly be scanned in terms of this long retreat from the sacred which has followed the inception of consciousness into the human species.
+ - For if consciousness is based on language, then it follows that it is of much more recent origin than has been heretofore supposed. Consciousness come after language! The implications of such a position are extremely serious.
+ - History does not move by leaps into unrelated novelty, but rather by the selective emphasis of aspects of its own immediate past.
+ - Idolatry is still a socially cohesive force – its original function.
+ - The king dead is a living god.
+ - Consciousness is a much smaller part of our mental life than we are conscious of, because we cannot be conscious of what we are not conscious of.
+ - The language of men was involved with only one hemisphere in order to leave the other free for the language of the gods.
+ - The very reason we need logic at all is because most reasoning is not conscious at all.
+ - This breakdown in the bicameral mind in what is called the Intermediate Period is reminiscent at least of those periodic breakdowns of Mayan civilizations when all authority suddenly collapsed, and the population melted back into tribal living in the jungles.
+ - The mind is still haunted with its old unconscious ways; it broods on lost authorities; and the yearning, the deep and hollowing yearning for divine volition and service is with us still.
+ - If we would understand the Scientific Revolution correctly, we should always remember that its most powerful impetus was the unremitting search for hidden divinity. As such, it is a direct descendant of the breakdown of the bicameral mind.
+ - Subjective conscious mind is an analog of what is called the real world. It is built up with a vocabulary or lexical field whose terms are all metaphors or analogs of behavior in the physical world.
+ - Memory is the medium of the must-have-been.
+ - We are greatly in need of specific research in this area of schizophrenic experience to help us understand Mesolithic man.
+ - We can only know in the nervous system what we have known in behavior first.
+ - Our search for certainty rests in our attempts at understanding the history of all individual selves and all civilizations. Beyond that, there is only awe.
+ - The importance of writing in the breakdown of the bicameral voices is tremendously important. What had to be spoken is now silent and carved upon a stone to be taken in visually.
+ - We know to much to command ourselves very far.
+ - Indeed, it is sometimes almost as if the problem had to be forgotten to be solved.
+
+34 quotes

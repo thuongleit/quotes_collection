@@ -1,0 +1,22 @@
+ - What sort of philosophy one chooses depends on what sort of person one is.
+ - He who is firm in will molds the world to himself.
+ - The schools must fashion the person, and fashion him in such a way that he simply cannot will otherwise than what you wish him to will.
+ - Education should aim at destroying free will so that after pupils are thus schooled they will be incapable throughout the rest of their lives of thinking or acting otherwise than as their school masters would have wished.
+ - We do not act because we know, but we know because we are called upon to act; the practical reason is the root of all reason.
+ - A man can do what he ought to do; and when he says he cannot, it is because he will not.
+ - Nothing is more destructive of individual character than for a man to lose all faith in his own abilities for the prosecution of his work.
+ - By philosophy the mind of man comes to itself, and from henceforth rests on itself without foreign aid, and is completely master of itself, as the dancer of his feet, or the boxer of his hands.
+ - God is not the mere dead conception to which we have thus given utterance, but he is in himself pure Life.
+ - Humanity may endure the loss of everything; all its possessions may be turned away without infringing its true dignity – all but the possibility of improvement.
+ - What sort of philosophy one chooses depends, therefore, on what sort of man one is; for a philosophical system is not a dead piece of furniture that we can reject or accept as we wish; it is rather a thing animated by the soul of the person who holds it.
+ - There are two great classes of men: the people and the scholars, the men of science. For the former, nothing exists but that which directly leads to action. It is for the latter to see beyond. They are the free artists who create the future and its history, the conscious architects of the world.
+ - Here below is not the land of happiness: I know it now; it is only the land of toil, and every joy which comes to us is only to strengthen us for some greater labor that is to succeed.
+ - I know what I can know, and am not troubled about what I cannot know.
+ - My mind can take no hold on the present world, nor rest in it a moment, but my whole nature rushes onward with irresistible force towards a future and better state of being.
+ - To those who do not love God, all things must work together immediately for pain and torment, until, by means of the tribulation, they are led to salvation at last.
+ - Upon the progress of knowledge the whole progress of the human race is immediately dependent: he who retards that, hinders this also.
+ - I am satisfied with, and stand firm as a rock on the belief that all that happens in God’s world is for the best, but what is merely germ, what blossom and what fruit I do not know.
+ - By mere burial man arrives not at bliss; and in the future life, throughout its whole infinite range, they will seek for happiness as vainly as they sought it here, who seek it in aught else than that which so closely surrounds them here – the Infinite.
+ - Full surely there is a blessedness beyond the grave for those who have already entered on it here, and in no other form than that wherein they know it here, at any moment.
+
+20 quotes

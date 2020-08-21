@@ -1,0 +1,61 @@
+ - History is all explained by geography.
+ - You have to make the good out of the bad because that is all you have got to make it out of.
+ - The lack of a sense of history is the damnation of the modern world.
+ - You don’t choose a story, it chooses you.
+ - Yet the definition we have made of ourselves is ourselves. To break out of it, we must make a new self. But how can the self make a new self when the selflessness which it is, is the only substance from which the new self can be made?
+ - What is man but his passion?
+ - What if angry vectors veer Round your sleeping head, and form. There’s never need to fear Violence of the poor world’s abstract storm.
+ - For whatever you live is life.
+ - For what is a poem but a hazardous attempt at self-understanding: it is the deepest part of autobiography.
+ - There was nothing particularly wrong with them; they were just the ordinary garden variety of human garbage.
+ - In one deep sense, novels are concealed autobiography. I don’t mean that you are telling facts about yourself, but you are trying to find out what you really think or who you are.
+ - How do poems grow? They grow out of your life.
+ - Real writers are those who want to write, need to write, have to write.
+ - I’ve been to a lot of places and done a lot of things, but writing was always first. It’s a kind of pain I can’t do without.
+ - There ain’t anything worth doing a man can do and keep his dignity. Can you figure out a single thing you really please-God like to do you can do and keep your dignity? The human frame just ain’t built that way.
+ - The past is always a rebuke to the present.
+ - I reckon I am a smart aleck, but it is just a way to pass the time.
+ - That summer we had been absolutely alone, together, even when people were around, the only inhabitants of the kind of floating island or magic carpet which being in love is.
+ - If something takes too long, something happens to you. You become all and only the thing you want and nothing else, for you have paid too much for it, too much in wanting and too much in waiting and too much in getting.
+ - The best luck always happens to people who don’t need it.
+ - I longed to know the world’s name.
+ - There is nothing more alone than being in a car at night in the rain.
+ - The poem is a little myth of man’s capacity of making life meaningful.
+ - It is a human defect – to try to know one’s self by the self of another.
+ - Tell me a story of deep delight.
+ - There is no country but the heart.
+ - When you get born your father and mother lost something out of themselves, and they are going to bust a ham trying to get it back, and you are it. They know they can’t get it all back but they will get as big a chunk out of you as they can.
+ - A look at the past reminds us of how great is the distance, and how short, over which we have come. The past makes us ask what we have done with us. It makes us ask whether our very achievements are not ironical counterpoint and contrast to our fundamental failures.
+ - And what we students of history always learn is that the human being is a very complicated contraption and that they are not good or bad but are good and bad and the good comes out of the bad and the bad out of the good, and the devil take the hindmost.
+ - Process as process is neither morally good nor morally bad. We may judge results but not process. The morally bad agent may perform the deed which is good. The morally good agent may perform the deed which is bad. Maybe a man has to sell his soul to get the power to do good.
+ - The poet is in the end probably more afraid of the dogmatist who wants to extract the message from the poem and throw the poem away than he is of the sentimentalist who says, Oh, just let me enjoy the poem.
+ - Dying – shucks! If you kin handle the living, what’s to be afraid of the dying?
+ - The urge to write poetry is like having an itch. When the itch becomes annoying enough, you scratch it.
+ - Historical sense and poetic sense should not, in the end, be contradictory, for if poetry is the little myth we make, history is the big myth we live, and in our living, constantly remake.
+ - Politics is a matter of choices, and a man doesn’t set up the choices himself. And there is always a price to make a choice. You know that. You’ve made a choice, and you know how much it cost you. There is always a price.
+ - In separateness only does love learn definition.
+ - Reality is not a function of the event as event, but of the relationship of that event to past, and future, events.
+ - A young man’s ambition is to get along in the world and make a place for himself-half your life goes that way, till you’re 45 or 50. Then, if you’re lucky, you make terms with life, you get released.
+ - And all times are one time, and all those dead in the past never lived before our definition gives them life, and out of the shadow their eyes implore us. That is what all of us historical researchers believe. And we love truth.
+ - More and more Emerson recedes grandly into history, as the future he predicted becomes a past.
+ - History is not melodrama, even if it usually reads like that.
+ - If a man knew how to live he would never die.
+ - We are the prisoners of history. Or are we?
+ - They say you are not you except in terms of relation to other people. If there weren’t any other people there wouldn’t be any you because what you do, which is what you are, only has meaning in relation to other people.
+ - I think the greatest curse of American society has been the idea of an easy millennialism – that some new drug, or the next election or the latest in social engineering will solve everything.
+ - I don’t expect you’ll hear me writing any poems to the greater glory of Ronald and Nancy Reagan.
+ - Maybe a man has to sell his soul to get the power to do good.
+ - My only crime was being a man and living in the world of men, and you don’t have to do special penance for that. The crime and the penance, in that case, coincide perfectly. They are identical.
+ - The image that fiction presents is purged of the distractions, confusions and accidents of ordinary life.
+ - Storytelling and copulation are the two chief forms of amusement in the South. They’re inexpensive and easy to procure.
+ - If you could not accept the past and its burden there was no future, for without one there cannot be the other.
+ - For the truth is a terrible thing.
+ - The poem is not a thing we see; it is, rather, a light by which we may see.
+ - Everything seems an echo of something else.
+ - Poets, we know, are terribly sensitive people, and in my observation one of the things they are most sensitive about is money.
+ - A symbol serves to combine heart and intellect.
+ - If you are an idealist, it does not matter what you do or what goes on around you because it isn’t real anyway.
+ - Your business as a writer is not to illustrate virtue but to show how a fellow may move toward it or away from it.
+ - Nobody had ever told me that anything could be like this.
+
+59 quotes

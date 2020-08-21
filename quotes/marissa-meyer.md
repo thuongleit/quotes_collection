@@ -1,0 +1,122 @@
+ - If you’re the smartest person in the room, you’re in the wrong room.
+ - You have to ruthlessly prioritize.
+ - I always did something I was a little not ready to do. I think that’s how you grow. When there’s that moment of ‘Wow, I’m not really sure I can do this,’ and you push through those moments, that’s when you have a breakthrough.
+ - You can’t have everything you want, but you can have the things that really matter to you.
+ - If you push through that feeling of being scared, that feeling of taking risk, really amazing things can happen.
+ - I’m not a pro, but I know enough to be dangerous.
+ - The utmost thing is the user experience, to have the most useful experience.
+ - Creativity thrives best when constrained.
+ - Success is never getting to the bottom of your to-do list.
+ - Product management really is the fusion between technology, what engineers do – and the business side.
+ - I always did something I was a little not ready to do. I think that’s how you grow.
+ - With data collection, ‘the sooner the better’ is always the best answer.
+ - I refuse to be stereotyped.
+ - She did not know that the wolf was a wicked sort of animal, and she was not afraid of him.
+ - Innovation is born from the interaction between constraint and vision.
+ - Keep your head in the clouds and your hands on the keyboard.
+ - Imagine there was a cure, but finding it would cost you everything. It would completely ruin your life. What would you do?
+ - Geeks are people who love something so much that all the details matter.
+ - She was a cyborg, and she would never go to a ball.
+ - I promise, I will not let you die without being kissed.
+ - Vanity is a factor, but it is more a question of control. It is easier to trick others into perceiving you as beautiful if you can convince yourself you are beautiful. But mirrors have an uncanny way of telling the truth.
+ - Maybe there isn’t such a thing as fate. Maybe it’s just the opportunities we’re given, and what we do with them. I’m beginning to think that maybe great, epic romances don’t just happen. We have to make them ourselves.
+ - Beyond basic mathematical aptitude, the difference between good programmers and great programmers is verbal ability.
+ - I think I realized that I would rather die because I betrayed them, than live because I betrayed you.
+ - I’m going to escape now.
+ - Soon, the whole world would be searching for her -Linh Cinder. A deformed cyborg with a missing foot. A Lunar with a stolen identity. A mechanic with no one to run to, nowhere to go. But they will be looking for a ghost.
+ - Even in the Future the Story Begins with Once Upon a Time.
+ - When people think about computer science, they imagine people with pocket protectors and thick glasses who code all night.
+ - I’m sure I’ll feel much more grateful when I find a guy who thinks complex wiring in a girl is a turn-on.
+ - Her mind emptied of everything but the gusting wind and how fragile Wolf looked in that heartbeat, like one movement could break him open.
+ - That you prefer to rule through fear rather than justice? So sorry, Your Majesty, I’m afraid I already knew that about you.
+ - To me, the future is personalization .
+ - I don’t see that her being cyborg is relevant.
+ - Vince Lombardi says, you know, in my life there are three things: God, family, and the Green Bay Packers, in that order. For me, it’s God, family, and Yahoo, in that order.
+ - New beginnings – professional, personal, or come what may – are always uncomfortable, but being open to them is the only way to grow. In the end, we are all capable of so much more than we think.
+ - The internet creates more of an appetite for media – it doesn’t replace physical books, radio or TV.
+ - Right,? said Kai, ’that’ll be no problem in a city of two and a half million people. Let me just go dig out my special Lunar detector, and I’ll get right on that.
+ - Really in technology, it’s about the people, getting the best people, retaining them, nurturing a creative environment and helping to find a way to innovate.
+ - Right. I’m sure that poor etiquette is the number one reason for most failed revolutions.
+ - But you’re the only one, Scarlet. You’ll always be the only one.
+ - For me the core principles of privacy online are transparency, choice and control.
+ - To me, speed is really about convenience.
+ - Hey, I’m not judging. I’m familiar with IT-relations. Just wait until you meet our spaceship. She’s a riot.
+ - She briefly wished she did have some sort of magic so she could shoot a bolt of lightning through his head.
+ - Prince Kai! Check my fan, I think I’m overheating.
+ - Pick something and make it great.
+ - It’s really wonderful to work in an environment with a lot of smart people.
+ - For some people, what really matters to them is sleep.
+ - I definitely think what drives technology companies is the people; because in a technology company it’s always about what are you going to do next.
+ - I have a theory that burnout is about resentment. And you beat it by knowing what it is you’re giving up that makes you resentful.
+ - I’ve come to realize that being a mother makes me a better executive, because motherhood forces prioritization. Being a mom gives you so much more clarity on what is important.
+ - Straight lines don’t exist in the human form and are extremely rare in nature, so the human touch in the logo is that all the lines and forms have at least a slight curve.
+ - The mobile phone acts as a cursor to connect the digital and physical.
+ - The Snow White the midnight the moon tales of the mechanics.
+ - I have a glitch, too. Sometimes I forget that I’m not human. I don’t think that happens to most androids.
+ - Emilie. A beautiful name for a beautiful girl.
+ - If you can find something that you’re really passionate about, whether you’re a man or a woman comes a lot less into play. Passion is a gender-neutralizing force.
+ - The Googly thing is to launch products early on Google Labs and then iterate, learning what the market wants – and making it great. The beauty of experimenting in this way is that you never get too far from what the market wants. The market pulls you back.
+ - The sahara desert the Rapunzel the charity the gifted tales.
+ - The better to eat you with, my dear.
+ - Today, only about 1% of the World Wide Web is written in Arabic.
+ - I’ve always liked simplicity.
+ - He wouldn’t even dance with Levana at the stupid ball if he could help it – to hell with diplomacy.
+ - I think that for me, it’s God, family and Yahoo – in that order.
+ - I love technology, and I don’t think it’s something that should divide along gender lines.
+ - Employees, especially young people, want more than a paycheck.
+ - Good students are good at all things.
+ - I pace myself by taking a week-long vacation every four months.
+ - I love Google. I was there for 13 years, and if you told me I’d be as happy anywhere else, I would’ve probably doubted it. But I am as happy, if not happier, at Yahoo.
+ - You can be good at technology and like fashion and art. You can be good at technology and be a jock. You can be good at technology and be a mom. You can do it your way, on your terms.
+ - Our theory is, if you need the user to tell you what you’re selling, then you don’t know what you’re selling, and it’s probably not going to be a good experience.
+ - Will the social networking phenomenon lessen? I don’t think so.
+ - I really believe that the virtual world mirrors the physical world.
+ - Shifting toward management meant greater responsibility and influence, but it also meant giving up programming day-to-day in my role, which was hard because it took me out of my comfort zone.
+ - I just think we shouldn’t judge her, or anyone, without tryo g to understand them first. That maybe we should get the full story before jumping to conclusions. Crazy notion, I know.
+ - Besides, if you are who you claim to be, that makes you my true queen. Therefore, you have my loyalty.
+ - It would be easy to abuse a person when they never recognized it as abuse.
+ - I really wanted to be a doctor, until my freshman year of college when I realized that while I was good at chemistry and biology, I really wasn’t feeling challenged by it.
+ - I think Google should be like a Swiss Army knife: clean, simple, the tool you want to take everywhere.
+ - Search is an unsolved problem.
+ - Search occupies this wonderful moment in a user’s day where it doesn’t even really break along demographics, right?
+ - Lines drawn into his face suggested he had spent many years thinking very hard over very difficult problems.
+ - People ask me all the time: ‘What is it like to be a woman at Google?’ I’m not a woman at Google, I’m a geek at Google. And being a geek is just great. I’m a geek, I like to code, I even like to use spreadsheets when I cook.
+ - There are amazing opportunities all over the world for women, and I think that there’s more good that comes out of positive energy around that than negative energy.
+ - I was Google’s first woman engineer.
+ - I had to think really hard about how to choose between job offers.
+ - Little Red was a tender young morsel, and the wolf knew she would be even tastier than the old woman.
+ - Reality is but a poor excuse for not having an imagination.
+ - I like to get myself in over my head.
+ - But her grandmother had never suggested she could think the same of Scarlet. You’ll be fine, she always said, after a skinned knee, after a broken arm, after her first youthfull heartbreak. You’ll be fine, because you’re strong, like me.
+ - He was still dazed, and though she hated to admit it, he was actually rather attractive. If a girl happened to like that square-jaw, bright-blue-eyes, devilish-dimples kind of thing. Although he was in desperate need of a haircut and a good shave.
+ - I realized in all the cases where I was happy with the decision I made, there were two common threads: Surround myself with the smartest people who challenge you to think about things in new ways, and do something you are not ready to do so you can learn the most.
+ - It looks more like a rotting pumpkin.
+ - I was always good at math and science, and I never realized that that was unusual or somehow undesirable.
+ - I think it was hiding a princess.
+ - I like to stay in the rhythm of things.
+ - What you want, when you want it. As opposed to everything you could ever want, even when you don’t.
+ - This is one of my favorites. People think of creativity as this sort of unbridled thing, but engineers thrive on constraints. They love to think their way out of that little box: ‘We know you said it was impossible, but we’re going to do this, this, and that to get us there.’
+ - Kai neared his desk again, seeing that the fugitive’s profile had been transferred to the screen. His frown deepened. Perhaps not dangerous, but young and inarguably good-looking. His prison photo showed him flippantly winking at the camera. Kai hated him immediately.
+ - What is clear is that users own their data and should have control of how their data is used.
+ - Walmart is an amazing story of entrepreneurship and, as one of the world’s most powerful brands, touches millions of lives every day.
+ - I think it’s very comforting for people to put me in a box. ‘Oh, she’s a fluffy girlie girl who likes clothes and cupcakes. Oh, but wait, she is spending her weekends doing hardware electronics.’
+ - My maternity leave will be a few weeks long, and I’ll work throughout it.
+ - I didn’t want to lose my sense of myself in my profession.
+ - I think that ultimately over time we really should strive for a place where most information is available online and is searchable.
+ - It is wonderful to work in an environment with a lot of smart people. It challenges you to think and work on a different level. If you play with better players, you learn a lot: perspectives, intellectual arguments, new ways of thinking about things.
+ - If I had been more self-conscious about being a woman, it would have stifled me.
+ - If you took the entire internet and laid it end to end, it would weigh more than the other thing. It would weigh more than it would if it wasn’t laid end to end. Like, if it was a ball of rolled up internet it would weigh less. I’m pretty sure. It depends on the size of the scale, I think.
+ - We were very focused on becoming profitable from a very early time, which was not true of most companies in the bubble.
+ - I think the most interesting thing is what happens next.
+ - I’m a geek, I like to code, I even like to use spreadsheets when I cook.
+ - That’s how we’re going to stay innovative. We’re going to continue to attract entrepreneurs who say, ‘I found an idea, and I can go to Google and have a demo in a month and be launched in six.’
+ - Do something youre not ready to do. In the worst case, youll learn your limitations.
+ - I know this is stupid, but part of me felt like if I could come see you today, if I could convince you to go with me tonight, then maybe I could still change things. It’s dumb, I know. It’s not like Levana cares if I, you know, might have actual feelings for someone.
+ - People are more productive when they’re alone, but they’re more collaborative and innovative when they’re together.
+ - I could imagine, some number of years from now, starting my own company. But not yet. Not for a while.
+ - For many people, Google is the most important tool on the Web.
+ - You can wear ruffles; you can be a jock, and you can still be a great computer scientist, or a great technologist, or a great product designer.
+ - I don’t believe in balance, not in the classic way.
+ - Nothing makes an android feel more useless than when a human is crying.
+
+120 quotes

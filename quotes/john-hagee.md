@@ -1,0 +1,50 @@
+ - Love is not what you say; love is what you do.
+ - The greatest test of faith is when you don’t get what you want, but still you are able to say Thank You Lord.
+ - God never alters the robe of righteousness to fit the man. Rather He alters the man to fit the robe.
+ - If love is a dream, then marriage is the alarm clock.
+ - God uses no one until He first puts them through the storm. The greater your mission, the greater your storm.
+ - God owns all the wealth in the world!
+ - We are indeed the light of the world-but only if our switch is turned on.
+ - Jesus knows the burdens we carry and the tears we shed, but He is the healer of broken hearts, broken dreams, and broken lives. Trust him. He never fails.
+ - God’s delay’s are not His denials.
+ - Truth is not what I say it is, and not what you think it is. Truth is what God’s word says it is.
+ - Since my money is God’s money, every spending decision I make is a spiritual decision.
+ - To see evil and not call it evil is evil.
+ - The fundamental principle of Christianity is to be what God is, and he is light.
+ - How does Satan mislead us? By misquoting Scripture. By leading us astray. By getting us to make excuses instead of repenting.
+ - What is the good news to the poor? Christ took your poverty at the cross and gave you the riches of Abraham. The chains of poverty have been broken at the cross.
+ - God’s promise will bring your provision.
+ - When your thoughts and opinions become intellectual gods in rebellion against the Word of God, you are in idolatry.
+ - Never ask God to provide for you what you can provide for yourself. Get up and go get it because God will only provide what you can’t.
+ - If you take away the Jewish contribution to Christianity, there would be no Christianity. Judaism does not need Christianity to explain its existence; Christianity, however, cannot explain its existence without Judaism.
+ - Jesus did not come to the Earth to start 285 squabbling denominations fighting over the Bible. How like the devil to divide Christians over the Bible.
+ - Why would you want to be politically correct when you can be right?
+ - The absence of strife does not necessarily indicate the presence of peace.
+ - The most important thing to the Christian community is not the environment but evangelism.
+ - Some people seem to be at peace-but in fact they’re just resting up between fights.
+ - Do you know the difference between a woman with PMS and a snarling Doberman pinscher? The answer is lipstick. Do you know the difference between a terrorist and a woman with PMS? You can negotiate with a terrorist.
+ - You will either offend the world and please God, or please the world and offend God.
+ - As soon as Jesus sits on his throne he’s gonna rule the world with a rod of iron. That means he’s gonna make the ACLU do what he wants them to. That means you’re not gonna have to ask if you can pray in public school. We will live by the law of God and no other law.
+ - When someone throws trash on you, shake it off, stomp on it, and use it to rise to the top!
+ - If you live your life and don’t confess your sins to God Almighty through the authority of Christ and His blood, I’m going to say this very plainly, you’re going straight to hell with a nonstop ticket.
+ - If your investments are limited to this earth, you are the world’s worst investor.
+ - Paul never developed a negative attitude. He picked his bloody body up out of the dirt and went back into the city where he had almost been stoned to death, and he said, “Hey, about that sermon I didn’t finish preaching – here it is!”
+ - Meekness enables us to be led by the Spirit of God.
+ - All hurricanes are acts of God because God controls the heavens. I believe that New Orleans had a level of sin that was offensive to God and they were recipients of the judgment of God for that.
+ - Anyone who makes the life of Jewish people difficult or grievous, as did the Pharaoh, as did Hitler, will be cursed by God.
+ - A pure heart won’t get us out of conflict and controversy. It may well be the very thing that gets us into it.
+ - Most readers will be shocked by the clear record of history linking Adolf Hitler and the Roman Catholic Church in a conspiracy to exterminate the Jews.
+ - And we support Senator Joseph Lieberman, that it’s time for our country to consider a military preemptive strike against Iran if they will not yield to diplomacy.
+ - Mercy requires that we learn to love others, to value their welfare more than our own!
+ - The vital Christian arouses opposition because he is a standing rebuke to the selfishness and sin of those around him.
+ - God is concerned with nations, but nations also need to be concerned with God. No nation can have a monopoly on God, but God will bless any nation whose people seek and honor His will as revealed by Christ and declared through the Holy Spirit.
+ - Jesus did not come to be the Messiah.
+ - We can create as magnificent an environment as we like, but unless we change the heart it’s all a waste of time.
+ - What is the point of having free speech if you have nothing to say?
+ - It was the disobedience and rebellion of the Jews, God’s chosen people, to their covenantal responsibility to serve only the one true God, Jehovah, that gave rise to the opposition and persecution that they experienced beginning in Canaan and continuing to this very day.
+ - The church today is riddled with fad doctrines and new sounds that distract from the clear message of the Great commission in the New Testament. Any message that attracts you which does not bring glory to Christ is the message of a seducing spirit and the man giving it is in deception.
+ - How can the Jews be blamed for rejecting what was never offered?
+ - Agnostics cannot understand Christ for the same reason a thief find a policeman -they don’t want to.
+ - Poverty is caused by sin and disobeying the word of god.
+
+48 quotes

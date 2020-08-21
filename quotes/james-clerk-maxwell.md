@@ -1,0 +1,36 @@
+ - All the mathematical sciences are founded on the relations between physical laws and laws of numbers.
+ - The only laws of matter are those that our minds must fabricate and the only laws of mind are fabricated for it by matter.
+ - In Science, it is when we take some interest in the great discoverers and their lives that it becomes endurable, and only when we begin to trace the development of ideas that it becomes fascinating.
+ - The true logic of this world is in the calculus of probabilities.
+ - I have looked into the most philosophical systems and have found none that will not work without God.
+ - Ampere was the Newton of Electricity.
+ - Thoroughly conscious ignorance is the prelude to every real advance in science.
+ - Faraday is, and must always remain, the father of that enlarged science of electromagnetism.
+ - It is of great advantage to the student of any subject to read the original memoirs on that subject, for science is always most completely assimilated when it is in the nascent state.
+ - The mathematical difficulties of the theory of rotation arise chiefly from the want of geometrical illustrations and sensible images, by which we might fix the results of analysis in our minds.
+ - I have also a paper afloat, with an electromagnetic theory of light, which, till I am convinced to the contrary, I hold to be great guns.
+ - In every branch of knowledge the progress is proportional to the amount of facts on which to build, and therefore to the facility of obtaining data.
+ - Colour as perceived by us is a function of three independent variables at least three are I think sufficient, but time will show if I thrive.
+ - The chief philosophical value of physics is that it gives the mind something distinct to lay hold of, which, if you don’t, Nature at once tells you you are wrong.
+ - An Experiment, like every other event which takes place, is a natural phenomenon; but in a Scientific Experiment the circumstances are so arranged that the relations between a particular set of phenomena may be studied to the best advantage.
+ - The student who uses home made apparatus, which is always going wrong, often learns more than one who has the use of carefully adjusted instruments, to which he is apt to trust and which he dares not take to pieces.
+ - We can scarcely avoid the inference that light consists in the transverse undulations of the same medium which is the cause of electric and magnetic phenomena.
+ - Very few of us can now place ourselves in the mental condition in which even such philosophers as the great Descartes were involved in the days before Newton had announced the true laws of the motion of bodies.
+ - What’s the go of that? What’s the particular go of that?
+ - Mathematicians may flatter themselves that they possess new ideas which mere human language is as yet unable to express.
+ - The 2nd law of thermodynamics has the same degree of truth as the statement that if you throw a tumblerful of water into the sea, you cannot get the same tumblerful of water out again.
+ - In speaking of the Energy of the field, however, I wish to be understood literally. All energy is the same as mechanical energy, whether it exists in the form of motion or in that of elasticity, or in any other form. The energy in electromagnetic phenomena is mechanical energy.
+ - All the mathematical sciences are founded on relations between physical laws and laws of numbers, so that the aim of exact science is to reduce the problems of nature to the determination of quantities by operations with numbers.
+ - I have the capacity of being more wicked than any example that man could set me.
+ - Gases are distinguished from other forms of matter, not only by their power of indefinite expansion so as to fill any vessel, however large, and by the great effect heat has in dilating them, but by the uniformity and simplicity of the laws which regulate these changes.
+ - The equations at which we arrive must be such that a person of any nation, by substituting the numerical values of the quantities as measured by his own national units, would obtain a true result.
+ - But though the professed aim of all scientific work is to unravel the secrets of nature, it has another effect, not less valuable, on the mind of the worker. It leaves him in possession of methods which nothing but scientific work could have led him to invent.
+ - Science is incompetent to reason upon the creation of matter itself out of nothing. We have reached the utmost limit of our thinking faculties when we have admitted that because matter cannot be eternal and self-existent it must have been created.
+ - The dimmed outlines of phenomenal things all merge into one another unless we put on the focusing-glass of theory, and screw it up sometimes to one pitch of definition and sometimes to another, so as to see down into different depths through the great millstone of the world.
+ - The mind of man has perplexed itself with many hard questions. Is space infinite, and in what sense? Is the material world infinite in extent, and are all places within that extent equally full of matter? Do atoms exist or is matter infinitely divisible?
+ - It is a universal condition of the enjoyable that the mind must believe in the existence of a law, and yet have a mystery to move about in.
+ - Every existence above a certain rank has its singular points; the higher the rank the more of them. At these points, influences whose physical magnitude is too small to be taken account of by a finite being may produce results of the greatest importance.
+ - Heat may be generated and destroyed by certain processes, and this shows that heat is not a substance.
+ - Thus number may be said to rule the whole world of quantity, and the four rules of arithmetic may be regarded as the complete equipment of the mathematician.
+
+34 quotes

@@ -1,0 +1,41 @@
+ - Sexual desire is a state not unlike hunger.
+ - It is the mind that speaks a woman’s heart, not the vaginal walls.
+ - In ‘Packing for Mars,’ I tried to convey the importance of getting young people interested in science.
+ - Space doesn’t just encompass the sublime and the ridiculous. It erases the line between.
+ - All good research-whether for science or for a book-is a form of obsession.
+ - Wisdom comes with age, but keep it to yourself.
+ - I began thinking about my skeleton, this solid, beautiful thing inside me that I would never see.
+ - Life contains these things: leakage and wickage and discharge, pus and snot and slime and gleet. We are biology. We are reminded of this at the beginning and the end, at birth and at death. In between we do what we can to forget.
+ - Many people will find this book disrespectful. There is nothing amusing about being dead, they will say. Ah, but there is.
+ - Death. It doesn’t have to be boring.
+ - Gravity disappears again, and we rise up off the floor like spooks from a grave. It’s like the Rapture in here every thirty seconds.
+ - I don’t write on topics that require a lot of urgency. But in ‘Stiff,’ I wanted to change people’s hearts about organ donation. Whenever I get a chance, I try to talk about that.
+ - Softball is the reason Washing Machines and Bleach are so popular. Don’t think so? Just ask a softball Mom.
+ - Hormones are nature’s three bottles of beer.
+ - NASA might do well to adopt the Red Bull approach to branding and astronautics. Suddenly the man in the spacesuit is not an underpaid civil servant; he’s the ultimate extreme athlete. Red Bull knows how to make space hip.
+ - You are a person and then you cease to be a person, and a cadaver takes your place.
+ - Instead, I quietly excused myself and went to the bar, to commune with spirits I know how to relate to.
+ - You won’t see me writing about particle physics, or even planetary geology, or chemistry. I practically failed chemistry, and if I had to write a book in any of those areas, I don’t think it would go well.
+ - Bodily fluids and solids are universally the most disgusting things we as human beings can come upon, but as long as they are inside us, it’s part of you.
+ - The way I see it, being dead is not terribly far off from being on a cruise ship. Most of your time is spent lying on your back. The brain has shut down. The flesh begins to soften. Nothing much new happens, and nothing is expected of you.
+ - My books are not really books; theyre endless chains of distraction shoved inside a cover. Many of them begin at the search box of Pub Med, an Internet database of medical journal articles.
+ - To me, NASA is kind of the magical kingdom. I was sort of a geek, and you go there, and there are just these wondrously strange things and people.
+ - It’s this mood, these sentiments – the excitement of exploration and the surprises and delights of travel to foreign locales – that I hope to inspire with this book.
+ - I would have sold my wife and children into slavery for a ride into space.
+ - I’ve read plenty of amazing science pieces where the writers don’t hang out in labs. I just have fun doing it. And I get rewarded for it; I get gushy, especially when kids tell me they expected to be bored by my books, but weren’t.
+ - Every crazy fad from the 1800s comes back or they never go away. It’s like fashion, like everything’s already been invented, and somebody stumbles onto it and people will always, always be looking for an answer for some vague illness they can’t get a diagnosis for.
+ - Yes, the money could be better spent on Earth. But would it? Since when has money saved by government redlining been spent on education and cancer research? It is always squandered. Let’s squander some on Mars. Let’s go out and play.
+ - All the clothes in my closet are Oakland, California, clothes. You can’t wear those anywhere else. The barometric pressure drops and then where are you?
+ - For the scientists, they’re kind of puzzled and pleased that somebody finds their work interesting. It makes it fun for me. I feel like I’ve sort of turned over a stone that hasn’t been turned over.
+ - If you could really guarantee that the money would be spent on something more worthwhile, I’d say, absolutely, scrap the space program, but it never works that way.
+ - Normally I object to strangers beaming force fields into my brain.
+ - There are people who would love to spend their last ten years, or five years, or whatever it is, on the surface of Mars.
+ - In my whole life, I’ve never vomited from seeing something disgusting. Does it really even happen, outside of movies and TV? I believe it may be a myth.
+ - Every mode of travel has its signature mental aberration.
+ - The human head is of the same approximate size and weight as a roaster chicken. I have never before had occasion to make the comparison, for never before today have I seen a head in a roasting pan.
+ - In my experience, the most staunchly held views are based on ignorance or accepted dogma, not carefully considered accumulations of facts. The more you expose the intricacies and realtities of the situation, the less clear-cut things become.
+ - The writing is always the easy part, provided I can get the good material. It’s the getting of the good material that’s a challenge.
+ - People are vomiting unrealistically in movies, and something must be done about it.
+ - The broader the topic, the easier it is, not only to fill a book, but to set the bar pretty high for really great stuff.
+
+39 quotes

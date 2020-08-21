@@ -1,0 +1,51 @@
+ - Each of us is more than the worst thing we’ve ever done.
+ - The opposite of poverty isn’t wealth. The opposite of poverty is justice.
+ - The true measure of our character is how we treat the poor, the disfavored, the accused, the incarcerated, and the condemned.
+ - You don’t change the world with the ideas in your mind, but with the conviction in your heart.
+ - I think hopelessness is the enemy of justice.
+ - Always do the right thing even when the right thing is the hard thing.
+ - You ultimately judge the civility of a society not by how it treats the rich, the powerful, the protected and the highly esteemed, but by how it treats the poor, the disfavored and the disadvantaged...
+ - We are all broken by something. We have all hurt someone and have been hurt. We all share the condition of brokenness even if our brokenness is not equivalent.
+ - But simply punishing the broken – walking away from them or hiding them from sight – only ensures that they remain broken and we do, too. There is no wholeness outside of our reciprocal humanity.
+ - The death penalty symbolizes whom we fear and don’t fear, whom we care about and whose lives are not valid.
+ - Lynching is an important aspect of racial history and racial inequality in America, because it was visible, it was so public, it was so dramatic, and it was so violent.
+ - Intuitively we all like to seek the things that are comfortable rather than uncomfortable. But I do think there is a way of saying that if I believe in justice and I believe that justice is a constant struggle, and if I want to create justice, then I have to get comfortable with struggle.
+ - If you’re just the person with power, exercising that power fearfully and angrily, you’re going to be an operative of injustice and inequality.
+ - That’s what’s provocative to me – that we can victimize people, we can torture and traumatize people with no consciousness that it is a shameful thing to do.
+ - You can’t demand truth and reconciliation. You have to demand truth – people have to hear it, and then they have to want to reconcile themselves to that truth.
+ - It’s that mind-heart connection that I believe compels us to not just be attentive to all the bright and dazzling things but also the dark and difficult things.
+ - Somebody has to stand when other people are sitting. Somebody has to speak when other people are quiet.
+ - We’ve all been acculturated into accepting the inevitability of wrongful convictions, unfair sentences, racial bias, and racial disparities and discrimination against the poor.
+ - We all have a responsibility to create a just society.
+ - There were people in the South who were ardently opposed to slavery. And maybe, if we get into truth and reconciliation, those will be the people we want to name schools and streets after.
+ - I’m persuaded that if most people saw what I see on a regular basis, they would want change.
+ - I have to get comfortable with resistance, and even sometimes with hostility.
+ - Why do we want to kill all the broken people?
+ - Whenever society begins to create policies and laws rooted in fear and anger, there will be abuse and injustice.
+ - We don’t need police officers who see themselves as warriors. We need police officers who see themselves as guardians and parts of the community. You can’t police a community that you’re not a part of.
+ - If we want to be proud of our country, if we want to be proud as Americans, if we want to be proud of our history, then we can’t talk about the things that are inconsistent with pride, about which we can have no pride.
+ - The greatest evil of American slavery was not involuntary servitude but rather the narrative of racial differences we created to legitimate slavery. Because we never dealt with that evil, I don’t think slavery ended in 1865, it just evolved.
+ - The reality is that capital punishment in America is a lottery. It is a punishment that is shaped by the constraints of poverty, race, geography and local politics.
+ - If you love your community, then you need to be insisting on justice in all circumstances.
+ - I don’t think there’s been a time in American history with more innocent people in prison.
+ - The Bureau of Justice reports that one in three black male babies born this century will go to jail or prison – that is an absolutely astonishing statistic. And it ought to be terrorizing to not just to people of color, but to all of us.
+ - I love museums, and I think they’re fantastic, but they don’t touch the people who I frequently think need to be touched with at least some reminder of legacy.
+ - We live in a country that talks about being the home of the brave and the land of the free, and we have the highest incarceration rate in the world.
+ - Are you the sum total of your worst acts?
+ - It can be a challenge, but my legacy, at least for the people who came before me, is you don’t run from challenges because that’s more comfortable and convenient.
+ - I talk about my grandmother a lot, because she’s an amazing person – not in some dramatic, distinct, unique way, but anybody who is the daughter of enslaved people and who has found a way to be hopeful and create love and value justice and seek peace is a remarkable person.
+ - My parents lived in a poor rural community on the Eastern Shore, and schools were still segregated. And I remember when lawyers came into our community to open up the public schools to black kids.
+ - In a landscape littered with all of this imagery about the nobility of the Civil War and the Confederate effort and struggle, the absence of markers says something really powerful.
+ - Knowing what I know about the people who have come before me, and the people who came before them, and what they had to do, it changes my capacity to stay engaged, to stay productive.
+ - Many states can no longer afford to support public education, public benefits, public services without doing something about the exorbitant costs that mass incarceration have created.
+ - You can be a career professional as a judge, a prosecutor, sometimes as a defense attorney, and never insist on fairness and justice. That’s tragic and that’s what we have to change.
+ - Montgomery’s unique role in the domestic slave trade was that it was the first community that had a rail line that connected the Deep South to the mid-Atlantic region.
+ - Because my great-grandparents were enslaved people, the legacy of slavery was something that didn’t seem impersonal or disconnected. That’s what motivated me to get into law.
+ - My parents, who grew up in terror and dealt with segregation and humiliation, nonetheless taught us to be hopeful and open and loving and not hateful toward anyone.
+ - I say this thing about how I’ve never had to say my head is bloodied but not bowed, like everybody who came before me had to say. And that tells me that I can do a lot more than I think I can.
+ - When I stepped into this world, I saw that we were all burdened by a certain kind of indifference to the plight of poor people. We were burdened by an insensitivity to a legacy of racial bias. We were tolerating unfairness and unreliability in a way that burdened me and provoked me.
+ - In most places, when people hear about or see something that is a symbol or representation or evidence of slavery or the slave trade or lynching, the instinct is to cover it up, to get rid of it, to destroy it.
+ - Part of the reason why we’re only now reaching a point in American society where we can talk about the need for truth and reconciliation and the legacy of slavery is that it was such a dominant part of our history.
+ - Finally I got to the point where I said, I’d like to start a project where we can actually talk about race and poverty, not through the lens of a particular case, but much more broadly.
+
+49 quotes

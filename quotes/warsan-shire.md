@@ -1,0 +1,41 @@
+ - Later that night, I held an atlas on my lap, ran my fingers across the whole world, and whispered, ‘where does it hurt?’ It answered, everywhere, everywhere, everywhere.
+ - My alone feels so good, I’ll only have you if you’re sweeter than my solitude.
+ - I belong deeply to myself.
+ - Light attracts light. But sometimes your light attracts moths and your warmth attracts parasites. Protect your space and energy.
+ - It’s not my responsibility to be beautiful. I’m not alive for that purpose. My existence is not about how desirable you find me.
+ - You are terrifying, and strange, and beautiful. Something not everyone knows how to love.
+ - Don’t assume, ask. Be kind. Tell the truth. Don’t say anything you can’t stand behind fully. Have integrity. Tell people how you feel.
+ - Perhaps, the problem is not the intensity of your love, but the quality of the people you are loving.
+ - Give your daughters difficult names. Give your daughters names that command the full use of the tongue. My name makes you want to tell me the truth. My name doesn’t allow me to trust anyone that cannot pronounce it right.
+ - I have my mother’s mouth and my father’s eyes; on my face they are still together.
+ - At the end of the day, it isn’t where I came from. Maybe home is somewhere I’m going and never have been before.
+ - You want me to be a tragic backdrop so that you can appear to be illuminated, so that people can say ‘Wow, isn’t he so terribly brave to love a girl who is so obviously sad?’ You think I’ll be the dark sky so you can be the star? I’ll swallow you whole.
+ - Document the moments you feel most in love with yourself – what you’re wearing, who you’re around, what you’re doing. Recreate and repeat.
+ - I am a lover without a lover. I am lovely and lonely and I belong deeply to myself.
+ - Loving you was like going to war; I never came back the same.
+ - There’s nothing rebellious about loving something that can’t love you. You’re a woman, you should have known that men in the city would split you in half searching for their fathers in between your legs.
+ - I’m overwhelmed. My biggest downfall is my brightest blessing, I feel too much, all the time. Ya Allah, if it’ll keep my heart soft, break my heart every day.
+ - There is no intimacy like that between two women who have chosen to be sisters.
+ - I want to love, but my hair smells of war and running and running.
+ - Two people who were once very close can without blame or grand betrayal become strangers. Perhaps this is the saddest thing in the world.
+ - Apathy is the same as war, it all kills you, she says. Slow like cancer in the breast or fast like a machete in the neck.
+ - You can’t make homes out of human beings.
+ - We took such care of tomorrow, but died on the way there.
+ - My heart is a flower blossoming out of my mouth.
+ - I won’t glorify or romanticise heartbreak, for me it was a kind of death and I was forced to keep living.
+ - Make love like you have no secrets like you’ve never been left never been hurt like the world don’t owe you a single wretched thing.
+ - If it’ll keep my heart soft, break my heart every day.
+ - You think I’ll be the dark sky so you can be the star? I’ll swallow you whole.
+ - I tend to the wound so often, it never heals.
+ - When I love, I love: wholly, thoroughly, completely, drowning in everything. Every glance can be a conversation, eyes just playing and saying what needs to be said. Silence is loud, and the air becomes heavy. I want you. I want all of you.
+ - Make peace with your body, it’s not manmade, there are no flaws, there are no mistakes.
+ - The ego hurts you like this: you become obsessed with the one person who does not love you. blind to the rest who do.
+ - Mother says there are locked rooms inside all women, kitchen of love, bedroom of grief, bathroom of apathy. Sometimes, the men, they come with keys, and sometimes the men, they come with hammers.
+ - We emotionally manipulated each other until we thought it was love.
+ - Your mouth is a lonely place but I keep coming back.
+ - To my daughter I will say, ‘when the men come, set yourself on fire.’
+ - I tore up and ate my own passport in an airport hotel once. I’m bloated with language I can’t afford to forget.
+ - How far have you walked for men who’ve never held your feet in their laps?
+ - I know a few things to be true. I do not know where I am going, where I have come from is disappearing, I am unwelcome and my beauty is not beauty here. My body is burning with the shame of not belonging, my body is longing.
+
+39 quotes

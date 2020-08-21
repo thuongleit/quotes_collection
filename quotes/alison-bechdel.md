@@ -1,0 +1,46 @@
+ - It’s our very capacity for self-consciousness that makes us self-destructive!
+ - Was Daedalus really stricken with grief when Icarus fell into the sea? Or just disappointed by the design failure.
+ - I suppose that a lifetime spent hiding one’s erotic truth could have a cumulative renunciatory effect. Sexual shame is in itself a kind of death.
+ - Mostly it was Mad magazine. And I did read a lot of – I had a subscription when I was little, but I also had access to some old collections, the little paperbacks of the really good stuff.
+ - Although I am good at enumerating my father’s flaws, it’s hard for me to sustain much anger at him. I expect this is partly because he’s dead, and partly because the bar is lower for fathers than it is for mothers.
+ - I just have this sort of entrepreneurial spirit and I work really hard at promoting myself.
+ - My father once nearly came to blows with a female dinner guest about whether a particular patch of embroidery was fuchsia or magenta. But the infinite gradations of color in a fine sunset – from salmon to canary to midnight blue – left him wordless.
+ - Grief takes many forms, including the absence of grief.
+ - It was not a triumphal return. Home, as I had known it, was gone.
+ - I’ll watch a movie only if it meets the following criteria: 1. It has to have at least two women in it. 2. Who talk to each other. 3. About something besides a man.
+ - I still found literary criticism to be a suspect activity.
+ - What would happen if we spoke the truth?
+ - I grew to resent the way my father treated his furniture like children, and his children like furniture.
+ - At first I was glad for the help. My freshmen English class, “Mythology and Archetypal Experience,” confounded me. I didn’t understand why we couldn’t just read books without forcing contorted interpretations on then.
+ - It was a vicious cycle, though. The more gratification we found in our own geniuses, the more isolated we grew.
+ - And partly, the worst thing you could do in my family was need something from someone. So physical strength represented an avenue of self-sufficiency to me.
+ - If it weren’t for the unconventionality of my desires, my mind might never have been forced to reckon with my body.
+ - The secret subversive goal of my work is to show that women, not just lesbians, are regular human beings.
+ - You can’t live and write at the same time.
+ - Yeah, I read Judy Blume. My mother didn’t like that, but I read it anyhow.
+ - Who embalms the Undertaker when he dies?
+ - But I read comic books. I read things like Richie Rich and Little Lulu.
+ - In a narcissistic cathexis, you invest more energy into your ideas about another person than in the actual, objective, external person. So the man who falls in love with beauty is quite different from the man who loves a girl and feels she is beautiful and can see what is beautiful about her.
+ - If there was ever a bigger pansy than my father, it was Marcel Proust.
+ - Autobiographical comics, I love them. I love them.
+ - For some reason writing and drawing are very separate processes for me.
+ - The satiric ethos of Mad was a much bigger childhood influence.
+ - People really want to think that these things really happened. I don’t know why that is important, but I know that when I finish reading a novel or something, I want to know how much of that really happened to this author.
+ - Partly I resented being perceived as weak because I was a girl.
+ - Even drawing gray hair at all is difficult to render in black and white.
+ - I’m glad mainstream culture is starting to catch up to where lesbian-feminism was 30 years ago.
+ - I’m pretty illiterate when it comes to comics history.
+ - I just met someone who read Gone With the Wind 62 times for exactly that same reason. She couldn’t bear that it wasn’t real. She wanted to live in it.
+ - I never really read superhero stuff as a kid.
+ - Watching everyone root through their psyche, it just delights me. Especially R. Crumb’s stuff.
+ - She has given me a way out.
+ - I love Jules Feiffer. I didn’t discover him until I was a little older.
+ - The web is my unconscious but it’s also a wish – a fantasy of what my own creativity might look like if I weren’t constantly impeding its flow.
+ - I don’t know, maybe it’s because I was raised Catholic. Confession has always held a great appeal for me.
+ - Sometimes I wish the writing and drawing were more integrated.
+ - I started to get bored with that stuff about only drawing men and I’ve taken it out of the slideshow.
+ - When I was growing up in the 1960s, there was starting to be more books geared towards young adults.
+ - I probably read Harriet the Spy about 70,000 times.
+ - Well, I’m always working on my comic strip and trying to, you know, keep cranking that out.
+
+44 quotes

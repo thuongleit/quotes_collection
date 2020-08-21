@@ -1,0 +1,151 @@
+ - We think too much and feel too little.
+ - I always like walking in the rain, so no one can see me crying.
+ - Nothing is permanent in this wicked world, not even our troubles.
+ - A day without laughter is a day wasted.
+ - You'll never find a rainbow if you're looking down.
+ - Imagination means nothing without doing.
+ - To truly laugh, you must be able to take your pain, and play with it.
+ - Failure is unimportant. It takes courage to make a fool of yourself.
+ - Life is a tragedy when seen in close-up, but a comedy in long-shot.
+ - The mirror is my best friend because when I cry it never laughs.
+ - You have to believe in yourself. That’s the secret.
+ - What do you want meaning for? Life is desire, not meaning.
+ - Smile, though your heart is aching. Smile, even though it’s breaking. When there are clouds in the sky, you’ll get by if you smile through your pain and sorrow. Smile and maybe tomorrow, you’ll see the sun come shining through for you.
+ - Perfect love is the most beautiful of all frustrations because it is more than one can express.
+ - Life is a beautiful magnificent thing, even to a jellyfish.
+ - Your naked body should only belong to those who fall in love with your naked soul.
+ - Your Pain May Give Laugh To Somebody But Your Laugh Shouldn’t Give Pain To Anybody.
+ - The saddest thing I can imagine is to get used to luxury.
+ - More than machinery, we need humanity.
+ - A man’s true character comes out when he’s drunk.
+ - My pain may be the reason for somebody’s laugh. But my laugh must never be the reason for somebody’s pain.
+ - You the people have the power to make this life free and beautiful, to make this life a wonderful adventure...
+ - Simplicity is not a simple thing.
+ - Don’t be afraid of the unknown because, even when they wander into chaos, planets are born stars!
+ - We think too much and feel too little. More than machinery, we need humanity; more than cleverness, we need kindness and gentleness. Without these qualities, life will be violent and all will be lost.
+ - Life laughs at you when you are unhappy; Life smiles at you when you are happy; But, life salutes you when you make others happy.
+ - Time is the best author. It always writes the perfect ending.
+ - You’ll find that life is still worthwhile, if you just smile.
+ - As I began to love myself I found that anguish and emotional suffering are only warning signs that I was living against my own truth. Today, I know, this is “AUTHENTICITY”.
+ - You need Power, only when you want to do something harmful otherwise Love is enough to get everything done.
+ - I have Many Problems in My Life. But my leaps don’t know that. They always smile.
+ - The Kingdom of God is within man, not one man nor a group of men, but in all men! In you!
+ - Life is a play that does not allow testing. So, sing, cry, dance, laugh and live intensely, before the curtain closes and the piece ends with no applause.
+ - Simplicity of approach is always best.
+ - Greed has poisoned men’s souls.
+ - There is greatness in everyone.
+ - This is a ruthless world and one must be ruthless to cope with it.
+ - One murder makes a villain. Millions a hero.
+ - Unless I write every day, I don’t feel I deserve my dinner.
+ - More than cleverness, we need kindness and gentleness.
+ - As for politics, I’m an anarchist. I hate governments and rules and fetters. Can’t stand caged animals. People must be free.
+ - Let us fight for a new world, a decent world!
+ - A tramp, a gentleman, a poet, a dreamer, a lonely fellow, always hopeful of romance and adventure.
+ - Think about yourself at least once in your life otherwise you may miss the best comedy in this world.
+ - Life salutes you when you make others happy.
+ - Only the unloved hate; the unloved and the unnatural.
+ - It isn’t the ups and downs that make life difficult; it’s the jerks.
+ - Tomorrow, the birds will sing. Be brave. Face life.
+ - The hate of men will pass, and dictators die, and the power they took from the people will return to the people. And so long as men die, liberty will never perish.
+ - In the light of our egos, we are all dethroned monarchs.
+ - To help a friend in need is easy, but to give him your time is not always opportune.
+ - Don’t fight for slavery! Fight for LIBERTY! You, the people have the power – the power to create machines. The power to create happiness! You, the people, have the power to make this life free and beautiful, to make this life a wonderful adventure.
+ - My technique is the outcome of thinking for myself, of my own logic and approach; it is not borrowed from what others are doing.
+ - I hate the sight of blood, but it’s in my veins.
+ - That’s the trouble with the world. We all despise ourselves.
+ - I am at peace with God. My conflict is with Man.
+ - I went into the business for the money, and the art grew out of it. If people are disillusioned by that remark, I can’t help it. It’s the truth.
+ - Let us fight to free the world – to do away with national barriers – to do away with greed, with hate and intolerance. Let us fight for a world of reason, a world where science and progress will lead to all men’s happiness.
+ - Man as an individual is a genius. But men in the mass form the headless monster, a great, brutish idiot that goes where prodded.
+ - The basic essential of a great actor is that he loves himself in acting.
+ - I suppose that’s one of the ironies of life doing the wrong thing at the right moment.
+ - Anyone can make them cry, but it takes a genius to make them laugh.
+ - I don’t need interesting camera angles, I am interesting.
+ - The cinema is little more than a fad. It’s canned drama. What audiences really want to see is flesh and blood on the stage.
+ - Why should poetry have to make sense?
+ - As long as men die, liberty will never parish.
+ - I have found that great ideas come when you have a great desire to have them.
+ - Man is an animal with primary instincts of survival. Consequently his ingenuity has developed first and his soul afterwards. The progress of science is far ahead of man’s ethical behavior.
+ - Actors search for rejection. If they don’t get it they reject themselves.
+ - I believe in the power of laughter and tears as an antidote to hatred and terror.
+ - Through humour, we see in what seems rational, the irrational; in what seems important, the unimportant.
+ - Dictators free themselves, but they enslave the people.
+ - I remain just one thing, and one thing only, and that is a clown. It places me on a far higher plane than any politician.
+ - Beauty is an omnipresence of death and loveliness, a smiling sadness that we discern in nature and all things, a mystic communion that the poet feels.
+ - You are only as good as the woman you are standing beside.
+ - There are more valid facts and details in works of art than there are in history books.
+ - I had no idea of the character. But the moment I was dressed, the clothes and the make-up made me feel the person he was. I began to know him, and by the time I walked onto the stage he was fully born.
+ - Life is laughter when seen in a long shot, but it is a tragedy when seen in a close-up.
+ - What a sad business is being funny!
+ - In this desperate way, I started many a comedy.
+ - Soldiers! In the name of democracy, let us all unite!
+ - Had I known of the actual horrors of the German concentration camps, I could not have made The Great Dictator, I could not have made fun of the homicidal insanity of the Nazis.
+ - By simple common sense I don’t believe in God, in none.
+ - I do not have much patience with a thing of beauty that must be explained to be understood.
+ - I’ve arrived at the age where a platonic friendship can be sustained on the highest moral plane.
+ - If anybody else says it’s like old times, I’ll jump out the window.
+ - I am for people. I can’t help it.
+ - I don’t want to create a revolution – I just want to create a few more films.
+ - To those who can hear me, I say – do not despair. The misery that is now upon us is but the passing of greed – the bitterness of men who fear the way of human progress.
+ - I don’t believe that the public knows what it wants; this is the conclusion that I have drawn from my career.
+ - Brunettes are troublemakers. They’re worse than the Jews.
+ - Over the years I have discovered that ideas come through an intense desire for them; continually desiring, the mind becomes a watchtower on the lookout for incidents that may excite the imagination.
+ - My character of the Tramp, the millions of workers symbolized in that one figure.
+ - I thought I would dress in baggy pants, big shoes, a cane and a derby hat. everything a contradiction: the pants baggy, the coat tight, the hat small and the shoes large.
+ - From such trivia, I believe my soul was born.
+ - In this book I do not intend to give a blow-by-blow description of a sex bout: I find them inartistic, clinical and unpoetic. The circumstances that lead up to sex I find more interesting.
+ - I’d sooner be called a successful crook than a destitute monarch.
+ - In the end, everything is a gag.
+ - I have no further use for America. I wouldn’t go back there if Jesus Christ was President.
+ - Quebec from the boat looked like the ramparts where Hamlet’s ghost might have walked.
+ - Have them all shot. I don’t want any of my workers dissatisfied.
+ - Despair is a narcotic. It lulls the mind into indifference.
+ - Judge a man not by how he treats his equals but by how he treats his inferiors.
+ - In this world there is room for everyone. And the good earth is rich and can provide for everyone. The way of life can be free and beautiful, but we have lost the way.
+ - We all want to help one another. Human beings are like that. We want to live by each other’s happiness, not by each other’s misery.
+ - Ability to think, like the violin or piano, requires daily practice.
+ - The rights of citizenship will be taken away from all Jews and other non-Aryans. They are inferior and therefore enemies of the state. It is the duty of all true Aryans to hate and despise them.
+ - The glamour of it all! New York! America!
+ - I don’t think the real America is in New York or on the Pacific Coast; personally, I like the Middle West much better, places like North and South Dakota, Minneapolis and Saint Paul. There, I think, are the true Americans.
+ - Nothing quite like it. The feeling of film.
+ - Why not? After all, it belongs to him.
+ - Dictators free themselves by enslaving others. They work not for your benefit, but their own.
+ - Movies are a fad. Audiences really want to see live actors on a stage.
+ - All my pictures are built around the idea of getting in trouble and so giving me the chance to be desperately serious in my attempt to appear as a normal little gentleman.
+ - I do not have much patience with a thing of beauty that must be explained to be understood. If it does need additional interpretation by someone other than the creator, then I question whether it has fulfilled its purpose.
+ - The people are applauding you because none of them understands you and applauding me because everybody understands me.
+ - We must laugh in the face of our helplessness against the forces of nature, or go insane.
+ - Laughter is the tonic, the relief, the surcease for pain.
+ - That’s what all we are: amateurs. We don’t live long enough to be anything else.
+ - This is a story of a period between two World Wars – an interim in which insanity cut loose. Liberty took a nose dive, and humanity was kicked around somewhat.
+ - Like everyone else I am what I am: an individual, unique and different, with a lineal history of ancestral promptings and urgings; a history of dreams, desires, and of special experiences, all of which I am the sum total.
+ - I’m sorry, but I don’t want to be an emperor. That’s not my business. I don’t want to rule or conquer anyone.
+ - Greed has poisoned men’s souls, has barricaded the world with hate; has goose-stepped us into misery and bloodshed.
+ - All I need to make a comedy is a park, a policeman and a pretty girl.
+ - I am known in parts of the world by people who have never heard of Jesus Christ.
+ - Sound has spoiled the most ancient of the world’s arts, the art of pantomime, and has canceled out the great beauty that is silence.
+ - The building is a special place because of its architecture; But it’s people who make it special by participating in it.
+ - My prodigious sin was, and still is, being a non-conformist.
+ - I’m an old sinner. Nothing shocks me.
+ - I will not join any club who will take me as a member.
+ - The very nature of these inventions cries out for the goodness in men, cries out for universal brotherhood, for the unity of us all.
+ - They cheer me because they all understand me, and they cheer you because no one understands you.
+ - Remember, you can always stoop and pick up nothing.
+ - In the creation of comedy, it is paradoxical that tragedy stimulates the spirit of ridicule; because ridicule, I suppose is an attitude of defiance: we must laugh in the face of our helplessness against the forces of nature – or go insane.
+ - Nothing is more important than the moving image; except for my cup of coffee in the morning.
+ - I can’t understand Karl Marx, so how can I be a Communist?
+ - I do not need drugs to be a genius, do not take a genius to be human, but I need your smile to be happy.
+ - Hair is vitally personal to children. They weep vigorously when it is cut for the first time; no matter how it grows, bushy, straight or curly, they feel they are being shorn of a part of their personality.
+ - Where words leave off, gesture begins. Don’t we speak of a person being speechless with rage, dancing with impatience, setting his teeth? The final motions of the soul are speechless, animal, grotesque, or of an incomparable beauty.
+ - If you’re really truthful with yourself, it’s a wonderful guidance.
+ - We might as well die as to go on living like this.
+ - In Philadelphia, I inadvertently came upon an edition of Robert Ingersoll’s Essays and Lectures. This was an exciting discovery; his atheism confirmed my own belief that the horrific cruelty of the Old Testament was degrading to the human spirit.
+ - I like friends as I like music – when I am in the mood.
+ - When we got off the streetcar at Times Square, it was somewhat of a letdown. Newspapers were blowing about the road and pavement, and Broadway looked seedy, like a slovenly woman just out of bed.
+ - 3 is a prime, 5 is a prime, 7 is a prime, 9 is the next prime after 8.
+ - I hope we shall abolish war and settle all differences at the conference table I hope we shall abolish all hydrogen and atom bombs before they abolish us first.
+ - That is why, no matter how desperate the predicament is, I am always very much in earnest about clutching my cane, straightening my derby hat and fixing my tie, even though I have just landed on my head.
+ - Let us fight to free the world.
+ - Life could be wonderful if people would leave you alone.
+
+149 quotes

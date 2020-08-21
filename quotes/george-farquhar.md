@@ -1,0 +1,35 @@
+ - Those who know the least obey the best.
+ - A good husband makes a good wife at any time.
+ - When the blind lead the blind, no wonder they both fall into – matrimony.
+ - Hanging and marriage, you know, go by destiny.
+ - False love is only blinder.
+ - Women are like pictures: of no value in the hands of a fool till he hears men of sense bid high for the purchase.
+ - How a little love and good company improves a woman.
+ - No woman can be a beauty without a fortune.
+ - Sir, you shall taste my Anno Domini.
+ - Crimes, like virtues, are their own rewards.
+ - Observe this, that tho a woman swear, forswear, lie, dissemble, back-bite, be proud, vain, malicious, anything, if she secures the main chance, she’s still virtuous; that’s a maxim.
+ - Charming women can true converts make, We love the precepts for the teacher’s sake.
+ - Captain is a good travelling name and so I take it.
+ - I believe they talked of me, for they laughed consumedly.
+ - It is a maxim that man and wife should never have it in their power to hang one another.
+ - Vivutur ingenio, that damn’d motto there Seduced me first to me a wicked player.
+ - Tis the greatest misfortune in nature for a woman to want a confidant.
+ - The shortest pleasures are the sweetest.
+ - Money is the sinews of love, as of war.
+ - Aimwell: Then you understand Latin, Mr. Bonniface? Bonniface: Not I, Sir, as the saying is, but he talks it so very fast that I’m sure it must be good.
+ - Spite of all modesty, a man must own a pleasure in the hearing of his praise.
+ - Necessity, the mother of invention.
+ - One may like the love and despise the lover.
+ - Do you think a woman’s silence can be natural?
+ - Tis a question whether adversity or prosperity makes the most poets.
+ - There is no scandal like rags, nor any crime so shameful as poverty.
+ - I hate all that don’t love me, and slight all that do.
+ - Women never really command until they have given their promise to obey; and they are never in more danger of being made slaves than when the men are at their feet.
+ - We are the men of intrinsic value, who can strike our fortunes out of ourselves, whose worth is independent of accidents in life, or revolutions in government: we have heads to get money, and hearts to spend it.
+ - Since a woman must wear chains, I would have the pleasure of hearing ’em rattle a little.
+ - I have fed purely upon ale; I have eat my ale, drank my ale, and I always sleep upon ale.
+ - Poetry’s a mere drug, Sir.
+ - Grant me some wild expressions, Heavens, or I shall burst.
+
+33 quotes

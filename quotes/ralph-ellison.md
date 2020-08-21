@@ -1,0 +1,74 @@
+ - Life is to be lived, not controlled, and humanity is won by continuing to play in face of certain defeat.
+ - When I discover who I am, I’ll be free.
+ - I am an invisible man. I am a man of substance, of flesh and bone, fiber and liquids – and I might even be said to possess a mind. I am invisible, understand, simply because people refuse to see me.
+ - It takes a deep commitment to change and an even deeper commitment to grow.
+ - Imitation is suicide, envy is ignorance.
+ - Education is all a matter of building bridges.
+ - I am nobody but myself.
+ - The truth is the light and the light is the truth.
+ - In order to travel far you have to be detached.
+ - I am an invisible man. No, I am not a spook like those who haunted Edgar Allan Poe; nor am I one of your Hollywood-movie ectoplasms.
+ - If you can show me how I can cling to that which is real to me, while teaching me a way into the larger society, then and only then will I drop my defenses and hostility, and I will sing your praises and help you to make the desert bear fruit.
+ - I was looking for myself and asking everyone except myself questions which I, and only I, could answer.
+ - What and how much had I lost by trying to do only what was expected of me instead of what I myself had wished to do?
+ - I was never more hated than when I tried to be honest. Or when, even as just now I’ve tried to articulate exactly what I felt to be the truth. No one was satisfied.
+ - Commercial rock ‘n’ roll music is a brutalization of the stream of contemporary Negro church music an obscene looting of a cultural expression.
+ - The antidote to hubris, to overweening pride, is irony, that capacity to discover and systematize ideas.
+ - I am invisible, understand, simply because people refuse to see me.
+ - Perhaps everyone loved someone; I didn’t now, I couldn’t give much thought to love; in order to travel far you had to be detached, and I had the long road back to the campus before me.
+ - I am not ashamed of my grandparents for having been slaves. I am only ashamed of myself for having at one time being ashamed.
+ - And my problem was that I always tried to go in everyone’s way but my own.
+ - We don’t all dig Shakespeare uniformly, or even ‘Little Red Riding Hood.’ The understanding of art depends finally upon one’s willingness to extend one’s humanity and one’s knowledge of human life.
+ - To hell with being ashamed of what you liked.
+ - Who knows but that, on the lower frequencies, I speak for you?
+ - Eclecticism is the word. Like a jazz musician who creates his own style out of the styles around him, I play by ear.
+ - Power doesn’t have to show off. Power is confident, self-assuring, self-starting and self-stopping, self-warming and self-justifying. When you have it, you know it.
+ - The end is in the beginning and lies far ahead.
+ - It took me a long time and much painful boomeranging of my expectations to achieve a realization everyone else appears to have been born with: That I am nobody but myself.
+ - All novels are about certain minorities: the individual is a minority.
+ - All novels are about certain minorities: the individual is a minority. The universal in the novel-and isn’t that what we’re all clamoring for these days?-is reached only through the depiction of the specific man in a specific circumstance.
+ - Life is as the sea, art a ship in which man conquers life’s crushing formlessness, reducing it to a course, a series of swells, tides and wind currents inscribed on a chart.
+ - The act of writing requires a constant plunging back into the shadow of the past where time hovers ghostlike.
+ - Please, a definition: A hibernation is a covert preparation for a more overt action.
+ - Man’s hope can paint a purple picture, can transform a soaring vulture into a noble eagle or moaning dove.
+ - In those days it was either live with music or die with noise, and we chose rather desperately to live.
+ - I am one of the most irresponsible beings that ever lived. Irresponsibility is part of my invisibility; any way you face it, it is a denial. But to whom can I be responsible, and why should I be, when you refuse to see me?
+ - I do not know if all cops are poets, but I know that all cops carry guns with triggers.
+ - The clock ticked with empty urgency, as though trying to catch up with the time. In the street a siren howled.
+ - If the word has the potency to revive and make us free, it has also the power to bind, imprison and destroy.
+ - I denounce because though implicated and partially responsible, I have been hurt to the point of abysmal pain, hurt to the point of invisibility. And I defend because in spite of it all, I find that I love.
+ - The world is a possibility if only you’ll discover it.
+ - God is love, I said, but art’s the possibility of forms, and shadows are the source of identity.
+ - I remember that I’m invisible and walk softly so as not awake the sleeping ones. Sometimes it is best not to awaken them; there are few things in the world as dangerous as sleepwalkers.
+ - The blues is an art of ambiguity, an assertion of the irrepressibly human over all circumstances, whether created by others or by one’s own human failing.
+ - Words are your business, boy. Not just the word. Words are everything. The key to the rock, the answer to the question.
+ - If only all the contradictory voices shouting in my head would calm down and sing a song in unison, whatever it was I wouldn’t care as long as they sang without dissonance.
+ - My hole is warm and full of light.
+ - There must be possible a fiction which, leaving sociology and case histories to the scientists, can arrive at the truth about the human condition, here and now, with all the bright magic of the fairy tale.
+ - Had the price of looking been blindness, I would have looked.
+ - Perhaps to lose a sense of where you are implies the danger of losing a sense of who you are.
+ - There are few things in the world as dangerous as sleepwalkers.
+ - We look too much to museums. The sun coming up in the morning is enough.
+ - If social protest is antithetical to art, what then shall we make of Goya, Dickens, and Twain?
+ - I feel the need to reaffirm all of it, the whole unhappy territory and all the things loved and unloveable in it, for it is all part of me.
+ - It is sometimes advantageous to be unseen, although it is most often rather wearing on the nerves.
+ - When American life is most American it is apt to be most theatrical.
+ - America is woven of many strands. I would recognise them and let it so remain. Our fate is to become one, and yet many. This is not prophecy, but description.
+ - Good fiction is made of that which is real, and reality is difficult to come by.
+ - I suspect that all the agony that goes into writing is borne precisely because the writer longs for acceptance-but it must be acceptance on his own terms.
+ - Every serious novel is, beyond its immediate thematic preoccupations, a discussion of the craft, a conquest of the form, a conflict with its difficulties and a pursuit of its felicities and beauty.
+ - The thing to do is to exploit the meaning of the life you have.
+ - And I knew that it was better to live out one’s absurdity than to die for that of others.
+ - And the mind that has conceived a plan of living must never lose sight of the chaos against which that pattern was conceived. That goes for societies as well as for individuals.
+ - Injustice wears ever the same harsh face wherever it shows itself.
+ - By and large, the critics and readers gave me an affirmed sense of my identity as a writer. You might know this within yourself, but to have it affirmed by others is of utmost importance. Writing is, after all, a form of communication.
+ - Without the possibility of action, all knowledge comes to one labeled ‘file and forget.’
+ - Some people are your relatives but others are your ancestors, and you choose the ones you want to have as ancestors. You create yourself out of those values.
+ - I blundered into writing.
+ - Meaning grows in the mind, but the shape and form of the act remains.
+ - And while the ice was melting to form a flood in which I threatened to drown I awoke one afternoon to find that my first northern winter had set.
+ - I’m not a separatist. The imagination is integrative. That’s how you make the new – by putting something else with what you’ve got. And I’m unashamedly an American integrationist.
+ - Having tried to give pattern to the chaos which lives within the pattern of your certainties, I must come out, I must emerge.
+ - That which we remember is, more often than not, that which we would like to have been; or that which we hope to be. Thus our memory and our identity are ever at odds; our history ever a tale told by inattentive idealists.
+
+72 quotes

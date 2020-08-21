@@ -1,0 +1,30 @@
+ - You can’t blend in when you were born to stand out.
+ - I think there should be a rule that everyone in the world should get a standing ovation at least once in their lives.
+ - Courage. Kindness. Friendship. Character. These are the qualities that define us as human beings, and propel us, on occasion, to greatness.
+ - It’s not enough to be friendly. You have to be a friend.
+ - Just follow the day and reach for the sun!
+ - Sometimes I think my head is so big because it is so full of dreams.
+ - Now that I look back, I don’t know why I was so stressed about it all this time. Funny how sometimes you worry a lot about something and it turns out to be nothing.
+ - Learning who you are is what you’re here to do.
+ - Kinder than is necessary. Because it’s not enough to be kind. One should be kinder than needed.
+ - We carry with us, as human beings, not just the capacity to be kind, but the very choice of kindness.
+ - One mistake does not define you.
+ - Sometimes you don’t have to mean to hurt someone to hurt someone.
+ - My mom smiled at me. Her smile kind of hugged me.
+ - Don’t be friends with jerks.
+ - I actually like how doctors talk. I like the sound of science. I like how words you don’t understand explain things you can’t understand.
+ - Whenever there is a conflict between being right and being kind, if possible, choose being kind.
+ - Her smile hugged me.
+ - Some things you just can’t explain. You don’t even try. You don’t know where to start. All your sentences would jumble up like a giant knot if you opened your mouth. Any words you used would come out wrong.
+ - I wish everyday could be Halloween. We could all wear masks all the time. Then we could walk around and get to know each other before we got to see what we looked like under the masks.
+ - Or whatever politically correct spiritual representation of universal goodness you happen to believe in.
+ - Here’s what I think: the only reason I’m not ordinary is that no one else sees me that way.
+ - That’s how it is in heaven. It’s just love, and no one forgets who they love.
+ - You don’t need your eyes to love. You just feel it inside you.
+ - I eat like a tortoise eats, if you’ve ever seen a tortoise eating. Like some prehistoric swamp thing.
+ - I won’t describe what I look like. Whatever you’re thinking, it’s probably worse.
+ - Middle School is about as bad as it gets, and then it gets better.
+ - There’s a word like overprotective to describe some parents, but no word that means the opposite. What word do you use to describe parents who don’t protect enough? Underprotective? Neglectful? Self-involved? Lame? All of the above.
+ - A big sister who cries over being human over you. A gravelly voiced kid who’s friends left him over you. And a pink-haired girl who keeps your picture in her wallet.
+
+28 quotes

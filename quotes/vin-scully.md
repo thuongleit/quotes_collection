@@ -1,0 +1,29 @@
+ - As long as you live keep smiling because it brightens everybody’s day.
+ - Good is not good when better is expected.
+ - Statistics are used much like a drunk uses a lamppost: for support, not illumination.
+ - It is kind of lovely to be sitting alone, just thinking, very quiet, no one around. I don’t feel alone or left out.
+ - Losing feels worse than winning feels good.
+ - It’s easier to pick off a fast runner than to pick off a lazy runner.
+ - In a year that has been so improbable, the impossible has happened.
+ - That is the way this game is – you win, you lose, you celebrate and you suffer.
+ - If you have a sombrero, throw it to the sky!
+ - When I was very small, maybe 8 years old, we had a big radio that stood on four legs, and it had a cross piece underneath it, and I used to take a pillow and crawl under the radio.
+ - It’s a wonderful feeling to be a bridge to the past and to unite generations. The sport of baseball does that, and I am just a part of it.
+ - Some people die twice: once when they retire, and again when they actually pass away. Fear of the first one is a big incentive for me to keep working.
+ - Andre Dawson has a bruised knee and is listed as day-to-day. Aren’t we all?
+ - I would say realistically, and I don’t want any headlines, but I would say realistically that next year would be the last year.
+ - I guess my thermometer for my baseball fever is still a goose bump.
+ - I really love baseball. The guys and the game, and I love the challenge of describing things. The only thing I hate – and I know you have to be realistic and pay the bills in this life – is the loneliness on the road.
+ - The ability to throw 100 mph cannot be taught, cannot be learned, it can only be God-given.
+ - The roar of the crowd has always been the sweetest music. It’s intoxicating.
+ - How good was Stan Musial? He was good enough to take your breath away.
+ - I really love baseball. The guys and the game, and I love the challenge of describing things.
+ - The charm about baseball is everyone has played it in some form. Everyone relates to it.
+ - It’s a mere moment in a man’s life between an All-Star game and an old-timer’s game.
+ - Manuel Corpas is long and lean-the opposite of Olmedo Saenz.
+ - I love baseball and I don’t want to be part of anything that would cheapen it or vulgarize it.
+ - I don’t like to be alone, but I do cherish the moments that I’m alone with a good book.
+ - I have to go over my carefully prepared ad-libs.
+ - I’ve always felt that I was talking to one person. But I’ve never envisioned who that one person is.
+
+27 quotes

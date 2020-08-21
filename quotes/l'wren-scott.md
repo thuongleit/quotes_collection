@@ -1,0 +1,45 @@
+ - Peruvian food is so simple yet amazingly flavored with their traditional spices.
+ - I believe in stopping work and eating lunch.
+ - Everyone has their own special set of problems – in their own minds.
+ - You’ll see the most perfect person, and you are like, ‘God, she’s, like, perfect.’ And then she’ll tell you everything that’s not perfect. Everyone has their own special set of problems – in their own minds.
+ - I really wanted to do my own perfume because I mix my own oils, so it just made sense.
+ - Enhancing a woman’s silhouette and enhancing a woman’s beauty – both contribute to enhancing her confidence, so they’re synonymous, really.
+ - The sooner you start being fearless, the better.
+ - I take a multivitamin, vitamin D, and omega-3 oils every day, and if I’m stressed or run- down, I bulk up on vitamin C and zinc.
+ - I don’t really measure success by anything other than if I am happy. That is success to me. Am I happy waking up every morning? And despite the challenges of running my own business, do I look forward to going to work? Absolutely.
+ - You can celebrate the female form in comfort.
+ - One should always try to do the best you possibly can. I’m not in a race to the finish line – I won’t put anything out until it’s completely ready. You want to keep it special and unique for the customer.
+ - I think a girl always needs a cardigan, and I tend to go for the sparkles. I have a minimum of 50 embellished cardigans. I’m not a believer in less is more; I’m sort of a believer in more is necessary.
+ - I am a fashion designer, so I guess that makes me an overpacker.
+ - My theory is that balance is key – nothing in excess.
+ - The fun thing about scent is that it’s unique to everyone; pheromones take on a new scent.
+ - I exercise five days a week at home.
+ - I’ve never met a woman who thinks they’ve got a good enough figure – however perfect they look – which is sad, because no one else can see these perceived flaws; they’re entirely internal.
+ - Random things are luxurious to people. It’s personal.
+ - I don’t want to be defined as someone’s girlfriend.
+ - There’s lots of things you pull out lipstick for.
+ - I’ve always been very inspired by fashion. I’ve always been a big fan of style.
+ - I am only six foot three, by the way.
+ - I have a very big family and a lot of friends, and buying presents is one of my favorite things to do.
+ - I don’t like to dictate the style to the customer, I believe people give something their own trend.
+ - It’s so important your customer can rely on you for your classics.
+ - I love a real-life, movie moment in living color.
+ - The biggest part of my fashion choices is how comfortable it is.
+ - Today’s market action is driven by the slower GDP growth rate. Despite oil being higher, I think the GDP kind of overruled everything and just makes the market feel better about what the Fed is going to do, or rather not do.
+ - People often try to disguise televisions. I always think that makes it worse. It is what it is!
+ - I didn’t particularly like being objectified.
+ - I always have to have my lipstick. Sometimes I have more than one shade: start with one color for the morning, one for night. Sometimes I have a couple shades just in case I need something more powerful for the day.
+ - I’m always working. I work wherever I am.
+ - Every season I try to top myself, and push it a little further.
+ - If you don’t feel good in it, don’t wear it. Because it’ll never look good. Any hesitation in the fitting room and just walk away.
+ - I had to learnto sew when I was growing up, because nothing else fitted me.
+ - I never eat where the hotel recommends. I do my own research and then try the most highly rated options.
+ - Guys understand a waistline. They understand a silhouette.
+ - After working with clothes for so long, it seemed right to design them.
+ - When you’re creating a fragrance, you’re always thinking about what you want that first smell to be, that first reaction.
+ - I just want to be known for what I do, not who I know.
+ - I am obsessed with proportion, and how proportion is perceived.
+ - It was always sort of my dream to make handbags and I wanted a handbag that was very sharp, very structured, very tailored I wanted a bag you could put all of your things in it, you can open it, you could close it, you could hid all your tricks, but it’s not all lumpy.
+ - Women of every age and size really just want to look sexy, while retaining their power and dignity.
+
+43 quotes

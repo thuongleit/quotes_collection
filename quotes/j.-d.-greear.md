@@ -1,0 +1,36 @@
+ - True worship is obedience to God for no other reason than that you delight in God.
+ - The gospel points us upward to a God who gave himself for us, backward to the price he paid for our sin, and forward to what he’s making us into.
+ - If you want to be led by the Spirit of God, then devote yourself to the Word of God.
+ - Lord, as You have been to me, so I will be to others. As I pray, I’ll measure Your compassion by the cross and Your power by the resurrection.
+ - Awe combined with intimacy is the essence of Christian worship.
+ - Repentance is belief in action.
+ - In Christ, there is nothing I can do that would make You love me more and nothing I have done that makes You love me less.
+ - It is one thing to understand the gospel but is quite another to experience the gospel in such a way that it fundamentally changes us and becomes the source of our identity and security.
+ - God sometimes answers our prayers by giving us what we would have asked for had we known what He knows.
+ - When something becomes so important to you that it drives your behavior and commands your emotions, you are worshipping it.
+ - When we realize how great a debt we owe to God, we become willing servants, eager to be poured out for God and His Kingdom.
+ - Often the strongest evidence of my growth in grace is my growth in the knowledge of my need for grace.
+ - Gospel change is the Spirit of God using the story of God to make the beauty of God come alive in our hearts.
+ - We may not be worthy to be forgiven, but He is worthy to forgive us.
+ - We are changed not by being told what we need to do for God, but by hearing the news about what God has done for us.
+ - At your church, the week is more important than the weekend. Empower people and send them out for the week.
+ - Faith is not the absence of doubt; it is continuing to follow Jesus in the midst of doubt.
+ - My identity and my security are not in my spiritual progress. My identity and my security are in God’s acceptance of me given as a gift in Christ.
+ - Things like radical generosity and audacious faith are not produced when we focus on them, but when we focus on the gospel.
+ - The goal of the gospel is to produce a type of people consumed with passion for God an love for others.
+ - Being able to articulate the gospel with accuracy is one thing; having its truth captivate your soul is quite another.
+ - In a post-Christian, skeptical age, love on display is the most convincing apologetic.
+ - Getting doctrine right is a matter of life and death, but holding that doctrine in the right spirit is essential too. A great deal of damage is done by those who hold the truth of Christ with the spirit of Satan.
+ - What would your prayers look like if you believed that the cross really was the measure of God’s compassion for someone?
+ - Salvation is not a prayer you pray in a one-time ceremony and then move on from; salvation is a posture of repentance and faith that you begin in a moment and maintain for the rest of your life.
+ - True religion is when you serve God to get nothing else but more of God.
+ - Don’t feel your way into your beliefs; believe your way into your feelings.
+ - Satan’s primary temptation strategy is to try and make us forget what God has said about us and to evaluate our standing before God by some other criteria.
+ - A Christianity that does not have as its primary focus the deepening of passions for God is a false Christianity, no matter how zealously it seeks conversions or how forcefully it advocates righteous behavior.
+ - Being converted to Jesus is learning to so adore God that we would gladly renounce everything we have to follow Him.
+ - Worry springs from not being convinced of a sovereign God’s absolute love for you. Worry disappears when you realize that God loves you unfailingly and will let nothing interrupt His plans for your good.
+ - As we see the beauty of God and feel His weightiness in our hearts, our hearts begin to desire Him more than we desire sin. Before the Bible says,“Stop sinning”, it says,“Behold your God”.
+ - Satan’s most effective weapon is to take our eyes off of what God has declared over us in the gospel.
+ - Focusing on what we ought to do for God creates only frustration and exhaustion; focusing on what Jesus has done for us produces abundant fruit. Resting in what Jesus has done for us releases the revolutionary power of the gospel.
+
+34 quotes

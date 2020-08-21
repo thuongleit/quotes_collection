@@ -1,0 +1,70 @@
+ - There is no turning back.
+ - Democracy is impossible in a capitalist system. Capitalism is the realm of injustice and a tyranny of the richest against the poorest.
+ - We must confront the privileged elite who have destroyed a large part of the world.
+ - What hurts me most is poverty, and that’s what led me to become a rebel.
+ - Capitalism is the way of the devil and exploitation. If you really want to look at things through the eyes of Jesus Christ – who I think was the first socialist – only socialism can really create a genuine society.
+ - Latin Americans have gotten tired of the Washington consensus – a neoliberalism that has aggravated misery and poverty.
+ - Privatization is a neoliberal and imperialist plan. Health can’t be privatized because it is a fundamental human right, nor can education, water, electricity and other public services. They can’t be surrendered to private capital that denies the people from their rights.
+ - Mutual respect! That’s what it takes to be friends.
+ - When imperialism feels weak, it resorts to brute force.
+ - Most governments in the United States in a hundred years have not respected the peoples of Latin America. They have sponsored coup d’etats, assassinations.
+ - I love books. If they are good books, I love them even more. But even if they are bad books, I still love them.
+ - I don’t want to die. Please don’t let me die.
+ - If the climate were a bank, they would already have saved it.
+ - I am a President held prisoner, that I haven’t resigned and I will not resign.
+ - It doesn’t smell of sulphur any more. No, it smells of something else. It smells of hope, and you have to have hope in your heart.
+ - Let the dogs of the empire bark, that’s their job; ours is to battle to achieve the true liberation of our people.
+ - Racism is very characteristic of imperialism and capitalism. Hate against me has a lot to do with racism. Because of my big mouth and curly hair. And I’m so proud to have this mouth and this hair, because it is African.
+ - I am convinced that the path to a new, better and possible world is not capitalism, the path is socialism.
+ - Israel has gone mad. It’s attacking, doing the same thing to the Palestinian and Lebanese people that they have criticised – and with reason – the Holocaust. But this is a new Holocaust.
+ - I was a farm kid from the plains of South Venezuela, from a very poor family. I grew up in a palm tree house with an earthen floor.
+ - We must reduce all the emissions that are destroying the planet. However, that requires a change in lifestyle, a change in the economic model: We must go from capitalism to socialism.
+ - I’m a reading addict. I can’t live without it, like someone who is addicted to drugs.
+ - Venezuela has changed forever.
+ - Long live the Unity of Latin America.
+ - We want to be brothers and sisters. We want respect and equality. Simon Bolivar, our father, said a balanced world – a universe – a balanced universe in order to have peace and development.
+ - I do wish that the IMF and the World Bank would disappear soon.
+ - I’m a man with many defects. I love. I sing. I dream. I was born in the poor countryside. I was raised in the countryside, planting corn and selling sweets made by my grandmother. My children, my two daughters are with me and I want a better world for my grandchildren, for your grandchildren.
+ - Venezuela is a free country, and we will not be blackmailed by anyone. We will not accept being told what to do over Iran; we will not accept being anyone’s colony.
+ - We’re not perfect, but we do have democracy.
+ - I wish we could begin a new period of normal relations with the government of the United States.
+ - It’s a lie! I am not an anti-Semite. The World Jewish Congress supported me and said that I am not anti-Semitic.
+ - The only way to save the world is through socialism, but a socialism that exists within a democracy; there’s no dictatorship here.
+ - We shall remember Gaddafi our whole lives as a great fighter, a revolutionary and a martyr.
+ - Knowing English is important, but for us Venezuelans I think it would also be important to know Portuguese. For that reason, we should evaluate the possibility of it being taught in our schools.
+ - Don’t let yourselves be poisoned by those wandering Jews.
+ - I’m a Christian. I want the world of justice and equality. This is the only way to achieve peace.
+ - The left is back, and it’s the only path we have to get out of the spot to which the right has sunken us. Socialism builds and capitalism destroys.
+ - The revolution will survive. It does not rely solely on oil for its survival. There is a national will, there is a national idea, a national project.
+ - I hereby accuse the North American empire of being the biggest menace to our planet.
+ - I’m not giving away oil for free. Just using oil, first to benefit our people, to relieve poverty.
+ - But Cuba doesn’t have a dictatorship it’s a revolutionary democracy.
+ - I became a soldier, not because I had a military vocation initially, but because it was the only way that that young, poor-class child from the provinces could go to the center of the country: through baseball, which was my dream.
+ - Peoples of the Americas are rising once again, saying no to imperialism, saying no to fascism, saying no to intervention – and saying no to death.
+ - If the United States was mad enough to attack Iran or aggress Venezuela again the price of a barrel of oil could reach $150 or even $200.
+ - Mr. Bush is an illegitimate President. In Florida, his brother Jeb deleted many black voters from the electoral registers. So this President is the result of a fraud.
+ - What you want is one thing, and what you cannot really obtain is another.
+ - The ones who close the path for peacefull revolution, at the same time open the path for violent revolution.
+ - An infernal machine that produces every minute an impressive amount of poor, 26 million poor in 10 years are 2.6 million per year of new poor, this is the road, well, the road to hell.
+ - Israel criticizes Hitler a lot, so do we, but they’ve done something very similar, even worse, than what the Nazis did.
+ - I painted. I wanted to be a painter. I sang.
+ - I think the United States and the secretary of State should be concerned about the poverty in this country – people without health insurance. The United States should stop being the empire and be concerned about other countries. You’ve got to be more worried about your own people.
+ - Fascists are not human. A snake is more human.
+ - No part of the human community can live entirely on its own planet, with its own laws of motion and cut off from the rest of humanity.
+ - It makes one sad to see the sell-out of President Fox, really it makes one sad. How sad that the president of a people like the Mexicans lets himself become the puppy dog of the empire.
+ - I concern myself with Venezuela. However, some rightwing movements are transforming me into a pawn in the domestic politics of their countries, by making statements that are groundless.
+ - I shook Obama’s hand and I said, ‘I want to be your friend.’ My hand is still outstretched. I am not Obama’s enemy, but it’s difficult not see imperialism in Washington. Those who don’t see it don’t want to see it, like the ostrich.
+ - I wish Obama would focus on governing the United States and would forget his country’s imperialist pretensions.
+ - For a hundred years we have been one of the largest oil-producing countries in the world but with a 60 percent poverty rate and now we are canceling the historical debt.
+ - Convinced as I am and as I am from my government that the world needs a new moral architecture over all I believe that this should be the first topic to debate in our world of today, ethics, moral.
+ - What they have implanted here, which is really a ‘gringo’ custom, is terrorism. They disguise children as witches and wizards, that is contrary to our culture.
+ - We must reduce the emissions 100 percent. In Venezuela, the emissions are currently insignificant compared to the emissions of the developed countries.
+ - I think developed countries – so-called developed countries – should reflect upon the way of living and the waste of energy.
+ - I haven’t any thirst for revenge.
+ - Even socialist dictators have an interest in gorgeous supermodels.
+ - Uruguay is one of the biggest producers of software. We are breaking with the neoliberal model. We do not believe in free trade.
+ - In the United States, the government is bailing out banks, intervening in the economy, yet in Latin America, the Right continues to talk about ‘free markets.’ It’s totally outdated; they don’t have arguments; they don’t have any sense.
+ - If you get up at three in the morning to go to the bathroom, man, why you have to turn on that little light? Put the torch there on the nightstand.
+ - Every factory must be a school to educate, like Che Guevara said, to produce not only briquettes, steel, and aluminum, but also, above all, the new man and woman, the new society, the socialist society.
+
+68 quotes

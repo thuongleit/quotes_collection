@@ -1,0 +1,29 @@
+ - Knowledge is our most powerful engine of production.
+ - Political Economy or Economics is a study of mankind in the ordinary business of life.
+ - We might as well reasonably dispute whether it is the upper or the under blade of a pair of scissors that cuts a piece of paper, as whether value is governed by demand or supply.
+ - The most valuable of all capital is that invested in human beings.
+ - In common use almost every word has many shades of meaning, and therefore needs to be interpreted by the context.
+ - The love for money is only one among many.
+ - Slavery was regarded by Aristotle as an ordinance of nature, and so probably was it by the slaves themselves in olden time.
+ - Civilized countries generally adopt gold or silver or both as money.
+ - The most reckless and treacherous of all theorists is he who professes to let facts and figures speak for themselves.
+ - Capital is that part of wealth which is devoted to obtaining further wealth.
+ - In every age poets and social reformers have tried to stimulate the people of their own time to a nobler life by enchanting stories of the virtues of the heroes of old.
+ - All wealth consists of desirable things; that is, things which satisfy human wants directly or indirectly: but not all desirable things are reckoned as wealth.
+ - Individual and national rights to wealth rest on the basis of civil and international law, or at least of custom that has the force of law.
+ - Material goods consist of useful material things, and of all rights to hold, or use, or derive benefits from material things, or to receive them at a future time.
+ - Again, most of the chief distinctions marked by economic terms are differences not of kind but of degree.
+ - The price of every thing rises and falls from time to time and place to place; and with every such change the purchasing power of money changes so far as that thing goes.
+ - But if inventions have increased man’s power over nature very much, then the real value of money is better measured for some purposes in labour than in commodities.
+ - Consumption may be regarded as negative production.
+ - In the absence of any short term in common use to represent all desirable things, or things that satisfy human wants, we may use the term Goods for that purpose.
+ - The hope that poverty and ignorance may gradually be extinguished derives indeed much support from the steady progress of the working classes during the 19th century.
+ - Though a simple book can be written on selected topics, the central doctrines of economics are not simple and cannot be made so.
+ - Nature’s action is complex: and nothing is gained in the long run by pretending that it is simple, and trying to describe it in a series of elementary propositions.
+ - And very often the influence exerted on a person’s character by the amount of his income is hardly less, if it is less, than that exerted by the way in which it is earned.
+ - All labour is directed towards producing some effect.
+ - The commercial storm leaves its path strewn with ruin. When it is over there is calm, but a dull, heavy calm.
+ - Producer’s Surplus is a convenient name for the genus of which the rent of land is the leading species.
+ - It is common to distinguish necessaries, comforts, and luxuries; the first class including all things required to meet wants which must be satisfied, while the latter consist of things that meet wants of a less urgent character.
+
+27 quotes

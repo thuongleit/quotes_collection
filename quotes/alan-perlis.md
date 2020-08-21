@@ -1,0 +1,55 @@
+ - C programmers never die. They are just cast into void.
+ - There are two ways to write error-free programs; only the third one works.
+ - A language that doesn’t affect the way you think about programming is not worth knowing.
+ - Syntactic sugar causes cancer of the semicolon.
+ - A year spent in artificial intelligence is enough to make one believe in God.
+ - One man’s constant is another man’s variable.
+ - Fools ignore complexity. Pragmatists suffer it. Some can avoid it. Geniuses remove it.
+ - A good programming language is a conceptual universe for thinking about programming.
+ - When someone says, “I want a programming language in which I need only say what I want done,” give him a lollipop.
+ - Optimization hinders evolution. Everything should be built top-down, except the first time. Simplicity does not precede complexity, but follows it.
+ - FORTRAN is not a flower but a weed – it is hardy, occasionally blooms, and grows in every computer.
+ - It is better to have 100 functions operate on one data structure than to have 10 functions operate on 10 data structures.
+ - Simplicity does not precede complexity, but follows it.
+ - If your computer speaks English, it was probably made in Japan.
+ - You think you KNOW when you learn, are more sure when you can write, even more when you can teach, but certain when you can program.
+ - A programming language is low level when its programs require attention to the irrelevant.
+ - Don’t have good ideas if you aren’t willing to be responsible for them.
+ - LISP programmers know the value of everything and the cost of nothing.
+ - Learning French is trivial: the word for horse is cheval, and everything else follows in the same way.
+ - Some programming languages manage to absorb change, but withstand progress.
+ - In software systems it is often the early bird that makes the worm.
+ - In the long run, every program becomes rococo, and then rubble.
+ - Motto for a research laboratory: what we work on today, others will first think of tomorrow.
+ - Dealing with failure is easy: Work hard to improve. Success is also easy to handle: You’ve solved the wrong problem. Work hard to improve.
+ - Adapting old programs to fit new machines usually means adapting new machines to behave like old ones.
+ - Optimization hinders evolution.
+ - In English every word can be verbed. Would that it were so in our programming languages.
+ - If you have a procedure with 10 parameters, you probably missed some.
+ - It goes against the grain of modern education to teach students to program. What fun is there to making plans, acquiring discipline, organizing thoughts, devoting attention to detail, and learning to be self critical.
+ - In English every word can be verbed.
+ - To understand a program, you must become both the machine and the program.
+ - In man-machine symbiosis, it is man who must adjust: The machines can’t.
+ - One can’t proceed from the informal to the formal by formal means.
+ - In computing, turning the obvious into the useful is a living definition of the word “frustration”.
+ - In programming, as in everything else, to be in error is to be reborn.
+ - In computing, the mean time to failure keeps getting shorter.
+ - Computer Science is embarrassed by the computer.
+ - It is easier to change the specification to fit the program than vice versa.
+ - There is no such thing as a free variable.
+ - Once you understand how to write a program get someone else to write it.
+ - We are on the verge: Today our program proved Fermat’s next-to-last theorem.
+ - When a professor insists computer science is X but not Y, have compassion for his graduate students.
+ - Programmers are not to be measured by their ingenuity and their logic but by the completeness of their case analysis.
+ - If a listener nods his head when you’re explaining your program, wake him up.
+ - One can only display complex information in the mind. Like seeing, movement or flow or alteration of view is more important than the static picture, no matter how lovely.
+ - A picture is worth 10K words – but only those to describe the picture. Hardly any sets of 10K words can be adequately described with pictures.
+ - I think it is inevitable that people program poorly. Training will not substantially help matters. We have to learn to live with it.
+ - We toast the Lisp programmer who pens his thoughts within nests of parentheses.
+ - The computing field is always in need of new cliches.
+ - You can measure a programmer’s perspective by noting his attitude on the continuing vitality of FORTRAN.
+ - Every reader should ask himself periodically “Toward what end, toward what end?” – but do not ask it too often lest you pass up the fun of programming for the constipation of bittersweet philosophy.
+ - Often it is the means that justify the ends: goals advance technique and technique survives even when goal structures crumble.
+ - Is it possible that software is not like anything else, that it is meant to be discarded: that the whole point is to always see it as a soap bubble?
+
+53 quotes

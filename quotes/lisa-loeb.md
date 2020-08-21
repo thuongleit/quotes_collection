@@ -1,0 +1,58 @@
+ - Don’t force things to happen. You can work towards things and keep yourself open to things, people, and opportunities, but you can’t and shouldn’t try to control everything. Also, if you haven’t noticed so far, I think sleep is really important.
+ - There are many different ways to look at a situation, and it’s important to look at things the way they are.
+ - When someone asks if you’d like cake or pie, why not say you want cake and pie?
+ - My overnight success was really 15 years in the making. I’d been writing songs since I was 6 and playing in bands and performing since I was 14.
+ - I think that I’m throwing but I’m thrown.
+ - Yeah, well, food is always a part of everything.
+ - I have so much joy in my life. I love my husband and kids so much. So much love. I’m also more focused now on spending more time at home and in town instead of going on tour. Because of that nesting, I find that I’m even more into writing and creating.
+ - You are the treasure custodian, cleaning the moon for me, scouring the sky so the stars would shine bright.
+ - The time between meeting, and finally leaving is sometimes called falling in love.
+ - The song “No Fairy Tale” tells my story. Going through the hard things leads to a richer life than just trying to make everything perfect, or worse, pretending things are good when they don’t feel right. I’ve done that more than enough times.
+ - You tried to hide between the lines of a story never told.
+ - The smell of roses, my children’s bright eyes and smiles, laughing with my husband, walking on the beach, using my hands to do crafts or play guitar, brainstorming, and drinking coffee, really good coffee. All this makes me come alive.
+ - It’s really hard to balance work and being a mother.
+ - There’s a variety and depth to the song topics I get to write about in children’s music and books: being able to write about things I wouldn’t normally write about, like a disappointing pancake, or monsters or opposite day is really different than writing about heartbreak and relationships.
+ - In order to handle my emotional pain I talk to friends about it, I write, I breathe, and most of all, I put it in perspective.
+ - I have many memories of waking up to eat breakfast that my mother carefully prepared for us and her saying, what do y’all want for lunch, and as we’re eating lunch, what do y’all want for dinner? It’s always about the next meal.
+ - My nutritionist always said to eat whatever you want.
+ - I use my cell phone as much as I can – I talk to friends all the time. I’m like 2,000 hours a month. It’s crazy.
+ - I have three siblings. My sister makes music. My older brother is a classical conductor, and my younger brother is a mixing engineer.
+ - The moon shines for you.
+ - They rise in the morning, and they sleep in the dark. And even though nobody’s looking, she’s falling apart.
+ - The guys in my band are great-we watch movies, we eat pizza, take walks, read books. Everybody has a really great sense of humor. And my boyfriend comes and visits me on the road.
+ - When I was a kid, for me, the ’60s seemed so far away. But I was actually born in the late ’60s.
+ - I try to get enough sleep and exercise, try not to make mountains out of molehills, and vent a lot. I have a good team to support my work. I also do lots of mundane things, which will center me.
+ - I think a good mom is an awake mom. At least for me, I’ve always been a kinder, better person awake than sleep-deprived!
+ - As a musician, you never understand why people connect with certain songs.
+ - Also, I’m always learning better and better how to prioritize and how to leave certain things for the next day.
+ - I eat fish and love bacon. Plus, I don’t mind if soups are made with chicken or beef stock, I just don’t like eating big pieces of meat.
+ - I make sure to sleep eight hours, and I’m much better about eating, because I’m not standing in front of my pantry. I go to the market and pick up little carrot nubs.
+ - I’m old-school. I want to be there to drop off my daughter at school and pick her up.
+ - One of the things that’s influenced me musically was my experience at Brown University. I was surrounded by musicians that I really admired, and felt challenged to come up with music, lyrics, and recordings that stood up to the expectations of those musicians and myself.
+ - You should try to get what you want in life and try not to be limited.
+ - Too much to ask for may leave me feeling lonely. Too little leaves me nothing.
+ - The only way to get vegetables at a diner late night is to order the omelette. A feta cheese and broccoli omelette.
+ - I love when people in culture show up on fictional TV shows. I don’t mind at all being a name from the ’90s.
+ - With my daughter, we do arts and crafts, we read a lot, we listen to music, and we cut the strings off balloons and bounce them around after birthday parties.
+ - Some people train for certain sports and I want to train to be able to hold a super heavy electric guitar and carry luggage around myself because I always have to have 7,000 pairs of shoes. Who cares about sports?
+ - Ive learned from dieting and not dieting that literally the thing that works best for me is that if I think of it, I better go ahead and have it.
+ - With all the things that you could be, you never could learn how to be me.
+ - I always wanted to make a children’s album because you have the freedom to explore so many wonderful topics and sounds.
+ - The shows are so different from each other, depending on whether I play with my band, Nine Stories, other musicians, an orchestra, only one or two members of my band.
+ - Sometimes you tell the truth like you’re pulling taffy.
+ - Stop fighting. Everyone’s a person too. And take care of the Earth, please.
+ - I walked away to get wisdom, but in the end I just walked home.
+ - Dweezil and I are going on tour with the band probably starting in the middle of February for a month probably playing a few songs from my new record and then I’ll continue on after that tour.
+ - Where I grew up in Dallas, things might be a little more traditional. People have the same things in mind. They’re supposed to grow up, go to college, get a job, get married, and have children, grandchildren. That’s the world I grew up in.
+ - If we all leap before we crawl, we might fall.
+ - I’m making a record that’s half stripped down acoustic which is the way I perform a lot and half of it is very produced. It’s really hard to keep music simple but I was trying to keep it simple and focus on one or two instruments and vocals.
+ - You get to a point in relationships where you don’t want to push anything, but things need to change, move on, or develop.
+ - I don’t think I can tell any stories about how I lived in a van in Alaska. I grew up in the suburbs, I even had my own room. We weren’t poor. Everything was very normal.
+ - When all the stars were falling, they fell from above, and I thought of hate, and I thought of hate, and then I thought of love.
+ - Again, I’m used to speaking to a lot of people; I have a lot of friends and family, and I perform music and speak in front of a lot of crowds. So I share with people already a lot in my life.
+ - I learn so much from writing with other musicians, asking questions about their playing style and gear, and hanging out, too.
+ - I don’t use simple words. I make games and puzzles with my songs.
+ - I grew up with family who liked to travel and sightsee, so I have this pressure inside me: If I’m in a city and I have enough free time, I’d better go to a museum. I try to see parks, go outside. Or else try to feel really normal like go to Target or a drugstore, or go see a movie.
+ - I think people are always nostalgic for a time about 20 years before they were born.
+
+56 quotes

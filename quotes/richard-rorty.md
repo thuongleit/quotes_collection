@@ -1,0 +1,33 @@
+ - Truth is a property of sentences, since sentences are dependent for their existence upon vocabularies, and since vocabularies are made by human beings, so are truths.
+ - Freedom is the recognition of contingency.
+ - The world is out there, but descriptions of the world are not.
+ - There is nothing deep down inside us except what we have put there ourselves.
+ - You read the pragmatists and all you know is: not Descartes, not Kant, not Plato. It’s like aspirin. You can’t use aspirin to give yourself power, you take it to get rid of headaches. In that way, pragmatism is a philosophical therapy. It helps you stop asking the unhelpful questions.
+ - Every government, left or right, always engages in moral crusades. What else are they supposed to do? Especially when they make war; any war has to be a moral crusade.
+ - We are equal inhabitants of a paradise of individuals in which everybody has the right to be understood.
+ - Truthfulness under oath is, by now, a matter of our civic religion, our relation to our fellow citizens rather than our relation to a nonhuman power.
+ - At 12, I knew that the point of being human was to spend one’s life fighting social injustice.
+ - Truth is what your contemporaries let you get away with.
+ - National pride is to countries what self-respect is to individuals: a necessary condition for self-improvement.
+ - Truth is simply a compliment paid to sentences seen to be paying their way.
+ - If the body had been easier to understand, nobody would have thought that we had a mind.
+ - All human relations untouched by love take place in the dark.
+ - Academic disciplines are subject to being overtaken by attacks of “knowingness”- a state of mind and soul that prevents shudders of awe and makes one immune to enthusiasm.
+ - Philosophy makes progress not by becoming more rigorous but by becoming more imaginative.
+ - Always strive to excel, but only on weekends.
+ - The usual picture of Socrates is of an ugly little plebeian who inspired a handsome young nobleman to write long dialogues on large topics.
+ - What counts as rational argumentation is as historically determined and as context-dependent, as what counts as good French.
+ - To abjure the notion of the truly human is to abjure the attempt to divinize the self as a replacement for a divinized world.
+ - Had there been no Plato, the Christians would have had a harder time selling the idea that all God really wanted from us was fraternal love.
+ - Open-mindedness should not be fostered because, as Scripture teaches, Truth is great and will prevail, nor because, as Milton suggests, Truth will always win in a free and open encounter. It should be fostered for its own sake.
+ - The world does not speak. Only we do. The world can, once we have programmed ourselves with a language, cause us to hold beliefs. But it cannot propose a language for us to speak. Only other human beings can do that.
+ - My sense of the holy is bound up with the hope that some day my remote descendants will live in a global civilization in which love is pretty much the only law.
+ - If I had to lay bets, my bet would be that everything is going to go to hell, but, you know, what else have we got except hope?
+ - I think that a good Left is a party that always thinks about the future and doesn’t care much about our past sins.
+ - What sort of world can we prepare for our great grandchildren?
+ - The most important advance that the West has yet made is to develop a secularist moral tradition.
+ - I think you can have a Left that isn’t culturally conservative talking about lunch-bucket issues.
+ - Well, what there ought to be is an international labor organization, a confederation of the trade unions of all the countries speaking for the workers who are competing with one another, and talking about the difference in wage levels between, say, Europe and Indonesia.
+ - I think of an intellectual as just being bookish, being interested in history books, utopian ideas, that kind of thing.
+
+31 quotes

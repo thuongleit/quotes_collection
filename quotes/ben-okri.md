@@ -1,0 +1,62 @@
+ - The most authentic thing about us is our capacity to create, to overcome, to endure, to transform, to love and to be greater than our suffering.
+ - Beware of the stories you read or tell; subtly, at night, beneath the waters of consciousness, they are altering your world.
+ - One of the greatest gifts my father gave me – unintentionally – was witnessing the courage with which he bore adversity.
+ - The fact of storytelling hints at a fundamental human unease, hints at human imperfection. Where there is perfection there is no story to tell.
+ - Don’t despair too much if you see beautiful things destroyed, if you see them perish. Because the best things are always growing in secret.
+ - Magic becomes art when it has nothing to hide.
+ - When you can imagine you begin to create and when you begin to create you realize that you can create a world that you prefer to live in, rather than a world that you’re suffering in.
+ - Stories are the secret reservoir of values: change the stories individuals and nations live by and tell themselves, and you change the individuals and nations.
+ - Creativity is the art of the impossible.
+ - The law is simple. Every experience is repeated or suffered till you experience it properly and fully the first time.
+ - Without stories we would go mad. Life would lose its moorings or lose its orientations. even in silence we are living our stories.
+ - Destiny plans a different route and fulfills the dream in ways we couldn’t have expected.
+ - Reading, like writing, is a creative act. If readers only bring a narrow range of themselves to the book, then they’ll only see their narrow range reflected in it.
+ - Stories can conquer fear, you know. They can make the heart bigger.
+ - Don’t neglect the gold in your own back yard.
+ - In the beginning there was a river. The river became a road and the road branched out to the whole world. And because the road was once a river it was always hungry.
+ - We have not yet arrived, but every point at which we stop requires a re-definition of our destination.
+ - We can redream this world and make the dream come real. Human beings are gods hidden from themselves.
+ - I’m fascinated by the mysterious element that runs through our lives. Everyone is looking out of the world through their emotion and history. Nobody has an absolute reality.
+ - This earth that we live on is full of stories in the same way that, for a fish, the ocean is full of ocean. Some people say when we are born we’re born into stories. I say we’re also born from stories.
+ - The best writing is not about the writer, the best writing is absolutely not about the writer, it’s about us, it’s about the reader.
+ - You are a mischievous one. You will cause no end of trouble. You have to travel many roads before you find the river of your destiny. This life of yours will be full of riddles. You will be protected and you will never be alone.
+ - We can still astonish the gods in humanity And be the stuff of future legends, If we but dare to be real, And have the courage to see That this is the time to dream The best dream of them all.
+ - The magician and the politician have much in common: they both have to draw our attention away from what they are really doing.
+ - I held you in the square And felt the evening Re-order itself around Your smile.
+ - This is what you must be like. Grow wherever life puts you down.
+ - A man must be able to hold his drink because drunkenness is sometimes necessary in this difficult life.
+ - What you see is what you make. What you see in a people is what you eventually create in them.
+ - People are as healthy and confident as the stories they tell themselves.
+ - Our time here is magic! It’s the only space you have to realize whatever it is that is beautiful, whatever is true, whatever is great, whatever is potential, whatever is rare, whatever is unique, in. It’s the only space.
+ - To sustain your belief through situations that completely undermine it is quite something.
+ - To anyone who is homeless, I say, find a home.
+ - I am not fighting for success, just to get more beauty out of myself and share it with more people.
+ - We are living in enchanted time. With our spirits right.
+ - Maybe there are only three kinds of stories: those we live, those we tell, and those that help our souls fly upwards to a greater life.
+ - The strange thing about Africa is how past, present and future come together in a kind of rough jazz, if you like.
+ - When chaos is the god of an era, clamorous music is the deity’s chief instrument.
+ - I learned that life will go through changes – up and down and up again. It’s what life does.
+ - A man’s greatest battles are the ones he fights within himself.
+ - Don’t read what everyone else is reading. Check them out later, cautiously.
+ - The greatest religions convert the world through stories.
+ - Literature doesn’t have a country. Shakespeare is an African writer. His Falstaff, for example, is very African in his appetite for life, his largeness of spirit. The characters of Turgenev are ghetto dwellers. Dickens characters are Nigerians.
+ - If we could be pure dancers in spirit we would never be afraid to love, and we would love with strength and wisdom.
+ - Who knows, maybe this whole planet is an asylum, a penal realm. A place for hard cases.
+ - If you are working in an office, where do you find the time to write a novel? But you can finish a short story in five pages. Furthermore, a short story is a perfect place to learn the craft.
+ - There ought to be three traditions in the art of humanity: the realistic, the visionary and the wild.
+ - Ghetto-dwellers are the great fantasists. There was an extraordinary vibrancy there, an imaginative life. When you are that poor, all you’ve got left is your belief in the imagination.
+ - An inner darkness is darker than an outer darkness.
+ - I went to London because, for me, it was the home of literature. I went there because of Dickens and Shakespeare.
+ - The acknowledged legislators of the world take the world as given. They dislike mysteries, for mysteries cannot be coded, or legislated, and wonder cannot be made into law. And so these legislators police the accepted frontiers of things.
+ - Painters ought to be mute. Speech is the enemy of expression.
+ - The higher the artist, the fewer the gestures. The fewer the tools, the greater the imagination. The greater the will, the greater the secret failure.
+ - When you stop inventing reality then you see things as they really are.
+ - I was going to be a scientist.
+ - I’m conscious of a series of circles working its way through my life. And at this particular moment I have come round to the beginning of my writing cycle. It begins with poetry. There’s hardly a day that goes past on which I don’t write poetry.
+ - Wholeness is the enemy of the artist. We ought to be broken, ruined in some way.
+ - I know that human beings are capable of anything.
+ - We have fallen into this very mean description of humanity. Naturalism in fiction is too reductive in its definition of human beings.
+ - I was told stories, we were all told stories as kids in Nigeria. We had to tell stories that would keep one another interested, and you weren’t allowed to tell stories that everybody else knew. You had to dream up new ones.
+ - If we are true, if we can love, if we have vision, if we can have courage, we can, we should, we ought to, we will...
+
+60 quotes

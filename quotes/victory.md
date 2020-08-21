@@ -1,0 +1,42 @@
+ - No victory without suffering. ~~J. R. R. Tolkien
+ - Victory comes from finding opportunities in problems. ~~Sun Tzu
+ - There’s no reward without work, no victory without effort, no battle won without risk. ~~Nora Roberts
+ - Without training, they lacked knowledge. Without knowledge, they lacked confidence. Without confidence, they lacked victory. ~~Julius Caesar
+ - Today is a new day, so rise up and move forward into the victory God has prepared for you! ~~Joel Osteen
+ - All men have fears, but the brave put down their fears and go forward, sometimes to death, but always to victory. ~~Dale Carnegie
+ - Victory is not the absence of problems, it is the presence of power. ~~Joyce Meyer
+ - The will to conquer is the first condition of victory. ~~Ferdinand Foch
+ - Preparedness is the key to success and victory. ~~Douglas MacArthur
+ - So a military force has no constant formation, water has no constant shape: the ability to gain victory by changing and adapting according to the opponent is called genius. ~~Sun Tzu
+ - The more difficult the victory, the greater the happiness in winning. ~~Pelé
+ - It’s always darkest before the dawn. The bigger your challenge, the closer you are to your victory. ~~Joel Osteen
+ - Big things are built one brick at a time. Victories are achieved one choice at a time. A life well lived is chosen one day at a time. ~~Lysa TerKeurst
+ - The more you talk about negative things in your life, the more you call them in. Speak victory not defeat. ~~Joel Osteen
+ - To conquer oneself is the best and noblest victory; to be vanquished by one’s own nature is the worst and most ignoble defeat. ~~Plato
+ - Without victory there is no survival! ~~Winston Churchill
+ - True strength is not always shown through victory. Stand up, try again and display strength of heart. ~~Rickson Gracie
+ - After victory, tighten the cords of your helmet. ~~Ieyasu Tokugawa
+ - Carry the burden smilingly and cheerfully, because patience is the key to victory. ~~Rumi
+ - I do not steal victory. ~~Alexander the Great
+ - The aim of argument, or of discussion, should not be victory, but progress. ~~Joseph Joubert
+ - There is only one decisive victory: the last. ~~Carl von Clausewitz
+ - On the plains of hesitation lie the blackened bones of countless millions who at the dawn of victory lay down to rest, and in resting died. ~~Adlai E. Stevenson II
+ - So that his place shall never be with those cold and timid souls who knew neither victory nor defeat. ~~Theodore Roosevelt
+ - Achievers can almost literally taste success because they imagine their goals in such vivid detail. Setbacks only seem to add spice and favor to the final taste of victory. ~~Denis Waitley
+ - Don’t let your victories go to your head, or your failures go to your heart. ~~Bill Cosby
+ - The negative principle negates. The positive principle creates. The negative principle doubts. The positive principle believes. The negative principle accepts defeat. The positive principle goes for victory. ~~Norman Vincent Peale
+ - Send your life to a whole new level! Zip up the negative words and start speaking faith and victory into your future. ~~Joel Osteen
+ - Even the smallest victory is never to be taken for granted. Each victory must be applauded... ~~Audre Lorde
+ - If you argue and rankle and contradict, you may achieve a victory sometimes; but it will be an empty victory because you will never get your opponent’s good will. ~~Dale Carnegie
+ - God has destined you to soar. You have victory, freedom and excellence on the inside. ~~Joel Osteen
+ - When you walk with Jesus, defeat turns into victory. ~~Beth Moore
+ - Celebrate even small victories. ~~H. Jackson Brown Jr.
+ - My greatest victory has been to be able to live with myself, to accept my shortcomings. I’m a long way from the human being I’d liked to be, but I’ve decided I’m not so bad after all. ~~Audrey Hepburn
+ - If this is victory, then our hands are too small to hold it. ~~J. R. R. Tolkien
+ - God is with you, and He’ll help you make spiritual progress-strengthening and encouraging you to keep on keeping on during rough times. It’s easy to quit, but it takes faith to press on to victory. ~~Joyce Meyer
+ - When all the world is overcharged with inhabitants, then the last remedy of all is war, which provideth for every man, by victory or death. ~~Thomas Hobbes
+ - I glory in conflict that I may hereafter exult in victory. ~~Frederick Douglass
+ - But it was alright, everything was alright, the struggle was finished. He had won the victory over himself. He loved Big Brother. ~~George Orwell
+ - When I read the Bible, I see that we should have victory in our life and be overcomers, and I can’t even control my temper. I’m impatient. I’m hard to get along with. I’m selfish and self-centered, and I don’t seem to have any control over it. ~~Joyce Meyer
+
+40 quotes

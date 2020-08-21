@@ -1,0 +1,55 @@
+ - You are not Atlas carrying the world on your shoulder. It is good to remember that the planet is carrying you.
+ - The liberation of the earth, the liberation of women, the liberation of all humanity is the next step of freedom we need to work for, and it’s the next step of peace that we need to create.
+ - Soil, not oil, holds the future for humanity.
+ - The abuse of the Earth is the ecological crisis.
+ - Earth Democracy connects people in circles of care, cooperation, and compassion instead of dividing them through competition and conflict, fear and hatred.
+ - Although two thirds of our planet is water, we face an acute water shortage. The water crisis is the most pervasive, most severe, and most invisible dimension of the ecological devastation of the earth.
+ - Genetic engineering has never been about saving the world, it’s about controlling the world.
+ - In traditional agriculture, the soil is the mother. She’s the mother who gives, to whom you must give back.
+ - It’s not an investment if its destroying the planet.
+ - Ecofeminism is a good term for distinguishing a feminism that is ecological from the kind of feminisms that have become extremely technocratic. I would even call them very patriarchal.
+ - Uniformity is not nature’s way; diversity is nature’s way.
+ - In nature’s economy the currency is not money, it is life.
+ - Food is the place where you begin.
+ - That amazing power of being able to stand with total courage in the face of total power and not be afraid. That is stri shakti.
+ - We are either going to have a future where women lead the way to make peace with the Earth or we are not going to have a human future at all.
+ - An organic farmer is the best peacemaker today, because there is more violence, more death, more destruction, more wars, through a violent industrial agricultural system. And to shift away from that into an agriculture of peace is what organic farming is doing.
+ - Everything I need to know I learned in the forest.
+ - Seed is not just the source of life. It is the very foundation of our being.
+ - When you control seed you control food.
+ - I think what we owe each other is a celebration of life and to replace fear and hopelessness with fearlessness and joy.
+ - The time has come to reclaim the stolen harvest and celebrate the growing and giving of good food as the highest gift and the most revolutionary act.
+ - The end of consumerism and accumulation is the beginning of the joy of living.
+ - The art of teaching is clarity and the art of learning is to listen.
+ - Whatever happens to seed affects the web of life.
+ - Whenever we engage in consumption or production patterns which take more than we need, we are engaging in violence.
+ - Water must be free for sustenance needs. Since nature gives water to us free of cost, buying and selling it for profit violates our inherent right to nature’s gift and denies the poor of their human rights.
+ - Globalisation has in effect made the citizen disappear, and it has reduced the state into being a mere instrument of global capital.
+ - We’ve moved from wisdom to knowledge, and now we’re moving from knowledge to information, and that information is so partial – that we’re creating incomplete human beings.
+ - Cultivating and conserving diversity is no luxury in our times: it is a survival imperative.
+ - We share this planet, our home, with millions of species. Justice and sustainability both demand that we do not use more resources than we need.
+ - My mother taught that if anyone needs you, you should be available to them.
+ - As usual, in every scheme that worsens the position of the poor, it is the poor who are invoked as beneficiaries.
+ - We’re still eating the leftovers of World War II.
+ - The Chipko activists have always been close to my parents, since my father was among the few forestry officials who supported them within the bureaucracy. And I was involved with the Chipko movement in my student days.
+ - I like to live my life so that my loved ones give me the things I need as gifts and I give them the things they need. Frankly a society built around consumerism is hell.
+ - The system of seeds based on monoculture is wrong and inappropriate. The biodiverse system has produced more food, and biodiversity means that seeds must be in the hands of farmers.
+ - I do not allow myself to be overcome by hopelessness, no matter how tough the situation. I believe that if you just do your little bit without thinking of the bigness of what you stand against, if you turn to the enlargement of your own capacities, just that itself creates new potential.
+ - You cannot insert a gene you took from a bacteria into a seed and call it LIFE. You have not created life, instead you have only polluted it.
+ - Nature shrinks as capital grows. The growth of the market cannot solve the very crisis it creates.
+ - When it comes to owning the seed for collecting royalties, the GMO companies say, ‘it’s mine.’ But when it comes to contamination, cross-pollination, health problems, the response is we’re not liable.
+ - The only way to build hope is throuhgh the Earth.
+ - Amory Lovins has said that the only reason Americans look efficient is that each has 300 energy slaves. Those 300 energy slaves will now be reproduced among the elite of India.
+ - The best and most evolved technologies are those that do not destroy the very base on which we live.
+ - If you are doing the right thing for the earth, she’s giving you great company.
+ - The fact that I still find so much beauty in a handicraft is because my mother taught us to see not just the craft as a product but the craft as an embodiment of human creativity and human labor.
+ - We will either defend the rights of people and the earth, and for that we have to dismantle the rights that corporations have assigned to themselves, or corporations will in the next three decades destroy this planet, in terms of human possibilities.
+ - In the seed and the soil, we find the answers to every one of the crises we face. The crises of violence and war. The crises of hunger and disease. The crisis of the destruction of democracy.
+ - We must occupy the food system to create food democracy.
+ - We have managed to make the celebration of diversity our mode of resistance.
+ - Squeezing the lives of people is now being proposed as the saviour of the planet. Through the green economy an attempt is being made to technologise, financialise, privatise and commodify all of the earth’s resources and living processes.
+ - We are in a strange kind of time, where the kind of liberation movements such as anti-apartheid movements and freedom struggles in India need to be reinvented. We need to retool them so that all the gains that our generation has made can be passed on to future generations.
+ - Unless the poor of the world agitate for themselves to be heard, there will be no changes in their circumstances.
+ - It is often too late by the time the government reacts.
+
+53 quotes

@@ -1,0 +1,38 @@
+ - Don’t ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.
+ - Ask yourself what makes you come alive.
+ - There are two questions that we have to ask ourselves. The first is ‘Where am I going?’ and the second is ‘Who will go with me?’
+ - In the stillness of the quiet, if we listen, we can hear the whisper of the heart giving strength to weakness, courage to fear, hope to despair.
+ - In whatever sense this year is a new year for you, may the moment find you eager and unafraid, ready to take it by the hand with joy and gratitude.
+ - There is something in every one of you that waits and listens for the sound of the genuine in yourself. It is the only true guide you will ever have. And if you cannot hear it, you will all of your life spend your days on the ends of strings that somebody else pulls.
+ - Growth always involves the risk of failure.
+ - A dream is the bearer of a new possibility, the enlarged horizon, the great hope.
+ - Listen to the long stillness: New life is stirring New dreams are on the wing New hopes are being readied: Humankind is fashioning a new heart Humankind is forging a new mind God is at work. This is the season of Promise.
+ - If a man knows precisely what he can do to you or what epithet he can hurl against you in order to make you lose your temper, your equilibrium, then he can always keep you under subjection.
+ - He who fears is literally delivered to destruction.
+ - To love is to make of one’s heart a swinging door.
+ - A bigot is a person who makes an idol of his commitments.
+ - It cannot be denied that too often the weight of the Christian movement has been on the side of the strong and the powerful and against the weak and oppressed-this, despite the gospel.
+ - Perfect love is long delayed.
+ - Often, to be free means the ability to deal with the realities of one’s own situation so as not to be overcome by them.
+ - Christmas is waiting to be born: in you, in me, in all mankind.
+ - Do not be silent; there is no limit to the power that may be released through you.
+ - Fate is the raw materials of experience. They come uninvited and often unanticipated. Destiny is what a man does with these raw materials.
+ - At the core of life is a hard purposefulness, a determination to live.
+ - Whatever may be the tensions and the stresses of a particular day, there is always lurking close at hand the trailing beauty of forgotten joy or unremembered peace.
+ - There must be always remaining in every life, some place for the singing of angels, some place for that which in itself is breathless and beautiful.
+ - There were long stretches where each of us was engaged in a private world of rapidly shifting vignettes. Always I was overwhelmed by the sheer number of human beings ebbing and flowing like the tides of the sea.
+ - Community cannot for long feed on itself; it can only flourish with the coming of others from beyond, their unknown and undiscovered brothers.
+ - There is something in every one of you that waits and listens for the sound of the genuine in yourself.
+ - Jesus rejected hatred because he saw that hatred meant death to the mind, death to the spirit, and death to communion with his Father. He affirmed life; and hatred was the great denial.
+ - Christmas is a mood, a quality, a symbol. It is never merely a fact.
+ - Follow the grain in your own wood...
+ - The measure of a man’s estimate of your strength is the kind of weapons he feels that he must use in order to hold you fast in a prescribed place.
+ - Twilight – a time of pause when nature changes her guard. All living things would fade and die from too much light or too much dark, if twilight were not.
+ - During times of war, hatred becomes quite respectable even though it has to masquerade often under the guise of patriotism.
+ - What the world need is people who have come alive.
+ - And this is the strangest of all paradoxes of the human adventure; we live inside all experience, but we are permitted to bear witness only to the outside. Such is the riddle of life and the story of the passing of our days.
+ - Life wears down the edges of the mind.
+ - Commitment means that it is possible for a man to yield the nerve center of his consent to a purpose or cause, a movement or an ideal, which may be more important to him than whether he lives or dies.
+ - What I have written is but a fleeting intimation of the outside of what one man sees and may tell about the path he walks. No one shares the secret of a life; no one enters into the heart of the mystery.
+
+36 quotes

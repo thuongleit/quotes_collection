@@ -1,0 +1,52 @@
+ - When someone says you can’t do what you know you can do, then you can’t do anything.
+ - I encourage you to stop saying, “I just want to look not so bad” and instead say, “I want to look fabulous.”
+ - If you feel something in your heart, if you have a vision for it, then it’s no longer a risk.
+ - Color is like food for the spirit – plus it’s not addictive or fattening.
+ - Style makes you feel great because it takes your mind off the fact that you’re going to die.
+ - I equate peonies with love because they’re the first blooms of summer.
+ - A mutt is couture-it’s the only one like it in the world, made especially for you.
+ - Even though I grew up as a Sephardic Jew in Brooklyn where we ate Syrian food and went to temple, it was still America.
+ - 50s cheesecake meets Eskimo fake fur.
+ - The reason people like to watch ball games is because they don’t really know exactly what’s going to happen from moment to moment. That’s why you watch the entire thing.
+ - Remember this: No one is looking at your imperfections; they’re all too busy worrying about their own.
+ - I’m all about exuberance. We only have one short life to live, and we shouldn’t waste it being tasteful.
+ - You can’t be melancholy in fashion because people don’t respond to it.
+ - How do I do it? I don’t know how I wouldn’t do it-that’s the thing.
+ - If I just do it, it will take less time than telling someone what I’m thinking, and have them free associate, and then come back to me and I’ll hate it and I’ll have to redo it.
+ - I don’t want to offend people.
+ - There’s no reason for unhappiness if you’re living with nice design.
+ - There are so many images out there, so many clothes out there, and the only ones that look interesting to me are the ones that look slightly mistaken.
+ - Flirting is conversational chemistry.
+ - I’m so involved in melancholy.
+ - I’d love to talk to Joaquin Phoenix because he’s a very private guy. Also, he’s creating a new kind of sexy leading man. To me, his face is new and might be legendary someday.
+ - I have a lot of obligations.
+ - All I want are high heels, high heels. If I was a girl, I’d wear a lot of high heels. High, stiletto heels.
+ - I think that 60 percent of inspiration is organization.
+ - The Moon is such a planet I can’t even stand it.
+ - I’m not trying to be the next Joan Rivers.
+ - Half the time I don’t even think about it, I just throw something on because I’m so late or so busy.
+ - When people ask, Do you like children? I always say, I like some children, yes. Some children I don’t like.
+ - A bathroom should be sterile and beautiful and functional. It should exude Japanese-style purity.
+ - I’d love to talk to Angelina Jolie. On my show I would love her because she’s a mysterious, mysterious figure.
+ - You know what makes me teary? Goya. Goya makes me cry.
+ - Sometimes I’m really dressed up, and it really turns me on.
+ - In Paris, it used to feel like you were living in a museum. As beautiful as it was, it’s still limited. But here you have just everything.
+ - A gift to mankind; the next Elizabeth Taylor in the making.
+ - You know who a role model for me is? George Ballanchine.
+ - It’s no wonder we know how to dress; we’ve spent centuries in closets.
+ - You listen to Handel operas, right? And there are a thousand of them, right? And they all sound alike. If I look back on my work, maybe it’s the same thing.
+ - This is what I like about being a designer: You can’t really get it until you see it.
+ - The last thing I want to become is one of those talking heads where everything is satiny smooth and you know what the next question is going to be.
+ - What you do, you don’t think of as a product.
+ - You don’t necessarily live for the moment; you live for hope-what you’re going to get, what you’re going to say, what you’re going to think.
+ - To me, you can’t have style without being inspired. When I design a collection, I am inspired by so many things. The color of a flower. The shape of a butterly’s wing. The juxtaposition of an old tenement building next to a shiny new skyscraper.
+ - You’re not working with models, you’re working with real women who have, like, anatomy. Models do not have anatomy.
+ - If you try to have a fashion show with Bach fugues and John Coltrane, it doesn’t really work.
+ - Just when I think I hate fashion, I hate clothes, I’m seized by this crazy thing that I have to do. I have this little studio now where I just draw. I can be in the room for three days and not even look up.
+ - What if Woody Allen called me and said, I’m working on this movie and there’s a really divine role for you. We want exactly you! It would be such a fantasy. Forget it! My idol, Woody Allen!
+ - People say it’s really the press who create those soundbites about fashion. That’s what sells magazines and clothes.
+ - Most of my life I was occupied with American television and American food. My ethnicity was my choice. It still is.
+ - The more relaxed you can get, the better you’ll do.
+ - I don’t like people to feel completely described by the clothes they wear of mine. I want them to feel that they’re describing themselves.
+
+50 quotes

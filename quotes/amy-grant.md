@@ -1,0 +1,78 @@
+ - More important than talent, strength, or knowledge is the ability to laugh at yourself and enjoy the pursuit of your dreams.
+ - Without black, no color has any depth. But if you mix black with everything, suddenly there’s shadow – no, not just shadow, but fullness. You’ve got to be willing to mix black into your palette if you want to create something that’s real.
+ - Every good relationship, especially marriage, is based on respect. If it’s not based on respect, nothing that appears to be good will last very long.
+ - The great thing about a song is that no one has to know your story. But if you tell it in a way that has clarity and means something to somebody else, then it can apply to their story.
+ - Rich Mullins was the uneasy conscience of Christian music. He didn’t live like a star. He’d taken a vow of poverty so that what he earned could be used to help others.
+ - People are going to come into your life that need you, and being there for them makes the day worth living. People are going to come into your life that you need, and that’s the really crazy thing.
+ - The more time you invest in a marriage, the more valuable it becomes.
+ - I’m frustrated by something, it’s my fault for exposing myself to it in the first place. The rumor mill always seemed like a grass fire to me. Why walk out in the middle of the field, it’s just going to flame out and go away just like everything else does?
+ - I have spent probably years of time waiting in studio lounges – waiting on a mix, waiting on my time to sing, waiting on, waiting on, waiting on. That’s just the nature of life.
+ - Get outside. Watch the sunrise. Watch the sunset. How does that make you feel? Does it make you feel big or tiny? Because there’s something good about feeling both.
+ - I think that if my kids are completely convinced of God’s unfailing love for them, whether they fail or not, they’ll have confidence to persevere in life.
+ - I think what I mostly realize is just that life is unpredictable. So don’t be afraid, but just enjoy the day you’re in. Really make the most of it.
+ - Love’s for fools wise enough to take a chance.
+ - But my experience is that people who have been through painful, difficult times are filled with compassion.
+ - I did the best I could, and in some arenas, my best was not good enough. I’ve made some bad choices.
+ - How we absorb music is unique. I know what I do. When I’m listening to music, I tend to find myself in a song. That’s what really makes you connect is if you feel what that song is saying.
+ - Its true. Im a simple person. Some people tend to live from trauma to trauma, and that energizes them. I have a hectic schedule, but my mind seeks simplicity – like being in nature, a long bike ride, or sitting on the back porch.
+ - I think for a woman, the hardest thing about growing old is becoming invisible. There’s something very front and center about being young.
+ - I had the great advantage of a mother who used to tell me the most beautiful years of a woman’s life are ages 35 to 45.
+ - If I had my life to live over again, I’d run barefoot, relax a bit more, I’d talk more to children, and I’d learn how they laugh.
+ - You do your best, you do all this stuff, but the only thing that counts is faith expressing itself through love.
+ - To me, the real thrill is in making the music, and then I just trust it to find its own audience, and at times it’s big and at times it’s small, but that’s beyond my control.
+ - I can look at the future with anticipation. And it’s comforting to know that someday, as Christians, we’ll be able to look back and have a little more clarity on why certain things in life happened.
+ - If a politician isn’t doing it to his wife, then he’s doing it to his country.
+ - All I ever have to be is what you made me.
+ - Life goes by really fast, and it seems that there are times when you’re burying a lot of friends and family. And then there are times that feel really precious and everybody is doing okay. This is one of those times.
+ - If it all just happened overnight, you would never learn to believe in what you cannot see...
+ - Everybody needs a helping hand, take a look at your fellow man.
+ - Do I think all contemporary Christian music is good? No.
+ - There’s a beauty to wisdom and experience that cannot be faked. It’s impossible to be mature without having lived.
+ - I count myself really fortunate that I have some lifelong friends. The best thing about a friend is when you are being your own worst enemy a friend can help snap you out of it.
+ - The same rain that drowns the rat will grow the hay.
+ - I need music like I need water.
+ - I refuse to believe that we’re only here to live and die.
+ - I’m going to live what I believe.
+ - Life is a process, and you just take it a day at a time, and you can’t live in tomorrow, and you can’t reach back and be in yesterday. No matter how much you want to, you just have what’s right there in front of you.
+ - It’s human nature to be curious about people, and to be more curious about young people than old people. We want to cheer something on at the same time we want to tear it down. That’s just so normal.
+ - I can look back at different times in my life when I felt I could not find my way out of whatever it was. I’m not necessarily talking about marriage, but I wanted to pack it in. I wanted to disappear. A lot of that has to do with being in the public eye.
+ - The world my children are growing up in is so much more sophisticated and exposed – emotionally, intellectually, sexually.
+ - You have to treat people gently because we’re all in a process. What might seem like a good idea to somebody at 21 is probably not going to seem like a good idea at 50, but you don’t know that until you get there.
+ - I love being with my children. They’re fascinating people.
+ - Real relationship is gritty and earthy, the stuff that life is made of.
+ - Come Christmas Eve, we usually go to my mom and dad’s. Everybody brings one gift and then we play that game when we all steal it from each other. Some are really cool, others are useful and some are a bit out there.
+ - I started my teenage years singing in churches across America, and finally wound up on a big stage.
+ - To me, the human experience does involve a great deal of anguish. It’s joyful, but it’s bittersweet. I just think that’s life.
+ - I write about everything, but I just – how faith filters through all that and colors your opinion of other people and life and all that.
+ - To me, it’s all about the song. Songs are what make me excited. You hear a great song and you want to record it or get a great idea and you want to write it.
+ - Heaven plants a special seed, and we must have faith.
+ - If you went to your closet today, would you pull out the same outfit you wore 10 or 15 years ago? You wear feelings and faith differently as well.
+ - There is not a formula for the way that God heals. There’s not a timetable.
+ - Depending on what day of the week it is and what time of the month it is, I’m a good friend or not a good friend. I’m more or less a good mom or not a good mom, more or less a good mate or not a good mate. That’s just life, whether or not you’re public.
+ - I think the first time you try anything in a public way, you feel really exposed.
+ - I think a woman can have all of the ideas and mental pictures. She can be a real planner and a motivator. But in the end, I think a woman does best when she responds to a man.
+ - The fact of the matter is, when I’m on tour, I’m juggling so hard to keep all the balls in the air that I don’t often get to really enjoy what I’m out there doing.
+ - I think our culture encourages all of us to always put our best foot forward. I think it’s a good thing. I think it’s nice to rise to the occasion, to be kind and considerate, and have self control.
+ - In the past, when I’d recorded during a break in a tour, it was so easy to sing, because I felt strong. Also, like so many new mothers, I wasn’t getting a lot of sleep, and sleeping is such a huge part of being able to sing.
+ - Anybody who’s ever gone through a hard time – any outsider’s perception, no matter how much information they’re given, they have no idea what the person’s life is like.
+ - For me, the backdrop of half the experiences of life includes music.
+ - But now it’s kind of a given that a 15-year-old would have a record deal and sell a quarter of a million records. No one’s expecting her to answer any deep theological questions. And I’ll tell you, I was asked some deep theological questions from the git-go.
+ - Man hurts man, time and time again. As we drown in the wake of our power, somebody tell me why?
+ - I know my own weaknesses as a human being, and as a musician, as a singer and as a woman.
+ - The people I’ve been exposed to have been people of amazing integrity.
+ - I’m not anxious to be anywhere other than where I am right now.
+ - I was taught a lot of Bible at home and had a voracious appetite for reading the Bible.
+ - I just think people should find the music that helps them through the day and enjoy that. I’ve never felt like, if somebody does or doesn’t like what I’m doing, it’s a morality issue.
+ - I just think music is such a beautiful thing. It lifts the heart and buoys up your spirits – all kinds of music.
+ - The most consistent musical experience I had growing up was church music.
+ - You live in a dangerous place when you sacrifice integrity for security.
+ - Since I travel so much, it’s always great to be home. There’s nothing like getting to raid my own refrigerator at two in the morning.
+ - I never thought getting older would be so great. But when it comes to depression, I have experienced less the older I’ve gotten.
+ - I’ve found that music allows years to fold like an accordion over each other, so I guess you don’t feel the passage of time as much.
+ - I know how it feels to go into a studio to start a record, and eight weeks later it’s finished. I know how an intense schedule feels.
+ - I feel a part of the congregation. I’ve never had to do special music. The kids sing in the choir. It’s just normal. We’re treated like everybody else.
+ - Everybody’s entitled to think whatever they want and to express that, but my personal day-to-day experience does not come into contact with any of those people.
+ - But to make a holiday record that involves favorite American songs and then also get to sing about Jesus birth, it just seemed like a real easy, subtle way to combine a couple of things that I love.
+ - Giving never happens by accident. It’s always intentional.
+
+76 quotes

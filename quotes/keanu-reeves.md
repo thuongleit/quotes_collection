@@ -1,0 +1,95 @@
+ - You need to be happy to live, I don’t.
+ - Sometimes simple things are the most difficult things to achieve.
+ - You have to change your life if you’re not happy, and wake up if things aren’t going the way you want.
+ - The simple act of paying attention can take you a long way.
+ - Money buys you the freedom to live your life the way you want.
+ - And it’s easy to stay grounded. The ground is very close. And we walk on it every day.
+ - Grief changes shape, but it never ends.
+ - Nothing ever truly dies. The universe wastes nothing, everything is simply transformed.
+ - I’m a Virgo; it’s in my sign to be hard on myself.
+ - Life is good when you have a good sandwich.
+ - I’m sorry my existence is not very noble or sublime.
+ - I guess living without love, without experiencing it or being able to give it is pretty strong punishment.
+ - All the dreams I dream are nightmares and those nightmares are the ones I live.
+ - Falling in love and having a relationship are two different things.
+ - When the people you love are gone, you’re alone.
+ - Art is about trying to find the good in people, and making the world a more compassionate place.
+ - I try not to think about my life. I have no life. I need therapy.
+ - I’m Mickey Mouse. They don’t know who’s inside the suit.
+ - It’s fun to be hopelessly in love. It’s dangerous, but it’s fun.
+ - It’s always wonderful to get to know women, with the mystery and the joy and the depth. If you can make a woman laugh, you’re seeing the most beautiful thing on God’s Earth.
+ - I am not handsome or sexy. Of course, it’s not like I am hopeless.
+ - The blues have always had some of the best times, best feelings I’ve ever had.
+ - I thank the earth and the sky everyday for the opportunities I’ve had.
+ - Here comes 40. I’m feeling my age and I’ve ordered the Ferrari. I’m going to get the whole mid-life crisis package.
+ - Energy can’t be created or destroyed, and energy flows. It must be in a direction, with some kind of internal, emotive, spiritual direction. It must have some effect somewhere.
+ - When I don’t feel free and can’t do what I want I just react. I go against it.
+ - In my quiet, I was working something out.
+ - I used to have nightmares that they would put ‘He played Ted’ on my tombstone.
+ - What sort of girls do i like? – They are all angels.
+ - Sure I believe in God and the Devil, but they don’t have to have pitchforks and a long white beard.
+ - We are the sum of who we are. We pick certain things at certain moments that influenced us.
+ - I’m older and older. With any experience you have, you know more about yourself.
+ - Money doesn’t mean anything to me. I’ve made a lot of money, but I want to enjoy life and not stress myself building my bank account. I give lots away and live simply, mostly out of a suitcase in hotels. We all know that good health is much more important.
+ - I believe in love at first sight. You want that connection, and then you want some problems.
+ - I attempt to connect with my muse and go on demon rides.
+ - The truth is often terrifying, which I think is one of the motifs of Larry and Andrew’s cinema. The cost of knowledge is an important theme. In the second and third films, they explore the consequences of Neo’s choice to know the truth. It’s a beautiful, beautiful story.
+ - Performing an exorcism was like changing your oil. It’s a drag, but necessary.
+ - I was hopeless at high school – I failed everything but Latin...
+ - Multi-culture is the real culture of the world – the pure race doesn’t exist.
+ - I’m a meathead, man. You’ve got smart people, and you’ve got dumb people. I just happen to be dumb.
+ - And of course to work with Jack Nicholson and Diane Keaton, and work with a wonderful, beautiful script directed by Nancy Meyers, it was really for me a dream come true.
+ - I want to make a good, solid kung fu movie.
+ - The inspiration really comes first from the character and the story. That vision of what the story is, and what the character is, the world that they inhabit and what the story wants to tell. That’s really what inspires me.
+ - I am waiting for the right story to tell. Just like ‘Man of Tai Chi’ just seemed to be the right story to tell. So I’m looking for that. Because I really love directing. I love developing the story. I love actors. I love the cinema of it, the way that you tell a story visually.
+ - I loved the material when I first read it, and the experience of making the film was a great one. So when we came around to complete the trilogy, I just signed on board without even reading the scripts because the experience of the first film was so good.
+ - Basically it starts with four months of training, just basic stretching, kicking and punching. Then you come to the choreography and getting ready to put the dance together.
+ - Hallelujah! Amen! Christianity is so inherent in western story-telling, you can’t really get around it. But it wasn’t something that drew me to it more or less.
+ - I mean really wonderful. In teaching. Personal epiphanies. About life. About different perspectives-help with different perspectives that you have. You know what I mean? Relationships to nature. Relationships with the self. With other people. With events.
+ - It’s the journey of self, I guess. You start with this kind of loner, outside guy, which a lot of people can relate to, and he goes out into the world.
+ - A relationship is an imaginative act, it’s an act of creation. Someone said to me the other day that a relationship between a person and a kid is unconditional; but the relationship between adults, to each other, is conditional, in a sense. But that condition can be the best kind.
+ - Tattoos are interesting, but at the same time they are also a mask – you are exhibiting your past life on your body.
+ - You know what is a nice thought? Retirement.
+ - Life and art had a nice parallel, in the sense of coming together as strangers who are separate in prison who need to work together, getting to know each other.
+ - Anything where there’s great enthusiasm, and a place to come share what you think is cool.
+ - I don’t know the law, the kind of law of quantity and quality, but I think the opportunity of people being able to express themselves and to have the means of production is a great thing. It’s also changing how we’re telling stories.
+ - Sometimes when you make a film you can go away for three months and then come back and live your life. But this struck a much deeper chord. I don’t have the ability yet to speak about it in an objective.
+ - But, you know, it’s still a drag to get your picture taken when you’re eating a sandwich. It’s a downer.
+ - Kissing someone is pretty intimate, actually very intimate, and your heart always kind of skips a beat before you do that.
+ - The impact of falling in love for the first time has a special place in our arhitecture.
+ - But I think we’re also just talking about the literacy of the audience. The visual literacy of the audience. They’ve seen so many images now, especially here in the States. There’s so much to look at, to watch. So the visual storytelling literacy is harder to impress.
+ - It’s hard to act in the morning. The muse isn’t even awake.
+ - Fame is drag. The paparazzi culture is more pervasive than it used to be. On the positive side, it’s nice not to have to worry about bills.
+ - I have a producing partner named Stephen Hamel, and we’ve been trying to generate material.
+ - I guess I’m not really involving my imagination to that of a circumstance or happening – I’m just kind of acknowledging it as an existence.
+ - So many people have that relationship. The companionship. The connection. To our – to other beings, our pets. I hate to call them pets. But you know, to other creatures that we share our lives with.
+ - I do think there must be some kind of interaction between your living life and the life that goes on from here.
+ - How do I confront aging? With a wonder and a terror. Yeah, I’ll say that. Wonder and terror.
+ - Mortality is very different when you’re 20 to when you’re 50.
+ - Letters are something from you. It’s a different kind of intention than writing an e-mail.
+ - I’m not a photographer, so I didn’t get into F-stops or ND filters or background, foreground, cross-light, all that stuff. But I was interested in the camera and the lenses. That’s the world that I’m moving in, in terms of acting and giving a performance.
+ - Because we’re actors we can pretend and fake it, but I’d rather the intimate investment was authentic.
+ - The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.
+ - I had the classic 40 meltdown. I did. It’s embarrassing. It was pretty funny. But then I recovered. To me, it was like a second adolescence. Hormonally, my body was changing, my mind was changing, and so my relationship to myself and the world around me came to this assault of finiteness.
+ - I like writing songs. I like the camarderie of the and. I like touring. I love playing bass. And then there’s free beer.
+ - How do people relate to movies now, when they’re on portable devices or streaming them? It’s not as much about going to the movies. That experience has changed.
+ - I’ve been really fortunate to be able to do different kinds of films in different scales, different genres, different kinds of roles, and that is important to me.
+ - I like meeting directors. It can be helpful because sometimes when you meet filmmakers you find out if you like them and if they like you, and that is important in terms of considering a role. Choosing a role is all about whether I relate to the role and the story really. That’s the criteria.
+ - Abstract expression is so solid, so successful and recognizable, but there’s a mystery about the artists that goes into it, a fetishism about the artists themselves and who they were.
+ - The serialization through the Internet or through digital portals, means of ways of communicating, and I think that’s great.
+ - I have definitely been curious and involved in the process; even as a young actor. I was always looking at where the camera was, what story it was telling. And as my experience grew, I wanted to know even more.
+ - Eventually, it came to this place like, ‘I’d like to direct, but I need to find the story to tell.’ ‘Man of Tai Chi’ became the story to tell.
+ - You know what, I’d done an interview show when I was like 16 or 17. One of my first jobs. I did interviews for this television show in Toronto.
+ - I was always interested – I mean, it’s kind of part of your job – I was always interested in the camera.
+ - You want to play another kind of character in another genre, and it’s been something I’ve been trying to do if I can in the career so far, and it’s something I hope to continue because it’s interesting to me and you get to do different things as an actor.
+ - Artists are losing the choice to use film. People have a love for it – the grain, how it feels, the texture.
+ - I think – I don’t know, maybe it’s nostalgia. But the choice, losing the choice to be able to use film is going to be – it’s gone. It’s going to be gone.
+ - The acting experience and the collaborating and creating the world, working on the piece, they’re the same joys.
+ - I’ve been pleased to work with so many wonderful stars through the years. This has been an amazing journey. I hope it continues.
+ - One interview would lead us to another interview, which led us to another interview. We had the questions and the idea of chonicling this moment in time. But we didn’t have a movie, per se. As we started interviewing people, it started to kind of define itself.
+ - I think the form, the Hollywood movie, I think the quality is obviously always going to be there and I think that the question of taste, there’s always a question of taste.
+ - When we talk about how movies used to be made, it was over 100 years of film, literal, physical film, with emulsion, that we would expose to light and we would get pictures.
+ - Luxury is the opportunity to experience quality, be it a place, a person or an object.
+ - Environmental issues are on everyone’s mind. It’s part of our culture now and I can only applaud and laud anyone who is doing what they can and raising awareness.
+
+93 quotes

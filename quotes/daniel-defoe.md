@@ -1,0 +1,72 @@
+ - Though I don’t like the crew, I won’t sink the ship. In fact, in time of storm I’ll do my best to save it. You see, we are all in this craft and must sink or swim together.
+ - The soul is placed in the body like a rough diamond, and must be polished, or the luster of it will never appear.
+ - Friends are good, – good, if well chosen.
+ - Wherever God erects a house of prayer the Devil always builds a chapel there; And ’t will be found, upon examination, the latter has the largest congregation.
+ - Those people cannot enjoy comfortably what God has given them because they see and covet what He has not given them. All of our discontents for what we want appear to me to spring from want of thankfulness for what we have.
+ - Fear of danger is ten thousand times more terrifying than danger itself.
+ - It is never too late to be wise.
+ - Never, ladies, marry a fool. Any husband rather than a fool. With some other husband you may be unhappy, but with a fool you will be miserable.
+ - Pleasure is a thief to business.
+ - Thus we never see the true state of our condition till it is illustrated to us by its contraries, nor know how to value what we enjoy, but by the want of it.
+ - Expect nothing and you’ll always be surprised.
+ - The height of human wisdom is to bring our tempers down to our circumstances, and to make a calm within, under the weight of the greatest storm without.
+ - I had been tricked once by that Cheat called love, but the Game was over...
+ - It is better to have a lion at the head of an army of sheep, than a sheep at the head of an army of lions.
+ - Redemption from sin is greater then redemption from affliction.
+ - It happen’d one Day about Noon going towards my Boat, I was exceedingly surpriz’d with the Print of a Man’s naked Foot on the Shore.
+ - As covetousness is the root of all evil, so poverty is the worst of all snares.
+ - All our discontents about what we want appeared to spring from the want of thankfulness for what we have.
+ - This grieved me heartily ; and now I saw, though too late, the folly of beginning a work before we count the cost, and before we judge rightly of our own strength to go through with it.
+ - He that is rich is wise, And all men learned poverty despise.
+ - And I add this part here, to hint to whoever shall read it, that whenever they come to a true Sense of things, they will find Deliverance from Sin a much greater Blessing than Deliverance from Affliction.
+ - All men would be tyrants if they could.
+ - I am giving an account of what was, not of what ought or ought not to be.
+ - Why then should women be denied the benefits of instruction? If knowledge and understanding had been useless additions to the sex, God almighty would never have given them capacities.
+ - I know not what to call this, nor will I urge that it is a secret, overruling decree, that hurries us on to be the instruments of our own destruction, even though it be before us, and that we rush upon it with our eyes open.
+ - Today we love what tomorrow we hate, today we seek what tomorrow we shun, today we desire what tomorrow we fear, nay, even tremble at the apprehensions of.
+ - For sudden Joys, like Griefs, confound at first.
+ - Thus fear of danger is ten thousand times more terrifying than danger itself when apparent to the eyes ; and we find the burden of anxiety greater, by much, than the evil which we are anxious about :...
+ - All evils are to be considered with the good that is in them, and with what worse attends them.
+ - I hear much of people’s calling out to punish the guilty, but very few are concerned to clear the innocent.
+ - Abused prosperity is oftentimes made the very means of our greatest adversity.
+ - How strange a checker-work of Providence is the life of man!
+ - Vice came in always at the door of necessity, not at the door of inclination.
+ - I saw the Cloud, though I did not foresee the Storm.
+ - She is always married too soon, who gets a bad husband, and she is never married too late, who gets a good one.
+ - No man commits evil for the sake of it; even the Devil himself has some farther design in sinning, than barely the wicked part of it.
+ - Law is but a heathen word for power.
+ - Nature has left this tincture in the blood, That all men would be tyrants if they could.
+ - Business neglected is business lost.
+ - Justice is always violent to the party offending, for every man is innocent in his own eyes.
+ - No shoots, says Friday, no yet, me shoot now, me no kill; me stay, give you one more laugh.
+ - Things as certain as death and taxes, can be more firmly believed.
+ - Pride, the first peer and president of Hell.
+ - The best of men cannot suspend their fate; The good die early, and the bad die late.
+ - In trouble to be troubled, Is to have your trouble doubled.
+ - Necessity makes an honest man a knave.
+ - Actions receive their tincture from the times, And as they change are virtues made or crimes.
+ - Now, said I aloud, My dear Father’s Words are come to pass: God’s Justice has overtaken me, and I have none to help or hear me: I rejected the Voice of Providence.
+ - It is men of desperate fortunes on the one hand, or of aspiring, superior fortunes on the other, who go abroad upon adventures, to rise by enterprise, and make themselves famous in undertakings of a nature out of the common road.
+ - Not the man in the moon, not the groaning-board, not the speaking of friar Bacon’s brazen- head, not the inspiration of mother Shipton, or the miracles of Dr. Faustus, things as certain as death and taxes, can be more firmly believed.
+ - Self-destruction is the effect of cowardice in the highest extreme.
+ - Wit is the Fruitful Womb where Thoughts conceive.
+ - Alas the Church of England! What with Popery on one hand, and schismatics on the other, how has she been crucified between two thieves!
+ - Avery fine city; the four principal streets are the fairest for breadth, and the finest built that I have ever seen in one city together? In a word,’tis the cleanest and beautifullest, and best built city in Britain, London excepted.
+ - And of all plagues with which mankind are curst, Ecclesiastic tyranny’s the worst.
+ - I have often thought of it as one of the most barbarous customs in the world, considering us as a civilized and a Christian country, that we deny the advantages of learning to women.
+ - Manchester, one of the greatest, if not really the greatest mere village in England.
+ - A rich man is an honest man – no thanks to him; for he would be a double knave, to cheat mankind when he had no need of it: he has no occasion to press upon his integrity, nor so much as to touch upon the borders of dishonesty.
+ - Tis very strange men should be so fond of being wickeder than they are.
+ - All the good things of the world are no further good to us than as they are of use; and of all we may heap up we enjoy only as much as we can use, and no more.
+ - I had dropped a good design, which I had once bent my thoughts upon, and that was to try if I could not make some of my barley into malt, and then try to brew myself some beer.
+ - In their religion they are so uneven, That each man goes his own byway to heaven.
+ - We are very fond of some families because they can be traced beyond the Conquest, whereas indeed the farther back, the worse, as being the nearer allied to a race of robbers and thieves.
+ - He look’d a little disorder’d, when he said this, but I did not apprehend any thing from it at that time, believing as it us’d to be said, that they who do those things never talk of them; or that they who talk of such things never do them.
+ - Great families of yesterday we show, And lords, whose parents were the Lord knows who.
+ - Wit, like the Belly, if it be not fed, Will starve the Members, and distract the Head.
+ - He that is rich is wise.
+ - He that opposes his own judgment against the consent of the times ought to be backed with unanswerable truths; and he that has truth on his side is a fool as well as a coward if he is afraid to own it because of other men’s opinions.
+ - An Englishman will fairly drink as much As will maintain two families of Dutch.
+ - Reason, it is true, is DICTATOR in the Society of Mankind; from her there ought to lie no Appeal; But here we want a Pope in our Philosophy, to be the infallible Judge of what is or is not Reason.
+
+70 quotes

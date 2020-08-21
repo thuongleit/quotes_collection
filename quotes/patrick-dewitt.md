@@ -1,0 +1,24 @@
+ - He is not bad, I don’t think. Perhaps he is simply too lazy to be good.
+ - The creak of bed springs suffering under the weight of a restless man is as lonely a sound as I know.
+ - I will never be a leader of men, and neither do I want to be one, and neither do I want to be led. I thought: I want to lead only myself.
+ - Our blood is the same, we just use it differently.
+ - I lay in the dark thinking about the difficulties of family, how crazy and crooked the stories of a bloodline can be.
+ - Where is your mother, Charlie asked. Dead. I’m sorry to hear that Thank you. But she was always dead.
+ - I saw my bulky person in the windows of the passing storefronts and wondered, when will that man there find himself to be loved?
+ - He only wished to fight and cultivate an anger toward me, thus alleviating his guilt, but I would not abet him in this.
+ - Come with me into the world and reclaim your independence. You stand to gain so much, and riches are the least of it.
+ - All you will get from me is death.
+ - You put a wage behind something, it gives the act a sort of respectability.
+ - Here is another miserable mental image I will have to catalog and make room for.
+ - We can all of us be hurt, and no one is exclusively safe from worry and sadness.
+ - Hurried business is bad business.
+ - I thought, When a man is properly drunk it is as though he is an a room by himself – there is a physical, impenetrable separation between him and his fellows.
+ - I do not know what it was about that boy but just looking at him, even I wanted to clout him on the head. It was a head that invited violence.
+ - Work will drive you crazy if you let it.
+ - Why were you feeling low? Why does anyone? It creeps up on you from time to time.
+ - Luck was something you either earned or invented through strength of character. You had to come by it honestly; you could not trick or bluff your way into it.
+ - It is true, I thought. I am living a life.
+ - Returning his pen to its holder, he told us, ‘I will have him gutted with that scythe. I will hang him by his own intestines.’ At this piece of dramatic exposition, I could not hep but roll my eyes. A length of intestines would not carry the weight of a child, much less a full grown man.
+ - I will admit he is unusual, but that is perhaps the closest I could come to complimenting him.
+
+22 quotes

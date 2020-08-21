@@ -1,0 +1,42 @@
+ - If you live gladly to make others glad in God, your life will be hard, your risks will be high, and your joy will be full. ~~John Piper
+ - After the rain, the sun will reappear. There is life. After the pain, the joy will still be here. ~~Walt Disney
+ - Innovation comes from people who take joy in their work. ~~W. Edwards Deming
+ - If you follow your dreams and spend your life doing what brings you joy, you are more likely to find success. ~~Richard Branson
+ - Joy does not simply happen to us. We have to choose joy and keep choosing it every day. ~~Henri J.M. Nouwen
+ - If you love someone, you are always joined with them – in joy, in absence, in solitude, in strife. ~~Rumi
+ - In the vastness of space and the immensity of time, it is my joy to share a planet and an epoch with Annie. ~~Carl Sagan
+ - Do not let fear of failure overwhelms joy success. ~~Robert T. Kiyosaki
+ - You will succeed if you persevere; and you will find joy in overcoming obstacles. ~~Helen Keller
+ - Be the silent watcher of your thoughts and behavior. You are beneath the thinker. You are the stillness beneath the mental noise. You are the love and joy beneath the pain. ~~Eckhart Tolle
+ - In today’s rush we all think too much, seek too much, want too much and forget about the joy of just Being. ~~Eckhart Tolle
+ - Nam-myoho-renge-kyo is the greatest joy for all humankind. ~~Nichiren
+ - Vulnerability is the core of shame and fear and our struggle for worthiness, but it appears that it’s also the birthplace of joy, of creativity, of belonging, of love. ~~Brené Brown
+ - Language creates reality. Words have power. Speak always to create joy. ~~Deepak Chopra
+ - The dark does not destroy the light; it defines it. It’s our fear of the dark that casts our joy into the shadows. ~~Brené Brown
+ - No one undertakes research in physics with the intention of winning a prize. It is the joy of discovering something no one knew before. ~~Stephen Hawking
+ - The Art of Fulfillment is the ability to experience not only the thrill of the chase, but also the magic of the moment, the unbridled joy of feeling truly alive. ~~Tony Robbins
+ - It is only when the mind is free from the old that it meets everything anew, and in that there is joy. ~~Jiddu Krishnamurti
+ - Entertainment is the devil’s substitute for joy. The more joy you have in the Lord the less entertainment you need. ~~Leonard Ravenhill
+ - Don’t allow negative people to steal your joy. When you lose your joy, you lose your strength. ~~Joel Osteen
+ - Love is the overflow of joy in God that meets the needs of others. ~~John Piper
+ - When you numb your pain you also numb your joy. ~~Brené Brown
+ - I am a glorious child of God. I am joyful, serene, positive, and loving. ~~Marianne Williamson
+ - I hope life treats you kind, and I hope you have all that you ever dreamed of, and I wish you joy and happiness. But above all of this, I wish you love. ~~Dolly Parton
+ - God is not a killjoy; he just opposes what kills joy. ~~John Piper
+ - I am in truth the Steppenwolf that I often call myself; that beast astray that finds neither home nor joy nor nourishment in a world that is strange and incomprehensible to him. ~~Hermann Hesse
+ - Joy is the wild card of life; it supersedes every other formula for success. If you can find a way to create joy, you can rise beyond all external factors. If you can play at whatever you are doing, you are the master of your life. ~~Alan Cohen
+ - It is not selfish to be happy. It is your highest purpose. Your joy is the greatest contribution you can make to life on the planet. A heart at peace with its owner blesses everyone it touches. ~~Alan Cohen
+ - The moment that judgement stops through acceptance of what it is, you are free of the mind. You have made room for love, for joy, for peace. ~~Eckhart Tolle
+ - You pray in your distress and in your need; would that you might also pray in the fullness of your joy and in your days of abundance. ~~Khalil Gibran
+ - Entertainment is the devil’s substitute for joy. ~~Leonard Ravenhill
+ - If you are fully aligned with your soul it will be your pleasure, your joy to always move toward cooperation, toward sharing, toward reverence for life. You will not be torn. ~~Gary Zukav
+ - To find joy in work is to discover the fountain of youth. ~~Pearl S. Buck
+ - Have the will to be well, to be happy, and to live in joy. ~~Ernest Holmes
+ - I think that people will find a tremendous joy and fulfillment in service to other human beings, and that often this is what is missing in their lives. ~~Ram Dass
+ - Christmas is the season of joy, of holiday greetings exchanged, of gift-giving, and of families united. ~~Norman Vincent Peale
+ - The joy of brightening other lives, bearing each others’ burdens, easing other’s loads and supplanting empty hearts and lives with generous gifts becomes for us the magic of Christmas. ~~William Carey Jones
+ - Money cannot purchase joy. It buys temporary distractions. ~~Lecrae
+ - A happy life consists in tranquility of mind. ~~Marcus Tullius Cicero
+ - Run often. Run long. But never outrun your joy of running. ~~Julie Isphording
+
+40 quotes

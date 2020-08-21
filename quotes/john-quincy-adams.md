@@ -1,0 +1,99 @@
+ - If your actions inspire others to dream more, learn more, do more and become more, you are a leader.
+ - Individual liberty is individual power.
+ - Whoever tells the best story wins.
+ - Duty is ours, results are God’s.
+ - Always vote for principle, though you may vote alone.
+ - I am a warrior, so that my son may be a merchant, so that his son may be a poet.
+ - Courage and perseverance have a magical talisman, before which difficulties disappear and obstacles vanish into air.
+ - I have to study politics and war so that my sons can study mathematics, commerce and agriculture, so their sons can study poetry, painting and music.
+ - Wherever the standard of freedom and independence has been or shall be unfurled, there will be America’s heart, her benedictions and her prayers.
+ - The freedom of the press should be inviolate.
+ - From the experience of the past we derive instructive lessons for the future.
+ - The four most miserable years of my life were my four years in the presidency.
+ - Always vote for principle, though you may vote alone, and you may cherish the sweetest reflection that your vote is never lost.
+ - A stout heart, a clear conscience, and never despair.
+ - The influence of each human being on others in this life is a kind of immortality.
+ - Idleness is sweet, and its consequences are cruel.
+ - The Bible carries with it the history of the creation, the fall and redemption of man, and discloses to him, in the infant born at Bethlehem, the Legislator and Savior of the world.
+ - Find a mission that you can give yourself over to and then spend your days moving that mission forward. Man is made so that when anything fires his soul the impossibilities vanish. The influence of each human being on others in this life is a kind of immortality.
+ - The firmest security of peace is the preparation during peace of the defenses of war.
+ - A man’s diary is a record in youth of his sentiments, in middle age of his actions, in old age of his reflections.
+ - Civil liberty can be established on no foundation of human reason which will not at the same time demonstrate the right of religious freedom.
+ - We understand now, we’ve been made to understand, and to embrace the understanding that who we are is who we were.
+ - The Bible contains the revelation of the will of God. It contains the history of the creation of the world, and of mankind.
+ - The first and almost the only Book deserving of universal attention is the Bible.
+ - Our political way of life is by the Laws of Nature and of Nature’s God, and of course presupposes the existence of God, the moral ruler of the universe, and a rule of right and wrong, of just and unjust, binding upon man, preceding all institutions of human society and government.
+ - Westward the star of empire takes its way.
+ - There is in the clergy of all Christian denominations a time-serving, cringing, subservient morality, as wide from the spirit of the gospel as it is from the intrepid assertion and vindication of truth.
+ - America is a friend of freedom everywhere, but a custodian only of our own.
+ - The Sermon on the Mount commands me to lay up for myself treasures, not upon earth, but in Heaven. My hopes of a future life are all founded upon the Gospel of Christ.
+ - I would much rather be found guilty of making a serious mistake in judgment, than to be accused of being even a little bit insincere.
+ - The laws of man may bind him in chains or may put him to death, but they never can make him wise, virtuous, or happy.
+ - I appear, my fellow-citizens, in your presence and in that of Heaven to bind myself by the solemnities of religious obligation to the faithful performance of the duties allotted to me in the station to which I have been called.
+ - Not stones, nor wood, nor the art of artisans make a state; but where men are who know how to take care of themselves, these are cities and walls.
+ - I say women exhibit the most exalted virtue when they depart from the domestic circle and enter on the concerns of their country, of humanity, and of their G-d!
+ - The art of making love, muffled up in furs, in the open air, with the thermometer at Zero, is a Yankee invention.
+ - This hand, to tyrants ever sworn the foe, For Freedom only deals the deadly blow; Then sheathes in calm repose the vengeful blade, For gentle peace in Freedom’s hallowed shade.
+ - The manners of women are the surest criterion by which to determine whether a republican government is practicable in a nation or not.
+ - So great is my veneration for the Bible that the earlier my children begin to read it the more confident will be my hope that they will prove useful citizens of their country and respectable members of society. I have for many years made it a practice to read through the Bible once every year.
+ - I inhabit a weak, frail, decayed tenement; battered by the winds and broken in on by the storms, and, from all I can learn, the landlord does not intend to repair.
+ - My stern chase after time is, to borrow a simile from Tom Paine, like the race of a man with a wooden leg after a horse.
+ - Slavery is the great and foul stain upon the North American Union.
+ - The magistrate is the servant not of his own desires, not even of the people, but of his God.
+ - Is it not that, in the chain of human events, the birthday of the nation is indissolubly linked with the birthday of the Saviour?
+ - America does not go abroad in search of monsters to destroy. She is the well-wisher to freedom and independence of all. She is the champion and vindicator only of her own. Sir Anthony Hopkins portrayal of me was adequate. I do believe that my sideburns were of substantially higher quality, however.
+ - The hope of a Christian is inseparable from his faith. Whoever believes in the Divine inspiration of the Holy Scriptures must hope that the religion of Jesus shall prevail throughout the earth...
+ - May our country be always successful, but whether successful or otherwise, always right.
+ - The experience of all former ages had shown that of all human governments, democracy was the most unstable, fluctuating and short-lived.
+ - I want a warm and faithful friend, To cheer the adverse hour; Who ne’er to flatter will descend, Nor bend the knee to power,- A friend to chide me when I’m wrong, My inmost soul to see; And that my friendship prove as strong For him as his for me.
+ - What is the right of the huntsman to the forest of a thousand miles over which he has accidentally ranged in quest of prey? Shall the fields and vallies, which a beneficent God has formed to teem with the life of innumerable multitudes, be condemned to everlasting barrenness?
+ - There is such seduction in a library of good books that I cannot resist the temptation to luxuriate in reading.
+ - In what light soever we regard the Bible, whether with reference to revelation, to history, or to morality, it is an invaluable and inexhaustible mine of knowledge and virtue.
+ - The gigantic intellect, the envious temper, the ravenous ambition and the rotten heart of Daniel Webster.
+ - My custom is to read four or five chapters of the Bible every morning immediately after rising. It seems to me the most suitable manner of beginning the day. It is an invaluable and inexhaustible mine of knowledge and virtue.
+ - I told him it was law logic-an artificial system of reasoning, exclusively used in courts of justice, but good for nothing anywhere else.
+ - Let us not be unmindful that liberty is power, that the nation blessed with the largest portion of liberty must in proportion to its numbers be the most powerful nation upon earth.
+ - I want the seals of power and place, the ensigns of command, charged by the people’s unbought grace, to rule my native land. Nor crown, nor scepter would I ask but from my country’s will, by day, by night, to ply the task her cup of bliss to fill.
+ - To live without having a Cicero and a Tacitus at hand seems to me as if it was aprivation of one of my limbs.
+ - The conflict between the principle of liberty and the fact of slavery is coming gradually to an issue. Slavery has now the power, and falls into convulsions at the approach of freedom.
+ - In charity to all mankind, bearing no malice or ill will to any human being, and even compassionating those who hold in bondage their fellow men, not knowing what they do.
+ - Who but shall learn that freedom is the prize Man still is bound to rescue or maintain; That nature’s God commands the slave to rise, And on the oppressor’s head to break the chain. Roll, years of promise, rapidly roll round, Till not a slave shall on this earth by found.
+ - Occasional war is one of the rigorous instruments in the hands of Providence to give tone to the character of nations.
+ - We know the redemption must come.
+ - Death fixes forever the relation existing between the departed spirit and the survivors upon earth.
+ - To believe that everyone is honest is folly, but to believe that no one is honest is worse.
+ - The law is an artificial human construct, quite arbitrary, and of absolutely no use anywhere else but in a court of law!
+ - Individual liberty is individual power, and as the power of a community is a mass compounded of individual powers, the nation which enjoys the most freedom must necessarily be in proportion to its numbers the most powerful nation.
+ - We know the redemption must come. The time and the manner of its coming we know not: It may come in peace, or it may come in blood; but whether in peace or in blood, LET IT COME.
+ - Our Constitution professedly rests upon the good sense and attachment of the people. This basis, weak as it may appear, has not yet been found to fail.
+ - Roll, years of promise, rapidly roll round, till not a slave shall on this earth be found.
+ - His face is livid, gaunt his whole body, his breath is green with gall; his tongue drips poison.
+ - The best guarantee against the abuse of power consists in the freedom, the purity, and the frequency of popular elections.
+ - It is no slight testimonial, both to the merit and worth of Christianity, that in all ages since its promulgation the great mass of those who have risen to eminence by their profound wisdom and integrity have recognized and reverenced Jesus of Nazareth as the Son of the living God.
+ - Every temptation is an opportunity of our getting nearer to God.
+ - To preserve, to improve, and to perpetuate the sources and to direct in their most effective channels the streams which contribute to the public weal is the purpose for which Government was instituted.
+ - This mode of electioneering suited neither my taste nor my principles. I thought it equally unsuitable to my personal character and to the station in which I am placed.
+ - I cannot ask of heaven success, even for my country, in a cause where she should be in the wrong.
+ - Whether to the nation or to the state, no service can be or ever will be rendered by a more able or a more faithful public servant.
+ - There is nothing so deep and nothing so shallow which political enmity will not turn to account.
+ - No book in the world deserves to be so unceasingly studied, and so profoundly meditated upon as the Bible.
+ - The will of the people is the source and the happiness of the people the end of all legitimate government upon earth.
+ - Our Constitution rests on the good sense and the respect of the American people.
+ - Life is a problem; mortal man was made to solve the solemn problem right or wrong.
+ - I have for many years made it a practice to read through the Bible once every year.
+ - Religion, charity, pure benevolence, and morals, mingled up with superstitious rites and ferocious cruelty, form in their combination institutions the most powerful and the most pernicious that have ever afflicted mankind.
+ - This is the last of earth! I am content.
+ - A stranger would think that the people of the United States had no other occupation than electioneering.
+ - Among the sentiments of most powerful operation upon the human heart, and most highly honorable to the human character, are those of veneration for our forefathers and of love for our posterity.
+ - The declaration that our People are hostile to a government made by themselves, for themselves, and conducted by themselves, is an insult.
+ - About one-half of the members of Congress are seekers for office at the nomination of the President. Of the remainder, at least one-half have some appointment or favor to ask for their relatives.
+ - The harmony of the nation is promoted and the whole Union is knit together by the sentiments of mutual respect, the habits of social intercourse, and the ties of personal friendship formed between the representatives of its several parts in the performance of their service at this metropolis.
+ - Those who take oaths to politically powerful secret societies cannot be depended on for loyalty to a democratic republic.
+ - All the public business in Congress now connects itself with intrigues, and there is great danger that the whole government will degenerate into a struggle of cabals.
+ - If there have been those who doubted whether a confederated representative democracy were a government competent to the wise and orderly management of the common concerns of a mighty nation, those doubts have been dispelled.
+ - The public history of all countries, and all ages, is but a sort of mask, richly colored. The interior working of the machinery must be foul.
+ - So far as the object of taxation is to raise a revenue for discharging the debts and defraying the expenses of the community, its operation should be adapted as much as possible to suit the burden with equal hand upon all in proportion with their ability of bearing it without oppression.
+ - It is so obvious to every reasonable being that he did not make himself, and the world in which he inhabits could as little make itself, that the moment we begin to exercise the power of reflection, it seems impossible to escape the conviction that there is a Creator.
+ - America, with the same voice which spoke herself into existence as a nation, proclaimed to mankind the inextinguishable rights of human nature, and the only lawful foundations of government.
+
+97 quotes

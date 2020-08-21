@@ -1,0 +1,74 @@
+ - When correctly viewed, everything is lewd.
+ - The Lord’s our shepherd, says the psalm. But just in case, we better get a bomb.
+ - Life is like a piano. What you get out of it depends on how you play it.
+ - Bad weather always looks worse through a window.
+ - Always predict the worst, and you’ll be hailed as a prophet.
+ - Don’t drink the water and don’t breathe the air!
+ - For there is surely nothing more beautiful in this world than the sight of a lone man facing single-handedly a half a ton of angry pot roast!
+ - Irreverence is easy – whats hard is wit.
+ - It is a sobering thought that when Mozart was my age, he had been dead for two years.
+ - I wish people who have trouble communicating would just shut up.
+ - Laughter is involuntary. If it’s funny you laugh.
+ - So long, Mom I’m off to drop the bomb So don’t wait up for me But while you swelter Down there in your shelter You can see me On your TV.
+ - Base eight is just like base ten really, if you’re missing two fingers.
+ - And we will all go together when we go. What a comforting fact that is to know. Universal bereavement, An inspiring achievement, Yes, we will all go together when we go.
+ - Don’t write naughty words on the wall if you can’t spell!
+ - We are the folk song army, every one of us cares. We all hate poverty, war, and injustice unlike the rest of you squares.
+ - You cant be satirical and not be offensive to somebody.
+ - Apart from that Mrs Lincoln, how did you enjoy the play?
+ - Soon we’ll be out amid the cold world’s strife. Soon we’ll be sliding down the razor blade of life. But as we go our sordid sep’rate ways, We shall ne’er forget thee, thou golden college days. Hearts full of youth, Hearts full of truth, Six parts gin to one part vermouth.
+ - Hark, the Herald Tribune sings, Advertising wondrous things!
+ - Some of you may have met mathematicians and wondered how they got that way.
+ - Be it ever so decadent, there’s no place like home.
+ - I feel that if a person has problems communicating the very least he can do is to shut up.
+ - Filth, I’m glad to say, is in the mind of the beholder. When correctly viewed, everything is lewd.
+ - On my income tax 1040 it says ‘Check this box if you are blind.’ I wanted to put a check mark about three inches away.
+ - In my youth there were words you couldn’t say in front of a girl; now you can’t say ‘girl.’
+ - If, after hearing my songs, just one human being is inspired to say something nasty to a friend, or perhaps to strike a loved one, it will all have been worth the while.
+ - Well, you ask a silly question, and you get a silly answer.
+ - I went from adolescence to senility, trying to bypass maturity.
+ - My last public performance for money was in 1967. For free, it was 1972, with the exception of two little one-shot, one-song things. But thats just for friends, out of friendship for the people involved, and also because it was fun.
+ - Once you’ve heard the joke, it’s not funny anymore, but it’s the way it’s told. And I think that’s the same with the music: The reason some of my songs have lasted longer is there’s a lot of stuff packed in there. You want to hear them more than once.
+ - I didn’t feel the need for anonymous affection, for people in the dark applauding. To me, it would be like writing a novel and then getting up every night and reading your novel. Everything I did is on the record and, if you want to hear it, just listen to the record.
+ - Alas, irreverence has been subsumed by mere grossness, at least in the so-called mass media. What we have now, to quote myself at my most pretentious, is a nimiety of scurrility with a concomitant exiguity of taste.
+ - If I can’t get people to commit themselves on whether or not there is a square root of two, then I won’t touch on God or anything here.
+ - I know that there are people who do not love their fellow man, and I hate people like that!
+ - Be careful not to do your good deeds when there’s no one watching you.
+ - I ache for the touch of your lips dear, but much more for the touch of your whips dear.
+ - Counting in octal is just likst counting in decimal – if you don’t use your thumbs.
+ - Well I wasn’t really attacking the religious beliefs, I was attacking the formality of the rituals of the Catholic church; however, people took it wrongly.
+ - If you asked me to write a rock song or a rap song, I couldn’t do it because they’re not in my fingers.
+ - You can raise welts like nobody else, as we dance to the Masochism Tango.
+ - Angels we have heard on High Tell us to go out and Buy.
+ - I’ve heard it quoted that I was dead. You can’t believe anything you read. That was just an off-hand remark somebody picked up, and now it’s been quoted and quoted, and therefore misquoted.
+ - If the hoods don’t get you, the monoxide will.
+ - And although I’m all for freedom of expression and against censorship, there are certain things I’m not willing to go to jail for.
+ - There’s ten stuffed heads in my trophy room right now, two game wardens, seven hunters, and a cow.
+ - They love us everywhere we go. So when in doubt, send the Marines.
+ - Don’t solicit for your sister, it’s not nice. Unless you get a good percentage of her price.
+ - People are stupider than anybody.
+ - The reason most folksongs are so atrocious is that they were written by the people.
+ - Disclaimer: If anyone disagrees with anything I say, I am quite prepared to not only retract it, but also to deny under oath I ever said it.
+ - Once all the Germans were warlike and mean But that couldn’t happen again We taught them a lesson in nineteen eighteen And they’ve hardly bothered us since then.
+ - Step up and shake the hand Of someone you can’t stand, You can tolerate him if you try!
+ - I find that if you take the various popular song forms to their logical extremes, you can arrive at almost anything from the ridiculous to the obscene-or, as they say in New York, sophisticated.
+ - I figure I wrote 37 songs in 20 years, and that’s not exactly a full-time job. It wasn’t that I was writing and writing and writing and quit.
+ - On Christmas day you can’t get sore, your fellow man you must adore. There’s time to cheat him all the more the other three hundred and sixty-four.
+ - Oh we will all fry together when we fry. We’ll be french fried potatoes by and by. There will be no more misery When the world is our rotisserie, Yes, we will all fry together when we fry.
+ - Once the rockets are up, who cares where they come down?
+ - The audiences like to think that satire is doing something. But, in fact, it is mostly to leave themselves satisfied. Satisfied rather than angry, which is what they should be.
+ - People would go anywhere to see a famous person in the flesh, no matter what they do.
+ - I recall this sergeant’s informing me and my “room-mates” of this rather deplorable fact the army didn’t have any official, excuse me, didn’t have no official song and suggested that we work on this in our copious free time.
+ - The audience usually has to be with you, I’m afraid. I always regarded myself as not even preaching to the converted, I was titillating the converted.
+ - Everything is so weird in politics that it’s very hard to be funny about it, I think.
+ - If I see a movie star in the department store buying something, I’ll kind of sidle up and see what they’re saying, what they look like, how they sound. That’s an invasion of privacy.
+ - The poor folks hate the rich folks, and the rich folks hate the poor folks. All of my folks hate all of your folks, it’s American as apple pie.
+ - I would do nightclubs and concerts – particularly concerts, which is mostly what I did – and only people who already agreed with me would show up. People weren’t going to come and inadvertently turn on their television set and find this offensive stuff coming out.
+ - I don’t have the temperament of a performer, and I certainly couldn’t do it every night.
+ - I don’t want to satirise George Bush and his puppeteers, I want to vaporise them.
+ - I’m not an original composer. The tunes are not stolen from other tunes necessarily except in a few cases, but they’re in the style of songs that I grew up with.
+ - Political satire became obsolete when they awarded Henry Kissinger the Nobel Peace Prize.
+ - From the three, you then use one to make eight ones. You add those ones to the three, and you get one-three base eight, or, in other words, In base ten you have eleven, and you take away seven. And seven from eleven is four. Now go back to the sixty-fours, you’re left with two.
+ - The people who came to hear me perform or to buy my records were not the type who would be offended. But I gather that there were other people who were offended.
+
+72 quotes

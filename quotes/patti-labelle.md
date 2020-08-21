@@ -1,0 +1,54 @@
+ - I’m still standing up there tall and strong every night that I perform.
+ - I have to go 150 percent or nothing at all.
+ - Every exit is an entrance to someplace else.
+ - I always have to go that extra mile, and I do it and I don’t mind doing it, but it isn’t fair.
+ - That’s another lesson I’ve learned the hard way. All relationships will die if they aren’t nurtured. Just as a flower will die if it’s not watered. Because love is demonstration, not declaration.
+ - I’ve had 60 years of ups and downs, and all of the downs that I’ve had, I’m happy that I’ve had them because it’s taught me to appreciate all the ups.
+ - Women are strong now. Women are dominating the charts, and women are doing it for themselves. We’re kicking butt and taking no prisoners.
+ - God doesn’t do the work for you; he does the work through you. It’s not enough to look up; you must also look within.
+ - I haven’t stopped looking for the good in people. I’ve just accepted the fact that I’m not always going to find it.
+ - Once I stopped dwelling on what I didn’t have, on what I thought I was going to lose, and began to give freely, everything opened up for me. Everything began to flow into my life.
+ - So if diva means giving your best, then yes, I guess I am a diva.
+ - When I was married, I wasn’t loving myself. Now I’m in love with myself. I will get married again.
+ - I’m 60, and I did 60-year-old women songs. I’m not trying to be the Hip-Hop Queen, although I am the original Hip Hop Queen.
+ - It’s a sweet thing, faith. With it, you can handle any circumstance, any crisis, because you know God always has your back. And when God is for you, who can be against you? Nobody. As my Aunt Hattie says, “One and God are a majority.”
+ - I’m so grounded, it’s sad.
+ - All I can tell you really is if you get to the point where someone is telling you that you are not great or not good enough, just follow your heart and don’t let anybody crush your dream.
+ - A diva is someone who is a perfectionist, who does her best in her craft.
+ - I clean my house, although I have help. I’m on the floor getting spots. I can’t stand a dirty house. I’m a cleaning fanatic.
+ - Anger is like the blade of a butcher knife – very difficult to hold on to for long without harming yourself.
+ - So if anybody wants to get me something, get me 60 crabs – one for each year. I don’t want no diamonds, I don’t want no shoes, I don’t want no party. I want some crabs.
+ - I like hip-hop music, but some of the lyrics make me want to cry.
+ - When you take your troubles to God, you may have them but they don’t have you.
+ - Being honored at Berklee College of Music; I got a doctorate. I am Doctor Patti.
+ - Real divas give 150 percent. If they don’t have the right dress, they’ll go out in whatever they have. If there are no microphones, they’ll still put on a show. They are people who put their heart and soul in what they do.
+ - In matters of the heart it is always better to want something you don’t have than to have something you don’t want.
+ - I just sing the stuff that makes me smile, makes me feel like I didn’t sell myself out.
+ - I’ve never been with a woman, so I guess I’m straight, OK? But I’m straight enough to know the difference between right and wrong. I am straight enough to know that if you want to marry whoever you want to marry, you should be able to marry whoever you want to marry.
+ - I never thought I would be singing for the world.
+ - I was a shy kid with a broom handle that I pretended was a microphone.
+ - I’m no different than you.
+ - I love Canadians because I don’t see very much racism in Canada.
+ - I’m very spontaneous.
+ - You don’t have to be an angel, just be someone who can give.
+ - There’s not much longevity in music today. It’s so easy to go in, put some pretentious lyrics on, with people saying the same thing over and over and over.
+ - Always respect yourself and don’t go out there disrespecting yourself.
+ - I can’t do some of the songs that younger girls like Mary J. Blige and Beyonce are doing. They have their own place and I have my own place.
+ - I truly respect the people who are working. If they want an autograph from Patti LaBelle, they are going to get it. I have never separated myself from them. I never think you are better than the next one.
+ - Whenever I go out, so many people who respect me ask me what to do in a certain situation. A lot of times, I didn’t know the answers because sometimes I was going through the same sort of thing. But then later on, I would think of things that people told me.
+ - I think the race situation is getting better as far as people respecting each other goes. I think the race situation with entertainment is not that much better.
+ - When I look into the crowd, I see young and old, black and white – it’s amazing that I’m able to connect with so many different kinds of people.
+ - I know how to put it on when it comes to interviews and performing because I have to. But I’m pretty laid back.
+ - All I do is stay in the kitchen and cook. I don’t go there to party.
+ - I’ll perform all the way to the grave.
+ - People with no humor, they’re outta my life.
+ - I don’t tweet, Twitter, email, Facebook, look book, no kind of book. I have a land line phone at my home – that’s the only phone I have. If my phone rang every day like everyone else around me, I would lose my mind.
+ - I keep showing decade after decade that I am a real performer.
+ - I want to be remembered as a woman who was fair and always gave 150 percent, no matter what I did.
+ - I don’t feel as though I have to prove anything to anybody.
+ - I never wanted to go on stage alone because if you mess up, who can you blame?
+ - You’ve got to know business before you go to show business.
+ - I was very shy. I’m still shy.
+ - I decided to always sing in the back with the chorus and never went up front because I had trouble performing.
+
+52 quotes

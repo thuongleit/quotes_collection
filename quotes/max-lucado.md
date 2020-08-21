@@ -1,0 +1,408 @@
+ - You change your life by changing your heart.
+ - Faith is not the belief that God will do what you want. It is the belief that God will do what is right.
+ - Love like there’s no tomorrow, and if tomorrow comes, love again.
+ - What if you woke up this morning and had only the things you thanked God for yesterday?
+ - Love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. To these I commit my day.
+ - God loves you simply because He has chosen to do so. He loves you when you don’t feel lovely. He loves you when no one else loves you. Others may abandon you, divorce you, and ignore you, but God will love you always. No matter what!
+ - Conflict is inevitable but combat is optional.
+ - No one can do everything, but everyone can do something.
+ - The difference between mercy and grace? Mercy gave the prodigal son a second chance. Grace gave him a feast.
+ - God loves you just the way you are, but he refuses to leave you that way.
+ - A man who wants to lead the orchestra must turn his back on the crowd.
+ - A woman’s heart should be so hidden in God that a man has to seek Him just to find her.
+ - Stay strong! Your test will become your test-imony, your mess will become your mess-age.
+ - God never said that the journey would be easy, but He did say that the arrival would be worthwhile.
+ - The key is this: Meet today’s problems with today’s strength. Don’t start tackling tomorrow’s problems until tomorrow. You do not have tomorrow’s strength yet. You simply have enough for today.
+ - CAN is 100 times more important than IQ.
+ - Remember, you are special because I made you. And I don’t make mistakes.
+ - God is God. He knows what he is doing. When you can’t trace his hand, trust his heart.
+ - You weren’t an accident. You weren’t mass produced. You aren’t an assembly-line product. You were deliberately planned, specifically gifted, and lovingly positioned on the earth by the Master Craftsman.
+ - God’s present is his presence. His greatest gift is himself.
+ - Our prayers may be awkward. Our attempts may be feeble. But since the power of prayer is in the One who hears it and not in the one who says it, our prayers do make a difference.
+ - Focus on giants – you stumble. Focus on God – Giants tumble.
+ - Can you imagine a life with no fear? What if faith, not fear, was your default reaction to threats?
+ - God does not exist to make a big deal out of us. We exist to make a big deal out of him. It’s not about you. It’s not about me. It’s all about him.
+ - Changing directions in life is not tragic. Losing passion in life is.
+ - Be careful what you think, because your thoughts run your life.
+ - God gives us people to love and things to use, not things to love and people to use.
+ - When you’re full of yourself, God can’t fill you. But when you empty yourself, God has a useful vessel.
+ - God meets our needs one day at a time.
+ - The life of Jesus Christ is a message of hope, a message of mercy, a message of life in a dark world.
+ - Forgiveness is unlocking the door to set someone free and realising you were the prisoner!
+ - Find joy in the ordinary.
+ - If today were your last, would you do what you’re doing? Or would you love more, give more, forgive more? Then do so! Forgive and give as if it were your last opportunity. Love like there’s no tomorrow, and if tomorrow comes, love again.
+ - Feed your fears and your faith will starve. Feed your faith, and your fears will.
+ - Don’t measure the size of the mountain; talk to the One who can move it.
+ - You are valuable because you exist. Not because of what you do or what you have done – but simply because you are.
+ - Humility has such power. Apologies can disarm arguments. Contrition can defuse rage. Olive branches do more good than battle axes ever will.
+ - When our deepest desire is not the things of God, or a favor from God, but God Himself, we cross a threshold.
+ - Forgiveness is not saying that the one who hurt you was right. Forgiveness is stating that God is faithful and he will do what is right.
+ - Children spell love with four letters: T-I-M-E...
+ - Fear will always knock on your door. Just don’t invite it in for dinner. And for heaven’s sake, don’t offer it a bed for the night.
+ - Meet your fears with faith.
+ - The next time you’re disappointed, don’t panic. Don’t give up. Just be patient and let God remind you He’s still in control.
+ - And we need to share our story. Not with everyone but with someone. There is someone who is like you were. And he or she needs to know what God can do. Your honest portrayal of your past may be the courage for another’s future.
+ - When Jesus died on the cross, so did your sin; when He rose from the dead, so did your HOPE.
+ - When God is all you have, then all you have, is all you need.
+ - Let God have you, and let God love you – and don’t be surprised if your heart begins to hear music you’ve never heard and your feet learn to dance as never before.
+ - Fear creates a form of spiritual amnesia.
+ - I simply think God is greater than our weakness. In fact, I think it is our weakness that reveals how great God is.
+ - You’ll never know Jesus is all you need until Jesus is all you have. Are you in the wilderness? Find refuge in God’s presence. Find comfort in his people.
+ - Lower your expectations of earth. This isn’t heaven, so don’t expect it to be.
+ - Fear corrodes our confidence in God’s goodness.
+ - God never promises to remove us from our struggles. He does promise, however, to change the way we look at them.
+ - God is faithful even when his children are not.
+ - God sees in you a masterpiece about to happen.
+ - Be kind to yourself. God thinks you’re worth his kindness. And he’s a good judge of character.
+ - Forgiveness doesn’t diminish justice; it just entrusts it to God. He guarantees the right retribution.
+ - Faith is the conviction that God knows more than we do about this life and He will get us through it.
+ - If Jesus heals instantly, praise Him. If Jesus heals gradually, trust Him. When Jesus heals ultimately, you will understand.
+ - Let your failures refine you, not define you.
+ - God answers the mess of life with one word: Grace.
+ - There is a difference between grace and mercy. Mercy is the decision of God not to punish us. But grace is the decision of God to save and bless us.
+ - Next time a sunrise steals your breath or a meadow of flowers leave you speechless, remain that way. Say nothing, and listen as Heaven whispers, “Do you like it? I did it just for you.”
+ - The Bible is the story of two gardens. Eden and Gethsemane. In the first, Adam took a fall. In the second, Jesus took a stand.
+ - One phrase summarizes the horror of hell. “God isn’t there.”
+ - You will never forgive anyone more than God has already forgiven you.
+ - God meets daily needs daily. Not weekly or annually. He will give you what you need when it is needed.
+ - The purpose of the Bible? Salvation. God’s highest passion is to get His children home. His book, the Bible, describes His plan of salvation. The purpose of the Bible is to proclaim god’s plan and passion to save His children.
+ - Our belief in God is not blind faith. Belief is having a firm conviction something is true, not hoping it’s true.
+ - God sees us with the eyes of a Father. He sees our defects, errors and blemishes. But He also sees our value.
+ - Sow seeds of hope and enjoy optimism. Sow seeds of doubt and expect insecurity.
+ - If anybody understands God’s order for his children, it’s someone who has rescued an orphan from despair, for that is what God has done for us. God has adopted you. God sought you, found you, signed the papers and took you home.
+ - Write today’s worries in sand. Chisel yesterday’s victories in stone.
+ - If God had a refrigerator, your picture would be on it.
+ - God can’t fill you when you are already full of yourself.
+ - God’s highest desire is not to make us rich, successful or popular. His goal is to make us His.
+ - If God is enough for you, then you’ll always have enough, because you’ll always have God.
+ - God created marriage. No government subcommittee envisioned it. No social organization developed it. Marriage was conceived and born in the mind of God.
+ - Your pain has a purpose. Your problems, struggles, heartaches, and hassles cooperate toward one end-the glory of God.
+ - Though you see nothing, he is acting.
+ - Grace is the voice that calls us to change and then gives us the power to pull it off.
+ - The presence of fear does not mean you have no faith. Fear visits everyone. But make your fear a visitor and not a resident.
+ - What Christ does in us and through us will always be ‘exceedingly abundantly above all we ask or think.’
+ - The past does not have to be your prison. You have a voice in your destiny. You have a say in your life. You have a choice in the path you take.
+ - In the great orchestra we call life, you have an instrument and a song, and you owe it to God to play them both sublimely.
+ - Do you understand what God has done? He has deposited a Christ seed in you. As it grows you will change. It’s not that sin has no more presence in your life, but rather that sin has no more power over your life.
+ - Relationships don’t thrive because the guilty are punished but because the innocent are merciful.
+ - The Bible teaches us that God does not cause pain, but that He uses pain and evil to advance His cause and shape His servants.
+ - Our moods may shift, but God’s doesn’t. Our minds may change, but God’s doesn’t. Our devotion may falter, but God’s never does. Even if we are faithless, He is faithful, for He cannot betray himself. He is a sure God.
+ - No one can pray and worry at the same time.
+ - The One who saved your soul longs to remake your heart. Let’s fix our eyes on Jesus. Perhaps in seeing Him, we will see what we can become!
+ - God does uncommon things through common people in common places.
+ - A little rain can straighten a flower stem. A little love can change a life.
+ - Since our greatest need was forgiveness, God sent us a Savior. He became like us, so we could become like Him.
+ - As long as you are stationary, no one will complain. Dogs don’t bark at parked cars.
+ - Answer the big question of eternity, and the little questions of life fall into perspective.
+ - Waiting is a sustained effort to stay focused on God through prayer and belief.
+ - Resentment is when you allow what’s eating you to eat you up. Revenge is the raging fire that consumes the arsonist. Bitterness is the trap that snares the hunter. And mercy is the choice that can set them all free.
+ - To accept grace is to admit failure, a step we are hesitant to take. We opt to impress God with how good we are rather than confessing how great he is.
+ - Be a child again. Flirt. Giggle. Dip your cookies in your milk. Take a nap. Say you’re sorry if you hurt someone. Chase a butterfly. Be a child again.
+ - The people who make a difference are not the ones with the credentials but the ones with the concern.
+ - If there are a thousand steps between us and God, He will take all but one. He will leave the final one for us. The choice is ours.
+ - Two types of voices command your attention today. Negative ones fill your mind with doubt, bitterness, and fear. Positive ones purvey hope and strength. Which one will you choose to heed?
+ - The meaning of life. The wasted years of life. The poor choices of life. God answers the mess of life with one word: ‘grace.’
+ - Baptism is the initial step of a faithful heart.
+ - The mind that is full of God is empty of anxiety. Are you troubled, restless, sleepless? Then think of God more!
+ - God has proven himself as a faithful father. Now it falls to us to be trusting children.
+ - May you live in such a way that your death is just the beginning of your life.
+ - I’ve never been surprised by God’s judgment, but I’m still stunned by His grace.
+ - It’s not about winning or losing, but love and respect.
+ - Jesus isn’t a God who stayed on the mountaintop – he’s a Savior who came down and lived and worked with the people.
+ - Be less about protecting any type of identity affiliated to a country or even ethnic background. Be more about the fact that we’re here for a short time and Heaven is going to be a rainbow of people, multiculture, every generation.
+ - There are some facts that will never change. One fact is that you are forgiven. If you are in Christ, when he sees you, your sins are covered-he doesn’t see them. He sees you better than you see yourself.
+ - God loves you because He has chosen to do so.
+ - I choose love. No occasion justifies hatred; no injustice warrants bitterness, I choose love. Today I will love God and what God loves.
+ - Yesterday you can’t alter, but your reaction to yesterday you can. The past you cannot change, but your response to your past you can.
+ - With God, every day matters, every person counts. And that includes you.
+ - I believe ingratitude is the original sin. I believe if Adam and Eve had been grateful for the garden of Eden they had, they would not have been so focused on the one tree they didn’t have.
+ - If I succeed, I will give thanks. If I fail, I will seek His grace.
+ - The church is never a place to show off. Do your good deeds quietly. Serve; don’t seek to be seen.
+ - When you recognize God as Creator, you will admire Him. When you recognize His wisdom, you will learn from Him. When you discover His strength, you will rely on Him. But only when He saves you will you worship Him.
+ - Be patient. God is using today’s difficulties to strengthen you for tomorrow. He is equipping you. The God who makes things grow will help you bear fruit.
+ - The secret of loving is living loved.
+ - Baptism separates the tire kickers from the car buyers.
+ - God offers authentic LOVE. His devotion is the real deal. But He won’t give you the genuine until you surrender the imitations.
+ - We’re important, but not essential; valuable, but not indispensable. We have a part in the play, but we are not the main act. A song to sing, but we are not the featured voice. God is.
+ - When grace happens, generosity happens. Unsquashable, eyepopping bigheartedness happens.
+ - Just as your earthly house is a place of refuge, so God’s house is a place of peace.
+ - Sometimes God allows what he hates to accomplish what he loves.
+ - Patience is more than a virtue for long lines and slow waiters. Patience is the red carpet upon which God’s grace approaches us.
+ - A nation is blessed when it has godly leaders.
+ - You are never more like Jesus than when you pray for others. Pray for this hurting world.
+ - Revenge is the raging fire that consumes the arsonist.
+ - Nature is God’s workshop. The sky is his resume. The universe is his calling card. You want to know who God is? See what he has done.
+ - Regardless of the circumstances that surrounded your arrival, you are not an accident. God planned you before you were born.
+ - Christmas is best pondered, not with logic, but with imagination.
+ - Don’t worry about having the right words; worry more about having the right heart. It’s not eloquence he seeks, just honesty.
+ - Waiting is an expectant patience. It’s a patience that says, “I don’t know what God is going to do, but I know God is going to do something.”
+ - Gratitude develops faith. The surest path out of a slump is marked by the road sign “thank you, God.”
+ - God’s blessings are dispensed according to the riches of his grace, not according to the depth of our faith.
+ - We exist to exhibit God, to display his glory. We serve as canvases for his brush stroke, papers for his pen, soil for his seeds, glimpses of his image.
+ - Your challenge is not your challenge. Your challenge is the way you think about your challenge. Your problem is not your problem; it is the way you look at it. You can’t always control your circumstances, but you can control the way you process them.
+ - Here’s what you need to keep in mind. You no longer have yesterday. You do not yet have tomorrow. You have only today. This is the day the Lord has made. Live in it.
+ - Don’t equate the presence of God with a good mood or a pleasant temperament. God is near whether you are happy or not.
+ - Gratitude. More aware of what you have than what you don’t. Recognizing the treasure in the simple – a child’s hug, fertile soil, a golden sunset. Relishing in the comfort of the common.
+ - God is kind, but he is not soft. He takes us firmly by the hand and leads us into a radical life change.
+ - Filter your pain through the brevity of this life and the unending beauty of the next.
+ - Nails didn’t hold God to a cross. Love did.
+ - The lack of God-centeredness leads to self-centeredness.
+ - Anger is the noise of the soul; the unseen irritant of the heart; the relentless invader of silence.
+ - Indeed, baptism is a vow, a sacred vow of the believer to follow Christ. Just as a wedding celebrates the fusion of two hearts, baptism celebrates the union of sinner with Savior.
+ - Today’s belief is tomorrow’s behavior. If you want to be happier person tomorrow, sow seeds of happiness today.
+ - Though the Bible was written over sixteen centuries by at least forty authors, it has one central theme-salvation through faith in Christ.
+ - To live as God’s child is to know that you are loved by your Maker not because you try to please him and succeed, or fail to please him and apologize, but because he wants to be your Father. Nothing more.
+ - Jesus gives us hope because He keeps us company, has a vision and knows the way we should go.
+ - Our God is abundant in love and steadfast in mercy. He saves us, not because we trust in a symbol, but because we trust in a Savior.
+ - Be quick to pray. Stop talking to yourself. Talk to Christ.
+ - A book should be a garden that fits in the hands. Word-petals of color. Stems of strength. roots of truth. Turn a page and turn the seasons. Read the sentence and enjoy the roses.
+ - When God looks at you, he doesn’t see you; he sees the One who surrounds you. That means that failure is not a concern for you. Your victory is secure.
+ - Worry is to joy what a Hoover vacuum cleaner is to dirt: might as well attach your heart to a happiness-sucker and flip the switch.
+ - Grace is God as heart surgeon, cracking open your chest, removing your heart – poisoned as it is with pride and pain – and replacing it with his own.
+ - Are you on the eve of change? Embrace it. Accept it. Don’t resist it. Change is not only a part of life, change is a necessary part of God’s strategy. To use us to change the world, he alters our assignments.
+ - People are watching the way we act, more than they are listening to what we say.
+ - If we think that this life is all there is to life, then there is no interpretation of our problems, our pain, not even of our privileges. But everything changes when we open up to the possibility that God’s story is really our story too.
+ - Even though you may not understand how God works, you know he does.
+ - We live in the most multicultural, multiracial, multiethnic America ever, and I get the sense that because of that reality so many of us are turning nativist.
+ - We act like God’s only good when the outcome is good. We say, ‘We’ve got a good God because I’ve got a good job.’ But what if I don’t have a good job? Does that mean God’s not good anymore?
+ - God leads us. God will do the right thing at the right time. And what a difference that makes.
+ - No one can pray and worry at the same time. When we worry, we aren’t praying. When we pray, we aren’t worrying.
+ - On the eve of the cross, Jesus made his decision. He would rather go to hell for you than go to heaven without you.
+ - It’s okay to rest. Jesus fights when you cannot.
+ - Your serenity matters to heaven. God’s presence encapsulates your life.
+ - When it comes to Christ, you’ve got to do the same. Call him crazy, or crown him as king. Dismiss him as a fraud, or declare him to be God. Walk away from him, or bow before him, but don’t play games with him.
+ - Gratitude lifts our eyes off the things we lack so we might see the blessings we possess.
+ - Never underestimate the power that comes when a parent pleads with God on behalf of a child.
+ - Others have promised and failed. But God has promised and succeeded. He loves you with an unfailing love.
+ - The purpose of the Bible is simply to proclaim God’s plan to save His children. It asserts that man is lost and needs to be saved. And it communicates the message that Jesus is the God in the flesh sent to save His children.
+ - You’re never without hope, because you’re never without prayer.
+ - Philosophers can debate the meaning of life, but you need a Lord who can declare the meaning of life.
+ - We need hope. There’s nothing worse than to live a life of despair. For a person to have no hope just sucks the blue out of every sky.
+ - My thinking is that miracles exist to reveal God, but miracles don’t exist for God to do me any favors.
+ - God loves us too much to indulge our every whim.
+ - God, the Master Weaver. He stretches the yarn and intertwines the colors, the ragged twine with the velvet strings, the pains with the pleasures. Nothing escapes his reach.
+ - Greed is not defined by what something costs; it is measured by what it costs you. If anything costs you your faith or your family, the price is too high. Such is the point Jesus makes in the parable of the portfolio.
+ - When you give a gift to one of God’s children, you give a gift to God.
+ - The worship of safety emasculates greatness.
+ - Hope is not a granted wish or a favor performed; no it is far greater than that. It is a zany, unpredictable dependence on a God who loves to surprise us out of our socks.
+ - To have a pure heart, we must submit all thoughts to the authority of Christ. If we are willing to do that, he will change us to be like him.
+ - Worship is the thank you that can’t be silenced.
+ - Faith is the bird that sings while it is yet dark.
+ - God will use your mess for good. We see a perfect mess; God sees a perfect chance to train, test, and teach.
+ - God is not a miser with his grace. Your cup may be low in cash or clout, but it is overflowing with mercy.
+ - Prayer pushes us through life’s slumps, propels us over the humps and pulls us out of the dumps. Prayer is the oomph we need to get the answers we seek.
+ - I believe a personal relationship with God is healthy, but organized religion has potential for danger, in whatever faith.
+ - In a world of upward mobility, choose downward servility.
+ - Yes, your family history has some sad chapters. But your history doesn’t have to be your future. The generational garbage can stop here and now.
+ - God’s solution is a prayer away!
+ - You are God’s child. His creation. Destined for heaven. You are a part of his family.
+ - What makes a Christian a Christian is not perfection but forgiveness.
+ - Mark it down. You will never go where God is not.
+ - To see sin without grace is despair. To see grace without sin is arrogance. To see them in tandem is conversion.
+ - I don’t think God is a gender. He presents himself as a father but he comes to us with the tenderness of a mother. In some of the parables, he is the housewife who cleans the house looking for the lost coin.
+ - God would prefer we have an occasional limp than a perpetual strut.
+ - Demanding respect is like chasing a butterfly. Chase it, and you’ll never catch it. Sit still, and it may light on your shoulder.
+ - Those in the circle of Christ had no doubt of his love; those in our circles should have no doubt about ours.
+ - In our faith we follow in someone’s steps. In our faith we leave footprints to guide others. It’s the principle of discipleship.
+ - You are who God says you are. Spiritually alive. Heavenly positioned. Connected to the Father. A billboard of mercy. An honored child.
+ - When you keep the porch light on for the prodigal child, you do what God does every single moment.
+ - God’s love supply is never empty.
+ - As long as you hate your enemy, a jail door is closed and a prisoner is taken. But when you try to understand and release your foe from your hatred, then the prisoner is released and that prisoner is you.
+ - When a Christian stops growing, help is needed. If you are the same Christian you were a few months ago, be careful.
+ - Compassion gives us a common ground to stand on regardless of your faith background. It gives us a chance to stand shoulder-to-shoulder rather than go fist-to-fist with somebody.
+ - The most powerful life is the most simple life. The most powerful life is the life that knows where it’s going, that knows where the source of strength is; it is the life that stays free of clutter and happenstance and hurriedness.
+ - When we see death, we see disaster. When Jesus sees death, he sees deliverance!
+ - The greater your cares, the more genuine your prayers.
+ - To call yourself a child of God is one thing. To be called a child of God by those who watch your life is another thing altogether.
+ - Whether or not storms come, we can not choose. But where we stare during a storm, that we can.
+ - Have you been called to go out on a limb for God? You can bet it won’t be easy. Limb-climbing has never been easy. Ask Joseph. Or, better yet, ask Jesus. He knows better than anyone the cost of hanging on a tree.
+ - Sin is not an unfortunate slip or a regrettable act; it is a posture of defiance against a holy God.
+ - Christ became one of us to redeem all of us.
+ - God’s mercies are new every morning. Receive them.
+ - The next time you are called to suffer, pay attention. It may be the closest you’ll ever get to God.
+ - Bitterness is the trap that snares the hunter.
+ - The claims of Christ are always on trial, and we remain under oath! We are his witnesses for truth.
+ - If God were only mighty, we would Salute Him. But since he is Merciful and Mighty, we can approach Him.
+ - To the loved, a word of affection is a morsel; but to the love-starved, a word of affection can be a feast.
+ - When grace happens, we receive not a nice compliment from God but a new heart. Give your heart to Christ, and he returns the favor.
+ - Unhappiness on earth cultivates a hunger for heaven. By gracing us with a deep dissatisfaction, God holds our attention.
+ - Do you believe that God is near? He wants you to. He wants you to know that He is in the midst of your world. Wherever you are as you read these words, He is present.
+ - See your enemies, not as God’s failures, but as God’s projects.
+ - Don’t quit. For if you do, you may miss the answer to your prayers.
+ - If we are to be just like Jesus, we must have regular time of talking to God and listening to his Word.
+ - Apple trees bear apples, wheat stalks produce wheat, and forgiven people forgive people.
+ - Discover this mystery: as you help others face their days, you put life into your own. And life is exactly what many people need.
+ - We are presumptuous not when we marvel at His grace, but when we reject it.
+ - God has enough grace to solve every dilemma you face, wipe every tear you cry, and answer every question you ask.
+ - Were it not for the shepherds, there would have been no reception. And were it not for a group of stargazers, there would have been no gifts.
+ - When God gives an assignment, he also gives the skill. Study your skills, then, to reveal your assignment.
+ - Unmet expectations are tough when it’s your wife or your husband, but it’s really tough when it’s God. And yet, it can be a time of growth and a time of faith, a time of understanding who God is.
+ - If we can understand that death is not the end but is really a transition into the next life, the great part of life, that frees us up into receiving God’s courage and his help.
+ - When words are most empty, tears are most apt.
+ - Aging is God’s idea. It’s one of the ways he keeps us headed homeward.
+ - God has the final word on your life and His word is grace.
+ - When we submit to God’s plans, we can trust our desires. Our assignment is found at the intersection of God’s plan and our pleasures.
+ - But it is in storms that God does his finest work, for it is in storms that God has our keenest attention.
+ - A season of suffering is a small assignment when compared to the reward. Rather than begrudge your problem, explore it. Ponder it. And most of all, use it. Use it to the glory of God.
+ - First, God does not send people to hell. He simply honors their choice. Hell is the ultimate expression of God’s high regard for the dignity of man. He has never forced us to choose Him, even when that means we would choose Hell.
+ - Each one of us should lead a life stirring enough to start a movement.
+ - Immerse yourself in the curriculum of grace.
+ - When all of earth turns against you, all of heaven turns toward you.
+ - Da Vinci painted one Mona Lisa. Beethoven composed one Fifth Symphony. And God made one version of you.
+ - Which would you prefer? To be king of the mountain for a day? Or to be a child of God for eternity?
+ - We may speak about a place where there are no tears, no death, no fear, no night; but those are just the benefits of heaven. The beauty of heaven is seeing God.
+ - There is a time for risky love. There is a time for extravagant gestures. There is a time to pour out your affections on one you love. And when the time comes – seize it, don’t miss it.
+ - Grace is not blind. It sees the hurt full well. But chooses to see God’s forgiveness even more.
+ - Honesty and vulnerability endear us to people; they don’t endanger us in our relationship.
+ - You are heaven’s Halley’s comet; we have one shot at seeing you shine.
+ - How does God deal with your bitter heart? He reminds you that what you have is more important than what you don’t have. You still have your relationship with God. No one can take that.
+ - There is nothing on earth that can satisfy our deepest longing. We long to see God. The leaves of life are rustling with the rumor that we will – and we won’t be satisfied until we do.
+ - You’ll regret opening your mouth. You’ll rarely regret keeping it shut.
+ - Just when the truth about life sinks in, His truth starts to surface. He takes us by the hand and dares us not to sweep the facts under the rug but to confront them with him at our side.
+ - The only mistake is not to risk making one.
+ - Bread of Life? Jesus lived up to the title. But an unopened loaf does a person no good. Have you received the bread? Have you received God’s forgiveness?
+ - Are you weary? Catch your breath. Are you strong? Reserve passing judgment on the tired.
+ - Prayer is the hand of faith on the door knob of your heart, inviting Jesus to enter.
+ - It’s God’s job to run the world. Sometimes we accomplish more by doing less.
+ - Ggrace is God’s best idea – it’s His decision to ravage people by love, to rescue passionately, and to restore justly.
+ - God will use whatever he wants to display his glory. Heavens and stars. History and nations. People and problems.
+ - Worry is irrelevant. It alters nothing. When was the last time you solved a problem by worrying about it?
+ - We forget that IMPOSSIBLE is one of God’s favorite words.
+ - God cast you in His play, wrote you into His story. He has a definite direction for your life. Fulfill it and enjoy fulfillment. Play the part God prepared for you and get ready for some great days.
+ - You present a challenge to Satan’s plan. You carry something of God within you, something noble and holy, something the world needs – wisdom, kindness, mercy, skill. If Satan can neutralize you, he can mute your influence.
+ - Christ lived the life we could not live and took the punishment we could not take to offer the hope we cannot resist.
+ - Let’s be the people who look at the hurting until we hurt with them. No hurrying past, turning away, or shifting of eyes. No pretending or glossing over. Let’s look at the face until we see the person.
+ - God’s delight is received upon surrender, not awarded upon conquest.
+ - One of the things I discover a lot in marriage counseling is the husband or wife trying to get their spiritual thirst quenched by their partner; I think that’s a real common mistake that we make.
+ - Being religious without knowing the cross is like owning a Mercedes with no motor. Pretty package, but where is your power?
+ - You don’t have wisdom for tomorrow’s problems. But you will tomorrow. You don’t have resources for tomorrow’s needs. But you will tomorrow. You don’t have courage for tomorrow’s challenges. But you will when tomorrow comes.
+ - There are certain weights in life you simply cannot carry. Your Lord is asking you to set them down and trust Him. What do you say we take God up on His offer?
+ - You can endure change by pondering His permanence.
+ - A Christian in his surroundings should encourage everyone to be better, instead of being the one who stoops to be like everyone else.
+ - God has no cousins, only children.
+ - Worry divides the mind.
+ - Choose satisfaction over salary. Better to be happy with little than miserable with much.
+ - What causes us to think of prayer as the last option rather than the first? I can think of two reasons: feelings of independence and feelings of insignificance.
+ - Refusing to forgive is like ingesting a lethal dose of poison and hoping it kills my enemy.
+ - One of the greatest gifts we can give people is the hope that their death is nothing to fear – you know, not that it has no fear in it, but the promise of scripture is that God will lead us through the valley of the shadow of death.
+ - He promises a lamp unto our feet, not a crystal ball into the future.
+ - God is using my struggle. My struggle is the answer to the prayer.
+ - You can climb too high for your own good. Linger too long at high altitudes and your hearing dulls and your eyesight dims.
+ - The duty of the branch is to cling to the vine.
+ - Your home is your giant-size privilege, your towering priority.
+ - His is a joy which consequences cannot quench. His is a peace which circumstances cannot steal.
+ - Aren’t you glad that God doesn’t give you only that which you remember to thank him for?
+ - The sinless One took on the face of a sinner so that we sinners could take on the face of a saint.
+ - Courage does not panic; it prays. Courage does not bemoan; it believes. Courage does not languish; it listens.
+ - The purpose of the Bible is simply to proclaim God’s plan to save His children.
+ - Giants. We must face them. Yet we need not face them alone.
+ - When no one is watching, live as if someone is.
+ - Want to snatch a day from the manacles of boredom? Do overgenerous deeds, acts beyond reimbursement. Kindness without compensation. Do a deed for which you cannot be repaid.
+ - If hurts were hairs, we’d all look like grizzlies.
+ - God grants us an uncommon life to the degree we surrender our common one.
+ - Baptism is bowing before the Father and letting him do his work.
+ - The cross is where God forgave his children without lowering his standards.
+ - God wants us to know we are saved, for saved people are dangerous people, willing to face off with the world, unafraid of the consequences since they know that, whatever happens, they will have eternal life.
+ - God is near whether you sense His presence or not.
+ - You will be at your best forever, Even now you have good moments. Occasional glimpses of your heavenly self. When you change your baby’s diaper, forgive your boss’s temper, tolerate your spouse’s moodiness, you display traces of saintliness.
+ - When we’re in the middle of a difficult time, we have to speak against that lie that says, “God is not here.” We have to draw near to God.
+ - You may go days without thinking of God, but there’s never a moment when He’s not thinking of you.
+ - Staying engaged with God is absolutely essential for getting through a tough time.
+ - Vengeance fixes your attention on life’s ugliest moments. Is this where you want to look? Remember: God dispenses perfect justice.
+ - You may not be down to your final heartbeat, but you may be down to your last paycheck, solution, or thimble of faith. Each sunrise seems to bring fresh reasons for fear.
+ - I think that a church should be setting the pace for social justice.
+ - How we handle our tough times stays with us for a long time.
+ - Faithful servants have a way of knowing answered prayer when they see it, and a way of not giving up when they don’t.
+ - Want to learn to forgive? Then consider how you’ve been forgiven.
+ - But by faith you look in the mirror and see a robed prodigal bearing the ring of grace on your finger and the kiss of your Father on your face.
+ - There is a canyon of difference between doing your best to glorify God and doing whatever it takes to glorify yourself. The quest for excellence is a mark of maturity. The quest for power is childish.
+ - As we meditate on Christ’s life, we find strength for our own.
+ - You can do something no one else can do in a fashion no one else can do it.
+ - If you concern yourself with your neighbor’s talents, you’ll neglect your own. But if you concern yourself with yours, you could inspire both!
+ - Don’t see yourself as a product of your parents DNA, but rather as a brand new idea from heaven.
+ - Blessed are those who know what on earth they are here on earth to do and set themselves about the business of doing it.
+ - The magical dust of Christmas glittered on the cheeks of humanity ever so briefly, reminding us of what is worth having and what we were intended to be.
+ - You may be transferred, enlisted, commissioned, reassigned, or hospitalized – but brand this on your heart – you can never go where God is not.
+ - You know people just assume, ‘Well, all my life I’ll be a worrier.’ That doesn’t have to be true. There’s a way to drink from God’s presence so much that worry begins to dissipate.
+ - When you read that our heavenly home is similar to a bride, tell me, doesn’t it make you want to go home.
+ - A split second is nothing compared to twenty-four hours. On God’s clock you’re in the middle of your millisecond. Compared to eternity, what is seventy, eighty, ninety years?
+ - Most of my sermons are inspirational, and I believe people need that encouragement.
+ - Is it possible for an unbaptized believer to be saved? Yes, definitely. Should every believer be baptized? Yes, definitely.
+ - All my books come out of sermons, and I’m really a pastor who writes rather than a writer who pastors.
+ - Every faith has its story; every faith has its roots.
+ - Scot McKnight stirs the treasures of our Lord’s life in an engaging fashion. He did so with The Jesus Creed, and does so again with 40 Days Living the Jesus Creed. Make sure this new guide for living is on your shelf.
+ - The Bible is God’s Word given in man’s language.
+ - Every movie really does have a message. Somebody somewhere is trying to make a point or advance a cause or promote their agenda. There’s nothing wrong with that. They try to do so in an entertaining fashion.
+ - The ultimate solution to POVERTY is found in the COMPASSION of God’s people.
+ - What is this love that endures decades, passes on sleep, and resists death to give one kiss? Call it agape love, a love that bears a semblance of God’s.
+ - We will never be cleansed until we confess we are dirty. And we will never be able to wash the feet of those who have hurt us until we allow Jesus, the one we have hurt, to wash ours.
+ - Actions in heaven begin when someone prays on earth. What an amazing thought!
+ - I believe for God not to allow pain to happen in the world is for Him to extract free will from the world.
+ - God has forgiven you; you’d be wise to do the same.
+ - What the new mate, sports car, or unexpected check could never do, Christ says, “I Can.” You’ll love how he achieves it. He reconnects your soul with God.
+ - We just need the government to be that greenhouse that permits our faith to grow.
+ - When you teach on a familiar text, you’re capitalizing on common knowledge. When you teach on an unfamiliar text, you’re having to build a bridge of understanding, and we need to do that as well.
+ - Religion is intended to facilitate hope and faith. Much like a path is intended to facilitate a journey.
+ - Give a man religion without reminding him of his filth, and the result will be arrogance in a three- piece suit.
+ - Sentences are like just caught fish. Spunky today, stinky tomorrow.
+ - Fear may fill our world, but it doesn’t have to fill our hearts.
+ - I get one hour, really 25 minutes in a sermon on a weekend, to combat all the hours of the week that people are told you are what you have through billboards, commercials, and sitcoms, and so forth.
+ - Your requests change history because your prayers change God!
+ - The worst part of all is that, without forgiveness, bitterness is all that is left.
+ - God’s goal is not to get what you want; it is to get you what you need.
+ - I don’t have any desire to retire in the sense of not doing anything. As long as the Lord gives me strength I want to keep writing and keep preaching.
+ - A few songs with Him might change the way you sing. Forever.
+ - God is not troubled by one who is conservative or liberal, and He certainly never inclines His ear toward a donkey or an elephant.
+ - Forgive and give as if it were your last opportunity.
+ - It’s against God’s nature to remember forgiven sins.
+ - What to change your life? Begin by saying, “The Lord is my shepherd.”
+ - While we appreciate our ancestry as Americans or even our ethnic ancestry and our color of skin, we believe that our real citizenship is in Heaven.
+ - Those who successfully go through tough times do so because they keep insisting.
+ - God comes on his own terms. He comes when commands are revered, hearts are clean, and confession is made.
+ - Jesus spoke to those who had turned their backs on history. He spoke to those who had blatantly ignored sign after sign, servant after servant.
+ - Never let the church become a place where it’s just a Las Vegas display place for you to show off.
+ - The wonder of a free-market society is that we can all do our best to package our message in an entertaining fashion and present it – and then everybody votes with their footsteps.
+ - The Land of Promise is for those who simply remain to the end.
+ - There is no way our little minds can comprehend the love of God. But that didn’t keep him from coming.
+ - It’s nothing mystical, necessarily. It’s nothing secretive. It’s just what we do with our body we do with our soul.
+ - Give your problems to Christ before your problems get to you.
+ - Praise is the highest occupation of any being.
+ - It seems to me that election season is just a Petri dish for anger and cynicism.
+ - All of my sermons become books. I’ve been accused of having no unpublished thought. I encourage pastors to do that. I think there are so many great sermons that never really get circulation.
+ - Forgiveness is choosing to see your offender with different eyes.
+ - Not everybody can create a foundation that’s worth a billion dollars, but all of us can figure out those things we do. I really think God loves us too much to give us an assignment we don’t enjoy doing.
+ - Deflating inflated egos is so important to God that He offers to help.
+ - Where we might think of sin as slip-ups or missteps, God views sin as a godless attitude that leads to godless action.
+ - Real courage embraces the twin realities of current difficulty and ultimate triumph.
+ - We preachers, people entrust us with their time week after week. I’m still stunned that people will let me talk to them for thirty minutes about anything I want to. It’s a wonderful treasure that we are to steward.
+ - Live in such a way that the world will be glad you did.
+ - When we put someone in our jail cell of hatred, we are stuck guarding the door.
+ - What we realize is number one, people want to know what the Bible says. In their heart, they want to know the Bible but it is just hard to understand the big picture of it. And number two, they want to know where they plug in.
+ - I’m a preacher first and a writer second, although my role is changing a bit at the church. I’m going to bring on a co-teacher, but I’ll still be a pastor and a writer.
+ - The one thing that I cannot do without each day is hope.
+ - If you have a pulse, you’re going to have pain.
+ - Christ entered our world. As a result, we can enter His.
+ - You see, it’s one thing to accept Him as Lord, another to recognize Him as Savior – but it’s another matter entirely to accept Him as Father.
+ - There’s something about compassion that causes society to say, ‘We’re going to take this person seriously.’ Take Mother Teresa. She was confrontational on abortion, but she wasn’t rejected by society.
+ - Of all the things you must earn in life, God’s unending affection is not one of them. You have it.
+ - If you’re looking for a place with no change, try a soda machine.
+ - Hiding out with the enemy brings only temporary relief.
+ - Compassion in evangelical churches is out of balance. When I talk about it, I get a lot of glazed expressions.
+ - We will find grace to help us when we need it.
+ - Scripture often reminds us that it’s not enough to have ears – we must use them.
+ - God does not relish our sufferings, but He delights in our development.
+ - Don’t be defined by your failures, be refined by them.
+ - Though we may not be able to see His purpose or His plan, the Lord of heaven is on His throne and in firm control of the universe and our lives.
+ - Has worrying about tomorrow every changed it?
+ - It’s up to me to promote my faith and somebody else to promote theirs. Let the government just protect our right to do so.
+ - Sometimes I wonder if we don’t see Christ’s love as much in the people he tolerated as in the pain he endured.
+ - The maker of the stars would rather die for you than live without you. And that is a fact. So if you need to brag, brag about that.
+ - I believe you select a president who best represents what you think are the values that God wants us to have.
+ - My book centers in on the New Testament, the goal being to help a person who wants to understand the Bible to see how what God did as revealed in the New Testament will reveal to them their own personal story.
+ - We have the freedom to pray and the freedom to love the God of our heart. And we have been forgiven by the only one who could condemn us. We are truly free.
+ - No one can teach your child like you can. No nanny, Bible school teacher, aunt, or uncle has your authority. What a phenomenal privilege is yours.
+ - The state of your heart dictates whether you harbor a grudge or give grace, seek self-pity or seek Christ, drink human misery or taste God’s mercy.
+ - Love the one who wears your ring. And cherish the children who share your name. Succeed at home first.
+ - God’s greatest blessings often come costumed as disasters. Any doubters need to do nothing more than ascend the hill of Calvary.
+
+406 quotes

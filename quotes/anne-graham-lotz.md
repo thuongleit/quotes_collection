@@ -1,0 +1,51 @@
+ - If you feel far from God right now, guess who moved? You’re only a decision away from reconnecting.
+ - Faith is like a tender plant, rooted in Christ alone, watered by the Spirit and the Word, strengthened by the winds of adversity and the sunshine of blessing.
+ - I think of religion as man’s attempt to reach God, and you can’t do that.
+ - For years we’ve been telling God to get out of our schools, to get out of our government and to get out of our lives. And being the gentleman He is, I believe He has calmly backed out. How can we expect God to give us His blessing and His protection if we demand He leave us alone?
+ - If God can bring blessing from the broken body of Jesus and glory from something that’s obscene as the cross, He can bring blessing from my problems and my pain and my unanswered prayer.
+ - If Jesus forgave those who nailed Him to the cross, and if God forgives you and me, how can you withhold your forgiveness from someone else?
+ - It’s sobering to contemplate how much time, effort, sacrifice, compromise, and attention we give to acquiring and increasing our supply of something that is totally insignificant in eternity.
+ - I’m living my life for an audience of one. I live my life to please God. And I believe if He’s pleased, that people like my mother and my daddy, my grandparents, you know, my husband, my children, they’ll be pleased.
+ - I need the spiritual revival that comes from spending quiet time alone with Jesus in prayer and in thoughtful meditation on His Word.
+ - Just like you need to strengthen your core physically with exercise, you also need to strength your core spiritually.
+ - Our ultimate aim in life is not to be healthy, wealthy, prosperous, or problem free. Our ultimate aim in life is to bring glory to God.
+ - When your spirit is heavy, when your heart is broken, when your burdens seem unbearable – trust Him. Look to Him.
+ - I want to take my focus off myself and focus on God. It’s like setting your spiritual compass so no matter which way you turn during the day, whatever comes up, then my thoughts go back to Him and whatever He said that morning.
+ - The blessing of my mother is that she is so interested, she is so bright, she never complains – the joy of the Lord just bubbles out of her. Anybody who’s in her presence is blessed to be there.
+ - When I put my faith in Jesus Christ as my savior, and I asked him to forgive and to come into my life, and He does – from that moment forward I have established a personal relationship with God that I have to develop, you know, through Bible reading and prayer, and living my life for him.
+ - When Jesus says you must leave your family to follow Him, he doesn’t necessarily mean physically. He means leave your dependence on them, make an emotional break with them.
+ - You can look forward with hope, because one day there will be no more separation, no more scars, and no more suffering in My Fathers House. It’s the home of your dreams!
+ - Do you sometimes feel that you just can’t take one more thing? Even in your misery, be mindful that the very weight of your burdens and the intensit going to use in your life to trigger an experience of personal revival.
+ - If I can center down and strengthen the core of who I am, and the core of who I am is my relationship with God, then that helps me maintain peace deep down. If I can maintain a healthy spiritual core, I think that’s enormous for helping the stress.
+ - The first secret to loving others is to immerse yourself in a love relationship with God the Father, God the Son, and God the Holy Spirit – and abide there.
+ - The organized church sometimes puts boundaries on us that the Bible doesn’t. So I’m living my life for an audience of one. I live my life to please God. Some people won’t understand, but I don’t give an account to some people.
+ - When the storms of life come, if they come to me personally, to my family or to the world, I want to be strong enough to stand and be a strength to somebody else, be shelter for somebody else.
+ - I’ll tell you what, I love my daddy. And he’s so special. He’s meant so much to me, so it’s not a thorn in my side to be known as Billy Graham’s daughter. It’s a privilege.
+ - God can change our circumstances, but sometimes He waits for us to show real desire for change as well as our faith in Him.
+ - Suffering may be someones fault or it may not be anyones fault. But if given to God, our suffering becomes an opportunity to experience the power of God at work in our lives and to give glory to Him.
+ - One misconception is that if we follow God in the life of faith, and that means obedience – that we read His Word, we’re obedient, we pray, we go to church, we do the right things – that somehow His blessing means we’re going to be okay.
+ - When life is good and we have no problems, we can almost let ourselves believe we have no need for God. But in my experience, sometimes the richest blessings come through pain and hard things.
+ - Abraham wasn’t perfect. He failed, made mistakes. But, he would go back, get right with God, and then just keep moving forward. He didn’t quit when things got hard. He just kept on going. And everywhere he went, God was there. God was with him.
+ - The kind of trust God wants us to have cannot be learned in comfort and ease.
+ - I get up earlier than my husband and I intentionally spend time in prayer and Bible reading just to focus myself for the day, because the days get crazy.
+ - I do not believe evil men are led by God. I believe there are plots of evil. We live in a sinful world, and there are a lot of things that happen as a result of sin.
+ - Our love for Christ is more important to Him than all of our service to Him. Strict obedience and serveice are not enough. Love for Jesus must come first.
+ - Sometimes when you’re suffering really intensely, you can’t pray for yourself.
+ - There is nothing at all that God won’t forgive.
+ - Knowing where you are going takes the uncertainty out of getting there.
+ - In the Bible, ordination – I don’t see that in the Scripture. In the Bible, it’s whether you’re filled with the Holy Spirit, whether you’re anointed by God, whether you’re called by God, whether you’re obedient to Him. I want to be those things, but I don’t see any purpose for me in being ordained.
+ - There were so many outstanding women in scripture that were leaders. And, you know, the organized church sometimes puts boundaries on us that the Bible doesn’t.
+ - Don’t concentrate on what you lack, concentrate on what you have. Then give all of it to Jesus for His use.
+ - Often, in the midst of great problems, we stop short of the real blessing God has for us, which is a fresh vision of who He is.
+ - Anything John Stott says is worth listening to. Anything he writes is worth reading. Basic Christianity is not only a classic must-read for every believer; it is truly a blessing preserved on the written page for the enrichment of this generation and those to come.
+ - My life’s goal is not to write books; my life’s goal is to know God better today. The neat thing about a goal like that is you can achieve it. Faith is constant; it’s a relationship.
+ - Death is a door. When we close our eyes in this life, we will open our eyes to Jesus.
+ - God cannot be less than Himself. And God is good. And active. And faithful. And He cares.
+ - It was when my children were 5, 3 and 10 months old that I just felt the desperate need to get to know God through the pages of my Bible. And as a result, I started a Bible class in my city for the primary purpose of being in it.
+ - Religion can be one of the greatest impediments to finding God.
+ - Abraham is such a fascinating figure. Three world religions – Judaism, Christianity, and Islam – all claim him as a patriarch. He was raised in a religious home. And yet he rejected religion in order to pursue a personal relationship with God.
+ - For myself I never plan the way I deliver a message. I do prepare the content, and then I open my mouth and give it. And so the expression, the gestures, the emphasis on words, all of that just comes.
+ - I felt that one of the things God impressed on me was that I needed to start a nonprofit corporation, so that any money that came my way, whether it was an honorarium, a book sale or a gift, would go into a nonprofit ministry.
+ - If our lives are easy, and if all we ever attempt for God is what we know we can handle, how will we ever experience His omnipotence in our lives?
+
+49 quotes

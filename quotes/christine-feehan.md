@@ -1,0 +1,79 @@
+ - Here’s to many more firsts and many more great memories.
+ - The trouble is not really in being alone, it’s being lonely. One can be lonely in the midst of a crowd, don’t you think?
+ - I look at you, and I see the most beautiful woman on the face of the earth. Inside and out you are beautiful. I know you better than anyone else could ever know you, because I can see into your thoughts and read your memories. The very light in you, our tremendous capacity for loving, humbles me.
+ - Life gives us choices. You either grab on with both hands and just go for it, or you sit on the sidelines.
+ - Your name is Lily Whitney. You are the woman I want at my side night and day. I want you to be the mother of my children someday. I want you for my lover. I want you for the person I turn to when the world gets to be too much.
+ - You’re insane, but you’re my kind of man.
+ - It’s hard to feel desire when you don’t feel desirable.
+ - He wasn’t a hero. He wasn’t the man who stepped forward and saved the innocent. He was lost himself. Shadows had invaded a long time ago and stolen his life. But he would give anything he had left to be the man who found a way to save Judith.
+ - He was dead. He just didn’t know it yet.
+ - If you are a vampire, then a vampire is not the creature of the legends.
+ - Maybe you are already lost and just do not know it.
+ - I’m an observer. I read about life. I research life. I find a corner in a room and melt into it. I can become invisible. It’s an art, and I am a wonderful practitioner.
+ - She was temptation wrapped in casual elegance.
+ - Sestrilla, hafelina Jue amourasestrilla Awou jue selaviena En patre jue Translation: Beloved one, little cat I love you for all time In this time And all others.
+ - And maybe that was love. Being so vulnerable and allowing someone else in so far they could hurt you, but they also give you everything.
+ - She didn’t know how to love, to give herself to someone, to out herself in someone else’s keeping and take him into hers. She didn’t trust anyone with her heart – or the darker places of her soul.
+ - I made the decision fifteen years ago that you were my life. My everything. You were with me in my dreams my dark lover my friend and confidant.
+ - I killed Freddie the vamp like twenty times, but he wouldn’t die. – Natalya Shonski.
+ - Do you see, Solange, that you are the only woman in my world? The one woman who can choose life or death for me. You are the center of my world and you always will be. When I tell you that your pleasure is mine, I mean that literally.
+ - I want you forever, Kate. I want to grow old and have you here in my arms. I want children. I’ve wanted you for so long. I don’t think that’s about to change.
+ - Torture can be a two edged sword.
+ - You’re mine, Isabeau. You’ll always be mine. Make no mistake about it. Whether you choose to forgive me and give us a second chance, or you don’t, you’ll be my only.
+ - Betrayal is never easy to handle and there is no right way to accept it.
+ - Nicholas wanted to believe in fairy tales. She’d read her share, hoping for miracles, but in the end, there was no hundred acre wood to play in with her little stuffed animals. There was pain and crushing disillusionment and betrayal.
+ - They called each other family and that’s what they were – sisters. Many people in the world had family of the heart, kin by choice rather than by blood, and hers had come along in her darkest hour and saved her life.
+ - If you need to talk about your childhood, you’re safe with me. If you need to break into a million pieces, I’m right here, Lev. I’ll find them all, I’m good at details, and I’ll put you back together. You’re safe here.
+ - Of course I can do this. I’m pregnant, not brain-damaged. My condition doesn’t change my personality.
+ - I’ll be damned if I apologize for the choices I’ve made. They were hard decisions, but I had good reasons for making them.
+ - Don’t worry, now that I know about your little ego problem, I’ll do my best to look all gushy when you pound you chest.
+ - I’m putting up a great front, then because I feel like I’m breaking apart inside.
+ - The real question is, can you love the real me? Not the perfect person you want me to be, not that image you had of me, but who I really am.
+ - She didn’t want soft and gentle. She needed his rough possession, claiming her, branding her, taking her in a firestorm of heat and flame that would end the world around them, leaving them nothing but ashes, clean and fierce and forever welded together.
+ - For the first time in his existence, he knew he was drowning and he wasn’t thinking about survival.
+ - I know what it’s like to battle everyday of my life, just for acceptance, just to survive.
+ - His energy is very malevolent. Don’t get sick or I’ll start asking you if the baby is all right in front of him.
+ - The real knife to a man’s heart was his woman’s tears.
+ - Someone needs to drag you kicking and screaming into this century.
+ - I just want some time, Mikhail, to think things through. It’s frightening, the way I am about you. I think about you every minute; I want to touch you, just to know I can, to feel you beneath my fingers. It’s as if you crawled into my head and my heart, even my body, and I can’t get you out.
+ - She was crawling out from under the huge tour bus when he first caught sight of her. She was small, like a child.
+ - There were a thousand secrets in her eyes, a thousand wounds. A lifetime of distrust and betrayal. Isolation. How did one overcome such things?
+ - I am surrounded by my family, my beloved grandchildren, and my pack of dogs.
+ - He found a stuffed animal, a fluffy wolf with bright blue eyes, and was immediately drawn to it. “I want to get this for her. It is telling me it needs to go home with us.” Francesca laughed at him.
+ - You are the leader here. Obviiusly your skills are far superior to mine. I don’t think I could fit into your life. I’m a loner, not the first lady.
+ - My camping days are over, but I might consider glamping.
+ - Don’t cater to stupidity.
+ - But I’m not any better at relationships than you are. We’ll find our way together, even if we’re fumbling around in the dark for a while.
+ - I have traveled all over the world and gone to the highest peaks, and the densest jungles. The Carpathain Mountians will always be my homeland, but my home is a woman. Solange Sangria. You are home to me. Your body is my home. Your mind. Your heart and soul. It matters little to me where we are.
+ - It’s your way of fighting. You refuse to engage and then you can’t lose.
+ - He worked at stealing her heart to replace the one she’d taken from him.
+ - He wanted to wake up every morning to her. Go to sleep with his body wrapped tightly around hers. He wanted her to have his child – his children. He knew he wanted to live out the rest of his life with her by his side and when he died, he wanted to die in her arms.
+ - There was a certain feminine satisfaction in having the last word, delivering her line smartly, and breaking the connection between them quickly and decisively.
+ - Sarah, honey, I hardly think kidnappers are going to take the time to buy a memento of their stay. I could be wrong, but it seems rather unlikely.
+ - Jonas. Their rock. Shattered into so many shards. Holding himself together through the sheer force of will.
+ - You’re the kind of man my mother warned me about.
+ - I live on the beautiful Northern California coast. I have always loved hiking, whale watching and being outdoors.
+ - When Jackson used that particular tone of voice, men died, pure and simple.
+ - We can do anything you like. Just be with me.
+ - If I had a sense of humor, I’d be laughing right now.
+ - He rarely smoked, but once in a while, like now, when his world had been shaken, his woman nearly killed in front of his eyes, and he’d watched a house consume a man and spit him out, he figured a drag or two were appropriate.
+ - Are you ever going to kiss me without swearing first?
+ - You can’t turn the sheriff into a toad, Hannah. It’s against the rules. – Abbey Drake.
+ - One thing about Kane – he never did anything by halves.
+ - Before Elle had come into his life, he didn’t even know what tea was. Now it was a staple. Worse, he actually knew the differences in teas.
+ - You can’t be anything but who you are. I wouldn’t love you the same if you stopped being you. How do I change enough to accept that ruthless streak in you.
+ - Amanda Ashley is a master storyteller.
+ - We could get kinky and see how bats and rats make love, he suggested in a whisper, warm breath against her neck. You are a sick man, Jacques. Very, very sick.
+ - I write for the love of writing. If I never published another book, I would still be writing stories.
+ - He tasted passion. He tasted emotion. He tasted a world he’d never imagined, one he could never enter. It was right there in front of him, suddenly open to him. Unexpected. Exciting. Scary.
+ - It’s all well and good to look back after the fact and see what we should have done, but we rarely know what path is best when we take that first step.
+ - The most enjoyable part in writing a series is being able to visit a world I have created and revisit old friends. The challenges are making the book fresh and new for readers who have started from the beginning while still adding old information for new readers.
+ - They’re spreading out. Look unaware and sweet and innocent. It’s a little hard to look innocent when I’m as big as a house.
+ - If you allowed yourself to hear or feel amusement, you would hear and feel pain.
+ - Men always seemed to growl and sniff around each other, bristling over nothing, and just as suddenly become buddies at the least likely moments.
+ - If what he said was the truth, it broke her heart. If what he said was a lie, it was broken anyway.
+ - You can’t go back; I can’t go back either, but we can go on.
+ - For Lily, there was only her phantom lover, bold enough, arrogant enough, crazy enough to dare follow her here when he was in far more danger than she could ever be.
+ - Trust. Such an easy word. Such an impossible quality.
+
+77 quotes

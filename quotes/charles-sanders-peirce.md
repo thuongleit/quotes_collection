@@ -1,0 +1,69 @@
+ - The entire universe is perfused with signs, if it is not composed exclusively of signs.
+ - Every new concept first comes to the mind in a judgment.
+ - It is not knowing, but the love of learning, that characterizes the scientific man.
+ - The idea does not belong to the soul; it is the soul that belongs to the idea.
+ - There is a kink in my damned brain that prevents me from thinking as other people think.
+ - Bad reasoning as well as good reasoning is possible; and this fact is the foundation of the practical side of logic.
+ - Some think to avoid the influence of metaphysical errors, by paying no attention to metaphysics; but experience shows that these men beyond all others are held in an iron vice of metaphysical theory, because by theories that they have never called in question.
+ - It is a common observation that a science first begins to be exact when it is quantitatively treated. What are called the exact sciences are no others than the mathematical ones.
+ - There never was a sounder logical maxim of scientific procedure than Ockham’s razor: Entia non sunt multiplicanda praeter necessitatem. That is to say; before you try a complicated hypothesis, you should make quite sure that no simplification of it will explain the facts equally well.
+ - The pragmatist knows that doubt is an art which hs to be acquired with difficulty.
+ - My language is the sum total of myself.
+ - The method of authority will always govern the mass of mankind; and those who wield the various forms of organized force in the state will never be convinced that dangerous reasoning ought not to be suppressed in some way.
+ - The opinion which is fated to be ultimately agreed to by all who investigate, is what we mean by the truth, and the object represented in this opinion is the real. That is the way I would explain reality.
+ - All the greatest achievements of mind have been beyond the power of unaided individuals.
+ - And what, then, is belief? It is the demi-cadence which closes a musical phrase in the symphony of our intellectual life.
+ - It is certain that the only hope of retroductive reasoning ever reaching the truth is that there may be some natural tendency toward an agreement between the ideas which suggest themselves to the human mind and those which are concerned in the laws of nature.
+ - But the extraordinary insight which some persons are able to gain of others from indications so slight that it is difficult to ascertain what they are, is certainly rendered more comprehensible by the view here taken.
+ - The essence of belief is the establishment of a habit; and different beliefs are distinguished by the different modes of action to which they give rise.
+ - The woof and warp of all thought and all research is symbols, and the life of thought and science is the life inherent in symbols; so that it is wrong to say that a good language is important to good thought, merely; for it is the essence of it.
+ - There is not a single truth of science upon which we ought to bet more than about a million of millions to one.
+ - It has never been in my power to study anything, mathematics, ethics, metaphysics, gravitation, thermodynamics, optics, chemistry, comparative anatomy, astronomy, psychology, phonetics, economics, the history of science, whist, men and women, wine, metrology, except as a study of semeiotic .
+ - We do not really think, we are barely conscious, until something goes wrong.
+ - Law is par excellence the thing that wants a reason. Now the only possible way of accounting for the laws of nature, and for uniformity in general, is to suppose them results of evolution.
+ - Every work of science great enough to be well remembered for a few generations affords some exemplification of the defective state of the art of reasoning of the time when it was written; and each chief step in science has been a lesson in logic.
+ - I define a Sign as anything which is so determined by something else, called its Object, and so determines an effect upon a person, which effect I call its Interpretant, that the latter is thereby mediately determined by the former.
+ - Doubt is an uneasy and dissatisfied state from which we struggle to free ourselves and pass into the state of belief; while the latter is a calm and satisfactory state which we do not wish to avoid, or to change to a belief in anything else.
+ - Effort supposes resistance.
+ - Consider what effects that might conceivably have practical bearings you conceive the objects of your conception to have. Then, your conception of those effects is the whole of your conception of the object.
+ - Third, consider the insistency of an idea. The insistency of a past idea with reference to the present is a quantity which is less, the further back that past idea is, and rises to infinity as the past idea is brought up into coincidence with the present.
+ - The difference between a pessimistic and an optimistic mind is of such controlling importance in regard to every intellectual function, and especially for the conduct of life, that it is out of the question to admit that both are normal, and the great majority of mankind are naturally optimistic.
+ - One will meet, for example, the virtual assumption that what is relative to thought cannot be real. But why not, exactly? Red is relative to sight, but the fact that this or that is in that relation to vision that we call being red is not itself relative to sight; it is a real fact.
+ - We cannot begin with complete doubt.
+ - All the evolution we know of proceeds from the vague to the definite.
+ - True science is distinctively the study of useless things. For the useful things will get studied without the aid of scientific men. To employ these rare minds on such work is like running a steam engine by burning diamonds.
+ - A hypothesis is something which looks as if it might be true and were true, and which is capable of verification or refutation by comparison with facts.
+ - The a priori method is distinguished for its comfortable conclusions. It is the nature of the process to adopt whatever belief weare inclined to, and there are certain flatteries to the vanity of man which we all believe by nature, until we are awakened from our pleasing dream by rough facts.
+ - Generality is, indeed, an indispensable ingredient of reality; for mere individual existence or actuality without any regularity whatever is a nullity. Chaos is pure nothing.
+ - Every man is fully satisfied that there is such a thing as truth, or he would not ask any question.
+ - Whenever a man acts purposively, he acts under a belief in some experimental phenomenon. Consequently, the sum of the experimental phenomena that a proposition implies makes up its entire bearing upon human conduct.
+ - It is a common observation that those who dwell continually upon their expectations are apt to become oblivious to the requirements of their actual situation.
+ - Still, it will sometimes strike a scientific man that the philosophers have been less intent on finding out what the facts are, than on inquiring what belief is most in harmony with their system.
+ - When anything is present to the mind, what is the very first and simplest character to be noted in it, in every case, no matter how little elevated the object may be? Certainly, it is its presentness .
+ - Fate then is that necessity by which a certain result will surely be brought to pass according to the natural course of events however we may vary the particular circumstances which precede the event.
+ - Another characteristic of mathematical thought is that it can have no success where it cannot generalize.
+ - The definition of definition is at bottom just what the maxim of pragmatism expresses.
+ - The final upshot of thinking is the exercise of volition, and of this thought no longer forms a part; but belief is only a stadium of mental action, an effect upon our nature due to thought, which will influence future thinking.
+ - Unless man have a natural bent in accordance with nature’s, he has no chance of understanding nature at all.
+ - When an image is said to be singular, it is meant that it is absolutely determinate in all respects. Every possible character, or the negative thereof, must be true of such an image.
+ - Theoretically, I grant you, there is no possibility of error in necessary reasoning. But to speak thus “theoretically,” is to uselanguage in a Pickwickian sense. In practice, and in fact, mathematics is not exempt from that liability to error that affects everything that man does.
+ - The universe ought to be presumed too vast to have any character.
+ - In all the works on pedagogy that ever I read – and they have been many, big, and heavy – I don’t remember that any one has advocated a system of teaching by practical jokes, mostly cruel. That, however, describes the method of our great teacher, Experience.
+ - A quality is something capable of being completely embodied. A law never can be embodied in its character as a law except by determining a habit. A quality is how something may or might have been. A law is how an endless future must continue to be.
+ - If an opinion can eventually go to the determination of a practical belief, it, in so far, becomes itself a practical belief; and every proposition that is not pure metaphysical jargon and chatter must have some possible bearing upon practice.
+ - Our whole past experience is continually in our consciousness, though most of it sunk to a great depth of dimness. I think of consciousness as a bottomless lake, whose waters seem transparent, yet into which we can clearly see but a little way.
+ - Among the minor, yet striking characteristics of mathematics, may be mentioned the fleshless and skeletal build of its propositions; the peculiar difficulty, complication, and stress of its reasonings; the perfect exactitude of its results; their broad universality; their practical infallibility.
+ - Mathematics is distinguished from all other sciences except only ethics, in standing in no need of ethics.
+ - If man were immortal he could be perfectly sure of seeing the day when everything in which he had trusted should betray his trust.
+ - We, one and all of us, have an instinct to pray; and this fact constitutes an invitation from God to pray.
+ - The truth is, that common-sense, or thought as it first emerges above the level of the narrowly practical, is deeply imbued with that bad logical quality to which the epithet metaphysical is commonly applied; and nothing can clear it up but a severe course of logic.
+ - Mathematics is purely hypothetical: it produces nothing but conditional propositions.
+ - If liberty of speech is to be untrammeled from the grosser forms of constraint, the uniformity of opinion will be secured by a moral terrorism to which the respectability of society will give its thorough approval.
+ - The consciousness of a general idea has a certain “unity of the ego” in it, which is identical when it passes from one mind to another. It is, therefore, quite analogous to a person, and indeed, a person is only a particular kind of general idea.
+ - A true proposition is a proposition belief which would never lead to such disappointment so long as the proposition is not understood otherwise than it was intended.
+ - Truly, that reason upon which we plume ourselves, though it may answer for little things, yet for great decisions is hardly surer than a toss up.
+ - A pair of statements may be taken conjunctively or disjunctively; for example, “It lightens and it thunders ,” is conjunctive, “It lightens or it thunders” is disjunctive. Each such individual act of connecting a pair of statements is a new monad for the mathematician .
+ - It is impossible not to envy the man who can dismiss reason, although we know how it must turn out at last.
+ - Mere imagination would indeed be mere trifling; only no imagination is mere .
+
+67 quotes

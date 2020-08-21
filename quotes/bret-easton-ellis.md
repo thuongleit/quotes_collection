@@ -1,0 +1,101 @@
+ - Greed is good. Sex is easy. Youth is forever.
+ - Disappear here.
+ - Rock ‘n’ roll. Deal with it.
+ - My pain is constant and sharp, and I do not hope for a better world for anyone.
+ - The seeds of love have taken hold and if we won’t burn together, I’ll burn alone.
+ - I have to return some videotapes.
+ - And as things fell apart, nobody paid much attention.
+ - This is not an exit.
+ - I like the idea of a writer being haunted by his own creation, especially if the writer resents the way the character defines him.
+ - The better you look, the more you see.
+ - Look how black the sky is, the writer said. I made it that way.
+ - Life is like a typographical error: we’re constantly writing and rewriting things over each other.
+ - But this was what happened when you didn’t want to visit and confront the past: the past starts visiting and confronting you.
+ - We buy balloons, we let them go.
+ - Why would I care what other people are thinking? I don’t care what an audience thinks of me.
+ - People are afraid to merge.
+ - Is evil something you are? Or is it something you do?
+ - You do not write a novel for praise, or thinking of your audience. You write for yourself; you work out between you and your pen the things that intrigue you.
+ - Baby, when you were young and your heart was an open book, you used to say live and let live. You know you did, you know you did, you know you did.
+ - Our lives are not all interconnected. That theory is a crock. Some people truly do not need to be here.
+ - Disappear Here. The syringe fills with blood. You’re a beautiful boy and that’s all that matters. Wonder if he’s for sale. People are afraid to merge. To merge.
+ - When the going gets tough, the tough go drinking.
+ - No one will ever know anyone. We just have to deal with each other. You’re not ever gonna know me.
+ - Yes. Yes I am. I am a completely demented misogynist.
+ - I’m into, oh murders and executions mostly. It depends.
+ - Michel Houellebecq is the most interesting, provocative and important European novelist of my generation. Period. No one else comes close. He has written two or maybe three great books, and his latest, The Map and the Territory, is one of them.
+ - There’s no use in denying it: this has been a bad week. I’ve started drinking my own urine.
+ - What else is there to do in college except drink beer or slit one’s wrists?
+ - I felt lethal, on the verge of frenzy. My nightly bloodlust overflowed into my days and I had to leave the city. My mask of sanity was a victim of impending slippage. This was the bone season for me and I needed a vacation.
+ - It’s the rare book that’s able to transport you in a way that a movie does.
+ - No one is drawn to writing about being happy or feelings of joy.
+ - No one ever likes the right person.
+ - I think basically most men are misogynistic.
+ - How could she ever understand that there isn’t any way could be disappointed since I no longer find anything worth looking forward to?
+ - There’s no grand plan. All I know is that I write the books I want to write. All that other stuff is meaningless to me.
+ - I don’t know why I write what I write.
+ - Fear never shows up and the party ends early.
+ - The numbing lists of things you were supposed to have as an American to make you happy, which ultimately, of course, don’t. Those aren’t the things that make you happy.
+ - All of my books come from pain.
+ - You learn to move on without the people you love.
+ - I want to moan and writhe with you and I want to go up to you and kiss your mouth and pull you to me and say “I love you I love you I love you” while stripping. I want you so bad it stings.
+ - By the time you finish reading this sentence, a Boeing jetliner will take off or land somewhere in the world.
+ - I feel like I’m not smart enough to answer the questions I’m asked.
+ - I’ve forgotten who I had lunch with earlier, and even more important, where.
+ - The images I had were of people being driven mad by living in the city. Images of parents who were so hungry and unfulfilled that they ate their own children.
+ - I had dreamed of something so different from what reality was now offering up, but that dream had been a blind man’s vision. That dream was a miracle. The morning was fading. And I remembered yet again that I was a tourist here.
+ - I only had sex with her because I’m in love with you.
+ - After a while you learn that everything stops.
+ - I don’t want to care. If I care about things, it’ll just be worse, it’ll just be another thing to worry about. It’s less painful if I don’t care.
+ - What does that mean know me, know me, nobody ever knows anybody else, ever! You will never know me.
+ - I totally relate to Tom Cruise. He’s not crazy, it’s just the litany of the mid-life crisis.
+ - Sex is mathematics. Individuality no longer an issue. What does intelligence signify? Define reason. Desire – meaningless. Intellect is not a cure. Justice is dead.
+ - History is sinking and only a very few seem dimly aware that things are getting bad.
+ - I am gripped by an existential panic.
+ - Disintegration – I’m taking it in stride.
+ - Price. You’re priceless.
+ - I’m on the verge of tears by the time we arrive at Pastels since I’m positive we won’t get seated but the table is good, and relief that is almost tidal in scope washes over me in an awesome wave.
+ - I laugh maniacally, then take a deep breath and touch my chest- expecting a heart to be thumping quickly, impatiently, but there’s nothing there, not even a beat.
+ - You really write the books you want to write. You can’t take into consideration anything that anybody has said about you in the past, or what they’ll say about you in the future.
+ - It’s like my characters, all my men are Dad and me in a mess; all my female characters are smart and hopeful, like Mom just trying to make the best of things.
+ - I think we’ve all lost some kind of feeling.
+ - Writing a novel that works is an extremely difficult thing to do. It requires a level of skill and dedication that always surprises me.
+ - I needed something – the distraction of another life – to alleviate fear.
+ - Everyone I know who is successful has issues with their father, regardless of whether it was sports or business or entertainment.
+ - I like to dissect girls. Did you know I’m utterly insane?
+ - I tried to make meat loaf out of the girl but it becomes too frustrating a task and instead I spend the afternoon smearing her meat all over the walls, chewing on strips of skin I ripped from her body.
+ - I’ve never written an autobiographical novel in my life. I’ve never touched upon my life. I’ve never written a single scene that I can say took place.
+ - I feel I’m moving toward as well as away from something, and anything is possible.
+ - And as the elevator descents, passing the second floor, and the first floor, going even father down, I realize that the money doesn’t matter. That all that does is that I want to see the worst.
+ - Writing a novel is not method acting and I find it easy to step out of it at cocktail hour.
+ - A child should never even think about being a “good son.” A parent decides that fate for the child. The parent encourages that. Not the child himself. And the “perfect dad”? I shudder at thinking what that may be.
+ - I’ve been accused of being very vain about my apathy.
+ - Exploitation is a harsh word, I know that, but on a certain level, to me that is the central Hollywood story.
+ - Writing fiction is an act of imagination and fantasizing, and it’s not relating in prose what you’ve been doing for the last two or three years.
+ - Why was I holding on to something that would never be mine? But isn’t that what people do?
+ - It’s because you’re always fighting sentiment. You’re fighting sentimentality all of the time because being a mother alerts you in such a primal way.
+ - I have no problems or issues with screenwriting in general.
+ - With Taipei Tao Lin becomes the most interesting prose stylist of his generation.
+ - People can get accustomed to anything, right? Habit does things to people.
+ - I really believe that readers are smart and sophisticated enough to realize that the author is not the narrator of his novels.
+ - I think the ’80s created me, in a way, when I look back on that time, but I don’t necessarily think that a lot of my choices, and a lot of things that I did, and a lot of things that happened to me – or I let happen to me – were about that decade.
+ - And it struck me then, that I liked Sean because he looked, well, slutty. A boy who had been around. A boy who couldn’t remember if he was Catholic or not.
+ - I think in life, there are certain choices you make that are timeless and universal, and don’t necessarily have anything to do with the particulars of a certain decade.
+ - I think my sensibility is very literary; all my books were built as books, and I wasn’t thinking about them being movies.
+ - I’m really shocked when critics get morally outraged at my fiction because they think I’m condoning what’s going on. I never come in as the author and say, “Hey, okay. I’m interrupting the narrator here. I’m Bret Easton Ellis, and I’m the author.”
+ - If I want to write a movie, I’ll write a screenplay, but if I have an idea for a book, it’s something that I think can only be done novelistically.
+ - I went to college in Vermont, and then stayed in the East Coast.
+ - If you come at movies with your own sense of morality and not your own sense of aesthetics, I think you’re screwed. I think that’s not a way to look at movies.
+ - I wasn’t acting on passion. I was simply acting.
+ - Regardless of the business aspect of things, is there a reason that there isn’t a female Hitchcock or a female Scorsese or a female Spielberg? I don’t know. I think it’s a medium that really is built for the male gaze and for a male sensibility.
+ - Every book for me is an exorcism in some way or another, working through my feelings at the time.
+ - I do tend to look at my books in many ways as conceptual fiction, even to the point where I think the author’s photograph is part of the package. And I have gone out of my way to select the photograph to connect to the subject matter of each book.
+ - I do not feel I have a legacy to protect.
+ - Unless you’re the director on the movie, or putting up the money for the movie, you really don’t have a lot of control.
+ - Open the hood of a car and it will tell you something about the people who designed it, is just one of many phrases I’m tortured by.
+ - Adjust my dreams for me.
+ - You don’t market-research a novel; you really are writing it for yourself. It’s a hobby, in many ways. The problem becomes what you do when you’re confronted by criticism. You just don’t listen to it.
+ - I could stay living in this city if they just installed Blaupunkts in the cabs.
+ - What keeps me interested – and it always does – is how can she be a bad actress on film but a good one in reality?
+
+99 quotes

@@ -1,0 +1,24 @@
+ - By practicing the virtues we cultivate the soil from which healthy emotions sprout; by letting go of our character defects we drain the swamp in which diseased emotions breed.
+ - It comes down to consistency-if you want to be a great shooter, you have to shoot the same way every time.
+ - When people say God blessed me with a beautiful jump shot, it really pisses me off. I tell those people, ‘Don’t undermine the work I’ve put in every day.’ Not some days. Every day.
+ - I’m always ready to step up and take that shot.
+ - When you work on getting better at something, don’t do it half speed.
+ - God could care less whether I can shoot a jump shot.
+ - Everyone has to do their job. Everyone has to buy into it and believe in what we’re trying to do regardless of who’s playing and who’s not.
+ - When the effort is in question, the ball goes in different directions and the ball doesn’t always bounce your way. When you’re playing in the home of the NBA champions, it isn’t going to be easy.
+ - There is an entire culture out there built around siphoning money from an athlete, and the young men and women who come through just feed the machine.
+ - My nature is to keep things inside. In time, I’ll be comfortable stepping up when I think the team could use my input.
+ - I’ve ultimately decided that I will not play this NBA season. I’m going to take the remainder of this season, as well as the upcoming off-season, to reassess my situation, spend time with my family and determine if I will play in the 2015-16 season.
+ - It was Chinese music. I couldnt understand it, but it had a good beat to it.
+ - Most teams have one All-Star, whether that guy made it this year or earlier in his career, and some teams have two All-Stars. What theyre showing is that a group of five guys that play together and play hard will always beat a team with two All-Stars and three average players.
+ - Inside the first 20 to 25 games of the season, we were losing these games, getting beat by two and three points. Over the last 10 games, it seems like we’re starting to win these games and putting some good things together.
+ - I always say if the house I live in is comfortable, and I have all the amenities I need, then what more can you ask for?
+ - Would I do it again? Film another movie? Oh yeah.
+ - Whether that is me retiring, staying here or going somewhere else, it will be on my terms. I’ve made it to this point, and I felt great that I have the choice to make it for myself.
+ - Minnesota’s a great city.
+ - I tell the young kids, you have eight or nine months of the year to play basketball and the rest of the year you can relax. So, you’ve got to be ready. It doesn’t last forever.
+ - I dream about winning a championship, where everybody is hooting and hollering for you. The whole world is drawn to the NBA Finals.
+ - A tough woman. That lady has touched more people than I’ve ever known.
+ - When I hit one over, I knew I was good.
+
+22 quotes

@@ -1,0 +1,56 @@
+ - Transparency is for those who carry out public duties and exercise public power. Privacy is for everyone else.
+ - The definition of an extreme authoritarian is one who is willing blindly to assume that government accusations are true without any evidence presented or opportunity to contest those accusations.
+ - You can’t have a pristine house with ten dogs, and I’d rather have the ten dogs.
+ - American political culture quickly and always outpaces any attempt to satirize it.
+ - A key purpose of journalism is to provide an adversarial check on those who wield the greatest power by shining a light on what they do in the dark, and informing the public about those acts.
+ - It is simply an invariable truth in the history of politics, in the history of government, that whenever a new power is acquired in the name of some threat, it always – not sometimes, not often, not usually -it always extends beyond its original application, beyond its original justification.
+ - We should not be comfortable or content in a society where the only way to remain free of surveillance and repression is if we make ourselves as unthreatning, passive, and compliant as possible.
+ - Terrorism’: the word that means nothing, yet justifies everything.
+ - The genius of America’s endless war machine is that, learning from the unpleasantness of the Vietnam war protests, it has rendered the costs of war largely invisible.
+ - A citizenry that is aware of always being watched quickly becomes a compliant and fearful one.
+ - The hallmark of an authoritarian idiot is yelling TERRORIST-LOVER! at anyone questioning the definition of Terrorist.
+ - I’d like to vote for the candidate similar to the one the Right absurdly claims Obama is.
+ - There’s a huge cost to freedom in letting people talk about how you print these plastic guns or letting them say these things about arming for tyranny. There’s also a cost to letting the government say these ideas can’t be expressed, this is treason. It’s difficult.
+ - I don’t have a ‘side’ – I’m responsible for what I say and nothing else.
+ - An elite class that is free to operate without limits – whether limits imposed by the rule of law or fear of the responses from those harmed by their behavior – is an elite class that will plunder, degrade, and cheat at will, and act endlessly to fortify its own power.
+ - A president who is burdened with a failed and unpopular war, and who has lost the trust of the country, simply can no longer govern. He is destined to become as much a failure as his war.
+ - When someone who wields political power does something you dislike or disagree with, it’s incumbent upon you to object, criticize, and demand a different course. Those who refuse to do so are abdicating the most basic duty of citizenship and rendering themselves impotent.
+ - To permit surveillance to take root on the Internet would mean subjecting virtually all forms of human interaction, planning, and even thought itself to comprehensive state examination.
+ - The bottom layer of the right-wing noise machine.
+ - Nobody really even knows with whom the US is at war, or where. Everyone just knows that it is vital that it continue in unlimited form indefinitely.
+ - The ultimate test of a society’s freedom is not how it treats its good, obedient, compliant citizens; it’s how it treats its dissidents.
+ - It’s common to go from ‘crashing the gate’ to guarding it.
+ - The War on Terror has been and continues to be, above all, a war on the most basic liberties and political safeguards that we’re all taught are what distinguishes the US and keeps it free.
+ - The more fear confrontational activism can put into the heart of the political class, the better.
+ - What we revealed is that this spying system is devoted not to terrorists, but is directed to innocent people around the world. None of this has anything to do with terrorism. Is Angela Merkel a terrorist?
+ - It’s just simply the fact that the NSA does not think anybody should be able to communicate anywhere on the Earth without them being able to invade it.
+ - There is thus little or no ability for an internet user to know when they are being covertly propagandized by their government, which is precisely what makes it so appealing to intelligence agencies, so powerful, and so dangerous.
+ - A lot of these people are Iraqis fighting for control of their own government. Maybe there’s an argument to make that outside forces that go in and start bombing that country or invading that country are actually terrorists more so than the people in the country.
+ - It is always unconscionable for the government to punish people for expressing an idea merely because government officials – or the majority of citizens – decide that those ideas are ‘dangerous’ or ‘wrong.’ That is a power nobody ought to possess.
+ - Edward Snowden: The Whistleblower Behind the NSA Surveillance Revelations.
+ - Terrorist’, noun: 1. Someone my government tells me is a terrorist; 2. Someone my President decides to kill.
+ - It’s so much easier to debate people when you can pretend that they hold moronic position that they don’t actually believe.
+ - You can offer the ability to citizens to choose from one of the two parties and elect their leaders as much as you want. But “democracy” is an illusion – a sham – if the most significant acts taken by those leaders are kept concealed from the citizenry.
+ - When you cheer for the erosion of Dzhokhar Tsarnaevs rights, you’re cheering for the erosion of your own.
+ - The key question: will the NSA continue to monitor hundreds of millions of people without any suspicion? Under Obama’s proposals: Yes.
+ - The government usually announces it killed a Big Terrorist 5 or 6 different times before they’re dead – they’re almost like cats.
+ - I know it’s a really hard concept to process, but the fact that Govt accuses someone of being a Terrorist doesn’t mean they are.
+ - When poor and ordinary Americans who commit crimes are prosecuted and imprisoned, that is Justice. When the same thing is done to Washington elites, that is Ugly Retribution.
+ - Significant and seemingly impossible social and political change happens more often than we think, and it happens more rapidly than we realize. Even the most momentous change is always possible if one finds the right way to make it happen.
+ - History shows that the mere existence of a mass surveillance apparatus, regardless of how it is used, is in itself sufficient to stifle dissent. A citizenry that is aware of always being watched quickly becomes a compliant and fearful one.
+ - Beyond all the other reasons not to do it, free speech assaults always backfire: they transform bigots into martyrs.
+ - The promise of the Internet has always been that it was gonna be this unprecedentedly potent instrument of liberation and democratization. It would let you explore things and meet people who you wouldn’t otherwise get to know, in completely free and unconstrained ways.
+ - He’s the President – it’s the responsibility of every citizen to criticize aggressively when they think it’s warranted.
+ - Whether a country is actually free is determined not by how well-rewarded its convention-affirming media elites are and how ignored its passive citizens are but by how it treats its dissidents, those posing authentic challenges to what the government does.
+ - Only In America can a renowned and devoted terrorism supporter like Peter King be the arbiter of national security and treason.
+ - If you remove the fear of criminal punishment for the nation’s political and financial elites – as we have done – what possible constraint on their behavior does anyone think will remain?
+ - Fearlessness can be its own form of power.
+ - What I do know is that Charlie Hebdo cartoonists have been converted into the closest thing the West has to religious-like martyrs in the war against radical Islam, which means that anything short of pure reverence for them generates tribal rage and vilification.
+ - What state surveillance actually is is best understood by the NSA’s own documents and own words, which I think as you know I happen to have a lot of.
+ - The same president who has insisted that core moralism drives him has brought America to its lowest moral standing in history.
+ - For those suggesting criticisms of drone kills should wait until the election: that’d be reasonable if he stops killing until the election.
+ - It’s hard to imagine a more potent sign of a weak, declining empire than having one’s national ‘credibility’ depend upon periodically bombing other countries.
+ - The fact that war is the word we use for almost everything – on terrorism, drugs, even poverty – has certainly helped to desensitize us to its invocation; if we wage wars on everything, how bad can they be?
+ - The mythology of the Reagan presidency is that he induced the collapse of the Soviet Union by luring it into unsustainable military spending and wars: should there come a point when we think about applying that lesson to ourselves?
+
+54 quotes

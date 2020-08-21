@@ -1,0 +1,60 @@
+ - Where there is no vision, there is no hope.
+ - I love to think of nature as an unlimited broadcasting station, through which God speaks to us every hour, if we will only tune in.
+ - Start where you are, with what you have. Make something of it and never be satisfied.
+ - Ninety-nine percent of the failures come from people who have the habit of making excuses.
+ - How far you go in life depends on your being tender with the young, compassionate with the aged, sympathetic with the striving and tolerant of the weak and strong. Because someday in your life you will have been all of these.
+ - There is no shortcut to achievement.
+ - Anything will give up its secrets if you love it enough.
+ - Education is understanding relationships.
+ - Do what you can, with what you have and do it now!
+ - Nothing is more beautiful than the loveliness of the woods before sunrise.
+ - Learn to do the common things uncommonly well.
+ - When you can do the common things of life in an uncommon way, you will command the attention of the world.
+ - I think I’ll sleep now.
+ - No individual has any right to come into the world and go out of it without leaving behind him distinct and legitimate reasons for having passed through it.
+ - If you listen carefully enough to anything, it will talk to you.
+ - More and more as we come closer and closer in touch with nature and its teachings are we able to see the Divine and are therefore fitted to interpret correctly the various languages spoken by all forms of nature about us.
+ - To those who have not yet learned the secret of true happiness, begin now to study the little things in your own door yard.
+ - All my life I have risen regularly at four o’clock and have gone into the woods and talked to God. There He gives me my orders for the day.
+ - When I touch that flower, I am not merely touching that flower. I am touching infinity. That little flower existed long before there were human beings on this earth. It will continue to exist for thousands, yes, millions of years to come.
+ - Since new developments are the products of a creative mind, we must therefore stimulate and encourage that type of mind in every way possible.
+ - There is a use for almost everything.
+ - Fear of something is at the root of hate for others, and hate within will eventually destroy the hater.
+ - It is simply service that measures success.
+ - It is not the style of clothes one wears, neither the kind of automobile one drives, nor the amount of money one has in the bank, that counts. These mean nothing. It is simply service that measures success.
+ - My purpose alone must be God’s purpose.
+ - We get closer to God as we get more intimately and understandingly acquainted with the things He has created. I know of nothing more inspiring than that of making discoveries for one’s self.
+ - The secret of my success? It is simple. It is found in the Bible.
+ - We have become ninety-nine percent money mad. The method of living at home modestly and within our income, laying a little by systematically for the proverbial rainy day which is due to come, can almost be listed among the lost arts.
+ - Without my Savior, I am nothing.
+ - Nature is the greatest teacher and I learn from her best when others are asleep. In the still dark hours before sunrise God tells me of the plans I am to fulfill.
+ - When I was young, I said to God, ‘God, tell me the mystery of the universe.’ But God answered, ‘That knowledge is for me alone.’ So I said, ‘God, tell me the mystery of the peanut.’ Then God said, ‘Well George, that’s more nearly your size.’ And he told me.
+ - I know that my Redeemer lives. Thank God I love humanity, complexion doesn’t interest me one single a bit.
+ - Anything will give up its secrets if you love it enough. Not only have I found that when I talk to the little flower or to the little peanut they will give up their secrets, but I have found that when I silently commune with people they give up their secrets also – if you love them enough.
+ - Reading about nature is fine, but if a person walks in the woods and listens carefully, he can learn more than what is in books, for they speak with the voice of God.
+ - There are two ways, one is right; the other is wrong. If your work is only about right, then it is wrong.
+ - Our creator is the same and never changes despite the names given Him by people here and in all parts of the world. Even if we gave Him no name at all, He would still be there, within us, waiting to give us good on this earth.
+ - Nothing is more beautiful than the loveliness of the woods before sunrise. At no other time have I so sharp an understanding of what God means to do with me as in these hours of dawn.
+ - God is going to reveal to us things He never revealed before if we put our hands in His.
+ - Most people search high and wide for the key to success. If they only knew, the key to their dreams lies within.
+ - There is literally nothing that I ever asked to do, that I asked the blessed Creator to help me to do, that I have not been able to accomplish.
+ - Education, in the broadest of truest sense, will make an individual seek to help all people, regardless of race, regardless of color, regardless of condition.
+ - All flowers talk to me and so do hundreds of little living things in the woods. I learn what I know by watching and loving everything.
+ - How far you go in life depends on...
+ - You can’t teach people anything. You can only draw out.
+ - The centre of his world was the south where he was born in slavery some 79 years ago and where he did his work as a creative scientist.
+ - Look about you. Take hold of the things that are here. Let them talk to you. You learn to talk to them.
+ - Never a day passes but that I do myself the honor to commune with some of nature’s varied forms.
+ - Young people, I want to beg of you always keep your eyes open to what Mother Nature has to teach you. By so doing you will learn many valuable things every day of your life.
+ - There is no short cut to achievement. Life requires thorough preparation – veneer isn’t worth anything.
+ - I know of nothing more inspiring than that of making discoveries for ones self.
+ - Believe. The promise of God are real. They are as real, as solid, yes infinitely more solid than this table which the materialist so thoroughly believes in. If you would only believe, O ye of little faith.
+ - Learn to do common things uncommonly well; we must always keep in mind that anything that helps fill the dinner pail is valuable.
+ - One of the things that has helped me as much as any other is not how long I am going to live, but how much I can do while living.
+ - I wanted to know the name of every stone and flower and insect and bird and beast. I wanted to know where it got its color, where it got its life – but there was no one to tell me.
+ - Whatever you love opens its secrets to you.
+ - He who puts a product upon the market as it demands, controls that market, regardless of color. It is simply a survival of the fittest.
+ - One reason I never patent my products is that if I did it would take so much time, I would get nothing else done. But mainly I don’t want my discoveries to benefit specific favored persons.
+ - The beating on the tail of the snake may stop his progress a little, but the more vital parts must be struck before his poisonous death-dealing venom will be wiped out.
+
+58 quotes

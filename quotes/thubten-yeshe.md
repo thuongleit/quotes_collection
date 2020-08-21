@@ -1,0 +1,27 @@
+ - Karma is not something complicated or philosophical. Karma means watching your body, watching your mouth, and watching your mind. Trying to keep these three doors as pure as possible is the practice of karma.
+ - Be blissful and enjoy your life; do not let yourself become obsessed with anything. Determine to use the rest of your life to benefit others as much as possible.
+ - At certain times, a silent mind is very important, but ‘silent’ does not mean closed. The silent mind is an alert, awakened mind; a mind seeking the nature of reality.
+ - When a strong wind blows, the clouds vanish and blue sky appears. Similarly, when the powerful wisdom that understand the nature of the mind arises, the dark clouds of ego disappear.
+ - When you check your own mind properly, you stop blaming others for your problems.
+ - Be wise. Treat yourself, your mind, sympathetically, with loving kindness. If you are gentle with yourself, you will become gentle with others.
+ - The narrow mind rejects; wisdom accepts.
+ - It’s not just philosophy, not just words; it’s knowing how the mind functions; only then can you develop loving-kindness; only then can you become a spiritual person.
+ - Meditation is the way we realize the nature of the mind.
+ - Knowing your own mind is the solution to all our problems.
+ - If you expect your life to be full of ups and downs, then your mind will be much more peaceful.
+ - One action produces a reaction; that is karma.
+ - Some children are wiser than adults.
+ - There’s a big difference between being able to explain religion intellectually and transforming that knowledge into spiritual experience.
+ - No matter how confused or deluded we may be at the moment, the underlying and essential nature of our being is clear and pure.
+ - It is precisely because our present life is so inseparably linked with desire that we must make use of desire’s tremendous energy if we wish to transform our life into something transcendental.
+ - The mind is very powerful. Therefore, it requires firm guidance. A powerful jet plane needs a good pilot; the pilot of your mind should be the wisdom that understands its nature.
+ - Buddhist meditation doen’t necessarily mean sitting cross-legged with your eyes closed. Simply observing how your mind is responding to the sense world as you go about your business – walking, talking, shopping, whatever – can be a really perfect meditation and bring a perfect result.
+ - Your mind is your religion.
+ - It is a simple truth that if we identify ourselves as being fundamentally pure, strong, and capable we will actually develop these qualities, but if we continue to think of ourselves as dull and foolish, that is what we will become.
+ - Don’t think that examining and knowing the nature of your mind is just an Eastern trip. That’s a wrong conception. It’s your trip.
+ - First of all, merely by living a simple life with a heart dedicated to overcoming self-cherishing, we automatically benefit others.
+ - Examine your own mental attitudes. Become your own therapist.
+ - We completely deny the existence of a self-existent I, or a permanent, independent soul. Every aspect of your body and mind is impermanent: changing, changing, changing...
+ - Just the idea that you are religious doesn’t help at all. It does not help you; it does not help others. In order to really help others, you need to gain knowledge-wisdom.
+
+25 quotes

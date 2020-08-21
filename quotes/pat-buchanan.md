@@ -1,0 +1,62 @@
+ - If we don’t stop behaving like the British Empire, we will end up like the British Empire.
+ - Capitol Hill is Israeli occupied territory.
+ - Today, candor compels us to admit that our vaunted two-party system is a snare and a delusion, a fraud upon the nation. Our two parties have become nothing but two wings of the same bird of prey.
+ - Our two-party system is a fraud, a sham, a delusion. On foreign policy, trade, immigration, Big Government, we have one-party government, one party press; and conservatives are being played for suckers.
+ - The notion of a world government to defend our rights would have sent the founding fathers running for their muskets.
+ - Either we abandon the utopian globalism of open borders and ‘ally-ally-in-free’ immigration or we lose the war on terrorism and our freedoms with it.
+ - As polarized as we have been, we Americans are locked in a cultural war for the soul of our country.
+ - The Democratic party is really just a giant day care center for squabbling little groups.
+ - When we hear phrases like ‘New World Order,’ we release the safety catches on our revolvers.
+ - Free trade is the serial killer of American manufacturing and the Trojan Horse of World Government. It is the primrose path to the loss of economic independence and national sovereignty. Free trade is a bright shining lie.
+ - Just as there’s garbage that pollutes the Potomac river, there is garbage polluting our culture. We need an Environmental Protection Agency to clean it up.
+ - Empire breeds terrorism.
+ - If the Europeans want to intervene, that’s their business. But if I were president, I would remove every United States soldier from the Balkan peninsula.
+ - There is a simplicity that exists on the far side of complexity, and there is a communication of sentiment and attitude not to be discovered by careful exegesis of a text.
+ - By threatening war against Iran, Iraq and North Korea in his now-famous “Axis of Evil” address, the president painted himself into a corner. Either Bush now goes to war against one of these regimes, or he will be humiliated and exposed as a bellicose bluff.
+ - Do not wait for orders from headquarters! Mount up, everybody, and ride to the sound of the guns!
+ - The real liberators of American women were not the feminist noise-makers, they were the automobile, the supermarket, the shopping center, the dishwasher, the washer-dryer, the freezer.
+ - Terrorism is the price of empire. If you do not wish to pay the price, you must give up the empire.
+ - It’s in the struggle itself that you define yourself.
+ - On immigration policy, I believe we ought to call an immediate halt, stop illegal immigration and reduce legal immigration back to about 250,000 to 300,000, to more easily assimilate the Americans who’ve come here in the last 30 years.
+ - If America does not wish to end her days in the same nursing home as Britannia she had best end this geo-babble about new world orders. Our war, the Cold War, is over. It is time for America to come home.
+ - If we had to take a million immigrants in, say Zulus, next year, or Englishmen, and put them up in Virginia, what group would be easier to assimilate and would cause less problems for the people of Virginia?
+ - AIDS is nature’s retribution for violating the laws of nature.
+ - If the sexual revolution has been a medical disaster, socially it has been a catastrophe. Why do the media not report and explore the tragic results of the sexual revolution? Because many are collaborators.
+ - Who would benefit from a war of civilizations between the West and Islam? Answer: one nation, one leader, one party. Israel, Sharon, Likud.
+ - What’s the Christian-bashing all about? Simple- a struggle for the soul of America is under way, a struggle to determine whose views, values, beliefs and standards will serve as the basis of law.
+ - American politician doesWe’re going to bring back God and the Bible and drive the gods of secular humanism right out of the public schools of America.
+ - Christian morality, laws rooted in the secular humanist belief that all consensual sexual acts are morally equal. That belief is anti-biblical and amoral; to codify it into law is to codify a lie.
+ - Rail as they will about ‘discrimination,’ women are simply not endowed by nature with the same measures of single-minded ambition and the will to succeed in the fiercely competitive world of Western capitalism.
+ - Bill Clinton’s foreign policy experience stems mainly from having breakfast at the International House of Pancakes.
+ - Hitler’s success was not based on his extraordinary gifts alone. His genius was an intuitive sense of the mushiness, the character flaws, the weakness masquerading as morality that was in the hearts of the statesmen who stood in his path.
+ - Like all idolatries, democratism substitutes a false god for the real, a love of process for a love of country.
+ - How, then, can the feds justify favoring sons of Hispanics over sons of white Americans who fought in World War II or Vietnam?
+ - A nation that sends its women to fight its wars is not worth defending.
+ - Diesel engines do not emit enough carbon monoxide to kill anybody.
+ - Anti-Catholicism is the anti-Semitism of the intellectual.
+ - Saying the Washington Post is just a newspaper is like saying Rasputin was just a country priest.
+ - We need to do more than win an election or win the House or win the presidency, my friends: we need to make this beloved country of ours God’s country once again.
+ - There is nothing wrong with us sitting down and arguing that issue that we are a European country.
+ - Blacks Bought A Lot Of Propaganda On The Liberal Plantation.
+ - Defeat has its lessons as well as victory.
+ - Our culture is superior. Our culture is superior because our religion is Christianity and that is the truth that makes men free.
+ - If we do not get control of our borders, by 2050 Americans of European descent will be a minority in the nation their ancestors created and built. No nation has ever undergone so radical a demographic transformation and survived.
+ - Why was there not massive civil disobedience against this anti-Christian discrimination, as there was against segregation?
+ - America has been the best country on earth for black folks. It was here that 600,000 black people, brought from Africa in slave ships, grew into a community of 40 million, were introduced to Christian salvation, and reached the greatest levels of freedom and prosperity blacks have ever known.
+ - The urban barbarism that has turned our streets into battlegrounds and our classrooms into killing fields will not be stopped by an assault on the Second Amendment right of American gunowners to keep and bear arms.
+ - You may be sure that in this new international system, the American citizen will count for precious little.
+ - As for a climactic conflict between a once-Christian West and an Islamic world that is growing in numbers and advancing inexorably into Europe for the third time in 14 centuries, on this one, Breivik may be right.
+ - I know the power of the Israeli lobby and the other lobbies, but we need a foreign policy that puts our own country first.
+ - Are you attracted by his new ideas or his new poll ratings?
+ - I think that in the minds of many, the press is being seen less and less as a neutral observer in the impeachment enterprise and more and more as participants, or even collaborators. On Media’s Participation In Watergate.
+ - How long is this endless groveling before every cry of ‘racism’ going to continue before the whole country collectively throws up?
+ - American’s greatest deficit is no longer found in the federal budget. It is a moral deficit, and it may be found in a polluted and poisoned culture that has become the great enemy within.
+ - McCarthy emerged in the person of Senator Russ Feingold of Wisconsin.
+ - The village atheist has the right to be heard; he has no right to be heeded. While he has a right not to have his own children indoctrinated in what he believes are false and foolish teachings, he has no right to dictate what other children may be taught.
+ - If a country forgets where it came from, how will its people know who they are?
+ - Neocons say we attack them because they are Jewish. We do not. We attack them because their warmongering threatens our country, even as it finds a reliable echo in Ariel Sharon.
+ - No one has deputized America to play Wyatt Earp to the world.
+ - I’ve just come back from Mississippi and over there when you talk about the West Bank they think you mean Arkansas.
+ - When a democracy reaches a point where the politicians cannot say no to the people, and both parties are competing for votes by promising even more spending or even lower taxes, or both, the experiment is about over.
+
+60 quotes

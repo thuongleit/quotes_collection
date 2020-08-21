@@ -1,0 +1,22 @@
+ - Oh, the summer night, Has a smile of light, And she sits on a sapphire throne.
+ - The sea! the sea! the open sea! The blue, the fresh, the ever free! Without a mark, without a bound, It runneth the earth’s wide regions round; It plays with the clouds; it mocks the skies; Or like a cradled creature lies.
+ - Shadows fall on even the brightest hours.
+ - Death is the tyrant of the imagination.
+ - All round the room my silent servants wait, My friends in every season, bright and dim.
+ - I said that I loved the wise proverb, Brief, simple and deep; For it I’d exchange the great poem That sends us to sleep.
+ - Despair doth strike as deep a furrow in the brain as mischief or remorse.
+ - The sea! The sea! The open sea!, The blue, the fresh, the ever free!
+ - O human beauty, what a dream art thou, that we should cast our life and hopes away on thee!
+ - The sweetest noise on earth, a woman’s tongue; A string which hath no discord.
+ - So mightiest powers buy deepest calms are fed, And sleep, how oft, in things that gentlest be!
+ - Half the ills we heard within our hearts are ills because we hoard them.
+ - Love can take what shape he pleases; and when once begun his fiery inroad in the soul, how vain the after knowledge which his presence gives! We weep or rave; but still he lives, and lives master and lord, amidst pride and tears and pain.
+ - I never was on the dull, tame shore, But I loved the great sea more and more.
+ - The progress from infancy to boyhood is imperceptible. In that long dawn of the mind we take but little heed. The years pass by us, one by one, little distinguishable from each other. But when the intellectual sun of our life is risen, we take due note of joy and sorrow.
+ - How silent are the winds!
+ - Pity speaks to grief more sweetly than a band of instruments.
+ - Women are so gentle, so affectionate, so true in sorrow, so untired and untiring! but the leaf withers not sooner, and tropic light fades not more abruptly.
+ - Sing! Who sings To her who weareth a hundred rings? Ah, who is this lady fine? The Vine, boys, the Vine! The mother of the mighty Wine, A roamer is she O’er wall and tree And sometimes very good company.
+ - I ’m on the sea! I ’m on the sea! I am where I would ever be, With the blue above and the blue below, And silence wheresoever I go.
+
+20 quotes

@@ -1,0 +1,35 @@
+ - It’s true, the Shaolin and the Wu-Tang, could be dangerous...
+ - In order to be one of the greats, you’ve got to study the greats.
+ - When you devote yourself to being an artist, you have to stay on your craft and always try to get better and better.
+ - I doubt if you get another Wu-Tang Clan. That might be harder than getting the new Jackson Five.
+ - As an artist, it’s so important to create music that puts a chill through your body or does something to make you feel good. I think my album has a little bit of everything in it and that’s important to me.
+ - As you keep shooting the ball, you become a better basketball player.
+ - Well Ice H20 is my company that I plan to take to the next level with new artists, books, movies and so forth. It’s more like a multimedia brand that I want to take to the next level and put some talented people on.
+ - In the early 2000s, I was going through a lot. I didn’t have my head screwed on right. Where I was at as a man, I was still growing up.
+ - I never been a hater of these other cats, who never really had nothing, being successful. That’s not my problem.
+ - I want to show the world that you do have some artists that are ready to go to the next level, and instead of being selfish with their career they’ll open up the door to other people. I’m in a position to open up the door to help other people do what I do.
+ - The better you get, the more your legacy shines. I always just try to go hard. If you don’t want do it for real, don’t do it at all.
+ - All I did was take my time, figure out where I made a lot of mistakes and try not to make them no more.
+ - I love the energy that comes when I get on the mic. It keeps me creative and I love to hear what the fans want, what they love or hate about it.
+ - You know the steez; you know my whole program. Brothers from the No-Lands, all we want is the G’s guns and grams.
+ - You know the things I went through as a youngster, coming into the business, all the good, the bad and the ugly that came. I’d had a rough life. I grew up single parent. My mom, she was like a father to me.
+ - I’m very unpredictable, but at the end of the day, I’m working. Sometimes things change in my life. It’s like, ‘Hold up – that ain’t feel good. That felt good.’ And that’s how I look at anything I do.
+ - It’s important to have a spiritual side because tomorrow’s no promise to us. We have to pay homage to our saviour and put him in our life more because, without him, you don’t know where you’re going to go.
+ - When I’m making the music, I feel like everything I throw out has to work. It counts. Because if you don’t have people turning they neck all the way around to see what it is, it ain’t stick on the wall.
+ - You gotta have a schedule, you gotta have a team that’s passionate about seeing you do the things you say you wanna do. When it comes to delivering this, it takes a lot of work and I can’t do that on my own.
+ - I’m not an artist that makes singles, I’m an artist that makes albums, and it’s a totally different thing.
+ - I’m my own biggest marketing tool. I know the history of the business and I might as well capitalize on it.
+ - The most important thing is just to be recognised as a legend, like the people call me. To have that title attached to your name, you’ve got to be a bad man. It’s an honour to have that role.
+ - Growing up in music motivated me. I applied that to my education and it made me a better person.
+ - Soul music has so many great artists who put their thing down. That’s important.
+ - I just want to be remembered as a dope MC. As somebody who really covered a lot of ground and became internationally known.
+ - The main thing I look at is: Is it from the heart? If I know that you down with me, then we always gonna be down through whatever the thick and thin.
+ - Sometimes you can make a substantial amount of money and automatically think that you’ve made it, that you did everything you wanted to do. Some people just stop.
+ - When you think of Hollywood, you think of the land of opportunity. I always want to have the opportunity to do things conducive to my career.
+ - I think that’s a weak excuse, to say because a rapper’s getting older that he ain’t got it no more. Nah. Don’t go by that philosophy. Let’s just recognize that talent is within.
+ - I don’t have one track that I consider better than the next because all I’m trying to do is still grow as an artist.
+ - When I sit here and see that the eight brothers from the neighborhood that I grew up with still have success, it had to be magical.
+ - I think a lot of people can learn from listening to hip hop. It ain’t always about beats and rhymes.
+ - I’ve never been the type of person to jump up and throw out the album without it being what it’s supposed to be.
+
+33 quotes

@@ -1,0 +1,34 @@
+ - History repeats, but science reverberates.
+ - Pharmacology is benefited by the prepared mind. You need to know what you are looking for.
+ - I am a scientist and I am a physician. So I write papers.
+ - All cancers are alike but they are alike in a unique way.
+ - Down to their innate molecular core, cancer cells are hyperactive, survival-endowed, scrappy, fecund, inventive copies of ourselves.
+ - A breast cancer might turn out to have a close resemblance to a gastric cancer. And this kind of reorganization of cancer in terms of its internal genetic anatomy has really changed the way we treat and approach cancer in general.
+ - Cancer was not disorganized chromosomal chaos. It was organized chromosomal chaos.
+ - Good physicians are rarely dispassionate. They agonize and self-doubt over patients.
+ - Cancer has enormous diversity and behaves differently: it’s highly mutable, the evolutionary principles are very complicated and often its capacity to be constantly mystifying comes as a big challenge.
+ - There is a very moving and ancient connection between cancer and depression.
+ - Probably the most important reason we are seeing more cancers than before is because the population is ageing overall. And cancer is an age-related disease.
+ - I wanted to explore cancer not just biologically, but metaphorically. The idea that tuberculosis in the 19th century possessed the same kind of frightening and decaying quality was very interesting to me, and it seemed that one could explore the idea that every age defined its own illness.
+ - I had seen cancer at a more cellular level as a researcher. The first time I entered the cancer ward, my first instinct was to withdraw from what was going on – the complexity, the death. It was a very bleak time.
+ - A positive attitude does not cure cancer, any more than a negative one causes it.
+ - One swallow is a coincidence, but two swallows make summer.
+ - Could your medicine be a cell, not a pill? Could your medicine be an organ that’s created outside the body? Could your medicine be an environment?
+ - If the history of medicine is told through the stories of doctors, it is because their contributions stand in place of the more substantive heroism of their patients.
+ - If there’s a seminal discovery in oncology in the last 20 years, it’s that idea that cancer genes are often mutated versions of normal genes.
+ - Most days, I go home and I feel rejuvenated. I feel ebullient.
+ - It was Disney World fused with Cancerland.
+ - When you immerse yourself in medicine you realise that hope is not absolute. It’s not that simple.
+ - Writing anything as an expert is really poisonous to the writing process, because you lose the quality of discovery.
+ - It felt – nearly twenty-five hundred years after Hippocrates had naively coined the overarching term karkinos – that modern oncology was hardly any more sophisticated in its taxonomy of cancer.
+ - Most discoveries even today are a combination of serendipity and of searching.
+ - There is a duality in recognising what an incredible disease it is – in terms of its origin, that it emerges out of a normal cell. It’s a reminder of what a wonderful thing a normal cell is. In a very cold, scientific sense, I think a cancer cell is a kind of biological marvel.
+ - I think the way we think about cancer, the way we treat cancer, has dramatically changed in the last century. There is an enormous amount of options that a physician can provide today, right down from curing patients, treating patients or providing patients with psychic solace or pain relief.
+ - This was yet another colonial fascination: to create the conditions of misery in a population, then subject it to social or medical experimentation.
+ - It is hard to look at the tumor and not come away with the feeling that one has encountered a powerful monster in its infancy.
+ - I think the cardinal rule of learning to write is learning to read first. I learned to write by learning to read.
+ - I began wondering, can one really write a biography of an illness? But I found myself thinking of cancer as this character that has lived for 4,000 years, and I wanted to know what was its birth, what is its mind, its personality, its psyche?
+ - I believe the biggest breakthroughs on cancer could come from brilliant researchers based in India.
+ - I left Delhi in 1989 and remember very little of how life used to be then. Increasingly, in my recent visits to Delhi, I’ve started to realize that the city has become intellectually very lively. It makes me want to discover the city over and over again.
+
+32 quotes

@@ -1,0 +1,30 @@
+ - Fear is the condom of life. It doesn’t allow you to enjoy things.
+ - Really, I’m a neurotic perfectionist. Every single word in the script is the one that I want.
+ - All people know that they will die, but they don’t actually believe it.
+ - Life and death are illusions. We are in a constant state of transformation.
+ - I think every beautiful tale in the world hides the truth and reveals it little by little.
+ - I don’t have anything against commercials, and I really like BMWs.
+ - When you get to the holidays, if you think that the holidays will be forever, you just take it for granted. But, if you know that you have just three days at the beach, you will be so happy to be there, every day.
+ - Mexico City is very different now than when I grew up, but I was in the streets all the time – though I was born to a middle-class neighborhood where there weren’t a lot of gangs and things. I was always comfortable.
+ - I hate superficial violence. It’s shallow and stupid, and the impact on the audience is really bad.
+ - I respect BMW for not interfering in these projects. They’re just trying to support short films with their brand, which I think is great.
+ - I never deny a true experience in one shot.
+ - I made commercials for corporations like Volkswagen and Coca-Cola, but I was always the one to write them, too, which was a very good exercise, because I learned to tell little stories.
+ - There’s nothing better than being in a film that translates to audiences and makes people think and feel good and walk away with great revelations in their own life of some kind. But when the process and the experience and the fun of that matches, it’s a good feeling.
+ - The actors make the film. They’re the ones that take this theoretical movie that’s in your head and make it real. The success of a film is entirely on their shoulders. I admire them, because acting is such a difficult thing to do, and I personally can’t understand it.
+ - I didn’t have a normal academic career. I never studied cinema. I learned from life.
+ - For me, it’s not about masochism to talk about death. For me, it’s about observing life through death, from the last point of it.
+ - I personally can’t handle frivolous violence. I overreact to it.
+ - One of the reasons why I agreed to do commercials is that they gave me complete freedom. I just had to have the car in it and write a story around it. I wanted to do something serious set in a Latin American country, but again, it was an exercise in style for me.
+ - It’s more enjoyable for me to know that life is finite. Knowing that, I would like to go to a party.
+ - When I went to university, I finally got exposed to European films, and they had a strong impact on me. I felt those films had a lot of things to say that weren’t getting expressed in the films I was used to seeing.
+ - I like to make films, but the only reason I do is because I’m a very bad musician.
+ - I understand when there’s no money for the arts in the government, but it should maybe pressure private companies to support more filmmakers. These exhibition and distribution companies are huge, and there might be incentives for them to invest more in Mexican cinema.
+ - You hear about bombings in other countries, or numbers like “10,000 people died” – you hear that number and you think, “Well, I saw that yesterday in a film, and that didn’t look so bad.” Younger viewers, in particular, lose perspective on reality.
+ - I just wanted to show the migrants as complex humans with flaws and weakness, with good and bad things, and show that they’re parents and family men. I wanted to show them with everything, as they are.
+ - I always think politicians and even my dentist have more egos than actors.
+ - In the United States there’s not a lot of people interested in foreign language films. Every time, it’s more difficult for foreign language films to survive here.
+ - All my films have always been released in the autumn, maybe because they’re more melancholy to people.
+ - I was a street kid, basically. But really, Mexico City has always been this big, complex monster of a city that has always had real problems and needs, and I’ve always found my way through it in different ways.
+
+28 quotes

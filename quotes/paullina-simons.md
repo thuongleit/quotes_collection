@@ -1,0 +1,57 @@
+ - All good things come to those who wait.
+ - Everything comes at a price. Everthing in your life. The question you have to ask yourself is, what price are you willing to pay?
+ - I love you breathlessly, my amazing man.
+ - Love is when he is hungry and you feed him. Love is knowing when he is hungry.
+ - We walk alone through this world, but if we’re lucky, we have a moment of belonging to something, to someone, that sustains us through a lifetime of loneliness.
+ - And that’s my point: all great things worth having require great sacrifice worth giving.
+ - I love you. I’m blind for you, wild for you. Sick with you. I told you that our first night together when I asked you to marry me, I am telling you now. Everything that’s happened to us, everything, is because I crossed the street for you. I worship you. You know that through and through...
+ - Though much is taken, much abides; and though we are not now that strength which in old days moved earth and heaven, that which we are, we are – Unyielding.
+ - Whenever you’re unsure of yourself, whenever you’re in doubt, ask yourself three questions. What do you believe in? What do you hope for? but most important, ask yourself, what do you love?
+ - There are some battles, no matter how much you don’t want to fight them, that you just have to fight. That are worth giving your life for.
+ - I know that sometimes the things we carry become too much for us. We are burned down, but somehow we have to pick ourselves up and keep going.
+ - Tania, there is so much still ahead of you. Be patient with life.
+ - But on that sunlit Sunday, Alexander knew nothing, thought nothing, imagined nothing. He forgot Dimitri and war and the Soviet Union and escape plans, and even America, and crossed the street for Tatiana Metanova.
+ - Alexander knew that before he had light instead of darkness, he had to deserve light instead of darkness.
+ - They had no past. They had no future. They just were.
+ - Tatia: I think its too big to fit.
+ - We thought the hard part was over – but we were wrong. Living is the hardest part. Figuring out how to live your life when you’re all busted up inside and out – there is nothing harder.
+ - Shura, I’m yours. You may not like it today, you may not want it tonight, you may wish for it all to be different now, but it remains, and I remain, as always, only yours. Nothing can change that. Not your wrath, your fists, your body or your death.
+ - Not bombs nor my broken heart can take away from me walking barefoot with you in jasmine June through the Field of Mars.
+ - Alexander to Tatiana: I love you as much as it is possible for a man to love a woman.
+ - Please stop looking at me, she thought, afraid of his eyes and terrified of her own heart.
+ - Falling in love with you in the Summer Garden in the white nights in Leningrad is the moment that propels me through life.
+ - You will find a way to live without me. You will find a way to live for both of us,? Alexander said to Tatiana as the swelling Kama River flowed from the Ural Mountains through a pine village named Lazarevo, once when they were in love, and young.
+ - I was blinded by stupidity for a brief moment in our life, for a flicker in the eternity in which you and I live, and I stumbled.
+ - You are my hand grenade, my artillery fire. You have replaced my heart with yourself.
+ - When I was growing up, ‘Anna Karenina’ was one of my favourite books.
+ - Daughters are supposed to be friends to their mothers in their old age.
+ - I want you to know that should something happen to me, don’t worry about my body. My soul isn’t going to return to it, nor to God. It’s flying straight to you, where it knows it can find you, in Lazarevo. I want to be neither with kings nor heroes, but with the queen of Lake Ilmen.
+ - If I can live through this, he thought, I can live through anything. If I can live through this, I WILL live through anything.
+ - When Tatiana looked up from her ice cream, she saw a soldier staring at her from across the street.
+ - This is days and days and months and years and all the minutes in between, just you me.
+ - Ask yourself these three questions, Tatiana Metanova, and you will know who you are. Ask: What do believe in? What do you hope for? What do you love?
+ - Tania, last time in Morozovo, I let you go, but not this time. This time we live together or we die together.
+ - Dear God, Tatiana prayed in bed that night, turning to the wall and pulling the white sheet and the thin brown blanket over herself. If You are there somewhere, please teach me how to hide what I never knew how to show.
+ - Tatiana had imagined her Alexander since she was a child, before she believed that someone like him was even possible. When she was a little girl, she dreamed of a fine world in which a good man walked its winding roads, perhaps somewhere in his wandering soul searching for her.
+ - I have a certain sensibility that I bring to my writing that comes from knowing two things: what I as a reader like to read, and what as a writer I am capable of. I know my own limits. I know there are things I cannot do.
+ - Some words were like that. Whole lives attached to them. Ghosts and lives and ecstasy and sorrow.
+ - The power you have over someone who loves you is greater than any other power you’ll ever have.
+ - The days of idealism had gone. Only life was left.
+ - Lazarevo drips you into my soul, dawn drop by moonlight drop from the river Kama. When you look for me, look for me there, because that’s where I’ll be all the days of my life.
+ - War was the ultimate chaos, a pounding, soul-destroying snarl, ending in blown-apart men lying unburied on the cold earth. There was nothing more cosmically chaotic than war.
+ - Memory – that fiend, that cruel enemy of comfort.
+ - I’ll take your breath any way you give it to me, Shura.
+ - In Alexander’s life there was one thread that could not be broken by death, by distance, by time, by war. Could not be broken. As long as I am in the world, she said with her breath and her body, as long as I am, you are permanent, soldier.
+ - I saved you for me.
+ - Tatiana and the soldier were having a silence.
+ - And then, because she was Tatiana and because she couldn’t help herself, and because he wouldn’t have it any other way, she ran to him and was in his arms.
+ - Alexander smoked and watched her from his tree stump bench. What are you doing? she would ask him. Nothing, he would reply. Nothing but growing my pain into madness.
+ - Tatiana realized she was too young to hide well what was in her heart but old enough to know that her heart was in her eyes.
+ - Awash in a flood of hostility and despair, they battled and railed and shattered their bodies on one another, unable to find one strand, one sobering swallow of solace.
+ - I wish I could spend six years writing one novel.
+ - You have to keep your audience in your mind; if you’re writing stuff that you know nobody’s going to care about then you should rethink what you’re doing!
+ - You have amazing gifts. Don’t squander them. Don’t give them out meaninglessly, don’t abuse them, don’t take them for granted. You are the weapon you carry with you till the day you die. -Tatiana and Alexander.
+ - With my writing, because I live it, I have to be consumed by it, and that means you have to forget your other life, which is constantly pulling you from your work.
+ - I tend to be a great optimist when it comes to the United States and the American way of life, I think precisely because I wasn’t born into it.
+
+55 quotes

@@ -1,0 +1,30 @@
+ - Nothing attracts me like a closed door.
+ - The element of discovery is very important. I don’t repeat myself well. I want and need that stimulus of walking forward from one new world to another.
+ - Life is beating against the school windows. You must quickly open the doors and go out to learn that no door must be locked against you.
+ - Work to me is a sacred thing.
+ - A burning purpose attracts others who are drawn along with it and help fulfill it.
+ - A book, while it is being written, has an intense life of its own which you share.
+ - Photography is a very subtle thing. You must let the camera take you by the hand, as it were, and lead you into your subject.
+ - Work is something you can count on, a trusted, lifelong friend who never deserts you.
+ - Nothing attracts me like a closed door. I cannot let my camera rest until I have pried it open.
+ - The beauty of the past belongs to the past.
+ - If anyone gets in my way when I’m making a picture, I become irrational. I’m never sure what I am going to do, or sometimes even aware of what I do-only that I want that picture.
+ - The very secret of life for me, I believed, was to maintain in the midst of rushing events an inner tranquility.
+ - The camera is a remarkable instrument. Saturate yourself with your subject, and the camera will all but take you by the hand and point the way.
+ - My idea of gardening is to discover something wild in my wood and weed around it with the utmost care until it has a chance to grow and spread.
+ - Usually I object when someone makes over-much of men’s work versus women’s work, for I think it is the excellence of the results which counts.
+ - If you banish fear, nothing terribly bad can happen to you.
+ - You are responsible for what you have done and the people whom you have influenced.
+ - Life wanted faces that would express what we wanted to tell. Not just the unusual or striking face, but the face that would speak out the message from the printed page. I am always looking for some typical person or face that will tie the picture essay together in a human way.
+ - We are in a privileged and sometimes happy position. We see a great deal of the world. Our obligation is to pass it on to others.
+ - I have always thought that if I could turn back the pages of history and photograph one man, my choice would be Moses.
+ - If you want to photograph a man spinning, give some thought to why he spins. Understanding for a photographer is as important as the equipment he uses.
+ - I have never forgotten a picture that I ever made.
+ - I love to write out of doors and sleep out of doors, too. If I sleep under the open sky it becomes part of the writing experience, part of my insulation from the world.
+ - Even while you’re in dead earnest about your work, you must approach it with a feeling of freedom and joy; you must be loose-jointed, like a relaxed athlete.
+ - War makes its own morals.
+ - To understand another human being you must gain some insight into the conditions which made him what he is.
+ - I was to discover that the quest for human understanding is a lifetime one that has no end in sight.
+ - By some special graciousness of fate I am deposited – as all good photographers like to be – in the right place at the right time. Go into it as young as possible. Bring all the asset you have and play to win.
+
+28 quotes

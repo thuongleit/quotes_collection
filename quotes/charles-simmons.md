@@ -1,0 +1,37 @@
+ - Integrity is the first step to true greatness.
+ - Ridicule is the first and last argument of a fool.
+ - Sickness is the vengeance of nature for the violation of her laws.
+ - Live only for today, and you ruin tomorrow.
+ - Never go backward. Attempt, and do it with all your might. Determination is power.
+ - There is a noble forgetfulness-that which does not remember injuries.
+ - Life is made up of little things. It is very rarely that an occasion is offered for doing a great deal at once. True greatness consists in being great in little things.
+ - Both mind and heart when given up to reveries and dreaminess, have a thousand avenues open for the entrance of evil.
+ - Most of the wisdom of one age, is the folly of the next.
+ - Integrity is the first step to true greatness. Men love to praise, but are slow to practice it. To maintain it in high places costs self-denial; in all places it is liable to opposition, but its end is glorious, and the universe will yet do it homage.
+ - Industry keeps the body healthy, the mind clear, the heart whole, and the purse full.
+ - When the heart is won, the understanding is easily convinced.
+ - Sensible men show their sense by saying much in few words. If noble actions are the substance of life, good sayings are its ornament and guide.
+ - Promptitude is not only a duty, but is also a part of good manners; it is favorable to fortune, reputation, influence, and usefulness; a little attention and energy will form the habit, so as to make it easy and delightful.
+ - Good intentions are very mortal and perishable things. Like very mellow and choice fruit, they are difficult to keep.
+ - True greatness consists in being great in little things.
+ - A good example is a better legacy for children than wealth or honor.
+ - Infidelity is seated in the heart; its origin is not in the head. It is the wish that Christianity might not be true, that leads to an argument to prove it.
+ - It is only the constant exertion and working of our sensitive, intellectual, moral, and physical machinery that keeps us from rusting, and so becoming useless.
+ - When a person feels disposed to over estimate his own importance, let him remember that mankind got along very well before his birth, and that in all probability they will they will get along very well after his death.
+ - Dare not usurp thy maker’s place by giving way to wrath – wrath that goes forth in vengeance; “vengeance is mine, I will repay, saith the Lord.”
+ - If you would reform the world from its errors and vices, begin by enlisting the mothers.
+ - Accurate knowledge is the basis of correct opinions; the want of it makes the opinions of most people of little value.
+ - Self-approbation, when founded in truth and a good conscience, is a source of some of the purest joys known to man.
+ - No man has a right to do as he pleases, except when he pleases to do right.
+ - A quick and sound judgment, good common sense, kind feeling, and an instinctive perception of character, in these are the elements of what is called tact, which has so much to do with acceptability and success in life.
+ - For the most part fraud in the end secures for its companions repentance and shame.
+ - Determination is power. If the prospect be dark, kindle up the fire of resolution that nothing but death can extinguish.
+ - Uncalled for excuses are practical confessions.
+ - Wealth is a dangerous inheritance, unless the inheritor is trained to active benevolence.
+ - The smallest number, with God and truth on their side, are weightier than thousands.
+ - A person’s character is but half formed till after wedlock.
+ - Malice can always find a mark to shoot at, and a pretence to fire.
+ - He who feasts every day, feasts no day.
+ - Good Humor is the best shield against the darts of satirical raillery.
+
+35 quotes

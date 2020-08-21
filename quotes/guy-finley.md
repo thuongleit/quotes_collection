@@ -1,0 +1,137 @@
+ - You don’t need strength to let go of something. What you really need is understanding.
+ - If you don’t leap, you’ll never know what it’s like to fly.
+ - On the other side of resistance is the flow.
+ - If you want light to come into your life, you need to stand where it is shining.
+ - Nothing in the universe can stop you from letting go and starting over.
+ - Being fully present is the best guarantee for a bright future.
+ - It’s a paradox of the true spiritual path, but the more conscious we become of what limits us, the more limitless becomes our life.
+ - Act on what you love, not from what you fear, and watch how fear fades as love grows.
+ - There is nothing as certain as silence, stillness, and solitude to introduce you to the secrets of yourself.
+ - Life isn’t a race to win, it’s a school for our higher education.
+ - The only reason your mind won’t stop its endless chattering is because you won’t stop listening to it!
+ - Know that everything is in perfect order whether you understand it or not.
+ - Walk lightly through life.
+ - We become what we love. What we put first in our lives is what we receive from life.
+ - Nothing glows brighter than the heart awakened to the unseen light of love that lives within it.
+ - Freedom is not overcoming what you think stands in your way. It is understanding that what is in your way is part of the way.
+ - We can only begin to change the world around us when we are willing to become a conscious part of all that is changing.
+ - No one rises above who he or she has been without first having fallen down. The best time – in fact, the only time – to make a real change in your life is in the moment of seeing the need for it. He who hesitates always gets lost in the hundred reasons why tomorrow is a better day to get started.
+ - Staying present, living in Presence is the best gift anyone can give to those they love.
+ - Those who dare to try what others only dream of – never fail to discover that real effort is always rewarded.
+ - The only way to cultivate a quiet mind is by planting seeds of silence.
+ - The path to the inwardly enriched life is not hidden from the man or woman who longs to walk upon it.
+ - The fear of seeing ourselves as we are ensures we will never see the end of our fears.
+ - The heart at peace is its own reward, needing nothing outside of itself to be fully content.
+ - From the movie, The Boy Who Could Fly Somewhere, deep inside, we can all fly.
+ - The greatest power you possess in life is your understanding that life gives you a fresh start any moment you choose.
+ - Weak thoughts and feelings often feel strong but remember, real strength is never anxious, cruel, or punishing.
+ - Knowledge without Spirit is like finding yourself on a cold night with all the wood in the world and no flame to ignite it.
+ - You have a destination far beyond where you find yourself standing today.
+ - Make it your moment-to-moment aim to recognize the difference between being aware of your thoughts, and being carried along by them.
+ - Work to connect yourself to the allness of life – instead of identifying with the smallness of it – and you’ll awaken to a greatness already living within you that is no more bothered by the little things in life than a mountain is made miserable by the rain that falls upon it.
+ - Believing that anxious thoughts and feelings can restore order to your life is like using a chain-saw to fold your laundry.
+ - Much like the hands of a clock go nowhere fast, anxious thoughts run us round-and-round without taking us anywhere!
+ - You must learn to stop thinking in terms of beginnings and endings, successes and failures, and begin to treat everything in your life as a learning experience instead of a proving one.
+ - Wasting your time in anxious worry over what you may not have is a good way to waste what you need to get it.
+ - We are not here on earth to change our destiny, but to fulfill it.
+ - Never run from what you don’t understand, as it will be waiting for you every time you come to a stop.
+ - Each moment of life is only as precious as is our ability to attend to it.
+ - Instead of always asking yourself how to clear up your mental fog, learn to ask: “Can confusion know anything about clarity?”
+ - Only you can choose the nature of what grows, or what doesn’t, within you.
+ - The only world in which “defeat” exists as a reality is the one darkened by the false idea that what may have happened to us a moment ago is the same as what’s possible for us to achieve now.
+ - To be more aware, we need only listen for and let go of the thoughts which steal our attention.
+ - Resistance to revelation, resistance to becoming conscious of all that dwells within us – high and low, light and dark – is the anti-change factor. It is also the mainspring of all our psychological fears.
+ - Disappointment, discouragement, and despair are nothing but the bitter fruit of an unfulfilled expectation allowed to live beyond its time.
+ - Our greatest strength isn’t our ability to imagine brighter days ahead, it is that we are empowered-in every present moment-to effortlessly dismiss any dark thought or feeling that, left unattended, diminishes our happiness.
+ - A crisis is a close encounter of the third kind.
+ - See that any time you feel pained or defeated, it is only because you insist on clinging to what doesn’t work. Dare to let go and you won’t lose a thing except for a punishing idea.
+ - Real freedom isn’t subject to how others estimate our value; it is in realizing that none are free who find their sense of worth wondering how others measure their lives.
+ - Getting stressed and struggling to change the outcome of any past event is like arguing with an echo to make it see your point of view.
+ - Love is effortless attention.
+ - Past mistakes cannot create a present pain; no mistake in life has the power to make us ache any more than the echo of someone crying can shed tears.
+ - Rushing around, hoping to find peace of mind anywhere other than within yourself, is like looking for your heart in someone else’s body!
+ - Chasing after a pleasure to ease a pain is like running after a breeze to cool you down.
+ - The great ones in life are not those who are handed silver spoons. Their excellence comes from digging into the raw ore of their own character, through hard work, persistence and faith turning whatever they touch into gold.
+ - If you love getting gifts – and who doesn’t – then why not accept, with gratitude, the greatest gift there is: the present moment.
+ - Trying to change ourselves in order to please others – so that we can feel temporarily whole for having won their approval – is like cutting a flower into pieces so that it will fit into a vase.
+ - An unattended mind is the breeding ground of self-defeat.
+ - If we only knew how many times our seemingly clever comment cut straight into the heart of the person with whom we have just spoken, it is we who would bleed.
+ - Be still; quietly remember the presence of and within yourself, and you will know, without thinking, that while all around you everything changes, within you lives something unchanging.
+ - Real love cannot be deceived because it wants nothing outside of itself.
+ - It’s time to break our ties with anything in us that would rather complain about its situation than go to work to change it.
+ - Eventually, we reach the point where we start to realize that we are not going to find peace, contentment, happiness, strength, fearlessness – all of the things that in our heart of hearts we wish we had – outside of us.
+ - We conquer ourselves by learning patience, for she gives to us our longed for victory only in the surrender of self.
+ - Discouragement tricks you into mentally or emotionally dwelling in the very place you want to leave.
+ - Psychologically speaking, what is true requires no protection, and never becomes negative when challenged. On the other hand, what is false almost never stops trying to protect itself, which it does by finding fault with whatever or whoever challenges the false image behind which it always hides.
+ - The limit of your present understanding is not the limit of your possibilities.
+ - Listening to your own mind gives you “good reasons” why you should be fearful over unexpected events is just like being friends with someone who thinks it’s funny to find new ways to hurt you!
+ - False life is exhausting; Real Life is inexhaustible.
+ - No truly conscious human being sabotages himself – it’s impossible, because it’s contrary to Nature.
+ - All things good come to those for whom the Good is all things.
+ - The belief that you have no choice but to keep suffering through whatever frightens you is like believing you have to hold onto a scalding cup so that you won’t spill your coffee!
+ - We must do the work to prove our fears groundless, otherwise it is our fears that will gain ground and our lives will be spent in their service.
+ - No experience in life is set in stone unless we ourselves have unwittingly poured the concrete!
+ - Each time we see and are touched by the expression of some eternal principle, we catch a sweet glimpse of some aspect of our True Self.
+ - The real quality of our life is not determined by what we have won from it, but by what we have discovered within it.
+ - What you don’t want to know about yourself wants to be known, which is why it keeps ‘showing up’ at your door unannounced!
+ - One of the most important rules for me is: Don’t ever defend myself. If we could put this one principle into practice, how much more simple life would be.
+ - Do the moment-to-moment work of dropping anything that wants to drag you down, and Reality itself will see to it that you rise.
+ - Anyone or anything that asks you to be untrue to yourself has already acted against you.
+ - Who you really are, your True Nature, is no more tied to the kind of person you’ve been than the wind is tied to the skies through which it moves.
+ - The only thing worried thoughts have the power to change is what the next thing will be for you to worry over!
+ - I am willing to walk toward, and then through, whatever may be seen in the moment as being greater than myself.
+ - Once you know what it means to choose in favor of yourself, there is no power in the universe that can make you choose against yourself.
+ - Spend everyday casual, but industrious Every moment alert, but relaxed.
+ - Real change isn’t found in some new way to think about yourself, but in freedom from the need to think about yourself at all.
+ - The only mistake that we can make as human beings is to be asleep, unaware of ourselves.
+ - It’s important for us to become aware of the fact that we are needful, for with that awareness also comes the sensing that we couldn’t be needful if there weren’t something to fulfill the need.
+ - What good is any feeling we may have about ourselves, if it only lasts as long as others agree to it?
+ - Fearlessness comes with the birth of this new understanding: The only reason life changes as it does is to reveal the secret Goodness underlying those same changes.
+ - Within the human being there exists both the needful and the needed. You know that the needful exists in you. Your own dissatisfaction tells you so. But you believe the needed is somewhere outside of you.
+ - If we’re interested in spiritual things, we gradually realize that what we really need is to understand this nature that seems to be a bottomless basket, because there is no peace in it.
+ - Instead of always asking yourself why so-and-so acts this or that way, learn to ask: “What’s inside of me that wants to hurt itself over how anyone else acts?”
+ - Don’t believe what the spiritual sharks and clever carnival hustlers tell you about fearless living – they lie.
+ - Everything passes. There is great beauty in this, both in the passing of pain and in the passing of pleasure. When things present themselves to you as permanent, don’t believe it.
+ - Learn to be one with who you are in Reality, and the waves of a thousand passing worlds cannot wash you away.
+ - To know that every moment – regardless of how it comes wrapped – is a gift greater than you can give yourself, is to be well on your way to a life without fear.
+ - You cannot separate the onset of a disturbing moment in life from the appearance of some simultaneous new possibility to know a deeper and more unshakable sense of peace.
+ - Every relationship that we have in our lives – our contact with each person, place, and event – serves a very special, if yet to be realized purpose: They are mirrors that can serve to show us things about ourselves that can be realized in no other way.
+ - The nature of what the Divine notices about you is completely different from the nature of what you do to get noticed.
+ - Every one of us lives in a world that is no larger and no smaller than our understanding.
+ - What world is there for us where our essential nature – and its right to live free – is one and the same?
+ - Far better is it for you to go through one small thing that frightens you than to make a thousand plans for an imagined fearless day to come.
+ - The smallest effort to remember the Divine, or even one of its timeless truths, connects you to a calmness whose power is in that secret strength found in all things deep.
+ - In spite of how things may appear to us, we are never trapped by where we are. The trap is always who we are.
+ - Any conclusion you reach about yourself has to be an unseen limitation because there’s always more to see.
+ - The strength of any weakness within us is the degree to which it is feared.
+ - It is Spiritually impossible to hide and see at the same time.
+ - Each moment of every one of my relationships serves as the secret path to the summit of myself.
+ - As the lesser is always found within the greater, so this principle holds true with regards to time and the eternal.
+ - The right attitude toward any negative state begins with understanding that its only authority over you is a direct reflection of your attitude towards it.
+ - The deepest parts of you know that if freedom from fear was as easy as ‘creating a new reality’ for yourself, then you would already be the fearless person you know in your heart that you’re meant to be.
+ - Letting go, at its heart, is an act of agreement with Life.
+ - Every truth ever discovered, each new spiritual light that will ever burn bright has already been seeded in our consciousness.
+ - Real prayer, the soul-transformi ng kind, is self-discontinu ity. It is a conscious act of self-suspension arising from the wish for something new to occur...
+ - The past is as powerless to darken the present moment as is a shadow to reach up and drag down the form that casts it.
+ - The more time we spend considering the shortcomings of others, the smaller a person we become.
+ - Real achievement – the true measure of how far we have advanced in life – is not determined by what we have acquired, but rather by the degree to which we have put our fears behind us.
+ - The mistake we have made in our lives is that over and over again we’ve run into the needful moment and then failed to learn its higher lesson. We don’t like needful moments and therefore we resist them.
+ - If I am identified with my relationship, with my house, or with my money, I am doomed to suffer.
+ - The secret self knows the anguish of our attachments and assures us that letting go of what we think we must have to be happy is the same as letting go of our unhappiness.
+ - Being anxious, or in a painful rush of any kind, kills the possibility of meeting anyone with compassion.
+ - Looking to any angry, anxious, or otherwise stressed emotional state to help you sort out the pain you’re in is like trying to organize your monthly bills by throwing them into a blender.
+ - Each time that you don’t know you are choosing, then of those choices you are not the chooser.
+ - It isn’t something of which most of us are aware, but we human beings are ‘marked’ with a certain strange feature, and that is: We want to change.
+ - Talking to yourself proves only one thing: you’re still unable to tell the difference between good and bad company.
+ - One way to measure your own fears is to count the number of personal questions you’ve allowed others to answer for you.
+ - Ours is the task of discovering that our true nature has nothing to fear.
+ - All created forms are fractal, as is their purpose, use, and allotted time for existence.
+ - No condition outside ourselves can create a rut or trap us in it. It’s impossible.
+ - It only seems that there is something more important for you to do than to just quietly be yourself.
+ - Life can only be as new as you Choose to be.
+ - The vast majority of our troubles and heartaches would simply vanish from view if only we could remember – before we act – that we are made victims mostly by our own tendencies.
+ - Your past is just that, the past, a place within your psyche with no more reality to it then the picture of a castle on a postcard is made from stone.
+ - The Peace you long for also longs for you.
+ - Self-pity is the campsite of self-defeat; it is a dark refuge for those parts of us that would rather wallow in what cannot be than dare to explore what is possible.
+
+135 quotes

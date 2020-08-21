@@ -1,0 +1,58 @@
+ - Sometimes rejection in life is really redirection.
+ - Why don’t we scale up those things that do work.
+ - Don’t envy someone else’s gift. Discover your own.
+ - Poverty and wealth inequality are a form of instability into the future.
+ - Having to try and going through the trials and tribulations to actually overcome, to get there to win, to triumph, that’s what makes life interesting.
+ - Music is the soundtrack of our lives, it’s essential for our lives.
+ - Take your focus off how others see you. Cease being obsessed with the need to impress your friends and your foes. Keep your concern on the vision you see in the mirror. Don’t allow the approval of others to obstruct your view of you.
+ - I love my cross-sectioned, cross-cultural audience. Some of them are doing better than the average guy, but my audience has always been people who are struggling to stay in the middle class.
+ - The storm came. Lives were washed away. Ancient pains resurfaced. Now it is time for a sea of change.
+ - The choices we make about the lives we live determine the kinds of legacies we leave.
+ - Regardless of your race, religion or political affiliation, never hesitate to question those in authority.
+ - Fear, fear, breeds hopelessness. When you’re afraid, you don’t know what to believe in, you don’t know what to hold on to. You’re struggling to find something to believe in.
+ - Capitalism is like a child: if you want the child to grow up free and productive, somebody’s got to look over the shoulder of that child.
+ - I love the fight. I don’t – it’s not a negative, it’s a positive, and I love the challenge. There’s that little part of me that I love proving someone wrong in that way when they have an image of me or something, or they think they have me figured out or they think I’m a certain way.
+ - When you work for something, you appreciate it more. So what are y’all going to do with all the opportunities you inherited that you didn’t have to work for?
+ - Struggling to stay in the middle class, and I love that. That’s me and my dad and my family.
+ - I’m very musically curious and I love new experience. I’m an adventurer. Some people want to sort of stay in a safe zone and repeat the same things and give them more depth, and I want to do new things all the time.
+ - The data is going to indicate sadly that when the Obama administration is over, black people will have lost ground in every single leading economic indicator category...
+ - My acting gives me my self-worth.
+ - We give you the facts. I told you information is power – knowledge is power. We can’t be in an ideological battle to redeem the soul of this country if we don’t have the facts.
+ - If you don’t have courage, you can’t practice any of the other virtues.
+ - Jamestown changed the world in many ways, but perhaps it shaped our nation most profoundly the day Africans arrived. I can’t think of a more relevant place to talk about the issues facing our community today than the place where African culture became American culture.
+ - I think the issue of women’s choice is essential for a woman being able to have their lives – if they cannot control their own bodies by choosing if or when to have a child, then they cannot control their working life or anything around them.
+ - For me, like when you’ve put yourself out there emotionally, physically, and you’ve really put yourself on the line, for me, that means I’ve really done something.
+ - How do you grow up in the shadow of a guy – I want to talk about the movie in a second – but how do you grow up in the shadow of a guy who really is a legend in his own time?
+ - This is not a skill problem, this is a will problem. Does America have the will to make education a priority? We know the things that work. Why don’t we scale up those things that do work.
+ - That is still the case in this country for too many students, the soft bigotry of low expectations. If you don’t expect them to learn, if you don’t expect them to succeed – then it becomes a self-fulfilling prophecy.
+ - When it comes to the president, we have to respect him, we have to protect him, and we have to correct him. And in my career, since he’d been on the national stage at least, I’ve had – I’ve always respected the president.
+ - I fear that we are living in a society, living in a world where forgiving people is becoming more and more difficult to do.
+ - I grew. Going outside my comfort zone is a big one for me.
+ - Leonard Pitts, Jr. is the most insightful and inspiring columnist of his generation.
+ - What determines your altitude in life is your attitude.
+ - In some states, not even 50 percent of black boys finish high school.
+ - History is replete with examples of moments in time when we talk about deficit reduction and try to advance on it around the world, that is, where it leads to job losses, not job creation.
+ - There are enough bad films coming out of this town already without the process being more democratized. I’m a guy who loves democracy. I’m all for democratizing any process, but I think there is a price to pay for that.
+ - I think a lot of people who go to drama school have this ease with the text and they all have five monologues that they know by heart, and I never had that. I’ve done Chekov and I’ve done Moliere and I’ve done classic stuff.
+ - To be clear, the gap between the have gots and the have nots is widening. In this most multicultural, multiracial, multiethnic America ever, that concerns me.
+ - I learned early on that it’s heartbreaking to – there’s the editor that comes in, and then they have to craft the movie together, and sometimes you give a whole performance that’s just been cut up, and maybe it’s better for it, absolutely, but you still have to deal with the loss of that.
+ - My role on television is one of helping people reexamine the assumptions that they hold. I regard Dr. King. You would never hear me get up and speak without in some way, shape or form, referencing, Dr. King.
+ - Troubled times do call for troubled songs, songs that unsettle our souls and our spirits unapologetically.
+ - This administration and these folk who run Washington are no more interested in our welfare and our well being than the man on the moon. And we have got to start taking our destiny into our hands.
+ - I think when I stop fighting, I die in a sense.
+ - I can’t count the number of people I’ve talked to over the course of my career who have said to me that the thing that they most regret is the one time they did something just for the money.
+ - I think, for most of us is that once you get to a certain place in your career you’re not having to elbow and knock people around and audition for parts.
+ - Live just because or live your life for a cause.
+ - I wanted to be a theater actress, and initially, I wanted to work in musical theater.
+ - I still think in this country, and this might surprise you, the one thing that George Bush said as president that I do agree with, I love that phrase, ’the soft bigotry of low expectations.
+ - When I’m at the premiere and I see the film in its entirety, I forget plot, I forget the story, I forget what my character goes through, because I really do just let it go.
+ - This whole notion of a post racial America was nonsense from the very beginning. It was a bad idea, a bad notion, a bad formulation when it was first raised.
+ - Competition’s always been a product of American lifestyle.
+ - I use the phrase “fellow citizen” all the time when referring to the – people always say, “The American people, the American people.” I prefer the phrase fellow citizen because there’s a power in that, there’s a responsibility, there’s a duty in using that phrase fellow citizen.
+ - We think of – there are too many wars, of course, in the world as we speak, but my read on this suggests to me that water is going to be the resource into the future that we’re really – that countries, nations, are going to be fighting for control over.
+ - Losing teaches you something.
+ - I believe if we make black America better, we make all of America better.
+ - We’re all cracked vessels, and we’re always in process, I think, every one of us.
+ - I feel like I’ve been successful after being done with the film is when I see it, if I’m embarrassed, if I’m slightly mortified, and if I feel super-vulnerable, I think I did something.
+
+56 quotes

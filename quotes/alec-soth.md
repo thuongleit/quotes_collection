@@ -1,0 +1,22 @@
+ - I always say that photography’s closest cousin is poetry because of the way it sparks your imagination and leaves gaps for the viewer to fill in.
+ - I’m a project-based photographer; I think in narrative terms, the way a writer thinks of a book, or a filmmaker a film.
+ - If you want to be a creative person, then you’re gonna have to be creative in how you put your career together. There isn’t a path. Part of the creativity is making your path.
+ - Photography is a very lonely medium. There’s a kind of beautiful loneliness in voyeurism. And that’s why I’m a photographer.
+ - For me, the act of photography is all about discovery and finding new things.
+ - I fell in love with the process of taking pictures, with wandering around finding things. To me it feels like a kind of performance. The picture is a document of that performance.
+ - Nobody really wants to be alone. People need people.
+ - Whether you are Minor White or Robert Frank, almost every photograph starts with an act of pure description – a window. But every now and then you catch a glimpse of the photographer’s reflection. The mirror is just another function of the window.
+ - Photography’s future is infinite and bright. It’s growing exponentially, so that’s great, but for me as a practitioner, that exponential growth makes it even more problematic. And so for me, it’s got me more engaged with storytelling.
+ - I didn’t want to pretend to be a conceptual artist that charges $10,000 for an experience. It’s just not what I am. I’m a photographer and I make prints. And people buy a print, and I understand that. But I’m uncomfortable with buying an experience.
+ - For me, photography is as much about the way I respond to the subject as it is about the subject itself.
+ - Photography, for me, is a lot like web surfing in real life.
+ - Watching my daughter sort of live in this world where a photograph is not something to keep a memory. It’s something to just speak with. It’s language.
+ - If limitation spawns creativity, is the limitless resource of the Internet a good thing?
+ - I’m like the annoying guy in the street.
+ - It’s a weird combination that makes a great picture. It’s a complete mystery to me.
+ - The people that I photographed allowed me to photograph them because they didn’t want to be alone, and the truth is I didn’t want to be alone making the pictures.
+ - I’ve never been comfortable photographing people I know, myself included. I guess I prefer the mystery of strangers.
+ - The reason I often say, for me, photography is analogous to poetry, for my kind of work more so than journalism, is because it’s so open to interpretation. And I’m very happy having different interpretations of it.
+ - For good work to develop the technology needs to become as stable and functional as a typewriter.
+
+20 quotes

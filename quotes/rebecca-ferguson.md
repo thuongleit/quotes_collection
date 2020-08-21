@@ -1,0 +1,24 @@
+ - If you haven’t got love, you’ve got nothing.
+ - I’m a better writer than I am a singer, and I express myself easily through writing.
+ - I am lucky in that I love what I do, but it can still be hard to be away from the kids for long lengths of time. At the end of the day, all I want is to be with my kids, but it’s worth it to create a future for my family.
+ - I like Marilyn Monroe; she was super glam, weren’t she?
+ - I was looking for something to make me happy, and once I realised what I actually had, then I found success.
+ - I like listening to old soul music. I like Sam Cooke. When I was growing up, the first things I was listening to was Whitney Houston and Cher. They were really big inspirations for me.
+ - I can’t watch my first audition because it makes me too upset. I just think it is really sad. I look at myself and don’t recognize myself. I do think fame and fortune changes people.
+ - I love hats and winter is the perfect time for them. I love winter time fashion.
+ - If you are going to survive in business, show business or any business, then you have to be bold.
+ - My family are too grounded, and I will go home to visit. I always need my dose of Liverpool to keep me grounded.
+ - I like to write poetry.
+ - People think that because of my nature and the tone of my voice that I’m stupid, and that’s hard.
+ - I don’t really read books. Wish I did.
+ - My advice is, if you are going to go on ‘X Factor,’ you have to know who you are as an artist.
+ - I’d definitely like more kids when I’m older. And I think I’m like every woman in that I’d like to get married one day.
+ - If you are not happy with the song, don’t sing it. Simple as that – no-one forces you to do it.
+ - You meet someone, you care for them, and you fall in love; it’s what it is.
+ - I’m not afraid of a rant, am I? I’ve got to that point where I’ve just become a woman; I think I’ve just grown.
+ - Growing up, we didn’t have anything. My mum wasn’t well, so I was in three care homes then foster homes before me and my little brother went back to her. I was passed from pillar to post.
+ - My first album is a lot of my personal experiences. I wanted people to relate to what I’ve been through.
+ - I absolutely love Nicole Scherzinger. She’s worked really hard to get to where she is and really knows her stuff.
+ - I knew I could sing. That one thing I did believe in was that I could sing, but then constantly getting rejected, it started to get me down. But my voice was always there and my dream and my ambition was always there when I went through bad times.
+
+22 quotes

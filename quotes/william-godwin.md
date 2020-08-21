@@ -1,0 +1,68 @@
+ - The wise man is satisfied with nothing.
+ - Study with desire is real activity; without desire it is but the semblance and mockery of activity.
+ - All education is despotism. It is perhaps impossible for the young to be conducted without introducing in many cases the tyranny implicit in obedience. Go there; do that; read; write; rise; lie down – will perhaps forever be the language addressed to youth by age.
+ - He that loves reading has everything within his reach.
+ - Books are the depositary of everything that is most honourable to man.
+ - Perfectibility is one of the most unequivocal characteristics of the human species.
+ - God himself has no right to be a tyrant.
+ - He that revels in a well-chosen library has inumerable dishes, and all of admirable flavor.
+ - The subtleties of mathematics defecate the grossness of our apprehension, and supply the elements of a sounder and severer logic.
+ - Above all we should not forget that government is an evil, a usurpation upon the private judgement and individual conscience of mankind.
+ - Justice is the sum of all moral duty.
+ - Of Belief Human mathematics, so to speak, like the length of life, are subject to the doctrine of chances.
+ - The great model of the affection of love in human beings is the sentiment which subsists between parents and children.
+ - As the true object of education is not to render the pupil the mere copy of his preceptor, it is rather to be rejoiced in, than lamented, that various reading should lead him into new trains of thinking.
+ - Invisible things are the only realities; invisible things alone are the things that shall remain.
+ - Power is not happiness.
+ - My mind was bursting with depression and anguish. I muttered imprecations and murmuring as I passed along. I was full of loathing and abhorrence of life, and all that life carries in its train.
+ - Literature, taken in all its bearings, forms the grand line of demarcation between the human and the animal kingdoms.
+ - No maxim can be more pernicious than that which would teach us to consult the temper of the times, and to tell only so much as we imagine our contemporaries will be able to bear.
+ - If he who employs coercion against me could mould me to his purposes by argument, no doubt he would. He pretends to punish me because his argument is strong; but he really punishes me because his argument is weak.
+ - Duty is that mode of action on the part of the individual which constitutes the best possible application of his capacity to the general benefit.
+ - Whenever truth stands in the mind unaccompanied by the evidence upon which it depends, it cannot properly be said to be apprehended at all.
+ - If admiration were not generally deemed the exclusive property of the rich, and contempt the constant lackey of poverty, the love of gain would cease to be an universal problem.
+ - Revolution is engendered by an indignation with tyranny, yet is itself pregnant with tyranny.
+ - Power is not happiness. Security and peace are more to be desired than a man at which nations tremble.
+ - The proper method for hastening the decay of error is by teaching every man to think for himself.
+ - Let us not, in the eagerness of our haste to educate, forget all the ends of education.
+ - The proper method for hastening the decay of error, is not, by brute force, or by regulation which is one of the classes of force, to endeavour to reduce men to intellectual uniformity; but on the contrary by teaching every man to think for himself.
+ - There can be no passion, and by consequence no love, where there is not imagination.
+ - Government will not fail to employ education, to strengthen its hands and perpetuate its institutions.
+ - Self-respect to be nourished in the mind of the pupil, is one of the most valuable results of a well conducted education.
+ - We are so curiously made that one atom put in the wrong place in our original structure will often make us unhappy for life.
+ - It is absurd to expect the inclinations and wishes of two human beings to coincide, through any long period of time. To oblige them to act and live together is to subject them to some inevitable potion of thwarting, bickering, and unhappiness.
+ - The philosophy of the wisest man that ever existed, is mainly derived from the act of introspection.
+ - Hereditary wealth is in reality a premium paid to idleness.
+ - Books gratify and excite our curiosity in innumerable ways.
+ - But the watchful care of the parent is endless. The youth is never free from the danger of grating interference.
+ - My thoughts will be taken up with the future or the past, with what is to come or what has been. Of the present there is necessarily no image.
+ - There is no sphere in which a human being can be supposed to act where one mode of reasoning will not, in every given instance, be more reasonable than any other mode. That mode the being is bound by every principle of justice to pursue.
+ - Everything understood by the term co-operation is in some sense an evil.
+ - There must be room for the imagination to exercise its powers; we must conceive and apprehend a thousand things which we do not actually witness.
+ - A celebrated north country apostle, who, after Calvin had damned ninety-nine in a hundred of mankind, had contrived a scheme for damning ninety-nine in a hundred of the followers of Calvin.
+ - One of the prerogatives by which man is eminently distinguished from all other living beings inhabiting this globe of earth, consists in the gift of reason.
+ - The first duty of man is to take none of the principles of conduct upon trust; to do nothing without a clear and individual conviction that it is right to be done.
+ - To conceive that compulsion and punishment are the proper means of reformation is the sentiment of a barbarian.
+ - The lessons of their early youth regulated the conduct of their riper years.
+ - The cause of justice is the cause of humanity. Its advocates should overflow with universal good will. We should love this cause, for it conduces to the general happiness of mankind.
+ - Government can have no more than two legitimate purposes – the suppression of injustice against individuals within the community, and the common defense against external invasion.
+ - The diligent scholar is he that loves himself, and desires to have reason to applaud and love himself.
+ - What can be more clear and sound in explanation, than the love of a parent to his child?
+ - The real or supposed rights of man are of two kinds, active and passive; the right in certain cases to do as we list; and the right we possess to the forbearance or assistance of other men. The first of these a just philosophy will probably induce us universally to explode.
+ - Make men wise, and by that very operation you make them free. Civil liberty follows as a consequence of this; no usurped power can stand against the artillery of opinion.
+ - If there be such a thing as truth, it must infallibly be struck out by the collision of mind with mind.
+ - The virtue of a human being is the application of his capacity to the general good.
+ - Every man has a certain sphere of discretion which he has a right to expect shall not be infringed by his neighbours. This right flows from the very nature of man.
+ - Whenever government assumes to deliver us from the trouble of thinking for ourselves, the only consequences it produces are those of torpor and imbecility.
+ - What indeed is life, unless so far as it is enjoyed? It does not merit the name.
+ - The execution of any thing considerable implies in the first place previous persevering meditation.
+ - Revolutions are the produce of passion, not of sober and tranquil reason.
+ - Perseverance is an active principle, and cannot continue to operate but under the influence of desire.
+ - In a well-written book we are presented with the maturest reflections, or the happiest flights of a mind of uncommon excellence. It is impossible that we can be much accustomed to such companions without attaining some resemblance to them.
+ - Man is the only creature we know, that, when the term of his natural life is ended, leaves the memory of himself behind him.
+ - Our judgment will always suspect those weapons that can be used with equal prospect of success on both sides.
+ - In cases where every thing is understood, and measured, and reduced to rule, love is out of the question.
+ - We cannot perform our tasks to the best of our power, unless we think well of our own capacity.
+ - It is probable that there is no one thing that it is of eminent importance for a child to learn.
+
+66 quotes

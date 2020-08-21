@@ -1,0 +1,310 @@
+ - Intelligence is the ability to adapt to change. 
+ - Quiet people have the loudest minds.
+ - The universe doesn't allow perfection.
+ - Nothing is better than reading and gaining more and more knowledge.
+ - However difficult life may seem, there is always something you can do and succeed at.
+ - One, remember to look up at the stars and not down at your feet. Two, never give up work. Work gives you meaning and purpose and life is empty without it. Three, if you are lucky enough to find love, remember it is there and don’t throw it away.
+ - I have noticed that even those who assert that everything is predestined and that we can change nothing about it still look both ways before they cross the street.
+ - If time travel is possible, where are the tourists from the future?
+ - My goal is simple. It is a complete understanding of the universe, why it is as it is and why it exists at all.
+ - While there is life, there is hope.
+ - We are just an advanced breed of monkeys on a minor planet of a very average star. But we can understand the Universe. That makes us something very special.
+ - People who boast about their I.Q. are losers.
+ - Look up at the stars, not down at your feet.
+ - I don’t fear God - I fear His believers.
+ - We only have to look at ourselves to see how intelligent life might develop into something we wouldn’t want to meet.
+ - When the going gets tough, the tough take a coffee break.
+ - To confine our attention to terrestrial matters would be to limit the human spirit.
+ - I don't think the human race will survive the next thousand years, unless we spread into space.
+ - There should be no boundaries to human endeavor. However bad life may seem, there is always hope.
+ - I am just a child who has never grown up. I still keep asking these ‘how’ and ‘why’ questions. Occasionally, I find an answer.
+ - Its a crazy world out there. Be curious.
+ - The beatings will continue until morale improves.
+ - Real science can be far stranger than science fiction and much more satisfying.
+ - Work gives you meaning and purpose and life is empty without it.
+ - The past, like the future, is indefinite and exists only as a spectrum of possibilities.
+ - It surprises me how disinterested we are today about things like physics, space, the universe and philosophy of our existence, our purpose, our final destination. Its a crazy world out there. Be curious.
+ - I’m not afraid of death, but I’m in no hurry to die. I have so much I want to do first.
+ - So next time someone complains that you have made a mistake, tell him that may be a good thing. Because without imperfection, neither you nor I would exist.
+ - To understand recursion, one must first understand recursion.
+ - The more you learn, the more you know. The more you know, the more you forget. The more you forget, the less you know. So why bother to learn.
+ - In my mind, I am free.
+ - I have so much that I want to do. I hate wasting time.
+ - I’m not religious in the normal sense. I believe the universe is governed by the laws of science. The laws may have been decreed by God, but God does not intervene to break the laws.
+ - You cannot predict the future.
+ - Success is a relative term. It brings so many relatives.
+ - Succeed in spite of management.
+ - We are all now connected by the Internet, like neurons in a giant brain.
+ - It’s the gravity that shapes the large scale structure of the universe, even though it is the weakest of four categories of forces.
+ - Life would be tragic if it weren’t funny.
+ - No one undertakes research in physics with the intention of winning a prize. It is the joy of discovering something no one knew before.
+ - The lesson of the book is that the universe is governed by the laws of science.
+ - If you are lucky enough to find love, remember it is there and don’t throw it away.
+ - For millions of years, mankind lived just like the animals. Then something happened which unleashed the power of our imagination. We learned to talk and we learned to listen.
+ - Perhaps we could write code to optimize code, then run that code through the code optimizer?
+ - I want to know why the universe exists, why there is something greater than nothing.
+ - Nothing is fool-proof to a sufficiently talented fool.
+ - There is no unique picture of reality.
+ - Although I cannot move and I have to speak through a computer, in my mind I am free.
+ - Why do we remember the past, but not the future?
+ - So Einstein was wrong when he said, “God does not play dice.” Consideration of black holes suggests, not only that God does play dice, but that he sometimes confuses us by throwing them where they can’t be seen.
+ - The thing about smart people is that they seem like crazy people to dumb people.
+ - I’m really easy to get along with once you see it my way.
+ - Only time – whatever that may be – will tell.
+ - Whether you want to uncover the secrets of the universe, or you just want to pursue a career in the 21st century, basic computer programming is an essential skill to learn.
+ - Hang in there, retirement is only thirty years away!
+ - The development of full artificial intelligence could spell the end of the human race.
+ - Science can explain the universe without the need for a Creator.
+ - The idea that we are alone in the universe seems to me completely implausible and arrogant, considering the number of planets and stars that we know exist, it’s extremely unlikely that we are the only form of evolved life.
+ - We should seek the greatest value of our action.
+ - There is no heaven or afterlife for broken-down computers; that is a fairy story for people afraid of the dark.
+ - One cannot really argue with a mathematical theorem.
+ - What is important is that we have the ability to create.
+ - You cannot understand the glories of the universe without believing there is some Supreme Power behind it.
+ - Thirty years ago I was diagnosed with motor neurone disease, and given two and a half years to live. I have always wondered how they could be so precise about the half.
+ - It is no good getting furious if you get stuck. What I do is keep thinking about the problem but work on something else. Sometimes it is years before I see the way forward. In the case of information loss and black holes, it was 29 years.
+ - If I have questions about the universe on my mind when I go to bed, I can’t turn off. I dream equations all night.
+ - Jesus loves you, but everyone else thinks you’re an ass.
+ - We each exist for but a short time, and in that time explore but a small part of the whole universe.
+ - The victim should have the right to end his life, if he wants. But I think it would be a great mistake. However bad life may seem, there is always something you can do, and succeed at. While there’s life, there is hope.
+ - We are in danger of destroying ourselves by our greed and stupidity. We cannot remain looking inwards at ourselves on a small and increasingly polluted and overcrowded planet.
+ - One can’t prove that God doesn’t exist, but science makes God unnecessary. The laws of physics can explain the universe without the need for a creator.
+ - The Universe in a Nutshell.
+ - We find ourselves in a bewildering world. We want to make sense of what we see around us and to ask: What is the nature of the universe? What is our place in it and where did it and we come from? Why is it the way it is?
+ - The idea of 10 dimensions might sound exciting, but they would cause real problems if you forget where you parked your car.
+ - I believe everyone should have a broad picture of how the universe operates and our place in it. It is a basic human desire. And it also puts our worries in perspective.
+ - Mankind’s greatest achievements have come about by talking and its greatest failures by not talking. It doesn’t have to be like this.
+ - A zero-gravity flight is a first step toward space travel.
+ - I would like nuclear fusion to become a practical power source. It would provide an inexhaustible supply of energy, without pollution or global warming.
+ - Observations indicate that the universe is expanding at an ever increasing rate. It will expand forever, getting emptier and darker.
+ - Time and space are finite in extent, but they don’t have any boundary or edge. They would be like the surface of the earth, but with two more dimensions.
+ - I don’t think the human race will survive the next thousand years, unless we spread into space. There are too many accidents that can befall life on a single planet. But I’m an optimist. We will reach out to the stars.
+ - If I had to choose a superhero to be, I would pick Superman. He’s everything that I’m not.
+ - Love the neighbor. But don’t get caught.
+ - So long as the universe had a beginning, we could suppose it had a creator. But if the universe is really completely self-contained, having no boundary or edge, it would have neither beginning nor end: it would simply be. What place, then, for a creator?
+ - What I meant by ‘we would know the mind of God’ is, we would know everything that God would know, if there were a God. Which there isn’t. I’m an atheist.
+ - As a child, I wanted to know how things worked and to control them. With a friend, I built a number of complicated models that I could control. It was a natural next step to want to know how the universe works.
+ - Philosophers have not kept up with modern developments in science. Particularly physics.
+ - There is a real danger that computers will develop intelligence and take over.
+ - I don’t believe that the ultimate theory will come by steady work along existing lines. We need something new. We can’t predict what that will be or when we will find it because if we knew that, we would have found it already!
+ - We think we have solved the mystery of creation. Maybe we should patent the universe and charge everyone royalties for their existence.
+ - So great a contribution to physics was Two New Sciences that scholars have long maintained that the book anticipated Isaac Newton’s laws of motion.
+ - Sometimes I wonder if I’m as famous for my wheelchair and disabilities as I am for my discoveries.
+ - The usual approach of science of constructing a mathematical model cannot answer the questions of why there should be a universe for the model to describe. Why does the universe go to all the bother of existing?
+ - We won’t know for a few years.
+ - Any physical theory is always provisional, in the sense that it is only a hypothesis: you can never prove it.
+ - I believe in universal health care. And I am not afraid to say so.
+ - But a machine that was powerful enough to accelerate particles to the grand unification energy would have to be as big as the Solar System – and would be unlikely to be funded in the present economic climate.
+ - The real challenge is to work out what aliens might actually be like.
+ - The doctor who diagnosed me with ALS, or motor neuron disease, told me that it would kill me in two or three years.
+ - The concern here is that financial services become a kind of tech-led Wild West.
+ - When something is made idiot proof, they will just make better idiots.
+ - Science is beautiful when it makes simple explanations of phenomena or connections between different observations.
+ - Disability need not be an obstacle to success.
+ - What was God doing before the divine creation? Was he preparing hell for people who asked such questions?
+ - People won’t have time for you if you are always angry or complaining.
+ - In fact, if one considers the possible constants and laws that could have emerged, the odds against a universe that produced life like ours are immense.
+ - We are very, very small, but we are profoundly capable of very, very big things.
+ - Because there is a law such as gravity, the Universe can and will create itself from nothing.
+ - It matters if you don’t just give up.
+ - Science is not only a disciple of reason but, also, one of romance and passion.
+ - Without imperfection, you or I would not exist.
+ - I think the next century will be the century of complexity.
+ - Time travel may be possible, but it is not practical.
+ - There is a fundamental difference between religion, which is based on authority, and science, which is based on observation and reason. Science will win because it works.
+ - Doing a job RIGHT the first time gets the job done. Doing the job WRONG fourteen times gives you job security.
+ - To boldly go where no one has gone before.
+ - The increase of disorder or entropy is what distinguishes the past from the future, giving a direction to time.
+ - We are all different. There is no such thing as a standard or run-of-the-mill human being, but we share the same human spirit.
+ - Nuclear weapons need large facilities, but genetic engineering can be done in a small lab. You can’t regulate every lab in the world. The danger is that either by accident or design, we create a virus that destroys us.
+ - I have sold more books on physics than Madonna has on sex.
+ - The boundary condition of the universe is that it has no boundary.
+ - Time travel used to be thought of as just science fiction, but Einstein’s general theory of relativity allows for the possibility that we could warp space-time so much that you could go off in a rocket and return before you set out.
+ - Women. They are a complete mystery.
+ - Plagiarism saves time.
+ - I do not believe in a personal God.
+ - Nothing cannot exist forever.
+ - One could imagine such technology outsmarting financial markets, out-inventing human researchers, out-manipulating human leaders, and developing weapons we cannot even understand.
+ - I believe things cannot make themselves impossible.
+ - My first popular book, ‘A Brief History of Time,’ aroused a great deal of interest, but many found it difficult to understand.
+ - My expectations were reduced to zero when I was 21. Everything since then has been a bonus.
+ - Although quantum mechanics has been around for nearly 70 years, it is still not generally understood or appreciated, even by those that use it to do calculations.
+ - In a world that is in chaos politically, socially and environmentally, how can the human race sustain another 100 years?
+ - Science makes god unnecessary.
+ - I like physics, but I love cartoons.
+ - The wise never marry, and when they marry they become otherwise.
+ - The human failing I would most like to correct is aggression. It may have had survival advantage in caveman days, to get more food, territory or partner with whom to reproduce, but now it threatens to destroy us all.
+ - The moment you understand the whole Universe, is the moment you slightly begin to understand the way God’s mind works.
+ - I am damned if I’m going to die before I have unraveled more of the universe.
+ - Our population and our use of the finite resources of planet Earth are growing exponentially, along with our technical ability to change the environment for good or ill.
+ - There could be whole antiworlds and antipeople made out of antiparticles. However, if you ever meet your antiself, don’t shake hands! You would both vanish in a great flash of light.
+ - Equations are just the boring part of mathematics. I attempt to see things in terms of geometry.
+ - We are only the temporary custodians of the particles which we are made of. They will go on to lead a future existence in the enormous universe that made them.
+ - God abhors a naked singularity.
+ - There should be a better way to start a day than waking up every morning.
+ - There ought to be something very special about the boundary conditions of the universe and what can be more special than that there is no boundary?
+ - I’m here to chew gum and kick some ass, and I’m all out of gum.
+ - Physics as we know it will be over in six months – Max Born.
+ - Scientific discovery may not be better than sex, but the satisfaction lasts longer.
+ - In real time, the universe has a beginning and an end at singularities that form a boundary to space-time and at which the laws of science break down.
+ - Go the extra mile. It makes your boss look like an incompetent slacker.
+ - I want to encourage public interest in space. I have never let my condition stop me. You only live once.
+ - There are no black holes – in the sense of regimes from which light can’t escape to infinity. There are however apparent horizons which persist for a period of time.
+ - I think the universe was spontaneously created out of nothing, according to the laws of science. It has no beginning and no end.
+ - We don’t let animals suffer, so why humans?
+ - Obviously, because of my disability, I need assistance. But I have always tried to overcome the limitations of my condition and lead as full a life as possible. I have traveled the world, from the Antarctic to zero gravity.
+ - I’d say I don’t believe in God, but I’m afraid He might hear me.
+ - If human life were long enough to find the ultimate theory, everything would have been solved by previous generations. Nothing would be left to be discovered.
+ - Exploration by real people inspires us.
+ - Do you believe in first love – or should I pass by again?
+ - It is a waste of time to be angry about my disability. One has to get on with life and I haven’t done badly. People won’t have time for you if you are always angry or complaining.
+ - It is very important for young people keep their sense of wonder and keep asking why.
+ - With genetic engineering, we will be able to increase the complexity of our DNA, and improve the human race. But it will be a slow process, because one will have to wait about 18 years to see the effect of changes to the genetic code.
+ - Our only chance of long-term survival is not to remain lurking on planet Earth, but to spread out into space.
+ - Scientists have become the bearers of the torch of discovery in our quest for knowledge.
+ - One can’t predict the weather more than a few days in advance.
+ - The fact that no one understands you doesn’t mean you’re an artist.
+ - If aliens visit us, the outcome would be much as when Columbus landed in America, which didn’t turn out well for the Native Americans.
+ - I want my books sold on airport bookstalls.
+ - I think those who have a terminal illness and are in great pain should have the right to choose to end their own life, and those that help them should be free from prosecution.
+ - It is said that there’s no such thing as a free lunch. But the universe is the ultimate free lunch.
+ - The meaning in life is not out there but inbetween our ears. In many ways this makes us the lords of creation.
+ - Even if there is only one possible unified theory, it is just a set of rules and equations. What is it that breathes fire into the equations and makes a universe for them to describe?
+ - In the last 200 years the population of our planet has grown exponentially, at a rate of 1.9% per year. If it continued at this rate, with the population doubling every 40 years, by 2600 we would all be standing literally shoulder to shoulder.
+ - People think I’m a Simpsons character.
+ - Eternity is a long time, especially towards the end.
+ - It is impossible to imagine a four-dimensional space. I personally find it hard enough to visualize a three-dimensional space!
+ - I used to think information was destroyed in black hole. This was my biggest blunder, or at least my biggest blunder in science.
+ - Unless mankind redesigns itself by changing our DNA through altering our genetic makeup, computer-genera ted robots will take over our world.
+ - Many people find the universe confusing – it’s not.
+ - If at first you don’t succeed, try management.
+ - A snooze button is a poor substitute for no alarm clock at all.
+ - I wouldnt be here today if it were not for the NHS, I have received a large amount of high-quality treatment without which I would not have survived.
+ - Why are we here? Where do we come from? Traditionally, these are questions for philosophy, but philosophy is dead.
+ - I think the human race has no future if it doesn’t go into space.
+ - Of course it is possible that UFO’s really do contain aliens as many people believe, and the government is hushing it up.
+ - The Simpsons is the best thing on American television.
+ - The laws of science do not distinguish between the past and the future.
+ - Don’t be disabled in spirit as well as physically.
+ - It is reasonable to ask who or what created the universe, but if the answer is God, then the question has merely been deflected to that of who created God.
+ - Many people do not like the idea that time has a beginning, probably because it smacks of divine intervention.
+ - Maxwell is the physicist’s physicist.
+ - Simplicity is a matter of taste.
+ - It would be very difficult to explain why the universe should have begun in just this way, except as the act of a God who intended to create beings like us.
+ - Every man should marry. After all, happiness is not the only thing in life.
+ - Do you ever wonder how much deeper the ocean would be without sponges?
+ - One should love animals. They are so tasty.
+ - Being confined to a wheelchair doesn’t bother me as my mind is free to roam the universe, but it felt wonderful to be weightless.
+ - Chaos, when left alone, tends to multiply.
+ - If the total energy of the universe must always remain zero, and it costs energy to create a body, how can a whole universe be created from nothing?
+ - Keeping an active mind has been vital to my survival, as has been maintaining a sense of humor.
+ - The human race shouldn’t have all its eggs in one basket, or on one planet. Let’s hope we can avoid dropping the basket until we have spread the load.
+ - We waste time, so you don’t have to.
+ - I’m a child myself, in the sense that I’m still looking. Children are fascinated by black holes and ask me questions. I find they soon get the idea if it is explained in nontechnical language.
+ - Everyone can enjoy a life of luxurious leisure if the machine-produced wealth is shared, or most people can end up miserably poor if the machine-owners successfully lobby against wealth redistribution.
+ - If the government is covering up knowledge of aliens, they are doing a better job of it than they do at anything else.
+ - I enjoy all forms of music – pop, classical and opera.
+ - What you have told us is rubbish. The world is really a flat plate supported on the back of a giant tortoise.
+ - One is always a long way from solving a problem until one actually has the answer.
+ - Computer viruses are alive.
+ - One does not have to appeal to God to set the initial conditions for the creation of the universe, but if one does He would have to act through the laws of physics.
+ - I think computer viruses should count as life. I think it says something about human nature that the only form of life we have created so far is purely destructive. We’ve created life in our own image.
+ - If you lined up all the cars in the world end to end, someone would try to pass them.
+ - Humanities deepest desire for knowledge is justification enough for continuing our quest. and our goal is nothing less than a complete description of the universe we live in.
+ - At times, I get very lonely because people are afraid to talk to me or don’t wait for me to write a response. I’m shy and tongue-tied at times. I find it difficult to talk to people who I don’t know.
+ - The whole history of science has been the gradual realization that events do not happen in an arbitrary manner, but that they reflect a certain underlying order, which may or may not be divinely inspired.
+ - There is nothing bigger or older than the universe.
+ - God not only plays dice, he throws them in the corner where you can’t see them.
+ - Science does not deny religion, it just offers a simpler alternative.
+ - We have made remarkable progress in the last hundred years, but if we want to continue, our future is in space.
+ - We explore because we are human.
+ - Though we feel we can choose what we do, our understanding of the molecular basis of biology shows that biological processes are governed by the laws of physics and chemistry and therefore are as determined as the orbits of the planets.
+ - There is a real danger that computers will develop intelligence and take over. We urgently need to develop direct connections to the brain so that computers can add to human intelligence rather than be in opposition.
+ - Using e-mail, I can communicate with scientists all over the world.
+ - The human race does not have a very good record of intelligent behavior.
+ - Evolution has ensured that our brains just aren’t equipped to visualise 11 dimensions directly. However, from a purely mathematical point of view it’s just as easy to think in 11 dimensions, as it is to think in three or four.
+ - Science could predict that the universe must have had a beginning.
+ - We go about our daily lives understanding almost nothing of the world.
+ - Some people would claim that things like love, joy and beauty belong to a different category from science and can’t be described in scientific terms, but I think they can now be explained by the theory of evolution.
+ - Before we understand science, it is natural to believe that God created the universe. But now science offers a more convincing explanation.
+ - What lies north of the North Pole?
+ - Galileo, perhaps more than any other single person, was responsible for the birth of modern science.
+ - Religion believes in miracles, but these aren’t compatible with science.
+ - The universe does not behave according to our pre-conceived ideas. It continues to surprise us.
+ - It was recently discovered that research causes cancer in rats.
+ - I don’t have much positive to say about motor neuron disease, but it taught me not to pity myself because others were worse off, and to get on with what I still could do. I’m happier now than before I developed the condition.
+ - If everything in the universe depends upon everything else in a fundamental way, it might be impossible to get close to a full solution by investigating parts of the problem in isolation.
+ - I’m the archetype of a disabled genius, or should I say a physically challenged genius, to be politically correct. At least I’m obviously physically challenged. Whether I’m a genius is more open to doubt.
+ - Science can lift people out of poverty and cure disease. That, in turn, will reduce civil unrest.
+ - There are grounds for cautious optimism that we may now be near the end ofthe search for the ultimate laws of nature.
+ - We could call order by the name of God, but it would be an impersonal God. There’s not much personal about the laws of physics.
+ - Once I wept for I had no shoes. Then I met a man with no feet, so I took his shoes. I mean, it wasn’t as if he was going to need them.
+ - We see the universe the way it is because we exist.
+ - Time travel was once considered scientific heresy, and I used to avoid talking about it for fear of being labelled a ‘crank.’
+ - Latest survey shows that 3 out of 4 people make up 75% of the world’s population.
+ - Most sets of values would give rise to universes that, although they might be very beautiful, would contain no one able to wonder at that beauty.
+ - Now, radical forward thinking is offering hope for the future: Replacement body parts to order. A team of scientists in California believe that if you can design them on a computer, you should be able to print them out.
+ - I have experimental evidence that time travel is not possible.
+ - I would rather be right than rigorous.
+ - If any one of about 40 physical qualities had more than slightly different values, life as we know it could not exist...
+ - Someone told me that each equation I included in the book would halve the sales.
+ - When I was first diagnosed with ALS, I was given two years to live. Now 45 years later, I am doing pretty well.
+ - Why does the universe go to all the bother of existing?
+ - Over a very small number of rolls of the dice, the uncertainty principle is very important.
+ - A lot of prizes have been awarded for showing the universe is not as simple as we might have thought.
+ - Children in backseats cause accidents. Accidents in backseats cause children.
+ - I am discounting reports of UFOs. Why would they appear only to cranks and weirdos?
+ - We live in the most probable of all possible worlds.
+ - The human capacity for guilt is such that people can always find ways to blame themselves.
+ - We are entering an increasingly dangerous period of our history. But I’m an optimist.
+ - Science predicts that many different kinds of universe will be spontaneously created out of nothing. It is a matter of chance which we are in.
+ - It is tribute to how far we have come in theoretical physics that it now takes enormous machines and a great deal of money to perform experiments whose results we can not predict.
+ - If you understand how the universe operates, you control it in a way.
+ - Theology is unnecessary.
+ - The life we have on Earth must have spontaneously generated itself. It must therefore be possible for life to generate spontaneously elsewhere in the universe.
+ - When two’s company, three’s the result!
+ - In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn’t change policy.
+ - There is no prescribed route to follow to arrive at a new idea. You have to make the intuitive leap.
+ - You can’t regulate every lab in the world.
+ - Among physicists, I’m respected I hope.
+ - The downside of my celebrity is that I cannot go anywhere in the world without being recognized. It is not enough for me to wear dark sunglasses and a wig. The wheelchair gives me away.
+ - The universe is governed by science. But science tells us that we can’t solve the equations, directly in the abstract.
+ - I may contradict myself, but at least I don’t contradict myself.
+ - Although September 11 was horrible, it didn’t threaten the survival of the human race, like nuclear weapons do.
+ - What I have done is to show that it is possible for the way the universe began to be determined by the laws of science. In that case, it would not be necessary to appeal to God to decide how the universe began. This doesn’t prove that there is no God, only that God is not necessary.
+ - Scientists tend to risk theories they admire.
+ - Maybe my viriety is due to bad absorption of vitamins.
+ - Computers double their performance every month.
+ - Some individuals are better able than others to draw the right conclusions about the world about them and act accordingly. These individuals will be more likely to survive and reproduce so their pattern of behaviour and thought will become dominant.
+ - There are too many accidents that can befall life on a single planet.
+ - Disorder increases with time because we measure time in the direction in which disorder increases.
+ - One could say: “The boundary condition of the universe is that it has no boundary.” The universe would be completely self-contained and not affected by anything outside itself. It would neither be created nor destroyed. It would just BE.
+ - All that my work has shown is that you don’t have to say that the way the universe began was the personal whim of God.
+ - The media need superheroes in science just as in every sphere of life, but there is really a continuous range of abilities with no clear dividing line.
+ - Or in other words, why does disorder increase in the same direction of time as that in which the universe expands?
+ - A model is a good model if first it interprets a wide range of observations in terms of a simple and elegant model, and second if the model makes definite predictions that can be tested, and possibly falsified, by observation.
+ - It’s clearly possible for a something to acquire higher intelligence than its ancestors: we evolved to be smarter than our ape-like ancestors, and Einstein was smarter than his parents.
+ - There is a very real danger that we will kill everything on this planet now that we have the technological power to do so.
+ - There is no way that we can predict the weather six months ahead beyond giving the seasonal average.
+ - More often than politicians, but not as often as they should.
+ - The progress of the human race in understanding the universe has established a small corner of order in an increasingly disordered universe.
+ - When I get to heaven I’m gonna find the guy in charge of the weather and kick his rear.
+ - If we do discover a complete theory, it should be in time understandable in broad principle by everyone. Then we shall all, philosophers, scientists, and just ordinary people be able to take part in the discussion of why we and the universe exist.
+ - No one can resist the idea of a crippled genius.
+ - We’ve created life in our own image.
+ - In effect, we have redefined the task of science to be the discovery of laws that will enable us to predict events up to the limits set by the uncertainty principle.
+ - Not to take this web of dualities as a sign we are on the right track would be a bit like believing that God put fossils into the rocks in order to mislead Darwin about the evolution of life.
+ - If I knew what was going to happen in ten years I would do it now. I just follow my nose.
+ - There are plenty of dead scientists I admire, but I can’t think of any living ones. This is probably because it is only in retrospect that one can see who made the important contributions.
+ - Issuing an insurance policy against abduction by aliens seems a pretty safe bet.
+ - It often happens that I have an idea, but then I try to fill in the intermediate steps and find they don’t work, so I have to give it up.
+ - If we ever do find a complete theory of the universe, it would be a great triumph of human reason but it wouldn’t leave much for us to do. We need an intellectual challenge.
+ - Science fiction can be exciting and very gripping, but it doesn’t tell us anything about the universe in which we live.
+ - Maybe I don’t have the most common kind of motor neuron disease, which usually kills in two or three years.
+ - Government works best under the glare of public scrutiny. Absent such scrutiny, abuses occur.
+ - What I have learned from life is to make the most of what you have got.
+ - All my adult life people have been helping me.
+ - It is not clear that intelligence has any long-term survival value.
+ - I don’t want to write an autobiography because I would become public property with no privacy left.
+
+308 quotes

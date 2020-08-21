@@ -1,0 +1,28 @@
+ - Real life is happening outside and not in front of a computer.
+ - Without sound conservation and management measures, fisheries will quickly become depleted and a basic component of global food security will be lost.
+ - The production of natural resources in agriculture, forestry and fisheries, stable natural hydrological cycles, fertile soils, a balanced climate and numerous other vital ecosystem services can only be permanently secured through the protection and sustainable use of biological diversity.
+ - What could become a danger to world peace is Iran’s nuclear program and the country’s open threat to annihilate Israel.
+ - Taming the financial markets and winning back democratic control over them is the central condition for creating a new social balance in Germany and Europe.
+ - Climate protection creates sustainability and jobs in the real economy – in construction, in the production of heavy machinery and in systems engineering.
+ - I hope Gunter Grass will continue helping the SPD in campaigns and that he will otherwise remain with us as a provocative literary figure, as well.
+ - We will fight against any pro-nuclear power plan. And we will remind people that a change in the German nuclear consensus would stifle the development of sustainable energy and it would cost jobs. The SPD is the strongest among the opposition parties and we must take on this role with vigour.
+ - Besides Germany, the only countries that don’t have speed limits are places like Nepal, where road conditions are so bad that a limit would be beside the point. In other words, it’s a little crazy that this is even a topic for debate in Germany.
+ - Maybe it is the last chance for Europe to influence standards for world trade. Next it will be between the US and the Asia-Pacific region.
+ - Those who reject integration programs in the long term have as little right to stay in Germany as a hate preacher paid from abroad in a mosque.
+ - But, as environment minister, I am very interested in a thriving German automobile industry, because I can only pay for the rising costs of environmental protection at home and abroad if there are people in Germany with jobs and who pay taxes.
+ - My office has a view of low-cost housing, old East German prefabricated apartment buildings. It isn’t an attractive view, but it’s very helpful, because it reminds me to ask myself, whenever there is a decision to be made, whether the people who live there can afford our decisions.
+ - We need a greening of globalisation.
+ - Finding the right form of debate regarding Israeli policies will remain a challenge in Germany. Even with every conceivable and warranted criticism, the danger always arises that it will be exploited by those who consciously or unconsciously present anti-Semitism in a new guise.
+ - What we have at present is a system of loss socialism. Whatever goes wrong is shouldered by the general public and anything that works is privatised. Worshippers of market freedom have suspended the most important economic principle: Risk and liability go hand in hand.
+ - I am certain that the United States next year, under a new president – regardless whether it’s Obama or McCain – will present an ambitious program promoting renewable energies and energy efficiency. Europe could quickly fall behind.
+ - The idea that the growing demand for energy worldwide can be met with energy from nuclear power is nonsense.
+ - Iran is the only country in the world that’s threatening to erase another country from the map as part of a collective genocide.
+ - If we want to implement climate protection worldwide, countries like Germany, which are capable of developing new technologies, will have to hand over some of their knowledge. We can’t expect to have our cake and eat it too.
+ - The G8 nations, together with the five major emerging economies of China, India, South Africa, Brazil, Mexico, use almost three-quarters of the Earth’s biocapacity – the capacity of the world’s ecosystems to produce natural resources and to reduce harmful substances.
+ - However, I have a low opinion of people with narrow political horizons. Someone who talks about the environment and knows nothing about economics can make as many mistakes as someone who does the opposite.
+ - We, the Social Democrats, are convinced that capitalism needs to be tamed a second time. The first time we achieved that in Germany for many decades with the social market economy. That is no longer enough. Now we need to do it in Europe and even globally.
+ - In Germany it is good if as many people as possible join initiatives and peaceful demonstrations against the rule of the financial markets. Worshipping the unfettered freedom of global markets has brought the world to the brink of ruin. We now need social and ecological rules for the market economy.
+ - In the business of politics, emotions and productive dissatisfaction with the world in which we live today are gradually being covered up by the minutiae of ordinary life.
+ - The shadow of an exit of Greece from the euro zone takes on ever clearer shape, repeated apparently final attempts to reach a deal are starting to make the whole process look ridiculous. There is an ever greater number of people who feel as if the Greek government is giving them the run-around.
+
+26 quotes

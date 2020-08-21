@@ -1,0 +1,68 @@
+ - Dear Leonard. To look life in the face. Always to look life in the face and to know it for what it is. At last to know it. To love it for what it is, and then, to put it away. Leonard. Always the years between us. Always the years. Always the love. Always the hours.
+ - But there are still the hours, aren’t there? One and then another, and you get through that one and then, my god, there’s another.
+ - A writer should always feel like he’s in over his head.
+ - I don’t think two people could have been happier than we have been.
+ - Venture too far for love, she tells herself, and you renounce citizenship in the country you’ve made for yourself.
+ - Take me with you. I want a doomed love. I want streets at night, wind and rain, no one wondering where I am.
+ - I was not ladylike, nor was I manly. I was something else altogether. There were so many different ways to be beautiful.
+ - Virginia Woolf’s great novel, ‘Mrs. Dalloway,’ is the first great book I ever read. I read it almost by accident when I was in high school, when I was 15 years old.
+ - There is a beauty in the world, though it’s harsher than we expect it to be.
+ - What she wants to say has to do not only with joy but with the penetrating, constant fear that is joy’s other half.
+ - The secret of flight is this – you have to do it immediately, before your body realizes it is defying the laws.
+ - Insomniacs know better than anyone how it would be to haunt a house.
+ - That is what we do. That is what people do. They stay alive for each other.
+ - What a thrill, what a shock, to be alive on a morning in June, prosperous, almost scandalously privileged, with a simple errand to run.
+ - Silly humans. Banging on a tub to make a bear dance when we would move the stars to pity.
+ - All over China, parents tell their children to stop complaining and to finish their quadratic equations and trigonometric functions because there are sixty-five million American kids going to bed with no math at all.
+ - She is, above all else, tired; she wants more than anything to return to her bed and her book. The world, this world, feels suddenly stunned and stunted, far from everything.
+ - Dead, we are revealed in our true dimensions, and they are surprisingly modest.
+ - A certain slightly cruel disregard for the feelings of living people is simply part of the package. I think a writer, if hes any good, is not an entirely benign entity in the world.
+ - She will remain sane and she will live as she was meant to live, richly and deeply, among others of her kind, in full possession and command of her gifts.
+ - There is still that singular perfection, and it’s perfect in part because it seemed, at the time, so clearly to promise more.
+ - Youth is the only sexy tragedy. It’s James Dean jumping into his Porsche Spyder, it’s Marilyn heading off to bed.
+ - She could have had a life as potent and dangerous as literature itself.
+ - She is overtaken by a sensation of unbeing. There is no other word for it.
+ - We’d hoped for love of a different kind, love that knew and forgave our human frailty but did not miniaturize our grander ideas of ourselves.
+ - Sure, go ahead, simulate life, using only ink and paper.
+ - I suspect any serious reader has a first great book, just the way anybody has a first kiss.
+ - Love is deep, a mystery – who wants to understand its every particular?
+ - Please, God, send me something to adore.
+ - She thinks how much more space a being occupies in life than it does in death; how much illusion of size is contained in gestures and movements, in breathing. Dead, we are revealed in our true dimensions, and they are surprisingly modest.
+ - These days, Clarissa believes, you measure people first by their kindness and their capacity for devotion. You get tired, sometimes, of wit and intellect; everybody’s little display of genius.
+ - A stray fact: insects are not drawn to candle flames, they are drawn to the light on the far side of the flame, they go into the flame and sizzle to nothingness because they’re so eager to get to the light on the other side.
+ - I am beginning to understand the true difference between youth and age. Young people have time to make plans and think of new ideas. Older people need their whole energy to keep up with what’s already been set in motion.
+ - Here is the world, and you live in it, and are grateful. You try to be grateful.
+ - We always worry about the wrong things, don’t we?
+ - If you’ve really loved a book, or a movie for that matter, really loved it, what you want is that same book again, but as if you’ve never read it. And when you get something unfamiliar, you feel betrayed.
+ - Her cake is a failure, but she is loved anyway. She is loved, she thinks, in more or less the way the gifts will be appreciated: because they have been given with good intentions, because they exist, because they are part of a world in which one wants what one gets.
+ - Perhaps, in the extravagance of youth, we give away our devotions easily and all but arbitrarily, on the mistaken assumption that we’ll always have more to give.
+ - That summer when she was eighteen, it seemed anything could happen, anything at all.
+ - Virginia Woolf came along in the early part of the century and essentially said through her writing, yes, big books can be written about the traditional big subjects. There is war. There is the search for God. These are all very important things.
+ - I think writing is, by definition, an optimistic act.
+ - Like my hero Virginia Woolf, I do lack confidence. I always find that the novel I’m finishing, even if it’s turned out fairly well, is not the novel I had in my mind. I think a lot of writers must negotiate this, and if they don’t admit it, they’re not being honest.
+ - I have no useful theories about love and marriage.
+ - You grow weary of being treated as the enemy simply because you are not young anymore; because you dress unexceptionally.
+ - You want to give him the book of his own life, the book that will locate him, parent him, arm him for the changes.
+ - One always has a better book in one’s mind than one can manage to get onto paper.
+ - She is not a writer at all, really; she is merely a gifted eccentric.
+ - I think of the people who commit these acts as children. They’re in their 20s, but like certain children, they have been told only one story, over and over. Like most children, they believe in an easily identifiable good and evil, and like most children, they are capable of unthinkable cruelty.
+ - I seem to produce a novel approximately once every three years.
+ - I love movies, I love television, I love narratives of all kinds.
+ - I don’t have any regrets, really, except that one. I wanted to write about you, about us, really. Do you know what I mean? I wanted to write about everything, the life we’re having and the lives we might have had. I wanted to write about all the ways we might have died.
+ - Oh, all you immigrants and visionaries, what do you hope to find here, who do you hope to become?
+ - What do you do when you’re no longer the hero of your own story?
+ - There’s just this for consolation: an hour here or there when our lives seem, against all odds and expectations, to burst open and give us everything we’ve ever imagined.
+ - I encourage the translators of my books to take as much license as they feel that they need. This is not quite the heroic gesture it might seem, because I’ve learned, from working with translators over the years, that the original novel is, in a way, a translation itself.
+ - What I wanted to do seemed simple. I wanted something alive and shocking enough that it could be a morning in somebody’s life. The most ordinary morning. Imagine, trying to do that.
+ - It’s the world, you live in it, even if some boy has made a fool of you.
+ - Language in fiction is made up of equal parts meaning and music. The sentences should have rhythm and cadence, they should engage and delight the inner ear.
+ - On a summer night it can be lovely to sit around outside with friends after dinner and, yes, read poetry to each other. Keats and Yeats will never let you down, but it’s differently exciting to read the work of poets who are still walking around out there.
+ - This is what you do. You make a future for yourself out of the raw material at hand.
+ - The lives great artists live and the books they write are two very different things.
+ - People are more than you think they are. And they’re less, as well. The trick lies in negotiating your way between the two.
+ - Here’s a secret. Many novelists, if they are pressed and if they are being honest, will admit that the finished book is a rather rough translation of the book they’d intended to write.
+ - As writers we must, from our very opening sentence, speak with authority to our readers.
+ - I just don’t feel much interested in the lifestyles of the rich and famous.
+ - I know, speaking for myself, no matter what I’m able to do, no matter what book comes out and ends up on paper, I always had something bigger and grander in my head.
+
+66 quotes

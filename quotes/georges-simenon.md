@@ -1,0 +1,23 @@
+ - I am at home everywhere, and nowhere. I am never a stranger and I never quite belong.
+ - I’m a bit like a sponge. When I’m not writing I absorb life like water. When I write I squeeze the sponge a little – and out comes, not water but ink.
+ - The lake and the mountains have become my landscape, my real world.
+ - We are all potentially characters in a novel – with the difference that characters in a novel really get to live their lives to the full.
+ - Writing is not a profession but a vocation of unhappiness. I don’t think an artist can ever be happy.
+ - It just happened. As though a moment comes when it’s both necessary and natural to make a decision that has long since been made.
+ - A novelist is a man who doesn’t like his mother.
+ - I would like to carve my novel in a piece of wood.
+ - It was night and I could see a large and calm lake, reflecting the moon. Black mountains rose around it. I arrived from between two of these mountains, I looked at the lake and the moon, and that was it, nothing else happened.
+ - If each one of us could make just one other happy, the whole world would know happiness.
+ - The place smelled of fairgrounds, of lazy crowds, of nights when you stayed out because you couldn’t go to bed, and it smelled like New York, of its calm and brutal indifference.
+ - We live in a time when writers do not always have barriers around them.
+ - One of them, for example, which will probably haunt me more than any other is the problem of communication.
+ - I have made love to ten thousand women.
+ - And Boucard desisted, probably because like everyone else he was deeply impressed by this man who had laid all ghosts, who had lost all shadows, and who stared you in the eyes with cold serenity.
+ - The fact that we are I don’t know how many millions of people, yet communication, complete communication, is completely impossible between two of those people, is to me one of the biggest tragic themes in the world.
+ - I saw Mussolini tirelessly contemplate a parade of thousands of young men.
+ - I have always tried to write in a simple way, using down-to-earth and not abstract words.
+ - If your vision of the world is of a certain kind you will put poetry in everything, necessarily.
+ - Trotsky rises to give me his hand, then sits at his desk, gently allowing his regard to light on my person.
+ - I write fast, because I have not the brains to write slow.
+
+21 quotes

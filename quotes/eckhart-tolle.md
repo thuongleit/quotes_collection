@@ -1,0 +1,502 @@
+ - If not now, when?
+ - The past has no power over the present moment.
+ - Realize deeply that the present moment is all you will ever have.
+ - This, too, will pass.
+ - All problems are illusions of the mind.
+ - Life isn’t as serious as the mind makes it out to be.
+ - Awareness is the greatest agent for change.
+ - The primary cause of unhappiness is never the situation but your thoughts about it.
+ - You are not your mind.
+ - It is not uncommon for people to spend their whole life waiting to start living.
+ - Whatever the present moment contains, accept it as if you had chosen it.
+ - Being must be felt. It can’t be thought.
+ - Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge.
+ - Worry pretends to be necessary but serves no useful purpose.
+ - Sometimes letting things go is an act of far greater power than defending or hanging on.
+ - Nonresistance is the key to the greatest power in the universe.
+ - Acknowledging the good that you already have in your life is the foundation for all abundance.
+ - To love is to recognize yourself in another.
+ - Life will give you whatever experience is most helpful for the evolution of your consciousness.
+ - You are here to enable the divine purpose of the Universe to unfold. That is how important you are!
+ - Become conscious of being conscious.
+ - As long as you make an identity for yourself out of pain, you cannot be free of it.
+ - Pleasure is always derived from something outside you, whereas joy arises from within.
+ - Doing is never enough if you neglect being.
+ - Don’t let a mad world tell you that success is anything other than a successful present moment.
+ - Life is the dancer and you are the dance.
+ - All the things that truly matter, beauty, love, creativity, joy and inner peace arise from beyond the mind.
+ - Words reduce reality to something the human mind can grasp, which isn’t very much.
+ - When you complain, you make yourself a victim. Leave the situation, change the situation, or accept it. All else is madness.
+ - Where ever you are, be there totally.
+ - Instead of fighting the darkness, you bring in the light.
+ - I am not my thoughts, emotions, sense perceptions, and experiences. I am not the content of my life. I am Life. I am the space in which all things happen. I am consciousness. I am the Now. I Am.
+ - Most humans are never fully present in the now, because unconsciously they believe that the next moment must be more important than this one. But then you miss your whole life, which is never not now.
+ - The truth is: you don’t have a life, you are life.
+ - In today’s rush we all think too much, seek too much, want too much and forget about the joy of just Being.
+ - You can only lose something that you have, but you cannot lose something that you are.
+ - Wisdom comes with the ability to be still. Just look and just listen. No more is needed. Being still, looking, and listening activates the non-conceptual intelligence within you. Let stillness direct your words and actions.
+ - The power for creating a better future is contained in the present moment: You create a good future by creating a good present.
+ - Time isn’t precious at all, because it is an illusion.
+ - Be the silent watcher of your thoughts and behavior. You are beneath the thinker. You are the stillness beneath the mental noise. You are the love and joy beneath the pain.
+ - Become an alchemist. Transmute base metal into gold, suffering into consciousness, disaster into enlightenment.
+ - Be aware that what you think, to a large extent, creates the emotions that you feel. See the link between your thinking and your emotions. Rather than being your thoughts and emotions, be the awareness behind them.
+ - True happiness is found in simple, seemingly unremarkable things.
+ - Die before you die and find that there is no death.
+ - Suffering begins when you mentally label a situation as bad. That causes an emotional contraction. When you let it be, without naming it, enormous power is available to you. The contraction cuts you off from that power, the power of life itself.
+ - The present moment holds the key to liberation. But you cannot find the present moment as long as you are your mind.
+ - Any action is often better than no action, especially if you have been stuck in an unhappy situation for a long time. If it is a mistake, at least you learn something, in which case it’s no longer a mistake. If you remain stuck, you learn nothing.
+ - The awakening of consciousness is the next evolutionary step for mankind.
+ - You can be very much aware that when you are stressed, it always is a sign you have lost the present moment. So, you can choose to re-enter the present moment.
+ - Be at least as interested in what goes on inside you as what happens outside. If you get the inside right, the outside will fall into place.
+ - Death is a stripping away of all that is not you. The secret of life is to “die before you die” – and find that there is no death.
+ - When you go deeply into the present, gratitude arises spontaneously, even if it’s just gratitude for breathing, gratitude for the aliveness that you feel in your body. Gratitude is there when you acknowledge the aliveness of the present moment.
+ - Facing facts is always empowering.
+ - So do not be concerned with the fruit of your action-just give attention to the action itself. The fruit will come of its own accord.
+ - Narrow your life down to this moment. Your life situation may be full of problems – most life situations are – but find out if you have a problem at this moment. Do you have a problem now?
+ - Now is all you ever have. There never is anything else. So, you might as well make the now your friend. Otherwise, you are out of alignment with life itself.
+ - You are not a problem that needs solving.
+ - Stillness is the only thing in this world that has no form. But then, it is not really a thing, and it is not of this world.
+ - Awareness of the inner body is consciousness remembering its origin and returning to the Source.
+ - All true artists, whether they know it or not, create from a place of no-mind, from inner stillness.
+ - Most people spend their entire life imprisoned within the confines of their own thoughts. They never go beyond a narrow, mind-made, personalized sense of self that is conditioned by the past.
+ - For the ego to survive, it must make time – past and future – more important than the present moment.
+ - To offer no resistance to life is to be in a state of grace, ease, and lightness.
+ - If you completely accept something, it changes. If you completely accept it, it shifts.
+ - On a deeper level you are already complete. When you realize that, there is a joyous energy behind what you do.
+ - If you can recognize illusion as illusion, it dissolves. The recognition of illusion is also its ending. Its survival depends on your mistaking it for reality.
+ - Most people treat the present moment as if it were an obstacle that they need to overcome. Since the present moment is life itself, it is an insane way to live.
+ - Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness.
+ - You are the Universe expressing itself as a human for a little while.
+ - True salvation is freedom from negativity, and above all from past and future as a psychological need.
+ - Being one with life is being one with Now. You then realize that you don’t live your life, but life lives you. Life is the dancer, and you are the Dance.
+ - The more you live in the present moment, the more the fear of death disappears.
+ - Thinking without awareness is the main dilemma of human existence.
+ - Through being “right”, you feel superior and through feeling superior you strengthen your sense of self. In reality, of course, you are only strengthening the illusion of ego.
+ - The pollution of the planet is only an outward reflection of an inner psychic pollution: millions of unconscious individuals not taking responsibility for their inner space.
+ - We can learn not to keep situations or events alive in our minds, but to return our attention continuously to the pristine, timeless present moment rather than be caught up in mental movie making.
+ - Learn from nature. See how everything gets accomplished and how the miracle of life unfolds without dissatisfaction or unhappiness.
+ - Presence is a state of inner spaciousness.
+ - So love is the recognition of oneness in a world of duality. This is the birth of God into the world of form. Love makes the world less worldly, less dense, more transparent to the divine dimension, the light of consciousness itself.
+ - Not to be able to stop thinking is an affliction, but we don’t realise this because almost everybody is suffering from it.
+ - The dog is still in the natural state. And you can easily see that, because you have problems and your dog doesn’t. And while your happy moments may be rare, your dog celebrates life continuously.
+ - As soon as you honor the present moment, all unhappiness and struggle dissolve, and life begins to flow with joy and ease. When you act out the present-moment awareness, whatever you do becomes imbued with a sense of quality, care, and love – even the most simple action.
+ - Emotion arises at the place where mind and body meet. It is the body’s reaction to your mind – or you might say, a reflection of your mind in the body.
+ - Every being is a spark of the Divine, or God. Look into the eyes of the dog and sense that innermost core. When you are present, you can sense the spirit, the one consciousness, in every creature and love it as yourself.
+ - If you are in a state of intense presence you are free of thought, yet highly alert. If your conscious attention sinks below a certain level, thought rushes in, the mental noise returns, stillness is lost, you’re back in time.
+ - The ego is a false sense based on mental concepts. It is identification with the body and the mind-primarily identification with thought form.
+ - When you are not honoring the present moment by allowing it to be, you are creating drama.
+ - When you live in surrender, something comes through you into the world of duality that is not of this world.
+ - It is when we are trapped in incessant streams of compulsive thinking that the universe really disintegrates for us, and we lose the ability to sense the interconnectedness of all that exists.
+ - For many people, illness – loss of health – represents the crisis situation that triggers an awakening. With serious illness comes awareness of your own mortality, the greatest loss of all.
+ - A culture that denies death inevitably becomes shallow and superficial, concerned only with the external form of things. When death is denied, life loses its depth.
+ - Whenever you meet anybody, it is a holy encounter. The primary event is the energy field of presence between you and the other human being that arises. You enjoy it. There is deep joy in the meeting.
+ - Observe your thoughts, don’t believe them.
+ - Because dogs and cats still live in the original state of connectedness with Being, they can help us regain it. When we do so, however, that original state deepens and turns into awareness.
+ - Failures lies concealed in every success in every failure.
+ - Whereas the notion of purpose before was always associated with future, there is now a deeper purpose that can only be found in the present, through denial of time.
+ - When I’m with people, I’m a spiritual teacher. That’s the function, but it’s not my identity. The moment I’m alone, my deepest joy is to benobody, to relinquish the function of a teacher. It’s a temporary function.
+ - You can have religion with spirituality. You can also have religion without spirituality.
+ - One only needs to read twentieth-century history to see that it has been the climax of human madness, if it’s measured in terms of human violence inflicted on other humans.
+ - Complete surrender usually happens through living. Your very life is the ground where that happens. There may be a partial surrender and then there may be an opening, and then you may engage in spiritual practice.
+ - Unease, anxiety, tension, stress, worry.
+ - The power of now can only be realized now. It requires no time and effort. Effort means you’re trying hard to get somewhere, and so you are not present, welcoming this moment as it is.
+ - Where there is anger, there is always pain underneath.
+ - When there’s a teacher who embodies presence, then it seems to come for a while through that opening. The teacher is an opening to presence.
+ - Life is an adventure, it’s not a package tour.
+ - One conscious breathe in and out is a meditation.
+ - Whatever you fight, you strengthen, and what you resist, persists.
+ - Stress is caused by being here but wanting to be there, or being in the present but wanting to be in the future. It’s a split that tears you apart inside.
+ - Complaining is one of the ego’s favorite strategies for strengthening itself.
+ - Welcome to the present moment. Here. Now. The only moment there ever is.
+ - You are not IN the universe, you ARE the universe, an intrinsic part of it. Ultimately you are not a person, but a focal point where the universe is becoming conscious of itself. What an amazing miracle.
+ - Whatever you ask in prayer, believe that you have received it, and it will be yours.
+ - If uncertainty is unacceptable to you, it turns into fear. If it is perfectly acceptable, it turns into increased aliveness, alertness, and creativity.
+ - What a liberation to realize that the ‘voice in my head’ is not who I am. ‘Who am I, then?’ The one who sees that.
+ - Surrender is the inner transition from resistance to acceptance, from no to yes.
+ - Whatever you think the world is withholding from you, you are withholding from the world.
+ - You get there by realizing you are already there.
+ - Nonresistance, nonjudgment, and nonattachment are the three aspects of true freedom and enlightened living.
+ - You cannot fight against the ego and win, just as you cannot fight against darkness. The light of consciousness is all that is necessary. You are that light.
+ - Acceptance of the unacceptable is the greatest source of grace in this world.
+ - Be present as the watcher of your mind – of your thoughts and emotions as well as your reactions in various situations. Be at least as interested in your reactions as in the situation or person that causes you to react.
+ - Create a gap of no-mind in which you are highly alert and aware but not thinking. This is the essence of meditation.
+ - The primary cause of unhappiness is never the situation but thought about it. Be aware of the thoughts you are thinking. Separate them from the situation, which is always neutral. It is as it is.
+ - Stop looking outside for scraps of pleasure or fulfillment, for validation, security, or love – you have a treasure within that is infinitely greater than anything the world can offer.
+ - You are not separate from the whole. You are one with the sun, the earth, the air. You don’t have a life. You are life.
+ - When you become comfortable with uncertainty, infinite possibilities open up in your life.
+ - Death is not the opposite of life. Life has no opposite. Death is the opposite of birth.
+ - Here is a new spiritual practice for you: don’t take your thoughts too seriously.
+ - Boredom, anger, sadness, or fear are not ‘yours,’ not personal. They are conditions of the human mind. They come and go. Nothing that comes and goes is you.
+ - The moment that judgement stops through acceptance of what it is, you are free of the mind. You have made room for love, for joy, for peace.
+ - Spiritual Awakening is awakening from the dream of thought.
+ - Whatever you accept completely will take you to peace, including the acceptance that you cannot accept, that you are in resistance.
+ - The pain-body wants to survive, just like every other entity in existence, and it can only survive if it gets you to unconsciously identify with it.
+ - You need no time to open yourself to the power of now and so awaken to who you are beyond name and form and realize that in the depth of your being, you are already complete, whole, one with the timeless essence of all life.
+ - As you become comfortable with uncertainty, infinite possibilities open up in your life. It means fear is no longer a dominant factor in what you do and no longer prevents you from taking action to initiate change.
+ - Ego means self-identification with thinking, to be trapped in thought, which means to have a mental image of “me” based on thought and emotions. So ego is there in the absence of a witnessing presence.
+ - If you get the inside right, the outside will fall into place. Primary reality is within; secondary reality without.
+ - We get lost in doing, thinking, remembering, anticipating – lost in a maze of complexity and a world of problems. Nature can show us the way home, the way out of the prison of our own minds.
+ - If her past were your past, her pain your pain, her level of consciousness your level of consciousness, you would think and act exactly as she does. With this realization comes forgiveness, compassion and peace.
+ - One thing we do know: Life will give you whatever experience is most helpful for the evolution of your consciousness. How do you know this is the experience you need? Because this is the experience you are having at this moment.
+ - Surrender is the simple but profound wisdom of yielding to rather than opposing the flow of life.
+ - True intelligence operates silently. Stillness is where creativity and solutions to problems are found.
+ - Leave life alone. Let it be.
+ - Negative states of mind, such as anger, resentment, fear, envy, and jealousy, are products of the ego.
+ - To know yourself as the Being underneath the thinker, the stillness underneath the mental noise, the love and joy underneath the pain, is freedom, salvation, enlightenment.
+ - Being at ease with not knowing is crucial for answers to come to you.
+ - Suffering is necessary until you realize it is unnecessary.
+ - If peace is really what you want, then you will choose peace.
+ - What is God? The eternal one life underneath all the forms of life. What is love? To feel the presence of the one life deep within yourself and all creatures; to be it! Therefore, all love is the love of God.
+ - Love is a state of Being. Your love is not outside; it is deep within you. You can never lose it, and it cannot leave you. It is not dependent on some other body, some external form.
+ - Suffering has a noble purpose: the evolution of consciousness and the burning up of the ego.
+ - Sometimes surrender means giving up trying to understand and becoming comfortable with not knowing.
+ - When there is spiritual awakening, you awaken into the fullness, the aliveness, and also the sacredness of now. You were absent, asleep, and now you are present, awake.
+ - Whenever you become anxious or stressed, outer purpose has taken over, and you lost sight of your inner purpose. You have forgotten that your state of consciousness is primary, all else secondary.
+ - Discontent, blaming, complaining, self-pity cannot serve as a foundation for a good future, no matter how much effort you make.
+ - The ego is not only the unobserved mind, the voice in the head which pretends to be you, but also the unobserved emotions that are the body’s reaction to what the voice in the head is saying.
+ - Non-reaction to the ego in others is one of the most effective ways not only of going beyond ego in yourself but also of dissolving the collective human ego.
+ - Presence is the key to freedom, so you can only be free now.
+ - Whatever you accept completely, you go beyond. If you fight it, you’re stuck with it.
+ - I am the hole on the flute that Gods breath flows through.
+ - True creativity flows only from stillness. When stillness becomes conscious, the spiritual dimension enters your life and you begin to be guided by an intelligence far greater than the human mind.
+ - Focus your attention on the Now and tell me what problem you have at this moment.
+ - Don’t wait to be successful at some future point, have a successful relationship with the present moment and be fully present in whatever you are doing. That is success.
+ - All you need to know and observe in yourself is this: Whenever you feel superior or inferior to anyone, that’s the ego in you.
+ - The future never comes. Life is always now.
+ - Life has no opposite. The opposite of death is birth. Life is eternal.
+ - The ego says, ‘I shouldn’t have to suffer,’ and that thought makes you suffer so much more. It is a distortion of the truth, which is always paradoxical. The truth is that you need to say yes to suffering before you can transcend it.
+ - You cannot be both unhappy, and fully present in the Now.
+ - If I accept the fact that my relationships are here to make me conscious, instead of happy, then my relationships become a wonderful self mastery tool that keeps realigning me with my higher purpose for living.
+ - The only thing that is ultimately real about your journey is the step that you are taking at this moment. That’s all there ever is.
+ - Become intensely conscious of the present moment.
+ - Love is the recognition of oneness in the world of duality.
+ - Rather than being your thoughts and emotions, be the awareness behind them.
+ - Body awareness not only anchors you in the present moment, it is a doorway out of the prison that is the ego. It also strengthens the immune system and the body’s ability to heal itself.
+ - If your mind carries a heavy burden of past, you will experience more of the same. The past perpetuates itself through lack of presence. The quality of your consciousness at this moment is what shapes the future.
+ - Action arising out of suffering is contaminated with suffering and causes further suffering, and that is karma. Action that arises out of a state of “acceptance” is totally free of karma. And there is a vast difference.
+ - Your outer journey may contain a million steps; your inner journey only has one: the step you are taking right now.
+ - Everything is shown up by being exposed to the light, and whatever is exposed to the light itself becomes light.
+ - Accepting means you allow yourself to feel whatever it is you are feeling at that moment. It is part of the isness of the Now. You can’t argue with what is. Well, you can, but if you do, you suffer.
+ - Awareness and ego cannot coexist.
+ - It is through gratitude for the present moment that the spiritual dimension of life opens up.
+ - Let go of thought, become still and alert, and don’t try to understand or explain.
+ - Is there a difference between happiness and inner peace? Yes. Happiness depends on conditions being perceived as positive; inner peace does not.
+ - When you live in complete acceptance of what is, that is the end of all drama in your life.
+ - The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.
+ - The world can only change from within.
+ - People don’t realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind.
+ - Only the truth of who you are, if realized, will set you free.
+ - Don’t seek happiness. If you seek it, you won’t find it, because seeking is the antithesis of happiness.
+ - Suffering cracks open the shell of ego, and then comes a point when it has served its purpose. Suffering is necessary until you realize it is unnecessary.
+ - The only thing you ever have is now.
+ - Die to the past every moment. You don’t need it. Only refer to it when it is absolutely relevant to the present. Feel the power of this moment and the fullness of Being. Feel your presence.
+ - To the ego, loving and wanting are the same, whereas true love has no wanting in it, no desire to possess or for your partner to change.
+ - Be aware of your breathing as often as you are able, whenever you remember. Do that for one year, and it will be powerfully transformative. And it’s free.
+ - You are the sky. The clouds are what happens, what comes and goes.
+ - The ultimate truth of who you are is not I am this or I am that, but I Am.
+ - That is the real spiritual awakening, when something emerges from within you that is deeper than who you thought you were. So, the person is still there, but one could almost say that something more powerful shines through the person.
+ - Time isn’t precious at all, because it is an illusion. What you perceive as precious is not time but the one point that is out of time: the Now. That is precious indeed. The more you are focused on time – past and future – the more you miss the Now, the most precious thing there is.
+ - To make money, to gather knowledge, to learn a new skill, to explore new territory, even to get from A to B – for all these things you need time. For almost everything you need time, except for one thing: to embrace the present moment.
+ - Nothing that you plan is going to work out. Everything is going to be totally different than the way you expected. And things will constantly challenge you. Wherever you look the world is not as solid it seems to be.
+ - Be aware of your breathing. Notice how this takes attention away from your thinking and creates space.
+ - Above all, the only thing you have to heal is the present thought. Get that right and the whole picture will change into one of harmony and joy.
+ - Allow nature to teach you stillness.
+ - If you are not in the state of either acceptance, enjoyment, or enthusiasm, look closely and you will find that you are creating suffering for yourself and others.
+ - Acceptance means: For now, this is what this situation, this moment, requires me to do, and so I do it willingly.
+ - To be conscious of Being, you need to reclaim consciousness from the mind. This is one of the most essential tasks on your spiritual journey.
+ - It may look as if the situation is creating the suffering, but ultimately this is not so – your resistance is.
+ - Don’t seek happiness. If you seek it, you won’t find it, because seeking is the antithesis of happiness. Happiness is ever elusive, but freedom from unhappiness is attainable now, by facing what is rather than making up stories about it.
+ - The power is in you. The answer is in you. And you are the answer to all your searches: you are the goal. You are the answer. It’s never outside.
+ - You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level.
+ - Attention is the key to transformation- and full attention also implies acceptance.
+ - If you accept that a relationship is here to make you conscious instead of happy, then the relationship will offer you salvation, and you will be aligning yourself with the higher consciousness that wants to be born into this world.
+ - True communication is communion-the realization of oneness, which is love.
+ - The future is usually imagined as either better or worse than the present. If the imagined future is better, it gives you hope or pleasurable anticipation. If it is worse, it creates anxiety. Both are illusory.
+ - Not until you surrender does the spiritual dimension become a living reality in your life. When you do, the energy you emanate and that then runs your life is of a much higher vibrational frequency than the mind energy that still runs the world.
+ - A great silent space holds all of nature in its embrace. It also holds you.
+ - The eternal present is the space within which your whole life unfolds, the one factor that remains constant. Life is now. There was never a time when your life was not now, nor will there ever be.
+ - Resistance keeps you stuck. Surrender immediately opens you to the greater intelligence that is vaster than the human mind, and it can then express itself through you. So through surrender often you find circumstances changing.
+ - You are not IN the universe, you ARE the universe.
+ - What will be left of all the fearing and wanting associated with your problematic life situation that every day takes up most of your attention? A dash, one or two inches long, between the date of birth and date of death on your gravestone.
+ - All you realy need to do is accept this moment fully. You are then at ease in the here and now and at ease with yourself.
+ - Nothing has happened in the past; it happened in the Now. Nothing will ever happen in the future; it will happen in the Now.
+ - Man made God in his own image...
+ - Some people awaken spiritually without ever coming into contact with any meditation technique or any spiritual teaching. They may awaken simply because they can’t stand the suffering anymore.
+ - The future does not exist, because nobody has ever experienced it. You can only ever experience a present moment.
+ - The moment you become aware of the ego in you, it is strictly speaking no longer the ego, but just an old, conditioned mind-pattern. Ego implies unawareness. Awareness and ego cannot coexist.
+ - In any relationship, especially marriage, be as free of compulsive thinking as possible. In other words, the more space there is in the relationship – inner space – the more love there is because love arises out of the inner spaciousness.
+ - Allow your dog to take you for a walk every day. It’s good for the body and it’s good for the soul.
+ - The past cannot survive in your presence. It can only survive in your absence.
+ - A genuine relationship is one that is not dominated by the ego with its image-making and self-seeking. In a genuine relationship, there is an outward flow of open, alert attention toward the other person in which there is no wanting whatsoever.
+ - Stress is wanting something to be the way it isn’t.
+ - True listening is another way of bringing stillness into the relationship. When you truly listen to someone, the dimension of stillness arises and becomes an essential part of the relationship.
+ - If you are not taking responsibility for your state of consciousness, you are not taking responsibility for life.
+ - Accept the present moment without judgement.
+ - The decision to make the present moment into your friend is the end of ego.
+ - The human condition: lost in thought.
+ - Awareness is conscious connection with universal intelligence. Another word for it is Presence: consciousness without thought.
+ - When the basis for your actions is inner alignment with the present moment, your actions become empowered by the intelligence of life itself.
+ - You can’t wait for the end of your problems for you to be present. It has to be done whereever you are – which is now.
+ - The source of all abundance is not outside of you. It’s a part of who you are.
+ - The realm of consciousness is much vaster than thought can grasp. When you no longer believe everything you think, you step out of thought and see clearly that the thinker is not who you are.
+ - Power over others is weakness disguised as strength.
+ - Spiritual awakening – is becoming awake to the aliveness of this moment.
+ - The ego wants to want more than it wants to have. And so the shallow satisfaction of having is always replaced by more wanting.
+ - Nothing ever happened in the past that can prevent you from being present now, and if the past cant prevent you from being present now, what power does it have?
+ - Stressful energy arises when you think some future moment is more important than the present moment, and the doing becomes only a means to an end.
+ - Your unhappiness ultimately arises not from the circumstances of your life but from the conditioning of your mind.
+ - What you react to in others, you strengthen in yourself.
+ - Forgive yourself for not being at peace.
+ - If you are not living this moment, you are not really living.
+ - Every addiction starts with pain and ends with pain.
+ - You create a good future by creating a good present.
+ - Everything is honoured, but nothing matters.
+ - Much suffering, much unhappiness arises when you take each thought that comes into your head for the truth.
+ - With awareness there comes choice. And so you are able to say: “I allow this moment to be as it is”. And then, suddenly, where before there was irritation, there is now a sense of aliveness and peace. And out of that comes right action.
+ - Anything that you resent and strongly react to in another is also in you.
+ - The remnants of pain left behind by every strong negative emotion that is not fully faced, accepted, and then let go of join together to form an energy field that lives in the very cells of your body.
+ - When you are trapped in a nightmare, your motivation to awaken will be so much greater than that of someone caught up in a relatively pleasant dream.
+ - When you say “yes” to the “isness” of life, when you accept this moment as it is, you can feel a sense of spaciousness within you that is deeply peaceful.
+ - I sometimes say animals are closer to God than humans. They are closer to the source. The humans are more lost in the mind forms. Being is more obscured to the human because of the overlay of ego and mental formation.
+ - To listen to the silence, wherever you are, is an easy and direct way of becoming present. Even if there is noise, there is always some silence underneath and in between the sounds. Listening to the silence immediately creates stillness inside you.
+ - You may not yet be able to bring your unconscious mind activity into awareness as thoughts, but it will always be reflected in the body as an emotion, and of this you can become aware.
+ - I’m grateful for always this moment, the now, no matter what form it takes.
+ - I cannot tell you any spiritual truth that deep within you don’t know already. All I can do is remind you of what you have forgotten.
+ - Those who have not found their true wealth, which is the radiant joy of Being and the deep, unshakable peace that comes with it, are beggars, even if they have great material wealth.
+ - Acceptance looks like a passive state, but in reality it brings something entirely new into this world. That peace, a subtle energy vibration, is consciousness.
+ - You don’t need to condemn. Just observe, That is sin. That is insanity. That is unconsciousness. Above all, don’t forget to observe your own mind. Seek out the root of the insanity there.
+ - Because of its phantom nature, and despite elaborate defense mechanisms, the ego is very vulnerable and insecure, and it sees itself as constantly under threat. This, by the way, is the case even if the ego is outwardly very confident.
+ - The insanity of the collective egoic mind, amplified by science and technology, is rapidly taking our species to the brink of disaster. Evolve or die: that is our only choice now.
+ - Worry means the mind is controlling you. Worry is always pointless. A solution never comes out of worry.
+ - Every time you create a gap in the stream of mind, the light of your consciousness grows stronger.
+ - Can you look without the voice in your head commenting, drawing conclusions, comparing, or trying to figure something out?
+ - To listen to the silence, wherever you are, is an easy and direct way of becoming present.
+ - To be a seeker implies that you need the future. If this is what you believe, it becomes true for you: you will need time until you realize that you don’t need time to be who you are.
+ - The word Buddha comes from the Sanskrit word Budh, meaning, to be awake. So Buddha is not a name and ultimately not a person, but a state of consciousness.
+ - Nothing that was real ever died, only names, forms, and illusions.
+ - The Truth is inseparable from who you are. Yes, you are the Truth. If you look for it elsewhere, you will be deceived every time.
+ - Humanity is reaching the end of the evolutionary stage of ego. The closer we get to the end, the more dysfunctional humanity becomes.
+ - True change happens within not without.
+ - And since the now is all there ever is in your life, your entire life unfolds as the present moment. People don’t realize it, but all they ever have is “this”. This moment.
+ - An emotion is your body’s reaction to your mind.
+ - How do you let go of attachment to things? Don’t even try. It’s impossible. Attachment to things drops away by itself when you no longer seek to find yourself in them.
+ - The foundation of greatness is honoring the small things of the present moment, instead of pursuing the idea of greatness.
+ - Always work with the present moment, not against it. Make it your friend and ally, not your enemy. This will miraculously transform your whole life.
+ - Every morning we awaken from sleep and from our dreams and enter the state we call wakefulness. A continuous stream of thoughts, most of them repetitive, characterizes the normal wakeful state.
+ - Hope is what keeps you going, but hope keeps you focused on the future, and this continued focus perpetuates your denial of the Now and therefore your unhappiness.
+ - Enthusiasm is the power that transfers the mental blueprint into the physical dimension.
+ - God is not a personality outside of you. What God is, is inextricably part of what you are. God is the dimension of depth within you.
+ - The predominance of mind is no more than a stage in the evolution of consciousness. We need to go on to the next stage now as a matter of urgency; otherwise, we will be destroyed by the mind, which has grown into a monster.
+ - True salvation is freedom from negativity.
+ - The thinking mind is a useful and powerful tool, but it is also very limiting when it takes over your life completely, when you don’t realize that it is only a small aspect of the consciousness that you are.
+ - When you look at a tree and perceive its stillness, you become still yourself. You connect with it at a very deep level. You feel a oneness with whatever you perceive in and through stillness.
+ - Instead of being lost in your thinking, when you awaken you recognize yourself as the awareness behind it. Thinking then ceases to be a self-serving autonomous activity that takes possession of you and runs your life.
+ - Practice presence – embrace the place where life happens.
+ - Authentic human interactions become impossible when you lose yourself in a role.
+ - How wonderful to go beyond wanting and fearing in your relationships. Love does not want or fear anything.
+ - Internal and external are ultimately one. When you no longer perceive the world as hostile, there is no more fear, and when there is no more fear, you think, speak and act differently. Love and compassion arise, and they affect the world.
+ - If the structures of the human mind remain unchanged, we will always end up re-creating the same world, the same evils, the same dysfunction.
+ - The sun never sets. It is only an appearance due to the observer’s limited perspective. And yet, what a sublime illusion it is.
+ - Vipassana is fine until it becomes a technique that has many stages and that takes time to develop. That can be okay for people for a while, but then you have to leave the technique behind.
+ - Forgiveness happens naturally when you see that it has no purpose other than to strengthen a false sense of self, to keep the ego in place.
+ - Look at a tree, a flower, a plant. Let your awareness rest upon it. How still they are, how deeply rooted in Being. Allow nature to teach you stillness.
+ - Stress is a form of suffering. Look at your body and see what stress does to the body and its functions – what it does to the heart, the circulation, the immune system, the digestive function, the liver.
+ - To be aware of little, quiet things, you need to be quiet inside. A high degree of alertness is required. Be still. Look. Listen. Be present.
+ - A great deal of what people say, think, or do is actually motivate by fear, which of course is always linked with having your focus on the future and being out of touch with the Now. As there are no problems in the Now, there is no fear either.
+ - There are two levels to your pain: the pain that you create now, and the pain from the past that still lives on in your mind and body. Ceasing to create pain in the present and dissolving past pain – this is what I want to talk about now.
+ - The ego is just waiting to identify with anything. Whether it’s your misery or being a great meditator, it seeks some identification.
+ - You are not just a meaningless fragment in an alien universe, briefly suspended between life and death, allowed a few short-lived pleasures followed by pain and ultimate annihilation.
+ - To awaken within the dream is our purpose now. When we are awake within the dream, the ego-created earth-drama comes to an end and a more benign and wonderous dream arises.
+ - Every challenge is a disguised opportunity for salvation.
+ - The fires of suffering become the light of consciousness.
+ - True freedom is living as if you had completely chosen whatever you feel or experience in this moment. This inner alignment with the Now is the end of suffering.
+ - Music bypasses the conceptual mind. Music does not give you food for thought...
+ - Surrender comes when you no longer ask, ‘Why is this happening to me?’
+ - But there’s a shift happening in humanity, a shift in consciousness, happening now because it has to happen now.
+ - Neither failure nor success has the power to change your inner state of Being.
+ - The next step in human evolution is to transcend thought. This is now our urgent task. It doesn’t mean not to think anymore, but simply not to be completely identified with thought, possessed by thought.
+ - When you are full of problems, there is no room for anything new to enter, no room for a solution. So whenever you can, make some room, create some space, so that you find the life underneath your life situation.
+ - Presence is when you’re no longer waiting for the next moment, believing that the next moment will be more fulfilling than this one.
+ - Transcending the world does not mean to withdraw from the world, to no longer take action, or to stop interacting with people. Transcendence of the world is to act and to interact without any self-seeking.
+ - To end the misery that has afflicted the human condition for thousands of years, you have to start with yourself and take responsibility for you inner state at any given moment. That means now.
+ - The more you are focused on time-past and future-the more you miss the Now, the most precious thing there is.
+ - To love is to recognize yourself in another. The others “otherness” then stands revealed as an illusion pertaining to the purely human realm, the realm of form.
+ - What could be more futile, more insane, than to create inner resistance to something that already is?
+ - The most rigid structures, the most impervious to change, will collapse first.
+ - Only if you resist what happens are you at the mercy of what happens, and the world will determine your happiness and unhappiness.
+ - You cannot have a desire to surrender because that’s non-surrender. Surrender arises spontaneously sometimes in people who don’t even have a word for it. And I know that openness is there in many people.
+ - The secret of awakening is to unconditionally accept this moment as it is.
+ - So the single most vital step on your journey towards enlightenment is this: learn to disidentify from your mind.
+ - Why is old considered useless? Because in old age, the emphasis shifts from doing to Being, and our civilization, which is lost in doing, knows nothing of Being. It asks: Being? What do you do with it?
+ - Once you have had a glimpse of awareness or Presence, you know it firsthand. It is no longer just a concept in your mind.
+ - Knowing yourself is to be rooted in Being, instead of lost in your mind.
+ - Go within. Use the inner body as a starting point for going deeper and taking your attention away from where it’s usually lodged, in the thinking mind.
+ - Allow whatever this moment contains. No matter what event or happening or situation, say ‘yes’ to it. Allow it to be.
+ - God is beyond all the forms of life, but also indwells every form of life as their essence. God is both beyond and within.
+ - Surrender is surrender to this moment, not to a story through which you interpret this moment and then try to resign yourself to it.
+ - For a relationship to deepen, at some point the spiritual dimension needs to come in. You don’t even need to be fully awakened for this to happen, but if it does happen it certainly means you are awakening.
+ - Non- reaction is not weakness, But Strength!
+ - Thinking is compulsive: you can’t stop, or so it seems. It is also addictive: you don’t even want to stop, at least not until the suffering generated by the continuous mental noise becomes unbearable.
+ - If small things have the power to disturb you, then who you think you are is exactly that: small.
+ - Stress is a form of suffering, but it is accepted as normal. And it is normal in our world.
+ - When you lose touch with yourself, you lose yourself in the world.
+ - Vigilance in oneself is very important. Vigilance means to be alert to what happens inside, so you can catch an old, collective habit pattern.
+ - I have lived with several Zen masters – all of them cats.
+ - If you walk into a forest – you hear all kinds of subtle sounds – but underneath there is an all pervasive silence.
+ - What the future holds for you depends on your state of consciousness now.
+ - We can’t escape from the world anymore; we can’t escape from the mind. We need to enter surrender while we are in the world. That seems to be the path that is effective in the world that we live in now.
+ - The light is too painful for someone who wants to remain in darkness.
+ - When your attention moves into the Now, there is an alertness. It is as if you were waking up from a dream, the dream of thought, the dream of past and future. Such clarity, such simplicity. No room for problem-making. Just this moment as it is.
+ - Joy does not come from what you do, it flows into what you do and thus into this world from deep within you.
+ - Ask yourself: Is there joy, ease and lightness in what i’m doing? If there isn’t then time is covering up the present moment, and life is perceived as a burden or a struggle.
+ - If the only teacher you have is your suffering, you will need a substantial dose of it for the ego to dissolve. But if the power of spiritual teaching is already at work, then a minor event can dissolve the ego.
+ - You do not become good by trying to be good, but by finding the goodness that is already within you, and allowing that goodness to emerge. But it can only emerge if something fundamental changes in your state of consciousness.
+ - I believe that Jesus realized his oneness with God and he showed, what he attempted to do was show the way to all of us, how to realize our own onenes with God also, so he’s a precursor.
+ - Do not pollute your beautiful, radiant Being nor the Earth with negativity. Do not give unhappiness in any form whatsoever a dwelling place inside you.
+ - Watch any plant or animal and let it teach you acceptance of what is, surrender to the Now. Let it teach you Being. Let it teach you integrity – which means to be one, to be yourself, to be real. Let it teach you how to live and how to die, and how not to make living and dying into a problem.
+ - Feel the Aliveness within your Body. That anchors You in the Now.
+ - When the pain that the little me creates for itself becomes intense enough, the ego will self-destruct. It has a self-destruct mechanism built in, fortunately, so eventually every ego dies.
+ - You are awareness, disguised as a person.
+ - Music creates a bridge for people to move out of thinking and into presence.
+ - A person dies, or something you had identified with completely is gone. Your home goes up in flames. There is extreme pain at first. But whenever a form dissolves, which is called “death,” what remains is an opening into emptiness.
+ - People look to time in expectation that it will eventually make them happy, but you cannot find true happiness by looking toward the future.
+ - At the height of creative activity fueled by enthusiasm, there will be enormous intensity and energy behind what you do. You will feel like an arrow that is moving toward the target-and enjoying the journey.
+ - The false self lives mainly through memory and anticipation. Past and future are its main preoccupation.
+ - If I cannot live with myself, there must be two of me: the ‘I’ and the ‘self’ that ‘I’ cannot live with. Maybe, I thought, only one of them is real.
+ - When you surrender to what is and so become fully present, the past ceases to have any power. You do not need it anymore. Presence is the key. Now is the key.
+ - To stay present in everyday life, it helps to be deeply rooted within yourself; otherwise, the mind, which has incredible momentum, will drag you along like a wild river.
+ - Sense your presence, the naked, unveiled, unclothed beingness. It is untouched by young or old, rich or poor, good or bad, or any other attributes.
+ - The basis for true change is freedom from negativity. And that’s what acceptance implies: no negativity about what is. And then you see what this moment requires: what is it that is required now so that life can express itself more fully?
+ - Get the inside right, and the outside will take care of itself.
+ - The ego doesn’t know that the source of all energy is within you, so it seeks it outside.
+ - When your consciousness is directed outward, mind and world arise. When it is directed inward, it realises its own Source and returns home into the Unmanifested.
+ - You cannot receive what you don’t give. Outflow determines inflow. Whatever you think the world is withholding from you, you already have, but unless you allow it to flow out, you won’t even know that you have it. This includes abundance.
+ - To recognize one’s own insanity is, of course, the arising of sanity, the beginning of healing and transcendence.
+ - All you can do is create a space for transformation to happen, for grace and love to enter.
+ - Above all, know that ego isn’t personal. It isn’t who you are. If you consider the ego to be your personal problem, that’s just more ego.
+ - Identification with your mind creates an opaque screen of concepts, labels, images, words, judgments, and definitions that blocks all true relationship.
+ - If the thought of lack -whether it be money, recognition, or love has become part of who you think you are, you will always experience lack. Rather than acknowledge the good that is already in your life, all you see is lack.
+ - I call animals “guardians of Being,” especially animals that live with humans. Because, for many humans, it’s through their contact with animals they get in touch with that level of being.
+ - When the mind loses its density, you become translucent, like the flower. Spirit – the formless – shines through you into the world.
+ - You can always cope with the present moment, but you cannot cope with something that is only a mind projection – you cannot cope with the future.
+ - When your sense of self is no longer tied to thought, is no longer conceptual, there is a depth of feeling, of sensing, of compassion, of loving, that was not there when you were trapped in mental concepts. You are that depth.
+ - You are the knowing, not the condition that is known.
+ - Thinking is a wonderful tool if it’s applied. Thinking, however, can not become the master. Thinking is a very bad master. If you’re dominated by thinking then your life becomes very restricted.
+ - Don’t quote the Buddha. Be the Buddha.
+ - All cravings are the mind seeking salvation or fulfillment in external things and in the future as a substitute for the joy of Being.
+ - To meet everything and everyone through stillness instead of mental noise is the greatest gift you can offer the universe.
+ - Even within the seemingly most unacceptable and painful situation is concealed a deeper good, and within every disaster is contained the seed of grace.
+ - Compassion is the awareness of a deep bond between yourself and all creatures.
+ - Dogmas are collective conceptual prisons. And the strange thing is that people love their prison cells because they give them a sense of security and a false sense of ‘I know.’ Nothing has inflicted more suffering on humanity than its dogmas.
+ - The soul is your innermost being. The presence that you are beyond form. The consciousness that you are beyond form, that is the soul. That is who you are in essence.
+ - All it takes is a simple choice, a simple decision: no matter what happens, I will create no more pain for myself. I will create no more problems.
+ - If there were nothing but thought in you, you wouldn’t even know you are thinking. You would be like a dreamer who doesn’t know he is dreaming. When you know you are dreaming, you are awake within the dream.
+ - Since ancient times the term awakening has been used as a kind of metaphor that points to the transformation of human consciousness. There are parables in the New Testament that speak of the importance of being awake, of not falling back to sleep.
+ - The ego says, I shouldn’t have to suffer, and that thought makes you suffer so much more.
+ - It seems that most people need to experience a great deal of suffering before they will relinquish resistance and accept – before they will forgive.
+ - The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.
+ - To be identified with your mind is to be trapped in time: the compulsion to live almost exclusively through memory and anticipation.
+ - There is nothing that strengthens the ego more than being right !
+ - Don’t think of yourself as having a past, don’t think of yourself as having a future. What’s left?
+ - Your inner purpose is to awaken. It is as simple as that. You share that purpose with every other person on the planet – because it is the purpose of humanity.
+ - Whenever you deeply accept this moment as it is – no matter what form it takes – you are still, you are at peace.
+ - In the eyes of the ego, self-esteem and humility are contradictory. In truth, they are one and the same.
+ - Pay more attention to the silence than to the sounds. Paying attention to outer silence creates inner silence: the mind becomes still. A portal is opening up.
+ - The next step in human evolution is not inevitable, but for the first time in the history of the planet, it can be a conscious choice. Who is making that choice? You are. And who are you? Consciousness that has become conscious of itself.
+ - Once you realize that a certain kind of food makes you sick, would you carry on eating that food and keep on asserting that it’s okay to be sick?
+ - Important thing to realize is the world is not here to make me happy. When you don’t demand that the situation, or place, or person should make you happy, then actually the situation, place, or person is quite satisfying.
+ - When you don’t cover up the world with words and labels, a sense of the miraculous returns to your life that was lost a long time ago when humanity, instead of using thought, became possessed by thought.
+ - Whenever you are immersed in compulsive thinking, you are avoiding what is. You don’t want to be where you are. Here, Now.
+ - A short attention span makes all of your perceptions and relationships shallow and unsatisfying.
+ - The most important healing – realizing who you are. The healing on the outer level is fine, but it’s not the essence of healing.
+ - The present moment is all you ever have. There is never a time when your life is not ‘this moment.’ Is this not a fact?
+ - True Power is within, and it is available now.
+ - A significant portion of the earth’s population will soon recognize, if they haven’t already done so, that humanity is now faced with a stark choice: Evolve or die.
+ - If you live only in one culture for the first 20 years of your life, you become conditioned without knowing it.
+ - Peace is your priority, not saving the world. That follows that.
+ - The ego’s form of happiness can’t exist without unhappiness. The ego will be happy when something good happens but unhappy when it ends.
+ - Wisdom comes with the ability to be still. Just look and listen. No more is needed.
+ - You are the love and joy beneath the pain.
+ - Pain can only feed on pain. Pain cannot feed on joy. It finds it quite indigestible.
+ - Resistance is weakness and fear masquerading as strength. What the ego sees as weakness is your Being in its purity, innocence, and power. What it sees as strength is weakness.
+ - You can’t think about presence, and the mind can’t understand it. Understanding presence is being present.
+ - The future is an imagined Now, a projection of the mind.
+ - And then there is the universal role of adult. When you play that role, you take yourself and life very seriously. Spontaneity, lightheartedness, and joy are not part of that role.
+ - A work of art comes out of a state of deep stillness.
+ - The ‘soul’ is one of the words you can use to talk about your innermost being, the essence of who you are.
+ - Challenges are something that can only be tackled in the present moment and require action.
+ - The thinking mind can be so noisy that it cannot relate to stillness. It doesn’t even recognize it and certainly can’t remember it.
+ - You have so much to learn from your enemies.
+ - Many people don’t realise until they are on their deathbed and everything external falls away that no thing ever had anything to do with who they are.
+ - In you, as in each human being, there is a dimension of consciousness far deeper than thought. It is the very essence of who you are. We may call it presence, awareness, the unconditioned consciousness.
+ - So one could say that the only real problem is dysfunctional thinking, the rest are challenges, not problems.
+ - When you live as a friend of the now, many changes come into your life.
+ - You are never more essentially, more deeply, yourself than when you are still.
+ - You believe that you are your mind. This is the delusion.
+ - To have your attention in the Now is not a denial of what is needed in your life. It is recognition of what is primary.
+ - Just as the sun is infinitely brighter than a candle flame, there is infinitely more intelligence in Being than in your mind.
+ - The outer form is a temporary reflection of what you are within, in your essence. That is why love and beauty can never leave you, although all outer forms will.
+ - As you go about your life, don’t give 100 percent of your attention to the external world and your mind. Keep some within.
+ - Give up defining yourself – to yourself or to others. You won’t die. You will come to life.
+ - The moment you realize you are not present, you are present.
+ - The stream of thinking has enormous momentum that can easily drag you along with it. Every thought pretends that it matters so much.
+ - Forgiveness of the present is even more important than forgiveness of the past. If you forgive every moment – allow it to be as it is – then there will be no accumulation of resentment that needs to be forgiven at some later time.
+ - Nothing out there will ever satisfy you except temporarily and superficially, but you may need to experience many disappointments before you realize that truth.
+ - Present-moment awareness creates a gap not only in the stream of mind but also in the past-future continuum. Nothing truly new and creative can come into this world except through that gap, that clear space of infinite possibility.
+ - Space and silence are two aspects of the same thing. The same no-thing. They are externalization of inner space and inner silence, which is stillness: the infinitely creative womb of all existence.
+ - There are three words that convey the secret of the art of living, the secret of all success and happiness. One With Life.
+ - Life is your deepest inner Being. It is already whole, complete, perfect.
+ - Seek out a tree and let it teach you stillness.
+ - We have forgotten what rocks and plants still know – we have forgotten how to be – to be still – to be ourselves – to be where life is here and now.
+ - Enlightenment means rising above thought, not falling back to a level below thought, the level of an animal or a plant. In the enlightened state, you still use your thinking mind when needed, but in a much more focused and effective way than before.
+ - Whenever anything negative happens to you, there is a deep lesson concealed within it, although you may not see it at the time.
+ - The peace that comes with surrendered action turns to a sense of aliveness when you actually enjoy what you are doing.
+ - Every spiritual teaching points to the possibility of the end of suffering – Now. It is true that most teachers have had to go through the “Dark Night of the Soul,” although for one or two it was very, very quick.
+ - Whenever you step out of the noise of thinking, that is meditation, and a different state of consciousness arises.
+ - As soon as the mind and mind identification return; you’re no longer yourself but a mental image of yourself, and you start playing games and roles again to get your ego needs met.
+ - Tragedy turns into comedy when you watch your own drama and realizing it as a mind-created fiction designed to create you a sense of identity.
+ - When you accept everything for what it is without labels you are outside of your ego.
+ - Suffering needs time. It cannot survive in the now.
+ - Awareness takes over from thinking. Instead of being in charge of your life, thinking becomes the servant of awareness.
+ - Often suffering is the trigger, or a spiritual teaching, or both. Call it readiness, or grace. This is the beginning of the awakening process.
+ - Be alert and present and see that your identity is not from your past story; who you truly are is the alert presence that is inseparable from the present moment. You are this, which has no name and no form.
+ - Each human needs to find his or her timeless and formless essence identity.
+ - If you are in the habit of creating suffering for yourself, then you are probably creating suffering for others too.
+ - Emotion in itself is not unhappiness. Only emotion plus an unhappy story is unhappiness.
+ - The tools of science and technology amplified the effects of the madness of the egoic mind. So the survival of the planet began to be threatened, and with it the survival of humanity.
+ - You find God the moment you realize that you don’t need to seek God.
+ - It is the stillness that will save and transform the world.
+ - I usually congratulate people when they tell me, “I don’t know who I am anymore”.
+ - Accept the present moment and find the perfection that is deeper than any form and untouched by time.
+ - If the price of peace were a lowering of your consciousness, and the price of stillness a lack of vitality and alertness, then they would not be worth having.
+ - Until presence becomes your predominant state, you may find yourself moving back and forth for a while between the old consciousness and the new, between mind identification and presence.
+ - Give your fullest attention to whatever the moment presents.
+ - You don’t ‘have’ a life, you ‘are’ life. The One Life, the one consciousness that pervades the entire universe and takes temporary form to experience itself as a stone or blade of grass, as an animal, a person, a star or a galaxy.
+ - That is the challenge of a spiritual teacher: not to take on board the projections of specialness people have. This is especially dangerous for spiritual teachers who only have contact with disciples or followers, who may live in an ashram.
+ - The more shared past there is in a relationship, the more present you need to be...
+ - I teach that we must go beyond pure ego-consciousness and move to a new manifestation of energy karma force.
+ - Your primary purpose is to be here fully, and to be total in whatever you do so that the preciousness of the present moment does not become reduced to a means to an end. And there you have your life purpose. That’s the very foundation of your life.
+ - If you don’t mind being unhappy, what happens to the unhappiness?
+ - Love, joy, and peace cannot flourish until you have freed yourself from mind dominance.
+ - Suppression of the feminine principal has enabled The Ego to gain absolute supremacy in the collective human psyche.
+ - It takes practice to hear your true desires. Your passion will often come as a whisper or serendipitous event that reminds you of what’s important and what makes you happy.
+ - Look at all the conflict between tribes, nations, and religions. They need their enemies, because they provide the sense of separateness on which their collective egoic identity depends.
+ - The way I feel is that there is a balance in my life between being alone and interacting with people, between Being and doing.
+ - You cannot find yourself by going into the past. You can find yourself by coming into the present.
+ - If your relationship to the present moment is not right – nothing can ever be right in the future – because when the future comes – it’s the present moment.
+ - Thinking is only a small aspect of consciousness. Thought cannot exist without consciousness, but consciousness does not need thought.
+ - A huge number of people are going through the process of awakening, some in the early stages, some in later stages, and it’s wonderful to see.
+ - Just as without silence there could be no sound, you would not exist without the vital formless dimension that is the essence of who you are.
+ - When you listen to a thought, you are aware not only of the thought but also of yourself as the witness of the thought. A new dimension of consciousness has come in.
+ - A group needs enemies, because without enemies its identity cannot continue to be defined.
+ - To the ego, the present moment hardly exists. Only past and future are considered important.
+ - Creativity arises out of the state of thoughtless presence in which you are much more awake than when you are engrossed in thinking.
+ - The pas has no power to stop you from being present now. Only your grievance about the past can do that.
+ - Even my desire to become free or enlightened is just another craving for fulfillment or completion in the future. So don’t seek to become free or desire or “achieve” enlightenment. Become present.
+ - When you can no longer feel the life that you are, you are likely to try to fill up your life with things.
+ - Acceptance of what is immediately frees you from mind identification and thus reconnects you with Being. Resistance is the mind.
+ - The quality of your consciousness at this moment is what shapes the future – which, of course, can only be experienced as the Now.
+ - Stillness is your essential nature.
+ - Gratefulness for what is there is one of the most powerful tools for creating what is not yet there. What does gratefulness mean? It means you appreciate what is. You value, you give attention to, you honor whatever is here at this moment.
+
+500 quotes

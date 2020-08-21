@@ -1,0 +1,93 @@
+ - In order to gain anything, you must first lose everything.
+ - Zen pretty much comes down to three things – everything changes; everything is connected; pay attention.
+ - A tree lives on its roots. If you change the root, you change the tree. Culture lives in human beings. If you change the human heart the culture will follow.
+ - How fragile we are, between the few good moments.
+ - Metaphors get under your skin by ghosting right past the logical mind.
+ - You may do this, I tell you, it is permitted. Begin again the story of your life.
+ - Habit, laziness, and fear conspire to keep us comfortably within the familiar.
+ - Time-awareness does indeed watermark my books and my life.
+ - Zen taught me how to pay attention, how to delve, how to question and enter, how to stay with – or at least want to try to stay with – whatever is going on.
+ - This garden is no metaphor – more a task that swallows you into itself, earth using, as always, everything it can.
+ - I want to preserve a certain unknowing about my own poems – perhaps because unknowing is in itself a useful poetic thirst. To move the perimeter of saying outside my own boundaries is one reason I write.
+ - Poetry’s work is the clarification and magnification of being.
+ - The heat of autumn is different from the heat of summer. One ripens apples, the other turns them to cider.
+ - So few the grains of happiness measured against all the dark and still the scales balance.
+ - Art-making is learned by immersion. You take in vocabularies of thought and feeling, grammar, diction, gesture, from the poems of others, and emerge with the power to turn language into a lathe for re-shaping, re-knowing your own tongue, heart, and life...
+ - Wrong solitude vinegars the soul, right solitude oils it.
+ - A studio, like a poem, is an intimacy and a freedom you can look out from, into each part of your life and a little beyond.
+ - The nourishment of Cezanne’s awkward apples is in the tenderness and alertness they awaken inside us.
+ - Zen is less the study of doctrine than a set of tools for discovering what can be known when the world is looked at with open eyes.
+ - Gestation requires protected space; ripening requires both permeability to the outer – and non-disturbance.
+ - Poetry’s work is not simply the recording of inner or outer perception; it makes by words and music new possibilities of perceiving.
+ - Existence itself is nothing if not an amazement. Good poems restore amazement.
+ - Between certainty and the real, an ancient enmity.
+ - How fine is the mesh of death. You can almost see through it.
+ - The writing of an assay-type poem or a poem investigating perspective isn’t an exercise of rational or strategic mind. Poems for me are acts of small or large desperation. They grapple with surfaces too steep to walk in any other way, yet which have to be traveled.
+ - Near even a candle, the visible heat. So it is with a person in love.
+ - I’ve gone to Yaddo many times, I’ve worked at the Rockefeller Foundation’s Center for Scholars and Artists in Bellagio. That these are places of beauty and of changed landscape is helpful – but far more important for me is that they offer what I feel as a monastic luxury: undisturbed time.
+ - When I write, I don’t know what is going to emerge. I begin in a condition of complete unknowing, an utter nakedness of concept or goal. A word appears, another word appears, an image. It is a moving into mystery.
+ - I don’t work on poems and essays at once. They walk on different legs, speak with different tongues, draw from different parts of the psyche. Their paces are also different.
+ - The same words come from each mouth differently.
+ - Some questions cannot be answered. They become familiar weights in the hand, round stones pulled from the pocket, unyielding and cool.
+ - Everything has two endings- a horse, a piece of string, a phone call. Before a life, air. And after. As silence is not silence, but a limit of hearing.
+ - A certain amount of housekeeping also goes on in my poems. I wash doorknobs, do dishes, mop floors, patch carpets, cook.
+ - History, mythology, and folktales are filled with stories of people punished for saying the truth. Only the Fool, exempt from society’s rules, is allowed to speak with complete freedom.
+ - Poetry’s task is to increase the available stock of reality, R P Blackmur said.
+ - One breath taken completely; one poem, fully written, fully read – in such a moment, anything can happen.
+ - I need more and more silence, it feels. Poems don’t leap into my mind when I’m distracted, turned outward, with other people, listening to music.
+ - So much of our lives depends on accidents of birth, time, and geography. This haunts me. In some lives, few “or”s are possible. The pain of that is behind the second stanza of this poem.
+ - A person is full of sorrow the way a burlap sack is full of stones or sand.
+ - There is a door. It opens. Then it is closed. But a slip of light stays, like a scrap of unreadable paper left on the floor, or the one red leaf the snow releases in March.
+ - Passion does not make careful arguments: it declares itself, and that is enough.
+ - The first poem in The Beauty holds a woman in Portugal in a wheelchair singing, with great power, a fado. I have never seen this or heard of it, the image simply arrived. But surely such a thing has happened. And it matters to me that it has, or could.
+ - Leave a door open long enough, a cat will enter. Leave food, it will stay.
+ - Your fate is to be yourself, both punishment and crime.
+ - Every other year or so I go to one of those great generous places, the artist retreats. Some of the poems in The Beauty were written at the MacDowell Colony, in New Hampshire, and others at Civitella Ranieri, in Umbria.
+ - Houses are fundamental metaphors for self, world, permeability, transition, interiority, exteriority, multiplicity, and the power to move from one state of being to another.
+ - The moonlight builds its cold chapel again out of piecemeal darkness.
+ - At another level, though, poems can craft an eraser – we can’t revise the past, but poems allow us some malleability, an increased freedom of response, comprehension, feeling. Choice, what choices are possible for any given person, is another theme that’s run through my work from the start.
+ - Metaphors think with the imagination and the senses. The hot chili peppers in them explode in the mouth and the mind.
+ - How sad they are, the promises we never return to. They stay in our mouths, roughen the tongue, lead lives of their own.
+ - Good poems ask us to have complex minds and hearts. Even simple-of-surface poems want that. Perhaps those are the ones that want it most of all, since that’s where they do their work: in the unspoken complexities, understood off the page.
+ - Neither a person entirely broken nor one entirely whole can speak. In sorrow, pretend to be fearless. In happiness, tremble.
+ - You must try, the voice said, to become colder. I understood at once. It’s like the bodies of gods: cast in bronze, braced in stone. Only something heartless could bear the full weight.
+ - How silently the heart pivots on its hinge.
+ - At some point I realized that you don’t get a full human life if you try to cut off one end of it, that you need to agree to the entire experience, to the full spectrum of what happens.
+ - I will never become a horse trainer, a biologist, a person competent with a hammer. My loves were my loves.
+ - In the dream life you don’t deliberately set out to dream about a house night after night; the dream itself insists you look at whatever is trying to come into visibility.
+ - Justice lacking passion fails, betrays.
+ - Poems are always interested in what Ivan Illich called ‘shadow work,’ not least because that is no small part of their own way of working.
+ - Self carries grief as a pack mule carries the side bags, being careful between the trees to leave extra room.
+ - Go back to The October Palace, which came out in 1994, and there are poems with windows, doors, the rooms of the gorgeous and vanishing palace that is this ordinary world and ordinary life. Jungian archetype would say the house is a figure for the experienced, experiencing self.
+ - And when two people have loved each other see how it is like a scar between their bodies, stronger, darker, and proud; how the black cord makes of them a single fabric that nothing can tear or mend.
+ - It’s more for me as with going into a forest: if you sit quietly for a long time, the life around you emerges. As the world grows ever more clamorous, my hunger for silence steepens. I unplug the landline.
+ - A poem makes clear without making simple. Poetry’s language carries what lives outside language. It’s as if you were given a 5-gallon bucket with 10 gallons of water in it. Mysterious thirsts are answered. That alchemical bucket carries secrets also, even the ones we keep from ourselves.
+ - What lives in words is what words were needed to learn.
+ - Tree It is foolish to let a young redwood grow next to a house. Even in this one lifetime, you will have to choose. That great calm being, this clutter of soup pots and books – Already the first branch-tips brush at the window. Softly, calmly, immensity taps at your life.
+ - As this life is not a gate, but the horse plunging through it.
+ - At some unnoticed moment, I began to understand that a life is written in indelible ink.
+ - In my poems though, as you say, the comic arrived fairly late. This doubtless has something to do with growing older. A person who’s seen a bit of the world can’t help but notice how foolish is the self-centeredness we bring to our tiny slice of existence.
+ - In the dictionary of Cat, mercy is missing.
+ - Let the vow of this day keep itself wildly and wholly Spoken and silent, surprise you inside your ears Sleeping and waking, unfold itself inside your eyes Let its fierceness and tenderness hold you Let its vastness be undisguised in all your days.
+ - Here are poems from a new generation of writers who honor the magnetic fields of the real; who feel and think with full and open-eyed passion; who focus heat as the magnifying glass focuses sun: until the paper catches. Read them.
+ - Any woodthrush shows it – he sings, not to fill the world, but because he is filled.
+ - The ability to name poetry’s gestures and rhetorics isn’t required to write or read them, any more than a painter needs to know the physics of color to bring forward a landscape. The eye and hand and ear know what they need to know. Some of us want to know more, because knowing pleases.
+ - Words are not the end of thought, they are where it begins.
+ - A poem can use anything to talk about anything.
+ - The pressed oil of words can blaze up into music, into image, into the heart and mind’s knowledge. The lit and shadowed places within us can be warmed.
+ - Poems allow us not only to bear the tally and toll of our transience, but to perceive, within their continually surprising abundance, a path through the grief of that insult into joy.
+ - Within the silence, expansion, and sustained day by day concentration, I grow permeable.
+ - Each poet probably has his or her own cupboard of magnets. For some, it is cars; for others, works of art, or certain patterns of form or sound; for others, certain stories or places, Philip Levine’s Detroit, Gwendolyn Brooks’s Chicago, Seamus Heaney’s time-tunneled, familied Ireland.
+ - A poem’s essential discovery can happen at a single sitting. The cascade of discoveries in an essay, or even finding a question worth exploring in one, seems to need roughly the time it takes to plant and harvest a crop of bush beans.
+ - One recurring dream, many others have also: you go into a familiar house, discover a door or hallway, and find the house continues into hidden rooms. Sometimes a whole second house is there, a larger and unknown extension of the familiar dwelling.
+ - If truth is the lure, humans are fishes.
+ - An ordinary hole beside a path through the woods might begin to open to altered worlds.
+ - The heft of a life in the hands grows both lighter and weightier. Over time, my life has become more saturated with its shape and made-ness, while my poems have become more and more free. The first word of every poem might be “Yes.” The next words: “And then.”
+ - The untranslatable thought must be the most precise.
+ - The trick, though, is to not lose compassion, to not allow the sense of absurdity to outweigh the awareness of real beings, with real feelings. Mean-spirited humor turns the world into cardboard, the way Midas’s simple-minded greed turned food into inedible and useless stuff.
+ - I want to understand the piers of language and music and comprehension that can hold up a building even when what the building houses is an earthquake. This thinking must surely come into the poems I write, but more by osmosis than will.
+ - Every morning is new as the last one, uncreased as the not quite imaginable first.
+ - Sam Hamill is a writer unabashedly taking his place within the community of literature and the community of all sentient beings-his fidelity is to the magnificent truth of existence, and to its commensurate singing.
+ - I’d say that the middle stanza is closer: that’s the place where the poem ranges unexpectedly into a different realm.
+
+91 quotes

@@ -1,0 +1,22 @@
+ - Since baseball time is measured only in outs, all you have to do is succeed utterly; keep hitting, keep the rally alive, and you have defeated time. You remain forever young.
+ - I don’t read Scripture and cling to no life precepts, except perhaps to Walter Cronkite’s rules for old men, which he did not deliver over the air: Never trust a fart. Never pass up a drink. Never ignore an erection.
+ - We are all writers and readers as well as communicators with the need at times to please and satisfy ourselves with the clear and almost perfect thought.
+ - Life is tough and brimming with loss, and the most we can do about it is to glimpse ourselves clear now and then, and find out what we feel about familiar scenes and recurring faces this time around.
+ - I felt what I almost always feel when I am watching a ballgame: Just for those two or three hours, there is really no place I would rather be.
+ - What really makes baseball so hard is it’s retributive capacity for disaster if the smallest thing is done wrong, and the invisible presence of defeat that attends every game.
+ - The best defense against partisanship is expertise.
+ - Writing is hard, even for authors who do it all the time.
+ - Infield practice is more mystic ritual than preparation, encouraging the big-leaguer, no less than the duffer in the stands, to believe in spite of all evidence to the contrary, that playing ball is a snap.
+ - Baseball’s absolute unpredictability makes amateurs of us all.
+ - I’ve been lucky. I’ve met a lot of baseball people, and I’ve learned to value people who talk – people who talk well and in long sentences and even long paragraphs.
+ - I’m feeling great. Well, pretty great, unless I’ve forgotten to take a couple of Tylenols in the past four or five hours, in which case I’ve begun to feel some jagged little pains shooting down my left forearm and into the base of the thumb.
+ - Our stories about our own lives are a form of fiction, I began to see and become more insistent as we grow older, even as we try to make them come out in some other way.
+ - Everyone knows the best volume of the encyclopedia is the one with ships-S.
+ - Baseball is slovenly and excessive in midsummer, with its onrolling daily cascade of line scores and box scores, shifting statistics, highlights and lowlights, dingers and shutouts, streaks and slumps.
+ - I think I wrote once that baseball in many ways is very much like reading. I said there are more bad books than bad ballgames, or maybe it was the other way around. I can’t remember.
+ - I knew I wasn’t a baseball writer. I was scared to death. I really was afraid to talk to players, and I didn’t want to go into the press box because I thought I was faking it.
+ - The great thing about catchers is that they do a lot of different things, and they’re basically overlooked.
+ - Any baseball is beautiful. No other small package comes as close to the ideal design and utility. It is a perfect object for a man’s hand. Pick it up and it instantly suggests its purpose; it is meant to be thrown a considerable distance – thrown hard and with precision.
+ - Those who live by the wall must die by the wall.
+
+20 quotes

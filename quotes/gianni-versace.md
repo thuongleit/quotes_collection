@@ -1,0 +1,38 @@
+ - I never fall down. I always fight.
+ - In the past, people were born royal. Nowadays, royalty comes from what you do.
+ - I love photography and art-directing is something that I really would enjoy to do.
+ - It is nice to have valid competition; it pushes you to do better.
+ - I have a fantastic relationship with money. I use it to buy my freedom.
+ - I think it’s the responsibility of a designer to try to break rules and barriers.
+ - Comfort is very important to me. I think people live better in big houses and in big clothes.
+ - I watch women continuously. I want them to look beautiful, I am not interested in making them funny, but just beautiful. They have got to look marvelous to please their own men.
+ - Decide what you are, what you want to express by the way you dress and the way you live.
+ - My only dream is to get old and finally have time to read all the books that I’m collecting.
+ - That is the key of this collection, being yourself. Don’t be into trends. Don’t make fashion own you, but you decide what you are, what you want to express by the way you dress and the way to live.
+ - Don’t be into trends. Don’t make fashion own you, but you decide what you are.
+ - Even Michelangelo got paid for doing the Sistine Chapel. To those artists who say they’re doing it for the love of art, I say: Get real.
+ - Designing came to me. I didn’t have to move.
+ - I don’t license everywhere. I take care of my name.
+ - Perfume puts the finishing touch to elegance – a detail that subtly underscores the look, an invisible extra that completes a man and a woman’s personality. Without it there is something missing.
+ - I love very much the night after every fashion show when I have all those invitations to parties and I stay quiet at home by myself.
+ - Glamour is back, but with a minimalist touch.
+ - I’m a little like Marco Polo, going around and mixing cultures.
+ - I really want to make clothes that are feminine and help women look beautiful.
+ - I want to be a designer for my time.
+ - Do not go into trends. Do not allow fashion take you over, choose who you want to be and what do you want to show with your clothes and lifestyle.
+ - I like the body. I like to design everything to do with the body.
+ - Fashion needs incredible women, alive, stimulating, with style like Diana Vreeland. She is the most. The way she talks expresses all her values.
+ - I am not interested in the past, except as the road to the future.
+ - Fashion goes with the feeling of the moment. It’s related to movies, to art, to young people’s taste.
+ - I want always to be positive.
+ - For me, the summer will be pure gray – mother-of-pearl gray, very pale gray. To me, this is the big statement for summer. Then we have light blue, light turquoise, lots of pink.
+ - I am a typical Italian; I love the clan. But I don’t think about getting married.
+ - I want to be the joy to people through my work.
+ - I liked women as a shape to dress.
+ - My dream was always to be a composer, but fashion came very easily.
+ - The first thing I really enjoy is to make love, after comes the music.
+ - Women are more sure of themselves today. They don’t have to emulate the way men dress.
+ - I hate the traffic over there. Why don’t they start to build moving pathways to replace all the streets? I see New York in a very futuristic way, but they must do something new.
+ - In those days, when I was a little kid, I met the truer more authentic people of my life. The men were so pure, strong, honest, and faithful unto death – with an incredible sense of respect for a boss.
+
+36 quotes

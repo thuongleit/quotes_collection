@@ -1,0 +1,90 @@
+ - People change and forget to tell each other.
+ - A room of one’s own isn’t nearly enough. A house, or, best, an island of one’s own.
+ - Statisticians do it with confidence, frequency and variation.
+ - It’s a sad day when you find out that it’s not accident or time or fortune, but just yourself that kept things from you.
+ - Nobody knows what you want except you, and no one will be as sorry as you if you don’t get it.
+ - If you are willing to take the punishment, you’re halfway through the battle. That the issues may be trivial, the battle ugly, is another point.
+ - You can’t recover from what you do not understand.
+ - I’m too old to recover, too narrow to forgive myself.
+ - It is best to act with confidence, no matter how little right you have to it.
+ - The happy problem of our time – longer life.
+ - Like all former thinkers, I’m writing a book.
+ - We are a people who do not want to keep much of the past in our heads. It is considered unhealthy in America to remember mistakes, neurotic to think about them, psychotic to dwell on them.
+ - Lonely. I always thought loneliness meant alone, without people. It means something else.
+ - Truth made you a traitor as it often does in a time of scoundrels.
+ - Nobody knows what you want except you. And nobody will be as sorry as you if you don’t get it. Wanting some other way to live is proof enough of deserving it. Having it is hard work, but not having it is sheer hell.
+ - Decision by democratic majority vote is a fine form of government, but it’s a stinking way to create.
+ - Callous greed grows pious very fast.
+ - What a word is truth. Slippery, tricky, unreliable. I tried in these books to tell the truth.
+ - Cynicism is an unpleasant way of saying the truth.
+ - It doesn’t pay well to fight for what we believe in.
+ - We will not think noble because we are not noble. We will not live in beautiful harmony because there is no such thing in this world, nor should there be. We promise only to do our best and to live out our lives. Dear God, that’s all we can promise in truth.
+ - Was it always my nature to take a bad time and block out the good times, until any success became an accident and failure seemed the only truth?
+ - Belief is a moral act for which the believer is to be held responsible.
+ - The past, with its pleasures, its rewards, its foolishness, its punishments, is there for each of us forever, and it should be.
+ - I am suspicious of guilt in myself and in other people; it is usually a way of not thinking, or of announcing one’s own fine sensibilities the better to be rid of them fast.
+ - For every man who lives without freedom, the rest of us must face the guilt.
+ - Lonely people, in talking to each other can make each other lonelier.
+ - I cannot and will not cut my conscience to fit this year’s fashions, even though I long ago came to the conclusion that I was not a political person and could have no comfortable place in any political group.
+ - No one can argue any longer about the rights of women. It’s like arguing about earthquakes.
+ - Guilt is often an excuse for not thinking...
+ - Nothing, of course, begins at the time you think it did.
+ - Unjust. How many times I’ve used that word, scolded myself with it. All I mean by it now is that I don’t have the final courage to say that I refuse to preside over violations against myself, and to hell with justice.
+ - History is made by masses of people. One man, or ten men, don’t start the earthquakes and don’t stop them either. Only hero worshipers and ignorant historians think they do.
+ - I cannot and will not cut my conscience to fit this year’s fashions.
+ - Rebels seldom make good revolutionaries, because organized action, even union with other people, is not possible for them.
+ - Nobody outside of a baby carriage or a judge’s chamber believes in an unprejudiced point of view.
+ - If you believe, as the Greeks did, that man is at the mercy of the gods, then you write tragedy. The end is inevitable from the beginning. But if you believe that man can solve his own problems and is at nobody’s mercy, then you will probably write melodrama.
+ - Fear comes with middle age.
+ - A theme is always necessary, a plain, simple, unadorned theme to confuse the ignorant.
+ - There are people who eat the earth and eat all the people on it like in the Bible with the locusts. And other people who stand around and watch them eat.
+ - Success isn’t everything but it makes a man stand straight.
+ - I live in a room and I go to work and I play a game called getting through the day while you wait for the night.
+ - Don’t you think people often say other people are tough when they do not know how to cheat them?
+ - Writers are interesting people, but often mean and petty.
+ - If someone had told me, don’t say anything about Lillian Hellman because she’ll sue you, it wouldn’t have stopped me. It might have spurred me on.
+ - How often the rich like to play at being poor. A rather nasty game, I’ve always thought.
+ - Things start out as hopes and end up as habits.
+ - Writers talk too much.
+ - Courtesy is breeding. Breeding is an excellent thing. Always remember that.
+ - It was an unspoken pleasure, that having come together so many years, ruined so much and repaired a little, we had endured.
+ - Since when do you have to agree with people to defend them from injustice?
+ - My mother was dead for five years before I knew that I had loved her very much.
+ - Failure in the theater is more dramatic and uglier than any other form of writing. It costs so much, you feel so guilty.
+ - Fashions in sin change.
+ - Everybody’s got a habit.
+ - I like people who refuse to speak until they are ready to speak.
+ - Success and failure are not true op-posites and they’re not even in the same class; they’re not even a couch and a chair.
+ - The judgment of music, like the inspiration for it, must come slow and measured, if it comes with truth.
+ - Haven’t you lived in the South long enough to know that nothing is ever anybody’s fault?
+ - But maybe half a lie is worse than a real lie.
+ - If I had to give young writers advice, I would say don’t listen to writers talking about writing or themselves.
+ - Drinking makes uninteresting people matter less and late at night, matter not at all.
+ - Advances are made by those with at least a touch of irrational confidence in what they can do.
+ - Freedom costs you a great deal.
+ - You lose your manners when you’re poor.
+ - Mama seemed to do only what my father wanted, and yet we lived the way my mother wanted us to live.
+ - You can always spot clothes made in a good place.
+ - Nowadays people write English as if a rat were caught in the typewriter and they were trying to hit the keys which wouldn’t disturb it.
+ - We all lead more pedestrian lives than we think we do. The boiling of an egg is sometimes more important than the boiling of a love affair in the end.
+ - God forgives those who invent what they need.
+ - You are what you are. It is my opinion that trouble in the world comes from people who do not know what they are, and pretend to be something they’re not.
+ - Styles in wit change so.
+ - You don’t always know how to do things when they’re happening.
+ - Decisions, particularly important ones, have always made me sleepy, perhaps because I know that I will have to make them by instinct, and thinking things out is only what other people tell me I should do.
+ - Maybe money is unreal for most of us, easier to give away than things we want.
+ - I don’t think many writers like their best-known piece of work, particularly when it was written a long time ago.
+ - One sits uncomfortably on a too comfortable cushion.
+ - Intellectuals can tell themselves anything, sell themselves any bill of goods, which is why they were so often patsies for the ruling classes in 19th-century France and England, or 20th-century Russia and America.
+ - A man should be jailed for telling lies to the young.
+ - My father was often angry when I was most like him.
+ - The writer’s intention hasn’t anything to do with what he achieves. The intent to earn money or the intent to be famous or the intent to be great doesn’t matter in the end. Just what comes out.
+ - It is a mark of many famous people that they cannot part with their brightest hour.
+ - The world is out of shapewhen there are hungry men.
+ - It is not good to see people who have been pretending strength all their lives lose it even for a minute.
+ - I wanted to see what was there for me once, what is there for me now.
+ - You do too much. Go and do nothing for a while. Nothing.
+ - People always sound so proud when they announce they know nothing of music.
+ - Nothing you write, if you hope to be good, will ever come out as you first hoped.
+
+88 quotes

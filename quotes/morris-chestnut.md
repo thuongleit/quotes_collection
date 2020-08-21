@@ -1,0 +1,42 @@
+ - It’s not always about the money.
+ - My idea of a perfect holiday is spending time with the family, waking up on Christmas morning or Thanksgiving morning, watching football all day, having the family come over, people you haven’t seen.
+ - I hate being cold and I hate being wet and around 80% percent of this film I was cold and another 60% I was cold and wet, so it wasn’t the best shoot for me.
+ - You really don’t have to worry about your spouse, as long as you trust him or her. If you trust your spouse or whoever you’re in a relationship with, everybody else doesn’t matter.
+ - Sometimes the stereotypes that a lot of people have are of black men in jail or who don’t take care of their kids, so I think it’s always important to have that.
+ - A lot of times, women don’t get the male perspective in regards to a relationship, what men go through when they’re not really dealing well.
+ - It’s hard when you see a scene where it’s raining, and we have the rain machine, and you see it for 5 minutes, but that scene takes all day to shoot, and you do it with rain, and the dry off, and go back and do it again.
+ - Unless you are really grounded and have a true sense of reality, you can get lost in that and a lot of people do and that’s why you see so many people with successful careers but with destructive lives.
+ - I’m kind of a private person, and sometimes it’s like pulling teeth to get me to talk.
+ - I am just another fireman because the story focuses on Joaquin Phoenix’s character, but I play Joaquin’s close friend and I get burned up a little bit, but I don’t die.
+ - Action films are emotionally and physically draining, and you’re dirty and sweaty. In a romantic comedy, you have to have your fingernails perfect, you’re in air-conditioned rooms the whole time.
+ - One thing I love about making an ensemble film is that you can have ten people come away from it with ten different messages.
+ - Showtime has given new, young filmmakers – black, white, across the board – an opportunity to make films, as well as actors who want to cross over into directing.
+ - When people are courting, many of them think that when they get married, that’s it, and everything will be on Easy Street. But you really have to work even harder once you’re married, because the challenges are that much greater.
+ - You go from movies where you are wearing nice clothes and you’re trying to smell good to a movie where you are in water and you are wet all day, and you are dealing with that elements, it gets rough, but it was definitely something I wanted to try.
+ - A lot of people come to quote-unquote Hollywood thinking that all they just have to be different or do something outlandish or have a huge personality to become a star. But I think that if you just focus on the craft, you’ll have a better chance at longevity.
+ - I read so many scripts, that I don’t do that much leisurely reading of books.
+ - I’m just happy to be working consistently.
+ - I did a film which was considered an independent movie with Dustin Hoffman and Andy Garcia called Confidence, and that’s the type of film I was willing to take a chance on that because of the caliber of people involved with the film.
+ - I think the best type of action movie combines a love story with the action.
+ - Oh yeah, I’m a huge romance fan. And some women like action.
+ - 99% of the people in the world would say there’s something that they’d like to change about their lives, because nothing’s perfect, and nobody’s perfect. I suppose I could look at the glass half-empty instead of as half-full.
+ - To me the work is so much more interesting, the parts that don’t require you just to take your shirt off.
+ - And I think from a male perspective, we have men talking about their feelings and it being okay.
+ - I would like more challenging roles. I definitely would like to something that’s more challenging.
+ - I think that Mos Def is the best actor, but when you talk about rappers in films, I don’t really think the quality of the acting is most important because most rappers are put in movies because of the personality and people want to see that.
+ - I want viewers to relate to me on a different level, not just a sexual level.
+ - Some people make a career out of doing one thing, but I wanted to diversify my body of work.
+ - At one point, people thought that Eddie Murphy would only reach one sector of the audience, but now everyone sees everything Eddie Murphy does.
+ - I’ve been in a situation where I was after the money.
+ - When you are the lead in a romantic comedy, you have to worry about people really liking you.
+ - I like to eat sweets. When I go to a restaurant, I’ll read the dessert menu before I even look at the entrees.
+ - I enjoy what I do, but it’s more challenging than people think.
+ - Producing is easier, I can just be at the set overseeing the story.
+ - You have to be insane to direct.
+ - You start making movies and people start seeing when you go to places, and all of a sudden you are getting clothes for free and all of a sudden you are getting food for free.
+ - I try to keep in shape and I always have to check myself. Whenever I binge eat, sweets are the one temptation.
+ - I want to tell stories for everyone, primarily.
+ - I didn’t pursue acting to become famous. I was actually just trying to make a living.
+ - I’m getting to the point where they see me as a good actor, rather than just a good guy who can act.
+
+40 quotes

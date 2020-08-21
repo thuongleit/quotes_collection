@@ -1,0 +1,24 @@
+ - Life is full of adventure. Theres no such thing as a clear pathway.
+ - Inside every adult there’s still a child that lingers.
+ - We didn’t reinvent the circus. We repackaged it in a much more modern way.
+ - Our biggest goal is to continue to force ourselves to always start our creative work on a white page and not take advantage of past successes and challenging ourselves.
+ - I am blessed for what I have, but I believed in it from the beginning. Today, the dream is the same: I still want to travel, I still want to entertain, and I most certainly still want to have fun.
+ - Originally the dream was about traveling and developing a job that would permit me to travel. And I decided to go into street performing because it was a traveling job; it would let me go around the world.
+ - Inside every adult there’s still a child that lingers. We’re happiness merchants – giving people the opportunity to dream like children.
+ - We are each but a quarter note in a grand symphony.
+ - The sun stands for energy and youth, which is what I thought the circus should be about.
+ - I don’t believe in pitfalls. I believe in taking risks and not doing the same thing twice.
+ - I have seen many successful people fail after they start fearing they might lose what they have built.
+ - Our approach was very simple. It was about creating a universal language. A show that will be attractive toward every people coming from all over the world. And that was a big thing.
+ - I don’t play golf or all those things people normally do for business. I do parties. That’s where I bring people in, showcase ideas and, in the end, do deals.
+ - Sometimes just being on a beach with my loved ones is all the adventure I need. I am a happy camper and continue to be a citizen of the world. I have yet to discover other cultures, other peoples dreams and treasures. I will always be a traveler who is discovering beautiful Gaia.
+ - We’re not afraid of risking what was our success yesterday in order to explore some new field. We’re adventurous. We like the challenge of unknown territory, unknown artistic field, and that’s what stimulates us.
+ - I believe in nurturing creativity and offering a haven for creators, enabling them to develop their ideas to the fullest. With more and more talented creators being drawn to Cirque in an environment that fulfills them, these are ideal to continue developing great new shows.
+ - We are in a position of financial and social power, and we could be agents of change in our society. Without pretension, I believe we could be a nice little gardener who takes care of the garden, and hopefully our neighbor will do the same. Then, maybe we’ll achieve a better world.
+ - I believe there are so many other disciplines and themes that we still haven’t explored yet. It’s infinite what we can apply our creativity to.
+ - Business is difficult. But it could be approached two ways: Seriously, or with the same way you’re doing your job, with entertainment aspect, with pleasure, with fun. And we decided to try to make it as fun that we do our creativity.
+ - I believe that the profits will come from the quality of your creative products. Since the beginning, I’ve always wanted to develop a self-feeding circle of creative productions: the positive financial returns from one show would be used to develop and create a new show, and so on.
+ - We had every problems starting a big top could have. The tent fell down on the first day. We had problems getting people into the shows. It was only with the courage and arrogance of youth that we survived.
+ - I like to not be too involved in the beginning and during the process so as to keep this fresh look and be able to give constructive recommendation on the final production.
+
+22 quotes

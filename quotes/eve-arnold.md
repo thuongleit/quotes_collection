@@ -1,0 +1,27 @@
+ - I came to photography by accident.
+ - I can’t hold a camera anymore.
+ - If a photographer cares about the people before the lens and is compassionate, much is given. It is the photographer, not the camera, that is the instrument.
+ - It’s the hardest thing in the world to take the mundane and try to show how special it is.
+ - If the photographer is interested in the people in front of his lens, and if he is compassionate, it’s already a lot. The instrument is not the camera but the photographer.
+ - What drove me and kept me going over the decades? If I had to use a single word, it would be ’curiosity.
+ - I didn’t want to be a woman photographer. That would limit me. I wanted to be a photographer who was a woman, with all the world open to my camera.
+ - If the chemistry is right between star and photographer and the geometry of the pictures pleases the star, often the two people end up with a long-term professional friendship during which they continue to work together and to produce highly personal images.
+ - It doesn’t matter if you use a box camera or you use a Leica; the important thing is what motivates you when you are photographing.
+ - I don’t see anybody as either ordinary or extraordinary. I see them simply as people in front of my lens.
+ - You should never reveal your true age.
+ - I think if I ever get satisfied, I’ll have to stop. It’s the frustration that drives you.
+ - You can’t make a great musician or a great photographer if the magic isn’t there.
+ - The instrument is not the camera but the photographer.
+ - What you need to be a good photographer is an overwhelming curiosity and a good digestion.
+ - Lesson number one: Pay attention to the intrusion of the camera.
+ - What do you hang on the walls of your mind?
+ - I realise that I had the best of serious picture journalism. There was an innocence in our approach, especially in the 1950s and 1960s when we naively believed that by holding a mirror up to the world we could help – no matter how little – to make people aware of the human condition.
+ - I found a way of working which pleased me because I didn’t have to frighten people with heavy equipment. It was that little black box and me.
+ - I had in mind a long career.
+ - I realize that I had the best of serious picture journalism.
+ - I have been poor and I wanted to document poverty; I had lost a child and I was obsessed with birth; I was interested in politics and I wanted to know how it affected our lives; I am a woman and I wanted to know about women.
+ - What has changed is that when I photographed, most people that I photographed didn’t have the right of refusal on their work. It would take a Marilyn Monroe at her height to be able to dictate that.
+ - Being a woman is just a marvelous plus in photographing. Men like to be photographed by women, it becomes flirtatious and fun, and women feel less as if they’re expected to be in a relationship.
+ - Themes recur again and again in my work.
+
+25 quotes

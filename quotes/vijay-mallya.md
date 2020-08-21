@@ -1,0 +1,24 @@
+ - I run my own world, because I very firmly believe that my destiny, my future, is in my hands, and I don’t want to blame anybody else for the path that I take.
+ - I spend my own money, not other people’s money.
+ - I work hard and I play hard, too. There is nothing wrong with that.
+ - I don’t like to leave anything unfinished on my desk before I travel.
+ - I live life what I consider to be normal.
+ - We have broken the shackles of conservative socialism. The growing middle classes want the kind of standard of living you enjoy in the West. So what I’m selling is a lifestyle.
+ - I live the way I want to live, and I don’t comment on the way that other people live.
+ - My father was very clear; I had to have an ordinary upbringing. I was put to work as a lowly-paid trainee after college. I didn’t like it at the time, but I can’t help but feel that that was probably the best thing for me.
+ - Rather than spend millions getting film stars, I am quite happy to be brand ambassador myself.
+ - I do not believe in hypocrisy.
+ - I am pretty tough as a boss.
+ - Banks are there to support businesses that have justifiable needs.
+ - Everybody keeps saying that India’s a poor country. Yes, we have poverty. But I blame the government of India, the political establishment, for their failure to educate and therefore their failure to control the poverty.
+ - We tried our best to buy Dhoni during IPL 1 but unfortunately failed to do so.
+ - It’s not quite right to be sitting outside India and to be judging what is happening in India.
+ - One of India’s biggest advantages is our young demographic and that we have a youthful population that is indeed our future.
+ - If you want India to lower tariffs and facilitate more free trade, then I think Indian producers also have a right to enter the European market.
+ - Our culture in India is not a culture where we grudge each other.
+ - I’m a person who promotes the concept of accountability to a great extent, and I’ve spoken in the Parliament and reinforced the need for accountability.
+ - Any serious airline has to look at a worldwide network.
+ - I think it is better when people with their own businesses and means of income join politics as there is some degree of honesty and integrity.
+ - Whenever I do something, it is rooted in the Indian opportunity.
+
+22 quotes

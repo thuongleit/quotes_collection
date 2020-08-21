@@ -1,0 +1,25 @@
+ - Srebrenica’s not simply another reminder of man’s inhumanity to man, but how intelligent people can always come up with intelligent reasons to do nothing.
+ - I was a kid and it was kind of scabrous, and it wasn’t the sacrilege that bothered me so much as the obscenity that challenged a 14-year-old American. But over the years, I came to have a keen appreciation of Charlie Hebdo and what it did.
+ - There are times when the adoption process is exhausting and painful and makes you want to scream. But, I am told, so does childbirth.
+ - Reading will put you into the minds and hearts of others. It might help you understand why other people do what they do sometimes.
+ - Believe me, those great death bed speeches are written ahead of time.
+ - I became a pedant of the form. I did my graduate work in art history and particularly in the history of French satirical cartooning. And that made me aware of what a rich and resilient tradition this seemingly scabrous sacrilegious magazine still represented in French life.
+ - Charlie Hebdo were the licensed anarchist clowns of the society.
+ - I know end might be near as this is only day of my adulthood I’ve seen my mother and she hasn’t asked, ‘Why that shirt?’
+ - Despite the reams of paperwork, obstacles worthy of a horse show, and a wait that can rival an elephant’s gestation, adoption feels no different on the inside.
+ - Adoption is rewarding. But the process, as we have already detailed in some particulars, can be expensive, exhausting, and hard to sustain on a dream, much less a whim.
+ - Janis Joplin didn’t just sing a song, she took it over. She swallowed it whole, then sent it back through her gut and her heart.
+ - So: this is where we are going to become parents. You walk into the building as a couple, and leave a few minutes later as a family. You walk in recollecting long romantic dinners, nights at the theater, and care-free vacations. You leave worrying about where to get diapers, milk, and Cheerios.
+ - Imagine the talented love-child of Andr Previn and Lucille Ball.
+ - Almost every continent in the world, including our own, has refugees. But how often when we hear the word do we pause to remind ourselves what being a refugee means?
+ - Charlie Hebdo was and is not The Onion or “The Daily Show.” This is a different kind of satire. Might I put it this way – less politically correct.
+ - AR-15s, in particular, are often called America’s gun. They’re some of the most popular rifles in the country, especially when it comes to sports shooting.
+ - Murder is easy. Comedy is hard.
+ - Race, blood, lineage, and nationality don’t matter; they’re just the way that small minds keep score. All that matters about blood is that it’s warm and that it beats through a loving heart.
+ - In the wake of the deaths of the satirists, Je suis Charlie, I am Charlie, became a slogan of solidarity for free expression around the world.
+ - Charlie Hebdo mocked everyone. They mocked the left. They mocked the right. They mocked, above all, the extreme right, the extreme right of Le Pen’s. If anything could identify their politics, they were kinds of anarchists.
+ - One of the reasons we think this market will start to run out of gas at some point is that you’ve essentially created as much gold from straw as you can from this financial alchemy.
+ - I take Charb’s point, but at some point has Charlie Hebdo been trying to have it both ways because some of what they do is not funny.
+ - When they mention great little things in life, they usually forget flossing.
+
+23 quotes

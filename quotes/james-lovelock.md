@@ -1,0 +1,66 @@
+ - If you start any large theory, such as quantum mechanics, plate tectonics, evolution, it takes about 40 years for mainstream science to come around. Gaia has been going for only 30 years or so.
+ - If it hadn’t been for the Cold War, neither Russia nor America would have been sending people into space.
+ - One pound of uranium is worth about 3 million pounds worth of coal or oil.
+ - Evolution is a tightly coupled dance, with life and the material environment as partners. From the dance emerges the entity Gaia.
+ - Life does more than adapt to the Earth. It changes the Earth to its own purposes.
+ - Sadly, it’s much easier to create a desert than a forest.
+ - By the end of this century, climate change will reduce the human population to a few breeding pairs surviving near the Arctic.
+ - This programme to stop nuclear by 2020 is just crazy. If there were a nuclear war, and humanity were wiped out, the Earth would breathe a sigh of relief.
+ - Nature favors those organisms which leave the environment in better shape for their progeny to survive.
+ - Our future is like that of the passengers on a small pleasure boat sailing quietly above the Niagara Falls, not knowing that the engines are about to fail.
+ - I’m a scientist, not a theologian. I don’t know if there is a God or not. Religion requires certainty.
+ - Only nuclear power can now halt global warming.
+ - The world has not warmed up very much since the millennium.
+ - Esso has been the main one in America spreading the disinformation that there is no global warming problem.
+ - There is little evidence that our individual intelligence has improved through recorded history.
+ - Those who fail to see that population growth and climate change are two sides of the same coin are either ignorant or hiding from the truth. These two huge environmental problems are inseparable and to discuss one while ignoring the other is irrational.
+ - The entire range of living matter on Earth from whales to viruses and from oaks to algae could be regarded as constituting a single living entity capable of maintaining the Earth’s atmosphere to suit its overall needs and endowed with faculties and powers far beyond those of its constituent parts.
+ - We live at a time when emotions and feelings count more than truth, and there is a vast ignorance of science.
+ - An inefficient virus kills its host. A clever virus stays with it.
+ - There aren’t just bad people that commit genocide; we are all capable of it. It’s our evolutionary history.
+ - A billion could live off the earth; 6 billion living as we do is far too many, and you run out of planet in no time.
+ - Humans on the Earth behave in some ways like a pathogenic micro-organism, or like the cells of a tumor.
+ - We rushed into renewable energy without any thought. The schemes are largely hopelessly inefficient and unpleasant. I personally can’t stand windmills at any price.
+ - I suspect any worries about genetic engineering may be unnecessary. Genetic mutations have always happened naturally, anyway.
+ - I have a feeling that climate change may be an issue as severe as a war. It may be necessary to put democracy on hold for a while.
+ - The Earth’s population will be culled from today’s 6.6 billion to as few as 500 million, with most of the survivors living in the far latitudes – Canada, Iceland, Scandinavia, the Arctic Basin.
+ - Imagine a survivor of a failed civilization with only a tattered book on aromatherapy for guidance in arresting a cholera epidemic. Yet, such a book would more likely be found amid the debris than a comprehensible medical text.
+ - Humans are too stupid to prevent climate change from radically impacting on our lives over the coming decades.
+ - The tropical rain forests are a telling example. Once cut down, they rarely recover. Rainfall drops, deserts spread, the climate warms.
+ - I have heard that the Saudi Arabians are paying Greenpeace to campaign against Nuclear Power. It wouldn’t surprise me at all.
+ - Climatologists are all agreed that we’d be lucky to see the end of this century without the world being a totally different place, and being 8 or 9 degrees hotter on average.
+ - We are in a fool’s climate, accidentally kept cool by smoke, and before this century is over billions of us will die and the few breeding pairs of people that survive will be in the Arctic where the climate remains tolerable.
+ - Florida will be gone altogether, the whole damned place, in not too long.
+ - NASA will send up a big sun shade that will be in orbit between the earth and sun and deflect 2 or 3 percent of the sunshine back into space. It would be cheaper than the international space station.
+ - We’d never have got a chance to go outside and look at the earth if it hadn’t been for space exploration and NASA.
+ - Climate change now represents so urgent a threat to mankind that the only way to deal with it is by suspending democracy.
+ - The big threat to the planet is people: there are too many, doing too well economically and burning too much oil.
+ - For each of our actions there are only consequences.
+ - I would only have been too pleased if someone had asked me for my data. If you really believed in your data, you wouldn’t mind someone looking at it. You should be able to respond that if you don’t believe me go out and do the measurements yourself.
+ - What we have lived through, the 20th century, has been like a great party. Adults now have had the best time humanity has ever had. Now the party is over and the Earth is reckoning up.
+ - I’m not religious, but I put it that way because I feel so strongly. It’s the one thing you do not ever do. You’ve got to have standards.
+ - The oil companies regard nuclear power as their rival, who will reduce their profits, so they put out a lot of disinformation about nuclear power.
+ - Geological change usually takes thousands of years to happen but we are seeing the climate changing not just in our lifetimes but also year by year.
+ - China will soon emit more greenhouse gases than America, but its regime knows if it caps aspirations there will be a revolution.
+ - If we gave up eating beef we would have roughly 20 to 30 times more land for food than we have now.
+ - If a power station were to be built down the road, I’d prefer a nuclear plant over an oil burner, and definitely over a coal burner. We simply have to lessen our consumption of fossil fuels.
+ - There is no clear distinction anywhere on the Earth’s surface between living and nonliving matter. There is merely a hierarchy of intensity going from the ‘material’ environment of the rocks and the atmosphere to the living cells.
+ - Let’s make hay while it lasts.
+ - Science always uses metaphor.
+ - The climate is doing its usual tricks. There’s nothing much really happening yet. We were supposed to be halfway toward a frying world now.
+ - You never know with politicians what they are really saying. And I don’t say that in a negative way-they have an appalling job.
+ - One thing that being a scientist has taught me is that you can never be certain about anything. You never know the truth. You can only approach it and hope to get a bit nearer to it each time. You iterate towards the truth. You don’t know it.
+ - Perhaps the single most important thing that we can do to undo the harm we have done is to fix firmly in our minds the thought: the earth is alive.
+ - You mustn’t take what I say as gospel because no one can second-guess the future.
+ - Just after World War II, this country led the world in science by every way you could measure it, yet the number of scientists was a tiny proportion of what it is now.
+ - I’m not a pessimist, even though I do think awful things are going to happen.
+ - The problem is we don’t know what the climate is doing. We thought we knew 20 years ago. That led to some alarmist books – mine included – because it looked clear-cut, but it hasn’t happened;.
+ - All the modelling we do shows that the climate is poised on the jump up to a new hot state. It is accelerating so fast that you could say that we are already in it.
+ - Nowadays if you’re dependent on a grant – and 99% of them are – you can’t make mistakes as you won’t get another one if you do.
+ - No one who has experienced the intense involvement of computer modeling would deny that the temptation exists to use any data input that will enable one to continue playing what is perhaps the ultimate game of solitaire.
+ - I don’t think we’re yet evolved to the point where we’re clever enough to handle a complex a situation as climate change. The inertia of humans is so huge that you can’t really do anything meaningful.
+ - The inertia of humans is so huge that you can’t really do anything meaningful.
+ - Civilization in its present form hasn’t got long.
+ - I’ve got personal views on the ’60s. You can’t have freedom without paying the price for it.
+
+64 quotes

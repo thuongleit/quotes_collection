@@ -1,0 +1,36 @@
+ - No trumpets sound when the important decisions of our life are made. Destiny is made known silently.
+ - Living is a form of not being sure, not knowing what next or how. The moment you know how, you begin to die a little. The artist never entirely knows. We guess. We may be wrong, but we take leap after leap in the dark.
+ - To dance is to be out of yourself. Larger, more beautiful, more powerful. This is power, it is glory on earth and it is yours for the taking.
+ - Ballet technique never becomes easy, it becomes possible.
+ - Modern dancers give a sinister portent about our times.
+ - The truest expression of a people is in its dances and its music. Bodies never lie.
+ - Find the passion. It takes great passion and great energy to do anything creative. I would go so far as to say you can’t do it without that passion.
+ - The practice mirror is to be used for the correction of faults, not for a love affair, and the figure you watch should not become your dearest friend.
+ - My heroines are part of me and my heroes are part of what I’d like to know.
+ - Toe dancing is a dandy attention getter, second only to screaming.
+ - The universe lies before you on the floor, in the air, in the mysterious bodies of your dancers, in your mind. From this voyage no one returns poor or weary.
+ - To make up a dance, I still need, as I needed then, a pot of tea, walking space, privacy and an idea.
+ - No white man uses his feet the way an Indian does. He talks to the earth.
+ - Many other women have kicked higher, balanced longer, or turned faster. These are poor substitutes for passion.
+ - Dancers aren’t made of their technique, but their passion.
+ - I studied the way I danced- to the point of dropping.
+ - There is something fearfully strengthening about cutting free even if the ties bandage the heart itself.
+ - Dancing is such a despised and dishonored trade that if you tell a doctor or a laywer you do choreography he’ll look at you as if you were a hummingbird. Dancers don’t get invited to visit people. It is assumed a boy dancer will run off with the spoons and a girl with the head of the house.
+ - We can’t stand the silence because silence includes thinking. And if we thought, we would have to face ourselves.
+ - When I dance I am really meditating rather then performing for an audience. I am completely absorbed by the music and the steps I choose to respond to the music.
+ - Modern dancers give a sinister portent about our times. The dancers don’t even look at one another. They are just a lot of isolated individuals jiggling in a kind of self-hypnosis and dancing with others only to remind themselves that we are not completely alone in this world.
+ - Ours is an upbeat, a hurried, hasty beat. It keeps pressing us to go farther, to include everything so that we can savor everything, so that we can know everything, so that we will miss nothing. Partly it’s greed, but mainly its curiosity. We just want to experience it. And we do.
+ - I want one word on my tombstone – dancer.
+ - The creative urge is the demon that will not accept anything second rate.
+ - Who am I?, the artist asks. And he devotes his whole life to finding out.
+ - I had had to learn the difference between the bearable fatigue and the unbearable, the fatigue of fear. The first can be cured by a night’s sleep; the second kills.
+ - Friends die one by one, but so, thank God, do enemies.
+ - I learned three important things in college-to use a library, to memorize quickly and visually, to drop asleep at any time given a horizontal surface and fifteen minutes. What I could not learn was to think creatively on schedule.
+ - Dance in the body you have.
+ - One of the good things about my having some recognition is that I can do something for the people I think ought to have more and correct some of the matters fate fails to take care of.
+ - A good education is usually harmful to a dancer. A good calf is better than a good head.
+ - The choreographic process is exhausting. It happens on one’s feet after hours of work, and the energy required is roughly the equivalent of writing a novel and winning a tennis match simultaneously.
+ - Theater people are always pining and agonizing because they’re afraid that they’ll be forgotten. And in America they’re quite right. They will be.
+ - If you want to understand a nation, look at its dances and listen to its folk songs – don’t pay any attention to its politicians.
+
+34 quotes

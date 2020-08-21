@@ -1,0 +1,29 @@
+ - In proportion to the size of the vessel of faith, brought by us to the Lord, is the measure we draw out of His overflowing grace.
+ - Custom is often only the antiquity of error.
+ - The world is going mad in mutual extermination, and murder, considered as a crime when committed individually, becomes a virtue when it is committed by large numbers. It is the multiplication of the frenzy that assures impunity to the assassins.
+ - Murder, considered a crime when people commit it singly, is transformed into a virtue when they do it en masse.
+ - If a murder is committed privately it is considered a crime. But if it happens with the authority of the state, they call it courage.
+ - For the helmsman is recognized in the tempest; in the warfare the soldier is proved.
+ - Let us, then, who in Baptism have both died and been buried in respect to the carnal sins of the old man, who have risen again with Christ in the heavenly regeneration, both think upon and do the things that are Christ’s.
+ - This supernatural bread and this consecrated chalice are for the health and salvation of mankind.
+ - Persevere in labors that lead to salvation. Always be busy in spiritual actions. In this way, no matter how often the enemy of our souls approaches, no matter how many times he may try to come near us, he’ll find our hearts closed and armed against him.
+ - Whatever a man prefers to God, that he makes a god to himself.
+ - Knowing that there is one Baptism, we who hold the head and root of the One Church know for certain that to him who is outside the Church nothing is lawful.
+ - No one is strong in his own strength, but he is safe by the grace and mercy of God.
+ - May all Christians be found worthy of either the pure white crown of a holy life or the royal red crown of martyrdom.
+ - It is a persistent evil to persecute a man who belongs to the grace of God. It is a calamity without remedy to hate the happy.
+ - The spouse of Christ cannot be defiled; she is uncorrupted and chaste.
+ - Our prayers and fastings are of less avail, unless they are aided by almsgiving.
+ - Since the baptismal rebirth takes place only with the one Bride of Christ, where could he be born who is not a son of the Church?
+ - When we pray to God with entire assurance, it is Himself who has given us the spirit of prayer.
+ - But later, by the help of the water of new birth, the stain of former years was washed away, and a light from above – serene and pure – was infused into my reconciled heart. Then through the Spirit breathed from heaven, a second birth restored me to a new man.
+ - Baptism pertains to the Church alone.
+ - If He prayed who was without sin, how much more it becometh a sinner to pray!
+ - The Lord withdraws when He is denied, and what is taken by the undeserving does not avail them unto salvation, since the saving grace is turned into ashes and holiness departs.
+ - Custom, though never so ancient, without truth, is but an old error.
+ - Men imitate the gods whom they adore, and to such miserable beings their crimes become their religion.
+ - Think not that you are thus maintaining the Gospel of Christ when you separate yourselves from the flock of Christ.
+ - The wretched bodies of the condemned shall simmer and blaze in those living fires.
+ - There is one God and one Christ, and one Church, and one chair founded on Peter by the word of the Lord. It is not possible to set up another altar or for there to be another priesthood besides that one altar and that one priesthood. Whoever has gathered elsewhere is scattering.
+
+27 quotes

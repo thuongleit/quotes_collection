@@ -1,0 +1,82 @@
+ - I am a total loser, in every aspect of my life. I rarely go out.
+ - A strong-willed child – a strong-willed child, more than anyone else, needs to learn to use emotion and discussion to resolve issues. That’s the last child in the whole world you want to hit.
+ - I am a total loser, in every aspect of my life. I rarely go out. I have a great family and we spend all our time together. I work hard and play hard with them.
+ - I never got a job from a poor person.
+ - I’m a Christian. I was born and raised a Catholic. But I think there are people that are frauds that are ministers.
+ - I’m from California, I know what’s up with this. You keep raising people’s taxes eventually they are going to say no.
+ - If you can’t keep a promise to your family, can’t keep a promise to your wife, you’re having an affair, you’re lying about the affair repeatedly. Why should the American people trust you when you say you’re not gonna lie to them. Why should we trust you?
+ - My life has been a gift up to this point, and I’ve been blessed beyond my wildest imagination. And wherever this ride takes me is where I’m going.
+ - Here you are, you’re a liberal, probably define peace as the absence of conflict. I define peace as the ability to defend yourself and blow your enemies into smithereens.
+ - If someone’s not attacking you that means you’re not doing your job effectively.
+ - Bill Clinton was doing Ku Klux Klan grand kleagel jokes at Byrd’s funeral, saying, Oh, Robert C. Byrd, he used the – he was the grand kleagel. He just did what he had to do.
+ - Spanking doesn’t lead to anything in the child, other than anger, a sense of frustration and humiliation. And parents can do better. I’m not saying it should be against the law but parents can do better.
+ - Hypnosis I believe is real. The only problem I guess I have is that, you know, if God or somebody who passed on in my life wanted to talk to me, why wouldn’t they come directly to me?
+ - The Democratic Party is the – was the largest and most powerful institution supporting slavery in the English-speaking world. And it is the only one that has survived to the 21st century!
+ - Is the president purposefully using propaganda and hyperbole to garner the American public for support?
+ - I have two kids, and I don’t have to spank my kids.
+ - You can be a good person without any racial intent and still want to keep the flag. That’s what I learned in my time in the south.
+ - I don’t think anyone here supports the legislation. But I’d like to hear you at least say that you don’t support spanking by any parent, because you choose not to do it. You must think it’s wrong.
+ - I’m not impressed by people’s degrees. Harvard doesn’t impress me, Yale doesn’t impress me, Columbia doesn’t impress me.
+ - The only thing I believe is individual responsibility doesn’t mean the government is the answer to ever fear and every problem every individual has. We are the masters of our own destiny.
+ - I am very disciplined in my life and very up front. It is the only way I can do it and do it well. I am up every day at 7, and I feed my kids, no matter how long the day was.
+ - I worry about the future of this country for our kids and grandkids and America not being on the world stage and that vacuum being filled by the likes of Vladimir Putin.
+ - I don’t think we should proselytize a particular religion.
+ - I really don’t map out my life. There’s no big plan.
+ - Governor, why wouldn’t anyone want to say the Pledge of Allegiance, unless they detested their own country or were ignorant of its greatness?
+ - One of the best lessons I learned early is that not everything in life is about you. It is about service. If you want trips and excessive gifts, then don’t get into public service.
+ - It’s the same as saying, you know, “I’ll smoke, but that’s up to me.” Doctors don’t recommend it. I don’t recommend smoking. It’s a bad idea. Smoking or spanking. Bad ideas.
+ - Donald Trump brought up the issue of the birth certificate and it’s getting huge buzz around the country. Even Chris Matthews has called for, you know, the birth certificate to be released. Why can’t they just release the birth certificate, you know, and just move on?
+ - I believe in faith, family and country. I really keep it that simple.
+ - Explain to the mothers and fathers of American servicemen that may come home in body bags why their son or daughter have to give up their life?
+ - I hate when people use my tactics against me.
+ - I wasn’t on the board of Lehman Brothers. I was a banker, and I was proud of it and I traveled the country and learned how people make jobs.
+ - My father used to take off his belt and give me a crack. And I’m all right.
+ - I lived in Alabama and Georgia, and the people in the south are wonderful. It’s God, faith, family, country.
+ - My brother wasn’t loved by my mother in the same way that I was.
+ - Donald Trump is a staunch believer in the Second Amendment.
+ - I’m at peace with myself because what I talk about is the way I live.
+ - The Democrats, because they believe in socialism, redistribution, forced the banks and financial institutions to make the risky loans.
+ - Everyone knows Bob Beckel views, radical left wing, socialist. He says he’s a Democrat. But what may surprise you is that he actually has a conservative brother.
+ - Can we pray for the re-election of George Bush?
+ - I like guts in my leaders.
+ - Slave holding is very unusual among the English-speaking peoples. Canadians didn’t do it. Australians didn’t do it. The Democratic Party and the states they controlled did it!
+ - We do have more control over our lives than any politician.
+ - Barbara Comstock is a solid and reliable conservative. I’ve known her for many years. She’d make a great member of Congress. I am happy to join other conservatives and proudly endorse her candidacy.
+ - It doesn’t say anywhere in the Constitution this idea of the separation of church and state.
+ - So the mayor of New Orleans would have used his own buses had the people had been white?
+ - I’m a registered conservative.
+ - I think my father would give me the Department of the Interior because of my love of the outdoors, so we can get that going.
+ - I said in 2008 the media is dead in America. Journalism’s dead.
+ - We have a situation where we have a lawmaker here in California who says that if you spank the child, you spank them, you’re going to go to jail for a year or you’re going to pay a $1,000 fine.
+ - See what I have to put up with every night?
+ - I’ve been able to read people my entire life, because I’ve interviewed people now for 20-some-odd years. So you can read people that way.
+ - We have a person that wants to balance the budget by charging $1,000 to every family who spanks their child.
+ - My wife does wish I dressed better.
+ - When you say “Ghetto Fights,” that sounds extremely racist.
+ - I think there’s definitely billions and billions in waste, fraud and abuse. There’s billions that can be generated in the economy by eliminating the bureaucracy.
+ - With guests who are ‘in the middle of the fight,’ we’re able to hear their point-of-view on the topics, as well as advance our own feelings.
+ - Whatever you dream is you find a way to get there, even if you’re not paid a lot. Do it for the love of what you do.
+ - I know my whole life has been like that, you know, scrappy, fighting for everything you get in life and you appreciate it more.
+ - I have never seen any such quote anyplace, anywhere.
+ - I have liberal friends. They are misguided, they are wrong. I disagree with them. I don’t want them to vote. I want them to go on vacation in November.
+ - You can play golf with liberals, be neighbors with them, go out to dinner. I just don’t want them in power.
+ - I think anybody that gives their opinion in a confident way everyday is going to be criticized.
+ - When I started in radio, I worked for free. I lived at the radio station. Then I worked for very little money.
+ - Is it that you hate this president or that you hate America?
+ - And the other issue is Gore, $4.6 trillion – the single largest expansion of government in American history, from universal preschool, now, to prescriptions to health care – it is Socialism 101.
+ - I think that the new models of Chevrolet should have Barney Frank as a hood ornament.
+ - In 1996, a Republican governor in South Carolina tried to take the flag down. He was voted out.
+ - Obama’s rhetorical overtures to democracy, it turned out, were just a decoy to conceal his unwavering determination to govern from the far left.
+ - Historically in every recovery, because the president rightly did inherit a recession. But historically, the lagging indicator always deals with employment.
+ - It is one of the worse things you can say about somebody, they are racist.
+ - Ohio does have an energy industry, but we’re diversified. We’re one of the fastest growing states in the country. We came back from the dead.
+ - And we have much better examples of the government not intervening to curtain parental rights, much worse abuse than a simple tap on the hand or a spank is perpetrated by many parents across the country, trust me.
+ - Republican presidential candidate Donald Trump has taken American politics by storm.
+ - If I was in Congress, I would not vote to raise the debt ceiling.
+ - I think it’s unworkable. What are we going to have, people like in contentious divorces suddenly claiming that one or the other of them should go to jail because once he or she spanked the child.
+ - I think there are other alternatives there than hitting a child, striking the child.
+ - I think hypnosis is entertaining. I believe it’s real.
+ - What I’m saying is that until somebody steps up and actually has a forceful attack on Donald Trump and actually takes him down a notch, Donald Trump is just going to keep plowing through.
+ - We have got to lose the primary in order to win the general.
+
+80 quotes

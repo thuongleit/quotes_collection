@@ -1,0 +1,39 @@
+ - Slumps don’t bother me.
+ - I’ve got a friend who is a lion tamer. He used to be a school teacher till he lost his nerve.
+ - There is a remote tribe that worships the number zero. Is nothing sacred?
+ - I took my mother-in-law to Madame Tussaud’s Chamber of Horrors, and one of the attendants said: ‘Keep her moving sir; we’re stock-taking.’
+ - I took the wife’s family out for tea biscuits. They weren’t too happy about having to give blood though.
+ - I’ve just had some bad news. Tomorrow is the mother in law’s funeral. And she’s cancelled it.
+ - A square egg in a dish of lentils won’t make a marrow bend with the wind, nor will it make rhubarb grow up the milkmaid’s leg.
+ - I need to give affection and love, because without that, I wither. I need to give that love to someone. Without that, I’m rudderless.
+ - The mother-in-law had an accident at work. A hot rivet dropped down her drawers and she fell off the oil rig.
+ - Everyone has a family tree; the Dawsons have one, it’s a weeping willow.
+ - Last year my wife ran off with the fellow next door and I must admit, I still miss him.
+ - I’m not saying my mother didn’t like me, but she kept looking for loopholes in my birth certificate.
+ - The mother-in-law is the centre of a family.
+ - My mother-in-law’s so fat that when she passes her handbag from hand to hand she throws it.
+ - My mother-in-law fell down a wishing well. I was amazed; I never knew they worked.
+ - With wives, men hide behind the air of bravado, which is basically a defence mechanism, I think. Clever creatures, women. Very clever.
+ - I saw six men kicking and punching the mother-in-law. My neighbour said ‘Are you going to help?’ I said ‘No, six should be enough.’
+ - My mother-in-law had to stop skipping for exercise. It registered seven on the Richter scale.
+ - The way prices are rising, the good old days are last week.
+ - My mother-in-law has so many wrinkles, when she smiles she looks like a Venetian blind.
+ - I used to sell furniture for a living. The trouble was, it was my own.
+ - I toyed with the idea of playing Ravel’s ‘Pavane pour une infante defunte’ but I couldn’t remember if it’s a tune or Latin prescription for piles.
+ - I discovered the wife’s got asthma. Thank God – I thought she was hissing at me.
+ - I’m the most unromantic lump of Northern suet. Yes, a woman did accost me once in South Shields, but she had a face like Red Rum.
+ - Funny thing how you first meet the woman that you marry. I first met the wife in a tunnel of love. She was digging it.
+ - I knew I’d chosen the wrong airline when I noticed the sick bag had the Lord’s Prayer on it.
+ - I don’t mind what the critics say, so long as I get some reaction. The worst thing is to be ignored.
+ - I went to my doctor and asked for something for persistent wind. He gave me a kite.
+ - I’m often accused of saying some pretty rotten things about my mother-in-law. But quite honestly, she’s only got one major fault – it’s called breathing.
+ - I know my name will always be linked with women.
+ - Marriage is an institution and that’s where a couple finishes up.
+ - I’d like to thank the BBC for allowing me to work here. And I’d like to thank the wife and kids for making it necessary.
+ - I can always tell when the mother in law’s coming to stay; the mice throw themselves on the traps.
+ - The mother-in-law came round last week. It was absolutely pouring down. So I opened the door and I saw her there and I said, ‘Mother, don’t just stand there in the rain. Go home.’
+ - My lad chewed and swallowed a dictionary. We gave him Epsom salts – but we can’t get a word out of him.
+ - My mother-in-law has come round to our house at Christmas seven years running. This year we’re having a change. We’re going to let her in.
+ - Despite the fact that feminists say they’re not getting a fair deal, women are still very powerful.
+
+37 quotes

@@ -1,0 +1,52 @@
+ - The way to become rich is to make money, not to save it.
+ - Goodbye – Because I love you.
+ - So the storm passed and every one was happy.
+ - The voice of the sea speaks to the soul. The touch of the sea is sensuous, enfolding the body in its soft, close embrace.
+ - The bird that would soar above the level plain of tradition and prejudice must have strong wings. It is a sad spectacle to see the weaklings bruised, exhausted, fluttering back to earth.
+ - The voice of the sea is seductive, never ceasing, whispering, clamoring, murmuring, inviting the soul to wander in abysses of solitude.
+ - Even as a child she had lived her own small life within herself. At a very early period she had apprehended instinctively the dual life – that outward existence which conforms, the inward life which questions.
+ - Perhaps it is better to wake up after all, even to suffer, rather than to remain a dupe to illusions all one’s life.
+ - There were days when she was unhappy, she did not know why, – when it did not seem worthwhile to be glad or sorry, to be alive or dead; when life appeared to her like a grotesque pandemonium and humanity like worms struggling blindly toward inevitable annihilation.
+ - She wanted something to happen – something, anything: she did not know what.
+ - He could see plainly that she was not herself. That is, he could not see that she was becoming herself and daily casting aside that fictitious self which we assume like a garment with which to appear before the world.
+ - Have you ever heard the earth breath?
+ - The peace and beauty of a spring day had descended upon the earth like a benediction.
+ - It is greater than the stars – that moving procession of human energy; greater than the palpitating earth and the things growing thereon.
+ - The voice of the sea speaks to the soul.
+ - We shall be everything to each other. Nothing else shall be of any consequence.
+ - There are periods of despondency and suffering which take possession of me. But I don’t want anything but my own way. That is wanting a good deal, of course, when you have to trample upon the lives, the hearts, the prejudices of others-.
+ - A wedding is one of the most lamentable spectacles on earth.
+ - And Nature takes no account of moral consequences, of arbitrary conditions which we create, and which we feel obliged to maintain at any cost.
+ - There was no despondency when she fell asleep that night; nor was there hope when she awoke in the morning.
+ - I don’t mind walking. I always feel so sorry for women who don’t like to walk; they miss so much – so many rare little glimpses of life; and we women learn so little of life on the whole.
+ - She turned her face seaward to gather in an impression of space and solitude, which the vast expanse of water, meeting and melting with the moonlit sky, conveyed to her excited fancy. As she swam she seemed to be reaching out for the unlimited in which to lose herself.
+ - The city atmosphere certainly has improved her. Some way she doesn’t seem like the same woman.
+ - It was still quite light out of doors, but inside with the curtains drawn and the smouldering fire sending out a dim, uncertain glow, the room was full of deep shadows.
+ - I would give up my life for my children, but not myself.
+ - She missed him the days when some pretext served to take him away from her, just as one misses the sun on a cloudy day without having thought much about the sun when it was shining.
+ - There are some people who leave impressions not so lasting as the imprint of an oar upon the water.
+ - A certain light was beginning to dawn dimly within her, – the light which, showing the way, forbids it.
+ - The generous abundance of her passion, without guile or trickery, was like a white flame which penetrated and found response in depths of his own sensuous nature that had never yet been reached.
+ - Well, for instance, when I left her today, she put her arms around me and felt my shoulder blades, to see if my wings were strong, she said.
+ - But the beginning of things, of a world especially, is necessarily vague, tangled, chaotic, and exceedingly disturbing. How few of us ever emerge from such beginning! How many souls perish in its tumult!
+ - A bird with a broken wing was beating the air above, reeling, fluttering, circling disabled, down, down to the water.
+ - There was a dull pang of regret because it was not the kiss of love which had inflamed her, because it was not love which had held this cup of life to her lips.
+ - I would give up the unessential; I would give up my money, I would give up my life for my children; but I wouldnt give myself. I can’t make it more clear; it’s only something I am beginning to comprehend, which is revealing itself to me.
+ - Does he write to you? Never a line. Does he send you a message? Never a word. It is because he loves you, poor fool, and is trying to forget you, since you are not free to listen to him or to belong to him.
+ - She’s got some sort of notion in her head concerning the eternal rights of women.
+ - The artist must possess the courageous soul that dares and defies.
+ - Who can tell what metals the gods use in forging the subtle bond which we call sympathy, which we might as well call love.
+ - I should never deem a man of ordinary caliber worthy of my devotion.
+ - The past was nothing to her; offered no lesson which she was willing to heed. The future was a mystery which she never attempted to penetrate. The present alone was significant.
+ - Some people are born with a vital and responsive energy. It not only enables them to keep abreast of the times; it qualifies them to furnish in their own personality a good bit of the motive power to the mad pace.
+ - She was flushed and felt intoxicated with the sound of her own voice and the unaccustomed taste of candor. It muddled her like wine, or like a first breath of freedom.
+ - The delicous breath of rain was in the air.
+ - To be an artist includes much; one must possess many gifts – absolute gifts – which have not been acquired by one’s own effort. And, moreover, to succeed, the artist much possess the courageous soul.
+ - He greatly valued his possessions, chiefly because they were his, and derived genuine pleasure from contemplating a painting, a statuette, a rare lace curtain – no matter what – after he had bought it and placed it among his household gods.
+ - I wonder if anyone else has an ear so tuned and sharpened as I have, to detect the music, not of the spheres, but of earth, subtleties of major and minor chord that the wind strikes upon the tree branches. Have you ever heard the earth breathe?
+ - It was not despair, but it seemed to her as if life were passing by, leaving its promises broken and unfulfilled. Yet there were other days when she listened, was led on and deceived by fresh promises which her youth had held out to her.
+ - I trust it will not be giving away professional secrets to say that many readers would be surprised, perhaps shocked, at the questions which some newspaper editors will put to a defenseless woman under the guise of flattery.
+ - She felt like a chess player who, by the clever handling of his pieces, sees the game taking the course intended. Her eyes were bright and tender with a smile as they glanced up into his; and her lips looked hungry for the kiss which they invited.
+ - In the procession I should feel the crushing feet, the clashing discords, the ruthless hands and stifling breath. I could not hear the rhythm of the march.
+
+50 quotes

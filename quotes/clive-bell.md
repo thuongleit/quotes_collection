@@ -1,0 +1,22 @@
+ - All sensitive people agree that there is a peculiar emotion provoked by works of art.
+ - Art and Religion are, then, two roads by which men escape from circumstance to ecstasy. Between aesthetic and religious rapture there is a family alliance. Art and Religion are means to similar states of mind.
+ - We have no other means of recognising a work of art than our feeling for it.
+ - Cezanne is the Christopher Columbus of a new continent of form.
+ - The representative element in a work of art may or may not be harmful, but it is always irrelevant. For to appreciate a work of art, we must bring with us nothing from life, no knowledge of its affairs and ideas, no familiarity with its emotions.
+ - The forms of art are inexhaustible; but all lead by the same road of aesthetic emotion to the same world of aesthetic ecstasy.
+ - Do not mistake a crowd of big wage earners for the leisure class.
+ - Genius worship is the inevitable sign of an uncreative age.
+ - The starting-point for all systems of aesthetics must be the personal experience of a peculiar emotion. The objects that provoke this emotion we call works of art.
+ - Detail is the heart of realism, and the fatty degeneration of art.
+ - Comfort came in with the middle classes.
+ - It would follow that ‘significant form’ was form behind which we catch a sense of ultimate reality.
+ - Art and religion are, then, two roads by which men escape from circumstance to ecstacy.
+ - Art and relligion are not professions: they are not occupations for which men can be paid. The artist and the saint do what they have to do, not to make a living, but in obedience to some mysterious necessity. They do not product to live – they live to produce.
+ - There must be some one quality without which a work of art cannot exist; possessing which, in the least degree, no work is altogether worthless.
+ - It is not by his mixing and choosing, but by the shapes of his colors, and the combination of those shapes, that we recognize the colorist. Color becomes significant only when it becomes form.
+ - Only reason can convince us of those three fundamental truths without a recognition of which there can be no effective liberty: that what we believe is not necessarily true; that what we like is not necessarily good; and that all questions are open.
+ - Let the artist have just enough to eat, and the tools of this trade: ask nothing of him. Materially make the life of the artist sufficiently miserable to be unattractive, and no-one will take to art save those in whom the divine daemon is absolute.
+ - It is the mark of great art that its appeal is universal and eternal.
+ - I will try to account for the degree of my aesthetic emotion. That, I conceive, is the function of the critic.
+
+20 quotes

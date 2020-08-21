@@ -1,0 +1,30 @@
+ - Patience is the only way you can endure the gray periods.
+ - Don’t try to be perfect. Life isn’t; no one is. Use mistakes and mishaps as opportunities to grow tolerance and to teach. There is such a thing as happy accidents. And love, love, love and listen, listen, listen.
+ - I feel like I’m a stay-at-home mom, which I was for the five years before this. She’s absolutely been my focus. That’s the choice I made. Desperate Housewives is perfect for me. I get to go back to work and still be able to take my daughter to school and pick her up.
+ - I’m really clear about my priority in life-it’s being a mom.
+ - I didn’t care at all about losing, but I just didn’t want Emerson to feel bad, You know, I didn’t win, but Felicity won, and when you come to the set next time, you can give her a big congratulations.
+ - I feel more comfortable with myself now. I don’t know if I feel sexier. I feel more whole.
+ - We may have doubts, but we control the present. We always have the choice to move forward with hope and confidence.
+ - People are always surprised by how much I love to eat. I guess I don’t look like I eat that much, but I can put it away.
+ - Well, I guess what’s caught on film is caught on film, and it would be hard for me to stand here and say that it wasn’t, you know me.
+ - The decisions that we write off as momentary, insignificant, incidental, everyday encounters are exactly when we have a chance to define ourselves. To find beauty. To engage the world around us. To create memories.
+ - They are safe but they are not in their homes. They are city-less. I think it’s just a disaster for everyone.
+ - My parents are really well intended, and I think their way of dealing with things is denial and guilt. Nobody wanted to talk about it. But all I did was blame myself.
+ - Let me just say that every cover of every magazine I’ve done has been airbrushed to death. No woman should walk around thinking that’s what they should be. You shouldn’t be beating yourself up.
+ - I love clothes that when you put them on, you feel like you. I don’t care whether anyone else likes them.
+ - My advice, Be healthy, reach your own goals and don’t be afraid to impersonate a SNL star.
+ - I love travel. There’s nothing more beneficial than getting to travel, to see different cultures, to see different environments and expose your children to that.
+ - I was consumed with being a mom. I didn’t think beyond that.
+ - I’m 40 and I just got my first beauty campaign with Clairol Nice and Easy.
+ - I am blessed to be able to work at a job I love and also give back in the most vital way – to people in need.
+ - We girls should have to change a tire or take a ‘change your oil’ class in high school instead of taking home economics, because we’d benefit from that.
+ - It is a great honor for me to be presented the award by Mikhail Gorbachev and also to be acknowledged with the World Actress Award at the Women World Awards Gala 2005.
+ - I’m a woman who carries around all these layers of fear and vulnerability.
+ - I try to eliminate processed food completely out of my diet. That’s bad for you.
+ - What’s good about talking about being victimized is that it is the beginning of being able to stop it.
+ - At my lowest I was making nothing, of course.
+ - I’m a firm believer in putting your money where your mouth is.
+ - Tired people aren’t witty.
+ - In all my career, in my ups and downs, I’ve never had a beauty campaign. This was meaningful that at almost 41 years old, I could be getting my first beauty campaign. It made me feel really great.
+
+28 quotes

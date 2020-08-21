@@ -1,0 +1,37 @@
+ - When you’re a very career-oriented woman, sometimes you don’t have as much time to go meet all kinds of guys. You’re a little bit limited to the guys that work in your office. I think a lot of girls can relate to that problem.
+ - I was never the girl who walked down the centre of the hallway snapping people out of her way.
+ - In Texas it’s always hot, dry, sunny, not a cloud in the sky.
+ - I can understand in some sense, having played the character, how unimaginably frustrating it is for people to tell you that you can’t love who you love, because you ain’t going to change it, and so they have to get out of your way.
+ - I’m NOT lost, they just moved my street.
+ - I went to college in Ohio, at Ohio University, and I graduated two years ago.
+ - There’s no changing your mind about whom you love. That’s part of the tough thing about being in love – it’s sort of undeniable.
+ - But at school, I wasn’t athletic, and if you’re not athlete in high school, it’s kind of hard to find your place, so play practice seemed perfect, especially if you were as uncoordinated as I was.
+ - She tries to get a waitressing job for a while – I mean, she’s looking for a while before she finds Coyote Ugly – and it’s hard to get a waitressing job in the city.
+ - I really like the idea of restaurant life, especially in New York where everyone has small apartments – that restaurant culture where you sit at a table for a long time and the afternoon goes by and you’re kind of living there. I like that more than nightlife.
+ - You can only really open yourself up so far to someone that you don’t truly love you keep something back when you know somewhere in your gut that this relationship is going to be forever.
+ - I got lost a lot, and I was a really bad waitress I got lost on the subway.
+ - I mean, its hard to be an actor in the city – trying to make it as an actor – because you waitress all night, you get home really late and you’re super tired and your feet hurt.
+ - I was bookish and dorky in high school, so the best part of this movie was getting to be on the other side.
+ - I really like to just jump in a truck with your backpack and just drive and go somewhere.
+ - I’ve never been one for sitting on beaches.
+ - In Wales, it’s eight different weathers in a day.
+ - It was intimidating to play a deaf character. There’s a whole culture in the deaf community and I really wanted to know a lot about that and honor it in the work.
+ - I invest because I’m really a firm believer in letting the artist make their work, if you choose to work with an artist then you give them the go-ahead.
+ - I think that you love who you love, and there are people who you love that people aren’t going to understand why, and that sort of doesn’t really matter.
+ - It takes a lot of guts to get up on top of a bar and dance.
+ - One of the great thing about New York is the neighborhood – you go for your walk in the morning and you know your dry cleaning lady, you know the guy in your coffee shop – that’s your neighborhood and I love that.
+ - I was glad to have had some dance background because some of the dances are pretty wild.
+ - I believe in following your instincts with the people that you like and who you like to be with.
+ - That’s what I think we’re all looking for – an honest love wherever you can find it.
+ - I had seen Shawn Levy’s movie just before, Just Married. And I think when I met him too, he’s very smart and together and he’s got it together.
+ - I don’t know how you get dressed if you live in Wales, because it’s pouring rain and then it’s hot sunshine, and then it might hail. It’s just so confusing.
+ - I think that’s why I like New York City because you can just put on your backpack and just explore; you never know where you are going to end up.
+ - I can only pay my electric bill for my last two years on my acting.
+ - I had just done what she does in the story just about a year earlier – I moved from New Jersey and came to New York and was working at a bar, and you know, trying to make it.
+ - Well, usually when I finish one character, I’m looking for a role that’s really different.
+ - And so when I graduated I moved to New York, and I was waitressing here and auditioning – and I got my first job pretty soon after.
+ - I’ve never been one for sitting on beaches. Let me tell you who I am: I’m a girl from New Jersey who moved to New York and worked in a bar while trying to make a living at what I really wanted to do, which was act.
+ - Well, love is confusing at all ages, but especially when you’re 17.
+ - What I’d really like to do is do a film or two a year and then do theater in New York the rest of the year.
+
+35 quotes

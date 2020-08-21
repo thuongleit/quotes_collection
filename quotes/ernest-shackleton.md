@@ -1,0 +1,23 @@
+ - By endurance we conquer.
+ - Difficulties are just things to overcome, after all.
+ - Optimism is true moral courage.
+ - When things are easy, I hate it.
+ - If you’re a leader, a fellow that other fellows look to, you’ve got to keep going.
+ - Men Wanted for Dangerous Expedition: Low Wages for Long Hours of Arduous Labour under Brutal Conditions; Months of Continual Darkness and Extreme Cold; Great Risk to Life and Limb from Disease, Accidents and Other Hazards; Small Chance of Fame in Case of Success.
+ - I have often marveled at the thin line which separates success from failure.
+ - Loneliness is the penalty of leadership, but the man who has to make the decisions is assisted greatly if he feels that there is no uncertainty in the minds of those who follow him, and that his orders will be carried out confidently and in the expectation of success.
+ - Superhuman effort isn’t worth a damn unless it achieves results.
+ - A man must shape himself to a new mark directly the old one goes to ground.
+ - No person who has not spent a period of his life in those ‘stark and sullen solitudes that sentinel the Pole’ will understand fully what trees and flowers, sun-flecked turf and running streams mean to the soul of a man.
+ - I thought you’d rather have a live donkey than a dead lion.
+ - If I had not some strength of will I would make a first class drunkard.
+ - One feels ‘the dearth of human words, the roughness of mortal speech’ in trying to describe things intangible.
+ - We had seen God in His splendors, heard the text that Nature renders. We had reached the naked soul of man.
+ - From the sentimental point of view, it is the last great Polar journey that can be made.
+ - The noise resembles the roar of heavy, distant surf. Standing on the stirring ice one can imagine it is disturbed by the breathing and tossing of a mighty giant below.
+ - After months of want and hunger, we suddenly found ourselves able to have meals fit for the gods, and with appetites the gods might have envied.
+ - I called to the other men that the sky was clearing, and then a moment later I realized that what I had seen was not a rift in the clouds but the white crest of an enormous wave.
+ - After the conquest of the South Pole by Amundsen who, by a narrow margin of days only, was in advance of the British Expedition under Scott, there remained but one great main object of Antarctic journeying – the crossing of the South Polar continent from sea to sea.
+ - I seemed to vow to myself that some day I would go to the region of ice and snow and go on and on till I came to one of the poles of the earth, the end of the axis upon which this great round ball turns.
+
+21 quotes

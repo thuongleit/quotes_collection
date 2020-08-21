@@ -1,0 +1,43 @@
+ - How can anybody hate nurses? Nobody hates nurses. The only time you hate a nurse is when they’re giving you an enema.
+ - You’ve achieved success in your field when you don’t know whether what you’re doing is work or play.
+ - There seems to be something wrong with our bloody ships today.
+ - Always thank your nurse. Sometimes they’re the only one between you and a hearse.
+ - Even the promiscuous feel pain.
+ - Just because you need a quart of milk doesn’t mean you have to go out and buy a whole cow.
+ - Women are a problem, but if you haven’t already guessed, they are the kind of problem I enjoy wrestling with.
+ - Government is not show business.
+ - The highest level of sexual excitement is in a monogamous relationship.
+ - You’d rather have nothing than settle for less.
+ - Lenin said that people vote with their feet. Well, that’s what’s happening. They either go, or they don’t go. It’s all politics. It’s all demographics.
+ - Charity is taking an ugly girl to lunch.
+ - Being here allows me to make the case that not all aging, narcissistic movie actors whose children could be mistaken for their grandchildren necessarily act with the same motivation.
+ - My notion of a wife at 40 is that a man should be able to change her, like a bank note, for two 20s.
+ - My mother and my father were teachers. My grandmother and my grandfather were teachers. This is something I really know about. Even when I was a kid, it was a profession my father couldn’t stay in, because he couldn’t make enough money.
+ - Those people upstairs think that Karl Marx was somebody who wrote a good anti-trust law.
+ - Marriage requires a special talent, like acting. Monogamy requires genius.
+ - In a way, I’d rather ride down the street on a camel than give what is sometimes called an in-depth interview. I’d rather ride down the street on a camel nude. In a snowstorm. Backwards.
+ - I’m old, I’m young, I’m intelligent, I’m stupid. My tide goes in and out.
+ - The Golden Globes are fun. The Oscars are Business.
+ - I’m not going to call a dog “Dog.” I suppose if she were a baby you’d cal her “Person.”
+ - I have a day job. I can make movies when I want to.
+ - Although Ronald Reagan was somebody I disagreed with on most ideological things, he was a friend of mine, and he was a very, very likable man. Ronald Reagan, for instance, was maybe more able to get the very rich to do the right thing sometimes.
+ - Basically the tax reform ideas are to clean up the tax system and to eliminate the loopholes that only very few make use of, to eliminate the possibility of people making millions of dollars every year and not paying any tax at all through oil depletion allowances and things like that.
+ - It makes you feel good when a movie works. Usually when I see an old movie I’ve made, I say to myself, ‘Oh God, why did I do this?’ and ‘Why didn’t I change that?’ and things like that.
+ - And the success of the union movement, historically, has always been to benefit all working men and women – not just people who belong to the union.
+ - I don’t think there’s anything to be admired in lying, cheating or philandering. But there might be something to be admired in not burning people at the stake because they have those weaknesses.
+ - It’s very clear you have to engage the public and say: You have to vote no on 74, no on 75, no on 76, no on 77. Those are the issues that Arnold pushing. And those are reactionary, Republican initiatives.
+ - I don’t think you should talk while the movie was going on and say, ‘Oh, look at that – look how smart I was’ or ‘What a brilliant shot that is!’ I don’t believe in that.
+ - And then the conditions of safety – or lack of safety – for teachers in public schools, and the disparity between public schools and private schools is shameful.
+ - That’s all gone, now, the old, Hollywood.
+ - I believe that DVD is that which gives some hope to retaining some content in movies that will appeal to an older audience or the more sophisticated audience or the audience that doesn’t need or desire to see a movie on a Friday night.
+ - There’s no point in making a movie just to be making a movie.
+ - I mourn the loss of the gigantic screen, but I guess you can’t have everything.
+ - Movies are fun, but they’re not a cure for cancer.
+ - By that time this society is going to be completely different for one thing. Your own son or your own son’s son is not going to have the needs for money that you feel you have now. The society itself will be less dependent on money and currency to get along.
+ - I don’t want to run for governor, but I don’t think anyone should put public service out of the question because that’s not what a good citizen does.
+ - When you mutilate movies for mass media, you tamper with the hearts and minds of America.
+ - To say that people would cease to come to California if they would have to pay more taxes is to underestimate the advantages of being in California – mightily.
+ - To denigrate the union movement in this way is to denigrate the right and the ability of people who are not rich to organize and to accomplish things together.
+ - There are some people whom you have in life who have the capacity for real, passionate commitment to something, and sometimes you may be passionately committed to the same thing.
+
+41 quotes

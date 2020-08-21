@@ -1,0 +1,70 @@
+ - I trust you with my life.
+ - I’ve always found that the most beautiful people, truly beautiful inside and out, are the ones who are quietly unaware of their effect.
+ - I want you to know that I’m serious. You’re not a hook up. You’re not a friend with benefits. You’re more than that to me.
+ - The silence was killing me. And that’s all there ever was. Silence. It was all I knew. Keep quiet. Pretend nothing had happened, that nothing was wrong. And look how well that was turning out.
+ - Cookie for you. Cookie for me.
+ - It was a cookie, not a crack pipe.
+ - I want you. Bad. Right now. Against the wall. On my bed. The floor and maybe in the bathroom later. I have a shower stall and a Jacuzzi we could put to really good use. I know you’d like it.
+ - Time was a funny and fickle thing. Sometimes there was never enough of it, and other times it stretched out endlessly.
+ - My first crush was my brothers best friend.
+ - All I’m saying is once you’ve been out in the woods and heard the things I’ve heard, you’d believe in Big Foot and the chupacabra.
+ - Beautiful face. Beautiful body. Horrible attitude. It was the holy trinity of hot boys.
+ - People with the purest souls are capable of the greatest evils.
+ - I’m serious about you, Avery. If you want me for real, you have me.
+ - I love you, Katy. Always have. Always will.
+ - It’s hurting my soul.
+ - My dream had been shattered, but then re-created, fashioned into something with more meaning and becoming more precious.
+ - I want to be here with you, Avery. You don’t have to worry about impressing me or wowing me. You’ve already done that.
+ - A person is only complete when she has a true friend to understand her, to share all her passions and sorrows with, and to stand by her throughout her life.
+ - You were perfect – perfect for me – and I love you.
+ - Those lips had curved into a knowing half smile that did funny things to her insides. And like a match tossed to gasoline, her body sparked alive and flames licked every inch of her.
+ - I think the key to the start of any good relationship is to remember how the other person likes their coffee.
+ - My first celebrity crush was Jonathan Brandis. I even got to talk to him on the phone. I wrote a fan letter, and he answered. Talk about a surreal experience.
+ - Memories, even bittersweet ones, are better than nothing.
+ - We are your friends. It is the law of friendship that you tell us things you don’t want to tell us.
+ - Yeah, because when you’re attracted to someone, you actually enjoy kissing them and afterward, you don’t act like you kissed Adolf Hitler.
+ - Cuz if he was hot, you should’ve used it to your benefit. That could’ve become the best ice breaker in history. Like you two could fall madly in love and you get to tell everyone how you plowed him before he actually plowed you.
+ - You know what they say about a guy who kisses a girl’s ass? Literally? – Cam “He knows his place?” – Avery.
+ - Oh, honey, if he swung batter-batter for my team, I’d be all over that in a heartbeat.
+ - Am I going to have to carry you? If so, it would complete my badass knight-in-shining-armor act with you today.
+ - There was a difference between loving someone and being in love.
+ - I’m a shallow, shallow boy. Hey, it helps that you’re pretty. It brings out the nice guy in me. Makes me what to share my cookies with you.
+ - It’s like we’re a catastrophe waiting to happen.
+ - I can see that you don’t believe me. Maybe it was the cookie? Well, you refused to taste my cookies last night and honestly, I was going to eat the other cookie, but you looked so tired and sad sitting there, I figured you needed the cookie more than I did.
+ - Chad had prowled over to her, and she felt good caged in between those powerful arms, but when he kissed her flushed forehead and then the tip of her nose, she lost a little of herself forever.
+ - I can’t wait for everyone to read ‘Don’t Look Back.’ It’s something very different for me, my first romantic suspense novel, so I’m very excited to be sharing the book, finally.
+ - Envy grew like a cancer, deep and invasive.
+ - You’re young and you have all your life ahead of you.
+ - If u were Pinocchio, ur nose wld span the state.
+ - I’m confident enough in my masculinity and sexuality that I can say that Ryan Gosling is just dreamy in this movie.
+ - Easy for you to say. You’re the one who got plowed. I was doing the plowing.
+ - My bag hit the floor, spilling overpriced books and pens across the shiny floor. My pens! My glorious pens rolled everywhere.
+ - There is no one else – there’s never been anyone else but you. You’re it Maddie.
+ - She tried to swallow, to take a breath, but her eyes met his, and there was nothing but aching intensity in his gaze. And she was drawn in, swept away.
+ - A sleepy smile pulled at my lips as I rolled onto my stomach, stretching my legs out and pointing my toes. The sheets slipped over my bare skin and ended up somewhere at the foot of my bed. There was either a perverted ghost in my bedroom or Cam was wide awake.
+ - I started to kiss him back, slower and clumsy where his had been sure, practiced. I was worried I was doing it wrong, but then a deep sound came from him, almost a growl and instinctively I knew it was a sound of approval.
+ - Do not tell me you don’t know you’re pretty. If so, I’m about to lose all faith in mankind. You don’t want to be responsible for that.
+ - Bridget did the only thing she could do in this situation that wouldn’t end with her doing a life stint in prison. She flipped the woman off. With both hands.
+ - Dancing can be addictive if you like it.
+ - I’ve wanted to be with you since the first time you turned me down. I’ve just been waiting for you to come around.
+ - Avery, I haven’t messed around with Steph since I met you. I have messed around with anyone since I met you.
+ - Raphael meet Avery.
+ - Here’s my library, where I don’t do a lot of reading but mostly play Angry Birds on the computer.
+ - People got out of the way for Cam. He was like a hot Moses, parting a sea of drunk college students.
+ - It’s just a cookie, sweetheart.
+ - What? I’m not ashamed to admit that random things remind me of Harry Potter.
+ - I want to be with you.
+ - You’ve been checking me out, haven’t you? In between your flaming insults? I feel like man candy.
+ - Actually, I’m going to nerd out on you, so prepare.
+ - I live to service you.
+ - Cam was already on his feet, waiting for me. I arched my brow at him. “Following me?” “Like a true serial killer,” he replied.
+ - Avery Morgansten? This is becoming a habit.
+ - When he looked at me, his eyes positively twinkled. Christ. I was screwed. Eyes were twinkling at me.
+ - Well, prepare yourself. I am all kinds of thoughtful this week. I brought you something else.
+ - I just didn’t know how much of this I was capable of. How far this – whatever it was – would actually go before old fears overshadowed the warmth.
+ - The Hamilton family was a bunch of hugging folks.
+ - Within a few short hours, he nearly had me agreeing to try deer jerky for the first time. Almost. If it weren’t for Cam continuously whispering “Bambi” in my ear every couple of minutes, I would’ve caved.
+ - My brain must have felt sorry for me, so it’d created the only type of guy I could touch – a fantasy one.
+ - I have hope because I love you – I’ve been in love with you, Avery. Probably before I even realize that I was.
+
+68 quotes

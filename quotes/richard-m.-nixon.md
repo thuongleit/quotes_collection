@@ -1,0 +1,306 @@
+ - Never let your head hang down. Never give up and sit down and grieve. Find another way. And don’t pray when it rains if you don’t pray when the sun shines.
+ - Only if you have been in the deepest valley, can you ever know how magnificent it is to be on the highest mountain.
+ - Failure isn’t falling down. Failure is not getting up after you have fallen down.
+ - Remember, always give your best. Never get discouraged. Never be petty. Always remember, others may hate you. But those who hate you don’t win unless you hate them. And then you destroy yourself.
+ - The finest steel has to go through the hottest fire.
+ - I didn’t do anything wrong and I promise to never do it again.
+ - The greatness comes not when things go always good for you. But the greatness comes when you’re really tested, when you take some knocks, some disappointments, when sadness comes. Because only if you’ve been in the deepest valley can you ever know how magnificent it is to be on the highest mountain.
+ - The Bohemian Grove, which I attend from time to time – it is the most faggy goddamned thing you could ever imagine.
+ - Defeat doesn’t finish a man, quit does. A man is not finished when he’s defeated. He’s finished when he quits.
+ - Each moment in history is a fleeting time, precious and unique. But some stand out as moments of beginning, in which courses are set that shape decades or centuries.
+ - The jawbone of an ass is just as dangerous a weapon today as in Sampson’s time.
+ - Don’t get the impression that you arouse my anger. You see, one can only be angry with those he respects.
+ - The Jewish cabal is out to get me.
+ - The sky is no longer the limit.
+ - Idealism without realism is impotent. Realism without idealism is immoral.
+ - We cannot learn from one another until we stop shouting at one another – until we speak quietly enough so that our words can be heard as well as our voices.
+ - Before we become too arrogant with the most deadly of the seven deadly sins, the sin of pride, let us remember that the two great wars of this century, wars which cost twenty million dead, were fought between Christian nations praying to the same God.
+ - Our souls speak from across the miles, intertwined, you and I.
+ - The Cold War isn’t thawing; it is burning with a deadly heat. Communism isn’t sleeping; it is, as always, plotting, scheming, working, fighting.
+ - You find out who your true friends are not when you are on top of the world, but when the world is on top of you.
+ - You must never be satisfied with losing. You must get angry, terribly angry, about losing. But the mark of the good loser is that he takes his anger out on himself and not his victorious opponents or on his teammates.
+ - The Jews are irreligious, atheistic, immoral bunch of bastards.
+ - Bring us together again.
+ - Nothing would please the Kremlin more than to have the people of this country choose a second rate president.
+ - If you take no risks, you will suffer no defeats. But if you take no risks, you win no victories.
+ - The successful leader does not talk down to people. He lifts them up.
+ - The great question of the seventies is, shall we surrender to our surroundings, or shall we make our peace with nature and begin to make reparations for the damage we have done to our air, to our land, and to our water?
+ - Capitalism works better than it sounds, while socialism sounds better than it works.
+ - Clean air, clean water, open spaces – these should once again be the birthright of every American.
+ - Yes, I wish I’d done it sooner.
+ - The important thing is that we maintain plausible deniability.
+ - Let us remember that the main purpose of American aid is not to help other nations, but to help ourselves.
+ - Never forget, the press is the enemy. The establishment is the enemy. The professors are the enemy. Professors are the enemy. Write that on a blackboard 100 times and never forget it.
+ - If you want to make beautiful music, you must play the black and the white notes together.
+ - Finishing second in the Olympics gets you silver. Finishing second in politics gets you oblivion.
+ - Make sure you pay your taxes; otherwise you can get in a lot of trouble.
+ - We still think of air as free. But clean air is not free, and neither is clean water. The price tag on pollution control is high. Through our years of past carelessness we incurred a debt to nature, and now that debt is being called.
+ - They put the Jewish interest above America’s interest and it’s about goddamn time that the Jew in America realizes he’s an American first and a Jew second.
+ - Communism starts with the proposition that there are no universal truths or general truths of human nature.
+ - The Jews are just a very aggressive and abrasive and obnoxious personality.
+ - The great silent majority.
+ - Any change is resisted because bureaucrats have a vested interest in the chaos in which they exist.
+ - The Congress, the Administration and the public all share a profound commitment to the rescue of our natural environment, and the preservation of the Earth as a place both habitable by and hospitable to man.
+ - When the President does it, that means that it’s not illegal.
+ - History is a pathetic junkyard of broken treaties.
+ - You have to face the fact that the whole problem is really the blacks. The key is to devise a system that recognizes this all while not appearing to.
+ - If we succeed, it will not be because of what we have, but it will be because of what we are; not because of what we own, but, rather because of what we believe.
+ - If an individual wants to be a leader and isn’t controversial, that means he never stood for anything.
+ - You can’t depend on the man who made the mess to clean it up.
+ - In his heart everyone knows that the only people who get rich from the “get rich quick” books are those who write them.
+ - For one priceless moment in the whole history of man, all of the people on this earth are truly one. One in their pride at what you have done, one in our prayers that you will return safely to earth.
+ - No words can describe the depths of my regret and pain at the anguish my mistakes over Watergate have caused the nation and the presidency – a nation I so deeply love and an institution I so greatly respect.
+ - Once genius is submerged by bureaucracy, a nation is doomed to mediocrity.
+ - I gave ’em a sword. And they stuck it in, and they twisted it with relish. And I guess if I had been in their position, I’d have done the same thing.
+ - During the Prince’s visit, King Timahoe will be referred to only as Timahoe, since it would be inappropriate for the Prince to be outranked by a dog.
+ - Jesus this song you wrote The words are sticking in my throat Peace on Earth Hear it every Christmas time But hope and history won’t rhyme So what’s it worth? This peace on Earth.
+ - Honesty may not be the best policy, but it is worth trying once in a while.
+ - I’ve never left a game before it ended. You never know when there could be a big turnaround in the game.
+ - We shall continue, in this era of negotiation, to work for the limitation of nuclear arms and to reduce the danger of confrontation between the great powers.
+ - It is in that spirit, the spirit of ’76, that I ask you to rise and join me in a toast to Chairman Mao, to Premier Chou, to the people of our two countries, and to the hope of our children that peace and harmony can be the legacy of our generation to theirs.
+ - Once one determines that he or she has a mission in life, that’s it’s not going to be accomplished without a great deal of pain, and that the rewards in the end may not outweigh the pain -if you recognize historically that always happens, then when it comes, you survive it.
+ - They say it’s the responsibility of the media to look at government – especially the President – with a microscope. I don’t argue with that, but when they use a proctoscope, it’s going too far.
+ - Let us build bridges, my friends, build bridges to human dignity across that gulf that separates black America from white America.
+ - We should set goals within the limits of our resources while working to the limits of our powers.
+ - Baseball without fans is like Jayne Mansfield without a sweater. Hang on, that can be taken two ways.
+ - Watergate had become the center of the media’s universe, and during the remaining year of my presidency the media tried to force everything else to revolve around it.
+ - Never say no when a client asks for something, even if it is the moon. You can always try, and anyhow there is plenty of time afterwards to explain that it was not possible.
+ - This is a great day for France!
+ - Let us begin by committing ourselves to the truth to see it like it is, and tell it like it is, to find the truth, to speak the truth, and to live the truth.
+ - My concern today is not with the length of a person’s hair but with his conduct.
+ - We don’t owe the blacks a damn thing, anyway.
+ - I learned that the people who have the cards are usually the ones who talk the least and the softest; those who are bluffing tend to talk loudly and give themselves away.
+ - I’ve never canceled a subscription to a newspaper because of bad cartoons or editorials. If that were the case, I wouldn’t have any newspapers or magazines to read.
+ - I seriously doubt if we will ever have another war. This is probably the very last one.
+ - I don’t think a woman should be in any government job whatever. I mean, I really don’t. The reason why I do is mainly because they are erratic. And emotional.
+ - The Chinese use two brush strokes to write the word “crisis.” One brush stroke stands for danger; the other for opportunity.
+ - The ability to be cool, confident, and decisive in crisis is not an inherited characteristic but is the direct result of how well the individual has prepared himself for the battle.
+ - We seek friendly relations with all nations. Any nation can be our friend without being any other nation’s enemy.
+ - Tell them to send everything that can fly.
+ - Communism denies God, enslaves men, and destroys justice.
+ - At home, we must reject the mistaken notion – a notion that has dominated too much of the public dialogue for too long – that ever bigger Government is the answer to every problem.
+ - The presidency has many problems, but boredom is the least of them.
+ - A president can ask for reconciliation in the racial conflict that divides Americans. But reconciliation comes only from the hearts of people.
+ - Once you get into this great stream of history, you can’t get out.
+ - As we work to expand our supplies of energy, we should also recognize that we must balance those efforts with our concern to preserve our environment. In the past, as we have sought new energy sources, we have too often damaged or despoiled our land.
+ - Maybe New York shouldn’t survive. Maybe it should go through a cycle of destruction.
+ - Our peaceful borders and our peaceful history are important symbols, to be sure. What they symbolize, however, is the spirit of respect and restraint which allow us to cooperate, despite our differences, in way which help us both.
+ - Our chief justices have probably had more profound and lasting influence on their times and on the direction of the nation than most presidents.
+ - No failure is final unless you ratify it.
+ - Mr. Stevenson has a degree alright-a PhD from the Acheson College of Cowardly Communist Containment.
+ - Peace demands more, not less, from a people. Peace lacks the clarity of purpose and the cadence of war. War is scripted: peace is improvisation.
+ - Nobody is a friend of ours. Let’s face it.
+ - I’m not going to be the first American president to lose a war.
+ - Listen, I don’t know anything about polygraphs and I don’t know how accurate they are, but I know they’ll scare the hell out of people.
+ - Success is not a harbor but a voyage with its own perils to the spirit. The game of life is to come up a winner, to be a success, or to achieve what we set out to do.
+ - Well, I screwed it up real good, didn’t I?
+ - Defeat doesn’t finish a man – quit does.
+ - I can take it. The tougher it gets, the cooler I get.
+ - I believe in the battle-whether it’s the battle of a campaign or the battle of this office, which is a continuing battle.
+ - I played by the rules of politics as I found them.
+ - The developing coherence of Asian regional thinking is reflected in a disposition to consider problems and loyalties in regional terms, and to evolve regional approaches to development needs and to the evolution of a New World Order.
+ - America will not tolerate being pushed around by anybody, anyplace.
+ - The ultimate test of a nation’s character is not how it responds to adversity in war but how it meets the challenge of peace.
+ - Because of the realities of human nature, perfect peace is achieved in two places only: in the grave and at the typewriter.
+ - The man of thought who will not act is ineffective; the man of action who will not think is dangerous.
+ - You’ve got to learn to survive a defeat. That’s when you develop character.
+ - So you are lean and mean and resourceful and you continue to walk on the edge of the precipice because over the years you have become fascinated by how close you can walk without losing your balance.
+ - I let the American people down, and I have to carry that burden for the rest of my life. My political life is over. I will never again have an opportunity to serve in any official position. Maybe I can give a little advice from time to time.
+ - For among nations – as within nations – the soundest unity is that which respects diversity, and the strongest cohesion is that which rejects coercion.
+ - I doubt if any of them would even intentionally double-park.
+ - The average American is just like the child in the family.
+ - It’s long been common practice among many to draw a distinction between “human rights” and “property rights,” suggesting that the two are separate and unequal – with “property rights” second to “human rights.”
+ - Tonight – to you, the great silent majority of my fellow Americans – I ask for your support.
+ - I would not like to be a political leader in Russia. They never know when they’re being taped.
+ - I don’t know a lot about politics, but I know a lot about baseball.
+ - Under the doctrine of separation of powers, the manner in which the president personally exercises his assigned executive powers is not subject to questioning by another branch of government.
+ - In the long term we can hope that religion will change the nature of man and reduce conflict. But history is not encouraging in this respect. The bloodiest wars in history have been religious wars.
+ - What starts the process, really, are laughs and slights and snubs when you are a kid. If your anger is deep enough and strong enough, you learn that you can change those attitudes by excellence, personal gut performance.
+ - Certainly in the next 50 years we shall see a woman president, perhaps sooner than you think. A woman can and should be able to do any political job that a man can do.
+ - What was Watergate? A little bugging!
+ - I hereby resign this office of president of the United States.
+ - Your mind must always go, even while you’re shaking hands and going through all the maneuvers. I developed the ability long ago to do one thing while thinking about another.
+ - The peace we seek to win is not victory over any other people, but the peace that comes “with healing in its wings;” with compassion for those who have suffered; with understanding for those who have opposed us; with the opportunity for all the peoples of this Earth to choose their own destiny.
+ - The events that followed our withdrawal from Vietnam, including the plight of the boat people and the more than 1 million slaughtered by the new communist rulers of Cambodia, showed that media critics who said we were on the wrong side were mistaken.
+ - I don’t think that a leader can control, to any great extent, his destiny. Very seldom can he step in and change the situation if the forces of history are running in another direction.
+ - President Johnson and I have a lot in common. We were both born in small towns and we’re both fortunate in the fact that we think we married above ourselves.
+ - Because the public lands belong to all Americans, this 1872 Mining Act should be repealed...
+ - When I am the candidate, I run the campaign.
+ - What are our schools for if not indoctrination against Communism?
+ - If you are ever going to lie, you go to jail for the lie rather than the crime. So believe me, don’t ever lie.
+ - My own view is that taping of conversations for historical purposes was a bad decision on the part of all the presidents. I don’t think Kennedy should have done it. I don’t think Johnson should have done it, and I don’t think we should have done it.
+ - This is the greatest week in the history of the world since the Creation, because as a result of what happened in this week, the world is bigger, infinitely.
+ - I let the American people down.
+ - God, of course, is the greatest philosopher of all.
+ - Law enforcement officers should use only the minimum force necessary in dealing with disorders when they arise. A human life-the life of a student, soldier, or police officer-is a precious thing, and the taking of a life can be justified only as a necessary and last resort.
+ - Well, I’m not a crook.
+ - Yet we can maintain a free society only if we recognize that in a free society no one can win all the time. No one can have his own way all the time, and no one is right all the time.
+ - I was not lying. I said things that later on seemed to be untrue.
+ - I’m not for women, frankly, in any job. I don’t want any of them around. Thank God we don’t have any in the Cabinet.
+ - Scrubbing floors and emptying bedpans has as much dignity as the Presidency.
+ - The more you stay in this kind of job, the more you realize that a public figure, a major public figure, is a lonely man.
+ - I see the face of a child. He lives in a great city. He is black. Or he is white. He is Mexican, Italian, Polish. None of that matters. What matters, he’s an American child.
+ - Voters quickly forget what a man says.
+ - With all our differences, whenever we are confronted with a threat to our security we are not then Republicans or Democrats but Americans; we are not then the fifty states but the United States.
+ - Where the hell is Chad?
+ - The time has come for us to draw the line. The time has come for the responsible leaders of both political parties to take a stand against overgrown Government and for the American taxpayer.
+ - The 1970s must be the years when America pays its debt to the past by reclaiming the purity of its air, its waters, and our living environment. It is literally now or never.
+ - I have a theory, too, that the best and only answer to a smear or to an honest misunderstanding of the facts is to tell the truth.
+ - What kind of nation we will be, what kind of world we will live in, whether we shape the future in the image of our hopes, is ours to determine by our actions and our choices.
+ - Peace is the real and right memorial for those who have died in war.
+ - I know you heard what you thought I said, but what I said isn’t what I meant.
+ - Any nation that decides the only way to achieve peace is through peaceful means is a nation that will soon be a piece of another nation.
+ - It’s a piece of cake until you get to the top. You find you can’t stop playing the game the way you’ve always played it.
+ - The student who invades an administration building, roughs up a dean, rifles the files and issues ‘non-negotiable demands’ may have some of his demands met by a permissive university administration. But the greater his ‘victory’ the more he will have undermined the security of his own rights.
+ - It I talked about Watergate, I was described as struggling to free myself from the morass. If I did not talk about Watergate, I was accused of being out of touch with reality.
+ - The mark of a true politician is that he is never at a loss for words because he is always half-expecting to be asked to make a speech.
+ - People should not have to pay for pollution they do not cause.
+ - I often thought that if there had been a good rap group around in those days, I might have chosen a career in music instead of politics.
+ - Baseball is great because anything can happen through the ninth inning.
+ - The true idealist pursues what his heart says is right in a way that his head says will work.
+ - When I grow up, I want to be an honest lawyer so things like that can’t happen.
+ - We must always remember that America is a great nation today not because of what government did for people but because of what people did for themselves and for one another.
+ - I got into a few games after they were hopelessly won or hopelessly lost, you know, when they put the substitutes in, and finally the water boy, and then me. That is the way it worked.
+ - While might certainly does not make right, neither does right by itself make might.
+ - My strong point is not rhetoric, it isn’t showmanship, it isn’t big promises – those things that create the glamour and the excitement that people call charisma and warmth.
+ - Solutions are not the answer.
+ - And I want you to know that I have no intention whatever of ever walking away from the job that the people elected me to do for the people of the United States.
+ - Reading not only enlarges and challenges the mind; it also engages and exercises the brain. Today’s youth who sits mesmerized by a television screen is not going to be tomorrow’s leader. Television watching is passive. Reading is active.
+ - My view is that one should not break up a winning combination.
+ - The memory of that scene for me is like a frame of film forever frozen at that moment: the red carpet, the green lawn, the white house, the leaden sky. The new president and his first lady.
+ - I’m glad I’m not Brezhnev. Being the Russian leader in the Kremlin. You never know if someone’s tape recording what you say.
+ - A public man must never forget that he loses his usefulness when he as an individual, rather than his policy, becomes the issue.
+ - With those who are willing to join, let us cooperate to reduce the burden of arms, to strengthen the structure of peace, to lift up the poor and the hungry.
+ - You know very well that whether you are on page one or page thirty depends on whether they fear you. It’s as simple as that.
+ - By taking this action, I hope that I will have hastened the start of the healing.
+ - The one thing sure about politics is that what goes up comes down and what goes down often comes up.
+ - The worst thing a politician can be is dull. At least I’m interesting.
+ - I never say something I cannot do. And I always will do more than I can say.
+ - Once you get into this great stream of history you can’t get out. You can drown. Or you can be pulled ashore by the tide. But it is awfully hard to get out when you are in the middle of the stream – if it is intended that you stay there.
+ - We do not learn by inference and deduction and the application of mathematics to philosophy, but by direct intercourse and sympathy.
+ - We can no longer afford to consider air and water common property, free to be abused by anyone without regard to the consequences. Instead, we should begin now to treat them as scarce resources, which we are no more free to contaminate than we are free to throw garbage into our neighbor’s yard.
+ - I would rather be a one-term President and do what I believe is right than to be a two-term President at the cost of seeing America become a second-race power and to see this Nation accept the first defeat in its proud 190-year history.
+ - With all the power that a president has, the most important thing to bear in mind is this: You must not give power to a man unless, above everything else, he has character. Character is the most important qualification the president of the United States can have.
+ - The only way to achieve a practical, livable peace in a world of competing nations is to take the profit out of war.
+ - As far as I am concerned now, I have no enemies in the press whatsoever.
+ - Rarely have so many people been so wrong about so much.
+ - If I had my life to live over, I would have liked to have ended up as a sportswriter.
+ - The President wants me to argue that he is as powerful a monarch as Louis XIV, only four years at a time, and is not subject to the processes of any court in the land except the court of impeachment.
+ - Never be too proud to go onto your knees before God.
+ - It is necessary for me to establish a winner image. Therefore, I have to beat somebody.
+ - The American people are entitled to see the president and to hear his views directly, and not to see him only through the press.
+ - The color of communism was not red but gray.
+ - Americans admire a people who can scratch a desert and produce a garden. The Israelis have shown qualities that Americans identify with: guts, patriotism, idealism, a passion for freedom. I have seen it. I know. I believe that.
+ - If I had feelings, I probably wouldn’t have even survived.
+ - I’d like to see people, instead of spending so much time on the ethical problem, get after the problems that really affect the people of this country.
+ - What we do with this peace-whether we preserve it and defend it, or whether we lose it and let it slip away-will be the measure of our worthiness of the spirit and sacrifice of the hundreds of thousands who gave their lives in two World Wars, Korea, and in Vietnam.
+ - A politician knows that his friends are not always his allies, and that his adversaries are not always his enemies.
+ - In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.
+ - We are not spending the Federal Government’s money, we are spending the taxpayer’s money, and it must be spent n a way which guarantees his money’s worth and yields the fullest possible benefit to the people being helped.
+ - Any culture which can put a man on the Moon is capable of gathering all the nations of the earth in peace, justice and concord.
+ - I don’t know anything that builds the will to win better than competitive sports.
+ - I knew if I continued to look around it would be difficult for me to contain my own emotions. So I turned away from the red eyes of the crowd and looked only at the red eye of the camera, talking to all the nation.
+ - I refuse to make a decision that somebody else can make. The first rule of leadership is to save yourself for the big decision. Don’t allow your mind to become cluttered.
+ - The only time in the history of the world that we have had any extended periods of peace is when there has been a balance of power. It is when one nation becomes infinitely more powerful in relation to its potential competitors that the danger of war arises.
+ - There are some people, you know, they think the way to be a big man is to shout and stomp and raise hell-and then nothing ever really happens. I’m not like that I never shoot blanks.
+ - Screw State! State’s always on the side of the blacks. The hell with them!
+ - When I retire I’m going to spend my evenings by the fireplace going through those boxes. There are things in there that ought to be burned.
+ - As our cities and suburbs relentlessly expand, those priceless open spaces needed for recreation areas accessible to their people are swallowed up-often forever. Unless we preserve these spaces while they are still available, we will have none to preserve.
+ - The three most difficult words to speak are, “I was wrong.”
+ - I really believe life is simple. It’s all the other people that make things complicated.
+ - But more than anything else, we have learned that legal assistance for the poor, when properly provided, is one of the most constructive ways to help them help themselves.
+ - Peace is a great goal, but it is not a panacea. Neither is material wealth.
+ - Lyndon Johnson rose above the doubt and fear to hold this Nation on course until we rediscovered our faith in ourselves.
+ - Black Americans, no more than white Americans, they do not want more government programs which perpetuate dependency. They don’t want to be a colony in a nation.
+ - We will establish a new system that makes high-quality health care available to every American in a dignified manner and at a price he can afford.
+ - I’ll speak for the man, or against him, whichever will do him the most good.
+ - I would have made a good pope.
+ - Those who hate you don’t win unless you hate them back.
+ - Italy hasn’t had a government since Mussolini.
+ - Writing is the toughest thing I’ve ever done.
+ - The people’s right to change what does not work is one of the greatest principles in our system of government.
+ - Don’t try to take on a new personality; it doesn’t work.
+ - I don’t give a damn about the civilians.
+ - For its part, Government will listen. We will strive to listen in new ways – to the voices of quiet anguish, to voices that speak without words, the voices of the heart, to the injured voices, and the anxious voices, and the voices that have despaired of being heard.
+ - Since I have never one a debate let me tell you how not to lose one.
+ - Any lady who is first lady likes being first lady. I don’t care what they say, they like it.
+ - If we take the route of the permanent handout, the American character will itself be impoverished.
+ - But also out here in this dreary, difficult war, I think history will record that this may have been one of Americas finest hours, because we took a difficult task and we succeeded.
+ - There is no such thing as a nonpolitical speech by a politician.
+ - The Pakistanis are straightforward and sometimes extremely stupid. The Indians are more devious, sometimes so smart that we fall for their line.
+ - We are all in it together. This is a war. We take a few shots and it will be over. We will give them a few shots and it will be over.
+ - There are some instances where you may be ahead of us, for example, in the development of the thrust of your rockets for the investigation of outer space; there may be some instances in which we are ahead of you – in color television, for instance.
+ - As this long and difficult war ends, I would like to address a few special words to the American people: Your steadfastness in supporting our insistence on peace with honor has made peace with honor possible.
+ - I have never been a quitter. To leave office before my term is completed is opposed to every instinct in my body. But as president I must put the interests of America first Therefore, I shall resign the presidency effective at noon tomorrow.
+ - You want a wife who is intelligent, but not too intelligent.
+ - I reject the cynical view that politics is a dirty business.
+ - You have my assurance that we will respond with full force should the settlement be violated by North Vietnam.
+ - It is not enough just to be for peace. The point is, what can we do about it?
+ - I’m not a crook. I’ve earned everything I’ve got.
+ - In our own lives, let each of us asknot just what government will do for me, but what can I do for myself?
+ - They say, “Gee, you look great.” That means they thought you looked like hell before.
+ - Anybody who wants to be an ambassador, wants to pay at least $250,000.
+ - Let me just say this, and I want to say this to the televison audience: I made my mistakes, but in all of my years of public life, I have never profited, never profited from public service.
+ - If I were to make public these tapes, containing blunt and candid remarks on many different subjects, the confidentiality of the office of the president would always be suspect.
+ - People have got to know whether or not their president is a crook. Well, I’m not a crook. I earned everything I’ve got.
+ - Mrs. Nixon and I share the sorrow of millions of Americans at the death of Louis Armstrong. One of the architects of an American art form, a free and individual spirit, and an artist of worldwide fame, his great talents and magnificent spirit added richness and pleasure to all our lives.
+ - Once one determines that he or she has a mission in life, that’s it’s not...
+ - Why would anyone want to be President today? The answer is not one of glory, or fame; today the burdens of the office outweigh its privileges. Its not because the Presidency offers a chance to be somebody, but because it offers a chance to do something.
+ - I have impeached myself by resigning.
+ - Until he has been part of a cause larger than himself, no man is truly whole.
+ - Government can provide opportunity. But opportunity means nothing unless people are prepared to seize it.
+ - If you think the United States has stood still, who built the largest shopping center in the world?
+ - You won’t have Nixon to kick around anymore, because, gentlemen, this is my last press conference.
+ - My strong point, if I have a strong point, is performance. I always do more than I say. I always produce more than I promise.
+ - A riot is a spontaneous outburst. A war is subject to advance planning.
+ - I think Congress has spent enough time on ethics. I think it’s time they moved on to something else.
+ - A man who has never lost himself in a cause bigger than himself has missed one of life’s mountaintop experiences. Only in losing himself does he find himself. Only then does he discover all the latent strengths he never knew he had and which otherwise would have remained dormant.
+ - Let us understand: North Vietnam cannot defeat or humiliate the United States. Only Americans can do that.
+ - For years politicians have promised the Moon. I’m the first one to be able to deliver it.
+ - People react to fear, not love; they don’t teach that in Sunday School, but it’s true.
+ - You don’t know how to lie. If you can’t lie, you’ll never go anywhere.
+ - My gravest secret is that I really did fake the moon landing. On Venus!
+ - Always give your best. Never get discouraged. Never be petty.
+ - The bastards have never been bombed like they’re going to be bombed this time.
+ - I believe in building bridges, but we should only build our end of the bridge.
+ - Those few days after Kent State were among the darkest of my presidency.
+ - Nothing is more priceless and more worthy of preservation than the rich array of animal life with which our country has been blessed. It is a many-faceted treasure, of value to scholars, scientists, and nature lovers alike, and it forms a vital part of the heritage we all share as Americans.
+ - I’m not a lovable man.
+ - You must never give up. You must remember that you have to take risks in order to achieve anything and sometimes you will suffer defeat. But the mark of any individual is to recover from defeat and disappointment and go on and give it his best shot.
+ - Television is to news as bumperstickers are to philosophy.
+ - I want a Goddamn strong statement on marijuana, I mean one that just tears the ass out of them. You know, its a funny thing, every one of the bastards that are out for legalizing marijuana is Jewish.
+ - There will be no whitewash in the White House.
+ - Castro couldn’t even go to the bathroom unless the Soviet Union put the nickel in the toilet.
+ - Unpredictability is the greatest asset a leader can have.
+ - I had never expected that the China initiative would come to fruition in the form of a Ping-Pong team.
+ - The language of politics is poetry, not prose. Jackson is poetry. Cuomo is poetry. Dukakis is a word processor.
+ - To the ordinary guy, all this is a bunch of gobbledygook. But out of the gobbledygook comes a very clear thing: you can’t trust the government, you can’t believe what they say, and you can’t rely on their judgment.
+ - It is essential that we take steps to prevent chemical substances from becoming environmental hazards. Unless we develop better methods to assure adequate testing of chemicals, we will be inviting the environmental crisis of the future.
+ - Now that all the members of the press are so delighted I lost, I’d like to make a statement. As I leave you I want you to know -just think how much you’ll be missing. You won’t have Nixon to kick around anymore because, gentlemen, this is my last press conference.
+ - Sure there are dishonest men in local government. But there are dishonest men in national government too.
+ - The communists have lost the cold war, but the west has not yet won it.
+ - I also believe that academic freedom should protect the right of a professor or student to advocate Marxism, socialism, communism, or any other minority viewpoint – no matter how distasteful to the majority, provided...
+ - Politics would be a helluva good business if it weren’t for the goddamned people.
+ - I’m not at liberty to discuss the governments knowledge of extraterrestrial UFO’s at this time. I am still personally being briefed on the subject!
+ - You must pursue this investigation of Watergate even if it leads to the president. I’m innocent. You’ve got to believe I’m innocent. If you don’t, take my job.
+ - What a strange creature man is that he fouls his own nest.
+ - No event in American history is more misunderstood than the Vietnam War. It was misreported then, and it is misremembered now.
+ - The press is the enemy.
+ - Economic power is not the same as strength of national character. Our country may be rich in goods, but we are poor in spirit.
+ - I was under medication when I made the decision to burn the tapes.
+ - If, when the chips are down, the worlds most powerful nation, the United States of America, acts like a pitiful, helpless giant, the forces of totalitarianism and anarchy will threaten free nations and free institutions throughout the world.
+ - I never leave a game before the last pitch, because in baseball, as in life and especially politics, you never know what will happen.
+ - Millions who endure poverty and bad government can now know what they are missing. To see how the other half lives all they have to do is switch on their television sets.
+ - You cannot win a battle in any arena merely by defending yourself.
+ - We, this nation of ours, could be the richest nation in the world. We could be the freest nation in the world – but only if the arts are alive and flourishing can we experience the true meaning of our freedom, and know the full glory of the human spirit.
+ - We must maintain the integrity of the White House, and that integrity must be real, not transparent. There can be no whitewash at the White House.
+ - The lesson of all history warns us that we should negotiate only when our military superiority is so convincing that we can achieve our objective at the conference table, and deny the aggressor theirs.
+ - Our idea is to create a situation in which those lands to which we have obligations or in which we have interests, if they are ready to fight a fire, should be able to count on us to furnish the hose and water.
+ - Unless a president can protect the privacy of the advice he gets, he cannot get the advice he needs.
+ - Let us move from the era of confrontation to the era of negotiation.
+ - The greatest honor history can bestow is that of peacemaker.
+ - Extremists on the left tend to be just as critical of pragmatism as extremists on the right.
+ - By the time you get dressed, drive out there, play 18 holes and come home, you’ve blown seven hours. There are better things you can do with your time.
+ - I wish I could give you a lot of advice, based on my experience of winning political debates. But I don’t have that experience. My only experience is at losing them.
+
+304 quotes

@@ -1,0 +1,36 @@
+ - In Soviet Russia, party always finds you!
+ - If love is the treasure, laughter is the key.
+ - In America, you break law. In Soviet Russia, law breaks you! In America, you watch Big Brother. In Soviet Russia, Big Brother watch you!
+ - Falling in love is a chemical reaction. But it wears off in a year.
+ - Everybody laughs the same in every language because laughter is a universal connection.
+ - In America, you drive car. In Soviet Russia, car drive you!
+ - Homosexuality in Russia is a crime and the punishment is seven years in prison, locked up with the other men. There is a three year waiting list.
+ - The ad in the paper said ‘Big Sale. Last Week.’ Why advertise? I already missed it. They’re just rubbing it in.
+ - It’s kind of bittersweet. The human spirit is not measured by the size of the act, but by the size of the heart.
+ - In Russia we only had two TV channels. Channel One was propaganda. Channel Two consisted of a KGB officer telling you: Turn back at once to Channel One.
+ - I found out that when you get married the man becomes the head of the house. And the woman becomes the neck, and she turns the head any way she wants to.
+ - A Russian Reversal quote on Uncyclopedia’s Soviet Union article? How original.
+ - After the Soviet Union collapsed, people thought I wasn’t funny anymore.
+ - If you have something important to say, Broadway and New York are great places to say it.
+ - My father described this tall lady who stands in the middle of the New York harbor, holding high a torch to welcome people seeking freedom in America. I instantly fell in love.
+ - Never having alone time is real tough on people.
+ - I like American women. They do things sexually Russian girls never dream of doing – like showering.
+ - I fed my ego, but not my soul.
+ - In today’s society we sometimes forget to balance our hearts and our heads; this is the reason we stop laughing.
+ - I was not only typecast as a Russian, but I was typecast as Yakov Smirnoff. This is understandable, and I was very happy to get the roles, but it would be nice to be in a movie where I could be someone else.
+ - In Russia, if a male athelete loses he becomes a female athelete.
+ - The reason gas prices are so high is because the oil is in Texas and Oklahoma and all the dipsticks are in Washington.
+ - We may have forgotten how to feel. Nobody is teaching us how to live happily ever after, as we’ve heard in fairy tales.
+ - We have been learning since we were children how to make money, buy things, build things. The whole education system is set up to teach us how to think, not to feel.
+ - I believe that laughter is a language of God and that we can all live happily ever laughter.
+ - I believe that love and laughter can only happen when one person takes the time to think about what would cause the other person to feel good.
+ - I believe there is a direct correlation between love and laughter.
+ - When the needs of one person are being met by the other, there is laughter.
+ - Many people are surprised to hear that we have comedians in Russia, but they are there. They are dead, but they are there.
+ - I came to America to make it my home, and I did.
+ - Men and women are immigrants in each other’s worlds.
+ - Comedians are always hitting the topical notes that are on everybody’s minds.
+ - Americans think Soviets are so grim. I want them to see that they can smile.
+ - Balance is so important in our lives. In our busy world, we can give ourselves balance between thinking and feeling.
+
+34 quotes

@@ -1,0 +1,95 @@
+ - Responsibility equals accountability equals ownership. And a sense of ownership is the most powerful weapon a team or organization can have.
+ - Accountability is essential to personal growth, as well as team growth. How can you improve if you’re never wrong? If you don’t admit a mistake and take responsibility for it, you’re bound to make the same one again.
+ - Here’s how I’m going to beat you. I’m going to outwork you. That’s it. That’s all there is to it.
+ - Attitude is a choice. Think positive thoughts daily. Believe in yourself.
+ - It is what it is. But, it will be what you make it.
+ - Winners are not born, they are self-made.
+ - You can’t always be the most talented person in the room. But you can be the most competitive.
+ - Change equals self improvement. Push yourself to places you haven’t been before.
+ - Sometimes you learn more from losing than winning. Losing forces you to reexamine.
+ - Teamwork is what makes common people capable of uncommon results.
+ - Offense sells tickets, defense wins games, rebounding wins championships.
+ - See yourself as self employed.
+ - Discipline yourself, so no one else has to.
+ - In the absence of feedback, people will fill in the blanks with a negative. They will assume you don’t care about them or don’t like them.
+ - Admit to and make yourself accountable for mistakes. How can you improve if you’re never wrong?
+ - If I’m not leading by example, then I’m not doing the right thing. And I want to always do the right thing.
+ - Attitude is a choice. What you think you can do, whether positive or negative, confident or scared, will most likely happen.
+ - Sit up straight, listen and participate.
+ - Hard work breeds self-respect.
+ - Discipline helps you finish a job, and finishing is what separates excellent work from average work.
+ - Know your strengths, weaknesses, and needs.
+ - Make Winning an Attitude.
+ - It’s harder to stay on top than it is to make the climb, Continue to seek new goals.
+ - Teamwork is really a form of trust. It’s what happens when you surrender the mistaken idea that you can go it alone and realize that you won’t achieve your individual goals without the support of your colleagues.
+ - Success is a project that’s always under construction.
+ - Anyone can quit, but it takes a strong, committed person not to quit when times are tough.
+ - The ultimate goal of discipline is to teach self discipline.
+ - The best way to handle responsibility is to break it down into smaller parts. Take care of one small thing at a time.
+ - Individual success is a myth. No one succeeds all by herself.
+ - My parents taught me a long time ago that you win in life with people, and that’s important, because if you hang with winners, you stand a great chance of being a winner.
+ - Teamwork doesn’t come naturally. It must be taught.
+ - When you choose to be a competitor you choose to be a survivor. When you choose to compete, you make the conscious decision to find out what your real limits are, not just what you think they are.
+ - By doing things when you are too tired, by pushing yourself farther than you thought you could – like running the track after a two-hour practice – you become a competitor. Each time you go beyond your perceived limit, you become mentally stronger.
+ - No one feels strong when she examines her own weakness. But in facing weakness, you learn how much there is in you, and you find real strength.
+ - Most people get excited about games, but I’ve got to be excited about practice, because that’s my classroom.
+ - To me, teamwork is a lot like being part of a family. It comes with obligations, entanglements, headaches, and quarrels. But the rewards are worth the cost.
+ - Group discipline produces a unified effort toward a common goal.
+ - Losing strengthens you. It reveals your weaknesses so you can fix them.
+ - She taught me that it’s ok to let down your guard and allow your players to get to know you. They don’t care how much you know until they know how much you care.
+ - Attitude lies somewhere between emotion and logic. It’s that curious mix of optimism and determination that enables you to maintain a positive outlook and to continue plodding in the face of the most adverse circumstances.
+ - The absolute heart of loyalty is to value those people who tell you the truth, not just those people who tell you what you want to hear. In fact, you should value them most. Because they have paid you the compliment of leveling with you and assuming you can handle it.
+ - Silence is a form of communication, too. Sometimes less is more.
+ - Nine-tenths of discipline is having the patience to do things right.
+ - The greatest strength any human being an have is to recognize his or her own weaknesses. When you identify your weaknesses, you can begin to remedy them – or at least figure out how to work around them.
+ - God doesn’t take things away to be cruel. He takes things away to make room for other things. He takes things away to lighten us. He takes things away so we can fly.
+ - The willingness to experiment with change may be the most essential ingredient to success at anything.
+ - Class is more important than a game.
+ - You can’t pick and choose the days that you feel like being responsible. It’s not something that disappears when you’re tired.
+ - We communicate all the time, even when we don’t realize it. Be aware of body language.
+ - If I was renowned as as tough coach, I also wanted to be a caring one.
+ - Success is all a matter of perspective. It depends on where you start from, and where you want to end up.
+ - Coaches who start listening to fans often wind up sitting next to them.
+ - It’s my experience that people rise to the level of their own expectations and of the competition they seek out.
+ - If I aint happy, nobody’s happy.
+ - Our emphasis is on execution, not winning.
+ - I have a love-hate relationship with losing. I hate how it makes me feel, which is basically sick. But I love what it brings out.
+ - If you don’t want responsibility, don’t sit in the big chair. To be successful, you must accept full responsibility.
+ - In order to grow, you must accept new responsibilities, no matter how uncertain you may feel or how unprepared you are to deal with them.
+ - I think you can challenge people, but you don’t want to break people down. But you’ve got to sometimes just pull them aside and say, you know, you’re OK but you could be better.
+ - There is an old saying: a champion is someone who is willing to be uncomfortable.
+ - I hate to sound this way but, ‘Why me? Why me with dementia?’
+ - Combine practice with belief.
+ - Success lulls you. It makes the most ambitious of us complacent and sloppy. In a way, you have to cultivate a kind of amnesia and forget all of your previous prosperity.
+ - With attitude, you can determine your own performance.
+ - Value those colleagues who tell you the truth, not just what you want to hear.
+ - There is always someone better than you. Whatever it is that you do for a living, chances are, you will run into a situation in which you are not as talented as the person next to you. That’s when being a competitor can make a difference in your fortunes.
+ - Put the Team Before Yourself.
+ - Loyalty is not unilateral. You have to give it to receive it.
+ - If it doesn’t bother you, it won’t bother them.
+ - We do not win championships with girls. We win with competitors.
+ - Competition got me off the farm and trained me to seek out challenges and to endure setbacks; and in combination with my faith, it sustains me now in my fight with Alzheimer’s disease.
+ - There are some concrete ways to create a winning attitude. But nothing beats practicing it. When you prepare to win, belief comes easily.
+ - When you grow up on a dairy farm, cows don’t take a day off. So you work every day and my dad always said, ‘No one can outwork you,’
+ - I don’t give out compliments easily.
+ - You have to make shots. That’s the bottom line.
+ - Setting up a system that rewards you for meeting your goals and has penalties for failing to hit your target is just as important as putting your goals down on paper.
+ - I didn’t say a lot. I didn’t throw anything. That’s not my style. I did think about it though.
+ - I’m interested to see where a combination of faith and science will take me.
+ - Discipline is the only sure way I know to convince people to believe in themselves.
+ - I won 1,098 games, and eight national championships, and coached in four different decades. But what I see are not the numbers. I see their faces.
+ - Belief in yourself is what happens when you know you’ve done the thing things that entitle you to success.
+ - Rebounding wins championships, you need to emphasize it and work with kids on it.
+ - Teamwork does not come naturally. Let’s face it. We are born with certain inclinations, but sharing isn’t one of them.
+ - The person, the student, the athlete, all are considered equal.
+ - There is nothing wrong with having competitive instincts. They are survival instincts.
+ - You can’t have any quit in you if you want to be successful.
+ - I learned so much from Sue about the Xs and Os of the game of basketball.
+ - If you want to be in the game you better shoot 75% from the line.
+ - A competitor continually sets new goals. He feels the need to keep raising the bar. If the fist goal is to make the team, and he achieves it, he immediately resets the goal to: I want to be a starter.
+ - I think I can help others just by my example.
+ - I want to go to practice. I want to be in the huddles. That’s me.
+ - You spend more of the game preparing to win in the final seconds. And that is what separates winners from losers.
+ - I’ve got a great staff and great support system, and I’m going to stick my neck out and do what I always do.
+
+93 quotes

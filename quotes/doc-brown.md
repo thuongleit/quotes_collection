@@ -1,0 +1,31 @@
+ - Your future is whatever you make it, so make it a good one.
+ - The time-traveling is just too dangerous. Better that I devote myself to study the other great mystery of the universe: women!
+ - The future’s unwritten. It’s what we make of it.
+ - I got into music via the competitions; the first time I ever performed was in a kind of rap battle, competing for money.
+ - I’m sure that in 1985, plutonium is available in every corner drugstore, but in 1955, it’s a little hard to come by.
+ - I don’t have the desire to be the best standup in the UK but I do have the desire to be the best at everything else I do in terms of writing and acting.
+ - I respect anyone who’s honest to themselves and able to bring that into their work in an entertaining fashion.
+ - Breaking up monotony is key to life and it doesn’t matter whether I’m stacking shelves or writing songs, if I was doing the same thing every day I just couldn’t take it.
+ - Trying to be funny is one of the hardest things on the planet. I think that’s tough for everyone. If you’re just naturally funny it’s a hell of a lot easier.
+ - Standup is tough; if you are going through a hard period in your life, it is very hard to get up in front of people and be the happy guy in the room.
+ - In terms of a comedy plan I don’t really have a list of what I want accomplish. I’m just riding the wave! I think I will always come back to stand-up and comedy in all its forms. I just don’t think it will ever be the one sole thing I do.
+ - I try not to be influenced when it comes to being creative, just in order to sustain my own voice and character. However, I do have many inspirations from the worlds of literature, music, comedy and film.
+ - I’ll just keep going till people get disinterested. It’s what I was born to do and thankfully, people have shown an interest. I never do anything to be famous.
+ - I never gave up rapping – it gave up on me. There was no industry and no appetite for UK rap back then and I had a daughter to feed. I couldn’t keep doing something full time that didn’t pay the bills.
+ - My shows will always be inspired by hip hop culture and my upbringing within it.
+ - I’d always written rhymes but I was scared to share them. They stayed on paper or in my head, until I started going to watch battles and eventually thought to myself, “I’m definitely as good as some of these guys, and maybe even better than them”.
+ - While I was rapping I was always involved in youth work – I ran music workshops for teenagers and young offenders all the time and also ran a charity for refugee kids for a time.
+ - In show business, never underestimate the power of saying “no”.
+ - I try not to make social consciousness a massive part of my music or comedy because I prefer to be an entertainer first and foremost, then do actual grassroots work when I can.
+ - There is only one thing that could make me near homicidal. Yeah – this is called My Proper Tea.
+ - I think I’ll always be linked to comedy. There is something about it that’s such a beautiful thing. The world of drama sneers at it because people assume that it’s easy but it’s not at all; it’s incredibly difficult.
+ - If you are successful because of Hip Hop, which I am, then you have to recognize that Hip Hop is nothing if not a product of the street, therefore you have to give something back.
+ - When I slid into comedy, naturally the first thing I said was, “hello, I am a washed up rapper.”
+ - I’m proud of most of the stuff I’ve put out and I hope my kids will look at it long after I’m gone and go, “hey, Daddy was cool once!”
+ - I just love the subversion of dialogue in sitcoms, stand-up is monologue and that is entertaining for a lot of people but personally I find it a bit trying, which is a weird thing to say as a stand-up! I love people aping normal conversation and twisting it so it becomes hilarious.
+ - There is no better education than rap battling in terms of performance. It makes you fearless.
+ - With this kind of camera-phone madness we have got, moments are diluted into self-contained edited experiences.
+ - I think everybody wants to be the best at what they do and for me I was never really there, plus it was in a time that just preceded the insanity of internet promotion around 2005 and 2006. Obviously through the digital revolution things have moved very quickly and a lot of artists got left behind.
+ - I think the sensible thing would be to focus on one thing and be the best you can be at it. There is always that risk of spreading yourself too thin if you try to do too much.
+
+29 quotes

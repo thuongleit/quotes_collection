@@ -1,0 +1,40 @@
+ - Those blue, blue eyes, icy blue, looking back at me as if I could warm them up. They’re pretty powerful, you know, those eyes, pretty beautiful, too.
+ - It happened like this. I was stolen from an airport. Taken from everything I knew, everything I was used to. Taken to sand and heat, dirt and danger. And he expected me to love him. This is my story. A letter from nowhere.
+ - And it’s hard to hate someone once you understand them.
+ - It was like I existed in a kind of parallel universe, thinking thoughts and feelings that no one else understood.
+ - Lets face it, you did steal me. But you saved my life too. And somewhere in the middle, you showed me a place so different and beautiful, I can never get it out of my mind. And I can’t get you out of there either. You’re stuck in my brain like my own blood vessels.
+ - When the darkness gets easier, you know you’re sinking deeper, becoming dead yourself.
+ - You saw me before I saw you. You had that look in your eyes, as if you wanted something. Wanted it for a long time.
+ - I’d never seen a man cry before, only on TV. I’d never even seen Dad close to crying. Those tears looked so odd on you. It was like the strength of you just seemed to sap away. The surprise of it stopped me from being so scared.
+ - Everyone wanted answers I wasn’t ready to give.
+ - There is no need to put your heart in a bottle, then you will die. – Ty from Stolen.
+ - You smiled then, and your whole face changed with it. It kind of lit up, like there were sunbeams coming from inside you.
+ - I remember that feeling of skin. It’s strange to remember touch more than thought. But my fingers still tingle with it.
+ - I thought you didn’t want to let me go.
+ - The people we care for aren’t always the one we should.
+ - Far, far away something made a single ghostly howl, like a banshee in the dark.
+ - There were tiny stars behind my eyelids, a whole galaxy of tiny, spinning stars.
+ - I want you to see that the person I glimpsed running beside the camel, running to save my life, is the person you can choose to be.
+ - One day they’ll let you out of that dry, empty cell. You’ll return to the Separates, and you’ll feel the rain once more. And you’ll grow straight, this time, toward this sunlight. I know you will.
+ - It didn’t make me glow. I felt more like I was fading away, like the world had forgotten me.
+ - I could hear you, talking to the daffodils and tulips, whispering to the fairies that lived inside their petals. Each separate flower had a different family inside it.
+ - I mean, that star over there is blinking at me madly now, but for how long? An hour or two, or for the next million years? And how long will we sit here like this? Just another moment, or the rest of our lives? You know which one I’d prefer...
+ - I stayed there, curled up into the warmth of your body, under the blankets, like something soft in a shell. Your arms were firm as rock around me.
+ - In a moment, when I’m ready, I will turn off this computer and that will be it. This letter will be finished. A part of me doesn’t want to stop writing to you, but I need to. For both of us.
+ - The deep blue of your eyes had secrets. I wanted them.
+ - I craved your warmth. I hugged myself, rubbing my fingers up and down. I guess people are like insects sometimes, drawn to heat, A kind of infra-red longing.
+ - I was surprised at her gentleness, her willingness to give in.
+ - Your eyes were too intense to stare into for long.
+ - I didn’t look back, but I knew you were still watching. It probably sounds weird, but I could just feel it. The hairs on my neck bristled when you blinked.
+ - The sand stretched out gray and ghostlike and illuminated, a column of light leading forward. It was like something a dead person would see, a tunnel leading toward heaven.
+ - It was like I’d stepped out into an afterlife. Only there were no angels.
+ - How would she find her herd? How would she find you?
+ - I didn’t want the person standing there, beside the bed, to have the same face I’d found so attractive at the airport. But you were there all right: the blue eyes, blondish hair, and tiny scar. Only you didn’t look beautiful this time. Just evil.
+ - I remember the lights turning into blurs of blazing fire. I remember the air-conditioning chilling my arms. The smell of coffee smudging into the smell of eucalyptus.
+ - But without humans, the wild would take over. It would only take a hundred years or so for nature to win again.
+ - Your beautiful mouth was moving like a caterpillar. I reached out and tried to catch it.
+ - It was so big, that view. I’ll never remember it properly. How can anyone remember something that big? I don’t think people’s brains are designed for memories like that. They’re designed for things like phone numbers, or the color of someone’s hair. Not hugeness.
+ - You won’t be able to hurt me, or touch me.
+ - This be OK?? I asked, innocently. ‘You want me to have no skin left?’ You rolled your eyes. Actually, don’t answer that one.
+
+38 quotes

@@ -1,0 +1,24 @@
+ - Dance, my darling dance! If you dance then death can’t catch you! Nothing bad can touch you! Dance!
+ - If you want intelligent children give them a book. If you want more intelligent children give them more books.
+ - I’ve always found the world is the most extraordinarily fascinating place and the more data you get, the more you can actually put pieces into this jigsaw.
+ - I might be able to find out what happened 6,000 years ago but I will never know what happens 6,000 years in the future! And that is not fair, blast it.
+ - I don’t finish a lot of the books I read. I get enormous pleasure from reading half f them, two-thirds of them, even incredibly good books. But I don’t feel it’s my duty to finish them. I read the last few pages and find out what happens at the end.
+ - We need to actually teach kids that books aren’t like broccoli. You don’t have to eat every bit on your plate. It’s like secret adult’s business. It’s the secret we never, ever tell our children. No adult ever read a book because it’s good for us. We read because it is fun.
+ - Death had ruled my life till I met Lady Dance. Her dance had set me free.
+ - There is still in many schools complete misapprehension that children with reading difficulties are stupid. It is so easy to teach a child that they’re dumb. There needs to be a recognition that you need different ways to teach children who have got reading problems.
+ - If something is worth doing you may as well go heart and soul and boot leather.
+ - A lot of dyslexic kids are actually more intelligent than average and are very good, because they’ve got very good memories, at disguising the fact that they can’t read or have got problems in reading and literacy.
+ - When someone is missing the really hard thing is that you never really do give up hope, even though the inquest says that she is dead, even though right from the beginning we already knew that we wouldn’t see her again.
+ - Morning: Slept. Afternoon: Slept. Evening: Ate grass. Night: Ate grass. Decided grass is boring. Scratched. Hard to reach the itchy bits. Slept.
+ - Often the true hero and heroines of my books are the houses, the places, the communities where people find a home.
+ - Very much in my books people find not surrogate families because they are real families. We’ve got families that we’re related to by blood but we’ve also got families that we acquire. And those too I think are pretty much part of my books.
+ - I do read very, very quickly. I do process data very quickly. And so I write very quickly. And it is embarrassing because there is a conception that the things that you do quickly are not done well. I think that’s probably one of the reasons I don’t like the idea of prolific.
+ - For me books have always been an incredibly solid part of my life, both as escapism and simply as resource.
+ - I’m very close to my parents. I admire them and respect them enormously. But my childhood unfortunately coincided with the end of their marriage. They are two people who should never, ever have got married.
+ - I think I have probably adjusted the way I see the world, I interpret the world and I communicate the world into book format simply because of this familiarity. Possibly in another society and another context I might have been a storyteller or who knows what.
+ - One of my extraordinary regrets about my death is not so much that it’s going to happen but simply that I’ll never know what happens next.
+ - The song and dance didn’t stop us dying. It just stopped the fear of death swallowing us up while we were still alive.
+ - I don’t read like other people do – back and forth, across the page. I tend to scan a page at a time.
+ - Books aren’t like broccoli. You don’t have to eat it because it’s good for you. Books drag you in because they are fascinating.
+
+22 quotes

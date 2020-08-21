@@ -1,0 +1,31 @@
+ - Success is never owned, it is rented, and the rent is due every day.
+ - There is no such thing as time management; there is only self-management.
+ - Discipline is a choice. It’s simply consistently choosing the hard right over the easy wrong.
+ - Success means doing things you don’t want to do.
+ - Creating the next level of results requires the next level of thinking.
+ - Easy short-term choices lead to difficult long-term consequences meanwhile difficult short-term choices lead to easy long-term consequences.
+ - You multiply your time by spending time on things today that will give you more time tomorrow.
+ - One of the biggest ways we lose time is not knowing where we’re going next.
+ - The reason we don’t get what we want isn’t because we don’t have the ability or time. We aren’t willing to do the things we need to do when we don’t feel like doing them. There’s an impact of that entitlement on their business. The attitude is you learn to fall in love with the daily grind.
+ - Your problem is not that you are too busy; your problem is that you don’t own your situation.
+ - Channel your emotion into the excellence of doing something rather than the mediocrity of deciding whether or not to do it.
+ - Time is not money. Time is worth way more than money.
+ - Fear is a big reason. Ultra achievers don’t have an attitude for overcoming fear. They just do it anyway, because they’re okay with being afraid. Instead of putting energy into reducing fear, they confront it with action.
+ - Let go of who’s right and focus on what’s right.
+ - Successful people have all had to do things they didn’t feel like doing in order to get where they are.
+ - We need to stop spending so much of our time trying to make the right decisions and instead start spending our time making decisions and then making them right.
+ - You always get paid for how hard you work, but it’s not always right away.
+ - When it comes to making commitments to other people, sometimes one of the hardest things to learn to say is no when we mean no.
+ - The foundation of a disciplined life is integrity and doing what we say we’re going to do.
+ - Success is more a matter of choice than of circumstance.
+ - Procrastination is one of the most expensive invisible costs in business today.
+ - Do things you don’t want to do because it is the shortest, most guaranteed path to success: what you want in your life. It’s not about getting a certain amount of money or a certain type of house, but what you want your life to look like.
+ - Creative avoidance is the type of procrastination that affects home business entrepreneurs the most. It is unconsciously filling our day with trivial, unimportant work.
+ - Procrastinatio n and indulgence are nothing more than creditors who charge us interest.
+ - There is always an incredible amount of things vying for our attention at home. I’m not saying you should never do the laundry, or pay attention to the kids, but for most of us, we’re not present to how much time we spend on those. Anything that wastes your time is a waste of money.
+ - Inaction that results from indulgence is Procrastination. Inaction that results from intention is Patience.
+ - Your highest obligation to other people is to be your highest self.
+ - The franchise model is great, because most people who are entrepreneurial want flexibility and time to do what they love. A lot home business entrepreneurs struggle because they have to do everything.
+ - Are we going to give up, or are we going to be the kind of people who stand up and do what it takes, even if we don’t feel like doing it?
+
+29 quotes

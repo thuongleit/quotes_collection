@@ -1,0 +1,87 @@
+ - Don’t worry about what you can’t control. Our focus and energy needs to be on the things we CAN control. Attitude, effort, focus- these are the things we can control...
+ - Don’t worry about what you can’t control.
+ - I try to learn from every experience, good or bad.
+ - As iron sharpens iron, so one man sharpens another.
+ - You can’t lose confidence in yourself, or you’ve lost already. When you get knocked down, you’ve got to keep getting back up.
+ - Don’t be normal. Be an example.
+ - We can control a few things: our attitude, our effort, our focus and how we go about treating our teammates.
+ - We have to humble ourselves and the way you do that is by serving other people.
+ - If you believe, sometimes unbelievable things are possible.
+ - I’m blessed, because of my faith, that I don’t have to worry about the future because I know who holds my future.
+ - I’m not perfect. I’m never going to be. And that’s the great thing about living the Christian life and trying to live by faith, is you’re trying to get better every day. You’re trying to improve.
+ - I’ll always use the negativity as more motivation to work even harder and become even stronger.
+ - I’m not perfect. And who knows how many times I’ve fallen short. We all fall short. That’s the amazing thing about the grace of God.
+ - Strong leaders encourage you to do things for your own benefit, not just theirs.
+ - Along the way there’s going to be a lot of obstacles, a lot of adversity, a lot of people who will tell you you’re not good enough. I’m here to tell you that you are. Everyone that tells you that you’re not is because they didn’t accomplish something.
+ - I can’t control the naysayers. I can control my attitude and work ethic and determination and that’s what I’m focused on now.
+ - There’s always someone out there training for your spot. For my scholarship at the University of Florida, for my job with the Denver Broncos, for my position with the New York Jets. And that’s the reason to get up earlier or stay up later.
+ - When I meet somebody I want to leave a better impression than when I got there.
+ - If someone is there to believe in you, to care about you and support you, amazing things can happen.
+ - I don’t know that I am a great leader at all, I just know I really care about what I do.
+ - I have so many things to work on, and so many ways that I fail. But that’s what grace is all about. and I constantly wake up every morning trying to get better, trying to improve, trying to walk closer to God.
+ - I’m just another guy starting out.
+ - Whatever avenue I feel like I can make a difference in, I’d love to do.
+ - I don’t really regret much. I know there are things that I’ve done that have been wrong, and wish I could do over again, but I feel it’s all made me who I am today, and I’m very thankful for that.
+ - I want to make someone’s life better because I’m here. If you have that attitude it will change your day and change your life.
+ - You just try to be nice to everybody and treat them all the same. Treat them how you would want to be treated.
+ - I’m just thankful for everything, all the blessings in my life, trying to stay that way. I think that’s the best way to start your day and finish your day. It keeps everything in perspective.
+ - I don’t try to focus on anything that doesn’t affect me personally and how I go out there every single day. I’m just going to continue to work hard and focus on what I can control.
+ - Being outspoken about my faith isn’t just something that I do; it’s who I am because my faith isn’t just a little piece of my life. It is my life. It’s not a question of whether I’m outspoken about it or not. I’m definitely not ashamed of it.
+ - My passion is kids, more than just kids is underprivileged kids and orphans.
+ - I grabbed my mom and I went to the couch and I said, ‘Mom I want to ask Jesus to come into my heart.’ And I got on my knee and I asked Jesus to come into my heart, forgive me of my sins, and make me a child of God.
+ - I will continue to work as hard as I can to make this organization proud. Every time I step on the field I will give everything I have and I will leave everything I have on the field every single Sunday.
+ - I don’t have to live the roller coaster other people live with my life. It’s hard because people try to have an effect.
+ - If you do base your life on how many touchdowns you score, how many championships you win, then when you have a setback, then when you have an injury, you’re not playing, or something goes wrong, your self-worth goes down.
+ - I am competitively aggressive. My dream since I was a young boy was to be an NFL quarterback. I am living that dream.
+ - The lows are disappointing but that makes the highs much sweeterThat’s what drives you to compete.
+ - I don’t judge my self-worth as a football player. Football is something I love. It’s a fun career deal, but it’s not what I want to do with my life, because I see football as a game.
+ - I guess, first and foremost, I’d like to thank my Lord and Savior, Jesus Christ.
+ - I believe in my God-given athletic ability and the coaches that have been blessed around me. I believe I can do the job as a quarterback in the NFL.
+ - Just keep believing. This is an opportunity where great things can happen and lets be great right now.
+ - Mom used to quote Isaiah 64: about waiting on the Lord. It doesn’t mean being complacent. It means understanding that he has a plan, and that we’re not the ones in control. In the meantime, we need to strive to use our gifts and abilities fully.
+ - Love ice cream. I let myself have that about once a week. Vanilla.
+ - So much of how we act and what we do is based on humility or pride – that’s everything. And when you can humble yourself, you know, we are more like Christ when we can humble ourselves.
+ - I really try to enjoy life and have joy with what I do.
+ - My No. 1 focus was on my foundation, the Tim Tebow Foundation, to bring faith, hope and love to those needing a brighter day in the darkest hour of need.
+ - I think sports media really do need to think about the world in more humble terms. Not everything is the game of the century, and not everything is life or death.
+ - But – but the greatest way to witness is by walking that straight and narrow and also realizing that you’re going to mess up. That’s what grace is for. We’re going to fall, but we’ve got to get back up. And you’ve got to improve. And that’s what I’m all about.
+ - It’s pretty easy for me to say that the most important thing in my life is my relationship with Jesus Christ, followed by my relationship with family. And football’s later on down the line.
+ - It’s not always the easiest thing to be the center of so much spilled ink.
+ - You know, I think He honestly does care about how we play on the field, more than anything more than win or lose our hearts on the field.
+ - As a competitor and an athlete, you have to believe in yourself. And you have to believe in the people who believe in you.
+ - No matter what happens, you’re always going to have those critics and those haters. You just have to learn how to deal with that. I think I have and accept that.
+ - When I say something, I want people to take it to the bank that I mean it and believe in it. It humbles me that companies want me. It’s a challenge to uphold their values and make their product look good. I take that personally.
+ - Helping raise money for kids – there’s nothing better than that.
+ - I’m thankful for the ability to share my faith in a lot of different places. It’s something that I take as a responsibility and an obligation to handle as best as I can.
+ - For me, it’s a great opportunity on a public platform to get on your knees and humble myself and thank the Lord for all the blessings he’s put in my life.
+ - I am someone that is very competitive. When I’m on the field, I compete. When I’m practicing, when I’m in meetings. I’m a competitor in everything.
+ - Too often, systems of oppression turn those who are the targets of the oppression against one another. It’s happened in the USA between white working class and poor folks on the one hand, and people of color on the other.
+ - It’s OK to be outspoken about your faith.
+ - Athletic ability can be taken away like that. It can all end in a heartbeat.
+ - You read glowing things and it doesn’t feel deserved. You read things that are critical and it cuts you to the bone.
+ - Honestly, I’m just trying to do the best I can with every opportunity I’m given, and when I’m given the opportunities make the most of them.
+ - I always love training at crazy times – it’s an edge I’m creating over everyone else.
+ - I try to stay centered in my faith and my family and the close people around me.
+ - I am not better than anyone else just because I play football.
+ - I will remain in relentless pursuit of continuing my lifelong dream of being an NFL quarterback.
+ - On the field I’m trying to play for the glory of God but then also I’m trying to give everything I have and win and compete. And so I think more than just winning or losing, I think He cares about where our hearts are when we’re playing.
+ - I want to use my connections with coaches, players, celebrities, whomever, and if I can take that friendship and use it to help someone else, I’m going to take advantage of that. I’m not going to apologize for that.
+ - You can be extremely bright and still have dyslexia. You just have to understand how you learn and how you process information. When you know that, you can overcome a lot of the obstacles that come with dyslexia. When you figure out how you learn, you can accomplish whatever you want.
+ - Every time I step on the field, I’m going to give my whole heart regardless of the score.
+ - It’s attractive when girls have faith. That is a big thing for me.
+ - I don’t judge my success in life as a football player.
+ - I definitely consider myself extremely blessed to have great partners in endorsing products. It’s not about being on billboards. I endorse something because I believe in it.
+ - The media will make a controversy out of anything, if they can.
+ - I rely on a lot of green drinks to get my vegetables.
+ - I’m blessed to have a little bit of success in football.
+ - My rookie year was huge for me as far as the learning curve, especially those last three games.
+ - To be able to influence someone or to be able to have a group of guys come together to have a successful team and to be together all the time every day for, you know, a year and longer together, you have to have a – find a common ground. And that common ground for us is football.
+ - I think you sign up to win games, and compete, and go out there and lead a team no matter how you can do that.
+ - I know there are a lot of people who believe in me as a player and a person, and I don’t want to let them down.
+ - My whole life, my dream has been to be a quarterback.
+ - If I’ve already thought through a situation and have a response prepared ahead of time in the event temptation rears its ugly head, it is that much easier to resist.
+ - I’m going to listen to John Elway. He knows what he’s talking about.
+ - I just try to work hard and run the offense as good as possible. I had a lot of guys around me who made a lot of good plays to help me out.
+ - Talk about your blessings more than you talk about your burdens.
+
+85 quotes

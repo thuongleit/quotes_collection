@@ -1,0 +1,70 @@
+ - Every age has its storytelling form, and video gaming is a huge part of our culture. You can ignore or embrace video games and imbue them with the best artistic quality. People are enthralled with video games in the same way as other people love the cinema or theatre.
+ - I play saxophone, I play tenor sax.
+ - Gorilla tourism is vital to Rwanda’s economy: It’s the third highest source of income.
+ - That’s why I ended up going to Lancaster University, because they had a visual arts course, and in the first year it was like a broad visual arts course in sculpture, painting, graphics – all of that.
+ - Gollum is Gollum – though in ‘Lord of the Rings’ he’s 600 years old and in ‘The Hobbit’ he’s 540, so he looks a little bit more handsome.
+ - My dad was working abroad, in Iraq, and he was a doctor. We used to go and visit him, in Baghdad, off and on. For the first ten years of my life, we used to go backwards and forwards to Baghdad, so that was quite amazing. I spent a lot of time traveling around the Middle East.
+ - Not a day goes by where I’m not reminded of Gollum by some person in the street who asks me to do his voice or wants to talk to me about him. But because ‘The Hobbit’ has been talked about as a project for many years, I knew that at some point I’d have to reengage with him.
+ - I’m in the early stages of a film called ‘Freezing Time’ about Eadweard Muybridge, the Victorian photographer who was really the forefather of cinema. Digital animators still treat his images like the Bible. He was a very obsessed man.
+ - Be magnificent. Life’s short. Get out there. You can do it. Everyone can do it. Everyone.
+ - 35mm film isn’t ticking away so it’s subconscious – performances are allowed to breathe in a much more real way I think.
+ - I think we can be very narrow-minded in this country; you see something that someone’s done and immediately want them to do the same thing again – but if they don’t, they’re criticised for not doing the same thing again, but if they do they’re just repeating themselves.
+ - We’ve never had nannies. We’ve had great grandparents, great support from family, and the kids have been on every set: they’ve seen me play Gollum, King Kong, Captain Haddock, the lot. They totally get it, and they want to go into the business. Ruby, my daughter, is very keen to become an actress.
+ - I stayed in Baghdad every summer until I was 14. My dad’s sister is still there, but many of my relatives have managed to get out. People forget that there are still people there who are not radicalized in any particular direction, trying to live normal lives in a very difficult situation.
+ - Playing a character in a video game is different to other performances because your character can’t lead the audience of players in one direction.
+ - That’s what I think is the biggest challenge, is just being still and learning how to just be present in that stillness and not over do it, not over act.
+ - On lower budget things you’re still working collaboratively, but the investment and your level of creative importance is higher on something like this.
+ - What I’m saying is people like Hoodwink are not kind of evil villains, they’re part of humanity. We can choose to disassociate ourselves from them and we can choose to pretend they’re not there, but they are. We’re all together in this.
+ - My sons have to learn that you take the rough with the smooth and they’ve seen a lot of smooth in the years that they’ve been around. They didn’t see the early years. But both my mum and myself are actors and we constantly tell them it’s not easy. But they understand that.
+ - Performance capture is a genre of acting which is not going to go away, it’s going to proliferate more and more. I’m passionate about it, and I love it. It’s the most liberating tool an actor has, because you are not limited by your own physicality, look, or color of your eyes.
+ - I’m working from home a lot. That’s very unusual because I’m away a lot, sometimes working on the other side of the world for long periods of time. So, it’s hard to manage in the sense that I want to be the best dad I can be but it’s almost harder when you have your kids outside the door.
+ - But I think there’s something wonderful and extraordinary about climbing on your own and just that kind of relationship to the environment. I’m very addicted to the mountains. You know, so, I do like that solitude.
+ - Performance capture is a tool that young actors will need in the next 10, 20 years. It’s on the increase, as you say. It’s not going away.
+ - Acting is a sort of pressure cooker that allows the fizz to come out the top. God knows what I’d be like if I didn’t have that.
+ - In the same way ‘Lord of the Rings’ was an interpretation of the book, ‘The Hobbit’ is being treated the same way. It will be faithfully represented with a fresh interpretation.
+ - I understand why people went nuts for ‘The Artist.’ We use words so much, it’s nice to be able to explore a different way of communication, to be able to express silently what someone – or something – is thinking or feeling.
+ - My agent told me they were casting for the voice of Gollum. I hadnt read The Lord of the Rings, but I read the script and realized what an amazing role it was. I developed a voice for the audition tape, then met Peter Jackson and Fran Walsh at the auditions and fell in love with them both.
+ - I suppose the biggest strain was that Hoodwink is a high-octane character and he’s up there like all the time. Once he’s on his journey there’s no let up for the man, so I actually found it a massively exhausting job to keep that level up.
+ - I can get on with all different sorts of people, and I never feel homesick, particularly, or I’ve never felt kind of patriotic towards any one country.
+ - I expect at some point I’ll probably want to go back on stage and do some theater, because I’ve not done theater in 10 years.
+ - My first job when I got my equity card was acting in 14 plays back-to-back. Playing that many roles, you look for ways of differentiating the characters physically, which goes hand in hand with understanding them psychologically.
+ - I am a bit evangelical, I know, but performance-capture is still misunderstood.
+ - I do listen to myself sometimes and think, ‘Is my moral compass so easily swayed by the characters I play, or is it me growing as a human being?’
+ - Hoodwink is a product of his environment. He grew up in Belfast, he was part of the UDA and he fought for what he believed in – or was brainwashed into believing – because of the people that surrounded him.
+ - What’s wonderful about Tolkien and Shakespeare is that they show up your own individual microscope. They’re so infinitely vast. You can reinterpret them in so many ways. Each age will have its own resonance with Lord of the Rings.
+ - No matter how extreme things get, it still has that ring of truth about it that backs the characters – even though they’re despicable and what they’re doing isn’t right you still care for their fate.
+ - Gorillas are still wild creatures. That’s made very clear when you observe them in nature. They charge and perform other displays that are terrifying by design. But they don’t attack unless they feel threatened.
+ - The whole chameleon thing about acting. That’s why I’m moving towards directing – it’s a much more healthy occupation.
+ - In terms of animation, animators are actors as well. They are fantastic actors. They have to draw from how they feel emotionally about the beat of a scene that they’re working on. They work collaboratively.
+ - As long as you have the acting chops and the desire to get inside a character, you can play anything.
+ - I believe that when people experience an event as a community it can transcend and change people’s lives.
+ - Everybody thinks performance capture is about thrashing around and doing a lots of movement, but it’s actually about being able to contain and think and be believed in a close-up, as much as anything else.
+ - I remember kind of doing early acting and thinking, ‘God, they don’t paint behind the sets.’ It’s a bit of a shame, really – ‘Oh, what’s on the other side of this wall? Oh, you can see the plywood.’ I was really disappointed. I just thought that these things were real, from watching things as a kid.
+ - In ‘Tintin,’ it’s like a live-action role. You’re living and breathing and making decisions for that character from page 1 to page 120, the whole emotional arc. In an animated movie, it’s a committee decision. There are 50 people creating that character. You’re responsible for a small part.
+ - I’ve always thought of acting as a tool to change society. I watch a lot of actors and I see panic in their eyes because they don’t know why they act and I know why I act. Whether I’m a good or a bad actor, I know why I do it.
+ - I’m definitely moving more towards directing now.
+ - But that’s not what an actor does. An actor finds things in the moment with a director and other actors that you don’t have time to hand-draw or animate with a computer.
+ - I think even back as far as ‘Lord of the Rings,’ there was always the chance that ‘The Hobbit’ would be made, even way back then. Of course at that point, Peter Jackson didn’t probably think at that point that he’d be directing it.
+ - More and more good actors are now transmigrating into the videogame space and playing roles there because it’s where my generation of kids get stories from.
+ - I’m quite contrary. If people agree on something, I tend to gravitate the other way by my nature. I don’t like to be told what to do. I think it goes back to school. I like to do things I want to do and I really don’t like doing what I don’t want to do.
+ - Performance capture is a technology, not a genre; it’s just another way of recording an actor’s performance.
+ - When you have children, you realize that at the end it’s all about passing on, about handing down. The process of letting go, not attachment, but appreciating the beauty and value in the change, the transformation.
+ - My take is that acting is acting. A performance is a performance. With performance capture, if you don’t get the performance on the day, you can’t enhance the performance.
+ - I’d like to think that we strive in film and theatre to tell great stories, and I believe in the power of storytelling in our culture.
+ - The learning curve is ‘The Hobbit’ is being shot in 3D.
+ - I wanted to be a painter, really, when I was growing up as a kid. It was one thing that really took a grip on me.
+ - I don’t see a difference between playing a performance capture role and a live action role, they’re just characters to me at the end of the day and I’m an actor who wants to explore those characters in fantastically written scripts. The only caveat is a good story is a good character.
+ - Mountaineering has always been a huge hobby of mine.
+ - I’ve been writing and wanting to direct for a long time.
+ - When I was in theater I was forever trying to inhabit a space which puts yourself under the microscope as an actor and your personality and your take on life, but actually through another portal of a character.
+ - What you can do with visual effects is enhance the look of the character, but the actual integrity of the emotional performance and the way the character’s facial expressions work, that is what is going to be created on the day with other actors and the director.
+ - I’d already started directing short films when we were doing ‘Lord of the Rings,’ then videogame projects.
+ - Working from home is so, so hard because I want to be present for them and yet there’s so much to do work-wise. That’s the biggest challenge for me.
+ - For film and games, there is now a fantastic method of actors portraying characters which don’t necessarily look like themselves. And yet you’ve still got the heart and soul of the performance.
+ - Originally when I went off to work on ‘The Lord of The Rings’ I got a call from my agent saying that I was just going to do a voice. But I couldn’t really approach it like that. To get Gollum’s voice I had to play the character.
+ - I love acting and certainly won’t give it up, but it’s part of a bigger canvas for me now.
+ - Basically we’re puppeteers and if you’re there and you’re in the character, the puppet is going to look good. It’s going to breath life and I think once they find out how to trust this system, you just forget about it and just perform, then it’s just second nature, it just becomes easy.
+ - For me, I’ve never drawn a distinction between live-action acting and performance-capture acting. It is purely a technology.
+ - I think there will always be a particular generation of actors who think that they’re going to be replaced by robots. But certainly the emerging actors understand that that’s part of the craft.
+
+68 quotes

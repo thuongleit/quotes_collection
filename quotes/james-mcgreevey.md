@@ -1,0 +1,27 @@
+ - We are losing sight of civility in government and politics. Debate and dialogue is taking a back seat to the politics of destruction and anger and control. Dogma has replaced thoughtful discussion between people of differing views.
+ - I try to be grateful for the abundance of the blessings that I have, for the journey that I’m on and to relish each day as a gift.
+ - We need to seek wise leaders who will seek common ground among Americans instead of dividing us further for political gain. As citizens, we must embrace those who embrace ideas, thoughtfulness, civility and kindness to others no matter what their political beliefs.
+ - I realized that I had screwed up my life living different parts of my life in different places. I wasn’t whole. I wasn’t integrated. I wasn’t a complete person. And after that, came out, spent some time at a psychiatric hospital.
+ - Throughout my life, I have grappled with my own identity, who I am. As a young child, I often felt ambivalent about myself, in fact, confused.
+ - I realized that my truest passion was for helping people change through faith in a higher power. That meant, for me, belonging to the church. Using my abilities to bring Christian doctrine to a postmodern world.
+ - I’m enjoying prison ministry, particularly with the women in Hudson County Jail who have suffered tremendously in their lives.
+ - We need to have a purpose in this life. I’m pleading with you, I’m begging with you to do the right thing. And do it not for the sake of how it will impact your own lives, but only for the sake of doing the right thing.
+ - I do not believe that God tortures any person simply for its own sake. I believe that God enables all things to work for the greater good.
+ - For me, living in the closet corroded my ability to have an honest, open relationship with my God, my loved ones, my constituency and myself.
+ - Civil union is less than marriage. Marriage is a sacred and valued institution and ought to be afforded equal protection.
+ - At a point in every person’s life, one has to look deeply into the mirror of one’s soul and decide one’s unique truth in the world, not as we may want to see it or hope to see it, but as it is.
+ - Of all my false identities, the strategies in my campaign to be accepted, being a sworn Republican is the hardest to explain. In my later political life, I can only be described as a Kennedy Democrat, eager to pursue equitable treatment for the least fortunate.
+ - I engaged in an adult consensual affair with another man.
+ - Because of an adulterous affair I shall leave office in November.
+ - I’ve never been much for self-revelation. In two decades of public life, I always approached the limelight with extreme caution. Not that I kept my personal life off-limits; rather, the personal life I put on display was a blend of fact and fiction.
+ - I have two extraordinary daughters, who, I can say proudly, are doing very well in school and in piano. Daughters are a father’s joy.
+ - I am resigning because my secret leaves the governor’s office vulnerable.
+ - But being in the closet uniquely assisted me in politics. From my first run for the state legislature until my election as governor, all too often I was not leading but following my best guess at public opinion.
+ - More than anything else I recall being, or trying very deliberately to be, a perfect child. Not a Goody Two-shoes, but a kid who did good, who worked hard and met every expectation. I strove to achieve in the excessive way that psychotherapists tend to regard with concern.
+ - At different points in my life, I had grappled with the idea of going into the priesthood – in high school or law school. Where it ends, I’m not quite sure. Perhaps it ends with death, grappling with one’s spirituality.
+ - I’m grateful for my brokenness. I’m grateful for my humility.
+ - To be able to love and live in freedom means to be able to make godly decisions. To make godly decisions we have to surrender our egos and all the falsity and shame that goes with it.
+ - As I climbed the electoral ladder – from state assemblyman to mayor of Woodbridge and finally to governor of New Jersey – political compromises came easy to me because I’d learned how to keep a part of myself innocent of them.
+ - I’m on the board of a national group called Faith in America. It’s designed to fight religious-based bigotry.
+
+25 quotes

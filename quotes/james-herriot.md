@@ -1,0 +1,27 @@
+ - If having a soul means being able to feel love and loyalty and gratitude, then animals are better off than a lot of humans.
+ - A farmer once told me one of the greatest luxuries of his life was to wake up early only to go back to sleep again.
+ - If you decide to become a veterinary surgeon you will never grow rich, but you will have a life of endless interest and variety.
+ - No animal is a better judge of comfort than a cat...
+ - Animals are unpredictable things, and so our life is unpredictable. It’s a long tale of little triumphs and disasters and you’ve got to really like it to stick it.
+ - And the peace which I always found in the silence and emptiness of the moors filled me utterly.
+ - I wish people would realize that animals are totally dependent on us, helpless, like children, a trust that is put upon us.
+ - I am never at my best in the early morning, especially a cold morning in the Yorkshire spring with a piercing March wind sweeping down from the fells, finding its way inside my clothing, nipping at my nose and ears.
+ - I was helped by having a verbatim memory of what happened years ago, even if I can’t remember what happened a couple of days ago.
+ - Cats are connoisseurs of comfort.
+ - I have felt cats rubbing their faces against mine and touching my cheek with claws carefully sheathed. These things, to me, are expressions of love.
+ - I love writing about my job because I loved it, and it was a particularly interesting one when I was a young man. It was like holidays with pay to me.
+ - I hope to make people realize how totally helpless animals are, how dependent on us, trusting as a child must that we will be kind and take care of their needs.
+ - For years I used to bore my wife over lunch with stories about funny incidents.
+ - That quotation about not having time to stand and stare has never applied to me. I seem to have spent a good part of my life – probably too much – in just standing and staring and I was at it again this morning.
+ - They can’t find my house now because I keep it very quiet where I live.
+ - I could do terrible things to people who dump unwanted animals by the roadside.
+ - At times it seemed unfair that I should be paid for my work; for driving out in the early morning with the fields glittering under the first pale sunshine and the wisps of mist still hanging on the high tops.
+ - Dogs like to obey. It gives them security.
+ - If I had been a little dog I’d have gone leaping and gambolling around the room wagging my tail furiously.
+ - I think it was the fact that I liked it so much that made the writing just come out of me automatically.
+ - If a farmer calls me to a sick animal, he couldn’t care less if I were George Bernard Shaw.
+ - There was no last animal I treated. When young farm lads started to help me over the gate into a field or a pigpen, to make sure the old fellow wouldn’t fall, I started to consider retiring.
+ - I will write another book if I feel like it.
+ - I became a connoisseur of that nasty thud a manuscript makes when it comes through the letter box.
+
+25 quotes

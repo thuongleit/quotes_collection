@@ -1,0 +1,27 @@
+ - Don’t get too comfortable. We are here for a certain period of time, and how much of your life are you gonna choose to spend with distractions? How do you make your choices? What is important?
+ - You know, what’s interesting is, being your own self is kind of a blur.
+ - It doesn’t matter if your lead character is good or bad. He just has to be interesting, and he has to be good at what he does.
+ - Hope comes in many forms.
+ - Cancer don’t respect nothing.
+ - People get so tired of the ’60s.
+ - People have said that I said I hate television. I never did say that. What I said was that I hated a lot of stuff that was on television. It’s nothing about the medium itself.
+ - Psychology doesn’t address the soul; that’s something else.
+ - When I was a kid, I used to watch ‘Laurel and Hardy’ with my cousins all the time. I still think they’re extremely funny and so surreal.
+ - I’m the number-one fan of gangster movies.
+ - The Sopranos was the first show about the life of the writer. I never made any secret about the fact that it was about my mother.
+ - Television is a prisoner of dialogue and steady-cam. People walk down a hall, and the camera follows them around a corner.
+ - But cheer up – we could be selling tobacco. It’s not like software kills people if used as intended.
+ - I think storytelling is all about children. We human beings love to hear stories being told – and it first happens when you’re a kid.
+ - I think for anyone who follows the ‘artistic life,’ a certain amount of selfishness and self-involvement is part of the package. You’re probably already disregarding a certain material life you could have.
+ - Hitchcock was one of the few people in Hollywood who had a brand. Every movie he made was an Alfred Hitchcock movie, couldn’t have been anyone else.
+ - There’s something very dreamlike about film, and I will always be very fascinated by that, and I’m always tempted to go in that direction.
+ - I would imagine that the more time you spend talking to another person, the more you’re going to lie to them. So if you spend a lot of time with your relations, you’re probably lying a lot to them.
+ - People who need therapy are in Afghanistan. They’ve seen horrible human cruelty and degradation, but they don’t have time or the money for therapy.
+ - Network television is all talk. I think there should be visuals on a show, some sense of mystery to it, connections that don’t add up.
+ - The thing about movies now is in a way what it always was: The screen is huge and now the sound systems are too. And you never get that with TV. Even with a home system, it’s never the same.
+ - I think people are intolerant of artists.
+ - I really like comedy. There’s always a choice, when you’re writing: you can either go for the joke or you can go for the story, the important stuff.
+ - I had a prior deal in place to do a miniseries for HBO, so I’m not done with TV. But I basically want to stay in movies.
+ - I have a huge editor in my head who’s always making me miserable. But sometimes, I try to let my unconscious act out.
+
+25 quotes

@@ -1,0 +1,48 @@
+ - Matt Bomer and I went to Carnegie Mellon for drama together.
+ - When I’m training for ‘True Blood,’ I don’t eat any sugar except for some fruit here and there. So it’s no sugar, no bread, no real carbs all day.
+ - I grew up a misfit. I never fit in.
+ - Sometimes people say things they don’t mean, and you just have to let it go.
+ - I wanted to work with somebody who seemed like he came from the same place that I did, which is that total immersion and learning about the world around, from this very gritty, dark side, and had access to that.
+ - I train like a pro-athlete, not like an actor who’s just trying to look pretty.
+ - I mean, everyone walks into the gym on day one skinny or fat. Arnold Schwarzenegger walked into the gym skinny at 15 or 16, and I was that way, too.
+ - I was happier going back to my roots: training like men do in my hometown of Pittsburgh. Back home the guys in the gyms don’t lift to look good; they’re lifting to lift. They do it because they want to squat more and bench more.
+ - I started working at clubs when I was sixteen, which is young. I would not want my kid doing that, but I did, and that’s how it went.
+ - I play characters who are comfortable naked, but that’s something you work up to. I did a play off-Broadway in New York when I was in college. It was full-frontal nudity. It’s nerve-racking.
+ - I went to a school that’s predominantly computer science and engineering. So, there’s a real shortage of hot girls, let’s say.
+ - I’m an average guy. I wasn’t the dude who was gonna sit at the stage and dump all my paycheck into the girl.
+ - The reason I couldn’t pay my rent was because I was one of the worst drinkers you’d ever seen in your life.
+ - Well, if I hadn’t have been an actor I would have gone on to play college sports.
+ - Every weekend the drama department would have parties. The 20 hot girls on campus? All of them were in the drama dept. So we’d have somebody standing guard at the door to keep all the computer science guys out. We had to guard our women at all times.
+ - The best love advice I’ve ever received is probably, ‘I’m not leaving the relationship; I’m just leaving the house.’
+ - I actually met Carrie Fisher a couple of years ago. When I told her that she was my first crush, she insisted that we get married and have a reality show about it. I’m lucky to have made it out of that weekend without getting married.
+ - What’s funny is that male strippers don’t wear thongs anymore. They wear flat backs.
+ - I was kind of a dark kid. I loved Halloween, and I loved vampires and the black and white old monster movies.
+ - Doing theater is like walking a tightrope without a net.
+ - So listen, man, “weird” is my middle name. I’m ready for anything. The weirder, the better.
+ - I had a fan make me a silver wolf-tooth necklace. That was really great.
+ - It’s tricky when I’m constantly traveling and adjusting to new time zones and trying to also keep up with my workouts.
+ - I wake up at the same time every day to get to the gym.
+ - Acting was my first love.
+ - Also, to be honest, my dad wanted me to be an athlete. And I think all sons want to prove something to their dad. So now, aged 35, I want to see what I can achieve physically.
+ - Women do a lot of uncomfortable things for men – and I appreciate it all. I appreciate high heels. I appreciate thongs.
+ - I don’t think there’s any such thing as male objectification.
+ - I grew up a big comic book reader, as a kid, and I love the whole fanboy crowd.
+ - I quit because that thing inside of me that was driving me to drink that way was causing me so much pain that I was starting to get afraid for my own life, and my own health. It wasn’t necessarily one instance. It was a lot that had piled up.
+ - I think you can be athletic and intellectual at the same time.
+ - I mean ‘One Tree Hill’ had some rabid fans – you’d be surprised – they’re almost in a class of their own.
+ - We’ve all had those phone conversations. Things are heated, you’re in a position where you’re gonna say something nasty. Instead, you say, “Oh, I’ve got that thing in the oven.” Lie. Get off the phone. Don’t perpetuate a bad situation.
+ - Once you become famous, being single becomes a liability.
+ - When I first got out of drama school, my original manager tried to get me to change my name because people were having trouble spelling it and saying it.
+ - When I’d be out-and-about at a club and the music would come on, I was never the guy that was gonna dance. But after Magic Mike – I have like two or three go-to moves. That’s what Magic Mike gave me.
+ - I mean, I feel like I’ve been pretending I was a werewolf since I was a little kid.
+ - I come from classical theater training and when I went to college it was a bunch of kids that were hand-picked from around the world. I was around such brilliant young minds and incredible artists with incredible teachers.
+ - Acting was the only place that I ever felt like I belonged so went for it with everything I had.
+ - I’m a nerd. But I’m not that hard-core.
+ - I wouldn’t tell anyone to study werewolves – I studied wolves, how they moved, their tendencies and sensibilities.
+ - American comedies especially are all about these men being browbeaten by their wives and it’s impossible for me to watch.
+ - I screen tested for Training Day many years ago, which was David Ayer’s script with Antoine Fuqua directing.
+ - I was single long enough, and when I was, it wasn’t about putting notches in the bedpost.
+ - I watched so many comic book movies where the actors weren’t as built as the characters in the book. It made me mad because they didn’t look right.
+ - I’ve always been an athletic guy, but the extent to which I go for ‘True Blood’ or for ‘Magic Mike’ is because of the role that I’m playing.
+
+46 quotes

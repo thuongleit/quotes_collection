@@ -1,0 +1,32 @@
+ - But the human spirit is resilient. God made us so. He gave us the ability to forgive. To leave our past behind. To look forward instead of back.
+ - It’s not what happens to us that defines us. It’s what we choose to do with what happens to us that defines us.
+ - Go to the ant, thou sluggard, learn to live, and by her busy ways, reform thy own.
+ - I feel helpless, hopeless, too low to call out, too weak to think. Impotent tears dribble down.
+ - Life is a journey for us all. We all face trials. We all have ups and downs. All of us are human. But we are also the masters of our fate. We are the ones who decide how we are going to react to life.
+ - Sleep tries to seduce me by promising a more reasonable tomorrow.
+ - Knowing it can always get worse, I try to be grateful for whatever good I have.
+ - We can choose to allow our experiences to hold us back, and to not allow us to become great or achieve greatness in this life. Or we can allow our experiences to push us forward, to make us grateful for every day we have and to be all the more thankful for those who are around us.
+ - I have learned to smoke because I need something to hold onto.
+ - You will always have value and nothing can change that.
+ - There was a point that I stopped crying. It’s not just because I didn’t feel pain anymore, not because I didn’t feel sorrow. It was just to keep going. I mean, it just was to survive, to live.
+ - O I know they make war because they want peace; they hate so that they may live; and they destroy the present to make the world safe for the future. When have they not done and said they did it for that?
+ - I am possessed by love and have no options.
+ - Music is the unspoken language that can convey feelings more accurately than talking ever could.
+ - But those with shattered souls find it very difficult to speak.
+ - How can I be kind? How can I find bird-relief in the nest-building of day-to-day? Necessity supplies no velvet wing with which to escape. I am indeed and mortally pierced with the seeds of love.
+ - It’s because I’m only interested in the big things that I’m not interested in politics.
+ - The long days seduce all thought away, and we lie like the lizards in the sun, postponing our lives indefinitely.
+ - Work is the only only only remedy for life: for happiness, for interest, for stability, for security. Hard, willed work. Oh work!
+ - Always that tyrannical love reaches out. Soft words shrivel me like quicklime. She will not allow me to be cold, hungry. She will insist that I take her own coat, her own food.
+ - April 19 And now it is spring. Birds are singing. Wistful notes and jubilant. And bare streets and no need for coats, and skipping ropes and bicycles and a thin new moon.
+ - I am overrun, infested with a menagerie of desires.
+ - I must spin good ghosts out of my hope to oppose the hordes at my window. If those who look in see me condescend to barricade the door, they will know too much and crowd in to overcome me.
+ - Vanity is a vital aid to nature: completely and absolutely necessary to life. It is one of nature’s ways to bind you to the earth.
+ - You have to have short fingernails or they’d just break off, and you can’t wear red polish – it looks like your fingers are bleeding.
+ - All time is now, and time can do no better. Nothing can ever be more now than now, and before this nothing was.
+ - You have to be slightly blind to believe in any cause.
+ - Yesterday from my office window I saw a crippled girl negotiating her way across the street, her shoulders squarely braced. At each jerky movement her hair flew back like an annunciatory angel, and I saw she was the only dancer on the street.
+ - If I had my wilderness, nature could be my lover. What can I do in the paved streets for my thirsty roots? I waste time. I encourage fools. I slip the vital hours into penny slot machines – to pass time, to start my stuck wheels only love can oil.
+ - What you forget is that plants themselves want to live as much as you want them to. More.
+
+30 quotes

@@ -1,0 +1,133 @@
+ - If you care about what others think of you, then you will always be their slave.
+ - And loss of control is always the source of fear. It is also, however, always the source of change.
+ - Live and let live, do not judge, take life as it comes and deal with it, everything will be okay.
+ - I love the process of being alone in a room.
+ - But all good things come to an end, often a sad angry miserable end. The cause for such an end can usually be whittled down to one of three things: money, sickness, love lost.
+ - The past doesn’t matter. People cling to it because it allows them to ignore the present.
+ - When I see you, the World stops. It stops and all that exists for me is you and my eyes staring at you. There’s nothing else. No noise, no other people, no thoughts or worries, no yesterday, no tomorrow. The World just stops, and it is a beautiful place, and there is only you.
+ - Sometimes skulls are thick. Sometimes hearts are vacant. Sometimes words don’t work.
+ - There is no fear. Absolutely no fear. When one lives without fear, one cannot be broken. When one lives with fear one is broken before one begins to live.
+ - Be patient and wait. Your mud will settle. Your water will be clear.
+ - A miracle is changing someone’s life. Freeing them from whatever bonds them. Giving them the gift of being able to live the way they dream of living.
+ - I turn and I slowly walk away and I don’t look back. It has always been a fault of mine, but it is the way I am. I never look back. Never.
+ - The wounds that never heal can only be mourned alone.
+ - Not everyone who works hard makes their dream come true. You need luck and hard work and being in the right place at the right time but I still very much believe it’s possible.
+ - Practice not wanting, desiring, judging, doing, fighting, knowing. Practice just being. Everything will fall into place.
+ - Be strong. Live honorably and with dignity. When you don’t think you can, hold on.
+ - I’ve been alone my whole life, I can’t do it anymore.
+ - I am essentially optimistic. Being alive is incredible. Life is extraordinary and beautiful. It can be hard and sad and terrifying, but it’s all we’ve got.
+ - The feeling of arms around me, of love in my heart, it was more powerful than any of the negativity I knew was existing in the world for me. That feeling of love killed it all.
+ - To write a damn good thriller, you need a killer attitude.
+ - I think men who can cry are strong men.
+ - The Young Man came to the Old Man seeking counsel. I broke something, Old Man. How badly is it broken? It’s in a million little pieces. I’m afraid I can’t help you. Why? There’s nothing you can do. Why? It can’t be fixed. Why? It’s broken beyond repair. It’s in a million little pieces.
+ - Trauma is survivable, but often not much more. It kills you while allowing you to still live.
+ - Pain is the feeling. Suffering is the effect the pain inflicts. If one can endure pain, one can live without suffering. If one can withstand pain, one can withstand anything. If one can learn to control pain, one can learn to control oneself.
+ - I will not allow people to impose rules on me that don’t make sense to me. And I live and work very much outside the literary world and the literary system. What they think and what they believe and what their rules are mean nothing to me.
+ - I am aware that the battle I am fighting is a petty one, but I am also aware that in order to win that which is great, you must first win that which is small.
+ - We know have the power of God in many ways: the atomic bomb, the ability to create life in a test tube, cloning, artificial intelligence.
+ - I wanted to be a writer that had an impact. I wanted, and still I say the same thing, I want to write books that change people’s lives, change how we think and live and read and write. I wanna write books that are read in 50 or 100 years.
+ - The greatest rules of dramatic writing are conflict, conflict, conflict.
+ - I think of how and why and what happened and the thoughts come easily, but the answers don’t.
+ - I’m tired of making people sad and I’m tired of disappointing them and I’m tired of seeing them break. I have seen this too many times. He will be the last.
+ - I feel strong. Not strong enough to face myself, but strong enough to keep going.
+ - Words can’t say this. The one word love means too little for what it is. It means everything and that is still not enough.
+ - Are we biology or God or something higher? I know my heart beats and I listen to it. The beat is biology, but what is the song?
+ - Even a second of freedom is worth more than a lifetime of bondage.
+ - People don’t want to accept the responsibility for their own weakness, so they place the blame on something that they’re not responsible for, like disease or genetics.
+ - I don’t care what people come at me with. People have come at me with everything you could imagine. I could care less about that.
+ - Everything I know and I am and I have seen felt done past present past now then before now seen felt done hurt felt focus into a something beyond words beyond beyond beyond and it speaks now and it says. Stay. Fight. Live. Take it.
+ - When something is staring you in the face in your life and you see it with your own two eyes and feel it within your heart only a fool doesn’t believe it to be true.
+ - I listen to the tick of an unseen clock marking moments of time long passed...
+ - My wife says I’m only comfortable when there’s a fight. And it’s true. The thing that motivates me is struggle.
+ - Its not just a smile of momentary happiness. When it disappears from my face, it will stay with me.
+ - The best stories are universal stories that have been told for as long as humanity has existed it’s just figuring out new ways to do it, with language, with structure. And so I’m always trying to do that.
+ - And even though people try to pretend that pain doesn’t do anything to them, none of us can really handle it. Everything bad we do in our life is because of pain of some kind.
+ - The one word love means too little for what it is. It doesn’t communicate even a fraction of the feelings involved. Love. The word is not enough for what it is. Love. Love.
+ - Let things be, let yourself be, let everything be and accept it as it is. Nothing more. Nothing less.
+ - I often think of death. True. Suicide is a reasonable option. True. My sins are unpardonable. I stare at the question. My sins are unpardonable. I stare at the question. My sins are unpardonable. I leave it blank.
+ - I just think it’s a great world to tell stories in, to tell cool stories: money, sex, fame, and scandal. Those are great subject matters to work with.
+ - She made me feel better than I have ever felt, better than I imagined I could feel, and it scared me, it scared me to the point of paralysis.
+ - I’m trying to influence the next generation or two generations or three generations behind me. That’s a big ambition of mine.
+ - I regretted making a comment about Dave Eggers. I’ve never said anything about McSweeneys except that I admire what it is, and I think it’s great that they keep people interested in literature.
+ - There are places from which you cannot return. There is damage that can be irreparable.
+ - Love is love. It doesn’t matter how or who you love. I don’t believe the messiah would condemn gay men and women.
+ - What someone calls my books is irrelevant to me. I consider them works of art and rules and categories and labels mean nothing.
+ - And as ridiculous as it may sound, sometimes all any of us needs in life is for someone to hold our hand and walk next to us.
+ - Life, not death, is the great mystery you must confront.
+ - When I started writing ‘A Million Little Pieces,’ I felt like it was the right story with the style I had been looking for, and I just kept going.
+ - One of the beautiful and terrible things about America is you can go there and still be whatever you want, if you bust your ass and you have some luck.
+ - Lying became part of my life. I lied if I needed to lie to get something or get out of something.
+ - I can run fast when I want to run fast, and I’ve always been good at destroying things.
+ - Fear, he said, ran all of our lives. Fear, he said, after religion, was the most destructive force in the world.
+ - In Lilly’s eyes her beautiful clear water eyes there is what I have sought and never found, wanted and never had, hoped for and never discovered. Love.
+ - You should at all times be showing a well-motivated character overcoming obstacles in pursuit of a goal.
+ - A contest was held in 1994 to rename the Los Angeles Convention and Exhibition Center after an extensive renovation and expansion. The winning name, chosen from over ten thousand entries, was the Los Angeles Convention Center.
+ - They had dreams but they called them dreams because they were unrelated to reality, they were a distant unknown, an impossibility, they would never come true.
+ - Every year, at 8:00 PM on the second Saturday of July, hundreds of people gather along a section of Los Angeles rail track to drop their pants and moon passing passenger trains.
+ - I go to my Room and I drink and I smoke some cigarettes and I think about her. I drink and I smoke and I think about her and at a certain point blackness comes and my memory fails me.
+ - I would like to be soft and warm. I would be terrified to be that way. I could be hurt if I were soft and warm. I could be hurt by something other than myself. It is harder to be soft than it is to be hard. I could be hurt by something other than myself.
+ - I’m a writer. I never expected to be recognised on the street. I never expected to get that kind of coverage, good or bad. I never expected to sell as many books as I have.
+ - I don’t want to walk in the middle. I want people to read what I write and feel strongly about it. If, at some point, whatever I am doing is failing to elicit a response, whether it’s very positive or very negative, then I am going to stop doing it.
+ - In life we often look to others for simple, but difficult answers, despite the fact that we have those answers ourselves.
+ - Ive never had any interest at all in being a journalist or writing some sort of historically accurate autobiography.
+ - Part of me still loves. More of me doesn’t.
+ - I think as an artist or a writer it’s OK to want to control your own work.
+ - The point of what I do is that it doesn’t really matter what a book or a story is as long it moves you, informs you, challenges you, entertains you, or changes you.
+ - When I was a screenwriter, I was doing it for mercenary reasons.
+ - Most of the time, it’s not the concept, but the execution of craft that counts.
+ - I hope nobody took the Razzle Dazzle Rose.
+ - You don’t have to follow anybody’s rules.
+ - When I go to an art gallery and stand in front of a painting, I don’t want someone telling me what I should be seeing or thinking; I want to feel whatever I feel, see whatever I see, and figure out what I figure out.
+ - For the worst things of our lives, it is sometimes the best way, to never speak of them again.
+ - I hadn’t learned yet that everybody’s locked up some way or other. That’s how life is we’re all imprisoned by something.
+ - Most books aren’t pure nonfiction or fiction.
+ - The promise of eternal life makes people forsake the life they’re given.
+ - To live with angels and chase their dreams.
+ - You only live once, buy Picassos whenever possible.
+ - Love only brought me lonliness and horror.
+ - I don’t write with an outline. I don’t often know what I’m going to do as I’m writing. And I do everything by feel and by instinct.
+ - The afternoon and the early evening slide by in a lidded daze where the ability to think in any identifiable way disappears and where every moment seems to be an eternity.
+ - I’m pretty good at compartmentalizing things and not allowing things outside of myself to distract me or bother me or affect me in any way.
+ - We did what our people do all the time, we told ourselves something we did was right and we found a way to justify it, even though we knew it was wrong.
+ - People call me all sorts of things. I don’t even care what they call me.
+ - What’s crazy is living your life according to some book written by someone who couldn’t imagine what your life would be like.
+ - I’m writing books. They’re still a mix of fact and fiction and will continue to be. I think it’s an interesting place to work.
+ - Being an unpublished novelist has about as much social acceptability as being a shopping bag lady.
+ - If I was gonna write a book that was true, and I was gonna write a book that was honest, then I was gonna have to write about myself in very, very negative ways.
+ - I’m just going to write my books and do my work and release it. Let the world decide what it is, and if it’s any good or not.
+ - I say to myself if you believe deeply in your heart you must defy, and if you are willing to pay for your defiance, you must always do it, even though the pain may be much. Too many times in our lives we do not do it, and we pay even more...
+ - To say that you can’t see echoes of the past in what I do would be absurd. Everything that has preceded me has affected me.
+ - Being a writer now is about so much more than writing. There’s publishing, touring, marketing, web presence.
+ - We live in a world that’s very fast, where we get bombarded with huge amounts of information very quickly, and I have tried to tailor my voice to the times, which I think, writers, over the course of history – many have always done.
+ - I always wanted to be the outlaw. And that’s to a certain extent how I’ve lived.
+ - I meet a third man he’s an old man he trips in the street he falls and I help him up, walk him to the curb. He shakes my hand says keep the faith, young man. I ask him what he means, he says keep running and don’t let them catch you.
+ - Stay. Fight. Live. Take it. Cry. Cry. Cry.
+ - There are never words for the strongest of our feelings. There is just the pain that we cannot share. Pain we must all feel alone.
+ - He pulled out turned west and started driving towards the glow it was thousands of miles away, he started driving towards the glow.
+ - Some people think memoirs should be held to a perfect journalistic standard. Some people don’t. Obviously I don’t. My goal was never to create or to write a perfect journalistic standard of my life. It was always to be as literature.
+ - I look at pastries and cakes, tarts and pies. My body craves sugar, always craves sugar. Years of alcohalism and the high level of sugar in alcohal created the craving, which I feed with candy and soda.
+ - I’m married, I have a couple kids, I’ve traveled a lot, I’ve done book tours a lot, I’m happy to stay home and take my kids to school and come to the office.
+ - I try to write books that are different from the books I’ve already written. I think one of the thing I really try to do is reinvent how a novel can be written.
+ - I always wanted to write a book about LA, a big ambitious book. Nobody had ever really done it with LA- treating the city seriously as a major economic and cultural power, as the embodiment of 21st century America.
+ - She feels and she cries. It is to be admired.
+ - But love is different for every person. For some it’s hate, for some it’s joy, for some it’s fear, for some it’s jealousy, for some it’s torture, for some it’s peace. For some it’s everything.
+ - But we are what we are, and humans will always hate.
+ - That’s what ever great writer, I believe, has done over the course of time – is they’ve figured out new ways of telling the same stories.
+ - I want as much time in the darkness as I can possibly have. The darkness provides cover, the darkness provides places to hide and the darkness provides comfort. Darkness usually comes around dinner, but dinner would be too obvious.
+ - Be content with what you have and take joy in the way things are. When you realize you have all you need, the World belongs to you.
+ - Take the risk and do whatever you can do and try not to get caught. If you do get caught, do it again.
+ - Sometimes I really want to believe in God. I really admire, in a lot of ways, people who have faith. I think it must be a beautiful thing to believe.
+ - Leonard asks me if there’s anything I need to know before he dies, I think about it for a minute, turn to him, say what’s the meaning of life, Leonard? He laughs, says that’s an easy one, my son, it’s whatever you want it to be.
+ - More than anything, all I have ever wanted is to be close to someone. More than anything, all I have ever wanted is to feel as if i wasn’t alone.
+ - It’s been great getting better with you.
+ - All of us started normal. All of us started out as functioning human beings with the potential to do almost anything we wanted, but somewhere along the paths of our lives, we got lost.
+ - There is, though, nothing that prepares us for the worst things in our life. There is nothing you can do to stop the shock, or buffer the pain.
+ - Laughing and Love. They are both drugs.
+ - I’ve always said I’m more influenced in what I do by artists, and how they work, how they think, and the freedom they’re given to work and think, than I really am by other writers.
+ - But that’s part of faith. Believing and knowing despite what other people say, and despite what the world might think of your beliefs.
+ - Faith is the fool’s excuse.
+ - It’s cold and it’s winter and the world has gone to sleep.
+ - There’s something, I think, that gets lost when we write something – something gets lost in the translation. So I speak everything out, and it’s more important how it sounds. And applying that to more formal aspects of writing.
+ - For years I supported capital punishment, but I have come to believe that our criminal justice system is incapable of adequately distinguishing between the innocent and guilty. It is reprehensible and immoral to gamble with life and death.
+
+131 quotes

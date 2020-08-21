@@ -1,0 +1,27 @@
+ - I think when you start to get afraid, it’s time to leave.
+ - There is nothing I would change – to change it I would have had to write a totally different book.
+ - If we can’t understand the Afghan family, we can’t understand Afghanistan.
+ - The judgment means a lot. As a journalist being accused of invading someone’s privacy, there is always a risk that it will stick to your name.
+ - The family is the single most important institution in Afghan culture. It is described in the countrys constitution as the fundamental pillar of society.
+ - There is no journalist without opinions, and there’s no real objectivity, but we can strive toward it.
+ - When I decided to stay in Iraq, I decided to take the fear out of my body and put it into a freezer.
+ - Being a war correspondent, and having covered four wars, I know that wars very seldom solve things.
+ - I’m trying to see my own country with fresh eyes.
+ - I was thinking, there are 5 million people, and I am just one of those 5 million. In the build-up to the war you see children playing in the street, and you think, ah, I’m going to be okay.
+ - I always try to describe the situation just as it is. I try to find sentences that I believe tell the story best. Even my articles are more literary than ordinary news stories.
+ - If I lose, then I have to accept that my way of writing books is not the way society says it’s okay to write.
+ - Even in a war, someone has to take care of daily life. Someone has to feed and clothe the children.
+ - I will get a loan and pay the money the court asks for. But I will not lay down my writing and I still say this was an important book to write.
+ - We have believing in this innocent feeling of nothing will ever happen to us, because all catastrophes always broad and happening to anyone else.
+ - As a woman, you accept the situation, adapt to it, and do your best, whereas men would choose violence.
+ - If I leave, reality will devour me. Then they will all really be dead.
+ - I would like my book to give people insight to the war before and after, but I don’t think anyone could read my book and suddenly make up her mind about the war. I want to write for everybody.
+ - I believe the consequences of a war are so harsh that it should be always the last resort.
+ - We don’t grow up in vacuums. We grow up in societies.
+ - There are personal reasons, psychological reasons, but there could also be political reasons for becoming a terrorist.
+ - If you’ve lived in a dictatorship for thirty years, you’re used to people lying to you.
+ - As a war correspondent, you have to weigh the risk you run against the story you can get.
+ - If my name had not been cleared, it would have been difficult, perhaps impossible, to continue as a journalist.
+ - It was very difficult to write about my own country, because I have always been the outsider looking in.
+
+25 quotes

@@ -1,0 +1,26 @@
+ - Whatsoever your hand finds to do, do it gladly. Because there is no work, love, knowledge, or wisdom in the grave.
+ - I run; I am a coward at heart. I swear, when I smell violence or aggression the coward comes out in me. I have no desire to fight anybody except myself.
+ - Maybe you’ll end up like me, a hobo with a shotgun.
+ - I’ve seen attack ships on fire on the shoulder of Orion, I’ve seen moon beams glisten at the Ten hauser gate, all those memories, lost like tears in the rain...
+ - I hate acting when I see it. I don’t want to feel it, I don’t want to see it, I want to be taken away with the story – I don’t want the actor’s ego in front of me. That’s what I try to live when I do the work.
+ - By not going to school I learned that the world is a beautiful place and needs to be discovered.
+ - Most of the real bad guys in the world are people like you and me; they’re not stupid, and you can’t smell their horns.
+ - People think if you’re a movie star, you’re the boss. But first of all, I’m not a movie star, I’m in a very different place. I’m not looking to do what I want – I am looking for what we can find. It’s a creative process.
+ - I’ve seen things you people wouldn’t believe...
+ - I hate guns, I think they’re the worst thing ever invented.
+ - Good guy’ or ‘bad guy’, hero or anti hero; doesn’t matter to me, what role I play, only the character have something magical.
+ - The funny thing is most people don’t approach me because they are scared, and that’s fine, I want to keep it that way. But the thing is if you’re not scared or get over it you learn that sometimes what you’re scared of is really what you shouldn’t be scared of.
+ - I don’t know what my appeal is. I can see I’ve got blue eyes and don’t look like the Hunchback of Notre Dame but I can’t understand the fuss.
+ - Then he releases a dove and dies while sitting in a rain storm.
+ - If you’ve done what you need to do, you need to go bury yourself, because what else are you going to do? I think that that’s where life stops.
+ - Martial arts is like dance. It’s so beautiful and what I love about the martial arts mostly is that what it basically says is you take their energy and you redirect it. Then if you need to, use it on them. That whole thing about redirecting energy I love.
+ - I don’t make the decision about what percentage of good guy or bad guy I play. For some reason, if I put my energy into the bad guy, that scares people. It’s magic.
+ - I was convinced that acting was for fools. I was on the stage when I was eight with my father, he was playing one of those Greek blind guys that sees things and warns people, whilst I was in a blue skirt. I think there were 5,000 people in the theatre, it was ridiculous.
+ - It took me a long time to find out that I was born to be an actor. It was the last thing on my list, although my list was very small. I didn’t know what to do. But kids weren’t supposed to know what to do back then; we were all cute and we’d find out what we’d do later in life.
+ - You really can’t say enough about ‘Blade Runner.’ For that movie to have such a long life – you can’t describe what a beautiful feeling that is. Initially, the movie was out of theaters in something like two weeks. But the people that wanted it back – the fans – they really saved it.
+ - Well, of course, every actor’s limited, and I am the first one to admit it, in all honesty, when I think that I’ve hit the wall a bit. I’m not ashamed at all, I think it’s a process that you have to go through. That’s how you learn.
+ - I think it’s dynamite, the way my career has just kept moving, even when people didn’t know it did. I made such interesting films, but, yeah, they’re not necessarily the big movies that go to the supermarket. I don’t need those movies, because I don’t wanna do them.
+ - I think I’m an actor. You can hire me. I can do a good job. But you also have to get lucky now and then. Every film-maker knows how hard it is to do a good film. You have to just make many, and see how lucky you get.
+ - I make more movies than I see.
+
+24 quotes

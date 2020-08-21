@@ -1,0 +1,94 @@
+ - Prevention is the daughter of intelligence.
+ - The flowers do fade, and wanton fields To wayward winter reckoning yields; A honey tongue, a heart of gall, Is fancy’s spring, but sorrow’s fall.
+ - It is not truth, but opinion that can travel the world without a passport.
+ - Youth is the opportunity to do something and to be somebody.
+ - A man must first govern himself ere he is fit to govern a family; and his family ere he be fit to bear the government of the commonwealth.
+ - But true love is a durable fire, In the mind ever burning, Never sick, never old, never dead, From itself never turning.
+ - Give my scallop-shell of quiet, My staff of faith to walk upon, My scrip of joy, immortal diet, My bottle of salvation, My gown of glory, hope’s true gage; And thus I’ll take my pilgrimage.
+ - But from this earth, this grave, this dust, My God shall raise me up, I trust.
+ - Silence in love betrays more woe – Than words though ne’er so witty; A beggar that is dumb, you know, may challenge double pity.
+ - Talking much is a sign of vanity, for the one who is lavish with words is cheap in deeds.
+ - I wish I loved the Human Race; I wish I loved its silly face; I wish I liked the way it walks; I wish I liked the way it talks; And when I’m introduced to one I wish I thought What Jolly Fun!
+ - Whosoever in writing a modern history shall follow the truth too near the heels it may haply strike out his teeth.
+ - Whoever commands the sea, commands the trade; whosoever commands the trade of the world commands the riches of the world, and consequently the world itself.
+ - A wandering minstrel I A thing of shreds and patches Of ballads, songs and snatches And dreamy lullaby!
+ - To live thy better, let thy worst thoughts die.
+ - Expressive glances Shall be our lances And pops of Sillery Our light artillery.
+ - So the heart be right, it is no matter which way the head lieth.
+ - I can’t write a book commensurate with Shakespeare, but I can write a book by me.
+ - What is our life? A play of passion. Our mirth the music of division. Our mother’s wombs the tyring houses be, Where we are drest for this short Comedy.
+ - The first draught serveth for health, the second for pleasure, the third for shame, the fourth for madness.
+ - I am the monarch of the sea, The Ruler of the Queen’s Navee, Whose praise Great Britain loudly chants And we are his sisters, and his cousins, and his aunts!
+ - No one can take less pains than to hold his tongue. Hear much, and speak little; for the tongue is the instrument of the greatest good and greatest evil that is done in the world.
+ - There is nothing exempt from the peril of mutation; the earth, heavens, and whole world is thereunto subject.
+ - In a letter to a friend the thought is often unimportant, and the feeling, if it be only a desire to entertain him, every thing.
+ - Fain would I climb, yet fear I to fall.
+ - Take special care that thou never trust any friend or servant with any matter that may endanger thine estate; for so shalt thou make thyself a bond-slave to him that thou trustest, and leave thyself always to his mercy.
+ - Men endure the losses that befall them by mere casualty with more patience than the damages they sustain by injustice.
+ - The most divine light only shineth on those minds which are purged from all worldly dross and human uncleanliness.
+ - Flatterers are the worst kind of traitors, for they will strengthen thy imperfections, encourage thee in all evils, correct thee in nothing, but so shadow and paint thy follies and vices as thou shalt never, by their will, discover good from evil, or vice from virtue.
+ - Oh, doughty sons of Hungary! May all success Attend and bless Your warlike ironmongery!
+ - It is, it is a glorious thing To be a Pirate King.
+ - Historians desiring to write the actions of men, ought to set down the simple truth, and not say anything for love or hatred; also to choose such an opportunity for writing as it may be lawful to think what they will, and write what they think, which is a rare happiness of the time.
+ - This is a sharp medicine, but it is a physician for all diseases and miseries.
+ - Trust few men; above all, keep your follies to yourself.
+ - Except thou desire to hasten thine end, take this for a general rule, that thou never add any artificial heat to thy body by wine or spice.
+ - God is absolutely good; and so, assuredly, the cause of all that is good.
+ - The gain of lying is, not to be trusted of any, nor to be believed when we speak the truth.
+ - War begets quiet, quiet idleness, idleness disorder, disorder ruin; likewise ruin order, order virtue, virtue glory, and good fortune.
+ - Better it were not to live than to live a coward.
+ - But it is hard to know them from friends, they are so obsequious and full of protestations; for a wolf resembles a dog, so doth a flatterer a friend.
+ - Corrupt seeds bring forth corrupt plants.
+ - No mortal thing can bear so high a price, But that with mortal thing it may be bought.
+ - Use your youth so that you may have comfort to remember it when it has forsaken you, and not sigh and grieve at the account thereof.
+ - Above all things, be not made an ass to carry the burdens of other men if any friend desire thee to be his surety, give him a part of what thou has to spare if he presses thee further, he is not thy friend at all.
+ - What dependence can I have on the alleged events of ancient history, when I find such difficulty in ascertaining the truth regarding a matter that has taken place only a few minutes ago, and almost in my own presence!
+ - There is no error which hath not some appearance of probability resembling truth, which, when men who study to be singular find out, straining reason, they then publish to the world matter of contention and jangling.
+ - Remember, that if thou marry for beauty, thou bindest thyself all thy life for that which perchance will neither last nor please thee one year; and when thou hast it, it will be to thee of no price at all; for the desire dieth when it is attained, and the affection perisheth when it is satisfied.
+ - It would be an unspeakable advantage, both to the public and private, if men would consider that great truth, that no man is wise or safe but he that is honest.
+ - Less pains in the world a man cannot take than to bold his tongue.
+ - Even such isTime, which takes in trust Our youth, our joys, and all we have, And pays us but with age and dust, Who in the dark and silent grave When we have wandered all our ways Shuts up the story of our days, And from which earth, and grave, and dust The Lord shall raise me up, I trust.
+ - Hatreds are the cinders of affection.
+ - The difference between a rich man and a poor man is this – the former eats when he pleases, and the latter when he can get it.
+ - All histories do show, and wise politicians do hold it necessary that, for the well-governing of every Commonweal, it behoveth man to presuppose that all men are evil, and will declare themselves so to be when occasion is offered.
+ - Whoso taketh in hand to govern a multitude, either by way of liberty or principality, and cannot assure himself of those persons that are enemies to that enterprise, doth frame a state of short perseverance.
+ - Death, which hateth and destroyeth a man, is believed; God, which hath made him and loves him, is always deferred.
+ - Our bodies are but the anvils of pain and disease and our minds the hives of unnumbered cares.
+ - The necessity of war, which among human actions is the most lawless, hath some kind of affinity with the necessity of law.
+ - It is observed in the course of worldly things, that men’s fortunes are oftener made by their tongues than by their virtues; and more men’s fortunes overthrown thereby than by vices.
+ - There never was a man of solid understanding, whose apprehensions are sober, and by a pensive inspection advised, but that he hath found by an irresistible necessity one true God and everlasting being.
+ - Our shipping and sea service is our best and safest defence as being the only fortification and rampart of England.
+ - Passions are likened best to floods and streams: The shallow murmur, but the deep are dumb.
+ - The bodies of men, munition, and money may justly be called the sinews of war.
+ - Let valour end my life!
+ - An anthology is like all the plums and orange peel picked out of a cake.
+ - It is the nature of men having escaped one extreme, which by force they were constrained long to endure, to run headlong into the other extreme, forgetting that virtue doth always consist in the mean.
+ - It were better for a man to be subject to any vice than to drunkenness; for all other vanities and sins are recovered, but a drunkard will never shake off the delight of beastliness.
+ - Our immortal souls, while righteous, are by God himself beautified with the title of his own image and similitude.
+ - Be advised what thou dost discourse of, and what thou maintainest whether touching religion, state, or vanity; for if thou err in the first, thou shalt be accounted profane; if in the second, dangerous; if in the third, indiscreet and foolish.
+ - Our souls, piercing through the impurity of flesh, behold the highest heaven, and thence bring knowledge to contemplate the ever-during, glory and termless joy.
+ - All men are evil and will declare themselves to be so when occasion is offered.
+ - The longer it possesseth a man the more he will delight in it, and the older he groweth the more he shall be subject to it; for it dulleth the spirits, and destroyeth the body as ivy doth the old tree, or as the worm that engendereth in the kernal of the nut.
+ - Whoso desireth to govern well and securely, it behoveth him to have a vigilant eye to the proceedings of great princes, and to consider seriously of their designs.
+ - The world is but a large prison, out of which some are daily selected for execution.
+ - Who so taketh in hand to frame any state or government ought to presuppose that all men are evil, and at occasions will show themselves so to be.
+ - If thou marry beauty, thou bindest thyself all thy life for that which, perchance, will neither last nor please thee one year.
+ - When a felon’s not engaged in his employment Or maturing his felonious little plans His capacity for innocent enjoyment Is just as great as any honest man’s Ah! When constabulary duty’s to be done A policeman’s lot is not a happy one.
+ - No one is wise or safe, but they that are honest.
+ - The House of Peers, throughout the war, Did nothing in particular, And did it very well: Yet Britain set the world ablaze In good King George’s glorious days!
+ - Hath triumphed over time, which besides it nothing but eternity hath triumphed over.
+ - Never spend anything before thou have it; for borrowing is the canker and death of every man’s estate.
+ - No man is esteemed for colorful garments except by fools and women.
+ - In a word, we may gather out of History a policy no less wise than I eternal; by the comparison and application of other mens fore-passed miseries with our own like errours and ill-deservings.
+ - I shall never be persuaded that God hath shut up all light of learning within the lantern of Aristotle’s brain.
+ - It is plain there is not in nature a point of stability to be found; everything either ascends or declines; when wars are ended abroad, sedition begins at home; and when men are freed from fighting for necessity, they quarrel through ambition.
+ - Who so desireth to know what will be hereafter, let him think of what is past, for the world hath ever been in a circular revolution; whatsoever is now, was heretofore; and things past or present, are no other than such as shall be again: Redit orbis in orbem.
+ - There is nothing more becoming any wise man, than to make choice of friends, for by them thou shalt be judged what thou art: let them therefore be wise and virtuous, and none of those that follow thee for gain; but make election rather of thy betters, than thy inferiors.
+ - Covetous ambition, thinking all too little which presently it hath, supposeth itself to stand in need of that which it hath not.
+ - Because all men are apt to flatter themselves, to entertain the addition of other men’s praises is most perilous.
+ - The useful type of successful teacher is one whose main interest is the children, not the subject.
+ - If thy friends be of better quality than thyself, thou mayest be sure of two things; first, they will be more careful to keep thy counsel, because they have more to lose than thou hast; the second, they will esteem thee for thyself, and not for that which thou dost possess.
+ - He that doth not as other men do, but endeavoureth that which ought to be done, shall thereby rather incur peril than preservation; for who so laboreth to be sincerely perfect and good shall necessarily perish, living among men that are generally evil.
+ - Romance is a love affair in other than domestic surroundings.
+
+92 quotes

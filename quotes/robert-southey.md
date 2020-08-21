@@ -1,0 +1,86 @@
+ - No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other’s worth.
+ - Whatever increases the strength and authority of your body over your mind, that is sin to you, however, innocent it may be in itself.
+ - My days among the dead are passed; Around me I behold, Where’er these casual eyes are cast, The mighty minds of old; My never-failing friends are they, With whom I converse day by day.
+ - My name is Death: the last best friend am I.
+ - Never let a man imagine that he can pursue a good end by evil means, without sinning against his own soul. The evil effect on himself is certain.
+ - By writing much, one learns to write well.
+ - The loss of a friend is like that of a limb; time may heal the anguish of the wound, but the loss cannot be repaired.
+ - Live as long as you may, the first twenty years are the longest half of your life. They appear so while they are passing; they seem to have been so when we look back on them; and they take up more room in our memory than all the years that succeed them.
+ - There is a magic in that little world, home; it is a mystic circle that surrounds comforts and virtues never know beyond its hallowed limits.
+ - Love is indestructible, Its holy flame forever burneth; From heaven it came, to heaven returneth.
+ - From his brimstone bed, at break of day, A-walking the Devil is gone, To look at his little snug farm of the World, And see how his stock went on.
+ - To a resolute mind, wishing to do is the first step toward doing. But if we do not wish to do a thing it becomes impossible.
+ - Live as long as you may, the first twenty years are the longest half of your life.
+ - I cannot believe in an eternity of hell. I hope God will forgive me if I err; but in this matter I cannot say, “Lord help my unbelief.”
+ - How beautiful is night! A dewy freshness fills the silent air; No mist obscures, nor cloud, nor speck, nor stain, Breaks the serene of heaven.
+ - A man may be cheerful and contented in celibacy, but I do not think he can ever be happy; it is an unnatural state, and the best feelings of his nature are never called into action.
+ - Beware of those who are homeless by choice! You have no hold on human being whose affections are without a top-root!
+ - Whoever has tasted the breath of morning knows that the most invigorating and most delightful hours of then day are commonly spent in bed; though it is the evident intention of nature that we should enjoy and profit by them.
+ - It is with words as with sunbeams-the more they are condensed, the deeper they burn.
+ - The three indispensable of genius are: understanding, feeling, and perseverance; the three things that enrich genius are: contentment of mind, the cherishing of good thoughts, and the exercise of memory.
+ - It is not for man to rest in absolute contentment. He is born to hopes and aspirations as the sparks fly upward, unless he has brutalized his nature and quenched the spirit of immortality which is his portion.
+ - The solitary Bee Whose buzzing was the only sound of life, Flew there on restless wing, Seeking in vain one blossom where to fix.
+ - A good man and a wise man may at times be angry with the world, at times grieved for it; but be sure no man was ever discontented with the world who did his duty in it.
+ - In the days of my youth I remembered my God! And He hath not forgotten my age.
+ - For a young and presumptuous poet a disposition to write satires is one of the most dangerous he can encourage. It tempts him to personalities, which are not always forgiven after he has repented and become ashamed of them.
+ - The grave Is but the threshold of eternity.
+ - One fault begets another; one crime renders another necessary.
+ - A stubborn mind conduces as little to wisdom or even to knowledge, as a stubborn temper to happiness.
+ - All deception in the course of life is indeed nothing else but a lie reduced to practice, and falsehood passing from words into things.
+ - And as, when all the summer trees are seen So bright and green, The Holly leaes a sober hue display Less bright than they, But when the bare and wintry woods we see, What then so cheerful as the Holly-tree?
+ - Curses are like young chickens, theyalways come home to roost.
+ - Cupid “the little greatest god.”
+ - Let us depart! the universal sun Confines not to one land his blessed beams; Nor is man rooted, like a tree, whose seed, the winds on some ungenial soil have cast there, where it cannot prosper.
+ - Not where I breathe, but where I love, I live; Not where I love, but where I am, I die.
+ - Three things a wise man will not trust, The wind, the sunshine of an April day, And woman’s plighted faith.
+ - What will not woman, gentle woman dare; when strong affection stirs her spirit up?
+ - There is healing in the bitter cup.
+ - She comes majestic with her swelling sails, The gallant Ship: along her watery way, Homeward she drives before the favouring gales; Now flirting at their length the streamers play, And now they ripple with the ruffling breeze.
+ - Mild arch of promise! on the evening sky Thou shinest fair with many a lovely ray, Each in the other melting.
+ - Our knowledge, is our power, and God our strength.
+ - A kitten is in the animal world what a rosebud is in the garden.
+ - Oh, when a mother meets on high The babe she lost in infancy, Hath she not then for pains and fears, The day of woe, the watchful night, For all her sorrow, all her tears, An over-payment of delight?
+ - Take away love, and not physical nature only, but the heart of the moral world, would be palsied.
+ - Faith in the hereafter is as necessary for the intellectual as the moral character; and to the man of letters, as well as to the Christian, the present forms but the slightest portion of his existence.
+ - Cold is thy hopeless heart, even as charity.
+ - It has been more wittily than charitably said that hell is paved with good intentions; they have their place in heaven also.
+ - I have heard a good story of Charles Fox. When his house was on fire, he found all efforts to save it useless, and, being a good draughtsman, he went up to the next hill to make a drawing of the fire, – the best instance of philosophy I ever heard of.
+ - In fall-orbed glory, yonder moon Divine Rolls through the dark-blue depths.
+ - O Reader! hast thou eer stood to see The Holly-tree? The eye that contemplates it well perceies Its glossy leaes Ordered by an Intelligence so wise As might confound the Atheist’s sophistries.
+ - Beasts, birds, and insects, even to the minutest and meanest of their kind, act with the unerring providence of instinct; man, the while, who possesses a higher faculty, abuses it, and therefore goes blundering on.
+ - That charity is bad which takes from independence its proper pride, from mendicity its salutary shame.
+ - The grave is but the threshold of eternity. What a world were this, how unendurable its weight, If they whom death hath sundered, did not meet again!
+ - As sure as God is good, so surely there is no such thing as necessary evil.
+ - The history of any private family, however humble, could it be fully related for five or six generations, would illustrate the state and progress of society better than the most elaborate dissertation.
+ - Easier were it To hurl the rooted mountain from its base, Than force the yoke of slavery upon men Determin’d to be free.
+ - Give me a room whose every nook is dedicated to a book.
+ - Happy it were for us all if we bore prosperity as well and as wisely as we endure adverse fortune.
+ - A house is never perfectly furnished for enjoyment unless there is a child in it rising three years old, and a kitten rising three weeks.
+ - Little, indeed, does it concern us in this our mortal stage, to inquire whence the spirit hath come; but of what infinite concern is the consideration whither it is going. Surely such consideration demands the study of a life.
+ - Where Washington hath left His awful memory A light for after times!
+ - For society, of all places I have ever been, Norwich is the best.
+ - Some people seem born with a head in which the thin partition that divides great wit from folly is wanting.
+ - The laws are with us, and God on our side.
+ - Without religion the highest endowments of intellect can only render the possessor more dangerous if he be ill disposed; if well disposed, only more unhappy.
+ - The march of intellect is proceeding at quick time; and if its progress be not accompanied by a corresponding improvement in morals and religion, the faster it proceeds, with the more violence will you be hurried down the road to ruin.
+ - Thou hast been called, O sleep! the friend of woe; But ’t is the happy that have called thee so.
+ - Affliction is not sent in vain, young man, from that good God, who chastens whom he loves.
+ - Earth could not hold us both, nor can one heaven Contain my deadliest enemy and me.
+ - There are three things in speech that ought to be considered before some things are spoken – the manner, the place and the time.
+ - Our restlessness in this world seems to indicate that we are intended for a better. We have all of us a longing after happiness; and surely the Creator will gratify all the natural desires he has implanted in us.
+ - There are some readers who have never read an essay on taste; and if they take my advice they never will, for they can no more improve their taste by so doing than they could improve their appetite or digestion by studying a cookery-book.
+ - If you would be pungent, be brief.
+ - The true one of youth’s love, proving a faithful helpmate in those years when the dream of life is over, and we live in its realities.
+ - The pulpit is a clergyman’s parade; the parish is his field of active service.
+ - Be thankful that your lot has fallen on times when, though there may be many evil tongues and exasperated spirits, there are none who have fire and fagot at command.
+ - There is another world for all that live and move-a better one!
+ - My notions of life are much the same as they are about traveling; there is a good deal of amusement on the road; but, after all, one wants to be at rest.
+ - Few people give themselves time to be friends.
+ - What blockheads are those wise persons, who think it necessary that a child should comprehend everything it reads.
+ - It is not for man to rest in absolute contentment.
+ - There was a time when I believed in the persuadability of man, and had the mania of man-mending. Experience has taught me better. The ablest physician can do little in the great lazar-house of society. He acts the wisest part who retires from the contagion.
+ - Some voluntary castaways there will always be, whom no fostering kindness and no parental care can preserve from self-destruction; but if any are lost for want of care and culture, there is a sin of omission in the society to which they belong.
+ - A fastidious taste is like a squeamish appetite; the one has its origin in some disease of the mind, as the other has in some ailment of the stomach.
+ - Order is the sanity of the mind, the health of the body, the peace of the city, the security of the state. Like beams in a house or bones to a body, so is order to all things.
+
+84 quotes

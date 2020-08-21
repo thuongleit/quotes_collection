@@ -1,0 +1,23 @@
+ - Everyone can act. Everyone can improvise. Anyone who wishes to can play in the theatre.
+ - If the environment permits it, anyone can learn whatever he chooses to learn, and if the individual permits it, the environment will teach him everything it has to teach.
+ - Through spontaneity we are re-formed into ourselves.
+ - The unknown is where we go to find new things and intuition is how we find them.
+ - Creativity is not the clever rearranging of the known.
+ - That which is not yet known comes out of that which is not yet here.
+ - When the rational mind is shut off, we have the possibility of intuition.
+ - My vision is a world of accessible intuition.
+ - Get out of your head, into your space and await the invisible stranger.
+ - Play touches and stimulates vitality, awakening the whole person – mind, body, intelligence and creativity.
+ - The techniques of the theater are the techniques of communicating.
+ - One must be chary of words because they turn into cages.
+ - Theater Games are a process applicable to any field, discipline, or subject matter which creates a place where full participation, communication, and transformation can take place.
+ - General improvisations often give actors an insight beyond their words by helping them to ‘see the word’ and achieve a reality for the scene.
+ - We learn through experience and experiencing, and no one teaches anyone anything.
+ - The audience is the most revered member of the theater. Without an audience, there is no theater. Everything done is ultimately for the enjoyment of the audience. They are our guests, fellow players, and the last spoke in the wheel which can then begin to roll. They make the performance meaningful.
+ - It is highly possible that what is called ‘talented behavior’ is simply a greater individual capacity for experiencing. From this point of view, it is in the increasing of the individual capacity for experiencing that the untold potentiality of a personality can be evoked.
+ - Don’t initiate! Follow the initiator! Follow the follower.
+ - We have freedom of speech, but you got to watch what you say.
+ - First teach a person to develop to the point of his limitation and then-pfft!-break the limitation.
+ - It stands to reason that if we direct all our efforts towards reaching a goal, we stand in grave danger of losing everything on which we have based our daily activities. For when a goal is superimposed on an activity instead of evolving out of it, we often feel cheated when we reach it.
+
+21 quotes

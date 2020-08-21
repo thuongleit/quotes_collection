@@ -1,0 +1,34 @@
+ - It’s harder to read code than to write it.
+ - Good software, like wine, takes time.
+ - Something is usable if it behaves exactly as expected.
+ - Nothing works better than just improving your product.
+ - Writing code is not production, it’s not always craftsmanship though it can be, it’s design.
+ - Listen to your customers, not your competitors.
+ - Indeed one of the best ways to deflect attacks is to make it look like they’re succeeding. It’s the software equivalent of playing dead.
+ - Every day that we spent not improving our products was a wasted day.
+ - So if you want to get things done, you positively have to understand at any given point in time what is the most important thing to get done right now and if you’re not doing it, you’re not making progress at the fastest possible rate.
+ - Common programmer thought pattern: there are only three numbers: 0, 1, and n.
+ - Design adds value faster than it adds cost.
+ - A user interface is well-designed when the program behaves exactly how the user thought it would.
+ - Shipping is a feature. A really important feature. Your product must have it.
+ - We just have to come in every morning and somehow, launch the editor.
+ - Talk to your customers. Find out what they need. Don’t pay any attention to the competition. They’re not relevant to you.
+ - An idea isn’t worth that much. It’s the execution of the idea that has value. If you can’t convince one other person that this is something to devote your life to, then it’s not worth it.
+ - If you can’t understand the spec for a new technology, don’t worry: nobody else will understand it either, and the technology won’t be that important.
+ - Never put yourself in a position that will put yourself at risk if you make the wrong decision. We spent cash on everything. It’s fashionable to make ‘bet the company’ decisions, but don’t do it.
+ - Entrepreneurship boils down to the simple fact that a team of really smart people who can get things done are going to get smart, useful things done.
+ - If you are a programmer working in 2006 and you don’t know the basics of characters, character sets, encodings, and Unicode, and I catch you, I’m going to punish you by making you peel onions for six months in a submarine.
+ - Watching nonprogrammers trying to run software companies is like watching someone who doesn’t know how to surf trying to surf. Even if he has great advisers standing on the shore telling him what to do, he still falls off the board again and again.
+ - Full service brokers, in this day and age of low cost mutual funds and discount brokers, are really nothing more than machines for ripping off retail investors.
+ - All non-trivial abstractions, to some degree, are leaky.
+ - Life is a bit hard sometimes, and sometimes you have to step up and fight fights that you never signed up for.
+ - If something seems possible, that’s probably because someone is already doing it. When something seems that it can’t possibly work, nobody tries it. Real innovation happens when someone tries anyway, overlooking an obvious flaw, and finds a way to make an idea work.
+ - People ridiculously overvalue aesthetics and beauty when evaluating products. It’s one of the reasons iPods, and, for that matter, Keanu Reeves, are so successful.
+ - I’ve been using Vista on my home laptop since it shipped, and can say with some conviction that nobody should be using it as their primary operating system – it simply has no redeeming merits to overcome the compatibility headaches it causes.
+ - Remember, just because Microsoft can do something, doesn’t mean you can. Microsoft makes their own gravity. Normal rules don’t apply to them.
+ - The secret of Big Macs is that they’re not very good, but every one is not very good in exactly the same way.
+ - If your goals is to produce something of permanent value, you start to think differently about you want on the site.
+ - That’s another flaw with performance-based rewards: They are easy for one of your competitors to top.
+ - Beware of Methodologies. They are a great way to bring everyone up to a dismal, but passable, level of performance, but at the same time, they are aggravating to more talented people who chafe at the restrictions that are placed on them.
+
+32 quotes

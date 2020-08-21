@@ -1,0 +1,74 @@
+ - Row, row, row your boat. Gently down the stream. Merrily, merrily, merrily, merrily, life is but a dream.
+ - The constant happiness is curiosity.
+ - They were all in their early thirties. An age at which it is sometimes hard to admit that what you are living is your life.
+ - Writing is hard, but the more you write, and enjoy what you write, the better it gets.
+ - The complexity of things – the things within things – just seems to be endless. I mean nothing is easy, nothing is simple.
+ - It’s just life. You can’t beat life.
+ - Moments of kindness and reconciliation are worth having, even if the parting has to come sooner or later.
+ - He never wanted to be away from her. She had the spark of life.
+ - There is a limit to the amount of misery and disarray you will put up with, for love, just as there is a limit to the amount of mess you can stand around a house. You can’t know the limit beforehand, but you will know when you’ve reached it. I believe this.
+ - For we did makeup. But we didn’t forgive each other. And we didn’t take steps. And it got to be too late and we saw that each of us had invested too much in being in the right and we walked away and it was a relief.
+ - Because if she let go of her grief even for a minute it would only hit her harder when she bumped into it again.
+ - We say of some things that they can’t be forgiven, or that we will never forgive ourselves. But we do-we do it all the time.
+ - She would live now, not read.
+ - Now i no longer believe that people’s secrets are defined and communicable, or their feelings full-blown and easy to recognize.
+ - Few people, very few, have a treasure, and if you do you must hang onto it. You must not let yourself be waylaid, and have it taken from you.
+ - In your life there are a few places, or maybe only the one place, where something happened, and then there are all the other places.
+ - Life would be grand if it weren’t for the people.
+ - Braininess is not attractive unless combined with some signs of elegance; class.
+ - It’s as if tendencies that seem most deeply rooted in our minds, most private and singular, have come in as spores on the prevailing wind, looking for any likely place to land, any welcome.
+ - Why is it a surprise to find that people other than ourselves are able to tell lies?
+ - So what about me? Would I always have to find a high horse? The moral relish, the rising above, the being in the right, which can make me flaunt my losses.
+ - In my own work, I tend to cover a lot of time and to jump back and forward in time, and sometimes the way I do this is not very straightforward.
+ - Anecdotes don’t make good stories. Generally I dig down underneath them so far that the story that finally comes out is not what people thought their anecdotes were about.
+ - I was amazed as people must be who are seized and kidnapped, and who realize that in the strange world of their captors they have a value absolutely unconnected with anything they know about themselves.
+ - Love removes the world for you, and just as surely when it’s going well as when it’s going badly.
+ - You want in all cases for the story to get through the writing.
+ - I knew I would be famous one day. That’s because I lived in a very small town and nobody liked doing the same things I did, like writing.
+ - And now such a warm commotion, such busy love.
+ - The stories are not autobiographical, but they’re personal in that way. I seem to know only the things that I’ve learned. Probably some things through observation, but what I feel I know surely is personal.
+ - He was evidently the sort of person who posed questions that were traps for you to fall into.
+ - I would really hope this would make people see the short story as an important art, not just something you played around with until you got a novel.
+ - I would have a flick of fear, as in a dream when you find yourself in the wrong building or have forgotten the time for the exam and understand that this is only the tip of some shadowy cataclysm or lifelong mistake.
+ - Lovers. Not a soft word, as people thought, but cruel and tearing.
+ - Memory is the way we keep telling ourselves our stories – and telling other people a somewhat different version of our stories.
+ - Pots can show malice, the patterns of linoleum can leer up at you, treachery is the other side of dailiness.
+ - That’s something I think is growing on me as I get older: happy endings.
+ - Every year, when you’re a child, you become a different person.
+ - She was learning, quite late, what many people around her appeared to have known since childhood that life can be perfectly satisfying without major achievements.
+ - People’s lives, in Jubilee as elsewhere, were dull, simple, amazing, and unfathomable – deep caves paved with kitchen linoleum.
+ - My head was a magpie’s nest lined with such bright scraps of information.
+ - The conversation of kisses. Subtle, engrossing, fearless, transforming.
+ - His face contained for me all possibilities of fierceness and sweetness, pride and submissiveness, violence, self-containment. I never saw more in it than I had when I saw it first, because I saw everything then. The whole thing in him that I was going to love, and never catch or explain.
+ - You cannot let your parents anywhere near your real humiliations.
+ - Now that I think of it, she looked splendid. I wish I had met her somewhere else. I wish I had appreciated her as she deserved. I wish that everything had gone differently.
+ - Country manners. Even if somebody phones up to tell you your house is burning down, they ask first how you are.
+ - The skin of everyday appearances stretched over such shamelessness, such consuming explosions of lust.
+ - The story fails but your faith in the importance of doing the story doesn’t fail.
+ - It was at this time that she entirely gave up on reading. The covers of books looked like coffins to her, either shabby or ornate, and what was inside them might as well have been dust.
+ - One stroke of lightning does not have to lead anywhere, but to the next stroke of lightning.
+ - I felt in him what women feel in men, something so tender, swollen, tyrannical, absurd; I would never take the consequences of interfering with it.
+ - She keeps on hoping from a word from Penelope, but not in any strenuous way. She hopes as people who know better hope for undeserved blessings, spontaneous remissions, things of that sort.
+ - The images, the language, of pornography, and romance are alike; monotonous and mechanically seductive, quickly leading to despair.
+ - Speculation can be more gentle, can take its time, when it is not driven by desire.
+ - I can’t play bridge. I don’t play tennis. All those things that people learn, and I admire, there hasn’t seemed time for. But what there is time for is looking out the window.
+ - I have never kept diaries. I just remember a lot and am more self-centered than most people.
+ - In twenty years I’ve never had a day when I didn’t have to think about someone else’s needs. And this means the writing has to be fitted around it.
+ - I despised their antics because I took life seriously and had a much more lofty and tender notion of romance. But I would have liked to get their attention just the same.
+ - I don’t always, or even usually, read stories from beginning to end. I start anywhere and proceed in either direction. A story is not like a road to follow, it’s more like a house. You go inside and stay there for a while.
+ - There’s a kind of tension that if I’m getting a story right I can feel right away, and I don’t feel that when I try to write a novel. I kind of want a moment that’s explosive, and I want everything gathered into that.
+ - Hatred is always a sin, my mother told me. Remember that. One drop of hatred in your soul will spread and discolor everything like a drop of black ink in white milk. I was struck by that and meant to try it, but knew I shouldn’t waste the milk.
+ - You think that would have changed things? The answer is of course, and for a while, and never.
+ - It almost seemed as if there must be some random and of course unfair thrift in the emotional housekeeping of the world, if the great happiness – however temporary, however flimsy – of one person could come out of the great unhappiness of another.
+ - There were people whom you positively ached to please. If you failed with such people they would put you into a category in their minds where they could kee you and have contempt for you forever.
+ - What she felt was a lighthearted sort of compassion, almost like laughter. A swish of tender hilarity, getting the better of all her sores and hollows, for the time given.
+ - The deep, personal material of the latter half of your life is your children. You can write about your parents when they’re gone, but your children are still going to be here, and you’re going to want them to come and visit you in the nursing home.
+ - There would never be any room in her for anything else. No room for anything but the realization of what she had done.
+ - This is the way you look at the poorest details of the world resurfaced, after you’ve been driving for a long time – you feel their singleness and precise location and the forlorn coincidence of you being there to see them.
+ - Who can ever say the perfect thing to the poet about his poetry?
+ - And did I not think then, What nonsense it is to suppose one man so different from another when all that life really boils down to is getting a decent cup of coffee and room to stretch out in?
+ - I never have a problem with finding material. I wait for it to turn up, and it always turns up. It’s dealing with the material I’m inundated with that poses the problem.
+ - I read a book called The Art of Loving. A lot of things seemed clear while I was reading it but afterwards I went back to being more or less the same.
+ - Sometimes I get the start of a story from a memory, an anecdote, but that gets lost and is usually unrecognizable in the final story.
+
+72 quotes

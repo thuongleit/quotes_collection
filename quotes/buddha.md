@@ -1,0 +1,502 @@
+ - The trouble is, you think you have time.
+ - Mind is everything. What we think, we become.
+ - Every morning we are born again. What we do today is what matters most.
+ - There is no path to happiness: happiness is the path.
+ - Meditate. Live purely. Be quiet. Do your work with mastery. Like the moon, come out from behind the clouds! Shine.
+ - Attachment leads to suffering.
+ - The greatest prayer is patience.
+ - The secret of health for both mind and body is not to mourn for the past, nor to worry about the future, but to live the present moment wisely and earnestly.
+ - Doubt everything. Find your own light.
+ - The past is already gone, the future is not yet here. There’s only one moment for you to live, and that is the present moment.
+ - You will not be punished for your anger; you will be punished by your anger.
+ - True love is born from understanding.
+ - Holding onto anger is like drinking poison and expecting the other person to die.
+ - Nothing can harm you as much as your own thoughts unguarded.
+ - Believe nothing, no matter where you read it, or who said it, no matter if I have said it, unless it agrees with your own reason and your own common sense.
+ - No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.
+ - Nothing ever exists entirely alone; everything is in relation to everything else.
+ - Praise and blame, gain and loss, pleasure and sorrow come and go like the wind. To be happy, rest like a giant tree in the midst of them all.
+ - You yourself, as much as anybody in the entire universe, deserve your love and affection.
+ - Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.
+ - Your mind is a powerful thing. When you filter it with positive thoughts, your life will start to change.
+ - Remember that the only constant in life is change.
+ - A man asked Lord Buddha “I want happiness.” Lord Buddha said – first remove “I” that’s ego. Then remove “Want” that’s desire. See now you are left with only “Happiness”.
+ - Your purpose in life is to find your purpose and give your whole heart and soul to it.
+ - In the end, only three things matter: how much you loved, how gently you lived, and how gracefully you let go of things not meant for you.
+ - You can only lose what you cling to.
+ - Work out your own salvation. Do not depend on others.
+ - The root of suffering is attachment.
+ - When you move your focus from competition to contribution life becomes a celebration. Never try to defeat people, just win their hearts.
+ - Serenity comes when you trade expectations for acceptance.
+ - Happiness comes when your work and words are of benefit to others.
+ - As you walk and eat and travel, be where you are. Otherwise you will miss most of your life.
+ - If your compassion does not include yourself, it is incomplete.
+ - There are only two mistakes one can make along the road to truth; not going all the way, and not starting.
+ - All human unhappiness comes from not facing reality squarely, exactly as it is.
+ - If you truly loved yourself, you could never hurt another.
+ - Even as a solid rock is unshaken by the wind, so are the wise unshaken by praise or blame.
+ - Resolve to be tender with the young, compassionate with the aged, sympathetic with the striving and tolerant with the weak and wrong. Sometime in your life, you will have been all of these.
+ - Our life is shaped by our mind; we become what we think. Suffering follows an evil thought as the wheels of a cart follow the oxen that draws it. Our life is shaped by our mind; we become what we think. Joy follows a pure thought like a shadow that never leaves.
+ - However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?
+ - Make of yourself a light.
+ - The fool who thinks he is wise is just a fool. The fool who knows he is a fool is wise indeed.
+ - Craving and desire are the cause of all unhappiness. Everything sooner or later must change, so do not become attached to anything. Instead devote...
+ - Let yourself be open and life will be easier.
+ - Set your heart on doing good. Do it over and over again, and you will be filled with joy.
+ - A jug fills drop by drop.
+ - A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise.
+ - In the sky, there is no distinction of east and west; people create distinctions out of their own minds and then believe them to be true.
+ - Do not look for a sanctuary in anyone except your self.
+ - You throw thorns, falling in my silence they become flowers.
+ - It is better to travel well then arrive.
+ - If you find someone with wisdom, good judgment, and good actions; make him a companion.
+ - It is better to do nothing Than to do what is wrong. For whatever you do, you do to yourself.
+ - Better than a thousand hollow words is one word that brings peace.
+ - Believe only what you yourself test and judge to be true.
+ - I am a finger pointing to the moon. Don’t look at me; look at the moon.
+ - There is nothing more dreadful than the habit of doubt. Doubt separates people. It is a poison that disintegrates friendships and breaks up pleasant relations. It is a thorn that irritates and hurts; it is a sword that kills.
+ - If you know something hurtful and not true, don’t say it. If you know something hurtful and true, don’t say it. If you know something helpful but not true, don’t say it. If you know something helpful and true, find the right time to say it.
+ - Long is the night to him who is awake; long is a mile to him who is tired; long is life to the foolish who do not know the true law.
+ - A generous heart, kind speech, and a life of service and compassion are the things which renew humanity.
+ - Wear your ego like a loose fitting garment.
+ - You can search throughout the entire universe for someone who is more deserving of your love and affection than you are yourself, and that person is not to be found anywhere. You, yourself, as much as anybody in the entire universe, deserve your love and affection.
+ - As rain falls equally on the just and the unjust, do not burden your heart with judgements but rain your kindness equally on all.
+ - Form is emptiness, emptiness is form.
+ - Wherever a person goes, his deeds, like a shadow, will follow.
+ - Be a lamp unto yourself.
+ - Let us rise up and be thankful, for if we didn’t learn a lot at least we learned a little, and if we didn’t learn a little, at least we didn’t get sick, and if we got sick, at least we didn’t die; so, let us all be thankful.
+ - If we fail to look after others when they need help, who will look after us?
+ - What is most needed is a loving heart.
+ - How easy it is to see your brother’s faults, How hard it is to face your own.
+ - The mind is pure and luminous by nature. It is defiled only by adventitious thoughts and emotions.
+ - Hatred does not cease by hatred, but only by love; this is the eternal rule.
+ - May all that have life be delivered from suffering.
+ - Live like a mighty river.
+ - An insincere and evil friend is more to be feared than a wild beast; a wild beast may wound your body, but an evil friend will wound your mind.
+ - If we could see the miracle of a single flower clearly our whole life would change.
+ - Sit Rest Work. Alone with yourself, Never weary. On the edge of the forest Live joyfully, Without desire.
+ - There is no fire like passion, there is no shark like hatred, there is no snare like folly, there is no torrent like greed.
+ - All that has been hidden is rising, there is no stopping it! These things you cannot hide: the sun, the moon, and TRUTH.
+ - Like a beautiful flower that is colorful but has no fragrance, even well spoken words bear no fruit in one who does not put them into practice.
+ - Don’t blindly believe what I say. Don’t believe me because others convince you of my words. Don’t believe anything you see, read, or hear from others, whether of authority, religious teachers or texts.
+ - The gift of truth excels all other gifts.
+ - Those who have failed to work toward the truth have missed the purpose of living.
+ - Pain is the outcome of sin.
+ - Looking deeply at life as it is in this very moment, the meditator dwells in stability and freedom.
+ - Whoever has done harmful actions but later covers them up with good is like the moon which, freed from clouds, lights up the world.
+ - Through effort you will cross any raging flood, through energy you will pass any sorrow.
+ - In separateness lies the world’s greatest misery; in compassion lies the world’s true strength.
+ - There is a way to be purified, to overcome sorrows and grief, to release suffering, to secure the right path to realize nirvana. This is to be mindful.
+ - Whatever a monk keeps pursuing with his thinking and pondering, that becomes the inclination of his awareness.
+ - Words do not express thoughts very well; every thing immediately becomes a little different, a little distorted, a little foolish. And yet it also pleases me and seems right that what is of value and wisdom of one man seems nonsense to another.
+ - Few cross over the river. Most are stranded on this side. On the riverbank they run up and down. But the wise man, following the way, Crosses over, beyond the reach of death. He leaves the dark way For the way of light.
+ - Of all footprints, that of the elephant is supreme. Similarly, of all mindfulness meditations, that on death is supreme.
+ - Be a lamp unto yourselves! Work out your liberation with diligence! Fill your mind with compassion!
+ - Turn away from mischief. Again and again, turn away. Before sorrow befalls you.
+ - I manifested in a dreamlike way to dreamlike beings and gave a dreamlike Dharma, but in reality I never taught and never actually came.
+ - For those who are ready the door to the deathless state is open. If you have ears give up the conditions that bind you and enter in.
+ - Our problems are not solved by physical force, by hatred, by warOur problems are solved by loving kindness by gentleness, by joy.
+ - Thus all things are subject to death, sorrow and suffering. I became aware that I too was of the same nature, the nature of beginning and end. What if I searched for that which underlies all creation, that which is nirvana, the perfect freedom from unconditioned existence?
+ - Never in this world can hatred be stilled by hatred; it will be stifled by non-hatred – this is the law Eternal.
+ - One moment can change a day, One day can change a life and One life can change the world.
+ - Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.
+ - Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water.
+ - Change is never painful, only the resistance to change is painful.
+ - The person who masters himself through self-control and discipline is truly undefeatable.
+ - Our life is shaped by our mind; we become what we think.
+ - Happiness is a journey not a destination, work like you don’t need money, love like you never been hurt, and dance like no ones looking.
+ - It is better to conquer yourself than to win a thousand battles.
+ - If you propose to speak always ask yourself, is it true, is it necessary, is it kind.
+ - When you like a flower, you just pluck it. But when you love a flower, you water it daily.
+ - Do not learn how to react. Learn how to respond.
+ - Nothing is forever except change.
+ - Mindfulness of the body leads to nirvana.
+ - Treat others with respect. How you treat others will be how they treat you.
+ - If anything is worth doing, do it with all your heart.
+ - Life is uncertain; death is certain.
+ - If you let cloudy water settle, it will become clear. If you let your upset mind settle, your course will also become clear.
+ - Suffering is temporary, enlightenment is forever.
+ - With our thoughts we make the world.
+ - A disciplined mind brings happiness.
+ - Silence is an empty space, space is the home of the awakened mind.
+ - Pay no attention to the faults of others, things done or left undone by others. Consider only what by oneself is done or left undone.
+ - We are what we think.
+ - Endurance is one of the most difficult disciplines but it is to the one who endures that the final victory comes.
+ - Happiness will never come to those who fail to appreciate what they already have.
+ - Our life is a creation of our mind.
+ - To conquer oneself is a greater task than conquering others.
+ - Every experience, no matter how bad it seems, holds within a blessing of some kind. The goal is to find it.
+ - The way to happiness is: keep your heart free from hate, your mind from worry. Live simply, give much. Fill your life with love. Do as you would be done by.
+ - Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good.
+ - Awake. Be the witness of your thoughts. You are what observes, not what you observe.
+ - The cause of all pain and suffering is ignorance.
+ - Your worst enemy is your best teacher.
+ - For the good of the many, for the happiness of the many, out of compassion for the world.
+ - If you light a lamp for somebody, it will also brighten your path.
+ - Three things can not hide for long: the Moon, the Sun and the Truth.
+ - The world is continuous flux and is impermanent.
+ - Winter always turns into Spring.
+ - Meditation brings wisdom; lack of meditation leaves ignorance. Know well what leads you forward and what holds you back, and choose the path that leads to wisdom.
+ - Just as a snake sheds its skin, we must shed our past over and over again.
+ - May we live like the lotus, at home in muddy water.
+ - Do not be the judge of people; do not make assumptions about others. A person is destroyed by holding judgments about others.
+ - All created things are impermanent. Strive diligently.
+ - The mind that perceives the limitation is the limitation.
+ - Peace comes from within; do not try to seek it without.
+ - Even loss and betrayal can bring us awakening.
+ - Aim for success, not perfection. Never give up because you will lose the ability to learn new things. Move forward with your life.
+ - Believe there is good in the world.
+ - After enlightenment, the laundry.
+ - To become vegetarian is to step into the stream which leads to nirvana.
+ - Learn this from water: loud splashes the brook but the oceans depth are calm.
+ - You are your own master, you make your own future. Therefore discipline yourself as a horse-dealer trains a thoroughbred.
+ - Your suffering is my suffering and your happiness is my happiness.
+ - If you want to know the past, look at your present. If you want to know the future, look at your present.
+ - Be vigilant; guard your mind against negative thoughts.
+ - Live in Joy, In love, Even among those who hate. Live in joy, In health, Even among the afflicted. Live in joy, In peace, Even among the troubled. Look within. Be still. Free from fear and attachment, Know the sweet joy of living in the way.
+ - Radiate boundless love towards the entire world – above, below, and across – unhindered, without ill will, without enmity.
+ - When one is overcome by this wretched, clinging desire in the world, one’s sorrows increase like grass growing up after a lot of rain.
+ - Nothing is to be clung to as I, me or mine.
+ - Happiness or sorrow- whatever befalls you, walk on untouched, unattached.
+ - In our lives, change is unavoidable, loss is unavoidable. In the adaptability and ease with which we experience change, lies our happiness and freedom.
+ - To enjoy good health, to bring true happiness to one’s family, to bring peace to all, one must first discipline and control one’s own mind. If a man can control his mind he can find the way to Enlightenment, and all wisdom and virtue will naturally come to him.
+ - I call it nirvana, the complete destruction of old age and dying.
+ - The mind is the source of happiness and unhappiness.
+ - Love yourself and be awake- Today, tomorrow, always. First establish yourself in the way, Then teach others, And so defeat sorrow. To straighten the crooked You must first do a harder thing- Straighten yourself. You are your only master. Who else? Subdue yourself, And discover your master.
+ - Everything changes, nothing remains without change.
+ - Freedom and happiness are found in the flexibility and ease with which we move through change.
+ - Do not blindly believe what others say. See for yourself what brings contentment, clarity and peace. That is the path for you to follow.
+ - Life is like the harp string, if it is strung too tight it won’t play, if it is too loose it hangs, the tension that produces the beautiful sound lies in the middle.
+ - Thus shall ye think of all this fleeting world: As star at dawn, a bubble in a stream A flash of lightning in a summer cloud A flickering lamp, a phantom, and a dream.
+ - The world is a looking glass. It gives back to every man a true reflection of his own thoughts. Rule your mind or it will rule you.
+ - All beings tremble before violence. All love life. All fear death. See yourself in others. Then whom can you hurt? What harm can you do?
+ - You are the community now. Be a lamp for yourselves. Be your own refuge. Seek for no other. All things must pass. Strive on diligently. Don’t give up.
+ - Suffering is wishing things were other than they are.
+ - All that we are is the result of what we have thought. If people speak or act with evil thoughts, pain follows them. If people speak or act with pure thoughts, happiness follows them, like a shadow that never leaves them.
+ - To awaken, sit calmly, letting each breath clear your mind and open your heart.
+ - To keep the body in good health is a duty, for otherwise we shall not be able to trim the lamp of wisdom, and keep our mind strong and clear.
+ - Love yourself and watch – Today, tomorrow, always. To straighten the crooked You must first do a harder thing – Straighten yourself.
+ - No one can escape death and unhappiness. If people expect only happiness in life, they will be disappointed.
+ - Love is a gift of one’s inner most soul to another so both can be whole.
+ - This is the entire spiritual life, Ananda, that is, good friendship, good companionship, good comradeship. When a monk has a good friend, a good companion, a good comrade, it is to be expected that he will develop and cultivate the Noble Eightfold Path.
+ - Be a lamp to yourself. Be your own confidence. Hold on to the truth within yourself as to the only truth.
+ - Fools wait for a lucky day, but everyday is a lucky day for an industrious man.
+ - Develop a mind that is vast like space, where experiences both pleasant and unpleasant can appear and disappear without conflict, struggle or harm. Rest in a mind like vast sky.
+ - When watching after yourself, you watch after others. When watching after others, you watch after yourself.
+ - We begin to die from the moment we are born, for birth is the cause of death. The nature of decay is inherent in youth, the nature of sickness is inherent in health, in the midst of life we are verily in death.
+ - Stop, stop. Do not speak. The ultimate truth is not even to think.
+ - Life is a river always flowing. do not hold onto things. work hard.
+ - The whole secret of existence is to have no fear.
+ - Friendship is the only cure for hatred, the only guarantee of peace.
+ - Overcome the angry by non-anger; overcome the wicked by goodness; overcome the miser by generosity; overcome the liar by truth.
+ - Stay centered, do not overstretch. Extend from your center, return to your center.
+ - You have no cause for anything but gratitude and joy.
+ - The Way is not in the sky; the Way is in the heart.
+ - The wind cannot overturn a mountain. Temptation cannot touch the man Who is awake, strong and humble, Who masters hiself and minds the law.
+ - Pain in life is inevitable but suffering is not.
+ - A mind unruffled by the vagaries of fortune, from sorrow freed, from defilements cleansed, from fear liberated – this is the greatest blessing.
+ - One who conquers himself is greater than another who conquers a thousand times a thousand on the battlefield.
+ - Believe nothing because it is written in books. Believe nothing because wise men say it is so. Believe nothing because it is religious doctrine. Believe it only because you yourself know it to be true.
+ - This existence of ours is as transient as autumn clouds To watch the birth and death of beings is like looking at the movements of a dance. A lifetime is like a flash of lightning in the sky, Rushing by, like a torrent down a steep mountain.
+ - If you find no one to support you on the spiritual path, walk alone. There is no companionship with the immature.
+ - Things are not what they appear to be: nor are they otherwise.
+ - The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
+ - Mutual respect and mutual listening are the foundations of harmony within the family.
+ - The eating of meat extinguishes the seed of great compassion.
+ - Sometimes it’s better to be kind than to be right. We do not need an intelligent mind that speaks, but a patient heart that listens. You will not be punished for your anger, you will be punished by your anger.
+ - Whoever doesn’t flare up at someone who’s angry wins a battle hard to win.
+ - The thought manifests as the word. The word manifests as the deed. The deed develops into habit. And the habit hardens into character. So watch the thought and its ways with care. And let it spring from love, born out of concern for all beings.
+ - A man may conquer a million men in battle but one who conquers himself is, indeed, the greatest of conquerors.
+ - I gained nothing at all from Supreme Enlightenment, and for that very reason it is called Supreme Enlightenment.
+ - Life is so very difficult. How can we be anything but kind.
+ - It is a man’s own mind, not his enemy or foe, that lures him to evil ways.
+ - Mind precedes all phenomena, mind matters most, everything is mind-made. If with an impure mind, you speak or act, then suffering follows you as the cartwheel follows the foot of the draft animal. If with a pure mind, you speak or act, then happiness follows you as a shadow that never departs.
+ - Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever’s not full makes noise. Whatever is full is quiet.
+ - You yourself must strive. The Buddhas only point the way.
+ - Never tell a lie. Anyone who can tell you the slightest of lies is also capable of any evil.
+ - They who imagine truth in untruth and see untruth in truth will never arrive at the truth.
+ - At the end of the way is freedom. Until then, patience.
+ - And so, with a boundless heart should one cherish all living beings.
+ - Do not speak – unless it improves on silence.
+ - Don’t keep searching for the truth, just let go of your opinions.
+ - People with opinions just go around bothering each other.
+ - For those who are always courteous and respectful of elders, four things increase: life, beauty, happiness and strength.
+ - This is deathless: the liberation of the mind through lack of clinging.
+ - To understand everything is to forgive everything.
+ - Conquer the angry man by love.
+ - He who experiences the unity of life sees his own self in all beings.
+ - To be idle is a short road to death and to be diligent is a way of life; foolish people are idle, wise people are diligent.
+ - What you have become is the result of what you have thought.
+ - No one outside ourselves can rule us inwardly. When we know this, we become free.
+ - As a single drop of water fills a bucket, so do small deeds of evil; as a single drop of water fills a bucket, so do small deeds of good.
+ - If a man lives a pure life, nothing can destroy him.
+ - Conquer anger by love, evil by good; Conquer the miser with liberality, and the liar with truth.
+ - Let go of anger. Let go of pride. When you are bound by nothing You go beyond sorrow.
+ - If you cannot find a good companion to walk with, walk alone, like an elephant roaming the jungle. It is better to be alone than to be with those who will hinder your progress.
+ - A wise man, recognizing that the world is but an illusion, does not act as if it is real, so he escapes the suffering.
+ - The wind cannot shake a mountain. Neither praise nor blame moves the wise man.
+ - Everything is based on mind, is led by mind, is fashioned by mind. If you speak and act with a pure mind, happiness will follow you, as a shadow clings to a form.
+ - Life is easy For the man who is without shame, Impudent as a crow, A vicious gossip, Vain, meddlesome, dissolute. But life is hard For the man who quietly undertakes The way of perfection, With purity, detachment and vigor. He sees light.
+ - Overcome your uncertainties and free yourself from dwelling on sorrow. When you delight in existence, you will awaken, and become a guide to those in need, revealing the path to many.
+ - Do not judge yourself harshly. Without mercy for ourselves we cannot love the world.
+ - Transient are conditioned things. Try to accomplish your aim with diligence.
+ - Know well what holds you back, and what moves you forward.
+ - Delight in meditation and solitude. Compose yourself, be happy. You are a seeker.
+ - When you go into the space of nothingness, everything becomes known.
+ - If a man’s mind becomes pure, his surroundings will also become pure.
+ - The whole secret of existence is to have no fear. Never fear what will become of you, depend on no one. Only the moment you reject all help are you freed. – Buddha No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.
+ - One who is wise and disciplined, always kind and intelligent, humble and free from pride. One like this will be praised.
+ - Your body is precious. It is our vehicle for awakening. Treat it with care.
+ - Chaos is inherent in all compounded things. Strive on with diligence.
+ - When a man has pity on all living creatures then only is he noble.
+ - Reverence, humility, contentment, gratitude and hearing the good Dhamma, this is the best good luck.
+ - Noble friends and companions are the whole of the holy life.
+ - Victory breeds hatred; the defeated live in pain. The peaceful live happily, giving up victory and defeat.
+ - The greatest impurity is ignorance. Free yourself from it. Be pure.
+ - She who knows life flows, feels no wear or tear, needs no mending or repair.
+ - Purity or impurity depends on oneself, no one can purify another.
+ - Wonder of wonders! Intrinsically all living beings are Buddhas, endowed with wisdom and virtue, but because men’s minds have become inverted through delusive thinking they fail to perceive this.
+ - Be the witness of your thoughts.
+ - You should respect each other and refrain from disputes; you should not, like water and oil, repel each other, but should, like milk and water, mingle together.
+ - Teach you? I cannot teach you. Go; experience for yourself.
+ - Inflowing thoughts come to an end in those who are ever alert of mind, training themselves night and day, and ever intent on nirvana.
+ - Let a man avoid evil deeds as a man who loves life avoids poison.
+ - If you can keep as silent as a broken gong, then you have attained, when you know no anger.
+ - Many do not realize that we here must die. For those who realize this, quarrels end.
+ - A dog is not considered a good dog because he is a good barker. A man is not considered a good man because he is a good talker.
+ - Our sorrows and wounds are healed only when we touch them with compassion.
+ - If a man speaks or acts with a pure thought, happiness follows him, like a shadow that never leaves him.
+ - How long the night to the watchman, How long the road to the weary traveller, How long the wandering of many lives To the fool who misses the way.
+ - If you want to understand the causes that existed in the past, look at the results as they are manifested in the present. And if you want to understand what results will be manifested in the future, look at the causes that exist in the present.
+ - If a traveller does not meet with one who is his better, or his equal, let him firmly keep to his solitary journey; there is no companionship with a fool.
+ - Why do what you will regret? Why bring tears upon yourself? Do only what you do not regret, And fill yourself with joy.
+ - No matter what path you choose, really walk it.
+ - Hate is only conquered by love.
+ - Though he should conquer a thousand men in the battlefield a thousand times, yet he, indeed, who would conquer himself is the noblest victor.
+ - Conquer a liar with truth.
+ - Those who recognize the existence of suffering, its cause, its remedy, and its cessation, have fathomed the four noble truths. They will walk in the right path.
+ - To force oneself to believe and to accept a thing without understanding is political, and not spiritual or intellectual.
+ - The darkest night is ignorance.
+ - Be greatly aware of the present.
+ - The mind contains all possibilities.
+ - How does one practice mindfulness? Sit in meditation. Be aware of only your breath.
+ - I have the body of a GOD.
+ - Look not for refuge to anyone beside yourself. Heed fast to the truth as a lamp.
+ - Be your own lamps. Be your own shelters. Hang on to the truth as a lamp. Hang on to the truth as a refuge.
+ - Everything is changeable, everything appears and disappears; there is no blissful peace until one passes beyond the agony of life and death.
+ - But if you do not find an intelligent companion, a wise and well-behaved person going the same way as yourself, then go on your way alone, like a king abandoning a conquered kingdom, or like a great elephant in the deep forest.
+ - It is wrong to think that misfortunes come from the east or from the west; they originate within one’s own mind.
+ - Your greatest weapon is your enemy’s mind.
+ - Seeker, empty the boat, lighten the load, be free of craving and judgment and hatred, and feel the joy of the way.
+ - To abstain from lying is essentially wholesome.
+ - Speak only endearing speech, speech that is welcomed. Speech, when it brings no evil to others, is pleasant.
+ - As the fletcher whittles and makes straight his arrows, so the master directs his straying thoughts.
+ - Always be mindful of the kindness and not the faults of others.
+ - We do not learn by experience, but by our capacity for experience.
+ - This Ariyan Eightfold Path, that is to say: Right view, right aim, right speech, right action, right living, right effort, right mindfulness, right contemplation.
+ - When one feels no shame in telling a deliberate lie, there is no evil, I tell you, he will not do.
+ - Make an island of yourself, make yourself your refuge; there is no other refuge. Make truth your island, make truth your refuge; there is no other refuge.
+ - Heaven and Hell are imaginary creation of ignorant minds.
+ - Our own worst enemy cannot harm us as much as our unwise thoughts. No one can help us as much as our own compassionate thoughts.
+ - If one man kills a hundred men, and another man masters himself, the second man is the much greater warrior.
+ - When an evil-doer, seeing you practise goodness, comes and maliciously insults you, you should patiently endure it and not feel angry with him, for the evil-doer is insulting himself by trying to insult you.
+ - When faced with the vicissitudes of life, one’s mind remains unshaken, sorrow-less, stainless, secure; this is the greatest welfare.
+ - Before giving, the mind of the giver is happy; while giving, the mind of the giver is made peaceful; and having given, the mind of the giver is uplifted.
+ - Attention leads to immortality. Carelessness leads to death. Those who pay attention will not die, while the careless are as good as dead already.
+ - Have compassion for all beings, rich and poor alike; each has their suffering. Some suffer too much, others too little.
+ - Goodwill toward all beings is the true religion; cherish in your hearts boundless goodwill to all that lives.
+ - Most problems, if you give them enough time and space, will eventually wear themselves out.
+ - Wisdom makes light the darkness of ignorance.
+ - Joy comes not through possession or ownership but through a wise and loving heart.
+ - Thousands of candles can be lighted from a single candle. Happiness never decreases by being shared.
+ - Do not give up your authority and follow blindly the will of others. This way will lead to only delusion.
+ - Do not think lightly of good, that nothing will come of it. A whole water pot will fill up from dripping drops of water.
+ - True charity occurs only when there are no notions of giving, giver, or gift.
+ - Only those who go where few have gone can see what few have seen.
+ - O seeker! Rely on nothing until you want nothing.
+ - Persevere in thy quest and thou shalt find what thou seekest. Pursue thy aim unswervingly and thou shalt gain victory. Struggle earnestly and thou shalt triumph.
+ - Your actions are your only true belongings.
+ - From eating meat arrogance is born, from arrogance erroneous imaginations issue, and from imagination is born greed; and for this reason refrain from eating meat.
+ - Go forth in every direction- for the happiness, the harmony, the welfare of the many. Offer your heart, the seeds of understanding, like a lamp overturned and re-lit, illuminating the darkness.
+ - How deeply did you learn to let go?
+ - Do not seek perfection in a changing world. Instead, perfect your love.
+ - Let us live most happily, free from hatred in the midst of the hateful; Let us remain free from hatred in the midst of people who hate.
+ - When things are going well, be mindful of adversityWhen prosperous, be mindful of povertyWhen loved, be mindful of thoughtfulnessWhen respected, be mindful of humility.
+ - More than those who hate you, more than all your enemies, an undisciplined mind does greater harm.
+ - As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse.
+ - Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
+ - Once you know the nature of anger and joy is empty and you let them go, you free yourself from karma.
+ - The wise man makes an island of himself that no flood can overwhelm.
+ - Better than chanting a thousand words in a dead language is one soothing word spoken in the vernacular.
+ - If you knew what I know about the power of giving, you would not let a single meal pass without sharing it in some way.
+ - Dwell not on the faults and shortcomings of others; instead, seek clarity about your own.
+ - Like a lovely flower full of color but lacking in fragrance, are the words of those who do not practice what they teach.
+ - Speak or act with a pure mind, and happiness will follow you as your shadow, unshakable.
+ - Hate never ends hate. Only love can.
+ - Every human being is the author of his own health or disease.
+ - The less you have, the less you have to worry about.
+ - Do not overrate what you have received, nor envy others. He who envies others does not obtain peace of mind.
+ - The wise have mastered body, word, and mind. They are the true masters.
+ - Do not believe in anything simply because you have heard it. But after observation and analysis, when you find that anything agrees with reason and is conducive to the good and benefit of one and all, then accept it and live up to it.
+ - If we destroy something around us we destroy ourselves. If we cheat another, we cheat ourselves.
+ - There is, Oh Monks, a not-born, a not-become, a not-made, a not-compounded. Monks, if that unborn, not-become, not-made, not-compounded were not, there would be no escape from this here that is born, become, made and compounded.
+ - Right perspective is no perspective or all perspectives.
+ - Crying with the wise is better than laughing with the fool.
+ - I have the True Dharma Eye, the Marvelous Mind of Nirvana, the True Form of the Formless, and the Subtle Dharma Gate, independent of words and transmitted beyond doctrine. This I have entrusted to Mahakashyapa.
+ - Forgive and be free. Forget that you have forgiven and be freer.
+ - Of all the worldly passions, lust is the most intense. All other worldly passions seem to follow in its train.
+ - Whatever an enemy might do to an enemy, or a foe to a foe, the ill-directed mind can do to you even worse.
+ - All beings wish for happiness, so extend your compassion to all.
+ - There is no meditation without wisdom, and there is no wisdom without meditation. When a man has both meditation and wisdom, he is indeed close to nirvana.
+ - As you travel though life, offer good wishes to each being you meet.
+ - I knew that most people never see this reality because they attach to the material aspect of the world. Illusions of self and other fill their vision. I also realized there are those with little dust limiting their vision.
+ - To walk safely through the maze of human life, one needs the light of wisdom and the guidance of virtue.
+ - If a man possesses a repentant spirit his sins will disappear, but if he has an unrepentant spirit his sins will continue and condemn him for their sake forever.
+ - Suffering is an illusion.
+ - Live joyfully, without desire.
+ - Do not believe what your teacher tells you merely out of respect for the teacher.
+ - He who loves 50 people has 50 woes; he who loves no one has no woes.
+ - One should not kill a living being, nor cause it to be killed, nor should one incite another to kill. Do not injure any being, either strong or weak, in the world.
+ - Wherever we go, wherever we remain, the results of our actions follow us.
+ - Overcoming yourself is better than overcoming a million enemies in battle.
+ - Through zeal, knowledge is gotten; through lack of zeal, knowledge is lost.
+ - Just as a line drawn on water with a stick will quickly vanish and will not last long; even so, brahmins, is human life like a line drawn on water. It is short, limited, and brief; it is full of suffering. One should do good and live a pure life; for none who is born can escape death.
+ - Do not breathing in the chronological, do not dream of the later, drain the intellect on the bring about twinkling.
+ - When your mind is set in meditative equipoise, you can see reality exactly as it is.
+ - Wherever there is light, there is shadow; wherever there is length, there is shortness; wherever there is white, there is black. Just like these, as the self-nature of things can not exist alone, they are called non-substantial.
+ - Water surrounds the lotus flower, but does not wet its petals.
+ - Whatever grounds there are for making merit productive of a future birth, all these do not equal a sixteenth part of the liberation of mind by loving-kindness. The liberation of mind by loving-kindness surpasses them and shines forth, bright and brilliant.
+ - You can search the entire universe and not find a single being more worthy of love than you.
+ - Awake. Be the witness of your thoughts. The elephant hauls himself from the mud. In the same way drag yourself out of your sloth.
+ - Whoever sees me sees the teaching, and whoever sees the teaching sees me.
+ - Better than a meaningless story of a thousand words is a single word of deep meaning which, when heard, produces peace.
+ - Life can only take place in the present moment. If we lose the present moment, we lose life.
+ - When we free ourselves of desire, we will know serenity and freedom.
+ - Better is to speak unpleasant truth than to tell lies.
+ - To insist on a spiritual practice that served you in the past is to carry the raft on your back after you have crossed the river.
+ - You too shall pass away. Knowing this, how can you quarrel?
+ - All composite things pass away. Strive for your own liberation with diligence.
+ - The shallow is easy to embrace, but the profound is difficult. To discard the shallow and seek the profound is the way of a person of courage.
+ - Abstain from all sinful, unwholesome actions, perform only pious wholesome ones, purify the mind; this is the teaching of enlightened ones.
+ - Don’t pray for lighter burdens, but for stronger backs.
+ - As the bee collects nectar and departs without injuring the flower, or its color or fragrance, so let the sage dwell on earth.
+ - He who is kind to animals heaven will protect.
+ - Easy to do are things that are bad and harmful to oneself. But exceedingly difficult to do are things that are good and beneficial.
+ - Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others – he does not partake of the blessings of the holy life.
+ - If there be one righteous person, the rain falls for his sake.
+ - If you are poor, live wisely. If you have riches, live wisely. It is not your station in life but your heart that brings blessings.
+ - Until he has unconditional and unbiased love for all beings, man will not find peace.
+ - Those who really seek the path to Enlightenment dictate terms to their mind. Then they proceed with strong determination.
+ - We must be diligent today. To wait until tomorrow is too late. Death comes unexpectedly. How can we bargain with it?
+ - Foolish, ignorant people indulge in careless lives, whereas a clever man guards his attention as his most precious possession.
+ - Don’t indulge in careless behaviour. Don’t be the friend of sensual pleasures. He who meditates attentively attains abundant joy.
+ - An unreflective mind is a poor roof. Passion, like the rain, floods the house. But if the roof is strong, there is shelter. Whoever follows impure thoughts Suffers in this world and the next. In both worlds he suffers And how greatly.
+ - How wonderful, how miraculous, all beings, but all beings, are fully endowed with the wisdom and power of the Tathagat. But, sadly, human beings, due to sticky attachments, are not aware of it.
+ - There are having flowers in Spring, breezes in Summer, moon in Autumn, snows in Winter. If there is nothing worrying over you, it will be the best seasons at all times.
+ - Following the Noble Path is like entering a dark room with a light in the hand; the darkness will all be cleared away, and the room will be filled with light.
+ - It is more important to prevent animal suffering, rather than sit to contemplate the evils of the universe praying in the company of priests.
+ - Sometime, somewhere you take something to be the truth. But if you cling to it too strongly, then even when the truth comes in person and knocks on your door, you will not open it.
+ - Explanation of the unspeakable cannot be finished.
+ - The good renounce everything. The pure don’t babble about sensual desires. Whether touched by pleasure or pain, the wise show no change of temper.
+ - Master your words. Master your thoughts. Never allow your body to do harm. Follow these three roads with purity And you will find yourself upon the one way, The way of wisdom.
+ - After much seeking for truth and knowledge the profoundness of reality came to me with a clarity never before known.
+ - If the traveller can find A virtuous and wise companion Let him go with him joyfully And overcome the dangers of the way. But if you cannot find Friend or master to go with you, Travel on alone.
+ - The one who wanders independent in the world, free from opinions and viewpoints, does not grasp them and enter into disputations and arguments. As the lotus rises on its stalk unsoiled by the mud and the water, so the wise one speaks of peace and is unstained by the opinions of the world.
+ - Don’t give way to heedlessness or to intimacy with sensual delight – for a heedful person, absorbed in jhana, attains an abundance of ease.
+ - He who walks in the company of fools suffers much. Company with fools, as with an enemy, is always painful. Company with the wise is pleasure, like meeting with kinfolk.
+ - Dignity and quiet joy in all that we do are the expression of perfect concentration and perfect wisdom.
+ - One is not called noble who harms living beings. By not harming living beings one is called noble.
+ - Imagine that every person in the world is enlightened but you. They are all your teachers, each doing just the right things to help you learn perfect patience, perfect wisdom, perfect compassion.
+ - Resolutely train yourself to attain peace.
+ - An ignorant man ages like an ox. His flesh may increase, but not his understanding.
+ - To live a single day and hear a good teaching is better than to live a hundred years without knowing such teaching.
+ - This is my child, this is my wealth: such thoughts are the preoccupations of fools. If we are unable to own even ourselves, why make such claims?
+ - A wrong action may not bring its reaction at once, even as fresh milk turns not sour at once: like a smouldering fire concealed under ashes it consumes the wrongdoer, the fool.
+ - Believe, meditate, see. Be harmless, be blameless. Awake to the law. And from all sorrows free yourself.
+ - If a man should conquer in battle a thousand and a thousand more, and another should conquer himself, his would be the greater victory, because the greatest of victories is the victory over oneself.
+ - Therefore, be ye lamps unto yourselves, be ye a refuge to yourselves. Hold fast to the truth as a lamp; hold fast as a refuge to the truth. Look not for refuge to anyone besides yourselves.
+ - You are the source of all purity and impurity. No one purifies another.
+ - All descriptions of reality are temporary hypotheses.
+ - Few are those among men who have crossed over to the other shore, while the rest of mankind runs along the bank. However those who follow the principles of the well-taught Truth will cross over to the other shore, out of the dominion of Death, hard though it is to escape.
+ - Dharma is not upheld by talking about it. Dharma is upheld by living in harmony with it...
+ - Wakefulness is the way to life. The fool sleeps As if he were already dead, But the master is awake And he lives forever.
+ - All rising to great places is by a winding stair.
+ - You are all the Buddha.
+ - Love the whole world as a mother loves her only child.
+ - Not even death can wipe out our good deeds.
+ - Careful amidst the careless, amongst the sleeping wide-awake, the intelligent man leaves them all behind, like a race-horse does a mere hack.
+ - I am always at the beginning.
+ - All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.
+ - Temperance is a tree which as for its root very little contentment, and for its fruit calm and peace.
+ - Harm no other beings. They are just your brothers and sisters.
+ - Find out for yourself what is truth, what is real. Discover that there are virtuous things and there are non-virtuous things. Once you have discovered for yourself give up the bad and embrace the good.
+ - Let no person think lightly of good, saying in his or her heart, “it will not benefit me.” As by the falling of raindrops a jar of water is filled, so the wise person becomes full of good, even though he or she collects it little by little.
+ - It is our minds that create this world.
+ - Wherever there is possession of marks, there is fraud ; wherever there is no-possession of no-marks, there is no fraud. Hence the Tathagata is to be seen from no-marks as marks.
+ - There are two fatal errors that keep great projects from coming to life: 1. Not finishing 2. Not starting.
+ - If a man who enjoys a lesser happiness beholds a greater one, let him leave aside the lesser to gain the greater.
+ - Apply yourself to solitude. One who is given to solitude knows things as they really are.
+ - To know and not to use is not yet to know!
+ - O men! you can take life easily but, remember, none of you can give life! So, have mercy, have compassion! And, never forget, that compassion makes the world noble and beautiful.
+ - As I am, so are others as others are, so am I. Having thus identified self and others, harm no one nor have them harmed.
+ - In this world Hate never yet dispelled hate. Only love dispels hate. This is the law, Ancient and inexhaustible.
+ - Man’s troubles are rooted in extreme attention to senses, thoughts, and imagination. Attention should be focused internally to experience a quiet body and a calm mind.
+ - Letting go of our suffering is the hardest work we will ever do.
+ - I teach about suffering and the way to end it.
+ - Don’t rely on logic alone, nor speculation. Don’t infer or be deceived by appearances.
+ - The foot feels the foot when it feels the ground.
+ - Seeking but not finding the house builder I travelled through life after life. How painful is repeated birth! House-builders, you have now been seen. You will not build the house again.
+ - Rain falls, wind blows, plants bloom, leaves mature and are blown away; these phenomena are all interrelated with causes and conditions, are brought about by them, and disappear as the causes and conditions change.
+ - Like a caring mother holding and guarding the life of her only child, so with a boundless heart of loving kindness, hold yourself and all beings as your beloved children.
+ - Mankind have love, animals have affection. The harmonious and beautiful world is revealed.
+ - Do not overlook tiny good actions, thinking they are of no benefit; even tiny drops of water in the end will fill a huge vessel. Do not overlook negative actions merely because they are small; however small a spark may be, it can burn down a haystack as big as a mountain.
+ - Ye must leave righteous ways behind, not to speak of unrighteous ways.
+ - With gentleness overcome anger. With generosity overcome meanness. With truth overcome deceit.
+ - There is no more self-contradictory concept than that of idle thoughts. What gives rise to the perception of a whole world can hardly be called idle. Every thought we have either contributes to truth or to illusion.
+ - The poisonous serpent of afflictions is sleeping in your mind; just as if a black viper were asleep in your room. You must use the hook of precepts to quickly remove it. When the sleeping snake is gone, then you can rest at ease.
+ - In protecting oneself, others are protected; In protecting others, oneself is protected.
+ - To support mother and father, to cherish wife and children, and to be engaged in peaceful occupation – this is the greatest blessing.
+ - A noble person is mindful and thankful for the favors he receives from others.
+ - Observe the life by cause and consequence. Explore the life by wisdom. Treat the life by equality. Complete the life by love.
+ - I will purify my bodily actions through repeated reflection. I will purify my verbal actions through repeated reflection. I will purify my mental actions through repeated reflection. That’s how you should train yourself.
+ - To stop suffering, stop greediness. Greediness is a source of suffering.
+ - Beings are owners of their actions, heirs of their actions; they originate from their actions, are bound to their actions, have their actions as their refuge. It is action that distinguishes beings as inferior and superior.
+ - Do not be thoughtless, always be mindful, watch your thoughts! Draw yourself out of the path of evil, like an elephant sunk in mud.
+ - One is not low because of birth nor does birth make one holy. Deeds alone make one low, deeds alone make one holy.
+ - Let your mind become clear like a still forest pool.
+ - Let none find fault with others; let none see the omissions and commissions of others. But let one see one’s own acts, done and undone.
+ - If people become accustomed to lying, they will unconsciously commit every possible wrong deed. Before they can act wickedly, they must lie and once they begin to lie they will act wickedly without concern.
+ - There is pleasure And there is bliss. Forgo the first to possess the second. If you are happy At the expense of another man’s happiness, You are forever bound.
+ - Through zeal, knowledge is gotten, through lack of zeal, knowledge is lost; let a man who knows this double path of gain and loss thus place himself that knowledge may grow.
+ - As long as one feels that he is the doer, he cannot escape from the wheel of births.
+ - All acts of living become bad by ten things, and by avoiding the ten things they become good. There are three evils of the body, four evils of the tongue, and three evils of the mind.
+ - A man should first direct himself in the way he should go. Only then should he instruct others.
+ - Karma grows from our hearts. Karma terminates from our hearts.
+ - Never in the world does hatred cease by hatred; hatred ceases by love.
+ - There has to be evil so that good can prove its purity above it.
+ - A brahmin once asked The Blessed One: “Are you a God?” “No, brahmin” said The Blessed One. “Are you a saint?” “No, brahmin” said The Blessed One. “Are you a magician?” “No, brahmin” said The Blessed One. “What are you then?” “I am awake.”
+ - For innumerable reasons, Mahamati, the Bodhisattva, whose nature is compassion, is not to eat any meat.
+ - If you don’t see God in the next person you meet, look no further.
+ - One who does not rouse themself when it is time to rise, who, though capable, is full of sloth, whose will and thought are weak, that lazy and idle person will never find their way to true knowledge.
+ - Do not believe anything because it is said by an authority, or if it is said to come from angels, or from Gods, or from an inspired source. Believe it only if you have explored it in your own heart and mind and body and found it to be true. Work out your own path, through diligence.
+ - The kingdom of heaven is closer than the brow above the eye but mankind does not see it.
+ - Follow the way of virtue. Follow the way joyfully through this world and on beyond.
+ - But when one masters this wretched desire, which is so hard to overcome, then one’s sorrows just drop off, like a drop of water off a lotus.
+ - The virtues, like the Muses, are always seen in groups. A good principle was never found solitary in any breast.
+ - To meditate is to listen with a receptive heart.
+ - Let us live in joy, never falling sick like those who hate us. Let us live in freedom, without hatred even among those who hate.
+ - With good will for the entire cosmos, cultivate a limitless heart: above, below, and all around, unobstructed, without hostility or hate.
+ - Drink deeply. Live in serenity and joy.
+ - What is the appropriate behavior for a man or a woman in the midst of this world, where each person is clinging to his piece of debris? What’s the proper salutation between people as they pass each other in this flood?
+ - A great gift – a gift of Dharma conquers all gifts.
+ - A raft needed to cross the river is discarded when the other shore is reached, not carried about on one’s head.
+ - Happiness never decreased by being shared.
+ - One moment, ten thousand years. Ten thousand years, one moment.
+ - Joyful is the accumulation of good work.
+ - He whose inflowing thoughts are dried up, who is unattached to food, whose dwelling place is an empty and imageless release – the way of such a person is hard to follow, like the path of birds through the sky.
+ - Know what you do not know.
+ - Our good and bad deeds follow us almost like a shadow.
+ - May everyone be happy and safe, and may their hearts be filled with joy.
+ - To be selfish, greedy and unwilling to help the needy gives rise to future starvation and clothlessness.
+
+500 quotes

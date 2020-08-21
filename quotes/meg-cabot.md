@@ -1,0 +1,204 @@
+ - Courage is not the absence of fear but rather the judgement that something is more important than fear; The brave may not live forever but the cautious do not live at all.
+ - Sometimes what you want is right in front of you. All you have to do is open your eyes and see it.
+ - Looks can be deceiving.
+ - The brave may not live forever, but the cautious do not live at all.
+ - But really, the term “forgive and forget” doesn’t make sense to me. Forgiving does allow us to stop dwelling on an issue, which isn’t always healthy. But if we forget, we don’t learn from our mistakes. And that can be deadly.
+ - There is a difference between listening and hearing, just as there is a difference between seeing and knowing.
+ - You’re not a one hundred dollar bill, not everyone is going to like you.
+ - Check yourself before you wreck yourself.
+ - Being brave is when you have to do something because you know it is right, but at the same time, you are afraid to do it, because it might hurt or whatever. But you do it anyway.
+ - Lilly says I have an overactive imagination and a pathological need to invent drama in my life.
+ - Write the kind of story you would like to read. People will give you all sorts of advice about writing, but if you are not writing something you like, no one else will like it either.
+ - If you love something, set it free. If it was meant to be, it will come back to you.
+ - Anything can happen in the blink of an eye. Anything at all. One. Two. Three. Blink.
+ - Home. Wow. I’m already calling it home. Well, isn’t that what any place is? Any place that you share with someone you love, I mean?
+ - I mean it. Like, people always talk about how God doesn’t ever give you more than you can handle, but I’m telling you right now, I cannot handle this. This is just too much!
+ - I get accused all the time of having a big mouth. But if you ask me, guys gossip way more than girls do.
+ - Only a fool is never afraid, Frank. Heroes are the people who carry on despite their fear, because they know the job’s got to get done.
+ - Unrequited love is all right in books and things, but in real life, it completely sucks.
+ - I think we make our own luck. Our parents give us life, but what we do with that life is our own responsibility.
+ - I don’t think he could ever be a serial killer. He’s way too shy. That Ted Bundy guy, he was pretty outgoing, from what I heard. -Jess about Doug p. 107.
+ - Oh, that’s just great. I come all the way back here, risking major brain cell burnout, and you don’t even believe me? I’m basically guaranteeing myself a lifetime of heartbreak, and all you have to say is that you think I’m not right in the head?
+ - And try to remember what we discussed, Susannah. A mediator is someone who helps others resolve conflicts. Not someone who, er, kicks them in the face.
+ - But he’s looking for love in all the wrong places. Like fancy under catalogs At least he knows enough not to date while he’s campaigning.
+ - And now Rocky is begging me to watch Dora the Explorer with him. I understand that millions of kids love Dora and have learned to read or whatever from her show. But I wouldn’t mind if Dora fell off a cliff and took her little pals with her.
+ - A WRINKLE IN TIME is one of my favorite books of all time. I’ve read it so often, I know it by heart. Meg Murry was my hero growing up. I wanted glasses and braces and my parents to stick me in an attic bedroom. And I so wanted to save Charles Wallace from IT.
+ - There’s no accountability anymore, Pierce, no one holds anyone accountable for what they do. It’s always someone else’s fault. Usually people just blame the victim.
+ - Sometimes in life, you fall down holes you can’t climb out of by yourself. That’s what friends and family are for-to help. They can’t help, however, unless you let them know you’re down there.
+ - I’m sorry, Heather, but everything was not just fine before I got here. You know how I know that? Because you’re dead. Okay? You are dead. Dead people don’t have lockers, or best friends, or boyfriends. You know why? Because they’re dead.-Suze Simon.
+ - Life’s not easy for unicorns, you know. We’re a dying breed.
+ - If kisses were what you were looking for, little fool, why didn’t you come to me? quoted by Susannah Simon.
+ - The peace sign is with two fingers not one.
+ - Hormones are very powerful things. We are helpless in their wake.
+ - Mia, I’m not sorry. And I’ll wait. Love, Michael.
+ - Nice to know I have that effect on boys. I mean, Christopher doesn’t even know I exist, and Brandon Stark practically throws up when he sees me. Having my brain transplated into a supermodel’s body was doing wonders for my love life.
+ - This is not to say that I wasn’t completely repulsed. I mean, I wasn’t exactly proud that my stepbrother was in there tongue wrestling with the second stupidest person in our class, after himself.
+ - God, what if TMZ got hold of the truth about me? What a liar I am, I mean? What kind of role model am I? I make Vanessa Hudgens look like Mother Freaking Teresa. Minus the whole nudity thing. Because I’m not about to take naked photos of myself and send them to my boyfriend.
+ - I love the Princess Diaries series! Do you?
+ - Nikki “Brandon’s never hurt anyone. He’s competely sweet and adorable.” I choked a little on the sip of sparkling water I’k just swallowed. If Brandon was sweet and adorable, I was Satan’s bride.
+ - The fact is, I love him. He’s the boy I want and one day he’ll be MINE.
+ - I don’t do alcohol. Or other people’s boyfriends. And don’t you forget it.
+ - But it’s there. Just because I haven’t told anyone doesn’t mean it isn’t there, all the time, lurking in the back of my mind, like one those NSync songs you can’t get out of your head.
+ - I don’t have kids, but in many ways I feel I’ve had them already. I don’t want to say I raised my brothers – that sounds too strong – but actually I do feel like that a bit.
+ - When you feel like an outsider – for whatever reason – you spend a lot of time alone.
+ - I’ve come to the conclusion that, aside from Nazis, the Taliban, and possibly the honey badger, there is no one on the planet more merciless than a teenage girl once she’s decided she dislikes you.
+ - I like ’em big. And stupid. Don’t tell my husband.
+ - Do not chase boys. Chasing boys is bad. Chasing boys can lead to horrible things like mansions going up into flames, hand amputations, and blindness. So have some self respect and don’t let things get too far before the wedding day.
+ - Bite me, Harry Potter.
+ - Aaron, in order to die you have to live a little first.
+ - Was it frisson when you saw a guy smile and it made your heart act all weird?
+ - In order for people to be happy, sometimes they have to take risks. It’s true these risks can put them in danger of being hurt.
+ - If you really love someone, even if you can’t see where you’ll be or what you’ll be doing twenty years from now, you’d still want that person to be there.
+ - But then I remembered something Grandmere had once assured me of: No one has ever died of embarrassment-never, not once in the whole history of time.
+ - It’s so much easier to walk away than it is to have to explain to someone that you never want to see them again.
+ - Always be true to your friends, just as you are to yourself.
+ - You can’t turn love on and off like a faucet.
+ - Because my heat was too full of appreciation for what my friends – my real friends – had done for me.
+ - I usually know almost exactly how I feel. The problem is, I just can’t tell anyone.
+ - It’s only in fairy tales that princesses can afford to wait for the handsome prince to save them. In real life, they have to bust out of their own coffins and do the saving themselves.
+ - I swear, sometimes I am convinced my life is just a series of sketches for America’s Funniest Home Videos, minus all that pants-dropping business. Except my life really isn’t all that funny if you think about it.
+ - There was a DJ who stayed up for eleven days straight, the longest recorded period of time anyone has ever gone without sleep, and he started playing nothing by Phil Collins, and that’s how they knew it was time to call the ambulance.
+ - My favorite book of all time is Cold Comfort Farm, by Stella Gibbons.
+ - I don’t give books as gifts. Books are extremely personal, and I would hate to give someone a book that they don’t like or want, because it would break my heart if they didn’t read it.
+ - Why can’t you just get married in Las Vegas like normal Americans?
+ - It just goes to show that what one person considers a “bad attitude” might actually just be total frustration over being pushed beyond the brink of one’s mental and physical endurance.
+ - Life isn’t a romance novel. The truth is, the reason romance novels sell so well – – the reason why everyone loves them – – is because no one’s life is actually like that. Everyone WANTS their life to be like that.
+ - Maybe nobody has a right to tell anybody to shut up. Maybe this is how wars get started, because someone tells someone else to shut up, and then no one will apologize.
+ - You want a happy romantic relationship? Don’t ruin it by getting married.
+ - She hadn’t slain the dragon. Not at all. She hoped no one ever would.
+ - They say it’s always darkest until right before the dawn. I’ve worked on enough projects to know how true this saying really is.
+ - My family, theyre story tellers. My mom is Irish, and my dad is Italian. In my family, we werent allowed to watch TV while we ate – we had to sit around the table and tell stories about our day.
+ - My original inspiration was my mom: a few years after the death of my dad, she started dating one my teachers!
+ - You’ll blow up a helicopter, but you won’t go out with me? What is wrong with you?
+ - You know your Lamborghini is on fire, right?
+ - You know what you sound like? A jealous girl friend. And how are things on Planet You Wish?
+ - I was the kind of kid who couldn’t really stop making up stories during class. I didn’t do very well academically because I was always drawing these little doodles in the margins of my notebooks and I wasn’t bringing home the best grades.
+ - Maybe you just saw what you wanted to see. Or maybe you justfelt what you wanted to feel.
+ - And in what fairy tale would John ever be any sane person’s idea of Prince Charming anyway? He was the opposite of charming. More like Prince Terrifying.
+ - Honey, some boys stopped by to see you. They had wood.
+ - Did you see him? I know the photo was grainy, but he looks like one of those death metal goth heads, or whatever they’re called. All dressed in black with long hair I took umbrage at my mother describing my boyfriend this way. John was the Lord of the Underworld. How else was he supposed to dress?
+ - I stood on Susan Boone’s front porch, feeling lame. But then, since I’ve pretty much felt lame my entire life, this was no big surprise. On the other hand, usually I felt lame for no particular reason. This time I really had a reason to feel lame.
+ - But I’m living proof you don’t have to spend a lot in order to look great.
+ - I realized that life is so short: Why waste one minute of it worrying what other people think or say about you, or what score you got on some test? Why not believe what you want to believe, and do what you love?
+ - There will be no more British guys. Unless they are members of the royal family, of course.
+ - And generally, when people say good night, they keep their tongues to themselves.
+ - But if that was really true, why in the name of all that is holy would anyone have ever liked Nikki in the first place? I was becoming more and more convinced she was a cross between Heidi Montag and Hitler.
+ - One of the many advantages of having a boyfriend who is half French is that his culinary repertoire extends beyond mac and cheese. Plus, there’s the kissing.
+ - One of the biggest mistakes girls can make concerning their romantic life is sitting around waiting for their prince to find them, rather than getting out there and finding him themselves.
+ - Whoa. If high school was suppose to be the best years of my life – at least so far – I was truly destined to have a sucky adulthood.
+ - Also, I think I felt something come loose back there. I’m not trying to overreact or anything but I think it was my uterus. Honest. I think my uterus jiggled free. My uterus is just going to come out between my legs and I’m going to look like I’m walking around with an enormous load in my pants.
+ - Save your rejections so that later when you are famous you can show them to people and laugh.
+ - Sometimes I just want to write a really intense love scene. But I can’t do that in my books for teens, or parents will complain – believe me, I’ve tried.
+ - And I like a good horror story as much as the next person so long as they kill off some men too and not just girls. But the voices Joan heard were real. There’s clear and substantiated proof they were real.
+ - I felt as if the Milky Way, hovering above our heads like a celestial pitcher, had suddenly overturned, pouring suns and planets down my throat. Stars seemed to be shooting out of my finger and toes, the ends of my hair.
+ - Kings don’t sneak.
+ - The first thing we did was change all the clocks so that her siblings thought it was bedtime, then put them to bed ignoring their plaintive protests that they were not tired. They wept themselves to sleep soon enough.
+ - What’s the point? was my attitude. We’re all just going to die and then NOT be let on the boat.
+ - If it turned out Brandon Stark also likes to dress up as Strwberry Shortcake while playing croquet with his miniture pony collection, I totally wouldn’t be surprised anymore.
+ - I might look like a honey-eyed schoolgirl on the outside, in my skirt with its regulation four-inches-above-the-knee hem. But I’ll rip those tassels off your shoes, old man. Just try Googling me.
+ - I think if I hadn’t been a writer, I’d have been a teacher like my dad. He was a college professor, and one of my greatest regrets is that he passed away before I was able to prove to him that I wasn’t going to be stuck working at Rax Roast Beef for the rest of my life!
+ - Cal: “Could you write a little bigger? I’m not sure China saw that.” Every Boy’s Got One.
+ - I was an unhappy child, and that puts me off having a child of my own.
+ - But I don’t care what Megan Fox or Jessica Biel say: There are definite advantages to being the hottest girl on the planet. Number one was that I got paid for it. A lot.
+ - Though I imagine in your case, trying not to fall just made you fall harder.
+ - One of the reasons that I think I do love to write is because I did have a difficult childhood and not so great teenage years. It always helped me escape from my problems.
+ - Escape from the realm of the dead is impossible. She’s not dead. Not this time.
+ - Diet Coke does not contain nasty chemicals. It contains lovely and delicious carbonation, caffeine, and aspartame. What’s unnatural about that?
+ - Lana looked at me like I’d just said I’d never watched Bring It On, or something.
+ - That hurt querida, that really hurt.
+ - No one wants to pursue anything creative anymore, because that’s too risky. They may not get the kind of return on the financial investment they’ve made in their education that they think they should.
+ - The fact that he was willing to sacrifice his own face in order to keep mine from getting bashed in.
+ - In high school, I was very active in extracurricular activities such as art, theatre, and choir. I also wrote for the school newspaper, but not regularly, because I never liked writing non-fiction very much.
+ - Querida.
+ - I really liked drama and being in plays, so when I was playing a character onstage and I could act like somebody else, then I wasn’t scared or nervous, but I didn’t like meeting new people when I had to be myself. That was scary.
+ - Foxy girls know that silence may be golden-but only for four seconds. Anything longer and you’re heading for Awkward Avenue.
+ - I wonder what it’s like to live in Tinaville. I get the feeling it’s very shiny there.
+ - Michael has never cried during a Broadway show. Except in that scene where Tarzan’s ape father is brutally murdered. And that was only because he was laughing so hard.
+ - I really wanted to be veterinarian, but I got a 410 on my math SATs.
+ - Sometimes we need to take big risks if we want to find out who we are, and what we were put on this planet for.
+ - It’s truly weird how everyone just thinks they can bring me Diet Coke and everything will be okay. Especially since it’s pretty much true.-Lizzie Nichols.
+ - I’ve never even been to Long Island.
+ - Sleepy pulled the car to a stop in front of this paved entranceway, which was flanked on either side by these enormous palm trees, kind of like the Polynesian Resort at Disney World. In fact, the whole place had kind of a Disney feel to it. You know, really big, and kind of modern and fake.
+ - Needless to say, the fact that he actually spoke to me at all practically caused me to pass out. And then the fact that he was actually saying something that sounded like it might be a prelude to asking me out – well, I nearly threw up. I mean it. I felt really sick, but in a good way.
+ - Strong female characters – even if they don’t necessarily make the same decisions that we might – make such great narrative material, especially when there’s an equally strong male character in the mix.
+ - Smiles like that should be against the law. Considering what they do to a girl.
+ - But I guess you would look beatific, too, if the man you had been in love with since the fifth grade had told you that he was in love with you, too.
+ - What is the appropriate reply to make to a man who says he loves you? Thank you. You are very kind.
+ - But I had loved him. A part of me still did. Maybe more than a part of me, because I’m a complete moron.
+ - In high school, I wanted to be an actress. Until I got to college and took some creative writing courses. Then I decided I wanted to become a novelist.
+ - Oh my God. I thought I was going to have an aneurysm right there in line. Your hair smells really good? Your hair smells really good? Who did he think he was? James Bond? You don’t tell someone their hair smells good. Not in a mall.
+ - Why should women have to fit into child sizes in order to be considered desirable? That is both sick and depressing.
+ - I know. I seriously need to just give up men entirely. I wonder if Episcopalians can enter convents?
+ - We can all agree that first loves can be a scary thing, and that growing up is hard to do.
+ - For each book, I do end up making a kind of playlist to fit the characters.
+ - No. The answer was no, I was not all right. I nearly got knocked out. Knocked out by desire! Desire for forbidden dissimilar molecules.
+ - Who knew an elf queen could be so vicious!
+ - Mr. Greer timed all our speeches with an oven timer. Things were nothing at Tribeca Alternative, considered one of Manhattan’s finest prep schools, if not high tech.
+ - I’ll put a bullet through my own brain. Let alone wait for stark to do it. Your sister will drive me to it, Howard. No offense.
+ - It was considerably larger than a knife hilt.
+ - I stare at her, as dumbstruck as if she’d just admitted she’s a Scientologist with an invitation to join Tom and Katie on the spaceship when it shows up.
+ - I needed another soda. I’d only had six since breakfast.
+ - Because when you love something, you want to do it all the time, even if no one is paying you for it. At least that’s how I felt about drawing.
+ - Usually writer’s block arises when something is wrong internally with the story.
+ - I won’t tell you how I managed to break in, since I don’t want the authorities figuring out, but let’s just say that if you’re going to make a gate, make sure it reaches all the way to the ground.
+ - But I intend to enjoy the weeks I have left with you to the fullest. Because I know from my study of the philosophy of time, whatever is going to happen in the future is already unavoidable.
+ - French: why does this language even exist? Everyone there speaks english anyway.
+ - I don’t seem to fit to associate with humans.
+ - It’s kind of depressing, if you think about it. I mean, me being so young, and yet so cynical and suspicious.
+ - I didn’t even think about suggesting he take the boots off. There’d probably be a apocalypse or something.
+ - Even though I loved to write, I never liked English lit. class very much. I think it ruins books when you dissect them too much. I liked my art classes best.
+ - I think you get so wrapped up in the book you’re currently writing, it’s hard to think about anything else. But I know as soon as I’m done with this book, I’ll move on to something else.
+ - Pretty isn’t the only thing that matters – being smart and kind matters more, of course – but all daughters should hear from their moms that they look pretty once in a while.
+ - Someone, I was beginning to suspect, had a bit of a gangster complex. It wasn’t really very hard to figure out who. I mean, I was guessing it wasn’t Christopher’s aunt Jackie.
+ - Jesse, this is Craig. Craig, Jesse. You two should get along. Jesse’s dead, too.
+ - Jake leaned on the horn, swearing loudly. Gina covered her eyes. Doc flung his arms around me, burying his face in my lap, and Dopey, to my great surprise, began to scream like a girl, very close to my ear...
+ - I used to draw and illustrate, but I don’t do that anymore because I just like to write. I like to leave the illustrations to actual professional illustrators.
+ - See? Anger can be healthy. When the time comes–and it will come–remember that. And what I said. Embrace your powers–love yourself the way Nature made you, and you will prevail. Always.
+ - But things were different now. I finally had my head -pun intended- on straight.
+ - Why had I taken all those useless classes like bio and German when I should have been taking lipreading?
+ - Weight doesn’t matter. It really doesn’t. I mean, it does if you’re a model or whatever.
+ - I lay there in my black slip dress and wondered if I ought to have worn pants. I mean, who knew what I was going to find up there? What if I had to do some climbing? People might see my underwear.
+ - Someday you’re really going to have to describe to me in more detail what life is like on the planet you live on. Because it sounds really great, and I’d like to visit there one day.
+ - Have you tried this shrimp? It’s freaking amazing. Would you get away from me? I hate you. You’re so moody. Just because I kidnapped you and tried to force you to be my girlfriend. I thought you would be over that by now.
+ - They’ve arrested Sebastian! For m-murder! You’ve g-got to stop them! He d-didn’t do it! He can’t have done it! He doesn’t believe in murder! He’s a v-vegetarian!
+ - I was in love with Scott Bennett. That I had been in love with him my whole life, practically.
+ - I wish I had taken Spanish instead of French in high school. I could eavesdrop on a lot more conversations on the subway if I knew Spanish.
+ - I think we’re given multiple chances to meet multiple soulmates. Sure, you could meet a soulmate in highschool. But that doesn’t mean if you don’t act on it, you’ll never meet anyone else. You will, just at a time that’s more convenient for you.
+ - It’s just that the times I’m wrong don’t register in your memory with as much clarity as the times I’m right.
+ - Wait. Why am I thinking about Krispy Kremes? We’re supposed to be exercising.
+ - Writing is a workout, just like going for a run!
+ - I’m a liar. And I can’t stop thinking about boys.
+ - What is the sound of one hand clapping? What is the weight of a single grain of sand? The answer is equal to my interest in the message you are about to leave so make it short. – Mitch Hertzog’s voice mail message.
+ - When something horrible happens, it’s human nature to want to blame it on someone. We want someone to be held accountable, even though sometimes things just happen.
+ - I snatched the paper away from Dopey. “Hey,” he yelled. “I was reading that!” “Let somebody who can pronounce all the big words have a try,” I said.
+ - It’s what’s known as an origin myth. What happened to me? That’s no myth.
+ - How to be the best that you can be.
+ - I can’t even tell you how good it felt to see him. It felt even better when he reached through the metal grate, wrapped his fingers around the front of my shirt, dragged me forward, and kissed me through the bars. “Sorry” he said-only not looking to sorry, if you know what I mean.
+ - When I did see the story of Persephone, I was really drawn to it. Persephone, the goddess of spring, was kept from Olympus by her mother, Demeter, because Demeter was very worried that the gods of Olympus would do something terrible to her.
+ - Tell me Jesse, does she sigh when you kiss her too.
+ - One of the biggest motivations for me with writing my books is to offer girls some escapism, especially girls who really need it, like I did.
+ - Look, Mr. uh, Wulf I appreciate your trying to warn me about this, Ireally do. But there’s no such thing as vampires. They’re made-up. We writers made them up. I’m sorry we did such a good job that we made the whole world paranoid, but it’s true. They’re fictional. Blame Bram Stoker. He started it.
+ - It is a documented fact. I read it in People magazine.
+ - So take my advice: whatever you do? Don’t blink.
+ - When I was a kid, I had a couple of really good friends, like some really good best friends, but I was really shy other than that.
+ - I like to think of my books and the movies of my books living in two separate universes. Each is very nice, but only one is correct – the book. But that doesn’t mean you can’t enjoy the other versions, and I always do.
+ - Of course. I was on the run from evil spirits that wanted to kill me and now, according to the local paper, the law. Yet Richard Smith, cemetery sexton and death deity scholar, had a book for me to read in all my copious spare time.
+ - But I let it slide, because, hello, hot guy.
+ - You know. Life’s short. If you don’t try new things, you’ll never know what you’re best at. And you can only make time for new things by quitting the things you know don’t work for you.
+ - And I’m sure than in Poland, or somewhere, it is considered cool to drive a Porsche and wear necklaces and black silk, but at least back in Brooklyn if you did those things you were either a drug dealer or from New Jersey.
+ - It was also, however, a favorite place for novices to stand and wait for innocent students to slip up by talking too loudly between classes. No novice has ever been created that could keep Gina quiet, however.
+ - What did that mean? Where could it go? He was a death diety. I was a high school senior.
+ - Meg Cabot is the best author ever.
+ - And the truth is, I’d felt kind of a thrill about wearing Jason’s Big Boy pants. I was a sick kid, even way back then.
+ - Friend Tim shakes hands with Perfect Specimen of Mankind. Will never wash right hand again.
+ - How is it that I’d nearly been smothered to death, and yet I could sit there and notice things like my stepbrother’s abdominal muscles a few minutes later?
+ - Remember, if you don’t feel passionate about the characters and subject of your story, your readers won’t either.
+ - We were a very funny family. Humour was the tool with which my brother and I tried to get attention. We were always trying to be the funniest.
+ - When he smiled, something strange happened to my insides. It was like they turned to liquid.
+ - Whatever. Boris, must you constantly breathe on me?
+ - She’d realize Steve was her soul mate and that she would never love anyone as much as she loved him.
+ - If you’re writing a screenplay, you need to be prepared to let go: there’s a good chance the words you write aren’t going to be the ones that end up on screen.
+ - You know in sixth grade, when they made all of us girls go into this other room and watch a video about getting our periods and stuff? I bet while we were gone, the boys were watching a video about how to look at each other in that infuriating way.
+ - To achieve self actualization, do good things for other people that you would want to be done onto yourself.
+
+202 quotes

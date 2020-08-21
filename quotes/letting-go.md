@@ -1,0 +1,42 @@
+ - Most things will be okay eventually, but not everything will be. Sometimes you’ll put up a good fight and lose. Sometimes you’ll hold on really hard and realize there is no choice but to let go. Acceptance is a small, quiet room. ~~Cheryl Strayed
+ - The more you let go, the faster you will move ahead. ~~Alan Cohen
+ - Just let go. Let go of how you thought your life should be, and embrace the life that is trying to work its way into your consciousness. ~~Caroline Myss
+ - Forgive yourself for your faults and your mistakes and move on. ~~Les Brown
+ - A sad thing in life is that sometimes you meet someone who means a lot to you, only to find out in the end it was never bound to be, and you just have to let go. ~~Will Smith
+ - You don’t need strength to let go of something. What you really need is understanding. ~~Guy Finley
+ - I let go. Lost in oblivion. Dark and silent and complete. I found freedom. Losing all hope was freedom. ~~Chuck Palahniuk
+ - Waking up to who you are requires letting go of who you imagine yourself to be. ~~Alan Watts
+ - You are responsible for your life. You can’t keep blaming somebody else for your dysfunction. Life is really about moving on. ~~Oprah Winfrey
+ - People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar. ~~Nhat Hanh
+ - A day of worry is more exhausting than a week of work. ~~John Lubbock
+ - Do you remember the things you were worrying about a year ago? How did they work out? Didn’t you waste a lot of fruitless energy on account of most of them? Didn’t most of them turn out all right after all? ~~Dale Carnegie
+ - The great courageous act that we must all do, is to have the courage to step out of our history and past so that we can live our dreams. ~~Oprah Winfrey
+ - Authenticity is the daily practice of letting go of who we think we’re supposed to be and embracing who we are. ~~Brené Brown
+ - In my life nothing goes wrong. When things seem to not meet my expectations, I let go of how I think things should be. It’s a matter of not having any attachment to any fixed outcome. ~~Deepak Chopra
+ - I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye. ~~Yann Martel
+ - The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself. ~~Anna Quindlen
+ - Don’t settle for mediocrity; never let good enough be good enough. ~~Joel Osteen
+ - Let go of your mind and then be mindful. Close your ears and listen! ~~Rumi
+ - When you have a dream, you’ve got to grab it and never let go. ~~Carol Burnett
+ - Letting go gives us freedom, and freedom is the only condition for happiness. If, in our heart, we still cling to anything – anger, anxiety, or possessions – we cannot be free. ~~Nhat Hanh
+ - The stupid neither forgive nor forget; the naive forgive and forget; the wise forgive but do not forget. ~~Thomas Stephen Szasz
+ - When we forgive evil we do not excuse it, we do not tolerate it, we do not smother it. We look the evil full in the face, call it what it is, let its horror shock and stun and enrage us, and only then do we forgive it. ~~Lewis B. Smedes
+ - To err is human; to forgive, divine. ~~Alexander Pope
+ - Let go. Why do you cling to pain? There is nothing you can do about the wrongs of yesterday. It is not yours to judge. Why hold on to the very thing which keeps you from hope and love? ~~Leo Buscaglia
+ - The more you trust Jesus and keep your eyes focused on Him, the more life you’ll have. Trusting God brings life. Believing brings rest. So stop trying to figure everything out, and let God be God in your life. ~~Joyce Meyer
+ - To reach up for the new, you must let go of the old. What lies behind you is not nearly as important as what lies in front of you. ~~Joel Osteen
+ - Letting go gives us freedom and freedom is the only condition for happiness. ~~Nhat Hanh
+ - To give up yourself without regret is the greatest charity. ~~Bodhidharma
+ - The key to change is to let go of fear. ~~Rosanne Cash
+ - Creativity requires the courage to let go of certainties. ~~Erich Fromm
+ - People can be more forgiving than you can imagine. But you have to forgive yourself. Let go of what's bitter and move on. ~~Bill Cosby
+ - Forgiveness is a gift you give yourself. ~~Suzanne Somers
+ - You cannot embrace your destiny if you do not let go of your history. ~~T.D. Jakes
+ - If everyone is moving forward together, then success takes care of itself. ~~Henry Ford
+ - The only thing a person can ever really do is keep moving forward. Take that big leap forward without hesitation, without once looking back. Simply forget the past and forge toward the future. ~~Alyson Noel
+ - When we surrender to God, we let go of our attachment to how things happen on the outside, and we become more concerned with what happens on the inside. ~~Marianne Williamson
+ - Forgiveness is a funny thing. It warms the heart and cools the sting. ~~William Arthur Ward
+ - Moving on, is a simple thing, what it leaves behind is hard. ~~Dave Mustaine
+ - When you forgive, you in no way change the past – but you sure do change the future. ~~Bernard Meltzer
+
+40 quotes

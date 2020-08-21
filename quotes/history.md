@@ -1,0 +1,43 @@
+ - If you don’t know history, then you don’t know anything. You are a leaf that doesn’t know it is part of a tree. ~~Michael Crichton
+ - History is not was, it is. ~~William Faulkner
+ - History never repeats itself. Man always does. ~~Voltaire
+ - If all human beings understood history, they might cease making the same stupid mistakes over and over. ~~Isaac Asimov
+ - History is an argument without end. ~~Pieter Geyl
+ - History does not belong to us; we belong to it. ~~Hans-Georg Gadamer
+ - If history were taught in the form of stories, it would never be forgotten. ~~Rudyard Kipling
+ - History is merely a list of surprises. It can only prepare us to be surprised yet again. ~~Kurt Vonnegut
+ - You can’t be neutral on a moving train. ~~Howard Zinn
+ - I never see what has been done; I only see what remains to be done. ~~Marie Curie
+ - The past is never dead. It’s not even past. ~~William Faulkner
+ - History is, strictly speaking, the study of questions; the study of answers belongs to anthropology and sociology. ~~W.H. Auden
+ - He who cannot draw on three thousand years is living from hand to mouth. ~~Johann Wolfgang von Goethe
+ - History always has a few tricks up its frayed sleeve. It’s been around a long time. ~~Terry Pratchett
+ - Happy people have no history. ~~Leo Tolstoy
+ - There is no history of how bad became better. ~~Henry David Thoreau
+ - First of all, let me assert my firm belief that the only thing we have to fear is fear itself – nameless, unreasoning, unjustified terror which paralyzes needed efforts to convert retreat into advance. ~~Franklin D. Roosevelt
+ - Don’t confuse the truth with the opinion of the majority. ~~Jean Cocteau
+ - The greatest historian should also be a great moralist. It is no proof of impartiality to treat wickedness and goodness on the same level. ~~Theodore Roosevelt
+ - The revolution is not an apple that falls when it is ripe. You have to make it fall. ~~Ernesto Che Guevara
+ - History is a bath of blood. ~~William James
+ - The very ink with which history is written is merely fluid prejudice. ~~Mark Twain
+ - Why should we honour those that die upon the field of battle? A man may show as reckless a courage in entering into the abyss of himself. ~~William Butler Yeats
+ - The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds. ~~William James
+ - All our knowledge is symbolic. ~~Johann Wolfgang von Goethe
+ - You must always know the past, for there is no real Was, there is only Is. ~~William Faulkner
+ - History, Stephen said, is a nightmare from which I am trying to awake. ~~James Joyce
+ - History is a cyclic poem written by time upon the memories of man. ~~Percy Bysshe Shelley
+ - Only a good-for-nothing is not interested in his past. ~~Sigmund Freud
+ - Forgiveness is a virtue of the brave. ~~Indira Gandhi
+ - Nobody can have the consolations of religion or philosophy unless he has first experienced their desolations. ~~Aldous Huxley
+ - If we are to achieve a richer culture, rich in contrasting values, we must recognize the whole gamut of human potentialities, and so weave a less arbitrary social fabric, one in which each diverse human gift will find a fitting place. ~~Margaret Mead
+ - The future has a way of arriving unannounced. ~~George F. Will
+ - All history was at first oral. ~~Samuel Johnson
+ - If we had a keen vision of all that is ordinary in human life, it would be like hearing the grass grow or the squirrel’s heart beat, and we should die of that roar which is the other side of silence. ~~George Eliot
+ - We had to do what we had to do – Britain is great again. ~~Margaret Thatcher
+ - Seek freedom and become captive of your desires. Seek discipline and find your liberty. ~~Frank Herbert
+ - Never, ever rest on your laurels. Today’s laurels are tomorrow’s compost. ~~Tom Peters
+ - Do what you will, this world’s a fiction and is made up of contradiction. ~~William Blake
+ - All daring and courage, all iron endurance of misfortune-make for a finer, nobler type of manhood. ~~Theodore Roosevelt
+ - Purely historical thought is nihilistic; it wholeheartedly accepts the evil of history. ~~Albert Camus
+
+41 quotes

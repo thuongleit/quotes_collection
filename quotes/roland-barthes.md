@@ -1,0 +1,91 @@
+ - The birth of the reader must be at the cost of the death of the Author.
+ - Literature is the question minus the answer.
+ - Thus every writer’s motto reads: mad I cannot be, sane I do not deign to be, neurotic I am.
+ - Writing is the destruction of every voice, of every point of origin.
+ - I love you is unsubtle. It removes explanations, facilities, degrees, scruples.
+ - We know that the war against intelligence is always waged in the name of common sense.
+ - Every photograph is a certificate of presence.
+ - The author enters into his own death, writing begins.
+ - The gesture of the amorous embrace seems to fulfill, for a time, the subject’s dream of total union with the loved being: The longing for consummation with the other...
+ - To make someone wait: the constant prerogative of all power.
+ - The best principals are not heroes; they are hero makers.
+ - Every exploration is an appropriation.
+ - Pleasure is continually disappointed, reduced, deflated, in favor of strong, noble values: Truth, Death, Progress, Struggle, Joy, etc. Its victorious rival is Desire: we are always being told about Desire, never about Pleasure.
+ - I have not a desire but a need for solitude.
+ - What I claim is to live to the full the contradiction of my time, which may well make sarcasm the condition of truth.
+ - There is only one way left to escape the alienation of present day society: to retreat ahead of it.
+ - I make the other’s absence responsible for my worldliness.
+ - I am interested in language because it wounds or seduces me.
+ - Who speaks is not who writes, and who writes is not who is.
+ - All of a sudden it didn’t bother me not being modern.
+ - Don’t say mourning. It’s too psychoanalytic. I’m not mourning. I’m suffering.
+ - Language is a skin: I rub my language against the other. It is as if I had words instead of fingers, or fingers at the tip of my words. My language trembles with desire.
+ - Someone tells me: this kind of love is not viable. But how can you evaluate viability? Why is the viable a Good Thing? Why is it better to last than to burn?
+ - The lover’s fatal identity is precisely this: I am the one who waits.
+ - The text is a tissue of quotations drawn from the innumerable centres of culture.
+ - Language is neither reactionary nor progressive; it is quite simply fascist; for fascism does not prevent speech, it compels speech.
+ - Each of us has his own rhythm of suffering.
+ - Every new Fashion is a refusal to inherit, a subversion against the oppression of the preceding Fashion; Fashion experiences itself as a Right, the natural right of the present over the past.
+ - What love lays bare in me is energy.
+ - One must turn the tongue seven times in the mouth before speaking.
+ - I encounter millions of bodies in my life; of these millions, I may desire some hundreds; but of these hundreds, I love only one.
+ - I have tried to be as eclectic as I possibly can with my professional life, and so far it’s been pretty fun.
+ - Tout refus du langage est une mort. Any refusal of language is a death.
+ - Through the mythology of Einstein, the world blissfully regained the image of knowledge reduced to a formula.
+ - This endured absence is nothing more or less than forgetfulness. I am, intermittently, unfaithful. This is the condition of my survival.
+ - A paradox: the same century invented history and photography. But history is a memory fabricated according to positive formulas, a pure intellectual discourse which abolishes mythic time; and the photograph is a certain but fugitive testimony.
+ - Man does not exist prior to language, either as a species or as an individual.
+ - Why is it better to last than to burn?
+ - I try to busy myself elsewhere, to arrive late; but I always lose at this game. Whatever I do, I find myself there, with nothing to do, punctual, even ahead of time.
+ - Are not couturiers the poets who, from year to year, from strophe to strophe, write the anthem of the feminine body?
+ - All those young photographers who are at work in the world, determined upon the capture of actuality, do not know that they are agents of Death.
+ - If I had to create a god, I would lend him a “slow understanding”: a kind of drip-by-drip understanding of problems. People who understand quickly frighten me.
+ - I call the discourse of power any discourse that engenders blame, hence guilt, in its recipient.
+ - Frontiers are physical as well as symbolic constructions.
+ - Literature is like phosphorus: it shines with its maximum brilliance and the moment when it attempts to die.
+ - Cameras, in short, were clocks for seeing, and perhaps in me someone very old still hears in the photographic mechanism the living sound of the wood.
+ - A light without shadow generates an emotion without reserve.
+ - Architecture is always dream and function, expression of a utopia and instrument of a convenience.
+ - Where you are tender, you speak your plural.
+ - How does meaning get into the image? Where does it end? And if it ends, what is there beyond?
+ - We don’t forget, but something vacant settles in us.
+ - Fashion postulates an achrony, a time which does not exist; here the past is shameful and the present is constantly “eaten up” by the Fashion being heralded.
+ - It is no longer the sexual which is indecent, it is the sentimental.
+ - The petit-bourgeois is a man unable to imagine the Other. If he comes face to face with him, he blinds himself, ignores and denies him, or else transforms him into himself.
+ - What the Photograph reproduces to infinity has occurred only once: the Photograph mechanically repeats what could never be repeated existentially.
+ - Every object in the world can pass from a closed, silent existence to an oral state, open to appropriation by society, for there is no law, whether natural or not, which forbids talking about things.
+ - Ultimately, Photography is subversive, not when it frightens, repels, or even stigmatizes, but when it is pensive, when it thinks.
+ - Is not the most erotic part of the body wherever the clothing affords a glimpse?
+ - Great portrait photographers are great mythologists.
+ - He who reads a story only once is condemned to read the same story his whole life.
+ - There are people who think that wrestling is an ignoble sport. Wrestling is not sport, it is a spectacle, and it is no more ignoble to attend a wrestled performance of suffering than a performance of the sorrows of Arnolphe or Andromaque.
+ - Le langage est une peau: je frotte mon langage contre l’autre. Language is a skin; I rub my language against another language.
+ - The new is not a fashion, it is a value.
+ - Even hidden in the most squalid Parisian halls, wrestling partakes of the nature of the great solar spectacles, Greek drama and bullfights: in both, a light without shadow generates an emotion without reserve.
+ - Language is legislation, speech is its code. We do not see the power which is in speech because we forget that all speech is a classification, and that all classifications are oppressive.
+ - Myth is neither a lie nor a confession: it is an inflexion.
+ - Today there is no symbolic compensation for old age, no recognition of a specific value: wisdom, perceptiveness, experience, vision.
+ - Painting can feign reality without having seen it.
+ - I passed beyond the unreality of the thing represented, I entered crazily into the spectacle, into the image, taking into my arms what is dead, what is going to die...
+ - Literature is that which he can not read without pain, without choking on truth.
+ - To dope the racer is as criminal, as sacrilegious, as trying to imitate God; it is stealing from God the privilege of the spark.
+ - A picture is never anything but its own plural description.
+ - The incapacity to name is a good symptom of disturbance.
+ - The politician being interviewed clearly takes a great deal of trouble to imagine an ending to his sentence: and if he stopped short? His entire policy would be jeopardized!
+ - To try to write love is to confront the muck of language: that region of hysteria where language is both too much and too little, excessive and impoverished.
+ - The photographer, like an acrobat, must defy the laws of probability or even of possibility; at the limit, he must defy those of the interesting: the photograph becomes surprising when we do not know why it has been taken.
+ - When we look at a photograph of ourselves or of others, we are really looking at the return of the dead.
+ - The realists do not take the photograph for a ‘copy’ of reality, but for an emanation of past reality, a magic, not an art.
+ - The art of living has no history: it does not evolve: the pleasure which vanishes vanishes for good, there is no substitute for it. Other pleasures come, which replace nothing. No progress in pleasures, nothing but mutations.
+ - The skyscraper establishes the block, the block creates the street, the street offers itself to man.
+ - In an initial period, Photography, in order to surprise, photographs the notable; but soon, by a familiar reversal, it decrees notable whatever it photographs. The ‘anything whatever’ then becomes the sophisticated acme of value.
+ - As a language, Garbo’s singularity was of the order of the concept, that of Audrey Hepburn is of the order of the substance; the face of Garbo is an Idea, that of Hepburn, an Event.
+ - A photograph is always invisible, it is not it that we see.
+ - For the theatre one needs long arms; it is better to have them too long than too short. An artiste with short arms can never, never make a fine gesture.
+ - Rarely do outside of school remedies work their way into the fabric of the schools or into the teachers lives, and more rarely into the classrooms. Therefore they only offer a modest hope of influencing the basic culture of the school.
+ - It must always be considered as though spoken by a character in a novel.
+ - Television doomed us to the Family, whose household instrument it has become-what the hearth used to be, flanked by the communal kettle.
+ - Literature is without proofs. By which it must be understood that it cannot prove, not only what it says, but even that it is worth the trouble of saying it.
+ - Flaubert had infinite correction to perform.
+
+89 quotes

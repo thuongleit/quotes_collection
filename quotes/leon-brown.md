@@ -1,0 +1,88 @@
+ - It all begins and ends in your mind. What you give power to, has power over you, if you allow it.
+ - Understand that you own nothing. Everything that surrounds you is temporary. Only the love in your heart will last forever.
+ - Listen to yourself, not the noise of the world. Only you know what is right for you.
+ - If you never tasted a bad apple, you would not appreciate a good apple. You have to experience life to understand life.
+ - You cannot grow unless you are willing to change. You will never improve yourself if you cling to what used to be.
+ - Listen to your own voice, your own soul. Too many people listen to the noise of the world, instead of themselves.
+ - First know yourself, then you will begin to understand why things are as they are, and why life is as it is.
+ - One day you will realize that material things mean nothing. All that matters is the well being of the people in your life.
+ - Do not rush, for God’s secret is patience. Everything that is meant to be, will come at the designated time.
+ - When the storm has passed, put your energy into rebuilding your life, don’t waste time looking back.
+ - In the end you get what you deserve, the amount of effort you put in determines the amount of joy that you receive.
+ - You must let life flow naturally, for life’s secret is patience; you must stop pushing for change and allow things to unfold.
+ - Tomorrow is a new beginning. Embrace the light of a new day, for you have a fresh chance to begin again, to make life beautiful.
+ - Never give up hope. Situations can change over night, problems can dissolve in the light of a new day’s sun.
+ - The answers you seek never come when the mind is busy, they come when the mind is still, when silence speaks loudest.
+ - Life does not always give you what you want, but if you look closely you will see that it gives what you need for growth.
+ - Do not worry about the past or the future. This moment needs your attention, for this is where your life exists.
+ - Every day you must unlearn the ways that hold you back. You must rid yourself of negativity, so you can learn to fly.
+ - Do not judge others by your own standards, for everyone is making their way home, in the way they know best.
+ - Unless you heal the root of a problem, the pain will not go away. You can hide from it, but the problem stays until you dig deep.
+ - Healing is not an overnight process; it is a daily cleansing of pain, it is a daily healing of your life.
+ - The more you try to control something, the more it controls you. Free yourself, and let things take their own natural course.
+ - You will fall many times in life, but you will pick yourself up and become stronger and wiser for each trouble you pass.
+ - You cannot evolve unless you are willing to change.
+ - It will all work out in the end. You must keep faith in yourself, and leave the rest to God.
+ - Never underestimate your own strength. You were born for a purpose and are blessed with the power to achieve it.
+ - Nothing goes to waste on the journey of life. Both good and bad experiences shape your mind and heart for what is to come.
+ - Let people do what they need to do to make them happy. Mind your own business, and do what you need to do to make you happy.
+ - If you can imagine it, you can create it. That beautiful world you dream about, needs positive action to come true.
+ - For every positive change you make in your life, something else also changes for the better – it creates a chain reaction.
+ - The pain will not go away by getting angry or bitter, it will go away when you learn to accept life’s challenges with grace and ease.
+ - The day you stop worrying will be the first day of your new life; anxiety takes you in circles, trust in yourself and become free.
+ - Bitterness is a result of clinging to negative experiences. It serves you no good, and closes the door to your future.
+ - You cannot travel back in time to fix your mistakes, but you can learn from them and forgive yourself for not knowing better.
+ - You must channel your energy towards what you love, for what you love is the foundation of your life.
+ - He who can turn negative situations into something positive, has learned the law of transformation, his mind empowers life.
+ - Sometimes you have to experience the bad, so that you can learn to appreciate the good things that enter your life.
+ - People will let you down in this life, promises will be broken, you should expect less of others and trust more in yourself.
+ - There is no need for revenge. Living happily ever after is a sign that you have not let the past beat you.
+ - A lack of love is the cause for most problems in life, when love is missing, nothing can flourish, only pain thrives.
+ - By letting go, you allow everything to find it’s rightful place. Once free, everything finds its way home.
+ - Become the person you were meant to be, light your inner fire and follow your heart’s desire.
+ - It all begins with you. If you do not take care of yourself, you will not be strong enough to take care of anything in life.
+ - Be original, stop pretending to be someone you are not, be your own light in this world.
+ - You can let hate, animosity and anger eat away at you, or you can let it go and begin again.
+ - Sometimes we have to lose our way to find out what we really want, for we often ignore our needs until we are lost.
+ - Let go of resentment, for it will hold you back. Do not worry about what could’ve been, what is to come is what matters.
+ - Life is taking you somewhere, listen to the messages, they will repeat until you follow their call.
+ - When the world makes no sense, go inside yourself, and listen carefully to your needs, until you understand once more.
+ - God gave you a heart to love with, not to hate with, God gave you the ability to create Heaven on earth, not Hell.
+ - Put the past behind you, the present moment is all that matters, in the life of those who want to be happy.
+ - No one is perfect in this world. Forgive people for not knowing better and learn to move on.
+ - Respect yourself and others will follow suit. Most people will not treat you any better than you treat yourself.
+ - Life is a reflection of what you think. If your thoughts are negative, the world you see will be the same.
+ - Life is a daily cleansing. Negativity must be washed away, if you wish to attract positive experiences to your life.
+ - You cannot expect miracles to happen overnight, be patient, be loving and little by little the change you seek will come.
+ - Plant the seed of positivity into your mind, nourish it daily with love and happiness will flower, as fear begins to die.
+ - If you tell yourself something often enough you will start to believe it, that is why you must make self love your mantra.
+ - A moment of anger can destroy a lifetime of work, whereas a moment of love can break barriers that took a lifetime to build.
+ - Not everything will go as you expect in your life. This is why you need to drop expectations, and go with the flow of life.
+ - Every second you spend with the wrong person, is a second wasted in the search for true love.
+ - When you judge someone on their appearance or first words, you miss the opportunity to understand another human being.
+ - When nothing makes sense and the world seems upside down, listen to your heart, it will never lie about your true feelings.
+ - Take a good look at yourself before you criticise another, for what you see wrong in them, will also be a lesson for you.
+ - Be patient. Life will offer you another chance as soon as you find calm within, for abundance is born out of calmness.
+ - Love must be the first thought and the last thought of the day, if you wish to live in peace and happiness.
+ - Life is precious, do not waste it doing anything that your heart does not respect or agree with.
+ - Stop expecting others to act first, be the one who makes a positive change.
+ - Leave people to their opinions and judgements. They cannot harm you; it is their understanding that is faulty, not yours.
+ - One day you will realise that for your life to change for the better, you must first change for the better.
+ - Before you look to blame another, look within yourself, for at some point you have not listened to your own instincts.
+ - You will only find the happiness you seek when you drop your negative attitude towards life, embrace life and be happy.
+ - The day you let go of fear and instead embrace understanding, is the day you begin to live.
+ - You are inferior to no one. others may treat you that way, but that is their problem. You are above all of this.
+ - When you have walked through the hell of your negative thoughts and survived, no pain on this earth will ever again worry you.
+ - If you keep picking a scab it will bleed and never heal. If you keep dragging the pain of the past up, it will never heal.
+ - Do not allow negative experiences to make you bitter. They should make you wiser, and with that wisdom you shall find joy.
+ - Never doubt what comes from the heart, your feelings know you better than anything else.
+ - All things pass and pain is temporary. It comes to teach a lesson and when the lesson is understood it disappears into the night.
+ - You will understand why when you look back, the answers are rarely given in the middle of the lesson.
+ - Do not get angry because others question what you believe, be calm and loving, for anger is the root of a faulty belief.
+ - If the past is not resolved, future relationships will suffer. Let your heart heal, before you open the door to another.
+ - Your life is a product of your thoughts, what you think about all day becomes the basis of your life.
+ - Love is supposed to bring you peace and happiness. If you are not feeling this in a relationship, you are living an illusion.
+ - Hatred is toxic to you and those around you. The condition should be treated with understanding and love until it is healed.
+ - Find something good within your life and give every ounce of positivity you have towards it, then watch how your life changes.
+
+86 quotes

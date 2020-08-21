@@ -1,0 +1,64 @@
+ - I’m a moviemaker, not a documentarian. I try to hit the truth.
+ - Blade Runner appears regularly, two or three times a year in various shapes and forms of science fiction. It set the pace for what is essentially urban science fiction, urban future and it’s why I’ve never re-visited that area because I feel I’ve done it.
+ - Life isn’t black and white. It’s a million gray areas, don’t you find?
+ - A good year for me is when me and my family are in good health. I’m just lucky to have good years doing something I like to do.
+ - There’s great wine from Australia, New Zealand, South Africa, Chile and, of course, California. But there’s nothing like a really great French wine, they’re so well balanced. The better the wine, the less you feel the effects I think.
+ - Politics is very interesting and always leads to conflict.
+ - There’s nothing really original. Alien was a B-movie. Five directors passed on it before me. Because I was into Heavy Metal, I read it, and thought, “Wow, I want to do this.” I was on a plane to Hollywood in 22 hours. It was a B-movie and was elevated to an A-plus movie by sheer good taste.
+ - Digital is a different world because you are sitting at home and a hi tech piece of equipment today is within reach of most people, so they are watching a pretty hi tech version of whatever you’ve done.
+ - Audiences are less intrigued, honestly, by battle. They’re more intrigued by human relations. If you’re making a film about the trappings of the period, and you’re forgetting that human relationships are the most engaging part of the storytelling process, then you’re in trouble.
+ - The time it would take me to write a screenplay it would take me the time to make two films. I would rather make the movies and I’m a better moviemaker than I a would be writer.
+ - How can you look at the galaxy and not feel insignificant?
+ - I watched Someone to Watch Over Me the other night. I thought it was a really good movie. It’s a great movie.
+ - Blade Runner was the godfather of all these fantastic movies that occur today. What’s frustrating is that we’re short of really great writing and great ideas. Blade Runner was full of them.
+ - There’s a little thing on your shoulder called intuition and it whispers in your ear. Everyone has that, there is a voice telling you to do something. Most people ignore it – but you must listen to it. I do it every day, all day.
+ - Films like Harry Potter and Narnia, I’m sure they’ll do another one. The biggest audience of course is the youngsters.
+ - I was a very earnest, hard working boy at school, but my parents were distressed because I was always bottom of the class. But I wasn’t dilatory, I worked like crazy.
+ - People say I pay too much attention to the look of a movie but for God’s sake, I’m not producing a Radio 4 Play for Today, I’m making a movie that people are going to look at.
+ - And anyway, it’s only movies. to stop me I think they’ll ahve to shoot me in the head.
+ - Scaring someone’s the hardest thing to do, and that’s why most of scary movies are not scary. They’re sick, but not scary. There’s a lot of sickness out there, of people who then sit there and watch it, which I think is absolutely dismaying.
+ - I want to make films about the human condition, what we’re doing to the world or ourselves.
+ - I think one of the successes of Gladiator is how we manage to turn on a dime the character from one thing to another where you believe he is one thing and he is something very different.
+ - MPC, Moving Picture Company, they’re really excellent, they did the majority of the effects.
+ - Nowadays, everything’s evolved into superheroes and it’s boring. If I see one more superhero movie I’m going to shoot myself.
+ - You’ve got to be able to know someone really well to be able to have a row and then also walk away from it and not have it matter, especially in this business. That doesn’t mean to say we have many rows but I think the nearest thing to a row would be just flatly disagreeing with something .
+ - In my view, the only way to see a film remains the way the filmmaker intended: inside a large movie theater with great sound and pristine picture.
+ - I think I was really bored at school. I was quietly clock watching for years. I went to 10 schools because my dad was in the Army and we moved around a lot.
+ - The whole process of making movies and writing screenplays is visceral and intuitive.
+ - Once you crack the script, everything else follows.
+ - Good FBI officers are not noticeable. You would never look at them.
+ - I knew exactly what to do on Alien, it was funny.
+ - And I maintain good relationships with all the studios so I’ve never been bullied into any cut, frankly.
+ - Same thing with film, by the time you’ve finished shooting and you’ve really been into everything, you’ve touched up everything in the editing room. You’ve gone in there and taken little bits from everything.
+ - Some actors – you work with them once and don’t even think about working with them again.
+ - If I have to, I’ll go and direct theater and talk till the cows come home.
+ - I’m very competitive. I just go with what engages or fascinates me in my work and that’s it. I have no definition; I just love to do it.
+ - When you’re doing a big movie, you’re gone for 10 months to a year.
+ - As I’m getting older, I want to make sure every film I do really counts.
+ - I think if I’m going to do a science fiction, I’m going to go down a new path that I want to do.
+ - If we had written Tristan in the true vernacular the audience would have been very small. It wouldn’t have even been Shakespearean. It would have been so Celtic you wouldn’t understand what was going on.
+ - I believe all of us only use one tenth of our brain. I know people who use one per cent only!
+ - A hit for me is if I enjoy the movie, if I personally enjoy the movie.
+ - Yes, obviously, there’s this degree of wanting people to accept other people faiths and philosophies.
+ - I always say to people when I’m trying to get something going, bringing on other producers or other directors, “You can think of 95 reasons why not to make a movie. You’ve got to address why you want to make the movie and get it done. Just do it.” I tend to live by that rule.
+ - But Gladiator is one of my favourite adventures because I really loved going into the world. I loved creating the world to the degree where you could almost smell it.
+ - I don’t ever blink, honestly.
+ - I do a pretty good job at casting actually.
+ - I get so used to working with writers that my prime occupation is development.
+ - I was always amazed about how much I could finally squeeze into a thirty second commercial.
+ - Well, not totally because over the years I’ve probably done 2,700 commercials. So, I’m always ticking. And in a way that was a huge advantage because I was able to take my time choosing my film subjects because I wasn’t relying on the fear of not being able to work.
+ - I love different themes, different venues, different movies. I love to jump about and tackle different subjects. I have no intellectual master plan.
+ - Some people like to do everything always the same thing. That’s another way: To do the same thing.
+ - That’s part of the policy: To keep switching gears.
+ - I spend a lot of my time just developing material; or the company does. That material can come from a book, can come from a newspaper, can come from a discussion and sometimes it can come from a script that got passed over and is floating around.
+ - Usually, when special effects get in the way, it’s because the story isn’t strong enough. If you don’t start with a strong screenplay, it’s easy to fall back on special effects, thinking it’s going to carry you. But it never works. It’s just tiresome.
+ - I think moviemakers are dramatists.
+ - I’m just trying to think what other sequels there were. There was the James Bond movies and not many. I think sequels have become a recent idea of franchising.
+ - I do like to make films with a political theme, but sometimes it’s nice simply to make people laugh. That’s the hardest thing to do in fact.
+ - I think there’s nothing worse than inertia. You can inert and study your navel and gradually you’ll fall off the chair. I think the key is to keep flying.
+ - Never be put off by anything because failure teaches you something.
+ - My career seems to be a career of non-specific subjects which are all over the place.
+ - It’s everything and I always make decisions about the cast.
+ - Harrison is very much part of this one, but really it’s about finding him; he comes in in the third act.
+
+62 quotes

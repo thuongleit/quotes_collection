@@ -1,0 +1,26 @@
+ - I’m absolutely gonna win it, because I’m ruthless. I sit at the poker table and my job is to destroy people.
+ - The whole world has gone back to something we are genetically engineered to do – communicating through symbols.
+ - My attitude about Hollywood is that I wouldn’t walk across the street to pull one of those executives out of the snow if he was bleeding to death. Not unless I was paid for it. None of them ever did me any favors.
+ - I’m a pretty quiet guy, but if people want to think of me as a lady killer, I guess that’s good.
+ - When I was in high school, we were all laboring under the illusion, or maybe it was a reality, that everyone in our school was a virgin.
+ - Give Bush 10 minutes before you hammer him. I think he’s going to surprise people. He sounds simple and uncomplicated, but maybe that’s what we need now. He’s not as stupid as everyone thinks. I like the guy.
+ - We work in an environment where your options are to do, you know, Batman 10, so when you get to do a movie that’s a really great film like this, people really step up to the plate and enjoy it.
+ - It is okay to fall, but not okay to stay on the ground.
+ - No matter what it is, if you get 10 people in the business talking about something, you get 10 different opinions, but you know, they’re amazingly well informed.
+ - So you can say whatever you want and quote me however you want about politics and make the next payday, and that’s fine because I’m making that deal with you, but just mention the movie along the way, OK?
+ - Achieving success as an actor has not been easy for me. My biggest, probably most irrational complaint has been that I’ve had to work harder for what I’ve gotten. I’ve seen other people with nepotism or wealth or cheesy good looks on their side who’ve had.
+ - Here’s what I believe a soul is – at least this, I believe it’s at least this. I believe that every kindness that we create in our lives, if it came because we were affected by a person we loved and lost, that person lives through that kindness. That’s what a soul is.
+ - Sometimes the way you respond to horrific, evil deeds is the measure of one’s self as a man, as a nation, as people, as a community.
+ - Do you think I want to be the one lone voice against the Hollywood liberal establishment? It’s not going to do me any good.
+ - My second ex-wife was really kind of like a ship passing in the night. Only she turned out to be the Exxon Valdez.
+ - Golfers are genuinely courteous in a discourteous world. Show me a guest on The Jerry Springer Show who’s a golfer.
+ - The press is like a big bass, you just stick a hook in their mouth and they’ll take it.
+ - Celebrity – I don’t even know what that means. Obviously it’s the same basic word as celebration, but I don’t know what’s being celebrated.
+ - I was able to lean on people for favors and things to help out because their budget was so low. It was half of what John Travolta’s perk package is on a film. Our whole budget was half of what his staff makes on a film.
+ - Look, just go sit at the card table with the rest of the kids and let the adults run the country.
+ - The lifeblood of my career has been independent film.
+ - I think the great power of Bette Davis was she always knew who she was. She had an obligation to herself and her audience. When you think of what she was compelled to do, the power she put on the screen, the fact that she took upon herself a much greater task...
+ - Whatever it took to get elected president of the United States, I don’t think being a complete and utter moron is one of those predicates.
+ - The bottom line is to be in control of your own destiny.
+
+24 quotes

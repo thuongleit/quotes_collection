@@ -1,0 +1,396 @@
+ - The earth without art is just eh.
+ - A Wednesday with no rain is a dry hump day.
+ - I am bravery. I am courage. I am valor. I am daring. I am holding a thesaurus.
+ - The sofa is the enemy of productivity.
+ - The thing about glitter is if you get it on you, be prepared to have it on you forever. Glitter is the herpes of craft supplies.
+ - Employee of the month is a good example of how somebody can be both a winner and a loser at the same time.
+ - It’s not the size of the dog in the fight, it’s the size of the dog’s owner – and the distance you are from your car.
+ - Never forget where you came from. That’s what I think when I walk into a cave.
+ - Glitter is the herpes of craft supplies.
+ - Don’t talk to strangers. Sure, unless you want to meet anyone ever.
+ - They say it’s lonely at the top. It must be even lonelier at the tippy top.
+ - A lot of people don’t like bumper stickers. I don’t mind bumper stickers. To me a bumper sticker is a shortcut. It’s like a little sign that says ‘Hey, let’s never hang out.’
+ - A lifevest protects you from drowning and a bulletproof vest protects you from getting shot, and a sweater vest protects you from pretty girls.
+ - I need to develop some patience – immediately.
+ - Never be less interesting than your refrigerator magnets.
+ - I think one of the most groundbreaking inventions of all time is the jackhammer.
+ - You know what’s the greatest part of anything ever in the history of everything? Exaggeration. No, wait; it’s correcting yourself. No, better yet, it’s making lists.
+ - At the battle of the bands the loser’s always the audience.
+ - If I had a bookstore I would make all the mystery novels hard to find.
+ - I saw a door that said exit only. So I entered through it and went up to the guy working there and said “I have good news. You have severely underestimated that door over there. By like a hundred percent.”
+ - When I am holding a water balloon, so many things look so unnecessarily dry.
+ - I’m so secretive that when someone asks me, Hey, can you keep a secret? I say That’s none of your business.
+ - Clowns have no respect for pie.
+ - When people show me pictures of their kids, it’s okay. But when I give them a picture of me, to show to their kids, I’m weird. What kind of one way street is that?
+ - Wind chimes are also earthquake chimes.
+ - I think it would be cool if you were writing a ransom note on your computer, if the paper clip popped up and said, ‘Looks like you’re writing a ransom note. Need help? You should use more forceful language, you’ll get more money.’
+ - I wanna see a snake eat spaghetti.
+ - I bought a cactus. A week later it died. And I got depressed, because I thought, Damn. I am less nurturing than a desert.
+ - Whenever I throw caution to the wind I make sure I’m facing the right way so that it doesn’t blow back and hit me in my face.
+ - The digital camera is a great invention because it allows us to reminisce. Instantly.
+ - Swimming is a confusing sport, because sometimes you do it for fun, and other times you do it to not die. And when I’m swimming, sometimes I’m not sure which one it is.
+ - I am a man. And I am former baby and a future skeleton, and I am a distant future pile of dust.
+ - I ordered a wake-up call the other day. The phone rang and a woman’s voice said, ‘What the hell are you doing with your life?’
+ - If I could control the behavior of fat guys I would make them ride mopeds more often.
+ - When a couch potato is sliced up and then deep fried that is couch french fries.
+ - The worst time to have a heart attack is during a game of charades.
+ - When you have a fat friend there are no see-saws, only catapults.
+ - I learned this summer that peeing in the pool and peeing INTO the pool are very different things. Location, Location, Location.
+ - A know-it-all is a person who knows everything except for how annoying he is.
+ - What’s this about rice milk? I didn’t even know rice had nipples!
+ - Coffee is like a bra. 3 cups is one too many.
+ - The easiest time to add insult to injury is when you’re signing somebody’s cast.
+ - I don’t have to kill myself, time is going to do that.
+ - I started being a comedy fan when I was, I’m going to guess, like 5 or 6 years old.
+ - I wrapped my Christmas presents early this year, but I used the wrong paper. See, the paper I used said ‘Happy Birthday’ on it. I didn’t want to waste it so I just wrote ‘Jesus’ on it.
+ - When I’m buying car insurance I ask myself, ‘Which company has the most annoying and relentless commercials?’
+ - If you stretched the average person’s intestines out from end to end, it would make them scream a lot.
+ - A drunk driver is very dangerous. So is a drunk backseat driver if he’s persuasive.
+ - It’s Thursday and it really feels like a Thursday. Sometimes things just work out.
+ - I don’t like thank you cards because I don’t know what else to say. What do I put on the inside? See Front.
+ - The lord works in mysterious ways. Indeed. And a shorter way to say that is: God is a sneak.
+ - How fast does a zebra have to run before it looks gray.
+ - There is a small, but important, difference between peeing in the pool, and peeing into the pool.
+ - It’s not enough to say I’m sorry. You have to also mean it. It’s the same with saying I’m single.
+ - In retrospect, everything is finite, but prospectively, there are infinite possibilities. I guess that’s what makes life hopeful.
+ - When someone shows you a picture of their kids what they don’t want to hear is Oh, yeah, I got pictures of your kid too.
+ - Checkers taught me that a King is a man with another man on top of him. But life taught me that that’s actually called a Queen.
+ - Villains fear me because I am unpredictable and broccoli. See what I mean?
+ - I was walking in the park and this guy waved at me. Then he said, ‘I’m sorry, I thought you were someone else.’ I said, ‘I am.’
+ - The planets. Now footnote, I’m including Pluto in the planets, because I think it’s terrible what they did to Pluto. And it’s still a planet to me. I grew up with Pluto as a planet, it will always be a planet.
+ - The bird, the bee, the running child are all the same to the sliding glass door.
+ - My friend has hand soap that smells like coconut. It’s nice. Unless your hands are dirty from coconuts.
+ - Cotton candy is the perfect snack for when I’m in the mood to eat dry, scratchy fabric.
+ - I’ve often liked a girl, made her laugh, and thought she liked me, and then found out that she didn’t like me that way. I’ve definitely done time in the friend zone.
+ - Leave no stone unturned in your quest to disrupt a rock garden.
+ - Hot Potato is a very different game when the people playing are starving.
+ - I saw a sign that said, ‘Watch for children.’ I was like, ‘That sounds like a fair trade – especially if they’re crappy kids.’
+ - I’ve learned something on the road, traveling around: state shapes. The easier it is to draw the shape of the state, the harder it is to live in that state. So, if you live in a regular polygon, get the hell outta there. You gotta move to a squiggly area. Culture’s attracted to squiggles.
+ - If you want to dry hump someone you don’t know, just act like they were choking.
+ - This is a pie chart about procrastination.
+ - Halloween’s my favorite holiday because you don’t have to spend it with your family.
+ - Skiing is my favorite sport, because, that’s the only sport that is actually better to watch the worst the person is at it. “That guy won a gold medal in the Olympics” “Oh yeah, that’s cool, i wanna watch the fat guy” “Come on dude, you can take that hill”
+ - I like birthdays because we celebrate life with cakes. It’s so cool. Sometimes when I see a baby, I’m like that much more cake in the world. But then when someone dies, I’m like the cake streak is over...
+ - I was eating some candy and looked on the wrapper, and it said made from natural and artificial flavors. You could just say flavors.
+ - I think it’s cool when an ex-girlfriend becomes an XL girlfriend.
+ - Bowling would be more interesting if it were slightly uphill.
+ - Your mind is like a sponge, in the sense that it would come in handy when cleaning off a countertop or something like that.
+ - Game, set, match equals tennis. Set, match, run equals arson.
+ - A power nap, is when you sleep on someone who’s weaker than you.
+ - I think it’s interesting that cologne rhymes with alone.
+ - I used to play sports. Then I realized you can buy trophies. Now I am good at everything.
+ - I saw a dog wearing a sweater and I thought that looked ridiculous ’cause dogs don’t have arms. If you’re going to put clothes on the dog, you should put two pairs of pants on it.
+ - When I first heard the term ‘training bra,’ I was freaked out. I was pretty young and I said, ‘Did you just say training bra? They’re training their chests? I had no idea.’ See some lady, her boobs are everywhere. ‘What’s her deal?’ Those are untrained titties.
+ - I wonder what the most intelligent thing ever said was that started with the word ‘dude.’ ‘Dude, these are isotopes.’ ‘Dude, we removed your kidney. You’re gonna be fine.’ ‘Dude, I am so stoked to win this Nobel Prize. I just wanna thank Kevin, and Turtle, and all my homies.’
+ - Some of them relate to farts but they are not fart jokes. They would just be a fart in the joke but it’s about something else...
+ - I went whale watching once. It was very similar to watching people on a boat become disappointed.
+ - I am a mystery wrapped in an enigma wrapped in a pita. Why the pita? That counts as another mystery.
+ - A sports bar is a way to take a bar and fill it with even more annoying people than usual.
+ - Timing is everything. That’s a cliche. Now. If I’d said that a long time ago, I’d have been original.
+ - Separate but equal is terrible for education but it’s perfect for eyebrows.
+ - Earrings are the same as sneezes: Two is okay, but ten in a row is annoying. If you have two then, God bless you.
+ - I wish my name started with a comma. That would be so dramatic.
+ - I love Steven Wright. I was in high school in the ’80s, and there was a lot of stand up on television.
+ - You never forget your first kiss. And that’s what makes it so hard to forgive my uncle.
+ - I thought I would, you know, go to college, get to law school, finish, and then get a job and work as a lawyer, but that proved to be not a good fit for me.
+ - The key to life is balance, especially if you are on a ledge.
+ - A cool tattoo design is any drawing that would also look good saggy.
+ - It’s very easy to go through your whole life and never really get anything done or have any real meaningful interactions or relationships. All of a sudden you’re dead, and I’m going to say that’s got to be a letdown.
+ - I just listen to so much music that I like the role music can play in scoring something. I’m not doing song parodies or funny songs, I’m just adding some music to my words. So it’s limited and specific, but as a performer I find it pretty enjoyable.
+ - The problem with my balloon collection is that people always think there’s a party. Settle down. It’s not a party. It’s just balloons.
+ - I’ve met a few people who were passive-aggressive, but I’ve never met anyone who was aggressive-passive. I don’t want tacos! Maybe.
+ - For me and most of my friends who are comedians, if you’ve been doing comedy for a while, your tolerance for things actually moves. I find it very hard to be shocked, and when other people aggressively take offense to something, I’m sometimes confused.
+ - My mind says one thing, but my body says another. Thanks a lot, Indian food and beer.
+ - At any minute, I am four minutes from a poncho.
+ - Have a great day. Note: does not apply to my enemies.
+ - I have never been in a bad mood and near a beach ball at the same time. Causation? Correlation? Or fate?
+ - Sometimes I see a bird fly by and I feel jealous. But then other times I see a bird fly into a closed window and I feel laughing.
+ - Cotton balls is an example of something I would buy, but not want to have as a nickname. Cinnamon buns, on the other hand, is something I would buy and want to have as a nickname. ‘Are you Cinnamon Buns?’ ‘You bet your sweet ass I am.’
+ - A straw enables you to drink without using your wrist. A straw is your friend – until you lose eye contact with the straw. Then it will betray you and make you look like an idiot.
+ - I still like paper books. Like, book is a flammable object. After you read it, you could use it to get warm. Or it could become a pile of napkins.
+ - If you are wearing a bandana you better have something wise to say, because you are starting with a credibility deficit.
+ - I like parties, but I don’t like pinatas, because the pinata promotes violence against flamboyant animals: ‘Hey, there’s a donkey with some pizzaz. Let’s kick his ass!’
+ - I wonder if it’s rude for a deaf person to talk with food in their hands.
+ - When I was younger, I’d get very empirical with myself. “I have a hypothesis about myself. I’ll put myself in a situation, see what happens, then I’ll draw a conclusion based on the empirical evidence. Hypothesis: I can play basketball.” So I’d try. “Conclusion: I cannot play basketball.”
+ - It turns out dentists don’t like it very much when you show up for a cleaning in full vampire gear.
+ - Canoe plus waterfall equals I don’t go camping anymore.
+ - I used to get bummed out when it rained; then I realized that it’s God’s way of washing off hippies.
+ - There is no I in Team, unless you count the vertical part of the T.
+ - I like stand-up. But I’d also like a family and house and a yard. I want to work with a lot of people, have colleagues; and on good film sets, there’s people there that work with the same people for years and years. I love that collaborative spirit in that medium. Comedy is a lot more solitary.
+ - I like to stand near ATM machines, and when somebody types in their pin number, I go, ‘Got it!’ And then I run away.
+ - I never went bungee jumping. The closest I did was I was born.
+ - To make a squirrel look less uptight, put tiny sunglasses on it.
+ - Sometimes I feel like I’m making a connection with a stranger, but then it turns out I’m not. Like, I was in a mall, and I saw this lady hitting her kid. So I went up to her, and I was like, “Yeah, get him!” She got all mad at me. I was like, “I’m on your side here.”
+ - I wanna buy a bunch of hermit crabs and make them live together.
+ - There’s a very fine line between giving someone the Heimlich maneuver and dry-humping a stranger.
+ - It seems that man’s greatest natural enemy is the target.
+ - Americans who do not celebrate Independence Day: pets.
+ - Here is a tip for all you young people drinking wine. With pasta, drink white wine. With steak, drink red wine. And if you’re vegan, you’re annoying.
+ - I like when people wear a WWJD bracelet, because it’s like an example of the first thing Jesus wouldn’t do, probably.
+ - My policy is no stone throwing regardless of housing situation.
+ - I was making pancakes the other day and a fly flew into the kitchen. And that’s when I realized that a spatula is a lot like a fly swatter. And a crushed fly is a lot like a blueberry. And a roommate is a lot like a fly eater.
+ - Reality is a concept that depends largely upon where you point your face.
+ - I was student council president in high school, and even in law school, I was vice-president of the student bar association.
+ - I’ve heard of many chocoholics, but I ain’t never seen no “chocohol”. We got an epidemic, people: people who like chocolate but don’t understand word endings. They’re probably “over-workaholled”.
+ - Rock is fine. No structural damage to rock. Rock can break through paper at any point. Just say the word. Paper sucks.
+ - I like fruit baskets because it gives you the ability to mail someone a piece of fruit without appearing insane. Like, if someone just mailed you an apple you’d be like, ‘huh? What the hell is this?’ But if it’s in a fruit basket you’re like, ‘this is nice!’
+ - I think the most annoying language is a tie between all the ones I don’t know how to speak.
+ - To make even fewer friends try talking about politics as much as you talk about yourself.
+ - I am the Walrus, but not the one you’re probably thinking of. I am the other Walrus, the one who is less the Walrus in the sense of legendary music and more the Walrus in the sense of his tendency to to lie around in places for too long.
+ - I was stuck in traffic and I looked in the mirror and in the car behind me there was a couple having a horrible argument and right below their image it said “Objects In Mirror Are Closer Than They Appear”. I just thought, man I hope so because she was pretty mad.
+ - I’m afraid of sharks – but only in a water situation.
+ - Everybody knew that you should never provoke a rattlesnake, much less tie it into a bow. But that didn’t stop Judd. What did stop him was the rattlesnake.
+ - The shortest distance between two idiots is a conga line.
+ - I think they should put pies on the fronts of trains, so that when they hit something it’s at least a little bit funny.
+ - When I am given a multiple choice test I choose not to take it.
+ - Mosquito bites Jesus, receives communion.
+ - I don’t know what the long form of OK is. I wanna think it’s okie dokie. ‘I’m okie dokie. I’m a little shaken up, but I’m okie dokie.’ ‘The good news is, she’s okie dokie. The surgery went fine.’
+ - I think a bad place for a fire would be the factory where they make those trick candles.
+ - Love is, and I hope it never isn’t.
+ - One thing I learned is that it’s never OK to walk through a cemetery dressed as a mummy – even if that was a shortcut on the way to the costume party.
+ - I know about Woodstock probably as much as your average person who is over 30, where I’d know Jimi Hendrix, Janis Joplin, Grateful Dead.
+ - Sometimes I like to go outside without even checking the weather first.
+ - I think they named the orange before the carrot.
+ - Whenever I try to spell ‘banana,’ I feel stupid because I don’t know when to end it.
+ - I hate seeing people that look like you. Especially if God’s living by the motto ‘If at first you don’t succeed.’
+ - I like playing frisbee. It is the only sport where you can throw something at a person and it’s okay.
+ - Brought to you by raising your voice. The next best thing to being right.
+ - I don’t want to be my own boss. I want to be my own colleague.
+ - I keep a lighter in my back pocket all the time. I’m not a smoker, I just really like certain songs.
+ - I have a time machine at home. It only goes forward at regular speed.
+ - History, like wallpaper, repeats itself and can also make a room look old-fashioned.
+ - Automatic paper towel dispensers are a solution to something that was never a problem in the first place.
+ - A lot of people like lollipops. I don’t like lollipops. To me, a lollipop is hard candy plus garbage. I don’t need a handle. Just give me the candy.
+ - It’s very easy to turn a toy into an adult toy: Location, location, location.
+ - My friend asked me I ever swam with dolphins. I was like, ‘Yeah, of course. What distance are we talking about from the dolphins? Because the last time I was in the ocean, I’m pretty sure I swam with most of them.’
+ - One thing you never hear is Man that guy is good at badminton.
+ - The problem with most people, is that they are most people.
+ - I just found out that I have more allies than America!
+ - Sometimes I feel like I’m being watched, but then I remember that my show was canceled three years ago.
+ - In America, one sure sign of success is the presence of an unnecessary waterfall in a person’s yard.
+ - Vampires probably don’t have great breath.
+ - People and squirrels are very different. Most people will not argue that. But I find that there is one situation in which they’re very similar. And that is: when I am driving towards them in my car. Then they’re kind of hard to tell apart – especially if the human is kind of hairy.
+ - THING TO TRY: If you are asked to describe a suspect to a police sketch artist, describe in precise detail, the features of the police sketch artist. This is one of the rare instances where two people can do one self-portrait.
+ - Parades are man’s attempt to make traffic exciting.
+ - My family was fine, it’s just a different way of going about life. Creativity was not something that was isolated and identified and valued.
+ - I’m not a lawmaker, but I was thinking that if you have a really loud ring tone, maybe you should be stabbed in the ear?
+ - A pipe is greater than a bong. Because when you’re smoking a pipe at least it makes you look like you’re thinking about something.
+ - I’m a body builder, but I don’t use weights. I use snacks. It’s kind of a different building process.
+ - Knights would have probably liked refrigerator magnets.
+ - I wonder if, as a society, we will ever be able to call someone a jive tofurkey.
+ - Drunken behavior will not be tolerated, except by those who are being hilarious.
+ - There is probably more invisible tape out there than we realize.
+ - But I found that disappointing people is a good thing, because disapproval is freedom.
+ - I don’t usually fly in first class, but I fart in first class.
+ - I am a ceiling fan, especially during rain.
+ - Sometimes I use my jokes as building blocks for larger bits. I like to draw and play music, so sometimes I do those things along with the jokes.
+ - I think that when you get dressed in the morning, sometimes you’re really making a decision about your behavior for the day. Like if you put on flipflops, you’re saying: ‘Hope I don’t get chased today.’ ‘Be nice to people in sneakers.’
+ - A good name for a gang would be The Uneducated Idiot Tough Guys.
+ - A musical is the same as a burlap sack, I would not want to be in either.
+ - I wanna make a jigsaw puzzle that’s 40,000 pieces. And when you finish it, it says ‘go outside.’
+ - Stand-up is like a row boat: it’s fun and romantic when you’re choosing to do it. But if you have no other choice than to be in a row boat it’s not as enjoyable; that’s survival.
+ - When watering your plants, try to talk to them – say something like, Hold it right there and then shoot them with water gun.
+ - You are ten times more likely to get hit by a car when the driver is aiming for you.
+ - We do not allow dwarf tossing. If you toss a dwarf, the dwarf will be tossed right back at you, but faster.
+ - There are very few songs about just liking someone as a friend.
+ - Vampire fad just won’t die. Makes sense, I guess.
+ - To remove blood stains from your conscience try frozen margaritas.
+ - I think if I pick the right thing to spend my time doing, then time moves differently, because I really can get fully immersed in things and feel very alive and challenged, but in a good way. I feel a sense of progress.
+ - When there’s someone who’s dead and then someone does something that that person would not have liked, they say that that person is spinning in their grave. But I don’t understand why they say that. Why is spinning the way that a corpse shows disapproval?
+ - The other night I was playing twister with some amputees.
+ - I am everything and I am nothing. I am just kidding; I am not everything and nothing. That would be ridiculous. I am just everything.
+ - 99.99% of all castles in America are located in fish tanks.
+ - 100% of the people who give 110% do not understand math.
+ - Skeet shooting is probably more satisfying if you really hate skeets.
+ - Most stick people are black.
+ - I wanna design a video game where you’d have to take care of all the people shot in all the other video games.
+ - I went to law school. I found it interesting for the first three weeks. By the fourth week, I found it tedious. I got bored and grew restless. I had no other plan for a job, because from seventh grade on, I had planned on law. So I shifted my focus from classes to extracurricular activities.
+ - I want to commit a crime during a reenactment, and turn it into an enactment.
+ - I bought a new pair of pajamas with pockets, which is great, cause now i don’t have to hold things when I sleep.
+ - There is a fine line between a sleepover and just drinking way too much at someone else’s house.
+ - I think since I was kid people told me that they thought I was funny.
+ - Tic Tacs are the maracas of breath mints.
+ - Nothing wise was ever printed upon an apron.
+ - To be creative, first I need to be really organized. If my apartment’s messy I need to clean it. It’s like before you start doing your homework or studying for a test, you have to have a clean room.
+ - Having a beard is a good way to make your face more susceptible to velcro.
+ - I just started doing this one-man show, and I wanted to be able to score it, so I bought a guitar, and got a keyboard and got a harmonica. I remember when I started that I didn’t understand why a harmonica had different letters on them.
+ - If only loud people were even half as interesting as they think they are.
+ - You get really disillusioned, because you thought you were in love. But you realize that you’re just alone.
+ - I think it would be worse to get mauled by a dancing bear than just a regular bear because you can’t totally blame the dancing bear.
+ - There’s an old Russian saying that goes some way or another. I don’t know it. I don’t speak Russian. But sometimes I think about it and wonder if it’s relevant to what I’m going through at the time. Probably not. I mean what do Russian know about hunger, anyway?
+ - I remember when I used to be really into nostalgia.
+ - I love bowling almost as much as I love not bowling.
+ - Cottonballs are an example of something I’d want to buy, but not have as a nickname.
+ - Artistically, I find jokes really satisfying aesthetically, because there’s something great about getting an idea down to a sentence or two.
+ - A mobile home with a flat tire is a home.
+ - I love catching a snapshot of something that is just about to happen. Or maybe something that just happened, you know. But I like especially that just-before kind of feeling.
+ - Man is the most powerful creature on the planet. And we’re arrogant. I mean, people own birds. It’s like, there’s a creature with the gift of flight. I want it. I’m going to put it in my kitchen and make it crap on old information.
+ - As soon as I jumped out of the airplane, I realized I had forgotten my parachute. Thank God we were still on the runway.
+ - I never set out to do a sketch show.
+ - I wish I lived next to Carnegie Hall. Then, if someone asked me how to get to my house, I would just say ‘Practice, practice, practice, and then take a left.’
+ - Jumping jacks are easier to do than crawling jacks.
+ - The chances of someone who looks like Jesus having pot raises steadily, to a point. If the guy is on a cross you may have the wrong guy.
+ - Every fight is a food fight when youre a cannibal.
+ - When I look up at the clouds I see so many animals, mostly sheep who have lost their limbs and heads.
+ - A Rubik’s cube is equal to a drag queen. It’s really colorful, but I don’t wanna do it.
+ - If I think of a joke that’s really dirty and I think it’s funny I’ll try it but what I’ve found over the years is they just don’t laugh. It doesn’t work coming out of my mouth so it’s like they taught me ‘don’t do that. Don’t go that way or you’ll lose me.’
+ - You can make a very heavy and kind of dangerous 3-way shot glass out of a bowling ball.
+ - I would like to have windshield wipers that do the whole windshield, please.
+ - I never give anyone just one congratulation. Congratulations are always plural. They are similar to grapes.
+ - I think there are so many little hurdles and impediments with stand-up that you’d need to have this insane desire to do it if you didn’t have something that clicked right away.
+ - When I stub my toe it’s like I pressed a button that plays all the curse words I know.
+ - I do come across people who don’t like me, don’t like my comedy, don’t think it’s funny, it’s too cutesy, or whatever they hate. And it’s like, ‘Okay. That’s your opinion. Somebody liked it, so that’s good.’ Hopefully it balances out.
+ - Usually my favorite joke is whichever joke I most recently came up with that surprised me the first time I thought of it.
+ - It’s interesting to be an adult and to have that level of ignorance about something, because the nice part about is you get that discovery. The learning curve is so rich and steep.
+ - I want to make a revolving door that says ‘Pull’ on it, just see how obedient people are.
+ - If I had to pick one artist to tile my bathroom I would go with MC Escher.
+ - It is impossible for a cyclops to wink.
+ - There are two kinds of jackets – reversible, and reversible but it’s hard to zipper up and it looks really stupid.
+ - Sometimes it looks like I’m dancing, but it’s just that I walked into a spider web.
+ - I love having an open seat next to me on the train. What’s even better is when my seat is open too because I just stayed home.
+ - Halloween: the day each year when strangers give you even more specific reasons to dislike them based on what they are wearing.
+ - Another term for balloon is bad breath holder.
+ - My friend says touche way too much. He’s a touche bag.
+ - Whenever I see an autobiography for sale in the book store i just flip to the about the author section. I’m like, “Done, next!”
+ - I went to law school. I found it interesting for the first three weeks.
+ - If I have to move up in a building, I choose the elevator over the escalator. Because one time I was riding the escalator and I tripped. I fell down the stairs for an hour and a half.
+ - Right before I’m about to talk at length about something I like I say, Get me started.
+ - Fire truck with back end on fire drives really fast in circles.
+ - I didn’t play music, nobody in my family had an instrument or played music, we didn’t even have any books at my house. I think about it and I’m like, I don’t know how I climbed out of there.
+ - It seems that two of the most basic forms of comedy are jokes and stories. And, of course, they are not mutually exclusive.
+ - The comedians I liked were Bill Cosby and Steven Wright, like just always as a comedic actor. I always liked Gary Larson, who’s really funny for a cartoonist, obviously.
+ - I find that a shirt is most similar to a napkin when I don’t have a napkin.
+ - If I ever saw an amputee getting hanged, I’d probably just start calling out letters.
+ - If you have a lip ring try hanging some tiny keys from it. This will make you look even more interesting.
+ - A human head looks the least scary when it is attached.
+ - Stand up is really fun because if I think of a joke or a funny idea, then I can just go and tell some people and if they laugh, they laugh right away.
+ - Relationships, like eyebrows, are better when there is space between them.
+ - I think there’s a difference between making comedy and reporting comedy. When you’re a joke teller you can easily fall into the second, you can show up and just say the jokes.
+ - To get strangers to hate you even faster, crank up the volume on that very interesting ringtone of yours.
+ - I am what I eat. And I am this especially when I bite my nails.
+ - To remove all credibility from what you’re saying try wearing sunglasses on your forehead.
+ - Dogs seem more photogenic than cats. In photos most cats look like sociopaths.
+ - Socrates became a trendsetter. Other philosophers, including Plato and Aristotle and Gus, quickly followed suit, dropping their last names too. And, for centuries after that there would be countless imitators including oltaire, Michelangelo, and, much later, Cher.
+ - I think cats would have an even worse attitude if they found out how stupid their names were.
+ - And my only rule being if when I wake in the morning I’m looking forward to the things that I have to do that day, then I’m on the right track.
+ - I wasn’t even a big comedy nerd. A lot of the comedians I know – a lot of my friends are comedians – they knew a lot about comedy growing up.
+ - My original goal was just to do stand-up but then I became interested in films – writing a film, shooting one someday, and getting to act in them.
+ - I like birthdays. Every time someone is born, that’s just like bringing more cake into the world.
+ - I like people, for a little while.
+ - Turtles are greater than baby nephews, because it’s ok to drop a turtle.
+ - But what I was going to say was, I just figured I’m going to go boldly in the direction of my dreams, say it as Thoreau would say, and just see where it takes me.
+ - Okay, so, when I was a kid, definitely the drawings and the illustration. Then I stopped in sixth grade or so. And then I started again when I was in my twenties. I really didn’t progress since then, so the way I draw is the way I drew in sixth grade.
+ - There’s a store in my neighborhood called Futon World. I like that name, ‘Futon World.’ Makes me think of a magical place that gets less and less comfortable over time.
+ - I can tell how lonely I am by how easily I’m fooled by a mannequin in a store.
+ - My plumbing is all screwed up. Because it turns out, I do not own a garbage disposal.
+ - If you have a lair then you are probably not a good person.
+ - Small businesses are important, but so are tiny businesses.
+ - There is also a beast, a beast of strange dimensions. He has the head of a horse and the body of a man who needs a lot of attention. He represents me in college: I was a dork-ataur.
+ - When telling a story about how wasted you were last night, stop.
+ - Popcorn is one of the only situations in which you eat the result of an explosion.
+ - Everything I ever learned I was told by someone else.
+ - It would be nice if people said, God bless you not just when you sneezed but also when you farted.
+ - The definition of adventure depends upon how boring your life is.
+ - After going through years of litigation to get royalties due to him, the guy who coined the term ‘happily ever after’ lived reasonably well for a while.
+ - I have an erratic drummer for anybody who’s just listening to this, he can keep time, but just in spurts.
+ - But long story short, I didn’t start doing stand-up because I wanted to have a TV show or be an actor or even wanted to write sketch comedy. I got into stand-up because I love stand-up.
+ - When I was a kid, I always wanted to live in California because I liked skateboarding.
+ - A refrigerator is the opposite of a drug addict, because a refrigerator starts in a box and then moves to a house.
+ - I want to launch a globe into space just to mess with the astronauts.
+ - The reason you often get in comedy is because you’re not getting laid.
+ - If you want to feel less sexy put scotch tape on your nipples.
+ - I can always tell how stupid someone is by how certain they are about what they’re saying.
+ - Count your blessings, but not out-loud, at the top of your lungs.
+ - If you are trying to impress a woman, leave any sort of show farting out of the equation.
+ - If you happen to catch on fire during the show, do not panic or wave your arms around or scream or we wil give something to panic and wave you arms around and scream about.
+ - It is a little ironic that one thing a babysitter should not do is sit on a baby.
+ - I didn’t do improv in college, I never performed, I didn’t do theater either. I was in student government, I was a history major.
+ - I’d love to win trophies, be in movies, have a body of work I’m proud of and find a way to enjoy it along the way. Success is probably a more of a complicated thing than that.
+ - I walk around and think about things. When I come across a thought that makes me laugh, I write it down. Then, at night, I say the thought to people through a microphone. I don’t think about politics or pop culture very much, so those thoughts don’t often make it to the microphone.
+ - Now I got a time machine at home. It only goes foreword at regular speed. It’s essentially a cardboard box and on the outside I wrote time machine in sharpie.
+ - You always hear about the guy who was raised by wolves. You never hear about the guy who was raised by the guy who was raised by wolves. The problem is, you have a non-wolf imparting wolf teachings.
+ - A large portion of the Earth’s land area is taken up by old varsity jackets.
+ - A jerk on a motorcycle is equal to a leaf, because I find it beautiful when these things fall.
+ - They say that structure is freedom, and in a sense it is. When you’re dealing with multiple constraints, you have to figure out what you can get out of that.
+ - Once I started to look i finally began to see.
+ - I feel so fortunate to be one of the lucky ones who is so grateful and appreciative to know such great synonyms for thankful.
+ - I wonder how they deal with mice at Disney World.
+ - I am completely attracted to the idea of simplicity, or at least removing things that seem unnecessary when trying to get an idea out there.
+ - I don’t know if I’ll ever be a master at anything, but I think that’s a mistake for me personally. I don’t know how much it’s about the journey, but it’s more about the process.
+ - Planning trip around the globe, that is in my room.
+ - If I make my window ten days for stand-up, the conclusion is that I failed and that I’m not good at stand-up. If I make it ten years – if I just wait – the conclusion might be something totally different. I think it’s so cool to do things in which you discover the malleability of your own mind.
+ - I think my favorite sound is the sound of someone not playing the bongos.
+ - A couple weeks ago I was on the street and I saw an ugly pregnant lady, and I just thought, ‘Good for you.’
+ - I have fun acting, and I want to do more of it, and I want to direct my own movie.
+ - Futon World – a wonderful place that becomes slowly less comfortable over time.
+ - I wasn’t the class clown, but I was starting to become the “crazy guy” at law school, which is the guy who is not so much “crazy” as “annoying.”
+ - Statistics indicate that the average American is a guy named Brian who lives in Ohio.
+ - I love Buster Keaton and I love physical comedy when it’s done in an emotionally understated way. I just like to play it, and I need the attention.
+ - Someday I will tell my grandchildren that I lived in the era when OK was abbreviated to K.
+ - Our Times, a Brief History: As televisions became flatter, People became rounder.
+ - I wear dark sunglasses when I want my head to look more like a limousine.
+ - And of course I didn’t make any money from stand up for years, so I had temp jobs. That was the way I made money.
+ - I was in my friends garage, and he had; a kite, a yo-yo, and a boomerang. I was like “Dude, you have abandonment issues”
+ - I think, at first blush, the ’60s always enticed me. There’s something about the ’60s, it’s not hard to like it.
+ - The question is, ‘how bad at sports were you as a kid?’ I grew up near where they film Jersey Shore. If you weren’t tan, muscular, and book-averse, you were a dork and a nerd and a geek and stuff. I remember being into Gary Larsen, Stephen Wright, Peter Sellers...
+ - You need an audience to help you figure out what’s working and what’s worth putting on your album or your special – or even just what’s worth touring with.
+ - Usually, I walk around and think about things. When I come across a thought that makes me laugh, I write it down.
+ - I am sometimes referred to as Excuse Me in an annoyed tone of voice, because apparently I am in the way. I am so sorry. I am supposed to be some sort of mind reader, I guess. I am moving out of the way now as slowly as I possibly can. I am doing this and there’s nothing you can do about it.
+ - I’m always excited to try something I haven’t done.
+ - Last week I lost my temper in my karate class. Man, I’m not doing that again until I’m a black belt. Because I can tell you there’s a difference between taking karate and receiving karate.
+ - I think the best thing about being dumb is that it makes magic a lot better. Where the hell did that rat come from? I dunno, but I’m calling the cops because he just cut that lady in half.
+ - I tend to avoid televisions, politics, and places with velvet ropes.
+ - A parade looks like a bunch of people are excited about being in traffic.
+ - Overheard today in restaurant: Can you stop listening to our conversation?
+ - It would be interesting if Elvis were reincarnated as an Elvis impersonator.
+ - Laborers want their kids to be merchants or business people. Business people want their kids to be professionals. Professionals want their kids to be academics, professors. Academics want their kids to be artists. And artists don’t care if their kids are laborers or not. They can be anything.
+ - For some reason cowboy sounds better than cowman.
+ - A glove is a very literal looking hand puppet.
+ - I just know keeping track of what I’m doing and where I’m going is important to me.
+ - I think a lot of stuff I find funny is from day dreaming.
+ - What I’ve learned about my self over the years is that I’m pretty restless. If I multitask it’s probably because I have difficulty just focusing on one thing.
+ - Don’t forget to turn your clocks back today if you don’t want your clocks to be set to the right time.
+ - The plastic knife is perfect for when a person just wants to make some marks on his food and get insanely frustrated at the same time.
+ - My credit card company says I have an outstanding balance. I’m flattered.
+ - Right now someone out there is struggling and starting to panic because they can’t get out of a tempurpedic bed.
+ - Multi-Choice question: My dishwasher is: efficient; hilarious.
+ - I have an air mattress. It’s great because if someone tries to suffocate me in bed I can just poke a hole in it and use it to stay alive.
+ - Specifically in stand-up, I love jokes. I love short, structured ideas and a punchline.
+ - Siamese twins are interesting because they are the only people who can write a biography and an autobiography at the same time.
+ - Another thing that I like and that’s fun for me is to try and talk and play music at the same time, because I feel like I’m learning something. There are these little challenges built into it; it’s a way to push myself a little bit more as a performer.
+ - As a comic, I think I’m very verbally oriented about a lot of the stuff that I’ve written or thought up and how I say it.
+ - To look like you are a real sports fan, when there is a game on TV just yell, Oh, come on! every now and then at the TV.
+ - When they were naming the animals, somebody got lazy: anteater? What’s it doing? It’s eating ants. DONE!
+ - Palindromes are the number one conversation stopper, like party killer, I think I’ve ever seen.
+ - One of the most difficult and ironic murder weapons is the life jacket.
+ - I was a good student when I was a kid, and I did everything I was supposed to do, and I got A’s.
+ - If I were blind, I’d wear a blindfold all the time.
+ - When I am at rodeo I find it difficult not to root for the animals.
+ - I was on the train the other day, and I heard somebody say, I’m really good at checkers. That’s the same thing as saying, I’m not good at very many things.
+ - Let no man’s deathbed be a futon.
+ - A lot of things look cooler in slow motion. Eating isn’t one of them.
+ - Do you have any Greek in you? That was just a tactful way of asking if you’re pregnant. If you’re not, then let’s break up.
+ - I have a jar at home, and I put pennies in it whenever I curse. The other day I spilled the jar. I owe it about $25.
+ - I like to use ‘I Can’t Believe it’s Not Butter’ on my toast in the morning, because sometimes when I eat breakfast, I like to be incredulous. How was breakfast? Unbelievable.
+ - The shortest feedback loop I can think of is doing improvisation in front of an audience.
+ - I am a comedian but it’s usually not a compliment to be called a prop comedian but I guess I sometimes use props. And I always confuse humorist with comedian. That’s strange.
+ - I’ve never read an article of clothing.
+ - The best way to make somebody feel important is to try to assassinate them.
+ - One time I saw an old man in a hurry and I thought, ‘That makes sense.’
+ - The Pursuit of Happiness: It sure seems to like a good chase, doesn’t it?
+ - Use crazy glue and nails to turn a rocking chair into just a chair that looks like a rocking chair.
+ - To me, comedy is a game.
+ - For example, I was a White House intern the summer before I dropped out of law school. Everybody knew about it. I’d come home and go to church and everybody would say, ‘Oh, my God. Demetri, you’re working at the White House.’
+ - I like shorter jokes. I like fewer words. I think the more ideas there are the, the fewer words there should be.
+ - If you can’t tell a spoon from a ladle, then you’re fat!
+ - I want to get the joke to work without having to put any words or to say anything. I just want the person to look at it, and quietly in their brain, they can just put it together and say, “Cool, that one works”.
+ - As a creative person, you want to have a foothold and sense of progress.
+ - It feels like every day or two, people on Twitter and the Internet are outraged about something.
+ - I love motor learning because it’s very basic and primal. A lot of what I like to learn correlates with the opposite of what gets you laid. I can ride a unicycle and I can juggle. These are unimpressive things to know.
+ - The clothes make the man. The children working in sweatshops make the clothes. Therefore, the children working in sweatshops make the man.
+ - I wonder if there were any goths in gothic times. They’re like: You look completely appropriate. You don’t look stupid or lonely at all.
+ - If you drink enough beer, everything turns in to a bed.
+ - And as far as actors go, Peter Sellers is my all-time favorite.
+ - I love Steven Wright.
+
+394 quotes

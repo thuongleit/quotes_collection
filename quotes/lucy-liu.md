@@ -1,0 +1,40 @@
+ - It’s like kill or be killed, that’s my thing basically.
+ - You don’t want to continue to do one thing and only one thing. You want to keep challenging yourself and if you do well at it, great, if you fall on your face, you tried. Like, she’s really terrible at comedy! Who knew? But if you didn’t try and put yourself out there you’d never know.
+ - If you see the Sopranos, you’re not going to be speaking in the Shakespearean English.
+ - You can’t look back; you have to keep looking forward.
+ - The neck is kind of what’s sexy in Japan, so you have to have the kimono a little bit back. It was just a whole different way of appealing to what was sexy.
+ - It is an absolute privilege to be able to speak another language and have it be something you grew up with. I think it’s a very important thing and I think that everywhere else in the world people speak more than one language.
+ - A lot of people die giving birth to their children who have AIDS and HIV and a lot of people don’t survive after a time because they’ve been sick too.
+ - Ten years of Pilates has really changed my body for the better.
+ - I grew up in Jackson Heights, Queens, with no money. I was taught not to take anything for granted. If you are too busy being a diva or a freak, then you are not enjoying it.
+ - I think you just have to appreciate who you are and hopefully they can see what a superhero is about.
+ - Everything I buy is vintage and smells funny. Maybe that’s why I don’t have a boyfriend.
+ - When I was shooting a movie in Montreal, it was freezing. If you take a little bit of Aquaphor and dab it on your face, it keeps your skin looking fresh. I dubbed it Aqua For Everything.
+ - Pilates introduced me to muscles I never even knew I had. Soon I started to feel longer and leaner. Ten years of Pilates has really changed my body for the better.
+ - I love children. I work with UNICEF and one of the reasons I love that is because they deal specifically with children. For me I think it’s just really important to always embrace that side of you.
+ - I always admired Wonder Woman and the Incredible Hulk – but I don’t know if I’d be a very convincing hulk.
+ - You respect all of these people that you know in the business as actors. And they sort of turn around and say, we really like your work. It’s a nice acknowledgment.
+ - When you work with chains or any kind of weapons, or just when you’re using hand-to-hand combat, you are going to get hurt.
+ - Silly Caucasian girl likes to play with Samurai swords.
+ - Martial arts are art forms and require a great deal of discipline and dedication. I so admire people who focus their lives on it, because it’s not an easy thing to do.
+ - Producing is like pushing jello up a hill on a hot day.
+ - I think diversity is very key to anybody’s resume, and also for your mental well-being.
+ - The wonderful thing about film is that you have something that has a beginning, middle, and end, and you have a concrete amount of time to shoot it.
+ - The lack of predictability with television is something that’s constantly changing what your perception of who you think your character is.
+ - Women like to watch women fight because it makes them feel sort of empowered physically and mentally. They feel kind of jazzed and excited by it.
+ - Once you embody the language, the character comes really naturally, especially when you put the costume on.
+ - Men, when they fight in movies, it’s a very different style. Harrison Ford was so cool when he had the whip, and Bruce Lee was such an artist that you couldn’t take your eyes off of him.
+ - It’s so much fun playing Ling, but I have this fear that people are going to run away from me in terror on the streets. They think I’m going to bite their heads off or something.
+ - Japanimation is a whole different art form.
+ - When you have something that close to you, you want to make sure that you’re aware of it.
+ - You have to look out for becoming trapped in a place where people want to see you all the time doing one thing.
+ - I think it seems like a natural progression to go into directing, and I hope to explore more of it, because it’s very exciting and a really good way to collide all the things that you’ve known and experienced in the business and put them all into one.
+ - I try to distinguish my characters from each other.
+ - I generally won’t do a role unless I feel like it’s in my system somewhere, even if it’s just a molecule of it. Like I just felt like I knew it and if I talked about it or discussed it or tried to rehearse it that it would take away the energy from that scene so I went in there and just did it.
+ - I’ve never really thought about competing with cartoons. If it ever gets to that point, then just shoot me.
+ - Nobody really tells me what’s going on, and I find out via the trades myself.
+ - I’ve definitely become much more aware of physical stunts.
+ - It’s great to do commercial movies; they are fun. You’re doing stunts, you are running around, there is a lot of money involved in the production; there are incredible sets and designs.
+ - People use location as a language in films, and Quentin uses action as a language in his films. There’s really not a lot of violence. It’s more of an emotional beat than it is a physical beat.
+
+38 quotes

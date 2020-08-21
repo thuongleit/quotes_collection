@@ -1,0 +1,108 @@
+ - One child, one teacher, one book, one pen can change the world.
+ - I am stronger than fear.
+ - Education is the best weapon through which we can fight poverty, ignorance and terrorism.
+ - With guns you can kill terrorists, with education you can kill terrorism.
+ - Let us make our future now, and let us make our dreams tomorrow’s reality.
+ - We realize the importance of our voices only when we are silenced.
+ - Education is neither Eastern nor Western, it is human.
+ - Extremists have shown what frightens them most. A girl with a book.
+ - I believe in the power of the voice of women.
+ - My father always says that heroism is in the Pashtun DNA.
+ - We cannot all succeed when half of us are held back.
+ - I had two options One was to remain silent and wait to be killed and the second was to speak up and then be killed. I chose the second one. I decided to speak up.
+ - I thought that words and books and pens were more powerful than guns.
+ - When the whole world is silent, even one voice becomes powerful.
+ - I truly believe the only way we can create global peace is through not only educating our minds, but our hearts and our souls.
+ - I tell my story, not because its unique, but because its not, it is the story of many girls.
+ - A city without books, a city without a library is like a graveyard.
+ - There should be no discrimination against languages people speak, skin color, or religion.
+ - Education is the only solution. Education first.
+ - We are stronger than those who oppress us, who seek to silence us. We are stronger than the enemies of education. We are stronger than fear, hatred, violence and poverty.
+ - Let us pick up our books and pencils. They are our most powerful weapon.
+ - This is what my soul is telling me, be peaceful and love everyone.
+ - Education is the power terrorists fear most.
+ - They thought that the bullets would silence us, but they failed.
+ - I told myself, Malala, you have already faced death. This is your second life. Don’t be afraid – if you are afraid, you can’t move forward.
+ - The content of a book holds the power of education and it is with this power that we can shape our future and change lives.
+ - I don’t want revenge on the Taliban, I want education for sons and daughters of the Taliban.
+ - The terrorists thought they would change my aims and stop my ambitions, but nothing changed in my life except this: weakness, fear and hopelessness died. Strength, power and courage was born.
+ - We realize the importance of light when we see darkness. We realize the importance of our voice when we are silenced. In the same way when we were in Swat, we realized the importance of pens and books when we saw the guns.
+ - My dream is to empower myself with education, and then it is a weapon.
+ - Do not wait for me to do something for your rights. It’s your world and you can change it.
+ - I don’t mind if I have to sit on the floor at school. All I want is education. And I’m afraid of no one.
+ - Books are a better investment in our future than bullets. Books, not bullets, will pave the path towards peace and prosperity.
+ - I don’t want to be thought of as the ‘girl who was shot by the Taliban’ but the ’girl who fought for education. This is the cause to which I want to devote my life.
+ - You should believe in your talent and potential. Never lose hope.
+ - We must believe in the power and strength of our words. Our words can change the world.
+ - I was a girl in a land where rifles are fired in celebration of a son, while daughters are hidden away behind a curtain, their role in life simply to prepare food and give birth to children.
+ - If one man can destroy everything, why can’t one girl change it?
+ - Ignorance allowed politicians to fool people and bad administrators to be re-elected.
+ - If you go anywhere, even paradise, you will miss your home.
+ - Why is it, that giving guns is so easy, but giving books is so hard?
+ - In Islam, it is not just your right, but your responsibility to get education.
+ - The Taliban could take our pens and books, but they couldn’t stop our minds from thinking.
+ - I believe the gun has no power because a gun can only kill, but a pen can give life.
+ - We felt like the Taliban saw us as little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He wouldn’t have made us all different.
+ - There is no greater weapon than knowledge and no greater source of knowledge than the written word.
+ - Let us become the first generation to decide to be the last that sees empty classrooms, lost childhoods and wasted potential.
+ - Why is it that countries which we call strong are so powerful in creating wars but are so weak in bringing peace? Why is it that giving guns is so easy, but giving books is so hard?
+ - I have the right of education. I have the right to play. I have the right to sing. I have the right to talk. I have the right to go to market. I have the right to speak up.
+ - My dream is to see every girl educated, in every country.
+ - I do not even hate the Talib who shot me. Even if there was a gun in my hand and he stands in front of me, I would not shoot him.
+ - When someone takes away your pens you realise quite how important education is.
+ - We liked to be known as the clever girls. When we decorated our hands with henna for holidays and weddings, we drew calculus and chemical formulae instead of flowers and butterflies.
+ - The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.
+ - I had 2 choices, be silent and get killed, or speak up and be killed, I chose the second option.
+ - A girl has the power to go forward in her life. And she’s not only a mother, she’s not only a sister, she’s not only a wife. But a girl has the – she should have an identity. She should be recognized and she has equal rights as a boy.
+ - I want poverty to end in tomorrow’s Pakistan. I want every girl in Pakistan to go to school.
+ - They only shot a body but they cannot shoot my dreams.
+ - This is the philosophy of nonviolence that I have learned from Gandhi, Bacha Khan and Mother Teresa.
+ - Fifty seven million children across the world don’t want an iPhone, Xbox or chocolates. They want a book and pen.
+ - I think life is always dangerous. Some people get afraid of it. Some people don’t go forward. But some people, if they want to achieve their goal, they have to go. They have to move...
+ - I am not here to speak against the Taliban. I’m here to speak up for the right of every child.
+ - It is not time to tell the leaders to realize how important education is – they already know it – their own children are in good schools. Now it is time to call them to take action.
+ - I believe in peace. I believe in mercy.
+ - I am convinced Socialism is the only answer.
+ - I would tell him that shoot me but first listen to me. And I would tell him that education is my right and education is the right of your daughter and son a well. And I’m speaking up for them. I’m speaking up for peace.
+ - I don’t want awards, I want my daughter. I wouldn’t exchange a single eyelash of my daughter for the whole world.
+ - If a woman can go to the beach and wear nothing, then why can’t she also wear everything?
+ - My goal is to get peace and my goal is to see education of every child.
+ - I don’t want to be remembered as the girl who was shot. I want to be remembered as the girl who stood up.
+ - Peace in every home, every street, every village, every country – this is my dream. Education for every boy and every girl in the world. To sit down on a chair and read my books with all my friends at school is my right. To see each and every human being with a smile of happiness is my wish.
+ - Pakistan is a peace loving, democratic country. Pashtuns want education for their daughters and sons. Islam is a religion of peace, humanity and brotherhood.
+ - I dreamt of a country where education would prevail.
+ - We are human beings, and this is the part of our human nature, that we don’t learn the importance of anything until it’s snatched from our hands.
+ - And also I didn’t want my future to be just sitting in a room and be imprisoned in my four walls and just cooking and giving birth to children. I didn’t want to see my life in that way.
+ - We should not wait for someone else to come and raise our voice. We should do it by ourselves. We should believe in ourselves. One day you will see that all the girls will be powerful; All the girls will be going to school. And it is possible only by our struggle; only when we raise our voice.
+ - We cannot succeed when half of us are held back. We call upon our sisters around the world to be brave, to embrace the strength within themselves and realize their full potential.
+ - Our men think earning money and ordering around others is where power lies. They don’t think power is in the hands of the woman who takes care of everyone all day long, and gives birth to their children.
+ - They are afraid of educated women. They are afraid of the power of knowledge.
+ - I’m still me, Malala. The important thing is God has given me my life.
+ - We call upon all communities to be tolerant, to reject prejudice based on caste, creed, sect, color, religion or agenda to ensure freedom and equality for women so they can flourish. We cannot all succeed when half of us are held back.
+ - She explained that the bullet had entered through the side of my left eye where there was a scar, traveled eighteen inches down to my left shoulder and stopped there. It could have taken out my eye or gone into my brain. It was a miracle I was alive.
+ - If people volunteered in the same way to construct schools or roads or even clear the river of plastic wrappers, by God, Pakistan would become a paradise within a year.
+ - We like to put sacred texts in flowing waters, so I rolled it up, tied it to a piece of wood, placed a dandelion on top, and floated it in the stream which flows into the Swat River. Surely God would find it there.
+ - I am not against anyone, neither am I here to speak in terms of personal revenge against the Taliban or any other terrorist group. I’m here to speak up for the right of education for every child. I want education for the sons and daughters of the Taliban and all terrorists and extremists.
+ - Once I had asked God for one or two extra inches in height, but instead he made me as tall as the sky, so high that I could not measure myself.
+ - In many parts of the world, especially Pakistan and Afghanistan, terrorism, war and conflict stop children to go to their schools. We are really tired of these wars. Women and children are suffering.
+ - Some people only ask others to do something. I believe that, why should I wait for someone else? Why don’t I take a step and move forward.
+ - I want every girl, every child to be educated.
+ - My family and I are heartbroken after hearing the news that more than 100 innocent children and teachers have lost their lives.
+ - If we want to end terrorism we need to bring quality education so we defeat the mindset of terrorism mentality and of hatred.
+ - I have a new dream I must be a politician to save this country. There are so many crises in our country. I want to remove these crises.
+ - The best way to fight terrorism is to do it through a peaceful way. I believe that a war can never be ended by a war.
+ - The best way to fight terrorism is to invest in education. Instead of sending weapons, send teachers.
+ - Malala Day is not my day. It is the day of every girl and every boy. It is a day when we come together to raise our voices, so that those without a voice can be heard.
+ - When I look at my goal, my goal is peace.
+ - I think of it often and imagine the scene clearly. Even if they come to kill me, I will tell them what they are trying to do is wrong, that education is our basic right.
+ - So today, we call upon the world leaders to change their strategic policies in favor of peace and prosperity. We call upon the world leaders that all of these deals must protect women and children’s rights. A deal that goes against the rights of women is unacceptable.
+ - My father was convinced the Taliban would hunt him down and kill him, but he again refused security from the police. ‘If you go around with a lot of security the Taliban will use Kalashnikovs or suicide bombers and more people will be killed,’ he said. ‘At least I’ll be killed alone.’
+ - We must “Bring Back Our Girls” and support Nigerians working every day to create change. Please donate now to support Nigerian organizations educating and standing up for girls.
+ - In the future, women, rather than men, will be the ones to change the world.
+ - People say Malala’s voice is being sold to the world. But I see it as Malala’s voice reaching the world and resonating globally. You should think about what is behind Malala’s voice. What is she saying? I am only talking about education, women’s rights, and peace.
+ - You must fight others, but through peace, and through dialogue, and through education.
+ - There are many problems, but I think there is a solution to all these problems, it’s just one and it’s education. You educate all the girls and boys. You give them the opportunity to learn.
+ - When we imagine the power of all our sisters standing together on the shoulders of a quality education – our joy knows no bounds.
+ - There was a time when women social activists asked men to stand up for their rights, but this time we will do it by ourselves. I am not telling men to step away from speaking for women’s rights rather I am focusing on women to be independent to fight for themselves.
+
+106 quotes

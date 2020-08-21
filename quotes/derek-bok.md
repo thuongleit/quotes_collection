@@ -1,0 +1,31 @@
+ - If you think education is expensive, try ignorance.
+ - I won’t say there aren’t any Harvard graduates who have never asserted a superior attitude. But they have done so to our great embarrassment and in no way represent the Harvard I know.
+ - Although professors regard improving critical thinking as the most important goal of college, tests reveal that seniors who began their studies with average critical thinking skills have progressed only from the 50th percentile of entering freshmen to about the 69th percentile.
+ - There are no tests similar to SATs to tell us how much undergraduates know. State legislators, who appropriate billions of dollars each year to higher education, are naturally interested in finding out what they are getting for their money.
+ - The first country to adopt happiness as an official goal of public policy is the tiny little country of Bhutan in Asia near China and India.
+ - There is far too much law for those who can afford it and far too little for those who cannot.
+ - Efforts to develop critical thinking falter in practice because too many professors still lecture to passive audiences instead of challenging students to apply what they have learned to new questions.
+ - The most obvious purpose of college education is to help students acquire information and knowledge by acquainting them with facts, theories, generalizations, principles, and the like. This purpose scarcely requires justification.
+ - Economists who have studied the relationship between education and economic growth confirm what common sense suggests: The number of college degrees is not nearly as important as how well students develop cognitive skills, such as critical thinking and problem-solving ability.
+ - Universities are institutions run by amateurs to train professionals.
+ - There’s a great deal of difference between thinking reflectively about moral issues and achieving higher standards of ethical behavior.
+ - Ever since economists revealed how much universities contribute to economic growth, politicians have paid close attention to higher education.
+ - The college that takes students with modest entering abilities and improves their abilities substantially contributes more than the school that takes very bright students and helps them develop only modestly.
+ - Greater inequality in Europe has made people less happy.
+ - Critics of American colleges typically attribute the failings of undergraduate education to a tendency on the part of professors to neglect their teaching to concentrate on research. In fact, the evidence does not support this thesis, except perhaps in major research universities.
+ - Again and again, universities have put a low priority on the very programs and initiatives that are needed most to increase productivity and competitiveness, improve the quality of government, and overcome the problems of illiteracy, miseducation, and unemployment.
+ - I think the minority students that we admit to Harvard are every bit as meritorious as the white students that we admit.
+ - If we are prepared to invest the necessary time and effort, affirmative action can contribute to Harvard’s quality and not detract from it.
+ - I think one thing that does cause unhappiness is protracted anxiety and worry.
+ - I think any self-respecting educational institution ought to judge its policies by its best estimate of what their long-term consequences for their students and for the society will be.
+ - I suspect that no community will become humane and caring by restricting what its members can say.
+ - I don’t think the alternative to Yale is jail by any means. On the other hand, there is a mass of research that does show that there are real advantages to your subsequent career in going to selective institutions.
+ - The oldest of the arts and the youngest of the professions.
+ - Early admission programs tend to advantage the advantaged.
+ - Despite the hours spent debating different models of general education, the choices faculties make rarely lead to any significant difference in the cognitive development of undergraduates.
+ - Good teaching is creating really interesting generalizations out of war stories.
+ - As countries embrace mass higher education, the cost of maintaining universities increases dramatically relative to an elite system.
+ - I think it’s sort of an outrage that companies should have to hire firms to teach the college graduates they employ how to write.
+ - Fewer than half of all university professors publish as much as one article per year.
+
+29 quotes

@@ -1,0 +1,49 @@
+ - If you choose to be a Muslim then you believe that it is on some level wrong to show the image of the Prophet Muhammad.
+ - Indian culture is essentially much more of a we culture. It’s a communal culture where you do what’s best for the community – you procreate.
+ - I was born in India – but never really lived there.
+ - Statistically there is enough voter fraud to sway zero elections.
+ - I think you had the GOP down there in North Carolina reaching out to African-American voters and this guy coming on television and using the N-word and saying what Don Yelton said.
+ - Paki- bashing was kind of this term that was used in general to beat up anyone that was from the Indian subcontinent.
+ - It is ironic that it doesn’t matter how successful I am in any other capacity. Ultimately, my parents marker is do you have a wife? And do you have children?
+ - If you don’t acknowledge differences, it’s as bad as stereotyping or reducing someone.
+ - I know the Gospel according to Mark better than I know any sura in the Quran.
+ - I’ve always said I’m the worst representative of Muslim-Americans that’s ever existed, because I’ve been inside more bars than mosques.
+ - I think I discovered my first, you know, my first image of a naked woman was sort of sneaking a peek at one of those magazines that was in my dad’s store.
+ - It’s an ironic thing about being an immigrant kid, growing up – ’cause I grew up in the UK and went to a British boarding school and we would go to chapel every Sunday morning. And we’d actually have religious studies and religious studies means Christian studies where you study the Bible.
+ - I’m Muslim the way many of my Jewish friends are Jewish: I avoid pork, and I take the big holidays off.
+ - Because to Americans, Chechnya might as well be a suburb of Narnia.
+ - You do find a lot of your time in the West kind of searching for your place in the world – your voice, your identity, like, who am I? Like, what is my reason for being here, you know? And in that same way who am I to be partnered with, you know?
+ - An artist’s job is simply to take the mirror in front of your face and hold it there. It’s not to give you any answers. It is simply to take that mirror and point it at you.
+ - We are Muslims. My father would pawn off his Muslim in-laws as Hindus just so that he could get free pancakes.
+ - Of course the law’s not racist.
+ - I came from a very different sort of background and pedigree from the people who were on “The Daily Show”. I was an actor. I was sort of – the irony is that I’ve done as much dramatic work in my career as comedic work and I don’t really think of myself as a comedian.
+ - From my parent’s generation the idea was not that marriage was about some kind of idealized, romantic love. It was a partnership. It’s about creating family. It’s about creating offspring.
+ - When my family decided to leave England I could not have been happier. I was sort of like – America seemed like the land of opportunity and, you know, it was Hollywood to me.
+ - I think family dynamics are definitely very interesting. And in my case my sister did get married. She gave my parents a grandchild.
+ - Re-colonizing it and sort of reverse-colonizing it to the point that today the national dish of Great Britain is Chicken Tikka Masala.
+ - You can get samosas in any pub in England today, pretty much. So, “Gunga Din” has come back.
+ - England has an interesting relationship with the Indian subcontinent because the years of colonization and the history between the two places.
+ - It’s an organic thing that I try not to analyze too much, because I worry that it will go away.
+ - Traditional television as we have known it will make love to the Internet and have a child. That child will be the future. It’s already happening, and it’s hot!
+ - So I had this completely unrealistic idea of what America was – but I wanted to be there.
+ - I’m not really a food connoisseur.
+ - I never consciously got into comedy. It was sort of one of those things where I was a theater student, I was acting, I was doing comedy, I was doing dramatic stuff, so it’s been something that I’ve always done and enjoyed doing and had an instinct to be relatively good at.
+ - When I was 11 my friend’s mom made a peanut butter sandwich. I ate the sandwich and was like, ‘I’m never eating anything else again.’ And I still eat peanut butter every day. I would put peanut butter on a steak.
+ - Now the bigots have to get creative. Good luck coming up with slurs for Chechens. Go back where you came from, Ushanka head.
+ - I mean, but obviously, in people’s eyes, it still – it can still link Islam to terrorism. I mean, why does it make a difference that they’re white?
+ - I don’t want to tell people what they should think.
+ - When you’re brown and Indian, you get offered a lot of doctor roles.
+ - People lament that there’s no roles being written for South Asian or Muslim characters. But their parents don’t want their children to go into the entertainment field. You don’t get it both ways.
+ - In America, you have this kind of individualism and in the West, essentially, you have this individualism – this idea of my own personal fulfillment.
+ - The experience of being on a show that is very much in the center of popular culture is exciting. You really feel like you’re reaching people.
+ - This was in the ’70s and there was a lot of racism towards South Asians and there was a lot of hazing and bullying and racism that really probably shaped me in some way in terms of, like, wanting to get out of there.
+ - North Carolina precinct chairman and GOP executive committee member Don Yelton thinks his state’s new voting restrictions are just fine.
+ - Voter fraud does just barely exist, while racism, according to the Supreme Court, is a thing of the past.
+ - Samantha Bee said to me when I first started on the “Daily Show”, she was like no – there is no – the only way you’ll learn this job is by doing this job.
+ - I grew up on American pop culture so everything that I fantasized about to get out of this sort of humdrum world of Bradford was about America. So when we decided to move there I was on the plane.
+ - The artist never really has any control over the impact of his work. If he starts thinking about the impact of his work, then he becomes a lesser artist.
+ - I said we are Ghodratis and there’s nothing that Ghodratis like more than a bargain.
+ - There’s no school that you can go to and learn how to be a “Daily Show” correspondent and how to interview people and, you know, essentially leave your soul outside the door and go in there and kind of, you know, destroy people’s lives sometimes.
+ - For anybody who’s ever been on the other end of, like, racial violence logic is not something that can be used.
+
+47 quotes

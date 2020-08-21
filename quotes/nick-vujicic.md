@@ -1,0 +1,100 @@
+ - Do your best and God will do the rest.
+ - If I fail, I try again, and again, and again.
+ - The greater the struggle the more glorious the triumph.
+ - Risk, then, is not just part of life. It is life. The place between your comfort zone and your dream is where life takes place. It’s the high-anxiety zone, but it’s also where you discover who you are.
+ - You are beautiful just the way you are.
+ - Failure is not important, how you overcome it is.
+ - Focus on your dream and do everything in your power. You have the power to change your life circumstances.
+ - When you can’t get a miracle, you can still be a miracle for someone else.
+ - Pain is Pain. Broken is Broken. FEAR is the Biggest Disability of all. And will PARALYZE you More Than Being in a Wheelchair.
+ - The greatest rewards come when you give of yourself. It’s about bettering the lives of others, being part of something bigger than yourself, and making a positive difference.
+ - As long as I try, there’s always a chance of getting up. It’s not the end until you give up.
+ - Keep moving ahead because action creates momentum, which in turn creates unanticipated opportunities.
+ - Dream big, my friend, and never give up. We all make mistakes, but none of us are mistakes. Take one day at a time. Embrace the positive attitudes, perspectives, principles and truths I share, and you, too, will overcome.
+ - I was never crippled until I lost hope.
+ - Defeat happens only to those who refuse to try again.
+ - It’s a lie to think you’re not good enough. It’s a lie to think you’re not worth anything.
+ - What really matters are the lives you touch along the way and how you finish your journey.
+ - If you have the desire and passion to do something, and it’s within God’s will, you will achieve it.
+ - If you’re not happy single, your not gonna be happy married.
+ - I will try one hundred times to get up, and if I fail one hundred times. If I fail and I give up, will I ever get up? No! If I fail I’ll try again, and again and again. But I want to tell you it’s not the end.
+ - I am gonna try again and again, because the moment I give up, is the moment I fail.
+ - To wish for change will change nothing; To make the decision to take action right now will change everything.
+ - There are no short and easy paths to a long and lasting happiness.
+ - You don’t know what God can do with your broken pieces until you give God your broken pieces.
+ - Life without limbs? Or life without limits?
+ - You can either be angry for what you don’t have or thankful for what you do have. Do your best and God will do the rest.
+ - Don’t give up on God, because God will not give up on you.
+ - God won’t allow anything happen in your life if it’s not for your good.
+ - I don’t care what job you get. I care about if you put people down or raise people up.
+ - Motivation gets you through the day, but inspiration lasts a lifetime.
+ - Fear is a bigger disability than having no arms and no legs.
+ - We all start with zero. We all start at the beginning. Do not give up.
+ - In life you have a choice: Bitter or Better? Choose better, forget bitter.
+ - I love my life, because I’ve seen my purpose.
+ - I may have absolutely no control over what happens to us, but we can control how we respond. If we choose the right attitude, we can rise above whatever challenges we face.
+ - Don’t put your life on hold so that you can dwell on the unfairness of past hurts.
+ - Often people ask how I manage to be happy despite having no arms and no legs. The quick answer is that I have a choice. I can be angry about not having limbs, or I can be thankful that I have a purpose. I chose gratitude.
+ - I never met a bitter person who was thankful. Or a thankful person who was bitter.
+ - Whether your life is happy or not is your own choice.
+ - You can’t even stand without risking to fall.
+ - This life is full of great experiences if we only give it a shot.
+ - Just because I don’t understand god’s plans does not mean that he is not with me.
+ - Some injuries heal more quickly if you keep moving.
+ - I encourage you to accept that you may not be able to see a path right now, but that doesn’t mean it’s not there.
+ - Have you ever felt trapped in circumstances, then discovered that the only trap was your own lack of vision, lack of courage, or failure to see that you had better options?
+ - If you’re looking for happiness in things, you’ll never find it.
+ - There’s no point in being complete on the outside when you’re broken in the inside.
+ - Yet I also believe that when you do unto others, blessings come to you as well. So if you don’t have a friend, be a friend. If you are having a bad day, make someone else’s day. If your feelings are hurt, heal those of another.
+ - If you aren’t where you want to be or you haven’t achieved all you hope to achieve, the reason most likely resides not around you but within you. Take responsibility and then take action.
+ - I know for certain that miracles happen, but only for those who hang on to hope.
+ - Sometimes we need to get over ourselves and actually realize that sometimes, God has a better plan. God’s ways are higher than ours.
+ - I know for certain that God does not make mistakes, but he does make miracles. I am one. You are, too.
+ - You can be happy in any circumstances, you simply need to believe in God.
+ - I realised that I had a choice to either feel angry about not having arms and legs, or thankful for having my family, friends and my little foot.
+ - I found the purpose of my existence, and also the purpose of my circumstance. There’s a purpose for why you’re in the fire.
+ - The pinnacle of the fulfillment I can ever experience for my spirit and soul is to hear from the Lord, when I see Him face to face, ‘Well done my good and faithful servant.’
+ - We know that God is in control and we all have ups and downs and fears and uncertainty sometimes. Sometimes even on an hourly basis we need to keep praying and keep our peace in God and remind ourselves on the promises of God that never fails.
+ - Having faith, beliefs, and convictions is a great thing, but your life is measured by the actions you take based upon them.
+ - The day you think you have reached your fullest potential is the day that you havn’t.
+ - I’d be dishonoring God if I didn’t believe I was put here on Earth to help change the world.
+ - The biggest temptation I believe is to feel comfortable, to feel like you’ve worked through all of that here on Earth, and are satisfied with this life.
+ - We know that God works for all things together for the good of those who love Him and that God is faithful. We will fail God, we will fail our family and our family might fail us at times, but God never fails us.
+ - I don’t want to be someone’s reason to hate their life. I want to be someone’s reason to seek something more in their life.
+ - Money can’t heal your heart. Money can’t give you purpose. I don’t want arms and legs, I want purpose. I don’t want arms and legs, I want peace. I don’t want arms and legs, I want to be a miracle for someone else.
+ - I may not have hands to hold my wife’s hands, but I don’t need hands to hold her heart. That’s what I’m gonna hold.
+ - We easily become trapped in the ‘someday’ mentality. Someday I’ll have all the money I need to enjoy life. Someday I’ll be able to spent more time with my family. Someday I’ll have time to relax and do what i love doing.
+ - The victory is when I realize that I can’t do it on my own.
+ - Your son and your daughter needs an excellent father more than an excellent college.
+ - Once you accept that perfection is just a goal, screwing up isn’t so hard to handle. Each misstep is still a step, another lesson learned, another opportunity to get it right the next time.
+ - No matter who you are, no matter what you’re going through, God knows it. He is with you. He is going to pull you through.
+ - I have the blessing of bringing the message of hope and inspiration about my life, how God has changed my life from a life without limbs to a life without limits.
+ - Faith is walking by faith, not by what you feel. You are not always going to feel that Jesus loves you or that God is good, but you know He is. It is the up and down of the journey.
+ - I think bullies are very lonely people. I always tell teenagers not to bully others because it’s unacceptable. We need to teach students to value themselves and to not put others down.
+ - I encourage everyone to know that God has a plan for their life and that God never makes a mistake even though it seems like He is not listening or paying attention sometimes.
+ - We need to awaken the next generation to understand that we are all change-makers. The nation is not as strong as its government but its next generation.
+ - If God can use a man without arms and legs to be His hands and feet, then He will certainly use any willing heart!
+ - One thing I gained in my life is just the need for more Jesus in my life. You never come to a place in your walk with Jesus where you feel like you’ve had enough. That’s a dangerous feeling to have.
+ - Do you know why I love God? Because Heaven is real. And one day, when we get to Heaven, we are going to have arms and legs. And we are going to run, and we are going play, and we are going to race.
+ - The greatest news that I could ever say is that Jesus is Lord and Savior of my life. He is my friend. He is with me wherever I go. I’m so delighted to continue to grow in my relationship to Jesus.
+ - Hope and purpose in this world is living as best as you can and maybe having life that gives back. But simply giving back isn’t purpose; it’s a branch of purpose, but it is not the trunk or root of the tree.
+ - I honestly didn’t think miracles could ever come from my broken pieces, and I was disabled in fear that my dreams would always remain as dreams. Don’t give up on you. Don’t give up on God. Don’t give up on love.
+ - I’m the world ‘Guinness Book of Records’ holder of 1,749 hugs in one hour. My arms fell off.
+ - A nation that honors God will always be honored by God. I’ve seen nations that have dishonored God: God has been taken out of schools, the government, the military; and when you take Him out of a nation, how can you expect God to protect this nation?
+ - When God doesn’t change a circumstance, He can change our hearts in knowing that He can change all things for the good.
+ - Sometimes you may feel like you are just about to realize your goal only to fall short. That is no reason to quit. Defeat happens only to those who refuse to try again.
+ - Wives don’t need a good provider, they need a Godly man who will help them trust in The Provider – God!!
+ - I’m officially disabled, but I’m truly enabled because of my lack of limbs. My unique challenges have opened up unique opportunities to reach so many in need.
+ - I type 40 words per minute on a normal computer with my left foot. And with two cups of coffee, I can do 53 words per minute.
+ - It is not to say that everything is fine and a positive attitude is all you need. But I share about values and principles and attitudes and I never tell people I understand their pain.
+ - I just hope people see that if God can do something beautiful with my broken pieces, then God truly has a plan for each and everyone of us.
+ - I just share my story in hopes that some people out there who have gone through different circumstances might be encouraged and inspired that even in their circumstances to know that there is nothing God can’t change.
+ - You have arms and legs, but don’t know what to do with your lives.
+ - I don’t care if you are a good mathematician, or a good athletic, or not good at anything- that you think. But I’m gonna come and tell you that you’re awesome the way you are.
+ - It’s a form of bullying, in my opinion, to make sure that your kid gets the best grades, the best jobs and all that sort of stuff. I just want my child to be happy. I want him to do his best and trust God in the rest, but I’m not going to bully him.
+ - Where I can preach I do preach and where I can’t I still preach with love but just not the normal words we usually use in church.
+ - When we don’t hear anything from God we just don’t know exactly what He is planning and we come to different conclusions that maybe He has forgotten me, maybe He doesn’t hear my prayers, maybe I’m not good enough.
+ - Bullies want to abuse you. Instead of allowing that, you can use them as your personal motivators. Power up and let the bully eat your dust.
+ - I really forget that I have no arms or legs sometimes.
+
+98 quotes

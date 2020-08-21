@@ -1,0 +1,87 @@
+ - Life is all about taking risk to get what you want.
+ - The best way to be loved, is to love yourself.
+ - Love overcomes hate. Love has no color. Love has no orientation. All is love.
+ - At least I can say that I’m honest.
+ - Be who you want to be – be free in your own skin, be liberated and feel beautiful, and do what you want to do without judgement.
+ - Coming up with something new and original is so exciting.
+ - If sexy scares you, don’t listen to my music.
+ - If something doesn’t look right, throw some glitter on it.
+ - I don’t like to look typical.
+ - Being who you are is a lot easier than faking it.
+ - No escaping when I start, once I’m in I own your heart.
+ - When I was in high school I was 250 pounds.
+ - I’m so happy to be in a committed relationship.
+ - Carving out an identity for yourself is important so I’m trying to do that as well.
+ - I’ve sung other people’s music all my life.
+ - Fantasy is so much hotter than reality most of the time.
+ - If My New Album Isn’t Out in 2014, Something is Seriously Wrong!
+ - In middle school, I really didn’t have music, but in high school, I remember taking a lot of choir and drama.
+ - There’s a certain amount of mind control that happens. Everybody is living in a world where they’re being controlled. They’re being told what to think, what to do, and what to eat.
+ - My mother was always supportive.
+ - I try to go throughout my daily life just as if nothing has changed, but you don’t have much anonymity anymore, which feels really good. People come up, and say hi and they enjoy your work.
+ - I think theatricality is just one way of performing. I don’t think it’s a better way or the way, but it’s my way.
+ - Wait a minute, I’m a fan of yours; you can’t be a fan of mine!
+ - A lot of my male vocal influences are British – people like David Bowie, Freddie Mercury and Robert Plant.
+ - Los Angeles can be a really sad city.
+ - My dad is a Deadhead, my mom’s a Jewish-American princess from Jersey.
+ - All these songs honestly explore the ups and downs of my reality.
+ - I was a big fan of Middle Eastern elements of music and experimental electronic and tribal sounds.
+ - I’ve been kind of toying around with the bi thing in my head. I wouldn’t ever give myself the label ‘bisexual,’ but bi-curious? Yea.
+ - I’m proud of my sexuality.
+ - I think the difficult thing is the transition between TV competition series and going into the actual music industry. There still seems to be a slight disconnect there.
+ - I’m proud of my sexuality. I embrace it. It’s just another part of me.
+ - After my tour I had time to stay at home, be with my boyfriend and hang out with friends and that brought me down to earth and helped me write music from a more relaxed place.
+ - Ive only dressed in drag three or four times.
+ - So pretty much, to sum it up, if you can freak someone out and bring that kind of emotion out of somebody with a song, you’re doing something right.
+ - Conforming is not cool.
+ - The biggest risk I’ve ever taken is going on American Idol and trying to be myself. I wasn’t going to try too hard to conform, and I knew that it could possibly not work out.
+ - There’s a certain level of pageantry with ‘Idol,’ and in order to work the show, you kind of have to feed into it.
+ - The way I look at it is everybody should have the right to get married, if they so choose.
+ - I started to realize I wasn’t like every other boy.
+ - You are so much more, than your orientation, you know it and I know it.
+ - I have crushes on women all the time. I don’t have intimate relationships with them, but I find women beautiful.
+ - There’s no regrets for me.
+ - The only lifestyle I’m promoting is the lifestyle of love and friendship. The lifestyle of music, and joy, and fashion. So whoever wants to come and get part of that lifestyle, we accept anybody.
+ - I think Lady Gaga is great and is changing pop music and bringing back a certain rock ‘n’ roll spirit, swagger to the game.
+ - Fame is a very strange animal.
+ - My first album was completed in three months.
+ - The album feels like a new era for me – emotionally, lyrically, sonically. It feels fresh, it feels new. It’s still me. It’s still stuff that fans know and love but it’s a new chapter 100 percent.
+ - Those shows I did with Queen were pretty surreal. I was really excited and super-flattered, but intimidated at the same time.
+ - Pop is a little bit theatrical. That’s the whole vibe. That’s the point – is that it’s great music, great melodies, great hooks. But, on top of it, it’s a presentation. There’s a showmanship about it. And that’s why I wanted to be a pop star.
+ - I’m a freak in the fondest way possible.
+ - I like ‘Rocky Horror.’
+ - When you dance and move around it creates a different reaction from the audience – they love it.
+ - I had a lot of fun with my costume designer.
+ - Nowadays in pop, there’s not a lot of men that are singing big and loud and high – it’s not as common as it once was.
+ - I think the responsibility of pop stars is to liberate the masses. In that everyone can be whatever they wanna be. You can march to your own beat. It’s so hard sometimes in our country because conformity is the way things are pushed.
+ - I listen to crazy, robust rock music where they sing their faces off, and soul music, which can be similar.
+ - I’ve always been fond of the glam-rocker title.
+ - I get why certain actors want to stay in the closet.
+ - I think, for the majority of my twenties, I was always so concerned with what I didn’t have, or what I still wanted.
+ - I’m trying to be a singer, not a civil rights leader.
+ - I need to be able to explain myself in context.
+ - I breeze through Twitter – I look at the mentions, the pictures, the videos.
+ - I just talk a lot, that’s the problem.
+ - I want to upset people, I want to make people think, I want to keep people interested.
+ - I was really beating myself up about performances and how I looked and this and that.
+ - I never really listen to what people say. My thing is that my favorite artists are artists that are theatrical. Obviously when you are doing a recording, things aren’t gonna translate as over-the-top.
+ - We don’t have a lot of men on stage doing flamboyant or theatrical. We have a lot of female pop stars doing it, but where are the guys? Where’s the classic pop-rock showman?
+ - I’ve been known to make out with girls from time to time. Couple drinks involved, you know. It’s fun. And who knows? Maybe it’ll go further someday. I don’t know.
+ - I’m very inspired by past music.
+ - I definitely have my opinions that I’m very vocal about and I’m not afraid to put them out there.
+ - I never wore full-on eyeliner in high school, but I wanted to.
+ - The kids that are different and out there and expressive and are bold with those choices, those are the people that grow up to be people we all want to hang out with, that become celebrities or become really successful in what they do because they believe in who they are.
+ - I started rejecting the proper way to sing and I started singing.
+ - For me, one of the important things about keeping vocally healthy is warming up and making sure I’m aware where my voice is at, drinking lots of water and getting plenty of sleep, and just taking care of myself with exercise and eating healthy.
+ - I wanted to look different because I felt different.
+ - I think the British audience might be more open-minded with some of my imagery and weird choices.
+ - I wanted the focus to be on my ability as a singer and as an entertainer – not on my private life.
+ - I think sometimes we’re meant to do something but things aren’t lined up correctly.
+ - I think you kind of have to put yourself out there.
+ - Bowie’s been a huge influence on me.
+ - I knew that it was my only shot to be taken seriously in the recording industry, because it’s fast and broad.
+ - When I was kid, I remember playing ‘Vogue’ by Madonna over and over and over again. And ah, you know, something about the beat was really cool, and Madonna, visually, was on TV all the time and I thought she was just so beautiful.
+ - Yeah, I think speculation keeps things really interesting.
+ - Female performers have been doing this for years – pushing the envelope about sexuality – and the minute a man does it, everybody freaks out.
+
+85 quotes

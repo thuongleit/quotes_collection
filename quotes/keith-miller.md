@@ -1,0 +1,39 @@
+ - The way to love someone is to lightly run your finger over that person’s soul until you find a crack, and then gently pour your love into that crack.
+ - A forest is mystery but the desert is truth. Life pared to the bone.
+ - This is the year of expansion in the Kingdom of God! Tent pegs will span to the north, the south, the east, and the west in the realm of revelation in the dominion of the Kingdom, where you will walk in a greater dimension of the manifestation of the Kingdom for your life!
+ - I remember when I was a little boy my father didn’t love me; he couldn’t. He loved my older brother but he couldn’t love me somehow, at least not in a way I could understand it.
+ - We can’t be intimate because we can’t share feelings that we don’t have.
+ - The problem is that this speeded-up life and stress in America causes us to cut off our feelings, so we are out of touch with our reality.
+ - I am six feet tall. I am not supposed to be afraid.
+ - Intimacy, as I am using it, is sharing my reality with you.
+ - No gentleman ever discusses any relationship with a lady.
+ - A spiritual person is also in touch with his or her own reality, feelings and thoughts, and the reality of the people around him or her, not projecting on them.
+ - Pain is the doorway to wisdom and to truth.
+ - Religious work is one of the best ways to keep from facing your reality if you are Christian, if you are using it to calm the pain, because that it what all addictions are, attempts to cover the pain of this spiritual disease.
+ - I am deeply a part of the problem for which Christ died.
+ - I was taught that pain is bad.
+ - The whole Bible is the story of men and women trying to get back to God, to overcome that sin with sacrifices, good works, sermons, prophesy, witnessing, giving all kinds of things. It never worked.
+ - But keep characters in propinquity long enough and a story will always develop a plot.
+ - We live in a constant fear that our shortcomings will be exposed to family, to friends and to the world.
+ - Memories must enter the bloodstream, must churn awhile through the heart’s mill, must be crushed and polished, be nearly forgotten or cling like burs to other stories before they spill forth in purple patterns, shapes of small bones and worm rot, shapes of clouds and the spaces between leaves.
+ - I am too old to think.
+ - The writing of poetry is a chancy business, it’s currency solitude and loss, its tools coffee and too much wine, its hours midnight, dawn, and dusk, and unlike other trade the hours asleep are not time off.
+ - We religious controllers control in the name of Jesus and it is really painful to people.
+ - I wrote a book called The Taste of New Wine because I couldn’t find a book that talked about the reality of the situation and how we were dishonest and afraid.
+ - A lot of us have jobs where we need to give people structure but that is different from controlling.
+ - I learned that the purpose of the Twelve Steps is to do the will of God.
+ - All I have to tell you about is what I have heard and seen of Jesus, how He is helping me find freedom, to occasionally love other people, and even accept myself with all my mixed motives.
+ - I am discovering that in trying to find God’s will and the shape of the Christian life I have begun an adventure so great that its total completion will always be ahead.
+ - My only hope to receive love is to let you see who I am, then I may believe you.
+ - I grew up and I became very successful at what I did as a young man. I became a work addict because this was the only way I could get any relief from this pain.
+ - There never was a social change in America without angry people at the heart.
+ - I’ve seen batting all over the world. And in other countries too.
+ - Beneath all of these addictions is this disease, this control disease which is the mark of our society.
+ - What happens is that people who are very religious but who are not in touch with reality, cannot be spiritual.
+ - Feelings are like a color chart that God has given us.
+ - Prayer no longer seems like an activity to me; it has become the continuing language of the relationship I believe God designed to fulfill a human life.
+ - The primary symptom of a controller is denial, that is I can’t see its symptoms in myself.
+ - I have learned to like myself for the first time and to have some serenity.
+ - If God is in a life, it doesn’t have to be big to be happy and to be important in His kingdom.
+
+37 quotes

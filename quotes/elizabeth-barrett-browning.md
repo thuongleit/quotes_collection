@@ -1,0 +1,176 @@
+ - Light tomorrow with today!
+ - Earth’s crammed with heaven, And every common bush afire with God: But only he who sees takes off his shoes.
+ - I love thee to the depth and breadth and height my soul can reach.
+ - How do I love thee? Let me count the ways.
+ - I love you not only for what you are, but for what I am when I am with you. I love you not only for what you have made of yourself, but for what you are making of me. I love you for the part of me that you bring out.
+ - I love you not only for what you are, but for what I am when I am with you.
+ - Silence is the best response to a fool...
+ - If thou must love me, let it be for naught except for love’s sake only.
+ - No man can be called friendless who has God and the companionship of good books.
+ - Earth’s crammed with Heaven.
+ - True knowledge comes only through suffering.
+ - You’re something between a dream and a miracle.
+ - If you desire faith, then you have faith enough.
+ - It was not the apple on the tree but the pair on the ground that caused the trouble in the garden of Eden.
+ - The denial of contemporary genius is the rule rather than the exception. No one counts the eagles in the nest, till there is a rush of wings; and lo! they are flown.
+ - God Himself is the best Poet, And the Real is His song.
+ - The little cares that fretted me, I lost them yesterday Among the fields above the sea, Among the winds at play.
+ - I love you for the part of me that you bring out.
+ - And if God choose I shall but love thee better after death.
+ - Alas, I have grieved so I am hard to love. Yet love me – wilt thou? Open thine heart wide, And fold within, the wet wings of thy dove.
+ - Experience, like a pale musician, holds a dulcimer of patience in his hand.
+ - Never say No when the world says Aye.
+ - He lives most life whoever breathes most air.
+ - World’s use is cold, world’s love is vain, world’s cruelty is bitter bane; but is not the fruit of pain.
+ - So mothers have God’s license to be missed.
+ - And each man stands with his face in the light. Of his own drawn sword, ready to do what a hero can.
+ - And I smiled to think God’s greatness flowed around our incompleteness; Round our restlessness, His rest.
+ - God answers sharp and sudden on some prayers, And thrusts the thing we have prayed for in our face, A gauntlet with a gift in it.
+ - You were made perfectly to be loved – and surely I have loved you, in the idea of you, my whole life long.
+ - I tell you, hopeless grief is passionless; That only men incredulous of despair, half-taught in anguish, through the midnight air beat upward to god’s throne in loud access of shrieking and reproach.
+ - I love thee freely, as men strive for right. I love thee purely, as they turn from praise. I love thee with the passion put to use.
+ - Some people always sigh in thanking God.
+ - What is genius but the power of expressing a new individuality?
+ - The devil’s most devilish when respectable.
+ - Love that endures, from life that disappears!
+ - A child’s kiss Set on thy sighing lips shall make thee glad; A poor man served by thee shall make thee rich; A sick man helped by thee shall make thee strong; Thou shalt be served thyself by every sense Of service which thou renderest.
+ - There are nettles everywhere, but smooth, green grasses are more common still; the blue of heaven is larger than the cloud.
+ - Yet half the beast is the great god Pan, To laugh, as he sits by the river, Making a poet out of a man. The true gods sigh for the cost and the pain – For the reed that grows never more again As a reed with the reeds of the river.
+ - You may write twenty lines one day – or even three like Euripides in three days – and a hundred lines in one more day – and yet on the hundred, may have been expended as much good work, as on the twenty and the three.
+ - The essence of all beauty, I call love, The attribute, the evidence, and end, The consummation to the inward sense Of beauty apprehended from without, I still call love.
+ - How many desolate creatures on the earth have learnt the simple dues of fellowship and social comfort, in a hospital.
+ - Who so loves believes the impossible.
+ - Happy are all free peoples, too strong to be dispossessed. But blessed are those among nations who dare to be strong for the rest!
+ - He who breathes deepest lives most.
+ - Books succeed; and lives fail.
+ - I should not dare to call my soul my own.
+ - Capacity for joy Admits temptation.
+ - Too much beauty, I reckon, is nothing but too much sun.
+ - The exchange of sympathy for gratitude is the most princely thing!
+ - A great man leaves clean work behind him, and requires no sweeper up of the chips.
+ - Let us be content to work To do the things we can, and not presume To fret because it’s little.
+ - We have hearts within, Warm, live, improvident, indecent hearts.
+ - His ears were often the first thing to catch my tears.
+ - Suddenly, as rare things will, it vanished.
+ - Gaze up at the stars knowing that I see the same sky and wish the same sweet dreams.
+ - Life treads on life, and heart on heart; We press too close in church and mart To keep a dream or grave apart.
+ - Definition of Love: A score of zero in tennis. I love thee with the breath, Smiles, tears of all my life.
+ - There, that is our secret: go to sleep! You will wake, and remember, and understand.
+ - Whoever lives true life, will love true love.
+ - Get leave to work In this world, – ’tis the best you get at all.
+ - God’s gifts put man’s best dreams to shame.
+ - The soul’s Rialto hath its merchandise, I barter for curl upon that mart.
+ - And that dismal cry rose slowly And sank slowly through the air, Full of spirit’s melancholy And eternity’s despair; And they heard the words it said,- “Pan is dead! great Pan is dead! Pan, Pan is dead!”
+ - With stammering lips and insufficient sound I strive and struggle to deliver right the music of my nature.
+ - The least flower, with brimming cup, may stand and share its dew drop with another near.
+ - The world’s male chivalry has perished out, but women are knights-errant to the last; and, if Cervantes had been greater still, he had made his Don a Donna.
+ - And lilies are still lilies, pulled By smutty hands, though spotted from their white.
+ - There’s nothing great Nor small, has said a poet of our day, Whose voice will ring beyond the curfew of eve And not be thrown out by the matin’s bell.
+ - What I do and what I dream include thee, as the wine must taste of its own grapes.
+ - Our Euripides the human, With his droppings of warm tears, and his touchings of things common Till they rose to meet the spheres.
+ - I would build a cloudy House For my thoughts to live in; When for earth too fancy-loose And too low for Heaven! Hush! I talk my dream aloud – I build it bright to see, – I build it on the moonlit cloud, To which I looked with thee.
+ - Large, musing eyes, neither joyous nor sorry.
+ - And lips say God be pitiful, who never said, God be praised.
+ - Eve is a twofold mystery.
+ - I wish I were the lily’s leaf To fade upon that bosom warm, Content to wither, pale and brief, The trophy of thy paler form.
+ - Of writing many books there is no end.
+ - Two human loves make one divine.
+ - Life, struck sharp on death, Makes awful lightning.
+ - God only, who made us rich, can make us poor.
+ - But the child’s sob curses deeper in the silence than the strong man in his wrath!
+ - A woman’s always younger than a man at equal years.
+ - The beautiful seems right by force of beauty and the feeble wrong because of weakness.
+ - O brave poets, keep back nothing; Nor mix falsehood with the whole! Look up Godward! speak the truth in Worthy song from earnest soul! Hold, in high poetic duty, Truest Truth the fairest Beauty.
+ - All actual heroes are essential men, And all men possible heroes.
+ - Think, in mounting higher, the angels would press on us, and aspire to drop some golden orb of perfect song into our deep, dear silence.
+ - Love me sweet With all thou art Feeling, thinking, seeing; Love me in the Lightest part, Love me in full Being.
+ - Or from Browning some “Pomegranate,” which if cut deep down the middle Shows a heart within blood-tinctured, of a veined humanity.
+ - The essence of all beauty, I call love.
+ - Oh, a day in the city-square, there is no such pleasure in life!
+ - Wall must get the weather stain Before they grow the ivy.
+ - Don’t get me wrong-painting’s all right. But now that we have photography, what’s the point?
+ - Thank God for grace, Ye who weep only! If, as some have done, Ye grope tear-blinded in a desert place And touch but tombs, – look up! Those tears will run Soon in long rivers down the lifted face, And leave the vision clear for stars and sun.
+ - May the good God pardon all good men.
+ - Deep violets, you liken to The kindest eyes that look on you, Without a thought disloyal.
+ - First time he kissed me, he but only kissed The fingers of this hand wherewith I write; And, ever since, it grew more clean and white.
+ - Oh, the little birds sang east, and the little birds sang west.
+ - Yes, I answered you last night; No, this morning, sir, I say: Colors seen by candle-light Will not look the same by day.
+ - Do ye hear the children weeping, O my brothers?
+ - Children use the fist until they are of age to use the brain.
+ - And Marlowe, Webster, Fletcher, Ben, Whose fire-hearts sowed our furrows when The world was worthy of such men.
+ - What is art but the life upon the larger scale, the higher. When, graduating up in a spiral line of still expanding and ascending gyres, it pushes toward the intense significance of all things, hungry for the infinite?
+ - The large white owl that with eye is blind, That hath sate for years in the old tree hollow, Is carried away in a gust of wind.
+ - Since when was genius found respectable?
+ - If we tried To sink the past beneath our feet, be sure The future would not stand.
+ - For frequent tears have run; The colours from my life.
+ - Foolishness and criticism are so apt, do so naturally go together!
+ - Whatever’s lost, it first was won.
+ - And is it not the chief good of money, the being free from the need of thinking of it?
+ - In your patience ye are strong.
+ - Like to write? Of course, of course I do. I seem to live while I write – it is life, for me.
+ - My patience has dreadful chilblains from standing so long on a monument.
+ - Most illogical Irrational nature of our womanhood, That blushes one way, feels another way, And prays, perhaps another!
+ - The English have a scornful insular way Of calling the French light.
+ - O, brothers! let us leave the shame and sin Of taking vainly in a plaintive mood, The holy name of Grief – holy herein, That, by the grief of One, came all our good.
+ - What we call Life is a condition of the soul. And the soul must improve in happiness and wisdom, except by its own fault. These tears in our eyes, these faintings of the flesh, will not hinder such improvement.
+ - My future will not copy my fair past, I wrote that once. And, thinking at my side my ministering life-angel justified the word by his appealing look upcast to the white throne of God.
+ - The music soars within the little lark, And the lark soars.
+ - I cannot speak in happy tones.
+ - At painful times, when composition is impossible and reading is not enough, grammars and dictionaries are excellent for distraction.
+ - An ignorance of means may minister to greatness, but an ignorance of aims make it impossible to be great at all.
+ - What monster have we here? A great Deed at this hour of day? A great just deed – and not for pay? Absurd – or insincere?
+ - But so fair, She takes the breath of men away Who gaze upon her unaware.
+ - A good neighbor sometimes cuts your morning up to mince-meat of the very smallest talk, then helps to sugar her bohea at night with your reputation.
+ - Of all the thoughts of God that are Borne inward unto souls afar, Along the Psalmist’s music deep, Now tell me if that any is. For gift or grace, surpassing this – He giveth His beloved sleep.
+ - Where Christ brings His cross He brings His presence; and where He is none are desolate, and there is no room for despair.
+ - I worked with patience which means almost power.
+ - Anybody is qualified, according to everybody, for giving opinions upon poetry. It is not so in chemistry and mathematics. Nor is it so, I believe, in whist and the polka. But then these are more serious things.
+ - The charm, one might say the genius, of memory is that it is choosy, chancy and temperamental.
+ - A woman’s pity sometimes makes her mad.
+ - The man, most man, works best for men: and, if most man indeed, he gets his manhood plainest from his soul.
+ - I, who thought to sink, was caught up into love, and taught the whole of life in a new rhythm.
+ - I have done most of my talking by post of late years – as people shut up in dungeons take up with scrawling mottoes on the walls.
+ - Every age, Through being beheld too close, is ill-discerned By those who have not lived past it.
+ - Souls are dangerous things to carry straight through all the spilt saltpetre of this world.
+ - Men get opinions as boys learn to spell by reiteration chiefly.
+ - And there my little doves did sit With feathers softly brown And glittering eyes that showed their right To general Nature’s deep delight.
+ - Free men freely work: Whoever fears God, fears to sit at ease.
+ - Thou large-brain’d woman and large-hearted man.
+ - The great chasm between the thing I say, and the thing I would say, would be quite dispiriting to me, in spite even of such kindnesses as yours, if the desire did not master the despondency.
+ - Why, what is to live? Not to eat and drink and breathe, – but to feel the life in you down all the fibres of being, passionately and joyfully.
+ - Books are men of higher stature, and the only men that speak aloud for future times to hear.
+ - I begin to think that none are so bold as the timid, when they are fairly roused.
+ - Every wish Is like a prayer – with God.
+ - I saw, in gradual vision through my tears, The sweet, sad years, the melancholy years, Those of my own life, who by turns had flung A shadow across me.
+ - Very whitely still The lilies of our lives may reassure Their blossoms from their roots, accessible Alone to heavenly dews that drop not fewer; Growing straight out of man’s reach, on the hill. God only, who made us rich, can make us poor.
+ - Many a fervid man writes books as cold and flat as graveyard stones.
+ - Death forerunneth Love to win “Sweetest eyes were ever seen.”
+ - You smell a rose through a fence: If two should smell it, what matter?
+ - Beloved, let us live so well our work shall still be better for our love, and still our love be sweeter for our work.
+ - He’s just, your cousin, ay, abhorrently, He’d wash his hands in blood, to keep them clean.
+ - The plague of gold strikes far and near.
+ - And yet, because I love thee, I obtain From that same love this vindicating grace, To live on still in love, and yet in vain.
+ - New angel mine, unhoped for in the world!
+ - When the dust of death has choked a great man’s voice, the common words he said turn oracles, the common thoughts he yoked like horses draw like griffins.
+ - The flower-girl’s prayer to buy roses and pinks, held out in the smoke, like stars by day.
+ - Utterance is the evidence of foregone study.
+ - This race is never grateful: from the first, One fills their cup at supper with pure wine, Which back they give at cross-time on a sponge, In bitter vinegar.
+ - With what cracked pitchers go we to deep wells In this world!
+ - My sun sets to raise again.
+ - A man may love a woman perfectly, and yet by no means ignorantly maintain a thousand women have not larger eyes. Enough that she alone has looked at him with eyes that, large or small, have won his soul.
+ - In this abundant earth no doubt Is little room for things worn out: Disdain them, break them, throw them by! And if before the days grew rough We once were lov’d, us’d – well enough, I think, we’ve far’d, my heart and I.
+ - Folded eyes see brighter colors than the open ever do.
+ - And Chaucer, with his infantine Familiar clasp of things divine.
+ - She has seen the mystery hid Under Egypt’s pyramid: By those eyelids pale and close Now she knows what Rhamses knows.
+ - The Greeks said grandly in their tragic phrase, ‘Let no one be called happy till his death;’ to which I would add, ‘Let no one, till his death, be called unhappy.’
+ - Souls are gregarious in a sense, but no soul touches another, as a general rule.
+ - A grave, on which to rest from singing?
+ - My love for him was so exquisitely pure that if we all were capable of giving and receiving such a beautiful gift the world would be a far more brilliant place; I think we’d all be poets.
+ - If I leave all for thee, wilt thou exchange And be all to me?
+ - Purple lilies Dante blew To a larger bubble with his prophet breath.
+ - But since he had The genius to be loved, why let him have The justice to be honoured in his grave.
+ - I tell you, hopeless grief is passionless.
+ - Get work: Be sure it is better than what you work to get.
+ - What frightens me is that men are content with what is not life at all.
+
+174 quotes

@@ -1,0 +1,34 @@
+ - Burnout is what happens when you try to avoid being human for too long.
+ - You make beautiful things, You make beautiful things out of the dust.
+ - We are all creators. Whether or not we create is not up to us. We are human, and creating is what we do. Every interaction, movement, and decision is creativity at work. We are all artists. We all order creation around us into the world that we want to make.
+ - The person who creates from the noise simply adds to the noise. The person who creates from a place of listening, however, can actually make something worthwhile and enjoy his work in the process.
+ - Creativity is simply the human brain forming new connections between ideas, and we all are engaged in this process every day. The common idea that there are some people who are creative and some who are not is a myth. On some level, we are all artists. We are all creators.
+ - Spend your energy on things you believe in, and do them honestly and to the best of your ability.
+ - I don’t want everybody to try to sound like something; I think that God has given us each unique talents and passions. The things that come out of me will be different than my neighbor, because I have a totally different set of relationships, totally different set influences and personality traits.
+ - The danger of art created to rise above the noise is that it may end up being noise itself.
+ - The whole idea of worship being associated with music, it gives you an impotence to make art that is true, that is honest and that opens the human heart to God and to reality.
+ - Art is the body’s pronunciation of the soul.
+ - Pain is as common as skin, we all experience it. It unites us all. Fortunately, that’s not the whole story.
+ - I think everybody is different. We are trying to be ourselves, and other people are trying to be themselves. We all share commonalities with each other, but all of us have different thumbprints. We all have our own unique things.
+ - Not just in Christian music but also in a lot of Christian culture there is a lot of pretending that everyone is perfect, nobody is really going through much.
+ - The noise around us determines how we speak. And how we listen. Just as a conversation suffers in a war zone, art suffers in a culture built on noise. So does our enjoyment of it.
+ - Faith comes from listening to the right stories.
+ - To me, God is the basic Reality of the universe. God is what is. That’s how Moses wrote that God introduced Himself, isn’t it? “I am that I am.” God is. Whatever is, that is God.
+ - I think I’m just trying to be myself and write songs that are honest. That’s what I hear in artist’s that I like.
+ - To me music is music. A person of faith, a person that calls themselves a Christian, they are the Christian and they make music. Some music has more to do about God than other music, but in reality what makes the difference between “secular” and “Christian” music is simply a marketing channel.
+ - Any religious, philosophical or political idea that doesn’t lead one towards love ought to be forsaken.
+ - Money is not the root of all kinds of evil. The love of money is. It’s also the root of a lot of bad art.
+ - You don’t have to be afraid, even death itself does not have power. In Christ, everything is becoming new, everything is different.
+ - If anyone should have a reason to not be afraid, to move beyond the expectations of culture, that is kind of the whole message of Christianity.
+ - There is a reason we used to build Cathedrals that drew the eye upwards.
+ - One of the things I love about art, is that it can say number of things to people. I broad hope is that it would just open people’s hearts and that they would experience love, and that that would experience God.
+ - Art, along with all work is the ordering of creation toward the intention of the creator.
+ - It’s hard to make a living in music, so a lot of times in the arts it’s safer to kind of fit into a box.
+ - When I think of Spirit, I think of that mysterious force that pulls us into being, into becoming, into love. That can get political rather quickly.
+ - I do think that Christians will make music that oh should have some of the grandest visions of why we should create music and why we should seek to create beauty world.
+ - I’ve found that limitations can be an artist’s best friend sometimes.
+ - The more successful the work, the more people will step in to try to influence and manipulate the work for their own benefit.
+ - I’m not one to call out an individual and say “I don’t think that is honest.” Who am I to know what is in their heart while they are singing it?
+ - To me genres were always an imaginary things, they’re just marketing channels.
+
+32 quotes

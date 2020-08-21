@@ -1,0 +1,105 @@
+ - But the first lesson reading teaches is how to be alone.
+ - You’re either reading a book or you’re not.
+ - Use well thy freedom.
+ - There is, after all, a kind of happiness in unhappiness, if it’s the right unhappiness.
+ - How wrong to have been so negative, how wrong to have been so gloomy, how wrong to have run away from life, how wrong to have said no, again and again, instead of yes.
+ - I guess my life hasn’t always been happy, or easy, or exactly what I want. At a certain point, I just have to try not to think too much about certain things, or else they’ll break my heart.
+ - Elective ignorance was a great survival skill, perhaps the greatest.
+ - Without privacy there was no point in being an individual.
+ - Nice people don’t necessarily fall in love with nice people.
+ - I find it a huge strain to be responsible for my tastes and be known and defined by them.
+ - Fiction is a solution, the best solution, to the problem of existential solitude.
+ - It’s doubtful that anyone with an internet connection at his workplace is writing good fiction.
+ - Depression presents itself as a realism regarding the rottenness of the world in general and the rottenness of your life in particular.
+ - The novelist has more and more to say to readers who have less and less time to read: where to find the energy to engage a culture in crisis when the crisis consists in the impossibility of engaging with the culture?
+ - You see more sitting still than chasing after.
+ - Then she waited, with parted lips and a saucy challenge in her eyes, to see how her presence – the drama of being her – was registering. In the way of such chicks, she seemed convinced of the originality of her provocation.
+ - I’ve moved away from that sort of deep-ecological extremism. I started to think: what can we do for wild birds right now? I don’t want these particular species to disappear.
+ - Once there are good sentences on the page, I can feel a loyalty to them and start following their logic, and take refuge from myself.
+ - He became another data point in the American experiment of self-government, an experiment statistically skewed from the outset, because it wasn’t the people with sociable genes who fled the crowded Old World for the new continent; it was the people who didn’t get along well with others.
+ - Popularity has become its own justification.
+ - Readers and writers are united in their need for solitude, in their pursuit of substance in a time of ever-increasing evanescence: in their reach inward, via print, for a way out of loneliness.
+ - Integrity’s a neutral value. Hyenas have integrity, too. They’re pure hyena.
+ - Every good writer I know needs to go into some deep, quiet place to do work that is fully imagined. And what the Internet brings is lots of vulgar data. It is the antithesis of the imagination. It leaves nothing to the imagination.
+ - THE CORRECTION, when it finally came, was not an overnight bursting of a bubble but a much more gentle letdown, a year-long leakage of value from key financial markets, a contraction too gradual to generate headlines and too predictable to seriously hurt anybody but fools and the working poor.
+ - The figure of my father looms large in my imagination.
+ - There’s a hazardous sadness to the first sounds of someone else’s work in the morning; it’s as if stillness experiences pain in being broken.
+ - Expecting a novel to bear the weight of our whole disturbed society – to help solve our contemporary problems – seems to me a peculiarly American delusion. To write sentences of such authenticity that refuge can be taken in them: isn’t this enough? Isn’t it a lot?
+ - Good novels are produced by people who voluntarily isolate themselves and go deep, and report from the depths on what they find.
+ - If you want to have friends, you have to remember that nobody’s perfect.
+ - Here was a torture that Greek inventors of the Feast and the Stone had omitted from their Hades: the Blanket of Self-Deception. A lovely warm blanket as far as it covered the soul in torment, but it never quite covered everything.
+ - And Silence of the Lambs is a really smart book.
+ - Interesting verbs are seldom very interesting.
+ - I was a late child from my parents, so I grew up surrounded by people a lot older than me. I think even when I was 21, I felt like I was a 70-year-old man.
+ - Imagine that human existence is defined by an Ache: the Ache of our not being, each of us, the center of the universe; of our desires forever outnumbering our means of satisfying them.
+ - Nothing got inside the head without becoming pictures.
+ - Patty knew, in her heart, that he was wrong in his impression of her. And the mistake she went to go on to make, the really big life mistake, was to go along with Walter’s version of her in spite of knowing that it wasn’t right. He seemed so certain of her goodness that eventually he wore her down.
+ - The pain was quite extraordinary. And yet also weirdly welcome and restorative, bringing him news of his aliveness and his caughtness in a story larger than himself.
+ - Fiction is a particularly effective way for strangers to connect across time and distance.
+ - If you look at the New Testament, it’s a gospel of love. Yes, there’s talk of judgement and there’s talk of heaven and there’s talk of people not getting into heaven, but it doesn’t seem to me that the fundamental message of the gospels was one of guilt and retribution so much as love.
+ - He couldn’t figure out if she was immensely well adjusted or seriously messed up.
+ - It seems to me self-evident that if you have a life, things happen in it, and certain things do change; certain things end. People you know die.
+ - If you’re interested in how people behave, if you’re interested in the way they talk about themselves, the way the conceive of themselves, it’s very hard to ignore drugs nowadays, because that is so much part of the conversation.
+ - What you discovered about yourself in raising children wasn’t always agreeable or attractive.
+ - It’s healthy to say uncle when your bone’s about to break.
+ - If multiculturalism succeeds in making us a nation of independently empowered tribes, each tribe will be deprived of the comfort of victimhood and be forced to confront human limitation for what it is: a fixture of life.
+ - I don’t personally like the e-readers they’ve come up with so far. I don’t fetishize books, but I do like that they’re solid and unchanging.
+ - It took hours to turn the clock back 30 seconds.
+ - The problem with making a virtual world of oneself is akin to the problem with projecting ourselves onto a cyberworld: there’s no end of virtual spaces in which to seek stimulation, but their very endlessness, the perpetual stimulation without satisfaction, becomes imprisoning.
+ - The writer’s life is a life of revisions.
+ - He had a happy canine way of seeking approval without seeming insecure.
+ - The personality susceptible to the dream of limitless freedom is a personality also prone, should the dream ever sour, to misanthropy and rage.
+ - I admire your capacity for admiring.
+ - I think the mission for the writer is to tell stories in a compelling way about the stuff that cannot be talked about, that cannot be gotten at with shallow media.
+ - The reader is a friend, not an adversary, not a spectator.
+ - I wanted all of her and resented other boys for wanting any part of her.
+ - You could slap his wrist for saying it, but then he said it with his face, and you could spank him for making faces, but then he said it with his eyes, and there were limits to correction-no way, in the end, to penetrate behind the blue irises and eradicate a boy’s disgust.
+ - Reading enables me to maintain a sense of something substantive– my ethical integrity, my intellectual integrity.
+ - His tiredness hurt so much it kept him awake.
+ - Being dead’s only a problem if you know you’re dead, which you never do because you’re dead!
+ - An ink bottle, which now seems impossibly quaint, was still thinkable as a symbol in 1970.
+ - When I finally gave up any hope of doing anything representative of the American family, I actually seemed to have tapped into other people’s weirdness in that way.
+ - I hate that word dysfunction.
+ - Today’s Baudelaires are hip-hop artists.
+ - We may freak out globally, but we suffer locally.
+ - Our lives look a lot more interesting when they’re filtered through the sexy Facebook interface. We star in our own movies, we photograph ourselves incessantly, we click the mouse and a machine confirms our sense of mastery.
+ - I can’t stomach any kind of notion that serious fiction is good for us, because I don’t believe that everything that’s wrong with the world has a cure.
+ - But she was seventeen now and not actually dumb. She knew that you could love somebody more than anything and still not love the person all that much, if you were busy with other things.
+ - It’sthe fate of most Ping-Pong tables in home basements eventually to serve the ends of other, more desperate games.
+ - Nell Zink is a writer of extraordinary talent and range. Her work insistently raises the possibility that the world is larger and stranger than the world you think you know.
+ - He wanted this someone to see how much he hurt.
+ - Just as the camera draws a stake through the heart of serious portraiture, television has killed the novel of social reportage.
+ - It was a way of recognizing places of enchantment: people falling asleep like this.
+ - And meanwhile the sad truth was that not everyone could be extraordinary, not everyone could be extremely cool; because whom would this leave to be ordinary?
+ - When I was younger, the main struggle was to be a ‘good writer.’ Now I more or less take my writing abilities for granted, although this doesn’t mean I always write well.
+ - This evening I begin a notebook. If anyone reads this, I trust they will forgive my overuse of “I”. I can’t stop it. I’m writing this.
+ - But as far as being popular, yeah, I think Dave Barry is really funny.
+ - The Mekons were kind of like the background music of my life.
+ - I feel as if I’m clearly part of a trend among writers who take themselves seriously – and I confess to taking myself as seriously as the next writer.
+ - Fiction, I believed, was the transmutation of experiential dross into linguistic gold. Fiction meant taking up whatever the world had abandoned by the road and making something beautiful out of it.
+ - I was about 13, in some ways, when I wrote the first book. Approximately 18 when I wrote the second.
+ - But nothing disturbs the feeling of specialness like the presence of other human beings feeling identically special.
+ - The place of stillness that you have to go to to write, but also to read seriously, is the point where you can actually make responsible decisions, where you can actually engage productively with an otherwise scary and unmanageable world.
+ - The problem was money and the indignities of life without it. Every stroller, cell phone, Yankees cap, and SUV he saw was a torment. He wasn’t covetous, he wasn’t envious. But without money he was hardly a man.
+ - This wasn’t the person he’d thought he was, or would have chosen to be if he’d been free to choose, but there was something comforting and liberating about being an actual definite someone, rather than a collection of contradictory potential someones.
+ - I look at my father, who was in many ways an unhappy person, but who, not long before he got sick, said that the greatest source of satisfaction in his life had been going to work in the company of other workers.
+ - Fiction that isn’t an author’s personal adventure into the frightening or the unknown isn’t worth writing for anything but money.
+ - I’m not too concerned what happens to my books after I’m dead. But I am very concerned by what’s going on with the culture of reading and writing nowadays.
+ - It’s just a matter of writing the kind of book I enjoy reading. Something better be happening at the beginning, and then on every page after, or I get irritated.
+ - Deploring other people – their lack of perfection – had always been our sport.
+ - I really enjoy doing both, but I didn’t write nonfiction until 1994.
+ - I had a Viking sense of entitlement to whatever provisions I could plunder.
+ - Life, in her experience, had a kind of velvet luster. You looked at yourself from one perspective and all you saw was weirdness. Move your head a little bit, though, and everything looked reasonably normal.
+ - I feel that working environmentalists are, in the main, happier than armchair environmentalists.
+ - I used to think it was hard to write, and I still find the process more or less unpleasant, but if I know what I’m doing it rattles along, then the rewrite whips it into shape rather quickly.
+ - You encountered a misery near the end of the day and it took a while to gauge its full extent. Some miseries had sharp curvature and could be negotiated readily. Others had almost no curvature and you knew you’d be spending hours turning the corner. Great whopping-big planet-sized miseries.
+ - As with all forms of liberation, of which the liberation of women is only one example, it is easy to suppose in a time of freedom that the darker days of repression can never come again.
+ - What he’d never understood about men in his position, in all the books he’d read and movies he’d seen about them, was clearer to him now: you couldn’t keep expecting wholehearted love without, at some point, requiting it. There was no credit to be earned for simply being good.
+ - Brooklyn was like Philadelphia made better by its proximity to Manhattan.
+ - It’s not surprising to see in my own work, looking back, and in the work of some of my peers, an attention to family. It’s nice to write a book that does tend toward significance and meaning, and where else are you sure of finding it?
+ - It offended his sense of himself, because he was an individual from an age of individuals, and a string of lights was, like him, an individual thing. No matter how little the thing had cost, to throw it away was to deny its value...
+ - I voluntarily inflicted a certain level of insanity on myself.
+ - The world was ending then, it’s ending still, and I’m happy to belong to it again.
+ - To me, the point of a novel is to take you to a still place. You can multitask with a lot of things, but you can’t really multitask reading a book.
+
+103 quotes

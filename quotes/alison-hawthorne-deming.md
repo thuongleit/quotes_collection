@@ -1,0 +1,53 @@
+ - Climate change is a moral challenge, not simply an economic or technological problem. It is linked to social justice, because it is the poor citizens of the world who will suffer the most from our excesses.
+ - Life seems complicated to me; I feel confused a lot of the time by life. I feel confused about the fact that we can be so tender as creatures to one another, and so monstrous at the same time.
+ - I don’t want people to write programmatic environmental poems, but I think sustainability should become deeply a part of the consciousness of poetry – an impulse toward compassion, empathy, and social justice.
+ - I like bringing poetry’s focus on figurative language and compression into the essay. Of course, the musical properties of language, the cadence of the sentence, are really important to me in prose.
+ - I had real concerns about the relationship between nature and culture and places I wanted to write about. I thought, well, maybe I should try prose. It was a real struggle to begin because, first of all, there were so many words on the page – it was terrifying. Beginning was awful.
+ - I’m filled with despair. We live in a pathological culture filled with rage and bitterness and greed. The hate-mongering and racism is reaching a frightening pitch.
+ - Earth’s immune system – its rapid response team of self-protection – becomes invigorated at times of peril. And one sees it at play now in the upwelling of grassroots work aimed at finding a sustainable future.
+ - We’re facing enormous changes in our planetary life, with climate change and the adaptations that all natural systems are going to have to make to these climate changes, and so it’s extremely important to bear witness to what’s happening.
+ - I do think environmental writers need to be forward thinking, not just lamenting our losses. We do need to lament; in some ways it’s important to be the vessels for grief for all that’s being lost on our planet. But we also need to be forward thinking.
+ - If you have this deep feeling of empathy for the natural world, you feel it so profoundly. It’s almost a religious experience. I feel that I could never really say the depth of feeling or connection I feel to the natural world, which has made me.
+ - I like to joke that I started writing long poems out the anxiety over ending and starting poems. It just seemed easier to keep going.
+ - What keeps me level is the refusal to let the best of human aspirations die in the face of the challenges. I make a moral decision to be hopeful.
+ - Poetry is a really helpful instrument. It’s so physical; the musicality becomes a sort of expression of the body. The mind is there too, in the formal aspects of the poem. The emotions are there in the way the senses gather things into the poem.
+ - I’m extremely interested in science as the mythos within which I live. Science tells me what kind of animal I am, what kind of a universe I live in. It’s always deepening my understanding of the natural world.
+ - I was attacked by two dogs when I was three and a half years old. I’m lucky to be alive. My face was stitched back together and here I still am, gratefully so. I believe that experience shocked me into a deep alliance with the animal world, its beauty and viciousness and terror.
+ - I don’t know much about death and the sorriest lesson I’ve learned is that words, my most trusted guardians against chaos, offer small comfort in the face of anyone’s dying.
+ - It’s extremely important that, as writers, we give a voice to those who don’t have voices, including the other animals that we share the planet with and the places that are endangered or being lost.
+ - I like the dance between sustained focus and digression that the long poem invites. A controlling metaphor helps to sustain the long poem.
+ - As writers, the world is not about individual expression entirely because we are producing works of literature and getting them out into the world.
+ - I’m trying to learn something about making a balance between the inner life and the outer life. I wouldn’t write if I didn’t need to be making those discoveries, if I didn’t feel the perpetual ignorance of being a human being.
+ - Sometimes it gets talked about as if life is all about the individual, and I don’t think it is. I’m really interested in what writing can contribute to a kind of cultural intelligence.
+ - I grow very impatient with prose writers who don’t pay attention to the cadence of the sentence. If you start as a poet, you’re wooed by the music of language; you want to put that into your practice.
+ - When we’re writing anything, we’re bearing witness to the time we live in and how it’s different from any other time in history.
+ - I’m just really interested in the interface of the individual with the collective. I think that’s where the arts live.
+ - We’re nature. Our minds are nature. Our desire to make poetry is nature.
+ - The world is going to be less biologically rich for quite some time in the future. We are always weeping that we live in such a diminished world, but we are experiencing a biologically rich world compared to what the future will look like. Bearing witness to that is a beautiful gift.
+ - I’m really interested in culture because it is such a powerful human force, particularly in America where we think it’s all about the individual.
+ - What I like about teaching is the discipline of finding words to unpack the artistic process. And I admire the drive in students who want to write, the mystery of how artistic talent unfolds.
+ - Once you realize that human actions affect every bit of earth and sky, you realize that the environment isn’t just what surrounds us – it’s all one whole.
+ - For the poets, my hope is that they will, quite simply, feel the obligation to be really informed about the situation in which we find ourselves, in terms of our imperiled planet. You should inform yourself so deeply that it becomes part of your nature, part of your voice.
+ - Teachers have had a great effect on me as a child. I’ve always loved school and had a great appetite for learning. I cried when it was time to go back home and tried to jump from my mother’s moving car to run back there.
+ - A lot of times students will come up to me and say, “Well, I can’t write because I don’t know what I think about such-and-such.” And I say, “That’s why you have to write.” You don’t wait until you know, because then who cares – it’s static.
+ - I’m always doing poems from a place of not-knowing, a place of ignorance in a way.
+ - I like to use research to enlarge the poem. And sometimes a rhetorical or syntactical gesture stitches the poem along.
+ - I’m interested in thinking about how are we contributing to the culture, what we can write that might help us deepen the culture, make us more reflective, make us more empathetic, make us feel our connectedness in other ways.
+ - As poets, we don’t accept oppression; we are about a freedom of spirit, or whatever you want to call it. I think environmental concerns have to go to the deep place, so we speak from a place of great empathy for the planet – for the disadvantaged people, animals, places, cultures.
+ - There are landscapes and species that are not going to be here a hundred years from now, fifty years from now. One gift we as writers give to the world is to bear witness to these landscapes and species as we have experienced them.
+ - I do think that the long poem speaks for an inner need for continuity. We live in a time of so many losses, disruptions, and distractions, that the need for a sense of the ongoing is quite real. The long poem is very satisfying in offering the psyche a model of coherence.
+ - For me teaching has provided community and livelihood and the satisfaction of passing along what I’ve learned to others.
+ - I’m always trying to bring as many poetic properties as possible to the essay without making it too overburdened.
+ - I started writing as a young person because I felt a lot of psychic confusion and emotional confusion, and writing was a way to sort it out. To externalize it, sort it out, put it down, look at it, and hopefully it would become clearer.
+ - Poetry is one of the most full ways of discovering what it feels like to be a human being in this particular moment, in this particular set of concerns. It’s all about discovery.
+ - The countries that are the least responsible for causing climate change are paying the heaviest price.
+ - I came to teaching late – not until my forties – which is one reason why I’m not burned out.
+ - Bringing science into poetry is one way of acknowledging some of the richest stuff that is in my cultural moment.
+ - Writers want recognition, audience, some corroboration that all those hours at the desk and in daydreams add up to something in the esteem of others.
+ - I think you have to live inside your contradictions and find a way to accept that that’s the human condition – to be forced to live in contradiction.
+ - Teachers have been heroes to me, as well as artists and writers, and I’m honored to be among their ranks. There is always a lot of grousing about the academy. I suppose it comes from our all-American anti-authoritarianism.
+ - One needs to be on guard against expecting external powers to decide when you can take yourself seriously as an artist. It can be a long wait – and lead to endless appetite.
+ - I am a result of what has happened on this planet – how could I find the art to say that? I can’t, and yet, I am drawn to it because of the enormity of it. That seems really important.
+ - I had wanted for so many years to feel that writing really was at the center of my life, not something I did in my spare time. So the writing and teaching feel in some way to be one thing – the personal engagement and the social engagement good partners.
+
+51 quotes

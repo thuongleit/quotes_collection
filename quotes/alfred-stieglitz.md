@@ -1,0 +1,38 @@
+ - Photography is a reality so subtle that it becomes more real than reality.
+ - Photography is my passion.
+ - The ability to make a truly artistic photograph is not acquired off-hand, but is the result of an artistic instinct coupled with years of labor.
+ - I have a vision of life, and I try to find equivalents for it in the form of photographs.
+ - The fight for photography became my life.
+ - The goal of art was the vital expression of self.
+ - For that is the power of the camera: seize the familiar and give it new meanings, a special significance by the mark of a personality.
+ - My cloud photographs are equivalents of my most profound life experiences, my basic philosophy of life. All art is an equivalent of the artist’s most profound life experiences.
+ - Photography my passion, the search for truth, my obsession.
+ - Utopia is in the moment. Not in some future time, some other place, but in the here and now, or else it is nowhere.
+ - Wherever there is light, one can photograph.
+ - It is not art in the professionalized sense about which I care, but that which is created sacredly, as a result of a deep inner experience, with all of oneself, and that becomes ‘art’ in time.
+ - My photographs are a picture of the chaos in the world, and of my relationship to that chaos. My prints show the world’s constant upsetting of man’s equilibrium, and his eternal battle to reestablish it.
+ - When I make a picture, I make love.
+ - Everything is relative except relatives, and they are absolute.
+ - The great geniuses are those who have kept their childlike spirit and have added to it breadth of vision and experience.
+ - All art, like all love, is rooted in heartache.
+ - All I want is to preserve that wonderful something which so purely exists between us.
+ - If you can imagine photography in the guise of a woman and you’d ask her what she thought of Stieglitz, she’d say: He always treated me like a gentleman.
+ - Photography as a fad is well-nigh on its last legs, thanks principally to the bicycle craze.
+ - If you place the imperfect next to the perfect, people will see the difference between the one and the other. But if you offer the imperfect alone, people are only too apt to be satisfied by it.
+ - The scene fascinated me: a round straw hat; the funnel leaning left, the stairway leaning right; the white drawbridge, its railings made of chain; white suspenders crossed on the back of a man below; circular iron machinery; a mast that cut into the sky, completing a triangle.
+ - I do not object to retouching, dodging or accentuation as long as they do not interfere with the natural qualities of photographic technique.
+ - Photographers must learn not to be ashamed to have their photographs look like photographs.
+ - Before the people at large, and for that matter, the artists themselves, understand what photography really means, as I understand that term, it is essential for them to be taught the real meaning of art.
+ - Let me here call attention to one of the most universally popular mistakes that have to do with photography – that of classing supposedly excellent work as professional, and using the term amateur to convey the idea of immature productions and to excuse atrociously poor photographs.
+ - Several people feel I have photographed God. May be.
+ - The arts equally have distinct departments, and unless photography has its own possibilities of expression, separate from those of the other arts, it is merely a process, not an art.
+ - There are many schools of painting. Why should there not be many schools of photographic art? There is hardly a right and a wrong in these matters, but there is truth, and that should form the basis of all works of art.
+ - The camera was waiting for me by predestination and I took to it as a musician takes to the piano or a painter to canvas. I found that I was master of the elements, that I could work miracles.
+ - A work is not art until enough noise has been made about it and someone rich comes along and buys it.
+ - As a matter of fact, nearly all the greatest work is being, and has always been done, by those who are following photography for the love of it, and not merely for financial reasons. As the name implies, an amateur is one who works for love.
+ - To demand the portrait that will be a complete portrait of a person is as futile as to demand that a motion picture be condensed into a single still.
+ - Snow. White, white, white, soft and clean, and maddening shapes, with the whole world in them.
+ - There is nothing so wrong as accepting a thing merely because men who have done things say it should be so.
+ - I am not a painter, nor an artist. Therefore I can see straight, and that may be my undoing.
+
+36 quotes

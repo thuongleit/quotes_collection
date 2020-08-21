@@ -1,0 +1,43 @@
+ - Has any man ever obtained inner harmony by simply reading about the experiences of others? Not since the world began has it ever happened. Each man must go through the fire himself.
+ - You can tell the ideals of a nation by its advertisements.
+ - Distrust of authority should be the first civic duty.
+ - The true cook is the perfect blend, the only perfect blend, of artist and philosopher. He knows his worth: he holds in his palm the happiness of mankind, the welfare of generations yet unborn.
+ - One can always trust to time. Insert a wedge of time and nearly everything straightens itself out.
+ - Why always “not yet”? Do flowers in spring say “not yet”?
+ - If you want to see what children can do, you must stop giving them things.
+ - How hard it is, sometimes, to trust the evidence of one’s senses! How reluctantly the mind consents to reality.
+ - It takes a wise man to handle a lie, a fool had better remain honest.
+ - The secret of happiness is curiosity.
+ - A man who is stingy with saffron is capable of seducing his own grandmother.
+ - The families of our friends are always a disappointment.
+ - The business of life is to enjoy oneself; everything else is a mockery.
+ - Shall I give you my recipe for happiness? I find everything useful and nothing indispensable. I find everything wonderful and nothing miraculous. I reverence the body. I avoid first causes like the plague.
+ - Education is a state-controlled manufactory of echoes.
+ - There is so much goodness in real life- do let us keep it out of our books.
+ - Wine is a precarious aphrodisiac, and its fumes have blighted many a mating.
+ - How often could things be remedied by a word. How often is it left unspoken.
+ - He talks about the Scylla of Atheism and the Charybdis of Christianity – a state of mind which, by the way, is not conducive to bold navigation.
+ - I can find no room in my cosmos for a deity save as a waste product of human weakness, the excrement of the imagination.
+ - You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.
+ - It seldom pays to be rude. It never pays to be only half-rude.
+ - People who have reformed themselves has contributed their full share towards the reformation of their neighbor.
+ - There is a kinship, a kind of freemasonry, between all persons of intelligence, however antagonistic their moral outlook.
+ - Justice is too good for some people and not good enough for the rest.
+ - They who are all things to their neighbors cease to be anything to themselves.
+ - No great man is ever born too soon or too late.
+ - The sublimity of wisdom is to do those things living, which are to be desired when dying.
+ - There is in us a lyric germ or nucleus which deserves respect; it bids a man to ponder or create; and in this dim corner of himself he can take refuge and find consolations which the society of his fellow creatures does not provide.
+ - The present age, for all its cosmopolitan hustle, is curiously suburban in spirit.
+ - Bouillabaisse is only good because cooked by the French, who, if they cared to try, could produce an excellent and nutritious substitute out of cigar stumps and empty matchboxes.
+ - Learn to foster an ardent imagination; so shall you descry beauty which others passed unheeded.
+ - A man can believe a considerable deal of rubbish, and yet go about his daily work in a rational and cheerful manner.
+ - Never take a solemn oath. People think you mean it.
+ - The longer one lives, the more one realizes that nothing is a dish for every day.
+ - Many a man who thinks to found a home discovers that he has merely opened a tavern for his friends.
+ - What is all wisdom save a collection of platitudes? But the man who orders his life according to their teachings cannot go far wrong.
+ - No one can expect a majority to be stirred by motives other than ignoble.
+ - You can cram a truth into an epigram – the truth, never.
+ - I wish the English still possessed a shred of the old sense of humour which Puritanism, and dyspepsia, and newspaper reading, and tea-drinking have nearly extinguished.
+ - It is one of the maladies of our age to profess a frenzied allegiance to truth in unimportant matters, to refuse consistently to face her where graver issues are at stake.
+
+41 quotes

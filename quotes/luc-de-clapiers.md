@@ -1,0 +1,169 @@
+ - Lazy people are always anxious to be doing something.
+ - The art of pleasing is the art of deception.
+ - Give help rather than advice.
+ - Emotions have taught mankind to reason.
+ - We discover in ourselves what others hide from us and we recognize in others what we hide from ourselves...
+ - As a house implies a builder, and a garment a weaver, and a door a carpenter, so does the existence of the Universe imply a Creator.
+ - The young suffer less from their own errors than from the cautiousness of the old.
+ - We are less hurt by the contempt of fools than by the lukewarm approval of men of intelligence.
+ - Our opinion of others is not so variable as our opinion of ourselves.
+ - The most absurd and reckless aspirations have sometimes led to extraordinary success.
+ - Nothing endures except truth.
+ - Ignorance is not lack of intelligence, nor knowledge a proof of genius.
+ - Great men, like nature, use simple language.
+ - Wit does not take the place of knowledge.
+ - You must maintain strength of body in order to preserve strength of mind.
+ - Courage is adversity’s lamp.
+ - All men are born truthful and die liars.
+ - Clarity is the counterbalance of profound thoughts.
+ - The greatest achievement of the human spirit is to live up to one’s opportunities and make the most of one’s resources.
+ - You are not born for fame if you don’t know the value of time.
+ - It is of no use to possess a lively wit if it is not of the right proportion: the perfection of a clock is not to go fast, but to be accurate.
+ - Those who can bear all can dare all.
+ - Hope deceives more men than cunning does.
+ - Necessity relieves us from the embarrassment of choice.
+ - Man never rises to great truths without enthusiasm.
+ - Action makes more fortune than caution.
+ - More are taken in by hope than by cunning.
+ - The fruit derived from labor is the sweetest of pleasures.
+ - You can purchase the mind of Pascal for a crown. Pleasures even cheaper are sold to those who give themselves up to them. It is only luxuries and objects of caprice that are rare and difficult to obtain; unfortunately they are the only things that touch the curiosity and taste of ordinary men.
+ - Persevere in the fight, struggle on, do not let go, think magnanimously of man and life, for man is good and life is affluent and fruitful.
+ - It is easier to say new things than to reconcile those which have already been said.
+ - Children are taught to fear and obey; the avarice, pride, or timidity of parents teaches children economy, arrogance, or submission. They are also encouraged to be imitators, a course to which they are already only too much inclined. No one thinks of making them original, courageous, independent.
+ - Most people grow old within a small circle of ideas, which they have not discovered for themselves. There are perhaps less wrong-minded people than thoughtless.
+ - The shortness of life cannot dissuade us from its pleasures, nor console us for its pains.
+ - The greatest evil that fortune can bring to men is to endow them with feeble resources and yet to make them ambitious.
+ - Prosperity makes few friends.
+ - Vice foments war; it is virtue which actually fights. If there were no virtue, we would live in peace forever.
+ - A new principle is an inexhaustible source of new views.
+ - A liar is a man who does now know how to deceive, a flatterer one who only deceives fools: he who knows how to make skilful use of the truth, and understands its eloquence, can alone pride himself in cleverness.
+ - Reason and emotion counsel and supplement each other. Whoever heeds only the one, and puts aside the other, recklessly deprives himself of a portion of the aid granted us for the regulation of our conduct.
+ - If people did not compliment one another there would be little society.
+ - It is easy to criticize an author, but difficult to appreciate him.
+ - Hope is the only good thing that disillusion respects.
+ - It is a great sign of mediocrity to praise always moderately.
+ - The mind of man is more intuitive than logical, and comprehends more than it can coordinate.
+ - Sometimes a lengthened period of prosperity melts away in a moment; just as the heat of summer flies before a day of tempest.
+ - Necessity embitters the evils which it cannot cure.
+ - The counsels of old age give light without heat, like the sun in winter.
+ - There are men who are happy without knowing it.
+ - It is not in everyone’s power to secure wealth, office, or honors; but everyone may be good, generous, and wise.
+ - Great men undertake great things because they are great; fools, because they think them easy.
+ - We are so presumptuous that we think we can separate our personal interest from that of humanity, and slander mankind without compromising ourselves.
+ - Hope animates the wise, and lures the presumptuous and indolent who repose inconsiderately on her promises.
+ - If anyone accuses me of contradicting myself, I shall reply; I have been wrong once or more often, however I do not aspire to be always wrong.
+ - All that is unfair, offends us if it’s not beneficial for us.
+ - We are dismayed when we find that even disaster cannot cure us of our faults.
+ - None are more liable to mistakes than those who act only on second thoughts.
+ - Servitude debases men to the point where they end up liking it.
+ - Consciousness of our powers augments them.
+ - If virtue were its own reward, it would no longer be a human quality, but supernatural.
+ - In order to protect himself from force, man was obliged to submit to justice. Justice or force: he was compelled to choose between the two masters, so little are we made to be independent.
+ - And where, on earth, dwell hope and truth? In childhood’s uncorrupted heart; Alas! too soon to guileless youth The world doth its dark code impart!
+ - The light of the dawn is not so sweet as the first glimpses of fame.
+ - The law cannot equalize mankind in spite of nature.
+ - Our errors and our controversies, in the sphere of morality, arise sometimes from looking on men as though they could be altogether bad, or altogether good.
+ - It is sometimes easier to form a party than to attain by degrees the head of a party already formed.
+ - Every thought is new when an author expresses it in a manner peculiar to himself.
+ - We are forced to respect the gifts of nature, which study and fortune cannot give.
+ - Learn to overrule minor interest in favor of great ones, and generously to do all the good the heart prompts; a man is never injured by acting virtuously.
+ - You must rouse into people’s consciousness their own prudence and strength, if you want to raise their character.
+ - We have neither the strength nor the opportunity to accomplish all the good and all the evil which we design.
+ - Glory fills the world with virtue, and, like a beneficent sun, covers the whole earth with flowers and with fruits.
+ - We must not be timid from a fear of committing faults: the greatest fault of all is to deprive oneself of experience.
+ - The wicked are always surprised to find that the good can be clever.
+ - To achieve great things we must live as though we were never going to die.
+ - The fool is like those people who think themselves rich with little.
+ - Jealousy is the paralysis of love.
+ - One promises much, to avoid giving little.
+ - The maxim that men are not to be praised before their death was invented by envy and too lightly adopted by philosophers.
+ - Commerce is the school of cheating.
+ - Whoever has seen the masked at a ball dance amicably together, and take hold of hands without knowing each other, leaving the next moment to meet no more, can form an idea of the world.
+ - The tempests of youth are mingled with days of brilliant sunshine.
+ - Fools do not understand men of intelligence.
+ - The usual pretext of those who make others unhappy is that they do it for their own good.
+ - Vice stirs up war, virtue fights.
+ - All grand thoughts come from the heart.
+ - When a thought is too weak to be expressed simply, it should be rejected.
+ - If it is true that vice can never be done away with, the science of government consists of making it contribute to the public good.
+ - Great men in teaching weak men to reflect have set them on the road to error.
+ - Few people are modest enough to be estimated at their true worth.
+ - The thought of death deceives us; for it causes us to neglect to live.
+ - Obscurity is the realm of error.
+ - To withdraw ourselves from the law of the strong, we have found ourselves obliged to submit to justice. Justice or might, we must choose between these two masters.
+ - Great men are sometimes so even in small things.
+ - In a way, the main fault of all books is that they are too long.
+ - One can not be just if one is not humane.
+ - There does not exist a man sufficiently intelligent never to be tiresome.
+ - The character of false wit is that of appearing to depend only upon reason.
+ - As it is natural to believe many things without proof, so, despite all proof, is it natural to disbelieve others.
+ - We must expect everything and fear everything from time and from men.
+ - Faith is the consolation of the wretched and the terror of the happy.
+ - The falsest of all philosophies is that which, under the pretext of delivering men from the embarrassment of their passions, counsels idleness and the abandonment and neglect of themselves.
+ - He who seeks fame by the practice of virtue asks only for what he deserves.
+ - We can love with all our hearts those in whom we recognize great faults. It would be impertinent to believe that perfection alone has the right to please us; sometimes our weaknesses attach us to each other as much as our virtues.
+ - The things we know best are the things we haven’t been taught.
+ - Truth is not so threadbare as speech, because fewer people can make use of it.
+ - Some of us would be greatly astonished to learn the reasons why others respect us.
+ - Whatever affection we have for our friends or relations, the happiness of others never suffices for our own.
+ - No one likes to be pitied for his faults.
+ - I do not approve the maxim which desires a man to know a little of everything. Superficial knowledge, knowledge without principles, is almost always useless and sometimes harmful knowledge.
+ - Our failings sometimes bind us to one another as closely as could virtue itself.
+ - Few maxims are true in every respect.
+ - A man can hardly be said to have made a fortune if he does not know how to enjoy it.
+ - It is good to be firm by temperament and pliant by reflection.
+ - We can console ourselves for not having great talents as we console ourselves for not having great places. We can be above both in our hearts.
+ - It is unjust to exact that men shall do out of deference to our advice what they have no desire to do for themselves.
+ - We are almost always guilty of the hate we encounter.
+ - Clearness marks the sincerity of philosophers.
+ - Men dissimulate their dearest, most constant, and most virtuous inclination from weakness and a fear of being condemned.
+ - We should expect the best and the worst from mankind as from the weather.
+ - Our virtues are dearer to us the more we have had to suffer for them. It is the same with our children. All profound affection admits a sacrifice.
+ - It is proof of a narrow mind when things worthy of esteem are distinguished from things worthy of love. Great minds naturally love whatever is worthy of their esteem.
+ - It cannot be a vice in men to be sensible of their strength.
+ - There are those who are so scrupulously afraid of doing wrong that they seldom venture to do anything.
+ - Nothing but courage can guide life.
+ - It is difficult to esteem a man as highly as he would wish.
+ - When we are sick our virtues and our vices are in abeyance.
+ - We are not greatly pleased that our friends should respect our good qualities if they venture to perceive our faults.
+ - The best things are the most common.
+ - Men crowd into honorable careers without other vocation than their vanity, or at best their love of fame.
+ - Men are not to be judged by what they do not know, but by what they know, and by the manner in which they know it.
+ - The counsels of the old, like the winter sun, shine, but give no heat.
+ - Mediocre men sometimes fear great office, and when they do not aim at it, or when they refuse it, all that is to be concluded is that they are aware of their mediocrity.
+ - Peace renders nations happier and men weaker.
+ - Simple truths are a relief from grand speculations.
+ - When we feel that we lack whatever is needed to secure someone else’s esteem, we are very close to hating him.
+ - Some are born to invent, others to embellish; but the gilder attracts more attention than the architect.
+ - To possess taste, one must have some soul.
+ - The mind reaches great heights only by spurts.
+ - Men despise great projects when they do not feel themselves capable of great successes.
+ - We often quarrel with the unfortunate to get rid of pitying them.
+ - Neither the gifts nor the blows of fortune equal those of nature.
+ - Despair puts the last touch not only to our misery but also to our weakness.
+ - Hatred is keener than friendship, less keen than love.
+ - We are very wrong to think that some fault or other can exclude virtue, or to consider the alliance of good and evil as a monstrosity or an enigma.
+ - Men sometimes feel injured by praise because it assigns a limit to their merit; few people are modest enough not to take offense that one appreciates them.
+ - The mind is the soul’s eye, not its source of power. That lies in the heart, in other words, in the passions.
+ - If our friends do us a service, we think they owe it to us by their title of friend. We never think that they do not owe us their friendship.
+ - In order to do great things, it is necessary to live as if one was never to die.
+ - The favorites of fortune or of fame topple from their pedestals before our eyes without diverting us from ambition.
+ - Magnanimity will not consider the prudence of its motives.
+ - Excessive distrust is not less hurtfJul than its opposite. Most men become useless to him who is unwilling to risk being deceived.
+ - He who knows how to suffer everything can dare everything.
+ - The maxims of men reveal their characters.
+ - Hatred and dishonesty generally arises from fear of being deceived.
+ - All erroneous ideas would perish of their own accord if given clear expression.
+ - Everyone is born sincere and dies deceivers.
+ - The heaviest object in the world is the body of the woman you have ceased to love.
+ - There is nothing that fear and hope does not permit men to do.
+ - Some authors regard morality in the same light as we regard modern architecture. Convenience is the first thing to be looked for.
+ - Conscience, the organ of feeling which dominates us and of the opinions which rule us, is presumptuous in the strong, timid in the weak and unfortunate, uneasy in the undecided.
+ - A man who love only himself and his pleasures is vain, presumptuous, and wicked even from principle.
+ - Is it against justice or reason to love ourselves? And why is self-love always a vice?
+ - The conscience of the dying belies their life.
+ - Our actions are neither so good nor so evil as our impulses.
+ - If passion sometimes counsels greater boldness than does reflection, it gives more strength to execute it.
+ - We don’t have enough time to premeditate our actions.
+
+167 quotes

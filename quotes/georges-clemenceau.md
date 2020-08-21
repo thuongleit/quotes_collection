@@ -1,0 +1,27 @@
+ - What is said behind my back is said to my ass.
+ - A man’s life is interesting primarily when he has failed – I well know. For it’s a sign that he tried to surpass himself.
+ - The best time of love, is when one goes up the stairs.
+ - America is the only nation in history which miraculously has gone directly from barbarism to degeneration without the usual interval of civilization.
+ - Il est plus facile de faire la guerre que la paix. It is far easier to make war than to make peace.
+ - Not to be a socialist at twenty is proof of want of heart; to be one at thirty is proof of want of head.
+ - War is too important a matter to be left to the military.
+ - All the great pleasures of life are silent.
+ - A man who has to be convinced to act before he acts is not a man of action. You must act as you breathe.
+ - All that I know I learned after I was thirty.
+ - My son is 22 years old. If he had not become a Communist at 22, I would have disowned him. If he is still a Communist at 30, I will do it then.
+ - The Germans may take Paris, but that will not prevent me from going on with the war. We will fight on the Loire, we will fight on the Garronne, we will fight even in the Pyrenees. And if at last we are driven off the Pyrenees, we will continue the war at sea.
+ - What can a mere French minister do when associated with Lloyd George, who thinks he is Napoleon, and Woodrow Wilson, who thinks he is Jesus Christ?
+ - Oh, to be seventy again!
+ - My home policy: I wage war; my foreign policy: I wage war. All the time I wage war.
+ - I don’t know whether war is an interlude during peace, or peace is an interlude during war.
+ - War is a series of disasters which result in a winner.
+ - This time it will be a long one.
+ - A collective tyrant, spread over the length and breadth of the land, is no more acceptable than a single tyrant ensconced on his throne.
+ - Liberty is the right to discipline ourselves in order not to be disciplined by others.
+ - War is too serious to be entrusted to generals.
+ - A man who waits to believe in action before acting is anything you like, but he’s not a man of action. It is as if a tennis player before returning a ball stopped to think about his views of the physical and mental advantages of tennis. You must act as you breathe.
+ - When a man asks himself what is meant by action he proves he isn’t a man of action.
+ - Americans have no capacity for abstract thought, and make bad coffee.
+ - Generals cannot be trusted with anything, not even with war.
+
+25 quotes

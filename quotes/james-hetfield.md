@@ -1,0 +1,68 @@
+ - Live to win, dare to fail.
+ - I choose to live, not just exist.
+ - Life is for my own to live my own way.
+ - Music is the soundtrack to my life.
+ - Every breath I take becomes deeper, and I become more confident of myself without my crutches. The lies I’ve filled my body and soul with aren’t needed anymore. They’re not welcome. I choose to live, not just exist.
+ - My lifestyle determines my deathstyle.
+ - Don’t look back, because that’s the sign of failure.
+ - I’d rather regret doing something than not doing something.
+ - Music was the voice I didn’t have.
+ - People always complain about something. If you face yourself and stand up strong, you’re OK. You can’t go wrong.
+ - If I hadn’t of had music in my life, it’s quite possible I’d be dead and I’d much rather be alive.
+ - One time we saw some hookers but when we got closer we realized it was Motley Crue.
+ - Rap is just to me very annoying.
+ - No one but me can save myself though its too late, death greets me warm, now i will just say goodbye.
+ - It’s a good feeling, that you can put your heart out there, no matter how black it is, and people can understand it.
+ - Everybody is born good and everybody has got the same size soul. We’re here to connect with that.
+ - I’m married to Metallica.
+ - It’s all fun and games ’till someone loses an eye, then it’s just fun you can’t see.
+ - There is one Metallica. We have many styles, it’s called Metallica.
+ - My whole life was duality: Here’s my life at home, here’s my life on the road.
+ - My vocals are bad, I can’t sing, hey man, I wouldn’t ask you to do a drum roll if your arm was falling off.
+ - Just like the poles of a magnet, some people are drawn to death and others are repulsed by it, but we all have to deal with it.
+ - I have the best job in the world. I’m able to express myself, and people attach themselves to it if they identify with it. Music certainly is a driving force in my life. There’s not a moment where I’m not in it.
+ - The fans like the idea we do what we want. It’s not an act. Screw the record company and the beaten path. Without MTV or radio, we still have a huge underground following.
+ - Dying, dying, someone told me just recently, dying is easy. Living is hard. for everyone.
+ - Sleep my friend, and you will see that dream is my reality.
+ - Metallica is the world to me – it always has been, and that’s not going to change. I’m married to Metallica.
+ - I was pretty quiet as a child.
+ - I’d much rather talk about guitar playing. I hate it when people ask me about my lyrics. I always feel like telling them to just go and read them.
+ - There is something powerful in Metallica, a will, a drive.
+ - I wanted to make noise, not study theory.
+ - Metallica is a wonderful key to have on my key ring. I can go anywhere – it’s great.
+ - I associate times with certain music. It still is that for me. It’s telling the story of our lives.
+ - If you’re into what you’re playing, that’s the most important thing.
+ - Any time somebody is into your band that’s a good thing. And if they’re in a really cool, really popular band, that’s a better thing.
+ - I’m always feeling like I don’t belong, no matter where I am. So I’m just searching for a family nonstop, and sometimes I find it in the mosh pit, sometimes I find it when I’m doing some French TV show with the president’s wife.
+ - I like a women who’s got some balls, some strength. As long as I can beat her at arm wrestling, that’s fine.
+ - Send me money, send me green, and Heaven you will meet. Make your contribution and you’ll get a better seat.
+ - Nothing’s really a prized possession except my family, you know?
+ - When people start copying your style, you know that something must be happening.
+ - No secret that I enjoy motor sports and cars in particular, building cars, building custom cars. Part of that scene. I love the flow of the cars and I love the art part of them. I love the sleekness and the uniqueness of each car that you can dream up.
+ - Nothing can duplicate the sheer power and feeling you get from standing in front of your amp and bashing on your guitar.
+ - The band? No way! There ain’t no band. The band is not ‘the band’ right now. It’s just three guys.
+ - I’d like to have a beer-holder on my guitar like they have on boats.
+ - I’m not generally a big solo guy, because I’m not into showing off that way.
+ - A lot of modern amps and preamps sound great when you’re jamming by yourself, but don’t hold up in a band situation. The sound isn’t dense enough, and the lows and highs tend to get soaked up by the bass and cymbals.
+ - Authority pisses me off. I think everyone should be able to drink and get loud whenever they want.
+ - There was so much good and different music back then and you’d just keep moving through it and discovering more new stuff. I went through my Black Sabbath phase before I even started playing guitar.
+ - You want to hear vocals? Go sing it.
+ - Trios aren’t really geared for slide unless you’re gonna play chords, or play that simple George Thorogood style. It gets pretty thin when you play single note lines.
+ - Aqualung is one that my brother turned me onto. It wasn’t that hard-rocking, but Martin Barre had a really good sound. He knew what he was doing.
+ - It’s good to listen to lots of different stuff, just whatever you like. The first two records I ever bought were Alice Cooper, Killer and Jethro Tull, Aqualung. That’s two weird records to begin with, but I think they hold up well.
+ - I like playing music because it’s a good living and I get satisfaction from it. But I can’t feed my family with satisfaction.
+ - A lot of times, I’ll have a goal, I’ll start writing, and I’ll end up in some far off place, which is good. It’s nice to have a focus, but letting the lyrics write themselves where they need to go is important.
+ - Rehab is like college for your head.
+ - I love playing the melodic stuff. I love adding textures and colors.
+ - I think it’s very cool for the drummer to be set free from having to worry about holding down the beat every once in a while, though it’s a little constricting.
+ - Every band that I’ve known that has done side projects or things like that – I don’t respect them anymore.
+ - We like to set off bombs.
+ - When you’re an actor and you walk into a theatre where your movie is playing, you’re kinda proud. “Look at my skill!”
+ - I’ve discovered that sheer quantity doesn’t necessarily make for a heavier sound; if anything, overdubs make guitars sound mushier.
+ - We’d record a song that people liked and wanted to hear on the radio, and the radio wouldn’t play it because it was too long. Or they wanted to edit it, which we wouldn’t allow.
+ - We discovered how much money influences certain things work in United States. How things might seem okay on the outside, but internally, they’re corrupt.
+ - I don’t remember doing anything else; I don’t remember not living in the studio. I’m itching for people to hear this album because I’m sick of hearing it myself.
+ - As far as artists and musicians, they don’t retire. They might tour less.
+ - Most of my guitars have been instruments that look cool. I’m not picky. I never think, ‘Oh, this neck isn’t made of ebony,’ or, ‘These strings don’t feel correct.’ It doesn’t matter too much.
+
+66 quotes

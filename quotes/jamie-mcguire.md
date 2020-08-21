@@ -1,0 +1,52 @@
+ - I belong to my beloved, and my beloved is mine.
+ - You know why I want you? I didn’t know I was lost until you found me. I didn’t know what alone was until the first night I spent without you in my bed. You’re the one thing I’ve got right. You’re what I’ve been waiting for, Pigeon.
+ - One of these days you’re going to fall in love, son. Don’t settle for just anyone. Choose the girl that doesn’t come easy; the one you have to fight for, and then never stop fighting. Never.
+ - I exist for you. And I live for you. And I live to love you.
+ - It wasn’t just me, and it wasn’t just him, it was what we were together that was the exception.
+ - You gotta dance with the devil to get out of Hell.
+ - The snow began to fall again, drifting against the windows, politely begging entrance and then falling with disappointment to the ground.
+ - Cry if you must. Scream. Get it all out of your system, and then we’ll have fun. It won’t last forever, but it will keep you busy for tonight.
+ - I’ll give you the happy ever after, Pigeon. If you just believe in me, I can do it.
+ - You, Mad Dog, are exactly what I came here to protect her from. But you know what? We’re all broken some way or another. Even with your epic fuckup, you just might be exactly what she needs. You get one more chance.
+ - He scanned my face with careful hope in his eyes. “You love me?” “It’s the tattoos,” I shrugged. A wide smile stretched across his face, making his dimple sink into his cheek.
+ - She told me to find a girl worth fighting for. The one that doesn’t come easy.
+ - Even though we’d put each other through hell, we’d found heaven.
+ - I wasn’t sure what I’d done to deserve such a wonderful gift, and I wasn’t sure if it was insolent, but I thanked God for fallen angels.
+ - I took a deep breath, and shut the bedroom door behind me. Even though we’d put each other through hell, we’d found heaven. Maybe that was more than a couple of sinners deserved, but I wasn’t going to complain.
+ - You can love someone without wanting to be with them. Just like you can want to be with someone before you love them.
+ - I was his exception, and as much as I had tried to fight my feelings, he was mine.
+ - I don’t want to sleep with you, Pidge. I like you too much.
+ - I’ll never love anyone the way I love you, Pigeon.
+ - In another life, I could love you.
+ - If you think I’m happy when you’re not around, it’s because I’m thinking of you.
+ - I’m going to kiss you now, and I don’t know if I’ll ever stop.
+ - I’ll put everything I have. I don’t regret a single second with you, Pidge, and I never will.
+ - It wasn’t okay. I didn’t want her to leave. I didn’t care if Jesus wanted her or not. She was my mommy. He could take an old mommy. One that didn’t have little boys to take care of.
+ - Abby closed her eyes and leaned down. I knew she meant to kiss the corner of my mouth, but I turned so that our lips met. It was my last chance. I had to kiss her goodbye.
+ - The only thing I’m afraid of is a life without you, Pigeon.
+ - I knew I would wish for that moment back every day of my life, so I lived it with everything I had.
+ - Ugh! Why can’t Hell stay where it’s at? Why does it always have to break loose?
+ - I’d do anything for that smile that’s on your face right now.
+ - He was afraid of nothing. Until he’d met me.
+ - I don’t get hit that often. If they swing, I move. It’s not that hard.
+ - The day you appeared on our family tree, I wanted to cut it down.
+ - My palms flat against the wall of the tile, I clenched my eyes shut. “Please come back” I said quietly. She couldn’t hear me, but it didn’t stop me from wishing she would come and save me from the terrible pain I felt without her there.
+ - Fighting, laughing, loving or crying, if it was with him, I was where I wanted to be.
+ - And when a Maddox boy falls in love, he loves forever.
+ - I hope you know Benny, that when I take out your men, I mean no disrespect. But I’m in love with this girl, and I can’t let you hurt her.
+ - You’re going to break his heart, Abby. You’re going to break his heart! The one girl he trusts enough to fall for, and you’re going to nail him to the wall!
+ - My front door had seen jean skirts, dresses, even a see-through tube dress over a string bikini. A handful of times, spackled-on makeup and glitter lotion. Never pajamas.
+ - You’re the only woman I know that still looks incredible with your head in the toilet. That’s saying something.
+ - I was in love with her; couldn’t imagine my life without her in it; but at the same time, I wanted her to have better.
+ - The only woman I’d ever wanna marry just broke my heart...
+ - I squinted against the light pouring into the room. I couldn’t sleep all night, knowing when the sun came up, it would be all over. Abby stirred, and my teeth clenched. The few hours we spent together wasn’t enough. I wasn’t ready for it to be over.
+ - Travis grabbed my wrists and wrapped them around his middle. “There’s nothing to hold on to but me, Pidge. Don’t let go,” he said pushing the bike backward with his feet.
+ - I had died and woken up in High School Musical.
+ - Abby did a little happy dance before jogging down the hall to the bedroom. The corners of my mouth turned up. What other woman would be that excited to see her boyfriend trade punches? No wonder I fell in love with her.
+ - Neither one of you will just come out and say it, that’s the problem. You’re both so scared of what might happen that you’re fighting it tooth and nail. I know for a fact that if you looked Travis in the eye and told him you wanted him, he would never look at another woman again.
+ - I stumbled into the living room, and Thomas handed me a bottle of whiskey. They all had some in a glass “You told them?” I asked Trenton, my voice broken. Trenton nodded. I collapsed to my knees, and my brothers surrounded me, placing their hands on my head and shoulders for support.
+ - If you come within two feet of this curtain, I will poke out your eyes while you sleep.
+ - Jared cupped my jaw and his thumb brushed my cheek. ?As long as you heart is beating, so is mine.
+ - Anything to do with the Maddoxes is never boring.
+
+50 quotes

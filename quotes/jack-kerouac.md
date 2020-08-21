@@ -1,0 +1,303 @@
+ - Because in the end, you won’t remember the time you spent working in the office or mowing your lawn. Climb that goddamn mountain.
+ - Live, travel, adventure, bless, and don’t be sorry.
+ - One day I will find the right words, and they will be simple.
+ - Nothing behind me, everything ahead of me, as is ever so on the road.
+ - The only truth is music.
+ - The only people for me are the mad ones, the ones who are mad to live, mad to talk, mad to be saved, desirous of everything at the same time, the ones who never yawn or say a commonplace thing, but burn, burn, burn like fabulous yellow roman candles exploding like spiders across the stars.
+ - There was nowhere to go but everywhere, so just keep on rolling under the stars.
+ - I saw that my life was a vast glowing empty page and I could do anything I wanted.
+ - Happiness consists in realizing it is all a great strange dream.
+ - The closer you get to real matter, rock, air, fire and wood, boy, the more spiritual the world is.
+ - All human beings are also dream beings. Dreaming ties all mankind together.
+ - Be in love with your life, every detail of it.
+ - Let nature do the freezing and frightening and isolating in this world. Let men work and love and fight it off.
+ - Houses are full of things that gather dust.
+ - It’s all too much and not enough at the same time.
+ - Let the mind beware, that though the flesh be bugged, the circumstances of existence are pretty glorious.
+ - So long and take it easy, because if you start taking things seriously, it is the end of you.
+ - What is that feeling when you’re driving away from people and they recede on the plain till you see their specks dispersing? – it’s the too-huge world vaulting us, and it’s good-bye. But we lean forward to the next crazy venture beneath the skies.
+ - Things are so hard to figure out when you live from day to day in this feverish and silly world. 
+ - I don’t know, I don’t care, and it doesn’t make any difference.
+ - So therefore I dedicate myself, to my art, my sleep, my dreams, my labors, my suffrances, my loneliness, my unique madness, my endless absorption and hunger because I cannot dedicate myself to any fellow being.
+ - A sociable smile is nothing but a mouth full of teeth.
+ - Our battered suitcases were piled on the sidewalk again; we had longer ways to go. But no matter, the road is life.
+ - On soft Spring nights I’ll stand in the yard under the stars – Something good will come out of all things yet – And it will be golden and eternal just like that – There’s no need to say another word.
+ - I had nothing to offer anybody except my own confusion.
+ - I promise I shall never give up, and that I’ll die yelling and laughing, and that until then I’ll rush around this world I insist is holy and pull at everyone’s lapel and make them confess to me and to all.
+ - I like too many things and get all confused and hung-up running from one falling star to another till i drop. This is the night, what it does to you. I had nothing to offer anybody except my own confusion.
+ - The only people for me are the mad ones, the ones who are mad to live, mad to talk, mad to be saved.
+ - Rest and be kind, you don’t have to prove anything.
+ - Practice kindness all day to everybody and you will realize you’re already in heaven now.
+ - Don’t use the phone. People are never ready to answer it. Use poetry.
+ - Don’t drink to get drunk. Drink to enjoy life.
+ - For life is holy and every moment is precious.
+ - It’s not that I can’t fall in love. It’s really that I can’t help falling in love with too many things all at once. So, you must understand why I can’t distinguish between what’s platonic and what isn’t, because it’s all too much and not enough at the same time.
+ - My fault, my failure, is not in the passions I have, but in my lack of control of them.
+ - It ain’t whatcha write, it’s the way atcha write it.
+ - Put down the pen someone else gave you. No one ever drafted a life worth living on borrowed ink.
+ - Finding Nirvana is like locating silence.
+ - I am always thinking ‘What am I doing here? Is this the way I am supposed to feel?’
+ - The best teacher is experience and not through someone’s distorted point of view.
+ - No man should go through life without once experiencing healthy, even bored solitude in the wilderness, finding himself depending solely on himself and thereby learning his true and hidden strength.
+ - Great things are not accomplished by those who yield to trends and fads and popular opinion.
+ - Will you love me in December as you do in May?
+ - The beauty of things must be that they end.
+ - I’m Catholic and I can’t commit suicide, but I plan to drink myself to death.
+ - Accept loss forever. Be submissive to everything, open, listening. No fear or shame in the dignity of your experience, language, and knowledge. Be in love with your life.
+ - But why think about that when all the golden lands ahead of you and all kinds of unforseen events wait lurking to surprise you and make you glad you’re alive to see?
+ - A pain stabbed my heart as it did every time I saw a girl I loved who was going the opposite direction in this too-big world.
+ - Something great is about to happen to me: I’m about to love somebody very much.
+ - The bus roared on. I was going home in October. Everybody goes home in October.
+ - What’s your road, man? – holyboy road, madman road, rainbow road, guppy road, any road. It’s an anywhere road for anybody anyhow. Where body how?
+ - Boys and girls in America have such a sad time together; sophistication demands that they submit to sex immediately without proper preliminary talk. Not courting talk – real straight talk about souls, for life is holy and every moment is precious.
+ - Don’t touch me, I’m full of snakes.
+ - Pain or love or danger makes you real again...
+ - We agreed to love each other madly.
+ - All of life is a foreign country.
+ - You are the equal of the idol who has given you your inspiration.
+ - The air was soft, the stars so fine, the promise of every cobbled alley so great, that I thought I was in a dream.
+ - Are we fallen angels who didn’t want to believe that nothing is nothing and so were born to lose our loved ones and dear friends one by one and finally our own life, to see it proved?
+ - I was surprised, as always, be how easy the act of leaving was, and how good it felt. The world was suddenly rich with possibility.
+ - I have fallen in love with you, God. Take care of us all, one way or the other.
+ - Better to sleep in an uncomfortable bed free, than sleep in a comfortable bed unfree.
+ - It no longer makes me cry and die and tear myself to see her go because everything goes away from me like that now – girls, visions, anything, just in the same way and forever and I accept lostness forever.
+ - I don’t wanta hear all your word descriptions of words words words you made up all winter, man I wanta be enlightened by actions.
+ - It’s good-bye. But we lean forward to the next crazy venture beneath the skies.
+ - Pretty girls make graves.
+ - What’s in store for me in the direction I don’t take?
+ - Man, wow, there’s so many things to do, so many things to write! How to even begin to get it all down and without modified restraints and all hung-up on like literary inhibitions and grammatical fears...
+ - If you tell a true story, you can’t be wrong.
+ - Write in recollection and amazement for yourself.
+ - There are worse things than being mad.
+ - I’d sleep and forget it; I had my own life, my own sad and ragged life forever.
+ - Life must be rich and full of loving – it’s no good otherwise, no good at all, for anyone.
+ - I’m writing this book because we’re all going to die.
+ - Nothing ever happened – Not even this.
+ - I hope it is true that a man can die and yet not only live in others but give them life, and not only life, but that great consciousness of life.
+ - My whole wretched life swam before my weary eyes, and I realized no matter what you do it’s bound to be a waste of time in the end so you might as well go mad.
+ - I was halfway across America, at the dividing line between the East of my youth and the West of my future.
+ - I didn’t know what to say. I felt like crying, Goddammit everybody in the world wants an explanation for your acts and for your very being.
+ - My life is a vast inconsequential epic.
+ - Be crazy dumbsaint of the mind.
+ - You seek identity in the midst of indistinguishab le chaos, in sprawling nameless reality.
+ - At night in this part of the West the stars, as I had seen them in Wyoming, were as big as Roman Candles and as lonely as the Prince who’s lost his ancestral home and journeys across the spaces trying to find it again, and knows he never will.
+ - For the first time in my life the weather was not something that touched me, that caressed me, froze or sweated me, but became me.
+ - Why did I allow myself to be bored ever in the past and to compensate for it got high or drunk or rages or all the tricks people have because they want anything but serene understanding of just what there is, which is after all so much.
+ - We tiptoed around each other like heartbreaking new friends.
+ - Cats yawn because they realize that there’s nothing to do.
+ - We lay on our backs looking at the ceiling and wondering what God had wrought when he made life so sad and disinclined.
+ - Who knows, my God, but that the universe is not one vast sea of compassion actually, the veritable holy honey, beneath all this show of personality and cruelty?
+ - Some of my most neurotically fierce bitterness is the result of realizing how untrue people have become.
+ - Don’t tell them too much about your soul. They’re waiting for just that.
+ - I’m going to marry my novels and have little short stories for children.
+ - They were like the man with the dungeon stone and gloom, rising from the underground, the sordid hipsters of America, a new beat generation that I was slowly joining.
+ - Never mistake talking about writing for actual writing.
+ - Sweet life continues in the breeze, in the golden fields.
+ - The whole mad swirl of everything that was to come began then.
+ - My witness is the empty sky.
+ - I’m right there, swimming the river of hardships but I know how to swim...
+ - If moderation is a fault, then indifference is a crime.
+ - It is not my fault that certain so-called bohemian elements have found in my writings something to hang their peculiar beatnik theories on.
+ - And you have been forever, and will be forever, and all the worrisome smashings of your foot on innocent cupboard doors it was only the Void pretending to be a man pretending not to know the Void.
+ - Ah Japhy you taught me the final lesson of them all, you can’t fall off a mountain.
+ - Something that you feel will find its own form.
+ - Avoid the world, it’s just a lot of dust and drag and means nothing in the end.
+ - And I will die, and you will die, and we all will die, and even the stars will fade out one after another in time.
+ - Roaring dreams take place in a perfectly silent mind. Now that we know this, throw the raft away.
+ - Happy. Just in my swim shorts, barefooted, wild-haired, in the red fire dark, singing, swigging wine, spitting, jumping, running – that’s the way to live. All alone and free in the soft sands of the beach...
+ - You guys are going somewhere or just going?
+ - There was nothing to talk about anymore. The only thing to do was go.
+ - The taste of rain – Why kneel?
+ - We turned at a dozen paces, for love is a duel, and looked at each other for the last time.
+ - The page is long, blank, and full of truth. When I am through with it, it shall probably be long, full, and empty with words.
+ - We fumed and screamed in our mountain nook, mad drunken Americans in the mighty land. We were on the roof of America and all we could do was yell, I guess – across the night...
+ - Holy flowers floating in the air, were all these tired faces in the dawn of Jazz America.
+ - All is well, practice kindness, heaven is nigh.
+ - All our best men are laughed at in this nightmare land.
+ - I want a blaze of light to flame in me forever in a timeless, dear love of everything. And why should I pretend to want anything else?
+ - If you own a rug you own too much.
+ - Down in Denver, all I did was die.
+ - Something good will come of all things yet.
+ - Soon it got dusk, a grapy dusk, a purple dusk over tangerine groves and long melon fields; the sun the color of pressed grapes, slashed with burgandy red, the fields the color of love and Spanish mysteries.
+ - One man practicing kindness in the wilderness is worth all the temples this world pulls.
+ - Holding up my purring cat to the moon. I sighed.
+ - In my medicine cabinet, the winter fly has died of old age.
+ - No matter how you travel, how ‘successful’ your tour, or foreshortened, you always learn something and learn to change your thoughts.
+ - When you’ve understood this scripture, throw it away. If you can’t understand this scripture, throw it away. I insist on your freedom.
+ - Offer them what they secretly want and they of course immediately become panic-stricken.
+ - I wasn’t scared; I was just somebody else, some stranger, and my whole life was a haunted life, the life of a ghost.
+ - It always makes me proud to love the world somehow- hate’s so easy compared.
+ - And when the fog’s over and the stars and the moon come out at night it’ll be a beautiful sight.
+ - Somewhere along the line I knew there’d be girls, visions, everything; somewhere along the line the pearl would be handed to me.
+ - I clearly saw the skeleton underneath all this show of personality what is left of a man and all his pride but bones?
+ - The only alternative to sleeping out, hopping freights, and doing what I wanted, I saw in a vision would be to just sit with a hundred other patients in front of a nice television set in a madhouse, where we could be “supervised.”
+ - You can’t fight City Hall. It keeps changing its name.
+ - Genius gives birth, talent delivers. What Rembrandt or Van Gogh saw in the night can never be seen again.
+ - You can’t teach the old maestro a new tune.
+ - I want to work in revelations, not just spin silly tales for money. I want to fish as deep down as possible into my own subconscious in the belief that once that far down, everyone will understand because they are the same that far down.
+ - The human bones are but vain lines dawdling, the whole universe a blank mold of stars.
+ - Whither goest thou, America, in thy shiny car in the night?
+ - So I rushed past the pretty girls, and the prettiest girls in the world live in Des Moines.
+ - It all ends in tears anyway.
+ - What difference does it make after all? – anonymity in the world of men is better than fame in heaven, for what’s heaven? what’s earth? All in the mind.
+ - Ray, what you got to do is go climb a mountain...
+ - As I grew older I became a drunk. Why? Because I like ecstasy of the mind.
+ - The fact that everybody in the world dreams every night ties all mankind together.
+ - It was the work of the quiet mountains, this torrent of purity at my feet.
+ - You can’t live in this world but there’s nowhere else to go.
+ - I am young now and can look upon my body and soul with pride. But it will be mangled soon, and later it will begin to disintegrate, and then I shall die, and die conclusively. How can we face such a fact, and not live in fear?
+ - The dream is already ended and we’re already awake in the golden eternity.
+ - I felt free and therefore I was free.
+ - Prison is where you promise yourself the right to live.
+ - You’d be surprised how little I knew even up to yesterday.
+ - I think it’s a lovely hallucination but I love it sorta.
+ - It is possible for the human spirit to win after all.
+ - It’s hard to explain and best thing to do is not be false.
+ - Dean and I both swayed to the rhythm and the IT of our final excited joy in talking and living to the blank traced end of all innumerable riotous angelic particulars that had been lurking in our souls all our lives.
+ - Everything is perfect on the street again, the world is permeated with roses of happiness all the time, but none of us know it. The happiness consists in realizing that it is all a great strange dream.
+ - I’m not a beatnik. I’m a Catholic.
+ - Believe in the holy contour of life.
+ - We are nothing. – Tomorrow we may be die. We are nothing. – You and me.
+ - The silence was an intense roar.
+ - Suppose we suddenly wake up and see that what we thought to be this and that, ain’t this and that at all?
+ - No time for poetry but exactly what is.
+ - Forgive everyone for your own sins and be sure to tell them you love them which you do.
+ - Writing at least is a silent meditation even though you’re going a hundred miles an hour.
+ - As far as I’m concerned the only thing to do is sit in a room and get drunk.
+ - We were on the roof of America and all we could do was yell.
+ - In my madness I was actually in love with her for the few hours it all lasted; it was the same unmistakable ache and stab across the mind, the same sighs, the same pain, and above all the same reluctance and fear to approach.
+ - They have worries, they’re counting the miles, they’re thinking about where to sleep tonight, how much money for gas, the weather, how they’ll get there – and all the time they’ll get there anyway, you see.
+ - Rocks are space, and space is illusion.
+ - I realized either I was crazy or the world was crazy; and I picked on the world. And of course I was right.
+ - What a horror it would have been if the world was real, because if the world was real, it would be immortal.
+ - I feel guilty for being a member of the human race.
+ - Bein Crazy is the least of my worries.
+ - Genius gives birth, talent delivers.
+ - I’d rather hop freights around the country and cook my food out of tin cans over wood fires, than be rich and have a home or work.
+ - And there in the blue air I saw for the first time, far off, the great snowy tops of the Rocky Mountains. I had to get to Denver at once.
+ - Who can leap the world’s ties and sit with me among white clouds?
+ - And the story of love is a long sad tale ending in graves.
+ - Walking on water wasn’t built in a day.
+ - I looked up at the dark sky and prayed to God for a better break in life and a better chance to do something for the little people I loved.
+ - The tree looks like a dog, barking at heaven.
+ - My eyes were glued on life and they were full of tears.
+ - Dean’s California – wild, sweaty, important, the land of lonely and exiled and eccentric lovers come to forgather like birds, and the land where everybody somehow looked like broken-down, handsome, decadent movie actors.
+ - Swinging on delicate hinges the autumn leaf almost off the stem.
+ - All he needed was a wheel in his hand and four on the road.
+ - The road must eventually lead to the whole world.
+ - Believe that the world is an ethereal flower, and ye live.
+ - Paris is a woman but London is an independent man puffing his pipe in a pub.
+ - Go moan for man. It’s the pathos of people that gets us down, all the lovers in this dream.
+ - Ah, it was a fine night, a warm night, a wine-drinking night, a moony night, and a night to hug your girl and talk and spit and be heavengoing.
+ - My aunt once said that the world would never find peace until men fell at their women’s feet and asked for forgiveness.
+ - I was suddenly left with nothing in my hands but a handful of crazy stars.
+ - It’s okay, girl, we’ll make it till the sun goes down forever. And until then what you got to lose but the losing? We’re fallen angels who didn’t believe that nothing means nothing.
+ - Ah, life is a gate, a way, a path to Paradise anyway, why not live for fun and joy and love or some sort of girl by a fireside, why not go to your desire and LAUGH...
+ - Return those shoes to the shoemaker Return this hand to my father This pillow to the pillowmaker Those slippers to the shop. That wainscot to the carpenter, But my mind my tranquil and eternal Mind Return it to whom?
+ - Geniuses can be scintillating and geniuses can be somber, but it’s that inescapable sorrowful depth that shines through-originality.
+ - I petted the dogs who didn’t argue with me ever. All dogs love God. They’re wiser than their masters.
+ - The cowboy music twanged in the roadhouse and carried across the fields, all sadness. It was all right with me. I kissed my baby and we put out the lights.
+ - Besides, all my New York friends were in the negative, nightmare position of putting down society and giving their tired bookish or political or psychoanalytical reasons, but Dean just raced in society, eager for bread and love.
+ - And he had a nice home in Ohio with wife, daughter, Christmas tree, two cars, garage, lawn, lawnmower, but he couldn’t enjoy any of it because he really wasn’t free. It was sadly true.
+ - That’s the story of my life rich or poor and mostly poor and truly poor.
+ - Down on the lake rosy reflections of celestial vapor appeared, and I said, “God, I love you” and looked to the sky and really meant it. “I have fallen in love with you, God. Take care of us all, one way or the other.” To the children and the innocent it’s all the same.
+ - It’ll take you eternities to get rid of me,? she adds sadly, which makes me jealous, I want her to say I’ll never get rid of her – I wanta be chased till eternity till I catch her.
+ - I swore I’d be in Chicago tomorrow, and made sure of that, taking a bus to Chicago, spending most of my money, and didn’t give a damn, just as long as I’d be in Chicago tomorrow.
+ - It’s only through form that we can realize emptiness.
+ - Mainly I’ve been back to my books and writings and being nice and quiet and lazy. As I’m writing this, the radio says there’s a foot of snow falling on Long Island. I really love snow and wish I could take a long walk in it right now.
+ - I’d rather be thin than famous but I’m fat paste that in your broadway show.
+ - Whenever spring comes to New York I can’t stand the suggestion of the land that come blowing over the river from New Jersey and I’ve got to go. So I went.
+ - Mind is the Maker, for no reason at all, for all this creation, created to fall.
+ - My shoes are clean from walking in the rain.
+ - This is the story of America. Everybody’s doing what they think they’re supposed to do.
+ - A man who allows wild passion to arise within, himself burns his heart, then after burning adds the wind that thereto which ignites the fire again, or not, as the case may be.
+ - While looking for the light, you may suddenly be devoured by the darkness and find the true light.
+ - The more ups and downs, the more joy I feel. The greater the fear, the greater the happiness I feel.
+ - We were all delighted, we all realized we were leaving confusion and nonsense behind and performing our one and noble function of the time, move.
+ - And still the Void is still and’ll never move – But I will be the Void, moving without having moved.
+ - After all, a homeless man has reason to cry, everything in the world is pointed against him.
+ - An awful realization that I have been fooling myself all my life thinking there was a next thing to do to keep the show going and actually I’m just a sick clown and so is everybody else.
+ - I’d also gone through an entire year of celibacy based on my feeling that lust was the direct cause of birth which was the direct cause of suffering and death.
+ - Work from pithy middle eye out, swimming in language sea.
+ - And the Hippos were boiled in their tanks!
+ - Everything I wrote was true because I believed what I saw.
+ - Desolation, desolation, I owe so much to desolation.
+ - Hell man, I know very well you didn’t come to me only to want to become a writer, and after all what do I really know about it except that you’ve got to stick to it with the energy of a benny addict.
+ - Keep it kickwriting at all costs too, that is, write only what kicks you and keeps you overtime awake from sheer mad joy.
+ - It made me think that everything was about to arrive – the moment when you know all and everything is decided forever.
+ - I felt like lying down by the side of the trail and remembering it all.
+ - There’s wisdom in wine.
+ - Scribbled secret notebooks, and wild typewritten pages, for yr own joy.
+ - The Four Inevitabilities: 1. Musty Books. 2. Uninteresting Nature. 3. Dull Existence. 4. Blank Nirvana, buy that boy.
+ - This was really the way my whole road experience began, and the things that were to come are too fantastic not to tell.
+ - Your Buddhism has made you mean Ray and makes you even afraid to take your clothes off for a simple healthy orgy.
+ - Between incomprehensible and incoherent sits the madhouse. I am not in the madhouse.
+ - Because I cannot write my native language and have no native home anymore, and am amazed by that horrible homelessness of all French-Canadian s abroad in America.
+ - It was a rainy night. It was the myth of a rainy night.
+ - The truth of the matter is, you die, all you do is die, and yet you live, yes you live, and that’s no Harvard lie.
+ - I was having a wonderful time and the whole world opened up before me because I had no dreams.
+ - I never saw such crazy musicians. Everybody in Frisco blew. It was the end of the continent; they didn’t give a damn.
+ - To the children and the innocent it’s all the same.
+ - And this is the way a novel gets written, in ignorance, fear, sorrow, madness, and a kind of psychotic happiness as an incubator for the wonders being born.
+ - Is Virgin you trying to fathom me.
+ - But, outside of being a sweet little girl, she was awfully dumb and capable of doing horrible things.
+ - The yard was full of tomato plants about to ripen, and mint, mint, everything smelling of mint, and one fine old tree that I loved to sit under on those cool perfect starry California October nights unmatched anywhere in the world.
+ - Goddamn it, FEELING is what I like in art, not CRAFTINESS and the hiding of feelings.
+ - Mankind is like dogs, not gods – as long as you don’t get mad they’ll bite you – but stay mad and you’ll never be bitten. Dogs don’t respect humility and sorrow.
+ - As early pioneers in the knowing, that when you lose your reason, you attain highest perfect knowing.
+ - Some’s bastards, some’s ain’t. That’s the score.
+ - The details are the life of it, I insist, say everything on your mind, don’t hold back, don’t analyze or anything as you go along, say it out.
+ - Jumping from boulder to boulder and never falling, with a heavy pack, is easier than it sounds; you just can’t fall when you get into the rhythm of the dance.
+ - I like it because its ugly.
+ - LA is the loneliest and most brutal of American cities.
+ - I suddenly discovered the delight of rebellion.
+ - It was all completely serious, all completely hallucinated, all completely happy.
+ - The unspeakable visions of the individual.
+ - There is a blessedness surely to be believed, and that is that everything abides in eternal ecstasy, now and forever.
+ - Absolutely no way to escape enigmans.
+ - Struggle to sketch the flow that already exists intact in mind.
+ - Life is life, and kind is kind.
+ - Contrary to the general belief about photography, you don’t need bright sunlight: the best moodiest pictures are taken in the dim light of almost dusk, or of rainy days...
+ - Books, shmooks, this sickness has got me wishing if I can ever get out of this I’ll gladly become a millworker and shut my big mouth.
+ - February dawn – frost on the path Where I paced all winter.
+ - I suddenly began to realize that everybody in America is a natural-born thief.
+ - This was a manuscript of the night we couldn’t read.
+ - How clear the realization one is going mad – the mind has a silence, nothing happens in the physique, urine gathers in your loins, your ribs contract.
+ - You aren’t ever going to be anything in this world unless you do what you want to do, when you want to do it – don’t plan anything, just go out and do it.
+ - I see as much as doors’ll allow, open or shut.
+ - The cause of the world’s woe is birth, the cure of the world’s woe is a bent stick.
+ - They build their own Hells.
+ - His friends said, “Why do you have that ugly thing hanging there?” and Bull said, “I like it because it’s ugly.” All his life was in that line.
+ - Man lowers his head and lunges into civilization, forgetting the days of his infancy when he sought truth in a snowflake or a stick. Man forgets the wisdom of the child.
+ - At night I closed my eyes and saw my bones threading the mud of my grave.
+ - Love is all.
+ - Ah, if I could realize, if I could forget myself and devote my meditations to the freeing, the awakening and the blessedness of all living creatures everywhere I’d realize what there is, is ecstasy.
+ - LA is the loneliest and most brutal of American cities; NY gets god-awful cold in the winter but there’s a feeling of wacky comradeship somewhere in some streets. LA is a jungle.
+ - We all agree it’s too big to keep up with, that we’re surrounded by life, that we’ll never understand it, so we center it all in by swigging Scotch from the bottle and when it’s empty I run out of the car and buy another one, period.
+ - Who doesn’t feel studious when he doesn’t have a girl with a Riviera suntan?
+ - Eager for bread and love.
+ - I was a man of the earth, precisely as I had dreamed I would be.
+ - She spoke of evenings in the country making popcorn on the porch. Once this would have gladdened my heart but because her heart was not glad when she said it I knew there was nothing in it but the idea of what one should do.
+ - I took a straight picture that made me look like a thirty-year-old Italian who’d kill anybody who said something against his mother.
+ - One night I realized that when you give people understanding and encouragement a funny little meek childish look abashes their eyes, no matter what they’ve been doing they weren’t sure it was right – lambies all over the world.
+ - They spent all week saving pennies and went out Saturdays to spend fifty bucks in three hours.
+ - And as far as I can see the world is too old for us to talk about it with our new words.
+ - Burroughs is the greatest satirical writer since Jonathan Swift.
+ - He seems to me to be headed for his ideal fate, which is compulsive psychosis dashed with a jigger of psychopathic irresponsibility and violence.
+ - I have all the time in the world from life to life to do what is to do, to do what is done, to do the timeless doing.
+ - Details are the Life of Prose.
+ - Oftentimes an originator of new language forms is called ‘pretentious’ by jealous talents. But it ain’t whatcha write, it’s the way atcha write it.
+ - Always pull back-and see how silly we must look to God.
+ - When you start separating people from their rivers, what have you got? Bureaucracy!
+ - With joy realize for the first time thinking just not thinking-so I don’t have to think anymore.
+ - A fine thing to be talking about angels in this day when common thieves smash the holy rosaries of their victims in the street...
+ - To think that so much comes to so little, to think that life is really short.
+ - I’d better be a poet Or lay down dead.
+ - A scene should be selected by the writer for haunted-ness-of-mind interest. If you’re not haunted by something, as by a dream, a vision, or a memory, which are involuntary, you’re not interested or even involved.
+ - And then we’ll all go off to sweet life, ’cause now is the time and we all know time!
+ - I’ll go to the south of Sicily in the winter, and paint memories of Arles – I’ll buy a piano and Mozart me that – I’ll write long sad tales about people in the legend of my life – This part is my part of the movie, let’s hear yours.
+ - It was my dream that screwed up, the stupid hearthside idea that it would be wonderful to follow one great red line across America instead of trying various roads and routes.
+ - Don’t think of words when you stop but to see the picture better.
+ - There is universal substance which is divine substance because where else can it be?
+
+301 quotes

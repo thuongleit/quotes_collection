@@ -1,0 +1,116 @@
+ - I live in the moment.
+ - I think it’s good for a person to spend time alone. It gives them an opportunity to discover who they are and to figure out why they are always alone.
+ - Accentuaute the positives – medicate the negatives.
+ - I love depressing movies and depressing books.
+ - I cried when I had no shoes, until I met a man who had no feet. And then I laughed REALLY hard.
+ - Crafting is putting ideas into action and then holding them together with an inexpensive adhesive.
+ - You think in a different way when you don’t have any money. The joy of poverty is that you use your imagination to come up with stuff.
+ - I have a lot of fake food in my apartment, but I’m picky about it. Old plaster food, like from the ’50s is really nice, hollowed out paper-mache food from old plays – the new stuff just looks too good.
+ - I have a couple freeloader friends, but it’s okay. I know they’re gonna come in with their arms flying in the air empty-handed.
+ - Sometimes losing a pet is more painful than losing a human because in the case of the pet, you were not pretending to love it.
+ - My little brother Paul. He owns his own floor sanding business called Silly P Hardwood Floors and hes really good.
+ - I’m very domestic; I love cleaning. I love cooking. I like waiting on people. I just like to make things. I don’t break that down to be weakness, or the only things women can do, or putting me back 20 years.
+ - Don’t leave a piece of jewelry at his house so you can go back and get it later; he may be with his real girlfriend.
+ - My mother always said ‘Don’t bother other people.’ I think that’s good advice.
+ - Begin your story with a sentence that will immediately grab hold of your listener’s ears like a surly nun in a Catholic school.
+ - A lot of times girls think they’re funny, but they want to pretty at the same time, and if you want to be funny, you have to be willing to get ugly.
+ - There is nothing wrong with not wanting to be a hospitable person and have groups of people in your home touching your personables.
+ - I wouldn’t call myself a shut-in. I have the ability to leave my home; I just choose not to. But because I’m such a homebody, it’s important to be surrounded by things I love.
+ - I have always wanted a bunny and I’ll always have a rabbit the rest of my life.
+ - It’s natural for humans to suppress urges, for when our desires are left unchecked they lead to broken relationships, prison time, and forest fires.
+ - A lot of crafters, they’re shut-ins.
+ - Usually, the best ideas come from other people’s good ideas, which then, after a short gestation period, become your ideas.
+ - I failed first grade, which is my biggest problem. You always feel like a failure, like you’re stupid.
+ - My favorite things often have a story behind them and are usually handmade or discovered at a flea market.
+ - I’m gonna do the whole bedroom in camel color – it’s an old lady color.
+ - I love theatrical props: a cup filled with solid fake tea, say, or a collection of fake food, including a rubber turkey, which, during the holidays, I wrap in tinfoil so it appears to have just come out of the oven.
+ - I always find something to keep me busy.
+ - I love old cookbooks. I just got such a kick out of them, how the color would be way off or fake looking. The cook books now look so much like magazines, you’ll never make food that looks like that. I’d rather see it the ugly way than they way they do it now.
+ - I want witchcraft so bad that I can’t stand it. I have wands in my apartment. And I use them sometimes. I walk into the kitchen with my wand, and I come out with something on a platter and I say, ‘See, magic happens.’ Works every time.
+ - Don’t associate me with comedy. And please don’t say actress. I would never call myself any of those things. I hate it when people call me that.
+ - I hate playing pretty or sane people. Most people are not attractive or all there.
+ - Gift-wrap the framed artwork on your walls and rehang them – what’s nicer than a wall of presents to look at?
+ - I like dramas and stuff. That’s what I watch, but it seems weird that I’d be in it.
+ - I am an aging Girl Scout.
+ - The moment someone says, ‘Hey, everyone, listen to the words in this song,’ your party is over.
+ - I like to be the one in charge of everything.
+ - I always want to look unattractive, it’s more fun. I like playing opposites, people who aren’t attractive who think they are pretty. That’s always interesting to me.
+ - Crafting, or ‘making things,’ has always been a delightful pastime of mine because it requires putting common elements together in order to achieve a lovely something that nobody needs.
+ - When people tell me they are going to go scrapbooking, I say, ‘Why don’t you make it yourself.’ It’s like chocolate-chip cookies. People buy the cookie-dough roll and slice it, and then they lay it on a cookie sheet. That’s not making chocolate-chip cookies.
+ - I wasn’t a cliquey person, and I think that’s because I came from a large family. I got along with everybody, and I usually got along with the people that people didn’t like.
+ - All my muscles are in my face. I have a very muscular face. I’m good with faces. I always have been.
+ - I listen. I like to give advice. Mostly, Ill just try to listen to my friends, and theyll say the same thing over and over again.
+ - You know when you watch old movies, it’s always the small parts you remember, the character actors who come in like a breath of fresh air.
+ - If I know I have to memorize lines, I’m really gonna try to memorize lines. It’s hard for me sometimes, because somebody wrote these words and you’re trying really hard to get them the way they said it.
+ - Before you can give of yourself to others you must know what of yourself you have to give. Every person is special. In all the land there is only one you, possibly two, but seldom more than sixteen.
+ - I’ve always been drawn to people with problems. Not just physical problems, but mental problems too. Like depressed people or killers, all that stuff.
+ - I feel confident writing on my feet with improv, but it’s different when you’re sitting down and writing it out.
+ - Imagination! My problem is that I have so many ideas, I never have enough time to use them all. Just the other day I thought up eleven things I could do with a flowerpot. Eleven! Three of those things didn’t even involve plants.
+ - I like to be around entertaining people. Even if they’re bored, and you’re in a convalescent home, there’s something entertaining about that, in a way.
+ - I don’t mind pointing out some of the failings of old age, because we are all headed in that direction, unless of course we take our own lives before we become a burden. I’m not advocating suicide, oh wait, I guess I am.
+ - If I put my mind to something, it happens. I do know that’s not necessarily psychic. But I always feel like there’s something around me protecting me.
+ - My characters always like themselves.
+ - My kitchen’s pink, like skin-tone pink, and I lowered my spice rack so it’s eye level – it’s true! – and my phone, so I can reach it when I fall, it’s right there.
+ - I’d just much rather see an ugly person take the trash out than see somebody really pretty taking the trash out.
+ - I’m not a first-place person.
+ - When I’m by myself, I never play music. I have a lot of it, for a girl, but I don’t listen to it a lot. I hate picking music out; I’m not good at it.
+ - I always knew I didn’t want kids, and I didn’t want to get married.
+ - I like crafts that are made out of necessity because they’re a little naive – you made it because you needed it.
+ - I’ve never done heroin or slept with people for money or anything.
+ - I’m not very good with drink recipes. If I’m entertaining, I like to come up with a house drink for the evening, one thing I’ll make for the whole evening of the whole month.
+ - I feel so free and open to ideas, and I get inspired by everything.
+ - I stayed in New York City for the first time, I’d always wanted to do that.
+ - I’ve named everything that I’ve ever owned. Real or inanimate, I have to give it a first and last name. Everything in my apartment comes alive at night.
+ - Well I went to New Orleans to cover the jazz festival for Trio, it’s this new arts channel, it’s really great.
+ - There’s humor in everything. There’s gotta be humor in everything.
+ - If you decide on having an alcoholic at your party, make sure it’s a large gathering. This way, until the alcoholic begins removing their clothes or dangling the cat out the window, they can sort of blend in. An alcoholic at a small gathering is called an intervention.
+ - I like to entertain in all aspects. When you’re with somebody and you’re out, you want to be entertained.
+ - My mom used to say that Greek Easter was later because then you get stuff cheaper.
+ - Sometimes it’s just enough for me to have the idea. I don’t need to see it through to the end. When it actually happens, I’m always disappointed because it’s never like what I imagined in my head. When an idea becomes a reality, then it’s a job. I’d rather just think about it.
+ - Learn more about yourself! Make a self-esteem collage using pictures of other people you wish you were.
+ - Books are challenging and inspirational to me.
+ - I have no desire to carry a movie.
+ - I did shoplift but I didn’t get in trouble for it. I shoplifted a lot when I was little. Candy. I would steal candy.
+ - I’ve never played anyone who didn’t like themselves. I don’t care if they’re unattractive, but it’s important that they think of themselves as attractive. And I guess that’s part of their charm.
+ - Don’t answer the door in a wedding dress and veil, he might not think you’re joking.
+ - It was more of their quirky show. It was more like a cult show. The ratings weren’t really that high.
+ - I’d rather have a part where you walk into a room and you leave. That’s perfect for me.
+ - Don’t make anybody a homemade gift. Unless you’re really good, or it’s going to be really practical. If it’s a little thing you think is cute ’cause you made it, just forget it.
+ - But I always like to play ugly people who think they’re pretty.
+ - If I’m creating something for myself, then I want to have fun.
+ - I’m always more attracted to the unattractive.
+ - As my guests leave even my most simple parties, I consistently hear the same thing: ‘That was the best time I ever had,’ and it’s always me saying it. But I do know in my heart they all feel the same way, probably.
+ - People who shop in health food stores never look healthy.
+ - When I meet a new person, something has to be a little off for me to consider them beautiful. It could be crooked teeth, or veins in their skin that are a little too visible, or a really dramatic lazy eye. The first guy I ever kissed had a water head.
+ - We’re all used to seeing pretty people. I want to see real people.
+ - I like working with the public, I like working with food, and I like making cash.
+ - I’m more of a clown, a tragic clown. Yeah. I just like humor to come out of characters.
+ - People always think I’m Amy Poehler, which never bothers me. I mean, Amy Poehler is great.
+ - I just like to have the ideas. Other people can help see them through.
+ - I’m not a good storyteller. I always think I’m going to get interrupted, or something’s going to get edited. I think that comes from being in a large family, so you have to get your story in really quick or someone cuts you off.
+ - I can’t imagine going to an all-girls school. I went to a public school.
+ - You just can’t enjoy any of the movie when you’re in it.
+ - Gay guys know how to craft, and they craft really well. Straight guys, forget it.
+ - I’ve been to some funerals where there’s a lot of laughing – it’s about celebrating their new journey. I can’t think of anything. There’s humor in everything. There’s gotta be humor in everything.
+ - I like crafts that come out of poverty or necessity. There used to be hobby shops where you’d get your supplies, and then you’d use your imagination.
+ - I’m drawn to people who look different. I’m not exploiting. I’m not making fun of them. I’m drawn to them.
+ - I swear I want to be a food model.
+ - I choose to do unattractive people, because then I can pretend they think they’re attractive.
+ - I like to play unattractive people who think they’re pretty. You can do what you want, but I prefer to look interesting.
+ - On the off chance that you have children, don’t clean up at all. As children, my brother and sister and I loved waking up early and playing cocktail party with the leftover debris.
+ - But I love how people who are musical, they know how to dress.
+ - I love cop shows and crime books and thrillers, and before I die I’m gonna play a cop.
+ - I like to make things, but I looked at old craft books on weaving or mosaics or whatever, I’m like, ‘I don’t really know anything about that stuff.’
+ - I don’t really consider myself to be a comedian. I mean, it’s not like I’m sitting around writing jokes or anything. I just like dressing up and pretending to be other people.
+ - I always got along with all types of people – popular people as well as drug addicts.
+ - When you hear someone use the word ‘meds’ instead of the word ‘medicine,’ chances are they’re no stranger to massive doses of mind-altering psychotropic drugs. Back out of the room slowly.
+ - I like people who would rather something be discovered than shoved in your face.
+ - I try to pick music for a diner that doesnt involve a lot of lyrics, so you’re not paying attention to that. As long as it doesnt dominate the party, it should be more atmosphere music. When I’m by myself, I never play music.
+ - I like it when people who aren’t so attractive, or they have a whole lot of hurdles to get over, I like it when they dress up and they look presentable. That, to me, just touches me.
+ - That’s how all theater should be done – you only have one chance to see it and then it’s gone. One night only.
+ - I was just a kid. I think I stole a candy bar. I remember feeling so terrible. It was the worst shock. I was probably 7. That’s my least favorite feeling: guilt.
+ - I love costumes. My dream growing up was always to have my own costume and prop shop.
+ - My father and I have a very good relationship. We always got along. But I always scold him.
+ - I need a costume to be convinced that I’m somebody else. Otherwise, it’s just me. It’s just Amy saying lines. I haven’t really become somebody else. And what’s the fun in that?
+
+114 quotes

@@ -1,0 +1,200 @@
+ - If you ever take your foot off the gas pedal, things will spiral out of control, snowball downwards.
+ - Stay focused and don’t try to do too many things at once. Care about execution quality.
+ - It’s better to have a few users love your product than for a lot of users to sort of like it.
+ - You can create value with breakthrough innovation, incremental refinement, or complex coordination. Great companies often do two of these. The very best companies do all three.
+ - At YC we have this public phrase, and it’s relentlessly resourceful.
+ - AirBnB happened because Brian Chesky couldn’t pay his rent, but did have some space.
+ - You’ll get more support on a hard, important, project than a derivative one.
+ - No matter what you choose, build stuff and be around smart people.
+ - If someone is choosing between joining McKinsey or your startup it’s very unlikely they’re going to work out at the startup.
+ - Growth and momentum are what a startup lives on and you always have to focus on maintaining these.
+ - A winning team feels good and keeps winning. A team that hasn’t won in a while gets demotivated and keeps losing.
+ - You really want to know your cofounders for a while, ideally years.
+ - A lot of people treat choosing their cofounder with even less importance than they put on hiring. Don’t do this.
+ - There’s no way I know, to get through the pain of a startup without belief that the mission really matters.
+ - If someone is getting every decision wrong, that’s when you need to act, and at that point it’ll be painfully aware to everyone.
+ - Starting a business is like riding a wave between life and death. If you can hang on long enough, you’re bound to succeed.
+ - Someday, you need to build a business that’s difficult to replicate. This is an important part of a good idea.
+ - The company just needs to see you as like this maniacal execution machine.
+ - You have to be decisive. Indecisiveness is a startup killer.
+ - Aim to be the best in the world at whatever you do professionally. Even if you miss, you’ll probably end up in a pretty good place.
+ - You need someone that behaves like James Bond more than you need someone that is an expert in some particular domain.
+ - Firing people is one of the worst parts of running a company. Actually in my own experience, I think it is the worst.
+ - AirBnB spent 5 months interviewing their first employee, before they hired someone and in their first year, they only hired 2 people.
+ - One of the biggest advantages that start ups have is execution speed, and you have to have this relentless operating rhythm.
+ - A single mediocre hire in the first five will often in fact kill a startup.
+ - Every first time founder waits too long, everyone hopes that an employee will turn around. But the right answer is to fire fast...
+ - So always keep momentum, it’s this prime directive for managing a startup.
+ - You want to sound crazy, but you want to actually be right.
+ - If you look at successful pivots, they almost always are a pivot into something that the founder wanted. Not a random made up idea.
+ - Press releases are easier to write than code, and that is still easier than making a great product.
+ - People that are really smart and that can learn new things can almost always find a role in the company as time goes on.
+ - The other piece besides focus for execution is intensity. Startups only work at a fairly intense level.
+ - More important than starting any startup, is getting to know a lot of potential co-founders.
+ - Losing focus is another way that founders get off track.
+ - Startups are not the best choice for work-life balance, and that’s sort of just the sad reality.
+ - There are 3 things I look for when I hire people. Are they smart? Do they get things done? Do I want to spend a lot of time around them?
+ - I care much more about the growth rate of the market than it’s current size and I also care if there’s any reason it’s going to top out.
+ - You have to let your team get all the credit for all the good stuff that happens, and you take responsibility for the bad stuff.
+ - You need unstoppable people. You want people that are just going to get it done.
+ - Why couldn’t it have been done 2 years ago, and why will 2 years in the future be too late?
+ - In the early days of a startup, people’s compensation is whatever you negotiate with a founder and it’s all over the place.
+ - Most things are not as risky as they seem.
+ - If you compromise and hire someone mediocre you will always regret it.
+ - The best people know that they should join a rocketship.
+ - A small communication breakdown is enough for everyone to be working on slightly different things. And then you loose focus...
+ - In the early stage of a startup, hiring senior people is usually a mistake. You just want people that get stuff done.
+ - You need this sort of a tailwind to make a startup successful.
+ - What you want to do is innovate on your product and your business model, management structure is not where I would try and innovate.
+ - It takes years and years, usually a decade, to create a great startup.
+ - If it takes more than a sentence to explain what you are doing, it’s almost always a sign that what you are doing is too complicated.
+ - In general don’t start a startup you’re not willing to work on for ten years.
+ - Even though plans themselves are worthless, the exercise of planning is very valuable and totally missing in most startups today.
+ - 1 of the hardest parts about being a founder, is that there are a 100 important things competing for your attention each day.
+ - The best source by far for hiring is people that you already know and people that other employees in the company already know.
+ - The biggest PR hack you can do, is not hire a PR firm.
+ - You also want people who are maniacally determined and that is slightly different than having a risk tolerant attitude.
+ - In general, it’s best if you’re building something that you yourself need.
+ - The best founders work on things that seem small but they move really quickly. They get things done really quickly.
+ - You have to save the vision speeches for when the company is winning. When you’re not winning, you just have to get momentum back...
+ - Study the unusually successful people you know, and you will find them imbued with enthusiasm for their work which is contagious. Not only are they themselves excited about what they are doing, but they also get you excited.
+ - I prefer to invest in a company that’s going after a small but rapidly growing market than a big but slow growing one.
+ - You cannot create a market that doesn’t want to exist.
+ - Everyone starting a startup for the first time is scared, and everyone feels like a bit of an imposter.
+ - Good startups usually take 10 years.
+ - In YC’s case, the number one cause of early death for startups is cofounder blowups.
+ - Employees will only add more value over time.
+ - In addition to relentlessly resourceful, you want a tough and a calm cofounder.
+ - One thing that often disrupts momentum and really shouldn’t is competitors.
+ - For most of the early hires you make in a startup, experience doesn’t matter very much, and you should go for aptitude.
+ - If someone is difficult to talk to, if someone cannot communicate clearly, it’s a real problem in terms of their likelihood to work out.
+ - Founders are usually very stingy with equity to employees and very generous with equity to investors. I think this is totally backwards.
+ - You can have a startup and one other thing, you can have a family, but you probably can’t have many other hobbies.
+ - The thing that kills startups at some level, is the founders giving up.
+ - Really dig into projects people have worked on and call references; that is another thing that first time founders like to skip.
+ - Developing a personal connection with anyone you’re trying to do a big deal with is really important.
+ - As you grow, the productivity I think, goes down with the square of the number of employees if you don’t make an effort.
+ - As the company grows and about this 25 or so employee size, your main job shifts from building a great product to building a great company.
+ - Great execution towards a terrible idea will get you nowhere.
+ - If you don’t love and believe in what you’re building, you’re likely to give up at some point along the way.
+ - The best ideas often look terrible at the beginning the truly good ideas, don’t seem like they’re worth stealing.
+ - You have to be intense. This only comes from the CEO, this only comes from the founders.
+ - Most good founders that I know at any given time have a set of small overarching goals for the company that everybody in the company knows.
+ - Cofounder relationships are among the most important in the entire company.
+ - If it works out, you’re going to be working on this for 10 years.
+ - The thirteenth search engine- and without all the features of a web portal, most people thought that was pointless.
+ - Move fast. Speed is one of your main advantages over large companies.
+ - No growth hack, brilliant marketing idea, or sales team can save you long term if you don’t have a sufficiently good product.
+ - The hard part is that this is a very fine line. There’s right on one side of it, and crazy on the other.
+ - One of the pieces of advice that we give at YC is: try to work together on a project rather than just doing an interview.
+ - You want to think about what is the path for my first 10 or 15 employees going to be as the company grows.
+ - Before 20 or 25 employees, most companies are structured with everyone reporting to the founder. It’s totally flat.
+ - Why now, why is this the perfect time for this particular idea, and to start this particular company?
+ - Don’t let the company get distracted or excited about other things. A common mistake is that companies get excited by their own PR.
+ - The second part of how to hire: try not to.
+ - One thing that founders always underestimate is how hard it is to recruit.
+ - Most investors are obsessed with the market size today and they don’t think about how the market is going to evolve.
+ - As long as you keep doing the right thing and have the best product, you can beat the bigger company.
+ - I believe in fighting with investors to reduce the amount of equity they get and then being as generous as you possibly can with employees.
+ - Ideas by themselves are not worth anything, only executing well is what creates value.
+ - If you compromise in the first five, ten hires it might kill the company.
+ - You want to continue to be run by great products, not process for it’s own sake.
+ - Founders need to figure out what the message of the company is going to be.
+ - As you grow, it feels hopelessly corporate but it really is worth putting in place these compensation bands.
+ - It’s become popular in recent years to say that the idea doesn’t matter.
+ - One thing that founders forget is that after they hire employees, they have to retain them.
+ - You want an idea about what you can say. I know it sounds like a bad idea but here’s specifically why its actually a great one. You want to sound crazy but you want to ask to be right.
+ - Facebook has this famous poster that says move fast and break things. But at the same time they manage to be obsessed with quality.
+ - Whatever the founder cares about, whatever the founders think are the key goals, that’s going to be what the whole company focusses on.
+ - It’s better to have no cofounder than to have a bad cofounder, but it’s still bad to be a solo founder.
+ - I myself used to believe ideas didn’t matter that much, but I’m very sure that’s wrong now.
+ - When it comes to starting startups, in many ways, it’s easier to start a hard startup than an easy startup.
+ - Startups are very hard no matter what you do; you may as well go after a big opportunity.
+ - If you have several ideas that all seem pretty good, work on the one that you think about, when you’re not trying to think about work.
+ - Investors will sort of like write the check and then, despite a lot of promises, don’t usually do that much; sometimes they do.
+ - Just put a little pin in your mind: when you cross 50 employees, there are a new set of HR rules that you have to comply with.
+ - In the beginning of a company, there is no management and this actually works really well.
+ - Unfortunately the trick to great execution is to say no a lot.
+ - In YC experience, 2 or 3 co-founders seems to be about perfect.
+ - A board member of mine used to say sales fix everything in a startup, and that is really true.
+ - Wait to start a startup until you come up with an idea that you feel compelled to explore.
+ - Unpopular but right is what you’re going for.
+ - If you don’t need it yourself, and you’re building something that someone else needs, realize you’re at a big disadvantage.
+ - You need to figure out what the 2 or 3 most important things are, and then just do those.
+ - The single word that matters most I think to keep the company productive as it grows is alignment.
+ - Once your product is working, switch from not caring about this to caring about this a little bit.
+ - Momentum and growth are the lifeblood of startups. This is probably in the top three secrets of executing well.
+ - If you’re not in college and you don’t know a cofounder, the next best thing I think is to go work at an interesting company.
+ - You think you have this great idea that everyone’s going to come join, but that’s not how it works.
+ - There’s at least a hundred times more people with great ideas than people that are willing to put in the effort to execute them well.
+ - We pretty much won’t fund a company now where the founders don’t have vested equity because it’s just that hard to do.
+ - Most of the best hires that I’ve made in my entire life have never done that thing before.
+ - For early employees you want people that have somewhat of a risk-taking attitude.
+ - If you want something in a deal, just ask for it.
+ - You don’t need to make the structure complicated, in fact you shouldn’t. All you need is for every employee to know who their manager is.
+ - It’s easy to move fast or be obsessed with quality, but the trick is you have to do both at a startup.
+ - You can’t be focussed without really great communication.
+ - The way to have a company that executes well is you have to execute well yourself.
+ - In general though, if you look at the track record of pivots, they don’t become big companies.
+ - If you pivot, do it fully and with conviction. The worst thing is to try to do a bit of the old and the new-it’s hard to kill your babies.
+ - The natural state of a start-up is to die; most start-ups require multiple miracles in their early days to escape this fate.
+ - It’s difficult to get large groups of people, to the extreme levels of focus and productivity that you need, for a startup to be successful.
+ - So you should always stay on top of people’s vesting schedules.
+ - If you can just learn to think about the market first, you will have a big leg up on most people starting startups.
+ - You’re saying no ninety-seven times out of a hundred, and most founders find they have to make a very conscious effort to do this.
+ - The idea should come first, the startup should come second.
+ - You want an idea that turns into a monopoly. But you can’t get a monopoly, in a big market right away; too much competition for that.
+ - Keep salaries low and equity high. Keep the organization as flat as you can.
+ - Obsess about the quality of the product.
+ - The role of the board is advice and consent. If the CEO does not lay out a clear strategy and tries to get the board to set one, it will usually end in disaster.
+ - Because it’s one of these sort of connections between nodes- every pair of people adds communication overhead.
+ - You never want to be in a place where an employee has vested 3 out of the 4 years of stock and they start thinking about leaving.
+ - Most founders have not managed people before, and they certainly haven’t managed managers.
+ - Later, you should learn to hire fast and scale up the company, but in the early days the goal should be not to hire. Not to hire.
+ - We hear again and again from founders, that they wish they had waited to start a startup until they came up with an idea they really loved.
+ - Be suspicious of any work that is not building product or getting customers.
+ - I think the best thing you can do is be aware that as a first time founder you are likely to be a very bad manager.
+ - The way you get deals done and the way you get good terms, is to have a competitive situation.
+ - The most important thing is that there is clear reporting structure and everyone knows what it is.
+ - You need to have a culture where people have very high quality standards in everything the company does, but still move quickly.
+ - The cost of getting an early hire wrong is really high.
+ - You can basically change everything in a startup but the market.
+ - A related advantage of mission oriented ideas, is that you yourself will be dedicated to them.
+ - The startups that do well are the ones that are working all the time.
+ - You have to find a small market in which you can get a monopoly, and then quickly expand.
+ - Because so few people make an actual long term commitment to what they’re building, the ones that do have a huge advantage.
+ - One of the great and terrible things about starting a start up is that you get no credit for trying.
+ - Here’s a good rule of thumb: don’t worry about a competitor at all, until they’re actually beating you with a real shipped product.
+ - You don’t get to make their decisions but you do get to choose the decision makers.
+ - These all sounded really bad, but they turned out to be good. If they had sounded really good, there would have been too many people working on them.
+ - For most software startups, this translates to keep growing. For hardware startups, it translates to don’t let your ship date slip.
+ - Remember that the idea will expand, and become more ambitious as you go.
+ - You’re either not hiring at all or it’s probably your single biggest block of time.
+ - You should think about for the next 10 years, you’re going to be giving out 3-5% of the company every year.
+ - At the beginning, you should only hire when you have a desperate need to.
+ - To get the very best people- they have a lot of great options, and so it can easily take a year to recruit someone.
+ - You need conviction in your own beliefs, and the willingness to ignore others naysaying.
+ - Another way of looking at this, is that the best companies are almost always mission oriented.
+ - Some day everyone will find out everyone else’s comp, if it’s all over the place, it will be a complete meltdown disaster.
+ - Experience matters for some roles and not others.
+ - The track record for founders that don’t already know each other is really bad.
+ - Every thing at a startup gets modeled after the founders. Whatever the founders do becomes the culture.
+ - Every company has a rocky beginning.
+ - The tenth social network, and limited only to college students with no money, also terrible. Myspace had won.
+ - I think as a rough estimate, you should aim to give about 10% of the company to the first 10 employees.
+ - You only get points when you make something the market wants. So if you work really hard on the wrong things, no one will care.
+ - By the way, that’s my number one piece of advice if you’re going to join a startup: pick a rocket ship.
+ - So it’s worth some real up front time to think through the long term value and the defensibility of the business.
+ - Or a way to stay on strangers couches, that just sounds terrible all around.
+ - One thing I tell startups all the time is that the best way to grow is to make their product better.
+ - You certainly don’t need to have everything figured out in the path from here to world domination.
+ - When lack of structure fails, it fails all at once. What works totally fine from 0-20 employees, is disastrous at 30.
+ - Many of the best YC companies have had phenomenally small number of employees for their first year, sometimes none besides the founders.
+ - You can win with the best product, the best price, or the best experience.
+ - It really is true that you become an average of the people you spend the most time with.
+ - You should be giving out a lot of equity to your employees.
+ - Mediocre founders spend a lot of time talking about grand plans, but they never quite make a decision.
+ - You should always know how you’re doing against your metrics. You should always have a weekly review meeting every week.
+ - Remember that you are more likely to die because you execute badly than get crushed by a competitor.
+
+198 quotes

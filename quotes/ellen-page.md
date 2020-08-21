@@ -1,0 +1,83 @@
+ - Love, the beauty of it, the joy of it and yes, even the pain of it, is the most incredible gift to give and to receive as a human being. And we deserve to experience love fully, equally, without shame and without compromise.
+ - This world would be a whole lot better if we just made an effort to be less horrible to one another.
+ - Judging people you don’t know for things you don’t understand is just really stupid.
+ - I love nicknames. It makes me feel loved. It makes me feel less alone in this world.
+ - I am tired of hiding and I am tired of lying by omission. I suffered for years because I was scared to be out. My spirit suffered, my mental health suffered and my relationships suffered. And I’m standing here today, with all of you, on the other side of all that pain.
+ - I don’t know why people are so reluctant to say they’re feminists. Could it be any more obvious that we still live in a patriarchal world when feminism is a bad word?
+ - You have ideas planted in your head, thoughts you never had before, that tell you how you have to act, how you have to dress and who you have to be. I have been trying to push back, to be authentic, to follow my heart, but it can be hard.
+ - I don’t want to become unhealthily attached to what I do. I’m grateful for what I do, but I also want to be able to be OK when I’m not doing it.
+ - When we’re growing up there are all sorts of people telling us what to do when really what we need is space to work out who to be.
+ - Regardless, for me, I feel a personal obligation and a social responsibility.
+ - I think the most terrifying things I’ve seen have been created by human beings in reality.
+ - I don’t believe in eye-for-an-eye. The most incredible, sustainable, beautiful movements have been non-violent movements of civil disobedience.
+ - Movies don’t necessarily change culture. I don’t know if we know for sure if movies change culture but we know for sure that they reflect culture.
+ - Why are vegans made fun of while the inhumane factory farming process regards animals and the natural world merely as commodities to be exploited for profit?
+ - I wish I was a teenager in the 1970s.
+ - This world would be a whole lot better if we just made an effort to be less horrible to one another. If we took just five minutes to recognize each other’s beauty instead of attacking each other for our differences – that’s not hard – it’s really an easier and better way to live.
+ - I love sport, I grew up playing sports, that’s all I did, and it is so invigorating now that I’m supposedly adult to learn something completely new, from the bottom up.
+ - And I think it’s really easy for people to point out hypocrisy in people’s lives.
+ - If you’re a girl and you don’t fit the very specific vision of what a girl should be, which is always from a man’s perspective, then you’re a little bit at a loss.
+ - You hear things like, ‘People shouldn’t know about your life because you’re creating an illusion on-screen.’ But I don’t see other actresses going to great lengths to hide their heterosexuality. That’s an unfair double standard.
+ - Loving other people starts with loving ourselves and accepting ourselves.
+ - As a girl, you’re supposed to love Sleeping Beauty. I mean, who wants to love Sleeping Beauty when you can be Aladdin?
+ - I’m a tomboy from Nova Scotia.
+ - I don’t care if people like my character. I just want them to think about the movie’s message.
+ - We are just trying to do the best possible job we can. We’re not perfect. All you can do is trust the positive intention behind it, and we’re always going to work to, hopefully, get better and better.
+ - To be in a position, at my age, where I am financially independent, I can help develop things, I can promote stuff that I believe in, I can say no a lot and spend time writing – that is a gift.
+ - I hate how box-office failures are blamed on an actress, yet I don’t see a box-office failure blamed on men.
+ - You should have gone to China. You know, ’cause I hear they give away babies like free iPods. You know, they pretty much just put them in those T-shirt guns and shoot them out at sporting events.
+ - I think there’s a tremendous amount of guilt that goes on between mothers and daughters, no matter how good or bad their relationships are.
+ - If you’re perpetuating discrimination, you’re perpetuating inequality.
+ - I’m not used to being in front of a camera as myself. I’m not used to watching myself as myself.
+ - I’ve become really interested in permaculture, simplifying my life and doing everything I can to develop more of a sustainable lifestyle.
+ - Mind you, Roman Holiday – which is kind of a romantic comedy – is one of my favorite films, and I think Audrey Hepburn is absolutely phenomenal in that movie.
+ - It’s just something we’re talking about and thinking about all the time, reflecting on our privilege – the privilege of what it means even be able to travel.
+ - And I’ve shot in Prince Edward Island winters, I mean, I’ve shot in some intense, intense temperatures.
+ - When I feel strongly about something, I’m not so quiet.
+ - I really hope that we’ll have a sustainable future on this planet, I really do. So I probably geek out mostly about learning more about how potentially we can hopefully make that happen, hopefully we’re not too far lost.
+ - It’s much simpler to be tortured on camera or to be filmed losing your mind. Whereas a script that has characters who are honest, witty and genuine is often much harder to act.
+ - I’m a huge Sissy Spacek fan.
+ - Of course you have days that are long, you’re tired, and things aren’t working out, and you can get frustrated, but I would say any of the things that make it less glamorous or cause some complexity or turn you down the road you weren’t expecting to go down is a part of the thrill.
+ - It’s weird because here I am, an actress, representing – at least in some sense – an industry that places crushing standards on all of us. Not just young people, but everyone. Standards of beauty. Of a good life. Of success. Standards that, I hate to admit, have affected me.
+ - Sometimes I see movies and I get almost angry – because I’m like, I can never make that movie. It stems from a jealousy, but from a good kind of jealousy. It’s inspirational.
+ - Now, I try not to read gossip as a rule. But the other day, a website ran an article with a picture of me wearing sweatpants on the way to the gym. And the writer asked, ‘Why does this petite beauty insist on dressing like a massive man?’ Because I like to be comfortable.
+ - I find a lot of people say, “Oh organic and local’s expensive and I just don’t have time.” And I’m like, well how much TV do you watch? Where are your priorities right now? I always take the time to eat well and eat locally because it’s common sense.
+ - I was maybe 10 or 11 when I saw ‘Titanic.’ And, yes, I was a fan. I loved it.
+ - One of those things where immediately when you started reading it, you knew it was something special and then the more you read, the more it surprised you, and the more you realized it was devoid of stereotype .
+ - I just don’t think I’m special because I’m an actor and I never would. Of course I take what I do seriously because I love doing it, and I love being in films and making films, but I don’t take myself seriously.
+ - The thing I like about acting is being able to lose yourself completely in someone else.
+ - Scientists and religious leaders, activists and first nation leaders, CEOs of corporations and actors, all of us need to come together right now, because the planet is in a lot of pain.
+ - I always take the time to eat well and eat locally because it’s common sense.
+ - The relationships I’ve had with my girl friends are so powerful and meaningful. Without them I truly don’t know what I’d do.
+ - I’m never going to be considered brave for playing a straight person, and nor should I be.
+ - The word responsibility is right, and doing everything you can to educate yourself and learn and be aware.
+ - I’ve always been drawn to stories and telling them; whether it was through being a part of theater when I was a little kid, or film, or with music, there’s just been an innate desire to feel that connection.
+ - I think it’s obvious when you’re watching a movie, and there’s people fighting or someone’s slipping on the side of the building, that it’s fake and it really removes you from it.
+ - I’d ice-skated before, because I’m Canadian and that’s what you do as a kid, but I’d never, ever been on quad skates.
+ - I’m really passionate about music – I get really emotionally connected, probably in a weird way.
+ - Sometimes something will be happening in pop culture and a movie will be right there, so you’ll have this perception that maybe the movie got there first. But in reality, culture gets there first.
+ - There’s no big budget Canadian movie. Whatever movies are big budget in Canada come from the States. Or also have States financing. Everything’s pretty small.
+ - I guess I notice things as a woman just in the way I’m spoken to.
+ - Usually, when you’re in a movie, you’re disconnected from it. You’re never going to feel what you felt when you made it.
+ - I’m not good at watching stuff that I’m in at all. I should stop. I shouldn’t watch something for the first time with a room full of people at Sundance. It’s not a good idea.
+ - I’m a huge fan of the program ‘Democracy Now,’ which is hosted by Amy Goodman, and I subscribe to the podcast.
+ - Yeah, people following me down the street and at the airport and all that. I can’t imagine what it must be like for people who are, you know, actually famous.
+ - It’s really crucial to achieve that balance with a film like this, cause it is unique and witty and then there’s the tendency to force that. It becomes contrived and I know the feeling like, give me a fork that I can stab in my eye in those kinds of movies.
+ - But I’ve never been really rebellious. I’ve got a lot of support and I’m not pushed so hard that I feel like I’m going to burn out, which is what happens to a lot of actors in their early twenties.
+ - By focusing on the community, you can learn more about the whole country.
+ - There’s obviously a lot of tragedy in comedy; I really enjoy the paradox of what a really good comedy is.
+ - I grew up playing sports, but now I feel like I can’t, because if I get injured, I’ll impair whatever film I’m working on.
+ - I think the Smart Car is awesome. The only problem is I’ve been on the freeway and felt like I was going to be blown away like a Tim Hortons coffee cup, so I may have to upgrade to a Mini Cooper – something a little stronger.
+ - X-Men is massive, like nothing I’ve ever experienced. But great in its own way.
+ - I don’t really want to do the Hollywood thing, I think you ought to try to say something with your movies.
+ - I think a lot of the time in films, men get roles where they create their own destiny and women are just tools, supporters for that.
+ - I grew up working in Canada so everything was low budget.
+ - I didn’t really play dress up when I was a kid, and I’m really T-shirt and jeans-y.
+ - The quality most important to me, in the films I make, is honesty.
+ - I’m kind of getting more excited about developing my own stuff, or getting involved early in projects and doing my best to make things that I care about happen.
+ - I think, because I’ve been working for a while, I’ve been working since I was ten, I had the fortune of reading a lot, a lot of scripts.
+ - I have trouble sometimes watching actors – even when they do a great job – with an accent.
+ - I love playing roles that are physical, absolutely love. Whether it’s just that kind of basic level of physicality or whether it’s stunts.
+ - I’m actually just playing honest, whole young women.
+
+81 quotes

@@ -1,0 +1,61 @@
+ - Art is obsolete now. New technologies are taking over.
+ - If I try to articulate every little detail in a drawing, it would be like missing the forest for the trees, so it’s just about getting the outline of the forest.
+ - I think about my work every minute of the day.
+ - I thought I would call myself a pig before the viewer could, so they could only think more of me.
+ - I’m interested in power.
+ - I don’t believe that artists really are interested in money. That’s not the motivation for art.
+ - The job of the artist is to make a gesture and really show people what their potential is. It’s not about the object, and it’s not about the image; it’s about the viewer. That’s where the art happens.
+ - Abstraction and luxury are the guard dogs of the upper class.
+ - My favorite activity is to be with my family.
+ - People have different ideas, emotional ideas, of what certain words mean, and they think of irony as something that’s more associated with being cynical-it’s kind of a put-down.
+ - The moment we live in is a great time to make art. We have different technologies to play with, and we’re left with the opportunity to focus on our work.
+ - Art to me is a humanitarian act and I believe that there is a responsibility that art should somehow be able to effect mankind, to make the word a better place.
+ - When people make judgments they close all the possibility around them.
+ - Art is about profundity. It’s about connecting to everything that it means to be alive, but you have to act.
+ - Whenever you finish an artwork and the viewer comes and views it, at that moment you’ve given up control.
+ - I like to look at everything and appreciate seeing the different things that have meaning to people.
+ - As morality seems to have supplanted civilization, I move on to the spiritual.
+ - I always liked Disney films. To this day I think ‘Bambi’ is great.
+ - A lot of my work is about sales. And it was about being independent from the art market.
+ - The first thing that any good artist has to develop is a sense of independence from the artworld. What really destroys a young artist is insecurity, the fear that everything could be taken away at any moment.
+ - Art is something that happens inside us. We look at things in the world, and we become excited by them. We understand our own possibilities of becoming. And that’s what art is.
+ - My work is a support system for people to feel good about themselves.
+ - I try to create work that doesn’t make viewers feel they’re being spoken down to, so they feel open participation.
+ - I would prefer a normal-sized breast, or a small breast or whatever, and that it be natural, than to understand that it was just some jelly in there.
+ - I spend much more time looking at art history and at different references to art than I do at actual objects.
+ - I believe in advertisement and media completely. My art and my personal life are based in it. I think that the art world would probably be a tremendous reservoir for everybody involved in advertising.
+ - As an artist, I’ve always wanted to participate in the dialogue of art with other artists.
+ - Art has this ability to allow you to connect back through history in the same way that biology does. I’m always looking for source material.
+ - It’s wonderful to make a lot of money, to be able to take care of my family, to have the facilities I have and really support the people the studio’s involved with. But at the end of the day I’m quite simple as an artist-it’s really about the power of art.
+ - I don’t think irony is about judgment; I think irony is something like, “Oh, that’s interesting,” because it’s not something I think one starts off to achieve. I think it’s just something that presents itself. And if it does, I find it’s usually optimistic, not negative in its terms.
+ - Ive always enjoyed feeling a connection to the avant-garde, such as Dada and surrealism and pop art. The only thing the artist can do is be honest with themselves and make the art they want to make. Thats what Ive always done.
+ - Nothing can touch me now – I’m Jeff Koons and my art can defend me !
+ - Art helped give me confidence.
+ - I’m basically the idea person. I’m not physically involved in the production. I don’t have the necessary abilities, so I go to the top people.
+ - I love the gallery, the arena of representation. It’s a commercial world, and morality is based generally around economics, and that’s taking place in the art gallery.
+ - It’s about the production of the work. I need my workers to stay focused.
+ - Every day I wake up and I really try to pinch myself to take advantage of today and to use that freedom of gesture to do what I really like to do.
+ - I think you always, as an artist, feel like you would like to be more and more specific about your intent and your interests.
+ - I’m always working. If I’m not in my studio I become quite nervous.
+ - Art was something I could do better. It gave me a sense of self.
+ - I believe that my art gets across the point that I’m in this morality theater trying to help the underdog, and I’m speaking socially here, showing concern and making psychological and philosophical statements for the underdog.
+ - If I physically made every work myself, I would get only one or two paintings done a year, if that.
+ - I’m making some of the greatest art being made now. It’ll take the art world ten years to get around to it.
+ - My process of being inspired is very intuitive. Im constantly following my interest.
+ - A photograph for me does not have a sense of spiritual seduction, it does not have an essence, that this is something that permeates and which is eternal through time.
+ - I use printers to make prints of the images that I am creating. And I try to have that surface kind of replicated in the painting.
+ - Even before I had children I wanted the intensity of my life to get greater. I wanted to feel things more strongly. I wanted my intellectual parameters to expand. But it comes back to your own desire to be engaged and to live up to your parameters.
+ - I’m interested in power. I’m interested in the kind of polarities and equilibriums that take place within sexuality and philosophy and sociology. So in Versailles, in this type of setting, you have a place that is about absolute control, where everything has been thought about.
+ - I was always an artist. I was a broker to earn a living, but I was always thinking about my art.
+ - I try to be a truthful artist and I try to show a level of courage. I enjoy that. I’m a messenger.
+ - I’m really not a person who consumes a lot. I don’t have a sports car.
+ - I produce a lot of my artwork in Germany.
+ - Anything you can do to protect the public and allow it to have the confidence that our financial controls are good is very, very positive.
+ - I enjoy all mediums, and I have to say, music is the medium that first made me understand how powerful art could be.
+ - I’d have to say I’ve become more aware of my communal responsibility.
+ - I know how art has come in and really changed my life, so to give these children that opportunity just to come into contact with art – that’s wonderful.
+ - I like my drawings to be direct. I don’t generally work on them for too long, but that doesn’t mean that they are not works in their own right.
+ - The media, the galleries, the collectors – it’s all very chaotic actually. The artworld doesn’t have this defined corporate structure that people imagine.
+ - When I view the world, I don’t think of my own work. I think of my hope that, through art, people can get a sense of the type of invisible fabric that holds us all together, that holds the world together.
+
+59 quotes

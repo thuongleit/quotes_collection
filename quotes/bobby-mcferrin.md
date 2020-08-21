@@ -1,0 +1,41 @@
+ - In every life we have some trouble, but when you worry you make it double. Don’t worry. Be happy.
+ - Improvisation means coming to the situation without rigid expectations or preconceptions. The key to improvisation is motion – you keep going forward, fearful or not, living from moment to moment. That’s how life is.
+ - Here’s a little song I wrote. You might want to sing it note for note. Don’t worry, be happy.
+ - Improvisation is the courage to move from one note to the next.
+ - Music is so powerful, it needs to be used for some kind of redeeming work. To lift peoples spirits, to lift their souls.
+ - The voice gets to the soul of a person more than any other instrument. Because it’s the voice. It sings talks, it cries, it laughs, it squeals, it barks, it shouts it whispers, There is no other instrument that can do that. We’re born with it.
+ - The true musician is to bring light into people’s hearts.
+ - Miles Davis turned his back to the audience when he came out on stage, and he offended people. But, he wasn’t there to entertain; he was all about the music. I kind of do that.
+ - When I’m on stage by myself, I don’t have to think about anything. I don’t have to worry about anything because I’m not responsible for anything except just opening my mouth and making sure music comes out.
+ - I don’t want anything to get in the way of me and my singing. I want my mind as clear as possible.
+ - Musicians are the architects of heaven.
+ - I couldn’t do anything without faith. I couldn’t open up my eyes, I couldn’t walk, I couldn’t speak, I couldn’t sing.
+ - Whenever I’m onstage, I try my best not to think that I’m performing. It’s simply another part of my day.
+ - Music is still part of my spiritual life. Sometimes I sing my prayers. When I get audiences singing, I hope I’m helping them feel connected to something beyond themselves.
+ - I like a very dark house, just black. I sit there and just think. Once I’m still and quiet inside, I’ll begin. It’s very personal; it has to be. One song may be Bach, the next blues, a song from TV, or a nursery rhyme or jazz piece.
+ - If I can bring joy into the world, then I’ll be successful.
+ - It’s not that I don’t love the song. My songs are like my children: some you want around and some you want to send off to college as soon as possible.
+ - I think play and joy and feeling good deserve more of our time. I don’t see why adults are supposed to grow out of those things. If I have a mission it’s to make everyone who comes to my concerts leave feeling a heightened sense of freedom to play, sing, and enjoy themselves.
+ - My father was a very disciplined singer who worked hard at his craft, and I was around that growing up.
+ - I’d actually been making my living as an organist with bands since I was probably 15 or 16 years old, and then as a senior in high school I put together a jazz quintet called The Bobby Mack Jazz Quintet.
+ - I’m not a scholar or a psychologist, so I don’t really think about why. But I do think about what it means to sing to and with people, to offer music to them, and to ask them to spend time with me.
+ - I prepared five songs, I sang them, and he hired me. I started working about a month later at the piano bar.
+ - Part of our responsibility as parents, as adults, is to set examples for children. But we have to like children in order to be really happy fulfilled adults.
+ - But, if there’s any aspect of my career that needs attention, it’s writing.
+ - I want to write a book of poetry, as well as children’s stories.
+ - I do a lot of performing, but don’t get a chance to go to the studio and write good music.
+ - Seriously though, my father was the first African American to sign a contract with the Metropolitan Opera so I grew up with classical music and jazz in the home all the time.
+ - I played piano as a kid; I still play a little bit.
+ - The audience is like my instrument. It’s not just me up there, it’s collaborative.
+ - Inviting audiences to open up and hear things differently is an important part of what I do. But I still love to sing songs with words, too.
+ - Well, I started conducting kind of by accident. I wanted to give myself a special birthday present for my fortieth birthday, and I was living in San Francisco at the time and I started attending some of the concerts and then simply dropping hints.
+ - Then I came up with this crazy idea just to walk out on the stage with no band at all and just start singing whatever came to mind. I actually fought the idea for a while because it seemed almost too radical, but it became obvious what I was supposed to be doing.
+ - I have a lot of albums yet to do.
+ - I grew up in a time when being a musician and learning to be a musician was actually very wonderful.
+ - I did the one concert, and I was not bitten by the conducting bug, and I thought I was done, but then the phone started to ring, and gradually, over time, I started conducting more and more. Now a third of my performances are with orchestras.
+ - I think we listen to music because we want to be changed. Music is not solely for our entertainment. Music has such tremendous power to bring joy. To me, that’s our job as artists. Not happiness, not a groove, whatever. You must bring joy. I think that’s the assignment. I have no doubt about it.
+ - I use the audience as my color palette, my instrument.
+ - To me, it’s our job as artists. You must bring joy.
+ - My biggest musical influences are probably my parents.
+
+39 quotes

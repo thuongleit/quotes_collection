@@ -1,0 +1,39 @@
+ - Don’t look back – you’re not going that way.
+ - Heal the past, live the present, dream the future.
+ - Life’s too mysterious to take too serious.
+ - There’s no better friend than a sister...
+ - If you pray for rain, be prepared to deal with some mud.
+ - Time flies whether you are having fun or not.
+ - So many people com einto our lives and then leave the way they came. But there are those precious few who touch our hearts so deeply we will never be the same.
+ - I like to draw late at night when the house is quiet.
+ - Walk towards the sunshine, and the shadows will fall behind you.
+ - Open your heart – open it wide; someone is standing outside.
+ - I am extremely thankful for my family. I am very thankful for what God is allowing me to do artistically. What a dream come true for me! That I get the opportunity every single day to use my talent for His glory.
+ - The golden opportunity you are seeking is within yourself.
+ - Part of my passion for all things Christmas is seeing my holiday stuff again every December. I suppose I do have more than most folks, so the reunion each winter keeps me in the holiday spirit for a full year. And there are always a few pieces out in my house whatever the month.
+ - Bloom where you are planted!
+ - The only thing I know for sure about the creative process is it always comes back. Magically. When there are no creative juices and nothing is coming to me – if I wait – it comes!
+ - Life is too short to dust every week.
+ - Things that influence me are my kids, their happiness, colorfulness, and vitality. My husband – he comes up with some great quotes and ideas. God – He is the Ultimate artist. And what I see around me – flowers, leaves, trees, birds, fruit, vegetables.
+ - Babies! What a wonderful way to start people!
+ - Look to the beauty of this day, miracles are all around you.
+ - Life is too short to waste time changing the sheets every week. Especially when you have small children who tend to wait until you change the sheets to then wet the sheets.
+ - Life is too short to be safe and sit still and do nothing. Unless of course that is what God has for you to do in a particular place in your life.
+ - Life is too short to rush around and be too busy for your kids.
+ - A constant FRIEND is a thing rare and hard to find.
+ - One loses many laughs by not laughing at oneself.
+ - My mother always read to me as a child. I really believe that bonding time between a parent and child is so important and precious. I have lasting memories of those stories because the experience was special.
+ - Everyday life inspires me, the situations that we all find ourselves in at one time or another.
+ - Life is too short to leave your walls bare or colorless. Unless you like bare and colorless then it is fine.
+ - Happiness must be grown in one’s own garden.
+ - Life is too short to not tell every one you know about Jesus. I need to practice this more.
+ - I have been trying to get the hang of not being proud but instead turning that into thankfulness. Really whatever we have to be proud about, it is something given to us by the Lord.
+ - The world would be a vastly better place if people saw their need for God and accepted Him as Savior and Lord. And then lived by His rule of Love being the most important thing. Can you imagine the world if everyone was motivated by love for others?
+ - Not what you do but how you do it, is the test of your capacity.
+ - I wish I would have kept the big picture in my mind at all times – what it most important? That my kids seek to please God and learn about their Creator.
+ - Anything good that we do is because of God. Whenever we get our eyes off of Him we crash and burn.
+ - We should see dreaming as one of our responsibilitie s, rather than an alternative to one.
+ - Just being able to express myself and reach so many other people by doing so is really great!
+ - Learn from the rejection and turn it into an opportunity!
+
+37 quotes

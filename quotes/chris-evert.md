@@ -1,0 +1,44 @@
+ - You’ve got to take the initiative and play your game. In a decisive set, confidence is the difference.
+ - If you’re a champion, you have to have it in your heart.
+ - To be a tennis champion, you have to be inflexible. You have to be stubborn. You have to be arrogant. You have to be selfish and self-absorbed. Kind of tunnel vision almost.
+ - Ninety percent of my game is mental. It’s my concentration that has gotten me this far.
+ - Losing hurts me. I was determined to be the best.
+ - I love hiking in the mountains in Aspen. Breathing the clean, fresh air is great. Plus, it gives me a cardiovascular workout and firms my legs.
+ - Cats are peaceful and tranquil – they bring calmness with their serene personalities.
+ - Losses are always a relief. They take a burden off me, make me feel more normal. If I win several tournaments in a row I get so confident I’m in a cloud. If I lose I go back to the dressing room and I’m no better nor worse than anyone else. A loss gets me eager again.
+ - You can’t give up! If you give up, you’re like everybody else.
+ - You pay a price for everything in life.
+ - Training the body to obey the mind as I have done differs from the more conventional method of getting the mind to obey the body.
+ - If you can react the same way to winning and losing, that’s a big accomplishment. That quality is important because it stays with you the rest of your life, and there’s going to be a life after tennis that’s a lot longer than your tennis life.
+ - When I play, I’m boiling inside. I just try not to show it because it’s a lack of composure, and if you give in to your emotions after one loss, you’re liable to have three or four in a row.
+ - Relationships are give-and-take, and when you’re a tennis player, you’re certainly not giving. You have to be self-absorbed. It has to be about you.
+ - Being famous before you’ve formed your personality, before you have that self-esteem, is dangerous.
+ - I always looked ahead.
+ - Now that I’m losing some, I can see how tough I was – the killer instinct, the single-mindedness, playing like a machine. Boy, that’s what made me a champion.
+ - I was labeled at a young age – Miss Unemotional, Miss Cool, and that would carry over to my press conferences.
+ - I think team sports probably teach you more about giving – about being unselfish and being flexible.
+ - I realized that with hard work, the world was your oyster. You could do anything you wanted to do.
+ - I’m not getting within 20 feet of a married man ever again – not even talking to one!
+ - If I win several tournaments in a row, I get so confident I’m in a cloud. A loss gets me eager again.
+ - If you can react the same way to winning and losing, that’s a big accomplishment.
+ - I’ve had a lot of fear in my life, from fear of flying to fear of making a speech in front of a lot of people.
+ - Competitive toughness is an acquired skill and not an inherited gift.
+ - Ninety percent of my game is mental. It’s my concentration that has gotten me this far. I won’t even call a friend on the day of a match. I’m scared of disrupting my concentration. I don’t allow any competition with tennis.
+ - The difference is almost all mental. The top players just hate to lose. I think that’s the difference. A champion hates to lose even more than she loves to win.
+ - A champion hates to lose even more than she loves to win.
+ - You’re always striving to play that perfect match.
+ - Every time, all the time, I’m a perfectionist. I feel I should never lose.
+ - Whatever your goal in life, be proud of every day that you are able to work in that direction.
+ - There were times when deep down inside I wanted to win so badly I could actually will it to happen. I think most of my career has been based on desire.
+ - I’m not an overly ambitious person; I don’t feel like I have to excel.
+ - Once you’ve been number one, you can never be satisfied with less.
+ - Find something that you’re really interested in doing in your life. Pursue it, set goals, and commit yourself to excellence. Do the best you can.
+ - Not every child is cut out for an individual sport.
+ - Single-mindedness. I hate to say it because I don’t think it’s the best thing for developing a person, but the single-mindedness – just concentrating in the one area – that’s what it takes to be a champion.
+ - When I was younger, I was a robot. Wind her up and she plays tennis.
+ - The great high of winning Wimbledon lasts for about a week. You go down in the record book, but you don’t have anything tangible to hold on to. But having a baby – there isn’t any comparison.
+ - I was very, very shy as a younger girl, just petrified of people. Tennis helped give me an identity and made me feel like somebody.
+ - I still have this image: I can’t be controversial, I can’t say things.
+ - Don’t let a first-set victory lead into a second-set slump.
+
+42 quotes

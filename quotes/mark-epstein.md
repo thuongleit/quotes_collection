@@ -1,0 +1,21 @@
+ - Anger is sign that something needs to change.
+ - Trauma never goes away completely, it changes perhaps, softens some with time, but never completely goes away.
+ - Desire is a teacher: When we immerse ourselves in it without guilt, shame, or clinging, it can show us something special about our own minds that allows us to embrace life fully.
+ - It’s one of my theories that when people give you advice, they’re really just talking to themselves in the past.
+ - Depressed people think they know themselves, but maybe they only know depression.
+ - We are what we think, having become what we thought.
+ - The willingness to face traumas – be they large, small, primitive or fresh – is the key to healing from them. They may never disappear in the way we think they should, but maybe they don’t need to. Trauma is an ineradicable aspect of life. We are human as a result of it, not in spite of it.
+ - Buddhism teaches us that happiness does not come from any kind of acquisitiveness, be it material or psychological. Happiness comes from letting go. In Buddhism, the impenetrable, separate, and individuated self is more of the problem than the solution.
+ - Uncovering your real desires can be terrifying. It can also set you spectacularly free.
+ - One of the age-old truths about love is that while it offers unparalleled opportunities for union and the lifting of ego boundaries, it also washes us up on the shores of the loved one’s otherness. Sooner or later, love makes us feel inescapably separate.
+ - Meditation is not a means of forgetting the ego; it is a method of using the ego to observe and tame its own manifestations.
+ - As my Buddhist teachers have shown me, wisdom emerges in the space around words as much as from language itself.
+ - The central premise of this book is that the Western psychological notion of what it means to have a self is flawed.
+ - To be free, to come to terms with our lives, we have to have a direct experience of ourselves as we really are, warts and all.
+ - The picture we present to ourselves of who we think we ought to be obscures who we really are.
+ - If aspects of the person remain undigested-cut off, denied, projected, rejected, indulged, or otherwise unassimilated-they become the points around which the core forces of greed, hatred and delusion attach themselves.
+ - It is exceedingly difficult to maintain a sense of absence without turning that absence into some kind of presence.
+ - We are looking for a way to feel more real, but we do not realize that to feel more real we have to push ourselves further into the unknown.
+ - To free desire from the tendency to cling, we have to be willing to stumble over ourselves.
+
+19 quotes

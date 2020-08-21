@@ -1,0 +1,30 @@
+ - I don’t like the way I look so I don’t like being photographed. I become defensive.
+ - Happy birthday! Hope your 50s will be as awesome as your 40s.
+ - I’ve got this terrible hernia. People think it’s a fat gut, but it’s not.
+ - Winning is something you’ve dreamed about and hoped for, so that when you get there it’s no big deal. But if you lose you’re gutted, and the gutted sense just goes on, and I know what that’s like, because I’ve been having that gutted feeling since 1979.
+ - I wouldn’t inflict my naked body on any paying audience.
+ - I’ve had a year out of work, more, and just toughed it out. There are those who think that all actors are overpaid. I beg to differ.
+ - My father taught me things about body language that psychologists have been catching up with ever since. He always knew when I was lying, because my posture was all wrong.
+ - It’s not that I’m sick of the theater, don’t get me wrong. I’m just tired of the commitment.
+ - Since puberty I’ve always had this strange awareness that all the keener experiences I would have in my life would happen later than it would to my contemporaries. When it came to the career thing, I never worried about it. It’s better if you’re still peaking when you’re 60, which I feel I am.
+ - I’ve always turned down stuff where you had to be fat. I may be fat, but that’s not why you play a role. If the guy has to be that way, I say get somebody else because I’m not doing any fat acting.
+ - I hated my childhood. It was loathsome. My parents were deaf and dumb. Profoundly so. They could make noises when they were emotionally aroused, but they couldn’t form it into speech.
+ - Actors do have good and bad sides. It’s because the passage down the birth canal distorts the face. People born by caesarean section are more symmetrical.
+ - I went from being a beanpole – like a normal kid of the 1950s – and exploded. The weight piled on and didn’t stop until into my adulthood.
+ - My vanity is not remotely physical, it is cerebral. I suppose feeling self-conscious might be a form of vanity, though.
+ - I hate being the subject of photographs.
+ - Everyone over 50 should be issued every week with a wet fish in a plastic bag by the Post Office so that, whenever you see someone young and happy, you can hit them as hard as you can across the face.
+ - I know I have this kind of teaching element in me, but I don’t want to become a ‘teacher of theater’ because that would formalize something that I’d much rather keep casual.
+ - Some actors don’t mind it. Those who are pretty. They think it’s nice to be looked at because they are nice to look at. I appreciate that. I’m very happy to salute that aspiration. But I don’t like the way I look so I don’t like being photographed. I become defensive.
+ - When I see David Attenborough talking about how chimps live, big apes, I just remember my dad and the way he’d look at you. He couldn’t speak, but everything else about him was, ‘This is us, a family.’ Relationships are just as intense as they are for people who can speak. Probably more so.
+ - I like playing Vernon Dursley in ‘Harry Potter,’ because that gives me a license to be horrible to kids. I hate the odious business of sucking up to the public.
+ - I trained as an artist originally, so I know what a nice human body looks like, and I would like to look like that notion, and of course I never will. But I’ve got past that.
+ - I was big and fat and had weird parents.
+ - It’s been the most astonishing year because I’ve been having a marvelous adventure, and yet I kind of sympathize with people who have to live in exile, because I’ve so missed England.
+ - Broadway has the most savvy audience anywhere. They see everything and they know their theater. As sophisticated and subtle as you think you can be, the houses you get here will want something finer.
+ - I’ve always hated the way I looked, and I’ve never complained about my brains.
+ - I don’t think I’d live in London unless you paid me. Nine figures would be nice.
+ - If I were dictator, I’d have a catch-all crime of disrespect.
+ - I could never understand the attraction of Bette Davis. I always preferred Jane Russell.
+
+28 quotes

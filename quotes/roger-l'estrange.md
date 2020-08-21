@@ -1,0 +1,59 @@
+ - Live and let live is the rule of common justice.
+ - It is not the place, nor the condition, but the mind alone that can make anyone happy or miserable.
+ - Partiality in a parent is unlucky; for fondlings are in danger to be made fools.
+ - He that serves God for money will serve the Devil for better wages.
+ - Some natures are so sour and ungrateful that they are never to be obliged.
+ - Passions, as fire and water, are good servants, but bad masters, and subminister to the best and worst purposes.
+ - Avarice is insatiable, and is always pushing on for more.
+ - A universal applause is seldom less than two thirds of a scandal.
+ - It is not the place, nor the condition, but the mind alone what it compares its situation to that can make anyone happy or miserable. Compare it to something better – result envy, frustration and sadness. Compare it to something worse – relief, gratitude and happiness.
+ - Men are not to be judged by their looks, habits, and appearances; but by the character of their lives and conversations, and by their works.
+ - Ingratitude is abhorred by God and man.
+ - Unruly ambition is deaf, not only to the advice of friends, but to the counsels and monitions of reason itself.
+ - The fairest blossoms of pleasantry thrive best where the sun is not strong enough to scorch, nor the soil rank enough to corrupt.
+ - Much tongue and much judgment seldom go together.
+ - Resolve to see the world on the sunny side and you have almost won the battle at the outset.
+ - Wickedness may prosper for a while.
+ - The lowest boor may laugh on being tickled, but a man must have intelligence to be amused by wit.
+ - There are braying men in the world, as well as braying asses; for what is loud and senseless talking any other than away of braying?
+ - Pretences go a great way with men that take fair words and magisterial looks for current payment.
+ - The common people do not judge of vice or virtue by morality or immorality, so much as by the stamp that is set upon it by men of figure.
+ - What signifies the sound of words in prayer without the affection of the heart, and a sedulous application of the proper means that may naturally lead us to such an end?
+ - Intemperate wits will spare neither friend nor foe, and make themselves the common enemies of mankind.
+ - All duties are matters of conscience, with this restriction that a superior obligation suspends the force of an inferior one.
+ - Of all injustice, that is the greatest which goes under the name of law, and of all sorts of tyranny the forcing of the letter of the law against the equity, is the most insupportable.
+ - Nothing is so fierce but love will soften; nothing so sharp-sighted in other matters but it will throw a mist before its eyes.
+ - Humor is the offspring of man; it comes forth like Minerva, fully armed from the brain.
+ - If we should cease to be generous and charitable because another is sordid and ungrateful, it would be much in the power of vice to extinguish Christian virtues.
+ - It is one of the vexatious mortifications of a studious man to have his thoughts disordered by a tedious visit.
+ - Money does all things, – for it gives and it takes away; it makes honest men and knaves, fools and philosophers; and so forward, mutatis mutandis, to the end of the chapter.
+ - Men talk as if they believed in God, but they live as if they thought there was none; their vows and promises are no more than words, of course.
+ - Figure-flingers and star-gazers pretend to foretell the fortunes of kingdoms, and have no foresight in what concerns themselves.
+ - The blessings of fortune are the lowest; the next are the bodily advantages of strength and health; but the superlative blessings, in fine, are those of the mind.
+ - Some read books only with a view to find fault, while others read only to be taught; the former are like venomous spiders, extracting a poisonous quality, where the latter, like the bees, sip out a sweet and profitable juice.
+ - It is a way of calling a man a fool when no attention is given to what he says.
+ - The most insupportable of tyrants exclaim against the exercise of arbitrary power.
+ - Men indulge those opinions and practices that favor their pretensions.
+ - He that upon a true principle lives, without any disquiet of thought, may be said to be happy.
+ - The very soul of the slothful does effectually but lie drowsing in his body, and the whole man is totally given up to his senses.
+ - By one delay after another they spin out their whole lives, till there’s no more future left for them.
+ - So long as we stand in need of a benefit, there is nothing dearer to us; nor anything cheaper when we have received it.
+ - Wickedness may prosper for awhile, but in the long run, he that sets all the knaves at work will pay them.
+ - A body may well lay too little as too much stress upon a dream; but the less he heed them the better.
+ - To be longing for this thing to-day and for that thing to-morrow; to change likings for loathings, and to stand wishing and hankering at a venture – how is it possible for any man to be at rest in this fluctuant, wandering humor and opinion?
+ - We never think of the main business of life till a vain repentance minds us of it at the wrong end.
+ - The devil helps his servants for a season; but when they get into a pinch; he leaves them in the lurch.
+ - There is no creature so contemptible but by resolution may gain his point.
+ - Imperfections would not be half so much taken notice of, if vanity did not make proclamation of them.
+ - Tis not necessity, but opinion, that makes men miserable; and when we come to be fancy-sick, there’s no cure.
+ - Tutors should behave reverently before their pupils.
+ - A plodding diligence brings us sooner to our journey’s end than a fluttering way of advancing by starts.
+ - There is not one grain in the universe, either too much or too little, nothing to be added, nothing to be spared; nor so much as any one particle of it, that mankind may not be either the better or the worse for, according as it is applied.
+ - What man in his right senses, that has wherewithal to live free, would make himself a slave for superfluities? What does that man want who has enough? Or what is he the better for abundance that can never be satisfied.
+ - There is no opposing brutal force to the stratagems of human reason.
+ - He that would live clear of envy must lay his finger on his mouth, and keep his hand out of the ink-pot.
+ - There is no contending with necessity, and we should be very tender how we censure those that submit to it. It is one thing to be at liberty to do what we will, and another thing to be tied up to do what we must.
+ - He that contemns a shrew to the degree of not descending to words with her does worse than beat her.
+ - Riches are gotten with pain, kept with care, and lost with grief. The cares of riches lie heavier upon a good man than the inconveniences of an honest poverty.
+
+57 quotes

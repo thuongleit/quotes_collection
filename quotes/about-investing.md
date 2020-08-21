@@ -1,0 +1,54 @@
+ - We don’t have to be smarter than the rest. We have to be more disciplined than the rest. ~~Warren Buffett
+ - The key is in not spending time, but in investing it. ~~Stephen R. Covey
+ - Investing is simple, but not easy. ~~Warren Buffett
+ - Successful investing is about managing risk, not avoiding it. ~~Benjamin Graham
+ - The first rule is not to lose. The second rule is not to forget the first rule. ~~Warren Buffett
+ - The greatest Enemies of the Equity investor are Expenses and Emotions. ~~Warren Buffett
+ - Investing in yourself is the best thing you can do. If you’ve got talents, no one can take them from you. ~~Warren Buffett
+ - Experience is what you get when you didn’t get what you wanted. ~~Randy Pausch
+ - Cash combined with courage in a time of crisis is priceless. ~~Warren Buffett
+ - Investing requires qualities of temperament way more than it requires qualities of intellect. ~~Warren Buffett
+ - Building your own business is the best way to become rich. Then you can begin investing in other assets. ~~Robert T. Kiyosaki
+ - Investing is most intelligent when it is most businesslike. ~~Benjamin Graham
+ - Games are won by players who focus on the playing field – not by those whose eyes are glued to the scoreboard. ~~Warren Buffett
+ - The intelligent investor should recognize that market panics can create great prices for good companies and good prices for great companies. ~~Benjamin Graham
+ - I’m not emotional about investments. Investing is something where you have to be purely rational and not let emotion affect your decision making – just the facts. ~~Bill Ackman
+ - It is more important to say “no” to an opportunity, than to say “yes”. ~~Warren Buffett
+ - Real estate investing, even on a very small scale, remains a tried and true means of building an individual’s cash flow and wealth. ~~Robert T. Kiyosaki
+ - It is better to be roughly right than precisely wrong. ~~John Maynard Keynes
+ - Nothing is so difficult as not deceiving oneself. ~~Ludwig Wittgenstein
+ - You have to be constantly reinventing yourself and investing in the future. ~~Reid Hoffman
+ - Investing isn’t about beating others at their game. It’s about controlling yourself at your own game. ~~Benjamin Graham
+ - The big money is not in the buying and selling, but in the waiting. ~~Charlie Munger
+ - If at first you do succeed, quit trying on investing. ~~Warren Buffett
+ - Markets can remain irrational longer than you can remain solvent. ~~John Maynard Keynes
+ - People who invest make money for themselves; people who speculate make money for their brokers. ~~Benjamin Graham
+ - The intelligent investor is a realist who sells to optimists and buys from pessimists. ~~Benjamin Graham
+ - The best way to measure your investing success is not by whether you’re beating the market but by whether you’ve put in place a financial plan and a behavioral discipline that are likely to get you where you want to go. ~~Benjamin Graham
+ - Bull-markets are born on pessimism, grow on skepticism, mature on optimism and die on euphoria. ~~John Templeton
+ - Losing some money is an inevitable part of investing, and there’s nothing you can do to prevent it. But to be an intelligent investor, you must take responsibility for ensuring that you never lose most or all of your money. ~~Benjamin Graham
+ - Diversification is protection against ignorance. It makes little sense if you know what you are doing. ~~Warren Buffett
+ - People calculate too much and think too little. ~~Charlie Munger
+ - Investing in tomorrow’s technology today is more critical than ever... ~~Bill Gates
+ - I’ve not found ! one single mutual fund, one single real estate investment, any gold, silver or anything else that has given me higher returns than: me investing in myself. ~~Patrick Bet-David
+ - In the short run, the market is a voting machine, but in the long run it is a weighing machine. ~~Benjamin Graham
+ - Experience teaches that the time to buy stocks is when their price is unduly depressed by temporary adversity. In other words, they should be bought on a bargain basis or not at all. ~~Benjamin Graham
+ - You don't have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. ~~Charlie Munger
+ - The stock market is a giant distraction to the business of investing. ~~John C. Bogle
+ - Opportunities come infrequently. When it rains gold, put out the bucket, not the thimble. ~~Warren Buffett
+ - High valuations entail high risks. ~~Benjamin Graham
+ - Giving should be entered into in just the same way as investing. Giving is investing. ~~John D. Rockefeller
+ - It’s nice to have a lot of money, but you know, you don’t want to keep it around forever. I prefer buying things. Otherwise, it’s a little like saving sex for your old age. ~~Warren Buffett
+ - Take a simple idea and take it seriously. ~~Charlie Munger
+ - People need to have the incentive that if they invest and succeed, they can make a fair profit. Otherwise they’ll stop investing. ~~Steve Jobs
+ - If you can feel that staying human is worth while, even when it can’t have any practical result whatsoever, you’ve beaten them. ~~George Orwell
+ - Many stock options in the corporate world have worked in exactly that fashion: they have gained in value simply because management retained earnings, not because it did well with the capital in its hands. ~~Warren Buffett
+ - We do not view the company itself as the ultimate owner of our business assets but instead view the company as a conduit through which our shareholders own assets. ~~Warren Buffett
+ - Self-importance requires spending most of one’s life offended by something or someone. ~~Carlos Castaneda
+ - Investing in women is not only the right thing to do, but also the smart thing to do. ~~Hillary Clinton
+ - I’m investing in myself, I’m investing in others and I’m investing in my cause. I know if I persist it will pay back in dividends and it always does. ~~Simon Sinek
+ - I take the market-efficiency hypothesis to be the simple statement that security prices fully reflect all available information. ~~Eugene Fama
+ - After all, the chief business of the American people is business. They are profoundly concerned with producing, buying, selling, investing and prospering in the world. ~~Calvin Coolidge
+ - When you combine ignorance and leverage, you get some pretty interesting results. ~~Warren Buffett
+
+52 quotes

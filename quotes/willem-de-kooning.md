@@ -1,0 +1,43 @@
+ - I have to change to stay the same.
+ - The trouble with being poor is that it takes up all your time.
+ - The past does not influence me; I influence it.
+ - Even abstract shapes must have a likeness.
+ - The artist fills space with an attitude. The attitude never comes from himself alone.
+ - I’d like to get all the colors in the world into one painting.
+ - Content is a glimpse of something, an encounter like a flash. It’s very tiny – very tiny. Content.
+ - I’m not interested in ‘abstracting’ or taking things out or reducing painting to design, form, line, and color. I paint this way because I can keep putting more things in it – drama, anger, pain, love, a figure, a horse, my ideas about space. Through your eyes it again becomes an emotion or idea.
+ - Flesh was the reason why oil painting was invented.
+ - In art, one idea is as good as another. If one takes the idea of trembling, for instance, all of a sudden most art starts to tremble. Michelangelo starts to tremble. El Greco starts to tremble. All the Impressionists start to tremble.
+ - I don’t paint to live, I live to paint.
+ - I feel sometimes an American artist must feel, like a baseball player or something – a member of a team writing American history...
+ - An artist is forced by others to paint out of his own free will.
+ - What you do when you paint, you take a brush full of paint, get paint on the picture, and you have faith.
+ - Yes, I am influenced by everbody. But every time I put my hands in my pockets I find someone else’s fingers there.
+ - Man’s own form in space – his body – was a private prison; and that it was because of this imprisoning misery – because he was hungry and overworked and went to a horrid place called home late at night in the rain, and his bones ached and his head was heavy.
+ - If I stretch my arms and wonder where my fingers are – that is all the space I need as a painter.
+ - Once, after finishing a picture, I thought I would stop for awhile, take a trip, do things-the next time I thought of this, I found five years had gone by.
+ - Not even for a million dollars would I paint a tree.
+ - The texture of experience is prior to everything else.
+ - The drawings that interest me most are made with closed eyes. With eyes closed, I feel my hand slide down on the paper. I have an image in mind, but the results always surprise me.
+ - I paint the way I do because I can keep on putting more and more things in – like drama, pain, anger, love, a figure, a horse, my ideas of space. It doesn’t matter if it differs from mine, as long as it comes from the painting, which has its own integrity and intensity.
+ - Style is a fraud. I always felt the Greeks were hiding behind their columns.
+ - Maybe in that earlier phase I was painting the woman in me. Art isn’t a wholly masculine occupation, you know.
+ - I think I’m painting a picture of two women but it may turn out to be a landscape.
+ - If you pick up some paint with your brush and make somebody’s nose with it, this is rather ridiculous when you think of it, theoretically or philosophically. It’s really absurd to make an image, like a human image, with paint, today.
+ - My interest in desperation lies only in that sometimes I find myself having become desperate. Very seldom do I start out that way. I can see of course that, in the abstract, thinking and all activity is rather desperate.
+ - The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.
+ - Art never seems to make me peaceful or pure.
+ - Content is a glimpse.
+ - If you’re an artist, the problem is to make a picture work whether you are happy or not.
+ - And then there is that one-man movement, Marcel Duchamp for me a truly modern movement because it implies that each artist can do what he thinks he ought to a movement for each person and open for everybody.
+ - I read somewhere that Rubens said students should not draw from life, but draw from all the great classic casts. Then you really get the measure of them, you really know what to do. And then, put in your own dimples. Isn’t that marvelous!
+ - I make pictures and someone comes in and calls it art.
+ - You have to keep on the very edge of something, all the time, or the picture dies.
+ - Watercolors is the first and the last thing an artist does.
+ - Whatever an artist’s personal feelings are, as soon as an artist fills a certain area on the canvas or circumscribes it, he becomes historical. He acts from or upon other artists.
+ - The idea of space is given to the artist to change if he can. The subject matter in the abstract is space.
+ - In art one idea is as good as another.
+ - Every so often, a painter has to destroy painting. Cezanne did it, Picasso did it with Cubism. Then Pollock did it. He busted our idea of a picture all to hell. Then there could be new paintings again.
+ - I might work on a painting for a month, but it has too look like I painted it in a minute.
+
+41 quotes

@@ -1,0 +1,28 @@
+ - Death is easy. Living is the hard part.
+ - I will spend the rest of my life trying to make you happy, and when you get tired of looking at me, I promise I’ll sing.
+ - Books allow you to be whoever you want to be, to escape yourself for a while.
+ - Sometimes a beautiful face is false advertising.
+ - Everybody is a main character to someone.
+ - But maybe you see beauty in me because you are beautiful, not because I am.
+ - Regret is just life’s aftertaste.
+ - You loved ferris wheels more than roller coasters because life shouldn’t be lived at full speed, but in anticipation and appreciation.
+ - Cages come in lots of different colors and shapes. Some are gilded, while others have a slamming door. But golden handcuffs are still handcuffs.
+ - I think people are like that. When you really look at them, you stop seeing a perfect nose or straight teeth. You stop seeing the acne scar or dimple in the chin. Those things start to blur, and suddenly you see them, the colors, the life inside the shell, and beauty takes on a whole new meaning.
+ - Literature makes history come to life. It is maybe the most accurate depiction of history, especially literature that was written in the time period depicted in the story.
+ - Everybody who is somebody becomes nobody the moment they fail.
+ - Victory is in the battle.
+ - The real thing, when done right, is always better than a daydream.
+ - Nobody or Nowhere? Fern: I’d rather be nobody at home than somebody somewhere else. Ambrose: I’d rather be nowhere. Being nobody when you’re expected to be somebody gets old. Fern: How would you know? Have you been nobody? Ambrose: Everybody who is somebody becomes nobody the moment they fail.
+ - But there’s no way to avoid regret. Don’t let anybody tell you different. Regret is just life’s aftertaste. No matter what you choose, you’re gonna wonder if you shoulda done things different. I didn’t necessarily choose wrong. I just chose. And I lived with my choice, aftertaste and all.
+ - I would rather be lost with you than alone without you.
+ - If God makes all our faces, did he laugh when he made me?
+ - Why don’t you focus on where you’re going and less on where you came from?
+ - Someone told me once that to create true art you must be willing to bleed and let others watch.
+ - She decided she would just be a fairy because she liked the option of flying without the responsibility of saving the world.
+ - It’s hard to come to terms with the fact that you aren’t going to be loved the way you want to be loved.
+ - Sometimes the things we want to be rescued from can save us.
+ - This is just me. Get used to it.
+ - There isn’t heartache if there hasn’t been joy. I wouldn’t feel loss if there hadn’t been love.
+ - Caring about someone doesn’t mean taking care of them.
+
+26 quotes

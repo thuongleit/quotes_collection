@@ -1,0 +1,60 @@
+ - An animator is an actor with a pencil.
+ - You can’t force inspiration. It’s like trying to catch a butterfly with a hoop but no net. If you keep your mind open and receptive, though, one day a butterfly will land on your finger.
+ - Every artist has thousands of bad drawings in them and the only way to get rid of them is to draw them out.
+ - Bugs is who we want to be. Daffy is who we are.
+ - You’ve got a million bad drawings in you; you better get started.
+ - The road is better than the end.
+ - Fog and smog should not be confused and are easily separated by color. Fog is about the color of the insides of an old split wet summer cottage mattress; smog is the color and consistency of a wet potato chip soaked in a motorman’s glove.
+ - All worthwhile endeavors are 90% work and 10% love, and only the love should show.
+ - A comedian is not a person who opens a funny door – he’s the person who opens a door funny.
+ - Often Anxiety is the hand maiden of creativity.
+ - A lion’s work hours are only when he’s hungry; once he’s satisfied, the predator and prey live peacefully together.
+ - Animation isn’t the illusion of life; it is life.
+ - The older I get, the more individuality I find in animals and the less I find in humans.
+ - All of you here have one hundred thousand bad drawings in you. The sooner you get rid of them, the better it will be for everyone.
+ - An idea has no worth at all without believable characters to implement it; a plot without characters is like a tennis court without players. Daffy Duck is to a Buck Rogers story what John McEnroe was to tennis. Personality. That is the key, the drum, the fife. Forget the plot.
+ - Animation means to invoke life, not to imitate it.
+ - Humiliation and indifference, these are conditions every one of us finds unbearable – this is why the Coyote when falling is more concerned with the audience’s opinion of him than he is with the inevitable result of too much gravity.
+ - Comedy is unusual people in real situations; farce is real people in unusual situations.
+ - Eschew the ordinary, disdain the commonplace.
+ - If you want a midget to look like a baby, don’t put a cigar in his mouth.
+ - Dell is to a degree in the penalty box because expectations and probable results have gotten ratcheted down.
+ - Censorship, I believe, is the most dangerous enemy to all human communication, and piety of intention is probably the most dangerous, the most virulent and the most self-satisfying.
+ - If you make a fool of yourself in front of a cat, he will sneer at you, if you are sober; he will leave the room if you are drunk. If you make a fool of yourself in front a dog, he will make a fool of himself, too.
+ - Once you have heard a strange audience burst into laughter at a film you directed, you realize what the word joy is all about.
+ - Fog and smog should not be confused and are easily separated by color.
+ - Disney was not a good animator, he didn’t draw well at all, but he was always a great idea man, and a good writer.
+ - I started reading when I was about three, a little over three.
+ - The author O. Henry taught me about the value of the unexpected. He once wrote about the noise of flowers and the smell of birds – the birds were chickens and the flowers dried sunflowers rattling against a wall.
+ - The rules are simple. Take your work, but never yourself, seriously. Pour in the love and whatever skill you have, and it will come out.
+ - If you were to draw Bugs, the easiest way is to learn how to draw a carrot and then hook a rabbit onto it.
+ - Anyone can negatively criticize – it is the cheapest of all comment because it requires not a modicum of the effort that suggestion requires.
+ - You do not ‘suffer’ if you decide ‘that’s the way it is’ rather than ‘why is it this way?’
+ - Artists don’t need criticism, artists need love.
+ - Eschew the ordinary, disdain the commonplace. If you have a single-minded need for something, let it be the unusual, the esoteric, the bizarre, the unexpected.
+ - When critics sit in judgment it is hard to tell where justice leaves off and vengeance begins.
+ - Jackie Gleason said that comedy is the most exacting form of dramatic art, because it has an instant critic: laughter.
+ - You have a coyote inside you and you have to get it out.
+ - When a young artist asked me for advice on drawing the human foot, I told him, ‘The first thing you must learn is how to take your shoe off, and then how to take your sock off, then prop your leg up carefully on your other knee, take a piece of paper, and draw your foot.’
+ - Painting does what we cannot do – it brings a three-dimensional world into a two-dimensional plane.
+ - Mark Twain’s Roughing It is a book that many people don’t know about, but I highly recommend to anybody at any age.
+ - If you start with character, you probably will end up with good drawings.
+ - Human beings will line up for miles to buy a bucket of catastrophes, but don’t try selling sunshine and light – you’ll go broke.
+ - As you become acquainted with a character you are creating, you add parts of yourself that are pertinent to that character.
+ - The whole essence of good drawing – and of good thinking, perhaps – is to work a subject down to the simplest form possible and still have it believable for what it is meant to be.
+ - The weatherman is not only blamed for his failure to foretell, he is blamed for the weather itself.
+ - The only time a wife listens to her husband is when he’s asleep.
+ - In timing a film, we used to assume that sneaks move slowly. This was great for animators-thirty-six to forty-eight drawings for a single step-but it was sheer hell for the pace of the picture. So the rapid tiptoe was invented.
+ - Well, directing is doing the key drawings, not the key animation, mind you.
+ - We must not confuse distortion with innovation; distortion is useless change, art is beneficial change.
+ - Comedy is a very, very, very stringent business.
+ - Early experiences convinced me that animals can and do have quite distinct personalities.
+ - I’m still astonished that somebody would offer me a job and pay me to do what I wanted to do.
+ - In 1918, when I was 6 or 7 years old, radio was just coming into use in the Great War.
+ - I have come to know Bugs so well that I no longer have to think about what he is doing in any situation. I let the part of me that is Bugs come to the surface, knowing, with regret, that I can never match his marvelous confidence.
+ - There’s only one test of a great children’s book, or a great children’s film, and that is this: If it can be read or viewed with pleasure by adults, then it has the chance to be a great children’s film, or a great children’s book.
+ - There is absolutely no inevitability as long as there is the willingness to think.
+ - Each character represented a trait that resides in me.
+ - I have to think as Bugs Bunny, not of Bugs Bunny.
+
+58 quotes

@@ -1,0 +1,88 @@
+ - Ratings don’t last. Good journalism does.
+ - If all difficulties were known at the outset of a long journey, most of us would never start out at all.
+ - The press is a watchdog. Not an attack dog. Not a lapdog. A watchdog. Now, a watchdog can’t be right all the time. He doesn’t bark only when he sees or smells something that’s dangerous. A good watchdog barks at things that are suspicious.
+ - I’ve never believed in measuring one’s worth by the size of his or her bank account. I prefer to look at distance traveled.
+ - A college degree is the key to realizing the American dream, well worth the financial sacrifice because it is supposed to open the door to a world of opportunity.
+ - Courage is being afraid but going on anyhow.
+ - Journalism is not a precise science, it’s a crude art.
+ - Always marry a woman from Texas. No matter how tough things get, she’s seen tougher.
+ - Be careful. Journalism is more addictive than crack cocaine. Your life can get out of balance.
+ - Journalists should denounce government by public opinion polls.
+ - They say California’s the big burrito; Texas is a big taco right now. We want to follow that through. Florida is a big tamale.
+ - The dream begins, most of the time, with a teacher who believes in you.
+ - I’d much rather wear out than rust out.
+ - Don’t taunt the alligator until after you’ve crossed the creek.
+ - It’s the ratings, stupid, don’t you know? They’ve got us putting more fuzz and wuzz on the air, cop-show stuff.
+ - Well, first of all, I don’t want to debate the word conservative, but by my definition, a conservative is someone who wants to conserve the Constitution of the United States and the American tradition and law that no one is above the law.
+ - This race is hotter than a Times Square Rolex.
+ - If you liked this broadcast, we hope you’ll watch it again tomorrow night and maybe tell your neighbors about it.
+ - I think you can be an honest person and lie about any number of things.
+ - It’s the American way: if you don’t vote, you don’t get to whine.
+ - My cousin just died. He was only 19. He got stung by a bee – the natural enemy of a tightrope walker.
+ - I don’t back down. I don’t cave when the pressure gets too great from these partisan political ideological forces.
+ - To the pilot of a deep sea submersible, upon finding out what would happen if the craft sprung a leak while submerged. I’ll trust you to make sure that doesn’t happen.
+ - A tough lesson in life that one has to learn is that not everybody wishes you well.
+ - The great lesson my mother and father gave me was almost invisible. It was a strong sense of being rooted.
+ - Once the herd starts moving in one direction, it’s very hard to turn it, even slightly.
+ - I’ve tried everything. I can say to you with confidence, I know a fair amount about LSD. I’ve never been a social user of any of these things, but my curiosity has carried me into a lot of interesting areas.
+ - They may have turned this up, whether you had the Paula Jones case or not. But again maybe not, but again that’s like if a frog had side pockets he’d probably wear a handgun.
+ - This much we know: Journalism is not a precise science. It’s, on its best day, is a crude art. We make mistakes; I make mistakes. With more than 50 years as a journalist, I have at least had the opportunity to blow more stories, make more mistakes than maybe anybody in television.
+ - I had someone at the Houston police station shoot me with heroin so I could do a story about it. The experience was a special kind of hell. I came out understanding full well how one could be addicted to ‘smack,’ and quickly.
+ - I was really lucky to work at CBS news. I was blessed to be able to live my dream in many ways at CBS news.
+ - Fear rules almost every newsroom in the country.
+ - Journalism is less addictive than communism.
+ - We may see Michael Jackson’s baby before we know the final outcome of this race for the House of Representatives tonight.
+ - One of the most important roles of our journalists is to be watchdogs.
+ - Start-ups like UniversityNow, a network of low-cost, online colleges, allows students to work at their own pace and pay a few hundred dollars a month for a degree.
+ - I got addicted. News, particularly daily news, is more addictive than crack cocaine, more addictive than heroin, more addictive than cigarettes.
+ - A free and truly independent press – fiercely independent when necessary – is the red beating heart of freedom and democracy.
+ - But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won’t. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.
+ - If you’re in Journalism and you’re looking for friends, you should get a dog.
+ - As long as I have my health, I want to be reporting somewhere.
+ - I had just turned 10-years-old when the Japanese attacked Pearl Harbor and plunged America into World War II.
+ - Americans will put up with anything provided it doesn’t block traffic.
+ - The reelection of Bill Clinton is as secure as a double-knot tied in wet rawhide.
+ - From the streets of Cairo and the Arab Spring, to Occupy Wall Street, from the busy political calendar to the aftermath of the tsunami in Japan, social media was not only sharing the news but driving it.
+ - And now the sequence of events in no particular order.
+ - Turn the lights down, the party just got wilder.
+ - I respect and empathize with reporters and editors who must compete in today’s environment. And I know full well that when I’ve been covering campaigns, which I still do, I’ve made my mistakes and have been far from perfect.
+ - By more than two to one Americans do not consider what Kevorkian did, injecting a terminally ill patient with legal drugs at the patient’s request, to be the same as murder. You may want to note that laws are not supposed to be enforced on the basis of public opinion polls.
+ - When the going gets weird, anchormen punt.
+ - For years Don Imus was just – boy, he was merciless in his criticism of me. Maybe it was justified, but that didn’t mean it didn’t hurt.
+ - Now, I know you expected me to say that, well, I just kick back in the rocking chair, fished a little bit, listened to Willie Nelson tapes and watched old baseball games on the Classic Sports network. And, tell you the truth, I have done that for maybe about five total minutes.
+ - Have you ever had any anger about President Bush – who spent his time during the Vietnam War in the National Guard – running, in effect, a campaign that does its best to diminish your service in Vietnam? You have to be at least irritated by that, or have you been?
+ - Americans are once again looking outward.
+ - Anyone who says network news cannot be profitable doesn’t know what he is talking about. But anyone who says it must “always,” make money is misguided and irresponsible.
+ - What separated Ed Murrow from the rest of the pack was courage.
+ - Only votes talk, everything else walks.
+ - The Michigan Republican primary apparently is tighter than Willie Nelson’s headband.
+ - Are the Democrats going to dance the mandate Macarena?
+ - The Republican convention opens in New York to re-nominate George W. Bush and showcase the party’s, quote, ‘moderate side.’ Will voters buy it?
+ - If frogs had side pockets, they’d carry hand guns.
+ - I’m part of nobody’s world except Brezhnev’s.
+ - Never eat spinach just before going on the air.
+ - I’m proud to say I’ve never been anybody’s lapdog.
+ - There are more Muslims in North America then Jews Now.
+ - Despite what many Americans think, most Soviets do not yearn for capitalism or Western-style democracy.
+ - I can say with confidence I know a fair bit about LSD.
+ - I don’t pretend to be a digital savant or even a digital apprentice.
+ - Very big business is in bed with very big government in Washington, and has more to do with what the average person sees, hears and reads than most people know.
+ - I still love following and thinking about politics. I enjoy recommending important journalism I read or see from other sources.
+ - If I didn’t have a front-row seat on history, it was at least a seat on the aisle.
+ - I know that this story is true.
+ - I have tried to remain a working, cutting-edge journalist and I don’t do it the way everybody else does it. And I think that’s the difference.
+ - Those of you watching and listening, get a cup of coffee or a spot of tea and join us back here in just a few moments.
+ - I think it’s important for the public to know, great reporting starts with a publisher who has guts and an editor who has guts.
+ - It’s the old shell game.
+ - On Capitol Hill, the Republican-controlled House voted mostly along party lines tonight to pass President Bush’s federal budget blueprint. This includes his big tax cut plan, partly bankrolled, critics say, through cuts in many federal aid programs for children and education.
+ - Performing doesn’t turn me on. It’s an egomaniac business, filled with prima donnas – including this one.
+ - I’m a believer in what your record is. I am what my record is – some of it good, some of it bad, some of it hard to tell.
+ - Writing is the rock on which everything is built.
+ - There is no doubt that the way journalism worked when I was growing up and getting started has changed forever.
+ - As someone who’s been covering presidential campaigns since the 1950s, I have no delusions about political reporting. Candidates bargaining access to get the kind of news coverage they want is nothing new.
+ - Texas: 32 electoral votes, another of the so-called big enchiladas or if not an enchilada at least a huge taco.
+ - I’ve always tried to be fair, even-handed, not an advocate for any group.
+ - And for whatever reason I’ve loved the news since I can remember. I loved it when I was in elementary school.
+ - Catholic dioceses typically spent hundreds of thousands of dollars recklessly, then filed for bankruptcy. The goal was to avoid the money going to the hands of victims of predator priests.
+
+86 quotes

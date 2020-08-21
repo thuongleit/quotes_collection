@@ -1,0 +1,49 @@
+ - I learn every day, and I know that I will never stop learning.
+ - Show kindness and respect to everyone. Pure intentions make the biggest difference.
+ - I prefer being a small fish in a big pond.
+ - I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That’s a perfect night alone for me.
+ - I will never stop trying to find new ways to promote healthy living. It’s my passion and my mission to help others understand what’s necessary for our bodies to function properly.
+ - Being healthy and living a healthy lifestyle have always been very important to me.
+ - Well, my work is done here. Thanks, boys!
+ - I like my home to be somewhere where my friends can feel like they can put their feet up on the couch and for it to feel like really easy living. I really love to have my friends over, cook dinner for them, catch up, and spend quality time with quality people in my life.
+ - I pride myself in taking care of my mind, body and soul, and not just through exercise.
+ - No matter how much you know, how well read you are, how traveled or cultured, you should never stop learning.
+ - The thing about legs is you’re born with them. Anybody can go out and buy boobs. But you’re either blessed with attractive legs or you’re not. That’s what makes them so sexy.
+ - You know what they say about guys with big hands.
+ - I would say my best feature has to be my legs – they are 41.5 inches long!
+ - Working out makes me feel strong and energized every time. It’s my therapy for my mind and my body.
+ - When I’m home, I like a cozy, comfortable, calming space.
+ - Confidence comes from within and as long as you are putting forth a respectable effort to take good care of yourself, you should feel confident about that path.
+ - I’m very career-driven, so my focus and my energy has been into that.
+ - I wasn’t a wrestling fan growing up; I knew who Hulk Hogan was and stuff but I didn’t watch it. I started watching wrestling about three years before I got involved with WCW.
+ - Around the holidays, or anytime I’m going on vacation, I try to bump up my cardio or lose a pound before leaving.
+ - I would like to have a family someday, and I can’t wait to be a stay-at-home mom.
+ - I’m not really interested in thinking about marriage or kids at all.
+ - Less is more when you do a bright, bold lip. Just draw on black liner and some mascara and you’re good to go!
+ - I think that Brad Pitt is definitely a hottie. And his acting is so great that it makes him even more sexy.
+ - I won a dancing contest to get into wrestling. That involved fans voting.
+ - Wrestling hurts. Your body’s not meant to take that abuse. I’ve closed that door, but I don’t know that I’ve locked it for good.
+ - It doesn’t bother me if my boyfriend gets a lap dance when I’m there. I’m secure with myself so whats the big deal?
+ - I’m the hardest person to buy a gift for.
+ - I become filled with anxiety and hurt as a natural reaction. Then I resort to my gratitude journal. I make it a point to think about and write down all of the things I have to be grateful for, and this helps me immensely.
+ - I’m not really attracted to a big, jacked guy. I think that’s a little excessive.
+ - We never know the issues others may be facing, and it isn’t up to us to judge actions and behavior.
+ - When I was wrestling, I was 19, I was young.
+ - I really like visiting military bases.
+ - I don’t think I have any bad features.
+ - I think it’s a responsibility for everyone to give back.
+ - You can heal your body with food.
+ - I started something with Test, but I don’t know what it was.
+ - To date, my biggest lesson may be that judgment of others is never a good thing.
+ - Anybody that knows me knows that I’m definitely a guy’s girl.
+ - If I’m not happy with how someone is showing up, I can only be honest and hope that my feelings resonate and inspire a deeper look into oneself.
+ - You need to be smart about what you put in your body.
+ - My main focus is on becoming a new mom and giving the best of myself to my husband and growing baby.
+ - Everything in my life has been a stepping-stone to something else.
+ - I just can really adapt to any kind of environment.
+ - It’s just fun just being a girl.
+ - What I do in my own time, is my business.
+ - I’ve been in the entertainment industry since I was five and it has always been something that has been in my blood.
+ - Wrestling school was probably one of the hardest things I’ve ever done. It just killed me.
+
+47 quotes

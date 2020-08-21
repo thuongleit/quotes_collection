@@ -1,0 +1,60 @@
+ - A poet, any real poet, is simply an alchemist who transmutes his cynicism regarding human beings into an optimism regarding the moon, the stars, the heavens, and the flowers, to say nothing of Spring, love, and dogs.
+ - Love is an emotion experienced by the many and enjoyed by the few.
+ - An actor without a playwright is like a hole without a doughnut.
+ - Patriotism is often an arbitrary veneration of real estate above principles.
+ - The notion that as a man grows older his illusions leave him is not quite true. What is true is that his early illusions are supplanted by new, and to him, equally convincing illusions.
+ - The path of sound credence is through the thick forest of skepticism.
+ - What passes for woman’s intuition is often nothing more than man’s transparency.
+ - A broken heart is a monument to a love that will never die; fulfillment is a monument to a love that is already on its deathbed.
+ - An optimist is a fellow who believes a housefly is looking for a way to get out.
+ - Bad officials are the ones elected by good citizens who do not vote.
+ - Love is the emotion that a woman feels always for a poodle dog and sometimes for a man.
+ - No man can think clearly when his fists are clenched.
+ - A ready way to lose your friend is to lend him money. Another equally ready way to lose him is to refuse to lend him money. It is six of one and a half dozen of the other.
+ - The most loyal and faithful woman indulges her imagination in a hypothetical liaison whenever she dons a new street frock for the first time.
+ - A life spent in constant labor is a life wasted, save a man be such a fool as to regard a fulsome obituary notice as ample reward.
+ - A man reserves his true and deepest love not for the species of woman in whose company he finds himself electrified and enkindled, but for that one in whose company he may feel tenderly drowsy.
+ - Beauty makes idiots sad and wise men merry.
+ - I know many married men, I even know a few happily married men, but I don’t know one who wouldn’t fall down the first open coal hole running after the first pretty girl who gave him a wink.
+ - A ham is simply any actor who has not been successful in repressing his natural instincts.
+ - There is no legimate actor who can resist the powerful lure of the movies. It isn’t the money that fetches him. It isn’t the great publicity. It is simply this: the movies enable an actor to look at himself.
+ - All that is necessary to raise imbecility into what the mob regards as profundity is to lift it off the floor and put it on a platform.
+ - The dramatic critic who is without prejudice is on the plane with the general who does not believe in taking human life.
+ - So long as there is one pretty girl left on the stage, the professional undertakers may hold up their burial of the theater.
+ - Men go to the theatre to forget; women, to remember.
+ - A man may be said to love most truly that woman in whose company he can feel drowsy in comfort.
+ - Great drama is the souvenir of the adventure of a master among the pieces of his own soul.
+ - Politics is the diversion of trivial men who, when they succeed at it, become important in the eyes of more trivial men.
+ - The test of a real comedian is whether you laugh at him before he opens his mouth.
+ - There is something distinguished about even his failures; they sink not trivially, but with a certain air of majesty, like a great ship, its flags flying, full of holes.
+ - An abstainer is the sort of man you wouldn’t want to drink with even if he did.
+ - In the theatre, a hero is one who believes that all women are ladies, a villain one who believes that all ladies are women.
+ - Love demands infinitely less than friendship.
+ - It is only the cynicism that is born of success that is penetrating and valid.
+ - The triumph of sugar over diabetes.
+ - Drama – what literature does at night.
+ - Marriage is based on the theory that when a man discovers a brand of beer exactly to his taste, he should at once throw up his job and go to work inthe brewery.
+ - Criticism is the art of appraising others at one’s own value.
+ - A man admires a woman not for what she says, but what she listens to.
+ - One does not go to the theater to see life and nature; one goes to see the particular way in which life and nature happen to look to a cultivated, imaginative and entertaining man who happens, in turn, to be a playwright.
+ - Great art is as irrational as great music. It is mad with its own loveliness.
+ - Opening Night: The night before the play is ready to open.
+ - The bachelors admired freedom is often a yoke, for the freer a man is to himself the greater slave he often is to the whims of others.
+ - All one has to do to gather a large crowd in New York is to stand on the curb a few minutes and gaze intently at the sky.
+ - Like everybody else, when I don’t know what else to do, I seem to go in for catching colds.
+ - It is also said of me that I now and then contradict myself. Yes, I improve wonderfully as time goes on.
+ - Common sense, in so far as it exists, is all for the bourgeoisie. Nonsense is the privilege of the aristocracy. The worries of the world are for the common people.
+ - A man’s wife is his compromise with the illusion of his first sweetheart.
+ - It is the mark of a superior person that, left to themselves they are able endlessly to amuse, interest and entertain themselves out of their personal stock of meditations, ideas, criticisms, memories, philosophy, humor and what not.
+ - The sweetest memory is that which involves something which one should not have done; the bitterest, that which involves something which one should not have done, and which one did not do.
+ - I have yet to find a man worth his salt in any direction who did not think of himself first and foremost.
+ - Women, as they grow older, rely more and more on cosmetics. Men, as they grow older, rely more and more on a sense of humor.
+ - Hollywood is ten million dollars worth of intricate and high ingenious machinery functioning elaborately to put skin on baloney.
+ - It may be said that artist and censor differ in this wise: that the first is a decent mind in an indecent body and that the second is an indecent mind in a decent body.
+ - Criticism is the windows and chandeliers of art: it illuminates the enveloping darkness in which art might otherwise rest only vaguely discernible, and perhaps altogether unseen.
+ - Whenever a man encounters a woman in a mood he doesn’t understand, he wants to know if she’s tired.
+ - I drink to make other people interesting.
+ - Musicals are to the theater what wines are to a substantial dinner.
+ - Shaw writes plays for the ages, the ages between five and twelve.
+
+58 quotes

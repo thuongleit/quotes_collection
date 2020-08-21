@@ -1,0 +1,103 @@
+ - Whatever life throws at me I’ll take it and be grateful for it as well.
+ - Going online and asking questions is the best way to learn.
+ - Knowledge will not be acquired without pains and application. It is troublesome and deep, digging for pure waters; but when once you come to the spring, they rise up and meet you.
+ - I really liked the snake that breaks out of the cage in the beginning of the movie. I saw it in real life, and it was really cool. Really big and fat. The owls are cool as well, but you can’t really pet them.
+ - Everyone plays their own crucial part towards the film.
+ - Bad boys do get the girls.
+ - I would miss months of school and then return with bright blond hair. Needless to say, there was bullying. I wasn’t beaten up daily, but there was name-calling and jealousy. You have to bear in mind that ‘Harry Potter’ wasn’t cool. I wasn’t part of the ‘Terminator’ franchise.
+ - I’m a real big country boy.
+ - I like physics. I think it is the best science out of all three of them, because generally it’s more useful. You learn about speed and velocity and time, and that’s all clever stuff.
+ - The music stuff is just a hobby.
+ - I like me Italian girls; half Halle Berry, half Penelope Cruz sort of thing!
+ - As soon as I get my car I think I’ll be going to the cinema more. Since I don’t go very often, there are no films that are a must see at the moment. I usually wait till they come out on DVD.
+ - I started my own record label.
+ - I bought a lot of rubbish things that kids buy: skateboards and clothes and typical teenage stuff.
+ - I have three brothers; I’m the youngest of four.
+ - I’ve started a little independent record label called ‘Six String Productions’ and recorded a couple of tunes, and I hope to do some more with some future artists next year. It’s a real passion project of mine.
+ - You do that stupid thing at 12 years old when you say something and it kind of sticks with you for the rest of your life. So, I believe I said I wanted to be a fishery manager. In hindsight, I think acting could be a better route.
+ - Nothing’s really changed since the Harry Potter films came along.
+ - Yeah, we held a junior carp tournament on the St. Lawrence River in New York last August. I hosted that along with a couple of other people.
+ - I do have a bit of a garden, and I’d love a hovercraft to get around it – one of the big four-seater ones with the fan on the back.
+ - I like my ladies lady-ish, feminine so to speak. I love jeans and hoodies, but the idea of being an ultimate tomboy does slightly confuse me.
+ - There are a couple of carp fishing books I’ve been reading. I’m very interested in that line of books, because I think they write very well, carp anglers, about the general environment.
+ - I’ll take my clothes off – whatever the job requires.
+ - One thing that people keep on saying to me is that the wealth and the fame must have made up for missing out on my childhood. But the idea of money – putting a price on your childhood – is ridiculous. You will never get those years back and you can’t put a price on them.
+ - I plan to go to college in Southampton, a fishery studies college. Again, my brother was down there about two years ago and he said it was great, so I’m looking forward to that.
+ - I find it’s usually the bullies who are the most insecure.
+ - The actual course is called fishery studies, and you study general aquatics and fishery management.
+ - I’m terrible at texting people back. It takes me, like, three days. I’m not a big phone person.
+ - The only time I can really relax is up a tree or somewhere outside. I love being outside.
+ - You can finish school as soon as you finish the GCSE’s.
+ - When you’re playing a character for 10 years, it can challenge you less than it did at the beginning, so it was exciting to take on some new shoes. Especially with Erich Blunt, because being a tech wizard wasn’t something I thought I would do after Harry Potter.
+ - My favorite country is America. I love going there! I go in the local lake near where I work on Sundays. It’s called Berry Hill.
+ - I like a funny girl. Smart. Talented. I like someone who is good at music – that always intrigues me.
+ - I like geography. I like to know where places are.
+ - I’m obsessed with shopping. I’ll get these urges to buy, like to shop for stuff on the Internet. I search for all kinds of weird gizmos I could get.
+ - My mother is looking forward to it even more than me! I’ll be showing her the bright lights of New York.
+ - I used to have all the Goosebumps books as a kid too.
+ - And to me, fame is not a positive thing. The idea of being famous is a lot better than the reality. It’s fantastic when you go to premieres and people cheer you, but it’s not real. And it’s totally not my approach to get my name on a club door just because I can.
+ - The best-looking girls don’t do anything, they just sort of know they’re beautiful, especially in jeans and a hoodie.
+ - My favorite holiday spot has to be New York, on the St. Lawrence River. Without a doubt that area there is perfect for me. Very, very spacious. It’s nice.
+ - As soon as you see ‘Dame’ in front of someone’s name, you get nervous, but Dame Maggie Smith is the most wonderfully gentle woman I have ever met. She never had a bad word to say.
+ - The idea of being famous is a lot better than the reality.
+ - Draco’s not really a bully. He’s not exactly the biggest, strongest guy in the world. He’s more a rich, snobby person. He thinks of himself as really cool.
+ - I live right in the middle of nowhere and I thoroughly enjoy it.
+ - Languages, like our bodies, are in a perpetual flux, and stand in need of recruits to supply those words that are continually falling, through disuse.
+ - People always tell me I’m nothing like my character. Well, hopefully not! He’s a character who’s very defined. He was purposefully written by Jo Rowling as very one-dimensional in the first few books, because you’re supposed to hate him.
+ - I’m a little bit of a geek – I have to be the first person to get new things when they come out. I always want to buy and try new gadgets.
+ - I’m a keen musician. Me and my mates have a great times jamming and recording stuff. We have a great band behind us and have turned my nursery-rhyme songs into quite credible pieces of music.
+ - It’s definitely more fun playing a bad guy. It feels a lot better than playing one of the good guys.
+ - No, I don’t suppose I’m so much a collector sort of person.
+ - Oh God, you know what would be really good for me is a dog locater – it would save me the hours that I have to spend looking for my dog.
+ - I’m always buying gadgets, especially at airports.
+ - When we’re not trying to kill each other with spells, we just sit in in Daniel’s dressing room watching cricket games on television.
+ - What a house. Turns out they’re doing OK, the Malfoy’s. However, the interior decorating leaves a lot to be desired. And needless to say, Voldemort isn’t the greatest houseguest.
+ - I think I’d take a human butler over a robot one.
+ - I like to fish. Fishing is always a way of relaxing.
+ - The Japanese fans always send weird things.
+ - There’s something very intoxicating about playing someone so volatile and someone who can lose his temper at any second.
+ - If young children boo me, that makes my day.
+ - I think it’s pretty crazy to say you’ve been typecast at the age of 20 before you’ve even really started getting going.
+ - I like the dueling club scene, where Daniel and I fight with our wands. I thought it was a brilliant scene to shoot. I think the end product looked really good.
+ - I remember my first scene with Alan Rickman, and I was anxious because he is a slight ‘method’ actor; as soon as he is in his cloak, he walks and talks like Snape – it is quite terrifying. But I really wanted to talk to him because ‘Robin Hood’ was one of my favourite films.
+ - I’m going to change my image – backward caps, the lot.
+ - Whether it’s acting, directing or writing, I want to be involved in the film industry for the rest of my life.
+ - I’d love to be in Paul McCartney’s shoes for a day. I’d love to pick up a guitar and write songs like he does. Or to experience what it might have been like to be a Beatle for a day.
+ - Also, I just think of Draco and he gets me in the right mood. He just keeps getting worse and worse.
+ - I’d like to own my own garage and my own fishery. I’d also like to be a professional fisherman. But I’ll take whatever happens.
+ - I had a great childhood.
+ - You see another side of Draco when he’s with his dad. When Draco is with his dad, he doesn’t say anything. He keeps his mouth shut. He’s sort of bullied by his dad, so he acts very different.
+ - In spite of what Draco is like, I really like school, and I miss it a lot when I’m filming. I’ve a fair idea what I want to do for my GCSEs, I will definitely be doing music.
+ - A nice pop star would do you nice on one of those deserted islands.
+ - It’s fun to be blond, and it’s almost difficult to remember how I used to look with my proper hair color.
+ - I’d rather play a character that was really, really different to me as to someone who is quite close to my character.
+ - Working with big actors and realising that they were just normal people who’ve got an incredible talent was just a great experience.
+ - I want to take a few years out, maybe make a couple of more films or whatever.
+ - I don’t go to the cinema much.
+ - I used to have some fish, some nice little carp, but they got too big for the tank. I don’t have any pets now.
+ - I went to see every angler on the bank to see how they were doing, to try to give them a few tips or whatever. But yeah, we had a lot of fun. It was definitely a good time and we’re definitely going to do it again next year.
+ - When I was 9 or 10 years old it wasn’t the thing to be seen doing – reading a book in your spare time.
+ - I’m such an admirer, I am an admirer of villains, especially working with so many great ones.
+ - I don’t have an album cover with me on a broomstick.
+ - I hope to be scaring children for the rest of my life.
+ - What twelve year old wouldn’t want to play an evil wizard?
+ - I confess, I’m not the biggest fan of Twilight.
+ - Those of you that think filming is all glamour, you’re so wrong! Really, only the premieres are the glitzy bits.
+ - I’d have to just say that working with other people, it’s a different world from school.
+ - If you’re put on a set with a lot of people, it’s just nice to see everyone working together.
+ - In England we are sort of very awkward.
+ - You avoid the hype while you’re working, you have to, but the premiere is the one night of the year where you can enjoy it.
+ - I like all films whether it’s dark or light, love, hate, whatever it is, I enjoy it.
+ - I’d like to know about some of the things that they teach down there, like building a lake. If I ever wanted to build a lake, I’d like to know how to do it.
+ - I can’t wait to see how Dan and I will look when we are older.
+ - I have done a bit of recording and the songs are available on iTunes, and I’ve got some nice comments. It’s something I enjoy doing, but I’m not looking for a singing career any time soon. As long as one person gets enjoyment out of it, I’m happy to make it available.
+ - We went with the St. Lawrence Experience, which is run by Joe Babbitt, who is a close friend now. We went out there for 10 days and we had the best week of our lives, and we’ve been going back since. We’ve been back three times now.
+ - I don’t like to label films with a genre.
+ - I’m generally more and more in my comfort zone in the wild.
+ - It’s like in politics: You can have great intentions for the world, but if you’re not a good speaker and if you’re not the sort of person that people can intimately link with, then it makes it very easy to say, “Well, they’re not a nice person.”
+ - I’m not too unintelligent.
+ - It’s shocking to say, but the cinema is quite a while away from me, and I haven’t got a car yet.
+ - Well, my closest friends are still the ones that I went to school with, but it’s nice to go to work, at the studios, and have people there that you’re willing to talk to and have a good conversation with.
+ - I’m not a big splurger of money, but my guilty pleasures do lie within BMWs. I get roped in.
+
+101 quotes

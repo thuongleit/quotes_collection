@@ -1,0 +1,27 @@
+ - Why should I be ashamed to describe what nature was not ashamed to create?
+ - Even when I’m railed at, I get my quota of renown.
+ - Love doesn’t hide. It stays and fights. It goes the distance, that’s why love is so strong. So it can carry you all the way home.
+ - Telling you the truth than adore me for telling you lies.
+ - Life is a toy made of glass; it appears to be of inestimable price, but in reality it is very cheap.
+ - Anger represents a certain power, when a great mind, prevented from executing its own generous desires, is moved by it.
+ - Why should the eyes be denied what delights them most?
+ - A high heart ought to bear calamities and not flee them, since in bearing them appears the grandeur of the mind and in fleeing them the cowardice of the heart.
+ - Angry men are blind and foolish, for reason at such time takes flight and, in her absence; wrath plunders all the riches of the intellect, while the judgment remains the prisoner of its own pride.
+ - The best thing for a man to do is to be born and, being born, to die at once.
+ - The art of war is like the art of the courtesan; indeed they might be called sisters, since both are slaves of desperation.
+ - Nature without exercise is a seed shut up in a pod, and art without practice is nothing.
+ - He who has not been at a tavern knows not what a paradise it is. O holy tavern! O miraculous tavern! – holy, because no carking cares are there, nor weariness, nor pain; and miraculous, because of the spits, which themselves turn round and round!
+ - There is no food more satiating than milk and honey; and just as such foods produce disgust for the palate, so perfumed and gallant words make our ears belch.
+ - A man who permits his honor to be taken, permits his life to be taken.
+ - What evil is there in seeing a man possess a woman? Why, the beasts would be more free than we! It seems to me that that which is given us by nature for our own preservation ought to be worn round the neck as a pendant and in the hat for a medal.
+ - Poetry is a whim of Nature in her lighter moods; it requires nothing but its own madness and, lacking that, it becomes a soundless cymbal, a belfry without a bell.
+ - Nothing, it appears to me, is of greater value in a man than the power of judgment; and the man who has it may be compared to a chest filled with books, for he is the son of nature and the father of art.
+ - Learning is the property of those who fear to do disagreeable things.
+ - Desire is poison at lunch and wormwood at dinner; your bed is a stone, friendship is hateful and your fancy is always fixed on one thing.
+ - What evil is there in seeing a man possess a woman? Why, the beasts would be more free than we!
+ - Perfumed and gallant words make our ears belch.
+ - We are the buffoons of our children.
+ - They merit more praise who know how to suffer misery than those who temper themselves in contentment.
+ - Age has a good mind and sorry shanks.
+
+25 quotes

@@ -1,0 +1,47 @@
+ - A day without blood is like a day without sunshine!
+ - There’s a lot of whiners in every crowd.
+ - I’m never, like I say, I’m never happy, I’m never satisfied, it’s never good enough.
+ - I hate to hear ‘Less is more.’ It’s a crock of crap.
+ - Because I am hard, you will not like me. But the more you hate me, the more you will learn. I am hard but I am fair.
+ - What is your major malfunction?
+ - I play well with everybody.
+ - I was stationed at a marine recruit depot in San Diego from 1965 to 1967.
+ - I firmly believe that you live and learn, and if you don’t learn from past mistakes, then you need to be drug out and shot.
+ - There was a huge, tremendous amount of disabled veterans and the Veteran’s Administration just wasn’t geared up for it. I know for a fact that it’s getting better and better.
+ - It’s my firm conviction that when Uncle Sam calls, by God we go, and we do the best that we can.
+ - Finally, mutually, and completely, they released all doubts, abandoned all fears, unwilling and unable to deny this overpowering love.
+ - Without discipline, there is no Marine Corp.
+ - I go the VA Hospital when I have a problem and the doctor jumps on me.
+ - Even though I disagree with many of the changes, when I see the privates graduate at the end of the day, when they walk off that drill field at the end of the ceremony, they are still fine privates; outstanding, well motivated privates.
+ - Back in those days intimidation was the greatest tool the drill instructor had. Without that tool, he would not have had control.
+ - Everybody respects the Vietnam Veterans of America.
+ - Try as you may, you can never defy love.
+ - I got space from Travis Air Force Base, went back to the Philippine Islands and made it a point to meet the only American casting director in the Philippines. I was off and running.
+ - Kubrick ate it up. He loved it. He just let me go crazy.
+ - For me, it’s an honor for the military to ask me to go to Iraq, Afghanistan, or GITMO. I’m happy to go.
+ - I try to get over to Iraq and Afghanistan as much as I can.
+ - Back in the old Corp, we weren’t training those privates to infiltrate into the peacetime Marine Corp. We were training those privates to go to Vietnam.
+ - I disagree with a lot of those changes, however at the end of the day – I go down to recruit graduation at least once or twice a year.
+ - I honestly do feel that I am a role model for young people.
+ - This is for fighting, this is for fun.
+ - I spend a lot of time with my characters.
+ - When you try to find funding for a VVA function, it doesn’t seem like it’s any trouble at all. People come out of the woodwork with their money to help out because we went over and fought a war.
+ - We had times in ’66 and ’67 when we would pick up a platoon of privates out of the receiving barracks the week before we even graduated the platoon that we were on!
+ - Drill instructors worked seven days a week, fifteen to seventeen hours a day in many cases, with no time off in between platoons.
+ - There have been a lot of changes in recruit training in the past twenty years.
+ - Every character I’ve ever played, I always try to take him right to the edge and not allow him to fall over, but directors have a tendency to pull me back a little bit.
+ - That’s all I cared about too, was getting it right.
+ - America’s trying to do the best for its veterans.
+ - You’d be surprised how many kids and young people come to the website and send me email that they are actually going into the Marine Corp because of something that I said or did.
+ - I don’t have any respect at all for the scum-bags who went to Canada to avoid the draft or to avoid doing their fair share.
+ - Kubrick’s films have life – they just never die.
+ - I don’t have to be concerned about everybody else’s character.
+ - I’ve never had to spend any time in the VA hospital, so I really can’t speak for those guys.
+ - The bad news motivated the drill instructors that much more.
+ - I always love to come to Austin.
+ - Playing the good guy is tough because you know as well as I do, in real life, you have to watch your P’s and Q’s and conduct yourself in a respectable manner if you expect to have friends.
+ - The best part about the movie, and everybody seems to rave about it, is the boot camp part.
+ - Communications are better now than in my Vietnam days.
+ - In order to be a good actor, I’m a firm believer that you need to bring something to the table.
+
+45 quotes

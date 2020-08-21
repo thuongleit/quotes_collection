@@ -1,0 +1,29 @@
+ - To be a champion you must act like one, act like a champion.
+ - I have a tremendous passion for fitness, I love challenges and I am a very driven guy.
+ - Most pro bodybuilders have bad relationships with their fathers. We want to prove something.
+ - If you are going to try and hide something, sooner or later people are going to find out.
+ - The Hulk was a unique character because of his strength and power. He doesn’t have a costume like Spiderman or like Superman – The Hulk is more visual. His passion and his strength, that is what separates him from anything else.
+ - I like to be home every night with my family.
+ - My father was a police officer with the New York Police Department; I’ve always had a high respect for officers. I want to give back to the community, and I want to work with young kids, help them get off drugs.
+ - If I hadn’t lost my hearing, I wouldn’t be where I am now. It forced me to maximize my own potential. I have to be better than the average person to succeed.
+ - I never think about losing.
+ - When I work out, I wear two in-the-ear hearing aids for comfort, and then I wear the behind-the-ears for my day-to-day non-physical activities, when I need maximum hearing and to communicate with people and do interviews!
+ - I have a lot of anger about my childhood – being hard of hearing and my relationship with my father.
+ - The attitude is very important. Because, your behavior radiates how you feel.
+ - Bodybuilding saved my life because I overcame the nerd stage. I got picked on. I was fascinated with power, and then I decided to take that direction because I knew that it would make me feel good about myself.
+ - The truth is, I’ve been the Hulk my whole life.
+ - I have the largest collection of Hulk memorabilia in the world – everything from toilet paper, wallpaper, bicycles – all boxed up at my house in Northern California. I’ve had it for so long, I think it might be time to sell it.
+ - Believing in myself and not to be afraid of taking any risks. I have to be better than the average person to succeed. That’s why I chose bodybuilding. If I became a world champion, if I could win admiration from my peers, I could do anything.
+ - Computers can bully us. A slow and unreliable system will bring even the toughest soul to their knees as they find themselves completely defenseless against the erratic whims of their rogue machine.
+ - It’s funny how sometimes how the public some people think I was born like this. That I maybe I sleep and I do big muscle, but it’s a lot of work to look like this and to be in this kind of condition.
+ - I don’t think anybody else can play the Hulk like I could. I was able to show emotions even with all of the makeup. I don’t think it can be duplicated.
+ - I know right a way there’s a person that’s very insecure; that he’s trying to out do me. And, ah, like I was saying before, if you give one-hundred percent of your best, and you may have fault, but there is nothing you can do, because you gave one-hundred percent.
+ - I train a lot of people on the side as a personal trainer, but I still work out myself to keep in great shape.
+ - You are going to have bad days and have good days.
+ - I’ve done the voice for the Hulk for the animated cartoon.
+ - I’ve been involved with law enforcement for some time. My father was in law enforcement. I went through the training for Homeland Security. I enjoy it very much.
+ - I think Eric Bana would be a good Superman. He’s got that look. I think he’d be a great Superman.
+ - I did a movie ‘I Love You, Man’ and it got great reviews; it was very enjoyable.
+ - I’m a Republican. I may go into politics myself.
+
+27 quotes

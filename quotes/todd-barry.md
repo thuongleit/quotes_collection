@@ -1,0 +1,40 @@
+ - Buddha, much like everyone else has good and bad days.
+ - Anyone who bombs is my friend.
+ - I would call it a comedy variety show. We have some people just doing straight standup. We usually try to have one musical act of sort. So its just people being funny in different ways, not just sketch, not just standup, not just characters, all of those things.
+ - I like pens. My writing is so amazing there’s never a need to erase.
+ - I liked the koala, wallaby, and I chilled with a kangaroo a bit. There was a wombat that I quite enjoyed also.
+ - And the goal really is to make the audience laugh, to bring them some joy.
+ - I don’t feel I’m even worthy of a normal amount of value.
+ - If you see me at a restaurant, blow me a kiss, wave, blow me another kiss, then walk five steps backward.
+ - I mean, I guess I started during the comedy boom, so it was literally like, on Sunday you could decide you wanted to be a comic, and on Monday, you could be on stage.
+ - I used to write things out beforehand. But sometimes it backfires.
+ - I’d rather send out a mass email then hang posters all over the place.
+ - I mean, I’ve had bartenders and waiters and waitresses make a comment about a joke of mine, like pointing out some sort of logic error or something that I’ve never even thought about, and they’re right.
+ - I have a podiatrist appointment at 2.
+ - You come there and hang out and have a drink before the show and eat, so it’s not that brutal. It’s only $6.
+ - If I’m at a party and someone puts on a Blues Brothers tape, I tend to go nuts.
+ - I don’t really know much about pirates, or pirate culture. I’d be a contrarian pirate.
+ - I like Cilantro, but you don’t have to.
+ - I don’t know any astronauts. There are a lot of people who say they want to be comedians.
+ - I want to release another CD this year, finish writing a screenplay, and make another short film.
+ - There’s people that are just in awe of what you do, and then there are people who just think it’s garbage. And I think there are people who are just uncomfortable seeing someone have fun with their job.
+ - My sister sometimes does a Todd Barry tribute act.
+ - I did end up doing substitute teaching, but there’s not a lot of teaching involved in that.
+ - People in New York love having roof parties.
+ - It was actually 3 years between albums. That seems like a long time to me.
+ - I guess there seems to be clubs opening up again, which is strange.
+ - I do not like sports, unless you consider treating all humankind with love and respect a sport.
+ - I mean, I’ve always had scattered interests, but I never went on stage to get an agent or anything like that.
+ - There seems to be more comedy for comedy’s sake.
+ - I will not be misquoted!
+ - I haven’t done a lot in London. I think comedy over there is how it was over here years ago. There’s tons of it, and they’re better paid.
+ - I am the the type to have a personal experience with a celebrity, but I’m too classy to bring that up.
+ - I wasn’t as nervous as I thought I would be when I started.
+ - I must have done everything I had. You go through years where you go through everything you’ve ever written.
+ - I’m particularly proud of my reluctance to share my dreams with anyone.
+ - I was probably just trying to be Dennis Miller, but without the vocabulary to actually be Dennis Miller. I guess I was just less interesting than I am now, if I am interesting at all.
+ - Only lately, like within the last few years, have I had people actually do an impression of me to me, which weirds me out to think of what they have picked up on, without ever realizing it myself.
+ - I loved Australia. I was very successful there.
+ - It’s cool to go to a place that has posters up and it’s one night only. It feels more special.
+
+38 quotes

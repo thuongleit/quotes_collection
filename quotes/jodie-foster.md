@@ -1,0 +1,134 @@
+ - Normal is not something to aspire to, it’s something to get away from.
+ - I will always love psychology, and the basis of psychology is family.
+ - In the end, winning is sleeping better.
+ - All of the thinking and planning that you do to get there, and then, in one minute, in one second, it just doesn’t matter. It goes out the window. You either got it or you didn’t. There is something kind of refreshing about that.
+ - If I fail, at least I will have failed my way.
+ - Privacy. Someday, in the future, people will look back and remember how beautiful it once was.
+ - I like to be in a different place when I make a movie so that I can’t really focus on anything else, and that is your world.
+ - There are 400 billion stars out there, just in our galaxy alone. If just one out of a million of those had planets, and just one in a million of those had life, and just one out of a million of those had intelligent life, there would be literally millions of civilizations out there.
+ - I think ‘destiny’ is just a fancy word for a psychological pattern.
+ - It’s an interesting combination: Having a great fear of being alone, and having a desperate need for solitude and the solitary experience. That’s always been a tug of war for me.
+ - I’m kind of a chatterbox and I talk really fast.
+ - My kids are young and my life with them is really stimulating and really full and significant.
+ - It’s very hard for me to get a new car. It’s really hard for me to get a new house. It’s really hard for me to move on from the things that give me stability.
+ - I had to take my makeup off at work every night. I wasn’t allowed to do it at home because my mom said that when your work day is done, you’re done with work.
+ - There is no direct evidence, so how could you ask me to believe in God...
+ - I didn’t work very much when they were young, and I had the luxury to be able to do that. Most people can’t.
+ - I don’t like it when reviews aren’t about the movie. When they’re about how much money somebody made, or who they’re sleeping with, or if they got the job via some connection, or about how Fox is putting X amount of dollars into it.
+ - As time goes on, I will play characters who get older: I don’t want to be some Botoxed weirdo.
+ - I didn’t grow up really wanting to be an actor. I don’t remember ever not being an actor.
+ - Look, it’s terrible, I know, but weakness really, really bugs me, to the point that if there is a wounded bird on the sidewalk, I look at it and I go: I think I’ll just kick it.
+ - You guys might be surprised but I am not Honey Boo Boo Child.
+ - Cruelty might be very human, and it might be cultural, but it’s not acceptable.
+ - I have, in some ways, saved characters that have been marginalized by society by playing them – and having them still have dignity and still survive, still get through it.
+ - Caitriona Balfe, who is Irish, is also in my movie. I asked her to play her Irish accent in the movie, but her own brogue is so faint that I had to keep pumping it up.
+ - As I’ve said before, and I still hold to, I truly am the most boring person alive. And if there was a great investigation to be found at the end of the resume, it would be, the most boring person alive.
+ - I saw leaving college as an opportunity to do something different with my life. I always thought that becoming an academic was going to be my path.
+ - I don’t need to be Tom Cruise. I just need to work forever.
+ - I love the way L A. leaves you alone. I can go home, read all day, and nobody bugs me.
+ - My mom was always late. It drove me crazy as a child. So I’m always on time – or early.
+ - I was never the ingenue or the pretty girlfriend of Tom Cruise in a movie. I didn’t have that career, so I don’t have to compete on that level.
+ - Just to set the record straight, a salary for a given on-screen performance does not include the right to invade anyone’s privacy, to destroy someone’s sense of self.
+ - I made, like, five movies while I was in college. I think they just weren’t memorable movies. I’ve taken breaks as the years have gone on – I burn out every once in a while.
+ - Let how you live your life stand for something, no matter how small and incidental it may seem.
+ - I’ve got that Irish thing going on. Lots of Irish in my background.
+ - I’d like to be Dakota Fanning when I get young.
+ - I cannot believe in God when there is no scientific evidence for the existence of a supreme being and creator.
+ - I’m not interested in being perfect when im older. Im interested in having a narrative. It’s the narrative that’s really the most beautiful thing about women.
+ - Love and respect are the most important aspects of parenting, and of all relationships.
+ - I did a couple of plays in junior high school, maybe high school, and then I did a play in college.
+ - I don’t know why people think child actresses in particular are screwed up. I see kids everywhere who are totally bored. I’ve never been bored a day in my life.
+ - Being understood is not the most essential thing in life.
+ - What I didn’t realize is how completely consumed I would be by my sons. I didn’t know that the rest of my life would become so little a priority.
+ - People are always surprised when I say that I’m an atheist.
+ - I wish people could get over the hang-up of subtitles, although at the same time, you know, that’s kind of why I’m kind of pro dubbing.
+ - Any actor working a long time should know how a shot is set up, where to place themselves, how to handle the lines. I’m a member of the crew, like the best boy, the electrician. What I’m good at is making eyes at the camera.
+ - My definition of a friend is somebody who adores you even though they know the things you’re most ashamed of.
+ - I suppose that’s my one little secret, the secret of my success.
+ - So, yes, there’s nothing I love more than listening to directors talk about their movies.
+ - I think anybody over 30 plays parents because it happens in your thirties and so that’s kind of a natural progression. But I’m definitely drawn to it. It’s probably the most intense, passionate thing that happens to you as you get older.
+ - All the movies that I make in some ways have to be the story of my life. There are different chapters in my life.
+ - Now, apparently, Im told that every celebrity is expected to honor the details of their private life with a press conference, a fragrance, and a prime-time reality show.
+ - Sometimes, you really don’t understand why something is important to you until you get halfway through the movie – or maybe even all the way through.
+ - In a weird way, that’s the beauty of being an actor. You get to live out things that you’re afraid of, and you get to say, ‘Well, maybe I can get to the end of it and survive it intact and I can be the hero of my own story.’ It’s kind of a way of exorcising fear.
+ - Being an artist is a way of saying, I am here, and this is what I stand for.
+ - I fantasize about having a manual job where I can come home at night, read a book and not feel responsible for what will happen the next day.
+ - Interestingly, when you do films, sometimes you have conscious reasons, things that you were looking for, or stuff that you were trying to do. And then, you see the film and you think, “Wow, it ended up being something totally different!”
+ - I’ve always had this idea that I wanted movies to make people better not worse.
+ - There are lots of futurists that spend their whole life trying to figure out who we’re going to be in 40, 50, 60, 100 years. That’s the great thing about science fiction.
+ - I was one of those avid moviegoers as a kid, and we didn’t have video, so we went to see everything five times. I went to see every foreign film playing in my town. As times went on, I watched a lot less films. I have a different film school now. My film school now is my life experience.
+ - I already did my coming out about a thousand years ago in the stone age.
+ - When I think about what part of my college experience came back in my work experience, I feel like it was learning how to read deeper, learning how to keep filling the movie up with more and more resonance.
+ - Where I have problems is when I am in the midst of doing something that I am completely focused on, and then I am asked to buy shoes or something.
+ - By the first week of shooting, you know exactly where your film is heading based on the psychology of your director.
+ - I absolutely love religions and the rituals. Even though I don’t believe in God, we celebrate pretty much every religion in our family with the kids.
+ - People say as a woman actor your career is over at 40. But then they told me I would never work again after I was 16.
+ - I had a prodigious life, living in a grown-up world when I was a child. But I think my abilities were about perceptiveness, and they were about examining psychology and examining people and relationships.
+ - I want to change the system from within the system. And that means focusing and specializing.
+ - My earliest memories are doing commercials and TV.
+ - I am the luckiest filmmaker I know.
+ - I love more than anything looking at a movie scene by scene and seeing the intention behind it.
+ - Acting just happens to be my skill, but I think I would probably be just as happy being a technician or entering into the film business in some other way.
+ - I make dark dramas, movies about people living in desperate fear who then overcome that fear and find a heroic side to themselves.
+ - What the digital age has offered us, in terms of connectivity and transparency, is that all of these people from weird places in the world are all talking to each other, at four in the morning, and are sharing ideas. There’s more openness than has ever been known, so that’s a good thing.
+ - The best reason to make a film is that you feel passionately about it.
+ - It’s very important to distinguish between chemical depression that requires medication and talk therapy.
+ - As an actor, I’m attracted to drama; as a director, it’s humor – because it’s the story of my life, and I can’t be that serious about it. Being alone is a big theme in all my movies, both as a director and as an actress.
+ - I’d always need a creative outlet. But sometimes, I do fantasize what my life would be like if I weren’t famous.
+ - I don’t have a burning desire to act, strangely enough. I don’t know that if I hadn’t been an actor as a young person, I don’t know that I ever would have chosen this because it’s not really my personality.
+ - I guess I’ve played a lot of victims, but that’s what a lot of the history of women is about.
+ - I spent a lot of time not in school, so I didn’t have deep relationships with kids my own age.
+ - I don’t find acting and directing schizophrenic in any way. I find it completely easy to move between the two.
+ - We think, “If I have more money, I am more valuable. If I make more money, I am more valuable.” It’s all sort of wound up with this problem that humans have with their failure.
+ - I love European movies and I kind of grew up on European films.
+ - I’m a technician. I don’t go for the get-into-the-role stuff. I read the lines and play the scenes.
+ - I think Anna and the King is a look at Asia from the Asian perspective, reflecting the Asian experience, which is very rare.
+ - Boys are easy. I mean, there are just a lot of bruises when they’re young. With boys, you get a lot of accidental jabs in the eye and stepping on your feet, and those tantrums they cause when they don’t want to leave the toy store.
+ - I was a literature major in college and that was my thing, books.
+ - I also feel like I’ve learned over the years what is not important, and that is also great: to know what is pointless to spend your energy on, to be more specific.
+ - You hold all of our futures in your hands. So you better make it good.
+ - I want to be inspiring to myself, to my kids, my family, and my friends.
+ - I like dramas. I’ve always liked dramas. And I’m a pretty light person. I don’t consider myself a very dramatic person. But I do like doing that onscreen.
+ - There is nothing in this world that I am prouder of than my ability to feel, to survive and, yes, to be a fool for what I love and believe in.
+ - I think an artist’s responsibility is more complex than people realize.
+ - Acting, for me, is exhausting. I’m always more energized by directing. It’s more intense to direct. I can pop in and express myself, then pop out again. It’s a huge passion for me.
+ - I don’t think there is anything good about fame. ‘Tables in restaurants.’ People say that but, then again, why don’t you just call the day before? Or go eat somewhere else?
+ - I wish that I spoke more languages. I speak a couple languages, but not well enough to really dub myself. French is really the only one, and it’s a difficult thing.
+ - I’m interested in directing movies about situations that I’ve lived, so they are almost a personal essay about what I’ve come to believe in.
+ - Part of me longs to do a job where there’s not a gray area.
+ - The movies I made when I was 14 or 15, I have a hard time looking at those. Those were the awkward years. I don’t know if anybody can look at something they did when they were 14 and not wince.
+ - As an actor, I’m always playing solitary characters. But as a director, I’m always making ensemble movies, which focus on lots of people’s lives and how they intertwine.
+ - What do I do to live? What do I do to be vital? The answer is always creativity; the answer is always art.
+ - I like to nap. I do like to sleep. Sometimes I sleep in between takes.
+ - Going back and forth between the press and something like The Crucible must be really crazy and intense.
+ - It’s a skill that people are born with. Either you’re a focuser or you’re a multitasky person. I am a full-focus person.
+ - I look back at my career when I was younger and can connect what I was going through at the time with the characters I was playing. I see the similarities in them reflecting on my life.
+ - Knowing what paint a painter uses or having an understanding of where he was in the history of where he came from doesn’t hurt your appreciation of the painting.
+ - Julia Roberts and Sandra Bullock do romantic comedies. I do dark dramas. I do these movies well.
+ - Casting is a long process for me. I take a lot of time.
+ - I didn’t have any ambition to produce big mainstream popcorn movies.
+ - I’ve only been to Dublin once, and I had a great time. I got completely soaked because it was rainy.
+ - If I make two movies my entire life, and they’re two movies that – whether they make a lot of money or two people go to see them – they speak of me, then I consider them incredibly successful. I don’t need to be Steven Spielberg.
+ - When I go into the stores, I pet the saddles. Until security comes and takes me away.
+ - I prefer to commit 100 per cent to a movie and make fewer films, because it takes over your life.
+ - Well, I certainly was exposed to and learned to appreciate the work of great directors early on. As a kid, my mother used to take me to see really interesting arty films in Los Angeles.
+ - I think there is something to being curious about your choices, but not wanting to kind of pierce the bubble of them, because it takes away from the act of discovering.
+ - I do think it’s true that anytime somebody comes to you and says, “I’d like to be in your film,” it’s never good to dismiss them or make fun of them, because if they’re passionate and driven enough, they very well might find a way to be in your film.
+ - There is no doubt that each of us is born an individual. Why is it then that so many of us die carbon copies?
+ - Otherness is a big thing for me. I’m always drawn to characters that live lives that I couldn’t lead.
+ - But now I really don’t want to work unless I really, really care about a project.
+ - There’s absolutely no sort of acknowledgment or reward for this – except for the intangible of my kids growing up to be wonderful people.
+ - Everybody reads for me. I was never weird about that. I never minded coming in and reading. They should know if I’m the right person, and I should know if I want to do a movie.
+ - But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.
+ - Most actors don’t really have a director’s sensibility. They have an actor’s sensibility.
+ - I’m really not a clothes person. To me, that’s just work. It’s the thing I hate to do the most. I don’t want to be judged in that way.
+ - I don’t know if I see myself as really an action hero, but I like doing physical movies and I like doing movies where the writing is very lean.
+ - Being twenty-something is all about taking it in: eating it, drinking it, and spitting out the seeds later. It’s about being fearless, and stupid, and dangerous, and unfocused, and abandoned. It’s about being in it, not on top of it.
+ - It’s hard to get personal films off the ground, and it’s hard developing them.
+ - I make movies about people in spiritual crisis because it’s a way for me to spend the time, the energy, the focus and the obsession to come to terms with my own spiritual crisis.
+ - Adolescence is a tough one to be a child actor.
+ - I conducted a bunch of interviews for Interview magazine. They actually paid me. I think I was probably 18 or 19. I was in college and I remember feeling, like, “Wow.” I had a real job, and they paid me money, and it was exciting.
+ - It’s a tough trick to be able to create an intelligent movie that has socio-political commentary, and also has the emotional and moving stuff, at the same time.
+ - With ‘Taxi Driver,’ I had this eureka moment. I realized that acting could be much more than what I had been doing. I had to build a character that wasn’t me.
+
+132 quotes

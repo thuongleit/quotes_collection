@@ -1,0 +1,48 @@
+ - I never say ‘never,’ and I never say ‘always.’
+ - Getting angry doesn’t solve anything.
+ - I avoid looking back. I prefer good memories to regrets.
+ - The pearl is the queen of gems and the gem of queens.
+ - I’ve had happy moments in my life, but I don’t think that happiness – being happy – is a perpetual state that anyone can be in. Life isn’t that way.
+ - Women’s natural role is to be a pillar of the family.
+ - Hollywood amuses me. Holier-than-thou for the public and unholier-than-the-devil in reality.
+ - My father had a very simple view of life: you don’t get anything for nothing. Everything has to be earned, through work, persistence and honesty. My father also had a deep charm, the gift of winning our trust. He was the kind of man with whom many people dream of spending an evening.
+ - I love walking in the woods, on the trails, along the beaches. I love being part of nature. I love walking alone. It is therapy. One needs to be alone, to recharge one’s batteries.
+ - When I married Prince Rainier, I married the man and not what he represented or what he was. I fell in love with him without giving a thought to anything else.
+ - I work hard in social work, public relations, and raising the Grimaldi heirs.
+ - If there is one thing that is foreign to me it is shopping for pleasure. On the other hand, I believe that it is right to honor all those who create beautiful things and give satisfaction to those who see me wearing them.
+ - It would be very sad if children had no memories before those of school. What they need most is the love and attention of their mother.
+ - Anger and anger can not solve any problem.
+ - When at last I took the time to look into the heart of a flower, it opened up a whole new world; a world where every country walk would be an adventure, where every garden would become an enchanted one.
+ - A person has to keep something to herself or your life is just a layout in a magazine.
+ - At times I think I actually hate Hollywood. I have many acquaintances there, but few friends...
+ - I was hired to be an actress, not a personality for the press.
+ - Although I’ve played a wide variety of roles, I’ve never had the chance to act in a story written specially for me. It’s a pity as they are the only stories that really let you reveal your personality.
+ - One way in which all of us can help to combat the current wave of public indecency which threatens to undermine Western civilization is to concentrate upon and increase the solidarity of the family. This solidarity begins with a child at the mother’s breast.
+ - For a woman, forty is torture, the end.
+ - My real difficulty was to become a normal person again, after having been a movie actress for so long. For me, at the time I was living in New York and Hollywood, a normal person was someone who made movies.
+ - Before my marriage, I didn’t think about all the obligations that were awaiting me. My experience has proved useful and I think that I have a natural propensity to feel compassion for people and their problems.
+ - This is one night I wish I smoked and drank.
+ - I’ve been accused of being cold, snobbish, distant. Those who know me well know that I’m nothing of the sort. If anything, the opposite is true. But is it too much to ask to want to protect your private life, your inner feelings? Lots of things touch me and I don’t want to be indiscreet.
+ - My nerves could use a drink.
+ - I am basically a feminist. I think that women can do anything they decide to do.
+ - When Ava Gardner get in a taxi, the driver knows at once she’s Ava Gardner. It’s the same for Lana Turner or Elizabeth Taylor, but not for me. I’m never Grace Kelly, I’m always someone who looks like Grace Kelly.
+ - I would like to be remembered as someone who accomplished useful deeds, and who was a kind and loving person. I would like to leave the memory of a human being with a correct attitude and who did her best to help others.
+ - Emancipation of women has made them lose their mystery.
+ - A woman needs ropes and ropes of pearls.
+ - Our life dictates a certain kind of wardrobe.
+ - I don’t like yelling and fighting, and I can’t quarrel.
+ - As an unmarried woman, I was thought to be a danger.
+ - If anybody starts using me as scenery, I’ll return to New York.
+ - I don’t want to be married to someone who feels inferior to my success or because I make more money than he does.
+ - I do isometrics in church so while I’m doing my soul some good, I’m doing my body some good, too.
+ - Mr. Hitchcock taught me everything about cinema. It was thanks to him that I understood that murder scenes should be shot like love scenes and love scenes like murder scenes.
+ - I’ve always treated my children as beings in their own right. I respect their feelings and aspirations entirely.
+ - I hated Hollywood. It’s a town without pity. Only success counts. I know of no other place in the world where so many people suffer from nervous breakdowns, where there are so many alcoholics, neurotics and so much unhappiness.
+ - The freedom of the press works in such a way that there is not much freedom from it.
+ - I’ll be goddamned if I’m going to stay in a business where I have to get up earlier and earlier and it takes longer and longer for me to get in front of a camera.
+ - Other women looked on me as a rival. And it pained me a great deal.
+ - I get up at seven for the make-up, Rita Hayworth at six, Joan Crawford and Bette Davis at five. I don’t want to know the time when I’ll have to come to the studio even earlier.
+ - I loved acting. I didn’t particularly like being a movie star.
+ - I don’t want to dress up a picture with just my face.
+
+46 quotes

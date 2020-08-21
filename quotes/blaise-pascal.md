@@ -1,0 +1,502 @@
+ - Kind words do not cost much. Yet they accomplish much.
+ - All men’s miseries derive from not being able to sit in a quiet room alone.
+ - Not only do we know God by Jesus Christ alone, but we know ourselves only by Jesus Christ. We know life and death only through Jesus Christ. Apart from Jesus Christ, we do not know what is our life, nor our death, nor God, nor ourselves.
+ - There is a God shaped vacuum in the heart of every man which cannot be filled by any created thing, but only by God, the Creator, made known through Jesus.
+ - In faith there is enough light for those who want to believe and enough shadows to blind those who don’t.
+ - Don’t try to add more years to your life. Better add more life to your years.
+ - Truth is so obscure in these times, and falsehood so established, that, unless we love the truth, we cannot know it.
+ - I bring you the gift of these four words: I believe in you.
+ - The heart has its reasons of which reason knows nothing.
+ - Love knows no limit to its endurance, no end to its trust, no fading of its hope; it can outlast anything. Love still stands when all else has fallen.
+ - There is a God-shaped vacuum in every heart.
+ - Clarity of mind means clarity of passion, too; this is why a great and clear mind loves ardently and sees distinctly what it loves.
+ - Faith is a gift of God.
+ - Clarity of mind means clarity of passion, too.
+ - People almost invariably arrive at their beliefs not on the basis of proof but on the basis of what they find attractive.
+ - Jesus is the God whom we can approach without pride and before whom we can humble ourselves without despair.
+ - If you want others to have a good opinion of you, say nothing.
+ - Fire. God of Abraham, God of Isaac, God of Jacob, not of the philosophers and the scholars. I will not forget thy word. Amen.
+ - Belief is a wise wager. Granted that faith cannot be proved, what harm will come to you if you gamble on its truth and it proves false? If you gain, you gain all; if you lose, you lose nothing. Wager, then, without hesitation, that He exists.
+ - Do little things as if they were great, because of the majesty of the Lord Jesus Christ who dwells in thee.
+ - If I believe in God and life after death and you do not, and if there is no God, we both lose when we die. However, if there is a God, you still lose and I gain everything.
+ - I know whom I have believed.
+ - Our nature lies in movement; complete calm is death.
+ - Not only do we know God through Jesus Christ, we only know ourselves through Jesus Christ.
+ - Nature is an infinite sphere of which the center is everywhere and the circumference nowhere.
+ - Justice without force is powerless; force without justice is tyrannical.
+ - In difficult times carry something beautiful in your heart.
+ - There are only two kinds of men: the righteous who think they are sinners and the sinners who think they are righteous.
+ - If I had more time I would write a shorter letter.
+ - Imagination decides everything.
+ - Men never do evil so completely and cheerfully as when they do it from religious conviction.
+ - The supreme function of reason is to show man that some things are beyond reason.
+ - The heart has its reasons, which Reason does not know. We feel it in a thousand things. It is the heart which feels God, and not Reason. This, then, is perfect faith: God felt in the heart.
+ - Man’s greatness lies in his power of thought.
+ - The sole cause of all human misery is the inability of people to sit quietly in their rooms.
+ - The entire ocean is affected by a single pebble.
+ - To understand is to forgive.
+ - People are generally better persuaded by the reasons which they have themselves discovered than by those which have come in to the mind of others.
+ - It’s not those who write the laws that have the greatest impact on society. It’s those who write the songs.
+ - Silence. All human unhappiness comes from not knowing how to stay quietly in a room.
+ - The serene, silent beauty of a holy life is the most powerful influence in the world, next to the night of God.
+ - The eternal silence of these infinite spaces frightens me.
+ - You always admire what you really don’t understand.
+ - Chess is the gymnasium of the mind.
+ - We must learn our limits. We are all something, but none of us are everything.
+ - Our achievements of today are but the sum total of our thoughts of yesterday. You are today where the thoughts of yesterday have brought you and you will be tomorrow where the thoughts of today take you.
+ - Small minds are concerned with the extraordinary, great minds with the ordinary.
+ - The struggle alone pleases us, not the victory.
+ - Distraction is the only thing that consoles us for miseries and yet it is itself the greatest of our miseries.
+ - You’re basically killing each other to see who’s got the better imaginary friend.
+ - Few friendships would survive if each one knew what his friend says of him behind his back.
+ - The more I see of Mankind, the more I prefer my dog.
+ - Fear not, provided you fear; but if you fear not, then fear.
+ - The end point of rationality is to demonstrate the limits of rationality.
+ - Muhammad established a religion by putting his enemies to death; Jesus Christ by commanding his followers to lay down their lives.
+ - If God exists, not seeking God must be the gravest error imaginable. If one decides to sincerely seek for God and doesn’t find God, the lost effort is negligible in comparison to what is at risk in not seeking God in the first place.
+ - If god does not exist, one loses nothing by believing in him anyway, while if he does exist, one stands to lose everything by not believing.
+ - Dull minds are never either intuitive or mathematical.
+ - Man is but a reed, the most feeble thing in nature, but he is a thinking reed.
+ - Since we cannot know all that there is to be known about anything, we ought to know a little about everything.
+ - Lord, help me to do great things as though they were little, since I do them with your power; And little things as though they were great, since I do them in your name!
+ - Thought makes the whole dignity of man; therefore endeavor to think well, that is the only morality.
+ - Nothing is surer than that the people will be weak.
+ - Men are so necessarily mad, that not to be mad would amount to another form of madness.
+ - When we read too fast or too slowly, we understand nothing.
+ - We know the truth, not only be the reason, but also be the heart.
+ - It is the heart which perceives God and not the reason. That is what faith is: God perceived by the heart, not by the reason.
+ - Man’s true nature being lost, everything becomes his nature; as, his true good being lost, everything becomes his good.
+ - Love has no age as it is always renewing itself.
+ - God instituted prayer to communicate to creatures the dignity of causality.
+ - Eloquence is a painting of the thoughts.
+ - Words differently arranged have a different meaning, and meanings differently arranged have different effects.
+ - Do you wish people to think well of you? Don’t speak well of yourself.
+ - By thought I embrace the universe.
+ - Wisdom leads us back to childhood.
+ - The least movement is of importance to all nature. The entire ocean is affected by a pebble.
+ - Our achievements of today are but the sum total of our thoughts of yesterday.
+ - Knowing God without knowing our own wretchedness makes for pride. Knowing our own wretchedness without knowing God makes for despair. Knowing Jesus Christ strikes the balance because he shows us both God and our own wretchedness.
+ - We know the truth not only through our reason but also through our heart. It is through the latter that we know first principles, and reason, which has nothing to do with it, tries in vain to refute them.
+ - If you want to be a real seeker of truth, you need to, at least once in your lifetime, doubt in, as much as it’s possible, in everything.
+ - Man is neither angel nor beast.
+ - Noble deeds that are concealed are most esteemed.
+ - Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+ - We run heedlessly into the abyss after putting something in front of us to stop us from seeing it.
+ - The last thing that we find in making a book is to know what we must put first.
+ - We are not satisfied with real life; we want to live some imaginary life in the eyes of other people and to seem different from what we actually are.
+ - The past and present are only our means; the future is always our end. Thus we never really live, but only hope to live.
+ - Vanity of science. Knowledge of physical science will not console me for ignorance of morality in time of affliction, but knowledge of morality will always console me for ignorance of physical science.
+ - It is much better to know something about everything than to know everything about one thing.
+ - All of our reasoning ends in surrender to feeling.
+ - Man’s sensitivity to the little things and insensitivity to the greatest are the signs of a strange disorder.
+ - Instead of complaining that God had hidden himself, you will give Him thanks for having revealed so much of Himself.
+ - We are only falsehood, duplicity, contradiction; we both conceal and disguise ourselves from ourselves.
+ - All human evil comes from a single cause, man’s inability to sit still in a room.
+ - Man lives between the infinitely large and the infinitely small.
+ - The present is never the mark of our designs. We use both past and present as our means and instruments, but the future only as our object and aim.
+ - Human beings must be known to be loved; but Divine beings must be loved to be known.
+ - For nature is an image of Grace, and visible miracles are images of the invisible.
+ - We must kill them in war, just because they live beyond the river. If they lived on this side, we would be called murderers.
+ - We are usually convinced more easily by reasons we have found ourselves than by those which have occurred to others.
+ - The only shame is to have none.
+ - The multitude which does not reduce itself to unity is confusion.
+ - I rather live as if God exists to find out that He doesn’t than live as if he doesn’t exist to find out He does.
+ - Education produces natural intuitions, and natural intuitions are erased by education.
+ - I would prefer an intelligent hell to a stupid paradise.
+ - At the centre of every human being is a God-shaped vacuum which can only be filled by Jesus Christ.
+ - He that takes truth for his guide, and duty for his end, may safely trust to God’s providence to lead him aright.
+ - All mankind’s troubles are caused by one single thing, which is their inability to sit quietly.
+ - Either God exists or He doesn’t. Either I believe in God or I don’t. Of the four possibilities, only one is to my disadvantage. To avoid that possibility, I believe in God.
+ - A man does not show his greatness by being at one extremity, but rather by touching both at once.
+ - God has given us evidence sufficiently clear to convince those with an open heart and mind...
+ - Justice and power must be brought together, so that whatever is just may be powerful, and whatever is powerful may be just.
+ - We sail within a vast sphere, ever drifting in uncertainty, driven from end to end.
+ - All men naturally hate each other. We have used concupiscence as best we can to make it serve the common good, but this is mere sham and a false image of charity, for essentially it is just hate.
+ - Silence is the greatest persecution; never do the saints keep themselves silent.
+ - When everyone is moving towards depravity, no one seems to be moving, but if someone stops he shows up the others who are rushing on, by acting as a fixed point.
+ - Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves.
+ - Eloquence is a painting of thought; and thus those who, after having painted it, add something more, make a picture instead of a portrait.
+ - Imagination cannot make fools wise, but it makes them happy, as against reason, which only makes its friends wretched: one covers them with glory, the other with shame.
+ - Man finds nothing so intolerable as to be in a state of complete rest, without passions, without occupation, without diversion, without effort. Then he feels his nullity, loneliness, inadequacy, dependence, helplessness, emptiness.
+ - Rivers are roads which move, and which carry us whither we desire to go.
+ - What a strange vanity painting is; it attracts admiration by resembling the original, we do not admire.
+ - Christian piety annihilates the egoism of the heart; worldly politeness veils and represses it.
+ - Contradiction is not a sign of falsity, nor the lack of contradiction a sign of truth.
+ - We never live, but we hope to live; and as we are always arranging to be happy, it must be that we never are so.
+ - Discourses on humility are a source of pride in the vain and of humility in the humble. So those on scepticism cause believers to affirm. Few men speak humbly of humility, chastely of chastity, few doubtingly of scepticism.
+ - Happiness is neither within us only, or without us; it is the union of ourselves with God.
+ - Notwithstanding the sight of all our miseries, which press upon us and take us by the throat, we have an instinct which we cannot repress, and which lifts us up.
+ - Mankind suffers from two excesses: to exclude reason, and to live by nothing but reason.
+ - There are two equally dangerous extremes-to shut reason out, and to let nothing else in.
+ - This is what I see, and what troubles me. I look on all sides, and everywhere I see nothing but obscurity. Nature offers me nothing that is not a matter of doubt and disquiet.
+ - Each man is everything to himself, for with his death everything is dead for him. That is why each of us thinks he is everything to everyone. We must not judge nature by ourselves, but by its own standards.
+ - How comes it that a cripple does not offend us, but a fool does? Because a cripple recognizes that we walk straight, whereas a fool declares that it is we who are silly; if it were not so, we should feel pity and not anger.
+ - No soul of high estate can take pleasure in slander. It betrays a weakness.
+ - Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.
+ - When one does not love too much, one does not love enough.
+ - Some vices only lay hold of us by means of others, and these, like branches, fall on removal of the trunk.
+ - A town, a landscape are when seen from afar a town and a landscape; but as one gets nearer, there are houses, trees, tiles leaves, grasses, ants, legs of ants and so on to infinity. All this is subsumed under the name of landscape.
+ - Kind words do not cost much. They never blister the tongue or lips. They make other people good-natured. They also produce their own image on men’s souls, and a beautiful image it is.
+ - To ridicule philosophy is really to philosophize.
+ - Atheism shows strength of mind, but only to a certain degree.
+ - Nothing gives rest but the sincere search for truth.
+ - Symmetry is what we see at a glance.
+ - Just as all things speak about God to those that know Him, and reveal Him to those that love Him, they also hide Him from all those that neither seek nor know Him.
+ - The heart has arguments with which the logic of mind is not aquainted.
+ - The greatest single distinguishing feature of the omnipotence of God is that our imagination gets lost thinking about it.
+ - Most of man’s trouble comes from his inability to be still.
+ - When we are in love we seem to ourselves quite different from what we were before.
+ - The present letter is a very long one, simply because I had no leisure to make it shorter.
+ - Curiosity is only vanity. We usually only want to know something so that we can talk about it.
+ - Custom is our nature. What are our natural principles but principles of custom?
+ - Piety is different from superstition. To carry piety to the extent of superstition is to destroy it. The heretics reproach us with this superstitious submission. It is doing what they reproach us with.
+ - What can be seen on earth points to neither the total absence nor the obvious presence of divinity, but to the presence of a hidden God. Everything bears this mark.
+ - We should seek the truth without hesitation; and, if we refuse it, we show that we value the esteem of men more than the search for truth.
+ - All mankind’s unhappiness derives from one thing: his inability to know how to remain in repose in one room.
+ - The state of man is inconstancy, ennui, anxiety.
+ - The property of power is to protect.
+ - We can only know God well when we know our own sin. And those who have known God without knowing their wretchedness have not glorified Him but have glorified themselves.
+ - Too much and too little wine. Give him none, he cannot find truth; give him too much, the same.
+ - Something incomprehensible is not for that reason less real.
+ - We have an idea of truth, invincible to all scepticism.
+ - The captain of a ship is not chosen from those of the passengers who comes from the best family.
+ - If we examine our thoughts, we shall find them always occupied with the past and the future.
+ - I should not be a Christian but for the miracles.
+ - The charm of fame is so great that we like every object to which it is attached, even death.
+ - Beauty is a harmonious relation between something in our nature and the quality of the object which delights us.
+ - Faith affirms many things, respecting which the senses are silent, but nothing that they deny. It is superior, but never opposed to their testimony.
+ - Habit is the second nature which destroys the first.
+ - Unable to make what is just strong, we have made what is strong just.
+ - Faith is a sounder guide than reason. Reason can only go so far, but faith has no limits.
+ - We must make good people wish that the Christian faith were true, and then show that it is.
+ - Man is obviously made for thinking. Therein lies all his dignity and his merit; and his whole duty is to think as he ought.
+ - We must keep our thought secret, and judge everything by it, while talking like the people.
+ - Symmetry is what we see at a glance; based on the fact that there is no reason for any difference...
+ - I maintain that, if everyone knew what others said about him, there would not be four friends in the world.
+ - The last act is bloody, however pleasant all the rest of the play is: a little earth is thrown at last upon our head, and that is the end forever.
+ - All the trouble in the world is due to the fact that man cannot sit still in a room.
+ - The best defense against logic is ignorance.
+ - Put the world’s greatest philosopher on a plank that is wider than need be; if there is a precipe below, although his reason may convince him that he is safe, his imagination will prevail.
+ - The strength of a man’s virtue should not be measured by his special exertions, but by his habitual acts.
+ - Orthodoxy on one side of the Pyrenees may be heresy on the other.
+ - Bless yourself with holy water, have Masses said, and so on; by a simple and natural process this will make you believe, and will dull you – will quiet your proudly critical intellect.
+ - We view things not only from different sides, but with different eyes; we have no wish to find them alike.
+ - Law, without force, is impotent.
+ - The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion.
+ - We desire truth, and find within ourselves only uncertainty. We seek happiness, and find only misery and death. We cannot but desire truth and happiness, and are incapable of certainty or happiness.
+ - Seeing too much to deny and too little to be sure, I am in a state to be pitied.
+ - The married should not forget that to speak of love begets love.
+ - Little things console us because little things afflict us.
+ - Perfect clarity would profit the intellect but damage the will.
+ - Justice is as much a matter of fashion as charm is.
+ - Mutual cheating is the foundation of society.
+ - Let us weigh the gain and the loss, in wagering that God is. Consider these alternatives: if you win, you win all, if you lose you lose nothing. Do not hesitate, then, to wager that he is.
+ - Concupiscence and force are the source of all our actions; concupiscence causes voluntary actions, force involuntary ones.
+ - The greatness of man is great in that he knows himself to be wretched. A tree does not know itself to be wretched.
+ - Our soul is cast into a body, where it finds number, time, dimension. Thereupon it reasons, and calls this nature necessity, and can believe nothing else.
+ - Any unity which doesn’t have its origin in the multitudes is tyranny.
+ - Reflect on death as in Jesus Christ, not as without Jesus Christ. Without Jesus Christ it is dreadful, it is alarming, it is the terror of nature. In Jesus Christ it is fair and lovely, it is good and holy, it is the joy of saints.
+ - When we wish to correct with advantage, and to show another that he errs, we must notice from what side he views the matter, for on that side it is usually true.
+ - When we see a natural style, we are astonished and charmed; for we expected to see an author, and we find a person.
+ - All our life passes in this way: we seek rest by struggling against certain obstacles, and once they are overcome, rest proves intolerable because of the boredom it produces.
+ - There is nothing that we can see on earth which does not either show the wretchedness of man or the mercy of God. One either sees the powerlessness of man without God, or the strength of man with God.
+ - One-half of the ills of life come because men are unwilling to sit down quietly for thirty minutes to think through all the possible consequences of their acts.
+ - Those who do not hate their own selfishness and regard themselves as more important than the rest of the world are blind because the truth lies elsewhere.
+ - If ignorance were bliss, he’d be a blister.
+ - Flies are so mighty that they win battles, paralyse our minds, eat up our bodies.
+ - May God never abandon me.
+ - Curiosity is only vanity. Most frequently we wish not to know, but to talk. We would not take a sea voyage for the sole pleasure of seeing without hope of ever telling.
+ - In each action we must look beyond the action at our past, present, and future state, and at others whom it affects, and see the relations of all those things. And then we shall be very cautious.
+ - If our condition were truly happy, we would not seek diversion from it in order to make ourselves happy.
+ - It is not from space that I must seek my dignity, but from the government of my thought. I shall have no more if I possess worlds. By space the universe encompasses and swallows me up like an atom; by thought I comprehend the world.
+ - We are fools to depend upon the society of our fellow-men. Wretched as we are, powerless as we are, they will not aid us; we shall die alone.
+ - Human life is thus only an endless illusion. Men deceive and flatter each other. No one speaks of us in our presence as he does when we are gone. Society is based on mutual hypocrisy.
+ - To go beyond the bounds of moderation is to outrage humanity. The greatness of the human soul is shown by knowing how to keep within proper bounds. There are two equally dangerous extremes- to shut reason out, and not to let nothing in.
+ - There are two kinds of people one can call reasonable: those who serve God with all their heart because they know him, and those who seek him with all their heart because they do not know him.
+ - The pagans do not know God, and love only the earth. The Jews know the true God, and love only the earth. The Christians know the true God, and do not love the earth.
+ - Lust is the source of all our actions, and humanity.
+ - Habit is a second nature that destroys the first. But what is nature? Why is habit not natural? I am very much afraid that nature itself is only a first habit, just as habit is a second nature.
+ - Chance gives rise to thoughts, and chance removes them; no art can keep or acquire them.
+ - How vain is painting, which is admired for reproducing the likeness of things whose originals are not admired.
+ - Notre nature est dans le mouvement; le repos entier est la mort. Our nature consists in movement; absolute rest is death.
+ - There was once in man a true happiness of which there now remain to him only the mark and empty trace, which he in vain tries to fill from all his surroundings, seeking from things absent the help he does not obtain in things present.
+ - Description of man: dependence, longing for independence, need.
+ - One of the greatest artifices the devil uses to engage men in vice and debauchery, is to fasten names of contempt on certain virtues, and thus fill weak souls with a foolish fear of passing for scrupulous, should they desire to put them in practice.
+ - The gospel to me is simply irresistible.
+ - Jesus was in a garden, not of delight as the first Adam, in which he destroyed himself and the whole human race, but in one of agony, in which he saved himself and the whole human race.
+ - Passion cannot be beautiful without excess; one either loves too much or not enough.
+ - Once your soul has been enlarged by a truth, it can never return to its original size.
+ - Le silence e ternel de ces espaces infinis m’effraie. The eternal silence of these infinite spaces fills me with dread.
+ - Things are always at their best in their beginning.
+ - If you believe in God you are at no disadvantage in this life, and at considerable advantage in the next. If you do not believe, but find in the next that there was a next, you are most unfortunate!
+ - Vanity is so secure in the heart of man that everyone wants to be admired: even I who write this, and you who read this.
+ - Our reason is always disappointed by the inconstancy of appearances.
+ - Custom determines what is agreeable.
+ - Can anything be stupider than that a man has the right to kill me because he lives on the other side of a river and his ruler has a quarrel with mine, though I have not quarrelled with him?
+ - We never love a person, but only qualities.
+ - Apart from Jesus Christ, we do not know what is our life, nor our death, nor God, nor ourselves.
+ - All that tends not to charity is figurative. The sole aim of the Scripture is charity.
+ - What a vast difference there is between knowing God and loving Him.
+ - It is not possible to have reasonable grounds for not believing in miracles.
+ - We see neither justice nor injustice which does not change its nature with change in climate. Three degrees of latitude reverse all jurisprudence; a meridian decides the truth.
+ - To go beyond the bounds of moderation is to outrage humanity.
+ - When intuition and logic agree, you are always right.
+ - Imagination is the deceptive part in man, the mistress of error and falsehood.
+ - Montaigne is wrong in declaring that custom ought to be followed simply because it is custom, and not because it is reasonable or just.
+ - We feel neither extreme heat nor extreme cold; qualities that are in excess are so much at variance with our feelings that they are impalpable: we do not feel them, though we suffer from their effects.
+ - You corrupt religion either in favour of your friends, or against your enemies.
+ - To deny, to believe, and to doubt well are to a man as the race is to a horse.
+ - Without Jesus Christ man must be in vice and misery with Jesus Christ man is free from vice and misery in Him is all our virtue and all our happiness. Apart from Him there is but vice, misery, darkness, death, despair.
+ - The multitude which is not brought to act as a unity, is confusion. That unity which has not its origin in the multitude is tyranny.
+ - Which is the more believable of the two, Moses or China?
+ - All our dignity lies in our thoughts.
+ - Being unable to cure death, wretchedness, and ignorance, men have decided, in order to be happy, not to think about such things.
+ - It is not in Montaigne, but in myself, that I find all that I see in him.
+ - It is a dangerous experiment to call in gratitude as an ally to love. Love is a debt which inclination always pays, obligation never.
+ - Nothing is so important to man as his own state; nothing is so formidable to him as eternity. And thus it is unnatural that thereshould be men indifferent to the loss of their existence and to the perils of everlasting suffering.
+ - We implore the mercy of God, not that He may leave us at peace in our vices, but that He may deliver us from them.
+ - Curiosity is nothing more than vanity. More often than not we only seek knowledge to show it off.
+ - Is it courage in a dying man to go, in weakness and in agony, to affront an almighty and eternal God?
+ - Men despise religion. They hate it and are afraid it may be true.
+ - Happiness can be found neither in ourselves nor in external things, but in God and in ourselves as united to him.
+ - We make an idol of truth itself, for truth apart from charity is not God, but his image and an idol that we must not love or worship.
+ - What amazes me the most is to see that everyone is not amazed at his own weakness.
+ - Le silence est la plus grande perse cution: jamais les saints ne se sont tus. Silence is the greatest of all persecutions: no saint was ever silent.
+ - Reason is the slow and torturous method by which those who do not know the truth discover it.
+ - Equality of possessions is no doubt right, but, as men could not make might obey right, they have made right obey might.
+ - Necessity, that great refuge and excuse for human frailty, breaks through all law; and he is not to be accounted in fault whose crime is not the effect of choice, but force.
+ - Justice is what is established; and thus all our established laws will necessarily be regarded as just without examination, since they are established.
+ - Ugly deeds are most estimable when hidden.
+ - Nature has perfections, in order to show that she is the image of God; and defects, to show that she is only his image.
+ - The eternal Being is forever if he is at all.
+ - All I know is that I must soon die, but what I know least is this very death which I cannot escape.
+ - The two principles of truth, reason and senses, are not only both not genuine, but are engaged in mutual deception. The senses deceive reason through false appearances, and the senses are disturbed by passions, which produce false impressions.
+ - The war existing between the senses and reason.
+ - It is incomprehensible that God should exist, and it is incomprehensible that he should not exist.
+ - The finite is annihilated in the presence of the infinite, and becomes a pure nothing. So our spirit before God, so our justice before divine justice.
+ - Quand on voit le style naturel, on est tout e tonne et ravi, car on s’attendait de voir un auteur, et on trouve un homme. When we see a natural style we are quite amazed and delighted, because we expected to see an author and find a man.
+ - No man ever believes with a true and saving faith unless God inclines his heart; and no man when God does incline his heart can refrain from believing.
+ - It is good to be tired and wearied by the futile search after the true good, that we may stretch out our arms to the Redeemer.
+ - It is not shameful for a man to succumb to pain and it is shameful to succumb to pleasure.
+ - Vanity is illustrated in the cause and effect of love, as in the case of Cleopatra.
+ - The weather and my mood have little connection. I have my foggy and my fine days within me; my prosperity or misfortune has little to do with the matter.
+ - How hollow is the heart of man, and how full of excrement!
+ - The manner in which Epictetus, Montaigne, and Salomon de Tultie wrote, is the most usual, the most suggestive, the most remembered, and the oftener quoted; because it is entirely composed of thoughts born from the common talk of life.
+ - If man should commence by studying himself, he would see how impossible it is to go further.
+ - Everything that is written merely to please the author is worthless.
+ - I would have far more fear of being mistaken, and of finding that the Christian religion was true, than of not being mistaken in believing it true.
+ - God only pours out his light into the mind after having subdued the rebellion of the will by an altogether heavenly gentleness which charms and wins it.
+ - It is man’s natural sickness to believe that he possesses the Truth.
+ - It is the conduct of God, who disposes all things kindly, to put religion into the mind by reason, and into the heart by grace.
+ - Few men speak humbly of humility, chastely of chastity, skeptically of skepticism.
+ - If man made himself the first object of study, he would see how incapable he is of going further. How can a part know the whole?
+ - I condemn equally those who choose to praise man, those who choose to condemn him and those who choose to divert themselves, and I can only approve of those who seek with groans.
+ - Unless we love the truth we cannot know it.
+ - Vanity is but the surface.
+ - The Church limits her sacramental services to the faithful. Christ gave Himself upon the cross a ransom for all.
+ - If magistrates had true justice, and if physicians had the true art of healing, they would have no occasion for square caps; the majesty of these sciences would itself be venerable enough.
+ - Earnestness is enthusiasm tempered by reason.
+ - Nothing is as approved as mediocrity, the majority has established it and it fixes it fangs on whatever gets beyond it either way.
+ - The more intelligent a man is, the more originality he discovers in others.
+ - Reason commands us far more imperiously than a master; for in disobeying the one we are unfortunate, and in disobeying the other we are fools.
+ - If a soldier or labourer complain of the hardship of his lot, set him to do nothing.
+ - How vain painting is-we admire the realistic depiction of objects which in their original state we don’t admire at all.
+ - The mind naturally makes progress, and the will naturally clings to objects; so that for want of right objects, it will attach itself to wrong ones.
+ - There are people who lie simply for the sake of lying.
+ - If a man is not made for God, why is he happy only in God?
+ - Justice and truth are too such subtle points that our tools are too blunt to touch them accurately.
+ - Two similar faces, neither of which alone causes laughter, use laughter when they are together, by their resemblance.
+ - Death itself is less painful when it comes upon us unawares than the bare contemplation of it, even when danger is far distant.
+ - Faith is different from proof; the latter is human, the former is a Gift from God.
+ - If men knew themselves, God would heal and pardon them.
+ - It is your own assent to yourself, and the constant voice of your own reason, and not of others, that should make you believe.
+ - Nature has made all her truths independent of one another. Our art makes one dependent on the other. But this is not natural. Each keeps its own place.
+ - Evil is easy, and has infinite forms.
+ - The world is satisfied with words, few care to dive beneath the surface.
+ - All men have happiness as their object: there is no exception. However different the means they employ, they all aim at the same end.
+ - The Christian religion teaches me two points-that there is a God whom men can know, and that their nature is so corrupt that they are unworthy of Him.
+ - The greater intellect one has, the more originality one finds in men. Ordinary persons find no difference between men.
+ - All of our miseries prove our greatness. They are the miseries of a dethroned monarch.
+ - No religion except ours has taught that man is born in sin; none of the philosophical sects has admitted it; none therefore has spoken the truth.
+ - Civil wars are the greatest of evils. They are inevitable, if we wish to reward merit, for all will say that they are meritorious.
+ - Faith embraces many truths which seem to contradict each other.
+ - The exterior must be joined to the interior to obtain anything from God, that is to say, we must kneel, pray with the lips, and soon, in order that proud man, who would not submit himself to God, may be now subject to the creature.
+ - Without the knowledge of our wretchedness, the knowledge of God creates pride. With it, the knowledge of God creates despair. The knowledge of Christ offers a third way, because in him we find both God and our wretchedness.
+ - Not to be mad is another form of madness.
+ - Man’s grandeur is that he knows himself to be miserable.
+ - Custom creates the whole of equity, for the simple reason that it is accepted.
+ - Our own interests are still an exquisite means for dazzling our eyes agreeably.
+ - Let each of us examine his thoughts.
+ - Who dispenses reputation? Who makes us respect and revere persons, works, laws, the great? Who but this faculty of imagination? All the riches of the earth are inadequate without its approval.
+ - That we must love one God only is a thing so evident that it does not require miracles to prove it.
+ - Amusement that is excessive and followed only for its own sake, allures and deceives us.
+ - Kind words produce their images on men’s souls.
+ - We sometimes learn more from the sight of evil than from an example of good; and it is well to accustom ourselves to profit by the evil which is so common, while that which is good is so rare.
+ - All the troubles of life come upon us because we refuse to sit quietly for a while each day in our rooms.
+ - A trifle consoles us, for a trifle distresses us.
+ - Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care.
+ - Man is clearly made to think. It is his whole dignity and his whole merit; and his whole duty is to think as he ought. And the order of thought is to begin with ourselves, and with our Author and our end.
+ - Instinct teaches us to look for happiness outside ourselves.
+ - Even those who write against fame wish for the fame of having written well, and those who read their works desire the fame of having read them.
+ - Force rules the world-not opinion; but it is opinion that makes use of force.
+ - There would be too great darkness, if truth had not visible signs.
+ - Having been unable to strengthen justice, we have justified strength.
+ - I cannot forgive Descartes. In all his philosophy he would have been quite willing to dispense with God. But he had to make Him give a fillip to set the world in motion; beyond this, he has no further need of God.
+ - Nothing is so conformable to reason as to disavow reason.
+ - All the maxims have been written. It only remains to put them into practice.
+ - No one is ignorant that there are two avenues by which opinions are received into the soul, which are its two principal powers: the understanding and the will.
+ - All our reasoning boils down to yielding to sentiment.
+ - Nature confuses the skeptics and reason confutes the dogmatists.
+ - It is not good to be too free. It is not good to have everything one wants.
+ - In proportion as our own mind is enlarged we discover a greater number of men of originality. Commonplace people see no difference between one man and another.
+ - The heart has its order, the mind has its own, which uses principles and demonstrations. The heart has a different one. We do not prove that we ought to be loved by setting out in order the causes of love; that would be absurd.
+ - Christianity is strange. It bids man recognise that he is vile, even abominable, and bids him desire to be like God. Without such a counterpoise, this dignity would make him horribly vain, or this humiliation would make him terribly abject.
+ - That something so obvious as the vanity of the world should be so little recognized that people find it odd and surprising to be told that it is foolish to seek greatness; that is most remarkable.
+ - The knowledge of God is very far from the love of Him.
+ - To doubt is a misfortune, but to seek when in doubt is an indispensable duty. So he who doubts and seeks not is at once unfortunate and unfair.
+ - To find recreation in amusements is not happiness; for this joy springs from alien and extrinsic sources, and is therefore dependent upon and subject to interruption by a thousand accidents, which may minister inevitable affliction.
+ - True eloquence makes light of eloquence. True morality makes light of morality.
+ - Too much pleasure disagrees with us. Too many concords are annoying in music; too many benefits irritate us; we wish to have the wherewithal to overpay our debts.
+ - All is one, all is different. How many natures exist in man? How many vocations? And by what chance does each man ordinarily choose what he has heard praised?
+ - Not the zeal alone of those who seek Him proves God, but the blindness of those who seek Him not.
+ - Those who write against vanity want the glory of having written well, and their readers the glory of reading well, and I who write this have the same desire, as perhaps those who read this have also.
+ - What a difficult thing it is to ask someone’s advice on a matter without coloring his judgment by the way in which we present our problem.
+ - That a religion may be true, it must have knowledge of our nature.
+ - We only consult the ear because the heart is wanting.
+ - A jester, a bad character.
+ - Faith indeed tells what the senses do not tell, but not the contrary of what they see. It is above them and not contrary to them.
+ - If you gain, you gain all. If you lose, you lose nothing. Wager then, without hesitation, that He exists.
+ - Opinion is the queen of the world.
+ - The Fall is an offense to human reason, but once accepted, it makes perfect sense of the human condition.
+ - All evil stems from this-that we do. Know how to handle your solitude.
+ - The only thing which consoles for our miseries is diversion, and yet this is the greatest of our miseries. For it is this which principally hinders us from reflecting upon ourselves and which makes us imperceptibly ruin ourselves.
+ - Jurisdiction is not given for the sake of the judge, but for that of the litigant.
+ - The mind has its arrangement; it proceeds from principles to demonstrations. The heart has a different mode of proceeding.
+ - Fashion is a tyrant from which nothing frees us. We must suit ourselves to its fantastic tastes. But being compelled to live under its foolish laws, the wise man is never the first to follow, nor the last to keep it.
+ - The secrets of nature are concealed; her agency is perpetual, but we do not always discover its effects; time reveals them from age to age; and although she is always the same in herself, she is not always equally well known.
+ - Men seek rest in a struggle against difficulties; and when they have conquered these, rest becomes insufferable.
+ - If we must not act save on a certainty, we ought not to act on religion, for it is not certain. But how many things we do on an uncertainty, sea voyages, battles!
+ - Everyone, without exception, is searching for happiness.
+ - That which makes us go so far for love is that we never think that we might have need of anything besides that which we love.
+ - All the good maxims which are in the world fail when applied to one’s self.
+ - The arithmetical machine produces effects that approach nearer to thought than all the actions of animals. But it does nothing that would enable us to attribute will to it, as to the animals.
+ - Caesar was too old, it seems to me, to go off and amuse himself conquering the world. Such a pastime was all right for Augustus and Alexander; they were young men, not easily held in check, but Caesar ought to have been more mature.
+ - To call a king “Prince” is pleasing, because it diminishes his rank.
+ - E? loquence quipersuade par douceur, non par empire, en tyran, non en roi. Eloquence should persuade gently, not by force or like a tyrant or king.
+ - The imagination enlarges little objects so as to fill our souls with a fantastic estimate; and, with rash insolence, it belittles the great to its own measure, as when talking of God.
+ - We must know where to doubt, where to feel certain, where to submit. He who does not do so, understands not the force of reason.
+ - We do not weary of eating and sleeping every day, for hunger and sleepiness recur. Without that we should weary of them. So, without the hunger for spiritual things, we weary of them. Hunger after righteousness – the eighth beatitude.
+ - We like security: we like the pope to be infallible in matters of faith, and grave doctors to be so in moral questions so that we can feel reassured.
+ - Thinking too little about things or thinking too much both make us obstinate and fanatical.
+ - La vraie e loquence se moque de l’e loquence, la vraie morale se moque de la morale. True eloquence has notime foreloquence, true morality has no time for morality.
+ - However vast a man’s spiritual resources, he is capable of but one great passion.
+ - No animal admires another animal.
+ - One must know oneself. If this does not serve to discover truth, it at least serves as a rule of life and there is nothing better.
+ - Those great efforts of intellect, upon which the mind sometimes touches, are such that it cannot maintain itself there. It only leaps to them, not as upon a throne, forever, but merely for an instant.
+ - The law required what it could not give. Grace gives that which it requires.
+ - We do not worry about being respected in towns through which we pass. But if we are going to remain in one for a certain time, we do worry. How long does this time have to be?
+ - To make a man a saint, it must indeed be by grace; and whoever doubts this does not know what a saint is, or a man.
+ - The majority is the best way, because it is visible, and has strength to make itself obeyed. Yet it is the opinion of the least able.
+ - Amusement allures and deceives us and leads us down imperceptibly in thoughtlessness to the grave.
+ - How shall one who is so weak in his childhood become really strong when he grows older? We only change our fancies.
+ - We never do evil so effectually as when we are led to do it by a false principle of conscience.
+ - Those are weaklings who know the truth and uphold it as long as it suits their purpose, and then abandon it.
+ - What part of us feels pleasure? Is it our hand, our arm, our flesh, or our blood? It must obviously be something immaterial.
+ - Who knows if this other half of life where we think we’re awake is not another sleep a little different from the first.
+ - It has pleased God that divine verities should not enter the heart through the understanding, but the understanding through the heart.
+ - What reason have atheists for saying that we cannot rise again? That what has never been, should be, or that what has been, should be again? Is it more difficult to come into being than to return to it.
+ - Condition de l’homme: inconstance, ennui, inquie tude. Man’s condition. Inconstancy, boredom, anxiety.
+ - If man were happy, he would be the more so, the less he was diverted, like the saints and God.
+ - Men are so completely fools by necessity that he is but a fool in a higher strain of folly who does not confess his foolishness.
+ - Philosophers.-We are full of things which take us out of ourselves.
+ - The weakness of human reason appears more evidently in those who know it not than in those who know it.
+ - Admiration spoils all from infancy.
+ - All this visible world is but an imperceptible point in the ample bosom of nature.
+ - Jesus Christ came to tell men that they have no enemies but themselves.
+ - To find recreation in amusement is not happiness.
+ - If he exalts himself, I humble him. If he humbles himself, I exalt him. And I go on contradicting him Until he understands That he is a monster that passes all understanding.
+ - Mediocrity makes the most of its native possessions.
+ - Discourses on humility are a source of pride in the vain and of humility in the humble.
+ - Things have different qualities, and the soul different inclinations; for nothing is simple which is presented to the soul, and the soul never presents itself simply to any object. Hence it comes that we weep and laugh at the same thing.
+ - Continuous eloquence wearies.
+ - We are troubled only by the fears which we, and not nature, give ourselves.
+ - We are so presumptuous that we should like to be known all over the world, even by people who will only come when we are no more. Such is our vanity that the good opinion of half a dozen of the people around us gives us pleasure and satisfaction.
+ - Now, if the passions had no hold on us, a week and a hundred years would amount to the same.
+ - The consciousness of the falsity of present pleasures, and the ignorance of the vanity of absent pleasures, cause inconstancy.
+ - Voluptuousness, like justice, is blind, but that is the only resemblance between them.
+ - Must we kill to prevent there being any wicked? This is to make both parties wicked instead of one.
+ - Death is easier to bear without thinking of it, than the thought of death without peril.
+ - The last advance of reason is to recognize that it is surpassed by innumerable things; it is feeble if it cannot realize that.
+ - It is right that what is just should be obeyed. It is necessary that what is strongest should be obeyed.
+ - If it is an extraordinary blindness to live without investigating what we are, it is a terrible one to live an evil life, while believing in God.
+ - Truly it is an evil to be full of faults; but it is a still greater evil to be full of them and to be unwilling to recognize them, since that is to add the further fault of a voluntary illusion.
+ - Meanings receive their dignity from words instead of giving it to them.
+ - If we regulate our conduct according to our own convictions, we may safely disregard the praise or censure of others.
+ - All the miseries of mankind come from one thing, not knowing how to remain alone.
+ - The world is ruled by force, not by opinion; but opinion uses force.
+ - Religion is so great a thing that it is right that those who will not take the trouble to seek it if it be obscure, should be deprived of it.
+ - I can readily conceive of a man without hands or feet; and I could conceive of him without a head, if experience had not taught me that by this he thinks, Thought then, is the essence of man, and without this we cannot conceive of him.
+ - I take it as a matter not to be disputed, that if all knew what each said of the other, there would not be four friends in the world. This seems proved by the quarrels and disputes caused by the disclosures which are occasionally made.
+ - When a man who accepts the Christian doctrine lives unworthily of it, it is much clearer to say he is a bad Christian than to say he is not a Christian.
+ - It is superstitious to put one’s hopes in formalities, but arrogant to refuse to submit to them.
+ - The truth about nature we discover with our brains. The truth about religion we discover with our hearts.
+ - Nothing is more dastardly than to act with bravado toward God.
+ - When some passion or effect is described in a natural style, we find within ourselves the truth of what we hear, without knowing it was there.
+ - Those who are clever in imagination are far more pleased with themselves than prudent men could reasonably be.
+ - Our notion of symmetry is derived form the human face. Hence, we demand symmetry horizontally and in breadth only, not vertically nor in depth.
+ - True eloquence scorns eloquence.
+ - Man governs himself more by impulse than reason.
+ - An advocate who has been well paid in advance will find the cause he is pleading all the more just.
+ - Men blaspheme what they do not know.
+ - Let it not be imagined that the life of a good Christian must be a life of melancholy and gloominess; for he only resigns some pleasures to enjoy others infinitely better.
+ - Quelque e tendue d’esprit que l’on ait, l’on n’est capable que d’une grande passion. However vast a man’s spirit, he is only capable of one great passion.
+ - I cannot judge my work while I am doing it. I have to do as painters do, stand back and view it from a distance, but not too great a distance. How great? Guess.
+ - When we see an effect happen always in the same manner, we infer that it takes place by a natural necessity; as, for instance, that the sun will rise to morrow; but nature often deceives us, and will not submit to its own rules.
+ - Our natures lie in motion, without which we die.
+ - A little thing comforts us because a little thing afflicts us.
+ - It is not only old and early impressions that deceive us; the charms of novelty have the same power.
+ - Man is so made that by continually telling him he is a fool he believes it, and by continually telling it to himself he makes himself believe it. For man holds an inward talk with himself, which it pays him to regulate.
+ - Anyone who found the secret of rejoicing when things go well without being annoyed when they go badly would have found the point.
+ - Losses are comparative; imagination only makes them of any moment.
+ - I can well conceive a man without hands, feet, head. But I cannot conceive man without thought; he would be a stone or a brute.
+ - The whole title by which you possess your property, is not a title of nature but of a human institution.
+ - There should be in eloquence that which is pleasing and that which is real; but that which is pleasing should itself be real.
+ - We are never in search of things, but always in search of the search.
+ - We have so exalted a notion of the human soul that we cannot bear to be despised, or even not to be esteemed by it. Man, in fact, places all his happiness in this esteem.
+ - I can approve of those only who seek in tears for happiness.
+ - Continuous eloquence wearies. Grandeur must be abandoned to be appreciated. Continuity in everything is unpleasant. Cold is agreeable, that we may get warm.
+ - The last function of reason is to recognize that there are an infinity of things which surpass it.
+ - It is an appalling thing to feel all one possesses drain away.
+ - Those honor nature well, who teach that she can speak on everything.
+ - Law was once introduced without reason, and has become reasonable.
+ - The statements of atheists ought to be perfectly clear of doubt. Now it is not perfectly clear that the soul is material.
+ - He who cannot believe is cursed, for he reveals by his unbelief that God has not chosen to give him grace.
+ - Man is so made that if he is told often enough that he is a fool he believes it.
+ - Look somewhere else for someone who can follow you in your researches about numbers. For my part, I confess that they are far beyond me, and I am competent only to admire them.
+ - Those who make antitheses by forcing the sense are like men who make false windows for the sake of symmetry. Their rule is not to speak justly, but to make accurate figures.
+ - It is not certain that everything is uncertain.
+ - The great mass of people judge well of things, for they are in natural ignorance, which is man’s true state.
+ - Those we call the ancients were really new in everything.
+ - Eloquence; it requires the pleasant and the real; but the pleasant must itself be drawn from the true.
+ - We like to be deceived.
+ - There are vices which have no hold upon us, but in connection with others; and which, when you cut down the trunk, fall like the branches.
+ - The stream is always purer at its source.
+ - There are plenty of maxims in the world; all that remains is to apply them.
+ - Extremes are for us as if they were not, and as if we were not in regard to them; they escape from us, or we from them.
+ - Nothing fortifies scepticism more than the fact that there are some who are not sceptics; if all were so, they would be wrong.
+ - Nature, which alone is good, is wholly familiar and common.
+ - All err the more dangerously because each follows a truth. Their mistake lies not in following a falsehood but in not following another truth.
+ - It is natural for the mind to believe and for the will to love; so that, for want of true objects, they must attach themselves to false.
+ - He who does not know his way to the sea should take a river for his guide.
+ - Great and small suffer the same mishaps.
+ - We conceal it from ourselves in vain – we must always love something. In those matters seemingly removed from love, the feeling is secretly to be found, and man cannot possibly live for a moment without it.
+ - The origins of disputes between philosophers is, that one class of them have undertaken to raise man by displaying his greatness, and the other to debase him by showing his miseries.
+ - It is the contest that delights us, and not the victory.
+ - It is not our task to secure the triumph of truth, but merely to fight on its behalf.
+ - If there were only one religion, God would indeed be manifest.
+ - There is no arena in which vanity displays itself under such a variety of forms as in conversation.
+ - It is not permitted to the most equitable of men to be a judge in his own cause.
+ - There are some who speak well and write badly. For the place and the audience warm them, and draw from their minds more than they think of without that warmth.
+ - And is it not obvious that, just as it is a crime to disturb the peace when truth reigns, it is also a crime to remain at peace when the truth is being destroyed?
+
+500 quotes

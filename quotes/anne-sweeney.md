@@ -1,0 +1,28 @@
+ - Define success on your own terms, achieve it by your own rules, and build a life you’re proud to live.
+ - The greatest gifts you can give your team: clarity, communication, and pulling people together around a shared mission.
+ - A good leader should focus on making sure everyone is being given the tools to do their job, not just expecting – poof! – that they’re going to produce great work.
+ - Before you can make a difference, you have to believe you can.
+ - It’s amazing what you can do when you stop worrying about failing.
+ - It’s not the balanced life we remember, it’s the beautiful life.
+ - I see a lot of women of every age trying to be something else. I see them trying to imitate behaviors that they think belong to successful people.
+ - I’m naturally curious, and I’ve always been driven by my curiosity. Curiosity gets people excited. Curiosity leads to new ideas, new jobs, new industries.
+ - Take the job or the project that scares you a little. It’s the one with the most to teach you.
+ - I really moved through my career based on curiosity about something. I never looked at a title and said, ‘I want that.’
+ - I never looked at a title and said, I want that.
+ - If you want to see the future, watch 8 year olds.
+ - Surround yourself with the best people and then get out of their way. Give them a chance to exceed your expectations and they usually will.
+ - Art has been good for my soul. And it’s been good for my brain. I think I’m a better painter now than I was a musician growing up. You struggle to see things and translate an image through your hands to a canvas.
+ - My theme song is always: ‘Pay attention to your viewer. Follow them.’
+ - I look at power as the ability to get people motivated and to get them to do things that maybe they don’t think are important but, in the end, are in pursuit of something greater than themselves.
+ - Piracy is a huge, huge issue for all of these major content companies, and everybody has a different way of addressing it.
+ - I think the must-have power qualities for a female or male power leader are really the ability to focus, to work hard, to be extremely goal oriented and to not let the noise and the nonsense interfere with your mission – what you really feel you want to do with your career and your life.
+ - Our future is only limited by our commitment to keep the momentum going. Now that television has been set free from all constraints – including time, place, and all previous definitions – what comes next?
+ - While I was in college, I became a page at ABC. Suddenly I was working for Good Morning America, local news, national news. The page is the lowest rung of the ladder, and it’s the also the place where you can ask any question and not feel dumb.
+ - I remember when cable happened and everyone said broadcast was dead, and then satellite happened and everyone said cable was dead, and then DVDs happened and everyone said everything was over. Nothing was over. I’m very optimistic about the future.
+ - The value of the television network is partly tradition, serving as a navigation device and as a brand. Research shows that people do know and understand ABC as a brand, like Disney.
+ - The more opportunities people have to experience television on different platforms, the more television they consume overall. So there actually has been a benefit, but the ratings have gone down. But we’ve seen kind of the horizontal benefit of this. And it remains a great, great promotion engine.
+ - The more personalized television gets, the less passive the experience will become.
+ - I am so very honored to be the recipient of MIPCOM’s 2011 Personality of the Year. However, the accomplishments that have led to this honor are not mine alone. They are the result of the tireless efforts of so very many talented colleagues.
+ - Television has always been something you watch; now, increasingly, it is also something you do.
+
+26 quotes

@@ -1,0 +1,255 @@
+ - A well-read woman is a dangerous creature.
+ - You are your own worst enemy. If you can learn to stop expecting impossible perfection, in yourself and others, you may find the happiness that has always eluded you.
+ - It was finally becoming clear to her that love wasn’t about finding someone perfect to marry. Love was about seeing through to the truth of a person, and accepting all their shades of light and dark. Love was an ability.
+ - If you pretend everything’s fine long enough, everything eventually becomes fine.
+ - A long time ago I learned not to explain things to people. It misleads them into thinking they’re entitled to know everything I do. -Sara.
+ - I want to fill every part of you, breathe the air from your lungs and leave my handprints on your soul. I want to give you more pleasure than you can bear.
+ - A couple of times in your life, it happens like that. You meet a stranger, and all you know is that you need to know everything about him.
+ - Be careful dear that you don’t end up as the queen of a lonely kingdom.
+ - Sometimes life has a cruel sense of humor, giving you the thing you always wanted at the worst time possible.
+ - I’m not here now. This isn’t happening. You’re just visiting a dream of mine.
+ - I like pessimists. They’re always the ones who bring life jackets for the boat.
+ - I rarely dislike people for things they can’t change, they usually give me sufficient cause to dislike them for other reasons.
+ - He looked like a fallen angel, replete with all the dangerous male beauty that Lucifer could devise.
+ - Sometimes you meet a really nice guy, but no matter how you try, you can’t seem to make yourself want him. But that’s not nearly as bad as when you meet the wrong guy, and you can’t make yourself not want him.
+ - If loneliness was a choice, what was the other option? To settle for second-best and try to be happy with that? And was that fair to the person you settled for?
+ - I wish you were a mind-reader. I want you to know everything but I don’t want to have to tell you. Because there are some things I don’t want to say out loud.
+ - It’s the perfect solution. We argue all the time. We can’t stand each other. It’s like we’re already married.
+ - Rest against my heart. Let me watch over your dreams. And know that tomorrow morning, and every morning after that, you’ll awaken next to someone who loves you.
+ - The way I was brought up ‘he needed killing’ is an airtight alibi.
+ - Mysteries of attraction could not always be explained through logic. Sometimes the fractures in two separate souls became the very hinges that held them together.
+ - Women. You’ll interpret anything as love. You see a man wearing an idiotic expression, and you assume he’s been struck by Cupid’s arrow when in reality, he’s digesting a bad turnip.
+ - Thunderstorms and rainbows wrapped together in a convenient pocket-sized parcel.
+ - Win told me that one isn’t improved by being at the top of the mountain, one is improved by the climb.
+ - If I never have anything from him except this one moment I am going to take it. Take it now, or drown in regret later.
+ - You’re so full of it, darlin’.
+ - This is how we court girls in America. We grab them and kiss them. And if they don’t like it, we do it again, harder and longer, until they surrender. It saves us hours of witty repartee.
+ - Why is life so difficult for some people and not for others? Why do some people have to struggle so much?
+ - I’d do almost anything for you. I think I’d kill for you. But I’m not going to comfort you while you cry in my arms over another man. – Gage Travis.
+ - Many times in life I’ve regretted the things I’ve said without thinking. But I’ve never regretted the things I said nearly as much as the words I left unspoken.
+ - I want you any way I can get you. Not because you’re beautiful or clever or kind or adorable, although devil knows you’re all those things. I want you because there’s no one else like you, and I don’t ever want to start a day without seeing you.
+ - Hell was not a pit of fire and brimstone. Hell was waking up alone, the sheets wet with your tears and your seed, knowing the woman you had dreamed of would never come back to you.
+ - A sixty – eight, he wants you to go down on him but he won’t return the favor. It would be sixty-nine but he owes you one.
+ - I love you, Marks. My heart is completely and utterly yours. And unfortunately for you, the rest of me comes with it.
+ - She smiled at him, though her hazel-green eyes were wary beneath the brim of a sodden hat. Right at that moment, staring at her across the hall, Gideon Shaw, cynic, hedonist, drunkard, libertine, fell hopelessly in love.
+ - He liked cheap women, fast cars, late nights, and hard liquor, especially all together. In Jack’s view, you are obliged to sin on Saturday night so you’d have something to atone for Sunday morning. Otherwise, you’d be putting the preacher out of business.
+ - Sometimes a woman needs a man for company, no matter how useless he is.
+ - Weddings are never about the bride and groom, weddings are public platforms for dysfunctional families.
+ - I didn’t expect it was going to be easy. But hard work is a lot easier to tolerate when it’s something you want to do instead of something you have no choice about.
+ - Make your choice and accept the consequences.
+ - In this life and the next, you’re my only hope at happiness.
+ - As it turned out, Welcome was where I lost everything, and gained everything. Welcome was the place where my life was guided from one track to another, ending me to places I’d never thought of going.
+ - I grasp reality, but sometimes I like to choke it into submission.
+ - Opening up to the wrong person is like putting ammo in their hands.
+ - It was a train wreck happening right in front of me and I couldn’t do anything about it, except that not only was I watching, I was also the train.
+ - A man’s vanity is more fragile that you might think. It’s easy for us to mistake shyness for coldness, and silence for indifference.
+ - No miles of level desert, no jagged mountain heights, no sea of endless blue Neither words nor tears, nor silent fears will keep me from coming back to you.
+ - Fencing isn’t really fighting. It’s more like chess with the risk of puncture wounds.
+ - You have to rely on whatever sparks you have inside.
+ - When you love a child, you forgive her before she can even ask. Basically you’ve already forgiven her for things she hasn’t even done yet.
+ - In the fairy tale you mentioned last night, I would probably be the villain. But it’s possible the villain would treat you far better than the prince would have.
+ - Damn it. I don’t know how to be a husband, or father. But since your standards in both areas seem to be relatively low, I may have half a chance at pleasing you.
+ - The problem with chasing after happiness was that it wasn’t a destination you could reach. It was something that happened along the way.
+ - There are some experiences in life they haven’t invented the right words for.
+ - Whereas I will be with a wicked, handsome Rom who will keep me warm all night.
+ - I’ve always thought it was about finding the right person. But it’s about choosing the right person, isn’t it?
+ - It’s fairly easy to break hearts, Miss Duvall. The more interesting challenge is how to keep someone’s love, not to lose it.
+ - He wasn’t mine anywhere except in my heart.
+ - I’d rather be insane with you than sane without you. – Jake to Lydia.
+ - Haven, don’t ask me to define the boundaries of normal. You know how I was raised. My father once struck strands of his own pubic hair onto a painting and sold it for a million dollars.
+ - One should make the best choice possible given the circumstances, and then avoid second-guessing for the sake of one’s own sanity.
+ - Sometimes when we’re not paying attention, relation-ships happen. There is no rule that requires two people in love to be exactly alike.
+ - You can never be truly happy in a life unless you have known a sorrow. All terrible things we have gone through in life have created spaces inside us where happiness can live Not to mention love.
+ - I don’t share my body heat indiscriminately.
+ - Fate is the malevolent little jester sitting up in the heavens and pondering over how ridiculous we humans are and he does his best to make fools out of all of us. And sooner or later he succeeds.
+ - For God’s sake, Marks, do you think anyone really wants a glance at those dried-up matchsticks you call legs?
+ - It would only lead to disappointment, even heartbreak, and her heart was too precious for me to let that happen.
+ - I understood finally that the thing I should have feared most was not loss, but never loving. The price for safety was the regret I felt at this moment. And yet I would have to live with it for the rest of my life.
+ - Love is always a leap into the unknown. You can try to control as many variables, and understand a situation as you can, but youre still jumping off a cliff and hoping that someone catches you.
+ - One could pick apart love, examine every filament of attraction, and still it would never be fully explained. It simply was.
+ - She had discovered that the best remedy for heartache was trying to make herself useful to others.
+ - His quiet certainty made the ground beneath my feet feel solid. Like someday everything might actually be okay.
+ - Ah, there’s the governess voice. All stern and disapproving. It makes me feel like a naughty schoolboy.
+ - She was a beautiful woman, if not a happy one, and attracting a man was never a problem. Keeping one, however, was a different matter.
+ - But the absence of tears wasn’t the same as an absence of feeling.
+ - The way glass can be molded or blown or cut into any kind of shape made me think about how we as people – our characters or souls – can be shaped or changed by outside influences.
+ - I’ve won his heart, but it’s like owning a house in which most of the doors are permanently locked. He wants to shield me from all unpleasantness. And it’s not really marriage – not like the marriage you have with Cam – until he’s willing to share the worst of himself as well as the best of himself.
+ - But it was too late now. A lifetime too late. A million wishes too late.
+ - I carry thoughts of you like my own personal constellation. How far away you are, my dearest friend, but no farther than those fixed stars in my soul.
+ - Most of the time when couples argue, it’s not really about the thing they’re fighting about; there’s a deeper reason why they’re arguing.
+ - I realized I wasn’t going to find a man until I was willing to expose myself to possible harm, to assume the risks of rejection and betrayal and heartbreak that came along with caring about someone. Someday, I promised myself, I would be ready for that kind of risk.
+ - The only thing keeping two people together should be love. Not legalities.
+ - He stared at me with bitter understanding. We both knew there was no room in this for friendship. Nothing left but childhood history.
+ - I’m a big believer in putting things off, In fact, I even put off procrastinating. -Ella Varner.
+ - Sometimes a simple question could have a complicated answer.
+ - Tell me everything, I would say. All about the blues, and the time your heart was broken, and what scares you the most, and the thing you’ve always wanted to do but haven ’t yet.
+ - Some people there’s no getting over.
+ - I think the busiest people are often the loneliest.
+ - I stand by my opinions when I know I’m right, Captain Phelan. Whereas you stand by yours merely because you’re stubborn.
+ - I’ve never been convinced that everything in a relationship needs to be talked about. Some things can’t be fixed by a conversation.
+ - The earl shook his head, exhibiting a degree of frosty offense that could only be achieved by an aristocrat whose wishes had just been gainsaid. “I’ve never heard of a man being so eager to confess to the parent of a girl he’s just ruined,” he said sourly.
+ - Now the line was drawn. Lucy had never thought that one of the fiercest battles of her life would be fought over a breakfast table, with quiet words carefully chosen.
+ - Because one day of something wonderful is better than a forever of nothing special.
+ - Bitterly I wondered if Hardy was going to overshadow every relationship for the rest of my life, haunting me like a ghost. I didn’t know how to let him go. I’d never even had him.
+ - There is no peace in poverty.
+ - No marriage stays in the same pattern forever. It is both the best feature of marriage and the worst, that it inevitably changes.
+ - Dating is like trying to make a meal out of leftovers. Some leftovers actually get better when they’ve had a little time to mature. But others should be thrown out right away, No matter how you try to warm them up, they’re never as good as when they were new.
+ - If only I could visit you as a foreigner goes into a new country, learn the language of you, wander past all borders into every private and secret place, I would stay forever. I would become a citizen of you.
+ - Safe men are for marrying. Dangerous men are for pleasure.
+ - I think at this point, safety isn’t a feeling, it’s a process. Starting with trust.
+ - You shouldn’t rule out second chances. Sometimes they come with interesting bonus features.
+ - The question, love, is whether you want me enough to take the risk.
+ - But I hadn’t known what love was. And I wondered how you could ever be sure, when you thought you loved someone, if you really did.
+ - I’m one of those people who was meant to have a very ordinary life. I have no special talent, no great beauty, nothing that distinguishes me from a hundred, thousand other girls. But I can’t go through an entire lifetime without at least one night of magic.
+ - Here’s your hat, and by the way, I’m a virgin.
+ - Set the world afire. Just let me hand you the matches.
+ - Why was love so easy for some people and so hard for others?
+ - There’s only one thing a bully respected: bigger bully.
+ - Kev wasn’t certain if he was surrendering to Win or to his own passion for her. Only that there was no more holding back. He would take her. And he would give her everything he had, every part of his soul, even the broken pieces.
+ - And I wonder how Gage knew this is what my soul has craved. He turns me to face him, his eyes searching. It occurs to me that no one in my life has ever concerned himself so thoroughly with my happiness.
+ - It was often in small moments that significant things were revealed.
+ - I’m not that complicated, Haven. The truth is, I’ve wanted you ever since I met you in that damned wine cellar. Because I got a bigger charge out of that five minutes than I have with any woman before or since...
+ - Only you could love such a vile, selfish peacock, Evie.
+ - I feel like I’ve been shut in a closet, and he’s on the other side, and he doesn’t have the key to unlock the door.
+ - My parents never said it. They thought you shouldn’t wear out the words.
+ - You could run to the farthest corners of the earth. There’s no place you could go where I wouldn’t love you. Nothing you could do to stop me.
+ - Please come to me, Cat, because there’s no surviving you. You don’t have to love me back. You don’t have to be mine. Just let me be yours.
+ - I’ll tell you what I’m fighting for. Not for England, nor her allies, nor any patriotic cause. It’s all come down to the hope of being with you...
+ - But sometimes normal just isn’t happening. Sometimes crazy feels too good to resist.
+ - He was my confidant, the person who was always on my side even when he wasn’t taking my side.
+ - The smarter you are, the more reasons you have to be miserable.
+ - The feelings cut too deep for them to be put on display.
+ - The span of three or four minutes is pretty insignificant in the scheme of things. People lose hundreds of minutes everyday, squandering them on trivial things. But sometimes in those fragments of time, something can happen you’ll remember the rest of your life.
+ - I didn’t think there was any way to convince Jack that he wanted more than I had to give, that to people who’d been damaged the way I had been, fear and the will to survive would always be more powerful than attachment. I could only love in a limited way.
+ - If you have to tell someone they call the shots, they’re not really calling the shots.
+ - And then another letter had come from Christopher, so devastating that Amelia wondered how mere scratches of ink on paper could rip someone’s soul to shreds. She had wondered how she could feel so much pain and still survive.
+ - Hunt looked like a man who had visited many woman’s beds and knew exactly what to do in them.
+ - Before I write the first page of a novel, I spend a long time creating detailed backgrounds for my characters. I imagine the experiences that have formed them, what makes them happy, angry, fearful, and what they yearn for.
+ - Everyone striving to be witty and sought-after, everyone talking and no one listening...
+ - Girlfriend, if you’re waiting for a fairy godmother to show up with a dress and a ride, you’re not going to make it to the party.
+ - Seduction is merely encouraging a man to do something he already wants to do.
+ - He’s a fascinating gentleman. Old-school. I tried to talk him into attending one of my services, but he said he wasn’t finished sinning yet, and he’d let me know when he was.
+ - Because I realized during the past few days that I can’t leave doubt in anyone’s mind about to whom you belong. Especially not yours.
+ - I figured I couldn’t love you as much as I do, without you feeling something for me too.
+ - I want you to admit just once what you feel for me. I want to know if you’ll miss me even a little. If you’ll remember me. If you’re sorry for anything.
+ - The truth is, you can never really know a man until you’ve loaned him money. And you can never know a woman until you’ve slept in her bed.
+ - He had found my worst weakness: I was one of those people who was desperate to be needed, to matter to someone.
+ - Falling hard and fast. And there didn’t seem to be a thing I could do about it.
+ - Nature had squandered an unreasonable quantity of male beauty on this undeserving creature.
+ - The London season is like one of those Drury Lane melodramas in which marriage is always the ending. And no one ever seems to give any thought as to what happens after. But marriage isn’t the end of the story it’s the beginning. And it demands the efforts of both partners to make a success of it.
+ - Separately they had different strengths. Together they were complete.
+ - I had to let go of him. But I knew that as long as I lived, I would feel the phantompain of his absence.
+ - Once he had taken hold, he did not let go. It was not a handshake, it was a possession.
+ - Well, I find a strange comfort in the fact that he wouldn’t feel this degree of animosity now, had he not loved me so much before.
+ - Sometimes the closest-held secrets in the world can be pried out by the right question at the right time.
+ - Both of us were quiet with the recognition that something was ending, and something was beginning.
+ - It’s like your whole life you ’ve been falling toward the earth, until the moment someone catches you. And you realise that somehow you ’ve caught her at the same time. And together, instead of falling, you might be able to fly.
+ - It’s difficult for most of us to be completely honest with ourselves – we hate to admit how vulnerable or needful we are.
+ - Sometimes silence was easiest, when the only word left was good-bye.
+ - If my love can hold you, I’ll keep you with me.
+ - Thomas Bowman’s toupee, alas, was never found. He was somewhat mollified by the gift of a very fine hat from Westcliff on Christmas day.
+ - You know what it is you smell on him, Haven? Testosterone. It’s leaking out of his pores.
+ - Some questions change everything.
+ - Cam had once told her that the Rom believed the entire world was their home. As long as you were with your family you were home.
+ - I closed my eyes, thinking, Let me love you, Hardy, just let me.
+ - I figured if I told it to myself often enough, I would start believing it.
+ - I think in a moment of weakness, you might surprise yourself.
+ - Oh, Daisy, it’s revolting the way I want to fawn all over him. I’m afraid I’m going to do something dreadfully silly today. Burst into song or something. For God’s sake, don’t let me.
+ - I’ve lost someone, too. And there were no rules for how to deal with the death of someone you loved. You had to accept that the loss would always stay with you, like a reminder note pinned to the inside of your jacket. But there were still opportunities for happiness. Even joy.
+ - Well, it may be humorous to you, but it’s a very serious matter to the squirrels.
+ - I suppose now I’m obliged to wish you happiness in your new life. Although happiness in the absence of indoor plumbing is a debatable concept.
+ - A butterfly symbolized acceptance of each new phase in life. To keep faith as everything around you changed.
+ - I’ve never heard that the sexual act requires any particular intelligence. From what I’ve observed, many stupid people are easily able to produce children.
+ - I didn’t know how to stop wanting him. It wasn’t that I had any hope – I knew I’d never see him again. But that didn’t stop me from comparing every other man to Hardy and finding them all lacking. I had exhausted myself loving him.
+ - Scorpions are quite ruthless, you know. That is why Artemis bid one of them to kill her foe Orion. And as a reward she set the scorpion on up in the sky. I’m not ruthless. I merely do whatever it takes to achive my goals That’s not ruthless?
+ - I wondered how many times in my life I had done something just because I wanted to without weighing the consequences.
+ - Leo knew next to nothing about governesses, save for the drab creatures in novels, who tended to fall in love with the lord of the manor, always with bad results.
+ - I’ve needed someone like you for a long time. Now that I have you, no one is going to take you from me. Logan to Madeline.
+ - Friends are the support bras of life.
+ - She was aware of the movement of his lips as he pressed soundless words in her palm. He released her, and the look he gave her seemed to reveal the depths of his lustful, longing, bitter soul. “Good-bye, Miss Fielding,” he said hoarsely.
+ - I wondered how much of me would be left after tomorrow.
+ - The Travises who had survived were the most purely stubborn people on earth, the kind who relied on their backbones when their wishbones were broken.
+ - I need you for a lot of things, Hardy. A lifetime’s worth of things.
+ - Anyone who had ever read a novel knew that governesses were supposed to be meek and downtrodden.
+ - It was unfair that people who longed for love the most, searched the hardest for it, found it so elusive.
+ - Some folks are happier not being saved.
+ - Pity goes hand in hand with contempt. Don’t ever forget that, Liberty. You can’t take handouts or help from anyone, because that gives people the right to look down on you.
+ - His expression was infused with lust and adoration as he lowered his head to kiss her throat, his tongue venturing into the little spaces between the diamonds and round opals. “Why can’t you see yourself as I see you?” -Jack to Amanda.
+ - Having regrets is the only sign that you’ve done anything interesting with your life.
+ - I had never ironed anything in my life. The proper pressing of a shirt was a mystery of the universe akin to black holes and dark matter.
+ - I had to wait for someone special. Someone who would make my heart feel as if it’s been trampled by elephants, thrown into the amazon, and eaten by piranhas.
+ - Perhaps only those who had loved and lost could appreciate this magic.
+ - She wanted him to stop, but more than that, she wanted him to go on forever.
+ - I don’t have any mottoes. If I did I would forever be contradicting them.
+ - I can’t imagine a sweeter agony, having him so close.
+ - I didn’t mean to send love letters, but that is what they became. On their way to you, my words turned into heartbeats on the page.
+ - A slow smile began on Gideon’s face, and his blue eyes sparkled. With a shake of his head, he put his hand on his chest, as if the sight of her was more than his heart could bear.
+ - For thousands of nights I dreamed of making love to you. No man on earth has ever hated sunrise as I do.
+ - Some are nice and some aren’t. Some are smart, and others are about as bright as a wet match in a dark cave. In other words, pretty normal.
+ - God, it was good. Comforting and stimulating at the same time. Absolute world-class pheromones. I wished I could take his jacket home with me. Not him, just the jacket.
+ - You can’t love someone new without getting over the last one.
+ - Only someone who had experienced such bitter despair would be able to recognize it in another.
+ - I always counsel aspiring novelists that passion is the most important quality for a writer to possess – technique can be taught, but that relentless desire to write has to come from within.
+ - The audience falls in love with a leading man because he’ll never belong to any of them.
+ - I have come to realize you can never be truly happy unless you’ve known some sorrow.
+ - Good God. I don’t believe St. Vincent and the word ‘celibacy’ have ever been mentioned in the same sentence before.
+ - No. But I understand her. Life makes people what they are.
+ - Was this some new level of depravity? Had he developed a spinster fetish?
+ - One can’t help but marvel at the variety of ways that women had devised to make us look like flaming idiots.
+ - Was parenting ever going to get easier? Did you ever reach a point where you could stop worrying?
+ - Sooner or later everyone was driven to love someone they could never have.
+ - She was everything he’d ever wanted, beauty and fire arching against his despoiling hands.
+ - His kisses tapped into deep mines of memory, and the years that had separated us fell away as if they were nothing.
+ - When you’re walking through the darkness, you can’t depend on anything or anyone else to light your way. You have to rely on whatever sparks you’ve got inside you. Or you’re going to get lost.
+ - I had never felt the allure of another human being this strongly, warmth and curiosity mixing to form an unspoken question in the air.
+ - If I listened to your advice, I’d be making your mistakes instead of my own.
+ - I reflected that for all the people you lost touch with or couldn’t hold on to, life occasionally made up for it by giving you the right person at the right time.
+ - Great men don’t nessarily make good husbands.
+ - Baptists don’t spend their time thinking about reality.
+ - I thought I would spend the rest of my life searching for little reminders of you...
+ - Her chances of a decent marriage were about to be dashed-and all because of a ferret.
+ - The feeling of relinquishing responsibility to someone else, letting him take control, was a relief beyond words.
+ - When the pace of our feet matched perfectly, I felt a deep inner pang of satisfaction. I could have gone on walking like that forever, side by side with him. There had been few times in my life I had ever inhabited a moment so fully, with no loneliness lurking at the edges.
+ - Merripen, despite his fear of heights, had often climbed a ladder to wash the second floor window for her. He had wanted her view of the outside world to be clear. He had said the sky should always be blue for her.
+ - Maybe he’s not college-smart, but he’s smart in a way they can’t teach.
+ - I never take advice, good or bad. That would only encourage more of it.
+ - There’s nothing worse than breaking a promise to someone who cares about you.
+ - These impossible women! How they do get around us!
+ - I knew I would replay the scene countless times in the years before me, each time thinking of different things I should have said and done. But all I did was walk away without looking back.
+ - And it occurred to me that friendship was a lot more dependable, not to mention long-lasting, than love.
+ - Neither of us seemed able to be close to anyone. Not even each other. Closeness meant the one you loved the most would cause you the most damage. How did you unlearn that? It was woven deep between every fiber and vessel. You couldn’t cut it out.
+ - I know when something is too important to be decided by logic.
+ - A lifetime with such a woman was not nearly enough.
+ - She had never experienced the pain of unsatisfied desire before. It hurt. It hurt like nothing she’d ever felt, and there seemed to be no remedy.
+ - He was unbelievably hard. Everywhere. He was in control, infinitely stronger, and he wanted me to know it. -Ella.
+ - Marriage would change hardly anything between us, except that we would end our arguments in a much more satisfying way. And of course I would have extensive legal rights over your body, your property, and all your individual freedoms, but I don’t see what’s so alarming about that.
+ - I had learned this lesson so many times before. It was the great inner truth that didn’t require the support of logic. Every time I loved, I lost, and I was diminished. I wondered how much of me would be left after tomorrow.
+ - I have always hated flying. The idea of it is an affront to nature. People are meant to stay on the ground.
+ - I loved him so much, loved his fearlessness, his strength, even the ambition that would someday take him away from me.
+ - I’ve never known anyone more ill equipped for happiness. He wouldn’t know what to do with it.
+ - She heard the trace of fear in his voice. The fear that a small boy must have felt when every woman he loved had disappeared from his life, swept away by a merciless fever. She didn’t know how to reassure him, or how to console his long-ago grief.
+ - I’ve never wanted to be loved. And God Knows no one’s done it yet.
+ - Somehow I knew that no matter what I chose to tell or to keep secret, he would understand.
+ - Daisy had known the novel was silly even as she had read it, but that had not detracted one bit from her enjoyment.
+ - I was a new person in the same world, which was a lot more difficult than being the same person in a new world.
+ - I realized that my kisses with Dane had become a form of punctuation, the quotations or the hasty dash at the end of a conversation.
+ - I have always been an obsessive reader – I remember going back and forth to the local library with stacks of books taller than I was.
+ - My prize, my pleasure and pain, my endless desire. I’ve never know anyone like you.
+ - I grew up being very shy, very much a bookworm, and I remember desperately wondering how to be accepted by the popular kids.
+ - Our gazes met. It seemed an entire conversation took place in that one glance. Each of us saw what we needed to know.
+ - Shock is a merciful condition. It allows you to get through disaster with a necessary distance between you and your feelings.
+ - Because letting someone in close meant they could hurt you. I knew all about that kind of fear. I lived with it.
+ - I’ve never had any objection to appearing depraved or villainous. But I draw the line at looking like a prize idiot.
+ - What did you do with memories, feelings, needs, that didn’t belong anywhere?
+ - You’re far too prickly tempered to be a mistress. You’re far better suited as a wife.
+ - A good conversation always involves a certain amount of complaining. I like to bond over mutual hatreds and petty grievances.
+ - I felt the kind of loneliness that can happen in a roomful of people when everyone but you seems to be in on the good time.
+ - One of the women at the clinic had remarked dryly that Harrow’s personal magnetism not only affected men, women and children but also extended to armoires, assorted chairs and the nearby goldfish in a bowl.
+ - A woman could do that to you – reach that place in your soul where the best and worst of you was kept. And once she was there, she owned that place and never left.
+ - She shook her head as she confessed, “I want it so much, I’m afraid to hope.” “Never be afraid to hope,” Rohan said gently. “It’s the only way to begin.” -Rohan to Win.
+ - I’ve never heard of a man being so eager to confess to the parent of a girl he’s just ruined.
+ - I’m scared of making the biggest mistake of my life. I’m just trying to figure out what the mistake is.
+ - Sometimes I’m not nice for a reason. It’s a way to find out what someone’s made of.
+ - Getting to a higher spiritual level is like increasing your credit score. You get a lot more points for sinning and repenting than if you have no credit history at all.
+
+253 quotes

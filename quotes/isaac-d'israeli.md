@@ -1,0 +1,56 @@
+ - The delights of reading impart the vivacity of youth even to old age.
+ - To bend and prostrate oneself to express sentiments of respect, appears to be a natural motion.
+ - Proverbs were bright shafts in the Greek and Latin quivers...
+ - Miscellanists are the most popular writers among every people; for it is they who form a communication between the learned and the unlearned, and, as it were, throw a bridge between those two great divisions of the public.
+ - A poet is a painter of the soul.
+ - The golden hour of invention must terminate like other hours, and when the man of genius returns to the cares, the duties, the vexations, and the amusements of life, his companions behold him as one of themselves – the creature of habits and infirmities.
+ - There is a society in the deepest solitude.
+ - It is a wretched taste to be gratified with mediocrity when the excellent lies before us.
+ - Candour is the brightest gem of criticism.
+ - Solitude is the nurse of enthusiasm, enthusiasm is the true part of genius.
+ - Time the great destroyer of other men’s happiness, only enlarges the patrimony of literature to its possessor.
+ - The great man who thinks greatly of himself, is not diminishing that greatness in heaping fuel on his fire.
+ - Philosophy becomes poetry, and science imagination, in the enthusiasm of genius.
+ - A circle may be small, yet it may be as mathematically beautiful and perfect as a large one.
+ - Great collections of books are subject to certain accidents besides the damp, the worms, and the rats; one not less common is that of the borrowers, not to say a word of the purloiners.
+ - Literary friendship is a sympathy not of manners, but of feelings.
+ - Education, however indispensable in a cultivated age, produces nothing on the side of genius. When education ends, genius often begins.
+ - It does not at first appear that an astronomer rapt in abstraction, while he gazes on a star, must feel more exquisite delight than a farmer who is conducting his team.
+ - Happy the man when he has not the defects of his qualities.
+ - There is an art of reading, an art of thinking, and an art of writing.
+ - The Self-Educated are marked by stubborn peculiarities.
+ - The art of meditation may be exercised at all hours, and in all places, and men of genius, in their walks, at table, and amidst assemblies, turning the eye of the the mind upwards, can form an artificial solitude; retired amidst a crowd, calm amidst distraction, and wise amidst folly.
+ - Style! style! why, all writers will tell you that it is the very thing which can least of all be changed. A man’s style is nearly as much a part of him as his physiognomy, his figure, the throbbing of this pulse, – in short, as any part of his being is at least subjected to the action of the will.
+ - A great work always leaves us in a state of musing.
+ - But, indeed, we prefer books to pounds; and we love manuscripts better than florins; and we prefer small pamphlets to war horses.
+ - The defects of great men are the consolation of the dunces.
+ - Enthusiasm is that secret and harmonious spirit which hovers over the production of genius, throwing the reader of a book, or the spectator of a statue, into the very ideal presence whence these works have really originated. A great work always leaves us in a state of musing.
+ - Every work of Genius is tinctured by the feelings, and often originates in the events of times.
+ - A nickname a man may chance to wear out; but a system of calumnity, pursued by a faction, may descend even to posterity. This principal has taken full effect on this state favorite.
+ - The poet must be alike polished by an intercourse with the world as with the studies of taste; one to whom labour is negligence, refinement a science, and art a nature.
+ - After all, it is style alone by which posterity will judge of a great work, for an author can have nothing truly his own but his style.
+ - Quotations, like much better things, has its abuses.
+ - The act of contemplation then creates the thing created.
+ - Whenever we would prepare the mind by a forcible appeal, an opening quotation is a symphony preluding on the chords whose tones we are about to harmonize.
+ - Self-love is a principle of action; but among no class of human beings has nature so profusely distributed this principle of life and action as through the whole sensitive family of genius.
+ - If the golden gate of preferment is not usually opened to men of real merit, persons of no worth have entered it in a most extraordinary manner.
+ - Many men of genius must arise before a particular man of genius can appear.
+ - The poet and the painter are only truly great by the mutual influences of their studies, and the jealousy of glory has only produced an idle contest.
+ - Quotation, like much better things, has its abuses. One may quote till one compiles. The ancient lawyers used to quote at the bar till they had stagnated their own cause.
+ - One may quote till one compiles.
+ - A work, however, should be judged by its design and its execution, and not by any preconceived notion of what it ought to be according to the critic, rather than the author.
+ - An excessive indulgence in the pleasures of social life constitutes the great interests of a luxuriant and opulent age.
+ - Fortune has rarely condescended to be the companion of genius.
+ - The ancients, who in these matters were not perhaps such blockheads as some may conceive, considered poetical quotation as one of the requisite ornaments of oratory.
+ - The art of quotation requires more delicacy in the practice than those conceive who can see nothing more in a quotation than an extract.
+ - After the golden age of Latinity, we gradually slide into the silver, and at length precipitately descend into the iron.
+ - It is fortunate that Literature is in no ways injured by the follies of Collectors, since though they preserve the worthless, they necessarily defend the good.
+ - Enthusiasm is that secret and harmonious spirit which hovers over the production of genius.
+ - There is such a thing as literary fashion, and prose and verse have been regulated by the same caprice that cuts our coats and cocks our hats.
+ - To think, and to feel, constitute the two grand divisions of men of genius-the men of reasoning and the men of imagination.
+ - Those who do not read criticism will rarely merit to be criticised.
+ - Centuries have not worm-eaten the solidity of this ancient furniture of the mind.
+ - A learned historian declared to me of a contemporary, that the latter had appropriated his researches; he might, indeed, and he had a right to refer to the same originals; but if his predecessor had opened the sources for him, gratitude is not a silent virtue.
+ - The most noble criticism is that in which the critic is not the antagonist so much as the rival of the author.
+
+54 quotes

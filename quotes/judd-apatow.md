@@ -1,0 +1,104 @@
+ - Don’t be a jerk. Try to love everyone. Give more than you take. And do it despite the fact that you only really like about seven out of 500 people.
+ - Sometimes you need to get away for a few weeks just to figure out who you are again.
+ - Every day I live by only one rule, be a good guy.
+ - You know, I’m a big comedy fan.
+ - No matter how much you love someone, on a bad day, you could say something terrible. All of the little things that you are saving to say, that you’re mad about but never express, sometimes come out, all at once. We all have these terrible moments. That’s just part of being human.
+ - I love Coldplay. I love Steely Dan – Steely Dan’s probably one of my top three bands of all time.
+ - I feel like Superbad and Freaks And Geeks are somewhat timeless. That’s always gratifying, when you feel like 30 years in the future, people will still get it, and it won’t seem creaky. It won’t come across like The Incredible Mr. Limpet.
+ - I’m always begging people like James Brooks and Cameron Crowe to come to screenings, to see what they make of it, and they’re always ridiculously helpful. They also keep me brave enough to commit to what I’m trying to do. They can be great cheerleaders for risk-taking.
+ - Some stories feel like they need more time or less time to tell. To not obsessively have to trim or add that final two or three minutes is very helpful, because you can just organically follow how the story feels.
+ - A lot of times, it’s easy to trim the movie ’cause you just start losing things that you thought would be there just for amusement’s sake that actually are not funny. My favorite part of the process is seeing it with an audience. I do about eight previews to see how things are working.
+ - I’m just trying to be truthful and collaborate with people who have interesting things to say.
+ - I don’t think I’m going to get so mature that I lose touch with the whatever wounded part of myself that feels the need to be funny. I’m already old enough that I realize that’s not going to happen.
+ - I used to scream at everybody at the beginning of my career. I’d get really emotional. I’d project all my issues about my parents and safety onto the executives, so every conversation where they gave a note was life or death and you don’t love me.
+ - I love the Lonely Island. I wish there was more Lonely Island movies.
+ - I don’t really get attached to anything. I’m pretty brutal about cutting stuff. With each successful movie, I’ve discovered anything that’s not connected to the immediate story is going to be cut out of it.
+ - I have to go back to vinyl every once in awhile, even if my kids don’t want to hear it. I’m much more likely to be listening to Wilco or the Avett Brothers.
+ - When the entire country was watching one show there was a major discussion happening; is it possible for that to happen in a 1 million channel universe?
+ - It’s so difficult to shock America these days.
+ - The only thing worse than a crappy TV show which Paddy Chayevsky couldn’t have conceived in his worst nightmare is two megacorps fighting over who thought of the crappy show first.
+ - One of my fears is that I’m suddenly not going to be funny, but still think I am. That’s like my nightmare that I can wake up in a cold sweat from.
+ - I don’t want to be ordinary. I’m willing to do the work. I’m willing to suffer the indignities of comedy because I want to be great. I don’t want to just be good. I want to be great.
+ - You hear people say: “One day, when I’m in a good position I can make my passion project.” I’ve seen a lot of people get into that position and not make it.
+ - I need to find people who I respect so I can respect them, and they’ll like being respected so they’ll respect me, and that’s like a marriage.
+ - There’s something honorable about holding out for love and not breaking up for the sake of the baby. I see people get divorced, and there is a part of me that thinks, I wonder how hard they tried?
+ - Sometimes, something seems dead, and then out of the blue, someone just figures out the way to fix a script and it goes.
+ - The thing that ruined your life makes you good at your work. And then you get rewarded at work, so you don’t bother to fix it in your life.
+ - I think that everything I do tends to root for the underdog.
+ - I hear Amy Schumer on Howard Stern, and I think, “I wish there was a movie that starred her, because she’s so interesting,” and then at some point I go, “I guess I have to get involved, because it’s not happening right now. Maybe I should help try to make that happen.”
+ - A lot of bands that are great disappear a little bit faster than they used to. They don’t get as much support for the long haul. You have to be pretty tough to hang in there.
+ - Nowadays, when kids decide they like an artist, they’ll absorb everything that artist has ever done in a single night.
+ - I’ve come to believe that the simpler the title, the better. Whenever I try to get cute with it, it seems to be a problem but if it’s just The 40-Year-Old Virgin, people seem to know what they’re in for.
+ - There’s nothing more fun than debating and defending your taste in music.
+ - I think there have been so many documentaries about pop stars, made by pop stars. It’s a new phenomenon. People making these movies where they praise themselves and show their own weaknesses. it’s all designed to make you love them even more.
+ - I still feel like a nerd.
+ - Every time I’m in editing, there’s always a moment where you think, “Maybe this should be six or seven minutes shorter, but I’m losing character and story that I think is important.” When I like things, I’m not in a rush for them to end.
+ - For me, until I know that the audience really gets what I’m trying to communicate I’m not done.
+ - It’s funny, now there are so many bands that I can never remember any of their names. Maybe it’s because I’m old.
+ - If you make a bad movie about stand-up, then comedians will mock you for the rest of your life.
+ - I love when people work together who know each other very well. Some of my favourite movies are people who are close friends or families.
+ - Television is much more difficult because at every moment the network can force you to change things based on their belief about what would make it popular. You’re in a constant debate with a gun at your head, and the gun is cancellation. So it’s hard to win the arguments.
+ - When people lose their jobs, they can either get another job or be entrepreneurs. In the music industry, a lot of people have attempted the latter by starting their own labels, but in the age of digital downloads, it’s very difficult to succeed.
+ - There are people that entertainment is something they do at the end of a long hard day at work, and they want to be entertained and have it over quickly. They’re like, “Entertain me fast!”
+ - I’ve had movies bomb with terrible reviews, I’ve had movies make a lot of money with terrible reviews, I’ve had movies get good reviews and make money. And I like it best when the movies do well and the reviewers like them.
+ - The moment you think of a joke is the best moment.
+ - I just try to be true to myself and write about things I’m passionate about. I think what most people don’t like about movies is they can tell that most movies are a product, and they don’t mean that much to the people who make them.
+ - Eventually, the nerds and the geeks will have their day.
+ - Parents don’t realize that when they teach you about the Holocaust too early, it ruins you for life.
+ - I still feel like a weird kid who is about to take a punch in the face. So, I think it’s permanent.
+ - Deer are like dogs. Except for Bambi, they’re pretty personality-less.
+ - When I notice that all the beats sound exactly the same, it starts to wear on me.
+ - I start casting early in the writing process, so I can tailor the script to the gifts of the actors.
+ - I’m making a movie about relationships, and I’m surrounded by guys scared of talking to girls.
+ - I always see other people as predecessors and admire them.
+ - I feel the responsibility to make things which on some level have something positive to say.
+ - As a kid, I was obsessed with the Who. They were the most important band to me. Songs like “I’m One” helped me get through high school.
+ - I wanted to see how funny I could be without making the choice that every 10 minutes something big and visual had to happen.
+ - I think a lot of Hollywood is in retreat right now trying to figure out how to make money and make the safest bets.
+ - I definitely learned to embrace the quiet moments onstage from Garry Shandling – relaxing and not fighting with the crowd, not raising your voice, not ever trying to win them over.
+ - There was definitely a period when I just felt out of sync with earth.
+ - I don’t think there’s that many great 90-minute comedies.
+ - I put on a big show when I write something I think is funny.
+ - To me, I’ve never understood why there is any question about are women as funny as men.
+ - Just trying to tell the truth about, you know, the struggle of – being alive is funny, it’s just inherently tragic and also hilarious – in a fun way and in a sad way. That seems to connect with people.
+ - I try to just save a fresh, clear head for whoever I’m working with, so hopefully it’s helpful that there’s someone who doesn’t have to sit in the editing room for 12 hours a day, and who’s blinded by the massive footage and options that they have.
+ - All of my jokes were about not being able to meet anybody. I didn’t have any insight into anything – even my own insecurities.
+ - I always felt as a kid that I was underappreciated, invisible or weird, but I’ve always secretly thought people would one day appreciate what is different about me. I’m always putting that message out there.
+ - If the movie’s not communicating, it’s not working.
+ - I don’t think because a story has humor in it means it’s brief. For some reason, people think anything that’s 30 minutes is a comedy, comedies can be longer or shorter, so can dramas.
+ - I am always driven by the terror of humiliation.
+ - I’m the guy who gets uncomfortable. That’s why I was able to write ‘The 40-Year-Old Virgin’ and ‘Knocked Up.’ I believe in those guys.
+ - If anything is leaking, I try to plug the hole.
+ - In terms of the emotional underpinning, if you’ve been in relationships, you understand what’s happening.
+ - I’m always talking to people. It’s not that complicated. I just find somebody and say, “Do you have any ideas.” If they do, we just start thinking things around.
+ - Well, every movie is an experiment. And the only way you can grow at what you’re doing is to take chances. You can’t try to stick with what worked last time.
+ - I have to make good things so good comedians want to talk to me.
+ - I literally cannot remember one joke.
+ - There are people who like short movies, and I think they should just watch our movies on DVD because they can pause, go to the bathroom, eat dinner, and come back to it.
+ - Maybe you just get so attached to the music of your youth that you think it’s better than what’s coming out now.
+ - The great thing about Eminem is, he’s just hysterical. You forget, people like Eminem because he is riotously funny. And he’s a great actor.
+ - Back then, you seemed like a crazy person when you were trying to push the boundaries of network TV. People looked at you, and they were offended by the fact that you didn’t follow the generic rules of what was expected on network TV.
+ - There are only so many hilarious actors so when they cross-pollinate, people assume it’s always the same actors and directors.
+ - The hard part about getting much attention is that people start dissecting what you do.
+ - When you make a movie, you just send it off into the world. You never actually live it with the crowd.
+ - If you develop 10 things, and you can get two or three made, that’s a very high ration.
+ - I like to make movies the way people made movies in the ’70s, where they lived and died with these stories, and cared about them, and went to war for them, and they all said something they wanted to say.
+ - I think the story should always determine the visual approach. There are situations where you want things to feel alive and like life, and there are situations that should have some magic and the separation with the grain.
+ - You have to write a lot of scripts to get any scripts that are worth making.
+ - I love magazines and film critics, so I eat it up. I’m not one of those people who says ‘I never read anything.’ I generally read all of it.
+ - I think it’s fun to have people see everything at once, and then I think certain shows are very well-suited to being on every week and being spread out over months.
+ - I had a very specific type of terrible network experience where I was told that people like Seth Rogen and Jason Segel weren’t leads, so it truly drove me mad. So to be trusted is all I value.
+ - If you watch the arcs of so many comedians, at some point, they just become themselves.
+ - I didn’t want to be a director for hire. It really just took me a long time to learn how to direct and to feel up to the job.
+ - Up until ‘Bridesmaids,’ the general consensus was that women preferred comedy a bit softer.
+ - I like when people are very passionate about what they want to write about. Even if it’s silly, you can be very passionate about it.
+ - It’s funny when people debate about music, because they get so passionate about what they enjoy.
+ - I think a lot of studios today are run by women, and we are entering a time when a lot of women have evolved in Second City and Upright Citizens Brigade and wanted to become writers and comedians.
+ - My first writing jobs were writing Tom Arnold specials for HBO, so I love working there.
+ - I really think more about being honest and truthful about feelings and how people behave for the movies that I direct, but I also love movies like Zohan and Anchorman, just balls to the wall, how much can you make people laugh in one 90 minute period.
+ - People like the comedy more when they care about the characters.
+ - I start thinking about the next movie before it’s a success, so I can never have one moment of happiness or peace. I’m instantly thinking about the next one.
+ - We are at this weird moment where there’s an economic model that supports creativity. People are demanding something new and fresh.
+ - I think people like Lena Dunham really opened up the door to what was possible, and they’ve inspired young women to go into filmmaking and writing and directing and acting in a way that maybe they didn’t before, because now there is a path and there are jobs.
+
+102 quotes

@@ -1,0 +1,66 @@
+ - Changing the game is a mindset.
+ - When given an opportunity, deliver excellence and never quit.
+ - When you take technology and mix it with art, you always come up with something innovative.
+ - Data scientists are statisticians because being a statistician is awesome and anyone who does cool things with data is a statistician.
+ - Creativity, not money, is used to solve problems.
+ - I wish I could freeze time or go back in time and watch my kids grow up all over again because it is just going by too fast.
+ - If you’re just creative, you’ll always have to rely on technical people. If you’re creative and technical, you’re unstoppable.
+ - Only by seeking challenges can we hope to find the best in ourselves.
+ - Sometimes I feel like I’m in a dream world, because it doesn’t always seem too logical how things work out.
+ - I always wanted to be a stay-at-home dad making art, making movies.
+ - If you want to be a rock star, you’re not going to just walk on stage. You gotta go practice in the garage until your fingers bleed. I always say that – the same with writing and the same with filmmaking – if it’s really your passion, you’ve just got to stick with it and do it.
+ - Don’t give me any money, don’t give me any people, but give freedom, and I’ll give you a movie that looks gigantic.
+ - It’s easier making a smaller film like El Mariachi. There are no budget worries because there is no budget. There is no crew problem because there is no crew. And if you screw up, no one is around to see you screw up – so it’s no longer a screw up.
+ - People don’t live in Austin to work, they work to live there.
+ - When you go off in the world and make your life, and you come back to your home town, and you find your old high-school friends driving in the same circles, doing the same things, that’s what Hollywood’s like. It’s a little block, little town. It doesn’t really grow or change.
+ - Don’t look at all at what other people are doing. Think of what you’re doing as completely fresh because if you imitate you’re dead.
+ - When you make an exploitation film, you always want to have a real issue. That’s how they were always done.
+ - When you put on the glasses in a 3-D movie they just kind of sit there and you forget about them.
+ - Ever director has at least 10 bad films in them.
+ - Don’t be told something is impossible. There’s always a way.
+ - You create superheroes to take care of problems that can’t really be solved another way.
+ - Television series always have a lot of characters because you want people to identify with someone on the show, who will be your eyes.
+ - Creative people are notoriously the slowest to adopt new technology.
+ - I do like strong women in my movies. I have five sisters, so I’ve just grown up with that model.
+ - Everything I’ve done has always been my own made up world with its own rules and its own made up stories.
+ - I love working with great actors.
+ - Exploitation films were famous for taking an issue an exploiting it because they could move much faster than a studio could. If there was any hot topic, they would run out and make a quick movie and make a buck on it, by changing it around and using it, in some way, to give some relevance.
+ - Low budgets force you to be more creative. Sometimes, with too much money, time and equipment, you can over-think. My way, you can use your gut instinct.
+ - I realized that everything I do is fantasy, whether it is an adult movie or a kids movie.
+ - Tell everyone that your mistakes are art. You can get away with a lot that way.
+ - What I love about new technology is that it really pushes the art. It really pushes it in a way that you can’t imagine until you come up with the idea. It’s idea-based. You can do anything.
+ - It’s such a drag to make a movie.
+ - Any time you do action and horror, you’ve always got to try to find a way to make it fresh for the audience, but also for yourself, and there are so many different ways to freak people out and create tension.
+ - A movie goes from several stages, from idea to script. As you continue shooting, you will make some adjustments. You’re constantly adjusting. It’s like a piece of music. You’re constantly trying to make it better.
+ - That six or seven hours you have to be in bed with your eyes closed. What a waste!
+ - The studios don’t finance anymore, they get outside funds.
+ - Really, children will support anything that is empowering to them.
+ - The accidents are things that audiences always remember most, I’ve found on my own movies. The things that they like the most are the things that were just by accident. So you have to create a situation where nothing but accidents can happen the entire time.
+ - I collect a lot of art.
+ - Make DV movies so you can learn how to make films, but don’t try to distribute them until they are fantastic.
+ - I was a cartoonist when I was at university, but I decided to go into movie making knowing that I could still draw by doing movies, design work, story boards, and such.
+ - A lot of people who watch DVDs are people who are interested in, if not moviemaking, then creativity in general.
+ - Very few people have a lot of time to dedicate to one hobby. I was fortunate to have started so young, because when you’re young you have nothing but time. Hours and hours to burn up on something as silly as a movie.
+ - I definitely want to produce more because I have a bunch of projects that I’ve either written or half written and I want to continue developing them and if cant direct one right away cause I’m doing something else I will love to still see it get made.
+ - You ask any moviemaker what their favorite movie experience was, and they’ll say it was one of the first ones, where everyone had to pitch in and do everything together, and you had to struggle.
+ - Yeah, I was always a big fan of noir.
+ - A lot of 3D movies have so much on the screen that you almost don’t know where to look.
+ - Everyone applauds each other’s success in Hollywood because they know how tough it is, but it really comes down fundamentally to the process.
+ - I try to remind people, whether you have a growth manager or a value manager, you’re going to go through cycles where you think you have a village idiot.
+ - It’s rare for the studios to find a filmmaker who wants to make a family film. To find someone that has an idea, embraces it, has kids and wants to make something exciting – well, they don’t see that too often.
+ - When you use the same actors a lot, you get to know them and you realize that one movie can’t explore all the talent that they have. You really have to give them several different kinds of roles, in completely different movies, to push them and to push yourself.
+ - I want to push technology boundaries to be more efficient.
+ - Your mind just goes to the craziest idea to lure people into the theater, and then you write your script around those elements.
+ - I kind of like working fast.
+ - I get a lot done considering I spend half my day sleeping.
+ - Hollywood wants to own everything. I don’t want to own anything. I don’t want people just to make content, I want to empower and teach them to create content they own that they can exploit in any medium.
+ - There are real issues going on in just about any movie that’s got fun elements to it.
+ - For me, Mexploitation seemed like something that should have existed, but didn’t.
+ - I like to keep my budgets at a certain price when I work for someone else, and even more so now that I’m working for myself, and use new technologies to deliver films that look like they have high production levels.
+ - Anyone who can only write about themselves or their life experiences, in my mind, isn’t a very good writer.
+ - I don’t think anyone can be more of a predator than a human being.
+ - If you create a good story that has a lot of story value I think audiences like that. It’s why they stick with the same TV show over and over.
+ - The only thing I ever wanted to do is never have to work a day in my life.
+ - I have so many friends who don’t know how to cook.
+
+64 quotes

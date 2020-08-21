@@ -1,0 +1,21 @@
+ - Design has to work. Art does not.
+ - It takes a great deal of time and thought to install work carefully. This should not always be thrown away. Most art is fragile and some should be placed and never moved again.
+ - Well, in any art there are a lot of technical things that you can get to like.
+ - In terms of existing, everything is equal.
+ - If someone says it’s art, it’s art.
+ - Color, to continue had to occur in space.
+ - Well, there’s a morality in that you want your work to be good, I suppose.
+ - Any combining, mixing, adding, diluting, exploiting, vulgarizing, or popularizing of abstract art deprives art of its essence and depraves the artist’s artistic consciousness. Art is free, but it is not a free-for-all.
+ - It isn’t necessary for a work to have a lot of things to look at, to compare, to analyze one by one, to contemplate. The thing as a whole, its quality whole, is what is interesting. The main things are alone and are more intense, clear and powerful.
+ - Somewhere a portion of contemporary art has to exist as an example of what the art and its context were meant to be.
+ - The attitude and capacity of the factory, the old metal table and the new ideas of the wooden furniture quickly and naturally suggested the possibility of metal furniture.
+ - The older painting – well, it does have an effect all at once, I suppose, but it’s of a lesser intensity than a lot of the American work in the last ten or fifteen years.
+ - I pay a lot of attention to how things are done and the whole activity of building something is interesting.
+ - Most art is fragile and some should be placed and never moved away.
+ - But I think that’s a particular kind of experience involving a certain immediacy between you and the canvass, you and the particular kind of experience of that particular moment.
+ - I think most of the art now is involved with a denial of any kind of absolute morality, or general morality.
+ - And then we moved to New Jersey and I went to the Art Students League.
+ - Pollock looks unusual and radical even now.
+ - And that Newman wasn’t, and yet to me Pollock is just as radical and unlike Expressionism as Newman.
+
+19 quotes

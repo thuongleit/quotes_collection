@@ -1,0 +1,25 @@
+ - If the deaf are to hear the sound has to be very loud.
+ - Lovers, Lunatics and poets are made of same stuff.
+ - They may kill me, but they cannot kill my ideas. They can crush my body, but they will not be able to crush my spirit.
+ - Love always elevates the character of man. It never lowers him, provided love be love.
+ - Merciless criticism and independent thinking are the two necessary traits of revolutionary thinking.
+ - I emphasize that I am full of ambition and hope and of full charm of life. But I can renounce all at the time of need, and that is the real sacrifice.
+ - I am a man and all that affects mankind concerns me.
+ - The sanctity of law can be maintained only so long as it is the expression of the will of the people.
+ - Every tiny molecule of Ash is in motion with my heat I am such a Lunatic that I am free even in Jail.
+ - It is easy to kill individuals but you cannot kill the ideas.
+ - I ask why your Omnipotent God does not hold a man back when he is about to commit a sin or offence. It is child’s play for God. Why did He not kill war lords? Why did He not remove the fury of war from their minds? In this way God could have saved humanity from great calamity and horror.
+ - The spirit of Revolution should always permeate the soul of humanity, so that the reactionary forces may not accumulate to check its eternal onward march.
+ - The people generally get accustomed to the established order of things and begin to tremble at the very idea of a change. It is this lethargical spirit that needs be replaced by the revolutionary spirit.
+ - The aim of life is no more to control the mind, but to develop it harmoniously; not to achieve salvation here after, but to make the best use of it here below.
+ - By Revolution, we mean the ultimate establishment of an order of society which may not be threatened by such breakdown, and in which the sovereignty of the proletariat should be recognized and a world federation should redeem humanity from the bondage of capitalism and misery of imperial wars.
+ - If the deaf are to hear, the sound has to be very loud. When we dropped the bomb, it was not our intention to kill anybody. We have bombed the British Government. The British must quit India and make her free.
+ - For us, compromise never means surrender, but a step forward and some rest. That is all and nothing else.
+ - Revolution is an inalienable right of mankind. Freedom is an imperishable birth right of all. Labor is the real sustainer of society, the sovereignty of the ultimate destiny of the workers.
+ - Man acts only when he is sure of the justness of his action, as we threw the bomb in the Legislative Assembly.
+ - The dirty alliance between religious preachers and possessors of power brought the boon of prisons, gallows, knouts and above all such theories for the mankind.
+ - Force when aggressively applied is “violence” and is, therefore, morally unjustifiable, but when it is used in the furtherance of a legitimate cause, it has its moral justification. The elimination of force at all costs in Utopian...
+ - The elimination of force at all costs is Utopian and the new movement which has arisen in the country and of whose dawn we have given a warning is inspired by the ideals which Guru Gobind Singh and Shivaji, Kamal Pasha and Reza Khan, Washington and Garibaldi, Lafayette and Lenin preached.
+ - Life is lived on its ownother’s shoulders are used only at the time of funeral.
+
+23 quotes

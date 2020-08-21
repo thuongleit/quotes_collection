@@ -1,0 +1,36 @@
+ - Always take the long term view and train and race smart, with a bit of caution.
+ - The marathon can humble you.
+ - Being a lifelong runner, knowing what running gives me, a variety of factors – that is what motivates me.
+ - Having your goal to focus on is key, but don’t let it become more important than your excellence next year and the year after.
+ - The starting line of the New York Marathon is kind of like a giant time bomb behind you about to go off. It is the most spectacular start in sport.
+ - I often lose motivation, but it’s something I accept as normal.
+ - If you want to win a race you have to go a little berserk.
+ - I believe in gradual experimentation with running shoes.
+ - Good health, peace of mind, being outdoors, camaraderie – those are all wonderful things that come to you when running. But for me, the real pull of running – the proverbial icing on the cake – has always been racing.
+ - The advice I have for beginners is the same philosophy that I have for runners of all levels of experience and ability – consistency, a sane approach, moderation and making your running an enjoyable, rather than dreaded, part of your life.
+ - A change of pace in terms of your running pace will give you strength psychologically.
+ - No one who works a forty hour week will ever beat me.
+ - Being a runner means you are now ‘free’ to win and lose and live life to its fullest.
+ - I ran my fastest marathon in the rain.
+ - Anybody can be a runner. We were meant to move. We were meant to run. It’s the easiest sport.
+ - Age 50 is a lot tougher than 40s.
+ - Runners are the ultimate celebration people. Running is just so intense, you’re really experiencing life to the fullest.
+ - Don’t feel guilty about driving somewhere nice to run. If people can drive to a park to eat hot dogs, you can drive there to run.
+ - Every time I bomb out, I have to come back. I have a feeling after a bad race that my next one will be good.
+ - I believe you’ll develop speed via strength work which includes hill running, either repeats, or running hilly courses as the Kenyans do on a steady basis.
+ - My biggest weakness as a endurance athlete has been in not drinking enough water after training, thereby racing sometimes while dehydrated.
+ - My guess is many top athletes, distance runners included, use performance-enhancing drugs, enough so that the problem must be tackled.
+ - I always say if the marathon is a part-time interest, you will only get part-time results.
+ - I can’t even imagine what it’s like to run for 5 or 6 hours.
+ - I believe in keeping running simple and, in regard to shoes, that would mean no gimmicks, unnecessary cushioning, etc.
+ - Personally, I always felt times aren’t so excellent as are performances.
+ - Every race is totally different.
+ - You cannot always run at your best.
+ - My whole feeling in terms of racing is that you have to be very bold. You sometimes have to be aggressive and gamble.
+ - I also feel it usually takes four or five races to hit your best marathon for your body to be accustomed to the training AND the race itself.
+ - Aiming for the marathon is a task of sorts which can include terrific highs and lows.
+ - Hills are terrific for running.
+ - I want to run until I can’t run.
+ - To be a consistent winner means preparing not just one day, one month or even one year – but for a lifetime.
+
+34 quotes

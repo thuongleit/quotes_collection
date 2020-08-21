@@ -1,0 +1,151 @@
+ - Modesty is for saints and losers. I’m neither.
+ - Did you think you could stop me? I’ll burn the world down to save her.
+ - I was always able to lose myself in reading. Books were a necessary escape I always gladly jumped into headfirst.
+ - I’ve always found that the most beautiful people, truly beautiful inside and out, are the ones who are quietly unaware of their effect.
+ - I love you, Katy. Always have. Always will.
+ - I blame boobs.
+ - That simple act stole my breath, my heart. But even as he pulled away, I realized that he couldn’t steal something he already had.
+ - Whatever you do, don’t break my brother’s heart. You are his world. And if you leave it, it will destroy him.
+ - I’ll do anything for her.
+ - Memories, even bittersweet ones, are better than nothing.
+ - I lost myself the moment I found you.
+ - It’s just words and words mean nothing. Only action does.
+ - Saint Delphi my ass.
+ - Just because I’m human doesn’t mean I’m weak.
+ - I could always give you a teaser. You bookish people love teasers, don’t you?
+ - His brows were lowered in concentration. Thick, sooty lashes hid his eyes. They lifted and his lips spread into a grin. I was in so much trouble.
+ - Love is such a wild and reckless creature. It cannot be planned or threaded. It cannot be controlled. Love can coexist with Fate, or it can undo it. Love is the only thing more powerful than Fate.
+ - While you’re deep in something, you never say or do what you need to. It’s always after the fact, when it’s too late, that you realize what you should’ve said or done.
+ - I couldn’t stop staring at his mouth when he spoke. I bet he knew how to kiss. Perfect kisses too, ones that weren’t wet and gross, but the kind that curled toes. I needed to stop looking at him in general.
+ - You really shouldn’t trust a soul in this game. Not when everyone has something to gain or lose.
+ - I was more of a ‘run into things head-first and face-plant a wall’ type of fighter.
+ - Batter up, mofo.
+ - Daemon: I checked out your blog. Katy: Stalking me again, I see. Do I need to get a restraining order? Daemon: In your dreams, Kitten. Oh wait, I’m already starring in those, aren’t I? Katy: Nightmares, Daemon. Nightmares.
+ - So? What are you going to do about it? Throw your mashed potatoes at me? I’m consumed by terror.
+ - Double crap on a cracker the size of my butt.
+ - Dogeared pages were Antichrist of book lovers everywhere.
+ - His eyes searched mine. “Thank you.” “For What?” I loved the feel of his arms around me and how I fit against him, hard against soft. He trailed his fingers over my arm, and I was amazed by how he could make me shiver. “For everything,” he said.
+ - Aiden had slipped under my skin, wrapped himself around my heart and embedded himself into my bones.
+ - Beautiful face. Beautiful body. Horrible attitude. It was the holy trinity of hot boys.
+ - If she was mine, I’d cherish every inch of her. And I wanted to. Now.
+ - Don’t look at me like I’ve kicked a baby pegasus into the street.
+ - I just don’t want you to feel that way, because I love you. I’m in love with you. Forever and ever, and all the corny things I can attach to that.
+ - It had insta-love, the bane of my existence. Girl sees boy and falls in love. Immediately. Soul mate, breath stealing, toes curling, love after one conversation. Boy pushes girl away for some paranormal reason or another. Girl still loves boy. Boy finally admits love.
+ - No. Sorry. You have spent months being the biggest jerk to me. You don’t get to decide to like me one day and think I will forget that. I want someone to care for me like my dad cared for my mom. And you aren’t him.
+ - Everything was okay. Maybe not perfect, but life wasn’t meant to be perfect. It was messy and sometimes it was a disaster, but there was beauty in the messiness and there could be peace in the disaster.
+ - I guess there were two types of people in the world, those who sat around a fire, staring into the flames, and those who started the fire. Seth and I started the fire, and then we danced around it.
+ - And I never felt this way with anyone else. Like I’m falling every time I’m around you, like I can’t catch my breath, and I feel alive – not just standing around and letting my life walk past me. There’s been nothing like that with anyone else.
+ - Oh, I still want to strangle you. But I’m insane. You’re crazy. Maybe that’s why. We just make crazy together.
+ - Apollo had said he knew what this kind of love was capable of. And I finally understood why Paris had risked his country and his blood for Helen. Selfish, yes, but I understood. I would burn the world if that meant Alex would be safe.
+ - Never in my life had I been more frustrated. Go figure it wouldn’t be with a human but a freaking alien. At least I now knew that the male species were asses no matter what planet they hailed from.
+ - Jesus. It’s like I’m a muggle to your pure-blood or something.
+ - You look like you’re twelve. No. Maybe thirteen, but my sister has this doll that kinda reminds me of you. All big-eyed and vacant.
+ - Guy: Ash is going to kick your ass, Daemon. Daemon: Nah, she likes my ass too much for that.
+ - Daemon was the pissy pink elephant in the room with a bad attitude.
+ - No matter how convoluted my life got, one thing remained consistent- my hair looked like a baby opossum had taken refuge in it, invited some friends over, and thrown a party.
+ - Daemon stomped past them, bumping into his brother’s shoulder. “You make my head hurt”, he said, scowling. “And you make me all warm and fuzzy inside”.
+ - Then he leaned forward and rested his cheek against mine. Hot tingles spread through me as his lips moved against my ear. “You should tell me to stop.” I didn’t say a word.
+ - Are you lost, Lea? This isn’t where they’re handing out the free pregnancy tests.
+ - He’s like a suicidal Energizer bunny.
+ - She. Spoke. To. Him. First. It was like winning the lottery, getting laid, and climbing the highest cliff all rolled into one. But he needed to play it cool, becase he was trending into lame-o land at a quick pace.
+ - Daemon followed me home after school. Literally. He tailed me in his new Infiniti SUV. My old Camry, with its leaky exhaust and loud muffler, was no match for the speed he wanted to go. I’d brake-checked him several times. He’d blown his horn. It made me feel all warm and fuzzy inside.
+ - I hate you and your freaky alien powers.
+ - I thought people in small towns were supposed to be nice, not act like the son of Satan.
+ - Staring down at Katy, I fell for her all over again. Lost my heart when she smiled.
+ - I’m not going to do anything stupid. And even if what I plan is risky and insane, it’s a well-thought-out level of stupidity.
+ - The day my internet was hooked up was better than having a hot guy check out my butt and ask for my phone number.
+ - You better have had a baby, killed someone, or slept with a pure. Those are your three options. Anything less is unsuitable.
+ - Sometimes you have to know when to let hope go.
+ - I understood books. I did not understand boys – especially alien boys.
+ - I want a years-worth of seconds and minutes with you. I want a decade’s worth of hours, so many that I can’t add them up.
+ - I swore to you that I wouldn’t let that happen, and I know I’ve failed you, but I’m not going to just give up, Alex. I’ll never give up on you.
+ - Daemon was standing in the doorway of my bedroom. Hair messy from sleep, flannel pajama bottoms rumpled. No shirt. Three feet plus of snow outside, and he was still half naked.
+ - There is the heart, Aiden. There is love, which means there is always hope.
+ - Swimming was the last thing I wanted to do. Drowning him? Maybe.
+ - Oh, for the love of baby humans everywhere, you’re an idiot.
+ - I whipped around, eyeballing the guard breathing down my neck. “Seriously, dude, you need to back the hell up.” The guy was half a head shorter than me and nowhere in my league of extraordinary ass-kicking abilities...
+ - He hadn’t left, and apparently, Seth was a cuddler.
+ - I keep smiling, giving Ash a little wink before turning around. Daemon stood there with two cups, one eyebrow arched. “Bad little Kitten,” he murmured. Grinning, I stretch up and kissed him.
+ - At some point, Roth had gotten hold of my cell and replaced Zayne’s name with Stony and listed his own number under Sexy Beast. What a tool.
+ - Kat, say something insulting. Come on.
+ - Me and Katy look adorkable in extraterrestrial highway shirts. You would just look stupid. You can thank me later.
+ - Listen to me, Daemon. This isn’t your fault. I wouldn’t change a damn thing. Okay? Yes, things have sucked, but I’d go through it all again if I had to. There are things I would want to change, but not you – never you. I love you. That’s never going to change.
+ - Yeah, I’m great. Nothing like witnessing a death match between gods when I’m trying to get some Cheetos. -Deacon.
+ - Everything could come to a crashing end for us if we were caught, but it didn’t matter. Right now, being with him seemed worth whatever consequence could come from it. This was right, like it was meant to be. There was no logical explanation for it.
+ - Oh, shimmer down, Hunter. You’re too testy. How many times have I’ve told you that you need to chill out, take a vacay. Disney World is really fun this time of the year. you should check it out.
+ - If wishes were fishes, we’d all throw nets.
+ - It’s like you have a special skill when it comes to finding condoms. Seriously. They must fall out of the sky whenever you’re around.
+ - I didn’t want to spoil the mood. This was probably the longest Daemon and I had ever spoken without some statement earning him the finger.
+ - The smile was still on his face, but his words were like the arctic winds. “You don’t talk to her. At all.” There was no stopping He-Man when he came out to play.
+ - Jesus. He could see the headlines now. Aliens Among Us. Run!
+ - In that moment, she reminded me of a fairy princess. Or maybe a cracked-out Tinker Bell.
+ - Daemon arched a brow. “You don’t wanna play, Barf, because we can do that nifty freeze thing and play, right here and now.” Oh, for the love of backwoods babies everywhere, this wasn’t necessary. I wrapped my fingers around Daemon’s tense arm. “Come on,” I whispered.
+ - Sorry. Sorry. Don’t hit. Bitches be scary when they hit.
+ - Kitten, your mind is a terrible and dirty place.
+ - It was like a scene straight out of Beauty and the Beast. I kept waiting for a teapot to start singing.
+ - The little ball went up, then down, then up in his palm. My inner golden retriever couldn’t look away.
+ - Once I got home, though, and saw several packages on my front porch, all the crap from the day disappeared. A few had smiley faces on them. Squealing, I grabbed the boxes. Books were inside – new release books I’d preordered weeks ago.
+ - There was no doubt in my mind that Daemon believed revenge was a dish best served in my face.
+ - If there is anything, there is us. You and me. No one else.
+ - People do the damndest things when they’re in love.
+ - Do you know why a heart lays claim? Survival. That heart lays its claim to ensure survival of its kind.
+ - I’m not drunk,? I said indignantly. You were just dancing like some wood nymph five minutes ago. You took your shirt off and now you’re latched onto me like a little monkey. So don’t tell me you’re in complete control of yourself.
+ - Sometimes words were cheap. They could be powerful, but in those rare occasions like now, words meant nothing.
+ - In that moment, I wanted to punch myself in the face.
+ - It wasn’t like there was an alien hiding under the table, moving crap around for fun.
+ - I bet you think things through, right? Accept candy from strangers and get into vans with a sign that reads free Kittens?
+ - What is it with the St. Delphi brothers and their attraction to halfs?
+ - I shot him a look. “That bouncer was really big.” His lips quirked. “Oh, Kitten, see, I try not to say bad things.” “What?” The grin spread. “I would say size doesn’t matter but it does. I would know.” he winked, and I let out a disgusted groan. He laughed.
+ - In a couple of weeks I’d be starting a new school, and I knew Dee would be surrounded by friends -friends that Daemon probably approved of, which wasn’t me, because he obviously thought I was a crack dealer.
+ - I always liked you. From the moment you first flipped me off.
+ - Then I should be relieved to know what I was told an hour ago is false. It wasn’t you who yanked a girl – by her hair – out of chair in the common lounge area.
+ - Arum: But where will your arrogance be when we absorb your powers? Daemon: In the same place as my foot. You know, as in up your ass.
+ - Hell, I’d keep her in Bubble Wrap if it weren’t so damn creepy and also inconvenient, considering I had a terrible habit of obsessively popping the damn things until not a single bubble was left.
+ - You haven’t locked yourself in any rooms or rocked in any corners, right?
+ - Oh no I know that look. What are you thinking? That this is the most ridiculous declaration of attraction I’ve ever heard.
+ - Or maybe it was the soul that worked that way, seeking out warmth and touch, needing to prove that we were still in the world of living.
+ - I checked out your blog.? Oh. Dear. Baby. Jesus. How did he find it? Wait. More importantly was the fact he HAD found it. Was my blog now googleable? That was awesomesauce with an extra heaping of sauce.
+ - You look like you got more of a bath than the car. I never thought washing a car would be so hard, but after watching you for the last fifteen minutes, I’m convinced it should be an Olympic sport.
+ - I nodded, wondering how one person could single-handedly ruin everything within a minute. It was a talent.
+ - She tipped her head back and started laughing, and I started picturing people twerking – everyone in the limo. Quiet Luxen Dude. Rolland. Sadi. All of them bent over, butts in the air, looking like damn fools.
+ - I refused to fight them-to beat up on them or potentially kill them if things got out of hand. It was like being in a real, albeit messed-up, version of “The Hunger Games”. “The Hunger Games” for alien hybrids.
+ - A few seconds after he stepped out into the hallway and closed the door behind him, there was a fleshly smack and then Andrew yelling, “Ouch. What in the hell was that for?” “Your timing sucks on an epic level,” Daemon shot back.
+ - Gods were like possums. You could go your whole life without seeing one, but once you found one of them, you found the whole freaky family.
+ - But no matter where I went, what I was running from would still be with me – Kat. She wasn’t just back in the house, in that bed. She was with me now, inside me. And there was no outrunning that.
+ - That kind of love should’ve been able to beat sickness. That kind of love should’ve conquered anything.
+ - I spun and jogged around the SUV. Climbing in I readjusted the seat from Godzilla setting to Normal so my feet could reach the pedals.
+ - It always felt good typing up a review on a book I enjoyed and I went all out, finding bizarre pictures to emphasis the wow factor. I preffered ones with cute kittens and llamas. And Dean Winchester. Hitting ‘publish post’ cracked a smile.
+ - You’ll have a piece of my heart – all of it, really. Forever.
+ - I think I might have blushed. Damn me. -Daemon.
+ - Letting my heart instead of my hormones decide when to do it made what Aiden and I’d done special. And when we passed each other throughout the day, the looks we stole suddenly meant more. Everything meant more, because we both were risking it all and neither of us regretted that.
+ - Throughout our lives, no one could figure out how we were so close, but when friendships begin with cupcakes – chocolate, at that – no truer bond develops.
+ - If he made one more comment about the length of my skirt, I was going to hurt him. And if Blake did, Daemon was going to maim him.
+ - It took me about a half an hour to weasel Daemon away from my mom. Maybe I wouldn’t have to worry about her and Will. Maybe I needed to worry about her and Daemon. Cougar.
+ - Apollo had changed Hyacinth into a flower to protect him. I would give Alex back control so she could protect herself instead of making the decision for her. That’s how we were different from the gods.
+ - His dinner included three hamburgers and two orders of fries. I had no idea where those calories went. To his ego, maybe?
+ - You know what they say about boys next door...
+ - Okay, you’re prone to moments of great dickdom, but you’re not that bad.
+ - There were always choices. I’d made a string of bad ones myself. At least I could admit that.
+ - Crossing the room, he stopped infront of me. “I’m not going to bite.” “That’s good.” “Unless you want me to,” He said with a devilish grin.
+ - Because this absolutely insane – the craziest thing I’d ever done. Worse than giving a one-star review, scarier than asking for an interview with an author I’d give my firstborn to eat lunch with, more stupid than kissing Daemon.
+ - Love of sugar had to mean true love. It just had to.
+ - We were supposed to have tonight and tomorrow, and many weeks and months, but we didn’t have even another minute.
+ - A certain bone-deep understanding occurred and my hand tightened around the smaller one I held. It weren’t stars we were staring at. The sky was falling.
+ - My heart cracked. Daemon never begged.
+ - Daemon was a total babe, but he was stab-worthy, which at times zeroed out the babe part. Not always, though.
+ - Out of all the paranormal books I’d read and reviewed, no one glowed like this. Some glittered in the light. Others had wings. No one was a freaking giant sun.
+ - I rolled my eyes. “I’m sure I’ll hold out until Halloween.” “That’s already passed.” “Exactly,” I muttered.
+ - This was stupid, but I was doing it.
+ - How in the world did they just jump from politics, to a ball, and now to daimon attacks? And here I’d thought I had the attention span of an ant on Red Bull.
+ - You do realize I love a challenge?
+ - Alex, you have to be in there. I know you. My heart would not be beating if you were truly gone.
+ - You’re perfect for me,? I whispered in my own language.
+ - He did something truly remarkable with hips, causing me to gasp. “Yeah,” he said smugly. “I deserve another kiss.” Yes. Yes he did.
+ - No. I do believe in them. I just think they’re absentee landlords. Right now, they’re probably hanging out somewhere in Las Vegas, screwing showgirls and cheating at poker.
+ - Yeah, she had me. I was all hers. In reality, even though I’d been with everyone else, I’d always been Syd’s.
+ - Seeing her, well, it did things I hadn’t been ready to delve into before. Hell, I really didn’t even know at what point I had become ready. Probably happened somewhere between when I thought she was dead and when she wasn’t.
+ - His hands slid around my head, pulling me back to his mouth. There was a cracking sound in the house. A fissure of electricity shot through the room. Something smoked. I didn’t care.
+ - We like each other. We do. It’s stupid that we keep denying it.
+ - There was something soul-burningly about being on the brink of losing control, tumbling over into the unknown, and I wanted to fall and never resurface. – Jennifer L. Armentrout.
+
+149 quotes

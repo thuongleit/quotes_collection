@@ -1,0 +1,50 @@
+ - You gotta know when to hold ’em, know when to fold ’em, know when to walk away, know when to run.
+ - Music is what I am, everything else is what I do.
+ - With all my heart, and all my soul, I will love you till the winds don’t blow. Until the oceans turn to stone, my love is yours and yours alone. My love is forever, until forever’s gone.
+ - You can’t make old friends. You either have them or you don’t.
+ - There is a trade off – as you grow older you gain wisdom but you lose spontaneity.
+ - I love Viagra. I don’t need it, but I tried it. It’s a great legal drug.
+ - The Hall of Fame is forever, baby!
+ - If you want people to know what your message is, just sing it.
+ - I think when you’re in the public eye, you feel a pressure to stay younger looking.
+ - I was raised in the church.
+ - You picked a fine time to leave me Lucille, with four hungry children and a crop in the field.
+ - I’m so totally future oriented that, for me, I don’t know what the future’s about, but I can promise you it’s gonna be exciting.
+ - Daytime friends and night time lovers, hoping that no one else discovers.
+ - I’ve always said music should make you laugh, make you cry or make you think.
+ - It won’t mean you’re weak if you turn the other cheek.
+ - I think it’s fun to play for people who don’t know what you do.
+ - Friendships come and go, but families are forever...
+ - Stay away from trouble when you can.
+ - I had holes in my jeans well before it was fashionable.
+ - My mom loved to sing – and I’ll go on record and say she was the worst singer ever. I’d get up and move away from her!
+ - I never had a doubt in my mind. I always knew that, with the right material, I could pop a hit.
+ - The first six years of my career, I got more comments on my weight than on my singing. So I think I became so self-conscious that I started working on it harder.
+ - George Jones will always be one of the most amazing singers who ever lived. He was a true Country Music legend who made music very personal to the listener – I think more than anyone else. He will be dearly missed, but always remembered.
+ - I feel like I learn something from everything I do.
+ - I just hope I can spread some of the happiness that’s been coming my way.
+ - I do ballads that say what every man wants to say and that every woman wants to hear, or I do songs about social issues.
+ - Sometimes you’ve got to fight when your a man.
+ - Growing older is not upsetting; being perceived as old is.
+ - There has to be chemistry in a duet, but if you go beyond the point of friendship and attraction, you lose something.
+ - You know, I think the greatest gift in the world is a good employee, you know, or people who can do your work for you and do it well the way you’d like to have it done. And I’ve always been able to surround myself with really good people.
+ - If I could undo what’s been done, But I guess everyone is living, With water and bridges.
+ - The music business is strictly business.
+ - You know, when you’re poor and you have a bunch of kids in your family, you don’t know that everybody’s not poor.
+ - Well, I don’t think everything necessarily that I touch turns to gold, but I think I get great joy out of it regardless of whether it is successful or not.
+ - People will clap to be nice. They will not laugh to be nice.
+ - There’ll be time enough for counting when the dealing’s done.
+ - We did some massive flirting in front of the nation, but there was never anything more than that.
+ - I’ve always said that gray hair looks good on everybody but yourself. To me, it makes me look old.
+ - Radio is aimed at the 30-year-old market, so you have to have great music and appeal to get that age group. And you need a record company to believe in you. It’s like a bit of the perfect storm.
+ - It is difficult to get played at my age on the radio.
+ - You know, I’ve always said, I’ve never felt I was a particularly good singer, but I’ve always thought I had a great knack for picking hit songs.
+ - Youth is a frame of mind. If you get out there and enjoy it, you can have it at any time of your life.
+ - There’s a new hit rock group or singer every five minutes, but with country music, you have one hit and those people love you forever.
+ - I have awards right now that I do not remember walking on stage to get.
+ - I still like going on the road and performing, but it’s getting tougher. I try to have my wife and the twins with me but it’s getting harder and harder for them. They need to be in a home environment and not traveling with me.
+ - My music was my life, and it played a large part in my inability to sustain relationships.
+ - I’m much more comfortable singing than talking.
+ - It’s not all wet towels and naked women. I was so disappointed to learn that.
+
+48 quotes

@@ -1,0 +1,71 @@
+ - Collecting the dots. Then connecting them. And then sharing the connections with those around you. This is how a creative human works. Collecting, connecting, sharing.
+ - Crowdfunding as an idea itself isn’t new – bands have been doing it since the dawn of time.
+ - In both the art and the business worlds, the difference between the amateurs and the professionals is simple: The professionals know they’re winging it. The amateurs pretend they’re not.
+ - Those who can ask without shame are viewing themselves in collaboration with-rather than in competition with-the world.
+ - Life as it should be: all friends, all art, all music, all love, all the time.
+ - In other words, let’s give our young women the right weapons to fight with as they charge naked into battle, instead of ordering them to get back in the house and put some goddamn clothes on.
+ - Eat the pain. Send it back into the void as love.
+ - Art is food for the soul, and an artistic climate is a healthy climate because it breeds empathy.
+ - The impulse to connect the dots – and to share what you’ve connected – is the urge that makes you an artist.
+ - When you’re afraid of someone’s judgment, you can’t connect with them. You’re too preoccupied with the task of impressing them.
+ - When you’re an artist, nobody ever tells you or hits you with the magic wand of legitimacy. You have to hit your own head with your own handmade wand. And you feel stupid doing it.
+ - Thank God my best friend’s a therapist.
+ - I crave intimacy to the same burning degree that I detest commitment.
+ - I maintain couchsurfing and crowdsurfing are basically the same thing – you’re falling into the audience and you’re trusting each other.
+ - I hate being ignored.
+ - There’s really no honor in proving that you can carry the entire load on your own shoulders. Andit’s lonely.
+ - The challenge in my life really is keeping the balance between feeling creatively energized and fulfilled without feeling overwhelmed and like Im in the middle of a battlefield.
+ - You are an artist when you make someone feel something deep and unexpected.
+ - Take on the pain and wear it as a shirt.
+ - The world needs actual excitement and emotion more than it needs cool people.
+ - Nobody ever sees me. Thank you.
+ - I think a good role model has to be sexy. Real, empowered, self-possessed women are sexy. When you’re really in control of your choices, your mood, your body, and your opinions, people find you sexy.
+ - If you love people enough, they will give you everything.
+ - One of the best things about Kickstarter and crowdfunding and the collapse of the music business is a lot of artists like me have been forced to face our own weird mess about ourselves and what we thought it meant to become musicians.
+ - I feel that part of my life’s artwork is creatively dealing with all this negativity and anger and rage and hatred coming from whatever corners it’s coming from and somehow manifesting all of that anger into something positive, which is such a hard job.
+ - I think to say that meditation is helpful to artists is true and it’s great, but it’s also essentially helpful to any kind of process of, just, life.
+ - There was a dance that everyone was doing that was heavily skewed with the power in one direction, but the dance was basically working, and then the dance got really disrupted with the first wave of feminism, and nobody found their footing yet – not the guys, not the women.
+ - I had very literal parents and I wanted to survive with metaphor and art, and there was a real sense of shame around it.
+ - I firmly believe in music being as free as possible. Unlocked. Shared and spread. In order for artists to survive and create, their audiences need to step up and directly support them.
+ - Sometimes I have a terrible feeling that I am dying not from the virus, but from being untouchable.
+ - Nothing is crueller than children who come from good homes.
+ - There’s nothing more threatening than a powerful woman, and there’s nothing more threatening to the current order of things than women powerfully owning their own narrative. It’s so threatening to people, to women as well, and it’s threatening the order of things.
+ - I’m still trying to express my truth, my place in the world, my belief.
+ - You know what’s really cool? Wake up every morning, decide what you feel like doing, and do it.
+ - I draw the line at letting people into my songwriting cave. To me, that’s where the alchemy happens and where the mystery is.
+ - I think people have been obsessed with the wrong question, which is, ‘How do we make people pay for music?’ What if we started asking, ‘How do we LET people pay for music?’
+ - I’m a massive fan of David Lynch and ‘Twin Peaks.’
+ - If you want the world to pay for projects, you have to be able to display why you’re worthy.
+ - It is terrifying to people when women step up and start owning the story that they have not owned. And I’m seeing so much of this, and it is a seismic shift.
+ - When you trust people to help you, they often do.
+ - For most of human history, musicians, artists, they’ve been part of the community – connectors and openers, not untouchable stars.
+ - There’s something advantageous about being a woman in rock versus, say, a woman in chemistry or construction. There’s definitely a built-in sexism across the board, but I think you’re afforded a degree of freedom in rock because, historically, the rules have been flexible.
+ - I think I’ve been addicted to openness since long before my rock career. I was terrible as a teenager. I used to go out of my way to make people uncomfortable with personal details. I was always fascinated by the idea that we have these weird, random boundaries between what we do and don’t show.
+ - The perfect tools aren’t going to help us if we can’t face each other and give and receive fearlessly, but more important, to ask without shame.
+ - You’re not going to be perfect, you’re not going to stop berating yourself, you’re not going to stop the comparisons, you’re not going to stop the judgment, but you can become evermore mindful of it, and that has to be good enough.
+ - When we really see each other, we want to help each other.
+ - We are human and our nature is to air.
+ - I want to be happy. i want to make people happy. i do not need to be rich to do that.
+ - I think you can’t have this discussion and you can’t have a discussion about feminism and the consciousness of the world without having a discussion about what has happened to men lately. They’re holding the other side of the bag.
+ - The pattern’s laid out on the bed With dozens of colors of thread But you’ve got the needle I guess that’s the point in the end.
+ - I think one of the greatest gifts you can give to someone is just access to the possibility of freedom that you don’t have to be totally depressed and enslaved by your own environment.
+ - It would nice to live in a world where art can just be art!
+ - Twitter fascinates me because it’s real. It feels kind of unreal, but it makes very real things happen.
+ - The stage show is, in some sense, highly theatrical. It’s definitely not just a band in jeans playing rock and roll.
+ - I have never in my career embarked on a journey towards controversy. I have never deliberately set a flame.
+ - Everyone I know shares toothbrushes. Everyone I know sleeps on each other’s floor. Everyone I know uses what they’ve got and shares what they’ve got.
+ - If your writing is good, if it resonates, if it connects the dots for anybody out there, the lovers will come, the haters will come, support will come – sometimes in the form of money, sometimes in the form of something less expected – and it balances.
+ - I get so many ideas for songs, but I’m so seldom disciplined enough to sit down and crank them out.
+ - I was just a very dark kid. My family was complicated.
+ - There are so many people, so many artists, so many magazines, so many theater companies, so many people trying to raise money for so many things that it’s easy to look around and just feel powerless or helpless, because even if you have some resources, you can’t help everybody.
+ - How do we let people pay for music?
+ - I suppose I’m happy to sell my time and energy, but I’m not happy to sell my initial creative time.
+ - If we can repair things emotionally, a lot of other things would follow.
+ - Every album is just a greatest hits of whatever songs are on a pile when I go in to make a record.
+ - On many days, harder than the act of making the art itself is the act of sharing it and living in a culture that you know is built to tear you down.
+ - I think performance art comes from a simple place of wanting to express things beyond just sound.
+ - Bands like Nirvana had theatrical sensibilities, playing with image, challenging assumptions people were making about them, the apex being Kurt Cobain in a dress to make a point.
+ - There’s a huge cloud of shame around art and business being seen as bedfellows.
+ - Our nature is to desperately want to believe and to take what we believe is the quickest path there even against our better judgment.
+
+69 quotes

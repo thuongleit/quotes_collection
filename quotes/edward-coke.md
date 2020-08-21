@@ -1,0 +1,50 @@
+ - Precaution is better than a cure.
+ - The home to everyone is to him his castle and fortress, as well for his defence against injury and violence, as for his repose.
+ - Reason is the life of the law; nay, the common law itself is nothing else but reasonThe law, which is perfection of reason.
+ - The King himself should be under no man, but under God and the Law.
+ - Though the bribe be small, yet the fault is great.
+ - For a man’s house is his castle.
+ - None shall take advantage of his own wrong.
+ - Certainty is the mother of quiet and repose, and uncertainty the cause of variance and contentions.
+ - So as grave and learned men may doubt, without any imputation to them; for the most learned doubteth most, and the more ignorant for the most part are the more bold and peremptory.
+ - A witch is a person who hath conference with the Devil to consult with him or to do some act.
+ - We have a saying in the House of Commons; that old ways are the safest and surest ways.
+ - The gladsome light of jurisprudence.
+ - The law of the realm cannot be changed but by Parliament.
+ - Fraud and deceit abound in these days more than in former times.
+ - Let us now peruse our ancient authors, for out of the old fields must come the new corn.
+ - Law is the safest helmet.
+ - Don’t quote the distinction, for the honour of my lord Coke.
+ - Trial by jury is a wise distribution of power which exceeds all other modes of trial.
+ - Where there are many counsellors there is safety.
+ - A thing which is not in esse but in apparent expectancy is regarded in law.
+ - It is better, saith the law, to suffer a mischief that is peculiar to one, than an inconvenience that may prejudice many.
+ - You should trust any man in his own art provided he is skilled in it.
+ - One threatens the innocent who spares the guilty.
+ - He is not cheated who knows he is being cheated.
+ - Success in crime always invites to worse deeds.
+ - Force ought to follow justice and not to precede.
+ - Magna Charta is such a fellow, that he will have no sovereign.
+ - So use your own property as not to injure that of another.
+ - And the law, that is the perfection of reason, cannot suffer anything that is inconvenient.
+ - The house of every one is to him as his castle.
+ - Corporations cannot commit treason, nor be outlawed, nor excommunicated, for they have no souls.
+ - We should speak as the populace but think as the learned.
+ - For when the law doth give any thing to one, it giveth impliedly whatsoever is necessary for the taking and enjoying of the same.
+ - Those who consent to the act and those who do it shall be equally punished.
+ - Things are worth what they will fetch at a sale.
+ - Reason is the life of the law.
+ - There must have been good grounds for belief in witchcraft; otherwise Parliament would not have legislated against it.
+ - Everyone thirsteth after gaine.
+ - Every libel, which is called famosus libellus, is made either against a private man, or against a public person. If it be against a private man, it deserves a severe punishment.
+ - The law compells no man to impossible things. The argument ab impossibili is forcible in law.
+ - The cause ceasing, the effect ceases also.
+ - The agreement of the parties cannot make that good which the law maketh void.
+ - Common law is common right.
+ - A corporation has no soul.
+ - The law doth never enforce a man to doe a vaine thing.
+ - In the meane time know this, that the learning of warranties is one of the most curious and cunning learnings of the law, and of great use and consequence.
+ - The Common lawes of the Realme should by no means be delayed for the law is the surest sanctuary, that a man should take, and the strongest fortresse to protect the weakest of all, lex et tutissima cassis.
+ - It is the worst oppression, that is done by colour of justice.
+
+48 quotes

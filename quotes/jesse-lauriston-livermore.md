@@ -1,0 +1,71 @@
+ - Money is made by sitting, not trading.
+ - Don’t take action with a trade until the market, itself, confirms your opinion. Being a little late in a trade is insurance that your opinion is correct. In other words, don’t be an impatient trader.
+ - It never was my thinking that made the big money for me. It always was my sitting.
+ - There is only one side to the stock market; and it is not the bull side or the bear side, but the right side.
+ - To anticipate the market is to gamble. To be patient and react only when the market gives the signal is to speculate.
+ - Men who can both be right and sit tight are uncommon.
+ - A prudent speculator never argues with the tape. Markets are never wrong, opinions often are.
+ - Never try to sell at the top. It isn’t wise. Sell after a reaction if there is no rally.
+ - There is nothing new in Wall Street. There can’t be because speculation is as old as the hills. Whatever happens in the stock market today has happened before and will happen again.
+ - Without faith in his own judgment no man can go very far in this game. That is about all I have learned – to study general conditions, to take a position and stick to it. I can wait without a twinge of impatience. I can see a setback without being shaken, knowing that it is only temporary.
+ - The stock market is never obvious. It is designed to fool most of the people, most of the time.
+ - No one ever went broke by taking a profit.
+ - It takes a man a long time to learn all the lessons of all his mistakes.
+ - Wall Street never changes, the pockets change, the suckers change, the stocks change, but Wall Street never changes, because human nature never changes.
+ - It is literally true that millions come easier to a trader after he knows how to trade, than hundreds did in the days of his ignorance.
+ - The desire for constant action irrespective of underlying conditions is responsible for many losses on Wall Street even among the professionals, who feel that they must take home some money every day, as though they were working for regular wages.
+ - There is time to go long, time to go short and time to go fishing.
+ - Don’t give me timing, give me time.
+ - The market does not beat them. They beat themselves, because though they have brains they cannot sit tight.
+ - Men who can both be right and sit tight are uncommon. I found it one of the hardest things to learn. But it is only after a stock operator has firmly grasped this that he can make big money.
+ - Experience has proved to me that real money made in speculating has been in commitments in a stock or commodity showing a profit right from the start.
+ - The game of speculation is the most uniformly fascinating game in the world. But it is not a game for the stupid, the mentally lazy, the person of inferior emotional balance, or the get-rich-quick adventurer. They will die poor.
+ - Every once in a while you must go to cash, take a break, take a vacation. Don’t try to play the market all the time. It can’t be done, too tough on the emotions.
+ - If you can’t sleep at night because of your stock market position, then you have gone too far. If this is the case, then sell your position down to the sleeping level.
+ - Never buy at the bottom, and always sell too soon.
+ - A loss never bothers me after I take it. I forget it overnight. But being wrong – not taking the loss – that is what does damage to the pocketbook and to the soul.
+ - The average man doesn’t wish to be told that it is a bull or a bear market. What he desires is to be told specifically which particular stock to buy or sell. He wants to get something for nothing. He does not wish to work. He doesn’t even wish to have to think.
+ - There is the plain fool who does the wrong thing at all times anywhere, but there is the Wall Street fool who thinks he must trade all the time.
+ - At long as a stock is acting right, and the market is right, do not be in a hurry to take profits. One should never permit speculative ventures to run into investments.
+ - It isn’t as important to buy as cheap as possible as it is to buy at the right time.
+ - Instead of hoping he must fear and instead of fearing he must hope. He must fear that his loss may develop into a much bigger loss, and hope that his profit may become a big profit.
+ - It is foolhardy to make a second trade, if your first trade shows you a loss. Never average losses. Let this thought be written indelibly upon your mind.
+ - I know from experience that nobody can give me a tip or a series of tips that will make more money for me than my own judgment.
+ - He really meant to tell them that the big money was not in the individual fluctuations but in the main movements that is, not in reading the tape but in sizing up the entire market and its trend.
+ - I began to realize that the big money must necessarily be in the big swing.
+ - Professional traders have always had some system or other based upon their experience and governed either by their attitude towards speculation or by their desires.
+ - There are times when you should be completely out of the market, for emotional as well as economic reasons.
+ - Trends come like a series of ocean waves, bringing the high tide when things are good and, as conditions recede, the low tide appears. These trends come unexpectedly, unpredictably, and they have to be weathered with temperance, poise, and patience- good or bad.
+ - It took me five years to learn to play the game intelligently enough to make big money when I was right.
+ - My main life lesson from investing: self-interest is the most powerful force on earth, and can get people to embrace and defend almost anything.
+ - They say you never grow poor taking profits. No, you don’t. But neither do you grow rich taking a four-point profit in a bull market. Where I should have made twenty thousand dollars I made two thousand. That was what conservatism did for me.
+ - Remember this: When you are doing nothing, those speculators who feel they must trade day in and day out, are laying the foundation for your next venture. You will reap benefits from their mistakes.
+ - After spending many years in Wall Street and after making and losing millions of dollars I want to tell you this: It never was my thinking that made the big money for me. It always was my sitting. Got that? My sitting tight!
+ - I did precisely the wrong thing. The cotton showed me a loss and I kept it. The wheat showed me a profit and I sold it out. Of all the speculative blunders there are few greater than trying to average a losing game. Always sell what shows you a loss and keep what shows you a profit.
+ - One of the most helpful things that anybody can learn is to give up trying to catch the last eighth – or the first. These two are the most expensive eighths in the world. They have cost stock traders, in the aggregate, enough millions of dollars to build a concrete highway across the continent.
+ - The market always does what it should do, but not always when.
+ - A market does not culminate in one grand blaze of glory. Neither does it end with a sudden reversal of form. A market can and does often cease to be a bull market long before prices generally begin to break.
+ - A man must study general conditions, to seize them so as to be able to anticipate probabilities.
+ - The price pattern reminds you that every movement of importance is but a repetition of similar price movements, that just as soon as you can familiarize yourself with the actions of the past, you will be able to anticipate and act correctly and profitably upon forthcoming movements.
+ - People who look for easy money invariable pay for the privilege of proving conclusively that it cannot be found on this earth.
+ - When I’m bearish and I sell a stock, each sale must be at a lower level than the previous sale. When I am buying, the reverse is true. I must buy on a rising scale. I don’t buy long stocks on a scale down, I buy on a scale up.
+ - If somebody had told me my method would not work I nevertheless would have tried it out to make sure for myself, for when I am wrong only one thing convinces me of it, and that is, to lose money. And I am only right when I make money. That is speculating.
+ - If a man is both wise and lucky, he will not make the same mistake twice. But he will make any one of ten thousand brothers or cousins of the original.
+ - If I learned all this so slowly it was because I learned by my mistakes, and some time always elapses between making a mistake and realizing it, and more time between realizing it and exactly determining it.
+ - He will risk half his fortune in the stock market with less reflection that he devotes to the selection of a medium-priced automobile.
+ - I never hesitate to tell a man that I am bullish or bearish. But I do not tell people to buy or sell any particular stock. In a bear market all stocks go down and in a bull market they go up.
+ - Speculation is a hard and trying business, and a speculator must be on the job all the time or he’ll soon have no job to be on.
+ - The only thing to do when a man is wrong is to be right by ceasing to be wrong.
+ - When everyone thinks alike, there isn’t much thinking taking place. Get out when you can, not when you have to.
+ - It isn’t a hunch but the subconscious mind, which is the creative mind, at work. That is the mind which makes artists do things without their knowing how they came to do them. Perhaps with me it was the cumulative effect of a lot of little things individually insignificant but collectively powerful.
+ - I cannot fear to be wrong because I never think I’m wrong until I am proven wrong. In fact, I am uncomfortable unless I am capitalizing my experience.
+ - When a man is right he wants to get all that is coming to him for being right.
+ - If the unusual never happened there would be no difference in people and then there wouldn’t be any fun in life. The game would become merely a matter of addition and subtraction. It would make of us a race of bookkeepers with plodding minds. It’s the guessing that develops a man’s brain power.
+ - I never argue with the tape. To be angry at the market because it unexpectedly or even illogically goes against you is like getting mad at your lungs because you have pneumonia.
+ - It is what people actually did in the stock market that counted – not what they said they were going to do.
+ - I was utterly free of speculative prejudices. The bear side doesn’t appeal to me any more than the bull side, or vice versa. My one steadfast prejudice is against being wrong.
+ - Ignorance at twenty-two isn’t a structural defect.
+ - I don’t know whether I make myself plain, but I never lose my temper over the stock market. I never argue with the tape. Getting sore at the market doesn’t get you anywhere.
+ - Most people, whether bull or bear, when they are right, are right for the wrong reason, in my opinion.
+
+69 quotes

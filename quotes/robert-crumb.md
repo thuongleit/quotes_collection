@@ -1,0 +1,40 @@
+ - I’m an outsider. I will always be an outsider.
+ - You can’t make everybody love you. It’s an exercise in futility, and it’s probably not even a good idea to try.
+ - At least I hate myself as much as I hate anybody else.
+ - I’m just a negative person, a deeply negative person. I see the worst aspects of everything.
+ - Hey kids, while you’re out smashing the state keep a smile on your lips and a song in your hearts.
+ - When I listen to old music, that’s one of the few times that I actually have a kind of love for humanity.
+ - Killing yourself is a major commitment, it takes a kind of courage. Most people just lead lives of cowardly desperation. It’s kinda half suicide where you just dull yourself with substances.
+ - Your vigor for life appalls me.
+ - They can buy talent. You can’t buy it for yourself, but you can buy other people’s talent to serve your purposes. And once an artist does that, he becomes like a plaything of the rich.
+ - I don’t do album covers or CD covers for groups or musicians I don’t like or have no interest in.
+ - I lose patience with long stories. I get people who go, “Crumb, do some long stories, do a graphic novel.” Novel-schmovel.
+ - I draw the line at some things. Some things I won’t do for any amount of money. Like for instance, there’s a couple of CEOs of very large corporations that offered me lots of money to do special pictures for them. And I just refused to do that. Even if it was a million dollars I wouldn’t do it.
+ - You don’t have journalists over there anymore, what they have is public relations people. That’s what they have over in America now. Two-hundred and fifty thousand people in public relations. And a dwindling number of actual reporters and journalists.
+ - I was a child of American popular culture. All I did as a kid was what I could get at the local supermarket or the dime store. Nothing else was seen. Plus what was on television, or the movie theatre. That was it.
+ - Everything that is strong in me has gone into my art work.
+ - I guess I didn’t enjoy drawing very much. It was like homework.
+ - I’m into old-time music, I’m not very interested in modern, popular music at all. And if I’m really into some particular old-time musician, some fiddler or banjo player, I’m always dying of curiosity to see what they look like.
+ - Most of my adult life I had this towering contempt for America.
+ - I felt so painfully isolated that I vowed I would get revenge on the world by becoming a famous cartoonist.
+ - The comics are where all the crazy subconscious stuff comes out.
+ - When I come up against the real world, I just vacillate.
+ - I always had a sketchbook with me when I was young. I was hiding behind it, basically, hiding behind drawing because I couldn’t cope with people in real life; I was very shy and very nervous around people.
+ - The French hold onto their traditions. I was always so alienated in America. My work was this constant reaction to that.
+ - I couldn’t find any good pictures in magazines of ordinary modern street corners in America, so I persuaded this guy I knew in Sacramento – Stanley Something-or-other – to spend a day with me driving around just to take snapshots.
+ - There’s some connection between visual images and music. But there’s plenty of old records where I have no idea what the band looked like, or even what sort of context the music was played in.
+ - The Bible was not written for entertainment purposes, so it’s a real hodgepodge and a compendium of all kinds of stuff.
+ - The fine-art world knows very little about the cartoon world.
+ - Violence begets violence, and then you get leaders who are violent men. And you don’t want that.
+ - Throwaway pens are no good – I never liked them. I’ve tried them all.
+ - I still can’t spend a lot of money on records at collector prices. There’s something in me that just won’t allow me to do that. But I will trade my artwork, which I know is worth thousands of dollars.
+ - Yeah, I was a child of American popular culture.
+ - There’s many heroic underappreciated investigative journalists.
+ - Drawing is a way for me to articulate things inside myself that I can’t otherwise grasp.
+ - I use photos a lot for drawing people and personalities, but they’re almost never photos that I’ve taken.
+ - I didn’t invent anything; it’s all there in the culture; it’s not a big mystery. I just combine my personal experience with classic cartoon stereotypes.
+ - Some of the wealthy collectors have paid lots of money for artwork that I already did, but I didn’t do it with the intention of catering to them. I think part of the reason my work is attractive to people like that is because it doesn’t cater to them.
+ - I knew I was weird by the time I was four. I knew I wasn’t like other boys. I knew I was more fearful. I didn’t like the rough and tumble most boys were into. I knew I was a sissy.
+ - The work itself is what motivates me. I like my own stuff, you know? I like the way it looks. I do it to please myself first.
+
+38 quotes

@@ -1,0 +1,61 @@
+ - The great lesson about filmmaking is never take “no” for an answer, especially if you have a lot of passion and inspiration to do something.
+ - The holy trifecta of directing and filmmaking is character emotion, camera movement and music. When you hit those three, that’s magical. That’s what I’m trying to do.
+ - That’s the most beautiful thing that I like about boxing: you can take a punch. The biggest thing about taking a punch is your ego reacts and there’s no better spiritual lesson than trying to not pay attention to your ego’s reaction.
+ - There’s always hope. Never give up. Walk slowly and drink lots of water. It ain’t a sprint.
+ - I think what makes compelling fiction or cinema is when you’re basically taking the most intense moments of experience and you’re creating a song or a narrative out of it.
+ - Life just happens the way it’s supposed to happen. It delivers you to where it delivers you.
+ - The whole trick is to make it feel like you’re spying on real people’s lives as they get through the day. When I’m writing, I have to trick myself as a writer. If I consciously say, ‘I’m writing,’ I feel all this pressure and somehow it doesn’t feel as real as when it doesn’t seem to count as much.
+ - You learn by trying and failing. Just a lot of hard work and mistakes.
+ - Just work on your craft hard – that’s your only hope of doing anything worthwhile.
+ - You know, veterans come home and they may not be bipolar, but after they’ve been through a war with PTSD or a head injury, their families have a handful when they come home.
+ - The closer you stay to emotional authenticity and people, character authenticity, the less you can go wrong. That’s how I feel now, no matter what you’re doing.
+ - You can’t force a movie to happen. Movies happen when they’re supposed to happen. Everything happens in God’s time. I really believe that.
+ - The Republicans just want to bankrupt the government. They think that the government should do nothing, except maybe support the military. So terrorism is perfect for them.
+ - What do we have in life, really? If we’re lucky we get to a certain age, and we have each other. We have the food we like. We have our crazy little rituals. And we have each other.
+ - Gay marriage is a complete red herring to distract everyone from the economy and the war and health care and education.
+ - I think any spiritual experience that’s worthwhile is not about ego and it will humble you in some way. And also, a Zen monk once said to me, ‘If you’re not laughing, then you’re not getting it.’
+ - And that is also what the movie’s about, going beyond success, what is success ’cause I think success is misperceived as just a cake and it isn’t. There is many things inside that success. There’s a maturity and a heartbreak and sadness and broken glass.
+ - The Fighter was about a family struggling to overcome and fighting each other sometimes, and I went back and rewrote this script which I had written for my son initially because my son has mood disorder.
+ - Quite frankly, the bible is filled with advice that you’d never, want to follow. “Don’t cut your hair on a rainy Thursday because locusts will eat your farm” kind of thing.
+ - I just love real characters; they’re not pretentious, and every emotion is on the surface, they’re regular working people. Their likes, their dislikes, their loves, their hates, their passions; they’re all right there on the surface.
+ - The cinema that I make is a cinema about people, emotion, humanity and passion. It’s not just about what they struggle through, but what they live for. That’s what I love. The music they love, the people they love, the clothing, the hair and the life that they love.
+ - David O. Russell’s best films are thrilling high wire acts that run the moment to moment risk of tumbling to the ground. In his latest, “Joy,” Russell has more trouble than usual keeping his balance on the wire.
+ - A thousand years ago, scientists who wondered about consciousness and the nature of reality were burned at the stake. We still haven’t recovered from that and it’s left us with a culture that no longer investigates consciousness, except on the fringes.
+ - And if you can come through that and still have some connection to your joy you felt when you were a child that’s a very mature kind of a joy that I find inspiring. And Jennifer Lowrence has all that in her, and I’ve watched her have to go through it even in the last few years.
+ - I was frustrated because I couldn’t get going, as I was trying to figure out how to make films. I had various jobs, I taught a SAT class, I was a bartender, I had a day job at an office and was making short films.
+ - I feel profoundly blessed. I feel it’s a great privilege to make any motion picture.
+ - I suppose what I like about Zen is that the teachers are constantly questioning your insight and challenging it, looking for sloppiness or laziness in it, and ways you can go past that.
+ - I make every movie and every scene like it could be my last. That’s the only way I know how to make cinema that stands on its feet. I have to treat it like that. It has to be life and death stakes.
+ - There’s nothing better than having a collaborator that you have a great shorthand with and a great comfort with who’s shepherding the project along. I mean, that’s the best thing that can happen in cinema where there’s many cooks in the kitchen.
+ - That’s just how I see things. I think things that are the most dramatic or tragic can also look the most ridiculous and funny. That’s part of being human.
+ - It’s absurd that we’re so quick to criticize Muslims for being fundamentalist when Christians can be just as extreme and fanatical and frightening.
+ - I hadn’t made that movie before and when I ever met the real Joy Mangano, which happened because De Niro insisted we meet her and her father, that’s what she felt like to us. She impressed us with her quiet, serene authority with herself.
+ - To be honest, I think that Republicans love terrorism.
+ - I got put on jury duty, which is where I learned how to write.
+ - The idea that anyone would think their religious ideas make them morally superior is just preposterous.
+ - You should always make it like it’s your last film. That’s my personal belief. Every filmmaker is going to have another belief. That’s the only way I know to try to make a film that might be good. You got to take it real seriously like it’s your last thing.
+ - The endings for all my characters seem sufficiently human and messy for me to feel comfortable with them. In some ways they have only moved an inch, but sometimes an inch is a great distance.
+ - When I write an email where I outlined a whole scene, it just came out of my unconscious, it comes from a deeper place. The same thing happens when the actors go, take after take, and just get lost in it. When you’re in a house, you don’t think about being in the house; you’re just there.
+ - The religion itself may have some great ideas, but I can’t take it seriously if it’s blatantly exclusionary.
+ - I would say that when I came into this chapter of my filmmaking career, starting with ‘The Fighter,’ there was this sense that you have to go from your instincts and you have to go from your gut, and you have to not hesitate and you have to not hedge.
+ - It’s my experience that endings are never easy, and I think I’m not alone among filmmakers or writers in this.
+ - I think if religion closes discussion or exchange of ideas or curiosity about other views, it’s not true to its core.
+ - What we assert, very often can become our reality. To some degree, everybody can try to shape and control their fate. Everybody picks an identity.
+ - I’m always looking for a way to surprise audiences. That’s, I feel, my job as a director. I felt that Amy Adams playing a tough woman in ‘The Fighter’ was a surprise. People saw her as a princess.
+ - I think audiences deserve the benefit of the doubt. I prefer to be surprised by them rather then just assume they’ll react negatively to any new idea.
+ - Unhappy endings can be as cheap as happy endings.
+ - If something – if you have a good rapport then you’re friends and you’re offered projects together or you discover stories together. Jennifer and I discovered this story together, and it was evident to us we would only do it with each other.
+ - I did a dance sequence in my second short film, which was my best short film, called ‘Hairway to the Stars,’ and I think Chris Wink, the founder of Blue Man Group, was in that. It’s a black-and-white dance sequence. We were Glorious Food waiters together.
+ - One of the things I’ve discovered at my age is I must have enchantment. And that was not clear to me in my earlier years. When I look at my favorite films, the Frank Capra – even Scorsese, even ‘Goodfellas,’ what makes that movie so remarkable is there’s enchantment in their world.
+ - The investigation of consciousness has come to be regarded suspiciously by most smart people and by most scientists. That’s a legacy that began with the Inquisition, which considered non-Christian spiritual inquiry as blasphemous.
+ - There’s nothing better than an actor who is really, really hungry to show everything they’ve got.
+ - Some of Jimmy Stewart’s performance in ‘It’s A Wonderful Life’ is some of the most disturbing performance he ever did, when he falls apart and when he breaks down.
+ - Christianity has been responsible for plenty of horror and death in the world, all supposedly in God’s name.
+ - I got a nomination for director, which means the world to me; it’s just the most exciting thing for me and my family. You do the good hard work, and the rest of it is something you shouldn’t get too caught up in, but when it happens – boy! I respect it.
+ - It’s a closing of the mind that happens when you want to be lazy and go with the easiest answers, like the media do all the time in their sound bytes.
+ - When most people turn on their TVs, they don’t expect a frank discussion of philosophical ideas in their practical context. Or any context.
+ - It’s easier to control people when they’re afraid.
+ - Anything you could ever want or be you already have and are.
+ - The gift of life is the gift to suffer sometimes and to embrace it, heartbreak and all.
+
+59 quotes

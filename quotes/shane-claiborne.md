@@ -1,0 +1,143 @@
+ - Only God is awesome.
+ - Most good things have been said far too many times and just need to be lived.
+ - Over and over, when I ask God why all of these injustices are allowed to exist in the world, I can feel the Spirit whisper to me, You tell me why we allow this to happen. You are my body, my hands, my feet.
+ - My goal is to speak the truth in love. There are a lot of people speaking the truth with no love, and there are a lot of people talking about love without much truth.
+ - The church is a place where broken people can fall in love with a beautiful God.
+ - Love has no limits. Compassion has no party. It is the responsibility of every human being and every institution to end poverty and to interrupt injustice.
+ - How can we worship a homeless man on Sunday and ignore one on Monday?
+ - God comforts the disturbed and disturbs the comfortable.
+ - When we ask God to move a mountain, God may give us a shovel.
+ - Prayer is not so much about convincing God to do what we want God to do as it is about convincing ourselves to do what God wants us to do.
+ - We can tell the world that there is life after death, but the world really seems to be wondering if there is life before death.
+ - All around you, people will be tiptoeing through life, just to arrive at death safely. But dear children, do not tiptoe. Run, hop, skip, or dance, just don’t tiptoe.
+ - The work of community, love, reconciliation, restoration is the work we cannot leave up to politicians. This is the work we are all called to do.
+ - Perhaps there is no more dangerous place for a Christian to be than in safety and comfort, detached from the suffering of others.
+ - It is a beautiful thing when folks in poverty are no longer just a missions project but become genuine friends and family with whom we laugh, cry, dream and struggle.
+ - Discontentment is a gift. It’s the stuff that changes the world.
+ - The church is like Noah’s ark. It stinks, but if you get out of it, you’ll drown.
+ - If you have two coats you have stolen one. We have no right to have more than we need when someone else has less than they need.
+ - Faith is believing in the impossible because we have a God who is master of impossible.
+ - That is the power of the Eucharist. At the communion table you have rich and poor together in the early church and they were being challenged.
+ - And I think that’s what our world is desperately in need of – lovers, people who are building deep, genuine relationships with fellow strugglers along the way, and who actually know the faces of the people behind the issues they are concerned about.
+ - The best critique of what is wrong is the practice of something better. So let’s stop complaining about the church we’ve experienced and work on becoming the church we dream of.
+ - When we realize that we are both wretched and beautiful, we are freed up to see others the same way.
+ - When it comes to the big issues like immigration, everyone has a role. The government has a role. The church has a role. Every Christian has a role.
+ - The Christian icon is not the Stars and Stripes but a cross-flag, and its emblem is not a donkey, an elephant, or an eagle, but a slaughtered lamb.
+ - To be nonpartisan doesn’t mean we’re nonpolitical.
+ - We have to use our discontentment to engage rather than disengage – our hope has to be more powerful than our cynicism.
+ - It is the church’s responsibility, the government’s responsibility, and the personal responsibility of every one of us to love.
+ - Someday war and poverty will be crazy and we will wonder how the world allowed such things to exist.
+ - One by one, these disciples would infect the nations with grace. It wasn’t a call to take the sword or the throne and force the world to bow. Rather, they were to live the contagious love of God, to woo the nations into a new future.
+ - We need good laws, but no law can change a human heart – only God can do that.
+ - There are some Christians who totally disengage from politics and set their minds on heaven so much that their faith is so heavenly minded that it is no earthly good.
+ - If every Christian family brought in a child who needed a family we would put the foster care system out of business.
+ - Recognizing that something is wrong is the first step toward changing the world.
+ - The more I have read the Bible and studied the life of Jesus, the more I have become convinced that Christianity spreads best not through force but through fascination.
+ - There is an innocence or purity that we see in renewals and in the Mennonite church and a new an invigorated civil rights movement.
+ - Rather than finding the devil “out there,” we battle the devil within us. The revolution starts inside each of us.
+ - The Eucharist is a symbol of that as you have bread, the staple food of the poor, and wine, a luxury of the rich, which are brought together at the table.
+ - We can ignore suffering no matter where we live. There are people who live a few miles from me who never see much poverty or the injustices that live on our doorstep.
+ - There is a difference between feeding someone and eating dinner with them. If every Christian at home just made room for the stranger we would end homelessness overnight.
+ - I think of the Catholic worker movement and Dorothy Day and Peter Maurin and others.
+ - I learned more about God from the tears of homeless mothers than any systematic theology ever taught me.
+ - It is a dangerous day when we can take the cross out of the church more easily than the flag. No wonder it is hard for seekers to find God nowadays.
+ - I am sorry that so often the biggest obstacle to God has been Christians. Christians who have had so much to say with our mouths and so little to show with our lives. I am sorry that so often we have forgotten the Christ of our Christianity.
+ - Every 70-year-old needs a young person in their lives to mentor, and every 20-year-old needs a senior.
+ - When one in three Black men are in prison, those larger systemic injustices become a part of what it means to love our neighbor as ourself. We care about dismantling institutional racism. That begins in relationships when you see injustice happen.
+ - The greatest sin of political imagination: Thinking there is no other way except the filthy rotten system we have today.
+ - As brother Cornel West says, “Justice is what love looks like in public.” Injustice anywhere is a threat to justice everywhere.
+ - We give people fish. We teach them to fish. We tear down the walls that have been built up around the fish pond. And we figure out who polluted it.
+ - There is one big misunderstanding of the monastics leaving society.
+ - There is a movement bubbling up that goes beyond cynicism and celebrates a new way of living, a generation that stops complaining about the church it sees and becomes the church it dreams of.
+ - Governments can do lots of things, but there are a lot of things they cannot do. A government can provide good housing, but folks can have a house without having a home. We can keep people breathing with good health care, but they still may not really be alive.
+ - Christians pretty much live like everybody else, they just sprinkle a little Jesus in along the way.
+ - It’s hard to hear the gentle whisper of the Spirit amid the noise of Christendom.
+ - I like how someone once said being a Christian is not about having new ideas but having new eyes. This is the ability to have our hearts broken with the things that break the heart of God. That is part of what it means to be a Christian.
+ - I engage with local politics because it affects people I love. And I engage in national politics because it affects people I love.
+ - Our churches should attract the people Jesus attracted and frustrate the people Jesus frustrated.
+ - When I think of some of the great renewals in the church I think of folks like St. Francis and Clare of Assisi who, through their lifestyle, were challenging the patterns of materialism and militarism and it affected the Christianity of their age.
+ - What the Black lives matter movement is doing is they are making it personal. They are making it hash tagged, exposing the racial injustice that continues to haunt our country in a way that you can’t ignore. There is power in injustice becoming personal.
+ - We might hope to change the world through better, bigger programs to stop global warming, but global warming will not end unless people become less greedy and less wasteful, gaining a fresh vision of what it means to love our global neighbor.
+ - One thing that’s clear in the Scriptures is that the nations do not lead people to peace; rather, people lead the nations to peace.
+ - Believe in miracles. And live in a way that might necessitate one.
+ - The end of war begins with people who believe that another world is possible and that another empire has already interrupted time and space and is taking over this earth with the dreams of God.
+ - When we truly discover how to love our neighbor as our self, Capitalism will not be possible and Marxism will not be necessary.
+ - Faith is being idealistic, because we have made an idol out of the status quo.
+ - The early Christians felt a deep collision with the empire in which they lived, and with politics as usual. They carelessly crossed party lines and built subversive friendships. And we should do that too.
+ - Little movements of communities of ordinary radicals are committed to doing small things with great love.
+ - Somehow Jesus’s reputation has survived all the embarrassing things that Christians have done in his name.
+ - This is what Jesus had in mind: folks coming together, forming close-knit communities and meeting each other’s needs – no kings, no major welfare systems, no presidents necessary. His is a theology and practice for the people of God, not a set of suggestions for empire.
+ - To all my nonbelieving, sort-of-believing, and used-to-be-believing friends: I feel like I should begin with a confession. I am sorry that so often the biggest obstacle to God has been Christians.
+ - Christianity is at its best when it is peculiar, marginalized, suffering, and it is at its worst when it is popular, credible, triumphal, and powerful.
+ - Liturgy and worship were never meant to be confined to the cathedrals and sanctuaries. Liturgy at its best can be performed like a circus or theater – making the Gospel visible as a witness to the world around us.
+ - The time has come for a new kind of conversation, a new kind of Christianity, a new kind of revolution.
+ - That is part of our critique of some of the charity and service work is that we can still keep relationships at a distance by creating programs that offer services but we don’t really create a reconciled community.
+ - Whenever folks say radical Christianity is “a phase” of youth, I tell them they need to meet our 80-year-old nun or my friend Tony Campolo.
+ - The more I travel, the more I see how important it is to each population to see that their history of the good and the bad is remembered by others.
+ - We know the Church wasn’t born 200 years ago. It’s encouraging to see some of the post-denominational churches actually wanting to reconnect with the story and the prayer life of the larger Church.
+ - There are folks who burn the Koran and hold signs saying, “God hates fags” and all sorts of sick things – and they often hijack the headlines with hatred. We know that is not what Christ was like.
+ - You can’t really learn God’s hope like you learn the logic of an argument or the details of a story. It’s more like learning to belly laugh. You catch hope from someone who has it down in their gut.
+ - The dreams get anchored in aged wisdom not some utopian fantasy.
+ - The love that makes community is the willingness to do someone else’s dirty work.
+ - We say it is idealistic to think we can continue to live the way we live – with 5% of the world using half the world’s resources, with $20,000 a second being spent on war.
+ - It doesn’t matter who you are. Everyone has something to offer the movement of justice.
+ - As an American, and especially as a Christian, I am convinced that a love for our own people is not a bad thing, but love doesn’t stop at borders. Love is infinitely boundless and all about holy trespassing and offensive friendships.
+ - I don’t know if you’ve read the Bible, and if you haven’t, I think you may be in a better place than those of us who have read it so much that it has become stale.
+ - Faith is not accepting the world as it is but insisting on building the world God wants.
+ - Biological family is too small of a vision. Patriotism is far too myopic. A love for our own relatives and a love for the people of our own country are not bad things, but our love does not stop at the border.
+ - We need to be politically engaged, but peculiar in how we engage. Jesus and the early Christians had a marvelous political imagination. They turned all the presumptions and ideas of power and blessing upside down.
+ - The true atheist is the one who refuses to see God’s image in the face of their neighbour.
+ - The monastic folks have the spirit of being in the world but not of the world, sort of peculiar people who have gone to the desert to live on the margins of the empire.
+ - The question becomes not just how to accumulate more, but how to covet less.
+ - The problem is that the Chicken-Soup-for-the-Soul stuff may feel good, but none of that typical stuff helps when somebody in your neighborhood is murdered.
+ - Violence is for those who have lost their imagination.
+ - The more I get to know Jesus, the more trouble he seems to get me into.
+ - When the church takes affairs of the state more seriously than they do Jesus, Pax Romana becomes its gospel and the president becomes the Son of God.
+ - No one has seen God, but as we love one another, God lives in us.
+ - There is real value in these local congregations. For me, a lot of it is the value of the sacraments we share. In neighborhoods like ours, the churches provide stability.
+ - I have this certain reluctance when it comes to this idea that we are spiritual but not religious and we want Jesus but not the church. Why can’t we have both?
+ - There is a certain power when old and young come together – we can do more together than we can on our own.
+ - Sometimes our tunnel vision is limited to what we see outside our window. Until racial injustice becomes personal then I don’t think it moves us in our gut.
+ - Dance until they kill you, and then we’ll dance some more.
+ - We’re not church planters. We are community planters and, as we work in our communities, we join local churches.
+ - We have a relational problem with those who are suffering or who are different from us. All of us are most comfortable around people who are like us culturally and economically.
+ - And since we are people of expectation, we are so convinced that another world is coming that we start living as if it were already here.
+ - The world is looking, not for Christians who are perfect, but for Christians who are honest and who are willing to be honest with some of our contradictions and hypocrisy.
+ - Tony Campolo and I both speak a lot, and we began to notice that there were some crowds of old folks that desperately needed some youthful energy, and there were other crowds of young folks that desperately needed some aged wisdom.
+ - The history of the church has been largely a history of “believers” refusing to believe in the way of the crucified Nazarene and instead giving in to the very temptations he resisted – power, relevancy, spectacle.
+ - Certainly the institutional church is ill. It’s hemorrhaging young people at an astronomical rate.
+ - Money has power. And so withholding money has power too, especially when a bunch of people do it together.
+ - We’re remembering each other’s heroes, too. We are learning each other’s songs. We are reminding ourselves that we are a global family praying together. We’re all trying to live in the light of the history that shines through the biblical narrative.
+ - As my friend said that when people say the church is full of hypocrites, he says we always have room for more.
+ - When we were starting our community a bunch of older Benedictine nuns said to us, “If you have any questions or want to pick our brains, please do – we’ve been doing community for about 1,500 years together so we’ve learned a few things.”
+ - So if the world hates us, we take courage that it hated Jesus first. If you’re wondering whether you’ll be safe, just look at what they did to Jesus and those who followed him. There are safer ways to live than by being a Christian.
+ - The question for me is not are we political, but how are we political? We need to be politically engaged, but peculiar in how we engage.
+ - We should refuse to get sucked into political camps and insist on pulling the best out of all of them. That’s what Jesus did – challenge the worst of each camp and pull out the best of each.
+ - This common prayer project has taken years of energy, but we see it not as a way to leave our individual churches, but as a movement we hope to see permeate the larger Church.
+ - We can also cling to the treasures of our faith and get rid of the things that are cluttering that. It is a time we are seeing some trending away from the things that were cluttering our faith.
+ - One of the great dangers in political engagement is misplaced hope.
+ - Jesus still has a really great reputation and the Spirit is still moving. I’ve got a lot of hope for a generation that takes Jesus seriously, once again.
+ - The more recent effort to encourage everyone to pray in common involves so many people.
+ - There are some things to die for but none to kill for.
+ - As Christians, we should be the best collaborators in the world. We should be quick to find unlikely allies and subversive friends, like Jesus did.
+ - There are financial bankruptcies in many parts of the church. No question about that. But we see the possibility of reimagining and revitalizing the church.
+ - There is extreme poverty in Appalachia, where I was, and increasingly poverty is not just an urban thing.
+ - We’ve heard from people all around the world, telling us that this is their reality. People need a way to connect the sometimes really hard reality in which they wake up each morning with the movement of the Spirit.
+ - Charity is merely returning what we have stolen.
+ - God doesn’t want to change the world without you.
+ - What is the point in calling anything God if it does not also hold sway in every part of one’s life – especially one’s politics?
+ - We have been mentored from the very beginning by Catholic folks who are invigorating the best of the monastic spirit.
+ - There is nothing more sickening than talking about poverty over a fancy dinner.
+ - Jesus did not send us into the world to make believers but to make disciples.
+ - In fact, the Gospel shows us change comes from the bottom rather than the top, from an old rugged cross rather than a gold royal throne.
+ - In the Bible, God uses brothel owners, pagan kings, murderers and mercenaries as instruments of good; at one point God even speaks to a guy named Balaam through his donkey.
+ - We are setting ourselves up for disappointment if our hope is built on anything less than Jesus.
+ - Look through the prayer books. You’ll see lots of dates. You’ll see names of Native Americans remembered. This was an open-sourcing project among so many people.
+ - There’s an understanding of common prayer that I think we’re seeing grow, more and more. When I travel, I hear from people who are deeply touched that our common prayer takes time to remember some of the terrible tragedies that have happened around the world.
+ - God can use anything, and anyone – even a king or a president, even a tax collector or a businessman, a priest or a prostitute, a Republican or a Democrat.
+ - Too often we just do what makes sense to us and ask God to bless it.
+ - But as I pursued that dream of upward mobility preparing for college, things just didn’t fit together. As I read Scriptures about how the last will be first, I started wondering why I was working so hard to be first.
+ - With the early Christians you couldn’t have God as your father unless you have the church as your mother. This isn’t accepting the church as a perfect thing.
+ - It’s always a good idea to have a nun next to you when you get arrested!
+
+141 quotes

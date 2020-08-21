@@ -1,0 +1,52 @@
+ - Good company in a journey makes the way seem shorter.
+ - You cannot lose what you never had.
+ - I have laid aside business, and gone a’fishing.
+ - If you can’t be content with what you have received, be thankful for what you have escaped.
+ - He that loses his conscience has nothing left that is worth keeping. Therefore be sure you look to that, and in the next place look to your health; and if you have it, praise God and value it next to a good conscience.
+ - Look to your health; and if you have it, praise God and value it next to conscience; for health is the second blessing that we mortals are capable of, a blessing money can’t buy.
+ - No life is so happy and so pleasant as the life of the well-govern’d angler.
+ - God has two dwellings; one in heaven, and the other in a meek and thankful heart.
+ - The Waters are Nature’s storehouse in which she locks up her wonders...
+ - Doubtless God Could Have Made A Better Berry, But Doubtless God Never Did.
+ - Rivers and the inhabitants of the watery elements are made for wise men to contemplate and for fools to pass by without consideration.
+ - God never did make a more calm, quiet, innocent recreation than angling.
+ - Blessings upon all that hate contention, and love quietnesse, and vertue, and Angling.
+ - O, sir, doubt not that Angling is an art; is it not an art to deceive a trout with an artificial fly?
+ - I am, Sir, a brother of the angle.
+ - That which is everybody’s business is nobody’s business.
+ - The person who loses their conscience has nothing left worth keeping.
+ - These poor rich men, we anglers pity them perfectly.
+ - I love any discourse of rivers, and fish and fishing.
+ - Angling may be said to be so like the Mathematics that it can never be fully learnt; at least not so fully but that there will still be more new experiments left for the trial of other men that succeed us.
+ - We may say of angling, as Dr. Boteler said of strawberries, Doubtless God could have made a better berry, but doubtless God never did; and so, if I might be judge, God never did make a more calm, quiet, innocent recreation than angling.
+ - Good company and good discourse are the very sinews of virtue.
+ - If all the theories were correct, there wouldn’t be a fish left in all of our lakes and rivers and streams.
+ - Those little nimble musicians of the air, that warble forth their curious ditties, with which nature hath furnished them to the shame of art.
+ - There are offences given and offences not given but taken.
+ - This dish of meat is too good for any but anglers, or very honest men.
+ - But God, who is ableto prevail, wrestled with him, as the Angel did with Jacob, and marked him; marked him for his own.
+ - As no man is born an artist, so no man is born an angler.
+ - An excellent angler, and now with God.
+ - Words are men’s daughters, but God’s sons are things.
+ - Angling may be said to be so like the mathematics that it can never be fully learned.
+ - Angling is somewhat like poetry, men are to be born so: I mean, with inclinations to it, though both may be heightened by discourse and practice.
+ - It is agreed by most men, that the Eele is a most daintie fish; the Romans have esteemed her the Helena of their feasts, and some The Queen of pleasure.
+ - Blessings we enjoy daily, and for most of them, because they be so common, we forget to pay our praises. But let not us, because it is a sacrifice so pleasing to Him who still protects us, and gives us flowers and showers and meat and content.
+ - Let us be thankful for health and competence, and, above all, for a quiet conscience.
+ - Affliction is a divine diet which though it be not pleasing to mankind, yet almighty God hath often imposed it as a good, thought bitter, physic, to those children whose souls are dearest to him.
+ - Angling is somewhat like poetry, men are to be born so...
+ - Lord, what music hast thou provided for Thy saints in heaven, when Thou affordest bad men such music on earth!
+ - So long as thou are ignorant be not ashamed to learn. Ignorance is the greatest of all infirmities, and when justified, the chiefest of all follies.
+ - A companion that feasts the company with and mirth, and leaves out the sin which is usually mixed with them, he is the man; and let me tell you, good company and good discourse are the very sinews of virtue.
+ - We see but the outside of a rich man’s happiness; few consider him to be like the silkworm, that, when she seems to play, is at the very same time consuming herself.
+ - I have then with pleasure concluded with Solomon, Everything is beautiful in his season.
+ - You will find angling to be like the virtue of humanity, which has a calmness of spirit and a world of blessing attending upon it.
+ - Let me tell you that every misery I miss is a new blessing.
+ - The will of man is by his reason swayed.
+ - It was wisely said, by a man of great observation, that there are as many miseries beyond riches as on this side of them.
+ - And for winter fly-fishing it is as useful as an almanac out of date.
+ - I have known a very good, fisher angle diligently four or six hours for a river carp, and not have a bite.
+ - Old-fashioned poetry, but choicely good.
+ - Doubt not but angling will prove to be so pleasant that it will prove to be, like virtue, a reward to itself.
+
+50 quotes

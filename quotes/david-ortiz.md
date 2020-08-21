@@ -1,0 +1,58 @@
+ - I’m a winner, I play to win, I want to make good things go on around me.
+ - I guess the rules aren’t for everyone.
+ - I just want to play baseball.
+ - This is our f – g city. And nobody is going to dictate our freedom.
+ - You just have to go as far as you can go. Everyone works his way up.
+ - Sometimes you just don’t feel the same everyday, it doesn’t matter what you do, but when you have people looking forward to seeing you perform for them, that puts you in the mood, and that’s natural in Boston. That’s why it’s such a special place to play.
+ - I’m very mechanical, so if I have one thing that’s going in the wrong direction when I’m hitting, it’s hard for me to get a hit.
+ - Sometimes when you’re fighting, fighting, fighting, the mind needs some time off and you regroup and get back to normal.
+ - My teammates are the best.
+ - I come to play everyday.
+ - I swing hard all the time. That’s what I’ve done my whole life-hit.
+ - A lot of people write books not at the end of their career. Why you gotta wait until then? When you’re momentum’s going, that’s when people really want to get to know about you.
+ - Through the years I’ve been getting better and better and better, and it’s what you learn though the seasons.
+ - Everybody has something to prove each year. Everybody has a responsibility in this game. Even the batboy.
+ - My parents always told me to stay away from trouble. When I moved away from them at a young age, I was fine because they taught me how to do everything right.
+ - Life is a challenge that you need. There’s things in life that are going to throw you into the ground, but if you learn how to get up, that means you are not a quitter.
+ - My mom, she wasn’t like a baseball mother who knew everything about the game. She just wanted me to be happy with what I was doing.
+ - I’m just another player that comes in and comes out. Everybody’s time is up at some point, I don’t think that’s my problem. I’m just going to keep on trying like I normally do.
+ - Some people think I’m mean, until they get to know me.
+ - I just come do what I’ve got to do, play my game. And I don’t worry if anybody likes it.
+ - You don’t get better as you get older in your career. It’s not natural to have your best years late in your career. So I’m trying to do whatever I can to keep my body feeling good for as long as I can.
+ - I start thinking about life after death. I’ve got to quit thinking about it because it’s very deep. Very deep. Sometimes you start thinking about it, and you don’t feel like you want to be alive, so I don’t like to get all quiet.
+ - I’m an easy person to get along with. Even when I struggle, I have the same attitude.
+ - This jersey that we’re wearing today doesn’t say Red Sox. It says Boston.
+ - I’m not thinking home run, I just want to put a good swing on the ball. When you go looking for home runs, you get off of your swing. So you don’t think of homers when you go up to the plate.
+ - What I don’t want to do is just play for the sake of playing.
+ - Everybody goes through some tough times in their life, no matter what you do. Man, I’ve had my tough times.
+ - I just swing hard in case I hit it – that’s it.
+ - Negativity doesn’t help me.
+ - I showed people that it’s not about guessing what people can do. It’s about saying, ‘Here, show me what you can do.’
+ - I stress a lot, sometimes.
+ - I don’t try to hit the ball 500 feet. It looks good when you hit it 500 feet, but as long as it goes over the fence, it’s a home run. When you swing hard, it takes a little bit of recognition away from you. The power you’re trying to increase – you’re not all the way through it with your vision.
+ - I’m the kind of guy that I never forget my teammates.
+ - My timing’s a little off. But I’m about to get hotter than Jamaica in the middle of August.
+ - I know in my situation, my mind works more than everything else. I’ve been like that my whole career.
+ - Trust me, I play the game for the fans, my family and myself.
+ - I just love the feeling from the fans and when I’m walking on deck I can hear people screaming and wishing you the best. That puts you into the game more than anything.
+ - All I like to do is work every day and have an idea what I want to do.
+ - I’m just trying to work hard every day, trying to be a better player and one day, to be right there with them, one of those special hitters.
+ - My whole career, my swing has always been the most important thing to me. Even when I’m taking a shower, I work on my swing.
+ - If I can’t hit at a high level, I won’t play, and I know there comes a point where my body won’t be able to do that.
+ - People, man, they love hurting people. It’s not even fair.
+ - I try to be as quiet as I can at the plate, but still aggressive.
+ - Whatever country you go to, you need to definitely follow the rules. So I believe it’s very important for people, wherever they go, any immigrant should know or should try to learn something about the culture.
+ - I’m the same guy I’ve always been. I’m the same guy now as when I was hitting 50 home runs. I don’t change.
+ - I never thought that buying supplements and vitamins, it was going to hurt anybody’s feelings.
+ - I try to do things the right way.
+ - You can never fall in love with a team.
+ - I’m a guy that people look at me not only as a guy that hit the ball.
+ - I’ve always been my own hitting coach.
+ - I’m going to be done when I’ve decided that I’m done.
+ - What happened to me should teach everybody that you should never give up on anybody.
+ - You can’t say that being a fan is more serious, because players are trying to do better in order to get paid better.
+ - It doesn’t matter if we were down 3-0. You’ve just got to keep the faith. The game is not over until the last out.
+ - The fans know that I don’t give at-bats away.
+ - I’m the kind of a player who, if you give me something good to hit, I’m going to swing at it. Otherwise, there’s nothing else you can do.
+
+56 quotes

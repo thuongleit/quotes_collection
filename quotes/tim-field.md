@@ -1,0 +1,21 @@
+ - Bullies thrive wherever authority is weak.
+ - Bullying consists of the least competent most aggressive employee projecting their incompetence on to the least aggressive most competent employee and winning.
+ - Any anti-bullying scheme, initiative or policy which fails to mention accountability for the bullies is likely to meet with little, and often no, success.
+ - Never be bullied into silence. Never allow yourself to be made a victim.
+ - The best indicator of a sociopath serial bully is not a clinical diagnosis but the trail of devastation and destruction of lives and livelihoods surrounding this individual throughout their life.
+ - It is the lack of knowledge of, or the unwillingness to recognise, or the deliberate denial of the existence of the serial bully which is the most common reason for an unsatisfactory outcome for both employee and employer.
+ - Nothing can prepare you for living or working with a sociopathic serial bully. It is the most devastating, draining, misunderstood, and ultimately futile experience imaginable.
+ - The vehemence with which a person denies the existence of the serial bully is directly proportional to the congruence of the person’s behaviour with that of the serial bully.
+ - Today’s workplace has become heartless and soulless. Employees are seen as units of labour, automatons, functionaries, objects for achieving designated tasks, and as costs to be minimised.
+ - The challenge of being a manager is to get the best out of everybody, not just the few who are clones of yourself.
+ - Being bullied by a serial bully is equivalent to being stalked or being battered by a partner or being abused as a child and should be accorded the same gravity.
+ - Whilst accidents and assaults injure and kill people quickly and spectacularly, bullying and consequent prolonged negative stress injure and kill people slowly and secretively. The outcome, though, is the same.
+ - There is a light at the end of the tunnel but first you’ll have to find the light switch and change the bulb before switching it on yourself. No problem, as targets of bullying are picked on for their competence and abilities.
+ - Only the best are bullied.
+ - Most organisations have a serial bully. It never ceases to amaze me how one person’s divisive dysfunctional behaviour can permeate the entire organisation like a cancer.
+ - Until there’s a public commitment, and action to back that commitment, a policy is only words on paper.
+ - The serial bully, who in my estimation accounts for about one person in thirty in society, is the single most important threat to the effectiveness of organisations, the profitability of industry, the performance of the economy, and the prosperity of society.
+ - Why does the UK government ignore workplace bullying? Our system of democracy – government and law – is based on the adversarial model. To be successful in these fields, bullying behaviour is almost a prerequisite.
+ - I just want the bullying to stop. That is all I ever wanted. I used to love going to school. Now I hate it.
+
+19 quotes

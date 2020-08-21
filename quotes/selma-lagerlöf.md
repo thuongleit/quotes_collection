@@ -1,0 +1,21 @@
+ - There isn’t much that tastes better than praise from those who are wise and capable.
+ - For, so long as there are interesting books to read, it seems to me that neither I nor anyone else, for that matter, need be unhappy.
+ - Nothing on earth can make up for the loss of one who has loved you.
+ - What is so certain of victory as patience?
+ - There is so little that one can do for the dead!
+ - Women can do nothing that has permanence.
+ - It is a strange thing to come home. While yet on the journey, you cannot at all realize how strange it will be.
+ - There is always a third possibility, as long as you have the ability to find it.
+ - No one is able to enjoy such feast than the one who throws a party in his own mind.
+ - Never repeat a rumor before you have verified it. And if it is true, hold your tongue all the more.
+ - Young horses who cannot bear the whip or spur find life hard. At every smart they start forward and rush to their destruction, and when the way is stony and difficult, they know no better expedient than to overturn the cart and gallop madly away.
+ - Here, no mercy is shown. One hates one’s fellow man to the glory of God.
+ - Strange, when you ask anyone’s advice you see yourself what is right.
+ - There is so much one would rather not believe until one has seen for oneself whether it is true.
+ - He who is sorrowful can force himself to smile, but he who is glad cannot weep.
+ - It is often the case with the silent children about us, that they cherish a dream which they dare not talk about.
+ - More die in flight than in battle.
+ - For what is man’s soul but a flame? It flickers in and around the body of a man as does the flame around the rough log.
+ - A man may be outlawed for the sake of a fish net he has never seen.
+
+19 quotes

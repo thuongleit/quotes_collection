@@ -1,0 +1,24 @@
+ - The worker is the slave of capitalist society, the female worker is the slave of that slave.
+ - The Irish people will only be free, when they own everything from the plough to the stars.
+ - Yes, friends, governments in capitalist society are but committees of the rich to manage the affairs of the capitalist class.
+ - Yes, ruling by fooling, is a great British art with great Irish fools to practice on.
+ - If you remove the English army to-morrow and hoist the green flag over Dublin Castle, unless you set about the organisation of the Socialist Republic your efforts would be in vain.
+ - Don’t be ‘practical’ in politics. To be practical in that sense means that you have schooled yourself to think along the lines, and in the grooves that those who rob you would desire you to think.
+ - Only the Irish working class remains as the incorruptible inheritors of the fight for freedom in Ireland.
+ - If you strike at, imprison, or kill us, out of our prisons or graves we will still evoke a spirit that will thwart you, and perhaps, raise a force that will destroy you! We defy you! Do your worst!
+ - The cause of Labour is the cause of Ireland, and the cause of Ireland is the cause of Labour.
+ - The Irish Republic must be made a word to conjure with – a rallying point for the disaffected, a haven for the oppressed, a point of departure for the socialist, enthusiastic in the cause of human freedom.
+ - We, at least, are not loyal men: we confess to having more respect and honour for the raggedest child of the poorest labourer in Ireland today than for any, even the most virtuous, descendant of the long array of murderers, adulterers and madmen who have sat upon the throne of England.
+ - Apostles of Freedom are ever idolised when dead, but crucified when alive.
+ - We believe in constitutional action in normal times; we believe in revolutionary action in exceptional times.
+ - Without the power of the Industrial Union behind it, Democracy can only enter the State as the victim enters the gullet of the Serpent.
+ - No revolutionary movement is complete without its poetical expression.
+ - However it may be for others, for us of the Citizen Army there is but one ideal – an Ireland ruled, and owned, by Irish men and women, sovereign and independent from the centre to the sea, and flying its own flag outward over all the oceans.
+ - Whenever the clergy succeeded in conquering political power in any country, the result has been disastrous to the interests of religion and inimical to the progress of humanity.
+ - Just as it is true that a stream cannot rise above its source, so it is true that a national literature cannot rise above the moral level of the social conditions of the people from whom it derives its inspiration.
+ - The Irishman in English literature may be said to have been born with an apology in his mouth.
+ - I can always guarantee that the Irish Citizen Army will fight but I cannot guarantee that it will be on time.
+ - Though I have usually posed as a Catholic, I have not done my duty for 15 years, and have not the slightest tincture of faith left...
+ - There can be no perfect Europe in which Ireland is denied even the least of its national rights.
+
+22 quotes

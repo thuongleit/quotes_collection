@@ -1,0 +1,60 @@
+ - Change doesn’t happen overnight. It starts with the desire, then one small step in the right direction.
+ - Everyday you wake up on the right side of the dirt is a good one.
+ - If you have a dream, FOLLOW IT.
+ - You never know who you will meet along life’s journey. You have to be open to risks, but calculated risks, open to winning.
+ - Don’t ever give up. You can’t let discouragement get you down. You can always find negative people that will try to discourage you from your goals. You can’t be discouraged, and you can’t let the word “no” stop you.
+ - I think no matter what the occasion may be, you can never go wrong by showing up at the dinner table with a hot plate of fried chicken.
+ - I believe that everyone should be treated equal. That’s the way I was raised, and that’s the way I live my life.
+ - I was determined to share my positive approach and not let diabetes stand in the way of enjoying my life.
+ - You know, nobody can ever cook as good as your mama.
+ - I am proof that the American dream still exists.
+ - I am guilty of buying way too many gadgets – way too many! And though I try to keep things nice and orderly, sometimes I get distracted and stick saucepans where the stockpots should go.
+ - I’ve got two vices: cigarettes and taters.
+ - I will never use a substitute for butter. Margarine is one molecule away from eating plastic.
+ - I don’t care what the haters and naysayers say. If they make jokes about me, I’ll laugh because they’ll probably be funny.
+ - I am living proof that the American dream still exists. It is still alive and well. There is only one trick, you have to be willing to roll up your sleeves and work very, very hard.
+ - A balanced diet is a cookie in both hands.
+ - Love is like smiling, it never fades and is contagious.
+ - I am so blessed. I’ve been way over-blessed. At 64 years old, I look forward to going to bed every night so I can wake up in the morning and see what blessing is going to come my way that day. Because you never, ever know what God’s got in store for you.
+ - I am proud to be a Southerner.
+ - I love Hershey’s chocolate. I feel the same about chocolate as I do about wine. Connoisseurs like dark chocolate and they like nasty wine that doesn’t taste good to me. I don’t get it!
+ - We are our brothers keeper. Its going to be up to all of us.
+ - Cooking has always brought me a happiness that I didn’t think was available. I just fire up the stove, and things start to fade away.
+ - Love is blind, but marriage is a real eye-opener.
+ - Talking about money is garish. It’s tacky.
+ - I’ll keep peace at all cost, even if I choke to death on my tongue.
+ - There was one thing my daddy wouldn’t tolerate in any shape, form or fashion, and that was being unkind or rude to somebody. That was just very important to my folks. And as it turns out, that was a legacy that he left me that money can’t buy, is how to be able to treat people.
+ - The first thing I did was give up sweet tea because I drank so much. I’d start drinking at lunchtime and wouldn’t set it down until I went to bed. When you calculate how much empty calories and how much sugar I was consuming, it was staggering. So I haven’t had a glass of sweet tea in three years.
+ - I don’t want to spend my life not having good food going into my pie hole. That hole was made for pies.
+ - I’m more spiritual than I am religious. I don’t go to church; I go to the beach.
+ - I pay people very, very well – probably more than I have to. But that costs me less money in the long run because I’m not having to constantly train somebody. I pay them enough that they don’t go seeking a higher scale at the next restaurant.
+ - You can have diabetes and have a piece of cake. You cannot have diabetes and eat a whole cake.
+ - In order to have good fried chicken, you should wash and season the bird the morning you’re preparing it for dinner. Don’t wait and do it right before you start cooking. Throw it in the refrigerator, seasoned, that morning, and give it a chance to soak up all the salt and pepper and goodness.
+ - If you’ve got a good idea and you’re willing to do whatever it takes to pursue it, keep your head up and eyes open because you don’t know when opportunity will come knocking.
+ - When it’s said and done, the one thing I want to leave on this earth is hope. I have felt hopelessness, and it’s a terrible feeling. Hopelessness will destroy you. I want to bring hope to other people.
+ - I found that when I went from Albany to Savannah, that I needed to put that white rice away, and I needed to turn that into Savannah red rice because they were big into that sausage, tomato-y, bell pepper-y rice mixture.
+ - You know, not everybody can afford to pay $58 for prime rib or $650 for a bottle of wine. My friends and I cook for regular families who worry about feeding their kids and paying the bills.
+ - It’s amazing how good getting up and moving makes you feel.
+ - The thought of eating rabbit and squirrels doesn’t appeal to me. And that was on our table quite often as a kid. In your uppity restaurants, they serve a lot of rabbit. But I just can’t help but think of Peter. And deer, I can’t go there, because of Bambi.
+ - You know, I understand that a lot of people, especially up north, put fruits and nuts in their stuffing, which is good, but for myself personally, I love an old-timey savory dressing.
+ - I’m making little changes in my life to take care of myself, like putting in a mile or two on my treadmill every day.
+ - People see me on TV two and three times a day, and see me cooking all these wonderfully Southern, fattening dishes. That’s only 30 days out of 365. And it’s for entertainment.
+ - I wake up every morning happy for where I am in life. It’s not all about the cooking, but the fact that I can contribute by using my influence to help people all over the country. In the last two years, my partners and I have fed more than 10 million hungry people by bringing meat to food banks.
+ - Stone-ground grits are wonderful, but because they take so long to cook, I usually go with quick cooking grits – which I also love. But I never make the instant kind – some things a Southerner just won’t do!
+ - Of course, I will continue to share my favorite Southern recipes, just like my mama, grandmother and family shared with me over the years. And now, I’ll be adding a little bit of a lighter touch to some of these wonderful dishes.
+ - I have a lot of secret uses for sour cream, which is the magic ingredient in my mac and cheese. It’s an old-timey, Southern version, and the sour cream makes it that much creamier. Oh, it’s so good!
+ - You don’t want to make a steady diet of just lettuce. You don’t want to make a steady diet of fried chicken.
+ - Down South, even our vegetables have some pig hidden somewhere in it. A vegetable isn’t a vegetable without a little ham hock.
+ - Would I have fired me? Knowing me? No.
+ - On my show I share all these yummy, fattening recipes, but I tell people, in moderation, in moderation. You can have that little piece of pie.
+ - I know when you think about the South, you think about fried foods, but we eat a tremendous amount of vegetables. I have my own garden, so vegetables have always been a big part of my life. I love broccoli. I love fresh beets. It’s not all about the fried chicken and the biscuits.
+ - I really didn’t have an interest in being in the kitchen until after I was married, when I was 18. It didn’t take me long to realize that Mama was not going to show up at my house every day and cook.
+ - Southerners have never been afraid of seasoning. It’s kind of the other way around; our seasoning is afraid of us.
+ - Onions and bacon cooking up just makes your kitchen smell so good. In fact, one day I’m going to come up with a room deodorizer that smells like bacon and onions. It’s a fabulous smell.
+ - In my house, the Rose Parade and the Rose Bowl Game have always been a grand tradition for ringing in the New Year. To serve as Grand Marshal is a dream come true and I look forward to sharing the celebration with all of the fans and viewers worldwide.
+ - I can’t, myself determine what offends another person.
+ - Having an audience is almost like plugging me into an electrical outlet. People feed me so much of their energy. We have a great time. It’s all about the fellowship.
+ - There’s nothing better than being able to give your children wings so they can soar and fly in the direction they want to go in.
+ - Life is too short to wonder where you hid your waffle maker.
+
+58 quotes

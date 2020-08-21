@@ -1,0 +1,52 @@
+ - Build yourself a book-nest to forget the world without.
+ - Curiosity does, no less than devotion, pilgrims make.
+ - Hope is the most hopeless thing of all.
+ - I would not fear nor wish my fate, but boldly say each night, to-morrow let my sun his beams display, or in clouds hide them; I have lived today.
+ - Come, my best friends, my best books, and lead me on.
+ - Gold begets in brethren hate; Gold in families debate; Gold does friendship separate; Gold does civil wars create.
+ - May I a small house and large garden have; And a few friends, And many books, both true.
+ - Beauty, thou wild fantastic ape Who dost in every country change thy shape!
+ - But what is woman? Only one of nature’s agreeable blunders.
+ - The getting out of doors is the greatest part of the journey.
+ - Why to mute fish should’st thou thyself discoverAnd not to me, thy no less silent lover?
+ - God the first garden made, and the first city Cain.
+ - Fill the bowl with rosy wine, around our temples roses twine, And let us cheerfully awhile, like wine and roses, smile.
+ - Who lets slip fortune, her shall never find: Occasion once past by, is bald behind.
+ - Ah! Wretched and too solitary he who loves not his own company.
+ - Lukewarmness I account a sin, as great in love as in religion.
+ - Nothing so soon the drooping spirits can raise As praises from the men, whom all men praise.
+ - Acquaintance I would have, but when it depends; not on number, but the choice of friends.
+ - There have been fewer friends on earth than kings.
+ - The present is an eternal now.
+ - Stones of small worth may lie unseen by day, But night itself does the rich gem betray.
+ - Of all ills that one endures, hope is a cheap and universal cure.
+ - Life is an incurable disease.
+ - For the whole world, without a native home, Is nothing but a prison of larger room.
+ - His time’s forever, everywhere his place.
+ - The world’s a scene of changes.
+ - It is a hard and nice subject for a man to speak of himself: it grates his own heart to say anything of disparagement, and the reader’s ear to hear anything of praise from him.
+ - To be a husbandman, is but a retreat from the city; to be a philosopher, from the world; or rather, a retreat from the world, as it is man’s, into the world, as it is God’s.
+ - Unbind the charms that in slight fables lie and teach that truth is truest poesy.
+ - Neither the praise nor the blame is our own.
+ - Plenty, as well as Want, can separate friends.
+ - Vain, weak-built isthmus, which dost proudly rise Up between two eternities!
+ - Hope! fortune’s cheating lottery; when for one prize an hundred blanks there be!
+ - Sleep is a god too proud to wait in palaces, and yet so humble too as not to scorn the meanest country cottages.
+ - The monster London laugh at me.
+ - I confess I love littleness almost in all things. A little convenient estate, a little cheerful house, a little company, and a little feast...
+ - Does not the passage of Moses and the Israelites into the Holy Land yield incomparably more poetic variety than the voyages of Ulysses or Aeneas?
+ - Man is too near all kinds of beasts, – a fawning dog, a roaring lion, a thieving fox, a robbing wolf, a dissembling crocodile, a treacherous decoy, and a rapacious vulture.
+ - What shall I do to be for ever known, And make the age to come my own?
+ - The present is all the ready money Fate can give.
+ - This only grant me, that my means may lie, too low for envy, for contempt to high.
+ - There is some help for all the defects of fortune; for, if a man cannot attain to the length of his wishes, he may have his remedy by cutting of them shorter.
+ - The Sunflow’r, thinking ‘twas for him foul shame To nap by daylight, strove t’ excuse the blame; It was not sleep that made him nod, he said, But too great weight and largeness of his head.
+ - All the world’s bravery that delights our eyes is but thy several liveries.
+ - What a brave privilege is it to be free from all contentions, from all envying or being envied, from receiving or paying all kinds of ceremonies!
+ - Poets by Death are conquer’d but the wit Of poets triumphs over it.
+ - All this world’s noise appears to me a dull, ill-acted comedy!
+ - The liberty of a people consists in being governed by laws which they have made themselves, under whatsoever form it be of government; the liberty of a private man, in being master of his own time and actions, as far as may consist with the laws of God and of his country.
+ - As for being much known by sight, and pointed out, I cannot comprehend the honor that lies withal; whatsoever it be, every mountebank has it more than the best doctor.
+ - Solitude can be used well by very few people. They who do must have a knowledge of the world to see the foolishness of it, and enough virtue to despise all the vanity.
+
+50 quotes

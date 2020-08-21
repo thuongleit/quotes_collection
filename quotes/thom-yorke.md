@@ -1,0 +1,253 @@
+ - I’m a creep, I’m a weirdo.
+ - What the hell am I doing here?
+ - Immerse your soul in love.
+ - I’ll take a quiet life And a handshake of carbon monoxide And no alarms and no surprises.
+ - I’m a creep. I’m a weirdo. What the hell am I doing here? I don’t belong here.
+ - I am all the days that you choose to ignore.
+ - I’m listening to Aphex Twin. That makes me cultured and interesting.
+ - Don’t get any big ideas, They’re not gonna happen.
+ - I want to be alone and I want people to notice me – both at the same time.
+ - I’ll drown my beliefs. To have you be in peace.
+ - I became a vegan because I’m better than you.
+ - The only thing more difficult than being a God is being Thom Yorke. Thom Yorke has all these responsibilities, to save the planet. To save the world. To redeem Thom Yorke.
+ - I hate cars. They are so loud, and ugly, and full of toxic exhaust, like radiohead fans.
+ - Sonic the hedgehog is a beautiful statement on capitalism. You spend your whole life collecting yellow rings and then hit one spike and lose them all. And there is a fat man who wants to kill you.
+ - Like a fat raccoon rummaging through the garbage, that how I eat. Like a f-king fat raccoon.
+ - It’s not so much that I’m an atheist so much as the sneaking suspicion that I myself may be god.
+ - It’s easy to be miserable. Being happy is tougher – and cooler.
+ - If I could do just one thing to change the world, I’d make everyone Thom Yorke, and this would be paradise.
+ - You cannot kickstart a dead horse.
+ - In an interstellar burst I am back to save the universe In a fast German car I’m amazed that I survived An airbag saved my life.
+ - Space Jam is my favorite movie. Don’t ask me why, it just is.
+ - When I go forwards, you go backwards And somewhere we will meet.
+ - Most Radiohead songs are actually REM songs, I just have a mentally ill child read the lyrics aloud and then I change the melodies a bit.
+ - People sometimes say we take things too seriously, but it’s the only way you’ll get anywhere.
+ - Ambition makes you look pretty ugly Kicking and squealing gucci little piggy.
+ - I think the most important thing about music is the sense of escape.
+ - Jumped in the river, what did I see? Black-eyed angels swam with me A moonful of stars and astral cars And all the figures I used to see All my lovers were there with me All my past and futures And we all went to heaven in a little row boat There was nothing to fear and nothing to doubt.
+ - My parents mistook me for a sack of potatoes so I sat in the corner of the kitchen for the first 13 years of my life. My birth name is Thom Potatoes.
+ - I lost my virginity to a pumpkin when I was 23. Back then I was convinced I was actually a Vegetable, hell, that’s what the song is about.
+ - It’s the devil’s way now There is no way out You can scream and you can shout It is too late now.
+ - I want to live, breathe, I want to be part of the human race.
+ - I’ve been reading a book lately. That book is Thom Yorke, and the conclusion is that he’s brilliant.
+ - Your fantasies are unlikely. But beautiful.
+ - Women’s underwear section it’s like Narnia’s wardrobe for my erotic delights.
+ - Sometimes I stand in store windows and pretend to be a mannequin. People are like ‘hey, that mannequin looks alot like thom yorke’ Then I start to sing The Gloaming and lurch toward them and they run off horrified.
+ - The whole point of creating music for me is to give voice to things that aren’t normally given voice to.
+ - People in bands don’t have the kind of conversations people might think they have. The best things about being in a band are the things that are unsaid.
+ - I named my son Noah for the same reason Chris Martin named his apple: we’re asses.
+ - I’m Chris Martin with down syndrome.
+ - Alot of my lyrics are about beating my children. ‘Hit the bottom and escape’ is a cry for help. oh god someone stop me.
+ - Time is running out for us But you just move the hands upon the clock You throw coins in the wishing well For us You just move your hands upon the wall.
+ - My nickname in high school was jack-o-lantern because I’m missing 9 teeth.
+ - The more you try to erase me The more, the more The more that I appear.
+ - If I were to be any celebrity, I’d be Chris Martin. I’ve always wondered what it would be like to be jealous of Thom Yorke.
+ - As a boy I was a hermit crab, but I soon came out of my shell. Now I am a pincer crab, and soon I will be at my full power as a deadly nuclear lobster.
+ - Whenever I meet a beauty, I escape or hide in the corner.
+ - You’ll go to hell for what your dirty mind is thinking.
+ - The pointless snide remarks of hammerheaded sharks.
+ - At a better pace Slower and more calculated No chance of escape.
+ - There’s the beautiful people and then there’s the rest of us.
+ - I hate to sound self absorbed, but I’m just going to cast out this pearl of wisdom, if I could give the whole world cancer and kill them and be the last man on earth it would be a sign that god loves me especially.
+ - You are my centre when I spin away.
+ - While you make pretty speeches I’m being cut to shreds You feed me to the lions A delicate balance.
+ - Mephostopheles is the name of a male gigolo I knew. When he’s reaching up to grab me, I suppose it’s an erotic bit of poetry.
+ - I think what makes people ill a lot of the time is the belief that your thoughts are concrete and that you’re responsible for your thoughts. Whereas actually – the way I see it – your thoughts are what the wind blows through your mind.
+ - Metaphorically I am made of chairs. It’s a metaphor though. That means I am not actually made of the chairs.
+ - It’s a fine line between writing something with genuine emotional impact and turning into little idiots feeling sorry for ourselves and playing stadium rock.
+ - If I was made of chocolate I would melt myself in a car to ruin the interior.
+ - I’m the Legendary Radio Head.
+ - Isn’t it strange how someone can be both human and divine at the same time? I am referring, of course, to myself.
+ - Far up above, aliens hover Making home movies for the folks back home Of all these weird creatures that lock up their spirits Drill holes in themselves and live for their secrets.
+ - Are you feeling lucky? Cause I’m on a roll.
+ - Do you think Radiohead is my whole goddamn life? I also have a roadside cart where I sell apples and mincemeat pies.
+ - It is difficult to make political art work.
+ - My uncle used to sit me on his lap and play “ventriloquist”, only I wasn’t wearing pants.
+ - Ironically my brother died in a car accident shortly after Airbag was recorded. He’s not an identical twin so I didn’t care.
+ - And true love waits In haunted attics And true love lives On lollipops and crisps.
+ - My mother tried to abort me herself with a coathanger, hence my wobbly eye.
+ - Look at that fat kid, in the audience. You want some pie you little fatty? I strongly dislike fat kids. Security, please remove him, that fat kid, over there, by the pies.
+ - Technology is killing us. We think it’s helping us but it’s killing us. Don’t ask me why because I don’t have the time or the attention span to complete that thought. Now let’s all hold hands and draw spider monkeys.
+ - Imagine? Yeah I can imagine John Lennon being dead.
+ - It’s not racist if I like the race. But I don’t like Asian people.
+ - I see fat kids on the street all the time and I give them free radiohead t-shirts with bullseyes on them. Later when I see them wearing the t-shirts I shoot at them with bb guns while riding a very large dog and singing kicking squealing gucci little piggy over and over.
+ - Amnesiac was written to make fun of senior citizens with alzheimers. I hate them and I wish they’d die.
+ - I’ve tried crowd surfing but the radiating light that surrounds me kept sending me floating into the heavens. Goddamn I’m beautiful.
+ - Drying up in conversation, You will be the one who cannot talk, All your insides fall to pieces, You just sit there wishing you could still make love.
+ - My nickname in college was talentless midget who has a lazy eye is missing teeth resembles a shaved troll doll because I’m a talentless midget who has a lazy eye is missing teeth resembles a shaved troll dol.
+ - I don’t even have children, it’s just been an excuse to play jenga and hit softballs in my backyard with a box of laundry detergant wearing baby clothes.
+ - I won’t live in a mostly Mexican neighborhood. I’m sorry I just won’t do it.
+ - It’s impossible being me, I radiate a glow that makes others turn and grimace in horror as if staring into the sun.
+ - I am the greatest thing to happen to black music.
+ - OK Computer? More like No Thank You Computers. They killed my father, and I hate them.
+ - It turns out I have clinical schizophrenia. The unborn chicken voices were telling me to kill my family.
+ - Nobody wins the superbowl, I win the superbowl. I am the superbowl.
+ - I often fake my death and then just show up at people’s houses. They say ‘that’s a good one Thom’ but I know maybe they don’t really think it’s a funny joke.
+ - Radiohead is overrated. Thom Yorke’s solo output, however, is brilliant.
+ - Open your mouth wide A universal sigh.
+ - Hunting Bears is a complex song. A bear, as you know is another term for a chubby chaser. The guitar line is actually the sound of a fat man’s thighs rubbing together as he approaches another lardy male for a night of sexual deviance.
+ - Have I told you I have cancer? It’s a very special kind of cancer. Cancer of the soul.
+ - I can’t wait to die so I can be a skeleton and play my chest like a xylophone.
+ - Sometimes the nicest thing to do with a guitar is just look at it.
+ - They love me like I was a brother They protect me, listen to me They dug me my very own garden Gave me sunshine, made me happy Nice dream, nice dream Nice dream.
+ - The allegations of me being a pedophile are spurious, at best. However I will admit that taking my knickers off in the park and having an Easter Egg hunt with those apple-cheeked four year olds was in my best interest and not theirs.
+ - When people ask me for an autograph I usually ask for a pen and then stab them with it.
+ - I don’t think I have a superiority complex. I have a “you’re not Thom Yorke” complex.
+ - 15 Step is about how if you have mental illness and try to dance you look very funny. Whenever you see me dancing on stage, I’m imitating the mentally ill.
+ - I agree with whoever said Spice Girls are soft port. They’re the antichrist.
+ - Rock music is, is a necessary evil, like beating my children with penny loafers.
+ - I’m not saying my fans are stupid, but I once left a cabbage onstage next to a harmonica and nobody noticed for three hours.
+ - I sometimes have birthday parties for the kids in my neighborhood and then pretend to suggest that I am going to molest them to the parents. It’s a hilarious prank even though I am not a paedophile.
+ - I once wrote a song so beautiful that I myself couldn’t sing it. It’s called Plastic Government Cheese Swan, and it’s about how the world is plastic and full of government cheese swans.
+ - Americans are ugly unwashed clods that live off of government cheese. If I could, I’d take every living American, grind them up into a fine paste and use that paste to feed the dolphins, because they are neglected by the evil Americans.
+ - If Bono can release an album out of nowhere then so can I!
+ - I’m not afraid of computers taking over the world. They’re just sitting there. I can hit them with a two by four.
+ - I’m such a tease and you’re such a flirt Routines and schedules A drug that’ll kill you.
+ - My father slapped my thighs with a variety of meats until I began to cry and sulked in the corner. I later became a musician.
+ - One little leak becomes a lake, Says the tiny voice in my earpiece.
+ - I don’t like old friends talking to me like I’m a pop star, cos it makes me feel like I’m becoming two-dimensional.
+ - And I’m sorry for us The dinosaurs roam the earth The sky turns green.
+ - I could blow bubbles. Bubbles would solve any dilemma we face. If bubbles were president there would be no war.
+ - When I was four I read the story of horton hears a who and I cried. I wanted to eat that elephant.
+ - If we replaced all of our guns with chicken sandwiches it would end all war immediately.
+ - How come I end up where I started? How come I end up where I went wrong? You used to be alright What happened?
+ - I once tried playing baseball but I started crying.
+ - At home I’ve got a very puerile, juvenile sense of humour.
+ - I can be very drunk in a club in Oxford on a Monday night, and some guy comes up to you and buys you a drink and says that the last record you made changed his life. That means something.
+ - I would rather die then let my kids eat cup a soup.
+ - When I was born, my mother didn’t know what to name me. Eventually she named me after Thom Yorke.
+ - I have no idea what I am talking about I’m trapped in this body and can’t get out.
+ - I recently enrolled at an elementary school and they accepted me. I am finally going to get revenge on those kids that beat me up as a boy, assuming they are still attending.
+ - I could not extrapolate some emotion from any song after 1997 so I bought a drum machine and popped pills. The pink ones make me funny like elephants!
+ - Maybe I’m not the gloaming witches smart, but at least I’m not our stupid liffey hamburger mongrels.
+ - Treefingers is important, it’s the point in which our protagonist crosses the icy tundra that is how to disappear completely to reach the island of Optimistic. But seriously, kill yourself.
+ - I cannot read a fortune cookie without breaking down and crying. I am sensitive.
+ - My heart is a weatherballoon caught in an updraft of a chinese tax percentage, the tax percentages are unequivocaaaaaaaaaal, Unequivocaaaaaaaaal. This is the sort of lyrics you could never think of, loser. Here’s a razorblade go cut yourself.
+ - What’s the difference between Thom Yorke and a pizza? Pizza’s not as cheesy and delicious as Thom Yorke.
+ - I’m banned from Middlebrook elementary for telling dirty jokes to the janitor. The janitor! He cleans up dirt for a living.
+ - You know, it’s never easy to understand why I do what I do. For other people, I mean.
+ - It’s hard being Thom Yorke. You have to get up every morning and look at that face and not shoot at it with a gun.
+ - This was something that was obsessing me and creating a writer’s block. To get involved and get stuck in, get the proper information about what’s going on has really helped.
+ - Someone needs to tell the truth, but it shouldn’t be my job.
+ - I’m not taking things quite so seriously as before. Especially myself.
+ - I don’t think young people are as demoralized as the media and government would like us to think. The obvious sign of that is how strong and how close personal connections are and how much people are able to build a life for themselves, despite all this stuff that’s been thrown at them.
+ - There are a lot of things I cannot do, such as eat books and read chicken.
+ - When you’re a parent, then you still have to commit to this concept of, “Okay, I’m basically out of action now for three months.”
+ - Yeah, after making Pablo Honey, we started experimenting with cloning myself in order to double the band’s creative energy. However, the experiment was a failure, and the defective Thom Yorke clone escaped. And formed a band called Muse.
+ - So how come it looks so beautiful? How come the moon falls from the sky?
+ - Build gaps in your life. Pauses. Proper pauses.
+ - I guess I am narcisstic, but only in the sense that I am brilliant and tortured as well.
+ - If you want to be entertained, go and see Hanson.
+ - Music is more difficult – try naming a political band. The Dead Kennedys. The Dead Kennedys are political, but they are more funny than they are political.
+ - My only means of self defense is to wiggle my eye and feign being a salamander. It has saved my life but once I was partially eaten by a bald eagle who thought I was a salamander. Hence, my skills. Hence.
+ - If I were a bottle of wine, my name would be Thom Cork.
+ - I don’t see it in terms of changing things, but rather using language and music as weapons for fighting a mainstream media which is predominately right wing, and loyal to the political framework and its corporate interests.
+ - I will never run out of quotes. I am, after all, the Thom Yorke.
+ - I don’t really think of most non-English as people, more or less indigenous squirrels that I fancy to kick around with my snakeskin French Persian Boots.
+ - I once got hit with a taser at a concert and everyone thought I was dancing. Now I have to do that dance, at every show for the rest of my life, or admit that a taser can damage the Thom Yorke.
+ - Have you ever seen any member of radiohead aside from me in public? Do they interact or ‘lift’ objects? Holograms, all of them. I created them in 1991 using my massive brainpower. Even pitchforkmedia is a product of my brilliant imagination.
+ - You can’t make an egg without frying an egg.
+ - Thom Yorke has a beautiful brain.
+ - Trying to find my flaws is like trying to find a black person at one of our concerts.
+ - Most of my dancing is actually convulsions from having to listen to my own music.
+ - Cigarrettes make you look cool.
+ - I think sometimes all the charities are doing is mopping up the blood. It’s a shame.
+ - If I could be any famous person, I’d be John Wilkes Booth, because I’d love to shoot Abraham Lincoln in the face.
+ - And then computers got to a point where you could just record directly into them. So when that happened, funny enough, I thought, Right, I’m going to learn how to do this because then I can understand that part.
+ - The only thing worse than Radiohead fans is everything else except me.
+ - I had a dream where my face was a hamburger. What the?
+ - I’m still not certain on the nature of the spork, whether it is a fork and a spoon, or a fork and a knife mixed together, or maybe a fork and a fork on top. Life is full of mysteries yeah man.
+ - I have multiple personalities, but, being a fairly uncreative individual, they are all Thom Yorke.
+ - And if the world does turn, and if London burns, I’ll be standing on the beach with my guitar. I want to be in a band, when I get to Heaven. Anyone can play guitar, and they won’t be a nothing anymore...
+ - I’ve never believed that pop music is escapist trash. There’s always a darkness in it, even amidst great pop music.
+ - I don’t know why people called me Tom. My name is THUMB.
+ - The thing I remember most about America is that it’s silly. That can be quite a relief at times.
+ - If we got into a situation where people start burning our records, then bring it on. That’s the whole point. The gloaming has begun. We’re in the darkness. This has happened before. Go read some history.
+ - I’m even taller in person, because photographs shrink you down and steal your soul native american.
+ - I stopped showering ever since I realized water causes people to drown. I cannot risk being so close to something that can murder me. Do you let killers into your house? Oh, but you let a murderer come out of your own faucet. Hypocrite.
+ - I’m terrified of lasagna. I think it was to eat ME!
+ - The hardest part about being in radiohead is being inside a giant head that is a radio. Ha ha, little english humour there, or is it a hammer?
+ - I bought a blimp just so I could get a bunch of wankers excited over nothing, what did you do with your weekend?
+ - And I know I’m paranoid and neurotic, I’ve made a career out of it.
+ - We don’t have to stand on a soap-box and preach because hopefully we’re channelling it through the new record.
+ - I don’t write lyrics, the lyrics write Thom Yorke.
+ - If the media spotlight affects my work or represses what I want to say in the future, then it is bad.
+ - I suppose one thing that’s always fascinated me is that thing where you’re a band and you want to start recording and you get a label and a producer, and then there’s that pressure to go out there and really toil.
+ - I grew up under Thatcher. I grew up believing that I was fundamentally powerless. Then gradually over the years it occurred to me that this was actually a very convenient myth for the state.
+ - I often steal sandwiches, eat them, and put the container’s back., with a signed autograph of my self in its place. It’s my way of giving back to society.
+ - Anybody can make ‘good’ music. I make terrible music, which is what makes it so different, and therefore better.
+ - Someone once asked me how the universe was created, I told him it all began with Pablo Honey.
+ - Getting everything you want has nothing to do with anything.
+ - And the moral of the story is I’m Thom Yorke.
+ - Well, I’ve been reading a lot about the fifty years since the Second World War, about Western foreign policy and all that. I try not to let it get to me, but sometimes I just think that there’s no hope.
+ - There’s nothing more boring than a rock’n’roll star. Someone who has been on the road for 10 years, expecting attention wherever he goes, drinking himself stupid, who is obnoxious, incoherent, uncreative, and has a massive ego. There’s nothing more pointless.
+ - If you don’t trust everybody on stage with you, then you’re in trouble.
+ - It will be only a matter of time before the music business establishment completely folds.
+ - If you’re bored of the songs, you’re bored of the songs. There’s not much you can do.
+ - I’d go onstage doing this thing, trying to fill this arena that I can’t fill because I don’t understand what this is. It’s like you’re given a job that’s beyond you. And it’s taken me years to realize what works in those big situations.
+ - Occasionally I’ll just pull out a rifle and shoot one of my audience members. So far there have been no complaints filed.
+ - I’m horrified of leprechauns. I’m horrified that I might be leprechauns.
+ - I tell you what’s really ridiculous – going into a bookstore and there’s all these books about yourself. In a way, it feels like you’re already dead.
+ - If I weren’t in Radiohead I’d be working at a grocery store, I’d be that creepy guy who lives in an efficiency apartment and collects salted, cured meats.
+ - I think we’re entering a very dangerous time. The West has set itself up, decided it’s in charge, not for good intentions, not for the benefit of mankind.
+ - It’s God’s will that millions of people are gonna die this year because of some outmoded economic policies? No, it’s not!
+ - All of our saddest songs have somewhere in them at least a glimmer of resolve – Street Spirit has no resolve. It is the dark tunnel without the light at the end.
+ - Remember that Cosby show where he harrassed the children? Well I put on a little suit and because I am so small they invited me on but nobody was laughing at my jokes. I guess I’m just, too, particularly smart for them.
+ - Bulletproof is about the fact that I was shot in the face and survived. Nah I’m joking that’d be grisly and awful.
+ - The hardest part about being in Radiohead is listening to my own music.
+ - One person can’t change the world. But Thom Yorke can, because he’s two people. Both of them are Thom Yorke.
+ - I wrote a lot of stuff quickly: pages and pages of notes that seemed pretty incoherent at first. Most of it was taken from the radio because -suddenly being a parent- I’d be confronted by the radio giving a news report every hour of the day.
+ - The people in charge, globally, are maniacs. They are maniacs, and unless we do something about it these people are going to deprive us of a future.
+ - I didn’t ask to be Thom Yorke. Thom Yorke asked to be me.
+ - You do it to yourself, you do, And that’s what really hurts, Is you do it to yourself, just you, You and no-one else, You do it to yourself.
+ - Our merchandised may be over priced, but I think it’s reasonable considering I only want more money.
+ - Can you imagine a world in which the letter O does not exist? My name would be Thm Yrke. Think about that.
+ - I’m actually an athiest. That’s kind of deep you must admit.
+ - There’s an upside to the digital thing from my point of view because I find that I have access to all this wacky, weird-ass dance-music stuff that I just can’t go into a shop and buy on vinyl.
+ - One of the interesting things here is that the people who should be shaping the future are politicians. But the political framework itself is so dead and closed that people look to other sources, like artists, because art and music allow people a certain freedom.
+ - When even your fans are writing to tell you to get a life, you know you need to listen.
+ - Obviously, the duty of artists is there, but it’s more an indictment of the political system that someone like Zinn views artists as the seers, idealizing them as the people responsible for inspiring change.
+ - Coming from Britain, I was terrified of meeting all these other artists, because artists over there tend to fight with each other a lot, the premise being that there’s not enough room for everybody.
+ - It’s maybe a good thing to try to make music that feels reassuring in some ways – something that’s got a good feeling, a good vibe about it.
+ - People are born with certain faces, like my father was born with a face that people want to hit.
+ - Well, it only dawned on me about six months ago that not everybody’s against me all the time. It was something of a revelation.
+ - My name may be Thom Yorke, but only I can call me Thom Yorke.
+ - In America, there seems to be more focus on the idea that it’s important to do things differently. In Britain, it’s not an issue.
+ - I think no artist can claim to have any access to the truth, or an authentic version of an event. But obviously they have slightly better means at their disposal because they have their art to energize whatever it is they’re trying to write about. They have music.
+ - The only real difference between me and chocolate pudding is that I am not a black man.
+ - The video of ‘Paranoid Android’ has been censored by MTV. They took all nipples out of the cartoon, but they had no problem with the scene in which a man cuts off his own arms and legs.
+ - Being in a band turns you into a child and keeps you there.
+ - The society, is, a dishwasher, where all the water, is, dead chipmunk blood. God I’m brilliant.
+ - I may have found the cure for cancer, and I think it might be Thom Yorke Serum.
+ - I’m terrible at jigsaw puzzles. Other people solve the puzzle but I just keep trying to make the pieces that don’t fit fit. I guess that’s what makes me special, I try to assemble jigsaw puzzles incorrectly.
+ - Well actually I’m not a man but a carrot. The band was eating salads one day and a carrot fell off of the salad bar onto a microphone and the band realized that they had just discovered something brilliant. Me.
+ - I think escape is sort of like coming to a show with ten thousand other people and responding to that moment. Sharing that moment – that’s escape.
+ - I think a lot of tunes can suffer from being so simple, so either they get over-complicated or their simplicity means the simple way to lay them down becomes the difficulty.
+ - I wear my pants on my upper torso to be abstract and different.
+ - The head of state Has called for me by name But I don’t have time for him It’s gonna be a glorious day I feel my luck could change.
+ - My dad spent his whole life getting into fights for telling what he believed to be the truth. Basically it comes from my dad-and he’s screaming right-wing, so there you are.
+ - Generally speaking, if people are prepared to stick their heads above the power pit, like Zinn says, and absorb what’s going on around them, it makes them think.
+ - I was abducted by aliens as a boy. Aliens is the name of a pedophile who lived in my alley.
+ - We didn’t start out to make a protest record at all. That would have been too shallow. As usual, it was simply a case of absorbing what’s going on around us.
+ - If I had one wish I’d wish for a million wishes because I am clever.
+ - I’d like to run for president. Or Prime Minister. I think I could do a better job.
+ - I think maybe since there isn’t a great deal of access to the mainstream media and people don’t understand the language of mainstream media, if you put music out there with lyrics that are loosely political, people absorb some of it and spit it back out.
+ - I grew up believing that I was fundamentally powerless.
+ - There’s a pervading sense of loneliness I’ve had since the day I was born. Maybe a lot of other people feel the same way, but I’m not about to run up and down the street asking everybody if they’re as lonely as I am. I’d probably get locked up.
+ - My songs are my kids. Some of them stay with me, some others I have to send out, out to the war. It might sound stupid and it might even sound naive, but that’s just the way it is.
+ - I’m baking stories, and singing cookies, oh the tonderous wimes!
+ - If there are political programs on TV, yet it takes an artist to actually energize political debate, that tells you something really quite frightening about the level of the political debate happening on mainstream channels – right-wing-biased mothers.
+ - So ultimately, it’s idealistic to think that artists are able to step away from the power of the media and the way it controls things, and go on doing their own things.
+ - Where are you sleeping tonight? Face down in the mud? That’s a British tradition: Take acid and fall asleep in some field.
+ - We weren’t listening to guitar bands, we were thoroughly ashamed of being a guitar band. So we bought loads of keyboards and learned how to use them, and when we got bored we went back to guitars.
+ - I’m a full grown man and I’m not tall enough to ride a rollercoaster. So I will sit on the teacups, eat my tea and biscuits and reminisce with the cheshire cat who lives in my head. Oh hello Mr. Cheshire, lovely weather this morning. Mr. Cheshire? Oh my god.
+ - If Radiohead were a fruit we would be apples, because apples are festive.
+ - Making music for Radiohead is like going to the bathroom, I’m just going to the bathroom constantly, and millions are watching me go to the bathroom.
+ - My argument would be that I don’t think there is much that’s genuinely political art that is good art.
+ - Is Thom Yorke there? Oh he is? Well then how the can I be Thom Yorke, talking to you, right here, on the phone.
+ - There was a clown that tried to eat me as a boy, in my nightmares. Years later I found a clown for booking online who resembled him named Patches. Needless to say, Patches is dead now.
+ - She looks like the real thing, She tastes like the real thing, My fake plastic love. But I can’t help the feeling, I could blow through the ceiling If I just turned and ran.
+ - Everyone has got the fear It’s holding on Holding on.
+ - I’m not a martyr, just a musician who dies for your sins. Oh, that’s what a martyr is? Very well then, I am a martyr, if you insist.
+
+251 quotes

@@ -1,0 +1,177 @@
+ - I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye.
+ - You must take life the way it comes at you and make the best of it.
+ - To choose doubt as a philosophy of life is akin to choosing immobility as a means of transportation.
+ - My life is like a memento mori painting from European art: there is always a grinning skull at my side to remind me of the folly of human ambition.
+ - I have a story that will make you believe in God.
+ - Even when God seemed to have abandoned me, he was watching. Even when he seemed indifferent to my suffering, he was watching. And when I was beyond all hope of saving, he gave me rest. Then he gave me a sign to continue my journey.
+ - I can only tell my story, what you believe is up to you.
+ - How long does it take for a broken spirit to kill a body that has food, water and shelter?
+ - Life is so beautiful that death has fallen in love with it, a jealous, possessive love that grabs at what it can. But life leaps over oblivion lightly, losing only a thing or two of no importance, and gloom is but the passing shadow of a cloud...
+ - When you’ve suffered a great deal in life, each additional pain is both unbearable and trifling.
+ - It is simple and brutal: a person can get used to anything, even to killing.
+ - If you don’t have dreams, how do you maneuver reality? Where do you get the ideas to change reality if not from dreams?
+ - There is nothing more satisfying than having a sentence fall into place in a way you feel is right, and then adding another one and then another one. It’s extraordinarily satisfying.
+ - If we, citizens, do not support our artists, then we sacrifice our imagination on the altar of crude reality and we end up believing in nothing and having worthless dreams.
+ - Afterwards, when it’s all over, you meet God. What do you say to God?
+ - I challenge anyone to understand Islam, its spirit, and not to love it. It is a beautiful religion of brotherhood and devotion.
+ - Work, work, work, but what mark do we leave, what point do we make? People who are too beholden to work become like erasers: as things move forward, they leave in their wake no trace of themselves.
+ - Faith in God is an opening up, a letting go, a deep trust, a free act of love – but sometimes it was so hard to love.
+ - Reality is how we interpret it. Imagination and volition play a part in that interpretation. Which means that all reality is to some extent a fiction.
+ - It is true that those we meet can change us, sometimes so profoundly that we are not the same afterwards, even unto our names.
+ - Dare I say I miss him? I do. I miss him. I still see him in my dreams. They are nightmares mostly, but nightmares tinged with love. Such is the strangeness of the human heart.
+ - All living things contain a measure of madness that moves them in strange, sometimes inexplicable ways. This madness can be saving; it is part and parcel of the ability to adapt. Without it, no species would survive.
+ - I love cinema. I think the risk of the aesthetics being fixed is compensated by other advantages. Cinema is visually powerful, it is a complete experience, reaches different audience. It’s something I really like. I like movies.
+ - The animals might embody certain traits. We think of tigers as being ferocious, etc. But to my mind, it was the other way around: the humans embodied certain animal traits.
+ - Bapu Gandhi said, ‘All religions are true.’ I just want to love God.
+ - I love Canada. Its a wonderful political act of faith that exists atop a breathtakingly beautiful land.
+ - I did not count the days or the weeks or the months. Time is an illusion that only makes us pant. I survived because I forgot even the very notion of time.
+ - To me, religion is about our dignity, not our depravity.
+ - Fanatics do not have faith – they have belief. With faith you let go. You trust. Whereas with belief you cling.
+ - That’s what fiction is about, isn’t it, the selective transforming of reality? The twisting of it to bring out its essence?
+ - As much as I love movies, it would be presumptuous of me to think that I know how to make one.
+ - He’s a shy man. Life has taught him not to show off what is most precious to him.
+ - If you stumble about believability, what are you living for? Love is hard to believe, ask any lover. Life is hard to believe, ask any scientist. God is hard to believe, ask any believer. What is your problem with hard to believe?
+ - It’s important in life to conclude things properly. Only then can you let go. Otherwise you are left with words you should have said but never did, and your heart is heavy with remorse.
+ - The reason death sticks so closely to life isn’t biological necessity – it’s envy.
+ - Don’t you bully me with your politeness!
+ - Words are much better at relating emotions and thoughts.
+ - If literature does one thing, it makes you more empathetic by making you live other lives and feel the pain of others. Ideologues don’t feel the pain of others because they haven’t imaginatively got under their skins.
+ - As for hearing, the sloth is not so much deaf as uninterested in sound.
+ - Life is an interpretation of a series of facts, and that interpretation is really what life is about. So the division between non-fiction and fiction has a certain logic, but it’s a very limited one. And by and large, it isn’t helpful.
+ - Art is the suitcase of history, carrying the essentials. Art is the life buoy of history. Art is seed, art is memory, art is vaccine.
+ - Books, like people, can’t be reduced to the cost of the materials with which they were made. Books, like people, become unique and precious once you get to know them.
+ - Life on a lifeboat isn’t much of a life.
+ - The lower you are, the higher your mind will want to soar.
+ - My gratitude to him is as boundless as the Pacific ocean.
+ - You might think I lost all hope at that point. I did. And as a result I perked up and felt much better.
+ - A realization that the founding principle of existence is what we call love, which works itself out sometimes not clearly, not cleanly, not immediately, nonetheless ineluctably.
+ - My suffering left me sad and gloomy.
+ - Life on a lifeboat isn’t much of a life. It is like an end game in chess, a game with few pieces. The elements couldn’t be more simple, nor the stakes higher.
+ - Religion is more than rite and ritual.
+ - If there’s only one nation in the sky, shouldn’t all passports be valid for it?
+ - We think we live in a global village. We don’t. The world is a big and beautiful and incredibly varied place. It can only be known locally, with your two feet on the ground. We should stick to our own gardens, as Voltaire said.
+ - I’m not a consumer. I hate buying clothes. I don’t have a mobile. I just don’t need things. I don’t like things.
+ - India is a place where all stories are possible. You forget that the imagination can take hold of anything and contemplate it and love it and describe it.
+ - You can get used to anything – haven’t I already said that? Isn’t that what all survivors say?
+ - I have nothing to say of my working life, only that a tie is a noose, and inverted though it is, it will hang a man nonetheless if he’s not careful.
+ - I know what you want. You want a story that won’t surprise you. That will confirm what you already know. That won’t make you see higher or further or differently. You want a flat story. An immobile story. You want dry, yeastless factuality.
+ - Misery loves company, and madness calls it forth.
+ - Blessed be shock. Blessed be the part of us that protects us from too much pain and sorrow. At the heart of life is a fusebox.
+ - Hindus, in their capacity for love, are indeed hairless Christians, just as Muslims, in the way they see God in everything, are bearded Hindus, and Christians, in their devotion to God, are hat wearing Muslims.
+ - Jesus, Mary, Muhammad and Vishnu, how good to see you Richard Parker!
+ - Atheists are my brothers and sisters of a different faith, and every word they speak speaks of faith. Like me, they go as far as the legs of reason will carry them – and then they leap.
+ - Stories – individual stories, family stories, national stories – are what stitch together the disparate elements of human existence into a coherent whole. We are story animals.
+ - Fiction and nonfiction are not so easily divided. Fiction may not be real, but it’s true; it goes beyond the garland of facts to get to emotional and psychological truths.
+ - Artists invent things as a way of telling the truth.
+ - The presence of God is the finest of rewards.
+ - Quickly you make rash decisions. You dismiss your last allies: hope and trust. There, you’ve defeated yourself. Fear, which is but an impression, has triumphed over you.
+ - My greatest wish – other than salvation – was to have a book. A long book with a never-ending story. One I could read again and again, with new eyes and a fresh understanding each time.
+ - Books are something social – a writer speaking to a reader – so I think making the reading of a book the center of a social event, the meeting of a book club, is a brilliant idea.
+ - Was it the forgetfulness of old age or personal incapacity that made the man able to say please but not thank you?
+ - If you are pitched into misery, remember that your days on this earth are counted and you might as well make the best of those you have left.
+ - I find that movies tend to fix the aesthetics of a story in people’s minds.
+ - Just do it. Get it down on the page. Work hard. And then let go. Ask yourself why you want to write. You have to be clear about that.
+ - It’s amazing how willpower can build walls.
+ - Everything was screaming: the sea, the wind, my heart.
+ - I couldn’t get Him out of my head. Still can’t. I spent three solid days thinking about Him. The more He bothered me, the less I coul forget Him. And the more I learned about Him, the less I wanted to leave Him.
+ - I wish I could convey the perfection of a seal slipping into water or a spider monkey swinging from point to point or a lion merely turning its head. But language founders in such seas. Better to picture it in your head if you want to feel it.
+ - When your own life is threatened, your sense of empathy is blunted by a terrible, selfish hunger for survival.
+ - First wonder goes deepest; wonder after that fits in the impression made by the first.
+ - High calls low and low calls high. I tell you, if you were in such dire straits as I was, you too would elevate your thoughts. The lower you are, the higher your mind will want to soar.
+ - My zoology thesis was a functional analysis of the thyroid gland of the three-toed sloth. I chose the sloth because its demeanour – calm, quiet and introspective – did something to soothe my shattered self.
+ - I thought they were helping me. I was so full of trust in them that I felt grateful as they carried me in the air. Only when they threw me overboard did I begin to have doubts.
+ - It was as unbelievable as the moon catching fire.
+ - Life is a peephole, a single tiny entry onto a vastness – how can I not dwell on this brief, cramped view of things? This peephole is all I’ve got!
+ - At moments of wonder, it is easy to avoid small thinking, to entertain thoughts that span the universe, that capture both thunder and tinkle, thick and thin, the near and the far.
+ - We are all born like Catholics, aren’t we – in limbo, without religion, until some figure introduces us to God?
+ - The blackness would stir and eventually go away, and God would remain, a shining point of light in my heart. I would go on loving.
+ - The reason death sticks so closely to life isn’t biological necessity; it’s envy. Life is so beautiful that death has fallen in love with it, a jealous, possessive love that grabs at what it can.
+ - Life will defend itself no matter how small it is.
+ - It is a vast country, so that inspires you. It’s also the greatest hotel on earth: It welcomes people from everywhere. It’s a good country to write from because in many ways Canada is the world.
+ - Gloom is but a shadow of a cloud passing by.
+ - Much hostile and aggressive behaviour among animals is the expression of social insecurity.
+ - My feelings can perhaps be imagined, but they can hardly be described.
+ - Scientists are a friendly, atheistic, hard-working, beer-drinking lot whose minds are preoccupied with sex, chess and baseball when they are not preoccupied with science.
+ - It is pointless to say that this or that night was the worst of my life. I have so many bad nights to choose from that I’ve made none the champion.
+ - Survival starts by paying attention to what is close at hand and immediate. To look out with idle hope is tantamount to dreaming one’s life away.
+ - If Christ spent an anguished night in prayer, if He burst out from the Cross, ‘My God, my God, why have you forsaken me?’ then surely we are also permitted doubt. But we must move on. To choose doubt as a philosophy of life is akin to choosing immobility as a means of transportation.
+ - Can there be any happiness greater than the happiness of salvation?
+ - My alarm clock during my childhood was a pride of lions.
+ - How do you live with evil? Art is traditionally – certainly with my secular background – the answer, but art is very self-referential, whereas religion claims to go beyond the bounds of human existence.
+ - It’s important in life to conclude things properly. Only then can you let go.
+ - Isn’t telling about something-using words, English or Japanese-already something of an invention? Isn’t just looking upon this world already something of an invention?
+ - It is life’s only true opponent. Only fear can defeat life.
+ - I preferred to set off and perish in search of my own kind than to live a lonely half-life of physical comfort and spiritual death on this murderous island.
+ - The worst pair of opposites is boredom and terror. Sometimes your life is a pendulum swing from one to the other.
+ - Come aboard if your destination is oblivion- it should be our next stop. We can sit together. You can have the window seat if you want. But it’s a sad view.
+ - I spent more hours than I can count a quiet witness to the highly mannered, manifold expressions of life that grace our planet. It is something so bright, loud, weird and delicate as to stupefy the senses.
+ - In my youth, it was my good luck to have a few good teachers, men and women, who came into my head and lit a match.
+ - I know zoos are no longer in people’s good graces. Religion faces the same problem. Certain illusions about freedom plague them both.
+ - Just as art brings you to another place, so does religion – and to ask questions of factuality tends to reduce both. If you say you were inspired by a novel, that implies that your book is a work of fiction.
+ - Mockery be damned, my urine looked delicious.
+ - If you stumble at mere believability, what are you living for? Isn’t love hard to believe?
+ - In art, something comes of nothing. Out of the thin air and the ether, you create a story. And that is intensely satisfying.
+ - I go to mass every Sunday, but love going to mosques too. Muslims pray in a beautiful way.
+ - Why make dirty what is beautiful, spoil what is perfect? Love.
+ - Christianity is a religion in a rush.
+ - The world isn’t just the way it is. It is how we understand it, no? And in understanding something, we bring something to it, no? Doesn’t that make life a story?
+ - Nothing beats reason for keeping tigers away. But be excessively reasonable and you risk throwing out the universe with the bathwater.
+ - Books lined the shelves of bookstores like kids standing in a row to play baseball or soccer, and mine was the gangly, unathletic kid that no one wanted on their team.
+ - For evil in the open is but evil from within that has been let out.
+ - I turned around, stepped over the Zebra and threw myself overboard.
+ - Just as music is noise that makes sense, a painting is colour that makes sense, so a story is life that makes sense.
+ - The idea of a flip book still really appeals to me. That idea of fiction and non-fiction.
+ - Zoo is an artificial territory, an approximation. Civilization is our natural territory.
+ - We commonly say in the trade that the most dangerous animal in a zoo is Man.
+ - I was not wounded in any part of my body, but I had never experienced such intense pain, such a ripping of the nerves, such an ache of the heart.
+ - If you don’t let technology help you, if you resist good ideas, you condemn yourself to dinosaurhood.
+ - You bring joy and pain in equal measure. Joy because you are with me, but pain because it wont be for long.
+ - I explore it now in the only place left for it, my memory.
+ - To me, the research is a way of exploring what it means to be alive.
+ - I ask you, is it the fig tree’s fault that it’s not the season for figs? What kind of thing is that to do to an innocent tree, wither it instantly?
+ - Sitting in an office for TOO long is not natural, perhaps, so that’s why we should change it. I didn’t say that out-and-out capitalism, which reduces humanity to dollar figures, is natural.
+ - We were, literally and figuratively, in the same boat.
+ - No one dies of nausea, but it can seriously sap the will to live.
+ - Why can’t reason give greater answers? Why can we throw a question further than we can pull in an answer? Why such a vast net if there’s so little fish to catch?
+ - A movie tends to box you in, at least as far as the aesthetics. You have an incredibly kinetic experience, which is the joy of cinema.
+ - Slice a pear and you will find that its flesh is incandescent white. It glows with inner light. Those who carry a knife and a pear are never afraid of the dark.
+ - Christianity is a religion in a rush. Look at the world created in seven says. Even on a symbolic lovel, that’s creation in frenzy.
+ - Time is an illusion that makes us all pant.
+ - Nature can put on a thrilling show. The stage is vast, the lighting is dramatic, the extras are innumerable, and the budget for special effects is absolutely unlimited.
+ - What a terrible thing it is to botch a farewell.
+ - My ears were full. Nothing more, not one more sound, could push into them and be registered.
+ - Words are cold, muddy toads trying to understand sprites dancing in a field-but they’re all we have.
+ - There’s no peace like the peace of an inner courtyard on a sunny day.
+ - Christianity stretches back through the ages, but in essence it exists only at one time: right now.
+ - Truth is a nebulous thing. There are certain, definite truths, but the truth of our lives goes far beyond facts.
+ - I felt I was beating a rainbow to death.
+ - I have read that there are two fears that cannot be trained out of us: the startle reaction upon hearing an unexpected noise, and vertigo. I would like to add a third, to wit, the rapid and direct approch of a known killer.
+ - Despair was a heavy blackness that let no light in or out. It was a hell beyond expression. I thank God it always passed.
+ - A house is a compressed territory where our basic needs can be fulfilled close by and safely.
+ - It was a huge zoo, spread over numberless acres, big enough to require a train to explore it, though it seemed to get smaler as I grew older, train included. Now it’s so small it fits in my head.
+ - A movie will do in one second, with one image, what it will take a novelist at least a page to describe.
+ - I am a person who believes in form, in the harmony of order. Where we can, we must give things a meaningful shape.
+ - There are animals we haven’t stopped by. Don’t think they’re harmless. Life will defend itself no matter how small it is.
+ - A great literary work can be completely, completely unpredictable. Which can sometimes make them very hard to read, but it gives them a great originality.
+ - Life and death live and die in exactly the same spot, the body. It is from there that both babies and cancers are born.
+ - I think art comes from some sense of discomfort with the world, some sense of not quite fitting with it.
+ - You may not believe in life, but I don’t believe in death. Move on!
+ - How true is that necessity is the mother of invention, how very true.
+ - Most of us get our history through story.
+ - Any writer will be happy and good only if they know what they’re doing and why they’re doing it.
+ - A work of art works because it is true, not because it is real.
+ - The lower you are, the higher your mind will want to soar. It was natural that, bereft and desperate as I was, in the throes of unremitting suffering. I should turn to God.
+ - The moon was a sharply defined crescent and the sky was perfectly clear. The stars shone with such fierce, contained brilliance that it seemed absurd to call the night dark.
+ - War subjects itself to transportation in a way that we find acceptable.
+ - The paths to liberation are numerous, but the bank along the way is always the same, the Bank of Karma, where the liberation account of each of us is credited or debited depending on our actions.
+ - If you write genre fiction, you follow the rules, and you have to follow them because readers expect that.
+ - I cannot think of a better way to spread the faith. No thundering from a pulpit, no condemnation from bad churches, no peer pressure, just a book of scripture quietly waiting to say hello, as gentle and powerful as a little girl’s kiss on your cheek.
+ - I can’t live for more than four years outside of Canada. I’m Canadian, so ultimately that is my reference point.
+ - I meet a number of people as a writer of fiction who say “Oh, I don’t read much fiction,” as if the history of the United States, just as an example, isn’t an exercise in storytelling and myth-making.
+ - My next book – each one while I’m working on it – dances in my mind and thrills me at every turn. If it didn’t, why would I write it?
+ - There’s nothing like the unimaginable to make people believe.
+ - I am not a particularly natural writer. I am not a person who can write in paragraphs the way some writers do. For me, it’s sentence by sentence, sometimes word-by-word. And I revise constantly. It’s a very laborious process, but I love doing it.
+ - My greatest wish – other than salvation – was to have a book.
+ - The language of prose is very different than the language of cinema, so the movie has to successfully translate what was in the book.
+
+175 quotes

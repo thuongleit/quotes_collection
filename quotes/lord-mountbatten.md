@@ -1,0 +1,28 @@
+ - I am much more intelligent than you think.
+ - Actually, I vote Labour, but my butler’s a Tory.
+ - I was so keen to get back to sea. I was rattled.
+ - The primary factor in a successful attack is speed.
+ - I was born with an ability to concentrate very hard on a job for a long time.
+ - My mother said, Don’t worry abot what people think now. Think about whether your children and grandchildren will think you’ve done well.
+ - I can’t think of a more wonderful thanksgiving for the life I have had than that everyone should be jolly at my funeral.
+ - Prince Charles is an absolute Mountbatten. The real intelligence in the royal family comes through my parents to Prince Philip and the children.
+ - If you’ve got it, wear it.
+ - It is a curious thing, but I have been right in everything I have done and said in my life.
+ - The team should have implicit confidence in the captain’s decisions.
+ - My trophy value exceeded my military usefulness.
+ - I have been driven demented in my career.
+ - You can divide my life into two.
+ - Churchill was the canny political animal, very devious, bursting with energy and determination, learning as hard as he could.
+ - What do you do if you are asked to do a job, first by the Prime Minister, and then by the King? How can you refuse?
+ - In 1966 I became president of the British Computer Society.
+ - My father was afraid of his father, I was afraid of my father, and I don’t see why my children shouldn’t be afraid of me.
+ - Never feel that a piece of criticism or advice is too much trouble to give, or that it exceeds your province.
+ - The nuclear arms race has no military purpose. Wars cannot be fought with nuclear weapons. Their existence only adds to our perils.
+ - Even that crazy lunatic, my aunt the Empress, wa absolutely sweet and charming.
+ - I liked Truman very much. He was precise and businesslike. After a while, it was his turn.
+ - I suppose you can say I became an odd-job man.
+ - No one person invented Mulberry. The knowledge that we had to have this floating harbor slowly grew.
+ - It never entered my father’s mind nor my mind ever to do a job other than at one’s best ability.
+ - I believe firmly that it was the Almighty’s goodness, to check my consummate vanity.
+
+26 quotes

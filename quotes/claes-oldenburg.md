@@ -1,0 +1,52 @@
+ - Everything I do is completely original-I made it up when I was a kid.
+ - Mine was not pop art. I maybe started with a subject, but I changed the subject.
+ - I am for an art that takes its form from the lines of life itself, that twists and extends and accumulates and spits and drips, and is heavy and coarse and blunt and sweet and stupid as life itself.
+ - Judson Church was a very important place because they believed in art. They also took care of drug addicts. Without the Judson, nothing could have happened.
+ - Art is a technique of communication. The image is the most complete technique of all communication.
+ - I’m in favor of an art that does something other than just sit on its ass in a museum.
+ - I am for an art that grows up not knowing it is art at all.
+ - My rule was not to paint things as they were. I wasn’t copying; I was remaking them as my own.
+ - I like food because you can change it. I mean, there is no such thing as a perfect lamb chop; you can make all types of lamb chops. And that’s true of everything. And people eat it and it changes and disappears.
+ - The right angle is one of the world’s basic shapes.
+ - Chicago has a strange metaphysical elegance of death about it.
+ - Because my work is naturally non-meaningful, the meaning found in it will remain doubtful and inconsistent – which is the way it should be. All that I care about is that, like any startling piece of nature, it should be capable of stimulating meaning.
+ - For a thorough use of ice cream cones, buy two; eat one and drop the other.
+ - I don’t do abstract art because I don’t find it as interesting as I do subjects and depictions.
+ - I am an immigrant in a sense. What happened was that my father was stationed in New York when my mother became pregnant, and she said, “I’ve got to go to Sweden so this child can be born there, because you don’t have any idea where you’re going to be transferred next.”
+ - Food is like clay; you can sculpt with it. Also it has an odor, and you can eat it. I don’t eat a lot of cake, but I do make cakes! And unlike the Campbell’s Soup Cans, my food is a humanized form and scale.
+ - All the fun is locking horns with impossibilities.
+ - The main reason for the colossal objects is the obvious one, to expand and intensify the presence of the vessel – the object.
+ - There’s always been a potential erotic possibility with objects.
+ - If I didn’t think what I was doing had something to do with enlarging the boundaries of art, I wouldn’t go on doing it.
+ - I am for an art that tells you the time of day, or where such and such a street is. I am for an art that helps old ladies across the street.
+ - I always knew America was all about guns. You go to the movies as a kid, everybody’s got a gun.
+ - I am for the art of underwear and the art of taxicabs. I am for the art of ice cream cones dropped on concrete.
+ - I think the Freudian impulse is in everything, so I just accept it. I don’t always believe what Freud is saying but it sounds like fun.
+ - The end of the ’60s was a terrible time. I was in Los Angeles then, and I remember the night someone ran into the studio and told us about the Manson murders. Then suddenly something happened, the ’60s disappeared. The ’70s were completely different.
+ - My mother warned me to avoid things colored red.
+ - I started to draw buildings. I called them Proposed Colossal Monuments – they weren’t for real, not for actual building. It was more a critique of architecture.
+ - I’m always careful to say that I changed everything I found.
+ - Painting, especially much better than words, allows oneself to express the various stages of thought, including the deeper levels, the underground stages of the mental process.
+ - In 1958 I finally found a large enough apartment on the Lower East Side, where I reverted to figure painting. I drew and painted quite a lot of figures and nudes. People would come and pose for me.
+ - Duchamp is known for calling a thing art, rather than making it. A lot of that is picked up in pop art, too.
+ - Actually, New York is great for playing around. I made a lot of studies for New York-a big vacuum cleaner lying on the Battery in Manhattan.
+ - I went back to the Art Institute, then spent the summer at the Ox-Bow School in Saugatuck, Michigan. That’s what really awakened me. I made a lot of oil paintings and my first performance.
+ - Ox-Bow was a very free place, very open. You could do whatever you wanted to do.
+ - I got a little studio in Chicago and practiced. I realized I had to earn some money. So I went to work for an advertising agency where my job was mostly drawing insects for a company that sold an insecticide spray.
+ - The thing about the ray gun is, you pick up anything you see on the street that’s the shape of a gun.
+ - You can take an object and simply put anything you want in that object, and I accessed that partly through Freudian ideas.
+ - When you’re working with an object, you can put in almost anything you want, you can make it abstract.
+ - It was easy to get a job at the Cedar Bar because people came and went, but I didn’t like the atmosphere. Instead, I got a job at Cooper Union Library. I stayed at Cooper Union for seven years; it was my salvation. While I worked there, I also read books of every kind.
+ - I had no idea what art was. There was one art class in high school, but it didn’t make a big impression on me. Then I went to college and thought I’d become a writer.
+ - The sexual is part of everything, and it’s highly formalized. I hadn’t done figure for a long time. And I thought to myself, “Why not the erotic figure?”
+ - I had, over the years, collected things, small things, as people do, and I had put them all together and showed them in what became a building in the form of the Geometric Mouse.
+ - Of course, the ’60s was a study in decadence. Everything just got worse and worse, and at the end of the ’60s, everything was so horrible that people were killing each other.
+ - I knew I wasn’t that good a writer, and all I could remember was that I could draw. I’m better at drawing than I am at writing.
+ - They asked me to do a show, and I was planning on showing my figure paintings. But my friends told me I shouldn’t – the paintings were good but a little old-fashioned. They said, “Why don’t you show the other stuff?” I had also been making rather strange objects, more in the Freudian tradition.
+ - I just started to do my own thing for about a year and a half, and I worked in the evening selling phonograph records. Then I said to myself, “I’m afraid I have to go to New York after all.”
+ - The art world was very small and the people got together at parties. There was less commercialism.
+ - I knew I had to take my ambition more seriously, so I enrolled at the Art Institute of Chicago. Then, in the fall, I went on a tour of my own. I didn’t go to New York because that was too well known for its art scene.
+ - I was very happy to be living in New York at that time, more than in the present time. Now it’s all commerce.
+ - I got a job as a dishwasher in Oakland, and I would draw all day. It was nice because the lady who ran the boardinghouse where I worked let me live there for nothing if I gave her some drawings every week – mostly park drawings of birds and such.
+
+50 quotes

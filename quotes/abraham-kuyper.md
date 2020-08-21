@@ -1,0 +1,23 @@
+ - There is not a square inch in the whole domain of our human existence over which Christ, who is Sovereign over all, does not cry, Mine!
+ - There is not one square inch of the entire creation about which Jesus does not cry out, ‘This is mine!’
+ - He is your friend who pushes you nearer to God.
+ - The motive of art comes to us not from what exists, but from the notion that there is something higher, something nobler, something richer, and that what exists corresponds only partially to all of this.
+ - The Holy Scripture is like a diamond: in the dark it is like a piece of glass, but as soon as the light strikes it the water begins to sparkle, and the scintillation of life greets us.
+ - The greatest gift a church can receive is to have a group of families who take their responsibilitie s with such Christian seriousness that they are willing to completely alter their lifestyle to raise up disciples for Jesus Christ.
+ - When the principles that run against your deepest convictions begin to win the day, then the battle is your calling, and peace has become sin. You must at the price of dearest peace lay your convictions bare before friend and enemy with all the fire of your faith.
+ - Every science in a certain degree starts from faith, and, on the contrary, faith, which does not lead to science, is mistaken faith or superstition, but real, genuine faith it is not.
+ - To have faith in the Word, Scripture must not grasp us in our critical thought, but in the life of the soul.
+ - We understand hereby, that the family, the business, science, art and so forth are all social spheres, which do not owe their existence to the State, but obey a high authority within their own bosom; an authority which rules, by the grace of God, just as the sovereignty of the State does.
+ - There are two kinds of beauty; there is a beauty which God gives at birth, and which withers as a flower. And there is a beauty which God grants when by His grace men are born again. That kind of beauty never vanishes but blooms eternally.
+ - God created hand, head, and heart; the hand for the deed, the head for the world, the heart for mysticism.
+ - Unity is the ultimate goal of all the ways of God.
+ - It is impossible, Bible in hand, to limit Christ’s Church to one’s own little community. It is everywhere, in all parts of the world; and whatever its external form, frequently changing, often impure, yet the gifts wherever received increase our riches.
+ - What is hell other than a realm in which unholiness works without restraint in body and soul?
+ - The question is not if the candidate’s heart is favorable to Christianity, but if he has Christ as his starting point even for politics, and will speak out His name!
+ - The curse should no longer rest upon the world itself, but upon that which is sinful in it, and instead of monastic flight from the world the duty is now emphasized of serving God in the world, in every position in life.
+ - Lutheranism restricted itself to an exclusively ecclesiastical and theological character, while Calvinism put its impress in and outside the church upon every aspect of human life.
+ - We cannot be passive and silent towards those who reject God’s Word and our holy faith.
+ - Sin lives solely by plagiarising the ideas of God.
+ - Do not bury our glorious orthodoxy in the treacherous pit of a spurious conservatism.
+
+21 quotes

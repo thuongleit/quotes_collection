@@ -1,0 +1,27 @@
+ - Working hard and working smart sometimes can be two different things.
+ - You can delegate authority, but you cannot delegate responsibility.
+ - I am not someone who believes we should build a fence around our country but I do believe there ought to be some fairness with respect to the rules of this globalization.
+ - This country is about, in my judgment, aggressive, open debate. There is an old saying: When everyone is thinking the same thing, no one is thinking very much.
+ - Nowhere in this country should we have laws that permit drinking and driving or drinking in vehicles that are on American highways. This is not rocket science. We know how to prevent this, and 36 states do.
+ - As far as I know, we have never before decided to fight a war with borrowed money and ask generations that come after us to pay for it.
+ - One of the keys to ensuring accountability is to have civil servants who witness fraud, waste and abuse to blow the whistle.
+ - If the Administration does nothing, high gasoline prices will continue to increasingly burden our economy, taking millions of dollars out of the hands of families and putting it straight into the pockets of OPEC.
+ - People habitat has to take priority over bird habitat.
+ - I came into American politics and into this political system proud of politics and the way we make decisions.
+ - All of us aspire to give our children something more, leave a country to our children that is a better one, a stronger one, with better jobs and growth and opportunity.
+ - The taxpayers deserve accountability.
+ - If you talk about preemption you better know things rather than think things.
+ - When farmers and ranchers are confronted by weather-related disasters that are beyond their control, we need to do something to help.
+ - Only in this town, where we make an industry out of creating euphemisms, can we have enough sugar to sugarcoat this nonsense.
+ - Is there decency left in American politics?
+ - When businesses face tough times, one of the first items they cut is overhead expenses. The government should do the same.
+ - We need leadership, and we need it now.
+ - This galloping concentration in broadcast ownership is unhealthy.
+ - The Bush Administration and the Congress have to stop ignoring this crisis in international trade. The longer we ignore it, the more American jobs will move overseas. It’s just that simple.
+ - When we ask American men and women in uniform to fight for this country and to defend this country’s interest and then to send them overseas, there is no question we have an obligation to protect them and provide for their safety.
+ - I am proud to be in the Senate. I have always been proud to be a part of our political system. It is a remarkable privilege to participate in this system of ours.
+ - I can describe, and I’ve always been able to describe, what Republicans stand for in eight words, and the eight words are lower taxes, less government, strong defense and family values.
+ - I don’t feel responsible for things I didn’t vote for.
+ - President Eisenhower saw it coming, and it is here. Patriotism no longer exists among many of these corporations. Some companies have more economic clout than entire countries. They can make or break a politician.
+
+25 quotes

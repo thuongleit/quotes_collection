@@ -1,0 +1,59 @@
+ - If I were asked under what sky the human mind has most fully developed some of its choicest gifts, has most deeply pondered on the greatest problems of life, and has found solutions, I should point to India.
+ - It is better to live alone, there is no companionship with a fool.
+ - An evil deed is better left undone, for a man repents of it afterwards; a good deed is better done, for having done it, one does not repent.
+ - The person who knows only one religion does not know any religion.
+ - Victory breeds hatred, for the conquered is unhappy.
+ - A man is not learned because he talks much; he who is patient, free from hatred and fear, he is called learned.
+ - Childhood has its secrets and its mysteries; but who can tell or who can explain them!
+ - A flower cannot blossom without sunshine, and man cannot live without love.
+ - What ought to be done is neglected, what ought not to be done is done; the desires of unruly, thoughtless people are always increasing.
+ - The morning hour has gold at the mouth.
+ - Thus one memory follows another until the waves dash together over our heads, and a deep sigh swells the breast, which warns us that we have forgotten to breathe in the midst of these pure thoughts.
+ - Even in heavenly pleasures he finds no satisfaction, the disciple who is fully awakened delights only in the destruction of all desires.
+ - That is the returning to God which in reality is never concluded on earth but yet leaves behind in the soul a divine home sickness, which never again ceases.
+ - I spend my happiest hours in reading Vedantic books. They are to me like the light of the morning, like the pure air of the mountains – so simple, so true, if once understood.
+ - There is no book in the world that is so thrilling, stirring and inspiring as the Upanishads.
+ - And then when all around grows dark, when we feel utterly alone, when all men right and left pass us by and know us not, a forgotten feeling rises in the breast.
+ - While the river of life glides along smoothly, it remains the same river; only the landscape on either bank seems to change.
+ - Bad deeds, and deeds hurtful to ourselves, are easy to do; what is beneficial and good, that is very difficult to do.
+ - Language is the Rubicon that divides man from beast.
+ - Not far from our house, and opposite the old church with the golden cross, stood a large building, even larger than the church, and having many towers.
+ - There never was a false god, nor was there ever really a false religion, unless you call a child a false man.
+ - I know well there is no comfort for this pain of parting. The wound always remains, but one learns to bear the pain, and learns to thank God for what he gave. For the beautiful memories of the past, and the yet more beautiful hope for the future.
+ - Of these years nought remains in memory but the sad feeling that we have advanced and only grown older.
+ - Would not the child’s heart break in despair when the first cold storm of the world sweeps over it, if the warm sunlight of love from the eyes of mother and father did not shine upon him like the soft reflection of divine light and love?
+ - He who wishes to put on the yellow dress without having cleansed himself from sin, who disregards temperance and truth, is unworthy of the yellow dress.
+ - Without a belief in personal immortality, religion surely is like an arch resting on one pillar, like a bridge ending in an abyss.
+ - The gospel is the fulfillment of all hopes, the perfection of all philosophy, the interpretation of all revelation, the key to all the seeming contradictions of the physical and moral world.
+ - Even a good man sees evil days, as long as his good deed has not ripened; but when his good deed has ripened, then does the good man see happy days.
+ - Is it sin, which makes the worm a chrysalis, and the chrysalis a butterfly, and the butterfly dust?
+ - In order to discover truth, we must be truthful ourselves, and must welcome those who point out our errors as heartily as those who approve and confirm our discoveries.
+ - Christianity is a missionary religion, converting, advancing, aggressive, encompassing the world; a non-missionary church is in the bands of death.
+ - The scent of flowers does not travel against the wind; but the odor of good people travels; even against the wind: a good man pervades every place.
+ - The first pages of memory are like the old family Bible. The first leaves are wholly faded and somewhat soiled with handling. But, when we turn further, and come to the chapters where Adam and Eve were banished from Paradise, then, all begins to grow clear and legible.
+ - The wise who control their body, who control their tongue, the wise who control their mind, are indeed well controlled.
+ - He who, by causing pain to others, wishes to obtain pleasure for himself, he, entangled in the bonds of hatred, will never be free from hatred.
+ - I was shortly again at the castle, and the Princess gave me her hand to kiss and then brought her children, the young princes and princesses, and we played together, as if we had known each other for years.
+ - The man who is free from credulity, but knows the uncreated, who has cut all ties, removed all temptations, renounced all desires, he is the greatest of men.
+ - The evil done by oneself, self-begotten, self-bred, crushes the foolish, as a diamond breaks a precious stone.
+ - For self is the lord of self, self is the refuge of self; therefore curb thyself as the merchant curbs a good horse.
+ - Every life has its years in which one progresses as on a tedious and dusty street of poplars, without caring to know where he is.
+ - That deed is not well done of which a man must repent, and the reward of which he receives crying and with a tearful face.
+ - Samskrit is the greatest language of the world.
+ - It is the heart that makes the critic, not the nose.
+ - I was so astonished that another had penetrated so deeply into the secrets of my soul, and that he knew what I did not know myself, that when I recovered from it he had already been long upon the street.
+ - The evil-doer mourns in the next; he mourns in both. He mourns and suffers when he sees the evil of his own work.
+ - He who, though dressed in fine apparel, exercises tranquillity, is quiet, subdued, restrained, chaste, and has ceased to find fault with all other beings, he indeed is an ascetic.
+ - To me this technical acceptation seems not applicable here, where we have to deal with the simplest moral precepts, and not with psychological niceties of Buddhist philosophy.
+ - When the evil deed, after it has become known, brings sorrow to the fool, then it destroys his bright lot, nay, it cleaves his head.
+ - Whoever knows it also knows that in love there is no More and no Less; but that he who loves can only love with the whole heart, and with the whole soul; with all his strength and with all his will.
+ - He in whom all this is destroyed, and taken out with the very root, he, when freed from hatred and wise, is called respectable.
+ - How mankind defers from day to day the best it can do, and the most beautiful things it can enjoy, without thinking that every day may be the last one, and that lost time is lost eternity!
+ - Yes, now I understood for the first time that my soul was not so poor and empty as it had seemed to me, and that it had been only the sun that was lacking to open all its germs, and buds to the light.
+ - I believe I can even yet remember when I saw the stars for the first time.
+ - The spring of love becomes hidden and soon filled up.
+ - It smote me to the heart that I had found no one in all the world who loved me more than all others.
+ - Soon the child learns that there are strangers, and ceases to be a child.
+ - What is emitted from the divine, though it be only like the reflection from the fire, still has the divine reality in itself, and one might almost ask what were the fire without glow, the sun without light, or the Creator without the creature?
+
+57 quotes

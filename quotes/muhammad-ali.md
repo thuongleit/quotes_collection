@@ -1,0 +1,354 @@
+ - Don’t count the days, make the days count.
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.”
+ - Impossible is nothing.
+ - I am the greatest, I said that even before I knew I was.
+ - The best way to make your dreams come true is to wake up.
+ - If my mind can conceive it, and my heart can believe it, then I can achieve it.
+ - What you’re thinking is what you’re becoming.
+ - I am the greatest.
+ - Champions aren’t made in gyms. Champions are made from something they have deep inside them – a desire, a dream, a vision. They have to have the skill, and the will. But the will must be stronger than the skill.
+ - The man with no imagination has no wings.
+ - To be a great champion you must believe you are the best. If you’re not, pretend you are.
+ - Float like a butterfly, sting like a bee.
+ - I don’t count my sit-ups. I only start counting when it starts hurting. When I feel pain, that’s when I start counting, because that’s when it really counts.
+ - Live everyday as if it were your last because someday you’re going to be right.
+ - He who is not courageous enough to take risks will accomplish nothing in life.
+ - Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.
+ - I’m going to show you how great I am!
+ - Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.
+ - I’ve wrestled with alligators, I’ve tussled with a whale. I done handcuffed lightning and thrown thunder in jail. You know I’m bad. Just last week, I murdered a rock, injured a stone, hospitalized a brick. I’m so mean, I make medicine sick.
+ - Friendship is the hardest thing in the world to explain. It's not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.
+ - If they can make penicillin out of moldy bread, then they can sure make something out of you.
+ - Hating people because of their color is wrong. And it doesn't matter which color does the hating. It's just plain wrong.
+ - The Service you do for others is the rent you pay for your room here on Earth.
+ - Impossible is just a big word thrown around by small men who find it easier to live in the world they’ve been given than to explore the power they have to change it.
+ - A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life.
+ - Inside of a ring or out, ain’t nothing wrong with going down. It’s staying down that’s wrong.
+ - The fight is won or lost far away from witnesses – behind the lines, in the gym, and out there on the road, long before I dance under those lights.
+ - Age is whatever you think it is. You are as old as you think you are.
+ - Success is not achieved by winning all the time. Real success comes when we rise after we fall.
+ - True success is reaching our potential without compromising our values.
+ - Success is not achieved by winning all the time. Real success comes when we rise after we fall. Some mountains are higher than others. Some roads steeper than the next. There are hardships and setbacks but you cannot let them stop you. Even on the steepest road you must not turn back.
+ - God will not place a burden on a man’s shoulders knowing that he cannot carry it.
+ - It’s the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.
+ - We can’t be brave without fear.
+ - You’re not going to enjoy every minute of the journey, but the success you’ll find at the end will make it all worth it.
+ - If you even dream of beating me you’d better wake up and apologize.
+ - I’m a fighter. I believe in the eye-for-an-eye business. I’m no cheek turner. I got no respect for a man who won’t hit back. You kill my dog, you better hide your cat.
+ - I’m the best. I just haven’t played yet.
+ - It’s just a job. Grass grows, birds fly, waves pound the sand. I beat people up.
+ - The only limitations one has, are the ones they place on themselves.
+ - To the people that have said I’m too small, I’m not fast enough, I don’t have what it takes, I’m not strong enough. THANK YOU.
+ - In the big leagues everyone has ability. It always comes down to mind games. Who ever is more mentally strong-wins.
+ - Truly great people in history never wanted to be great for themselves. All they wanted was the chance to do good for others and be close to God.
+ - At home I am a nice guy: but I don’t want the world to know. Humble people, I’ve found, don’t get very far.
+ - It’s the lack of faith that makes people afraid of meeting challenges, and I believe in myself. He who is not courageous enough to take risks will accomplish nothing in life. I figured that if I said it enough, I would convince the world that I really was the greatest.
+ - We have one life; it soon will be past; what we do for God is all that will last.
+ - The sun is always shining someplace.
+ - Whoever knocks persistently, ends by entering.
+ - I have learned to live my life one step, one breath, and one moment at a time, but it was a long road. I set out on a journey of love, seeking truth, peace and understanding. I am still learning.
+ - Who’s gonna dare to be great?
+ - I run on the road long before I dance under the lights.
+ - If I could meet anybody? The prophet Muhammad.
+ - I’m too fast. I’m too smart. I’m too pretty.
+ - I’ll destroy you. I am the master of disaster.
+ - Allah’s the Arabic term for God. Stand up for God, fight for God, work for God and do the right thing, and go the right way, things will end up in your corner.
+ - I don’t always know what I’m talking about, but I know I’m right.
+ - I know where I’m going and I know the truth, and I don’t have to be what you want me to be. I’m free to be what I want.
+ - My wealth is in my knowledge of self, love, and spirituality.
+ - God gave me Parkinson’s syndrome to show me I’m not ‘The Greatest’ – he is.
+ - My way of joking is to tell the truth. That’s the funniest joke in the world.
+ - This life is not real. I conquered the world and it did not bring me satisfaction.
+ - My health is in the hands of Allah, who has ways of testing us. Whatever happens, happens. I a’int the greatest – it’s Allah. I gave myself a job. I work for God.
+ - The worst man is the one who sees himself as the best.
+ - His hands can’t hit what his eyes can’t see.
+ - Parkinson’s is my toughest fight. No, it doesn’t hurt. It’s hard to explain. I’m being tested to see if I’ll keep praying, to see if I’ll keep my faith. All great people are tested by God.
+ - If you lose a big fight, it will worry you all of your life. It will plague you – until you get your revenge.
+ - Brooding over blunders is the biggest blunder.
+ - Children make you want to start life over.
+ - Our only hope lies in the power of our love, generosity, tolerance and understanding and our commitment to making the world a better place for all...
+ - Life is a gamble. You can get hurt, but people die in plane crashes, lose their arms and legs in car accidents; people die every day. Same with fighters: some die, some get hurt, some go on. You just don’t let yourself believe it will happen to you.
+ - Others may know pleasure, but pleasure is not happiness. It has no more importance than a shadow following a man.
+ - In a competition of love we’ll all share in the victory, no matter who comes first.
+ - Stay in college, get the knowledge. And stay there until you’re through. If they can make penicillin out of moldy bread, they can sure make something out of you. Advice to a young person to continue his education.
+ - Tolerance and understanding won’t ‘trickle down’ in our society any more than wealth does.
+ - Frazier’s got two chances. Slim, and none. And Slim just left town.
+ - I’m most proud of my family.
+ - My definition of evil is unfriendliness.
+ - The sweetness of life lies in dispensing with formalities.
+ - Whoever listens to slander is himself a slanderer.
+ - Last night I had a dream. When I got to Africa, I had one hell of a rumble. I had to beat Tarzan’s behind first, for claiming to be King of the Jungle.
+ - No pork, soda pop, cigarettes, alcohol – ever!
+ - There’s nothing stressful about turning 50 except people reminding you about it.
+ - To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.
+ - I’ll tell you how I’d like to be remembered: As a black man who won the heavyweight title – Who has humorous and who never looked down on those who looked up to him – A man who stood for freedom, justice and equality – And I wouldn’t even mind if folks forgot how pretty I was.
+ - There’s a reason I’m known – to bring people to Allah, to God.
+ - When your mother dies, it really hurts. But with time, you get used to it. That’s nature’s way.
+ - I’m gonna whup whoever stole my bike!
+ - You don’t want no pie in the sky when you die, You want something here on the ground while you’re still around.
+ - No boxer in the history of boxing has had Parkinson’s. There’s no injury in my brain that suggests that the illness came from boxing.
+ - When my title was taken away boxing died.
+ - Why do I want my wife to show off her panties when the wind blows? Horses show their behinds, and cows and mules, not humans.
+ - My toughest fight was with my first wife.
+ - It will be a killer, and a chiller, and a thriller, when I get the gorilla in Manila.
+ - I’m the most recognized and loved man that ever lived cuz there weren’t no satellites when Jesus and Moses were around, so people far away in the villages didn’t know about them.
+ - Religions have different names, and they all contain truth, expressed in different ways forms and times.
+ - Put yourself out on a limb, sucka, like me!
+ - I say get an education. Become an electrician, a mechanic, a doctor, a lawyer, anything but a fighter. In this trade, it’s the managers that make the money and last the longest.
+ - Women are not equal with men, that’s sure. When the woman is in danger she always looks to the man for help. We are superior by nature. The black or white woman needn’t worry in life because the world is ruled by the white man.
+ - Now I had won the gold medal. But it didn’t mean anything, because I didn’t have the right color skin.
+ - How could they say that my religion, Islam was a ‘race hate’ religion after all the plunder and enslavement and domination of my people by white Christians in the name of white supremacy?
+ - I am the greatest. I said that even before I knew I was. Don’t tell me I can’t do something. Don’t tell me it’s impossible. Don’t tell me I’m not the greatest. I’m the double greatest.
+ - What keeps me going is goals.
+ - Even the greatest was once a beginner. Don’t be afraid to take that first step.
+ - The word ‘Islam’ means ‘peace.’ The word ‘Muslim’ means ‘one who surrenders to God.’ But the press makes us seem like haters.
+ - It’s not bragging if you can back it up.
+ - I’m so mean I make medicine sick!
+ - Allah is the Greatest. I’m just the greatest boxer.
+ - That all you got, George?
+ - There’s nothing wrong with getting knocked down, as long as you get right back up.
+ - I’m the greatest, I’m a bad man, and I’m pretty!
+ - Women are the field that produces our nation. And if you can’t protect your women, you can’t protect your nation.
+ - I was saying “I’m the greatest” long before I believed it.
+ - I believe in the religion of Islam. I believe in Allah and peace.
+ - Get up sucker and fight. Get up and fight.
+ - It’s hard to be humble when you’re as great as I am.
+ - Now you see me, now you don’t. George thinks he will, but I know he won’t!
+ - Every day is different, and some days are better than others, but no matter how challenging the day, I get up and live it.
+ - Champions have to have the skill and the will. But the will must be stronger than the skill.
+ - I was the first one in the gym, and the last one to leave.
+ - All black Americans have slave names. They have white names; names that the slave master has given to them.
+ - Champions come and go, but to be legendary you got to have heart, more heart than the next man, more than anyone in the world.
+ - Rivers, ponds, lakes and streams – they all have different names, but they all contain water. Just as religions do – they all contain truths.
+ - When you’re right, nobody remembers. When you’re wrong, nobody forgets.
+ - I’m so fast that last night I turned off the light switch in my hotel room and was in bed before the room was dark.
+ - I’m young, I’m handsome, I’m fast, I’m pretty, and can’t possibly be beat. They must fall in the round I call.
+ - My only fault is that I don’t realize how great I really am.
+ - What counts in the ring is what you can do after you’re exhausted. The same is true of life.
+ - That’s okay, I’m still the Greatest.
+ - Silence is golden when you can’t think of a good answer.
+ - My toughest opponent has always been me.
+ - It’s hard to be humble, when you’re as great as I am.
+ - I don’t look like no kiwi bird.
+ - God gave me this illness to remind me that I’m not Number One; He is.
+ - The bull is stronger, but the matador is smarter.
+ - Your body is sacred. You’re far more precious than diamonds and pearls, and you should be covered too.
+ - Money and riches don’t mean nothing to me. I don’t care nothing about being no rich individual. I’m not living for glory or for fame; all this is doomed for destruction. You got it today, tomorrow it’s gone. I got bigger things on my mind than that. I got Islam on my mind.
+ - There is one hell of a difference between fighting in the ring and going to war in Vietnam.
+ - It’s lack of faith that makes people afraid of meeting challenges, and I believed in myself.
+ - Spirituality is recognizing the divine light that is within us all. It doesn’t belong to any particular religion; it belongs to everyone.
+ - I shook up the world.
+ - I don’t count my situps. I only start counting once it starts hurting.
+ - If we continue to think and live as if we belong only to different cultures and different religions, with separate missions and goals, we will always be in self-defeating competition with each other. Once we realize we are all members of humanity, we will want to compete in the spirit of love.
+ - When a man says I cannot, he has made a suggestion to himself. He has weakened his power of accomplishing that which otherwise would have been accomplished.
+ - Wisdom is knowing when you can’t be wise.
+ - God tries you in certain, certain ways. Some people are rich, and they believe in God. They lose the money, things get hard, they get weak and quit going to church. Quit serving God like they did.
+ - Stay away from the ropes.
+ - He’s too ugly to be the champ!
+ - If you were surprised when Nixon resigned, just watch what happens when I whup Foreman’s behind!
+ - The world’s champ should be pretty like me!
+ - It’s a dare. Impossible is potential. Impossible is temporary. Impossible is nothing.
+ - All through my life, I have been tested. My will has been tested, my courage has been tested, my strength has been tested. Now my patience and endurance are being tested.
+ - God works through people. It’s not me.
+ - Prejudice comes from being in the dark; sunlight disinfects it.
+ - Rest but never quit. Even the sun has a sinking spell each evening. But it always rises the next morning. At sunrise, every soul is born again.
+ - I am grateful for all my victories, but I am especially grateful for my losses, because they only made me work harder.
+ - Eat your words! Eat your words! I am the greatest.
+ - If Ali says a mosquito can pull a plow, don’t ask how. Hitch him up.
+ - The name Muhammad is the most common name in the world. In all the countries around the world – Pakistan, Saudi Arabia, Morocco, Turkey, Syria, Lebanon – there are more Muhammads than anything else.
+ - I’m the greatest fighter in the entire world, how can I be afraid? I love people and people love me.
+ - Old age is just a record of one’s whole life.
+ - I always liked to chase the girls. Parkinson’s stops all that. Now I might have a chance to go to heaven.
+ - I’m pretty as a girl.
+ - Only last week I murdered a rock, injured a stone and hospitalized a brick.
+ - I’m just hoping that people understand that Islam is peace and not violence.
+ - Cassius Clay is a name that white people gave to my slave master. Now that I am free, that I don’t belong anymore to anyone, that I’m not a slave anymore, I gave back their white name, and I chose a beautiful African one.
+ - Once the Choice is Made, Do Not Look Back, Do Not Second-Guess Your Decisions.
+ - There are no pleasures in a fight but some of my fights have been a pleasure to win.
+ - A black, a Puerto Rican and a Mexican are in a car. Who’s driving? The police.
+ - I do need publicity but not for what I do for good. I need publicity for my book. I need publicity for my fights. I need publicity for my movie but not for helping people. Then it is no longer sincere.
+ - Shut up, I know what I’m doing!
+ - When it comes to love, compassion, and other feelings of the heart, I am rich.
+ - When people are forced to interact to survive, their prejudices diminish.
+ - The crowd did not dream when they laid down their money that they would see a total eclipse of the Sonny!
+ - Do not be ashamed to give a little; for to deceive is to give still less.
+ - Death is the tax the soul has to pay for having a name and a form.
+ - You could be the world’s best garbage man, the world’s best model; it don’t matter what you do if you’re the best.
+ - What’s my greatest weakness? Sad stories, people with problems.
+ - Catching flies is better training than hitting the speed bag.
+ - I’m so fast I run through a hurricane and not get wet. George Foreman is gonna pay me a dept.
+ - I can drown a drink of water. I can kill a dead tree. Don’t mess with Muhammad Ali.
+ - I just give lip service to being the greatest. He was the greatest.
+ - When I beat Sonny Liston, I shocked the world. When I joined the Muslims, I shocked the world. When I beat George Forman, I shocked the world. I am from the House of Shock.
+ - If you look at the world the same way when you’re 50 that you did when you were 20, then you wasted 30 years.
+ - The woman is the fiber of the nation. She is the producer of life. A nation is only as good as its women.
+ - When you saw me in the boxing ring fighting, it wasn’t just so I could beat my opponent. My fighting had a purpose. I had to be successful in order to get people to listen to the things I had to say.
+ - Champions are not generated from the championship. Champion is generated from something they have in them, desires, dreams, and visions.
+ - Jokes? There are no jokes. The truth is the funniest joke of all.
+ - Every time I look in the mirror, I see that kid from Louisville, Kentucky, staring back at me. His name was Cassius Clay.
+ - If the culprits are Muslim, they have twisted the teachings of Islam. Whoever performed, or is behind, the terrorist attacks in the United States of America does not represent Islam. God is not behind assassins.
+ - Elvis Presley was the sweetest, most humble and nicest man you’d want to know.
+ - Impossible is not a declaration. It’s a dare.
+ - I have nothing to lose by standing up and following my beliefs. So I’ll go to jail, so what? We have been in jail for years.
+ - I said a lot of things in the heat of the moment that I shouldn’t have said. Called him names I shouldn’t have called him. I apologise for that. I’m sorry. It was all meant to promote the fight.
+ - Wouldn’t it be a beautiful world if just 10 percent of the people who believe in the power of love would compete with one another to see who could do the most good for the most people?
+ - I outwit them, and then I outhit them.
+ - I am the astronaut of boxing. Joe Louis and Dempsey were just jet pilots. I’m in a world of my own.
+ - Who is the descendant of the slavemasters a descendant of slaves to fight other people in thier own country?
+ - I am an ordinary man who worked hard to develop the talent I was given.
+ - Islam is against killing, terrorism, and murder. People who commit these acts in the name of Islam are wrong. And if I had a chance I would do something about it.
+ - People don’t realise what they had till it’s gone. Like President Kennedy – nobody like him. Like The Beatles, there will never be anything like them. Like my man, Elvis Presley – I was the Elvis of boxing.
+ - Unknown Make new friends but keep the old ones; one is silver and the other’s gold.
+ - I said I was the greatest, not the smartest.
+ - I’ve never let anyone talk me into not believing in myself.
+ - Sonny Liston is nothing. The man can’t talk. The man can’t fight. The man needs talking lessons. The man needs boxing lessons. And since he’s gonna fight me, he needs falling lessons.
+ - Just remember that you don’t have to be what they want you to be.
+ - Fighting by itself doesn’t interest me anymore. I want to help people, the black people and I need any kind of media to spread my thought: God, charity, peace.
+ - I want to be the first black man on the moon.
+ - I’m not the greatest; I’m the double greatest. Not only do I knock ’em out, I pick the round.
+ - The greatest victory in life is to rise above the material things that we once valued most.
+ - There comes a time in every person’s life when he has to choose the course his life will take.
+ - The one without dreams is the one without wings.
+ - The more we help others, the more we help ourselves.
+ - Ali’s got a left, Ali’s got a right, if he hits you once, you’re asleep for the night.
+ - You can’t keep your mind on fighting when you’re thinking about a woman. You can’t keep your concentration. You feel like sleeping all the time.
+ - You know I hate fighting. If I knew how to make a living some other way, I would.
+ - We are stone enemies when the bell rings.
+ - Superman don’t need no seat belt.
+ - You made a big mistake by letting me come, because now I’m going after your job.
+ - Nobody has to tell me that this is a serious business. I’m not fighting one man. I’m fighting a lot of men, showing a lot of ’em, here is one man they couldn’t defeat, couldn’t conquer. My mission is to bring freedom to 30m black people.
+ - Since I won’t let the critics seal my fate, they keep hollering I’m full of hate. But they don’t really hurt me none, ’cause I’m doing good and having fun.
+ - When a chivalrous man makes an oath, he is faithful to it, and when he attains power, he spares his enemy.
+ - I wish people would love everybody else the way they love me. It would be a better world.
+ - You can be free. You can be black. Look at me! I’m the Heavyweight Champion! Can’t nobody stop me.
+ - I can’t see what God’s plan is. I just know I’ve got to live with it.
+ - The roughest and toughest fighter I fought was Joe Frazier.
+ - When you come to the fight Don’t block the halls and don’t block the door, for y’all may go home after round four.
+ - A rooster crows only when it sees the light. Put him in the dark and he’ll never crow. I have seen the light and I’m crowing.
+ - I’ll leave you with one that I have hanging on my office wall, compliments of Nike: Impossible is nothing.
+ - I used to ask my brother Rudy to throw rocks at me. I’d dodge every one. That’s how I learned how to bob and weave: ducking rocks.
+ - I’ll beat him so bad he’ll need a shoehorn to put his hat on.
+ - I live. I travel. I eat. I pray. These are the things I do. I’d rather be in my condition than be a man with four children in a four-bedroom house, working hard every day to pay for his house, taking his children to school.
+ - No black man wants a blue-eyed black child, and no white man wants a kinky-haired white child. Nature didn’t mean it to be that way.
+ - If the boxers are a little more colorful, talk a little like I did and just do half as much as I did for boxing, it will be all right.
+ - Christians are my brothers, Hindus are my brothers, all of them are my brothers. We just think different and believe different.
+ - They used to draw cartoons of Jews in Germany. Later they started killing them in the Holocaust.
+ - The outgoing and spontaneous person that the world knew while I was boxing was a persona that I created to sell tickets and promote my career. In my private life, I am quiet and reflective by nature.
+ - Believe me, a thousand friends suffice thee not; In a single enemy thou hast more than enough.
+ - I got it made the rest of my life, financially and in every other way. There’s nobody in the world like me. I’m getting out just in time. If I was twenty seven, I could still kick ass. I don’t have to beat Holmes. Why? I raised him, he worked three years as a sparring partner for me.
+ - My face is so pretty, you don’t see a scar, which proves I’m the king of the ring by far.
+ - I should be a postage stamp. That’s the only way I’ll ever get licked!
+ - Love is a net that catches hearts like a fish.
+ - What I will remember most about Mr Mandela is that he was a man whose heart, soul and spirit could not be contained or restrained by racial and economic injustices, metal bars or the burden of hate and revenge.
+ - Maybe I was great in the ring, but outside of boxing, I’m just a brother like other people. I want to live a good life, serve God, help everybody I can. And one more thing. I’m still gonna find out who stole my bike when I was 12 years old in Louisville and I’m gonna whup him. That was a good bike.
+ - If you are not the best, then pretend you are.
+ - I don’t know what truculent means, but if it’s good, it’s me.
+ - My mama told me I was already in a hurry as a child. I even had measles and chicken pox at the same time.
+ - Put yourself out on a limb, sucka, like me! – young Cassius Clay to heavily favored thug Sonny Liston during the weigh in before Cassius wins his first title and changes his name to Muhammad Ali.
+ - Fifty years old, 212 fights, and I’m still pretty.
+ - Don’t ever squeeze a fighter’s hand, man. You’re doing good just to lay your eyes on me.
+ - When I meet a new person, I don’t see race or religion. I look deeper. We must learn to satisfy our conflicts peacefully and to respect one another.
+ - Some gems for the greatest of them all.
+ - Before I became a Muslim, I ate pork and chased women – but all that stuff stopped.
+ - The world badly needs more peaceful and loving men like Sri Chinmoy. I am a Muslim and he is serving all people of peace. Sri Chinmoy is doing so much for the world, for people of all faiths, because of his own peace and faith.
+ - War on nations changes maps. War on poverty maps change.
+ - My soul has grown over the years, and some of my views have changed. As long as I am alive, I will continue to try to understand more because the work of the heart is never done.
+ - That computer was made in Alabama.
+ - If you want to be equal with me, you can get your own Rolls-Royce, your own house and your own million dollars.
+ - Ain’t no reason for me to kill nobody in the ring, unless they deserve it.
+ - I sought the advice and cooperation from all those around me- but not permission.
+ - I calculate that I took 20,000 punches, but I earned millions and kept a lot of it. I may talk slow, but my mind is OK.
+ - Whatever the challenge was, however unattainable the goal may have seemed, I never let anyone talk me out of believing in myself.
+ - I’m gonna have to be killed before I lose, and I ain’t going to die easy.
+ - During my boxing career, you did not see the real Muhammad Ali. You just saw a little boxing and a little showmanship. It was after I retired from boxing that my true work began.
+ - If you love God, tear out your heart’s love of the world.
+ - I called my training camp Fighter’s Heaven.
+ - There are two things that are hard to hit and see. That’s a spooky ghost and Muhammad Ali.
+ - I only read the Holy Koran, the Bible and the sports pages.
+ - It’s hard to beat a guy when he’s got his mind made up that he’s going to win.
+ - Sonny Liston is great. But he’ll fall in eight.
+ - Oh! how the hours hasten to change into days, the days into months, the months into years, and those into life’s annihilation!
+ - The greater our level of understanding, the harder the tests become.
+ - I figured that if I said it enough, I would convince the world that I really was the greatest.
+ - Scatter abroad what you have already amassed rather than pile up new wealth.
+ - When you can whip any man in the world, you never know peace.
+ - There were so many fellows ranked over me I couldn’t just whoop them all. I had to out-shadow them by talking.
+ - No one knows what to say in the loser’s locker room.
+ - The one thing I don’t understand is war.
+ - Frazier is so ugly that he should donate his face to the US Bureau of Wild Life.
+ - The fact is I never was too bright in school. I just barely graduated. I had a D- average. I ain’t ashamed of it, though. I mean, how much do principals make a month?
+ - If my fans think I can do everything I say I can do, then they’re crazier than I am. After one of his fight predictions turned out to be wrong.
+ - I’m going to, not I’m gonna. Talk intelligent.
+ - I’m not into fashion at all. I always wear the same thing: dark suits. I don’t even know where I get them.
+ - We are all God’s people. We are prejudiced and we separate into Jews, Mexicans, Italians, but God doesn’t see colors.
+ - Mr. president, I’ve been a citizen of the United States of America for thirty three years and was never invited to the White House. It sure gives me pleasure to be invited to the Black House.
+ - Enjoy your children, even when they don’t act the way you want them to.
+ - I’m so fast I could hit you before God gets the news.
+ - I’m The Greatest, but only in relation to fighting.
+ - Home is the place you can go when you’re whipped.
+ - You can go to Japan, China, all the European, African, Arab, and South American countries, and man, they know me. I can’t name a nation where they don’t know me.
+ - I have the world heavyweight title not because it was ‘given’ to me, not because of my race or religion, but because I won it in the ring through my own boxing ability.
+ - Be obedient to your superior, and your inferior will obey you.
+ - I just felt the power and the meanness of the man I was messing with.
+ - A man who views the world the same...
+ - The man who will whip me will be fast, strong and hasn’t been born yet.
+ - This relationship will help guarantee that, for generations to come, people of all nations will understand my beliefs and my purpose.
+ - The show was bad, but I was great.
+ - Do you know why I’m the fastest heavyweight in the world? I’m the only heavyweight that trains underwater!
+ - I never push in front my muscles, only my religion, so I’m protected.
+ - I try not to speak about all the charities and people I help, because I believe we can only be truly generous when we expect nothing in return.
+ - I should be a postage stamp, because that’s the only way I’ll ever get licked. I’m beautiful. I’m fast. I’m so mean I make medicine sick. I can’t possibly be beat.
+ - Someone stole my bicycle and I said I was going to learn to fight so that I could catch him and beat him up. But I never did catch him. But I ended up the champ of the whole world.
+ - I try to learn as much as I can because I know nothing compared to what I need to know.
+ - Not to commit faults counts for more than to do good.
+ - Howard Cosell was gonna be a boxer when he was a kid only they couldn’t find a mouthpiece big enough.
+ - They can boo me, yell at me, and throw peanuts at me, as long as they pay to get in.
+ - I figure I’ll be champ for about ten years and then I’ll let my brother take over – like the Kennedys down in Washington.
+ - My main purpose is to pray five times a day. And that’s not easy.
+ - True giving happens when we give from our heart.
+ - It’s possible for the heavyweight champion of the world to be with one woman.
+ - Some people have special resources inside, and when God blesses you to have more than others, you have a responsibility to use it right.
+ - I am America. I am the part you won’t recognize. But get used to me. Black, confident, cocky; my name, not yours; my religion, not yours; my goals, my own; get used to me.
+ - Stumbling is the fruit of haste.
+ - I’d like to live to a hundred.
+ - A fighter can condition his body to go hard certain rounds, then to coast certain rounds.
+ - But when I looked at a lot of the questions they had on them army tests, I just didn’t know the answers. I don’t even know how to start after finding the answers. That’s all.
+ - In the ring I can stay until I’m old and gray because I know how to hit and dance away.
+ - I had to prove you could be a new kind of black man. I had to show the world.
+ - The man of least capacity is the one who shows himself incapable of self-correction.
+ - No one starts out on top. You have to work your way up.
+ - America don’t have no future! America’s going to be destroyed! Allah’s going to divinely chastise America! Violence, crimes, earthquakes- there’s gonna be all kinds of trouble. America’s going to pay for all its lynchings and killings of slaves and what it’s done to black people.
+ - I always bring out the best in men I fight, but Joe Frazier, I’ll tell the world right now, brings out the best in me. I’m gonna tell ya, that’s one helluva man, and God bless him.
+ - Politicians are always saying that they are in support of Iraqi citizens and now they are increasing the price of petrol. We were oppressed for 35 years. We are like a sick patient who is in need of care, and they are increasing prices.
+ - All of us are so mixed. My great-grandfather was white.
+ - Boxing’s a rough sport. After every fight I rush to the mirror to make sure I’m presentable.
+ - I tried to get into the mind of my opponent and psyche him out.
+ - The only way for peace between the races is a separation of the races.
+ - I wasn’t thinking of being the greatest. But I knew I had a chance.
+ - Why are they picking on boxing? It’s because the black men are so superior in boxing that they want to stop it. Well, the black man’s so hungry he’s got to fight.
+ - Lighting that torch in Atlanta didn’t make me nervous. Standing up to the government – that made me nervous.
+ - My trainer don’t tell me nothing between rounds. I don’t allow him to. I fight the fight. All I want to know is did I win the round. It’s too late for advice.
+ - I’ve got it! I’ve got it! It’ll make front-page headlines around the world. You can have me kidnapped, and then a couple of days before the fight I’ll show up again.
+ - It all started to come together when I realized that boxing was how I was going to succeed in life.
+ - Anywhere I go, there is always an incredible crowd that follows me. In Rome, as I land at the airport, even the men kiss me. I love Rome.
+ - Holmes is so ugly, his grandmother said when he started to cry the tears would stop and roll down the back of his head.
+ - There are billions of people in the world, and every one of them is special. No one else in the world is like you.
+ - Once we realize we are all members of humanity, we will want to compete in the spirit of love.
+ - I don’t know how many millions I’ll make, so I have to give some back to charity. God blesses me with the money, but only if I give some away.
+ - What I’ve found is that the religion that matters, the real religion is love.
+ - There are more pleasant things to do than beat up people.
+ - Being Ali’s doctor is somewhat like being gynacologist to the Queen of England. One does not have to do much to receive good press.
+ - You been hearing about how bad I am since you were a little kid with mess in your pants! Tonight, I’m gonna whip you till you cry like a baby.
+ - I’m the most recognised and loved man that ever lived.
+ - I predict that this will be the greatest book ever and it will sell more than any other book in history.
+ - Boxing is a lot of white men watching two black men beat each other up.
+ - I’m the greatest thing that ever lived! I’m the king of the world! I’m a bad man. I’m the prettiest thing that ever lived.
+ - If America were in a just war I’d volunteer for the front line. I’d do the shuffling and win the war.
+ - People will know you’re serious when you produce.
+ - I have a radar built inside me to avoid punches.
+ - All I want now is to be a nice, clean gentleman. I’ve proved my point. Now I’m going to set an example for all the nice boys and girls. I’m through talking.
+ - I had it in my heart. I believed in myself, and I had confidence. I knew how to do it, had natural talent and I pursued it.
+ - So I didn’t pass. It was the army’s decision that they didn’t want me to go into the service. They’re the boss. I don’t want to say no whole lot about it.
+ - I’ve never really resented hard work because I’ve always liked it. Up every morning for roadwork. Going to the gymnasium every day at 12 o’clock. I never change my pattern.
+
+352 quotes

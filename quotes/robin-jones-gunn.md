@@ -1,0 +1,26 @@
+ - If you want to go fast, go alone. If you want to go far, go together.
+ - If you feel far from God, guess who moved?
+ - There are 365 “fear nots” in the Bible. One for every day of the year. Today I will fear not.
+ - We all need to have dreams. The question is, does the dream control you or do you control the dream?
+ - Based on personal experience and not just on theory, Prayerwalk, offers readers practical insights on how to get up, get moving, and get praying. The results can be life changing.
+ - Bad friends could ruin your whole life. Be wise when it comes to choosing your friends. You set the standard. You be the one who stands strong. Don’t be a follower.
+ - When in doubt chicken out.
+ - Sometimes the best answers to prayer are the ones God doesn’t answer.
+ - Take it and be thankful.
+ - Sounds a little like my quote for the week. Do you want to hear it? This is by Augustine: O soul, He only who created thee can satisfy thee. If thou ask for anything else, it is thy misfortune, for He alone made thee in His image can satisfy thee. That’s rich, isn’t it?
+ - I look back now and realize that the gift of a true friend is that she sees you not the way you see yourself or the way others see you. A true friend sees you for who you are and who you can become.
+ - I think it’s possible to realize you love someone as deeply as you know how to love and not end up spending the rest of your life with him.
+ - When I was little, I used to think that the sky at night was a big, black blanket that separated heaven from earth, and the stars were a whole bunch of little pin holes that the angels poked in the blanket so they could look down on us.
+ - It’s funny whom we end up choosing to love and who ends up choosing to love us. It’s rarely the people we think it should be.
+ - If there’s one thing I’ve learned, it’s that God is a very creative author, and He writes a different story for every person. No two lives or stories alike.
+ - It was the kind of crying that comes from the pit of the stomach and brings a headache with it. The kind that makes a person snort and gasp, and no matter how idiotic you feel or how hard you try, you can’t stop.
+ - In the pit of her stomach she realized that everything she raged against on Saturday night – the restrictions, rules, and guidelines – was born of an ancient fervor. Every rule ever established, from the beginning of time, invited mutiny.
+ - For many years, Sierra had compared the Holy Spirit to the wind, as it said the the Bible, noting that it was always there, no matter how faint the breeze. The wind went where it wanted to go, and its path was easy to detect because it moved objects and people. But no one had ever seen the wind.
+ - You know what I think? I think that if a young woman doesn’t engage in the act of occasionally wishing on a star or a flower or a birthday cake full of candles, then we’re forfeiting one of the sweetest whimsies of our youth.
+ - Then Circled by the golden light of God’s Presence and His promise, Paul and Sierra walked side by side along the trail that lead tward the campus and on tward their Future.
+ - Do you think it’s possible to finally decide that you really, truly love someone but not end up marrying him?
+ - The key is for you to discover what you love to do, what you were created to do, and then do it for the people around you with love. That is the abundant life, dear girl, no matter where in the world you live.
+ - When one heart opens to another heart, it usually results in love.
+ - If God gave us everything we asked for, we’d be in chaos.
+
+24 quotes

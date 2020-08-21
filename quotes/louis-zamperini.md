@@ -1,0 +1,29 @@
+ - Never give up, no matter what.
+ - To persevere, I think, is important for everybody. Don’t give up, don’t give in. There’s always an answer to everything.
+ - I’d made it this far and refused to give up because all my life I had always finished the race.
+ - If I can take it, I can make it.
+ - However dark the night, however dim our hopes, the light will always follow darkness.
+ - All I want to tell young people is that you’re not going to be anything in life unless you learn to commit to a goal. You have to reach deep within yourself to see if you are willing to make the sacrifices.
+ - The one who forgives never brings up the past to that person’s face. When you forgive, it’s like it never happened. True forgiveness is complete and total.
+ - I was raised to face any challenge.
+ - Pain is that last quarter of a mile. You feel it, but when you’re through racing, your whole body just feels elated. So the pain is worth it.
+ - People tell me, “You’re such an optimist”. Am I an optimist? An optimist says the glass is half full. A pessimist says the glass is half empty. A survivalist is practical. He says, “Call it what you want, but just fill the glass.” I believe in filling the glass.
+ - That’s one thing you learn in sports. You don’t give up; you fight to the finish.
+ - Yet a part of you still believes you can fight and survive no matter what your mind knows. It’s not so strange. Where there’s still life, there’s still hope. What happens is up to God.
+ - You have to reach deep within yourself to see if you are willing to make the sacrifices.
+ - God knew my needs and took care accordingly.
+ - To live, a man needs food, water, and a sharp mind.
+ - Even at my age, I’m trying to improve. Never give up, no matter what. Even if you get last place – finish.
+ - All I knew was that hate was so deadly as any poison and did no one any good. You had to control and eliminate it, if you could.
+ - Self-esteem can’t win you a race if you’re not in shape.
+ - God has given me so much. He expects so much out of me.
+ - People say, on the raft, you must have hallucinated. Baloney. We were sharper after 47 days than the day we started because our minds were empty of all the war and contamination; we had clean minds to fill with good thoughts. Every day we’d exercise our minds.
+ - Every soldier should learn survival on land, sea, and in the air.
+ - The world, we’d discovered, doesn’t love you like your family loves you.
+ - I was a rotten kid. My excitement came from seeing what I could get away with.
+ - I’ve always been called Lucky Louie. It’s no mystery why.
+ - I ended up in the Army Air Corps in the Pacific, operating out of Ayuka field in Hawaii.
+ - The race film had confirmed a dead heat. That was great. But even better, most of the New York press finally learned to spell my name correctly.
+ - The great commandment is that we preach the gospel to every creature, but neither God nor the Bible says anything about forcing it down people’s throats.
+
+27 quotes

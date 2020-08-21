@@ -1,0 +1,42 @@
+ - The trouble is, you think you have time. ~~Buddha
+ - Life is short, break the rules. ~~Mark Twain
+ - Think big and don’t listen to people who tell you it can’t be done. Life’s too short to think small. ~~Tim Ferriss
+ - Life is too short to waste. Dreams are fulfilled only through action, not through endless planning to take action. ~~David J. Schwartz
+ - Life is short and unpredictable. Eat the dessert first! ~~Helen Keller
+ - Remember: Life is short, break the rules. ~~James Dean
+ - Life is short. You can’t afford to put off what God has put in your heart. You don’t have time to live with things holding you back. ~~Joel Osteen
+ - Life is short. Don’t miss opportunities to spend time with the people that you love. ~~Joel Osteen
+ - We only have one life and one body to care of, and we better do it right. You never know what tomorrow may bring and so we better live this life the best we can and be grateful for everything we have. ~~Novak Djokovic
+ - Life is short. Be of use. ~~Robin S. Sharma
+ - Life is short. Forgive quickly. Kiss slowly. ~~Robert Doisneau
+ - I refuse to accept other people’s ideas of happiness for me. As if there’s a ‘one size fits all’ standard for happiness. ~~Kanye West
+ - Life is short, death is forever. ~~Chuck Palahniuk
+ - Life is short and the time of death is uncertain; so apply yourself to meditation. Avoid doing evil, and acquire merit, to the best of your ability, even at the cost of life itself. In short: Act so that you have no cause to be ashamed of yourselves and hold fast to this rule. ~~Milarepa
+ - The art is long, life is short. ~~Hippocrates
+ - Life is short, and we should respect every moment of it. ~~Orhan Pamuk
+ - We are all, in the private kingdom of our hearts, desperate for the company of a wise, true friend. Someone who isn’t embarrassed by our emotions, or her own, who recognizes that life is short and all that we have to offer, in the end, is love. ~~Steve Almond
+ - Since life is short and the world is wide, the sooner you start exploring it, the better. ~~Simon Raven
+ - Life is short. That’s all there is to say. Get what you can from the present – thoughtfully, justly. ~~Marcus Aurelius
+ - Life is short but it is wide. This too shall pass. ~~Rebecca Wells
+ - You realize that life is short and fragile; and when you are facing walls of water, you understand your own mortality can change and how quickly things could change. ~~Larry Ellison
+ - Life is short. Do not forget about the most important things in our life, living for other people and doing good for them. ~~Marcus Aurelius
+ - I don’t think that life happens by sitting back and waiting. People hold their cards so tight to their chest. Life is short. Tell people you love them. What’s the worst that’s going to happen? ~~Drew Barrymore
+ - The universe has no restrictions. You place restrictions on the universe with your expectations. ~~Deepak Chopra
+ - A good friend is a connection to life – a tie to the past, a road to the future, the key to sanity in a totally insane world. ~~Lois Wyse
+ - Drama is life with the dull bits cut out. ~~Alfred Hitchcock
+ - Life is short, but art lives forever. ~~Marcus Tullius Cicero
+ - Youth is fleeting and life is short, you might as well strike hard. Anything else is just average. ~~Henry Rollins
+ - Why not? Life is short, life is dull, life is full of pain – and this is a chance for something special. ~~Woody Allen
+ - You never know, life is short but it’s wide. ~~Wendy Mass
+ - Let’s not allow ourselves to be upset by small things we should despise and forget. Remember “Life is too short to be little”. ~~Dale Carnegie
+ - Art is long and life is short, and success is very far off. ~~Joseph Conrad
+ - Life is too short not to experiment. ~~Jamelia
+ - Look. We both know life is short, Macy. Too short to waste a single second with anyone who doesn’t appreciate and value you. ~~Sarah Dessen
+ - Life is too short to be little. Man is never so manly as when he feels deeply, acts boldly, and expresses himself with frankness and with fervor. ~~Benjamin Disraeli
+ - Life is a game. In order to have a game, something has to be more important than something else. If what already is, is more important than what isn’t, the game is over. So, life is a game in which what isn’t, is more important than what is. Let the good times roll. ~~Werner Erhard
+ - Life is short, but the years are long. ~~Robert A. Heinlein
+ - Life is short and love is over in the morning. ~~Ville Valo
+ - Life is short. Short, and not about anything except what you can touch and what touches you. ~~Woody Allen
+ - He is different, and there will be many people you love who will be unhappy with you. You don’t want them to feel you’ve dishonored them. Yes, I know how it is. But life is short. A chance for great happiness doesn’t come along all that often. ~~Dean Koontz
+
+40 quotes

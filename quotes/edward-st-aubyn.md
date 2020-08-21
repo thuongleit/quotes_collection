@@ -1,0 +1,21 @@
+ - Irony is the hardest addiction of all. Forget heroin. Just try giving up irony, the deep-down need to mean two things at once, to be in two places at once, not to be there for the catastrophe of a fixed meaning.
+ - People never remeber happiness with the care that they lavish on preserving every detail of their suffering.
+ - No pain is too small if it hurts, but any pain is too big if it’s cherished.
+ - You can only give things up once they start to let you down.
+ - The whole ‘Melrose’ series is an attempt to tell the truth, and is based on the idea that there is some salutary or liberating power in telling the truth.
+ - Everything was usual. That was depression: being stuck, clinging to an out-of-date version of oneself.
+ - The first book I fell in love with was ‘Little Toot,’ the story of an adorable tugboat operating out of New York Harbor.
+ - Proust is a hero of mine. I read ‘A la recherche’ in one go, and I’m a very slow reader. It had an astonishing impact, reading it on my own and being my main company. I think Proust is the most intelligent person to ever have written a novel.
+ - It’s no use imagining that bringing great writers together inevitably precipitates great conversation.
+ - The thing about the ‘Melrose’ novels is that I have to feel they’re impossible when I set out.
+ - It seems people spend the majority of their lives believing they’re dying, with the only consolation being that at one point they get to be right.
+ - I see the author as the person who has written; the writer, the one involved in the process of writing. And they’re not necessarily friends. The writer is the one I want to reinforce; the author would just feed on the reviews – so I’m in favour of starving him.
+ - Surely: the adverb of a man without an argument.
+ - Detachment is what interests me, seeing how people couldn’t have been any other way, how they were the product of forces that they had no control over.
+ - I’m really not responsible for what mental operation people have when they’re reading my books other than the ones which are created by literary effects.
+ - I think that some laughter comes from escaped horror, doesn’t it?
+ - I’m not trying to uncover the facts of my life but to discover the dramatic truth of the situations I was in.
+ - Well, the attractive thing about the subject of happiness is that it is notoriously difficult to write.
+ - The Booker 2011 is of no more interest to me than the world heavyweight championship, which I’m not going to win either. It’s irrelevant.
+
+19 quotes

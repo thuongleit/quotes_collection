@@ -1,0 +1,78 @@
+ - It is easy to make promises – it is hard work to keep them.
+ - Voting Tory will cause your wife to have bigger breasts and increase your chances of owning a BMW M3.
+ - I’m a one-nation Tory.
+ - Dark forces dragged me away from the keyboard, swirling forces of irresistible intensity and power.
+ - My friends, as I have discovered myself, there are no disasters, only opportunities. And, indeed, opportunities for fresh disasters.
+ - This is a super masticated subject, and it is time to spit it out.
+ - My policy on cake is pro having it and pro eating it.
+ - My ideal world is, we’re there, we’re in the EU, trying to make it better.
+ - The volunteering spirit of Londoners is part of what makes this the best big city on earth.
+ - Some people play the piano, some do Sudoku, some watch television, some people go out to dinner parties. I write books.
+ - He is like some sherry-crazed old dowager who has lost the family silver at roulette, and who now decides to double up by betting the house as well.
+ - Yes, cannabis is dangerous, but no more than other perfectly legal drugs. It’s time for a rethink, and the Tory party – the funkiest, most jiving party on Earth – is where it’s happening.
+ - My chances of being PM are about as good as the chances of finding Elvis on Mars, or my being reincarnated as an olive.
+ - When Cameron’s Conservatives come to power it will be a golden age for cyclists and an Elysium of cycle lanes, bike racks, and sharia law for bike thieves. And I hope that cycling in London will become almost Chinese in its ubiquity.
+ - Life isn’t like coursework, baby. It’s one damn essay crisis after another.
+ - London is a fantastic creator of jobs – but many of these jobs are going to people who don’t originate in this country.
+ - I stress – I don’t believe that economic equality is possible; indeed some measure of inequality is essential for the spirit of envy and keeping up with the Joneses that is, like greed, a valuable spur to economic activity.
+ - There is absolutely no one, apart from yourself, who can prevent you, in the middle of the night, from sneaking down to tidy up the edges of that hunk of cheese at the back of the fridge.
+ - Volunteering is also now more crucial than ever in helping people find work.
+ - Nothing excites compassion, in friend and foe alike, as much as the sight of you ker-splonked on the Tarmac with your propeller buried six feet under.
+ - I firmly believe that volunteering is good for our society and brings communities together. It’s a fantastic opportunity to get involved in your local community, to meet new people and to gain a sense of pride and achievement.
+ - Humanity would have plunged into a new dark age of absolutely frightening and appalling characteristics without Churchill.
+ - I’d like thousands of schools as good as the one I went to, Eton.
+ - I would ban sweets from school – but this pressure to bring in healthy food is too much.
+ - I want to win and I want to be in office.
+ - Try as I might, I could not look at an overhead projection of a growth profit matrix and stay conscious.
+ - The Lib Dems are not just empty. They are a void within a vacuum surrounded by a vast inanition.
+ - The meat in the sausage has got to be Conservative.
+ - I love swimming in rivers, and well remember once jumping in at Chiswick.
+ - Never in my life did I think I would be congratulated by Mick Jagger for achieving anything.
+ - I lead a life of blameless domesticity and always have done.
+ - If we judged everybody by the stupid, unguarded things they blurt out to their nearest and dearest, then we wouldn’t ever get anywhere.
+ - I am supporting David Cameron purely out of cynical self-interest.
+ - We did everything we could to break down barriers that restrain poorest.
+ - The dreadful truth is that when people come to see their MP they have run out of better ideas.
+ - The mayors fund for London will be a streamlined vehicle for getting money from the wealth creating sector to communities across London that are facing hardship and deprivation and are the victims of crime.
+ - This is not a time to quail, it is not a crisis, nor should we see it as an excuse for self-doubt. It is a moment of hope.
+ - I think it’s absolutely amazing and how the Remain side have the cheek to come and tell us that we improve our security by staying in this organisation I do not understand.
+ - It was the kind of blind, gulping, insensate greed that you associate with some milk-eyed creature in a volcanic fissure at the bottom of the Marianas Trench-an organism with no understanding of the existence, let alone the feelings, of other members of the ecosystem.
+ - Can I say anything good about Ken Livinstone? A long time ago he did some good things, but I can’t now remember what any of them were.
+ - The next Tory leader would have to unify his party and ensure that Britain stood tall in the world.
+ - I have not been more robust towards female rather than male assembly members and I do not believe I have been remotely sexist.
+ - I cant remember what my line on drugs is. Whats my line on drugs?
+ - As a Scot Gordon Brown will find it hard to convince people in England he should be prime minister.
+ - I think it’d be disgraceful if a chap wasn’t allowed to have a bit of fun in Las Vegas. The real scandal would be if you went all the way to Las Vegas and you didn’t misbehave in some trivial way.
+ - We celebrate the contribution of people who have come to this country to make it better.
+ - The crucial thing is to look in an informed way at what’s going on. Look at the way in which we are forced by our imbalanced system to push away people who might contribute mightily to the NHS.
+ - Since January 1993 there have been 27 other countries not in the EU that have done better than the UK at exporting goods into the single market.
+ - It is possible to have a pretty good life and career being a leech and a parasite in the media world, gadding about from TV studio to TV studio, writing inconsequential pieces and having a good time.
+ - London is the sporting capital of the world. I say to the Chinese and I say to the world, ping pong is coming home.
+ - I have as much chance of becoming Prime Minister as of being decapitated by a frisbee or of finding Elvis.
+ - So I’m definitely in favour of stimulating the dynamic wealth creation sectors of the economy.
+ - This is our chance to build a Britain where everyone benefits from the success of the economy.
+ - But if people want to swim in the Thames, if they want to take their lives into their own hands, then they should be able to do so with all the freedom and exhilaration of our woad-painted ancestors.
+ - Do you seriously propose that they are going to be so insane as to allow tariffs to be imposed. The EU is, I’m afraid a job destroying engine. You can see it all across southern Europe, you can see it, alas, in our country.
+ - You are part of our Great British family.
+ - I want you to know that I have nothing against Orlando, though you are, of course, far more likely to get shot or robbed there than in London.
+ - I am hoping very much to get re-elected but it is going to be a tough fight.
+ - Our friends in America will be at the front of the queue for trade deals.
+ - The job of mayor of London is unbelievably taxing, particularly in the run-up to the Olympics.
+ - It just happens I write fast and always have done.
+ - I think the risks that people see of terrorism are incredibly important but we are very confident we have got the right people on it and the risks have been minimised.
+ - I think it is going to be wonderful. I went to the Paralympics in Beijing and have seen how brilliant the sport is at first hand. People are going to love it. It is going to change people’s attitudes to Paralympians and it is going to be a great show.
+ - It hasn’t taken them long, they began by telling us they would have a positive and patriotic case and they’re back to project fear within minutes. There they go again they have nothing positive to say.
+ - I want London to be a competitive, dynamic place to come to work.
+ - I’m afraid Sadiq Khan is completely wrong. The European Court of Justice is the supreme legal authority in our country.
+ - We need to look at our nannying, mollycoddled, politically correct culture in my view, which stops kids from going out and playing competitive sport. I also think we need to look at the shear fatness of the regulations which control people who want to help kids play sport.
+ - My speaking style was criticised by no less an authority than Arnold Schwarzenegger. It was a low moment, my friends, to have my rhetorical skills denounced by a monosyllabic Austrian cyborg.
+ - I love tennis with a passion. I challenged Boris Becker to a match once and he said he was up for it but he never called back. I bet I could make him run around.
+ - In 1904, 20 per cent of journeys were made by bicycle in London. I want to see a figure like that again. If you can’t turn the clock back to 1904, what’s the point of being a Conservative?
+ - We should celebrate immigrants and everything they do for our country.
+ - We need to remember that we can’t compete endlessly with other nations that set their income taxes substantially lower than ours. They will attract jobs, and investment. They may generate more tax – and they may even persuade their tennis champs to run that extra half yard.
+ - When my father began his work in the 1970s it was a very different EU. I pay tribute to what he did. But it has now become a very different proposition: the United States of Europe.
+ - It is just flipping unbelievable. He is a mixture of Harry Houdini and a greased piglet. He is barely human in his elusiveness. Nailing Blair is like trying to pin jelly to a wall.
+ - I want to offer particular congratulations to Andrea Leadsom on her stunning achievement. She is now well placed to win and replace the absurd gloom in some quarters with a positive, confident and optimistic approach, not just to Europe, but to government all round.
+ - I think I was once given cocaine but I sneezed so it didn’t go up my nose. In fact, it may have been icing sugar.
+
+76 quotes

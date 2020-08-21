@@ -1,0 +1,54 @@
+ - Most bad behavior comes from insecurity.
+ - The sexiest thing in the world is to be totally naked with your wedding band on.
+ - It’s such an amazing thing to be loved for who you are.
+ - Bad acting is the ultimate inconsideration.
+ - It’s inconceivable to some people that that wouldn’t be the sexiest thing to do in the whole world: to be a movie star, and make money, and be pampered, and whatever.
+ - If I could have one prayer answered, I would pray for patience. I move so fast sometimes. I try to slow down.
+ - I do not need a lot of money to be happy.
+ - It’s easier to change directions while you’re still moving.
+ - I need my family to remind me in a loving and nice way to lighten up.
+ - I hope to find the roles that are age appropriate but not yearning to be younger, or parenting ad nauseam.
+ - My grandmother gave birth to 13 children and I come from a long line of women who gave birth in their 40s.
+ - It’s no secret that I didn’t love ‘An Officer And A Gentleman’ then, and I certainly don’t love it now, so at least no one could accuse me of being inconsistent.
+ - I was the all-American face. You name it, honey – American Dairy Milk, Metropolitan Life insurance, McDonald’s, Burger King. The Face That Didn’t Matter – that’s what I called my face.
+ - I just want to sleep, and eat, and learn about what’s going on in the world.
+ - Granted there are only seven stories in the universe. And I agree with that. But give me a great variation of those stories. And literate.
+ - I have a thing with the camera. The lens is unconditional. It doesn’t judge you.
+ - When you connect with a cause, it’s like falling in love.
+ - I am one of the happiest people I know. And that’s a weird place to have arrived at from being a depressed Jewish kid.
+ - But I never worried about having a child in my 40s, which is unusual – normally, I’m the queen of worry.
+ - Just because we’re on schedule is no reason to shoot bad acting. Someone once said to me, ‘You’re inconsiderate.’ And I said, ‘Inconsiderate? Bad acting is the ultimate inconsideration.’ It’s a collective slap to a million faces at the same time.
+ - I tend to wear outfits that match the walls.
+ - I have enjoyed a wonderful run in films, so far, and I may, at some point, come back. But it will be in my own time and in my own style.
+ - I make decisions for my life, not the other way around. Besides, when you have a kid, you must weigh everything against time with your child.
+ - I just live in the truth and think that every moment counts.
+ - I’ve been acting all along. I understand that I haven’t been in people’s viewers, but acting has never not been a part of my life, just more time in between and less high-profile.
+ - I had a very insightful friend who warned me back when I stopped reading scripts, ‘It’s easier to change directions while you’re still moving.’ If you stop, it’s harder to get started again. I still don’t think I made the wrong decision, but he was right.
+ - I happen to be interested in watching a face age. I like faces of women aging so it makes me personally quite sad. That’s a beautiful gift from God. If people don’t want to see that anymore then I won’t be in anymore movies.
+ - Theater is all about the rehearsal process. In fact, I think a lot of times opening night there’s a mixed sadness because you’re finished with a lot of people’s favorite part of the process, which is finding the character and discovering it, and then you get to live it.
+ - I think when it comes to Botox and surgery, actresses should do it or not do it, but be honest about their choices.
+ - People who make lots of money at what they do should just shut up about it.
+ - I started out in stand-up, so it’s very satisfying to make people laugh, but it usually means at your own expense.
+ - I will walk out on a scene if it’s all lit and ready to go but it’s not happening.
+ - Actors always want you to believe something else even though that’s the truth and to do that well it’s almost a dying art.
+ - I always loved working as an actress, but I didn’t understand why I couldn’t just opt out of being famous. And then I realized you can, and I think I did. And eventually, I came to understand that you can do that and also keep working.
+ - I don’t think that I’m that easy to live with. I have to be reminded that I can have fun. I need my family to remind me in a loving and nice way to lighten up.
+ - People pay to see movies with women looking beautiful, but I think there will be a place for me to play women looking my own age.
+ - Never say never, but the thought of electively cutting oneself is beyond my grasp, and I also object to it politically. Denying the lines on our faces makes a comment about age and wisdom I don’t care to make.
+ - I used to love going on a junket and promoting a film when it was not a 24-hour news cycle, and when there weren’t so many media outlets. You could actually talk about the film.
+ - I want to start a trend of women as we really look. Some good things, some not so good. I am tired of looking at frozen faces.
+ - I started out in stand-up when I was 18, which is really masochistic, and I did it really till I started going in movies. I did it for about three years out in LA.
+ - The older you get, the more you’ve done.
+ - I am lucky enough to be married to a guy who tells me I look beautiful every day.
+ - There’s a small club of women who are willing to age.
+ - In the early part of my life I carried the flame for fiery women: perky women who were not dumb.
+ - Show me the story. I just want to tell a story that pulls me forward.
+ - I don’t think it is worth trying to look 10 years younger through surgery.
+ - When I was younger I probably didn’t understand something basic about tact, but I think it kept faint-hearted people at arm’s distance and that’s not such a bad thing, because life is short and I know the kind of people I want to work with.
+ - It’s fun to be loose. Just like on stage, all of your great ideas come from looseness.
+ - I became an actor because I couldn’t not.
+ - I was never afraid of failure after that because, I think, coming that close to death you get kissed. With the years, the actual experience of course fades, but the flavor of it doesn’t. I just had a real sense of what choice do I have but to live fully?
+ - A good marriage is different to a happy marriage.
+ - An actress in a film starts every day with an hour and a half in front of a mirror, with hair and make-up and costumes.
+
+52 quotes

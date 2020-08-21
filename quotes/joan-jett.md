@@ -1,0 +1,133 @@
+ - You got nothing to lose. You don’t lose when you lose fake friends.
+ - Factory farming is one of the biggest contributors to the most serious environmental problems. The meat industry causes more greenhouse gas emissions than all the cars, trucks, planes and ships in the world.
+ - I love school. I was a great student.
+ - I love sports. I love animals. I love kids. I want to save the world. So how do I combine all those things? I don’t know.
+ - My guitar is not a thing. It is an extension of myself. It is who I am.
+ - There’s nothing wrong with being single and not getting married and being, you know, just an old single lady. Who cares?
+ - I figured out it was a social thing, what women were allowed to do. At a very young age, I decided I was not going to follow women’s rules.
+ - Just be yourself and everything will fall in line, the way it’s supposed to be. If you’re yourself, that’s the best thing you can do, because you can never go “damn if I’d only been myself.” Live an authentic life and you don’t have to worry about your reputation.
+ - I don’t give a damn about my reputation. You’re living in the past, it’s a new generation.
+ - Success isn’t one straight line – it’s a ladder, and there’s always another rung above you to reach out for. Like anything else, there are ups and downs.
+ - Something happens, you can’t even put your finger on it, and then you don’t quite feel the same way anymore. All of a sudden, there’s fights or something and you are going “who is this person?” I’ve seen this happen to other people and it has happened to me.
+ - Can’t break free from the things that you do. I wanna walk, but I run back to you, that’s why I hate myself for loving you.
+ - I tend to keep my private life private. I think it’s important to have mystique. It’s important to keep people thinking and guessing, and you want everyone to think you’re singing to them.
+ - I think there’s nothing better than seeing a three-chord straight up rock ‘n’ roll band in your face with sweaty music and three minute good songs.
+ - I grew up in a world that told girls they couldn’t play rock ‘n’ roll.
+ - I left my family, and I left my brother and sister, and I went and lived my dream. I saw everybody, but is it ever enough?
+ - Girls have got balls. They’re just a little higher up, that’s all.
+ - Rock and roll by its nature is sexual. So girls playing rock and roll is saying to the world, “We own our sexuality.” I think that pop music is sort of about “you can do what you want to me” kind of energy, while rock and roll is “I’m going to do what I want to you” kind of energy.
+ - You can never say never. I’m not sure if I even want to. I just don’t know. Some of it is just not able to be reached, you can’t remember some of it and the people that could help you remember have passed away. It might have to remain a remain.
+ - Being onstage is everything thats good about life.
+ - I think I look better in darker clothes. And maybe the fact that I wear black so much makes me more aware of putting people at ease.
+ - I don’t wait till stage to use my sexuality. My zipper’s down right now. I mean, I use it all the time.
+ - Happiness doesn’t necessarily lie in material things. You just have to put yourself in a position to be happy. If you can do what you love for a living, that’s a good start.
+ - I’m concentrating on staying healthy, having peace, being happy, remembering what is important, taking in nature and animals, spending time reading, trying to understand the universe, where science and the spiritual meet.
+ - Well, I’ll tell you, I don’t know how aware teenagers are of me. I think it really depends on the teenager and how well-versed in music they are and what kind of music they like.
+ - I hope one day people don’t look at women like they’re out of their minds when they want to pick up an instrument and play. And I think we’re getting a lot closer to that.
+ - I’ve always got something to say.
+ - If you are gonna live your life, just try to not be crazy, have fun but have some focus and some purpose and try to know what that is. If you don’t know now, try to figure it out.
+ - A lot of people ask me why I don’t expand and explore other musical areas, but I like the plain three- and four-chord rock-and-roll that I call the the semi-blues.
+ - Don’t let anyone tell you that you can’t do something. Make your own victories. Make your own mistakes.
+ - I don’t pay attention. I don’t read stuff or message boards because you definitely get affected. You can read a hundred great comments, amazing comments, and have one bad one and that is all you can focus on and it wrecks your day. It says something about negativity and how it draws us somehow.
+ - The media says that equality for women has arrived, but if you look around, you still don’t see girls playing guitars and having success with it.
+ - The thing I get out of it is the connection. I remember going to shows as a kid and meeting eyes with the people in the band, and knowing they are meeting eyes with you, and that moment, that smile, and that’s your moment. I want to create millions of little moments for other people.
+ - You want to have butterflies in your stomach, because if you don’t, if you walk out onstage complacent, that’s not a good thing.
+ - Women play cellos and violins in symphony orchestras. They’re playing Beethoven and Bach. What do you mean they can’t play rock and roll?
+ - Women are still second-class citizens.
+ - Shaving my head was a millennium ritual, to not let it pass as just another New Year’s Eve. A lot has happened to me in the last couple of years, personally and spiritually. I wanted to mark it for myself.
+ - It’s easier to sit there and say you don’t like feminists because they don’t have a sense of humor.
+ - I don’t know if I miss it per se, but I do miss the fact that there just doesn’t seem to be any rock ‘n’ roll out there anyplace. Everything does seem kind of tame. It’s even hard in Manhattan to go out and find a good band to go see.
+ - Other people will call me a rebel, but I just feel like I’m living my life and doing what I want to do. Sometimes people call that rebellion, especially when you’re a woman.
+ - Obviously, some people are thick, and they’re not gonna see what they don’t want to see.
+ - Vegan With A Vengeance is on my kitchen shelf. This fun and creative book is delicious for people like me, who don’t eat pets.
+ - People like to tear you down. People are always going to take shots. You’ve just got to go for it.
+ - I like to hang out with my friends. I love music. I like to go to the movies. I like to eat. I like to cook.
+ - When I came back to it, we amicably separated from Warner Bros. I just picked up where I left off, trying to write the rest of this record. It took awhile to get out.
+ - I learned how to scream from Marc Bolan.
+ - A lot of the touring stuff has become a drag. Traveling itself is a drag. Anyone who’s been to an airport knows that.
+ - Blackheart Records being 25 years old represents staying power and the fact that we weren’t able to get a record out through conventional means, so we had to create this record company to put out our records if we wanted to be a band that had records to give out to their fans.
+ - People are very sincere in their praise, and you can’t take it lightly.
+ - Performance-wise, you really need to be down in the trenches; you need to do the hard work, for a lot of reasons: To build yourself as a performer, to get a sense of the audience, to work hard and to wonder, ‘Do I really want to do this?’
+ - I bought one of those Learn How to Play Guitar Chords By Yourself and it shows you the diagram where to put your hands and I took that in my room, sat with my singles and learned how to play guitar.
+ - So now 20 years later people want us to get together so they can take shots at all these old babes trying to get back some youth. I mean come on; I’ve been there. I know what the press would do.
+ - You follow any family around, you’re going to see elation, you’re going to see disharmony.
+ - You know I don’t care if the world thinks I’m smart or not.
+ - I started The Runaways with Sandy West. We shared the dream of girls playing rock and roll. Sandy was an exuberant and powerful drummer. So underrated, she was the caliber of John Bonham. I am overcome from the loss of my friend. I always told her, we changed the world.
+ - I know music is subjective.
+ - The only good thing you ever said was goodbye.
+ - I’ve been able to do a lot of things a lot of people haven’t, that other people would dream of. I’ve been able to live out my fantasies, and dreams! So, I’m real lucky.
+ - Obviously, the music and lyrics are in me, but if I let myself get in my own way, I do. I empty out and let it come, and then the music spirits take over.
+ - I love rock and roll, so put another dime in the juke box, baby.
+ - We all make judgments on people, but some are much more brutal than others. It’s easy to say, ‘Ya know, I’m not crazy about what she’s wearing,’ but you don’t have to be nasty about it, and you don’t have to be public about it.
+ - I think the one-on-one gigs connecting with the fans – is the most important thing. That will help build your fan base. They’ll talk about you, and word spreads. Those things are just as important as knowing how to play an E chord.
+ - In pop music, you say, ‘You can do what you want to me.’ Rock ‘n’ roll says, ‘I’m gonna do what I want to you.’
+ - I don’t really care if you think I’m strange – I ain’t gonna change!
+ - So it was out of necessity that Blackheart was born. I think it’s great that now, 25 years later, we’re not only putting out our own music, but are able to put out music by other bands. That’s really exciting for us.
+ - A girl playing rock and roll, it’s saying I own my sexuality and I’m going to tell you what I’m going to do. And I think people just find that threatening.
+ - Egotistical people are not pretty. We all know that, I’m sure everybody knows an egotistical person someplace.
+ - The better your base is, and the more you know from experience, the better off you’ll be when you try and make the big move.
+ - I want to be singing to everybody, and I want everybody to think that I’m singing to them. Guys, girls and everyone in between.
+ - Anyone who wants to know who I am can just read my lyrics – I’ve always written about who I am.
+ - Radio has changed, there was a little bit of difference around the country and now that is gone and everything is uniform. That is not the only place it’s happening in music, there’s a lot of consolidation.
+ - I do not knowingly kill any living thing – including insects or rodents – and I thank my food for sustaining me.
+ - And you have a record company behind it, this is a key too, you need people to fight for your records, at least a little bit. So if you have a great song, it’s catchy, and you’ve got a little bit of help, I think that’s all you need. But there hasn’t been that in music.
+ - Girls see these defined roles they’re supposed to follow in life, but when I was a young child, my parents told me I could be anything.
+ - If you really believe in yourself, you cannot listen to other people.
+ - Cutting meat out of your diet is the best thing you can do for animals and your own health.
+ - Well before I was in a band, I wanted to be everything from a vet, an astronaut, an archeologist was a big one. It could be very wide-ranging because I had a lot of different interests including music so I’m very happy where I wound up.
+ - Pop music is not a threatening style of music.
+ - We were really grown up for our age and it was an incredible special band.
+ - Being the first is kind of dirty, and it’s great.
+ - Partly, I like a bad reputation. But I also want a reputation of being a good person.
+ - My job is intense. It’s very physical.
+ - Well you know I’ve been in that place too where you worry about what everybody thinks of you, am I popular, do people care, are they looking at me, all that stuff. That’s a drag, man. Having to worry about fitting in, am I cool enough to ANYTHING.
+ - I love to engage with people who come to see us.
+ - Rock ‘n’ roll music is what gets me off.
+ - People don’t want to see women doing things they don’t think women should do.
+ - Def Leppard is obviously a different band that we are, but the music work well tighter. And the audiences seem work well together too. We are opening, but we’re having a good time.
+ - To be so superfocused and honed in on one thing can be good because then you get what you’re supposed to get done, done but you also miss out on other things. I could have spent more time with my family, and a million other little things.
+ - I don’t know if I get recognized necessarily, though I do get looked at a lot – but I don’t know if it’s because of who I am, or if people just think I look weird.
+ - I plan to stay in music. I plan to keep making records.
+ - Before I settled on music, I wanted to be an archaeologist, an astronaut, all sorts of really diverse things.
+ - For me the challenge isn’t to be different but to be consistent.
+ - I wouldn’t say no to other kinds of musical opportunities. I guess that it just depends on what it was or what it required me to do, and if I felt that it compromised my own soul.
+ - I think it’s important to have mystique.
+ - I had a blast doing the Warped Tour, but it’s good to be home, for sure.
+ - The internet did not exist when I started out, the fact that bands can build a website and get all their information out there is really helpful. If you really love to play, I would say to keep doing it, because it’s what you love and what you have to do.
+ - I think what people see in me is one slice of who I am. It does permeate my life in the sense that I don’t like to be told what to do, or how to be, or how I can do it. But I’m probably a lot tamer than people would expect.
+ - When I met you you were oh so sweet, now you give me the bread and you take all the meat.
+ - I’ve done some acting and a lot of different things, but mostly it’s the music.
+ - We always play clubs. It’s not something that I feel above. Those are my favorite shows because they’re intimate, they’re tight, their sweaty, they’re hot. You’re close to the people. Those are my favorites.
+ - I’m not necessarily intimidated by really jocky guys. I can talk football with them, you know what I mean?
+ - Beyond just writing about falling in love and out of love and wanting to do certain things and going out and partying and all the things that I grew up writing about, I want to write about deeper things.
+ - I think what I’m going to do is get more balance in my life to still be able to go out and play the hard rock ‘n’ roll and do what I like to do in music.
+ - My parents taught me I could be anything in the world I wanted to be.
+ - I leave for the show at least an hour ahead, and I do some vocal warm-ups, and that’s pretty much it.
+ - I consider that success for anything, whether it’s being a musician or a writer. As long as you can support yourself, you’re successful. People need to change their idea of what success is.
+ - You know, I have a really tough time finding new bands.
+ - I’m not a list person.
+ - If you’re secure in yourself, and even if you’re not secure in yourself, you don’t need to bully.
+ - Nobody knows what anticipation is anymore. Everything is so immediate.
+ - Only because The Runaways were my baby and there’s no reason to get it back together except to totally have fun. If that’s not the goal, then I don’t want to do it.
+ - I feel like it’s my job to carry the torch.
+ - I think it’s what the times are demanding. If you’re talking about the popular artists, they collaborate with a lot of different people and it seems to be in vogue now. It probably is indicative of the times.
+ - I’m having fun opening up. Sort of struggling to get the audience into it. It’s good. It makes you fight. Not fight like antagonistic. But fight for what you believe.
+ - I really wanted it to be organic and coming from my heart. So, I think maybe the initial thought of wanting to go in that direction, I had to wait until things happened in our world and in our country that fired me up enough where the words came out organically.
+ - A lot of the songs I’ve recorded are songs I write.
+ - Aggressive, tough and defiant may describe me, but that leaves the impression I’m mean and I’m not. People expect me to have fangs.
+ - It’s hard to have a dialogue when you’re name-calling.
+ - Get a book, so you know where to put your fingers. Otherwise it would be tough to learn. Also you have to fight through getting callouses on your fingers because it hurts, you are pressing your fingers on metal strings, they will hurt at first until you start building up callouses.
+ - I don’t like to say where I’ll be in 10 years.
+ - I was in drama, wanted to be an actor.
+ - I’d like to just be a little bit more open to making mistakes and not worrying about it so much.
+ - I’m really happy doing what I’m doing. I’m not looking to do anything else. I love what I do. I love music. I love playing. I love touring.
+ - Why there aren’t people out there willing to have fun playing rock ‘n’ roll. I just don’t get it.
+ - Disharmony is natural in any band.
+ - I sure saw a lot of kids that I’m sure didn’t know a lot about us, or we were definitely new to them. The kids who came up to me afterward, we’d talk about music, sign a lot of autographs. So I’m sure we made a lot of new fans.
+ - If you are having trouble making a chord, get a book, that is how I learned. There are guitar tuning apps so you can tune your guitar, and just learn how to play along with your records. And it’s great to be able to play along with another musician. That is like trial by fire.
+ - I think I was born strong-willed. That’s not the kind of thing you can learn. The advantage is, you stick to what you believe in and rarely get pushed out of what you want to do.
+ - God, I always just think of myself as a jeans and T-shirt kind of person.
+ - When you’re onstage and the audience is smiling and singing and bopping along and you’re all on the same level, it’s the best feeling in the world. It may sound dumb and corny to say it, but it’s like pure love.
+ - I’ve been doing this stuff for so long it’s the one aspect of my life that I’ve paid attention to and really sort of not paid attention to the rest of it.
+
+131 quotes

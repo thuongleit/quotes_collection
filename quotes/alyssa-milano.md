@@ -1,0 +1,37 @@
+ - First, accept sadness. Realize that without losing, winning isn’t so great.
+ - I used to sleep nude – until the earthquake.
+ - I’m a big believer in, no matter what you go through in life, as long as you can laugh your way through it, you’re going to be okay.
+ - Time is an amazing enigma in which seeds that were planted can turn into a vibrant garden if properly pruned.
+ - I’m actively looking at pilots in the very limited pilot season that is about to begin. Lots of work for my clothing line which is extremely exciting.
+ - It’s with a heavy heart that I have decided that I can’t relocate. I have two babies under 4. being a mother and wife comes first and I just can not uproot my children and separate the family by moving away. I will miss this job desperately and wish everyone the absolute best.
+ - The beautiful thing about baseball is that anything can happen. It’s like life in that way. As soon as you think you have it all figured out, something happens that makes you realize – you know nothing. The only thing that’s guaranteed is that it will be an exciting ride.
+ - Every time I get a tattoo, my parents say they’ll disown me. I have to get them airbrushed for Charmed. Witches don’t have tattoos, I guess.
+ - Every time I decide I want a child I get another pet. I have 3 dogs, 13 birds and 3 horses, what does that tell you?
+ - My body wasn’t made to look good in a string bikini. It was made to feed and nurture a child.
+ - The Dodgers. My favorite hockey team is the Kings. I like the Clippers in basketball. And I like USC college. Football, the Giants.
+ - My passion should be clear and please know it runs deep within all levels of my consciousness. I feel it. I feel everything.
+ - I’ve dated the sweet mama’s boy, the musician rocker, the struggling artist – basically a lot of people without jobs.
+ - I take vitamins. I workout every day.
+ - It’s hard enough to go through puberty. Everyone’s embarassed about their youth, but if just happens that the ’80s were particularly disgusting. Flock of Seagulls is not cool.
+ - Actors are an insecure breed. It’s hard to have your career depend upon other people’s opinions of what you do.
+ - Baseball is my escape. The sights, the sounds, the way the park smells. There is truly no place I would rather be than at a game.
+ - The thing that I really love about the 80s is, there was a sense of hand made-ness about the fashion then. You could have a pair of jeans and dump some bleach on them, and make them something that was really trendy for that era.
+ - Baseball represents family. It represents my childhood.
+ - I’ve always believed in experiencing everything in life. When you walk out with blinders on, you cut yourself off from the angels and the fairies.
+ - I would have to say the power to heal. This show has enhanced my relationship to magic. I would have called it prayer. There are definitely certain incantations that I do now.
+ - Aaron Spelling always had his finger on the pulse of pop culture, he knew what the public wanted to see. He was one of the most loyal men in this business and believed in me at a time in my career when no one else would.
+ - Way to go, New York. One people. One planet. One love.
+ - Words cannot fully express the devastation and horror caused by NTDs. Until now, these diseases have been hidden in the shadows, but working with the Global Network, I am focused on bringing this tragedy to the public eye.
+ - Animals, they are one of the most beautiful gifts we have and, you know, if there are people that have compassion, there are very few people that put their money into animal rescue organizations. And if there is someone that has that passion, animals need all the help they can get.
+ - For me, there is no hope without faith. Faith is a higher good. Faith in our divinity.
+ - After the oil spill, I had this strong feeling that if I ever were to be blessed in having children, I never wanted my kids to see me pumping gas at a gas station. I think it’s our responsibility to make the changes that we need to take regardless of convenience.
+ - I took prenatal yoga three times a week, including the morning I went into labor. It helped me stay comfortable.
+ - I deal with postpartum feelings by reaching out to mom friends. I became very close with some of the women in my prenatal yoga class.
+ - What can we do to make the world’s children a priority...
+ - Our bodies are made to nurture and cuddle and all of those amazing things that come along with being a mom.
+ - I think that the celebrity is a really important thing, because we have the voice that’s recognizable, that can educate people to make a difference and empower them to make a difference, and to also get things in motion with the people in charge that can effect change.
+ - One of my favorite things about watching the reruns is looking at my clothes. I don’t really remember most of them, so it’s like looking at old family photos.
+ - I am moved by the spirit of Angolans and the work UNICEF is doing, but I am saddened by the hardships I have seen, and the fact that a little flexing of financial muscle from rich countries could do so much.
+ - A big part of life is realizing what you’re good at.
+
+35 quotes

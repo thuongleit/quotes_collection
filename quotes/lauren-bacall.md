@@ -1,0 +1,85 @@
+ - Standing still is the fastest way of moving backwards in a rapidly changing world.
+ - You don’t always win your battles, but it’s good to know you fought.
+ - Imagination is the highest kite that can fly.
+ - Life is not what you expected it to be.
+ - If you want me just whistle. You know how to whistle don’t you? Just put your lips together and blow.
+ - I spent my childhood in New York, riding on subways and buses. And you know what you learn if you’re a New Yorker? The world doesn’t owe you a damn thing.
+ - The best things in life are clean living, good works, and big saphires. And not in that order.
+ - Here is a test to find out whether your mission in life is complete. If you’re alive, it isn’t.
+ - I am essentially a loner.
+ - Men need to feel important. They feel better when they’re with younger girls or unknown girls.
+ - I like to work with really good professional people – anyone with real talent.
+ - I don’t think being the only child of a single parent helped. I was always a little unsteady in my self-belief. Then there was the Jewish thing. I love being Jewish, I have no problem with it at all. But it did become like a scar, with all these people saying you don’t look it.
+ - I am not a has-been. I am a will be.
+ - Each time a friend dies, the present becomes the past, in an instant.
+ - I’ve always felt that work – learning from people who know more than I know – is what keeps you going.
+ - Being a liberal is the best thing on earth you can be. You are welcoming to everyone when you’re a liberal. You do not have a small mind.
+ - I’m total, total, total liberal and proud of it.
+ - Generally women are better than men – they have more character. I prefer men for some things, obviously, but women have a greater sense of honor and are more willing to take a chance with their lives.
+ - The biggest misconception people have about me is that I’m in control of every situation. I’m rarely in control of any situation.
+ - I always thought I had crooked eyebrows and crooked teeth. That’s why I never understood why people called me a beauty.
+ - One thing I am convinced of is that the more you do, the more you can do.
+ - It’s not an old movie if you haven’t seen it.
+ - In the world of relationships, possibly the most complicated, uncommon, hard to find, hard to keep and most rewarding has got to be friendship.
+ - I’m crazy enough to believe in taking chances in every way, in making choices and gambling with your life. That’s the kind of gambling I believe in.
+ - We live in an age of mediocrity.
+ - The purity of Jewish upbringing – the restrictions that one carries through life being a ‘nice Jewish girl’ – what a burden.
+ - My mother was the greatest example to me of anyone I’ve ever known. She didn’t have an easy life. I adored her. She worked hard all her life, and she was the one who set my values. She was quite an amazing woman, although she wasn’t tough at all.
+ - I think your whole life shows in your face and you should be proud of that.
+ - As long as I can walk and talk, I’ll try almost anything. I say “almost” because the high wire is definitely out.
+ - You spend a good part of your adult life acquiring things: building a home, filling it with objects that please your eye and make you feel comfortable. Then you spend the last part of your life trying to figure out how to get rid of it all.
+ - You can’t start worrying about what’s going to happen. You get spastic enough worrying about what’s happening now.
+ - If there was one thing I had never been, it was mysterious, and if there was one thing I had never done, it was not talk.
+ - I’ll miss Hollywood. Of the twenty friends I thought I had, I’ll miss the six I really had.
+ - Find me a man who’s interesting enough to have dinner with and I’ll be happy.
+ - People should tell your children what life is all about – it’s about work...
+ - After the age of 30 in the movie profession, you’re pretty well over as far as the casting people are concerned.
+ - I was this flat-chested, big-footed, lanky thing.
+ - A planned life is a dead life.
+ - If goodness is its own reward, shouldn’t we get a little something for being naughty?
+ - Stardom isn’t a profession, it’s an accident.
+ - No, I’m afraid they might slip and hit a nerve and I’d end up with one side of my face hanging down or something. I’ll just stick with this one for a while and take my chances. I’ll be brave.
+ - I don’t consider myself a great actress. I’m just trying to stay alive, actually. I think I’m good, and I’ve learned a lot, certainly, mostly in the theater. I’ve been sloughed off movies for years. But what can you do? That’s life.
+ - Most women use more brains picking a horse in the third at Belmont than they do picking a husband.
+ - Patience was not my strong point.
+ - Looking at yourself in a mirror isn’t exactly a study of life.
+ - I always brought up my children not to believe in Mothers Day gifts, and now I regret it.
+ - How in hell can you handle love without turning your life upside down? That’s what love does, it changes everything.
+ - I fairly often have thought how lucky I was. I knew everybody because I was married to Bogie, and that 25-year difference was the most fantastic thing for me to have in my life.
+ - No one has ever written a romance better than we lived it.
+ - There are guys who want to screw around all the time, which interests me not at all. God knows we’ve done that, been there, and we don’t want to do that any more.
+ - No, I don’t like legend. I mean, I don’t like the category. And to begin with, to me, a legend is something that is not on the Earth, that is dead.
+ - They think actors are freaks – that we’re a lot of drunks who party all the time and never work. Well, I for one work my tail off.
+ - You can’t always be a leading lady.
+ - Legends are all to do with the past and nothing to do with the present.
+ - How many women do we know who were continually kissed by Clark Gable, William Powell, Cary Grant, Spencer Tracy and Fredric March? Only one: Myrna Loy.
+ - The first time anything happens to you – your first love, your first success – the second one is never the same.
+ - I am not a wealthy woman. I wish to hell I was, but I never had a wealthy man.
+ - Remember what Bogie and my mother both used to say: ‘Character is the most important thing. All that matters is character!’
+ - I think I’m damn lucky. I’m lucky that my kids are all straight, that they haven’t ended up in jail, that they’re all worthwhile human beings, thank God. Their lives are happy; they have happy partners, wives, husbands.
+ - I’m not a sedentary person. I’ve always been active.
+ - Young people, even in Hollywood, ask me, ‘Were you really married to Humphrey Bogart?’ ‘Well, yes, I think I was,’ I reply.
+ - Always I’m feeling, ‘You’re never going to work again.’ That’s going to happen one day, but I hope I’m not alive.
+ - Actors today go into TV, which I don’t consider has a lot to do with acting. They only think of stardom. If you photograph well, that’s enough. I have a terrible time distinguishing one from another. Girls wear their hair the same, and are much too anorexic-looking.
+ - When you talk about a great actor, you’re not talking about Tom Cruise.
+ - Howard Hawks said he’d like to put me in a film with Cary Grant or Humphrey Bogart. I thought, “Cary Grant-terrific! Humphrey Bogart-yucch.”
+ - Growing up takes longer than you think.
+ - In Hollywood, an equitable divorce settlement means each party getting fifty percent of publicity.
+ - His attention span was not long, shall we say?
+ - Isn’t hope an incredible, a wonderfully demented thing?
+ - I hope I’m thought of as not just a showbiz personality, but as someone who has lived a life and who has hopefully made a contribution to something along the way – someone who is a human being as well as an actress.
+ - The madmen seem to live on forever, don’t they?
+ - I find that through the sad times, work is what made my continuing, not breaking down, possible. In work, I was always someone else and I subconsciously reveled in that.
+ - I remember my oldest son, Steve, saying to me once, ‘I don’t ever remember seeing you with an apron on.’ And I thought, that’s right, honey, you did not. That was his concept of what a mother should be.
+ - How long an actress lives professionally depends on her stamina, the extent of her masochism, her imagination, and her yearning for recognition or approval.
+ - When a woman reaches twenty-six in America, she’s on the slide. It’s downhill all the way from then on. It doesn’t give you a tremendous feeling of confidence and well-being.
+ - I called my business manager in California and said, ‘Sell all of my stock’ – what little of it I had – and it’s the only smart financial move I ever made.
+ - Actors today go into TV, which I don’t consider has a lot to do with acting.
+ - A woman isn’t complete without a man. But where do you find a man – a real man – these days?
+ - God if the press ever quoted anyone correctly it would be brilliant.
+ - Acting is a life of rejection.
+ - I don’t sit around thinking that I’d like to have another husband; only another man would make me think that way.
+ - I finally felt that I came into my own when I went on the stage.
+ - All actors are terrified – they just learn how to control it.
+
+83 quotes

@@ -1,0 +1,496 @@
+ - She is mine, and I am hers.
+ - You can’t save everyone, though God knows you try.
+ - I’m like a fine wine. I get better with age. The best is yet to come.
+ - You forgot my first lesson: don’t hesitate.
+ - Stop bitching and try again.
+ - The book’s always better than the movie.
+ - You are the most beautiful creature I have ever seen walking this earth. You have no clue of how beautiful you are or how brightly you shine.
+ - Sometimes you wake up from a dream. Sometimes you wake up in a dream. And sometimes, every once in a while, you wake up in someone else’s dream.
+ - Life and death were so unpredictable. So close to each other. We existed moment to moment, never knowing who would be the next to leave this world.
+ - History is important because it teaches us about past. And by learning about the past, ypu come to understand the present, so that you may make educated decisions about the future.
+ - Centrum permanebit.
+ - For every bad thing in life, there are more good things to tip the balance.
+ - We all screw up. Everyone makes mistakes. That’s what she did. It was bad judgment, that’s all. You don’t cut off the people you love for mistakes like that.
+ - It’s a fact that people are afraid of what they don’t understand. And most are too lazy or ignorant to find out more.
+ - Love fades. Mine has.
+ - In the real world, you can make your own miracles.
+ - I don’t care if you say we can’t be together. I don’t care if you think I’m the most evil, unnatural creature walking on earth. You can think whatever you want, go whatever you want. I’m going to just go on loving you, even if it’s hopeless.
+ - I can be a good friend, or a bad enemy.
+ - Don’t beat yourself up over what you could have or should have done. The past is gone. Move on to the future.
+ - Throughout history, people with new ideas – who think differently and try to change things – have always been called troublemakers.
+ - Sometimes it’s worth lingering on the journey for a while before getting to the destination.
+ - The greatest and most powerful revolutions often start very quietly, hidden in the shadows. Remember that.
+ - People often ask where I get my inspiration from, and I always say I have no good answer because, well, inspiration comes from everywhere: people, places, memories.
+ - Just because things don’t work out, it doesn’t mean there aren’t other people you can’t love. Love is too big a thing for you to go without it in life.
+ - As long as we’re together, that’s how we’ll be. No trembling. No faltering. We’re unstoppable.
+ - You’re better than this. Better than whatever it is you’re going to do now.
+ - Only a true best friend can protect you from your immortal enemies.
+ - I’ll find you. There is no place in this world you can hide from me. I’m watching. Love, Dimitri.
+ - Sometimes the greatest tests of our strength are situations that don’t seem so obviously dangerous. Sometimes surviving is the hardest thing of all.
+ - For a moment his eyes locked onto me with an intensity that left me breathless.
+ - You’re strong – you’re so, so strong. It’s why I love you.
+ - Love and loyalty runs deeper than blood.
+ - There’s nothing worse than waiting and not knowing what’ll happen to you. Your own imagination can be crueler than any captor.
+ - The greatest changes in history have come when people were able to shake off what others told them to do.
+ - Seth’s quote from his book: “And if I only could I’d make a deal with God and I’d get Him to swap our places” -“Running up that Hill” by Kate Bush.
+ - Ah, those two. In a fight, they’re lethal. Around each other, they melt.
+ - I left her there crying as I walked toward the gate. A piece of my soul had died when Dimitri had fallen. Turning my back on her now, I felt another piece die as well. Soon there wouldn’t be anything left inside me.
+ - No, no. It’s always a good time for you to call, Roza.
+ - We can’t stop living because other people are dead.
+ - There are little gems all around us that can hold glimmers of inspiration.
+ - Why not wear a scar of Motherhood? Better than a tattoo or a mark of Honor. Let the world know what you’ve achieved.
+ - Why not see which is brighter: your aura or the sun?
+ - If I propose, you’ll know it. For one thing, I’ll be hyperventilating.
+ - Do you think I’m pretty? I think you’re beautiful Beautiful? You are so beautiful, it hurts sometimes.
+ - Dimitri was on a first name basis with one of the most badass guardians around. Of course, Dimitri was pretty badass himself, so I shouldn’t have been surprised.
+ - You’re my flame in the dark. We chase away the shadows around each other.
+ - Being charming is my hobby.
+ - The future is always changing. If we had no choices, there’d be no point in living.
+ - We take what what we can get.
+ - You never really realize how many people care about you until they all turn out to support you.
+ - Love doesn’t stop people from betraying each other.
+ - Some people read books for fun.
+ - Keeping love buried was a lot like jeeping anger pent up, I’d learned. It just ate you up insides until you wanted to scream or kick something.
+ - Moroi shied from the sunlight but as I watched Sydney, I knew without a doubt that humans had been made for the sun.
+ - Life’s like that. As we grow and change, some things we’ve experience before take on new meaning. It’ll happen for the rest of your life.
+ - How do you know if a demon is lying? His lips are moving.
+ - That’s what I was supposed to say...
+ - The problem with having so many people call me by nicknames was that when someone called me by my actual name, it usually meant something serious was happening.
+ - Don’t worry, little dhampir. You might be surrounded by clouds, but you’ll always be like sunshine to me.
+ - Rose, do you think I’d do anything that would hurt you.- Dimitri to Rose.
+ - I’m always at least ten minutes early.
+ - Too bad you got so bogged down in books. You’ve got the spirit of a warrior.
+ - Impossible situations are our specialty.
+ - You’ll have your own superhero club before you know it. -Christian Ozera.
+ - Sanity’s overated, my darling.
+ - Everyone has light around them, except for you. You have shadows.
+ - You’ve got to take it on faith that the enemy of your enemy is your friend.
+ - See? There it is again. My flame in the dark.
+ - You two are a match made in heaven. Or somewhere.
+ - Most good things come with the risk of something bad.
+ - It’d be nice to have someone who understood some of the things that went on in my head.
+ - Your truths are worse than your lies.
+ - And hey, if I keep loving you, maybe you’ll eventually crack and love me too.
+ - I didn’t just get an idea. I got a great idea.
+ - This isn’t a Christmas special! This is my life. In the real world, miracles and goodness just don’t happen.
+ - I loved you and you destroyed me. You took my heart and ripped it up. You might as well have staked me.
+ - Emerald green eyes studied us from a face that could have been sculpted by one of the classical artists I so admired. Shocked, I dismissed the comparison as soon as it popped into my head. This was a vampire, after all. It was ridiculous to admire him the way I would some hot human guy.
+ - She felt so much emotionally, she would say, that a physical outlet – physical pain – was the only way to make her internal pain go away. It was the only way she could control it.
+ - Don’t worry, I won’t bite. At least not in the way you’re afraid of.
+ - Juliet had it easy; she never had to kill Romeo.
+ - My heart shattered. My world shattered.
+ - You destroy my life then feed me inspirational philosophy.
+ - You forgot another lesson: Never turn your back until you know your enemy is dead. Looks like we’ll have to go over the lesson again the next time I see you – which will be soon. Love, D.
+ - I crossed my arms over my chest. “Are you lost, little girl? The elementary school’s over on west campus.” A pink flush spread over her cheeks. “Don’t you ever touch me again. You screw with me, I’ll screw you right back.” Oh man, what an opening that was.
+ - You are an exceptional, talented, and brilliant young woman. Do not ever let anyone make you feel like you’re less. Do not ever let anyone make you feel invisible. Do not let anyone – not even a teacher who constantly sends you for coffee – push you around.
+ - I know I’m not supposed to say this, but I love you.
+ - Look, don’t get me wrong. I worship the ground this guy walks on. I’m excited to meet him tonight. I’m dying to meet him tonight. If he wanted to carry me off and make me his love slave, I’d do it, so long as I got advance copies of his books.
+ - It’s easy to want peace and love in hypothetical situations – then reality sets in, and sometimes we have to do what’s ugly.
+ - Yes, I – I think I love her. Is that nuts?
+ - Don’t take the high ground and assume you already know what you’ll do. The truth is, when it comes to someone you love, you’ll find there isn’t anything you won’t do.
+ - You can’t force love, I realized. It’s there or it isn’t. If it’s not there, you’ve got to be able to admit it. If it is there, you’ve got to do whatever it takes to protect the ones you love.
+ - Every relationship is different. Everyone loves differently.
+ - How do you say goodbye to someone who isn’t exactly gone.
+ - Don’t judge the past by the standards of today. It won’t work. They’re incompatible.
+ - Dreams, dreams. I walk them; I live them. I delude myself with them. It’s a wonder I can spot reality anymore.
+ - I didn’t think my day could get any worse until my best friend told me she might be going crazy. Again.
+ - What matters is that someone – that you – know me that well. When a person can see into your soul, it’s hard. It forces you to be open. Vulnerable. It’s much easier being with someone who’s just more of a casual friend.
+ - Conversation was irrelevant. Only pie mattered.
+ - Wanting and needing are two different things.
+ - I saw something in his pretty green eyes that I had never seen before: Anger. They were like emerald fire.
+ - Because it’s simple, I love you, and I don’t want to keep pretending like I don’t. -Rose to Dimitri.
+ - I’ve seen all I need to. I’m going to go drink now in a futile effort to wipe away the memory of this debacle.
+ - You’re burned into my mind forever.
+ - My boyfriend was insanely sexy, vampire or not, and I couldn’t keep my hands off him.
+ - Don’t get caught up in fashion games. These kids probably think we’re old, nark conformists or something, but really, they’re just conforming in their own ways. They’re conforming to nonconformity.
+ - I know how devastated you must be to miss me, but leave a message, and I’ll try to ease your agony.
+ - Cheaters, I thought.
+ - Maybe you don’t need beauty sleep, but some of us aren’t so lucky.
+ - I know what love is, Mom. I’ve had love that burns in every fiber of my being, that drives me to be a better person and empowers me through each moment of the day. If you’d ever had something like that, you’d hold on to it with every bit of strength you had.
+ - Sydney: I like Latin. It’s fun. Eddie: I can’t believe you think we’re the strange ones.
+ - By the way, my name’s Rose Hathaway. I’m seventeen years old, training to protect and kill vampires, in love with a completely unsuitable guy, and have a best friend whose weird magic could drive her crazy. Hey, no one said high school was easy.
+ - Mistress, I have never asked anything of you in my servitude. But now, I beg you this: do not make me keep passing these adolescent sentiments back and forth all night.
+ - Tradition or not, I sometimes thought putting children on an old guy’s lap was already creepy enough. We didn’t need to mix alcohol into it.
+ - My nails dug into his back, and he trailed his lips down the edge of my chin, down the center of my neck. He kept going until he reached the bottom of the dress’s V-neck. I let out a small gasp, and he kissed all around the neckline, just enough to tease.
+ - Things on the essential list: vodka, Nine Inch Nails, a steady supply of mortal men, and an all-purpose bitchy attitude.
+ - Staring into the mirror, I was surprised to see a haunted look in my brown eyes. There was pain there, pain and loss that even the nicest dress and makeup couldn’t hide.
+ - You’re burned into my mind forever. There is nothing, nothing in this world that will ever change that.
+ - Everything’s about my personal entertainment. The world is my stage. Keep it up- you’re becoming a star performer in the show.
+ - It was a lame excuse, and I knew that wasn’t the reason he was canceling. If he wanted to avoid me, I would have preferred he made up something about how he and the other guardians had to up Moroi security or practice top-secret ninja moves.
+ - If you try to turn me against Lissa one more time the stories are going to be about you bleeding because I’ll have ripped your throat out!
+ - I felt my heart breaking all over again. Why? Why had this happened to us? Why was the universe so cruel?
+ - There’s a big difference between death threats and love letters–even if the person writing the death threats still claims to actually love you. Of course, considering I once tried to kill someone I loved, maybe I had no right to judge.
+ - I haven’t even really tried to win you over, Roza. When I want to, I can be very persuasive.
+ - You will lose what you value most, so treasure it while you can.
+ - A year. We’d known each other only a year, but we’d lived a lifetime in it.
+ - What If Following Her Heart Means Rose Could Lose Her Best Friend Forever?
+ - Rose is in red, But never in blue, Sharp as a thorn, Fights like one too.
+ - I was so tired of being told reasonable, practical things whenever something went wrong with my life.
+ - If you touch me, I said pleasantly, “I’ll provide you with the ability to see if you can heal yourself. Then we’d see how bad ass you really are.”
+ - When Love And Jealousy Collide On The Slopes, Winter Break Turns Deadly.
+ - My death will not be penciled on someone’s calendar.
+ - Because there is no greater evil than ignorance and the destruction of genius. Ignorance has been responsible for more death, more bigotry, and more sin than any other force. It is the destroyer of mankind.
+ - Surely I must be a princess in an enchanted sleep. Any day now, this dream-no, nightmare would end, and I’d get my prince and happy ending.
+ - Adrian sifted through the bags and pulled out a slice of coconut cream. “If I were a dragon, this is what I’d go for.” I didn’t argue, mainly because that statement had no logical argument.
+ - You’re a terrible liar, Sage, but I’m still touched you’d attempt it for my sake. A for effort.
+ - If your eyes weren’t open, you wouldn’t know the difference between dreaming and waking.
+ - You, know I’m the Queen’s favorite great nephew, Well, yeah I’m her only great nephew, but that’s not important, I’d still be her favorite...
+ - I love you, and beneath all that logic, calculation, and superstition, I know you love me too.
+ - Life, unfortunately, doesn’t seem to care what we want.
+ - You guys are so caught up in your polished images and your passive-aggressive comments that no one ever comes right out and says anything. Well, I’m going to.
+ - The tension between us kicked up a notch, and I realized that along with our bodies being nearer, so were our lips.
+ - You and I have never liked each other, Rose. If I’ve got to kill someone, it might as well be you.
+ - Oh God. She probably thinks we were off doing – you know – romantic type, um, things –.
+ - Carter leaned toward me and brushed the hair away from the side of my face. “Don’t look down then,” he whispered.
+ - Do what? Come up with a clever pun referencing Jerome’s demonic status? The truth is, I usually keep a stash of them on hand and –.
+ - A ghostly smile flickered across his face. “If you weren’t so psychotic, you’d be fun to hang around.” “Funny, I feel that way about you too.” He didn’t say anything else, but the smile grew, and he walked away.
+ - You’ve always been my equal, Roza.
+ - You are so beautiful, it hurts me sometimes. -Dimitri to Rose.
+ - See? Things are already looking promising.
+ - If I let myself love you, I won’t throw myself in front of her. I’ll throw myself in front of you.
+ - You and me are going to have so much fun, Rose. Picking out curtains, doing each other’s hair, telling ghost stories...
+ - God might work on mysterious ways, but hell worked on efficient ones.
+ - While I’m fine with you two dating and being happy, please try not to break his heart too much when the time comes.
+ - Do you want me to call you Celery Stick instead of Cupcake or Honey-Pie? It just doesn’t inspire the same warm and fuzzy feelings.
+ - Dmitri was at a total loss. It was a common reaction for people when I agreed to do something reasonable.
+ - Well, you can think what you want, so long as you remember – no matter how ordinary things seem between us – I’m still here, still in love with you, and care about you more than any other guy, evil or otherwise, ever will.
+ - How do you prove we exist? Maybe we don’t.
+ - I’d never expected my first time to be in a cabin in the woods, but I realized the place didn’t matter. The person did. With someone you loved, you could be anywhere, and it would be incredible. Being in the most luxurious bed in the world wouldn’t matter if you were with someone you didn’t love.
+ - Turning away, I stared at the long road winding off ahead of me. I sighed. This trip might take awhile. “Then start walking, Rose,” I muttered to myself. I set off, off to kill the man I loved.
+ - It’s Adrian Ivashkov logic. Don’t try to understand it. Just roll with it.
+ - Wild and disrespectful? Who the hell are you anyway? Outsourced help?
+ - Feel guilty. Mourn this. But move on. Don’t let it destroy you. Forgive yourself.
+ - My cigarettes and I are going outside. At least they show me respect.
+ - I clung to that spark of hope, nurturing it into a small flame that chased some of the shadows in my heart away.
+ - What are you, Rose Hathaway? Are you real? You’re a dream within a dream. I’m afraid touching you will make me wake up. You’ll disappear.
+ - I went to bed feeling melancholy, wishing I could have poured out all my fears and insecurities to my mom. Wasn’t that what normal mothers and daughters did?
+ - You understand your responsibilities better than guardians twice your age. You’ll do what you have to do to succeed.
+ - Dorian used to watch you like a starving man who wants meat. Now he looks at you like he wants seconds.
+ - Aw you’d never hurt me. My face is too pretty. -Adrian Ivashkov.
+ - I pulled out box after box, setting them haphazardly around the room. My organization lacked something – like, say, organization...
+ - Considering Adrian had once gotten bored while reading while reading a particularly long menu, I had a hard time imagining he’d read the Hugo book in any language.
+ - Metaphors. This was the cost of making out with an artist.
+ - Fiery and sweet, all at the same time. A flame in the dark, lighting my way.
+ - Dmitri was in my arms.
+ - Eddie became about one percent less tense.
+ - When you’ve got everything you need, why complicate it?
+ - Yeah, that’s exactly what I want. To help my girlfriend get her old boyfriend back.
+ - Rose, I cheat at cards and buy liquor for minors. But I would never, ever force you into something you don’t want.
+ - Things die. But they don’t always stay dead. Believe me, I know.
+ - We’re pieces on a gameboard, Dr. March, and some of us are more powerful than others. You. Me. Her. We’re the ones the gods want. We’re the ones they’re fighting over.
+ - Because it’s our duty to God to protect the rest of humanity from evil creatures of the night.
+ - Aubrey, crouching on a nearby counter, watched me with squinty eyes, apparently pondering why anyone would willingly immerse themselves in water ever, let alone for extended periods of time.
+ - I won’t lie. Walking into a room and seeing your girlfriend reading a baby-name book can kind of make your heart stop.
+ - Taking a deep breathe, I made one of the hardest decisions of my life. I walked away.
+ - Wow. What’d he do to deserve that? Rescue orphans from a burning building? If so, you might want to make sure he didn’t set the building on fire in the first place.
+ - You’ll know her by a crown of stars and flowers, and then when you take her to your bed and claim her, you will swear your loyalty to me.
+ - I’d said it before and meant it: Alive or undead, the love of my life was a badass.
+ - People get too caught up in what they don’t have and get bogged down as a result. There’s joy in the present. It’s important to just make the most of the these moments we have. Keep an eye on the future, but don’t forget to enjoy NOW.
+ - Adrian’s face was the picture of perfect politeness and restraint, meaning something disastrous was about to happen.
+ - Rose once told me about this poem she’d read. There was this line, ‘If your eyes weren’t open, you wouldn’t know the difference between dreaming and waking.’ You know what I’m afraid of? That someday, even with my eyes open, I still won’t know.
+ - Are you some kind of mutant human? Like a fire user? And I use mutant as a compliment, you know. I wouldn’t think less of you.
+ - We cannot road trip to Paris.
+ - Well, no one treats me like a full-fledged royal, said Lissa, turning back to the dresses. No reason to act like one now. Show me your straps and short-sleeves.
+ - Whether it’s simply some fierce animal joining of mates or a sublime merging of souls, she is mine, and I am hers.
+ - I lost track of day and night too. My time was divided into Dimitri and not-Dimitri. He was my world. When he wasn’t there, the moments were agony.
+ - Did Belikov bend the rules of time and space to get here so fast? He can do that, right?
+ - Sunshine had never tasted so sweet as it did at that moment.
+ - I don’t think most people take honest well. They prefer the games. They want to believe the pretty lies.
+ - The question was which spell did I make? Which did I have time to make? The answer was eerily simple. I had time to make all of them.
+ - In fact I was fairly certain there was no one in the entire world quite like Adrian Ivashkov.
+ - I disconnected as a sleepy Seth stepped out of the bedroom. “Who’s Dante? Was that a collect call to the Inferno?” “They won’t accept the charges,” I murmured.
+ - He’s an angel. Isn’t he supposed to love everyone, even the damned? Especially when said damned are his drinking buddies.
+ - I looked around at us all: me in my nightgown, Kiyo bare-chested, Dorian in his extravagant robes, and Tim in his Native getup. God, I muttered, standing up, we all look like the village people.
+ - Just friends, just friends. Standing there in the bookstore, watching Seth walk away, I half wondered how anyone could still use that line. But I knew why, of course. It was used because people still believed it. Or at least they wanted to.
+ - Who knows more about male weakness: you or me? Use my knowledge, Sage.
+ - I fought against her, trying to mount some kind of defense, but it was like fighting Dimitri on crack.
+ - Oh God. Why, oh why, did I have to be the one to deliver this news? Why couldn’t I be locked away in my room or the library doing something enjoyable, like homework?
+ - There was no “me” in Alchemy. Well, phonetically there was, but that wasn’t the point.
+ - If you wanted to remold people, you had to break them down first.
+ - Those who have to ask if faith is true are opening up a discussion they may not be ready for.
+ - I don’t know, but I think it’s going to be good.
+ - I like you being the sinner you are. -Adrian Ivashkov.
+ - People have always had a fascination with the supernatural going back to the beginning of time and with vampires in particular. This phenomenon is not new.
+ - How was it that Adrian Ivashkov, who never seemed to take anything seriously was the only one among these “responsible” people who paid attention to such small details? How was he the only one to really understand the magnitude of what I was feeling?
+ - I couldn’t stop staring at the cave, back where Dimitri was, back where half of my soul was.
+ - A man can never compete with a woman’s father.
+ - Never thought I’d see the day when you’d throw your arms around a vam – someone like me.
+ - Adrian, I’m on a date. Why are you here? On my car?
+ - And I told you, I’m not going to pursue another man’s girlfriend. You want to talk honor. There it is in its purest form.
+ - You make a joke out of everything. Life’s too painful not to.
+ - To Thetis, Long overdue, I know, but every often the things we most desire come only after much patience and struggle. That is a human truth, I think. Even Peleus knew that. -Seth.
+ - You did good Roza. Very good. Now sleep.
+ - And than suddenly he was there, charging down the hallway like death in a cowboy duster.
+ - Even Christian – the poster child for “smartass” – looked grim.
+ - Mmm. O positive, my favorite.
+ - I’d been raised to be practical and keep my emotions in check, but I loved cars. That was one of the few legacies I’d picked up from my mom. She was a mechanic, and some of my best childhood memories were of working in the garage with her.
+ - The future of our relationship hinged on advice from a fifteen-year old girl, a probably untrue story from a one-eyed Chihuahua trainer, and me unromantically – yet skillfully – kissing you on top of silverware and china?
+ - Smiling, I cut across the quadrangle toward the commons. I felt better about life than I had in a very long time. We could do this, Lissa and me. We could do this together.
+ - There were drinks and food in full force, and some Moroi guy had a guitar out and was trying to impress girls with his musical skills – which were nonexistent. In fact, his music was so awful that he might have discovered a new way to kill Strigoi.
+ - A gun. I had been brought down by a gun. It was practically comical. Cheaters, I thought.
+ - I always love it whenever Rose delivers one of her witty one-liners – particularly when it’s a completely serious situation. The contrast always amuses me, but then, I’m biased.
+ - My life was split by two worlds, but he kept me whole.
+ - Well, you’ve finally got a license to kill. It’s about time.
+ - That’s the kind of guy you’d follow to hell and back.
+ - You need me? You yell. You want to leave? We go. I’ll get you out of here, no matter what.
+ - When I look into his eyes, I could see without a doubt that he loved me more than anyone else in the world, that I was his salvation, the same way that he was mine.
+ - I wrapped my arms around his neck and pulled him closer. I didn’t care that we were out in public. I didn’t care that he was Moroi. All that mattered was that he was Adrian, my Adrian. My match. My partner in crime.
+ - How come all the harmless people were so lame? Maybe that was the definition of safe.
+ - Brayden met my eyes. His were hazel, almost like Eddie’s but with a little green. Not as much green as Adrian’s, of course. No one’s eyes were that amazingly green.
+ - It’s Kahlua, Sage. Packed with sugar and coffee flavor.
+ - A girl just asked for SAT scores good enough to get her into Yale. I think she was nine.
+ - Why not the Bahamas? Or the Corn Palace?
+ - We take everything for granted, but when I’m with Angeline, I see the world through new eyes. She makes my world better. It’s why she’s so great.
+ - Bound by Love, But sworn to Kill...
+ - You see something you like?
+ - I lifted the lid and found a piece of bread and some water – and a rat that quickly darted off the tray. Talk about adding insult to injury.
+ - My commentary’s hilarious, not witty.
+ - I realized I’m in love. It’s always been right in front of me.
+ - Behaviors and feelings rarely line up.
+ - I, had an excellent instructor. One that you currently have locked up. If you want to talk about skills going to waste, then go look in your own jail.
+ - You’re beautiful, Roza. So beautiful it hurts me.
+ - Finn crossed his arms and glared at Volusian. It was kind of a bold move, considering Finn looked like a cartoon character and Volusian looked like he ate the souls of small children. For all I knew, he probably did.
+ - That’s pretty weird – and when I say something’s weird, you know it’s serious.
+ - After the bitching I’d done to Abe about going to remote, crappy places, I should have been excited about the prospect of going to Sin City.
+ - He was too perfect, despite being one of the most imperfect people I knew.
+ - I’d do a lot of things to protect you.
+ - What were good and evil, really, but stupid categories? Stupid categories that restricted people and punished or rewarded them based on how they responded to their own natures, natures they really didn’t have any way to control.
+ - Poor Martin. Geek or no, committing his soul to eternal damnation was a helluva price to pay for six minutes.
+ - Even when I was dizzy with vodka, that smile never failed to make my heart speed up.
+ - You know, I might miss some of your witticisms when you’re gone, but one thing I won’t miss? Your overwhelming sense of melodrama and despair. It’s too much even for me.
+ - Adrian was easily distractible by wacky topics and shiny objects.
+ - Yeah, I was at the Masquerade of the Damned.
+ - He has no right to threaten my boyfriends. I’m eighteen. An adult. I don’t need his help. I can threaten my boyfriends myself.
+ - Besides, when not hard at work with this research, I’m actually conducting a side experiment on how cigarettes and gin increase charisma. As you might guess, the results are looking very promising.
+ - Ooh. Top secret angel business, huh? What’re you going to do? Dance on a pinhead? Lobby for National Cute Puppy Day?
+ - Dimitri Belikov had arrived.
+ - It’s worth it. It’s worth giving up the sun and magic.
+ - I thought I’d finally get to relax with Dimitri.
+ - Right. Because there’s no bigger sign of commitment than a Halloween dance.
+ - Adrian: I can visit people in their dreams. Christian: Stop. I can feel there is a comment coming on about how women already dream about you. I just ate, you know.
+ - Sex had been amazing, but it wasn’t a magical cure for everything. Damn. Somewhere along the way, I’d picked up common sense.
+ - So. Are you guys here to convert me or sell me siding?
+ - This isn’t a game. We don’t want mediocre employees who can keep the status quo. We want souls. We want to win. And you’ve spent most of your time here being mediocre.
+ - You did what you did out of love. I can’t be mad at you over that. It was stupid, but that’s how love is. Do you have any idea what I’d do for you? To keep you safe?
+ - What do you think Dimitri? Is this a good idea, Dimitri? Please give us your blessing so that we can fall down and worship you, Dimitri.
+ - Plus, I was about to spend six weeks with Christian Ozera. He was sarcastic, difficult, and made jokes about everything. Actually, he was a lot like me. It was going to be a long six weeks.
+ - The guy that’s going to kick your ass for hurting her.
+ - I find more peace with you.
+ - Not me. Give me honesty anytime.
+ - The love in his eyes was so powerful, I needed to look away. Seth had an amazing grasp of the English language, but there were days when that skill was nothing compared to what he told me in his looks.
+ - The answer came to me before I’d even finished asking myself the question. I couldn’t be Mason’s girlfriend because when I imagined someone holding me and whispering dirty things in my ear, he had a Russian accent.
+ - I didn’t care about anything except her and the way touching her drove me wild, even as her calm and steady presence soothed the storms that raged within me.
+ - I’d seen him fight before, but it never got old. He was captivating. He never stopped moving. Every action was graceful and lethal. He was a dancer of death.
+ - I tried to dredge up the same reaction other girls had around Marcus, but nothing happened. No matter how hard I tried, I just didn’t have that same attraction His hair was too blond, I decided. And his eyes needed a little more green.
+ - I saw him because I see everything. Easy when no one notices you.
+ - The love we’d shared always burned within me, no matter how often I told myself to move on, no matter how much the world did think I’d moved on.
+ - You managed to get him a duster, but you couldn’t find me a pair of jeans?
+ - I set off, off to kill the man I love.
+ - Rose and Dimitri moved almost as one entity, like a matched pair of wolfes or lions, both wary and deadly as they studied their surroundings, taking no detail or person for granted.
+ - It doesn’t matter. Take Eddie’s blood. Take Belikov’s blood. Take your own for all I care. But If she doesn’t want to give hers, then that’s all there is to it. She said no. This conversation is done.
+ - And here I thought you had a soft spot for reckless young girls.
+ - Never thought my biggest cheerleader would be someone who thought I was evil and unnatural.
+ - You did not just say that. I have a feeling we’re on the verge of hugging and coming up with cute nicknames for each other.
+ - I bet you never thought the hardest part of finding your ’savior? would be getting her mom to let her stay out past curfew.
+ - Maybe under all that guilt and certainty that he couldn’t love again, he still wanted me. I would have liked to have found out. But I didn’t have the time. Instead, I punched him.
+ - Culinary science? You elected culinary science? That’s the most brainless class ever. -Rose to Christian.
+ - So that’s how you’re going to fix the family problem. Little Dragomirs. Good idea.
+ - Dimka, not you too.
+ - I find prostitutes vastly important.
+ - So far I’m not seeing a lot of difference between me and a carnival con-man.
+ - I always love seeing what worries you. Strigoi? No. Questionable food? Yes.
+ - Yeah according to my- Hey, are you staring at my chest? -Rose to Adrian.
+ - I decided the Alchemists needed an entire department devoted to handling Adrian Ivashkov.
+ - You and I aren’t friends either.
+ - Gaining superpowers doesn’t mean you know how to use them.
+ - Weirdly, an image of Adrian’s Love painting came back to me. I thought of the jagged red streak, slashing through the blackness, ripping it apart. Staring at Jill and her inconsolable pain, I suddenly understood his art a little bit better.
+ - People who are crazy rarely question whether they’re crazy.
+ - Right. As opposed to your cradle-robbing mentor. I don’t really see you making much progress with him.
+ - Even if I’d been wide awake, I knew Dimitri would’ve taken my suitcase anyway. That’s how he was, a lost remnant of chivalry in the modern world, ever-ready to help others.
+ - Sometimes talking to you is like talking to myself: pretty damned annoying.
+ - This is politics. People in power never have to play by the same rules.
+ - The Guardians wouldn’t abandon the last Dragomir. And I wouldn’t have abandoned Lissa even if there were a million Dragomirs.
+ - I’d have to kill Dimitri for real this time and lose any chance I might have to bring back my prince. Damn. It’s a good thing I work well under pressure.
+ - Giving advice was a lot harder than following it.
+ - He’s hot like, the kind of hot that makes you stop walking on the street and get hit by traffic.
+ - I’m backing down now. I really do love you. That’s why I’m doing this.
+ - How we love others is affected by how we love ourselves, and for the first time in a long time, I was whole.
+ - For a moment, I was captivated as I studied them side by side. My mother: the perfect picture of guardian excellence and decorum. My father: always capable of achieving his goals, no matter how twisted the means. Uneasily, I began to understand how I’d inherited my bizarre personality.
+ - Oh, and I’m also happy to watch our darling little love child dragon while you’re in St. Louis.
+ - I brought my lips down to hers, and it was like everything that had ever happened to me had simply been a warm-up for this moment, that this was where my life truly began.
+ - He glanced over at me, a smile twisting his lips. “Hey, no advice, Ghost Girl. Guardians should be seen and not heard.” I flipped him off for the “Ghost Girl” comment but he didn’t notice because Lissa was talking to him again.
+ - Seth was a wonderful kisser. He gave the kind of kisses that melted into your mouth and filled you with sweetness. They were like cotton candy.
+ - As I’d observed, it was clear that Rose was willing to do anything and fight anyone to protect her friend. I admired that – I admired that a lot – but it didn’t stop me from striking out to block her.
+ - So many details came into focus. The shape of his lips, the line of his neck. “I’m not dangerous,” I breathed. He brought his face toward mine. “You are to me.” And somehow, against all reason, we were kissing. I closed my eyes, and the world around me faded.
+ - Don’t be sorry you loved him. That’s part of you, part you have to let go...
+ - Immortals are, by definition, immortal. End of story.
+ - Honor, I thought. For real: the guardians should have taught it. Because I hadn’t learned it.
+ - I found the candles – atrocious air freshening ones that smelled like fake pine.
+ - Adrian’s new research partner stepped through the door, and I knew the uneasy peace we’d just established in Palm Springs was about to shatter. Dimitri Belikov had arrived.
+ - She studied him for a few more seconds. “You look too pretty to be useful.” I gasped in spite of myself. Adrian chuckled and shook her hand. “Truer words were never spoken,” he said.
+ - What do you mean it wasn’t anything? Didn’t the earth move or the planets align or something? -Rose to Lissa on sleeping with Aaron.
+ - None of you appreciate me. Why is it so hard to believe that I could make a real contribution in these dark rimes?
+ - And I thought the whole point of my education was that violence IS the answer.
+ - He thought there was no hope for him. Me? I can’t imagine a world without hope.
+ - It had to be one of the weirdest things in the universe that Lissa had never come close to suspecting my feelings for Dimitri but that Adrian had figured it out.
+ - She says you’re not awake until you’re actually out of bed and standing up.
+ - I didn’t like having reasonable arguments thrown at me.
+ - For a moment, staring down and realizing what I’d just done, I wanted to throw myself in after him, because surely there was no way I could go on living now.
+ - He’d barely seen me coming, and despite the horribleness of what I’d just done, I kind of wished one of my instructors had been there to grade me on such an awesome performance.
+ - So much grief, so much anger. So unlike the usual Adrian.
+ - My muse is an ungrateful harlot who’s abandoned me to actually come up with my own plots.
+ - But why would Victor and Robert take her? And how the hell did two old men subdue a teenage girl anyway?
+ - But what I found most interesting was that Aaron had apparently found a way to pass the time without her. Beside him, holding his hand, was a Moroi girl who looked about eleven but had to be older, unless he’d become a pedophile during our absence.
+ - Adrian stood there leaning against the doorframe, watching me with his heart in his eyes. In my chest, my own heart was breaking. On my cheek, the lily reminded me who I was.
+ - Why does it have to be so cut-and-dried? In your view, I either have to hate them or be in league with them. There’s a middle ground, you know. I can still be loyal to the Alchemists and on friendly terms with vampires and dhampirs.
+ - So. You’re saying my sister’s dressed like a prostitute.
+ - As much as I hated to admit it, I kind of looked forward to seeing him. It made no sense, but something about his infuriating nature made me forget about my other worries. Weirdly, I felt like I could relax around him.
+ - I thought Alchemists avoided alcohol the same way they do primary colors.
+ - If not for me being stoned and clinging to a taco, it would have been terribly romantic.
+ - That memory made a lump form in my throat as I remembered his face, serious and gorgeous, those brown eyes intense and passionate as he spoke up for me and convinced the others of my value.
+ - It was nice to see someone who appreciated her for her character, no matter how disgusted Christian was by the idea of ANYONE dating his aunt. And I actually kind of liked seeing Christian so obviously tormented. It was good for him.
+ - It was one thing to accept I couldn’t have Dimitri. It was something entirely different to realize someone else could.
+ - I had a standing arrangement with God: I’d agree to believe in him – barely – so long as he let me sleep in on Sundays.
+ - Hope implies that you think you have a chance at something.
+ - I’m telling you, I wanted to. But I was trapped. You of all people should know what it’s like being caught between groups.
+ - Besides, I could hardly complain to the administration that I was being forced to learn magic.
+ - He flipped the dail, and I crossed my arms over my chest as some vaguely European-sounding band sang about how video had killed the radio star. I wished someone would kill this radio.
+ - And I figured you’d drive a four-hour round-trip before giving up your car to someone else.
+ - Any life worth living is going to have risks.
+ - Whereas Angeline’s antics made me want to pull out my hair sometimes, Trey found them endearing.
+ - His fingers never ceased to amaze me. They could break a man’s neck, bandage a wound, and slide sensually across bare skin.
+ - Wait. You think I’m going to die? That’s why you slept with me?
+ - I had no reason to get all goofy, just because the man was too good-looking for his own good.
+ - Abe glanced at Rose. “You see that?” he said. “Now that’s devotion.” She rolled her eyes at him.
+ - My name’s Jet Steele.
+ - Even now, despite Angeline’s watchfulness, she’d occasionally oscillate between random topics, like how shepherd’s pie wasn’t a pie at all and why it was pointless for her to take class in typing when technology would eventually develop robot companions to do it for us.
+ - I’ve heard that the soul often recognizes truth when it hears it, even if the mind does not.
+ - Anyone who takes a hit for Adrian Ivashkov deserves some credit.
+ - Eddie was intensely dedicated too. Adrian sometimes called him mini-Dimitri.
+ - So, tell me this: suppose you manage to kidnap her again and take her off to the mall. While you’re there a Strigoi comes at you. What will you do? Depends on what store we’re in.
+ - I’ll just love you whether you want me to or not.
+ - However, he also trusted me to make my own decisions. Contradicting me or telling me what to do wasn’t in his nature – even though he secretly may have wanted to.
+ - I’d seen weirder things than a haunted shoe, but not many.
+ - I looked back and forth at them in amazement. I didn’t know if I was witnessing a fight or foreplay. I wasn’t thrilled about either option.
+ - Who was I to do this? I was Adrian Ivashkov. And I was about to kick some ass.
+ - Dierdre the counselor must not have had much of a life, because she scheduled our next appointment on a Sunday. I wasn’t so thrilled about it, seeing as it wasn’t just my day off-it was also the day my friends had off. Orders were orders, however, so I grudgingly showed up.
+ - We all have moments of weakness. It’s how we recover from them that really counts.
+ - Adrian, you’re a genius.
+ - Something clenched in my chest, and for a moment, the whole world narrowed down to the green of his eyes.
+ - I think I’ve got something else to help center my life.
+ - Sydney spent a lot of time on my bed these days. Unfortunately, it wasn’t with me.
+ - It turns out Dimitri had a friend, who had a friend, and despite the best security in the Moroi world, we managed to get into the Court’s prison facilities.
+ - What are you? An after school special?
+ - Your wit is always such a delight, Mr. Zeklos. I can barely contain myself around it.
+ - I have it on good authority that Victor’s going to have car trouble. Also that Robert really likes Cheerios, so if you want some, you’re out of luck. He doesn’t seem like the sharing type.
+ - Books were a lot less messy than orgasms.
+ - I can understand bitchiness in any language.
+ - This was the kind of dress that changed the world. The kind of dress that started religions.
+ - Isn’t it obvious, Sage? No, of course it isn’t. I did it so I’d have a reason to be around you – one I knew you couldn’t refuse.
+ - We had an endless supply of topics, both of us eager to put forth all we knew on anything and everything. Most of the meal was spent discussing the intricacies of the organic certification process. It was pretty awesome.
+ - The only thing true about what you just said was the storybook damsel part – and that only because you’re pretty enough to be one.
+ - If someone like you showed up to abduct me, I’d let you.
+ - She might be unarmed, but Rose Hathaway was in possession of many weapons.
+ - Nah. I’m a consultant, of course. Everyone’s favorite nondescript yet well-paid white-collar job.
+ - Look, Rose. You don’t have to keep up with the hard-to-get thing. You already got me.
+ - I supposed if you were going to make a career of breaking laws, you might as well know them.
+ - Having your own, um, cave at eighteen is pretty cool.
+ - Promises. I was drowning in promises.
+ - Hey Mason, wipe that drool off you face. If you’re going to think about me naked, do it on your own time. -Rose to Mason.
+ - The other problem in my life is Dimitri. He’s the one who killed Natalie, and he’s a total badass. He’s also pretty good-looking. Okay – more than good-looking. He’s hot – like, the kind of hot that makes you stop walking on the street and get hit by traffic.
+ - I left the clinic in a daze that had nothing to do with my head injury. Clear up in a week or so? How could Dr. Olendzki speak so lightly about this? I was going to look like a mutant for Christmas and most of the ski trip. I had a black eye. A freaking black eye. And my mother had given it to me.
+ - I’m really not good with impulse control.
+ - Rosemarie you are out of line.
+ - We need to get inside. I think my hair gel’s frozen.
+ - Also, I didn’t trust any guy who used more styling products than I did.
+ - Dimitri seemed like the kind of guy you could throw into the wilderness and he would survive off anything.
+ - He smiled, and it lit up his whole face.
+ - If she just wanted to come home at night to eye candy with good hair, I could probably be that reasonably well.
+ - I just told you to be quiet. That’s one step away from asking you to wash my laundry and make me a sandwich.
+ - Sleep with Seth Mortensen? Good grief. It was the most preposterous thing I’d ever heard. It was appalling. If I absorbed his life force, there was no telling how long it’d be until his next book came out.
+ - Thats why your doing this? Because Lissa told you to?
+ - Then, as one hand tightened on me and his other ran gently over my hair, I noticed something. He didn’t smell right.
+ - We’re the same! Even Sonya says we are. We’ve always been the same, and we’re both acting the same stupid way now! We hold ourselves to higher standards than everyone else.
+ - I followed along because really, it was hard to say no to Dimitri Belikov about anything.
+ - What about you, Sage? I know we don’t have to worry about you violating the dress code. Did you have fun at your Alchemist spa this weekend?
+ - Slushes. Do you know how much I love those? Cherry, especially.
+ - My hatred notwithstanding, I had to admit Dimitri Beli-whatever was pretty smart.
+ - Worry about staying alive first. Then worry about how you’re going to live.
+ - Despite his cynical exterior, he had a good heart-and Lissa owned most of it.
+ - You’re a solid person, Sage. You’re easy on the eyes, if a little skinny, and your ability to memorize useless information is going to totally hook in some guy.
+ - You got some cheap foreign labor to protect Lissa?
+ - It was impossible to get the Dimitri and Tasha thing out of my head, but at least packing and getting ready made sure I didn’t devote 100 percent of my brain power to him. More like 95 percent.
+ - Dimitri should have been here with me. That’s how it was supposed to have been.
+ - You can live a lifetime in two years.
+ - I’m getting better at avoiding this, but when something sets me off, I tend to punch first and then find out who I actually his later.
+ - I secretly wondered if Dimitri’s problem might be that he was jealous. He hadn’t pulled Lissa aside to yell at her. The thought made me slightly happy, but then I remembered my earlier curiosity about why Dimitri had even wandered by.
+ - Adrian tipped my face up toward his and kissed me. Like always, the world around me stopped moving. No, the world became Adrian, only Adrian.
+ - Abe swept in, resplendent in a gray and yellow suit that coordinated bafflingly well with Adrian’s paint job.
+ - But perhaps the best part of all was that I, Sydney Katherine Sage, guilty of constantly analyzing the world around me, well, I stopped thinking.
+ - All we can go on is what we think, how we see the world. If you can’t trust your own mind what can you trust?
+ - I was so awash in sensory overload that I was caught completely unaware when he did push me away.
+ - Everyone wanted what she couldn’t have.
+ - Funny how someone telling you not to do something can talk you into it.
+ - Sage, aren’t you guys supposed to have uniforms? This looks like what you usually wear.
+ - Guilt was its own prison.
+ - Vampires. Honestly, they’re like children sometimes.
+ - I looked him in the eye. “I will always love you.” Then I plunged the stake into his chest.
+ - His eyes, I’d long since discovered, could be as eloquent and expressive as his pen. The messages they sent me now hardly seemed decent for a public setting.
+ - One of the few downsides to being awakened is that we no longer require sleep; therefore we also no longer dream. It’s a shame, because if I could dream, I know I’d dream about you.
+ - I hoped Lissa remained the only one with a surprise sibling.
+ - Would he have said he loved me? I would ask myself that for the rest of my life.
+ - Some rules are bigger than the universe.
+ - We can take her. Besides, he deserves someone who doesn’t shop at Gap Kids. -Rose to Lissa on Mia and Aaron.
+ - As he looked at me, he seemed to send a message of his own: that he would still fight for me, that he would fight until he collapsed to keep them from taking me.
+ - No one had ever called me unnatural before, except for the time I put ketchup on a taco. But seriously, we’d been out of salsa, so what else was I supposed to do?
+ - Seth moved behind me, his presence steady and reassuring. Waiting to catch me, even though I refused to fall just yet.
+ - Adrian looked away from me and down to where my hand covered his. I blushed and pulled away. “Sorry” I’d probably freaked him out.
+ - Not much could have distracted me from coffee, but hearing Julius Caesar quoted at Spencer’s certainly did.
+ - I certainly hadn’t expected to walk away from today’s trip with joint custody of a miniature dragon.
+ - Melbourne, I always knew you’d need to learn about this kind of thing. I ’d just kind of hoped you’d learn it on a real guy.
+ - If someone had asked who could stage the best intervention with a crazy woman who had formerly been an undead monster, Sydney Sage would have been my last guess.
+ - I unfolded the note, and it took me a few seconds to decipher Adrian’s writing. If he did write me a dating proposal, I really hoped he would type it.
+ - It occurred to me that I was standing face to face with the hero of a love story nearly as dramatic as my own.
+ - There was a lot of apologizing going on, but I realized that was how it was with people you cared about. You forgave each other and moved on.
+ - The battle cry sort of gave you away. Try not to yell next time.
+ - I was drunk.
+ - The only thing better than imagining Dimitri carrying me in his arms was imagining him shirtless while carrying me in his arms.
+ - I did, however, manage to do it without hurting those dogs. Very considerate of me. Don’t let it be said I’m not an animal lover-that wretched kitsune aside.
+ - Was Deirdre right about me purposely wanting relationships that were impossible?
+ - I felt the need to clarify we were there for the self defense class, in case he also taught about dog breeding or riding the high seas.
+ - One day she’s throwing a book at me. The next, we’re making out behind the library.
+ - Sydney! Stop. Think of something else. Conjugate Latin verbs. Recite the periodic table.
+ - Me? I didn’t believe in hopeless.
+ - Adrian: I find prostitutes vastly important. Nathan Ivashkov: Well. How refreshing to see that things haven’t changed.
+ - People really want to set up these rivalries because there’s a lot of vampire books out there. People want to believe we’re all fierce rivals, and really there’s just so much camaraderie with authors. Everyone kind of boosts each other.
+ - Good God. Men everywhere.
+ - If I had learned anything in my life about love, it was that they were tenous things that could end at any moment. Caution was essential-but not at the cost of risking your life.
+ - Setting out around midnight, I couldn’t help shaking my head, “We’re the goddamned hottest vampire hunters ever.” I muttered.
+ - Study’s overrated. Just find someone smart to copy off. -Adrian to Lissa.
+ - Maybe I was in love, but I was still me, after all.
+ - You’re better than this, Adrian. Whatever the reason, you’re better than it. Don’t trick yourself into thinking you’re weaker than you are.
+ - You can put on as many airs as you want, but in the end, that dress is the same as you: an old, cheap design dressed up to look like its worth more than it is.
+ - For once, you’re going to hear something that doesn’t fit into your neat, compartmentalized world of order and logic and reason.
+ - Sorry, Ms. Terwilliger. I’m flattered that you think I’m such an upstanding person, but I’m already caught up in one epic battle of good versus evil. I don’t need another.
+ - No one was normal, not really.
+ - Rose was so full of life and passion that sometimes she seemed more human than I was.
+ - You aren’t afraid of throwing yourself in the path of danger, but you’re terrified of letting anyone in.
+ - I hadn’t gotten far when I ran into Mason. Good God. Men everywhere.
+ - Fortunately for Dimitri, I had his back.
+ - It was like having a genie. I’d only get so many wishes.
+ - We were going to kill ourselves in trying to kill each other.
+ - Propriety’s never been Adrian’s strong suit.
+ - But I couldn’t help myself, couldn’t help the way I felt as I recalled the bliss and rush of a vampire’s bite.
+ - And sometimes, if I was really, really lucky, he’d smile at me. A real smile, too – not the dry one that accompanied the sarcasm we tossed around so often. I didn’t want to admit it to anyone – not to Lissa, not even to myself – but some days, I lived for those smiles.
+ - The bond was so strange at times. Jill was jealous on Adrian’s behalf.
+ - That’s what humanity is: a series of successes and failures, a testing of one’s own nature and aptitude. Neither the body nor the soul can sustain such a state. Eventually it consumes a person.
+ - Under normal circumstances, you inviting me to the bedroom would be the highlight of my day.
+ - There was nothing I loved more than teasing Dimitri. Well, aside from maybe kissing him.
+ - Did you know that it’s a lot harder to put organs back in the body than it is to get them out?
+ - Sydney might not be an expert in personal relationships but puzzles were familiar territory.
+ - Okay, but if you try to get me to pray with you, I walk.
+ - Well, she was talking to me. That’s enough to make anyone lose their temper. And I accused her of sleeping with my dad because he was the soundest evolutionary choice.
+ - Do you love him?
+ - It made you happy...
+
+494 quotes

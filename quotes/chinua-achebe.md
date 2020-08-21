@@ -1,0 +1,166 @@
+ - Procrastination is a lazy man’s apology.
+ - If you only hear one side of the story, you have no understanding at all.
+ - Nobody can teach me who I am. You can describe parts of me, but who I am – and what I need – is something I have to find out myself.
+ - There is that great proverb – that until the lions have their own historians, the history of the hunt will always glorify the hunter.
+ - My weapon is literature.
+ - As a rule I don’t like suffering to no purpose. Suffering should be creative, should give birth to something good and lovely.
+ - If you don’t like someone’s story, write your own.
+ - When an old man dies, a library burns to the ground.
+ - One of the truest tests of integrity is its blunt refusal to be compromised.
+ - The only thing we have learnt from experience is that we learn nothing from experience.
+ - When suffering knocks at your door and you say there is no seat for him, he tells you not to worry because he has brought his own stool.
+ - People say that if you find water rising up to your ankle, that’s the time to do something about it, not when it’s around your neck.
+ - While we do our good works let us not forget that the real solution lies in a world in which charity will have become unnecessary.
+ - The lizard that jumped from a high Iroko tree to the ground said he would praise himself if no-one else did.
+ - The world is like a Mask dancing. If you want to see it well, you do not stand in one place.
+ - When a mad man walks naked, it is his kinsmen who feel shame, not himself.
+ - There is a moral obligation, I think, not to ally oneself with power against the powerless.
+ - When a tradition gathers enough strength to go on for centuries, you don’t just turn it off one day.
+ - When brothers fight to death a stranger inherit their father’s estate.
+ - An angry man is always a stupid man.
+ - There was a saying in Umuofia that as a man danced so the drums were beaten for him.
+ - Storytellers are a threat. They threaten all champions of control, they frighten usurpers of the right-to-freedom of the human spirit – in state, in church or mosque, in party congress, in the university or wherever.
+ - People create stories create people; or rather stories create people create stories.
+ - If a child washed his hands, he could eat with kings.
+ - Wisdom is like a goatskin bag; every man carries his own.
+ - A man who does not lick his lips, can he blame the harmattan for drying them?
+ - Art is man’s constant effort to create for himself a different order of reality from that which is given to him.
+ - Age was respected among his people, but achievement was revered. As the elders said, if a child washed his hands he could eat with kings.
+ - There is no story that is not true.
+ - The sun will shine on those who stand before it shines on those who kneel under them.
+ - I feel that the English language will be able to carry the weight of my African experience. But it will have to be a new English, still in full communion with its ancestral home but altered to suit new African surroundings.
+ - An old woman is always uneasy when dry bones are mentioned in a proverb.
+ - You do not know me,’ said Tortoise. ‘I am a changed man. I have learned that a man who makes trouble for others makes trouble for himself.
+ - If you don’t like someone’s story, write your own. If you don’t like what somebody says, say what it is you don’t like.
+ - The women are, of course, the biggest single group of oppressed people in the world and, if we are to believe the Book of Genesis, the very oldest.
+ - Nigeria is what it is because its leaders are not what they should be.
+ - A man who makes trouble for others is also making trouble for himself.
+ - When mother-cow is chewing grass its young ones watch its mouth.
+ - Every lizard lies on its belly, so we cannot tell which has a belly-ache.
+ - The damage done in one year can sometimes take ten or twenty years to repair.
+ - There is nothing to fear from someone who shouts.
+ - It is the storyteller who makes us what we are, who creates history. The storyteller creates the memory that the survivors must have – otherwise their surviving would have no meaning.
+ - You must develop the habit of skepticism, not swallow every piece of superstition you are told by witch-doctors and professors.
+ - We cannot trample upon the humanity of others without devaluing our own.
+ - A man of worth never gets up to unsay what he said yesterday.
+ - Literature, whether handed down by word or mouth or in print, gives us a second handle on reality.
+ - Even the village rain-maker no longer claimed to be able to intervene. He could not stop the rain now, just as he would not attempt to start it in the heart of the dry season, without serious danger to his own health.
+ - She pouted her lips like a gun in my face.
+ - Once a novel gets going and I know it is viable, I don’t then worry about plot or themes. These things will come in almost automatically because the characters are now pulling the story.
+ - A boy sent by his father to steal does not go stealthily but breaks the door with his feet.
+ - In fact, I thought that Christianity was very a good and a very valuable thing for us. But after a while, I began to feel that the story that I was told about this religion wasn’t perhaps completely whole, that something was left out.
+ - My parents were early converts to Christianity in my part of Nigeria. They were not just converts; my father was an evangelist, a religious teacher. He and my mother traveled for thirty-five years to different parts of Igboland, spreading the gospel.
+ - A disease that has never been seen before cannot be cured with every-day herbs.
+ - When old people speak it is not because of the sweetness of words in our mouths; it is because we see something which you do not see.
+ - I’ve had trouble now and again in Nigeria because I have spoken up about the mistreatment of factions in the country because of difference in religion. These are things we should put behind us.
+ - Let the kite perch and let the eagle perch too – If one says no to the other, let his wing break.
+ - If I hold her hand she says, ‘Don’t touch!’ If I hold her foot she says ‘Don’t touch!’ But when I hold her waist-beads she pretends not to know.
+ - It is praiseworthy to be brave and fearless, but sometimes it is better to be a coward. We often stand in the compound of a coward to point at the ruins where a brave man used to live.
+ - Among the Igbo the art of conversation is regarded very highly, and proverbs are the palm-oil with which words are eaten.
+ - A man who pays respect to the great paves the way for his own greatness.
+ - What is modesty but inverted pride?
+ - The price a world language must be prepared to pay is submission to many different kinds of use.
+ - A kinsman in trouble had to be saved, not blamed; anger against a brother was felt in the flesh, not in the bone.
+ - Nobody can teach me who I am.
+ - In such a regime, I say, you died a good death if your life had inspired someone to come forward and shoot your murderer in the chest-without asking to be paid.
+ - A goat does not eat into a hen’s stomach no matter how friendly the two may be.
+ - When a coward sees a man he can beat he becomes hungry for a fight.
+ - Women and music should not be dated.
+ - A man’s life from birth to death was a series of transition rites which brought him nearer and nearer to his ancestors.
+ - Whenever you see a toad jumping in broad daylight, then know that something is after its life.
+ - A coward may cover the ground with his words but when the time comes to fight he runs away.
+ - Living fire begets cold, impotent ash.
+ - When a man is at peace with his gods and ancestors, his harvest will be good or bad according to the strength of his arm.
+ - We cannot trample upon the humanity of others without devaluing our own. The Igbo, always practical, put it concretely in their proverb Onye ji onye n’ani ji onwe ya: ‘He who will hold another down in the mud must stay in the mud to keep him down.’
+ - Do not be in a hurry to rush into the pleasures of the world like the young antelope who danced herself lame when the main dance was yet to come.
+ - Joseph Conrad was a thoroughgoing racist. That this simple truth is glossed over in criticisms of his work is due to the fact that white racism against Africa is such a normal way of thinking that its manifestations go completely unremarked.
+ - When the moon is shining the cripple becomes hungry for a walk.
+ - Travellers with closed minds can tell us little except about themselves.
+ - They say a man is like a funeral ram which must take whatever beating comes to it without opening its mouth; only the silent tremor of pain down its body tells of its suffering.
+ - A toad does not run in the daytime for nothing.
+ - The impatient idealist says: ‘Give me a place to stand and I shall move the earth.’ But such a place does not exist. We all have to stand on the earth itself and go with her at her pace.
+ - The whole idea of a stereotype is to simplify. Instead of going through the problem of all this great diversity – that it’s this or maybe that – you have just one large statement; it is this.
+ - Once you allow yourself to identify with the people in a story, then you might begin to see yourself in that story even if on the surface it’s far removed from your situation.
+ - No man however great is greater than his people.
+ - To me, being an intellectual doesn’t mean knowing about intellectual issues; it means taking pleasure in them.
+ - It always surprised him when he thought of it later that he did not sink under the load of despair.
+ - What a country needs to do is be fair to all its citizens – whether people are of a different ethnicity or gender.
+ - A man to whom you do a favor will not understand if you say nothing, make no noise, just walk away. You may cause more trouble by refusing a bribe than by accepting it.
+ - Every generation must recognize and embrace the task it is peculiarly designed by history and by providence to perform.
+ - When I began going to school and learned to read, I encountered stories of other people and other lands.
+ - Real tragedy is never resolved. It goes on hopelessly for ever.
+ - A man who lived on the banks of the Niger should not wash his hands with spittle.
+ - Writers don’t give prescriptions. They give headaches!
+ - The language of young men is pull down and destroy; but an old man speaks of conciliation.
+ - Become familiar with your home, but know also about your neighbors. The young man who never went anywhere thinks his mother is the greatest cook.
+ - Children are young, but they’re not naive. And they’re honest. They’re not going to keep wide awake if the story is boring. When they get excited you can see it in their eyes.
+ - Almost nobody dances sober, unless they happen to be insane. H. P. LOVECRAFT, attributed, Telling It Like It Is Dancing is very important nowadays. No girl will look at you if you can’t dance.
+ - It is difficult to express the reality of Ibo society in classical English.
+ - A chief does not hurry.
+ - As our fathers said, you can tell a ripe corn by its look.
+ - In my definition I am a protest writer, with restraint.
+ - We shall all live. We pray for life, children, a good harvest and happiness. You will have what is good for you and I will have what is good for me. Let the kite perch and let the egret perch too. If one says no to the other, let his wing break.
+ - Do you blame a vulture for perching over a carcass?
+ - After a war life catches desperately at passing hints of normalcy like vines entwining a hollow twig.
+ - Those whose kernels were cracked by benevolent spirit should not forget to be humble.
+ - A debt may get mouldy, but it never decays.
+ - There’s no lack of writers writing novels in America, about America. Therefore, it seems to me it would be wasteful for me to add to that huge number of people writing here when there are so few people writing about somewhere else.
+ - We do not seek to hurt any man, but if any man seeks to hurt us may he break his neck.
+ - They have not always elected the best leaders, particularly after a long period in which they have not used this facility of free election. You tend to lose the habit.
+ - The most awful thing about power is not that it corrupts absolutely but that it makes people so utterly boring, so predictable.
+ - A functioning, robust democracy requires a healthy educated, participatory followership, and an educated, morally grounded leadership.
+ - When a new saying gets to the land of empty men, they lose their heads over it.
+ - He who fights for a ne’er-do-well has nothing to show for it except a head covered in earth and grime.
+ - I was a supporter of the desire, in my section of Nigeria, to leave the federation because it was treated very badly with something that was called genocide in those days.
+ - I have so many ideas; there are so many things that need to be done, so many possibilities, you know; one is terribly excited, but at the same time, you’re almost confused, because you don’t know where to begin.
+ - And theories are no more than fictions which help us to make sense of experience and which are subject to disconfirmation when their explanations are no longer adequate.
+ - The problem with leaderless uprisings taking over is that you don’t always know what you get at the other end. If you are not careful you could replace a bad government with one much worse!
+ - Men have learned to shoot without missing their mark and I have learned to fly without perching on a twig.
+ - Dancing is very important nowadays. No girl will look at you if you can’t dance.
+ - The emperor would prefer the poet to keep away from politics, the emperor’s domain, so that he can manage things the way he likes.
+ - Americans, it seems to me, tend to protect their children from the harshness of life, in their interest. That’s not the way my people rear their children. They let them experience the world as it is.
+ - The writer is often faced with two choices – turn away from the reality of life’s intimidating complexity or conquer its mystery by battling with it. The writer who chooses the former soon runs out of energy and produces elegantly tired fiction.
+ - I think an artist, in my definition of that word, would not be someone who takes sides with the emperor against his powerless subjects. That’s different from prescribing a way in which a writer should write.
+ - Democracy is not something you put away for ten years, and then in the 11th year you wake up and start practicing again. We have to begin to learn to rule ourselves again.
+ - The writer cannot expect to be excused from the task of reeducation and regeneration that must be done. In fact, he should march right in front.
+ - People go to Africa and confirm what they already have in their heads and so they fail to see what is there in front of them.
+ - When we hear a house has fallen do we ask if the ceiling fell with it?
+ - As long as one people sit on another and are deaf to their cry, so long will understanding and peace elude all of us.
+ - When the British came to Ibo land, for instance, at the beginning of the 20th century, and defeated the men in pitched battles in different places, and set up their administrations, the men surrendered. And it was the women who led the first revolt.
+ - When there is a big tree small ones climb on its back to reach the sun.
+ - People from different parts of the world can respond to the same story if it says something to them about their own history and their own experience.
+ - If I write novels in a country in which most citizens are illiterate, who then is my community?
+ - What a man does not know is greater than he.
+ - I think writers are not only writers, they are also citizens.
+ - The singer should sing well even if it is merely to himself, rather than dance badly for the whole world.
+ - Contradictions if well understood and managed can spark off the fires of invention. Orthodoxy whether of the right or of the left is the graveyard of creativity.
+ - We have heard stories about white men who make the powerful guns and the strong drinks and took slaves away across the seas, but no one thought the stories were true.
+ - Nigeria has had a complicated colonial history. My work has examined that part of our story extensively.
+ - If one finger brings oil it soils the others.
+ - I think back to the old people I knew when I was growing up, and they always seemed larger than life.
+ - What kind of power was it if it would never be used?
+ - Serious and good art has always existed to help, to serve, humanity. Not to indict.
+ - Presidents do not go off on leave without telling the country.
+ - I am against people reaping where they have not sown. But we have a saying that if you want to eat a toad you should look for a fat and juicy one.
+ - One would think he never sucked at his mother’s breast.
+ - If the clan did not exact punishment for an offense against the great goddess, her wrath was loosed on all the land and not just on the offender. As the elders said, if one finger brought oil it soiled all the others.
+ - Oh, the most important thing about myself is that my life has been full of changes. Therefore, when I observe the world, I don’t expect to see it just like I was seeing the fellow who lives in the next room.
+ - A child cannot pay for its mother’s milk.
+ - Privilege, you see, is one of the great adversaries of the imagination; it spreads a thick layer of adipose tissue over our sensitivity.
+ - He is a fool who treats his brother worse than a stranger.
+ - Stories serve the purpose of consolidating whatever gains people or their leaders have made or imagine they have made in their existing journey thorough the world.
+ - You might as well say that the woman lies on top of the man when they are making the babies.
+ - Many writers can’t make a living. So to be able to teach how to write is valuable to them. But I don’t really know about its value to the student. I don’t mean it’s useless. But I wouldn’t have wanted anyone to teach me how to write.
+ - It is the story that owns and directs us. It is the thing that makes us different from cattle; it is the mark on the face that sets one people apart from their neighbors.
+ - An artist in my view is always afraid of extremists; he is always afraid of those who claim to have found the ultimate solution to any question.
+ - That we are surrounded by deep mysteries is known to all but the incurably ignorant.
+ - I’m a practised writer now. But when I began, I had no idea what this was going to be. I just knew that there was something inside me that wanted me to tell who I was, and that would have come out even if I didn’t want it.
+ - An artist, in my understanding of the word, should side with the people against the Emperor that oppresses his or her people.
+ - My son even if you want to fall, at least fall where your bones can be gathered.
+ - Most writers who are beginners, if they are honest with themselves, will admit that they are praying for a readership as they begin to write. But it should be the quality of the craft, not the audience, that should be the greatest motivating factor.
+ - In dealing with a man who thinks you are a fool, it is good sometimes to remind him that you know what he knows but have chosen to appear foolish for the sake of peace.
+ - The people you see in Nigeria today have always lived as neighbors in the same space for as long as we can remember. So it’s a matter of settling down, lowering the rhetoric, the level of hostility in the rhetoric is too high.
+ - I don’t care about age very much.
+ - Whatever music you beat on your drum there is somebody who can dance to it.
+
+164 quotes

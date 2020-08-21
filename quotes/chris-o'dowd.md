@@ -1,0 +1,49 @@
+ - Beyonce is the most amazing woman in the world.
+ - Comedy writing is taking the brief thought and going with it.
+ - I would be nothing if it wasn’t for the town where I grew up and the people who gave me my inspiration.
+ - I’d like my super power to be puns; I’d like to be great at puns: pun power. Then I could go on loads of panel shows and live off that forever.
+ - I’m more like a spoon symbol. I think women just want to spoon me.
+ - I just am so tired of really badly written women. It’s so boring.
+ - A guy who’s actually self destructive is quite fun to play.
+ - Social media is great, I guess, but it feels like technology is the sapper of innocence.
+ - I’m a huge, huge believer in love. Huge!
+ - What I think improv is great for is making dialogue more natural.
+ - The cauliflower soup sounds so good. And the broccoli-melt sandwich. I’ve never heard of such a thing.
+ - I definitely want to keep working in Ireland, and without being too worthy about it, if it’s possible to bring work into the country, that’s no harm.
+ - I mean, I’m an uncle of seven or eight, and I don’t mind it at all! Kids are great. Kids are the best six-hour experience you can have!
+ - I never go to these showbiz parties. I avoid them with a 10-inch pole.
+ - There tends to be a jealousy in England towards countries that are successful.
+ - I’m a Hawaiian shirt guy. I’ve made that life decision.
+ - I’ve gone up for loads of jobs in the past that I knew were going to be terrible, and I’ve done my best, and I still haven’t got them. So I think I’ve been lucky in who’s decided I’d be worthy of their time.
+ - Put it this way: singing is not my day job.
+ - When I say I hate nostalgia, I hate things set in the recent past where everything is shiny and new.
+ - All of this talk of recession offends me. I am delighted that bankers have less money.
+ - Going out with other actors is never good; actresses are neurotic, and actors are horrendous egotists.
+ - The fame thing has happened very gradually, so I’ve been kind of lucky.
+ - I never thought I’d refer to myself as a hot mess.
+ - People in England talk about stupid Hollywood idiots, but the industry attracts some of the cleverest people in the world.
+ - I grew up among strong women so I know what it’s like to be loved and humiliated in a heartbeat.
+ - Being at the genesis of the creative process is definitely something I want to keep doing. It’s just such a great buzz.
+ - I think there’s something in the fact that it’s hard to be good looking and funny. You have to have an oddball quality; people have to sympathise with you to find you funny.
+ - I cook rarely, but I’ve kind of got two or three dishes that I stick to. I do a great sweet potato and lentil curry.
+ - In comedy it helps if there’s a friendly atmosphere on the set.
+ - I often talk to myself while walking down the street. I did it as a kid.
+ - I definitely enjoy an audience, when I’m performing. As I get older I’m kind of less comfortable at being demonstrative. I always fancied myself as a raconteur, but that never really worked out.
+ - I get asked all the time if I want to do more dramatic acting, and I really doubt that dramatic actors get asked if they want to do more comedies. I don’t really know why that is.
+ - I’d like to think that I’m getting slightly more mature as time goes on, but I don’t know if my fiancee would necessarily agree.
+ - I come from a musical kind of family.
+ - I’m probably working on three different scripts at any time, so there’s never a time where I’ve got nothing to do.
+ - I play very sweet characters, so people look at me like I’m the kid from ‘The Wonder Years,’ rather than Brad Pitt.
+ - I don’t think the public here buy this idea that women and men speak different comedic languages.
+ - I grew up in a house of forthright women.
+ - Sometimes films about oppression or suppression can be quite maudlin and quite dour. Sometimes you need a little sugar with the medicine and I think of myself as the little sugar.
+ - I’ve always been conscious of the fact that there aren’t enough Irish voices on British television compared to the amount of Irish people who live there.
+ - For some reason, I find that in the course of my career I’ve worked with more women than most men have.
+ - Hey, I think comic actors are the best actors.
+ - When I was about 13 I realised girls weren’t going to kiss me because I was a gigantic, weird looking creature from the depths. I was like 6 ft. aged 11.
+ - I think I’m going to keep my Irish accent forever now in any movie I make, because chicks dig it and that’s all I care about now!
+ - I don’t mind being slightly fat-ish, I just don’t want to be fat.
+ - After ‘Bridesmaids,’ women know who I am.
+ - The bottom line is that female writers aren’t being given enough opportunities by male producers.
+
+47 quotes

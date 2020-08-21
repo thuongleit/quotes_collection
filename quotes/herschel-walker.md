@@ -1,0 +1,40 @@
+ - If you train hard, you’ll not only be hard, you’ll be hard to beat.
+ - We have the DNA of our Lord Jesus Christ.
+ - If you dedicate yourself to something, you can achieve it. It’s simple, but it’s true, and your age is just an excuse.
+ - I see so many people who don’t want to try, and I say ‘I don’t care what I ever do, I never give up at anything anymore.’ I don’t care what it is, you’ll never see me give up.
+ - My favorite subject probably was math. I love math. Figures just intrigue me. I was really good at math. English probably was my worst subject. But I used to write a lot of poetry. I used to write poetry all the time.
+ - When I feel good about myself, things start happening for myself. When you look up, you go up.
+ - My God given talent is my ability to stick with training longer than anybody else.
+ - One thing I will never do as long as I’m at Georgia is lose to Florida.
+ - I wish they would see the real person in me. One day, they will know I’m not here for the show. My mind do shine. My heart is so kind. But that they can not see because all they see is the outside of me. Who I am, what I do is only the reaction I get from you.
+ - I never get tired of running. The ball ain’t that heavy...
+ - I just think I’m blessed. I love the Lord Jesus Christ. I have a great grandmother that passed away at 104 and two grandparents that passed away at 97 and 95 and they never worried about protein. They just enjoyed life and that’s what I’m doing.
+ - Coming from a small town it was tough to dream big. When I grew up in a small town in Georgia, my biggest dream was one day to be able to go to Atlanta.
+ - I was a fat little kid with a speech impediment. I used to get beat up, not just picked on.
+ - I don’t worry about protein. I don’t worry about all that. I’m from old school. I grew up in south Georgia. They didn’t worry about cholesterol or protein. They went out and worked and lived a long time, so I don’t put a lot of worries in my mind. I just get it done.
+ - As a born-again Christian, I believe God actively and directly influences me to action.
+ - Because my parents, growing up, they worked hard. Everyone in my family woke up early in the morning. I used to see my mother and my father go off to work, and come back and, no matter what, they had time for the kids.
+ - I told my mom the reason I started working out was because I wanted to break the necks of the people picking on me. I wanted to hurt them. I said I didn’t want any teacher to put me down any more.
+ - The hardest thing I had to overcome in life? I think racism. That’s so difficult because I don’t think anyone can ever understand it. It’s not that people don’t want to understand it, but they don’t want to touch it.
+ - I was determined to make Renaissance Man Food Services and Herschel’s Famous 34 major players in a very tough industry.
+ - Without a doubt in my mind, I should be in the Pro Football Hall of Fame. You look at my stats without my USFL stats, and I don’t know how you can argue with that. Look at my combined yards. I’m not one to make excuses, so I’ll play by their rules and not even count the USFL stats.
+ - My message is, you can accomplish anything, not just on the athletic field, if you’re willing to work pay the price. It doesn’t matter what your age.
+ - I’d usually read the Bible a lot. Read little short Bible stories. And today, whenever I give speeches, I bring up a few of those Bible stories, because those are inspirations to me.
+ - I never dreamed about being an actor, because that was out of reach. Coming from a small town that was big in farming, and also big in clothing factories, you don’t dream about being a professional football player or an actor.
+ - God, my parents, my wife. I don’t have a lot of friends, because I’m always moving around. I don’t drink, so I don’t hang out in bars. But they’ve been very big in my life. Because they have helped to encourage me.
+ - Football, that’s just athletics. But in the business world – doing everything – people are competing. So you need good work ethics, and I think it helped me to develop good work ethics, being in a small town.
+ - I don’t read a lot of the sports, because I think people sometimes either build it up, or you have this guy that hates sports that is going to write bad about it, so I figure I’m not going to read it. Because I’m not going to let him put an idea into my head.
+ - Success is just being happy. And I try so many different things. I do a lot of different things. Because I think God has helped me to love myself. I know who God is, and I love God.
+ - If I had to come up with something that just came to me, I think growing up in a small town, I want knowledge. I still think today, knowledge is one of the keys.
+ - If you eat a chicken wing or a chicken tender in some parts of the country, I probably supplied it.
+ - I do this ‘Walker shake.’ You got to get knocked down many times, shake it off. Life is about ups and downs, and you got to keep standing up.
+ - Growing up, I started developing confidence in what I felt. My parents helped me to believe in myself. I wasn’t the best looking guy, I wasn’t the best athlete in the world, but they made me feel good about myself.
+ - Lets not push it under the rug, or push it to the side because, no matter what, it’s going to keep coming up. You know, if you never deal with that dirt up under the carpet, it’s going to get larger and larger, and it’s going to keep coming up.
+ - I was a little different. I still say Im a little different, because success to me is not having the most money, or having the biggest car or the biggest house.
+ - Eat what you want to eat, but just be willing to pay the price. If you know you want to eat more cake or more cookies, be willing to work out a lil bit more. I think that’s the problem people have is you want to eat bad, but yet you don’t want to pay the price to work it off.
+ - When I started out as a little kid, I didn’t say ‘I just want to run football.’ I wanted to be a great athlete.
+ - Believing that no one is better than the other. You know I grew up in the South. My senior year there was a very big racial tension.
+ - That person has to be accountable for himself. I think thats what we have to do in society today is to be accountable for yourself. I think we have the tendency to always want to live someone elses life.
+ - I always said I wanted to be a great athlete, ever since I was an overweight little kid. I just love competing in any kind of athletics.
+
+38 quotes

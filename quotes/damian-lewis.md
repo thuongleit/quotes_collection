@@ -1,0 +1,38 @@
+ - I’ve always had a ‘Work hard, play hard’ attitude to life – I still do – but sometimes you get involved in something that needs a calm, methodical approach.
+ - It’s certainly true that I was brought up in that British amateur tradition, the one which always held that if you were reasonably good at cricket, knew one or two Latin texts and a few zingy Oscar Wilde quotes for dinner parties, you were pretty much ready to go and run some outpost in Hindustan.
+ - People need revelation, and then they need resolution.
+ - I love playing sport.
+ - Quiet people, people who arent given to emotional outbursts, people who are economic with words – theyre also fun to play, but you find yourself needing a laser precision in those roles. Otherwise you just sort of stand around, looking slightly brain-dead. You worry about being uninteresting.
+ - Seeing a man praying to Allah is enough for some people to assume he is a terrorist.
+ - You know what it’s like to feel anxious – it’s horrible feeling anxious. It’s stressful having that feeling, having butterflies in your stomach, even for a day, and you don’t sleep at night.
+ - In England we burnt redheads at the stake, because we thought they were witches. There are still young redheads in Britain getting ripped for having red hair. ‘Oy, Ginger!’
+ - I love going for a swim. Growing up in England, anywhere with a pool seems like the height of glamour to me.
+ - I don’t believe Jesus was the son of God, although I’m inclined to think he might have been a great prophet.
+ - I think you can’t be really posh and be an interesting actor. I’m a bit of a posh rough.
+ - A cricket ball broke my nose when I was a kid so I couldn’t breath through it. Before I had it operated on I used to stand on stage with my mouth slightly open.
+ - No Western government has ever played the long-term in terms of foreign policy.
+ - I’ve done classical theaters. I played Hamlet myself and Romeo.
+ - Dramatically it’s always more interesting to conceal rather than reveal things.
+ - I’ve had loss in my life, and I like to think my mother’s energy lives on in some faintly Buddhist way. I do find some comfort there.
+ - My parents were incredibly inclusive.
+ - Theres something important, as an actor, about allowing yourself to be approached by people to do roles. People see different things in you.
+ - Acting can be a narrow and isolated experience, because you only examine your particular part.
+ - You can’t do something that is morally vacuous or dysfunctional and then write it off saying, ‘It wasn’t my film, I was just doing a job in it.’
+ - Temperamentally I’m not a natural producer, because I don’t have the patience.
+ - I was, if you like, a successful schoolboy in that I had a degree of talent in all the required things that make you a success at school.
+ - I’d lived in LA for two years and I said to my agent that I wouldn’t do any more network TV, because my family and I had just made the decision to live in England. It would be a whole year in LA shooting network TV.
+ - It’s good to be busy on a film set because there is a lot of sitting around, so if you’ve got two roles to play at one time, then that’s great to do.
+ - For me the rehearsal period is the part I most enjoy. It’s the creating of the story.
+ - I want to make a clear distinction between people who take acting seriously and people who call themselves actors because theyve been on reality TV or something.
+ - It’s an unfair comparison because when things are developed in the UK, they’re developed at script stage only.
+ - You just have to take control of your own performance.
+ - I guess I’m just good at playing repressed individuals. I’m lucky because those are often the roles that catch people’s eyes.
+ - I have a three-year-old and a four-year-old at home, and my mornings are about just dealing with the fact of that. I oddly enjoy it.
+ - My heroes were all in the theatre.
+ - In the end, there’s something of the puritan work ethic about me that roles really must sustain me on an intellectual level.
+ - You know, I think I am faintly spiritual.
+ - You know, this idea of going around the world imposing democracy by growing a middle-class, a trading merchant class that is independent of your faith, is a good notion, but we’re all partially different – it’s no good imposing systems on people that it doesn’t suit.
+ - You have to go where the good writing is.
+ - I think people like to be scared. I think people like tension and suspense in a movie.
+
+36 quotes

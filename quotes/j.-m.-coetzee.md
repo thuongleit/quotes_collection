@@ -1,0 +1,81 @@
+ - When all else fails, philosophize.
+ - The barbarians come out at night.
+ - Perhaps we invented the gods so that we could put the blame on them. They gave us permission to eat flesh. They gave us permission to play with unclean things. It’s not our fault, it’s theirs. We’re just their children.
+ - Become major, Paul. Live like a hero. That’s what the classics teach us. Be a main character. Otherwise what is life for?
+ - We are not by nature cruel.
+ - Perhaps; but I am a difficult person to live with. My difficulty consists in not wanting to live with other people.
+ - I am corrupted to the bone with the beauty of this forsaken world.
+ - The devil is everywhere under the skin of things, searching for a way into the light.
+ - Our lies reveal as much about us as our truths.
+ - Pain is truth; all else is subject to doubt.
+ - We must cultivate, all of us, a certain ignorance, a certain blindness, or society will not be tolerable.
+ - His own opinion, which he does not air, is that the origin of speech lie in song, and the origins of song in the need to fill out with sound the overlarge and rather empty human soul.
+ - A book should be an axe to chop open the frozen sea inside us.
+ - Truth is not spoken in anger. Truth is spoken, if it ever comes to be spoken, in love. The gaze of love is not deluded. It sees what is best in the beloved even when what is best in the beloved finds it hard to emerge into the light.
+ - Reason is simply a vast tautology.
+ - I don’t think we are ready to die, any of us, not without being escorted.
+ - Belief may be no more, in the end, than a source of energy, like a battery which one clips into an idea to make it run.
+ - I speak to the broken halves of all our selves and tell them to embrace, loving the worst in us equally with the best.
+ - I see no marks of Wordsworths style of writing or style of thinking in my own work, yet Wordsworth is a constant presence when I write about human beings and their relations to the natural world.
+ - All creatures come into the world bringing with them the memory of justice.
+ - I want to find a way of speaking to fellow human beings that will be cool rather than heated, philosophical rather than polemical, that will bring enlightenment rather than seeking to divide us into the righteous and the sinners, the saved and the damned, the sheep and the goats.
+ - If there were a better, clearer, shorter way of saying what the fiction says, then why not scrap the fiction?
+ - Once I lived in time as a fish in water, breathing it, drinking it, sustained by it. Now I kill time and time kills me.
+ - Just as we bemoan the passing away of the Great Novel, a great novelist is likely to emerge, perhaps even from Denmark or Switzerland, to prove us wrong.
+ - What is miraculous about the past is that we have succeeded – God knows how – in making thousands and millions of individual human beings, lock well enought into one another to give us what looks like a common past, a shared story.
+ - In order to be cruel we have to close our hearts to the suffering of the other.
+ - Unbelief is a belief.
+ - Long visits don’t make for good friends.
+ - I know somewhat too much; and from this knowledge, once one has been infected, there seems to be no recovering.
+ - Unimaginable perhaps; but the unimaginable is there to be imagined.
+ - Restoration is a skilled profession. You might even call it an art in its own right, except that it is frowned on to be original. First rule of restoration: follow the intention of the artist. Never try to improve on him.
+ - In my experience poetry speaks to you either at first sight or not at all. A flash of revelation and a flash of response. Like lightning. Like falling in love.
+ - Where civilization entailed the corruption of barbarian virtues and the creation of dependent people, I decided, I was opposed to civilization.
+ - Sleep is no longer a healing bath, a recuperation of vital forces, but an oblivion, a nightly brush with annihilation.
+ - Nothing is worse than what we can imagine.
+ - If I, this mortal shell, am going to die, let me at least live on through my creations.
+ - I said to myself, ‘If you don’t sit down to it today, when will you ever sit down to it?’
+ - Deprived of human intercourse, I inevitably overvalue the imagination and expect it to make the mundane glow with an aura of self-transcendence. Yet why these glorious sunsets, I ask myself, if nature does not speak to us with tongues of fire.
+ - There seemed nothing to do but live.
+ - The highest type of intelligence, says Aristotle, manifests itself in an ability to see connections where no one has seen them before, that is, to think analogically.
+ - The spark of true poetry flashes when ideas are juxtaposed that no one has yet thought of bringing together.
+ - Pleasure is hard to come by, but pain is everywhere these days, I must learn to subsist on it.
+ - I must not fall asleep in the middle of my life. Out of the blankness that surrounds me I must pluck the incident after incident after incident whose little explosions keep me going.
+ - It is a world of words that creates a world of things.
+ - I am spoken to not in words, which come to me quaint and veiled, but in signs, in conformations of face and hands, in postures of shoulders and feet, in nuances of tune and tone, in gaps and absences whose grammar has never been recorded.
+ - The most important of all rights is the right to life, and I cannot foresee a day when domesticated animals will be granted that right in law.
+ - Strictly speaking, my interest is not in legal rights for animals but in a change of heart towards animals.
+ - Children all over the world consort quite naturally with animals. They don’t see any dividing line. That is something they have to be taught, just as they have to be taught it is all right to kill and eat them.
+ - Because a women’s beauty does not belong to her alone. It is a part of the bounty she brings into the world. She has a duty to share it.
+ - Words are coin. Words alienate. Language is no medium for desire. Desire is rapture, not exchange.
+ - Should philosophers be expected to change the world? Such an expectation seems to me extravagant. Marx himself didn’t change the world: he reinterpreted it, then other people changed it.
+ - Denunciations of the manipulativeness of advertisers can unfortunately all too easily be turned on their heads into denunciations of the gullibility of consumers. Both are forms of scapegoating, neither accomplishes anything.
+ - As for September 11, let us not too easily grant the Americans possession of that date on the calendar. Like May 1 or July 14 or December 25, September 11 may seem full of significance to some people, while to other people it is just another day.
+ - Temperament is fixed, set. The skull, followed by the temperament: the two hardest parts of the body. Follow your temperament. It is not a philosophy, It is a rule, like the Rule of St Benedict.
+ - The modern state appeals to morality, to religion, and to natural law as the ideological foundation of its existence. At the same time it is prepared to infringe any or all of these in the interest of self-preservation.
+ - It gets harder all the time, Bev Shaw once said. Harder, yet easier. One gets used to things getting harder; one ceases to be surprised that what used to be hard as hard can be grows harder yet.
+ - If it is indeed impossible – or at least very difficult – to inhabit the consciousness of an animal, then in writing about animals there is a temptation to project upon them feelings and thoughts that may belong only to our own human mind and heart.
+ - And anyway, I suspect he secretly liked it when a woman was cold and distant.
+ - But he cannot see a connection between the end of yearning and the end of poetry. Is that what growing up amounts to: growing out of yearning, of passion, of all intensities of the soul?
+ - Censorship is not an occupation that attracts intelligent, subtle minds. Censors can and often have been outwitted. But the game of slipping Aesopian messages past the censor is ultimately a sterile one, diverting writers from their proper task.
+ - He continues to teach because it provides him with a livelihood; also because it teaches him humility, brings it home to him who he is in the world. The irony does not escape him: that the one who comes to teach learns the keenest of lessons, while those who come to learn learn nothing.
+ - The end of confession is to tell the truth to and for oneself.
+ - One day some as yet unborn scholar will recognize in the clock the machine that has tamed the wilds.
+ - For himself, then. For his idea of the world, a world in which men do not use shovels to beat corpses into a more convenient shape for processing.
+ - When we are stirred to lament the loss of the gods, it is more than likely the gods who are doing the stirring.
+ - So it has come, the day of testing. Without warning, without fanfare, it is here, and he is in the middle of it. In his chest his heart hammers so hard that it too, in its dumb way, must know. How will they stand up to the testing, he and his heart?
+ - I am not the we of anyone.
+ - The writers who have the deepest influence on one are those one reads in ones more impressionable, early life, and often it is the more youthful works of those writers that leave the deepest imprint.
+ - Was it serious? I don’t know. It certainly had serious consequences.
+ - The mode of consciousness of nonhuman species is quite different from human consciousness.
+ - The gods, the immortals, were the inventors of death and corruption; yet with one or two notable exceptions they have lacked the courage to try their invention out on themselves.
+ - It is not, then, in the content or substance of folly that its difference from truth lies, but in where it comes from. It comes not from ‘the wise man’s mouth’ but from the mouth of the subject assumed not to know and speak the truth.
+ - That has always seemed to me one of the stranger aspects of literary fame: you prove your competence as a writer and an inventor of stories, and then people clamour for you to make speeches and tell them what you think about the world.
+ - The idea of writer as sage is pretty much dead today. I would certainly feel very uncomfortable in the role.
+ - My response, a dubious and hesitant one, is that it has been and may continue to be, in the time that is left to me, more productive to live out the question than to try to answer it in abstract terms.
+ - I say that I represent this movement because my intellectual allegiances are clearly European, not African.
+ - There are works of literature whose influence is strong but indirect because it is mediated through the whole of the culture rather than immediately through imitation. Wordsworth is the case that comes to mind.
+ - I tend to resist invitations to interpret my own fiction.
+ - Can desire grow out of admiration, or are the two quite distinct species? What would it be like to lie side by side, naked, breast to breast, with a woman one principally admires?
+
+79 quotes

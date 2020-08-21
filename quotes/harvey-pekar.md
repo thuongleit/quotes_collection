@@ -1,0 +1,42 @@
+ - Ordinary life is pretty complex stuff.
+ - You do not pursue potential conflict unless you hold power over your foe.
+ - American Splendor is just an ongoing journal. It’s an ongoing autobiography. I started it when I was in my early 30s, and I just keep going.
+ - Misery loves company. There’s a lot to that.
+ - Comics are words and pictures. You can do anything with words and pictures.
+ - I think you can do anything with comics that you could do in just about any art form.
+ - I don’t think I made any really big mistakes; it’s just that I chose something difficult to do. Looking back, I suppose I should be grateful that I got as far as I got.
+ - It’s the stuff that happens right in front of your face when there’s no routine and everything is unexpected. That’s what I want to write about.
+ - I’m sure someone out there has a workable solution. But what do I know? I make comic books and write about jazz. I do know the difference between right and wrong, though.
+ - I’m a guy that likes to sit in one place.
+ - Am I a guy who writes about himself in a comic book, or am I just a character in that book? If I die, will that character keep going, or will he just fade away?
+ - When you’re dead, it robs life of many of it’s pleasures.
+ - I realize that I’m pretty flawed, but you know – I haven’t killed anybody yet.
+ - I write scripts in storyboard fashion using stick figures, and thought balloons and word balloons and captions. Then I’ll write descriptions of what scenes should look like and turn it over to the artist.
+ - I wanted to write literature that pushed people into their lives rather than helping people escape from them.
+ - I’m doing research for a large comic book on the Beat Generation guys – Allen Ginsberg and Jack Kerouac and those guys.
+ - As a matter of fact, I deliberately look for the mundane, because I feel these stories are ignored. The most influential things that happen to virtually all of us are the things that happen on a daily basis. Not the traumas.
+ - It’s extremely seldom that anybody wants me to change what I’ve written about them. Generally I portray them in a good light, if they’re friends.
+ - People will believe absurd things – in the 19th century and now.
+ - Even a pretty traditional comic book writer can make valuable contributions to the Internet.
+ - I always wanted praise and I always wanted attention; I won’t lie to you. I was a jazz critic and that wasn’t good enough for me. I wanted people to write about me, not me about them. So I thought, What could I do? I can’t sing, I can’t dance, I can’t act or anything like that. OK, I can write.
+ - I think the people who would be the least interested in my work would be people who read lots of comic books.
+ - People who are readers of fiction aren’t particularly interested in comic books.
+ - Im pretty aggressive, and maybe obnoxious, about trying to get work.
+ - I don’t write about certain arguments I have with my wife. I’d get my head torn off if wrote about certain things.
+ - I’ve probably had my day in the sun. I think I’ve influenced a lot of comic book writers.
+ - I met Robert Crumb in 1962; he lived in Cleveland for a while. I took a look at his stuff. Crumb was doing stuff beyond what other writers and artists were doing. It was a step beyond Mad.
+ - I’d been familiar with comics, and I’d collected ’em when I was a kid, but after I got into junior high school, there wasn’t much I was interested in.
+ - I really don’t have a lot in common with the people who attend the Comic Con. It’s like assuming that all people who write prose are the same.
+ - Everybody’s like everybody else, and everybody’s different from everybody else.
+ - I continue to be disappointed that people don’t try and diversify the kind of work they are doing in comics.
+ - It seemed to me you could do anything in comics. So I started doing my thing, which is mainly influenced by novelists, stand-up comedians, that sort of thing.
+ - Since about 1980 Kenny Werner has been one of jazz’s unsung heroes.
+ - I think comics have far more potential than a lot of people realize.
+ - I try and write the way things happen. I don’t try and fulfill people’s wishes.
+ - I think you can find all the elements that you can find in great literature in mundane experiences.
+ - I thought I had a great opportunity when I started doing my comic book in 1972. I thought there was so much territory to work in.
+ - It makes you feel good to know that there’s other people afflicted like you.
+ - I decided I was going to tell these stories. I went around and met Crumb. He was the cartoonist. I started realizing comics weren’t just kid stuff.
+ - It didnt take long to establish myself, as far as people thinking my work was good. They liked it from the start.
+
+40 quotes

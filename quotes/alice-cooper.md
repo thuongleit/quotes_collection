@@ -1,0 +1,135 @@
+ - No more Mr. Nice Guy.
+ - Hey, hey, hey, hey, hey stoopid.
+ - Mistakes are part of the game. It’s how well you recover from them, that’s the mark of a great player.
+ - School’s-out-for-summer!!
+ - Welcome to my nightmare, I think your going to like it.
+ - Please clean your plate dear, the Lord above can see ya. Don’t you know people are starving in Korea.
+ - I’m 18 and I like it!
+ - Is everybody that depressed? It’s a depressing feeling to me. You know: “I lost my baby.” I don’t care if you lost your baby, I care if you’re feeling OK. Don’t tell me your problem – tell me what good’s been happening to you.
+ - Love’s a loaded gun and it shoots to kill.
+ - He lies right at you, you know you hate this game. He slaps you once in a while and you live and love in pain.
+ - The two most joyous times of the year are Christmas morning and the end of school.
+ - The best things in life don’t make sense.
+ - Militant mothers hiding in the basement using pots and pans as their shields and their helmets.
+ - Chained in a cell, got my own private hell. Preacher crucifies me, warden wants to fry me.
+ - Scoring high in procreation, got an A studying female anatomy.
+ - I’m eighteen, and I don’t know what I want.
+ - Why don’t you pass the gun around and give everyone a shot.
+ - I ain’t got a job cause I ain’t got a car, so I’m looking for a girl with a job and a car.
+ - If zipper catches skin, I’ll know I had it out when I should a kept it in.
+ - I always tell people, ‘Everything you’ve heard about Alice Cooper, you can believe maybe 40 percent of it. Everything you’ve ever heard about Keith Moon is true – and you’ve only heard 10 percent of it.’
+ - Reverend Smith, he recognized me and punched me in the nose.
+ - When you touch me there, honey, makes my blood perspire, you got my body flaming like a California fire. Pulsing, pounding, pushing no longer in control, heatwave in my brain, smolder in my soul.
+ - I ain’t no veggie, like my flesh to the bone, alive and licking on your ice cream cone.
+ - We cheated on our math tests, we carved some dirty words on the desk.
+ - If you blink your eyes or go get a Coke, you’ve missed 10 things.
+ - Satan sent her from the bowels of hell, I should have recognized old Jezebel.
+ - Yet I was Marilyn Manson – times 10.
+ - Baby, shut up and let me drink the wine from your fur tea cup.
+ - Freedom to rock, freedom to talk. Freedom, raise your fist and yell.
+ - Just because I cut the heads off dolls doesn’t mean I hate babies, I just hate dolls.
+ - Drinking bear is easy. Trashing your hotel room is easy. But being a Christian, that’s a tough call. That’s rebellion.
+ - Make that money run like honey on your tongue.
+ - If you’re listening to a rock star in order to get your information on who to vote for, you’re a bigger moron than they are.
+ - Nobody and nothing beats The Simpsons. Even after all this time, it’s still the best satire since Monty Python.
+ - Never be late. When you’re late, what you’re saying is that your time is more important than the other person’s time. That’s pretty egotistical.
+ - They should invent some way to tape-record your dreams. I’ve written songs in my dreams that were Beatles songs. Then I’d wake up and they’d be gone.
+ - I just want your body, Sheeba, I don’t want your brains.
+ - Stick a needle in your arm, you bite the dust, you buy the farm.
+ - Every rock’n’roll band I know, guys with long hair and tattoos, plays golf now.
+ - She wears high tech Devo suit, she changed her name to Xerox, she hides quaaludes in her boots.
+ - If you confine it, you’re confining a whole thing. If you make it spontaneous, so that anything can happen, like we don’t want to confine or restrict anything. What we can do, whatever we can let happen, you just let it happen.
+ - All sliced up and sealed tight in baggies. Guess love makes you do funny things.
+ - If you could use your brain like you use your ass...
+ - Take a look at my face, I am the future.
+ - Do you feel your best when your strung out on your morphine and meth?
+ - Johnny Depp already seen how alcohol and drugs can get in the way of a career. And you have to remember one thing: Johnny was a guitar player and a rock-and-roller way before he was an actor. When he came to Los Angeles, he came with his band.
+ - I don’t know, but I’ve been told, the streets of hell are paved with gold.
+ - While friends and lovers mourn your silly grave, I have other uses for you, darling. I love the dead.
+ - I’m not crazy about country-western music. But the lyrics are good. “I’d rather have a bottle in front of me than a frontal lobotomy” is pretty clever.
+ - When you believe in God, you’ve got to believe in the all-powerful God. He’s not just God, He’s the all-powerful God and He has total control over everyone’s life. The Devil, on the other hand, is a real character that’s trying his hardest to tear your life apart.
+ - The boy’s got problems, the boy’s got stress, the boy’s got a .38 hidden in his desk.
+ - Pull my trigger, I get bigger, then I’m lots of fun. I’m your gun, I’m your gun, gun, gun.
+ - You know it’s always funny – the more legend awards you get, the closer you get to the grave, I guess, i am going full strength right now so it’s great to get these while you’re alive, I’d hate to get them after you’re dead.
+ - Slade was the coolest band in England. They were the kind of guys that would push your car out of a ditch.
+ - I liked Jim Morrison a lot as a person. He was this very poetic character, and death was always on his mind. And it showed up in his songs – I mean, almost every song he wrote had something to do with dying. He was an American treasure that went way too soon.
+ - Every single night, it seemed to be the same seven or eight guys: Harry Nilsson, myself, Mickey Dolenz, Bernie Taupin, Keith Moon when he was in town. It was actually sort of a social club, drinking club, for rock stars that drank – seriously drank.
+ - I was one thing at one time, and I’m something new. I’m a new creature now. Don’t judge Alice by what he used to be. Praise God for what I am now.
+ - The only real person you need to know is you.
+ - The hippies wanted peace and love. We wanted Ferraris, blondes and switchblades.
+ - Throughout my life, there are four people I’ve met who were truly original people. The other three were Groucho Marx, Jim Morrison, and Pablo Picasso.
+ - Rock should never be in bed with politics.
+ - Nurse Rozetta, I won’t let her catch me peering down her sweeter.
+ - School’s out forever, school’s been blown to pieces.
+ - Don’t always know what I am talking about, feels like I’m living in the middle of doubt.
+ - I’m very romantic, I’m extremely romantic. I date my wife.
+ - It’s not like we did something wrong. We just burned down the church while the choir within sang religious songs.
+ - We like reactions – a reaction is walking out on us, a reaction is throwing tomatoes at the stage, that’s a healthy psychological reaction.
+ - I have never made fun of religion. Religion is something I don’t even want to mess with, because I am really afraid of the clouds opening up and my being struck by lightning.
+ - He thinks about his teacher in his literary class, he’s staring at her legs.
+ - Old enough to be drafted but not old enough to vote.
+ - I haven’t had an alcoholic drink in 22 years, but when I did drink I’d go for either Canadian whisky or Budweiser. Sometimes both. For a long time I used to think “Hey you, get off the floor!” was my name.
+ - My fastest time in high school was a 4:29 mile. I think cross-country has something to do with my longevity in my business. When you’re in an eight-mile race, you never give up.
+ - I’m your top prime cut of meat, I’m your choice, I wanna be elected.
+ - Women on the streets want money when we meet. I take them for a little ride, chop, chop, chop.
+ - We can only take it so far, because man can only take it so far, lower self can only take it so far, and you have to realize that the public is only at a certain place.
+ - That’s like making fun of a maniac because his brain isn’t completely right, because he isn’t in the norm.
+ - I can’t get my wrists to bleed, just don’t know why suicide appeals to me.
+ - If I spray it on the seat, lady gonna tie a big knot in the meat.
+ - To me, if you are in the same building with Peter Sellers or John Cleese, or any of those guys and holding your own making other people laugh, that’s a compliment.
+ - There’s a little Spinal Tap in all of us.
+ - Why be boring? Have some fun. Rock shows should be like movies: I don’t go to a movie hoping it’ll change my life.
+ - If it’s total freedom, I guess the ultimate thing you can go into is total silence between the audience and performer, with the performer projecting something he doesn’t even have to play.
+ - My ultimate goal will be my being told in a Penthouse letter that I can frame.
+ - Give me lace and whiskey, Mama’s own remedy.
+ - We play it differently now. If we did the album now it would be different.
+ - The late sixties and early seventies were kind of a breeding ground for exciting new sounds because easy listening and folk were kind of taking over the airwaves. I think it was a natural next step to take that blissful, easy-going sound and strangle the life out of it.
+ - I always think that you should be striving to write your best song.
+ - Golf is the crack of sports. If you hit five good shots, you know you can hit six good shots. The next time you hit six good shots, you know you can hit seven.
+ - That was very close to getting killed. Usually at pop festivals we have people jumping on stage.
+ - It’s a compliment to me to hear you screaming.
+ - Why are we rock stars? Because we’re morons. We sleep all day, we play music at night and very rarely do we sit around reading the Washington Journal.
+ - She’s cool in bed, as she ought to be, cuz Ethyl’s dead.
+ - It’s Frank’s painting on the cover. We were originally going to use a Salvador Dali painting that we got permission from Salvador Dali to use, and Frank found this one, and it really did fit the music much more.
+ - I’ll take you to the deepest, darkest, hottest lover’s lane for a little spark in the dark.
+ - I can’t go to school, cause I don’t have a gun. I ain’t got a gun, cause I ain’t got a job. I ain’t got a job, cause I can’t go to school.
+ - I appreciate an audience that reacts to the music, even if they jump on stage and try to beat us up, I think that’s a fantastic reaction. I think that they’re really hearing something then.
+ - It used to be said: As GM goes, so goes America. Now it’s: As Starbucks goes, so goes America.
+ - You ain’t no Hepburn and I ain’t no Fonda, but if you were drowning in Golden Ponda, mouth to mouth I’d resuscitate you.
+ - People that haven’t seen us yet are shocked because they think that Alice Cooper must be a female folksinger. They don’t expect the whole thing.
+ - You just let your lower self go, and then it takes on all these aspects of the society – the city with horns blowing, the people yelling things at each other, and the all-in-all violence and chaos of the city. Put that on stage with music, and that’s what this is.
+ - When we get together and rehearse, which is always living with each other, we always talk about what would make it better, what would mean more, what would say more. So we’re always improving and growing.
+ - Besides, when I read the list of people who are supporting Kerry, if I wasn’t already a Bush supporter, I would have immediately switched. Linda Ronstadt? Don Henley? Geez, that’s a good reason right there to vote for Bush.
+ - She gets a hundred for her body and a nickel for her soul.
+ - It just seemed that we always ended up at the Rainbow, to the point where they finally just said, ‘Why don’t you guys go up into this loft, where we’ll kind of protect people from coming around and sitting on the tables.’ And we thought that was a great idea.
+ - It’s a big flash of all these things and whatever you take out of that statement’s one statement, one mind, one statement, one act, one show, and all the songs are one.
+ - We try to be as much involved in our product as possible, because then it’s us.
+ - From the moment I leave my house or my hotel room, the public owns me. The public made Alice Cooper and I can’t imagine ever turning my back on my fans.
+ - If you were to say to me that you needed a romantic and sentimental song in four hours, I would have that song written in four hours.
+ - We wanted it more live and raw. We didn’t want a studio sound.
+ - The minute you step onstage, you get eight feet taller.
+ - Some maniac butcher is trying to hack away your balls.
+ - Two of the guys that were honorary Vampires – Jim Morrison and Jimi Hendrix – had died at 27. And they were certainly archangels in our group.
+ - You can’t get the visual thing on the record as much as you’d like to. We produced this album, and we’d never done that before, except when we produced singles for ourselves.
+ - I wanna be in the headlines, anything to be in the headlines.
+ - And if I am elected, I promise the formation of a new party, a third party, a wild party.
+ - So what this is is us, our personalities refined down on to a stage performance. In other words, the way we play is the end product of the way we live – we live in the cities, you see.
+ - We got on his label, and the Bizarre organization is just going up and up. So we have faith.
+ - God gives you a life and says, Okay, what are you going to do with it?
+ - I got a muscle of love.
+ - They say that golf isn’t a contact sport. Not the way that we play it.
+ - I came into this life, looked all around. I saw just what I liked and took what I found.
+ - She didn’t know that there was more of me, she’d have to learn to love all four of me.
+ - I don’t think you can shock an audience anymore. Me cutting my head off is a great illusion, but when you turn on CNN and there’s a guy really getting his head cut off, it does dilute what I did.
+ - I’m hidden in the scream when the virgin dies, I’m the ache in the belly when your baby cries, and I’m the burning sensation when the convict fries.
+ - If you get earaches, I’d turn my volume down a notch or two for you. Cause I will do anything for you.
+ - Oh, I love to lie. That’s one of my favorite things in the world, coming up to somebody, especially press people, and telling them some enormous lie that couldn’t possibly be true.
+ - There was a period of time when I thought I had to be Alice Cooper all the time.
+ - Every good band in the world was a cover band first. The Beatles were and the Stones were. Everybody was a cover band.
+ - Everybody was at the top of their game at that point, in the early ’70s.
+ - I read Dad’s books like I did before, now things are crystal clear. Lock the door in the bathroom, now I just can’t get caught in here.
+ - It’s like this – these five members have been influenced of course by other groups, because that’s where this generation’s groups came from – an environment like the Beatles, the Rolling Stones, the Yardbirds, and The Who. People like that.
+ - We just set it up and recorded it the way we played it. But that was the way we played it then.
+ - The sicker our fans get, the sicker we’ll get.
+
+133 quotes

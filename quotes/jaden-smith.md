@@ -1,0 +1,25 @@
+ - How can mirrors be real if our eyes aren’t real?
+ - All The Rules In This World Were Made By Someone No Smarter Than You. So Make Your Own.
+ - I watch like, Steve Jobs interviews, I don’t really watch TV. I stopped watching TV when I turned like ten because my parents were like, ‘TV’s really bad for you.’
+ - I Should Just Stop Tweeting, The Human Consciousness Must Raise Before I Speak My Juvenile Philosophy.
+ - People tell me to smile, I tell them the lack of emotion on my face doesn’t mean I’m unhappy.
+ - When you think about an apple, you also think about the opposite of an apple.
+ - You can be a pharaoh. Like, a pharaoh means, that which you will become.
+ - If Newborn Babies Could Speak They Would Be The Most Intelligent Beings On Planet Earth.
+ - The melancholiness of the ocean; the melancholiness of everything else.
+ - When you live your whole life in a prison freedom can be so dull.
+ - I’m going to imprint myself on everything in this world.
+ - Anything that you can shock somebody with. The only way to change something is to shock it. If you want your muscles to grow, you have to shock them. If you want society to change, you have to shock them.
+ - So when one thought goes into your mind, it’s not just one thought, it has to bounce off both hemispheres of the brain. When you’re thinking about something happy, you’re thinking about something sad. When you think about an apple, you also think about the opposite of an apple.
+ - People say be safe and I hate that, so I go to Skate Lab with no pads.
+ - I want to be the most durable person on the planet.
+ - I have a goal to be just the most craziest person of all time. And when I say craziest, I mean, like, I want to do like Olympic-level things. I want to be the most durable person on the planet.
+ - I used to not be really honest with girls and then I dropped a song called Starry Room and then I started turning over a new leaf.
+ - On working with his father in Pursuit of Happyness: It was fun having that experience with my dad ’cause he really taught me a lot of the stuff that he knows. Almost everything he knows about acting in that one movie.
+ - Here’s the deal: School is not authentic because it ends. It’s not true, it’s not real. Our learning will never end.
+ - I’ll watch movies I like to see, Steve Jobs interviews, something that’s going to make me smart and then go to sleep.
+ - And when I say craziest, I mean, like, I want to do like Olympic-level things.
+ - You never learn anything in school. Think about how many car accidents happen every day. Driver’s ed? What’s up? I still haven’t been to driver’s ed because if everybody I know has been in an accident, I can’t see how driver’s ed is really helping them out.
+ - Kids who go to normal school are so teenagery, so angsty.
+
+23 quotes

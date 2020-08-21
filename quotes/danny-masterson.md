@@ -1,0 +1,24 @@
+ - I love the DJ scene out in the clubs. It is a great way to party and make people happy, the atmosphere is one that I use as an escape from reality.
+ - Although I respect the Judeo-Christian ethic, as well as the Eastern philosophies, and of course the teachings of Muhammad, I find that organized religion has corrupted those beliefs to justify countless atrocities throughout the ages. Were I to go to church, I’d be a hypocrite.
+ - I really like fashion, but I’m not a fashionista by any means.
+ - Before I finished another level of Scientology auditing, I had a very hard time with being wrong and I always had to have my own way – and not in a good sense. After auditing, I was able to have my thoughts, communicate them and not have to be right all the time.
+ - Unless something real cool comes along, I will probably be doing features, so long as I can make a living doing that. Otherwise, I will do another show.
+ - I am really into ’70s music, like The Rolling Stones, The Doors and what not.
+ - I have to say that one of the most important things Scientology has given me is the ability to keep my integrity together. I understand how people can get into unethical situations, and Scientology has always helped me keep my head clear and be in present time.
+ - I have done about 15 movies so far and am on my 5th season on That ’70s Show.
+ - Plenty of people are raised Catholic and then aren’t Catholic anymore, like any religion.
+ - I was modeling since I was four and acting in commercials since I was five.
+ - Spin-offs were never really my thing.
+ - I know people who do a lot of drugs, and they keep thinking about things from the past and things ahead. But they’re not living right here and now.
+ - My job is summer camp. I come and talk and try to make a TV show funny.
+ - If I could make millions of dollars being a softball player, I would quit acting in a second.
+ - I’d rather do movies ’cause I am better at movies, but I do shows ’cause the opportunities have come forward.
+ - I am a hip-hop fanatic, and rock fanatic.
+ - When I was 15, my parents left town for a month. They hid the keys to the car, but I found them...
+ - See, my strumpf is in my hair. Now, I don’t know what strumpf means. It’s just a term some brothas gave me.
+ - I generally will answer any question about anything.
+ - Sometimes I wonder if I would’ve been more successful if I wasn’t acting and I concentrated on other things. But I love being on set. I love working with my 100 crew members.
+ - When I was 15, my parents left town for a month. They hid the keys to the car, but I found them. That month, I drove my stepdad’s Thunderbird Super Coupe into Manhattan every day, and I would crank Cypress Hill as I flew around the city, racing the taxis.
+ - When you have another actor as your boss, they understand how to communicate easier sometimes than just a writer.
+
+22 quotes

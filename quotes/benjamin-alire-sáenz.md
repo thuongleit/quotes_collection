@@ -1,0 +1,34 @@
+ - If you can quit for a day, you can quit for a lifetime.
+ - To be careful with people and with words was a rare and beautiful thing.
+ - Words were different when they lived inside of you.
+ - Another secret of the universe: Sometimes pain was like a storm that came out of nowhere. The clearest summer could end in a downpour. Could end in lightning and thunder.
+ - The summer sun was not meant for boys like me. Boys like me belonged to the rain.
+ - We all fight our own private wars.
+ - Mostly, I think people are fake. Well, what do you expect? The fake world we live in conspires to make us all fakes.
+ - And it seemed to me that Dante’s face was a map of the world. A world without any darkness. Wow, a world without darkness. How beautiful was that?
+ - I bet you could sometimes find all the mysteries of the universe in someone’s hand.
+ - How could I have ever been ashamed of loving Dante Quintana?
+ - But love was always something heavy for me. Something I had to carry.
+ - I wondered if my smile was as big as hers. Maybe as big. But not as beautiful.
+ - I had learned to hide what I felt. No, that’s not true. There was no learning involved. I had been born knowing how to hide what I felt.
+ - I got to thinking that poems were like people. Some people you got right off the bat. Some people you just didn’t get – and never would get.
+ - I don’t like remembering. Remembering makes me feel things. I don’t like to feel things. I’m thinking I could spend the rest of my life becoming an expert at forgetting.
+ - Sometimes, all you have to do is tell people the truth. They won’t believe you. After that, they’ll leave you alone.
+ - The heart can get really cold if all you’ve known is winter.
+ - Why do we smile? Why do we laugh? Why do we feel alone? Why are we sad and confused? Why do we read poetry? Why do we cry when we see a painting? Why is there a riot in the heart when we love? Why do we feel shame? What is that thing in the pit of your stomach called desire?
+ - I didn’t think it was my job to accept what everyone said I was and who I should be.
+ - I had a feeling there was something wrong with me. I guess I was a mystery even to myself.
+ - I hated being volunteered. The problem with my life was that it was someone else’s idea.
+ - Water was something he loved, something he respected. He understood its beauty and its dangers. He talked about swimming as if it were a way of life.
+ - I have always felt terrible inside. The reasons for this keep changing.
+ - I had a rule that it was better to be bored by yourself than to be bored with someone else. I pretty much lived by that rule. Maybe that’s why I didn’t have any friends.
+ - I wondered about the science of storms and how sometimes it seemed that a storm wanted to break the world and how the world refused to break.
+ - Why did I have to be a good boy just because I had a bad-boy brother? I hated the way my mom and dad did family math.
+ - And why was it that some guys had tears in them and some had no tears at all? Different boys lived by different rules.
+ - It was good to laugh. I wanted to laugh and laugh and laugh until I laughed myself into becoming someone else.
+ - It felt like there was a whole world living inside her. I didn’t know anything about that world.
+ - I didn’t understand how you could live in a mean world and not have any of that meanness rub off on you. How could a guy live without meanness?
+ - You are thirst and thirst is all I know.
+ - If you want to be a writer, you don’t want to live in a comfortable place.
+
+32 quotes

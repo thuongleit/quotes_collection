@@ -1,0 +1,502 @@
+ - Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.
+ - You have power over your mind, not outside events. Realize this, and you will find strength.
+ - The happiness of your life depends upon the quality of your thoughts.
+ - What we do now echoes in eternity.
+ - When you arise in the morning think of what a privilege it is to be alive, to think, to enjoy, to love.
+ - Death smiles at us all, all a man can do is smile back.
+ - Waste no more time arguing about what a good man should be. Be one.
+ - The impediment to action advances action. What stands in the way becomes the way.
+ - Our life is what our thoughts make it.
+ - It is not death that a man should fear, but he should fear never beginning to live.
+ - A man’s worth is no greater than the worth of his ambitions.
+ - Very little is needed to make a happy life; it is all within yourself, in your way of thinking.
+ - If it is not right do not do it. If it is not true do not say it.
+ - Dwell on the beauty of life. Watch the stars, and see yourself running with them.
+ - Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present.
+ - The object of life is not to be on the side of the majority, but to escape finding oneself in the ranks of the insane.
+ - The best revenge is to be unlike him who performed the injury.
+ - The soul becomes dyed with the colour of its thoughts.
+ - Reject your sense of injury and the injury itself disappears.
+ - Receive without conceit, release without struggle.
+ - Confine yourself to the present.
+ - Be tolerant with others and strict with yourself.
+ - If you are distressed by anything external, the pain is not due to the thing itself, but to your estimate of it; and this you have the power to revoke at any moment.
+ - Accept the things to which fate binds you, and love the people with whom fate brings you together, but do so with all your heart.
+ - Life is neither good or evil, but only a place for good and evil.
+ - Objective judgement, now, at this very moment. Unselfish action, now, at this very moment. Willing acceptance – now, at this very moment – of all external events. That’s all you need.
+ - Most of what we say and do is not essential. If you can eliminate it, you’ll have more time, and more tranquillity. Ask yourself at every moment, ‘Is this necessary?’
+ - Whenever you are about to find fault with someone, ask yourself the following question: What fault of mine most nearly resembles the one I am about to criticize?
+ - It is the responsibility of leadership to work intelligently with what is given, and not waste time fantasizing about a world of flawless people and perfect choices.
+ - It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinions than our own.
+ - The memory of everything is very soon overwhelmed in time.
+ - If someone can prove me wrong and show me my mistake in any thought or action, I shall gladly change. I seek the truth, which never harmed anyone: the harm is to persist in one’s own self-deception and ignorance.
+ - You always own the option of having no opinion. There is never any need to get worked up or to trouble your soul about things you can’t control. These things are not asking to be judged by you. Leave them alone.
+ - He who lives in harmony with himself lives in harmony with the universe.
+ - Choose not to be harmed and you won’t feel harmed. Don’t feel harmed and you haven’t been.
+ - For it is in your power to retire into yourself whenever you choose.
+ - What doesn’t transmit light creates its own darkness.
+ - The first rule is to keep an untroubled spirit. The second is to look things in the face and know them for what they are.
+ - Whoever values peace of mind and the health of the soul will live the best of all possible lives.
+ - Think of what you have rather than of what you lack. Of the things you have, select the best and then reflect how eagerly you would have sought them if you did not have them.
+ - I’m going to be meeting with people today who talk too much – people who are selfish, egotistical, ungrateful. But I won’t be surprised or disturbed, for I can’t imagine a world without such people.
+ - Each day provides its own gifts.
+ - Death and life, success and failure, pain and pleasure, wealth and poverty, all these happen to good and bad alike, and they are neither noble nor shameful – and hence neither good nor bad.
+ - Nothing happens to anybody which he is not fitted by nature to bear.
+ - Do not act as if you had a thousand years to live.
+ - Do not think that what is hard for you to master is humanly impossible; but if a thing is humanly possible, consider it to be within your reach.
+ - Do not act as if you were going to live ten thousand years. Death hangs over you. While you live, while it is in your power, be good.
+ - Loss is nothing else but change, and change is Nature’s delight.
+ - It’s time you realized that you have something in you more powerful and miraculous than the things that affect you and make you dance like a puppet.
+ - To the wise, life is a problem; to the fool, a solution.
+ - Discard everything except these few truths: we can live only in the present moment, in this brief now; all the rest of our life is dead and buried or shrouded in uncertainty. Short is the life we lead, and small our patch of earth.
+ - In the morning when thou risest unwillingly, let this thought be present – I am rising to the work of a human being. Why then am I dissatisfied if I am going to do the things for which I exist and for which I was brought into the world?
+ - The art of living is more like wrestling than dancing.
+ - When force of circumstance upsets your equanimity lose no time in recovering your self-control, and do not remain out of tune longer than you can help. Habitual recurrence to the harmony will increase your mastery of it.
+ - It is in your power to withdraw yourself whenever you desire. Perfect tranquility within consists in the good ordering of the mind, the realm of your own.
+ - The blazing fire makes flames and brightness out of everything thrown into it.
+ - To refrain from imitation is the best revenge.
+ - Your task is to stand straight; not to be held straight.
+ - A little flesh, a little breath, and a Reason to rule all – that is myself.
+ - Regain your senses, call yourself back, and once again wake up. Now that you realize that only dreams were troubling you, view this ‘reality’ as you view your dreams.
+ - He who pays no attention to what his neighbor does, says or thinks, preferring to concentrate on making his own actions appropriate and justifiable, better uses his time.
+ - No one was ever injured by the truth; but he who persists in self-deception and ignorance is injured.
+ - A man must stand erect, not be kept erect by others.
+ - Look well into thyself; there is a source of strength which will always spring up if thou wilt always look.
+ - Find joy in simplicity, self-respect, and indifference to what lies between virtue and vice. Love the human race. Follow the divine.
+ - Humans have come into being for the sake of each other, so either teach them, or learn to bear them.
+ - Your manners will depend very much upon the quality of what you frequently think on; for the soul is as it were tinged with the colour and complexion of thought.
+ - Whatever may happen to you was prepared for you from all eternity; and the implication of causes was from eternity spinning the thread of your being.
+ - Be content to seem what you really are.
+ - Accept whatever comes to you woven in the pattern of your destiny, for what could more aptly fit your needs?
+ - You are a little soul carrying about a corpse, as Epictetus used to say.
+ - Never value anything as profitable to thyself which shall compel thee to break thy promise, to lose thy self-respect, to hate any man, to suspect, to curse, to act the hypocrite, to desire anything which needs walls and curtains.
+ - Take the shortest route. The one that nature planned – to speak and act in the healthiest way. Do that, and be free of pain and stress, free of all calculations and pretension.
+ - Treat with utmost respect your power of forming opinions, for this power alone guards you against making assumptions that are contrary to nature and judgments that overthrow the rule of reason.
+ - We are born for cooperation.
+ - Whatever anyone does or says, I must be emerald and keep my colour.
+ - When jarred, unavoidably, by circumstance revert at once to yourself and don’t lose the rhythm more than you can help. You’ll have a better grasp of harmony if you keep going back to it.
+ - Spend your brief moment according to nature’s law, and serenely greet the journey’s end as an olive falls when it is ripe, blessing the branch that bare it, and giving thanks to the tree that gave it life.
+ - Body. Soul. Mind. Sensations: the body. Desires: the soul. Reasoning: the mind.
+ - Were you to live three thousand years, or even thirty thousand, remember that the sole life which a man can lose is that which he is living at the moment; and furthermore, that he can have no other life except the one he loses...
+ - Time is a sort of river of passing events, and strong is its current; no sooner is a thing brought to sight than it is swept by and another takes its place, and this too will be swept away.
+ - One universe made up all that is; and one God in it all, and one principle of being, and one law, the reason shared by all thinking creatures, and one truth.
+ - The perfection of moral character consists in this, in passing every day as the last, and in being neither violently excited nor torpid nor playing the hypocrite.
+ - Look to nothing, not even for a moment except to reason.
+ - And in the case of superior things like stars, we discover a kind of unity in separation. The higher we rise on the scale of being, the easier it is to discern a connection even among things separated by vast distances.
+ - I will march on in the path of nature till my legs sink under me, and then I shall be at rest, and expire into that air which has given me my daily breath.
+ - Perhaps there are none more lazy, or more truly ignorant, than your everlasting readers.
+ - Yet living and dying, honour and dishonour, pain and pleasure, riches and poverty, and so forth are equally the lot of good men and bad. Things like these neither elevate nor degrade; and therefore they are no more good than they are evil.
+ - How powerful is man! He is able to do all that God wishes him to do. He is able to accept all that God sends upon him.
+ - We ought to do good to others as simply as a horse runs, or a bee makes honey, or a vine bears grapes season after season without thinking of the grapes it has borne.
+ - If any man can convince me and bring home to me that which I do not think or act aright, gladly will I change; for I search after truth, by which man never yet was harmed. But he is harmed who abideth on still in his deception and ignorance.
+ - The universal order and the personal order are nothing but different expressions and manifestations of a common underlying principle.
+ - Flinch not, neither give up nor despair, if the achieving of every act in accordance with right principle is not always continuous with thee.
+ - The soul is dyed by the thoughts. Dye it then, with a continuous series of such thoughts as these – that where a man can live, there – if he will – he can also live well.
+ - Remind oneself continually of one of those who practiced virtue in days gone by.
+ - Deem not life a thing of consequence. For look at the yawning void of the future, and at that other limitless space, the past.
+ - Pray look upon the plants and birds, the ants, spiders, and bees, and you will see them all exerting their nature, and busy in their station. Pray, shall not a man act like a man?
+ - Short-lived are both the praiser and the praised, and rememberer and the remembered: and all this in a nook of this part of the world; and not even here do all agree, no, not any one with himself: and the whole earth too is a point.
+ - Direct thy attention to what is said. Let thy understanding enter into the things that are doing and the things which do them.
+ - Nature in no case cometh short of art, for the arts are copiers of natural forms.
+ - The body of an actor can be either his best friend or his worst enemy.
+ - Think of yourself as dead. You have lived your life. Now, take what’s left and live it properly. What doesn’t transmit light creates its own darkness.
+ - The secret of all victory lies in the organization of the non-obvious.
+ - Live your life as if you are ready to say goodbye to it at any moment, as if the time left for you were some pleasant surprise.
+ - The happiness of those who want to be popular depends on others; the happiness of those who seek pleasure fluctuates with moods outside their control; but the happiness of the wise grows out of their own free acts.
+ - I have often wondered how it is that every man loves himself more than all the rest of men, but yet sets less value on his own opinions of himself than on the opinions of others.
+ - Your days are numbered. Use them to throw open the windows of your soul to the sun. If you do not, the sun will soon set, and you with it.
+ - Do every act of your life as if it were your last.
+ - The things you think about determine the quality of your mind. Your soul takes on the color of your thoughts.
+ - If unwilling to rise in the morning, say to thyself, ‘I awake to do the work of a man.’
+ - Your mind will be like its habitual thoughts; for the soul becomes dyed with the color of its thoughts. Soak it then in such trains of thoughts as, for example: Where life is possible at all, a right life is possible.
+ - Remember that very little is needed to make a happy life.
+ - The happiness of your life depends upon the quality of your thoughts: therefore, guard accordingly, and take care that you entertain no notions unsuitable to virtue and reasonable nature.
+ - My true Self is free. I cannot be contained.
+ - How much more grievous are the consequences of anger than the causes of it.
+ - Ambition means tying your well-being to what other people say or do. Self-indulgence means tying it to the things that happen to you. Sanity means tying it to your own actions.
+ - Begin – to begin is half the work, let half still remain; again begin this, and thou wilt have finished.
+ - Do not be wise in words – be wise in deeds.
+ - Be like the cliff against which the waves continually break; but it stands firm and tames the fury of the water around it.
+ - It is not the body, nor the personality that is the true self. The true self is eternal. Even on the point of death we can say to ourselves, “my true self is free. I cannot be contained.”
+ - Nowhere can man find a quieter or more untroubled retreat than in his own soul.
+ - When another blames you or hates you, or people voice similar criticisms, go to their souls, penetrate inside and see what sort of people they are. You will realize that there is no need to be racked with anxiety that they should hold any particular opinion about you.
+ - A man’s true delight is to do the things he was made for.
+ - Nothing has such power to broaden the mind as the ability to investigate systematically and truly all that comes under thy observation in life.
+ - Let not your mind run on what you lack as much as on what you have already.
+ - Everything that happens happens as it should, and if you observe carefully, you will find this to be so.
+ - That which is not good for the bee-hive cannot be good for the bees.
+ - For any particular thing, ask: What is it in itself? What is its nature?
+ - Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
+ - Everything is interwoven, and the web is holy; none of its parts are unconnected. They are composed harmoniously, and together – they compose the world.
+ - Soon you will have forgotten the world, and soon the world will have forgotten you.
+ - Do not indulge in dreams of having what you have not, but reckon up the chief of the blessings you do possess, and then thankfully remember how you would crave for them if they were not yours.
+ - There was a dream that was Rome. You could only whisper it. Anything more than a whisper and it would vanish, it was so fragile.
+ - It’s silly to try to escape other people’s faults. They are inescapable. Just try to escape your own.
+ - It’s normal to feel pain in your hands and feet, if you’re using your feet as feet and your hands as hands. And for a human being to feel stress is normal – if he’s living a normal life. And if it’s normal, how can it be bad?
+ - All things fade and quickly turn to myth.
+ - Whoever does wrong, wrongs himself; whoever does injustice, does it to himself, making himself evil.
+ - Receive wealth or prosperity without arrogance; and be ready to let it go.
+ - Because a thing seems difficult for you, do not think it impossible for anyone to accomplish.
+ - Be like the rocky headland on which the waves constantly break. It stands firm, and round it the seething waters are laid to rest.
+ - You don’t have to turn this into something. It doesn’t have to upset you. Things can’t shape our decisions by themselves.
+ - When pain is unbearable it destroys us; when it does not it is bearable.
+ - The cucumber is bitter? Then throw it out. There are brambles in the path? Then go around. That’s all you need to know.
+ - You have to assemble your life yourself – action by action.
+ - The intelligence of the universe is social.
+ - Look to the essence of a thing, whether it be a point of doctrine, of practice, or of interpretation.
+ - Stop whatever you’re doing for a moment and ask yourself: Am I afraid of death because I won’t be able to do this anymore?
+ - In reading and writing, you cannot lay down rules until you have learnt to obey them. Much more so in life.
+ - Everything is in a state of metamorphosis. Thou thyself art in everlasting change and in corruption to correspond; so is the whole universe.
+ - Why should we feel anger at the world? As if the world would notice?
+ - The only thing that isn’t worthless: to live this life out truthfully and rightly, And be patience with those who don’t.
+ - If you do everything as if it were the last thing you were doing in your life, and stop being aimless, stop letting your emotions override what your mind tells you, stop being hypocritical, self-centered, irritable.
+ - The time is at hand when you will have forgotten everything; and the time is at hand when all will have forgotten you. Always reflect that soon you will be no one, and nowhere.
+ - Never esteem anything as of advantage to you that will make you break your word or lose your self-respect.
+ - Alexander the Great and his mule driver both died and the same thing happened to both.
+ - Does the light of the lamp shine without losing its splendour until it is extinguished; and shall the truth which is in thee and justice and temperance be extinguished before thy death?
+ - Misfortune nobly born is good fortune.
+ - We are born for synergy, just like the feet, just like the hands, just like the eyes, just like the rows of upper and lower teeth. Working against each other is unnatural, and being annoyed and turning one’s back is counterproductive.
+ - External things are not the problem. It’s your assessment of them. Which you can erase right now.
+ - Poverty is the mother of crime.
+ - Pass then through this little space of time conformably to nature, and end thy journey in content, just as an olive falls off when it is ripe, blessing nature who produced it, and thanking the tree on which it grew.
+ - The world is a living being – one nature, one soul. Keep that in mind.
+ - In the morning, when you are sluggish about getting up, let this thought be present: ‘I am rising to a man’s work.’
+ - Live out your life in truth and justice, tolerant of those who are neither true nor just.
+ - Leave other people’s mistakes where they lie.
+ - This is moral perfection: to live each day as though it were the last; to be tranquil, sincere, yet not indifferent to one’s fate.
+ - Don’t let your imagination be crushed by life as a whole.
+ - Anger cannot be dishonest.
+ - Every living organism is fulfilled when it follows the right path for its own nature.
+ - Love the people with whom fate brings you together.
+ - Your time has a limit set to it. Use it, then, to advance your enlightenment; or it will be gone, and never in your power again.
+ - We are born for cooperation, as are the feet, the hands, the eyelids, and the upper and lower jaws.
+ - The opinion of 10,000 men is of no value if none of them know anything about the subject.
+ - The only wealth which you will keep forever is the wealth you have given away.
+ - Everything harmonizes with me, which is harmonious to thee, o Universe. Nothing for me is too early or too late, which is in due time for thee.
+ - Don’t be ashamed to need help. Like a soldier storming a wall, you have a mission to accomplish. And if you’ve been wounded and you need a comrade to pull you up? So what?
+ - If you are pained by any external thing, it is not this that disturbs you, but your own judgment about it.
+ - Here is the rule to remember in the future, When anything tempts you to be bitter: not, ‘This is a misfortune’ but ‘To bear this worthily is good fortune.’
+ - Let men see, let them know, a real man, who lives as he was meant to live.
+ - The universe is in change, life is an opinion.
+ - If it’s in your control, why do you do it? If it’s in someone else’s control, then who are you blaming? Atoms? The gods? Stupid either way. Blame no one. Set people straight, if you can. If not, just repair the damage.
+ - Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig.
+ - Do not expect Plato’s ideal republic; be satisfied with even the smallest step forward, and consider this no small achievement.
+ - The true worth of a man is to be measured by the objects he pursues.
+ - Observe always that everything is the result of change, and get used to thinking that there is nothing Nature loves so well as to change existing forms and make new ones like them.
+ - Remember that man lives only in the present, in this fleeting instant; all the rest of his life is either past and gone, or not yet revealed.
+ - Past and future have no power over you. Just the present – and even that can be minimized.
+ - Death, like birth, is a secret of Nature.
+ - The act of dying is one of the acts of life.
+ - No matter what anyone says or does, my task is to be emerald, my color undiminished.
+ - Despise not death, but welcome it, for nature wills it like all else.
+ - A man should be upright, not be kept upright.
+ - Our anger and annoyance are more detrimental to us than the things themselves which anger or annoy us.
+ - Take me and cast me where you will; I shall still be possessor of the divinity within me, serene and content.
+ - Adapt yourself to the things among which your lot has been cast and love sincerely the fellow creatures with whom destiny has ordained that you shall live.
+ - Take it that you have died today, and your life’s story is ended; and henceforward regard what future time may be given you as uncovenanted surplus, and live it out in harmony with nature.
+ - There is a limit circumscribed to your time – if you do not use it to clear away your clouds, it will be gone, and you will be gone, and the opportunity will not return.
+ - Just as nature takes every obstacle, every impediment, and works around it – turns it to its purposes, incorporates it into itself, so, too, a rational being can turn each setback into raw material and use it to achieve its goal.
+ - Observe the movements of the stars as if you were running their courses with them, and let your mind constantly dwell on the changes of the elements into each other. Such imaginings wash away the filth of life on the ground.
+ - At day’s first light have in readiness, against disinclination to leave your bed, the thought that “I am rising for the work of man.”
+ - Anything in any way beautiful derives its beauty from itself and asks nothing beyond itself. Praise is no part of it, for nothing is made worse or better by praise.
+ - Understand however that every man is worth just so much as the things are worth about which he busies himself.
+ - The stone that is thrown into the air is none the worse for falling down, and none the better for going up.
+ - Bear in mind that the measure of a man is the worth of the things he cares about.
+ - In the meantime, cling tooth and nail to the following rule: not to give in to adversity, not to trust prosperity, and always take full note of fortune’s habit of behaving just as she pleases.
+ - A good man does not spy around for the black spots in others, but presses unswervingly on towards his mark.
+ - The art of living is more like wrestling than dancing, in so far as it stands ready against the accidental and the unforeseen, and is not apt to fall.
+ - Give thyself time to learn something new and good, and cease to be whirled around.
+ - Each of us lives only now, this brief instant. The rest been lived already, or is impossible to see. The span we live is small – small as the corner of the earth in which we live it.
+ - The whole universe is change and life itself is but what you deem it.
+ - If any man despises me, that is his problem. My only concern is not doing or saying anything deserving of contempt.
+ - I was once a fortunate man but at some point fortune abandoned me. But true good fortune is what you make for yourself. Good fortune: good character, good intentions, and good actions.
+ - It is not the weight of the future or the past that is pressing upon you, but ever that of the present alone. Even this burden, too, can be lessened if you confine it strictly to its own limits.
+ - How much time he saves who does not look to see what his neighbor says or does or thinks.
+ - Live not one’s life as though one had a thousand years, but live each day as the last.
+ - To breathe, to think, to enjoy, to love.
+ - Live not as though there were a thousand years ahead of you. Fate is at your elbow; make yourself good while life and power are still yours.
+ - All things of the body stream away like a river, all things of the mind are dreams and delusion; life is warfare, and a visit to a strange land; the only lasting fame is oblivion.
+ - Turn thy thoughts now to the consideration of thy life, thy life as a child, as a youth, thy manhood, thy old age, for in these also every change was a death. Is this anything to fear?
+ - It doesn’t hurt me unless I interpret its happening as harmful to me. I can choose not to.
+ - When you find an unwillingness to rise early in the morning, endeavor to rouse your faculties, and act up to your kind, and consider that you have to do the business of a man; and that action is both beneficial and the end of your being.
+ - Let it be your constant method to look into the design of people’s actions, and see what they would be at, as often as it is practicable; and to make this custom the more significant, practice it first upon yourself.
+ - People find pressure in different ways. I find it in keeping my mind clear. In not turning away from people or the things that happen to them. In accepting and welcoming everything I see. In treating each thing as it deserves.
+ - Dress not thy thoughts in too fine a raiment. And be not a man of superfluous words or superfluous deeds.
+ - Man is born for deeds of kindness.
+ - Limit time to the present. Meditate upon your last hour.
+ - The healthy eye ought to see all visible things and not to say, I wish for green things; for this is the condition of a diseased eye.
+ - To live happily is an inward power of the soul.
+ - A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself. The one produces aspiration; the other ambition, which is the way in which a vulgar man aspires.
+ - Embellish the soul with simplicity, with prudence, and everything which is neither virtuous nor vicious. Love all men. Walk according to God; for, as a poet hath said, his laws govern all.
+ - Because your own strength is unequal to a task, do not assume it is beyond the powers of man.
+ - No man is happy who does not think himself so.
+ - Natural ability without education has more often raised a man to glory and virtue than education without natural ability.
+ - This is the mark of a perfect character – to pass through each day as though it were the last, without agitation, without torpor, and without pretense.
+ - Cultivate these, then, for they are wholly within your power: sincerity and dignity; industriousness; and sobriety. Avoid grumbling, be frugal, considerate, and frank; be temperate in manner and speech; carry yourself with authority.
+ - There is but one thing of real value – to cultivate truth and justice, and to live without anger in the midst of lying and unjust men.
+ - Search men’s governing principles, and consider the wise, what they shun and what they cleave to.
+ - Where life is possible at all, a right life is possible; life in a palace is possible; therefore even in a palace a right life is possible.
+ - And thou wilt give thyself relief, if thou doest every act of thy life as if it were the last.
+ - Whatever the universal nature assigns to any man at any time is for the good of that man at that time.
+ - Everything is interwoven, and the web is holy.
+ - Life is short. That’s all there is to say. Get what you can from the present – thoughtfully, justly.
+ - Remember: Matter: how tiny your share of it. Time: how brief and fleeting your allotment of it. Fate: how small a role you play in it.
+ - Life is short. Do not forget about the most important things in our life, living for other people and doing good for them.
+ - Just as the sand-dunes, heaped one upon another, hide each the first, so in life the former deeds are quickly hidden by those that follow after.
+ - Let thine occupations be few, saith the sage, if thou wouldst lead a tranquil life.
+ - Tomorrow is nothing, today is too late; the good lived yesterday.
+ - Keep yourself simple, good, pure, serious, and unassuming; the friend of justice and godliness; kindly, affectionate, and resolute in your devotion to duty.
+ - Be not careless in deeds, nor confused in words, nor rambling in thought.
+ - You must become an old man in good time if you wish to be an old man long.
+ - In an expression of true gratitude, sadness is conspicuous only by its absence.
+ - Consider that everything is opinion, and opinion is in thy power.
+ - A man does not sin by commission only, but often by omission.
+ - Love the little trade which thou hast learned, and be content therewith.
+ - Let no act be done without purpose.
+ - Look within, for within is the wellspring of virtue, which will not cease flowing, if you cease not from digging.
+ - Because other people are fools, must you be so too?
+ - How ridiculous and how strange to be surprised at anything which happens in life.
+ - Do not consider anything for your interest which makes you break your word, quit your modesty or inclines you to any practice which will not bear the light or look the world in the face.
+ - Time is a kind of river, an irresistible flood sweeping up men and events and carrying them headlong, one after the other, to the great sea of being.
+ - Failure to read what is happening in another’s soul is not easily seen as a cause of unhappiness: but those who fail to attend the motions of their own soul are necessarily unhappy.
+ - Is your cucumber bitter? Throw it away. Are there briars in your path? Turn aside. That is enough. Do not go on and ay, ‘Why were things of this sort ever brought into the world?’
+ - Death, like birth, is one of nature’s mysteries, the combining of primal elements and dissolving of the same into the same.
+ - People who labor all their lives but have no purpose to direct every thought and impulse toward are wasting their time-even when hard at work.
+ - The offender needs pity, not wrath; those who must needs be corrected, should be treated with tact and gentleness; and one must be always ready to learn better. ‘The best kind of revenge is, not to become like unto them.’
+ - It were well to die if there be gods, and sad to live if there be none.
+ - My city and state are Rome. But as a human being? The world. So for me, “good” can only mean what’s good for both communities.
+ - Life is a warfare and a stranger’s sojourn, and after fame is oblivion.
+ - Withdraw to the untroubled quietude deep within the soul, and refresh yourself.
+ - When forced, as it seems, by your environment to be utterly disquieted, return with all speed into your self, staying in discord no longer than you must. By constant recurrence to the harmony, you will gain more command over it.
+ - From Apollonius I learned freedom of will and undeviating steadiness of purpose; and to look to nothing else, not even for a moment, except to reason.
+ - Change your attitude to the things that bother you and you will be aware of them.
+ - Within ten days thou wilt seem a god to those to whom thou art now a beast and an ape, if thou wilt return to thy principles and the worship of reason.
+ - I am an old man and have had many worries, but most have never come to pass.
+ - The longest-lived and the shortest-lived man, when they come to die, lose one and the same thing.
+ - When you have trouble getting out of bed in the morning, remember that your defining characteristic-what defines a human being-is to work with others.
+ - The wrongdoer is often the person who left something undone, rather than the person who has done something.
+ - He who eats my bread, does my will.
+ - Everything is ephemeral, both that which remembers and that which is remembered.
+ - To live each day as though one’s last, never flustered, never apathetic, never attitudinizing – here is the perfection of character.
+ - When thou art above measure angry, bethink thee how momentary is man’s life.
+ - A lucky chance is constant in nothing but inconstancy.
+ - Socrates used to call the opinions of the many by the name of Lamiae, bugbears to frighten children.
+ - Know the joy of life by piling good deed on good deed until no rift or cranny appears between them.
+ - The one thing worth living for is to keep one’s soul pure.
+ - The best way of avenging thyself is not to become like the wrong-doer.
+ - From my grandfather’s father, I learned to dispense with attendance at public schools, and to enjoy good teachers at home, and to recognize that on such things money should be eagerly spent.
+ - Everything that exists is in a manner the seed of that which will be.
+ - Consider thyself to be dead, and to have completed thy life up to the present time; and live according to nature the remainder which is allowed thee.
+ - All men are made one for another: either then teach them better or bear with them.
+ - Because a thing is difficult for you, do not therefore suppose it to be beyond mortal power. On the contrary, if anything is possible and proper for man to do, assume that it must fall within your own capacity.
+ - A man should remove not only unnecessary acts, but also unnecessary thoughts, for then superfluous activity will not follow.
+ - It is the act of a madman to pursue impossibilities .
+ - No one can keep you from living as your nature requires. Nothings can happen to you that is not required by Nature.
+ - There is change in all things. You yourself are subject to continual change and some decay, and this is common to the entire universe.
+ - When men are inhuman, take care not to feel towards them as they do towards other humans.
+ - When you have done a good deed that another has had the benefit of, why do you need a third reward-as fools do-praise for having done well or looking for a favor in return.
+ - For outward show is a wonderful perverter of the reason.
+ - Failing to understand the workings of one’s own mind is bound to lead to unhappiness.
+ - What we cannot bear removes us from life; what remains can be borne.
+ - Purge your mind of all aimless and idle thoughts, especially those that pry into the affairs of others or wish them ill.
+ - Unhappy am I because this has happened to me.- Not so, but happy am I, though this has happened to me, because I continue free from pain, neither crushed by the present nor fearing the future.
+ - He who follows reason in all things is both tranquil and active at the same time, and also cheerful and collected.
+ - Neither worse then or better is a thing made by being praised.
+ - Take full account of what Excellencies you possess, and in gratitude remember how you would hanker after them, if you had them not.
+ - Praise adds nothing to beauty – makes it neither better nor worse.
+ - Once you have done a man a service, what more reward would you have? Is it not enough to have obeyed the laws of your own nature, without expecting to be paid for it?
+ - I am called to man’s labour; why then do I make a difficulty if I am going out to do what I was born to do and what I was brought into the world for?
+ - Thou sufferest justly: for thou choosest rather to become good to-morrow than to be good to-day.
+ - A good disposition is invincible, if it be genuine.
+ - To my great-grandfather I owed the advice to dispense with the education of the schools and have good masters at home instead – and to realize that no expense should be grudged for this purpose.
+ - There is no man so blessed that some who stand by his deathbed won’t hail the occasion with delight.
+ - Practice really hearing what people say. Do your best to get inside their mind.
+ - Never act without purpose and resolve, or without the means to finish the job.
+ - You exist but as a part inherent in a greater whole. Do not live as though you had a thousand years before you. The common due impends; while you live, and while you may, be good.
+ - While you live, while it is in your power, be good.
+ - Be content with what you are, and wish not change; nor dread your last day, nor long for it.
+ - Remember that all is opinion.
+ - Where a man can live, he can also live well.
+ - He does not write at all whose poems no man reads.
+ - If it’s time for you to go, leave willingly – as you would to accomplish anything that can be done with grace and honor.
+ - How many after being celebrated by fame have been given up to oblivion; and how many who have celebrated the fame of others have long been dead.
+ - Your mind will take on the character of your most frequent thoughts: souls are dyed by thoughts.
+ - He that lives alone lives in danger; society avoids many dangers.
+ - You should banish any thoughts of how you may appear to others.
+ - Snow endures but for a season, and joy comes with the morning.
+ - Nothing that goes on in anyone else’s mind can harm you.
+ - That which comes after ever conforms to that which has gone before.
+ - God overrules all mutinous accidents, brings them under His laws of fate, and makes them all serviceable to His purpose.
+ - Either an ordered Universe or a medley heaped together mechanically but still an order; or can order subsist in you and disorder in the Whole! And that, too, when all things are so distinguished and yet intermingled and sympathetic.
+ - There is nothing happens to any person but what was in his power to go through with.
+ - Accustom yourself not to be disregarding of what someone else has to say: as far as possible enter into the mind of the speaker.
+ - The nature of the universe is the nature of things that are. Now, things that are have kinship with things that are from the beginning. Further, this nature is styled Truth; and it is the first cause of all that is true.
+ - Retire into thyself. The rational principle which rules has this nature, that it is content with itself when it does what is just, and so secures tranquility.
+ - Look deeply. Don’t miss the inherent quality and value of everything.
+ - Everything is mere opinion.
+ - It is the duty of men to love even those who injure them.
+ - No form of nature is inferior to art; for the arts merely imitate natural forms. – Variant: There is no nature which is inferior to art, the arts imitate the nature of things.
+ - Vex not thy spirit at the course of things, they heed not thy vexations.
+ - As the same fire assumes different shapes When it consumes objects differing in shape, So does the one Self take the shape Of every creature in whom he is present.
+ - Always run to the short way; and the short way is the natural: accordingly say and do everything in conformity with the soundest reason. For such a purpose frees a man from trouble, and warfare, and all artifice and ostentatious display.
+ - Do what you will. Even if you tear yourself apart, most people will continue doing the same things.
+ - The most complete revenge is not to imitate the aggressor.
+ - Look beneath the surface; let not the several quality of a thing nor its worth escape thee.
+ - Submit to the fate of your own free will.
+ - Aptitude found in the understanding and is often inherited. Genius coming from reason and imagination, rarely.
+ - They know not how many things are signified by the words stealing, sowing, buying, keeping quiet, seeing what ought to be done; for this is not effected by the eyes, but by another kind of vision.
+ - People generally despise where they flatter, and cringe to those they would gladly overtop; so that truth and ceremony are two things.
+ - This is the chief thing: be not perturbed, for all things are according to the nature of the universal.
+ - Nothing befalls a man except what is in his nature to endure.
+ - If any man has done wrong, the harm is his own. But perhaps he has not done wrong.
+ - Be not unwilling in what thou doest, neither selfish nor unadvised nor obstinate; let not over-refinement deck out thy thought; be not wordy nor a busybody.
+ - Art thou angry with him whose armpits stink? Art thou angry with him whose mouth smells foul?
+ - Man must be arched and buttressed from within, else the temple wavers to the dust.
+ - My only fear is doing something contrary to human nature – the wrong thing, the wrong way, or at the wrong time.
+ - Tranquility is nothing else than the good ordering of the mind.
+ - In death, Alexander of Macedon’s end differed no whit from his stable-boy’s. Either both were received into the same generative principle of the universe, or both alike were dispersed into atoms.
+ - Be mindful at all times of the following: the nature of the whole universe, the nature of the part that is me, the relation of the one to the other, the one so vast, the other so small.
+ - Remember this-that there is a proper dignity and proportion to be observed in the performance of every act of life.
+ - Though you break your heart, men will go on as before.
+ - The whole universe is change and life itself is but what you deem it – either gratefully better than or bitterly worse than something else that you alone choose.
+ - It is right that man should love those who have offended him. He will do so when he remembers that all men are his relations, and that it is through ignorance and involuntarily that they sin, – and then we all die so soon.
+ - It is not right to vex ourselves at things, for they care not about it.
+ - Think not disdainfully of death, but look on it with favor; for even death is one of the things that Nature wills.
+ - Give your heart to the trade you have learnt, and draw refreshment from it. Let the rest of your days be spent as one who has whole-heartedly committed his all to the gods and is thenceforth no man’s master or slave.
+ - Stick to what’s in front of you – idea, action, utterance.
+ - It is a disgrace to let ignorance and vanity do more with us than prudence and principle.
+ - Dig within. There lies the wellspring of good.
+ - The true joy of humankind is in doing that which is most proper to our nature; and the first property of people is to be kindly affected towards them that are of one kind with ourselves.
+ - Remember that all is opinion. For what was said by the Cynic Monimus is manifest: and manifest too is the use of what was said, if a man receives what may be got out of it as far as it is true.
+ - How very near us stand the two vast gulfs of time, the past and the future, in which all things disappear.
+ - Welcome every experience the looms of fate may weave for you...
+ - A man makes no noise over a good deed, but passes on to another as a vine to bear grapes again in season.
+ - You are making an inopportune rejection of what Nature has given you today, if all your mind is set on what men will say of you tomorrow.
+ - In man’s life, time is but a moment; being, a flux; sense is dim; the material frame corruptible; soul, an eddy of breath; fortune a thing inscrutable, and fame precarious.
+ - And what after all is everlasting fame? Altogether vanity.
+ - Can we wonder that men perish and are forgotten, when their noblest and most enduring works decay? Death comes even to monumental structures, and oblivion rests on the most illustrious names.
+ - Nothing proceeds from nothingness, as also nothing passes away into non-existence.
+ - Everything is here for a purpose, from horses to vine shoots. What’s surprising about that? Even the sun will tell you, “I have a purpose,” and the other goods as well.
+ - I, who have never willfully pained another, have no business to pain myself.
+ - Short is the little time which remains to thee of life. Live as on a mountain.
+ - Receive the gifts of fortune without pride, and part with them without reluctance.
+ - The passing minute is every man’s equal possession but what has once gone by is not ours.
+ - Reflect often upon the rapidity with which all existing things, or things coming into existence, sweep past us and are carried away.
+ - What is not good for the swarm is not good for the bee.
+ - The sinner sins against himself; the wrongdoer wrongs himself, becoming the worse by his own action.
+ - We are the other of the other.
+ - All things are changing; and thou thyself art in continuous mutation and in a manner in continuous destruction and the whole universe to.
+ - Look deep into the hearts of men, and see what delights and disgusts the wise.
+ - Things can never touch the soul, but stand inert outside it, so that disquiet can arise only from fancies within.
+ - Consider in what condition both in body and soul a man should be when he is overtaken by death; and consider the shortness of life, the boundless abyss of time past and future, the feebleness of all matter.
+ - We must press on then, in haste; not simply because every hour brings us nearer to death, but because even before then our powers of perception and comprehension begin to deteriorate.
+ - Put it out of the power of truth to give you an ill character. If anybody reports you not to be an honest man let your practice give him the lie.
+ - In the case of most pains let this remark of Epicurus aid thee, that the pain is neither intolerable nor everlasting, if thou bear in mind that it has its limits, and if thou addest nothing to it in imagination...
+ - Remember that the sole life which a man can lose is that which he is living at the moment.
+ - As far as you can, get into the habit of asking yourself in relation to any action taken by another: “What is his point of reference here?” But begin with yourself: examine yourself first.
+ - In one way an arrow moves, in another way the mind. The mind indeed, both when it exercises caution and when it is employed about inquiry, moves straight onward not the less, and to its object.
+ - Let every action aim solely at the common good.
+ - Gluttony and drunkenness have two evils attendant on them; they make the carcass smart, as well as the pocket.
+ - Let your one delight and refreshment be to pass from one service to the community to another, with God ever in mind.
+ - Consider when thou art much vexed or grieved, that man’s life is only a moment, and after a short time we are all laid out dead.
+ - Take away the complaint, ‘I have been harmed,’ and the harm is taken away.
+ - Each of us needs what nature gives us, when nature gives us.
+ - Things that have a common quality ever quickly seek their kind.
+ - Death hangs over thee, While thou still live, while thou may, do good.
+ - All is as thinking makes it so.
+ - All is Ephemeral, fame and the famous as well.
+ - What springs from earth dissolves to earth again, and heaven-born things fly to their native seat.
+ - Not to waste time on nonsense. Not to be taken in by conjurors and hoodoo artists with their talk about incantations and exorcism and all the rest of it. Not to be obsessed with quail-fighting or other crazes like that.
+ - Love only what befalls you and is spun for you by fate.
+ - Suppose that men kill thee, cut thee in pieces, curse thee, what can these things do to prevent thy mind from remaining pure, wise, sober, just?
+ - Do you see what little is required of a man to live a well-tempered and god-fearing life? Obey these precepts, and the gods will ask nothing more.
+ - Everything is banal in experience, fleeting in duration, sordid in content; in all respects the same today as generations now dead and buried have found it to be.
+ - Death – a stopping of impressions through the senses, and of the pulling of the cords of motion, and of the ways of thought, and of service to the flesh.
+ - An angry look on the face is wholly against nature. If it be assumed frequently, beauty begins to perish, and in the end is quenched beyond rekindling.
+ - To her who gives and takes back all, to nature, the man who is instructed and modest says, Give what thou wilt; take back what thou wilt. And he says this not proudly, but obediently and well pleased with her.
+ - Consider how many do not even know your name, and how many will soon forget it, and how those who now praise you will presently blame you.
+ - Why do we shrink from change? What can come into being save by change?
+ - Look at everything that exists, and observe that it is already in dissolution and in change, and as it were putrefaction or dispersion, or that everything is so constituted by nature as to die.
+ - Even the stoics agree that certainty is very hard to come at; that our assent is worth little, for where is infallibility to be found?
+ - Remember that to change your mind and follow him who sets you right is to be none the less free than you were before.
+ - The constant recollection of death is the test of human conduct.
+ - Both happiness and unhappiness depend on perception.
+ - Infinity is a fathomless gulf, into which all things vanish.
+ - The wise man sees in the misfortune of others what he should avoid.
+ - Think of the country mouse and of the town mouse, and of the alarm and trepidation of the town mouse.
+ - If this is neither my own badness, nor an effect of my own badness, and the common weal is not injured, why am I troubled about it? And what is the harm to the common weal?
+ - It is not fit that I should give myself pain, for I have never intentionally given pain even to another.
+ - The whole contains nothing that is not for its advantage. By remembering that I am part of such a whole, I shall be content with everything that happens.
+ - The rottenness of the matter which is the foundation of everything!
+ - Hast thou reason? I have. Why then dost not thou use it? For if this does its own work, what else dost thou wish?
+ - Be not as one that hath ten thousand years to live; death is nigh at hand: while thou livest, while thou hast time, be good.
+ - Be satisfied with your business, and learn to love what you were bred to.
+ - A rational nature admits of nothing but what is serviceable to the rest of mankind.
+ - It is a ridiculous thing for a man not to fly from his own badness, which is indeed possible, but to fly from other men’s badness, which is impossible.
+ - Light may earth’s crumbling sand be laid on thee, that dogs may dig thy bones up easily.
+ - Life is a campaign, a brief staying in a strange region.
+ - Think of the universal substance, of which thou has a very small portion; and of universal time, of which a short and indivisible interval has been assigned to thee; and of that which is fixed by destiny, and how small a part of it thou art.
+ - Nature insists on whatever benefits the whole.
+ - He who has seen present things has seen all, both everything which has taken place from all eternity and everything which will be for time without end; for all things are of one kin and of one form.
+ - All things are the same, familiar in enterprise, momentary in endurance, coarse in substance. All things now are as they were in the day of those whom we have buried.
+ - All that is from the gods is full of Providence.
+ - The controlling Intelligence understands its own nature, and what it does, and whereon it works.
+ - Keep constantly in mind in how many things you yourself have witnessed changes already. The universe is change, life is understanding.
+ - Live with the gods. And he does so who constantly shows them that his soul is satisfied with what is assigned to him.
+ - If I and my two children cannot move the gods, the gods must have their reasons.
+ - How easy it is to repel and release every impression which is troublesome and immediately to be tranquil.
+ - The honest and good man ought to be exactly like a man who smells strong, so that the bystander as soon as he comes near him must smell whether he choose or not.
+ - No longer talk at all about the kind of man that a good man ought to be, but be such.
+ - To no man make yourself a boon companion: Your joy will be less but less will be your grief.
+ - Men despise one another and flatter one another; and men wish to raise themselves above one another, and crouch before one another.
+ - Thanks to the gods I didn’t spend much time while growing up with my grandfather’s mistress and preserved the flower of my youth, waiting for the proper time to demonstrate my virility.
+ - The lot assigned to every man is suited to him, and suits him to itself.
+ - The universal nature out of the universal substance, as if it were wax, now molds a horse, and when it has broken this up, it uses the material for a tree, then for a man, then for something else...
+ - Not even the vicissitudes of fortune are contrary to nature or to the providential ordering of the universe. It all flows from the gods, who determine what is needed for the welfare of the whole universe, of which you are a part.
+ - Men exist for the sake of one another.
+ - Always bear this in mind, that very little indeed is necessary for living a happy life.
+ - Without a purpose, nothing should be done.
+ - The man who doesn’t know what the universe is doesn’t know where he lives.
+ - Give full attention and devotion to each act.
+ - How soon will time cover all things.
+ - Find time still to be learning somewhat good, and give up being desultory.
+ - Always take the short cut; and that is the rational one. Therefore say and do everything according to soundest reason.
+ - Each thing is of like form from everlasting and comes round again in its cycle.
+ - Put an end once and for all to this discussion of what a good person should be, and be one.
+ - If souls continue to exist, how does the air contain them from eternity?
+ - I can at once become happy anywhere, for he is happy who has found himself a happy lot. In a word, happiness lies all in the functions of reason, in warrantable desires and virtuous practice.
+ - But if we judge only those things which are in our power to be good or bad, there remains no reason either for finding fault with God or standing in a hostile attitude to man.
+ - Am I doing anything? I do it with reference to the good of mankind. Does anything happen to me? I receive it and refer it to the gods, and the source of all things, from which all that happens is derived.
+ - Today I escaped all circumstance, or rather I cast out all circumstance, for it was not outside me, but within my judgements.
+ - Consider frequently the connection of all things in the universe and their relation to one another. For things are somehow implicated with one another, and all in a way friendly to one another.
+ - Why should a man have any apprehension about the change and dissolution of all the elements? For it is according to nature, and nothing is evil which is according to nature.
+ - Happiness is no other than soundness and perfection of mind.
+ - To expect an impossibility is madness.
+ - Waste not the remnant of thy life in those imaginations touching other folk, whereby thou contributest not to the common weal.
+ - It is satisfaction to a man to do the proper works of a man.
+ - The mind in itself wants nothing, unless it creates a want for itself; therefore it is both free from perturbation and unimpeded, if it does not perturb and impede itself.
+ - Remember that there is a God who desires neither praise nor glory from men created in his image, but rather that they, guided by the understanding given them, should in their actions become like unto him.
+ - You need to be prepared for firm decisions and action, without losing gentleness towards those who obstruct or abuse you. It’s as great a weakness to be angry with them as it is to abandon your plan of action and give up through fear.
+ - All that happens is as usual and familiar as the rose in spring and the crop in summer.
+ - Severally on the occasion of everything that thou doest, pause and ask thyself, if death is a dreadful thing because it deprives thee of this.
+ - Why should any of these things that happen externally distract thee? Give thyself leisure to learn some good thing: cease roving to and fro.
+ - No one loses any other life than the one he now lives, nor does one live any other life than that which he will lose.
+ - Be cheerful, also, and seek not external help, nor the peace which others give. A man must stand straight, and not be kept straight by others.
+ - Leave the wrong done by another where the wrong arose.
+ - The man who has a house everywhere has a home nowhere.
+ - The happiness and unhappiness of the rational, social animal depends not on what he feels but on what he does; just as his virtue and vice consist not in feeling but in doing.
+ - That which makes the man no worse than he was makes his life no worse: it has no power to harm, without or within.
+ - Nothing is evil which is according to nature.
+ - If man reflects on the changes and transformations which follow one another like wave after wave and their rapidity, he will despise everything which is perishable.
+ - Have I done something for the general interest? Well then I have had my reward. Let this always be present to thy mind, and never stop doing such good.
+ - Above, below, all around are the movements of the elements. But the motion of virtue is in none of these: it is something more divine, and advancing by a way hardly observed it goes happily on its road.
+ - I bless the gods for not letting my education in rhetoric, poetry, and other literary studies come easily to me, and thereby sparing me from an absorbing interest in these subjects.
+ - A little time, and thou shalt close thy eyes; and him who has attended thee to thy grave, another soon will lament.
+ - Nothing can come out of nothing, any more than a thing can go back to nothing.
+ - Reverence the gods, and help men. Short is life.
+ - Let thy chief fort and place of defense be a mind free from passions. A stronger place and better fortified than this, hath no man.
+ - Neither in thy actions be sluggish nor in thy conversation without method, nor wandering in thy thoughts, nor let there be in thy soul inward contention nor external effusion, nor in life be so busy as to have no leisure.
+ - Constantly contemplate the whole of time and the whole of substance, and consider that all individual things as to substance are a grain of a fig, and as to time the turning of a gimlet .
+ - Glory arrives too late when it comes only to one’s ashes.
+
+500 quotes

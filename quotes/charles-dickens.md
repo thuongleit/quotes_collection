@@ -1,0 +1,502 @@
+ - Procrastination is the thief of time, collar him.
+ - My advice is to never do tomorrow what you can do today. Procrastination is the thief of time.
+ - It was the best of times, it was the worst of times, it was the age of wisdom, it was the age of foolishness, it was the epoch of belief, it was the epoch of incredulity, it was the season of light, it was the season of darkness, it was the spring of hope, it was the winter of despair.
+ - Have a heart that never hardens, and a temper that never tires, and a touch that never hurts.
+ - No one is useless in this world who lightens the burdens of another.
+ - Ask no questions, and you’ll be told no lies.
+ - Suffering has been stronger than all other teaching, and has taught me to understand what your heart used to be. I have been bent and broken, but – I hope – into a better shape.
+ - What greater gift than the love of a cat.
+ - The pain of parting is nothing to the joy of meeting again.
+ - It was the best of times, it was the worst of times.
+ - A loving heart is the truest wisdom.
+ - A man is lucky if he is the first love of a woman. A woman is lucky if she is the last love of a man.
+ - There is nothing in the world so irresistibly contagious as laughter and good humor.
+ - Reflect upon your present blessings – of which every man has many – not on your past misfortunes, of which all men have some.
+ - Spring is the time of year when it is summer in the sun and winter in the shade.
+ - Family not only need to consist of merely those whom we share blood, but also for those whom we’d give blood.
+ - I loved her against reason, against promise, against peace, against hope, against happiness, against all discouragement that could be.
+ - The most important thing in life is to stop saying ‘I wish’ and start saying ‘I will.’ Consider nothing impossible, then treat possibilities as probabilities.
+ - A wonderful fact to reflect upon, that every human creature is constituted to be that profound secret and mystery to every other.
+ - Never close your lips to those whom you have already opened your heart.
+ - I have been bent and broken, but – I hope – into a better shape.
+ - Every traveler has a home of his own, and he learns to appreciate it the more from his wandering.
+ - It is a far, far better thing that I do, than I have ever done; it is a far, far better rest that I go to, than I have ever known.
+ - Walk and be Happy, Walk and be Healthy...
+ - Heaven knows we need never be ashamed of our tears, for they are rain upon the blinding dust of earth, overlying our hard hearts. I was better after I had cried, than before – more sorry, more aware of my own ingratitude, more gentle.
+ - I will honor Christmas in my heart, and try to keep it all the year.
+ - There is a wisdom of the head, and a wisdom of the heart.
+ - I never could have done what I have done without the habits of punctuality, order, and diligence, without the determination to concentrate myself on one subject at a time.
+ - It is the last straw that breaks the camel’s back.
+ - I will honour Christmas in my heart, and try to keep it all the year. I will live in the Past, the Present, and the Future. The Spirits of all Three shall strive within me. I will not shut out the lessons that they teach!
+ - To a young heart everything is fun.
+ - Least said, soonest mended.
+ - Liberty, equality, fraternity, or death; – the last, much the easiest to bestow, O Guillotine!
+ - We forge the chains we wear in life.
+ - A smattering of everything, and a knowledge of nothing.
+ - The whole difference between construction and creation is exactly this: that a thing constructed can only be loved after it is constructed; but a thing created is loved before it exists.
+ - Electric communication will never be a substitute for the face of someone who with their soul encourages another person to be brave and true.
+ - A dream, all a dream, that ends in nothing, and leaves the sleeper where he lay down, but I wish you to know that you inspired it.
+ - Love her, love her, love her! If she favours you, love her. If she wounds you, love her. If she tears your heart to pieces – and as it gets older and stronger, it will tear deeper – love her, love her, love her!
+ - A very little key will open a very heavy door.
+ - Whether I shall turn out to be the hero of my own life, or whether that station will be held by anybody else, these pages must show.
+ - There is prodigious strength in sorrow and despair.
+ - The law is an ass, an idiot.
+ - We need never be ashamed of our tears.
+ - An idea, like a ghost, must be spoken to a little before it will explain itself.
+ - Death is a mighty, universal truth.
+ - A new heart for a New Year, always!
+ - It’s in vain to recall the past, unless it works some influence upon the present.
+ - Take nothing on its looks; take everything on evidence. There’s no better rule.
+ - Once a gentleman, and always a gentleman.
+ - Is it better to have had a good thing and lost it, or never to have had it?
+ - No space of regret can make amends for one life’s opportunity misused.
+ - If there were no bad people, there would be no good lawyers.
+ - It is a most miserable thing to feel ashamed of home.
+ - Consider nothing impossible, then treat possiblities as probabilities.
+ - Nature gives to every time and season some beauties of its own.
+ - No one who can read, ever looks at a book, even unopened on a shelf, like one who cannot.
+ - It was one of those March days when the sun shines hot and the wind blows cold: when it is summer in the light, and winter in the shade.
+ - Happy, happy Christmas, that can win us back to the delusions of our childhood days, recall to the old man the pleasures of his youth, and transport the traveler back to his own fireside and quiet home!
+ - And I am bored to death with it. Bored to death with this place, bored to death with my life, bored to death with myself.
+ - Do all the good you can and make as little fuss about it as possible.
+ - We can refute assertions, but who can refute silence?
+ - New thoughts and hopes were whirling through my mind, and all the colours of my life were changing.
+ - The sum of the whole is this: walk and be happy; walk and be healthy. The best way to lengthen out our days is to walk steadily and with a purpose.
+ - Make them laugh, make them cry, make them wait.
+ - Love is in all things a most wonderful teacher.
+ - For it is good to be children sometimes, and never better than at Christmas, when its mighty Founder was a child Himself.
+ - There was something very comfortable in having plenty of stationery.
+ - Little Red Riding Hood was my first love. I felt that if I could have married Little Red Riding Hood, I should have known perfect bliss.
+ - There are chords in the human heart- strange, varying strings- which are only struck by accident; which will remain mute and senseless to appeals the most passionate and earnest, and respond at last to the slightest casual touch.
+ - I stole her heart away and put ice in its place.
+ - Credit is a system whereby a person who can not pay gets another person who can not pay to guarantee that he can pay.
+ - I only ask for information.
+ - People like us don’t go out at night cause people like them see us for what we are.
+ - Cleanliness is next to Godliness, and some people do the same by their religion.
+ - Home is like the ship at sea, Sailing on eternally; Oft the anchor forth we cast, But can never make it fast.
+ - I had no advice, no counsel, no encouragement, no consolation, no assistance, no support, of any kind, from anyone, that I can call to mind, as I hope to go to heaven!
+ - Cheerfulness and contentment are great beautifiers, and are famous preservers of good looks.
+ - Christmas is a poor excuse every 25th of December to pick a man’s pockets.
+ - And it was always said of him, that he knew how to keep Christmas well, if any man alive possessed the knowledge. May that be truly said of us, and all of us! And so, as Tiny Tim observed, God bless Us, Every One!
+ - For not an orphan in the wide world can be so deserted as the child who is an outcast from a living parent’s love.
+ - My dear young lady, crime, like death, is not confined to the old and withered alone. The youngest and fairest are too often its chosen victims.
+ - I only ask to be free. The butterflies are free.
+ - Industry is the soul of business and the keystone of prosperity.
+ - Subdue your appetites, my dears, and you’ve conquered human nature .
+ - The coffee was boiling over a charcoal fire, and large slices of bread and butter were piled one upon the other like deals in a lumber yard.
+ - Great men are seldom over-scrupulous in the arrangement of their attire.
+ - I was a blacksmith’s boy but yesterday; I am – what shall I say I am today?
+ - A merry Christmas to everybody! A happy New Year to the world!
+ - I have been, as the phrase is, liberally educated, and am fit for nothing.
+ - The cloud of caring for nothing, which overshadowed him with such a fatal darkness, was very rarely pierced by the light within him.
+ - I am at the moment deaf in the ears, hoarse in the throat, red in the nose, green in the gills, damp in the eyes, twitchy in the joints and fractious in temper from a most intolerable and oppressive cold.
+ - I find my breath gets short, but it seldom gets longer as a man gets older. I take it as it comes, and make the most of it. That’s the best way, ain’t it?
+ - In love of home, the love of country has its rise.
+ - In the majority of cases, conscience is an elastic and very flexible article.
+ - And can it be that in a world so full and busy the loss of one creature makes a void so wide and deep that nothing but the width and depth of eternity can fill it up!
+ - There is a passion for hunting something deeply implanted in the human breast.
+ - The sun himself is weak when he first rises, and gathers strength and courage as the day gets on.
+ - Oh Agnes, Oh my soul, so may thy face be by me when I close my life indeed; so may I, when realities are melting from me, like the shadows which I now dismiss, still find thee near me, pointing upward!
+ - God bless us, every one!
+ - Happiness is a gift and the trick is not to expect it, but to delight in it when it comes.
+ - There wasn’t room to swing a cat there.
+ - He did each single thing as if he did nothing else.
+ - United metropolitan improved hot muffin and crumpet baking and punctual delivery company.
+ - And from that hour his poor maimed spirit, only remembering the place where it had broken its wings, cancelled the dream through which it had since groped, and knew of nothing beyond the Marshalsea.
+ - Spite is a little word, but it represents as strange a jumble of feelings and compound of discords, as any polysyllable in the language.
+ - Anything for the quick life, as the man said when he took the situation at the lighthouse.
+ - There was a piece of ornamental water immediately below the parapet, on the other side, into which Mr. James Harthouse had a very strong inclination to pitch Mr. Thomas Gradgrind Junior.
+ - Pride is one of the seven deadly sins; but it cannot be the pride of a mother in her children, for that is a compound of two cardinal virtues – faith and hope.
+ - In a utilitarian age, of all other times, it is a matter of grave importance that fairy tales should be respected.
+ - I took her hand in mine, and we went out of the ruined place; and, as the morning mists had risen long ago when I first left the forge, so, the evening mists were rising now, and in all the broad expanse of tranquil light they showed to me, I saw no shadow of another parting from her.
+ - Trifles make the sum of life.
+ - Darkness is cheap, and Scrooge liked it.
+ - A multitude of people and yet solitude.
+ - Change begets change.
+ - It is no small thing, when they, who are so fresh from God, love us.
+ - When you drink of the water, don’t forget the spring from which it flows.
+ - Vengeance and retribution require a long time; it is the rule.
+ - And a beautiful world we live in, when it is possible, and when many other such things are possible, and not only possible, but done – done, see you! – under that sky there, every day.
+ - The year end brings no greater pleasure then the opportunity to express to you season’s greetings and good wishes. May your holidays and new year be filled with joy.
+ - Some people are nobody’s enemies but their own.
+ - The first rule of business is: Do other men for they would do you.
+ - Why am I always at war with myself? Why have I told, as if upon compulsion, what I knew all along I ought to have withheld? Why am I making a friend of this woman beside me, in spite of the whispers against her that I hear in my heart?
+ - Every failure teaches a man something, if he will but learn.
+ - Women can always put things in fewest words. Except when it’s blowing up; and then they lengthens it out.
+ - There are dark shadows on the earth, but its lights are stronger in the contrast.
+ - They are Man’s and they cling to me, appealing from their fathers. This boy is Ignorance and this girl is Want. Beware them both, and all of their degree, but most of all beware this boy for on his brow I see that written which is Doom, unless the writing be erased.
+ - The world belongs to those who set out to conquer it armed with self confidence and good humour.
+ - I feel an earnest and humble desire, and shall do till I die, to increase the stock of harmless cheerfulness.
+ - Repression is the only lasting philosophy. The dark deference of fear and slavery, my friend, will keep the dogs obedient to the whip, as long as this roof shuts out the sky.
+ - Then I’m sorry to say, I’ve eat your pie.
+ - Man cannot really improve himself without improving others.
+ - There are strings in the human heart that had better not be vibrated.
+ - The flowers that sleep by night, opened their gentle eyes and turned them to the day. The light, creation’s mind, was everywhere, and all things owned its power.
+ - Quadruped lions are said to be savage, only when they are hungry; biped lions are rarely sulky longer than when their appetite for distinction remains unappeased.
+ - We changed again, and yet again, and it was now too late and too far to go back, and I went on. And the mists had all solemnly risen now, and the world lay spread before me.
+ - Dead, your Majesty. Dead, my lords and gentlemen. Dead, Right Reverends and Wrong Reverends of every order. Dead, men and women, born with Heavenly compassion in your hearts. And dying thus around us every day.
+ - She writhes under her life. A woman more angry, passionate, reckless, and revengeful never lived.
+ - Circumstances may accumulate so strongly even against an innocent man, that directed, sharpened, and pointed, they may slay him.
+ - We must scrunch or be scrunched.
+ - Don’t you think that any secret course is an unworthy one?
+ - Love, though said to be afflicted with blindness, is a vigilant watchman.
+ - The broken heart. You think you will die, but you just keep living, day after day after terrible day.
+ - Try to do unto others as you would have them do to you, and do not be discouraged if they fail sometimes. It is much better that they should fail than you should.
+ - Remembrance, like a candle, burns brightest at Christmastime.
+ - The Northern onslaught upon slavery was no more than a piece of specious humbug designed to conceal its desire for economic control of the Southern states.
+ - What is peace? Is it war? No. Is it strife? No. Is it lovely, and gentle, and beautiful, and pleasant, and serene, and joyful? O yes!
+ - Do the wise thing and the kind thing too, and make the best of us and not the worst.
+ - You are in every line I have ever read.
+ - Sadly, sadly, the sun rose; it rose upon no sadder sight than the man of good abilities and good emotions, incapable of their directed exercise, incapable of his own help and his own happiness, sensible of the blight on him, and resigning himself to let it eat him away.
+ - I went away, dear Agnes, loving you. I stayed away, loving you. I returned home, loving you!
+ - The New Year, like an Infant Heir to the whole world, was waited for, with welcomes, presents, and rejoicings.
+ - He was wise enough to know that nothing ever happened on this globe, for good, at which some people did not have their fill of laughter in the outset.
+ - You have been the last dream of my soul.
+ - It is a pleasant world we live in, sir, a very pleasant world. There are bad people in it, Mr. Richard, but if there were no bad people, there would be no good lawyers.
+ - Along the Paris streets, the death-carts rumble, hollow and harsh. Six tumbrils carry the day’s wine to La Guillotine.
+ - Facts alone are wanted in life. Plant nothing else, and root out everything else.
+ - Annual income twenty pounds, annual expenditure nineteen six, result happiness. Annual income twenty pounds, annual expenditure twenty pound ought and six, result misery.
+ - Are there no prisons?
+ - My imagination would never have served me as it has, but for the habit of commonplace, humble, patient, daily, toiling, drudging attention.
+ - Grief never mended no broken bones.
+ - I do not know the American gentleman, God forgive me for putting two such words together.
+ - Friendless I can never be, for all mankind are my kindred, and I am on ill terms with no one member of my great family.
+ - I must be taken as I have been made. The success is not mine, the failure is not mine, but the two together make me.
+ - The one great principle of English law is to make business for itself.
+ - Whatever I have tried to do in life, I have tried with all my heart to do it well; whatever I have devoted myself to, I have devoted myself completely; in great aims and in small I have always thoroughly been in earnest.
+ - Come in, – come in! and know me better, man! I am the Ghost of Christmas Present. Look upon me! You have never seen the like of me before!
+ - Remember, to the last, that while there is life there is hope.
+ - The meagre lighthouse all in white, haunting the seaboard, as if it were the ghost of an edifice that had once had colour and rotundity, dripped melancholy tears after its late buffeting by the waves.
+ - If I could not walk far and fast, I think I should just explode and perish.
+ - Such is hope, heaven’s own gift to struggling mortals, pervading, like some subtle essence from the skies, all things both good and bad.
+ - He was touched in the cavity where his heart should have been, in that nest of addled eggs, where the birds of heaven would have lived if they had not been whistled away, by the fervour of this reproach.
+ - Judiciously show a cat milk, if you wish her to thirst for it. Judiciously show a dog his natural prey, if you wish him to bring it down one day.
+ - There are not a few among the disciples of charity who require, in their vocation, scarcely less excitement than the votaries of pleasure in theirs.
+ - For your popular rumour, unlike the rolling stone of the proverb, is one which gathers a deal of moss in its wanderings up and down.
+ - The more especially, as in my juvenile frankness, I took some credit to myself for being so confidential and felt that I was quite the patron of my two respectful entertainers.
+ - To bring deserving things down by setting undeserving things up is one of its perverted delights; and there is no playing fast and loose with the truth, in any game, without growing the worse for it.
+ - I only know that it was, and ceased to be; and that I have written, and there I leave it.
+ - When I have heard him talking to Papa during the sittings for the picture, I have sat wondering whether it could be that he has no belief in anybody else, because he has no belief in himself.
+ - It was the first time it had ever occurred to me, that this detestable cant of false humility might have originated out of the Heep family. I had seen the harvest, but had never thought of the seed.
+ - Poverty and oysters always seem to go together.
+ - Accidentally consumed five biscuits when I wasn’t paying attention. Those biscuits are wily fellows – they leap in like sugary ninjas.
+ - Many merry Christmases, many happy New Years. Unbroken friendships, great accumulations of cheerful recollections and affections on earth, and heaven for us all.
+ - Crush humanity out of shape once more, under similar hammers, and it will twist itself into the same tortured forms. Sow the same seeds of rapacious licence and oppression over again, and it will surely yield the same fruit according to its kind.
+ - My dear if you could give me a cup of tea to clear my muddle of a head I should better understand your affairs.
+ - If the parks be “the lungs of London” we wonder what Greenwich Fair is – a periodical breaking out, we suppose – a sort of spring rash.
+ - Break their hearts my pride and hope, break their hearts and have no mercy. -Miss Havisham.
+ - The ocean asks for nothing but those who stand by her shores gradually attune themselves to her rhythm.
+ - Discipline must be maintained.
+ - Poetry makes life what lights and music do the stage.
+ - There seems a magic in the very name of Christmas.
+ - The last trumpet ever to be sounded shall blow even algebra to wreck.
+ - In a word, I was too cowardly to do what I knew to be right, as I had been too cowardly to avoid doing what I knew to be wrong.
+ - But the mere truth won’t do. You must have a lawyer.
+ - To conceal anything from those to whom I am attached, is not in my nature. I can never close my lips where I have opened my heart.
+ - For the rest of his life, Oliver Twist remembers a single word of blessing spoken to him by another child because this word stood out so strikingly from the consistent discouragement around him.
+ - Dreams are the bright creatures of poem and legend, who sport on earth in the night season, and melt away in the first beam of the sun, which lights grim care and stern reality on their daily pilgrimage through the world.
+ - I have made up my mind that I must have money, Pa. I feel that I can’t beg it, borrow it, or steal it; and so I have resolved that I must marry it.
+ - With throbbing veins and burning skin, eyes wild and heavy, thoughts hurried and disordered, he felt as though the light were a reproach, and shrunk involuntarily from the day as if he were some foul and hideous thing.
+ - The forces that affect our lives, the influences that mold and shape us, are often like whispers in a different room, teasingly indistinct, apprehended only with difficulty.
+ - What are the odds so long as the fire of the soul is kindled at the taper of conviviality, and the wing of friendship never molts a feather?
+ - Time and tide will wait for no man, saith the adage. But all men have to wait for time and tide.
+ - Stranger, pause and ask thyself the question, Canst thou do likewise? If not, with a blush retire.
+ - There is nothing so strong or safe in an emergency of life as the simple truth.
+ - Cows are my passion. What I have ever sighed for has been to retreat to a Swiss farm, and live entirely surrounded by cows – and china.
+ - One always begins to forgive a place as soon as it’s left behind.
+ - My heart is set, as firmly as ever heart of man was set on woman. I have no thought, no view, no hope, in life beyond her; and if you oppose me in this great stake, you take my peace and happiness in your hands, and cast them to the wind.
+ - I had seen the damp lying on the outside of my little window, as if some goblin had been crying there all night, and using the window for a pocket-handkerchief.
+ - We must meet reverses boldly, and not suffer them to frighten us, my dear. We must learn to act the play out. We must live misfortune down, Trot!
+ - Please, sir, I want some more.
+ - You know what I am going to say. I love you. What other men may mean when they use that expression, I cannot tell; what I mean is, that I am under the influence of some tremendous attraction which I have resisted in vain, and which overmasters me.
+ - Vices are sometimes only virtues carried to excess!
+ - The men who learn endurance, are they who call the whole world, brother.
+ - Nothing that we do, is done in vain. I believe, with all my soul, that we shall see triumph.
+ - All of us have wonders hidden in our breasts, only needing circumstances to evoke them.
+ - In the little world in which children have their existence, whosoever brings them up, there is nothing so finely perceived and so finely felt, as injustice.
+ - Missionaries are perfect nuisances and leave every place worse than they found it.
+ - Charity begins at home, and justice begins next door.
+ - In life I was your partner, Jacob Marley.
+ - Moths, and all sorts of ugly creatures, hover about a lighted candle. Can the candle help it?
+ - Without strong affection, and humanity of heart, and gratitude to that Being whose code is mercy, and whose great attribute is benevolence to all things that breathe, true happiness can never be attained.
+ - When the time comes, let loose a tiger and a devil; but wait for the time with the tiger and the devil chained -not shown- yet always ready.
+ - Nature gives to every time and season some beauties of its own; and from morning to night, as from the cradle to the grave, it is but a succession of changes so gentle and easy that we can scarcely mark their progress.
+ - Papa, potatoes, poultry, prunes and prism, are all very good words for the lips.
+ - Home is a name, a word, it is a strong one; stronger than magician ever spoke, or spirit ever answered to, in the strongest conjuration.
+ - True love believes everything, and bears everything, and trusts everything.
+ - Fan the sinking flame of hilarity with the wing of friendship; and pass the rosy wine.
+ - There are books of which the backs and covers are by far the best parts.
+ - Veels vithin veels, a prison in a prison.
+ - When the moon shines very brilliantly, a solitude and stillness seem to proceed from her that influence even crowded places full of life.
+ - I am no more annoyed when I think of the expression, than I should be annoyed by a man’s opinion of a picture of mine, who had no eye for pictures; or of a piece of music of mine, who had no ear for music.
+ - A heart well worth winning, and well won. A heart that, once won, goes through fire and water for the winner, and never changes, and is never daunted.
+ - Reflect upon your present blessings.
+ - The civility which money will purchase, is rarely extended to those who have none.
+ - Constancy in love is a good thing; but it means nothing, and is nothing, without constancy in every kind of effort.
+ - I looked at the stars, and considered how awful it would be for a man to turn his face up to them as he froze to death, and see no help or pity in all the glittering multitude.
+ - The sun, – the bright sun, that brings back, not light alone, but new life, and hope, and freshness to man – burst upon the crowded city in clear and radiant glory. Through costly-coloured glass and paper-mended window, through cathedral dome and rotten crevice, it shed its equal ray.
+ - We never tire of the friendships we form with books.
+ - Oliver Twist has asked for more!
+ - It opens the lungs, washes the countenance, exercises the eyes, and softens down the temper; so cry away.
+ - There is no such passion in human nature, as the passion for gravy among commercial gentlemen.
+ - There was a long hard time when I kept far from me the remembrance of what I had thrown away when I was quite ignorant of its worth.
+ - Lawyers hold that there are two kinds of particularly bad witnesses – a reluctant witness, and a too-willing witness.
+ - It was very dark; but in the murky sky there were masses of cloud which shone with a lurid light, like monstrous heaps of copper that had been heated in a furnace, and were growing cold.
+ - It is because I think so much of warm and sensitive hearts, that I would spare them from being wounded.
+ - The cramped monotony of my existence grinds me away by the grain.
+ - Let me feel now what sharp distress I may.
+ - Thus violent deeds live after men upon the earth, and traces of war and bloodshed will survive in mournful shapes long after those who worked the desolation are but atoms of earth themselves.
+ - I have known a vast quantity of nonsense talked about bad men not looking you in the face. Don’t trust that conventional idea. Dishonesty will stare honesty out of countenance any day in the week, if there is anything to be got by it.
+ - Give me a moment, because I like to cry for joy. It’s so delicious, John dear, to cry for joy.
+ - Everybody said so. Far be it from me to assert that what everybody says must be true. Everybody is, often, as likely to be wrong as right.
+ - Have I yet to learn that the hardest and best-borne trials are those which are never chronicled in any earthly record, and are suffered every day!
+ - The privileges of the side-table included the small prerogatives of sitting next to the toast, and taking two cups of tea to other people’s one.
+ - I was so humiliated, hurt, spurned, offended, angry, sorry – I cannot hit upon the right name for the smart – God knows what its name was – that tears started to my eyes.
+ - There is nothing truer than physiognomy, taken in connection with manner.
+ - You should keep dogs-fine animals-sagacious.
+ - Mr. and Mrs. Boffin sat staring at mid-air, and Mrs. Wilfer sat silently giving them to understand that every breath she drew required to be drawn with a self-denial rarely paralleled in history.
+ - I ate ’umble pie with an appetite.
+ - Although a skillful flatterer is a most delightful companion if you have him all to yourself, his taste becomes very doubtful when he takes to complimenting other people.
+ - A man ain’t got no right to be a public man, unless he meets the public views.
+ - Money, says the proverb, makes money. When you have got a little, it is often easy to get more.
+ - Champagne is one of the elegant extras in life.
+ - Perhaps second-hand cares, like second-hand clothes, come easily off and on.
+ - Death may beget life, but oppression can beget nothing other than itself.
+ - A word in earnest is as good as a speech.
+ - There lives at least one being who can never change-one being who would be content to devote his whole existence to your happiness-who lives but in your eyes-who breathes but in your smiles-who bears the heavy burden of life itself only for you.
+ - Let me see you ride a donkey over my green again, and as sure as you have a head upon your shoulders, I’ll knock your bonnet off, and tread upon it!
+ - Ride on! Ride on over all obstacles and win the race.
+ - It is a melancholy truth that even great men have their poor relations.
+ - Every baby born into the world is a finer one than the last.
+ - My father’s family name being Pirrip, and my Christian name Philip, my infant tongue could make of both names nothing longer or more explicit than Pip. So, I called myself Pip, and came to be called Pip.
+ - Of all bad listeners, the worst and most terrible to encounter is the man who is so fond of listening that he wishes to hear, not only your conversation, but that of every other person in the room.
+ - Lord, keep my memory green.
+ - But injustice breeds injustice; the fighting with shadows and being defeated by them necessitates the setting up of substances to combat.
+ - I think the Romans must have aggravated one another very much, with their noses. Perhaps, they became the restless people they were, in consequence.
+ - A boy’s story is the best that is ever told.
+ - When a man bleeds inwardly, it is a dangerous thing for himself; but when he laughs inwardly, it bodes no good to other people.
+ - Now, I return to this young fellow. And the communication I have got to make is, that he has great expectations.
+ - For the night-wind has a dismal trick of wandering round and round a building of that sort, and moaning as it goes; and of trying, with its unseen hand, the windows and the doors; and seeking out some crevices by which to enter.
+ - It is not easy to walk alone in the country without musing upon something.
+ - I love your daughter fondly, dearly, disninterestedly, devotedly. If ever there were love in the world, I love her.
+ - Friendship? Yes Please.
+ - You may be an undigested bit of beef, a blot of mustard, a crumb of cheese, a fragment of underdone potato. There’s more of gravy than of grave about you, whatever you are!
+ - You speak so feelingly and so manfully, Charles Darnay.
+ - So, throughout life, our worst weaknesses and meannesses are usually committed for the sake of the people whom we most despise.
+ - I am light as a feather, I am as happy as an angel, I am as merry as a schoolboy.
+ - I never had one hour’s happiness in her society, and yet my mind all round the four-and-twenty hours was harping on the happiness of having her with me unto death.
+ - Your voice and music are the same to me.
+ - Circumstances beyond my individual control.
+ - I only ask to be free. The butterflies are free. Mankind will surely not deny to Harold Skimpole what it concedes to the butterflies.
+ - If her eyes had no expression, it was probably because they had nothing to express. If she had few wrinkles, it was because her mind had never traced its name or any other inscription on her face.
+ - The sergeant was describing a military life. It was all drinking, he said, except that there were frequent intervals of eating and love making.
+ - It’s over, and can’t be helped, and that’s one consolation, as they always say in Turkey, when they cut the wrong man’s head off.
+ - Although I am an old man, night is generally my time for walking.
+ - Train up a fig tree in the way it should go, and when you are old sit under the shade of it.
+ - To have a cricket on the hearth is the luckiest thing in all the world!
+ - Her contempt for me was so strong, that it became infectious, and I caught it.
+ - Pause you who read this, and think for a moment of the long chain of iron or gold, of thorns or flowers, that would never have bound you, but for the formation of the first link on one memorable day.
+ - You can only form the minds of reasoning animals upon Facts: nothing else will ever be of any service to them. Stick to Facts, sir!
+ - God bless us every one! said Tiny Tim, the last of all.
+ - There is something in sickness that breaks down the pride of manhood.
+ - He was by no means opposed to hard labour on principle, for he would work away at a cricket-match by the day together, – running, and catching, and batting, and bowling, and revelling in toil which would exhaust a galley-slave.
+ - Come, let’s be a comfortable couple and take care of each other! How glad we shall be, that we have somebody we are fond of always, to talk to and sit with.
+ - There was a frosty rime upon the trees, which, in the faint light of the clouded moon, hung upon the smaller branches like dead garlands.
+ - There’s a young man hid with me, in comparison with which young man I am a Angel. That young man hears the words I speak. That young man has a secret way pecooliar to himself, of getting at a boy, and at his heart, and at his liver.
+ - What an immense impression Paris made upon me. It is the most extraordinary place in the world!
+ - Let us leave our old friend in one of those moments of unmixed happiness which, if we seek them, there are ever some, to cheer our transitory existence here. There are dark shadows on the earth, but its lights are stronger in the contrast.
+ - External heat and cold had little influence on Scrooge. No warmth could warm, no wintry weather chill him. No wind that blew was bitterer than he, no falling snow was more intent upon its purpose, no pelting rain less open to entreaty.
+ - Hallo! A great deal of steam! the pudding was out of the copper. A smell like a washing-day! That was the cloth. A smell like an eating-house and a pastrycook’s next door to each other, with a laundress’s next door to that. That was the pudding.
+ - The leprosy of unreality disfigured every human creature in attendance.
+ - To close the eyes, and give a seemly comfort to the apparel of the dead, is poverty’s holiest touch of nature.
+ - Did it ever strike you on such a morning as this that drowning would be happiness and peace?
+ - When the wind is blowing and the sleet or rain is driving against the dark windows, I love to sit by the fire, thinking of what I have read in books of voyage and travel.
+ - My faith in the people governing is, on the whole, infinitesimal; my faith in the people governed is, on the whole, illimitable.
+ - One should never be ashamed to cry. Tears are rain on the dust of earth.
+ - In the moonlight which is always sad, as the light of the sun itself is – as the light called human life is – at its coming and its going.
+ - We lawyers are always curious, always inquisitive, always picking up odds and ends for our patchwork minds, since there is no knowing when and where they may fit into some corner.
+ - She had curiously thoughtful and attentive eyes; eyes that were very pretty and very good.
+ - How beautiful you are! You are more beautiful in anger than in repose. I don’t ask you for your love; give me yourself and your hatred; give me yourself and that pretty rage; give me yourself and that enchanting scorn; it will be enough for me.
+ - Life is made of ever so many partings welded together.
+ - I cannot help it; reason has nothing to do with it; I love her against reason-but who would as soon love me for my own sake, as she would love the beggar at the corner.
+ - Joe gave me some more gravy.
+ - Black are the brooding clouds and troubled the deep waters, when the Sea of Thought, first heaving from a calm, gives up its Dead.
+ - It may be only small injustice that the child can be exposed to; but the child is small, and its world is small, and its rocking-horse stands as many hands high, according to scale, as a big-boned Irish hunter.
+ - Nothing is discovered without God’s intention and assistance, and I suppose every new knowledge of His works that is conceded to man to be distinctly a revelation by which men are to guide themselves.
+ - You don’t carry in your countenance a letter of recommendation.
+ - Oh, a dainty plant is the ivy green, That creepeth o’er ruins old! Of right choice food are his meals, I ween, In his cell so lone and cold. Creeping where no life is seen, A rare old plant is the ivy green.
+ - A man must take the fat with the lean.
+ - An evening wind uprose too, and the slighter branches cracked and rattled as they moved, in skeleton dances, to its moaning music.
+ - The age of chivalry is past. Bores have succeeded to dragons.
+ - All other swindlers upon earth are nothing to the self-swindlers, and with such pretences did I cheat myself.
+ - My meaning is, that no man can expect his children to respect what he degrades.
+ - Think now and then that there is a man who would give his life, to keep a life you love beside you.
+ - You will profit by the failure, and will avoid it another time. I have done a similar thing myself, in construction, often. Every failure teaches a man something, if he will learn.
+ - But, in this separation I associate you only with the good and I will faithfully hold you to that always, for you have done far more good than harm, let me feel now what sharp distress I may.
+ - Buy an annuity cheap, and make your life interesting to yourself and everybody else that watches the speculation.
+ - She better liked to see him free and happy, even than to have him near her, because she loved him better than herself.
+ - I hope that real love and truth are stronger in the end than any evil or misfortune in the world.
+ - No varnish can hide the grain of the wood; and that the more varnish you put on, the more the grain will express itself.
+ - And O there are days in this life, worth life and worth death.
+ - The shadows of our own desires stand between us and our better angels, and thus their brightness is eclipsed.
+ - Of little worth as life is when we misuse it, it is worth that effort. It would cost nothing to lay down if it were not.
+ - Some women’s faces are, in their brightness, a prophecy; and some, in their sadness, a history.
+ - A little learning is a dangerous thing, but a little patronage more so.
+ - Drive him fast to his tomb. This, from Jacques.
+ - I have heard it said that as we keep our birthdays when we are alive, so the ghosts of dead people, who are not easy in their graves, keep the day they died upon.
+ - My hair stands on end at the cost and charges of these boys. Why was I ever a father! Why was my father ever a father!
+ - Any man may be in good spirits and good temper when he’s well dressed. There ain’t much credit in that.
+ - Try not to associate bodily defect with mental, my good friend, except for a solid reason.
+ - Their demeanor is invariably morose, sullen, clownish and repulsive. I should think there is not, on the face of the earth, a people so entirely destitute of humor, vivacity, or the capacity for enjoyment.
+ - Virtue shows quite as well in rags and patches as she does in purple and fine linen.
+ - Captain Cuttle, like all mankind, little knew how much hope had survived within him under discouragement, until he felt its death-shock.
+ - Keep out of Chancery. It’s being ground to bits in a slow mill; it’s being roasted at a slow fire; it’s being stung to death by single bees; it’s being drowned by drops; it’s going mad by grains.
+ - This is a world of action, and not moping and droning in.
+ - Gold, for the instant, lost its luster in his eyes, for there were countless treasures of the heart which it could never purchase.
+ - Let no man turn aside, ever so slightly, from the broad path of honour, on the plausible pretence that he is justified by the goodness of his end. All good ends can be worked out by good means.
+ - Surprises, like misfortunes, seldom come alone.
+ - Be natural my children. For the writer that is natural has fulfilled all the rules of art.
+ - All partings foreshadow the great final one.
+ - I confess I have yet to learn that a lesson of the purest good may not be drawn from the vilest evil.
+ - Polly put the kettle on, we’ll all have tea.
+ - Not knowing how he lost himself, or how he recovered himself, he may never feel certain of not losing himself again.
+ - Battledore and shuttlecock’s a wery good game, vhen you an’t the shuttlecock and two lawyers the battledores, in which case it gets too exciting to be pleasant.
+ - I am not old, but my young way was never the way to age.
+ - Marley was dead: to begin with.
+ - There can be no disparity in marriage like unsuitability of mind and purpose.
+ - Mr Lorry asks the witness questions: Ever been kicked? Might have been. Frequently? No. Ever kicked down stairs? Decidedly not; once received a kick at the top of a staircase, and fell down stairs of his own accord.
+ - Being that rare sort of old girl that she receives Good to her arms without a hint that it might be Better and catches light from any little spot of darkness near her.
+ - Time has been lost and opportunity thrown away, but I am yet a young man, and may retrieve it.
+ - My guiding star always is, Get hold of portable property.
+ - The day was made for laziness, and lying on one’s back in green places, and staring at the sky till its brightness forced one to shut one’s eyes and go to sleep...
+ - I saw that the bride within the bridal dress had withered like the dress, and like the flowers, and had no brightness left but the brightness of her sunken eyes.
+ - It was a long and gloomy night that gathered on me, haunted by the ghosts of many hopes, of many dear remembrances, many errors, many unavailing sorrows and regrets.
+ - The worst class of sum worked in the every-day world is cyphered by the diseased arithmeticians who are always in the rule of Subtraction as to the merits and successes of others, and never in Addition as to their own.
+ - It is well for a man to respect his own vocation whatever it is and to think himself bound to uphold it and to claim for it the respect it deserves.
+ - Scattered wits take a long time in picking up.
+ - Up the two terrace flights of steps the rain ran wildly, and beat at the great door, like a swift messenger rousing those within;.
+ - Renunciation remains sorrow, though a sorrow borne willingly.
+ - She dotes on poetry, sir. She adores it; I may say that her whole soul and mind are wound up, and entwined with it. She has produced some delightful pieces, herself, sir. You may have met with her ‘Ode to an Expiring Frog,’ sir.
+ - Prowling about the rooms, sitting down, getting up, stirring the fire, looking out the window, teasing my hair, sitting down to write, writing nothing, writing something and tearing it up...
+ - When I speak of home, I speak of the place where in default of a better – those I love are gathered together; and if that place where a gypsy’s tent, or a barn, I should call it by the same good name notwithstanding.
+ - The wind is rushing after us, and the clouds are flying after us, and the moon is plunging after us, and the whole wild night is in pursuit of us; but, so far we are pursued by nothing else.
+ - In the Destroyer’s steps there spring up bright creations that defy his power, and his dark path becomes a way of light to Heaven.
+ - Christmas may not bring a single thing; still, it gives me a song to sing.
+ - Sudden shifts and changes are no bad preparation for political life.
+ - In seasons of pestilence, some of us will have a secret attraction to the disease – a terrible passing inclination to die of it.
+ - While the flowers, pale and unreal in the moonlight, floated away upon the river; and thus do greater things that once were in our breasts, and near our hearts, flow from us to the eternal sea.
+ - That glorious vision of doing good is so often the sanguine mirage of so many good minds.
+ - Skewered through and through with office-pens, and bound hand and foot with red tape.
+ - The word of a gentleman is as good as his bond; and sometimes better.
+ - I know enough of the world now to have almost lost the capacity of being much surprised by anything.
+ - I will die here where I have walked. And I will walk here, though I am in my grave. I will walk here until the pride of this house is humbled.
+ - Miss Mills replied, on general principles, that the Cottage of content was better than the Palace of cold splendour, and that where love was, all was.
+ - There was a gay fiction among us that we were constantly enjoying ourselves, and a skeleton truth that we never did. To the best of my belief, our case was in the last respect a rather common one.
+ - Good never come of such evil, a happier end was not in nature to so unhappy a beginning.
+ - I want to escape from myself. For when I do start up and stare myself seedily in the face, as happens to be my case at present, my blankness is inconceivable – indescribable – my misery amazing.
+ - Dumb as a drum vith a hole in it, sir.
+ - A day wasted on others is not wasted on one’s self.
+ - Never imitate the eccentricities of genius, but toil after it in its truer flights. They are not so easy to follow, but they lead to higher regions.
+ - Other sound than the owl’s voice there was none, save the falling of a fountain into its stone basin; for, it was one of those dark nights that hold their breath by the hour together, and then heave a long low sigh, and hold their breath again.
+ - My life is one demd horrid grind.
+ - Rich folks may ride on camels, but it ain’t so easy for ’em to see out of a needle’s eye.
+ - I had considered how the things that never happen, are often as much realities to us, in their effects, as those that are accomplished.
+ - Let us be moral. Let us contemplate existence.
+ - Your sex have such a surprising animosity against one another, when you do differ.
+ - The worst of all listeners is the man who does nothing but listen.
+ - The aphorism “Whatever is, is right,” would be as final as it is lazy, did it not include the troublesome consequence that nothing that ever was, was wrong.
+ - She was truest to them in the season of trial, as all the quietly loyal and good will always be.
+ - When we came within sight of the sea, the waves on the horizon, caught at intervals above the rolling abyss, were like glimpses of another shore with towers and buildings.
+ - I admire machinery as much is any man, and am as thankful to it as any man can be for what it does for us. But it will never be a substitute for the face of a man, with his soul in it, encouraging another man to be brave and true.
+ - And numerous indeed are the hearts to which Christmas brings a brief season of happiness and enjoyment.
+ - Love, however, is very materially assisted by a warm and active imagination: which has a long memory, and will thrive, for a considerable time, on very slight and sparing food.
+ - Do not close your heart against all my efforts to help you...
+ - I never see any difference in boys. I only know two sorts of boys. Mealy boys and beef-faced boys.
+ - All the housemaid hopes is, happiness for ’em – but marriage is a lottery, and the more she thinks about it, the more she feels the independence and the safety of a single life.
+ - Send forth the child and childish man together, and blush for the pride that libels our own old happy state, and gives its title to an ugly and distorted image.
+ - There might be some credit in being jolly.
+ - A demd, damp, moist, unpleasant body!
+ - Mystery and disappointment are not absolutely indispensable to the growth of love, but they are, very often, its powerful auxiliaries.
+ - It was understood that nothing of a tender nature could possibly be confided to old Barley, by reason of his being totally unequal to the consideration of any subject more psychological than gout, rum, and purser’s stores.
+ - There are hopes, the bloom of whose beauty would be spoiled by the trammels of description; too lovely, too delicate, too sacred for words, they should only be known through the sympathy of hearts.
+ - My daughter, there are times of moral danger when the hardest virtuous resolution to form is flight, and when the most heroic bravery is flight.
+ - The rain and hail pattered against the glass; the chimneys quaked and rocked; the crazy casement rattled with the wind, as though an impatient hand inside were striving to burst it open. But no hand was there, and it opened no more.
+ - I have had my share of sorrows-more than the common lot, perhaps, but I have borne them ill. I have broken where I should have bent; and have mused and brooded, when my spirit should have mixed with all God’s great creation.
+ - This was my only and my constant comfort. When I think of it, the picture always rises in my mind, of a summer evening, the boys at play in the churchyard, and I sitting on my bed, reading as if for life.
+ - I have a heart to be stabbed in or shot in, I have no doubt, and, of course, if it ceased to beat, I would cease to be. But you know what I mean. I have no softness there, no – sympathy – sentiment – nonsense.
+ - Dignity, and even holiness too, sometimes, are more questions of coat and waistcoat than some people imagine.
+ - Opening her eyes again, and seeing her husband’s face across the table, she leaned forward to give it a pat on the cheek, and sat down to supper, declaring it to be the best face in the world.
+ - Christmas is a time in which, of all times in the year, the memory of every remediable sorrow, wrong, and trouble in the world around us, should be active with us, not less than our own experiences, for all good.
+ - A man in public life expects to be sneered at – it is the fault of his elevated situation, and not of himself.
+ - If you could see my legs when I take my boots off, you’d form some idea of what unrequited affection is.
+ - From the days when it was always summer in Eden, to these days when it is mostly winter in fallen latitudes, the world of a man has invariably gone one way Charles Darnay’s way the way of the love of a woman.
+ - The habit of paying compliments kept a man’s tongue oiled without any expense.
+ - The more man knows of man, the better for the common brotherhood among men.
+ - Detestation of the high is the involuntary homage of the low.
+ - The wine-shops breed, in physical atmosphere of malaria and a moral pestilence of envy and vengeance, the men of crime and revolution.
+ - Oh the nerves, the nerves; the mysteries of this machine called man! Oh the little that unhinges it, poor creatures that we are!
+ - Can I view thee panting, lying On thy stomach, without sighing; Can I unmoved see thee dying On a log Expiring frog!
+ - When we have done our very, very best, papa, and that is not enough, then I think the right time must have come for asking help of others.
+ - Listlessness to everything, but brooding sorrow, was the night that fell on my undisciplined heart. Let me look up from it – as at last I did, thank Heaven! – and from its long, sad, wretched dream, to dawn.
+ - You can’t make a head and brains out of a brass knob with nothing in it. You couldn’t do it when your uncle George was living much less when he’s dead.
+ - The beating of my heart was so violent and wild that I felt as if my life were breaking from me.
+ - Regrets are the natural property of grey hairs.
+ - The New Testament is the very best book that ever was or ever will be known in the world.
+ - Tongue; well that’s a wery good thing when it an’t a woman.
+ - Heaven suits the back to the burden.
+ - Keep up appearances whatever you do.
+ - Really, for a man who had been out of practice for so many years it was a splendid laugh!
+ - We must leave the discovery of this mystery, like all others, to time, and accident, and Heaven’s pleasure.
+ - There are only two styles of portrait painting; the serious and the smirk.
+ - He would make a lovely corpse.
+ - Shall we speak of the inspiration of a poet or a priest, and not of the heart impelled by love and self-devotion to the lowliest work in the lowliest way of life?
+ - I distress you; I draw fast to an end.
+ - Anything that makes a noise is satisfactory to a crowd.
+ - The plain rule is to do nothing in the dark, to be a party to nothing underhanded or mysterious, and never to put his foot where he cannot see the ground.
+ - He had but one eye and the pocket of prejudice runs in favor of two.
+ - They are so filthy and bestial that no honest man would admit one into his house for a water-closet doormat.
+ - The American woman is a monstrosity.
+ - But, tears were not the things to find their way to Mr. Bumble’s soul; his heart was waterproof.
+ - Loves and Cupids took to flight afraid, and Martyrdom had no such torment in its painted history of suffering.
+ - Home is a word stronger than a magician ever spoke.
+ - Around and around the house the leaves fall thick, but never fast, for they come circling down with a dead lightness that is sombre and slow.
+ - There is no substitute for thoroughgoing, ardent, and sincere earnestness.
+ - There is a Sunday conscience as well as a Sunday coat; and those who make religion a secondary concern put the coat and conscience carefully by to put on only once a week.
+ - I think it must somewhere be written that the virtues of mothers shall be visited on their children, as well as the sins of their fathers.
+ - Christmas time! That man must be a misanthrope indeed, in whose breast something like a jovial feeling is not roused – in whose mind some pleasant associations are not awakened – by the recurrence of Christmas.
+ - I could settle down into a state of equable low spirits, and resign myself to coffee.
+ - He was a very young boy; quite a little child. His hair still hung in curls about his face, and his eyes were very bright; but their light was of Heaven, not earth.
+ - May not the complaint, that common people are above their station, often take its rise in the fact of uncommon people being below theirs?
+ - It was darkly rumoured that the butler, regarding him with favour such as that stern man had never shown before to mortal boy, had sometimes mingled porter with his table beer to make him strong.
+ - You are always training yourself to be, mind and body, as clear as crystal, and you always are, and never change; whereas I am a muddy, solitary, moping weed.
+ - A dangerous quality, if real; and a not less dangerous one, if feigned.
+ - Bring in the bottled lightning, a clean tumbler, and a corkscrew.
+ - I made a compact with myself that in my person literature should stand by itself, of itself, and for itself.
+ - Poetry’s unnat’ral; no man ever talked poetry ‘cept a beadle on boxin’ day.
+ - Why then we should drop into poetry.
+ - Strong mental agitation and disturbance was no novelty to him, even before his late sufferings. It never is, to obstinate and sullen natures; for they struggle hard to be such.
+ - To be allowed to call her “Dora”, to write to her, to dote upon and worship her, to have reason to think that when she was with other people she was yet mindful of me, seemed to me the summit of human ambition – I am sure it was the summit of mine.
+ - The universe, he observed, makes rather an indifferent parent, I am afraid.
+ - The aim of talk should be like the aim of a flying arrow – to hit the mark; but to this end there must be a mark to hit, that is, there must be a listener.
+ - Everything that Mr Smallweed’s grandfather ever put away in his mind was a grub at first, and is a grub at last. In all his life he has never bred a single butterfly.
+ - I should never have made my success in life if I had not bestowed upon the least thing I have ever undertaken the same attention and care that I have bestowed upon the greatest.
+ - Probably every new and eagerly expected garment ever put on since clothes came in, fell a trifle short of the wearer’s expectation.
+ - Have a heart that never hardens.
+ - Money and goods are certainly the best of references.
+ - Mrs Joe was a very clean housekeeper, but had an exquisite art of making her clenliness more umcomfortable and unacceptable than dirt itself. Cleanliness is next to godliness, and some people do the same by their religion.
+ - Eccentricities of genius.
+ - Mrs. Boffin and me, ma’am, are plain people, and we don’t want to pretend to anything, nor yet to go round and round at anything because there’s always a straight way to everything.
+ - They don’t mind it: its a reg’lar holiday to them – all porter and skittles.
+ - And I am quite serious when I say that I do not believe there are, on the whole earth besides, so many intensified bores as in these United States.
+ - May I tell you why it seems to me a good thing for us to remember wrong that has been done us? That we may forgive it.
+ - It was a good thing to have a couple of thousand people all rigid and frozen together, in the palm of one’s hand.
+ - Newman cast a despairing glance at his small store of fuel, but, not having the courage to say no-a word which in all his life he never had said at the right time, either to himself or anyone else-gave way to the proposed arrangement.
+ - That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity’s small change in general society.
+ - It is not possible to know how far the influence of any amiable, honest-hearted duty-doing man flies out into the world, but it is very possible to know how it has touched one’s self in going by.
+ - What lawsuits grow out of the graves of rich men, every day; sowing perjury, hatred, and lies among near kindred, where there should be nothing but love!
+ - Why, Mrs. Piper has a good deal to say, chiefly in parentheses and without punctuation, but not much to tell.
+ - Hours are golden links – God’s tokens reaching heaven.
+ - And still I stood looking at the house, thinking how happy I should be if I lived there with her, and knowing that I never was happy with her, but always miserable.
+ - Nobody near me here, but rats, and they are fine stealthy secret fellows.
+
+500 quotes

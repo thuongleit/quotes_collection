@@ -1,0 +1,120 @@
+ - Vision is a picture of the future that produces passion.
+ - The local church is the hope of the world.
+ - God made you on purpose, for a purpose.
+ - Everyone wins when a leader gets better.
+ - Self awareness allows you to self-correct.
+ - Storms draw something out of us that calm seas don’t.
+ - There is nothing like the local church when the local church is working right.
+ - If the request is wrong, God says, No. If the timing is wrong, God says, Slow. If you are wrong, God says, Grow. But if the request is right, the timing is right and you are right, God says, Go!
+ - Many leadership problems are driven by low self-awareness.
+ - The only way to motivate people is to live a motivated life in front of them.
+ - Leadership grit begets grit. Lead by example.
+ - Religion is spelled DO. Christianity is spelled DONE. One endlessly works to earn love. The other simply receives it!
+ - The local church is the hope of the world, and its future rests primarily in the hands of its leaders.
+ - Simplified living is about more than doing less. It’s being who God called us to be, with a wholehearted, single-minded focus.
+ - It’s one thing to see a vision; it’s another thing to be seized by a vision.
+ - You’re a leader. It’s your job to keep your passion hot. Do whatever you have to do, read whatever you have to read, go wherever you have to go to stay fired up. And don’t apologize to anybody.
+ - It’s not the things I don’t understand about the Bible that bother me; it’s the things I understand with perfect clarity and don’t comply with that keep me up at night.
+ - People join organizations, they leave managers.
+ - The mark of community is not the absence of conflict. It’s the presence of a reconciling spirit.
+ - You are the most difficult person you will ever lead.
+ - Your energy and the ability to energize others is more valuable than your time.
+ - I would never want to reach out someday with a soft, uncallused hand-a hand never dirtied by serving-and shake the nail-pierced hand of Jesus.
+ - The heart and soul of the Christian life is learning to hear God’s voice and then developing the courage to do what he asks us to do.
+ - When you get to the end will God say, “Well done,” or, “What was up with that?”
+ - Vision is the most powerful weapon in the leader’s arsenal.
+ - Build something with enduring value.
+ - Leadership is the catalytic gift that energizes, directs, and empowers all the other gifts.
+ - You may well have to simplify to live the life God is inviting you to live.
+ - How do you pray a prayer so filled with faith that it can move a mountain? By shifting your focus from the size of your mountain to the sufficiency of the Mountain Mover and then stepping forward in obedience.
+ - People will not follow a leader with moral incongruities for long. Every time you compromise character you compromise leadership. The foundation of firm leadership is character.
+ - It’s amazing how many coincidences occur when one begins to pray.
+ - God led Jesus to a cross, not a crown, and yet that cross ultimately proved to be the gateway to freedom and forgiveness for every sinner in the world.
+ - The real deal is always going to win in the end.
+ - You can live and lead small, live and lead safe, live and lead selfishly, or you can pursue a grander vision.
+ - If you lower the ambient noise of your life and listen expectantly for those whispers of God, your ears will hear them. And when you follow their lead, your world will be rocked.
+ - The worst days of leadership beat the best days of being an onlooker.
+ - If you don’t change your schedule, you’ll be the same person you’ve always been.
+ - Authentic Christians are persons who stand apart from others. Their character seems deeper, their ideas fresher, their spirit softer, their courage greater, their leadership stronger, their concerns wider, their compassion more genuine and their convictions more concrete.
+ - One of the greatest joys of leadership is assembling and knitting together teams of fantastic people.
+ - Busyness is the unrivaled archenemy of spiritual authenticity.
+ - Authentic Christianity is a supernatural walk with a living, dynamic, communicating God.
+ - There isn’t a single motivation, thought, act, or word that has slipped out of your being and escaped the full, undivided attention of God.
+ - If there is ever a time crying out for courageous leadership, its now.
+ - If we were to boil down Christianity to its core, we’d be left with simply this: relationship with God. The living, loving God of the universe has spoken throughout history, and still speaks today – not just to pastors or priests, but to anyone who will listen. God will speak to you.
+ - Live each day with an open ear toward heaven, eager to respond to any whisper from God.
+ - One of the greatest thrills in all of life is to feel the hand of God working through you and to be a part of the working reality of the church engaged in a movement larger than self.
+ - Church is what you do. Church is who you are. Church is the human outworking of the person of Jesus Christ. Let’s not go to Church, let’s be the Church.
+ - Whatever the capacity for human suffering, the church has a greater capacity for healing and wholeness.
+ - If I’ve learned anything about prayer, it’s that desperation drives discipline.
+ - Truly, spiritual courage is on the endangered character-quality list.
+ - Don’t get so addicted to vision that the people feel like equipment.
+ - Leadership is not for the faint of heart.
+ - You have never looked in the eyes of someone who does not matter to God.
+ - Leaders need to have a ruthless commitment to resolving relational conflict regardless of how bad it feels.
+ - We live in a world that is crying out for better leadership.
+ - Great leadership is by definition relentlessly developmental.
+ - God didn’t make you a leader to respond to stuff all day. He made you a leader to move things forward.
+ - Most of us are far too busy for our own spiritual good.
+ - If you’re a serious minded leader, you will read. You will read all you can. You will read when you feel like it, and you will read when you don’t. You will do whatever you have to do to increase your leadership input, because you know as well as I do that it will make you better.
+ - To be developed as a leader, failure must be allowed. Failure only helps us improve.
+ - Most people feel best about themselves when they have given their very best.
+ - It takes a great deal of courage to follow another person’s lead.
+ - Savor every day you have the privilege to lead.
+ - We all have strengths, weaknesses and blind spots. In fact, an average person has 3.4 blind spots.
+ - Prayerless people cut themselves off from God’s prevailing power, and the frequent result is the familiar feeling of being overwhelmed, overrun, beaten down, pushed around, defeated. Surprising numbers of people are willing to settle for lives like that.
+ - The best gift you can give a human being is an introduction to a God who loves them.
+ - The tithe is a wonderful goal but a terrible place to stop.
+ - If your life is rushing in many directions at once, you are incapable of the kind of deep, unhurried prayer that is vital to the Christian walk.
+ - A leader’s most valuable asset is not their time but their energy and ability to energize others.
+ - Legacy leaders are the only ones wiling to pay the price to fix a broken culture.
+ - Every single decision you make as a leader has an effect on the spirit of those you lead.
+ - Visionary people face the same problems everyone else faces; but rather than get paralyzed by their problems, visionaries immediately commit themselves to finding a solution.
+ - We will probably have to pay a price for devoting our lives to building the kingdom of God. Jesus did.
+ - Leadership in church is one of the biggest challenges that the Church is facing because without strong leadership, the church rarely lives out its redemptive potentials.
+ - God wants to father all of us until we’re dead sure of his approval, his guiding power and his promise of heaven.
+ - Wise leaders understand that the single greatest determinant of whether followers will ever own a vision deeply is the extent to which whose followers believe the leader will own it.
+ - The Lord’s Prayer is an excellent model, but it was never intended to be a magical incantation to get God’s attention. Jesus gave this prayer as a pattern to suggest the variety of elements that should be included when we pray.
+ - Whenever you see something going well – whenever light begins to chase back the darkness that threatens to engulf our world – look closely. There stands a leader who is holding that candle.
+ - Effective leaders do not fear passion. They welcome it. But from time to time passionate discussions digress into personal attacks, and real people get really hurt. In my view, leaders must head that off before it happens.
+ - One thing is that life’s great moments evolve from simple acts of cooperation with God’s mysterious promptings-nudges that always lean toward finding what’s been lost and freeing what’s been enslaved .
+ - I can usually sense that a leading is from the Holy Spirit when it calls me to humble myself, serve somebody, encourage somebody or give something away. Very rarely will the evil one lead us to do those kinds of things.
+ - Leadership requires a non-stop demand of fortitude from Day 1 to the end.
+ - You don’t have to be any more talented, any richer, any slimmer, any smarter, any more or less of anything to partner with God. All you have to be is willing to be used by him in everyday way.
+ - The more varied the environments in which you exercise your leadership gift, the stronger that gift will become. You will become a far more effective leader.
+ - Humility enables us to learn from each other.
+ - Dignity does not float down from heaven it cannot be purchased nor manufactured. It is a reward reserved for those who labor with diligence.
+ - It’s incredible to realize that what we do each day has meaning in the big picture of God’s plan.
+ - It’s a huge responsibility to have influence and to steward it in a way that leads to God-honoring leadership.
+ - The grander the vision the greater the price tag.
+ - Our minds, like the needle in that compass, can focus on a variety of subjects throughout the day. But in the end, when they’re left alone to settle, they’ll focus on the objects of our greatest affection.
+ - People won’t give their best unless their leader challenges them to do so.
+ - Jesus is not directing the angelic choir, taking long naps, or doing crossword puzzles. He is completely focused on building his church, the hope of the world.
+ - Those churches have closed down or have been merged with a church that has a more positive vision.
+ - More than anything, people want the reality of the discussion at hand. If what is going on in that building is the real thing, if the transforming love and power of Jesus Christ is being experienced, you can sit on a metal folding chair or in a plush theater seat.
+ - I look at tens of thousands of church leaders who still do need a bit of an awakening.
+ - You cannot do leadership without a source of regenerative strength. What is your source?
+ - If it’s the last thing I do, I will give every ounce of the rest of my life to helping leaders and churches get better.
+ - The nature of human beings is such that we tend not to drift into better behaviors. We usually have to be asked by someone to consider taking it up a level.
+ - If leaders don’t have an antidote for fear they will be crushed by it. What is your antidote?
+ - Don’t steamroll your way into a conversation before establishing any relational credibility.
+ - Is the ambient noise level of my life low enough for me to hear the whispers of the Lord?
+ - You can never underestimate the amount of energy and frequency you must give to vision casting. You can never underestimate it.
+ - Playing around is one thing; following an established regimen is quite another. It’s true with exercise equipment and it is true with prayer.
+ - If you’re a serious minded leader, you will read. You will read all you can.
+ - Our conduct will never change God’s character.
+ - The Church will never reach her full redemptive potential until men and women with the leadership gift step up and lead.
+ - Life is too short and the world too compassion-starved for you to keep subsisting in situations that drag you down and curtail your potential to help advance the Kingdom. There’s just too much at stake.
+ - Enjoy every single day you get to lead because it will be over in a blink.
+ - Ten years ago, 15 years ago, I think the church would have been asleep at the switch. This level of activism and engagement with the needs of society by local churches I never thought I’d see it in my lifetime.
+ - This is the only leadership life I get, my one and only shot at following God the way I feel him prompting me to do so. This isn’t some pre-game warm-up. It’s the game, and the clock is ticking!
+ - Nothing that matters in this world happens unless leaders lead it.
+ - Destructive fear must be stopped in its tracks or it will undermine the life God invites us to live.
+ - If you are too busy or too proud to pray with your children, you are too busy and too proud.
+ - The Christian life is one of faith, where we find ourselves routinely overdriving our headlights but knowing it’s okay because God is in control and has a purpose behind it.
+ - Your culture will only ever be as healthy as the senior leader wants it to be.
+ - I hate thinking about it, teaching about it, and writing about it. But the plain truth is that hell is real and real people go there for eternity.
+ - Develop your reflective will and gain better insight before you say or do something.
+ - God delights in pouring his favor on obedient risk takers.
+
+118 quotes

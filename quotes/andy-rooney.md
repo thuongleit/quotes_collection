@@ -1,0 +1,181 @@
+ - Everyone wants to live on top of the mountain, but all the happiness and growth occurs while you’re climbing it.
+ - Being kind is more important than being right.
+ - If you smile when no one else is around, you really mean it.
+ - Always keep your words soft and sweet, just in case you have to eat them.
+ - Great teachers are usually a little crazy.
+ - I’ve learned that life is like a roll of toilet paper. The closer it gets to the end, the faster it goes.
+ - The best thing about a vacation is planning it.
+ - The great virtue of being alone is that your mind can go its own way.
+ - The average dog is a nicer person than the average person.
+ - It’s paradoxical that the idea of living a long life appeals to everyone, but the idea of getting old doesn’t appeal to anyone.
+ - I’ve learned that under everyone’s hard shell is someone who wants to be appreciated and loved.
+ - My advice is not to wait to be struck by an idea. If you’re a writer, you sit down and damn well decide to have an idea. That’s the way to get an idea.
+ - Most of us end up with no more than five or six people who remember us. Teachers have thousands of people who remember them for the rest of their lives.
+ - Go to bed. Whatever you’re staying up late for isn’t worth it.
+ - Guns do not make you a killer. I think killing makes you a killer. You can kill someone with a baseball bat or a car, but no one is trying to ban you from driving to the ball game.
+ - We need people who can actually do things. We have too many bosses and too few workers.
+ - Computers make it easier to do a lot of things, but most of the things they make it easier to do don’t need to be done.
+ - The 50-50-90 rule: anytime you have a 50-50 chance of getting something right, there’s a 90% probability you’ll get it wrong.
+ - We’re all torn between the desire for privacy and the fear of lonliness. We need each other and we need to get away from each other. We need proximity and distance, conversation and silence. We almost always get more of each than we want at any one time.
+ - Men wake up aroused in the morning. We can’t help it. We just wake up and we want you. And the women are thinking, “How can he want me the way I look in the morning?” It’s because we can’t see you. We have no blood anywhere near our optic nerve.
+ - The two biggest sellers in any bookstore are the cookbooks and the diet books. The cookbooks tell you how to prepare the food, and the diet books tell you how not to eat any of it!
+ - Don’t rule out working with your hands. It does not preclude using your head.
+ - You’re almost always better off keeping your mouth shut, but don’t let that stop you from popping off.
+ - I’ve learned that no matter how serious your life requires you to be, everyone needs a friend to act goofy with.
+ - The last birthday that’s any good is 23.
+ - Familiar things are a comfort to us all.
+ - Everyone starts out being an atheist. No one is born with belief in anything. Infants are atheists until they are indoctrinated.
+ - One of my major shortcomings – I’m vindictive. I don’t know why that is. Even in petty things in my life I tend to strike back. It’s a lot more pleasurable a sensation than feeling threatened.
+ - Most of us aren’t that interested in getting rich- we just don’t want to get poor.
+ - Creativity is a by-product of hard work. If I never have another really new idea, it won’t matter.
+ - Dogs are nicer than people.
+ - It isn’t working that’s so hard, it’s getting ready to work.
+ - All economists should be locked up until they admit that they don’t know what they’re talking about.
+ - Civilization means conforming to a standard of behavior that may not seem natural to us.
+ - Bacon is clearly a food made by the Nazis to fatten up Americans. It has no nutritional value, is full of fat, sodium, and nitrates, and is a pathetic type of consumable made from the noblest of creatures.
+ - In the futile attempts we all make to tidy up our lives and our surroundings, nothing is more difficult than throwing out a book.
+ - I am not retiring. Writers don’t retire. Writers never stop writing.
+ - No one ever writes a book in which he is the bad guy.
+ - New ideas are one of the most overrated concepts of our time. Most of the important ideas that we live with aren’t new at all.
+ - Happiness depends more on how life strikes you than on what happens.
+ - The biggest seller is cookbooks and the second is diet books – how not to eat what you’ve just learned how to cook.
+ - I am interested in details. If you go into anything far enough, you get into the details of it, and people turn out to be interested in what makes things work.
+ - I didn’t get old on purpose, it just happened. If you’re lucky, it could happen to you.
+ - People like to say, “You’re only as old as you feel,” but it isn’t true. It’s just something old people say to make themselves feel good about their age. You’re as old as you are.
+ - Walking is good for the soul.
+ - I mean, I’m not a sexist person, but a woman has no business being down there trying to make some comment about a football game.
+ - All men are not created equal but should be treated as though they were under the law.
+ - Women realize it’s not worth buying an entire pig just to get a little sausage!
+ - I try to look nice. I comb my hair, I tie my tie, I put on a jacket, but I draw the line when it comes to trimming my eyebrows. You work with what you got.
+ - I don’t know anything offhand that mystifies Americans more than the cotton they put in pill bottles. Why do they do it? Are you supposed to put the cotton back in once you’ve taken a pill out?
+ - I don’t think the government is out to get me or help someone else get me but it wouldn’t surprise me if they were out to sell me something or help someone else sell me something. I mean, why else would the Census Bureau want to know my telephone number?
+ - The closing of a door can bring blessed privacy and comfort – the opening, terror. Conversely, the closing of a door can be a sad and final thing – the opening a wonderfully joyous moment.
+ - I’d like to be rich enough so I could throw soap away after the letters are worn off.
+ - Most of us believe everyone has a right to his own opinion – as long as it agrees with ours.
+ - Once you pass forty, a dime isn’t worth bending over to pick up if you drop one.
+ - I like Valentine’s Day. The trouble is the florists and the candy-makers and the card people are all advertising so much, you don’t dare let the day go by without making an offering, whether you mean it or not. Money exceeds affection.
+ - The English language is more complex than calculus because numbers don’t have nuances.
+ - People waiting for an elevator don’t know what to do, standing with strangers. There is nothing to do. Its an uneasy time. Some press the button repeatedly as though it would help.
+ - Anyone should be very suspicious of a sentence he’s written that can’t be read aloud easily.
+ - Democrats believe people are basically good but must be saved from themselves by the government. Republicans believe people are basically bad but they’ll be okay if they’re left alone.
+ - I just wish we knew a little less about his urethra and a little more about his arms sales to Iran.
+ - My mother always called me ‘sturdy’ and said I have big bones. A little fat is what I am.
+ - It’s best to give advice in only two circumstances; when it’s requested, and when it’s a life threatening situation.
+ - Writers don’t retire. I will always be a writer.
+ - You’re better off missing a bus or an airplane once in a while than you are getting there too early all the time.
+ - I hope all of you are going to fill out your census form when it comes in the mail next month. If you don’t return the form the area you live in might get less government money and you wouldn’t want that to happen, would you.
+ - A writer’s job is to tell the truth.
+ - We all ought to understand we’re on our own. Believing in Santa Claus doesn’t do kids any harm for a few years but it isn’t smart for them to continue waiting all their lives for him to come down the chimney with something wonderful. Santa Claus and God are cousins.
+ - We’re all proud of making little mistakes. It gives us the feeling we don’t make any big ones.
+ - The dullest Olympic sport is curling, whatever ‘curling’ means.
+ - Did you ever notice that people who are good with a computer don’t use it for much of anything except being good with a computer? They know all about information technology, but they don’t have much interest in the information. I’m the opposite.
+ - If you put on an item of clothing that hurts just because you have an idea it looks better or conforms to what other people are wearing, it’s dumb.
+ - One of the sweetest things in life: a letter from a friend.
+ - Milk without fat is like nonalcoholic Scotch.
+ - Making duplicate copies and computer printouts of things no one wanted even one of in the first place is giving America a new sense of purpose.
+ - Never trust the food in a restaurant on top of the tallest building in town that spends a lot of time folding napkins.
+ - Don’t take a butcher’s advice on how to cook meat. If he knew, he’d be a chef.
+ - I did not believe in the war. I thought it was wrong to go into any war. And I got to the war, and saw the Germans, and I changed my mind. I decided we were right going into World War II.
+ - Person-to-person, most people are honest.
+ - There is obviously a great human need for religion because life seems to be such a mystery.
+ - There are sixteen cans of coffee here; together they hold a total of thirteen and a half pounds of coffee. Doesn’t that seem like cheating?
+ - We should change our attitude toward the United Nations. There has to be some power in the world superior to our own. We should not have attacked Iraq without the okay of the United Nations. Now we have to live with that mistake. We’re living with it, and too many of our guys are dying with it.
+ - Numbers tend to give the impression that there’s more order in the world than there is.
+ - I’m in a position of feeling secure enough so that I can say what I think is right and if so many people think it’s wrong that I get fired, well, I’ve got enough to eat.
+ - When it comes to educating all of us about the most basic things in life, it seems to me we need more kindergartens and fewer graduate schools.
+ - I’d like to take some calculus, too. I have absolutely no ability in that direction and not much interest, either, but there’s something going on in mathematics that I don’t understand, and I’d like to find out what it is.
+ - Anyone who watches golf on television would enjoy watching the grass grow on the greens.
+ - Conservatives are more religious than liberals – although there is no evidence that they’re nicer people because of it.
+ - Taxes are important. President Bush’s tax proposals leave no rich person behind. Voters approve of President Bush helping the kind of people they wish they were one of.
+ - No one likes the house next door to look worse or a lot better than his own.
+ - In Washington, a confidential assistant is someone who, if you don’t want to know something, you go and ask him and he won’t tell you.
+ - Most college students are not as smart as most college presidents.
+ - Before a kid learns how to use a computer that can solve mathematical problems, he or she should know how to do arithmetic without a computer.
+ - If you get murdered because you go on a date with someone you met on the Internet, you probably deserved it.
+ - I like animals who trust people.
+ - If I’d known how many problems I was going to run into before I finished, I can’t remember a single project I would have started.
+ - The average bright young man who is drafted hates the whole business because an army always tries to eliminate the individual differences in men.
+ - The Super Bowl isn’t for kids, I had a great time though and it was worth every nickel of it because by doing this lame piece about the game I can put it on my expense account.
+ - We aren’t consistent in our treatment of animals.
+ - Love is more pleasant once you get out of your twenties. It doesn’t hurt all the time.
+ - When those waiters ask me if I want some fresh ground pepper, I ask if they have any aged pepper.
+ - I’m always on the lookout for something good about people. Often months go by.
+ - By the time they’re ready to be thrown away, most shoes are thoroughly comfortable.
+ - The fastest thing computers do is go obsolete.
+ - In a conversation, keep in mind that you’re more interested in what you have to say than anyone else is.
+ - Death is a distant rumor to the young.
+ - Let’s face it, though, anything that’s apt to happen to an appliance like a blender isn’t covered by the warranty anyway, so I never send them in. If it breaks, I’ll buy a new one. That’s the American way.
+ - We can all be prouder to be human beings, because that’s what they were. They make up for a lot of liars, cheats, and terrorists among us.
+ - Vegetarian – that’s an old Indian word meaning lousy hunter.
+ - Phyllis Schlafly speaks for all American women who oppose equal rights for themselves.
+ - There’s nothing people like better than being asked an easy question. For some reason, we’re flattered when a stranger asks us where Maple Street is in our hometown and we can tell him.
+ - Numbers are the most certain things we have.
+ - I mean, the notion that we must love everything in this country or get out and go someplace else is ridiculous. I mean, if you – the best thing a patriotic American can do is to look and be critical and find out what’s wrong and try to make it better. That’s what a patriotic American does.
+ - Space, like Switzerland, should be neutral.
+ - People will generally accept facts as truth only if the facts agree with what they already believe.
+ - I don’t differentiate much, except in degree, between people who believe in religion from those who believe in astrology, magic or the supernatural.
+ - The third rule of life is this: Everything you buy today is smaller, more expensive, and not as good as it was yesterday.
+ - Sooner or later the world will have to return to the good old days when we fought wars and killed people the old-fashioned way, one at a time.
+ - Soap, like people, shouldn’t smell like anything.
+ - If you do see me in a restaurant, please, just let me eat my dinner.
+ - When you get older you have to be careful about always saying, “Things aren’t as good as they used to be.” But it’s hard not to.
+ - I’ve done a lot of complaining here, but of all the things I’ve complained about, I can’t complain about my life.
+ - A cat’s idea of a ‘good time’ is to kill something.
+ - It’s ridiculous for a country to get all worked up about a game – except the Super Bowl, of course. Now that’s important.
+ - Looking and not finding is certainly one of the most frustrating ways to spend time.
+ - I never understood retirement. What is the attraction of retirement? I go down there to Florida and look around and I said, my God, who wants this? Not me.
+ - I believe the money I make belongs to me and my family, not some governmental stooge with a bad comb-over who wants to give it away to crack addicts for squirting out babies.
+ - In spite of some bad experiences, I’m a firm believer in the trial and error method of learning.
+ - It would be a better world if everyone in it knew all the truth about everything.
+ - I had one typewriter for 50 years, but I have bought seven computers in six years. I suppose that’s why Bill Gates is rich, and Underwood is out of business.
+ - Let’s make a statement to the airlines just to get their attention. We’ll pick a week next year and we’ll all agree not to go anywhere for seven days.
+ - Every one starts out being an atheist.
+ - You can’t be a good writer without being a good thinker.
+ - The world must be filled with unsuccessful musical careers like mine, and it’s probably a good thing. We don’t need a lot of bad musicians filling the air with unnecessary sounds. Some of the professionals are bad enough.
+ - I like ice hockey, but it’s a frustrating game to watch. It’s hard to keep your eyes on both the puck and the players and too much time passes between scoring in hockey. There are usually more fights than there are points.
+ - Would a real man get caught eating a twinkie?
+ - We’re all torn between the desire for privacy and the fear of loneliness.
+ - Finding the tool is often half the battle.
+ - I’d be more willing to accept religion, even if I didn’t believe it, if I thought it made people nicer to each other but I don’t think it does.
+ - I never get over feeling bad about tearing open a beautifully wrapped present. It takes ten seconds to destroy a work of art that took someone ten minutes to accomplish.
+ - I don’t pick subjects as much as they pick me.
+ - We’ve sent a man to the moon and that’s 29,000 miles away. The center of the Earth is only 4,000 miles away. You could drive that in a week but for some reason nobody’s ever done it.
+ - If, on the other hand, happiness depends on a good breakfast, flowers in the yard, a drink or a nap, then we are more likely to live with quite a bit of happiness.
+ - As an old reporter, we have a few secrets, and the first thing is we try the phone book.
+ - One of the things we can be sure of over the July 4th weekend is that news reports will keep telling us how many of us are going to die in automobile accidents.
+ - When there are starving people in the world, it seems wrong that so many of us Americans eat as much for entertainment as for nourishment.
+ - I hate to say it, but I had a great time in World War II.
+ - Figure skating is an unlikely Olympic event but its good television. It’s sort of a combination of gymnastics and ballet. A little sexy too which doesn’t hurt.
+ - Nothing in fine print is ever good news.
+ - American closets are filled with once-worn clothes that got a bad review from a friend on their first appearance.
+ - No matter what any of the grammar teachers say, punctuation is an arbitrary matter. It should be used to make sentences clear.
+ - The only people who say worse things about politicians that reporters do are other politicians.
+ - Uh, yeah, this is the VD clinic calling. Speaking of being positive, your test is back. Stop sharing the love.
+ - It is possible to be dumb and be a college president.
+ - Unfortunately, propaganda works.
+ - Half the cookbooks tell you how to cook the food and the other half tell you how to avoid eating it.
+ - Art is a by-product of an honest and successful attempt to do something well.
+ - It’s not so much that I write well, I just don’t write badly very often and that passes for good on television.
+ - Don’t keep saying, “I don’t know where the time goes.” It goes the same place it’s always gone and no one has ever known where that is.
+ - My own time is passing fast enough without some national game to help it along.
+ - Computers may save time but they sure waste a lot of paper. About 98 percent of everything printed out by a computer is garbage that no one ever reads.
+ - The best Christmas trees come very close to exceeding nature. If some of our great decorated trees had been grown in a remote forest area with lights that came on every evening as it grew dark, the whole world would come to look at them and marvel at the mystery of their great beauty.
+ - There are more beauty parlors than there are beauties.
+ - Almost all of us have an elevator or two in our lives somewhere. We wait for them, we ride on them. We’re annoyed by the wait but pleased with the lift.
+ - I don’t like food that’s too carefully arranged; it makes me think that the chef is spending too much time arranging and not enough time cooking. If I wanted a picture I’d buy a painting.
+ - My most serious character flaw is that I don’t deny myself much.
+ - I dislike loud-mouthed patriots who think they like our country more than I do. Some people’s idea of patriotism is hating other countries.
+ - I just wish insignificance had more stature.
+ - Believing is such a comfort that it’s hard to give up a belief just because it isn’t true.
+ - The teacher who knows the most about a subject isn’t necessarily the one who can teach it best.
+ - Christians talk as though goodness was their idea but good behavior doesn’t have any religious origin. Our prisons are filled with the devout.
+ - If dogs could talk it would take a lot of the fun out of owning one.
+ - I can’t choose how i feel. But i can choose what I do about it.
+ - Last night we had three small zucchini for dinner that were grown within fifty feet of our back door. I estimate they cost somewhere in the neighborhood of $371.49 each.
+ - I’m already suspicious of anyone who thinks he or she is smart enough to be president. You’d have to have some ego to believe that about yourself.
+ - Most of the people in the world are good and decent if you give them a chance to be...
+ - I obviously have a knack for getting on paper what a lot of people have thought and didn’t realize they thought. And they say, ‘Hey, yeah!’ And they like that.
+ - I know a lot of you believe that most people in the news business are liberal. Let me tell you, I know a lot of them, and they were almost evenly divided this time. Half of them liked Senator Kerry; the other half hated President Bush.
+ - Everyone hates war, everyone says.
+
+179 quotes

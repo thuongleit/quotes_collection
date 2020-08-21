@@ -1,0 +1,44 @@
+ - I want to be like water. I want to slip through fingers, but hold up a ship.
+ - I’m not a happy person when I’m working.
+ - Everything’s connected, and everything has meaning if you look for it.
+ - An interview is like a minefield.
+ - Grief is like a moving river, so that’s what I mean by it’s always changing. It’s a strange thing to say because I’m at heart an optimistic person, but I would say in some ways it just gets worse. It’s just that the more time that passes, the more you miss someone.
+ - I was born with a fierce need for independence.
+ - I don’t believe that life is linear. I think of it as circles – concentric circles that connect.
+ - From Blue Valentine I kept my wedding ring. I actually kept it on for a while. After the shooting had stopped, I was still wearing it – I couldn’t quite take it off – and now I keep it above the kitchen sink where I do dishes, as a little memento.
+ - Even the simplest things, I’m guilty of making really bad decisions a lot of the time.
+ - I like to do weird things in the shower, like drink my coffee, brush my teeth and drink a smoothie. It’s good time management.
+ - I mean, I am still such the-good-girl. I want everybody to like me. I want everybody to be happy.
+ - I had always been kind of obsessed with making a home of my own and was always drawing rooms that I wanted to live in, down to pictures on the wall and the faces that would be in the photographs, and how the couches would be situated.
+ - I’ve come to learn that the choices I labor over and go back and forth about and ask a million people for their opinions and make lists about those are always the wrong choices.
+ - I’m not going to rush anything and scamper around like a mad person and make myself crazy.
+ - I don’t want to do anything to embarrass my family or my church because the town that I come from is so small. There are certain things that I just can’t be part of because of my foundation.
+ - I learn a lot; what I learn cannot be expressed in words.
+ - I’m not lonely, and I think that has a lot to do with what’s on my bedside table rather than what’s in my bed.
+ - The idea that you can get everything you want in one person is destructive, and maybe when you accept that the number is closer to 50 or 60 or 70 percent, that’s when you can start to make some progress in choosing the right person.
+ - I don’t know what my version of a relationship or marriage is yet, because the typical model seems a little broken to me.
+ - I find that each job that I do, the thing that gets me there is when I’m not smarter than it, when I don’t know instantly how that thing is made. Because if I do, then it’s boring. Or it would be simple.
+ - I don’t know what 15-year-old doesn’t have a desire to separate themselves from their parents and prove their independence.
+ - I love domestic life.
+ - It’s all so personal, isn’t it? It’s hard to talk about work without talking about things that are personal. Work is personal. I don’t want to talk about my personal life, but it’s on my mind, and it’s in my work.
+ - There was a sense of being taken on a journey by the grandmaster of the road trip. You feel this weird angel taking you somewhere. You don’t know where, but you trust him.
+ - The possibilities are endless for me – Broadway, TV, music and film.
+ - Is there anything better than making a kid laugh?
+ - Listen, I’ve always been very headstrong.
+ - Every movie I make I find kind of excruciating. I get a lot back from it, but I feel like I’m kind of always working at the edge of my ability. I guess that’s what I’m looking for when I go to work. I am trying to become the edge.
+ - I’m not making any bets on the future.
+ - I love things that are old and beautiful and tell a story, even if it’s a sad one.
+ - Whatever education I got was from experience and reading. But I also realize I wouldn’t pass my friend’s sixth-grade class.
+ - For this relay there was a little more pressure because it’s the 200, you have to make sure you swim it smart. The 100 was more about energy.
+ - When I was filming the Marilyn Monroe movie, I was listening to a lot of Leonard Cohen.
+ - One of the best things – and something I’m grateful for every time I walk onto a film set – is my six and a half years on Dawson’s Creek and the experience it afforded me in how to get comfortable with the camera.
+ - Because whatever I feel inside, it has a place to go. It just saves me over and over and over again.
+ - I started acting as a child in Community Theatre but I didn’t do any serious stuff. It was all musicals like ‘Annie’ and ‘Wizard of Oz.’ I was always in the chorus.
+ - For me, relationships are the real action movies. Bombs are exploding every day and the kitchen is Ground Zero.
+ - I am a huge Leonard Cohen person.
+ - I just came in this morning with one goal; to make it back tonight, so I’m very excited for the final.
+ - I did find my direction at an early age.
+ - Oh, Zoe Kazan – I’d move back to Brooklyn for her. She makes me happy with my life. Knowing her, being at her dinner table, going on a walk with her is the best of all possible worlds.
+ - I don’t think things through very often – I don’t project into the future about how a situation will turn out.
+
+42 quotes

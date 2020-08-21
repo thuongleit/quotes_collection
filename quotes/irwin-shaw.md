@@ -1,0 +1,49 @@
+ - There are too many books I haven’t read, too many places I haven’t seen, too many memories I haven’t kept long enough.
+ - The writer works in a lonely way.
+ - No writer need feel sorry for himself if he writes and enjoys it, even if he doesn’t get paid.
+ - People who light up like Roman candles come down in the dark very quickly.
+ - I haven’t stuck to any formula. Most great writers stick to the same style, but I wanted to be more various.
+ - In America, we have the feeling of the doomed young artist. Fitzgerald was the great example of that.
+ - In the theater, characters have to cut the umbilical cord from the writer and talk in their own voices.
+ - Writing is like a contact sport, like football. You can get hurt, but you enjoy it.
+ - All writers are the same – they forget a thousand good reviews and remember one bad one.
+ - You must avoid giving hostages to fortune, like getting an expensive wife, an expensive house, and a style of living that never lets you aford the time to take the chance to write what you wish.
+ - A writer is a human being. He has to live with a sense of honor.
+ - If you’re young enough, any kind of writing you do for a short period of time is a marvelous apprenticeship.
+ - Curiously, the United States is full of writers who have one big work in their life and that’s all.
+ - I look at everything. God gave me eyes and I look at women and men and subway excavations and moving pictures and the little flowers of the field. I casually inspect the universe.
+ - I never show anything to anybody until I’ve finished it.
+ - An absolutely necessary part of a writer’s equipment, almost as necessary as talent, is the ability to stand up under punishment, both the punishment the world hands out and the punishment he inflicts upon himself.
+ - I cringe when critics say I’m a master of the popular novel. What’s an unpopular novel?
+ - Critics in New York are made by their dislikes, not by their enthusiasms.
+ - My views naturally have mellowed. Most of the critics have been more or less nice to me.
+ - Isaac Singer was born in Poland and doesn’t write in English. Still, he’s an American.
+ - Ernest Hemingway did a great deal toward making the writer an acceptable public figure; obviously, he was no sissy.
+ - I never drink while I’m working, but after a few glasses I get ideas that would never have occurred to me dead sober.
+ - A good editor understands what you’re talking and writing about and doesn’t meddle too much.
+ - In a novel, it’s hard to keep track of everybody.
+ - The romantic idea is that everybody around a writer must suffer for his talent. I think a writer is a citizen of humanity, part of his nation, part of his family. He may have to make some compromises.
+ - I reach my readers regardless of what the critics have written.
+ - Writing for the theater, you find yourself living a nocturnal life.
+ - The great writers just kept bringing them out. They didn’t care if they repeated themselves.
+ - I imagine that my characters have become much more complicated than when I first began, which would be normal.
+ - Every novelist has a different purpose-and often several purposes which might even be contradictory.
+ - Posterity makes the judgments. There are going to be a lot of surprises in store for everybody.
+ - My attitudes have changed, but somebody would have to read all my books to find out how they have.
+ - When I started out in the early 1930s, there were a great many magazines that published short stories. Unfortunately, the short-story market has dwindled to almost nothing.
+ - I’ve gone on the wagon, but my body doesn’t believe it.
+ - Special-interest magazines are dangerous places for writers to start out in because the writing quickly falls into a routine and people are likely to find themselves artistically exhausted when they want to work on something of their own.
+ - I am forced to say that I have many fiercer critics than myself.
+ - I don’t think that the writer is regarded as a freak by Americans.
+ - In Europe, a writer is supposed to improve up until he’s about 75.
+ - If football players were armed with guns, there wouldn’t be stadiums large enough to hold the crowds.
+ - At the height of the McCarthy period, writers were being hounded.
+ - My favorite short-story writer is John Cheever.
+ - You have to expect the raps when you have achieved popularity as a writer.
+ - I’m not as hopeful as I was when I was young.
+ - Kennedy was a man who liked writers and even I got invited to the White House.
+ - Writing is finally play, and there’s no reason why you should get paid for playing.
+ - The last paragraph in which you tell what the story is about is almost always best left out.
+ - Writers of fiction, when they begin, are more likely to try the short form.
+
+47 quotes

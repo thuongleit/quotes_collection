@@ -1,0 +1,22 @@
+ - Everything is temporary. Everything is bound to end.
+ - Sometimes you’re trapped in writing songs and you don’t have enough distance from what you do anymore and you need the talent and the years of other people to come and jump in.
+ - I’m nothing more than what you actually see, but I am also the complete opposite.
+ - I like to capture moments. It’s like a photograph. Ten years from now you look at the photograph and you don’t remember it but rather the whole week or month around the photo.
+ - So usually even if you like a sentence or a story or something, it won’t come out that way – it’ll come out years later, and in a different way, and you don’t really control that.
+ - It was an hour and a half plane ride, so I slept. I try to sleep because that’s probably the only time I get to get my real sleep. When I can’t sleep I read books or watch movies.
+ - I believe that the beauty of repetition is something that is not explored enough yet.
+ - The first thing about a song is that it has to be real, be lived; it has to be emotional, and melancholic. I don’t mean sad. Melancholy is sort of a comfort. Melancholy has a sort of beauty to it. This attracts me to every other form of art...
+ - It’s just trying everyday to do the best you can and to enjoy what you have with the mixture of the venue and the sound and the crowd.
+ - I spend a lot of time writing in New York.
+ - I think it’s very good to have regrets, to learn how to live with them.
+ - You have to love writing a song and architecture. You have to give it a form. It is my job to create a sonic landscape. I like to create ambiance and atmosphere. The writing is the intimate part of it. It is a sketch. The production is the whole painting.
+ - Well, I grew up between Holland and Israel and then moved to France when I was eleven.
+ - I like the fact that there is challenge.
+ - When you record, you live with what you recorded for many many years, but when you play it’s just an hour and a half and then once it’s over it’s over.
+ - I don’t have a favorite place to play.
+ - I think many experiences are bound to be failures, and sometimes I regret them before they even happen.
+ - I was in the studio so much, it was about the search for air in a metaphoric sense, and the breathing has more to do with travel for me, about the search musically for open air.
+ - I’m always on a train or a plane, so wherever I happen to be is home.
+ - When you write songs, you can’t really point out the exact thing you’re inspired by. It’s more a state or a mood or an atmosphere that you’re trying to put into words.
+
+20 quotes
